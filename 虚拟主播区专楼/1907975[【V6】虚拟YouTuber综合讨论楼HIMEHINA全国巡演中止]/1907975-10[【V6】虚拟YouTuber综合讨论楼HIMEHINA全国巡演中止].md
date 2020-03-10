@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-10 22:02** 
+> ## **本文件最后更新于2020-03-11 00:02** 
 
 
 
@@ -1057,7 +1057,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_WWI2a" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_l5ZgQ" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10643,7 +10643,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_e50p2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_w30Rw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15452,6 +15452,25 @@ holo刘玄德，莫非是白姨，那关张是谁？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Reimu853|-1|哪来的弱智，莫名其妙|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17858,4 +17877,2168 @@ EA该死，毁灭好游戏
 
 
 
-                  
+
+
+-----
+
+####  QWANG  
+##### 14453#       发表于 2020-3-10 22:02
+
+
+
+
+与其说杏衰弱，不如说虹复苏，一二月太颓了，三月回归正常就把杏压着打了。
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14454#       发表于 2020-3-10 22:02
+
+
+
+
+有没有王侯我不知道，只知道爱蹭热度的ABO，成为屠龙英雄了
+
+
+
+
+
+
+C8AC7600-02AC-440C-9A88-9001DD4F0054.jpeg
+(42.58 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-10 22:02 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/10/220241jwavwzy4vvijwave.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14455#       发表于 2020-3-10 22:03
+
+
+
+
+其实就是ark民流到虹了
+
+
+说明龙皇这波战略有个致命的缺点，就是对手可以照抄，还抄的比你好<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14456#       发表于 2020-3-10 22:03
+
+
+
+<blockquote>ひびき 发表于 2020-3-10 21:56
+希望狐皇放弃功利之心，都已经是夸皇龙皇案板上的肉了，同接一直被倍杀，何必委屈自己玩那些达利特金游苦苦 ...</blockquote>
+老手都在🌈
+
+
+以及她跟出云霞跑的猎犬也挺拉胯，我看得都睡着了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14457#       发表于 2020-3-10 22:03
+
+
+
+
+我一开始还以为是我的错觉，感觉安皇最近勤奋起来了。然后跑去录播一看，噢果然是我的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14458#       发表于 2020-3-10 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 让我最可笑的是安皇之前被ark民刷屏，最后留了个卫星，真的是好笑
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14459#       发表于 2020-3-10 22:04
+
+
+
+ 本帖最后由 ひびき 于 2020-3-10 22:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46685862&amp;ptid=1907975" target="_blank">蒹葭公子 发表于 2020-3-10 22:03</a>
+
+老手都在🌈
+
+
+以及她跟出云霞跑的猎犬也挺拉胯，我看得都睡着了</blockquote>
+这个模组是典型的日系扯蛋模组啊，导入都几乎为0，pl还能演的骚操作到哪去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 14460#       发表于 2020-3-10 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的口嗨还能用忘了解释，没到上升到撒谎的那种程度，不像真正撒谎成性的人，要不是因为火烧眉毛头了，很多事情别人还蒙在鼓里，毕竟正常直播的时候说一句收到了粉丝礼物感谢一下有在好好用哪会被怀疑呢
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 14461#       发表于 2020-3-10 22:08
+
+
+
+
+ABO算不算彩虹圣天使？刚好贴贴对象也是三字母，妈都是同一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14462#       发表于 2020-3-10 22:10
+
+
+
+
+Abo不也是三字母
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 14463#       发表于 2020-3-10 22:10
+
+
+
+
+讲真你威秋霸跑团套了一层皮再套一层皮搞RP就尼玛离谱，能不拉跨吗
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14464#       发表于 2020-3-10 22:10
+
+
+
+<blockquote>ひびき 发表于 2020-3-10 22:04
+这个模组是典型的日系扯蛋模组啊，导入都几乎为0，pl还能演的骚操作到哪去 ...</blockquote>
+虽然以下发言可能会得罪跑团大佬但我就直说了吧，其实疯狂山脉也挺拉胯
+
+
+那玩意儿用我们团里一个十年老pl表示：就是无限丢骰子，把推荐技能点高就完事了，探索量为0
+
+
+一开始我还不信，看完深表赞同，就靠大失败整活了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14465#       发表于 2020-3-10 22:14
+
+
+
+
+不是很懂为啥2000又开始轮<img src="https://static.saraba1st.com/image/smiley/animal2017/015.png" referrerpolicy="no-referrer">皇还是比三酱诚实的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14466#       发表于 2020-3-10 22:14
+
+
+
+
+虹ARK民数量比杏ARK民巅峰还多。不算大型企划，杏ARK民巅峰5000水平，底边也能带到六七千同接，现在大概还有3000。就算这些都跑到虹也就2000水平，是没法把虹ARK带到这个地步的。
+
+
+
+
+
+
+
+-----
+
+####  Mawile  
+##### 14467#       发表于 2020-3-10 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46685266&amp;ptid=1907975" target="_blank">森下未散 发表于 2020-3-10 21:10</a>
+
+别的两个看得少不评论，但是ark我以前就看过秦国猛男寨开荒，我觉得比起那时候的小秦还是现在的arklive更 ...</blockquote>
+YYSY狗头人直播是真的婆，以前看他黑魂2视频认识的，后面去看他直播，观感和现在管人真的是差不多突出一个虚无<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14468#       发表于 2020-3-10 22:14
+
+
+
+
+龙皇也没想到自己快玩腻了的过气游戏还能在管人界焕发新春，龙皇自己播ARK大部分不是带新人就是作业，拉胯才是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+亏皇在彩虹四皇出来之前就说过自己想玩PVP来着，但是苦于holo无人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+holo服里自己单人探索过洞窟的好像就三个人来着？
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14469#       发表于 2020-3-10 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46685994&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-10 22:14</a>
+龙皇也没想到自己快玩腻了的过气游戏还能在管人界焕发新春，龙皇自己播ARK大部分不是带新人就是作业，拉胯 ...</blockquote>
+亏皇赶紧加入彩虹和叶什么的碰一碰，蹭上这最后一波热度不是要起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 14470#       发表于 2020-3-10 22:18
+
+
+
+
+疯狂山脉本来就拉胯，有那么多好玩的游戏不玩我看你丢骰子玩？
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14471#       发表于 2020-3-10 22:18
+
+
+
+
+疯狂山脉确实啊，丢骰子的内容差不多占了九成吧
+
+个人觉得coc看的就是个探索调查，这个模组调查内容一共就那么一丢丢，还得让你先丢个几十次骰子过了才让你玩，能不拉胯吗
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 14472#       发表于 2020-3-10 22:20
+
+
+
+
+dnd有兴趣可以看看critical role，不过太长了
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 14473#       发表于 2020-3-10 22:24
+
+
+
+
+江皇不想舔中你们还要摁着别人的头不放，那个措辞已经是很温柔地否决了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14474#       发表于 2020-3-10 22:25
+
+
+
+
+江皇这次一周年SC有点不够看啊，原来觉得200w保守，虽然看的人多，现在看来也是远不如葛皇的。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14475#       发表于 2020-3-10 22:27
+
+
+
+<blockquote>YODOboi 发表于 2020-3-10 22:24
+江皇不想舔中你们还要摁着别人的头不放，那个措辞已经是很温柔地否决了，现在来B怕不是要被夸哥带着 ...</blockquote>
+不想舔中完全可以不提啊，字幕组基本每一家都送了花篮吧，结果提到你批的就那么几个......除了江皇还有阿菜，这个就更明显了，那语气酸的......
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14476#       发表于 2020-3-10 22:27
+
+
+
+
+杏亡了！杏亡了！
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 14477#       发表于 2020-3-10 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686128&amp;ptid=1907975" target="_blank">蒹葭公子 发表于 2020-3-10 22:27</a>
+不想舔中完全可以不提啊，字幕组基本每一家都送了花篮吧，结果提到你批的就那么几个......除了江皇还有阿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得那个是字幕组问的？然后人家就只能敷衍一下“下次一定”了
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14478#       发表于 2020-3-10 22:30
+
+
+
+<blockquote>寒星 发表于 2020-3-10 22:29
+我记得那个是字幕组问的？然后人家就只能敷衍一下“下次一定”了</blockquote>
+我云歪了？
+
+
+等我去看看视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14479#       发表于 2020-3-10 22:31
+
+
+
+<img src="https://img.imoutomoe.net/images/2020/03/10/QQ20200310223005.jpg" referrerpolicy="no-referrer">
+
+事到如今……
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14480#       发表于 2020-3-10 22:32
+
+
+
+ 本帖最后由 QWANG 于 2020-3-10 22:35 编辑 
+
+江皇现在真的还算404翘楚吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不对，虽然SC没杏多，不过在虹女里面还是第一，虹又是404第一箱，404翘楚没问题。
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 14481#       发表于 2020-3-10 22:33
+
+
+
+
+学学露露，闷头打游戏，字幕组送花篮了？谢谢啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14482#       发表于 2020-3-10 22:34
+
+
+
+
+江皇一周年+小复活的打钱buff确实弱了点啊，女彩虹人gachi容易流失说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 14483#       发表于 2020-3-10 22:35
+
+
+
+
+和露露这种没进b的比个啥
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 14484#       发表于 2020-3-10 22:35
+
+
+
+
+抄了ARK作业的彩虹人同接好起来乐
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14485#       发表于 2020-3-10 22:35
+
+
+
+
+都是葛叶的错
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14486#       发表于 2020-3-10 22:37
+
+
+
+
+为啥你们会觉得疯狂山脉拉胯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 洛氏恐怖的精髓不就是不可名状的伟大存在与渺小人类之间的反差吗
+
+
+身份代入的好了，前面登山的无数骰子都是积累对山这个宏大存在的认识，增加对调查员的威压，在揭晓的时候调查员的渺小感就如同洪水一样释放出来
+
+
+至于能不能探索到最后那个控制方法都是次要的了，也许对于传奇调查员强迫症患者很重要，但普通调查员能跑到这样我觉得效果已经很好了
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14487#       发表于 2020-3-10 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686215&amp;ptid=1907975" target="_blank">kk89897 发表于 2020-3-10 22:33</a>
+
+学学露露，闷头打游戏，字幕组送花篮了？谢谢啊</blockquote>
+露露又没有b限，也不会有人问她b限啥时候播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl
+
+熟肉片段看不出前因后果，只知道突然提到了bilibili然后字幕组才打的sc
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14488#       发表于 2020-3-10 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 葵皇当时没看到字幕组众筹的花篮，推上发的图也没带字幕组，真是让东厂葵熊寒心了
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14489#       发表于 2020-3-10 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686252&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-10 22:37</a>
+
+为啥你们会觉得疯狂山脉拉胯啊 洛氏恐怖的精髓不就是不可名状的伟大存在与渺小人类之间的反差吗
+
+
+身 ...</blockquote>
+然而trpg无限丢骰子就是很烦，没法代入
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 14490#       发表于 2020-3-10 22:40
+
+
+
+
+怎么就亡了......杏总共就两个一军出战
+前五二比二
+而且虹皇不也就来了个猴子，莫非你楼还有认葵皇的？
+这明明就西线无战事好吧
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 14491#       发表于 2020-3-10 22:41
+
+
+
+
+你好，作为从来不看虹杏的管人观众的观众，我不知道。不过，箱推本来就是基本盘里左手倒右手，兔头那样独特的vliver热度也早不如18年了，更何况彩虹这代谢速度。毕竟比起过气，我觉得她火起来更令人费解（此条可aoe全体管人
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14492#       发表于 2020-3-10 22:45
+
+
+
+ 本帖最后由 QWANG 于 2020-3-10 22:51 编辑 
+
+火起来这种事情大家都是马后炮，真有人知道如何让一个管人火起来那直接去虹杏当座上宾多好。田角和谷乡都得供着你。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14493#       发表于 2020-3-10 22:46
+
+
+
+
+只有兔头这样的管人才不会被代谢么，那亏皇岂不是也有被代谢的那一天
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 14494#       发表于 2020-3-10 22:46
+
+
+
+
+是狂气山脉这个模组太特殊了，作者まだら牛さん是个实打实的登山家，为了体现山的强大各个环节只能用骰子来提高难度，而且这个本来就不是一个RP重视型模组
+
+coc特别是日式coc是有相当多的RP重视型模组的，当然对不喜欢trpg这种形式的人来说虚无就是虚无
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14495#       发表于 2020-3-10 22:46
+
+
+
+
+るしあの魂キャス
+
+･偏頭痛
+
+･胃下垂
+
+･薬飲めない
+
+･牛乳飲めない
+
+･逆流性食道炎
+
+･毎日悪夢見て起きる
+
+･人間不信
+
+･身バレでバイト出来ない
+
+･脱衣場の床で寝る
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 14496#       发表于 2020-3-10 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46685558&amp;ptid=1907975" target="_blank">Sutegoro 发表于 2020-3-10 22:38</a>
+
+反智小鬼这就气急败坏只会扣鹅了嗷，人做mad死路一条的还能说版权灰色，更有一对做mmd做到财色双 ...</blockquote>
+先手扣帽子还行，您是帽魔吗？见面先送人帽子。久钓成性头昏的话吹吹冷风对自己好点。我说拯救个人势，您这么聊下去一会儿人类就登陆火星了
+
+这么爱发散就发散一下呗
+
+先来数你v圈的爷爷视频势，做内容的，颓势显著，始皇帝都不行了。
+
+再说你v圈的奶奶主播，你要是把打游戏、杂谈闲聊算做内容，那你内容挺丰富的，直接出道吧；做内容你就做企划、搞综艺、做节目，那你就说说有多少是主打这方面的？
+
+再说v圈，以两大箱为例，偶像路线holo做企划的人少，就说龙皇保持高强度更新和出道不久的buff和自身天生优势，不还是会被人骑上面吗？这几天你楼不也开始嚼舌头让龙皇掏新东西了？彩虹确实企划多，头部几个企划多吗？做企划的彩虹人有几个超了holo？
+
+再从404跳回b站
+
+小希小桃做内容的、投稿多，也有蹭梗，41w；冰糖是从mmd转fgo+歌+痴女路线转vtuber，47w，直播也不做什么企划内容。这两个都是虚研社，虚研社是有在漫展宣发“关注一下，就能领奖品”这种途径的。
+
+再说我们热点大师京华、阿p，你还要我说吗？
+
+
+一个人搜肠刮肚做内容能坚持多久？你能坚持多久？龙皇整活儿起码拔高了自己的人气，彩虹那边收效多少呢？视频势那边又收效多少呢？
+
+箱都这样，我就敢说个人势就是“做内容死路一条”。在阿B发家，高女士演示的还不够好？
+
+脑袋坐凳子不可取啊这位小姐
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 14497#       发表于 2020-3-10 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686369&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 22:46</a>
+
+只有兔头这样的管人才不会被代谢么，那亏皇岂不是也有被代谢的那一天</blockquote>
+业界才过多久呢，几根菜啊，去年年末那会儿这里不一堆人还在给安排毕业吗
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14498#       发表于 2020-3-10 22:49
+
+
+
+
+对线我爱看，楼友对线可比看女主播打游戏有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14499#       发表于 2020-3-10 22:50
+
+
+
+
+委员长做的内容是别人不可复制的。是当时V圈中特立独行的一定质量的内容。吸引了亚文化中的亚文化受众，可以说是一次扩圈。
+
+并且由于路线稳定，所以受众也稳定。但同样因为路线问题，吃不到现在的观众群。（泛二次元和nico生观众）
+
+
+以上是个人理解。出道时没看，基本是补的。也是马后炮
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 14500#       发表于 2020-3-10 22:53
+
+
+
+ 本帖最后由 sedumaizoonl 于 2020-3-11 00:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">跳脸回一句，这乱咬着实没意思，自己的道理也说不出来算哪门子对线。憋久了会拆家，发泄一下总是好的，扣帽子就扣吧
+
+
+syl有内容≠做内容 随性可以写出好文章=有内容  想办法写出好文章=做内容  
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14501#       发表于 2020-3-10 22:56
+
+
+
+ 本帖最后由 proxima 于 2020-3-10 23:00 编辑 
+
+时雨妈把虹杏都杀了，还说不是时雨妈最强?
+
+
+
+
+
+
+IMG_20200310_225954.jpg
+(320.22 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-10 23:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/10/230032qtddxiztx555wt5r.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 14502#       发表于 2020-3-10 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686263&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-10 22:37</a>
+
+葵皇当时没看到字幕组众筹的花篮，推上发的图也没带字幕组，真是让东厂葵熊寒心了 ...</blockquote>
+staff没给她照片，又不准她们出去看。不过感想会的时候提到了
+
+
+syl，露露不光提到花篮，还理了字幕组的sc，露厨都哭了好吗
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14503#       发表于 2020-3-10 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686262&amp;ptid=1907975" target="_blank">蒹葭公子 发表于 2020-3-10 22:37</a>
+露露又没有b限，也不会有人问她b限啥时候播
+
+syl
+
+熟肉片段看不出前因后果，只知道突然提到了bilibil ...</blockquote>
+熟肉片段的确看不出，因为是札幌结束后采访，采访到了两位江组的留学生，两人当着许多观众的面催的江菜B限，才导致江皇后来在直播中提了这事。
+
+现在散场后采访的时光机貌似已经过期了，可能字幕组自己有留录像。
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 14504#       发表于 2020-3-10 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你楼怎么还有说小秦直播虚无的，就前几天那个大老爹你圈有几个做得出这种效果？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14505#       发表于 2020-3-10 23:00
+
+
+
+<blockquote>thisisaspider 发表于 2020-3-10 22:50
+委员长做的内容是别人不可复制的。是当时V圈中特立独行的一定质量的内容。吸引了亚文化中的亚文化受众，可 ...</blockquote>
+委员长出道后我也看了很久了，但是你说不可复制我还真不太懂，请问做的内容哪些不可得，能讲讲吗？
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14506#       发表于 2020-3-10 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿缺那个2k20看的我一个对篮球一点兴趣都没有的人都想买一个游戏回去玩了
+
+我看管人要做到这个效果那还是难的很
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mika-S|-1|说话跟放屁一样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 14507#       发表于 2020-3-10 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686490&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-10 22:58</a>
+
+熟肉片段的确看不出，因为是札幌结束后采访，采访到了两位江组的留学生，两人当着许多观众的面催的江菜B ...</blockquote>
+原来如此，是我错怪江皇了.....
+
+但是下次麻烦江皇找个好点的借口比如咖......算了基德
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 14508#       发表于 2020-3-10 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686490&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-10 22:58</a>
+熟肉片段的确看不出，因为是札幌结束后采访，采访到了两位江组的留学生，两人当着许多观众的面催的江菜B ...</blockquote>
+要结合两国后的感想会看，我记得江组两次片段都烤了
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14509#       发表于 2020-3-10 23:02
+
+
+
+
+可能要李老八山泥若这种才算是有节目效果吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 14510#       发表于 2020-3-10 23:04
+
+
+
+
+我愿认时雨妈为最强个人势，但她吃多边流量也是铁板钉钉
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14511#       发表于 2020-3-10 23:04
+
+
+
+
+别双标啊各位，虹杏的ARK确实让不少人去买了ARK玩，楼里的还没真的去买，人家就算是小鬼也是真的买了去玩的，总不能楼里的人想买就可以算卖了100份，小鬼买了100份算是0份吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 14512#       发表于 2020-3-10 23:04
+
+
+
+<blockquote>蒹葭公子 发表于 2020-3-10 23:01
+原来如此，是我错怪江皇了.....
+
+但是下次麻烦江皇找个好点的借口比如咖......算了基德 ...</blockquote>
+第二次说要搬家的时候确实是要搬家的，毕竟人身安全总要保障的
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14513#       发表于 2020-3-10 23:08
+
+
+
+
+我怎么记得是两国后感想会，字幕组给江皇打了sc但没提b限，然后江皇看到了，就主动道歉说b限会有的。然后两国后一直到演唱会也没来<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">然后演唱会后字幕组成员采访催b限，江皇就说等搬家，后来就大家都知道了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14514#       发表于 2020-3-10 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686511&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-10 23:00</a>
+
+委员长出道后我也看了很久了，但是你说不可复制我还真不太懂，请问做的内容哪些不可得，能讲讲吗？ ...</blockquote>
+好吧，不可复制说得有点过了，本意是指她本身对亚文化的认识需要一定的积累和感悟，这点难以被复制。<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14515#       发表于 2020-3-10 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686423&amp;ptid=1907975" target="_blank">thisisaspider 发表于 2020-3-10 22:50</a>
+委员长做的内容是别人不可复制的。是当时V圈中特立独行的一定质量的内容。吸引了亚文化中的亚文化受众，可 ...</blockquote>
+其实真没啥不可复制的，管人都是人，充其量就是个想不想得到，想不想去搞的问题罢了。搞个新皮变萝莉的直播不少人也想到了，她不过加了个穿越时空要素。多人同体，单人多角这些看起来貌似很牛逼的活儿也在她之后被搞了好多次。顶多算个鬼点子多的先行者。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14516#       发表于 2020-3-10 23:11
+
+
+
+
+亚文化天皇这么牛逼的话，建议下次去虚拟专利局申请个专利
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14517#       发表于 2020-3-10 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686601&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-10 23:09</a>
+
+其实真没啥不可复制的，管人都是人，充其量就是个想不想得到，想不想去搞的问题罢了。搞个新皮变萝莉的直 ...</blockquote>
+整活这种事情肯定能被复制（但这种事做第二人是没什么好说的），我认为这算是爆点和直播，不算内容。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14518#       发表于 2020-3-10 23:16
+
+
+
+
+差点造谣<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">手机编辑不了，不syl。
+我刚去看了江组的剪辑，两国感想会江皇是先聊到了花篮，然后主动道歉🙇‍♀️说等她搬完家，b限会有的。后面字幕组才打的sc，sc也没提b限，就一些祝贺辛苦的台面话
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14519#       发表于 2020-3-10 23:18
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-10 23:19 编辑 
+<blockquote>thisisaspider 发表于 2020-3-10 23:09
+好吧，不可复制说得有点过了，本意是指她本身对亚文化的认识需要一定的积累和感悟，这点难以被复制。[f:0 ...</blockquote>
+那我直说了，就说委员长的年龄，和业界一群30岁的有啥可比性，你会吹一个20出头的混迹各种论坛有独到见解，擅长在s1上爱讨论？？？
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14520#       发表于 2020-3-10 23:19
+
+
+
+
+整活抄作业你楼前段时间车轱辘过啊，毕竟没有虚拟专利局，开创者不好定义，而且大部分也不在乎。还有一些话就不提了，你楼现在没囚人了，帮阿委说话怕是会被群起而阴阳怪气。只能说，少云阿委啦
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 14521#       发表于 2020-3-10 23:22
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-10 23:26 编辑 
+
+莫欺兔头穷，等阿委（在梦中）同接制霸了，你们这些虫民还不是舔爆。syl vr的坛友不少了，要你上你可能真不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嗦一楼，有没有节目效果这种模糊的东西当然是声音最大的说得对，不争了
+
+
+
+
+
+
+
+
+-----
+
+####  JonnyGreenwood  
+##### 14522#       发表于 2020-3-10 23:22
+
+
+
+
+这个话题本来怎么讲理都在自己身上，偏偏鄙视年龄也太虚无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14523#       发表于 2020-3-10 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686705&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-10 23:18</a>
+那我直说了，就说委员长的年龄，和业界一群30岁的有啥可比性，你会吹一个20出头的混迹各种论坛有独到见解 ...</blockquote>
+亚文化积累这东西又不是什么正经学术知识，和年龄有啥关系，一个人十几岁难道就不能成为某个亚文化圈子无所不知无所不晓的人吗？这个踩得也太刻意了点。
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14524#       发表于 2020-3-10 23:25
+
+
+
+
+一转年龄也太草了，这时候又是年长者优了吗
+
+认真讲一句，要说亚文化积淀你很难靠20岁和30岁这种年龄来拉开差距，说人年轻阅历不足的还是省省吧
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14525#       发表于 2020-3-10 23:26
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-10 23:28 编辑 
+<blockquote>AloissiolA 发表于 2020-3-10 23:23
+亚文化积累这东西又不是什么正经学术知识，和年龄有啥关系，一个人十几岁难道就不能成为某个亚文化圈子无 ...</blockquote>
+没，那位在吹委员长亚文化见解的不可复制，且不说目前的v里面本身有多少亚文化的塑造者。我不是再说委员长亚文化吸收的少，只是年龄在这边，业界懂同样东西的不可能少。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14526#       发表于 2020-3-10 23:27
+
+
+
+
+所以说到底阿委哪些节目表现出对亚文化的独到见解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14527#       发表于 2020-3-10 23:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">熊猫人现在是她家里的顶梁柱，看到了当V的不稳定性后找一份稳定工作把V当副业也可以理解吧
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14528#       发表于 2020-3-10 23:27
+
+
+
+
+那不聊了。
+
+年龄真不重要，所谓的小众就在于有没有涉猎而已。
+
+也不是吹，我是指她视频受众和你圈的其他人不太相似。并且做出了一定质量。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14529#       发表于 2020-3-10 23:28
+
+
+
+
+你委一开始我就感觉到一股现充味
+
+
+对比一下四天王：老爱、luna、akari算现充味比较重的，siro、猫松算死宅味比较重，
+
+
+而月之就是兴趣比较怪的现充，
+
+
+四天王除了siro因为内部各种原因维持不了要求比较高的人设所以都各式各样的崩溃了，siro现在还算勉强维持，但也看不到未来了
+
+
+月之这种直播势反而能更简单的维持要求不高的人设、加上一直到现在的箱头红利，现在还能维持这种程度的人气也算合理了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14530#       发表于 2020-3-10 23:28
+
+
+
+
+天皇单人同接依然是最顶尖的啊，虫民哪敢不敬。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|先秒了我亏皇再说吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14531#       发表于 2020-3-10 23:29
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-10 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686795&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-10 23:26</a>
+
+没，那位在吹委员长亚文化见解的不可复制，且不说目前的v里面本身有多少亚文化的塑造者。我不是再说委员长 ...</blockquote>
+个人对亚文化的见解不可复制这句话也没错吧，就像你对兔头的看法也是独一无二不可复制的一样。你可以从她并没有真正展现对亚文化的独到观点角度说，但从年龄积累踩见解不行实在是踩偏了。
+
+省一楼，从你委平时聊个人生活也看得出，这人其实出奇的阳。各种学友、朋友满地跑，社内同事给她一个电话就能约出去玩，单人出入各种诡异的地方收集直播素材，单纯私生活的话估计是你虹数一数二现充的。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14532#       发表于 2020-3-10 23:30
+
+
+
+
+阿委为了做直播积累经验到处玩，怎么可能不是线充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 14533#       发表于 2020-3-10 23:32
+
+
+
+
+你委不就是现充，用当V的钱到处玩，玩完回来做repo，高同接接着赚钱，良性循环<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14534#       发表于 2020-3-10 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 亚文化的王为什么还屈服于田角的大棒槌在“原创”节目《百物语》（上集）中搞底边救助、宣传本社、等等这种不亚文化的的事情啊
+
+
+还让东厂囚人跳出来YYGQ，然后在下集和“川剧”变脸一样高呼不可战胜，
+
+
+以上说明月之再狠，也不如亏皇敢于反抗资本（yagoo），从这点看出，月之也不过只是资本的棋子，和已经独立于资本的亏皇没法比了，
+
+
+SYL  <img src="https://i.loli.net/2020/03/10/AQfZzWTvcj6kxe4.png" referrerpolicy="no-referrer"> 又有阿笹、阿葵糖了，舒服了，阿笹加油啊，不要输给命运！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14535#       发表于 2020-3-10 23:36
+
+
+
+
+阿委是果机用户，也就是说当初压根不打游戏。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14536#       发表于 2020-3-10 23:36
+
+
+
+
+第一个就足够牛逼了，就像老爱第一个提出vtb这个概念的，非要追求不可复制......那你说老爱又有哪个企划绝对不可复制了？
+
+早期那帮人最现充或者说和二次元亚文化最不沾边的应该是大葵。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14537#       发表于 2020-3-10 23:36
+
+
+
+
+所以天皇是死宅的旅游机器吗，众筹让她去旅游，回来做汇报，这样大家都旅游过了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 14538#       发表于 2020-3-10 23:38
+
+
+
+
+阿委不去现充哪来素材灵感直播？阿宅在家产不出内容也就只能车轱辘了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14539#       发表于 2020-3-10 23:38
+
+
+
+
+熊猫人这推是不是要彩虹上位势收入再评价了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14540#       发表于 2020-3-10 23:39
+
+
+
+
+那个截图是2000的号吗？2000怎么还关注了博士啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14541#       发表于 2020-3-10 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">彩虹前二就是一个喜欢到处玩的“阴角”和一个喜欢待在家里打游戏的“阳角”
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 14542#       发表于 2020-3-10 23:39
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-3-10 23:41 编辑 
+
+自从2月1号关注那个订阅平均人数和总人数以来，杏的人均订阅终于超过了虹
+
+<img src="https://img.saraba1st.com/forum/202003/10/233428b62kbvboovvb22r7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图-110477328.jpg</strong> (21.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-10 23:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/10/233428zxgjxgoqzwcq5fdq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图-110493015.jpg</strong> (18.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-10 23:34 上传
+
+
+
+
+
+（实际昨天还是43人，平均为13万1076和13万365，对比为去掉了毕业的朱雀？可是彩虹的毕业减去以后应该没有104人吧）
+
+
+我从2月1号看的当时数据是：彩虹1243万6800,11万9584
+
+holo452万1320，10万5146
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14543#       发表于 2020-3-10 23:41
+
+
+
+
+阿委那种到处从现实里找有趣的奇怪事例的模式倒真的很像我国段视频平台那些户外主播
+
+看她有种类似于看他们在野外抓野味吃的或者赶海捕鱼之类好玩的感觉
+
+区别在于日本城市化水平较高所以乐子从城市里找 中国自然风光多点
+
+V感或者说二次元家里蹲死宅感反而比较弱
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14544#       发表于 2020-3-10 23:41
+
+
+
+ 本帖最后由 艾特娜 于 2020-3-10 23:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686953&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-10 23:39</a>
+
+那个截图是2000的号吗？2000怎么还关注了博士啊</blockquote>
+看错了，这边这个确实是2000
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14545#       发表于 2020-3-10 23:42
+
+
+
+
+把stars扔出去不早就超了么，再毕业几个数字就更好看了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14546#       发表于 2020-3-10 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686986&amp;ptid=1907975" target="_blank">艾特娜 发表于 2020-3-10 23:41</a>
+看错了，这边这个确实是2000</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我截的是手机版推特，2000哥发的是PC推特，仔细看。
+
+省一楼，其实没把杏星算进杏p之前你杏人均从三期生出道后都吊打了彩虹快半年多了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14547#       发表于 2020-3-10 23:44
+
+
+
+
+看真死宅内容就去看最近一直在直播的冈田斗司夫，或者看自诩比他还牛逼的nbht啊
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14548#       发表于 2020-3-10 23:45
+
+
+
+ 本帖最后由 艾特娜 于 2020-3-10 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686795&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-10 23:26</a>
+
+没，那位在吹委员长亚文化见解的不可复制，且不说目前的v里面本身有多少亚文化的塑造者。我不是再说委员长 ...</blockquote>
+有没有相关知识和对知识的理解运用不是一回事吧，举个可能不太恰当的例子：大家都知道苹果熟了会从树上掉下来，可在牛顿之前就没人提出重力
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14549#       发表于 2020-3-10 23:46
+
+
+
+
+彩虹底边又不算人，建议拿头部43人和杏比。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14550#       发表于 2020-3-10 23:46
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-10 23:57 编辑 
+<blockquote>艾特娜 发表于 2020-3-10 23:45
+有没有相关知识和对知识的理解运用不是一回事吧</blockquote>
+那你来讲讲委员长对亚文化的运用？委员长的才能是一回事，
+
+无论是真人捧立绘，还是用剪辑推广直播都是前瞻性的。
+
+但是这和亚文化有锤子关系。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14551#       发表于 2020-3-10 23:48
+
+
+
+
+突然想起来今年的虚拟红白空妈都没上，反而是白姨去当二台主持了，白姨已经是木口牌面了么
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 14552#       发表于 2020-3-10 23:48
+
+
+
+<blockquote>qq845629713 发表于 2020-3-10 23:35
+亚文化的王为什么还屈服于田角的大棒槌在“原创”节目《百物语》（上集）中搞底边救助、宣传本社、 ...</blockquote>
+大亏那纯粹耍小孩脾气把同事全当傻子，要是yagoo姓宗像她人就没了，真狠还是要数龙姐，直接上洛，和seeds建立新秩序
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14553#       发表于 2020-3-10 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687049&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 23:48</a>
+
+突然想起来今年的虚拟红白空妈都没上，反而是白姨去当二台主持了，白姨已经是木口牌面了么 ...</blockquote>
+你才发现吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14554#       发表于 2020-3-10 23:50
+
+
+
+
+所以当初让彩虹能随意联动的凛姐算不算狠，要是没她田角风评好像更惨了
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14555#       发表于 2020-3-10 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687049&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 23:48</a>
+
+突然想起来今年的虚拟红白空妈都没上，反而是白姨去当二台主持了，白姨已经是木口牌面了么 ...</blockquote>
+阿委和白姨尬聊起来比较顺吧
+
+空妈和阿委一起聊那是感觉真的怪
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14556#       发表于 2020-3-10 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687053&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-10 23:48</a>
+你才发现吗</blockquote>
+当时我最爱的太子也没上，所以就没追直播，为啥偶像部那几个不换太子上啊，太子gachi激怒<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14557#       发表于 2020-3-10 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687038&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-10 23:46</a>
+
+那你来讲江委员长对亚文化的运用？</blockquote>
+最近的话比如募集粉丝画各种家具配件来组合当自己直播间的背景
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14558#       发表于 2020-3-10 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687109&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 23:52</a>
+
+当时我最爱的太子也没上，所以就没追直播，为啥偶像部那几个不换太子上啊，太子gachi激怒 ...</blockquote>
+我当时就说了，对上当时那个白组阵容，红组这边就应该上空葵太子姬雏，死好歹也要死的有尊严一点
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14559#       发表于 2020-3-10 23:57
+
+
+
+
+顺便问下太子有黑历史不，我挺喜欢太子的，所以没特意搜过中之人相关的东西<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14560#       发表于 2020-3-10 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687157&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 23:57</a>
+顺便问下太子有黑历史不，我挺喜欢太子的，所以没特意搜过中之人相关的东西 ...</blockquote>
+前模特，很美，没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14561#       发表于 2020-3-10 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687161&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-10 23:57</a>
+前模特，很美，没了</blockquote>
+模特来当唱歌的管人，有点迷惑啊。我还以为会是唱见之类的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14562#       发表于 2020-3-10 23:59
+
+
+
+
+太子的问题就是你楼每次斗颜值都不带她玩令我非常迷惑
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14563#       发表于 2020-3-11 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687080&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 23:50</a>
+
+所以当初让彩虹能随意联动的凛姐算不算狠，要是没她田角风评好像更惨了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">田角就是个做软件的，他懂个屁的VTB
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14564#       发表于 2020-3-11 00:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687194&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-10 23:59</a>
+太子的问题就是你楼每次斗颜值都不带她玩令我非常迷惑</blockquote>
+糊是最好的保护色吧，没热度是这样的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14565#       发表于 2020-3-11 00:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 其实我觉得博士挺可怜的，夜见是个蝗游戏的高手，什么热度都能蹭，社长能力和她完全不是一个级别，但我挺喜欢这种努力感的，很振奋人心，她要是跟着夜见一起蝗游戏，跟着社长蹭活动不至于现在这样子，
+
+
+熊猫人那个推确实很怪，按理说她的收入不至于全职当主播没法养活自己，确实是需要再评价了
+
+
+
+
+
+              
