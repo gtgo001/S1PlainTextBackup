@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 02:02** 
+> ## **本文件最后更新于2020-03-11 04:01** 
 
 
 
@@ -1076,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_p156r" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_ckm33" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10662,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_shjn0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_GK8L9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21511,4 +21511,215 @@ holo还不赶快去想办法抱大腿，把悠星舔高兴了又是一波暴涨<
 
 
 
-            
+
+
+-----
+
+####  Igarashi  
+##### 14641#       发表于 2020-3-11 02:03
+
+
+
+
+母亲的女性同事一般来说如果与母亲年龄差在十岁左右以内称为姨
+
+mio被称为妈，那木口女V基本上就都是姨
+
+尊被称为妈，那彩虹女V基本上也都是姨
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14642#       发表于 2020-3-11 02:08
+
+
+
+
+反正🚢姨自从姨营业之后数据蹭蹭涨
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 14643#       发表于 2020-3-11 02:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">ig是不是圣夸皇看多了智商开始退化了？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14644#       发表于 2020-3-11 02:11
+
+
+
+
+神他喵车轱辘姨文化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+v综的纯度，也下降了
+
+
+这打不出来还成，是我疏忽了
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 14645#       发表于 2020-3-11 02:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688351&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-11 02:11</a>
+
+神他喵车轱辘姨文化
+
+v综的纯度，也下降了</blockquote>
+还不都是万姨之姨海苔男的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 14646#       发表于 2020-3-11 02:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">真假姨有什么差,按F的时候还不是老老实实的
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 14647#       发表于 2020-3-11 02:52
+
+
+
+ 本帖最后由 蛋炒蜂窝煤 于 2020-3-11 03:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687038&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-10 23:46</a>
+
+那你来讲讲委员长对亚文化的运用？委员长的才能是一回事，
+
+无论是真人捧立绘，还是用剪辑推广直播都是前瞻 ...</blockquote>
+我是觉得会选择播欧洲企划已经证明这人够亚文化了，然而到底什么是运用我也挺懵逼的，说得有点道理但我也没往过这边想估计也说不清楚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+可能举几个例子会容易理解点，比如嚣张桐人的露易丝定型文，混沌3D，还有对瑟情有着莫名其妙的感想导致调查飞田新地跟租借sm娃娃还有在直播中谈论本子。一般观众也只会联想到生草而不是亚文化的那部分，要是能联想到的话她的内容确实是属于亚文化的一部分。
+
+只是亚文化也太广泛了，什么都能瞎jb算进去。只能说她确实是靠亚文化的内容引起了一部分亚文化圈子的共感，给圈子带来了流量。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 14648#       发表于 2020-3-11 03:16
+
+
+
+<blockquote>Reimu853 发表于 2020-3-10 20:51
+斗虫时候人数越大越好，选择播出内容上越小众越好，你们矛不矛盾啊……</blockquote>
+不矛盾，斗虫的同接是客观事实，内容的评价是主观审美。同接越高越好，内容越符合个人口味越好。mc ark符合日本达利特却不符合国内婆罗门，因此在斗虫时肯定同接，在评价时否定游戏。
+
+
+syl，管人金游一般都是管人及其受众双向选择的结果。
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 14649#       发表于 2020-3-11 03:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688672&amp;ptid=1907975" target="_blank">cheatdeath3 发表于 2020-3-11 03:16</a>
+不矛盾，斗虫的同接是客观事实，内容的评价是主观审美。同接越高越好，内容越符合个人口味越好。mc ark符 ...</blockquote>
+那么日本婆罗门和中国达利特的看法有没有？
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14650#       发表于 2020-3-11 03:39
+
+
+
+ 本帖最后由 free 于 2020-3-11 03:46 编辑 
+
+自己玩着好玩的游戏和适合直播的是两回事，直播要考虑播起来有没有节目效果的，很多比较婆的游戏播起来可能并不好看。
+
+我是一直想看有没有播rts的，不过管人可能多数操作水平都不行，播炉石的也行......又或者播点冷门独立游戏也好，狗皇那种玩的都是老游戏了，有没有玩点最近的独立小游戏的。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 14651#       发表于 2020-3-11 03:45
+
+
+
+<blockquote>lovcavil 发表于 2020-3-11 03:23
+那么日本婆罗门和中国达利特的看法有没有？
+
+
+—— 来自 vivo NEX S, Android 9上的 S1Next-鹅版 v2.0.4-p ...</blockquote>
+正常讨论还是玩文字游戏？后者的话只能说达利特喜欢其他达利特喜欢的游戏，婆罗门喜欢的游戏不需要也没有人会去关心。
+
+
+
+
+
+           
