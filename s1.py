@@ -129,7 +129,7 @@ def FormatStr(namelist, replylist):
 if __name__ == '__main__':
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
     # # 浏览器登录后得到的cookie，也就是刚才复制的字符串
-    cookie_str = r'YourCookie'
+    cookie_str = r'Your Cookie'
     # #把cookie字符串处理成字典，以便接下来使用
     cookies = {}
     for line in cookie_str.split(';'):
@@ -143,56 +143,58 @@ if __name__ == '__main__':
     rootdir="/home/ubuntu/S1PlainTextBackup/"
     with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
         thdata=json.load(f)
-    savethdata = thdata[:]
     bar = Bar('Main', max=len(thdata))
     for i in range(len(thdata)):
-        ThreadID = thdata[i]['id']
-        lastpage = int(thdata[i]['totalpage'])
-        RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
-        s1 = requests.get(RURL, headers=headers,  cookies=cookies)
-        # s1 = requests.get(RURL, headers=headers)
-        # s1.encoding='utf-8'
-        data = s1.content
-        namelist, replylist,totalpage,titles= parse_html(data)
-        if(totalpage > lastpage):
-            if(totalpage > 50):
-                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
+        if(thdata[i]['active']):
+            ThreadID = thdata[i]['id']
+            lastpage = int(thdata[i]['totalpage'])
+            RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
+            s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+            # s1 = requests.get(RURL, headers=headers)
+            # s1.encoding='utf-8'
+            data = s1.content
+            namelist, replylist,totalpage,titles= parse_html(data)
+            if((int(time.time()) - thdata[i]['lastedit']) > 2592000 or totalpage == 1):
+                thdata[i]['active'] = False
+                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'[A]'+titles+'/'
                 mkdir(filedir)
-            else:
-                filedir = rootdir+thdata[i]['category']+'/'
-            #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
-            startpage = (lastpage-1)//50*50+1
-            ThreadContent = [' ']*50
-            PageCount = 0
-            # lastpages = '%02d' %math.ceil(lastpage/50)
-            # remov(filedir+str(ThreadID)+titles+'-'+str(lastpages)+'.md')
-            bar2 = Bar('No.'+str(i)+' Progress', max=(totalpage+1 - startpage))
-            for thread in range(startpage,totalpage+1):
-                RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
-                # s1 = requests.get(RURL, headers=headers)
-                s1 = requests.get(RURL, headers=headers,  cookies=cookies)
-                data = s1.content
-                namelist, replylist,totalpage,titles= parse_html(data) 
-                ThreadContent[PageCount] = FormatStr(namelist, replylist)
-                PageCount = PageCount + 1
-                if(PageCount == 50 or thread == totalpage):
-                    lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
-                    pages = '%02d' %math.ceil(thread/50)
-                    filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
-                    with open((filedir+filename).encode('utf-8'),'w',encoding='utf-8') as f:
-                        f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
-                        f.writelines(ThreadContent)
-                    ThreadContent = [' ']*50
-                    PageCount = 0
-                bar2.next()                                        
-            savethdata[i]['totalpage'] = totalpage
-            savethdata[i]['lastedit'] = int(time.time())
-            savethdata[i]['title'] = titles
-            bar2.finish()
-        if((int(time.time()) - savethdata[i]['lastedit']) > 5184000 or totalpage == 1):
-            savethdata.pop(i)
-        with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
-            f.write(json.dumps(savethdata,indent=2,ensure_ascii=False))
+            elif(totalpage > lastpage):
+                if(totalpage > 50):
+                    filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
+                    mkdir(filedir)
+                else:
+                    filedir = rootdir+thdata[i]['category']+'/'
+                #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
+                startpage = (lastpage-1)//50*50+1
+                ThreadContent = [' ']*50
+                PageCount = 0
+                # lastpages = '%02d' %math.ceil(lastpage/50)
+                # remov(filedir+str(ThreadID)+titles+'-'+str(lastpages)+'.md')
+                bar2 = Bar('No.'+str(i)+' Progress', max=(totalpage+1 - startpage))
+                for thread in range(startpage,totalpage+1):
+                    RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
+                    # s1 = requests.get(RURL, headers=headers)
+                    s1 = requests.get(RURL, headers=headers,  cookies=cookies)
+                    data = s1.content
+                    namelist, replylist,totalpage,titles= parse_html(data) 
+                    ThreadContent[PageCount] = FormatStr(namelist, replylist)
+                    PageCount = PageCount + 1
+                    if(PageCount == 50 or thread == totalpage):
+                        lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
+                        pages = '%02d' %math.ceil(thread/50)
+                        filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
+                        with open((filedir+filename).encode('utf-8'),'w',encoding='utf-8') as f:
+                            f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
+                            f.writelines(ThreadContent)
+                        ThreadContent = [' ']*50
+                        PageCount = 0
+                    bar2.next()                                        
+                thdata[i]['totalpage'] = totalpage
+                thdata[i]['lastedit'] = int(time.time())
+                thdata[i]['title'] = titles
+                bar2.finish()
+            with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
+                f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
         bar.next()
     bar.finish()
 
