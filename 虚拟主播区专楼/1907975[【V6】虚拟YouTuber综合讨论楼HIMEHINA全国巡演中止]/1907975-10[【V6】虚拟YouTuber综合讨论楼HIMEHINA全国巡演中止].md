@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 00:02** 
+> ## **本文件最后更新于2020-03-11 02:02** 
 
 
 
@@ -608,6 +608,25 @@ n站上有百鬼大小姐的非法组队锤了，开apex果然是要叫towa好�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 艾特娜|-1|礼尚往来|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -1057,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_l5ZgQ" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_p156r" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10643,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_w30Rw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_shjn0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18936,10 +18955,11 @@ syl
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1|给你把鹅加回去，小秦直播效果暴打管人不是.|
 | Mika-S|-1|说话跟放屁一样|
 
 
@@ -20041,4 +20061,1454 @@ V感或者说二次元家里蹲死宅感反而比较弱
 
 
 
-              
+
+
+-----
+
+####  AloissiolA  
+##### 14566#       发表于 2020-3-11 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687203&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-11 00:01</a>
+其实我觉得博士挺可怜的，夜见是个蝗游戏的高手，什么热度都能蹭，社长能力和她完全不是一个级别， ...</blockquote>
+博士自己十万纪念的时候都直说了，要是自己不是在SMC出道绝对没有现在这个成绩。她主要是和SMC剩下两人相性好，不管是和社长的兄妹感还是魔术实验室的闺蜜感都吸引了不少粉丝，才能不至于和自己姐妹山神一样糊到穿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14567#       发表于 2020-3-11 00:04
+
+
+
+[https://twitter.com/michanw7](https://twitter.com/michanw7)
+
+太子以前的自我介绍就是模特，这也太自谦了，大葵还自称搞笑艺人呢......
+
+这种三次元艺人你想要啥黑点呀，我来黑一个吧！头发太少<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+虚拟红白呀，不说太子空妈，就算把明天王弄上去，也总比禺象咅那几个能唱，结果小白和禺象咅还占俩位置，大概当时还是偶像部的时候在本土还是有影响力的。
+
+
+
+
+省一楼，艾琳最近谁知道是啥情况，还有几个频道是自己的...
+
+家主也一个多月没更新了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 14568#       发表于 2020-3-11 00:05
+
+
+
+[https://youtu.be/7w3jBGX7UcY](https://youtu.be/7w3jBGX7UcY)
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14569#       发表于 2020-3-11 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">熊猫人二月把精力花在演唱会上，SC只有25万日元，演唱会还取消了，先前过惯了好日子的话有危机感蛮正常的吧，而且她父亲去年过世了，要养活家庭啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空虚澄璃色|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14570#       发表于 2020-3-11 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">小魔女这首op是真的好听
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14571#       发表于 2020-3-11 00:09
+
+
+
+
+别发了，你空妈啥时候能有一首原创曲能和笼中鸟比的再说吧。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14572#       发表于 2020-3-11 00:10
+
+
+
+ 本帖最后由 qq845629713 于 2020-3-11 00:15 编辑 
+
+草，这怎么删除图片，传个附件变成两张图了。好恶心
+
+
+
+
+
+
+D1E30F0E-398A-4FE0-8125-51EF8948C383.png
+(718.78 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-11 00:08 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/000842lhvukuhkodmupzro.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+EC3D7A2B-5C04-4118-9D14-DD415A802213.png
+(718.78 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-3-11 00:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/000906derfjzr1g1fwto9i.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14573#       发表于 2020-3-11 00:11
+
+
+
+
+演唱会赚钱啊，取消了肯定损失大，就算是真偶像j家akb啥的演唱会也占收入的挺大一部分的
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14574#       发表于 2020-3-11 00:12
+
+
+
+
+人家王侯怎么你了你又把人家踩一脚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14575#       发表于 2020-3-11 00:13
+
+
+
+
+等等，怎么还有人扣我鹅的，我真不是在YYGQ熊猫人
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 14576#       发表于 2020-3-11 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687157&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-10 23:57</a>
+
+顺便问下太子有黑历史不，我挺喜欢太子的，所以没特意搜过中之人相关的东西 ...</blockquote>
+以前提过一嘴，恰过网易的饭<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+[链接](https://www.sohu.com/a/218034962_383940)
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14577#       发表于 2020-3-11 00:13
+
+
+
+
+王侯理中客吹露露，被踩了，笑死
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14578#       发表于 2020-3-11 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687335&amp;ptid=1907975" target="_blank">Symphomy 发表于 2020-3-11 00:13</a>
+
+王侯理中客吹露露，被踩了，笑死</blockquote>
+没啥好笑的，2000逢王侯必踩而已，就像他逢黛灰粉必踩一样
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14579#       发表于 2020-3-11 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 泥潭这些个app没一个能用的，每次都得手机开电脑版网页才能发帖编辑。
+
+
+然后发图还一不小心发了两张，怎么编辑能编辑掉？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14580#       发表于 2020-3-11 00:21
+
+
+
+
+星街也被404gank了
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14581#       发表于 2020-3-11 00:21
+
+
+
+
+2000哥到底是什么成分，说是葵熊我看他阿葵黑的也不少啊，单纯的喜欢**虹人和彩虹观众么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14582#       发表于 2020-3-11 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687418&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-11 00:21</a>
+2000哥到底是什么成分，说是葵熊我看他阿葵黑的也不少啊，单纯的喜欢**虹人和彩虹观众么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">2000哥的成分就是2000哥
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 14583#       发表于 2020-3-11 00:25
+
+
+
+
+刚看了太子推特，平时说话怎么也是这个声音的，竟然不是营业声线么<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14584#       发表于 2020-3-11 00:25
+
+
+
+ 本帖最后由 艾特娜 于 2020-3-11 00:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687418&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-11 00:21</a>
+
+2000哥到底是什么成分，说是葵熊我看他阿葵黑的也不少啊，单纯的喜欢**虹人和彩虹观众么 ...</blockquote>
+扭曲了的葵熊，一直骂彩虹阴阳人的知名彩虹阴阳人
+
+你别看他老是黑阿葵，上次我说让阿葵别再浪费时间在学唱歌上他就来扣我鹅了，属于只能自己骂不让别人骂的那种粉
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14585#       发表于 2020-3-11 00:26
+
+
+
+
+inui还跑去星街被404gank下面生草是真的草
+
+
+syl
+
+看昨天星街和狗狗狗又跑出去唱卡拉OK吃独食
+
+就在想hero是不是也混入其中了
+
+
+
+
+
+
+
+-----
+
+####  森下未散  
+##### 14586#       发表于 2020-3-11 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687377&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-11 00:18</a>
+
+泥潭这些个app没一个能用的，每次都得手机开电脑版网页才能发帖编辑。
+
+
+然后发图还一不小心 ...</blockquote>
+编辑——点附件和图片看里面把多的删掉就完事了，有时候传了附件，图片栏也会自动出一张，就很迷
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14587#       发表于 2020-3-11 00:35
+
+
+
+
+这楼里骂自己的推的人不是挺多的吗。<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14588#       发表于 2020-3-11 00:37
+
+
+
+
+一会儿没来你楼，天皇就成了牛顿，该整个白上吹雪方程组和凑阿库娅相对论了
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 14589#       发表于 2020-3-11 00:38
+
+
+
+
+阿委早期直播真的挺惊艳的，许多经典回放到两年后的今天来看也一点都不过时。只可惜相比之下现在阿委经典回还是有，但是产出率下降太多了。有种搞笑艺人大火之后没法再完全把精力放在创作上，写不出当年那么脍炙人口的段子的感觉了
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14590#       发表于 2020-3-11 00:45
+
+
+
+
+18年委的直播频率和现在也不能比啊，不过直播水水也好，省得囚人老是把她捧得多高似的。2000为什么会变成这样从他一直记恨的对象来看，除去你楼的影响，估计一是隔壁坛虫楼去年辱葵过度，二是去年委葵合作频繁时期，囚人的拉踩行为，其他估计还有很多的小点。都说在s1不说人话，2000只不过把这一点发挥到了极点。另外他nga那个一穷二白三光的号直到被识破前还是说人话的，现在就放飞自我了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 14591#       发表于 2020-3-11 00:46
+
+
+
+
+阿委创造了现在这个圈子，却始终不属于这个圈子，把她和厄介死宅老狐狸放一起她都气得要打人了，希望田角基个德把人放了吧。
+
+
+
+
+
+
+QQ图片20200311004353.png
+(252.48 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-11 00:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/004603g8pvyxdc4dsxv98x.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14592#       发表于 2020-3-11 00:47
+
+
+
+
+谁不是有几幅面具呢，2000不被识破可能还在净土坛当个良民吧。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14593#       发表于 2020-3-11 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687460&amp;ptid=1907975" target="_blank">冰寒之月 发表于 2020-03-11 00:26:17</a>
+inui还跑去星街被404gank下面生草是真的草
+
+
+syl
+
+看昨天星街和狗狗狗又跑出去唱卡拉OK吃独食
+
+就在想hero是不 ...</blockquote>哈？hero和她们什么关系
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14594#       发表于 2020-3-11 00:48
+
+
+
+
+一米四六阴角阿花真的打得过坦克吹雪吗😯
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14595#       发表于 2020-3-11 00:49
+
+
+
+
+重量级不同的碾压吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14596#       发表于 2020-3-11 00:49
+
+
+
+ 本帖最后由 艾特娜 于 2020-3-11 00:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687646&amp;ptid=1907975" target="_blank">克罗夏 发表于 2020-3-11 00:45</a>
+
+18年委的直播频率和现在也不能比啊，不过直播水水也好，省得囚人老是把她捧得多高似的。2000为什么会变成这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不太对吧，我在隔壁是直到葵兔百物语的时候他在主楼帮葵说话才知道这人其实是个葵熊的，虫楼花式辱葵辱gamers从来没少了他一份
+
+至于我是怎么识破他的呢，主要是他压根没藏，差不多的话老是在两边同时发一遍
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14597#       发表于 2020-3-11 00:50
+
+
+
+
+别研究2000啦，你翻翻他的账单说不定还能看到彩虹zepp通票的购买记录呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14598#       发表于 2020-3-11 00:52
+
+
+
+
+多一楼，星街和阿床跑去唱k恰独食真的是罪无可恕啊啊啊啊啊啊啊啊啊啊啊，这么应该炎上绑火刑柱的行为木口anti和彩虹anti居然无动于衷，我只能说他们是又聋又瞎
+
+和这种罪行比狗狗私下打LOL简直是轻如鸿毛
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14599#       发表于 2020-3-11 00:52
+
+
+
+
+holo又接啥工商了？
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14600#       发表于 2020-3-11 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687690&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-11 00:50</a>
+
+别研究2000啦，你翻翻他的账单说不定还能看到彩虹zepp通票的购买记录呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我是不太信他真买了，以他性格如果有买的话演唱会时他怎么可能没同时在楼里YYGQ
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14601#       发表于 2020-3-11 00:53
+
+
+
+
+[粉丝] 【L6】虚拟扭曲葵熊激光2000综合讨论楼
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14602#       发表于 2020-3-11 00:58
+
+
+
+<blockquote>艾特娜 发表于 2020-3-11 00:49
+不太对吧，我在隔壁是直到葵兔百物语的时候他在主楼帮葵说话才知道这人其实是个葵熊的，虫楼花式 ...</blockquote>
+辱着辱着感觉不对劲了吧，自推辱起来还比较适度，其他人辱的过度就膈应到了吧?当然也可能是黑粉心态。   我是从他这么讨厌斗虫这一层想的，不对也无所谓。    尽量不全聊管人观众，虹ark今天没啥PVP因素真的一点都不想看，这几天好像也没啥大企划，彩虹又要萎了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 14603#       发表于 2020-3-11 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687203&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-11 00:01</a>
+
+其实我觉得博士挺可怜的，夜见是个蝗游戏的高手，什么热度都能蹭，社长能力和她完全不是一个级别， ...</blockquote>
+博士我觉得的是她擅长的方向和直播不太适合。她其实真擅长的就是画画，她同期两个人一个本职音乐人一个本职有绝活的游戏主播，直播干回老本行火起来不要太容易。而且她也从来不钓gachi，sc几乎不念，新会员来了也从来不管。不过她能有个游戏废物的梗还是能看出她一直在努力，而且同期是真的宠她，彩虹19的新人里面SMC应该是除了三马鹿以外箱感最明显的组合了。我是真的佩服夜见和社长能看着博士玩马造一直死虚无杂谈2个小时的。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14604#       发表于 2020-3-11 01:00
+
+
+
+
+比起研究2000我更想知道阿咲在忙啥<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">日本现在能忙啥啊？还是说心态出了问题不想直播？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14605#       发表于 2020-3-11 01:01
+
+
+
+
+大家又何尝不是如此呢<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14606#       发表于 2020-3-11 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687662&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-11 00:47</a>
+
+哈？hero和她们什么关系
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端</blockquote>
+这三人之前就一起去看偶像梦幻祭live 限界死宅组 感觉应该挺熟的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14607#       发表于 2020-3-11 01:03
+
+
+
+
+希望阿笹和西西一起转进木口，加入木口给马死，天天和宫姨墨姨贴贴
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 14608#       发表于 2020-3-11 01:04
+
+
+
+
+木口给马死只收坦克谢谢
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14609#       发表于 2020-3-11 01:05
+
+
+
+
+说不定再给笹嫌2020ver做mix呢
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14610#       发表于 2020-3-11 01:05
+
+
+
+
+胸大的事儿，怎么能叫坦克呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14611#       发表于 2020-3-11 01:07
+
+
+
+
+西姨脸不是也挺大的么，四舍五入也是个轻坦
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14612#       发表于 2020-3-11 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687705&amp;ptid=1907975" target="_blank">艾特娜 发表于 2020-3-11 00:52</a>
+我是不太信他真买了，以他性格如果有买的话演唱会时他怎么可能没同时在楼里YYGQ ...</blockquote>
+这个真不能错怪2000哥，难波的时候是有实况的，名古屋好像也零零星星提了两句
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14613#       发表于 2020-3-11 01:11
+
+
+
+
+u1s1，mysk姐贵我可以按F。
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14614#       发表于 2020-3-11 01:12
+
+
+
+ 本帖最后由 冰寒之月 于 2020-3-11 01:14 编辑 
+
+熊猫人大福和大亏以及猫都能组成组合了
+
+熊猫人也和mysk联动过
+
+是哪对有问题这个很清楚了吧
+
+
+syl 
+
+说到杏给马斯
+
+倒是给我种感觉虽然白姨是名义队长 但小团体的中心是狼
+
+
+zsyl
+
+从3D看mysk那身体活力感比好多20岁不到的死宅强多了
+
+当成NTR健美人妻不比瘦弱死宅强多了
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 14615#       发表于 2020-3-11 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687700&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-11 00:52</a>
+
+holo又接啥工商了？</blockquote>
+可能是那个东方泡泡龙，这两人都玩过
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14616#       发表于 2020-3-11 01:15
+
+
+
+
+西姨可还行，我啥时候能在这楼里看到有人喊祭姨？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14617#       发表于 2020-3-11 01:17
+
+
+
+
+确实，感觉这一天真的会到来，姨的时代！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14618#       发表于 2020-3-11 01:17
+
+
+
+
+麦姨<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14619#       发表于 2020-3-11 01:19
+
+
+
+
+海牛姨
+
+
+
+
+
+
+
+-----
+
+####  米德  
+##### 14620#       发表于 2020-3-11 01:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">海牛姨也太过分了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 14621#       发表于 2020-3-11 01:20
+
+
+
+
+越是滥用，这个黑屁称呼就越不刺耳，管粉果然和管人一样，创造力低下kana
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 14622#       发表于 2020-3-11 01:23
+
+
+
+
+什v什粉这个理论不是早就提出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14623#       发表于 2020-3-11 01:26
+
+
+
+
+有点情商好吧，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三次元不是16岁以下你敢喊30来岁的叫阿姨？是想社会性死亡吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 14624#       发表于 2020-3-11 01:30
+
+
+
+
+这个事儿我封号前就批判过了
+
+
+整天姨啊姨啊体现不出你特别冷无缺只体现出你没见过女人
+
+
+姨不仅是年龄上更是心灵上，而如果阿姨天使少女心还可以争辩两句，对很多身体也不姨的还整天姨啊姨啊就给人一种初中没毕业的感觉了，毕竟初中生见到二十五也要叫姨姨的。
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 14625#       发表于 2020-3-11 01:32
+
+
+
+
+姨不姨看心灵不能同意更多，看看aiko和松井珠就明白了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14626#       发表于 2020-3-11 01:34
+
+
+
+
+姨=精神绝经，哪怕只有20多岁，只要精神上绝经了，那就是姨
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14627#       发表于 2020-3-11 01:34
+
+
+
+
+致命提问：彭薇薇是不是姨
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14628#       发表于 2020-3-11 01:36
+
+
+
+
+无所谓，所有人都是姨就相当于所有人都不是姨
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 14629#       发表于 2020-3-11 01:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/013828holl7vvzovl181xv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3846.jpg</strong> (64.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 01:38 上传
+
+
+
+
+
+
+
+holo还不赶快去想办法抱大腿，把悠星舔高兴了又是一波暴涨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 14630#       发表于 2020-3-11 01:40
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-11 01:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688080&amp;ptid=1907975" target="_blank">Reimu853 发表于 2020-3-11 01:36</a>
+
+无所谓，所有人都是姨就相当于所有人都不是姨</blockquote>
+那只会让人觉得所有v综民很蠢，因为哪怕出了v综不v版也没人抓着个女的就喊姨
+
+你让肥妹痴喊一个试试？怕是他都喊不出口
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 14631#       发表于 2020-3-11 01:40
+
+
+
+
+不喜欢就不要用，我就从来不说这个词
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14632#       发表于 2020-3-11 01:40
+
+
+
+
+主要是kmm那张大脸照给我留下了极为深刻的印象，总让我想到菜市场大妈
+
+我记得psmm都比苔姨小吧
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14633#       发表于 2020-3-11 01:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688110&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-11 01:40</a>
+
+那只会让人觉得所有v综民很蠢，因为哪怕出了v综不v版也没人抓着个女的就喊姨
+
+你让肥美痴喊一个试试？怕是 ...</blockquote>
+姨不姨的也是v综乱黑屁的一环，相比起其他黑屁来我倒是觉得姨称呼算是轻的了……我是没太认真看待这些
+
+真要较真V综里应该都没有人够年轻到能叫这些人姨，我反正叫不出口
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 14634#       发表于 2020-3-11 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688157&amp;ptid=1907975" target="_blank">Reimu853 发表于 2020-3-11 01:45</a>
+
+姨不姨的也是v综乱黑屁的一环，相比起其他黑屁来我倒是觉得姨称呼算是轻的了……我是没太认真看待这些
+
+真 ...</blockquote>
+大学生管三十来岁的叫小姨没啥问题吧
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14635#       发表于 2020-3-11 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688171&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-11 01:47</a>
+
+大学生管三十来岁的叫小姨没啥问题吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我疏忽了，这也是习惯问题吧
+
+我反正是能姐姐就姐姐
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14636#       发表于 2020-3-11 01:51
+
+
+
+
+姨和妈同辈，能管小学生叫妈，不能管20多岁的叫姨？姨岂是如此严格之物？
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14637#       发表于 2020-3-11 01:53
+
+
+
+
+确实 我能叫Mio妈那Mio同辈都可以是姨
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 14638#       发表于 2020-3-11 01:56
+
+
+
+
+母性和加龄臭能是一回事？？？？？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14639#       发表于 2020-3-11 01:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688205&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-03-11 01:51:20</a>
+姨和妈同辈，能管小学生叫妈，不能管20多岁的叫姨？姨岂是如此严格之物？ ...</blockquote>反对，可以喊妈不代表同辈的可以喊姨
+
+对着晓、响、电喊姨你喊的下去？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14640#       发表于 2020-3-11 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688268&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-11 01:59</a>
+
+反对，可以喊妈不代表同辈的可以喊姨
+
+
+对着晓、响、电喊姨你喊的下去？</blockquote>
+这些八九十岁的的确不适合喊姨
+
+
+
+
+
+            
