@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 10:01** 
+> ## **本文件最后更新于2020-03-11 12:03** 
 
 
 
@@ -1076,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_w0sss" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_y7grJ" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10662,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_J6H3x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_LaA81" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21754,7 +21754,7 @@ syl，管人金游一般都是管人及其受众双向选择的结果。
 
  本帖最后由 qdaqd123 于 2020-3-11 05:03 编辑 
 
-<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_PfN18" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
+<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_Nkw52" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
 
 
 
@@ -22021,6 +22021,25 @@ holo还不赶快去想办法抱大腿，把悠星舔高兴了又是一波暴涨<
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|催更|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -22121,6 +22140,7 @@ holo还不赶快去想办法抱大腿，把悠星舔高兴了又是一波暴涨<
 
 
 
+ 本帖最后由 colodes 于 2020-3-11 10:36 编辑 
 
 LEGION＿JP
 
@@ -22130,9 +22150,106 @@ LEGION＿JP
 
 「Legion Doujou Cup：VTuber編」の出場者一覧が公開されました！
 
-チェックチェック！ 👀 
-[https://lnv.gy/3aK92tS](https://lnv.gy/3aK92tS)
+チェックチェック！ 👀 [https://lnv.gy/3aK92tS](https://lnv.gy/3aK92tS)
 
+
+大会日時
+
+2020年3月29日(日) 17:00～
+
+
+出演・ゲストプレイヤー
+
+MC：渋谷ハル
+
+実況：OooDa
+
+電脳少女シロ（.LIVE）
+
+花京院ちえり（.LIVE）
+
+北上双葉（.LIVE
+
+叶（にじさんじ）
+
+葛葉（にじさんじ）
+
+
+出場DUO
+
+ドクトル・ヤン&amp;夢乃名菓
+
+椎南纏&amp;むさしぃ
+
+ベータ&amp;アルファ
+
+神代Lie&amp;ジェイブ
+
+神凪瑠衣&amp;天道士狼
+
+ゆる杏子&amp;秋雪こはく
+
+花芽なずな&amp;天羽よつは
+
+インサイドちゃんMark2&amp;錦山夢鷹
+
+栗山やんみ&amp;すのぉる
+
+咲乃もこ&amp;小雀とと
+
+マール&amp;小鳥遊紫月
+
+屍鬼&amp;アベレージ
+
+ヱックス&amp;眠居 りぃこ
+
+Rおじちゃん&amp;ねきあ
+
+ろくろうちゃん&amp;白山ましろ
+
+主電源&amp;青空昴
+
+水月はるか&amp;柚子ゆっか
+
+エフィーナ・グレース&amp;湯呑マサ
+
+紅葉蓮&amp;希土真
+
+ペンネイム・デジタルハート&amp;朝仁ねむる
+
+琥珀&amp;空白ナツメ
+
+胡桃さらり&amp;ちゃんぬ
+
+OF-11D benzy&amp;LOLO
+
+すいりん&amp;ウラノイディウム
+
+聲綴フェルト&amp;四葉クロハ
+
+暁闇一華&amp;八代宥
+
+たかすま&amp;はいらいと
+
+Hull&amp;RQ9
+
+バーチャルゴリラ&amp;乾伸一郎
+
+探跡家もっけい&amp;BiBi
+
+天鬼りく&amp;たけし
+
+ラトナ・プティ&amp;桜 凛月
+
+月夜野ライト&amp;我衆院
+
+氷河野ユキ&amp;モノ=ユーフォスター
+
+湊音みなみ&amp;宇宙咲大和
+
+日ノ隈らん&amp;獅子神レオナ
+
+唯乃いおな&amp;弥生ヨツカ        
 [https://twitter.com/LEGION_JP/status/1237384334035861505](https://twitter.com/LEGION_JP/status/1237384334035861505)
 
 
@@ -22257,4 +22374,655 @@ LEGION＿JP
 
 
 
-          
+
+
+-----
+
+####  57042711  
+##### 14681#       发表于 2020-3-11 10:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46690130&amp;ptid=1907975" target="_blank">dorasir 发表于 2020-3-11 10:01</a>
+
+一年前雨宫太阳就因为“暴力内容”被ban过直播权限</blockquote>
+草··这绝对是被人举报了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+打块太神秘了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 14682#       发表于 2020-3-11 10:18
+
+
+
+
+可这是你委前天直播说的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14683#       发表于 2020-3-11 10:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46690052&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-11 09:54</a>
+ 看起来像在写小说，哪位大手子的作品啊</blockquote>
+是天皇直播自己说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl:上面提到明日方舟，我想知道如果木口联动明日方舟，那大亏既不是兽耳，也没有参加过工商，联动会有大亏一个位置吗？还是说真就工商我不去，联动我第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 14684#       发表于 2020-3-11 10:25
+
+
+
+
+没有兽耳就加个兽耳，兽耳岂是如此不便之物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14685#       发表于 2020-3-11 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46690386&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-11 10:23</a>
+
+是天皇直播自己说的
+
+syl:上面提到明日方舟，我想知道如果木口联动明日方舟，那大亏既不是兽耳，也 ...</blockquote>
+有没有完整一点的repo，我去学习一下日企文化
+
+
+
+
+
+
+
+-----
+
+####  JonnyGreenwood  
+##### 14686#       发表于 2020-3-11 10:35
+
+
+
+ 本帖最后由 JonnyGreenwood 于 2020-3-11 10:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46690416&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-11 10:26</a>
+
+有没有完整一点的repo，我去学习一下日企文化</blockquote>
+他搬运的nga虹楼
+[https://bbs.nga.cn/read.php?tid=18964472&amp;pid=403364860](https://bbs.nga.cn/read.php?tid=18964472&amp;pid=403364860)其实也就他搬的这几句话
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14687#       发表于 2020-3-11 10:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">锅老师一如既往地的速度
+
+
+
+
+
+
+IMG_20200311_103209.jpg
+(719.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-11 10:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/103513r3fwi7igpi3znk3p.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 14688#       发表于 2020-3-11 10:38
+
+
+
+
+楼里不会都是云明日方舟的吧，深海一族就是没啥特征啊，海王怎么不行
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 14689#       发表于 2020-3-11 10:38
+
+
+
+
+可是3JK确实牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都能参与运营做面试官了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14690#       发表于 2020-3-11 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46690528&amp;ptid=1907975" target="_blank">JonnyGreenwood 发表于 2020-3-11 10:35</a>
+
+他搬运的nga虹楼</blockquote>
+翻了几页没看到，不过看到了满屏的ark
+
+难怪你楼对ark深恶痛绝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 14691#       发表于 2020-3-11 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46690031&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-11 09:52</a>
+
+LEGION＿JP
+
+@LEGION_JP
+
+📣 ＜出場者公開！</blockquote>
+抽卡王道<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">没卡抽的只能派账号被ban的出去受辱也太惨
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 14692#       发表于 2020-3-11 11:06
+
+
+
+<[img src="https://i.loli.net/2020/03/11/3VrIpY2451oW9Gb.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CheshireK  
+##### 14693#       发表于 2020-3-11 11:09
+
+
+
+[http://2chcn.com/195160/](http://2chcn.com/195160/)
+
+2ch：这就是日本死宅参加活动时的情形
+<img src="http://wx1.sinaimg.cn/mw690/be6bdb92ly1gcpsvhx39pj20px0yk7pn.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/mw690/be6bdb92ly1gcpsvh8pp5j20sg0lcdju.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 14694#       发表于 2020-3-11 11:15
+
+
+
+
+舟游玩家都已经是过街老鼠了，那舟游云玩家岂不是过街鼠尾蛆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14695#       发表于 2020-3-11 11:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我亏神当然是只负责收钱，参加游戏联动这种事情当然和我无关啦，
+
+顺便，如果舟舟舟真的被木口拿到了。你虹就真的必死了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14696#       发表于 2020-3-11 11:21
+
+
+
+
+快一个月前的“新”闻了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202003/11/111933ni9nt0n0nlh09ztb.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-11 111209.png</strong> (431.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 11:19 上传
+
+
+
+
+
+
+顺便补张星街
+
+<img src="https://img.saraba1st.com/forum/202003/11/111933kuwl88wwl1laaz1n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>BgXmD8C.jpg</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 11:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14697#       发表于 2020-3-11 11:22
+
+
+
+
+这是啥联动啊......[https://twitter.com/yuni_vsinger/status/1237576142690725888](https://twitter.com/yuni_vsinger/status/1237576142690725888)
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/112147yacc83wcwacc4hnq.png" referrerpolicy="no-referrer">
+
+
+<strong>yuni.png</strong> (316.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 11:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14698#       发表于 2020-3-11 11:26
+
+
+
+
+现在看来，相比狐皇的手游联动引流法，龙皇的团建游戏引流法存在一个致命缺陷就是别人可以抄，彩虹抄了ark作业以后数据又起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14699#       发表于 2020-3-11 11:27
+
+
+
+
+手游联动就不能抄吗，也没人规定彩虹就不能去玩明日方舟，就看彩虹啥时候动员起来抄抄抄了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14700#       发表于 2020-3-11 11:29
+
+
+
+
+粥游玩家怎么会是老鼠<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">最近看贴吧粥游玩家都鲨疯了。
+syl:看lga说彩虹要开雀魂大赛？
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 14701#       发表于 2020-3-11 11:30
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcly1gcptw7ap84j20gm0g5doa.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 14702#       发表于 2020-3-11 11:30
+
+
+
+
+粥游这种挤牙膏式出干员是不会联动的 出三个干员要一个月 和彩虹抽卡速度一样
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 14703#       发表于 2020-3-11 11:33
+
+
+
+ 本帖最后由 winda 于 2020-3-11 11:36 编辑 
+
+手游联动虹早就在抄了，晓之破坏者已经联动过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正虹不能抄的作业当然是美元部纯净无男人的独角兽天堂啊
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 14704#       发表于 2020-3-11 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虹联动的手游尽是些臭鱼烂虾，等一个木口舟游睥睨众生
+
+—— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 14705#       发表于 2020-3-11 11:55
+
+
+
+
+零食会，会有辣条么<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 14706#       发表于 2020-3-11 11:56
+
+
+
+
+杏联动舟，杏就先被zwb扒了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14707#       发表于 2020-3-11 11:57
+
+
+
+
+晓之破坏者这种杂鱼游戏也能拿出来说的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再说那游戏就木口联动最多。而且第一个联动的虚拟管人也不是木口是HH
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14708#       发表于 2020-3-11 11:57
+
+
+
+
+杏联动舟，杏人里的zwb和fwb会先打起来
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 14709#       发表于 2020-3-11 11:58
+
+
+
+
+说到虹的手游联动，至今对当初的maple story联动印象深刻。。江露口这么豪华的阵容硬是给播到三个人同接加起来不过万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14710#       发表于 2020-3-11 11:59
+
+
+
+
+fwb是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14711#       发表于 2020-3-11 12:01
+
+
+
+
+虹信希望齁赶紧和舟联动，说实话
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14712#       发表于 2020-3-11 12:03
+
+
+
+
+别扯了，之前holo联动舰b的时候，你们也是觉得手游粉不吃这套的，但实际上还打开了英文市场。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14713#       发表于 2020-3-11 12:03
+
+
+
+
+都大胆点，虹杏哪个联动fgo，出卡的那种。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14714#       发表于 2020-3-11 12:03
+
+
+
+
+彩虹自己做一个游戏可以吗，都100来人了，做个彩虹大乱斗，或者彩虹抽卡手游
+
+
+
+
+
+         
