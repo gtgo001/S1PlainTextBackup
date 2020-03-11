@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 16:02** 
+> ## **本文件最后更新于2020-03-11 18:03** 
 
 
 
@@ -1076,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_XDXj9" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_J8bjW" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10662,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_Vi97i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_LTPPb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20144,10 +20144,11 @@ V感或者说二次元家里蹲死宅感反而比较弱
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 灵魂收割机| + 1||
 | 空虚澄璃色|-1||
 
 
@@ -21754,7 +21755,7 @@ syl，管人金游一般都是管人及其受众双向选择的结果。
 
  本帖最后由 qdaqd123 于 2020-3-11 05:03 编辑 
 
-<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_nnIm9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
+<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_NS4zx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
 
 
 
@@ -25309,10 +25310,11 @@ test
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1|好评加鹅|
 | 提挈天地| + 1|好评加鹅|
 | AloissiolA| + 1|好评扣鹅|
 
@@ -26970,4 +26972,1130 @@ yysy，我想看绿仙大战小护士
 
 
 
-  
+
+
+-----
+
+####  IDIDIDID  
+##### 14918#       发表于 2020-3-11 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694366&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-11 16:01</a>
+
+额，我说句黑客粉可能会爆炸的局外人观感吧。
+
+
+男性，性别认知自己为女性，还说自己是百合，这真的不是骗 ...</blockquote>
+所以可惜就可惜在虹没有欧美进出啊，不然白皮“how dare you”天降ZZZQ铁拳不比黑客粉强而有力1000%？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14919#       发表于 2020-3-11 16:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694366&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-11 16:01</a>
+
+额，我说句黑客粉可能会爆炸的局外人观感吧。
+
+
+男性，性别认知自己为女性，还说自己是百合，这真的不是骗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 虽然我是铁黑客黑，但以他的颜，和女人打炮，还真不一定算骗炮
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14920#       发表于 2020-3-11 16:05
+
+
+
+
+所以黛灰到底长啥样？这么nb吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14921#       发表于 2020-3-11 16:06
+
+
+
+
+有没有开闭老哥讲一讲国际咪剃头之后糊得严重吗？要是以后听不到常暗唱歌那我真是一拳打爆🦄的🐎。
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 14922#       发表于 2020-3-11 16:06
+
+
+
+
+要是女方是白姨，那确实是被骗炮
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14923#       发表于 2020-3-11 16:07
+
+
+
+
+说的好像towa之前不糊一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 14924#       发表于 2020-3-11 16:10
+
+
+
+
+话题怪起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来忘了在V综打广告了，周五律可会有秒針を噛む的翻唱投稿
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 14925#       发表于 2020-3-11 16:11
+
+
+
+
+黑客好像也不是单纯的认为自己是女性，性别光谱也是比较复杂的
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14926#       发表于 2020-3-11 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14927#       发表于 2020-3-11 16:14
+
+
+
+
+插播一条管人粉丝消息，刚才逛微博逛到暗大佐那儿了，他的头像也是阿喵喵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14928#       发表于 2020-3-11 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694559&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-11 16:14</a>
+插播一条管人粉丝消息，刚才逛微博逛到暗大佐那儿了，他的头像也是阿喵喵 ...</blockquote>
+前段时间就是了吧，我记得比2000换得早<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14929#       发表于 2020-3-11 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那就下放stars播一个月好了。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14930#       发表于 2020-3-11 16:16
+
+
+
+
+阿喵喵，巨魔滴神<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+syl:我刚刚邦邦清体力，遇到一个id叫傻葵suki的<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14931#       发表于 2020-3-11 16:18
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-11 17:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694366&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-11 16:01</a>
+
+额，我说句黑客粉可能会爆炸的局外人观感吧。
+
+
+男性，性别认知自己为女性，还说自己是百合，这真的不是骗 ...</blockquote>
+他的性向自称是（L？）GB（T），自我介绍说的也是偏向无性恋的蕾丝，性别光谱比较复杂也不能这么下定论吧
+[https://twitter.com/Yamien_san](https://twitter.com/Yamien_san)
+
+照片这里头也有很多，自己看吧
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14932#       发表于 2020-3-11 16:18
+
+
+
+
+这类游戏碰到个管人粉可太简单了
+
+ff14也是，我每天日随能碰见十个v
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 14933#       发表于 2020-3-11 16:20
+
+
+
+
+老咪没出事前虽然是一期生里混得比较差的，但势头还行，出事后彻底转型奶妈带小孩了，总体来讲影响还是不小的。不过总体来看影响没毒苹果那次大，毒苹果直接把乃团的红白和自己未来的C位搞没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 14934#       发表于 2020-3-11 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694451&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-11 16:06</a>
+
+有没有开闭老哥讲一讲国际咪剃头之后糊得严重吗？要是以后听不到常暗唱歌那我真是一拳打爆🦄的🐎。 ...</blockquote>
+咪鸨和towa这事性质不一样的。。咪鸨是等于拉着夸兔润姨和一堆男人去联谊
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14935#       发表于 2020-3-11 16:24
+
+
+
+
+黑客这颜怎么有点欧美鬼畜的感觉 特别是法国人
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14936#       发表于 2020-3-11 16:25
+
+
+
+
+反正龙皇白皮吃得多了，应该免疫黑客这种的。
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 14937#       发表于 2020-3-11 16:26
+
+
+
+
+性别认知障碍，推荐去看漫画《不可解的我的一切》
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14938#       发表于 2020-3-11 16:28
+
+
+
+
+看漫画来了解知识是不是搞错了什么
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14939#       发表于 2020-3-11 16:29
+
+
+
+
+黑客那不是潮男艺术照么
+
+
+现实里看到也许就是这种效果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://twitter.com/Yamien_san/status/1146742344407904256](https://twitter.com/Yamien_san/status/1146742344407904256)
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 14940#       发表于 2020-3-11 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694747&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-11 16:29</a>
+
+黑客那不是潮男艺术照么
+
+
+现实里看到也许就是这种效果了</blockquote>
+这么一看颜值和八爷差不多
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| selonng| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  iTrumpet  
+##### 14941#       发表于 2020-3-11 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694378&amp;ptid=1907975" target="_blank">erer 发表于 2020-03-11 16:01:32</a>
+宅宅们难道不是男的，主播本人直言不喜欢男性，宅宅们是觉得自己不是男的吗？ ...</blockquote>宅宅的性别认知：男 女 宅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 14942#       发表于 2020-3-11 16:37
+
+
+
+
+说到性别认知障碍，青木志贵前阵子刚传了一个关于他自身性别认知的视频，增加一下泥楼奇怪的知识
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14943#       发表于 2020-3-11 16:38
+
+
+
+
+加賀美 ハヤト
+
+@H_KAGAMI2434
+
+私の役職にしては、という金額で大変恐縮ですが、10万円ほどお送りさせて頂きました。
+
+スキルや教養はすぐには買えません(自戒)。少しでも皆さまの人生に選択肢が増える事を祈っております！
+
+
+東北の高校生の進学・就学のために給付型奨学金「まなべる基金」 Yahoo!ネット募金
+
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 14944#       发表于 2020-3-11 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46694747&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-11 16:29</a>
+
+黑客那不是潮男艺术照么
+
+
+现实里看到也许就是这种效果了</blockquote>
+宋小宝！？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 14945#       发表于 2020-3-11 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692779&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-11 13:52</a>
+那既然都这样了，谁发个516向日葵的约定大亏恐男社恐大天使把mk2也叫来 ...</blockquote>
+怎么老想着找我？
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 14946#       发表于 2020-3-11 16:46
+
+
+
+
+说起来印象里黛灰有过前女友吧，人家还是很光明正大的，跟骗炮没什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14947#       发表于 2020-3-11 16:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/165136tyen2se644nsvivy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ESvh-VqUcAIdbp2.jpg</strong> (586.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 16:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 14948#       发表于 2020-3-11 16:57
+
+
+
+
+zyb呢，该出来批判一番了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14949#       发表于 2020-3-11 16:59
+
+
+
+
+所以你们车轱辘了一个下午，还不是田角没有眼光，诸葛白姨神机妙算么
+
+
+
+
+
+
+
+-----
+
+####  cxj649  
+##### 14950#       发表于 2020-3-11 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46693621&amp;ptid=1907975" target="_blank">winda 发表于 2020-3-11 15:01</a>
+
+被manager部沉海了，除了年初格付企划出声生存确认外没了，小白生诞祭露个模里面还有没有人都不知 ...</blockquote>
+2月给三得利生日贺卡有他的署名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14951#       发表于 2020-3-11 17:10
+
+
+
+【朗報】おシス、完全に自分の需要を理解する
+
+
+
+
+
+
+wahDdi6.jpg
+(447.97 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-11 17:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/170909op3ahupv9a4jhq7y.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14952#       发表于 2020-3-11 17:12
+
+
+
+
+修女<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">不可以
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 14953#       发表于 2020-3-11 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695023&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-11 16:51</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">套皮女主播不要蹭我大锤热度
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14954#       发表于 2020-3-11 17:13
+
+
+
+
+再车轱辘一遍：如果再给修女一次机会，她会不会直接撕皮。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14955#       发表于 2020-3-11 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695240&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-11 17:10</a>
+
+【朗報】おシス、完全に自分の需要を理解する</blockquote>
+
+
+-----
+
+####  IDIDIDID  
+##### 14956#       发表于 2020-3-11 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695267&amp;ptid=1907975" target="_blank">fs001 发表于 2020-3-11 17:13</a>
+
+套皮女主播不要蹭我大锤热度</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202003/11/171548v00peefprltjj6ta.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200311171532.png</strong> (46.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 17:15 上传
+
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 14957#       发表于 2020-3-11 17:16
+
+
+
+
+ymen个人页面介绍写的是小时候遭遇过男性stk和痴汉一类，家里父亲又不在导致对男性有心理阴影，但自己也是男性产生违和感所以才会在性别认知上偏向女性，性取向是正常的
+
+具体信不信就各自心证吧
+
+不过黛灰rp上是没有任何性别认知障碍的，他严守rp要是欧美进出会是为了打拳而冲塔和尊重设定哪个胜利还不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14958#       发表于 2020-3-11 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">同人声优什么时候成为清楚的反义词了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14959#       发表于 2020-3-11 17:22
+
+
+
+
+今晚就是修女杯拳王争霸赛第二季么。
+
+有请一号选手2000和二号选手喵喵哥入场，start！
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14960#       发表于 2020-3-11 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 同人声优不都是表演**的东西吗，虽然这么想很独断，
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 14961#       发表于 2020-3-11 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">同人声优也有很多种的吧。。。
+
+又不是个个都配 r18
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14962#       发表于 2020-3-11 17:25
+
+
+
+
+三号选手stk哥请求出战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14963#       发表于 2020-3-11 17:26
+
+
+
+
+说起同人声优🌈不还有个飞鸟P没说话呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 14964#       发表于 2020-3-11 17:26
+
+
+
+
+别说同人声优了，一般声优都逃不掉这地图炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是要向声豚道歉的
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 14965#       发表于 2020-3-11 17:26
+
+
+
+
+开始了，开始了！
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 14966#       发表于 2020-3-11 17:26
+
+
+
+ 本帖最后由 Devi_Lito 于 2020-3-11 17:31 编辑 
+
+话说修女的小薄本真的很多，感觉彩虹里只有お静能比一比(小声
+
+从这个角度来看人民群众对于修女ghs还是很喜闻乐见的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14967#       发表于 2020-3-11 17:29
+
+
+
+
+楼里考证的结论不是修女前世没有配过r18吗，虽然虹有飞鸟p，但是木口有老师miko少主，这波1:3是木口的胜利
+
+
+我大木口ghs不弱于人
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14968#       发表于 2020-3-11 17:32
+
+
+
+ 本帖最后由 colodes 于 2020-3-11 17:50 编辑 
+<blockquote>ひなうさ(hinaxbunny)のアカウントは天音もこ(angel_plume_0x0)にID変更されてる
+
+ニコ生のオーディション番組に出演
+
+そのニコ生の切り抜きの21分頃から天音もこが出てる
+[http://nico.ms/sm27559899](http://nico.ms/sm27559899)
+
+ビジュアルはそんなに良くないかなー</blockquote>
+查了一下，好像id没变更过(不确定，可能是年代太久没收录)，有人知道怎么特定的吗
+
+ハプニングLOVE!! 这个确实是黄油
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 14969#       发表于 2020-3-11 17:33
+
+
+
+
+今年是闰年，所以说地缚灵已经摸鱼一周年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://twitter.com/kataribetsum ... 25238818299904?s=21](https://twitter.com/kataribetsumugu/status/1105125238818299904?s=21)
+手机贴不了图，只能贴个链接了。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14970#       发表于 2020-3-11 17:50
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-11 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695490&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-11 17:32</a>
+
+查了一下，好像id没变更过啊，这个怎么特定出来的，有人知道吗
+
+ハプニングLOVE!! 这个确实是黄油</blockquote>
+天音もこ这个名义的活动我也找不到什么证据，那家试音的公司也倒闭了官网停止服务了。或许是曾经的公開オーディション的录像里的声音？
+
+
+而且最后天音もこ还是落选了，貌似之后还参加了一次别的公开试音，一样也落选了。单纯从正式出演的角度来说，天音もこ这个身份没有任何的出演经历<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14971#       发表于 2020-3-11 17:54
+
+
+
+
+现在🌈杏两家还是主打ark啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+为什么日本人不打炉石呢，龙皇也不打<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 14972#       发表于 2020-3-11 17:56
+
+
+
+ 本帖最后由 贝伦二世 于 2020-3-11 17:58 编辑 
+
+这黄油当初冲着人妻去的稍微玩了下
+质量还是一般
+
+syl
+性别认知障碍这设定也太恶心了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 14973#       发表于 2020-3-11 17:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">如果不是我云错了鹰宫好像以前也有搞过同人音声？有配过r18吗。
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14974#       发表于 2020-3-11 17:58
+
+
+
+
+大小姐的asmr404就有，不过望月のあ这个身份应该是没搞过r18的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 14975#       发表于 2020-3-11 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695745&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-11 17:54</a>
+
+现在🌈杏两家还是主打ark啊
+
+为什么日本人不打炉石呢，龙皇也不打 ...</blockquote>
+这种游戏不流行也不适合直播 播了没人看
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 14976#       发表于 2020-3-11 18:02
+
+
+
+
+打炉石的没有，打影之诗的有，直播效果也不咋地看的人不多。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14977#       发表于 2020-3-11 18:03
+
+
+
+
+话说各位为什么这么自信自己想看的游戏别人也想看啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
