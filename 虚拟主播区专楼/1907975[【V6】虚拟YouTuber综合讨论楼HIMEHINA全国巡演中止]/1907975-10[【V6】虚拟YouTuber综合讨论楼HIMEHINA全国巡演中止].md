@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 04:01** 
+> ## **本文件最后更新于2020-03-11 10:01** 
 
 
 
@@ -1076,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_ckm33" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_w0sss" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10662,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_GK8L9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_J6H3x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21722,4 +21722,539 @@ syl，管人金游一般都是管人及其受众双向选择的结果。
 
 
 
-           
+
+
+-----
+
+####  UnhappyTails  
+##### 14652#       发表于 2020-3-11 04:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688493&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-11 02:37</a>
+
+还不都是万姨之姨海苔男的错，不是苔苔表现的这么姨就不会开创姨的称呼，狐狸船长等等等等就都不 ...</blockquote>
+万姨之姨，伪娘教大祭司，第一inm民，终身自演官，首席曲奇，诺里欧帝国姨白拉多
+
+
+佃煮家的海苔男 “恶臭的”
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 14653#       发表于 2020-3-11 05:01
+
+
+
+ 本帖最后由 qdaqd123 于 2020-3-11 05:03 编辑 
+
+<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_PfN18" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 14654#       发表于 2020-3-11 05:07
+
+
+
+<blockquote>free 发表于 2020-3-11 03:39
+自己玩着好玩的游戏和适合直播的是两回事，直播要考虑播起来有没有节目效果的，很多比较婆的游戏播起来可能 ...</blockquote>
+所以说是双向选择的结果。像夏实又是payday又是表哥的，和日系v形成了鲜明对比。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14655#       发表于 2020-3-11 05:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688107&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-11 01:39</a>
+
+holo还不赶快去想办法抱大腿，把悠星舔高兴了又是一波暴涨</blockquote>
+验证悠星是不是holo股东的时刻到来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 14656#       发表于 2020-3-11 05:27
+
+
+
+
+三字母pro那么大的新闻你楼就几贴带过了？有人扒出如月的出身吗？
+
+这组合的代号我都想好了，就叫3K党<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 14657#       发表于 2020-3-11 05:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46688768&amp;ptid=1907975" target="_blank">cheatdeath3 发表于 2020-3-11 03:45</a>
+正常讨论还是玩文字游戏？后者的话只能说达利特喜欢其他达利特喜欢的游戏，婆罗门喜欢的游戏不需要也没有 ...</blockquote>
+所以说国籍并没有影响你的论断，你也就随口一说(我也就随便抬下杠
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 14658#       发表于 2020-3-11 06:58
+
+
+
+
+姨性恋
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14659#       发表于 2020-3-11 07:08
+
+
+
+[https://www.youtube.com/watch?v=yftNh85qmWY](https://www.youtube.com/watch?v=yftNh85qmWY)
+
+遊園地のパレードを自作してみた！！
+
+
+昨晚讲到什么整活是不可复制的，我觉得这种想象力真的不可复制，双子这脑子里装的都是些啥呀.......
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 14660#       发表于 2020-3-11 07:34
+
+
+
+<blockquote>anen 发表于 2020-3-11 05:27
+三字母pro那么大的新闻你楼就几贴带过了？有人扒出如月的出身吗？
+
+这组合的代号我都想好了，就叫3K党[f:067 ...</blockquote>
+现在选择个人势出道，还选了个拐都不是带不起人的人来宣传，而且不在b站而在404造势，没有能转化的虹杏联系，我对这新人的前途并不看好，pro什么的估计也玩不起来吧
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 14661#       发表于 2020-3-11 08:33
+
+
+
+
+有什么好讨论的，就是出来玩票的，估计直播内容也是放飞的，想认真干的话虹杏不好么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 14662#       发表于 2020-3-11 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46689165&amp;ptid=1907975" target="_blank">ddy2811 发表于 2020-3-11 07:34</a>
+
+现在选择个人势出道，还选了个拐都不是带不起人的人来宣传，而且不在b站而在404造势，没有能转化的虹杏联 ...</blockquote>
+还真以为是新个人势出道“选”三字母宣传？三字母可也是个无利不起早的主，不用想也是三字母的打工仔
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 14663#       发表于 2020-3-11 08:55
+
+
+
+
+嘴上都是姨姨姨，指尖F超连击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 14664#       发表于 2020-3-11 08:59
+
+
+
+
+不是未来的个人势之星么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14665#       发表于 2020-3-11 09:06
+
+
+
+
+昨晚就想说了，这位如月こより的人设是谁做的啊，虽然设定为僵尸挺有新意的，不过这个外套，还有下身这个肉色长袜加雨靴，实在是......反正这人设我感觉就火不起来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/090646kk1t1ojzgp81yyq9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>如月.jpg</strong> (431.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 09:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 14666#       发表于 2020-3-11 09:09
+
+
+
+ 本帖最后由 耻照 于 2020-3-11 09:14 编辑 
+
+同样是掐萌声，为什么夜间bba散发出来的姨度是花妖精的几万倍
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 14667#       发表于 2020-3-11 09:20
+
+
+
+
+真正的阶级制度、年功序列<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> <blockquote>エリー还在节目结束的时候还特地跑到JK组三人面前，双膝跪地向JK组三人致以问候
+
+然后去到事务所遇到了黛灰，被用非常丁寧的どーも问候了。之后等到JK组到齐，三人一起去买饮料的时候顺路买了一点肉串，然后在黛灰讲流程的时候一直低头吃肉串，肉渣掉了她满裙。
+
+德龙看到她吃得满地都是，直接从地上捡了一块吃进嘴里，全员惊讶，唯独社长开始爆笑：“假如是我的话我肯定也会吃的！我懂！”然后健屋一脸担心地拿湿纸巾帮兔擦裙子，仿佛在看护老人的护士
+
+节目开场前，德龙全程不良坐法(把腿整只架到桌上)，被翔哥说态度差之后还特别强硬地顶回去，把翔哥吓怂了</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 14668#       发表于 2020-3-11 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">任系游戏的优点就是很多观众都可以跟主播联机一起玩，所以播拯救队这种就没啥人看了
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 14669#       发表于 2020-3-11 09:28
+
+
+
+ 本帖最后由 kk89897 于 2020-3-11 09:30 编辑 
+
+西西要来B限了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4430dfe070c962c46f26fddcfdb9b456/2e53198576e1b1ea.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 14670#       发表于 2020-3-11 09:33
+
+
+
+
+如月こより人设：
+
+[https://twitter.com/kuzumachixxx](https://twitter.com/kuzumachixxx)
+
+
+昨天直播说过不是mea pro，只是个人势，僵尸这个设定是选来选去都觉得不太对最后才定的僵尸
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 14671#       发表于 2020-3-11 09:41
+
+
+
+ 本帖最后由 SumW5 于 2020-3-11 09:43 编辑 
+
+西西怎么不和三酱联动，三酱为了西西的名誉可是连和她磨豆腐的美好春梦都收住了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 14672#       发表于 2020-3-11 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46689619&amp;ptid=1907975" target="_blank">free 发表于 2020-3-11 09:06</a>
+
+昨晚就想说了，这位如月こより的人设是谁做的啊，虽然设定为僵尸挺有新意的，不过这个外套，还有下身这个肉 ...</blockquote>
+这雨靴品味确实蛮怪的，不过直播也就只有上半身。个人势新人这个时间入场还有机会能捞到钱，时机不算错。三酱那边流点人出来字幕组就有人了<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14673#       发表于 2020-3-11 09:52
+
+
+
+
+LEGION＿JP
+
+@LEGION_JP
+
+📣 ＜出場者公開！
+
+「Legion Doujou Cup：VTuber編」の出場者一覧が公開されました！
+
+チェックチェック！ 👀 
+[https://lnv.gy/3aK92tS](https://lnv.gy/3aK92tS)
+
+[https://twitter.com/LEGION_JP/status/1237384334035861505](https://twitter.com/LEGION_JP/status/1237384334035861505)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14674#       发表于 2020-3-11 09:54
+
+
+
+ 本帖最后由 colodes 于 2020-3-11 09:55 编辑 
+
+バイきんぐ小峠英二（43）カラオケ泥酔で20代美女に“お持ち帰り”された夜を実況中継
+[https://bunshun.jp/articles/-/36563](https://bunshun.jp/articles/-/36563)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14675#       发表于 2020-3-11 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46689758&amp;ptid=1907975" target="_blank">noHentai 发表于 2020-3-11 09:20</a>
+
+真正的阶级制度、年功序列</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来像在写小说，哪位大手子的作品啊
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14676#       发表于 2020-3-11 09:56
+
+
+
+
+你楼好死不死又提三酱，一提三酱天狗就像垃圾一样涌来
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 14677#       发表于 2020-3-11 09:56
+
+
+
+
+这404越来越神秘了，打块居然是含暴力因素的游戏？
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 14678#       发表于 2020-3-11 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46689758&amp;ptid=1907975" target="_blank">noHentai 发表于 2020-3-11 09:20</a>
+真正的阶级制度、年功序列</blockquote>
+这个写的太好玩了吧233有更多吗？
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14679#       发表于 2020-3-11 09:59
+
+
+
+<blockquote>kk89897 发表于 2020-3-11 09:28
+西西要来B限了</blockquote>
+西西的b限在被**gank前就定好了。估计是纪念入驻一周年。顺带一提这人播不了直接回老家玩了，真实躺王
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 14680#       发表于 2020-3-11 10:01
+
+
+
+
+一年前雨宫太阳就因为“暴力内容”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被ban过直播权限
+
+
+
+
+
+          
