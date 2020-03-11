@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 02:00** 
+> ## **本文件最后更新于2020-03-12 04:00** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_fQfwR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_qCXmH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_mkQEW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_ARzIs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_x9X4I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_g6AB2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4018,4 +4018,464 @@ roa都和新男人联动了，男女联动他不香吗<img src="https://static.s
 
 
 
-                                           
+
+
+-----
+
+####  hahanike  
+##### 15198#       发表于 2020-3-12 02:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700527&amp;ptid=1907975" target="_blank">寒星 发表于 2020-03-12 01:46:21</a>
+下面评论有没有阴阳怪气的，看日V变二等人就算了，看国V平时没有日本人无所谓，一有日本人还是变二等人 ...</blockquote>没有哟，全是拍手叫好的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+她们可能看着评论还能觉得自己做得挺好的
+只可惜涨粉速度不会骗人
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15199#       发表于 2020-3-12 02:04
+
+
+
+
+看起来真杏人是真巴不得杏星死啊，那帖子的敌意简直都要溢出来了，只能佩服兔夸的rp太成功了
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15200#       发表于 2020-3-12 02:07
+
+
+
+
+有点记忆模糊了，杏箱表态那会，星姐没说啥吗，总感觉应该会和兔夸一个模板<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15201#       发表于 2020-3-12 02:08
+
+
+
+
+5ch看到还以为35的发电视频挖掘有新进展，没想到也是个求资源的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+https://www.tokyomotion.net/user/netyonetyo
+话说贴这个链接应该没事吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15202#       发表于 2020-3-12 02:09
+
+
+
+
+其实我从18年开始就是单人solo的爱好者。就是喜欢单人节目，任何联动在我这里吸引力下降至少一个档次，我是不是独角兽中的独角兽。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zcs1805  
+##### 15203#       发表于 2020-3-12 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700692&amp;ptid=1907975" target="_blank">soraku 发表于 2020-03-12 02:08:07</a>
+5ch看到还以为35的发电视频挖掘有新进展，没想到也是个求资源的
+https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求物区的意思，所有截图都是这个视频源的，但是这个源被删了所以基本找不到了。<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15204#       发表于 2020-3-12 02:15
+
+
+
+
+就没有人保存吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15205#       发表于 2020-3-12 02:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">先拿狐狸，27岁与jk和舞48出来表明杏liver并不排斥跟男人联动，没有证据显示杏的高同接高sc跟gachi粉多不喜欢男人有关系。
+
+接着开始鄙视杏星，并表示跟男人联动没收益没好处毫无必要，想看男女联动的滚去看彩虹。
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 15206#       发表于 2020-3-12 02:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">隔壁楼是真滴好笑。
+还有说什么不联动是因为v不愿意呢。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15207#       发表于 2020-3-12 02:28
+
+
+
+
+啥时候来个虚拟文春啊，我还想看鸵鸟的传统艺能，gkd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  湊-阿库娅  
+##### 15208#       发表于 2020-3-12 02:31
+
+
+
+
+等star出个能让木口女liver仰视的新星，我看这群nt还让不让自己的主子们来吸血
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15209#       发表于 2020-3-12 02:33
+
+
+
+
+◎あなたのサークル「カヤナナ」は、月曜日　南地区“ナ”ブロック－11a に配置されました。
+
+
+スペースいただけました！
+[https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
+
+
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_rPi90" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15210#       发表于 2020-3-12 02:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700830&amp;ptid=1907975" target="_blank">湊-阿库娅 发表于 2020-03-12 02:31:45</a>
+等star出个能让木口女liver仰视的新星，我看这群nt还让不让自己的主子们来吸血
+
+ ...</blockquote>那时候务必请您先上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 湊-阿库娅| + 1|有血必吸阿库娅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15211#       发表于 2020-3-12 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700851&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-12 02:36</a>
+
+那时候务必请您先上
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+别吧，圣夸皇几口就吸干了，能不能施舍给同期底边一点<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15212#       发表于 2020-3-12 02:39
+
+
+
+
+绿帽坛小将是真的弱智，我实在受不了了.......看了这煞笔帖子都辣眼睛
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15213#       发表于 2020-3-12 02:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏星要出个众人仰望的超新星难度比彩虹开局抽到兔头还要大，恐怕杏星liver全毕业了都没有这种机遇，话就放这了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15214#       发表于 2020-3-12 02:43
+
+
+
+
+看楼上说的净土坛的云P楼只活了20分钟？那真是可惜，至少云P楼能把在那个帖里的人关几个进去发疯。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15215#       发表于 2020-3-12 02:47
+
+
+
+
+杏星开局是地狱难度，杏粉不看男v，虹粉不看holo，能吃到啥箱推吗。
+
+杏星出道就跟个人势出道没有区别，还要给抽成，甚至因为有人抵制杏箱还不如个人势。
+
+出超新星根本不可能，除非yagoo特别基德<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仇绝恨  
+##### 15216#       发表于 2020-3-12 02:52
+
+
+
+ 本帖最后由 仇绝恨 于 2020-3-12 03:00 编辑 
+
+隔壁讨论18页也没讨论出个正确答案，反而炸出一堆斗虫人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。心疼yagoo和狐狸。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15217#       发表于 2020-3-12 02:57
+
+
+
+
+箱推推为啥一遇到这种话题就会树立一个“反对联动的人害怕狗狗/夸皇/兔皇被强迫拉去联动”的稻草人来打，然后说木口不会强迫的来把问题敷衍过去
+
+反对联动的独角兽就是不想看见男人，这部分人在木口的sc来源中占了主要部分，这点很难理解吗，箱推推什么时候能正视自家粉丝群体里独角兽和百合豚占主体的事实？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15218#       发表于 2020-3-12 03:00
+
+
+
+
+木口的粉丝🦄️多难道不是定论了么，还能争那么久。所以牙膏当初开木口星是图啥
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15219#       发表于 2020-3-12 03:03
+
+
+
+
+想开杏星还是很正常的，毕竟虹男发展的那么好。不过虹男有没有把虹女都吸干了还得看看。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15220#       发表于 2020-3-12 03:03
+
+
+
+
+隔壁男V实在香啊。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15221#       发表于 2020-3-12 03:06
+
+
+
+
+料事如神的yagoo会整不明白开杏星基本等于等倒闭么，没有女管人给男管人吸血男管人也好不起来啊，问题木口哪有可以用来给他们吸血的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 15222#       发表于 2020-3-12 03:33
+
+
+
+
+杏星先靠中国进出来一波，明年怎么样也不好说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                          
