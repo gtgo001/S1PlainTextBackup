@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 00:01** 
+> ## **本文件最后更新于2020-03-12 02:00** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_lDtHc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_F12p8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_pAAeJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_fQfwR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_qCXmH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_mkQEW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -2552,6 +2552,26 @@ BS对阿夸来说也是重要的伙伴呢，哈哈<img src="https://static.sarab
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|好评加鹅|
+| magus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3040,8 +3060,9 @@ U1S1，我也觉得张京华能力垃圾
 
 
 
+ 本帖最后由 落雪无痕 于 2020-3-12 00:02 编辑 
 
-日V来B限确实少了，你不占这个地方别人自然会占
+日V来B限确实少了（你不占这个地方别人自然会占）
 
 一些国V拉胯，扶不上墙（比如VR）
 
@@ -3051,4 +3072,950 @@ U1S1，我也觉得张京华能力垃圾
 
 
 
-                                             
+
+
+-----
+
+####  iTrumpet  
+##### 15147#       发表于 2020-3-12 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699358&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-03-11 23:45:06</a>
+先停掉所有的联动，然后3月8号开始试着和社内的联动，症状好转了再和社外的联动
+
+
+顺便一说万恶的资本主 ...</blockquote>不然开一堆汉方药？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15148#       发表于 2020-3-12 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699506&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-11 23:57</a>
+
+艾因惑姬多练练还是可以，不过vr真像彩虹啊（没有上位liver的🌈</blockquote>
+兔头还算是独一档吧，不过兔头只能独善其身，不能像狐狸兼济整个箱
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15149#       发表于 2020-3-12 00:06
+
+
+
+
+不知道彩虹男人怎么想的，男人们全开ARK播搞几天不就把ARK民吸干了，这几天完全是放水，无聊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 15150#       发表于 2020-3-12 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699156&amp;ptid=1907975" target="_blank">怜 发表于 2020-3-11 23:27</a>
+底边声优,也演舞台剧,收入还是不稳吧,退了事务所,自由身后本职具体还有什么不太清楚
+
+现在把v当兼职,翻翻 ...</blockquote>
+这么详细谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">感觉是蛮有事业心的靠谱人，应该会好好运营cp的吧。
+想要亲近女孩子结果俩男人真的笑死我了
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15151#       发表于 2020-3-12 00:13
+
+
+
+
+zjh做活动主持还算发挥特长就算了，现在单人直播和蹭国V都有人看是真迷惑，而且国内主播乞讨那一套真的活学活用。u皇当初非要当谜语人，不把欧阳这些黑点一股脑道出来，最后大家就这就这。现在zjh相当于打了疫苗，一次没锤凉下次再锤就难了。
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 15152#       发表于 2020-3-12 00:15
+
+
+
+
+猫猫在搞pcr下载配信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15153#       发表于 2020-3-12 00:16
+
+
+
+
+VR但凡稍微有几个争气的也不会让张锤子冰糖他们混出头了，像2个泥潭谭友到现在才3W关注，还有一堆1,2W的，混的还不如很多个人势<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，不过不怕，反正到时候算起来都是我和冷鸟合砍82分。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15154#       发表于 2020-3-12 00:22
+
+
+
+
+深夜长时间ARK实在是福报，这些虹男就算身体强健也没法好几天连开深夜ARK吧。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15155#       发表于 2020-3-12 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699735&amp;ptid=1907975" target="_blank">ktmoon 发表于 2020-3-12 00:16</a>
+
+VR但凡稍微有几个争气的也不会让张锤子冰糖他们混出头了，像2个泥潭谭友到现在才3W关注，还有一堆1,2W的， ...</blockquote>
+现在冷鸟都要去京帕帮了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15156#       发表于 2020-3-12 00:26
+
+
+
+
+其实主要社长打这个牌看了几次真没看懂，虽然同接高，但开ARK肯定高更多
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15157#       发表于 2020-3-12 00:30
+
+
+
+
+论主持效果光一不错，但好像不会日语。京华的确拉胯，今年京晚唯一的印象就是翔哥和京华聊都能把气氛带起来真的厉害，翔哥为什么不是vr人。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15158#       发表于 2020-3-12 00:40
+
+
+
+
+这么厉害的v国内连个字幕组都木得，也不知道是虹的问题还是男v的问题
+
+
+
+
+
+
+
+-----
+
+####  p35535  
+##### 15159#       发表于 2020-3-12 00:40
+
+
+
+
+早就说了要想在你B火就是要跟你楼反着来，玩烂梗恰烂钱在B从来就不是什么黑点，反倒是婆罗门优越发言是见一个杀一群，肃反力度堪比麦卡锡主义。你们这么反张京华和井皇，但是人家就是火，反向指标实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15160#       发表于 2020-3-12 00:43
+
+
+
+
+翔哥有单人神龙啊，产率也不低，而且看样子和德比已经注册官方号了，应该是在等入驻
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15161#       发表于 2020-3-12 00:43
+
+
+
+
+而且翔哥也被骂过底边的啊，可谁知道人家这么厉害呢
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 15162#       发表于 2020-3-12 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46698903&amp;ptid=1907975" target="_blank">寒星 发表于 2020-3-11 23:07</a>
+
+各路个人和社团都不算人了吗只有两大箱（中的一部分）算管人了</blockquote>
+我的意思就是说到今天两大箱都不怎么来了，只有欧阳阿井这种能玩烂哏跟本土V乃至粉丝打成一片的，那些底边个人势都要来蹭一下他们才行，所以你批办活动依赖他们有啥问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15163#       发表于 2020-3-12 00:45
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-12 00:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699948&amp;ptid=1907975" target="_blank">a772803314 发表于 2020-3-12 00:40</a>
+
+这么厉害的v国内连个字幕组都木得，也不知道是虹的问题还是男v的问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议发言之前先搜一下B站熟肉，翔哥向来有个产量极高的gachi在高速烤肉，而她是坚决不想人凑不齐建组主义，其他人自然没法绕开她啊
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 15164#       发表于 2020-3-12 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46697114&amp;ptid=1907975" target="_blank">winda 发表于 2020-3-11 20:12</a>
+
+楠 栞桜🌸配信13日21:00〜 @Sio_Kusunoki (2020/03/11 20:39:36)
+
+昨日、顔合わせと次回てんくすで朝倉プロ ...</blockquote>
+点、彩虹、木口和个人势凑一桌麻将，真是活久见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15165#       发表于 2020-3-12 00:46
+
+
+
+<blockquote>AloissiolA 发表于 2020-3-12 00:45
+建议发言之前先搜一下B站熟肉，翔哥向来有个产量极高的gachi在高速烤肉，而她是坚决不想自己建组 ...</blockquote>
+原来如此
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 15166#       发表于 2020-3-12 00:50
+
+
+
+<blockquote>AloissiolA 发表于 2020-3-12 00:45
+建议发言之前先搜一下B站熟肉，翔哥向来有个产量极高的gachi在高速烤肉，而她是坚决不想自己建组 ...</blockquote>
+草，我错了，我不该看不起个人势（神龙），所以这位神龙叫啥我去关注了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15167#       发表于 2020-3-12 00:52
+
+
+
+
+所以虚拟芥川龙之介没进露露组也是因为不想去？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15168#       发表于 2020-3-12 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700034&amp;ptid=1907975" target="_blank">蒹葭公子 发表于 2020-3-12 00:50</a>
+草，我错了，我不该看不起个人势（神龙），所以这位神龙叫啥我去关注了 ...</blockquote>
+ガらゆウ
+[https://space.bilibili.com/4701705](https://space.bilibili.com/4701705)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15169#       发表于 2020-3-12 00:58
+
+
+
+
+其实挺多人没进字幕组的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我之前关注的那个阿咲铁粉，鸡魔如血好像也是最近才进的组
+syl:看了下lga那个男女联动的帖子，白姨的gachi对杏星怨气好大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 15170#       发表于 2020-3-12 01:02
+
+
+
+<blockquote>AloissiolA 发表于 2020-3-12 00:57
+ガらゆウ
+[https://space.bilibili.com/4701705](https://space.bilibili.com/4701705)</blockquote>
+谢了，翔哥跟绿仙算是我最早看的虹了，结果绿仙早早入B翔哥却一直没组......
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15171#       发表于 2020-3-12 01:03
+
+
+
+[https://bbs.nga.cn/read.php?tid=20754693](https://bbs.nga.cn/read.php?tid=20754693)
+
+为什么杏箱的女女liver之间玩的那么开？虹箱却不行呢？
+
+
+杏箱的妹子整天排列组合乱贴，虹的老师roa，童话组都没了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+当大家提起彩虹的bg营业时（军神、虾丸），大多数人都是抱着开玩笑的心态，恐怕没什么人会当真。而且虹箱的liver们确实自闭得不像现充
+
+但是现在运营的角度，也许他们是真的把虹箱当非诚勿扰在制作？
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15172#       发表于 2020-3-12 01:04
+
+
+
+
+VR联动日V前还要发这种公告，说句烂泥扶不上墙真是一点不冤<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+看看隔壁鹿乃和MUE的直播
+
+这种箱还舔着脸吃阿b各种资源真是不要脸，还不如给psp
+
+
+
+
+
+
+QQ截图20200312005652.jpg
+(51.84 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-12 01:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/010055hynbv8pga48a44gg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 15173#       发表于 2020-3-12 01:07
+
+
+
+
+不看vr，问下这vr主要恰的是谁的钱？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15174#       发表于 2020-3-12 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700175&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-12 01:04</a>
+VR联动日V前还要发这种公告，说句烂泥扶不上墙真是一点不冤
+
+看看隔壁鹿乃和MUE的直播
+
+这种箱还舔着 ...</blockquote>
+那各位，国v真正民推之光口呆口何时食杀vr，为国v正名啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15175#       发表于 2020-3-12 01:09
+
+
+
+<blockquote>深林幽泉 发表于 2020-3-12 01:03
+https://bbs.nga.cn/read.php?tid=20754693
+
+为什么杏箱的女女liver之间玩的那么开？虹箱却不行呢？
+
+</blockquote>
+彩虹有比真金白银都真的性癖组，不吊打木口百合营业，看看光阿夸一共贴过几个人。说到底是因为虹管理更宽松不限制这些吧，想怎么玩怎么玩当然男女搭配更有的聊节目效果更好。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15176#       发表于 2020-3-12 01:12
+
+
+
+<blockquote>hahanike 发表于 2020-3-12 01:04
+VR联动日V前还要发这种公告，说句烂泥扶不上墙真是一点不冤
+
+看看隔壁鹿乃和MUE的直播
+
+这种箱还舔着 ...</blockquote>
+🌈404自己直播间都没这么多规矩，真是孝死人惹。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15177#       发表于 2020-3-12 01:13
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-12 01:18 编辑 
+
+钱是小事情，主要是这么多推广资源（包括且不限于相关推荐、大物联动、线下活动）给别人早起飞了
+
+当然了国v本来就有某些劣势，这里就不展开了，但你这不如招安些做直播的老up，效果好套皮人也无所谓的
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15178#       发表于 2020-3-12 01:14
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-12 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700161&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-12 01:03</a>
+[https://bbs.nga.cn/read.php?tid=20754693](https://bbs.nga.cn/read.php?tid=20754693)
+
+为什么杏箱的女女liver之间玩的那么开？虹箱却不行呢？</blockquote>
+童话组札幌还三人合唱呢这就没了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">举个帝华都比童话组来得实际。
+
+
+而且tmsk发展到互种草莓，kemt寝落至今还是传说，gbtk两国互动杀了多少厨，lzan的十年关系甜煞多少人，更别说还有さくゆい、がぶりえら、カエル、ドラひま、マジックラブ、乳山、むぎリリ、アリストベリー这些虽然冷门但都有人推的cp了，随便一句就钦点彩虹剩下BG营业？
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15179#       发表于 2020-3-12 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700161&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-12 01:03</a>
+
+https://bbs.nga.cn/read.php?tid=20754693
+
+为什么杏箱的女女liver之间玩的那么开？虹箱却不行呢？</blockquote>
+把军神当真的哭了，这个世界还能不能容下bg厨了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15180#       发表于 2020-3-12 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700265&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-12 01:14</a>
+
+童话组札幌还三人合唱呢这就没了吗举个帝华都比童话组来得实际。
+
+
+而且tmsk发展到互种草莓，kemt ...</blockquote>
+就是反串隔壁专楼，nt程度要对应起来
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15181#       发表于 2020-3-12 01:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">效果好有屁用，sc才是市场的真实反应。
+
+nga那边看到不少人拿狐狸夏哥跟男人联动来反对，那怎么不说几位皇者对男人的反应？别问，问就是社恐/恐男。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15182#       发表于 2020-3-12 01:23
+
+
+
+
+杏皇们恐男，但杏皇们都宠粉，但杏民女性比例极低，由此不难得到结论：
+
+杏民才是主要成分为太监的粉丝群体，而不是虹民
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 15183#       发表于 2020-3-12 01:23
+
+
+
+
+那边都开始诅咒人毕业接力了 星推哥明天起来得气死
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 15184#       发表于 2020-3-12 01:28
+
+
+
+
+争管人百合bg营不营业真不真挺虚无的，sakuyui亡了多久了也不妨碍我收sakuyui的图。天开莉兹直到之前还算虚空制糖也不妨碍我嗑，草，一说虚空制糖我又想到葛千了，隔壁坛虹楼甚至差点因为这虚空cp吵起来。管人cp，v起来挺正常的
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15185#       发表于 2020-3-12 01:28
+
+
+
+
+杏星这几个v真挺不错的，希望🦄影响不大吧
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15186#       发表于 2020-3-12 01:29
+
+
+
+ 本帖最后由 深林幽泉 于 2020-3-12 01:31 编辑 
+
+说实话本来就是个nt帖子，独角兽看不惯和男v联动就直球说出来了，热评全是批评杏星拉胯所以不联动的。
+
+其实不是杏星能力不行，是这届观众不行，杏一开始聚了这么多独角兽粉，哪有人再去看男v,杏星就倒霉在生在杏箱。
+
+我上面发的是反串隔壁那贴的，不是说虹没有百合cp,也不是车轱辘bg营业，求各位虹人别杀我。<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 15187#       发表于 2020-3-12 01:37
+
+
+
+
+奥日这游戏播起来看的挺爽的
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15188#       发表于 2020-3-12 01:38
+
+
+
+
+观众哪里不行了，养gachi营业收入都吊打多久彩虹了，看不惯独角兽就得用钱打败独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鱼和熊掌向来不可兼得嘛
+
+省一楼，那楼里还有杏仁拿承诺绝不联动的peko的数据踩积极和男人联动的白姨和夏哥，已知一边七色箱推一边斗虫箱内踩一捧一的是七色太监，那么这种人该如何称呼
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15189#       发表于 2020-3-12 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700475&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-12 01:38</a>
+ 观众哪里不行了，养gachi营业收入都吊打多久彩虹了，看不惯独角兽就得用钱打败独角兽鱼和熊掌向来不 ...</blockquote>
+你少把彩虹摘出去，他分明是虹杏都踩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是最纯粹的斗虫民。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15190#       发表于 2020-3-12 01:43
+
+
+
+
+看管人的都是太监！
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15191#       发表于 2020-3-12 01:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700475&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-12 01:38</a>
+
+观众哪里不行了，养gachi营业收入都吊打多久彩虹了，看不惯独角兽就得用钱打败独角兽鱼和熊掌向来不 ...</blockquote>
+说观众不行是口嗨，意思就是观众成分对男v来说不行，不适合男v发展。
+
+syl 既然杏是温暖大家庭，那挑拨家庭关系的当然要逐出家庭，就叫孤儿吧
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 15192#       发表于 2020-3-12 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700175&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-12 01:04</a>
+VR联动日V前还要发这种公告，说句烂泥扶不上墙真是一点不冤
+
+看看隔壁鹿乃和MUE的直播
+
+这种箱还舔着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下面评论有没有阴阳怪气的，看日V变二等人就算了，看国V平时没有日本人无所谓，一有日本人还是变二等人
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15193#       发表于 2020-3-12 01:49
+
+
+
+
+现在的杏粉丝里有太多斗虫民，独角兽，玩梗路人，皮套粉，这些人肯定会倒逼holo创作退步，拿数据捧peko踩fbk可还行。
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 15194#       发表于 2020-3-12 01:53
+
+
+
+ 本帖最后由 西瓜爆裂 于 2020-3-12 01:56 编辑 
+
+roa都和新男人联动了，男女联动他不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15195#       发表于 2020-3-12 01:53
+
+
+
+
+七色太监vs木口孤儿，好起来了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15196#       发表于 2020-3-12 01:56
+
+
+
+
+只恨appland不争气，否则加上点教教众三家混战岂不美哉
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15197#       发表于 2020-3-12 01:58
+
+
+
+
+点如果保持自闭状态，怎么参加这种关于联动的讨论，不如说是比杏更独角兽吧。
+
+
+
+
+
+                                           
