@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-06 02:17** 
+> ## **本文件最后更新于2020-03-11 14:05** 
 
 
 
@@ -1156,7 +1156,7 @@ p1期只要努力点在B站是有基本盘的，可惜mana路线选错步步错�
 <img src="https://img.saraba1st.com/forum/202003/04/202835y1u111d1f8uov8ub.jpg" referrerpolicy="no-referrer">
 
 
-<strong>QQ图片20200304202751.jpg</strong> (183.19 KB, 下载次数: 2)
+<strong>QQ图片20200304202751.jpg</strong> (183.19 KB, 下载次数: 4)
 
 下载附件
 
@@ -1611,4 +1611,547 @@ yysy，韩国组本来就没打算搞，是井皇非要拉人来搞的<img src="
 
 
 
-                                              
+
+
+-----
+
+####  真·螺旋眼  
+##### 93#       发表于 2020-3-6 02:32
+
+
+
+
+不过这月天使可能b限 还是不好说啊
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  黑炎.  
+##### 94#       发表于 2020-3-6 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632024&amp;ptid=1916148" target="_blank">真·螺旋眼 发表于 2020-3-6 02:32</a>
+不过这月天使可能b限 还是不好说啊
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会有人看吗
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 95#       发表于 2020-3-6 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632034&amp;ptid=1916148" target="_blank">黑炎. 发表于 2020-3-6 02:35</a>
+会有人看吗</blockquote>
+在b涨势比龙皇还强  没人看开完喜呢 首b还有buff加的
+露一手索兰就高潮了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 96#       发表于 2020-3-6 03:16
+
+
+
+
+试图将咸天使骗上梁山<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+天使很感兴趣（想快来恰烂钱），但没官号，就很急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑炎.  
+##### 97#       发表于 2020-3-6 03:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632128&amp;ptid=1916148" target="_blank">真·螺旋眼 发表于 2020-3-6 03:10</a>
+在b涨势比龙皇还强  没人看开完喜呢 首b还有buff加的
+露一手索兰就高潮了好吧</blockquote>
+草，我以为盐天使，怎么会在这栋楼突然提到她，holo的有什么好说的，直播睡觉都有人看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 98#       发表于 2020-3-6 03:55
+
+
+
+
+“才四点”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 99#       发表于 2020-3-6 03:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632146&amp;ptid=1916148" target="_blank">黑炎. 发表于 2020-3-6 03:20</a>
+草，我以为盐天使，怎么会在这栋楼突然提到她，holo的有什么好说的，直播睡觉都有人看 ...</blockquote>
+我这回91的 斗虫前3律小姐这月看造化吧
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 100#       发表于 2020-3-6 05:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632209&amp;ptid=1916148" target="_blank">真·螺旋眼 发表于 2020-3-6 03:57</a>
+
+我这回91的 斗虫前3律小姐这月看造化吧
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.0. ...</blockquote>
+高小姐肯肝的话，这个月是保20w冲30w的势头
+
+以crew的战斗力，亏皇上个月的回归回国内也才打了十万。天使初b限要是能有十万就已经很多了。
+
+木口的箱推力不留着给星圣造神，去给天使捧场？我觉得不行。
+
+不稳定因素倒有可能是猫芒，猫芒这种横空出世的我暂时是看不懂
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 101#         楼主| 发表于 2020-3-6 05:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46612435&amp;ptid=1916148" target="_blank">stygian 发表于 2020-3-4 13:06</a>
+
+昨天tc台说了，批站收益拿的比管子多，就这么简单。。。自己说上个月vtb分区她收益第二，我觉得她要么算数 ...</blockquote>
+二月份她就是收益第二。比三字母少27万，比第三名高1万。（B站扣除前，日本个人税前）
+[https://vup.darkflame.ga/ranking ... ;sortby=participant](https://vup.darkflame.ga/ranking/day?groupby=individual&amp;sortby=participant)
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 102#       发表于 2020-3-6 06:21
+
+
+
+
+硬说后面几个收益差距不大谁肝点就有变数了
+狗妈上月4小时就10多万额。
+不好说不好说 
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 103#       发表于 2020-3-6 06:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632390&amp;ptid=1916148" target="_blank">真·螺旋眼 发表于 2020-3-6 06:21</a>
+
+硬说后面几个收益差距不大谁肝点就有变数了
+
+狗妈上月4小时就10多万额。
+
+不好说不好说 </blockquote>
+我就粗略估计一下，斗虫图一乐，高小姐现在好起来了才是重点嘛
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 104#       发表于 2020-3-6 07:48
+
+
+
+
+阿律太憨了，是东北老娘们儿吗？
+
+
+
+
+
+
+
+-----
+
+####  Reinhold  
+##### 105#       发表于 2020-3-6 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46631577&amp;ptid=1916148" target="_blank">yuandi0120 发表于 2020-3-6 01:07</a>
+而且能看懂是说谁的也只会去anti井皇而不会去anti韩国组。
+
+
+至于井皇，他的ky已经是众人皆知，ant ...</blockquote>
+井皇是谁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 106#       发表于 2020-3-6 10:03
+
+
+
+
+如果mea是冲国v圈之母，那么井皇就是冲国v圈的外婆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  森下未散  
+##### 107#       发表于 2020-3-6 10:20
+
+
+
+
+草，井皇外婆还行，那张京华岂不是成了外公
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  游客1  
+##### 108#       发表于 2020-3-6 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46633298&amp;ptid=1916148" target="_blank">Reinhold 发表于 2020-3-6 09:49</a>
+
+井皇是谁
+
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 S1Next-鹅版 v2.2.0.1</blockquote>
+帕里
+
+
+
+
+
+
+
+-----
+
+####  Reinhold  
+##### 109#       发表于 2020-3-6 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46633746&amp;ptid=1916148" target="_blank">游客1 发表于 2020-3-6 10:34</a>
+
+帕里</blockquote>
+为啥叫井皇？求出处<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 110#       发表于 2020-3-6 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46633778&amp;ptid=1916148" target="_blank">Reinhold 发表于 2020-3-6 10:37</a>
+为啥叫井皇？求出处</blockquote>
+因为吃水不忘挖井人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，帕里就是那挖井的
+
+
+
+
+
+
+
+-----
+
+####  The_Ether_  
+##### 111#       发表于 2020-3-6 11:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高小姐的楼是v区为数不多看起来正常的楼了。
+
+
+
+
+
+
+
+-----
+
+####  摘星者  
+##### 112#       发表于 2020-3-6 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46617403&amp;ptid=1916148" target="_blank">Reinhold 发表于 2020-03-04 20:28:44</a>
+2月b站收益榜</blockquote>这样下去，三字母买房不成问题了吧
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  摘星者  
+##### 113#       发表于 2020-3-6 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46622514&amp;ptid=1916148" target="_blank">Nokazusa 发表于 2020-03-05 10:47:05</a>
+说到这里我又有问题想问了，翻译组真就全用爱发电？按照正常的价值判断，日V在中国的粉起码得有一半归功于 ...</blockquote>不好意思，都是默认用爱发电的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 114#       发表于 2020-3-6 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46638696&amp;ptid=1916148" target="_blank">摘星者 发表于 2020-3-6 17:33</a>
+这样下去，三字母买房不成问题了吧
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+就不知道她打帕青哥打的怎么样了 看起来还是会理财的人 个人势之鉴
+Syl 井皇holocn又过继了一个女儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不愧是你啊帕里v圈遍地开花
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 115#       发表于 2020-3-6 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46633778&amp;ptid=1916148" target="_blank">Reinhold 发表于 2020-3-6 10:37</a>
+
+为啥叫井皇？求出处</blockquote>
+黑屁他的。
+
+“吃水不忘挖井人”。
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 116#       发表于 2020-3-6 18:16
+
+
+
+
+吃水不忘挖井人是井孝子说的，还有一个最后一根稻草
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 117#       发表于 2020-3-7 22:38
+
+
+
+
+B站限定　白百合ちゃんコラボ
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  gatathon  
+##### 118#       发表于 2020-3-7 23:02
+
+
+
+
+点进去就看见白百合在科普恭喜发财，虚拟刘欢和虚拟刘德华联动吗
+
+
+
+
+
+
+
+-----
+
+####  森下未散  
+##### 119#       发表于 2020-3-10 19:16
+
+
+
+
+真就屎尿屁直播间了，姓高的和姓陆的真是了不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 120#       发表于 2020-3-10 23:06
+
+
+
+
+这波高女士很难受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 121#       发表于 2020-3-11 13:41
+
+
+
+
+B站限定 直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+                                             

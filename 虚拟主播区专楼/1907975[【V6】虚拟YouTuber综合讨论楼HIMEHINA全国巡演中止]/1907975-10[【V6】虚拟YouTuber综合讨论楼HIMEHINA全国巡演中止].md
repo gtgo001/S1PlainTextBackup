@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 12:03** 
+> ## **本文件最后更新于2020-03-11 14:02** 
 
 
 
@@ -1076,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_y7grJ" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_RhscL" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10662,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_LaA81" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_PtktF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21754,7 +21754,7 @@ syl，管人金游一般都是管人及其受众双向选择的结果。
 
  本帖最后由 qdaqd123 于 2020-3-11 05:03 编辑 
 
-<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_Nkw52" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
+<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_KPfRT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
 
 
 
@@ -23025,4 +23025,1559 @@ fwb是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
-         
+
+
+-----
+
+####  proxima  
+##### 14715#       发表于 2020-3-11 12:04
+
+
+
+
+我也觉得彩虹不如自己出个手游得了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14716#       发表于 2020-3-11 12:05
+
+
+
+
+那么谁是UR，谁是SSR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 14717#       发表于 2020-3-11 12:06
+
+
+
+
+都有UR 都有SSR
+
+不就行了
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 14718#       发表于 2020-3-11 12:08
+
+
+
+
+舟游有男干员，🦄能接受？
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14719#       发表于 2020-3-11 12:08
+
+
+
+
+一个杂鱼手游的尸体都能憋出个appland，哪来的自信做手游
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 14720#       发表于 2020-3-11 12:08
+
+
+
+
+那强度榜这么搞，大家都一样强?
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14721#       发表于 2020-3-11 12:12
+
+
+
+
+虹杏真要联动的话去联动邦邦或者mltd吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最起码这两个我还在玩儿
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14722#       发表于 2020-3-11 12:13
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-11 12:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691571&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-11 12:05</a>
+
+那么谁是UR，谁是SSR</blockquote>
+10万订阅以上有ssr，单人同接过万给ur。手游氪金越多，管人的新衣3D出的越快。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14723#       发表于 2020-3-11 12:15
+
+
+
+
+鱼丸不是在知乎上说开发舰b才用了200w吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 14724#       发表于 2020-3-11 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46689932&amp;ptid=1907975" target="_blank">SumW5 发表于 2020-3-11 09:41</a>
+
+西西怎么不和三酱联动，三酱为了西西的名誉可是连和她磨豆腐的美好春梦都收住了 ...</blockquote>
+也许是当上了监督看西西和别人重口味play的梦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14725#       发表于 2020-3-11 12:32
+
+
+
+
+木口联动舰b是舰b赏饭
+
+彩虹联动杂鱼是给杂鱼打广告
+
+性质当然不一样
+
+强度问题有很多模板可以解决，比如很多韩游的升星模式
+
+初始强度按照年功序列，鶸卡氪金或者氪命可以升星，再来个装备随机系统增加额外的强度影响。再加个游戏和现实联动，版本更新，初始强度也跟着变就是了。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 14726#       发表于 2020-3-11 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691599&amp;ptid=1907975" target="_blank">zz101896 发表于 2020-3-11 12:08</a>
+舟游有男干员，🦄能接受？
+
+—— 来自 Xiaomi MI 8, Android 9上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+白姨必然是站在墙角听银老板和博士搅基的摄像头位置啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 14727#       发表于 2020-3-11 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691501&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-11 11:59</a>
+fwb是什么东西</blockquote>
+反卫兵吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 14728#       发表于 2020-3-11 12:40
+
+
+
+
+绿团手游做个消消乐都能骗钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，彩虹手游只要能做出来应该不用太担心没人氪金的问题
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14729#       发表于 2020-3-11 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691859&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-11 12:32</a>
+
+木口联动舰b是舰b赏饭
+
+彩虹联动杂鱼是给杂鱼打广告
+
+性质当然不一样</blockquote>
+这不是木口靠人格魅力俘获了这些手游的管理层吗。
+
+悠星日本分部某位不还是船长粉丝吗？
+
+思考一下，这还是彩虹人能力不行。
+
+
+
+
+
+
+
+-----
+
+####  剑崎真琴  
+##### 14730#       发表于 2020-3-11 12:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">联动FGO还没月姬R可信度高呢
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14731#       发表于 2020-3-11 12:49
+
+
+
+
+这算啥，粉丝质量决定vtuber水平?而且这比较的也太怪了，手游管理层的相中就能体现vtuber的水平问题?我要是举个喜欢彩虹但不喜欢木口的大手就能说明木口人能力不行吗？想黑屁至少先捋一下逻辑吧
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14732#       发表于 2020-3-11 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691961&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-11 12:41</a>
+
+这不是木口靠人格魅力俘获了这些手游的管理层吗。
+
+悠星日本分部某位不还是船长粉丝吗？
+
+思考一下，这还是 ...</blockquote>
+同样是粉丝回馈主播，木口的粉丝比彩虹的粉丝做得更出色。倒不一定是主播能力的问题。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14733#       发表于 2020-3-11 12:51
+
+
+
+
+开发200w你知道宣发要用多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+手游大头成本还是后续的各种约稿、买广告位啊
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 14734#       发表于 2020-3-11 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691961&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-11 12:41</a>
+这不是木口靠人格魅力俘获了这些手游的管理层吗。
+
+悠星日本分部某位不还是船长粉丝吗？
+
+思考一下，这还是 ...</blockquote>
+彩虹昭和男儿，日本的观众就是最好的，其他统统不需要。不像holo平成废物，欧米中国全部讨好，国民性存疑啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14735#       发表于 2020-3-11 12:58
+
+
+
+[https://weibointl.api.weibo.cn/s ... id=4481232337168172](https://weibointl.api.weibo.cn/share/130593813.html?weibo_id=4481232337168172)
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 14736#       发表于 2020-3-11 13:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有地域嘿出来表演吗
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 14737#       发表于 2020-3-11 13:03
+
+
+
+
+彩虹的现充腐臭味超出本阴湿宅的承受范围了，所以我觉得也不行
+
+木口除去几个，大多数起码还看得进去<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14738#       发表于 2020-3-11 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692043&amp;ptid=1907975" target="_blank">克罗夏 发表于 2020-3-11 12:49</a>
+
+这算啥，粉丝质量决定vtuber水平?而且这比较的也太怪了，手游管理层的相中就能体现vtuber的水平问题?我要是 ...</blockquote>
+但问题是木口有同级别的大手子，而彩虹没有联动同级别的手游啊。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14739#       发表于 2020-3-11 13:11
+
+
+
+
+舰b的联动就是木口早期中国进出的遗产之一，当初敲定联动时木口那体量放本土谁鸟你
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14740#       发表于 2020-3-11 13:14
+
+
+
+
+妹想到木口中国进出这步棋最后大获全胜，中国爆火后让做游戏的成了舔狗，一波联动直接起飞
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14741#       发表于 2020-3-11 13:14
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-11 13:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692237&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-11 13:06</a>
+
+但问题是木口有同级别的大手子，而彩虹没有联动同级别的手游啊。</blockquote>
+举个例子，木口有和青木志贵，岛崎信长、鷲崎健这等级的声优联动过的吗？拿一两个粉丝否定其他全体粉丝乃至管人综合能力，没有比这更虚无的转进了吧。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14742#       发表于 2020-3-11 13:15
+
+
+
+
+毕竟什V什粉<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 14743#       发表于 2020-3-11 13:16
+
+
+
+
+不是和组长联动过么
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14744#       发表于 2020-3-11 13:17
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-11 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692331&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-11 13:14</a>
+
+举个例子，木口有和青木志贵，岛崎信长、鷲崎健这等级的声优联动过的吗？拿一两个粉丝否定其他全体粉丝， ...</blockquote>
+木口能赢得舰b联动，本身是因为它的中国进出带来的。
+
+彩虹同时间进行中国进出却放弃了。
+
+就舰b联动说成彩虹人眼光和能力不行并不过分。至于你说的和这个等级声优联动的还真有。
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14745#       发表于 2020-3-11 13:19
+
+
+
+ 本帖最后由 free 于 2020-3-11 13:57 编辑 
+
+空妈和大葵弄的那个广播，野泽雅子、早见沙织都上过的，后来还一起去了野泽奶奶那边的电台
+
+[www.bilibili.com/video/av58196795](http://www.bilibili.com/video/av58196795)
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 14746#       发表于 2020-3-11 13:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别说之前国内虹人和杏人的比例了。就算是现在联动，舰b也不太会选彩虹的。彩虹除了爱丽丝还算是比较受欢迎，其他人体量配五分之一个亏皇白皇么？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 14747#       发表于 2020-3-11 13:21
+
+
+
+
+和声优一起做一次与参加大热游戏联动能比吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14748#       发表于 2020-3-11 13:21
+
+
+
+
+yagoo：但是我可以买。
+
+
+
+
+
+
+
+ESzRUkFUcAAQsV8.jpeg
+(66.87 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-11 13:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/132151k3fsujoueffjtmfe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14749#       发表于 2020-3-11 13:28
+
+
+
+
+麻将妹也是m楼知名巨魔的，你们就不要咬钩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实和知名声优艺人啥的合作也好，包括上电视也好，宣传效果我觉得并没有多么理想。你要说拿来吹一下那还是可以。知名声优自己来当虚拟管人都没什么效果，你说合作一下能改变什么我真不觉得
+
+至于手游联动跟ark蝗虫mc蝗虫这种本质不是差不多吗……
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 14750#       发表于 2020-3-11 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692331&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-11 13:14</a>
+
+举个例子，木口有和青木志贵，岛崎信长、鷲崎健这等级的声优联动过的吗？拿一两个粉丝否定其他全体粉丝乃 ...</blockquote>
+有的吧，杉田智和等级不低吧，都掀不起什么风浪罢了
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14751#       发表于 2020-3-11 13:29
+
+
+
+<blockquote>古战场亡魂 发表于 2020-3-11 13:06
+但问题是木口有同级别的大手子，而彩虹没有联动同级别的手游啊。</blockquote>
+一开始拿大手子比，后来又拿手游比，总之管人能力不用看，看粉丝多牛逼就行了呗?还是那句手游管理层相中与否就能体现vtuber水平就是扯淡啊
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 14752#       发表于 2020-3-11 13:30
+
+
+
+
+眼界问题就是水平问题中的一种，木口中国进出，白姨眼光毒辣舔的好，悠星回馈效果显著，那就是水平高，
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14753#       发表于 2020-3-11 13:31
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-11 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692375&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-11 13:17</a>
+
+木口能赢得舰b联动，本身是因为它的中国进出带来的。
+
+彩虹同时间进行中国进出却放弃了。
+
+就舰b联动说成彩 ...</blockquote>
+你可以说田角能力不行，可以说彩虹设眼光狭隘，说彩虹人能力不行你自己不觉得靶子打歪了吗。
+
+
+另外，你先前的逻辑是“木口吸引到了日本悠星负责人，所以捧木口踩彩虹”，现在又转中国进出，踩的话能不能坚持一下自己观点。
+
+
+至于空妈+大葵能不能算木口，大家见仁见智吧。
+
+省一楼，查了下，组长确实明言了自己喜欢pekora，但毕竟明面上的联动尚且没有，有的话也请告知一下，我还挺好奇的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuezhi| + 1|兔子没有，诗音上过组长节目|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 14754#       发表于 2020-3-11 13:32
+
+
+
+
+舟游也没和其它IP联动过啊，舰B本身联动活动就多。。再和彩虹合作也有点点可能吧，内部就一个彩虹人都没？
+
+
+与其考虑舟游我觉得你们还不如去想想养猪厂家的游戏联动可能性，有联动基因。
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 14755#       发表于 2020-3-11 13:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">原来木口中国进出的成功、拿到碧蓝联动证明木口人格魅力强而有力，彩虹进迟了没汤喝转头搞vr、拿不到碧蓝联动证明彩虹人费拉不堪？还能这样转进啊，学到了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那老爱的pdd联动是证明了春日望的人格魅力和反证了直播势的低能？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14756#       发表于 2020-3-11 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692486&amp;ptid=1907975" target="_blank">克罗夏 发表于 2020-3-11 13:29</a>
+
+一开始拿大手子比，后来又拿手游比，总之管人能力不用看，看粉丝多牛逼就行了呗?还是那句手游管理层相中 ...</blockquote>
+粉丝、sc、订阅、同接都是管人能力的体现，
+
+斗虫这玩意是彩虹粉发明的吧。
+
+本来就是粉丝多就牛逼啊，吹能力不考虑粉丝数量质量这不扯淡吗。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14757#       发表于 2020-3-11 13:32
+
+
+
+
+你们跟个老天狗在这掰扯彩虹人的能力，你们也是闲的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虹信要是不想和他打滚，那就让他转告三小姐不要再舔舞元了，舔一个没能力的彩虹人还舔不到真的很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  木户孝允  
+##### 14758#       发表于 2020-3-11 13:32
+
+
+
+ 本帖最后由 木户孝允 于 2020-3-11 13:37 编辑 
+
+彩虹还有7亿融资<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+可惜对于我个人来讲是比不上手游联动来的香啊。。。
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14759#       发表于 2020-3-11 13:33
+
+
+
+
+齁又赢，虹又输
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14760#       发表于 2020-3-11 13:34
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-11 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692519&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-11 13:31</a>
+
+你可以说田角能力不行，可以说彩虹设眼光狭隘，说彩虹人能力不行你自己不觉得靶子打歪了吗。
+
+
+另外，你先 ...</blockquote>
+没啊，这舰b联动也不是悠星一个人说的算的吧，国内管舰b的是b站啊。
+
+只是拿船长佐证一下将来可能进行的明日方舟联动而已。
+
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 14761#       发表于 2020-3-11 13:36
+
+
+
+
+搞个联动节目效果就叫“舔，还舔不到”
+虹信确实没啥好吹的了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 14762#       发表于 2020-3-11 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">想了想和fz联动也不太可能。最多做做工商
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14763#       发表于 2020-3-11 13:37
+
+
+
+
+你虹都搞了七个亿，还要什么联动，做一部自己的马看或者四月一日，地上波大火销量破壁，岂不吊打他杏的区区手游联动。
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 14764#       发表于 2020-3-11 13:38
+
+
+
+
+（转进无限制大乱斗，斗虫民狂喜）
+
+手游联动都不考虑404基本盘的吗？现在直播势的头把交椅还算是天皇的吗？还是属于龙皇夸皇或是安皇？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 14765#       发表于 2020-3-11 13:38
+
+
+
+ 本帖最后由 tiro_finale 于 2020-3-11 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692519&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-11 13:31</a>
+
+你可以说田角能力不行，可以说彩虹设眼光狭隘，说彩虹人能力不行你自己不觉得靶子打歪了吗。
+
+
+另外，你先 ...</blockquote>
+
+无意参与你们的大战，只是提供下情报
+
+
+
+
+
+不过不是pekora，而是shion
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14766#       发表于 2020-3-11 13:38
+
+
+
+
+别吵了半年以后V圈炸了我想看虹男杏女大联谊可以不可以有啊
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14767#       发表于 2020-3-11 13:38
+
+
+
+
+🦄️能接受的话，我也想看
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 14768#       发表于 2020-3-11 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692552&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-11 13:34</a>
+没啊，这舰b联动也不是悠星一个人说的算的吧，国内管舰b的是b站啊。
+
+只是拿船长佐证一下将来可能进行的明 ...</blockquote>
+我们换个方向来打滚，他只宣传了船长而不是宣传木口整体，说明他是船长单推而不是木口箱推。其他比船长订阅高的是不是也能力不行“不能被相中”呢？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 14769#       发表于 2020-3-11 13:40
+
+
+
+
+《水平》<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14770#       发表于 2020-3-11 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692570&amp;ptid=1907975" target="_blank">Mika-S 发表于 2020-3-11 13:36</a>
+
+搞个联动节目效果就叫“舔，还舔不到”
+
+虹信确实没啥好吹的了</blockquote>
+这可不是我自己说的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我只是照搬下M楼的言论
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14771#       发表于 2020-3-11 13:41
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-3-11 13:43 编辑 
+
+我管你🦄能不能接受，虹男不是人均线虫好身材帅哥吗，给杏那群坦克姨送送福利不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+SYL：根据铃木桑的说法hikakin一年至少挣5个逸，看来VTB天花板还大着呢。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14772#       发表于 2020-3-11 13:42
+
+
+
+ 本帖最后由 ひびき 于 2020-3-11 13:44 编辑 
+
+<img src="https://img.saraba1st.com/forum/202003/10/021609udiiinm14ynnaflj.jpg" referrerpolicy="no-referrer">
+
+
+都是到中国，狐皇眼里看到了什么，天皇眼里看到了什么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+《水平》
+
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14773#       发表于 2020-3-11 13:43
+
+
+
+<blockquote>古战场亡魂 发表于 2020-3-11 13:32
+粉丝、sc、订阅、同接都是管人能力的体现，
+
+斗虫这玩意是彩虹粉发明的吧。
+
+本来就是粉丝多就牛逼啊，吹能 ...</blockquote>
+你还知道斗虫是虹粉先玩的，你没看到虫楼第一页就写着“请认同同接不能代表一个vtuber的优秀程度”吗？拿粉丝质量吹vtuber水平还不如隔壁斗虫民呢
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 14774#       发表于 2020-3-11 13:45
+
+
+
+
+天狗和虹人的争斗其实是杏人下的一盘大棋，结果就是木口食杀彩虹，大亏食杀神乐小姐，建议七色人和天狗联合起来把它杏花村给我冲喽
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14775#       发表于 2020-3-11 13:47
+
+
+
+ 本帖最后由 proxima 于 2020-3-11 13:49 编辑 
+
+虹信被天狗钓起来大战木口就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真正的木口信楼主气的无话可说
+
+拉窗帘不远了
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 14776#       发表于 2020-3-11 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692610&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-11 13:39</a>
+
+我们换个方向来打滚，他只宣传了船长而不是宣传木口整体，说明他是船长单推而不是木口箱推。其他比船长订 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你只看到了发言的推谁，他们那没发言的推谁谁知道呢，拜年祭那会儿平安夜的噩梦还自爆被团队里几个crew癌晚期烦死了呢
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14777#       发表于 2020-3-11 13:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不会真有七色东厂箱推吧，别恶心我，前一步是箱推，后一步就吹一踩一，这样的七色太监囚人你们喜欢吗？
+
+
+你虹这么多东厂囚人、猴爵、黑客粉都恶习成什么样了还不自知，
+
+
+我巴不得你虹明天裂成七块，
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 14778#       发表于 2020-3-11 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692691&amp;ptid=1907975" target="_blank">惘时之轮 发表于 2020-3-11 13:45</a>
+
+天狗和虹人的争斗其实是杏人下的一盘大棋，结果就是木口食杀彩虹，大亏食杀神乐小姐，建议七色人和天狗联合 ...</blockquote>
+三字母这种中位同接一两千的也就是个草履虫，还食杀呢，四字母不小心走路就能踩死
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 14779#       发表于 2020-3-11 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三小姐舔舞元是怎么回事，好久没看三酱了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 14780#       发表于 2020-3-11 13:51
+
+
+
+
+我没什么特别的感觉啊，你们PVP记得少开地图炮就行
+
+
+顺便谁能告诉我怎么体面地插B站视频，这整一大个好尴尬
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14781#       发表于 2020-3-11 13:51
+
+
+
+
+信者大战是好事，说明你楼天天靠hiyoko和userlocal看直播的人变少了。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 14782#       发表于 2020-3-11 13:51
+
+
+
+
+七色箱推，这话说出来能说服自己吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14783#       发表于 2020-3-11 13:51
+
+
+
+
+难道他杏就是铁板一块？党内无派，千奇百怪！我看他杏离裂成七块也不远了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14784#       发表于 2020-3-11 13:52
+
+
+
+
+那既然都这样了，谁发个516向日葵的约定大亏恐男社恐大天使把mk2也叫来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14785#       发表于 2020-3-11 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692764&amp;ptid=1907975" target="_blank">tiro_finale 发表于 2020-3-11 13:51</a>
+
+我没什么特别的感觉啊，你们PVP记得少开地图炮就行
+
+
+顺便谁能告诉我怎么体面地插B站视频，这整一大个好尴尬 ...</blockquote>
+选纯文本模式，把url链接去掉
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 14786#       发表于 2020-3-11 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692783&amp;ptid=1907975" target="_blank">free 发表于 2020-3-11 13:52</a>
+
+选纯文本模式，把url链接去掉</blockquote>
+好像不行，会自动把url加回来
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 14787#       发表于 2020-3-11 13:56
+
+
+
+
+虽然没看，但是三字母直播造旅馆舔舞元本身再有直播效果，也无法理解怎么还有打钱的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你们是看的虚拟宋丹丹吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 14788#       发表于 2020-3-11 13:57
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-11 13:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692669&amp;ptid=1907975" target="_blank">克罗夏 发表于 2020-3-11 13:43</a>
+
+你还知道斗虫是虹粉先玩的，你没看到虫楼第一页就写着“请认同同接不能代表一个vtuber的优秀程度”吗？拿 ...</blockquote>
+别扯淡了，
+
+请认同同接不能代表一个vtuber的优秀程度
+
+这句话除了在第一页写着，
+
+真的讨论起来不在后面的任何一页。
+
+我就奇怪了，吹同接可以、吹sc可以、吹订阅也行。
+
+同样是联动，
+
+委员长联动纳豆也是被吹上天的，
+
+怎么木口联动知名手游就不能吹了？？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14789#       发表于 2020-3-11 13:58
+
+
+
+ 本帖最后由 colodes 于 2020-3-11 14:01 编辑 
+
+test
+
+[http://www.bilibili.tv/video/av95141768](http://www.bilibili.tv/video/av95141768)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14790#       发表于 2020-3-11 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46692816&amp;ptid=1907975" target="_blank">tiro_finale 发表于 2020-3-11 13:55</a>
+
+好像不行，会自动把url加回来</blockquote>
+把标红的地方都去掉，https://也得去掉
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/11/135841qt03e5fed3ptqdt3.png" referrerpolicy="no-referrer">
+
+
+<strong>url.png</strong> (24.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-11 13:58 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 14791#       发表于 2020-3-11 14:00
+
+
+
+<img src="https://img.imoutomoe.net/images/2020/03/11/QQ20200311135729.jpg" referrerpolicy="no-referrer">
+
+链接只填写这段的话也可以
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 14792#       发表于 2020-3-11 14:00
+
+
+
+
+杏难道不是铁板吗，粉都是圣夸的粉，其他不是圣亏粉兼任，就是即将成为圣亏粉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14793#       发表于 2020-3-11 14:01
+
+
+
+
+看舰b联动的内容就知道除了木口的人外还有个不可明说的幽灵，这一波里她也是帮凶<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14794#       发表于 2020-3-11 14:02
+
+
+
+<blockquote>古战场亡魂 发表于 2020-3-11 13:57
+别扯淡了，
+
+请认同同接不能代表一个vtuber的优秀程度
+
+这句话除了在第一页写着，
+</blockquote>
+拿同接踩一捧一的可是2000口中的太监啊，更何况他们不少已经被赶出虫楼了，真就为了坚持你的理论而把自己阉了吗？吹联动谁碍着你了，但是没有联动就是不行？踩一捧一可不就是太监行为?
+
+
+
+
+
+      
