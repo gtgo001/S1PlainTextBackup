@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 18:03** 
+> ## **本文件最后更新于2020-03-11 20:02** 
 
 
 
@@ -1076,7 +1076,7 @@ pro哥快收了苔苔吧<img src="https://static.saraba1st.com/image/smiley/face
 
 其实所有的前n生前tc年龄基本都是软锤，大概率是5厕空穴来风的，好比说我之前得到的情报就是老船姨34岁，究 ...</blockquote>
 露露以前参加过偶像海选的，年龄可信度还是很高的 [https://www.oricon.co.jp/special/girls/5873/profile/](https://www.oricon.co.jp/special/girls/5873/profile/)
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_J8bjW" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=653342&amp;size=300x300&amp;key=9b124d9526ce52e6&amp;nocache=yes&amp;type=fixnone" id="aimg_FFr4M" onclick="zoom(this, this.src, 0, 0, 0)" width="110"/)
 
 
 
@@ -10662,7 +10662,7 @@ u1s1，mk2是想透凛
 
 
 
-<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_LTPPb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESrDBoHUEAArQMR?format=jpg&amp;name=medium" id="aimg_HJ6Aj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21755,7 +21755,7 @@ syl，管人金游一般都是管人及其受众双向选择的结果。
 
  本帖最后由 qdaqd123 于 2020-3-11 05:03 编辑 
 
-<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_NS4zx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
+<img src="https://pbs.twimg.com/media/ESulAUzUcAAAbdc?format=jpg&amp;name=large" id="aimg_ivt79" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)https://twitter.com/mamesabure/status/1237264552334700544
 
 
 
@@ -24462,11 +24462,11 @@ SYL：根据铃木桑的说法hikakin一年至少挣5个逸，看来VTB天花板
 
 
 
- 本帖最后由 colodes 于 2020-3-11 14:01 编辑 
+ 本帖最后由 colodes 于 2020-3-11 19:58 编辑 
 
 test
 
-[http://www.bilibili.tv/video/av95141768](http://www.bilibili.tv/video/av95141768)
+[http://bilibili.tv/av95141768](http://bilibili.tv/av95141768)
 
 
 
@@ -28094,6 +28094,428 @@ syl
 
 
 话说各位为什么这么自信自己想看的游戏别人也想看啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 14978#       发表于 2020-3-11 18:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">头部liver都精明得很，要是效果不好立马抛弃换节目了，哪像彩虹那些脑死播第五人格的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14979#       发表于 2020-3-11 18:06
+
+
+
+
+看了下龙皇几天前试图养gachi的杂谈数据也低，看来只能gamers一条路走到底了。
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 14980#       发表于 2020-3-11 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695745&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-11 17:54</a>
+
+现在🌈杏两家还是主打ark啊
+
+为什么日本人不打炉石呢，龙皇也不打 ...</blockquote>
+日本人不喜欢暴雪的，炉石替代品不是有傻之b吗。。。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14981#       发表于 2020-3-11 18:10
+
+
+
+
+龙皇除了出个早安可可本来就是和同社的兔夸差不多是游戏主播啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 14982#       发表于 2020-3-11 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46695848&amp;ptid=1907975" target="_blank">QWANG 发表于 2020-3-11 18:03</a>
+ 话说各位为什么这么自信自己想看的游戏别人也想看啊，万一同接创新低，播到粉丝都跑了各位会分裂去 ...</blockquote>
+因为炉石出了战棋之后国内热度确实还可以<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">可能日本观众不爱看暴雪系游戏吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 14983#       发表于 2020-3-11 18:11
+
+
+
+
+影之诗很不好看，没有长期在玩的人随便播播毫无节目效果，而且比其他游戏更加气人，炉石同理
+
+不过holocn好像出道了一个认真玩的
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 14984#       发表于 2020-3-11 18:13
+
+
+
+
+holocn的有什么好说的，又不是在日本，国内播这些炉石sv之类的多了去了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 14985#       发表于 2020-3-11 18:15
+
+
+
+
+国内播炉石的我记着以前人气相当高来着啊，是后来炉石本身不行了才连累主播人气不行了吧
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14986#       发表于 2020-3-11 18:22
+
+
+
+
+国内主播还是很依赖游戏热度的，热门游戏每天播都不会有人说什么，只播一个游戏的主播照样能火。管人就不行，就算是现在大红大紫的ARK，还没到每次都播的地步，就有不少人怨声载道了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 14987#       发表于 2020-3-11 18:23
+
+
+
+<blockquote>cckuku 发表于 2020-3-11 15:14
+我想知道第一个是谁</blockquote>
+我猜是郡道？
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 14988#       发表于 2020-3-11 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这个身份应该是没有的，话说她旁边站的居然是果冻妹，圈子真小
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14989#       发表于 2020-3-11 18:31
+
+
+
+
+木口唯一指定杂谈主播只能是船皇了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+聊天直播很依靠观众反馈的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14990#       发表于 2020-3-11 18:36
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-3-11 18:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46696155&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-11 18:31</a>
+
+木口唯一指定杂谈主播只能是船皇了
+
+聊天直播很依靠观众反馈的</blockquote>
+不知道你楼有多少人实地去过大阪的飞田新地。
+
+
+在地铁站去飞田新地的路上要穿过一片很破的商业街，两边除了杂货店之外还有一些小酒吧，这些酒吧里通常都是一群老头坐在counter一边喝酒吃小菜，一边看40-50风韵犹存的老板娘唱歌，或者聊天。
+
+
+现在船姨杂谈回她和她的观众给我的就是这个感觉。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 14991#       发表于 2020-3-11 18:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">🐲皇杂谈不行吗，翻了一下好像也有1w多同接啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 14992#       发表于 2020-3-11 18:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 晚上葛葵第一次二人联动抽卡没人说吗？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14993#       发表于 2020-3-11 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46696209&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-11 18:36</a>
+
+不知道你楼有多少人实地去过大阪的飞田新地。
+
+
+在地铁站去飞田新地的路上要穿过一片很破的商业街，两边除 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然船皇是bba，但是观众年龄层总体没有那么偏高吧
+
+我还经常看到评论跟不上船皇老年人节奏的
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 14994#       发表于 2020-3-11 18:43
+
+
+
+
+葛葵有啥好说的啊，啥时候来个葛夸制霸同接再说了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14995#       发表于 2020-3-11 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46696284&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-11 18:43</a>
+
+虽然船皇是bba，但是观众年龄层总体没有那么偏高吧
+
+我还经常看到评论跟不上船皇老年人节奏的 ...</blockquote>
+不是说特指姨文化，就是一种很昭和很融洽的feeling。
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 14996#       发表于 2020-3-11 18:56
+
+
+
+
+那种  同好跟你喝酒/喝咖啡时候吹逼 一样的感觉确实挺好的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14997#       发表于 2020-3-11 19:05
+
+
+
+
+说到姨，再多聊两句苔苔令人疲乏的姨文化。
+
+
+区别一下苔苔和GBR、龙皇的贪财艺：
+
+GBR：贪财就是贪财，就是看到钱开心，没有具体为什么。
+
+龙皇：你们的钱我拿去造hololive outers heaven了。
+
+苔苔：我好喜欢钱/因为赚钱好难/我当年赚钱多幸苦/VTB好赚钱/VTB为什么赚钱/VTB要怎么赚钱/我现在准备怎么赚钱/我好累但是要赚钱/为了赚钱我牺牲了XXX。
+
+
+可怜的苔苔被原生家庭毁了。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 14998#       发表于 2020-3-11 19:07
+
+
+
+
+苔苔只是数字仓鼠而已。。钱都在父母那里存着，跟天梯排位似的，本质亏皇同路人
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14999#       发表于 2020-3-11 19:14
+
+
+
+ 本帖最后由 proxima 于 2020-3-11 19:19 编辑 
+
+你都说了江皇那是贪财艺，跟灵梦二设一样是rp的一部分
+
+
+退一万步讲，就算喜欢钱也是佃煮海苔男人设的一部分，那她不rp海苔男地声配信的时候还是满脑子数字。她就是在跟你说实话而已。
+
+正常人肯定不爱听这个，不过本来也就是讲给信者听的
+
+
+有一说一海苔男直播里面拿出来抱怨的内容都算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播里面没有拿出来说的怕是更黑暗了，天天找兔姨船姨诉苦
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15000#       发表于 2020-3-11 19:16
+
+
+
+
+不省一楼：
+
+
+海苔男老喜欢炫她租的黑色高级公寓，YYUT说过梦想是攒一亿元买一套独栋这样就没人嫌他弹琴吵。他们还蛮般配的，比高小姐配。
 
 
 
