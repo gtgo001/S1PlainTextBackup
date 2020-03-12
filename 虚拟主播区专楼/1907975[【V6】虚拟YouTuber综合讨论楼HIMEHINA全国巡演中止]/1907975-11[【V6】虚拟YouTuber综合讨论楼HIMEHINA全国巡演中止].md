@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 04:00** 
+> ## **本文件最后更新于2020-03-12 10:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_ARzIs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_x9X4I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_g6AB2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_PA23V" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_x6OpG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_BTqz2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -800,7 +800,7 @@ vtuber怎么是new，c96不是都有数据吗
 <img src="https://img.saraba1st.com/forum/202003/11/205327totkxzxt8a10te62.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200311205259.jpg</strong> (79.21 KB, 下载次数: 0)
+<strong>20200311205259.jpg</strong> (79.21 KB, 下载次数: 1)
 
 下载附件
 
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_rPi90" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_ZSll8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4478,4 +4478,462 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 
 
 
-                                          
+
+
+-----
+
+####  cheatdeath3  
+##### 15223#       发表于 2020-3-12 04:12
+
+
+
+
+star一期开始活动时live三期还没个影呢，当时木口天天抄作业，谁知道后来成了学霸。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15224#       发表于 2020-3-12 04:37
+
+
+
+
+国内女粉这块早就被黑黑给吃干了吧，现在他俩的直播间一堆人起手就是姐妹们，女粉浓度太恐怖了
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 15225#       发表于 2020-3-12 04:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46701239&amp;ptid=1907975" target="_blank">Suny08 发表于 2020-3-12 04:37</a>
+国内女粉这块早就被黑黑给吃干了吧，现在他俩的直播间一堆人起手就是姐妹们，女粉浓度太恐怖了 ...</blockquote>
+这就吃干了也太少了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就葛叶直播间封面首播之后再也没有换过，从来没看过他，看到这直播间火气隐隐就有点起来了
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 15226#       发表于 2020-3-12 05:19
+
+
+
+
+周六9点10窗最终boss<img src="https://p.sda1.dev/0/24240b8e69a4b02c7b16123104b4c5b3/IMG_9308E6CFDC53FA85C50249C3138E6F94.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15227#       发表于 2020-3-12 05:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700365&amp;ptid=1907975" target="_blank">屑屑代沟尼亚 发表于 2020-3-12 01:23</a>
+
+那边都开始诅咒人毕业接力了 星推哥明天起来得气死</blockquote>
+上一个诅咒别人毕业的吃了四天muted<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">现在她有主了，我也只能祝她幸福了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15228#       发表于 2020-3-12 05:59
+
+
+
+
+杏周六最终boss虹周天最终boss，可惜错开了啊，本来想看ark民对撞的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15229#       发表于 2020-3-12 07:06
+
+
+
+
+话说看了这次的摊位数......什么时候vtb能拳打型月脚踢imas啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 15230#       发表于 2020-3-12 07:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46701335&amp;ptid=1907975" target="_blank">Suny08 发表于 2020-03-12 05:59:43</a>
+杏周六最终boss虹周天最终boss，可惜错开了啊，本来想看ark民对撞的</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">杏虹贴贴，共渡难关
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 15231#       发表于 2020-3-12 07:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46701283&amp;ptid=1907975" target="_blank">贝伦二世 发表于 2020-3-12 05:19</a>
+周六9点10窗最终boss</blockquote>
+如果pvp的话就是ark大逃杀！不如赌大点，死了就毕业！
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15232#       发表于 2020-3-12 07:43
+
+
+
+
+innk不是一个道理，就该让AZKi赶快毕业的，yagoo有那个钱全砸给星街不香吗，养那俩人简直是倔驴一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这音乐企划也是抄的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 15233#       发表于 2020-3-12 08:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">又是车轮滚滚向前的一天
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15234#       发表于 2020-3-12 08:33
+
+
+
+
+葛叶又赢了一通宵，男V迟早制霸V圈
+
+
+
+
+
+
+D087140E-24A8-4561-B5D6-C6CE1525DABA.jpeg
+(16.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-12 08:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/083323kbxona3w4a3vkaao.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15235#       发表于 2020-3-12 08:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">又是鲨鱼辣椒惨败的一天
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15236#       发表于 2020-3-12 08:39
+
+
+
+<blockquote>QWANG 发表于 2020-3-12 01:58
+点如果保持自闭状态，怎么参加这种关于联动的讨论，不如说是比杏更独角兽吧。 ...</blockquote>
+点当初那个非大物联动都是跌份的狂热操作相比这群拿斗虫当遮羞布的独角兽有过之而无不及，可惜当初去的是空妈，要是holo其它人像葵皇那样被炎，估计会很精彩
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15237#       发表于 2020-3-12 09:02
+
+
+
+
+所以点生活死了我超高兴，养出一帮脑瘫的偶像团体本身也难辞其咎，死了对大家都好，谢谢给我杏的崛起提供养料
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15238#       发表于 2020-3-12 09:08
+
+
+
+ 本帖最后由 colodes 于 2020-3-12 09:13 编辑 
+
+对我不好，少了个笑料，我很抑郁<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+syl
+
+这说的中国还是日本，不过都一样
+
+<img src="https://img.saraba1st.com/forum/202003/12/091019v1vx5k72nd5x7u5v.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-12 090944.png</strong> (94.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-12 09:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15239#       发表于 2020-3-12 09:12
+
+
+
+
+看来木口男v崛起前彩虹是倒不了了，啥时候木口能独领风骚就看木口星这群人啥时候能火了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15240#       发表于 2020-3-12 09:32
+
+
+
+
+木口现在好的不行，头部几个sc吊打你虹。那楼里有些说的挺好的，养噶吃🦄️风险小利润大，那为什么还要花时间冒着风险去联动男v<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 15241#       发表于 2020-3-12 09:32
+
+
+
+
+昨天晚上打开hiyoko想看看有几个人在播仁王2，结果发现除了个人势，在一排ark的下面只有木口星的律可一个人在播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15242#       发表于 2020-3-12 09:36
+
+
+
+
+不知道这个月杏SC能不能吊打葛叶了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15243#       发表于 2020-3-12 09:36
+
+
+
+
+男主播永远只能用游戏来吸引男人。你让一个大男人天天看男人唱歌弹琴还见不到女人这谁顶得住。木口星什么时候能火就看yagoo什么时候能放弃他的男团梦转型游戏主播
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15244#       发表于 2020-3-12 09:41
+
+
+
+ 本帖最后由 バーチャルS1er 于 2020-3-12 09:45 编辑 
+
+木口星走现在的路线的话
+
+木口星火了彩虹才会崩溃X
+
+彩虹崩溃了木口星才能火O
+
+
+如果改变路线的话，木口星也别想着献祭本社女人，自己搞点holo星原产女人就可以了
+
+
+--------------------------------
+
+所以就是你彩虹不崩溃，我木口星才火不起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15245#       发表于 2020-3-12 09:45
+
+
+
+
+找几个性别焦虑就能解决一切问题
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15246#       发表于 2020-3-12 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46702461&amp;ptid=1907975" target="_blank">Suny08 发表于 2020-3-12 09:36</a>
+
+男主播永远只能用游戏来吸引男人。你让一个大男人天天看男人唱歌弹琴还见不到女人这谁顶得住。木口星什么时 ...</blockquote>
+ロベル就是游戏主播啊，stars又不是人均一弦律可那种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再说了，唱歌弹吉他在阿B不也吃挺开的，一弦律可他俩在阿B每周一次B限，人不多但也不少了
+
+
+
+
+
+                                         
