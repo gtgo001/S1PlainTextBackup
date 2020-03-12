@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 10:01** 
+> ## **本文件最后更新于2020-03-12 12:00** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_PA23V" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_x6OpG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_BTqz2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_y7ZB4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_B66Hr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_sI6HH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_ZSll8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_M8Nfm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4936,4 +4936,871 @@ syl
 
 
 
-                                         
+
+
+-----
+
+####  free  
+##### 15247#       发表于 2020-3-12 10:07
+
+
+
+[https://twitter.com/hololivetv/status/1237922536576258048](https://twitter.com/hololivetv/status/1237922536576258048)
+
+<img src="https://img.saraba1st.com/forum/202003/12/100713q0med995dzjedx3m.png" referrerpolicy="no-referrer">
+
+
+<strong>star.png</strong> (215.04 KB, 下载次数: 2)
+
+下载附件
+
+2020-3-12 10:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15248#       发表于 2020-3-12 10:07
+
+
+
+
+holostar新衣服<blockquote>【 お知らせ 】
+
+「ホロスターズ」所属VTuber5名の新衣装を、ホワイトデーに合わせて発表いたしました
+
+
+お披露目配信は、2020年3月15日（日）の18時より、リレー形式で実施予定です。
+
+
+詳細はコチラ
+[https://prtimes.jp/main/html/rd/p/000000235.000030268.html](https://prtimes.jp/main/html/rd/p/000000235.000030268.html)</blockquote>
+＜2020年3月15日（日）＞
+
+■ 18:00~　花咲みやび
+
+【YouTube】[https://www.youtube.com/channel/UC6t3-_N8A6ME1JShZHHqOMw](https://www.youtube.com/channel/UC6t3-_N8A6ME1JShZHHqOMw)
+
+■ 18:30~　鏡見キラ
+
+【YouTube】[https://www.youtube.com/channel/UCEzsociuFqVwgZuMaZqaCsg](https://www.youtube.com/channel/UCEzsociuFqVwgZuMaZqaCsg)
+
+■ 19:00~　奏手イヅル
+
+【YouTube】[https://www.youtube.com/channel/UCZgOv3YDEs-ZnZWDYVwJdmA](https://www.youtube.com/channel/UCZgOv3YDEs-ZnZWDYVwJdmA)
+
+■ 19:30~　アルランディス
+
+【YouTube】[https://www.youtube.com/channel/UCKeAhJvy8zgXWbh9duVjIaQ](https://www.youtube.com/channel/UCKeAhJvy8zgXWbh9duVjIaQ)
+
+■ 20:00~　律可
+
+【YouTube】[https://www.youtube.com/channel/UC9mf_ZVpouoILRY9NUIaK-w](https://www.youtube.com/channel/UC9mf_ZVpouoILRY9NUIaK-w)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15249#       发表于 2020-3-12 10:08
+
+
+
+
+ohhhhhhhhhhhhhhhhhhhh
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15250#       发表于 2020-3-12 10:16
+
+
+
+
+hololive的女人一般有几套衣服
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15251#       发表于 2020-3-12 10:20
+
+
+
+
+草，为啥我权限还是不够<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15252#       发表于 2020-3-12 10:20
+
+
+
+
+初始一套，泳装一套，live一套，新年一套，然后就看个人再另外一到两套比如私服啊睡衣什么的
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15253#       发表于 2020-3-12 10:21
+
+
+
+
+想看男人泳装<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15254#       发表于 2020-3-12 10:22
+
+
+
+
+那还挺多的，我猜应该不会有人拿衣服来黑屁holo星
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 15255#       发表于 2020-3-12 10:27
+
+
+
+
+“大男人天天看男人唱歌弹琴还见不到女人这谁顶得住”。
+
+我觉得这句话可以成为V综金句了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15256#       发表于 2020-3-12 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46703043&amp;ptid=1907975" target="_blank">Symphomy 发表于 2020-3-12 10:22</a>
+
+那还挺多的，我猜应该不会有人拿衣服来黑屁holo星</blockquote>
+鬼知道四期生的粉会不会出来闹
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 15257#       发表于 2020-3-12 10:29
+
+
+
+
+每次4円直播弹唱我都必看的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15258#       发表于 2020-3-12 10:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 龙皇20w订阅一阵子了，连新衣服都没有，凭什么木口星先来？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15259#       发表于 2020-3-12 10:29
+
+
+
+
+要黑屁也简单，毕竟前面的都算是大锅饭，关键还是在私服的分配上。狐狸之前一套私服，哪怕凪白画的眼神无光都要欢天喜地的接受
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15260#       发表于 2020-3-12 10:30
+
+
+
+
+泳装和live只有3d，没法拿来直播的
+
+所以实质只有两套，四期生只有一套
+
+怎能不能黑屁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸皇除开那套uuz大妈装都只有一套能拿出来直播的皮呢
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15261#       发表于 2020-3-12 10:33
+
+
+
+
+夸皇的那套和服真的丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yagoo是不是背地里给夸皇穿小鞋啊，不然夸皇她爹跟她关系那么好，衣服都不多出几套的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15262#       发表于 2020-3-12 10:34
+
+
+
+
+看了一下hiyoko，黄兔子这个月solo同接在1K1-1K7左右，绿熊一般400-600，蓝狗比绿熊稍微好点，两个新人800-1200左右
+
+
+夜店整体比动物园好一点，苔姨组白雪这个月700-1100左右，苔姨这个月solo现在就两次，都是5K多，还有个不留档的疑似solo也是5K多
+
+
+苔姨最强！？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15263#       发表于 2020-3-12 10:43
+
+
+
+ 本帖最后由 QWANG 于 2020-3-12 10:46 编辑 
+
+光靠葛叶来在SC上超杏还是想太多，这个月葛叶SC顶天500w水平，目前是300w多，现在星圣400w，兔35两个也有300w了，正常推移下龙夸粽三人都能过400w，虹这个月有望过400w的还是葛叶和床，江皇一周年就100w，不堪大用。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这个月的SC前10杏还是至少能有六席。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15264#       发表于 2020-3-12 10:44
+
+
+
+
+苔姨这个订阅有这个同接不是很正常么，而且还高强度引流<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15265#       发表于 2020-3-12 10:46
+
+
+
+
+葛叶还有25W人纪念，不好说的
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 15266#       发表于 2020-3-12 10:47
+
+
+
+
+老农民还懂足球的，爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15267#       发表于 2020-3-12 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">苔姨太懂商法了，和白姨是两种不同的策略。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15268#       发表于 2020-3-12 10:53
+
+
+
+
+星圣还有一次生日呢。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15269#       发表于 2020-3-12 10:55
+
+
+
+
+那好难啊，想要男人赢太难了，我现在能理解holo星了，男人太难了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15270#       发表于 2020-3-12 10:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你们就不能体谅下两边粉丝的钱包吗？一个月弄好几个集金回也太过分了
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15271#       发表于 2020-3-12 11:01
+
+
+
+
+虹女确实苦，要直播数字好看和蹭虹男蹭到没sc，想要sc了已经拉不回来了。按说中间一水的几十万上百万放到18年已经是顶级了，还是人比人得丢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 15272#       发表于 2020-3-12 11:02
+
+
+
+
+麻烦打工卖血来给自己的推造大房子开yin趴<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">，正好过一会就要疫情爆发了吧，趁着还没感染上赶紧去卖点血吧！
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15273#       发表于 2020-3-12 11:02
+
+
+
+
+ホロライブ誕生日一覧
+
+ぺこら 1月12日
+
+るしあ 1月22日
+
+ちょこ 2月14日
+
+アキ 2月17日
+
+おかゆ 2月22日
+
+みこ 3月5日
+
+すいせい 3月22日
+
+フレア 4月2日
+
+かなた 4月22日
+
+そら 5月15日
+
+ロボ 5月23日
+
+わため 6月6日
+
+ココ 6月17日
+
+AZKi 7月1日
+
+スバル 7月2日
+
+まつり 7月22日
+
+マリン 7月30日
+
+トワ 8月8日
+
+はあと 8月10日
+
+ミオ 8月20日
+
+ころね 10月1日
+
+フブキ 10月5日
+
+ルーナ 10月10日
+
+メル 10月31日
+
+ノエル 11月24日
+
+あくあ 12月1日
+
+シオン 12月8日
+
+あやめ 12月13日
+
+
+9月没有啊，良心企业
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15274#       发表于 2020-3-12 11:18
+
+
+
+
+年中杏五期可能就有9月了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+syl
+
+目前来看1月7月12月是比较高强度的，3月6月10月次一档，然后是2月4月8月，9月没有，11月就一人，5月菜的。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15275#       发表于 2020-3-12 11:23
+
+
+
+
+葛叶的粉和HOLO的应该不是重叠的吧，各凭本事呗，反正还半年V圈要完了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15276#       发表于 2020-3-12 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 葛叶的sc应该和尊妈相加再除2，毕竟尊妈这种精致的较小伊人的女性开销应该很大，葛叶应该给尊妈花了不少钱吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15277#       发表于 2020-3-12 11:27
+
+
+
+
+2000哥自从葵皇昨晚统治了同接了后怎么就不说怪话了，看来以后得多去看葵皇直播才能阻止2000哥的黑屁了
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15278#       发表于 2020-3-12 11:30
+
+
+
+
+阿葵这同接不知道holoARK最终决战能不能单窗打破啊，别的不说，阿葵最强
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 15279#       发表于 2020-3-12 11:30
+
+
+
+
+锤子这箱MS成了？与杏比也就吸金差点
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15280#       发表于 2020-3-12 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46703974&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-03-12 11:26:27</a>
+葛叶的sc应该和尊妈相加再除2，毕竟尊妈这种精致的较小伊人的女性开销应该很大，葛叶应该给尊妈花了不少钱 ...</blockquote>那照你这么说，木口是不是还得除以2以上啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15281#       发表于 2020-3-12 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 跟同接有什么关系，葵皇ark数字还不如葛叶，胆小的要死，pvp搞事都不敢，自闭solo，和单人服有什么区别。我早不看了
+
+
+周六日反正你虹、木口不撞车，看总同接就行了呗，
+
+
+我对于同接、sc这种数字一直以来有且只有一个看法，谁能秒杀我讨厌的liver，我就支持谁，因为这样可以狠狠的踩他（她）
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15282#       发表于 2020-3-12 11:38
+
+
+
+
+当年局势还是订阅葵皇比西皇高，同接西皇比葵皇高呢
+
+后来争太子西皇属实拉跨，再往后又不敌笹皇，到现在就一败涂地了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15283#       发表于 2020-3-12 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704135&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-12 11:38</a>
+
+当年局势还是订阅葵皇比西皇高，同接西皇比葵皇高呢
+
+后来争太子西皇属实拉跨，再往后又不敌笹皇，到现在就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 等一个葵西复活糖，笹木是谁？就是那个之和nico生主贴贴的人吗？
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15284#       发表于 2020-3-12 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704134&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-12 11:38</a>
+ 跟同接有什么关系，葵皇ark数字还不如葛叶，胆小的要死，pvp搞事都不敢，自闭solo，和单人服有什么 ...</blockquote>
+简单一点，三个字:冠军粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 15285#       发表于 2020-3-12 11:40
+
+
+
+
+冠军粉怎么了，当冠军粉不舒服吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 15286#       发表于 2020-3-12 11:42
+
+
+
+<blockquote>ylssb10438 发表于 2020-3-12 10:29
+每次4円直播弹唱我都必看的</blockquote>
+杏星哪来的人碰瓷4円…至少4円还是很多唱见厨的白月光的。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15287#       发表于 2020-3-12 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 冠军粉最难受的时候不就是自己讨厌的队伍夺得了冠军吗？
+
+
+所以前几天xx主催、猴爵登顶的时候我都发作了，这几天他们被秒杀我就舒服了，
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 15288#       发表于 2020-3-12 11:45
+
+
+
+<blockquote>pin_on 发表于 2020-3-12 11:42
+杏星哪来的人碰瓷4円…至少4円还是很多唱见厨的白月光的。</blockquote>
+优十和四块钱比那还真的不好说，不过四块钱的确很白月光
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15289#       发表于 2020-3-12 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46703214&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-12 10:34</a>
+
+看了一下hiyoko，黄兔子这个月solo同接在1K1-1K7左右，绿熊一般400-600，蓝狗比绿熊稍微好点，两个新人800- ...</blockquote>
+乳nns了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+海苔男这种从来不播solo，就算播也是整点噱头标题党的怎么能够加入斗虫。她那说是箱现在也就两个人，真出齐了，就算她带的动一个难道还能带的动一群
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15290#       发表于 2020-3-12 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704309&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-12 11:50</a>
+
+乳nns了
+
+海苔男这种从来不播solo，就算播也是整点噱头标题党的怎么能够加入斗虫。她那说是箱现在 ...</blockquote>
+个人认为海苔男水平是比nns运营水平高的，黄兔子在anmr箱屈才了。
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 15291#       发表于 2020-3-12 12:00
+
+
+
+
+黄兔子去大箱肯定比现在混的好多了，只能说个人奋斗，历史进程
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+                                        

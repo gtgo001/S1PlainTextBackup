@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 00:03** 
+> ## **本文件最后更新于2020-03-12 12:02** 
 
 
 
@@ -13848,4 +13848,581 @@ syl，之前看holo的羊直播，都有一群人在版聊咩夸，真NM恶心<i
 
 
 
-                        
+
+
+-----
+
+####  deep24froz  
+##### 2256#       发表于 2020-3-12 00:08
+
+
+
+
+酒厂那些极端人士疯了不奇怪好吧,cp毒唯也是毒唯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以前看过一梗图:你麻做了个蛋糕上面有不少vtb朋友的符号,结果粉丝单把有船锚的部分切下来一小块其他全扔了.  酒厂那群就是此类人士最好的写照.
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2257#       发表于 2020-3-12 00:10
+
+
+
+
+酒厂就这？葡萄糖无氧呼吸没代谢出酒精，代谢出乳酸了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2258#       发表于 2020-3-12 00:16
+
+
+
+
+噗嗤，这活好。建议转换思路：亏皇得知阿咩深受其扰又不得法彻底根绝，遂决定牺牲自己来一次线下和别人贴贴彻底断念。这么看，贴不贴啊？太贴了。
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2259#       发表于 2020-3-12 00:24
+
+
+
+
+大亏隐退我就承认这种思路，
+
+不然就是不够贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 2260#       发表于 2020-3-12 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699649&amp;ptid=1914314" target="_blank">deep24froz 发表于 2020-3-12 00:08</a>
+酒厂那些极端人士疯了不奇怪好吧,cp毒唯也是毒唯啊
+
+以前看过一梗图:你麻做了个蛋糕上面有不少vtb朋 ...</blockquote>
+这画是v区某栋楼的楼主画的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 2261#       发表于 2020-3-12 00:33
+
+
+
+
+今晚多了好多meaqua图啊，贴贴人最温柔了，我的创伤被抚平了，又可以安心熟睡。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2262#       发表于 2020-3-12 00:41
+
+
+
+
+贴贴人需要一个丸喜拓人
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 2263#       发表于 2020-3-12 01:07
+
+
+
+
+看到字数布丁这个傻逼还有什么好说的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2264#       发表于 2020-3-12 01:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">mea今天一天都没发推，一定是一起去阿汤哥家里过夜了，等下还要睡同一张床，太贴贴了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2265#       发表于 2020-3-12 01:29
+
+
+
+
+别贴了别贴了，就一个阿汤哥夸宝/F还遭的住/FF怕不是直接投了。
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 2266#       发表于 2020-3-12 01:53
+
+
+
+
+不是 最开始不是传言aqua计划要住一天的么。 我臆测是aqua知道mea寄住在774家里，为了避嫌临时改成当天回了。要不是那天的谨慎判断，516后就是一起黑屁3人线下狂欢了一起爆炸了。现在516aqua能回头捞一手大家winwin已经是个不错的结果了。<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2267#       发表于 2020-3-12 01:59
+
+
+
+
+你们和神乐小姐一样，都只想着自己，夸宝只想一个人安安生生的打游戏，把活攒到死线一口气做完，只想找个比自己年纪大的女人撒娇，不想被比自己小的メンヘラyhm有事没事，不管在不在工作，一个call过来就要视频，天天发点奇奇怪怪的嘴唇图，还搞没有意义的厕所音声配信。夸宝挣脱了神乐小姐，神乐小姐没人折磨就开始折磨苔苔，呜呜呜，这样的日子什么时候能是个头
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2268#       发表于 2020-3-12 02:47
+
+
+
+
+怪事，贴贴民不是自己画图自己写文自己出pv就能把自己感动的眼泪汪汪还能收获其他粉丝“大佬好厉害”的呼声的么，什么时候还需要vtuber本人干什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2269#       发表于 2020-3-12 03:26
+
+
+
+
+想放烟花庆祝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+个人自由的充分拓展是社会整体进步不可或缺的一环
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2270#       发表于 2020-3-12 03:57
+
+
+
+
+一般观众眼里：wdnmd吃了一个小时零食
+贴贴人眼里：呜呜呜为什么对谁都扮女友还过夜了ntr并感
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2271#       发表于 2020-3-12 07:23
+
+
+
+
+现在就该想小粥有没有男朋友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2272#       发表于 2020-3-12 07:48
+
+
+
+
+一个家里有猫，一个家里有男人，发育正常的女孩会选择去哪里过夜不言而喻吧。看来夸宝还只是个小孩子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 2273#       发表于 2020-3-12 08:27
+
+
+
+ 本帖最后由 ddy2811 于 2020-3-12 08:38 编辑 
+<blockquote>a772803314 发表于 2020-3-11 22:53
+这里無限，是普罗丢色，人在法兰西酒厂，个人行为不代表组织，mea推，meaqua过激洁癖cp粉，算是讨厌木口。 ...</blockquote>
+我也讨厌holo来着，不过从暑假那阵起就开始了，原因有很多，最重要的一点还是对理念的不认同吧
+
+syl，说得政治不正确一点，从视频里看，小粥没有过也不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2274#       发表于 2020-3-12 08:54
+
+
+
+
+粥姨重坦克，哪位勇者敢当驾驶员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 2275#       发表于 2020-3-12 09:13
+
+
+
+
+阿汤哥也就22吧，只不过脸不咋地，但你其他人谁不是高p。按F还是可以按的。
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 2276#       发表于 2020-3-12 09:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">坦克我爱的，何况家里还有奶猫。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2277#       发表于 2020-3-12 09:48
+
+
+
+
+一边上坦一边玩猫，好色哦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2278#       发表于 2020-3-12 10:19
+
+
+
+
+一次线下联动就炸了？贴贴岂是如此不便之物，毕竟只靠虚空二创就能自我感动到现在了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过最该杀的到处乱刷的贴贴小鬼倒是不会死掉，毕竟他们也不会在乎那么多。
+
+只要将贴贴小鬼和极端贴贴份子除干净，meaqua贴贴就能够进化为完全体了！
+
+这是一个不需要外界做功也不对外做功，不需要实际的联动也不会去影响别人，只凭借虚空二创来获得自我满足，再用满足和感动来制作虚空二创的第二类永动机呀。<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2279#       发表于 2020-3-12 10:24
+
+
+
+
+人家自己发发牢骚怎么就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2280#       发表于 2020-3-12 10:27
+
+
+
+
+我感觉这个完全体已经接近了，涩谷民已经彻底分不清二创与现实，在二创的婚后世界自我陶醉了。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 2281#       发表于 2020-3-12 10:47
+
+
+
+
+昨晚那些贴贴民发完疯然后开始搞二创自我麻痹看起来蛮惨的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">还有不少人直接承认是自我麻痹的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2282#       发表于 2020-3-12 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就当给一部完结的作品接着搞二创呗，这还挺常见的啊
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2283#       发表于 2020-3-12 10:48
+
+
+
+
+哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2284#       发表于 2020-3-12 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46699843&amp;ptid=1914314" target="_blank">言艮 发表于 2020-3-12 00:28</a>
+
+这画是v区某栋楼的楼主画的</blockquote>
+又是七色太监又是七色太监又是七色太监又是七色太监又是七色太监
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2285#       发表于 2020-3-12 10:49
+
+
+
+
+二创不就是这么回事，又不是拍照
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2286#       发表于 2020-3-12 10:51
+
+
+
+
+往下拉看到你们在黑墨姨，六字母毒唯开始攻击人长相了？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2287#       发表于 2020-3-12 10:51
+
+
+
+
+二创就是脑补成果啊，怕的不是二创，怕的是二设入脑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2288#       发表于 2020-3-12 10:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">会画画的多画点还挺好的，其他的死了也无所谓
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2289#       发表于 2020-3-12 11:05
+
+
+
+
+倒不是真的想攻击人家长相
+
+
+只是粥哥那张笑容实在是……挥之不去……
+
+
+
+
+
+                       
