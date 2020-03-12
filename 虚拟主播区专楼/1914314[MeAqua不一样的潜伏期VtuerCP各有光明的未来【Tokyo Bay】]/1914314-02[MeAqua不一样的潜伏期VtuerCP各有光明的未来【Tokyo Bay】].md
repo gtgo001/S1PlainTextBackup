@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 12:02** 
+> ## **本文件最后更新于2020-03-13 04:02** 
 
 
 
@@ -14425,4 +14425,473 @@ syl，说得政治不正确一点，从视频里看，小粥没有过也不奇�
 
 
 
-                       
+
+
+-----
+
+####  yuandi0120  
+##### 2290#       发表于 2020-3-12 16:12
+
+
+
+ 本帖最后由 yuandi0120 于 2020-3-12 16:24 编辑 
+
+二创不是问题，把二创当真的连体婴去冲击真人就是问题了。但产出二创的贴贴民说对此没有控制力那就和xz说对粉丝举报没有控制力一样可笑。
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|实话|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2291#       发表于 2020-3-12 16:27
+
+
+
+
+这逻辑太弱智了，那管不住粉丝的主播岂不就是xz本人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1||
+| physi1202| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 2292#       发表于 2020-3-12 16:29
+
+
+
+
+yysy，qs
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2293#       发表于 2020-3-12 16:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">主播真的能管住粉丝吗，我持怀疑态度，除非你花钱雇人控制舆论
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2294#       发表于 2020-3-12 16:51
+
+
+
+ 本帖最后由 noaki 于 2020-3-12 17:00 编辑 
+
+主播可没说让你们连，但有些粉丝却在带头连
+应该不用我举例子了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl 主播在直播中说''xx是我的朋友.....''可不等于说''你们可以在任何情况下在我这儿刷xx的名字''。所以说某些人对粉丝的刻意引导真的没有任何问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 2295#       发表于 2020-3-12 16:53
+
+
+
+
+即使不能管不住，看到连体人点草就好，某些贴贴人曾经护着连体人才是我对他们看法改变的原因，给我感觉就是一丘之貉。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2296#       发表于 2020-3-12 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707939&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-12 16:51</a>
+主播可没说让你们连，但有些粉丝却在带头连
+应该不用我举例子了吧</blockquote>
+引导归引导，管住归管住，某主播人在日本不懂中文，实际的引导工作由中国运营负责，视频剪辑对粉丝有引导作用，而且作用很大
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2297#       发表于 2020-3-12 17:11
+
+
+
+
+事实上，正常粉丝与乱刷小鬼应该是敌对关系，乱刷会带给主播大量负面评价和anti。
+
+不仅不能护着，自己这边还得加大力度杀小鬼连体人，不然风评肯定不保，很多直播间刷夸刷holo的同理。
+
+vtb的饭圈化还是不够专业，有心的anti来几波反串就得信者大战了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2298#       发表于 2020-3-12 17:23
+
+
+
+
+咩夸本到了，当一小时的六字母壬(^_−)−☆
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2299#       发表于 2020-3-12 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46708400&amp;ptid=1914314" target="_blank">JustW 发表于 2020-3-12 17:23</a>
+
+咩夸本到了，当一小时的六字母壬(^_−)−☆</blockquote>
+呜呜呜我的咩夸本到了，但是在学校，哭廖
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2300#       发表于 2020-3-12 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707939&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-12 16:51</a>
+
+主播可没说让你们连，但有些粉丝却在带头连
+
+应该不用我举例子了吧</blockquote>
+别的不说，300楼主那煽动大家去厄介的帖子可还在百合会留档呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2301#       发表于 2020-3-12 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46708733&amp;ptid=1914314" target="_blank">yuandi0120 发表于 2020-3-12 17:48</a>
+
+别的不说，300楼主那煽动大家去厄介的帖子可还在百合会留档呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，当时魔怔人这么多他那个引路帖要负相当一部分责任，这尼玛说得和真的一样
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2302#       发表于 2020-3-12 20:23
+
+
+
+
+300楼主啥时候能把欠的SC打了啊
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2303#       发表于 2020-3-12 21:53
+
+
+
+
+我建议300老哥去拿这钱嫖个女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 2304#       发表于 2020-3-13 00:23
+
+
+
+
+我们mysk×粥党简直气炸了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">（meaqua民并感）
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2305#       发表于 2020-3-13 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46708857&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-3-12 17:57</a>
+u1s1，当时魔怔人这么多他那个引路帖要负相当一部分责任，这尼玛说得和真的一样 ...</blockquote>
+他也没说这对真吧。。300楼主不是明说了自己推这对是因为不想咩被男人透吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2306#       发表于 2020-3-13 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46713039&amp;ptid=1914314" target="_blank">冰寒之月 发表于 2020-3-13 00:23</a>
+
+我们mysk×粥党简直气炸了（meaqua民并感）</blockquote>
+宫姨和墨姨稳的，放心
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2307#       发表于 2020-3-13 00:49
+
+
+
+
+看了一下，现在贴贴人已经到了两个人点赞一张图都要拿出来制糖的地步吗？感觉有点可怜了。
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2308#       发表于 2020-3-13 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46713132&amp;ptid=1914314" target="_blank">小博禹 发表于 2020-3-13 00:31</a>
+他也没说这对真吧。。300楼主不是明说了自己推这对是因为不想咩被男人透吗 ...</blockquote>
+这什么诡异的逻辑....我还第一次听说
+
+
+
+
+不过说回来了，这老哥还在的话估计会和现在的冒菜民很合的来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜了可惜了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2309#       发表于 2020-3-13 02:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">追cp真的不是一件好事
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2310#       发表于 2020-3-13 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46714252&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-03-13 02:58:24</a>
+追cp真的不是一件好事</blockquote>sdy，对我这样有点自闭的人来说，极端CP党=否认人可以自己创造价值，必须得和他人交流、碰撞才有价值
+
+那我就很不爽了.jpg
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2311#       发表于 2020-3-13 03:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46714302&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-3-13 03:10</a>
+
+sdy，对我这样有点自闭的人来说，极端CP党=否认人可以自己创造价值，必须得和他人交流、碰撞才有价值
+
+
+那我 ...</blockquote>
+极端cp党本身可以自己创造价值产虚空粮自嗨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2312#       发表于 2020-3-13 03:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46714336&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-03-13 03:18:20</a>
+极端cp党本身可以自己创造价值产虚空粮自嗨</blockquote>同人作者的末路不就是哪怕绑架了官方或者尽力无视它却依旧无法摆脱这个梦魇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自己的创作是无价值的，至少是离开本体就无法存存活的寄生虫，从一开始就没有站起来过
+
+到最后同人搞魔怔了，脱离“我就是想单纯爽那么一下（心理上或者生理上都有）”的原始驱动力的，都或多或少弱智了起来
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2313#       发表于 2020-3-13 03:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有价值那难说，毕竟还能被官方拿去当配图封面之类的用，确实能爽到
+
+
+
+
+
+                      
