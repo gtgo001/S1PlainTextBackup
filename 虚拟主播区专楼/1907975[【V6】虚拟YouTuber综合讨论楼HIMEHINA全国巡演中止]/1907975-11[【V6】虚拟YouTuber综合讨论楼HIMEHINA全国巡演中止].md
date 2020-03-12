@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 22:00** 
+> ## **本文件最后更新于2020-03-13 00:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_neL80" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_HTeLo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Ul5FZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_MjgJT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_K8SkU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_b8e7o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_WPzVU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_zdDab" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_d2sL9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_u9xtz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_WgWWV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_znBG7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9860,4 +9860,1227 @@ b站狂推010，bls斗虫又费尽心机给整了那么一出大戏搏眼球，�
 
 
 
-                                
+
+
+-----
+
+####  UnhappyTails  
+##### 15512#       发表于 2020-3-12 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711420&amp;ptid=1907975" target="_blank">ktmoon 发表于 2020-3-12 22:00</a>
+
+010比起他VR的其他人都算好的了，其他的那成绩才是真没法看</blockquote>
+010论基础素养也很nb啊，日本也有的是带业来投的，当初利香不也是在杏做个客将，有一定的特权嘛
+
+010人家真实前偶像还是snh这种比较大的团为什么不受推？而且哪怕脑死游戏010都比vr的其他菜鸡强上不知道多少（不包括vr男人，版主蛮有意思的，罗伊还没看过不评论）
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15513#       发表于 2020-3-12 22:07
+
+
+
+
+为啥开v版后鸟楼就凉了，是因为柰子不水了吗
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15514#       发表于 2020-3-12 22:07
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-12 22:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711215&amp;ptid=1907975" target="_blank">baizhi 发表于 2020-3-12 21:43</a>
+
+插一楼啊，田角搞真人女主播是有什么根据的吗
+
+整出来还得吃彩虹的箱推
+
+企划整得好把我虹女V吸干，整 ...</blockquote>
+单纯就是打着吃视频Youtuber的蛋糕的主意啊。真人YouTuber当视频势不仅成本比发展视频势管人低，上限也比管人高，搞一帮年轻貌美的还能时不时搞点event收割宅宅，现在liver里还有个日本最大youtuber事务所uuum的内鬼可以帮忙偷师，不吃白不吃。
+
+
+另外SLEE估计也不会和你虹扯上什么关系，ユメノグラフィア至今为止也只和神田联动过，整得不好确实浪费资源，整得好指不定还是一笔额外收入。只是前者可能性更大罢了。
+
+
+省一楼，都2020了还有人觉得010是vr头牌吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都被ruki拉开超过2w粉的距离了
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15515#       发表于 2020-3-12 22:07
+
+
+
+
+国产不行就是因为外国产品多的nt言论哪儿都有
+
+
+syl 常暗这是直播鬼才吗，欧美粉丝给常暗这复出直播整的感动的不行，这也在你的计划之中吗towa
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15516#       发表于 2020-3-12 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711481&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-12 22:05</a>
+
+010论基础素养也很nb啊，日本也有的是带业来投的，当初利香不也是在杏做个客将，有一定的特权嘛
+
+010人家 ...</blockquote>
+hanon现在就在va11你可以看看，比菜鸡010强上不知道多少
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15517#       发表于 2020-3-12 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711508&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-12 22:07</a>
+
+国产不行就是因为外国产品多的nt言论哪儿都有
+
+
+syl 常暗这是直播鬼才吗，欧美粉丝给常暗这复出直播整的感动 ...</blockquote>
+所以未来会出现暗皇么
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15518#       发表于 2020-3-12 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711215&amp;ptid=1907975" target="_blank">baizhi 发表于 2020-3-12 21:43</a>
+
+插一楼啊，田角搞真人女主播是有什么根据的吗
+
+整出来还得吃彩虹的箱推
+
+企划整得好把我虹女V吸干，整 ...</blockquote>
+根据就是青春的肉体啊，搞的好大赚，搞不好内部消化
+
+
+追偶像梦的年轻妹子就是比那群套皮老油条好忽悠多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15519#       发表于 2020-3-12 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711525&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-12 22:09</a>
+
+所以未来会出现暗皇么</blockquote>
+欧美粉丝打钱不给力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过欧美粉丝告御状还是有一手的，毕竟洋带人，比霓虹韭菜强多了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15520#       发表于 2020-3-12 22:15
+
+
+
+
+难得打开B站V区点开holocn主播黑桃影直播间，等了15分钟了还没说一句话，这就是国V吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15521#       发表于 2020-3-12 22:16
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-12 22:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711515&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-12 22:08</a>
+
+hanon现在就在va11你可以看看，比菜鸡010强上不知道多少</blockquote>
+鸟神我倒还真是云的，因为在你楼名声太糟糕导致我之前没有提起兴致看，不是说男女cp都rp姜硬看不下去吗
+
+现在超进化了？
+
+syl
+
+在b婪幻想010干爆厄介扬名前，你楼名声最好的vr主播是孟浩然（（（（
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15522#       发表于 2020-3-12 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 010也就初期吃了点冲国太监的人气，她不吃太监粉也就和住持一个水平，顺便表白住持新皮，爱了
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 15523#       发表于 2020-3-12 22:16
+
+
+
+
+主播15分钟不说话岂不是最适合版聊了？
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15524#       发表于 2020-3-12 22:16
+
+
+
+
+葵皇怎么回事，之前都掉到7000了，怎么突然上了一万二，难道要屠龙？
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15525#       发表于 2020-3-12 22:18
+
+
+
+
+葵皇屠龙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15526#       发表于 2020-3-12 22:19
+
+
+
+
+水管同接真的不稳定，ARK四皇模式一开又是阿葵赢的一晚，单杀所有皇，阿葵又最强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15527#       发表于 2020-3-12 22:21
+
+
+
+
+今晚葵皇屠龙灭亏，三月就是彩虹复活之月吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15528#       发表于 2020-3-12 22:21
+
+
+
+
+住持的笑点还是那么奇特吗，半年没看了，有点想回坑
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15529#       发表于 2020-3-12 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711586&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-12 22:16</a>
+
+鸟神我倒还真是云的，因为在你楼名声太糟糕导致我之前没有提起兴致看，不是说男女cp都rp姜硬看不下去吗
+
+现 ...</blockquote>
+早八百年风评反转了，还成功主持了几乎场场拉胯的vr大型联动，和你人一多就自闭的010已经不是一个物种了。
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 15530#       发表于 2020-3-12 22:24
+
+
+
+
+都被冰糖压死不是没有道理的，冰糖那整的都是小朋友爱看的节目，而且别管什么内容能持续叨叨不停，不会尬住。
+
+
+syl
+
+鲨鱼刚出道时还是总看的，和皇女一串后不久就没关注了，至少在对外这方面，就是和vr内部住持比都差太远了，住持无论对爱丽丝还是花妈都基本不会尬住（就是声音太姨+皮难看
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15531#       发表于 2020-3-12 22:27
+
+
+
+
+主持的皮不差啊，比ruki的强，还有张灵动的小嘴儿
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15532#       发表于 2020-3-12 22:29
+
+
+
+ 本帖最后由 colodes 于 2020-3-12 22:33 编辑 
+
+住持之前明明是僵尸系列婴儿皮(完全没有任何歧视僵尸的意思)，但声音却让人感受到慈祥母爱
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15533#       发表于 2020-3-12 22:29
+
+
+
+
+阿葵今晚又一个两万棒，昨晚一个三万，阿葵是神<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15534#       发表于 2020-3-12 22:31
+
+
+
+
+葵皇倍杀委员长，囚人也被演变成ark民了吗
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 15535#       发表于 2020-3-12 22:31
+
+
+
+
+住持两个劝退点，笑点奇特和皮，新皮算是整容大成功了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15536#       发表于 2020-3-12 22:35
+
+
+
+
+葵皇最强！葵皇最强！这一准备开始搞事ark民就涌过来了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15537#       发表于 2020-3-12 22:35
+
+
+
+
+葵皇两万一了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15538#       发表于 2020-3-12 22:39
+
+
+
+
+我依稀记得楼里之前有人说，葵皇就是个开服务器的工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15539#       发表于 2020-3-12 22:39
+
+
+
+
+vr下一期要是有狗妈buff还造不出爆款，建议原地解散
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15540#       发表于 2020-3-12 22:39
+
+
+
+
+holo最近是有点退潮了，CAMP四人众已不能随意称皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----------------------------------------------------------------------
+
+天皇也陨落了，囚人越来越挑剔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15541#       发表于 2020-3-12 22:40
+
+
+
+
+这里好歹不是七色太监斗虫楼，楼友若不是为了刷V版流量可以善用省一楼功能吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15542#       发表于 2020-3-12 22:41
+
+
+
+
+终于轮到关西jk组坐天下了，可是...
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15543#       发表于 2020-3-12 22:42
+
+
+
+ 本帖最后由 肚子疼了 于 2020-3-12 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711878&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-12 22:39</a>
+
+holo最近是有点退潮了，CAMP四人众已不能随意称皇
+
+
+--------------------------------------------- ...</blockquote>
+但是我看了b站，holo收入快三倍杀vr了
+
+syl 葵皇貌似止步2w3了，看来彩虹ark民的数量还是比木口少
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 15544#       发表于 2020-3-12 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711878&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-12 22:39</a>
+
+holo最近是有点退潮了，CAMP四人众已不能随意称皇
+
+
+--------------------------------------------- ...</blockquote>
+ark buff快没了，不过还好动森快来了
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15545#       发表于 2020-3-12 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711914&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-12 22:42</a>
+
+但是我看了b站，holo收入快三倍杀vr了
+
+syl 葵皇貌似止步2w3了，看来彩虹ark民的数量还是比木口少
+
+ ...</blockquote>
+3倍？建议写10倍不夸张<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15546#       发表于 2020-3-12 22:46
+
+
+
+
+与其说是ark buff没了，不如说是被彩虹吸走了
+
+
+也好，木口前些年抄了彩虹那么多作业，这就叫天道好轮回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 15547#       发表于 2020-3-12 22:49
+
+
+
+
+木口都要打完boss活动ark毕业了，准备下一件财宝（龙皇没有switch无法动森）
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15548#       发表于 2020-3-12 22:49
+
+
+
+
+你吸的走同接，吸的走sc吗？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15549#       发表于 2020-3-12 22:50
+
+
+
+
+建议龙皇搞一些不能随便抄的作业，彩虹人太多蝗起来要被冲死，比如动森这种最多10个人一起玩的就很合适
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15550#       发表于 2020-3-12 22:52
+
+
+
+
+B站那不是holo太强，而是VR太弱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，冰糖、ZJH、高小姐这三个人这个月营收数据加起来就比VR整个箱强了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15551#       发表于 2020-3-12 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712008&amp;ptid=1907975" target="_blank">香月诗浓 发表于 2020-3-12 22:49</a>
+
+木口都要打完boss活动ark毕业了，准备下一件财宝（龙皇没有switch无法动森）</blockquote>
+我是希望龙之财宝能把动森给秒了，最好是木口几个人一起秒 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+看到监控室满是任系就不爽
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15552#       发表于 2020-3-12 22:55
+
+
+
+ 本帖最后由 肚子疼了 于 2020-3-12 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712054&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-12 22:52</a>
+
+我是希望龙之财宝能把动森给秒了，最好是木口几个人一起秒 
+
+
+看到监控室满是任系就不爽 ...</blockquote>
+可以开个贴《青黑无脑只求一战 vtuber究竟是任任的天下还是索索的天下》
+
+syl 葵皇2w5了，停不下来的葵皇，2000哥要和葵皇渐行渐远了吗
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15553#       发表于 2020-3-12 22:56
+
+
+
+
+难道有什么是木口做得彩虹做不得的么，木口比彩虹多的不就一个轻百合环境和🦄️浓度么，建议从这两点入手
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15554#       发表于 2020-3-12 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这老哥怎么回事，从舰b入坑杏还能成为皆切残党的，看起来还是个外国老哥
+[https://www.youtube.com/watch?v=LuZVK1LsrFE](https://www.youtube.com/watch?v=LuZVK1LsrFE)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15555#       发表于 2020-3-12 22:59
+
+
+
+
+这聊了好几页我还以为又吵起来了，结果是在聊vr<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">警惕和平演变b综
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15556#       发表于 2020-3-12 22:59
+
+
+
+
+ARK有一点就是效果好的话同接提升很明显，不过囚人变成ARK民的说法真是看笑我了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 15557#       发表于 2020-3-12 23:01
+
+
+
+<blockquote>stedckk 发表于 2020-3-12 22:57
+这老哥怎么回事，从舰b入坑杏还能成为皆切残党的，看起来还是个外国老哥
+
+https://www.youtube.com/w ...</blockquote>
+外国老哥甚至还有在嗑mrra的，他们那比中国这边还延迟很多吧
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 15558#       发表于 2020-3-12 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是没看出holo的ark buff有降低的迹象，只是播少了而已吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15559#       发表于 2020-3-12 23:02
+
+
+
+
+ark打完boss还要去新地图继续的，好歹依然是个buff，不能说丢就丢，反正动森龙皇不会跟进，大家创世纪见<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15560#       发表于 2020-3-12 23:03
+
+
+
+ 本帖最后由 colodes 于 2020-3-12 23:06 编辑 
+
+木口最近像狐狸之前所说的强化合作是真的
+
+明天既有3期生线下(?)联动，又有集体吃辣面企划，ARK的时间确实少了（昨天除外）
+
+不过kanata平常做的ARK生存日记空巢下下午同接成绩也还不错
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 15561#       发表于 2020-3-12 23:03
+
+
+
+
+有一说一，B站外国人就是有优势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要是外国人你到贴吧喊一下，“救救XXX”，马上就一堆人涌过去了，怎么没人救救底边VUP啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15562#       发表于 2020-3-12 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712166&amp;ptid=1907975" target="_blank">克罗夏 发表于 2020-3-12 23:01</a>
+
+外国老哥甚至还有在嗑mrra的，他们那比中国这边还延迟很多吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再延迟也不可能延迟那么多吧，下面评论还有说这样的话的
+
+AQUA STOP GOING AFTER OKAYU, AND GET BACK WITH AYAME
+
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 15563#       发表于 2020-3-12 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712119&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-12 22:57</a>
+
+这老哥怎么回事，从舰b入坑杏还能成为皆切残党的，看起来还是个外国老哥
+
+https://www.youtube.com/w ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我这个舰b入坑的只想烧死皆切异端
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15564#       发表于 2020-3-12 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712211&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-12 23:04</a>
+
+再延迟也不可能延迟那么多吧，下面评论还有说这样的话的
+
+AQUA STOP GOING AFTER OKAYU, AND GET B ...</blockquote>
+太艹了
+
+
+不过也可以想见大天使在404那边把六字母藏得多好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 15565#       发表于 2020-3-12 23:07
+
+
+
+
+今天oba和葵皇的会谈，完全暴露了oba四皇位子的白给
+
+空有play时间和部落人数，实力空虚的不行
+
+“我这边的战力实质只有我一个”，“打仗的时候可能只能来4、5人，跟对面差不多……”
+
+
+救救oba……
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15566#       发表于 2020-3-12 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712234&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-12 23:06</a>
+
+太艹了
+
+
+不过也可以想见大天使在404那边把六字母藏得多好</blockquote>
+我懂了，亏猫cp就是打算走欧美特攻吗，小学生当年diss过夏哥，背有反骨，是时候换人了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15567#       发表于 2020-3-12 23:26
+
+
+
+
+所以四代夸妃到底是谁？
+
+稻荷能算一代么？我感觉不行，稻荷和阿夸玩的好的时候六字母已经开始搞了
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 15568#       发表于 2020-3-12 23:30
+
+
+
+
+百鬼，神乐，稻荷，诗音，椎名，猫又。在欧美大热的应该是盐水来着
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15569#       发表于 2020-3-12 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 只有葵西糖能拯救我羸弱的心，
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15570#       发表于 2020-3-12 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">之前你楼谁奶的彩虹麻将大赛？刚刚舞元力一宣布下月十二号开催彩虹最强雀士决定战，将近40人参加，不知道会不会把杠樱拉来当解说。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15571#       发表于 2020-3-12 23:35
+
+
+
+
+打开节奏帮不就知道了。大亏还能吸的直播势就那仨。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15572#       发表于 2020-3-12 23:37
+
+
+
+
+日麻我是完全搞不懂<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+幸好还有露露<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15573#       发表于 2020-3-12 23:40
+
+
+
+ 本帖最后由 qq845629713 于 2020-3-12 23:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 若干年后，亏皇在横滨高档别墅里回顾自己波澜壮阔的live人生，一边品着红酒，一边思考当年的一步步棋，
+
+
+会不会后悔当时没有狠狠的吸一波葵熊、囚人呢？
+
+
+亏葵阴湿互吸YYGQ剧情来点，
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15574#       发表于 2020-3-12 23:50
+
+
+
+
+今天在你楼水的少，主要关心海外疫情去了，在百年未有之大变局的环境下，回到你楼还是家一般温暖的车轱辘，V综真是虚拟桃花源啊
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15575#       发表于 2020-3-12 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712685&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-12 23:50</a>
+ 今天在你楼水的少，主要关心海外疫情去了，在百年未有之大变局的环境下，回到你楼还是家一般温暖的车轱辘， ...</blockquote>
+我觉得日本真挺危险的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天孙正义那新闻差点没把我笑死
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15576#       发表于 2020-3-12 23:56
+
+
+
+
+大不了生化危机呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15577#       发表于 2020-3-12 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712716&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-12 23:52</a>
+
+我觉得日本真挺危险的昨天孙正义那新闻差点没把我笑死</blockquote>
+西甲意甲欧冠欧洲杯奥运会NBA都要没了，VTB却依然坚挺，大家还在沉迷黑屁与斗虫，问今是何事，乃不知新冠，无论熔断。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15578#       发表于 2020-3-13 00:00
+
+
+
+
+主播又不用出门，楼里的人不还说这还能提升同接吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
