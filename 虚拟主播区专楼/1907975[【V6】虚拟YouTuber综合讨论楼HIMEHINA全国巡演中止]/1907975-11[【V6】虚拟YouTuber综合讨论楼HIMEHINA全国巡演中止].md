@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 12:00** 
+> ## **本文件最后更新于2020-03-12 14:02** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_y7ZB4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_B66Hr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_sI6HH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_B7S72" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_r7Y73" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_dmEIY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_M8Nfm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_Z47HO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -5803,4 +5803,896 @@ syl
 
 
 
-                                        
+
+
+-----
+
+####  anen  
+##### 15292#       发表于 2020-3-12 12:05
+
+
+
+
+葵黄马上就40W了，2000哥的有生之年还能看到葵黄挤进订阅前10吗？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15293#       发表于 2020-3-12 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704485&amp;ptid=1907975" target="_blank">anen 发表于 2020-3-12 12:05</a>
+
+葵黄马上就40W了，2000哥的有生之年还能看到葵黄挤进订阅前10吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 我把房子卖了给葵皇买订阅就能冲到前十，可，这值得吗？
+
+
+
+
+
+
+
+-----
+
+####  zcs1805  
+##### 15294#       发表于 2020-3-12 12:15
+
+
+
+
+当时anmr和hnst也算大箱啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15295#       发表于 2020-3-12 12:16
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-12 12:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704569&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-12 12:12</a>
+
+我把房子卖了给葵皇买订阅就能冲到前十，可，这值得吗？</blockquote>
+直接让葵皇的订阅人数变成垃圾，既能制造话题，又能顺劈彩虹运营，这这太值了。
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 15296#       发表于 2020-3-12 12:21
+
+
+
+
+记得当年V综口里木口甚至不如单hnst的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15297#       发表于 2020-3-12 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704348&amp;ptid=1907975" target="_blank">fs001 发表于 2020-3-12 11:53</a>
+
+个人认为海苔男水平是比nns运营水平高的，黄兔子在anmr箱屈才了。</blockquote>
+如果说作为manager对liver的支撑的话，海苔男自己倒是说过比很多企业都做的更多，就连直播封面跟音量调整这种小事都要管。我前面也说她这种做法带的动一个也带不动一群，毕竟她自己主业还是直播不是manager。也可以反过来认为她控制欲太强，而且相对的抽成肯定也不止井皇5%的程度。
+
+要是说作为一个组织的商业运作的话，我是觉得海苔男再怎么有能也没办法跟成熟的公司比，777inc的颓势可能更多还是决策上的问题吧。
+
+不过nns最大的问题恐怕还是出在跟liver的关系上面，这一点上海苔男倒是吸取了井皇的教训，选择的都是熟人从根本上杜绝撕逼可能
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15298#       发表于 2020-3-12 12:25
+
+
+
+
+节奏榜前十又不能吃，前面好些占着坑倒扣订阅的老家伙
+
+不如想想社内顺位，有没有可能被gibara食杀
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15299#       发表于 2020-3-12 12:27
+
+
+
+
+一年前的今天，anst排位比hololive还高一点来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15300#       发表于 2020-3-12 12:27
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-12 12:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704691&amp;ptid=1907975" target="_blank">dorasir 发表于 2020-3-12 12:21</a>
+
+记得当年V综口里木口甚至不如单hnst的</blockquote>
+hnst的很大程度是被油罐收益化回收搞死的。
+
+hololive之前那段时间收益化大规模回收，成员都撑不住了。
+
+如果不是有英文圈的有能粉丝反馈，成功让油罐把收益化换回来了，
+
+时间稍微拖长点。
+
+holo中一批人隐退崩溃也不是不可能。
+
+有能粉丝确实能救箱。
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 15301#       发表于 2020-3-12 12:34
+
+
+
+
+yyut不也每天弹琴嘛 看的人很多啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15302#       发表于 2020-3-12 12:34
+
+
+
+
+去年这会杏已经比茶馆夜店强了，狐皇夸神去年这会同接稳4-5千没问题的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15303#       发表于 2020-3-12 12:37
+
+
+
+
+我没来由的提一嘴，V圈所有傻逼运营傻逼中之人加起来再平方一下都没有川上量生傻逼。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15304#       发表于 2020-3-12 12:37
+
+
+
+
+看来不止你楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15305#       发表于 2020-3-12 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704871&amp;ptid=1907975" target="_blank">free 发表于 2020-3-12 12:34</a>
+去年这会杏已经比茶馆夜店强了，狐皇夸神去年这会同接稳4-5千没问题的</blockquote>
+夸皇金壶是哪一天来着，我记得是金壶之后好起来的，金壶前是两千左右来着
+
+—— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15306#       发表于 2020-3-12 12:46
+
+
+
+
+我记得船长好像直播的时候说过明明没啥事一定要拖到1小时直播的最后阶段才公布重大发表是运营要求的，只能说HOLO的运营大概是真觉得这样有节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15307#       发表于 2020-3-12 12:49
+
+
+
+
+这样同接高啊，越熬越多人，就是差评多点而已
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15308#       发表于 2020-3-12 12:49
+
+
+
+
+当年排名次是虹和点是一线，anst是二线头，杏是二线尾
+
+现在杏是一线头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15309#       发表于 2020-3-12 12:52
+
+
+
+
+bsyl，虽然我觉得三酱不行，但她要是中国人而且是泥潭潭友就好了，每天高强度在你楼乳各式套皮女主播
+
+没准到时候还能出个道去VR，不管怎么说能力应该还是比四酱强的，到时候就是泥板唯一代表了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 15310#       发表于 2020-3-12 12:54
+
+
+
+
+不过回想起来去年这时候哪怕404炮还没解封anst的数据也不比holo好到哪里去，holo的SC还更好看一些，为什么那时候都觉得holo二线尾啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15311#       发表于 2020-3-12 12:54
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-12 12:59 编辑 
+
+犬山运营确实强啊，中国进出和日本发展都没拉下。
+
+自己和白雪的sc啊好看的不行。一个排28、一个排31。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15312#       发表于 2020-3-12 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46705023&amp;ptid=1907975" target="_blank">ktmoon 发表于 2020-3-12 12:46</a>
+我记得船长好像直播的时候说过明明没啥事一定要拖到1小时直播的最后阶段才公布重大发表是运营要求的，只能 ...</blockquote>
+数字高呗，毕竟如果发表没啥内容的话很多人可能看完你发表啥之后就跑了，拖时间指不定还能把一些纯粹看看热闹的转化成粉丝
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15313#       发表于 2020-3-12 12:57
+
+
+
+
+天天嗯蹭热度就叫运营真的强<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我看也没必要看不起张京华了，都是中级玩梗高手还要分高低吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15314#       发表于 2020-3-12 12:58
+
+
+
+
+前年的那本ユリイカ杂志 绊爱访谈的中文翻译
+
+
+绊爱 奇异与联系与爱
+
+bilibili.com/read/cv4699186
+
+bilibili.com/read/cv4774369
+
+bilibili.com/read/cv4891059
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15315#       发表于 2020-3-12 13:02
+
+
+
+
+连staff都是事业民，怪不得liver都这么拼，tql
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15316#       发表于 2020-3-12 13:06
+
+
+
+
+staff不关注事业才奇怪吧（）
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15317#       发表于 2020-3-12 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46705173&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-12 12:57</a>
+
+天天嗯蹭热度就叫运营真的强我看也没必要看不起张京华了，都是中级玩梗高手还要分高低吗？ ...</blockquote>
+我也不喜欢欧阳。
+
+但是喜不喜欢是个人感受的问题。
+
+能把谢拉的粉丝转化成自己粉丝不也是有手段吗。
+
+我个人反感烂梗，但是烂梗确实符合部分人兴趣。
+
+作为一个vup，他订阅也有了，舰长、收入、话题度都有了。
+
+那他就是成功的。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15318#       发表于 2020-3-12 13:13
+
+
+
+
+去年3月
+
+<img src="https://s1.ax1x.com/2020/03/12/8ZUFUK.png" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/03/12/8ZUha6.png" referrerpolicy="no-referrer">
+
+
+话说hiyoko要怎么才能不显示B站人气值？
+
+
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15319#       发表于 2020-3-12 13:13
+
+
+
+
+说实话苔姨这种游戏不会玩，唱歌不咋地，杂谈只会车轱辘，中之人还不是美少女的个人势，不靠蹭热度玩烂梗哪能混到现在这程度，至于婆罗门不喜欢人又不在乎
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15320#       发表于 2020-3-12 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46705318&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-12 13:09</a>
+我也不喜欢欧阳。
+
+但是喜不喜欢是个人感受的问题。
+
+能把谢拉的粉丝转化成自己粉丝不也是有手段吗。</blockquote>
+你楼至少没人尬吹欧阳运营确实强，最多说个你行你上<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15321#       发表于 2020-3-12 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704753&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-12 12:25</a>
+
+如果说作为manager对liver的支撑的话，海苔男自己倒是说过比很多企业都做的更多，就连直播封面跟音量调整 ...</blockquote>
+海苔男知道个人势憋不出什么东西，所以选择联动作为主基调。和虹杏个人势甚至非V圈都能联动上，关系而且很不错。甚至来说会想办法给自己造话题，给别人造话题自己蹭。不过犬山那皮的风格，我是欣赏不来，只能看看联动。。
+
+
+nns不知道是不是日企惯性的故步自封，决策层不知道用什么东西下策略的能把箱越做越差。
+
+总而言之作为商业合作对象，海苔男是winwin有眼光的功利人<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15322#       发表于 2020-3-12 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46705397&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-12 13:15</a>
+
+你楼至少没人尬吹欧阳运营确实强，最多说个你行你上</blockquote>
+你楼对某些词语的反应真是大的不行。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15323#       发表于 2020-3-12 13:25
+
+
+
+
+去年三月杏正处于入驻b站后吃**炮吃得飞起的尾声，内容基本随大流抄作业，十来个人一半拉胯。anst当时没太拉胯的，两个组长在各自领域发挥也都好，前景上看确实比杏要高一头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15324#       发表于 2020-3-12 13:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上年这个时候还天天骂谷乡辱holo的运营呢，看看现在脸都被打肿了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15325#       发表于 2020-3-12 13:30
+
+
+
+
+holo运营不能乳？yagoo只是一路都没出错而已，做好的事情也一件都没有啊？
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15326#       发表于 2020-3-12 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46705584&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-12 13:30</a>
+holo运营不能乳？yagoo只是一路都没出错而已，做好的事情也一件都没有啊？</blockquote>
+老实说，不出错这个事情其实远比你认为的要困难的多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| forzen| + 1|同意|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15327#       发表于 2020-3-12 13:34
+
+
+
+ 本帖最后由 proxima 于 2020-3-12 13:35 编辑 
+
+这题我会了。
+
+海苔男日本v圈欧阳说
+
+欧阳玩dd烂梗吸引小鬼，海苔男也玩淫梦烂梗吸引小鬼
+
+欧阳各种蹭其他vup热度，海苔男也蹭虹杏热度
+
+欧阳直播求舰长要钱，海苔男也直播求sc要钱
+
+
+syl，yagoo把星街从innk拉到holo我觉得做的挺好的
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15328#       发表于 2020-3-12 13:34
+
+
+
+
+讲真，海苔男这种隔三差五开个摄像头对着自己滤镜拉满的，管自己叫vtuber，不就是硬蹭热度？还给金主私发自己的高p照片，这种女主播行为你楼最看不起的小伞一把都干不出来，也就是凭自己是个日本人了，换成个中国人天天开摄像头管自己叫vup，你看b小将不把他喷死。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 买表大户| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15329#       发表于 2020-3-12 13:38
+
+
+
+
+等友商自爆自己能排雷就是最大的本事了。何况谷某是真的舍得把到手的钱全砸设备和技术储备上去。小企业很多都是倒在不知道哪里冒出来的坑里的，虹杏和其他v友商本质都是草台小企业不乳不能不能进步<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  786223096  
+##### 15330#       发表于 2020-3-12 13:38
+
+
+
+
+毕竟你楼傻逼婆罗门还是一贯的多
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15331#       发表于 2020-3-12 13:39
+
+
+
+
+海苔男虽然不是美少女，但是是美妇女啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15332#       发表于 2020-3-12 13:41
+
+
+
+
+稻荷18年底就跑路了，哪来什么前景好
+
+当时给holo洗地就反复说过二线吊车尾是伪命题，因为称得上二线的就三个，而且只有hnst属于稍好
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 15333#       发表于 2020-3-12 13:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">来个湾湾用法。是美魔女
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15334#       发表于 2020-3-12 13:44
+
+
+
+
+海苔男的大饼脸确实称不上美女但奈何管人圈颜值均值实在费拉不堪
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15335#       发表于 2020-3-12 13:46
+
+
+
+
+这我就不同意了，不能拿木口坦克营当业界指标。
+
+太子阿满露露不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15336#       发表于 2020-3-12 13:47
+
+
+
+
+说了是均值了，不过🌈19开始那一批确实整体颜值比前面的高一点。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15337#       发表于 2020-3-12 13:49
+
+
+
+
+SLEE最强！SLEE最强！
+
+
+
+
+
+
+
+-----
+
+####  墨白君  
+##### 15338#       发表于 2020-3-12 13:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">草 为啥彩虹还不抽卡啊  好久没看抽卡了
+
+
+
+
+
+                                      
