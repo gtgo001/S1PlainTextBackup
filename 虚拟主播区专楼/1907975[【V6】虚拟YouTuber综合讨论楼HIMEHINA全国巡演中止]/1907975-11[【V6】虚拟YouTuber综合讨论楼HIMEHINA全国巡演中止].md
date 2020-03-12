@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 16:00** 
+> ## **本文件最后更新于2020-03-12 18:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_CBZVK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_Ge5It" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_kDGvT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_q3IFs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_S3z7F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_iJ6uL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_xsc7k" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_M0ZRa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6997,10 +6997,11 @@ SLEE所谓的“アイドルYouTuber”，重点仍然是“YouTuber”，官网
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 十月鼠| + 1|可恶，不截上我|
 | free| + 1|我真的笑了，请大家务必一读|
 
 
@@ -7394,11 +7395,581 @@ yysy，拿ickr这个企划和stars比，有被冒犯到<img src="https://static.
 
 
 
+ 本帖最后由 noHentai 于 2020-3-12 16:05 编辑 
 
 红A哥这句话说的，我是没有想到原来你杏星也配说被冒犯到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+哦，不对，杏星还是有被冒犯的资格的，ickr这个企划就更不配，是我眼里有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+<[img src="https://i.loli.net/2020/03/12/eyu9UkSQsIrmh8J.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/03/12/tanjsLodi3KNJOE.png" referrerpolicy="no-referrer">
 
 
 
 
-                                     
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15378#       发表于 2020-3-12 16:05
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-3-12 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707290&amp;ptid=1907975" target="_blank">noHentai 发表于 2020-3-12 15:57</a>
+
+红A哥这句话说的，我是没有想到原来你杏星也配说被冒犯到</blockquote>
+其实我也没想到就说了......半斤八两的对手我肯定站这边说话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过syl，既然有难得的科普时间，谁能介绍下那个什么Re:AcT男性部门？上次一弦和那个姓唯牙的一起投翻唱时才知道的，当时贴吧问了也只知大概，不知S1老哥能不能详一点
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 15379#       发表于 2020-3-12 16:08
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-3-12 16:11 编辑 
+
+https://bbs.saraba1st.com/2b/thread-1918442-0-1.html
+https://m.weibo.cn/5044281310/4481389267752770
+为吸引学生注意力，上海教授变身二次元萝莉
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15380#       发表于 2020-3-12 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707435&amp;ptid=1907975" target="_blank">与天争锋_LZ 发表于 2020-3-12 16:08</a>
+
+https://bbs.saraba1st.com/2b/thread-1918442-0-1.html
+
+https://m.weibo.cn/5044281310/4481389267752770
+
+ ...</blockquote><blockquote>五个选项内有两个萝莉已经说明很有问题了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十月鼠  
+##### 15381#       发表于 2020-3-12 16:15
+
+
+
+
+说到React男性我印象最深的就是那个湊音一直跟女人绑在一块宣传我最初真的以为是个女的....
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15382#       发表于 2020-3-12 16:18
+
+
+
+ 本帖最后由 noHentai 于 2020-3-12 16:20 编辑 
+
+整个zepp的通贩都给索尼，难怪连本间都要，原来ickr是签了长期不平等条约<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  hahachenge  
+##### 15383#       发表于 2020-3-12 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46706730&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-12 15:10</a>
+
+什么鬼，吉良吉影？
+
+
+syl，我想起来当初NGA十二月对线然后迎来了一弦B限，这次NGA对线对来了新衣装[ ...</blockquote>
+这要等到什么时候？干脆你们星粉众筹全员3d算了，yagoo看到粉丝那么给力不就会加大投入了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15384#       发表于 2020-3-12 16:29
+
+
+
+
+不过我搞不明白为啥不变态老哥只用一个人的数据......一弦和roberu也都和律可差不多的......不懂不懂
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15385#       发表于 2020-3-12 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 我教你恶心变态老哥，经常发怪文书触发他得玲人ptsd，就能重挫他的锐气
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15386#       发表于 2020-3-12 16:35
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-12 16:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707383&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-12 16:05</a>
+
+其实我也没想到就说了......半斤八两的对手我肯定站这边说话不过syl，既然有难得的科普时间，谁能 ...</blockquote>
+Re:Act男性部门成员主要来自前Kagayaki Star的两个男性组合：Suisay和METEO。
+
+
+前Suisay曾经有四人，目前剩下的最后一名成员湊音みなみ，加上前METEO两名成员唯牙コハク和皇噛ユカリ，构成了现在的Re:Act男性部门。但目前皇噛ユカリ由于在十一月爆出与湊音みなみ相关的惊天丑闻而无限期谨慎，Re:Act男性部门实质只剩两名成员。
+
+
+搜了下，みなみ当初那篇控告皇噛的note已经删了，暂时也找不到存档，V5可能还有讨论遗迹，有兴趣翻一下。简单地说就是指控皇噛不仅实际上是连身份相关证明都没有的黑户，而且借住湊音家直播并对他的精神造成了极大压力，而且还拒绝搬离他家，导致他迫不得已爆料控诉，大概如此。
+
+
+以前倒是偶尔听过他们的歌，主要是以女性向ASMR和歌回为主，走的就是女性向偶像路线。
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15387#       发表于 2020-3-12 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707635&amp;ptid=1907975" target="_blank">hahachenge 发表于 2020-3-12 16:25</a>
+
+这要等到什么时候？干脆你们星粉众筹全员3d算了，yagoo看到粉丝那么给力不就会加大投入了 ...</blockquote>
+老兄您也真能说<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">不过就算真有众筹之意，哪怕按一人1wJPY，无奈人也太少了
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15388#       发表于 2020-3-12 16:44
+
+
+
+
+从屏幕中我都能感受到白姨羡慕的眼神，估计以后不带星玩了
+
+
+
+
+
+
+D596D867-05AD-4C82-B80A-E5CA975C49CF.jpeg
+(19.86 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-12 16:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/164350ba3a3axwb8weaayy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15389#       发表于 2020-3-12 16:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/164540dsjn9qcs0mjq0d0y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>unnamed.jpg</strong> (108.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-12 16:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15390#       发表于 2020-3-12 16:46
+
+
+
+
+建议发到lga木口楼<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 15391#       发表于 2020-3-12 16:48
+
+
+
+
+S1,已经没有玲人了，连玲楼都不更新了，玲人大约已经死绝了，就和玲一样，
+
+
+我还是那个我，玲，玲，玲，玲，玲，不是那个玲，ema不是那个玲，哦，我也不是玲人，
+
+
+确实不是，确实不是玲，她不会敲锅子，会敲锅子的玲已经死了，死了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15392#       发表于 2020-3-12 16:48
+
+
+
+
+这男的表情太草了
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 15393#       发表于 2020-3-12 16:48
+
+
+
+
+有勇士转波图吗，我非常想看他们的反应
+
+
+
+
+
+
+
+-----
+
+####  hahachenge  
+##### 15394#       发表于 2020-3-12 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707749&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-12 16:36</a>
+
+老兄您也真能说不过就算真有众筹之意，哪怕按一人1wJPY，无奈人也太少了 ...</blockquote>
+我看好多人都用mmd无偿发电，星粉里应该也有几个擅长建模的吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15395#       发表于 2020-3-12 16:55
+
+
+
+
+建议给萌萌敌潭民先打支姨苗，再来上绿帽的猛药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15396#       发表于 2020-3-12 16:59
+
+
+
+
+
+
+来点阿玲圣JING
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15397#       发表于 2020-3-12 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707920&amp;ptid=1907975" target="_blank">hahachenge 发表于 2020-3-12 16:50</a>
+
+我看好多人都用mmd无偿发电，星粉里应该也有几个擅长建模的吧</blockquote>
+草，我在阿B见过一堆视频，就是没见过MMD<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15398#       发表于 2020-3-12 17:00
+
+
+
+ 本帖最后由 cckuku 于 2020-3-12 17:15 编辑 
+
+文野環这是在搞啥配信？我怎么看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她是不是很缺钱？她的视频广告多的我都不想点进去
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15399#       发表于 2020-3-12 17:04
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-12 17:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46708059&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-12 17:00</a>
+
+文野環这是在搞啥配信？我怎么看不懂</blockquote>
+貌似本来想搞毕业典礼式的直播，没想到下巴突然脱臼了几分钟，变成一边疼得不断呼吸一边打字的直播，现在自己治好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+第一次脱臼的原因是大张嘴唱国/歌，自己治好之后又不怕死再挑战了一遍，二次脱臼<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 15400#       发表于 2020-3-12 17:05
+
+
+
+
+脱臼也太惨了，疼的要死
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 15401#       发表于 2020-3-12 17:05
+
+
+
+
+猫猫真是意外状况不断......
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 15402#       发表于 2020-3-12 17:09
+
+
+
+
+终于领教到煤炉上“不安です”有多么恶心了，买个露露徽章一会说不想和外国人交易，一会说不想和代购交易，前前后后拖了快1个月了就是不肯发货<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15403#       发表于 2020-3-12 17:41
+
+
+
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_DjsCe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15404#       发表于 2020-3-12 17:42
+
+
+
+
+日本物流也要停了。。我在东京的朋友收不到国内寄过来的快递了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15405#       发表于 2020-3-12 17:55
+
+
+
+
+葛葉「りゅうたんそんさん！？」 　竜胆尊と取引をする
+[https://www.nicovideo.jp/watch/sm36500597](https://www.nicovideo.jp/watch/sm36500597)
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 15406#       发表于 2020-3-12 18:01
+
+
+
+
+「カイト」（Cover）-波羅ノ鬼（ハラノオニ）-
+[https://www.youtube.com/watch?v=jVfsQMOr-7Y&amp;feature=youtu.be](https://www.youtube.com/watch?v=jVfsQMOr-7Y&amp;feature=youtu.be)
+
+
+（其实我不是太喜欢米津玄师的歌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+                                    
