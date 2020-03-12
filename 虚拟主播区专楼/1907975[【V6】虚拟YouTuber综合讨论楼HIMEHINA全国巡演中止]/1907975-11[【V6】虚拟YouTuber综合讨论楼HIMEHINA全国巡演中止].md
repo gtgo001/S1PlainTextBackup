@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 00:01** 
+> ## **本文件最后更新于2020-03-13 02:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_MjgJT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_K8SkU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_b8e7o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_gOme2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_y6pSd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Wz5u6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_zdDab" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_ecSBU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_u9xtz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_XuIBH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_znBG7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_y2Wnw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11083,4 +11083,612 @@ AQUA STOP GOING AFTER OKAYU, AND GET B ...</blockquote>
 
 
 
-                              
+
+
+-----
+
+####  hahanike  
+##### 15579#       发表于 2020-3-13 00:01
+
+
+
+
+所以说管人都是在发国难财
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15580#       发表于 2020-3-13 00:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 到时候观众打不动钱了，那几个sc收到手软的liver会使用什么下三滥的手段集金才是看点
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 15581#       发表于 2020-3-13 00:02
+
+
+
+
+VTB坚挺个毛，live取消一大堆了，只有木口早早办好了丰州，享受着虚拟的美好人生<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 15582#       发表于 2020-3-13 00:04
+
+
+
+
+q：皆切是啥？
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15583#       发表于 2020-3-13 00:04
+
+
+
+ 本帖最后由 肚子疼了 于 2020-3-13 00:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712805&amp;ptid=1907975" target="_blank">北山玖公 发表于 2020-3-13 00:02</a>
+
+VTB坚挺个毛，live取消一大堆了，只有木口早早办好了丰州，享受着虚拟的美好人生 ...</blockquote>
+天佑木口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 看了眼斗虫榜，今天的午夜是彩虹的午夜
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 15584#       发表于 2020-3-13 00:05
+
+
+
+
+然而同接整体也没变高啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本人跟病毒打起心理战无敌，完全一副无事发生，该干啥干啥，既不是危机也不是机遇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 15585#       发表于 2020-3-13 00:07
+
+
+
+
+主播不用出门海星，岛国的物流那么方便吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要到时候买不到纸要用轻小说擦屁股
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15586#       发表于 2020-3-13 00:09
+
+
+
+
+虚拟美少女不用拉屎的，你不知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 15587#       发表于 2020-3-13 00:10
+
+
+
+
+日本人只是善于装死充楞而已。到时候管人的生存危机要提高了，更别提一大堆其实还是兼职的个人势VTB要怎么活下去，大概又要一波引退潮，唏嘘唏嘘。
+
+
+只有SC是不会骗人的，只有钱才能体现出这波到底对管人有多大损害<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15588#       发表于 2020-3-13 00:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 肯定是男朋友帮忙买纸啊，管人只需要计生用品和外卖就能活了
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 15589#       发表于 2020-3-13 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">那我麻这种天天snp咖喱人来探望的岂不是最先要把纸用完了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15590#       发表于 2020-3-13 00:15
+
+
+
+
+同接没高，说明管粉人均neet，押一波疫情结束平均同接也不会跌
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15591#       发表于 2020-3-13 00:15
+
+
+
+
+既然都不出门了，为什么还要用纸，反正隔着屏幕又闻不到味
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15592#       发表于 2020-3-13 00:15
+
+
+
+
+各种live取消对歌系确实是重大打击，就靠这个来钱呢，至于其他的，口红效应没听过嘛，各种奢侈消费场所都关了，人人宅在家里看管，没准SC真的上升呢。
+
+
+
+省一楼，dustcell银盾达成
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15593#       发表于 2020-3-13 00:17
+
+
+
+
+虹人是真的够多够铁，<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">杏里面也就四个熬夜天王，虹这都看不到头的。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15594#       发表于 2020-3-13 00:18
+
+
+
+
+比起这个，这波cm还不取消，那是真的头铁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+肥宅要被一网打尽了吗
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15595#       发表于 2020-3-13 00:18
+
+
+
+
+你们哪来自信别人呆在家里就会看管人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+是真人主播不好看吗？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15596#       发表于 2020-3-13 00:19
+
+
+
+
+在家可以打游戏、看电视、看漫画、看一般油土鳖视频，凭啥要看V管人提高同接<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15597#       发表于 2020-3-13 00:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 你想多了，不去工作赚钱的阿宅在东京撑不了三个月就饿死了，还打sc呢？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15598#       发表于 2020-3-13 00:26
+
+
+
+
+chronoir组蝗游戏速度真快，这就蝗上cod了，之前还凌晨蝗gbfvs，建议其它v人学习一个
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15599#       发表于 2020-3-13 00:26
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-13 00:29 编辑 
+
+本子看直播的人倒真是大部分看管人，国内就算了，我看别人外放管人直播都在心里默念傻卵<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+syl不知道白皮管粉该是怎样的degeneration，平时你头像沾点二次元就要遭受羞辱
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15600#       发表于 2020-3-13 00:28
+
+
+
+
+但是chronoir如果播的是ARK我都敢说有2w同接。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15601#       发表于 2020-3-13 00:30
+
+
+
+
+但是国内这几个月却是管人第二春，收入数据又不会骗人，各路撕逼也是此起彼伏，说明新人也很多。
+
+霓虹会不会国服复刻呢
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 15602#       发表于 2020-3-13 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46712821&amp;ptid=1907975" target="_blank">与天争锋_LZ 发表于 2020-3-13 00:04</a>
+
+q：皆切是啥？
+
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S1Next-鹅版 v2.2.2</blockquote>
+湊（みなと）百鬼（なきり）→みなきり（皆切）
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15603#       发表于 2020-3-13 00:35
+
+
+
+
+天道酬勤和懒狗能成个吉尔CP
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15604#       发表于 2020-3-13 00:38
+
+
+
+
+可能这就是反差萌吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就像老好人班长和逃课的不良也算经典cp了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15605#       发表于 2020-3-13 00:45
+
+
+
+
+好糖我恰，建议国服大力引进，杀光连体婴
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15606#       发表于 2020-3-13 00:45
+
+
+
+
+cod这游戏直播效果还挺好
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15607#       发表于 2020-3-13 00:51
+
+
+
+
+我发现holo那臭🐑实力挺强的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15608#       发表于 2020-3-13 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">cod这吃鸡模式效果这么好的吗，还是单纯因为这两个联动。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15609#       发表于 2020-3-13 01:16
+
+
+
+
+以日本现在的情况，我觉着大家在认为疫情可以推高同接的同时应该认真的担心会不会有管人中招了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15610#       发表于 2020-3-13 01:30
+
+
+
+
+我几周前就提议开盘赌一下第一个中招的V是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过你日没有全面检测估计也都不知道
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15611#       发表于 2020-3-13 01:31
+
+
+
+
+发烧咳嗽当普通流感就完事了，毕竟又不许轻症检查的，根本不知道中招没
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 15612#       发表于 2020-3-13 01:38
+
+
+
+
+没事儿的，只要不是重症确诊就是没得病，形势一片大好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 15613#       发表于 2020-3-13 01:53
+
+
+
+ 本帖最后由 北山玖公 于 2020-3-13 01:56 编辑 
+
+那我预估一下，等到真有哪个V中招了，某些论坛某些吧里就会窜出“能不能劝他们（此处应加上铁gachi特有的‘不择手段’）到我们这里治疗”的帖子了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+日本那边又地震了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15614#       发表于 2020-3-13 01:55
+
+
+
+
+贷款黑屁适可而止.jpg
+
+
+
+
+
+                             
