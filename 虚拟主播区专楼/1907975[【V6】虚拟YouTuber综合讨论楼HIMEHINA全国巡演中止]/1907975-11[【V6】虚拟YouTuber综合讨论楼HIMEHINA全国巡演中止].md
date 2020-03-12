@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 14:02** 
+> ## **本文件最后更新于2020-03-12 16:00** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_B7S72" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_r7Y73" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_dmEIY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_CBZVK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_Ge5It" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_kDGvT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_Z47HO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_xsc7k" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6695,4 +6695,710 @@ SLEE最强！SLEE最强！
 
 
 
-                                      
+
+
+-----
+
+####  IDIDIDID  
+##### 15339#       发表于 2020-3-12 14:02
+
+
+
+
+在抽了在抽了，SLEE在抽了。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15340#       发表于 2020-3-12 14:03
+
+
+
+<blockquote>一次選考：書類選考・動画選考
+
+二次選考：都内での面談　2月後半予定
+
+オーディション結果通知：3月前半予定</blockquote>[https://audition.slee-official.com/](https://audition.slee-official.com/)
+
+
+在抽了在抽了，而且都快抽好了
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15341#       发表于 2020-3-12 14:05
+
+
+
+
+我寻思着星姐的live刚办完
+
+说一件事都没办好是眼瞎吗
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15342#       发表于 2020-3-12 14:13
+
+
+
+
+最近彩虹放慢抽卡速度了吧，应该还是想救一下现在社里的底边，最近的大企划参加的主力也逐渐开始往银盾以下的人开始靠了，我倒觉得现在彩虹这边上位势拉跨。现在要恢复19年那种抽卡频率我觉得是不太可能了
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15343#       发表于 2020-3-12 14:18
+
+
+
+
+不抽卡是因为从老板到HR都在给SLEE挑选“顔に自信ある”的美少女的，哪来兴致去给成年老皮选些下岗再就业主播<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">救底边仔细看会发现运营影子很淡，更像是主播团自救
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15344#       发表于 2020-3-12 14:21
+
+
+
+
+底边不全靠自己人救，真的该给德比颁个奖的，指望彩虹运营能做啥啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15345#       发表于 2020-3-12 14:23
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-3-12 14:24 编辑 
+
+应征SLEE要交的资料里这么写：
+
+
+⑪写真（バストアップ）：
+
+⑫写真（全身正面）：
+※加工・プリクラ禁止
+
+
+
+这是故意写给自己旗下套皮女主播看的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15346#       发表于 2020-3-12 14:25
+
+
+
+ 本帖最后由 yuandi0120 于 2020-3-12 14:28 编辑 
+
+不如说等到SLEE出来我们可能会看到部分颜值不错的底边会考虑跳槽SLEE，社内更换部门应该毕竟简单的，而底边还坦克的就只能毕业了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+
+但是马上要面临的现实问题是，SLEE到底应该去外野还是v区讨论啊？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15347#       发表于 2020-3-12 14:26
+
+
+
+
+说到底运营有什么救底边的必要吗。
+
+业绩不好的员工还不自己想办法提升业绩，那应该开了重新招个能干的才对。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15348#       发表于 2020-3-12 14:26
+
+
+
+
+ユメノグラフィアはどうなってるの？捨てられた？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15349#       发表于 2020-3-12 14:27
+
+
+
+
+彩虹现在最重要的就是抄作业，蹭热度，播爆，尤其是播爆，田角哥哥就应该要求人均直播时长向杏看齐
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15350#       发表于 2020-3-12 14:29
+
+
+
+
+slee成员啥时能出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我迫不及待想看田角的审美了
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15351#       发表于 2020-3-12 14:32
+
+
+
+
+如果真被要求播成holo那程度，我还是宁愿彩虹爆炸好一点
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15352#       发表于 2020-3-12 14:33
+
+
+
+
+你看到的是兔头和凛bba的审美。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15353#       发表于 2020-3-12 14:53
+
+
+
+
+虽然我不太清楚你们有没有认真看过SLEE这个企划，不过似乎有蛮多误解的，姑且说一下。
+
+
+SLEE所谓的“アイドルYouTuber”，重点仍然是“YouTuber”，官网也说了“YouTubeでのライブ配信や動画投稿活動を中心に活動”
+
+通俗易懂来说，这里的idol和木口的套皮idol主播是一个意思，不是说招来就搞传统偶像那一套，而是最后割韭菜圈钱是idol那种方式，即是官网所说的“関東を拠点に日本全国でのライブやイベント活動”
+
+
+更直白一点，田角想做的是用女网红吃“真人直播市场”的蛋糕，并且他想要用木口的路线去尝试复制一次成功。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15354#       发表于 2020-3-12 14:58
+
+
+
+
+从标题到作者ID到评论都震撼到我
+[https://www.pixiv.net/novel/series/1265041](https://www.pixiv.net/novel/series/1265041)
+<[img src="https://i.loli.net/2020/03/12/iYt8oGkWnz5FHeP.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/03/12/DSIjzt5mZw681dM.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/03/12/jMq8HGi3Lo9nb1g.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| free| + 1|我真的笑了，请大家务必一读|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15355#       发表于 2020-3-12 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 15356#       发表于 2020-3-12 15:00
+
+
+
+
+开摄像头的是滤镜人佃煮海苔男，和我犬山玉姬有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 15357#       发表于 2020-3-12 15:01
+
+
+
+
+那么尊妈篇呢？？？评论区咋都是这些id
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15358#       发表于 2020-3-12 15:02
+
+
+
+
+大家好，我的名字叫Chinese管人观众，年龄保密，心理未成年。
+
+我住在中华，未婚。我每天都要在群里发几十张狗妈图，顺带问大家今天你D了谁，并在问完后称自己是谢拉单推，以证明我是个不忘本的单推粉丝。我不会日语，**仅止于免费梯子。每天晚上刷完NGA就睡。睡前我一定要给OR和Hololive盖楼，然后快进看几分钟熟肉，上了床，马上熟睡。一觉到天亮。我绝不看5ch和S1那种粪坑，冲塔是小鬼才有的行为。群友都说我很正常。
+
+
+复制开头一段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15359#       发表于 2020-3-12 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">婆罗门圣经？
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15360#       发表于 2020-3-12 15:08
+
+
+
+
+活挺好，幸好看的是兔头，没被aoe到真是太好了xp
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15361#       发表于 2020-3-12 15:09
+
+
+
+
+一看就是彩虹男粉写的，因为毕竟没挂在微博转发抽奖是不是。
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 15362#       发表于 2020-3-12 15:10
+
+
+
+
+我服了，这什么弱智文学
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15363#       发表于 2020-3-12 15:10
+
+
+
+
+什么鬼，吉良吉影？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，我想起来当初NGA十二月对线然后迎来了一弦B限，这次NGA对线对来了新衣装<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 15364#       发表于 2020-3-12 15:13
+
+
+
+
+七色太监真尼玛会yygq<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  湊-阿库娅  
+##### 15365#       发表于 2020-3-12 15:17
+
+
+
+
+这文章怎么一股子恶俗味，好奇inm圈，恶俗圈，管人婆罗门，脱脂人士之间的重复率
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15366#       发表于 2020-3-12 15:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太监紫薇可还行，有用么
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15367#       发表于 2020-3-12 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46706529&amp;ptid=1907975" target="_blank">noHentai 发表于 2020-3-12 14:53</a>
+
+虽然我不太清楚你们有没有认真看过SLEE这个企划，不过似乎有蛮多误解的，姑且说一下。
+
+
+SLEE所谓的“アイド ...</blockquote>
+所以颜值高的vtuber转过去毫无成本啊，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而众所周知彩虹v就是以俊男美女出名的（兔头例外）
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15368#       发表于 2020-3-12 15:24
+
+
+
+
+我好像没怎么看懂<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15369#       发表于 2020-3-12 15:27
+
+
+
+
+一开始就知道SLEE就是造网红女主播了，yysy啊，你偶像路线女主播，韩国那随便抓一把不都吊打你们11区，而且看点都是超越语言的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl：大佬们讨论杏星的时候能不能科普下ユメノグラフィア啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个部门太谜了完全不知道啥情况，毕竟拉胯要对拉胯的嘛
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15370#       发表于 2020-3-12 15:27
+
+
+
+
+你楼又在讨论管人粉丝了
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 15371#       发表于 2020-3-12 15:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">支持星川去SLEE双开
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15372#       发表于 2020-3-12 15:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 如果真有和熊猫人皮套长得差不的任任吃瘪女孩，我可以的，我愿意付出一切！
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15373#       发表于 2020-3-12 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46706915&amp;ptid=1907975" target="_blank">yinoh 发表于 2020-3-12 15:27</a>
+
+一开始就知道SLEE就是造网红女主播了，yysy啊，你偶像路线女主播，韩国那随便抓一把不都吊打你们11区，而且 ...</blockquote>
+yysy，拿ickr这个企划和stars比，有被冒犯到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15374#       发表于 2020-3-12 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46706915&amp;ptid=1907975" target="_blank">yinoh 发表于 2020-3-12 15:27</a>
+
+一开始就知道SLEE就是造网红女主播了，yysy啊，你偶像路线女主播，韩国那随便抓一把不都吊打你们11区，而且 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个VR陪酒团吗，因为主活动平台在VRCHAT，k岛斗虫都无视的
+
+也就几个和2434联动的开了**频道玩
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15375#       发表于 2020-3-12 15:49
+
+
+
+
+回楼上2位，那我们还是继续讨论杏星吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15376#       发表于 2020-3-12 15:50
+
+
+
+
+鸣海一周谨慎：
+
+
+删除魂推特小号——&gt;被发现steam账号在线——&gt;steam账号锁了起来——&gt;魂推特账号锁了起来——&gt;魂推特公开
+
+
+看来还元气的，不用担心了，期待复活配信🤗
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15377#       发表于 2020-3-12 15:57
+
+
+
+
+红A哥这句话说的，我是没有想到原来你杏星也配说被冒犯到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
