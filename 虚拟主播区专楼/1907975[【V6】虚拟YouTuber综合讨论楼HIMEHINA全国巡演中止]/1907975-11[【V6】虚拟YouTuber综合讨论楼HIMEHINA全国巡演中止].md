@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 20:01** 
+> ## **本文件最后更新于2020-03-12 22:00** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_lEog0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_B4Z14" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_vntCw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_neL80" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_HTeLo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Ul5FZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_fkqg9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_WPzVU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6997,10 +6997,11 @@ SLEE所谓的“アイドルYouTuber”，重点仍然是“YouTuber”，官网
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1|太草了，笑死我了|
 | 十月鼠| + 1|可恶，不截上我|
 | free| + 1|我真的笑了，请大家务必一读|
 
@@ -7913,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_LXpQ2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_d2sL9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -8522,4 +8523,1341 @@ holo雪山狼人破万都这么艰难。。ark永远滴神！
 
 
 
-                                   
+
+
+-----
+
+####  tiro_finale  
+##### 15439#       发表于 2020-3-12 20:03
+
+
+
+
+雪山人狼做狼的话自带buff，整场最高还是星街
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15440#       发表于 2020-3-12 20:10
+
+
+
+
+还是星街当狼有节目效果
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15441#       发表于 2020-3-12 20:10
+
+
+
+
+夸皇居然开了杂谈
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 15442#       发表于 2020-3-12 20:14
+
+
+
+ 本帖最后由 Sutegoro 于 2020-3-12 20:22 编辑 
+
+本社在隔壁大联动呢，就硬撞。
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15443#       发表于 2020-3-12 20:15
+
+
+
+ 本帖最后由 qdaqd123 于 2020-3-12 20:22 编辑 
+
+【歌&amp;雑談】うたったりはなしたりする【フレン・E・ルスタリオ/にじさんじ】
+[https://www.youtube.com/watch?v=gi-UJO1G5PM](https://www.youtube.com/watch?v=gi-UJO1G5PM)
+
+
+
+PS:是有那么点像豆腐木棉
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 15444#       发表于 2020-3-12 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710035&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-12 19:50</a>
+
+葵皇跟阿露丝联动，2000是不是恶心得不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 阿露丝怎么了，除了知道是帕里皮云都没云过
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 15445#       发表于 2020-3-12 20:23
+
+
+
+
+虾丸这CP恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（六字母贴贴ptsd）
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15446#       发表于 2020-3-12 20:25
+
+
+
+
+现在是杂谈大于ark还是猫奴大于ark呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 15447#       发表于 2020-3-12 20:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710149&amp;ptid=1907975" target="_blank">icecry 发表于 2020-3-12 19:59</a>
+
+露露周六三姐妹马趴联动，周日15，20w纪念...可是你都25w了</blockquote>
+露露当初10w纪念回也是拖了整整两个月才搞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15448#       发表于 2020-3-12 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710374&amp;ptid=1907975" target="_blank">anwen76 发表于 2020-3-12 20:25</a>
+
+现在是杂谈大于ark还是猫奴大于ark呢
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一定是吃到了雪山狼人联动尾巴的余韵
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 15449#       发表于 2020-3-12 20:33
+
+
+
+
+这么多管人养猫，猫的l2d皮和动捕啥时候安排上
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15450#       发表于 2020-3-12 20:33
+
+
+
+
+織田信姫、やめるってよ【鳴神裁】
+[https://youtu.be/Ffq7Yjio4nQ](https://youtu.be/Ffq7Yjio4nQ)
+
+概括：
+
+織田信姫中之人不想干了，Twitter管理和视频台本是其他人在做。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15451#       发表于 2020-3-12 20:39
+
+
+
+
+nH老哥依旧是最大的乐子，只需要大家拿着玲人圣经，在阵前一席话语，nH老哥立马拱手而降，不战自退
+
+
+syl
+
+好了这下常暗又要一边报恩一边学洋文了，cold老哥和中华鸣踊见厨大愤恨。话说自从木口海外进出，樱花妹要舔谁就要学哪边的语言，汉语，英语，日后也一定有学韩语的，让人看着感觉真可怜。所谓的蓝海就是让本国女孩为了把外国大爷侍奉舒服不惜花业余时间学外语吗？怪不得本土厨看到英文中文就会震怒，真是有够好笑的呢！
+
+
+zsyl
+
+4chan这才是妥妥的nga好吧，当初说星生活联动，nga杏楼的独角兽们被害妄想一样的认为是运营要逼迫liver（甚至还有说逼迫白姨肥妹的，不过这俩性格太鲜明了很快就压下去了，然而萝卜子出来联动却很少有人出来带节奏，都在杞忧二期被逼着去联动，所以啊lga的箱推还是真的好笑），这股子打死我也不相信运营，不惜发明各种各样的理论来踩运营的味道还是lga专属。
+
+
+不过话又说回来，会哭的孩子有奶吃，lga革命老区，你楼自诩婆罗门，然而如今会闹的能决定v在中国的行动策略，你楼却只能暗搓搓黑屁，不得不说是求仁得仁
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15452#       发表于 2020-3-12 20:41
+
+
+
+
+まったく関係ないけど、犬山たまき嫌い
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15453#       发表于 2020-3-12 20:44
+
+
+
+ 本帖最后由 stedckk 于 2020-3-12 20:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710290&amp;ptid=1907975" target="_blank">Sutegoro 发表于 2020-3-12 20:15</a>
+
+阿露丝怎么了，除了知道是帕里皮云都没云过</blockquote>
+没怎么了，只是2000好像很讨厌虾丸夫妇。
+
+
+syl
+
+女骑士唱歌真好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15454#       发表于 2020-3-12 20:50
+
+
+
+
+今晚怎么都挺拉胯的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15455#       发表于 2020-3-12 20:51
+
+
+
+
+虽然我没看，但我相信空友们的耳朵不是哑巴
+
+而且免费老哥没发声，应该是听哭了吧
+
+<img src="https://img.saraba1st.com/forum/202003/12/205044em8o4mnzthhqnhrg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>cv1dJTg.jpg</strong> (86.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-12 20:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15456#       发表于 2020-3-12 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710512&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-12 20:39</a>
+
+nH老哥依旧是最大的乐子，只需要大家拿着玲人圣经，在阵前一席话语，nH老哥立马拱手而降，不战自退
+
+
+syl</blockquote>
+这就是我不看女团二期的原因<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15457#       发表于 2020-3-12 20:52
+
+
+
+
+别急，等天皇来结束今晚
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15458#       发表于 2020-3-12 20:54
+
+
+
+ 本帖最后由 winda 于 2020-3-12 21:01 编辑 
+
+金曜日今同低是传统了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">封锁生活把日期感给毁了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15459#       发表于 2020-3-12 20:54
+
+
+
+
+如果是同接反复波动有概率是404的问题，最近经常突然断一次线然后同接掉1000。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15460#       发表于 2020-3-12 20:56
+
+
+
+
+winda老哥无职确定 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15461#       发表于 2020-3-12 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710651&amp;ptid=1907975" target="_blank">winda 发表于 2020-3-12 20:54</a>
+
+金曜日今同低是传统了大叔们都跑去酒会了</blockquote>
+今天木曜日，明天才是金曜日啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 15462#       发表于 2020-3-12 20:58
+
+
+
+
+兄啊明天才是金曜
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15463#       发表于 2020-3-12 20:59
+
+
+
+
+又去对比了下，フレン这上高音的方法还真是差不多
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15464#       发表于 2020-3-12 21:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 熊猫人和亏皇都养猫，所以熊猫人亏皇贴贴，（绝对没有因为其他暗示哦）
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15465#       发表于 2020-3-12 21:03
+
+
+
+
+强行我拱手而降，爱过和已死没有冲突。
+
+
+syl
+
+有bba内味了
+
+3/18発売「SMASH The PAINT!!」収録曲【『Aimless Story』静凛】公式ワンコーラスPV
+[https://www.youtube.com/watch?v=VwXD9ywgnv4](https://www.youtube.com/watch?v=VwXD9ywgnv4)
+
+
+
+
+
+
+
+-----
+
+####  p35535  
+##### 15466#       发表于 2020-3-12 21:04
+
+
+
+
+什么叫会闹，你楼赶紧出去统计统计V版的流量，活跃ID有一百个吗？别说S1，就是NGA又哪里敢代表中国V圈。众所周知中国唯一二次元就是B站，过去数次运营事件无不是B站DD出力，几个论坛遗老窃据胜利果实就是逆潮流而动，是反动派，迟早要吊路灯的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 15467#       发表于 2020-3-12 21:05
+
+
+
+
+不想干也正常，最近失去热情的人很多。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15468#       发表于 2020-3-12 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710534&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-12 20:41</a>
+
+まったく関係ないけど、犬山たまき嫌い</blockquote>
+海苔男也说讨厌鸣神裁，这是不是算梁子结下了，可以宣战了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15469#       发表于 2020-3-12 21:08
+
+
+
+
+倒石闹的轰轰烈烈，结果就是换了一个更无能的对接人。窃据胜利果实前提是你胜利了。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15470#       发表于 2020-3-12 21:09
+
+
+
+
+龙酱怎么只剩五千了
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 15471#       发表于 2020-3-12 21:13
+
+
+
+
+引退不引退不知道，不过频道一个多月没更新了，推特也不发了，mega成天在ktv唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Xiaomi MI 9, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15472#       发表于 2020-3-12 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710804&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-12 21:08</a>
+
+倒石闹的轰轰烈烈，结果就是换了一个更无能的对接人。窃据胜利果实前提是你胜利了。 ...</blockquote>
+b站这里其实发展的挺好吧，几个主力也就节假日纪念回来捞一波，现在不也稳坐龙头的地位，现在连yagoo都偶像化了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15473#       发表于 2020-3-12 21:17
+
+
+
+
+倒石带节奏的是B站，胜利的也是B站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+石确实有点想法，但是口无遮拦这点太致命、就算没京都那事没B站煽风点火也是迟早也要爆的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15474#       发表于 2020-3-12 21:18
+
+
+
+
+要斗同接至少等开播半个小时啊。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">刚开播10分钟就开始论武也太奇怪了。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15475#       发表于 2020-3-12 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710891&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-12 21:14</a>
+
+b站这里其实发展的挺好吧，几个主力也就节假日纪念回来捞一波，现在不也稳坐龙头的地位，现在连yagoo都偶 ...</blockquote>
+据说四期组想搞b限都联系不到对接人，现在稳坐龙头是因为滚雪球
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15476#       发表于 2020-3-12 21:19
+
+
+
+
+你楼不就是一群口无遮拦还一肚子想法的人嘛？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15477#       发表于 2020-3-12 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710512&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-12 20:39</a>
+
+nH老哥依旧是最大的乐子，只需要大家拿着玲人圣经，在阵前一席话语，nH老哥立马拱手而降，不战自退
+
+
+syl</blockquote>
+u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+独角兽说的“我不希望狗狗阿夸被运营强迫去联动木口星，所以木口还是不要有男团”只不过是照顾另一方面子的委婉说法罢了
+
+
+独角兽只是碍于净土宗版规不能直接开口“劳资就是不想看见男人，男人给👴滚” <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15478#       发表于 2020-3-12 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710631&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-12 20:52</a>
+
+这就是我不看女团二期的原因我还能做到理性看待主播，但我可不想理性看待她二期的粉丝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉有被aoe到，杏星出的时候我还搬过立绘去隔壁。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15479#       发表于 2020-3-12 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710921&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-12 21:17</a>
+
+倒石带节奏的是B站，胜利的也是B站
+
+
+石确实有点想法，但是口无遮拦这点太致命、就算没京都那事没B站 ...</blockquote>
+你楼给石招魂的真的够好孝
+
+石的问题我之前在v5就总结过了，本来就是风口上的猪，玩不好的概率翻到很低，更不用说能在风口上把自己玩死也是非常的不易了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15480#       发表于 2020-3-12 21:23
+
+
+
+
+也没闹出拿不到钱的消息，也没有小群口嗨截图，甚至不用b限就能让中国观众转化成木口箱推和舔yagoo的运营粉，这真的算无能吗？
+不惹事就行，反正已经是中华第一箱了，雪球迟早会滚大的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15481#       发表于 2020-3-12 21:24
+
+
+
+
+石先生不是已经用狗妈证明自己的能力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15482#       发表于 2020-3-12 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710929&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-12 21:18</a>
+
+据说四期组想搞b限都联系不到对接人，现在稳坐龙头是因为滚雪球</blockquote>
+石头人算是中介吧，b站把石头人干掉了，现在算b站直营，字幕组散养吧
+
+草台归草台，不犯大错就是好的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15483#       发表于 2020-3-12 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">反正现在中华攻势就是没以前石某出事之前好，顺便狗妈跟石某有没有关系根本没有实锤。
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15484#       发表于 2020-3-12 21:30
+
+
+
+
+以前石是狗妈的运营，现在狗妈都加入经纪公司了应该早把石踹了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15485#       发表于 2020-3-12 21:30
+
+
+
+
+你楼什么时候需要实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15486#       发表于 2020-3-12 21:31
+
+
+
+
+现在木口还有什么特意搞中华攻势的必要吗？偶尔搞搞b限压住之前少主那种节奏就行，在404收益困难的就丢过来多b限一下
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15487#       发表于 2020-3-12 21:31
+
+
+
+
+我怎么记得石先生推特简介里面写的清清楚楚狗妈经纪人，这也叫没有实锤吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15488#       发表于 2020-3-12 21:31
+
+
+
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_WgWWV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15489#       发表于 2020-3-12 21:32
+
+
+
+
+说起不来B限的事
+
+前几天在贴吧看到几条回复表示国外大箱不除，国产V主播永无出头之地
+
+这B站管人场子都还没热完呢，就这么急了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15490#       发表于 2020-3-12 21:33
+
+
+
+
+lzm营业中国限定营业也是石皇主催的啊，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们不服不行。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15491#       发表于 2020-3-12 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710960&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-12 21:21</a>
+
+感觉有被aoe到，杏星出的时候我还搬过立绘去隔壁。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过啊，记得净土宗杏楼V2刚建楼就传来了stars的消息，那时的楼里人也还蛮理性的，怎么现在成这样了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15492#       发表于 2020-3-12 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711080&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-12 21:31</a>
+
+我怎么记得石先生推特简介里面写的清清楚楚狗妈经纪人，这也叫没有实锤吗 ...</blockquote>
+现在还是吗？石某推特地址是？
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 15493#       发表于 2020-3-12 21:35
+
+
+
+
+打不过就要开始排外了，好活
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15494#       发表于 2020-3-12 21:36
+
+
+
+
+自己拉胯还能怪别人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15495#       发表于 2020-3-12 21:36
+
+
+
+
+就该把国外大箱这种给外国人挣钱的企业都给撅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不能是老给日本人送钱啊。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15496#       发表于 2020-3-12 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711117&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-12 21:35</a>
+
+现在还是吗？石某推特地址是？</blockquote>
+那我也没说现在啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">以前做出了成绩不能算证明自己的能力吗
+
+石先生那个推特号都销号了吧，隔壁狗妈楼不是说现在都是靠的字幕组组长吗
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15497#       发表于 2020-3-12 21:40
+
+
+
+
+狗妈火和石有个jb关系，你还不如归功残佬把狗妈拉入sow
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15498#       发表于 2020-3-12 21:40
+
+
+
+
+现在靠得谁不清楚，但不可能靠当免费奴工用的字幕组，这叫上下分明<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15499#       发表于 2020-3-12 21:41
+
+
+
+
+sow........???这东西让我感觉早就凉的透彻了。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 15500#       发表于 2020-3-12 21:42
+
+
+
+
+国V确实看着像起不来啊
+
+杏控制舆论的手段还是挺强的
+
+现在还有几个人记得倒石的时候杏说过每个月公开V在b的收入啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仇绝恨  
+##### 15501#       发表于 2020-3-12 21:42
+
+
+
+
+这和电竞圈韩援压制自己队伍新人成长的说法差不多嘛，还不是日v把热度带起来的？大概是国v看多了把自己给洗脑了。<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15502#       发表于 2020-3-12 21:43
+
+
+
+
+插一楼啊，田角搞真人女主播是有什么根据的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+整出来还得吃彩虹的箱推
+
+企划整得好把我虹女V吸干，整不好还要浪费资源维持着
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15503#       发表于 2020-3-12 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711188&amp;ptid=1907975" target="_blank">儒门正御应无骞 发表于 2020-3-12 21:41</a>
+
+sow........???这东西让我感觉早就凉的透彻了。</blockquote>
+狗妈当时加入sow后，brain大佬帮她升级了live2D，所以现在狗妈的表情包多
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15504#       发表于 2020-3-12 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711105&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-12 21:33</a>
+
+老兄的ID我是认得的，净土宗ayame楼我也是有时会看的，嘛，不拿自己的推当挡箭牌那就没啥，我也没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我也不太清楚，v3起的时候我已经很少去看了。
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15505#       发表于 2020-3-12 21:46
+
+
+
+
+靠组长不是我在隔壁口嗨的吗，别当真啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 15506#       发表于 2020-3-12 21:46
+
+
+
+
+sow还行，角度刁钻
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15507#       发表于 2020-3-12 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711240&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-12 21:45</a>
+狗妈当时加入sow后，brain大佬帮她升级了live2D，所以现在狗妈的表情包多</blockquote>
+这事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15508#       发表于 2020-3-12 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711247&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-12 21:45</a>
+
+我也不太清楚，v3起的时候我已经很少去看了。</blockquote>
+我本来在杏楼V3前段还挺能水的，但十二月对线后也不怎么说话了，以D4为代表的老人不在的不在，扭曲的扭曲，也就发日报的咸鱼还有些亲切感
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 15509#       发表于 2020-3-12 21:54
+
+
+
+
+也就纯良能把起不来怪到外来势力头上
+
+
+b站狂推010，bls斗虫又费尽心机给整了那么一出大戏搏眼球，多少资源灌注到现在日常多少同接？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15510#       发表于 2020-3-12 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711155&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-12 21:38</a>
+
+那我也没说现在啊以前做出了成绩不能算证明自己的能力吗
+
+石先生那个推特号都销号了吧，隔壁狗妈楼 ...</blockquote>
+还是那句话，把偶像狂热期间作出的成绩全部归到自己身上说是贪天之功也不为过。
+
+
+更关键的是，他作为中国的对接方根本没有自己在进行偶像运营的自我觉悟。偶像运营关键是什么？一曰神秘主义，二曰如履薄冰。合起来不该说的时候好好把嘴闭上，该说的时候张开也要当成闭着
+
+
+口嗨用工号，拼命让自己的小鬼给自己戴高帽，还是在一个半公开毫无保密性的qq群，セクハラ发言，公开b限策略造成营业妨害，就他这种废物意识，哪怕真有康子那样的能力又如何呢？他负责的箱根本就活不过三个月。何况他的成绩也就是关注度，钱呢？
+
+
+你楼常常笑话b站净土如何如何革命老区，却没想明白这才是普通粉丝的看法和反应，要是杏那一波不斩马谡，靠什么来收服民心？靠巨魔们嘻嘻哈哈什么都没关系吗？
+
+
+求求你们别给石废物找画面了，狗妈这种玩票性质的他可以做，但企业势的运营想都不要想
+
+
+对了，石先生现在这个状态纯粹辛亏他是外国人，否则萌木是怎么死的呢？
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15511#       发表于 2020-3-12 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46711363&amp;ptid=1907975" target="_blank">cgte030629 发表于 2020-3-12 21:54</a>
+
+也就纯良能把起不来怪到外来势力头上
+
+
+b站狂推010，bls斗虫又费尽心机给整了那么一出大戏搏眼球，多少资源 ...</blockquote>
+010比起他VR的其他人都算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，其他的那成绩才是真没法看
+
+
+
+
+
+                                
