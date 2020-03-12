@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 18:01** 
+> ## **本文件最后更新于2020-03-12 20:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_q3IFs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_S3z7F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_iJ6uL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_lEog0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_B4Z14" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_vntCw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_M0ZRa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_fkqg9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7913,7 +7913,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_DjsCe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_LXpQ2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7972,4 +7972,554 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-                                    
+
+
+-----
+
+####  NBXX  
+##### 15407#       发表于 2020-3-12 18:21
+
+
+
+ 本帖最后由 NBXX 于 2020-3-12 18:30 编辑 
+
+常闇トワ
+
+@tokoyamitowa
+
+みんな迷惑と心配をかけてごめんね。
+
+ただいま
+[https://www.youtube.com/watch?v=vlx18TBUUbQ&amp;feature=youtu.be](https://www.youtube.com/watch?v=vlx18TBUUbQ&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15408#       发表于 2020-3-12 18:24
+
+
+
+
+下一个管人金游是不是动森了，我看懒狗余今天都因为这事发了推，她好像忠实玩家来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 15409#       发表于 2020-3-12 18:25
+
+
+
+
+动森不是那种玩的人巨头入，不玩的人都不知道要干啥的游戏么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15410#       发表于 2020-3-12 18:26
+
+
+
+
+大联动的时候搞突击啊，时间是不是有点不好
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15411#       发表于 2020-3-12 18:32
+
+
+
+
+猜一个故意让同接难看点冷处理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 15412#       发表于 2020-3-12 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这复活直播不开sc怎么能行,踩!
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15413#       发表于 2020-3-12 18:34
+
+
+
+
+原来已经一周了啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15414#       发表于 2020-3-12 18:37
+
+
+
+ 本帖最后由 colodes 于 2020-3-12 18:39 编辑 
+
+内心OS：带薪休息一周真爽
+
+一周涨的粉比モルルーナ还多
+
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 15415#       发表于 2020-3-12 18:37
+
+
+
+ 本帖最后由 落雪无痕 于 2020-3-12 18:38 编辑 
+
+这什么开播时间。。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15416#       发表于 2020-3-12 18:37
+
+
+
+[https://live2.nicovideo.jp/watch/lv324592513](https://live2.nicovideo.jp/watch/lv324592513)
+
+彩菜姐姐7点的nico歌回，要把专辑都唱一遍，围观如何翻车了
+
+
+
+省一楼，据说这位 喜多是にゃわわ 是片雾烈火呀，也来当V了
+[https://www.youtube.com/channel/UC8Lx2RYXV6jOyoCnSIlkbdw](https://www.youtube.com/channel/UC8Lx2RYXV6jOyoCnSIlkbdw)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15417#       发表于 2020-3-12 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46709283&amp;ptid=1907975" target="_blank">free 发表于 2020-03-12 18:37:56</a></blockquote>胖胖火吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15418#       发表于 2020-3-12 18:47
+
+
+
+
+towa这结巴的，好歹也是混NICO生出来的，太拉胯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，顺便towa明天准备虚无麦块
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15419#       发表于 2020-3-12 18:49
+
+
+
+
+towa自己的写的总结（英文版）
+<img src="https://i.loli.net/2020/03/12/3ZjuknPxMmpyRHa.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15420#       发表于 2020-3-12 18:52
+
+
+
+
+但结果来说，不仅无伤渡关，还收割了一波木口海外势的关注
+
+这也在你的计划之中吗，しらかみ！
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15421#       发表于 2020-3-12 18:54
+
+
+
+
+シンガーソングライターの片霧烈火氏がプロデュースするVTuber（バーチャルユーチューバー）喜多是（きたこれ）にゃわわさんが活動を開始。テーマソング「Let’s be FRIENDS.」がYouTubeにて公開されました。喜多是にゃわわさんは、誕生日となる2月22日に正式デビューした、心理カウンセラー志望の個人勢VTuberです。「Let’s be FRIENDS.」の作詞曲や動画構成は、片霧烈火氏が担当。喜多是にゃわわさんは、「おうたと、作詞を一緒にがんばって、この世界に生まれた理由を、心をこめて歌いました。ぜひ聞いてください！」と語りました。
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 15422#       发表于 2020-3-12 18:54
+
+
+
+
+一直好奇，玲人除了白瀬玲以外是不是也在neta时坂玲人？偏执，然后要找的人也（
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15423#       发表于 2020-3-12 18:56
+
+
+
+
+这是好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15424#       发表于 2020-3-12 19:14
+
+
+
+
+片霧烈火 都来当vtuber了，k姐会不会也来玩玩。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15425#       发表于 2020-3-12 19:38
+
+
+
+ 本帖最后由 NBXX 于 2020-3-12 19:48 编辑 
+
+[http://boards.4channel.org/jp/thread/23160702#p23166724](http://boards.4channel.org/jp/thread/23160702#p23166724)
+<img src="https://i.loli.net/2020/03/12/EgbJRr89QXGZtnI.png" referrerpolicy="no-referrer">
+
+[https://www.reddit.com/r/VirtualYoutubers/comments/fhedx2/towas_message_to_englishspeaking_viewers/](https://www.reddit.com/r/VirtualYoutubers/comments/fhedx2/towas_message_to_englishspeaking_viewers/)
+<img src="https://i.loli.net/2020/03/12/nAPBkjgCGErsldo.png" referrerpolicy="no-referrer">
+
+
+两边的评价就和S1和NGA一样（
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 15426#       发表于 2020-3-12 19:44
+
+
+
+
+回家打开斗虫网一看，本间脚下踩着狐龙星船
+
+哭了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 15427#       发表于 2020-3-12 19:45
+
+
+
+
+葵皇最强！葵皇最强！）
+
+
+
+
+
+
+
+-----
+
+####  莉蒂亚丝  
+##### 15428#       发表于 2020-3-12 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46709943&amp;ptid=1907975" target="_blank">poipanchao 发表于 2020-3-12 19:44</a>
+
+回家打开斗虫网一看，本间脚下踩着狐龙星船
+
+哭了</blockquote>
+ARK&gt;&gt;雪山人狼<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15429#       发表于 2020-3-12 19:48
+
+
+
+
+holo雪山狼人破万都这么艰难。。ark永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15430#       发表于 2020-3-12 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">葵皇跟阿露丝联动，2000是不是恶心得不行
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15431#       发表于 2020-3-12 19:50
+
+
+
+
+ルーナちゃん、面白い
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15432#       发表于 2020-3-12 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46710042&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-12 19:50</a>
+
+ルーナちゃん、面白い</blockquote>
+視聴者厳選<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15433#       发表于 2020-3-12 19:51
+
+
+
+
+我只知道星姐直播间弹幕很混沌，确实是火起来了
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15434#       发表于 2020-3-12 19:55
+
+
+
+
+星街这年龄嘛
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15435#       发表于 2020-3-12 19:56
+
+
+
+
+白皮niki没冲烂日本独角兽不给力啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15436#       发表于 2020-3-12 19:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇反超一千多了，果然勾心斗角还得看我狐皇
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 15437#       发表于 2020-3-12 19:59
+
+
+
+
+露露周六三姐妹马趴联动，周日15，20w纪念...可是你都25w了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15438#       发表于 2020-3-12 20:00
+
+
+
+
+船长天哥又去ktv恰独食我佛了
+
+
+
+
+
+                                   

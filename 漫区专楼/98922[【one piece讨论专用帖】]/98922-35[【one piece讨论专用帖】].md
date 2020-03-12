@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-08 10:03** 
+> ## **本文件最后更新于2020-03-12 20:03** 
 
 
 
@@ -19427,6 +19427,25 @@ PH岛那个吃了果实的毒气史莱姆死了后，放在它附近一袋苹果
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GAKI| + 1|+1，强行一个骗人污点一个降智.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -19850,4 +19869,924 @@ PH岛那个吃了果实的毒气史莱姆死了后，放在它附近一袋苹果
 
 
 
-                
+
+
+-----
+
+####  Van夫膜开  
+##### 51992#       发表于 2020-3-8 12:45
+
+
+
+
+感觉御田这个人根本不是尾田想搞出来的。
+
+
+把御田去掉，在回忆里居然意外的流畅
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51993#       发表于 2020-3-8 13:40
+
+
+
+
+话说日和为啥见到索隆整个一二傻子的形象
+
+
+卖萌装傻是小事，直接把自己身份告诉索隆了为啥
+
+
+总不至于说狂死郎告诉他"锦卫门找来的帮手有一个带了三把刀的人"吧
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 51994#       发表于 2020-3-8 13:52
+
+
+
+
+点子非常好，但是输在没有足够的铺垫来缓冲这个转折
+
+打个比方，如果传次郎在之前和其他八侠打闹时生气了，被御田打趣你愤怒的表情看上去很有趣，这一话的愤怒变脸是不是就不太生硬，不是很突兀了呢？
+
+
+
+
+
+
+
+-----
+
+####  先手必胜  
+##### 51995#       发表于 2020-3-8 13:53
+
+
+
+
+一个之前没有任何塑造的背景板突然担当了如此重任，实在很难让人信服
+
+我觉得把九侠的人数砍成三个比较合理，不过大概也是为了御田能顶的人数多一点，更有视觉震撼吧
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 51996#       发表于 2020-3-8 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657189&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-8 13:40</a>
+
+话说日和为啥见到索隆整个一二傻子的形象
+
+
+卖萌装傻是小事，直接把自己身份告诉索隆了为啥</blockquote>
+是比较欠考虑和大意
+
+但人家是真的苦等了20年等来了最后的希望
+
+也不是不能理解
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 51997#       发表于 2020-3-8 14:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实为什么这么讨厌桃之助啊
+
+作为一个孩子我觉得他真的还行了
+
+是因为和娜美罗宾关系好吗
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 51998#       发表于 2020-3-8 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657514&amp;ptid=98922" target="_blank">klzxs 发表于 2020-3-8 14:13</a>
+
+是比较欠考虑和大意
+
+但人家是真的苦等了20年等来了最后的希望
+
+也不是不能理解 ...</blockquote>
+至少先盘几句话吧，，虽然确实是索隆把基拉给砍了
+
+
+索隆抢了基拉的镰刀以后给了日和一个"三把刀？"的内心活动，所以如果狂死郎已经知道草帽一伙来帮忙告诉日和"这几个人你留个心"也有可能
+
+
+不得不说随母，找男人的方法都是一模一样
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 51999#       发表于 2020-3-8 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657189&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-8 13:40</a>
+
+话说日和为啥见到索隆整个一二傻子的形象
+
+
+卖萌装傻是小事，直接把自己身份告诉索隆了为啥</blockquote>
+第一印象像他爹吧（当时索隆是二刀流）？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">外加拿着和一字文被认出
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52000#       发表于 2020-3-8 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657533&amp;ptid=98922" target="_blank">klzxs 发表于 2020-3-8 14:15</a>
+
+其实为什么这么讨厌桃之助啊
+
+作为一个孩子我觉得他真的还行了
+
+是因为和娜美罗宾关系好吗 ...</blockquote>
+说明你对女性还有幻想
+
+
+我就没有，我连玩舰娘带入提督都是一把间宫券甩在舰娘脸上"找你男朋友去别来烦我"
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52001#       发表于 2020-3-8 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657678&amp;ptid=98922" target="_blank">svmkty 发表于 2020-3-8 14:31</a>
+
+第一印象像他爹吧（当时索隆是二刀流）？外加拿着和一字文被认出</blockquote>
+虽然也有道理，但我现在的想法已经是"日和已经认定索隆是她男人了，对夫君怎么撒娇都可以"<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52002#       发表于 2020-3-8 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657533&amp;ptid=98922" target="_blank">klzxs 发表于 2020-3-8 14:15</a>
+
+其实为什么这么讨厌桃之助啊
+
+作为一个孩子我觉得他真的还行了
+
+是因为和娜美罗宾关系好吗 ...</blockquote>
+感觉是之前搞笑剧情塞太多了，包括和这两位女士的互动
+
+说实话未来组过多的插科打诨多少都有些问题，明明之前经历了这样的惨事
+
+以及按WT一贯的尿性和之国最后多半要给这孩子，之前搞笑太过了很容易让人觉得德不配位
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52003#       发表于 2020-3-8 14:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">他当然不配啊 别说他了 他爹都不配 
+
+但他是真正的唯一的希望 没办法
+
+只能希望他能真的闪耀出光芒了
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 52004#       发表于 2020-3-8 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657775&amp;ptid=98922" target="_blank">klzxs 发表于 2020-3-8 14:42</a>
+他当然不配啊 别说他了 他爹都不配 
+
+但他是真正的唯一的希望 没办法
+
+只能希望他能真的闪耀出光芒了 ...</blockquote>
+说到点子上了
+御田出场前桃之助这么臭屁 还能说服自己也许他老爹是个明君 忍就忍下吧
+结果御田这德行彻底不想忍了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">没后续情节的话桃之助也就落个和之国正统继承人的名号吧
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52005#       发表于 2020-3-8 15:00
+
+
+
+
+讲真OP中那么多次救国之后后续展开观感还可以的只有樱花国和阿拉巴斯坦，樱花国还是罕见的把之前的垃圾国王赶跑的剧情，阿拉巴斯坦因为国王父女都让人觉得很安心
+
+其他的就……
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52006#       发表于 2020-3-8 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">桃之助和他爹还是不太一样
+
+他爹不行 是因为他性格和选择 他没有尽到他应尽的责任
+
+桃之助就纯粹是因为他还小 他是办不到什么 但也不会真需要他做什么
+
+他能展现出一点决心和志气就完全足够了（不过最好不要拖后腿
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 52007#       发表于 2020-3-8 16:02
+
+
+
+ 本帖最后由 银翼的维罗西 于 2020-3-8 16:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657189&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-8 13:40</a>
+
+话说日和为啥见到索隆整个一二傻子的形象
+
+
+卖萌装傻是小事，直接把自己身份告诉索隆了为啥</blockquote>
+日和说下了个小赌注，这个时间节点有强大热心的外乡人会不会是桃之助请回来的援兵，可能是尾田想说的就是索隆一脸正义且桃花运强吧
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 52008#       发表于 2020-3-8 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657966&amp;ptid=98922" target="_blank">klzxs 发表于 2020-3-8 15:06</a>
+
+桃之助和他爹还是不太一样
+
+他爹不行 是因为他性格和选择 他没有尽到他应尽的责任
+
+桃之助就纯粹是因 ...</blockquote>
+我挺喜欢桃之助的，在回和之国的旅程中一直在练剑，知道敌人的可怕也不放弃抗争，比之前几个公主要有出息
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52009#       发表于 2020-3-8 16:20
+
+
+
+
+只要不给桃之助安啥龙傲天剧情，这种贱贱的小屁孩形象我还是挺喜欢的
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 52010#       发表于 2020-3-8 17:17
+
+
+
+
+仔细看了这话，终于发现真正得到史诗级强化的，是我joker哒！
+
+桃之助可是和凯多罗杰白胡子都照过面，大场面见得多了，明帝是唯一一个让桃之助单是回忆起来就吓得屁滚尿流的角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是吃了出场太早的亏啊！（振声）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 天下至贱| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  朝仓和美  
+##### 52011#       发表于 2020-3-8 21:37
+
+
+
+
+这也不是一夜白头吧，中间起码隔了一个季度……
+
+—— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 52012#       发表于 2020-3-10 10:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">虽然我觉得不可能  但是我好希望单行本出到这一卷的时候封面就传次郎一个人的两个面相！  
+
+
+
+
+
+
+
+-----
+
+####  狗眼蛋蛋  
+##### 52013#       发表于 2020-3-10 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46678032&amp;ptid=98922" target="_blank">穆 发表于 2020-3-10 10:07</a>
+
+虽然我觉得不可能  但是我好希望单行本出到这一卷的时候封面就传次郎一个人的两个面相！   ...</blockquote>
+这一话会收录在96卷，但96卷封面草稿已经出来了<img src="http://bbsimg.talkop.com/forum/202002/23/171445vv42nug2o3kmn9hx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52014#       发表于 2020-3-10 17:24
+
+
+
+
+红发刀疤的由来实锤了。
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52015#       发表于 2020-3-10 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46682946&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-10 17:24</a>
+红发刀疤的由来实锤了。</blockquote>
+鱼人岛就实锤了吧
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52016#       发表于 2020-3-10 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46682991&amp;ptid=98922" target="_blank">7七麦 发表于 2020-3-10 17:29</a>
+
+鱼人岛就实锤了吧</blockquote>
+第一次漫画看到这个钩爪，以前没注意到。
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52017#       发表于 2020-3-11 01:07
+
+
+
+
+黑胡子这个帽子有点像霍迪琼斯啊
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52018#       发表于 2020-3-11 04:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46683038&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-10 17:35</a>
+
+第一次漫画看到这个钩爪，以前没注意到。</blockquote>
+鱼人岛回忆白胡子的时候有一页画了黑胡子，当时就装备了钩爪
+
+
+所以红发现在头部肉质还是软化的么（精神错乱）
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52019#       发表于 2020-3-12 12:43
+
+
+
+
+974话标题 “前往鬼岛！！”
+
+
+不管这一话内容如何，下一话都要回到现在了
+
+
+按照更3休1回忆篇15话20周也有5个月了
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 52020#       发表于 2020-3-12 18:13
+
+
+
+
+原来回忆篇这么久了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我还觉得缩了好多
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52021#       发表于 2020-3-12 18:28
+
+
+
+
+内鬼是堪十郎！！！确实出乎意料。
+
+
+
+
+
+
+4DA408A0-5E3D-4ADB-90E1-01800508D3B0.jpeg
+(176.38 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-12 18:28 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/182847c2plyd1rk3tkep1g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+1A129B83-5BC6-4948-B8F1-00178464793E.jpeg
+(350.08 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-12 18:28 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/182847guh16vflffb610kc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+0C878324-C3B4-4C77-9B28-DE209951B558.jpeg
+(236.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-12 18:28 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/12/182846y8vb55v8rd5aa5y6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sandrock  
+##### 52022#       发表于 2020-3-12 18:40
+
+
+
+
+之前就分析是堪十郎了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52023#       发表于 2020-3-12 18:46
+
+
+
+
+不是，看情报合着这人是个愉悦犯？这当二五仔的动机真是绝了啊我去
+
+
+
+
+
+
+
+-----
+
+####  西奈？！  
+##### 52024#       发表于 2020-3-12 18:52
+
+
+
+
+这人该不会是大蛇的亲戚来的吧，都这么能演。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52025#       发表于 2020-3-12 18:55
+
+
+
+<blockquote>西奈？！ 发表于 2020-3-12 18:52
+这人该不会是大蛇的亲戚来的吧，都这么能演。</blockquote>
+是亲戚，但这对演戏执着到死了也无所谓并认为那是完善角色的最后一部分，op这么神经病的角色真是少见啊竟然觉得很带感OTZ
+
+
+
+
+
+
+
+-----
+
+####  marymax  
+##### 52026#       发表于 2020-3-12 18:57
+
+
+
+
+三船长终于再次同框了啊！
+
+
+
+
+
+
+
+-----
+
+####  西奈？！  
+##### 52027#       发表于 2020-3-12 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46709455&amp;ptid=98922" target="_blank">angelooo 发表于 2020-3-12 18:55</a>
+
+是亲戚，但这对演戏执着到死了也无所谓并认为那是完善角色的最后一部分，op这么神经病的角色真是少见啊竟 ...</blockquote>
+不一定死了也无所谓，这个人图透里已经表演过了，他可以画一个自己出来挨刀，下油锅也是一样的。
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 52028#       发表于 2020-3-12 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46709176&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-12 18:28</a>
+
+内鬼是堪十郎！！！确实出乎意料。</blockquote>
+三个旱鸭子在海上装比。。。不怕被凯多啐一脸龙口水打下海去？？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52029#       发表于 2020-3-12 19:02
+
+
+
+<blockquote>西奈？！ 发表于 2020-3-12 18:57
+不一定死了也无所谓，这个人图透里已经表演过了，他可以画一个自己出来挨刀，下油锅也是一样的。 ...</blockquote>
+是这样，所以想等汉化出了再确定下他那些台词，虽然根本动机应该还是复仇但感觉比起那个他更享受于自己的演技，喷了
+
+我建议你们两边的卧底最后打一架好了，太high了喂
+
+
+
+
+
+
+
+-----
+
+####  csd  
+##### 52030#       发表于 2020-3-12 19:04
+
+
+
+
+堪十郎不算出乎意料吧，毕竟真要有内奸的话，基本上就是他和小忍之间二选一。而且御田回忆的时候没有提及这人的过去，当时就让我有点怀疑。但是处刑那段把大家都忽悠了，居然还真有这种愿意作戏作到死的人。
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 52031#       发表于 2020-3-12 19:14
+
+
+
+
+最后一页太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 52032#       发表于 2020-3-12 19:31
+
+
+
+
+图透还蛮香的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52033#       发表于 2020-3-12 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46709481&amp;ptid=98922" target="_blank">tyauto 发表于 2020-3-12 18:58</a>
+三个旱鸭子在海上装比。。。不怕被凯多啐一脸龙口水打下海去？？</blockquote>
+凯多惜才，大概。
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 52034#       发表于 2020-3-12 19:49
+
+
+
+
+终于要开打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               
