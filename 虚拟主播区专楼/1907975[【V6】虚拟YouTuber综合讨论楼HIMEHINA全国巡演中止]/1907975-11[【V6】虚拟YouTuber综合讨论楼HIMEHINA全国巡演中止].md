@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 16:01** 
+> ## **本文件最后更新于2020-03-13 18:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_Jd45W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_BbLSk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_osiJ5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_jv4mi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_rdIzh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_MtmdL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_YK8mu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_NDqK8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_u73BI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_PB2so" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Om8u3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_T8Qy0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12778,7 +12778,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_nI9we" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_VyKGC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13812,4 +13812,890 @@ b限ark是什么心态...</blockquote>
 
 
 
-                         
+
+
+-----
+
+####  yuandi0120  
+##### 15729#       发表于 2020-3-13 16:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/160756rdvy6s20vjysvy1v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-klbw3Q5-4kp1ZjT3cS1sz-u0[1].jpg</strong> (188.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 16:07 上传
+
+
+
+
+
+
+
+是这个脸型太大众化了吧233
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15730#       发表于 2020-3-13 16:14
+
+
+
+
+龙粉看到长得像的就说是龙皇嗯蹭热度，龙孝子可真是够好笑的呢^^_
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15731#       发表于 2020-3-13 16:15
+
+
+
+
+这像锤子可可，管粉不要碰瓷了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15732#       发表于 2020-3-13 16:17
+
+
+
+
+恭喜管人粉在舟游pv里刷满了“会长”“龙皇”，比zwb还牛逼
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 15733#       发表于 2020-3-13 16:20
+
+
+
+
+船长收益化没了，这人奥数魔刃都没开过怎么就性得意味了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15734#       发表于 2020-3-13 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那有没有zwb大战管小鬼，二次元饭圈vs二次元饭圈，肯定很精彩吧
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15735#       发表于 2020-3-13 16:20
+
+
+
+
+舟卫兵也有被别人刷屏的一天，咲死我了，天道有轮回
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15736#       发表于 2020-3-13 16:21
+
+
+
+
+手游雪之下雪乃 vs 管人雪之下雪乃，能继承雪之下家财产的二小姐只有一个！
+
+
+
+
+
+
+
+-----
+
+####  仇绝恨  
+##### 15737#       发表于 2020-3-13 16:22
+
+
+
+
+完了，两天后又是一阵腥风血雨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 15738#       发表于 2020-3-13 16:22
+
+
+
+
+就管人粉丝这处于并长期处于初级阶段的饭圈还想肛舟游还是算了吧，打不赢的。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15739#       发表于 2020-3-13 16:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 我刷了大概二十多个吧，
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 15740#       发表于 2020-3-13 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46720961&amp;ptid=1907975" target="_blank">空虚澄璃色 发表于 2020-3-13 16:22</a>
+
+就管人粉丝这处于并长期处于初级阶段的饭圈还想肛舟游还是算了吧，打不赢的。 ...</blockquote>
+不，zwb自己会先打起来的
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15741#       发表于 2020-3-13 16:25
+
+
+
+
+舟卫兵已经提纯好几次了，前两天还有共荣宣言，可可这几个月的粉丝怎么打
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15742#       发表于 2020-3-13 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想看乐子现在就区舟舟舟那里反串啊，
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15743#       发表于 2020-3-13 16:27
+
+
+
+ 本帖最后由 cckuku 于 2020-3-13 16:28 编辑 
+
+明明就是刷二乃和脑瘫许愿的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人粉能别给自己长脸了么？
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 15744#       发表于 2020-3-13 16:27
+
+
+
+
+再说也是二乃先出警，那轮得到管人
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15745#       发表于 2020-3-13 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46721017&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-13 16:26</a>
+
+想看乐子现在就区舟舟舟那里反串啊，</blockquote>
+我也刷了好几条<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 15746#       发表于 2020-3-13 16:28
+
+
+
+
+挺好，证明可可火了，我很欣慰
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15747#       发表于 2020-3-13 16:29
+
+
+
+
+我懂了，等五等分第二季出了，二乃一出场我就去刷龙皇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15748#       发表于 2020-3-13 16:32
+
+
+
+ 本帖最后由 anwen76 于 2020-3-13 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46720984&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-13 16:24</a>
+
+我刷了大概二十多个吧，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15749#       发表于 2020-3-13 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议重学家族相似性
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15750#       发表于 2020-3-13 16:34
+
+
+
+<img src="https://s1.ax1x.com/2020/03/13/8u4ISO.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 15751#       发表于 2020-3-13 16:40
+
+
+
+
+我也想看谁是真的二次元雪之下雪乃
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15752#       发表于 2020-3-13 16:42
+
+
+
+
+在船长这个B博下面看到建议B站开发海外版取代404的，年轻真好啊。。。
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15753#       发表于 2020-3-13 16:43
+
+
+
+
+holo在中国到头了吗？
+
+怎么龙皇在b站才13万粉
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15754#       发表于 2020-3-13 16:44
+
+
+
+
+别404了，能把nico取代了吗
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 15755#       发表于 2020-3-13 16:45
+
+
+
+
+“建议B站开发海外版取代404”≠年轻，说不定是泥潭流窜出去的巨魔🎣呢
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15756#       发表于 2020-3-13 16:45
+
+
+
+
+别急，批站马上就会把谷歌买下来。在买了在买了！
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15757#       发表于 2020-3-13 16:47
+
+
+
+
+按你们这说法，b站没被优土豆摁死真是奇迹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+T台R台都还能苟延残喘那么久呢，b站搞不搞海外版是一回事，搞了就一定biss？
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 15758#       发表于 2020-3-13 16:48
+
+
+
+
+批站怎么连谷歌都买不下来，我充大会员的钱拿去干什么了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15759#       发表于 2020-3-13 16:48
+
+
+
+
+确实，404二次元最多订阅gigguk不过200万，小破站三幻神哪个不把他秒了，acg还是b站比较厉害👍
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 15760#       发表于 2020-3-13 16:50
+
+
+
+
+被桐乃贪了吧   不然这么多大会员的钱加起来不把谷歌微软一窝端了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15761#       发表于 2020-3-13 16:50
+
+
+
+
+我觉得阿批搞好点没准真能橄榄nico<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15762#       发表于 2020-3-13 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 你们在V综还硬钓，舟舟舟下面龙皇的KPI完成了么，就在这钓
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 15763#       发表于 2020-3-13 16:58
+
+
+
+
+这几天没看管人，天天在twitch看樱花妹打lol...感觉也很有意思
+[https://www.twitch.tv/kerupani](https://www.twitch.tv/kerupani)
+
+这位如果出道相较于龙皇会如何？？？
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15764#       发表于 2020-3-13 17:01
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-13 17:13 编辑 
+
+不加入两大公会死路一条，虽然我还没看
+
+原来真的大洋马，有财富密码的话加入公会给点资源就起飞吧
+
+
+syl电车台直播氛围都挺佛系的，这位不一定对偶像和二次元杂交的管圈看得上
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15765#       发表于 2020-3-13 17:04
+
+，
+
+
+ 本帖最后由 colodes 于 2020-3-13 17:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46721477&amp;ptid=1907975" target="_blank">辻君 发表于 2020-3-13 16:58</a>
+
+这几天没看管人，天天在twitch看樱花妹打lol...感觉也很有意思
+[https://www.twitch.tv/kerupani](https://www.twitch.tv/kerupani)
+
+这位如果出 ...</blockquote>
+有点意思，她的肌肉比我壮
+
+而且英语和日语说得都比coco好听
+
+主要观众群竟然是日本，有点意外
+
+<img src="https://img.saraba1st.com/forum/202003/13/171326ne0zes0qiuq8m088.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-13 171106.png</strong> (62.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 17:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15766#       发表于 2020-3-13 17:04
+
+
+
+
+能入虹杏坚持播lol未尝不是一条路，要去其他地方还是算了吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15767#       发表于 2020-3-13 17:05
+
+
+
+
+这可是真 大洋马，不比龙皇个假洋鬼子强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 15768#       发表于 2020-3-13 17:05
+
+
+
+
+应该直接买下holo，holo以后在B站独播
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15769#       发表于 2020-3-13 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer"> 如果田角追求的是这种，那效果还真不错，但要把套皮女主播的观众慢慢转化过来，这个过程容不得一点闪失，稍有不慎就全家爆炸上天
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15770#       发表于 2020-3-13 17:16
+
+
+
+
+LIVE【Vtuber楽曲48時間ノンストップ放送】 #音楽を止めるな 【参加組数100組以上！全270曲以上！？】
+https://www.youtube.com/watch?v=eb4f04jrVso
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15771#       发表于 2020-3-13 17:20
+
+
+
+
+yagoo：套皮能让丑女也有一片天。
+
+
+田角：懂了，现在就让丑女赚钱给美女做嫁妆。
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15772#       发表于 2020-3-13 17:21
+
+
+
+
+【7万人記念🎉】感謝とちょっとしたお知らせがあります【雪城眞尋/にじさんじ】
+[https://www.youtube.com/watch?v=mCjS_ylL6Bc](https://www.youtube.com/watch?v=mCjS_ylL6Bc)
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15773#       发表于 2020-3-13 17:27
+
+
+
+
+别把，我虽然本质功利比，基本只看职业哥，女主播还是看过一点点的，水还是太深了，吹一下lara6683，这种实力的人观看数也就中层管人水平。还是v圈鱼塘温暖人心，啥都不会也可以张嘴要钱
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15774#       发表于 2020-3-13 17:31
+
+
+
+
+【ASMR】9万人ありがと！一緒にこしょこしょ話しよ？【にじさんじ/愛園愛美】
+[https://www.youtube.com/watch?v=PzEEiR_mGLc](https://www.youtube.com/watch?v=PzEEiR_mGLc)
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15775#       发表于 2020-3-13 17:33
+
+
+
+ 本帖最后由 soraku 于 2020-3-13 17:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl
+阿火终于银盾了，<img src="https://p.sda1.dev/0/143284245521a3883941180791efe199/IMG_6D94E04C81C46276E0D300A5E25CCBD2.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15776#       发表于 2020-3-13 17:33
+
+
+
+
+莫名其妙的，这两人以前认识吗？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15777#       发表于 2020-3-13 17:35
+
+
+
+
+kson这种在龙皇出道之前也是小有名气的和这种几小时直播就10几个人说话也差太远了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15778#       发表于 2020-3-13 17:42
+
+
+
+
+龙皇出道第一天就被特了，当时你楼也没啥人高瞻远瞩别人未来可期啊，更何况还没出道的，你楼的预测有一毛钱用？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15779#       发表于 2020-3-13 17:58
+
+
+
+
+不过啊，来S1这段时间只见你们说婆罗门和达利特，那刹帝利、吠舍、首陀罗有没有对应啥<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+syl，不过S1这里倒只是称呼欧美为达利特，记得NGA的虹虫楼曾经在coco没来木口时直球称欧美观众是入侵者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
