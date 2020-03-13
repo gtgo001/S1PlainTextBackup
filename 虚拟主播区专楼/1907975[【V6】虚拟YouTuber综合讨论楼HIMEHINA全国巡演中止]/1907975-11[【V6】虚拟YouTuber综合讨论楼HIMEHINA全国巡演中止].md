@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 18:01** 
+> ## **本文件最后更新于2020-03-13 20:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_jv4mi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_rdIzh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_MtmdL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_oFfno" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_TsyZO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_tpl45" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_NDqK8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_kIs4N" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_PB2so" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_yayu6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_T8Qy0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_aLzB8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12778,7 +12778,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_VyKGC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_YsOyF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14698,4 +14698,501 @@ syl，不过S1这里倒只是称呼欧美为达利特，记得NGA的虹虫楼曾
 
 
 
-                        
+
+
+-----
+
+####  soraku  
+##### 15780#       发表于 2020-3-13 18:04
+
+
+
+
+火星了，刚看见，这波操作是。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15781#       发表于 2020-3-13 18:08
+
+
+
+
+部长4月4号，是虚拟清明节赶尸表演
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15782#       发表于 2020-3-13 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46722464&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-13 17:58</a>
+
+不过啊，来S1这段时间只见你们说婆罗门和达利特，那刹帝利、吠舍、首陀罗有没有对应啥
+
+
+syl，不过S1 ...</blockquote>
+七色太监目光短浅，未能远谋
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15783#       发表于 2020-3-13 18:09
+
+
+
+
+我记得B站不是投资了吗，我依稀记得游戏部那最后一场唐突尬聊的B限<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15784#       发表于 2020-3-13 18:18
+
+
+
+
+reso部大本营发表：中国进出。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15785#       发表于 2020-3-13 18:19
+
+
+
+
+
+鈴原るる调色盘
+
+@lulu_suzuhara
+
+本日の配信は13日の金曜日だよ！
+
+ホラーゲーム祭り！！
+
+
+Steamのホラーゲームに挑戦してるる！！
+
+
+20時半よりッ！！
+
+【事故物件】
+
+
+23時くらい？予定！！
+
+【夜勤事件】
+
+
+1時半くらい？？予定！！
+
+【ダークディセプション】
+
+
+配信をしたいと思います！！
+
+
+
+唐突三连
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15786#       发表于 2020-3-13 18:20
+
+
+
+
+冲国进出越来越像败者宣言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15787#       发表于 2020-3-13 18:21
+
+
+
+
+还真是，没办法了就来这试试运气。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 15788#       发表于 2020-3-13 18:26
+
+
+
+
+本土混不下去来B从最初的的调侃，变得越来越真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15789#       发表于 2020-3-13 18:27
+
+
+
+
+好福我报
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 15790#       发表于 2020-3-13 18:31
+
+
+
+
+冲国进出像败者宣言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹底边怎么不多来阿b走走
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 15791#       发表于 2020-3-13 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46722903&amp;ptid=1907975" target="_blank">sedumaizoonl 发表于 2020-3-13 18:31</a>
+
+冲国进出像败者宣言彩虹底边怎么不多来阿b走走</blockquote>
+彩虹底边(指VR)已经来了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 15792#       发表于 2020-3-13 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46722930&amp;ptid=1907975" target="_blank">rubinliu 发表于 2020-3-13 19:33</a>
+
+彩虹底边(指VR)已经来了</blockquote>
+····也是，比成濑鸣还低
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 15793#       发表于 2020-3-13 18:50
+
+
+
+<img src="https://p.sda1.dev/0/34cd09ebf537f48778ce926735b57c15/IMG_76FB8954550CEE2BB47CD86FD2E3912E.jpeg" referrerpolicy="no-referrer">
+新金游？
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 15794#       发表于 2020-3-13 18:50
+
+
+
+
+今天没有组长（的限定）看了，不开心<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 15795#       发表于 2020-3-13 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46723092&amp;ptid=1907975" target="_blank">sedumaizoonl 发表于 2020-3-13 18:47</a>
+
+····也是，比成濑鸣还低</blockquote>
+VR还是比成濑鸣高好几个地缚灵的，成濑鸣上个月的sc才四位数日元
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15796#       发表于 2020-3-13 19:18
+
+
+
+[https://www.youtube.com/watch?v=iSyVmjWmM5c](https://www.youtube.com/watch?v=iSyVmjWmM5c)
+
+【MV】ETERNAL BLAZE / covered by 道明寺ここあ【水樹奈々】
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15797#       发表于 2020-3-13 19:24
+
+
+
+
+木口就是被打入败者组然后一路杀出重围夺冠？
+
+
+
+
+
+
+
+-----
+
+####  米德  
+##### 15798#       发表于 2020-3-13 19:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">请把冠军奖杯送到木口基地
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15799#       发表于 2020-3-13 19:31
+
+
+
+
+木口今天2个大连动均未突破两万，船酱收益被夺，AZKI被迫48小时卖唱，已是夕阳余晖，很快就要回败者组了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15800#       发表于 2020-3-13 19:32
+
+
+
+
+这v综刷一下更新3楼，ig那个钓鱼楼刷一下更新17楼，meaqua威力恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl:白姨狐假兔威，1.7w同接俯瞰众生<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 15801#       发表于 2020-3-13 19:35
+
+
+
+
+怎么到现在还没有人说一下 最善啓 与 友人H 联动的事
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15802#       发表于 2020-3-13 19:35
+
+
+
+
+我也奇怪，一个提的人都没。
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 15803#       发表于 2020-3-13 19:36
+
+
+
+
+你们在杏专楼说什么
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15804#       发表于 2020-3-13 19:40
+
+
+
+
+你们七色人没有自己的专楼吗？
+
+
+
+
+
+
+
+-----
+
+####  skyhood  
+##### 15805#       发表于 2020-3-13 19:44
+
+
+
+
+我昨天提了一下顺带对hntg发了个情<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">看没人有反应我以为他俩已经开除V籍了所以默默编辑掉了。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15806#       发表于 2020-3-13 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">辣个男人真回来了再说
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15807#       发表于 2020-3-13 20:00
+
+
+
+
+为啥abo同接一直比ars高啊，神秘
+
+
+
+
+
+                       
