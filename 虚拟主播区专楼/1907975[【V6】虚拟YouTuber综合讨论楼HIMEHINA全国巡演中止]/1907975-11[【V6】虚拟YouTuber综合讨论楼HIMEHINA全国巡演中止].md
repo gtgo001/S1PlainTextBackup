@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 22:01** 
+> ## **本文件最后更新于2020-03-14 00:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_Kdrwr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_a1pKG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_UgAJJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_k6d1Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_HpWBO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_SZk3p" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_vsh6E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_F4jjk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_SQb2V" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_as9X2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_t8zip" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_tE8gJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12778,7 +12778,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_n7U42" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_pRjf7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15580,8 +15580,10 @@ syl:白姨狐假兔威，1.7w同接俯瞰众生<img src="https://static.saraba1s
 
 
 
+ 本帖最后由 colodes 于 2020-3-13 22:19 编辑 
 
-KMNZ PREMIERE
+GALAXY / KMNZ #KMNVERSE
+
 [https://youtu.be/qL7F5MDcCQo](https://youtu.be/qL7F5MDcCQo)
 
 
@@ -16401,4 +16403,1052 @@ miko这一个小时唱了啥，错过了呜呜呜
 
 
 
-                    
+
+
+-----
+
+####  qq845629713  
+##### 15877#       发表于 2020-3-13 22:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 楼里男水友有贞操危机了
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 15878#       发表于 2020-3-13 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46723949&amp;ptid=1907975" target="_blank">寒星 发表于 2020-3-13 20:06</a>
+
+什么时候来一个顶点国箱把日本人扫了，不过反正不会是VR</blockquote>
+现在就冰糖一个能打的，还是靠的环锤子圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15879#       发表于 2020-3-13 22:03
+
+
+
+
+holo这边的ARK真有点过气了，本来人就没以前多，直播超过40分钟后同接反而下降了，
+
+
+看打完boss、换地图后会有啥改善<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15880#       发表于 2020-3-13 22:04
+
+
+
+
+决定回家了......
+美帝如此昏乱也没啥忠臣，继续熬下去简直是坐以待毙
+近期就准备回国了......到时候终于可以无时差刷你楼了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15881#       发表于 2020-3-13 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725182&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-13 22:04</a>
+
+决定回家了......
+
+美帝如此昏乱也没啥忠臣，继续熬下去简直是坐以待毙
+
+近期就准备回国了......到时候终于可 ...</blockquote>
+然后回来先隔离十五天？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15882#       发表于 2020-3-13 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">以后就可以在常驻楼友大多数都在的时候看到作文哥的作文了吗
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15883#       发表于 2020-3-13 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725182&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-13 22:04</a>
+ 决定回家了...... 美帝如此昏乱也没啥忠臣，继续熬下去简直是坐以待毙 近期就准备回国了......到时候终于可 ...</blockquote>
+记得隔离14天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl:亏皇同接都8000不到，看来ark不仅不是buff，已经成debuff了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15884#       发表于 2020-3-13 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 机票钱尾巴哥承受的住么，
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 15885#       发表于 2020-3-13 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15886#       发表于 2020-3-13 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">不是龙皇太垃，holo服两周前就该换图开荒了
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15887#       发表于 2020-3-13 22:08
+
+
+
+
+大天使ARK怎么连叶哥ARK都打不过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 15888#       发表于 2020-3-13 22:10
+
+
+
+
+反正动森要来了，ARK可以一边去了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 15889#       发表于 2020-3-13 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁叫你们云直播，我看斗虫楼说是**又bug了，人数来回几百上千的跳
+
+
+
+
+
+
+
+-----
+
+####  windaria  
+##### 15890#       发表于 2020-3-13 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46724710&amp;ptid=1907975" target="_blank">free 发表于 2020-3-13 21:24</a>
+
+我知道啊，就是能不能给个谁唱了什么歌的列表，比如现在和恶魔羊对唱的这位就不认识，唱的啥歌也不知道， ...</blockquote>
+有什么值得关注的来推荐一下
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15891#       发表于 2020-3-13 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46724710&amp;ptid=1907975" target="_blank">free 发表于 2020-03-13 21:24:06</a>
+我知道啊，就是能不能给个谁唱了什么歌的列表，比如现在和恶魔羊对唱的这位就不认识，唱的啥歌也不知道， ...</blockquote>虽然免费天天说彩菜和奶油糖坏话，但姑且给个在做的表<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://docs.google.com/spreadsh ... WDiae_PQ/edit#gid=0](https://docs.google.com/spreadsheets/d/1uW1lzd8Tv10qzbXHgzifxCLPaoI7D1-OQhnWDiae_PQ/edit#gid=0)
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| free| + 1|好！！！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15892#       发表于 2020-3-13 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725215&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-13 22:06</a>
+机票钱尾巴哥承受的住么，</blockquote>
+出波血了毫无办法
+回国其实也没啥空刷泥潭，毕竟还要熬夜上网课
+纽约局势已经糜烂了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15893#       发表于 2020-3-13 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725190&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-13 22:05</a>
+然后回来先隔离十五天？</blockquote>
+隔离两周是没办法的事，甚至想主动定点隔离，否则殃及爸妈我可能要寻短见（真的
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15894#       发表于 2020-3-13 22:24
+
+
+
+
+草，我也想回国了，外国人是真的不当回事，小命要紧啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15895#       发表于 2020-3-13 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725447&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-13 22:23</a>
+
+隔离两周是没办法的事，甚至想主动定点隔离，否则殃及爸妈我可能要寻短见（真的 ...</blockquote>
+那尾巴哥有点惨啊，找个网好点的地方，疫情来了之后我这里网络就不行了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 15896#       发表于 2020-3-13 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725422&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-13 22:22</a>
+
+出波血了毫无办法
+
+回国其实也没啥空刷泥潭，毕竟还要熬夜上网课
+
+纽约局势已经糜烂了 ...</blockquote>
+赶紧去外野专楼详细说说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15897#       发表于 2020-3-13 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725484&amp;ptid=1907975" target="_blank">qw945 发表于 2020-3-13 22:27</a>
+赶紧去外野专楼详细说说</blockquote>
+我记得作文哥大号就是因为聊灯塔国局势的时候被爱讨论结果进去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15898#       发表于 2020-3-13 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725086&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-13 21:55</a>
+
+草 真就接着用三星堆工作室啊233</blockquote>
+准确来说就这一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前的全不是
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15899#       发表于 2020-3-13 22:34
+
+
+
+
+尾哥上个号就是说的太详细了结果下面的人爱讨论献祭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，ark可能大部分人都看腻了吧
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15900#       发表于 2020-3-13 22:35
+
+
+
+
+叶也太肝了吧，应该是虹杏唯一一个在整泰克科技的吧，之前说阿葵8000个小时都玩哪去了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15901#       发表于 2020-3-13 22:39
+
+
+
+
+ark可能大部分人都看腻了（×），没有新活（√）
+
+叶哥这泰克科技搞出来同接就破万了会，证明大家还是喜欢看的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15902#       发表于 2020-3-13 22:44
+
+
+
+
+虽然我特别喜欢黑 彩菜姐姐和azki，不过主要是唱的太菜了，人家搞自己的原创曲还是挺卖力的.......
+
+这48小时连播咪咪都来了，大葵也不来，就不能多去点这种场合刷刷脸吗，囧囧菊想什么呢？
+
+
+
+省一楼，新科娘四代目了是不是不归这楼
+
+
+再省一楼，这是完事了啊
+
+<img src="https://img.saraba1st.com/forum/202003/13/224406on3yza6a7fai9na1.png" referrerpolicy="no-referrer">
+
+
+<strong>41.png</strong> (32.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 22:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 15903#       发表于 2020-3-13 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725571&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-13 22:32</a>
+
+我记得作文哥大号就是因为聊灯塔国局势的时候被爱讨论结果进去了吧 ...</blockquote>
+知道是爱讨论，不知道讨论了啥，那楼太快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15904#       发表于 2020-3-13 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725713&amp;ptid=1907975" target="_blank">free 发表于 2020-03-13 22:44:10</a>
+虽然我特别喜欢黑 彩菜姐姐和azki，不过主要是唱的太菜了，人家搞自己的原创曲还是挺卖力的.......
+
+这48小 ...</blockquote>大葵感觉和az就不是一路人，和彩菜她们三个人互相间关系这样了，大葵还是没和az有过任何联动，可能是学院派瞧不起小唱见吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+或者说底边大乱没大葵也正常，太子不也没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 15905#       发表于 2020-3-13 22:54
+
+
+
+
+虹ark也改成明天打boss了？葵皇乘胜追击？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15906#       发表于 2020-3-13 22:58
+
+
+
+
+反正一边五点开始，一边八点开始，怎么打都不会撞车<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15907#       发表于 2020-3-13 22:58
+
+
+
+
+新科娘那事我已经主动发隔壁B综了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15908#       发表于 2020-3-13 23:02
+
+
+
+
+爱丽丝这房间真是指示厨大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">实际观众应该很多，因为打钱的没几个
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15909#       发表于 2020-3-13 23:06
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-13 23:33 编辑 
+
+我大号是因为楼里有人爱讨论，我自己啥都没说就进去了......
+
+
+详细没什么可说的，美国的反智淋漓尽致
+
+
+
+周二还毫无反应觉得就是小事，地铁上一个口罩都没有，政商艺开始出现捂不住盖子的感染（ie，五边形感染，nba感染，汤姆汉克斯感染）又突然开始盲目恐慌，抢购。
+
+
+
+各级政府疯狂扯皮，纽约市内谣言四起，官方表示没有检测能力，官方表示80%自愈（这个真的草死），官方表示带口罩没用，谣言纽约封城后辟谣，比武汉还刺激。
+
+
+
+与此同时股市肉眼可见的萎缩，可以想象事态糜烂后的反华浪潮。
+
+天天刷新闻，疫情一日千里，国家昏乱又殊无忠臣，百姓麻木不仁，坐地等死，脑中只有“阁下，和这些虫豸在一起，怎么能搞好防疫呢？”
+
+
+
+一周之内我对回国的态度从不可能倒没必要到值得一试到越快越好。
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 贝伦二世| + 1|nb|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  selonng  
+##### 15910#       发表于 2020-3-13 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://ftp.bmp.ovh/imgs/2020/03/6135684bb98d430d.jpg" referrerpolicy="no-referrer">
+<img src="https://ftp.bmp.ovh/imgs/2020/03/4072af2ac0a16364.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15911#       发表于 2020-3-13 23:32
+
+
+
+
+现在这会国内变成全世界最安全的地方了，抓紧回国是对的......
+
+
+大葵和咪咪这种主流音乐界来的人，可能确实和nico唱见不怎么能玩到一起去，咪咪以前天天和那些三次元乐队的朋友一起玩，这次也是借着上tubeout和高坂兄贵和关系才不这么自闭了，大葵现在还是刷脸的场合少了呀，天天关起门当搞笑艺人，啥时候也安排上tubeout一次。
+
+这些来发歌的都有azki频道的扳手...人缘倒是挺广的。
+
+
+听完二代可可亚的来洗洗耳朵吧
+[https://www.youtube.com/watch?v=boV4B9H6IIo](https://www.youtube.com/watch?v=boV4B9H6IIo)
+
+AliA「ムツノハナ」MV
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15912#       发表于 2020-3-13 23:34
+
+
+
+
+美利坚衰退论
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 15913#       发表于 2020-3-13 23:35
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-3-13 23:57 编辑 
+
+你们别又爱讨论把这楼炸了
+
+
+因为最近才又开始看疫情帖子
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15914#       发表于 2020-3-13 23:37
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-13 23:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46726317&amp;ptid=1907975" target="_blank">与天争锋_LZ 发表于 2020-3-13 23:35</a>
+
+你们别又爱讨论把这楼炸了
+
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+放心，言尽于此了，也是之前有人让我说我才嚎两句，真正下定决心的时候也不会来泥潭问办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">不过最近常常在外野看见你诶
+
+
+syl
+
+话说三期不应该啊，怎么只有17000，我还以为三期联动随便上两万呢
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15915#       发表于 2020-3-13 23:41
+
+
+
+
+贴贴！
+
+
+
+
+
+
+QQ截图20200313233718.png
+(70.25 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-13 23:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/234128pk4jbboboars5arl.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15916#       发表于 2020-3-13 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46726391&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-13 23:41</a>
+
+贴贴！</blockquote>
+好团，我刚看hiyoko怎么没发现，虚空加鹅
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15917#       发表于 2020-3-13 23:44
+
+
+
+
+过分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+TIM截图20200314004404.png
+(23.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-13 23:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/234420c1g08n8gppg2pg8i.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15918#       发表于 2020-3-13 23:46
+
+
+
+
+葛尊szd(饭圈饼干
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15919#       发表于 2020-3-13 23:46
+
+
+
+
+。
+
+
+
+
+
+
+ES_3bMOUwAEpJzq.jpeg
+(55.07 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-13 23:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/234638qq422wowo9v8wdw9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15920#       发表于 2020-3-13 23:48
+
+
+
+
+¿
+
+
+
+
+
+
+ES191ewUYAARPS7.jpeg
+(64.62 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-13 23:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/234817cg3vmjd3dgvd98m9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15921#       发表于 2020-3-13 23:53
+
+
+
+
+4ID同学，你为什么突然开始发holo的fanart？
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15922#       发表于 2020-3-13 23:55
+
+
+
+
+粽子好可爱，gachi了
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 15923#       发表于 2020-3-13 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">狐狼这张真不错啊真不错
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15924#       发表于 2020-3-13 23:58
+
+
+
+
+我看🌈楼说安洁也要入ark了？nico生团体即将分崩离析<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
