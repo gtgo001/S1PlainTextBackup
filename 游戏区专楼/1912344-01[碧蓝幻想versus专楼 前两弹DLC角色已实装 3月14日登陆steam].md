@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-05 00:04** 
+> ## **本文件最后更新于2020-03-13 22:01** 
 
 
 
@@ -6617,4 +6617,558 @@ Meno出品，碧蓝幻想VS，BEELZEBUB基础连续技演示
 
 
 
-                                     
+
+
+-----
+
+####  北卡厨王  
+##### 364#       发表于 2020-3-5 01:42
+
+
+
+
+打不过鞭子女怎么办，她有一个远距离快速挥鞭的攻击，如果跳跃接近又会被防空招式打<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 365#       发表于 2020-3-5 01:50
+
+
+
+ 本帖最后由 红魔馆的糖 于 2020-3-5 01:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46620298&amp;ptid=1912344" target="_blank">北卡厨王 发表于 2020-3-5 01:42</a>
+打不过鞭子女怎么办，她有一个远距离快速挥鞭的攻击，如果跳跃接近又会被防空招式打 ...</blockquote>
+试试闪身或者打她的鞭子，鞭子后摇大，两个闪身就能接近她<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">大不了下蹲和她大眼瞪小眼
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北卡厨王| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 366#       发表于 2020-3-5 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46620298&amp;ptid=1912344" target="_blank">北卡厨王 发表于 2020-3-5 01:42</a>
+
+打不过鞭子女怎么办，她有一个远距离快速挥鞭的攻击，如果跳跃接近又会被防空招式打 ...</blockquote>
+这里有个对策视频，不过也不是啥完美对策啦，这对局对面需要思考的地方，对基本功的要求是远高于菲莉的
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北卡厨王| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 367#       发表于 2020-3-7 02:28
+
+
+
+
+三傻的骑马怎么对策，以及大姐有比较好的接近方式么，能靠近她中距离就行<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雨R  
+##### 368#       发表于 2020-3-7 13:04
+
+
+
+
+我有个疑问，我打到hard的娜露梅支线，boss在解放奥义后接了个动画的十字斩还是啥的，像是解放奥义的强化版，玩家可以放这招吗
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 369#       发表于 2020-3-8 20:34
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-8 20:38 编辑 
+
+娜露梅低空214h的连段基本能稳定出了，不过这角色普通技性能太拉跨了，两个形态站轻拳被防都是-1（卡姐+3，古兰+2，夏洛特+2，泽塔+2，汉女+3，Vaseraga+5等等），加帧的普通技只有2L和神乐形态的2m，等于基本普通技是没得持续压制的，我觉得这个普通技性能在这个游戏存活挺困难的。
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 370#         楼主| 发表于 2020-3-8 20:39
+
+
+
+
+在今日举办的《碧蓝幻想》6周年直播活动中，Cygames 公布了《碧蓝幻想Versus》角色通行证的最后一位神秘角色：「佐伊」，并确认其将于 4 月下旬上线，购入特典为《碧蓝幻想》联动特别皮肤。
+
+
+
+
+
+
+
+-----
+
+####  assdfe123  
+##### 371#       发表于 2020-3-8 20:42
+
+
+
+ 本帖最后由 assdfe123 于 2020-3-8 20:43 编辑 
+
+2个月就把DLC出完了，等等党永不服输
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 372#       发表于 2020-3-8 20:49
+
+
+
+
+按ARC的作风，姬塔应该不会是古兰换皮吧<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wyy123  
+##### 373#       发表于 2020-3-8 21:08
+
+
+
+<blockquote>assdfe123 发表于 2020-3-8 20:42
+2个月就把DLC出完了，等等党永不服输</blockquote>
+这只是角色机票1，还有角色机票2，角色机票3呢
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 374#       发表于 2020-3-9 00:28
+
+
+
+
+后面三个角色都有兴趣，感觉练不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 375#       发表于 2020-3-9 00:30
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-9 00:44 编辑 
+
+放弃娜露梅了，妈的真的打起来束手束脚，玩不来。
+
+
+藤村「このゲームで弱いのはローアインバザラガだけ　ゼタは弱くない」
+
+不过藤村说这游戏弱的只有三傻和madao，泽塔不弱
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 376#       发表于 2020-3-9 01:38
+
+
+
+ 本帖最后由 红魔馆的糖 于 2020-3-9 01:40 编辑 
+
+昨天打大厅碰到个sss级的三傻，把我干晕了，压到板边就骑马，版中就吃药，坐在那里十几连胜没人挑战。打这角色感觉很吃对策。虽然我是杂鱼一个，以前碰到ss段位的也不至于还不了手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 377#       发表于 2020-3-9 03:14
+
+
+
+
+谁强谁弱看使用率就一目了然了，等到比赛的时候就是最老实的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  loli之友  
+##### 378#       发表于 2020-3-9 04:03
+
+
+
+
+大脚妹我要用起来啊！
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  风鸣弦十郎  
+##### 379#       发表于 2020-3-9 06:50
+
+
+
+
+有一说一 看大食怪摸基塔奶子的时候 
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 380#       发表于 2020-3-9 18:55
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-9 19:11 编辑 
+
+分享一下几个职业哥的tier list。
+
+文字版的是go1排的，后面几个打龙珠的不认识。不过都说不到ss rank 角色性能没啥意义。<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+GBVSキャラランク
+
+
+S:カタリナ 卡姐、グラン 古兰、ランスロット 兰斯洛特
+
+A:シャル 夏洛特、フェリ 菲莉、ファスティバ 汉女、メーテラ 大姐
+
+B:ゼタ 泽塔、パーシヴァル 炎帝
+
+C:バザラガ madao、ローアイン 三傻
+
+
+兰斯洛特是最强角
+
+順番関係無し
+
+最強選べと言われたらランスロット 
+
+僕はカタリナランスロット二枚持ちでやります！
+
+<img src="https://static.saraba1st.com/image/hrline/1.gif" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/mw690/6baa557agy1gcnvc2ci4dj20mq0lqqeo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 381#       发表于 2020-3-9 18:58
+
+
+
+ 本帖最后由 红魔馆的糖 于 2020-3-9 19:00 编辑 
+
+在高手眼里大姐和矮子也就中游么
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 382#       发表于 2020-3-9 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46672041&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-3-9 18:58</a>
+
+在高手眼里大姐也就中游么</blockquote>
+目前没找到把大姐排第一梯队的，把夏洛特排第一梯队的基本也没有。目前公认最强角应该就兰斯，然后卡姐古兰菲莉那些。
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 383#       发表于 2020-3-10 08:25
+
+
+
+
+ナルメア:私は強い、誰よりも<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 384#       发表于 2020-3-10 13:10
+
+
+
+
+牛姐这么弱吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Errey  
+##### 385#       发表于 2020-3-10 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46680017&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-03-10 13:10:13</a>
+牛姐这么弱吗</blockquote>亏帧狂，没办法的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 386#       发表于 2020-3-10 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46680017&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-10 13:10</a>
+牛姐这么弱吗</blockquote>
+应该也没有后面那几个排的那么弱
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Wenber  
+##### 387#       发表于 2020-3-10 17:34
+
+
+
+
+卡姐的机体特点是不是有点像3.3的春丽  什么立回 相性好 实用必杀什么的，看b站一些比赛街霸选手转的使她的比例最高可能有点共通吧。
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 388#       发表于 2020-3-10 17:46
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-10 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46683029&amp;ptid=1912344" target="_blank">Wenber 发表于 2020-3-10 17:34</a>
+
+卡姐的机体特点是不是有点像3.3的春丽  什么立回 相性好 实用必杀什么的，看b站一些比赛街霸选手转的使她的 ...</blockquote>
+主要是近身中攻击被防是加帧的，把这个砍了强度也就下去了，然后就是2m和5h打差合能力很强。相性的话，只有打兰斯和菲莉不利，其他都至少55开
+
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  寺川愛美  
+##### 389#       发表于 2020-3-10 17:50
+
+
+
+
+xian天天只說蘭斯洛特容易不說蘭斯洛特強，這老小子dada滴壞<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+dada被屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  大叶饺子  
+##### 390#       发表于 2020-3-10 19:27
+
+
+
+ 本帖最后由 大叶饺子 于 2020-3-10 19:40 编辑 
+<blockquote>Wenber 发表于 2020-3-10 17:34
+卡姐的机体特点是不是有点像3.3的春丽  什么立回 相性好 实用必杀什么的，看b站一些比赛街霸选手转的使她的 ...</blockquote>
+
+其实龙珠众也是卡姐多，go1，分离器，sonicfox。。倒是两大性能狗藤村跟M都是选古兰
+
+
+
+我现在特别想看第一囧尼OMITO对第一JIN分离器
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 391#       发表于 2020-3-13 21:16
+
+
+
+
+今晚11点steam上线？
+
+
+
+
+
+                                    
