@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 12:01** 
+> ## **本文件最后更新于2020-03-13 14:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_wPV2L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_Ry36J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_vIqQ9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_vVnpi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_V7Zdr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_dqkq1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_o7uHM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_NSFiM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_bFyqk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_b6wrc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_XGB7d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Kb4D7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12630,11 +12630,729 @@ title card最早出现就在无声电影里，在新浪潮时期很多人也会�
 
 
 
+ 本帖最后由 colodes 于 2020-3-13 12:02 编辑 
 
+同接上不去，收益被收回
 🎉欢迎木口重回二线🎉
 
 
 
 
 
-                           
+
+
+-----
+
+####  バーチャルS1er  
+##### 15664#       发表于 2020-3-13 12:06
+
+
+
+
+holo这事都见怪不怪了
+
+突然想到如果海苔男的油土鳖收益化被收回会怎么样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15665#       发表于 2020-3-13 12:07
+
+
+
+ 本帖最后由 cckuku 于 2020-3-13 12:09 编辑 
+
+别上不去，明晚木口ark十窗统治hiyoko好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15666#       发表于 2020-3-13 12:07
+
+
+
+
+同接哪里上不去了，看不起我龙皇天天2w棒了么，你虹可没人做得到啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15667#       发表于 2020-3-13 12:08
+
+
+
+
+谁的没了？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15668#       发表于 2020-3-13 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">午休时间能听到阿喵喵的声音真好啊，感觉浑身充满了干劲
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 15669#       发表于 2020-3-13 12:08
+
+
+
+
+三月是彩虹吹响反攻的号角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15670#       发表于 2020-3-13 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 和沉迷同接冠军、社内地位这种无聊东西的你们不一样，在阿喵喵身上我找到了纯粹的乐趣，
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15671#       发表于 2020-3-13 12:14
+
+
+
+
+今日の夜21時から配信スタート！
+
+楠栞桜ちゃん(
+
+@Sio_Kusunoki
+
+)と一緒に #雀魂 するよ😊❤️❤️❤️！！
+
+みんなも一緒に卓を囲んじゃおう！
+
+楽しみなんだ～！！！！
+
+[https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
+
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_BRsOH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15672#       发表于 2020-3-13 12:17
+
+
+
+
+mugi  13点有b限，楼里的虹人去捧个场子吧。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15673#       发表于 2020-3-13 12:20
+
+
+
+
+我要去把kksk，理解理解，上手这几个词轮着发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 15674#       发表于 2020-3-13 12:22
+
+
+
+
+直播间怕不是要被杏仁给冲了哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（这是什么图，仙境嘛
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15675#       发表于 2020-3-13 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 当然是带着aqua的牌子刷屏男友打电话啦
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 15676#       发表于 2020-3-13 12:23
+
+
+
+
+今晚holo连续三场B限，明天还有PP天使，大家捧个场啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15677#       发表于 2020-3-13 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46717939&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-13 12:22</a>
+
+当然是带着aqua的牌子刷屏男友打电话啦</blockquote>
+惊人的想法。<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15678#       发表于 2020-3-13 12:43
+
+
+
+
+鹰宫来B的时候holo也会这么欢迎吧，咱虹人受不了这个气
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15679#       发表于 2020-3-13 12:48
+
+
+
+
+井皇拉胯的二期箱又少一人，我看干脆解散吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">警花我还挺喜欢她声音的
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 15680#       发表于 2020-3-13 12:49
+
+
+
+
+麦麦B限ARK……头好痛……
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 15681#       发表于 2020-3-13 12:50
+
+
+
+
+b限ark是什么心态...
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15682#       发表于 2020-3-13 12:54
+
+
+
+
+【いちから 学生インターン募集！】
+
+
+にじさんじコンテンツの品質管理を担当する学生インターンを募集いたします！
+
+プロフィールを記載の上、ぜひご応募ください！
+[https://t.co/1YVH0FzIc8?amp=1](https://t.co/1YVH0FzIc8?amp=1)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15683#       发表于 2020-3-13 12:55
+
+
+
+
+狼性
+
+看来七个逸不剩下多少了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15684#       发表于 2020-3-13 12:57
+
+
+
+[https://twitter.com/AkatsukiChiaki_/status/1238322836013371393](https://twitter.com/AkatsukiChiaki_/status/1238322836013371393)
+
+<img src="https://img.saraba1st.com/forum/202003/13/125749tffj6n3vb5fngzwg.png" referrerpolicy="no-referrer">
+
+
+<strong>退.png</strong> (21.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 12:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15685#       发表于 2020-3-13 13:00
+
+
+
+
+巨魔一点，有没有退了井皇箱加入mea箱的说法
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| soraku| + 1|请务必|
+| aisakahammer| + 2|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 15686#       发表于 2020-3-13 13:01
+
+
+
+
+原来**的问题不用靠洋人也能搞定啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15687#       发表于 2020-3-13 13:03
+
+
+
+
+警花是真的工作忙不过来而且素人到想不好直播内容才不干了，转生可能性不大<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 15688#       发表于 2020-3-13 13:22
+
+
+
+
+润姨上个id简介带了ins链接，以为去掉链接再改id就搜不到了。还好tc只用两个id播<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15689#       发表于 2020-3-13 13:27
+
+
+
+
+阿火的B站直播间涉嫌血腥暴力被警告了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15690#       发表于 2020-3-13 13:31
+
+
+
+
+麦麦我就看了一会死了几次了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15691#       发表于 2020-3-13 13:36
+
+
+
+
+麦麦B限热度和桃皇打得不可开交<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15692#       发表于 2020-3-13 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46718683&amp;ptid=1907975" target="_blank">anwen76 发表于 2020-3-13 13:27</a>
+
+阿火的B站直播间涉嫌血腥暴力被警告了</blockquote>
+只狼都不能播了？<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15693#       发表于 2020-3-13 13:36
+
+
+
+
+twitterId的变更履历可以用 [https://idtwi.com](https://idtwi.com) 看
+
+<img src="https://img.saraba1st.com/forum/202003/13/133647vv85bmlzc985v5hl.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-13 133551.png</strong> (43.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 13:36 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 15694#       发表于 2020-3-13 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46718414&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-13 00:00</a>
+
+巨魔一点，有没有退了井皇箱加入mea箱的说法</blockquote>
+想太多了
+
+mea箱都是mea的熟人
+
+警花肯定不是
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15695#       发表于 2020-3-13 13:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iTrumpet  
+##### 15696#       发表于 2020-3-13 13:48
+
+
+
+
+是只有批站破事这么多么
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15697#       发表于 2020-3-13 13:51
+
+
+
+
+要么是观众有问题，要么就是超管看不惯杏人呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15698#       发表于 2020-3-13 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46718337&amp;ptid=1907975" target="_blank">qdaqd123 发表于 2020-3-13 12:54</a>
+
+【いちから 学生インターン募集！】
+
+
+にじさんじコンテンツの品質管理を担当する学生インターンを募集いた ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+令和元年10月1日（火曜日）から東京都の最低賃金（時間額）が1,013円に改正されます。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15699#       发表于 2020-3-13 13:55
+
+
+
+
+只狼从发售开始在b站就是要求关闭血腥效果的，大部分被警告后都是组和v商议后要么关闭血腥要么不在b站转。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15700#       发表于 2020-3-13 13:56
+
+
+
+
+不过好像很多管人直播的时候血都关了的吧，至少大亏哥是关的，跟本人沟通了不愿意关，怎么说呢，说明不在乎吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨白君  
+##### 15701#       发表于 2020-3-13 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这规定不是国内全平台的么  我记得刚出时候我在斗鱼看就是禁止的啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15702#       发表于 2020-3-13 14:00
+
+
+
+
+宁死不吃B站屎，好！我去贡献个同接
+
+
+
+
+
+                          
