@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 14:01** 
+> ## **本文件最后更新于2020-03-13 16:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_vVnpi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_V7Zdr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_dqkq1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_Jd45W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_BbLSk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_osiJ5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_NSFiM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_YK8mu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_b6wrc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_u73BI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Kb4D7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Om8u3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12778,7 +12778,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_BRsOH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_nI9we" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13355,4 +13355,461 @@ mea箱都是mea的熟人
 
 
 
-                          
+
+
+-----
+
+####  バーチャルS1er  
+##### 15703#       发表于 2020-3-13 14:04
+
+
+
+
+一开始就关的话还好，播了一半突然因为B站就关了流血那油土鳖观众就要不爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15704#       发表于 2020-3-13 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46718633&amp;ptid=1907975" target="_blank">mmbk 发表于 2020-3-13 13:22</a>
+
+润姨上个id简介带了ins链接，以为去掉链接再改id就搜不到了。还好tc只用两个id播 ...</blockquote>
+还好我关注了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 15705#       发表于 2020-3-13 14:05
+
+
+
+
+屁事还挺多<img src="https://p.sda1.dev/0/363849985d7c269a61f07a5bea9099fc/IMG_0D9228A2341FF4ABA870CE35B27519C9.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15706#       发表于 2020-3-13 14:10
+
+
+
+
+庙小妖风大<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15707#       发表于 2020-3-13 14:13
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-13 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46718994&amp;ptid=1907975" target="_blank">noHentai 发表于 2020-3-13 13:54</a>
+
+令和元年10月1日（火曜日）から東京都の最低賃金（時間額）が1,013円に改正されます。 ...</blockquote>
+学历不问，经验0欢迎，还招实习生，坐办公室，这种岗位你也不能指望ickr开多高的待遇<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+倒不如说用这种门槛招自家商品的品控，ickr要压缩成本也不是这么压缩的
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 15708#       发表于 2020-3-13 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46719134&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-13 14:04</a>
+
+还好我关注了</blockquote>
+ptr跟宁有仇吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15709#       发表于 2020-3-13 14:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 招到不务正业，每天想着炮liver的男人就有趣了，阿喵喵要小心啊！
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 15710#       发表于 2020-3-13 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46719126&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-13 14:04</a>
+
+一开始就关的话还好，播了一半突然因为B站就关了流血那油土鳖观众就要不爽了 ...</blockquote>
+那条动态是2月6号的，也就是早说过了
+
+
+
+
+
+
+
+-----
+
+####  losm  
+##### 15711#       发表于 2020-3-13 14:19
+
+
+
+
+船长收益化没了，被**认为是ghs，4个月以来无论播什么都是黄标
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 15712#       发表于 2020-3-13 14:20
+
+
+
+
+卧槽，油 管这真是biss
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15713#       发表于 2020-3-13 14:20
+
+
+
+
+话说回来小夜的收益化回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15714#       发表于 2020-3-13 14:22
+
+
+
+
+“いつも応援してくださる皆様へ。
+
+
+宝鐘マリンですが、収益化剥奪されました。
+
+もしかして本当に１７歳だと思われちゃったのかな汗滴符号と思いましたが、性的コンテンツだから剥奪されたようです。（それは、そう）
+
+
+ちなみに、４カ月前くらいから、
+
+何の配信をしても１００％黄色になってました。”[https://twitter.com/houshoumarine/status/1238347617572016128](https://twitter.com/houshoumarine/status/1238347617572016128)
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15715#       发表于 2020-3-13 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46719289&amp;ptid=1907975" target="_blank">mmbk 发表于 2020-3-13 14:17</a>
+
+ptr跟宁有仇吗 みけこ名字都挂着，这不明摆着当鸵鸟呢。要是五个id一秒一次轮询tc api，怕是直接 ...</blockquote>
+她上一个ID就没有<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">要素了，就一个月亮符号
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15716#       发表于 2020-3-13 14:24
+
+
+
+
+ghs还真不知道该怎么办了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，船姨你克制一点吧。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15717#       发表于 2020-3-13 14:29
+
+
+
+
+这份工作还真是辛苦<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15718#       发表于 2020-3-13 14:29
+
+
+
+
+连续4个月都是黄标也不当回事，该说是心大，还是天然呢
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15719#       发表于 2020-3-13 14:42
+
+
+
+
+这个壶男你和我说是在用脚玩？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 15720#       发表于 2020-3-13 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46719359&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-13 14:23</a>
+
+她上一个ID就没有要素了，就一个月亮符号</blockquote>
+然而简介里有ins链接，这次链接也没了符号也改了，就反复横跳<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想弄录播都不容易
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 15721#       发表于 2020-3-13 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46718299&amp;ptid=1907975" target="_blank">pin_on 发表于 2020-3-13 12:50</a>
+b限ark是什么心态...</blockquote>
+大概是叫点来bw现场直播pubg的那个staff移籍到彩虹了吧
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 15722#       发表于 2020-3-13 14:55
+
+
+
+
+舟游新六星和桐生可可长一个样，实质联动了？
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 15723#       发表于 2020-3-13 14:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在B限玩ARK不就等于以前B限玩MC吗，啥火播啥啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15724#       发表于 2020-3-13 15:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/150643lb1818m6o6v91n2f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200313150628.jpg</strong> (9.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 15:06 上传
+
+
+
+
+
+
+
+正义的抨击
+
+
+
+
+
+
+
+-----
+
+####  3353764798  
+##### 15725#       发表于 2020-3-13 15:07
+
+
+
+
+实质yj蹭holo的热度  <img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15726#       发表于 2020-3-13 15:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">漫区说碰瓷二乃，管人粉说碰瓷龙皇，yj还能不能好了！
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15727#       发表于 2020-3-13 15:17
+
+
+
+
+想舔はあちゃま满是臭脚汗的鼠标
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15728#       发表于 2020-3-13 15:26
+
+
+
+
+虚拟杨幂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
