@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 02:01** 
+> ## **本文件最后更新于2020-03-13 10:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_gOme2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_y6pSd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Wz5u6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_X9m5Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_oYkkN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_mMlTk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_ecSBU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_j333O" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_XuIBH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_uL2Pl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_y2Wnw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Qa46y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11691,4 +11691,427 @@ cod这游戏直播效果还挺好
 
 
 
-                             
+
+
+-----
+
+####  framita  
+##### 15615#       发表于 2020-3-13 02:40
+
+
+
+
+能不能劝她们到我家里来治疗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15616#       发表于 2020-3-13 02:42
+
+
+
+
+你可以先试着当个教主或者老中医啥的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15617#       发表于 2020-3-13 03:04
+
+
+
+
+虚拟人当然看虚拟医生，小茄子大胜利
+
+
+
+
+
+
+
+-----
+
+####  skyhood  
+##### 15618#       发表于 2020-3-13 03:06
+
+
+
+ 本帖最后由 skyhood 于 2020-3-13 09:29 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15619#       发表于 2020-3-13 03:14
+
+
+
+
+看了狼人最新的家族会议，不愧是以前就被人喊妈妈的人。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15620#       发表于 2020-3-13 04:06
+
+
+
+ 本帖最后由 肚子疼了 于 2020-3-13 04:11 编辑 
+
+跑去净土坛，看到个锁了的帖子，点进去一看笑死我了
+[https://bbs.nga.cn/read.php?tid=20777347](https://bbs.nga.cn/read.php?tid=20777347)
+
+8楼的图，31楼的图，32楼的视频都太经典了
+
+抢救一下欢乐之源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/041053x3l8lx3qfaxci2l8.png" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-k7fuKkT3cSnf-6i.png</strong> (19.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 04:10 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/041109z1dl71rjnvk6l4rw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-dcioZpT3cSu0-y2.jpg.medium.jpg</strong> (107.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 04:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 15621#       发表于 2020-3-13 04:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个人在ff14版发过不少从毫无意义的角度去杠一些毫无意义的问题的帖子，我已经养成看到这个人发帖就自动关掉的习惯了
+
+没想到在v版会发这种看起来像是用人类大脑思考过后写出来的贴，是vtb把鬼变成人
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15622#       发表于 2020-3-13 05:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/051126g39zdv9zkme9ke21.jpg" referrerpolicy="no-referrer">
+
+
+<strong>subaru.jpg</strong> (115.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 05:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  雷修特  
+##### 15623#       发表于 2020-3-13 05:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">A酱肝了一晚上的预告做得真不错，明天能不能上10W同接
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15624#       发表于 2020-3-13 05:28
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 15625#       发表于 2020-3-13 05:31
+
+
+
+
+翻了towa前世唱歌还蛮好听的游戏也可以，怎么现在这么拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  仇绝恨  
+##### 15626#       发表于 2020-3-13 05:33
+
+
+
+ 本帖最后由 仇绝恨 于 2020-3-13 05:34 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/053243iye3a9kewwfaxkxy.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200313053047.png</strong> (577.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 05:32 上传
+
+
+
+
+
+真有感觉，顺带问下这种pv是什么风格呀，满满的eva味
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15627#       发表于 2020-3-13 05:34
+
+
+
+ 本帖最后由 qdaqd123 于 2020-3-13 05:37 编辑 
+
+VORACITY - MYTH&amp;ROID/covered by ココツキ【歌ってみた】アニメ「オーバーロードⅢ」オープニングテーマ[https://www.youtube.com/watch?v=ZbHh_SEVY5k](https://www.youtube.com/watch?v=ZbHh_SEVY5k)
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 15628#       发表于 2020-3-13 07:31
+
+
+
+<blockquote>the_cook 发表于 2020-3-12 21:42
+国V确实看着像起不来啊
+
+杏控制舆论的手段还是挺强的
+
+现在还有几个人记得倒石的时候杏说过每个月公开V在b的 ...</blockquote>
+我在当时就提过哪怕公开收入这点做不到也应该把监督权给保下来，并且在结果公告下面给质疑者辩护了很久，不过箱推不管这些，还有直接说三字母粉不安好心的，那我也没办法了
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15629#       发表于 2020-3-13 08:02
+
+
+
+
+对收入有监督权的只有税务局，管人观众哪有这个权利，而且因为账务问题，不会有哪个网站会公布旗下主播收入的吧？现在就一个金瓜子营收网站就能让贴吧像被醋淹了似的，要真公布出来简直不敢画面多美
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15630#       发表于 2020-3-13 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46714642&amp;ptid=1907975" target="_blank">仇绝恨 发表于 2020-3-13 05:33</a>
+真有感觉，顺带问下这种pv是什么风格呀，满满的eva味</blockquote>
+title card最早出现就在无声电影里，在新浪潮时期很多人也会这么用，甚至像戈达尔一样会自创字体。
+对庵野秀明产生影响的是东宝的怪兽电影里时常出现的大文字块，但像这种有意识频繁使用大量衬线字体的确实少见，文字编排也有自己风格。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15631#       发表于 2020-3-13 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46714890&amp;ptid=1907975" target="_blank">ddy2811 发表于 2020-03-13 07:31:26</a>
+我在当时就提过哪怕公开收入这点做不到也应该把监督权给保下来，并且在结果公告下面给质疑者辩护了很久， ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候观众对主播收入有监督权了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 15632#       发表于 2020-3-13 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">女骑士真是太好用了
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 15633#       发表于 2020-3-13 09:10
+
+
+
+<blockquote>JY要塞 发表于 2020-3-13 08:31
+什么时候观众对主播收入有监督权了
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+我记得当时有些字幕组会做每月报告的，就算太详细的报告不能做如果可以动态知会一下也行，再说了holo自己说的话直接不认账了结果就此提两句还要被人打成小鬼乃至阴谋论实在有点说不过去吧
+
+
+
+
+
+
+
+-----
+
+####  仇绝恨  
+##### 15634#       发表于 2020-3-13 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46715208&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-13 08:31</a>
+
+title card最早出现就在无声电影里，在新浪潮时期很多人也会这么用，甚至像戈达尔一样会自创字体。
+
+对庵 ...</blockquote>
+以前并不了解，谢谢~
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15635#       发表于 2020-3-13 09:14
+
+
+
+
+当时承诺公开是为了平民愤，现在你去提这回事怕是要被民追着打
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                            
