@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 10:01** 
+> ## **本文件最后更新于2020-03-13 12:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_X9m5Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_oYkkN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_mMlTk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_wPV2L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_Ry36J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_vIqQ9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_j333O" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_o7uHM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_uL2Pl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_bFyqk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9432,7 +9432,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Qa46y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_XGB7d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12114,4 +12114,527 @@ title card最早出现就在无声电影里，在新浪潮时期很多人也会�
 
 
 
-                            
+
+
+-----
+
+####  ddy2811  
+##### 15636#       发表于 2020-3-13 10:12
+
+
+
+<blockquote>暗心舞踏 发表于 2020-3-13 09:14
+当时承诺公开是为了平民愤，现在你去提这回事怕是要被民追着打
+
+
+  -- 来自 有消息提醒的 Stage1官方 Androi ...</blockquote>
+但7月提的公开8-9月就已经是那个情况了，现在我觉得应该也不会完全一边倒，毕竟字幕组出了几次事，运营也有些消耗信任的行为，当然主流不站在怀疑派一边是肯定的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15637#       发表于 2020-3-13 10:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公布出来让你们更方便斗虫吗。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15638#       发表于 2020-3-13 10:18
+
+
+
+
+任任女孩下星期就可以正常直播了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15639#       发表于 2020-3-13 10:18
+
+
+
+
+不公布现在大家也能查到啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15640#       发表于 2020-3-13 10:30
+
+
+
+[https://www.youtube.com/watch?v=At9pc2VhYn0](https://www.youtube.com/watch?v=At9pc2VhYn0)
+
+才发现彩虹已经搞了一个鈴鹿新闻了，龙皇你的财宝够用么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15641#       发表于 2020-3-13 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你抄我，我抄你。有什么是不可复制的吗
+
+
+
+
+
+
+
+-----
+
+####  剑崎真琴  
+##### 15642#       发表于 2020-3-13 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">三才已经开始组织动森团建了
+
+
+这将是龙皇前进路上不得不迈过的最大的一道坎
+
+
+加油，龙皇。加油，ARK。
+
+
+
+
+
+算了，不要ARK
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15643#       发表于 2020-3-13 10:44
+
+
+
+
+这个牛奶新闻最新回只有2000同接了，强度还是差了一些
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15644#       发表于 2020-3-13 10:50
+
+
+
+
+要长期坚持才行啊。彩虹以前搞得花样挺多的，社内新闻，现实新闻，电影导视好像都玩过吧。
+
+就是坚持不下来。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15645#       发表于 2020-3-13 10:52
+
+
+
+
+天宮こころ夕方まいにち配信ちゅー！《にじさんじ所属》
+
+@amamiya_kokoro
+
+み！
+
+
+12:30～　ARK
+
+【ARK】ぐぐれ！『ARKで強くなるには』よわいままじゃだめなんだ
+
+〖[https://youtu.be/YJPxu_1SBvY](https://youtu.be/YJPxu_1SBvY)〗
+
+
+メンテおわるまでみんなでぐぐるよ～～～
+
+ぐぐるってなんだ？
+
+
+おにゅ～ぱそこんお試し＾o＾
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15646#       发表于 2020-3-13 10:55
+
+
+
+
+🤔😅
+
+<img src="https://img.saraba1st.com/forum/202003/13/105401djlf6bumcwwhywqb.png" referrerpolicy="no-referrer">
+
+
+<strong>unnamed (2).png</strong> (105.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 10:54 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/105505b8digpfuspyg8gp8.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-13 105446.png</strong> (56.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 10:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 15647#       发表于 2020-3-13 11:06
+
+
+
+
+任任女孩赶着回来动森了，<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">都同时视听直面会了，不可能不组织吧
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15648#       发表于 2020-3-13 11:12
+
+
+
+<[img src="https://i.loli.net/2020/03/13/sTegHNZDa1f48QW.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15649#       发表于 2020-3-13 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46716756&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-13 10:55</a>
+
+🤔😅</blockquote>
+键垢RP？🤔
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15650#       发表于 2020-3-13 11:13
+
+
+
+<blockquote>古战场亡魂 发表于 2020-3-13 10:50
+要长期坚持才行啊。彩虹以前搞得花样挺多的，社内新闻，现实新闻，电影导视好像都玩过吧。
+
+就是坚持不下来 ...</blockquote>
+坚持坚持就成底边了，观众谁管你这个
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 15651#       发表于 2020-3-13 11:14
+
+
+
+
+突然意识到今晚有得排了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<[img src="https://i.loli.net/2020/03/13/LYZPqEuIwDxMndz.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15652#       发表于 2020-3-13 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 反正任任女孩会和谁玩，用屁股想都能想得出来，根本不会有我期待的sakuyui糖，提前祝和dust一样暴死
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15653#       发表于 2020-3-13 11:28
+
+
+
+
+彩虹真搞新闻还不如搞ARK战国报，同接肯定不会低，就是得看ARK到吐就是了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15654#       发表于 2020-3-13 11:31
+
+
+
+
+主要还是彩虹得箱力没holo那么强，大多数彩虹粉丝不是箱推人，吸引不到那么多人看。除非你能把所有彩虹人的新闻都整合进来，但我觉得根本办不到
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 15655#       发表于 2020-3-13 11:36
+
+
+
+
+大福的频道回来了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15656#       发表于 2020-3-13 11:42
+
+
+
+
+所以是为啥被封了有说嘛？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15657#       发表于 2020-3-13 11:49
+
+
+
+
+船长的会员被暂停，可能收益化被收回
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15658#       发表于 2020-3-13 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46717385&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-13 11:42</a>
+
+所以是为啥被封了有说嘛？</blockquote>
+因为被判定成子供向了，应该是和爱丽丝那次一样的原因
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 15659#       发表于 2020-3-13 11:53
+
+
+
+
+404频道的会员可以由频道主自己暂停么？
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15660#       发表于 2020-3-13 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46717481&amp;ptid=1907975" target="_blank">NBXX 发表于 2020-3-13 11:49</a>
+
+船长的会员被暂停，可能收益化被收回</blockquote>
+因为ghs吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 15661#       发表于 2020-3-13 11:55
+
+
+
+
+西西子供向？？傻逼**ai
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15662#       发表于 2020-3-13 11:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">怎么几天换一次ID啊，樱花姨也这么不安的吗？
+
+之前她还去勾搭真琴姨去了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15663#       发表于 2020-3-13 12:00
+
+
+
+
+🎉欢迎木口重回二线🎉
+
+
+
+
+
+                           
