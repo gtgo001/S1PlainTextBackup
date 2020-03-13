@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-14 00:01** 
+> ## **本文件最后更新于2020-03-14 02:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_k6d1Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_HpWBO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_SZk3p" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_F3xGN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_epJl2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_y819I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_F4jjk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_wcCfi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_as9X2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_vL5F8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -8305,6 +8305,25 @@ towa自己的写的总结（英文版）
 
 两边的评价就和S1和NGA一样（
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| age45| + 1|欢乐多|
+
+
+
+查看全部评分
 
 
 
@@ -9432,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_tE8gJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_ZY6K0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12778,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_pRjf7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_yIok2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17312,7 +17331,7 @@ TIM截图20200314004404.png
 
 
 ES_3bMOUwAEpJzq.jpeg
-(55.07 KB, 下载次数: 0)
+(55.07 KB, 下载次数: 1)
 
 
 
@@ -17451,4 +17470,787 @@ ES191ewUYAARPS7.jpeg
 
 
 
-                   
+
+
+-----
+
+####  qq845629713  
+##### 15925#       发表于 2020-3-14 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46726581&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-13 23:58</a>
+
+我看🌈楼说安洁也要入ark了？nico生团体即将分崩离析</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">我早说了，安洁准备背叛以阿笹为首的nico组，这是叛逃
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 15926#       发表于 2020-3-14 00:03
+
+
+
+
+alice玩pvz游戏力不错呀，很快就上手了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15927#       发表于 2020-3-14 00:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer"> 平胸性瘾爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15928#       发表于 2020-3-14 00:07
+
+
+
+
+为了同接友情算什么
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 15929#       发表于 2020-3-14 00:08
+
+
+
+
+不要把皮和中之人的身材混为一谈啊 kora
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15930#       发表于 2020-3-14 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46726685&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-14 00:08</a>
+
+不要把皮和中之人的身材混为一谈啊 kora</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">巨乳性瘾御姐和平胸性瘾loli，你选哪个？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15931#       发表于 2020-3-14 00:10
+
+
+
+
+润姨我真的可以<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">感觉润姨是姨里面最可以的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 15932#       发表于 2020-3-14 00:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer"> 以后性瘾可以作为新的萌点了，性瘾UPUP
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 15933#       发表于 2020-3-14 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 真是漫长的三个月啊，我也差不多要退管了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zz101896| + 1|欢乐多|
+| selonng| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15934#       发表于 2020-3-14 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46726763&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-14 00:14</a>
+真是漫长的三个月啊，我也差不多要退管了</blockquote>
+我可真是信了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15935#       发表于 2020-3-14 00:15
+
+
+
+
+😭
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15936#       发表于 2020-3-14 00:20
+
+
+
+
+激光2000，当你出狱的那一天，整个v综都在低语着同一个名字，一穷儿白三光……
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 15937#       发表于 2020-3-14 00:20
+
+
+
+
+看爱丽丝玩PvZ想起了以前初次玩到这个游戏的时候，那时还是上的多特用CRT玩的，真快啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15938#       发表于 2020-3-14 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46726639&amp;ptid=1907975" target="_blank">h1001010 发表于 2020-3-14 00:03</a>
+
+alice玩pvz游戏力不错呀，很快就上手了。</blockquote>
+pvz也能耐久我便是想不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15939#       发表于 2020-3-14 00:23
+
+
+
+
+这个桃心眼看起来真弱智syl这个amenosei真的可以，谢谢你azki
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 15940#       发表于 2020-3-14 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">连2000桑居然都要退管了么，我好伤心
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15941#       发表于 2020-3-14 00:26
+
+
+
+
+哪有3分钟就从性瘾变成退管的，2000也是在楼里给自己套了层皮
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15942#       发表于 2020-3-14 00:27
+
+
+
+
+2000退管叻，葵皇要起飞叻<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 15943#       发表于 2020-3-14 00:27
+
+
+
+
+两千那天贤者时间的发言你们还记得吗
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15944#       发表于 2020-3-14 00:27
+
+
+
+
+でび、【にじARKニュース】<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15945#       发表于 2020-3-14 00:29
+
+
+
+
+这是V综云p第几次成真了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 15946#       发表于 2020-3-14 00:34
+
+
+
+
+这就是nijisanji啊，有人可以尬演、有人可以开服、有人有经验、有人没经验
+
+
+尽管有各种各样的人有着各种各样的心情进入这个小小世界，，但它——仍然屹立于此，并将于明日绽放出灼热的光，
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 15947#       发表于 2020-3-14 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">......2000哥大号出狱之后进入贤者时间了？
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 15948#       发表于 2020-3-14 00:46
+
+
+
+<blockquote>h1001010 发表于 2020-3-14 00:03
+alice玩pvz游戏力不错呀，很快就上手了。</blockquote>
+这PvZ真好看，爱丽丝继续玩我还能看下去
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15949#       发表于 2020-3-14 00:48
+
+
+
+
+爱丽丝B限这个PVZ效果爆炸啊，建议最近打算来b限的日v赶紧抄作业
+
+
+
+
+
+
+QQ截图20200314004613.jpg
+(18.05 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-14 00:47 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/004722nyy0spc21y13vjvc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ截图20200314004545.jpg
+(54.24 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-14 00:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/004649ayj9tb9wzwz7g9tg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 15950#       发表于 2020-3-14 00:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以那些彩虹里面在404底边的v为什么不试试来b播
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15951#       发表于 2020-3-14 00:53
+
+
+
+
+明天ark虹杏都要打boss，这看哪边啊
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15952#       发表于 2020-3-14 00:53
+
+
+
+ 本帖最后由 a772803314 于 2020-3-14 00:57 编辑 
+
+不是所有彩虹底边都有爱丽丝这种找话题聊天能力的，况且爱丽丝曾经风光过，除非虹能做到像holo一样靠箱推力巧可来不互动唱歌都高人气
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15953#       发表于 2020-3-14 00:58
+
+
+
+
+爱丽丝那是转播回应了b弹幕马来西亚的梗，然后当天在b播的时候看了戴夫视频，这个星期又下了游戏，这养gachi能力够你底边学了
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 15954#       发表于 2020-3-14 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46727106&amp;ptid=1907975" target="_blank">Fakerの幻影 发表于 2020-3-14 00:50</a>
+
+所以那些彩虹里面在404底边的v为什么不试试来b播</blockquote>
+神田还是谁说过要被挑选上的才能去
+
+而且新的这批臭考拉是早被挖到有账号但是没来的 所以只有翔哥是新的
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">连2.0都还没有轮上的底边哪有机会被抽中
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15955#       发表于 2020-3-14 01:01
+
+
+
+
+我觉得阿菜这些唱歌的挺适合来b限的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+一个月来一次，也不用想什么节目，就唱歌加一点杂谈呗，反正dd爱听歌，b站也没版权随便你唱<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15956#       发表于 2020-3-14 01:06
+
+
+
+
+彩虹就算是底边也没那么闲的，要准备自己节目、准备联动、还要不断了解同社liver、社内动向<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+爱丽丝一个是进出的早、还找那个女人联动找回了以前的账，当然最根本的还是爱丽丝的事业心比较爆表<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15957#       发表于 2020-3-14 01:08
+
+
+
+
+b站v圈98%的观众都认不全彩虹的人，你让彩虹的底边过来播那和个人势一回事。holo有箱推力那是因为holo在b站的知名程度足够高<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。今天mugib限都还有人问她是谁的
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 15958#       发表于 2020-3-14 01:08
+
+
+
+
+童话组的B限不是被爱丽丝包了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15959#       发表于 2020-3-14 01:12
+
+
+
+
+两大公会不来挺好，我最爱看的底边都被这俩干碎了，剩下的一点进去也是阴间气氛，都不敢发言的。在bili还能看到，我很感动，谢谢bili
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15960#       发表于 2020-3-14 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好想三马鹿来b限啊，虽然是不可能的
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 15961#       发表于 2020-3-14 01:13
+
+
+
+
+V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底边能复刻爱丽丝这种成功，甚至可能只是浪费时间而已
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 15962#       发表于 2020-3-14 01:29
+
+
+
+
+阿菜来唱版权歌挺好的，可惜是懒狗一条
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15963#       发表于 2020-3-14 01:30
+
+
+
+
+这个月爱丽丝应该b站就要超越傻葵了
+
+彩虹的b站头牌最后竟然是爱丽丝，去年的时候真是万万想不到
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 15964#       发表于 2020-3-14 01:35
+
+
+
+
+能在404混的好 谁乐意天天来b 又不能过来开演唱会 消费主体还是本土 木口404起来之后b限不也少了很多
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 15965#       发表于 2020-3-14 01:43
+
+
+
+
+现在能真正做到两开花的，除了holo的一票人，也就海苔男和HH了
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 15966#       发表于 2020-3-14 01:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15967#       发表于 2020-3-14 01:48
+
+
+
+
+为什么现在我虹还安排人来b站入驻<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">搞不懂啊搞不懂
+
+
+
+
+
+                 
