@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 02:02** 
+> ## **本文件最后更新于2020-03-15 06:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_E94X7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_KK7Ap" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_CF8xu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_SCY80" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_wDPX9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_R34Bz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_NBMD9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_i0tZ9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_j6ZtZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_IzdLd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Y71OX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_bQ0ea" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_WRv81" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_FnKBB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18389,7 +18389,7 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_marlL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_skzGg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18456,7 +18456,7 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_PgEzw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_e1Ix9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18490,8 +18490,8 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_uu9nK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_eP6kY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_HqPQq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_cnP0b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19221,7 +19221,7 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_Nc2I2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_vVh4a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19295,8 +19295,8 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_yWP6I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_dVbf2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_h2CBI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_YS32M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24737,7 +24737,7 @@ syl:兔子小姐在b站有号的啊，可惜投了几个稿发现没啥人气就
 
 
 各チャンネルはリプ蘭から↓</blockquote>
-<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_wKjKh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_P22an" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -26436,4 +26436,401 @@ SC没用吧，姬森官号肯定已经把mrr号拉黑了
 
 
 
-  
+
+
+-----
+
+####  MyOnlyJustICE  
+##### 16424#       发表于 2020-3-15 02:15
+
+
+
+
+这个对着屏幕上的观众能叽里咕噜侃侃而谈还是跟个人性格和业务水准有点要求的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16425#       发表于 2020-3-15 02:24
+
+
+
+
+首先有倾诉欲很重要，像我这种懒得分享自己的人就没法当主播。
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16426#       发表于 2020-3-15 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739541&amp;ptid=1907975" target="_blank">QWANG 发表于 2020-3-15 01:53</a>
+
+杂谈力这种东西怎么提高，游戏力玩得多了过得去的水准是可以有的，楼里的各位有办法吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">写台本，自己规划下杂谈内容，至少不要冷场
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 16427#       发表于 2020-3-15 02:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">泥潭真的云，SC既不能撤回，也无法被禁言封堵，我是在弥宝直播间测试过的
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 16428#       发表于 2020-3-15 02:39
+
+
+
+
+写日记吧，这时代现在还有人写吗
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 16429#       发表于 2020-3-15 02:40
+
+
+
+
+对，团长新年衣服直播间sc对线半小时你们都忘了？
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16430#       发表于 2020-3-15 02:46
+
+
+
+
+雪空出来挨打
+
+
+
+
+
+
+
+-----
+
+####  买表大户  
+##### 16431#       发表于 2020-3-15 03:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739940&amp;ptid=1907975" target="_blank">KyotoAnimation 发表于 2020-3-15 02:39</a>
+泥潭真的云，SC既不能撤回，也无法被禁言封堵，我是在弥宝直播间测试过的 ...</blockquote>
+直播间被封可以发sc，但是sc主播是可以主动移除的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16432#       发表于 2020-3-15 03:05
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-3-15 03:25 编辑 
+
+狗子（被强迫）下了
+
+
+给狗子当运营真的惨。
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 16433#       发表于 2020-3-15 03:07
+
+
+
+
+跟写作差不多的技巧，首先找个onenote之类的你用的顺手的笔记
+
+把每天看到的感觉有意思的梗和言论记下来；
+
+看到任何想发表意见的主题，或者与自己产生共鸣的东西全都存起来；
+
+有什么想要分享的个人观点和生活经历列个关键词写上去；
+
+
+到需要你扯闲话的时候打开对着词条和观众弹幕挨个看有什么能扯的就完事了
+
+不管是不是外向型想不想输出价值观的人，要避免车轱辘话的第一要素就是有东西可以讲，这种东西就算有灵性也不如平常积累
+
+
+
+
+
+
+
+-----
+
+####  2black  
+##### 16434#       发表于 2020-3-15 03:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46736403&amp;ptid=1907975" target="_blank">北山玖公 发表于 2020-3-14 21:09</a>
+
+拜ark所赐，我最近感觉快退管了（指彩虹木口），谢谢ark，给我省下来一堆时间提高自己 ...</blockquote>
+羡慕啊，我戒不掉管人，我也想要有时间提高自己
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16435#       发表于 2020-3-15 03:32
+
+
+
+
+从文本出发才是走偏了，vr人均存货比樱花妹多得去了，但在母语环境中杂谈表现却比不过。重要的是谈话模式的问题，vr里我看的那个属于典型的收缩型，出于礼貌地把弹幕开的话头都接上了，然后就没然后了，毕竟是兼职也能理解。杂谈优秀的兔头就属于延展型，在没有企划时要菜不少，但她在平淡无奇的地方常开启话题的表现的确比vr坛友的老宅交流会有意思
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16436#       发表于 2020-3-15 03:50
+
+
+
+
+草，补了昨晚星街歌回，前面狂划就是为了最后一首mayn的唱个爽是吧。
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 16437#       发表于 2020-3-15 04:20
+
+
+
+
+杂谈需要练？杂谈需要台本？我看同卵双狗可以任何形势一转杂谈，各种车轱辘一千遍的话题还能再他妈吹一遍，而且观众还喜欢听，咋到了V juan这种还成了稀缺技能了？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16438#       发表于 2020-3-15 04:27
+
+
+
+
+因为Vjuan都是铁废物啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16439#       发表于 2020-3-15 04:35
+
+
+
+
+那还是有点区别的，双狗没话说了至少可以解说比赛或者自己上手打，事实上他们主要造梗根源也是游戏，一部分来自平时在其他地方的互动
+
+他们是可以聊，开局前五分钟大家走套路没得解说那就聊一聊，正面开大了还吹比观众要不乐意了
+
+没看过这两人无游戏背景尬聊，想来也没那么容易
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 16440#       发表于 2020-3-15 04:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46740431&amp;ptid=1907975" target="_blank">无限舰制 发表于 2020-3-15 04:35</a>
+
+那还是有点区别的，双狗没话说了至少可以解说比赛或者自己上手打，事实上他们主要造梗根源也是游戏，一部分 ...</blockquote>
+国家杯、WCS分站赛有至少三四个场间，每次二三十分钟，还不是靠吹逼吹过去的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16441#       发表于 2020-3-15 04:52
+
+
+
+
+有一句没一句的脑死尬聊和随手就能吹比说段子的怎么比
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16442#       发表于 2020-3-15 04:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46740463&amp;ptid=1907975" target="_blank">anen 发表于 2020-03-15 04:51:26</a>
+国家杯、WCS分站赛有至少三四个场间，每次二三十分钟，还不是靠吹逼吹过去的 ...</blockquote>那本质上还是他们掌握了整个SC2赛事相关的体系这个巨大的内容与梗的提供者啊
+
+不可能次次车轱辘孙哥下片洗碗的事啊，还是得讲电竞鬼周刊或者选手自己有意无意爆出来的八卦，属于比赛与游戏衍生的一环
+
+至于管人为什么没有“素材来源”或者不去发掘，那就是另一回事了
+
+反正管人不是个教父级地位的话（有没有这种我暂且蒙古），随便八卦别人说过头了是要被炎上然后道歉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+夸来夸去肯定没讲黑料好玩啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16443#       发表于 2020-3-15 05:03
+
+
+
+
+那mrr是要去holo“扬名立万”？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16444#       发表于 2020-3-15 05:11
+
+
+
+
+当然我说得黑一点，人家两个相当于你圈大潮退去之后屹立不倒，然后靠自己的经营再开了一片不算大但也还算滋润的新天地，功力和经验当然没法比
+
+等V圈完蛋，虹杏合体来一对（或者一堆）中兴之才还差不多
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 16445#       发表于 2020-3-15 05:29
+
+
+
+
+现在 V juan 业界还没到扬名立万的时间线，虹杏也就当年 neotv 和 PLU。这么一想一开始混PLU后来转投neotv，mrr或许才能成为真正的V juan教父？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 

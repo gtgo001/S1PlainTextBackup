@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 02:04** 
+> ## **本文件最后更新于2020-03-15 06:03** 
 
 
 
@@ -6834,4 +6834,454 @@ bili_v_d_1584150915841.gif
 
 
 
-                                      
+
+
+-----
+
+####  七尾巨头蝎  
+##### 3347#       发表于 2020-3-15 02:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/020701pvs5v0fdvrqs556p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f0Q5-8a6dXaZ2wT3cS1kw-11s.jpg.medium (1).jpg</strong> (44.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 02:07 上传
+
+
+
+
+
+
+
+战斗续行EX，最后部分翻译
+
+
+就算该名剑士陷入肉体残破，四肢残缺的状态，也会死死咬住敌人
+
+
+尼玛动画制作组不要直接就按字面意思理解啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3348#       发表于 2020-3-15 02:08
+
+
+
+<blockquote>远野四季 发表于 2020-3-15 01:56
+怀疑制作组里有牛肉丸厨和金固厨，这俩退场后索然无味</blockquote>
+牛肉丸厨不知道，副作监恩奇都厨（恩奇都=金固论者？）一直在线，还吹最终回呢
+
+
+
+
+
+
+
+-----
+
+####  6x6z6w  
+##### 3349#       发表于 2020-3-15 02:11
+
+
+
+ 本帖最后由 6x6z6w 于 2020-3-15 02:13 编辑 
+
+给对动画改编有所不满的人推荐一下迪亚哥攻略FGO的AA漫
+
+[https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1917006](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1917006)
+
+
+目前已经开始第七章的汉化了，绝对让你看得开心看得过瘾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3350#       发表于 2020-3-15 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739690&amp;ptid=1729513" target="_blank">七尾巨头蝎 发表于 2020-3-15 02:08</a>
+
+战斗续行EX，最后部分翻译
+
+
+就算该名剑士陷入肉体残破，四肢残缺的状态，也会死死咬住敌人</blockquote>
+就算硬上字面，也好歹先画打成个半残再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3351#       发表于 2020-3-15 02:13
+
+
+
+
+不行了，虽然我不是王哈厨，但想象了一下这集对王哈厨来说就该是黑历史吧，今天简直就和末日一样
+
+游戏深夜开池子和强化，不少人终于盼来了海景房的倒塌，然后动画搞成这样，这到底是怎样的行为艺术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  [A]ZuZe  
+##### 3352#       发表于 2020-3-15 02:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">太他妈离谱了，我还以为这动画怎么做都不会翻车的，看来还是低估业界的费拉程度
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 3353#       发表于 2020-3-15 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739732&amp;ptid=1729513" target="_blank">DARKGRAY 发表于 2020-3-15 02:12</a>
+就算硬上字面，也好歹先画打成个半残再说吧</blockquote>
+虽然没仔细画，但是王哈被打穿的画面还是有的。也可能是他跑进反创世纪只能触发战斗续行苟了，这段后期如果不补充清楚的话是很迷的
+
+
+
+
+
+
+
+-----
+
+####  Booorunestud  
+##### 3354#       发表于 2020-3-15 02:20
+
+
+
+
+这整部片说白了，大伙的感受还是“可惜”
+不缺神回，非常不缺优秀的打戏，按理说能差到哪去呢，还就能
+可以更好的
+
+
+
+
+
+
+
+-----
+
+####  武の炽羽  
+##### 3355#       发表于 2020-3-15 02:23
+
+
+
+
+感谢这集FGO，不准备氪金第三次（试图）迎接王蛤了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+u1s1，除了王蛤问题不大，但是你把第七章最大得爆点拿来献祭给别人加戏，我觉得八可以<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  柴汪汪  
+##### 3356#       发表于 2020-3-15 02:26
+
+
+
+
+……………………真的，无语<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+完全没办法用语言来描述这集看完的感受
+重金求记忆消除法/时光机/一个没看过20集的脑子<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  exiaexa  
+##### 3357#       发表于 2020-3-15 02:48
+
+
+
+ 本帖最后由 exiaexa 于 2020-3-15 03:04 编辑 
+
+内心毫无波动我她妈甚至笑成了傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+王哈这什么玩意儿？我理解概念一刀不好做但你就老老实实整个大张一刀流不也比这个酷炫？？？？
+然后中间11子的过渡情节做的是什么jb玩意儿哦，有哪怕那么一丁点的节奏感吗，真就弓凛用光经费呗
+
+藤丸玛修加戏这个勉强说得过去表现也还行，艾蕾把圣诞剧情挪过来表现的也不错好评，提妈这里虽然直接对话有点强行设定的意思不过不影响观感
+
+王哈主要还是少了镜头，如果前面11子改成王哈单机拖住11子，其他人去挡提妈，最后王哈被打残了上嘴也要帮藤丸开路那观感就完全是另一回事儿了，现在整就一突然出现莫名其妙的生草二号机<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后这个金闪闪又是什么jb玩意儿哦，你一个2020年的动画射击干不过fz也太生草了
+
+等一个这集还行的你们居然挑刺气冷抖的出来交流一下是啥想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bird-lay  
+##### 3358#       发表于 2020-3-15 02:59
+
+
+
+
+王哈是把那堆东西都吃了吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 3359#       发表于 2020-3-15 03:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">不是，这冠位初号机什么鬼，今年剧场版EVA大结局联动么...
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 3360#       发表于 2020-3-15 03:52
+
+
+
+
+哈哈哈，所有人都献祭给冠位咕哒的灭兽一刀了，真有你的呀第七章，魔改的是个jb
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  精神推特指挥  
+##### 3361#       发表于 2020-3-15 04:12
+
+
+
+
+我现在觉得这玩意儿把凛的镜头一去，那还不如FA。
+
+—— 来自 Xiaomi Redmi 6, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  roxas.sora  
+##### 3362#       发表于 2020-3-15 04:20
+
+
+
+
+.............你月动画合着靠同行衬托硬生生把ufo抬起来了...........这第七章又不是做不出高质量打戏，怎么资源分配那么烂，关键时候掉链子，节奏稀烂，演出迷幻，音响监督建议踢了，这王财和ea和a1做的小太阳战斗演出来比简直垃圾
+
+
+
+
+
+
+
+-----
+
+####  6x6z6w  
+##### 3363#       发表于 2020-3-15 04:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46740397&amp;ptid=1729513" target="_blank">roxas.sora 发表于 2020-3-15 04:20</a>
+
+.............你月动画合着靠同行衬托硬生生把ufo抬起来了...........这第七章又不是做不出高质量打戏，怎 ...</blockquote>
+FA23话和18话都是同一个作画参与，其实把18话和这话的人马换一下可能就不会有今天这种情况出现了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  we89623  
+##### 3364#       发表于 2020-3-15 04:38
+
+
+
+
+让你们在黑幽浮桌，另外菌类懂个屁FATE
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3365#       发表于 2020-3-15 04:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739416&amp;ptid=1729513" target="_blank">远影 发表于 2020-03-15 01:37:47</a>
+初号机生吃使徒✓
+量产机暴打二号机✓
+おめでとう✓
+黑泥同化，人类补完✓
+第一使徒堕落成人✓
+三无少女巨 ...</blockquote>这人也有g社血脉
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  型月重工  
+##### 3366#       发表于 2020-3-15 04:57
+
+
+
+
+就这？？ 就这？？？ 就这？？？？？ 认真闪的EA特效就这水平？ 还赶上魔伊第三季伊莉雅魔炮对幼闪EA来的震撼....
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3367#       发表于 2020-3-15 05:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46740457&amp;ptid=1729513" target="_blank">hcf220 发表于 2020-3-15 04:48</a>
+
+这人也有g社血脉
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+好极了，下一步是什么花活，只要微笑就好了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alaya  
+##### 3368#       发表于 2020-3-15 05:20
+
+
+
+
+超人熊：全靠同行衬托<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Redis  
+##### 3369#       发表于 2020-3-15 06:00
+
+
+
+
+看完了
+
+
+不大行啊
+
+
+没燃起来
+
+
+提妈就不能好好当一个反派么，洗白成缺爱的孩子什么鬼。。。
+
+
+
+
+
+                                     
