@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-14 22:01** 
+> ## **本文件最后更新于2020-03-15 00:02** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_iN021" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_n6V4v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Th9d8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_I43r6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_rsA66" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_thh1Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_fEFKF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_qwlsb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_snGa2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_X5f98" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Q1Gg8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_X8a38" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_QE6iZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_bvk1U" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18389,7 +18389,7 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_U8j7T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_Pp0Zm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18456,7 +18456,7 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_D7lOH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_WZfaQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18490,8 +18490,8 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_aMmhG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_CS7Pj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_qjpRN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_f2mmE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19221,7 +19221,7 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_RL579" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_kh11S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19295,8 +19295,8 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_X97Df" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_f3h3j" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_n9IOD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_ugy32" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24041,7 +24041,7 @@ tm木口怎么今天还没打完明天开后段？作业没得抄了开始抄傻
 
 
 TIM截图20200314225048.png
-(187.79 KB, 下载次数: 0)
+(187.79 KB, 下载次数: 1)
 
 
 
@@ -24111,11 +24111,12 @@ TIM截图20200314225048.png
 
 
 
+ 本帖最后由 fs001 于 2020-3-14 22:11 编辑 
 
 龙皇已经预先知道你们要黑屁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-syl 四期天使b限舔的有龙皇 35 船长 夏哥 狐狸  夸哥 486 心心 还有狗狗，谁在中国没人气是不是一目了然了
+syl 四期天使b限舔的有兔宝 龙皇 35 船长 夏哥 狐狸  夸哥 486 心心 还有狗狗，谁在中国没人气是不是一目了然了
 
 
 
@@ -24216,11 +24217,1360 @@ syl 四期天使b限舔的有龙皇 35 船长 夏哥 狐狸  夸哥 486 心心
 
 
 
+ 本帖最后由 stedckk 于 2020-3-14 22:02 编辑 
 
 总结一下b限最容易吸引dd打钱上舰的操作，是不是唱歌和贴贴直播？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">天音熊猫ひまわり
 
 
 
 
 
-      
+
+
+-----
+
+####  连清人  
+##### 16300#       发表于 2020-3-14 22:02
+
+
+
+
+不是贴贴，是唱歌。
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16301#       发表于 2020-3-14 22:03
+
+
+
+
+唱歌，百合营业，还有刷梗
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16302#       发表于 2020-3-14 22:03
+
+
+
+
+echo碰瓷？表情包也拿出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16303#       发表于 2020-3-14 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">巧可老师每周一次唱歌也没见多少打钱
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16304#       发表于 2020-3-14 22:04
+
+
+
+
+天哥本质会唱歌的大阪大妈搞笑艺人。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16305#       发表于 2020-3-14 22:06
+
+
+
+
+那是因为老师来太多次了，而且歌力不行。
+
+我明白了，阻碍夸哥上千舰的一定是因为歌力不够好。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 16306#       发表于 2020-3-14 22:07
+
+
+
+<[img src="https://i.loli.net/2020/03/14/m5dlZTq8QxzCtW4.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16307#       发表于 2020-3-14 22:10
+
+
+
+
+巧可老师唱歌是微分音音乐 是现代艺术
+
+一般dd听不懂自然不愿意打钱了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16308#       发表于 2020-3-14 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737015&amp;ptid=1907975" target="_blank">fs001 发表于 2020-3-14 21:57</a>
+
+龙皇已经预先知道你们要黑屁了
+
+
+syl 四期天使b限舔的有龙皇 35 船长 夏哥 狐狸  夸哥 486 心心 还有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你漏了天哥进holo第一个联系的peko
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16309#       发表于 2020-3-14 22:10
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-14 22:11 编辑 
+
+同样是再就业，同样是恰人民币，对比天宫，看看oto，呱的一声哭出来，当年的才女混得也太惨了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16310#       发表于 2020-3-14 22:11
+
+
+
+
+索兰调它来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16311#       发表于 2020-3-14 22:11
+
+
+
+
+索兰压轴，舒服了
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16312#       发表于 2020-3-14 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737153&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-14 22:10</a>
+
+你漏了天哥进holo第一个联系的peko</blockquote>
+补了补了，索兰太好用了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16313#       发表于 2020-3-14 22:15
+
+
+
+
+我觉得a岛的叫法比较有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿喵喵是虹蓝天，pp天使是杏蓝天
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 16314#       发表于 2020-3-14 22:17
+
+
+
+
+那边下了，这边可以上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16315#       发表于 2020-3-14 22:19
+
+
+
+ 本帖最后由 colodes 于 2020-3-14 22:21 编辑 
+
+今天的同接也是不正常
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16316#       发表于 2020-3-14 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737154&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-14 22:10</a>
+同样是再就业，同样是恰人民币，对比天宫，看看oto，呱的一声哭出来，当年的才女混得也太惨了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">来都没来过，人不配好吗？个歌都不舍得唱的藏着掖着的废物比不上贵索兰调生草吸人民币高手才女，别比了，天使最强！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16317#       发表于 2020-3-14 22:24
+
+
+
+
+U1S1，天使这种把肺唱出来的唱法比星街吸gachi多了
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 16318#       发表于 2020-3-14 22:26
+
+
+
+
+爱丽丝疯狂套娃中<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl 刀也哥，永远滴神
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16319#       发表于 2020-3-14 22:28
+
+
+
+
+谢谢你刀也<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+syl:兔子小姐在b站有号的啊，可惜投了几个稿发现没啥人气就再也没来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过挺奇怪的，别的up搬运她视频都能有几万播放，她自己的号才几千播放，换是我我也不来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16320#       发表于 2020-3-14 22:29
+
+
+
+
+就看那方块下降的速度的差距，就知道时雨妈铁输
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16321#       发表于 2020-3-14 22:31
+
+
+
+
+刀也这方块大概在v圈什么水平，感觉有点点实力
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 16322#       发表于 2020-3-14 22:31
+
+
+
+
+爱丽丝疯狂套娃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16323#       发表于 2020-3-14 22:34
+
+
+
+
+你下巴牛逼你下巴有种别ban蓝发女路人啊
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16324#       发表于 2020-3-14 22:35
+
+
+
+
+那你得让星街来萝莉音
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16325#       发表于 2020-3-14 22:36
+
+
+
+
+(:]ミ - Neko Hacker - くいしんぼハッカー/をとは( cover)
+[https://youtu.be/seHy4lefDYA](https://youtu.be/seHy4lefDYA)
+
+
+エバ/小鈴(cover)
+[https://youtu.be/6hWCK0c4Nmg](https://youtu.be/6hWCK0c4Nmg)
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16326#       发表于 2020-3-14 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737284&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-14 22:22</a>
+
+来都没来过，人不配好吗？个歌都不舍得唱的藏着掖着的废物比不上贵索兰调生草吸人民币高手才女， ...</blockquote>
+你不会比我还云吧，我说的是乙女音，高女士通风报信把财富密码给她讲了，她最近在b上班勤了，但是没什么人看，刚才也有播<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16327#       发表于 2020-3-14 22:41
+
+
+
+
+下巴和mea打谁会赢？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16328#       发表于 2020-3-14 22:43
+
+
+
+
+三字母能不能别来碰瓷？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 16329#       发表于 2020-3-14 22:46
+
+
+
+<blockquote>#voms_project
+
+
+準備を進めているVtuberの件ですが…　お　ま　た　せ　し　ま　し　た
+
+
+＿人人人人人人人人＿
+
+＞　初配信日　＜
+
+＞　3月19日夜　＜
+
+￣Y^Y^Y^Y^Y^Y^Y￣
+
+
+各チャンネルはリプ蘭から↓</blockquote>
+<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_rC1KO" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16330#       发表于 2020-3-14 22:49
+
+
+
+
+别车轱辘唱不唱歌了，待会免费老哥指不定又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+当然，我也要说，好好唱歌的如波罗之鬼在阿B连搬运都搬不全呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  和我去改变世界  
+##### 16331#       发表于 2020-3-14 22:49
+
+
+
+ 本帖最后由 和我去改变世界 于 2020-3-14 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737474&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-14 22:40</a>
+你不会比我还云吧，我说的是乙女音，高女士通风报信把财富密码给她讲了，她最近在b上班勤了，但是没什么 ...</blockquote>
+谁叫oto49年进了国军呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16332#       发表于 2020-3-14 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737474&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-14 22:40</a>
+你不会比我还云吧，我说的是乙女音，高女士通风报信把财富密码给她讲了，她最近在b上班勤了，但是没什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">你想说乙女音那你就别拉踩天宫，个废物不值得高贵的恁拉出来无端炮上一嘴，好吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16333#       发表于 2020-3-14 22:55
+
+
+
+
+守护V综最好的天宫
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16334#       发表于 2020-3-14 22:57
+
+
+
+
+为了避免扣上云看管的帽子先扣对面踩一捧一的帽子，这波是弃车保帅<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+不过vliver跟实力关系不大，跟流量关系很大，特别还是国内这种喜欢把虫放在一个罐子里斗的平台，而且dd这种从别处偷来的梗也在支持观众跟着流量走
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16335#       发表于 2020-3-14 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">怎么又扭曲一个？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16336#       发表于 2020-3-14 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁说老师b限唱歌没人打钱的，我一点进去就看到好几个人上舰，sc 1500+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16337#       发表于 2020-3-14 23:00
+
+
+
+
+管人粉确实比管人有乐子<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16338#       发表于 2020-3-14 23:02
+
+
+
+
+这也太急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16339#       发表于 2020-3-14 23:06
+
+
+
+
+你楼以后禁止踩天宫，再犯看我们天宫骑士团不把你橄榄咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 16340#       发表于 2020-3-14 23:08
+
+
+
+
+海洋法卷土重来?
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16341#       发表于 2020-3-14 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v综来个8鹅执法我看行，仅限天宫
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 16342#       发表于 2020-3-14 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看到那么多阿喵喵的头像，又想起深藏在心底的疑问
+
+阿喵喵的li2d胸是不是有点歪啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 16343#       发表于 2020-3-14 23:11
+
+
+
+ 本帖最后由 克罗夏 于 2020-3-14 23:18 编辑 
+
+这波不是硬钓完鱼后又不认吗，天宫又不是再就业又没有恰人民币就突然被端出来了，这么直的钩<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+你楼alo老哥战斗力极强，巨魔光想着钓鱼又不想被追着咬的确要少提天宫<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16344#       发表于 2020-3-14 23:13
+
+
+
+
+我有点委屈，明明虹杏全是云的，这位只知道诨号pp，说天宫我还要去查下。不过为了尊重楼友，把这位vtber列到我的不可说名单里了，以后决不再犯。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16345#       发表于 2020-3-14 23:14
+
+
+
+
+楪帆波、幽ヶ崎海愛 → necömi
+
+<img src="https://img.saraba1st.com/forum/202003/14/231424yf7l999l0961689r.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-14 231254.png</strong> (34.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-14 23:14 上传
+
+
+
+
+
+
+花雲くゆり → あずーる
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/231434wwnx1hx1373rh7r7.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-14 231235.png</strong> (25.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-14 23:14 上传
+
+
+
+
+
+
+😅
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16346#       发表于 2020-3-14 23:15
+
+
+
+ 本帖最后由 stedckk 于 2020-3-14 23:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也觉得奇怪恰人民币为啥要把天宫拉出来。。云错了被人说还要装委屈，这，就是v综巨魔吗。
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16347#       发表于 2020-3-14 23:15
+
+
+
+ 本帖最后由 sedumaizoonl 于 2020-3-15 00:17 编辑 
+
+我看的也有点歪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16348#       发表于 2020-3-14 23:15
+
+
+
+
+阿喵喵是天王，阿夸是海王，谁是冥王？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16349#       发表于 2020-3-14 23:16
+
+
+
+
+怎么又开始楼友互口了。
+
+
+来点🔥图，出处🔥爹：
+
+
+
+
+
+
+
+ETELXftUYAUrWh3.jpeg
+(47.03 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-14 23:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/231601h0cw8h1hol8lducv.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 16350#       发表于 2020-3-14 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737869&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-14 23:15</a>
+
+阿喵喵是天王，阿夸是海王，谁是冥王？</blockquote>
+尊妈？
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16351#       发表于 2020-3-14 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer"> 你圈能比的上阿喵喵颜值的有几个？拿三十BBA碰瓷您配吗？
+
+
+
+
+
+
+
+-----
+
+####  selonng  
+##### 16352#       发表于 2020-3-14 23:21
+
+
+
+
+フレア刚出道时我对她的印象就是铁蹄，我也不知道为什么<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16353#       发表于 2020-3-14 23:21
+
+
+
+
+EMA
+
+@eumza1
+
+·
+
+6h
+
+最近嬉しいことばっかり 生きててよかった〜
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16354#       发表于 2020-3-14 23:23
+
+
+
+
+要结婚了❤️
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 16355#       发表于 2020-3-14 23:24
+
+
+
+
+胆敢打错我阿喵喵名字，活该好吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16356#       发表于 2020-3-14 23:25
+
+
+
+
+这也太云了，天哥姓天音不姓天宫好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这活该被人追着打的
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16357#       发表于 2020-3-14 23:35
+
+
+
+
+云错人还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16358#       发表于 2020-3-14 23:35
+
+
+
+
+那天宫银盾的时候能开个歌回吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16359#       发表于 2020-3-14 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738071&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-14 23:35</a>
+那天宫银盾的时候能开个歌回吗不要rp声线唱动画歌的那种</blockquote>
+我看金盾都没可能放开唱<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16360#       发表于 2020-3-14 23:39
+
+
+
+
+前有hiyoko看管质疑联动暴打solo，后有云观众踩一捧一却连名字都搞不清楚，本🐟今天就实名反对低水平钓鱼
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16361#       发表于 2020-3-14 23:40
+
+
+
+
+除了她还有谁魂比皮红的？飞鸟p和一代目cca？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 16362#       发表于 2020-3-14 23:40
+
+
+
+
+冲银盾的时候学她同期也开个歌回完全解放吧，日增1w不是梦
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16363#       发表于 2020-3-14 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738112&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-14 23:40</a>
+
+除了她还有谁魂比皮红的？飞鸟p和一代目cca？</blockquote>
+yua
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16364#       发表于 2020-3-14 23:47
+
+
+
+
+天宫和天音分不清还行，天宫彼方是说南天门吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16365#       发表于 2020-3-14 23:50
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-14 23:53 编辑 
+
+不过你们以后叫天宫得叫全否则真的容易引起误会
+
+你看天音就很灵性直接一首索兰调抢注一个驰名商标，连东百花巷重量级选手也得给几分薄面， 如果阿喵喵能唱索兰调，还有天音什么事儿吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">（
+
+
+syl
+
+你楼老哥云的我都羞耻，还一个月前谁能想到星街千舰，星街从打块到六边形到红白真偶像到转正风波到“让拒绝我的公司后悔”到3d决定，这是一出持续几年的励志大戏，有这样的经历和杏箱力凭什么不上千舰，她不配难道你vjuan那些江郎才尽的“歌坛大神”，年老色衰的“萌声主播”，只会玩老游戏的“pro玩家”配吗？我虽然对奋斗v路线并不感冒，偶尔看看星街也就听个歌（我可不会像免费一样傻不呵呵的听到个失误就要吹半天），但是这他妈是放在全世界所有圈子都能吸粉造粉圈的历程，更何况还不是人设而是古参粉一步步见证的大后期英雄，现在刷好了出山不是随便切？五杀五买活杀送盾好吧，你们这些出道就恨不得把皮价值榨个干净的炼金还不往后稍稍？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+zsyl
+
+狐皇没别的就养猫我是料到了的，毕竟江山易改。龙皇这个企划没有台本辣么混乱我是真没想到，明明吃鸡直播这个概念非常优秀（虽然很不v），龙财下一件，请<img src="https://static.saraba1st.com/image/smiley/carton2017/083.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16366#       发表于 2020-3-14 23:51
+
+
+
+
+这次天哥B限效果相当不错，四期生下一个是公主。
+
+不知道龙皇到时候会整啥活。
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 16367#       发表于 2020-3-14 23:52
+
+
+
+
+别拿老饵钓了好mua，我一个一般通过路人快被你们整出阿喵喵ptsd了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16368#       发表于 2020-3-14 23:56
+
+
+
+
+信者多是好事儿啊，可以提高大家的姿势水平，就算云也要云的正确<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16369#       发表于 2020-3-14 23:56
+
+
+
+
+草，我觉得你在暗示我a皇
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16370#       发表于 2020-3-14 23:59
+
+
+
+
+没看过星街其他直播，只看过几分钟打块剪辑，但是这妨碍我说出天道酬勤四个大字吗？我觉得不。#颜值#和#硬实力#，希望有识之人尽早看清大势，加入星咏者的行列，扛起星街彗星的大旗！
+
+—— 来自 HUAWEI JKM-AL00a, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16371#       发表于 2020-3-15 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738285&amp;ptid=1907975" target="_blank">oshinoshinobu 发表于 2020-3-14 23:56</a>
+
+草，我觉得你在暗示我a皇</blockquote>
+心中有酬勤，看谁都像在酬勤
+
+#ana颜值##ana努力#
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16372#       发表于 2020-3-15 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738230&amp;ptid=1907975" target="_blank">落雪无痕 发表于 2020-3-14 23:51</a>
+
+这次天哥B限效果相当不错，四期生下一个是公主。
+
+不知道龙皇到时候会整啥活。 ...</blockquote>
+可乐拉面，请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16373#       发表于 2020-3-15 00:01
+
+
+
+
+星街应该就缺点话题度了，柴都垛好了就差点火，3d回也就是一把不错的火。偶像再有能没有话题度也会被不断冒出的新人淹没，白上桑和龙皇那么能整话题度不帮帮吗？温暖大家庭吃肉的吃肉，其他人也能跟着喝汤就好了啊。
+
+mrr来阿b也不一定有太大市场，别被怼心态爆炸就好了
+
+
+
+
+
+    

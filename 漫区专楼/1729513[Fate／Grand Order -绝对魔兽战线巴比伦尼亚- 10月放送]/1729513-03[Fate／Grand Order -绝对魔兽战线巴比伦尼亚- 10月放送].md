@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-09 12:10** 
+> ## **本文件最后更新于2020-03-15 00:05** 
 
 
 
@@ -3721,7 +3721,7 @@ EDF51CF8-66D0-438A-9CAF-ECF80A7E8249.jpeg
 
 
 46FBF9218ACD0D8AB14C9C9DE361A9BE.jpg
-(158.42 KB, 下载次数: 0)
+(158.42 KB, 下载次数: 1)
 
 
 
@@ -4265,4 +4265,837 @@ s1和nga站在一条战线上啦<img src="https://static.saraba1st.com/image/smi
 
 
 
-                                          
+
+
+-----
+
+####  exiaexa  
+##### 3214#       发表于 2020-3-9 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46663656&amp;ptid=1729513" target="_blank">kyonkoism 发表于 2020-3-9 00:35</a>
+
+还有啥可反驳的，BGM放的不好，剧情太急了应该再拖两话，冥界转场太生硬？
+
+这动画就21集，还拖啊， ...</blockquote>
+写得什么JB玩意儿
+
+还他妈硬挑毛病，这集安娜光速送人头是不是可以优化一下？C闪和梅林高速话唠破坏气氛是不是可以有的优化一下？
+
+这集提妈龙化场景为了展现全身根本使用了高空视角导致没有对照系根本看不清情况，我都不说先前羽蛇神和弁庆空战展现的巨大提妈体型了，动画这集挡个黑泥完事儿的视觉魄力连游戏CG都不如是不是可以优化一下？
+
+哦合着赶节奏把绝境反击给赶成接力棒突击了还不给说了是吧？
+
+
+整个动画整体节奏分配上有问题已成定局，合着还是观众逼宫只能做21集所以节奏烂了观众也不能说？
+
+还是屎吃多了不知道饭配菜是什么滋味，现在吃上大米饭了你们这群刁民居然还想要酒菜？
+
+到底是谁他妈在膈应谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  密特里奈斯  
+##### 3215#       发表于 2020-3-9 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46660470&amp;ptid=1729513" target="_blank">多汁多水 发表于 2020-3-8 19:29</a>
+
+王哈的逼格比较顶，他就是Assassin这个词的词源，战绩和型月至今出现的所有Assassin职介比都恐怕是最强的 ...</blockquote>
+除了王哈月球的杀阶有能打的么……X毛？
+
+
+
+
+
+
+
+-----
+
+####  zakki  
+##### 3216#       发表于 2020-3-9 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46669627&amp;ptid=1729513" target="_blank">密特里奈斯 发表于 2020-3-9 14:57</a>
+除了王哈月球的杀阶有能打的么……X毛？</blockquote>
+搞笑人物不算，李大师，老芥和女帝吧，算是比较能打，迦摩这个兽就不算了
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3217#       发表于 2020-3-9 16:32
+
+
+
+ 本帖最后由 奈落的孤火花 于 2020-3-9 16:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46668785&amp;ptid=1729513" target="_blank">exiaexa 发表于 2020-3-9 13:32</a>
+
+写得什么JB玩意儿
+
+还他妈硬挑毛病，这集安娜光速送人头是不是可以优化一下？C闪和梅林高速话唠破坏气氛是 ...</blockquote>
+安娜原作送人头比动画还快，这里我觉得这集动画没啥毛病。
+
+不如说，是上集动画有毛病，最后给了观众错误的期待，觉得下集可能会有戈尔工和提妈的大战。结果事实上还是按原作来的。上集最后做成那样很明显就是为了吊观众胃口，结果这集……emmmm
+
+基于此，我改进的想法是，
+
+首先，1819两集的OP必须都去掉，然后把现在19集安娜剧情全部挪到上集。而且上集我还寻思最后做得真好，戈尔工只给了脸，全身像一点没露，看来制作组用心了，故意隐藏白色的衣服。结果这集一看，嗯？怎么还是原来的衣服？当然我相信制作组肯定是试过发现白的不合适所以还是照旧。不过既然如此就不要给我错误的期待啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+其次是如何安排18集最后的剧情和ED的关系。我看了一下，18集剧情结束到ED结束只有约1分钟的时间，而19集有安娜剧情有2分钟多点儿。所以我想来想去只能放弃ED插入，换成别的BGM来渲染；ED的时间也需要全部用来讲剧情。
+
+最后，这样的话19集能多出安娜剧情+OP大约4分钟的时间，用来干什么都行。我感觉会比现在的成品要更好。
+
+
+
+
+
+
+
+-----
+
+####  Ty_cc  
+##### 3218#       发表于 2020-3-9 16:37
+
+
+
+
+这集把op拿掉移给随便哪个地方都挺好的  <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tttsttt  
+##### 3219#       发表于 2020-3-9 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46669627&amp;ptid=1729513" target="_blank">密特里奈斯 发表于 2020-3-9 14:57</a>
+除了王哈月球的杀阶有能打的么……X毛？</blockquote>
+x毛设定能爆星 还曾一招打爆某宇宙女神然后和莉莉与玛修联手五五开
+
+
+
+
+
+
+
+-----
+
+####  orangee  
+##### 3220#       发表于 2020-3-9 16:50
+
+
+
+
+把op拿掉就行了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3221#       发表于 2020-3-9 19:22
+
+
+
+ 本帖最后由 奈落的孤火花 于 2020-3-9 19:26 编辑 
+
+关于第六章。我这有点儿杞人忧天了，不过看到后篇监督这个精神状态我还是有点儿担心。我个人当然是更希望有活力有热情的监督来做的。另外，荒井和人的头像我觉得很可爱，所以对他有些好感。
+
+
+<img src="https://img.saraba1st.com/forum/202003/09/192209s44tdt4qqadlztca.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>AB1396DA-4BD9-470A-9F15-ACAB8A43A70E.jpeg</strong> (503.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-9 19:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  亚历山大帝  
+##### 3222#       发表于 2020-3-9 20:22
+
+
+
+
+该卖的肉，
+
+
+从不会缺席。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202003/09/202232n4pcoow3wyco4nw9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Lilith-Raws] Fate／Grand Order -Zettai Majuu Sensen Babylonia- 19 [Baha][WEB-DL.jpg</strong> (155.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-9 20:22 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 3223#       发表于 2020-3-9 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46670080&amp;ptid=1729513" target="_blank">zakki 发表于 2020-3-9 15:35</a>
+搞笑人物不算，李大师，老芥和女帝吧，算是比较能打，迦摩这个兽就不算了 ...</blockquote>
+你说能打指的是设定还是实际游戏，设定不说，游戏里的老芥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zakki  
+##### 3224#       发表于 2020-3-9 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673069&amp;ptid=1729513" target="_blank">khxooo 发表于 2020-3-9 20:36</a>
+你说能打指的是设定还是实际游戏，设定不说，游戏里的老芥</blockquote>
+当然是设定里，而且老芥虽然指挥菜，但她的确很能打
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 3225#       发表于 2020-3-9 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46670080&amp;ptid=1729513" target="_blank">zakki 发表于 2020-3-9 15:35</a>
+
+搞笑人物不算，李大师，老芥和女帝吧，算是比较能打，迦摩这个兽就不算了 ...</blockquote>
+     李大师 老芥和王哈的B格差太远了，女帝就更不用说了占近地利等各种有利条件还是被小莫打爆，感觉还不如选酒吞
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3226#       发表于 2020-3-9 21:28
+
+
+
+ 本帖最后由 奈落的孤火花 于 2020-3-9 21:34 编辑 
+
+说两个我个人有感觉的地方
+
+1.马修向咕哒伸手，握住
+
+2.绝对魔兽战线：美索不达米亚变奏那，医生说完话之后音量提升了一阶
+
+
+说两个我个人觉得奇怪的地方
+
+1.金固回忆那，先是闪闪说了一遍，然后金固又说了一遍。我寻思这集时间那么紧，脚本能不能别让角色复读了，我觉得闪闪那句可以去掉。这回忆也没隔几集。
+
+2.最后弓凛往下冲说“拜托了，一定要赶上啊”是什么意思？我翻了一下原作，没看到有这句啊。我看弹幕里还有人说“牛找到了？”
+
+
+
+
+
+
+
+-----
+
+####  6x6z6w  
+##### 3227#       发表于 2020-3-9 21:38
+
+
+
+ 本帖最后由 6x6z6w 于 2020-3-9 21:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673333&amp;ptid=1729513" target="_blank">blackjeo1 发表于 2020-3-9 21:07</a>
+
+李大师 老芥和王哈的B格差太远了，女帝就更不用说了占近地利等各种有利条件还是被小莫打爆，感觉还 ...</blockquote>
+FA的女帝还是很强的，就是没料到狮子劫会有九头蛇血清这种完克自己的东西，最后强行一换一，天草或者莎翁也在场的话可能下场就不一样了
+
+
+
+
+
+
+
+-----
+
+####  阿虚家的三味  
+##### 3228#       发表于 2020-3-10 17:12
+
+
+
+
+这集说赶场其实也还行，就是比起上一话缺一段动作设计水平高质量好的卡，造成看着热闹，实际赶场，然后想想每个人干的也就是bangbangbang的在砸提亚马特罢了
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3229#       发表于 2020-3-13 19:34
+
+
+
+
+#Fate/Grand Order 绝对魔兽战线 巴比伦尼亚# 第20话先行图＆STAFF
+
+【STAFF】
+
+脚本：武井風太
+
+分镜／演出：赤井俊文
+
+总作画监督：高瀬智章
+
+作画监督：滝山真哲・安野将人
+
+动作作画监督：林勇雄 
+
+国家队？
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 3230#       发表于 2020-3-13 20:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46669627&amp;ptid=1729513" target="_blank">密特里奈斯 发表于 2020-3-9 14:57</a>
+
+除了王哈月球的杀阶有能打的么……X毛？</blockquote>
+杰克啊。只要是妈就算是兽也杀给你看。
+
+另外，老邢是可以单挑空想树的存在，其他杀阶做的到吗？？！！（三宝老邢无爷爷的马斯塔哭了起来
+
+
+
+
+
+
+
+-----
+
+####  謎のヒロインX  
+##### 3231#       发表于 2020-3-13 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46723596&amp;ptid=1729513" target="_blank">hcf220 发表于 2020-3-13 19:34</a>
+
+#Fate/Grand Order 绝对魔兽战线 巴比伦尼亚# 第20话先行图＆STAFF
+
+【STAFF】
+
+脚本：武井風太</blockquote>
+这些人已经负责过好几集了
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 3232#       发表于 2020-3-13 22:10
+
+
+
+
+这预告摄像机拿小刀插提妈是认真的么<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">虽然样子是很靓仔
+
+
+
+
+
+
+
+-----
+
+####  密特里奈斯  
+##### 3233#       发表于 2020-3-13 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46724082&amp;ptid=1729513" target="_blank">廖化 发表于 2020-3-13 20:21</a>
+
+杰克啊。只要是妈就算是兽也杀给你看。
+
+另外，老邢是可以单挑空想树的存在，其他杀阶做的到吗？？！！（ ...</blockquote>
+很明显我在说设定……X毛目前国服进度又不强
+
+
+
+
+
+
+
+-----
+
+####  zakki  
+##### 3234#       发表于 2020-3-13 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725263&amp;ptid=1729513" target="_blank">xpisces 发表于 2020-3-13 22:10</a>
+这预告摄像机拿小刀插提妈是认真的么虽然样子是很靓仔</blockquote>
+不一定是提妈，也可能是拉赫姆
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3235#       发表于 2020-3-13 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这预告看懵了，先放低预期再说
+
+
+
+
+
+
+
+-----
+
+####  厄神之息  
+##### 3236#       发表于 2020-3-14 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46673333&amp;ptid=1729513" target="_blank">blackjeo1 发表于 2020-3-9 21:07</a>
+李大师 老芥和王哈的B格差太远了，女帝就更不用说了占近地利等各种有利条件还是被小莫打爆，感觉还 ...</blockquote>
+女帝宝具本来就不是贴脸战的类型啊，本来就是要塞型的宝具，隔着几公里反而厉害，而且小莫要是没狮子劫给的九头蛇早就被女帝毒翻了吧。
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 3237#       发表于 2020-3-14 10:00
+
+
+
+
+20话预告笑到我了，这就是舍弃冠位的一刀吗？我还以为不会有正面描写这一刀，只是砍完留个背影呢，这B格一下就降下来了呀。。。
+
+
+
+
+
+
+
+
+bili_v_d_1584150915841.gif
+(275.68 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-14 09:57 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/095734nkvawleqlw7k78nl.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3238#       发表于 2020-3-14 22:24
+
+
+
+
+暂时观望一下，毕竟监督亲自操刀，感觉应该问题不大
+
+
+
+
+
+
+
+-----
+
+####  七尾巨头蝎  
+##### 3239#       发表于 2020-3-14 22:44
+
+
+
+
+总结一下本集FOG：尼格在黑夜里打群架.jpg
+
+
+
+
+
+
+
+-----
+
+####  6030sylar  
+##### 3240#       发表于 2020-3-14 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这集究竟干了啥
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3241#       发表于 2020-3-14 22:59
+
+
+
+ 本帖最后由 消防 于 2020-3-14 23:18 编辑 
+
+为了防止说带节奏不详细暂时不详细评论
+
+本集<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+提妈真可爱，提妈真可爱！提妈那段相当不错
+
+
+大战结束下集回家。剩下剧情有那么多？蘑菇上线？乌鲁克重建？还是A组上线？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3242#       发表于 2020-3-14 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这集王哈相关的镜头我一个字都说不出来
+
+
+
+其他部分光看宝具乱放还行
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 3243#       发表于 2020-3-14 22:59
+
+
+
+
+闪闪开大和提妈的原创还行
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 3244#       发表于 2020-3-14 23:01
+
+
+
+
+爷爷的逼格……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 3245#       发表于 2020-3-14 23:05
+
+
+
+
+占个位
+
+
+
+
+
+
+
+-----
+
+####  rzxa  
+##### 3246#       发表于 2020-3-14 23:07
+
+
+
+
+我凛美如画，其他的也没期待了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3247#       发表于 2020-3-14 23:08
+
+
+
+
+你们别吓我，手游那边不是有舅舅党透消息说王哈要强化了吗，动画做了啥<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 3248#       发表于 2020-3-14 23:09
+
+
+
+
+?高光镜头给错人了吧
+
+
+
+
+
+
+
+-----
+
+####  线性代数选讲  
+##### 3249#       发表于 2020-3-14 23:13
+
+
+
+
+这是咕嗒破了Nega Gensis?作画资源给咕嗒不给王哈，真有你们的啊，staff。
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 3250#       发表于 2020-3-14 23:25
+
+
+
+
+一言难尽，也不多说什么了
+
+
+
+
+
+
+
+-----
+
+####  屈江鸟  
+##### 3251#       发表于 2020-3-14 23:28
+
+
+
+
+真的不行✋
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 3252#       发表于 2020-3-14 23:50
+
+
+
+
+爷爷解包强化的挺屌的<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">陈宫又有新打手玩了
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3253#       发表于 2020-3-14 23:50
+
+
+
+
+王哈变身初号机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Renes  
+##### 3254#       发表于 2020-3-15 00:04
+
+
+
+
+冠位一刀的台词都没了 这个真不能忍 逼格最高的一句话没了
+
+
+
+
+
+                                         
