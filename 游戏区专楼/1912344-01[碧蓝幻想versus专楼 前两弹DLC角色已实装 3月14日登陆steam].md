@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 22:01** 
+> ## **本文件最后更新于2020-03-14 20:03** 
 
 
 
@@ -7171,4 +7171,585 @@ dada被屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/123
 
 
 
-                                    
+
+
+-----
+
+####  美人希  
+##### 392#       发表于 2020-3-13 22:11
+
+
+
+
+steam的dlc人物和ps4的同步吗？
+
+— from OPPO PAAM00, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 393#       发表于 2020-3-14 00:45
+
+
+
+
+没看到蒸汽有页面呀<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">，还没解锁？
+
+
+
+
+
+
+
+-----
+
+####  白白白  
+##### 394#       发表于 2020-3-14 00:55
+
+
+
+
+上了，163挺便宜的
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 395#       发表于 2020-3-14 01:26
+
+
+
+
+有没买steam的说说网络和玩家数量如何
+
+
+
+
+
+
+
+-----
+
+####  白白白  
+##### 396#       发表于 2020-3-14 01:34
+
+
+
+
+提醒下，steam页面显示没中文……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 397#       发表于 2020-3-14 03:13
+
+
+
+
+没中文+不能与ps4联机<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">虽然格斗游戏没中文不重要但还是继续打ps4版吧
+
+
+
+
+
+
+
+-----
+
+####  北卡厨王  
+##### 398#       发表于 2020-3-14 04:02
+
+
+
+
+本身玩家就不多，为啥不能跨服联机啊。。。打个排位总能连续排到一个对手，都快打出感情了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 399#       发表于 2020-3-14 08:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728323&amp;ptid=1912344" target="_blank">北卡厨王 发表于 2020-3-14 04:02</a>
+本身玩家就不多，为啥不能跨服联机啊。。。打个排位总能连续排到一个对手，都快打出感情了 ...</blockquote>
+跨地区一般延迟都比较大，而且日本那边排得很快，亚洲地区没人而已<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 400#       发表于 2020-3-14 10:02
+
+
+
+
+豪华版才211，毫不犹豫就买了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  褪色的雪花  
+##### 401#       发表于 2020-3-14 10:07
+
+
+
+
+看到xseed就不想买了
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 402#       发表于 2020-3-14 10:39
+
+
+
+
+steam版和ps4版同步更新，买了豪华版就直接可以用narmaya了，太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过steam明显优化不行，分辨率不行，还有锯齿。等后续优化了。
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 403#       发表于 2020-3-14 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728323&amp;ptid=1912344" target="_blank">北卡厨王 发表于 2020-3-14 04:02</a>
+本身玩家就不多，为啥不能跨服联机啊。。。打个排位总能连续排到一个对手，都快打出感情了 ...</blockquote>
+可能是怕开了跨服之后pc会出那种可以rpg模式联机的mod吧，开挂帮ps4玩家秒怪拿码
+
+
+
+
+
+
+
+-----
+
+####  真实之影  
+##### 404#       发表于 2020-3-14 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46730665&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-3-14 11:55</a>
+
+可能是怕开了跨服之后pc会出那种可以rpg模式联机的mod吧，开挂帮ps4玩家秒怪拿码 ...</blockquote>
+那怕不是PS4读盘时间比游戏时间都长了……
+
+
+
+
+
+
+
+-----
+
+####  sunyiren  
+##### 405#       发表于 2020-3-14 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46729958&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 10:39</a>
+steam版和ps4版同步更新，买了豪华版就直接可以用narmaya了，太爽了
+
+不过steam明显优化不行，分辨率 ...</blockquote>
+关键是，ps4版能白嫖啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  sunyiren  
+##### 406#       发表于 2020-3-14 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46730665&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-3-14 11:55</a>
+可能是怕开了跨服之后pc会出那种可以rpg模式联机的mod吧，开挂帮ps4玩家秒怪拿码 ...</blockquote>
+现在还活着开最后一关房间的活菩萨都是强战力了，不开挂都随便打了，本来我也想等个金手指改钱，没成想正常打打也就搞定了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  solduchamp  
+##### 407#       发表于 2020-3-14 13:04
+
+
+
+ 本帖最后由 solduchamp 于 2020-3-14 13:05 编辑 
+
+下了个学习版试试
+
+没想到自带中文
+
+修改下文件就可以显示了
+
+
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 408#       发表于 2020-3-14 13:41
+
+
+
+
+gbvs真的挺好玩的啊，游戏内的攻略也很详细，还会告诉你人物的对策<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 409#       发表于 2020-3-14 13:58
+
+
+
+
+说起来，大招236236A带入连段有点难搓，如果用236RB来代替会有什么惩罚吗？
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 410#       发表于 2020-3-14 14:10
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-14 14:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732144&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 13:58</a>
+说起来，大招236236A带入连段有点难搓，如果用236RB来代替会有什么惩罚吗？</blockquote>
+基本没有，不过还是建议搓，养成简易的习惯有时候很烦
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 411#       发表于 2020-3-14 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732236&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-3-14 14:10</a>
+
+基本没有，不过还是建议搓，养成简易的习惯有时候很烦
+
+
+—— 来自 OnePlus GM1910, Android 9上的 S1Next ...</blockquote>
+别的必杀技我都能错，也很习惯。但是大招的236236A带入连段老是慢了。。。
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 412#       发表于 2020-3-14 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732561&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 14:45</a>
+别的必杀技我都能错，也很习惯。但是大招的236236A带入连段老是慢了。。。 ...</blockquote>
+大招就没啥必要硬搓全套了，尤其对战时如果要凹无敌时间就差那几帧
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 413#       发表于 2020-3-14 15:06
+
+
+
+ 本帖最后由 air11974 于 2020-3-14 15:07 编辑 
+
+[https://live.ixigua.com/327274/](https://live.ixigua.com/327274/)
+
+贴吧搞的国内线上比赛直播中，上班没法参加了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 414#       发表于 2020-3-14 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732561&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 14:45</a>
+别的必杀技我都能错，也很习惯。但是大招的236236A带入连段老是慢了。。。 ...</blockquote>
+手快点就行了，习惯了后手搓比简易精准的，简易236+rb+a实战手柄按快了反而出不来
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 415#       发表于 2020-3-14 15:47
+
+
+
+
+听直播解说好像简易指令大招伤害不如搓全套，游戏里好像没提过，回去验证下
+
+
+
+
+
+
+
+-----
+
+####  caiseni  
+##### 416#       发表于 2020-3-14 15:50
+
+
+
+
+steam卡按键bug有点严重
+
+
+
+
+
+
+
+-----
+
+####  纯夏  
+##### 417#       发表于 2020-3-14 15:57
+
+
+
+
+steam版这个人物的锯齿好严重啊 
+
+是只是我的问题还是大家都有？
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 418#       发表于 2020-3-14 16:13
+
+
+
+
+简易指令和普通指令的影响好像是有些大招离远了只能打一段，比如牛和菲莉只能打出那个连斩和爆炸，后面的另一段伤害演出没有
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 419#       发表于 2020-3-14 16:45
+
+
+
+
+看了下比赛，飞行道具可以通过在地面上44来躲吗？
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 420#       发表于 2020-3-14 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46733687&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 16:45</a>
+看了下比赛，飞行道具可以通过在地面上44来躲吗？</blockquote>
+不可以
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 421#       发表于 2020-3-14 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732766&amp;ptid=1912344" target="_blank">air11974 发表于 2020-3-14 15:06</a>
+
+https://live.ixigua.com/327274/
+
+贴吧搞的国内线上比赛直播中，上班没法参加了 ...</blockquote>
+比赛挺好看的
+
+
+
+
+
+
+
+-----
+
+####  trentswd  
+##### 422#       发表于 2020-3-14 18:18
+
+
+
+ 本帖最后由 trentswd 于 2020-3-14 18:19 编辑 
+
+pc版买了之后进去黑屏是怎么回事
+
+搜了一下是qq拼音冲突了 我囧
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 423#       发表于 2020-3-14 19:46
+
+
+
+
+大厅模式在哪啊？online模式里只有ranking和replay。。。
+
+
+
+
+
+
+
+-----
+
+####  hashire.owl  
+##### 424#       发表于 2020-3-14 19:51
+
+
+
+
+简易只是cd偏长啊……
+
+
+
+
+
+                                   
