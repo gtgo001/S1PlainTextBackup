@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-14 10:01** 
+> ## **本文件最后更新于2020-03-14 14:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_hcj80" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_DZ3N3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_rmUxW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_FaGAg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_FsfB8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Cro6F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_Fzk4Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_VWiP3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_xgIqJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_a5w67" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Us933" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_pe44n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_BbPZm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_oZkf1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17350,7 +17350,7 @@ TIM截图20200314004404.png
 
 
 ES_3bMOUwAEpJzq.jpeg
-(55.07 KB, 下载次数: 1)
+(55.07 KB, 下载次数: 2)
 
 
 
@@ -18389,7 +18389,7 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_mk5lv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_NdH0s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18456,7 +18456,7 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_zkHFg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_m39S6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18490,8 +18490,8 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_IDSp2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_pWxHK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_ZVe5R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_ohp2z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18747,4 +18747,578 @@ SYL B站用户至少4成的学生，看见家长这两个字就天生反感，�
 
 
 
-                
+
+
+-----
+
+####  耻照  
+##### 15995#       发表于 2020-3-14 11:14
+
+
+
+ 本帖最后由 耻照 于 2020-3-14 11:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">遇到活的太监了，刚欣赏完主子的塔觉得惭愧跑底下发起阵营大战表忠的那种
+
+
+也不知道放着业界这么多年轻套皮女主播不看，为什么非要执着于给掐萌声的老阿姨当太监呢？
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 15996#       发表于 2020-3-14 11:37
+
+
+
+
+看个中之人能玩出冲塔，甚至是凝视深渊这种形容，v🐶是真的不行。
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 15997#       发表于 2020-3-14 11:46
+
+
+
+<blockquote>free 发表于 2020-3-14 08:56
+狐皇之所以没有竞争过狗妈成为中国第一金盾，一个原因就在于狗妈是有猫的真实美少女，狐皇虽然真实美少女比 ...</blockquote>
+有理有据，使人信服
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 15998#       发表于 2020-3-14 11:47
+
+
+
+<blockquote>cckuku 发表于 2020-3-14 09:55
+确实，希望养猫的成员都多发点pussy图</blockquote>
+我怀疑你在开车，但是我没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15999#       发表于 2020-3-14 11:49
+
+
+
+
+釜山后来居上，比天宫先银盾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝三家三人都有着美好的未来
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16000#       发表于 2020-3-14 11:49
+
+
+
+
+看misaki小姐的猫看够了，小狐狸往后往后稍稍（就他妈知道又在耍猴）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16001#       发表于 2020-3-14 11:54
+
+
+
+
+虚拟主播好好套皮活在网上好不好，养nm猫呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 16002#       发表于 2020-3-14 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46730652&amp;ptid=1907975" target="_blank">Dualist彩 发表于 2020-3-14 11:54</a>
+虚拟主播好好套皮活在网上好不好，养nm猫呢</blockquote>
+帮猫也搞个live2d吧，再出3d，我看能火<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 16003#       发表于 2020-3-14 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46729130&amp;ptid=1907975" target="_blank">free 发表于 2020-3-14 08:56</a>
+狐皇之所以没有竞争过狗妈成为中国第一金盾，一个原因就在于狗妈是有猫的真实美少女，狐皇虽然真实美少女比 ...</blockquote>
+狐皇以后也要没事在b博发猫图营业了吗，可是腿没狗妈的上镜怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16004#       发表于 2020-3-14 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">猫套live2d，套皮女主播就该下岗了。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16005#       发表于 2020-3-14 12:13
+
+
+
+
+V无关，斗虫相关：川皇昨夜直播同接破五万，按照你圈标准可以封为川圣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16006#       发表于 2020-3-14 12:14
+
+
+
+
+川圣不是正常操作，不过川圣重大发表以虚无著称，不知和holo重大相比如何？
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 16007#       发表于 2020-3-14 12:22
+
+
+
+
+才五万？同样是3D，木口随便拉一排人来发布都吊打川建国，这还不退位留着过年呢？
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 16008#       发表于 2020-3-14 12:22
+
+
+
+ 本帖最后由 TRW 于 2020-3-14 12:23 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16009#       发表于 2020-3-14 12:23
+
+
+
+
+mata川现在能在国内播了？！
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 16010#       发表于 2020-3-14 12:33
+
+
+
+<blockquote>深林幽泉 发表于 2020-3-14 02:45
+话说今天是不是白姨重大发表啊，不要整了半天就是养了个猫。不过木口的重大发表就这尿性 ...</blockquote>
+白姨一贯作风
+
+放国内某平台就是"爷宣布xxx"
+
+不过皮套很可爱所以干什么都会被原谅
+
+
+
+
+
+
+
+-----
+
+####  giftia  
+##### 16011#       发表于 2020-3-14 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+1.jpg
+(61.97 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-14 12:40 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/124046yus69hbaoysmtubf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16012#       发表于 2020-3-14 12:45
+
+
+
+
+来点帅气阿葵
+<img src="http://wx2.sinaimg.cn/mw690/006EhWEMly1gcssit8ae1j30u018ne81.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16013#       发表于 2020-3-14 12:58
+
+
+
+
+要被撞好惨啊，阿葵太狠了
+
+
+
+
+
+
+960C9E8B-1D1C-472B-9398-9A4492041D0E.jpeg
+(13.37 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-14 12:57 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/125756ofpfhpffqyyum3f3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 16014#       发表于 2020-3-14 12:59
+
+
+
+
+【歌枠】いっぱいうたおーー！【メリッサ・キンレンカ/にじさんじ】
+[https://www.youtube.com/watch?v=ecDu_FavfUg&amp;feature=youtu.be](https://www.youtube.com/watch?v=ecDu_FavfUg&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 16015#       发表于 2020-3-14 13:02
+
+
+
+
+今晚杏ark大逃杀，必是我圣亏皇活到最后，喜提3万同接，凑阿夸最强！凑阿夸最强！
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 16016#       发表于 2020-3-14 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3w这是看不起谁呢，活到最后带天使不给你斩个6w大棒？
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 16017#       发表于 2020-3-14 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今晚有我最喜欢的葛尊糖
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16018#       发表于 2020-3-14 13:26
+
+
+
+ 本帖最后由 fs001 于 2020-3-14 13:35 编辑 
+
+空妈那怎么待机了半小时还没开阿。。
+
+syl 草 模型一直卡着往左飘 过气连修都不修了
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 16019#       发表于 2020-3-14 13:37
+
+
+
+<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_ep7bV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16020#       发表于 2020-3-14 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46731932&amp;ptid=1907975" target="_blank">qdaqd123 发表于 2020-3-14 13:37</a></blockquote>
+还行哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 16021#       发表于 2020-3-14 13:39
+
+
+
+
+ラトナ・プティ/Ratna Petit
+
+【歌枠・雑談】11:00 - 寝起きなんかうたおー！！【ラトナ・...
+
+2020-03-14(土) 11:05:46 / 2h6m26s
+
+視聴者:約2642人 累計:16850人
+
+チャット:7548件 / 1066人
+
+スパチャ:162件 / 約￥387,090
+
+新規メンバ:18人
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16022#       发表于 2020-3-14 13:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 釜山先银盾，啊喵喵不仅没去回推，还在那YYGQ，舒服了，同期不仲多来点
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 16023#       发表于 2020-3-14 13:49
+
+
+
+<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_hmt3d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_r4Nv8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|顺序反了|
+
+
+
+查看全部评分
+
+
+
+
+               

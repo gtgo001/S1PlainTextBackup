@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 04:02** 
+> ## **本文件最后更新于2020-03-14 14:02** 
 
 
 
@@ -14894,4 +14894,764 @@ sdy，对我这样有点自闭的人来说，极端CP党=否认人可以自己�
 
 
 
-                      
+
+
+-----
+
+####  暗心舞踏  
+##### 2314#       发表于 2020-3-13 04:55
+
+
+
+
+天天都有拿张图问出处的，二创当然可以脱离本体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 2315#       发表于 2020-3-13 08:38
+
+
+
+<blockquote>无限舰制 发表于 2020-3-13 03:10
+sdy，对我这样有点自闭的人来说，极端CP党=否认人可以自己创造价值，必须得和他人交流、碰撞才有价值
+
+
+那我 ...</blockquote>
+对我来说确实两个人各自的价值不如她们一起创造的价值，不是不能欣赏，只是回到个人上时就会更加注意个人的品性，然后和自己不太一致乃至严重对立的特质就会显露出来，最后渐行渐远
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2316#       发表于 2020-3-13 09:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2317#       发表于 2020-3-13 09:37
+
+
+
+
+mk2黔驴技穷，开始两楼复制了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 2318#       发表于 2020-3-13 09:38
+
+
+
+ 本帖最后由 ddsdse 于 2020-3-13 09:40 编辑 
+
+一开始说mk2有kpi任务我还不信 现在看见他开始几个楼复制 我有丶怀疑了
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2319#       发表于 2020-3-13 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl我只是单纯想炸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2320#       发表于 2020-3-13 09:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个复制粘贴的被塞了，我劝你好自为之
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2321#       发表于 2020-3-13 10:14
+
+
+
+
+简单算了一下那位也应该快出来了，到时候你版流量就有救了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  买表大户  
+##### 2322#       发表于 2020-3-13 10:47
+
+
+
+
+那位也是车轱辘话，你版版宠ig感觉也不太行了，车轱辘太多大家都免疫了，看好新晋a7哥，钓鱼角度比较刁钻
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2323#       发表于 2020-3-13 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46715270&amp;ptid=1914314" target="_blank">ddy2811 发表于 2020-03-13 08:38:29</a>
+对我来说确实两个人各自的价值不如她们一起创造的价值，不是不能欣赏，只是回到个人上时就会更加注意个人 ...</blockquote>那就看个人观点了……
+我是即使对方和自己有冲突也无所谓，一样有价值，甚至广义来说有冲突才好
+——因为事实上是不可能没冲突的
+所以我还是觉得互怼很有节目效果
+但也不能是普普通通的撕逼…
+最好是理解到双方的不同但仍然试着理解、共存
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 2324#       发表于 2020-3-13 12:27
+
+
+
+<blockquote>无限舰制 发表于 2020-3-13 11:59
+那就看个人观点了……
+
+我是即使对方和自己有冲突也无所谓，一样有价值，甚至广义来说有冲突才好
+
+——因为事 ...</blockquote>
+有冲突是难免的，没冲突才不正常，不过当冲突涉及到比较原则性的问题时理解和尊重就非常困难了，很不幸这两个人都有
+
+
+
+
+
+
+
+-----
+
+####  Nichtig  
+##### 2325#       发表于 2020-3-13 13:27
+
+
+
+
+虽然一直在乐贴贴人，但这事我真的笑了好久：
+
+前两天出现了一张沙雕gif，是一只猫在强上一只兔子，分别被p上了咩的帽子和夸的纸巾
+
+于是好多贴贴人根据这张沙雕图创作了好多贴贴图(b站上光是带tag的近十张)
+
+
+<img src="https://img.saraba1st.com/forum/202003/13/132531jcoxgy1nxs1sg7ds.png" referrerpolicy="no-referrer">
+
+
+<strong>U[@30@8(`RRQMW}(QRIG0UK.png</strong> (15.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-13 13:25 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">已经出现三次创作了，所以我开始相信就算v圈灭亡咩夸贴贴也能存续，甚至出现“贴贴宇宙”
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2326#       发表于 2020-3-13 16:21
+
+
+
+
+艹，这么看这cp完蛋任重道远啊
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 2327#       发表于 2020-3-13 18:20
+
+
+
+
+那些宗教的教主死掉上千年了一样有人信啊，内容少和虚空根本不是问题，翻来覆去车轱辘的ysl现在横着走，相对反对虚空的新教到现在人数也没打过天主教，很多时候关键不在于事实以及创立者的观点如何，而在于信仰体系的构建与修补，liver本人的参与很重要，但有时候也并不那么重要了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2328#       发表于 2020-3-13 19:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mrra到现在都还有人问为啥不贴了呢，meaqua这种我怀疑就算已经把撕逼摆到台面上了也会继续存在
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2329#       发表于 2020-3-13 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别的不说，把v圈里的不少人设再加上脑海中的虚空二创搞脑补还是挺合适的。完结的动画里面的人物还有cp党呢，何况vtb，除非两个人各自有新的营业对象，或者大打出手，不然这对cp就算一两年没有联系也死不了。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2330#       发表于 2020-3-13 21:59
+
+
+
+
+你们没听说过一对大热cp叫龙哀的吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，
+
+
+是越前龙马X灰原哀哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Oshino57  
+##### 2331#       发表于 2020-3-14 04:11
+
+
+
+
+补了夸粥线下联动，这节目效果也太水了
+
+
+挑了个不方便 free talk 的游戏是一方面，另一方面 おかゆ 送话题的能力比起 mea 菜太多了
+
+
+旧约MC级的百合节目再也看不到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2332#       发表于 2020-3-14 05:10
+
+
+
+
+敬请关注kmkk哦
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2333#       发表于 2020-3-14 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">太太们好强大，今天又一名连体婴头子退坑，狂喜，我一定要熬到布丁死的那天
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2334#       发表于 2020-3-14 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46731196&amp;ptid=1914314" target="_blank">planetcd 发表于 2020-3-14 12:41</a>
+
+太太们好强大，今天又一名连体婴头子退坑，狂喜，我一定要熬到布丁死的那天 ...</blockquote>
+赞，不过是谁啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2335#       发表于 2020-3-14 12:54
+
+
+
+
+风见越这种极端分子退坑对任何人来说都是好事
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2336#       发表于 2020-3-14 12:54
+
+
+
+<blockquote>planetcd 发表于 2020-3-14 12:41
+太太们好强大，今天又一名连体婴头子退坑，狂喜，我一定要熬到布丁死的那天 ...</blockquote>
+谁啊？md喜事怎么还能当谜语人的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2337#       发表于 2020-3-14 13:00
+
+
+
+ 本帖最后由 时雨rain 于 2020-3-14 13:01 编辑 
+
+风见越退的是meaqua坑？她是不当连体婴还是说不看管人了？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2338#       发表于 2020-3-14 13:01
+
+
+
+
+贴贴人又痛失一员大将<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2339#       发表于 2020-3-14 13:02
+
+
+
+<blockquote>时雨rain 发表于 2020-3-14 13:00
+风见越退的是meaqua坑？她是不当连体婴还是说不看管人了？</blockquote>
+看剩下的投稿大概是变成咩唯了，谁知道呢
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 2340#       发表于 2020-3-14 13:04
+
+
+
+
+  梦醒是好事啊
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2341#       发表于 2020-3-14 13:04
+
+
+
+
+正常，虚空二创也是有极限的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2342#       发表于 2020-3-14 13:06
+
+
+
+
+不过黑羽仙洛倒是把咩夸官号都取关了，看来前几天的事对咩夸党来说很刺激啊。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2343#       发表于 2020-3-14 13:07
+
+
+
+
+你们关注粉丝的热情是真的高...
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2344#       发表于 2020-3-14 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46731537&amp;ptid=1914314" target="_blank">framita 发表于 2020-3-14 13:07</a>
+你们关注粉丝的热情是真的高...</blockquote>
+之前有个日本的剪辑退坑了，被anti串车轱辘了半年多，两边都是差不多的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2345#       发表于 2020-3-14 13:15
+
+
+
+
+那个剪辑指的是荷包蛋的话，那可不叫退坑，那是转黑跳脸
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2346#       发表于 2020-3-14 13:17
+
+
+
+
+喜闻乐见的局面
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2347#       发表于 2020-3-14 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46731644&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-3-14 13:15</a>
+那个剪辑指的是荷包蛋的话，那可不叫退坑，那是转黑跳脸
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户 ...</blockquote>
+就是荷包蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是转黑，重点是都被安排上几个月半年的啊
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 2348#       发表于 2020-3-14 13:18
+
+
+
+
+前几天指带天使跟小粥贴贴直播?招魂人这就顶不住了?太孝了吧，带天使真是光芒万丈，又成功的净化了一批无家可归的孤魂野鬼
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2349#       发表于 2020-3-14 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">看不到想看的退坑不是很正常吗 有什么好说的 比起退坑还要跳脸的好多了吧？
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 2350#       发表于 2020-3-14 13:28
+
+
+
+
+我记得荷包蛋在5ch不是被称作n家X奴么,被5ch anti串那种粪坑里的anti都瞧不起的anti,也是没谁了
+
+而且这人退坑和cp也没关系啊. 当时麻酱直播里点艹私信的云p,虽然没点名但是他突然就炸了,简直不打自招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2351#       发表于 2020-3-14 13:30
+
+
+
+
+等四月咖啡厅第二季你们就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2352#       发表于 2020-3-14 13:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弟啊到底第二集啥时候开始给个准
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2353#       发表于 2020-3-14 13:32
+
+
+
+ 本帖最后由 SumW5 于 2020-3-14 13:33 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2354#       发表于 2020-3-14 13:32
+
+
+
+
+你给我看我就喊贴贴.jpg
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2355#       发表于 2020-3-14 13:33
+
+
+
+ 本帖最后由 framita 于 2020-3-14 13:35 编辑 
+
+看阿B动态啊，她准备打boss去了
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2356#       发表于 2020-3-14 13:59
+
+
+
+
+咖啡厅是剧场版又不是TV版，就算不跳票，起码也要等一个季度吧，你看看那些完结动画的剧场版间隔时间，说不定一年两年呢
+
+
+
+
+
+                     
