@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-13 22:02** 
+> ## **本文件最后更新于2020-03-14 18:03** 
 
 
 
@@ -21952,4 +21952,457 @@ talkop除了这个左右手也有其他分析，包括但不限于：</blockquot
 
 
 
-             
+
+
+-----
+
+####  Tomorrow_D  
+##### 52086#       发表于 2020-3-13 22:34
+
+
+
+
+最新两话让之前的憋屈感消退了一大半，舒服多了
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52087#       发表于 2020-3-13 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46723888&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-13 20:01</a>
+
+我倒是希望自始至终都是勘十郎画出来的——这证明真正的小忍可能没这么老，是个美熟女忍者！ ...</blockquote>
+问题在于 阿忍泡过澡的 真要是能力不会不受水的影响
+
+
+
+
+
+
+
+-----
+
+####  西奈？！  
+##### 52088#       发表于 2020-3-13 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725617&amp;ptid=98922" target="_blank">金鱼师父 发表于 2020-3-13 22:36</a>
+
+问题在于 阿忍泡过澡的 真要是能力不会不受水的影响</blockquote>
+这集淋雨划船也没影响啊
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52089#       发表于 2020-3-13 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725617&amp;ptid=98922" target="_blank">金鱼师父 发表于 2020-3-13 22:36</a>
+
+问题在于 阿忍泡过澡的 真要是能力不会不受水的影响</blockquote>
+海水才会影响的，水的话没事
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52090#       发表于 2020-3-13 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46723224&amp;ptid=98922" target="_blank">yeluffy 发表于 2020-3-13 18:58</a>
+四皇也3个旱鸭子呀</blockquote>
+凯多虽然是旱鸭子，但是应该淹不死，因为果实原因应该能水下呼吸
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52091#       发表于 2020-3-13 22:57
+
+
+
+
+这话大家目光都在堪十郎身上，我反而对凯多说的那个“过了20年，正好有事可以问问光月的余孽”很感兴趣。凯多到底想问啥啊
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 52092#       发表于 2020-3-13 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725863&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-3-13 22:57</a>
+
+这话大家目光都在堪十郎身上，我反而对凯多说的那个“过了20年，正好有事可以问问光月的余孽”很感兴趣。凯 ...</blockquote>
+怕不是“洗澡晕不晕”
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52093#       发表于 2020-3-14 01:07
+
+
+
+
+小菊要是碰到人妖王会不会。。。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52094#       发表于 2020-3-14 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725617&amp;ptid=98922" target="_blank">金鱼师父 发表于 2020-3-13 22:36</a>
+问题在于 阿忍泡过澡的 真要是能力不会不受水的影响</blockquote>
+最大的问题是，小忍展示过果实能力，画出来的人要是能力也能复制也太bug了。
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52095#       发表于 2020-3-14 02:03
+
+
+
+
+勘十郎给大蛇汇报路飞占领兔碗了，大蛇要求凯多方面给兔碗打电话确认，监狱长被小玉收服了说了假话，大蛇听说监狱没事还说了一句你这样可要失信于寡人了，就是在说勘十郎
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52096#       发表于 2020-3-14 02:05
+
+
+
+
+大蛇说那句话的时候挺突兀的还给了罗一个分镜，我一直挺好奇这段时间里**了什么，到现在的反间谍计划应该都是罗的主意
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52097#       发表于 2020-3-14 02:06
+
+
+
+
+罗 都 干是什么禁词…
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52098#       发表于 2020-3-14 05:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46727747&amp;ptid=98922" target="_blank">羲和 发表于 2020-3-14 02:06</a>
+
+罗 都 干是什么禁词…</blockquote>
+现在智囊的工作主要是罗在做了
+
+
+可怜山治
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52099#       发表于 2020-3-14 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725863&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-3-13 22:57</a>
+
+这话大家目光都在堪十郎身上，我反而对凯多说的那个“过了20年，正好有事可以问问光月的余孽”很感兴趣。凯 ...</blockquote>
+“你是怎么让这么多部下愿意为你而死”？这样？
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52100#       发表于 2020-3-14 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725863&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-3-13 22:57</a>
+
+这话大家目光都在堪十郎身上，我反而对凯多说的那个“过了20年，正好有事可以问问光月的余孽”很感兴趣。凯 ...</blockquote>
+大秘宝吧，20年前没兴趣，现在想问问了，对应了锦卫门之前说过的话。
+
+
+
+
+
+
+
+-----
+
+####  rp1993  
+##### 52101#       发表于 2020-3-14 11:23
+
+
+
+
+堪十郎这种设定上的完美卧底也太讨巧了吧……
+结果卧底这个雷埋了这么久，最后简单的就自爆了
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52102#       发表于 2020-3-14 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46727505&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-14 01:32</a>
+
+最大的问题是，小忍展示过果实能力，画出来的人要是能力也能复制也太bug了。 ...</blockquote>
+“忍术”是不是果实能力还两说吧
+
+
+
+
+
+
+
+-----
+
+####  theti  
+##### 52103#       发表于 2020-3-14 12:31
+
+
+
+
+终于回来了，好奇路飞怎么击败两个四皇联手
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52104#       发表于 2020-3-14 12:47
+
+
+
+<blockquote>rp1993 发表于 2020-3-14 11:23
+堪十郎这种设定上的完美卧底也太讨巧了吧……
+
+结果卧底这个雷埋了这么久，最后简单的就自爆了 ...</blockquote>
+不是自爆，是大蛇觉得已经结束了，不需要他卧底了，最后任务抓住桃之助。只不过没想到现在被翻盘了。
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52105#       发表于 2020-3-14 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46730338&amp;ptid=98922" target="_blank">rp1993 发表于 2020-3-14 11:23</a>
+
+堪十郎这种设定上的完美卧底也太讨巧了吧……
+
+结果卧底这个雷埋了这么久，最后简单的就自爆了 ...</blockquote>
+应该说是个完美的工具人。
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52106#       发表于 2020-3-14 14:11
+
+
+
+
+我现在就想知道堪十郎的下场是啥，别最后感化洗白了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52107#       发表于 2020-3-14 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732252&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-3-14 14:11</a>
+我现在就想知道堪十郎的下场是啥，别最后感化洗白了吧</blockquote>
+你别说，勘十郎被感化洗白的概率非常之高。对于沉溺于表演、没有自我，死了也无怨无悔的人，要诛心就只能让他重拾自我，重拾活下去的动力，但这样也就基本等同于洗白。海贼里不是没有这样的先例，布林就是一直假装爱山治最后真的爱上山治了（但过程真的很老套生硬，没办法，海贼中的人思维都比较直线）。
+这话勘十郎质问大家为什么不怀疑他就是一个感化洗白的点，因为九侠是真心把他当成伙伴的，这也是他能一直演到现在的原因之一，等他理解这一点后自然就会悔恨不已。
+
+
+
+
+
+
+
+-----
+
+####  机动妖精  
+##### 52108#       发表于 2020-3-14 15:08
+
+
+
+
+不行啊，这局面怕是卧底下一话就又跳回主角方了
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52109#       发表于 2020-3-14 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46730929&amp;ptid=98922" target="_blank">icewolf01 发表于 2020-3-14 12:20</a>
+“忍术”是不是果实能力还两说吧</blockquote>
+她自己说的，“熟熟之术”，就是果实能力了。
+但这个20年后的小忍确实老得过快了，居然还有“尖端恐惧症”，之前不是嘴里叼苦无都和玩一样吗？
+
+
+
+
+
+
+
+-----
+
+####  晓寒  
+##### 52110#       发表于 2020-3-14 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46723888&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-13 20:01</a>
+
+我倒是希望自始至终都是勘十郎画出来的——这证明真正的小忍可能没这么老，是个美熟女忍者！ ...</blockquote>
+不能同意更多
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52111#       发表于 2020-3-14 18:00
+
+
+
+
+这设定洗白不要太容易，他不是心没了吗？帮他把心找回来就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说WT到底知不知道死宅想看什么啊，这种人设一般不都该是眼神空洞的美少女吗？你塞个丑男让我怎么原谅他啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            

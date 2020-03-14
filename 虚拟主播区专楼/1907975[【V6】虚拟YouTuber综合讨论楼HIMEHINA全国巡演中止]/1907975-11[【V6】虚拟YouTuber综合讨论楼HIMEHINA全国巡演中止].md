@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-14 14:01** 
+> ## **本文件最后更新于2020-03-14 18:02** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_FaGAg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_FsfB8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_Cro6F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_fm8q8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_BQCPv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_S4F5l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_VWiP3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_C42d2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_a5w67" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_ln5HN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_pe44n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_CH86s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_oZkf1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_sV1jz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18389,7 +18389,7 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_NdH0s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_D8ChZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18456,7 +18456,7 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_m39S6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_ydMN1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18490,8 +18490,8 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_ZVe5R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_ohp2z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_b8bz8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_MOOi7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19099,7 +19099,7 @@ mata川现在能在国内播了？！
 
 
 960C9E8B-1D1C-472B-9398-9A4492041D0E.jpeg
-(13.37 KB, 下载次数: 0)
+(13.37 KB, 下载次数: 1)
 
 
 
@@ -19221,7 +19221,7 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_ep7bV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_iDyd7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19295,8 +19295,8 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_hmt3d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_r4Nv8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_eD0Rd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_JHBtz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19321,4 +19321,530 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-               
+
+
+-----
+
+####  Suny08  
+##### 16024#       发表于 2020-3-14 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732063&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-14 13:49</a>
+
+釜山先银盾，啊喵喵不仅没去回推，还在那YYGQ，舒服了，同期不仲多来点 ...</blockquote>
+2000哥你别乱放黑屁啊，阿喵喵在聊pcr怎么变成yygq了
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 16025#       发表于 2020-3-14 14:08
+
+
+
+<img src="https://img.imoutomoe.net/images/2020/03/14/QQ20200314140626.jpg" referrerpolicy="no-referrer">
+<img src="https://img.imoutomoe.net/images/2020/03/14/QQ20200314000345.jpg" referrerpolicy="no-referrer">
+
+这一对比下来……mio养的这只看起来好凶啊
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16026#       发表于 2020-3-14 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732213&amp;ptid=1907975" target="_blank">Reimu853 发表于 2020-3-14 14:08</a>
+
+这一对比下来……mio养的这只看起来好凶啊</blockquote>
+美短比较粘人，tiger这张拍得有点像藏狐。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16027#       发表于 2020-3-14 14:30
+
+
+
+
+红心这日增怎么回事，昨天没看。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16028#       发表于 2020-3-14 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732063&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-14 13:49</a>
+釜山先银盾，啊喵喵不仅没去回推，还在那YYGQ，舒服了，同期不仲多来点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">哪里yygq了？人都说了自己早上有事得出门，没看见吗？
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16029#       发表于 2020-3-14 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732444&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-14 14:30</a>
+ 红心这日增怎么回事，昨天没看。</blockquote>
+昨天下午搞了个用脚玩壶，涨了2000，晚上我就没看了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stuka1942  
+##### 16030#       发表于 2020-3-14 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732213&amp;ptid=1907975" target="_blank">Reimu853 发表于 2020-3-14 14:08</a>
+
+这一对比下来……mio养的这只看起来好凶啊</blockquote>
+毕竟叫tiger，mio唱歌时tiger不是还咬话筒线吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16031#       发表于 2020-3-14 14:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732213&amp;ptid=1907975" target="_blank">Reimu853 发表于 2020-3-14 14:08</a>
+
+这一对比下来……mio养的这只看起来好凶啊</blockquote>
+tiger本来就成年猫了
+
+temari还是小猫吧
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16032#       发表于 2020-3-14 15:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732444&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-14 14:30</a>
+
+红心这日增怎么回事，昨天没看。</blockquote>
+红心脚臭上推特趋势了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16033#       发表于 2020-3-14 15:17
+
+
+
+
+问题是这种用脚玩游戏的企划......也没有任何办法能证明真的是用脚打的吧
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 16034#       发表于 2020-3-14 15:19
+
+
+
+
+这是要靠电脑前的各位脑补的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16035#       发表于 2020-3-14 15:22
+
+
+
+
+边玩边鼓掌
+<img src="https://i.imgur.com/Yj3xrss.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 16036#       发表于 2020-3-14 15:54
+
+
+
+
+用脚玩不把手柄弄臭了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16037#       发表于 2020-3-14 16:01
+
+
+
+
+穿的フットパット
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16038#       发表于 2020-3-14 16:23
+
+
+
+
+也许你楼有关：nba停摆了那帮球星现在都在家里搞游戏直播。
+
+
+
+
+
+
+
+-----
+
+####  Mawile  
+##### 16039#       发表于 2020-3-14 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46733491&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-14 16:23</a>
+
+也许你楼有关：nba停摆了那帮球星现在都在家里搞游戏直播。</blockquote>
+虚拟黑猩猩已经有过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不新奇了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16040#       发表于 2020-3-14 16:46
+
+
+
+
+杏男已经费拉到要杏女反串出男性音声了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16041#       发表于 2020-3-14 16:52
+
+
+
+
+stars音声相关：字幕组为听不太懂日语的人提供文本翻译，当然要出示购买证明，Q群群号在stars官号动态处可见，公开发表感想时请勿外传与剧透
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16042#       发表于 2020-3-14 17:01
+
+
+
+ 本帖最后由 cckuku 于 2020-3-14 17:04 编辑 
+
+pp天使是觉得这样装傻很有节目效果吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+成功的让我点了个踩<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">夸皇好的不学你学她弱智rp？
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16043#       发表于 2020-3-14 17:13
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-14 17:27 编辑 
+
+我没看过夸夸直播，好的是什么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl那没戏了，“阿夸天赋选手，还每天磨练技术”，还是抄点有节目效果的粪游吧，夸夸是不可复制的
+
+
+
+
+
+
+
+-----
+
+####  仇绝恨  
+##### 16044#       发表于 2020-3-14 17:15
+
+
+
+ 本帖最后由 仇绝恨 于 2020-3-14 17:19 编辑 
+
+游戏技术吧
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 16045#       发表于 2020-3-14 17:25
+
+
+
+
+弱智rp最好学啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16046#       发表于 2020-3-14 17:29
+
+
+
+
+虹也播boss团了，这是要把作业抄干净，不留余地啊
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16047#       发表于 2020-3-14 17:34
+
+
+
+
+再安排个内鬼就有趣了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16048#       发表于 2020-3-14 17:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 阿葵把葛尊放一起，这是懂得，尊妈应该是葵皇弟妹？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16049#       发表于 2020-3-14 17:41
+
+
+
+
+怎么感觉虹ark科技比杏的强，
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 16050#       发表于 2020-3-14 17:43
+
+
+
+
+虹这边黑黑刚玩没多久就杀了个BOSS解锁了部分泰克科技
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16051#       发表于 2020-3-14 17:43
+
+
+
+
+叶师玩tek科技都有段时间了，当然比holo强啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 16052#       发表于 2020-3-14 17:46
+
+
+
+
+葵皇这边把葛尊还有哈哥夜见放一队是故意的吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16053#       发表于 2020-3-14 17:48
+
+
+
+
+坐等虹人来个葛尊交流报告
+
+
+syl
+
+哈哥夜见有什么梗？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 16054#       发表于 2020-3-14 17:55
+
+
+
+
+说是夜见是哈哥亲妹？好像也没实锤的
+
+
+
+
+
+              
