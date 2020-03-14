@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 00:05** 
+> ## **本文件最后更新于2020-03-15 02:04** 
 
 
 
@@ -5091,11 +5091,1747 @@ bili_v_d_1584150915841.gif
 
 
 
+ 本帖最后由 Renes 于 2020-3-15 00:15 编辑 
 
 冠位一刀的台词都没了 这个真不能忍 逼格最高的一句话没了
 
 
+金闪闪真特么蘑菇亲爹 服了
 
 
 
-                                         
+
+
+
+
+
+-----
+
+####  wang1309495  
+##### 3255#       发表于 2020-3-15 00:06
+
+
+
+
+一看就是蘑菇又插手写了原创部分<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3256#       发表于 2020-3-15 00:17
+
+
+
+
+传说中扭转战局的一刀就这？
+表现力甚至不如充电宝跑酷。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耳朵  
+##### 3257#       发表于 2020-3-15 00:20
+
+
+
+
+什么也不说了，翻出FA22话释放下
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3258#       发表于 2020-3-15 00:24
+
+
+
+
+喂提妈圣杯（人形限定）<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+其他的就不说了省得又被说带节奏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3259#       发表于 2020-3-15 00:25
+
+
+
+ 本帖最后由 wolegequaaa 于 2020-3-15 00:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提妈的翅膀为什么看起来一点事都没有啊
+
+
+
+
+如果这集和传言一样有菌类插手，那奈须蘑菇懂个p的fate动画就要成真理了啊
+
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3260#       发表于 2020-3-15 00:25
+
+
+
+ 本帖最后由 多汁多水 于 2020-3-15 00:30 编辑 
+
+***冠位一刀的表现力去哪了？？？？？？？？
+
+
+***的爷爷大战11子就是变成初号机啃两口？？？***整集爷爷挥剑连点力道感的音效都没有，***对得起爷爷满破一手大剑一手巨盾的力量感造型么！？
+
+
+***王哈六章站撸高文，潜入拉二金字塔一刀砍头的气势全**没了，我都不知道动画里他闪来闪去砍个**
+
+
+***25集的档期做21集就**算了，***21集的量还**要再减一集不知道用来干嘛？？？
+
+
+我现在到底有没终章根本没想法了，就想爆粗而已
+
+
+脑子有坑吧！制作组！！！
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 3261#       发表于 2020-3-15 00:28
+
+
+
+ 本帖最后由 临界点 于 2020-3-15 00:30 编辑 
+
+感觉还是差口气  18集还是巅峰   18     》19》20  ........
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 3262#       发表于 2020-3-15 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 3263#       发表于 2020-3-15 00:34
+
+
+
+
+看完熟肉
+学妹的宝具逼格up
+闪闪逼格up
+王哈逼格基本没了，不过还好实力还在
+高光镜头感觉完全给错人了
+
+
+
+
+
+
+
+-----
+
+####  索拉利斯  
+##### 3264#       发表于 2020-3-15 00:38
+
+
+
+
+提妈说话了！！
+
+10/10
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 3265#       发表于 2020-3-15 00:38
+
+
+
+
+这一集的宝具冥府阿瓦隆卡美洛都是场地魔法，音效一如既往
+
+我难以理解的是。。。上一集狂干进度到王哈出场，然后这一集王哈的表现力这么差？？？出场一刀纹身+被小怪戳成蜂窝+趴地和小怪激情互撕
+
+总之就俩活人，玛修拿盾这门手艺别浪费，闪闪扔把小刀让立香上去戳就完事了是吧？那这之后开个EA是单纯的庆祝还是报复一下刚退场的挖掘工人艾蕾？
+
+狗屎OP是一定要原画面全放送的对吧?
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3266#       发表于 2020-3-15 00:39
+
+
+
+ 本帖最后由 多汁多水 于 2020-3-15 00:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738683&amp;ptid=1729513" target="_blank">qigeer 发表于 2020-3-15 00:34</a>
+
+看完熟肉
+
+学妹的宝具逼格up
+
+闪闪逼格up</blockquote>
+其实给咕哒设计个高光镜头并没有问题
+
+
+但抢占王哈镜头这制作组脑子就有病！！
+
+
+其实真做满21集，这些镜头完全是可以组合好的，19集掉冥界收尾，20集冠位一刀+梅林收尾
+
+
+21集闪闪+咕哒飞奔装半集比格，艾蕾小天使收尾，剩下半集后日谈，甚至不要后日谈都没问题，这样安排是完全足够释放相关情感和回收游戏经典场面的
+
+
+但是奈何他们脑子有病啊啊！！
+
+
+
+
+
+
+
+-----
+
+####  未来起航  
+##### 3267#       发表于 2020-3-15 00:40
+
+
+
+
+闹了一大通合着这是帮（双？）王厨<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  RUANHYC  
+##### 3268#       发表于 2020-3-15 00:41
+
+
+
+
+除了王哈b格全无和提妈那里的对白看不懂以外其他都ok<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Theory_茶叶  
+##### 3269#       发表于 2020-3-15 00:42
+
+
+
+ 本帖最后由 Theory_茶叶 于 2020-3-15 00:43 编辑 
+
+坦白说提亚马特说话这个情节有些多余感，只要有提亚马特站在纯白的空间中寂寞地低垂目光这个镜头就足够了，千言万语，不如不言。
+
+
+
+
+
+
+
+-----
+
+####  人生オワタ  
+##### 3270#       发表于 2020-3-15 00:45
+
+
+
+
+爆炸的音效还是仍然太让人无语了，另外部分赶工作画是否有点崩坏
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3271#       发表于 2020-3-15 00:45
+
+
+
+ 本帖最后由 kyonkoism 于 2020-3-15 00:49 编辑 
+
+就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这就这？
+
+这改的啥啊，不是我一个摄影机怎么提着刀冲进去把boss给戳了啊，而且爷爷咋变成二号机了啊，我艹作为仅出现的几位冠位之一，这逼格low穿地心了
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3272#       发表于 2020-3-15 00:47
+
+
+
+
+太拉夸了吧这集
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3273#       发表于 2020-3-15 00:49
+
+
+
+
+开弹幕重新看了遍，看到有条弹幕说“这两个宝具我今天听了无数遍”笑得掉在了地上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Theory_茶叶  
+##### 3274#       发表于 2020-3-15 00:50
+
+
+
+
+回头重新看了一下，这个梅林，先是震惊地说了一句“这个力量，是神灵级吗？”然后转头就拔剑把其中一头给秒了，又回头两三下把另一头给干死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  warlock228  
+##### 3275#       发表于 2020-3-15 00:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 3276#       发表于 2020-3-15 00:52
+
+
+
+
+18集结尾安娜版戈尔贡登场，19集开头迅速被爆；
+
+19集结尾王哈登场，20集开头之后逼格骤降；
+
+20集结尾是立香和马修，21集开头怕不是直接就剩个盾然后立香冲上去用拳头甩盖提亚的脸了
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3277#       发表于 2020-3-15 00:53
+
+
+
+
+明明一整集都在处理和提妈的对战
+
+但是除了前面被兽阶拉赫姆摁着打的部分镜头外打戏密度也不高
+
+金皮卡出来后更是机关qiang王财+结界+宝具演出+主角爆头+EA就结束了，一整集能拍的这么空落落也没谁了
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3278#       发表于 2020-3-15 00:54
+
+
+
+
+就这?哈桑名台词没了 ，表现的也没有冠位的压迫感。立香最后那段违和感爆表。两个姐妹煽情没头没尾的。闪闪的出场也是迷的一批。好歹一个兽结果被一个ea一刀秒了有点说不过去。一堆宝具对扔结果就分不出个主次。
+
+这部作品压根就是一帮混子剧本和爆肝画师制作出的没有灵魂的商业作品。食之无味，弃之可惜。个人觉得还没有国家队好。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  西洛克  
+##### 3279#       发表于 2020-3-15 00:54
+
+
+
+<blockquote>warlock228 发表于 2020-3-15 00:51
+看不懂  为什么进去聊一下就关了结界   是因为五河士道吗</blockquote>
+想表达人类终究会离开提亚玛特的吧
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3280#       发表于 2020-3-15 00:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不，还是国家队拉跨点（
+
+别想在这翻篇嗷
+
+
+
+
+
+
+
+-----
+
+####  turnyyy  
+##### 3281#       发表于 2020-3-15 00:56
+
+
+
+
+这集分镜看着是真的难受，还黑乎乎的，有几个地方来来回回看了好几遍才明白<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">，恶心坏了，观感极差
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 3282#       发表于 2020-3-15 00:57
+
+
+
+
+王哈吃拉赫姆和最后提妈加戏100%是蘑菇又发病掺私货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集的莫名其妙程度堪比FE，你细品
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 3283#       发表于 2020-3-15 00:58
+
+
+
+
+在NGA专楼看到一个吐槽深得我心（[https://bbs.nga.cn/read.php?tid= ... -447601&amp;page=97](https://bbs.nga.cn/read.php?tid=18772936&amp;_ff=-447601&amp;page=97)）：死 告 天 使(指死亡的代言人效仿初号机啃力天使)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3284#       发表于 2020-3-15 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738897&amp;ptid=1729513" target="_blank">hcf220 发表于 2020-03-15 00:54:00</a>
+就这?哈桑名台词没了 ，表现的也没有冠位的压迫感。立香最后那段违和感爆表。两个姐妹煽情没头没尾的。闪闪 ...</blockquote>别乱翻案啊，蝈蝈连一场能看的打戏都没有，这番至少作画回打的爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zakuace  
+##### 3285#       发表于 2020-3-15 00:59
+
+
+
+
+真的，我对这动画要求也没多少，前面人批剧情太快气氛没起来就过去了我也觉得没什么，你把该有的大场面搞出来就挺满意。这集看完了我也只能“就这”了，这集啥玩意啊。
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 3286#       发表于 2020-3-15 01:00
+
+
+
+ 本帖最后由 qb0079 于 2020-3-15 01:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前一直想说难以调动观众的情绪，要不就是刚燃一会还没起来就萎了，总差一口气能畅快淋漓，这集倒是彻底调动了，看完一群人气炸了，成功，成功。。。
+
+
+
+
+
+
+
+-----
+
+####  Renes  
+##### 3287#       发表于 2020-3-15 01:01
+
+
+
+ 本帖最后由 Renes 于 2020-3-15 01:03 编辑 
+
+冠位之名非吾所需，最强之证只需寄予这一刀之上。
+
+
+这句话可是整个第一部点题的 冠位到底是什么 代表了什么意义 王蛤这段戏可以说是全第一部逼格天花板
+
+
+就为了蘑菇亲爹的EA逼格让路 直接给删了 这个我是不能忍 没有冠位叫尼玛冠位指定 冠nmb指定 
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3288#       发表于 2020-3-15 01:03
+
+
+
+
+日服适时复刻王哈池子并开了强化本，然后动画做成了这样，你们这是在羞辱他吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+总之真是太强了啊staff
+
+
+
+
+
+
+
+-----
+
+####  noobtizi  
+##### 3289#       发表于 2020-3-15 01:03
+
+
+
+
+真是傻逼，虽然我是靠着梅林坚持下来的，问题是你这把王哈搞成什么样子了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3290#       发表于 2020-3-15 01:03
+
+
+
+
+用了一分20秒就完成了对艾蕾的退场<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 福气
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dhddhh  
+##### 3291#       发表于 2020-3-15 01:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">比上一集还怪的节奏，整集看下去就只想早点结束。
+
+
+
+
+
+
+
+-----
+
+####  西岚不是花  
+##### 3292#       发表于 2020-3-15 01:05
+
+
+
+
+就这？ 我觉得已经可以吹个唢呐愉悦送走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+游戏本体刚开了池子，你动画就立马拉胯，开卷考试都能抄歪，我是很服的……
+
+东出大将军和菌皇亲征惨惨收场，那这次锅给谁合理些？
+
+谁才是型月tv动画的救世主啊？(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  尼特子很辛苦哟  
+##### 3293#       发表于 2020-3-15 01:05
+
+
+
+
+那个yangwei的爆炸音效我想吐槽很久了，结果这集出现了不下三次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有闪闪攻击的机**音效什么鬼
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 3294#       发表于 2020-3-15 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739004&amp;ptid=1729513" target="_blank">angelooo 发表于 2020-3-15 01:03</a>
+
+日服适时复刻王哈池子并开了强化本，然后动画做成了这样，你们这是在羞辱他吗
+
+总之真是太强了啊staf ...</blockquote>
+这不是把战续后加NP以及一次性红魔放（指不拿盾被穿洞然后生吃拉赫姆）的效果表现出来了么
+
+这个生吃画面一下子让我觉得王哈变成了王老八，什么都能吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3295#       发表于 2020-3-15 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739038&amp;ptid=1729513" target="_blank">西岚不是花 发表于 2020-3-15 01:05</a>
+
+就这？ 我觉得已经可以吹个唢呐愉悦送走了
+
+
+游戏本体刚开了池子，你动画就立马拉胯，开卷考试都能抄 ...</blockquote>
+救世主我提名樱井<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+锅的话我看有弹幕扣给疫情了，你们开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ckl80  
+##### 3296#       发表于 2020-3-15 01:07
+
+
+
+
+赤井俊文做演出真的8行
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 3297#       发表于 2020-3-15 01:07
+
+
+
+
+20集这个决战回，不如18集让羽蛇神踢死提妈，这样作为决战回的观感还比现在要好。。。
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3298#       发表于 2020-3-15 01:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738958&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-03-15 00:59:36</a>
+别乱翻案啊，蝈蝈连一场能看的打戏都没有，这番至少作画回打的爽</blockquote>作画到了一定水平就那样了。。。当你看见一帮神仙作画配上那吃屎演出和脚本。呵
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Rislou  
+##### 3299#       发表于 2020-3-15 01:10
+
+
+
+<img src="http://tiebapic.baidu.com/forum/pic/item/fb91dc2a2834349b46c248e7deea15ce34d3becc.jpg" referrerpolicy="no-referrer">
+
+还真就还原设定
+
+
+
+
+
+
+
+-----
+
+####  默逍  
+##### 3300#       发表于 2020-3-15 01:11
+
+
+
+ 本帖最后由 默逍 于 2020-3-15 01:15 编辑 
+
+什么玩意
+看到现在最爽快的一集居然是牛肉丸对戈尔贡
+
+不是我说，第六章这么多大场面，结果做的都不如fa的22集，留那么多笔墨给金闪闪和金固，还是女性观众的钱好赚吧
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3301#       发表于 2020-3-15 01:11
+
+
+
+
+对了，游戏里的豹人和动画里的豹人这个时候在哪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3302#       发表于 2020-3-15 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739116&amp;ptid=1729513" target="_blank">远影 发表于 2020-03-15 01:11:55</a>
+对了，游戏里的豹人和动画里的豹人这个时候在哪</blockquote>在冥界打辅助
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3303#       发表于 2020-3-15 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739116&amp;ptid=1729513" target="_blank">远影 发表于 2020-03-15 01:11:55</a>
+对了，游戏里的豹人和动画里的豹人这个时候在哪</blockquote>动画里估计在陆地上救羽蛇神去了吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  namelessashen  
+##### 3304#       发表于 2020-3-15 01:15
+
+
+
+
+期待了这么久整个这个玩意，整集一股很闷情绪爆发不出来的感觉，太憋屈了，感觉和莫名其妙加了一堆以为观众会喜欢的戏有关。还有这个脚本武井风太是谁……这集编排也太烂了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ATRO  
+##### 3305#       发表于 2020-3-15 01:16
+
+
+
+
+感觉除了王哈相关剧情彻底崩了其他改动还算可接受吧（金皮卡王财音效和射速日常拉跨），之前大家都讽刺古达冠位摄像机，这回也算相对合理的让他出出风头。艾蕾台词也用上了。
+
+
+还是无法理解王哈为啥改成这德行...明明宝具可以很省钱还有逼格还不浪费时间地画出来：就转个类似固有结界的黑白场景，飘飘3D羽毛加个钟声，甚至斩击都可以用现在这个版本的动画，就加个击中碎裂音效强调一下打击感就行，打完画面转彩色然后接提妈碎裂纹身。
+
+后面掩护古达冲锋那段就直接一刀秒一个，然后格挡另一只叫古达继续跑就行（可以加个王哈身体粒子特效表示快力竭）。结果变成嘎嘣脆鸡肉味逼格丢尽...
+
+
+
+
+
+
+
+-----
+
+####  wd54w8  
+##### 3306#       发表于 2020-3-15 01:17
+
+
+
+
+这集肯定是菌类又发作了，除了他还有谁有权利去给什么反创世纪 神灵级 王哈一口吃了拉赫姆的神奇设定，艹
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3307#       发表于 2020-3-15 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739129&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-3-15 01:12</a>
+在冥界打辅助
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+这……
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3308#       发表于 2020-3-15 01:19
+
+
+
+
+前面有人发设定图了啊，王哈吃拉赫姆什么的，别问，问就是设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便，一群人开宝具然后主角跑酷拿着露露不累卡（？）捅提妈，我特么的鸟笼ptsd犯了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  共和政治文彦博  
+##### 3309#       发表于 2020-3-15 01:21
+
+
+
+ 本帖最后由 共和政治文彦博 于 2020-3-15 01:30 编辑 
+
+这集什么傻X节奏什么傻X演出
+
+
+
+
+
+
+
+
+-----
+
+####  lhh_ah  
+##### 3310#       发表于 2020-3-15 01:21
+
+
+
+
+原剧本现成的能拍的这么拉稀也是一种本事
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3311#       发表于 2020-3-15 01:23
+
+
+
+ 本帖最后由 消防 于 2020-3-15 01:25 编辑 
+<blockquote>默逍 发表于 2020-3-15 01:11
+什么玩意
+
+看到现在最爽快的一集居然是牛肉丸对戈尔贡
+</blockquote>
+
+是七啊，七
+
+六章一年了PV还是那个画面，再加上脚本小太刀应该可以直接抬走了
+
+
+这动画错就错在让温泉中也做了18集，其他集数各有拉胯的+0分数的动画，一个半过渡回的集数做出了+3效果，一对比更显得最终大战乏善可陈（当然前面的日常也没铺起来，乌鲁克除了西杜丽全员NPC，西杜丽还OOC，灭城一个NPC戏份都没给，镜头一转就全躺在地上了）
+
+
+
+
+
+
+
+-----
+
+####  天天那个啥  
+##### 3312#       发表于 2020-3-15 01:23
+
+
+
+
+这集总不会好评度96.8%来个翻案了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Booorunestud  
+##### 3313#       发表于 2020-3-15 01:24
+
+
+
+
+菌皇懂个屁的动画啦
+
+
+
+
+
+
+
+-----
+
+####  有乐亭八云  
+##### 3314#       发表于 2020-3-15 01:24
+
+
+
+
+奇怪的节奏，在提妈开口的一瞬间怨气都消了。
+楼上怎么还有骂音响的？虽然旺财机关**给爷整笑了，但其他人几个宝具如果带上耳机听就知道层次感是十分到位的。
+
+...
+...
+忍不住了...
+这片到底有没有系列构成的？日本电视动画真的不需要编剧？
+还有你赤井俊文把导演叫成监督就可以不用背锅了？
+散了吧，fate动画有创世神和他的小伙伴们自high就行了，只要进了菌哥哥的圈子氪金母猪的钱的有。我作为一只🐷惹不起这群二大爷，以后也不氪金了，我就绕道走还不成吗？
+
+可怜那么多原画师为了fate掏心掏肺了。
+
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3315#       发表于 2020-3-15 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739260&amp;ptid=1729513" target="_blank">天天那个啥 发表于 2020-3-15 01:23</a>
+
+这集总不会好评度96.8%来个翻案了吧</blockquote>
+这倒不会，毕竟看这片的大部分都是抱着“感恩戴德能拍成动画给我们看”的心情在看动画的
+
+
+我老婆都被感动的一塌糊涂了，我也就在小破论坛骂骂几声了
+
+<img src="https://img.saraba1st.com/forum/202003/15/012528tzl1wsl9saw1t89a.png" referrerpolicy="no-referrer">
+
+
+<strong>2X1JBCVNS_3UD0CT909K.png</strong> (320.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 01:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  默逍  
+##### 3316#       发表于 2020-3-15 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739259&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-15 01:23</a>
+是七啊，七
+
+六章一年了PV还是那个画面，再加上脚本小太刀应该可以直接抬走了</blockquote>
+气晕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就等着看王哈桑砍这一刀，结果做成这种屌样子
+
+顺便<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/a32a87602e7f2e94d860d6fc4d4c91f7/IMG_08C1CB37900A1A85C2499686438641F5.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 3317#       发表于 2020-3-15 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739098&amp;ptid=1729513" target="_blank">Rislou 发表于 2020-3-15 01:10</a>
+还真就还原设定</blockquote>
+当时谁知道这个咬住是真的字面意思上的咬……
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3318#       发表于 2020-3-15 01:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真我觉得这楼以外的月球动画观众已经够宽容了，第七章动画1~20集在我看来除了打戏没有任何能留下印象的东西，完全的工业流水线作品
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3319#       发表于 2020-3-15 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739276&amp;ptid=1729513" target="_blank">有乐亭八云 发表于 2020-3-15 01:24</a>
+
+奇怪的节奏，在提妈开口的一瞬间怨气都消了。
+
+楼上怎么还有骂音响的？虽然旺财机关**给爷整笑了，但其他人 ...</blockquote>
+印象中这帖前面不是有说过这片确实没有系构来着
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3320#       发表于 2020-3-15 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739307&amp;ptid=1729513" target="_blank">默逍 发表于 2020-3-15 01:27</a>
+
+气晕了
+
+
+就等着看王哈桑砍这一刀，结果做成这种屌样子</blockquote>
+这兄贵什么玩意，快把前几集在地上爬的会歪头卖萌的拉赫姆还给我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3321#       发表于 2020-3-15 01:30
+
+
+
+<blockquote>默逍 发表于 2020-3-15 01:27
+气晕了
+
+
+就等着看王哈桑砍这一刀，结果做成这种屌样子</blockquote>
+伊斯塔被轮（围殴）惨叫那段确实够味，估计明天图就安排上了
+
+
+
+
+
+
+
+-----
+
+####  tttsttt  
+##### 3322#       发表于 2020-3-15 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738771&amp;ptid=1729513" target="_blank">Theory_茶叶 发表于 2020-3-15 00:42</a>
+
+坦白说提亚马特说话这个情节有些多余感，只要有提亚马特站在纯白的空间中寂寞地低垂目光这个镜头就足够了， ...</blockquote>
+往好处想 万一是给实装提妈做铺垫呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  有乐亭八云  
+##### 3323#       发表于 2020-3-15 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739341&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-15 01:30</a>
+伊斯塔被轮（围殴）惨叫那段确实够味，估计明天图就安排上了</blockquote>
+这个地方一瞬间让我想起二号机大战量产机了
+
+
+
+
+
+
+
+-----
+
+####  莫夜戎  
+##### 3324#       发表于 2020-3-15 01:32
+
+
+
+
+我永远喜欢悠木碧！
+
+
+
+
+
+
+
+-----
+
+####  天天那个啥  
+##### 3325#       发表于 2020-3-15 01:32
+
+
+
+
+这集开头就看笑了，你tm让王哈摆几个pose，名台词一念，钟敲一敲，来个写意流，又省钱又能让人觉得逼格满满好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就照着宝具演出抄都不会抄吗？
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3326#       发表于 2020-3-15 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739341&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-15 01:30</a>
+
+伊斯塔被轮（围殴）惨叫那段确实够味，估计明天图就安排上了</blockquote>
+啊，顺带一提这集我最喜欢的部分就是伊斯塔这段，太劲了，明明我没有guro性癖的
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">画师们手快点
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3327#       发表于 2020-3-15 01:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739349&amp;ptid=1729513" target="_blank">tttsttt 发表于 2020-3-15 01:31</a>
+
+往好处想 万一是给实装提妈做铺垫呢</blockquote>
+我还以为这集完了就直接公布提妈（人形）手办广告了，结果你跟我说还是闪闪？
+
+
+
+
+
+
+
+-----
+
+####  久井路路  
+##### 3328#       发表于 2020-3-15 01:35
+
+
+
+
+等等，战续设定里写的是身受重伤也能死咬敌人，可不是字面意义上的“死咬”啊（
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  shuwenwenshu  
+##### 3329#       发表于 2020-3-15 01:37
+
+
+
+
+承认吧，做月球动画最好的就是ufo啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3330#       发表于 2020-3-15 01:37
+
+
+
+
+初号机生吃使徒✓
+量产机暴打二号机✓
+おめでとう✓
+黑泥同化，人类补完✓
+第一使徒堕落成人✓
+三无少女巨大化✓
+学习蝈蝈当eva4.0？
+
+
+
+
+
+
+
+-----
+
+####  alialex  
+##### 3331#       发表于 2020-3-15 01:40
+
+
+
+<img src="https://wx1.sinaimg.cn/mw690/67bb4279gy1gctzawxy1uj20hs0h0t9h.jpg" referrerpolicy="no-referrer">
+
+挺好的
+
+
+
+
+
+
+
+-----
+
+####  有乐亭八云  
+##### 3332#       发表于 2020-3-15 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739411&amp;ptid=1729513" target="_blank">shuwenwenshu 发表于 2020-3-15 01:37</a>
+承认吧，做月球动画最好的就是ufo啦</blockquote>
+不，最好的fate正传动画是正在被批倒批臭的青木英做的fz
+另外最有型月气质的动画也是他的俯瞰风景<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  在十三的天空下  
+##### 3333#       发表于 2020-3-15 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739158&amp;ptid=1729513" target="_blank">namelessashen 发表于 2020-3-15 01:15</a>
+
+期待了这么久整个这个玩意，整集一股很闷情绪爆发不出来的感觉，太憋屈了，感觉和莫名其妙加了一堆以为观众 ...</blockquote>
+武井风太是个新人，但是他同时还负责了好评率最高第零集，所以到底是什么问题我也不知道了
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3334#       发表于 2020-3-15 01:45
+
+
+
+
+草
+
+<img src="https://img.saraba1st.com/forum/202003/15/014515zjhp2xpqhdxxjz0j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>UM~M4P22GHVM147L_VZTQFO.jpg</strong> (23.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 01:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恤兵真綿  
+##### 3335#       发表于 2020-3-15 01:46
+
+
+
+
+看了点截图就不想点开正片了。
+
+
+
+
+
+
+
+-----
+
+####  6x6z6w  
+##### 3336#       发表于 2020-3-15 01:47
+
+
+
+
+冠位暗杀者 [X]
+
+冠位吃货 [✓]
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也难怪历代哈桑都怕被爷爷敲钟，因为是要被生吃的……
+
+
+
+
+
+
+
+-----
+
+####  khxooo  
+##### 3337#       发表于 2020-3-15 01:48
+
+
+
+
+什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">？！？！？！？！？！？
+
+
+
+
+
+
+
+-----
+
+####  有乐亭八云  
+##### 3338#       发表于 2020-3-15 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739463&amp;ptid=1729513" target="_blank">在十三的天空下 发表于 2020-3-15 01:42</a>
+武井风太是个新人，但是他同时还负责了好评率最高第零集，所以到底是什么问题我也不知道了 ...</blockquote>
+第零集有什么可吹的？40分钟你中途没走过神？
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3339#       发表于 2020-3-15 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739503&amp;ptid=1729513" target="_blank">有乐亭八云 发表于 2020-3-15 01:48</a>
+
+第零集有什么可吹的？40分钟你中途没走过神？</blockquote>
+第零话主要是给了医生和玛修不少有关过去的文戏，完善人物用的
+
+但尴尬的是，正片里这俩的人物塑造好像和游戏里这个时期的也没啥区别吧，太割裂了，你还不如把这第0话单独拿出来做个独立ova，现在说是第七章的一部分，我觉得不行
+
+
+
+
+
+
+
+-----
+
+####  密特里奈斯  
+##### 3340#       发表于 2020-3-15 01:52
+
+
+
+
+本集监督是王哈黑么……
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 3341#       发表于 2020-3-15 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739396&amp;ptid=1729513" target="_blank">久井路路 发表于 2020-3-15 01:35</a>
+
+等等，战续设定里写的是身受重伤也能死咬敌人，可不是字面意义上的“死咬”啊（
+
+
+  -- 来自 能看大图的 Sta ...</blockquote>
+蘑菇：就是字面意思，你们看不懂么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天天那个啥  
+##### 3342#       发表于 2020-3-15 01:55
+
+
+
+
+呜哇，K岛已经有人在洗了，估计过两天niconico好评率一出又要反转，到时候你们这些骂的都是无耻的婆罗门要求过高的手游党
+
+
+反正我看了开头几分钟就看不下去了，睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  远野四季  
+##### 3343#       发表于 2020-3-15 01:56
+
+
+
+
+怀疑制作组里有牛肉丸厨和金固厨，这俩退场后索然无味
+
+
+
+
+
+
+
+-----
+
+####  在十三的天空下  
+##### 3344#       发表于 2020-3-15 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739503&amp;ptid=1729513" target="_blank">有乐亭八云 发表于 2020-3-15 01:48</a>
+
+第零集有什么可吹的？40分钟你中途没走过神？</blockquote>
+第零集不就20分钟么 不是讲了一下马修小时候的那个么 不是说的序章动画化那个
+
+
+
+
+
+
+
+-----
+
+####  villy_yang  
+##### 3345#       发表于 2020-3-15 02:02
+
+
+
+
+王哈这个战续演出挺不错的啊，怎么就成吃货了
+
+
+
+
+
+
+
+-----
+
+####  noli  
+##### 3346#       发表于 2020-3-15 02:03
+
+
+
+
+字面意义上的垃圾。。。
+
+
+
+
+
+                                      
