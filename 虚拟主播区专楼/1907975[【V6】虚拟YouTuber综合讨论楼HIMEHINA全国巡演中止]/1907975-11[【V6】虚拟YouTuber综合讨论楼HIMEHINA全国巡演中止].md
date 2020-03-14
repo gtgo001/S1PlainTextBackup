@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-14 02:01** 
+> ## **本文件最后更新于2020-03-14 10:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_F3xGN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_epJl2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_y819I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_hcj80" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_DZ3N3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_rmUxW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_wcCfi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_Fzk4Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_vL5F8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_xgIqJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_ZY6K0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_Us933" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_yIok2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_BbPZm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17230,6 +17230,25 @@ QQ截图20200313233718.png
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cartesian| + 1|贴贴！|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18253,4 +18272,479 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-                 
+
+
+-----
+
+####  OldGlory  
+##### 15968#       发表于 2020-3-14 02:17
+
+
+
+
+为什么不安排入驻？你不入驻连转播的资格都没有。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 15969#       发表于 2020-3-14 02:18
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-14 02:19 编辑 
+
+可能想着像holo那样被哪个手游策划相上，然后保送引流吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 15970#       发表于 2020-3-14 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46727823&amp;ptid=1907975" target="_blank">OldGlory 发表于 2020-3-14 02:17</a>
+
+为什么不安排入驻？你不入驻连转播的资格都没有。</blockquote>
+为什么b站事儿那么多啊，海鲜台能播b站就不行
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 15971#       发表于 2020-3-14 02:38
+
+
+
+ 本帖最后由 蒹葭公子 于 2020-3-14 02:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46727873&amp;ptid=1907975" target="_blank">baizhi 发表于 2020-3-14 02:24</a>
+
+为什么b站事儿那么多啊，海鲜台能播b站就不行</blockquote>
+斗鱼那个属于盗版，举报就会死的好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+以及跟事多不多有啥关系，你要来我的平台引流当然要叫保护费啊，我寻思这不是天经地义的事？
+
+退一万步说，就算B站不管你，字幕组转播，你sc难道打给字幕组？不要跟我说什么上4-0-4打这种不腰疼的话……
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 15972#       发表于 2020-3-14 02:45
+
+
+
+
+话说今天是不是白姨重大发表啊，不要整了半天就是养了个猫。不过木口的重大发表就这尿性
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 15973#       发表于 2020-3-14 02:47
+
+
+
+
+其实2000才是小号，只是2000氪的人品使积分高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有2000能不能把你那个恰柠檬的头像换了？看着恶心死了，有你最讨厌的七色太监内味儿了。就换成阿喵喵不行？
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15974#       发表于 2020-3-14 02:58
+
+
+
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_mk5lv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15975#       发表于 2020-3-14 03:41
+
+
+
+
+nga那个国产白上的贴太他妈可乐了，年轻真坏啊。
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 15976#       发表于 2020-3-14 04:05
+
+
+
+[https://www.saraba1st.com/2b/thread-1918735-1-1.html](https://www.saraba1st.com/2b/thread-1918735-1-1.html)
+
+
+就今晚holo的直播间大逃杀开了个贴来玩
+
+
+
+
+
+
+
+-----
+
+####  zore  
+##### 15977#       发表于 2020-3-14 05:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728234&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-14 03:41</a>
+
+nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久没见过这种活,太草了
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15978#       发表于 2020-3-14 05:24
+
+
+
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_zkHFg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 15979#       发表于 2020-3-14 05:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46727991&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-14 02:45</a>
+话说今天是不是白姨重大发表啊，不要整了半天就是养了个猫。不过木口的重大发表就这尿性 ...</blockquote>
+被早安miko背刺，几乎确定就是养猫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 15980#       发表于 2020-3-14 05:45
+
+
+
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_IDSp2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_pWxHK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15981#       发表于 2020-3-14 06:22
+
+
+
+
+azki这原创曲48小时怎么还停了，黑青蛙干啥呢
+
+
+
+省一楼，不管狐皇是不是养猫了，反正一周以来从绿帽坛到S1到贴吧到Q群把这个破事翻来覆去讨论了无数次，目的是达到了，区区几条推又赚到多少流量，其他有猫的做得到吗。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15982#       发表于 2020-3-14 07:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728621&amp;ptid=1907975" target="_blank">free 发表于 2020-03-14 06:22:46</a>
+azki这原创曲48小时怎么还停了，黑青蛙干啥呢
+
+
+
+省一楼，不管狐皇是不是养猫了，反正一周以来从绿帽坛到S1 ...</blockquote>不是在播吗？刚刚点进去看了眼在播片<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">中间停掉了？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15983#       发表于 2020-3-14 07:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728692&amp;ptid=1907975" target="_blank">超能力者stven 发表于 2020-3-14 07:08</a>
+
+不是在播吗？刚刚点进去看了眼在播片中间停掉了？
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+哦现在好了，刚才6点多左右停了好一阵子
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15984#       发表于 2020-3-14 07:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728700&amp;ptid=1907975" target="_blank">free 发表于 2020-03-14 07:14:22</a>
+哦现在好了，刚才6点多左右停了好一阵子</blockquote>看了眼黑青蛙推，好像是出了点事故<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">播片都播不好，铁five
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 15985#       发表于 2020-3-14 08:07
+
+
+
+
+昨天家长2小时B限ARK，收了6千3，按B站收一半算3千2，不算税的话，4W9千日元，比她在404的收入如何
+
+SYL B站用户至少4成的学生，看见家长这两个字就天生反感，是天生的减分项
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15986#       发表于 2020-3-14 08:26
+
+
+
+
+我还指望白姨在白情发表和木口星来个两团大联动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果只是养只猫还要提前一个礼拜预告，那我可太失望了。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15987#       发表于 2020-3-14 08:32
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-3-14 08:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46728957&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-14 08:26</a>
+
+我还指望白姨在白情发表和木口星来个两团大联动的如果只是养只猫还要提前一个礼拜预告，那我可太失 ...</blockquote>
+(我TM为啥现在才想明白)稍微想一想也知道......公然说对观众有困扰要是还与stars相关，不就成了公开说“stars对女团成员观众是困扰”？这不就让stars陷入相当尴尬的情况吗，狐狸她会做这种蠢事才怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+在座的各位老哥都比我年纪大，也应该都懂有些事哪怕是确有其理，也不能说在明面的道理吧，把隐匿之事扔到明面上会引发多少破事大家都懂，更何况狐狸是亲stars派体量还不小，引发的震荡多大我不敢想
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15988#       发表于 2020-3-14 08:52
+
+
+
+
+我觉得这波挺失败的，玩标题党养个猫搞到自己要连发澄清推，颇有反串没人看出来被围殴、然后被迫解释的感觉 解释了继续被揍
+
+真要搞应该提前一天通知打个突击，提前一周不是给人瞎发散吗
+
+说起来holo最近纷纷开始养猫是什么情况
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15989#       发表于 2020-3-14 08:56
+
+
+
+
+狐皇之所以没有竞争过狗妈成为中国第一金盾，一个原因就在于狗妈是有猫的真实美少女，狐皇虽然真实美少女比较困难，有猫还是可以学一学的。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 15990#       发表于 2020-3-14 09:26
+
+
+
+
+养猫的事应该是小粥实在按捺不住在先，然后线下聚会买的时候另外两个也心动了，反正按照mio的说法是现在okfams群里猫片乱飞，不过我现在真的期待他们能搞个撸猫企划
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 15991#       发表于 2020-3-14 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">希望杏全员都能养上🐱，在推特多发点猫图。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15992#       发表于 2020-3-14 09:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗狗赶快发点猫图啊，光说不练
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 15993#       发表于 2020-3-14 09:52
+
+
+
+
+无内鬼，多来点猫图<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 15994#       发表于 2020-3-14 09:55
+
+
+
+
+确实，希望养猫的成员都多发点pussy图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                
