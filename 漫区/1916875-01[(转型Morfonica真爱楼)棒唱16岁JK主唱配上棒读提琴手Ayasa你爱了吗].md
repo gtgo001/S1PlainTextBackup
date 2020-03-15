@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-10 12:16** 
+> ## **本文件最后更新于2020-03-16 02:05** 
 
 
 
@@ -3138,7 +3138,7 @@ bang男人手游几时开啊，想玩
 
 
 4F480DE2-FB79-4972-B84E-EA0B74EB45C6.png
-(244.62 KB, 下载次数: 3)
+(244.62 KB, 下载次数: 5)
 
 
 
@@ -3303,4 +3303,640 @@ bang男人手游几时开啊，想玩
 
 
 
-                                           
+
+
+-----
+
+####  泥潭办证先锋  
+##### 182#         楼主| 发表于 2020-3-10 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46678711&amp;ptid=1916875" target="_blank">ziyer 发表于 2020-3-10 11:10</a>
+
+怎么也不输这个主唱吧
+
+
+—— 来自 Xiaomi MI 9, Android 10上的 S1Next-鹅版 v1.3.2.1-fix-play ...</blockquote>
+十级美颜，谁都好看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202003/10/124802nkakkq9end2k2khn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DD6FC52C-5D5D-43FE-B886-49BACB0ED82E.jpeg</strong> (315.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-10 12:48 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  雪城穗乃香  
+##### 183#       发表于 2020-3-11 09:41
+
+
+
+
+真白妹妹遇到chuchu会不会直接被喷自闭
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 184#       发表于 2020-3-11 20:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46678070&amp;ptid=1916875" target="_blank">jestime 发表于 2020-03-10 10:10:13</a>
+这2个颜值不行</blockquote>junna不是比这有气质多了。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 185#       发表于 2020-3-11 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46689937&amp;ptid=1916875" target="_blank">雪城穗乃香 发表于 2020-03-11 09:41:37</a>
+真白妹妹遇到chuchu会不会直接被喷自闭</blockquote>要是有个chuchu喷喷，没准还能进步进步<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  坂木静香  
+##### 186#       发表于 2020-3-12 03:36
+
+
+
+
+木谷是不是研修过创造101用杨超越炒作的手法。。。
+
+
+
+
+
+
+
+-----
+
+####  梦游君  
+##### 187#       发表于 2020-3-12 05:23
+
+
+
+
+问题是，就算只看脸，我也觉得ayasa是这群人里最好看的，剩下的去肥秋系基本洗脚。
+
+能不能让ayasa跟开踢森保圆联合一下出个美人乐器二重奏算了
+
+
+
+
+
+
+
+-----
+
+####  雪城穗乃香  
+##### 188#       发表于 2020-3-12 09:32
+
+
+
+
+听了几首“完美版”的daylight翻唱，反而认识到了天音的独特性和唯一性
+
+歌究竟如何人们会有个普遍和个别的认识，但morfonica的天音是唯一的认识，daylight这首歌是属于天音的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泥潭办证先锋  
+##### 189#         楼主| 发表于 2020-3-12 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46701293&amp;ptid=1916875" target="_blank">梦游君 发表于 2020-3-12 05:23</a>
+
+问题是，就算只看脸，我也觉得ayasa是这群人里最好看的，剩下的去肥秋系基本洗脚。
+
+能不能让ayasa跟开踢森 ...</blockquote>
+我也觉得Ayasa鹤立鸡群<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不过我是觉得她的气质比较强，就算穿着这鬼衣服也完爆剩下4个。
+
+
+
+
+
+
+
+-----
+
+####  梦游君  
+##### 190#       发表于 2020-3-12 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46702906&amp;ptid=1916875" target="_blank">泥潭办证先锋 发表于 2020-3-12 10:12</a>
+
+我也觉得Ayasa鹤立鸡群，不过我是觉得她的气质比较强，就算穿着这鬼衣服也完爆剩下4个。 ...</blockquote>
+对，气质非常好，脸型、身材等等跟另外4个完全不是一个画风的。
+
+我不太明白的是ayasa也算小有名气了，为什么跟这4个一看就没有大红潜质的裹在一起……
+
+
+
+
+
+
+
+-----
+
+####  musicat  
+##### 191#       发表于 2020-3-12 14:15
+
+
+
+ 本帖最后由 musicat 于 2020-3-12 18:14 编辑 
+
+
+
+鼓手爱了！
+
+
+说起鼓手，当时ppp在7th的时候双鼓，就很好奇这个黑衣鼓手妹子，特意找她的镜头，可是摄影和剪辑也确实是职业，别说样子，连个远景都很难看到。
+
+
+
+
+
+
+
+-----
+
+####  zhDesire  
+##### 192#       发表于 2020-3-12 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46706085&amp;ptid=1916875" target="_blank">musicat 发表于 2020-3-12 14:15</a>
+
+http://www.bilibili.com/video/av94902833
+
+鼓手爱了！</blockquote>
+老打工仔了？
+
+
+
+
+
+
+
+-----
+
+####  江口夕  
+##### 193#       发表于 2020-3-12 17:06
+
+
+
+
+其实现在该担心的不是棒读毁剧情么，难得游戏剧情这么优秀
+
+—— 来自 Xiaomi MI 8, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  depthlee  
+##### 194#       发表于 2020-3-12 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46706085&amp;ptid=1916875" target="_blank">musicat 发表于 2020-3-12 14:15</a>
+
+http://www.bilibili.com/video/av94902833
+
+鼓手爱了！</blockquote>
+live摄像会专门回避的，还有题词版也会专门回避，只能说很专业
+
+
+
+
+
+
+
+-----
+
+####  musicat  
+##### 195#       发表于 2020-3-12 18:13
+
+
+
+ 本帖最后由 musicat 于 2020-3-12 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707163&amp;ptid=1916875" target="_blank">zhDesire 发表于 2020-3-12 15:47</a>
+
+老打工仔了？</blockquote>
+Hego和樱川惠的架子鼓老师，公布中之人的时候得知的信息，也透露了当时7th的时候和Hego双打的也是她。
+[https://zh.moegirl.org/Mika#](https://zh.moegirl.org/Mika#)
+
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 196#       发表于 2020-3-13 16:21
+
+
+
+
+仔细想想
+
+Morfoinca 这鼓手从幕后转台前偶像出道
+
+主唱啥也不会
+
+小提琴高技术力新人
+
+首秀即翻车
+
+Morfonica就是现实中的怕死怕累？
+
+
+
+
+
+
+
+-----
+
+####  進藤あまね  
+##### 197#       发表于 2020-3-14 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46720949&amp;ptid=1916875" target="_blank">物流大亨常凯申 发表于 2020-3-13 16:21</a>
+
+仔细想想
+
+Morfoinca 这鼓手从幕后转台前偶像出道
+
+主唱啥也不会</blockquote>
+我会棒唱帮武士道在泥潭重大发表<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 198#       发表于 2020-3-14 10:30
+
+
+
+
+ras也是这样搞出来的
+这方面武士道可是鬼才
+
+
+
+
+
+
+
+-----
+
+####  downforce  
+##### 199#       发表于 2020-3-14 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707163&amp;ptid=1916875" target="_blank">zhDesire 发表于 2020-3-12 15:47</a>
+老打工仔了？</blockquote>
+sae个人演唱live的鼓手也是她。
+https://t.bilibili.com/363299210422447259?share_source=copy_link&amp;share_medium=android
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 200#       发表于 2020-3-14 15:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/150204wr7zoo7jv4kzofts.jpg" referrerpolicy="no-referrer">
+
+
+<strong>006LXK5gly1gcnjtyhe9sj30l21ms798.jpg</strong> (130.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-14 15:02 上传
+
+
+
+
+
+看到人提了句ayasa的角色挺像律子的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实是越看越像
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  脑袋砸核桃  
+##### 201#       发表于 2020-3-14 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46732749&amp;ptid=1916875" target="_blank">笛普达克范太希 发表于 2020-3-14 15:04</a>
+ 看到人提了句ayasa的角色挺像律子的确实是越看越像</blockquote>
+我丢啊，还真挺像
+
+
+
+
+
+
+
+-----
+
+####  坂木静香  
+##### 202#       发表于 2020-3-14 15:54
+
+
+
+
+乐队一般都是鼓手比较难找吧，和踢球难找守门员一样。女子乐队鼓手应该更难找了
+
+
+
+
+
+
+
+-----
+
+####  yevvet  
+##### 203#       发表于 2020-3-14 18:07
+
+
+
+<blockquote>江口夕 发表于 2020-3-12 17:06
+其实现在该担心的不是棒读毁剧情么，难得游戏剧情这么优秀
+
+
+—— 来自 Xiaomi MI 8, Android 9上的 S1Next- ...</blockquote>
+最棒读的ayasa也比22/7的女主强（
+
+意外的鼓手配的不错
+
+
+
+
+
+
+
+-----
+
+####  萌即正义  
+##### 204#       发表于 2020-3-14 19:25
+
+
+
+
+M团这个人设太媚宅了，黑丝巨乳大屁股，点兔画风主唱，星井美希，没有邦味
+
+
+
+
+
+
+
+-----
+
+####  泥潭办证先锋  
+##### 205#         楼主| 发表于 2020-3-14 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46735270&amp;ptid=1916875" target="_blank">萌即正义 发表于 2020-3-14 19:25</a>
+M团这个人设太媚宅了，黑丝巨乳大屁股，点兔画风主唱，星井美希，没有邦味 ...</blockquote>
+你这个说的有点问题了……偶像企划它自己本身就是媚宅玩意。
+
+我怀疑你在黑6队前辈团<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">。
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 206#       发表于 2020-3-14 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46733250&amp;ptid=1916875" target="_blank">坂木静香 发表于 2020-3-14 15:54</a>
+
+乐队一般都是鼓手比较难找吧，和踢球难找守门员一样。女子乐队鼓手应该更难找了 ...</blockquote>
+其实乐队最难找的是贝斯手
+
+
+
+
+
+
+
+-----
+
+####  萌即正义  
+##### 207#       发表于 2020-3-14 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46735393&amp;ptid=1916875" target="_blank">泥潭办证先锋 发表于 2020-3-14 19:36</a>
+
+你这个说的有点问题了……偶像企划它自己本身就是媚宅玩意。
+
+
+我怀疑你在黑6队前辈团。</blockquote>
+前辈5团那土味人设，可没像这样特化阻击炼铜和肉体厨
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">现在这种照着真人画纸片人的模式确实没意思，目的性太强2D为3D服务就一套皮工具
+
+
+
+
+
+
+
+-----
+
+####  進藤あまね  
+##### 208#       发表于 2020-3-15 01:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46734463&amp;ptid=1916875" target="_blank">yevvet 发表于 2020-3-14 18:07</a>
+最棒读的ayasa也比22/7的女主强（
+
+意外的鼓手配的不错</blockquote>
+miu已经真香了，半个22/7都在推<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  江口夕  
+##### 209#       发表于 2020-3-15 04:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46734463&amp;ptid=1916875" target="_blank">yevvet 发表于 2020-3-14 18:07</a>
+
+最棒读的ayasa也比22/7的女主强（
+
+意外的鼓手配的不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然而227女主已经棒出特色了，真香。鼓手说是老师其实是阿宅吧配的真心意外的不错，看来这队人已经暗地里进养成所培训了挺久了吧，除了真白小妹妹和ayasa
+
+
+
+
+
+
+
+-----
+
+####  進藤あまね  
+##### 210#       发表于 2020-3-15 23:04
+
+
+
+
+淦哦，挤不进服务器怎么让米娜桑玩daylight<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ckl80  
+##### 211#       发表于 2020-3-16 00:52
+
+
+
+
+三首各打了一遍会发现，daylight其实已经是表现得最好的了
+
+
+
+
+
+
+
+-----
+
+####  笛普达克范太希  
+##### 212#       发表于 2020-3-16 00:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/004706ld2dkbdu2zxry5sz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200316_004118.jpg</strong> (168.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 00:47 上传
+
+
+
+
+
+
+右上是千圣，左下是彩千圣(
+
+
+老样子脸黑没抽到一个毛二力的四星，三星倒就差一个彩千圣，现在总共两首原创一首翻唱，难度26-25-25，未来谱面特色可能就是小提琴carry部分的鬼畜绿条，打歌的时候因为很多因素融合，daylight其实听着也凑合<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真人乐队到时候什么情况不好说
+
+
+
+
+
+                                          

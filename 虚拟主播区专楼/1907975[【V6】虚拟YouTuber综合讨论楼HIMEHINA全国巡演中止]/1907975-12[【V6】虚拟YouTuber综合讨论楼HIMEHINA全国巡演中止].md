@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 00:02** 
+> ## **本文件最后更新于2020-03-16 02:01** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_pUF0L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_pWDrb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6063,4 +6063,248 @@ syl，已经读了快三个小时的棉花糖了，露露表示才三分之一�
 
 
 
-                                       
+
+
+-----
+
+####  noHentai  
+##### 16830#       发表于 2020-3-16 00:04
+
+
+
+
+葵皇还是憋fps了，上次apex也是很长一段时间没播fps之后打的，**马的完全看不下去，而且葵皇玩fps总觉得有点呆，不知道是分心看评论还是啥的，机动性差太多了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windaria  
+##### 16831#       发表于 2020-3-16 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749800&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-15 23:12</a>
+
+上周还真的有V宣布结婚的(不是玩梗)
+
+https://youtu.be/Oyqf61Hu5Jo</blockquote>
+还以为这对遇难夫妇早就已经结婚了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16832#       发表于 2020-3-16 00:42
+
+
+
+ 本帖最后由 AloissiolA 于 2020-3-16 00:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46750273&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-15 23:55</a>
+
+shiba这是中了吗，日本人是真的放弃了吗。
+
+看来宅女众多的杏优势很大啊。 ...</blockquote>
+翻了翻中人推，没有疫情相关，倒是最近疑似发生一件让她很难受的事情，可能单纯是休息吧
+
+
+而且重症不太可能还写信，轻症在家自我隔离可能直播还勤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16833#       发表于 2020-3-16 01:08
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-16 01:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46750128&amp;ptid=1907975" target="_blank">冰寒之月 发表于 2020-3-15 23:41</a>
+
+mysk不是说和老公离婚了嘛 当然不管了</blockquote>
+？？？谁说的，当初不是恩爱到可以为之放弃直播吗，怎么这就和离了？那你楼姨控不是终于不用带绿帽了？可以预见的面包狗噶吃量啊噗啊噗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+syl
+
+免费你说的那些也算基础唱功了，我是不知道你是不是蒙面歌王，但是就我上声乐课的经历看来九成多的人连这些基础都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而我一直想论证的就是就是偶像在歌力的要求上本身就和普通人没什么差别了，所以星街歌力不稳定和她的偶像营业没什本质关系。还有你们别被免费带了节奏，他说星街唱的不堪入耳你们就要跟着啊，啥叫不堪入耳，我觉得只有我家星川和巧克老师那种才叫听不下去不堪入耳好吧。（虽然星街真的蛮菜的）
+
+
+zsyl
+
+无论是律可还是优十，我都觉得原来那套更适合。不过奏手这套........我真的好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+zzsyl
+
+作为一个资深伪娘厨，这个伪娘的问题在于审美太过3G真的快，从脸到服饰都给人一种零几年的感觉，对就是黑执事，这种上古伪娘的品味无论从亚文化度数（对比画女硬说男），对伪娘概念的物化（对比表界雌堕和细节特征完全女性化）还是真实感（只微妙的偶尔给人一种女性感的恰到好处的男性角色）都比不上之后十几年经过这三方面特化的类型，画风还中古的要死，你去看看tpc画的一球超人，在p站能有这么多st就靠画风（否则他这个性格简直biss）拉胯不是很正常。
+
+
+zhsyl
+
+白姨站c位我怎么感觉是白白白白白 黑啊www
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 16834#       发表于 2020-3-16 01:09
+
+
+
+
+尊组突然动态开团了啊……其实没必要，毕竟路人根本看不到动态<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16835#       发表于 2020-3-16 01:11
+
+
+
+
+哦对了，我是真的觉得这次日本很难顶，只希望管人都好好的
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16836#       发表于 2020-3-16 01:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751093&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-16 01:11</a>
+哦对了，我是真的觉得这次日本很难顶，只希望管人都好好的</blockquote>
+哎，我期望日本捂不住炸了狠狠打那些日本网民的脸，又希望根本不会炸这样自己喜欢的动漫和管人不会受到很大影响，老双标了.<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 16837#       发表于 2020-3-16 01:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就局部爆炸
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 16838#       发表于 2020-3-16 01:28
+
+
+
+
+开团正常啊，在圈里呆久了基本都知道尊组有多脑残了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16839#       发表于 2020-3-16 01:29
+
+
+
+
+【オフコラボ】２人でお泊まり！かまいたちの夜やる！【#ころころでびる】
+[https://www.youtube.com/watch?v=Vfv4EwqGdQ4](https://www.youtube.com/watch?v=Vfv4EwqGdQ4)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16840#       发表于 2020-3-16 01:43
+
+
+
+
+才看到大舅子去kerin家串门了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 16841#       发表于 2020-3-16 01:45
+
+
+
+
+弱智急先锋是这样的，你虹在阿b无人问津就是这帮人的功劳
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16842#       发表于 2020-3-16 01:51
+
+
+
+
+七色太监不就这样么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
