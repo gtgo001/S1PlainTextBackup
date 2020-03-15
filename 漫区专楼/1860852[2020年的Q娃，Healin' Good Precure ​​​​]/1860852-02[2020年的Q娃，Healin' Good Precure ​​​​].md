@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-12 00:00** 
+> ## **本文件最后更新于2020-03-15 12:00** 
 
 
 
@@ -571,4 +571,581 @@
 
 
 
-                                                
+
+
+-----
+
+####  最强惠酱  
+##### 1532#       发表于 2020-3-12 02:42
+
+
+
+
+和佳家可不穷，母亲辞职陪住了这么久医院，家里还能去别地建由父亲自己设计的房子，母亲大概是久了闲得慌吧
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1533#       发表于 2020-3-12 02:49
+
+
+
+
+说来和佳父亲是在工作地方与妈妈相遇相爱，收货时看到这样的巨乳换我也恋上啊
+<img src="https://p.sda1.dev/0/fd040b6b6a6be26ea7dfedd4bc85e06b/IMG_FB2FE0E34976C318CE621ECF8EF27376.jpeg" referrerpolicy="no-referrer">
+（内裤老师绘）
+
+
+
+
+
+
+
+-----
+
+####  kal_008  
+##### 1534#       发表于 2020-3-12 10:05
+
+
+
+
+卧槽，东映开天猫旗舰店了[https://dydh.tmall.com](https://dydh.tmall.com)
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 1535#       发表于 2020-3-12 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700924&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-3-12 02:49</a>
+
+说来和佳父亲是在工作地方与妈妈相遇相爱，收货时看到这样的巨乳换我也恋上啊
+
+
+（内裤老师绘） ...</blockquote>
+我……我也……
+
+太太我……<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 1536#       发表于 2020-3-12 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46702807&amp;ptid=1860852" target="_blank">kal_008 发表于 2020-3-12 10:05</a>
+
+卧槽，东映开天猫旗舰店了https://dydh.tmall.com</blockquote>
+看了下还没有开始卖光美或者来打还有战队都周边，倒是有贴光美的banner，应该以后会有吧~
+
+
+
+
+
+
+
+-----
+
+####  himfsz  
+##### 1537#       发表于 2020-3-12 10:17
+
+
+
+<blockquote>PrincessBanana 发表于 2020-3-12 10:13
+看了下还没有开始卖光美或者来打还有战队都周边，倒是有贴光美的banner，应该以后会有吧~ ...</blockquote>
+东映动画干嘛要卖骑士和战队的周边？？？
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1538#       发表于 2020-3-12 10:59
+
+
+
+
+原来内裤老师还在创作的吗？
+
+
+
+
+
+
+
+-----
+
+####  阿渣兄  
+##### 1539#       发表于 2020-3-12 11:05
+
+
+
+
+好久没看到内裤老师了！
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1540#       发表于 2020-3-12 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46703612&amp;ptid=1860852" target="_blank">風駿 发表于 2020-3-12 10:59</a>
+原来内裤老师还在创作的吗？</blockquote>
+内裤老师每天都有画，基本一周4，5天q娃两天鬼太郎或者其他
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1541#       发表于 2020-3-12 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46698526&amp;ptid=1860852" target="_blank">王留美 发表于 2020-3-11 22:31</a>
+
+前教授啦
+
+开篇时阿光家的状态就是两个退休老人+一个未成年女儿+一个家庭主妇（没有固定连载=没有固定收入 ...</blockquote>
+光爸倒也不一定是前教授。根据他所在的学校，光爸有可能是只是从有本科课堂授课工作的教授，转职成没有授课任务的研究员，或者不带本科生只带一起外出的研究生了。而且他这样一年只有一天回家，大概率是研究员、博导这样的工作。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1542#       发表于 2020-3-12 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46700885&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-3-12 02:42</a>
+
+和佳家可不穷，母亲辞职陪住了这么久医院，家里还能去别地建由父亲自己设计的房子，母亲大概是久了闲得慌吧 ...</blockquote>
+小孩住院大人陪护这个应该是医保范畴的吧？花寺爸作为设计师其实和星奈妈那种看编辑部赏饭也差不多，看开发商赏饭，但要是有饭就直接是大餐。花寺妈绝对是闲得慌。
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1543#       发表于 2020-3-12 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46704212&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-3-12 11:43</a>
+
+内裤老师每天都有画，基本一周4，5天q娃两天鬼太郎或者其他</blockquote>
+自从我发现收图是个无底洞主动退坑后 好久没看到内裤老师的图了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1544#       发表于 2020-3-12 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46707696&amp;ptid=1860852" target="_blank">leleq 发表于 2020-3-12 16:30</a>
+自从我发现收图是个无底洞主动退坑后 好久没看到内裤老师的图了</blockquote>
+我直接把内裤老师设主页每天打开浏览器都能看到新图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1545#       发表于 2020-3-12 17:43
+
+
+
+
+跟你们说，市面上的Q娃官方产品上的图，都有可能是内裤老师画的
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1546#       发表于 2020-3-13 08:29
+
+
+
+<blockquote>kal_008 发表于 2020-3-12 10:05
+卧槽，东映开天猫旗舰店了https://dydh.tmall.com</blockquote>
+什么？！
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1547#       发表于 2020-3-13 12:03
+
+
+
+
+这样一说官图就又更好看了一点<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1548#       发表于 2020-3-13 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46708007&amp;ptid=1860852" target="_blank">最强惠酱 发表于 2020-3-12 16:56</a>
+
+我直接把内裤老师设主页每天打开浏览器都能看到新图</blockquote>
+写个爬虫吧，每天起来内裤老师的图自动放在桌面。
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1549#       发表于 2020-3-13 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46719641&amp;ptid=1860852" target="_blank">mchan 发表于 2020-3-13 14:45</a>
+写个爬虫吧，每天起来内裤老师的图自动放在桌面。</blockquote>
+没有技术力<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 1550#       发表于 2020-3-14 09:34
+
+
+
+
+悲剧
+
+剧场版宣布延期了
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1551#       发表于 2020-3-14 09:47
+
+
+
+
+果然延期了吗
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1552#       发表于 2020-3-14 09:56
+
+
+
+
+上映了没人看或者引起不良后果才是悲剧
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1553#       发表于 2020-3-14 10:17
+
+
+
+
+就日本这抗疫的能力，不知道要猴年马月才能看到粉主的这个形态了
+<img src="http://wx2.sinaimg.cn/large/6765fd79gy1gct5kzlc4lj20bb05ewes.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 1554#       发表于 2020-3-14 10:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/102245cuz3omxctrahlgdu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200314102217.png</strong> (58.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-14 10:22 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/14/102245d7l8dl9pojdojodn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200314102221.png</strong> (81.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-14 10:22 上传
+
+
+
+
+
+
+花寺和佳我王凯牙说有力论据<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1555#       发表于 2020-3-14 10:26
+
+
+
+
+这画的，表情好像牛郎爱大爱，形象气质都不对……
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1556#       发表于 2020-3-14 10:27
+
+
+
+
+这二段应该是板冈锦设计的
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 1557#       发表于 2020-3-14 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46729828&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-03-14 10:24:19</a></blockquote>
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1558#       发表于 2020-3-14 14:32
+
+
+
+
+之前看剧场版限定那毛好像没这么炸
+今年其他人没有剧场版限定形态吗？
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1559#       发表于 2020-3-15 07:56
+
+
+
+
+三代目
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gcu9nc41alj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcu9nc12j8j21400mib29.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gcu9ng3k3nj21400mihdt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gcu9ngz47aj21400minpd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gcu9ni770vj21400mihdu.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gcua229ayej20u061vqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gcua2omswrj21400mihdt.jpg" referrerpolicy="no-referrer">
+
+
+我还以为是梦原希……
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcua4i5p1vj21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+
+然后果实瓶的能力就是普通的放波么……
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gcua4s2eotj21400mi4qq.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcua7081w8j21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1560#       发表于 2020-3-15 08:03
+
+
+
+
+这集搞笑是不错，干部肌肉男也笑点十足，打戏失望，打怪过程简单粗暴，就连使用元素的技能都如此朴实无华连个bank都，这点很失望。
+
+
+
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 1561#       发表于 2020-3-15 10:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">黄战士的笑容太棒了
+
+<img src="https://img.saraba1st.com/forum/202003/15/102027hh9x0xd90f4k0h3f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Photo Mar 14, 7 22 26 PM.jpg</strong> (299.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 10:20 上传
+
+
+
+
+
+
+
+
+
+
+                                               

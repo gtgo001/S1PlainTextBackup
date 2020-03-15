@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 06:01** 
+> ## **本文件最后更新于2020-03-15 12:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_SCY80" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_wDPX9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_R34Bz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_f4djt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_qrl0S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_hf8F5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_i0tZ9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_K9Tc7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_IzdLd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_AFO35" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_bQ0ea" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_G86zf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_FnKBB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_ZcXX7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18389,7 +18389,7 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_skzGg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_rN0Kl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18456,7 +18456,7 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_e1Ix9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_r2Hr4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18490,8 +18490,8 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_HqPQq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_cnP0b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_AGY24" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_myWC0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19221,7 +19221,7 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_vVh4a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_Qs27Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19295,8 +19295,8 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_h2CBI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_YS32M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_IJa4W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_NiQ60" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24737,7 +24737,7 @@ syl:兔子小姐在b站有号的啊，可惜投了几个稿发现没啥人气就
 
 
 各チャンネルはリプ蘭から↓</blockquote>
-<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_P22an" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_e3OLg" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -26833,4 +26833,983 @@ SC没用吧，姬森官号肯定已经把mrr号拉黑了
 
 
 
- 
+
+
+-----
+
+####  Izuru单推人  
+##### 16446#       发表于 2020-3-15 06:08
+
+
+
+
+一觉睡醒起来爬楼就看到关于阿喵喵的事......虽说我也看得不多，但如果怕叫错，用kkr或こころ称呼不就好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16447#       发表于 2020-3-15 07:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46740487&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-03-15 05:03:42</a>
+那mrr是要去holo“扬名立万”？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是被排挤只能转型星际2
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16448#       发表于 2020-3-15 07:28
+
+
+
+
+ケ リ ン 復 活
+[https://www.youtube.com/watch?v=fpHc9jC1Y2E](https://www.youtube.com/watch?v=fpHc9jC1Y2E)
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 16449#       发表于 2020-3-15 08:10
+
+
+
+
+mrr为啥当初从彩虹毕业？有谁知道吗
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 16450#       发表于 2020-3-15 08:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738106&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-14 23:39</a>
+
+前有hiyoko看管质疑联动暴打solo，后有云观众踩一捧一却连名字都搞不清楚，本🐟今天就实名反对低水平钓鱼。 ...</blockquote>
+ 啊喵喵哥怎么可以歧视hiyoko看管的，我要出警了。<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 16451#       发表于 2020-3-15 08:40
+
+
+
+
+葛叶、叶师都开始打cod吃鸡了，反观
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 16452#       发表于 2020-3-15 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741021&amp;ptid=1907975" target="_blank">掉头学姐 发表于 2020-3-15 08:40</a>
+
+葛叶、叶师都开始打cod吃鸡了，反观</blockquote>
+木口不是也开始撸猫了，虽然我不是猫奴，不知道有啥看点，不过数据貌似挺好看的
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 16453#       发表于 2020-3-15 09:00
+
+
+
+
+说到葛叶和叶师，之前他们打塔科夫貌似官号组号都不转的，明明现在塔科夫也算个爆款，这是组里女粉多带来的选择性？
+
+syl，codmw吃鸡我巴不得他凉，服务器tickrate不如cf，究极缝合怪，本质百人抽奖加石头剪刀布，而且带来不知道多少把steam当吃鸡启动器同类的蝗虫，连cod在战网上是暴雪的都说得出，大概15年前的cod都是v社做的吧。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16454#       发表于 2020-3-15 09:23
+
+
+
+
+云都云错了名字还行
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 16455#       发表于 2020-3-15 09:35
+
+
+
+<blockquote>aibot343 发表于 2020-3-15 09:00
+说到葛叶和叶师，之前他们打塔科夫貌似官号组号都不转的，明明现在塔科夫也算个爆款，这是组里女粉多带来的 ...</blockquote>
+我记得是有转播的。
+
+
+没转可能是转播的还没起床吧，如果要说是因为女粉多不转的话，他们平时玩的游戏70%都不用转了。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16456#       发表于 2020-3-15 09:38
+
+
+
+
+葛叶转播的问题不是封面每次看都是初次B限么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16457#       发表于 2020-3-15 09:39
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 09:45 编辑 
+
+是风水问题。
+
+ルーナ直播有趣、唱歌可爱、职业素养强
+
+补了昨晚的歌枠，要成为ルーナイト了😭
+
+melody paypal被冻结
+
+<img src="https://img.saraba1st.com/forum/202003/15/094422suaftbpeuvsevmuc.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-15 094404.png</strong> (99.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 09:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 16458#       发表于 2020-3-15 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46740850&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-15 08:10</a>
+
+mrr为啥当初从彩虹毕业？有谁知道吗</blockquote>
+说白了就是人气低，同接常年3位数
+
+
+同期三人的另外两个是阿葵和熊猫人可能也进一步增加了她的心理落差
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16459#       发表于 2020-3-15 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741404&amp;ptid=1907975" target="_blank">艾特娜 发表于 2020-3-15 09:41</a>
+
+说白了就是人气低，同接常年3位数
+
+
+同期三人的另外两个是阿葵和熊猫人可能也进一步增加了她的心理落差 ...</blockquote>
+可是她这一次同期有龙皇阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我懂了，mrr的同期必定会出超强卡，是这个意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 16460#       发表于 2020-3-15 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741439&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-15 09:46</a>
+
+可是她这一次同期有龙皇阿
+
+我懂了，mrr的同期必定会出超强卡，是这个意思吗 ...</blockquote>
+这次有龙皇，可是也还有个常暗啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 16461#       发表于 2020-3-15 09:50
+
+
+
+
+mrr座敷童子说
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 16462#       发表于 2020-3-15 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741453&amp;ptid=1907975" target="_blank">艾特娜 发表于 2020-3-15 09:47</a>
+
+这次有龙皇，可是也还有个常暗啊</blockquote>
+我看贴吧，常暗不是有万国粉丝声援的图，应该离崛起不远了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16463#       发表于 2020-3-15 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741493&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-15 09:52</a>
+ 我看贴吧，常暗不是有万国粉丝声援的图，应该离崛起不远了</blockquote>
+我不信的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话四期生这么好的条件，还有龙皇带头给曝光度，要崛起早崛起了。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 16464#       发表于 2020-3-15 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741537&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-15 09:57</a>
+
+我不信的说实话四期生这么好的条件，还有龙皇带头给曝光度，要崛起早崛起了。 ...</blockquote>
+印象里中之人是美女啊，这就是爆火的基础了
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 16465#       发表于 2020-3-15 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741493&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-15 09:52</a>
+
+我看贴吧，常暗不是有万国粉丝声援的图，应该离崛起不远了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">若真如此的话MRR就着实是座敷童子了
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 16466#       发表于 2020-3-15 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741549&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-15 09:59</a>
+
+印象里中之人是美女啊，这就是爆火的基础了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">直播不好看的话你都套了皮了中之人再美有个屁用啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16467#       发表于 2020-3-15 10:06
+
+
+
+
+【#ホロ鯖最終決戦】死んだら即終了！Ragnarok ARENA BOSS α ガチ全力挑戦【#とまらないARK】
+
+3月15日 21:00（CST）
+[https://www.youtube.com/watch?v=MrlGPXJ2mm8](https://www.youtube.com/watch?v=MrlGPXJ2mm8)
+
+<img src="https://img.saraba1st.com/forum/202003/15/100618oh99ezz7cam0h90z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>sddefault.jpg</strong> (94.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 10:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16468#       发表于 2020-3-15 10:09
+
+
+
+
+常暗：皮不错、声音拉胯、歌加分、游戏表现因为这次事故受了不小影响、联动笑声很难听
+
+
+luna：皮拉胯、声音不错、游戏表现不错、联动自闭拉胯
+
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 16469#       发表于 2020-3-15 10:38
+
+
+
+
+星圣昨晚的歌回很拉胯么，怎么净土坛和贴吧都在骂
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16470#       发表于 2020-3-15 10:41
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 10:47 编辑 
+
+太卡了，没看
+
+但星街本来唱歌不就那样吗
+
+我是听不出什么好的地方来
+
+就...很平淡，毫无特点
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16471#       发表于 2020-3-15 10:43
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-15 11:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741890&amp;ptid=1907975" target="_blank">肚子疼了 发表于 2020-3-15 10:38</a>
+
+星圣昨晚的歌回很拉胯么，怎么净土坛和贴吧都在骂</blockquote>
+有人在群里说星街在唱歌了，大家快去听，
+
+点进去一听，鲨皇水平。
+
+差不多就这样吧。
+
+
+与其说目前是看星街，不如说是看1000舰长。
+
+好歹也是自称奔着武道馆去的偶像，垮成那样实数不合适。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 16472#       发表于 2020-3-15 10:48
+
+
+
+
+luna这个皮比mrr适合中之人倒是真的
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16473#       发表于 2020-3-15 10:59
+
+
+
+
+大家都说这个皮不行，还没mrr的好，你的见解反而是反过来的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16474#       发表于 2020-3-15 11:01
+
+
+
+
+感谢VTuber，我又学到了对应中文“坐地XX”的日语词汇
+
+【ちょっとHな生配信】お勧めアニメの膣爆（オナMAX）シーンをご紹介！！！
+
+[https://youtu.be/cxQsDjjFJOQ](https://youtu.be/cxQsDjjFJOQ)
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/105925ks4ojsi9jdqjsds4.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-15 105901.png</strong> (139.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 10:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16475#       发表于 2020-3-15 11:07
+
+
+
+ 本帖最后由 落雪无痕 于 2020-3-15 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741640&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-15 10:09</a>
+
+常暗：皮不错、声音拉胯、歌加分、游戏表现因为这次事故受了不小影响、联动笑声很难听
+
+
+luna：皮拉胯、声音 ...</blockquote>
+还是缺少个人特色，而且她们直播效果也挺一般的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16476#       发表于 2020-3-15 11:11
+
+
+
+
+今天下午一弦他们就新衣装直播了，我只祈祷同接能上个500什么的就好了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 16477#       发表于 2020-3-15 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741926&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-15 10:43</a>
+有人在群里说星街在唱歌了，大家快去听，
+
+点进去一听，鲨皇水平。
+
+差不多就这样吧。</blockquote>
+这波鲨皇水平形象生动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过鲨皇只想打游戏
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16478#       发表于 2020-3-15 11:20
+
+
+
+
+我今天第一次看这个cod吃鸡直播，确实好玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">小熊猫别玩ark了，叫上葵皇和黑黑四排吃鸡啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16479#       发表于 2020-3-15 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 没用，你得骗葵皇说这个和守望先锋一样是棒子最喜欢的游戏，葵皇才能放弃ark播这个
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 16480#       发表于 2020-3-15 11:26
+
+
+
+
+龙皇娇喘真有水平啊，天然不做作，果然是经验太足了吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16481#       发表于 2020-3-15 11:33
+
+
+
+
+来一份美国成年女性处女率
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16482#       发表于 2020-3-15 11:39
+
+
+
+
+CDC统计的在2017年，性活跃的比例下降到28.7％，曾经有过性行为的比例是39.5％（高中生）
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16483#       发表于 2020-3-15 11:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 龙圣有没有可能被任任男孩欺骗过感情，
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16484#       发表于 2020-3-15 11:46
+
+
+
+
+我又要出警车轱辘唱功了
+
+你们笑小鬼星咏者瞎吹唱功也就算了
+
+但我寻思星街自己又没吹过唱功，更没说过自己是歌力偶像这种说法，更何况唱功再差和能不能破蛋进馆唱歌有屁关系（
+
+奋斗狂人设不香吗？励志养成不香吗？这还要啥唱功，何况你juan真要去什么带型场馆更加是一箱一箱的去，一群老的小的在上面唱诗你像露露会扭两下都比哈麻批唱功好用滴多。
+
+
+抓着管人粉锤就是了，管人们都精着呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16485#       发表于 2020-3-15 11:49
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-3-15 11:54 编辑 
+
+惊了，今天女团那边北京时间17:00~19:00一班也没有<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+草，看错了，夸和PP天使两台<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16486#       发表于 2020-3-15 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742550&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-15 11:46</a>
+
+龙圣有没有可能被任任男孩欺骗过感情，</blockquote>
+你还是不了解美帝的游戏圈，那可真是老任万物大猪仔
+
+只要稍微有点反抗精神想要当婆罗门的都受不了这种主流浪潮，基本是个人都玩点游戏，玩了就大概率是任任
+
+而且集中于红绿帽子破壳萌等等大热/全家桶
+
+和中国遍地都是蒸斯林然而同时蒸斯林在全社会中又完全是少数中的少数是两码事
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 16487#       发表于 2020-3-15 11:50
+
+
+
+<blockquote>UnhappyTails 发表于 2020-3-15 11:46
+我又要出警车轱辘唱功了
+
+你们笑小鬼星咏者瞎吹唱功也就算了
+
+但我寻思星街自己又没吹过唱功，更没说过自己是 ...</blockquote>
+看过虚拟红白的人都懂管人唱歌水平真的不太能上台面，除了一些歌势，大家唱歌只是为了补充自己的美少女人设骗骗钱罢了。。。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16488#       发表于 2020-3-15 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742585&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-15 11:50</a>
+
+你还是不了解美帝的游戏圈，那可真是老任万物大猪仔
+
+只要稍微有点反抗精神想要当婆罗门的都受不了这种主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> LOL不是挺火的吗？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16489#       发表于 2020-3-15 11:52
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-3-15 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742553&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-15 11:46</a>
+
+我又要出警车轱辘唱功了
+
+你们笑小鬼星咏者瞎吹唱功也就算了
+
+但我寻思星街自己又没吹过唱功，更没说过自己是 ...</blockquote>
+你也说是励志养成，没把她真当实力型偶像，但是养着养着歌力下降了肯定不香啊，昨天我点进去一听都车祸现场了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16490#       发表于 2020-3-15 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742553&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-15 11:46</a>
+
+我又要出警车轱辘唱功了
+
+你们笑小鬼星咏者瞎吹唱功也就算了
+
+但我寻思星街自己又没吹过唱功，更没说过自己是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 你说这个谁懂啊，本人都说了不会唱歌的葵皇还要被追着黑一条街，
+
+
+楼里部分水友包括free的想法就是唱不好还要上台都是自己的错
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16491#       发表于 2020-3-15 11:53
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-15 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742603&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-15 11:51</a>
+
+LOL不是挺火的吗？</blockquote>
+lol超级大火也是六七年前的事儿了
+
+那会儿我估计圣主高中都要毕业了，可能都已经去霓虹了吧而且圣主肯定也不喜欢lol吧......
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16492#       发表于 2020-3-15 11:55
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-3-15 11:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742617&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-15 11:53</a>
+
+你说这个谁懂啊，本人都说了不会唱歌的葵皇还要被追着黑一条街，
+
+
+楼里部分水友包括free的想法就 ...</blockquote>
+这就是问热水器为什么不会制冷了，这种人真心建议亲自演示制冷
+
+免费哥这么懂歌力，说不定真是蒙面肥歌王<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 16493#       发表于 2020-3-15 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742611&amp;ptid=1907975" target="_blank">古战场亡魂 发表于 2020-3-15 11:52</a>
+
+你也说是励志养成，没把她真当实力型偶像，但是养着养着歌力下降了肯定不香啊，昨天我点进去一听都车祸现 ...</blockquote>
+你可以说状态贼差<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+不过星街的状态不稳定在木口也是一等一的，3d回开头高音都上不去呢
+
+当然这点不稳定是妨碍不了大多数管人观众继续脑内养成系化学反应的
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16494#       发表于 2020-3-15 11:58
+
+
+
+
+星街现在才是发育期啊，之前还在蛋里呢。接下来一段时间如果她实力能有肉眼可见的进步还是很稳的，要是松懈下来止步不前那也就火这一阵了。
+
+
+
+
+
