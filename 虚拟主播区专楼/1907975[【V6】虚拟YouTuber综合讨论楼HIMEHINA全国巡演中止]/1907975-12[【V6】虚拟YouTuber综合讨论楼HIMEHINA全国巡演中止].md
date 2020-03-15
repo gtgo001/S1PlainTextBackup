@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 18:00** 
+> ## **本文件最后更新于2020-03-15 20:00** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_MLh5c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_XXM7b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2617,4 +2617,913 @@ free哥，他设定是伪娘啊</blockquote>
 
 
 
-                                             
+
+
+-----
+
+####  baizhi  
+##### 16640#       发表于 2020-3-15 18:02
+
+
+
+
+V圈粉丝体量没那么大吧？难道大家都很喜欢伪娘？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16641#       发表于 2020-3-15 18:05
+
+
+
+
+中性是我的软肋，但是伪娘不是，我个人感觉这两个差别还是很大的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16642#       发表于 2020-3-15 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746275&amp;ptid=1907975" target="_blank">kbtit 发表于 2020-3-15 17:59</a>
+
+个人感觉看上去稍顺眼的也就是刚毕业的朱雀，还有那个大叔</blockquote>
+我能说这是彩虹男V观众综合征吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16643#       发表于 2020-3-15 18:06
+
+
+
+
+奏手新皮同接有600多人，泥楼单推老哥现在是不是要升天了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16644#       发表于 2020-3-15 18:09
+
+
+
+
+啊啊啊啊啊啊啊啊当场去世
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16645#       发表于 2020-3-15 18:10
+
+
+
+
+奏手把兜帽摘了是这个样子的啊，还挺不错的
+[https://www.youtube.com/watch?v=zHyBl5BXWx4](https://www.youtube.com/watch?v=zHyBl5BXWx4)
+
+azki这边开唱了
+[https://www.youtube.com/watch?v=hWhgbqvm01E](https://www.youtube.com/watch?v=hWhgbqvm01E)
+
+【GEMS COMPANY 1st LIVE】Magic Box MC citrossのじかん
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16646#       发表于 2020-3-15 18:11
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 18:29 编辑 
+
+【炎炎ノ消防隊】「インフェルノ / Mrs. GREEN APPLE」covered by NoA
+[https://youtu.be/jfs9FI5Nero](https://youtu.be/jfs9FI5Nero)
+
+
+【ときのそら】さよならのかわりに、花束を【歌ってみた】
+[https://youtu.be/Y7kElmyhHCw](https://youtu.be/Y7kElmyhHCw)
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16647#       发表于 2020-3-15 18:13
+
+
+
+
+eli conifer这会员浓度，感觉在看黄兔子直播一样..
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16648#       发表于 2020-3-15 18:13
+
+
+
+
+白上奏手丧服贴贴
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16649#       发表于 2020-3-15 18:14
+
+
+
+
+有一说一，伪娘本来就没什么受众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女性观众比起伪娘肯定更喜欢绿仙那种中性感觉的，男性观众都去看萌妹去了，哪来受众呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16650#       发表于 2020-3-15 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746407&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-15 18:13</a>
+
+白上奏手丧服贴贴</blockquote>
+老哥你怎么也和大道先生一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16651#       发表于 2020-3-15 18:14
+
+
+
+
+这个活整得我便是没想到
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16652#       发表于 2020-3-15 18:16
+
+
+
+
+对魔忍那个带把的不是人气碾压奶子怪吗，这能说观众纯度不够
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16653#       发表于 2020-3-15 18:22
+
+
+
+
+obs妖精除了掐萌音其他都挺好的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16654#       发表于 2020-3-15 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+19:30～40くらいから！わしの晩御飯です！ステレオマイクを使いますので疑似ASMR的なごはんです。おなかへった
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16655#       发表于 2020-3-15 18:33
+
+
+
+
+阿兰你是改不了你玩头的毛病了吗kora<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16656#       发表于 2020-3-15 18:34
+
+
+
+
+新衣装发表 X
+
+新SC动画发表 O
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 16657#       发表于 2020-3-15 18:38
+
+
+
+
+有一说一，受众还是有的。对于现实女性觉得不可能和失望不就是受众吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16658#       发表于 2020-3-15 18:39
+
+
+
+
+阿兰你在干嘛啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16659#       发表于 2020-3-15 18:44
+
+
+
+
+哦是白西装，是白西装！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 16660#       发表于 2020-3-15 18:48
+
+
+
+<blockquote>Symphomy 发表于 2020-3-15 18:13
+eli conifer这会员浓度，感觉在看黄兔子直播一样..</blockquote>
+这位的观众里石油王浓度也极高
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 16661#       发表于 2020-3-15 18:53
+
+
+
+
+mio的JPOP听起来是舒服啊，问题来了，sora和mio谁歌力更好，sora经常唱管人金曲，mio也经常唱金曲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gaayas  
+##### 16662#       发表于 2020-3-15 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745515&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-15 16:49</a>
+
+三才突击b限
+
+
+木口这些人是怎么了要么不来要么就一窝蜂来</blockquote>
+估计上面有指标？赶紧做做掉，和领导平时布置得一些小任务一样<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16663#       发表于 2020-3-15 18:58
+
+
+
+
+mio音域不够广 高音上不去 但是低音中音很惊艳
+
+空妈高音表现惊艳点 中低音还算可以吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16664#       发表于 2020-3-15 18:59
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 19:02 编辑 
+
+命に嫌われている 歌ってみた ♪春歌みこと♪【ウタゴエ放送部】
+[https://www.youtube.com/watch?v=MJ0IGsJCYTg](https://www.youtube.com/watch?v=MJ0IGsJCYTg)
+
+
+syl
+
+towa要不要唱完了，我都录了4个G了，求求你给我节约点流量
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16665#       发表于 2020-3-15 18:59
+
+
+
+
+“这个月B限做了没？”
+
+“啊，还没呢。”
+
+“要不就明天一起糊弄一下吧。”
+
+“好啊。”
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16666#       发表于 2020-3-15 19:04
+
+
+
+
+“这个月B限做了没？”
+
+“啊，还没呢。”
+
+“要不就明天一起糊弄一下吧。”
+
+“算了吧太麻烦了。”
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16667#       发表于 2020-3-15 19:05
+
+
+
+
+那么多人大乱斗怎么就大亏每次都能打出数据😯
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16668#       发表于 2020-3-15 19:06
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-15 19:16 编辑 
+
+holo真便利呢，以前虹人还能遮羞国内vr和杏人五五开，等我holocn发育起来了估计vr也要有人毕业了;-(
+
+说的是收钱拉，这个圈子多少有点厉外拉同，论流量肯定被爆中爆
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16669#       发表于 2020-3-15 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不见得有55开，vr现在只有1个银盾吧
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 16670#       发表于 2020-3-15 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746841&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-15 19:05</a>
+那么多人大乱斗怎么就大亏每次都能打出数据😯</blockquote>
+兔皇下午大乱斗不是也这个数<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16671#       发表于 2020-3-15 19:20
+
+
+
+
+冬臣，永远的神！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 16672#       发表于 2020-3-15 19:23
+
+
+
+
+律可这换了件衣服好看多了
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 16673#       发表于 2020-3-15 19:26
+
+
+
+
+律可换了新衣服可是我还是一听到他的声音，脑子里自动浮现优十的脸。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16674#       发表于 2020-3-15 19:27
+
+
+
+ 本帖最后由 stedckk 于 2020-3-15 19:30 编辑 
+
+统计了一下天哥这个整活没上名单的liver（不包括空妈 azki）
+
+1期：梅露
+
+2期：486 狗狗 老师
+
+gamers：阿汤 狗子 mio
+
+无印： miko
+
+
+天哥现在是不是可以称为杏最会蹭热度的选手，同接已经超过大天使了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16675#       发表于 2020-3-15 19:29
+
+
+
+
+忙了一天点开V综没想到你们车轱辘了一天歌力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16676#       发表于 2020-3-15 19:30
+
+
+
+
+我一开hiyoko哈哥6000同接リリむ5600同接，草
+
+
+
+
+
+
+
+-----
+
+####  天球仪观测者  
+##### 16677#       发表于 2020-3-15 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">润姨又腰疼了？
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16678#       发表于 2020-3-15 19:38
+
+
+
+
+不会真有人觉得唱功垃圾也没事吧，一般路人粉会被吓跑的，以后还是别开麦了，学学三次元偶像
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16679#       发表于 2020-3-15 19:38
+
+
+
+
+要是这次通话towa又露出了男声，那就神作了 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16680#       发表于 2020-3-15 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们hololive的演技都这么浮夸的吗
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16681#       发表于 2020-3-15 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这pp天使真会蹭热度，师承带天使？
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16682#       发表于 2020-3-15 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斜阳  
+##### 16683#       发表于 2020-3-15 19:45
+
+
+
+
+要是能借到会长Discord号来整活才神了，拿自己的号算什么事
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16684#       发表于 2020-3-15 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747257&amp;ptid=1907975" target="_blank">soraku 发表于 2020-3-15 19:43</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站小鬼还自豪得很
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 16685#       发表于 2020-3-15 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实这声明也没啥用 转的可没安什么好心
+
+阿B也不会因为你一个小主播的声明不给视频过审 
+
+最后还是要警察去找客服扯皮 顶多有这个证明扯皮更容易了一点而已
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16686#       发表于 2020-3-15 19:50
+
+
+
+
+看腻了，连我舍友那个坚决不关注中之人的百鬼gachi都知道小肥妹的真身了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16687#       发表于 2020-3-15 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">有个毛用，说不准转载就不转了还是法外之地吗，大不了转抖音快手给抖音快手引流
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16688#       发表于 2020-3-15 19:54
+
+
+
+
+肥妹在逼站每天都在过生日
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16689#       发表于 2020-3-15 19:57
+
+
+
+
+天天过生日艹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个视频不知道为啥老是出现在我首页
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16690#       发表于 2020-3-15 19:58
+
+
+
+
+阿希讲不好就是刷首页刷到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16691#       发表于 2020-3-15 19:59
+
+
+
+
+天天删了又传能不经常出现吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16692#       发表于 2020-3-15 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747247&amp;ptid=1907975" target="_blank">kbtit 发表于 2020-3-15 19:42</a>
+
+这pp天使真会蹭热度，师承带天使？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 给露娜引流了还涨粉了呢
+
+
+
+
+
+                                           
