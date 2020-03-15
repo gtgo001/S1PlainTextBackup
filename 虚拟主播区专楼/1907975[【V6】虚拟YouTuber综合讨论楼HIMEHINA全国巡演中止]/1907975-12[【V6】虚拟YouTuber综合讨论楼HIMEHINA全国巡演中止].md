@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 02:01** 
+> ## **本文件最后更新于2020-03-16 04:01** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_pWDrb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_Us5yv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6307,4 +6307,354 @@ zhsyl
 
 
 
-                                      
+
+
+-----
+
+####  soraku  
+##### 16843#       发表于 2020-3-16 02:07
+
+
+
+
+有人看NoWorld这个组合吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">最近在B限，我看涨粉还挺快的
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 16844#       发表于 2020-3-16 02:10
+
+
+
+
+尊祖又整活了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 16845#       发表于 2020-3-16 02:15
+
+
+
+
+给人整笑了
+活该风评这么差
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 16846#       发表于 2020-3-16 02:19
+
+
+
+ 本帖最后由 深林幽泉 于 2020-3-16 02:25 编辑 
+
+尊组在哪整活了，没看到吗
+
+编辑：原来是组号动态，这也算整活吗，我看下面的评论都十分赞同啊
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16847#       发表于 2020-3-16 02:30
+
+
+
+
+别说了，我也巴不得日本网民多死点，但我不想让二次元行业受到一丝影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16848#       发表于 2020-3-16 02:33
+
+
+
+
+如果彩虹有石先生，那能培养出下一个石夫人吗？那也说不定。
+
+
+请问上一个是谁？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七色太监人均谜语人
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 16849#       发表于 2020-3-16 02:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">kerin和友人H让我的青春又回来了
+虽然不看好他们那个箱，能看一点是一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 16850#       发表于 2020-3-16 02:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">🌈人急了急了急了
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16851#       发表于 2020-3-16 02:44
+
+
+
+
+突然很好奇这种整活的彩虹组在今年初日本杏渐渐超越虹时心理活动如何<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16852#       发表于 2020-3-16 02:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751823&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-16 02:19</a>
+
+尊组在哪整活了，没看到吗
+
+编辑：原来是组号动态，这也算整活吗，我看下面的评论都十分赞同啊 ...</blockquote>
+尊组的核心意思不就是holo的人气都是靠石某拉来的的，他们宁可不要么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，那只能祝彩虹人气永远低下去了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16853#       发表于 2020-3-16 03:02
+
+
+
+
+尊组：VR&lt;石头人。建议击毙。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16854#       发表于 2020-3-16 03:10
+
+
+
+
+七色太监瞧不起木口在中国人气高，环境被污染
+
+结果本土都被木口干了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  selonng  
+##### 16855#       发表于 2020-3-16 03:10
+
+
+
+ 本帖最后由 selonng 于 2020-3-16 03:50 编辑 
+
+😪
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16856#       发表于 2020-3-16 03:11
+
+
+
+
+这种公司层面的战略入驻，只靠主播自己想办法才是有问题吧。。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16857#       发表于 2020-3-16 03:11
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-16 03:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751702&amp;ptid=1907975" target="_blank">soraku 发表于 2020-3-16 02:07</a>
+
+有人看NoWorld这个组合吗最近在B限，我看涨粉还挺快的</blockquote>
+底边杂鱼爱好者不请自来。去年12月就关注了（实际上出道差不多一年了），偶尔翻翻管区，发现排最底下的有个日v<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">，刚才冲榜一也交了自己的课金费
+
+syl最近404底边也看的越来越少了，那种十几个人看的直播间真是和观众互相折磨，还是换口饭吃算了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16858#       发表于 2020-3-16 03:14
+
+
+
+<blockquote>意思是2434这边staff太好了，不整幺蛾子带波节奏没有热度。。。不过这种热度不要也罢</blockquote>
+
+讲个笑话，网红不要热度<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过我突然想起我的三学理论了，三酱本质也是个七色太监，都是干着网红的事业还装清高<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 16859#       发表于 2020-3-16 03:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46752123&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-16 03:14</a>
+
+讲个笑话，网红不要热度
+
+不过我突然想起我的三学理论了，三酱本质也是个七色太监，都是干着网红的 ...</blockquote>
+就是自己狂造烂梗却要求粉丝完美无瑕吗，有内味了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 16860#       发表于 2020-3-16 03:22
+
+
+
+
+翔哥b限还是能看出这边看彩虹的人还是挺多的，就是这搬运组二创能力在吸引一般通过方面太拉跨了
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 16861#       发表于 2020-3-16 03:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46752117&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-16 03:11</a>
+底边杂鱼爱好者不请自来。去年12月就关注了（实际上出道差不多一年了），偶尔翻翻管区，发现排最底下的有 ...</blockquote>
+草……疗养中，怪不得贴吧有人带火了会有矛盾的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16862#       发表于 2020-3-16 03:56
+
+
+
+
+石夫人不是s1率先黑屁的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
