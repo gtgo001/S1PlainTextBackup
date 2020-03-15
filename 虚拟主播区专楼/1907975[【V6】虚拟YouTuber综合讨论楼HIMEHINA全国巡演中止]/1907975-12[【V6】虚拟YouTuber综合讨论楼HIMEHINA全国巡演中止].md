@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 16:01** 
+> ## **本文件最后更新于2020-03-15 18:00** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_Hq534" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_MLh5c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1955,11 +1955,666 @@ syl
 
 
 
+ 本帖最后由 colodes 于 2020-3-15 16:13 编辑 
 
 ここ硬是把シオン和わため拖上并顺利把企划搞失败，还有脸说“能把人凑齐”
 
 
+还不如吹吹SC
+
+昨日のココのスパチャ　60万円.
+
+.
+
+.
+
+.
+
+昨日のみこのスパチャ　30万円
+
+.
+
+.
+
+.
+
+.
+
+昨日の葛葉のスパチャ　1万5000円
+
+.
+
+昨日のひまわりのスパチャ　8000円
+
+
+ボス戦スパチャ
+
+ホロ(40分)
+
+ココ21万　みこ14.5万　ぺこら13.5万   あくあ10万　　クソガキ5.5万　わため5.1万　　親方4.5万　まつり3.3万　アキ3.3万　　
+
+
+にじボス戦(4時間)
+
+ひまわり8千　葛葉1.5万　
 
 
 
-                                              
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 16607#       发表于 2020-3-15 16:02
+
+
+
+
+我虹属于散兵游勇，跟正规军比不了的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16608#       发表于 2020-3-15 16:05
+
+
+
+
+不过确实，打游戏的效费比比唱歌要高很多
+
+
+唱歌和打游戏直播都是把自身的实力与前人凝结的艺术精华相结合，
+
+唱歌要展现高等级的精华（比如音乐剧、歌剧这些）对自身的实力要求更高
+
+把优秀的游戏的魅力展示出来并不要求自身游戏水平多高，有时候菜点都行
+
+唱歌要挨版权大棒
+
+游戏除了任狗以外其他绝大多数公司欢迎直播
+
+游戏在男观众圈子里也比唱歌要火
+
+
+要是有女管人打一款主流竞技游戏有大葵唱歌的水平绝对火爆了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16609#       发表于 2020-3-15 16:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 有时候不太懂你虹人都在干嘛，几个人的联动要拖上好久才能协调好时间，那句话说的真对，
+
+
+你虹每个人都忙到吐血，但每个人都不知道在忙什么，可能真就是现充线下约炮吧，可木口这边性瘾再大的人也没缺席啊
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16610#       发表于 2020-3-15 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745024&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-15 15:57</a>
+
+别在这车轱辘这些虚无的东西了，晚上木口ark车轱辘没人讨论么？
+
+
+我挺佩服木口这一点的，什么时候人 ...</blockquote>
+这只能说明木口都是宅女，而彩虹都是现充吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16611#       发表于 2020-3-15 16:06
+
+
+
+
+怎么还玩起wows了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16612#       发表于 2020-3-15 16:07
+
+
+
+
+都15号了，我slee呢？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16613#       发表于 2020-3-15 16:08
+
+
+
+ 本帖最后由 ひびき 于 2020-3-15 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745117&amp;ptid=1907975" target="_blank">oshinoshinobu 发表于 2020-3-15 16:06</a>
+
+怎么还玩起wows了</blockquote>
+居然还是败家之眼的工商
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16614#       发表于 2020-3-15 16:22
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 16:59 编辑 
+
+常闇トワ ホロライブ4期生
+
+@tokoyamitowa
+
+できたら18時からアーカイブ無歌枠しようかな
+
+[https://youtu.be/kTz_gqxgY7c](https://youtu.be/kTz_gqxgY7c)
+
+
+自动录播on
+
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16615#       发表于 2020-3-15 16:22
+
+
+
+
+水友赛还行，对面怕不是要一炮不开冲上来贴贴
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16616#       发表于 2020-3-15 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745048&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-15 16:00</a>
+ここ硬是把シオン和わため拖上并顺利把企划搞失败，还有脸说“能把人凑齐”
+
+
+还不如吹吹SC</blockquote>
+不如这个：叶 120円<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 16617#       发表于 2020-3-15 16:31
+
+
+
+
+狼人
+
+はっ∑(･ω･ﾉ)ﾉ
+
+お知らせが遅くなってしまった
+
+
+今日は日本時間19時からビリビリ動画で、JPOPお歌枠やるよ～
+
+そのあとYouTubeでもなんかやりたい！夜遅めな時間かもしれないけど
+
+よろしくね
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16618#       发表于 2020-3-15 16:35
+
+
+
+
+【オフ歌コラボ】レヴィちゃんとオフで思いっきり楽しく歌います！
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16619#       发表于 2020-3-15 16:39
+
+
+
+
+话说那是ROG？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16620#       发表于 2020-3-15 16:45
+
+
+
+
+就不能是木口都是游手好闲的无业游民只能靠死宅打钱养活，彩虹都是有正经工作的当liver只是体验生活？
+
+高下立判
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16621#       发表于 2020-3-15 16:49
+
+
+
+
+三才突击b限
+
+
+木口这些人是怎么了要么不来要么就一窝蜂来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16622#       发表于 2020-3-15 16:49
+
+
+
+
+败家之眼还行
+
+之前我记得睿国杏的评论栏里还有个华硕DD每次抢热评
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16623#       发表于 2020-3-15 17:03
+
+
+
+
+开力开力，stars的接力开力
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16624#       发表于 2020-3-15 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">看了下白姨的日增，这粉到底哪买的
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16625#       发表于 2020-3-15 17:23
+
+
+
+
+看这页数··v看假面的好像不多？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16626#       发表于 2020-3-15 17:27
+
+
+
+[https://docs.google.com/spreadsh ... UwaOWTTs/edit#gid=0](https://docs.google.com/spreadsheets/d/19GVN0puzrsJviEMTtNBA32KRY02zQ1wQ2sCUwaOWTTs/edit#gid=0)
+
+
+azki48的最终列表终于出来了，还是有好多不认识的，一个个扫吧。这次来了200多人，azki姐姐真是办了件好事，我一个星期内不黑她唱歌菜了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16627#       发表于 2020-3-15 17:42
+
+
+
+
+你杏男团真的有的是被皮耽误了，说实话就这位镜见，看了这衣服我就不想看......都不知道yagoo咋想的
+
+<img src="https://img.saraba1st.com/forum/202003/15/174215sljflbnjllqipkkw.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (646.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 17:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16628#       发表于 2020-3-15 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746105&amp;ptid=1907975" target="_blank">free 发表于 2020-3-15 17:42</a>
+
+你杏男团真的有的是被皮耽误了，说实话就这位镜见，看了这衣服我就不想看......都不知道yagoo咋想的
+
+
+ ...</blockquote>
+free哥，他设定是伪娘啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16629#       发表于 2020-3-15 17:44
+
+
+
+
+towa今天歌回听起来咽喉炎好的差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">谨慎一周赚啊
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16630#       发表于 2020-3-15 17:44
+
+
+
+
+木口星的人设我感觉都不太好形容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16631#       发表于 2020-3-15 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">打开了mio的直播间，房管杀疯了，怎么回事。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16632#       发表于 2020-3-15 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746117&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-15 17:43</a>
+
+free哥，他设定是伪娘啊</blockquote>
+这伪娘我昨天碰巧点进去就想吐槽了。。这是男装女性还是用了变声器。。还有当伪娘这是打算走啥路线啊。。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16633#       发表于 2020-3-15 17:49
+
+
+
+
+colod哥不都找过塔了证明kira现实也是女装大佬了吗？倒不如说这形象反倒合适吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你们情报都比我强，不该不知道吧
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16634#       发表于 2020-3-15 17:49
+
+
+
+
+你日最擅长的事不就是装作自己很忙的样子么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16635#       发表于 2020-3-15 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746117&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-15 17:43</a>
+
+free哥，他设定是伪娘啊</blockquote>
+我知道，我是说如果想弄个中性一点的男女都喜欢的人设，可能是绿仙那种的，就这位的人设很难想象到底是吸引男粉还是女粉......还有二期那位阿斯特尔，真的是不太符合一般群众审美的那种。
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 16636#       发表于 2020-3-15 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746137&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-15 17:45</a>
+
+打开了mio的直播间，房管杀疯了，怎么回事。</blockquote>
+啥？三才现在不是没播么？直播间根本没开啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16637#       发表于 2020-3-15 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746240&amp;ptid=1907975" target="_blank">ktmoon 发表于 2020-3-15 17:55</a>
+
+啥？三才现在不是没播么？直播间根本没开啊</blockquote>
+我刚刚提前进去待机，发现房管封了好几页的人，看id像机器人。
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16638#       发表于 2020-3-15 17:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舌怪解封了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16639#       发表于 2020-3-15 17:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">个人感觉看上去稍顺眼的也就是刚毕业的朱雀，还有那个大叔
+
+
+
+
+
+                                             

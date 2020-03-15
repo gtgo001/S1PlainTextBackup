@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 12:04** 
+> ## **本文件最后更新于2020-03-15 18:03** 
 
 
 
@@ -7791,7 +7791,7 @@ A闪出现“对火力担心不足吗？”最终合力击败提妈
 
 
 41E5C72E-FE76-453C-ACDA-0C386E45E68C.jpeg
-(134.16 KB, 下载次数: 0)
+(134.16 KB, 下载次数: 1)
 
 
 
@@ -8280,4 +8280,789 @@ yysy我觉得EA的作画也很没劲，不求FZ地球进化树逼格高得飞起
 
 
 
-                                   
+
+
+-----
+
+####  stefanie张  
+##### 3423#       发表于 2020-3-15 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742728&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 12:03</a>
+
+和这个剧本一比，20话确实不够王道了，特别是王哈被削弱了，只是我觉得20话看起来比19话赶火车还 ...</blockquote>
+20话主要是吃设定，弄一堆魔改，现在大家都在猜菌类到底插没插手，谁来接这个锅。
+
+
+
+
+
+
+
+-----
+
+####  huoguoshan23  
+##### 3424#       发表于 2020-3-15 12:11
+
+
+
+
+可惜 本来能+1的
+
+现在看来完结也就是个x0了最多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  七尾巨头蝎  
+##### 3425#       发表于 2020-3-15 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741511&amp;ptid=1729513" target="_blank">singguo 发表于 2020-3-15 09:54</a>
+
+期待六章王哈啃拉二</blockquote>
+绝    味    拉    脖
+
+
+
+
+
+
+
+-----
+
+####  Lawliet.L  
+##### 3426#       发表于 2020-3-15 12:23
+
+
+
+
+G社出身的监督都这么喜欢致敬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 3427#       发表于 2020-3-15 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741438&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-3-15 09:46</a>
+
+那是小太刀的锅啊，别人只是爆肝画原画的
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+前面把那话都吹成唯一能看的一集了，可问题是爆肝并没有把那集救回来啊，明明是最烂的几集之一啊
+
+
+
+
+
+
+
+-----
+
+####  默逍  
+##### 3428#       发表于 2020-3-15 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743006&amp;ptid=1729513" target="_blank">ualiant 发表于 2020-3-15 12:27</a>
+
+前面把那话都吹成唯一能看的一集了，可问题是爆肝并没有把那集救回来啊，明明是最烂的几集之一啊 ...</blockquote>
+那你倒是从这二十话里挑一段比牛肉丸对戈尔贡打的更好看的部分啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3429#       发表于 2020-3-15 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743006&amp;ptid=1729513" target="_blank">ualiant 发表于 2020-03-15 12:27:45</a>
+前面把那话都吹成唯一能看的一集了，可问题是爆肝并没有把那集救回来啊，明明是最烂的几集之一啊 ...</blockquote>
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 3430#       发表于 2020-3-15 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743006&amp;ptid=1729513" target="_blank">ualiant 发表于 2020-3-15 12:27</a>
+
+前面把那话都吹成唯一能看的一集了，可问题是爆肝并没有把那集救回来啊，明明是最烂的几集之一啊 ...</blockquote>
+首先要分清AB part，其次人家靠作画就把Bpart拖油瓶拉到当时的好评第二
+
+
+
+
+
+
+f0Q5-9yzkZ1nT3cSg4-1p2.jpg
+(588.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-15 12:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/123934x4d39pddc87xop9i.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  影伴光生  
+##### 3431#       发表于 2020-3-15 12:42
+
+
+
+
+乌鲁克民在本作动画的作用让我觉得不如让C闪直接整一堆魔偶实在，日常任务大砍和战斗场景省略至少我是没被带动起来情感
+
+整个七章动画像是一块豆腐，打斗画面这种雕花工夫虽然难做，并且由于几个师傅负责还把整块给割碎了，但是大家还是期待着最后装盘效果
+
+20集这基本是蘑菇点头的内容把豆腐彻底变成了腐乳，该说不亏是真菌嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  godvim  
+##### 3432#       发表于 2020-3-15 12:45
+
+
+
+
+想打个-2，不过有几集打戏撑着，还是-1吧
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 3433#       发表于 2020-3-15 12:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草了，这什么玩意....
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 3434#       发表于 2020-3-15 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743076&amp;ptid=1729513" target="_blank">默逍 发表于 2020-3-15 12:34</a>
+
+那你倒是从这二十话里挑一段比牛肉丸对戈尔贡打的更好看的部分啊</blockquote>
+不识字是吧，他只吹那段打斗的话谁管他，但那段打斗根本挽救不了那一话整体的稀烂
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 3435#       发表于 2020-3-15 12:58
+
+
+
+ 本帖最后由 ualiant 于 2020-3-15 13:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743136&amp;ptid=1729513" target="_blank">stefanie张 发表于 2020-3-15 12:40</a>
+
+首先要分清AB part，其次人家靠作画就把Bpart拖油瓶拉到当时的好评第二</blockquote>
+你是说nico这么宽容的地方好评都上不了90的第二么？有些人是真的牛逼，为了吹作画，连这一集动画明摆着的恶评如潮都可以洗
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 3436#       发表于 2020-3-15 13:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742666&amp;ptid=1729513" target="_blank">6x6z6w 发表于 2020-3-15 11:58</a>
+
+说起来王哈作为初代哈桑，应该也是会Zabaniya的吧，这属于是历代哈桑的独门绝技，可以和小次郎的燕 ...</blockquote>
+是的，尤其是剧情文本里还提过王哈也曾经进行过肉体改造
+
+
+这里的猫腻还是挺多的，个人感觉是后期删改了设定。最有力的证据是王哈的宝具综合评定有A，但是告死天使单个宝具只有C的评价
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3437#       发表于 2020-3-15 13:19
+
+
+
+
+话说这集的N站评分呢，等一个硬挑刺是对创作者的侮辱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 3438#       发表于 2020-3-15 13:20
+
+
+
+
+我就操了…喷都懒得喷了
+
+
+
+
+
+
+
+-----
+
+####  hourousha  
+##### 3439#       发表于 2020-3-15 13:22
+
+
+
+
+那么，高文和拉二哪个味道好营养高？
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3440#       发表于 2020-3-15 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742954&amp;ptid=1729513" target="_blank">Lawliet.L 发表于 2020-3-15 12:23</a>
+
+G社出身的监督都这么喜欢致敬</blockquote>
+企业文化不能丢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6x6z6w  
+##### 3441#       发表于 2020-3-15 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743571&amp;ptid=1729513" target="_blank">hourousha 发表于 2020-3-15 13:22</a>
+
+那么，高文和拉二哪个味道好营养高？</blockquote>
+三红大猩猩可能除了土豆味就是土豆味了，明显是拉二
+
+
+
+
+
+
+
+-----
+
+####  Enfer  
+##### 3442#       发表于 2020-3-15 14:56
+
+
+
+
+不要再说什么给蘑菇亲爹加戏了，我TMD一个闪厨才是看得最憋屈的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+19 20话连着砍戏份，期待已久的乌鲁克相簿没了，闪以自己为饵让提妈过来乌鲁克和说明自己必须在这里死掉的台词没了。贯穿心脏的狙击演出完全就是小太刀笔下咕哒攻略羽蛇神的经典复刻：人物大脸特写拉来拉去，一个黑屏，再用台词交代发生了什么事，看得我PTSD都犯了。心脏致命伤变肾击我忍，但是你好好的狙击，就像20话一样给提妈一个开嘴喷黑色激光、光炮贯穿闪胸膛的剪影镜头交代一下不行吗！
+
+20话王财的音效我吐血，EA的演出什么鬼啊连FZ都不如，闪负责的最重要七章点题人神诀别台词居然砍了，砍了！！我？？？
+
+艾蕾本来我是路人好感，但是这两话一顿高级黑操作猛如虎，越加戏份越让人难受，制作组你们认真的吗？
+
+爷爷……爷爷不说了，惨。真的惨。
+
+fate的动画改编我只承认DEEN，UFO和现在这个制作组早点破产吧谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rollingusagi  
+##### 3443#       发表于 2020-3-15 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">看完后觉得还行啊，没说的那么不堪，最后那段原创我觉得挺好的，毕竟按原作那样搞主角最后就是在旁边喊666会显得很蠢，不过这动画全程看下来只能说不功不过，有亮点的普通的商业广告片
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  vb234  
+##### 3444#       发表于 2020-3-15 15:02
+
+
+
+
+还是闪闪强硬诀别的好，立香站在提妈面前一句我不知道真的是拉垮
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 3445#       发表于 2020-3-15 15:03
+
+
+
+
+“小太刀把御主写的这么没用，看来只有我能力挽狂澜了！”
+
+
+
+
+
+
+
+-----
+
+####  hqtkkb  
+##### 3446#       发表于 2020-3-15 15:19
+
+
+
+
+纯动画党，整部fgo除18集外其他所有集数都迷的很，ufo那个虽然剧情拉垮但氛围塑造还是不错的，fgo真的就是除了特别富裕的那几集作画外就几乎没有能看的点了，别的不说，负责bgm的人先切腹谢罪吧
+
+
+
+
+
+
+
+-----
+
+####  turnyyy  
+##### 3447#       发表于 2020-3-15 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46741984&amp;ptid=1729513" target="_blank">KozueAkimoto 发表于 2020-3-15 10:48</a>
+好像日本那边 都是二号机即视感</blockquote>
+拉赫姆戳弓凛胳膊那块儿太有eoe内味儿了，再加上凛和明日香人设也有点香
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 3448#       发表于 2020-3-15 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744509&amp;ptid=1729513" target="_blank">Enfer 发表于 2020-3-15 14:56</a>
+
+不要再说什么给蘑菇亲爹加戏了，我TMD一个闪厨才是看得最憋屈的好吗
+
+19 20话连着砍戏份，期待已久的 ...</blockquote>
+连06年的deen版都知道王财每个门出来的武器是不一样的，到今年FGO王财开门就只画几个金圈圈然后复制粘贴，属实弟弟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3449#       发表于 2020-3-15 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744509&amp;ptid=1729513" target="_blank">Enfer 发表于 2020-3-15 14:56</a>
+
+不要再说什么给蘑菇亲爹加戏了，我TMD一个闪厨才是看得最憋屈的好吗
+
+19 20话连着砍戏份，期待已久的 ...</blockquote>
+闪厨喜欢DEEN？哇哦，那看来剧场版UBW一定是把你金皮卡塑造的很好<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3450#       发表于 2020-3-15 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745372&amp;ptid=1729513" target="_blank">真红眼教授 发表于 2020-3-15 16:34</a>
+
+连06年的deen版都知道王财每个门出来的武器是不一样的，到今年FGO王财开门就只画几个金圈圈然后复制粘贴 ...</blockquote>
+啥？你是说那个打C妈时候射的那些米加粒子扩散炮是王财？
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3451#       发表于 2020-3-15 17:09
+
+
+
+<img src="https://wx3.sinaimg.cn/small/c1f6f549gy1gcuq51sc79j20rp0fj1ba.jpg" referrerpolicy="no-referrer"> 制作精良的DEEN王财
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3452#       发表于 2020-3-15 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744509&amp;ptid=1729513" target="_blank">Enfer 发表于 2020-3-15 14:56</a>
+
+不要再说什么给蘑菇亲爹加戏了，我TMD一个闪厨才是看得最憋屈的好吗
+
+19 20话连着砍戏份，期待已久的 ...</blockquote>
+我寻思ufo做的不挺好的吗？
+
+
+
+
+
+
+
+-----
+
+####  zechins  
+##### 3453#       发表于 2020-3-15 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">但是艾蕾真的很美
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3454#       发表于 2020-3-15 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745722&amp;ptid=1729513" target="_blank">hcf220 发表于 2020-3-15 17:09</a>
+
+我寻思ufo做的不挺好的吗？</blockquote>
+UFO是有黑的地方，而且不少。要是说DEEN的06做的好我也没意见，毕竟各有喜好，但是有些睁眼瞎说06的王财做得好我就是要来对喷一波，06第19集里面的王财做的真的好？那个米加粒子扩散炮？激光散射冲锋**？说这话的人敢自己去06第19集好好看一下而不是靠着回忆脑补美化好么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zechins  
+##### 3455#       发表于 2020-3-15 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">讨论旺财演出力度那我提名一个ccc无垢心理之后的ea解放！
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3456#       发表于 2020-3-15 17:15
+
+
+
+
+还有06大狗便当那集，王财也是散射激光，打在身上连皮都打不破的那种，除了最后穿胸我没看出来这玩意和王财有多大关系，就这还吹06王财表现力？
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 3457#       发表于 2020-3-15 17:18
+
+
+
+
+立香作为第一主角走这步到是没问题，翻山越岭的艰难感以及芙芙的帮助都做得可以（虽然原作党抱怨王哈被削弱了），可是这嘴炮太像<strong>仅仅是</strong>安抚失去孩子们的母亲而不是最终boss，这对之前提妈的渲染感觉是不够的
+
+
+
+
+
+
+
+-----
+
+####  Enfer  
+##### 3458#       发表于 2020-3-15 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745637&amp;ptid=1729513" target="_blank">任天索尼子 发表于 2020-3-15 17:02</a>
+
+闪厨喜欢DEEN？哇哦，那看来剧场版UBW一定是把你金皮卡塑造的很好</blockquote>
+是的，非常喜欢！赶紧打开硬盘里的DEEN剧场版UBW重温了一遍，这才叫改编啊，节奏流畅BGM在线又爽又开心，闪当头吃刀那一幕真的太可爱了我嘎嘎大笑！
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3459#       发表于 2020-3-15 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745832&amp;ptid=1729513" target="_blank">Enfer 发表于 2020-3-15 17:19</a>
+
+是的，非常喜欢！赶紧打开硬盘里的DEEN剧场版UBW重温了一遍，这才叫改编啊，节奏流畅BGM在线又爽又开心， ...</blockquote>
+没问题，只要别吹DEEN得06垃圾扩散炮王财我就没有任何意见。
+
+
+
+
+
+
+
+-----
+
+####  Redis  
+##### 3460#       发表于 2020-3-15 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744726&amp;ptid=1729513" target="_blank">hqtkkb 发表于 2020-3-15 15:19</a>
+
+纯动画党，整部fgo除18集外其他所有集数都迷的很，ufo那个虽然剧情拉垮但氛围塑造还是不错的，fgo真的就是 ...</blockquote>
+这个音效真是醉了，全片只有那种胸口碎大石的音效，简直傻爆
+
+
+
+
+
+
+
+-----
+
+####  Enfer  
+##### 3461#       发表于 2020-3-15 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745768&amp;ptid=1729513" target="_blank">任天索尼子 发表于 2020-3-15 17:13</a>
+
+UFO是有黑的地方，而且不少。要是说DEEN的06做的好我也没意见，毕竟各有喜好，但是有些睁眼瞎说06的王财 ...</blockquote>
+我说DEEN好主要是因为它知道改编动画应该怎么改，音监在线BGM安排非常漂亮，讲故事的节奏和带动观众感情的安排都可圈可点，而不是一昧死板地抱着原作不分轻重、甚至删掉表现角色的重要描写。
+
+只论王财效果最好那确实是要数UFO，EA表现最好我属意CCC。我对FGO动画的恨一是故事都不好好讲，二是闪难得自我牺牲一回表现必死觉悟，作为结束神代的王对提妈开EA讲人神诀别的关键全砍了，然后给了咕哒？？？好气啊
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 3462#       发表于 2020-3-15 17:31
+
+
+
+
+旺财演出最强的是不是fz闪闪和大帝那一战，至今印象深刻，而且那时候感觉智一的嗓子比现在好<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3463#       发表于 2020-3-15 17:34
+
+
+
+ 本帖最后由 消防 于 2020-3-15 17:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744509&amp;ptid=1729513" target="_blank">Enfer 发表于 2020-3-15 14:56</a>
+
+不要再说什么给蘑菇亲爹加戏了，我TMD一个闪厨才是看得最憋屈的好吗
+
+19 20话连着砍戏份，期待已久的 ...</blockquote>
+之前我说曹尼玛制作组千里眼相声删了梅闪互动删了翘班整个OOC梅林退场戏话都捋不直伊斯塔闪箭头删了乌鲁克民的生活做得一坨狗屎根本立不起来王之死演出还不如同人漫画西杜丽泪奔出城什么鬼闪致命伤那段连个作画都没刚死下一段就到艾蕾卖萌……然后被人喷吹毛求疵
+
+
+现在王哈删宝具并初号机化让那群刀不落到自己头上不知道痛的也能感受到我的愤怒了，突然愉悦起来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Enfer  
+##### 3464#       发表于 2020-3-15 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746017&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-15 17:34</a>
+
+之前我说曹尼玛制作组千里眼相声删了梅闪互动删了翘班整个OOC梅林退场戏话都捋不直伊斯塔闪箭头删了乌鲁克 ...</blockquote>
+梅闪互动全在周边，动画表现就，他们有关系吗？不他们压根不熟，告别演出没了铺垫就让人很莫名其妙：你们干啥呢关系有好成这样吗？伊斯塔的箭头砍得干干净净，我勉强理解为你要卖角色要维护游戏里master love方便赚钱，可乌鲁克市民生活PPT带过一点共情都没有怎么回事，闪前期角色OOC整一个苦情孤寡老人怎么回事，西杜丽的泪奔毁人设整个带歪怎么回事？？
+
+去年FGO和COCO's联动还专门跑新宿找店恰饭抽梅闪隐藏款文件夹的我简直是个傻子……
+
+现在爷爷厨的愤怒就是我的愤怒，愉悦。
+
+
+
+
+
+                                  
