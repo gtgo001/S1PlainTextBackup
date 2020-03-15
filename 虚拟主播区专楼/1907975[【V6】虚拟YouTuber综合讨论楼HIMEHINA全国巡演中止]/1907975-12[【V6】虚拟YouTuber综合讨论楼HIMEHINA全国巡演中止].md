@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 20:00** 
+> ## **本文件最后更新于2020-03-15 22:03** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_XXM7b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_GbI7K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1944,6 +1944,25 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 蛋炒蜂窝煤|-1|捧一踩一，辣 鸡给爷死|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3526,4 +3545,1537 @@ gamers：阿汤 狗子 mio
 
 
 
-                                           
+
+
+-----
+
+####  winda  
+##### 16693#       发表于 2020-3-15 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pp天使，箱内寄生的神
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16694#       发表于 2020-3-15 20:04
+
+
+
+
+我木口大家庭，玩一下同事的梗怎么了？这也要叫寄生蹭热度吗？
+
+不要跟某些阴湿虹人混为一谈好吧
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16695#       发表于 2020-3-15 20:04
+
+
+
+
+
+百鬼あやめ角つき笑顔ホロライブ2期生
+
+@nakiriayame
+
+角つき笑顔放送告知角つき笑顔
+
+
+3月15日　21:00～STARTキラキラキラキラ
+
+
+時間変更しての21時から！！
+
+よろしくたのもーーう！！！
+
+
+
+😭
+
+
+
+
+
+
+
+-----
+
+####  斜阳  
+##### 16696#       发表于 2020-3-15 20:05
+
+
+
+
+草，聚众乳夸，这才对嘛
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16697#       发表于 2020-3-15 20:07
+
+
+
+ 本帖最后由 飞姆托 于 2020-3-15 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747501&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-15 20:04</a>
+
+我木口大家庭，玩一下同事的梗怎么了？这也要叫寄生蹭热度吗？
+
+不要跟某些阴湿虹人混为一谈好吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">就是，我木口大家庭搞个团建，也叫寄生吗，这怕不是虹人嫉妒到脸扭曲了，这企划2434一辈子也抄不了吧，怕是直接不仲毕业了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16698#       发表于 2020-3-15 20:08
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 20:15 编辑 
+
+3.1w 拷贝天使，永远的神
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/200403vb8xbb81ipza3n18.gif" referrerpolicy="no-referrer">
+
+
+<strong>f4PNEVE.gif</strong> (823.85 KB, 下载次数: 1)
+
+下载附件
+
+2020-3-15 20:04 上传
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sedumaizoonl| + 1|手里剑也P一下吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16699#       发表于 2020-3-15 20:08
+
+
+
+
+原来一弦的新衣装也可以拿吉他<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16700#       发表于 2020-3-15 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个分身还行
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16701#       发表于 2020-3-15 20:08
+
+
+
+
+好活！
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16702#       发表于 2020-3-15 20:09
+
+
+
+
+联动时地藏ky怪，个人企划蹭热度就要重拳出击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16703#       发表于 2020-3-15 20:09
+
+
+
+
+葵皇差点被哈哥杀了
+
+
+
+
+
+
+D0042841-A34D-4848-A664-8C52828693D1.jpeg
+(20.56 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-15 20:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/200920kuma6harswjo5mza.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16704#       发表于 2020-3-15 20:11
+
+
+
+
+pp天使什么时候能斩京华接手他的势力？
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 16705#       发表于 2020-3-15 20:12
+
+
+
+
+还是船长比较牛逼
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 16706#       发表于 2020-3-15 20:12
+
+
+
+
+德比拿着机翻在B站直播间文字直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16707#       发表于 2020-3-15 20:16
+
+
+
+ 本帖最后由 sedumaizoonl 于 2020-3-15 21:17 编辑 
+
+······还好它转日语了，再说那不知道哪儿的话我人就没了
+
+
+syl好像是中文的东西，我咋一句也听不懂了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16708#       发表于 2020-3-15 20:17
+
+
+
+
+宇智波彼方神回！
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16709#       发表于 2020-3-15 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是pp天使，一套乱太郎卡组就能让空气冷下来
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16710#       发表于 2020-3-15 20:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/201916pzvzfuoji1faqxff.png" referrerpolicy="no-referrer">
+
+
+<strong>2000.png</strong> (93.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 20:19 上传
+
+
+
+
+
+
+
+三 天 皇
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16711#       发表于 2020-3-15 20:20
+
+
+
+
+倍杀倍杀
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16712#       发表于 2020-3-15 20:21
+
+
+
+
+【水科葵】【歌ってみた】猫猫的宇宙論/ナユタン星人【ジェムカン】
+[https://youtu.be/9kg7mk_q3nU](https://youtu.be/9kg7mk_q3nU)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16713#       发表于 2020-3-15 20:21
+
+
+
+
+萌新刚来v综，请问你们说的天皇是天音彼方吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16714#       发表于 2020-3-15 20:21
+
+
+
+
+这企划船长有一半功劳不过分吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16715#       发表于 2020-3-15 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">船长确实能有一半功劳，只能说大家都喜欢看乳夸
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16716#       发表于 2020-3-15 20:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">最后这出是船长想的还是天哥想的
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16717#       发表于 2020-3-15 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747702&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-15 20:19</a>
+
+三 天 皇</blockquote>
+P皇最强！P皇最强！
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16718#       发表于 2020-3-15 20:24
+
+
+
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16719#       发表于 2020-3-15 20:25
+
+
+
+
+阿委开个艾希都比大天使大乱斗高，吐了
+
+
+
+
+
+
+
+-----
+
+####  凉宫春日的野望  
+##### 16720#       发表于 2020-3-15 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747743&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-15 20:23</a>
+最后这出是船长想的还是天哥想的</blockquote>
+船长策划的，狐皇立马加入
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16721#       发表于 2020-3-15 20:26
+
+
+
+
+天皇草，月之美兔以后只能叫月皇了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16722#       发表于 2020-3-15 20:26
+
+
+
+
+Q：天使还在啊？ 这是天使以外都很意思的企画嘛
+
+A：但除了厚颜无耻的天使外，没人能集合这些人了
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16723#       发表于 2020-3-15 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我错过了新皇登基？到底pp天使播了什么
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16724#       发表于 2020-3-15 20:27
+
+
+
+<img src="http://wx2.sinaimg.cn/mw690/007OWBEMgy1gcurwwjdnkj30u016fn5d.jpg" referrerpolicy="no-referrer">
+
+来张润姨
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 16725#       发表于 2020-3-15 20:27
+
+
+
+
+考拉这拼命找日语弹幕的样😂
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 16726#       发表于 2020-3-15 20:27
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-3-15 20:28 编辑 
+
+夏哥平时模仿挺上手，这次咋就拉胯了，下次一起模仿阿夸试试
+
+syl：我记得不是日v好像都有插件可以翻译？比如上次节奏风暴船长那里就翻译成满屏的恶心了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16727#       发表于 2020-3-15 20:32
+
+
+
+
+兔头明明是伪（委）皇，jk组早该退环境了XD
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 16728#       发表于 2020-3-15 20:33
+
+
+
+
+还是少主姜辣
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16729#       发表于 2020-3-15 20:34
+
+
+
+
+哈哥快8000棒了omo
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16730#       发表于 2020-3-15 20:34
+
+
+
+
+这楼有新被迫害役了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16731#       发表于 2020-3-15 20:35
+
+
+
+ 本帖最后由 Symphomy 于 2020-3-15 20:42 编辑 
+
+我都强调了很久了，今晚的主角该是哈哥
+
+
+
+
+
+
+E344B0EF-26D5-4344-AD91-74A16FE17D10.jpeg
+(19.95 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-15 20:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/204218reell0q1aj376v7v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16732#       发表于 2020-3-15 20:39
+
+
+
+
+哈哥这个速度下个月肯定银盾，lz记得预约一个标题位置。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16733#       发表于 2020-3-15 20:41
+
+
+
+
+兔头的游戏力啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16734#       发表于 2020-3-15 20:44
+
+
+
+
+哈哥彻底熬出头了，感慨
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16735#       发表于 2020-3-15 20:51
+
+
+
+<img src="http://wx2.sinaimg.cn/mw690/006lMFJogy1gcurkf4qefj316e0u07m8.jpg" referrerpolicy="no-referrer">
+
+来点贫乳肥妹
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16736#       发表于 2020-3-15 20:55
+
+
+
+
+这楼里肥妹的热度还挺高，是因为和白姨贴贴么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16737#       发表于 2020-3-15 20:57
+
+
+
+
+刀光剑影的bbalive里少有的傻白甜小妹不好么。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16738#       发表于 2020-3-15 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你楼之前不是还有个小肥妹gachi吗
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16739#       发表于 2020-3-15 21:09
+
+
+
+
+按照bbalive的招人要求，以后估计只有bba不会有希妹这样的了，不过也还好，反正我只看大天使<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 16740#       发表于 2020-3-15 21:12
+
+
+
+
+本质肉体厨
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16741#       发表于 2020-3-15 21:13
+
+
+
+
+天哥倒了，真就游戏黑洞
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 16742#       发表于 2020-3-15 21:16
+
+
+
+ 本帖最后由 贝伦二世 于 2020-3-15 21:22 编辑 
+
+草，只有天哥倒了？
+运气啊
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16743#       发表于 2020-3-15 21:19
+
+
+
+
+【Bloodborne】まーたでっけーのがくるんでろー？【本間ひまわり/にじさんじ】
+
+2,235 人正在观看•直播开始时间：16分钟前
+
+
+彩虹订阅第二的人就这？真是有够好笑得呢^^_  
+
+
+建议40w订阅纪念回一转引退创造神回呢
+
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 16744#       发表于 2020-3-15 21:22
+
+
+
+
+这就是困难模式吗，真是有够好笑呢
+终于能换图了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16745#       发表于 2020-3-15 21:22
+
+
+
+
+嗯？又完了？
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16746#       发表于 2020-3-15 21:22
+
+
+
+
+有够好笑的，这就是ARK的BOSS吗，还不到30分钟
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16747#       发表于 2020-3-15 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好轻松，昨天不是谁说打困难要死好几个甚至团灭的吗，也就死了个天哥。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 16748#       发表于 2020-3-15 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧创世纪吧 想看受苦
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16749#       发表于 2020-3-15 21:25
+
+
+
+
+菠菜贴大失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zcs1805  
+##### 16750#       发表于 2020-3-15 21:26
+
+
+
+
+ppt开场下龙空枪，基本没输出是白送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16751#       发表于 2020-3-15 21:27
+
+
+
+
+本来就简单啊，阿尔法难度蜘蛛叶一个人就能过，贝塔难度也就随便加几个划水的也过了，考拉拿着自己的屎壳郎打boss都没死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16752#       发表于 2020-3-15 21:27
+
+
+
+
+这就是困难吗，挺轻松的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16753#       发表于 2020-3-15 21:28
+
+
+
+
+菠菜贴也跟着一起拉跨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16754#       发表于 2020-3-15 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就该每人两只龙自己出，会长兔子包办暴龙，巫女包办至高鞍，吃大锅饭的配置太高了
+
+syl这次配队三只猪，会长是真的怂
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16755#       发表于 2020-3-15 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46748518&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-15 21:25</a>
+
+菠菜贴大失败</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">怎么算失败呢，不是全活吗，唯一一个
+
+
+
+
+
+
+
+-----
+
+####  stuka1942  
+##### 16756#       发表于 2020-3-15 21:30
+
+
+
+
+这boss太水了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 16757#       发表于 2020-3-15 21:31
+
+
+
+ 本帖最后由 Devi_Lito 于 2020-3-15 21:43 编辑 
+
+速报：露露3D暂定本月内公开（如果一切都顺利的话）
+
+喜报：露露暂定不打ARK
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 16758#       发表于 2020-3-15 21:33
+
+
+
+
+翔哥这首播比德比好多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16759#       发表于 2020-3-15 21:33
+
+
+
+
+2434的3d好像没有啥期待的必要吧
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16760#       发表于 2020-3-15 21:34
+
+
+
+
+露露3d感觉看过好多次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16761#       发表于 2020-3-15 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">结果整个BOSS战的看头就是MIKO一**把peko杀了
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16762#       发表于 2020-3-15 21:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不怎么看虹的我在秋秋群都看到好多露露3D动图了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16763#       发表于 2020-3-15 21:37
+
+
+
+
+露露3d看点不就是技师秀操作么
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16764#       发表于 2020-3-15 21:37
+
+
+
+
+翔哥太强了，感觉这B限效果也是数一数二了
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16765#       发表于 2020-3-15 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">太好了，大家都活下来了呢
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16766#       发表于 2020-3-15 21:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">pp天使推上疯狂道歉
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16767#       发表于 2020-3-15 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">天哥这道歉营业也是十分纯熟了
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16768#       发表于 2020-3-15 21:45
+
+
+
+
+露露3D能跳舞吗
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16769#       发表于 2020-3-15 21:46
+
+
+
+
+可惜打完了 要是团灭了再来一波直播谢罪不是破费<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16770#       发表于 2020-3-15 21:46
+
+
+
+
+pp小天使偷师学了不少技能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16771#       发表于 2020-3-15 21:48
+
+
+
+
+啥时候学夸皇吸血啊，新的**女王在路上了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16772#       发表于 2020-3-15 21:51
+
+
+
+
+小天使这游戏力，和大天使基本都是社内两极的存在了。同样的路怕是走不通哦。
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 16773#       发表于 2020-3-15 21:54
+
+
+
+
+天使我觉得杂谈力不错的
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  zcs1805  
+##### 16774#       发表于 2020-3-15 21:56
+
+
+
+
+主要是游戏玩什么都菜，包括狼人杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16775#       发表于 2020-3-15 21:58
+
+
+
+
+不足的游戏力用歌力来补足吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16776#       发表于 2020-3-15 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不一定非要做游戏主播才能吸血，pp小天使道歉，大天使回推安慰。子承父业？
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16777#       发表于 2020-3-15 22:01
+
+
+
+
+b限歌回是真滴效果不错。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                        

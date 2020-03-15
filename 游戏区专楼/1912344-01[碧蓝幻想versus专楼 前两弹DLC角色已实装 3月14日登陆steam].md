@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-14 20:03** 
+> ## **本文件最后更新于2020-03-15 22:03** 
 
 
 
@@ -7752,4 +7752,532 @@ pc版买了之后进去黑屏是怎么回事
 
 
 
-                                   
+
+
+-----
+
+####  nagitoY  
+##### 425#       发表于 2020-3-14 20:11
+
+
+
+
+想问下有没有菲莉的版边版中民工连，格斗游戏的连段感觉还是按照前人总结的来少走点弯路比较好。
+
+本来想选narmaya做主机的，但是她的连段要带入切换架势，感觉不太适合新手。菲莉操作相对要简单点。
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 426#       发表于 2020-3-14 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46735716&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 20:11</a>
+想问下有没有菲莉的版边版中民工连，格斗游戏的连段感觉还是按照前人总结的来少走点弯路比较好。
+
+本来想选n ...</blockquote>
+b站搜一下就有
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  两仪出梦  
+##### 427#       发表于 2020-3-14 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46735487&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-14 19:46</a>
+
+大厅模式在哪啊？online模式里只有ranking和replay。。。</blockquote>
+同问一下，大厅找不到，是有什么开启条件么？
+
+
+
+
+
+
+
+-----
+
+####  765162819  
+##### 428#       发表于 2020-3-14 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737699&amp;ptid=1912344" target="_blank">两仪出梦 发表于 2020-3-14 23:02</a>
+
+同问一下，大厅找不到，是有什么开启条件么？</blockquote>
+选联机第一个选项后打几把定级赛。定完后才能去大厅
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 429#       发表于 2020-3-14 23:20
+
+
+
+
+有没有人遇到手柄和摇杆都不识别的情况<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  两仪出梦  
+##### 430#       发表于 2020-3-14 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737757&amp;ptid=1912344" target="_blank">765162819 发表于 2020-3-14 23:07</a>
+
+选联机第一个选项后打几把定级赛。定完后才能去大厅</blockquote>
+了解！多谢了！
+
+
+
+
+
+
+
+-----
+
+####  downfall  
+##### 431#       发表于 2020-3-14 23:59
+
+
+
+
+steam版，现在进大厅一会就报 0300-0000 错误掉出来，网上也搜不到相关，好像全世界就我是天选？
+
+20兆电信网，开了UU的steam社区加速要不服务器都连不上<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  765162819  
+##### 432#       发表于 2020-3-15 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46738307&amp;ptid=1912344" target="_blank">downfall 发表于 2020-3-14 23:59</a>
+
+steam版，现在进大厅一会就报 0300-0000 错误掉出来，网上也搜不到相关，好像全世界就我是天选？
+
+20兆电信 ...</blockquote>
+同电信。现在大厅很不稳定。但是和同运营商的玩家对战一般不卡。
+
+等加速器支持
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 433#       发表于 2020-3-15 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737912&amp;ptid=1912344" target="_blank">ArcticIce 发表于 2020-3-14 23:20</a>
+
+有没有人遇到手柄和摇杆都不识别的情况</blockquote>
+在进入游戏之后再插手柄不能识别吧。
+
+先插手柄，在开游戏试试。
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 434#       发表于 2020-3-15 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739031&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-15 01:04</a>
+在进入游戏之后再插手柄不能识别吧。
+
+先插手柄，在开游戏试试。</blockquote>
+好像解决了，要在进游戏之后完全不碰键盘才行。。
+
+
+
+
+
+
+
+-----
+
+####  hl7424994  
+##### 435#       发表于 2020-3-15 12:50
+
+
+
+
+PC版奇奇怪怪的毛病太多了……没有垂直同步，键盘手柄不能同时使用，键盘操作还会不时出BUG导致人物固定往一个方向动，要不是各种原因没买PS4真想退款了
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 436#       发表于 2020-3-15 12:59
+
+
+
+
+测试了一下，奥义搓全套和简易出招伤害确实有变化，但是条件是要带入比较长的连段才体现出来，全套要比简易多300到500伤害，如果裸放或者只是abc三下然后接奥义的话伤害是一样的
+
+
+
+
+
+
+
+-----
+
+####  solduchamp  
+##### 437#       发表于 2020-3-15 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743245&amp;ptid=1912344" target="_blank">hl7424994 发表于 2020-3-15 12:50</a>
+
+PC版奇奇怪怪的毛病太多了……没有垂直同步，键盘手柄不能同时使用，键盘操作还会不时出BUG导致人物固定往 ...</blockquote>
+垂直同步可以在显卡控制面板强行打卡，游戏中再不会出现撕裂
+
+
+
+
+
+
+
+-----
+
+####  hl7424994  
+##### 438#       发表于 2020-3-15 13:49
+
+
+
+<blockquote>solduchamp 发表于 2020-3-15 13:24
+垂直同步可以在显卡控制面板强行打卡，游戏中再不会出现撕裂</blockquote>
+好我试试
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 439#       发表于 2020-3-15 13:56
+
+
+
+
+有部分摇杆要用xoutput才能正常使用
+
+
+
+
+
+
+
+-----
+
+####  正直的黄瓜  
+##### 440#       发表于 2020-3-15 14:13
+
+
+
+
+问下，如果买PS4版，那个特典码拿去咸鱼卖，能卖的出去不，应该卖多少钱，本人对格斗游戏有兴趣，手机游戏完全不玩。
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 441#         楼主| 发表于 2020-3-15 14:20
+
+
+
+ 本帖最后由 yuwe0714 于 2020-3-15 14:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744117&amp;ptid=1912344" target="_blank">正直的黄瓜 发表于 2020-3-15 14:13</a>
+
+问下，如果买PS4版，那个特典码拿去咸鱼卖，能卖的出去不，应该卖多少钱，本人对格斗游戏有兴趣，手机游戏 ...</blockquote>
+实体版里那个内置特典码不能直接在gbf里兑换，是需要你在psn store里去输入之后把特典绑定到你的psn账号，然后你再到gbfv游戏里的【联机】☞【查看特典码】里才能看见实际能兑换的特典码，所以说一般都是卖的后者。
+
+现在肯定是能卖得出去的，但是市场价格变化就没注意了，你直接在闲鱼搜一下“gbfv 特典”自己看看市场价吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 正直的黄瓜| + 2|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  mhfdt  
+##### 442#       发表于 2020-3-15 14:33
+
+
+
+
+MAO感觉还行，新人用有奇效，可以乱拳打死老师傅
+
+本人格斗菜鸡用MAO定完级是B
+
+我觉得用MAO最大的要点就是你得知道你现在是什么姿态，把握好这一点然后再连招中切入切换用技能去连段
+
+如果我没看错两个形态下技能CD不共通，这一点挺重要的
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 443#       发表于 2020-3-15 14:41
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-15 14:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744298&amp;ptid=1912344" target="_blank">mhfdt 发表于 2020-3-15 14:33</a>
+MAO感觉还行，新人用有奇效，可以乱拳打死老师傅
+
+本人格斗菜鸡用MAO定完级是B
+
+我觉得用MAO最大的要点就是你 ...</blockquote>
+普通技中不能切形态有啥用,连段中切形态只有版边有用，而且还得最版边要不然根本打不出伤害，最版边一套满资源能打个6500左右，问题是能打6500的人很多，推版还比mao强的多。定级只要赢一场基本就是b，输了也能是个c，定级赛也碰不到老师傅吧，这类游戏基本不存在乱拳打死老师傅这种事，其实就是对面也不会玩。
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  daqi  
+##### 444#       发表于 2020-3-15 15:03
+
+
+
+<blockquote>正直的黄瓜 发表于 2020-3-15 14:13
+问下，如果买PS4版，那个特典码拿去咸鱼卖，能卖的出去不，应该卖多少钱，本人对格斗游戏有兴趣，手机游戏 ...</blockquote>
+我前两天85折买了机票版，rm**0，咸鱼本体3码和DLC两码卖了435，算上之后的3dlc应该可以小赚，记得分开卖不要打包5码不好出
+
+
+
+
+
+
+
+-----
+
+####  正直的黄瓜  
+##### 445#       发表于 2020-3-15 15:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744570&amp;ptid=1912344" target="_blank">daqi 发表于 2020-3-15 15:03</a>
+
+我前两天85折买了机票版，rm**0，咸鱼本体3码和DLC两码卖了435，算上之后的3dlc应该可以小赚，记得分开卖 ...</blockquote>
+本体3码是手游里的，DLC两码是格斗游戏里的两个角色吗？
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 446#         楼主| 发表于 2020-3-15 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744682&amp;ptid=1912344" target="_blank">正直的黄瓜 发表于 2020-3-15 15:15</a>
+
+本体3码是手游里的，DLC两码是格斗游戏里的两个角色吗？</blockquote>
+dlc两码指的也是手游里的特典，季票一共五个角色，每个角色都有手游里对应的一个特典，所以说五个dlc角色一共五个特典码，目前只实装了前两个角色
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 正直的黄瓜| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 447#       发表于 2020-3-15 15:39
+
+
+
+
+想卖码的可以去碧蓝幻想贴吧，有卖码专楼
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 448#       发表于 2020-3-15 16:59
+
+
+
+
+这游戏排位水平还挺硬性的，什么水平就什么排位，就算运气好上分了也会被锤下来，不怎么存在打死老师傅
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 449#       发表于 2020-3-15 20:27
+
+
+
+
+排位的网络环境筛选在哪里啊，没中文暂时不敢开网战，怕遇到垃圾网浪费时间。之前玩doa6，遇到那种一动一卡的对手真是想直接退了。
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 450#       发表于 2020-3-15 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747797&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-15 20:27</a>
+排位的网络环境筛选在哪里啊，没中文暂时不敢开网战，怕遇到垃圾网浪费时间。之前玩doa6，遇到那种一动一卡 ...</blockquote>
+排位匹配到人会先给你看信号再确认打不打，不打可以取消
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 451#       发表于 2020-3-15 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747825&amp;ptid=1912344" target="_blank">air11974 发表于 2020-3-15 20:29</a>
+
+排位匹配到人会先给你看信号再确认打不打，不打可以取消</blockquote>
+那就好
+
+
+
+
+
+                                  
