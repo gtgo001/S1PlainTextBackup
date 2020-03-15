@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 18:03** 
+> ## **本文件最后更新于2020-03-16 00:05** 
 
 
 
@@ -9065,4 +9065,413 @@ UFO是有黑的地方，而且不少。要是说DEEN的06做的好我也没意�
 
 
 
-                                  
+
+
+-----
+
+####  carrybone  
+##### 3465#       发表于 2020-3-15 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745752&amp;ptid=1729513" target="_blank">zechins 发表于 2020-03-15 17:12:01</a>
+但是艾蕾真的很美</blockquote>我重看只敢跳到我老婆那几个镜头看看，不然再完整看一遍要被气笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bird-lay  
+##### 3466#       发表于 2020-3-15 19:42
+
+
+
+
+不过这集弓凛被戳胳膊那段真棒<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 3467#       发表于 2020-3-15 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745817&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 17:18</a>
+
+立香作为第一主角走这步到是没问题，翻山越岭的艰难感以及芙芙的帮助都做得可以（虽然原作党抱怨王哈被削弱 ...</blockquote>
+第七章的第一主角是金古，第二主角是闪，这是以前游戏的访谈提过的内容
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 3468#       发表于 2020-3-15 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747269&amp;ptid=1729513" target="_blank">UNISONIA 发表于 2020-3-15 19:44</a>
+
+第七章的第一主角是金古，第二主角是闪，这是以前游戏的访谈提过的内容 ...</blockquote>
+等等，虽然没玩游戏，但哪怕是动画前面时间看下来第一主角就算不是立香（玩家身份）也应该是贤王，怎么会是金固呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恤兵真綿  
+##### 3469#       发表于 2020-3-15 20:06
+
+
+
+
+最受期待的手游改动画也就这样了。
+
+
+
+
+
+
+
+-----
+
+####  折岛睦月  
+##### 3470#       发表于 2020-3-15 20:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">21话不会就是终章了吧？别的不要求了，医生变身放宝具退场那段请好好表现
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3471#       发表于 2020-3-15 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745972&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 17:31</a>
+
+旺财演出最强的是不是fz闪闪和大帝那一战，至今印象深刻，而且那时候感觉智一的嗓子比现在好 ...</blockquote>
+他太不自律了，机战那边劣化得很明显，以前当然是比现在好的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 3472#       发表于 2020-3-15 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747408&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 19:55</a>
+
+等等，虽然没玩游戏，但哪怕是动画前面时间看下来第一主角就算不是立香（玩家身份）也应该是贤王，怎么会 ...</blockquote>
+虽然不知道你是不是钓鱼但是就先当做不是钓鱼来说说吧……
+
+因为主角在第一部的剧情中，除了序章救玛修和终章象征性的揍了某个角色（看是动画党就先不说是谁了…）以外，真的只是个摄像头。1.5和第二部因为有极少数玩家对此强烈不满，所以加了一些主角的活跃戏份（依然不多），但仅仅是本土就有不少反感给主角加戏的声音存在
+
+
+第一部和第二部的章节主角都是当前那章的副标题写的那个人，例如一部六章的副标题是“光辉的银之腕”（贝狄威尔），二部一章的副标题是“兽国的皇女”（安娜斯塔西亚）；一部七章的副标题是“天之锁”，不用说就是那个人了吧
+
+
+
+
+
+
+
+-----
+
+####  亚历山大帝  
+##### 3473#       发表于 2020-3-15 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745972&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 17:31</a>
+
+旺财演出最强的是不是fz闪闪和大帝那一战，至今印象深刻，而且那时候感觉智一的嗓子比现在好 ...</blockquote>
+这个我同意。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  厄神之息  
+##### 3474#       发表于 2020-3-15 21:13
+
+
+
+
+所以我早就说蘑菇宝具设计能力和起名能力是反比，宝具名字多酷炫多引人遐想具体解释就有多拉跨，不是激光炮就是加属性，超出这范围算我输。他就适合朦朦胧胧说个大概，真亲自下场解释清楚立马让人觉得low的头皮发麻，也不知道该怎么形容这种属性。但是我可求求他以后千万别再御驾亲征了，历史已经两次证明他御驾亲征是真的八行了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  厄神之息  
+##### 3475#       发表于 2020-3-15 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46739690&amp;ptid=1729513" target="_blank">七尾巨头蝎 发表于 2020-3-15 02:08</a>
+战斗续行EX，最后部分翻译
+
+
+就算该名剑士陷入肉体残破，四肢残缺的状态，也会死死咬住敌人</blockquote>
+以我之前对转轮圣王功能误解的经验来看，这很可能不是动画组误读，而是菌哥哥真的只是在说字面意思。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 3476#       发表于 2020-3-15 21:22
+
+
+
+
+伊莉雅第三季vs金闪闪表现出的魄力比本周这集神话之战更强。
+
+只能期待逼王fsf小说不烂尾，动画不拉胯了
+
+
+
+
+
+
+
+-----
+
+####  wang1309495  
+##### 3477#       发表于 2020-3-15 21:36
+
+
+
+
+这么多期待fsf的，我怎么感觉大概率崩？这么多角色到退场的时候就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 3478#       发表于 2020-3-15 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747618&amp;ptid=1729513" target="_blank">折岛睦月 发表于 2020-3-15 20:13</a>
+21话不会就是终章了吧？别的不要求了，医生变身放宝具退场那段请好好表现 ...</blockquote>
+不可能的，多少剧情呢
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 3479#       发表于 2020-3-15 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745972&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 17:31</a>
+旺财演出最强的是不是fz闪闪和大帝那一战，至今印象深刻，而且那时候感觉智一的嗓子比现在好 ...</blockquote>
+我清清楚楚的记得当时闪厨喷ea对王之军势的制作效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+果然是草台的世界
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3480#       发表于 2020-3-15 22:23
+
+
+
+ 本帖最后由 消防 于 2020-3-15 22:33 编辑 
+<blockquote>aptx8285144 发表于 2020-3-15 19:55
+等等，虽然没玩游戏，但哪怕是动画前面时间看下来第一主角就算不是立香（玩家身份）也应该是贤王，怎么会 ...</blockquote>
+
+第一部每章标题很早就放出了（记得是序章还是一章的时候？）
+
+六七章根据玩家反馈有过很大的扩充改动。
+
+原大纲可能是核心主角金固（或者恩奇都？）的一个短篇故事
+
+修改后角色和故事都大幅扩充，金固重要性削弱成为来帮忙的队友A，更是在BOSS战前段就便当。
+
+游戏打下来基本都会认为从头到尾都在线引导剧情的金闪更像核心主角。动画再修改补充一遍，游戏摄像机担当的咕哒夫正式承担主角戏份，和闪分列一二男主，安娜和提妈则分别站上了前段和后段的女主位
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 3481#       发表于 2020-3-15 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749279&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-15 22:23</a>
+
+第一部每章标题很早就放出了（记得是序章还是一章的时候？）
+
+六七章根据玩家反馈有过很大的扩充改动。
+
+原 ...</blockquote>
+对呀，动画看下来就是这样的感觉，虽说前期立香像摄像机（更不用说小刀太火上加油的写法）但是以他的视角为主，很容易让人认为他是主角（姑且不论哪怕是小刀太执笔也有推开马修，戏耍伊斯塔的勇敢)，而整个第7章动画看下来就是“乌鲁克保卫战”主线发展，贤王在前后穿针引线指定大的战略方案（比如指示立香收买女神，给金固疗伤间接策反等等）
+
+
+
+
+
+
+
+-----
+
+####  newfaceryo  
+##### 3482#       发表于 2020-3-15 23:41
+
+
+
+ 本帖最后由 newfaceryo 于 2020-3-15 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46745817&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-15 17:18</a>
+
+立香作为第一主角走这步到是没问题，翻山越岭的艰难感以及芙芙的帮助都做得可以（虽然原作党抱怨王哈被削弱 ...</blockquote>
+这片对我来说映像最深的就是提媽几次的变化了。
+
+前面也半开玩笑的提了一嘴这片就是看提媽怎么从一个普通的星星眼3d女巨人一步步被主角迫害成不可战胜的人类恶大怪兽的。
+
+游戏里其实也提了，但是在游戏过程中其实是没有这么直观的感受的。
+
+
+主角的问题，虽然前面7章确实主角几乎就是一个旁观者。
+
+其实这片就是把终章主角做的事提前到第七章结尾做了一遍。
+
+如果把第七章动画作为一个整体而不是被硬切出来的一部分来看。
+
+至少我觉得是个合理的改编。
+
+要不然真不知道这片子到底讲的是啥了。
+
+
+总的来说还是原作党难伺候，月厨原作党尤其难伺候。
+
+要按我说，既然最后的人类代表都已经提前让咕哒站出来了。
+
+干脆直接把原来的人类代表A闪删了。
+
+闪厨不用看廉价的王财犯恶心
+
+闪黑不用看那张脸犯恶心
+
+不是皆大欢喜
+
+
+
+
+
+
+
+-----
+
+####  灵通  
+##### 3483#       发表于 2020-3-15 23:48
+
+
+
+
+无聊的循环罢了，当年fz做出来原作党喷fz哪里哪里没做好，过几年ubw出来喷ubw哪里哪里没做好不如fz，fa出来喷ubw哪里哪里不行不如ubw，现在fgo哪里哪里不行不如让东出来写的都有了……艹，再过几年是不是又要不如fgo最后闪闪特写超爆炸
+
+
+
+
+
+
+
+-----
+
+####  UNISONIA  
+##### 3484#       发表于 2020-3-15 23:49
+
+
+
+ 本帖最后由 UNISONIA 于 2020-3-15 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749279&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-15 22:23</a>
+
+第一部每章标题很早就放出了（记得是序章还是一章的时候？）
+
+六七章根据玩家反馈有过很大的扩充改动。
+
+原 ...</blockquote>
+后段戏份增加幅度上女主大概是艾蕾
+
+
+另外为什么结构上的主角非得是金古……你可以参照第六章主角是贝狄威尔，看一下第四章的尾声部分
+
+菌自己写的六、七、终，章回主角都有一个非常重要的共性，在那个尾声里一笔带过
+
+他敢在章节实装了以后继续访谈里声称金古是主角不是没有理由的
+
+
+
+
+
+                                 

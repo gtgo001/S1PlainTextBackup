@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 22:03** 
+> ## **本文件最后更新于2020-03-16 00:02** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_GbI7K" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_pUF0L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -5078,4 +5078,989 @@ b限歌回是真滴效果不错。。<img src="https://static.saraba1st.com/imag
 
 
 
-                                        
+
+
+-----
+
+####  落雪无痕  
+##### 16778#       发表于 2020-3-15 22:03
+
+
+
+ 本帖最后由 落雪无痕 于 2020-3-15 22:04 编辑 
+
+其实玩玩小游戏也可以，之前和PEKO的超级兔子人联动，和星街的方块联动，效果都还行。
+
+前段时间还耐久魔界村呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 16779#       发表于 2020-3-15 22:10
+
+
+
+
+游戏打的菜到也可以表演打游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这和大天使一样都是一种表演啊
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 16780#       发表于 2020-3-15 22:11
+
+
+
+
+翔哥这直播效果确实不错
+
+考拉就拉跨了，过气游戏谁还爱看啊，还不如ark呢
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 16781#       发表于 2020-3-15 22:14
+
+
+
+
+初次b限念sc，翔哥永远滴神
+
+（被念到了乐）
+
+
+
+
+
+
+
+-----
+
+####  Miduki  
+##### 16782#       发表于 2020-3-15 22:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小天使光速开一个谢罪会
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 16783#       发表于 2020-3-15 22:18
+
+
+
+
+这场真不错，还有哪个彩虹的男V来过B站吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16784#       发表于 2020-3-15 22:22
+
+
+
+
+可以，这很强(图转NGA星楼)
+
+
+
+
+
+
+-17682605.jpg
+(133.87 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-3-15 22:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/222106eaag2a70x0392la9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16785#       发表于 2020-3-15 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">绿帽坛都已经这么巨魔了吗
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16786#       发表于 2020-3-15 22:27
+
+
+
+ 本帖最后由 ひびき 于 2020-3-15 22:31 编辑 
+
+艹，木口星这边新衣服的水平远超木口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我替女团粉问了：凭什么
+
+也就团长的初始套和星街的新立绘能打一打
+
+
+
+一对比就出来了，狐皇类似风格的衣服素的一批，一点繁复的花边都没有，整就一廉价款
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16787#       发表于 2020-3-15 22:28
+
+
+
+
+我替大亏问了：凭什么？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16788#       发表于 2020-3-15 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749225&amp;ptid=1907975" target="_blank">anwen76 发表于 2020-3-15 22:18</a>
+这场真不错，还有哪个彩虹的男V来过B站吗</blockquote>
+黑黑啊
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 16789#       发表于 2020-3-15 22:30
+
+
+
+
+虽然有两个新衣服了但是这质量我觉得还能乳
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 16790#       发表于 2020-3-15 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749352&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-15 22:30</a>
+
+黑黑啊</blockquote>
+D的晚，能说下名字吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16791#       发表于 2020-3-15 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749362&amp;ptid=1907975" target="_blank">anwen76 发表于 2020-3-15 22:30</a>
+D的晚，能说下名字吗</blockquote>
+搜叶字就能都找到了
+<img src="https://p.sda1.dev/0/72bf6ef6e0a6a06a42504070b8503826/IMG_DD9B8645E3FD3B0E745A0E5801FF969C.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16792#       发表于 2020-3-15 22:33
+
+
+
+
+pp早期杂谈提过直播设置上一直是在问夸皇帝
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 16793#       发表于 2020-3-15 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这处刑给人看笑了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16794#       发表于 2020-3-15 22:34
+
+
+
+
+刚才发现这是NGAstars楼楼主转的推特上一张图，狐狸把自己衣装全身的BB素材提供出去让有能manP好的，不过推特地址忘复制了，大道先生还转了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16795#       发表于 2020-3-15 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749362&amp;ptid=1907975" target="_blank">anwen76 发表于 2020-3-15 22:30</a>
+D的晚，能说下名字吗</blockquote>
+葛叶、叶、贝尔蒙德、社筑、舞元、艾克斯，再加上梦追翔，共七人
+
+
+
+
+
+
+
+-----
+
+####  莉蒂亚丝  
+##### 16796#       发表于 2020-3-15 22:35
+
+
+
+
+天使杂谈确实不错，B限一个人能说好久都保持兴奋状态
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16797#       发表于 2020-3-15 22:36
+
+
+
+
+···其实白上桑这套衣服现实穿出去效果也还可以的
+
+不过这对比图让我想起彩虹gamers的衣服与配饰数量对比了···
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16798#       发表于 2020-3-15 22:37
+
+
+
+
+今天看了一会那个奏手的b限，怎么感觉这么色气啊，看的时候脑补了20页他边哭边和大姐姐〇爱的本子剧情
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 16799#       发表于 2020-3-15 22:37
+
+
+
+
+苔姨这副求着虹男线下联动的嘴脸www 苔gachi准备好加入云绿帽的行列了吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16800#       发表于 2020-3-15 22:39
+
+
+
+ 本帖最后由 QWANG 于 2020-3-15 22:40 编辑 
+
+可能只是神田魅力太大了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">syl
+
+苔姨gachi不得高兴死了，总算可以摆脱没人要的老女人形象了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16801#       发表于 2020-3-15 22:43
+
+
+
+
+金毛筋肉巨根，阿姨拒绝不了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16802#       发表于 2020-3-15 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 我透，翻了下葵皇得推，，怎么总给三枝点赞得，我服了，三枝不会帅到让葵宝迷上了吧，
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16803#       发表于 2020-3-15 22:45
+
+
+
+
+葵宝！？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16804#       发表于 2020-3-15 22:45
+
+
+
+
+说起来大亏新衣服到底怎么回事，她和夸父关系也没那么姜啊？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16805#       发表于 2020-3-15 22:47
+
+
+
+
+可能钱都拿去约优质3D模了吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16806#       发表于 2020-3-15 22:50
+
+
+
+
+とこまち合唱真好听我流泪zqsg。
+
+
+
+syl：图文无关
+
+
+
+
+
+
+ETImma2UwAAe-0e.jpeg
+(69.6 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-15 22:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/224959w2dg0euxrtg626lx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16807#       发表于 2020-3-15 22:54
+
+
+
+
+神田是肌肉男啊，对阿姨有特攻的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16808#       发表于 2020-3-15 23:11
+
+
+
+
+大小天使推上贴起来了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16809#       发表于 2020-3-15 23:12
+
+
+
+
+上周还真的有V宣布结婚的(不是玩梗)
+[https://youtu.be/Oyqf61Hu5Jo](https://youtu.be/Oyqf61Hu5Jo)
+
+<img src="https://img.saraba1st.com/forum/202003/15/231149e20v52zpv55efg77.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-15 231137.png</strong> (191.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 23:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16810#       发表于 2020-3-15 23:14
+
+
+
+
+你楼原来还有人看海苔男直播的吗
+
+海苔男不是说了好多次最喜欢神田了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16811#       发表于 2020-3-15 23:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/15/231756oet15t1g1y6w5w58.png" referrerpolicy="no-referrer">
+
+
+<strong>K_4G7O_SUD1O[EY)C}AEYMQ.png</strong> (257.43 KB, 下载次数: 1)
+
+下载附件
+
+2020-3-15 23:17 上传
+
+
+
+
+
+真正的辛苦钱啊。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16812#       发表于 2020-3-15 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749859&amp;ptid=1907975" target="_blank">QWANG 发表于 2020-3-15 23:18</a>
+
+真正的辛苦钱啊。</blockquote>
+可是如果人家很享受，那能叫做辛苦吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16813#       发表于 2020-3-15 23:23
+
+
+
+
+面包狗老公不管的么，这不得熬出病来<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16814#       发表于 2020-3-15 23:25
+
+
+
+
+可能是那种天天躺在家里抽烟喝酒，就靠着妻子努力打工养自己，还动不动就家暴妻子的男人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 16815#       发表于 2020-3-15 23:25
+
+
+
+
+白姨那张图片让我产生了一个奇怪的联想
+
+
+黑黑黑黑黑
+
+        白
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16816#       发表于 2020-3-15 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46749944&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-15 23:25</a>
+
+白姨那张图片让我产生了一个奇怪的联想
+
+
+黑黑黑黑黑</blockquote>
+可是旁边一个伪娘，削弱了这种感觉
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16817#       发表于 2020-3-15 23:34
+
+
+
+
+35P vs 中华势
+
+<img src="https://img.saraba1st.com/forum/202003/15/233332yhbd523yrraeekf5.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(11).png</strong> (283.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 23:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16818#       发表于 2020-3-15 23:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">去外面看了一圈疫情贴，感叹管人真的与世隔绝一样，特别日本好像一片祥和。
+
+日本人都不重视，可以留意下哪些喜欢现充的v了，特别彩虹这些喜欢线下happy的主。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16819#       发表于 2020-3-15 23:40
+
+
+
+
+说到这个，安洁生病了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  啊鹿  
+##### 16820#       发表于 2020-3-15 23:40
+
+
+
+
+大小天使什么时候合体互补  不是无敌？  （虽然ky这点没办法改
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16821#       发表于 2020-3-15 23:41
+
+
+
+
+mysk不是说和老公离婚了嘛 当然不管了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16822#       发表于 2020-3-15 23:43
+
+
+
+
+真的吗（兴奋
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16823#       发表于 2020-3-15 23:44
+
+
+
+
+说起来彩虹的难波追加还没取消来着？真厉害啊彩虹！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 16824#       发表于 2020-3-15 23:44
+
+
+
+
+阿菜又两天没动了，是不是又病了。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16825#       发表于 2020-3-15 23:52
+
+
+
+
+黒井しば ３月１６～４月 活動休止
+[https://twitter.com/BlackShiba_chan/status/1239207654355918849](https://twitter.com/BlackShiba_chan/status/1239207654355918849)
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 16826#       发表于 2020-3-15 23:53
+
+
+
+
+有人棉花糖问露露要不要试着和hololive的人联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，已经读了快三个小时的棉花糖了，露露表示才三分之一，这是要耐久到早上嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便一提明天早上7点露露要起床配信
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 16827#       发表于 2020-3-15 23:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 给葵皇发了好几个打cod吃鸡的棉花糖，让她赶紧蹭热度，也不知道能不能成
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16828#       发表于 2020-3-15 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">shiba这是中了吗，日本人是真的放弃了吗。
+
+看来宅女众多的杏优势很大啊。
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 16829#       发表于 2020-3-15 23:55
+
+
+
+ 本帖最后由 Symphomy 于 2020-3-15 23:57 编辑 
+
+虽然cod没什么buff，但希望阿葵别玩血源了，可能和他爸社一起开血源都可能打不过他爸，真的拉稀
+
+
+
+
+
+                                       
