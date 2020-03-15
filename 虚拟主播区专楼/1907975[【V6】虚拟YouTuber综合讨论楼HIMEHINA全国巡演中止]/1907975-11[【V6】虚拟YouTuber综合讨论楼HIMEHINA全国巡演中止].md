@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 12:01** 
+> ## **本文件最后更新于2020-03-15 14:01** 
 
 
 
@@ -290,9 +290,9 @@ sio牌友完全是彩虹的形状了www
 
 
 
-<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_f4djt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_qrl0S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_hf8F5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ESz0vGgU8AEr61l?format=jpg&amp;name=small" id="aimg_D56qv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-WtUwAU69Q0?format=jpg&amp;name=small" id="aimg_Ol1jN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES07-XLUwAEnC7k?format=jpg&amp;name=small" id="aimg_znbuV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/ainhooo_0/status/1237711426849927168](https://twitter.com/ainhooo_0/status/1237711426849927168)
 
 愛川 菜帆
@@ -4225,7 +4225,7 @@ https://www.tokyomotion.net/user/netyone ...</blockquote>反正看某+那边求�
 [https://twitter.com/kaya7hara/status/1237657601657040896](https://twitter.com/kaya7hara/status/1237657601657040896)
 
 
-<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_K9Tc7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES0KjIKUMAAW6wL?format=jpg&amp;name=900x900" id="aimg_p7Ph8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7914,7 +7914,7 @@ syl：我感觉野猫还挺会整的，早点上**估计早银盾了。而且她
 
 
 
-<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_AFO35" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES5iqugVAAITElg?format=jpg&amp;name=small" id="aimg_mWwd6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9451,7 +9451,7 @@ u1s1，要会读空气啊<img src="https://static.saraba1st.com/image/smiley/fac
 
 
 
-<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_G86zf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES53UaKX0AARP2E?format=jpg&amp;name=small" id="aimg_jwqhW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -12797,7 +12797,7 @@ syl：彩虹这个l2d的2.0是按什么标准给的？我一直以为全员都2.
 
 [https://youtu.be/xbmh4GB5ct0](https://youtu.be/xbmh4GB5ct0)
 
-<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_ZcXX7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES9d5ZpVAAAMvCl?format=jpg&amp;name=small" id="aimg_JqQVZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18389,7 +18389,7 @@ V圈粉觉得爱丽丝是holo的都一大把，我真不觉得所谓的彩虹底
 
 
 
-<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_rN0Kl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES6gK2eUMAA2cne?format=jpg&amp;name=large" id="aimg_Yl8BA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18456,7 +18456,7 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_r2Hr4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_64HyVAAUDbA6?format=jpg&amp;name=large" id="aimg_ce6B1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18490,8 +18490,8 @@ nga那个国产白上的贴太他妈可乐了，年轻真坏啊。</blockquote>
 
 
 
-<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_AGY24" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_myWC0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPi4gU0AAydgZ?format=jpg&amp;name=4096x4096" id="aimg_I6juH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETBPjWoUEAExaJ1?format=jpg&amp;name=large" id="aimg_pB07I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19221,7 +19221,7 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_Qs27Q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ES_oKJTVAAEYwib?format=jpg&amp;name=large" id="aimg_tZJZ9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19295,8 +19295,8 @@ syl 草 模型一直卡着往左飘 过气连修都不修了
 
 
 
-<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_IJa4W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_NiQ60" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXVCAU0AAoZfQ?format=jpg&amp;name=4096x4096" id="aimg_SWAiN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETCXTHxUcAAG9Y_?format=jpg&amp;name=4096x4096" id="aimg_pyVyO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24737,7 +24737,7 @@ syl:兔子小姐在b站有号的啊，可惜投了几个稿发现没啥人气就
 
 
 各チャンネルはリプ蘭から↓</blockquote>
-<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_e3OLg" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/ETEms5eUcAAK2S-?format=jpg&amp;name=large" height="450" id="aimg_voLx8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -27808,6 +27808,134 @@ lol超级大火也是六七年前的事儿了
 
 
 星街现在才是发育期啊，之前还在蛋里呢。接下来一段时间如果她实力能有肉眼可见的进步还是很稳的，要是松懈下来止步不前那也就火这一阵了。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16495#       发表于 2020-3-15 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742654&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-15 11:57</a>
+
+你可以说状态贼差
+
+不过星街的状态不稳定在木口也是一等一的，3d回开头高音都上不去呢
+
+当然这点不稳 ...</blockquote>
+问题也不只是这一次啊，
+
+3D回也就那么一回事，但是带着捕捉又蹦又跳真的很努力，
+
+很闪耀了。
+
+但是后面的也不单指昨晚，起码连续两次歌回离谱了。
+
+你要是状态不好就挑点简单好唱的口水歌，
+
+难得歌你高音上不去强行唱，
+
+让人听得很难受啊。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 16496#       发表于 2020-3-15 12:02
+
+
+
+
+【生歌枠】ホワイトデーなので恋の歌を歌います【相羽ういは/にじさんじ】
+[https://www.youtube.com/watch?v=L-JqflxyzBU](https://www.youtube.com/watch?v=L-JqflxyzBU)
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16497#       发表于 2020-3-15 12:03
+
+
+
+
+其实歌力更多是一首歌一首歌去练习熟悉的 让所谓歌力强的唱一首她从没唱过的高难度歌多半也会拉胯
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 16498#       发表于 2020-3-15 12:03
+
+
+
+ 本帖最后由 肚子疼了 于 2020-3-15 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742638&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-15 11:55</a>
+
+这就是问热水器为什么不会制冷了，这种人真心建议亲自演示制冷
+
+免费哥这么懂歌力，说不定真是蒙面肥歌王[f ...</blockquote>
+#尾巴更衣室 qiang杀 免费哥
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16499#       发表于 2020-3-15 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46742719&amp;ptid=1907975" target="_blank">冰寒之月 发表于 2020-3-15 12:03</a>
+
+其实歌力更多是一首歌一首歌去练习熟悉的 让所谓歌力强的唱一首她从没唱过的高难度歌多半也会拉胯 ...</blockquote>
+是的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这才说到点子上
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16500#       发表于 2020-3-15 12:05
+
+
+
+
+知道自己不行+说想练唱歌+唱了=不怎么骂
+
+知道自己不行+唱了=自不量力、丢人现眼
+
+以为自己很行+拉跨=挨骂应该的
+
+被人吹的很行+拉跨=？
 
 
 
