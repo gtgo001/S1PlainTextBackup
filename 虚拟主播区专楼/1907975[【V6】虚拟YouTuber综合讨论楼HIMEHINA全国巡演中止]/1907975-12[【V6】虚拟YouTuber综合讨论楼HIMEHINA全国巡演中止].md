@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 14:02** 
+> ## **本文件最后更新于2020-03-15 16:01** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_MPbC1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_Hq534" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1244,4 +1244,722 @@ bsyl，我想吹阿喵喵唱功应该去哪啊，真的好听到爆，有没有�
 
 
 
-                                               
+
+
+-----
+
+####  YODOboi  
+##### 16571#       发表于 2020-3-15 14:02
+
+
+
+
+nico唱见火的也不是唱功好的啊，稍微吹自家唱功的也就是高音厨那种XD syl免费你没昏迷在azki那吗，可以推荐一下杂鱼歌势吗，那的听了十几首大部分就属于普通人加了后期的水平，X裁判那个风格倒是很喜欢
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16572#       发表于 2020-3-15 14:03
+
+
+
+
+能养gachi，gachi给钱，我觉得就挺成功一“偶像”企划了，没啥问题，vtuber嘛，新东西整点新现象也不是不行。
+
+炎上＝同接，谢罪＝SC，复活＝同接＋SC，挺好的啊。
+
+—— 来自 HUAWEI JKM-AL00a, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 16573#       发表于 2020-3-15 14:04
+
+
+
+
+直播音频推流一般也就192-256kbps
+
+采样率44.1
+
+采样位数16bit
+
+硬件本身就是有限制的
+
+
+听声音好听，人可爱就差不多了
+
+真有气短跑调的唱歌也就是图一乐了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16574#       发表于 2020-3-15 14:05
+
+
+
+
+azki这个48小时一直挂后台听呢，多少粉算杂鱼啊，万粉以下？那现在这位恶魔羊就不错的
+[https://www.youtube.com/channel/UCOk9jmuNM4z2USwPxoSnyYg](https://www.youtube.com/channel/UCOk9jmuNM4z2USwPxoSnyYg)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16575#       发表于 2020-3-15 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744031&amp;ptid=1907975" target="_blank">magus 发表于 2020-3-15 14:04</a>
+
+直播音频推流一般也就192-256kbps
+
+采样率44.1
+
+采样位数16bit</blockquote>
+192Kps和无损能盲听出来的真不多，硬件限制也不是在这一块而是在麦上
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| magus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 16576#       发表于 2020-3-15 14:11
+
+
+
+
+也太敬业了，现在在钓鱼，回去听。有这个azki48才对管人海有个数字外的概念，真的太多了syl饼月冰雪奇缘翻唱买了推广之后多了好多毛子观众，怪事
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16577#       发表于 2020-3-15 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743833&amp;ptid=1907975" target="_blank">fs001 发表于 2020-3-15 13:43</a>
+
+偶像哪有唱歌特别厉害的，你以为歌姬呢？
+
+偶像只要皮好、跳舞别错太厉害，有一个向上的人设，重点中的重点 ...</blockquote>
+这我就要说松田圣子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 八十年代可不是这样的
+
+
+至于偶像什么时候变成唱歌拉胯的嘛
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16578#       发表于 2020-3-15 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744106&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-03-15 14:12:14</a>
+这我就要说松田圣子了 八十年代可不是这样的
+
+
+至于偶像什么时候变成唱歌拉胯的嘛 ...</blockquote>现代偶像能和以前比吗？我还喜欢坂井泉水呢，她还承认自己是偶像。 再说偶像也不专指的唱歌，偶像也有演剧的。 卖的人设，再早以前雷锋同志也是偶像<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 16579#       发表于 2020-3-15 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744106&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-15 14:12</a>
+
+这我就要说松田圣子了 八十年代可不是这样的
+
+
+至于偶像什么时候变成唱歌拉胯的嘛 ...</blockquote>
+都说别拿昭和偶像那一套要求现在的这些小偶像了，拿老淋淋和老婆崎作比较也太看得起管人了。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16580#       发表于 2020-3-15 14:30
+
+
+
+
+泥楼又开始车轱辘唱功了，再多来点
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 16581#       发表于 2020-3-15 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46743578&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-15 13:22</a>
+
+所以别看星街了，来看星川吧，虽然星川唱歌不行，但她可爱啊</blockquote>
+虽然星川唱歌调子跑到火星上，高音唱不上去，拍子又跟不上，水平好不了巧可老师多少
+
+
+
+但是星川真的可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16582#       发表于 2020-3-15 14:33
+
+
+
+
+补了雪山人狼，星街真的准备走夸路线了。
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 16583#       发表于 2020-3-15 14:43
+
+
+
+
+你说婆崎是偶像，那堆瑞儿会打爆你的狗头。再说虚拟偶像你要比应该和偶像大师那堆cv去比<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 16584#       发表于 2020-3-15 14:51
+
+
+
+ 本帖最后由 冰寒之月 于 2020-3-15 14:54 编辑 
+
+yysy 我觉得大多数管人唱歌还是比最近梆梆那个新乐队的主唱好听
+
+syl 
+
+星街长得像subahibi里的女神阿库娅 
+
+阿库娅=大亏
+
+所以星街=大亏 
+
+Q.E.D.
+
+
+
+
+
+
+
+-----
+
+####  安达犬  
+##### 16585#       发表于 2020-3-15 14:53
+
+
+
+
+昨天又说天哥跟夸取经，今天又星街走夸路线，我佛了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16586#       发表于 2020-3-15 14:56
+
+
+
+
+弱智live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 16587#       发表于 2020-3-15 14:56
+
+
+
+
+好，我等等就去quin的评论区问他为什么要学阿夸说rua<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16588#       发表于 2020-3-15 14:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟圣天使和白上桑是看穿了业界水平的人
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16589#       发表于 2020-3-15 15:09
+
+
+
+
+mmbk眼袋好大
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 16590#       发表于 2020-3-15 15:10
+
+
+
+
+老实说，我听下来，星街肯定是没有受过专业训练的。唱歌这块只能靠自己练，有声乐老师指导最好。
+
+大亏个人觉得现在天天打游戏，平时不唱的，唱歌水平还不如前世的。
+
+
+但是看管人想那么多干什么，自己开心就好了。
+
+
+
+
+
+
+
+-----
+
+####  jkovkk  
+##### 16591#       发表于 2020-3-15 15:11
+
+
+
+
+泥潭对音域的理解就是高音稳不稳还挺逗的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16592#       发表于 2020-3-15 15:14
+
+
+
+ 本帖最后由 stedckk 于 2020-3-15 15:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星街学圣天使是什么论调。
+
+回上面，泥潭x   free√
+
+
+
+syl
+
+管人下播前无限感谢sc的操作是谁带起来的。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 16593#       发表于 2020-3-15 15:16
+
+
+
+
+要是hololive 人均弱智那我没法看了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16594#       发表于 2020-3-15 15:18
+
+
+
+
+星街rp的是精神病不是弱智，哪里学大天使了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16595#       发表于 2020-3-15 15:19
+
+
+
+
+他holo有个屁的老师指导，live前集中练一练起码别跑调到天上就差不多了，还找声乐老师指导呢，有人指点还能一个个唱的这么难听。
+
+
+音域虽然部分是天生的，不过唱不上去就不要唱，要么就降key或者练练假声，彩菜姐姐那鬼叫一样的高音虽然难听，好歹都是唱上去的，你杏有的人，高音就是在用海豚音的发声方式尖叫，简直比彩菜姐姐还难听一个等级，就这还有吹的，吐了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16596#       发表于 2020-3-15 15:23
+
+
+
+ 本帖最后由 ひびき 于 2020-3-15 15:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744723&amp;ptid=1907975" target="_blank">free 发表于 2020-3-15 15:19</a>
+
+他holo有个屁的老师指导，live前集中练一练起码别跑调到天上就差不多了，还找声乐老师指导呢，有人指点还能 ...</blockquote>
+我是觉得哪些乱上高音的难听术曲就不要唱（点名太阳系disco），多唱唱正常人类的曲子
+
+术力口害人不浅，害人不浅
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16597#       发表于 2020-3-15 15:25
+
+
+
+
+免费哥今天炮轰观众的任务做完了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16598#       发表于 2020-3-15 15:27
+
+
+
+
+虽然管人不行，管人观众更不行，但是依然没有人比我更懂管人圈。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16599#       发表于 2020-3-15 15:34
+
+
+
+
+免宝可爱
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16600#       发表于 2020-3-15 15:35
+
+
+
+
+大亏这是悟了，练唱歌有个吊用，练了能让人给你打sc吗？还是不练yagoo就不让你live出场了吗？
+
+
+星街也该悟了，谁规定偶像人设就一定要唱歌好听的？
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16601#       发表于 2020-3-15 15:37
+
+
+
+
+唱歌好有啥用，唱见都摸了这么多了，比唱见还拉跨的管人哪有那么多可以谈唱功的。
+只要表现出努力就行了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16602#       发表于 2020-3-15 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744862&amp;ptid=1907975" target="_blank">proxima 发表于 2020-3-15 15:35</a>
+
+大亏这是悟了，练唱歌有个吊用，练了能让人给你打sc吗？还是不练yagoo就不让你live出场了吗？
+
+
+星街也该悟 ...</blockquote>
+能啊，星街一次3D歌会九百舰不是证明吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大亏什么时候接近过这个数值
+
+
+只能说让人打sc不光练歌一种方法，练的好了也不一定就有sc
+
+
+你把练歌换成打游戏、rp、整活也是一样的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16603#       发表于 2020-3-15 15:51
+
+
+
+ 本帖最后由 colodes 于 2020-3-15 15:52 编辑 
+
+今天有时间补完了之前因为是外道ママ就有关注了[ひいな](https://www.youtube.com/channel/UCswVE2V9baUzcSlR9O6Jmug)
+
+
+
+身心舒爽
+
+出道前我以为是清楚系<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+初配信 [https://youtu.be/hS_RxrNvVVc](https://youtu.be/hS_RxrNvVVc)
+
+介绍自己每天听BLCDzw，然后开始声色俱茂介绍其中一本“俺たちは新婚さんかもしれない”，最后询问观众鲁了没
+
+个人感想：おなMAX！搞得我也想听听看BLCD了
+
+[https://youtu.be/K8yB11yP3Pw?t=3106](https://youtu.be/K8yB11yP3Pw?t=3106)
+
+演示如何zw
+
+[https://youtu.be/8WU_T23Kq24](https://youtu.be/8WU_T23Kq24)
+
+形容オマンコ的300个词
+
+[https://youtu.be/wz8lyZR-CpM](https://youtu.be/wz8lyZR-CpM)
+
+正片ASMR，但我用不起来，个人还是喜欢看她形容BL情节
+
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 16604#       发表于 2020-3-15 15:51
+
+
+
+
+女主播和绿茶、心机、莲花这种学一学我觉得比练歌好多了，套路才得人心啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16605#       发表于 2020-3-15 15:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别在这车轱辘这些虚无的东西了，晚上木口ark车轱辘没人讨论么？
+
+
+我挺佩服木口这一点的，什么时候人都能凑齐，你虹这边几个人联动像拉不出来屎一样难
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16606#       发表于 2020-3-15 16:00
+
+
+
+
+ここ硬是把シオン和わため拖上并顺利把企划搞失败，还有脸说“能把人凑齐”
+
+
+
+
+
+                                              
