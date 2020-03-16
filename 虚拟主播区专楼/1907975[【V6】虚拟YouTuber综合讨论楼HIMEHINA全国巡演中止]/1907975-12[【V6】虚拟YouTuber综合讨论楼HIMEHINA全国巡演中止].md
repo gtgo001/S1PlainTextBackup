@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 18:02** 
+> ## **本文件最后更新于2020-03-16 20:05** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_UYGQJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_lk4jN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16019,10 +16019,11 @@ ark的力量就这么大吗呜呜呜，不玩ark就亡了。
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| yuandi0120|-2|猫党激怒！|
 | stedckk|-1|平衡|
 | qq845629713| + 1||
 
@@ -16328,10 +16329,11 @@ ark的力量就这么大吗呜呜呜，不玩ark就亡了。
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 深林幽泉|-1|赔晚饭|
 | stedckk|-1|平衡|
 | qq845629713| + 1|回血|
 
@@ -17280,8 +17282,10 @@ inui唱歌真好听<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
+ 本帖最后由 Fakerの幻影 于 2020-3-16 18:08 编辑 
 
 inui唱歌真好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+听到就是赚到啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
 
@@ -17433,4 +17437,1213 @@ syl，讨论是不是top还不容易，AHP方法助斗虫民一臂之力<img src
 
 
 
-                  
+
+
+-----
+
+####  lxlyandccc  
+##### 17457#       发表于 2020-3-16 18:03
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-3-16 18:11 编辑 
+
+ReVdol歌姬的新六人团曲『World of the happiness!』MV日文版发布了：[https://www.youtube.com/watch?v=AtPL1SaYG8M](https://www.youtube.com/watch?v=AtPL1SaYG8M)
+
+今天19:30开始在404还会有6人直播，且今后每周一都会在404进行常态直播<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+中文版：B站 av96349948
+
+个人感觉这次的MV和以前的Pre-Star相比没有那么强硬和有压迫感，但整体制作在高分辨率下显得更为精细和漂亮了，与实景融合的创意也有点意思。
+
+总的来说歌曲相对柔和，偶像感还是明显的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 昨夜雨| + 1|好评加鹅|
+| YODOboi| + 1|祝顺利|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 17458#       发表于 2020-3-16 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以田角开了什么条件换来的服务器管理权
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17459#       发表于 2020-3-16 18:09
+
+
+
+
+【初オフ歌コラボ】レヴィらん、本気出す。【#レヴィらん】 -
+
+
+ YouTube [https://www.youtube.com/watch?v=56ffcVGCRHs&amp;feature=youtu.be](https://www.youtube.com/watch?v=56ffcVGCRHs&amp;feature=youtu.be)
+
+
+能不能下次别歌回都塞一起开啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17460#       发表于 2020-3-16 18:11
+
+
+
+
+Reji和tktr就没啥人听了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17461#       发表于 2020-3-16 18:12
+
+
+
+
+床星合唱你楼连贴🔗的的人都没
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17462#       发表于 2020-3-16 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这事配和的很不错，正好是葵皇开了ark服之后，都去蝗ark之后，mc空虚时期转交，
+
+
+各方面心态都有变化了，物是人非，
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17463#       发表于 2020-3-16 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46760253&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-16 18:14</a>
+ 这事配和的很不错，正好是葵皇开了ark服之后，都去蝗ark之后，mc空虚时期转交，  各方面心态都有变 ...</blockquote>
+我蛮想举报你在🌈虫楼那个连麦叶山的发言的，我想试试看那边版主对你是个态度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17464#       发表于 2020-3-16 18:16
+
+
+
+
+反正你楼以后顺劈虹运营有标志物了。虹mc越办越好那就是有能，各种炸服或者虚无管理就是傻逼。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17465#       发表于 2020-3-16 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46760268&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-16 18:15</a>
+
+我蛮想举报你在🌈虫楼那个连麦叶山的发言的，我想试试看那边版主对你是个态度 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> roa和叶山贴贴不是很正常的吗？这你举报，我绝对不会被抹布的，
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17466#       发表于 2020-3-16 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没事啊，以后大不了不骂运营骂决策层
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17467#       发表于 2020-3-16 18:31
+
+
+
+
+在外面吃饭，请问kanata的菅野洋子歌回怎么样
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 17468#       发表于 2020-3-16 18:33
+
+
+
+
+大概就这样
+
+
+
+
+
+
+3664138D-070E-4B83-A1DB-20F2B40D76D3.jpeg
+(35.17 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-16 18:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/183248ytd3l7wwwdyyzwfh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17469#       发表于 2020-3-16 18:34
+
+
+
+
+我本来是想听天使的，但是被inui狙击了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17470#       发表于 2020-3-16 18:37
+
+
+
+
+听run姐和levi唱夜な夜な夜な呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17471#       发表于 2020-3-16 18:40
+
+
+
+
+手机编辑不了，不syl
+红心最近是不是发现了适合自己的道路？什么脚玩壶男，含着水玩八音符之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同接都还不错啊
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17472#       发表于 2020-3-16 18:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">准备往艺人那边发展吧
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17473#       发表于 2020-3-16 18:45
+
+
+
+
+miko 20W
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17474#       发表于 2020-3-16 18:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只觉得是找准大家的性癖了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 17475#       发表于 2020-3-16 18:52
+
+
+
+
+你虚拟管人玩MC玩到最后只会搭搭方块那一辈子都不会有趣，学学人家クーさん每年搞的マイクラ肝試し好吧，能学到十分之一就算牛逼
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17476#       发表于 2020-3-16 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 葵皇今晚动森，连任任女孩的游戏也要偷吗？我看错你了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17477#       发表于 2020-3-16 18:57
+
+
+
+
+赶尽杀绝，葵西是真的
+情敌没有活路
+
+—— 来自 HUAWEI COL-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17478#       发表于 2020-3-16 18:58
+
+
+
+
+哈哥又要8000同接了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17479#       发表于 2020-3-16 19:02
+
+
+
+
+打开斗虫网看了一眼，哈哥当前第一，力压虾，日南，35
+
+哭了
+
+哈哥最强
+
+
+
+
+
+
+
+-----
+
+####  Kmntzl8Y  
+##### 17480#       发表于 2020-3-16 19:02
+
+
+
+
+一直都想说 你管人玩MC都是抱着个没什么MOD的服务器玩MC 是真的无聊
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 17481#       发表于 2020-3-16 19:02
+
+
+
+
+动森不是还没发售吗，她回去玩3ds的动森？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17482#       发表于 2020-3-16 19:09
+
+
+
+
+ハジメ最强！ハジメ最强！ハジメ最强！
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17483#       发表于 2020-3-16 19:11
+
+
+
+
+田角这事杯酒释服权啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，来点西西，西西的大奈子看硬我了
+<img src="http://wx4.sinaimg.cn/mw690/006anXukgy1gcvup7a7z0j31741kw7d2.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17484#       发表于 2020-3-16 19:11
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-16 19:13 编辑 
+
+是管人垃圾不要顺劈永远的神mc好吗👌 你楼瞧不上的肥猪12好几年前整的活你管人够的学
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17485#       发表于 2020-3-16 19:15
+
+
+
+
+今年のみこ記念枠
+
+1月13日　11・12万人記念
+
+2月4日　13・14万人記念
+
+2月14日　15万人記念
+
+2月27日　16・17万人記念
+
+3月4日　誕生日カウントダウン
+
+3月5日　誕生日
+
+3月12日　19万人記念
+
+3月16日　20万人カウントダウン
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17486#       发表于 2020-3-16 19:15
+
+
+
+
+西西的皮一直都很色气的啊
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 17487#       发表于 2020-3-16 19:15
+
+
+
+
+就算你12哥来播这么长时间的纯净MC也没活可整了啊
+
+而且我看有不少管人玩了这么久MC相当于白玩，原版都玩不明白能去搞MOD吗……
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17488#       发表于 2020-3-16 19:16
+
+
+
+
+35算不算吃ark红利吃的最爽的人<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17489#       发表于 2020-3-16 19:17
+
+
+
+
+35也称得上天道酬勤了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17490#       发表于 2020-3-16 19:17
+
+
+
+
+结论：管人弱智才会火
+
+
+所以弱智中的弱智大天使是有天生优势的
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 17491#       发表于 2020-3-16 19:17
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-3-16 19:21 编辑 
+
+曾战斗于斗鱼、showroom、bilibili、b综、v综、小程序等多平台虚拟偶像将于一刻钟后首次全员抵达404
+
+[https://www.youtube.com/watch?v=fIRHN9pvfjA](https://www.youtube.com/watch?v=fIRHN9pvfjA)
+
+<img src="http://ww1.sinaimg.cn/large/732205bcly1gcvzfuv745j20gu0fkaj0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| YODOboi| + 1|待机|
+| 昨夜雨| + 1|わくわく|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 17492#       发表于 2020-3-16 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">八周目的确好看 我就是这样入的MC坑 
+
+不需要所有人都搞明白啊 有一两个会玩的能带人就行了嘛
+
+你看12每周目的mod他也不会嘛
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17493#       发表于 2020-3-16 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761003&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-16 19:17</a>
+35也称得上天道酬勤了吧</blockquote>
+而且也有跟pekora贴贴的很大功劳对吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17494#       发表于 2020-3-16 19:27
+
+
+
+ 本帖最后由 YODOboi 于 2020-3-16 19:33 编辑 
+
+思来想去还是男性玩家更倾向纯粹喜欢游戏，像国内的单机主播当游戏蝗虫的话是出名不了的，mc对大多数管人来说只是表演人际交互的媒介
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17495#       发表于 2020-3-16 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">狗狗这周又是播三休四，希望她不要四处跑，年头就已经得过甲流了。
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 17496#       发表于 2020-3-16 19:28
+
+
+
+
+原版mc现在的内容足够多了，tis了解下，打mod除了提高观众门槛外啥好处都没有，玩的人还要集体学习一次几下就没人玩了，你去彩虹木口当运营怕不是一个月就炸箱
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17497#       发表于 2020-3-16 19:29
+
+
+
+
+12可是有工具人做冒险地图的，打不过还有机械降神，彩虹有运营能做这种事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17498#       发表于 2020-3-16 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46760557&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-16 18:40</a>
+
+手机编辑不了，不syl
+
+红心最近是不是发现了适合自己的道路？什么脚玩壶男，含着水玩八音符之类的同 ...</blockquote>
+说起来最近iwara的红心创作也多了不少<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">还有人捏了个世界第一的公主殿下的那套衣服
+
+可能是群众的需求和管人的供给达成一致了
+
+
+syl，夏哥也25w了，龙皇跟红心也快了。第一页也算有点虹以外的套皮主播了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17499#       发表于 2020-3-16 19:31
+
+
+
+ 本帖最后由 colodes 于 2020-3-16 19:38 编辑 
+
+战姬画质好糊啊
+
+1997Kbps
+
+<img src="https://img.saraba1st.com/forum/202003/16/193521rux1xmeg3jedv96l.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-16 193502.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 19:35 上传
+
+
+
+
+
+
+继承了国服整个节目都是谢SC的流程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  57131928  
+##### 17500#       发表于 2020-3-16 19:31
+
+
+
+<img src="https://i0.hdslb.com/bfs/album/ac56628405fd07d119a65e78cf346cf1230bc8b8.png@518w_1e_1c.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 17501#       发表于 2020-3-16 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么你潭现在还有人得出一百年前的结论的，你v圈始皇帝不就是以弱智闻名的人工智障
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 17502#       发表于 2020-3-16 19:37
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-3-16 19:39 编辑 
+
+看到这办公室落地窗还以为会丧心病狂到把反光投影也实时渲染到玻璃上
+
+
+话说立本人摆东京塔姿势也是这样么
+
+<img src="http://ww1.sinaimg.cn/mw690/732205bcly1gcw05125jhj20u01hcts3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17503#       发表于 2020-3-16 19:40
+
+
+
+
+歌姬在国内不是挺有实力的么，感觉去日本吃力不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17504#       发表于 2020-3-16 19:43
+
+
+
+
+歌姬这些日文cv还是国内这些人吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 喜闻乐见| + 1|一样的这些人|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17505#       发表于 2020-3-16 19:46
+
+
+
+
+歌姬的开销大概管人收入前十的加一块也顶不上吧，然后国内热度被倍杀，幸好清歌一号机比较有眼光<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 17506#       发表于 2020-3-16 19:47
+
+
+
+
+我居然觉得404的歌姬还挺好看的（
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17507#       发表于 2020-3-16 19:47
+
+
+
+
+为什么在**播就是日本配信啊，谷歌激怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17508#       发表于 2020-3-16 19:49
+
+
+
+
+REVDOL！（戰鬥吧歌姬）在**直播生放中，全日語的，還真夠入鄉隨俗。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 17509#       发表于 2020-3-16 19:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/194856qiiiig209iym9gmy.png" referrerpolicy="no-referrer">
+
+
+<strong>-7Q5-98ttK6T1kSga-3w[1].png</strong> (6.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 19:48 上传
+
+
+
+
+
+
+
+整活整太多的恶果就是别人分不清是在zqsg还是在整活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17510#       发表于 2020-3-16 19:53
+
+
+
+
+大头为何死活不抱海苔男大腿
+
+
+
+
+
+
+
+-----
+
+####  木户孝允  
+##### 17511#       发表于 2020-3-16 19:53
+
+
+
+<img src="https://p.sda1.dev/0/9b1f563c2f48fe2cd2da425f4a6fc6d1/IMG_3EAEEEB969A9F950404AB6B6CBD40EF1.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/3f1a9447aa6faa055d5216cb19a6b83e/67900add07ab0ab9.jpg" referrerpolicy="no-referrer">
+呜呜呜，关西JK组是真的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|T T|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zcs1805  
+##### 17512#       发表于 2020-3-16 19:54
+
+
+
+
+战歌这帮人不是说本来就会日语吗，好像演播室都是在日本？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17513#       发表于 2020-3-16 19:55
+
+
+
+<blockquote>yuandi0120 发表于 2020-3-16 19:50
+整活整太多的恶果就是别人分不清是在zqsg还是在整活</blockquote>
+不是有传（裁狗说的）中之人萌生退意了想不干了
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17514#       发表于 2020-3-16 19:57
+
+
+
+ 本帖最后由 北山玖公 于 2020-3-16 20:01 编辑 
+
+大概要毕业了？看了一眼水管上次播都是一个月前了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+22w订阅要灰飞烟灭咯，不过到这份上本来就应该差不多没多少活粉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17515#       发表于 2020-3-16 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761388&amp;ptid=1907975" target="_blank">yuandi0120 发表于 2020-3-16 19:50</a>
+整活整太多的恶果就是别人分不清是在zqsg还是在整活</blockquote>
+大概能预定一个标题位了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17516#       发表于 2020-3-16 20:00
+
+
+
+
+要是推特是公司管的，那上次迷惑站U社我就理解了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17517#       发表于 2020-3-16 20:03
+
+
+
+
+歌姬怎么人人都会日语？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                
