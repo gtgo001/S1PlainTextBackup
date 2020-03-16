@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 12:02** 
+> ## **本文件最后更新于2020-03-16 14:02** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_iuwRU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_E31im" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10096,4 +10096,3219 @@ PP天使卖弱卖自闭卖RP多少是真真假假结合起来的才会这么熟�
 
 
 
-                               
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 17058#       发表于 2020-3-16 12:02
+
+
+
+
+别吹yagoo了好吗，我还以为是黑话，后面接个偶像企划才发现是真吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17059#       发表于 2020-3-16 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">a岛和太监简直是best match好么，天作之合
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17060#       发表于 2020-3-16 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755458&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-16 11:57</a>
+我记得B站那位做数据的奇迹XYZ的视频下面经常见一个铁虹人次次强调音声和周边，也许音声周边本位论在虹人内 ...</blockquote>
+有明言有无音声收入二十倍差距的，也有明言音声运营抽成比sc低的，直言自己主要收入来自音声而非sc的也有，再加上一层数据未公开，的确可以成为最后坚守的颜面。
+
+把booth当sc打，一次boost上万的也在我tl上有个好几个，勉强可以当嘴硬的论据<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17061#       发表于 2020-3-16 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755441&amp;ptid=1907975" target="_blank">ddy2811 发表于 2020-3-16 11:56</a>
+
+凛组是管理风格问题，和尊组之类热衷于挂人钓鱼打内战玩政治的还是不一样的吧 ...</blockquote>
+没说和别的组比，只是凛组这个排外管理，我只能说真的牛逼
+
+自己肉烤不出几块，还整天赶新人跑，我替凛感动得枯了
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17062#       发表于 2020-3-16 12:03
+
+
+
+
+u1s1，🌈人吹音声收入的样子似极了三酱天狗吹三酱个人势没抽成收入高的样子，问题是三酱的确是个人势没抽成收入高啊，卖音声有三酱饭盒一个月多吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17063#       发表于 2020-3-16 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755521&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-16 12:01</a>
+
+音声和周边能赚几个钱？要是和国内一样平台工资大头还好，问题**也不给你发工资啊 ...</blockquote>
+我悟了，杏就是刀塔模式，赢者通吃，但底边是要饿死的；而虹才是恰大锅饭的lol，虽然奖金（sc）不高，但即使是底边靠着工资也能活下去<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17064#       发表于 2020-3-16 12:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不是某组先提石魏斌开团才有你楼的车轱辘吗，我想知道有没有杏小将去对线的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17065#       发表于 2020-3-16 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755420&amp;ptid=1907975" target="_blank">蛋炒蜂窝煤 发表于 2020-3-16 11:55</a>
+
+这2000就该批倒，整天说什么烂话黑话，都被视奸的拉出去复读了</blockquote>
+我让视奸的复读了？你不去抓复读垃圾小鬼，反过来喷我，我想着我也没说什么违反版规的内容啊，
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17066#       发表于 2020-3-16 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755525&amp;ptid=1907975" target="_blank">蛋炒蜂窝煤 发表于 2020-3-16 12:02</a>
+
+别吹yagoo了好吗，我还以为是黑话，后面接个偶像企划才发现是真吹</blockquote>
+吹个鸡儿，真有人相信杏是偶像企划吗。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+但是粉丝独角兽多的打钱多是真的。
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17067#       发表于 2020-3-16 12:04
+
+
+
+
+说实话，你们扯字幕组是不切实际的。我夸他100万人气大乱斗需要字幕组？贴吧杏人大本营都说了，你虹人不来，敷衍就没意思了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17068#       发表于 2020-3-16 12:05
+
+
+
+
+音声应该是大头，1000个人买，那就是100万，而且基本没抽水，比sc划算多了
+拿露露当例子，sc不管入会员也不理，但是音声全勤，还有演唱会，周边等等（以前那个香水好像明确有人说过没钱分她们）
+
+—— 来自 HUAWEI COL-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17069#       发表于 2020-3-16 12:05
+
+
+
+
+彩虹管人sc收入最高的是葛叶吧，而且女粉还只占2成，彩虹的女管人是真的有点拉
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17070#       发表于 2020-3-16 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755547&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-16 12:03</a>
+我悟了，杏就是刀塔模式，赢者通吃，但底边是要饿死的；而虹才是恰大锅饭的lol，虽然奖金（sc）不高，但即 ...</blockquote>
+你看懂我说了啥了没啊，我说国内有斗鱼发工资，管人可没有404发工资啊，音声能赚几个钱？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17071#       发表于 2020-3-16 12:08
+
+
+
+
+光まななつ里面，就ましろ没出过音声了，播的也不勤快，难不成真的全让不破包养了？那我脑中就冒出homo文了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">，当然也有可能是本人太有钱，有人能说明一下嘛？
+
+—— 来自 HUAWEI JKM-AL00a, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17072#       发表于 2020-3-16 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755552&amp;ptid=1907975" target="_blank">kbtit 发表于 2020-3-16 12:04</a>
+
+不是某组先提石魏斌开团才有你楼的车轱辘吗，我想知道有没有杏小将去对线的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实那是为了回应贴吧某贴说虹liver不来b限的
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17073#       发表于 2020-3-16 12:08
+
+
+
+
+彩虹女管人整天和男v联动，粉丝打钱不放心啊，拿我的钱养男人怎么办。你看自闭猴皇不就以高收入著称。
+
+杏虽然有几个中人x瘾大的，但是皮套还是社恐轻百合人设，萌萌们不得可劲儿养老婆。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17074#       发表于 2020-3-16 12:08
+
+
+
+
+不过杏也有音声阿，难道双方粉丝的消费习惯差距有那么大吗？
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17075#       发表于 2020-3-16 12:09
+
+
+
+
+不过我还挺好奇三字母3D发布回会咋样，b站能超星姐记录吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17076#       发表于 2020-3-16 12:09
+
+
+
+
+彩虹的音声能达到人均有1000个买的？这么厉害的吗
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17077#       发表于 2020-3-16 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755597&amp;ptid=1907975" target="_blank">cwjzy 发表于 2020-3-16 12:07</a>
+
+你看懂我说了啥了没啊，我说国内有斗鱼发工资，管人可没有404发工资啊，音声能赚几个钱？ ...</blockquote>
+没关系，我虹阴湿大家庭不会让任何一个人饿死的，顶多享受不了日照权而已<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17078#       发表于 2020-3-16 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755561&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-16 12:04</a>
+吹个鸡儿，真有人相信杏是偶像企划吗。
+
+但是粉丝独角兽多的打钱多是真的。 ...</blockquote>
+木口铁的偶像企划，不然哪能那么赚钱，你以为🦄️是凭空冒出来的么
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17079#       发表于 2020-3-16 12:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单人音声真有那么多人买？彩虹那些音声不都是打包买的吗，你说顶级的那些有1000人买我是信的，底边那些基本都是打包顺带的吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17080#       发表于 2020-3-16 12:11
+
+
+
+
+
+椎名唯華
+
+@yuika_siina
+
+今日20時復活祭鬼！！！！
+
+
+
+亏西贴贴
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17081#       发表于 2020-3-16 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755627&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-16 12:09</a>
+没关系，我虹阴湿大家庭不会让任何一个人饿死的，顶多享受不了日照权而已 ...</blockquote>
+彩虹不是狼性企业么，底边都是老老实实做工具人的，木口不温暖多了，人人有肉吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17082#       发表于 2020-3-16 12:12
+
+
+
+
+主要是你虹有葛尊前车之鉴，给尊妈打的钱结果最后葛叶花了，这样虹民就会忍不住猜测给自己老婆打钱最后被哪个男V花了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17083#       发表于 2020-3-16 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755543&amp;ptid=1907975" target="_blank">rubinliu 发表于 2020-3-16 12:03</a>
+u1s1，🌈人吹音声收入的样子似极了三酱天狗吹三酱个人势没抽成收入高的样子，问题是三酱的确是个人势没抽成 ...</blockquote>
+都是未公开数据，屁股朝向哪边哪边就多嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+省一楼，人均1000人还是难的，但会入会员的粉丝有比较大一部分都是音声全勤的。拿之前某楼说的撇撇为例，撇撇hiyoko上的会员发言数两百左右，有七八成的会员买音声，再加上较少的sc和会员费，就可以每月20w月收了。
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 17084#       发表于 2020-3-16 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755663&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-16 12:11</a>
+
+椎名唯華
+
+@yuika_siina
+
+今日20時復活祭鬼！！！！</blockquote>
+解封的好快啊，阿咲不也说这周恢复直播频率吗，等发推呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17085#       发表于 2020-3-16 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755663&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-16 12:11</a>
+ 椎名唯華 @yuika_siina 今日20時復活祭鬼！！！！ </blockquote>
+贴贴！西西学会了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+建议教给阿咲，要是下次阿咲也来个复活回，那就是咲唯糖了，好甜<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17086#       发表于 2020-3-16 12:13
+
+
+
+<blockquote>hahanike 发表于 2020-3-16 12:09
+不过我还挺好奇三字母3D发布回会咋样，b站能超星姐记录吗</blockquote>
+过气三字母何德何能与星皇争辉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+星姐必秒三字母
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17087#       发表于 2020-3-16 12:13
+
+
+
+
+日本的偶像文化是真tm弱智，我就喜欢我的推被别的男人上不行吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 儒门正御应无骞| + 1|说的好，我想上你头像|
+| 魔法使い2019| + 1|说得好!|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17088#       发表于 2020-3-16 12:14
+
+
+
+
+虹底边同接都过不了千，却有千人买音声，比杏可箱多了。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17089#       发表于 2020-3-16 12:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大福也学亏皇玩复活艺吗
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17090#       发表于 2020-3-16 12:15
+
+
+
+
+福夸贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17091#       发表于 2020-3-16 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755436&amp;ptid=1907975" target="_blank">豆芽123 发表于 2020-3-16 11:56</a>
+所以b限这块杏是天道酬勤，虹就是费拉不堪（新学的词又用上了</blockquote>
+春节时期来b打一个小时游戏都不愿意的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+彩虹官方不入驻b站还好一点，至少那样七色太监还有台阶下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17092#       发表于 2020-3-16 12:16
+
+
+
+
+日本偶像文化老车轱辘话题了，看看现在4846系张张百万单就知道有多牛皮了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17093#       发表于 2020-3-16 12:16
+
+
+
+
+福夸贴贴民请不要虚空造糖，现任夸女郎是二福谢谢
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17094#       发表于 2020-3-16 12:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer"> 如果阿葵也休息一段时间，再来复活配信，就是关西组糖了，关西组贴贴
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17095#       发表于 2020-3-16 12:17
+
+
+
+
+打包卖啊，有整合包的，我tl也看到蛮多人直接买整包，底边就被带上了。我记着蛮久之前神田还没起来的时候，有说过靠音声攒了百万？
+
+—— 来自 HUAWEI COL-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17096#       发表于 2020-3-16 12:19
+
+
+
+
+我看今天早安可可说holo那边ark要换图了，葵皇这边有消息没，赶紧抄作业啊
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 17097#       发表于 2020-3-16 12:20
+
+
+
+
+阿葵上次从病床上爬起来接济40个要饭的不是复活过了吗
+你虹这作业真抄不得啊，让太监的脸往哪搁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 17098#       发表于 2020-3-16 12:20
+
+
+
+
+太好了，建议打一辈子ark <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">节约大量看管时间
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17099#       发表于 2020-3-16 12:21
+
+
+
+
+太监的脸不是上次就被葵皇打烂了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再抄一次有何不可
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17100#       发表于 2020-3-16 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你葵也说了要换图，但现在还有一张全面战争的牌没出。现在已经要变成renaoba+葵 vs 哈+社长了，酝酿了这么久也算是王牌了吧。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17101#       发表于 2020-3-16 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">杏还要打多久ark
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17102#       发表于 2020-3-16 12:22
+
+
+
+
+那虹确实挺箱的，各种不仲说，小团体可以休止了吧。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17103#       发表于 2020-3-16 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755614&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-16 13:08</a>
+
+其实那是为了回应贴吧某贴说虹liver不来b限的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你虹来不来b限不是看v本人的意愿吗，拿石先生来当挡箭牌不可取
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 17104#       发表于 2020-3-16 12:23
+
+
+
+
+虹真别换图了，打几场热热烈烈的战争结束这游戏好吗，等阿咲带起动森
+
+
+syl：楼上说到神田哥，神田哥前几天直播中说自己能有现在这样子都是郡道的功劳，他也想帮帮其他人，说希望关注了他的人可以去点关注下其他人，比如说阿喵喵，爱美等等。V综阿喵喵浓度这么高，这样不得爱上神田？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17105#       发表于 2020-3-16 12:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">葵皇那边20号夜皇社长大战，就最近holo ark作业直播对虹男人小剧场的战斗力，要抄也是holo反向抄
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17106#       发表于 2020-3-16 12:24
+
+
+
+
+说到阿葵打刀塔，可别让刀狗知道阿葵和韩国人的事，否则怕不是要罪加一等
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17107#       发表于 2020-3-16 12:25
+
+
+
+
+彩虹人真不缺钱的话，那个萝莉魔王也不会因为和新人属性重合直播吐黑泥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17108#       发表于 2020-3-16 12:25
+
+
+
+ 本帖最后由 stedckk 于 2020-3-16 12:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755837&amp;ptid=1907975" target="_blank">kbtit 发表于 2020-3-16 12:22</a>
+
+你虹来不来b限不是看v本人的意愿吗，拿石先生来当挡箭牌不可取</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">字幕组又不能喷自己的推，那只能说些有的没的了。
+
+但好歹不是你楼一开始就转进的嫌弃石某。
+
+
+而且你看杏要是跟虹一样收益不高看她们来得积极不积极。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17109#       发表于 2020-3-16 12:25
+
+
+
+
+说得好像杏就拿**逼着v来b限一样
+
+自己怂就别bb辣么多
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 17110#       发表于 2020-3-16 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755557&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-16 12:04</a>
+
+我让视奸的复读了？你不去抓复读垃圾小鬼，反过来喷我，我想着我也没说什么违反版规的内容啊， ...</blockquote>
+小鬼杀不尽喷不完，喷源头不更好，而且你不说不就没人复读你的黑话了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17111#       发表于 2020-3-16 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755922&amp;ptid=1907975" target="_blank">蛋炒蜂窝煤 发表于 2020-3-16 12:27</a>
+
+小鬼杀不尽喷不完，喷源头不更好，而且你不说不就没人复读你的黑话了吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有我的黑屁，也有IG老哥、mk2老哥等等，还不如把V综拉回80权限让视奸小鬼去看隔壁不就好了
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17112#       发表于 2020-3-16 12:28
+
+
+
+
+彩虹可以整泰克科技pvp，比新图开荒有意思点，看了之前打boss的直播，哈哥社长和abo估计都要进入高科技时代了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17113#       发表于 2020-3-16 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为啥你们要无视运营的作用。
+
+当初虹人进出那一周杏不是让夸来了个一周7天b限吗。
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 17114#       发表于 2020-3-16 12:32
+
+
+
+
+神田乳滑的也配？能学兔皇自扇耳光不<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 17115#       发表于 2020-3-16 12:32
+
+
+
+
+木口運營叫得動大亏哥的機率跟我透到凜子的機率差不多
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17116#       发表于 2020-3-16 12:32
+
+
+
+
+确实，虹杏就像刀撸，刀狗瞧不起捞逼撸狗，撸狗笑刀狗没有人气，刀狗说国外我火的一逼，撸狗表示你游流水渣渣，刀狗反呛我奖金必秒你游XD
+
+
+
+
+
+
+
+-----
+
+####  tttsttt  
+##### 17117#       发表于 2020-3-16 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755547&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-16 12:03</a>
+我悟了，杏就是刀塔模式，赢者通吃，但底边是要饿死的；而虹才是恰大锅饭的lol，虽然奖金（sc）不高，但即 ...</blockquote>
+醒醒 赢者通吃的og 一年的奖金还没fpx工资多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17118#       发表于 2020-3-16 12:34
+
+
+
+
+比起ARK.我更讨厌MC，只要能把MC的占比给压下去，我就支持ARK。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17119#       发表于 2020-3-16 12:34
+
+
+
+ 本帖最后由 stedckk 于 2020-3-16 12:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755994&amp;ptid=1907975" target="_blank">meatybobby 发表于 2020-3-16 12:32</a>
+
+木口運營叫得動大亏哥的機率跟我透到凜子的機率差不多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有这么多钱收为啥叫不动，当初不是说石某为夸皇出了不少点子吗，你不会以为516是夸皇一个人想出来的吧。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17120#       发表于 2020-3-16 12:35
+
+
+
+<img src="https://p.sda1.dev/0/1c898e880141126617d06579840f1103/Screenshot_2020_0316_123442.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17121#       发表于 2020-3-16 12:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">他虹不是音声收入杠杠的么，怎么来b又扯上收益了，能不能统一下说法
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17122#       发表于 2020-3-16 12:35
+
+
+
+
+木口能把彩虹四皇pvp抄了不，就算是为了看大天使我也不太想看这ark无聊的作业直播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 17123#       发表于 2020-3-16 12:35
+
+
+
+
+社长蕾娜的PVP都拖到20多号了，快没热情追了。 syl， 虹信在收入上的遮羞布应该是5ch那次曝光病兔子一个月有20万收入，而病兔子那个月没播只出了音声。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17124#       发表于 2020-3-16 12:36
+
+
+
+
+你虹也配叫刀狗？空妈比你天皇是晚出道还是咋了？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17125#       发表于 2020-3-16 12:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">一个月不播都收入20w，怪不得要毕业。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17126#       发表于 2020-3-16 12:37
+
+
+
+
+的确，撸啊撸在收入和热度上吊打刀塔，杏在收入和热度上吊打虹
+
+可惜就是撸狗也都承认刀塔2的引擎秒杀祖传撸啊撸，哪个虹民敢腆着脸说虹3D效果吊打杏的？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17127#       发表于 2020-3-16 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756046&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-16 12:36</a>
+
+你虹也配叫刀狗？空妈比你天皇是晚出道还是咋了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">众所周知空妈是被排除出hololive的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17128#       发表于 2020-3-16 12:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 所以话就说回来了，为什么可以这么拖沓，到底是谁出了问题，
+
+
+龙圣说明天ark打boss，我敢说不会有人说明天不行吧，
+
+
+这就叫职业素养，你虹这个拖沓的劲头真的该死
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17129#       发表于 2020-3-16 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756035&amp;ptid=1907975" target="_blank">暴走的包子 发表于 2020-3-16 12:35</a>
+他虹不是音声收入杠杠的么，怎么来b又扯上收益了，能不能统一下说法
+
+—— 來自 samsung SM-N9750,  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">来b没收益和音声收入占大头又不矛盾
+
+省一楼，空妈确实没比天皇晚出道，但前面空妈和萝卜都是全程3D，木口纸片一期生确实是在天皇火了之后出道的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 17130#       发表于 2020-3-16 12:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">云p们黑屁了这么多页有结论了吗，彩虹啥时候倒？半年？
+holo怎么还不收购彩虹，快抓头部那些人去福报啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Igarashi|-1|虹人急了急了急了急了急了急了急了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 17131#       发表于 2020-3-16 12:40
+
+
+
+
+你虹靠ark最近也好起来不少，管人圈不就是你抄我抄大家抄吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 17132#       发表于 2020-3-16 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755935&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-16 12:28</a>
+
+没有我的黑屁，也有IG老哥、mk2老哥等等，还不如把V综拉回80权限让视奸小鬼去看隔壁不就好了 ...</blockquote>
+他们云的，就一跟你的复读，md想了想你就是罪魁祸首给爷死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 17133#       发表于 2020-3-16 12:40
+
+
+
+
+现在打社长会被爆锤吧，应该是给机会让他去找哈哥叶哥结盟，你们真的有人看彩虹ark了么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17134#       发表于 2020-3-16 12:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 20w日元在东京活都活不下去，
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17135#       发表于 2020-3-16 12:41
+
+
+
+<blockquote>Igarashi 发表于 2020-3-16 12:37
+的确，撸啊撸在收入和热度上吊打刀塔，杏在收入和热度上吊打虹
+
+可惜就是撸狗也都承认刀塔2的引擎秒杀祖传撸 ...</blockquote>
+可是论live2d虹现在碾压ho，ho什么时候家用3d普及到上位组了再谈3d水平吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17136#       发表于 2020-3-16 12:42
+
+
+
+
+都说了社内一堆不仲了，你让天皇来摇人都没用
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17137#       发表于 2020-3-16 12:42
+
+
+
+
+吾有一言不知当不当讲，这杏·····是没出声音还是声音卖不出去啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17138#       发表于 2020-3-16 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756074&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-16 12:37</a>
+的确，撸啊撸在收入和热度上吊打刀塔，杏在收入和热度上吊打虹
+
+可惜就是撸狗也都承认刀塔2的引擎秒杀祖传撸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你楼从来没提到过にじ3D这东西，那我身先士卒吹上两嘴，每个3D披露后的liver几乎都能拿到自己模型的にじ3D，而且不需要在工作室在家也可以用模型直播，还可以捕捉手指和手部动作，我确实好奇业界有没有技术超过这个的。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17139#       发表于 2020-3-16 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756094&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-16 12:39</a>
+来b没收益和音声收入占大头又不矛盾
+
+省一楼，空妈确实没比天皇晚出道，但前面空妈和萝卜都是全程 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以一句不想来不就得了，还扯那么多干嘛
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17140#       发表于 2020-3-16 12:45
+
+
+
+
+点做不到吗？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17141#       发表于 2020-3-16 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 杏已经赚的这么多了，音声这点小钱恐怕是看不上吧，这也说明了，你虹音声收入根本没那么多，
+
+
+
+
+
+
+
+-----
+
+####  zcs1805  
+##### 17142#       发表于 2020-3-16 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756119&amp;ptid=1907975" target="_blank">winda 发表于 2020-03-16 12:41:20</a>
+可是论live2d虹现在碾压ho，ho什么时候家用3d普及到上位组了再谈3d水平吧</blockquote>holo一期出来的时候l2d是比虹的帕金森l2d强的啊，还有个王牌机师
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17143#       发表于 2020-3-16 12:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初不是你们一直喷杏搞大锅饭、大家庭营业的吗？
+
+现在杏人内部团结一起团建，杏粉箱推和睦反倒吹起来拿来打虹了。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17144#       发表于 2020-3-16 12:47
+
+
+
+
+杏晚上凑10个人打个10分钟boss都这么勉强，葵皇推上一声吼就准备好18位彩虹精英消耗三小时半来阻击杏ARK
+
+
+我看虹才是真职业素养啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 17145#       发表于 2020-3-16 12:47
+
+
+
+
+点不就是全家用3d吗
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17146#       发表于 2020-3-16 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756164&amp;ptid=1907975" target="_blank">QWANG 发表于 2020-3-16 12:45</a>
+点做不到吗？</blockquote>
+点确实做不到，那个就是live2D的3D模型版，只能捕捉面部，手部是固定的。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17147#       发表于 2020-3-16 12:48
+
+
+
+
+刚才盘点你楼铁血虹人少了一个TRW，急了急了急了急了急了急了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TRW|-1|草，巨魔还认得我？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17148#       发表于 2020-3-16 12:49
+
+
+
+<blockquote>AloissiolA 发表于 2020-3-16 12:47
+点确实做不到，那个就是live2D的3D模型版，只能捕捉面部，手部是固定的。</blockquote>
+这就是第三大箱唯一能说道的地方了，双叶生日回3d动手吃寿司的实力还是有的，不过一般时候不上手部捕捉个个都像吊着的晴天娃娃
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17149#       发表于 2020-3-16 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756183&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-16 12:47</a>
+
+杏晚上凑10个人打个10分钟boss都这么勉强，葵皇推上一声吼就准备好18位彩虹精英消耗三小时半来阻击杏ARK
+
+
+ ...</blockquote>
+不过这阻击似乎没什么作用，阻击的前天和不阻击的昨天杏ARK同接没什么区别。
+
+syl
+
+葵皇可真是虹杏对抗的主力啊。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17150#       发表于 2020-3-16 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756153&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-16 12:44</a>
+
+你楼从来没提到过にじ3D这东西，那我身先士卒吹上两嘴，每个3D披露后的liver几乎都能拿到自己模型 ...</blockquote>
+好好好！虹最强！杏恐输！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17151#       发表于 2020-3-16 12:50
+
+
+
+
+杏也有家用3d，不过动手好像是没见过。
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 17152#       发表于 2020-3-16 12:51
+
+
+
+
+打这boss叫啥对抗啊，真对抗就再来个突击ARK开会随手2.5W棒，还有holo赚了这么多钱能不能给四期生快点多穿件衣服
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17153#       发表于 2020-3-16 12:51
+
+
+
+<blockquote>zcs1805 发表于 2020-3-16 12:45
+holo一期出来的时候l2d是比虹的帕金森l2d强的啊，还有个王牌机师
+
+
+  -- 来自 能看大图的 Stage1官方 Androi ...</blockquote>
+现在虹都2.0了，ho还要调预设表情+不控制头部上下运动人均长颈龙
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17154#       发表于 2020-3-16 12:51
+
+
+
+
+你们要是天天都这么能聊，ig还会到外面开那个百合贴钓6字母吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 17155#       发表于 2020-3-16 12:51
+
+
+
+<blockquote>cwjzy 发表于 2020-3-16 12:40
+现在打社长会被爆锤吧，应该是给机会让他去找哈哥叶哥结盟，你们真的有人看彩虹ark了么 ...</blockquote>
+其实我想看的就是社长推翻蕾娜啊(误。四皇里最菜的一个，fan创作里又是拖家带口照顾一家子的“母亲”，被主人公役的ask打倒名正言顺且王道(误)。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17156#       发表于 2020-3-16 12:52
+
+
+
+
+说明还是信者大战有流量。
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 17157#       发表于 2020-3-16 12:53
+
+
+
+
+要讨论技术力不如看看vrchat圈，肯花钱现在商品级3D捕捉设备能达到的效果吊打虹杏家用3D水准，还基本都是个人钻研最多有技术论坛的交流。所以说v圈早期狐叔也玩过vrchat，现在怎么没人开发了，果然还是套皮直播轻松来钱快吗。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17158#       发表于 2020-3-16 12:54
+
+
+
+
+我只记得杏比虹live2d一直都是差的啊......早期能侧脸的问题？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17159#       发表于 2020-3-16 12:55
+
+
+
+
+vrchat ichikara不是有那个陪酒团么，扔到**上的数据被star都锤翻了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17160#       发表于 2020-3-16 12:55
+
+
+
+<blockquote>DOTA2的英雄3D模型质量吊打撸啊撸，连手指都能动
+
+美中不足的是不是所有英雄都有3D模型，当然没有3D模型的英雄的立绘质量也是出类拔萃的</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17161#       发表于 2020-3-16 12:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹的ark还是吸引了不少原本看holo的ark民的，就比如说上次holo打石头人总同接都快接近10w了，这几次打boss明显同接少了一大截，就是不知道有多少ark民开多窗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17162#       发表于 2020-3-16 12:55
+
+
+
+
+说起l2d，我觉得towa和mrr的l2d弄得挺拉胯的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17163#       发表于 2020-3-16 12:56
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/125626sox2huk22oh5o5z2.gif" referrerpolicy="no-referrer">
+
+
+<strong>1726.gif</strong> (1.95 MB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 12:56 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17164#       发表于 2020-3-16 12:58
+
+
+
+
+本身这个打boss就无趣很多啊，而且事实上并没有必要开多窗。
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 17165#       发表于 2020-3-16 12:59
+
+
+
+<blockquote>kbtit 发表于 2020-3-16 12:55
+虹的ark还是吸引了不少原本看holo的ark民的，就比如说上次holo打石头人总同接都快接近10w了，这几次 ...</blockquote>
+总同接不是8万多？还是说你开小号补了两万？两社硬要是继续死玩ARK这游戏，才是真无聊。cod多有意思
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17166#       发表于 2020-3-16 13:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">cod哪里有意思了。。。
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 17167#       发表于 2020-3-16 13:01
+
+
+
+<blockquote>stedckk 发表于 2020-3-16 12:34
+有这么多钱收为啥叫不动，当初不是说石某为夸皇出了不少点子吗，你不会以为516是夸皇一个人想出来 ...</blockquote>
+当天石某转头群内对夸黑屁，忠实跟班胃某更是一向瞧不起夸，我是不觉得和他们关系很大来着
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17168#       发表于 2020-3-16 13:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">葵皇浪费批站盘挺可惜的，我看之前肥仔北极熊还经常转葵图。非管人群还经常有人发傻葵表情，现在傻葵表情已经被熊猫人取代了。剩下那个你永远可以相信熊猫人.JPG了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 17169#       发表于 2020-3-16 13:02
+
+
+
+
+觉得cod有意思是新鲜劲还没过，这游戏节目效果还不如apex。
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 17170#       发表于 2020-3-16 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756174&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-16 12:46</a>
+
+当初不是你们一直喷杏搞大锅饭、大家庭营业的吗？
+
+现在杏人内部团结一起团建，杏粉箱推和睦反倒吹起 ...</blockquote>
+复读一下尼楼的大概意思，没龙皇团结个卵子，以前一个两个都不给老狐狸面子团建
+
+老狐狸以前也算是尼楼常年黑屁对象了，还拿她热衷团建来黑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17171#       发表于 2020-3-16 13:04
+
+
+
+
+龙皇才是天选之子
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17172#       发表于 2020-3-16 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756328&amp;ptid=1907975" target="_blank">Symphomy 发表于 2020-3-16 13:59</a>
+
+总同接不是8万多？还是说你开小号补了两万？两社硬要是继续死玩ARK这游戏，才是真无聊。cod多有意思 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我就是随便看了一下绿帽坛虫楼统计的9w多，当然你能拿出8w准确数据就以你为准
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17173#       发表于 2020-3-16 13:06
+
+
+
+
+我还是很好奇，石到底对狗妈在中国的运营有多大帮助
+
+狗妈天天5-7k涨粉，尼玛现在都要110w了，真的没人能抗衡一下了吗
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17174#       发表于 2020-3-16 13:07
+
+
+
+
+所以狗妈运营是石到底是真的还是乱说的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 17175#       发表于 2020-3-16 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755514&amp;ptid=1907975" target="_blank">Igarashi 发表于 2020-3-16 12:01</a>
+杏人现在批站贴吧尼姑庵S1四线吊打虹人，阴湿虹人只能跑到A岛去抱团了我们东厂什么时候能站起来，气 ...</blockquote>
+彩虹观众是太监，holo观众就不是太监了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得还是见不得男人这个病更重，西厂和东厂没啥区别。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17176#       发表于 2020-3-16 13:08
+
+
+
+
+FPS游戏对管人来说明显吃力不讨好啊，除非再出一个PUBG级别热度的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17177#       发表于 2020-3-16 13:08
+
+
+
+
+反正估计石头人比🌈那些尊组啊mrra组啊这种货色还是要强不少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17178#       发表于 2020-3-16 13:08
+
+
+
+
+杏最多算锦衣卫，还是东厂高一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17179#       发表于 2020-3-16 13:10
+
+
+
+
+至少对于B站和中国观众间流行啥，播啥会吸引人过来看是有起到帮助的。之前那像募捐的操作先不说是不是石先生但肯定也是有知道国内情况的人起码一起商量过的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17180#       发表于 2020-3-16 13:11
+
+
+
+
+为什么家用3D没有动作捕捉，只有面部捕捉
+
+因为去年苹果发布的 ARKit3 中的动作捕捉技术只支持 A12 以上的芯片，也就是 iPhone XR 及以上才符合要求
+
+但业界人均二手 iPhone X
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17181#       发表于 2020-3-16 13:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756409&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-16 13:07</a>
+所以狗妈运营是石到底是真的还是乱说的</blockquote>
+狗妈运营以前确实是石，简介里之前都写着的。不过后来石被锤下holo这边中国运行后，他跟狗妈啥情况就没人知道了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17182#       发表于 2020-3-16 13:13
+
+
+
+
+车回音声，虹这边飞鸟p尊妈专门额外开企划帮底边和新人卖音声的，和ho这边夸皇翘班，还借机宣传会员的，只能说是企业区别文化了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17183#       发表于 2020-3-16 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756416&amp;ptid=1907975" target="_blank">儒门正御应无骞 发表于 2020-3-16 13:07</a>
+
+彩虹观众是太监，holo观众就不是太监了？我觉得还是见不得男人这个病更重，西厂和东厂没啥区别。 ...</blockquote>
+胃公公之流的确也是太监，以后三角太监就是西厂了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17184#       发表于 2020-3-16 13:16
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-3-16 13:20 编辑 
+
+见不得男人这事，也就是二期生那几个的部分粉是这样，三期生也许也是半斤八两，但他们可不像那几个二期的粉一样公然anti，反正不公开的就不必在意
+
+syl， 别拿兔皇和miko的话说 事，她俩的声明我还挺感激的，至少把三期生那些想明面anti的摁住了，哪像二期的那几个
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17185#       发表于 2020-3-16 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756427&amp;ptid=1907975" target="_blank">yinoh 发表于 2020-3-16 13:08</a>
+
+杏最多算锦衣卫，还是东厂高一点</blockquote>
+锦衣卫又不是太监，你说锦衣卫是杏的中人警察倒是问题不大
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17186#       发表于 2020-3-16 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756427&amp;ptid=1907975" target="_blank">yinoh 发表于 2020-3-16 13:08</a>
+
+杏最多算锦衣卫，还是东厂高一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">锦衣卫这种只能当太监的狗，拿来称呼杏人辱杏人了，当然还是能压倒东厂的西厂合适
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 17187#       发表于 2020-3-16 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756502&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-16 13:16</a>
+见不得男人这事，也就是二期生那几个的部分粉是这样，三期生也许也是半斤八两，但他们可不像那几个二期的粉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以hololive的v我就看几个人啊，数数就巧可，狗狗，夏色祭，fbk这几个啊
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 17188#       发表于 2020-3-16 13:19
+
+
+
+
+说起来男人，黑黑和社长黑客之类的还能说是表现优越，
+
+你虹粉丝国内居然能把三枝捧起来真够神秘的，下巴gaku现在都感觉比不过，
+
+虽然说有一点cp成分，但字幕组保持活跃真的挺重要的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17189#       发表于 2020-3-16 13:19
+
+
+
+
+我也觉得彩虹音声出的那么hinaP这些的工具人确实功劳挺大的，彩虹底边其实很多其实本质都是staff了，又是混音又是画曲绘又是写台本。连葵皇都在帮人做mv
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17190#       发表于 2020-3-16 13:21
+
+
+
+
+成了，我虹不是不管底边，是请底边来当彩虹的主人，啥时候请大物接受贫下底边再教育？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17191#       发表于 2020-3-16 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756427&amp;ptid=1907975" target="_blank">yinoh 发表于 2020-3-16 13:08</a>
+杏最多算锦衣卫，还是东厂高一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是东厂能指挥制衡锦衣卫，乳三角太监了。不如西厂，正好七色东厂侦查朝廷大臣对应以下犯上，三角西厂探查百姓风声对应深入民心。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 17192#       发表于 2020-3-16 13:23
+
+
+
+
+大物不用接受再教育了，已经变成开服工具人了。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17193#       发表于 2020-3-16 13:23
+
+
+
+
+https://b23.tv/av95216103
+建议听听底边的声音噢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然几分真几分假就见仁见智了
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17194#       发表于 2020-3-16 13:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以彩虹本质liver同人社团，运营其实是硬件工具人
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17195#       发表于 2020-3-16 13:24
+
+
+
+
+不容易，还有人记得高级工具人飞鸟。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17196#       发表于 2020-3-16 13:24
+
+
+
+
+别jb车了，gems co.的live看了吗，虹杏都是什么辣鸡玩意儿
+[https://youtu.be/hWhgbqvm01E](https://youtu.be/hWhgbqvm01E)
+
+
+
+
+
+
+
+-----
+
+####  木户孝允  
+##### 17197#       发表于 2020-3-16 13:25
+
+
+
+
+JOJO！？
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17198#       发表于 2020-3-16 13:25
+
+
+
+<[img src="https://i.loli.net/2020/03/16/eiymYDRE2awV5kS.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17199#       发表于 2020-3-16 13:27
+
+
+
+
+虫民总算有点乐子了，同接4w是保底的，SC200w也该有的。
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17200#       发表于 2020-3-16 13:27
+
+
+
+ 本帖最后由 qdaqd123 于 2020-3-16 13:28 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17201#       发表于 2020-3-16 13:27
+
+
+
+
+稍微翻了翻，都看不懂你们在聊些什么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+还有觉得holo不弄音声的，明明刚出白情反串音声，各种音声从没停过，卖的地方和彩虹也是完全一致
+
+虽然我一直觉得音声是很无聊的商品，最近流行的文化衫还有点意思
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17202#       发表于 2020-3-16 13:28
+
+
+
+
+口了要3d了，能把郡道叫来吗口了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果可以请再叫上神田
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17203#       发表于 2020-3-16 13:28
+
+
+
+
+天哥卖不卖碗啊，这个真可以有
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17204#       发表于 2020-3-16 13:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">老师3d也没叫roa啊，大家都不叫扯平了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17205#       发表于 2020-3-16 13:30
+
+
+
+
+音声如果不是抽成少，我也没什么大兴趣。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 17206#       发表于 2020-3-16 13:30
+
+
+
+
+卖抹布这个非常优管人，算是龙皇带来的先进经验了。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17207#       发表于 2020-3-16 13:30
+
+
+
+
+只要你吹杏乳虹，楼主就会看乐子而不是拉上城墙，幸亏我和学姐大招老哥是同一战线的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17208#       发表于 2020-3-16 13:30
+
+
+
+
+你楼阿喵喵浓度这么高，多发发口皇的新闻怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17209#       发表于 2020-3-16 13:30
+
+
+
+
+狐皇热衷团建，拖累我推起飞，狐皇bis
+
+龙皇热衷团建，力助我推起飞，圣龙皇
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl
+
+这两箱长期高强度ark成功帮助我减少了窗口数量甚至有空闲看个人势打仁王2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17210#       发表于 2020-3-16 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756634&amp;ptid=1907975" target="_blank">tiro_finale 发表于 2020-3-16 13:27</a>
+
+稍微翻了翻，都看不懂你们在聊些什么
+
+还有觉得holo不弄音声的，明明刚出白情反串音声，各种音声从没 ...</blockquote>
+holo音声有虹搞企划那热度的话，老师就不用跑dl上匿名愿望了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17211#       发表于 2020-3-16 13:36
+
+
+
+
+holo音声不是也有重大发表和推特发来着，虹是自己没出还要帮底边吆喝吗？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17212#       发表于 2020-3-16 13:37
+
+
+
+
+你也不看看白姨那三角狐狸功夫，拿头和龙圣比<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17213#       发表于 2020-3-16 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">白姨不是还有订阅能吹吗
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17214#       发表于 2020-3-16 13:40
+
+
+
+
+少主再怎么样，也是你杏双边订阅第一
+
+看少主直播还是舒服，比那些养gachi的不知道高到哪里去
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17215#       发表于 2020-3-16 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756746&amp;ptid=1907975" target="_blank">fs001 发表于 2020-3-16 13:36</a>
+
+holo音声不是也有重大发表和推特发来着，虹是自己没出还要帮底边吆喝吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hinaP是你虹少有的音声全勤且都有ex的主，不管设备还是演技还是经验都吊打你管圈百分之九十以上的人。
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17216#       发表于 2020-3-16 13:42
+
+
+
+<blockquote>Igarashi 发表于 2020-3-16 12:12
+主要是你虹有葛尊前车之鉴，给尊妈打的钱结果最后葛叶花了，这样虹民就会忍不住猜测给自己老婆打钱最后被哪 ...</blockquote>
+为什么不是葛叶给尊妈花钱
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17217#       发表于 2020-3-16 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756719&amp;ptid=1907975" target="_blank">winda 发表于 2020-3-16 13:34</a>
+
+holo音声有虹搞企划那热度的话，老师就不用跑dl上匿名愿望了</blockquote>
+真的不是巧可自己的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+记得aqua之前卖的什么很贵的纪念音声，光是绿帽坛去申请翻译的就一大堆人了
+
+看了下booth的点赞数，热门选手都还可以啊，可能只是底边没法靠这个温饱吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17218#       发表于 2020-3-16 13:43
+
+
+
+
+少主好歹也是当过v红白副音轨的人了，ho对外门面这活龙夸都当不了
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17219#       发表于 2020-3-16 13:44
+
+
+
+
+巧可老师这人，这几个月干的事情感觉有点精神分裂。或者生活开销远大于一般人的可能
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17220#       发表于 2020-3-16 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756834&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-16 13:42</a>
+
+为什么不是葛叶给尊妈花钱</blockquote>
+因为独角兽不能忍自己老婆有男朋友，只要有男朋友就是包养小白脸
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17221#       发表于 2020-3-16 13:46
+
+
+
+
+杏音声出的少吧，我记得虹月均一个还有的多？
+杏上位肯定赚更多啊
+话说之前天使没过收益化和日南被剥夺，我看过几次直播就有种，holo有下kpi的感觉，有没有杏人懂的
+
+—— 来自 HUAWEI COL-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17222#       发表于 2020-3-16 13:47
+
+
+
+
+我真是怀疑yagoo买粉了，这个趋势下去再过一个月少主订阅食杀天皇都可以想见了。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17223#       发表于 2020-3-16 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756877&amp;ptid=1907975" target="_blank">poipanchao 发表于 2020-3-16 13:46</a>
+
+杏音声出的少吧，我记得虹月均一个还有的多？
+
+杏上位肯定赚更多啊
+
+话说之前天使没过收益化和日南被剥夺，我 ...</blockquote>
+看着梅球王，感觉不像
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 17224#       发表于 2020-3-16 13:50
+
+
+
+
+巧可老师难道不是因为sc没收益化的原因吗，我记得sc的钱到账结算是有一个比较长的时间差吧
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17225#       发表于 2020-3-16 13:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没收益化估计只能吃低保了，像日南这种养家的肯定急，天使不知道不怎么关注
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17226#       发表于 2020-3-16 13:52
+
+
+
+
+推测利香合同和其他人不一样的也不少吧，单纯从前世知名度来说和一二期生其他人就不在一个水平线上。
+
+而且当时的cover可是干过把すとぷり六人一起挖来给每个人配张皮组成ぶいめん引流出道的事情，利香同样是劝诱来引流的可能性不是没有吧？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17227#       发表于 2020-3-16 13:53
+
+
+
+
+KPI？我只记得那次yagoo发stars和海外运营的招募公告时，好像有和研究KPI有关的职务
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17228#       发表于 2020-3-16 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756899&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-16 13:48</a>
+
+看着梅球王，感觉不像</blockquote>
+早期和后期签的约肯定不一样的，心心和傻紫这种按现在录取标准都进不去
+
+另外利香实质零期生，没她人脉holo能不能开live2dliver这条路线都成问题
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17229#       发表于 2020-3-16 13:54
+
+
+
+
+把天皇食杀了也是好事，让田角这数字厨有点紧迫感，这样子木口就一统天下了，杏人吹逼也不用面对太监的攻击了
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17230#       发表于 2020-3-16 13:55
+
+
+
+
+日南可能是真好遇上了辞职+收益化首波资金被卡了，收益化被剥夺就是两三个月前的钱无法到账，日南日常开销明显不小要是还有个贷款啥的肯定急哭了
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17231#       发表于 2020-3-16 13:56
+
+
+
+<blockquote>Igarashi 发表于 2020-3-16 13:44
+因为独角兽不能忍自己老婆有男朋友，只要有男朋友就是包养小白脸</blockquote>
+那为啥女粉疯狂给葛叶打钱，不怕他都拿去给尊妈花嘛，难道自愿做妾？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17232#       发表于 2020-3-16 13:56
+
+
+
+
+ぶいめん那事情COVER谈不上主导，更接近于帮着张罗下套皮相关，结果人家稍微玩了两下就跑了
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 17233#       发表于 2020-3-16 13:56
+
+
+
+
+利香肯定是签高价合同来引流的，不如讲讲优十是不是
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17234#       发表于 2020-3-16 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756943&amp;ptid=1907975" target="_blank">AloissiolA 发表于 2020-3-16 13:52</a>
+
+推测利香合同和其他人不一样的也不少吧，单纯从前世知名度来说和一二期生其他人就不在一个水平线上。
+
+
+而且 ...</blockquote>
+利香明显yagoo一开始是想把她当白姨培养的啊，谁让她看不上管人这边呢，现在木口火了她也攀不上了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17235#       发表于 2020-3-16 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756984&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-16 13:56</a>
+
+那为啥女粉疯狂给葛叶打钱，不怕他都拿去给尊妈花嘛，难道自愿做妾？</blockquote>
+粉丝都是迫害妄想症，女V男粉怕主子拿自己的赎罪券包养小白脸，男V女粉也怕主子拿自己的赎罪券养小姐姐啊，这两个都不矛盾啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是所有人都知道这些有的没的八卦新闻，照样打钱呗
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17236#       发表于 2020-3-16 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756839&amp;ptid=1907975" target="_blank">tiro_finale 发表于 2020-3-16 13:43</a>
+
+真的不是巧可自己的问题吗
+
+记得aqua之前卖的什么很贵的纪念音声，光是绿帽坛去申请翻译的就一大堆 ...</blockquote>
+nijimens企划是要给王子三世这些底边男人炒大锅饭宣传的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是holo也有这种蹭热度企划，巧可会放着热度不蹭，自己跑dl上搞么
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17237#       发表于 2020-3-16 13:59
+
+
+
+
+梅露除了奥数魔刃外还有啥特别拿手的吗，我感觉游戏力也就算还行，唱歌就算了，怎么给吹的这么天上有地下无的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17238#       发表于 2020-3-16 13:59
+
+
+
+
+利香真是头发短见识也短，仗着自己算个迫真大物瞧不起木口，结果木口中坚现在混的比利香好多了，110<img src="https://static.saraba1st.com/image/smiley/animal2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17239#       发表于 2020-3-16 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46757022&amp;ptid=1907975" target="_blank">free 发表于 2020-3-16 13:59</a>
+梅露除了奥数魔刃外还有啥特别拿手的吗，我感觉游戏力也就算还行，唱歌就算了，怎么给吹的这么天上有地下无 ...</blockquote>
+要放在当时的历史方位去讨论啊。当时的利香比起什么莫鲁喵，佐藤希之流难道不是吊打？
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17240#       发表于 2020-3-16 14:01
+
+
+
+
+U1S1，b站110几个前世视频挺吸粉的
+
+
+
+
+
+                         
