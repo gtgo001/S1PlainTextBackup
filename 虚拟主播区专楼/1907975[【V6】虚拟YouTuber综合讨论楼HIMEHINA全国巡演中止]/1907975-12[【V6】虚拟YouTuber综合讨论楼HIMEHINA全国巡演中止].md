@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-17 00:04** 
+> ## **本文件最后更新于2020-03-17 02:03** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_d5w02" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_uf1YV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16199,10 +16199,11 @@ ark的力量就这么大吗呜呜呜，不玩ark就亡了。
 
 
 
- 参与人数 8战斗力 -7
+ 参与人数 9战斗力 -9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| KyotoAnimation|-2|给自己加鹅不可取|
 | stedckk|-1||
 | 空虚澄璃色|-1||
 | 与天争锋_LZ|-1||
@@ -16330,10 +16331,11 @@ ark的力量就这么大吗呜呜呜，不玩ark就亡了。
 
 
 
- 参与人数 3战斗力 -1
+ 参与人数 4战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| KyotoAnimation|-2|脓疮打击|
 | 深林幽泉|-1|赔晚饭|
 | stedckk|-1|平衡|
 | qq845629713| + 1|回血|
@@ -21333,13 +21335,970 @@ jFtZM2T.jpg
 
 
 
+ 本帖最后由 深林幽泉 于 2020-3-17 00:04 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764487&amp;ptid=1907975" target="_blank">baizhi 发表于 2020-3-16 23:59</a>
 
 所以说slee什么时候出来啊，我要看三次元美少女</blockquote>
-那为什么不去看看斗鱼或者阿b唱见舞见区呢，樱花妹就这么香吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+那为什么不去看看斗鱼或者阿b唱见舞见区呢，樱花妹就这么香吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">syl 小肥妹怎么了，今天喝醉了，b转播弹幕全是救救阿希，还有什么感觉好无能好痛苦的
 
 
 
 
 
-           
+
+
+
+-----
+
+####  baizhi  
+##### 17663#       发表于 2020-3-17 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764515&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-17 00:02</a>
+
+那为什么不去看看斗鱼或者阿b唱见舞见区呢，樱花妹就这么香吗</blockquote>
+都看的都看的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17664#       发表于 2020-3-17 00:05
+
+
+
+
+万一到时候田角直接拿现有V的中之人（漂亮的那部分）包装下出来当偶像就好玩了
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 17665#       发表于 2020-3-17 00:06
+
+
+
+ 本帖最后由 屑屑代沟尼亚 于 2020-3-17 00:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764515&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-17 00:02</a>
+
+那为什么不去看看斗鱼或者阿b唱见舞见区呢，樱花妹就这么香吗syl 小肥妹怎么了，今天喝醉了，b转播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">后面这个我不知道 救救是指找人阻止一下她这个醉鬼 大概是中间有讲到之前有一段时间不想干了的事吧 不过现在都好起来了 观众也没啥好无能跟痛苦的吧
+
+syl 这都喝吐了 要不要这么拼
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 17666#       发表于 2020-3-17 00:07
+
+
+
+ 本帖最后由 贝伦二世 于 2020-3-17 00:11 编辑 
+
+我去，这位，太nb了吧
+<img src="https://p.sda1.dev/0/bb9682d060180b47f199ffcabb8c4395/IMG_05BAAD6DD01**D8814B547F794849DA.jpeg" referrerpolicy="no-referrer">
+
+我以为只是个普通的asmr主播的，真强
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17667#       发表于 2020-3-17 00:08
+
+
+
+
+我最讨厌救救谁救救谁这话了，想吐
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17668#       发表于 2020-3-17 00:10
+
+
+
+
+夏哥过20了？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17669#       发表于 2020-3-17 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764605&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-17 00:10</a>
+
+夏哥过20了？</blockquote>
+1月25满21岁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17670#       发表于 2020-3-17 00:15
+
+
+
+
+所以说🌈一口气灭掉杏的机会又被浪费了，田角七个逸里挖点出来让佐藤希减减肥进slee岂不美哉
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17671#       发表于 2020-3-17 00:20
+
+
+
+
+阿希喝吐了，不知道是25w开心还是压力太大<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17672#       发表于 2020-3-17 00:24
+
+
+
+
+普通asmr主播也归你楼管了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 17673#       发表于 2020-3-17 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764691&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-17 00:20</a>
+
+阿希喝吐了，不知道是25w开心还是压力太大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">应该是开心的 今天都T突做饭了 看不出有压力的样子
+
+单纯对自己酒量没B数吧
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17674#       发表于 2020-3-17 00:28
+
+
+
+
+大福这新衣服感觉好怪，明明大福总让我产生一种去雷普她的冲动的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17675#       发表于 2020-3-17 00:29
+
+
+
+
+我为什么只有想打她的冲动
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17676#       发表于 2020-3-17 00:32
+
+
+
+
+楼上两个老哥都是想边打边雷普大福吧，建议@葵皇
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17677#       发表于 2020-3-17 00:35
+
+
+
+
+看推特说江皇要有新3d了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+很多人一套都没有的情况下江皇要有第二套了，不愧是数字厨田角<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17678#       发表于 2020-3-17 00:36
+
+
+
+
+天皇：凭他妈什么
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17679#       发表于 2020-3-17 00:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我天皇都换好几套3D了
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17680#       发表于 2020-3-17 00:39
+
+
+
+
+葵皇那个大屁股3D不考虑修整下吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17681#       发表于 2020-3-17 00:41
+
+
+
+<blockquote>baizhi 发表于 2020-3-17 00:39
+我天皇都换好几套3D了</blockquote>
+我偶像服呢？还是我在奥尔特星云了？
+
+
+
+
+
+
+
+-----
+
+####  JonnyGreenwood  
+##### 17682#       发表于 2020-3-17 00:41
+
+
+
+
+就阿委那个偶像服3D我既想看又不是很想看，因为实在有点丑陋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17683#       发表于 2020-3-17 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764899&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-17 00:41</a>
+我偶像服呢？还是我在奥尔特星云了？</blockquote>
+十二月预告二月会发，二月说mv制作稍微赶不上改三月，现在还没进一步消息
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 17684#       发表于 2020-3-17 00:44
+
+
+
+
+那个也是她自己选的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17685#       发表于 2020-3-17 00:50
+
+
+
+
+躺床上了查不了，请问黑黑粉丝男女比例八二分来源是去年的推特吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17686#       发表于 2020-3-17 00:50
+
+
+
+
+来自岳母(的认可
+
+
+
+
+
+
+ETPljf9UwAIJSJH.jpeg
+(63.01 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 00:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/005019wfqi27u3f2p1do82.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17687#       发表于 2020-3-17 00:51
+
+
+
+<img src="https://s1.ax1x.com/2020/03/17/8tlnnf.png" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/03/17/8tlZct.png" referrerpolicy="no-referrer">
+
+
+纯一终于把气挣回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17688#       发表于 2020-3-17 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46764691&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-17 00:20</a>
+
+阿希喝吐了，不知道是25w开心还是压力太大</blockquote>
+这女人麻烦得很，从今天表现（一部分是云的）来说是又高兴又压力大，高兴是真的有的起码事业还在提升，但是压力也是真的就是老生常谈的没人主动找她联动，现在白姨那群带头养猫更加导致她连自己找人玩都做不到了她猫狗都过敏<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+可偏偏我成了这女人的打钱bot了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17689#       发表于 2020-3-17 01:01
+
+
+
+
+说起来润姨也说没人主动找她联动
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17690#       发表于 2020-3-17 01:03
+
+
+
+
+纯一:那年十八，母校舞会，站着如喽啰。那时候我含泪发誓各位，必须看到我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+这就是真人主播的威力吗，怪不得田角这个数字厨忍不住想往这一行靠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17691#       发表于 2020-3-17 01:04
+
+
+
+
+【如月こより】清楚すぎるスプラトゥーン2【VTuber】
+
+
+死喷...好了，这新人不用进入斗虫观察名单了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17692#       发表于 2020-3-17 01:04
+
+
+
+
+纯一尚不如舔到line主题曲的yyut
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17693#       发表于 2020-3-17 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765105&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-17 01:01</a>
+
+说起来润姨也说没人主动找她联动</blockquote>
+船长不是主动找润姨的吗？还是说就只有一个人找所以不算数？夏哥其实也有犬山哥主动找，但来来去去就犬山哥
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17694#       发表于 2020-3-17 01:06
+
+
+
+
+粽哥确实有点游离3期体系
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17695#       发表于 2020-3-17 01:07
+
+
+
+
+人家这么说肯定是塑造悲惨人设吸引gachi打钱呀
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17696#       发表于 2020-3-17 01:09
+
+
+
+
+粽子我记得你楼不是说她一人独居关西么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17697#       发表于 2020-3-17 01:12
+
+
+
+
+星街直播间轮播都有sc的，我傻了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17698#       发表于 2020-3-17 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765141&amp;ptid=1907975" target="_blank">wsotaku 发表于 2020-3-17 01:06</a>
+
+船长不是主动找润姨的吗？还是说就只有一个人找所以不算数？夏哥其实也有犬山哥主动找，但来来去去就犬山 ...</blockquote>
+这两都多久没单独联动了，营业估计都名存实亡了，粽子ark都找不到人带。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17699#       发表于 2020-3-17 01:12
+
+
+
+<blockquote>冰寒之月 发表于 2020-3-17 01:07
+人家这么说肯定是塑造悲惨人设吸引gachi打钱呀</blockquote>
+这女人……不怎么会骗人，以前还偶尔在直播冲自己塔说善于心机我不太信啦，就是麻烦敏感又贪心www
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17700#       发表于 2020-3-17 01:13
+
+
+
+
+船长算是个大嘴巴了，也说了最近是久违和粽子交流了一次。当然也可以选择不信她。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17701#       发表于 2020-3-17 01:13
+
+
+
+<blockquote>stedckk 发表于 2020-3-17 01:12
+这两都多久没单独联动了，营业估计都名存实亡了，粽子ark都找不到人带。 ...</blockquote>
+然后这周就有船长和润姨了www
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17702#       发表于 2020-3-17 01:14
+
+
+
+
+船长润3月18日Ark联动
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17703#       发表于 2020-3-17 01:15
+
+
+
+ 本帖最后由 stedckk 于 2020-3-17 01:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765227&amp;ptid=1907975" target="_blank">wsotaku 发表于 2020-3-17 01:13</a>
+
+然后这周就有船长和润姨了www</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是吗，是我云了，那看来还好，不过也有可能是粽哥主动找她。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17704#       发表于 2020-3-17 01:18
+
+
+
+
+杏仁又来蹭雪之下雪乃人气力！
+
+
+
+
+
+
+ETO6-9AVAAAtIKZ.jpeg
+(39.38 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 01:17 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/011759kvizjd1jypwd9w22.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+ETOjVd2U8AEFde9.jpeg
+(32.23 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 01:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/011806gdxsdy4m3xgyy5s6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17705#       发表于 2020-3-17 01:18
+
+
+
+ 本帖最后由 QWANG 于 2020-3-17 01:25 编辑 
+
+这事三期生联动杂谈的时候就定了，不过居然真的落地了，我还以为又会告吹的。syl
+
+船长这大嘴巴我是真的挺想笑的，不说自爆年龄这种事，最近杂谈时直接就说了自己和小天使认识有一段时间了；白情的时候还直接读了说诺艾尔在做点心的评论。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17706#       发表于 2020-3-17 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765280&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-17 01:18</a>
+
+杏仁又来蹭雪之下雪乃人气力！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上面那张是fgo的魔神总司啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17707#       发表于 2020-3-17 01:32
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-3-17 01:41 编辑 
+<blockquote>stedckk 发表于 2020-3-17 01:30
+上面那张是fgo的魔神总司啊</blockquote>
+我的我的，暴露不玩手游了。
+
+
+syl：🐲皇你要不搞个pve山口山怀旧服吧。
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 17708#       发表于 2020-3-17 01:42
+
+
+
+
+还有这么直接的<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200317014005.png
+(108.9 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 01:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/014114gzgv1rx6cjkbzcj2.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17709#       发表于 2020-3-17 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46759947&amp;ptid=1907975" target="_blank">wsotaku 发表于 2020-3-16 17:48</a>
+
+首先，白姨没我老婆大；
+
+其次，我老婆腿不比白姨细；
+
+然后，我老婆腿捏起来可舒服了；</blockquote>
+欢迎回来，肥妹痴（我主号最后还在小肥妹专楼回了你呢
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17710#       发表于 2020-3-17 02:03
+
+
+
+<blockquote>说起来今天绿仙的初次健身环直播里说了点挺让我意外的事情
+
+
+直播里提到他这次的3d直播是提前了一个月审请的，一直到现在才能使用
+
+
+言下之意要么是彩虹的办事效率低到令人发指，要么是其实彩虹一直以来用的3d设备都是租的
+
+
+我觉得彩虹到现在用的3d设备都是租的可能性比较大（）</blockquote>
+
+虹人又开始怼运营了
+
+
+
+
+
+         
