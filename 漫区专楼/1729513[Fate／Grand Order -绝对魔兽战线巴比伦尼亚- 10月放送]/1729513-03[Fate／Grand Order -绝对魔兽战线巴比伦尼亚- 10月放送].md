@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 00:05** 
+> ## **本文件最后更新于2020-03-16 12:04** 
 
 
 
@@ -9474,4 +9474,520 @@ UFO是有黑的地方，而且不少。要是说DEEN的06做的好我也没意�
 
 
 
-                                 
+
+
+-----
+
+####  消防  
+##### 3485#       发表于 2020-3-16 00:06
+
+
+
+<blockquote>UNISONIA 发表于 2020-3-15 23:49
+后段戏份增加幅度上女主大概是艾蕾
+
+
+另外为什么结构上的主角非得是金古……你可以参照第六章主角是贝狄威 ...</blockquote>
+其实就是参考贝狄威尔最后那个还剑尾刀才说金固剧情结构上不像第一号主角（然而标题杀），游戏和动画也被其他角色和剧情稀释。
+
+另外在我看来七章差不多是重绎了一遍史诗，史诗恩奇都也是进度条到一半就下线了……
+
+
+四章具体忘差不多了，有时间再去重温吧
+
+
+
+
+
+
+
+-----
+
+####  mcq_2  
+##### 3486#       发表于 2020-3-16 00:27
+
+
+
+
+第一遍没开声音，刚才又看了一遍，音效太烂了。还不如静音脑补。
+
+
+
+
+
+
+
+-----
+
+####  bird-lay  
+##### 3487#       发表于 2020-3-16 00:34
+
+
+
+
+说起来从阿瓦隆跑过来的梅剑圣也算“生者”吧？他怎么不进去耍剑
+
+把捅刀的活推给摄像头，是不是又想摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3488#       发表于 2020-3-16 01:10
+
+
+
+ 本帖最后由 wolegequaaa 于 2020-3-16 01:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">n站好评率82.6%，目前在所有集数中排倒数第二（倒数第一11集71%左右，其他几集好评率较低的 1、4集84.5%，第七集84.2%）
+
+
+比我预想的还好些，11区的节奏没有国内大
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3489#       发表于 2020-3-16 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46750663&amp;ptid=1729513" target="_blank">bird-lay 发表于 2020-3-16 00:34</a>
+
+说起来从阿瓦隆跑过来的梅剑圣也算“生者”吧？他怎么不进去耍剑
+
+把捅刀的活推给摄像头，是不是又想摸鱼[f: ...</blockquote>
+他是人外混血还偏向人外，难度搞不好比金闪闪活着的时候要高<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  saevey  
+##### 3490#       发表于 2020-3-16 03:30
+
+
+
+ 本帖最后由 saevey 于 2020-3-16 03:45 编辑 
+
+告死天使呢？名台词呢？哪去了？王哈的战斗真要做可是最省钱的杵着剑不动屏幕一闪全死弹幕都能吹，可你这……就一攻击力高的离谱的杂兵啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  柴汪汪  
+##### 3491#       发表于 2020-3-16 03:41
+
+
+
+
+憋屈的愉悦嘴脸比20集好看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+等等看21集能拍个啥出来
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3492#       发表于 2020-3-16 09:21
+
+
+
+
+草，这集是个什么jb玩意
+
+
+
+
+
+
+
+-----
+
+####  Redis  
+##### 3493#       发表于 2020-3-16 09:38
+
+
+
+
+fz的最后一集神父大战切丝爸爸还是崩得一塌糊涂
+
+
+半斤八两啦
+
+
+谁也别笑谁
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3494#       发表于 2020-3-16 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753513&amp;ptid=1729513" target="_blank">Redis 发表于 2020-03-16 09:38:11</a>
+fz的最后一集神父大战切丝爸爸还是崩得一塌糊涂
+
+
+半斤八两啦
+
+
+谁也别笑谁 ...</blockquote>FZ最后一集这俩根本没打，你说的是倒数第二集吧，我觉得74单挑神父做的挺好的啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Redis  
+##### 3495#       发表于 2020-3-16 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751081&amp;ptid=1729513" target="_blank">wolegequaaa 发表于 2020-3-16 01:10</a>
+
+n站好评率82.6%，目前在所有集数中排倒数第二（倒数第一11集71%左右，其他几集好评率较低的 1、4集8 ...</blockquote>
+18集多少
+
+
+
+
+
+
+
+-----
+
+####  Redis  
+##### 3496#       发表于 2020-3-16 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753522&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-3-16 09:39</a>
+
+FZ最后一集这俩根本没打，你说的是倒数第二集吧，我觉得74单挑神父做的挺好的啊
+
+
+  -- 来自 有消息提醒的 S ...</blockquote>
+和小说里面描写差别巨大
+
+
+而且tva当时播出的时候是真的崩
+
+
+
+
+
+
+
+-----
+
+####  Redis  
+##### 3497#       发表于 2020-3-16 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46750140&amp;ptid=1729513" target="_blank">newfaceryo 发表于 2020-3-15 23:41</a>
+
+这片对我来说映像最深的就是提媽几次的变化了。
+
+前面也半开玩笑的提了一嘴这片就是看提媽怎么从一个普通的 ...</blockquote>
+提妈的表现也太差了
+
+
+基本就是一个原地放大招的模型，都不带什么动作的。。。牛逼全靠解说一张嘴
+
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3498#       发表于 2020-3-16 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753552&amp;ptid=1729513" target="_blank">Redis 发表于 2020-3-16 09:41</a>
+
+和小说里面描写差别巨大
+
+
+而且tva当时播出的时候是真的崩</blockquote>
+B站当初放了很久的FZTV源啊，我没记得怎么崩，感觉比BD里没差太多。
+
+还有我记得蛋吧有人做过TV和BD的对比贴也没说这事儿。
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3499#       发表于 2020-3-16 10:35
+
+
+
+
+把贴吧帖子翻完了，感觉从设定上说得过去，那就算了，还是给个好评。
+
+因为这集用最惨烈的方式证明了动画不要死抠设定，酷炫和逼格才是更重要的，我希望，或者说我相信经过这次损失后相关制作组应该彻底知道Fate动画起码不应该怎么做了。
+
+
+
+
+
+
+
+-----
+
+####  白夜羽  
+##### 3500#       发表于 2020-3-16 10:41
+
+
+
+
+算了吧，做法特动画的人能知道法特动画不该怎么做，也不至于这么多年出一部被骂一部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 3501#       发表于 2020-3-16 10:52
+
+
+
+
+快去西天请飞碟佛祖！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3502#       发表于 2020-3-16 10:53
+
+
+
+
+斯达夫：观众懂个p的菲特，我们现在感觉良好
+
+
+
+
+
+
+
+-----
+
+####  ulir  
+##### 3503#       发表于 2020-3-16 11:14
+
+
+
+
+去nico看了下，大百科下面的评论也是批评的居多
+
+
+
+
+
+
+
+-----
+
+####  noobtizi  
+##### 3504#       发表于 2020-3-16 11:17
+
+
+
+
+主要是垚，我早就忘了剧情是什么了
+
+但是，做的垚
+
+
+
+
+
+
+
+-----
+
+####  newfaceryo  
+##### 3505#       发表于 2020-3-16 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753570&amp;ptid=1729513" target="_blank">Redis 发表于 2020-3-16 09:42</a>
+
+提妈的表现也太差了
+
+
+基本就是一个原地放大招的模型，都不带什么动作的。。。牛逼全靠解说一张嘴</blockquote>
+有趣的是我倒觉得这样反而好（当然3d模型的表现力另说），提媽其实一直没有针对你，杀人是兄弟拉夫姆在做，破坏是黑泥带来的同化。出场就掐自己的脖子,对我方最大的直接伤害也就是站墙头的时候瞪了你一眼。
+
+提媽每次被变得更大更凶暴，都是因为我方赤裸裸的直接暴力砍，刺，砸，各种发波导致的结果。这种直接的对比就显得更明显。最后神交对话的时候才有一种“啊，是这样”的感觉。
+
+要不你说说你想要看到怎样的提媽，用尾巴甩，用爪撕，用牙咬？明明大家刚刚才说展示自己的牙口并不是提示自己逼格的好办法？
+
+
+
+
+
+
+
+-----
+
+####  溯夜  
+##### 3506#       发表于 2020-3-16 11:21
+
+
+
+
+这集主要问题还是王哈，逼格全崩，立香这魔改还勉强能接受，王哈真的画风和别人都不一样了，本来戏份就少还砍，评价不爆炸才有鬼了
+
+
+
+
+
+
+
+-----
+
+####  424143883  
+##### 3507#       发表于 2020-3-16 11:21
+
+
+
+
+每做一部获得一个反面教材吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚历山大帝  
+##### 3508#       发表于 2020-3-16 11:32
+
+
+
+
+让男主亲手拯救世界的原创是不错啦。
+
+
+但这集最大的问题还是王哈、A闪都做的很敷衍。
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3509#       发表于 2020-3-16 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46754951&amp;ptid=1729513" target="_blank">424143883 发表于 2020-3-16 11:21</a>
+
+每做一部获得一个反面教材吗</blockquote>
+我个人觉得之前那些都还可以找借口说有各种各样的其它因素影响
+
+但1.7动画这集制作组绝对是卯足了力气，结果评价这样……所以应该能彻底明白问题。
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 3510#       发表于 2020-3-16 11:40
+
+
+
+
+根据历史数据可以合理推测菌皇肯定又亲征了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ty_cc  
+##### 3511#       发表于 2020-3-16 11:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">  严重怀疑蘑菇插手
+
+
+下次型月出动画（如果还有的话），请在写动画脚本时候把蘑菇绑起来 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                
