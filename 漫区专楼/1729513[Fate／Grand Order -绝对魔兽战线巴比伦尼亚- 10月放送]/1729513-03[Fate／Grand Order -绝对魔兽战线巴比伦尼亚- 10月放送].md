@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 12:04** 
+> ## **本文件最后更新于2020-03-16 22:06** 
 
 
 
@@ -9990,4 +9990,561 @@ B站当初放了很久的FZTV源啊，我没记得怎么崩，感觉比BD里没�
 
 
 
-                                
+
+
+-----
+
+####  奈落的孤火花  
+##### 3512#       发表于 2020-3-16 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755207&amp;ptid=1729513" target="_blank">xpisces 发表于 2020-3-16 11:40</a>
+
+根据历史数据可以合理推测菌皇肯定又亲征了</blockquote>
+你看看壁吧专楼那边楼主说的也蛮有道理。 <blockquote>另外立香和提妈对话是菌言菌语无误, 但这个手撕我很难觉得是蘑菇的想法, 蘑菇看过去的剧本不会写出立香或者白野一路杀杀杀的剧本来, 包括fele白野也是去打马斯塔而不是正面殴打servant</blockquote>
+[https://tieba.baidu.com/p/6177415103?see_lz=1&amp;pn=3](https://tieba.baidu.com/p/6177415103?see_lz=1&amp;pn=3)
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3513#       发表于 2020-3-16 12:47
+
+
+
+
+咕哒上阵那段应该至少找过蘑菇要意见，按以往没找也不是不可能但这部应该不会，不过手撕是什么东西？
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3514#       发表于 2020-3-16 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753523&amp;ptid=1729513" target="_blank">Redis 发表于 2020-3-16 09:39</a>
+
+18集多少</blockquote>
+95.1% ，目前最高的貌似是19集的96.8%<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3515#       发表于 2020-3-16 13:50
+
+
+
+
+19集最高，也有不少成分是对20集的期待导致的
+
+结果20集就这
+
+所以评分也是翻转式下跌，合情合理
+
+
+
+
+
+
+
+-----
+
+####  lanlv  
+##### 3516#       发表于 2020-3-16 13:54
+
+
+
+
+动画党。闪闪给立香的那把小刀是啥呀？
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3517#       发表于 2020-3-16 14:01
+
+
+
+ 本帖最后由 消防 于 2020-3-16 14:11 编辑 
+<blockquote>奈落的孤火花 发表于 2020-3-16 12:23
+你看看壁吧专楼那边楼主说的也蛮有道理。
+
+
+https://tieba.baidu.com/p/6177415103?see_lz=1&amp;pn=3 ...</blockquote>
+
+这两代入系角色的时候由玩家手动控制从者打BOSS，媒体改变后藤丸立香已经从玩家代入变成独立意志的角色了，按惯例自己上打（挂了无数DEBUFF）的BOSS不就常规操作？
+
+看菌皇亲征的FELE。前面楼层有分析，主角不可能只站在旁边666，总得分配点别的什么任务
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3518#       发表于 2020-3-16 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756961&amp;ptid=1729513" target="_blank">lanlv 发表于 2020-3-16 13:54</a>
+
+动画党。闪闪给立香的那把小刀是啥呀？</blockquote>
+游戏没有这个所以无从考证，但这刀是啥不重要，反正王财和四次元口袋差不多，看成一把能造成有效伤害的武器就行了，具体设定想写的话以后总会有的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  扎比子  
+##### 3519#       发表于 2020-3-16 14:29
+
+
+
+
+这集就尼玛离谱，20集播完我打开推特就看见有人在用ccc的ea动画婊这集的ea，ccc都13年的游戏了，2020年的动画表现还不如7年前的psp马赛克游戏，什么辣鸡，有时间给咕哒加跑酷的戏份（据说还是300帧），不能把ea做的炫酷一点吗，还有王哈也一样，整个初号机什么意思，更别提最后咕哒和提妈的神交，孩子和父母这种话题也轮不到咕哒来吧？闪闪伊斯塔艾蕾哪个不比他更合适，给咕哒加戏就邪门
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3520#       发表于 2020-3-16 14:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46757396&amp;ptid=1729513" target="_blank">扎比子 发表于 2020-3-16 14:29</a>
+
+这集就尼玛离谱，20集播完我打开推特就看见有人在用ccc的ea动画婊这集的ea，ccc都13年的游戏了，2020年的动 ...</blockquote>
+说合适那确实是咕哒，因为他们都没活在当下
+
+
+
+
+
+
+
+-----
+
+####  蕾丝  
+##### 3521#       发表于 2020-3-16 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756961&amp;ptid=1729513" target="_blank">lanlv 发表于 2020-3-16 13:54</a>
+
+动画党。闪闪给立香的那把小刀是啥呀？</blockquote>
+有人猜应该是露露不累卡的原型，目前来看这也是最合理的解释
+
+
+
+
+
+
+
+-----
+
+####  扎比子  
+##### 3522#       发表于 2020-3-16 14:54
+
+
+
+<blockquote>DARKGRAY 发表于 2020-3-16 14:47
+说合适那确实是咕哒，因为他们都没活在当下</blockquote>
+游戏这段是闪闪说的啊，“不论多么不舍，孩子也会离开母亲的怀抱”大意就是这个，而且咕哒又不认识提妈，我都不知道他那句“孩子们都很爱你”是从哪得出来的结论
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3523#       发表于 2020-3-16 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46757712&amp;ptid=1729513" target="_blank">扎比子 发表于 2020-3-16 14:54</a>
+
+游戏这段是闪闪说的啊，“不论多么不舍，孩子也会离开母亲的怀抱”大意就是这个，而且咕哒又不认识提妈， ...</blockquote>
+游戏里不是真沟通，谁说都没差，但这里是。说的话恰不恰当倒是可以探究<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  newfaceryo  
+##### 3524#       发表于 2020-3-16 15:06
+
+
+
+
+为什么说月厨原作党难伺候，因为大部分月厨连原作都没看懂。
+
+他们大部分只会和你谈设定谈战力谈b格。
+
+
+
+
+
+
+
+-----
+
+####  扎比子  
+##### 3525#       发表于 2020-3-16 15:30
+
+
+
+<blockquote>DARKGRAY 发表于 2020-3-16 14:57
+游戏里不是真沟通，谁说都没差，但这里是。说的话恰不恰当倒是可以探究 ...</blockquote>
+原作给咕哒托梦那种手法我觉得可以，动画把托梦删了改成这种神交咕哒满嘴菌言菌语就……“你和提妈很熟吗”的感觉，
+
+
+
+
+
+
+
+-----
+
+####  ChrisSnake  
+##### 3526#       发表于 2020-3-16 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这剧情完全就是暗杀者杀死了提妈 乱干强化使徒 捅爆提妈 在结界里也不会死 护送咕哒补刀 wtf？
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3527#       发表于 2020-3-16 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46758114&amp;ptid=1729513" target="_blank">扎比子 发表于 2020-3-16 15:30</a>
+
+原作给咕哒托梦那种手法我觉得可以，动画把托梦删了改成这种神交咕哒满嘴菌言菌语就……“你和提妈很熟吗 ...</blockquote>
+看的时候的感受是想明着突出提妈放水这一点，既然刀没输出过，那结界就是她自己主动收回去的，靠表达孩子离巢的决心，否定了回归之理，游戏里始终只有暗示，要到设定提到才能看出来。至于熟不熟，类似于族谱第一位的老祖宗+配偶的感觉？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 3528#       发表于 2020-3-16 19:04
+
+
+
+
+22话生放送提前半小时，看来加料实锤了
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 3529#       发表于 2020-3-16 19:18
+
+
+
+
+为啥这话喷的人那么多啊，没玩过fgo，感觉还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3530#       发表于 2020-3-16 19:20
+
+
+
+
+看起来是要做终章了
+
+第七章归还部分少说几句（豹人剧情删掉的话动画羽蛇神应该燃尽了，可以省一些时间）把和马修看蓝天的剧情放到bd去，简化英灵殿助拳的话……应该时间够，就是不知道节奏会不会爆炸
+
+
+反正我个人只要色彩 ~訣別の時来たれり~别乱放就行
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 3531#       发表于 2020-3-16 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761025&amp;ptid=1729513" target="_blank">华发夜眼[CN] 发表于 2020-3-16 19:18</a>
+
+为啥这话喷的人那么多啊，没玩过fgo，感觉还行吧</blockquote>
+要习惯动画党的感觉和非动画党的感觉经常不在一个频道上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，比如之前不清楚王哈究竟有多厉害，所以被削弱了也没感觉（
+
+
+
+
+
+
+
+-----
+
+####  DARKGRAY  
+##### 3532#       发表于 2020-3-16 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761025&amp;ptid=1729513" target="_blank">华发夜眼[CN] 发表于 2020-3-16 19:18</a>
+
+为啥这话喷的人那么多啊，没玩过fgo，感觉还行吧</blockquote>
+对游戏党来说，王哈是个要在这里大力描写的角色，但成品并没有，反而还生草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3533#       发表于 2020-3-16 19:55
+
+
+
+
+刚刚在研究薛定谔的十一子战力的时候意识到了一个问题，这动画的马修为什么会是这个样子，游戏第一部虽然有很多描写马修脆弱的情节但是整体还算一个坚强的女孩，为什么到动画给我的感觉就是没有主角她随时就要垮了？
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3534#       发表于 2020-3-16 20:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761452&amp;ptid=1729513" target="_blank">wolegequaaa 发表于 2020-03-16 19:55:42</a>
+刚刚在研究薛定谔的十一子战力的时候意识到了一个问题，这动画的马修为什么会是这个样子，游戏第一部虽然有 ...</blockquote>马修被删了不少戏份，她个人和雷奥尼达的成长剧情基本上被删完了 还有后期的金古牛肉丸武藏坊这群人戏份都被删了不少
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 3535#       发表于 2020-3-16 20:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761452&amp;ptid=1729513" target="_blank">wolegequaaa 发表于 2020-3-16 19:55</a>
+
+刚刚在研究薛定谔的十一子战力的时候意识到了一个问题，这动画的马修为什么会是这个样子，游戏第一部虽然有 ...</blockquote>
+讲道理，我觉得动画里她要垮掉的也只是身体或者说战斗能力而不是意志<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3536#       发表于 2020-3-16 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761656&amp;ptid=1729513" target="_blank">aptx8285144 发表于 2020-3-16 20:14</a>
+
+讲道理，我觉得动画里她要垮掉的也只是身体或者说战斗能力而不是意志 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角供魔到手指快坏死了还有空救马修和跑酷，马修上一集盾都快维持不住了这集还能开宝具
+
+
+
+
+
+
+
+-----
+
+####  凡人  
+##### 3537#       发表于 2020-3-16 20:28
+
+
+
+
+为了给立香加戏，要是没有那些鼓励那些玛修的情节，他的戏份要少不少。
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3538#       发表于 2020-3-16 20:33
+
+
+
+<blockquote>wolegequaaa 发表于 2020-3-16 20:20
+主角供魔到手指快坏死了还有空救马修和跑酷，马修上一集盾都快维持不住了这集还能开宝具 ...</blockquote>
+冥界加护和梅林都来了，还不够补血充NP吗（误）
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 3539#       发表于 2020-3-16 20:43
+
+
+
+ 本帖最后由 rxrx 于 2020-3-16 20:44 编辑 
+
+虽然不是那个意思，但主角和提妈的对话就象渣男扔弃槽糠之妻的情景：
+
+
+提妈：爱我别走
+
+主角：孩子是爱你的，拜拜
+
+提妈：不要爱我 （留下来）
+
+主角头也不回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  远野四季  
+##### 3540#       发表于 2020-3-16 20:52
+
+
+
+
+后知后觉才看到12话，好想看艾蕾把伊斯塔一丝不挂捆起来射成筛子的本子
+
+
+
+
+
+
+
+-----
+
+####  xpisces  
+##### 3541#       发表于 2020-3-16 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762109&amp;ptid=1729513" target="_blank">远野四季 发表于 2020-3-16 20:52</a>
+后知后觉才看到12话，好想看艾蕾把伊斯塔一丝不挂捆起来射成筛子的本子</blockquote>
+都是伊斯塔按着艾蕾让御主操<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  远野四季  
+##### 3542#       发表于 2020-3-16 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762473&amp;ptid=1729513" target="_blank">xpisces 发表于 2020-3-16 21:20</a>
+
+都是伊斯塔按着艾蕾让御主操</blockquote>
+太常规了，太常规了啊老湿！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                               

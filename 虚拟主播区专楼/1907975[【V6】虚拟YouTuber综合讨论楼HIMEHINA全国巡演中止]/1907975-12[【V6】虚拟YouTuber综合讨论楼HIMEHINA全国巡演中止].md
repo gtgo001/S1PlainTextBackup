@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 20:05** 
+> ## **本文件最后更新于2020-03-16 22:02** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_lk4jN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_ib3ll" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18113,10 +18113,11 @@ syl，来点西西，西西的大奈子看硬我了
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| lxlyandccc| + 1|好评加鹅|
 | YODOboi| + 1|待机|
 | 昨夜雨| + 1|わくわく|
 
@@ -18646,4 +18647,1460 @@ REVDOL！（戰鬥吧歌姬）在**直播生放中，全日語的，還真夠入
 
 
 
-                
+
+
+-----
+
+####  proxima  
+##### 17518#       发表于 2020-3-16 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761419&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-16 19:53</a>
+
+大头为何死活不抱海苔男大腿</blockquote>
+抱老爱大腿都没用，抱海苔男大腿能干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17519#       发表于 2020-3-16 20:11
+
+
+
+
+mc原版够玩了，建筑党和红石党都可以玩一辈子，当然以管人的审美和智商什么花也玩不出来。
+
+看夸皇做那个最基础的活塞门做了两个小时我想双持远古剑把她剁做肉泥。彩虹本社有樱凛，vr有安堂，算是入门技术玩家了。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17520#       发表于 2020-3-16 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761353&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-16 19:46</a>
+
+歌姬的开销大概管人收入前十的加一块也顶不上吧，然后国内热度被倍杀，幸好清歌一号机比较有眼光 ...</blockquote>
+歌姬一年要烧1E人民币？
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17521#       发表于 2020-3-16 20:16
+
+
+
+
+车回谜语人，我现在严重怀疑其实他们恰了zjh和井皇的烂钱，就跟疫苗一样，他们来整段谜语，拉高群众期待，以后真出了什么事被大家就这就这的带过去，真的是罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17522#       发表于 2020-3-16 20:18
+
+
+
+
+就这这个词是真的好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要你一直说就这，那么你就是无敌的。
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17523#       发表于 2020-3-16 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761544&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-16 20:03</a>
+
+歌姬怎么人人都会日语？</blockquote>
+招人的要求就有，然后还有后续的训练和学习吧
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17524#       发表于 2020-3-16 20:20
+
+
+
+
+本质就是关我屁事，我不在意，只要一直保持这种想法，谁来都没用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17525#       发表于 2020-3-16 20:20
+
+
+
+
+乐元素才真的是偶像梦啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 17526#       发表于 2020-3-16 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AKB48当年不也贴了很久前
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17527#       发表于 2020-3-16 20:22
+
+
+
+ 本帖最后由 colodes 于 2020-3-16 20:23 编辑 
+
+播歌 码率就暴增 虽然是录的但是光影确实吊打其他公司几条街 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17528#       发表于 2020-3-16 20:25
+
+
+
+
+擦，为啥我感觉歌姬这次的日文直播比她们平时的中文直播要好看的多……这就是日语加成吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17529#       发表于 2020-3-16 20:25
+
+
+
+<img src="https://i0.hdslb.com/bfs/album/ac56628405fd07d119a65e78cf346cf1230bc8b8.png@518w_1e_1c.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17530#       发表于 2020-3-16 20:27
+
+
+
+<blockquote>这比演唱会还豪华</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17531#       发表于 2020-3-16 20:29
+
+
+
+
+果然歌姬还是表演的时候节目效果更好
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17532#       发表于 2020-3-16 20:32
+
+
+
+
+会日语为什么不联动狗妈holo ，反而联动国v呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">早点搞不就起飞了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17533#       发表于 2020-3-16 20:33
+
+
+
+
+这是播片？
+
+跳在空中开口没半点影响
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17534#       发表于 2020-3-16 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761280&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-16 19:40</a>
+
+歌姬在国内不是挺有实力的么，感觉去日本吃力不讨好</blockquote>
+变成一周两播，原来的B站周五直播照常，外加每周一增加在404的直播……所以其实相当于直播的时间翻倍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17535#       发表于 2020-3-16 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761874&amp;ptid=1907975" target="_blank">baizhi 发表于 2020-3-16 20:32</a>
+
+会日语为什么不联动狗妈holo ，反而联动国v呢早点搞不就起飞了</blockquote>
+狗妈看不上吧
+
+不是联动了新科娘么
+
+可惜炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17536#       发表于 2020-3-16 20:34
+
+
+
+
+太强了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17537#       发表于 2020-3-16 20:35
+
+
+
+
+奶一下吧，祭律可联动弹唱能不能过千<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我觉得还是有点希望的，白日翻唱都49万再生了，看过的人怎么着也有几千上万吧，有十分之一应该就够了
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17538#       发表于 2020-3-16 20:36
+
+
+
+
+其实我还是觉得最初不如分号<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17539#       发表于 2020-3-16 20:37
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-3-16 20:40 编辑 
+
+新团曲来了！
+
+果然日文版又是一种味道
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 17540#       发表于 2020-3-16 20:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太强撸
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17541#       发表于 2020-3-16 20:43
+
+
+
+
+话说歌姬本体在日本咋b站FHD，404就这种朱军画质啊
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 17542#       发表于 2020-3-16 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么日文的SC感谢观感就好了不少
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 17543#       发表于 2020-3-16 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761676&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-16 20:16</a>
+
+车回谜语人，我现在严重怀疑其实他们恰了zjh和井皇的烂钱，就跟疫苗一样，他们来整段谜语，拉高群众期待， ...</blockquote>
+应该就是做宣传吧，貌似今天井皇生日，造个势就有更多人打钱了
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17544#       发表于 2020-3-16 20:43
+
+
+
+
+虽然问题总有不少，但每当这种时候果然会感觉喜欢歌姬还是没错<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17545#       发表于 2020-3-16 20:44
+
+
+
+
+感慨我是看了多少劣质MV糟蹋自己 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17546#       发表于 2020-3-16 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762000&amp;ptid=1907975" target="_blank">林照人 发表于 2020-3-16 20:43</a>
+
+为什么日文的SC感谢观感就好了不少</blockquote>
+我也觉得，所以果然日语还是有优势啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17547#       发表于 2020-3-16 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761637&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-16 20:13</a>
+
+歌姬一年要烧1E人民币？</blockquote>
+算术苦手，球球放过，我只是指sc收入。歌姬这租痛地铁，荧幕mc，批站up联合恰饭，这还只是我知道的。还有技术投入不了解就不说了，更别提这几个人的素质可比nico生高得多
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 17548#       发表于 2020-3-16 20:49
+
+
+
+
+果然制酱环节6人齐声念课文无比舒服
+
+舞台live mv的话俺倒觉得第一季最后的music fighter！观感挺棒的，动捕做出大会场延伸舞台上跑步的live临场感
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lxlyandccc| + 1|赞成|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17549#       发表于 2020-3-16 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761906&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-16 20:34</a>
+
+狗妈看不上吧
+
+不是联动了新科娘么
+
+可惜炸了</blockquote>
+工商也不接吗？乐元素几百万的广告都投了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17550#       发表于 2020-3-16 20:51
+
+
+
+
+母语羞涩它来了，这楼里隔一楼**毙一个日杂肯定有漏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 17551#       发表于 2020-3-16 20:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草 居然有种还没看够的感觉
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17552#       发表于 2020-3-16 20:52
+
+
+
+
+下次要3/30啊，隔两周
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17553#       发表于 2020-3-16 20:52
+
+
+
+
+等等，越听越感觉她们说日文怎么这么可爱……这个感觉和中文直播是完全是两种体验啊，幻想感直接上了一阶，明明声线都是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17554#       发表于 2020-3-16 20:53
+
+
+
+
+好看好看，下次还看
+
+顺便我在b站看到个vup封面写着已婚请注意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 17555#       发表于 2020-3-16 20:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/205327q112yd3tf3v4v411.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200316205253.png</strong> (1.17 MB, 下载次数: 1)
+
+下载附件
+
+2020-3-16 20:53 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lxlyandccc| + 1|啊，居然要隔两周吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17556#       发表于 2020-3-16 20:55
+
+
+
+ 本帖最后由 qdaqd123 于 2020-3-16 21:02 编辑 
+
+https://www.youtube.com/watch?v=ZyDwuwwUZ7A【祝!2周年】これがむぎのえち概念【にじさんじ/家長むぎ】
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 17557#       发表于 2020-3-16 20:58
+
+
+
+[https://twitter.com/Hoshimeguri_HS/status/1239530360750276609](https://twitter.com/Hoshimeguri_HS/status/1239530360750276609)
+
+ひととせ探偵団の皆さんより、広報活動のお手伝いをしてもらいました。
+
+みなさん素敵な声をありがとうございます。
+
+
+出声视频
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17558#       发表于 2020-3-16 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761994&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-16 20:43</a>
+
+话说歌姬本体在日本咋b站FHD，404就这种朱军画质啊</blockquote>
+404好像会自动调更流畅的画质吧？我每次看的时候都是手动选1080的，否则会糊的不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17559#       发表于 2020-3-16 20:59
+
+
+
+
+【ASMR/黒3dio】疲れた人、眠れない人向け♡全肯定でたっぷり甘やかす　囁き/吐息/マッサージ/シャンプー/心音etc...】Ear Blowing/ear massage/shampoo】
+
+
+syl 以后8月10日我不黑葵皇
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17560#       发表于 2020-3-16 20:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762172&amp;ptid=1907975" target="_blank">lxlyandccc 发表于 2020-3-16 20:58</a>
+
+404好像会自动调更流畅的画质吧？我每次看的时候都是手动选1080的，否则会糊的不行 ...</blockquote>
+我选楼1080还是糊啊
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17561#       发表于 2020-3-16 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762072&amp;ptid=1907975" target="_blank">baizhi 发表于 2020-3-16 20:49</a>
+
+工商也不接吗？乐元素几百万的广告都投了。</blockquote>
+小工商没意义，大工商人气还不够吧
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 17562#       发表于 2020-3-16 21:02
+
+
+
+
+  【悲报】
+阿望短发
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17563#       发表于 2020-3-16 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762189&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-16 20:59</a>
+
+我选楼1080还是糊啊</blockquote>
+那就不知道了，是不是404自己的视频上传限制？
+
+反正个人感觉B站大会员开最高画质是好像要比404清晰一些
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17564#       发表于 2020-3-16 21:05
+
+
+
+
+歌姬最严重的还是受众定位问题，希望这次会是个好的开始吧
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17565#       发表于 2020-3-16 21:06
+
+
+
+<blockquote>NBXX 发表于 2020-3-16 20:58
+https://twitter.com/Hoshimeguri_HS/status/1239530360750276609
+
+ひととせ探偵団の皆さんより、広報活動の ...</blockquote>
+声音辨认如何了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17566#       发表于 2020-3-16 21:10
+
+
+
+
+【ホロライブ】魔界組5人で「Crazy ∞ nighT」歌ってみた from (Mel Channel 夜空メルチャンネル）
+[https://youtu.be/CCh5OtrtiQg](https://youtu.be/CCh5OtrtiQg)
+
+
+老师都调出电音了，调音nb！
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17567#       发表于 2020-3-16 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762205&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-16 21:01</a>
+
+小工商没意义，大工商人气还不够吧</blockquote>
+广场地铁屈臣氏都能看得上，狗妈为什么看不上<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17568#       发表于 2020-3-16 21:15
+
+
+
+
+16号了我slee呢我星之彼方的天使鱼呢
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17569#       发表于 2020-3-16 21:22
+
+
+
+
+这爽的
+
+
+【ちょっとHな生配信】お勧めアニメの膣爆（オナMAX）シーンをご紹介！！！
+[https://youtu.be/cxQsDjjFJOQ](https://youtu.be/cxQsDjjFJOQ)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|在看了，|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17570#       发表于 2020-3-16 21:22
+
+
+
+
+狐皇这个幼体化不行啊，和平时的区别太小了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17571#       发表于 2020-3-16 21:22
+
+
+
+
+日语听着就好？我知道为什么这么多国V要rp太君了，出口转内销就能抬价
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 17572#       发表于 2020-3-16 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762496&amp;ptid=1907975" target="_blank">深林幽泉 发表于 2020-3-16 21:22</a>
+日语听着就好？我知道为什么这么多国V要rp太君了，出口转内销就能抬价</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要逆转这种情况只有等零零后或零五后大规模起势了
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17573#       发表于 2020-3-16 21:28
+
+
+
+
+樱花妹就是有加成呀
+
+阿b洋大人buff有多厉害你们又不是不知道<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17574#       发表于 2020-3-16 21:29
+
+
+
+
+气抖冷，国v之光弥宝什么时候才能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17575#       发表于 2020-3-16 21:30
+
+
+
+
+我个人倾向于传统环境里中文的“娱乐功能”大概仅限于讲相声类的戏剧场合，下意识觉得没法拿来卖萌，所以会觉得不习惯
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17576#       发表于 2020-3-16 21:32
+
+
+
+[https://twitter.com/i/status/1239508482925031425](https://twitter.com/i/status/1239508482925031425)
+
+“みこち20万登録おめでとうございます！！！！
+
+個人的に好きなシーンのWe are FAQやエリート工場などを用いて曲にしてみました！”
+
+
+
+
+
+
+
+-----
+
+####  LonelyKing  
+##### 17577#       发表于 2020-3-16 21:32
+
+
+
+
+呜呜呜，弥宝冲冲冲<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17578#       发表于 2020-3-16 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国V不整企划有点太虚无了，日V本来大部分人就听不懂所以就没有这个障碍
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17579#       发表于 2020-3-16 21:37
+
+
+
+
+国内能卖萌的有啊，你看warma
+
+奈何人家看不上你v圈<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17580#       发表于 2020-3-16 21:40
+
+
+
+
+这天皇打游戏还不如哈哥ARK。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，我还以为是掉线了。
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17581#       发表于 2020-3-16 21:41
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-3-16 21:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762593&amp;ptid=1907975" target="_blank">无限舰制 发表于 2020-3-16 21:30</a>
+
+我个人倾向于传统环境里中文的“娱乐功能”大概仅限于讲相声类的戏剧场合，下意识觉得没法拿来卖萌，所以会 ...</blockquote>
+是的，其实本质就是部分观众（比如我）的娱乐习惯使得看到美少女动画角色+听到日文就下意识和ACG联系起来，本能地感觉这个是离现实、离凡尘“有距离”的，
+
+来自以往ACG经验的无数相关联想自然带来了虚拟感和幻想感<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+在漫区应该有不少人能理解这种感觉，其实就是个习惯问题，中文语境还没有在自己的潜意识里构建出相应的基盘。
+
+当然，这都是可以改变的，随着中文ACG的发展，越来越多的人也会习惯中文……需要时间就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17582#       发表于 2020-3-16 21:41
+
+
+
+
+别这么说，沃玛人挺好的，不是还给京华引过流吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+论国V还是等holocn成型再看吧，vr已经不抱希望了
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17583#       发表于 2020-3-16 21:44
+
+
+
+
+U1S1，老番茄的宝可梦视频里，warma配的是真有感觉，虽然就几句
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17584#       发表于 2020-3-16 21:44
+
+
+
+
+床ドンは正常位
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 17585#       发表于 2020-3-16 21:45
+
+
+
+
+沃玛好歹小我几届的学妹，不许说她坏话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 17586#       发表于 2020-3-16 21:47
+
+
+
+
+沃玛瞧不起V圈的八卦来点
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17587#       发表于 2020-3-16 21:50
+
+
+
+
+地味出道一周
+
+
+订阅1万
+
+同接2千
+
+我预感由管不干掉她，她就能干掉管人
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/215021e9eyee1pw9wwa2kr.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-03-16 214754.png</strong> (571.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 21:50 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17588#       发表于 2020-3-16 21:51
+
+
+
+
+喂，你们别曲解我的意思啊，我只是说warma明显没有朝v发展的趋势，没黑p她的意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17589#       发表于 2020-3-16 21:51
+
+
+
+
+avtuber两位现在还活的好好的呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17590#       发表于 2020-3-16 21:53
+
+
+
+
+虽然日V确实在视觉认知上更让人觉得是“可以互动的纸片人”，但国V拉跨可不是这个不可逆转的原因，阿b原生唱见一大批也多少有个卡通形象的，形式上和你国v没差多少了
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17591#       发表于 2020-3-16 21:53
+
+
+
+
+holocn成啥型，VR还算箱，holocn跟个人势有啥区别
+
+syl 警惕和平演变vup楼
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 17592#       发表于 2020-3-16 21:57
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-3-16 22:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762983&amp;ptid=1907975" target="_blank">YODOboi 发表于 2020-3-16 21:53</a>
+
+虽然日V确实在视觉认知上更让人觉得是“可以互动的纸片人”，但国V拉跨可不是这个不可逆转的原因，阿b原生 ...</blockquote>
+肯定的。如果足够优秀，这些不利都是完全可以无视的，毕竟中文也有自己的优势，听得懂比什么都重要。
+
+而且，所谓语境和基盘的构建自然也是通过优秀的作品来逐步实现的：让人喜欢→被人接受→众人习惯→传播、联想、共感，然后建立起自身的环境。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17593#       发表于 2020-3-16 21:57
+
+
+
+
+holocn的三张新卡感觉也没狐皇或是龙皇这种，vup崛起还是看新科娘四代和冰糖吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17594#       发表于 2020-3-16 21:57
+
+
+
+
+才发现杏中国都俩银盾了，夜雾你转会vr吧。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17595#       发表于 2020-3-16 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46763038&amp;ptid=1907975" target="_blank">IDIDIDID 发表于 2020-3-16 21:57</a>
+
+才发现杏中国都俩银盾了，夜雾你转会vr吧。</blockquote>
+老大还是能给点时间的，毕竟真的有日本dd跑到b站来就为老大<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+反正holocn又不吃资源，vr什么时候把阿b的资源让出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17596#       发表于 2020-3-16 22:01
+
+
+
+[https://www.youtube.com/watch?v=ufZmpbMAotI](https://www.youtube.com/watch?v=ufZmpbMAotI)
+
+カブトムシ 1cho.ver/aiko(Covered by 夏色まつり&amp;律可)
+
+
+
+
+
+             
