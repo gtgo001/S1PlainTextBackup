@@ -105,9 +105,9 @@
   },
   {
     "id": "1829936",
-    "totalpage": 61,
+    "totalpage": 62,
     "title": "[20.01『别对映像研出手！／映像研には手を出すな！』专楼]",
-    "lastedit": 1584316858,
+    "lastedit": 1584424829,
     "category": "漫区专楼",
     "active": true
   },
@@ -153,9 +153,9 @@
   },
   {
     "id": "1336553",
-    "totalpage": 724,
+    "totalpage": 725,
     "title": "[『吹响吧！上低音号』专楼 剧场版上映中 3年生篇制作決定!]",
-    "lastedit": 1584403251,
+    "lastedit": 1584424867,
     "category": "漫区专楼",
     "active": true
   },
@@ -273,17 +273,17 @@
   },
   {
     "id": "1912063",
-    "totalpage": 393,
+    "totalpage": 394,
     "title": "[【M10】Vtuber 神楽めあ(神楽Mea)真爱讨论楼]",
-    "lastedit": 1584417734,
+    "lastedit": 1584424938,
     "category": "虚拟主播区专楼",
     "active": true
   },
   {
     "id": "1907975",
-    "totalpage": 594,
-    "title": "[【V6】虚拟YouTuber综合讨论楼HIMEHINA全国巡演中止]",
-    "lastedit": 1584417812,
+    "totalpage": 600,
+    "title": "[【V6】虚拟YouTuber综合讨论楼織田信姫将于4月30日引退]",
+    "lastedit": 1584426822,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -409,9 +409,9 @@
   },
   {
     "id": "1809379",
-    "totalpage": 80,
+    "totalpage": 81,
     "title": "[【VTB小铁铲】VTB魂与骨收容、整理富士葵魂资料更新！]",
-    "lastedit": 1584302526,
+    "lastedit": 1584425057,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -521,9 +521,9 @@
   },
   {
     "id": "1473080",
-    "totalpage": 126,
+    "totalpage": 127,
     "title": "[筒井大志 我们无法一起学习／我们真的学不来]",
-    "lastedit": 1584374697,
+    "lastedit": 1584425099,
     "category": "漫区专楼",
     "active": true
   },
@@ -627,7 +627,7 @@
     "id": "1836225",
     "totalpage": 8,
     "title": "[《明日之劫》还不错，末日修仙克味终结者撸猫吐槽流]",
-    "lastedit": 1584423502,
+    "lastedit": 1582936419,
     "category": "外野",
     "active": true
   },
@@ -723,9 +723,9 @@
     "id": "1811126",
     "totalpage": 5,
     "title": "[2020年4月《公主连结》TV动画]",
-    "lastedit": 1584423358,
+    "lastedit": 1581739462,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "346283",
@@ -857,9 +857,9 @@
   },
   {
     "id": "1831289",
-    "totalpage": 40,
+    "totalpage": 41,
     "title": "[假面骑士01／仮面ライダーゼロワン]",
-    "lastedit": 1584252207,
+    "lastedit": 1584425172,
     "category": "漫区专楼",
     "active": true
   },
@@ -4449,9 +4449,9 @@
   },
   {
     "id": "1916462",
-    "totalpage": 38,
+    "totalpage": 39,
     "title": "[【仁王2专楼】已发售；更新一大波捏脸代码]",
-    "lastedit": 1584411015,
+    "lastedit": 1584425364,
     "category": "游戏区专楼",
     "active": true
   },
@@ -5217,9 +5217,9 @@
   },
   {
     "id": "1918285",
-    "totalpage": 9,
+    "totalpage": 10,
     "title": "[魔都明确民办摇号，感觉一拳打在棉花上]",
-    "lastedit": 1584367835,
+    "lastedit": 1584425429,
     "category": "外野",
     "active": true
   },
@@ -5389,6 +5389,14 @@
     "title": "[ZT. Fake News采访了那位拒喝中药汤剂的武汉老哥]",
     "lastedit": 1584368050,
     "category": "外野",
+    "active": false
+  },
+  {
+    "id": "1919303",
+    "totalpage": 19,
+    "title": "[疫情专楼，带节奏转进的，造谣的，乱喷的一律永久]",
+    "lastedit": 1584427083,
+    "category": "外野专楼",
     "active": true
   }
 ]
