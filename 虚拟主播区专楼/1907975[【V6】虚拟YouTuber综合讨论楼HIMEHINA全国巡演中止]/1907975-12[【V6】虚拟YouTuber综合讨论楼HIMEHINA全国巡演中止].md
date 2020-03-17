@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-17 10:04** 
+> ## **本文件最后更新于2020-03-17 12:03** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_ofSiY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_sIiRx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -22992,4 +22992,1012 @@ zsyl
 
 
 
-        
+
+
+-----
+
+####  Izuru单推人  
+##### 17748#       发表于 2020-3-17 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767650&amp;ptid=1907975" target="_blank">Suny08 发表于 2020-3-17 09:57</a>
+
+杏星感觉已经好很多了，昨天我看律可唱歌都有300同接了，其实按他的订阅量这同接已经很不错了吧 ...</blockquote>
+弹唱回在这里是buff的，平时同接要低一些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+不过啊，404那边不知怎样，但B站这边，一弦和律可也有3W粉了，而国内女粉数量上限应该以Roi和Aza为准（毕竟叶和葛叶男粉挺多的），Roi3.3W，咋子哥4.3W，至少证明在B站对女性群体这方面，一弦和律可算是符合国内女粉口味的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17749#       发表于 2020-3-17 10:05
+
+
+
+
+吵个屁，来点pekomiko
+<img src="http://wx1.sinaimg.cn/mw690/006lMFJogy1gcw00ljc11j30u00u0ard.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17750#       发表于 2020-3-17 10:06
+
+
+
+
+我现在真的好想采访一下白姨的gachi是什么心态<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17751#       发表于 2020-3-17 10:10
+
+
+
+
+你好，白姨gachi在此，心态就是没心态<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">优缺点都能接受才能算合格的gachi啊
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17752#       发表于 2020-3-17 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白姨给引流了还要骂，不过这效果估计还不如在闹市区摆看板。
+
+
+syl 杏星这几个人的皮我给过女性朋友看，有个说还不如去玩手游什么都有，甚至说你抄袭手游。yagoo说杏女参考akb，做男团应该是参考j家吗
+
+
+zsyl 绿仙都比杏星这几个有男偶像感
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17753#       发表于 2020-3-17 10:16
+
+
+
+
+yagoo其实不错的，打定主意就执行的很坚决，培养男V绝不是一个错误的选择，只要能成就能收掉彩虹最后的领地。
+
+不过让女V去引流估计效果不会多好，但这也只是目前唯一的办法了。
+
+最好的办法当然还是抽强力卡组，在我看来这只是时间问题，总能碰到一个天选之人的。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17754#       发表于 2020-3-17 10:22
+
+
+
+
+yagoo不如把大舅子挖过来，虽然人家大概率要去四季了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17755#       发表于 2020-3-17 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767739&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-17 10:04</a>
+
+弹唱回在这里是buff的，平时同接要低一些
+
+
+不过啊，404那边不知怎样，但B站这边，一弦和律可也有3 ...</blockquote>
+能简单介绍下男团除了两位弹唱选手之外主要的看点和特色在哪吗，其实我除了律可和奏手其他也是云的，看了下你开的专楼也是只有频道和设定介绍
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17756#       发表于 2020-3-17 10:32
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-3-17 10:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767954&amp;ptid=1907975" target="_blank">free 发表于 2020-3-17 10:22</a>
+
+能简单介绍下男团除了两位弹唱选手之外主要的看点和特色在哪吗，其实我除了律可和奏手其他也是云的，看了 ...</blockquote>
+关键是除了一弦和律可外我也看得不算特别多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">天真就是暗黑骑士了，至于roberu，也不知道怎么说，但他最像你们想要的彩虹男V那种就对了
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 17757#       发表于 2020-3-17 10:39
+
+
+
+ 本帖最后由 pin_on 于 2020-3-17 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765005&amp;ptid=1907975" target="_blank">colodes 发表于 2020-3-17 00:50</a>
+
+躺床上了查不了，请问黑黑粉丝男女比例八二分来源是去年的推特吗？</blockquote>
+最近的直播葛叶说了还是8：2，叶也一直说是8：2
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17758#       发表于 2020-3-17 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 虽然有点巨魔，但想问问单推木口星老哥，自己喜欢的男V和女V搞暧昧会不会很生气啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17759#       发表于 2020-3-17 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768193&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-17 10:40</a>
+
+虽然有点巨魔，但想问问单推木口星老哥，自己喜欢的男V和女V搞暧昧会不会很生气啊 ...</blockquote>
+我是男的我在意什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17760#       发表于 2020-3-17 10:46
+
+
+
+
+终于有楼里的老哥说出我一直以来的想法了，每次看什么inui玩得手游里面的什么衣更真绪，就觉得木口星的皮真的有股手游偶像感<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+yagoo大概是真的想打造男性偶像天团
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 17761#       发表于 2020-3-17 10:49
+
+
+
+ 本帖最后由 pin_on 于 2020-3-17 10:54 编辑 
+
+yagoo想复刻女团整个v圈杰尼斯也不是这样搞的啊，说真的直播套皮人也不可能成为虚拟J家
+
+杰尼斯走的就是云上人风格，平常除了地上波和jweb就是给钱加fc才能看到消息，没有别的交流渠道，jweb想看也要给钱<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+吊着粉丝造人设，入脑了自然给钱的多。你vjuan怎么可能搞得出这种洗脑模式
+
+
+syl 就算走手游偶像风，esmusic开了，随便选纸片人模型正常上去跳舞台不香吗。
+
+     如果说yagoo没有准备做男性偶像团体，抽优十这种天天开弹唱的卡也抽错了。
+
+     隔壁彩虹也抽唱见卡，没见过别人天天弹唱不整活的，还是整活才能救自己<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17762#       发表于 2020-3-17 10:55
+
+
+
+
+不过趁free哥在，让free哥鉴定一下Astel在套皮主播里算唱的怎样的（强调，是楼里普遍认同的套皮主播）
+
+
+av83721674，av92499989（后面这个是纯属搞笑的）
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17763#       发表于 2020-3-17 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">男偶像也应该去找年轻人，有年轻味啊。。怎么老整叔阿伯的
+
+
+syl 杏星人设特色是什么一眼还看不怎么出来，红A老哥作为饭自己都答不上来，路人就更迷惑了。我现在也就律可歌回无聊会去挂着当背景。
+
+
+
+
+
+
+
+-----
+
+####  hahachenge  
+##### 17764#       发表于 2020-3-17 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768417&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-17 10:55</a>
+
+不过趁free哥在，让free哥鉴定一下Astel在套皮主播里算唱的怎样的（强调，是楼里普遍认同的套皮主播）
+
+
+av8 ...</blockquote>
+红a老哥，我想冒犯的问你一个问题，你是不是gay<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17765#       发表于 2020-3-17 11:07
+
+
+
+<img src="https://luna.komica.org/74/src/1584411485150.png" referrerpolicy="no-referrer">
+
+这游戏选择，只能品出一股底边味来
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 17766#       发表于 2020-3-17 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768570&amp;ptid=1907975" target="_blank">hahachenge 发表于 2020-3-17 11:07</a>
+
+红a老哥，我想冒犯的问你一个问题，你是不是gay</blockquote>
+再问红a老哥又要给你讲他与女孩子的故事，他与兄弟交心被背叛的故事了，别问了听吐了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17767#       发表于 2020-3-17 11:09
+
+
+
+
+现在除了姨，你们又要弄出叔来吗？
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 17768#       发表于 2020-3-17 11:09
+
+
+
+
+不是，为啥男人不能喜欢看男团？看了就是给？你这也太魔幻了吧，女孩子喜欢看女团就是蕾丝了？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17769#       发表于 2020-3-17 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768530&amp;ptid=1907975" target="_blank">fs001 发表于 2020-3-17 11:05</a>
+
+男偶像也应该去找年轻人，有年轻味啊。。怎么老整叔阿伯的
+
+
+syl 杏星人设特色是什么一眼还看不怎么 ...</blockquote>
+其他人这事你去找其他人的单推啊kora<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">等下，其他人的单推也不看S1啊<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17770#       发表于 2020-3-17 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768570&amp;ptid=1907975" target="_blank">hahachenge 发表于 2020-3-17 11:07</a>
+
+红a老哥，我想冒犯的问你一个问题，你是不是gay</blockquote>
+不是（即答）
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17771#       发表于 2020-3-17 11:13
+
+
+
+
+神tm白日里有hiphop
+
+这歌全程都有音调 是唱出来的 和说唱不沾边好吗
+
+
+syl 
+
+狐狸这操作是真迷 大概只有她的女粉和双性恋gay粉会跑去买星的语音和她一起听了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17772#       发表于 2020-3-17 11:14
+
+
+
+
+这位Astel这个红莲华，就是比普通人强一些的水平吧，我觉得靠唱歌吸粉有点难<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 17773#       发表于 2020-3-17 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765683&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-17 02:23</a>
+
+一起来就有二十多页
+
+爬完又多了十页，似乎还经历了一次隔壁入侵，真实够草的。
+
+小肥妹歌力本来就不错，连免 ...</blockquote>
+没有缩到底把所有压力丢出去这点个人而言是比较认可的，不过对于当liver而言怎么样我也没法评价了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  selonng  
+##### 17774#       发表于 2020-3-17 11:17
+
+
+
+ 本帖最后由 selonng 于 2020-3-17 12:01 编辑 
+
+杏星还没出道的时候就被独角兽攻击看着确实可怜，所以刚出道的时候礼节性关注了一阵子，后来发现不仅直播无聊弹唱还越唱越油后干脆取关了。可能粉到上头的人没有自知之明
+
+垃圾话干脆跨页syl meiro还算有点自己的审美，进了杏星反而越唱越油，确实坏起来了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17775#       发表于 2020-3-17 11:17
+
+
+
+
+不仅对手游纸片人发情，还要对套皮男主播发情，不愧是自称木口恶心宅的工具狐。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17776#       发表于 2020-3-17 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768593&amp;ptid=1907975" target="_blank">pin_on 发表于 2020-3-17 11:09</a>
+
+再问红a老哥又要给你讲他与女孩子的故事，他与兄弟交心被背叛的故事了，别问了听吐了 ...</blockquote>
+我自己也不想再说了，反正也不会有人信<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17777#       发表于 2020-3-17 11:19
+
+
+
+<img src="https://majeur.zawarudo.org/virtuelles/src/1584373375784.jpg" referrerpolicy="no-referrer">
+
+龙姐这避税老手的操作姨味溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 17778#       发表于 2020-3-17 11:25
+
+
+
+
+看男v不就相当于看男主播吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17779#       发表于 2020-3-17 11:27
+
+
+
+
+我是真的觉得木口星很难火，而且万一真的火起来了，给不给资源？给多少资源？要不要帮忙企划？新衣装3d得安排上吧？周边得出吧？歌曲mv也要出吧？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">谷乡有这么多人手同时支撑两个箱吗？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17780#       发表于 2020-3-17 11:28
+
+
+
+
+说起来今天贴吧还讨论日本税率和重复征税问题来着
+
+
+
+
+
+
+
+-----
+
+####  hahachenge  
+##### 17781#       发表于 2020-3-17 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768636&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-17 11:11</a>
+
+不是（即答）</blockquote>
+主要你太过热情，所以想问一下<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">，并无恶意
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17782#       发表于 2020-3-17 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768755&amp;ptid=1907975" target="_blank">winda 发表于 2020-3-17 11:19</a>
+
+龙姐这避税老手的操作姨味溢出了</blockquote>
+看不懂，超额累进为什么要避免突破某个关卡
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17783#       发表于 2020-3-17 11:32
+
+
+
+
+这业界比holo星惨的箱一大堆，为啥国内这么喜欢云P holo星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17784#       发表于 2020-3-17 11:32
+
+
+
+<blockquote>cckuku 发表于 2020-3-17 11:27
+我是真的觉得木口星很难火，而且万一真的火起来了，给不给资源？给多少资源？要不要帮忙企划？新衣装3d得安 ...</blockquote>
+火起来就招人嘛，钱不够就让女团垫着，作为主播没有流量才是最大的问题。
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 17785#       发表于 2020-3-17 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768863&amp;ptid=1907975" target="_blank">cckuku 发表于 2020-3-17 11:27</a>
+
+我是真的觉得木口星很难火，而且万一真的火起来了，给不给资源？给多少资源？要不要帮忙企划？新衣装3d得安 ...</blockquote>
+如果木口星真能火起来，这些对于yagoo来说都是幸福的烦恼吧。木口星真火起来多招点人应该不是难事
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17786#       发表于 2020-3-17 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768921&amp;ptid=1907975" target="_blank">tiro_finale 发表于 2020-3-17 11:30</a>
+
+看不懂，超额累进为什么要避免突破某个关卡</blockquote>
+贴吧讨论税率时，提到了日本为防止逃税会提前征第二年的税的样子
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17787#       发表于 2020-3-17 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768940&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-17 11:32</a>
+这业界比holo星惨的箱一大堆，为啥国内这么喜欢云P holo星</blockquote>
+因为名字里有木口
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17788#       发表于 2020-3-17 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768940&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-17 11:32</a>
+
+这业界比holo星惨的箱一大堆，为啥国内这么喜欢云P holo星</blockquote>
+因为红A老哥在楼里安利才稍微看的，要不然谁去在意这个<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17789#       发表于 2020-3-17 11:44
+
+
+
+
+因为live粉巴不得星死得人有很多啊，这借着云p踩星不就正好发泄了么，隔壁不也发了个云p星的帖子
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 17790#       发表于 2020-3-17 11:46
+
+
+
+
+木口星在泥楼还有讨论度，我看将来必火
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17791#       发表于 2020-3-17 11:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 1800w线根本就是个摆设，，不过亏哥名下没公司，那一个亿的收入被收税是很痛的，不少漫画家都扛不住，，
+
+
+建议crew去11区给亏皇开个皮包公司避税
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17792#       发表于 2020-3-17 11:49
+
+
+
+
+话说移动那个麟犀，蓝毛的配音岩井映美里，有点东西啊
+
+上外附中毕业的樱花妹
+
+这牌真的不准备好好打吗
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17793#       发表于 2020-3-17 11:49
+
+
+
+
+所以可见只要死忠锲而不舍的安利还是多少有效的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17794#       发表于 2020-3-17 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769143&amp;ptid=1907975" target="_blank">ヒトニナル 发表于 2020-3-17 11:46</a>
+ 木口星在泥楼还有讨论度，我看将来必火</blockquote>
+其实是因为楼里有个红A哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+如果没有红A哥我估计木口星只有在毕业的时候有一点讨论度，讨论内容还是拿木口星毕业来攻击ygaoo<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 17795#       发表于 2020-3-17 11:53
+
+
+
+ 本帖最后由 pin_on 于 2020-3-17 11:55 编辑 
+
+在泥潭有众多云p讨论怎么想也不是好事，纯良女粉随手一搜就被吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+红a老哥真想星在中国好起来，最好的方法是去微博找大手约稿，画点好看的FA。
+
+自己再写些真情实感的怪文书，发在微博上吸引更对纯良女粉
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17796#       发表于 2020-3-17 11:53
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-3-17 11:56 编辑 
+
+木口又没放弃杏星，还有白姨引流，为什么就不能有讨论度呢。syl，真会有纯良粉花5块钱来中之人黑p论坛吗？
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17797#       发表于 2020-3-17 11:56
+
+
+
+
+a8暴了300多个staff，holo星捡个尸体就有了嘛
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17798#       发表于 2020-3-17 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果不是红a哥杏星确实只是批斗yagoo的配菜啊
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17799#       发表于 2020-3-17 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 那还不如红A老哥微博宣布变成🌈人，每天怪文书BL文发微博，吸引女粉更快
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17800#       发表于 2020-3-17 11:58
+
+
+
+
+从红A哥gay gay的表现我感觉星更加gay了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17801#       发表于 2020-3-17 11:59
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-3-17 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769242&amp;ptid=1907975" target="_blank">pin_on 发表于 2020-3-17 11:53</a>
+
+在泥潭有众多云p讨论怎么想也不是好事，纯良女粉随手一搜就被吓跑了
+
+红a老哥真想星在中国好起来，最 ...</blockquote>
+草，来S1的人会有纯良人？有正常人我信，纯良人算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+关于后面，前者我没钱就很伤（不过我倒知道有一位女粉大手子很喜欢画一弦的FA，也在404看见过她），后者......我需要时间，也许我能写出来
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17802#       发表于 2020-3-17 11:59
+
+
+
+
+隔壁杏楼里那个狐狸独角兽我tm看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17803#       发表于 2020-3-17 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 红A老哥强气攻木口星弱受本子来一个
+
+
+
+
+
+      
