@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 12:00** 
+> ## **本文件最后更新于2020-03-17 22:00** 
 
 
 
@@ -1148,4 +1148,547 @@
 
 
 
-                                               
+
+
+-----
+
+####  Sliurus  
+##### 1562#       发表于 2020-3-15 14:33
+
+
+
+
+这集意外的还不错，q娃三连逼问那里很搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+新闻男是个好伙子，挺有礼貌，还带点文艺青年的味。不知道是不是出于逆反心理，更想看佳佳跟新闻男凑一对<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+打戏就那样了，日常不能有所期待
+
+知优靠友（爱）情的力量超越了极限，然后下一集就萎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1563#       发表于 2020-3-15 16:54
+
+
+
+
+ちゆ怎么和隔壁不破一样
+
+笑点奇怪的蓝战士
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1564#       发表于 2020-3-15 17:35
+
+
+
+
+三人关系真好，眼镜小哥最后发现了真相，雨天看你，浪漫的友谊
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 1565#       发表于 2020-3-15 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">点进来看q娃专楼，论坛里怎么一堆乱七八糟的帖子，还以为走错了。
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1566#       发表于 2020-3-15 18:01
+
+
+
+
+说到雨天，我就想起抱Q的名场面了
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 1567#       发表于 2020-3-15 20:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746136&amp;ptid=1860852" target="_blank">灼眼的夏娜酱 发表于 2020-3-15 17:45</a>
+
+点进来看q娃专楼，论坛里怎么一堆乱七八糟的帖子，还以为走错了。</blockquote>
+没得看的那些日子一堆人发病是惯例
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1568#       发表于 2020-3-15 20:16
+
+
+
+
+花↗寺↘和↗佳↘
+为什么你一来怪物就出现！
+为什么你总在怪物附近现身！
+知优:不要再说了！
+为什么怪物造成那么大破坏你却一点事没有！
+因为你，有两个很棒的朋友～
+新闻部小哥别是另一个吹奏部小哥啊
+还蛮喜欢这人的，虽然前面的跟踪有点过了，强行整个雨后的蜘蛛网也有点莫名其妙，但还是能称得上本性不坏的
+我还指望他发现三个人是precure这件事呢，暴露了会有什么事我也想看看。
+光美在敌方干部眼皮子底下变身，可见防的不是病幻体，而是普通人
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1569#       发表于 2020-3-15 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747662&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-03-15 20:16:17</a>
+花↗寺↘和↗佳↘
+为什么你一来怪物就出现！
+为什么你总在怪物附近现身！
+知优:不要再说了！
+为什么怪物造 ...</blockquote>反正反派在社会上没有身份，也不懂搞些舆论来干扰q娃的生活。最多跟踪q娃去夜袭人间体或者绑架家人，但是这动画搞这种操作的可能性又小
+这集没点明身份暴露的后果有点失望，明明是整个系列都一直存在且需要好好说明一下的问题
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1570#       发表于 2020-3-15 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747754&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-15 20:23</a>
+反正反派在社会上没有身份，也不懂搞些舆论来干扰q娃的生活。最多跟踪q娃去夜袭人间体或者绑架家人，但是这 ...</blockquote>
+但前代q娃是几百年前的人物了吧，那个时候光之美少女还不当成神仙，圣女来拜。难不成当权者还能把对方亲人绑了来要挟？
+拉比琳它们大概也不懂舆论啥的
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1571#       发表于 2020-3-15 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46747754&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-15 20:23</a>
+
+反正反派在社会上没有身份，也不懂搞些舆论来干扰q娃的生活。最多跟踪q娃去夜袭人间体或者绑架家人，但是这 ...</blockquote>
+实际上很多时候敌方干部是知道Q娃真身的，所以Q娃在亲人朋友同学间身份暴露的意义对敌方而言并不大。
+
+但毕竟是变身系作品特有的爆点，所以要么只暴露给个别角色，要么得等到大后期才完全公开。
+
+
+你看半小时后的假面骑士，暴露身份都不当回事……
+
+
+
+
+
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 1572#       发表于 2020-3-15 21:53
+
+
+
+
+说起来，千优的变身bank，散发穿上白大褂那一帧，我仿佛看见了六花。
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1573#       发表于 2020-3-15 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46748889&amp;ptid=1860852" target="_blank">哒哒哒ver1.01 发表于 2020-3-15 21:53</a>
+
+说起来，千优的变身bank，散发穿上白大褂那一帧，我仿佛看见了六花。</blockquote>
+不止你一个这么看233
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1574#       发表于 2020-3-15 23:04
+
+
+
+
+今年ED舞依旧好看。
+
+
+顺便问一下，是不是因为版权问题，用MMD还原历届ED舞的这类视频好像很少见到。我记得ED舞本身还有单独的教学资源的，应该不是参考资料缺乏导致的吧。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1575#       发表于 2020-3-15 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46748889&amp;ptid=1860852" target="_blank">哒哒哒ver1.01 发表于 2020-3-15 21:53</a>
+
+说起来，千优的变身bank，散发穿上白大褂那一帧，我仿佛看见了六花。</blockquote>
+蓝主从医的实在太多，你看到了六花，我可以说看到了纱绫或香恋会长。
+
+
+
+
+
+
+
+-----
+
+####  宅音  
+##### 1576#       发表于 2020-3-16 00:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我真的好喜欢ed，好可爱
+
+
+
+
+
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 1577#       发表于 2020-3-16 08:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46750315&amp;ptid=1860852" target="_blank">mchan 发表于 2020-3-15 23:59</a>
+
+蓝主从医的实在太多，你看到了六花，我可以说看到了纱绫或香恋会长。</blockquote>
+主要六花X纱绫的那个本子印象有点深
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1578#       发表于 2020-3-16 11:40
+
+
+
+
+教主不是一直说那是大众脸女医x纱绫么
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1579#       发表于 2020-3-16 15:15
+
+
+
+
+千优跳高拉仇恨笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1580#       发表于 2020-3-16 21:08
+
+
+
+
+去年的女人的演唱会资源出来了
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 1581#       发表于 2020-3-16 21:20
+
+
+
+
+危险等级直线上升 轻松破跳高纪录
+
+
+
+
+
+
+
+-----
+
+####  孙一般  
+##### 1582#       发表于 2020-3-16 21:49
+
+
+
+
+蓝毛这么快就要吃瘪了么<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16Xs, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1583#       发表于 2020-3-16 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762919&amp;ptid=1860852" target="_blank">孙一般 发表于 2020-3-16 21:49</a>
+
+蓝毛这么快就要吃瘪了么
+
+
+—— 来自 meizu 16Xs, Android 9上的 S1Next-鹅版 v2.2.0.1 ...</blockquote>
+无法跳跃，这剧本前年演过啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1584#       发表于 2020-3-16 22:53
+
+
+
+
+跳不起来是指跳不到之前那个记录的高度吧，然后自暴自弃
+
+这周估计就是得到“友情”的力量重返巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1585#       发表于 2020-3-17 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46757952&amp;ptid=1860852" target="_blank">真红眼教授 发表于 2020-3-16 15:15</a>
+
+千优跳高拉仇恨笑死</blockquote>
+这叫调虎离山。我倒想看看这小妮子到底学了多少兵法。
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1586#       发表于 2020-3-17 18:28
+
+
+
+
+今年没有紫，教主估计不会发病了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1587#       发表于 2020-3-17 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46774898&amp;ptid=1860852" target="_blank">catenary 发表于 2020-3-17 18:28</a>
+
+今年没有紫，教主估计不会发病了
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+追加多半是紫
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1588#       发表于 2020-3-17 20:02
+
+
+
+
+这周刚破纪录，下周就跳不起来了，怕不是比赛当天要新闻部小哥跟和佳演场戏激发一下知优的潜能
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1589#       发表于 2020-3-17 20:05
+
+
+
+<blockquote>風駿 发表于 2020-3-17 18:43
+追加多半是紫</blockquote>
+追加基本确认是紫。玩具已**。
+
+
+
+
+
+
+
+-----
+
+####  好多树  
+##### 1590#       发表于 2020-3-17 21:17
+
+
+
+
+话说，既然是子供向动画，难道不应该传达一下正确应对新闻男这种跟踪狂的方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，从报告学校通报家长到报警，正儿八经的方法总得来一个吧。否则要不是这集他自己醒悟了，那不是还治不了他这种明目张胆的偷拍跟踪行为了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1591#       发表于 2020-3-17 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46776908&amp;ptid=1860852" target="_blank">好多树 发表于 2020-3-17 21:17</a>
+
+话说，既然是子供向动画，难道不应该传达一下正确应对新闻男这种跟踪狂的方法吗，从报告学校通报家 ...</blockquote>
+强行解释就是毕竟我们的三主角心中有鬼(？)不想搞事
+
+
+
+
+
+                                              
