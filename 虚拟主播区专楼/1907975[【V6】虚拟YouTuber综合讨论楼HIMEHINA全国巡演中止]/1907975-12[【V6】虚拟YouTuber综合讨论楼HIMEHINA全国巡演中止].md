@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-17 12:03** 
+> ## **本文件最后更新于2020-03-17 14:03** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_sIiRx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_bT03e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -23954,7 +23954,7 @@ a8暴了300多个staff，holo星捡个尸体就有了嘛
 
 
 
- 本帖最后由 Izuru单推人 于 2020-3-17 12:01 编辑 
+ 本帖最后由 Izuru单推人 于 2020-3-17 12:05 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769242&amp;ptid=1907975" target="_blank">pin_on 发表于 2020-3-17 11:53</a>
 
 在泥潭有众多云p讨论怎么想也不是好事，纯良女粉随手一搜就被吓跑了
@@ -23964,6 +23964,8 @@ a8暴了300多个staff，holo星捡个尸体就有了嘛
 
 
 关于后面，前者我没钱就很伤（不过我倒知道有一位女粉大手子很喜欢画一弦的FA，也在404看见过她），后者......我需要时间，也许我能写出来
+
+最后，我不是gay！！！！！！！（手中的死鱼微微颤抖）<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
 
 
@@ -24000,4 +24002,2194 @@ a8暴了300多个staff，holo星捡个尸体就有了嘛
 
 
 
-      
+
+
+-----
+
+####  kairyuhhah118  
+##### 17804#       发表于 2020-3-17 12:05
+
+
+
+
+还能碰瓷月球，属实好办法
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17805#       发表于 2020-3-17 12:08
+
+
+
+
+白姨现在就是没搞清楚到底怎么引流，感觉她就是无脑高强度带货和联动直播，不好好去准备准备直播内容到时候gachi可就变anti了啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17806#       发表于 2020-3-17 12:10
+
+
+
+<blockquote>tiro_finale 发表于 2020-3-17 11:30
+看不懂，超额累进为什么要避免突破某个关卡</blockquote>
+看隔壁m楼#11718
+
+大概是前1800w是27%
+
+1800w-4000w这部分是40%
+
+4000w之后的部分是45%
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17807#       发表于 2020-3-17 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769553&amp;ptid=1907975" target="_blank">rubinliu 发表于 2020-3-17 12:10</a>
+
+看隔壁m楼#11718
+
+大概是前1800w是27%
+
+1800w-4000w这部分是40%</blockquote>
+这不就是超额累进的计算方式吗，增加收入并不会降低所得的，1900w肯定比1799w税后剩下更多
+
+找各种名目抵扣才是避税，而不是靠减少收入避免某条线吧
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17808#       发表于 2020-3-17 12:27
+
+
+
+
+其实我不是很懂粉丝这种连人家收入，家庭什么都想插一手甚至包办的心理。。收入又不到你手上，斗虫高兴不就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17809#       发表于 2020-3-17 12:33
+
+
+
+ 本帖最后由 winda 于 2020-3-17 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768921&amp;ptid=1907975" target="_blank">tiro_finale 发表于 2020-3-17 11:30</a>
+
+看不懂，超额累进为什么要避免突破某个关卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">像凛fam这种粉丝群体固定的总打钱量变化不大，想劝诱观众错开交税时间打钱少交税吧
+
+而且又不是人均福报，超额了给政府打白工不爽的大有人在
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 17810#       发表于 2020-3-17 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769331&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 11:59</a>
+
+隔壁杏楼里那个狐狸独角兽我tm看吐了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么了？终于有少主gachi受不了出来造反了？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17811#       发表于 2020-3-17 12:43
+
+
+
+
+说起来，你楼貌似没人讨论这个。
+
+《大型アップデート告知》 
+
+ VR機器がなくてもユメノグラフィアに行ける？！ 
+
+「デスクトップモード」の詳細情報解禁！ 
+
+4月1日リリース予定！お楽しみに！！！
+
+
+
+詳しくはこちらから！
+[https://note.com/yume_note1205/n/nbec7ff29c350](https://note.com/yume_note1205/n/nbec7ff29c350)
+
+
+
+简单地说就是ickr的VR陪酒正式抛弃了VR限定的条件，推出桌面版，以后也将推出手机版。
+
+桌面版只能调节自己avatar的表情而无法做出动作，但还是可以与cast一对一聊天。
+
+降低了技术门槛，也不知道能对这个企划产生多少助益。
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17812#       发表于 2020-3-17 12:54
+
+
+
+
+狐皇明明自己是个腐女，却不知道把自己的经验用上<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  是个腐女都看得出来她这么给木口星引流两边不讨好好吗
+
+
+还是说她宅的经验远大于腐的经验以至于下意识用了错误的路线呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17813#       发表于 2020-3-17 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769981&amp;ptid=1907975" target="_blank">stageKK 发表于 2020-3-17 12:42</a>
+
+怎么了？终于有少主gachi受不了出来造反了？</blockquote>
+NGA那位没造反，只是有点儿打碎了牙往肚子里咽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">何苦呢
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 17814#       发表于 2020-3-17 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770131&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-17 12:54</a>
+
+NGA那位没造反，只是有点儿打碎了牙往肚子里咽何苦呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为跳出来要清君侧呢
+
+
+老哥指个路？
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17815#       发表于 2020-3-17 13:01
+
+
+
+
+连狐狸本质都不理解也能叫狐狸gachi？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本部员就是喜欢看狐狸奋斗的样子，哪怕撞墙也很有趣
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17816#       发表于 2020-3-17 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770162&amp;ptid=1907975" target="_blank">stageKK 发表于 2020-3-17 12:57</a>
+
+我还以为跳出来要清君侧呢
+
+
+老哥指个路？</blockquote>
+那人编辑了
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 17817#       发表于 2020-3-17 13:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770224&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 13:01</a>
+
+那人编辑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那可惜了，又错过一场好戏
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17818#       发表于 2020-3-17 13:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770162&amp;ptid=1907975" target="_blank">stageKK 发表于 2020-3-17 12:57</a>
+
+我还以为跳出来要清君侧呢
+
+
+老哥指个路？</blockquote>
+他给编辑了，大概就是以前联动还能接受，但这次实在接受不了，但连个404的踩都点不下去，也不敢在推下面议论这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17819#       发表于 2020-3-17 13:04
+
+
+
+
+关于提前交税这个说法
+
+ その年の5月15日現在において確定している前年分の所得金額や税額などを基に計算した金額(予定納税基準額)が15万円以上である場合、その年の所得税及び復興特別所得税の一部をあらかじめ納付するという制度があります。この制度を予定納税といいます。
+
+
+关于税率
+
+所得税の税率は、分離課税に対するものなどを除くと、5％から45％の7段階に区分されています。
+
+ 課税される所得金額(千円未満の端数金額を切り捨てた後の金額です。)に対する所得税の金額は、次の速算表を使用すると簡単に求められます。
+
+所得税の速算表課税される所得金額税率控除額
+195万円以下5％0円
+195万円を超え 330万円以下10％97,500円
+330万円を超え 695万円以下20％427,500円
+695万円を超え 900万円以下23％636,000円
+900万円を超え 1,800万円以下33％1,536,000円
+1,800万円を超え4,000万円以下40％2,796,000円
+4,000万円超45％4,796,000円
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 17820#       发表于 2020-3-17 13:04
+
+
+
+
+一股卑微的气息就迎面扑了过来，何必呢
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17821#       发表于 2020-3-17 13:05
+
+
+
+
+少主啥时候帮holocn引波流啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 17822#       发表于 2020-3-17 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770250&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-17 13:03</a>
+
+他给编辑了，大概就是以前联动还能接受，但这次实在接受不了，但连个404的踩都点不下去，也不敢在推下面 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过于卑微了，惨惨惨，少主害人不浅啊！
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17823#       发表于 2020-3-17 13:05
+
+
+
+
+建议转推大天使<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 让养gachi的大天使早日踹掉杀gachi的狐皇，登上木口王位，证明道路的正确性
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17824#       发表于 2020-3-17 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770287&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-17 13:05</a>
+
+建议转推大天使 让养gachi的大天使早日踹掉杀gachi的狐皇，登上木口王位，证明道路的正确性 ...</blockquote>
+夸不算养gachi的吧
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17825#       发表于 2020-3-17 13:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一转圣天使是不是有车轮子看了
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17826#       发表于 2020-3-17 13:11
+
+
+
+
+天宮こころ夕方まいにち配信ちゅー！《にじさんじ所属》
+
+@amamiya_kokoro
+
+うーーーちょっと体調わるくなってきたのですこしねます　配信は寝起きです　おわすみ
+
+
+ichikara我要杀了你
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17827#       发表于 2020-3-17 13:16
+
+
+
+
+狐就应该拉狼狗组团，难得有几个能沉下心来游玩的同伴。别老跟着三、四期这些人打团，你就不是那边的人。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17828#       发表于 2020-3-17 13:16
+
+
+
+<blockquote>Izuru单推人 发表于 2020-3-17 13:03
+他给编辑了，大概就是以前联动还能接受，但这次实在接受不了，但连个404的踩都点不下去，也不敢在推下面 ...</blockquote>
+少主又在杀gachi了
+
+少主gachi多灾多难，早日转投社恐享受男友待遇，再不济转投希妹帐下也有t台可听
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17829#       发表于 2020-3-17 13:16
+
+
+
+
+看到那张贝叔舞元狐狸的兔女郎图我？？？？？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17830#       发表于 2020-3-17 13:16
+
+
+
+
+大概是养弱智的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17831#       发表于 2020-3-17 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770300&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 13:06</a>
+夸不算养gachi的吧</blockquote>
+Gachi多的就是养gachi，这是字面意思
+养gachi这东西本来就没个定义
+装姨装嫩装疯装傻都能说在养gachi
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17832#       发表于 2020-3-17 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770429&amp;ptid=1907975" target="_blank">framita 发表于 2020-3-17 13:16</a>
+
+Gachi多的就是养gachi，这是字面意思
+
+养gachi这东西本来就没个定义
+
+装姨装嫩装疯装傻都能说在养gachi ...</blockquote>
+夸gachi多是怎么得出来的结论
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17833#       发表于 2020-3-17 13:21
+
+
+
+
+太严格了，gachi吐吐黑泥怎么了！支持<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17834#       发表于 2020-3-17 13:21
+
+
+
+
+能养gachi才是业界标杆啊，剩下的不养都是不想养，不能养，不会养。不会养的最多<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17835#       发表于 2020-3-17 13:22
+
+
+
+
+难不成龙皇也养gachi<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17836#       发表于 2020-3-17 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770471&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 13:19</a>
+
+夸gachi多是怎么得出来的结论</blockquote>
+[https://youtu.be/Sm__TavdiqY?t=2924](https://youtu.be/Sm__TavdiqY?t=2924)
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 17837#       发表于 2020-3-17 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770471&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 13:19</a>
+
+夸gachi多是怎么得出来的结论</blockquote>
+最直观的应该是sc数量吧
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17838#       发表于 2020-3-17 13:24
+
+
+
+
+要啥结论，你看看2000那个-70鹅就是最好的结论<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 17839#       发表于 2020-3-17 13:25
+
+
+
+<blockquote>hahanike 发表于 2020-3-17 13:19
+夸gachi多是怎么得出来的结论</blockquote>
+zqsg自我感动的讨论氛围、庞大的二创数量、拿别家团建的次数、维持高位的营收……
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17840#       发表于 2020-3-17 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770547&amp;ptid=1907975" target="_blank">与天争锋_LZ 发表于 2020-3-17 13:23</a>
+
+最直观的应该是sc数量吧</blockquote>
+夸这个sc数量和同接比，明显不养gachi啊
+
+现在养gachi第一能手不是团长嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17841#       发表于 2020-3-17 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770351&amp;ptid=1907975" target="_blank">qq845629713 发表于 2020-3-17 13:11</a>
+天宮こころ夕方まいにち配信ちゅー！《にじさんじ所属》
+
+@amamiya_kokoro
+
+うーーーちょっと体調わるくなっ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人昨晚玩ark玩到四点，七点还用兔号发推，十点就用天宫号发起床，我都怀疑这人一晚上没睡
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17842#       发表于 2020-3-17 13:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">以2018年时段几个関西弁女性game实况v横向比一下，哪家solo玩得最狠，男性联动最少不是挺明显的么
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17843#       发表于 2020-3-17 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770571&amp;ptid=1907975" target="_blank">ddy2811 发表于 2020-3-17 13:25</a>
+
+zqsg自我感动的讨论氛围、庞大的二创数量、拿别家团建的次数、维持高位的营收…… ...</blockquote>
+你这几点最近星姐都符合啊，难道星姐也养gachi？
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17844#       发表于 2020-3-17 13:28
+
+
+
+
+一 般 开 挂 夏 色 祭
+<img src="http://wx2.sinaimg.cn/mw690/0067Lrddgy1gcwtwr3ibcj30p033c1kx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17845#       发表于 2020-3-17 13:28
+
+
+
+
+养gachi的典型例子是黄兔子、润姨和去年年初的夸吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17846#       发表于 2020-3-17 13:28
+
+
+
+
+gachi第一的不是粽子和江皇么，看的是人均付费量和会员数量啊，哦对还有个花妖精，这个好像是真人均石油佬，几百同接几百万的sc<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17847#       发表于 2020-3-17 13:28
+
+
+
+
+夸的gachi多的表现再补一条：<strong>明面</strong>上stars的anti最多的女团成员
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17848#       发表于 2020-3-17 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770571&amp;ptid=1907975" target="_blank">ddy2811 发表于 2020-3-17 13:25</a>
+
+zqsg自我感动的讨论氛围、庞大的二创数量、拿别家团建的次数、维持高位的营收…… ...</blockquote>
+扯开这些
+
+养gachi强不强看吸血能力不就得了
+
+大亏明显V圈天花板，养gachi被吹上天的黄兔子、mea这些照吸不误<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17849#       发表于 2020-3-17 13:30
+
+
+
+
+按照同接数和sc数比例来说的话现在养gachi顶点是粽子吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17850#       发表于 2020-3-17 13:30
+
+
+
+
+标准都是七嘴八舌的，只有peer review最实在<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+gachi养殖技术我也比较服粽皇
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 17851#       发表于 2020-3-17 13:30
+
+
+
+
+人气高所以显得多吧，下楼买包烟都能碰到十个看大亏的
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 17852#       发表于 2020-3-17 13:31
+
+
+
+
+crew为啥要去关心star？
+直播看不够么？
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17853#       发表于 2020-3-17 13:31
+
+
+
+
+粽子，团长，江哥，三字母这种才叫养gachi吧，如果夸也算养gachi，那gachi的纯度也太低了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17854#       发表于 2020-3-17 13:33
+
+
+
+
+一个大亏gachi在说大亏不养gachi     <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+太急了呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 17855#       发表于 2020-3-17 13:34
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-3-17 14:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770573&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 13:25</a>
+
+夸这个sc数量和同接比，明显不养gachi啊
+
+现在养gachi第一能手不是团长嘛 ...</blockquote>
+去年阿夸sc全V第一，甩开第二葛叶1000w
+
+你跟彩虹那群皇比比同接试试
+
+gachi多和sc多互为充分必要条件
+
+和同接则都不是
+
+你说是，那就是
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000|-2|就你们crew人多？|
+| qq845629713|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 17856#       发表于 2020-3-17 13:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">只要开过会限那就都是养gachi的妖艳贱货.
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17857#       发表于 2020-3-17 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770700&amp;ptid=1907975" target="_blank">Rem-清曲 发表于 2020-3-17 13:33</a>
+
+一个大亏gachi在说大亏不养gachi     
+
+太急了呀</blockquote>
+看到这个头像，你应该知道我是暗黑帖帖人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000|-2|呕|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17858#       发表于 2020-3-17 13:36
+
+
+
+
+好起来了，该定义一下什么行为算养gachi了，按一星到五星分级，谁最装谁最绿茶好吗
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17859#       发表于 2020-3-17 13:36
+
+
+
+
+用“比A····的人多着呢”这种理论辩护，你真的不是大天使反串黑吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17860#       发表于 2020-3-17 13:37
+
+
+
+
+所以又回到斗同接根本上来了，你上万同接打不过两三千同接的收入这虫为何而斗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17861#       发表于 2020-3-17 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 是啊，亏圣不养gachi，粉丝都是攻击欲望极低的乖宝宝呢，
+
+
+忘记上一个被送进去的人和我这负几十鹅了？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 与天争锋_LZ|-1|害以为全是crew扣的呢？|
+| yuezhi|-1|负几十鹅怎么来的你还没点逼数吗.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17862#       发表于 2020-3-17 13:38
+
+
+
+
+星街怎么不养gachi，星街最大的gachi就是社长夫人。
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17863#       发表于 2020-3-17 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">河豚和独角兽才anti杏星吧，普通人谁有功夫anti杏星啊。大亏强项是装傻充愣。gachi哪来的，夸皇表示不知道。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuezhi| + 1||
+| qq845629713|-1|让你指导下|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17864#       发表于 2020-3-17 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770735&amp;ptid=1907975" target="_blank">hahanike 发表于 2020-3-17 13:35</a>
+
+看到这个头像，你应该知道我是暗黑帖帖人</blockquote>
+你是光明贴贴人   <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 17865#       发表于 2020-3-17 13:38
+
+
+
+
+为什么被全肯定猩猩包围，还开会限，昨晚新衣装还“mua”来“mua”去的西西小姐sc那么低😭
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17866#       发表于 2020-3-17 13:39
+
+
+
+
+话说我问一下最近老师的同接怎么这么低，20w订阅这个同接有点离谱了吧，我记得去年不是抽卡直播都还破了虹的同接记录的么，怎么现在这么拉跨了，mrra解散后就这样子了？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17867#       发表于 2020-3-17 13:40
+
+
+
+
+还要考虑可持续发展性的，当年靠一点点同接拿SC第一的兔子，后来搞成直播间全绿名、一般人都不敢讲话，渐渐收入也下滑了
+
+高同接有高曝光度肯定是有长期好处的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17868#       发表于 2020-3-17 13:40
+
+
+
+ 本帖最后由 QWANG 于 2020-3-17 13:44 编辑 
+
+养gachi的方法很多很杂，比较明显的一种就是和粉丝互动多，粉丝得到的反馈多，加上基本每天都播，增加粉丝粘性的，杏三期生基本都会这个。也有江皇，星圣，夸，龙皇这些不是明显这样的，照样能有一堆gachi。syl，粉丝们其实也挺单纯地，你对我好，我也对你好，就这样。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17869#       发表于 2020-3-17 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770794&amp;ptid=1907975" target="_blank">克罗夏 发表于 2020-3-17 13:38</a>
+
+为什么被全肯定猩猩包围，还开会限，昨晚新衣装还“mua”来“mua”去的西西小姐sc那么低😭 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 因为看彩虹的都是社会底层社畜、学生，
+
+
+看木口的都是多金富豪、企业高管呢，粉丝构成不一样
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17870#       发表于 2020-3-17 13:42
+
+
+
+
+不是因为🌈粉的钱都去买音声和工商周边之类的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sc抽成多啊
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17871#       发表于 2020-3-17 13:44
+
+
+
+
+同样是ark打boss，龙皇能收30w，葵宝只能收8000，问题出在哪不用多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17872#       发表于 2020-3-17 13:45
+
+
+
+
+又要开始虹杏信者大战了吗，我觉得pro老哥提出的养gachi分级不错，有没有谁来给个定义咋样才是五星？养gachi养到gachi都不觉得她在养gachi就被脑控了？
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17873#       发表于 2020-3-17 13:45
+
+
+
+
+夸这个同接真的很高了
+
+你说夸的gachi数量比兔头之类的高这我承认，但你说夸刻意养gachi我只能觉得你可能智商不够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+以前暗黑夸楼的时候不都黑事业心重嘛，这我还是承认的
+
+
+
+
+
+
+QQ截图20200317134224.jpg
+(86.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 13:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/134330tub60z0kkp9v51ou.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000|-2|好厉害，好佩服哦，数据真好，加油！.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17874#       发表于 2020-3-17 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770803&amp;ptid=1907975" target="_blank">Suny08 发表于 2020-3-17 13:39</a>
+话说我问一下最近老师的同接怎么这么低，20w订阅这个同接有点离谱了吧，我记得去年不是抽卡直播都还破了虹 ...</blockquote>
+本来她单人直播玩游戏就挺虚无的，和别人配合更有节目效果。再加上这人就算**不播也有一坨一坨的会限和twicast突击直播，gachi没必要蹲她游戏直播，蹲她twicast还更有意思点，有时会限twicast还会黑屁ickr呢。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17875#       发表于 2020-3-17 13:46
+
+
+
+
+还在拿周边、音声说事啊
+
+虹杏nico的付费live观看人数可差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总之就是去年年末在杏那边天降了一批大方的金主，而且基本只给杏打钱
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 17876#       发表于 2020-3-17 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17877#       发表于 2020-3-17 13:46
+
+
+
+
+我被花芽姐那忧郁的眼神，清澈的声音和优秀的技术给脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17878#       发表于 2020-3-17 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是holo抱团成箱的優しい世界幻想啊
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17879#       发表于 2020-3-17 13:47
+
+
+
+
+你虹乱搞男女关系为什么要打钱？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17880#       发表于 2020-3-17 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770803&amp;ptid=1907975" target="_blank">Suny08 发表于 2020-3-17 13:39</a>
+话说我问一下最近老师的同接怎么这么低，20w订阅这个同接有点离谱了吧，我记得去年不是抽卡直播都还破了虹 ...</blockquote>
+老师的直播比较分散，深夜tc啥的
+打游戏她也并不是演的比较有节目效果得人
+Tc瞎聊天更有趣些
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17881#       发表于 2020-3-17 13:48
+
+
+
+
+狐皇是杀gachi的典型，你拿狐皇的反面就知道啥是养gachi了阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+表现得有能力——装傻白甜
+
+给男人引流——不和男人联动
+
+很少暴露脆弱的一面——经常吃瘪，显得自己弱小无助
+
+不在意粉丝想法——在意粉丝想法、搞粉丝推荐的游戏/企划
+
+不ghs——ghs
+
+不表现对粉丝的感情——表现对粉丝的爱意
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17882#       发表于 2020-3-17 13:48
+
+
+
+
+楼主能否分析一下彩菜姐姐为何gachi如此之多，就像上边讲的，高频率互动是一个gachi的重要来源。
+
+彩菜姐姐作为一周直播一次的视频歌势gachi居然这么多，视频势里毫无疑问的第一，杏里应该也是排前几位的，请买了彩菜姐姐的写真集的楼主为我们讲解一番。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17883#       发表于 2020-3-17 13:50
+
+
+
+
+今年年末阿B肯定还要搞bls的，到时候让你们知道夸家军的威力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17884#       发表于 2020-3-17 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看看同是関西弁实况者的关西3jk不注意调教gachi惨成啥样了，大亏自然要玩玩社恐sololive梗强化大亏only人了
+
+
+
+
+
+
+
+-----
+
+####  cIrcler  
+##### 17885#       发表于 2020-3-17 13:50
+
+
+
+
+养gachiu养到gachi自己都不觉得自己被gachi都出来了，玩黑暗兵法呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议这一等级的别称为养gachi，直接叫打思想钢印
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17886#       发表于 2020-3-17 13:51
+
+
+
+
+还年末呢，业界就剩半年
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17887#       发表于 2020-3-17 13:51
+
+
+
+ 本帖最后由 ひびき 于 2020-3-17 13:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770943&amp;ptid=1907975" target="_blank">free 发表于 2020-3-17 13:48</a>
+
+楼主能否分析一下彩菜姐姐为何gachi如此之多，就像上边讲的，高频率互动是一个gachi的重要来源。
+
+彩菜姐姐 ...</blockquote>
+你看下我上面写的，养gachi很重要一点是示弱、装傻白甜，彩菜姐姐rp的大家都觉得她真是素人JK，这就是养gachi的高端
+
+
+连free也说彩菜姐姐又傻又菜，说明free也被彩菜姐姐脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然这只适用于女主播养男gachi，因为男人反感女人比自己强的是绝大多数
+
+
+而男的养女gachi则又分化成示弱装小白甜养妈妈粉，自我价值展示、霸道总裁风格养乙女粉、cp营业养腐女粉三种了
+
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17888#       发表于 2020-3-17 13:53
+
+
+
+
+大亏这叫王道征途，建立宗教信仰。
+
+mea那种才叫黑暗兵法，不成功，便成仁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17889#       发表于 2020-3-17 13:53
+
+
+
+
+别的不说，ghs能养gachi吗。<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 17890#       发表于 2020-3-17 13:54
+
+
+
+
+holo里面又傻又菜的最近算是看出来了，就巧可一个<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17891#       发表于 2020-3-17 13:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 来啊，继续扣啊，crew被脑控都不自知，到这程度也是没谁了，
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17892#       发表于 2020-3-17 13:54
+
+
+
+
+不愧是杏的开国元老，空妈，永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17893#       发表于 2020-3-17 13:54
+
+
+
+
+不愧是杏的开国元老，空妈，永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17894#       发表于 2020-3-17 13:54
+
+
+
+
+不愧是杏的开国元老，空妈，永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17895#       发表于 2020-3-17 13:54
+
+
+
+
+三字母凌晨还在喷石楼佬为啥只上提督不上总督呢，石油佬还给她道歉，这才叫养gachi吧
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17896#       发表于 2020-3-17 13:54
+
+
+
+
+Ghs养不养gachi看看dwu和巧可她们gachi多不多啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17897#       发表于 2020-3-17 13:55
+
+
+
+
+你楼真的是随便聊聊就一堆把自己绕进去的
+
+楼里往常车轱辘的养噶吃，比如日南，独食余这种，给核心粉大量回馈而对路人不那么上心的，是养噶吃的运营路线，这种路线发展的好，就是粽子和江皇，但是这里说的养噶吃是想办法提高噶吃浓度和噶吃氪力，和噶吃的绝对值数量没有什么关系。上面说到的花妖精那一点点人算养噶吃，王侯万千红地毯也算养噶吃。
+
+而凛子现在这种高同接多联动无热度不蹭的显然不是养噶吃的运营路线。但是crew实在是太多，导致即便噶吃浓度比较正常也会有不少噶吃，这不过是大量路人粉带来的副产品，并不能算是运营路线的本意。
+
+大亏早期绝对是有过一段时间的养噶吃保底的时期的，但是她灵敏的热度嗅觉让她不断地找到助她加速的人和事，满满的她就不那么需要噶吃了。而如今，和白姨一样，她主要靠路人和话题度的运营路线已经和噶吃冲突了，这时候无论是cp厨，独角兽还是业绩型云p都会阻碍她用一些惯常的套路复制路线成功，所以大天使其实并不特别在乎噶吃的数量，甚至大亏现在有意去打压成气候容易促成粉丝议价权的噶吃我也不会奇怪。
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17898#       发表于 2020-3-17 13:55
+
+
+
+
+女性装蠢装无知本身就是吸引男性保护欲的常见手法
+
+反过来表现得太过聪明和机灵对人气没多大帮助
+
+
+业界最不养gachi的是兔头吧 连SC互动都很少管的
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17899#       发表于 2020-3-17 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46771019&amp;ptid=1907975" target="_blank">激光2000 发表于 2020-3-17 13:54</a>
+来啊，继续扣啊，crew被脑控都不自知，到这程度也是没谁了，</blockquote>
+好歹用另外那个号来说呀
+至少得保住这个号
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17900#       发表于 2020-3-17 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">空妈转live重心A酱炎上前直播频率比现在高，另外天天忆往昔峥嵘，13骑士梗，整整emoi场景的手法，还真有点现在星街粉回忆innk艰苦时代的味道
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17901#       发表于 2020-3-17 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer"> 你亏圣买个ps4还要和家里要钱呢，打给她的钱本人完全收不到呢，也就crew会被这种洗脑洗到吧，
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17902#       发表于 2020-3-17 13:56
+
+
+
+
+杏那么多吹天道勤酬的咋就没人吹到巧可身上
+
+明明与巧可比杏大部分都算懒鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17903#       发表于 2020-3-17 13:57
+
+
+
+ 本帖最后由 free 于 2020-3-17 13:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770987&amp;ptid=1907975" target="_blank">ひびき 发表于 2020-3-17 13:51</a>
+
+你看下我上面写的，养gachi很重要一点是示弱、装傻白甜，彩菜姐姐rp的大家都觉得她真是素人JK，这就是养g ...</blockquote>
+彩菜姐姐我感觉还真没有啥刻意装傻的RP，说菜也是和自家学姐比起来菜，再说一个歌系也不可能故意去演唱的菜吧......而且不读SC不搞突击耐久一周就播一次，到底哪跑出来这么多gachi<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+而且关键是现在这个JK的RP已经穿了呀，全世界都知道你是脸很圆的不人气声优了，怎么gachi还没跑光。
+
+
+
+
+
+
+
+-----
+
+####  冰寒之月  
+##### 17904#       发表于 2020-3-17 13:57
+
+
+
+
+看来大亏哥才是养gachi的最高境界 被脑控了还不自知
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17905#       发表于 2020-3-17 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46771053&amp;ptid=1907975" target="_blank">the_cook 发表于 2020-3-17 13:56</a>
+杏那么多吹天道勤酬的咋就没人吹到巧可身上
+
+明明与巧可比杏大部分都算懒鬼 ...</blockquote>
+没人气的人不值得吹呀<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">社会就是这么残酷
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17906#       发表于 2020-3-17 13:57
+
+
+
+
+现在彩菜姐姐的SC都快木口最底层了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+-----------------------------------------------
+
+看了下hiyoko郡道的SC人数意外的还挺行的
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17907#       发表于 2020-3-17 13:58
+
+
+
+
+原来作文哥也是被大天使脑控了还不自知的gachi，我真是看错你了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 17908#       发表于 2020-3-17 13:59
+
+
+
+ 本帖最后由 cckuku 于 2020-3-17 14:00 编辑 
+
+底边哪算人阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+噢，还有个成濑鸣，我TM都把这人忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17909#       发表于 2020-3-17 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46771067&amp;ptid=1907975" target="_blank">バーチャルS1er 发表于 2020-3-17 13:57</a>
+现在彩菜姐姐的SC都快木口最底层了
+
+-----------------------------------------------
+
+看了下hiyoko ...</blockquote>
+所以说你们别只看sc啊，空妈粉（像楼主这样的）去买空妈的专辑，写真集，不香吗？为什么非要去打sc<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sedumaizoonl  
+##### 17910#       发表于 2020-3-17 14:01
+
+
+
+
+作文哥的理论就是大天使养gachi搏出位，出位之后就卸磨杀驴了，到时候crew就要被自家主子宰了，太惨了我都要同情一下了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">装傻营业调戏男性，想不到大天使如此心机
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17911#       发表于 2020-3-17 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770943&amp;ptid=1907975" target="_blank">free 发表于 2020-3-17 13:48</a>
+
+楼主能否分析一下彩菜姐姐为何gachi如此之多，就像上边讲的，高频率互动是一个gachi的重要来源。
+
+彩菜姐姐 ...</blockquote>
+空妈在17组为代表的那些视频势里面，gachi算是多的，因为她定位是虚拟JK，直播风格也比较贴近观众，频繁回应评论，拉家常什么的
+
+那时候不单是会问观众自己该如何定位，还搞观众写曲她来唱的soraSong，很多梗也是和观众互动搞出来的，养成感很强，所以SC一度很高
+
+她的不专业感随着时间推移，渐渐就成了从青涩走向成熟的成长故事，很适合贩卖梦想和努力的偶像人设
+
+
+但要说她现在gachi依然很多还是算了，同社一堆老司机随便打爆她
+顺便我不是她的gachi
+
+
+
+
+
+
+
+-----
+
+####  fs001  
+##### 17912#       发表于 2020-3-17 14:02
+
+
+
+
+原来楼里除2000哥外，都是夸噶吃。还没人认知到自己是夸噶吃的都是被脑控所以不自知，啊，啊，啊，啊。我原来是大天使噶吃啊。谢谢2000哥点醒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 17913#       发表于 2020-3-17 14:02
+
+
+
+
+众所周知，在中国，三酱属于木口<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+[https://weibo.com/5633320273/IyLAPr50F](https://weibo.com/5633320273/IyLAPr50F)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17914#       发表于 2020-3-17 14:02
+
+
+
+
+养gachi和运营水平太菜被gachi绑架是两码事啊
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 17915#       发表于 2020-3-17 14:02
+
+
+
+
+成濑鸣我只记得玲毕业的时候葛叶和刀也玩他的梗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17916#       发表于 2020-3-17 14:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你需要剪断与crew的连接
+
+
+
+
+
+  
