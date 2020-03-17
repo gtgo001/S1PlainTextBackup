@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 04:03** 
+> ## **本文件最后更新于2020-03-17 18:03** 
 
 
 
@@ -22992,4 +22992,592 @@ wt最喜欢丑男了
 
 
 
-           
+
+
+-----
+
+####  luoyianwu  
+##### 52144#       发表于 2020-3-16 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751972&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-16 02:41</a>
+在想等凯多被打败的时候会不会有这个场景
+
+
+路飞在欢呼，远处站着罗和基德</blockquote>
+不行，太low了
+高中不良学生等级的
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52145#       发表于 2020-3-16 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751889&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-16 02:30</a>
+
+还有一个尾田在sbs里画的60岁娜美</blockquote>
+两个世界线的还不一样。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52146#       发表于 2020-3-16 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46751899&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-16 02:31</a>
+
+看起来是私刑不是连坐</blockquote>
+所以光是改革法律是没用的，必须开国，这里总觉得尾田有点批判村八分的意味在了。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52147#       发表于 2020-3-16 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753220&amp;ptid=98922" target="_blank">luoyianwu 发表于 2020-3-16 09:09</a>
+
+不行，太low了
+
+高中不良学生等级的</blockquote>
+因为最后路飞把明哥打败罗在远远地看着想着科拉松说的话时，我有一种感觉，当时罗已经接受了“这部漫画的主角不是我”的现实
+
+
+不知道基德会不会有类似的场面
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52148#       发表于 2020-3-16 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46753559&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-16 09:42</a>
+
+两个世界线的还不一样。</blockquote>
+说起来鹤中将虽然肯定不是美女但感觉也不是丑
+
+
+和医娘差不多的感觉
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52149#       发表于 2020-3-16 11:24
+
+
+
+<blockquote>灰狼 发表于 2020-3-16 10:42
+说起来鹤中将虽然肯定不是美女但感觉也不是丑
+
+
+和医娘差不多的感觉</blockquote>
+我个人觉得鹤中将就是那种很有气质的老太太，医娘比较有个性233
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 52150#       发表于 2020-3-16 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可可罗婆婆怎么说 年轻那样貌可不输给乙姬王妃呀
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52151#       发表于 2020-3-17 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761326&amp;ptid=98922" target="_blank">穆 发表于 2020-3-16 19:44</a>
+
+可可罗婆婆怎么说 年轻那样貌可不输给乙姬王妃呀</blockquote>
+可可罗婆婆不就是那种海贼王里典型的年轻时候面容姣好年纪大了成丑八怪的女性么。。
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 52152#       发表于 2020-3-17 01:55
+
+
+
+ 本帖最后由 发财就手 于 2020-3-17 01:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46737613&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-3-14 22:55</a>
+
+勘十郎和大蛇的共同点都是被连坐制度害的，所以和之国的结局应该是桃之助即位打开国门并废除了连坐等旧时代 ...</blockquote>
+勘十郎和大蛇被放逐后成为封面连载的一员么，不过黑炭家谋反的事与到底与洛克斯海贼团甚至与金狮子有没联系，那个教唆的老太婆身份的坑还没填
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 52153#       发表于 2020-3-17 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46725809&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2020-3-13 22:53</a>
+
+凯多虽然是旱鸭子，但是应该淹不死，因为果实原因应该能水下呼吸</blockquote>
+凯多的种族原因更有可能吧，很久以前就有鱼人要是吃了恶魔果实再掉进海里会如何的猜想，全身无力动弹不得只能慢慢饿死的可能性
+
+
+
+
+
+
+
+-----
+
+####  米萨卡酱  
+##### 52154#       发表于 2020-3-17 04:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765584&amp;ptid=98922" target="_blank">发财就手 发表于 2020-3-17 02:01</a>
+凯多的种族原因更有可能吧，很久以前就有鱼人要是吃了恶魔果实再掉进海里会如何的猜想，全身无力动弹不得 ...</blockquote>
+鱼人吃了果实不会淹死但是不能动 之前杰克被象主打爆在海底呆了三天
+
+
+
+
+
+
+
+-----
+
+####  晚韶华  
+##### 52155#       发表于 2020-3-17 06:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/065604mju4xvjyjxtto54r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>c6d2-hyzpvir4765290.jpg</strong> (837.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-17 06:56 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后知后觉，本以为路飞相比大妈和凯多就差个两三米，没想到就是个D中之D，四档打在凯多身上等于挠痒痒完全合情合理嘛，问题是接下去怎么画？
+
+
+
+
+
+
+
+-----
+
+####  solora  
+##### 52156#       发表于 2020-3-17 09:01
+
+
+
+
+明哥和海军主力们都比红发、主角们高一倍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52157#       发表于 2020-3-17 11:42
+
+
+
+
+卡普 287cm 
+
+龙 256cm
+
+路飞 174cm 
+
+一代比一代矮啊
+
+
+
+
+
+
+
+-----
+
+####  Acatv  
+##### 52158#       发表于 2020-3-17 11:45
+
+
+
+
+白胡子7米，罗杰多高啊？我一直以为罗杰是正常身材<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52159#       发表于 2020-3-17 11:46
+
+
+
+
+尾田說過會保持路飛的少年感，所以身高也是強行控制了吧。
+硬要解釋的話，少年漫畫主角一定會有一方面繼承母親，我看路飛繼承的就是身高。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52160#       发表于 2020-3-17 11:52
+
+
+
+
+重新把和之国看了一遍，有几点疑问耿耿于怀：
+
+1. 罗当初同盟的计划是借凯多之手灭掉明哥，现在到和之国干凯多是因为作为海贼的野心？
+
+2. 萨博应该是死了吧……出事之前要拿命去救大熊，出事之后革命军脸色大变，达坦在老家爆哭。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52161#       发表于 2020-3-17 12:24
+
+
+
+
+和之国大战的战力对比，我凭记忆列举一下，不足的地方大家帮忙看看。
+
+
+主要战场
+
+【四个超新星】【赤鞘三剑客】 VS 【大妈】【凯多】【三灾】
+
+路飞+索隆+基德+基拉+阿修罗童子+河松+传次郎 
+
+7 V 5
+
+
+其他战场：
+
+【荞麦假面&amp;其他团员（含甚平）皮毛族+赤鞘其他人+罗】 VS 【凯多团（不含德雷克）+ 大妈团（斯慕吉 欧文 大福 ）】
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52162#       发表于 2020-3-17 12:30
+
+
+
+
+路飞+基德 VS 凯多 （类似打明哥）
+
+索隆+基拉 VS 大妈 （都是用刀剑）
+
+
+三剑客 VS 三灾
+
+
+人数刚刚好
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 52163#       发表于 2020-3-17 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46766294&amp;ptid=98922" target="_blank">晚韶华 发表于 2020-3-17 06:57</a>
+
+后知后觉，本以为路飞相比大妈和凯多就差个两三米，没想到就是个D中之D，四档打在凯多身上等于挠痒 ...</blockquote>
+第一排娜美右边那个女生是谁？
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52164#       发表于 2020-3-17 12:40
+
+
+
+
+萨博不可能死
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52165#       发表于 2020-3-17 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769928&amp;ptid=98922" target="_blank">powerpyc 发表于 2020-3-17 12:38</a>
+第一排娜美右边那个女生是谁？</blockquote>
+波妮，大胃女
+
+
+
+
+
+
+
+-----
+
+####  晚韶华  
+##### 52166#       发表于 2020-3-17 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769928&amp;ptid=98922" target="_blank">powerpyc 发表于 2020-3-17 12:38</a>
+
+第一排娜美右边那个女生是谁？</blockquote>
+乔艾莉·波妮
+
+
+
+
+
+
+
+-----
+
+####  云闻先  
+##### 52167#       发表于 2020-3-17 12:45
+
+
+
+<blockquote>天宮奏 发表于 2020-3-17 11:46
+尾田說過會保持路飛的少年感，所以身高也是強行控制了吧。
+
+硬要解釋的話，少年漫畫主角一定會有一方面繼承 ...</blockquote>
+我觉得路飞继承母亲的是外貌。毕竟路飞和龙在长相委实没有相似之处。既然孩子不像爹，那打圆场的话自然说像妈了。
+
+至于身高，op里的人类的随成长真的特别神奇。卡普老爷子种性坚韧，相信路飞未来也能虎背熊腰。
+
+
+
+
+
+
+
+-----
+
+####  云闻先  
+##### 52168#       发表于 2020-3-17 12:50
+
+
+
+ 本帖最后由 云闻先 于 2020-3-17 12:56 编辑 
+
+身高对比图越看越草。气势真的能弥补身高的差距吗?还是说尾田神奇的比例模糊了残酷的对比?另外，【四皇比大将强】的第一印象恐怕就是建立于这巨大的体格差上。四皇站在那里仿佛吉翁ACE开着MA杀过来了，还能怎么办嘛!
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 52169#       发表于 2020-3-17 12:51
+
+
+
+
+红发吃了出场早的亏，跟其他几个四皇完全不在一个量级
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52170#       发表于 2020-3-17 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">高矮无所谓吧
+
+没到巨人种族这个级别就没见影响战力过
+
+巨人还基本是负责挨打的
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52171#       发表于 2020-3-17 16:51
+
+
+
+ 本帖最后由 7七麦 于 2020-3-17 17:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769225&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-17 11:52</a>
+重新把和之国看了一遍，有几点疑问耿耿于怀：
+
+1. 罗当初同盟的计划是借凯多之手灭掉明哥，现在到和之国干凯 ...</blockquote>
+一开始计划就是干掉凯多，毁掉sad，或让凯多揍明哥，造成混乱，或强逼明哥退出七武海，招来大将，罗路同盟坐收渔翁之利
+只不过没想到明哥是前天龙人，能威胁世界zf，大妈也来抢凯撒，船没了，大将也来了，再加罗的私心和路飞一伙正直就打了
+之后同盟都组好了，凯撒也抢了，随时可能打起来，这就是索隆说的时间很紧迫
+萨博不可能死啊，尾田说了一句今年薇薇女帝萨博会很惨，这就说明没死，只是很惨，可能也被改造了？
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52172#       发表于 2020-3-17 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46773471&amp;ptid=98922" target="_blank">7七麦 发表于 2020-3-17 16:51</a>
+
+一开始计划就是干掉凯多，毁掉sad，让凯多揍明哥，造成混乱，强逼明哥退出七武海，招来大将，罗路同盟坐 ...</blockquote>
+萨博应该就是诈死吧，这么看海军本部还有GM军的卧底的传闻是真的了。
+
+要是真死了或者被抓，这烧烧果实简直全作第一debuff了。
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52173#       发表于 2020-3-17 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769225&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-17 11:52</a>
+重新把和之国看了一遍，有几点疑问耿耿于怀：
+
+1. 罗当初同盟的计划是借凯多之手灭掉明哥，现在到和之国干凯 ...</blockquote>
+一开始在毒气岛的时候不就说要干扒一个四皇么
+
+
+
+
+
+          
