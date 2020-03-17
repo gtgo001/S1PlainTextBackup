@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-17 02:03** 
+> ## **本文件最后更新于2020-03-17 10:04** 
 
 
 
@@ -231,7 +231,7 @@ yysy，めありー唱歌确实好听，听了两天了，感谢坛友
 
 
 
-<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_uf1YV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ETEci2AU8AEwKPH?format=jpg&amp;name=large" id="aimg_ofSiY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15569,10 +15569,11 @@ syl：5点阿床歌回，可以来听听
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 嵐ステリ|-2|用小号给自己加鹅，太low了|
 | qq845629713| + 1||
 
 
@@ -17472,10 +17473,11 @@ ReVdol歌姬的新六人团曲『World of the happiness!』MV日文版发布了�
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 嵐ステリ| + 1|我就喜欢爱马仕风格口水偶像歌.|
 | 昨夜雨| + 1|好评加鹅|
 | YODOboi| + 1|祝顺利|
 
@@ -22301,4 +22303,693 @@ QQ图片20200317014005.png
 
 
 
-         
+
+
+-----
+
+####  IDIDIDID  
+##### 17711#       发表于 2020-3-17 02:05
+
+
+
+
+问yagoo租的（
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17712#       发表于 2020-3-17 02:12
+
+
+
+
+租的也太没排面了吧，而且彩虹人3d也不频繁啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17713#       发表于 2020-3-17 02:23
+
+
+
+
+一起来就有二十多页
+
+爬完又多了十页，似乎还经历了一次隔壁入侵，真实够草的。
+
+小肥妹歌力本来就不错，连免费都不怎么黑的那种，不过律可这和声真是听的我整个人都放松了，好文明，真的好文明
+
+syl
+
+说到slee，还是我在你楼第一次和ai老哥达成共识的话题，内容是这沙雕企划无论是偶像侧重还是ytb侧重都biss。日本的姿容自信有别说去拼坂道科举，就是去拼地下偶像争一线被包养的希望那也是足够吃喝不愁的，为什么要到你slee来拼这种既不新也不in更没啥市场盘子的垃圾企划呢？我平时黑屁田角，是建立在田角的目的我还能理解，但是对方法有些微辞的情况之上，而这一次我是真的看不懂。无论是UUMM还是本田翼难道不能打你十个？连下位替代的sr也不是slee能玩得起的啊。
+
+zsyl
+
+口了作为机师水平真的不错，要不是mrra瞎了绝不是现在这样，不过她自己也多多少少有些问题吧。真心希望这次3d配信能好起来
+
+
+
+
+
+
+
+-----
+
+####  Cartesian  
+##### 17714#       发表于 2020-3-17 03:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">就不能是应征彩虹的女粉太多资源过剩，彩虹2d产能不足，田角灵机一动想出这么个供给侧改革，从根本上解决资源配置问题吗？
+
+彩虹女新人拉跨原因找到了，优质偶像人才都被SLEE收割了，今后还会一茬不如一茬，彻底沦为SLEE下水道
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17715#       发表于 2020-3-17 03:33
+
+
+
+
+田角七个逸怎么不去把夜店动物园那两张大小王放出来😯，一张究极加强版飞鸟p一张白金至尊版gibara，隔壁yagoo都馋哭了。
+
+
+
+
+
+
+
+-----
+
+####  anen  
+##### 17716#       发表于 2020-3-17 04:02
+
+
+
+
+小肥妹这歌力还不错？翻唱的《白日》是调音都救不回来的粪作了。律可的部分虽然情绪表达不够饱满但也算是唱功在线 ，肥妹那一坨真是把爷听吐了，Hiphop都只会用自己那一套“迪士尼伪歌剧腔”来嚎，这水平还谈你吗的歌力？
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 17717#       发表于 2020-3-17 04:18
+
+
+
+
+免费不是只黑脸又圆姐姐那种水平的吗，算了祭妹没听过就不云了，继续听我的底边杂鱼唱歌了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 17718#       发表于 2020-3-17 05:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765211&amp;ptid=1907975" target="_blank">stedckk 发表于 2020-3-17 01:12</a>
+
+这两都多久没单独联动了，营业估计都名存实亡了，粽子ark都找不到人带。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这俩都是gachi粉基数大，联动来对自己有什么好处，说不定自己这边gachi还要被吸走
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 17719#       发表于 2020-3-17 05:24
+
+
+
+
+搞slee和ユメノグラフィア这种新活，本质上就是“不满足”于2d直播企划，也是“看不起”nijisanji的形式和上限。
+实际上田角心底明白套皮2d主播集合这种形式是一种“劣化”的，是有“原罪”的。ickr目前搞的nijisanji以外的东西，那就是手痒，就是想干点啥“不一样”的，想显得自己其实很有一点什么想法，是一个不满足于nijisanji的，是配得上エンターテイメント系这个比较大的称呼的。
+七亿得让人看到我好好花了，不但如此，还得干点啥让新的七亿，七十亿投进来啊。的确要干点让潜在金主浮想联翩的事。
+但问题就是，ickr好像想象力却实际上并没那么丰富。新玩意也就“哦，就这样吧。甚至还想起来之前xxx好像也干过类似的。”这样的程度。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17720#       发表于 2020-3-17 06:28
+
+
+
+
+我缓缓打出一个“？”
+
+
+
+
+
+
+1584397620721.png
+(406.58 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 06:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/062757fjn24xoonjf6javw.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 17721#       发表于 2020-3-17 06:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我想起小狐狸和mio互相听情人节语音那次了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17722#       发表于 2020-3-17 06:42
+
+
+
+
+めあり
+
+@memememememe28
+
+今までで歌った中で、
+
+お気に入りな歌はほとんど、私自身が何かで苦しい中で歌ってる記憶があるんだけど、そういう歌でみんなが元気をもらえてるならすごく嬉しいと思うよ。なんかちぐはぐだけど。
+
+
+阿喵喵这意思是说她其实不喜欢唱歌？那怪不得在一直藏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，以后是不是看不到她唱歌了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17723#       发表于 2020-3-17 07:55
+
+
+
+ 本帖最后由 noHentai 于 2020-3-17 07:57 编辑 
+
+田角的意思你们还不明白吗，现在V也没有一个订阅赶得上四天王，SC也是一堆人才打得过一个木口人。但是这些问题在拥有50+银盾后，就都不是很大的问题了。
+真人主播可能赶不上一个加藤纯一，那造10个十分之一加藤纯一不就行了，汤就是这么喝的，田角就是这么想的，当然能不能成那是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17724#       发表于 2020-3-17 08:13
+
+
+
+
+人月神话
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17725#       发表于 2020-3-17 08:31
+
+
+
+
+田角，你这个万恶的资本主义商人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17726#       发表于 2020-3-17 08:39
+
+
+
+
+狐狸是欠yagoo十个亿吗？
+
+而且这怎么引流啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17727#       发表于 2020-3-17 08:59
+
+
+
+
+我们小区隔壁楼有人确诊了......
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 17728#       发表于 2020-3-17 09:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">狐狸这肯定是入股了吧···这用力过猛的感觉
+
+
+
+
+
+
+
+-----
+
+####  香月诗浓  
+##### 17729#       发表于 2020-3-17 09:01
+
+
+
+
+梅露咋回事，回去nico了？虽然理解她播的不多但不带失踪3周只能扔个库存撑场的，实质毕业？
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 17730#       发表于 2020-3-17 09:07
+
+
+
+
+估计在和yagoo谈合同吧，可能yagoo又不想签大合同又不想她毕业
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17731#       发表于 2020-3-17 09:07
+
+
+
+
+狐狸40多万粉怎么不能引流啊，独角兽又少路人粉多当然最适合引流啊，引个10w粉过去不起飞？
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 17732#       发表于 2020-3-17 09:08
+
+
+
+
+想黑屁白姨缺男人 不過算了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17733#       发表于 2020-3-17 09:11
+
+
+
+
+虽然我并不介意狐狸发情可能还会去看个热闹，不过按照隔壁那贴，星星还是要吸引男人才行啊，这个引流也太偏了吧……
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17734#       发表于 2020-3-17 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46766998&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-17 08:59</a>
+
+我们小区隔壁楼有人确诊了......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">保重啊尾巴哥，赶紧回来吧。
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17735#       发表于 2020-3-17 09:15
+
+
+
+
+男v要吸引男粉也不可能靠情人节语音啊
+
+要么游戏打得好，要么能讲相声
+
+这根本思路有问题
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 17736#       发表于 2020-3-17 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46766998&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-17 08:59</a>
+我们小区隔壁楼有人确诊了......</blockquote>
+作文哥坚持住啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  hahanike  
+##### 17737#       发表于 2020-3-17 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46766998&amp;ptid=1907975" target="_blank">UnhappyTails 发表于 2020-3-17 08:59</a>
+
+我们小区隔壁楼有人确诊了......</blockquote>
+我小区1月底就有人确诊，我这两个月大门都不太敢出<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17738#       发表于 2020-3-17 09:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">隔壁彩虹不就有示范，抄作业不是yagoo的专长吗，怎么铁了心要搞男偶像的。
+
+女偶像？搞成功了给了他自信心吗，还是说这个项目是狐狸的心头好。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17739#       发表于 2020-3-17 09:23
+
+
+
+
+估计没什么效果，上次给mio带货是吃的CP党的盘，而且两人互带
+
+现在给整一个大包带货，带不动的吧，你咋不搞个乙女游戏呢
+
+不过看了下星的售价是便宜，500一个，本家白情反串是1000一个，情人节2000一个
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17740#       发表于 2020-3-17 09:27
+
+
+
+
+整点活动经费嘛，你星实质洗钱工具人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17741#       发表于 2020-3-17 09:31
+
+
+
+
+太惨了，看着都伤心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我要是星推哥，第一个就来当白姨黑
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 17742#       发表于 2020-3-17 09:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 一觉醒来，秋秋恶心猴爵私聊我说江皇新3D你怎么看？
+
+
+“一期底边爱丽丝都有双3D,你猴子算个几掰，”
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 17743#       发表于 2020-3-17 09:48
+
+
+
+
+爱丽丝不是二期的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17744#       发表于 2020-3-17 09:48
+
+
+
+
+木口女团观众独角兽比例和彩虹男V综合征比例都很高，早习惯了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17745#       发表于 2020-3-17 09:57
+
+
+
+
+杏星感觉已经好很多了，昨天我看律可唱歌都有300同接了，其实按他的订阅量这同接已经很不错了吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17746#       发表于 2020-3-17 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767557&amp;ptid=1907975" target="_blank">Izuru单推人 发表于 2020-3-17 09:48</a>
+
+木口女团观众独角兽比例和彩虹男V综合征比例都很高，早习惯了</blockquote>
+这和比例没关系，是狐狸不遵循基本的商业逻辑和人性
+
+
+木口星的女粉能接受自己推做一个对别的女人情人节音声发情的直播吗？
+
+反过来也不行
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17747#       发表于 2020-3-17 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46765997&amp;ptid=1907975" target="_blank">anen 发表于 2020-3-17 04:02</a>
+
+小肥妹这歌力还不错？翻唱的《白日》是调音都救不回来的粪作了。律可的部分虽然情绪表达不够饱满但也算是唱 ...</blockquote>
+白日有哪怕一句是hip-hop？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+还是说你hip-hop和rock &amp; roll、J-rock、 mixture rock分不清？
+
+
+哦想起来了你就是上次那个说没有管人敢翻唱飞行艇结果被打脸那位
+
+
+
+
+
+        
