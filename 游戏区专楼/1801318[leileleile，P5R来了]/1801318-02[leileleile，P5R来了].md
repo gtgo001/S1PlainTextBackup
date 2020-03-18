@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-05 11:44** 
+> ## **本文件最后更新于2020-03-18 10:05** 
 
 
 
@@ -17264,4 +17264,304 @@ C難度有三倍傷害，損耗更少，除了容錯率低，反而比Hard模式
 
 
 
-                    
+
+
+-----
+
+####  windlikeman  
+##### 2388#       发表于 2020-3-5 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46620178&amp;ptid=1801318" target="_blank">hateall 发表于 2020-3-5 01:17</a>
+
+皇家版幾個新改動。
+
+慾石、戰鬥後補充子彈、新飾品讓隊友能擁有兩種屬性。
+
+更少的消耗，更簡單的戰鬥，基本 ...</blockquote>
+C难度经验和钱修改过了 本传是极度限制 R版C难度好像和E难度一样是额外经验和钱
+
+本传C难度 我记得卡钱导致买面具很麻烦 而收面具又由于弱点伤害过高 击倒难度很大
+
+
+
+
+
+
+
+-----
+
+####  怀楠凌  
+##### 2389#       发表于 2020-3-5 12:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白金了，抛开本身游戏时长不说是真的好白，本篇难弄的杯全删了，大结局的意思是主人公还在梦里吗？学妹和丸喜的社群剧情还算有趣，个人剧情就太土了
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 2390#       发表于 2020-3-5 22:10
+
+
+
+
+请问进新剧情的coop条件是什么来着，怕剧透不敢翻前面<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在已经打到10月29号了，刚进赌场的迷宫，明智的等级还只有4，丸喜的等级是8，这样还来得及升好感吗？
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  抹茶瓜  
+##### 2391#       发表于 2020-3-5 22:36
+
+
+
+ 本帖最后由 抹茶瓜 于 2020-3-5 22:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46629833&amp;ptid=1801318" target="_blank">Ditfran 发表于 2020-3-5 22:10</a>
+
+请问进新剧情的coop条件是什么来着，怕剧透不敢翻前面现在已经打到10月29号了，刚进赌场的迷宫，明 ...</blockquote>
+11月17日之前把丸喜刷到9就可以 明智可以不用管 他的COOP只涉及到他的三觉和一个结局动画过场 如果要打出来的话 之前要先刷到COOP8 后面自动升级， 学妹要12月22之前刷到5 不刷的话后面新剧情里不能再升剩余的COOP RANK
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ditfran| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  唯一指定用户名  
+##### 2392#       发表于 2020-3-5 23:29
+
+
+
+
+说到吸收还得看百战百胜阿巴顿（
+
+
+<img src="https://img.saraba1st.com/forum/202003/05/232832m4a9avgrppzep9qq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>女神異聞錄５ 皇家版_20200305232524.jpg</strong> (329.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-5 23:28 上传
+
+
+
+
+
+
+
+发现跟这个表情一样<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Synchrolees  
+##### 2393#       发表于 2020-3-9 15:41
+
+
+
+
+P5R数字豪华版里的内容，实体豪华版都有吗？有些纠结是买实体还是数字
+
+—— 来自 Xiaomi Mi MIX 2, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  KOGmk2  
+##### 2394#       发表于 2020-3-9 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46586478&amp;ptid=1801318" target="_blank">唯一指定用户名 发表于 2020-3-2 05:05</a>
+
+大家谨慎凹p吧 刚刚主角才20级只带了大神忘带了蓄力p的情况下竟然单挑了双子 瞬间索然无味
+
+
+当年玩 ...</blockquote>
+凹P牛逼 X
+
+大神牛逼 O
+
+
+伊邪那岐大神就是官方金手指......
+
+
+
+
+
+
+
+-----
+
+####  唯一指定用户名  
+##### 2395#       发表于 2020-3-9 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46670356&amp;ptid=1801318" target="_blank"> KOGmk2 发表于 2020-3-9 16:00</a> 引用:唯一指定用户名 发表于 2020-3-2 05:05 大家谨慎凹p吧 刚刚主角才20级只带了大神忘带了蓄力p的情况下竟然单挑了双子 瞬间索然无味  当年玩 ... 凹P牛逼 X 大神牛逼 O  伊邪那岐大神就是官方金手指......  </blockquote>
+我觉得再凹个易经辉夜之流也差不了多少 毕竟这次人人全99 不用有像之前必须上灼热不然各种miss的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 2396#       发表于 2020-3-10 22:57
+
+
+
+
+P5R里御船千早的CV有换吗？
+
+
+
+
+
+
+
+-----
+
+####  Booorunestud  
+##### 2397#       发表于 2020-3-10 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686486&amp;ptid=1801318" target="_blank">Ditfran 发表于 2020-3-10 22:57</a>
+P5R里御船千早的CV有换吗？</blockquote>
+换了的
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 2398#       发表于 2020-3-10 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46686510&amp;ptid=1801318" target="_blank">Booorunestud 发表于 2020-3-10 23:00</a>
+换了的</blockquote>
+我还特地找了个无印版的听了一下，感觉听不出区别，也有可能是台词太少了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 2399#       发表于 2020-3-10 23:18
+
+
+
+
+刚刚又去找了最后一段仔细听了一下，还是有区别的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Mr_raindrop  
+##### 2400#       发表于 2020-3-18 08:27
+
+
+
+
+终于打完了，除了一些对原版的小修小补外，我个人还是十分不满意的。
+
+一个是原版人物塑造存在的问题基本没有任何改进，怪盗团的伙伴之间的细节也没有任何优化；第二个是新人物芳泽霞、丸喜老师完全立不住，非常生硬，最后一段我差点想跳过。
+
+如果是作为一个DLC，我认为是合格的，但作为全价游戏来卖，我觉得制作组也过于怠惰了，建议怪盗团给和田和久发预告信。
+
+
+
+
+
+
+
+-----
+
+####  Renkonsai  
+##### 2401#       发表于 2020-3-18 08:47
+
+
+
+
+千早换成了照井春佳，永远的妈
+
+
+无DLC打隐藏BOSS的话最难的是暴击阶段，通常打法是上全体暴击，剑舞+跳+Oneshotkill赌每轮暴击，赌不出来重打
+
+大神可以直接几万真言把暴击阶段跳过，这就很无赖了
+
+
+
+
+
+                   
