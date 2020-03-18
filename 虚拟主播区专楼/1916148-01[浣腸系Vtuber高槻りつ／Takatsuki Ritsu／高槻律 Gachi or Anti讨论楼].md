@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-11 14:05** 
+> ## **本文件最后更新于2020-03-19 02:03** 
 
 
 
@@ -2154,4 +2154,539 @@ B站限定 直播中
 
 
 
-                                             
+
+
+-----
+
+####  Sextans  
+##### 122#       发表于 2020-3-13 15:48
+
+
+
+
+高小姐这时间表，b限比404勤快得多
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Nokazusa  
+##### 123#       发表于 2020-3-13 16:23
+
+
+
+
+404都赚不到钱了，自然就没有播的热情了
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 124#       发表于 2020-3-13 16:26
+
+
+
+
+附上高小姐接下来一周的直播安排表，都是日本时间（有5次404限定直播
+<img src="https://p.sda1.dev/0/4e7f65381b7dc742fad85b2381a31a15/c6c02dff9e114d6cd3d27255bf8086a84d5e3cdb.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猎祖猎宗  
+##### 125#       发表于 2020-3-13 16:56
+
+
+
+
+今晚17：00b限<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">高小姐冲冲冲
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 126#       发表于 2020-3-13 17:03
+
+
+
+
+一天两三动？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+不禁感到陌生<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 127#       发表于 2020-3-13 17:12
+
+
+
+
+B站限定 直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 128#         楼主| 发表于 2020-3-14 12:04
+
+
+
+
+高女士接下来高强度B限
+
+以下为日本时间
+<img src="https://space.bilibili.com/6055289/dynamic" id="aimg_mbMfd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 129#         楼主| 发表于 2020-3-14 12:05
+
+
+
+<img src="https://wx2.sinaimg.cn/mw1024/9e7641e2ly1gctbriddx2j216g0u07a7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  摘星者  
+##### 130#       发表于 2020-3-14 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46632390&amp;ptid=1916148" target="_blank">真·螺旋眼 发表于 2020-03-06 06:21:42</a>
+硬说后面几个收益差距不大谁肝点就有变数了
+狗妈上月4小时就10多万额。
+不好说不好说 
+
+—— 来自 OnePlus  ...</blockquote>我一直没明白为啥狗妈能如此凶猛？
+是我们这人傻钱多还是狗妈技术太好？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 131#       发表于 2020-3-14 15:15
+
+
+
+
+B站限定　歌う　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  摘星者  
+##### 132#       发表于 2020-3-15 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46563382&amp;ptid=1916148" target="_blank">lovcavil 发表于 2020-02-29 00:53:56</a>
+https://b23.tv/av92158744
+我也很难判断她b播爆是接受了yyut的建议的结果还是拒绝接受的结果，但单看yyu ...</blockquote>看完了，才明白你的意思。我觉得是后者的可能性更大。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 133#       发表于 2020-3-15 14:22
+
+
+
+ 本帖最后由 普通人止戈 于 2020-3-15 14:30 编辑 
+
+B站限定　料理動画みる配信　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 134#       发表于 2020-3-15 21:41
+
+
+
+
+B站限定　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 135#       发表于 2020-3-16 03:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46731469&amp;ptid=1916148" target="_blank">摘星者 发表于 2020-3-14 13:01</a>
+我一直没明白为啥狗妈能如此凶猛？
+是我们这人傻钱多还是狗妈技术太好？</blockquote>
+这个问题我也不懂 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+有人说是狗妈超美丽3d营业加qq群沙雕图包病毒传播的双重加持的结果  来b也确实早 本人大概也搞不懂为什么能这么火吧 加上做了几个holo人的妈还吸了些holo粉
+兴趣玩玩能这样也是运气成分比较高的了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 136#       发表于 2020-3-16 14:16
+
+
+
+
+B站限定　歌会　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 137#       发表于 2020-3-16 20:21
+
+
+
+
+B站限定　お絵かき　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 138#       发表于 2020-3-17 20:42
+
+
+
+
+B站限定　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 139#       发表于 2020-3-17 22:18
+
+
+
+
+拱火是真的会拱
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/221734af6lcbfbfevsmzl2.png" referrerpolicy="no-referrer">
+
+
+<strong>1634.png</strong> (429.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-17 22:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  蕊本子  
+##### 140#       发表于 2020-3-17 23:32
+
+
+
+
+不是应该叫高太尉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 141#         楼主| 发表于 2020-3-18 00:45
+
+
+
+
+说明还是直球要钱不可取
+
+就跟星姐的一样，打钱的氛围太重要了。
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 142#       发表于 2020-3-18 07:33
+
+
+
+
+直球要钱到没什么，特别是阿律这种脑袋少根筋的，问题是你没有质量产出很败路人缘，又不像mea那样gachi多，现在就是个底边，不努力怎么吸引别人。何况吃跨国饭抽税抽的这么狠，b站收益也没到手，怎么就有种进入舒适区的感觉
+
+
+
+
+
+
+
+-----
+
+####  我单推阿夸  
+##### 143#       发表于 2020-3-18 13:08
+
+
+
+
+阿律好起来了，miu不知道咋样，太摸了啊
+
+
+
+
+
+
+
+-----
+
+####  gatathon  
+##### 144#       发表于 2020-3-18 13:20
+
+
+
+
+等一个高女士在缪面前晒30+万缪发奋图强，高miu永动机
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 145#       发表于 2020-3-18 13:25
+
+
+
+
+永动机还行
+劝得动miu吗
+
+
+
+
+
+
+
+-----
+
+####  demochtholly  
+##### 146#       发表于 2020-3-18 19:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">连续被ban三次，无能狂怒转战B站了
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 147#       发表于 2020-3-18 19:13
+
+
+
+
+B站限定　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 148#       发表于 2020-3-18 21:12
+
+
+
+
+天天诈骗，天天成功。
+
+
+今天高效律头像印刷又骗了一票提督<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  森下未散  
+##### 149#       发表于 2020-3-18 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绝了，这女人脑控也太强了，怎么就两页多的提督了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 150#       发表于 2020-3-18 22:00
+
+
+
+
+阿律又鲨疯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  我单推阿夸  
+##### 151#       发表于 2020-3-19 00:25
+
+
+
+
+阿律狂砍36提督<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            
