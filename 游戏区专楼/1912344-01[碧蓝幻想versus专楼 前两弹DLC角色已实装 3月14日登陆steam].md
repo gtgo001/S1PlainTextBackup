@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 22:03** 
+> ## **本文件最后更新于2020-03-18 14:02** 
 
 
 
@@ -8280,4 +8280,606 @@ dlc两码指的也是手游里的特典，季票一共五个角色，每个角�
 
 
 
-                                  
+
+
+-----
+
+####  nagitoY  
+##### 452#       发表于 2020-3-16 12:33
+
+
+
+
+有人贴个wiki的链接吗？游戏内没法看招式的帧数，只能看有利不利。
+
+
+
+
+
+
+
+-----
+
+####  32767  
+##### 453#       发表于 2020-3-16 13:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756014&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-16 12:33</a>
+有人贴个wiki的链接吗？游戏内没法看招式的帧数，只能看有利不利。</blockquote>
+[https://www.dustloop.com/wiki/index.php?title=GBVS/Frame_Data](https://www.dustloop.com/wiki/index.php?title=GBVS/Frame_Data)
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 454#       发表于 2020-3-16 14:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46756681&amp;ptid=1912344" target="_blank">32767 发表于 2020-3-16 13:31</a>
+
+https://www.dustloop.com/wiki/index.php?title=GBVS/Frame_Data</blockquote>
+谢谢！
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 455#       发表于 2020-3-16 16:01
+
+
+
+
+pc玩家还挺多的啊，不知道rank有没有分地区。
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/155834e4fopyl5zji5cmom.jpg" referrerpolicy="no-referrer">
+
+
+<strong>gbvs001.jpg</strong> (289 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 15:58 上传
+
+
+
+
+
+
+
+
+不过我目前赢了4把，排8000。估计很多人只打了个定级赛就不打了。
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 456#       发表于 2020-3-16 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46758519&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-16 16:01</a>
+pc玩家还挺多的啊，不知道rank有没有分地区。</blockquote>
+pc版人还是少的原因吧
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 457#       发表于 2020-3-16 16:23
+
+
+
+
+pc匹配的信号如何
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 458#       发表于 2020-3-16 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46758829&amp;ptid=1912344" target="_blank">air11974 发表于 2020-3-16 16:23</a>
+
+pc匹配的信号如何</blockquote>
+匹配到人后会显示信号，我只打3格以上的，基本没延迟。
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 459#       发表于 2020-3-16 19:45
+
+
+
+ 本帖最后由 nagitoY 于 2020-3-16 19:46 编辑 
+
+该来的还是来了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/194450qsrm47dxxsxrpe77.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>mao001.jpeg</strong> (1006.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 19:44 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/194516kh5j8xjx284h7lql.png" referrerpolicy="no-referrer">
+
+
+<strong>mao002.png</strong> (634 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 19:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  烟花缭乱  
+##### 460#       发表于 2020-3-16 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">MAO连段练习的最后一个版边带奥义连，按了两个小时就出来一次
+
+是不是基本告别对战了
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 461#       发表于 2020-3-16 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762250&amp;ptid=1912344" target="_blank">烟花缭乱 发表于 2020-3-16 21:04</a>
+
+MAO连段练习的最后一个版边带奥义连，按了两个小时就出来一次
+
+是不是基本告别对战了 ...</blockquote>
+mao不适合新手，连段过于吃手速。mao的最后一个连段我也按不出来。
+
+而且mao现在也不强，操作难度极高，收益又不高，被同类型的夏洛特和兰斯洛特完爆。
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 462#       发表于 2020-3-17 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46762250&amp;ptid=1912344" target="_blank">烟花缭乱 发表于 2020-3-16 21:04</a>
+MAO连段练习的最后一个版边带奥义连，按了两个小时就出来一次
+
+是不是基本告别对战了 ...</blockquote>
+j214搓不出来可以用简易代替，对战考验的还是立回功力
+
+
+
+
+
+
+
+-----
+
+####  naclken.  
+##### 463#       发表于 2020-3-17 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46758519&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-16 16:01</a>
+
+pc玩家还挺多的啊，不知道rank有没有分地区。</blockquote>
+突然想说一句，这游戏没有风灵月影<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  muderx  
+##### 464#       发表于 2020-3-17 10:12
+
+
+
+
+简单的说这游戏好玩吗？
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 465#       发表于 2020-3-17 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767138&amp;ptid=1912344" target="_blank">naclken. 发表于 2020-3-17 09:13</a>
+
+突然想说一句，这游戏没有风灵月影</blockquote>
+那当然有啊，不过联机模式用暴力修改器会直接掉线是常识吧。
+
+
+
+
+
+
+
+-----
+
+####  烟花缭乱  
+##### 466#       发表于 2020-3-17 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767838&amp;ptid=1912344" target="_blank">muderx 发表于 2020-3-17 10:12</a>
+
+简单的说这游戏好玩吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">单机部分乏善可陈，丐版肝报废
+
+对战部分是硬派格斗，我打桩练MAO的入门连段已经手抽抽了
+
+FTG和STG的游戏乐趣类似吧，都是追求一个自我修行，正反馈来得太缓慢了
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 467#       发表于 2020-3-17 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767838&amp;ptid=1912344" target="_blank">muderx 发表于 2020-3-17 10:12</a>
+
+简单的说这游戏好玩吗？</blockquote>
+作为格斗游戏无可挑剔，唯一的缺点是人物不到20个，太少了。不过后续应该还有第二第三季票。
+
+rpg模式我觉得挺无聊的，打了个序章就没打了。
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 468#       发表于 2020-3-17 11:29
+
+
+
+
+第一弹人物没公布全就已经说第二弹制作决定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，据说4月有平衡调整
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 469#       发表于 2020-3-17 11:31
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-17 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767838&amp;ptid=1912344" target="_blank">muderx 发表于 2020-3-17 10:12</a>
+
+简单的说这游戏好玩吗？</blockquote>
+说实话，系统不咋的，cd这个机制和整个游戏节奏都感觉不合适，一种精分的感觉。我觉得这个cd系统他们自己以后的作品也不会用的。
+
+然后这游戏招式大部分都可以无责任摸奖，前后走慢没有欺骗性，中段可打拆投被防又无责任，所以不是那种特别重立回的游戏。
+
+优点是基础操作真的简单，mao这种最难之一的放别的游戏也是简单角色了。
+
+
+
+
+
+
+
+-----
+
+####  dancingmadz  
+##### 470#       发表于 2020-3-17 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767838&amp;ptid=1912344" target="_blank">muderx 发表于 2020-3-17 10:12</a>
+
+简单的说这游戏好玩吗？</blockquote>
+不是骑空士对二次元画风不感冒又想入门FTG的话老老实实选择街霸5，除此之外再考虑这个
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 471#       发表于 2020-3-17 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46768900&amp;ptid=1912344" target="_blank">air11974 发表于 2020-3-17 11:29</a>
+
+第一弹人物没公布全就已经说第二弹制作决定了，据说4月有平衡调整</blockquote>
+mao加强gkd<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 472#       发表于 2020-3-17 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46767838&amp;ptid=1912344" target="_blank">muderx 发表于 2020-3-17 10:12</a>
+简单的说这游戏好玩吗？</blockquote>
+我感觉还行，主要入门简单，不需要很练就能上手。打起来也算舒服，冷却系统也是有独到之处的，不过rpg模式很烂
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 473#       发表于 2020-3-17 15:37
+
+
+
+
+https://b23.tv/av96852495/p1 贴个中文的教学视频
+
+
+
+
+
+
+
+-----
+
+####  Ayre不发糖哟  
+##### 474#       发表于 2020-3-18 03:20
+
+
+
+
+问问潭友，版边近距离c有时打康有时没有康是什么原理。还有我Zeta，c矮子会因为打康与否而接不上22c，其他人物没影响。
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 475#       发表于 2020-3-18 08:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46780223&amp;ptid=1912344" target="_blank">Ayre不发糖哟 发表于 2020-3-18 03:20</a>
+问问潭友，版边近距离c有时打康有时没有康是什么原理。还有我Zeta，c矮子会因为打康与否而接不上22c，其他 ...</blockquote>
+只有对面乱动了才能打康吧，地面连段起手不要22c，版边用236c或者214cc
+
+
+
+
+
+
+
+-----
+
+####  Ayre不发糖哟  
+##### 476#       发表于 2020-3-18 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46781094&amp;ptid=1912344" target="_blank">air11974 发表于 2020-3-18 08:45</a>
+只有对面乱动了才能打康吧，地面连段起手不要22c，版边用236c或者214cc</blockquote>
+版边木桩，没动。练连招后半段，就矮子接不上
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 477#       发表于 2020-3-18 11:32
+
+
+
+
+昨天和群里的大佐打了四五把，输得心服口服。他菲莉的压制是真的强，我除了升龙基本没法出版边，有时还会被骗升龙。
+
+打完后我最大的疑惑是他的等级只有B1。我在大厅里和B级打过，基本都是有来有回。后来问了下才知道他是ps4过来的，ps4段位ss<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 478#       发表于 2020-3-18 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46783262&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-18 11:32</a>
+昨天和群里的大佐打了四五把，输得心服口服。他菲莉的压制是真的强，我除了升龙基本没法出版边，有时还会被 ...</blockquote>
+习惯就好，我街霸和他打0:1000
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 479#       发表于 2020-3-18 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46783262&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-18 11:32</a>
+昨天和群里的大佐打了四五把，输得心服口服。他菲莉的压制是真的强，我除了升龙基本没法出版边，有时还会被 ...</blockquote>
+不过B段不是开了网战就是B起步么，游戏都还没熟呢
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 480#       发表于 2020-3-18 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46784382&amp;ptid=1912344" target="_blank">Bani82 发表于 2020-3-18 12:42</a>
+
+不过B段不是开了网战就是B起步么，游戏都还没熟呢</blockquote>
+oneline模式前面5局人机，后面两局匹配，打完出定级。
+
+既然大佐定级B1，说明7次全胜最高B1了。
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 481#       发表于 2020-3-18 13:23
+
+
+
+
+想问下兰斯洛特的对策。我用的菲莉，他地面突进防御后抢a抢不过他，22c发生快，还是上下择，被压得太难受了。
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 482#       发表于 2020-3-18 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46784889&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-18 13:19</a>
+
+oneline模式前面5局人机，后面两局匹配，打完出定级。
+
+既然大佐定级B1，说明7次全胜最高B1了。 ...</blockquote>
+并不是特别难的事情
+
+
+
+
+
+                                 
