@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-19 20:03** 
+> ## **本文件最后更新于2020-03-19 22:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_T3u2b" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_lJENj" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -11553,4 +11553,474 @@ cuno嘴臭没味了 没了大小写语气怪怪的 总的来说挺好的 比自�
 
 
 
-                               
+
+
+-----
+
+####  时间守护者  
+##### 569#       发表于 2020-3-19 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803639&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-19 19:52</a>
+
+这游戏你就随心所欲啊，你找人帮忙也行，自己放下也行，放着不管也行，总能通关 ...</blockquote>
+放着不管也行么- -，看来是我着相了
+
+
+
+
+
+
+
+-----
+
+####  时间守护者  
+##### 570#       发表于 2020-3-19 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803582&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-19 19:48</a>
+
+肉眼可见速度跌落神坛。
+
+
+真的没必要逼自己打下去的，有个这时间干点啥不好。 ...</blockquote>
+主要问题是意识流对话太多吧，很多对话又没有有效信息包含在里面，很浪费精力，通过鉴定的时候还要来一段不知所云的说明……不过画风还是很不错的。
+
+
+
+
+
+
+
+-----
+
+####  wlyj  
+##### 571#       发表于 2020-3-19 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803349&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-19 19:32</a>
+
+兄啊你是不是看错了，你只有一格士气，但是有三个镁片。所以那里写了个三。
+
+
+  -- 来自 能手机投票的 Stage ...</blockquote>
+对的，我后来才搞明白，是1点精神，只有1点士气。 
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 572#       发表于 2020-3-19 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803811&amp;ptid=1858008" target="_blank">时间守护者 发表于 2020-3-19 20:04</a>
+
+主要问题是意识流对话太多吧，很多对话又没有有效信息包含在里面，很浪费精力，通过鉴定的时候还要来一段 ...</blockquote>
+现在一切意识流对话会在后面串联起来的
+
+all pieces are matter
+
+
+
+
+
+
+
+-----
+
+####  先生空气  
+##### 573#       发表于 2020-3-19 20:07
+
+
+
+
+智力精神点满的我，尸体放不下去，衣服不敢跳，壮汉也不能打，难道只有当种族主义者了
+
+
+
+
+
+
+
+-----
+
+####  时间守护者  
+##### 574#       发表于 2020-3-19 20:07
+
+我
+
+
+ 本帖最后由 时间守护者 于 2020-3-19 20:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803829&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-19 20:06</a>
+
+现在一切意识流对话会在后面串联起来的
+
+all pieces are matter</blockquote>
+包括一开始对门口那个雕塑的一大堆介绍么？
+
+
+还有面对镜子时的那些台词，等等诸多细碎的意识流对话……
+
+
+
+
+
+
+
+
+-----
+
+####  茛菪  
+##### 575#       发表于 2020-3-19 20:11
+
+
+
+
+尸体放着不管的，对得起人民对得起RCM吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 576#       发表于 2020-3-19 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803837&amp;ptid=1858008" target="_blank">时间守护者 发表于 2020-3-19 20:07</a>
+
+包括一开始对门口那个雕塑的一大堆介绍么？
+
+
+还有面对镜子时的那些台词，等等诸多细碎的意识流对话……</blockquote>
+你不想我剧透吧，这些还真的在后面有提及，只不过不同的build会收到不同的解读
+
+
+
+
+
+
+
+-----
+
+####  ac死或生  
+##### 577#       发表于 2020-3-19 20:20
+
+
+
+
+dlc是什么东西？要买吗
+
+
+
+
+
+
+
+-----
+
+####  Limpidity  
+##### 578#       发表于 2020-3-19 20:24
+
+
+
+
+打开车 问了一下要去哪 然后就毫无征兆地扣了士气 当场崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 579#       发表于 2020-3-19 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803877&amp;ptid=1858008" target="_blank">茛菪 发表于 2020-3-19 20:11</a>
+
+尸体放着不管的，对得起人民对得起RCM吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">最宝贵的是把尸体放下来就可以获得金的夸赞
+
+
+
+
+
+
+
+-----
+
+####  mxdmfml  
+##### 580#       发表于 2020-3-19 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">求教怎么放下尸体啊，我吐了2次，吸了氨气也无效。智力6点的警探就真的这么难么
+
+
+
+
+
+
+
+-----
+
+####  requiem116  
+##### 581#       发表于 2020-3-19 20:35
+
+
+
+
+骚操作了一下想让助手相信案件中有神秘存在（极难）
+
+然后士气减一迎来第一次gg<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dewangsky  
+##### 582#       发表于 2020-3-19 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46804089&amp;ptid=1858008" target="_blank">mxdmfml 发表于 2020-3-19 20:30</a>
+
+求教怎么放下尸体啊，我吐了2次，吸了氨气也无效。智力6点的警探就真的这么难么 ...</blockquote>
+可以找大写哥帮忙
+
+
+
+
+
+
+
+-----
+
+####  左撇子的猫  
+##### 583#       发表于 2020-3-19 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46804089&amp;ptid=1858008" target="_blank">mxdmfml 发表于 2020-3-19 20:30</a>
+
+求教怎么放下尸体啊，我吐了2次，吸了氨气也无效。智力6点的警探就真的这么难么 ...</blockquote>
+我是拿金的火铳打下来的，之前也是吐了两次没弄下来
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 584#       发表于 2020-3-19 21:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46804089&amp;ptid=1858008" target="_blank">mxdmfml 发表于 2020-3-19 20:30</a>
+
+求教怎么放下尸体啊，我吐了2次，吸了氨气也无效。智力6点的警探就真的这么难么 ...</blockquote>
+内化相应的思维阁可以在防吐检定上获得+6加成
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 585#       发表于 2020-3-19 21:09
+
+
+
+
+请问广场上第三个司机在哪里？只能找到诗人和老奶奶。
+
+
+
+
+
+
+
+-----
+
+####  侠盗亚森·罗平  
+##### 586#       发表于 2020-3-19 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46804089&amp;ptid=1858008" target="_blank">mxdmfml 发表于 2020-3-19 20:30</a>
+求教怎么放下尸体啊，我吐了2次，吸了氨气也无效。智力6点的警探就真的这么难么 ...</blockquote>
+杂货店买个雨衣穿上
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 587#       发表于 2020-3-19 21:18
+
+
+
+
+如果我要当一个史诗级巨魔，一路喷到底的话，应该点满精神，争胜好强，还是点满体质？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嘲风  
+##### 588#       发表于 2020-3-19 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803414&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-19 19:36</a>
+
+如果你说的是检查尸体的话，那个检定高int高psy加点是很难放的，吐了一次之后会有一个想法，同化了之后对 ...</blockquote>
+6点加成也失败了，后悔没存盘，特么的。。
+
+
+
+
+
+
+
+-----
+
+####  aiooia  
+##### 589#       发表于 2020-3-19 21:40
+
+
+
+
+SL
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 590#       发表于 2020-3-19 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46804816&amp;ptid=1858008" target="_blank">嘲风 发表于 2020-3-19 21:38</a>
+6点加成也失败了，后悔没存盘，特么的。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">慢慢会习惯存盘的，sl是这游戏的一部分。
+
+而且这游戏就算英文版bug也不少。我建议是触发一个事件之前就存一次的。
+
+
+
+
+
+
+
+-----
+
+####  aiooia  
+##### 591#       发表于 2020-3-19 21:47
+
+
+
+<blockquote>aiooia 发表于 2020-3-19 21:40
+SL</blockquote>
+坑爹手机浏览器，一打回车就出去了……这游戏现在真是SL大法救我狗命了，第一天没SL我感觉自己就是在搞砸一切，第二天开始尝试Sl瞬间难度骤降，但就是RP度也骤降了…顺带说现在的游戏心得就是平常跑团我的kp简直都是在当保姆哄我过家家
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 592#       发表于 2020-3-19 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">思想如果又是康米又是自由主义，会精分吗？有点害怕
+不过思想如果不放进格子里就不会产生影响吧？
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 593#       发表于 2020-3-19 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805009&amp;ptid=1858008" target="_blank">战术核辣条 发表于 2020-3-19 21:54</a>
+思想如果又是康米又是自由主义，会精分吗？有点害怕
+不过思想如果不放进格子里就不会产生影响吧？</blockquote>
+解锁了就有影响了
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 594#       发表于 2020-3-19 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805079&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-19 21:59</a>
+解锁了就有影响了</blockquote>
+那还是不选了，一周目做纯粹的康米主义者<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+                              
