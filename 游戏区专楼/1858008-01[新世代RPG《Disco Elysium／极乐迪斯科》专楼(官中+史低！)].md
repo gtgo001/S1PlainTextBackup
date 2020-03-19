@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-19 22:03** 
+> ## **本文件最后更新于2020-03-20 00:08** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_lJENj" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_G0Jyr" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -11457,11 +11457,14 @@ cuno嘴臭没味了 没了大小写语气怪怪的 总的来说挺好的 比自�
 
 
 
+ 本帖最后由 NeverwinterN 于 2020-3-19 22:08 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46802973&amp;ptid=1858008" target="_blank">嘲风 发表于 2020-3-19 19:01</a>
-有没有对新人玩家的加点建议，尸体放了3次都没放下来，绝望</blockquote>
-如果你说的是检查尸体的话，那个检定高int高psy加点是很难放的，吐了一次之后会有一个想法，同化了之后对这个检定有6点的加成。
 
-放尸体是个对于手眼协调不高的加点的话应该就只有找人帮忙一条路。
+有没有对新人玩家的加点建议，尸体放了3次都没放下来，绝望</blockquote>
+如果你说的是检查尸体的话，那个检定高int高psy加点是很难的，吐了一次之后会有一个想法，同化了之后对这个检定有6点的加成。
+
+
+放尸体对于手眼协调不高的加点的话应该就只有找人帮忙一条路。
 
 
 
@@ -11941,11 +11944,14 @@ SL
 
 
 
+ 本帖最后由 NeverwinterN 于 2020-3-19 22:08 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46804816&amp;ptid=1858008" target="_blank">嘲风 发表于 2020-3-19 21:38</a>
+
 6点加成也失败了，后悔没存盘，特么的。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">慢慢会习惯存盘的，sl是这游戏的一部分。
 
-而且这游戏就算英文版bug也不少。我建议是触发一个事件之前就存一次的。
+
+而且这游戏就算英文版bug也不少。我建议是触发一个事件之前就存一次的档。
 
 
 
@@ -12023,4 +12029,374 @@ SL</blockquote>
 
 
 
-                              
+
+
+-----
+
+####  最好不说  
+##### 595#       发表于 2020-3-19 22:10
+
+
+
+ 本帖最后由 最好不说 于 2020-3-19 22:11 编辑 
+
+果然还是要先点保命技能，玩了几小时最大体会就是镁片是个好东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 596#       发表于 2020-3-19 22:42
+
+
+
+
+自创角色6222智力拉满，打了两个小时，这毛味也太正了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，
+
+汉化的也还可以，首日补丁打完surface都能流畅运行，真滴良心<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Herreimu  
+##### 597#       发表于 2020-3-19 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805551&amp;ptid=1858008" target="_blank">Keynes 发表于 2020-3-19 22:42</a>
+自创角色6222智力拉满，打了两个小时，这毛味也太正了，
+
+汉化的也还可以，首日补丁打完surfa ...</blockquote>
+surface？哪个surface？？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我mx250带2k分辨率 打完补丁特效全低也就30帧出头
+调1080倒是能跑到50帧
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 598#       发表于 2020-3-19 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805642&amp;ptid=1858008" target="_blank">Herreimu 发表于 2020-3-19 22:49</a>
+
+surface？哪个surface？？？
+
+我mx250带2k分辨率 打完补丁特效全低也就30帧出头
+
+调1080倒是能跑到5 ...</blockquote>
+软软的那个surface啊<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+之前中文版没出的时候进游戏要加载好久，然后进去了也由十分严重的卡顿和掉帧，下午更新了一个补丁之后，进游戏秒进主菜单了，游戏里面也不卡顿了，流畅了好多
+
+
+
+
+
+
+
+-----
+
+####  阿萨托斯  
+##### 599#       发表于 2020-3-19 23:05
+
+
+
+
+玩了3小时。。。完全没懂，康米是啥？内陆帝国是什么玩意？普通人3点力量连个嗑药小鬼都揍不过也太惨烈了吧。
+
+
+
+
+
+
+
+-----
+
+####  阿萨托斯  
+##### 600#       发表于 2020-3-19 23:07
+
+
+
+
+还有那个啥抱歉警察是啥玩意，选项选得太客气就会变抱歉警察吗？
+
+
+
+
+
+
+
+-----
+
+####  时间守护者  
+##### 601#       发表于 2020-3-19 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46803925&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-19 20:15</a>
+
+你不想我剧透吧，这些还真的在后面有提及，只不过不同的build会收到不同的解读
+
+ ...</blockquote>
+反白剧透我全部！特别是结局！
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 602#       发表于 2020-3-19 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805822&amp;ptid=1858008" target="_blank">阿萨托斯 发表于 2020-3-19 23:05</a>
+
+玩了3小时。。。完全没懂，康米是啥？内陆帝国是什么玩意？普通人3点力量连个嗑药小鬼都揍不过也太惨烈了吧 ...</blockquote>
+以下都是我猜的，说错了不要打我：
+
+1.康米是在隐喻共产主义。
+
+2.内陆帝国是个技能点，在文本里面出现屎大概就是主角在和自己说话。
+
+3.这个应该和选择的对话倾向有关，得到了这个特性之后会在某些时候触发更多对话。
+
+
+
+
+
+
+
+-----
+
+####  银盾长枪兵  
+##### 603#       发表于 2020-3-19 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805822&amp;ptid=1858008" target="_blank">阿萨托斯 发表于 2020-3-19 23:05</a>
+玩了3小时。。。完全没懂，康米是啥？内陆帝国是什么玩意？普通人3点力量连个嗑药小鬼都揍不过也太惨烈了吧 ...</blockquote>
+康米=communist
+
+
+
+
+
+
+
+-----
+
+####  johnwick  
+##### 604#       发表于 2020-3-19 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805822&amp;ptid=1858008" target="_blank">阿萨托斯 发表于 2020-3-19 23:05</a>
+ 玩了3小时。。。完全没懂，康米是啥？内陆帝国是什么玩意？普通人3点力量连个嗑药小鬼都揍不过也太惨烈了吧 ...</blockquote>
+康米原文就是communism
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 605#       发表于 2020-3-19 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805913&amp;ptid=1858008" target="_blank">时间守护者 发表于 2020-3-19 23:12</a>
+
+反白剧透我全部！特别是结局！</blockquote>
+内容太多，伏笔过多，我打字怕不是要开一个楼给你，建议你二周目搞一个全部修改成9点属性的存档来体会下
+
+
+
+
+
+
+
+-----
+
+####  拒绝爱讨论  
+##### 606#       发表于 2020-3-19 23:20
+
+
+
+
+官中怎么样？有没有人来讲讲来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 607#       发表于 2020-3-19 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806007&amp;ptid=1858008" target="_blank">拒绝爱讨论 发表于 2020-3-19 23:20</a>
+
+官中怎么样？有没有人来讲讲</blockquote>
+官方中文现在起码能让你看懂这游戏大部分在说些什么了
+
+这游戏的文本翻译难度之大应该是找那些翻译黑塞卡佛啥的欧美文学翻译家来翻译的，而不是游戏爱好者来翻译的
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 608#         楼主| 发表于 2020-3-19 23:23
+
+
+
+
+嗯，所以有条件还是推荐啃英文，即使这意味着需要连带啃字典花上几倍的时间来理解……
+
+
+
+
+
+
+
+-----
+
+####  侠盗亚森·罗平  
+##### 609#       发表于 2020-3-19 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然结局就那一个，但支线完成的情况是会对结局有影响的……不过一周目就别想追求完美了……我觉得这游戏与其说是康米模拟器，不如说是失败模拟器，你会各种深刻地感受到lost和failed
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 610#       发表于 2020-3-19 23:34
+
+
+
+
+感觉好多支线都一头雾水，不过做主线的时候到处跑跑偶尔就能把直线进行下去
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 611#       发表于 2020-3-19 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805988&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-03-19 23:18:27</a>
+内容太多，伏笔过多，我打字怕不是要开一个楼给你，建议你二周目搞一个全部修改成9点属性的存档来体会下 ...</blockquote>修改存档怎么弄？直接拿三大妈的修改器行吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 612#       发表于 2020-3-19 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806197&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-19 23:35</a>
+
+修改存档怎么弄？直接拿三大妈的修改器行吗？
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+ce或者三大妈啥都行，但是这游戏的失败文本也很多，全成功也会错过很多内容，所以见仁见智了
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 613#       发表于 2020-3-19 23:50
+
+
+
+
+翻译这种东西只能说见仁见智，有些地方是为了模仿原文风格故意处理的很生涩的，结果就会被人吐槽是机翻...
+
+
+最理想的方案应该是找文风不同的人翻译不同版本。但是这东西文本量太大了，我举个例子，很多对话你带不带金参加有两个不同的版本，哪怕游戏里绝大部分人都会自愿或非自愿的选择和金一起行动，但是这对翻译就意味着双倍的工作量。短时间内合作处理出完整版本都非常困难了，更高的要求真的很难做到
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 614#       发表于 2020-3-19 23:57
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-19 23:59 编辑 
+
+前期第一天住的问题最重要，第三天早上水闸的开关最重要。其他的其实都可以自己慢慢玩，自由度这么高还能卡关吗...   
+
+顺便问一下，拿工会老板的支票坑杂货店售货小妹不会有后续影响吧？
+
+
+
+
+
+                             
