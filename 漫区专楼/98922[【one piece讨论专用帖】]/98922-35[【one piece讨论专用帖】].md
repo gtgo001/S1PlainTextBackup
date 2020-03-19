@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-17 18:03** 
+> ## **本文件最后更新于2020-03-19 14:03** 
 
 
 
@@ -23580,4 +23580,867 @@ wt最喜欢丑男了
 
 
 
-          
+
+
+-----
+
+####  间翘时曲  
+##### 52174#       发表于 2020-3-17 18:27
+
+
+
+
+海贼这个少年漫回忆流的开创者竟然也会被说学什么什么搞闪回洗白了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  西奈？！  
+##### 52175#       发表于 2020-3-17 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769225&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-17 11:52</a>
+
+重新把和之国看了一遍，有几点疑问耿耿于怀：
+
+1. 罗当初同盟的计划是借凯多之手灭掉明哥，现在到和之国干凯 ...</blockquote>
+顶上战争还准备出续集？
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52176#       发表于 2020-3-17 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46774884&amp;ptid=98922" target="_blank">间翘时曲 发表于 2020-03-17 18:27:03</a>
+海贼这个少年漫回忆流的开创者竟然也会被说学什么什么搞闪回洗白了</blockquote>比如说学什么呢？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52177#       发表于 2020-3-17 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769738&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-17 12:24</a>
+
+和之国大战的战力对比，我凭记忆列举一下，不足的地方大家帮忙看看。
+
+
+主要战场</blockquote>
+甚平和海军肯定会来，就目前这可怜的战力，都不需要大妈团来就全灭了。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52178#       发表于 2020-3-17 21:17
+
+
+
+
+勘十郎的内奸伏笔：单行卷92、93、94 人物介绍图里面只有堪十郎是不断变化的，其他人都是一直是同一个图，找一下以前的其他人物介绍也是这样，除非有特大变故如两年前后的草帽团。
+
+此外就是很多人都发现的惯用右手却用左手画画。
+
+
+
+
+
+
+C6664AFA-520C-4663-BB3E-2F392967F202.jpeg
+(114.2 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-17 21:17 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/211732hgaxx1w7w32ekxxy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+1AF95B29-171E-4354-9626-B5D5ED085EE1.jpeg
+(67.04 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-3-17 21:17 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/17/211731in1u6mzsdmubdsmj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zerock  
+##### 52179#       发表于 2020-3-17 21:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46769738&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-17 12:24</a>
+
+和之国大战的战力对比，我凭记忆列举一下，不足的地方大家帮忙看看。
+
+
+主要战场</blockquote>
+莫利亚应该会出场，不然其他剧情再出场也没什么意义了
+
+小马哥和白胡子参团应该也会来，不然老猫的没法在剧情中回收
+
+再就是楼上说的
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52180#       发表于 2020-3-17 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46770084&amp;ptid=98922" target="_blank">云闻先 发表于 2020-3-17 12:50</a>
+
+身高对比图越看越草。气势真的能弥补身高的差距吗?还是说尾田神奇的比例模糊了残酷的对比?另外，【四皇比大 ...</blockquote>
+所以在海贼世界，刀剑就很实用了，毕竟大部分人没有路飞那样巨大化的能力。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52181#       发表于 2020-3-17 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46774472&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2020-3-17 17:56</a>
+
+一开始在毒气岛的时候不就说要干扒一个四皇么</blockquote>
+结合了罗的经历，我感觉那只是骗路飞入伙的一句话。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52182#       发表于 2020-3-17 22:32
+
+
+
+ 本帖最后由 GreenBird 于 2020-3-17 22:40 编辑 
+
+和之国不属世界ZF，国家内政就没有管理义务了。单单从正义的角度看，海军来就是坐收渔人之利。等海贼的内耗完再收拾。除非海军有不得不介入的必要。
+
+海军的主要兵力，按照这条时间线，哪位朋友说说他们在干嘛了……
+
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52183#       发表于 2020-3-17 22:33
+
+
+
+
+莫利亚在黑胡子那里估计就悲剧了。那群穷凶极恶的人，放着影子果实不放？
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52184#       发表于 2020-3-17 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46776622&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-3-17 20:51</a>
+
+甚平和海军肯定会来，就目前这可怜的战力，都不需要大妈团来就全灭了。 ...</blockquote>
+甚平在陆上的战绩一般般啊，来了应该也是次要战场。海军不需要参与海贼之间的内耗，等两边打完，再坐收渔利，岂不更好？
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52185#       发表于 2020-3-17 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46773471&amp;ptid=98922" target="_blank">7七麦 发表于 2020-3-17 16:51</a>
+
+一开始计划就是干掉凯多，毁掉sad，或让凯多揍明哥，造成混乱，或强逼明哥退出七武海，招来大将，罗路同 ...</blockquote>
+苦于读不懂日语啊，但是我听到另一个翻译是“明年的剧情将会注重在三个人身上，萨博、薇薇公主以及女帝。”
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52186#       发表于 2020-3-17 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46778012&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-03-17 22:46:18</a>
+苦于读不懂日语啊，但是我听到另一个翻译是“明年的剧情将会注重在三个人身上，萨博、薇薇公主以及女帝。 ...</blockquote>學日語一個好處就是不會被帶節奏。
+尾田原話直譯「還有薩博，薇薇，漢庫克……啊啊啊啊！」
+這個啊啊啊啊就任君解讀了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  hagaren  
+##### 52187#       发表于 2020-3-18 01:01
+
+
+
+
+当初青薙对路飞说你登上这个舞台还是太早，我就觉得以后还要再来一遍。
+
+
+
+
+
+
+
+-----
+
+####  GreenBird  
+##### 52188#       发表于 2020-3-18 08:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46779428&amp;ptid=98922" target="_blank">hagaren 发表于 2020-3-18 01:01</a>
+
+当初青薙对路飞说你登上这个舞台还是太早，我就觉得以后还要再来一遍。</blockquote>
+当初大事件前前后后3本单行本，按照近年的速度，那至少也要1年了，修练回来又打一年？
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 52189#       发表于 2020-3-18 10:12
+
+
+
+
+革命军这条线一直没正式展开
+
+
+
+
+
+
+
+-----
+
+####  sandrock  
+##### 52190#       发表于 2020-3-18 10:47
+
+
+
+
+黄猿要真是卧底就精彩了
+
+
+
+
+
+
+
+-----
+
+####  XSK小龙王  
+##### 52191#       发表于 2020-3-18 23:06
+
+
+
+<blockquote>引用第52181楼GreenBird于2020-03-17 22:32发表的  :
+
+本帖最后由 GreenBird 于 2020-3-17 22:40 编辑 和之国不属世界ZF，国家内......</blockquote>
+@GreenBird
+
+海军正在分头抓七武海
+
+
+----发送自 [vivo V1818A,Android 8.1.0](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  qi147iq  
+##### 52192#       发表于 2020-3-19 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46777774&amp;ptid=98922" target="_blank">GreenBird 发表于 2020-3-17 22:29</a>
+
+结合了罗的经历，我感觉那只是骗路飞入伙的一句话。</blockquote>
+没错，在当时只是罗骗路飞一起对付天夜叉的话术，但你罗上了路飞的贼船，难道还想跑吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 52193#       发表于 2020-3-19 07:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46793772&amp;ptid=98922" target="_blank">qi147iq 发表于 2020-3-19 01:44</a>
+
+没错，在当时只是罗骗路飞一起对付天夜叉的话术，但你罗上了路飞的贼船，难道还想跑吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">尾田在两年后对很多角色下狠手 正面效果就是罗越来越招人喜欢了  反面嘛
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">为什么你要对罗宾酱下狠手 还我那个既知性又安静的美女大姐姐
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52194#       发表于 2020-3-19 10:29
+
+
+
+ 本帖最后由 灰狼 于 2020-3-19 10:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46793772&amp;ptid=98922" target="_blank">qi147iq 发表于 2020-3-19 01:44</a>
+
+没错，在当时只是罗骗路飞一起对付天夜叉的话术，但你罗上了路飞的贼船，难道还想跑吗 ...</blockquote>
+无所谓啦，罗除了想要明哥的命，另一个活下去的动力是作为d”掀起狂风暴雨“，说白了就是当搅屎棍
+
+
+显然现在跟着路飞搅屎效果更好
+
+——————————————————————————————————————————————————
+
+
+罗其实应该是知道跟着路飞混会被带到沟里去（应该不包括把乔巴绑在头上，喊出”我不吃面包片“，被人发现是特摄厨。。。吧），和烟鬼聊天的时候那句“到底是谁利用谁啊。。”大概就透露出这个意思了
+
+
+在和明哥对峙的时候其实他表明的态度是他对路飞信任超过利用
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52195#       发表于 2020-3-19 10:30
+
+
+
+ 本帖最后由 灰狼 于 2020-3-19 10:34 编辑 
+
+975话标题 锦卫门的妙计（英文情报师更新为“smart trick”）
+
+
+你和之国真的全员影帝是吧！！
+
+哦，还有下周休刊，毕竟也连载3个礼拜了。。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52196#       发表于 2020-3-19 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46773471&amp;ptid=98922" target="_blank">7七麦 发表于 2020-3-17 16:51</a>
+
+一开始计划就是干掉凯多，毁掉sad，或让凯多揍明哥，造成混乱，或强逼明哥退出七武海，招来大将，罗路同 ...</blockquote>
+萨博不会这么简单的死掉的
+
+
+看看艾斯和顶上。一个画了这么多笔墨塑造出来的角色，要退场一定会是轰轰烈烈地，至少需要发挥这个角色地价值（随便浪费角色的是暴雪）
+
+
+不过萨博最后应该是会死的。。。悲哀。。。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52197#       发表于 2020-3-19 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46796085&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-19 10:30</a>
+975话标题 锦卫门的妙计（英文情报师更新为“smart trick”）
+
+
+你和之国真的全员影帝是吧！！</blockquote>
+锦卫门和传次郎一直是智将，计中计也是意料之中，勘十郎直接傻了。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52198#       发表于 2020-3-19 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46796259&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-19 10:41</a>
+
+锦卫门和传次郎一直是智将，计中计也是意料之中，勘十郎直接傻了。</blockquote>
+emm我看锦卫门出过的计划就只有讨伐凯多的暗号，别的确实没看出来
+
+
+不过大蛇确实给了锦卫门很高的评价，而且名字带个狐狸。。。大概确实是聪明人吧
+
+
+但是主要印象还是色武士。。。
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 52199#       发表于 2020-3-19 10:56
+
+
+
+
+锦卫门解读错了家康更改的暗号把堪十郎和大蛇都坑到了错误的港口 其他人早就在正确的港口集结完毕了 大家都以为是锦卫门为了抓间谍故意放出的假情报 但锦卫门真的只是解读错了而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52200#       发表于 2020-3-19 11:04
+
+
+
+ 本帖最后由 仟音一心 于 2020-3-19 11:06 编辑 
+
+哈哈哈你看情报
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52201#       发表于 2020-3-19 12:02
+
+
+
+
+光看情报就已经笑死了，安心等正片<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52202#       发表于 2020-3-19 12:08
+
+
+
+
+绝望氛围你麻痹，结果是跑错片场了，我他妈笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  サクラ  
+##### 52203#       发表于 2020-3-19 12:09
+
+
+
+
+哈哈哈哈哈这也太搞了
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 52204#       发表于 2020-3-19 12:27
+
+
+
+
+我已经分不清尾田画和之国篇是为了吹自己人还是黑自己人了
+
+反正复国什么的就靠着运气色霸气抱紧主角大腿就行了
+
+
+
+
+
+
+
+-----
+
+####  云闻先  
+##### 52205#       发表于 2020-3-19 12:32
+
+
+
+
+真是太滑稽了。看到标题和第一张图透的时候我一愣，在想锦兄弟什么时候这么机智了。结果最后一幕瞬间破功。所以wt是觉得比起给锦卫门硬凹个智将人设，不如迪化传次郎?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52206#       发表于 2020-3-19 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46796600&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-19 11:04</a>
+
+哈哈哈你看情报</blockquote>
+笑什么笑！你说得锦卫门是智将（哈哈哈哈哈哈哈捶地猛笑）
+
+
+这个颇有大妈篇那个“演技派”，“头脑派”的感觉了
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52207#       发表于 2020-3-19 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46798184&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-19 12:39</a>
+笑什么笑！你说得锦卫门是智将（哈哈哈哈哈哈哈捶地猛笑）
+
+
+这个颇有大妈篇那个“演技派”，“头脑派”的 ...</blockquote>
+锦卫门：我在第一层？
+传次郎：不，您在第五层！
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52208#       发表于 2020-3-19 12:47
+
+
+
+ 本帖最后由 灰狼 于 2020-3-19 12:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46798223&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-3-19 12:42</a>
+
+锦卫门：我在第一层？
+
+传次郎：不，您在第五层！</blockquote>
+不过有一说一，搞笑破局也算是海贼王的传统
+
+
+空岛（橡胶不导电）德岛（god演艺）也是此类
+
+想起来了，这个第一层第五层是不是其实翻译过来就是”傻逼克高手“
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52209#       发表于 2020-3-19 12:49
+
+
+
+
+啊还有个悲剧的事情，小忍是真的
+
+
+只有胖小忍了，悲
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52210#       发表于 2020-3-19 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46798310&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-19 12:47</a>
+不过有一说一，搞笑破局也算是海贼王的传统
+
+
+空岛（橡胶不导电）德岛（god演艺）也是此类 ...</blockquote>
+所以这才是真正的意料之外情理之中，尾田的这一点永远不让人失望。
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52211#       发表于 2020-3-19 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46798344&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-19 12:49</a>
+
+啊还有个悲剧的事情，小忍是真的
+
+
+只有胖小忍了，悲</blockquote>
+被蛇捆绑play那里……我觉得我不行……
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52212#       发表于 2020-3-19 12:58
+
+
+
+
+说起来看了这么多年情报居然头一次有了亏了的感觉，要是在完全不知情的情况下看到漫画应该会笑得更开心
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52213#       发表于 2020-3-19 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46798405&amp;ptid=98922" target="_blank">angelooo 发表于 2020-3-19 12:52</a>
+被蛇捆绑play那里……我觉得我不行……</blockquote>
+湿身，捆绑，人兽，熟女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  垃垃藻  
+##### 52214#       发表于 2020-3-19 13:34
+
+
+
+
+锦卫门吃的应该是运气果实吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  RedPig  
+##### 52215#       发表于 2020-3-19 13:43
+
+
+
+
+神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sb克高手
+
+
+
+
+
+         
