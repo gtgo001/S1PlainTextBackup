@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-17 22:00** 
+> ## **本文件最后更新于2020-03-21 04:00** 
 
 
 
@@ -1691,4 +1691,581 @@
 
 
 
-                                              
+
+
+-----
+
+####  真红眼教授  
+##### 1592#       发表于 2020-3-17 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46776908&amp;ptid=1860852" target="_blank">好多树 发表于 2020-3-17 21:17</a>
+
+话说，既然是子供向动画，难道不应该传达一下正确应对新闻男这种跟踪狂的方法吗，从报告学校通报家 ...</blockquote>
+说明主角善解人意啊，这个男的在学校搞得一个朋友都没了不是自找的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1593#       发表于 2020-3-17 22:33
+
+
+
+
+话说这种只有一个人的社团不是应该被解散之类的吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，后面会不会有为了避免废部危机拉和佳入伙的剧情
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1594#       发表于 2020-3-17 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46776908&amp;ptid=1860852" target="_blank">好多树 发表于 2020-3-17 21:17</a>
+
+话说，既然是子供向动画，难道不应该传达一下正确应对新闻男这种跟踪狂的方法吗，从报告学校通报家 ...</blockquote>
+有隐患：如果报警或联系家长老师，接到消息的成年人势必要追究原因，这样就做不到光美身份保密了。
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 1595#       发表于 2020-3-17 23:43
+
+
+
+
+这个眼睛男感觉挺一般的，最开始还想站一下他和和佳的CP（主要是防正太），看完过后感觉着实不行，还是静观发展吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1596#       发表于 2020-3-18 00:44
+
+
+
+
+和佳她真好
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 1597#       发表于 2020-3-18 07:29
+
+
+
+
+明天安倍可能会宣布抗疫胜利，然后剧场版会上映
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1598#       发表于 2020-3-18 08:39
+
+
+
+<blockquote>CURE_HGCG 发表于 2020-3-18 07:29
+明天安倍可能会宣布抗疫胜利，然后剧场版会上映</blockquote>
+然后大家一起感染GG？
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1599#       发表于 2020-3-18 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46780687&amp;ptid=1860852" target="_blank">CURE_HGCG 发表于 2020-3-18 07:29</a>
+
+明天安倍可能会宣布抗疫胜利，然后剧场版会上映</blockquote>
+你敢去看吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 1600#       发表于 2020-3-18 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46781156&amp;ptid=1860852" target="_blank">風駿 发表于 2020-3-18 08:54</a>
+
+你敢去看吗</blockquote>
+我O型血！
+
+开玩笑的
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1601#       发表于 2020-3-18 19:01
+
+
+
+
+O型血也就低几个百分点吧
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 1602#       发表于 2020-3-18 19:01
+
+
+
+
+周五晚上重大发表 ​
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gcy9nyvunxj20g80ibna8.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1603#       发表于 2020-3-18 20:39
+
+
+
+
+网络配信
+直接卖bd
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1604#       发表于 2020-3-18 22:46
+
+
+
+
+闻讯赶来，听说大冢隆史精准爆雷。爱奇艺今年要哭了，剧场版和本篇还续不续了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 1605#       发表于 2020-3-18 23:04
+
+
+
+<blockquote>三合一出现 发表于 2020-3-18 22:46
+闻讯赶来，听说大冢隆史精准爆雷。爱奇艺今年要哭了，剧场版和本篇还续不续了。 ...</blockquote>
+
+那人早不在东映了
+
+今年也没他
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1606#       发表于 2020-3-18 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46792167&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2020-3-18 23:04</a>
+
+那人早不在东映了
+
+今年也没他</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，还好，差点就没得看了。
+
+
+
+
+
+
+
+-----
+
+####  CURE_HGCG  
+##### 1607#       发表于 2020-3-18 23:55
+
+
+
+
+你们说周五的重大发表会是什么
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1608#       发表于 2020-3-19 00:22
+
+
+
+
+q娃大发神威打爆了新冠病毒拯救了全日本 可喜可贺 可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+剧场版 日期吧还能是啥 
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1609#       发表于 2020-3-19 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46791912&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-3-18 22:46</a>
+
+闻讯赶来，听说大冢隆史精准爆雷。爱奇艺今年要哭了，剧场版和本篇还续不续了。 ...</blockquote>
+大塚代表不了海贼，代表不了现在的Q娃，更代表不了东映。
+
+
+而且他捅出什么篓子都不意外。
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1610#       发表于 2020-3-19 08:18
+
+
+
+
+想太多
+怕的还是国内辣鸡营销号带一波节奏
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1611#       发表于 2020-3-19 11:03
+
+
+
+
+没事就好
+
+今年的开头挺好的，希望不要受任何影响
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 1612#       发表于 2020-3-19 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46777838&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-17 22:33</a>
+
+话说这种只有一个人的社团不是应该被解散之类的吗，后面会不会有为了避免废部危机拉和佳入伙的剧情 ...</blockquote>
+这种也可以是没有部室没有活动经费，一些学校不达到社团要求的还是能按同好会规格活动。
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1613#       发表于 2020-3-20 16:54
+
+
+
+
+春季剧场版5月16日公开了
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1614#         楼主| 发表于 2020-3-20 16:58
+
+
+
+
+剧场版延期到5/16
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1615#       发表于 2020-3-20 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46777838&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-17 22:33</a>
+
+话说这种只有一个人的社团不是应该被解散之类的吗，后面会不会有为了避免废部危机拉和佳入伙的剧情 ...</blockquote>
+这种废部危机的剧情怎么如此熟悉？
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1616#       发表于 2020-3-20 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46777838&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-17 22:33</a>
+话说这种只有一个人的社团不是应该被解散之类的吗，后面会不会有为了避免废部危机拉和佳入伙的剧情 ...</blockquote>
+应该是用每周出校报交换来的采访权和经费吧
+这样子的话直接变成学生会的宣传部门不就行了
+不过要真废部的话，只拉和佳肯定不够，把剩下两人也拉进来然后搞光之美少女跟踪报道算了。一到要报道的时候剩下三个人就不见了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1617#       发表于 2020-3-20 21:22
+
+
+
+<img src="https://p.sda1.dev/0/95fc06ae3dd2465bcd3e5b6fe090c5f2/2020-03-20_21-22-15.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1618#         楼主| 发表于 2020-3-20 21:58
+
+
+
+
+我的话，就利用新闻部没有部员这个设定
+
+让和佳大发慈悲去加入新闻部
+
+这样一来
+
+一个是可以有粉主一面搞新闻一面提防被搞新闻的矛盾
+
+一个是可以用采访、取材之类的理由，让粉主接触和参与更多的事
+
+再有一个就是可以搞益子道夫也喜欢上了粉主，弄个三角恋
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1619#       发表于 2020-3-20 22:42
+
+
+
+
+剧场版主题曲和ost也延期
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1620#       发表于 2020-3-21 02:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46816479&amp;ptid=1860852" target="_blank">hgcg-w 发表于 2020-3-20 21:58</a>
+
+我的话，就利用新闻部没有部员这个设定
+
+让和佳大发慈悲去加入新闻部
+
+这样一来</blockquote>
+“Keep your friends close, but keep your enemies closer.”——《教父 2》
+
+
+这个记者小哥显然已经把反派的行动当作新闻事件了。和佳如果加入新闻部的话，碰到反派行动的时候就可以用“我去取材”这句话把记者小哥搪塞过去，这样反而可以降低身份暴露的风险。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1621#       发表于 2020-3-21 02:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46816937&amp;ptid=1860852" target="_blank">粉儿alice 发表于 2020-3-20 22:42</a>
+
+剧场版主题曲和ost也延期</blockquote>
+剧场版本体都延期了。皮之不存，毛将焉附。
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1622#       发表于 2020-3-21 03:01
+
+
+
+
+果然是玛丽贝尔<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202003/21/030033kgqg528r5gw8r6p5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20032010513818.jpg</strong> (335.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-21 03:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+                                             
