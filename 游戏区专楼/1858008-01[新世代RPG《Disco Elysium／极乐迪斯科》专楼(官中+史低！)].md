@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-20 00:08** 
+> ## **本文件最后更新于2020-03-20 10:05** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_G0Jyr" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Colqn" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -12399,4 +12399,511 @@ ce或者三大妈啥都行，但是这游戏的失败文本也很多，全成功
 
 
 
-                             
+
+
+-----
+
+####  Bondrewd  
+##### 615#       发表于 2020-3-20 00:41
+
+
+
+
+原来是sl游戏吗（悲）
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  dogod  
+##### 616#       发表于 2020-3-20 01:19
+
+
+
+
+感觉这游戏到第二天检查尸体第三天正面怼7兄弟的时候开始有趣了，第一天比较无趣，书店Loli可爱
+
+
+
+
+
+
+
+-----
+
+####  wd54w8  
+##### 617#       发表于 2020-3-20 01:43
+
+
+
+
+这游戏有什么挣钱的法子吗…第一天的钱还是找船上的大姐借的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 618#       发表于 2020-3-20 02:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806839&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-20 01:43</a>
+
+这游戏有什么挣钱的法子吗…第一天的钱还是找船上的大姐借的
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客 ...</blockquote>
+这个似乎是正解
+
+
+
+
+
+
+
+-----
+
+####  chen_null  
+##### 619#       发表于 2020-3-20 02:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806839&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-20 01:43</a>
+这游戏有什么挣钱的法子吗…第一天的钱还是找船上的大姐借的
+
+  -- 来自 能搜索的 Stage1官方 iOS客 ...</blockquote>
+拿个塑料袋捡瓶子能赚一点点...
+
+—— 来自 Sony G8341, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 620#       发表于 2020-3-20 02:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806839&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-20 01:43</a>
+
+这游戏有什么挣钱的法子吗…第一天的钱还是找船上的大姐借的
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客 ...</blockquote>
+钱：第十五个寡头公司，间接征税模式，三教九流中心
+
+经验：旧事如新，硬核美学，三教九流中心
+
+
+
+
+
+
+
+-----
+
+####  a74899587  
+##### 621#       发表于 2020-3-20 03:46
+
+
+
+ 本帖最后由 a74899587 于 2020-3-20 03:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">19小时通关了游戏
+
+感想只有女人、政治都是坏东西，我只爱金球了。编辑
+
+还有可爱的竹节虫小姐
+
+
+
+
+
+
+
+-----
+
+####  幻影长矛手  
+##### 622#       发表于 2020-3-20 04:47
+
+
+
+
+服了，莫名其妙士气危机，玩jb
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 623#       发表于 2020-3-20 06:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806297&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-03-19 23:44:34</a>
+ce或者三大妈啥都行，但是这游戏的失败文本也很多，全成功也会错过很多内容，所以见仁见智了 ...</blockquote>嗯，我打算用来拾遗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 624#       发表于 2020-3-20 06:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46807040&amp;ptid=1858008" target="_blank">幻影长矛手 发表于 2020-03-20 04:47:43</a>
+服了，莫名其妙士气危机，玩jb</blockquote>加一点紫属性的第一个，然后你就有两点士气，能吃药了
+大家都是智者开局呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿萨托斯  
+##### 625#       发表于 2020-3-20 07:26
+
+
+
+<blockquote>ArcticIce 发表于 2020-3-19 23:13
+以下都是我猜的，说错了不要打我：
+
+1.康米是在隐喻共产主义。
+
+2.内陆帝国是个技能点，在文本里面出现屎大 ...</blockquote>
+看男主角吐槽金是老派警察，还有被害人的科幻装备，我还以为这赛博朋克世界线，男主装了电子脑，是在和电子脑说话。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 626#       发表于 2020-3-20 07:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806839&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-20 01:43</a>
+
+这游戏有什么挣钱的法子吗…第一天的钱还是找船上的大姐借的
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客 ...</blockquote>
+小金车里的路车轮能当200块
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 627#       发表于 2020-3-20 08:13
+
+
+
+
+21点后到21号公寓找目击者那个任务，结束之后公寓大门就没法互动了，是bug吗，这被关在公寓楼里出都出不去
+
+
+
+
+
+
+
+-----
+
+####  WA2ST  
+##### 628#       发表于 2020-3-20 08:14
+
+
+
+<blockquote>阿萨托斯 发表于 2020-3-19 23:05
+玩了3小时。。。完全没懂，康米是啥？内陆帝国是什么玩意？普通人3点力量连个嗑药小鬼都揍不过也太惨烈了吧 ...</blockquote>
+内陆帝国（inland empire）楼里之前有提到，是化用大卫林奇的同名电影而来，是一种接触超自然混沌现象的技能
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 629#       发表于 2020-3-20 08:14
+
+
+
+
+昨晚玩了一下，刚出门去车子上打电话有个判定28%几率，我想就试试看吧，没想到判定失败直接士气-1死了
+
+唉……今晚得继续从出旅馆门开始玩
+
+
+
+
+
+
+
+-----
+
+####  atomone  
+##### 630#       发表于 2020-3-20 08:35
+
+
+
+
+一点士气那个太莫名其妙了，玩玩就眼前一黑嗷过去了。以及中文很多时候真的是都写的汉字但是也看不懂，以及一天还没到下午三点呢列表上已经小20个任务了……这种智者和天外世界一样，太聪明了自己记不住很麻烦
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 631#       发表于 2020-3-20 08:41
+
+
+
+
+一点士气和一点生命就是跟自己过不去，动不动就暴毙。
+
+
+
+
+
+
+
+-----
+
+####  ayeah  
+##### 632#       发表于 2020-3-20 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46807628&amp;ptid=1858008" target="_blank">atomone 发表于 2020-3-20 08:35</a>
+一点士气那个太莫名其妙了，玩玩就眼前一黑嗷过去了。以及中文很多时候真的是都写的汉字但是也看不懂，以及 ...</blockquote>
+嗷的一声就崩溃了，不愧是中年男人模拟器，很真实
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 633#       发表于 2020-3-20 08:51
+
+
+
+
+两个通宵了，根本停不下来。你们别点极限1点啊，体格和精神至少点两点，之后能捡一堆补给就不怕暴毙了
+
+
+
+
+
+
+
+-----
+
+####  johnwick  
+##### 634#       发表于 2020-3-20 08:54
+
+
+
+
+看来大家都是智者开局吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 635#       发表于 2020-3-20 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46807760&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-20 08:51</a>
+
+两个通宵了，根本停不下来。你们别点极限1点啊，体格和精神至少点两点，之后能捡一堆补给就不怕暴毙了 ...</blockquote>
+心急想马上玩就直接选了常规开局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从明天开始我也SL大法
+
+
+
+
+
+
+
+-----
+
+####  夜留歌  
+##### 636#       发表于 2020-3-20 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46807780&amp;ptid=1858008" target="_blank">johnwick 发表于 2020-3-20 08:54</a>
+看来大家都是智者开局吗</blockquote>
+为了看看和开局舞者大姐姐的对话判定成功会触发什么剧情，我选择了加6点精神<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  bpqsos  
+##### 637#       发表于 2020-3-20 09:02
+
+
+
+<blockquote>夜留歌 发表于 2020-3-20 09:00
+为了看看和开局舞者大姐姐的对话判定成功会触发什么剧情，我选择了加6点精神
+
+
+—— 来自 OnePlus  ...</blockquote>
+是勾引她那个吗？
+
+
+
+
+
+
+
+-----
+
+####  C男  
+##### 638#       发表于 2020-3-20 09:02
+
+
+
+
+谢谢提醒，已购买
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 639#       发表于 2020-3-20 09:15
+
+
+
+
+这游戏感觉一定要配着啤酒玩才行。主角就是个酗酒嗑药的颓废神探，到我手里变成抱歉神探了233下周目就玩瘾头神探，还原人设
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 640#       发表于 2020-3-20 09:16
+
+
+
+<blockquote>asd1234126 发表于 2020-3-20 08:58
+心急想马上玩就直接选了常规开局从明天开始我也SL大法</blockquote>
+不建议SL，这游戏每个失败的判定都有补救的方法，SL就没内味了
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 641#       发表于 2020-3-20 09:54
+
+
+
+
+昨晚还挺沉迷的，就是体能敏捷点的低好多判定看的干着急
+
+
+
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 642#       发表于 2020-3-20 10:01
+
+
+
+
+完了，我就点了1级体能的废物。有补救措施吗。
+
+话说这游戏的难度真是超乎我的想象。
+
+玩了一晚上，迷茫。
+
+
+
+
+
+                            
