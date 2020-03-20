@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-20 10:05** 
+> ## **本文件最后更新于2020-03-20 14:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Colqn" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_a1H4R" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -12906,4 +12906,817 @@ ce或者三大妈啥都行，但是这游戏的失败文本也很多，全成功
 
 
 
-                            
+
+
+-----
+
+####  muermaru  
+##### 643#       发表于 2020-3-20 10:09
+
+
+
+
+我是精神开局，然而勾引是不可能勾引的
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 644#       发表于 2020-3-20 10:31
+
+
+
+
+有一说一，探案部分确实好玩到停不下来。
+
+但是里面填满了大段的意识形态和乱七八糟的政治思想倾向逼着你去选，是这游戏玩起来最影响体验最烂最无聊的部分了
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 645#       发表于 2020-3-20 10:31
+
+
+
+
+话说把某项属性点到5和点到6有啥区别吗，过高的属性会带来负面影响，但实际上我点了6智力没发现有啥debuff...
+
+
+
+
+
+
+
+-----
+
+####  白昼梦  
+##### 646#       发表于 2020-3-20 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46808893&amp;ptid=1858008" target="_blank">GeraltzRivii 发表于 2020-3-20 10:31</a>
+
+话说把某项属性点到5和点到6有啥区别吗，过高的属性会带来负面影响，但实际上我点了6智力没发现有啥debuff. ...</blockquote>
+技能能堆到十几点，六不算高属性
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 647#         楼主| 发表于 2020-3-20 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46808884&amp;ptid=1858008" target="_blank">白昼梦 发表于 2020-3-20 10:31</a>
+有一说一，探案部分确实好玩到停不下来。
+
+但是里面填满了大段的意识形态和乱七八糟的政治思想倾向逼着你去 ...</blockquote>
+要不是将各种ZZ倾向话题融入到整个剧情和世界观里，这游戏可能就得不到当下的高评价了。
+
+
+
+
+
+
+
+-----
+
+####  pf67  
+##### 648#       发表于 2020-3-20 10:58
+
+
+
+
+怎么才能解决智力型随随便便暴毙的问题？走两步存一个档？
+
+
+这样游戏体验是不是有点差。。。
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 649#       发表于 2020-3-20 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46809280&amp;ptid=1858008" target="_blank">pf67 发表于 2020-3-20 10:58</a>
+
+怎么才能解决智力型随随便便暴毙的问题？走两步存一个档？
+
+
+这样游戏体验是不是有点差。。。 ...</blockquote>
+大量买药
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 650#       发表于 2020-3-20 11:02
+
+
+
+ 本帖最后由 NeverwinterN 于 2020-3-20 11:11 编辑 
+
+有一说一，政治光谱部分确实好玩到停不下来。
+
+但是里面充作伪主线的三流案件和乱七八糟的刑侦工作逼着你去探，是这游戏玩起来最影响体验最烂最无聊的部分了
+
+
+PS：“三流”、“乱七八糟”以及“玩起来最影响体验最烂最无聊的部分”不会是我对这个游戏任何一部分的评价，在此只是为了满足这个回帖需要达到的效果做出的“牺牲”。
+
+
+
+
+
+
+
+
+-----
+
+####  101kl  
+##### 651#       发表于 2020-3-20 11:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实zz部分我全程“你说这些谁懂啊”
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 652#       发表于 2020-3-20 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46809344&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-03-20 11:02:29</a>
+有一说一，政治光谱部分确实好玩到停不下来。
+
+但是里面充作伪主线的三流案件和乱七八糟的刑侦工作逼着你 ...</blockquote>凶杀案的凶手身份对充斥整个游戏的各种意识形态讨论很有结构性的意义的吧。虽然我个人觉得他这样对现实的政治关系进行比较简单的描摹不算太高明。再者凶杀案动机和凶手开始到结尾也都挺吸引人的。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  19343917  
+##### 653#       发表于 2020-3-20 11:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">拖了一天后腿之后一**把尸体射下来，然后被金警官夸奖好爽，好想多被金警官夸奖
+
+
+
+
+
+
+
+-----
+
+####  夜留歌  
+##### 654#       发表于 2020-3-20 12:00
+
+
+
+ 本帖最后由 夜留歌 于 2020-3-20 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46807852&amp;ptid=1858008" target="_blank">bpqsos 发表于 2020-3-20 09:02</a>
+是勾引她那个吗？</blockquote>
+是的，判定成功了也没啥内容，只是对你态度会好点
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 655#       发表于 2020-3-20 12:10
+
+
+
+ 本帖最后由 NeverwinterN 于 2020-3-20 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46809932&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 11:43</a>
+
+凶杀案的凶手身份对充斥整个游戏的各种意识形态讨论很有结构性的意义的吧。虽然我个人觉得他这样对现实的政 ...</blockquote>
+当然有意义，对于整个极乐迪斯科来说，警探断案这个载体的传达效果让我吃惊。
+
+
+只不过如果是完全当侦探模拟器来玩这游戏，对破案过程相伴的意识形态思考引导采取一种“自我隔绝”的态度，为什么不去打逆转裁判要选这游戏，随便挑本阿加莎的书看也比花时间在这游戏上不那么浪费时间。我现在就在等人打到结局说“就这”呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+==========
+
+
+1.大多数人的“不站队”本身就是一种“站队”，moralintern很欢喜欢这种“不站队”的侦探，既然意识到了这一点，为什么不进一步想一下，要是对选择根本不自知还叫选择吗？再想一下这种类型的选择是不是相伴大部分游戏时间？（当然，游戏外还出来xjb站队是挺蠢的。）
+
+
+2.怎么玩这个游戏当然是自己决定的，但是和我说的又有什么关系呢？ <blockquote>只不过如果是<strong>完全当侦探模拟器</strong>来玩这游戏，对破案过程相伴的意识形态<strong>思考引导</strong>采取一种“自我隔绝”的态度</blockquote>
+看到一个人身边就有起子，还拿钳子拧螺丝，我对着其他人说一下螺丝要用起子拧，没什么不妥吧？
+
+
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 656#       发表于 2020-3-20 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810283&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-03-20 12:10:04</a>
+当然有意义，对于整个极乐迪斯科来说，警探断案这个载体的传达效果让我吃惊。
+
+
+只不过如果是完全当侦探模 ...</blockquote>你要是一直在意识形态问题上不站队，会被判定是自由派啊，也算是一种选择啊。你可以当巨魔乱讲话胡搞不也挺好玩的吗，逆转不行啊。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 657#       发表于 2020-3-20 12:26
+
+
+
+
+艹！我完全被耍了！找错真凶没能阻止屠杀，真的要二周目了
+
+
+
+
+
+
+
+-----
+
+####  她的猫  
+##### 658#       发表于 2020-3-20 12:27
+
+
+
+
+感觉优化不太好啊，笔记本插着45W的充电器，挂着玩了一段时间竟然被通知电量低了。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 659#       发表于 2020-3-20 12:27
+
+
+
+
+6222开局目前体验良好，最大成就感是我的头像终于不再是猥琐笑的时候
+
+
+
+
+
+
+
+-----
+
+####  侠盗亚森·罗平  
+##### 660#       发表于 2020-3-20 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810527&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-20 12:26</a>
+艹！我完全被耍了！找错真凶没能阻止屠杀，真的要二周目了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那里就是个死多死少的区别……我第一次玩全死了，非常忧郁
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 661#       发表于 2020-3-20 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810596&amp;ptid=1858008" target="_blank">侠盗亚森·罗平 发表于 2020-03-20 12:30:13</a>
+那里就是个死多死少的区别……我第一次玩全死了，非常忧郁</blockquote>所以主角那里是一定不会死吗？妈的害我瞎激动，以为自己勇武过人才活下来的。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  阿萨托斯  
+##### 662#       发表于 2020-3-20 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810523&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 12:26</a>
+
+你要是一直在意识形态问题上不站队，会被判定是自由派啊，也算是一种选择啊。你可以当巨魔乱讲话胡搞不也挺 ...</blockquote>
+原来不站队会变极端自由主义啊，怪不得我莫名其妙变成了极端自由主义抱歉神探
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 663#       发表于 2020-3-20 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810638&amp;ptid=1858008" target="_blank">阿萨托斯 发表于 2020-03-20 12:33:42</a>
+原来不站队会变极端自由主义啊，怪不得我莫名其妙变成了极端自由主义抱歉神探 ...</blockquote>你看你那里任务详细那个栏目那是有统计的。统计你各种倾向选过几次。和那个野松的女老板聊政治的时候还会有一个“我都是选D上面的都太极端了，这就是自由派”这样意思的选项
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 664#       发表于 2020-3-20 12:47
+
+
+
+
+思维内阁全学了导致技能点一直用来开格子。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">为了进港口跟那个工头虚与委蛇假装种族主义者应该不影响啥吧
+
+
+
+
+
+
+
+-----
+
+####  侠盗亚森·罗平  
+##### 665#       发表于 2020-3-20 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810616&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 12:31</a>
+所以主角那里是一定不会死吗？妈的害我瞎激动，以为自己勇武过人才活下来的。
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是红色判定全过了的话那确实比较厉害，roll不过的越多结果越惨
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 666#       发表于 2020-3-20 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810832&amp;ptid=1858008" target="_blank">DancingAndy 发表于 2020-03-20 12:47:14</a>
+思维内阁全学了导致技能点一直用来开格子。。
+为了进港口跟那个工头虚与委蛇假装种族主义者应该不影响啥吧 ...</blockquote>貌似你的日本伙伴就会不太喜欢你，有一个成就是取得他的信任。这个可能有关，楼下那个种族主义肥仔的对话应该也有影响。你在和那个颅像学肌肉男聊这个最后要确定的时候，金会表现得比较反感吧。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 667#       发表于 2020-3-20 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810874&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 12:50</a>
+貌似你的日本伙伴就会不太喜欢你，有一个成就是取得他的信任。这个可能有关，楼下那个种族主义肥仔的对话应 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">有一个回过身和小伙伴说自己在伪装的选项，金也点头了
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 668#       发表于 2020-3-20 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810839&amp;ptid=1858008" target="_blank">侠盗亚森·罗平 发表于 2020-03-20 12:47:40</a>
+你是红色判定全过了的话那确实比较厉害，roll不过的越多结果越惨</blockquote>我没主动开枪开始对话支的判定是都过了，然后金一枪打死人之后那枪就没躲掉挂彩了。我还以为死几个人和之前的选择还有临场谈判的效果有关的。那三个不太难吧，我最低的成功率是42我记得然后我过了，开枪的记得是72但我没开枪。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 669#       发表于 2020-3-20 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810892&amp;ptid=1858008" target="_blank">DancingAndy 发表于 2020-03-20 12:51:10</a>
+有一个回过身和小伙伴说自己在伪装的选项，金也点头了</blockquote>他那个下一句是不是会说还有别的方法。我记得我好像是技能鉴定出说他可能会当真我就爬墙去了。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 670#       发表于 2020-3-20 12:56
+
+
+
+
+今天凌晨b站看有主播熬夜打到最后一段，今天应该陆续有人通关了
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 671#       发表于 2020-3-20 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810942&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 12:55</a>
+他那个下一句是不是会说还有别的方法。我记得我好像是技能鉴定出说他可能会当真我就爬墙去了。
+
+  -- 来自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">残废酒鬼跳不过去啊
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 672#       发表于 2020-3-20 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810979&amp;ptid=1858008" target="_blank">DancingAndy 发表于 2020-03-20 12:57:17</a>
+残废酒鬼跳不过去啊</blockquote>那还可以去偷卡的，或者你可以用点drug。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  34789  
+##### 673#       发表于 2020-3-20 13:11
+
+
+
+
+百分之九十七也失败……
+
+还是关键剧情……
+
+这骰子假的一样……
+
+
+这游戏是不是有几个点必然失败或者必然成功啊……
+
+
+
+
+
+
+
+-----
+
+####  侠盗亚森·罗平  
+##### 674#       发表于 2020-3-20 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810925&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 12:53</a>
+我没主动开枪开始对话支的判定是都过了，然后金一枪打死人之后那枪就没躲掉挂彩了。我还以为死几个人和之前 ...</blockquote>
+原来其实是不开**会好一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我是开**了没打中，接着两个躲**的判定全没过，我以为死定了……雇佣兵全是小金打倒的，醒来后迎接小金怜悯的眼神……
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 675#       发表于 2020-3-20 13:24
+
+
+
+ 本帖最后由 ataraxian 于 2020-3-20 13:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811191&amp;ptid=1858008" target="_blank">侠盗亚森·罗平 发表于 2020-3-20 13:14</a>
+
+原来其实是不开**会好一点吗我是开**了没打中，接着两个躲**的判定全没过，我以为死定了……雇佣 ...</blockquote>
+能过的都过，你每失败一次结局都会更坏一点。当然这一段我觉得最后的那个检定是最至关重要的，没过感觉游戏白玩了...偏偏智力角色很容易前面检定过最后一个精神检定搞砸
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 676#       发表于 2020-3-20 13:30
+
+
+
+
+最后的凶手也是根据你的选项倾向生成？？我最后证据也不够啊，所以主角到底是不是神经病，这一切到底是不是梦？
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 677#       发表于 2020-3-20 13:37
+
+
+
+
+所以到底是哪个更值得点——技能，还是思维格子？
+
+
+
+
+
+
+
+-----
+
+####  侠盗亚森·罗平  
+##### 678#       发表于 2020-3-20 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811320&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-3-20 13:24</a>
+能过的都过，你每失败一次结局都会更坏一点。当然这一段我觉得最后的那个检定是最至关重要的，没过感觉游 ...</blockquote>
+我是灵感型1642开局<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  WA2ST  
+##### 679#       发表于 2020-3-20 13:39
+
+
+
+<blockquote>34789 发表于 2020-3-20 13:11
+百分之九十七也失败……
+
+还是关键剧情……
+
+这骰子假的一样……
+</blockquote>
+除了第三天教堂北边掩体铁门无论如何必然失败以外其他检定应该（拿到加成后）都能过吧
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 680#       发表于 2020-3-20 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811387&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-20 13:30</a>
+最后的凶手也是根据你的选项倾向生成？？我最后证据也不够啊，所以主角到底是不是神经病，这一切到底是不是 ...</blockquote>
+只有一个凶手，第三天后才能找到。
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 681#       发表于 2020-3-20 13:41
+
+
+
+ 本帖最后由 战术核辣条 于 2020-3-20 13:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">在游戏流程能涉及的人物和团体还好一点，背景历史的这个王朝那个国家，我和失忆的主角差不多，都是一头雾水
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">但是嘴炮真的太爽了！拿着证据嘴炮7兄弟真的爽快，嘴炮有钱人让他开门然后给你钱也很草
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 682#       发表于 2020-3-20 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811477&amp;ptid=1858008" target="_blank">侠盗亚森·罗平 发表于 2020-3-20 13:38</a>
+
+我是灵感型1642开局心手相应不加点拿了gun也是白拿……不过如果你表现特别废柴就会显得小金很能干 ...</blockquote>
+如果你最后那个检定失败了小金就不会来了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">我第一次玩的时候气疯了
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 683#       发表于 2020-3-20 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811458&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-20 13:37</a>
+
+所以到底是哪个更值得点——技能，还是思维格子？</blockquote>
+思维格子更值得点，因为思维收益普遍大于一技能点；但思维的问题是你完成前不知道最后是什么效果
+
+
+前面都有讨论过的，一周目过了可以翻翻前面的讨论
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 684#       发表于 2020-3-20 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811481&amp;ptid=1858008" target="_blank">WA2ST 发表于 2020-3-20 13:39</a>
+除了第三天教堂北边掩体铁门无论如何必然失败以外其他检定应该（拿到加成后）都能过吧 ...</blockquote>
+还有你不喷昆虫学家的引虫剂是“抓不到”虫子的，那个检定必定失败。
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 685#       发表于 2020-3-20 14:00
+
+
+
+<blockquote>NeverwinterN 发表于 2020-3-20 13:54
+还有你不喷昆虫学家的引虫剂是“抓不到”虫子的，那个检定必定失败。</blockquote>
+竹节虫真的存在，不是幻觉？太诡异了吧！
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 686#       发表于 2020-3-20 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811728&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-20 14:00</a>
+
+竹节虫真的存在，不是幻觉？太诡异了吧！</blockquote>
+谁知道是不是幻觉呢。请先按照自己的想法把一周目打完。
+
+
+
+
+
+                           
