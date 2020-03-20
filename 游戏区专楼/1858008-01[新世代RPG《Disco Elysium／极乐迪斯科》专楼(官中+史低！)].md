@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-20 16:06** 
+> ## **本文件最后更新于2020-03-21 06:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_OlOiz" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_zYUIu" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -13894,4 +13894,552 @@ PS：“三流”、“乱七八糟”以及“玩起来最影响体验最烂最
 
 
 
-                          
+
+
+-----
+
+####  四氢化钠  
+##### 695#       发表于 2020-3-20 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46812602&amp;ptid=1858008" target="_blank">天下至贱 发表于 2020-03-20 15:25:40</a>
+内陆帝国原来是大卫林奇的电影，没看过那部电影，是不是可以理解成类似必然王国与自由王国的概念 ...</blockquote>不是……就是发梦难辨真假
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 696#       发表于 2020-3-20 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811191&amp;ptid=1858008" target="_blank">侠盗亚森·罗平 发表于 2020-03-20 13:14:10</a>
+原来其实是不开**会好一点吗我是开**了没打中，接着两个躲**的判定全没过，我以为死定了……雇佣兵全是小 ...</blockquote>我没开枪嘴炮全过了，躲开了第一次。然后小金先发制人打死那个面具的。然后我倒了后小金来扶我，有个佣兵偷袭他。我把我的枪给他，他解决了。醒来后小金说我们开始采取外交手段可是没用，
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  茛菪  
+##### 697#       发表于 2020-3-20 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46812602&amp;ptid=1858008" target="_blank">天下至贱 发表于 2020-3-20 15:25</a>
+
+内陆帝国原来是大卫林奇的电影，没看过那部电影，是不是可以理解成类似必然王国与自由王国的概念 ...</blockquote>
+其实内陆帝国跟穆赫兰道一样都是加州的地名<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+按林奇自己的说法这片子是“人生如梦”的感觉，具体到片子的气氛来说是噩梦跟诅咒的感觉吧。
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 698#       发表于 2020-3-20 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46813319&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-20 16:30</a>
+
+不是……就是发梦难辨真假
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+233，想多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 699#       发表于 2020-3-20 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46813518&amp;ptid=1858008" target="_blank">茛菪 发表于 2020-3-20 16:44</a>
+
+其实内陆帝国跟穆赫兰道一样都是加州的地名
+
+按林奇自己的说法这片子是“人生如梦”的感觉，具体到 ...</blockquote>
+这么说懂了，果然没看电影比较难get到
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 700#       发表于 2020-3-20 16:53
+
+
+
+
+思维和技能点好难取舍
+
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  tuiskusuomaa  
+##### 701#       发表于 2020-3-20 18:05
+
+
+
+
+据说翻译不行？
+
+
+
+
+
+
+
+-----
+
+####  Trompete  
+##### 702#       发表于 2020-3-20 18:25
+
+
+
+
+玩起来就像在做测试，三句不离对政治立场发表一些意见？
+
+
+
+
+
+
+
+-----
+
+####  101kl  
+##### 703#       发表于 2020-3-20 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46814603&amp;ptid=1858008" target="_blank">Trompete 发表于 2020-3-20 18:25</a>
+
+玩起来就像在做测试，三句不离对政治立场发表一些意见？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">主要是对面无论什么立场我都看不明白，我自己都不知道自己回答了什么……
+
+
+
+
+
+
+
+-----
+
+####  mairl  
+##### 704#       发表于 2020-3-20 19:02
+
+
+
+
+这中译太难懂了，和天外世界不能比
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 705#       发表于 2020-3-20 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810832&amp;ptid=1858008" target="_blank">DancingAndy 发表于 2020-3-20 12:47</a>
+
+思维内阁全学了导致技能点一直用来开格子。。
+
+为了进港口跟那个工头虚与委蛇假装种族主义者应该不影 ...</blockquote>
+可以过了判定之后给忘掉
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 706#       发表于 2020-3-20 20:17
+
+
+
+
+好几次以为自己凉了，最后都没事，太治愈了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  枯风瘦雪  
+##### 707#       发表于 2020-3-20 20:56
+
+
+
+
+今天刚开了一个头，被开场的一堆话搞出了不可名状的恐怖感，这玩意真的不是克苏鲁设定吗。。。
+
+
+
+
+
+
+
+-----
+
+####  Trompete  
+##### 708#       发表于 2020-3-20 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46815886&amp;ptid=1858008" target="_blank">枯风瘦雪 发表于 2020-3-20 20:56</a>
+
+今天刚开了一个头，被开场的一堆话搞出了不可名状的恐怖感，这玩意真的不是克苏鲁设定吗。。。 ...</blockquote>
+不是所有发神经都是克苏鲁吧<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  枯风瘦雪  
+##### 709#       发表于 2020-3-20 21:04
+
+
+
+ 本帖最后由 枯风瘦雪 于 2020-3-20 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46815937&amp;ptid=1858008" target="_blank">Trompete 发表于 2020-3-20 21:01</a>
+
+不是所有发神经都是克苏鲁吧</blockquote>
+就描述一种感觉，看了一堆不明所以的自语（说话的主体还是一些不知道是什么的玩意儿），然后整个人都产生了一种恐慌感
+
+
+
+
+
+
+
+-----
+
+####  阿萨托斯  
+##### 710#       发表于 2020-3-20 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46815962&amp;ptid=1858008" target="_blank">枯风瘦雪 发表于 2020-3-20 21:04</a>
+
+就描述一种感觉，看了一堆不明所以的自语（说话的主体还是一些不知道是什么的玩意儿），然后整个人都产生 ...</blockquote>
++1，一堆不明所以的东西以一种难以描述的状态对自己呢喃低语
+
+刚打开还以为这是什么恐怖游戏，我自己都想做san检定了
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 711#       发表于 2020-3-20 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811153&amp;ptid=1858008" target="_blank">34789 发表于 2020-3-20 13:11</a>
+百分之九十七也失败……
+
+还是关键剧情……
+
+这骰子假的一样……</blockquote>
+是不是中了风雨飘摇的世界的debuff
+
+
+
+
+
+
+
+-----
+
+####  夏眠不觉晓  
+##### 712#       发表于 2020-3-20 23:56
+
+
+
+
+第一次进游戏创建角色后死活进不去，以为载入时间长，重启下游戏解决了
+
+
+
+
+
+
+
+-----
+
+####  首领  
+##### 713#       发表于 2020-3-21 00:09
+
+
+
+
+骰子的确是假的，98%都被秒很正常。
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 714#       发表于 2020-3-21 00:20
+
+
+
+
+十三个思维格子终于开满了，三教九流每次博学被动检定都加10经验和2雷亚尔，刷钱和经验只要装这个思维就行
+
+
+
+
+
+
+
+-----
+
+####  bpqsos  
+##### 715#       发表于 2020-3-21 00:25
+
+
+
+
+玩了三个小时，喝了口酒挂掉了…………最近的存档在半小时前，睡觉去
+
+
+
+
+
+
+
+-----
+
+####  estrellas  
+##### 716#       发表于 2020-3-21 00:43
+
+
+
+
+一周目刚通关，感觉结局有点不太满意……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+顺带问问，在岛上做的梦，梦中见到德洛莉丝黛，和她的那段对话是什么意思……感觉是懵的
+（手机不会反白）
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 717#       发表于 2020-3-21 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46817908&amp;ptid=1858008" target="_blank">estrellas 发表于 2020-03-21 00:43:17</a>
+一周目刚通关，感觉结局有点不太满意……
+顺带问问，在岛上做的梦，梦中见到德洛莉丝黛，和她的那段对话是 ...</blockquote>就是前任，他再哈利心里就像无罪女王一样美，挺好懂得
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  estrellas  
+##### 718#       发表于 2020-3-21 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46817918&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-21 00:46</a>
+就是前任，他再哈利心里就像无罪女王一样美，挺好懂得
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+意思是前任被男主意向化成了女王的形象吗？
+但是里面的“肺部发光”“相遇于几百年前”之类的又是啥意思呢
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 719#       发表于 2020-3-21 04:36
+
+
+
+
+打通了，最后也没解释什么爬虫脑和边缘系统究竟是什么啊，还是我看漏什么了
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 720#       发表于 2020-3-21 04:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46817925&amp;ptid=1858008" target="_blank">estrellas 发表于 2020-03-21 00:48:24</a>
+意思是前任被男主意向化成了女王的形象吗？
+但是里面的“肺部发光”“相遇于几百年前”之类的又是啥意思 ...</blockquote>几百年前是指德洛莉丝在位的历史时期吧。她本人作为游戏里宗教式的道德主义象征失去了追随者。哈里也和前女友分开。这样的对位关系以及前女友和德洛莉丝形象上的重合，我觉得是想说理想的道德主义和私人回忆一样，神圣却没办法找回吧，只能在回忆里才能出现。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 721#       发表于 2020-3-21 04:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818360&amp;ptid=1858008" target="_blank">kuhailz 发表于 2020-03-21 04:36:29</a>
+打通了，最后也没解释什么爬虫脑和边缘系统究竟是什么啊，还是我看漏什么了 ...</blockquote>就是自己的意识吧。爬虫脑的声音和哈里唱歌的声音是一个吧，也和第一晚自己去看吊死自己声音一样。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 722#       发表于 2020-3-21 04:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818373&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-21 04:50</a>
+
+就是自己的意识吧。爬虫脑的声音和哈里唱歌的声音是一个吧，也和第一晚自己去看吊死自己声音一样。
+
+
+  --  ...</blockquote>
+和梦里老婆是有一段meta对话解释主角能看到对话树 我还以为有什么特别的设定呢 所以就是简单的喝酒脑损伤导致精神分裂么。
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 723#       发表于 2020-3-21 05:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818382&amp;ptid=1858008" target="_blank">kuhailz 发表于 2020-03-21 04:56:32</a>
+和梦里老婆是有一段meta对话解释主角能看到对话树 我还以为有什么特别的设定呢 所以就是简单的喝酒脑损伤 ...</blockquote>我个人感觉爬虫脑就是哈里自我毁灭倾向的声音。你正常时候也有挺多时候可以选我就是废人之类的选项吧。和竹节虫对话说到灰域那我的理解是灰域更像是自我毁灭的情绪。所以我就这样理解了。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  茛菪  
+##### 724#       发表于 2020-3-21 05:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818373&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-21 04:50</a>
+
+就是自己的意识吧。爬虫脑的声音和哈里唱歌的声音是一个吧，也和第一晚自己去看吊死自己声音一样。
+
+
+  --  ...</blockquote>
+爬虫脑是现实中神经科学的一个概念，来自三重脑模型 [https://en.wikipedia.org/wiki/Triune_brain](https://en.wikipedia.org/wiki/Triune_brain) ，该模型把人类大脑分成三部分，爬虫脑、古哺乳动物脑跟新哺乳动物脑，其中爬虫脑（基底核）被认为是负责各种原始本能的部分
+
+
+
+
+
+                         
