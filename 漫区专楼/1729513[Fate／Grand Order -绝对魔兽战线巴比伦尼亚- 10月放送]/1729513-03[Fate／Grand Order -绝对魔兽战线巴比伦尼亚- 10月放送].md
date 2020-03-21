@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-16 22:06** 
+> ## **本文件最后更新于2020-03-22 00:07** 
 
 
 
@@ -10547,4 +10547,659 @@ https://tieba.baidu.com/p/6177415103?see_lz=1&amp;pn=3 ...</blockquote>
 
 
 
-                               
+
+
+-----
+
+####  KozueAkimoto  
+##### 3543#       发表于 2020-3-16 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761993&amp;ptid=1729513" target="_blank">rxrx 发表于 2020-3-16 20:43</a>
+虽然不是那个意思，但主角和提妈的对话就象渣男扔弃槽糠之妻的情景：
+
+
+提妈：爱我别走</blockquote>
+看了一下，怎么觉得提妈有点可怜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  厄神之息  
+##### 3544#       发表于 2020-3-16 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46755861&amp;ptid=1729513" target="_blank">奈落的孤火花 发表于 2020-3-16 12:23</a>
+你看看壁吧专楼那边楼主说的也蛮有道理。
+
+
+https://tieba.baidu.com/p/6177415103?see_lz=1&amp;pn=3 ...</blockquote>
+别这么说，最早的fsn不照样有凛宝石齐射干掉b叔一条命，超人切嗣能干死从者这种设定么。菌皇在fate系里抬人逼格最直接手段就是肉身干从者啊，也不是第一次用这套了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  厄神之息  
+##### 3545#       发表于 2020-3-16 23:22
+
+
+
+
+所以我迷迷糊糊追到最后我也不知道提妈为什么来了，为什就朝着乌鲁克一顿走怎么打也不停，结果最后从神交来看还是主动退场了？？所以这是在干嘛啊？熔山龙讨伐战么？
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 3546#       发表于 2020-3-17 02:23
+
+
+
+
+    老实说20集如果是单纯的动画党的话应该感觉还算可以的，毕竟有宝具连放和传统的主角特攻（除了王哈外），不过对于游戏党来说就是感觉被魔改得不成样子了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，说回来当时打提妈的时候刚入坑没多久的我确实就是盾梅再加一个打手的组合，两个宝具一开提妈你打多少我就回多少活活地耗死你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wthall  
+##### 3547#       发表于 2020-3-17 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46761025&amp;ptid=1729513" target="_blank">华发夜眼[CN] 发表于 2020-3-16 19:18</a>
+
+为啥这话喷的人那么多啊，没玩过fgo，感觉还行吧</blockquote>
+FGO第七章的逼格有1/3在这王哈冠位一刀上，然后动画直接给整没了。你说原作党喷不喷？
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 3548#       发表于 2020-3-17 11:33
+
+
+
+ 本帖最后由 哈尔摩尼亚N 于 2020-3-17 11:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46757662&amp;ptid=1729513" target="_blank">蕾丝 发表于 2020-3-16 14:50</a>
+有人猜应该是露露不累卡的原型，目前来看这也是最合理的解释</blockquote>
+事迹升华的宝具，没有原型的
+虽然这个设定ubw动画时才冒出来
+
+
+
+
+
+
+
+-----
+
+####  6233daxiu  
+##### 3549#       发表于 2020-3-17 19:37
+
+
+
+
+刚才看到开头王哈宝具其实是有具体表现得，但是被删了，等bd看会不会补完吧。<img src="https://p.sda1.dev/0/7acaff3d6d10500e338476c5e7372504/2dcdf8ded9bc99fa.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI STF-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  神意  
+##### 3550#       发表于 2020-3-17 20:02
+
+
+
+
+王蛤原本突破天际的时髦值结果变成劣质的初号机模仿秀
+
+艾蕾好歹也是冥界主场作战，结果这宝具放得效果还不如上一话伊斯塔的砸金星
+
+金闪闪的EA······你们就真的看着游戏宝具动画做的?
+
+以上三个宝具动画做得跟18话大姐姐宝具差不多，也不会风评扑街啊
+
+反正都不打算好好说人话了，干脆不说全力保时髦值不好吗
+
+
+
+
+
+
+
+-----
+
+####  ggrreen33  
+##### 3551#       发表于 2020-3-17 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46775686&amp;ptid=1729513" target="_blank">6233daxiu 发表于 2020-3-17 19:37</a>
+刚才看到开头王哈宝具其实是有具体表现得，但是被删了，等bd看会不会补完吧。
+
+—— 来自 HUAWEI STF-AL10, ...</blockquote>
+没被删，成品就是这样，一炮过去莫名其妙人就在空中了，跟抓着个滑索一样滑翔过去，放个看着逼格很高的骷髅头也改变不了这里很烂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6x6z6w  
+##### 3552#       发表于 2020-3-18 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46775686&amp;ptid=1729513" target="_blank">6233daxiu 发表于 2020-3-17 19:37</a>
+
+刚才看到开头王哈宝具其实是有具体表现得，但是被删了，等bd看会不会补完吧。
+
+
+—— 来自 HUAWEI STF-AL10, ...</blockquote>
+[https://www.weibo.com/tv/v/IyXhsj3pj?fid=1034:4483310056046598](https://www.weibo.com/tv/v/IyXhsj3pj?fid=1034:4483310056046598)
+
+
+这个粉丝自己编辑的镜头都比实际动画要好上不少
+
+
+
+
+
+
+
+-----
+
+####  yukinosarai  
+##### 3553#       发表于 2020-3-18 00:35
+
+
+
+
+看完了，实际观感还不错。
+
+当然了，喷它是因为觉得它还能更好。
+
+不管怎么说，凭这集就要扣分是蛮离谱的。
+
+
+
+
+
+
+
+-----
+
+####  奈落的孤火花  
+##### 3554#       发表于 2020-3-19 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46763907&amp;ptid=1729513" target="_blank">厄神之息 发表于 2020-3-16 23:09</a>
+
+别这么说，最早的fsn不照样有凛宝石齐射干掉b叔一条命，超人切嗣能干死从者这种设定么。菌皇在fate系里抬 ...</blockquote>
+但是没见过周围一堆高逼格的给人类让位的吧（
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3555#       发表于 2020-3-20 07:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46656668&amp;ptid=1729513" target="_blank">远影 发表于 2020-3-8 12:46</a>
+死人或者受伤靠主角在旁边痛呼来渲染悲情是有历史渊源的
+（绯 红 之 王）
+咕哒：“贤王你在干什么 ...</blockquote>
+[url=]https://b23.tv/av94732796[/url]
+还真有人剪这段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 3556#       发表于 2020-3-20 10:16
+
+
+
+
+难得一周连补14集，病弱厨所以很难感受角色厨的愤怒（除了医生，小太刀biss）。
+
+但就是比起游戏剧情推进总觉着动画有很强烈的拼接感，节奏实在太怪了，地表决战16-17两集没看爽，倒是小恩舍命的部分有打动到。
+
+另外也如果是纯动画党很难理解招安这个白给从者的过程<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">，这也么得办法吧233。
+
+另，终章还会做吗？没关注情报。
+
+
+
+
+
+
+
+-----
+
+####  zakki  
+##### 3557#       发表于 2020-3-20 20:19
+
+
+
+
+21staff<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3558#       发表于 2020-3-20 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46815572&amp;ptid=1729513" target="_blank">zakki 发表于 2020-03-20 20:19:20</a>
+21staff</blockquote>居然有圣高雄，可惜不是负责的演出
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3559#       发表于 2020-3-20 23:00
+
+
+
+ 本帖最后由 wolegequaaa 于 2020-3-21 22:59 编辑 
+
+这集唯一的惊喜是穆尼埃尔终于有cv了
+
+
+
+终章制作决定
+
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 3560#       发表于 2020-3-21 22:59
+
+
+
+
+『Fate/Grand Order -終局特異点 冠位時間神殿ソロモン-』　制作決定―――
+
+最後の指令―。アニメ『Fate/Grand Order -終局特異点　冠位時間神殿ソロモン-』の続報にご期待ください。
+
+[https://anime.fate-go.jp/ep7-tv/](https://anime.fate-go.jp/ep7-tv/)
+
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1gd1xzeoxqdj21jz0u0gtq.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3561#       发表于 2020-3-21 23:03
+
+
+
+
+制作决定？
+
+
+冠位能有多少剧情，填一个季番不行，是准备做个电视特番还是剧场版？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+最终回就是把之前羽蛇神夜谈给补了一下，早不砍就啥事都没<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+剩下就是把CCC闪的SG剧情给补了一下，让人困惑的是为什么回忆里头闪光着屁股。fate还是不要再续个十年了，不敢想象十年后小关这嗓子得老化成什么样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3562#       发表于 2020-3-21 23:08
+
+
+
+
+第七章没能把最终战做好，然后宣布终章制作给我的感觉就和脱裤子放屁一样<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷇音子  
+##### 3563#       发表于 2020-3-21 23:09
+
+
+
+
+冠位时间神殿监督是驼鹿？
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 3564#       发表于 2020-3-21 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827358&amp;ptid=1729513" target="_blank">消防 发表于 2020-3-21 23:03</a>
+
+制作决定？
+
+
+冠位能有多少剧情，填一个季番不行，是准备做个电视特番还是剧场版？</blockquote>
+   既然有幼闪了指不定以后会出个老闪嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzxa  
+##### 3565#       发表于 2020-3-21 23:18
+
+
+
+
+应该是做成年末特番
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 3566#       发表于 2020-3-21 23:21
+
+
+
+
+联动从者有没有戏份
+
+
+
+
+
+
+
+-----
+
+####  RUANHYC  
+##### 3567#       发表于 2020-3-21 23:22
+
+
+
+
+看到终章制作....最后主角的肉搏能搞好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3568#       发表于 2020-3-21 23:27
+
+
+
+
+这部已经证明了赤井俊文就是个画画的懂个p的fgo，如果终章主要staff不变我实在没法看好
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 3569#       发表于 2020-3-21 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按20集的搞法，怕不又是每人开个宝具走个过场，然后让路主角来终结。。。
+
+
+
+
+
+
+
+-----
+
+####  rzxa  
+##### 3570#       发表于 2020-3-21 23:31
+
+
+
+
+最后一集提妈圣杯去哪了
+
+金皮卡怎么不消失
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3571#       发表于 2020-3-21 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827578&amp;ptid=1729513" target="_blank">RUANHYC 发表于 2020-3-21 23:22</a>
+
+看到终章制作....最后主角的肉搏能搞好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角这边倒是没啥，要是搞出人王对着盾一顿乱锤的镜头人王的逼格怕不是掉得比王哈还快
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3572#       发表于 2020-3-21 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827626&amp;ptid=1729513" target="_blank">wolegequaaa 发表于 2020-03-21 23:27:35</a>
+这部已经证明了赤井俊文就是个画画的懂个p的fgo，如果终章主要staff不变我实在没法看好 ...</blockquote>赤井着实不行，当年蝈23就是他负责的演出，拉夸到极致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  AbigailWilliams  
+##### 3573#       发表于 2020-3-21 23:37
+
+
+
+
+nga喜事丧办办的这么大，20集的效果真的和杀了他们全家效果一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  KozueAkimoto  
+##### 3574#       发表于 2020-3-21 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827684&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-3-21 23:32</a>
+赤井着实不行，当年蝈23就是他负责的演出，拉夸到极致
+
+  -- 来自 有消息提醒的 Stage1官方 Android ...</blockquote>
+其实我就是看他当年在gainax待过所以我才看这部片的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（G社脑残粉）
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3575#       发表于 2020-3-21 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827776&amp;ptid=1729513" target="_blank">KozueAkimoto 发表于 2020-03-21 23:40:43</a>
+其实我就是看他当年在gainax待过所以我才看这部片的（G社脑残粉）</blockquote>G社能打的也就痞子今石鹤巻那群人，赤井这种在JZDD手下打工的水平能高到哪里去
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  KozueAkimoto  
+##### 3576#       发表于 2020-3-21 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827806&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-3-21 23:43</a>
+G社能打的也就痞子今石鹤巻那群人，赤井这种在JZDD手下打工的水平能高到哪里去
+
+  -- 来自 有消息提醒的 St ...</blockquote>
+两个不做动画，剩下一个今石我总不可能废燃一辈子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。也忒难受了
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 3577#       发表于 2020-3-21 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827858&amp;ptid=1729513" target="_blank">KozueAkimoto 发表于 2020-03-21 23:48:41</a>
+两个不做动画，剩下一个今石我总不可能废燃一辈子吧。也忒难受了</blockquote>痞子哥哥今年还有EVA4.0呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                              
