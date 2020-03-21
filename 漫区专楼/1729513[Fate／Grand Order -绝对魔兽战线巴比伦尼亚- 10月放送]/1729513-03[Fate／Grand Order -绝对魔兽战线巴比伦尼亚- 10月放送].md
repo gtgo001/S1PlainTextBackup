@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-22 00:07** 
+> ## **本文件最后更新于2020-03-22 02:04** 
 
 
 
@@ -11202,4 +11202,444 @@ G社能打的也就痞子今石鹤巻那群人，赤井这种在JZDD手下打工
 
 
 
-                              
+
+
+-----
+
+####  8aa8aa8aa  
+##### 3578#       发表于 2020-3-22 00:27
+
+
+
+ 本帖最后由 8aa8aa8aa 于 2020-3-22 00:35 编辑 
+
+原作剧情因为是原作是手游的原因，整体节奏本来就很拉胯，全靠敌人游戏难度上的震撼感，和设定上的逼格。战斗场面基本上只能靠留白，靠玩家自己想象。
+现在动画基本全照搬游戏的剧情节奏，但战斗除了牛肉丸VS美杜莎的那一场还算可圈可点，其余都是站桩式打斗。设定方面的表现毫无想象力，大概弄一弄，照搬游戏画面和设定图就算了。白瞎了这么充足的工期和还算优良的制作了。
+整体来说，要说多差，其实也没多差，还算能看。但对不起开播前的高期待，和手游的高人气。对比UFO制作的FATE系列，甚至是FA，本次FGO第七章凸出一个中庸没追求。制作组只对着牛若丸厨力输出，其余全部等过且过。
+大概是因为没有强力系列构成的锅
+
+终章谨慎不看好。
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 3579#       发表于 2020-3-22 00:28
+
+
+
+
+终章要动画化了，等第二部完结，第二部动画化的希望有了
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3580#       发表于 2020-3-22 00:32
+
+
+
+
+最后赢了的是羽蛇神啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过把头上那堆花里胡哨的去了居然意外的有知性美人的感觉
+
+终章最大的问题是代入感，玩过游戏的不说，路人对前面略过的那五章真的不会一头雾水？这个不处理好还是GG
+
+
+
+
+
+
+
+-----
+
+####  消防  
+##### 3581#       发表于 2020-3-22 00:37
+
+
+
+<blockquote>8aa8aa8aa 发表于 2020-3-22 00:27
+原作剧情因为是原作是手游的原因，整体节奏本来就很拉胯，全靠敌人游戏难度上的震撼感，和设定上的逼格。战 ...</blockquote>
+至今没想明白作画资源为什么堆在了牛肉丸和羽蛇神身上
+
+20回决战四个宝具（哦不对，三个，王哈的没了）开的效果都非常平庸，最终BOSS战像是憋着一口气最后放了个闷屁
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3582#       发表于 2020-3-22 00:38
+
+
+
+
+就这？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+下次再信fate玩家吹剧情我把脑袋拧下来当球踢
+
+
+
+
+
+
+
+-----
+
+####  warlock228  
+##### 3583#       发表于 2020-3-22 00:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">这片子  唔。。。bgm好燃哇。。。没了
+
+
+
+
+
+
+
+-----
+
+####  elflie  
+##### 3584#       发表于 2020-3-22 00:40
+
+
+
+
+收尾还是那股菌味，跟0话的感觉差不多，不过中间的剧情实在是太拉胯了
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 3585#       发表于 2020-3-22 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828195&amp;ptid=1729513" target="_blank">warlock228 发表于 2020-3-22 00:40</a>
+
+这片子  唔。。。bgm好燃哇。。。没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">BGM好燃？？？
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 3586#       发表于 2020-3-22 00:42
+
+
+
+
+这动画是不是staff里有厨就好办事啊，之前制作组里有个牛若丸厨于是牛若丸打戏全剧看点，有金固/恩奇都厨于是给金固加了不少内心描写戏份，真就我上头有人啊
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 3587#       发表于 2020-3-22 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828211&amp;ptid=1729513" target="_blank">清风朗月 发表于 2020-3-22 00:42</a>
+
+这动画是不是staff里有厨就好办事啊，之前制作组里有个牛若丸厨于是牛若丸打戏全剧看点，有金固/恩奇都厨于 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反过来想要是staff里没厨，这片唯一能看的都没了
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 3588#       发表于 2020-3-22 00:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草笑死
+
+<img src="https://img.saraba1st.com/forum/202003/22/005041qiqyjq5jkyylvrd7.png" referrerpolicy="no-referrer">
+
+
+<strong>CY[zQ63D~W59LY~({JTTB.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2020-3-22 00:50 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/22/005045ct0d12w2dpzyqtth.png" referrerpolicy="no-referrer">
+
+
+<strong>AJ6W]R]E_8W8{E2P91CP0H4.png</strong> (200.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-22 00:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  dhddhh  
+##### 3589#       发表于 2020-3-22 01:01
+
+
+
+
+看完21话就一个感觉，终于可以不用每周跟着看了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3590#       发表于 2020-3-22 01:02
+
+
+
+
+组织了半天语言发现这玩意要喷起来其实除了几个众所周知的毒点没啥好喷的，但追番体验实在很难说好，6/10吧
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 3591#       发表于 2020-3-22 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827427&amp;ptid=1729513" target="_blank">鷇音子 发表于 2020-3-21 23:09</a>
+
+冠位时间神殿监督是驼鹿？</blockquote>
+艹，你这个联想，我一下没反应过来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 3592#       发表于 2020-3-22 01:07
+
+
+
+
+脑补了下终章每个柱子出来都要念一段那里笑得快死了，组长辛苦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清风朗月  
+##### 3593#       发表于 2020-3-22 01:24
+
+
+
+
+这集把CCC当年的闪闪过场SG都搬过来了，说实话当年边玩边看汉化的时候还没觉得金先生和恩奇都关系多么密切（FZ小说那段初看我以为金先生是看花眼了），后来才了解了一些，但是动画这段真的把他俩人的关系描写得实在是有种让人看了不得不重新审视的感觉
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 3594#       发表于 2020-3-22 01:24
+
+
+
+
+漫画版的主角有魅力多了
+
+
+
+
+
+
+
+-----
+
+####  noobtizi  
+##### 3595#       发表于 2020-3-22 01:27
+
+
+
+
+从头到尾能看的只有梅林
+
+
+
+
+
+
+
+-----
+
+####  恤兵真綿  
+##### 3596#       发表于 2020-3-22 01:37
+
+
+
+
+呵呵
+
+
+
+
+
+
+
+-----
+
+####  yukinosarai  
+##### 3597#       发表于 2020-3-22 01:39
+
+
+
+
+看完了，好看
+
+虽然通篇有拉胯的地方，但蘑菇设计的结构框架和立意基本算是表达出来了
+
++1吧
+
+
+
+
+
+
+
+-----
+
+####  天天那个啥  
+##### 3598#       发表于 2020-3-22 01:40
+
+
+
+
+早从第零话出来我就说了终章肯定要做，否则这整个故事都不完整，玛修和医生的塑造也没有完成。只是现在看起来终章做出来未必是好事，希望就来个OVA特番之类的吧。
+
+话说上一集我还没看完，正在考虑要不要干脆弃掉
+
+—— 来自 HUAWEI NXT-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  恤兵真綿  
+##### 3599#       发表于 2020-3-22 01:51
+
+
+
+
+不过居然把ccc的内容做出来了，这太好了
+
+
+
+
+
+
+
+-----
+
+####  blackjeo1  
+##### 3600#       发表于 2020-3-22 01:57
+
+
+
+
+   这动画现在看来能大致接受的受众的是一些角色厨和没玩过游戏的观众吧，沉迷于纸片人游戏的粉丝反倒是喷得最厉害的，其实这也算是日本游戏改编过来的动画的通病吧，好像真没几个能改编得让人满意的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  carrybone  
+##### 3601#       发表于 2020-3-22 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828190&amp;ptid=1729513" target="_blank">远影 发表于 2020-03-22 00:38:02</a>
+就这？
+下次再信fate玩家吹剧情我把脑袋拧下来当球踢</blockquote>其实剧情一直就那样，在（一堆厕纸中）属于能看，不过主要目的还是老婆模拟器，就算是被吹上天的CCC活动也是因为有莉莉丝老婆，认真分析剧情真的很老套<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">反正我每年最期待的就是泳装看看有什么新卡，其他随意吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                             
