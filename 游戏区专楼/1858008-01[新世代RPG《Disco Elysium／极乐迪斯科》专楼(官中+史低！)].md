@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-21 06:02** 
+> ## **本文件最后更新于2020-03-21 14:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_zYUIu" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_ikr4m" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -14442,4 +14442,619 @@ PS：“三流”、“乱七八糟”以及“玩起来最影响体验最烂最
 
 
 
-                         
+
+
+-----
+
+####  kuhailz  
+##### 725#       发表于 2020-3-21 06:41
+
+
+
+
+反白说下通关感受吧：
+世界观很出色，各种细节都很现实，使得最后的超现实竹节虫有很大的反差感，宗教味很强。但是对于小城之外的世界观描写全靠文字，还有各种历史什么的，记起来挺累。这种类型的科幻小说有不少，改编现实历史然后换名字，当然讲意识形态斗争的是不多。但是这个意识形态内化系统感觉游戏中意义不算很大，主要还是观赏。任务类型比较单调，就是跑路对话检定，虽然总体推进很自由但完成一个任务的方法也比较单一。中后期跑腿读盘有些烦躁感，就是隔了几步路的人让你来回传话。另外剧情居然办完案就结束了，还以为会有工人暴动乃至内战的高潮呢。总体感觉剧本作者对工人阶级有一些偏见，主要在配角的描写上比较脸谱化，除了金和主人公之外没有一个很出彩的配角，整体屁股还是偏反g，有点伤痕文学内味。
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 726#       发表于 2020-3-21 07:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818404&amp;ptid=1858008" target="_blank">茛菪 发表于 2020-03-21 05:24:06</a>
+爬虫脑是现实中神经科学的一个概念，来自三重脑模型  ，该模型把人类大脑分成三部分，爬虫脑、古哺乳动物 ...</blockquote>这个有意思，这是用了个相对过时的脑科学术语啊。那这就和另一个声音边缘系统能凑上了。都是脑科学术语。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  whmearth  
+##### 727#       发表于 2020-3-21 08:24
+
+
+
+
+骰点党小心点汉化版sl多了当前游戏会无法存档，我以为是存档满了就都删了。。。
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 728#       发表于 2020-3-21 08:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818449&amp;ptid=1858008" target="_blank">kuhailz 发表于 2020-3-21 06:41</a>
+
+反白说下通关感受吧：
+
+世界观很出色，各种细节都很现实，使得最后的超现实竹节虫有很大的反差感，宗教味很 ...</blockquote>
+说明还有太多线索你没玩到啊……教堂任务线的故事没玩完吧
+
+ex-wife说meta那段，其实算是剧透了palerunner成就
+
+如果你communism玩到足够高，你会发现在所有人当中只有evrart和joyce是最理想主义的
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 729#       发表于 2020-3-21 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818866&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-21 08:51</a>
+
+说明还有太多线索你没玩到啊……教堂任务线的故事没玩完吧
+
+ex-wife说meta那段，其实算是剧透了palerunner ...</blockquote>
+教堂我只玩到让那个女程序员发现这里是世界灰物质的原点？一个神秘但是有超级噪音的小洞？之后就没有人发任务了，不知道算不算结束。
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 730#       发表于 2020-3-21 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46819165&amp;ptid=1858008" target="_blank">kuhailz 发表于 2020-3-21 09:29</a>
+
+教堂我只玩到让那个女程序员发现这里是世界灰物质的原点？一个神秘但是有超级噪音的小洞？之后就没有人发 ...</blockquote>
+不算，你跳过了你刚刚疑问的部分“为什么哈德彪能看到对话树”而且这部分剧情非常的热血
+
+
+
+
+
+
+
+-----
+
+####  读书妖怪朱鹭子  
+##### 731#       发表于 2020-3-21 10:58
+
+
+
+
+感觉金小哥男友力爆表......这种有原则又愿意陪你胡闹的好兄弟简直太棒。
+呃，金在身边实在不忍心做坏事，结果一周目现在已经玩成抱歉神探了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 732#       发表于 2020-3-21 11:02
+
+
+
+ 本帖最后由 NeverwinterN 于 2020-3-21 12:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">两个打完就想着竹节虫的了，就两天玩成这样意料之中，不过我已经有点开始怀疑汉化到底怎么样了。
+
+再次提醒，这游戏真的没必要逼着自己玩的，打到一半知道这游戏本来面貌没兴趣了很正常。而且信息量这么大的文本不累才不正常，觉得累了干点其他事情缓一下，否则一个shiver(天人感应？)环顾这个城市别人辛辛苦苦写得字全被你跳了，对谁都没好处。
+
+看不进去字了和眼睛瞎了能有什么区别。
+
+
+
+
+
+
+
+-----
+
+####  JSL555  
+##### 733#       发表于 2020-3-21 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46811656&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-20 13:54</a>
+还有你不喷昆虫学家的引虫剂是“抓不到”虫子的，那个检定必定失败。</blockquote>
+竹节虫支线我这里是把蝗虫被偷的笼子重新放诱饵，回去对话昆虫学家已经高烧回家，夫人说竹节虫是虚构的支线不了了之。
+这是正确走向还是哪里走错了。
+
+
+
+
+
+
+
+-----
+
+####  estrellas  
+##### 734#       发表于 2020-3-21 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818371&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-21 04:49</a>
+
+几百年前是指德洛莉丝在位的历史时期吧。她本人作为游戏里宗教式的道德主义象征失去了追随者。哈里也和前女 ...</blockquote>
+感觉是一种具有象征性的解释，但是还是不能特别满意<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">个人觉得这世界观还是有些超自然元素的，神秘动物学家夫妇和巨大竹节虫太让人在意了，如果只是单纯的象征物，我觉得应该只有主角自己可以看到，但是金也能看到还能拍下照片就很奇妙了
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 735#       发表于 2020-3-21 11:15
+
+
+
+ 本帖最后由 NeverwinterN 于 2020-3-21 11:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820108&amp;ptid=1858008" target="_blank">JSL555 发表于 2020-3-21 11:08</a>
+
+竹节虫支线我这里是把蝗虫被偷的笼子重新放诱饵，回去对话昆虫学家已经高烧回家，夫人说竹节虫是虚构的支 ...</blockquote>
+还有后续，接着往下面玩，到快要结尾才是这个支线完全完成的地方。
+
+
+这个支线除了喷不喷引虫剂应该没什么不同的地方。
+
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 736#       发表于 2020-3-21 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46817848&amp;ptid=1858008" target="_blank">最好不说 发表于 2020-3-21 00:20</a>
+
+十三个思维格子终于开满了，三教九流每次博学被动检定都加10经验和2雷亚尔，刷钱和经验只要装这个思维就行 ...</blockquote>
+三教九流中心至少要等第三天水闸修好去旧大楼那里才能触发思维吧
+
+
+
+
+
+
+
+-----
+
+####  101kl  
+##### 737#       发表于 2020-3-21 11:20
+
+
+
+ 本帖最后由 101kl 于 2020-3-21 11:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">话说我电脑实在太菜了，结果时不时加载不出建筑，面对着一片大海抓瞎，加剧了我的迷路
+
+现在第三天大半夜在从教堂摸索着回渔村，思考是干脆就在渔村住了还是回去找吸烟男
+
+说起来和金总结一天的任务只有第一天有吗，我还挺想每天总结的
+
+
+
+
+
+
+
+-----
+
+####  JSL555  
+##### 738#       发表于 2020-3-21 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820175&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-21 11:15</a>
+还有后续</blockquote>
+能在**战前把凶手找出来吗。凶器和小岛上的弹道轨迹找不到，**战说服不动只能拼火了。
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 739#       发表于 2020-3-21 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820349&amp;ptid=1858008" target="_blank">JSL555 发表于 2020-3-21 11:33</a>
+
+能在**战前把凶手找出来吗。凶器和小岛上的弹道轨迹找不到，**战说服不动只能拼火了。 ...</blockquote>
+火拼必定会发生。
+
+
+it's not harry's fault. But harry can make it less painful.
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 740#       发表于 2020-3-21 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820220&amp;ptid=1858008" target="_blank">101kl 发表于 2020-3-21 11:20</a>
+
+话说我电脑实在太菜了，结果时不时加载不出建筑，面对着一片大海抓瞎，加剧了我的迷路
+
+现在第三天大 ...</blockquote>
+好像只有第一天，之后几天我都在酒店住我也没见小金跟我总结。
+
+
+
+
+
+
+
+-----
+
+####  啊孤独感放辣椒  
+##### 741#       发表于 2020-3-21 11:48
+
+
+
+
+怎么刷钱啊，最大的款项就是船上的女人给的120(？)，捡瓶子只有几毛钱
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 742#       发表于 2020-3-21 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820215&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-21 11:20</a>
+三教九流中心至少要等第三天水闸修好去旧大楼那里才能触发思维吧</blockquote>
+对，前两天找公司代表触发第十五个寡头公司和旧事如新也可以
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 743#       发表于 2020-3-21 11:55
+
+
+
+
+沿着房顶提前去找工会老大了，会有什么影响吗
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 744#       发表于 2020-3-21 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820543&amp;ptid=1858008" target="_blank">啊孤独感放辣椒 发表于 2020-3-21 11:48</a>
+怎么刷钱啊，最大的款项就是船上的女人给的120(？)，捡瓶子只有几毛钱</blockquote>
+到处搜东西去当铺卖，一张明信片一般都能卖几块钱
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 745#       发表于 2020-3-21 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820642&amp;ptid=1858008" target="_blank">seki_m 发表于 2020-3-21 11:55</a>
+
+沿着房顶提前去找工会老大了，会有什么影响吗</blockquote>
+话说房顶怎么沿着边走啊，没有找到能上去的地方......
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 746#         楼主| 发表于 2020-3-21 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820718&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-21 11:59</a>
+
+话说房顶怎么沿着边走啊，没有找到能上去的地方......</blockquote>
+在房顶会看到一件衣服，跳过去后就不能回头了，除了一小公寓，会直接到达老大办公室
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 747#       发表于 2020-3-21 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820718&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-21 11:59</a>
+
+话说房顶怎么沿着边走啊，没有找到能上去的地方......</blockquote>
+在吊人院子里找找吧 线索就在里面
+
+我有点后悔上去，感觉剧情推进了一大截
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 748#       发表于 2020-3-21 12:17
+
+
+
+<blockquote>NeverwinterN 发表于 2020-3-21 11:02
+两个竹节虫了，就两天玩成这样意料之中，不过我已经有点开始怀疑汉化到底怎么样了。
+
+
+再次提醒，这 ...</blockquote>
+竹节虫和教堂两个支线就是可以刻意设定成非常容易卡住的。在B站上看了一个15小时清光所有支线的老ass主播也卡住了
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 749#       发表于 2020-3-21 12:28
+
+
+
+ 本帖最后由 NeverwinterN 于 2020-3-21 12:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820938&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-3-21 12:17</a>
+竹节虫和教堂两个支线就是可以刻意设定成非常容易卡住的。在B站上看了一个15小时清光所有支线的老ass主播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我感叹的是打完游戏注意力都集中在竹节虫上了，这个支线对于整个故事个人觉得只是一个“锦上添花”的程度吧。就算去掉也不怎么会影响这个结局对我的那种“于无声处听惊雷”的震撼（非无题中的含义，不是准确的表达）。 
+
+当然这只是我个人感受，哈姆雷特的那句话这里还是适用的。
+
+
+
+
+
+
+
+-----
+
+####  米格  
+##### 750#       发表于 2020-3-21 12:37
+
+
+
+
+打完了，很爽，很强。刚开始的时候以为这个游戏是复杂而充满不妥协的，但后来发现这个游戏设计的非常温柔，碰壁了总能找到办法，，各个地方环环相扣，十分精致。剧情立意不评判，但它确实很RPG：玩家只是参与一个故事，怎么做怎么想还得看自己
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 751#       发表于 2020-3-21 12:40
+
+
+
+<blockquote>NeverwinterN 发表于 2020-3-21 12:28
+我感叹的是打完游戏注意力都集中在竹节虫上了，这个支线对于整个故事个人觉得只是一个“锦上添花 ...</blockquote>
+看个人怎么理解了，确实有很多玩家觉得这游戏讨论大boss的动机很没劲，但竹节虫演出和文本效果爆炸；还有玩家觉得这是个爱情游戏，最后那个梦才是游戏的精髓
+
+这也是这游戏神奇的地方，不同玩家对哪一部分才是游戏核心主旨的理解都能完全不一样
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 752#       发表于 2020-3-21 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46820869&amp;ptid=1858008" target="_blank">seki_m 发表于 2020-3-21 12:10</a>
+
+在吊人院子里找找吧 线索就在里面
+
+我有点后悔上去，感觉剧情推进了一大截 ...</blockquote>
+不会，工会老大早找好过迟找
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 753#       发表于 2020-3-21 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46821225&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-3-21 12:40</a>
+
+看个人怎么理解了，确实有很多玩家觉得这游戏讨论大boss的动机很没劲，但竹节虫演出和文本效果爆炸；还有 ...</blockquote>
+竹节虫在前面的铺垫给得太足了，或者说昆虫学家的这个设定“刻意”的感觉太强烈了。get reality down这个任务，后续joyce和你揭示pale的事实，以及教堂的2mm空洞，在得知了这些后，任何一个地方出现了竹节虫我的态度都会是“终于找到它了”而不是“它真的存在”——对我来说竹节虫就是一个提醒，即“这个世界和屏幕前的你所处的世界是不一样的”，但是这个信息我在之前已经接收过了，只不过之前需要玩家去意识到，现在直接就糊脸了。
+
+
+锦上添花的“花”是把竹节虫和那位康米战士放在了一起，没了康米战士这个竹节虫挺无聊的。
+
+
+
+
+
+
+
+-----
+
+####  warjuggler  
+##### 754#       发表于 2020-3-21 13:21
+
+
+
+
+玩到第五天有些npc不见了是就错过这个支线任务了么，要找盔甲手套任务指示是找渔村的小女孩应该是指的小莉莉吧？但是去棚屋里已经没人了是咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mjzs07  
+##### 755#       发表于 2020-3-21 13:27
+
+
+
+
+这个没有要出ns版？
+
+
+
+
+
+
+
+-----
+
+####  国家免检虎B  
+##### 756#       发表于 2020-3-21 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46821695&amp;ptid=1858008" target="_blank">mjzs07 发表于 2020-3-21 13:27</a>
+这个没有要出ns版？</blockquote>
+官方人员有表达一点暧昧的态度，不过不能拿来当实锤就是
+
+—— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 757#       发表于 2020-3-21 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46821644&amp;ptid=1858008" target="_blank">warjuggler 发表于 2020-3-21 13:21</a>
+玩到第五天有些npc不见了是就错过这个支线任务了么，要找盔甲手套任务指示是找渔村的小女孩应该是指的小莉 ...</blockquote>
+应该和时间有关，我是白天找的。
+
+
+
+
+
+                        
