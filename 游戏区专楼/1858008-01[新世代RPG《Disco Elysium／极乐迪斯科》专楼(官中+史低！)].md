@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-22 12:02** 
+> ## **本文件最后更新于2020-03-23 00:07** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_JacaP" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_F37kW" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -16045,4 +16045,643 @@ You're a man with a fork in the world of soup 这种也非要意译，还好第�
 
 
 
-                      
+
+
+-----
+
+####  wx98707707  
+##### 812#       发表于 2020-3-22 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46830837&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-22 11:25</a>
+
+全能力3的话，主动判定和被动判定的通过率相差会非常大。</blockquote>
+主动判定是指掷骰子那个么？那被动判定是啥？对话中出现的XXXX（技能）:极易或者中等，后面再跟个成功失败那个么？
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 813#       发表于 2020-3-22 12:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">6智4感1体1敏开局，在电风扇上连死两次，太草了。
+
+极乐迪斯科，关闭！
+
+
+
+
+
+
+
+-----
+
+####  風卷豹  
+##### 814#       发表于 2020-3-22 12:38
+
+
+
+
+各种成功率七八十检定失败的酸爽<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  LoveAntique  
+##### 815#       发表于 2020-3-22 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829038&amp;ptid=1858008" target="_blank">asami 发表于 2020-3-22 08:10</a>
+
+加点影响大部分选项的成功率，但是可以sl
+
+和观察力没多大关系，不要求加点的选项基本都无惩罚。实际上我 ...</blockquote>
+加点不光影响选项成功率，实际上会影响整个游戏中你会看到哪些对话，解锁其他对话选项或者提供其他信息，导致完全不同的体验
+
+
+因为除了主动检定之外，还有被动检定。
+
+被动检定的方式是技能点数+6&gt;=判定条件，简单=8点（即2点技能），中等=10点，挑战=12点，传奇=14点（即8点），impossible=20点（即14点）
+
+绝大部分被动检定在传奇以下，即8点差不多就能看到该分支下绝大部分对话
+
+
+所以最好能有智力精神体质身手四项最好有两项超过4点（初始4点，能升4级，即8点）
+
+
+
+
+
+
+
+-----
+
+####  LoveAntique  
+##### 816#       发表于 2020-3-22 12:56
+
+
+
+ 本帖最后由 LoveAntique 于 2020-3-22 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46831335&amp;ptid=1858008" target="_blank">wx98707707 发表于 2020-3-22 12:15</a>
+
+主动判定是指掷骰子那个么？那被动判定是啥？对话中出现的XXXX（技能）:极易或者中等，后面再跟个成功失 ...</blockquote>
+对，主动是掷骰子，被动是对话里出现的那些
+
+
+被动不用掷，直接是按技能点+6来计算
+
+全3加点的话，会错过很多被动判定
+
+
+
+
+
+
+
+-----
+
+####  wx98707707  
+##### 817#       发表于 2020-3-22 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46831857&amp;ptid=1858008" target="_blank">LoveAntique 发表于 2020-3-22 12:56</a>
+
+对，主动是掷骰子，被动是对话里出现的那些
+
+
+被动不用掷，直接是按技能点+6来计算 ...</blockquote>
+那被动不够的话是判定失败还是直接不会在对话中出现？我是看到有几次是出现了但是显示失败
+
+
+
+
+
+
+
+-----
+
+####  LoveAntique  
+##### 818#       发表于 2020-3-22 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46831869&amp;ptid=1858008" target="_blank">wx98707707 发表于 2020-3-22 12:57</a>
+
+那被动不够的话是判定失败还是直接不会在对话中出现？</blockquote>
+应该两种情况都有吧
+
+
+
+
+
+
+
+-----
+
+####  PNK  
+##### 819#       发表于 2020-3-22 13:07
+
+
+
+ 本帖最后由 PNK 于 2020-3-22 13:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46831335&amp;ptid=1858008" target="_blank">wx98707707 发表于 2020-3-22 12:15</a>
+
+主动判定是指掷骰子那个么？那被动判定是啥？对话中出现的XXXX（技能）:极易或者中等，后面再跟个成功失 ...</blockquote>
+对话的时候有时“继续”不是纯红色的，而是四种属性的颜色，这个时候点继续就会用对应的属性进行判定，就是被动判定
+
+主动是对话选项里面出现的，你可以选要不要进行判定，被动你没得选，必须判定
+
+
+
+
+
+
+
+
+-----
+
+####  幻影长矛手  
+##### 820#       发表于 2020-3-22 13:24
+
+
+
+
+通关了，个人感觉竹节虫是点睛之笔。另外教堂支线卡住了，怎么能跟那个维什么的人说话？还有吊人案的结局跟前面的选择有关系吗？如果没发现**最终还会找到岛上的逃兵吗？
+
+
+
+
+
+
+
+-----
+
+####  distancy  
+##### 821#       发表于 2020-3-22 13:49
+
+
+
+
+打了8小时才第二天刚做完尸检，我太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+另外这作销量怎么样，我看小黑盒上4.1万拥有量，更了中文后应该销量还挺好的
+
+
+
+
+
+
+
+-----
+
+####  gdsgdfhd  
+##### 822#       发表于 2020-3-22 13:53
+
+
+
+
+主角卡拉ok唱的太难听了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  msfan  
+##### 823#       发表于 2020-3-22 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46830246&amp;ptid=1858008" target="_blank">rxds 发表于 2020-3-22 10:32</a>
+
+一样的问题，求解释</blockquote>
+需要触发一个判定，触发之后能把鞋都穿上并完成任务。否则就是右脚的鞋有玻璃渣，无法完成任务。如何触发估计和初始加点有关，或者就看脸？
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 824#       发表于 2020-3-22 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46832479&amp;ptid=1858008" target="_blank">gdsgdfhd 发表于 2020-3-22 13:53</a>
+
+主角卡拉ok唱的太难听了。。。</blockquote>
+唱卡拉ok这个地方非常的诡异和有意思，有条件的可以再玩一次故意判定失败
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 825#       发表于 2020-3-22 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46832138&amp;ptid=1858008" target="_blank">幻影长矛手 发表于 2020-3-22 13:24</a>
+
+通关了，个人感觉竹节虫是点睛之笔。另外教堂支线卡住了，怎么能跟那个维什么的人说话？还有吊人案的结局跟 ...</blockquote>
+爱凡客对话如果卡住了，前面四次全部选沉默，后面看着选
+
+
+
+
+
+
+
+
+-----
+
+####  gdsgdfhd  
+##### 826#       发表于 2020-3-22 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46833791&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-3-22 15:56</a>
+
+唱卡拉ok这个地方非常的诡异和有意思，有条件的可以再玩一次故意判定失败 ...</blockquote>
+我这里就是判定失败了，主角歌声及其嘶哑，唱完以后场面无比尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 827#       发表于 2020-3-22 16:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">遇到BUG了，门的绿框都没了，旅店出不去了
+
+
+
+
+
+
+
+-----
+
+####  Archi666  
+##### 828#       发表于 2020-3-22 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827934&amp;ptid=1858008" target="_blank">最好不说 发表于 2020-3-21 23:56</a>
+
+第三天等水闸开了到渔村和老太太对话以后就能免费睡她那了</blockquote>
+所以第二天还是必须得给钱？那万一第二天钱还是不够不就卡关了
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 829#       发表于 2020-3-22 17:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46834547&amp;ptid=1858008" target="_blank">Archi666 发表于 2020-3-22 17:05</a>
+
+所以第二天还是必须得给钱？那万一第二天钱还是不够不就卡关了</blockquote>
+是的，不睡觉就到不了下一天，不过20块钱还是很好赚的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  roydimus  
+##### 830#       发表于 2020-3-22 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46834304&amp;ptid=1858008" target="_blank">Tienx 发表于 2020-3-22 16:43</a>
+
+遇到BUG了，门的绿框都没了，旅店出不去了</blockquote>
+把身上装备全脱掉再试试（
+
+这个bug遇到的人不少（
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Tienx| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 831#       发表于 2020-3-22 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46834547&amp;ptid=1858008" target="_blank">Archi666 发表于 2020-3-22 17:05</a>
+
+所以第二天还是必须得给钱？那万一第二天钱还是不够不就卡关了</blockquote>
+你撑到第三天就有免费房子住了。。不过我最气的是陶瓷装甲居然不能卖，我又不穿！
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 832#       发表于 2020-3-22 18:52
+
+
+
+ 本帖最后由 Tienx 于 2020-3-22 19:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46834952&amp;ptid=1858008" target="_blank">roydimus 发表于 2020-3-22 17:46</a>
+
+把身上装备全脱掉再试试（
+
+这个bug遇到的人不少（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怪事，竟然好了，看来以后出门前都要脱光光了
+
+找出原因了，大四眼处方眼镜使我看不到绿框
+
+我怀疑是因为这眼镜把我五感发达减到-1，所以我看不见门了
+
+
+
+
+
+
+
+-----
+
+####  无心而死  
+##### 833#       发表于 2020-3-22 20:49
+
+
+
+
+求问有没有6666的开局档
+
+多周目了想直接体验全x全收
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 834#       发表于 2020-3-22 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46836925&amp;ptid=1858008" target="_blank">无心而死 发表于 2020-3-22 20:49</a>
+求问有没有6666的开局档
+
+多周目了想直接体验全x全收</blockquote>
+叮达人呗
+
+
+
+
+
+
+
+-----
+
+####  aiooia  
+##### 835#       发表于 2020-3-22 21:00
+
+
+
+
+求助下~
+
+关于竹节虫那个系列任务，我ROLL过了老太的判定，而且记得也接到了新任务，第二天早上醒来跑过去一看发现自己的任务已经在昨儿晚上结了？？求问下这个任务是自动结没后续还是我没注意出啥岔子了？？（据上个存档中间有整整2小时的游戏内容，真心不想读档啊……）
+
+还有关于诅咒商业区地下室的场外拷贝，有先行的老斯基说下我有必要拖着先不交，等拿了密码自己偷偷去看一遍么？
+
+
+
+
+
+
+
+-----
+
+####  gzGaryC  
+##### 836#       发表于 2020-3-22 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837063&amp;ptid=1858008" target="_blank">aiooia 发表于 2020-3-22 21:00</a>
+
+求助下~
+
+关于竹节虫那个系列任务，我ROLL过了老太的判定，而且记得也接到了新任务，第二天早上醒来跑过去一 ...</blockquote>
+竹节虫记得老太太走了之后就没有后续任务了；提前看拷贝里的内容需要先找密码，会影响一部分的对话，结局是一样的
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 837#       发表于 2020-3-22 21:51
+
+
+
+
+ 陶瓷装甲在哪里啊？尸体运走了我都没脱下靴子
+
+
+
+
+
+
+
+-----
+
+####  Trompete  
+##### 838#       发表于 2020-3-22 22:03
+
+
+
+
+找到两个紫蛋了但是装备界面里显示0是BUG吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 839#       发表于 2020-3-22 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837837&amp;ptid=1858008" target="_blank">Trompete 发表于 2020-03-22 22:03:57</a>
+找到两个紫蛋了但是装备界面里显示0是BUG吗</blockquote>不用管子弹，你几乎不会用到他的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Trompete  
+##### 840#       发表于 2020-3-22 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837910&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-22 22:10</a>
+
+不用管子弹，你几乎不会用到他的
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+虽然我也是这么想，其实我就在想是什么地方出的问题
+
+
+
+
+
+
+
+-----
+
+####  aiooia  
+##### 841#       发表于 2020-3-22 22:14
+
+
+
+<blockquote>seki_m 发表于 2020-3-22 21:51
+陶瓷装甲在哪里啊？尸体运走了我都没脱下靴子</blockquote>
+你需要把尸体放下来之后不选择继续直接离开，然后趁和金分开时再单独回来才能扒鞋子，尸体放下来直接搞完送检就没机会扒了。剩下三件手在渔村，胸在鱼市北边，头在小岛（注意对话选项且有的需要roll点）。
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 842#       发表于 2020-3-22 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837948&amp;ptid=1858008" target="_blank">Trompete 发表于 2020-3-22 22:13</a>
+
+虽然我也是这么想，其实我就在想是什么地方出的问题</blockquote>
+老实说我觉得就是因为“几乎不需要开**”所以他们压根就没做那么个**数系统
+
+
+
+
+
+
+
+-----
+
+####  564381634  
+##### 843#       发表于 2020-3-22 23:38
+
+
+
+
+这个是查案游戏不是名侦探金田一啊，最后两个属性只点1的话挺多地方会吃瘪的。很多地方有多个解法，不用纠结在一处。
+
+
+
+
+
+
+
+-----
+
+####  Kaltsit  
+##### 844#       发表于 2020-3-22 23:51
+
+
+
+
+瑞瓦拉民族性是不是有bug，喝了酒以后体格永久上升了2点。
+
+
+
+
+
+                     
