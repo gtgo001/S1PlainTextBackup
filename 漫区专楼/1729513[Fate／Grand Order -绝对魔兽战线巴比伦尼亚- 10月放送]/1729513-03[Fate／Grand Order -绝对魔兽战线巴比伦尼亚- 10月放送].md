@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-22 02:04** 
+> ## **本文件最后更新于2020-03-22 12:03** 
 
 
 
@@ -11642,4 +11642,592 @@ G社能打的也就痞子今石鹤巻那群人，赤井这种在JZDD手下打工
 
 
 
-                             
+
+
+-----
+
+####  清风朗月  
+##### 3602#       发表于 2020-3-22 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828537&amp;ptid=1729513" target="_blank">blackjeo1 发表于 2020-3-22 01:57</a>
+
+这动画现在看来能大致接受的受众的是一些角色厨和没玩过游戏的观众吧，沉迷于纸片人游戏的粉丝反倒是喷 ...</blockquote>
+我的看法可能不同角色厨才是这个动画最不满意的群体，这片播出到现在好像没见几个角色厨真叫好的，闪闪艾蕾弓凛梅林都要不同程度的让粉丝不舒心的地方，王哈上集把真爱厨和路人粉都得罪光了，唯一看的比较舒心的可能就是牛若丸，毕竟原作可没那么震撼的打戏，还有炎头也算吧，这都是原作光看文字感受不到的震撼
+
+
+
+
+
+
+
+-----
+
+####  hcf220  
+##### 3603#       发表于 2020-3-22 02:10
+
+
+
+
+手游剧情拉了是一部分 staff也要背锅 
+总体来说中规中矩 也没有必要专门看作画来补这片
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3604#       发表于 2020-3-22 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828556&amp;ptid=1729513" target="_blank">carrybone 发表于 2020-3-22 02:04</a>
+其实剧情一直就那样，在（一堆厕纸中）属于能看，不过主要目的还是老婆模拟器，就算是被吹上天的CCC活动也 ...</blockquote>
+游戏不知道，动画改出来的结果是，剧本连及格分都悬。然而开播之前fate玩家那个宣传口径可不是照着及格分吹的……
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3605#       发表于 2020-3-22 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828537&amp;ptid=1729513" target="_blank">blackjeo1 发表于 2020-3-22 01:57</a>
+这动画现在看来能大致接受的受众的是一些角色厨和没玩过游戏的观众吧，沉迷于纸片人游戏的粉丝反倒是喷 ...</blockquote>
+这动画服务的是哪门子路人观众啊……
+路人观众会对这剧情感觉到莫名其妙……设定上有理解门槛，中间的叙事摸不准轻重缓急，角色戏份（很有可能）与staff厨力密切相关，再来个小太刀火上浇油……不吃画面的观众得到的观感是非常糟糕的，吃画面的体验也只是略高一些。
+
+
+
+
+
+
+
+-----
+
+####  shikiasuka  
+##### 3606#       发表于 2020-3-22 02:31
+
+
+
+
+仔细想想18 19 20这三集决战回，因为做的不是一批人而且风格差异挺大的所以感觉观感有一种下降的感觉吧。至少把爆炸宝具比如20话的ea统一成web系那种整体要协调一点。阿部望的特效比他们到底哪里更抓路人的眼球？我盲猜是阿部汁带来的蓄力感
+
+
+
+
+
+
+
+-----
+
+####  warlock228  
+##### 3607#       发表于 2020-3-22 02:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828208&amp;ptid=1729513" target="_blank">qb0079 发表于 2020-3-22 00:41</a>
+
+BGM好燃？？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wolegequaaa  
+##### 3608#       发表于 2020-3-22 02:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">个人来说第七章最失败的地方还是剧情的节奏和衔接。单集剧情水平虽然参差不齐但是大部分还算过得去，连起来看却显得诡异。比如戈尔贡的后两次出场，19话和20话形成强烈反差的王哈，正常来讲这种前脚装逼后脚拉稀的操作一般出现在搞笑动画里，但是第七章动画里这种事情发生了最少三次。只能说在监督是赤井俊文这个菜逼的前提下这片还没有系构就tm离谱
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ty_cc| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  柴汪汪  
+##### 3609#       发表于 2020-3-22 03:12
+
+
+
+
+片子本身已经喷累了，不喷了
+看了第零集就知道肯定会有的终章居然微博一群人在那发问号和woc我是真的没想到…
+虽然你月要么不知道要么知道却不在意地完美错过了把握好节奏把片子拍的让人看着舒心的做法，但也不能这样啊…<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  居于月上伊莫库  
+##### 3610#       发表于 2020-3-22 03:31
+
+
+
+ 本帖最后由 居于月上伊莫库 于 2020-3-22 04:04 编辑 
+
+追下来体验大概就5.5/10的样子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。然后或许是周年特番放个终章，21年新年特番第二章序幕？
+
+
+
+
+
+
+
+
+-----
+
+####  stefanie张  
+##### 3611#       发表于 2020-3-22 08:51
+
+
+
+
+最后一集居然还行的样子，终章只要贞德部分不拉垮就好，那么多人不知道怎么做，是要全员报菜名吗，联动角色能出场吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黄字  
+##### 3612#       发表于 2020-3-22 09:01
+
+
+
+
+全球流水前十的手游，动画都是屎，到底是手游不行还是做动画的乐色已经不言而喻。
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 3613#       发表于 2020-3-22 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829368&amp;ptid=1729513" target="_blank">黄字 发表于 2020-3-22 09:01</a>
+全球流水前十的手游，动画都是屎，到底是手游不行还是做动画的乐色已经不言而喻。 ...</blockquote>
+手游原作剧情本身有问题，但不可能全把锅推给原作。动画化本来就是从其他载体转向动画这个载体的一个过程，很多情况下死抠原作本来就不适合。
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 3614#       发表于 2020-3-22 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829368&amp;ptid=1729513" target="_blank">黄字 发表于 2020-3-22 09:01</a>
+全球流水前十的手游，动画都是屎，到底是手游不行还是做动画的乐色已经不言而喻。 ...</blockquote>
+前十（❌）
+两年卫冕冠军（✔️）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tttsttt  
+##### 3615#       发表于 2020-3-22 09:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829555&amp;ptid=1729513" target="_blank">Stellar_Frost 发表于 2020-3-22 09:26</a>
+前十（❌）
+两年卫冕冠军（✔️）</blockquote>
+咦？农药做动画了？
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 3616#       发表于 2020-3-22 09:39
+
+
+
+
+终章如果不正视问题纠正指导思想的话，肯定会烂的。按现在这思路，到时候肯定是各路群演走秀流水线，观感不可能好
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 3617#       发表于 2020-3-22 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829621&amp;ptid=1729513" target="_blank">tttsttt 发表于 2020-3-22 09:34</a>
+咦？农药做动画了？</blockquote>
+世界手游流水第一真的不是农药<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noobtizi  
+##### 3618#       发表于 2020-3-22 09:50
+
+
+
+ 本帖最后由 noobtizi 于 2020-3-22 09:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829686&amp;ptid=1729513" target="_blank">Stellar_Frost 发表于 2020-3-22 09:39</a>
+世界手游流水第一真的不是农药</blockquote>
+那你是真想多了
+补个图<img src="http://p.sda1.dev/0/119e8824ddbd479fd172c03e5de2d00a/IMG_9F9055930044C18EBD0603DC9FF643CB.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黄字  
+##### 3619#       发表于 2020-3-22 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829686&amp;ptid=1729513" target="_blank">Stellar_Frost 发表于 2020-3-22 09:39</a>
+
+世界手游流水第一真的不是农药</blockquote>
+你不算国服安卓是FGO，算国服安卓是王者荣耀，可哪怕算上王者，已经有智龙、弹珠、fgo、王者四个做了动画了，全都是乐色。再加上全球第一收入端游dnf和梦幻西游，动画还是乐色<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">甚至巫师的网剧都挺乐色的。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Stellar_Frost| + 1|我忘了国服安卓...|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 3620#       发表于 2020-3-22 09:52
+
+
+
+ 本帖最后由 Stellar_Frost 于 2020-3-22 09:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829794&amp;ptid=1729513" target="_blank">noobtizi 发表于 2020-3-22 09:50</a>
+
+那你是真想多了</blockquote>
+您要是能证明废狗不是第一，我真的会很高兴
+<img src="https://i.loli.net/2020/03/22/SogXKzIRnu1ZViL.png" referrerpolicy="no-referrer">
+
+——————————————————
+
+
+已经证明了，我真的不希望这玩意是第一，谢谢大家
+
+
+
+
+
+
+
+-----
+
+####  noobtizi  
+##### 3621#       发表于 2020-3-22 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829827&amp;ptid=1729513" target="_blank">Stellar_Frost 发表于 2020-3-22 09:52</a>
+您要是能证明废狗不是第一，我真的会很高兴
+
+
+——————————————————</blockquote>
+你要是不算国服安卓那我也没办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3622#       发表于 2020-3-22 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828627&amp;ptid=1729513" target="_blank">远影 发表于 2020-3-22 02:26</a>
+游戏不知道，动画改出来的结果是，剧本连及格分都悬。然而开播之前fate玩家那个宣传口径可不是照着及格分 ...</blockquote>
+你是不是把剧情的表现方式和剧情混为一谈
+
+这个剧情除了收羽蛇神那段游戏本身没写好，动画也被人改得深井病
+
+其他方面连合格都没到？？哪怕我喷这动画我也无法认同你这个说法了
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3623#       发表于 2020-3-22 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829679&amp;ptid=1729513" target="_blank">ualiant 发表于 2020-3-22 09:39</a>
+终章如果不正视问题纠正指导思想的话，肯定会烂的。按现在这思路，到时候肯定是各路群演走秀流水线，观感不 ...</blockquote>
+唉……已经能想到那副景象了，死抠游戏一个个走出来报菜名，按游戏里到后来都会觉得墨迹，更别说会这样做的动画了
+
+其实就是做好贞德那段，然后随便挑几个人气高的当家花旦放放宝具就是了，把重点放在打人王身上就好
+
+不过不指望制作组有这个改编能力了
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 3624#       发表于 2020-3-22 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829987&amp;ptid=1729513" target="_blank">多汁多水 发表于 2020-3-22 10:08</a>
+
+唉……已经能想到那副景象了，死抠游戏一个个走出来报菜名，按游戏里到后来都会觉得墨迹，更别说会这样做 ...</blockquote>
+感觉问题一定程度上在于出品方太强势、ip又值钱，做动画的不敢放开了下手。
+
+我觉得动画要想做得好，要不然做成153漫画那种智者，要不然就把游戏里到处都做暗示却就是不做实的特异能力给做出来、到时候十回合拳击打趴残血人王
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3625#       发表于 2020-3-22 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46829907&amp;ptid=1729513" target="_blank">多汁多水 发表于 2020-3-22 10:00</a>
+你是不是把剧情的表现方式和剧情混为一谈
+
+这个剧情除了收羽蛇神那段游戏本身没写好，动画也被人改得深井 ...</blockquote>
+请教一下你的定义和评价标准？
+先说明我没玩过游戏，拿原作剧情来讲“是动画没表现出来”那duck不必，现在我不就是说动画剧情不行吗，谁让你不演出来的
+
+
+
+
+
+
+
+-----
+
+####  101kl  
+##### 3626#       发表于 2020-3-22 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么，终于完结了？
+
+终章我就看看贞德名台词配outbreak听个响
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3627#       发表于 2020-3-22 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46830088&amp;ptid=1729513" target="_blank">远影 发表于 2020-3-22 10:17</a>
+请教一下你的定义和评价标准？
+先说明我没玩过游戏，拿原作剧情来讲“是动画没表现出来”那duck不必，现 ...</blockquote>
+先请说出你认为合格的标准？？剧情的安排和转折设计哪怕是动画这版本整体都在合格水准上，根本不用扯到游戏，我喷动画是喷它没达到对得起大投入应带达到的高预期，不是说这就烂到“合格都悬”
+
+
+
+
+
+
+
+-----
+
+####  远影  
+##### 3628#       发表于 2020-3-22 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46830436&amp;ptid=1729513" target="_blank">多汁多水 发表于 2020-3-22 10:49</a>
+先请说出你认为合格的标准？？剧情的安排和转折设计哪怕是动画这版本整体都在合格水准上，根本不用扯到游 ...</blockquote>
+不是，首先我没明白你讲的“剧情的表现方式”是什么意思，是指演出吗？还是通常语境下的“节奏”？还是其他什么玩意儿？你不说明这个没法往下讨论啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  多汁多水  
+##### 3629#       发表于 2020-3-22 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46830075&amp;ptid=1729513" target="_blank">ualiant 发表于 2020-3-22 10:16</a>
+感觉问题一定程度上在于出品方太强势、ip又值钱，做动画的不敢放开了下手。
+
+我觉得动画要想做得好，要不 ...</blockquote>
+回想起来大概就是有点散沙的感觉吧
+
+现在想来大家可能都对初期展示出来的高投入太乐观了，其实如果企划资金并不是外界想象的随便花那么充裕，那就应该有一个敢说改就改的强势总监，把前期能免的打斗能砍就砍，把钱全用到后面最终战上的表现力还好一点
+
+
+
+
+
+
+
+-----
+
+####  KozueAkimoto  
+##### 3630#       发表于 2020-3-22 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827912&amp;ptid=1729513" target="_blank">阿姆罗二世 发表于 2020-3-21 23:54</a>
+痞子哥哥今年还有EVA4.0呢不过不看好痞子能一部填好之前那一堆坑，坐看痞子GG掉落神坛（虽然Q已经掉 ...</blockquote>
+还是希望他能做动画吧，不过他拍特摄开心过做动画也没办法
+
+
+
+
+
+
+
+-----
+
+####  海伯利安  
+##### 3631#       发表于 2020-3-22 11:25
+
+
+
+
+最后一集倒还可以
+
+
+
+
+
+                            

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-21 22:03** 
+> ## **本文件最后更新于2020-03-22 12:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_MAM6v" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_JacaP" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -12502,6 +12502,7 @@ ce或者三大妈啥都行，但是这游戏的失败文本也很多，全成功
 
 
 
+ 本帖最后由 tama_chan 于 2020-3-21 23:01 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46806839&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-20 01:43</a>
 
 这游戏有什么挣钱的法子吗…第一天的钱还是找船上的大姐借的
@@ -12510,7 +12511,7 @@ ce或者三大妈啥都行，但是这游戏的失败文本也很多，全成功
   -- 来自 能搜索的 Stage1官方 iOS客 ...</blockquote>
 钱：第十五个寡头公司，间接征税模式，三教九流中心
 
-经验：旧事如新，硬核美学，三教九流中心
+经验：旧事如新，正经艺术学位，三教九流中心
 
 
 
@@ -15504,4 +15505,544 @@ UHD630 竟然能玩？但这玩意怎么玩？有攻略么？<img src="https://s
 
 
 
-                       
+
+
+-----
+
+####  塔洛斯级  
+##### 783#       发表于 2020-3-21 22:04
+
+
+
+
+打开一个半小时已经遇到两个bug了... 鞋和不成一双 和书店老板女儿对话游戏直接崩了...
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 784#       发表于 2020-3-21 22:24
+
+
+
+
+bug，和小孩对话弯下腰就直不起来了，只能困在原地无限对话
+
+
+
+
+
+
+
+-----
+
+####  34789  
+##### 785#       发表于 2020-3-21 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46826738&amp;ptid=1858008" target="_blank">塔洛斯级 发表于 2020-3-21 22:04</a>
+
+打开一个半小时已经遇到两个bug了... 鞋和不成一双 和书店老板女儿对话游戏直接崩了... ...</blockquote>
+书店女儿也许是bug，鞋你要看窗户就知道了……
+
+
+
+
+
+
+
+-----
+
+####  Archi666  
+##### 786#       发表于 2020-3-21 22:51
+
+
+
+
+第二天没给旅馆钱在哪里可以睡觉啊？这么多空房间都有床我却只能在城里游荡。
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 787#       发表于 2020-3-21 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827251&amp;ptid=1858008" target="_blank">Archi666 发表于 2020-3-21 22:51</a>
+
+第二天没给旅馆钱在哪里可以睡觉啊？这么多空房间都有床我却只能在城里游荡。 ...</blockquote>
+睡大街长椅或者找kim借钱
+
+
+
+
+
+
+
+-----
+
+####  Archi666  
+##### 788#       发表于 2020-3-21 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827275&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-21 22:54</a>
+
+睡大街长椅或者找kim借钱</blockquote>
+互动长椅说现在应该睡觉而不是坐下，没有睡觉的选项。金在验尸完之后就自动回房睡觉了。
+
+其实我还是有钱的，刚刚又去旅店试了一下，凌晨一点还是可以给房钱睡觉的，还以为真像他说的必须得在9点前才行。。
+
+可是能不能不给那经理钱在外面将就一晚上啊，我不爽他很久了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 789#       发表于 2020-3-21 23:56
+
+
+
+<blockquote>Archi666 发表于 2020-3-21 23:29
+互动长椅说现在应该睡觉而不是坐下，没有睡觉的选项。金在验尸完之后就自动回房睡觉了。
+
+其实我还是有钱 ...</blockquote>
+第三天等水闸开了到渔村和老太太对话以后就能免费睡她那了
+
+
+
+
+
+
+
+-----
+
+####  Ton  
+##### 790#       发表于 2020-3-22 00:16
+
+
+
+
+看美术风格决定买了，但有几个问题
+
+这个游戏貌似可以自己选择智慧型还是战斗型的角色，那是否意味着给智力加点意味着玩家可以少动脑子，而给武力加点意味着玩家本身要多动脑子？
+
+还是说如果不加智力的话光靠玩家本身的观察和推理能力无法正常获取到一些信息？
+
+
+另外这个游戏的推理部分做的好不好？
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 791#       发表于 2020-3-22 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828063&amp;ptid=1858008" target="_blank">Ton 发表于 2020-3-22 00:16</a>
+
+看美术风格决定买了，但有几个问题
+
+这个游戏貌似可以自己选择智慧型还是战斗型的角色，那是否意味着给智力 ...</blockquote>
+这游戏核心在于扮演不是推理
+
+真要你推理的地方反而不是案子，而是政治角力和世界危机
+
+
+
+
+
+
+
+-----
+
+####  塔洛斯级  
+##### 792#       发表于 2020-3-22 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46827025&amp;ptid=1858008" target="_blank">34789 发表于 2020-3-21 22:30</a>
+
+书店女儿也许是bug，鞋你要看窗户就知道了……</blockquote>
+我就是先看的窗户再去的阳台... 拿到鞋了任务没有完成
+
+
+
+
+
+
+
+-----
+
+####  iellywake  
+##### 793#       发表于 2020-3-22 00:33
+
+
+
+
+6点身手开局，反应速度专精
+本来看这属性描述感觉如果打起来的话应该能算个**神，结果还没和猪猪女侠讨到**就爆发火拼，盔甲人开的第二**检定反应速度堆出了22点但是判的必然失败<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+被打倒后97%的争强好胜扔出两个1，醒过来搭档变成了嘴臭小鬼，好气
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 794#       发表于 2020-3-22 00:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">六点精神开局，一格血直接死在电风扇下面
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 795#       发表于 2020-3-22 00:51
+
+
+
+
+顺便问下，游戏玩着玩着，一放大画面就有黑边是怎么回事？
+后期钱和技能点充裕吗？
+
+
+
+
+
+
+
+-----
+
+####  msfan  
+##### 796#       发表于 2020-3-22 01:02
+
+
+
+ 本帖最后由 msfan 于 2020-3-22 01:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">开局看破窗找鞋，鞋子已经成一对了但不显示任务完成，再去看窗也没动静，是BUG吗？
+
+
+草，好像知道是怎么回事了。细节做太多了吧喂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 797#       发表于 2020-3-22 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828063&amp;ptid=1858008" target="_blank">Ton 发表于 2020-3-22 00:16</a>
+
+看美术风格决定买了，但有几个问题
+
+这个游戏貌似可以自己选择智慧型还是战斗型的角色，那是否意味着给智力 ...</blockquote>
+从几个主要剧情关键鉴定来看，给智力加点需要玩家多动脑子，给武力（后两排）可以少动脑子。
+
+
+如果把逆转裁判、弹丸论破这种叫侦探游戏的话，这游戏顶多算是个警察游戏。总之，看到二人组抱着一种福尔摩斯角色扮演的想法去玩的话肯定会大失所望的。推理部分约等于没有。
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 798#       发表于 2020-3-22 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828258&amp;ptid=1858008" target="_blank">Tienx 发表于 2020-3-22 00:51</a>
+
+顺便问下，游戏玩着玩着，一放大画面就有黑边是怎么回事？
+
+后期钱和技能点充裕吗？ ...</blockquote>
+钱和技能点都和你玩法相关，钱前期可能比较缺。内化几个想法后点气泡过被动检定加经验加钱，第三天之后如果不乱买东西不瞎点技能基本上都用不完的。
+
+
+技能点有需求再用比较好，钱能用的地方很少。
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 799#       发表于 2020-3-22 01:35
+
+
+
+
+不错，玩了两天终于算玩明白了
+这游戏的推理要素就是推理这个游戏在讲什么
+
+
+
+
+
+
+
+-----
+
+####  神之游侠  
+##### 800#       发表于 2020-3-22 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46825483&amp;ptid=1858008" target="_blank">gzGaryC 发表于 2020-3-21 20:19</a>
+
+任务描述是“在鱼市附近”，其实在教堂旁边的付费电话的上面</blockquote>
+我当然知道在那，怎么刷都不出来。过了一天再来就有了...
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 801#       发表于 2020-3-22 03:27
+
+
+
+
+我真的受不了。。把pissfaggot和fuck the world翻译的什么jb玩意
+
+
+
+
+
+
+
+-----
+
+####  asami  
+##### 802#       发表于 2020-3-22 03:48
+
+
+
+
+这游戏的字幕往上跳的设计弄得我头晕眼花的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 803#       发表于 2020-3-22 04:59
+
+
+
+
+还有egghead
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 804#       发表于 2020-3-22 05:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828773&amp;ptid=1858008" target="_blank">tama_chan 发表于 2020-3-22 03:27</a>
+
+我真的受不了。。把pissfaggot和fuck the world翻译的什么jb玩意</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往前翻了翻果然和吐槽把技能名都翻成四字成语的是同一位
+
+
+只能说你抱怨的这些翻译组不是没有考虑过，但终版采取现在的译法是权衡过后的结果
+
+
+国内的汉化圈氛围就是这样的，最受推崇的风格只会是《天外世界》那种注重玩梗效果的接地气译法，否则就是机翻警告
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 805#       发表于 2020-3-22 06:41
+
+
+
+ 本帖最后由 tama_chan 于 2020-3-22 06:48 编辑 
+
+还往里面塞什么"粉头"。。我的妈
+
+You're a man with a fork in the world of soup 这种也非要意译，还好第一遍玩的是原版
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  asami  
+##### 806#       发表于 2020-3-22 08:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828063&amp;ptid=1858008" target="_blank">Ton 发表于 2020-3-22 00:16</a>
+看美术风格决定买了，但有几个问题
+
+这个游戏貌似可以自己选择智慧型还是战斗型的角色，那是否意味着给智力 ...</blockquote>
+加点影响大部分选项的成功率，但是可以sl
+和观察力没多大关系，不要求加点的选项基本都无惩罚。实际上我玩到第三天还没有需要推理的地方，只是需要理解世界观，玩起来像只有庭外部分的逆转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  阿萨托斯  
+##### 807#       发表于 2020-3-22 09:09
+
+
+
+
+有人和我一样捏了全能力3的超级普通人吗？
+
+
+
+
+
+
+
+-----
+
+####  wx98707707  
+##### 808#       发表于 2020-3-22 10:07
+
+
+
+
+为啥那个听哈迪兄弟给的磁带任务一直完成不了？我去了当铺买了收音机也在互动页面听了，但是任务还是没显示完成，去找卡拉洁对话也只是说我在听了。
+
+
+
+
+
+
+
+-----
+
+####  rxds  
+##### 809#       发表于 2020-3-22 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46828309&amp;ptid=1858008" target="_blank">msfan 发表于 2020-3-22 01:02</a>
+
+开局看破窗找鞋，鞋子已经成一对了但不显示任务完成，再去看窗也没动静，是BUG吗？
+
+
+草，好像知道是 ...</blockquote>
+一样的问题，求解释
+
+
+
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 810#       发表于 2020-3-22 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46830246&amp;ptid=1858008" target="_blank">rxds 发表于 2020-3-22 10:32</a>
+
+一样的问题，求解释</blockquote>
+拿了窗外的鞋后，原地站别走，要点头上的提示
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 811#       发表于 2020-3-22 11:25
+
+
+
+<blockquote>阿萨托斯 发表于 2020-3-22 09:09
+有人和我一样捏了全能力3的超级普通人吗？</blockquote>
+全能力3的话，主动判定和被动判定的通过率相差会非常大。
+
+
+
+
+
+                      
