@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-21 04:00** 
+> ## **本文件最后更新于2020-03-24 06:00** 
 
 
 
@@ -2268,4 +2268,586 @@ q娃大发神威打爆了新冠病毒拯救了全日本 可喜可贺 可喜可�
 
 
 
-                                             
+
+
+-----
+
+####  mchan  
+##### 1623#       发表于 2020-3-22 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818232&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-3-21 03:01</a>
+
+果然是玛丽贝尔</blockquote>
+玛丽贝尔=？
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1624#         楼主| 发表于 2020-3-22 07:57
+
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2cte362lj21400mib2a.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2ctk26tyj21400mi1kx.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2ctnf4ulj21400mi4qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2ctxjn61j21hc0u0npf.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gd2cz41hduj21400mi1gl.jpg" referrerpolicy="no-referrer">
+
+
+敏感
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2d0vnmt6j21400mi7wj.jpg" referrerpolicy="no-referrer">
+
+
+不好，耳边忽然响起了那首歌
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2d3f23igj21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+
+烈海王
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2d4do5ejj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2d8etxq5j21400mikf3.jpg" referrerpolicy="no-referrer">
+
+
+“易普症（Yips）是一种运动障碍性疾病，患者会产生无意识的肌肉收缩。易普症是一种建立在生理上的病态，而非一般认为临场的焦虑症。” 
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gd2d9ibh0gj21400mib29.jpg" referrerpolicy="no-referrer">
+
+
+田径少女的福多摸摸
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2dbp6thxj21hc0u0hdt.jpg" referrerpolicy="no-referrer">
+
+
+错别字
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2dd87i7uj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gd2ddci8g6j21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gd2ddd6s9kj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gd2dh9cjf0j21hc0u0u0y.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gd2dh6twe9j21400mi1kx.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gd2dha00oaj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2dhamkgtj21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+田径少女的胳肢窝 ​​​​
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gd2djgd28sj21400mi7wh.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2djho4woj21400mitvi.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  待宵  
+##### 1625#       发表于 2020-3-22 08:10
+
+
+
+
+战斗部分还是很赶，虽说好歹是有配合了
+
+
+下集预告杀伤力太大
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1626#       发表于 2020-3-22 12:24
+
+
+
+
+三人喝一瓶水？
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1627#       发表于 2020-3-22 13:43
+
+
+
+ 本帖最后由 三合一出现 于 2020-3-22 13:46 编辑 
+
+第八集还真不错。
+
+但是我完全不懂得要怎么说明这集到底有多好，有科代表能说明一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1628#       发表于 2020-3-22 13:52
+
+
+
+
+这集有点初代内味，一哥每次比赛反派必定来捣乱，不过现在直接比赛取消了
+
+看到上来直接扫描还以为要直接放波，没想到还是有点打斗场面
+
+三人关系是真的好，目前还没有说哪个角色影薄背景板的情况
+
+兔子给拿铁按摩时有种奴隶和主人的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1629#       发表于 2020-3-22 15:04
+
+
+
+
+没有大道理直拍脸上，这集演出和脚本太搭了，小女孩友谊万岁，我能预想到奶q结局的时候我会有比星q高出1000%的不舍
+
+我也不会吹<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SRyeB  
+##### 1630#       发表于 2020-3-22 15:35
+
+
+
+
+大海与天空连成一片的画面，连接上了知优并不是在跳高，而是在跃向蓝天，就算是一点点微不足道高度也好，向着憧憬迈进。在这里感觉到了浪漫吧。这个点子够出13集tv了。
+
+话说你想上天的话，找前一代啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1631#       发表于 2020-3-22 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46832465&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-22 13:52</a>
+
+这集有点初代内味，一哥每次比赛反派必定来捣乱，不过现在直接比赛取消了
+
+看到上来直接扫描还以为要直接放 ...</blockquote>
+奴隶不一定，但君臣是肯定的。拿铁毕竟是长公主+王储，兔子哪怕不是草民最多只是臣子。
+
+
+
+
+
+
+
+-----
+
+####  starring  
+##### 1632#       发表于 2020-3-22 19:29
+
+
+
+
+这次三只妖精都很有用，战斗之外的时间也各种帮忙
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1633#       发表于 2020-3-22 19:30
+
+
+
+
+也别老想着吹了。这一集没有硬伤，没有OOC，却有适当的颜艺，个别让人DOKIDOKI的镜头，以及稳定的制作质量，看着让人心里暖暖的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1634#       发表于 2020-3-22 19:34
+
+
+
+ 本帖最后由 nerugigannte 于 2020-3-22 19:39 编辑 
+
+从打斗上来看今年像是在强调团队配合的样子，后面的神回打斗部分应该能看得很爽
+
+
+话说我上集就在想了，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">千佳每次跳跃跨栏的时候，我总觉得她会使出q娃的力量集中在脚上蹬一下蹬过去
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1635#       发表于 2020-3-22 19:37
+
+
+
+
+黄猫的错别字……这算物随主人吗？
+
+知优比赛时的绿色运动服，突然想到隔壁棚的辉煌绿了
+
+知优跳到怪物上方放必杀的那段，有点想到杰克奥特曼用流星飞踢破杰顿二世护盾那段，就是插了必杀bank有点打乱节奏
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1636#       发表于 2020-3-22 20:13
+
+
+
+
+兔子给狗按摩我第一反应是 马屁精想想现在企鹅老虎都被支走了狗身边只有兔子一个 这里服侍好了 未来动物王国第一权臣必是兔子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集出怪时我还在想这也插入也太硬了吧打完怪在没事人一样比赛 不如跳完再打 结果就被打脸了这个无人赛场的跳跃写的真好 和前面知优每天早起跑步即使在瓶颈时也没落下 拼成了一条线好评
+
+
+ps：企鹅幻想里香香和向日葵一起逛街的戏UMB配真好玩
+
+ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优prpr<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1637#       发表于 2020-3-22 20:32
+
+
+
+
+说起来知优的房间朴素得过分，还有点小，第一眼看上去像大雄的房间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 1638#       发表于 2020-3-22 20:53
+
+
+
+
+这集不错
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1639#         楼主| 发表于 2020-3-22 20:58
+
+
+
+
+蓝色其实不是易普症吧
+
+就是一般的紧张
+
+
+
+
+
+
+
+-----
+
+####  小倉朝日  
+##### 1640#       发表于 2020-3-22 21:13
+
+
+
+
+病毒出现，搅黄了运动会，最后主角在空场内独自完成比赛
+
+
+这剧本怕是年内要再演一遍
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1641#       发表于 2020-3-22 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837030&amp;ptid=1860852" target="_blank">hgcg-w 发表于 2020-3-22 20:58</a>
+**** 作者被禁止或删除 内容自动屏蔽 ****</blockquote>
+感觉是知道对手之后打乱了阵脚，跳高是为了突破记录拿冠军，然而和佳日向帮她回想起初衷，自己的对手是自己，前面这么说是逞强应付过去回复心态，最后一跳记起理想放开手脚才突破自我了吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 1642#       发表于 2020-3-22 21:55
+
+
+
+
+蓝色这是遭遇发育关了吧
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1643#       发表于 2020-3-22 23:31
+
+
+
+
+这集剧情真的太舒服了，打斗也不错
+
+
+
+
+
+
+
+-----
+
+####  巴莱-银河漂流  
+##### 1644#       发表于 2020-3-22 23:49
+
+
+
+
+三个小女生太黏了，感觉根本不会出现两个人电影的情况
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1645#       发表于 2020-3-23 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46838932&amp;ptid=1860852" target="_blank">巴莱-银河漂流 发表于 2020-3-22 23:49</a>
+
+三个小女生太黏了，感觉根本不会出现两个人电影的情况</blockquote>
+去年的原案里面本来只有阿光拉拉尤妮，基本就是《魔法使光之美少女》的复刻。黄紫是高层硬叫村山加的，结果电影里面村山来了一波复仇，同意电影编剧直接把那两人背景板了。
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1646#       发表于 2020-3-23 08:21
+
+
+
+
+下集作画好像会很好的样子，又是黄色亲女儿？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1647#       发表于 2020-3-23 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46832352&amp;ptid=1860852" target="_blank">三合一出现 发表于 2020-3-22 13:43</a>
+
+第八集还真不错。
+
+但是我完全不懂得要怎么说明这集到底有多好，有科代表能说明一下吗
+
+ ...</blockquote>
+大概就是，编剧设计了一个矛盾局面，把几个角色放进去
+
+蓝毛在这个情况下会怎样、企鹅会怎样、粉主和黄会怎样、记者会怎样
+
+都按照这个角色的人设合理展开
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1648#       发表于 2020-3-23 12:10
+
+
+
+
+这集剧情好，一个是因为展现了在问题面前不同的人所做的不同的事
+
+以往的个人回，很容易变成其他人都是背景板或者解说员，而这集可以看到所有人塑造的都很好，包括配角
+
+这集有点抓心学园祭那几集的感觉了
+
+另外就是最后的空场跳高可以说是点睛之笔，回答了这集一直在讨论的问题：体育到底是什么？
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 1649#       发表于 2020-3-23 12:28
+
+
+
+
+目前治Q表现的都不错啊，虽然是剧情不新奇，但就是做的很舒服
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Garterbelt  
+##### 1650#       发表于 2020-3-23 12:56
+
+
+
+
+这话的文戏可以说很舒服了，比起抱Q开头黄大力回也就缺个强力作画
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1651#       发表于 2020-3-24 05:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46843561&amp;ptid=1860852" target="_blank">Garterbelt 发表于 2020-3-23 12:56</a>
+
+这话的文戏可以说很舒服了，比起抱Q开头黄大力回也就缺个强力作画</blockquote>
+分镜也不如黄大力回
+
+
+
+
+
+                                            
