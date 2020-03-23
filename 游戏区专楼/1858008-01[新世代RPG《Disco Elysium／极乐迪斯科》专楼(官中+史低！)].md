@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-23 16:03** 
+> ## **本文件最后更新于2020-03-24 02:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Q1O23" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_YNp4u" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -17204,6 +17204,25 @@ Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Archi666| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17290,6 +17309,25 @@ Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NeverwinterN| + 1|这个结尾的老兵是相当出彩的。.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17326,4 +17364,512 @@ Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块�
 
 
 
-                    
+
+
+-----
+
+####  Hidewhite  
+##### 878#       发表于 2020-3-23 17:31
+
+
+
+
+打完了。
+
+主角扮演里能选的康米主义比较坑，主角的选项表现得更像是过个嘴炮瘾，既不科学也不唯物，跟玩之前设想的人物定位不一样，早知道就不往这方面选了。
+
+思想家开局，脑内对话平心定气拆其他几个台的时候特别乐，故弄玄虚翻脸也挺逗
+
+渔村半夜打骚扰电话玩得乐呵结果自己触雷，太惨了
+
+文字量是真大，基本上全程看文字，图像界面多数时候都没关注
+
+
+
+
+
+
+
+-----
+
+####  发条侏儒  
+##### 879#       发表于 2020-3-23 17:45
+
+
+
+
+遇到个问题，我这四个盔甲部件都找齐了穿上了，怎么成就不跳呢。。 是硬核模式的锅吗？
+
+<img src="https://img.saraba1st.com/forum/202003/23/174438u4anuypazr7xz767.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20200323173448_1.jpg</strong> (546.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-23 17:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 880#       发表于 2020-3-23 17:55
+
+
+
+<blockquote>leotard 发表于 2020-3-23 11:00
+失忆伪军在殖民地处理阶级冲突，重温大革命失败史，顺路与各路牛鬼蛇神探讨政治立场和三观
+
+
+内容挺充实的， ...</blockquote>
+这和伤痕文学一点都不像吧，大革命最终没有成功（或者是很短暂）导致的惨状和革命成功建立稳定政权导致的状况（姑且不论所谓的“伤痕文学”是不是真的）能是一回事吗？
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 881#       发表于 2020-3-23 18:24
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-23 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46847126&amp;ptid=1858008" target="_blank">普罗茶 发表于 2020-3-23 17:55</a>
+
+这和伤痕文学一点都不像吧，大革命最终没有成功（或者是很短暂）导致的惨状和革命成功建立稳定政权导致的 ...</blockquote>
+你还回复他......这种没读过伤痕文学就夸夸其谈的后革命时代玩梗小鬼是这样理解的的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 882#       发表于 2020-3-23 18:28
+
+
+
+
+有人知道涂鸦任务怎样才能出现Kim is best这个选项嘛？试了好几周目都只有标语<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gzGaryC  
+##### 883#       发表于 2020-3-23 18:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46847477&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-23 18:28</a>
+
+有人知道涂鸦任务怎样才能出现Kim is best这个选项嘛？试了好几周目都只有标语 ...</blockquote>
+有I love Cuno的选项但是没见过Kim is best<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 884#       发表于 2020-3-23 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46847441&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-23 18:24</a>
+
+你还回复他......这种没读过伤痕文学就夸夸其谈的后革命时代玩梗小鬼是这样理解的的 ...</blockquote>
+好吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  发条侏儒  
+##### 885#       发表于 2020-3-23 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46847477&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-23 18:28</a>
+
+有人知道涂鸦任务怎样才能出现Kim is best这个选项嘛？试了好几周目都只有标语 ...</blockquote>
+我也没刷出来过，盲猜需要射下尸体和金击掌后领悟那个思维才行？
+
+
+
+
+
+
+
+-----
+
+####  skypride  
+##### 886#       发表于 2020-3-23 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46847477&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-23 18:28</a>
+
+有人知道涂鸦任务怎样才能出现Kim is best这个选项嘛？试了好几周目都只有标语 ...</blockquote>
+[https://zaumstudio.com/2019/11/2 ... rds-fan-art-friday/](https://zaumstudio.com/2019/11/29/vote-for-disco-elysium-in-the-steam-awards-fan-art-friday/)
+
+
+大概只是 Fan art
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 887#       发表于 2020-3-23 20:00
+
+
+
+
+找嫌犯藏身处的时候，在R&amp;D大楼一直触发不了判定，是因为我之前拉金跳舞不成功气跑他所以触发不了吗？
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 888#       发表于 2020-3-23 20:03
+
+
+
+
+伤痕文学基本上是特指我国文革时期的吧，属于后来对那段时期的揭露、批判为主，有强烈印象的回忆。
+
+极乐迪斯科是描写革命后的时代背景，虽然是历史的延续，但重在表现的是现在这个状态。整体表现来看各种意识形态下的这个社会是比较消极混乱的，比较灰暗，不过配上主人公疯疯癫癫的姿态，调和出一副不知道怎么形容的图景，大概就是疯得很有趣很嗨？
+
+
+
+
+
+
+
+-----
+
+####  Herreimu  
+##### 889#       发表于 2020-3-23 20:45
+
+
+
+
+书店门口下水道黄点说下水道里有臭味,有没有相关支线？去楼里转了一圈没发现有啥能触发的
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 890#       发表于 2020-3-23 20:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46848937&amp;ptid=1858008" target="_blank">Herreimu 发表于 2020-3-23 20:45</a>
+
+书店门口下水道黄点说下水道里有臭味,有没有相关支线？去楼里转了一圈没发现有啥能触发的 ...</blockquote>
+里面很多思维只是一种状况描述用来让你入戏的，不一定所有都是线索
+
+
+
+
+
+
+
+-----
+
+####  skypride  
+##### 891#       发表于 2020-3-23 21:09
+
+
+
+
+25个小时通关 中后期SL大法用的比较多，技能点好多都没花掉，最后剩了十几点
+
+
+感觉前中期到处探索 一件件解决任务 解锁场景和人物对话选项顺便了解世界观的时候是最有意思的，也是感觉到这个游戏最nb的地方
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 892#       发表于 2020-3-23 21:27
+
+
+
+
+中文版能成为除英语之外的第一个其他语言版本，是因为“中苏友谊”。
+
+游戏制作人的态度表现得挺鲜明了。
+
+
+
+
+
+
+
+-----
+
+####  Alomes  
+##### 893#       发表于 2020-3-23 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46848937&amp;ptid=1858008" target="_blank">Herreimu 发表于 2020-3-23 20:45</a>
+
+书店门口下水道黄点说下水道里有臭味,有没有相关支线？去楼里转了一圈没发现有啥能触发的 ...</blockquote>
+我没遇到过相关支线，只有最后凶手交代了他曾使用过那个下水道，就一句话
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 894#       发表于 2020-3-23 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46844441&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-03-23 14:09:56</a>
+比起“伤痕文学”这种现实色彩这么浓厚的形容，我倒是觉得这作更像是“废土文学”。当然，不是post-apocaly ...</blockquote>我感觉制作组对各色各样的主义都表现嘲讽的态度，特别是真凶是扯着大旗掩盖真正的动机更让我确认这点。与其说游戏里对共产主义尊敬不如说对所有理想有敬意——神圣化的德洛莉丝，广场玩球的战场的老兵。特别是从哈里的表现来看更像是在表达人性论压到所有先验式的各种主义。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  tatara  
+##### 895#       发表于 2020-3-23 22:55
+
+
+
+
+话说小贩那里买衣服，检定失败后能买一件属性差的丑装备，然后加了点后再可以再把属性好的买了。但要是检定一次性过了，差的那件装备就买不到了，这对收集癖有点不友好啊。
+
+
+
+
+
+
+
+-----
+
+####  wlyj  
+##### 896#       发表于 2020-3-23 23:10
+
+
+
+
+1周目思想型通关，休息一下，准备2周目肉体型。这次开“硬核“模式玩玩。设置里开“硬核”模式后，游戏封面的教堂会演奏音乐并闪光，牛逼。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 897#       发表于 2020-3-23 23:52
+
+
+
+
+硬核模式还是肉体型方便一些......智力型寸步难行，根本不行。
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 898#       发表于 2020-3-24 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46850107&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-23 22:35</a>
+
+我感觉制作组对各色各样的主义都表现嘲讽的态度，特别是真凶是扯着大旗掩盖真正的动机更让我确认这点。与其 ...</blockquote>
+我其实是相当不愿意谈论disco elysium本身在意识形态上的倾向性的，它既然能当成一个政治光谱模拟器玩，肯定非常复杂，不过涉及到意识形态的东西就没有什么是简单的，至少几句话肯定说不明白。我自己说的关于作家对于共产主义的凝重与尊敬，其实也只是表述自己打完这游戏的感想，不是想给这个游戏给定性，顺便表述下最后的老兵收尾给让harrier走moralist路线的我的一种“问心有愧、心向往之”的震撼。
+
+
+忍不住说的原因其实和你说的“制作组对各色各样的主义都表现嘲讽的态度”差不多：我不能理解刻意把共产主义单独拿出来说一下的感想/评论——说到嘲讽明明每个主义都被嘲讽了，为什么要揪着康米一个不放，态度还都差不多是“洋人对共产主义的偏见”这种垃圾话（我找不到更好的形容了，能理解意思就行），而且要说这部作品中被嘲讽最多的，这个故事发生时候的官方意识形态肯定是被嘲讽最多的，我不知道怎么给这个harrier所处的ravechol的官方意识形态定性，但是肯定不会是共产主义。
+
+
+总之，这个游戏是非常独特的，我坚信每个人体验下来，如果是用心玩下去的话，肯定会产生不同的见解的，我也希望看到这些见解，如果能把自己的感受详细写出来那就更好了。关于“人性”和“道德”方面的东西我没有什么思考，让我来说disco elysium的基调的话，我会用之前回复上部分的“pre-apocalypse的类废土文学”，并且强调这是一个架空幻想世界。
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 899#       发表于 2020-3-24 00:10
+
+
+
+
+灰域到底暗指什么，社会崩溃吗
+
+
+
+
+
+
+
+-----
+
+####  profklugstein  
+##### 900#       发表于 2020-3-24 00:15
+
+
+
+ 本帖最后由 profklugstein 于 2020-3-24 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46850107&amp;ptid=1858008" target="_blank">四氢化钠 发表于 2020-3-23 22:35</a>
+我感觉制作组对各色各样的主义都表现嘲讽的态度，特别是真凶是扯着大旗掩盖真正的动机更让我确认这点。与其 ...</blockquote>
+老兵的动机非常复杂，绝对不是扯虎皮做大旗，其中既有竹节虫分泌的荷尔蒙与教堂产生的苍白作祟，也有他对自己过去的自责，还有对自己身份认同产生危机的绝望。其实能代表一部分老一辈左翼的心态。
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 901#       发表于 2020-3-24 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46850953&amp;ptid=1858008" target="_blank">profklugstein 发表于 2020-03-24 00:15:19</a>
+v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也就是我说的大旗是审判阶级敌人。但我不认为这是他真正的动力，他真正的动机可以是你列举的部分或者只是单纯的嫉妒。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 902#       发表于 2020-3-24 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46850938&amp;ptid=1858008" target="_blank">OldGlory 发表于 2020-3-24 00:10</a>
+
+灰域到底暗指什么，社会崩溃吗</blockquote>
+和joyce对话会有让她解释的选项，kim会对此不高兴，你需要把kim支走才能继续对话。我是在渔村找的joyce，不清楚之前能不能对话。
+
+
+简单来说，这游戏里面不同的大洲之间被一种叫做“pale”的东西隔开，在pale里面所有东西都会停滞，物理定律，语言，甚至认知。人在里面穿行会受到不可逆的损伤，而且它在不断的扩张。
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 903#       发表于 2020-3-24 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46850915&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-03-24 00:04:56</a>
+我其实是相当不愿意谈论disco elysium本身在意识形态上的倾向性的，它既然能当成一个政治光谱模拟器玩， ...</blockquote>能明白你的意思，前面那位比做伤痕文学确实是离题万里。游戏里频繁反复的意识形态选项对我来说更像一张问卷，问的是玩家的倾向。靠的是玩家现实中拥有的政治知识，对游戏里简单描摹的政治关系来先验于游戏人物经验来做出的判断。所以我不认为极乐迪斯科是意图写一则社会寓言，或是现行批判某种意识形态或者政治制度。你在游戏里也不会像在黑曜石的游戏里一定要选个边站然后使得局势改变。在这点上我认为极乐迪斯科做的很优秀没有变成对某种意识形态的檄文。反而是把所有的都黒个遍，让你找到意识形态以外的别的价值。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 904#       发表于 2020-3-24 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46851023&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-24 00:28</a>
+
+和joyce对话会有让她解释的选项，kim会对此不高兴，你需要把kim支走才能继续对话。我是在渔村找的joyce， ...</blockquote>
+我看过这些，我还知道灰域导致商业街倒闭，我想知道它在我们的世界里暗指什么
+
+
+
+
+
+                   
