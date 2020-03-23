@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-23 00:07** 
+> ## **本文件最后更新于2020-03-23 16:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_F37kW" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Q1O23" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -16684,4 +16684,646 @@ You're a man with a fork in the world of soup 这种也非要意译，还好第�
 
 
 
-                     
+
+
+-----
+
+####  leader01234  
+##### 845#       发表于 2020-3-23 02:18
+
+
+
+
+通关了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">  文本真的太棒了 某个92%的精神鉴定一次不过读档又没过，后来一想可能就是这就是命运吧，带着坤诺探索意外的也很亲切，最后面对那帮人质疑的时候小家伙真的仗义。
+
+印象最深的是讲历史的时候，探险家发现了完美的岛屿，不需要与土著冲突流血，没有现实的两难，完美的，能让，符合道德的理想的美好的。然而最后它给我们带来了资本主义。真的绝了
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 846#       发表于 2020-3-23 02:44
+
+
+
+
+问下这游戏总共几天？第3天结束了我还没把尸体放下来也没过测颅先生……不想跟这sb低头<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 847#       发表于 2020-3-23 03:03
+
+
+
+<blockquote>哈尔摩尼亚N 发表于 2020-3-23 02:44
+问下这游戏总共几天？第3天结束了我还没把尸体放下来也没过测颅先生……不想跟这sb低头 ...</blockquote>
+没有时间限制，打测颅可以去商店买件加属性的雨衣，roll之前喝点酒啥的，五点强身健体基本就能过
+
+
+
+
+
+
+
+-----
+
+####  tsukicn  
+##### 848#       发表于 2020-3-23 03:13
+
+
+
+
+终于通关，游戏时间38小时。中间经常sl，搞得后半段玩的有点倦了。。。
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 849#       发表于 2020-3-23 03:55
+
+
+
+
+你可以从cuno房顶上跳过去
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JohannJ  
+##### 850#       发表于 2020-3-23 04:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46838961&amp;ptid=1858008" target="_blank">Kaltsit 发表于 2020-3-22 23:51</a>
+
+瑞瓦拉民族性是不是有bug，喝了酒以后体格永久上升了2点。</blockquote>
+抽烟喝酒好像都是永久加成
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 851#       发表于 2020-3-23 05:32
+
+
+
+
+打完了，感觉结局还是缺乏爆发力
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 852#       发表于 2020-3-23 07:50
+
+
+
+
+20个小时通了，以为流程会更长来着<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+审判那段重读了几十次档，然后发现好像是没有办法不流血解决的，十分唏嘘<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+通关之后仔细想了想，这游戏还是不要当成侦探游戏来玩的好，毕竟主要的玩点不是“解决案件”这一结果而是解决案件的过程，为了所谓的“完美解决”而不断SL或者跳过大段对话直指核心反而就失去了乐趣
+
+
+
+
+
+
+
+-----
+
+####  OleDiNe  
+##### 853#       发表于 2020-3-23 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46839647&amp;ptid=1858008" target="_blank">leader01234 发表于 2020-03-23 02:18:06</a>
+通关了  文本真的太棒了 某个92%的精神鉴定一次不过读档又没过，后来一想可能就是这就是命运吧，带着坤诺探 ...</blockquote>想问一下怎么招募坤诺呀<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">，一周目没有招募到，通关后看看哪些成就没解锁发现有这个成就，但不知如何招募
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LoveAntique  
+##### 854#       发表于 2020-3-23 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46841048&amp;ptid=1858008" target="_blank">OleDiNe 发表于 2020-3-23 09:37</a>
+
+想问一下怎么招募坤诺呀，一周目没有招募到，通关后看看哪些成就没解锁发现有这个成就，但不知如何 ...</blockquote>
+**击时kim受伤，后面的队友就会变成cuno
+
+
+
+
+
+
+
+-----
+
+####  OleDiNe  
+##### 855#       发表于 2020-3-23 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46841357&amp;ptid=1858008" target="_blank">LoveAntique 发表于 2020-3-23 10:04</a>
+
+**击时kim受伤，后面的队友就会变成cuno</blockquote>
+在这么靠后呀，好吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 856#       发表于 2020-3-23 10:26
+
+
+
+
+突然不让存档了 是bug吗
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 857#       发表于 2020-3-23 10:30
+
+
+
+
+高智高感的专属技能该选啥？
+
+—— 来自 OPPO PCLM10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 858#       发表于 2020-3-23 10:30
+
+
+
+
+仔细想了想，这游戏其实按一般CRPG的思路来min-max挺不好玩的，比如一周目的时候我想着让主角扮演个“伟光正”的完美警探，全程戒烟戒酒不碰药，结果就变成了sorry cop，还要被各种thought嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+果断开二周目搞个自恋明星神探去了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 859#         楼主| 发表于 2020-3-23 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46841697&amp;ptid=1858008" target="_blank">nsevit 发表于 2020-3-23 10:30</a>
+
+仔细想了想，这游戏其实按一般CRPG的思路来min-max挺不好玩的，比如一周目的时候我想着让主角扮演个“伟光 ...</blockquote>
+这游戏就是逼死强迫症，特别是喜欢完美流程的
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 860#       发表于 2020-3-23 11:00
+
+
+
+
+失忆伪军在殖民地处理阶级冲突，重温大革命失败史，顺路与各路牛鬼蛇神探讨政治立场和三观
+
+
+内容挺充实的，抽丝剥茧地描绘了一个大时代的余晖
+
+
+总地来讲像是共产主义革命伤痕文学，跟郁达夫早期作品给人的感觉差不多。来人上乳左图<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 861#       发表于 2020-3-23 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46841688&amp;ptid=1858008" target="_blank">GeraltzRivii 发表于 2020-03-23 10:30:18</a>
+高智高感的专属技能该选啥？
+
+—— 来自 OPPO PCLM10, Android 9上的  v2.2.2.1</blockquote>除非开修改器，否则专注一个属性，保证士气和血不为一就行，感知我推荐点一个心平气和，这家伙还挺靠谱的，而且在对抗迪斯科小姐的时候过了他的检定会有一段很有趣的演出
+当然推荐的内心帝国是最有内味的就是，不过招牌技能也只是一点技能点而已，学习上限是给整个属性的，不用太过纠结
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 862#       发表于 2020-3-23 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46842259&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-23 11:11</a>
+除非开修改器，否则专注一个属性，保证士气和血不为一就行，感知我推荐点一个心平气和，这家伙还挺靠谱的， ...</blockquote>
+好的，谢谢老哥。
+
+—— 来自 OPPO PCLM10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 863#       发表于 2020-3-23 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46842316&amp;ptid=1858008" target="_blank">GeraltzRivii 发表于 2020-3-23 11:16</a>
+
+好的，谢谢老哥。
+
+
+—— 来自 OPPO PCLM10, Android 9上的 S1Next-鹅版 v2.2.2.1</blockquote>
+而且吧......其实我还挺推荐多周目开修改器满属性拾遗一下的，有的地方这帮家伙凑一块在你脑子里开会非常热闹，而且有趣，有种“这才是为师的完全体口牙！”的荒诞感，也难怪会被人当成疯了
+
+
+
+
+
+
+
+-----
+
+####  AriaTheFish  
+##### 864#       发表于 2020-3-23 11:44
+
+
+
+
+22小时通关
+
+master piece.无疑的。
+
+按正常流程玩肯定会错过很多东西，搞砸很多事情——然后你意识到这是“扮演”的一部分，太美妙了。
+
+
+
+
+
+
+
+-----
+
+####  LoveAntique  
+##### 865#       发表于 2020-3-23 11:56
+
+
+
+ 本帖最后由 LoveAntique 于 2020-3-23 11:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46841688&amp;ptid=1858008" target="_blank">GeraltzRivii 发表于 2020-3-23 10:30</a>
+
+高智高感的专属技能该选啥？
+
+
+—— 来自 OPPO PCLM10, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+智力里
+
+
+Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块的信息非常干涩，可能不适合一周目
+
+Conceptualization比较有趣，经常会给出奇妙的比喻，而且会出现很多艺术批评的对话
+
+这两个可以考虑主点，基本都不会出错，是值得信赖的伙伴
+
+
+Rhetoric和Drama就属于巨魔类了，加高容易出现奇葩对话，而且有时候会误导你
+
+为了体验巨魔的趣味性的话加一加倒也可以
+
+
+Visual Calculus和Logic可能是智力最废，对话出现频率比较少
+
+
+就我个人而言是倾向Conceptualization的，拿到艺术警察的思想以后升级飞快
+
+
+精神流就没别的好说了，Inland Empire必须是最优先
+
+
+
+
+
+
+
+-----
+
+####  她的猫  
+##### 866#       发表于 2020-3-23 12:23
+
+
+
+
+想了想，既然这游戏安排加点这个系统了，那么判定过不去就过不去算了，何必SL到所有判定全部能通过呢。
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 867#       发表于 2020-3-23 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46843161&amp;ptid=1858008" target="_blank">她的猫 发表于 2020-3-23 12:23</a>
+
+想了想，既然这游戏安排加点这个系统了，那么判定过不去就过不去算了，何必SL到所有判定全部能通过呢。 ...</blockquote>
+本来就是鼓励失败啊
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 868#       发表于 2020-3-23 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46842842&amp;ptid=1858008" target="_blank">LoveAntique 发表于 2020-3-23 11:56</a>
+智力里
+
+
+Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块的信息非常干涩，可能不适合一周目</blockquote>
+谢谢。我看其他人也都优先推荐标新立异。
+
+—— 来自 OPPO PCLM10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 869#       发表于 2020-3-23 13:32
+
+
+
+
+后期检定高了以后有不同技能会一起跳出来给建议，有时候建议还是相反的，整个脑内小剧场过于欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+比如审判那里INT系的会反思哪里推理的不对（然而并没有卵用）、PSY系的会建议你以情动人、MOT系则每隔两句话就跳出来嚷嚷“干死他干死他！现在不开**就来不及了！”<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 870#       发表于 2020-3-23 14:09
+
+
+
+
+比起“伤痕文学”这种现实色彩这么浓厚的形容，我倒是觉得这作更像是“废土文学”。当然，不是post-apocalypic而是pre-apocalypic.
+
+这作的中心基调和harrier这个酗酒嗑药跳disco的自毁意识强烈的侦探有着惊人的一致性，从harrier角度接收到的世界信息就像极了一个失去了活下去念想的严重抑郁症患者眼中的濒临末日场景。一开始以“被诅咒商业街”作为引子引出看起来让人哭笑不得的末日来临选项，不过毕竟就是个神经质的老妈子的委托，而且烟囱里还住着dice maker这样的理想主义者，你感觉不到什么认真对待的必要。但是随着wild pines的代表帮你理解现实，告诉你pale这种存在且不断变浓东西，这时候"doom"给玩家的感觉变得严肃了，joyce是官方钦定的背景讲解人，她本身在这个世界的地位在这方面上也没有什么对你说谎的必要。最后直到教堂里的那引起一个伟大游戏公司破产的2mm空洞——之前不断变浓的pale还可以说是距离普通人太远，这次的异常可是你自己实打实的体验到了。随着主线推进这种pre-apocalypse的感受不断加强，为什么游戏里会有doom这种看起来层级就比康米也好极端自由也好更高的选项，这时候已经不言自明了，游戏里生怕你把游戏当成现实来玩还在最后给你赛一个竹节虫来提醒你这不是现实。这对harrier的意识形态观念我觉得是极其重要的，因为这时候你不是选一个*把明天变得更好*的主义了，而是在末日到来之前能*更体面地活*一天是一天的主义了。
+
+
+为什么要disco？因为资本主义糟糕透了，共产主义失败了，这个世界还好像要完蛋了，在moralintern的“伟大”带领下，我harrier就只能酗酒嗑药跳disco麻痹自己才能在身体上体验到所谓的elysium.
+
+
+与此同时我很不理解揪着共产主义不放，觉得游戏对它偏负面的评价或者感想。就算完全没有理解到游戏对末日的表现，我也很不理解。非常怀疑是不是看到steam那篇用PST起手的装逼评测然后就开始复读了。wind pines这种垄断资本主义在这游戏里面难道比康米好多少吗，穿着T-500的雇佣兵是谁请来martinaise的？ravechol现在这吊样很好吗？还有一个调查抽烟男会遇到的不说人话的自称赞助穷学生的政府官员这种角色。因为joyce对harrier和声细语，evrart上来请坐老虎凳就说什么“the dirge of communism”也太好笑了吧。这游戏就算是dirge，也是对所有意识形态的dirge. 相反对于communism我觉得已经比其他的高太多了：这游戏对communism的历史描写几乎就是巴黎公社。站在harrier的角度，我为深蓝卖命这么多年拼命破案，到头来落得一个妻离子散的后果，整个国家也不见得好得到哪里去，我自己的辖区里还有骷髅帮这种东西。就算是最后的凶手，一个在岛上坚守了50多年的类似于老人星[1]的老顽固，白皮没体验过情有可原，中国这种环境下成长起来的人，难道就没有一点跟他回到那个风起云涌的时代浪一把的冲动吗？虽然他当过逃兵，但是就没有一点对于他的信仰的敬意吗？
+
+
+要说其他的主义在这里是绝望的死胡同，共产主义反而因为这种失败的背景还带着一点希望元素。反正我从这作体验到的作者对于共产主义的态度，至少对与共产主义最初的善意和允诺（能不能实现谁都不知道），是带着凝重和尊敬的。
+
+
+一周目和岛上老人对话完后，我除了disco和elysium这两个词外脑子里面几乎没有任何其他的东西，唯一仅存的意识形态话题仅仅是想和老人说一句：
+
+"the end is coming, comrade."
+
+
+[1]老人星：EVE里面的一个背景故事，这里代表长时间孤独地坚持一件事。[https://zhuanlan.zhihu.com/p/30311680](https://zhuanlan.zhihu.com/p/30311680)
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 871#       发表于 2020-3-23 14:14
+
+
+
+
+买下cuno裤子的任务怎么完成啊？第一天的任务就只剩下这个了
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 872#       发表于 2020-3-23 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46844488&amp;ptid=1858008" target="_blank">asd1234126 发表于 2020-3-23 14:14</a>
+
+买下cuno裤子的任务怎么完成啊？第一天的任务就只剩下这个了</blockquote>
+花钱找cuno买就行了吧，我记得好像是15块
+
+
+
+
+
+
+
+-----
+
+####  arites  
+##### 873#       发表于 2020-3-23 14:39
+
+
+
+
+刚刚开始玩，似乎挺不错的。
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 874#       发表于 2020-3-23 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46844721&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-23 14:33</a>
+花钱找cuno买就行了吧，我记得好像是15块</blockquote>
+没有这个选项，说要跟cuno更加亲近才能买，我全部选项都选过一遍了也没有好感值增加
+
+
+
+
+
+
+
+-----
+
+####  .38左轮  
+##### 875#       发表于 2020-3-23 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46844441&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-23 14:09</a>
+
+比起“伤痕文学”这种现实色彩这么浓厚的形容，我倒是觉得这作更像是“废土文学”。当然，不是post-apocaly ...</blockquote>
+反白了：                                                                                                                                                                                            
+最后结局章节在短时间内双重重击，先是ex的离去，又是革命老兵的悔恨悲歌和心理异化，玩的时候已经压抑得哭了，晚上躺在床上不停流泪，早上起来一眼眶眼屎，真他妈的……我也要喝酒抽烟disco！
+
+
+
+
+
+
+
+-----
+
+####  muermaru  
+##### 876#       发表于 2020-3-23 15:31
+
+
+
+
+要触发主角和cuno说悄悄话不让女孩听到那串选项才算更加亲近了吧
+
+
+
+
+
+
+
+-----
+
+####  .38左轮  
+##### 877#       发表于 2020-3-23 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46845153&amp;ptid=1858008" target="_blank">asd1234126 发表于 2020-3-23 15:09</a>
+
+没有这个选项，说要跟cuno更加亲近才能买，我全部选项都选过一遍了也没有好感值增加 ...</blockquote>
+去买烟给他
+
+
+
+
+
+                    
