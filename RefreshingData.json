@@ -153,9 +153,9 @@
   },
   {
     "id": "1336553",
-    "totalpage": 734,
+    "totalpage": 735,
     "title": "[『吹响吧！上低音号』专楼 剧场版上映中 3年生篇制作決定!]",
-    "lastedit": 1584806511,
+    "lastedit": 1584979267,
     "category": "漫区专楼",
     "active": true
   },
@@ -265,9 +265,9 @@
   },
   {
     "id": "1595639",
-    "totalpage": 551,
+    "totalpage": 552,
     "title": "[【AKB48砖楼】春风杨柳万千条，六亿神州尽舜尧。]",
-    "lastedit": 1584633850,
+    "lastedit": 1584979282,
     "category": "外野专楼",
     "active": true
   },
@@ -3569,9 +3569,9 @@
   },
   {
     "id": "1800312",
-    "totalpage": 84,
+    "totalpage": 85,
     "title": "[【集合啦！动物森友会】已发售。享受无人岛的度假生活吧!]",
-    "lastedit": 1584972346,
+    "lastedit": 1584979438,
     "category": "游戏区专楼",
     "active": true
   },
@@ -4721,9 +4721,9 @@
   },
   {
     "id": "1914908",
-    "totalpage": 2,
+    "totalpage": 3,
     "title": "[【个人势】しぐれうい(时雨羽衣／+時雨憂+) 讨论楼]",
-    "lastedit": 1583473528,
+    "lastedit": 1584979501,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -5697,9 +5697,9 @@
   },
   {
     "id": "1920376",
-    "totalpage": 7,
+    "totalpage": 8,
     "title": "[话说吃货妹子好不好]",
-    "lastedit": 1584965329,
+    "lastedit": 1584979630,
     "category": "外野",
     "active": true
   },
@@ -5709,6 +5709,22 @@
     "title": "[湊阿库娅十二桩罪]",
     "lastedit": 1584950967,
     "category": "虚拟主播区",
+    "active": true
+  },
+  {
+    "id": "1920488",
+    "totalpage": 14,
+    "title": "[疫情专楼，带节奏转进的，造谣的，乱喷的一律永久]",
+    "lastedit": 1584979651,
+    "category": "外野专楼",
+    "active": true
+  },
+  {
+    "id": "1920426",
+    "totalpage": 10,
+    "title": "[【V7】虚拟YouTuber综合讨论楼織田信姫将于4月30日引退]",
+    "lastedit": 1584979665,
+    "category": "虚拟主播区专楼",
     "active": true
   }
 ]
