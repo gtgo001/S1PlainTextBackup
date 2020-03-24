@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-20 20:04** 
+> ## **本文件最后更新于2020-03-24 14:03** 
 
 
 
@@ -24770,4 +24770,528 @@ emm我看锦卫门出过的计划就只有讨伐凯多的暗号，别的确实�
 
 
 
-        
+
+
+-----
+
+####  如梦令  
+##### 52235#       发表于 2020-3-20 20:23
+
+
+
+
+不是七年前打火鸡时分开的么
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52236#       发表于 2020-3-20 20:44
+
+
+
+
+大家都在海上，桃之助是猫蝮蛇登场来救吗，猫蝮蛇那个脾气能把勘十郎当场分尸吧
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52237#       发表于 2020-3-20 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46815780&amp;ptid=98922" target="_blank">羲和 发表于 2020-3-20 20:44</a>
+
+大家都在海上，桃之助是猫蝮蛇登场来救吗，猫蝮蛇那个脾气能把勘十郎当场分尸吧 ...</blockquote>
+但是假如打个时间差，阿猫上岸首先看到堪十郎可能会被继续蒙在鼓里
+
+
+当然也可能阿猫能一眼看穿
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 52238#       发表于 2020-3-20 22:59
+
+
+
+
+老奸巨猾锦卫门哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sandrock  
+##### 52239#       发表于 2020-3-20 23:01
+
+
+
+
+传次郎什么水平？一刀斩舰
+
+
+
+
+
+
+
+-----
+
+####   最萌贝波  
+##### 52240#       发表于 2020-3-20 23:10
+
+
+
+
+宙斯会被大妈拿回去吗
+
+
+
+
+
+
+
+-----
+
+####  烈士鲮鱼  
+##### 52241#       发表于 2020-3-20 23:31
+
+
+
+
+老千层饼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52242#       发表于 2020-3-20 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46817150&amp;ptid=98922" target="_blank">sandrock 发表于 2020-3-20 23:01</a>
+传次郎什么水平？一刀斩舰</blockquote>
+雷电水平
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52243#       发表于 2020-3-21 06:17
+
+
+
+ 本帖最后由 灰狼 于 2020-3-21 06:30 编辑 
+
+整理一下剧情
+
+虽然很欢乐，而且气势也足，但目前的情况依然很凶险（当然凶险的意思是后面也会有更多好玩的东西）
+
+
+从基德和罗的反应，他们完全不知道big mom与凯多结盟的事情，现在他们三个人吵架估计有一部分就是罗在喷路飞，他应该是能够联想到“是你小子把大妈引过来的？”。
+
+
+959之前的计划是路团 + 4200人 vs 百兽海贼团 + 大蛇军
+
+
+现在路飞方多了罗（毕竟之前以为罗还被关着），基德和传次郎的1200名武士，敌方多了big mom和大量中高层干部，多出来的人打big mom好像还是有点难（而且最初锦卫门的打算就是召集5000人，5400人扣掉毛皮族的200人和狂死郎手下的200人好像差不多就是5000了）
+
+
+说起来传次郎只把炮给削了，可能他想玩特洛伊木马？（这么一想好像现在是路飞团队历史智商高点）
+
+
+目前路飞方这边的陷阱卡还有：
+
+
+罗，罗逃脱以后应该是有一些计划的，之前很多人猜测罗的工作是反间谍，现在不是了，所以罗这张陷阱卡没用
+
+德雷克，德雷克是海军的卧底，应该不至于最后跟着凯多被add了
+
+霍金斯，霍金斯知道罗跑路了，但是既然凯多军对罗跑路毫不知情，那么他多半也被胁迫拉到罗那边去了
+
+阿猫，猫蝮蛇是肯定要回来的，而且应该还是能带点人回来，至少以藏会回来吧
+
+甚平和杰尔马66，既然大妈来了，如果大妈在和之国退场，他们肯定也会来，当然他们有没有被big mom杀光了还不知道。。。
+
+
+不过就算加上这几个和路飞的小弟们，还是。。悬。。
+
+
+黑胡子，海军本部，白二，剩余的超新星这些立场不明的势力也不知道会不会登场
+
+
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52244#       发表于 2020-3-21 06:59
+
+
+
+
+笑死了这吹上天的说明果然是跨服聊天
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52245#       发表于 2020-3-21 07:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46814910&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-3-20 19:01</a>
+草帽团上次聚齐竟然已经是13年的事了...
+
+
+那年她十八岁我也十八岁</blockquote>
+4年前冰火岛才分开的吧
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52246#       发表于 2020-3-21 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818520&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2020-3-21 07:45</a>
+
+4年前冰火岛才分开的吧</blockquote>
+2013年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52247#       发表于 2020-3-21 16:12
+
+
+
+
+请问现在在哪里追周五能看的，正常画质的 ，汉化的海贼王漫画？这段时间在贴吧看但是太糊了。
+
+
+
+
+
+
+
+-----
+
+####  nuoer  
+##### 52248#       发表于 2020-3-21 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46823124&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2020-3-21 16:12</a>
+请问现在在哪里追周五能看的，正常画质的 ，汉化的海贼王漫画？这段时间在贴吧看但是太糊了。 ...</blockquote>
+虎扑，每周五有人搬<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52249#       发表于 2020-3-21 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46823483&amp;ptid=98922" target="_blank">nuoer 发表于 2020-3-21 16:59</a>
+虎扑，每周五有人搬
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+谢谢。还有一个鹰目论坛也有但是要权限
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52250#       发表于 2020-3-21 19:08
+
+
+
+
+其实虎扑跨页也糊，好久没看过清晰跨页了
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 52251#       发表于 2020-3-21 19:17
+
+
+
+
+虎扑搬的的也是贴吧源啊
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52252#       发表于 2020-3-21 19:44
+
+
+
+
+一个问题，前几话在港口时候小菊穿了一身盔甲和新的鬼面具，这话怎么又换成和服了。。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52253#       发表于 2020-3-21 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46818437&amp;ptid=98922" target="_blank">灰狼 发表于 2020-3-21 06:17</a>
+
+整理一下剧情
+
+虽然很欢乐，而且气势也足，但目前的情况依然很凶险（当然凶险的意思是后面也会有更多好玩的 ...</blockquote>
+现在就看红发会不会赶来了 按回忆红发巴基都答应御田了 而且红发至少知道了大妈赶往和国的事
+
+
+
+
+
+
+
+-----
+
+####  sakaki59  
+##### 52254#       发表于 2020-3-21 21:23
+
+
+
+<blockquote>千叶铁矢 发表于 2020-3-21 16:12
+请问现在在哪里追周五能看的，正常画质的 ，汉化的海贼王漫画？这段时间在贴吧看但是太糊了。 ...</blockquote>
+微信公众号，海贼小站
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 52255#       发表于 2020-3-21 22:07
+
+
+
+ 本帖最后由 风浦可符香(P.N) 于 2020-3-21 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46823608&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2020-3-21 17:14</a>
+
+谢谢。还有一个鹰目论坛也有但是要权限</blockquote>
+只看更新的话我觉得 [https://one-piece.cn/comic/](https://one-piece.cn/comic/) 还行吧，旧的会直接跳腾讯了
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52256#       发表于 2020-3-21 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46825034&amp;ptid=98922" target="_blank">少年包工头 发表于 2020-3-21 19:44</a>
+
+一个问题，前几话在港口时候小菊穿了一身盔甲和新的鬼面具，这话怎么又换成和服了。。
+
+
+  -- 来自 能搜索的 ...</blockquote>
+小菊穿着铠甲啊，只是把面具摘了
+
+
+
+
+
+
+
+-----
+
+####  张晓磊  
+##### 52257#       发表于 2020-3-22 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46826766&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2020-3-21 22:07</a>
+
+只看更新的话我觉得 https://one-piece.cn/comic/ 还行吧，旧的会直接跳腾讯了</blockquote>
+非常感谢！！！！
+
+
+
+
+
+
+
+-----
+
+####  uswhzh  
+##### 52258#       发表于 2020-3-22 21:46
+
+
+
+<blockquote>灰狼 发表于 2020-3-21 06:17
+整理一下剧情
+
+虽然很欢乐，而且气势也足，但目前的情况依然很凶险（当然凶险的意思是后面也会有更多好玩的 ...</blockquote>
+弗兰奇之前说要准备10万人的大船，虽然是弗兰奇玩笑话，但按尾田风格最后肯定能凑成10万人，估计海军本部最后也得来，把鬼岛围个水泄不通。
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52259#       发表于 2020-3-24 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46817150&amp;ptid=98922" target="_blank">sandrock 发表于 2020-3-20 23:01</a>
+
+传次郎什么水平？一刀斩舰</blockquote>
+海军本部中将水平。
+
+
+以“鼯鼠”为代表的的剑豪中将们特别喜欢表演这个。
+
+
+
+
+
+
+
+-----
+
+####  beats0815  
+##### 52260#       发表于 2020-3-24 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837600&amp;ptid=98922" target="_blank">uswhzh 发表于 2020-3-22 21:46</a>
+
+弗兰奇之前说要准备10万人的大船，虽然是弗兰奇玩笑话，但按尾田风格最后肯定能凑成10万人，估计海军本部 ...</blockquote>
+目前是5400人，要凑10万的话，缺口有点儿大。
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52261#       发表于 2020-3-24 13:55
+
+
+
+
+
+口胡王
+
+
+NO.1 乌索普
+
+NO.2 巴基
+
+NO.3 锦卫门  ← 新晋
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+       
