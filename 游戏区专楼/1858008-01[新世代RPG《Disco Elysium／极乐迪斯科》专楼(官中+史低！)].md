@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-24 12:02** 
+> ## **本文件最后更新于2020-03-24 16:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_iSv7z" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_yqrPC" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -18282,6 +18282,25 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zongrumk2| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18434,4 +18453,717 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
-                  
+
+
+-----
+
+####  leotard  
+##### 932#       发表于 2020-3-24 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46854240&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-24 11:44</a>
+
+失败共不算共，草</blockquote>
+你误解了。我可没判定谁算谁不算，共产主义有成功也有失败，但就像我们不同意好莱坞找丑女演亚裔一样，巴黎公社不能代表共产革命，特别是创作者想说末日将近，共产革命没能拯救人类（甚至主权都没保住），人类在世界尽头狂欢的时候
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 933#       发表于 2020-3-24 13:41
+
+
+
+
+你看游戏里极右翼代表的那几个，要么只敢暗搓搓的做杯子损人，看到执法人员找上门瞬间怂成马，要么只敢嘴上爽一句，被当面反驳连个屁都不敢放，这么一想是不是康米好多了？
+
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 934#       发表于 2020-3-24 13:41
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-24 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46854134&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 11:35</a>
+
+伤痕文学确实不是很恰当的比喻 这点我承认
+
+
+具体说下我的看法</blockquote><blockquote>能源危机、失业潮、破产、公权力滥用、通货膨胀、奴役、种族歧视这些半殖民地常见病在瑞瓦肖基本都见不到（好吧破产有一些，但总的来说还是因为经营不善）</blockquote>
+你真的玩这个游戏了吗？
+
+除了能源危机和种族歧视游戏里确实没讲什么，剩下的哪个游戏里见不到？
+
+失业潮：众多城市里之所以会有会有混混（骷髅帮）是因为失业，这是常识，游戏发生的地点没有是因为有工会赶走了他们。但即便如此渔村那里就没有失业者了吗？更不说破产会带来什么了吧？
+
+公权力滥用：游戏里借小金和主角的对话反映了RCM里存在严重的权利滥用和寻租。瑞瓦肖没有政府，烂摊子基本是联盟牵头的国际道德委员会和其走狗RCM管的。
+
+通货膨胀：吸烟人的“周日朋友”，那个官僚，和他聊天会知道有专门控制通货膨胀的机构，比如［力求争取］面包价格涨幅低于2%每年，而大革命已经过去43年，到现在瑞瓦肖食品物价还未控制稳定，不然需要这种机构作甚？
+
+奴役：不知道你怎么理解奴役，经济上的奴役不是奴役是吗？工会是挺sb的，但是工会用来煽动工人的现状却是现实。更不用说毒品在瑞瓦肖的泛滥，公权力滥用就是小金和主角在和司机们谈话后聊起来的，RCM中有人在毒品上获利，而RCM作为没有对自己主导权的机构，背后的联盟怕是洗脱不了。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 935#       发表于 2020-3-24 13:48
+
+
+
+<blockquote>但他一点也不想要它回来。</blockquote>
+我不知道作者是否一点也不想要它回来。
+
+我只知道你是一点都不想要它回来。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 936#       发表于 2020-3-24 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855392&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 13:23</a>
+
+你误解了。我可没判定谁算谁不算，共产主义有成功也有失败，但就像我们不同意好莱坞找丑女演亚裔一样，巴 ...</blockquote>
+前半句说自己无权判定谁算康米主义，后半句紧跟着就说“巴黎公社不能代表康米主义”。
+
+春天来了，精神分裂就去治，好吗？
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 937#       发表于 2020-3-24 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46854301&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-24 11:50</a>
+
+全世界都不想要共产主义回来，或者想不好怎么回来，这本来就是当代现实。
+
+选个苏联后继者就好看了？巴黎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">先不论世界范围内的共产主义走没走，现实中，能走到瑞瓦肖这种彻底掀桌并武装了军队的共产主义革命大部分都给本国人民开辟了一条民族自决的道路，之后基本也能从反动势力的反扑中存活下来，活到当今的也是世界上少数主权完整、经济命脉没有被西方资本控制的国家。除了这些国家，全世界的左翼运动也是逼迫资本家提高劳工待遇和社会福利的主要原因。今天的劳动环境，双休和保险、养老金，温和的阶级关系，并不是因为资本家良心发现，而是因为共产者来过。
+
+
+共产主义给世界留下这么多遗产，这个游戏里有提过哪个？不提好的，只描写满目疮痍的港口，四处可见的弹坑，废弃损坏的军事设施，迷茫的人民，公社惨烈的失败，极端左倾的疯子共产逃兵，再加上点同情和尊敬，就变成对共产主义的赞歌了吗。在我看来不光是同情，更多的是对千疮百孔的社会和黯淡未来的感伤，所以我感觉这个游戏像伤痕文学（现在来看有点用词不当），当然独联体出身的人有这种唱衰心态很正常，这跟他们的政治现实很接近，但那是独联体的人民自己的问题，不要以偏概全代表所有共产主义政权。
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 938#       发表于 2020-3-24 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855682&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 13:53</a>
+
+前半句说自己无权判定谁算康米主义，后半句紧跟着就说“巴黎公社不能代表康米主义”。
+
+春天来了，精神分 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">黄种人里选个女演员演好莱坞电影，结果选了个丑女，你觉得她能不能代表你呢，“能不能代表”和“算不算”不是一码事
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 939#       发表于 2020-3-24 13:58
+
+
+
+
+老是莫名其妙失去士气咋办啊，电话打着打着才发现自己把制服丢了然后gameover也太怪了吧。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 940#       发表于 2020-3-24 14:04
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-24 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855689&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 13:54</a>
+
+先不论世界范围内的共产主义走没走，现实中，能走到瑞瓦肖这种彻底掀桌并武装了军队的共产主义革 ...</blockquote>
+“民族自决”，“从反扑中活下来”，“主权完整”，“经济命脉没有被西方资本把控”
+
+你就是国际道德联盟的官员吧？
+
+瑞瓦肖的革命从反扑中活下来了？活下来了为什么逃兵偷渡了那么多城市都找不到组织？
+
+民族自决游戏中没怎么提到。
+
+主权完整？资本家的雇佣兵在瑞瓦肖的领土上横冲直撞，小金写个报告涉及国际道德联盟都得删减，原来这就是主权完整啊~
+
+经济命脉没有被资本把控？思维格子里十五个寡头公司的介绍和野松公司的高管对话里明确说明了这个世界是寡头占主导地位的。至于游戏里留下的遗产，工会不就算一个吗（笑）。再说了地上的弹坑和墙上的弹孔听您的介绍是康米干的？都怪康米抵抗，不然城市不会变成废墟？
+
+以上我说的是游戏又不是游戏，多体会，懂得人自然懂，装睡就没办法了。
+
+
+
+
+
+
+
+
+-----
+
+####  backto95  
+##### 941#       发表于 2020-3-24 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855729&amp;ptid=1858008" target="_blank">沈经文 发表于 2020-3-24 13:58</a>
+
+老是莫名其妙失去士气咋办啊，电话打着打着才发现自己把制服丢了然后gameover也太怪了吧。 ...</blockquote>
+很多对话减士气体力，对话画面可以吃药，点一下体力士气条上面的数字就行（前提是你有药），就算减到0也有一点时间让你吃药回复（画面慢慢变黑）
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 942#       发表于 2020-3-24 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855719&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 13:57</a>
+
+黄种人里选个女演员演好莱坞电影，结果选了个丑女，你觉得她能不能代表你呢，“能不能代表”和“ ...</blockquote>
+少玩文字游戏，3月18注册的钓鱼小号滚到外野去玩，别来楼里喷粪。
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 943#       发表于 2020-3-24 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855793&amp;ptid=1858008" target="_blank">backto95 发表于 2020-3-24 14:05</a>
+很多对话减士气体力，对话画面可以吃药，点一下体力士气条上面的数字就行（前提是你有药），就算减到0也 ...</blockquote>
+选项也没啥提示，突然就挂了有点蛋疼。赶紧点一级平心静气压压惊。
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 944#       发表于 2020-3-24 14:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855576&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 13:41</a>
+
+你真的玩这个游戏了吗？
+
+除了能源危机和种族歧视游戏里确实没讲什么，剩下的哪个游戏里见不到？
+
+失业潮： ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那为什么游戏里没有印度那样的贫民窟和乞丐，人民不像苏联解体之后那样排队买面包，不像委内瑞拉那样货币严重贬值买不到必需品，不像解放前的租界洋人在街上耀武扬威，为什么男主作为帝国主义代理人下馆子还要花钱，为什么书店和杂货店的柜台不像美国黑人区那样用铁丝网和栏杆封的严严实实
+
+
+如果瑞瓦肖的人民比上面这些国家过的都好，那你怎么可能是殖民地呢？
+
+
+周日朋友谈通货膨胀那里也很魔幻，殖民地就是用来赚剪刀差的，哪有帝国主义会在乎殖民地通货膨胀的？
+
+
+也许有人会说是工会维持了社会秩序。工会，这个是游戏里最魔幻的了。只有在有投票权的民主国家才会有工会，殖民地搞工会会被资本家锤爆。游戏里的工会不光活得好好的，还组织了好几轮罢工，甚至把手伸向了港口的产权，这种工会我从没见过。
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 945#       发表于 2020-3-24 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855689&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 13:54</a>
+
+先不论世界范围内的共产主义走没走，现实中，能走到瑞瓦肖这种彻底掀桌并武装了军队的共产主义革 ...</blockquote>
+这游戏哪里也没标着叫“共产主义的赞歌”，开发者也只是感谢马恩作为思想历史方面的贡献。至于那些动不动要唱共产主义赞歌的，建议和哔哩哔哩小将合流，来个二次元共产主义联欢大合唱。
+
+
+共产主义来过也就来过，农民起义以后封建地主也会调整政策。何况共产主义早走了这么多年了现在也不会来，资本家们保持了政策没大改，是资本家们的脑子决定的。资本家有良心资本没有，共产党有良心可共产主义也没有。
+
+
+你的意思是描写朝鲜、中国、古巴、苏联来表现共产主义才够味？
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 946#       发表于 2020-3-24 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855788&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 14:04</a>
+
+“民族自决”，“从反扑中活下来”，“主权完整”，“经济命脉没有被西方资本把控”
+
+你就是国际道德联盟的 ...</blockquote>
+就是这个意思呀，你理解的真好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+现实中搞成共产革命的，这些东西都实现了。但这些本来应该是共产革命带来的东西，游戏中一个都没有，那你说这算不算是作者对共产运动的污名化呢<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 947#       发表于 2020-3-24 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855827&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 14:08</a>
+
+少玩文字游戏，3月18注册的钓鱼小号滚到外野去玩，别来楼里喷粪。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">大哥 论注册时间你比我还晚呢 你这算不算是百步笑五十步？
+
+
+我以为咱俩心平气和的聊游戏，结果你一下就来个人身攻击，应该去外野的是谁呢
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 948#       发表于 2020-3-24 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855988&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-24 14:23</a>
+
+这游戏哪里也没标着叫“共产主义的赞歌”，开发者也只是感谢马恩作为思想历史方面的贡献。至于那些动不动 ...</blockquote>
+其实我想说的就是独联体出来的自然会有些悲观，这种悲观融合在他的游戏里，我觉得不能拿来以偏概全，毕竟我还是对某些事有信心的
+
+
+置于给共产主义唱赞歌的评价，大概是我之前爬楼和看外网评论之后脑海中的感性认识吧，现在打完游戏仔细想想他也没对康米有那么多正面评价。主要还是跟作者心中的康米形象相比，我心中的康米形象还是要更伟光正一些，所以不吐不快吧。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 949#       发表于 2020-3-24 14:44
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-24 14:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46855974&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 14:22</a>
+
+那为什么游戏里没有印度那样的贫民窟和乞丐，人民不像苏联解体之后那样排队买面包，不像委内瑞拉 ...</blockquote>
+游戏里到处是印度那样的贫民窟，只不过做成了筒子楼的模样。
+
+人民确实不需要排队买面包（没面包可买就不用排队了），因为黄色工会起码带来了暂时的秩序。
+
+货币贬值买不到必需品，同上。加上还有你们国际道德联盟的官僚在努力嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+耀武扬威？确实没有，你的**同事去殖民地当周日朋友c男大学生py还蛮亲善的喔。威胁主角的时候也是很和蔼的。
+
+男主不配帝国主义代理人，男主只是最基层的小卒子。
+
+书店不封起来因为没有必要，本来这破书店就快倒闭了。而且铁丝网和栏杆是要钱的。这么一个港口小镇，熟人生意，也没有必要。你又不知道瑞瓦肖的其他城市封不封，比如煤城<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+瑞瓦肖的人民比其他地方过得都好——我笑了，你现在又能代表瑞瓦肖的人民了？
+
+在乎殖民地通货膨胀，那欧盟还有对东欧的人道主义援助呢，也不妨碍欧盟资本家往东欧倾销商品，把东欧当经济殖民地啊？你对新时代的经济殖民是一点了解没有，再说了割韭菜才是可持续，拔韭菜不是，保持殖民地的稳定是很重要的功课<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">。
+
+至于当地工会，就是个标准的黄色工会，主张工人阶级与资产阶级实行“阶级合作”，前任被逃兵杀了的那头“母牛”就是。现在的工会头子有自己的算盘和野心，也许是想走具有瑞瓦肖特色的工人阶级道路吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">。具体例子可参考动物农场里的猪——没准这也是制作者把工会老板兄弟俩设定的这么肥的一个原因。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 950#       发表于 2020-3-24 14:48
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-24 14:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856011&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 14:26</a>
+
+就是这个意思呀，你理解的真好
+
+
+现实中搞成共产革命的，这些东西都实现了。但这些本来应该是共产 ...</blockquote>
+哪些实现了？你梦里实现了？现实里搞成的不是已经失去，就是正在失去。
+
+不是被别人逼着失去，就是自己主动失去。
+
+无 产 难 明 白，你 没 胜 利
+
+
+
+
+
+
+
+-----
+
+####  verniy  
+##### 951#       发表于 2020-3-24 14:55
+
+
+
+
+通关了，本来tga出来的时候觉得这游戏拿这么多奖怪怪的，玩过之后觉得确实实至名归<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+不过还是有几个问题不清楚：
+
+高内陆帝国都能和什么对话？
+
+高同舟共济是不是随时随地都能感觉到警局同胞在做什么？
+
+游戏里能拿到几把**？就**和**吗？（最后老战士那把不算）
+
+哈库多玛达塔（那个神秘动物鸟）存在吗？我打完竹节虫支线以为所谓神秘动物都是假的就没内化，但是最后先是看到竹节虫然后我把五感发达点到9之后在岛上出了个黄点说听到了哈库多玛达塔的声音<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+“审判时刻”的最好结局是什么样的？最多能活几个人？
+
+那扇门是不是真的无法打开？
+
+世界观里还有没有信马佐夫的国家？老战士是不是提过一个什么“堕落的工人国家”？那个是吗？
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 952#       发表于 2020-3-24 15:03
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-24 15:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856293&amp;ptid=1858008" target="_blank">verniy 发表于 2020-3-24 14:55</a>
+
+通关了，本来tga出来的时候觉得这游戏拿这么多奖怪怪的，玩过之后觉得确实实至名归
+
+不过还是有几个 ...</blockquote>
+高内陆帝国相当于高灵视，高同舟共济你可以理解为警察里的老油条，很懂警察那一套。原本的翻译是警察文化。游戏里最多两把能开的**。那个鸟不知道存不存在，主角最后在岛上貌似听到了。
+
+审判时刻没有好结局火并无法避免，有人打出过最少死了三个（据说），不知道算上佣兵没有。
+
+真的无法打开，外网有人扔了大成功也开不了。
+
+萨马拉共和国……就是个可悲的笑话…… <blockquote>在“极乐”里总共有七个“岛陆”：蒙地（Mundi），这也是最为古老的一个岛陆；首奥（Seol），一个奉行孤立主义的岛陆；萨马拉（Samara），一个奉行共产主义的岛陆；格拉德（Graad），科学共产主义的发源地，也是游戏提到的“革命”的源头（感觉这像是个输出革命的地方）；此外还有卡特勒（Katle），伊马腊（Iilmaraa）和因苏林德（Insulinde）</blockquote>按照作者的设定对比一下你就知道了。
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 953#       发表于 2020-3-24 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856183&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 14:44</a>
+
+游戏里到处是印度那样的贫民窟，只不过做成了筒子楼的模样。
+
+人民确实不需要排队买面包（没面包可买就不用 ...</blockquote>
+原来瑞瓦肖人民过的这么惨，逻辑上确实说得通。看起来没有人比你更懂殖民地和资本主义了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 954#       发表于 2020-3-24 15:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856412&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 15:10</a>
+
+原来瑞瓦肖人民过的这么惨，逻辑上确实说得通。看起来没有人比你更懂殖民地和资本主义了 ...</blockquote>
+阴阳人少逼逼两句，我就给您家人烧高香了
+
+
+
+
+
+
+
+-----
+
+####  profklugstein  
+##### 955#       发表于 2020-3-24 15:21
+
+
+
+ 本帖最后由 profklugstein 于 2020-3-24 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856293&amp;ptid=1858008" target="_blank">verniy 发表于 2020-3-24 14:55</a>
+通关了，本来tga出来的时候觉得这游戏拿这么多奖怪怪的，玩过之后觉得确实实至名归
+
+不过还是有几个 ...</blockquote>
+那个“堕落的工人国家”叫Samara，游戏里还有一顶萨马拉的帽子，你看了那个帽子就明白了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 956#       发表于 2020-3-24 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856461&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 15:15</a>
+
+阴阳人少逼逼两句，我就给您家人烧高香了</blockquote>
+我说贫民窟 你说筒子房
+
+我说没面包 你说工会管
+
+我说工会魔幻 你说工会是统治者
+
+我说货币贬值 你说国联不让
+
+我说国联魔幻 你说你更懂殖民
+
+我说不设防 你说民风淳朴
+
+我说瑞瓦肖过的还行 你说代表不了瑞瓦肖
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">原来大哥你又懂殖民又懂工会又能代表瑞瓦肖，那你能不能告诉我现实中哪里的黄色工会能一下子变成统治者？南美和非洲国家的汇率不崩，西方资本家怎么抄底他们的经济命脉？还有您住在瑞瓦肖或者煤城的哪个区？煤城到底封不封窗？
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 957#       发表于 2020-3-24 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856620&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 15:28</a>
+
+我说贫民窟 你说筒子房
+
+我说没面包 你说工会管
+
+我说工会魔幻 你说工会是统治者</blockquote>
+一开头就说了工会是当地实际老大，只限于玛蒂奈斯
+
+你果然没玩就来逼逼了。
+
+
+
+
+
+
+
+-----
+
+####  leotard  
+##### 958#       发表于 2020-3-24 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856640&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 15:30</a>
+
+一开头就说了工会是当地实际老大，只限于玛蒂奈斯
+
+你果然没玩就来逼逼了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">所以说他魔幻啊 现实主义作品或现实中有哪个工会是这样的？
+
+
+火线第二季里有个类似的工会 但是最后被警察和FBI抓到小辫子给锤爆了 这还是主权国家 更何况是在殖民地
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 959#       发表于 2020-3-24 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856657&amp;ptid=1858008" target="_blank">leotard 发表于 2020-3-24 15:31</a>
+
+所以说他魔幻啊 现实中有哪个工会是这样的？
+
+
+火线第二季里有个类似的工会 但是最后被警察和FBI抓 ...</blockquote>
+这个工会存在是因为之前的工会领导者和资本家做了交易，工会管住工人，资本家返利给工会，这样不用涨太多工资，也不会出现工人暴动需要资本家平叛的状况。这就是黄色工会存在的现实依据。你要是说现实就说现实，说游戏就说游戏，说美剧就说美剧，三个掺在一起，难怪你精神有问题。
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 960#       发表于 2020-3-24 15:41
+
+
+
+
+没必要大动干戈，有自己的理解很正常。不管怎么样能说出来让人能看得懂也挺难得的...况且你不知道是个背后是不是一个普片。
+
+
+这游戏这么劝退，要相信大部分耐心打完还扒专楼的观众也不是傻逼。<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+实在槽点太多了再体面点表述下反对意见就挺好的，这种场景下精神最后两个技能ESPRIT DE CORPS（同舟共济这个翻译不太行）和suggestion非常好用。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| leotard| + 1|Empathy也不错|
+| zongrumk2| + 1|确实，警察文化点了会有新对话.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 961#       发表于 2020-3-24 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856293&amp;ptid=1858008" target="_blank">verniy 发表于 2020-03-24 14:55:07</a>
+通关了，本来tga出来的时候觉得这游戏拿这么多奖怪怪的，玩过之后觉得确实实至名归
+
+“审判时刻”的最好结局 ...</blockquote>你对同舟共济的这个理解比较准确，这个技能补完了很多你的同事在视线外都干了什么，比如他们刚接到哈利的电话就来找他了
+他们真的不是不关心哈利，问题是你要是不点这个技能就 完 全 不 知 道
+只能被他们高强度嘴臭，虽然确实是哈利先混蛋的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                 
