@@ -341,7 +341,7 @@
     "title": "[火纹风花雪月讨论楼【已发售】剧透请白 讨论群473276491]",
     "lastedit": 1582481037,
     "category": "游戏区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1912407",
@@ -4449,9 +4449,9 @@
   },
   {
     "id": "1916462",
-    "totalpage": 61,
+    "totalpage": 62,
     "title": "[【仁王2专楼】更新部分武器打Boss思路和各Buff增伤]",
-    "lastedit": 1585044372,
+    "lastedit": 1585080200,
     "category": "游戏区专楼",
     "active": true
   },
@@ -5721,9 +5721,9 @@
   },
   {
     "id": "1920426",
-    "totalpage": 31,
+    "totalpage": 32,
     "title": "[【V7】虚拟YouTuber综合讨论楼織田信姫将于4月30日引退]",
-    "lastedit": 1585066128,
+    "lastedit": 1585080362,
     "category": "虚拟主播区专楼",
     "active": true
   },
