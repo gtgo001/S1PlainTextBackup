@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-15 18:02** 
+> ## **本文件最后更新于2020-03-25 02:04** 
 
 
 
@@ -16050,4 +16050,1045 @@ IMG_20200315_140818.jpg
 
 
 
-                    
+
+
+-----
+
+####  zybdnf  
+##### 2376#       发表于 2020-3-15 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说 有多久没在直播间出现了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2377#       发表于 2020-3-15 18:56
+
+
+
+ 本帖最后由 noaki 于 2020-3-15 19:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744160&amp;ptid=1914314" target="_blank">发飙的水 发表于 2020-3-15 14:19</a>
+
+蹭夸皇热度被看破了</blockquote>
+我看破了你的看破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（三国杀饼干
+
+<img src="https://img.saraba1st.com/forum/202003/15/191753x2l6rb03p1t2b6wt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>AF82DB23-06C3-4D51-BAF1-8780949C686B.jpeg</strong> (36.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-15 19:17 上传
+
+
+
+
+
+
+别说，这老哥做的很好了；要有萌萌人这么问我我也会这么说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（实际上已经大概有过两个这么问过了
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 2378#       发表于 2020-3-15 18:58
+
+
+
+
+这不把crew的洗地翻译成英语冲了这个鬼佬 说的什么🐔⑧
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2379#       发表于 2020-3-15 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，本来也没出现多少次，不要乱黑嗷
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2380#       发表于 2020-3-16 00:45
+
+
+
+
+提你是给你面子，不提就是没有利用价值了，没有利用价值不提你是因为你自己拉跨，关我屁事。这就和被骗80%是因为自己蠢一样，建议认清现状
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2381#       发表于 2020-3-16 01:03
+
+
+
+
+还搁这妹啊哭啊呢，看现在这情况，搞不好两个月以后，木口、阿夸、mea、日本人和美国人都不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 2382#       发表于 2020-3-16 01:21
+
+
+
+
+建议直接去回复鬼佬
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2383#       发表于 2020-3-16 03:41
+
+
+
+
+ig是要核平西半球了吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 2384#       发表于 2020-3-16 03:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46746776&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-15 18:56</a>
+我看破了你的看破（三国杀饼干
+
+
+别说，这老哥做的很好了；要有萌萌人这么问我我也会这么说的[f:067 ...</blockquote>
+又是说8得<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+可能只有bilibili才可以使用那个女人的名字吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+哦在bilibili有时也不可以
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2385#       发表于 2020-3-16 09:40
+
+
+
+
+crew传统艺能
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2386#       发表于 2020-3-16 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46750768&amp;ptid=1914314" target="_blank">惘时之轮 发表于 2020-3-16 00:45</a>
+提你是给你面子，不提就是没有利用价值了，没有利用价值不提你是因为你自己拉跨，关我屁事。这就和被骗80% ...</blockquote>
+是哦，夸神就是大骗子哦，所有打过钱的都是傻逼，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谁打的越多越傻逼。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2387#       发表于 2020-3-16 11:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2388#       发表于 2020-3-16 13:12
+
+
+
+
+md我傻逼了，本来想把这老哥id截去了不给他添麻烦的，怎么好像还立靶子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddsdse  
+##### 2389#       发表于 2020-3-16 13:15
+
+
+
+
+什么阅读理解 冲的是最开始那个鬼佬
+这频道主又不是鬼佬
+
+—— 来自 HUAWEI VKY-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 2390#       发表于 2020-3-16 14:08
+
+
+
+
+纯良的前贴贴人来说说现在对这两人的看法
+
+
+大亏：
+
+杂谈力低下+5岁rp局限了话题导致杂谈虚无，B限特供营业演技难看+百合营业舔狗过头让人感觉恶心。
+
+游戏力很高可是游戏直播本身爆点太少重复内容太多大部分时间都很无聊，只能看剪辑，这点不怪她毕竟别的游戏直播我也看不进去。
+
+歌力就不说了，也就当时带着帖帖人滤镜的时候听得进去
+
+除开初期几个最自然互动效果最好的双人回，别的单人直播基本没留下什么印象，只记得看完感觉时间白白流走了。
+
+
+mea：
+
+在有企划的时候能够把自身杂谈力和应变能力的优势发挥出来，去年一年留下了不少爆点不断的神回。
+
+联动时自然有趣的互动是看点，最初的meaqua，现在的犬神因幡。
+
+可惜对V事业不够上心，企划力不强，自己单人直播大多都是随便播播，企划主要靠别人提供，加上心态经常炸，一小屁孩，给人不争气的失望感，也是因为这些原因天狗内部经常黑泥+大逃杀，体验极差。
+
+歌力进步挺多+天生声质优势，前两天的歌回还是听得挺爽的，可惜认真唱的时候不多。
+
+游戏力就不说了，基本不看。
+
+最近舔舞元用力过度+饥渴痴女营业看着恶心，一见男人就发情，偶尔玩一玩还行，老这样只感觉做作+恶俗
+
+把她当dd列表中的一员偶尔看看还行，但是投入进去就会被各种黑泥恶心。
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuandi0120| + 2|为从骗局中清醒贺|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2391#       发表于 2020-3-16 15:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大体同意，但没企划（其实也是做了的）≠没节目效果，即使单人直播也是如此
+
+
+当然要不要享受/讨厌这种不安定感另说
+
+
+
+
+
+
+
+-----
+
+####  三学研究员  
+##### 2392#       发表于 2020-3-16 15:04
+
+
+
+
+y1s1，你亏哥把魂系列当鬼畜打怪游戏，我一个魂学家当场就震怒了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">魂学净土宗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2393#       发表于 2020-3-16 15:04
+
+
+
+
+她什么游戏不是鬼畜打怪游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  言艮  
+##### 2394#       发表于 2020-3-18 11:40
+
+
+
+
+别吵了别吵了，大家把这楼用起来不要污染v楼了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Oshino57  
+##### 2395#       发表于 2020-3-23 06:11
+
+
+
+
+
+搜 mea 的 echo 当作业用 bgm 被引到这个视频（
+
+
+刻在 dna 的 bgm，阿夸的认真涩谷 rp
+
+当时简直像追一部双视角叙事的百合巨制，比安达岛村还上头
+
+我想回到 19 年 5 月<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+那时还会为了配信有趣努力的编有趣的 neta 来 ボケ 的阿夸
+
+怎么就堕落成现在这样游戏业界热度的寄生虫了
+
+
+2020 的凑阿夸战略上极其懒惰，配信时长刷的再多掩盖不了低强度重复性劳动的事实
+
+真就躺平心态靠着 5 岁 rp 坐享江山了（
+
+希望今年她能多动动她那可爱的小脑瓜
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2396#       发表于 2020-3-24 20:58
+
+
+
+
+mea知道you管的bug。 一定是夸哥告诉她的吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2397#       发表于 2020-3-24 23:33
+
+
+
+
+今天mea和aqua唱得都很开心的样子， 是发生了什么好事吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 2398#       发表于 2020-3-24 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862087&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-3-24 23:33</a>
+
+今天mea和aqua唱得都很开心的样子， 是发生了什么好事吗</blockquote>
+别钓了 ，别钓了
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2399#       发表于 2020-3-24 23:45
+
+
+
+[@儒门正御应无骞](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=514428) 
+
+停止争论！阿夸发表对于[营业朋友]公式看法
+
+灵魂之友，也许遇到了也许还没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+也许是有的.png
+(56.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-24 23:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/24/234348izf3ccp26xq22hyn.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2400#       发表于 2020-3-24 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862087&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-03-24 23:33:02</a>
+今天mea和aqua唱得都很开心的样子， 是发生了什么好事吗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">330联动定下来了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|一定是这样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2401#       发表于 2020-3-25 00:01
+
+
+
+
+有没有遇到你猜呀<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+不过有个名字已经没法说出来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2402#       发表于 2020-3-25 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862246&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-3-24 23:45</a>
+@儒门正御应无骞 
+
+停止争论！阿夸发表对于[营业朋友]公式看法
+
+灵魂之友，也许遇到了也许还没有 ...</blockquote>
+这不就是mea在我心里还不算是最好的朋友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连口头上的承诺都没了，贴贴人悲痛欲绝。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2403#       发表于 2020-3-25 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862488&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-3-25 00:18</a>
+
+这不就是mea在我心里还不算是最好的朋友吗连口头上的承诺都没了，贴贴人悲痛欲绝。 ...</blockquote>
+用这个发散一下吧，V版KPI靠你了
+
+
+我到觉得她好像要承认又好像不承认的，太暧昧了，值得多玩味一下
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 2404#       发表于 2020-3-25 00:21
+
+
+
+
+说好的武道馆舞台呢，不会让大家失望的
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2405#       发表于 2020-3-25 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862499&amp;ptid=1914314" target="_blank">十九号大侠 发表于 2020-3-25 00:21</a>
+说好的武道馆舞台呢，不会让大家失望的
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 S1Next-鹅版 v2. ...</blockquote>
+武道馆当然是同社里最好的虚拟朋友一起上啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 2406#       发表于 2020-3-25 00:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/25/002434t02pcb6lfilf2z4u.png" referrerpolicy="no-referrer">
+
+
+<strong>截图.png</strong> (80.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-25 00:24 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2407#       发表于 2020-3-25 00:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/device2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2408#       发表于 2020-3-25 00:29
+
+
+
+
+基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2409#       发表于 2020-3-25 00:54
+
+
+
+
+啧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 2410#       发表于 2020-3-25 00:55
+
+
+
+
+这。。。。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2411#       发表于 2020-3-25 00:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hsvv  
+##### 2412#       发表于 2020-3-25 01:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">基德不好么
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2413#         楼主| 发表于 2020-3-25 01:05
+
+
+
+ 本帖最后由 离魂仙 于 2020-3-25 01:12 编辑 
+
+哪个贴贴人翻的，怎么强行加主语制糖(?)的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+”讲真我不喜欢营业朋友这东西。人生中如果有能相互尊敬、关系铁的能心意相通的朋友，一定会非常幸福，就像’伙伴‘一样“
+
+”这只是我自己的看法。你现在可能会觉得这一定就是灵魂之友了，如果更成熟一点就能注意到了吧。这样的人可能已经遇到了，也可能还没遇到，总会想要在人生中遇到这样的人啊，这就是我的看法”
+
+“所以要注意留心身边的人，看能不能有这样的(伙伴)”
+
+-
+
+简直就是彼氏の話<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">我已经应征了
+
+-
+
+PS：
+
+没讲过什么“一起武道馆”吧，aqua这一世上来就是说“武道馆sololive”的，同事都不用，虽然20年形式不同于18年了
+
+“推着不后悔”也差不多吧，这在V圈不都活得很潇洒了嘛
+
+什么，贴贴第三季？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">溺死在东京湾吧，春天再捞上来
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2414#       发表于 2020-3-25 01:13
+
+
+
+
+《是糖》
+
+
+<img src="https://img.saraba1st.com/forum/202003/25/011144stg7tqi1iizz7ik7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4FBE7B53-AF50-4E5F-AE6F-EA42EB233D6B.jpeg</strong> (131.7 KB, 下载次数: 0)
+
+下载附件
+
+境界
+2020-3-25 01:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 2415#       发表于 2020-3-25 01:14
+
+
+
+
+真可怜啊
+
+
+
+
+
+
+
+-----
+
+####  升级似自己家  
+##### 2416#       发表于 2020-3-25 01:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  发飙的水  
+##### 2417#       发表于 2020-3-25 01:15
+
+
+
+
+夸宝长大了，欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 2418#       发表于 2020-3-25 01:17
+
+
+
+
+马上就是4月分，春天到了
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2419#       发表于 2020-3-25 01:18
+
+
+
+
+等等，这样的话完全都不是同一个意思了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2420#         楼主| 发表于 2020-3-25 01:25
+
+
+
+
+所有人都在鸡同鸭讲
+
+钓鱼评论想问她在V圈有没有真情
+
+她说人都应该去寻找心之友
+
+而暗黑贴贴人在猜她说这大道理时有想过几秒钟mea
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是互联网啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2421#       发表于 2020-3-25 01:30
+
+
+
+
+我就记得后面有个评论问“最想和哪个vtb联动”，她说“和不是vtb的话最想和乌波联动”，这是被各家暗黑贴贴人盯上了吧，太凶险了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2422#       发表于 2020-3-25 01:35
+
+
+
+
+暗黑贴贴人才是真的连体婴呀。所有话都得往贴贴引，ANTI的理由也是因为她们不那么连体了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  升级似自己家  
+##### 2423#       发表于 2020-3-25 01:41
+
+
+
+
+等沙完连体婴，就轮到你们这些暗黑贴贴人了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2424#       发表于 2020-3-25 02:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">深夜迷糊状态听到mea唱的変わらないもの，一瞬间梦回去年，梦碎的声音也很好听
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2425#       发表于 2020-3-25 02:02
+
+
+
+
+回头一看大亏属实打官腔成瘾，耍得一手好太极，难怪贴贴人这么爱double thinking<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
