@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-25 12:04** 
+> ## **本文件最后更新于2020-03-25 22:04** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_ibnPe" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Qu9QF" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -19839,4 +19839,541 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
-                
+
+
+-----
+
+####  leader01234  
+##### 997#       发表于 2020-3-25 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862934&amp;ptid=1858008" target="_blank">OldGlory 发表于 2020-3-25 04:15</a>
+
+有人说竹节虫就是暗指康米主义，感觉有点道理，毕竟游戏里笼子有四个意识形态也是四种，而竹节虫也脑控了逃 ...</blockquote>
+我觉得竹节虫是一种对原始本能的回归，追寻糖与信息素——酒精和性，任何更高级的思绪，爱情、理想，都只会带来永远的折磨与痛苦，哈里如此，逃兵也如此
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 998#       发表于 2020-3-25 14:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862815&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-3-25 02:23</a>
+
+有两个小问题求教：（1）凶案北面的那个公寓里，每个门都可以打开（或者用工具或者某个任务开），只有楼长 ...</blockquote>
+就是普通的逮住了，不过要注意金要押送她所以今天就没有小金陪你了
+
+你还是觉得不解气的话，可以向周日朋友告发她确保她死定了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 999#       发表于 2020-3-25 15:10
+
+
+
+
+确实，感觉这游戏里的几个意识形态主要是一种背景设计，制作人并不想深入讨论。
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 1000#       发表于 2020-3-25 15:59
+
+
+
+
+打完了
+商业街诅咒是自己真正玩明白的一个点吧，没有什么诅咒，一切都是资本主义的自然规律，这里游戏里说得很明白
+
+竹节虫代表宗教，这个游戏的世界是宗教被遗忘的世界，教堂都已经腐朽了。但是它其实一直存在着
+
+教堂支线没打完，不评价
+
+最后我是自由主义，嗯
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1001#       发表于 2020-3-25 16:03
+
+
+
+ 本帖最后由 augustinus 于 2020-3-25 16:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46868750&amp;ptid=1858008" target="_blank">seki_m 发表于 2020-3-25 15:59</a>
+
+打完了
+
+商业街诅咒是自己真正玩明白的一个点吧，没有什么诅咒，一切都是资本主义的自然规律，这里游戏里说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是，朋友，刚好教堂支线解完了会最后给出商业区诅咒的谜底。。。。还真的是诅咒
+
+以下反白
+
+电话录音其实属于“被诅咒的商业区诅咒”这条任务链，而解密则要落到后续“教堂变夜店”这条任务链。
+
+
+被诅咒的商业区其实就是书店后面那栋废弃的大楼，你在大楼门口的电话机里打了半天店家通通没人接或者自动应答，是因为它们其实都破产了，就剩一楼的书店还在。你可以从担惊受怕的书店女老板那接到任务，去探索商业诅咒的真相。于是你从后门那进了黑漆漆的大楼一步步往上走，一路经过各种破产的店面（就是你电话里打过的那堆），从遗留的痕迹能大概看到这些创业的不靠谱之处。最后到了楼顶制骰女匠处，和她交流了解到这些店破产的经过，得到了“没有啥诅咒，这些店都是商业投资失败”的表-真相。
+
+
+值得注意的是。这个任务链里埋了一条十分重要的伏笔。这堆破产的店面里，占地最大的是个电子游戏公司，他们想制作第一款转线上跑团游戏，进展本来挺靠谱的，但某天突遇代码神秘惊天bug，嗷地一声原地破产了。
+
+
+“教堂变夜店”任务链在游戏第三天过桥后解锁，涉及世界观本质，而且演出爆炸不容错过。大意是你在教堂门口遇到一堆中二摇滚少年少女，想把教堂改成个酷炫夜店（以及制毒所，你可以劝阻他们放弃制毒），但教堂里目前有俩神神秘秘的人，摇滚乐队请你去清场。调查后发现，这俩人互相没啥关系，恰好碰一起了。男神秘人是教堂祭祀对象“无罪者朵拉”的侍奉者；而女神秘人，是对惊天bug始终耿耿于怀的破产电子游戏公司女程序员。在你的帮助下，最终女程序员算出来世界破洞“源点”，并且以“声音”的形式把源点播出来了，最终这段声音成了摇滚乐队的伴奏，程序员、侍奉者与摇滚乐队和谐共处在夜店风的古老教堂里。
+
+
+这条任务链的最终，你和女程序员对话，能意识到，正是由于教堂里的这个源点，对距离不远的商业大楼造成了不可名状的影响，导致它们纷纷看似合理又哪里不对的破产了，还导致了某种时空扭曲，让久远之前的录音飘荡在现在的电话线路里。
+
+
+是的，最终证明，商业区的诅咒真的存在。
+
+
+
+
+
+
+
+
+-----
+
+####  azccc52  
+##### 1002#       发表于 2020-3-25 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46868750&amp;ptid=1858008" target="_blank">seki_m 发表于 2020-3-25 15:59</a>
+打完了
+
+商业街诅咒是自己真正玩明白的一个点吧，没有什么诅咒，一切都是资本主义的自然规律，这里游戏里说 ...</blockquote>
+教堂支线最后会关联到商业区诅咒支线的，你没玩到商业区的真相<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1003#       发表于 2020-3-25 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46868798&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-3-25 16:03</a>
+
+不是，朋友，刚好教堂支线解完了会最后给出商业区诅咒的谜底。。。。还真的是诅咒
+
+以下反白</blockquote>
+这里你说错了一个部分，tiago信奉的不是无罪女王，而是那个2mm小洞
+
+
+
+
+
+
+
+-----
+
+####  Herreimu  
+##### 1004#       发表于 2020-3-25 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46865457&amp;ptid=1858008" target="_blank">Kaltsit 发表于 2020-3-25 11:25</a>
+
+是否和乔伊斯谈接管港口的事、让她答应转让中转站对结局有影响吗？</blockquote>
+我1.5周目支线基本全做，放走卡拉洁，没和乔伊斯说话，招募坤诺，最后上岸回来后全部选项都嘴臭队友
+然后在**战检定全绿的情况下死了7个人，队友判定主角精神有问题直接拉回去了，完全没有涉及到中转站和权力变更的对话
+我寻思八成就是因为没和乔伊斯对话，还有两成是招募坤诺
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1005#       发表于 2020-3-25 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46869046&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-25 16:24</a>
+
+这里你说错了一个部分，tiago信奉的不是无罪女王，而是那个2mm小洞</blockquote>
+感谢感谢，我那段确实没看太仔细，还真是有点心虚。。。说起来我对蟹男有点疑问，反白请教一下：
+
+这个人对话那段我没太看懂，他是不是活了很久（感觉对话里有暗示），他现在是个什么“状态”的存在呢？
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1006#       发表于 2020-3-25 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46869336&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-3-25 16:51</a>
+
+感谢感谢，我那段确实没看太仔细，还真是有点心虚。。。说起来我对蟹男有点疑问，反白请教一下：
+
+
+这个人 ...</blockquote>
+并没有，他搬入这个教堂是几年前RCM一次踢门搜查的大行动之后的事情了（结局的统计汇报和回到警队会提到疑似哈德彪有参与这次行动，还是绝密行动
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 1007#       发表于 2020-3-25 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46868798&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-3-25 16:03</a>
+
+不是，朋友，刚好教堂支线解完了会最后给出商业区诅咒的谜底。。。。还真的是诅咒
+
+以下反白</blockquote>
+我打到教堂已经变迪厅了，但所有人的判定都是8%，于是放弃去打主线
+活在表面结论的世界里也不错
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 1008#       发表于 2020-3-25 18:44
+
+
+
+
+一周目通关了，很爽，但感觉还是云里雾里的
+好多真相相关的设定居然是最后靠内陆帝国和虫子聊天聊出来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，也不知道可不可信。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">另外就是一时心软把卡拉洁放跑了（也是害怕抓了以后还有东西要回来问就问不了了），如果逮捕或者告发她的话走向会不一样吗？
+最后看到警长相信主角一定能恢复状态归队的对话真的感动<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，好上司啊
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  NeverwinterN  
+##### 1009#       发表于 2020-3-25 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46870547&amp;ptid=1858008" target="_blank">战术核辣条 发表于 2020-3-25 18:44</a>
+一周目通关了，很爽，但感觉还是云里雾里的
+好多真相相关的设定居然是最后靠内陆帝国和虫子聊天聊出来的[f: ...</blockquote>
+逮捕她shiver在最后会告诉你她被两个icp带走了，结局应该就和她说的被抓会怎么样一样了。
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 1010#       发表于 2020-3-25 18:51
+
+
+
+<blockquote>战术核辣条 发表于 2020-3-25 18:44
+一周目通关了，很爽，但感觉还是云里雾里的
+
+好多真相相关的设定居然是最后靠内陆帝国和虫子聊天聊出来的[f: ...</blockquote>
+结尾如果你同舟共济够高会有一段关于RCM真相的额外对话
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 1011#       发表于 2020-3-25 19:02
+
+
+
+
+我瞎了，我让测颅先生给我开门，但门在哪里？
+
+
+
+
+
+
+
+-----
+
+####  先生空气  
+##### 1012#       发表于 2020-3-25 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46870811&amp;ptid=1858008" target="_blank">陈玉礼 发表于 2020-3-25 19:02</a>
+
+我瞎了，我让测颅先生给我开门，但门在哪里？</blockquote>
+就在上楼的楼梯那里
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1013#       发表于 2020-3-25 20:12
+
+
+
+
+一周目通了
+遗憾的是没找回配抢
+新开局发现居然能全1属性开局
+这游戏有坏结局吗
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1014#       发表于 2020-3-25 20:38
+
+
+
+
+一周目通关了，没撂倒颅测是最大的遗憾，谁来告诉我一下，体格开局有没有机会正面干他？
+
+和前女友打完电话以后就没动力做支线了，导致最后没做完的还挺多的，唉……
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1015#       发表于 2020-3-25 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46871905&amp;ptid=1858008" target="_blank">就是剑鞘 发表于 2020-3-25 20:38</a>
+
+一周目通关了，没撂倒颅测是最大的遗憾，谁来告诉我一下，体格开局有没有机会正面干他？
+
+和前女友打完电话 ...</blockquote>
+精神开局试了下，服装+对话条件大概+2的情况下概率是50%，运气好过了。体格的肯定更好过些
+
+
+
+
+
+
+
+-----
+
+####  jockeyjoestar  
+##### 1016#       发表于 2020-3-25 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46864462&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-25 10:09</a>
+
+旅馆睡觉工人叫醒会给你介绍下情况，比如外面在搞罢工，工会老大是谁，还可以问下哪来买酒，没有特别重要 ...</blockquote>
+可以从他那偷门禁卡
+
+
+
+
+
+
+
+-----
+
+####  jockeyjoestar  
+##### 1017#       发表于 2020-3-25 21:03
+
+
+
+ 本帖最后由 jockeyjoestar 于 2020-3-25 21:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46871584&amp;ptid=1858008" target="_blank">Doctor.S 发表于 2020-3-25 20:12</a>
+
+一周目通了
+
+遗憾的是没找回配抢
+
+新开局发现居然能全1属性开局</blockquote>
+ 配**需要找工会头领 完成他的两个任务  他才会告诉你**在哪里
+
+
+
+
+
+
+
+-----
+
+####  jockeyjoestar  
+##### 1018#       发表于 2020-3-25 21:08
+
+
+
+
+感性通关 任务基本清干净了  还是挺失望的  可能不能当侦探游戏玩吧
+
+议题过于政治化了，100万字的文本有一半是在讲意识形态和介绍游戏背景  
+
+不少段落相当意识流。。我分不清自己是在玩游戏还是在读《追忆似水年华》
+
+
+灰域  大革命 多洛里斯黛这种架空设定对于游戏体验有什么提升吗？塞了这么多神神叨叨的东西干嘛？？？ 
+
+
+
+
+
+
+
+
+-----
+
+####  fkinway  
+##### 1019#       发表于 2020-3-25 21:12
+
+
+
+
+竹节虫最后关于那个女人的话没有对应啊。我以为是再睡一觉结果不是。之前没睡过的话是有新对话不过也没影响
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1020#       发表于 2020-3-25 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46872298&amp;ptid=1858008" target="_blank">fkinway 发表于 2020-3-25 21:12</a>
+
+竹节虫最后关于那个女人的话没有对应啊。我以为是再睡一觉结果不是。之前没睡过的话是有新对话不过也没影响 ...</blockquote>
+难道不就是让你忘了前女友吗，其他人格或者说技能一直都是这个态度吧
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1021#       发表于 2020-3-25 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46872250&amp;ptid=1858008" target="_blank">jockeyjoestar 发表于 2020-3-25 21:08</a>
+
+感性通关 任务基本清干净了  还是挺失望的  可能不能当侦探游戏玩吧
+
+议题过于政治化了，100万字的文本有一 ...</blockquote>
+这三个都是核心基础设定好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">.........
+
+灰域从开局商业区就开始铺垫，到教堂回收是这个游戏醍醐味重要的构成要素
+
+大革命是基础的背景，瑞瓦肖之所以变成现在这鸟样基本就是因为革命失败了，老兵直接源于大革命
+
+没无罪女王你怎么塑造前任在哈利心中近乎圣化的形象？
+
+
+光这三样你删了这游戏还剩啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？
+
+
+
+
+
+
+
+-----
+
+####  jockeyjoestar  
+##### 1022#       发表于 2020-3-25 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46872718&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-25 21:46</a>
+
+这三个都是核心基础设定好吗.........
+
+灰域从开局商业区就开始铺垫，到教堂回收是这个游戏醍醐味 ...</blockquote>
+所以我说政治太多 侦探不足啊  就拿乔伊斯这个npc来讲  对一个陌生人bb这么多历史知识不出戏吗
+
+你可以把这些设定放在书店里 ok  有兴趣的可以多看看  没兴趣接着探案就好  但放主线里就很怪
+
+
+
+
+
+               
