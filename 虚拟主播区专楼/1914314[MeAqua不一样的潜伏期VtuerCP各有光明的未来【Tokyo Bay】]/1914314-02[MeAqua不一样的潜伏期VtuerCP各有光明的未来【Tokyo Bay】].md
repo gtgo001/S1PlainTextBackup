@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-25 02:04** 
+> ## **本文件最后更新于2020-03-25 12:03** 
 
 
 
@@ -16874,6 +16874,25 @@ PS：
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2111X| + 1|这段稀烂破碎的话听到我牙痒痒，向勇敢的翻.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17091,4 +17110,170 @@ PS：
 
 
 
-                   
+
+
+-----
+
+####  Fakerの幻影  
+##### 2426#       发表于 2020-3-25 02:31
+
+
+
+
+330联动怕是已经在梦里面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2427#       发表于 2020-3-25 04:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虽然不喜欢营业朋友
+
+但 为了人气，就没办法了
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 2428#       发表于 2020-3-25 05:55
+
+
+
+
+你以为是暗黑六字母在钓鱼，其实是本土大福推在质问，那边直播间有人认识你咩姐吗
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 2429#       发表于 2020-3-25 07:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">到底是美股泡沫更大还是贴贴泡沫更大呢（）
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2430#       发表于 2020-3-25 07:38
+
+
+
+
+不愧是圣皇大天使，一段模棱两可的话能让各路贴贴人高潮也能用来杀暗黑贴贴人，还能用来讲人生哲理，我服了，这就是说话的艺术吗<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2431#       发表于 2020-3-25 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862988&amp;ptid=1914314" target="_blank">小走 发表于 2020-3-25 05:55</a>
+你以为是暗黑六字母在钓鱼，其实是本土大福推在质问，那边直播间有人认识你咩姐吗 ...</blockquote>
+是吗？那这也太戏剧化了，感觉更可怜了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2432#         楼主| 发表于 2020-3-25 11:13
+
+
+
+ 本帖最后由 离魂仙 于 2020-3-25 11:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46865159&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-25 10:59</a>
+是吗？那这也太戏剧化了，感觉更可怜了啊</blockquote>
+大概并不是吧，这位幸运的甩钩者都没订阅大福、阿夸和咩咩，倒是关注了船长<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">打靶要打准哦
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2433#       发表于 2020-3-25 11:22
+
+
+
+ 本帖最后由 noaki 于 2020-3-25 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46865328&amp;ptid=1914314" target="_blank">离魂仙 发表于 2020-3-25 11:13</a>
+大概并不是吧，这位幸运的甩钩者都没订阅大福，倒是关注了船长打靶要打准哦 ...</blockquote>
+草哦那样的话不就是正常的从评论池里抓取一般路过的粉丝提问并回答吗，咋还传得那么邪乎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2434#       发表于 2020-3-25 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为眼里有梁木吧
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2435#       发表于 2020-3-25 11:57
+
+
+
+
+s1很多人眼里 普通粉丝 这一物种是不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                  

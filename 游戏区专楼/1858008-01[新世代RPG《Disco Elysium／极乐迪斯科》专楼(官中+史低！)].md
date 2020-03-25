@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-24 16:03** 
+> ## **本文件最后更新于2020-03-25 12:04** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_yqrPC" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_ibnPe" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -17212,10 +17212,11 @@ Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 为你而活| + 1||
 | Archi666| + 1||
 
 
@@ -18412,6 +18413,25 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yayoi801| + 2||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18577,6 +18597,26 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 共产主义给世界留下这么多遗产，这个游戏里有提过哪个？不提好的，只描写满目疮痍的港口，四处可见的弹坑，废弃损坏的军事设施，迷茫的人民，公社惨烈的失败，极端左倾的疯子共产逃兵，再加上点同情和尊敬，就变成对共产主义的赞歌了吗。在我看来不光是同情，更多的是对千疮百孔的社会和黯淡未来的感伤，所以我感觉这个游戏像伤痕文学（现在来看有点用词不当），当然独联体出身的人有这种唱衰心态很正常，这跟他们的政治现实很接近，但那是独联体的人民自己的问题，不要以偏概全代表所有共产主义政权。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Engrave|-1|思路广|
+| 为你而活|-1|思路广|
+
+
+
+查看全部评分
 
 
 
@@ -19166,4 +19206,637 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
-                 
+
+
+-----
+
+####  Alomes  
+##### 962#       发表于 2020-3-24 18:34
+
+
+
+
+说起来最后那个口音非常重的前搭档是跟我搭档了多久，结尾一直被他喷我心态差点崩了
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 963#       发表于 2020-3-24 18:43
+
+
+
+<blockquote>Alomes 发表于 2020-3-24 18:34
+说起来最后那个口音非常重的前搭档是跟我搭档了多久，结尾一直被他喷我心态差点崩了 ...</blockquote>
+没办法，主角以前真的是个非常混蛋的混球，我很难想象出来他是如何处理过两百多件案子的。
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 964#       发表于 2020-3-24 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46858786&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-24 18:43</a>
+
+没办法，主角以前真的是个非常混蛋的混球，我很难想象出来他是如何处理过两百多件案子的。 ...</blockquote>
+失忆以后主角也是个混球啊，我自己往瞎搞风格选每次金都要当老妈子帮忙圆场“我搭档脑子有问题”云云，没被逼疯只能说精神属性不低<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Trompete  
+##### 965#       发表于 2020-3-24 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46858786&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-24 18:43</a>
+
+没办法，主角以前真的是个非常混蛋的混球，我很难想象出来他是如何处理过两百多件案子的。 ...</blockquote>
+毕竟是人肉开罐器啊，办事完全不走寻常路，其实反而更有说服力
+
+
+就这个案子里的做法也一样啊，即便在玩家操作范围内依然是非常奔放
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 966#       发表于 2020-3-24 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46858881&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-24 18:53</a>
+
+失忆以后主角也是个混球啊，我自己往瞎搞风格选每次金都要当老妈子帮忙圆场“我搭档脑子有问题”云云，没 ...</blockquote>
+这前搭档已经抑郁症了，八成是因为哈里，结尾疯狂埋怨主角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但是一找到哈里就跑过来看他实在太暖心了
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 967#       发表于 2020-3-24 19:40
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-24 20:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46858708&amp;ptid=1858008" target="_blank">Alomes 发表于 2020-3-24 18:34</a>
+
+说起来最后那个口音非常重的前搭档是跟我搭档了多久，结尾一直被他喷我心态差点崩了 ...</blockquote>
+从哈里26开始进警局，18年了，哈里四十多了。
+
+他们小组真能忍啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不过哈里并不是一开始就这样
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 968#       发表于 2020-3-24 19:59
+
+
+
+<blockquote>zongrumk2 发表于 2020-3-24 19:40
+从哈里26开始进警局，大概20多年了，哈里四十多了。
+
+他们小组真能忍啊不过哈里并不是一开始就这样
+
+ ...</blockquote>
+他们原小组除了最后那三个人已经全部都跑光了啊
+
+
+哈里遭遇挫折后是颓，之前是混。旅馆一楼你和假发让对话提到“你阻碍了我的风格”，感觉让当场就崩溃了：你明明都失忆不记得我了还牢记着“我阻碍了你的风格”
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 969#       发表于 2020-3-24 20:02
+
+
+
+<blockquote>Hidewhite 发表于 2020-3-24 18:53
+失忆以后主角也是个混球啊，我自己往瞎搞风格选每次金都要当老妈子帮忙圆场“我搭档脑子有问题”云云，没 ...</blockquote>
+前面有开发组访谈的，金的预设模版是精神型不是智力型，签名技能是争强好胜，但是内陆帝国是0
+
+
+
+
+
+
+
+-----
+
+####  dropdead  
+##### 970#       发表于 2020-3-24 20:07
+
+
+
+
+没有折磨身边人的本事怎么当开罐器
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 971#       发表于 2020-3-24 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46859684&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-3-24 20:02</a>
+
+前面有开发组访谈的，金的预设模版是精神型不是智力型，签名技能是争强好胜，但是内陆帝国是0 ...</blockquote>
+有没有金具体的卡
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 972#       发表于 2020-3-24 20:41
+
+
+
+<blockquote>OldGlory 发表于 2020-3-24 20:32
+有没有金具体的卡</blockquote>
+没有，开发组只是谈了下预想里npc不仅有自己的卡还有自己独特的思维阁，比如金从喜欢上空军夹克的少年时代起就一直有一个类似“雷瓦肖民族性”的独特思维，但是直到今天还没有内化完。当然游戏里最后没有做出来
+
+
+
+
+
+
+
+-----
+
+####  bighand3714  
+##### 973#       发表于 2020-3-24 20:56
+
+
+
+
+说起来游戏后期的数值算不算崩了，感觉后期我都没怎么加点就通关了。
+
+
+
+
+
+
+
+-----
+
+####  msfan  
+##### 974#       发表于 2020-3-24 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46852227&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-24 09:01</a>
+
+主角本身就有精神问题……结局里同事专门找了医疗顾问来评估他怎么样了。你拿正常人的思维来推断不好吧？ ...</blockquote>
+我觉得故事背景和NPC都很有分量，如果“我”一度迷失身份只是因为陈年情伤+脑子有坑，在叙事上似乎太轻飘飘了，显得奇怪。当然也可能我太吹毛求疵了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 975#       发表于 2020-3-24 22:03
+
+
+
+<blockquote>msfan 发表于 2020-3-24 21:41
+我觉得故事背景和NPC都很有分量，如果“我”一度迷失身份只是因为陈年情伤+脑子有坑，在叙事上似乎太轻飘 ...</blockquote>
+有另外一种完全不同的解释的。游戏里其实一直在暗示主角得了灰域接触后遗症，乔伊斯说她觉得你跟她一样疯了，而乔伊斯也是后遗症患者；除此之外主角的失忆和精神不稳定也是典型的后遗症症状
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 976#       发表于 2020-3-24 23:14
+
+
+
+
+话说有人出现了猪猪女侠到点没出来的现象吗？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 977#       发表于 2020-3-24 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46861872&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-24 23:14</a>
+
+话说有人出现了猪猪女侠到点没出来的现象吗？</blockquote>
+因为没刷图，你找个房间进去后再出来就可以了
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 978#       发表于 2020-3-24 23:36
+
+
+
+ 本帖最后由 牛兔子 于 2020-3-24 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46861920&amp;ptid=1858008" target="_blank">空月の梦 发表于 2020-3-24 23:18</a>
+
+因为没刷图，你找个房间进去后再出来就可以了</blockquote>
+谢谢！
+
+试了一下还是不行<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">，大概算是遇见BUG了？
+
+
+
+
+
+
+
+-----
+
+####  Archi666  
+##### 979#       发表于 2020-3-24 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46861872&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-24 23:14</a>
+
+话说有人出现了猪猪女侠到点没出来的现象吗？</blockquote>
+我也遇到过一次，不过我去找她的时候已经挺晚过12点了，还以为是我的问题。。
+
+重新读了个9点的档解决了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 980#       发表于 2020-3-25 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862262&amp;ptid=1858008" target="_blank">Archi666 发表于 2020-3-24 23:46</a>
+
+我也遇到过一次，不过我去找她的时候已经挺晚过12点了，还以为是我的问题。。
+
+重新读了个9点的档解决了[f ...</blockquote>
+谢谢，我也是这样解决的
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 981#       发表于 2020-3-25 02:19
+
+
+
+
+可能是剧透的预警
+通关之后才发现原来游戏开始界面的背景图就是凶手视角。
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 982#       发表于 2020-3-25 02:23
+
+
+
+
+有两个小问题求教：（1）凶案北面的那个公寓里，每个门都可以打开（或者用工具或者某个任务开），只有楼长大妈旁边有个被封了的门打不开，但点上去会显示白色轮廓。按说白色轮廓是表示“可以打开但暂不满足条件”才对。。。求问这门怎么才能进去？（2）卡拉洁我选择给她出了个假的逮捕令，但后面一看剧情特别后悔，请问当时选直接逮捕她会怎么样？
+
+
+
+
+
+
+
+-----
+
+####  azccc52  
+##### 983#       发表于 2020-3-25 03:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46862815&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-3-25 02:23</a>
+有两个小问题求教：（1）凶案北面的那个公寓里，每个门都可以打开（或者用工具或者某个任务开），只有楼长 ...</blockquote>
+第一个问题那个门往上走可以穿过墙壁的破洞直接进去
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 984#       发表于 2020-3-25 04:15
+
+
+
+
+有人说竹节虫就是暗指康米主义，感觉有点道理，毕竟游戏里笼子有四个意识形态也是四种，而竹节虫也脑控了逃兵，正好对上
+
+
+
+
+
+
+
+-----
+
+####  人民币之辉  
+##### 985#       发表于 2020-3-25 04:27
+
+
+
+
+打完了，说下感想
+老兵靠康米的理想来赋予自己意义，理想破灭之后仍然抓着鸽明的残影躲在荒岛一个人苟活了那么多年，每天看着对岸不断下沉的世界，都是为了让自己相信自己活着有意义，最后他也毫不避讳自己的罪行希望以康米的身份向资本主义的爪牙投降觉得自己已经尽了力，主角只是把他当成犯人，他突然就明白过来了自己做的以切都毫无意义。前面那么多政治的文本，主义在这时候却完全无所谓，不管什么主义啥啥的这个世界就是这样操蛋，竹节虫出来更强化了这种感觉。最后，感觉游戏内的康米内容更多是为了搭建这个舞台，更多感觉到的只有现实的凄冷和个人的无力，康米也好资本也好，游戏里的现实已经是那个样子，主角也只是个警探而已。
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 986#       发表于 2020-3-25 07:05
+
+
+
+
+打完了，这就是通常意义上的魔幻现实主义吧
+
+虽然很努力的去扮演一个康米主义战士，但手不由自主的就往颓废疯狂的方向上去点……
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 987#       发表于 2020-3-25 07:07
+
+
+
+ 本帖最后由 哈尔摩尼亚N 于 2020-3-25 07:08 编辑 
+
+话说木板桥支线真的挺悲伤的，我前面（出于手贱）可劲儿地忽悠书摊旁那个女人，没想到不幸言中了……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+那个人是前几天趴在酒店睡觉的人吗？如果叫醒他会有什么剧情？
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 988#       发表于 2020-3-25 07:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46858786&amp;ptid=1858008" target="_blank">洗刷刷 发表于 2020-3-24 18:43</a>
+
+没办法，主角以前真的是个非常混蛋的混球，我很难想象出来他是如何处理过两百多件案子的。 ...</blockquote>
+主角虽然是个酗酒混球，但做警察还是有两把刷子的，要不然别人也不会忍他那么久
+
+200多案子，只有3击杀，Kim都说这个记录非常惊人了
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 989#       发表于 2020-3-25 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46863054&amp;ptid=1858008" target="_blank">哈尔摩尼亚N 发表于 2020-3-25 07:07</a>
+
+话说木板桥支线真的挺悲伤的，我前面（出于手贱）可劲儿地忽悠书摊旁那个女人，没想到不幸言中了……[f:004 ...</blockquote>
+那个人不是酒店趴着睡觉的工人
+
+
+
+
+
+
+
+-----
+
+####  prsfd  
+##### 990#       发表于 2020-3-25 08:58
+
+
+
+
+这个游戏那么爱讨论的吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 991#       发表于 2020-3-25 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46863054&amp;ptid=1858008" target="_blank">哈尔摩尼亚N 发表于 2020-3-25 07:07</a>
+
+话说木板桥支线真的挺悲伤的，我前面（出于手贱）可劲儿地忽悠书摊旁那个女人，没想到不幸言中了……[f:004 ...</blockquote>
+旅馆睡觉工人叫醒会给你介绍下情况，比如外面在搞罢工，工会老大是谁，还可以问下哪来买酒，没有特别重要的信息。
+
+当然不知道是否有其他特性支持更多对话。
+
+
+
+
+
+
+
+-----
+
+####  Herreimu  
+##### 992#       发表于 2020-3-25 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46863601&amp;ptid=1858008" target="_blank">prsfd 发表于 2020-3-25 08:58</a>
+这个游戏那么爱讨论的吗</blockquote>
+整个游戏的框架和世界观都是在爱讨论的基础上建立的
+
+
+
+
+
+
+
+-----
+
+####  LoveAntique  
+##### 993#       发表于 2020-3-25 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46864462&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-25 10:09</a>
+
+旅馆睡觉工人叫醒会给你介绍下情况，比如外面在搞罢工，工会老大是谁，还可以问下哪来买酒，没有特别重要 ...</blockquote>
+还可以偷他的工卡，然后用他的工卡假冒试图混进工会
+
+
+当然结果是失败的，因为照片一看长得就不像……也就多这么点额外情节吧，没有支线剧情展开
+
+
+
+
+
+
+
+-----
+
+####  Kaltsit  
+##### 994#       发表于 2020-3-25 11:25
+
+
+
+
+是否和乔伊斯谈接管港口的事、让她答应转让中转站对结局有影响吗？
+
+
+
+
+
+
+
+-----
+
+####  Racyjackman  
+##### 995#       发表于 2020-3-25 11:33
+
+
+
+
+搞阳极音乐里的那个对意识形态和硬核有清晰看法的人的人物画像是在梗大卫鲍伊吗
+
+
+
+
+
+
+
+-----
+
+####  四氢化钠  
+##### 996#       发表于 2020-3-25 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46865555&amp;ptid=1858008" target="_blank">Racyjackman 发表于 2020-03-25 11:33:47</a>
+搞阳极音乐里的那个对意识形态和硬核有清晰看法的人的人物画像是在梗大卫鲍伊吗 ...</blockquote>我也觉得是，蛮像的。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                
