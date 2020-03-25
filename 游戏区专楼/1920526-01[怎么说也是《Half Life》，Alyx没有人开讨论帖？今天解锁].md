@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-25 12:13** 
+> ## **本文件最后更新于2020-03-25 14:08** 
 
 
 
@@ -2933,4 +2933,115 @@ V社今天一个采访里暗示说民间的非VRmod已经有在做了
 
 
 
-                                             
+
+
+-----
+
+####  soma  
+##### 150#       发表于 2020-3-25 12:28
+
+
+
+
+alyx老玩着玩着画面定住，声音还有，会是什么问题？
+
+显卡1080ti，vr设备htc vive
+
+
+以前其他游戏也出过这问题，有的更新了显卡驱动就好了，有的再也没复现过，就alyx老出现
+
+
+
+
+
+
+
+-----
+
+####  woodey  
+##### 151#       发表于 2020-3-25 12:36
+
+
+
+
+Alex玩出了早年玩rpg翻箱倒柜的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YESIARE  
+##### 152#       发表于 2020-3-25 12:42
+
+
+
+
+昨天看韦天开门缝peek把猎头蟹射爆就觉得这游戏叼炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然还是被猎头蟹穿模砍到）
+
+
+
+
+
+
+
+-----
+
+####  cnwind042  
+##### 153#       发表于 2020-3-25 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46866374&amp;ptid=1920526" target="_blank">woodey 发表于 2020-3-25 12:36</a>
+Alex玩出了早年玩rpg翻箱倒柜的感觉了</blockquote>
+我恨不得把每个房间都翻得底朝天找弹药和树脂，连个垃圾桶都要瞟一眼。
+虽然都是捡垃圾，体验比辐射4VR好多了，因为是物理上的翻箱倒柜，而不是打开菜单看一堆字，代入感爆炸。再加上可以原力捡垃圾，简直coooool
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 154#       发表于 2020-3-25 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46866279&amp;ptid=1920526" target="_blank">soma 发表于 2020-3-25 12:28</a>
+
+alyx老玩着玩着画面定住，声音还有，会是什么问题？
+
+显卡1080ti，vr设备htc vive</blockquote>
+遇事不决删STEAM VR重装
+
+
+
+
+
+
+
+-----
+
+####  超氪金月饼  
+##### 155#       发表于 2020-3-25 13:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46866279&amp;ptid=1920526" target="_blank">soma 发表于 2020-3-25 12:28</a>
+
+alyx老玩着玩着画面定住，声音还有，会是什么问题？
+
+显卡1080ti，vr设备htc vive</blockquote>
+我是在任务管理器里把游戏进程设成高优先级
+
+
+
+
+
+                                            
