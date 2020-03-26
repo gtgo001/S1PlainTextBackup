@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-05 11:35** 
+> ## **本文件最后更新于2020-03-26 16:05** 
 
 
 
@@ -600,7 +600,7 @@ https://b23.tv/av90702986
 
 
 -zue37Q5-38o1Z15T3cS136-1kw.jpg.medium.jpg
-(111.95 KB, 下载次数: 6)
+(111.95 KB, 下载次数: 9)
 
 
 
@@ -630,7 +630,7 @@ https://b23.tv/av90702986
 
 
 -zue37Q5-3ogrZ14T3cSzp-1kw.jpg.medium.jpg
-(125.24 KB, 下载次数: 4)
+(125.24 KB, 下载次数: 6)
 
 
 
@@ -744,4 +744,430 @@ https://b23.tv/av90702986
 
 
 
-                                                
+
+
+-----
+
+####  icecry  
+##### 39#       发表于 2020-3-9 08:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">新发型太人妻了，我不行了
+
+
+
+
+
+
+
+-----
+
+####  CC@TSM  
+##### 40#       发表于 2020-3-16 07:30
+
+
+
+ 本帖最后由 CC@TSM 于 2020-3-16 09:31 编辑 
+
+睡了3小时就起来朝活的美大生，珍贵的真·进食scene
+
+
+经常会放着自己的直播录像入睡，本人认证的睡眠导入效果草
+
+
+
+
+
+
+
+
+-----
+
+####  d-scher  
+##### 41#       发表于 2020-3-16 13:46
+
+
+
+
+一个饭团吃了一个小时，嘛毕竟主食是人间嘛。这个月的3D化期待
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 42#       发表于 2020-3-16 16:22
+
+
+
+
+看完几个切片已经被圈粉了··
+
+露露的组真的太强了
+
+
+
+
+
+
+
+-----
+
+####  13街的居住民  
+##### 43#       发表于 2020-3-18 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想看露露打恶魔城 估计没有了
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 44#       发表于 2020-3-18 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46781625&amp;ptid=1914439" target="_blank">13街的居住民 发表于 2020-3-18 09:41</a>
+
+我想看露露打恶魔城 估计没有了</blockquote>
+她有玩过其中的几作，
+[https://youtube.com/watch?v=daJGbH7LUOQ](https://youtube.com/watch?v=daJGbH7LUOQ)
+
+b站的搬运组也有搬生肉合集。
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 45#       发表于 2020-3-19 10:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">露露玩的恶魔城我都没玩过
+
+
+
+
+
+
+
+-----
+
+####  AeonsTorn  
+##### 46#       发表于 2020-3-19 14:12
+
+
+
+
+巨乳这个设定到底是怎么冒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">立绘上看不出来fanary几乎个个都是
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 47#       发表于 2020-3-19 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46799432&amp;ptid=1914439" target="_blank">AeonsTorn 发表于 2020-3-19 14:12</a>
+
+巨乳这个设定到底是怎么冒出来的立绘上看不出来fanary几乎个个都是</blockquote>
+大概因为通常印象中，穿露露这种衣服的一般凶都比较大
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 48#       发表于 2020-3-19 15:15
+
+
+
+
+露露的立绘还看不出来大嘛，难道非得像静凛那样才能叫大？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wingsword| + 1|我看她玩FF14能盯着看一下午|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  d-scher  
+##### 49#       发表于 2020-3-22 20:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46799432&amp;ptid=1914439" target="_blank">AeonsTorn 发表于 2020-3-19 14:12</a>
+巨乳这个设定到底是怎么冒出来的立绘上看不出来fanary几乎个个都是</blockquote>
+因为确实是巨乳，有几回配信把外套脱了只穿衬衣，明显上围傲人
+
+
+
+
+
+
+
+-----
+
+####  d-scher  
+##### 50#       发表于 2020-3-22 20:25
+
+
+
+
+和皇女出新广播节目了，这两人几乎没互动过，还挺期待的w
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 51#       发表于 2020-3-23 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">露露感觉除了跟德比，其他人合作有点尴？
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 52#       发表于 2020-3-23 11:17
+
+
+
+
+话说美大生不玩动森吗？
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 53#       发表于 2020-3-23 11:38
+
+
+
+ 本帖最后由 ポップコーン 于 2020-3-23 17:46 编辑 
+
+之前的杂谈回里有人给她推荐过动森，但她好像不太在意的样子，大概率不会玩吧。
+
+
+<img src="https://img.saraba1st.com/forum/202003/23/174544owuloelkgyewl3b1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200323175059.jpg</strong> (34.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-23 17:45 上传
+
+
+
+
+
+
+草...
+
+
+
+
+
+
+
+-----
+
+####  TOWA  
+##### 54#       发表于 2020-3-23 20:13
+
+
+
+
+说来就来
+
+<img src="https://p.sda1.dev/0/cc447fd585efcaaa4892b1d8001bbfdf/IMG_6BEEF80A6576515DA490447CE224EF15.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  强力型战斗65  
+##### 55#       发表于 2020-3-23 21:31
+
+
+
+
+又能看到会动的露露了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  d-scher  
+##### 56#       发表于 2020-3-24 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46841303&amp;ptid=1914439" target="_blank">icecry 发表于 2020-3-23 09:59</a>
+
+露露感觉除了跟德比，其他人合作有点尴？</blockquote>
+和阿葵也不错，其他人就。。。毕竟solo原（褒め
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 57#       发表于 2020-3-24 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46852136&amp;ptid=1914439" target="_blank">d-scher 发表于 2020-3-24 08:52</a>
+
+和阿葵也不错，其他人就。。。毕竟solo原（褒め</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">还好这联动好像每次就半小时，虚无一下就过去了
+
+
+
+
+
+
+
+-----
+
+####  zxero  
+##### 58#       发表于 2020-3-25 13:13
+
+
+
+
+她不是阿葵的女朋友吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 59#       发表于 2020-3-26 09:50
+
+
+
+
+没和阿葵营业过吧 感觉要论营业 和社外另外两个姐妹更亲一些
+
+
+
+
+
+
+
+-----
+
+####  CC@TSM  
+##### 60#       发表于 2020-3-26 12:24
+
+
+
+
+3D枠应该是恢复正常了，油土鳖这bug真是无语
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 61#       发表于 2020-3-26 14:59
+
+
+
+
+3D直播间好了几个小时又被限流了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                               
