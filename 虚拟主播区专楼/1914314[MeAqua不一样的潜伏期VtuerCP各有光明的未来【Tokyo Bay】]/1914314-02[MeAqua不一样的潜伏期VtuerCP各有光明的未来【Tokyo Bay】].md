@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-25 12:03** 
+> ## **本文件最后更新于2020-03-27 00:08** 
 
 
 
@@ -16882,10 +16882,11 @@ PS：
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| cIrcler| + 1|精准翻译可以解决多数黑屁啊|
 | 2111X| + 1|这段稀烂破碎的话听到我牙痒痒，向勇敢的翻.|
 
 
@@ -17276,4 +17277,666 @@ s1很多人眼里 普通粉丝 这一物种是不存在的<img src="https://stat
 
 
 
-                  
+
+
+-----
+
+####  cIrcler  
+##### 2436#       发表于 2020-3-25 12:09
+
+
+
+
+不是只有anti和信者两种分类的，请给路人粉一点人权和尊重<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2437#       发表于 2020-3-25 12:39
+
+
+
+
+说不定就是anti呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 2438#       发表于 2020-3-25 14:48
+
+
+
+
+又回忆了下mea的直播历程，和aqua互动那时候开始，说了一万遍自己喜欢男人和aqua只是朋友，却在直播里百般维护，现在和如月也是，大力度引流却丝毫不营业，倒是一直和男人搞一些很假的营业，真有点欲盖弥彰的感觉。加上516之前阿夸和774的推特互动也很奇怪，总感觉774是如月甚至是阿夸本人的可能性不低呢。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|欢乐多|
+| meatybobby| + 1|欢乐多|
+| 2111X| + 1|爬，舞mea是真的|
+| 魔法使い2019| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2439#       发表于 2020-3-25 15:12
+
+
+
+
+已经分不清是不是钓鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2440#       发表于 2020-3-25 15:20
+
+
+
+
+怎么又一转顺劈774，坏起来了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2441#       发表于 2020-3-25 15:30
+
+
+
+ 本帖最后由 noaki 于 2020-3-25 15:33 编辑 
+
+那要真是这样我对你咩姐的崇拜又要更上一层了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+原来到头来anti都被你咩姐钓得跟个啥似的，这是第几层啊这<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hsvv  
+##### 2442#       发表于 2020-3-25 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46867950&amp;ptid=1914314" target="_blank">a772803314 发表于 2020-3-25 14:48</a>
+
+又回忆了下mea的直播历程，和aqua互动那时候开始，说了一万遍自己喜欢男人和aqua只是朋友，却在直播里百般 ...</blockquote>
+笑喷力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 2443#       发表于 2020-3-25 16:00
+
+
+
+
+原来是这样，还能这样想，
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2444#       发表于 2020-3-25 16:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+你是贴贴民吧！ 这是在曲线救咩夸！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2445#       发表于 2020-3-25 16:08
+
+
+
+
+大家想多了，其实我就是774大家抱歉了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2446#       发表于 2020-3-25 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46867950&amp;ptid=1914314" target="_blank">a772803314 发表于 2020-03-25 14:48:41</a>
+又回忆了下mea的直播历程，和aqua互动那时候开始，说了一万遍自己喜欢男人和aqua只是朋友，却在直播里百般 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">anti还是算了吧，阿夸有一次去mea家线下联动，时间从晚上改中午，还这尬转774真没意思
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 2447#       发表于 2020-3-25 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46869975&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-3-25 17:45</a>
+
+anti还是算了吧，阿夸有一次去mea家线下联动，时间从晚上改中午，还这尬转774真没意思
+
+
+  -- 来自  ...</blockquote>
+是障眼法，夸一直住在mea家，而这也解释了330联动的老夫老妻感，至于330之后不久774便出现，意味着什么已经不言而喻了。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2448#       发表于 2020-3-25 19:29
+
+
+
+
+贴贴人恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2449#       发表于 2020-3-25 22:52
+
+
+
+
+又把陈年的老贴贴图拿出来当封面了
+
+这一定又是你在暗自地向牙膏反抗吧，阿夸，你好伟大
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2450#       发表于 2020-3-25 22:59
+
+
+
+
+天啊！ 阿夸究竟在经历什么？ 我们又明白什么？！<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jzsgtx  
+##### 2451#       发表于 2020-3-26 11:31
+
+
+
+
+老贴贴人（尸体）回楼看看众生相，去年下半年后半就开始没怎么看v了，想想从二月份开始到十月份左右短短数月时间的投入就像梦一样<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+河豚还是看动画片舒服<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，趁着大县城封锁不上班补了拖了不知道多少年的圆，在推和pixiv上关注了一堆圆画师，每天乐无边。
+
+没事看看v粉吃吃瓜还是挺有趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2452#       发表于 2020-3-26 11:55
+
+
+
+
+我倒要看看330之前谁先疯了）
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2453#       发表于 2020-3-26 23:11
+
+
+
+
+330没了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">有人出来疯一下吗
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 2454#       发表于 2020-3-26 23:20
+
+
+
+
+meaqua最后的日子也没了<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2455#       发表于 2020-3-26 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2456#       发表于 2020-3-26 23:21
+
+
+
+ 本帖最后由 SumW5 于 2020-3-26 23:25 编辑 
+
+苔苔，你好强大。
+
+330，伟大的贴贴胜利日，去年你为豚间带来多少福祉，今年就要用众豚的苦难来偿。
+
+
+如今光怪陆离的联动场景，让人难以想象那如梦似幻的贴贴时光，已匆匆的入了回忆的影子。
+
+
+一年的岁月，对于贴贴人来说，似乎比寒武纪还漫长而刺骨。
+
+
+马尔克斯说： <blockquote>回忆是一条没有尽头的路，一切以往的春天都一去不复存在，就连那最坚韧而又狂乱的爱情归根结底也不过是一种转瞬即逝的现实。</blockquote>
+一切物是人非，又恍若隔日。
+
+
+
+苔苔，我RNM。
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2457#       发表于 2020-3-26 23:22
+
+
+
+
+还不快谢谢犬山哥？
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2458#       发表于 2020-3-26 23:23
+
+
+
+
+不说跟咩相关的，就犬山这次馒头直播就有点恶心到我了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2459#       发表于 2020-3-26 23:24
+
+
+
+
+我太小看犬山哥了，我忏悔<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 2460#       发表于 2020-3-26 23:24
+
+
+
+
+  haha，XX头子。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2461#       发表于 2020-3-26 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886083&amp;ptid=1914314" target="_blank">framita 发表于 2020-3-26 23:23</a>
+不说跟咩相关的，就犬山这次馒头直播就有点恶心到我了</blockquote>
+馒头直播是指啥啊，我看隔壁也说她吃了一个月馒头？
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 2462#       发表于 2020-3-26 23:28
+
+
+
+
+我代三字母把这首歌送给大天使<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+[https://b23.tv/BV157411G7nh](https://b23.tv/BV157411G7nh)
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 2463#       发表于 2020-3-26 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886154&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-3-26 23:27</a>
+馒头直播是指啥啊，我看隔壁也说她吃了一个月馒头？</blockquote>
+信姬
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2464#       发表于 2020-3-26 23:35
+
+
+
+
+扯淡，明明是我带头要传火了，反正要走了不如卖个人情，好歹营业这么长时间了，以后没准还是合作伙伴呢。
+
+带头犬山贴贴！
+
+
+
+
+
+
+
+-----
+
+####  jzsgtx  
+##### 2465#       发表于 2020-3-26 23:48
+
+
+
+
+看来确实是看到有趣的事情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  升级似自己家  
+##### 2466#       发表于 2020-3-26 23:55
+
+
+
+
+该下盘了，这次又会疯几个？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2467#       发表于 2020-3-26 23:55
+
+
+
+
+两个女主播联动的日子都能纳入纪念日留存，有点宗教的感觉了
+
+结果发现最后神明背叛了信徒，太草了
+
+不过看了下几个贴贴人反应都不大，也没吐黑泥，是真的咩夸魔怔宇宙入脑同步成功，产生梁木抗体了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2468#       发表于 2020-3-26 23:59
+
+
+
+
+前一段时间布丁还打过330日元的sc呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2469#       发表于 2020-3-27 00:02
+
+
+
+
+其实我回忆了一下当初，330好像也不是那么重大纪念的日子，玩梗的倒不少。
+
+至少meaqua贴贴楼和b站评论区是这样子的。
+
+
+大家都脑补两人各种不直播恰独食，经常同居同床，那么一次线下联动也就这样了。。。
+
+贴贴虚空糖已经把贴贴营业远远甩在后面了。<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2470#       发表于 2020-3-27 00:08
+
+
+
+
+其实观众脑补还能理解，毕竟观众也是文化创作的一部分
+
+不过大多数人还是习惯以常规的世俗人际关系模式来理解管人的联动关系，联动就好像是好朋友串门一样
+
+其实从很多证据都可以反应这俩人私下还是有互通有无，但是明面上的联动骤减还是让人反感，还是同理，世俗的人际关系模式
+
+不管你再怎么一口一个功利心，分流之类的，还有人说是holo限制提及外社V的（啊看来FBK是木口编制外啊）来洗地贴贴浓度骤降的
+
+平时大多数人的人际交往考虑这些还是少的，如果抱着功利心来处理人际交往能不反感吗，还是洗不净
+
+
+
+
+
+                 

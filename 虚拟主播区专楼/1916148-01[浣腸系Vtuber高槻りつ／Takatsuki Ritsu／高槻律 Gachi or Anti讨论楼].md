@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-19 02:03** 
+> ## **本文件最后更新于2020-03-27 00:11** 
 
 
 
@@ -9,7 +9,7 @@
 
 
 
- 本帖最后由 wkwk9999 于 2020-3-2 06:18 编辑 
+ 本帖最后由 wkwk9999 于 2020-3-19 13:44 编辑 
 
 浣腸系虚拟VTuber 
 
@@ -36,6 +36,9 @@
 
 
 屎尿屁论坛不喜欢浣腸系Vtuber就尼玛离谱。
+
+————————————————————————————————————
+
 
 
 
@@ -2269,7 +2272,7 @@ B站限定 直播中
 高女士接下来高强度B限
 
 以下为日本时间
-<img src="https://space.bilibili.com/6055289/dynamic" id="aimg_mbMfd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://space.bilibili.com/6055289/dynamic" id="aimg_yrr11" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2689,4 +2692,625 @@ B站限定　直播中
 
 
 
-                                            
+
+
+-----
+
+####  真·螺旋眼  
+##### 152#       发表于 2020-3-19 04:39
+
+
+
+ 本帖最后由 真·螺旋眼 于 2020-3-19 04:41 编辑 
+
+这波下播了我还和提督煮酒0群到2点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这女人到底是有什么样的魅力
+区大航海榜2 仅次夸哥 绝活 未曾设想的光景
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 153#       发表于 2020-3-19 10:31
+
+
+
+
+谁能想到一个月前这女人还在被窝哭哭啼啼的直播
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 154#       发表于 2020-3-19 19:24
+
+
+
+
+B站限定　お絵かき　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  gatathon  
+##### 155#       发表于 2020-3-19 19:25
+
+
+
+
+她甚至拿到了护//照，强而有力
+
+
+
+
+
+
+
+-----
+
+####  我单推阿夸  
+##### 156#       发表于 2020-3-19 22:43
+
+
+
+
+啥时候和miu贴贴，带带懒狗
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 157#       发表于 2020-3-19 23:11
+
+
+
+
+阿律这个串烧bgm的404网址谁有啊？
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 158#         楼主| 发表于 2020-3-20 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805901&amp;ptid=1916148" target="_blank">theloved 发表于 2020-3-19 23:11</a>
+
+阿律这个串烧bgm的404网址谁有啊？</blockquote>
+今天的串烧可以404搜
+
+【サビメドレー】心に残るアニメソング集
+
+【135曲】私的良曲アニソン他サビメドレーⅢ【作業用BGM】
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 159#       发表于 2020-3-20 14:45
+
+
+
+ 本帖最后由 普通人止戈 于 2020-3-20 15:19 编辑 
+
+B站限定　動画鑑賞　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 160#       发表于 2020-3-20 15:15
+
+
+
+
+阿绿不救救阿花吗，当初不是整个绿妙花组合吗
+
+
+
+
+
+
+
+-----
+
+####  darkfatelight  
+##### 161#       发表于 2020-3-20 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46812501&amp;ptid=1916148" target="_blank">十九号大侠 发表于 2020-3-20 15:15</a>
+
+阿绿不救救阿花吗，当初不是整个绿妙花组合吗</blockquote>
+现在是缪律盐的时代了，这三个住的很近，隔三差五同居
+
+
+
+
+
+
+
+-----
+
+####  gatathon  
+##### 162#       发表于 2020-3-20 20:22
+
+
+
+
+高小姐查乙女音房学的这个谢谢打钱笑死了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 163#       发表于 2020-3-20 21:22
+
+
+
+
+这直播看lovelive？
+
+
+
+
+
+
+
+-----
+
+####  我单推阿夸  
+##### 164#       发表于 2020-3-20 23:29
+
+
+
+
+阿律又唱好汉歌了，我的青春又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真·螺旋眼  
+##### 165#       发表于 2020-3-21 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46815600&amp;ptid=1916148" target="_blank">gatathon 发表于 2020-3-20 20:22</a>
+高小姐查乙女音房学的这个谢谢打钱笑死了</blockquote>
+不愧是辣个铝人，一眼看穿精髓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 166#       发表于 2020-3-22 21:09
+
+
+
+
+B站限定　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  矢吹奈子  
+##### 167#       发表于 2020-3-22 23:03
+
+
+
+
+高小姐最近搞得其实不是播片，是外国人看中国反应系列阿，经典流行项目了。
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 168#       发表于 2020-3-22 23:20
+
+
+
+
+现在动森这么多人玩，阿律也没什么想法，真的沉得住气，几十个提督挨家串门儿不香？更何况b站玩动森不需要关sc
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 169#         楼主| 发表于 2020-3-23 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46838627&amp;ptid=1916148" target="_blank">theloved 发表于 2020-3-22 23:20</a>
+
+现在动森这么多人玩，阿律也没什么想法，真的沉得住气，几十个提督挨家串门儿不香？更何况b站玩动森不需要 ...</blockquote>
+别☁P了，别☁P了，别☁P了，别☁P了。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wkwk9999  
+##### 170#         楼主| 发表于 2020-3-23 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46838407&amp;ptid=1916148" target="_blank">矢吹奈子 发表于 2020-3-22 23:03</a>
+
+高小姐最近搞得其实不是播片，是外国人看中国反应系列阿，经典流行项目了。 ...</blockquote>
+在选歌，观众刷泪目多的她都存下来了。
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 171#       发表于 2020-3-23 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46839202&amp;ptid=1916148" target="_blank">wkwk9999 发表于 2020-3-23 00:30</a>
+别☁P了，别☁P了，别☁P了，别☁P了。</blockquote>
+烦，你就不如当我是在黑屁，跟我对线还能让我清醒点
+
+
+
+
+
+
+
+-----
+
+####  MikuDash  
+##### 172#       发表于 2020-3-23 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46796098&amp;ptid=1916148" target="_blank">theloved 发表于 2020-03-19 10:31:03</a>
+谁能想到一个月前这女人还在被窝哭哭啼啼的直播</blockquote>有录播吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 173#       发表于 2020-3-23 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46842110&amp;ptid=1916148" target="_blank">MikuDash 发表于 2020-3-23 11:00</a>
+有录播吗？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+没，律组产量低，可以去找字幕组问问生肉档，具体哪天就记不清了
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 174#       发表于 2020-3-23 13:27
+
+
+
+
+生肉可以去nga找那几个自动录档的，我记得至少有三个都还在运作
+
+
+
+
+
+
+
+-----
+
+####  普通人止戈  
+##### 175#       发表于 2020-3-26 21:11
+
+
+
+
+B站限定　直播中
+[https://live.bilibili.com/947447](https://live.bilibili.com/947447)
+
+
+
+
+
+
+
+-----
+
+####  Fantasy_q  
+##### 176#       发表于 2020-3-26 21:44
+
+
+
+ 本帖最后由 Fantasy_q 于 2020-3-26 22:23 编辑 
+
+喜提两总督<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+绝了，一夜四总督<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Sextans  
+##### 177#       发表于 2020-3-26 21:59
+
+
+
+
+一夜三总督了，要成为传说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JaseaLiang  
+##### 178#       发表于 2020-3-26 22:07
+
+
+
+
+靠...三总督，有人看着吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  夜明的月下  
+##### 179#       发表于 2020-3-26 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46885062&amp;ptid=1916148" target="_blank">JaseaLiang 发表于 2020-3-26 22:07</a>
+
+靠...三总督，有人看着吗
+
+
+—— 来自 Xiaomi MI 5, Android 8.0.0上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+一总督=2万块....玩这么大的吗....
+
+
+<img src="https://img.saraba1st.com/forum/202003/26/222006kz7pcza83496ak4r.png" referrerpolicy="no-referrer">
+
+
+<strong>SPEJJ3B9CERR.png</strong> (3.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-26 22:20 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JaseaLiang  
+##### 180#       发表于 2020-3-26 22:22
+
+
+
+
+四个了，这玩意儿还真的猛...
+
+—— 来自 Xiaomi MI 5, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  森下未散  
+##### 181#       发表于 2020-3-26 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么突然多了4总督，这高太尉又干了甚
+
+
+
+
+
+
+
+-----
+
+####  Sextans  
+##### 182#       发表于 2020-3-26 22:29
+
+
+
+
+200+大航海里有4总督50+提督<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真没见过这场面啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  gatathon  
+##### 183#       发表于 2020-3-26 23:00
+
+
+
+
+我现在越来越觉得高女士皮下面是尤里
+
+
+
+
+
+
+
+-----
+
+####  我单推阿夸  
+##### 184#       发表于 2020-3-26 23:14
+
+
+
+
+恭喜高小姐，不过懒狗miu给老子爬<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 185#       发表于 2020-3-26 23:31
+
+
+
+
+啥也没干，就正常聊天然后爱莉上了总督，另外几个跟进了，太尉自己都一脸蒙蔽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 186#       发表于 2020-3-27 00:07
+
+
+
+
+高小姐中之人尤里说
+
+
+
+
+
+                                           
