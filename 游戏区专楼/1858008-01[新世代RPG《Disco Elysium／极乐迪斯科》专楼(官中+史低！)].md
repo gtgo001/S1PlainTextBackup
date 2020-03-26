@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-25 22:04** 
+> ## **本文件最后更新于2020-03-26 20:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Qu9QF" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_cKA81" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -20289,6 +20289,25 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zongrumk2| + 1|现实是，你不去找zz，zz就会来找你.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20376,4 +20395,566 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
-               
+
+
+-----
+
+####  modedd  
+##### 1023#       发表于 2020-3-25 22:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46872819&amp;ptid=1858008" target="_blank">jockeyjoestar 发表于 2020-3-25 21:54</a>
+
+所以我说政治太多 侦探不足啊  就拿乔伊斯这个npc来讲  对一个陌生人bb这么多历史知识不出戏吗
+
+你可以把 ...</blockquote>
+这游戏重点明显就不在“侦探”，更像是个方便人导入的工具题材，毕竟，你不能真把政治观点辩论当游戏卖点写在宣传上吧
+
+你说这些东西对“游戏体验“没帮助，但问题是，这些爱讨论元素和架空世界观再加上你脑子里的技能基本就是”游戏体验“本身了，Joyce在游戏中的定位差不多是钦定的世界观解说员
+
+所以不是详略不当
+
+而是你心中对这个游戏的定位出了偏差
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1024#       发表于 2020-3-25 22:11
+
+
+
+
+如果这个游戏重点在“侦探”的话，那
+那这个凶手设置就太糟糕了，说实话。哪有一个总共就6、7天流程的侦探游戏，凶手在最后一两天才出现的。天降凶手绝对是侦探推理类故事的大忌中的大忌吧？
+
+
+
+
+
+
+
+-----
+
+####  jockeyjoestar  
+##### 1025#       发表于 2020-3-25 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46872939&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-25 22:04</a>
+
+这游戏重点明显就不在“侦探”，更像是个方便人导入的工具题材，毕竟，你不能真把政治观点辩论当游戏卖点 ...</blockquote>
+所以说这是宣传欺诈
+
+
+
+
+
+
+
+-----
+
+####  国家免检虎B  
+##### 1026#       发表于 2020-3-25 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">果然来了......
+有时候真的需要解释一下，日本的“推理游戏”和欧美的“detective game”完全不是一类东西，例如，蝙蝠侠设定就是侦探，阿卡姆系列就是“detective game”，但会有人抱着破案的心态去玩这类游戏么...
+
+—— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1027#       发表于 2020-3-25 22:51
+
+
+
+
+乔伊斯跟主角说这么多不是因为她要主角调查drug还有查出凶手以避免屠杀么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+跟主角科普历史好像是由于负罪感？
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 1028#       发表于 2020-3-25 22:58
+
+
+
+ 本帖最后由 战术核辣条 于 2020-3-25 23:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">joyce之所以要跟你科普历史不是因为你失忆了什么都不记得，而她是个看起来就有知识水平的有钱人，所以要问她吗
+主角harry不是一个无感情的探案工具人，而是一个爱情受到挫折之后自暴自弃吸毒喝酒，最终失忆的中年男人。探案是工作，是要做的事。找回记忆、重新确定自己的身份和社会定位、走出过去爱情失败的阴影，也都是要做的事，我反正觉得重要程度与破案齐平，同时做主线没有什么问题。
+这游戏首先是个rpg，而不是解谜游戏<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Kaltsit  
+##### 1029#       发表于 2020-3-25 23:45
+
+
+
+woc，最后伊苏林迪竹节虫出现那一刻我嗷的一声哭出来了。教堂的阳极派对与灰域末日，加斯顿向我与我向女工人告别死亡，雇佣兵哈迪兄弟紧张激烈**战，梦中无罪女神绝望挽留，枯涸的逃兵，还有马丁内斯瑞瓦拉千年的历史、政治、艺术与哲学。一切在登上小岛后相互交融，在它登场时一同迸发。美丽、优雅的竹节虫，如同美好的虚影生活的曙光，只在半梦半醒过往云烟的童年留下一丝印象，留下世世代代无数人在池沼中挣扎。它是康米主义者的天堂，老毛子胸口的哽咽。
+
+
+
+
+
+
+
+-----
+
+####  魔式甜点猫头鹰  
+##### 1030#       发表于 2020-3-26 03:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46844441&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-23 14:09</a>
+
+比起“伤痕文学”这种现实色彩这么浓厚的形容，我倒是觉得这作更像是“废土文学”。当然，不是post-apocaly ...</blockquote>
+妈的，兄弟，这楼爬下来看到你这楼算是没白爬
+
+
+我要是作者看到你这楼也会觉得，这游戏没白做
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1031#       发表于 2020-3-26 11:57
+
+
+
+
+这个思维阁我还是没太看懂，为什么有的思绪琢磨完了会有debuff效果
+
+
+
+
+
+
+
+-----
+
+####  Renkonsai  
+##### 1032#       发表于 2020-3-26 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46877894&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-26 11:57</a>
+
+这个思维阁我还是没太看懂，为什么有的思绪琢磨完了会有debuff效果</blockquote>
+类似于你理解了纸片儿童的美好就再也不会开坦克了
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1033#       发表于 2020-3-26 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46878066&amp;ptid=1858008" target="_blank">Renkonsai 发表于 2020-03-26 12:13:08</a>
+类似于你理解了纸片儿童的美好就再也不会开坦克了</blockquote>我理解了纸片儿童的美好，进而理解了真实儿童的美好则何如<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  亚可（本人）  
+##### 1034#       发表于 2020-3-26 13:06
+
+
+
+
+厕所门能打开吗？<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1035#       发表于 2020-3-26 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46878642&amp;ptid=1858008" target="_blank">亚可（本人） 发表于 2020-3-26 13:06</a>
+
+厕所门能打开吗？</blockquote>
+随剧情推进可以自动打开的
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1036#       发表于 2020-3-26 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46877894&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-26 11:57</a>
+
+这个思维阁我还是没太看懂，为什么有的思绪琢磨完了会有debuff效果</blockquote>
+属性点的加减都有说明，比如接纳资本主义就扣你足足两点同情心，很合理嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1037#       发表于 2020-3-26 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46879363&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-26 14:16</a>
+属性点的加减都有说明，比如接纳资本主义就扣你足足两点同情心，很合理嘛 ...</blockquote>
+可我接纳共产主义为啥还扣我有的没的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1038#       发表于 2020-3-26 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46879691&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-03-26 14:49:45</a>
+可我接纳共产主义为啥还扣我有的没的</blockquote>扣的是权威啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+毕竟大gm失败了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1039#       发表于 2020-3-26 15:42
+
+
+
+ 本帖最后由 Hidewhite 于 2020-3-26 15:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46879691&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-26 14:49</a>
+
+可我接纳共产主义为啥还扣我有的没的</blockquote>
+游戏中的思维其实是根据个人打造的特征，带有非常强的哈里个人特点。具体看每个思维的文字描写就能看出来，比如“马佐夫社会经济学”这个研究完的话就是这样写的“他开始怀疑卡斯特·马佐夫是不是用他的社会经济学理论亲自出卖了他，然而这次遭遇至少把他变成了个非常聪明的男生，他还取得了类似于真理专业的大学学位。他现在不再建设康米主义，转而致力于为这个怪诞而且两面三刀的世界建造一个精确的模型。”并不是说主角通过这个思维真的变成了客观的那种康米主义战士。
+
+
+
+见微知著 -1：感应，到处都是感应！
+
+争强好胜 -1：被蹂躏的康米主义者
+
+
+
+扣见微知著是在嘲笑主角的51年建设康米主义完全空想。争强好胜扣嘛，被现实碾了康米主义底气不足。——大概这么解读吧
+
+
+
+
+
+
+
+
+-----
+
+####  威爾第晚禱  
+##### 1040#       发表于 2020-3-26 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">每次和别人对线都陷入“Kim救我”的怪圈
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1041#       发表于 2020-3-26 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46880276&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-26 15:42</a>
+游戏中的思维其实是根据个人打造的特征，带有非常强的哈里个人特点。具体看每个思维的文字描写就能看出来 ...</blockquote>
+草，这游戏有没有毛选买，我要买来搞gm
+
+
+
+
+
+
+
+-----
+
+####  makece  
+##### 1042#       发表于 2020-3-26 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46878170&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-26 12:22</a>
+
+我理解了纸片儿童的美好，进而理解了真实儿童的美好则何如
+
+
+  -- 来自 能手机投票的 Stage1官方 And ...</blockquote>
+那你的道德指数就要下降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1043#       发表于 2020-3-26 16:06
+
+
+
+
+话说前面楼讨论的萨马拉领导人的名字这类信息从哪里可以获得啊？
+
+
+
+
+
+
+
+-----
+
+####  seki_m  
+##### 1044#       发表于 2020-3-26 16:18
+
+
+
+ 本帖最后由 seki_m 于 2020-3-26 16:23 编辑 
+
+问一下
+德洛丽丝和前妻是怎么联系起来的？猪猪女侠就这么点剧情吗
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1045#       发表于 2020-3-26 16:57
+
+
+
+
+那个钱多得可以扭曲光线的亿万富翁太超现实了
+右下角还能看到他持有钱的数量，越靠近他数值就越大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 1046#       发表于 2020-3-26 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46881258&amp;ptid=1858008" target="_blank">Doctor.S 发表于 2020-3-26 16:57</a>
+那个钱多得可以扭曲光线的亿万富翁太超现实了
+右下角还能看到他持有钱的数量，越靠近他数值就越大
+ ...</blockquote>
+那个其实是你的钱数目，因为物理法则被扭曲变成了非常夸张的数字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+有钱真的是能为所欲为的.jpg
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1047#       发表于 2020-3-26 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46880746&amp;ptid=1858008" target="_blank">seki_m 发表于 2020-03-26 16:18:58</a></blockquote>1.首先她没和哈利结婚，所以其实是前任
+其次前任在游戏里有很多伏笔，无罪女王也铺垫了很多，对其“最伟大”和“近乎非人的圣化”进行了大量描写，最后在梦中相会用无罪女王象征前任就是直白的告诉你前任在哈利心中究竟有多美好，多神圣，就像无罪女王一样美，也让你能想象前妻的背叛对哈利的伤害有多大以至于他变成了这么个酗酒的混蛋
+2.除了叫哈迪兄弟照顾她，没了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1048#       发表于 2020-3-26 18:55
+
+
+
+
+突发奇想，其实把前女友的角色换成旧日支配者再编故事也毫无违和感嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1049#       发表于 2020-3-26 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46880491&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-26 16:00</a>
+
+草，这游戏有没有毛选买，我要买来搞gm</blockquote>
+现实里有<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">你可以买来看看
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1050#       发表于 2020-3-26 19:13
+
+
+
+
+内陆帝国＋反应速度第一天就剧透结局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+话说我开了一个不信邪的体格号，后期感觉剧本走不下去了啊，不想点天人感应这种超自然玩意也不想参与教堂邪教仪式，地图跑遍了没事做了
+
+
+这种世界观还是不适合正常人生活？
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1051#       发表于 2020-3-26 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46870642&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-3-25 18:51</a>
+
+结尾如果你同舟共济够高会有一段关于RCM真相的额外对话</blockquote>
+RCM的真相？我同舟共济点到6了，加上一身警察的加同舟共济的衣服（去抓老兵想穿的正式点），但最后和同事们打屁的时候好像没看到相关的对话啊？只有哈里怎么加入的相关情报。
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1052#       发表于 2020-3-26 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46880746&amp;ptid=1858008" target="_blank">seki_m 发表于 2020-3-26 16:18</a>
+
+问一下
+
+德洛丽丝和前妻是怎么联系起来的？猪猪女侠就这么点剧情吗</blockquote>
+无罪女王的名字是Dolores Dei，前任的名字是Dora Du Bois，Dora是Dolores的昵称
+
+
+
+
+
+              
