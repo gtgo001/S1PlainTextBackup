@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-26 20:02** 
+> ## **本文件最后更新于2020-03-27 20:04** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_cKA81" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Mdg01" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -20957,4 +20957,759 @@ RCM的真相？我同舟共济点到6了，加上一身警察的加同舟共济�
 
 
 
-              
+
+
+-----
+
+####  亚可（本人）  
+##### 1053#       发表于 2020-3-26 23:27
+
+
+
+
+发现了个bug
+
+伊丽莎白被哈迪哥气走以后再和他们谈论尸体里的弹    头
+
+伊丽莎白会突然虚空插嘴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kwin_  
+##### 1054#       发表于 2020-3-26 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46878642&amp;ptid=1858008" target="_blank">亚可（本人） 发表于 2020-3-26 13:06</a>
+厕所门能打开吗？</blockquote>
+厕所门是哪里，卡拉洁那里吗
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1055#       发表于 2020-3-26 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886203&amp;ptid=1858008" target="_blank">kwin_ 发表于 2020-3-26 23:30</a>
+
+厕所门是哪里，卡拉洁那里吗
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+主角在旅馆的房间的厕所门。
+
+
+防剧透
+
+
+防剧透
+
+
+记得好像是雇佣兵审判之后会开，可以进金的房间
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1056#       发表于 2020-3-27 00:34
+
+
+
+
+有个在第一天就拿到尸体鞋子还能把尸体送走的办法
+金回房间睡觉-扒鞋子-昏倒-被金叫醒
+之后金就会一直跟着你，可以让他去送尸体了
+
+乔伊斯、辛迪、书店里面的人、中转站老女人、集装箱粉刷匠和回收站老板都是晚上不睡觉的，想节省时间可以晚上找他们。
+特别是对话特别多的乔伊斯，金也暗示过这一点。
+
+
+
+
+
+
+
+-----
+
+####  Duncan_Spurs  
+##### 1057#       发表于 2020-3-27 01:43
+
+
+
+
+找**击地点的任务好难啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kuhailz  
+##### 1058#       发表于 2020-3-27 01:59
+
+
+
+<blockquote>Duncan_Spurs 发表于 2020-3-27 01:43
+找**击地点的任务好难啊
+
+
+—— 来自 OnePlus HD1900, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+这个任务其实不会卡的 继续推主线就好
+
+
+
+
+
+
+
+-----
+
+####  塔洛斯级  
+##### 1059#       发表于 2020-3-27 02:31
+
+
+
+
+对峙这段气氛做的太好了
+
+
+
+
+
+
+
+-----
+
+####  kwin_  
+##### 1060#       发表于 2020-3-27 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886385&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-26 23:42</a>
+
+主角在旅馆的房间的厕所门。
+
+
+防剧透</blockquote>
+镜子旁边那个？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一开始看打不开我都没在意了
+
+
+
+
+
+
+
+-----
+
+####  kwin_  
+##### 1061#       发表于 2020-3-27 10:05
+
+
+
+
+昨晚玩到了教**，非常*硬核*，莫名的燃，稍微扫去了主角之前那种悲惨给我带来的阴霾。
+
+没拿**就想去找露比，还没近身就挂了，存档回到了一个小时前。
+
+其实大家对灰域象征些什么怎么解读的？
+
+
+
+
+
+
+
+-----
+
+####  YIIIIIno  
+##### 1062#       发表于 2020-3-27 10:23
+
+
+
+
+其实我觉得还是可以算伤痕文学的吧，老兵，竹节虫和德洛丽丝应该算是整个剧情高潮了，虽然作者对于各种ysxt都有戏谑的批判，但是最后这里还是可以感觉到他的情怀的。
+
+
+
+
+
+
+
+-----
+
+####  Gyaaaa  
+##### 1063#       发表于 2020-3-27 10:50
+
+
+
+
+请问各位，跳下去拿斗篷后怎么回来啊，去工地玩儿了集装箱以后发现没法回来了。
+
+社会主义办公室的那边也找不到钥匙打开门儿回去……
+
+
+
+
+
+
+
+2020-03-27_113345 (3).png
+(1.61 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-27 10:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/27/104917rnfzzr3eey3gegg6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+2020-03-27_111956 (2).png
+(1.74 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-27 10:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/27/104908u5jg416gy6inqpnn.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1064#       发表于 2020-3-27 11:00
+
+
+
+<blockquote>Gyaaaa 发表于 2020-3-27 10:50
+请问各位，跳下去拿斗篷后怎么回来啊，去工地玩儿了集装箱以后发现没法回来了。
+
+社会主义办公室的那边也找 ...</blockquote>
+集装箱那先往东走一点，然后往北走，能找到工会头子办公室
+
+这是个狠家伙，所以进去前注意存档
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1065#       发表于 2020-3-27 11:15
+
+
+
+
+想先跑去乔伊斯那，问问这个世界为什么这么大，把往事如新思维开了，结果发现人家根本不和你聊<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+想了半天才发现是自己一上来装作没失忆有**，结果连认清现实的任务都没接到，没办法，只能自欺欺人下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便把手册里的明信片也丢了，装作很酷的样子，没想到出了新思维，手册还变成了新形态
+
+
+
+
+
+
+
+-----
+
+####  Duncan_Spurs  
+##### 1066#       发表于 2020-3-27 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46889360&amp;ptid=1858008" target="_blank">Gyaaaa 发表于 2020-3-27 10:50</a>
+请问各位，跳下去拿斗篷后怎么回来啊，去工地玩儿了集装箱以后发现没法回来了。
+
+社会主义办公室的那边也找 ...</blockquote>
+工会老大艾弗拉尔会给你钥匙卡，以后找他直接从马列拉背后门走
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 1067#       发表于 2020-3-27 16:20
+
+
+
+
+这游戏太费眼睛的原因我找到了，因为这游戏的对话系统是滚卷轴式的，这种对话界面会导致人的眼睛跟着运动中的字体，自然非常费眼
+
+
+字体越大滚动幅度越大，所以改小字体反而能够减缓视力疲劳，并且可以自己在选了选项后眼睛往左看场景
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 1068#       发表于 2020-3-27 16:22
+
+
+
+
+在教堂仰望钟楼没过检定然后无限循环了怎么办，只能读档吗？
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1069#       发表于 2020-3-27 16:54
+
+
+
+
+那个帮胖子资本家要签名寄信的任务，本来是想找渔村那个女人谈谈的，结果手滑让旁边的维修工签了
+我本来就非常不想帮他寄信，现在怎么办啊，不会到了结局渔村都被迫搬走吧<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚可（本人）  
+##### 1070#       发表于 2020-3-27 17:22
+
+
+
+
+运药 物原料的女司机原来不是露比吗？
+
+莫名其妙通了，想起来毒 品支线没做而且港口也没进去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1071#       发表于 2020-3-27 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46893976&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-27 16:54</a>
+
+那个帮胖子资本家要签名寄信的任务，本来是想找渔村那个女人谈谈的，结果手滑让旁边的维修工签了
+
+我本来就 ...</blockquote>
+游戏流程里就说了，那么远的事不关你事了，所以游戏结尾这事根本没发生。我是选择说服路线，瞎签效果怎么样不知道，但应该也没大问题。
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1072#       发表于 2020-3-27 17:25
+
+
+
+
+我选的伪造签名，没有被识破，无后患。。。。放心伪造！
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1073#       发表于 2020-3-27 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894352&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-27 17:23</a>
+游戏流程里就说了，那么远的事不关你事了，所以游戏结尾这事根本没发生。我是选择说服路线，瞎签效果怎么 ...</blockquote>
+主要是对这个资本家没什么好感，算了寄了就寄了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  19343917  
+##### 1074#       发表于 2020-3-27 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894411&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-03-27 17:28:10</a>
+主要是对这个资本家没什么好感，算了寄了就寄了吧</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那是工会主席啊，资本家的头号敌人
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  19343917  
+##### 1075#       发表于 2020-3-27 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46867271&amp;ptid=1858008" target="_blank">leader01234 发表于 2020-03-25 13:49:17</a>
+我觉得竹节虫是一种对原始本能的回归，追寻糖与信息素——酒精和性，任何更高级的思绪，爱情、理想，都只 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得竹节虫就是上帝阿
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1076#       发表于 2020-3-27 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894545&amp;ptid=1858008" target="_blank">19343917 发表于 2020-3-27 17:44</a>
+那是工会主席啊，资本家的头号敌人
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+是嘛，那他为什么要搁那开支票贿赂警察还强制渔村穷人搬走呢
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 1077#       发表于 2020-3-27 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894646&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-27 17:53</a>
+
+是嘛，那他为什么要搁那开支票贿赂警察还强制渔村穷人搬走呢</blockquote>
+完成任务之后回去找他会有一段比较长的对话说明这事。
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1078#       发表于 2020-3-27 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894732&amp;ptid=1858008" target="_blank">芭德薇 发表于 2020-3-27 18:02</a>
+完成任务之后回去找他会有一段比较长的对话说明这事。</blockquote>
+okay
+顺便问问我应该把那个帆船女的事告诉周日朋友么，我想看这条自以为是的走狗吃瘪
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 1079#       发表于 2020-3-27 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894545&amp;ptid=1858008" target="_blank">19343917 发表于 2020-3-27 17:44</a>
+
+那是工会主席啊，资本家的头号敌人
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+你赞同公会主席提高的不是康米主义而是法西斯主义，再仔细想想
+
+
+
+
+
+
+
+-----
+
+####  战术核辣条  
+##### 1080#       发表于 2020-3-27 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894752&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-27 18:04</a>
+okay
+顺便问问我应该把那个帆船女的事告诉周日朋友么，我想看这条自以为是的走狗吃瘪 ...</blockquote>
+玩rpg，最重要的是做你自己<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+杀人案的结局和这些人关系可以说都不大，想看谁吃瘪放心整就是了
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1081#       发表于 2020-3-27 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46895034&amp;ptid=1858008" target="_blank">战术核辣条 发表于 2020-3-27 18:31</a>
+玩rpg，最重要的是做你自己
+杀人案的结局和这些人关系可以说都不大，想看谁吃瘪放心整就是了</blockquote>
+行吧，主要是刚开始玩还随心所欲的，后面人际关系复杂起来了就开始顾头顾尾怕得罪谁了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1082#       发表于 2020-3-27 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46895063&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-27 18:33</a>
+
+行吧，主要是刚开始玩还随心所欲的，后面人际关系复杂起来了就开始顾头顾尾怕得罪谁了 ...</blockquote>
+第一遍玩只需要注意不得罪小金，其他时候你都可以选择做一个混蛋。
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1083#       发表于 2020-3-27 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46895377&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-27 19:05</a>
+第一遍玩只需要注意不得罪小金，其他时候你都可以选择做一个混蛋。</blockquote>
+小金多好的搭档啊，擅长倾听还忍得了你发神经，要是是个妹子就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1084#       发表于 2020-3-27 19:09
+
+
+
+ 本帖最后由 zongrumk2 于 2020-3-27 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46895386&amp;ptid=1858008" target="_blank">紫毛母猩猩 发表于 2020-3-27 19:07</a>
+
+小金多好的搭档啊，擅长倾听还忍得了你发神经，要是是个妹子就完美了 ...</blockquote>
+所以我真的希望那个"Kim is best"如果不是粉丝的创作而是游戏里真实存在的涂鸦选择该多好。
+
+我实在是不想选I LOVE CUNO    
+
+要是能出相关dlc也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">出了我买爆
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 威爾第晚禱| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1085#       发表于 2020-3-27 19:28
+
+
+
+ 本帖最后由 紫毛母猩猩 于 2020-3-27 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46895409&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-3-27 19:09</a>
+所以我真的希望那个"Kim is best"如果不是粉丝的创作而是游戏里真实存在的涂鸦选择该多好。
+
+我实在是不想 ...</blockquote>
+金要是女体化一定是个冷峻又拿你有点没辙的黑长直，想想唱完KTV之后选择这首歌先献给金，老板说如果他会脸红的话那他现在脸早红了，真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+我还是很希望本作能像逆转那样有个妹子陪着的，不过这种糙汉之间的柔情大概才是这游戏的醍醐味吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+如果有续作我希望能把立场逆转一下，主角是个谨慎淡定却有点傲娇的女侦探，跟班是个脑子一团浆糊但是关键时刻总能保持清醒的元气妹，最好能够在摩擦点什么出来，既zzzq又能满足百合厨<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zongrumk2| + 1|太媚宅了！但我喜欢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1086#       发表于 2020-3-27 19:51
+
+
+
+
+草了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">感觉第一天啥都没干成
+
+
+尸体没放下来，**和**没找着，钱也没有，拿俩小屁孩没辙，深夜捡了个垃圾袋变hobo结果没地方卖垃圾，从逻辑思维到标新立异再到什么警察巨星最后食髓知味，感觉最初给自己定当个好条子的目标就是个错误
+
+
+
+
+
+             
