@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-25 14:08** 
+> ## **本文件最后更新于2020-03-28 04:05** 
 
 
 
@@ -975,7 +975,7 @@ vr劝退
 <img src="https://img.saraba1st.com/forum/202003/24/110254pjten2l1t42ldn7j.gif" referrerpolicy="no-referrer">
 
 
-<strong>b76dc711728b4710468653afd4cec3fdfd032370.gif</strong> (1.84 MB, 下载次数: 6)
+<strong>b76dc711728b4710468653afd4cec3fdfd032370.gif</strong> (1.84 MB, 下载次数: 7)
 
 下载附件
 
@@ -2470,10 +2470,11 @@ Danny O'Dwyer（Noclip的创始人）刚出的Alyx评测 (半条命遗老能看�
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 魔人揪揪| + 1||
 | wwdzcjsmxx| + 1|好评加鹅|
 | 聚散浮云| + 1|好评加鹅|
 | 斯城恶魔| + 1|好评加鹅|
@@ -3044,4 +3045,521 @@ alyx老玩着玩着画面定住，声音还有，会是什么问题？
 
 
 
-                                            
+
+
+-----
+
+####  gg142857  
+##### 156#       发表于 2020-3-25 14:55
+
+
+
+
+意思是天天黑V社坐吃山空已经丧失做游戏能力了，结果是宝刀不老啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  prattwhitney  
+##### 157#       发表于 2020-3-25 16:04
+
+
+
+
+玩了半个小时累得跟狗一样，主要是精神高度紧张，感觉都因为消耗太大饿了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  摩天城  
+##### 158#       发表于 2020-3-25 16:09
+
+
+
+
+之前群里黑v社不作为，一个在完美实习的群友说，“你们总觉得v社只想躺着赚钱，其实人家连赚钱都不在乎。”这公司给我的最深的印象就是自由，但自由是做不好网游的。
+
+而对于半条命
+
+<img src="https://img.saraba1st.com/forum/202003/25/160230bbo07nz0frzrqn7o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4E78D0FB-1077-4FEC-A109-00742B66406B.jpeg</strong> (475.73 KB, 下载次数: 1)
+
+下载附件
+
+2020-3-25 16:02 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cnwind042  
+##### 159#       发表于 2020-3-25 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46868813&amp;ptid=1920526" target="_blank">prattwhitney 发表于 2020-3-25 16:04</a>
+玩了半个小时累得跟狗一样，主要是精神高度紧张，感觉都因为消耗太大饿了…… ...</blockquote>
+我一口气玩2小时就觉得累得不行了，站着玩膝盖腿都酸
+
+
+
+
+
+
+
+-----
+
+####  恋妖壶  
+##### 160#         楼主| 发表于 2020-3-25 19:54
+
+
+
+
+玩这游戏是真的容易饿，疯了，玩俩小时精神高度集中，摘下来头盔以后饿的不行
+
+
+
+
+
+
+
+-----
+
+####  OldGlory  
+##### 161#       发表于 2020-3-27 12:28
+
+
+
+
+专楼沉了？
+
+
+
+
+
+
+
+-----
+
+####  wwjwwgzhp  
+##### 162#       发表于 2020-3-27 12:36
+
+
+
+
+没办法 有vr的人到底还是少 晚上玩的时候看了下 峰值是6000多人好像
+
+
+
+
+
+
+
+-----
+
+####  cnwind042  
+##### 163#       发表于 2020-3-27 13:23
+
+
+
+
+我觉得v社应该不会开发flat版的hl3了，要搞只会在VR上搞。hl3再打磨下物理引擎争取能把物理学圣剑用起来<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  瓜苗乐章  
+##### 164#       发表于 2020-3-27 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46890749&amp;ptid=1920526" target="_blank">wwjwwgzhp 发表于 2020-3-27 12:36</a>
+没办法 有vr的人到底还是少 晚上玩的时候看了下 峰值是6000多人好像</blockquote>
+十几个小时流程，狂热点的话应该通关了吧
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  waffen_ss_rush  
+##### 165#       发表于 2020-3-27 14:46
+
+
+
+
+牛逼疯了，看一个up主说v社是要等游戏本身有大进步才会做3，没vr，不过看了几个视频确实牛，就是vr一被近身就手忙脚乱
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 166#       发表于 2020-3-27 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46892311&amp;ptid=1920526" target="_blank">waffen_ss_rush 发表于 2020-3-27 14:46</a>
+
+牛逼疯了，看一个up主说v社是要等游戏本身有大进步才会做3，没vr，不过看了几个视频确实牛，就是vr一被近身 ...</blockquote>
+不过取消了近战是痛点，没有物理学圣剑没有灵魂。<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+前面用来试水的骨头工作都有近战，敌人全身都有物理碰撞，可以用奇葩的格斗技巧。
+
+
+
+
+
+
+
+-----
+
+####  wwjwwgzhp  
+##### 167#       发表于 2020-3-27 16:34
+
+
+
+<blockquote>dumplingpro 发表于 2020-3-27 15:43
+不过取消了近战是痛点，没有物理学圣剑没有灵魂。
+
+
+前面用来试水的骨头工作都有近战，敌人全身都 ...</blockquote>
+感觉有近战有点无敌 个个瞬移加快速挥手臂秒怪 没人会老老实实用**射击了
+
+
+
+
+
+
+
+-----
+
+####  zyzy2  
+##### 168#       发表于 2020-3-27 16:36
+
+
+
+
+你们是怎么做到坚持玩几个小时的,我两天才刚见到猎头蟹,每天半小时摘下头盔胃里已经翻江倒海了.
+
+
+
+
+
+
+
+-----
+
+####  Centrum  
+##### 169#       发表于 2020-3-27 16:39
+
+
+
+<blockquote>dumplingpro 发表于 2020-3-27 15:43
+不过取消了近战是痛点，没有物理学圣剑没有灵魂。
+
+
+前面用来试水的骨头工作都有近战，敌人全身都 ...</blockquote>
+哑巴猛男才使得动撬棍 可以这么解释
+
+
+
+
+
+
+
+-----
+
+####  prattwhitney  
+##### 170#       发表于 2020-3-27 17:23
+
+
+
+
+每次最多玩半小时就身心俱疲玩不下去了……要歇会再鼓起勇气才能继续玩。
+
+
+没有近战是因为近战太IMBA了，给玩家一根撬棍怕是要大杀四方
+
+
+
+
+
+
+
+-----
+
+####  恋妖壶  
+##### 171#         楼主| 发表于 2020-3-27 17:29
+
+
+
+
+我没啥问题，一次2小时朝上吧，还是自由移动
+
+
+你要非要说，那确实是没有坐在沙发上玩PS4舒服，可以游戏太好了让人忍不住玩下去啊
+
+
+
+
+
+
+
+-----
+
+####  rgm2000  
+##### 172#       发表于 2020-3-27 17:29
+
+
+
+
+玩到下火车那个闸门以后不知道控制台怎么用。。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+----发送自 [HUAWEI YAL-AL00,Android 10](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  恋妖壶  
+##### 173#         楼主| 发表于 2020-3-27 17:30
+
+
+
+
+另外我发现每次玩半小时，总会比一开始变得更卡一些，然后存档一下，就又流畅了，有人遇到过吗
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 174#       发表于 2020-3-27 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46893751&amp;ptid=1920526" target="_blank">zyzy2 发表于 2020-3-27 16:36</a>
+
+你们是怎么做到坚持玩几个小时的,我两天才刚见到猎头蟹,每天半小时摘下头盔胃里已经翻江倒海了. ...</blockquote>
+用瞬移啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 175#       发表于 2020-3-27 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894431&amp;ptid=1920526" target="_blank">rgm2000 发表于 2020-3-27 17:29</a>
+
+玩到下火车那个闸门以后不知道控制台怎么用。。。
+
+
+----发送自 HUAWEI YAL-AL00,Android 10 ...</blockquote>
+背后，门旁边有个东西，上面有个红色的接口，用万能工具拧
+
+
+
+
+
+
+
+-----
+
+####  雨中曲  
+##### 176#       发表于 2020-3-27 18:22
+
+
+
+
+不给近战武器，除了影响VR沉浸感，破坏整体难度设计，而且不符合爱利克斯的角色设定。游戏设计师不给玩家体验近战，最重要的原因是为最后几十秒剧情铺垫情绪。<blockquote>在“你”被唤醒后，环顾四周，那场景历历在目，熟悉的仿佛让你回到了旧时光，你再次伸出手，接过那把撬棍，老伙计，你知道这一次，这个有悖常理的世界将会天翻地覆！</blockquote>
+相信每个半条命粉丝，体验到这场面，都会激动流泪。V社对于玩家心理活动的把控（心流），早就是炉火纯青。再有趣的玩法，精妙的关卡设计终究只能为剧情叙事服务，一直就是V社信奉的游戏开发准则。
+
+
+
+
+
+
+
+-----
+
+####  ringweed  
+##### 177#       发表于 2020-3-27 19:55
+
+
+
+
+《半衰期：爱莉克斯》1.1 更新发布
+
+变更：
+
+
+优化了偏好设置中的转向选项：
+
+- 添加了“持续转向”，以及相关的转向速度选项。
+
+- 将“快速转弯”重命名为“急转”，以使其功能更为清晰。
+
+- 添加了禁用控制器进行转向的选项。
+
+优化了使用 Window 混合现实控制器时，以手捂嘴姿势的易用程度。
+
+优化了敌人身上所受伤害效果贴图的分辨率。
+
+优化了某些电脑配置中对默认质量设置的自动检测。
+
+修复了某些音效未能正常播放的问题。
+
+修复了玩家保存过多游戏后，主菜单响应较慢的问题。
+
+修复了几处崩溃。
+
+
+
+内容生成版本 ID：4815971
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 178#       发表于 2020-3-27 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46890749&amp;ptid=1920526" target="_blank">wwjwwgzhp 发表于 2020-3-27 00:36</a>
+没办法 有vr的人到底还是少 晚上玩的时候看了下 峰值是6000多人好像</blockquote>
+卖了30万 首日峰值四万 可以对vr核心用户数大概有个推测
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 179#       发表于 2020-3-27 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46896643&amp;ptid=1920526" target="_blank">qianoooo 发表于 2020-3-27 20:40</a>
+
+卖了30万 首日峰值四万 可以对vr核心用户数大概有个推测</blockquote>
+月活大概STEAM活跃人数的1%左右，大概90W多点。
+
+
+
+
+不过虽然都是VR，但VR里面游戏分类不比非VR少多少，玩巴普洛夫（VR CS）的玩家可能人手一份半条命VR，但玩开车开飞机的，日本玩女装的（VRchat）就不一定会第一时间买半条命VR 。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a8610853  
+##### 180#       发表于 2020-3-28 00:25
+
+
+
+
+1060+quest link 高画质不卡……难道是自适应画质？
+
+瞬移非常舒服，一点晕眩症状都没有，反而是站了几个小时站累了，外加头戴夹脑袋疼。
+
+上**的操作辅助有点过头，没有模拟打**游戏那种模拟换弹的爽快感。不知道可不可以设置成更拟真的换弹。
+
+
+
+
+
+
+
+
+-----
+
+####  恋妖壶  
+##### 181#         楼主| 发表于 2020-3-28 02:55
+
+
+
+
+通关了……
+
+
+说不出话，竟然是这样接续了13年前，有种穿越感
+
+
+不过反正每当剧情发展不下去或者强行要发展下去时候就把那谁叫来呗，万能工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+希望HL3也是VR！
+
+
+
+
+
+                                           
