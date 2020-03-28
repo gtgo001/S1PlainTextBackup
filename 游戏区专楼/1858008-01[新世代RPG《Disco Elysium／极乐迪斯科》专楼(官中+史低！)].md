@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-27 20:04** 
+> ## **本文件最后更新于2020-03-28 18:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_Mdg01" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_SdDMY" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -20521,7 +20521,9 @@ v2.2.0.1</blockquote>在这个问题上我的理解是，他直陈的动机也�
 
 
 
-woc，最后伊苏林迪竹节虫出现那一刻我嗷的一声哭出来了。教堂的阳极派对与灰域末日，加斯顿向我与我向女工人告别死亡，雇佣兵哈迪兄弟紧张激烈**战，梦中无罪女神绝望挽留，枯涸的逃兵，还有马丁内斯瑞瓦拉千年的历史、政治、艺术与哲学。一切在登上小岛后相互交融，在它登场时一同迸发。美丽、优雅的竹节虫，如同美好的虚影生活的曙光，只在半梦半醒过往云烟的童年留下一丝印象，留下世世代代无数人在池沼中挣扎。它是康米主义者的天堂，老毛子胸口的哽咽。
+ 本帖最后由 Kaltsit 于 2020-3-28 00:20 编辑 
+
+woc，最后伊苏林迪竹节虫出现那一刻我嗷的一声哭出来了。教堂的阳极派对与灰域末日，加斯顿向我与我向女工人告别死亡，雇佣兵哈迪兄弟**战，对梦中无罪女神的挽留，逃兵，还有马丁内斯瑞瓦肖千年的历史、政治。一切在登上小岛后相互交融，在它登场时一同迸发。美丽、优雅的竹节虫，如同美好的虚影生活的曙光，只在半梦半醒过往云烟的童年留下一丝印象，留下世世代代无数人在池沼中挣扎。它是康米主义者的天堂。
 
 
 
@@ -21680,10 +21682,11 @@ okay
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 最好不说| + 1|压力马斯内|
 | zongrumk2| + 1|太媚宅了！但我喜欢|
 
 
@@ -21712,4 +21715,515 @@ okay
 
 
 
-             
+
+
+-----
+
+####  kwin_  
+##### 1087#       发表于 2020-3-27 20:41
+
+
+
+
+献上雕像要有什么条件?
+雕像买了不过到教堂只有“我不能献上”的选择。。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Duncan_Spurs  
+##### 1088#       发表于 2020-3-27 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46896665&amp;ptid=1858008" target="_blank">kwin_ 发表于 2020-3-27 20:41</a>
+献上雕像要有什么条件?
+雕像买了不过到教堂只有“我不能献上”的选择。。</blockquote>
+献雕像是后面的剧情了，暂时不用管
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1089#       发表于 2020-3-27 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46896665&amp;ptid=1858008" target="_blank">kwin_ 发表于 2020-3-27 20:41</a>
+
+献上雕像要有什么条件?
+
+雕像买了不过到教堂只有“我不能献上”的选择。。</blockquote>
+教堂里只是触发任务。献雕像基本上算是后续主线剧情内容，应该不会错过。
+
+
+
+
+
+
+
+-----
+
+####  Duncan_Spurs  
+##### 1090#       发表于 2020-3-27 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46895979&amp;ptid=1858008" target="_blank">Mr.BBWoLf 发表于 2020-3-27 19:51</a>
+草了感觉第一天啥都没干成
+
+
+尸体没放下来，**和**没找着，钱也没有，拿俩小屁孩没辙，深夜捡了个垃 ...</blockquote>
+垃圾到弗利多那里卖，而且没必要，赚不到钱，靠捡场景里的**基本就够了
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  19343917  
+##### 1091#       发表于 2020-3-27 21:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894964&amp;ptid=1858008" target="_blank">OldGlory 发表于 2020-3-27 18:24</a>
+
+你赞同公会主席提高的不是康米主义而是法西斯主义，再仔细想想</blockquote>
+没毛病的，纳粹本来就是工人党派
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1092#       发表于 2020-3-27 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46896815&amp;ptid=1858008" target="_blank">Duncan_Spurs 发表于 2020-3-27 20:54</a>
+
+垃圾到弗利多那里卖，而且没必要，赚不到钱，靠捡场景里的**基本就够了
+
+
+—— 来自 OnePlus HD1900, Andr ...</blockquote>
+确实，刚才卖了一次，费神费时回报又低
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1093#       发表于 2020-3-27 21:46
+
+
+
+
+说到卖垃圾，流浪警探/hobocop这思维怎么得啊
+
+有了这思维后卖垃圾赚吗
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1094#       发表于 2020-3-27 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46897431&amp;ptid=1858008" target="_blank">Doctor.S 发表于 2020-3-27 21:46</a>
+
+说到卖垃圾，流浪警探/hobocop这思维怎么得啊
+
+有了这思维后卖垃圾赚吗</blockquote>
+前期出现关于“家”的思维对话的时候，选项往“老子不需要家”的方向选就行。
+
+珍藏垃圾瓶还没遇到，普通垃圾价格翻倍，从0.1涨到0.2，不过这游戏本来也不怎么缺钱……
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 1095#       发表于 2020-3-27 22:12
+
+
+
+
+一直保持着现实一天游戏一天的玩法，进入第四天有点沉迷了
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1096#       发表于 2020-3-27 22:19
+
+
+
+
+这游戏是不是有什么隐藏加成，我玩天王巨星加点，三个低概率的判定，前两个roll11点压线过，后一个12点秒杀
+
+
+这就是天王巨星的强运吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1097#       发表于 2020-3-27 22:54
+
+
+
+
+一发帖就被连续制裁了，现实世界……真无聊
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1098#       发表于 2020-3-27 23:00
+
+
+
+
+开局把衣服全扒了和金对话
+对话完后会被“平心定气”吐槽：“如果他没提你没穿裤子的事，那就没人会了。如果没穿裤子的话，唯一受伤的只有你自己…”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 1099#       发表于 2020-3-27 23:58
+
+
+
+
+终于通了，因为不想金离开所以之前看了点攻略，发现要做一个**，但是我不知道把领带丢哪没办法做
+本来以为不行了磕药上战场，没想到露比自杀后捡到gun，后面剧情判定大部分成功金居然留下来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还比我活蹦乱跳得多
+
+
+
+
+
+
+
+-----
+
+####  eblis2  
+##### 1100#       发表于 2020-3-28 00:01
+
+
+
+
+我抽烟喝酒吸毒勒索骗人但是我是个好条子
+
+
+
+
+
+
+
+-----
+
+####  YFIIII  
+##### 1101#       发表于 2020-3-28 00:31
+
+
+
+
+23小时通关了，真是部杰作啊。虽然内容和我想的不太一致，一开始还以为能扮演个拿着大gun指着每个人脑袋嘴臭的莽夫，结果到头来不管咋选都是中年loser模拟器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kaltsit  
+##### 1102#       发表于 2020-3-28 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46867271&amp;ptid=1858008" target="_blank">leader01234 发表于 2020-3-25 13:49</a>
+
+我觉得竹节虫是一种对原始本能的回归，追寻糖与信息素——酒精和性，任何更高级的思绪，爱情、理想，都只 ...</blockquote>
+感觉这个解释和神秘动物学家对竹节虫的苦苦追寻是冲突的，在他和妻子的眼里竹节虫应该是某种虚幻、神秘而崇高的事物。
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 1103#       发表于 2020-3-28 01:35
+
+
+
+<blockquote>19343917 发表于 2020-3-27 21:12
+没毛病的，纳粹本来就是工人党派</blockquote>
+明明是小市民的党派，当时德国工人还是支持KPD或SPD比较多，不要望文生义啊
+
+
+
+
+
+
+
+-----
+
+####  甘木方土  
+##### 1104#       发表于 2020-3-28 09:23
+
+
+
+
+这游戏好难啊，我开局建了个1体力的角色，然后扯了下电风扇，然后我死了…死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次还没存档
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1105#       发表于 2020-3-28 09:50
+
+
+
+ 本帖最后由 Hidewhite 于 2020-3-28 09:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46900411&amp;ptid=1858008" target="_blank">甘木方土 发表于 2020-3-28 09:23</a>
+
+这游戏好难啊，我开局建了个1体力的角色，然后扯了下电风扇，然后我死了…死了又开局给警局打电话， ...</blockquote>
+智力型开局容易猝死。士气的话注意别选太消极的，血的话不乱踢公共财物之类，买点药，扣血有时间的，血条闪烁时吃药就能补上。智力类有思维可以加额外经验额外钱的，渡过前期住旅馆后资源富裕。加点可以早点把血和士气点上来。
+
+
+
+
+
+
+
+-----
+
+####  威爾第晚禱  
+##### 1106#       发表于 2020-3-28 12:46
+
+
+
+
+homosexual slot怎么才能获得。
+
+深夜被电铃录音刺伤了，来个人爱我秋梨膏<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alomes  
+##### 1107#       发表于 2020-3-28 12:56
+
+
+
+<blockquote>威爾第晚禱 发表于 2020-3-28 12:46
+homosexual slot怎么才能获得。
+
+深夜被电铃录音刺伤了，来个人爱我秋梨膏 ...</blockquote>
+阳台上抽烟的男子大概
+
+
+
+
+
+
+
+-----
+
+####  威爾第晚禱  
+##### 1108#       发表于 2020-3-28 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46902490&amp;ptid=1858008" target="_blank">Alomes 发表于 2020-3-28 12:56</a>
+
+阳台上抽烟的男子大概</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">谢谢 那熬过今天就能行了
+
+
+
+
+
+
+
+-----
+
+####  子犴  
+##### 1109#       发表于 2020-3-28 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46844441&amp;ptid=1858008" target="_blank">NeverwinterN 发表于 2020-3-23 14:09</a>
+
+比起“伤痕文学”这种现实色彩这么浓厚的形容，我倒是觉得这作更像是“废土文学”。当然，不是post-apocaly ...</blockquote>
+写得好！！！！
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1110#       发表于 2020-3-28 15:29
+
+
+
+
+我目前唯二两次面临死亡，一次是看前女友的明信片，一次是给前女友打电话。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1111#       发表于 2020-3-28 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46902408&amp;ptid=1858008" target="_blank">威爾第晚禱 发表于 2020-3-28 12:46</a>
+
+homosexual slot怎么才能获得。
+
+深夜被电铃录音刺伤了，来个人爱我秋梨膏 ...</blockquote>
+你说的是Homo-Sexual Underground这个思维还是啥？思维的话要和抽烟小哥相遇以后，再去褴褛飞旋一楼找他对话，过一个极难14的从容自若
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 1112#       发表于 2020-3-28 17:06
+
+
+
+
+骰子匠人是谁？教堂剧情后怎么突然冒出来一个我好像早就遇到过但是完全没印象的npc？
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 1113#       发表于 2020-3-28 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46904549&amp;ptid=1858008" target="_blank">沈经文 发表于 2020-3-28 17:06</a>
+骰子匠人是谁？教堂剧情后怎么突然冒出来一个我好像早就遇到过但是完全没印象的npc？ ...</blockquote>
+骰子匠人在书店楼上
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 1114#       发表于 2020-3-28 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46904568&amp;ptid=1858008" target="_blank">南非大金钻 发表于 2020-3-28 17:07</a>
+
+骰子匠人在书店楼上</blockquote>
+哦哦找到了，地下室壁炉那有个检定，然后92%失败了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+之前去看的时候只有踹一脚掉血，不知道啥时候多的检定。
+
+
+
+
+
+            
