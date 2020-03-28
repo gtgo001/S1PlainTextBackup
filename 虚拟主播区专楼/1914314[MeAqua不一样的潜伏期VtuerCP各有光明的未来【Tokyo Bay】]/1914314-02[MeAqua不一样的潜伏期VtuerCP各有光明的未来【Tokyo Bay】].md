@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-28 20:02** 
+> ## **本文件最后更新于2020-03-28 22:02** 
 
 
 
@@ -18372,7 +18372,7 @@ R.I.P.
 
 
 贴01.png
-(356.56 KB, 下载次数: 0)
+(356.56 KB, 下载次数: 1)
 
 
 
@@ -18460,13 +18460,17 @@ R.I.P.
 
 
 
- 本帖最后由 2111X 于 2020-3-28 19:44 编辑 
+ 本帖最后由 2111X 于 2020-3-28 20:07 编辑 
 
-好好好，好起来了！
+好好好，快蝗，蝗起来了！
+
 
 蝗得好，蝗住，不要停<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
 没蝗住，麻又输——28.03.20
+
 
 
 
@@ -18523,4 +18527,560 @@ holo还管你禁言的？
 
 
 
-                
+
+
+-----
+
+####  小博禹  
+##### 2496#       发表于 2020-3-28 20:03
+
+
+
+
+虽然不知道发生了什么，但是，meaqua是真的！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2497#       发表于 2020-3-28 20:05
+
+
+
+
+麻麻不安排联动，只能找夸夸扣糖渣了<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2498#       发表于 2020-3-28 20:06
+
+
+
+
+唉， 看来一些贴贴民依然不明白大亏的苦心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2499#       发表于 2020-3-28 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 2500#       发表于 2020-3-28 20:10
+
+
+
+
+你大亏已经看不起你咩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 2501#       发表于 2020-3-28 20:30
+
+
+
+
+这种事你们知道得比谁都快，你们是真贴贴人。
+
+
+
+
+
+
+
+-----
+
+####  jesperliu  
+##### 2502#       发表于 2020-3-28 20:34
+
+
+
+
+作为一个未断旧情的前贴贴人，我觉得是时候认清现实了。也许麻和凛是好朋友，甚至可能有超越一般的好友的关系，但是这和神乐mea与湊aqua的关系并不具备完全的相关性。现在咩的数据、风格和交际圈是这样的，阿夸起飞之后也必然受到更多企业的制约，要顾及更多观众的体验，所以不可能像以前一样自由的贴贴联动，甚至提到咩都要考虑各种各样的因素。meaqua对于二人来说，如像希腊之于罗马，虽然渗透在粉丝团体的方方面面，但是没有复兴的条件。与其抱残守缺，不如正视现实，或者弃暗投明，或者亲自造糖，木糖醇未必就不能像蔗糖一样甜美。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2503#       发表于 2020-3-28 20:40
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-3-28 20:41 编辑 
+
+我个人一直都是“因现实因素冷却论”的信奉者啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+只是当下还是贴贴民的人大多是那种...思想没有被社会污染的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+他们中的一部分是meaqua的最大的推手， 也是meaqua最大的败笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2504#       发表于 2020-3-28 20:42
+
+
+
+
+全靠私货钓主播鱼，主播还咬得不利索，贴贴壬太惨了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2505#       发表于 2020-3-28 20:46
+
+
+
+
+能说出来就不错了，说不定夸哥还要挨运营骂呢<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jesperliu  
+##### 2506#       发表于 2020-3-28 20:47
+
+
+
+
+其实阿夸直播时看见咩元素的感觉就像高中生被老师问话时问道女朋友一样吧。装作无事发生明显不行，说的太过也是木大，但是处于本心又想炫耀炫耀，所以就只能别别扭扭的挤出来几句不痛不痒的话。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2507#       发表于 2020-3-28 20:47
+
+
+
+
+贴贴人好nm卑微哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2508#       发表于 2020-3-28 20:51
+
+
+
+
+天天钓鱼，你们当主播是巴浦洛夫的狗啊，看到啥元素就得给反应
+
+
+两边一块玩条件反射养成，属实费拉
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2509#       发表于 2020-3-28 20:58
+
+
+
+
+哇，贴贴人是真的恶心，都这样了还能脑补<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2510#       发表于 2020-3-28 21:00
+
+
+
+
+这糖渣就离谱，无事发生好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 2511#       发表于 2020-3-28 21:21
+
+
+
+
+这都算糖渣了，贴贴壬真是既卑微又可恨。怕不是这一点点也能再续五百年啊。
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2512#       发表于 2020-3-28 21:27
+
+
+
+
+管人粉丝比管人好看系列<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2513#       发表于 2020-3-28 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907019&amp;ptid=1914314" target="_blank">zilch_ren 发表于 2020-03-28 21:21:43</a>
+这都算糖渣了，贴贴壬真是既卑微又可恨。怕不是这一点点也能再续五百年啊。 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然你以为为啥谁都看不起贴贴人，暗黑贴贴人还整天给mea邮箱塞黑泥呢
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 2514#       发表于 2020-3-28 21:30
+
+
+
+
+暗黑贴贴人的发病能力比正牌强太多了……
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2515#       发表于 2020-3-28 21:30
+
+
+
+
+偶像就是贩卖梦想的职业啊，贴贴也是一样的。
+
+以单推的视角来说，第一步先要让粉丝生成“想要看偶像上演唱会”，“想要看偶像的专辑”，“想和偶像握手”
+
+或者简单到”想被读一次sc“，”想看主播玩一次我最喜欢的xx游戏“，”想要一次b限“，”想要陪主播完成一次耐久“，”想在直播中听到某一首歌“这样的梦想
+
+梦想被不断地实现，不断地强化这个过程。越大的愿望，强化的效果就越强烈。粉丝对偶像就越忠诚。
+
+以贴贴的视角来说，”想要吃糖“就是那个梦想。吃了一颗，实现了一个愿望，就想吃更甜的，实现更大的愿望。饿的越久，吃糖的梦想就会变得越强烈，吃到糖就会获得更大的满足感。
+
+你v圈的各种现象都逃不开”偶像与不断实现梦想的循环“，黑子需要的是”证明偶像是个坏人“，不仲人需要的是”证明他俩的关系不好“。大家走的是同一套程序，只是核心不同而已，就像一个魔法球，加载不同的元素核心将会表现出截然不同的功能。
+
+单推人经常有直播看，DD人有的是直播看，而贴贴人的偶像是”贴贴组合“，可以等价为一个极少上播，行踪神秘，经常虐粉的偶像。所以魔怔程度DD&lt;单推人&lt;贴贴人。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2516#       发表于 2020-3-28 21:31
+
+
+
+<blockquote>飞姆托 发表于 2020-3-28 21:28
+不然你以为为啥谁都看不起贴贴人，暗黑贴贴人还整天给mea邮箱塞黑泥呢
+
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+我还记得那烂事呢
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2517#       发表于 2020-3-28 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907109&amp;ptid=1914314" target="_blank">ddy2811 发表于 2020-3-28 21:30</a>
+
+暗黑贴贴人的发病能力比正牌强太多了……</blockquote>
+黑化强三倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2518#       发表于 2020-3-28 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907109&amp;ptid=1914314" target="_blank">ddy2811 发表于 2020-3-28 21:30</a>
+
+暗黑贴贴人的发病能力比正牌强太多了……</blockquote>
+贴贴人好歹有点糖吃
+
+暗黑贴贴人有多少盐吃？有人用暗黑贴贴二创给我们造一个暗黑贴贴宇宙吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+暗黑贴贴人都要饿死了，谁去啊b创一个MeAqua黑深残动画制作委员会，我马上交关注<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2519#       发表于 2020-3-28 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907092&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-3-28 21:28</a>
+
+不然你以为为啥谁都看不起贴贴人，暗黑贴贴人还整天给mea邮箱塞黑泥呢
+
+
+  -- 来自 能手机投票的 Sta ...</blockquote>
+有一说一，我这个暗黑贴贴人巴不得meaqua彻底撕破脸呢，发邮件肯定是还有念想的人，这种傻逼为甚么不给大亏发呢
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2520#       发表于 2020-3-28 21:47
+
+
+
+ 本帖最后由 飞姆托 于 2020-3-28 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907267&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-3-28 21:44</a>
+
+有一说一，我这个暗黑贴贴人巴不得meaqua彻底撕破脸呢，发邮件肯定是还有念想的人，这种傻逼为甚么不给大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你怎么知道没发，只不过大夸邮箱难道不是holo的经济人看么。
+
+不然也不至于后来还出了clsy帮忙读黑泥了，虽然clsy自己也受不了把账号自爆了
+
+
+
+
+
+
+
+-----
+
+####  藤原银  
+##### 2521#       发表于 2020-3-28 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907221&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-03-28 21:40:07</a>
+贴贴人好歹有点糖吃
+
+暗黑贴贴人有多少盐吃？有人用暗黑贴贴二创给我们造一个暗黑贴贴宇宙吗 ...</blockquote>有一说一，加大力度，我也想看
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2522#       发表于 2020-3-28 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是黑暗贴贴人吗，真是有够好笑的呢。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2523#       发表于 2020-3-28 21:50
+
+
+
+
+话说有没有什么暗黑贴贴二创啊
+
+类似meaqua中箭图那种的
+
+吃不到盐虚空制盐也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+暗黑贴贴人的创作力难道只能被贴贴人吊打吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2524#       发表于 2020-3-28 21:52
+
+
+
+
+草， 要有多扭曲才会特意去出产这种东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2525#       发表于 2020-3-28 21:53
+
+
+
+ 本帖最后由 2111X 于 2020-3-28 21:59 编辑 
+
+笑了，看看上面那位脑补人，你把两人画成仇敌也不妨碍rz脑补出贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+本暗黑人有且仅有的产盐事业即是anti大亏<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2526#       发表于 2020-3-28 22:00
+
+
+
+
+我们要的不是反目成仇你死我活，是“就这”的平淡啊
+
+
+哪来那么多戏剧性.jpg
+
+
+
+
+
+               
