@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-28 22:02** 
+> ## **本文件最后更新于2020-03-29 10:03** 
 
 
 
@@ -19083,4 +19083,555 @@ holo还管你禁言的？
 
 
 
-               
+
+
+-----
+
+####  离魂仙  
+##### 2527#         楼主| 发表于 2020-3-28 22:03
+
+
+
+
+你直接群里at新月云不就完事儿了，算算日子，咩骑士大礼包都画了一年了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2528#       发表于 2020-3-28 22:50
+
+
+
+
+你死我活也是贴贴，不仲营业也是营业。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2529#       发表于 2020-3-28 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上回你大亏哥在404提到这个名字是什么时候的事来着
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2530#       发表于 2020-3-29 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">净土坛贴贴楼都没你们刷的多
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2531#       发表于 2020-3-29 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46908793&amp;ptid=1914314" target="_blank">暴走的包子 发表于 2020-3-29 00:06</a>
+
+净土坛贴贴楼都没你们刷的多
+
+
+—— 來自 samsung SM-N9750, Android 10上的 S1Next-鵝版 v2.2.2.1 ...</blockquote>
+净土坛根本不懂meaqua的魅力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2532#       发表于 2020-3-29 00:13
+
+
+
+
+贴贴楼懂什么meaqua<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2533#       发表于 2020-3-29 00:16
+
+
+
+
+贴贴人就是逊了啊，只能畏畏缩缩说自己是残党。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2534#       发表于 2020-3-29 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907344&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-3-28 21:50</a>
+
+话说有没有什么暗黑贴贴二创啊
+
+类似meaqua中箭图那种的
+
+吃不到盐虚空制盐也行啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer"> 可别提中箭图了吧，就一改图，一想就只能想到这图足见创作力多贫瘠废垃
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2535#       发表于 2020-3-29 01:06
+
+
+
+
+好像是哦，一说起暗黑二创就只能想起箭和切蛋糕。
+不过二创不一定得要图嘛，人家可以写cp文制糖满足自己的想法，你们也一样可以整点暗黑文创丰富一下精神世界嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2536#       发表于 2020-3-29 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909012&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-29 01:06</a>
+
+好像是哦，一说起暗黑二创就只能想起箭和切蛋糕。
+
+不过二创不一定得要图嘛，人家可以写cp文制糖满足自己的 ...</blockquote>
+暗黑贴贴文创不好弄啊……贴贴文只要两人都出场那干什么都是贴贴，比贴贴文难弄多了。
+
+谈恋爱、H也是贴贴；感情破裂、离婚吵架、最后反目成仇也是贴贴；从头到尾设定成宿敌更是贴贴。反正只要两个人有交流那么有一万种方法将其理解成贴贴。
+
+所以怎么写出贴贴人痛，暗黑人快的文创呢？
+
+融入巨魔之力？用类似嘲讽玛丽苏的方式写那种极其夸张搞笑的贴贴文？还要让贴贴人看文痛并快乐着，从而加入巨魔的行列？
+
+额……搞不懂，感觉好困难。还是贴贴人好当，花式滚床单就行了。
+
+
+
+
+
+
+
+-----
+
+####  free切  
+##### 2537#       发表于 2020-3-29 01:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">圣皇又搞了什么操作来钓贴贴人了？
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 2538#       发表于 2020-3-29 01:42
+
+
+
+
+所以有今天夸皇的repo让我云一下么？免得以后黑屁贴贴人的时候黑歪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2539#       发表于 2020-3-29 02:58
+
+
+
+
+不仲篇
+“めあ…めあくあ！”
+夸皇看着帽子上那想忘也忘不掉的花纹，咬牙切齿地从喉咙里挤出声。
+强忍着恶心感，夸皇匆匆离岛，临走还对看板上的人吐了口唾沫。
+
+功利篇
+“めあ…めあくあ！”
+大亏挤出营业笑容，让自己的声音听起来显得更开心一点。
+这样应该满足了吧，中国人又会继续卖力地为自己画fanart。
+至于看板上画着的mea，大亏内心里笑了一下——这个，就不评论了吧。
+
+洗脑篇
+“めあ…めあくあ！”
+湊阿库娅感到记忆深处有什么东西涌了出来，令她惊叫出声——但这一切很快就都随着一阵令人刺痛的电流而烟消云散。
+她又变回了hololive所属的湊阿库娅。
+め…め…？看板上那个人究竟是谁呢？
+
+巨魔篇
+“めあ…めあくあ！”
+凛子小姐开心地喊了出来，仿佛看到了贴贴民们久旱逢甘露的样子。
+虽然很敬佩，但太体贴他们可就不好玩了——凛子小姐决定无视其余的mea要素了。
+
+肉猪篇
+“めあ…めあくあ！”
+aqua的手机震动了起来。
+“？”——是mea发来的。
+糟糕，又搞砸了。
+虽然不知道要藏到什么时候，但既然是mea的决定，就老老实实按她说的办吧。
+
+
+贴贴篇
+“めあ…めあくあ！”
+阿夸发现了墙上的小彩蛋，惊呼出声。
+虽然因为各种各样的事情让预定的联动一直耽搁了，但他们还在期待着真是太好了。
+看着看板上其他人画给岛主的mea，阿夸傻傻地笑了起来。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|文创好|
+| SumW5| + 1|要在哪一条世界线上，才能再次和你营业…….|
+| 离魂仙| + 1|优秀文创|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2540#       发表于 2020-3-29 03:00
+
+
+
+
+六个音节的事能脑补出这么多版本，六字母人，如此强大！
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2541#       发表于 2020-3-29 03:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909278&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-3-29 02:58</a>
+不仲篇
+“めあ…めあくあ！”
+夸皇看着帽子上那想忘也忘不掉的花纹，咬牙切齿地从喉咙里挤出声。</blockquote>
+第一篇最好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2542#       发表于 2020-3-29 03:09
+
+
+
+
+我且问你，めあくあ有几种贴法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+巨魔篇这个切入点不错。你坛目前给夸的人设是功利皇，等这个人设玩腻了巨魔人设或许可以好好挖掘一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2543#       发表于 2020-3-29 03:32
+
+
+
+
+一个能忍受长期弱智RP的巨魔
+
+那也是功力了得
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2544#       发表于 2020-3-29 03:37
+
+
+
+
+真正巨魔不应乐在其中吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+不是很懂
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2545#       发表于 2020-3-29 03:45
+
+
+
+
+弱智rp巨魔，巨魔中的顶级品种
+
+
+迫不及待想领教几招了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2546#       发表于 2020-3-29 03:48
+
+
+
+
+阿夸巨魔度绝对是有的，感觉比mea还高不少
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2547#       发表于 2020-3-29 03:56
+
+
+
+
+mea不是纯良人吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+她是巨魔那也太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2548#       发表于 2020-3-29 03:57
+
+
+
+
+我不就是弱智rp巨魔吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">湊阿库娅要来抢我人设了吗。
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2549#       发表于 2020-3-29 04:03
+
+
+
+
+大亏的双商这么感人怎么当巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2550#       发表于 2020-3-29 07:58
+
+
+
+
+这是在暗示谁我就不多说了吧
+
+我的牙膏原罪学又有了新的证据
+
+兄弟们去绪方无限那里领个咩夸民的牌子今晚把holo官号给冲了！111
+
+
+
+
+
+
+1.jpg
+(689.2 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-29 07:57 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/29/075708z99dl0a7z75o9636.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2551#       发表于 2020-3-29 08:08
+
+
+
+
+也许大亏是真巨魔
+你咩是自认为巨魔实际萌萌人?
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2552#       发表于 2020-3-29 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909528&amp;ptid=1914314" target="_blank">SumW5 发表于 2020-3-29 07:58</a>
+这是在暗示谁我就不多说了吧
+
+我的牙膏原罪学又有了新的证据
+
+兄弟们去绪方无限那里领个咩夸民的牌子今晚把ho ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等会你这个图是指谁啊
+
+
+
+
+
+              
