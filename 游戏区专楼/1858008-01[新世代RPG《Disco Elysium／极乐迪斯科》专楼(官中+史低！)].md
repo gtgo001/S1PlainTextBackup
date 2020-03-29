@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-28 18:03** 
+> ## **本文件最后更新于2020-03-29 14:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_SdDMY" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_dw68S" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -22226,4 +22226,552 @@ homosexual slot怎么才能获得。
 
 
 
-            
+
+
+-----
+
+####  阿萨托斯  
+##### 1115#       发表于 2020-3-28 18:26
+
+
+
+
+所以打不过颅骨怎么办？
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1116#       发表于 2020-3-28 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46905329&amp;ptid=1858008" target="_blank">阿萨托斯 发表于 2020-03-28 18:26:31</a>
+所以打不过颅骨怎么办？</blockquote>可以从坤诺屋顶上跳过去
+或者干脆接纳他
+不过衣服加酒多sl下总能过的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1117#       发表于 2020-3-28 19:05
+
+
+
+
+我的天王巨星build在最后的舞台表演上roll了个大失败，人生就是这样处处充满惊喜，巨星陨落<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+但是我觉得其实唱的还挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 1118#       发表于 2020-3-28 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46905668&amp;ptid=1858008" target="_blank">逃离学校 发表于 2020-3-28 19:05</a>
+
+我的天王巨星build在最后的舞台表演上roll了个大失败，人生就是这样处处充满惊喜，巨星陨落
+
+但是我 ...</blockquote>
+我觉得比成功的好听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">成功那能算唱歌吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 首领| + 1|成了是装神弄鬼不算唱|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1119#       发表于 2020-3-28 20:36
+
+
+
+
+原来最后是必然失败，22点都没过
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1120#       发表于 2020-3-28 21:01
+
+
+
+
+胖子的渔村开发计划是不是真的？我是说他虽然已经肯定称不上是一个马佐夫主义者，而且还是一个通过贩毒牟利的组织的头目，但是他是不是还是真心地想要改善他所生活的这片土地以及他那两千多名工人兄弟的生活处境？
+
+
+
+
+
+
+
+-----
+
+####  Herreimu  
+##### 1121#       发表于 2020-3-28 21:08
+
+
+
+
+开了个新档，u1s1打颅测是真的爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+一个回旋踢上去，去你妈的唧唧歪歪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1122#       发表于 2020-3-28 21:19
+
+
+
+
+我接纳了测颅的扯淡理论后跟他对话，除了被他跟他的迷妹嘲讽一番拿到 现实存在的荒芜之地 后，啥都没发生，还是不让过。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1123#       发表于 2020-3-28 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46906989&amp;ptid=1858008" target="_blank">Mr.BBWoLf 发表于 2020-3-28 21:19</a>
+
+我接纳了测颅的扯淡理论后跟他对话，除了被他跟他的迷妹嘲讽一番拿到 现实存在的荒芜之地 后，啥都没发生， ...</blockquote>
+学完后要再和他对话，然后多次选择正确，这样才算真的懂了，才能过。。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1124#       发表于 2020-3-28 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46907324&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-3-28 21:48</a>
+
+学完后要再和他对话，然后多次选择正确，这样才算真的懂了，才能过。。。 ...</blockquote>
+看来我sl多次，就没点到那项 正确的 
+
+
+
+
+
+
+
+-----
+
+####  无线未覆盖  
+##### 1125#       发表于 2020-3-28 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46906805&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-28 21:01</a>
+胖子的渔村开发计划是不是真的？我是说他虽然已经肯定称不上是一个马佐夫主义者，而且还是一个通过贩毒牟利 ...</blockquote>
+克莱尔作为工会的领导其实我觉得跟马佐夫不一定要有什么必然联系，游戏里选配合他的对话长的是法西斯，他就是这个社区成长起来的，扎根于这个社区，被社区所推选的能力者只不过这个社区是工会为主而已，游戏里已经有表现他有集权者的雏形。游戏里点高精神和智力在寄完签名信后和他对话，会出内心对话告诉你他是对所说的建设社区是有真情实感的，当然你可以说这是他太会演骗过了龙舌兰末日的观察和共情技能，但我感觉他确实是现在这个社区比较有能力且有责任感的领导人，贪腐肯定有，但不是蛀虫。具体到渔村，他的建设应该是真，但是对于渔村人员的保障，不一定吧，到他这都会说漂亮话，就看最后会不会执行，毕竟法西斯的特点之一就是集体大于个体
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  蔺无双  
+##### 1126#       发表于 2020-3-28 23:47
+
+
+
+
+前期的巨魔对话还让人没有太多的反映，最后去小岛扛个录音机放BGM的装逼画面真的喷了，最后士兵还补刀说音乐放那么大谁不知道你来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 1127#       发表于 2020-3-29 00:02
+
+
+
+
+测颅学完他的种族理论可以直接开骂老子不信你听你逼逼就为了过去，他反而会给你开门
+
+
+
+
+
+
+
+-----
+
+####  bwsusaga  
+##### 1128#       发表于 2020-3-29 02:56
+
+
+
+
+刚开始玩，不敢爬楼怕剧透，
+
+就问一点，有没有超自然要素……
+
+
+感觉纯探案少点什么，
+
+这风格不搞点怪力乱神掺在里面不就浪费了么。
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 1129#       发表于 2020-3-29 03:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909277&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-3-29 02:56</a>
+
+刚开始玩，不敢爬楼怕剧透，
+
+就问一点，有没有超自然要素……</blockquote>
+超自然基本上没有
+
+但是神经病是从头到尾
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1130#       发表于 2020-3-29 07:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46906805&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-03-28 21:01:55</a>
+胖子的渔村开发计划是不是真的？我是说他虽然已经肯定称不上是一个马佐夫主义者，而且还是一个通过贩毒牟利 ...</blockquote>除了楼上讲的，另一个角度
+那帮道貌岸然的联盟资本家把整个瑞瓦肖搞烂了可哪怕哪怕是也对渔村有感情的乔伊斯都从来没想过付出任何行动让这个地方变得更好，相反还乐于见到这种混乱（旅人法案）
+埃弗拉特无论如何也是真的在用实际行动为这里做些什么，哪怕最后会有一个他的雕像也无法否定这点
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1131#       发表于 2020-3-29 07:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909277&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-3-29 02:56</a>
+
+刚开始玩，不敢爬楼怕剧透，
+
+就问一点，有没有超自然要素……</blockquote>
+超自然基本是这游戏的里线
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 1132#       发表于 2020-3-29 07:56
+
+
+
+
+艹艹，史低错过了
+下次打折什么时候啊....
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1133#       发表于 2020-3-29 08:29
+
+
+
+
+死胖子嘴里没一句真话的，让人怎么信他<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+反正我就让流浪汉签了
+
+
+
+
+
+
+
+-----
+
+####  古凌锋  
+##### 1134#       发表于 2020-3-29 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909697&amp;ptid=1858008" target="_blank">哈尔摩尼亚N 发表于 2020-3-29 08:29</a>
+
+死胖子嘴里没一句真话的，让人怎么信他
+
+反正我就让流浪汉签了</blockquote>
+你感同身受等级高了会发现他的话都是真话（X
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 1135#       发表于 2020-3-29 10:29
+
+
+
+
+你们都没触发伪造签名的任务吗？主角推测出死胖子是要通过建筑噪音让村民不得不搬离渔村，然后就能低价收购渔村的土地。
+
+事实上你寄完信后用这一点去质问死胖子，他也会承认说：我为马丁内斯准备了一个大计划。但是【并不】包括海岸边那些住在猪圈里的人。那片土地将会用于市政建筑和商业中心。
+
+所以死胖子是什么形象还是取决于你看问题的角度，取决于“渔村拆迁，村民背井离乡"这种事在你心中到底算是必要的牺牲还是“必要的牺牲”。
+
+
+
+
+
+
+
+-----
+
+####  泽迦利亚  
+##### 1136#       发表于 2020-3-29 10:42
+
+
+
+
+坐船去小岛前想着刮个胡子进了一下第二个家，结果出来后找不到金了，哪里都找不到人，他就好像失踪了一样，想独自登岛又告诉我没他不行，这是bug吗？
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1137#       发表于 2020-3-29 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46910089&amp;ptid=1858008" target="_blank">古凌锋 发表于 2020-3-29 09:41</a>
+
+你感同身受等级高了会发现他的话都是真话（X</blockquote>
+好吧，只是有些真话没说<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1138#       发表于 2020-3-29 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46910089&amp;ptid=1858008" target="_blank">古凌锋 发表于 2020-3-29 09:41</a>
+你感同身受等级高了会发现他的话都是真话（X</blockquote>
+卡拉洁都能把除了[平心定气]以外的技能耍的团团转
+我不觉得肥仔作为一个老政客会比一个年轻演员差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1139#       发表于 2020-3-29 12:59
+
+
+
+
+谁知道正经的艺术学位这个思维怎么拿？
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1140#       发表于 2020-3-29 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46912110&amp;ptid=1858008" target="_blank">逃离学校 发表于 2020-3-29 12:59</a>
+
+谁知道正经的艺术学位这个思维怎么拿？</blockquote>
+标新立异够高，对话中谈几次艺术，比如跟上面的涂鸦女孩和旅馆稍微往右下一点的一位抽烟的卡车司机。然后脑袋旁就蹦出一个红圈。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1141#       发表于 2020-3-29 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46909277&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-3-29 02:56</a>
+
+刚开始玩，不敢爬楼怕剧透，
+
+就问一点，有没有超自然要素……</blockquote>
+有啊，一个共产主义的幽灵把主角搞失忆了，一个资本主义的幽灵诅咒了这条大街
+
+
+有一点超自然内容，但不是主要
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1142#       发表于 2020-3-29 13:46
+
+
+
+<blockquote>Mr.BBWoLf 发表于 2020-3-29 13:27
+标新立异够高，对话中谈几次艺术，比如跟上面的涂鸦女孩和旅馆稍微往右下一点的一位抽烟的卡车司机。然后 ...</blockquote>
+谢了，我和涂鸦女孩、卡车司机还有卖书的小女孩三个人全部对话完，拿到了
+
+
+
+
+
+
+
+-----
+
+####  弗兰肯斯坦  
+##### 1143#       发表于 2020-3-29 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45924153&amp;ptid=1858008" target="_blank">ataraxianxy 发表于 2019-12-20 06:51</a>
+
+**** 作者被禁止或删除 内容自动屏蔽 ****</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/059.png" referrerpolicy="no-referrer">目前最合我心的逃兵解读
+
+
+
+
+
+           
