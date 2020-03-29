@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-29 10:03** 
+> ## **本文件最后更新于2020-03-30 02:03** 
 
 
 
@@ -19354,10 +19354,11 @@ aqua的手机震动了起来。
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| noaki| + 1|好，各取所需|
 | 惑星| + 1|文创好|
 | SumW5| + 1|要在哪一条世界线上，才能再次和你营业…….|
 | 离魂仙| + 1|优秀文创|
@@ -19634,4 +19635,805 @@ mea不是纯良人吗<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-              
+
+
+-----
+
+####  zaozaoxx  
+##### 2553#       发表于 2020-3-29 10:11
+
+
+
+
+黑苹果人设当然带感，弱智rp的bad apple遇上表面巨魔的纯良萌妹，<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">蛮好
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  青叶假司  
+##### 2554#       发表于 2020-3-29 10:31
+
+
+
+
+我亏如果不巨魔能把楼友耍的团团转吗<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2555#       发表于 2020-3-29 10:34
+
+
+
+
+亏皇要是不巨魔怎么当得上泥潭头号经验包
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2556#       发表于 2020-3-29 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46910238&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-3-29 09:59</a>
+
+等会你这个图是指谁啊</blockquote>
+咩咩说她事自由民<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2557#       发表于 2020-3-29 20:28
+
+
+
+
+明儿就330了，我前几天以为贴贴壬根本不记日子，都是暗黑贴贴壬才记，结果刚才看了一圈，发现贴贴壬都把325纪念完了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2558#       发表于 2020-3-29 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46916122&amp;ptid=1914314" target="_blank">JustW 发表于 2020-3-29 20:28</a>
+
+明儿就330了，我前几天以为贴贴壬根本不记日子，都是暗黑贴贴壬才记，结果刚才看了一圈，发现贴贴壬都把325 ...</blockquote>
+325又是啥
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2559#       发表于 2020-3-29 21:47
+
+
+
+ 本帖最后由 noaki 于 2020-3-29 22:34 编辑 
+
+325？
+
+回去翻了一下咩动态。好像除了当天有一次突击b限歌会外并没有什么特殊的地方，由评论区顺便还了解到b限同时福夸和apex还贴在一起。
+
+
+不过翻的过程中发现了这个，泪，不禁冲了出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202003/29/223409q8iuuvfs8y35hatp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>6B5B3F13-76CB-4673-9069-5C80331A7E58.jpeg</strong> (499.18 KB, 下载次数: 1)
+
+下载附件
+
+2020-3-29 22:34 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2560#       发表于 2020-3-29 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46916932&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-29 21:47</a>
+
+325？
+
+回去翻了一下咩动态。好像除了当天有一次突击b限歌会外并没有什么特殊的地方，由评论区顺便还了解到b ...</blockquote>
+图载不了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2561#       发表于 2020-3-29 22:14
+
+
+
+
+美好的V圈田园时代
+
+
+
+
+
+
+
+-----
+
+####  赫罗酱的胖次  
+##### 2562#       发表于 2020-3-29 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46916932&amp;ptid=1914314" target="_blank">noaki 发表于 2020-03-29 21:47:13</a>
+325？
+
+回去翻了一下咩动态。好像除了当天有一次突击b限歌会外并没有什么特殊的地方，由评论区顺便还了解到b ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看少了一年，我还以为六字母复辟了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2563#       发表于 2020-3-29 22:44
+
+
+
+
+330二创组再整不出点东西就很怪，萨尔重要性再评价<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2564#       发表于 2020-3-29 22:45
+
+
+
+ 本帖最后由 noaki 于 2020-3-29 22:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917162&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-3-29 22:08</a>
+
+图载不了</blockquote>
+那来个简单的文字版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+神楽Mea_ Official:
+
+2019-04-22
+
+5月份一起玩个够吧????// @湊-阿库娅Official:不和我一起玩吗 ?//
+
+
+@神樂Mea_Official：
+
+【……………… （动态）】
+
+
+
+
+
+syl 所以325究竟是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 2565#       发表于 2020-3-29 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46908468&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-3-28 23:29</a>
+
+上回你大亏哥在404提到这个名字是什么时候的事来着</blockquote>
+是昨天 没想到吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2566#       发表于 2020-3-29 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917660&amp;ptid=1914314" target="_blank">hjcxiaowo 发表于 2020-3-29 22:51</a>
+是昨天 没想到吧</blockquote>
+都跑到贴贴粉头han佬家里去了，能不表演一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前我还骂过han佬把你麻当附属品，我在这里诚挚道个歉，han佬起码入了fanbox还能去参加mc盒限，起码比什么一毛不拔，整天meaqua贴贴乱叫的傻逼好多了。
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 2567#       发表于 2020-3-29 22:59
+
+
+
+
+当初的我为了这句5月一起玩个够，开心了一晚上，听着女忍者，感叹好日子总算要来了，她俩总算想认真经营这对cp了
+
+
+结果是个只能存在于平行世界中的5月
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2568#       发表于 2020-3-29 23:08
+
+
+
+ 本帖最后由 SumW5 于 2020-3-29 23:13 编辑 
+
+还有一个小时，抵达风平浪静的330
+
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2569#       发表于 2020-3-29 23:13
+
+
+
+
+这就是暗黑贴贴人的执着么<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2570#       发表于 2020-3-29 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917760&amp;ptid=1914314" target="_blank">小走 发表于 2020-3-29 22:59</a>
+
+当初的我为了这句5月一起玩个够，开心了一晚上，听着女忍者，感叹好日子总算要来了，她俩总算想认真经营这 ...</blockquote>
+每个暗黑贴贴民曾经都是贴贴民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2571#       发表于 2020-3-29 23:17
+
+
+
+
+330那天，暗黑贴贴人用他们特有的方式纪念了这个令人唏嘘的日子，这是他们的童年
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2572#       发表于 2020-3-29 23:44
+
+
+
+
+暗黑贴贴民们会在330到来的那一刻起立静默3分钟吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2573#       发表于 2020-3-29 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有516她们或许现在还在贴贴。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2574#       发表于 2020-3-29 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918338&amp;ptid=1914314" target="_blank">stedckk 发表于 2020-3-29 23:46</a>
+
+没有516她们或许现在还在贴贴。</blockquote>
+516是330的结果
+
+没有516也没有330
+
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 2575#       发表于 2020-3-29 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我觉得没有脑残连体婴冲mea直播间，她们现在还贴贴，连体婴什么时候才能死完
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2576#       发表于 2020-3-29 23:51
+
+
+
+
+没330的话就算有516这会大概也还在贴贴吧，这就是命运啊
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2577#       发表于 2020-3-29 23:56
+
+
+
+
+历史没有如果，不用再幻想现在还在贴贴的可能性了
+
+早在她是个人势，她是企业势的那一刻，贴贴就是被刻上原罪的禁果
+
+无论如何都会走向虚无。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2578#       发表于 2020-3-30 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46887109&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-3-27 01:24</a>
+
+这时候一个很有意思的问题就出现了：330是meaqua重大纪念日吗？
+
+
+大家不妨自己回忆一下，meaqua330直播的最 ...</blockquote>
+今天是meaqua的忌日。
+
+我怀着沉重的心情，
+
+祭扫，
+
+缅怀，
+
+默默离开。
+<img src="https://static.saraba1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">
+
+等到明早贴贴人坟头蹦迪的时候，应该不知道我曾来过吧。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2579#       发表于 2020-3-30 00:01
+
+
+
+ 本帖最后由 SumW5 于 2020-3-30 00:05 编辑 
+
+愿肉猪长寿！阿夸！
+
+
+
+変わらないもの探していた
+
+あの日の君を忘れはしない
+
+時を越えてく思いがある
+
+僕は今すぐ君に会いたい
+
+
+
+单纯的只是歌词而已，没有特别的含义。
+
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2580#       发表于 2020-3-30 00:03
+
+
+
+ 本帖最后由 Ky·Kiske 于 2020-3-30 00:13 编辑 
+
+我呸
+
+怎么收藏里还留着大亏组的肉
+
+
+妈的，全他妈删了先
+
+刚想对着已经算最近的52LOL回下手，就对着封面多看了几眼，手就停下来了
+
+作罢
+
+
+
+
+人生最难的事情，莫过于割离过去的自己
+
+
+
+
+
+
+
+-----
+
+####  cIrcler  
+##### 2581#       发表于 2020-3-30 00:06
+
+
+
+
+本来就走的不同路线，现在不过是沿着既定路线一直走走的足够远，离开了路人的取景框罢了。虽然路人单纯的希望他们远距千里也连在一起，但现实世界没有卡拉。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2582#       发表于 2020-3-30 00:15
+
+
+
+
+看来你楼对meaqua还有留恋的不少
+
+我已经是完全黑化了，黑得透彻
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2583#       发表于 2020-3-30 00:17
+
+
+
+
+贴贴楼和暗黑贴贴楼的共时性<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tatifeishi  
+##### 2584#       发表于 2020-3-30 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">阿门
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2585#       发表于 2020-3-30 00:34
+
+
+
+
+没必要，我反正还是把所有收藏都补回来了，反正“非单人”那个收藏夹我永远不会去看，给她加点收益也是好的。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2586#       发表于 2020-3-30 00:58
+
+
+
+
+贴贴人是魔法少女<img src="https://static.saraba1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">
+
+当时有多少奇迹与希望，现在就有多少绝望与悲叹<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">
+
+心态爆炸就是魔女化<img src="https://static.saraba1st.com/image/smiley/carton2017/091.gif" referrerpolicy="no-referrer">
+
+贴贴人转单推，就像魔法少女走上了杏子的道路<img src="https://static.saraba1st.com/image/smiley/carton2017/095.gif" referrerpolicy="no-referrer">
+
+而你们这帮阴魂不散的暗黑贴贴民，无疑是magius之翼
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2587#       发表于 2020-3-30 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918387&amp;ptid=1914314" target="_blank">mengnvpu 发表于 2020-3-29 23:50</a>
+我觉得没有脑残连体婴冲mea直播间，她们现在还贴贴，连体婴什么时候才能死完 ...</blockquote>
+你不是脑瘫？？？连体婴冲mea直播间和夸不理mea有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2588#       发表于 2020-3-30 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918676&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-3-30 00:58</a>
+贴贴人是魔法少女
+
+当时有多少奇迹与希望，现在就有多少绝望与悲叹
+
+心态爆炸就是魔女化[c:091 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2589#       发表于 2020-3-30 01:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/230.gif" referrerpolicy="no-referrer">
+
+等待令人窒息
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2590#       发表于 2020-3-30 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918676&amp;ptid=1914314" target="_blank">Igarashi 发表于 2020-3-30 00:58</a>
+
+贴贴人是魔法少女
+
+当时有多少奇迹与希望，现在就有多少绝望与悲叹
+
+心态爆炸就是魔女化[c:091 ...</blockquote>
+一个vtb双推纯良贴贴人（你别不信，这种人还真不少）
+
+最终黑化变成了双黑巨魔
+
+
+天哪，这太可怕了，简直是人间惨剧
+
+meaqua，你害了多少人，还要害多少人才够<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2591#       发表于 2020-3-30 01:49
+
+
+
+
+magius之翼是为了解放全部的魔法少女，
+
+暗黑贴贴人也是为了解放贴贴人逃离苦海，
+
+暗黑贴贴人和贴贴人贴贴。<img src="https://static.saraba1st.com/image/smiley/carton2017/091.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2592#       发表于 2020-3-30 01:56
+
+
+
+
+那么meaqua就是QB了。
+
+暗黑贴贴人，是时候站起来领导贴贴人走出心态爆炸的命运了！
+
+NGA就是表面平静底下风起云涌的见泷原，S1就是自由主义极致化的神滨。
+
+应该通知所有贴贴人，“贴贴人只有在S1才能得到解放！”
+
+
+
+
+
+             
