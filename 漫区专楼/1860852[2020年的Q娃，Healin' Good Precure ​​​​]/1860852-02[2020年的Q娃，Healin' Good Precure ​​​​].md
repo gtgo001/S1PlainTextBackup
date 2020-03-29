@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-24 06:00** 
+> ## **本文件最后更新于2020-03-29 12:00** 
 
 
 
@@ -2850,4 +2850,653 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 
 
 
-                                            
+
+
+-----
+
+####  Garterbelt  
+##### 1652#       发表于 2020-3-24 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46851550&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-3-24 05:52</a>
+
+分镜也不如黄大力回</blockquote>
+嗯，单说剧本。不过其实这话的打怪部分也插得挺硬的，幸好打完后无人赛场上的一跳救了一手
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 1653#       发表于 2020-3-25 21:37
+
+
+
+
+这位编的太搞笑了
+
+
+
+
+
+
+-77d1436b3cc65902.jpg
+(66.46 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-25 21:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/25/213603wcccjjnzn8ljjnn8.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1654#       发表于 2020-3-25 22:10
+
+
+
+
+比起去年，感觉今年的主角团更有“贴贴”感
+
+佩吉坦真可爱
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1655#       发表于 2020-3-25 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46872595&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-3-25 21:37</a>
+
+这位编的太搞笑了</blockquote>
+但因为这个人被斑竹查出来IP的确在日本，我的大号因为诬告被关一个月……
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 最低人间肥宅| + 1|太惨了萌翻|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1656#       发表于 2020-3-25 23:22
+
+
+
+
+为什么一出场三连踢，只有grace的没踢出伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，是在摸鱼吗
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1657#       发表于 2020-3-25 23:25
+
+
+
+
+点开这个帖子最后一页，第一眼发现萌翻这个号咋也被封了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1658#       发表于 2020-3-26 00:34
+
+
+
+
+没封号吧
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1659#       发表于 2020-3-26 07:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46837191&amp;ptid=1860852" target="_blank">小倉朝日 发表于 2020-3-22 21:13</a>
+
+病毒出现，搅黄了运动会，最后主角在空场内独自完成比赛
+
+
+这剧本怕是年内要再演一遍 ...</blockquote>
+看来不用了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1660#       发表于 2020-3-26 07:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46873889&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-25 23:19</a>
+
+但因为这个人被斑竹查出来IP的确在日本，我的大号因为诬告被关一个月…… ...</blockquote>
+讲道理，你这不一定是诬告。但还是obey吧
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1661#       发表于 2020-3-26 07:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46873889&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-25 23:19</a>
+
+但因为这个人被斑竹查出来IP的确在日本，我的大号因为诬告被关一个月…… ...</blockquote>
+哈哈哈哈哈哈没想到会是这展开
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1662#       发表于 2020-3-26 11:25
+
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gd2d4do5ejj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1663#       发表于 2020-3-26 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46873889&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-25 23:19</a>
+
+但因为这个人被斑竹查出来IP的确在日本，我的大号因为诬告被关一个月…… ...</blockquote>
+严重怀疑这人是不是用的 **。建议版主 whois 一下这个 IP，如果指向的是住家或手机的 IP 那就确认发帖者人在日本；如果是某大企业或某数据中心，这就有大概率是 ** 了。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1664#       发表于 2020-3-26 13:00
+
+
+
+
+∠( ᐛ 」∠)＿封不了发疫的，难道还封不了你们守序的。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1665#       发表于 2020-3-26 19:09
+
+
+
+
+Q娃连连看终于要停服了？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1666#       发表于 2020-3-26 20:53
+
+
+
+ 本帖最后由 lyflyflxf 于 2020-3-26 20:57 编辑 
+
+今年OP ED专辑有资源了
+
+今年的女人们真朴素
+<img src="https://p.sda1.dev/0/55c8495197b2ead93a923ddce79bd8bf/01.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1667#       发表于 2020-3-26 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46882990&amp;ptid=1860852" target="_blank">HGCG 发表于 2020-3-26 19:09</a>
+Q娃连连看终于要停服了？</blockquote>
+这辣鸡手游终于亡了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1668#       发表于 2020-3-27 00:57
+
+
+
+
+q娃消消乐很垃圾吗？
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 1669#       发表于 2020-3-27 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886975&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-3-27 00:57</a>
+
+q娃消消乐很垃圾吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">其实还可以，就是太难了...别说幼女了，成人都觉得难
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1670#       发表于 2020-3-27 18:26
+
+
+
+
+今天下班，正好和去年应届生的后辈一起走
+
+我跟她说，新冠厉害，不要去人多地地方，休息天窝家里
+
+她问我我休息天干什么，我说我看动画打游戏
+
+她问我看不看鬼灭，我说不看
+
+她很诧异，问我连鬼灭都不看那看什么
+
+我说我看Q娃
+
+她问我我最喜欢哪部、今年喜欢哪个
+
+我说我最喜欢抓心，今年最喜欢粉主的兔子
+
+她说她最喜欢抓心，因为喜欢DOREMI，还说抓心里喜欢玛琳，今年喜欢黄的，因为黄的装扮独树一帜
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1671#       发表于 2020-3-27 22:40
+
+
+
+
+手游现在才亡？
+
+
+
+
+
+
+
+-----
+
+####  天地大撒野  
+##### 1672#       发表于 2020-3-27 22:46
+
+
+
+<blockquote>HGCG+ 发表于 2020-3-27 18:26
+今天下班，正好和去年应届生的后辈一起走
+
+我跟她说，新冠厉害，不要去人多地地方，休息天窝家里
+
+她问我我休 ...</blockquote>
+嗯？这什么酸臭展开
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1673#       发表于 2020-3-28 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886975&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-03-27 00:57:20</a>
+q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1674#       发表于 2020-3-28 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894994&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-27 18:26</a>
+
+今天下班，正好和去年应届生的后辈一起走
+
+我跟她说，新冠厉害，不要去人多地地方，休息天窝家里
+
+她问我我休 ...</blockquote>
+应届生，那很有可能学生时代就在看了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">酸了
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1675#       发表于 2020-3-28 22:48
+
+
+
+
+应届生：姐妹get
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1676#       发表于 2020-3-29 07:44
+
+
+
+ 本帖最后由 HGCG+ 于 2020-3-29 08:10 编辑 
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdag7zeos6j21hc0u04qr.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdag7yfstwj21400minpd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagb28lijj21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+
+“听好了，那条母狗不在的时候我说了算”
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagfw0ep1j21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdagfwzyt7j21400mi4qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdagfyfyg3j21400miu0x.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdaggbg7f9j21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+
+MKTN…… ​​​​
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://t.cn/A6Zc6oIF" id="aimg_lsUNb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+喝水
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagngm1cmj21hc0u0x6p.jpg" referrerpolicy="no-referrer">
+
+
+结果因为黄先变身的缘故，食指又看不到了…
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdagoqu6l0j21400mib2a.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gdagqeldyjj21hc0u0thi.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gdagqevseuj21hc0u0nbv.jpg" referrerpolicy="no-referrer">
+
+
+所以以后会不会和公主那样玩法杖二刀流呢
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdagukcjk5j21400mib2a.jpg" referrerpolicy="no-referrer">
+
+
+
+真好啊
+
+[img]h[http://t.cn/A6Zc6oIs](http://t.cn/A6Zc6oIs)[/img]
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdagwco9nqj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdagwfss32j21400mie82.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1677#       发表于 2020-3-29 08:13
+
+
+
+
+和佳果然团宠
+
+
+怎 四 能 入！
+
+怎 四 能 入！！
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1678#       发表于 2020-3-29 09:20
+
+
+
+
+老古董串珠机又双叒叕拿出来晒晒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1679#       发表于 2020-3-29 09:26
+
+
+
+
+人设真是稳定啊
+<img src="https://p.sda1.dev/0/e067e49110142732f1d73beba9bfa354/9657fdc2.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1680#       发表于 2020-3-29 09:27
+
+
+
+
+どや顔！
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1681#       发表于 2020-3-29 10:29
+
+
+
+ 本帖最后由 lyflyflxf 于 2020-3-29 10:36 编辑 
+
+艺术照×3
+<img src="https://p.sda1.dev/0/fad2de74769e2a2f40d87244a850868c/未标题_全景图3.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/f78b8c3feb66658a8de616a8be1dd389/未标题_全景图2.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/a4e0039bea22caa2116fb695ba3344e4/未标题_全景图1.jpg" referrerpolicy="no-referrer">
+
+
+远景也还不错，怎么正片就那么狰狞<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/b8d802226c284b4ebb095af22b2b91cd/123.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
