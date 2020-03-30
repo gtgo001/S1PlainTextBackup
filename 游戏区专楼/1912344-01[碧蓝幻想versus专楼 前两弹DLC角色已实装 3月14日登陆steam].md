@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-18 14:02** 
+> ## **本文件最后更新于2020-03-30 17:29** 
 
 
 
@@ -8882,4 +8882,513 @@ oneline模式前面5局人机，后面两局匹配，打完出定级。
 
 
 
-                                 
+
+
+-----
+
+####  nagitoY  
+##### 483#       发表于 2020-3-18 19:48
+
+
+
+
+有人说武器皮肤解锁可以靠肝，去武器商店那里买。
+
+是不是rpg模式通关了才能解锁这个功能啊？我在商店那里的武器都没有皮肤的图标啊。
+
+<img src="https://img.saraba1st.com/forum/202003/18/194815ixml55155muuu1cv.png" referrerpolicy="no-referrer">
+
+
+<strong>001.png</strong> (413.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-18 19:48 上传
+
+
+
+
+
+
+如果有皮肤会有这种图标吧
+
+
+
+
+
+
+
+-----
+
+####  1096beam  
+##### 484#       发表于 2020-3-19 22:49
+
+
+
+
+有人和我一样街机模式第5关一定会掉帧拖慢吗？我都搞不懂怎么回事了。
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 485#       发表于 2020-3-20 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46805640&amp;ptid=1912344" target="_blank">1096beam 发表于 2020-3-19 22:49</a>
+
+有人和我一样街机模式第5关一定会掉帧拖慢吗？我都搞不懂怎么回事了。</blockquote>
+额，街机模式和联网无关，排除网络问题。会不会是你电脑配置不行，把特效调低点？
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 486#       发表于 2020-3-20 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46789792&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-3-18 19:48</a>
+
+有人说武器皮肤解锁可以靠肝，去武器商店那里买。
+
+是不是rpg模式通关了才能解锁这个功能啊？我在商店那里的 ...</blockquote>
+武器皮肤记得除了碧哥武器都能商店换出来或者买出来
+
+
+对的右边有人物头像+skin的就是武器皮肤
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 487#       发表于 2020-3-20 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46810564&amp;ptid=1912344" target="_blank">windlikeman 发表于 2020-3-20 12:28</a>
+
+武器皮肤记得除了碧哥武器都能商店换出来或者买出来
+
+
+对的右边有人物头像+skin的就是武器皮肤 ...</blockquote>
+猴，那我去快乐十连了。不用花钱抽个痛快<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 488#       发表于 2020-3-23 17:52
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-23 19:57 编辑 
+
+好吧，看错了
+
+
+
+
+
+
+
+-----
+
+####  solduchamp  
+##### 489#       发表于 2020-3-23 17:57
+
+
+
+
+steam版什么时候更新修复闪退bug和支持垂直同步
+
+
+
+
+
+
+
+-----
+
+####  真实之影  
+##### 490#       发表于 2020-3-23 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我终于打完RPG模式啦
+
+
+开始先打打电脑开始看怎么对战……
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 491#       发表于 2020-3-24 18:19
+
+
+
+[https://weibointl.api.weibo.cn/s ... id=4486063454665786](https://weibointl.api.weibo.cn/share/134268652.html?weibo_id=4486063454665786)
+
+老头pv来了，片尾预告3.31姬塔pv。
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 492#       发表于 2020-3-24 18:30
+
+
+
+
+老头看来是阿比盖尔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  权志龙  
+##### 493#       发表于 2020-3-24 18:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">索利斯这pv看湿了，福原剪片小能手
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 494#       发表于 2020-3-24 18:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈哈哈哈 官推的视频被推特折叠了
+
+
+
+
+
+
+
+-----
+
+####  leader01234  
+##### 495#       发表于 2020-3-24 19:16
+
+
+
+
+这卡键的更新<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，原本开局都按一圈起码能玩，现在防着防着自动破防
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">兰斯洛特4h连打都能因为卡住按不出来，真是服了
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 496#       发表于 2020-3-26 00:39
+
+
+
+
+头一次打赢sss段位的人<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 497#       发表于 2020-3-27 17:07
+
+
+
+
+20万了，这游戏在日本蛮火的。很多职业选手打不了比赛也都来播<img src="https://p.sda1.dev/0/26d3edbcbcdbe873e575de1a739f542c/IMG_347AFD5BED981E4540E401B4DFF973E7.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 498#       发表于 2020-3-27 18:19
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-27 18:29 编辑 
+
+全球20万？…………比doa6差不少，snk女主角那玩意也有30万。估计gbvs最终大概也是30左右？比侍魂还是强很多的。
+
+
+
+
+
+
+
+-----
+
+####  センコウ  
+##### 499#       发表于 2020-3-27 18:37
+
+
+
+ 本帖最后由 センコウ 于 2020-3-27 18:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46894923&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-3-27 18:19</a>
+
+全球20万？…………比doa6差不少，snk女主角那玩意也有30万。估计gbvs最终大概也是30左右？比侍魂还是强很 ...</blockquote>
+单日本国内20w
+多くの皆様にご愛顧いただき、GBVSは本日国内20万本セールスを突破いたしました！ありがとうございます！
+
+
+
+
+
+
+
+-----
+
+####  吉田美和  
+##### 500#       发表于 2020-3-27 20:08
+
+
+
+
+20万很高了，上次首登场IP初动大卖的还是电击文库
+
+
+
+
+
+
+
+-----
+
+####  不应  
+##### 501#       发表于 2020-3-27 20:27
+
+
+
+
+PC版的dlc更新是怎么安排了，想了想pc上面的mod有点香
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 502#       发表于 2020-3-28 15:40
+
+
+
+
+国外应该steam占主流，国内大厅晚上基本稳定30人以上，欧美那边能60+
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 503#       发表于 2020-3-29 15:48
+
+
+
+
+看了这比赛，原来go1是mb出身？
+
+
+
+
+
+
+
+-----
+
+####  大叶饺子  
+##### 504#       发表于 2020-3-29 16:33
+
+
+
+<blockquote>佐伯香織 发表于 2020-3-29 15:48
+看了这比赛，原来go1是mb出身？</blockquote>
+电击文库斗剧冠军，有段时间靠月姬玩家赞助接济，后来打职业就马上不碰了，被那边圈子追着黑。。好像
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 505#       发表于 2020-3-29 18:18
+
+
+
+
+人物还是太少了，打来打去就那几个人<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">不知道第二个季票啥时候公布
+
+
+
+
+
+
+
+-----
+
+####  烟花缭乱  
+##### 506#       发表于 2020-3-30 15:09
+
+
+
+
+有个问题，关掉自动保存录像后怎么手动存？对战结算界面只有再战和退出
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 507#       发表于 2020-3-30 15:44
+
+
+
+<img src="https://p.sda1.dev/0/f4ef60d0e5454ef6efd204f88e4ead89/bili_v_d_1585553843238.gif" referrerpolicy="no-referrer">
+真的恐怖
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 508#       发表于 2020-3-30 16:07
+
+
+
+
+偷跑了<img src="https://p.sda1.dev/0/174c8ce3ed372330ebfe970aa0b66b25/IMG_AFABC6C81760511C8300C3825E4C1A34.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 509#       发表于 2020-3-30 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46923317&amp;ptid=1912344" target="_blank">烟花缭乱 发表于 2020-3-30 15:09</a>
+
+有个问题，关掉自动保存录像后怎么手动存？对战结算界面只有再战和退出</blockquote>
+方块三角一个是存录像一个是分数细表 哪个对应哪个记不大清了
+
+
+
+
+
+
+
+-----
+
+####  烟花缭乱  
+##### 510#       发表于 2020-3-30 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46924233&amp;ptid=1912344" target="_blank">windlikeman 发表于 2020-3-30 16:30</a>
+
+方块三角一个是存录像一个是分数细表 哪个对应哪个记不大清了</blockquote>
+……我是键盘
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 511#       发表于 2020-3-30 17:22
+
+
+
+
+吉他好棒，已经射了
+
+
+
+
+
+                                
