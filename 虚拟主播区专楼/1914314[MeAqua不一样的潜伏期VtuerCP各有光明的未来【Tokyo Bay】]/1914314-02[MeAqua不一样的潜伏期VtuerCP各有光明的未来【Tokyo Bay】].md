@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-30 14:03** 
+> ## **本文件最后更新于2020-03-30 22:04** 
 
 
 
@@ -20684,7 +20684,7 @@ NGA就是表面平静底下风起云涌的见泷原，S1就是自由主义极致
 
 
 好.png
-(36.39 KB, 下载次数: 1)
+(36.39 KB, 下载次数: 2)
 
 
 
@@ -20897,30 +20897,9 @@ syl
 
 
 
- 本帖最后由 SumW5 于 2020-3-30 13:41 编辑 
+ 本帖最后由 SumW5 于 2020-3-30 14:24 编辑 
 
-来了来了，没有糖就自己造吧！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-meaqua贴贴岂是如此不便之物
-
-
-
-
-<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
-
-
-
-二创—塑料葵的约定，催人泪下！.mp3
-
-
-2020-3-30 13:41 上传
-点击文件名下载附件
-
-
-
-
-271.41 KB, 下载次数: 3
+编辑
 
 
 
@@ -20928,8 +20907,545 @@ meaqua贴贴岂是如此不便之物
 
 
 
+-----
+
+####  2111X  
+##### 2615#       发表于 2020-3-30 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46922308&amp;ptid=1914314" target="_blank">小博禹 发表于 2020-3-30 13:24</a>
+
+别塑料向日葵了，夸哥现在的直播我还看的挺开心的
+
+
+不过她再来贴贴的话还是先死个亲妈吧 ...</blockquote>
+大亏直播的看点在哪？真心求问
 
 
 
 
-            
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2616#       发表于 2020-3-30 15:46
+
+
+
+
+有点火 药味了，要回归本楼的初心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2617#       发表于 2020-3-30 16:14
+
+
+
+
+她不玩尬的的时候我觉得还行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2618#       发表于 2020-3-30 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46923533&amp;ptid=1914314" target="_blank">2111X 发表于 2020-3-30 15:27</a>
+大亏直播的看点在哪？真心求问</blockquote>
+没想过这个问题诶
+
+看个直播还要考虑这么多吗<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2619#       发表于 2020-3-30 16:21
+
+
+
+ 本帖最后由 Dualist彩 于 2020-3-30 16:27 编辑 
+
+什么群体能在5岁弱智身上找乐子看不用多说了吧
+
+
+找不到看点可以研究能找到看点的人啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 2620#       发表于 2020-3-30 16:22
+
+
+
+ 本帖最后由 meatybobby 于 2020-3-30 16:24 编辑 
+
+夸哥不就是王道系嗎
+
+聲音好聽 玩遊戲的效果也有 唱歌不翻車時也是聽得下去
+
+以大眾口味來說接受度挺高的吧
+
+
+
+尤其管人界越傻越紅 五歲兒rp也是很吃香
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2621#       发表于 2020-3-30 16:26
+
+
+
+
+当初刚开始玩人工智障梗的时候谁也没想到会有今天、
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2622#       发表于 2020-3-30 16:33
+
+
+
+
+不是， 管人界不是粉丝经济吗？还真的有人认真讨论直播好不好看? <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 2623#       发表于 2020-3-30 16:38
+
+
+
+
+一个走王道,一个走邪道
+
+
+有点像游戏里面的出装,对游戏的理解
+
+
+最后能赢比赛就行了
+
+
+
+
+
+
+
+-----
+
+####  Milarvoz  
+##### 2624#       发表于 2020-3-30 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46924333&amp;ptid=1914314" target="_blank">追风小星星 发表于 2020-3-30 16:38</a>
+一个走王道,一个走邪道
+
+
+有点像游戏里面的出装,对游戏的理解</blockquote>
+怎么有风云决的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  jesperliu  
+##### 2625#       发表于 2020-3-30 18:52
+
+
+
+
+夸哥应是霸道，以诈术取天下
+
+露皇才是王道，弘毅宽厚，居义俟命以得天下
+
+至于咩咩，时数然也，应对得法不失为富家翁
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 2626#       发表于 2020-3-30 20:01
+
+
+
+
+今天是线下贴贴一周年，mea搞没了收益化，阿夸直播被AIgank，恰罗毕业，大家都有光明的未来
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2627#       发表于 2020-3-30 20:12
+
+
+
+
+呐，这就是你们要的330
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2628#       发表于 2020-3-30 20:20
+
+
+
+
+双推属实不行，你们根本不喜欢大亏<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2629#       发表于 2020-3-30 20:44
+
+
+
+
+“喔嘶~喔嘶~听说你的收益化被回收了呀？”
+
+
+\贴贴！/\贴贴！/
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2630#       发表于 2020-3-30 20:46
+
+
+
+
+整挺好，330牛逼
+
+
+
+
+
+
+
+-----
+
+####  赫罗酱的胖次  
+##### 2631#       发表于 2020-3-30 20:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">330牛逼
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2632#       发表于 2020-3-30 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2633#       发表于 2020-3-30 20:57
+
+
+
+
+草，对上了，对上了，tyaro毕业，mea收益化丢失，夸皇复仇十年未晚，夸皇，你好强大
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2634#       发表于 2020-3-30 21:15
+
+
+
+
+唐突发泄还行，经典生活不如意？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2635#       发表于 2020-3-30 21:20
+
+
+
+ 本帖最后由 头顶排球 于 2020-3-30 21:31 编辑 
+
+哥们你别搞我啊，我还不想被打成夸anti呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+要不你等我回学校整个新手机号，整完你再想咋整咋整<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2636#       发表于 2020-3-30 21:22
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-3-30 21:42 编辑 
+
+这儿还有贴贴人吗
+
+
+我给你们指一条明路
+
+去这里-&gt;[https://bbs.saraba1st.com/2b/thread-1915034-1-1.html](https://bbs.saraba1st.com/2b/thread-1915034-1-1.html)
+
+为mea诚心求一套复活甲
+
+
+
+
+
+
+
+-----
+
+####  惘时之轮  
+##### 2637#       发表于 2020-3-30 21:23
+
+
+
+
+脑瘫玩意来说脑瘫话了，要不您一起陪个葬？
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2638#       发表于 2020-3-30 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望轮宝夸宝的母亲可以在同一个炉子里火化
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 离魂仙|-2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2639#       发表于 2020-3-30 21:49
+
+
+
+
+这就是 link list? <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2640#       发表于 2020-3-30 21:53
+
+
+
+ 本帖最后由 noaki 于 2020-3-30 21:59 编辑 
+
+[https://live.bilibili.com/198936 ... 747E9&amp;ts=1585576292](https://live.bilibili.com/1989360?share_source=copy_link&amp;share_medium=ipad&amp;bbid=Z5471F5AF8E4033249E481D63E719D2747E9&amp;ts=1585576292)
+
+
+你们可真行，实在没事干可以来看看这个，
+
+（330已经回味完了兴许还能赶上个咖啡厅）
+
+
+
+
+
+……说不定就疯得更厉害了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2641#       发表于 2020-3-30 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46927727&amp;ptid=1914314" target="_blank">noaki 发表于 2020-3-30 21:53</a>
+
+https://live.bilibili.com/198936 ... 747E9&amp;ts=1585576292
+
+
+你们可真行，实在没事干可以来看看这个</blockquote>
+好！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           
