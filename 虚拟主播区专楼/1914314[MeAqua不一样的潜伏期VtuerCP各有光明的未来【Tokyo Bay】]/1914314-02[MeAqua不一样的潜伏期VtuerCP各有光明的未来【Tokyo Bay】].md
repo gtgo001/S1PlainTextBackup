@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-30 22:04** 
+> ## **本文件最后更新于2020-03-31 02:05** 
 
 
 
@@ -21286,6 +21286,25 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 离魂仙|-2|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -21448,4 +21467,701 @@ https://live.bilibili.com/198936 ... 747E9&amp;ts=1585576292
 
 
 
-           
+
+
+-----
+
+####  SumW5  
+##### 2642#       发表于 2020-3-30 22:05
+
+
+
+
+数字对于阿夸来说确实不高
+
+做慈善罢了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+126.png
+(11.89 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-3-30 22:04 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202003/30/220457gxoqklh9u4xgkchh.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2643#       发表于 2020-3-30 22:26
+
+
+
+
+clay这个精神分裂给我整笑了
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2644#       发表于 2020-3-30 22:37
+
+
+
+
+可别精神分裂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在没空搭理其他管人和管人粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+啊，以后也没空。
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2645#       发表于 2020-3-30 22:40
+
+
+
+
+去330观影会看了一会，其实还是挺好看的
+
+mea本身属于擅长抛话题的，而aqua又很会接话题，mea还能做下吐槽役，观感还是很舒适的
+
+
+这种没有长辈代沟感的杂谈，有点怀念……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2646#       发表于 2020-3-30 22:50
+
+
+
+
+咩兔杂谈才是世界第一好吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2647#       发表于 2020-3-30 22:52
+
+
+
+
+那场咩兔的突击杂谈是真的好，温馨的不行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 2648#       发表于 2020-3-30 22:52
+
+
+
+
+咩缪天下第一<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 2649#       发表于 2020-3-30 22:56
+
+
+
+
+330观影会还行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2650#       发表于 2020-3-30 23:01
+
+
+
+
+希望夸宝和404傻批工作人员一同下地狱，呜呜
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 言艮| + 1|欢乐多|
+| 离魂仙|-2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2651#       发表于 2020-3-30 23:08
+
+
+
+
+愿aqua，贴杂和我同坠无间。
+
+
+
+
+
+
+
+-----
+
+####  jesperliu  
+##### 2652#       发表于 2020-3-30 23:12
+
+
+
+
+周公恐惧流言日，王莽恭谦未篡时
+阿夸和贴○们真是患难见真情的好朋友<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 2653#       发表于 2020-3-30 23:13
+
+
+
+
+那场咩兔杂谈我也喜欢……
+
+
+但是黄兔子果然还是“妈妈”这种角色啊
+
+
+之前和BFM、犬山（未姨化）时候的没有高低差的平等交流也很怀念<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2654#       发表于 2020-3-30 23:20
+
+
+
+
+批话少说点，该动起来的时候还搁这开团怕不是嫌帮忙的人太多
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2655#       发表于 2020-3-30 23:55
+
+
+
+
+丢图跑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202003/30/235346qnjiwft3ixite6t3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EUTYsp8UwAAJG4H.jpg</strong> (167.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-30 23:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2656#       发表于 2020-3-31 00:29
+
+
+
+ 本帖最后由 Sutegoro 于 2020-3-31 00:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46928452&amp;ptid=1914314" target="_blank">头顶排球 发表于 2020-3-30 23:01</a>
+
+希望夸宝和404傻批工作人员一同下地狱，呜呜</blockquote>按lpl的习俗，这个时候该刷一句舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2657#       发表于 2020-3-31 00:37
+
+
+
+
+这就是前咩组的人么。难受，宁愿考不上研的是我
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2658#       发表于 2020-3-31 00:39
+
+
+
+
+现在用这号的人不是咩组的了，少想着顺劈其他人<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2659#       发表于 2020-3-31 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929339&amp;ptid=1914314" target="_blank">crawarb 发表于 2020-3-31 00:37</a>
+这就是前咩组的人么。难受，宁愿考不上研的是我</blockquote>
+不是，他被夺舍了，这个号是他借来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+clay你又背锅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2660#       发表于 2020-3-31 00:42
+
+
+
+
+这个号现在是假面骑士w
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2661#       发表于 2020-3-31 00:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2662#       发表于 2020-3-31 00:44
+
+
+
+
+妈的受不了你们这些灵魂乱窜的，分不清
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2663#       发表于 2020-3-31 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929351&amp;ptid=1914314" target="_blank">惑星 发表于 2020-3-31 00:40</a>
+
+不是，他被夺舍了，这个号是他借来的
+
+clay你又背锅了</blockquote>
+真的服了，想骂人借谁号不行，自己咒人死还把我解释的回复给编辑了。吐了。
+
+这下前官组棉花糖管理人有一个是夸anti的铁证了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2664#       发表于 2020-3-31 00:51
+
+
+
+
+去年现在咩宝口嗨，天狗四处解释道歉辟谣。
+
+今年现在咩宝小心翼翼，天狗还在四处引战带节奏，巴不得把尽可能多的路人推向anti.
+
+人是怎么变成了鬼
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2665#       发表于 2020-3-31 00:53
+
+
+
+
+没事，会视奸这边的都知道clay是正常人
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2666#       发表于 2020-3-31 00:54
+
+
+
+
+只不过是从早期v⭕️壬变成了晚期v⭕️壬而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2667#       发表于 2020-3-31 00:55
+
+
+
+
+咩组可以有mea anti，为什么不可以有夸anti呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2668#       发表于 2020-3-31 00:59
+
+
+
+
+她有小心翼翼过吗
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2669#       发表于 2020-3-31 01:00
+
+
+
+ 本帖最后由 草牛 于 2020-3-31 01:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可人们都说不喜欢去年的天狗
+总之咒死血量减半还要买解咒石，不太好，轻易不要咒死
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2670#       发表于 2020-3-31 01:02
+
+
+
+
+不是可不可以，而是实际上是不是的问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为被误会，我这不就又被嘲讽了一次没考上研吗，虽然无关痛痒，但是还是别受这种无妄之灾比较好。
+
+
+M楼发了专栏链接了，这个号最后在这边发言了，今天和之后这个账号的所有言论，不再由clay背锅了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2671#       发表于 2020-3-31 01:04
+
+
+
+
+楼上不是说不是clay了吗，这人也是咩组的？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2672#       发表于 2020-3-31 01:05
+
+
+
+
+2663楼和2670楼应该是clay，以后就不是了
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 2673#       发表于 2020-3-31 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929427&amp;ptid=1914314" target="_blank">草牛 发表于 2020-3-31 01:00</a>
+
+可人们都说不喜欢去年的天狗
+
+总之咒死血量减半还要买解咒石，不太好，轻易不要咒死 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2674#       发表于 2020-3-31 01:10
+
+
+
+
+这精分人看晕了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2675#       发表于 2020-3-31 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929452&amp;ptid=1914314" target="_blank">Sutegoro 发表于 2020-3-31 01:09</a>
+咒死不好是不好在成功率低，咒考不上，咒收益回收，咒ban推特就好了，这个能成功 ...</blockquote>
+草，你说这个咒死……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头顶排球  
+##### 2676#       发表于 2020-3-31 01:29
+
+
+
+
+没看懂的人看下，今天和昨天的贴子，clay（本人)发的是M楼的14581、14587、14631、14688、14758楼和这里的2585、2644、2658、2663、2670楼
+
+其中还有2635楼的后来编辑是我编辑的，最后还有M楼14675楼的左右互搏。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+以后本人不再对此号任何言论负责，以上。
+
+
+md，要整专栏就够忙的了，还tm给我添乱，真是吐了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+          
