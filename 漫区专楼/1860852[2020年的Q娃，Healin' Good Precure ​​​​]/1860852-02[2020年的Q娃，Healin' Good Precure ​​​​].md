@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-29 12:00** 
+> ## **本文件最后更新于2020-03-30 08:00** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_lsUNb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_d977Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -3499,4 +3499,619 @@ MKTN…… ​​​​
 
 
 
-                                           
+
+
+-----
+
+####  杂灰  
+##### 1682#       发表于 2020-3-29 12:57
+
+
+
+
+仿佛没来得及实装的手游卡面
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1683#       发表于 2020-3-29 13:38
+
+
+
+
+十年了，串珠机幼女玩不腻吗？
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 1684#       发表于 2020-3-29 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46912459&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-3-29 13:38</a>
+
+十年了，串珠机幼女玩不腻吗？</blockquote>
+幼女一批又一批
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1685#       发表于 2020-3-29 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46912459&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-3-29 13:38</a>
+
+十年了，串珠机幼女玩不腻吗？</blockquote>
+就像每天都有人在买GTA5一样（
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1686#       发表于 2020-3-29 15:48
+
+
+
+ 本帖最后由 最强惠酱 于 2020-3-29 16:21 编辑 
+
+蓝女人笑
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1687#       发表于 2020-3-29 19:05
+
+
+
+
+开场抖音艹<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1688#       发表于 2020-3-29 19:05
+
+
+
+
+虽然这集剧情比较简单但不少细节还是挺好玩的，虽说是日向的个人回但三人之间的互动也很丰富，这样保持下去的话也不错
+
+三人快步走那里总觉得有些喜感，仔细一看原来是知优的小碎步……
+
+抢衣服那里，看得我满脑子只有四个字“不要聚集”……
+
+还有串珠机是不是要万年推销下去了
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1689#       发表于 2020-3-29 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">今年的q娃太棒了，追番体验一级棒，之前还在嫌战斗太少，黄战士太吵。现在日常和战斗的平衡做得越来越棒
+
+至于黄战士。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诶呀妈呀，还真是女朋友
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1690#       发表于 2020-3-29 19:11
+
+
+
+
+今年的优点就是三人三兽的性格细节一直拿捏的很好，而且没有厚此薄彼
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1691#       发表于 2020-3-29 19:22
+
+
+
+
+今年Q娃的兔子，怀疑要是今后没有遇到爱情的话，老了就是个蓉嬷嬷……
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1692#       发表于 2020-3-29 19:23
+
+
+
+
+日向真容易被攻略啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/b02d3df779084717285341e995877a9c/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/808a906a04774b78046dff8ae0d0aaa6/23.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1693#       发表于 2020-3-29 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起来第一集里，第一个和nodoka相遇的主要角色就是日向，钦定了
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1694#       发表于 2020-3-29 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46915642&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-3-29 19:38</a>
+
+想起来第一集里，第一个和nodoka相遇的主要角色就是日向，钦定了</blockquote>
+日向是一撞定终生
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1695#       发表于 2020-3-29 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46915381&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-3-29 19:10</a>
+
+今年的q娃太棒了，追番体验一级棒，之前还在嫌战斗太少，黄战士太吵。现在日常和战斗的平衡做得越来 ...</blockquote>
+如果日常质量能保持在高水准我真不在于战斗部分速战速决bank糊脸
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1696#       发表于 2020-3-29 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46915504&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-29 19:22</a>
+
+今年Q娃的兔子，怀疑要是今后没有遇到爱情的话，老了就是个蓉嬷嬷……</blockquote>
+那么谁是小燕子呢？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1697#       发表于 2020-3-29 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46915697&amp;ptid=1860852" target="_blank">風駿 发表于 2020-3-29 19:44</a>
+
+如果日常质量能保持在高水准我真不在于战斗部分速战速决bank糊脸</blockquote>
+关键这几集不仅日常没糊弄人，保持分量充足的打斗同时还同时在推动三人的关系，我觉得今年处理得太妙了，q娃入坑晚，同步追也就是从去年开始，和去年完全不是一个层次的q娃
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1698#       发表于 2020-3-29 21:58
+
+
+
+
+串珠机卖了多少年了……玩具设计师能不能用心点啊！<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+日向的性格还是很怪啊，只要犯错就马上丧失斗志变颓废，反应过于戏剧化有点出戏
+
+今年的淫兽真有意思，强迫症大姐头兔子，毫无疑问是未来治愈动物的第二把交椅；心理卑微地位最低企鹅对大姐头唯命是从，绝配啊！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+这集全员脸红怪，贴贴感更足了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">。不过听说香川纯子之前都是写bg回的，还是摆正心态为好
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 1699#       发表于 2020-3-29 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46915818&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-03-29 19:56:21</a>
+关键这几集不仅日常没糊弄人，保持分量充足的打斗同时还同时在推动三人的关系，我觉得今年处理得太妙了， ...</blockquote>星Q在历代Q娃都算水的啊，剧情毫无波澜，不过剧场版倒是好看
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 1700#       发表于 2020-3-29 22:02
+
+
+
+
+今年的Q娃就和名字一样，很治愈人，剧情不算波澜起伏，但就是看的人很舒服，演出节奏剧情都让人很舒服，追番体验反正挺不错的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1701#       发表于 2020-3-29 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917051&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-29 21:58</a>
+
+串珠机卖了多少年了……玩具设计师能不能用心点啊！
+
+日向的性格还是很怪啊，只要犯错就马上丧失斗志 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无印里淫兽搞恋爱你真的受得了吗
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1702#       发表于 2020-3-29 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917090&amp;ptid=1860852" target="_blank">阿姆罗二世 发表于 2020-3-29 22:00</a>
+
+星Q在历代Q娃都算水的啊，剧情毫无波澜，不过剧场版倒是好看
+
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是的，在我心里和甜品一起在最低一档
+
+
+
+
+
+
+
+-----
+
+####  chentry  
+##### 1703#       发表于 2020-3-29 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917051&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-29 21:58</a>
+
+串珠机卖了多少年了……玩具设计师能不能用心点啊！
+
+日向的性格还是很怪啊，只要犯错就马上丧失斗志 ...</blockquote>
+这集脚本伊藤睦美可是Q娃片场出名的小姑娘恋爱专家了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1704#       发表于 2020-3-29 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917178&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-3-29 22:09</a>
+
+无印里淫兽搞恋爱你真的受得了吗</blockquote>
+无印也好，ss也好，里面的淫兽谈恋爱不讨喜是因为他们本身就不讨喜啊
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1705#       发表于 2020-3-29 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917439&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-29 22:32</a>
+
+无印也好，ss也好，里面的淫兽谈恋爱不讨喜是因为他们本身就不讨喜啊</blockquote>
+我是很喜欢初代的两个初始淫兽的
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 1706#       发表于 2020-3-29 22:59
+
+
+
+
+这话前面几处挺有意思
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1707#       发表于 2020-3-29 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917439&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-29 22:32</a>
+
+无印也好，ss也好，里面的淫兽谈恋爱不讨喜是因为他们本身就不讨喜啊</blockquote>
+小关那只我还挺喜欢的，后面新淫兽来了母的那只榜样也树立起来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可时不时乱丢狗粮我真的不适应啊喂
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1708#       发表于 2020-3-30 00:23
+
+
+
+ 本帖最后由 xingenge 于 2020-3-30 00:25 编辑 
+
+开头日向在因为和佳养伤没拍照而道歉后，说“说起来”的时候
+
+知优有个小表情，说明她已经很了解日向了嘛
+
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1gdb9fh06ykj21hc0u0h2t.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1gdb9fgqimgj21hc0u01ab.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 1709#       发表于 2020-3-30 00:25
+
+
+
+
+奶Q真好啊
+
+已经接近五分之一了好像还没有一集拉胯过
+
+但是我已经不敢往后奶了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1710#       发表于 2020-3-30 00:41
+
+
+
+
+说女朋友的 粉黄之前都没成过吧 最接近是抓心？ 汁波密喜欢过男装会长  公主开始春春和闪亮亮有过几集 再来奸笑大凶颜和小天使有人站cp 几个都很微妙啊 
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1711#       发表于 2020-3-30 07:17
+
+
+
+
+最大的不安要素还是因为疫情强行改剧本……
+
+
+
+
+
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 1712#       发表于 2020-3-30 07:23
+
+
+
+
+疫情改剧本的话就是反派不洗白全部死光光？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1713#       发表于 2020-3-30 07:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919066&amp;ptid=1860852" target="_blank">哒哒哒ver1.01 发表于 2020-3-30 07:23</a>
+疫情改剧本的话就是反派不洗白全部死光光？</blockquote>
+这没问题啊，正统无印味
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1714#       发表于 2020-3-30 07:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919066&amp;ptid=1860852" target="_blank">哒哒哒ver1.01 发表于 2020-3-30 07:23</a>
+
+疫情改剧本的话就是反派不洗白全部死光光？</blockquote>
+可能会提前解决以“病原菌”为原形的反派，换上和疾病八杆子打不着的新敌人
+
+然后风格会更轻松搞笑
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1715#       发表于 2020-3-30 07:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919075&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-30 07:32</a>
+
+可能会提前解决以“病原菌”为原形的反派，换上和疾病八杆子打不着的新敌人
+
+然后风格会更轻松搞笑 ...</blockquote>
+干部想更换没那么简单毕竟需要新人设新CV，三干部只有女干部对BOSS是恋爱脑另外两个都不怎么当回事。如果把这些当做伏笔，往简单的脑洞下，到现在BOSS距离露脸还早，而且还没身体，早早收拾掉改环保题材与大主题并不违背，三干部另有主子也可以理解，以后打的是污染而非病毒，这样或许可以在不动大方向的前提下改变路线。
+
+
+
+
+
+                                          
