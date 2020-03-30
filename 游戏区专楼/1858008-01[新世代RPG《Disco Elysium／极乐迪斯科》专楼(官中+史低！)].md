@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-29 14:03** 
+> ## **本文件最后更新于2020-03-30 10:11** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_dw68S" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_p3zYm" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -21682,10 +21682,11 @@ okay
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| WA2ST| + 1|这个可以有|
 | 最好不说| + 1|压力马斯内|
 | zongrumk2| + 1|太媚宅了！但我喜欢|
 
@@ -22774,4 +22775,601 @@ homosexual slot怎么才能获得。
 
 
 
-           
+
+
+-----
+
+####  威爾第晚禱  
+##### 1144#       发表于 2020-3-29 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46904462&amp;ptid=1858008" target="_blank">就是剑鞘 发表于 2020-3-28 16:57</a>
+
+你说的是Homo-Sexual Underground这个思维还是啥？思维的话要和抽烟小哥相遇以后，再去褴褛飞旋一楼找他 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">Harry太难了，真就没人在意没人爱的卑微公务员。
+
+
+
+
+
+
+
+-----
+
+####  紫毛母猩猩  
+##### 1145#       发表于 2020-3-29 14:33
+
+
+
+
+通关了
+我果然是个不折不扣的马克思主义者<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1146#       发表于 2020-3-29 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46912791&amp;ptid=1858008" target="_blank">威爾第晚禱 发表于 2020-03-29 14:17:40</a>
+Harry太难了，真就没人在意没人爱的卑微公务员。</blockquote>其实吧，不说小金，你的搭档和同事心里真的是有你的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+是哈利先混蛋的，真要说的话……果然还是女人的错，真男人不需要妹子<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bwsusaga  
+##### 1147#       发表于 2020-3-29 16:24
+
+
+
+
+第一天玩到晚上，确实很上头，但睡觉的地方没着落怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 1148#       发表于 2020-3-29 16:28
+
+
+
+
+通关了，结束得好突然，到最后也没整明白坤诺什么毛病。
+另外好像遇到一个bug，可能是因为我先接了任务再遇到的骰子匠人，没办法把诅咒的事情告诉她。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1149#       发表于 2020-3-29 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46913836&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-3-29 16:24</a>
+
+第一天玩到晚上，确实很上头，但睡觉的地方没着落怎么办啊</blockquote>
+这个不好透，透了就没那感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  boom33  
+##### 1150#       发表于 2020-3-29 16:42
+
+
+
+
+有一张好像是天赋树还是什么的界面挺不可名状的，这游戏有克要素吗？
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 1151#       发表于 2020-3-29 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46914008&amp;ptid=1858008" target="_blank">boom33 发表于 2020-3-29 16:42</a>
+有一张好像是天赋树还是什么的界面挺不可名状的，这游戏有克要素吗？</blockquote>
+有一点，但是没什么恐怖的，我甚至想和竹节虫多说说话<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pipaopo  
+##### 1152#       发表于 2020-3-29 18:10
+
+
+
+
+为什么要把共产主义翻译成康米啊，明明法西斯就是法西斯
+
+
+
+
+
+
+
+-----
+
+####  fkinway  
+##### 1153#       发表于 2020-3-29 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46912791&amp;ptid=1858008" target="_blank">威爾第晚禱 发表于 2020-3-29 14:17</a>
+Harry太难了，真就没人在意没人爱的卑微公务员。</blockquote>
+同事对你多好。其实那个女巡警挺好看的，就是前女友声音太好听了。
+我玩的时候一直担心分手原因是酗酒家暴，结果知道不是，原因在这个资本主义小妞身上时就轻松许多
+到结局的时候一扫阴沉颓废的气氛，连回忆ex时都是向上的，竹节虫真赞
+
+
+
+
+
+
+
+-----
+
+####  JulieHagiwara  
+##### 1154#       发表于 2020-3-29 21:45
+
+
+
+
+屠杀有没有完全避免死亡的办法？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实在不想让他们死。
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 1155#       发表于 2020-3-29 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46916914&amp;ptid=1858008" target="_blank">JulieHagiwara 发表于 2020-3-29 21:45</a>
+
+屠杀有没有完全避免死亡的办法？实在不想让他们死。</blockquote>
+最好的结果是死工会3个 雇佣兵3个
+
+
+
+
+
+
+
+-----
+
+####  JulieHagiwara  
+##### 1156#       发表于 2020-3-29 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46916924&amp;ptid=1858008" target="_blank">tama_chan 发表于 2020-3-29 21:46</a>
+
+最好的结果是死工会3个 雇佣兵3个</blockquote>
+怎么样都避免不了，那也太难过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bwsusaga  
+##### 1157#       发表于 2020-3-29 22:23
+
+
+
+
+才玩到第二天，那个手写信的就是EX嘛，读她信都能读死我一次<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer"> 中年男玻璃心伤不起
+
+
+还是金最好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古凌锋  
+##### 1158#       发表于 2020-3-29 22:23
+
+
+
+
+说起来两颗**打到结局也只用了一个，还有个**有啥用
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1159#       发表于 2020-3-29 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917324&amp;ptid=1858008" target="_blank">古凌锋 发表于 2020-03-29 22:23:31</a>
+说起来两颗**打到结局也只用了一个，还有个**有啥用</blockquote>没用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你甚至连腔都不用，领带君的演出可比那玩意精彩感人多了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  風卷豹  
+##### 1160#       发表于 2020-3-30 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46913836&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-3-29 16:24</a>
+第一天玩到晚上，确实很上头，但睡觉的地方没着落怎么办啊</blockquote>
+在外打拼，没钱了当然是找兄弟或者女人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+再不济找个大老板
+
+—— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1161#       发表于 2020-3-30 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917324&amp;ptid=1858008" target="_blank">古凌锋 发表于 2020-3-29 22:23</a>
+
+说起来两颗**打到结局也只用了一个，还有个**有啥用</blockquote>
+理论上说两颗**，一颗你自己打，另一颗是你扑街，kim急救，paule试图偷袭你递**过去给kim打第二发
+
+
+
+
+
+
+
+-----
+
+####  Doctor.S  
+##### 1162#       发表于 2020-3-30 00:08
+
+
+
+
+第一天没钱不要紧
+第二天还没钱就能见到除了血量归零和士气归零以外的第三种失败方式：永远的凌晨两点
+
+
+
+
+
+
+
+-----
+
+####  eblis2  
+##### 1163#       发表于 2020-3-30 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46917322&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-3-29 22:23</a>
+
+才玩到第二天，那个手写信的就是EX嘛，读她信都能读死我一次 中年男玻璃心伤不起
+
+
+还是金最好了[f:0 ...</blockquote>
+去海边公用电话亭打电话。一直打。
+
+当时我是没事干夜里打的。
+
+打到最后，只觉得哈利太惨了
+
+
+
+
+
+
+
+-----
+
+####  wd54w8  
+##### 1164#       发表于 2020-3-30 00:28
+
+
+
+
+话说有没有人研究过街灯怎么买，这游戏真能赚700块钱？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1165#       发表于 2020-3-30 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918585&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-30 00:28</a>
+
+话说有没有人研究过街灯怎么买，这游戏真能赚700块钱？
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+能
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1166#       发表于 2020-3-30 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46913868&amp;ptid=1858008" target="_blank">沈经文 发表于 2020-3-29 16:28</a>
+通关了，结束得好突然，到最后也没整明白坤诺什么毛病。
+另外好像遇到一个bug，可能是因为我先接了任务再遇 ...</blockquote>
+一开始就告诉你他嗑药了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过他还不算疯，真疯的是那个女孩坤尼斯，他前面那么欠有一半是因为不敢违抗坤尼斯
+
+
+
+
+
+
+
+-----
+
+####  西瓜不甜不甜  
+##### 1167#       发表于 2020-3-30 01:16
+
+
+
+
+
+【剧透警告】【剧透警告】【剧透警告】【剧透警告】
+
+。
+
+。
+
+。
+
+。
+
+。
+
+。
+
+。
+
+。
+
+。
+
+理智派，我的档是金受伤，然后坤诺跟着我走，跟警官对峙的时候坤诺还疯狂帮我，最后把他给招进警局了。
+
+结尾结束的好突然，骷髅头辛迪没后续，我没找到刷子，墙壁还没刷，在岛上拿了烟头可旅店门口的油漆也还没点燃，在岛上遇见竹节虫也没法告诉那对夫妇，坤诺旁边的小女孩也没后续，工会那个胖子也没后续，野松公司的女代表也没后续。
+
+我把露比、卡拉婕都放了，只让不良青年开夜店没让他们开制毒厂，还帮旅馆老板修好了砸坏的鸟。
+
+整个流程下来，印象最深刻的大概
+
+①飞碟褴褛唱歌
+
+②在诅咒商业区里见到那个骰子匠师，在黑暗的房间里探索了大半天，遇见那样悲伤但挣扎的人，再配上又绝望有充满希望的bgm。。
+
+③跟三个雇佣兵对峙，演出太棒了。
+
+
+自以为探索了大部分内容，回头看成就24个只完成了11个。。甚至没有取得金的信任，我明明对他这么好。
+
+应该得要个2周目，但暂时没有动力了，请问哪里有比较完全的攻略和游戏剧情的梳理，真的意犹未尽。
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 1168#       发表于 2020-3-30 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918668&amp;ptid=1858008" target="_blank">哈尔摩尼亚N 发表于 2020-3-30 00:55</a>
+
+一开始就告诉你他嗑药了啊
+
+不过他还不算疯，真疯的是那个女孩坤尼斯，他前面那么欠有一半是因为不 ...</blockquote>
+嗑药这个我知道。
+
+这不是有个任务要弄明白他怎么了嘛，那个检定我一直是个位数成功率<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">还以为会有剧情推动加成功率。
+
+第一次碰到**战的时候没救到金，发现是他来照顾我，是不是就正常了？不过后来我读档把金救了没继续。
+
+每次碰到他都要听他大声bb是真的烦，不是一般的暴躁。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1169#       发表于 2020-3-30 02:21
+
+
+
+
+金知道肛珠在体内是没声音的<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1170#       发表于 2020-3-30 09:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918730&amp;ptid=1858008" target="_blank">西瓜不甜不甜 发表于 2020-3-30 01:16</a>
+
+【剧透警告】【剧透警告】【剧透警告】【剧透警告】
+
+。
+
+。</blockquote>
+刷子就是找骷髅头辛迪拿的。应该是拿了燃油后回去对话过检定就给。
+
+旅店门口地上字我直接就点染了，不记得是否需要某个特定物品。
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1171#       发表于 2020-3-30 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918585&amp;ptid=1858008" target="_blank">wd54w8 发表于 2020-3-30 00:28</a>
+
+话说有没有人研究过街灯怎么买，这游戏真能赚700块钱？
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+应该不能吧。买了的好像是用修改器的，而且街灯没用处，属于逗人玩类型。
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1172#       发表于 2020-3-30 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919675&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-30 09:10</a>
+刷子就是找骷髅头辛迪拿的。应该是拿了燃油后回去对话过检定就给。
+
+旅店门口地上字我直接就点染了，不记 ...</blockquote>
+不用先拿油，而且检定失败了也会给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辛迪好人啊
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 1173#       发表于 2020-3-30 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919697&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-30 09:12</a>
+
+应该不能吧。买了的好像是用修改器的，而且街灯没用处，属于逗人玩类型。 ...</blockquote>
+我没学间接征税，靠三教九流和第一天金的200块到中盘攒了500多（没卖过物品），感觉还是有那么点希望到700？
+
+
+
+
+
+          
