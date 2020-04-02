@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 10:09** 
+> ## **本文件最后更新于2020-04-02 12:09** 
 
 
 
@@ -1031,7 +1031,7 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-<img src="https://imgchr.com/i/G8qyOx" id="aimg_N67cu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/G8qyOx" id="aimg_q5i8H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/02/000852h47p4lcc8iw1cpta.jpg" referrerpolicy="no-referrer">
 
@@ -2466,10 +2466,12 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 4战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 雷猴雷猴|-1|思路广|
+| kros|-1|思路广|
 | RX-78-2|-1|申论分数不低的样子|
 | youlen| + 1|思路广|
 
@@ -3290,6 +3292,25 @@ ctnnd
 怎么每次山东一有事就有人各种转进的</blockquote>
 毕竟沪坛，沙东人是有原罪的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| flyzzhj|-2|思路广|
+
+
+
+查看全部评分
 
 
 
@@ -4546,4 +4567,1346 @@ weibo闹的再大，外国人根本不关心
 
 
 
-                                         
+
+
+-----
+
+####  自由如疯  
+##### 248#       发表于 2020-4-2 10:09
+
+
+
+<blockquote>引用第241楼部福井于2020-04-02 10:03发表的  :
+
+怎么就开始怪政府了？打不过洋人怨政府？</blockquote>
+@部福井
+
+舔洋的风气难道还是中国民间自发形成的？
+
+
+----发送自 [Xiaomi Redmi 5 Plus,Android 7.1.2](http://stage1.5j4m.com/?1.32)
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 249#       发表于 2020-4-2 10:13
+
+
+
+
+嘿，这贴的嘴脸真是有意思
+
+合着基层干部就能定下一等洋的基调了？怕爱讨论就老老实实说怕，装什么大尾巴羊
+
+
+
+
+
+
+
+-----
+
+####  q96163169  
+##### 250#       发表于 2020-4-2 10:13
+
+
+
+
+看着气刃<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sionlnm  
+##### 251#       发表于 2020-4-2 10:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我觉得怕不是有内鬼吧，在外国人永久居留这个话题的风口浪尖，故意找几个洋鬼子整个活儿，给百姓看看洋鬼子到底是什么货，让这个外国人永久居留条例受到更多人的反对
+
+
+
+
+
+
+
+-----
+
+####  HIKIZZZ  
+##### 252#       发表于 2020-4-2 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46950024&amp;ptid=1922029" target="_blank">丈育 发表于 2020-4-2 00:58</a>
+
+Chinese get out好像也是一句话剪辑出来的，原话是“美国也有八百万华人，tell the 8million Chinese get o ...</blockquote>
+完全听不清<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  seekskywang  
+##### 253#       发表于 2020-4-2 10:22
+
+
+
+
+泥潭有些人还好意思说视频里的人怂，换了他们怕是大气都不敢出
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thesa|-1|怂人怂逻辑|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  dongdongdongxu  
+##### 254#       发表于 2020-4-2 10:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952262&amp;ptid=1922029" target="_blank">armagemon 发表于 2020-4-2 10:06</a>
+
+有些人就是坏逼，
+
+一边想着让你去当义和团痛打洋人，一边又会在义和团被砍头时站旁边说一句“两边都活该 ...</blockquote>
+说的好。 
+
+
+
+
+
+
+
+-----
+
+####  comeon333  
+##### 255#       发表于 2020-4-2 10:25
+
+
+
+
+这根本不是新闻好吧。
+
+这种事金鱼又记不住怕啥。
+
+
+
+
+
+
+
+-----
+
+####  imbazdw  
+##### 256#       发表于 2020-4-2 10:26
+
+
+
+
+果然疫情好转了，主要矛盾在网上都给转移到超国民待遇的问题上了。
+
+
+
+
+
+
+
+-----
+
+####  JaseaLiang  
+##### 257#       发表于 2020-4-2 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951790&amp;ptid=1922029" target="_blank">cherry111 发表于 2020-4-2 09:28</a>
+现在都戴着口罩，打了就跑应该也查不出来吧</blockquote>
+之前中央十套有个节目，天网对戴口罩人员的识别率可以达到80％
+
+—— 来自 Xiaomi MI 5, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dmitry  
+##### 258#       发表于 2020-4-2 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46950480&amp;ptid=1922029" target="_blank">pepase 发表于 2020-4-2 02:45</a>
+
+打赢了闹到警cha哪里吃亏的还不是自己</blockquote>
+两年前长春有白皮酒鬼街上调戏女孩，路人几个上去锤一通，警察来了拷走的是白皮
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 259#       发表于 2020-4-2 10:30
+
+
+
+
+中国人平均身高超过黑人，更何况又是在山东这种有明显身高优势的地方，还能说出黑人“人高马大”这种话，可以说也是一种跪久了的体现了
+
+
+----发送自 [Xiaomi Redmi 5 Plus,Android 7.1.2](http://stage1.5j4m.com/?1.32)
+
+
+
+
+
+
+
+-----
+
+####  seele9999  
+##### 260#       发表于 2020-4-2 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952182&amp;ptid=1922029" target="_blank">自由如疯 发表于 2020-4-2 09:59</a>
+
+毕竟现在在位的那些都是河殇一代成长起来的逆向民族主义傻逼，你真以为一等洋只是一句玩笑么
+
+
+----发送自 X ...</blockquote>
++1 河殇一代没药救
+
+
+
+
+
+
+
+-----
+
+####  mobdom  
+##### 261#       发表于 2020-4-2 10:31
+
+
+
+
+有些人自己怕洋人还跑到帖子来污蔑大家都一样，都是大家害了他，贱不贱呐
+
+
+
+
+
+
+
+-----
+
+####  特冷普  
+##### 262#       发表于 2020-4-2 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952501&amp;ptid=1922029" target="_blank">Dmitry 发表于 2020-4-2 10:27</a>
+
+两年前长春有白皮酒鬼街上调戏女孩，路人几个上去锤一通，警察来了拷走的是白皮 ...</blockquote>
+白鬼连着警察一起骂了：fxck 泡利斯。顺便上警车的警察时候狠狠的捅了几电棍
+
+
+
+
+
+
+
+-----
+
+####  thesa  
+##### 263#       发表于 2020-4-2 10:35
+
+
+
+
+怂逼青岛人，这还不动手？
+
+
+
+
+
+
+
+-----
+
+####  柳下惠的猫  
+##### 264#       发表于 2020-4-2 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951280&amp;ptid=1922029" target="_blank">猫空 发表于 2020-4-2 08:36</a>
+毕竟沪坛，沙东人是有原罪的</blockquote>
+内斗内行，外斗外行而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+和“治不了洋人还治不了你”的内核是一样的。
+
+
+
+
+
+
+
+-----
+
+####  wety  
+##### 265#       发表于 2020-4-2 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952356&amp;ptid=1922029" target="_blank">sionlnm 发表于 2020-4-2 10:14</a>
+
+我觉得怕不是有内鬼吧，在外国人永久居留这个话题的风口浪尖，故意找几个洋鬼子整个活儿，给百姓看 ...</blockquote>
+想多了，上面想做啥需要考虑这么多，你以为是哪里
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 266#       发表于 2020-4-2 10:38
+
+
+
+
+要我绝对一拳上去了，他妈的中国人在自己国家还能被外国人歧视？这国家到底是属于谁的？
+
+
+----发送自 [Xiaomi Redmi 5 Plus,Android 7.1.2](http://stage1.5j4m.com/?1.32)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hollys| + 1|你这是明知故问|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  DarkSider  
+##### 267#       发表于 2020-4-2 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952631&amp;ptid=1922029" target="_blank">自由如疯 发表于 2020-04-02 10:38:21</a>
+要我绝对一拳上去了，他妈的中国人在自己国家还能被外国人歧视？这国家到底是属于谁的？
+
+
+----发送自  ...</blockquote>很大概率应该不是你的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sopp| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  张献忠  
+##### 268#       发表于 2020-4-2 10:52
+
+
+
+
+看某几楼的意思这事得怪上海？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dreki  
+##### 269#       发表于 2020-4-2 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952308&amp;ptid=1922029" target="_blank">自由如疯 发表于 2020-04-02 10:09:52</a>
+@部福井
+
+舔洋的风气难道还是中国民间自发形成的？
+
+
+----发送自</blockquote>不然呢？没刷过微博没上过网？多少公知花式舔跟你闹呢
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  PrinzEugen  
+##### 270#       发表于 2020-4-2 11:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  403page  
+##### 271#       发表于 2020-4-2 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952356&amp;ptid=1922029" target="_blank">sionlnm 发表于 2020-4-2 10:14</a>
+
+我觉得怕不是有内鬼吧，在外国人永久居留这个话题的风口浪尖，故意找几个洋鬼子整个活儿，给百姓看 ...</blockquote>
+我怎么记得意见期已经过了
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 272#       发表于 2020-4-2 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952861&amp;ptid=1922029" target="_blank">403page 发表于 2020-4-2 11:03</a>
+我怎么记得意见期已经过了</blockquote>
+意见期与否根本没影响，本来就没指望听老百姓意见。50亿浏览量的超话上不了热搜还被删，一堆蓝标搁哪精选评论控评然后发公告说我们悉心听取意见，这把人当猴耍吧
+
+
+
+
+
+
+
+-----
+
+####  流川枫枫  
+##### 273#       发表于 2020-4-2 11:10
+
+
+
+
+求科普广州那个黑鬼的事迹，几天忙完全不知道啥事情
+
+
+
+
+
+
+
+-----
+
+####  Faith  
+##### 274#       发表于 2020-4-2 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952740&amp;ptid=1922029" target="_blank">Dreki 发表于 2020-4-2 10:52</a>
+不然呢？没刷过微博没上过网？多少公知花式舔跟你闹呢
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+外教五小时，为了六十一个阶级兄弟
+
+
+
+
+
+
+
+-----
+
+####  wety  
+##### 275#       发表于 2020-4-2 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952631&amp;ptid=1922029" target="_blank">自由如疯 发表于 2020-4-2 10:38</a>
+
+要我绝对一拳上去了，他妈的中国人在自己国家还能被外国人歧视？这国家到底是属于谁的？
+
+
+----发送自 Xiaom ...</blockquote>
+寻衅滋事警告
+
+
+
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 276#       发表于 2020-4-2 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952939&amp;ptid=1922029" target="_blank">流川枫枫 发表于 2020-4-2 12:10</a>
+
+求科普广州那个黑鬼的事迹，几天忙完全不知道啥事情</blockquote>
+尼格利亚籍黑鬼拒绝隔离打伤护士，咬护士的脸
+
+
+
+
+
+
+
+-----
+
+####  EdSheeran  
+##### 277#       发表于 2020-4-2 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952939&amp;ptid=1922029" target="_blank">流川枫枫 发表于 2020-4-2 11:10</a>
+求科普广州那个黑鬼的事迹，几天忙完全不知道啥事情</blockquote>
+就是拒绝治疗配合打了护士，把人家揍得不清。
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 278#       发表于 2020-4-2 11:15
+
+
+
+
+上海人媚洋
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 279#       发表于 2020-4-2 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46950024&amp;ptid=1922029" target="_blank">丈育 发表于 2020-4-2 00:58</a>
+
+Chinese get out好像也是一句话剪辑出来的，原话是“美国也有八百万华人，tell the 8million Chinese get o ...</blockquote>
+800万华人在美国有没有排队权力？要不要排队？排在美国人前面还是后面？
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 280#       发表于 2020-4-2 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46950189&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 01:21</a>
+
+这几个洋人本身检测意愿就等于0，但又有高风险接触，不弄来检测高概率会瞎跑，
+
+要哄着来可以理解，但至少单 ...</blockquote>
+哄个屁不配合检测直接驱逐出境！你看这给惯的，给特权都变成应该的了。
+
+
+
+
+
+
+
+-----
+
+####  chan  
+##### 281#       发表于 2020-4-2 11:19
+
+
+
+
+换个立场，如果是中国人在美国这样的情况喊一声american get out！ 会是什么下场？有没有在美国的同学科普一下
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 282#       发表于 2020-4-2 11:20
+
+
+
+ 本帖最后由 有妹是老婆 于 2020-4-2 11:24 编辑 
+
+额，有两张无关图片，不知道怎么编辑。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+1582544350155.gif
+(1.95 MB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-2-25 15:12 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/151246r0rjuru6xg4yvbxj.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+v2-d1e382da2d3c699bb6113b20476e26a1.jpg
+(82.42 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-2-25 15:12 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202002/25/151245icryyrmjim6262mc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200402111902.jpg
+(109.78 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-2 11:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/02/111947d55pn1t4mk9gb1rn.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 哈迪斯兜帽| + 1|老虎可爱|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  钛肽魔  
+##### 283#       发表于 2020-4-2 11:21
+
+
+
+
+事实证明青岛是山东不可分割的一部分，颇有衍圣公遗风，去古未远啊去古未远
+
+
+
+
+
+
+
+-----
+
+####  机吉斯卡  
+##### 284#       发表于 2020-4-2 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949653&amp;ptid=1922029" target="_blank">不香的鱼干 发表于 2020-04-02 00:24:01</a>
+已经预见以后永久居住搞起来后老外代排队，老外代报案，老外代xx各种产业的兴起…
+
+到时我猜先从广东开始成 ...</blockquote>老外讨债很早就有了，搜一下东莞 讨债就行
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kusanagi9999  
+##### 285#       发表于 2020-4-2 11:23
+
+
+
+
+外国的爷就是爷，别不服气
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qderaaa  
+##### 286#       发表于 2020-4-2 11:23
+
+
+
+
+说句难听的，我看那老外黑又硬我是不敢动手的。再说你们不会真觉得路人会帮你干架吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  反面教材  
+##### 287#       发表于 2020-4-2 11:24
+
+
+
+
+2020年活出了1920年的感觉，复古，复古<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 288#       发表于 2020-4-2 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951220&amp;ptid=1922029" target="_blank">慕名而来老司机 发表于 2020-4-2 08:25</a>
+
+泥潭唯有在黑山东和舔上海能团结起来
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+说反了吧你？
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 289#       发表于 2020-4-2 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951280&amp;ptid=1922029" target="_blank">猫空 发表于 2020-4-2 08:36</a>
+
+毕竟沪坛，沙东人是有原罪的</blockquote>
+上海人原地爆炸吧，满意吗？
+
+
+
+
+
+
+
+-----
+
+####  jerrybarbossa  
+##### 290#       发表于 2020-4-2 11:27
+
+
+
+
+中国人外国人一视同仁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  明栈雪  
+##### 291#       发表于 2020-4-2 11:31
+
+
+
+
+上海人是租界遗风，山东人是儒家遗毒，上回南京地铁你们怎么说的来着？
+
+
+
+
+
+
+
+-----
+
+####  单流灯塔  
+##### 292#       发表于 2020-4-2 11:33
+
+
+
+
+后排提醒，山东大学也在青岛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 293#       发表于 2020-4-2 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46950189&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 01:21</a>
+这几个洋人本身检测意愿就等于0，但又有高风险接触，不弄来检测高概率会瞎跑，
+
+要哄着来可以理解，但至少单 ...</blockquote>
+呵呵，对国民就用警察，对洋狗就要哄，你也是跪久了吧
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 294#       发表于 2020-4-2 11:39
+
+
+
+
+所以你们以后别笑日本人英语差，国人英语才叫查，被洋狗吠过连个屁都不会放。
+
+
+
+
+
+
+
+-----
+
+####  放大镜  
+##### 295#       发表于 2020-4-2 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949473&amp;ptid=1922029" target="_blank">灰尘存在感 发表于 2020-4-2 00:06</a>
+
+现在民意倒逼的例子也不少了，不能说根不在基层就都逆来顺受吧，只是这事刚好撞上没有血性的人了 ...</blockquote>
+民意倒逼是民意可用的一种表现形式，你把顺序给弄反了
+
+
+
+
+
+
+
+-----
+
+####  卡爹  
+##### 296#       发表于 2020-4-2 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949408&amp;ptid=1922029" target="_blank">灰尘存在感 发表于 2020-4-2 00:00</a>
+那咋办，别人插队闹矛盾还我们全责？真跪习惯了是吧？你去美国插队再来句美国猪滚出去看看是不是也给打你 ...</blockquote>
+你还别说，真打起来好不好真判我们全责<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  hbl  
+##### 297#       发表于 2020-4-2 11:48
+
+
+
+
+这个帖子竟然还在
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 298#       发表于 2020-4-2 11:49
+
+
+
+
+你不敢打人，骂两句fuck，son of bitch总敢吧？
+
+当然了，也不全是屁民的锅，只能说自有国情在此<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  7450  
+##### 299#       发表于 2020-4-2 11:50
+
+
+
+
+身在青岛，真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">这边棒子遍地爬
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  archfriend12  
+##### 300#       发表于 2020-4-2 11:51
+
+
+
+
+主要是这个B把单子默默的捡起来以后啥都没干，把我惊呆了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  faust123  
+##### 301#       发表于 2020-4-2 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953422&amp;ptid=1922029" target="_blank">卡爹 发表于 2020-4-2 11:44</a>
+
+你还别说，真打起来好不好真判我们全责
+
+
+—— 来自 vivo NEX, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+“这还用说？”
+
+
+
+
+
+
+
+-----
+
+####  xenox  
+##### 302#       发表于 2020-4-2 11:52
+
+
+
+ 本帖最后由 xenox 于 2020-4-2 11:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953360&amp;ptid=1922029" target="_blank">真田丸 发表于 2020-4-2 11:39</a>
+
+所以你们以后别笑日本人英语差，国人英语才叫查，被洋狗吠过连个屁都不会放。 ...</blockquote>
+你别逗，日本人见到说英语的外国人，连气都不敢喘。
+
+几年前在成田机场坐磁悬浮去登机口，突然跑进来个白皮问登机口怎么走。本来还在说话的日本人立马鸦雀无声。死一般的寂静，还是我看看不像话给白皮指了下路。
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 303#       发表于 2020-4-2 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953515&amp;ptid=1922029" target="_blank">archfriend12 发表于 2020-04-02 11:51:24</a>
+主要是这个B把单子默默的捡起来以后啥都没干，把我惊呆了</blockquote>那你说该怎么办？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  九四  
+##### 304#       发表于 2020-4-2 11:57
+
+
+
+ 本帖最后由 九四 于 2020-4-2 11:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949193&amp;ptid=1922029" target="_blank">灰尘存在感 发表于 2020-4-1 23:40</a>
+
+md这男的居然转头真走了，太tm丢人了吧</blockquote>
+转头就走是中策，
+
+上去就打是下策，
+
+叫朋友录像，跪下就磕三个响头，然后大喊洋老爷我知道错了，是上策
+
+想想后果
+
+
+
+
+
+
+
+-----
+
+####  六尺之下  
+##### 305#       发表于 2020-4-2 11:59
+
+
+
+
+优艾斯诶南波万！
+
+
+
+
+
+
+
+-----
+
+####  蛋疼三四郎  
+##### 306#       发表于 2020-4-2 11:59
+
+
+
+
+哈哈哈，二三四五等人谁都叫不醒谁，安拉安拉
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 307#       发表于 2020-4-2 11:59
+
+
+
+
+相比之下，大清至少最初还多少顾及了民众的反洋情绪，后来发现实在干不过才翻脸不认人。现在倒好，上来直接就是个舔，精力都放到让百姓闭嘴了
+
+
+----发送自 [Xiaomi Redmi 5 Plus,Android 7.1.2](http://stage1.5j4m.com/?1.32)
+
+
+
+
+
+
+
+-----
+
+####  archfriend12  
+##### 308#       发表于 2020-4-2 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953563&amp;ptid=1922029" target="_blank">蓬莱妹红 发表于 2020-4-2 11:54</a>
+
+那你说该怎么办？
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端</blockquote>
+黑鬼怎么办的平时没看过电视？上去贴脸啊，bull shit，mother fucker都管上啊。在这里还怕他有家伙什吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Faith  
+##### 309#       发表于 2020-4-2 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953660&amp;ptid=1922029" target="_blank">archfriend12 发表于 2020-4-2 12:03</a>
+黑鬼怎么办的平时没看过电视？上去贴脸啊，bull shit，mother fucker都管上啊。在这里还怕他有家伙什吗[f ...</blockquote>
+寻衅滋事<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  archfriend12  
+##### 310#       发表于 2020-4-2 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953679&amp;ptid=1922029" target="_blank">Faith 发表于 2020-4-2 12:04</a>
+
+寻衅滋事</blockquote>
+哼几句rap也算寻衅滋事吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月飞雪  
+##### 311#       发表于 2020-4-2 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953660&amp;ptid=1922029" target="_blank">archfriend12 发表于 2020-4-2 12:03</a>
+
+黑鬼怎么办的平时没看过电视？上去贴脸啊，bull shit，mother fucker都管上啊。在这里还怕他有家伙什吗[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后你挨了一顿洋拳制裁？
+
+
+
+
+
+
+
+-----
+
+####  人間無骨  
+##### 312#       发表于 2020-4-2 12:08
+
+
+
+
+我觉得还是文化问题，现场人没动手是因为听不懂英语吧……
+
+
+
+
+
+                                       
