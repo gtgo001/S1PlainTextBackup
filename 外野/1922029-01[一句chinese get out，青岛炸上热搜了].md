@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 12:09** 
+> ## **本文件最后更新于2020-04-02 14:11** 
 
 
 
@@ -34,10 +34,11 @@
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| wsmdbzdcao| + 1|别生气，想想今晚吃啥几点睡|
 | 大柴爱怀旧| + 1|第几单对洋人跪舔新闻了？堪比新北.|
 
 
@@ -467,6 +468,25 @@ md这男的居然转头真走了，太tm丢人了吧
 
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| leonsyz| + 1|说到公务员的心坎里了...|
+
+
+
+查看全部评分
 
 
 
@@ -1031,7 +1051,7 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-<img src="https://imgchr.com/i/G8qyOx" id="aimg_q5i8H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/G8qyOx" id="aimg_SIxB7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/02/000852h47p4lcc8iw1cpta.jpg" referrerpolicy="no-referrer">
 
@@ -2466,10 +2486,11 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 
 
- 参与人数 4战斗力 -2
+ 参与人数 5战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Lyrical_Magical|-1|思路广|
 | 雷猴雷猴|-1|思路广|
 | kros|-1|思路广|
 | RX-78-2|-1|申论分数不低的样子|
@@ -3302,10 +3323,12 @@ ctnnd
 
 
 
- 参与人数 1战斗力 -2
+ 参与人数 3战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| narutoz| + 1|平衡|
+| lalala德玛西亚| + 1|平衡|
 | flyzzhj|-2|思路广|
 
 
@@ -4467,6 +4490,25 @@ weibo闹的再大，外国人根本不关心
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rosefinch|-1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4679,10 +4721,11 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 橘皮刺客| + 1||
 | thesa|-1|怂人怂逻辑|
 
 
@@ -5909,4 +5952,1230 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-                                       
+
+
+-----
+
+####  Faith  
+##### 313#       发表于 2020-4-2 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953719&amp;ptid=1922029" target="_blank">archfriend12 发表于 2020-4-2 12:08</a>
+哼几句rap也算寻衅滋事吗</blockquote>
+是不是寻衅滋事是你说了算？
+
+
+
+
+
+
+
+-----
+
+####  archfriend12  
+##### 314#       发表于 2020-4-2 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953735&amp;ptid=1922029" target="_blank">Faith 发表于 2020-4-2 12:09</a>
+
+是不是寻衅滋事是你说了算？</blockquote>
+我觉得你说了肯定也不算
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 315#       发表于 2020-4-2 12:10
+
+
+
+<blockquote>引用第311楼人間無骨于2020-04-02 12:08发表的  :
+
+我觉得还是文化问题，现场人没动手是因为听不懂英语吧……</blockquote>
+@人間無骨
+
+把你的单子拿起来扔了这也需要翻译吗
+
+
+----发送自 [Xiaomi Redmi 5 Plus,Android 7.1.2](http://stage1.5j4m.com/?1.32)
+
+
+
+
+
+
+
+-----
+
+####  Faith  
+##### 316#       发表于 2020-4-2 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953747&amp;ptid=1922029" target="_blank">archfriend12 发表于 2020-4-2 12:10</a>
+我觉得你说了肯定也不算</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">明白就好
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 317#       发表于 2020-4-2 12:12
+
+
+
+<blockquote>Faith 发表于 2020-4-2 12:09
+是不是寻衅滋事是你说了算？</blockquote>
+虽然很想说按刑法是绝判不到寻衅滋事的，但么有实际操作过还真不敢打包票。
+
+
+
+
+
+
+
+-----
+
+####  蛋疼三四郎  
+##### 318#       发表于 2020-4-2 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953723&amp;ptid=1922029" target="_blank">人間無骨 发表于 2020-4-2 12:08</a>
+
+我觉得还是文化问题，现场人没动手是因为听不懂英语吧……</blockquote>
+听不懂是有的，听得懂的也只能装听不懂，我上外教课的时候外教讲的笑话我听得懂，会笑。别人各个都是一脸懵逼，包括其他听的懂的人，搞得外教像是在讲冷笑话一样
+
+
+
+
+
+
+
+-----
+
+####  蜂蜜620  
+##### 319#       发表于 2020-4-2 12:12
+
+
+
+
+国人都好面子。
+
+遇到这种事这时候就应该标题宣传哪里哪里给国人丢脸啦。balabala
+
+
+
+
+
+
+再多来几次，脸皮就厚起来啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ra_Cailum  
+##### 320#       发表于 2020-4-2 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953250&amp;ptid=1922029" target="_blank">明栈雪 发表于 2020-4-2 11:31</a>
+
+上海人是租界遗风，山东人是儒家遗毒，上回南京地铁你们怎么说的来着？</blockquote>
+民国遗老<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Thermo  
+##### 321#       发表于 2020-4-2 12:18
+
+
+
+
+洋大人：我爱的是这个国家，不是这个民族<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  WindFi  
+##### 322#       发表于 2020-4-2 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951992&amp;ptid=1922029" target="_blank">armagemon 发表于 2020-4-2 09:45</a>
+
+到现在还有看不清的弱智在这地域黑呢，
+
+北京上海广州山东南京，接连发生这种洋人高人一等的事，你们竟然把 ...</blockquote>
+我在上海看到洋大人骑电动车闯红灯被交警拦下来开罚单的
+
+洋大人装傻充愣用英文假装听不懂中文 交警全程英语交流
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 323#       发表于 2020-4-2 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951629&amp;ptid=1922029" target="_blank">UnhappyTails 发表于 2020-4-2 09:13</a>
+啥玩意儿......啥马甲
+
+
+这事儿不愤怒我还得拍手？</blockquote>
+我也很愤怒 but 愤怒没有用呀
+
+上面带头跪 可能还嫌弃基层跪的不够彻底呢
+
+换个马甲 我意思不学MJ换身白皮 在国内也是没用的
+
+
+
+
+
+
+
+-----
+
+####  Lyrical_Magical  
+##### 324#       发表于 2020-4-2 12:23
+
+
+
+
+哈？怎么看到楼里还有人觉得应该给洋大人设置单独的点？你洋大人是老弱病残了还是军人那种贡献国家的？
+
+
+
+
+
+
+
+-----
+
+####  自由如疯  
+##### 325#       发表于 2020-4-2 12:24
+
+
+
+<blockquote>引用第321楼WindFi于2020-04-02 12:19发表的  :
+
+引用:armagemon 发表于 2020-4-2 09:45到现在还有看不清的弱智在这地域黑呢，北......</blockquote>
+@WindFi
+
+傻逼外国人不会中文来中国干什么，又不是来旅游的，你不会英文去美国工作怕是要被当成非法移民
+
+
+----发送自 [Xiaomi Redmi 5 Plus,Android 7.1.2](http://stage1.5j4m.com/?1.32)
+
+
+
+
+
+
+
+-----
+
+####  sk86  
+##### 326#       发表于 2020-4-2 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953541&amp;ptid=1922029" target="_blank">xenox 发表于 2020-04-02 11:52:57</a>
+你别逗，日本人见到说英语的外国人，连气都不敢喘。
+
+几年前在成田机场坐磁悬浮去登机口，突然跑进来个白 ...</blockquote>咋还到国外服务外国人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 327#       发表于 2020-4-2 12:26
+
+
+
+
+日本人看到会说英语的人不敢喘，看到说中文的却不会，但是咱们嘛…
+
+
+
+
+
+
+
+-----
+
+####  细雨湿流光  
+##### 328#       发表于 2020-4-2 12:29
+
+
+
+
+治不了洋人还治不了你？
+
+
+
+
+
+
+
+-----
+
+####  稻高一尺  
+##### 329#       发表于 2020-4-2 12:29
+
+
+
+
+设身处地的想了一下，如果被骂“get out”的是我，我会马上喊一声“哈伊”，90度鞠躬，再补上一句“爱慕脚盆腻子”。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 330#       发表于 2020-4-2 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953888&amp;ptid=1922029" target="_blank">黄耀明 发表于 2020-4-2 12:22</a>
+我也很愤怒 but 愤怒没有用呀
+
+上面带头跪 可能还嫌弃基层跪的不够彻底呢</blockquote>
+那也得怒啊
+
+哪怕膈应自己也得怒啊，不就是所有人都觉得久了咱们就木了就不怒了才搞这些事的吗？
+
+tm怒都怒不得了，不是好了是完了啊
+
+
+
+
+
+
+
+-----
+
+####  隔夜的哈劳斯  
+##### 331#       发表于 2020-4-2 12:36
+
+
+
+
+哀莫大于心死<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">之前那个给南京地铁送锦旗的哥们被训诫之后丢工作还离婚了，真要是动手估计得被衙役按着头给洋大人赔礼道歉
+
+—— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  一库哟  
+##### 332#       发表于 2020-4-2 12:39
+
+
+
+
+你们再讨论，潭里粉小将就举报你们带节奏了
+
+
+
+
+
+
+
+-----
+
+####  Dreki  
+##### 333#       发表于 2020-4-2 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954062&amp;ptid=1922029" target="_blank">隔夜的哈劳斯 发表于 2020-04-02 12:36:58</a>
+哀莫大于心死 v2.2.2.1</blockquote>淘宝买钙片寄过去，他难不成还能跨省？我朋友圈已经有人下单了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 334#       发表于 2020-4-2 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954019&amp;ptid=1922029" target="_blank">UnhappyTails 发表于 2020-4-2 12:33</a>
+那也得怒啊
+
+哪怕膈应自己也得怒啊，不就是所有人都觉得久了咱们就木了就不怒了才搞这些事的吗？</blockquote>
+看看给南京地铁送锦旗的那哥们被整得多惨。
+小老百姓网上口嗨也就算了。
+
+
+
+
+
+
+
+-----
+
+####  Dreki  
+##### 335#       发表于 2020-4-2 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953250&amp;ptid=1922029" target="_blank">明栈雪 发表于 2020-04-02 11:31:56</a>
+上海人是租界遗风，山东人是儒家遗毒，上回南京地铁你们怎么说的来着？</blockquote>南京是前朝余孽
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ra_Cailum  
+##### 336#       发表于 2020-4-2 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954140&amp;ptid=1922029" target="_blank">Dreki 发表于 2020-4-2 12:42</a>
+
+淘宝买钙片寄过去，他难不成还能跨省？我朋友圈已经有人下单了
+
+
+  -- 来自 能手机投票的 Stage1官方 ...</blockquote>
+送南京地铁锦旗的那位是安徽人，然后被训诫，不懂算不算跨省<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wangxywd  
+##### 337#       发表于 2020-4-2 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953888&amp;ptid=1922029" target="_blank">黄耀明 发表于 2020-4-2 12:22</a>
+我也很愤怒 but 愤怒没有用呀
+
+上面带头跪 可能还嫌弃基层跪的不够彻底呢</blockquote>
+笑死了，窝囊废果然爱找借口。上面除了想让你给白皮猪下跪还想让你把钱全捐了老实去世呢，你咋不听？
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路西恩|-1|看不懂这个逻辑|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  清辞酒  
+##### 338#       发表于 2020-4-2 12:46
+
+
+
+
+鞑蜻至少还是打不过才跪，现在嘛啧啧
+
+
+
+
+
+
+
+-----
+
+####  修炼爱情  
+##### 339#       发表于 2020-4-2 12:49
+
+
+
+
+百姓无不怀念我大清.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  masonknight  
+##### 340#       发表于 2020-4-2 12:49
+
+
+
+
+艹艹艹艹太憋屈了吧？真特么是一等洋人
+
+
+
+
+
+
+
+-----
+
+####  轮椅战神邓加尔  
+##### 341#       发表于 2020-4-2 12:50
+
+
+
+<blockquote>wangxywd 发表于 2020-4-2 12:45
+笑死了，窝囊废果然爱找借口。上面除了想让你给白皮猪下跪还想让你把钱全捐了老实去世呢，你咋不听？
+
+
+— ...</blockquote>
+在姓赵的眼里，外国人是人，中国人是鱼头两脚羊，人&gt;鱼头两脚羊很合理，鱼头两脚羊想反抗自然是先砍了再说
+
+你们六等汉这么愤怒，有能耐去学韩山童刘福通啊
+
+
+
+
+
+
+
+-----
+
+####  重楼  
+##### 342#       发表于 2020-4-2 12:52
+
+
+
+
+打个不恰当的比方，有些小女生不是处被艹了，就巴不得所有的女生也不是处，恶毒起来比男人还狠，“我被强.奸了，你怎么还是处？” 这和楼里一些人一个心理
+
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 343#       发表于 2020-4-2 12:53
+
+
+
+
+想了想，还有个办法，一般城市里有两个指标重要，一个文明城市，一个满意度，懂行的看能不能想点办法。
+
+
+
+
+
+
+
+-----
+
+####  右耳.  
+##### 344#       发表于 2020-4-2 12:57
+
+
+
+
+楼上各位好汉，我悬赏5000元人民币，你们去把那尼哥打了，拍照/视频留证，我给你直接汇款，你们觉得行嘛？
+
+
+
+
+
+
+
+-----
+
+####  Dreki  
+##### 345#       发表于 2020-4-2 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954160&amp;ptid=1922029" target="_blank">Ra_Cailum 发表于 2020-04-02 12:44:51</a>
+送南京地铁锦旗的那位是安徽人，然后被训诫，不懂算不算跨省</blockquote>徽京训诫安徽人当然不算跨省
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 346#       发表于 2020-4-2 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954163&amp;ptid=1922029" target="_blank">wangxywd 发表于 2020-04-02 12:45:13</a>
+笑死了，窝囊废果然爱找借口。上面除了想让你给白皮猪下跪还想让你把钱全捐了老实去世呢，你咋不听？
+
+— ...</blockquote>哦
+
+你笑死了之于。有撼动这件事情的决定性力量吗？你能决策这件事按照你的想法去走吗？
+
+
+没有尽管笑死好了。键盘敲敲轻松得很。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  右耳.  
+##### 347#       发表于 2020-4-2 12:58
+
+
+
+
+5000元不多，但说到做到
+
+
+
+
+
+
+
+-----
+
+####  wangxywd  
+##### 348#       发表于 2020-4-2 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954333&amp;ptid=1922029" target="_blank">黄耀明 发表于 2020-4-2 12:57</a>
+哦
+
+你笑死了之于。有撼动这件事情的决定性力量吗？你能决策这件事按照你的想法去走吗？</blockquote>
+改变不了什么啊，至少我还是个人，而某些人在网上都要当狗。
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  右耳.  
+##### 349#       发表于 2020-4-2 13:03
+
+
+
+<blockquote>wangxywd 发表于 2020-4-2 13:02
+改变不了什么啊，至少我还是个人，而某些人在网上都要当狗。
+
+
+—— 来自 samsung SM-G9500, Android 9上 ...</blockquote>
+好，5000元准备给你了，好汉加油，等你打人视频。
+
+
+
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 350#       发表于 2020-4-2 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954322&amp;ptid=1922029" target="_blank">右耳. 发表于 2020-4-2 13:57</a>
+
+楼上各位好汉，我悬赏5000元人民币，你们去把那尼哥打了，拍照/视频留证，我给你直接汇款，你们觉得行嘛？ ...</blockquote>
+不如请一些高华回国，刚看到个图有尼哥发公告要**击china town，高华回国也是洋大人，只有洋大人才能战胜洋大人，国内高华替海外高华同胞复了仇，事后再依法追究国内高华刑事责任，数不清几赢。
+
+
+
+
+
+
+
+-----
+
+####  三长三短丶  
+##### 351#       发表于 2020-4-2 13:05
+
+
+
+
+后排发个原视频链接
+https://weibo.com/5398166231/IBl10Ckb1
+这个是@奇葩播报补充的老外解释
+https://weibo.com/1202150843/IBmCU9f6P
+然后看微博说老外“chinesegetout”原话是There are 8 million Chinese in the states..Tell me don’t come back forever? Tell the 8 million Chinese  get out. 
+视频太吵听不清，好像是这个意思，等一个听力好的
+虽然泥潭后排帖子没人爬的
+
+
+
+
+
+
+
+-----
+
+####  脚本水平  
+##### 352#       发表于 2020-4-2 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954322&amp;ptid=1922029" target="_blank">右耳. 发表于 2020-4-2 12:57</a>
+楼上各位好汉，我悬赏5000元人民币，你们去把那尼哥打了，拍照/视频留证，我给你直接汇款，你们觉得行嘛？ ...</blockquote>
+我加5000 说到做到<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dswll  
+##### 353#       发表于 2020-4-2 13:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954062&amp;ptid=1922029" target="_blank">隔夜的哈劳斯 发表于 2020-4-2 12:36</a>
+哀莫大于心死之前那个给南京地铁送锦旗的哥们被训诫之后丢工作还离婚了，真要是动手估计得被衙役按 ...</blockquote>
+这么惨。。还以为是匿名邮寄过去的
+
+
+
+
+
+
+
+-----
+
+####  sk86  
+##### 354#       发表于 2020-4-2 13:11
+
+
+
+
+论坛悬赏，诚信力比的过草纸？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 355#       发表于 2020-4-2 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954429&amp;ptid=1922029" target="_blank">三长三短丶 发表于 2020-4-2 13:05</a>
+
+后排发个原视频链接
+
+https://weibo.com/5398166231/IBl10Ckb1
+
+这个是@奇葩播报补充的老外解释</blockquote>
+800万也是美国人啊，他算哪国的鸡扒？这永居还没通过呢
+
+
+
+
+
+
+
+-----
+
+####  JaseaLiang  
+##### 356#       发表于 2020-4-2 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949507&amp;ptid=1922029" target="_blank">1stPaleMaster 发表于 2020-4-2 00:09</a>
+你们都说那人是黑人，我怎么觉得是南美那边的。</blockquote>
+看头发行么
+
+—— 来自 Xiaomi MI 5, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  eva099  
+##### 357#       发表于 2020-4-2 13:19
+
+
+
+
+东亚病夫，体格弱鸡，面对黑鬼，不敢重拳出击
+
+
+
+
+
+
+
+-----
+
+####  右耳.  
+##### 358#       发表于 2020-4-2 13:20
+
+
+
+<blockquote>sk86 发表于 2020-4-2 13:11
+论坛悬赏，诚信力比的过草纸？
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+那怎么办 我汇款给管理员？
+
+
+
+
+
+
+
+-----
+
+####  张献忠  
+##### 359#       发表于 2020-4-2 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954385&amp;ptid=1922029" target="_blank">wangxywd 发表于 2020-4-2 13:02</a>
+改变不了什么啊，至少我还是个人，而某些人在网上都要当狗。
+
+—— 来自 samsung SM-G9500, Android 9上 ...</blockquote>
+你在一个连黄毛都不能讨论的论坛高潮些什么？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  红都剧院24排4号  
+##### 360#       发表于 2020-4-2 13:23
+
+
+
+
+给南京地铁送锦旗的哥们之所以那么惨，与其说是得罪了洋大人，不如说是得罪了公权力
+
+
+
+
+
+
+
+-----
+
+####  feb2  
+##### 361#       发表于 2020-4-2 13:23
+
+
+
+
+跪求洋人来管管洋人
+
+
+
+
+
+
+
+-----
+
+####  重楼  
+##### 362#       发表于 2020-4-2 13:25
+
+
+
+
+专程打人和欺负到脸上能一样？坐飞机去青岛来回多少钱，食宿报销吗，有差旅费误工补偿吗，不如我出5万你来美国打个乞丐，什么，没**，垃圾，缩卵啊
+
+
+
+
+
+
+
+-----
+
+####  wangxywd  
+##### 363#       发表于 2020-4-2 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954614&amp;ptid=1922029" target="_blank">张献忠 发表于 2020-4-2 13:20</a>
+你在一个连黄毛都不能讨论的论坛高潮些什么？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看见狗有点心烦
+
+—— 来自 samsung SM-G9500, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  utada  
+##### 364#       发表于 2020-4-2 13:37
+
+
+
+
+你们说的给南京送锦旗的，是南京地跌那个吗，他有微博吗
+
+
+
+
+
+
+
+-----
+
+####  右耳.  
+##### 365#       发表于 2020-4-2 13:38
+
+
+
+<blockquote>重楼 发表于 2020-4-2 13:25
+专程打人和欺负到脸上能一样？坐飞机去青岛来回多少钱，食宿报销吗，有差旅费误工补偿吗，不如我出5万你来 ...</blockquote>
+我又不主张打人…是楼上那么多好汉要打人，我付钱也只是奖励，难道我不付钱各位好汉还就不打人了？
+
+
+
+
+
+
+
+-----
+
+####  矛战  
+##### 366#       发表于 2020-4-2 13:39
+
+
+
+
+一等洋人二等官，三等穆绿四等少，五等港台六等汉
+
+
+
+
+
+
+
+-----
+
+####  右耳.  
+##### 367#       发表于 2020-4-2 13:41
+
+
+
+
+我自己是不会打人的，但我精神上和物质上支持各位好汉打人，现在就等各位好汉打了。5000元只是我一点心意，我相信各位好汉不是看在钱的份上才打人吧
+
+
+
+
+
+
+
+-----
+
+####  gzwind  
+##### 368#       发表于 2020-4-2 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954403&amp;ptid=1922029" target="_blank">右耳. 发表于 2020-4-2 13:03</a>
+
+好，5000元准备给你了，好汉加油，等你打人视频。</blockquote>
+我凑多5000吧,好了1w了不够报销来回路费和误工费我还能加点.
+
+
+
+
+
+
+
+-----
+
+####  kwg  
+##### 369#       发表于 2020-4-2 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954062&amp;ptid=1922029" target="_blank">隔夜的哈劳斯 发表于 2020-4-2 12:36</a>
+
+哀莫大于心死之前那个给南京地铁送锦旗的哥们被训诫之后丢工作还离婚了，真要是动手估计得被衙役按 ...</blockquote>
+锦旗哥是在和官老爷耍西方自由主义的猴戏，求仁得仁，作死即死
+
+
+
+
+
+
+
+-----
+
+####  piaoxiang123  
+##### 370#       发表于 2020-4-2 13:44
+
+
+
+
+讽刺，天天洋垃圾，外交部对外强硬什么的，再看这呵呵
+
+
+
+
+
+
+
+-----
+
+####  重楼  
+##### 371#       发表于 2020-4-2 13:45
+
+
+
+
+哈哈这就开始打滚了，专程打人和在脸上被欺负一样？懂不懂规矩，先把钱转给版主啊，一万
+
+
+
+
+
+
+
+-----
+
+####  烂俗笑话  
+##### 372#       发表于 2020-4-2 13:51
+
+
+
+
+不愧是沙东
+
+
+
+
+
+
+
+-----
+
+####  数独无双  
+##### 373#       发表于 2020-4-2 13:55
+
+
+
+<img src="https://ww2.sinaimg.cn/bmiddle/007Z73Ljgy1gdfdmr5rhxj30zk0rejuy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cools  
+##### 374#       发表于 2020-4-2 13:58
+
+
+
+
+洋大人后来还有个传的没主楼那么广的视频解释说是政府专门来电告诉他们可以不用排队他们才来的，牛逼牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  FML  
+##### 375#       发表于 2020-4-2 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46955091&amp;ptid=1922029" target="_blank">cools 发表于 2020-4-2 13:58</a>
+洋大人后来还有个传的没主楼那么广的视频解释说是政府专门来电告诉他们可以不用排队他们才来的，牛逼牛逼[f ...</blockquote>
+这群黑绿本来就不想来的
+看那个广东的 进了ICU还咬人
+不是电话好言跪求许以承诺 他们才懒得来测<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+—— 来自 samsung SM-G9810, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 376#       发表于 2020-4-2 14:01
+
+
+
+
+窝里斗好，窝里斗妙。
+
+支持四等汉再细分法案，先把山东人、上海人的位置排出来，再来讨论哪个地方最崇洋。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  凝灵  
+##### 377#       发表于 2020-4-2 14:02
+
+
+
+
+讲个笑话，中国人民从此战起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋疼三四郎  
+##### 378#       发表于 2020-4-2 14:10
+
+
+
+
+没有大多数人在现实中的妥协，哪里有吹逼奇观的资本，然而这些妥协变成了某种魔法，给了他们莫大的信心，乃至于他们忘了这魔法到底是怎么来的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
