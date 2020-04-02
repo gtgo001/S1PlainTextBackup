@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-30 10:11** 
+> ## **本文件最后更新于2020-04-02 18:04** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_p3zYm" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_YHtb3" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -4427,7 +4427,7 @@ Hardcore Aesthetic
 <img src="https://img.saraba1st.com/forum/201911/10/005022r3wj38ssd3jvjvjp.png" referrerpolicy="no-referrer">
 
 
-<strong>Disco Elysium has ruined The Outer Worlds for me - PC Gamer 11-10-2019 12-49-44 AM.png</strong> (51.48 KB, 下载次数: 0)
+<strong>Disco Elysium has ruined The Outer Worlds for me - PC Gamer 11-10-2019 12-49-44 AM.png</strong> (51.48 KB, 下载次数: 1)
 
 下载附件
 
@@ -4493,7 +4493,7 @@ Hardcore Aesthetic
 <img src="https://img.saraba1st.com/forum/201911/11/054023auj7w1zhxe1eo7hq.jpg" referrerpolicy="no-referrer">
 
 
-<strong>1573420428623.jpg</strong> (551.36 KB, 下载次数: 0)
+<strong>1573420428623.jpg</strong> (551.36 KB, 下载次数: 1)
 
 下载附件
 
@@ -4555,7 +4555,7 @@ https://www.artstation.com/artwork/baNVGa
 <img src="https://img.saraba1st.com/forum/201911/11/112430d26ycus9ynb2e8jr.jpg" referrerpolicy="no-referrer">
 
 
-<strong>1573415171490.jpg</strong> (203.09 KB, 下载次数: 0)
+<strong>1573415171490.jpg</strong> (203.09 KB, 下载次数: 1)
 
 下载附件
 
@@ -5297,7 +5297,7 @@ mark一下，等出中文再来
 <img src="https://img.saraba1st.com/forum/201911/24/074710g3h8hzchnzeiibn9.png" referrerpolicy="no-referrer">
 
 
-<strong>%XATRE(N}_QS%GBBPJA6U76.png</strong> (178 KB, 下载次数: 0)
+<strong>%XATRE(N}_QS%GBBPJA6U76.png</strong> (178 KB, 下载次数: 1)
 
 下载附件
 
@@ -6102,7 +6102,7 @@ Dxxxxx did nothing wrong <img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://img.saraba1st.com/forum/201912/13/152547s9ybzm8muhx78auz.png" referrerpolicy="no-referrer">
 
 
-<strong>Incline - Disco Elysium - a hardboiled cop show isometric RPG - Page 12 - rpgcod.png</strong> (134.32 KB, 下载次数: 0)
+<strong>Incline - Disco Elysium - a hardboiled cop show isometric RPG - Page 12 - rpgcod.png</strong> (134.32 KB, 下载次数: 1)
 
 下载附件
 
@@ -6587,7 +6587,7 @@ kim喜获专访
 <img src="https://img.saraba1st.com/forum/201912/15/014505f4v3i3qzpbaigc3i.jpg" referrerpolicy="no-referrer">
 
 
-<strong>33zcssw4.t5h.jpg</strong> (135.28 KB, 下载次数: 0)
+<strong>33zcssw4.t5h.jpg</strong> (135.28 KB, 下载次数: 1)
 
 下载附件
 
@@ -7018,7 +7018,7 @@ Die Menschen machen ihre eigene Geschichte, aber sie machen sie nicht aus freien
 <img src="https://img.saraba1st.com/forum/201912/19/012531sp4iz44dptd6xptd.png" referrerpolicy="no-referrer">
 
 
-<strong>25- of Disco Elysium fandom 的 Twitter- “My fem cosplay of Kim Kitsuragi is fin.png</strong> (1.63 MB, 下载次数: 0)
+<strong>25- of Disco Elysium fandom 的 Twitter- “My fem cosplay of Kim Kitsuragi is fin.png</strong> (1.63 MB, 下载次数: 1)
 
 下载附件
 
@@ -7946,7 +7946,7 @@ cuno真是好人，错怪你了<img src="https://static.saraba1st.com/image/smil
 <img src="https://img.saraba1st.com/forum/202001/06/134649nj5k55cenyx75nry.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20191224120221_1.jpg</strong> (415.08 KB, 下载次数: 0)
+<strong>20191224120221_1.jpg</strong> (415.08 KB, 下载次数: 1)
 
 下载附件
 
@@ -17404,7 +17404,7 @@ Encyclopedia是很有用的技能，介绍世界观相关，但是大块大块�
 <img src="https://img.saraba1st.com/forum/202003/23/174438u4anuypazr7xz767.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200323173448_1.jpg</strong> (546.08 KB, 下载次数: 0)
+<strong>20200323173448_1.jpg</strong> (546.08 KB, 下载次数: 1)
 
 下载附件
 
@@ -23372,4 +23372,572 @@ Harry太难了，真就没人在意没人爱的卑微公务员。</blockquote>
 
 
 
-          
+
+
+-----
+
+####  Hidewhite  
+##### 1174#       发表于 2020-3-30 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46920052&amp;ptid=1858008" target="_blank">芭德薇 发表于 2020-3-30 09:49</a>
+
+我没学间接征税，靠三教九流和第一天金的200块到中盘攒了500多（没卖过物品），感觉还是有那么点希望到70 ...</blockquote>
+为啥我当掉轮胎后到旅馆老板那还玩债金就把余款全都拿走了，没剩一毛钱给我。。。
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 1175#       发表于 2020-3-30 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46920746&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-3-30 11:07</a>
+
+为啥我当掉轮胎后到旅馆老板那还玩债金就把余款全都拿走了，没剩一毛钱给我。。。 ...</blockquote>
+先去乔伊斯那边再拿一份钱把房费付了，等单独行动后再去卖就能独吞200块……
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1176#       发表于 2020-3-30 11:25
+
+
+
+
+话说和金“高击掌”“低击掌”怎么触发？
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 1177#       发表于 2020-3-30 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46920966&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-30 11:25</a>
+话说和金“高击掌”“低击掌”怎么触发？</blockquote>
+把尸体射下来之后interfacing&gt;=5之后有选项可以开低击掌，否则只能开高击掌
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1178#       发表于 2020-3-30 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46921102&amp;ptid=1858008" target="_blank">tama_chan 发表于 2020-3-30 11:35</a>
+
+把尸体射下来之后interfacing&gt;=5之后有选项可以开低击掌，否则只能开高击掌
+
+
+—— 来自 OnePlus GM1900,  ...</blockquote>
+好的，谢谢！
+
+
+
+
+
+
+
+-----
+
+####  rhotov  
+##### 1179#       发表于 2020-3-30 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46918730&amp;ptid=1858008" target="_blank">西瓜不甜不甜 发表于 2020-3-30 01:16</a>
+【剧透警告】【剧透警告】【剧透警告】【剧透警告】
+
+。
+
+。</blockquote>
+那你一定没过集装箱门那个检定，集装箱里的情节是这游戏最亮的亮点之一。
+
+
+
+
+
+
+
+-----
+
+####  asd1234126  
+##### 1180#       发表于 2020-3-30 11:53
+
+
+
+
+说到三教九流，我一开始点这个技能的时候以为后期真的能去三教九流中心，结果只是个攒钱的
+
+怪不得我后期钱那么多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sharp_star  
+##### 1181#       发表于 2020-3-30 13:41
+
+
+
+
+装攒钱攒经验的思维比较实用，第四天和小流氓嘴炮拿了件夹克，翻译绝了，检定扔骰子非常上头
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1182#       发表于 2020-3-30 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46922471&amp;ptid=1858008" target="_blank">sharp_star 发表于 2020-3-30 13:41</a>
+
+装攒钱攒经验的思维比较实用，第四天和小流氓嘴炮拿了件夹克，翻译绝了，检定扔骰子非常上头 ...</blockquote>
+哪里鉴定失败非常有意思
+
+失败哈利会非常卑微的求人家然后那个小哥还真心软给你了“我就是受不了这些”
+
+有没有搞错，这也太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sharp_star  
+##### 1183#       发表于 2020-3-30 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46923526&amp;ptid=1858008" target="_blank">modedd 发表于 2020-3-30 15:26</a>
+
+哪里鉴定失败非常有意思
+
+失败哈利会非常卑微的求人家然后那个小哥还真心软给你了“我就是受不了这些”
+
+有 ...</blockquote>
+想让金也穿上，奈何傲娇不愿意<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1184#       发表于 2020-3-30 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46923579&amp;ptid=1858008" target="_blank">sharp_star 发表于 2020-3-30 15:31</a>
+
+想让金也穿上，奈何傲娇不愿意</blockquote>
+金是闷骚啊
+
+这明骚不是人家风格嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kiloiky  
+##### 1185#       发表于 2020-3-30 18:51
+
+
+
+
+二周目终于和小金跳上舞了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  distancy  
+##### 1186#       发表于 2020-3-31 08:51
+
+
+
+
+微博上看到马亲王也通了，但他捏的是个低智的角色，很多对话应该都触发不了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1187#       发表于 2020-3-31 20:33
+
+
+
+
+话说（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）
+
+逃兵对K姐的迷恋是“人性战胜了党性”，还是单纯被竹节虫释放的荷尔蒙影响了的后果？
+
+
+
+
+
+
+
+-----
+
+####  luang  
+##### 1188#       发表于 2020-3-31 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46937769&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-03-31 20:33:55</a>
+话说（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）
+
+逃兵对K姐的 ...</blockquote>这老小子有个狗逼党性，就是一变态，嘴上一套一套，内心就是被吓傻了，又不愿意承认一撸瑟
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 1189#       发表于 2020-4-1 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46937769&amp;ptid=1858008" target="_blank">牛兔子 发表于 2020-3-31 20:33</a>
+
+话说（可能会有剧透）
+
+（可能会有剧透）
+
+（可能会有剧透）</blockquote>
+各人有不同的看法
+
+
+建议阅读347楼新苏联人和349楼12月份当时我相应的看法
+
+这几个月发生的事太多了，我再读一遍的时候甚至没有意识到349楼曾经是我自己写的…
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 牛兔子| + 1|补上评分|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bwsusaga  
+##### 1190#       发表于 2020-4-1 01:09
+
+
+
+
+问一下，我一路各种失败大失败，为了活着就已经头破血流了，最后还能解决案子发现真相么？
+
+或者说，这游戏有没有多结局？玩的太烂会不会导致BE？
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 1191#       发表于 2020-4-1 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46940047&amp;ptid=1858008" target="_blank">bwsusaga 发表于 2020-4-1 01:09</a>
+
+问一下，我一路各种失败大失败，为了活着就已经头破血流了，最后还能解决案子发现真相么？
+
+或者说，这游戏 ...</blockquote>
+可以，你要不卡关基本上金总会帮你兜底
+
+
+没有多结局，玩得太烂可能会导致结尾多死几个人，结局是定死的
+
+
+
+
+
+
+
+-----
+
+####  bwsusaga  
+##### 1192#       发表于 2020-4-1 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46940058&amp;ptid=1858008" target="_blank">ataraxian 发表于 2020-4-1 01:10</a>
+
+可以，你要不卡关基本上金总会帮你兜底
+
+
+没有多结局，玩得太烂可能会导致结尾多死几个人，结局是定死的 ...</blockquote>
+感谢，那我就安心了，差点想重开档了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xgazer  
+##### 1193#       发表于 2020-4-1 11:16
+
+
+
+
+同事告诉主角他加入RCM之前是体育老师，这个职业是固定的还是会根据流程中的表现变化？
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 1194#       发表于 2020-4-1 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46942257&amp;ptid=1858008" target="_blank">xgazer 发表于 2020-4-1 11:16</a>
+
+同事告诉主角他加入RCM之前是体育老师，这个职业是固定的还是会根据流程中的表现变化？ ...</blockquote>
+固定的，之前商业区里举杠铃那段也有过提示。
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1195#       发表于 2020-4-1 23:18
+
+
+
+
+怎么办啊，这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不看鉴定失败就白玩
+
+
+抽着阿斯特拉香烟，哈里五心鉴智！
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1196#       发表于 2020-4-2 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46937835&amp;ptid=1858008" target="_blank">luang 发表于 2020-3-31 20:40</a>
+
+这老小子有个狗逼党性，就是一变态，嘴上一套一套，内心就是被吓傻了，又不愿意承认一撸瑟
+
+
+  -- 来自 有消 ...</blockquote>
+你这没仔细看啊……他要是真只是一个夸夸其谈的狗比，为什么不跟着工会老板兄弟俩同流合污呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不用开小船到处跑找组织了。
+
+
+
+
+
+
+
+-----
+
+####  灰色的狐狸  
+##### 1197#       发表于 2020-4-2 08:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46920052&amp;ptid=1858008" target="_blank">芭德薇 发表于 2020-3-30 09:49</a>
+
+我没学间接征税，靠三教九流和第一天金的200块到中盘攒了500多（没卖过物品），感觉还是有那么点希望到70 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">你可以买了试试，买之前建议存档
+
+
+
+
+
+
+
+-----
+
+####  芭德薇  
+##### 1198#       发表于 2020-4-2 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951251&amp;ptid=1858008" target="_blank">灰色的狐狸 发表于 2020-4-2 08:31</a>
+
+你可以买了试试，买之前建议存档</blockquote>
+我这个档最后从岛上回来身上正好600，身上的东西全卖掉能换130左右，然而没有进店的机会了（岛上拿到的**加瞄准镜价钱那么贵一定是故意的）。按上岛前的财产计，把前面不必要的消费（衣服和博学检定不如售价的书等，为了洗澡那个任务我还多住了一天旅馆）砍掉，间接征税那边大约需要提供20-30，一次选项两块钱的话应该还是足够的，就是最后买了也带不走这个太惨了点。
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 1199#       发表于 2020-4-2 12:37
+
+
+
+
+打折了，问下这次价格和之前一样吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1200#       发表于 2020-4-2 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954071&amp;ptid=1858008" target="_blank">hypnossz86 发表于 2020-4-2 12:37</a>
+
+打折了，问下这次价格和之前一样吗？</blockquote>
+一样啊，-25%
+
+
+
+
+
+
+
+-----
+
+####  云天明  
+##### 1201#       发表于 2020-4-2 17:00
+
+
+
+
+为啥网上好多人拿这游戏跟异域镇魂曲对比，完全不在一个频道吧，异域镇魂曲压抑的玩不下去，这游戏就很欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         

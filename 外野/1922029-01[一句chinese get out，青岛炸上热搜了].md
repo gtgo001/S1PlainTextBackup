@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 16:09** 
+> ## **本文件最后更新于2020-04-02 18:12** 
 
 
 
@@ -1051,7 +1051,7 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-<img src="https://imgchr.com/i/G8qyOx" id="aimg_A355T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/G8qyOx" id="aimg_MHS3a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/02/000852h47p4lcc8iw1cpta.jpg" referrerpolicy="no-referrer">
 
@@ -7863,10 +7863,11 @@ D&amp;G辱华那事咯
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 我靠不是吧| + 1||
 | Tengu| + 1|欢乐多|
 | armagemon| + 1|就是你给我考研英语作文打了低分？.|
 
@@ -8060,6 +8061,25 @@ should of还行
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dank_Memes| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -8193,4 +8213,941 @@ should of还行
 
 
 
-                                   
+
+
+-----
+
+####  黄耀明  
+##### 427#       发表于 2020-4-2 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46955984&amp;ptid=1922029" target="_blank">火炎龙 发表于 2020-4-2 15:19</a>
+
+南京地铁吃东西不同待遇那个
+
+有人送了锦旗，有微博，还被封了。
+
+后来被“教育”后附和了几声南京地铁的微 ...</blockquote>
+是南京警察。
+
+
+事主微博 @穷到送锦旗
+
+
+现在正在商量给崂山送锦旗呢。
+
+
+
+
+
+
+
+-----
+
+####  hhwxd  
+##### 428#       发表于 2020-4-2 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">南京锦旗哥到现在还下岗在家  和老婆也离婚了
+
+真要动手了小老百姓占不到半点好处
+
+
+
+
+
+
+
+-----
+
+####  Wenber  
+##### 429#       发表于 2020-4-2 16:16
+
+
+
+
+韩国昨天遣返了8个不接受隔离的外国人   <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tsukicn  
+##### 430#       发表于 2020-4-2 16:18
+
+
+
+
+不知道那些领导在想啥，平时不上网的吗，年纪大的先不说，单位里的小年轻也不上网的？
+
+
+
+
+
+
+
+-----
+
+####  huyangxinhn  
+##### 431#       发表于 2020-4-2 16:19
+
+
+
+
+山东嘛，不奇怪，毕竟是出过跪舔外国的山东大学，哪天世界大战，搞不好山东第一个投敌。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zyc1629|-2|地域黑要有个度|
+| lightingstar|-2|居然没人抠你这个sb分，我先来.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  lieproject  
+##### 432#       发表于 2020-4-2 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956710&amp;ptid=1922029" target="_blank">tsukicn 发表于 2020-4-2 16:18</a>
+不知道那些领导在想啥，平时不上网的吗，年纪大的先不说，单位里的小年轻也不上网的？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是小年轻能说上话，领导面子往哪里搁？而且我敢说单位没有哪个小年轻敢出这个头，锅给领导背多好，你出主意整好了赏的是领导砸了那锅都是你的
+
+
+
+
+
+
+
+-----
+
+####  茶仙  
+##### 433#       发表于 2020-4-2 16:21
+
+
+
+[https://bbs.saraba1st.com/2b/thread-1922077-1-1.html](https://bbs.saraba1st.com/2b/thread-1922077-1-1.html)
+
+
+公务员里容易出废物还真是没说错 
+
+
+微联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 434#       发表于 2020-4-2 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956710&amp;ptid=1922029" target="_blank">tsukicn 发表于 2020-4-2 16:18</a>
+
+不知道那些领导在想啥，平时不上网的吗，年纪大的先不说，单位里的小年轻也不上网的？ ...</blockquote>
+领导怎么会在乎 普通民众的想法。
+
+
+除非是 上面不合的某派别，有人想借此事出手搞事。才会有个处置。
+
+
+现在就那不痛不痒的道歉声明，拖了多久才出来的？是不是本人写的都不一定的。糊弄到此也就可见一般。
+
+
+在论坛高潮的那些坛友，还不如去微博刷刷超话，搞搞热搜。那是键盘侠唯一可以做出贡献的地方而不是在论坛YYGQ.
+
+
+
+
+
+
+
+-----
+
+####  黑斯廷斯  
+##### 435#       发表于 2020-4-2 16:21
+
+
+
+
+这特么能忍？有没有当地的群友，这锦旗赶紧安排上啊。给这帮贱骨头涨涨记性。
+
+
+
+
+
+
+
+-----
+
+####  Wqr_  
+##### 436#       发表于 2020-4-2 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956710&amp;ptid=1922029" target="_blank">tsukicn 发表于 2020-4-2 16:18</a>
+
+不知道那些领导在想啥，平时不上网的吗，年纪大的先不说，单位里的小年轻也不上网的？ ...</blockquote>
+小年轻还改顶撞老领导?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  卢比扬卡大饭店  
+##### 437#       发表于 2020-4-2 16:22
+
+
+
+
+沙东媳妇吃饭不上桌，青岛倪哥媳妇吃饭不进门。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月飞雪  
+##### 438#       发表于 2020-4-2 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956710&amp;ptid=1922029" target="_blank">tsukicn 发表于 2020-4-2 16:18</a>
+
+不知道那些领导在想啥，平时不上网的吗，年纪大的先不说，单位里的小年轻也不上网的？ ...</blockquote>
+单位里的小年轻还不是听老人的？
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 439#       发表于 2020-4-2 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46952939&amp;ptid=1922029" target="_blank">流川枫枫 发表于 2020-4-2 11:10</a>
+
+求科普广州那个黑鬼的事迹，几天忙完全不知道啥事情</blockquote>
+黑鬼是感染者
+
+不配合检测，还殴打检测护士，还咬伤了护士。
+
+
+上了热搜半天了， 现在第二轮热搜是 “邓主任”——可谓是典型的“跪”领导了。
+
+
+
+=================
+
+广州一外籍确诊患者咬伤护士引关注。受伤护士所属的广州第八人民医院回应，该护士正接受隔离治疗观察。同时，院方针对网传护士发朋友圈被邓主任责骂一事回应称，大家应同情受伤护士，“不要把矛头转到邓主任身上来了。”
+
+
+据广州市公安局官方微博消息，4月2日凌晨0时40分，广州市公安局新闻办公室通报：4月1日7时28分许，广州市公安局110台接到报警，称市第八人民医院嘉禾院区住院部一楼隔离病区（以下简称“市八医院”），有一名外籍新冠肺炎确诊患者不配合治疗，并将一女护士打伤。
+
+
+经初步调查：当天7时20分许，市八医院隔离病区女护士汪某请一外籍新冠肺炎确诊患者OKONKWONWOYE CHIKA PATRICK（男，47岁，尼日利亚籍）抽血检查，该患者不予理睬，还紧随其后试图强行走出隔离病房。护士见状立即将其阻拦，被其推倒在地殴打并咬伤脸部。经法医检查，护士汪某面部、脖颈处以及腰部都发现损伤，鉴定为轻微伤。该外籍确诊患者3月20日自境外入境广州，接受新冠病毒核酸检测呈阳性，23日被送市八医院进行隔离治疗。目前其核酸检测仍为阳性。
+
+
+目前，该医院已加强内部隔离区安保力量。同时，广州警方已立刑事案件对此事进行调查，并进一步加强了对医院内部及周边的安保工作。涉案嫌疑人目前正在警方监管下隔离治疗，待其治疗结束，警方将立即对其采取刑事强制措施，并依据中华人民共和国传染病防治法、刑法、外国人入境出境管理法等法律法规，坚决依法严肃处理。
+
+
+警方重申：疫情防控期间，所有入境人员都应严格遵守中华人民共和国传染病防治法等相关法律和疫情防控相关规定。对虚报信息、隐瞒病情、逃避隔离观察等拒绝执行疫情防控措施的违法犯罪行为，公安机关将依法追究其法律责任。
+
+
+来源：新京报
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 440#       发表于 2020-4-2 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953077&amp;ptid=1922029" target="_blank">chan 发表于 2020-4-2 11:19</a>
+
+换个立场，如果是中国人在美国这样的情况喊一声american get out！ 会是什么下场？有没有在美国的同学科普 ...</blockquote>
+被gun 突突？按照华裔在USA 底层的地位，怎么会敢呢。
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 441#       发表于 2020-4-2 16:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了，这就无事发生过了，反正每次都是“下次还敢”
+
+
+
+
+
+
+
+-----
+
+####  tsukicn  
+##### 442#       发表于 2020-4-2 16:30
+
+
+
+
+好吧，不太理解政府部门。。。
+
+
+
+
+
+
+
+-----
+
+####  nexus1  
+##### 443#       发表于 2020-4-2 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956892&amp;ptid=1922029" target="_blank">tsukicn 发表于 2020-4-2 16:30</a>
+
+好吧，不太理解政府部门。。。</blockquote>
+要理解就是一切官僚系统都不会主动给自己惹事
+
+
+
+
+
+
+
+-----
+
+####  共谍常凯申  
+##### 444#       发表于 2020-4-2 16:31
+
+
+
+
+外交无小事，治不了洋人，还治不了四等人？
+
+
+
+
+
+
+
+-----
+
+####  八方美人  
+##### 445#       发表于 2020-4-2 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949190&amp;ptid=1922029" target="_blank">黎恩 发表于 2020-4-1 23:39</a>
+
+对此，青岛市崂山区卫生局官方微博的回应，（各位网友，区疾控中心在区社区卫生服务中心进行核酸检测采样， ...</blockquote>
+害，自罚三杯，老传统了
+
+
+
+
+
+
+
+-----
+
+####  sk86  
+##### 446#       发表于 2020-4-2 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956755&amp;ptid=1922029" target="_blank">黄耀明 发表于 2020-04-02 16:21:23</a>
+领导怎么会在乎 普通民众的想法。
+
+
+除非是 上面不合的某派别，有人想借此事出手搞事。才会有个处置。
+
+
+现 ...</blockquote>键盘侠除了论坛yygq，还能干啥
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  hanshanwulu  
+##### 447#       发表于 2020-4-2 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956911&amp;ptid=1922029" target="_blank">共谍常凯申 发表于 2020-4-2 16:31</a>
+
+外交无小事，治不了洋人，还治不了四等人？</blockquote>
+四等？太看得起了，中间还隔着港澳台呢。。。
+
+
+
+
+
+
+
+-----
+
+####  TTAA  
+##### 448#       发表于 2020-4-2 16:43
+
+
+
+
+当事人还是没出面
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 449#       发表于 2020-4-2 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956996&amp;ptid=1922029" target="_blank">sk86 发表于 2020-04-02 16:37:28</a>
+键盘侠除了论坛yygq，还能干啥</blockquote>还会来喷坛友呀，发泄他们心中的愤怒。
+
+还不如去锦旗哥的微博捐款制作锦旗送出去呢。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  diablost3  
+##### 450#       发表于 2020-4-2 16:45
+
+
+
+
+又害怕讨论 又想骂人 真惨
+
+
+
+
+
+
+
+-----
+
+####  Dank_Memes  
+##### 451#       发表于 2020-4-2 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">都道歉了，还想怎么样
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 452#       发表于 2020-4-2 16:47
+
+
+
+
+平安北京：
+
+[话筒]#情况通报# 3月27日、28日，朝阳公安分局潘家园派出所接社区防疫工作人员报警和网民反映，一坦桑尼亚籍男子不配合社区疫情防控措施。警方经工作，依据《中华人民共和国治安管理处罚法》第五十条和《中华人民共和国出境入境管理法》第八十一条之规定，已对该人作出行政处罚，限期出境。
+
+
+等广州那边的处理标准
+
+
+
+
+
+
+
+-----
+
+####  Sopp  
+##### 453#       发表于 2020-4-2 16:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">说不定最后就剩崂山这个还跪着了
+
+
+
+
+
+
+
+-----
+
+####  紫夏  
+##### 454#       发表于 2020-4-2 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957028&amp;ptid=1922029" target="_blank">hanshanwulu 发表于 2020-4-2 16:39</a>
+
+四等？太看得起了，中间还隔着港澳台呢。。。</blockquote>
+兄弟这几个地方是算在一等人里面的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黎恩  
+##### 455#       发表于 2020-4-2 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957140&amp;ptid=1922029" target="_blank">遥仰苍穹 发表于 2020-4-2 16:47</a>
+
+平安北京：
+
+[话筒]#情况通报# 3月27日、28日，朝阳公安分局潘家园派出所接社区防疫工作人员报警和网民反映 ...</blockquote>
+情况不同，崂山这个是外国人配合防疫，他们的错误只是态度蛮横大喊大叫，插队的错误是在检疫机构。是机构的人让老外插队的。
+
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 456#       发表于 2020-4-2 17:00
+
+
+
+<blockquote>lieproject 发表于 2020-4-2 16:21
+要是小年轻能说上话，领导面子往哪里搁？而且我敢说单位没有哪个小年轻敢出这个头，锅给领导背多 ...</blockquote>
+说得上话的小年轻顶多是领导班子里排名垫底的，遇到喜欢搞一言堂的一把手还是空气。
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 457#       发表于 2020-4-2 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议上海那边拉个留华洋人志愿者上传一个内容是“中国目前的局面是靠着中国人民群众和我们这些积极抗疫的留华外国人争取来的，某些新入境的刺头别给脸不要脸”的视频。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正FB上的确有留华洋人喷过新入境的洋人不遵守隔离的规矩
+
+
+
+
+
+
+
+-----
+
+####  lieproject  
+##### 458#       发表于 2020-4-2 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957331&amp;ptid=1922029" target="_blank">luowei_nowe 发表于 2020-4-2 17:00</a>
+说得上话的小年轻顶多是领导班子里排名垫底的，遇到喜欢搞一言堂的一把手还是空气。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">特别还是沙东这种官本位思想严重的地方，反映给一把手发话了下面基本就照做完事了，反正出事了也是撸了领导不影响下面的人领工资，谁会强出头呢
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 459#       发表于 2020-4-2 17:08
+
+
+
+<blockquote>lieproject 发表于 2020-4-2 17:04
+特别还是沙东这种官本位思想严重的地方，反映给一把手发话了下面基本就照做完事了，反正出事了也 ...</blockquote>
+有一说一，喜欢搞一言堂的领导吃瘪的时候，年轻人们不开PARTY庆祝都算很厚道了。
+
+
+
+
+
+
+
+-----
+
+####  chan  
+##### 460#       发表于 2020-4-2 17:13
+
+
+
+
+关键是在中国人的地盘喷中国人这事没有详细的法律依据和判定，官方也不知道拿他怎么办呀。打嘴炮不能关起来吧？
+
+
+
+
+
+
+
+-----
+
+####  aeplantim  
+##### 461#       发表于 2020-4-2 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957494&amp;ptid=1922029" target="_blank">chan 发表于 2020-4-2 17:13</a>
+
+关键是在中国人的地盘喷中国人这事没有详细的法律依据和判定，官方也不知道拿他怎么办呀。打嘴炮不能关起来 ...</blockquote>
+寻衅滋事不会吗
+
+
+
+
+
+
+
+-----
+
+####  0WHan0  
+##### 462#       发表于 2020-4-2 17:17
+
+
+
+ 本帖最后由 0WHan0 于 2020-4-2 17:19 编辑 
+
+should of正宗英语口语呀，这字一看就不是代写的吧。欧美基础教育不叫花体后，普通人写字就这水平，我以前见过好几个外国人字都写这b样。
+ps.俄罗斯还在坚持花体字教学，手写体与印刷体区别太大，不好认。
+
+
+
+
+
+
+
+-----
+
+####  忒弥斯  
+##### 463#       发表于 2020-4-2 17:25
+
+
+
+
+领导的膝盖生根了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千古奇冤施密特  
+##### 464#       发表于 2020-4-2 17:29
+
+
+
+
+坦桑尼亚那位驱逐出境了，青岛这边怎么还转不过弯？
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 465#       发表于 2020-4-2 17:32
+
+
+
+
+这个比不配合防疫更令人生气吧
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 466#       发表于 2020-4-2 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956751&amp;ptid=1922029" target="_blank">茶仙 发表于 2020-4-2 16:21</a>
+https://bbs.saraba1st.com/2b/thread-1922077-1-1.html
+
+
+公务员里容易出废物还真是没说错 </blockquote>
+官僚系统是做存量，不求有功但求无过。是主要保守势力，在面对突发事件反应很慢。军队做增量，不开疆拓土就只能抗震救灾，和平年代军人多是默默无名。
+职业属性决定的事情，大体都不能跳出自身的局限
+
+
+
+
+
+
+
+-----
+
+####  买犁头剖你  
+##### 467#       发表于 2020-4-2 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949193&amp;ptid=1922029" target="_blank">灰尘存在感 发表于 2020-4-1 23:40</a>
+md这男的居然转头真走了，太tm丢人了吧</blockquote>
+治不了洋人，治不了你？
+
+南京地铁的勇士什么下场忘了？
+
+
+
+
+
+
+
+-----
+
+####  Eva  
+##### 468#       发表于 2020-4-2 17:48
+
+
+
+
+邓主任傻逼
+
+
+
+
+
+
+
+-----
+
+####  路西恩  
+##### 469#       发表于 2020-4-2 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956910&amp;ptid=1922029" target="_blank">nexus1 发表于 2020-4-2 16:31</a>
+
+要理解就是一切官僚系统都不会主动给自己惹事</blockquote>
+官僚系统就是典型的负反馈机制。
+
+
+
+
+
+
+
+-----
+
+####  茶仙  
+##### 470#       发表于 2020-4-2 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957696&amp;ptid=1922029" target="_blank">千古奇冤施密特 发表于 2020-4-2 17:29</a>
+
+坦桑尼亚那位驱逐出境了，青岛这边怎么还转不过弯？</blockquote>
+北京那个？我早上看新闻只是批评教育，驱逐是哪来的消息？
+
+
+
+
+
+
+
+-----
+
+####  gzwind  
+##### 471#       发表于 2020-4-2 18:01
+
+
+
+<blockquote>Eva 发表于 2020-4-2 17:48
+邓主任傻逼</blockquote>
+说真的和邓主任无关
+
+
+
+
+
+
+
+-----
+
+####  lightingstar  
+##### 472#       发表于 2020-4-2 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956724&amp;ptid=1922029" target="_blank">huyangxinhn 发表于 2020-4-2 16:19</a>
+山东嘛，不奇怪，毕竟是出过跪舔外国的山东大学，哪天世界大战，搞不好山东第一个投敌。 ...</blockquote>
+既然没人喷你，那我先来喷你这个sb
+抗疫期间山东一波波送人去黄冈，一波波送物资去湖北，当时你这个sb怎么不站出来，你做了个屁的贡献
+领导傻逼就是领导傻逼，你这个人站出来喷说这种话，我就得站出来喷死你，你他妈的才去投敌
+
+
+
+
+
+
+
+-----
+
+####  电子妖精雪风  
+##### 473#       发表于 2020-4-2 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957494&amp;ptid=1922029" target="_blank">chan 发表于 2020-4-2 17:13</a>
+
+关键是在中国人的地盘喷中国人这事没有详细的法律依据和判定，官方也不知道拿他怎么办呀。打嘴炮不能关起来 ...</blockquote>
+这话说的，在外国人的地盘上喷中国人就有办法管了？
+
+所以合并起来，只要喷中国人就没法管不是？
+
+
+
+
+
+
+
+-----
+
+####  vx11  
+##### 474#       发表于 2020-4-2 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46958165&amp;ptid=1922029" target="_blank">lightingstar 发表于 2020-4-2 18:02</a>
+
+既然没人喷你，那我先来喷你这个sb
+
+抗疫期间山东一波波送人去黄冈，一波波送物资去湖北，当时你这个sb怎 ...</blockquote>
+在鲁黑论坛说这个没人看的
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 475#       发表于 2020-4-2 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46949653&amp;ptid=1922029" target="_blank">不香的鱼干 发表于 2020-4-2 00:24</a>
+
+已经预见以后永久居住搞起来后老外代排队，老外代报案，老外代xx各种产业的兴起…
+
+
+到时我猜先从广东开始成 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+淘宝十几年的老生意了…你说以后……
+
+
+只是现在不知道有没被淘宝封掉
+
+
+
+
+
+                                  
