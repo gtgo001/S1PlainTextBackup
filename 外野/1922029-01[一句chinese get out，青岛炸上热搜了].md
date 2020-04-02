@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 20:09** 
+> ## **本文件最后更新于2020-04-02 22:09** 
 
 
 
@@ -1051,7 +1051,7 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-<img src="https://imgchr.com/i/G8qyOx" id="aimg_WkK0E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/G8qyOx" id="aimg_k9Ynj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/02/000852h47p4lcc8iw1cpta.jpg" referrerpolicy="no-referrer">
 
@@ -2486,10 +2486,12 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 
 
- 参与人数 5战斗力 -3
+ 参与人数 7战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 我靠不是吧|-2||
+| zss4414| + 1|平衡|
 | Lyrical_Magical|-1|思路广|
 | 雷猴雷猴|-1|思路广|
 | kros|-1|思路广|
@@ -8334,10 +8336,11 @@ should of还行
 
 
 
- 参与人数 9战斗力 -6
+ 参与人数 10战斗力 -7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| dkny1940|-1|回血的麻豆死了|
 | 不和谐音| + 1|回血|
 | ghy_holo|-1|那希望别是你家第一个磕头|
 | 绯色本子| + 1|欢乐多|
@@ -9546,4 +9549,608 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-                                 
+
+
+-----
+
+####  13.  
+##### 494#       发表于 2020-4-2 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959405&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:04</a>
+
+呵呵，连外语接待你都要觉得是个香饽饽来抢，看来你可能是个ABC，汉语已经退化了 ...</blockquote>
+我就问你我说英语能不能给我跟洋人一样去隔壁队列先测？
+
+当个ABC给我开事事优先我干嘛不当ABC？反正有你跪着帮我说话啊？
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 495#       发表于 2020-4-2 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959484&amp;ptid=1922029" target="_blank">13. 发表于 2020-4-2 20:12</a>
+
+我就问你我说英语能不能给我跟洋人一样去隔壁队列先测？
+
+当个ABC给我开事事优先我干嘛不当ABC？反正有你 ...</blockquote>
+如果你能证明自己无法用汉语沟通，只能用外语沟通，当然可以去。
+
+
+真正要开展这种外籍接待专用窗口比较合理方式还要兼顾效率，外籍窗口本来就人少，无人的时候就分流国人过来检测。
+
+外语水平不达标的工作人员可以安排在普通窗口，外语水平达标的安排在混用窗口，难不成检测人员外语好就不会中文了？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我靠不是吧|-2|去美国有汉语窗口没|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  九四  
+##### 496#       发表于 2020-4-2 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959552&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:19</a>
+
+如果你能证明自己无法用汉语沟通，只能用外语沟通，当然可以去。
+
+
+真正要开展这种外籍接待专用窗口比较合 ...</blockquote>
+我去美国有这待遇不？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 497#       发表于 2020-4-2 20:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959579&amp;ptid=1922029" target="_blank">九四 发表于 2020-4-2 20:22</a>
+
+我去美国有这待遇不？</blockquote>
+美国很多医院必须给病人配母语翻译，否则可以被起诉。
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 498#       发表于 2020-4-2 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959552&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:19</a>
+
+如果你能证明自己无法用汉语沟通，只能用外语沟通，当然可以去。
+
+
+真正要开展这种外籍接待专用窗口比较合 ...</blockquote>
+为什么在中国的土地上不会汉语还能得到优待，为什么不是他们学汉语而是我们学英语。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 499#       发表于 2020-4-2 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959552&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:19</a>
+
+如果你能证明自己无法用汉语沟通，只能用外语沟通，当然可以去。
+
+
+真正要开展这种外籍接待专用窗口比较合 ...</blockquote><blockquote>劝说人来了，单独来个英语流利的人接待</blockquote>
+你别被骂了就改口啊？ <blockquote>外籍窗口本来就人少，无人的时候就分流国人过来检测。</blockquote>
+奴才讲话逻辑就和别人不一样。正常人说话都是某窗口带英语，只会说英语的去那边跟着所有人一起排着。你倒好，是洋人开了那个窗口，国人是分流过去<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 500#       发表于 2020-4-2 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959616&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 20:26</a>
+
+为什么在中国的土地上不会汉语还能得到优待，为什么不是他们学汉语而是我们学英语。 ...</blockquote>
+“优待”和"提供方便"是两码事好么。
+
+
+“优待”，国人正常排队，工作人员主动允许洋人插队，无视国人利益；
+
+"提供方便"，给洋人提供母语沟通服务，保证在不影响国人正常检测的前提下，减少洋人检测的困难。
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 501#       发表于 2020-4-2 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959650&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:29</a>
+
+“优待”和"提供方便"是两码事好么。
+
+
+“优待”，国人正常排队，工作人员主动允许洋人插队，无视国人利益 ...</blockquote>
+你的意思是插队不影响国人正常检测是吗
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 502#       发表于 2020-4-2 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959622&amp;ptid=1922029" target="_blank">13. 发表于 2020-4-2 20:26</a>
+
+你别被骂了就改口啊？
+
+
+奴才讲话逻辑就和别人不一样。正常人说话都是某窗口带英语，只会说英语的去那边跟 ...</blockquote>
+你去看看日常有那个医院有专门的【外籍人士窗口】的？日常搞这个窗口不被喷死才怪呢。
+
+这个【疫情检测外籍接待】就是特事特办，而不是什么常驻窗口，目的就是不影响国人的检测效率，同时也让洋人检测别那么多屁事。
+
+一个洋人堵在前面问东问西，本来10分钟就好的事，耽误个30分钟扯皮，这种对后面排队检测的国人也是不公平。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 503#       发表于 2020-4-2 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959658&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 20:31</a>
+
+你的意思是插队不影响国人正常检测是吗</blockquote>
+看得懂中文么？
+
+工作人员无权让洋人来插队，
+
+洋人得到帮助是翻译沟通 ，如果检测单位觉得这批洋人沟通不畅那就安排单独的人接待，不要放在国人的队伍里浪费国人的时间。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 504#       发表于 2020-4-2 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959679&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:33</a>
+
+你去看看日常有那个医院有专门的【外籍人士窗口】的？日常搞这个窗口不被喷死才怪呢。
+
+这个【疫情检测外籍 ...</blockquote>
+一个队列或者窗口放个牌子“有英语”有难度？FAQ树一个有难度？
+
+还堵前面问东问西，国人没疑问？还是洋人都是呆逼？
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 505#       发表于 2020-4-2 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959710&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:37</a>
+
+看得懂中文么？
+
+工作人员无权让洋人来插队，
+
+洋人得到帮助是翻译沟通 ，如果检测单位觉得这批洋人沟通不 ...</blockquote>
+单独接待的人手哪里来，最后不还是要检测么，人手哪里来？不还是原来那批人，又不能分身，结果上来说和插队有什么区别，不都是影响了国人正常检测么。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 506#       发表于 2020-4-2 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959718&amp;ptid=1922029" target="_blank">13. 发表于 2020-4-2 20:37</a>
+
+一个队列或者窗口放个牌子“有英语”有难度？FAQ树一个有难度？
+
+还堵前面问东问西，国人没疑问？还是洋人 ...</blockquote>
+这你别和我说啊，如果你觉得你的方案简单有效，直接去和检测单位反应；
+
+我的态度很明确，检测单位懒政+替国人下跪，他们自己工作没做好、搞不定这几个洋人反过来自说自话的侵害国人利益。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 507#       发表于 2020-4-2 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959790&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:45</a>
+
+这你别和我说啊，如果你觉得你的方案简单有效，直接去和检测单位反应；
+
+我的态度很明确，检测单位懒政+替 ...</blockquote><blockquote>本质上怕还是怕的，来也来了，非要激化矛盾到两边势不两立？；适当提供方便来争取配合这都可以接受的；单开窗口又不是一定是舔跪行为，也可以是特事特办的照顾行为单开窗口又不是一定是舔跪行为，也可以是特事特办的照顾行为</blockquote><blockquote>但不论是漏检还是处理不当激化矛盾（影响双方检测效率）也都同样是侵害国人权益，那么最公平的办法就是检测机构工作人员付出更多的劳动。</blockquote>
+
+你又态度明确了，或者说你态度不得不明确啊
+
+舌头伸出来没舔好当然有锅了，舔的不出这事不就没问题了？
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 508#       发表于 2020-4-2 20:53
+
+
+
+ 本帖最后由 wzh5555 于 2020-4-2 20:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959736&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 20:40</a>
+
+单独接待的人手哪里来，最后不还是要检测么，人手哪里来？不还是原来那批人，又不能分身，结果上来说和插 ...</blockquote>
+这个问题不是很清楚么。
+
+首先，排队检测的国人的权益不能动；
+
+其次，外籍人员的检测工作要开展会遇到很多困难，
+
+为了解决这些困难检测单位本来就必定要额外付出（提供沟通便利、花时间精力劝说）， 如果这些行为无效就会动用警力。
+
+
+最后权衡的就是【检测单位的额外付出】 与【动用警力】，那个效率高、成本低，取那个。
+
+检测工作本身就是这个单位的职责，如果工作负担过重，而影响了国人的正常检测，那么也是这个单位的失职，而且我并不觉得【安排一个外语接待、同时保证国人队伍不受影响】，这能给这个单位提供多大的负担。
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 509#       发表于 2020-4-2 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959858&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:53</a>
+
+这个问题不是很清楚么。
+
+首先，排队检测的国人的权益不能动；
+
+其次，外籍人员的检测工作要开展会遇到很多 ...</blockquote>
+你到底懂不懂什么叫权益不被侵犯？外国留学生宿舍住的比中国人好是不是在你这里权益也没被侵犯，根本没动中国人寝室啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">奴才就是奴才。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 510#       发表于 2020-4-2 20:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959827&amp;ptid=1922029" target="_blank">13. 发表于 2020-4-2 20:50</a>
+
+你又态度明确了，或者说你态度不得不明确啊
+
+舌头伸出来没舔好当然有锅了，舔的不出这事不就没问题了？ ...</blockquote>
+这不是明摆这么，
+
+哄一部分国人但是不侵害其他国人的利益，这不是舔；
+
+哄一部分洋人但是不侵害其他国人的利益，这不是舔；
+
+
+但凡同时侵害其他国人利益了，就是舔。
+
+
+
+
+
+
+
+-----
+
+####  nicholasure  
+##### 511#       发表于 2020-4-2 21:06
+
+
+
+<blockquote>Dmitry 发表于 2020-4-2 01:17
+**** 作者被禁止或删除 内容自动屏蔽 ****</blockquote>
+事情闹大了，估计自己要进号子，工作也丢了，难道要自己的妻儿流浪街头啊？
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 512#       发表于 2020-4-2 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959867&amp;ptid=1922029" target="_blank">13. 发表于 2020-4-2 20:54</a>
+
+你到底懂不懂什么叫权益不被侵犯？外国留学生宿舍住的比中国人好是不是在你这里权益也没被侵犯，根本没动 ...</blockquote>
+国内的三甲医院，日常洋人挂号都是和国人混在一起的，但是经常会遇到某个洋人沟通不畅，一般在药房或者门诊都会有几个口语流利的，这时候会过去单独把老外拉在一边沟通，然后指导他应该如何办，这样对排队的国人和洋人才是双赢，唯一多付出工作的是医院。国外医院同理，如果完全无语言沟通能力，也会提供一个母语翻译。我的方案，单独让老外在另一边的窗口沟通，仅增加检测单位工作量，并没有侵害排队国人的权益。
+
+
+如果你要说检测单位工作人员的权益被侵害了，那么我只能呵呵了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 513#       发表于 2020-4-2 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959858&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:53</a>
+
+这个问题不是很清楚么。
+
+首先，排队检测的国人的权益不能动；
+
+其次，外籍人员的检测工作要开展会遇到很多 ...</blockquote>
+要额外付出，这不是优待什么是优待。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 514#       发表于 2020-4-2 21:12
+
+
+
+ 本帖最后由 wzh5555 于 2020-4-2 21:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960049&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 21:11</a>
+
+要额外付出，这不是优待什么是优待。</blockquote>
+湖北有奖奖励检测新冠，这是优待么？ 这是临时的鼓励政策。
+
+如果检测单位不额外付出，最后动用行政和警力，综合哪个损失更大？
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 515#       发表于 2020-4-2 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960056&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 21:12</a>
+
+湖北有奖奖励检测新冠，这是优待么？ 这是临时的鼓励政策。</blockquote>
+湖北的是中国人，那些是中国人么
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 516#       发表于 2020-4-2 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960073&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 21:13</a>
+
+湖北的是中国人，那些是中国人么</blockquote>
+这件事核心就是不能双标，各种鼓励政策真的是当时最核心的矛盾 ：湖北当时是当地国人漏检问题，现阶段是国外回输漏检问题。
+
+这与是国人还是洋人无关，
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 517#       发表于 2020-4-2 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960095&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 21:15</a>
+
+这件事核心就是不能双标，各种鼓励政策真的是当时最核心的矛盾 ：湖北当时是当地国人漏检问题，现阶段是国 ...</blockquote>
+你觉得如果一个国人说你不给我插队我就不测了，结果是什么？
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 518#       发表于 2020-4-2 21:20
+
+
+
+ 本帖最后由 wzh5555 于 2020-4-2 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960122&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 21:18</a>
+
+你觉得如果一个国人说你不给我插队我就不测了，结果是什么？</blockquote>
+先劝说，不听劝说强行制止或报警。没有任何双标的余地，做这种事的人要为自己的行为负责
+
+
+但你没看到主楼这个事的核心槽点么？
+
+【工作人员主动提出让洋人插队，影响国人的队伍，同时给出的解释是“面子”】是检测单位人员的主动舔跪。潜在的就是检测单位懒政，自己省事了，但是侵害了正常排队国人的利益，还替国人下跪。
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 519#       发表于 2020-4-2 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959597&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 20:24</a>
+
+美国很多医院必须给病人配母语翻译，否则可以被起诉。</blockquote>
+青岛这何止是配母语翻译，根本就是跪式服务。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 520#       发表于 2020-4-2 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960205&amp;ptid=1922029" target="_blank">真田丸 发表于 2020-4-2 21:26</a>
+
+青岛这何止是配母语翻译，根本就是跪式服务。</blockquote>
+给洋人的方便到“协助语言沟通”程度没问题，但是工作人员指导洋人插队这确实是看不懂。
+
+
+
+
+
+                                
