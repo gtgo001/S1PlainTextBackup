@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 18:12** 
+> ## **本文件最后更新于2020-04-02 20:09** 
 
 
 
@@ -1051,7 +1051,7 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-<img src="https://imgchr.com/i/G8qyOx" id="aimg_MHS3a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/G8qyOx" id="aimg_WkK0E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/02/000852h47p4lcc8iw1cpta.jpg" referrerpolicy="no-referrer">
 
@@ -3323,10 +3323,11 @@ ctnnd
 
 
 
- 参与人数 3战斗力 0
+ 参与人数 4战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ghy_holo| + 1|欢乐多|
 | narutoz| + 1|平衡|
 | lalala德玛西亚| + 1|平衡|
 | flyzzhj|-2|思路广|
@@ -4517,10 +4518,11 @@ weibo闹的再大，外国人根本不关心
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 不和谐音|-1||
 | Rosefinch|-1||
 
 
@@ -4740,10 +4742,11 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 不和谐音| + 1|确实，不管打赢打输都少不了个寻衅滋事.|
 | 橘皮刺客| + 1||
 | thesa|-1|怂人怂逻辑|
 
@@ -4804,6 +4807,25 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 果然疫情好转了，主要矛盾在网上都给转移到超国民待遇的问题上了。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 扭头就走| + 1|本帖唯一真相，哈哈哈哈|
+
+
+
+查看全部评分
 
 
 
@@ -8312,10 +8334,17 @@ should of还行
 
 
 
- 参与人数 2战斗力 -4
+ 参与人数 9战斗力 -6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 不和谐音| + 1|回血|
+| ghy_holo|-1|那希望别是你家第一个磕头|
+| 绯色本子| + 1|欢乐多|
+| 山东|-1||
+| edes|-2||
+| qx1995|-1||
+| ebox| + 1|山东大学，赞👍|
 | zyc1629|-2|地域黑要有个度|
 | lightingstar|-2|居然没人抠你这个sb分，我先来.|
 
@@ -9150,4 +9179,371 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-                                  
+
+
+-----
+
+####  lightingstar  
+##### 476#       发表于 2020-4-2 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46958222&amp;ptid=1922029" target="_blank">vx11 发表于 2020-4-2 18:07</a>
+
+在鲁黑论坛说这个没人看的</blockquote>
+无所谓
+
+我也骂领导傻逼，我也喷山东保守没劲的地方
+
+但tm的说山东投敌投降，我就真忍不了
+
+说抗疫的时候贡献，哪个省市都不少，武汉以及整个湖北都很难，周边河南安徽山东湖南等那一圈省市也难，大家一起做贡献把这波熬过去了，谁都没丢脸，也没什么值得特殊夸山东的
+
+但是说打起仗来投敌我就不能忍了，这tm的是人话？你看看军队里山东人多少再说这种屁话，你看看从抗日到解放山东人啥时候怂过。
+
+狗叔封我号我也得喷死这个sb
+
+
+
+
+
+
+
+-----
+
+####  luoxiang  
+##### 477#       发表于 2020-4-2 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46950543&amp;ptid=1922029" target="_blank">余海露 发表于 2020-04-02 03:08:49</a>
+日俄战争后从德国的地盘变更为日本独占</blockquote>是一战后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 478#       发表于 2020-4-2 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46958295&amp;ptid=1922029" target="_blank">lightingstar 发表于 2020-4-2 18:13</a>
+
+无所谓
+
+我也骂领导傻逼，我也喷山东保守没劲的地方
+
+但tm的说山东投敌投降，我就真忍不了</blockquote>
+主要还是官场sb，山东官场又是全国官场中比较sb的。
+
+
+
+
+
+
+
+-----
+
+####  lightingstar  
+##### 479#       发表于 2020-4-2 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46958461&amp;ptid=1922029" target="_blank">七色梦幻亚雷特 发表于 2020-4-2 18:29</a>
+
+主要还是官场sb，山东官场又是全国官场中比较sb的。</blockquote>
+没错，官场sb，但是哪里的官场没干过sb的事情
+
+而且山东官场有个好，特别听中央的话。对省内或许不一定是件好事，但是对全国大局还是很有帮助的。需要啥支援的事情，山东都是冲在前面也没二话。
+
+我感觉倒没什么，日子都是照样过，全国大局确实很重要。只要不碰到那种sb，我都是很心平气和的
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 480#       发表于 2020-4-2 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46958579&amp;ptid=1922029" target="_blank">lightingstar 发表于 2020-4-2 18:39</a>
+
+没错，官场sb，但是哪里的官场没干过sb的事情
+
+而且山东官场有个好，特别听中央的话。对省内或许不一定是 ...</blockquote>
+嗯，这么说，归根结底，还是……sb<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YESIARE  
+##### 481#       发表于 2020-4-2 18:45
+
+
+
+
+又又又让我想起南京地铁“治不了洋人还治不了你”的事了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  潇洒一郎君  
+##### 482#       发表于 2020-4-2 18:59
+
+
+
+
+看了完整视频，那老黑也没多大错啊，不就俩个人对骂上头了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这事最大锅还是在崂山政府那里，避重就轻把处理失误扭成民族矛盾了，山东官僚名不虚传
+
+
+
+
+
+
+
+-----
+
+####  ghy_holo  
+##### 483#       发表于 2020-4-2 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951680&amp;ptid=1922029" target="_blank">archfriend12 发表于 2020-4-2 09:18</a>
+这就是尼谭谭友一直吹的一言不合刚正面的山东大汉吗？？？</blockquote>
+泥潭黑沙东是传统，可从来不会夸啊，你夸那就是儒家遗毒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 484#       发表于 2020-4-2 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46951539&amp;ptid=1922029" target="_blank">7uly 发表于 2020-4-2 09:05</a>
+
+凭啥哄着来？不检测直接按照不遵守防疫措施遣送回国呗</blockquote>
+车轱辘话还要反复说？
+
+检测单位负责通知洋人，洋人嘴上不愿意，但是结果劝说人来了，单独来个英语流利的人接待，同时告知后面排队的国人具体情况，不影响国人的队伍。这样很难？
+
+
+
+
+
+
+
+-----
+
+####  雨季朦胧了  
+##### 485#       发表于 2020-4-2 19:21
+
+
+
+
+你们觉得山东官僚跪了，但实际上山东官僚是拿全国人民对付洋人，成功把自己的锅甩出去，让洋大人给他们自己背锅，谁行？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 486#       发表于 2020-4-2 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953335&amp;ptid=1922029" target="_blank">真田丸 发表于 2020-4-2 11:38</a>
+
+呵呵，对国民就用警察，对洋狗就要哄，你也是跪久了吧</blockquote>
+你这才是双标了，
+
+国人也有检测有抵触情绪的，之前就有很多老人不配合工作甚至还有老人不愿意戴口罩的，当然也是先哄、先劝说，劝说无效才上强制，在矛盾没有明确激化前就直接上强制的做法我是没听说过。这件事上凭什么不哄国人，单哄洋人。明明是为了工作效率都在哄。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 487#       发表于 2020-4-2 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46953076&amp;ptid=1922029" target="_blank">lacusforever 发表于 2020-4-2 11:19</a>
+
+哄个屁不配合检测直接驱逐出境！你看这给惯的，给特权都变成应该的了。 ...</blockquote>
+纯属有病。
+
+真遇到混蛋洋人，直接上公安强制； 但世界上就只有配合的洋人和混蛋洋人两种极端么？
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 488#       发表于 2020-4-2 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959000&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 19:23</a>
+你这才是双标了，
+
+国人也有检测有抵触情绪的，之前就有很多老人不配合工作甚至还有老人不愿意戴口罩的，当 ...</blockquote>
+请问这些洋狗是老年人吗？是动辄心脏病发作瘫倒在地的老年人吗？哄他们的原因是什么？不哄他们的后果又是什么？
+
+
+
+
+
+
+
+-----
+
+####  13.  
+##### 489#       发表于 2020-4-2 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46958982&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 19:20</a>
+
+车轱辘话还要反复说？
+
+检测单位负责通知洋人，洋人嘴上不愿意，但是结果劝说人来了，单独来个英语流利的 ...</blockquote>
+放你妈的屁，我英语流利他接待我不？
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 490#       发表于 2020-4-2 19:59
+
+
+
+ 本帖最后由 wzh5555 于 2020-4-2 20:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959326&amp;ptid=1922029" target="_blank">真田丸 发表于 2020-4-2 19:55</a>
+
+请问这些洋狗是老年人吗？是动辄心脏病发作瘫倒在地的老年人吗？哄他们的原因是什么？不哄他们的后果又是 ...</blockquote>
+疫情特殊时期自然有特殊的工作难度，每一个人群的沟通困难都不一样，那么特事特办的原因自然也不一样。
+
+
+我想问你，之前疫情还比较严重的时候，湖北多个地区采取了【主动参与检测+确认新冠的人士奖励现金】用来减少漏检、节约行政和警力成本，你觉得这个举措是受众一定是老弱病残孕么？一定家里有经济困难么？ 那为什么还要这么哄？ 这是不是舔跪国人呢？
+
+劝说洋人配合工作、同时给与语言、接待上的暂时方便为了提高整体检测效率、减少漏检，节约警力成本。这也就是检测机构自身多做事就能解决的问题。
+
+检测机构懒政的两种可能的结果，1）漏检 2）浪费警力
+
+
+
+
+
+
+
+-----
+
+####  七色梦幻亚雷特  
+##### 491#       发表于 2020-4-2 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959361&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 19:59</a>
+
+疫情特殊时期自然有特殊的工作难度，每一个人群的沟通困难都不一样，那么特事特办的原因自然也不一样。
+
+
+ ...</blockquote>
+这个没法理科中。
+
+要是老黑不说那句chinese get  out还好，说了之后工作人员还和稀泥，就很难平复国人的愤怒了。
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 492#       发表于 2020-4-2 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959345&amp;ptid=1922029" target="_blank">13. 发表于 2020-4-2 19:57</a>
+
+放你妈的屁，我英语流利他接待我不？</blockquote>
+呵呵，连外语接待你都要觉得是个香饽饽来抢，看来你可能是个ABC，汉语已经退化了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 493#       发表于 2020-4-2 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959400&amp;ptid=1922029" target="_blank">七色梦幻亚雷特 发表于 2020-4-2 20:03</a>
+
+这个没法理科中。
+
+要是老黑不说那句chinese get  out还好，说了之后工作人员还和稀泥，就很难平复国人的 ...</blockquote>
+主要问题就在于检测人员的懒政+错误的和稀泥。
+
+毫无理由的侵害排队国人的权益，同时不给任何合理的解释；
+
+“面子”说直接下跪，还替其他国人下跪，这就很莫名其妙了。
+
+
+
+
+
+                                 
