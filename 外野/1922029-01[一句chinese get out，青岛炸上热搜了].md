@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 22:09** 
+> ## **本文件最后更新于2020-04-03 20:11** 
 
 
 
@@ -1051,7 +1051,7 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-<img src="https://imgchr.com/i/G8qyOx" id="aimg_k9Ynj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgchr.com/i/G8qyOx" id="aimg_ZiDlw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/02/000852h47p4lcc8iw1cpta.jpg" referrerpolicy="no-referrer">
 
@@ -1893,10 +1893,11 @@ Chinese get out好像也是一句话剪辑出来的，原话是“美国也有�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| cedric301| + 1||
 | youlen| + 1|欢乐多，后清就是这样子的啦|
 
 
@@ -4565,6 +4566,25 @@ weibo闹的再大，外国人根本不关心
 一边想着让你去当义和团痛打洋人，一边又会在义和团被砍头时站旁边说一句“两边都活该”。
 要不要脸啊
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| OrianaThomson| + 1|欢乐多|
+
+
+
+查看全部评分
 
 
 
@@ -8323,8 +8343,9 @@ should of还行
 
 
 
+ 本帖最后由 huyangxinhn 于 2020-4-3 01:14 编辑 
 
-山东嘛，不奇怪，毕竟是出过跪舔外国的山东大学，哪天世界大战，搞不好山东第一个投敌。
+山东嘛，不奇怪，毕竟是出过跪舔外国的山东大学，哪天世界大战，搞不好山东某些人啊第一个投敌。
 
 
 
@@ -9105,11 +9126,19 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
+ 本帖最后由 lightingstar 于 2020-4-3 11:58 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46956724&amp;ptid=1922029" target="_blank">huyangxinhn 发表于 2020-4-2 16:19</a>
+
 山东嘛，不奇怪，毕竟是出过跪舔外国的山东大学，哪天世界大战，搞不好山东第一个投敌。 ...</blockquote>
 既然没人喷你，那我先来喷你这个sb
+
 抗疫期间山东一波波送人去黄冈，一波波送物资去湖北，当时你这个sb怎么不站出来，你做了个屁的贡献
+
 领导傻逼就是领导傻逼，你这个人站出来喷说这种话，我就得站出来喷死你，你他妈的才去投敌
+
+
+更新，我这算是保留证据了，你这sb还知道改成某些人，别以为没人记得你说的这p话
+
 
 
 
@@ -9480,6 +9509,25 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 检测机构懒政的两种可能的结果，1）漏检 2）浪费警力
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rainwang|-1|拿去补补脑子|
+
+
+
+查看全部评分
 
 
 
@@ -10153,4 +10201,557 @@ md这男的居然转头真走了，太tm丢人了吧</blockquote>
 
 
 
-                                
+
+
+-----
+
+####  neverMJ  
+##### 521#       发表于 2020-4-2 22:25
+
+
+
+
+子曰：君子之德风，小人之德++
+
+        
+
+只要君子  鬼畜  跪出水平跪出风格跪出成绩，小人们终能被感化出优美的跪姿，其中的悟性高先进分子的还能入读名校和穿上各种威武制服
+
+        
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粪海肥蛆  
+##### 522#       发表于 2020-4-2 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959055&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 19:27</a>
+纯属有病。
+
+真遇到混蛋洋人，直接上公安强制； 但世界上就只有配合的洋人和混蛋洋人两种极端么？
+
+ ...</blockquote>
+只有死了的与活着的。
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 523#       发表于 2020-4-3 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959055&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 19:27</a>
+
+纯属有病。
+
+真遇到混蛋洋人，直接上公安强制； 但世界上就只有配合的洋人和混蛋洋人两种极端么？
+
+ ...</blockquote>
+中立秩序洋人请排个队呗。
+
+
+
+
+
+
+
+-----
+
+####  deenyao  
+##### 524#       发表于 2020-4-3 08:29
+
+
+
+
+现在只是教育一下哦
+
+
+
+
+
+
+
+-----
+
+####  千古奇冤施密特  
+##### 525#       发表于 2020-4-3 08:30
+
+
+
+<blockquote>潇洒一郎君 发表于 2020-4-2 18:59
+看了完整视频，那老黑也没多大错啊，不就俩个人对骂上头了这事最大锅还是在崂山政府那里，避重就轻 ...</blockquote>
+尼哥都让你滚蛋还没多大错，您这膝盖都生根了
+
+
+
+
+
+
+
+-----
+
+####  nexus1  
+##### 526#       发表于 2020-4-3 08:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46957519&amp;ptid=1922029" target="_blank">aeplantim 发表于 2020-4-2 17:15</a>
+
+寻衅滋事不会吗</blockquote>
+按照罗翔的说法，这个罪名属于刑法的耻辱，考试都不会考，你说给老外套这个罪名是不是想在国际上出名？
+
+
+
+
+
+
+
+-----
+
+####  lacusforever  
+##### 527#       发表于 2020-4-3 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959361&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 19:59</a>
+
+疫情特殊时期自然有特殊的工作难度，每一个人群的沟通困难都不一样，那么特事特办的原因自然也不一样。
+
+
+ ...</blockquote>
+A是不对的所以B也是不对的。
+
+A对对的所以B也是对的。
+
+好会同化共情啊。
+
+
+原来勤政为民等于给洋人大开绿灯。昨天外交部的一视同仁算白说了。
+
+
+
+
+
+
+
+-----
+
+####  其实还好  
+##### 528#       发表于 2020-4-3 08:42
+
+
+
+
+泥潭有些用户还是太自卑，国际上出名真是看笑了
+
+
+
+
+
+
+
+-----
+
+####  seele9999  
+##### 529#       发表于 2020-4-3 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963230&amp;ptid=1922029" target="_blank">其实还好 发表于 2020-4-3 08:42</a>
+
+泥潭有些用户还是太自卑，国际上出名真是看笑了</blockquote>
+跟青岛这些人一个思路，很好理解。生怕得罪了洋大人。
+
+
+
+
+
+
+
+-----
+
+####  无须关怀  
+##### 530#       发表于 2020-4-3 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960049&amp;ptid=1922029" target="_blank">Rosefinch 发表于 2020-4-2 21:11</a>
+
+要额外付出，这不是优待什么是优待。</blockquote>
+给翻译和优先服务不是一回事。
+
+西欧的洋大人国家（美国不了解，不敢说）一个不懂英文的人看病一样会给你一个翻译，只是需要预约。这是服务人性化的表现，不要总是一看见人性化就神经过敏，国内服务业水平确实有需要改进的地方。而且对于传染病防控，帮别人就是帮自己。
+
+但是优先服务就没有任何理由。
+
+
+
+
+
+
+
+-----
+
+####  别叫我宅男  
+##### 531#       发表于 2020-4-3 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960095&amp;ptid=1922029" target="_blank">wzh5555 发表于 2020-4-2 21:15</a>
+
+这件事核心就是不能双标，各种鼓励政策真的是当时最核心的矛盾 ：湖北当时是当地国人漏检问题，现阶段是国 ...</blockquote>
+国外回来漏检本身就已经是失职了，你不检测怎么进来的？又是洋大人专属通道么
+
+
+
+
+
+
+
+-----
+
+####  潇洒一郎君  
+##### 532#       发表于 2020-4-3 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963137&amp;ptid=1922029" target="_blank">千古奇冤施密特 发表于 2020-4-3 08:30</a>
+尼哥都让你滚蛋还没多大错，您这膝盖都生根了</blockquote>
+这不就是俩拨人互怼吵上头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">部分人实属玻璃心，这就生气了？可真够好笑呢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rosefinch|-1||
+| rainwang|-1|张嘴接好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  sk86  
+##### 533#       发表于 2020-4-3 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963956&amp;ptid=1922029" target="_blank">潇洒一郎君 发表于 2020-04-03 10:01:25</a>
+这不就是俩拨人互怼吵上头了部分人实属玻璃心，这就生气了？可真够好笑呢 ...</blockquote>哪咋样才能生气，再你头上撒尿？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路西恩  
+##### 534#       发表于 2020-4-3 11:35
+
+
+
+
+后面几楼里面舌战群儒的那位，申论行测应该都还行呢。<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  潇洒一郎君  
+##### 535#       发表于 2020-4-3 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46964939&amp;ptid=1922029" target="_blank">sk86 发表于 2020-4-3 11:24</a>
+哪咋样才能生气，再你头上撒尿？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+  看了完整视频就是俩拨人对吵，我们这边先说外国人滚出中国，外国人回击美国也有八百万中国人。这种情况对骂出什么话我也不会生气。唯一的感觉就是沙东行政水平实属废物这种事搞不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 536#       发表于 2020-4-3 11:42
+
+
+
+
+没人人肉尼哥吗？
+
+
+
+
+
+
+
+-----
+
+####  夏溪澪mio  
+##### 537#       发表于 2020-4-3 16:15
+
+
+
+
+微博上看到的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  armagemon  
+##### 538#       发表于 2020-4-3 16:36
+
+
+
+
+发北京坦桑尼亚的没看见，发广州icu咬人的被删了，就剩这个青岛的还在...<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GoInDown  
+##### 539#       发表于 2020-4-3 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46965102&amp;ptid=1922029" target="_blank">潇洒一郎君 发表于 2020-04-03 11:38:31</a>
+看了完整视频就是俩拨人对吵，我们这边先说外国人滚出中国，外国人回击美国也有八百万中国人。这种情况 ...</blockquote>这问题本质其实也很简单额，为什么会吵呢
+
+结果只有这个问题说不明白233
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  AZHT  
+##### 540#       发表于 2020-4-3 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46967979&amp;ptid=1922029" target="_blank">夏溪澪mio 发表于 2020-4-3 16:15</a>
+
+微博上看到的</blockquote>
+这也太强行了吧
+
+
+
+
+
+
+
+-----
+
+####  huaiyi2604  
+##### 541#       发表于 2020-4-3 17:29
+
+
+
+
+其实我更怀疑北京那个限期驱逐出境有没有人去落实，洋垃圾到期赖着不走，哪个部门会去上门拽走？
+
+
+
+
+
+
+
+-----
+
+####  liuliu66  
+##### 542#       发表于 2020-4-3 19:40
+
+
+
+
+这档口还在带外国友人跟中国的节奏，你说没有敌特在楼里收钱发言我是不信的
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 543#       发表于 2020-4-3 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963115&amp;ptid=1922029" target="_blank">lacusforever 发表于 2020-4-3 08:27</a>
+
+中立秩序洋人请排个队呗。</blockquote>
+如果这次检测的洋人够多，那么本就应该考虑开一个洋人窗口，让洋人们单独一队，不挤占国人的队伍；
+
+即便有刁民洋人插队，插的也是洋人的队，让他们去和老实的洋人怼去。
+
+
+如果洋人人数很少么，如果遇到刁民洋人，就单独找一个人拉出来说话，凭什么插队？
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 544#       发表于 2020-4-3 19:49
+
+
+
+ 本帖最后由 wzh5555 于 2020-4-3 19:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963194&amp;ptid=1922029" target="_blank">lacusforever 发表于 2020-4-3 08:37</a>
+
+A是不对的所以B也是不对的。
+
+A对对的所以B也是对的。
+
+好会同化共情啊。</blockquote>
+？？？给洋人开绿灯？？？
+
+你到底有没有明白主楼的槽点？
+
+主楼的槽点就是【检测单位自说自话同意给洋人开绿灯，插国人的队】，谁给他的权利？？？
+
+
+同化同情？？
+
+1）洋人来我国办理事务，提供母语接待是正常要求，要求插国人的队是不正常要求；
+
+2）如果洋人检测人数极多，和国人相当，这样一方面挤占了国人的资源和时间，另一方面也对接待人员要求有所提高，因此应当考虑一开始就开两个窗口，一个国人窗口，一个洋人窗口或混合窗口
+
+3）提供语言服务+单开洋人窗口或洋人专门排一队 = 舔跪式开绿灯？？？
+
+
+如果这个事发生前，洋人自己排一个队伍，工作人员许诺刁民洋人可以插洋人自己的队伍，会有主楼的槽点？？？让洋人去怼洋人的利益这才是一视同仁好吗
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ukuli  
+##### 545#       发表于 2020-4-3 19:53
+
+
+
+[https://m.weibo.cn/1662214194/4489575886017789](https://m.weibo.cn/1662214194/4489575886017789)
+
+道歉签名:下跪的辫子奴
+
+
+
+
+
+
+
+-----
+
+####  ukuli  
+##### 546#       发表于 2020-4-3 19:54
+
+
+
+
+这说的应该是楼里的几个人吧233
+
+
+
+
+
+
+
+-----
+
+####  wzh5555  
+##### 547#       发表于 2020-4-3 20:04
+
+
+
+ 本帖最后由 wzh5555 于 2020-4-3 20:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963476&amp;ptid=1922029" target="_blank">别叫我宅男 发表于 2020-4-3 09:14</a>
+
+国外回来漏检本身就已经是失职了，你不检测怎么进来的？又是洋大人专属通道么 ...</blockquote>
+什么叫专属通道？
+
+不侵害和挤占国人的利益是大前提。
+
+如果洋人需要检测的人数极多，那么单列洋人窗口，反而是最公平的；如果洋人数量少，那么检测单位专门找个口语好的一边去沟通，凭什么插国人队？
+
+
+再说了，如果是国外回来刁民逃检那么应当直接上强制； 如果是漏检的，是谁的失职？
+
+
+
+
+
+                               
