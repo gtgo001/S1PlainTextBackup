@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-03 22:02** 
+> ## **本文件最后更新于2020-04-04 00:01** 
 
 
 
@@ -3276,4 +3276,396 @@ v吧是彻底完了回不去了吗syl 官号有拉黑功能吗
 
 
 
-                                            
+
+
+-----
+
+####  坚果收藏家  
+##### 15179#       发表于 2020-4-3 22:03
+
+
+
+
+都2020年了你们天狗怎么还在怼黑子
+
+不是早就应该明白矛盾是不可调和的了吗
+
+
+除非有些人看mea就是为了和别家粉丝打架
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15180#       发表于 2020-4-3 22:06
+
+
+
+
+有妄图以德服404内味儿了，最后只会是看屁股在哪儿。
+
+
+喷？你是能喷得死他？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15181#       发表于 2020-4-3 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有恢复不了的秩序，只有你砍头够不够快，现在贴吧的管理太神秘了，吧主还能永封么，还是只能10天
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 15182#       发表于 2020-4-3 22:58
+
+
+
+
+我在V吧还有吧务的时候，骑在豆腐和七色狗的头上拉屎也只被封了7天
+
+估计现在是没有什么永封的操作了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15183#       发表于 2020-4-3 22:59
+
+
+
+
+泻药，混贴吧多年，只知道十循，没听说过永封<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15184#       发表于 2020-4-3 23:03
+
+
+
+
+只只大冒险和the forst有日文版么？感觉快要征集游戏了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15185#       发表于 2020-4-3 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971467&amp;ptid=1912063" target="_blank">zhicai618 发表于 2020-4-3 23:03</a>
+只只大冒险和the forst有日文版么？感觉快要征集游戏了。</blockquote>
+the forst不是个恐怖游戏么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她玩的了吗
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15186#       发表于 2020-4-3 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971496&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-3 23:06</a>
+the forst不是个恐怖游戏么她玩的了吗</blockquote>
+15w快到了。而且我看还有多人模式
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15187#       发表于 2020-4-3 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971500&amp;ptid=1912063" target="_blank">zhicai618 发表于 2020-4-3 23:06</a>
+15w快到了。而且我看还有多人模式</blockquote>
+多人模式草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她最近对神乐组这么上心，可以发推推荐下试试
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15188#       发表于 2020-4-3 23:08
+
+
+
+
+都有日文版
+森林不去洞穴里也没啥恐怖的吧，我玩的时候前期净给那种田了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15189#       发表于 2020-4-3 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971516&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-3 23:08</a>
+多人模式草她最近对神乐组这么上心，可以发推推荐下试试</blockquote>
+不急，15w再说。mea好久没征集游戏我记得。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15190#       发表于 2020-4-3 23:10
+
+
+
+
+她不是说恐怖游戏20w再说么
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15191#       发表于 2020-4-3 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971536&amp;ptid=1912063" target="_blank">暗心舞踏 发表于 2020-4-3 23:10</a>
+她不是说恐怖游戏20w再说么</blockquote>
+开纪念回就要玩我记得
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 15192#       发表于 2020-4-3 23:16
+
+
+
+
+反正也没有下一期，玩那种流程长的游戏就是折磨人，还不如随便整点主播金游
+
+什么human fall flat啦，踩高跷啦，全面战争模拟器啦，那种一看就很nt的游戏更合适
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 15193#       发表于 2020-4-3 23:33
+
+
+
+
+火柴人好啊，建议多播几次
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15194#       发表于 2020-4-3 23:36
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-3 23:37 编辑 
+
+我感觉是她自己也不确定怎么播游戏比较好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以现在除了mc，都不怎么播单人游戏了
+要是能从联动入手让她找到点适合的游戏就好了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15195#       发表于 2020-4-3 23:38
+
+
+
+
+怎么管人就只会固守那几个游戏和跟风呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15196#       发表于 2020-4-3 23:43
+
+
+
+
+恐怖游戏，想推荐一下锈湖的游戏，与其说恐怖，不如说是诡异风格的解密游戏，这种程度的恐怖应该刚好，而且游戏本身也很有趣（唯一需要担心的就是解密游戏没什么“节目效果”，还容易卡关）
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 15197#       发表于 2020-4-3 23:45
+
+
+
+
+锈湖是我去年心心念念的游戏了，另外一个是魔能2
+
+
+
+
+
+
+
+-----
+
+####  三学研究员  
+##### 15198#       发表于 2020-4-3 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她那个iq能玩得了绣湖吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15199#       发表于 2020-4-3 23:50
+
+
+
+
+绣湖只玩一作完全摸不到头脑吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前慕名玩过，好多时候都搞不懂它解密的逻辑
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 15200#       发表于 2020-4-3 23:52
+
+
+
+
+对你咩的纪念回和游戏力不抱任何希望，还是唱15小时的歌好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15201#       发表于 2020-4-3 23:59
+
+
+
+
+相比15小时歌回还是游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+生化3有可能吗，也不恐怖
+
+
+
+
+
+                                           
