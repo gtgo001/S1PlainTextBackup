@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-03 10:02** 
+> ## **本文件最后更新于2020-04-03 22:04** 
 
 
 
@@ -26083,4 +26083,568 @@ tvb配音版的打工魔王还玩过“XX第一智将（障）”这个梗<img s
 
 
 
-      
+
+
+-----
+
+####  zuga  
+##### 52294#       发表于 2020-4-3 10:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46962597&amp;ptid=98922" target="_blank">zodiac137 发表于 2020-4-3 03:50</a>
+
+四皇团其实大部分的战力都是来自皇级本身（例子就是白胡子死了后整个白胡子团就没落了），路飞如果做不到 ...</blockquote>
+咦，这么一说好像幽白魔强统一战，三国战力的绝大部分都在国王一人身上，虽然下属实力也很重要，但是国王的实力才是决定性的。不过海贼这边好像副船长地位也是很高的，感觉是比如总船长战力为100%，副船长大约是80%~95%，分船长级（白胡子队长，凯多三灾，大妈将星）60%~70%这种？而且这么一看，好像只有单船精锐类型的海贼团才有副船长，比如罗杰和红发团都是明确写了船副是谁的，其他四皇都没有。
+
+
+
+
+
+
+
+-----
+
+####  高卢鸡  
+##### 52295#       发表于 2020-4-3 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46964229&amp;ptid=98922" target="_blank">zuga 发表于 2020-4-3 10:25</a>
+
+咦，这么一说好像幽白魔强统一战，三国战力的绝大部分都在国王一人身上，虽然下属实力也很重要，但是国王 ...</blockquote>
+其他四皇团皇副实力不够看，所以凑出了三灾、四将星。
+
+目前甚平加入，不知道草帽团怎么排位了，按说索隆最早上船，表现出的实力除了霸王色没表现之外（忘了，即使表现过也很少），其他与路飞不相上下，后面怎么安排甚平和索隆呢？
+
+山治就不提了，原来的保三望二，现在彻底成了杂兵团，还不如弗兰奇将军呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 52296#       发表于 2020-4-3 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46965001&amp;ptid=98922" target="_blank">高卢鸡 发表于 2020-4-3 11:29</a>
+
+其他四皇团皇副实力不够看，所以凑出了三灾、四将星。
+
+目前甚平加入，不知道草帽团怎么排位了，按说索隆 ...</blockquote>
+大部分人新世界都有升级，娜美更是打完大妈收个雷云就离谱
+
+山治弄了个鸟用没有的变身服，而且新世界升级是最没用的“区区月步”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  高卢鸡  
+##### 52297#       发表于 2020-4-3 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46965139&amp;ptid=98922" target="_blank">真红眼教授 发表于 2020-4-3 11:41</a>
+
+大部分人新世界都有升级，娜美更是打完大妈收个雷云就离谱
+
+山治弄了个鸟用没有的变身服，而且新世界升级 ...</blockquote>
+其实也是完美达成了他旅行的目的，可以进入女澡堂了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，另一个all blue就不提了，有一个目的实现就行了
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 52298#       发表于 2020-4-3 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46965158&amp;ptid=98922" target="_blank">高卢鸡 发表于 2020-4-3 11:43</a>
+
+其实也是完美达成了他旅行的目的，可以进入女澡堂了，另一个all blue就不提了，有一个目的实现就 ...</blockquote>
+原来是HE<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 52299#       发表于 2020-4-3 11:53
+
+
+
+
+新世界之后，草帽团里索罗对应模板就是罗杰团的雷利呀，一直都是团里的第二战力呀
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52300#       发表于 2020-4-3 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46964229&amp;ptid=98922" target="_blank">zuga 发表于 2020-4-3 10:25</a>
+
+咦，这么一说好像幽白魔强统一战，三国战力的绝大部分都在国王一人身上，虽然下属实力也很重要，但是国王 ...</blockquote>
+黄级和皇副的差距绝对很大，就拿赏金来作为参照好了，四皇赏金40亿，皇副是10亿+，虽然我知道赏金不等于实力，但是在这个水平是有一定参考价值的
+
+
+要是觉得赏金没参考价值还可以换一个参照物，路飞勉勉强强打赢皇副的卡塔库栗，可以认为路飞有皇副水平，但是还是被凯多一招雷鸣八卦就秒了，可见四皇水平可以一招秒皇副，差距至少强3倍
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52301#       发表于 2020-4-3 13:57
+
+
+
+
+原来勘十郎是画了只鹤飞走了，真的好强。
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 52302#       发表于 2020-4-3 14:09
+
+
+
+
+真希望兔子上船（最后一页也有兔子）虽然没什么理由……
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52303#       发表于 2020-4-3 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46965578&amp;ptid=98922" target="_blank">zodiac137 发表于 2020-4-3 12:23</a>
+
+黄级和皇副的差距绝对很大，就拿赏金来作为参照好了，四皇赏金40亿，皇副是10亿+，虽然我知道赏金不等于 ...</blockquote>
+不是，卡塔库栗是我说的船副下一级（三灾四将星队长），目前直接说的副手只有雷利和贝克曼，凯多和大妈团都是没有明确副船长的。路飞的船副是佐罗，基德身边那个基拉虽然描写不少但是身份是“战斗员”不是船副，能明显感到实力地位都差不少。
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 52304#       发表于 2020-4-3 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46966786&amp;ptid=98922" target="_blank">zuga 发表于 2020-4-3 14:21</a>
+
+不是，卡塔库栗是我说的船副下一级（三灾四将星队长），目前直接说的副手只有雷利和贝克曼，凯多和大妈团 ...</blockquote>
+要说的话索隆的身份也一直是战斗员，虽然就表现跟定位来说给个副船长没问题
+
+最早基拉就是对标索隆的，超新星唯二两个二把手
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52305#       发表于 2020-4-3 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46963907&amp;ptid=98922" target="_blank">黑上シグマ 发表于 2020-4-3 09:57</a>
+
+官推发了个96卷的发售广告，“全伏笔，回收开始”
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+对比
+
+
+
+
+
+
+74ada54bd11373f06a5719fab30f4bfbfaed045d.jpg
+(84.09 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-3 14:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/03/143437jyg1ly4gygqy4z3t.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 52306#       发表于 2020-4-3 16:19
+
+
+
+
+堪十郎的能力终于达到该有的水平, 不过从这一群高手手中飞走实在是有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 52307#       发表于 2020-4-3 16:42
+
+
+
+
+在大海贼时代飞行确实是个很好的逃跑技能
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 52308#       发表于 2020-4-3 16:59
+
+
+
+
+甚平这怎么回事
+
+怎么看着一下老了十几二十岁的样子
+
+
+
+
+
+
+
+-----
+
+####  垃垃藻  
+##### 52309#       发表于 2020-4-3 17:31
+
+
+
+
+草帽团终于聚首了，河松趁现在跟老大哥多学几招吧，稍微会一点鱼人空手道就不会让勘十郎轻易溜走。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52310#       发表于 2020-4-3 17:52
+
+
+
+
+草帽团明面上不会有副船长的，除了路飞大家都是平等的，有副船长就变味了。
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52311#       发表于 2020-4-3 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46968421&amp;ptid=98922" target="_blank">扭头就走 发表于 2020-4-3 16:59</a>
+甚平这怎么回事
+
+怎么看着一下老了十几二十岁的样子</blockquote>
+看你说的吓我一跳，还以为甚平被大妈吸寿命的说法成真了。不过我看着感觉到是差不太多，感觉是因为换了身正经衣服+破相所以显得比之前老成了些。毕竟甚平本来年纪就比他们这些新一代年长不少了吧。
+
+
+
+
+
+
+
+-----
+
+####  ahyyk  
+##### 52312#       发表于 2020-4-3 19:17
+
+
+
+
+山治就一厨师，打架是兼职，让专人负责就好
+
+
+
+
+
+
+
+-----
+
+####  Kyo.C  
+##### 52313#       发表于 2020-4-3 19:37
+
+
+
+
+路飞成了皇级也不会明确分个皇副是肯定的，不过名义上没有，剧情安排上还会有，比方说有一种阴谋论是最终boss是红发团，那这样的话索隆毫无疑问就是对贝克曼，其他人挑个职能相近的就好。如果是黑胡子团就简单多了，船长打船长，剑客打剑客，船医打船医，厨师打厨师这样。另外海贼虽然是热血少年漫画，但是其实是很看重社会地位的，重要的衡量标准就是赏金，很多人一直觉得索隆和山治就是左右手两个平级战斗员，实际上从11名过亿的超新星那里只有路飞索隆没有山治就可以看出尾田是把索隆定位成一人之下的感觉，在剧中人物眼中“海贼猎人”的名号也比“黑足”响得多，然后就是山治背景戏份这么早就讲完了。。。后面再有个人的重要戏码就难了，相反索隆无论是背景还是个人理念都还大有可挖。
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52314#       发表于 2020-4-3 19:56
+
+
+
+
+在场的人里还真是甚平最强，甚至可能是碾压般地强，毕竟在海上
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52315#       发表于 2020-4-3 20:18
+
+
+
+
+是个人都知道罗的抗议是用来搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  机动妖精  
+##### 52316#       发表于 2020-4-3 20:22
+
+
+
+
+还缺一个强力空战单位<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52317#       发表于 2020-4-3 21:01
+
+
+
+<blockquote>Kyo.C 发表于 2020-4-3 19:37
+路飞成了皇级也不会明确分个皇副是肯定的，不过名义上没有，剧情安排上还会有，比方说有一种阴谋论是最终bo ...</blockquote>
+还有水之都篇，索隆的表现毫无疑问的二把手。
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 52318#       发表于 2020-4-3 21:11
+
+
+
+
+太过分了吧，让山治踢一脚都不行吗？
+
+
+
+
+
+
+
+-----
+
+####  ceruleancard  
+##### 52319#       发表于 2020-4-3 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46966668&amp;ptid=98922" target="_blank">cdfjg 发表于 2020-4-3 14:09</a>
+
+真希望兔子上船（最后一页也有兔子）虽然没什么理由……</blockquote>
+兔子肯定上船的，梦想背景种族性别技能战力性格全方面合适，还能变身！伏笔多的数不清
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 52320#       发表于 2020-4-3 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46970158&amp;ptid=98922" target="_blank">机动妖精 发表于 2020-4-3 20:22</a>
+
+还缺一个强力空战单位</blockquote>
+厨子党震怒
+
+
+
+
+
+
+
+-----
+
+####  机动妖精  
+##### 52321#       发表于 2020-4-3 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46970588&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2020-4-3 21:22</a>
+
+厨子党震怒</blockquote>
+不行！山治阁下，快回来！我又不好的预感！<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  roxas.sora  
+##### 52322#       发表于 2020-4-3 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这次海贼无双4厨子就是空战机体啊！
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52323#       发表于 2020-4-3 21:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46970158&amp;ptid=98922" target="_blank">机动妖精 发表于 2020-4-3 20:22</a>
+还缺一个强力空战单位</blockquote>
+那当然是
+
+
+弗兰奇将军 空装
+
+
+
+
+
+     
