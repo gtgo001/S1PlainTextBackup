@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-30 08:00** 
+> ## **本文件最后更新于2020-04-04 12:00** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_d977Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_Z42MJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -4114,4 +4114,503 @@ MKTN…… ​​​​
 
 
 
-                                          
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1716#       发表于 2020-3-30 10:03
+
+
+
+
+别啊，挺想看正太和女主cp的
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1717#       发表于 2020-3-30 11:29
+
+
+
+
+其他作品的人不要很自然地混在Q娃里好不好
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdbsmuogk5j20go0go4m1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1718#       发表于 2020-3-30 12:04
+
+
+
+
+最右边的女人是谁啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1719#       发表于 2020-3-30 16:30
+
+
+
+<blockquote>Sliurus 发表于 2020-3-30 12:04
+最右边的女人是谁啊
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+追加战士填充位？
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1720#       发表于 2020-3-30 21:12
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdbw5bg61jj210j0e10yz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 1721#       发表于 2020-3-30 22:29
+
+
+
+
+人物刻画互动都好 没有堆属性的感觉 而且打戏好长<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 1722#       发表于 2020-3-30 23:54
+
+
+
+
+说起来好久没看到这么屌（指态度）的反派干部了。三个里面两个完全不屌自己的boss，态度差的一批
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  吾道长不孤  
+##### 1723#       发表于 2020-3-31 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929090&amp;ptid=1860852" target="_blank">zyw0 发表于 2020-3-30 23:54</a>
+
+说起来好久没看到这么屌（指态度）的反派干部了。三个里面两个完全不屌自己的boss，态度差的一批
+
+
+  -- 来 ...</blockquote>
+从这个层面上再屌也很难屌过甜点那群干部了
+
+
+卡牌佬直接把BOSS吃了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1724#       发表于 2020-3-31 04:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929432&amp;ptid=1860852" target="_blank">吾道长不孤 发表于 2020-3-31 01:02</a>
+
+从这个层面上再屌也很难屌过甜点那群干部了
+
+
+卡牌佬直接把BOSS吃了 ...</blockquote>
+因为那boss是个弱智，弱到自己的分身比自己更懂思考人生……
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1725#       发表于 2020-3-31 12:08
+
+
+
+
+今年这boss感觉没啥逼格
+发话说先污染，结果三个手下还是盯着光美的一亩三分地，并且一周一次，摸鱼得很
+总有种恢复了也不强的感觉
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1726#       发表于 2020-3-31 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46932442&amp;ptid=1860852" target="_blank">天邪鬼 发表于 2020-03-31 12:08:22</a>
+今年这boss感觉没啥逼格
+发话说先污染，结果三个手下还是盯着光美的一亩三分地，并且一周一次，摸鱼得很
+总 ...</blockquote>除了茶几这种全球各地都有q娃的，反派不都只盯着q娃的小镇搞事吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 1727#       发表于 2020-3-31 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46932512&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-31 12:13</a>
+
+除了茶几这种全球各地都有q娃的，反派不都只盯着q娃的小镇搞事吗
+
+
+  -- 来自 能手机投票的 Stage1官 ...</blockquote>
+没记错也有出过国的
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1728#       发表于 2020-3-31 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46932512&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-3-31 12:13</a>
+除了茶几这种全球各地都有q娃的，反派不都只盯着q娃的小镇搞事吗
+
+  -- 来自 能手机投票的 Stage1官 ...</blockquote>
+但一般都是q娃身上有他们需要的东西或者为了打倒q娃，盯着也没啥问题
+而这季boss发话了这些人也是敷衍了事，态度还十分摸鱼。为了增加两者冲突给拿铁加个解除封印的钥匙或者恢复的特效药之类的设定就能合理不少
+当然要解释的话也能说这个小镇是特殊的/反派其实不能长距离移动，他们消失只是瞬间回城而已
+但没这种说明就……
+
+
+
+
+
+
+
+-----
+
+####  Garterbelt  
+##### 1729#       发表于 2020-4-1 07:41
+
+
+
+
+毕竟除了女干部，剩下两个一个肌肉脑一个懒，这个态度也可以理解
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1730#       发表于 2020-4-1 07:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46932533&amp;ptid=1860852" target="_blank">月夜凝雪 发表于 2020-3-31 12:15</a>
+
+没记错也有出过国的</blockquote>
+出国然后刚好遇到同样出国的Q娃众
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1731#       发表于 2020-4-1 07:56
+
+
+
+
+下话怎么看预告像要打阶段boss了？才第十话
+
+
+
+
+
+
+
+-----
+
+####  Garterbelt  
+##### 1732#       发表于 2020-4-1 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46940718&amp;ptid=1860852" target="_blank">南风森琉璃 发表于 2020-4-1 07:56</a>
+
+下话怎么看预告像要打阶段boss了？才第十话</blockquote>
+感觉像是干部总攻
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1733#       发表于 2020-4-1 15:07
+
+
+
+
+想起心跳在十集之前就有一回标题搞得像最后几集似的，说不定也是个**（但客观情况路线变更的可能性也越来越大
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1734#       发表于 2020-4-2 20:54
+
+
+
+
+现在已经有奶q医q治q几种了
+我还是私心想推一波妈q
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1735#       发表于 2020-4-2 21:49
+
+
+
+ 本帖最后由 lyflyflxf 于 2020-4-2 21:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46919063&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-3-30 07:17</a>
+
+最大的不安要素还是因为疫情强行改剧本……</blockquote>
+我就怕东大妈不注意，被病毒爆破了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 1736#       发表于 2020-4-2 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929432&amp;ptid=1860852" target="_blank">吾道长不孤 发表于 2020-3-31 01:02</a>
+
+从这个层面上再屌也很难屌过甜点那群干部了
+
+
+卡牌佬直接把BOSS吃了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">最强干部不是博士嘛，单挑了五十多个Q娃的真男人，气势力量都完爆最终BOSS，可惜遇到的是剧场版的待遇。
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 1737#       发表于 2020-4-3 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46886975&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-3-27 00:57</a>
+
+q娃消消乐很垃圾吗？</blockquote>
+算是目前为数不多让我玩到摔手机的游戏
+
+恶意太多了，虽然知道是为了催氪，但是恶意实在太多了
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1738#       发表于 2020-4-3 06:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46959862&amp;ptid=1860852" target="_blank">catenary 发表于 2020-4-2 20:54</a>
+
+现在已经有奶q医q治q几种了
+
+我还是私心想推一波妈q</blockquote>
+不成，势头过了，现在看点是三个女孩玩贴贴，哪还管妈不妈的
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1739#       发表于 2020-4-3 13:41
+
+
+
+
+一般来说这种长篇幅连续制作都会有若干集制作好备播的。日本爆出疫情到现在，备播集差不多应该用完了，接下来就应该能看出有没有为了疫情中途改变主题的了。
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1740#       发表于 2020-4-3 14:25
+
+
+
+[https://36kr.com/p/5308402](https://36kr.com/p/5308402)
+
+
+偶然看到了一家名为“Precure”的公司
+[https://www.precure.dk](https://www.precure.dk)
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1741#       发表于 2020-4-4 10:33
+
+
+
+
+明天又是新的一集……
+
+期待
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1742#       发表于 2020-4-4 11:53
+
+
+
+<blockquote>mchan 发表于 2020-4-3 13:41
+一般来说这种长篇幅连续制作都会有若干集制作好备播的。日本爆出疫情到现在，备播集差不多应该用完了，接下 ...</blockquote>
+有点担心呢
+
+
+
+
+
+                                         
