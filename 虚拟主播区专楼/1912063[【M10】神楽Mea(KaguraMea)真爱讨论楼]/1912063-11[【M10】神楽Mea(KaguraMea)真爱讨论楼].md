@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-04 08:00** 
+> ## **本文件最后更新于2020-04-04 14:01** 
 
 
 
@@ -3916,4 +3916,512 @@ the forst不是个恐怖游戏么她玩的了吗</blockquote>
 
 
 
-                                          
+
+
+-----
+
+####  uuuuu7  
+##### 15217#       发表于 2020-4-4 08:50
+
+
+
+
+“搭讪？那是啥啊”
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15218#       发表于 2020-4-4 09:29
+
+
+
+
+下了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15219#       发表于 2020-4-4 09:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上班没有转播看不了，今天说啥了？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15220#       发表于 2020-4-4 09:31
+
+
+
+
+啊丢都能念歪来，以前他们说你麻被夺舍了我还不信，现在我有丶信了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15221#       发表于 2020-4-4 09:33
+
+
+
+
+s1怎么没同传。。。错过不少内容
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15222#       发表于 2020-4-4 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">甚至没有repo
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15223#       发表于 2020-4-4 09:49
+
+
+
+
+只看了一半，基本就是闲聊吧
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15224#       发表于 2020-4-4 09:55
+
+
+
+
+音声，挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 15225#       发表于 2020-4-4 11:10
+
+
+
+
+TC 来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15226#       发表于 2020-4-4 11:13
+
+
+
+
+今天播这么多，看来心情不错
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15227#       发表于 2020-4-4 11:16
+
+
+
+
+今天声音好有活力<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15228#       发表于 2020-4-4 11:21
+
+
+
+
+tc这网，我吐了
+
+一个没墙的网站是怎么做到比有墙的还难连上的，我暂时蒙古
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15229#       发表于 2020-4-4 11:25
+
+
+
+
+我也是tc比404卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15230#       发表于 2020-4-4 11:28
+
+
+
+
+太卡了，这波没我<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15231#       发表于 2020-4-4 11:29
+
+
+
+
+还是建议上网工具开全局上tc
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 15232#       发表于 2020-4-4 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">在线练歌
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15233#       发表于 2020-4-4 11:39
+
+
+
+
+感觉有种窥视到了麻酱日常生活情景一样的背德感，和那次意外上播一样<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">突然理解为什么会有人当跟踪狂了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15234#       发表于 2020-4-4 11:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们好变态啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 15235#       发表于 2020-4-4 12:02
+
+
+
+
+楼友们变态一直可以的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15236#       发表于 2020-4-4 12:16
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-4 12:22 编辑 
+
+所有人都变态， 只是楼友们比较诚实会表现出来而已<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掰掰小糖果  
+##### 15237#       发表于 2020-4-4 12:22
+
+
+
+
+这次tc错过血亏
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15238#       发表于 2020-4-4 12:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15239#       发表于 2020-4-4 12:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+意外错过早上的火气消了不少
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 15240#       发表于 2020-4-4 12:39
+
+
+
+
+这孩子生物钟又调正常了啊？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15241#       发表于 2020-4-4 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早上5点开播算正常吗
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15242#       发表于 2020-4-4 12:44
+
+
+
+
+真好听<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15243#       发表于 2020-4-4 12:46
+
+
+
+
+珍惜现在的歌声吧，没准下午她睡一觉就全忘了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 15244#       发表于 2020-4-4 12:52
+
+
+
+
+平均30分钟学一首<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 15245#       发表于 2020-4-4 13:08
+
+
+
+
+清晨场看了一半顶不住睡了，没想到居然错过了TC<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+麻了。。。猜不透猜不透
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15246#       发表于 2020-4-4 13:14
+
+
+
+
+等晚上检查作业
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15247#       发表于 2020-4-4 13:50
+
+
+
+
+而我在写代码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
