@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-04 14:01** 
+> ## **本文件最后更新于2020-04-06 00:01** 
 
 
 
@@ -4424,4 +4424,2240 @@ tc这网，我吐了
 
 
 
-                                         
+
+
+-----
+
+####  JustW  
+##### 15248#       发表于 2020-4-4 19:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">4月音声好傻哦
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15249#       发表于 2020-4-4 19:35
+
+
+
+
+绿那个cp的号解锁了呀（之前锁没锁我也忘了），瞅了瞅好像没啥可看的，新人能确定了么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15250#       发表于 2020-4-4 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">声音都没有特什么特
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15251#       发表于 2020-4-4 22:06
+
+
+
+
+现在b站海外IP能发动态吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15252#       发表于 2020-4-4 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977240&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-4 22:06</a>
+
+现在b站海外IP能发动态吗</blockquote>
+可以
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|原来如此|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15253#       发表于 2020-4-4 23:28
+
+
+
+
+今早被说menhera了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15254#       发表于 2020-4-4 23:41
+
+
+
+
+草，是clay
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15255#       发表于 2020-4-5 01:02
+
+
+
+
+不会来个早晨歌回8，我顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15256#       发表于 2020-4-5 01:23
+
+
+
+
+昨晚4点睡了真是草了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+蹲，往死里蹲
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15257#       发表于 2020-4-5 03:47
+
+
+
+
+又是鸽回吗？爱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15258#       发表于 2020-4-5 07:38
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：大変申し訳ございまそん。
+
+昨日の昼に『よし、歌覚えたし今から寝て記憶定着定着！夜配信するわ～W』と供述した神楽めあさんなのですが現在起床しましたことをご報告させていただきます。
+
+＿人人人人人人人人人人人＿
+＞　驚異の17時間睡眠　＜
+￣Y^Y^Y^Y^Y^Y^Y^Y^Y^Y￣
+媒体：[]
+链接：[]
+时间：2020-04-04 23:22:40 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1246578968154615808
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15259#       发表于 2020-4-5 09:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15260#       发表于 2020-4-5 11:33
+
+
+
+
+还在刷推，看来白天挺闲的？
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 15261#       发表于 2020-4-5 15:53
+
+
+
+
+今日预定来了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15262#       发表于 2020-4-5 17:02
+
+
+
+
+来了来了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 15263#       发表于 2020-4-5 17:03
+
+
+
+
+明天也是星期天什么鬼
+
+11区这周是三连休？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15264#       发表于 2020-4-5 17:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15265#       发表于 2020-4-5 17:07
+
+
+
+
+已经是可以独当一面的老鸨了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15266#       发表于 2020-4-5 17:09
+
+
+
+
+不过我感觉这是如月的赠品(
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 15267#       发表于 2020-4-5 17:16
+
+
+
+
+这个皮好合胃口<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15268#       发表于 2020-4-5 17:21
+
+
+
+
+新人跳脸你麻已经是传统艺能了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你麻实质神乐组地位最低，枯了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15269#       发表于 2020-4-5 17:24
+
+
+
+
+推荐冈花，幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+麻酱品味再评价
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15270#       发表于 2020-4-5 17:26
+
+
+
+ 本帖最后由 JustW 于 2020-4-5 17:28 编辑 
+
+你麻婆度还用再评价？不是一直那样吗？
+
+syl：草京吹厨激怒，anti了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15271#       发表于 2020-4-5 17:26
+
+
+
+
+从各种作品来看， 感觉也许日本人比较擅长演绎人际关系和人设吧
+
+希望能产生协同效应<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15272#       发表于 2020-4-5 17:26
+
+
+
+
+网管可是神作啊(
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 15273#       发表于 2020-4-5 17:29
+
+
+
+
+不会真有人对麻的品味有信心⑧
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15274#       发表于 2020-4-5 17:54
+
+
+
+
+小麻那粉粉的照片我至今都无法忘怀……
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15275#       发表于 2020-4-5 17:55
+
+
+
+<blockquote>记莫更寂寞 发表于 2020-4-5 17:29
+不会真有人对麻的品味有信心⑧</blockquote>
+没有
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15276#       发表于 2020-4-5 18:00
+
+
+
+<blockquote>魔法使い2019 发表于 2020-4-5 17:26
+从各种作品来看， 感觉也许日本人比较擅长演绎人际关系和人设吧
+
+希望能产生协同效应 ...</blockquote>
+但愿
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15277#       发表于 2020-4-5 18:03
+
+
+
+
+等新人开播楼里老哥特定了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15278#       发表于 2020-4-5 18:04
+
+
+
+
+98e手办情景再现<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15279#       发表于 2020-4-5 18:09
+
+
+
+
+深夜歌回，我死了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15280#       发表于 2020-4-5 18:11
+
+
+
+
+熬，都可以熬
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15281#       发表于 2020-4-5 18:14
+
+
+
+
+学习时间没法带耳机只能看同传，最好12点播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15282#       发表于 2020-4-5 18:15
+
+
+
+
+擦
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15283#       发表于 2020-4-5 18:18
+
+
+
+
+那建议九点播到12点接着播，两边都满意
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15284#       发表于 2020-4-5 18:20
+
+
+
+
+歌会接LOLkana？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15285#       发表于 2020-4-5 18:37
+
+
+
+
+给孩子个健康作息吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15286#       发表于 2020-4-5 18:55
+
+
+
+
+这吊人一天睡17个小时，老子为了蹲直播几天都睡四个小时还睡不好<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+痛苦，太痛苦了
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15287#       发表于 2020-4-5 19:05
+
+
+
+
+在noe那边冒头了
+
+
+（该特定了
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 15288#       发表于 2020-4-5 19:06
+
+
+
+
+开口一股姨味<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15289#       发表于 2020-4-5 19:07
+
+
+
+
+这新人嘴好小
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15290#       发表于 2020-4-5 19:07
+
+
+
+
+像纱织姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 15291#       发表于 2020-4-5 19:08
+
+
+
+
+有点奇怪的声音，感觉有点男孩子感又有点姐姐气息混合在一起（
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15292#       发表于 2020-4-5 19:08
+
+
+
+
+真的是小紫，你麻这波是当工具人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15293#       发表于 2020-4-5 19:09
+
+
+
+
+声音初一听还好…
+
+感觉声音太粗了，像男人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15294#       发表于 2020-4-5 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波啊，这波是
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 15295#       发表于 2020-4-5 19:13
+
+
+
+
+有一说一这声音听久了还挺舒服的，感觉还行。
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15296#       发表于 2020-4-5 19:15
+
+
+
+
+这波绿紫贴贴，旁边站着个看戏的猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15297#       发表于 2020-4-5 19:15
+
+
+
+
+正好让那俩搞cp去，本毒唯悬着的心终于放下来了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15298#       发表于 2020-4-5 19:15
+
+
+
+
+这波引流跟你麻对如月差远了，十年挂件人不请自来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15299#       发表于 2020-4-5 19:16
+
+
+
+
+这声音，怕不是男声又是个帅哥音；麻酱肯定堕落在这两个人的帅哥音里了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 15300#       发表于 2020-4-5 19:18
+
+
+
+
+挺好的，手下两个人贴贴，自己自由自在，再垃一个人冷淡属性的吐槽役的话，就是很标准的日常轻百合剧了。
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 15301#       发表于 2020-4-5 19:26
+
+
+
+
+声音确实很像，应该是小紫没跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sunisover2000  
+##### 15302#       发表于 2020-4-5 19:28
+
+
+
+
+阿夸也关注这个小紫？
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15303#       发表于 2020-4-5 19:28
+
+
+
+
+剧本其实是小绿小紫里应外合架空你麻，逐渐掌控神乐组实权，收买粉头操控一般粉丝舆论导向，逐渐把你麻苦心经营的粉丝基础吸走，同时匿名向anti曝光你麻真实信息，她为了不被特定只能被逼毕业，毕业当天晚上小绿小紫合唱一首向日葵的约定收获百万sc，从此走上人生巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| a982902854| + 1|欢乐多|
+| likemike| + 1|好|
+| 甘栗No.007| + 1|欢乐多 轻百合一转宫斗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15304#       发表于 2020-4-5 19:28
+
+
+
+
+所以最后到底是四人组还是五人组呢（）
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15305#       发表于 2020-4-5 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 15306#       发表于 2020-4-5 19:36
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-5 19:28
+剧本其实是小绿小紫里应外合架空你麻，逐渐掌控神乐组实权，收买粉头操控一般粉丝舆论导向，逐渐把你麻苦心 ...</blockquote>
+麻酱用不着粉头，除非是...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 15307#       发表于 2020-4-5 19:37
+
+
+
+
+你们这安排宫斗剧本也太熟练了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15308#       发表于 2020-4-5 19:37
+
+
+
+
+tc抽卡论可以放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 15309#       发表于 2020-4-5 19:42
+
+
+
+
+当年他木口用nico通讯录赢到业界前几箱，我麻酱用tc通讯录赢到一个meaPro不成问题，后面忘了.jpg
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 15310#       发表于 2020-4-5 19:44
+
+
+
+
+个人特别喜欢这种声音……<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15311#       发表于 2020-4-5 19:45
+
+
+
+
+这位是完全不认识你麻的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15312#       发表于 2020-4-5 19:51
+
+
+
+
+我就说是配套送的啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15313#       发表于 2020-4-5 19:56
+
+
+
+
+人际关系的网络， 已经显出了其脉络<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15314#       发表于 2020-4-5 19:56
+
+
+
+
+这声线一股厌世老姐的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">爱了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15315#       发表于 2020-4-5 19:56
+
+
+
+
+原来你麻才是局外人
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 15316#       发表于 2020-4-5 19:57
+
+
+
+
+不知道还有没有，能不能来个男的啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15317#       发表于 2020-4-5 20:03
+
+
+
+
+所以最后又回到了你麻和如月，一定是高中同学吧，挖掘机们可以动手特小绿的小号了么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15318#       发表于 2020-4-5 20:04
+
+
+
+
+现在可以放心了吧，就算有连体人也是两新人的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15319#       发表于 2020-4-5 20:06
+
+
+
+
+连体头子都一个月没生命体征了，放过它们吧
+
+
+看来萨尔的地位真的很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15320#       发表于 2020-4-5 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">防患于未然，大家都怕了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15321#       发表于 2020-4-5 20:10
+
+
+
+
+绿紫连体人不该让你麻滚出神乐组了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15322#       发表于 2020-4-5 20:11
+
+
+
+
+只要再加新人就行了啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15323#       发表于 2020-4-5 20:14
+
+
+
+
+白姨和咩夸联动那会儿什么味儿，你麻和神楽组联动估计就什么味儿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15324#       发表于 2020-4-5 20:17
+
+
+
+ 本帖最后由 路人庚 于 2020-4-5 20:25 编辑 
+
+东京22点唱歌
+
+
+↑
+
+暗示你咩姐=白姨？meapro=温暖大家庭？
+
+对不上对不上
+
+
+
+暗示你咩姐=贴贴头子犬山？
+
+不合适不合适
+
+↓
+
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15325#       发表于 2020-4-5 20:21
+
+
+
+
+你麻可以是贴贴头子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">韭菜照割不误
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15326#       发表于 2020-4-5 20:26
+
+
+
+
+待会给你整俩男的贴贴，麻酱大欢喜
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 15327#       发表于 2020-4-5 20:26
+
+
+
+
+真的迷，看不懂。。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15328#       发表于 2020-4-5 20:30
+
+
+
+
+你麻可以扮演一波帕里的角色了。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15329#       发表于 2020-4-5 20:34
+
+
+
+
+麻皇出世？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15330#       发表于 2020-4-5 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46985596&amp;ptid=1912063" target="_blank">时雨rain 发表于 2020-4-5 20:14</a>
+
+白姨和咩夸联动那会儿什么味儿，你麻和神楽组联动估计就什么味儿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻大概是大松鼠位
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15331#       发表于 2020-4-5 20:35
+
+
+
+
+松鼠位也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15332#       发表于 2020-4-5 20:36
+
+
+
+<blockquote>Duke_of_Paris 发表于 2020-4-5 20:04
+现在可以放心了吧，就算有连体人也是两新人的
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15333#       发表于 2020-4-5 20:39
+
+
+
+
+草，怎么还有zqsg的觉得你麻会被利用的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你麻也不是圣人，这么想该去开个麻麻朝拜堂了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15334#       发表于 2020-4-5 21:02
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15335#       发表于 2020-4-5 21:03
+
+
+
+
+换了个背景还行
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15336#       发表于 2020-4-5 21:10
+
+
+
+
+松鼠现在什么时候引退都不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15337#       发表于 2020-4-5 21:11
+
+
+
+
+这背景有点🐍
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 15338#       发表于 2020-4-5 21:16
+
+
+
+
+这次真行啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15339#       发表于 2020-4-5 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">差一点啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15340#       发表于 2020-4-5 21:17
+
+
+
+
+现在这首真的可以
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15341#       发表于 2020-4-5 21:18
+
+
+
+
+ 以前很喜欢樱花庄这个歌
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 15342#       发表于 2020-4-5 21:21
+
+
+
+
+大松鼠……终于在泥潭看见讨论大松鼠的了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15343#       发表于 2020-4-5 21:22
+
+
+
+
+大松鼠？p家还有这个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15344#       发表于 2020-4-5 21:25
+
+
+
+
+好听
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15345#       发表于 2020-4-5 21:34
+
+
+
+
+yysy，还是tc的时候声线清澈
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15346#       发表于 2020-4-5 21:44
+
+
+
+
+她ddd会唱跳么，突然有点小期待了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15347#       发表于 2020-4-5 21:44
+
+
+
+
+听得出来，这首石头门你咩姐尽力了（
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15348#       发表于 2020-4-5 21:54
+
+
+
+
+辉夜ed好
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15349#       发表于 2020-4-5 22:01
+
+
+
+
+大松鼠是谁啊
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 15350#       发表于 2020-4-5 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46986654&amp;ptid=1912063" target="_blank">十九号大侠 发表于 2020-4-5 09:01</a>
+
+大松鼠是谁啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千草hana
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 15351#       发表于 2020-4-5 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来晚了 好像错过了我最喜欢的I love...
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15352#       发表于 2020-4-5 22:31
+
+
+
+
+麻麻唱歌是真的动感情啊，嗨就完了。
+
+你麻不止苦情歌动人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15353#       发表于 2020-4-5 22:32
+
+
+
+
+她这个ジグソー我总听成千草，还有救吗
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 15354#       发表于 2020-4-5 22:35
+
+
+
+
+动物园那新人水豚是雀魂比赛时那个水母妹吗？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15355#       发表于 2020-4-5 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46986977&amp;ptid=1912063" target="_blank">2111X 发表于 2020-4-5 22:31</a>
+麻麻唱歌是真的动感情啊，嗨就完了。
+
+你麻不止苦情歌动人</blockquote>
+是啊
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 15356#       发表于 2020-4-5 22:46
+
+
+
+
+今天真是身心愉悦啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15357#       发表于 2020-4-5 22:57
+
+
+
+
+果然还是9点么，渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15358#       发表于 2020-4-5 22:59
+
+
+
+
+9点不比凌晨好多了？
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 15359#       发表于 2020-4-5 23:02
+
+
+
+
+艹，最后一首听的我飞起来了…阿咩你真的超适合这种慢歌啊
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15360#       发表于 2020-4-5 23:06
+
+
+
+
+这波是释放洪荒之力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15361#       发表于 2020-4-5 23:08
+
+
+
+[https://www.bilibili.com/video/BV1xJ411j7xV/](https://www.bilibili.com/video/BV1xJ411j7xV/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15362#       发表于 2020-4-5 23:16
+
+
+
+
+意犹未尽，今天歌回质量好高
+该盒限了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15363#       发表于 2020-4-5 23:21
+
+
+
+
+该刀尖舔血留个档了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15364#       发表于 2020-4-5 23:26
+
+
+
+
+今天质量不错。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15365#       发表于 2020-4-5 23:27
+
+
+
+
+你咩飘了，真留档了，收益化，不需要的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15366#       发表于 2020-4-5 23:28
+
+
+
+
+这几天的歌回真是越来越好听了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|修复|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15367#       发表于 2020-4-5 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46987564&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-5 23:27</a>
+你咩飘了，真留档了，收益化，不需要的</blockquote>
+喷了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15368#       发表于 2020-4-5 23:29
+
+
+
+
+草，真的假的，舍弃收益化战斗的女人
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15369#       发表于 2020-4-5 23:33
+
+
+
+
+真留档了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15370#       发表于 2020-4-5 23:34
+
+
+
+
+草，留了那就盒限去了，好久没尾行摸屁股了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15371#       发表于 2020-4-5 23:34
+
+
+
+
+已经没有什么好怕的了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15372#       发表于 2020-4-5 23:35
+
+
+
+
+但是好像网页上看不见啊，app上确实能看
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15373#       发表于 2020-4-5 23:41
+
+
+
+
+完蛋，没更新<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15374#       发表于 2020-4-5 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46985532&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-5 20:06</a>
+连体头子都一个月没生命体征了，放过它们吧
+
+
+看来萨尔的地位真的很高 ...</blockquote>
+放过，呵
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1||
+
+
+
+查看全部评分
+
+
+
+
+                                     
