@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-04 12:00** 
+> ## **本文件最后更新于2020-04-05 20:01** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_Z42MJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_UdntV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -4613,4 +4613,581 @@ q娃消消乐很垃圾吗？</blockquote>
 
 
 
-                                         
+
+
+-----
+
+####  reficul  
+##### 1743#       发表于 2020-4-4 13:13
+
+
+
+
+话说爱奇艺BG粉那么多吗，还是都是一个人反复在刷，怎么还有超级KY的CP弹幕。。
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1744#       发表于 2020-4-4 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46974672&amp;ptid=1860852" target="_blank">reficul 发表于 2020-04-04 13:13:06</a>
+话说爱奇艺BG粉那么多吗，还是都是一个人反复在刷，怎么还有超级KY的CP弹幕。。 ...</blockquote>一般小友比较bg，大友偏百合一些
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  李霞  
+##### 1745#       发表于 2020-4-4 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46966833&amp;ptid=1860852" target="_blank">haojie_ma 发表于 2020-4-3 14:25</a>
+
+https://36kr.com/p/5308402
+
+
+偶然看到了一家名为“Precure”的公司</blockquote>
+寓意应该跟去年十二屑公主对Precure=pre+cure、预防机制的解释差不多。
+
+
+昨天讨论这个话题的时候，还有材料科研狗跟我科普，在他们的领域，precure还是一种叫做预固化的工序专有名词。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1746#       发表于 2020-4-4 19:34
+
+
+
+<blockquote>catenary 发表于 2020-4-4 13:51
+一般小友比较bg，大友偏百合一些
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+不过面对王道配对，不同年龄段还是比较一致的：譬如《茶几》诚惠 BG 和《甜点》晶缘百合。
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1747#       发表于 2020-4-5 08:03
+
+
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdijjk350dj21400minpd.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdijk02cnnj21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+┌(┌^o^)┐ﾎﾓｫ… 
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdijm7eg02j21400miqv5.jpg" referrerpolicy="no-referrer">
+
+
+道男：“冤枉啊”
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdijrrytq3j21400mi1ky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdijrudxv5j21400miqv5.jpg" referrerpolicy="no-referrer">
+
+
+決戦！三大メカザウルス
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdijw6hrusj21400mi4qq.jpg" referrerpolicy="no-referrer">
+
+
+传统艺能
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdik1ixm90j21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+果实元素瓶居然能变剑
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdika9zlttj21hc0u04qs.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdik72hup1j21400mix6q.jpg" referrerpolicy="no-referrer">
+
+
+“我们的战斗才刚刚开始！” ​​​​
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdikdjul5wj21hc0u0hdv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1748#       发表于 2020-4-5 11:03
+
+
+
+
+剑都出来了么。。。
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 1749#       发表于 2020-4-5 12:44
+
+
+
+
+罕见的分头行动呀
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1750#       发表于 2020-4-5 12:54
+
+
+
+
+日常太短不够看[打滚]
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1751#       发表于 2020-4-5 14:02
+
+
+
+<img src="http://i1.fuimg.com/715235/9b1ff9dd2b52d1e8.png" referrerpolicy="no-referrer">
+
+
+蓝白碗艹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+要连着打两级，有被爽到
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1752#       发表于 2020-4-5 14:24
+
+
+
+
+看完这集我们明白了：
+
+1，群殴就是力量
+
+2，小怪放着不管会自动升级
+
+3，和佳有强迫症
+
+4，今年的蓝发女人好帅！
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1753#       发表于 2020-4-5 14:43
+
+
+
+
+请问Cure Grace和Taddle Fantasy的对照图的出处？
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 1754#       发表于 2020-4-5 16:57
+
+
+
+
+今年质量明明不错，但讨论真的好少
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1755#       发表于 2020-4-5 16:59
+
+
+
+
+去年的讨论量有一部分归功于前年的药效未过
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1756#       发表于 2020-4-5 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983501&amp;ptid=1860852" target="_blank">杂灰 发表于 2020-4-5 16:57</a>
+
+今年质量明明不错，但讨论真的好少</blockquote>
+因为没啥药？又不是腐女，没必要周周发情
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 1757#       发表于 2020-4-5 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983501&amp;ptid=1860852" target="_blank">杂灰 发表于 2020-04-05 16:57:03</a>
+今年质量明明不错，但讨论真的好少</blockquote>想要讨论高要么就像抱Q一样喂药，要么就和心跳一样玩党争<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1758#       发表于 2020-4-5 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983537&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-5 17:01</a>
+
+因为没啥药？又不是腐女，没必要周周发情</blockquote>
+不管今年还是去年都和腐女扯不上关系吧，前年倒是有
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1759#       发表于 2020-4-5 17:28
+
+
+
+
+这集主角突然拔刀，我还是吃惊不小的
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1760#       发表于 2020-4-5 17:39
+
+
+
+
+话说要是今年不追加战士就好了，目前进度五分之一了，没想到不管日常还是战斗部分，三人之间的平衡能做得这么棒，好想今年50集是只属于她们的故事
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1761#       发表于 2020-4-5 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这集看看到日向跑去河边的时候，我感觉这画面怎么和抱Q黄大力变身失败那地方这么像的。
+
+
+但是看到后面和佳拔剑突然感觉就来了，和佳的性格有点当初抱Q楼里面奶出来的剑花那感觉了。
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1762#       发表于 2020-4-5 17:45
+
+
+
+
+有些Q娃会因为声优表现的关系，在后续的塑造上和初期变得不一样
+
+不知道凹会不会也影响后面的性格发展……
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 1763#       发表于 2020-4-5 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983941&amp;ptid=1860852" target="_blank">HGCG+ 发表于 2020-4-5 17:45</a>
+
+有些Q娃会因为声优表现的关系，在后续的塑造上和初期变得不一样
+
+不知道凹会不会也影响后面的性格发展…… ...</blockquote>
+变出钻头、拳套来，边唱歌边殴打小怪么
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1764#       发表于 2020-4-5 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983975&amp;ptid=1860852" target="_blank">lawsherman 发表于 2020-4-5 17:50</a>
+
+变出钻头、拳套来，边唱歌边殴打小怪么</blockquote>
+凹酱有响爷也有圆神
+
+
+最好就是结合一下，战斗的时候猛些，平时柔和些，这角色太爷们可不对劲
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1765#       发表于 2020-4-5 18:10
+
+
+
+
+目前感觉还是响爷成分高<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer"> 尤其是这集都快变成救人强迫症了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1766#       发表于 2020-4-5 18:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/05/182028bui2t7i75izz5d82.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200405110315.jpg</strong> (159.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-5 18:20 上传
+
+
+
+
+
+
+作为团宠担当的粉主感觉很少见？
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1767#       发表于 2020-4-5 18:27
+
+
+
+
+好几集没追，追加的人现在还没影？
+
+
+
+
+
+
+
+-----
+
+####  HGCG+  
+##### 1768#       发表于 2020-4-5 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46984434&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-4-5 18:27</a>
+
+好几集没追，追加的人现在还没影？</blockquote>
+原本三月推出的液晶玩具受疫情影响，4月中旬才发售
+
+到时候才会有人**追加的人设
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1769#       发表于 2020-4-5 19:27
+
+
+
+
+然而粉主终将成为团队核心，学会大局观。问题是转变和成长的过程怎么表现呢
+
+
+另外，现在基本是敌我是三对三，对方的第四人难道真要天降
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1770#       发表于 2020-4-5 19:31
+
+
+
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_qcC0D" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+推特看到这个笑到ww
+https://twitter.com/dededeteiu/status/1246652373646229504?s=20
+千优护着和佳让开单车男友力爆表
+
+
+
+
+
+
+
+-----
+
+####  吾道长不孤  
+##### 1771#       发表于 2020-4-5 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46960550&amp;ptid=1860852" target="_blank">武男 发表于 2020-4-2 22:08</a>
+
+最强干部不是博士嘛，单挑了五十多个Q娃的真男人，气势力量都完爆最终BOSS，可惜遇到的是剧场版的 ...</blockquote>
+上面说的屌不是指强度而是指对老板的态度啊<img src="https://static.saraba1st.com/image/smiley/carton2017/020.png" referrerpolicy="no-referrer">
+
+
+博士强归强，但是对社长【多半是以前的学生】态度还是很不错的。暗无明日社工作氛围也很社畜，除了比辛之外没有谁在摸鱼
+
+
+你看看甜点的干部，阳奉阴违、同类相残，开车佬把老板唯一的忠臣心腹给吃了，卡牌佬把老板本人给吃了
+
+
+
+
+
+                                        
