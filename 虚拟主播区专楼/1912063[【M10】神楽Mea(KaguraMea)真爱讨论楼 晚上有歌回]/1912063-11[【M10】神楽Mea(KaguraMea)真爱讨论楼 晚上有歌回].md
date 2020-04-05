@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-05 20:04** 
+> ## **本文件最后更新于2020-04-05 22:00** 
 
 
 
@@ -5383,10 +5383,11 @@ syl：草京吹厨激怒，anti了
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| a982902854| + 1|欢乐多|
 | likemike| + 1|好|
 | 甘栗No.007| + 1|欢乐多 轻百合一转宫斗|
 
@@ -5621,4 +5622,530 @@ tc抽卡论可以放弃了<img src="https://static.saraba1st.com/image/smiley/fa
 
 
 
-                                       
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15318#       发表于 2020-4-5 20:04
+
+
+
+
+现在可以放心了吧，就算有连体人也是两新人的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15319#       发表于 2020-4-5 20:06
+
+
+
+
+连体头子都一个月没生命体征了，放过它们吧
+
+
+看来萨尔的地位真的很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15320#       发表于 2020-4-5 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">防患于未然，大家都怕了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15321#       发表于 2020-4-5 20:10
+
+
+
+
+绿紫连体人不该让你麻滚出神乐组了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15322#       发表于 2020-4-5 20:11
+
+
+
+
+只要再加新人就行了啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15323#       发表于 2020-4-5 20:14
+
+
+
+
+白姨和咩夸联动那会儿什么味儿，你麻和神楽组联动估计就什么味儿<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15324#       发表于 2020-4-5 20:17
+
+
+
+ 本帖最后由 路人庚 于 2020-4-5 20:25 编辑 
+
+东京22点唱歌
+
+
+↑
+
+暗示你咩姐=白姨？meapro=温暖大家庭？
+
+对不上对不上
+
+
+
+暗示你咩姐=贴贴头子犬山？
+
+不合适不合适
+
+↓
+
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15325#       发表于 2020-4-5 20:21
+
+
+
+
+你麻可以是贴贴头子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">韭菜照割不误
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15326#       发表于 2020-4-5 20:26
+
+
+
+
+待会给你整俩男的贴贴，麻酱大欢喜
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 15327#       发表于 2020-4-5 20:26
+
+
+
+
+真的迷，看不懂。。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15328#       发表于 2020-4-5 20:30
+
+
+
+
+你麻可以扮演一波帕里的角色了。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15329#       发表于 2020-4-5 20:34
+
+
+
+
+麻皇出世？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15330#       发表于 2020-4-5 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46985596&amp;ptid=1912063" target="_blank">时雨rain 发表于 2020-4-5 20:14</a>
+
+白姨和咩夸联动那会儿什么味儿，你麻和神楽组联动估计就什么味儿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻大概是大松鼠位
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15331#       发表于 2020-4-5 20:35
+
+
+
+
+松鼠位也太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15332#       发表于 2020-4-5 20:36
+
+
+
+<blockquote>Duke_of_Paris 发表于 2020-4-5 20:04
+现在可以放心了吧，就算有连体人也是两新人的
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15333#       发表于 2020-4-5 20:39
+
+
+
+
+草，怎么还有zqsg的觉得你麻会被利用的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你麻也不是圣人，这么想该去开个麻麻朝拜堂了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15334#       发表于 2020-4-5 21:02
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15335#       发表于 2020-4-5 21:03
+
+
+
+
+换了个背景还行
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 15336#       发表于 2020-4-5 21:10
+
+
+
+
+松鼠现在什么时候引退都不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15337#       发表于 2020-4-5 21:11
+
+
+
+
+这背景有点🐍
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 15338#       发表于 2020-4-5 21:16
+
+
+
+
+这次真行啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15339#       发表于 2020-4-5 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">差一点啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15340#       发表于 2020-4-5 21:17
+
+
+
+
+现在这首真的可以
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15341#       发表于 2020-4-5 21:18
+
+
+
+
+ 以前很喜欢樱花庄这个歌
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 15342#       发表于 2020-4-5 21:21
+
+
+
+
+大松鼠……终于在泥潭看见讨论大松鼠的了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15343#       发表于 2020-4-5 21:22
+
+
+
+
+大松鼠？p家还有这个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15344#       发表于 2020-4-5 21:25
+
+
+
+
+好听
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15345#       发表于 2020-4-5 21:34
+
+
+
+
+yysy，还是tc的时候声线清澈
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15346#       发表于 2020-4-5 21:44
+
+
+
+
+她ddd会唱跳么，突然有点小期待了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15347#       发表于 2020-4-5 21:44
+
+
+
+
+听得出来，这首石头门你咩姐尽力了（
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15348#       发表于 2020-4-5 21:54
+
+
+
+
+辉夜ed好
+
+
+
+
+
+                                      
