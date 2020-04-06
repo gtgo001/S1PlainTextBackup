@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-06 22:00** 
+> ## **本文件最后更新于2020-04-07 00:01** 
 
 
 
@@ -7712,7 +7712,7 @@ mea组团建必玩，已经无法想象之后的联动了
 
 
 QQ截图20200406210452.png
-(1.2 MB, 下载次数: 2)
+(1.2 MB, 下载次数: 4)
 
 
 
@@ -7852,4 +7852,418 @@ QQ截图20200406210452.png
 
 
 
-                                   
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15446#       发表于 2020-4-6 23:03
+
+
+
+
+烈焰红唇？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 15447#       发表于 2020-4-6 23:20
+
+
+
+ 本帖最后由 小博禹 于 2020-4-6 23:24 编辑 
+
+神奈川都紧急状态了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道mea现在是不是在老家
+
+不过她要是这段时间一直关在东京的话，估计都快怀孕了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 儒门正御应无骞|-1|你妈都该二孩了吧。|
+| 时雨rain|-1|写完你的故事加回来wwww|
+| 素人不相识|-1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15448#       发表于 2020-4-6 23:27
+
+
+
+
+一天不播就被你安排怀孕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15449#       发表于 2020-4-6 23:29
+
+
+
+
+如月开了个明早5点的直播<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+学什么不好学你组长这个<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15450#       发表于 2020-4-6 23:30
+
+
+
+
+哪有学，要是咩宝都不会预告的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15451#       发表于 2020-4-6 23:32
+
+
+
+
+要怀谁的孩子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15452#       发表于 2020-4-6 23:32
+
+
+
+
+当她预告了一场，往往意味着还要突击两场
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15453#       发表于 2020-4-6 23:33
+
+
+
+
+弱智玩意真tm服了，建议普查年末国内人口出生率<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+啊，我是鱼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+还有，为啥我这号也不能扣鹅
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15454#       发表于 2020-4-6 23:33
+
+
+
+ 本帖最后由 路人庚 于 2020-4-6 23:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姨妈刚过去就安排怀孕还行，好歹针对现有素材改编好吧（
+
+
+↑
+
+权限8够
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15455#       发表于 2020-4-6 23:34
+
+
+
+
+又怀孕了? 你安排也要好好补充设定啊
+
+莫名其妙地说怀孕谁看得懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15456#       发表于 2020-4-6 23:35
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-6 23:36 编辑 
+
+设定：精子变异，也能够空气传播了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+syl，好像权限要到30才能扣鹅
+
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 15457#       发表于 2020-4-6 23:38
+
+
+
+
+妊娠公司，升级变异你的精子，使千里之外的樱花妹怀孕
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|啊，千里，樱花妹，啊 啊 啊 啊.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 15458#       发表于 2020-4-6 23:39
+
+
+
+
+不是都两个孩子了吗？万一真有第三个新人他就是预言家了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15459#       发表于 2020-4-6 23:40
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-6 23:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46998131&amp;ptid=1912063" target="_blank">Duke_of_Paris 发表于 2020-4-6 23:38</a>
+妊娠公司，升级变异你的精子，使千里之外的樱花妹怀孕
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+就是无法让千里怀孕的意思?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+睡了 明天还要继续写代码<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15460#       发表于 2020-4-6 23:41
+
+
+
+
+b限lol了
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15461#       发表于 2020-4-6 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46997944&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-6 23:20</a>
+神奈川都紧急状态了不知道mea现在是不是在老家
+
+不过她要是这段时间一直关在东京的话，估计都快怀孕 ...</blockquote>
+在东京待着就怀孕了，咋不见你妈给你生二孩呢。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15462#       发表于 2020-4-6 23:42
+
+
+
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15463#       发表于 2020-4-6 23:45
+
+
+
+
+别把精子说得和新冠病毒一样啊
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15464#       发表于 2020-4-6 23:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">看不懂lol，输得透彻
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  荣耀祝福LV20  
+##### 15465#       发表于 2020-4-6 23:58
+
+
+
+
+来了来了，下饭时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15466#       发表于 2020-4-6 23:59
+
+
+
+
+这人笑的也太憨了
+
+
+
+
+
+                                  
