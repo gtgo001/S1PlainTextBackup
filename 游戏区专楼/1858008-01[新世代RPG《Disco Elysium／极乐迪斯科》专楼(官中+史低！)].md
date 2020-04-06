@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-05 02:05** 
+> ## **本文件最后更新于2020-04-06 22:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_f33u7" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_KK015" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -25225,4 +25225,495 @@ Frank的死亡，象征着一个阶层努力自救却最终被时代洪流无情
 
 
 
-       
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1265#       发表于 2020-4-5 03:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46978682&amp;ptid=1858008" target="_blank">萧闻蒲 发表于 2020-4-5 01:30</a>
+
+现在1周目有两个问题。
+
+1是我把三个阳性音乐的三个逮进去了，和教堂程序员对话过了。等晚上金去睡觉的时候 ...</blockquote>
+找流浪汉签吧
+
+
+
+
+
+
+
+-----
+
+####  ataraxian  
+##### 1266#       发表于 2020-4-5 06:56
+
+
+
+<blockquote>萧闻蒲 发表于 2020-4-5 01:30
+现在1周目有两个问题。
+
+1是我把三个阳性音乐的三个逮进去了，和教堂程序员对话过了。等晚上金去睡觉的时候 ...</blockquote>
+签名要在室内才有伪造互动，或者找流浪汉
+
+
+
+
+
+
+
+-----
+
+####  耻幼女  
+##### 1267#       发表于 2020-4-5 07:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46978417&amp;ptid=1858008" target="_blank">azccc52 发表于 2020-4-5 00:54</a>
+可以和金聊性话题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还好我琢磨完就给丢了
+当时我一看研究结果是性冷感<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1268#       发表于 2020-4-5 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46978682&amp;ptid=1858008" target="_blank">萧闻蒲 发表于 2020-4-5 01:30</a>
+
+现在1周目有两个问题。
+
+1是我把三个阳性音乐的三个逮进去了，和教堂程序员对话过了。等晚上金去睡觉的时候 ...</blockquote>
+缺了三个年轻人就没有阳极舞曲了，任务线算中断了
+
+但是不影响通关
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1269#       发表于 2020-4-5 17:38
+
+
+
+
+找骰子匠人买了骰子，说是8小时后拿货，现在8小时过去了还没有选项拿是怎么回事
+
+
+
+
+
+
+
+-----
+
+####  kraxia  
+##### 1270#       发表于 2020-4-5 18:27
+
+
+
+
+刚通关，我也有种坑没填完的感觉。主角到最后好像也没恢复记忆，也没说黑帮教父是咋回事，露比也就这么跑了，罢工的事也没有后续，还有老兵的动机好像……并不是一盘大棋？这些操作，是不是请等续作的意思？
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 1271#       发表于 2020-4-5 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46984439&amp;ptid=1858008" target="_blank">kraxia 发表于 2020-4-5 18:27</a>
+
+刚通关，我也有种坑没填完的感觉。主角到最后好像也没恢复记忆，也没说黑帮教父是咋回事，露比也就这么跑了 ...</blockquote>
+恢复记忆肯定是是没恢复了，下岛的时候还要跟前搭档问自己以前的事情，帆船女跑路前的谈话说是灰域会影响到精神问题，而主角和她的症状很像，所以灰域的影响应该就是主角失忆的答案了吧。
+
+黑帮教父就和其他背景设定是一样的东西，毕竟金也说警察里教父的走狗不少所以哈里是不是教父的走狗也没关系，就是和剧情发展关系不大的一点设定而已吧。
+
+露比毕竟有死亡的支路，逃跑路线的话连记录着关键信息的笔记本都丢在帐篷里了，后面扔给缉毒方面的警察处理就好了，所以就算有续作也没戏了吧。
+
+罢工的话帆船女跑路前也已经说要放弃这个码头了，而你伤后了在镇上闲逛也可以看到码头开始挂工会的旗了
+
+老兵嘛……就当是竹节虫荷尔蒙的影响加各种想法混杂导致的冲动行事咯，其实他一个人真的没法改变什么了，把大棋压在他一个人身上真的不太可能了。
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1272#       发表于 2020-4-5 23:27
+
+
+
+ 本帖最后由 zongrumk2 于 2020-4-5 23:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46984439&amp;ptid=1858008" target="_blank">kraxia 发表于 2020-4-5 18:27</a>
+
+刚通关，我也有种坑没填完的感觉。主角到最后好像也没恢复记忆，也没说黑帮教父是咋回事，露比也就这么跑了 ...</blockquote>
+续作唯一可以期待的是你和小金一起找卡拉洁算账<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">">贱人耍了我们就想跑？那个卡拉洁被带走的支线感觉不像能接续作的样子。
+
+官方说的是今年还有一本官方世界观小说要出版，然后会有续作。
+
+
+
+
+
+
+
+-----
+
+####  kraxia  
+##### 1273#       发表于 2020-4-5 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46987567&amp;ptid=1858008" target="_blank">zongrumk2 发表于 2020-4-5 23:27</a>
+
+续作唯一可以期待的是你和小金一起找卡拉洁算账贱人耍了我们就想跑？</blockquote>
+
+
+-----
+
+####  skypride  
+##### 1274#       发表于 2020-4-6 01:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">续作把舞台放到主角分局所在那个闹市区就好了，能保质增量的话，这个系列基本上可以名垂青史了
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 1275#       发表于 2020-4-6 02:02
+
+
+
+ 本帖最后由 saverok 于 2020-4-6 02:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前通关一直感觉怪怪的，游戏对康米的态度很复杂，不像普通的西方感情，也不像毛子
+
+
+后来看介绍发现制作组是爱沙尼亚的，顿时感觉游戏过程中那种味儿有原因了
+
+
+对爱沙尼亚来说，被康米艹过，自己康米过，见证了康米的高潮和倒塌，康米没了之后留下一地鸡毛，爱沙尼亚何尝不就是一个瑞瓦肖呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1276#       发表于 2020-4-6 10:47
+
+
+
+
+通关两次了，还有一堆思维从没见过，不知道有没有什么地方有汇总，VG百科看过了不全
+
+
+
+
+
+
+
+-----
+
+####  hahaha111  
+##### 1277#       发表于 2020-4-6 11:19
+
+
+
+
+玩了一天，读的很爽。有什么二刺螈mod增加趣味性吗
+
+
+
+
+
+
+
+-----
+
+####  林无德  
+##### 1278#       发表于 2020-4-6 11:21
+
+
+
+
+又死档了，死在我的床认为时间不是凌晨2点，不让我睡觉上
+
+
+我本以为喝酒卡死无法存读档就够扯皮的了，没想到应该是作为重点来做的时间流逝还有这种bug。。。连续死了两次档，想要二周目逮住竹节虫的动力已然耗尽<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rai.Z  
+##### 1279#       发表于 2020-4-6 12:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一周目打完，我还是没搞懂主角那3天里疯狂酗酒乃至撞车失忆的动机是啥，是触及世界的真实崩溃了？
+
+
+
+
+
+
+
+-----
+
+####  威爾第晚禱  
+##### 1280#       发表于 2020-4-6 18:12
+
+
+
+
+想问下第四天渔村的小姑娘在哪儿能找到… 想找她问问铠甲手套图都要跑穿了还没找着…
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  林无德  
+##### 1281#       发表于 2020-4-6 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994638&amp;ptid=1858008" target="_blank">威爾第晚禱 发表于 2020-04-06 18:12:26</a>
+想问下第四天渔村的小姑娘在哪儿能找到… 想找她问问铠甲手套图都要跑穿了还没找着…
+
+ ...</blockquote>洗衣服老奶奶左边的房子里，门附近有一对双胞胎在玩
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1282#       发表于 2020-4-6 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994638&amp;ptid=1858008" target="_blank">威爾第晚禱 发表于 2020-4-6 18:12</a>
+
+想问下第四天渔村的小姑娘在哪儿能找到… 想找她问问铠甲手套图都要跑穿了还没找着…
+
+
+  -- 来自 能手机投 ...</blockquote>
+俩小男孩上面的屋子里
+
+
+
+
+
+
+
+-----
+
+####  威爾第晚禱  
+##### 1283#       发表于 2020-4-6 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994800&amp;ptid=1858008" target="_blank">Mr.BBWoLf 发表于 2020-4-6 18:26</a>
+
+俩小男孩上面的屋子里</blockquote>
+第三天的时候她是在屋子里看书来着…… 任务更新第四天就不在了……
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1284#       发表于 2020-4-6 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46995007&amp;ptid=1858008" target="_blank">威爾第晚禱 发表于 2020-4-6 18:41</a>
+
+第三天的时候她是在屋子里看书来着…… 任务更新第四天就不在了……</blockquote>
+……bug了？还是得先触发Cinder的对话？
+
+
+
+
+
+
+
+-----
+
+####  fredfei  
+##### 1285#       发表于 2020-4-6 20:41
+
+
+
+
+进出几次会刷出来
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  sosgame67  
+##### 1286#       发表于 2020-4-6 20:43
+
+
+
+
+一周目通关看你们的讨论才发现金是homo<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">另外问一下硬核模式有什么区别，想打全成就重新跑一圈太累了
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1287#       发表于 2020-4-6 21:23
+
+
+
+
+不是说了吗，失忆是警察办案的一种实验性的方法，能抛除杂念，全力施展自己的警察技能
+
+至于你们信不信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1288#       发表于 2020-4-6 21:46
+
+
+
+
+问下思维阁究竟要不要开啊，感觉大多数怎么都是扣属性的
+
+
+
+
+
+
+
+-----
+
+####  gdsgdfhd  
+##### 1289#       发表于 2020-4-6 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46997083&amp;ptid=1858008" target="_blank">华发夜眼[CN] 发表于 2020-4-6 21:46</a>
+问下思维阁究竟要不要开啊，感觉大多数怎么都是扣属性的</blockquote>
+思维阁一定要开啊，说明里扣属性都是指内化思维过程中会有暂时的属性降低，思维的效果只有完成内化后才会提示的
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1290#       发表于 2020-4-6 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46997129&amp;ptid=1858008" target="_blank">gdsgdfhd 发表于 2020-4-6 21:51</a>
+
+思维阁一定要开啊，说明里扣属性都是指内化思维过程中会有暂时的属性降低，思维的效果只有完成内化后才会 ...</blockquote>
+这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 1291#       发表于 2020-4-6 21:58
+
+
+
+
+优先开思维阁格子 尤其是几个积累经验和钱的思维一定要学
+
+
+
+
+
+      
