@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-07 00:01** 
+> ## **本文件最后更新于2020-04-07 16:00** 
 
 
 
@@ -7895,10 +7895,12 @@ QQ截图20200406210452.png
 
 
 
- 参与人数 3战斗力 -3
+ 参与人数 5战斗力 -5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 追风小星星|-1|孩子都两个了,你火星了|
+| 千木唯|-1|我的孩子？|
 | 儒门正御应无骞|-1|你妈都该二孩了吧。|
 | 时雨rain|-1|写完你的故事加回来wwww|
 | 素人不相识|-1|好评加鹅|
@@ -8266,4 +8268,277 @@ b限lol了
 
 
 
-                                  
+
+
+-----
+
+####  h1001010  
+##### 15467#       发表于 2020-4-7 00:11
+
+
+
+
+又得睡了，没法跟b限渐行渐远惹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15468#       发表于 2020-4-7 00:49
+
+
+
+
+皮肤卡哇伊草
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15469#       发表于 2020-4-7 01:07
+
+
+
+
+  都没人送她个女校长皮肤
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15470#       发表于 2020-4-7 01:30
+
+
+
+
+看得我好急好几个绕后眼可以t下来收割就是不t
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15471#       发表于 2020-4-7 02:41
+
+
+
+
+电脑放在床上睡着了，半夜醒来发现还在播
+
+有种老婆半夜偷偷背着我在床边打游戏的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15472#       发表于 2020-4-7 02:44
+
+
+
+
+下了下了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15473#       发表于 2020-4-7 02:53
+
+
+
+
+打的还行，就是不会摸眼回旋踢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15474#       发表于 2020-4-7 08:23
+
+
+
+
+谜之互动
+<img src="https://p.sda1.dev/0/9100016c267ee59449973a555b67b5a2/IMG_01EE81275164C95E0E8C2512860FB517.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15475#       发表于 2020-4-7 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绝了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15476#       发表于 2020-4-7 13:04
+
+
+
+
+她鬼灭里喜欢不死川，魔禁里喜欢一方，总结一下就是貌似很喜欢暴躁男人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+千万别碰到dv渣男了
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15477#       发表于 2020-4-7 13:14
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-7 13:23 编辑 
+
+完了， 我是不是没有希望了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+话说， 2次元人物爱好真的可以投射到现实吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+懂了懂了， 可以交往， 不能一起生活。 虽然喜欢这种， 可是结婚对象要考虑现实因素<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉会被坏男人pua的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15478#       发表于 2020-4-7 13:16
+
+
+
+ 本帖最后由 路人庚 于 2020-4-7 13:17 编辑 
+
+你可以装作dv渣男的样子演一波（
+
+之前tc聊过，虽然喜欢这种类型但不会考虑作为结婚对象（）
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15479#       发表于 2020-4-7 14:12
+
+
+
+
+  笑死，每天打小钢珠的VTB。
+
+
+<img src="https://img.saraba1st.com/forum/202004/07/141305n1x07exopw6soqw2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200407141248.png</strong> (338.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-7 14:13 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15480#       发表于 2020-4-7 14:22
+
+
+
+
+邪神酱的说法也是自古以来流传已久了
+
+
+syl，今天估计要摸力
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15481#       发表于 2020-4-7 15:25
+
+
+
+
+躺，躺了好
+
+她躺我也躺<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 

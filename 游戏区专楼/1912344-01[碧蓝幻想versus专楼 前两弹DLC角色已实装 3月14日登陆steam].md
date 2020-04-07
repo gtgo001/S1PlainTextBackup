@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-30 17:29** 
+> ## **本文件最后更新于2020-04-07 16:01** 
 
 
 
@@ -9391,4 +9391,512 @@ PC版的dlc更新是怎么安排了，想了想pc上面的mod有点香
 
 
 
-                                
+
+
+-----
+
+####  nagitoY  
+##### 512#       发表于 2020-3-30 17:29
+
+
+
+
+女民工来了，不过好像没有古兰的214臭脚
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 513#       发表于 2020-3-30 17:36
+
+
+
+
+姬塔这个十天总奥义实在是太性感了，我要死了...<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  白白白  
+##### 514#       发表于 2020-3-30 17:47
+
+
+
+
+贝吉塔太棒了！<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 515#       发表于 2020-3-30 18:02
+
+
+
+ 本帖最后由 佐伯香織 于 2020-3-30 18:05 编辑 
+
+肯定没得古兰厉害，这奥义演出有点太长了。
+
+
+
+
+
+
+
+-----
+
+####  山下野人  
+##### 516#       发表于 2020-3-30 20:30
+
+
+
+
+有波有升，是个强者
+
+
+
+
+
+
+
+-----
+
+####  gunmanmk2  
+##### 517#       发表于 2020-3-30 20:34
+
+
+
+
+RPG模式全S之后试了几局网战，感觉玩的人真少啊，果然定位是Fan向游戏么，不过我还挺喜欢的。
+
+
+普攻3连加技能很有传说系列的即视感呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gunmanmk2  
+##### 518#       发表于 2020-3-30 20:37
+
+
+
+
+主玩mao（我就是馋她身子）反正DLC只买女的，姬塔这么快出真的没想到，估计官方觉得再迟一点热度就退了所以赶紧上架吧
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 519#       发表于 2020-3-31 02:18
+
+
+
+
+音游么这是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/7b022391d19e85447476b401c7c4e8e6/-1404955707.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  syndrome2032  
+##### 520#       发表于 2020-3-31 08:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46929617&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-3-31 02:18</a>
+音游么这是</blockquote>
+geese的死亡咆哮?
+
+不过这个只改演出不影响伤害吧。老的那些不按键输入完是打不全的
+
+
+
+
+
+
+
+-----
+
+####  hashire.owl  
+##### 521#       发表于 2020-3-31 08:54
+
+
+
+
+女儿要富养<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 522#       发表于 2020-4-6 11:46
+
+
+
+
+问下是明天零点解锁么，是的话蹲一波
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 523#       发表于 2020-4-6 18:33
+
+
+
+[https://versus.granbluefantasy.jp/system/update/20200407?lang=ja](https://versus.granbluefantasy.jp/system/update/20200407?lang=ja)
+平衡调整来了
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 524#       发表于 2020-4-7 10:39
+
+
+
+
+pc几号更新啊？
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 525#       发表于 2020-4-7 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994889&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-6 18:33</a>
+
+https://versus.granbluefantasy.jp/system/update/20200407?lang=ja
+
+平衡调整来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有没有英文版的平衡调整啊，片假名看着头疼
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 526#         楼主| 发表于 2020-4-7 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47001089&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-4-7 10:39</a>
+
+pc几号更新啊？</blockquote>
+PS4端好像今天更新，PC要13号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 527#       发表于 2020-4-7 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47001208&amp;ptid=1912344" target="_blank">yuwe0714 发表于 2020-4-7 10:49</a>
+
+PS4端好像今天更新，PC要13号</blockquote>
+那看来pc滞后一周<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 528#       发表于 2020-4-7 10:53
+
+
+
+
+只有加强没有削弱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 和本家一样的调整方式么...
+
+
+4月下旬 杂上线的时候还有一波调整好像 看来是分段式的
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 529#       发表于 2020-4-7 10:53
+
+
+
+
+主要平衡是4月下旬
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 530#         楼主| 发表于 2020-4-7 11:06
+
+
+
+
+PS4/PC《碧蓝幻想VERSUS》新DLC角色「姬塔」、「索利兹」以及追加场地「露玛茜群岛」已经上线，同时今天游戏也推出了一个比较大型的平衡性更新，几乎全部的角色都进行了调整。 ​​​
+
+
+
+
+
+
+
+-----
+
+####  hashire.owl  
+##### 531#       发表于 2020-4-7 11:13
+
+
+
+
+ps4主题啥时候单独卖<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  布拉德莱恩  
+##### 532#       发表于 2020-4-7 11:27
+
+
+
+
+怎么服务器还在维护，DLC兑换码都没法看<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 533#       发表于 2020-4-7 11:46
+
+
+
+
+【メンテナンスのお知らせ】4/7(火)10:00より、メンテナンスとVer.1.21へのアップデートを行います。終了は同日13:00を予定しております。
+メンテナンス中はオンライン機能のご利用が出来なくなります。ご協力の程、何卒よろしくお願いいたします。
+大概北京时间12点就维护完了
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 534#       发表于 2020-4-7 12:08
+
+
+
+
+姬塔能用了么
+
+
+
+
+
+
+
+-----
+
+####  纱布光环  
+##### 535#       发表于 2020-4-7 12:16
+
+
+
+
+超蓝贝姬塔这个大是不是有点难啊 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 536#       发表于 2020-4-7 12:53
+
+
+
+
+比古兰差太多，中刀被防平帧
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 537#       发表于 2020-4-7 13:07
+
+
+
+ 本帖最后由 佐伯香織 于 2020-4-7 14:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47002213&amp;ptid=1912344" target="_blank">纱布光环 发表于 2020-4-7 12:16</a>
+
+超蓝贝姬塔这个大是不是有点难啊</blockquote>
+不对，这节奏有点怪
+
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cowgp01  
+##### 538#       发表于 2020-4-7 13:35
+
+
+
+
+好SE老头看起来也不行啊，DLC人物都弱就很尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 539#       发表于 2020-4-7 13:58
+
+
+
+
+老头有点儿像内卡利
+
+
+
+
+
+
+
+-----
+
+####  センコウ  
+##### 540#       发表于 2020-4-7 14:14
+
+
+
+
+老头浑身都是不利，升龙不升没无敌，除了版边没连段<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 541#       发表于 2020-4-7 14:33
+
+
+
+
+我的妈我用老头的ex升龙防空居然会被打，何时受过这种委屈
+
+
+
+
+
+                               
