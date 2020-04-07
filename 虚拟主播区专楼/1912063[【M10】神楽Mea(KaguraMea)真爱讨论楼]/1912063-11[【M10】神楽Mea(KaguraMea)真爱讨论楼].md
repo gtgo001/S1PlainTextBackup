@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-07 16:00** 
+> ## **本文件最后更新于2020-04-08 02:00** 
 
 
 
@@ -8541,4 +8541,1223 @@ syl，今天估计要摸力
 
 
 
-                                 
+
+
+-----
+
+####  SNOWIMEA  
+##### 15482#       发表于 2020-4-7 17:51
+
+
+
+
+咩和夹心酱还是有点像的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">i了i了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15483#       发表于 2020-4-7 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47003400&amp;ptid=1912063" target="_blank">aisakahammer 发表于 2020-4-7 14:12</a>
+
+笑死，每天打小钢珠的VTB。</blockquote>
+邪神这个好像确实是vtuber出道过耶
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15484#       发表于 2020-4-7 20:38
+
+
+
+
+邪神那个算是声优和动画组闲的无聊的产物，爱喵开心就好
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15485#       发表于 2020-4-7 23:13
+
+
+
+
+播了， 可是我睡了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15486#       发表于 2020-4-7 23:16
+
+
+
+
+来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15487#       发表于 2020-4-7 23:19
+
+
+
+
+她刚醒，精神饱满，斗不过她的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15488#       发表于 2020-4-7 23:23
+
+
+
+
+你咩姐是真的牛逼
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15489#       发表于 2020-4-7 23:23
+
+
+
+
+半夜助眠，我人没了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15490#       发表于 2020-4-7 23:25
+
+
+
+
+真的害怕
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15491#       发表于 2020-4-7 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">帝国少女完全没状态啊，鼻音重，又有点心不在焉的
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15492#       发表于 2020-4-7 23:34
+
+
+
+
+奥数呼吸
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15493#       发表于 2020-4-7 23:44
+
+
+
+
+一会没看错过半小时还行（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15494#       发表于 2020-4-7 23:49
+
+
+
+
+播了草
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15495#       发表于 2020-4-7 23:50
+
+
+
+
+一声不吭歌回，一如昨夜，还好我吃一堑长一智
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15496#       发表于 2020-4-7 23:51
+
+
+
+
+ 这歌我最喜欢MEA的版本，其次是太子的
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 15497#       发表于 2020-4-7 23:52
+
+
+
+
+好了，可以不用睡觉了，嗨起来！
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15498#       发表于 2020-4-7 23:58
+
+
+
+
+都怪你们，聊什么邪神酱，害的我去看，错过了半个多小时直播<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15499#       发表于 2020-4-7 23:59
+
+
+
+
+错过40分钟，自闭了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15500#       发表于 2020-4-8 00:10
+
+
+
+
+神乐mea抗压能力再评价<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15501#       发表于 2020-4-8 00:13
+
+
+
+
+抱着理想活下去吧–神乐mea
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15502#       发表于 2020-4-8 00:16
+
+
+
+
+刚才说啥，没法连续醒着超过8小时吗（LOL除外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15503#       发表于 2020-4-8 00:17
+
+
+
+
+指示厨的日常
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15504#       发表于 2020-4-8 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47009005&amp;ptid=1912063" target="_blank">IrisL 发表于 2020-4-8 00:13</a>
+抱着理想活下去吧–神乐mea</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15505#       发表于 2020-4-8 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47008986&amp;ptid=1912063" target="_blank">甘栗No.007 发表于 2020-4-8 00:10</a>
+神乐mea抗压能力再评价</blockquote>
+唉
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15506#       发表于 2020-4-8 00:19
+
+
+
+
+睡不着☁了下讨论， 看来邮箱又有垃圾了?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15507#       发表于 2020-4-8 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47009049&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-8 00:19</a>
+睡不着☁了下讨论， 看来邮箱又有垃圾了?</blockquote>
+垃圾一直都有，说的倒是不太一样的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15508#       发表于 2020-4-8 00:23
+
+
+
+
+说下说了啥呗，nga咩楼又炸了，没同传看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15509#       发表于 2020-4-8 00:25
+
+
+
+
+好想抱抱她<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15510#       发表于 2020-4-8 00:26
+
+
+
+[http://tieba.baidu.com/p/6562474 ... 5447DA3D82F8FD0435F](http://tieba.baidu.com/p/6562474741?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=10.3.8.19&amp;st=1586276781&amp;unique=C528307D64BBA5447DA3D82F8FD0435F)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15511#       发表于 2020-4-8 00:26
+
+
+
+
+有人往邮箱发什么什么，还发弹幕让她去看
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15512#       发表于 2020-4-8 00:27
+
+
+
+
+………
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15513#       发表于 2020-4-8 00:28
+
+
+
+
+大意就是有个人发评论说你看看邮箱吧，她说邮箱里一直都有各种各样观众发的“非常重要的事”，但基本上不看也知道是啥，“我能咋整，还得继续播啊”
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15514#       发表于 2020-4-8 00:29
+
+
+
+
+行为艺术kana<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回去睡了
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 15515#       发表于 2020-4-8 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47006400&amp;ptid=1912063" target="_blank">十九号大侠 发表于 2020-4-7 19:07</a>
+邪神这个好像确实是vtuber出道过耶</blockquote>
+那个到后面已经完全是声优访谈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15516#       发表于 2020-4-8 00:33
+
+
+
+
+就是评论有人发了句看邮件，说很重要
+然后她就说根据她之前看邮箱的经历，重要的事其实是威胁无聊的琐碎以及告家长（？）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+然后说了一下观众分派系吵架，觉得有点羡慕这些人能为了喜欢的事情烦恼，感受到了自己孤独遁入虚无，但是睡一觉就治好了。
+最终结论是多睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+其实就是yhm的一套自我开解组合拳，这种还是看切片好，语气也能感受。
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15517#       发表于 2020-4-8 00:33
+
+
+
+
+邮箱就是个垃圾箱就算你不去看它依然在那里(
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15518#       发表于 2020-4-8 00:34
+
+
+
+
+那我是发过一个的，标题上写了“具体防疫措施建议（很重要希望能看，拜托了）”
+
+她说的是啥意思的不看就知道是啥啊。。。说实话我一直当她看了的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+没发完那边同传就出来了，姑且当她看了吧，，，
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15519#       发表于 2020-4-8 00:36
+
+
+
+
+yysy，睡觉确实能解决大部分小烦恼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（毕竟很多事确实都是屁大点事）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15520#       发表于 2020-4-8 00:36
+
+
+
+
+噗，流星这一段让我跟mea同步擦起了盘子
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15521#       发表于 2020-4-8 00:36
+
+
+
+
+她甚至不记得昨天b限播lol过了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15522#       发表于 2020-4-8 00:37
+
+
+
+
+不出门就是最好的防疫
+
+
+一句话就能解决了（
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15523#       发表于 2020-4-8 00:37
+
+
+
+
+还是希望能培养出适度的精神韧性啊.jpg
+
+
+虽然我也不懂几十w粉的人受到的压力有多大就是了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15524#       发表于 2020-4-8 00:38
+
+
+
+
+一场歌回两次夜明还行，怕不是间歇性失忆了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15525#       发表于 2020-4-8 00:39
+
+
+
+
+总是要出门的啊，，，在必须要出门的时候要做好的防护什么的，比如出门注意什么，回家了又要注意什么，一个月前可没见霓虹政府提过，，，<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15526#       发表于 2020-4-8 00:40
+
+
+
+
+她不是说不做vtb以后去当fxman吗，说要炒的时候还要观众教教她
+没事的时候赶紧去学学，到时候就可以用邮件教她了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15527#       发表于 2020-4-8 00:42
+
+
+
+
+没事，这种指示厨的邮件多点比尽是观众打架告状的邮件好，都是好事儿
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 15528#       发表于 2020-4-8 00:43
+
+
+
+
+好听
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15529#       发表于 2020-4-8 00:45
+
+
+
+
+等一个粉丝告状在邮件里骂我。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15530#       发表于 2020-4-8 00:46
+
+
+
+
+观众打架告状的又不是没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15531#       发表于 2020-4-8 00:46
+
+
+
+
+最好的办法是包装自己，教别人炒fx，知识付费，稳赚不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15532#       发表于 2020-4-8 00:47
+
+
+
+
+别说了，按照之前的经验如果是在高危地区你想出门安全，口罩远远不够
+
+这个天你出门，大风迷了眼，下意识就是用手擦吧——想想之前你手碰过哪了没？
+
+之前我上封控点，是手套+口罩+防尘眼镜全套，手套用完就丢，绝对不带出去
+
+
+霓虹现在这个暗锅，我真不知道该如何形容。如果可以我都想一把把她接回来躲几个月
+
+可惜跟我想拿着单位发的皮带拿几个傻逼大学生anti（别问我怎么知道的）开瓢一样，仅限于YY
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15533#       发表于 2020-4-8 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47009152&amp;ptid=1912063" target="_blank">甘栗No.007 发表于 2020-4-8 00:33</a>
+就是评论有人发了句看邮件，说很重要
+然后她就说根据她之前看邮箱的经历，重要的事其实是威胁无聊的琐碎以 ...</blockquote>
+叹气
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15534#       发表于 2020-4-8 00:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47009267&amp;ptid=1912063" target="_blank">Ky·Kiske 发表于 2020-4-8 00:47</a>
+别说了，按照之前的经验如果是在高危地区你想出门安全，口罩远远不够
+
+这个天你出门，大风迷了眼，下意识就 ...</blockquote>
+是啊，正经的防疫不做，钱收的倒是够欢
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15535#       发表于 2020-4-8 00:49
+
+
+
+
+啥时候mea打lol开始玩吸血鬼我就当mk2届到了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15536#       发表于 2020-4-8 00:52
+
+
+
+<blockquote>路人庚 发表于 2020-4-8 00:49
+啥时候mea打lol开始玩吸血鬼我就当mk2届到了</blockquote>
+不是玩👼？？？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15537#       发表于 2020-4-8 00:52
+
+
+
+
+那也要把基础的好好说一下啊，，，我是不信不和她说她会回家就用酒精消毒的，虽然感觉说了也是想起来就用，想不起来就忘了。但是提了总比啥都不知道好，，，
+
+算了，还是听歌吧
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15538#       发表于 2020-4-8 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47009180&amp;ptid=1912063" target="_blank">无限舰制 发表于 2020-4-8 00:37</a>
+还是希望能培养出适度的精神韧性啊.jpg
+
+
+虽然我也不懂几十w粉的人受到的压力有多大就是了 ...</blockquote>
+是啊
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15539#       发表于 2020-4-8 00:55
+
+
+
+<blockquote>IrisL 发表于 2020-4-8 00:52
+不是玩👼？？？</blockquote>
+玩大天使跟mk2有个锤子关系，那可是官宣
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15540#       发表于 2020-4-8 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47009325&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-8 00:55</a>
+玩大天使跟mk2有个锤子关系，那可是官宣</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15541#       发表于 2020-4-8 01:07
+
+
+
+
+草，不洗澡给观众省水费
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15542#       发表于 2020-4-8 01:20
+
+
+
+ 本帖最后由 Cla0221 于 2020-4-8 01:22 编辑 
+
+，，，下次不那么集中攻击尿道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+我指的是对她，她这都去几回了，怪我，，，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15543#       发表于 2020-4-8 01:21
+
+
+
+
+你当心感染，玩的时候注意点.jpg
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15544#       发表于 2020-4-8 01:24
+
+
+
+
+clay复活后感觉变态得更直接了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15545#       发表于 2020-4-8 01:28
+
+
+
+
+那还是比m7m8那时候含蓄多了，现在变态的都在自己的群搞，不放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15546#       发表于 2020-4-8 01:42
+
+
+
+
+睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15547#       发表于 2020-4-8 01:43
+
+
+
+
+ED都没放，是真困了？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15548#       发表于 2020-4-8 01:46
+
+
+
+
+tc突击
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 15549#       发表于 2020-4-8 01:46
+
+
+
+
+TC is coming<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15550#       发表于 2020-4-8 01:47
+
+
+
+
+我再蹲一会.jpg
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15551#       发表于 2020-4-8 01:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+还行
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15552#       发表于 2020-4-8 01:57
+
+
+
+
+有懂哥能专业评价一下这字是什么水平吗？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15553#       发表于 2020-4-8 02:00
+
+
+
+
+小屁孩水平，该🐍了
+
+
+
+
+
+                               
