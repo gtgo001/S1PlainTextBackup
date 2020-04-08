@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-08 12:01** 
+> ## **本文件最后更新于2020-04-08 16:01** 
 
 
 
@@ -10167,4 +10167,561 @@ nice
 
 
 
-                              
+
+
+-----
+
+####  JY要塞  
+##### 15575#       发表于 2020-4-8 12:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">坦克是真实
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15576#       发表于 2020-4-8 12:15
+
+
+
+
+你麻就是个卡比
+
+
+粉色圆滚滚
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Leutnant某囧| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15577#       发表于 2020-4-8 12:23
+
+
+
+
+坦克版本是这样的，咩姐爱玩的波比opgg都t2了（错乱）
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 15578#       发表于 2020-4-8 12:33
+
+
+
+
+卡比（x）
+
+卡比兽（√）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15579#       发表于 2020-4-8 12:39
+
+
+
+
+这个签名可以扣下来印在结婚证上嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15580#       发表于 2020-4-8 12:42
+
+
+
+
+说不定你麻因为特定被害妄想而故意用不正常的笔迹来写<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15581#       发表于 2020-4-8 12:44
+
+
+
+
+你麻觉得心电图都能特定，怎么会不担心字迹能特定）
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15582#       发表于 2020-4-8 12:46
+
+
+
+
+我明白了，这其实是咩妹代笔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这是小麻放出来的**。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15583#       发表于 2020-4-8 13:06
+
+
+
+
+我承认，是我们的女儿写的
+
+
+说实话，看到这图我第一反应就是从什么角度特她<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 15584#       发表于 2020-4-8 13:11
+
+
+
+
+呜呜就是因为有你们这么一群整天想着特麻透麻的憨批，我家阿麻才会这么一天到晚担惊受怕的。
+你们赔我新麻图！赔我新麻图！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+....好吧其实我也这么想过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15585#       发表于 2020-4-8 13:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">肉体厨希望+1，今天敢露字，明天就会露腿了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15586#       发表于 2020-4-8 13:19
+
+
+
+
+那后天就可以露脸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爽爆
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15587#       发表于 2020-4-8 13:20
+
+
+
+
+后天就腿上写字了
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 15588#       发表于 2020-4-8 13:26
+
+
+
+
+如果可以，我要在腿上写一首琵琶行<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15589#       发表于 2020-4-8 13:28
+
+
+
+
+暗示表面积大，逮捕了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15590#       发表于 2020-4-8 14:20
+
+
+
+<blockquote>noaki 发表于 2020-4-8 13:11
+呜呜就是因为有你们这么一群整天想着特麻透麻的憨批，我家阿麻才会这么一天到晚担惊受怕的。
+
+你们赔我新麻 ...</blockquote>
+肯定，不过我好歹没这么想
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15591#       发表于 2020-4-8 14:33
+
+
+
+ 本帖最后由 Cla0221 于 2020-4-8 16:00 编辑 
+
+行行行，我寻思以前这样也都没这样⑧，nga又在讨论憋尿也没见正义使者出警的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider|-1|不爽就扣鹅，没必要对楼友手下留情.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15592#       发表于 2020-4-8 14:49
+
+
+
+
+停一停朋友，我遭不住了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15593#       发表于 2020-4-8 14:55
+
+
+
+
+又来？能不能正常一点。网络并非无法之地。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15594#       发表于 2020-4-8 14:56
+
+
+
+<blockquote>古战场亡魂 发表于 2020-4-8 14:55
+又来？能不能正常一点。网络并非无法之地。</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15595#       发表于 2020-4-8 14:59
+
+
+
+ 本帖最后由 Cla0221 于 2020-4-8 15:00 编辑 
+
+又咋了嘛，这不就都聊到这了嘛，不行以后有点变态的变色发呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+还有，发邮箱告粉丝状的请不要告发我，我平时在推上装的还挺好的。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+终究还是回不去m7的大发情时代了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15596#       发表于 2020-4-8 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47014226&amp;ptid=1912063" target="_blank">Cla0221 发表于 2020-4-8 14:33</a>
+
+其实她直接给我发小xue照的话不就好了，又能满足咱的透麻欲望，又不能被特定。 ...</blockquote>
+太强了。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15597#       发表于 2020-4-8 15:11
+
+
+
+
+真的太恶心了，自己反思一下自己。在论坛当暴露狂这么愉快？？
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 15598#       发表于 2020-4-8 15:23
+
+
+
+
+你特么是不是弱智啊，不是有自己私底下的群来着么？恁还是滚去那边慢慢直球R18吧
+
+0202年了还是个考研带学生连NM公开论坛不直球R18的道理都不懂
+
+是不是觉得绿帽谭杀你发情楼几次没法子了。台球这边就欢迎弱智R18系列了？被骂了还不编辑真该送你进去清醒一下，看看自己几把充血过度口无遮拦有多弱智
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15599#       发表于 2020-4-8 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47014507&amp;ptid=1912063" target="_blank">Cla0221 发表于 2020-4-8 14:59</a>
+
+又咋了嘛，这不就都聊到这了嘛，不行以后有点变态的变色发呗
+
+
+还有，发邮箱告粉丝状的请不要告发我 ...</blockquote>
+说清楚点？你发告粉丝状的邮件了？<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15600#       发表于 2020-4-8 15:26
+
+
+
+
+无语
+
+
+
+
+
+
+
+-----
+
+####  青叶假司  
+##### 15601#       发表于 2020-4-8 15:26
+
+
+
+
+发情请多来点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15602#       发表于 2020-4-8 15:31
+
+
+
+
+发情不用心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15603#       发表于 2020-4-8 15:52
+
+
+
+
+他的意思应该是如果要告他状的话下手轻点之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
