@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-05 20:01** 
+> ## **本文件最后更新于2020-04-09 00:00** 
 
 
 
@@ -2886,7 +2886,7 @@ ps2：艹旅馆的若女将戳中我的壶了  加上短裤运动少女 知优
 
 
 -77d1436b3cc65902.jpg
-(66.46 KB, 下载次数: 0)
+(66.46 KB, 下载次数: 1)
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_UdntV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_v8Qns" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_qcC0D" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_AlBF2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -5190,4 +5190,615 @@ https://twitter.com/dededeteiu/status/1246652373646229504?s=20
 
 
 
-                                        
+
+
+-----
+
+####  武男  
+##### 1772#       发表于 2020-4-5 20:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46985353&amp;ptid=1860852" target="_blank">吾道长不孤 发表于 2020-4-5 19:50</a>
+
+上面说的屌不是指强度而是指对老板的态度啊
+
+
+博士强归强，但是对社长【多半是以前的学生】态度还 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/020.png" referrerpolicy="no-referrer">这样的话，心跳那个耗子大叔也差不多了，只不过反杀失败
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1773#       发表于 2020-4-5 20:15
+
+
+
+<img src="https://p.sda1.dev/0/a559b8aa2e54eddd2317f76899065fe0/2020-04-05_20-15-27.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 1774#       发表于 2020-4-5 21:36
+
+
+
+<blockquote>風駿 发表于 2020-4-5 16:59
+去年的讨论量有一部分归功于前年的药效未过</blockquote>
+安定的质量不错讨论度很难高起来的
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1775#       发表于 2020-4-5 21:45
+
+
+
+
+这集香香好棒啊 没错我就是喜欢看粉红被虐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  musicat  
+##### 1776#       发表于 2020-4-5 23:13
+
+
+
+
+械斗好评，就是出剑的镜头也人太少了。反正小友急了一定会拿着棒子敲人的，管他呢。
+
+
+
+
+
+
+
+-----
+
+####  苏小幼  
+##### 1777#       发表于 2020-4-6 01:27
+
+
+
+
+jc新出的甜梦猫感觉不错啊，第一集就是社畜的白日梦，主角团好像四女两男，有点上头
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1778#         楼主| 发表于 2020-4-6 07:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46988485&amp;ptid=1860852" target="_blank">苏小幼 发表于 2020-4-6 01:27</a>
+
+jc新出的甜梦猫感觉不错啊，第一集就是社畜的白日梦，主角团好像四女两男，有点上头 ...</blockquote>
+太好看了，简直街角魔族续作
+
+砖楼太冷清，求添砖加瓦
+[https://bbs.saraba1st.com/2b/for ... ead&amp;tid=1856880](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1856880)
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1779#       发表于 2020-4-6 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46989131&amp;ptid=1860852" target="_blank">hgcg-w 发表于 2020-4-6 07:33</a>
+
+太好看了，简直街角魔族续作
+
+砖楼太冷清，求添砖加瓦
+
+https://bbs.saraba1st.com/2b/forum.php?mod=viewt ...</blockquote>
+JC做了街角魔族之后一去不复返了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1780#       发表于 2020-4-6 17:23
+
+
+
+<blockquote>nerugigannte 发表于 2020-4-5 17:01
+因为没啥药？又不是腐女，没必要周周发情</blockquote>
+？巨魔不要进幼女动画帖谢谢
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 1781#       发表于 2020-4-6 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994130&amp;ptid=1860852" target="_blank">噗哩噗 发表于 2020-04-06 17:23:24</a>
+？巨魔不要进幼女动画帖谢谢</blockquote>抱Q和心跳这种Q娃很容易吸引巨魔的啊，倒不如说泥潭大友能有几个内心纯洁的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1782#       发表于 2020-4-6 17:49
+
+
+
+
+看了DM重置的作画 今年Q娃打斗怕是又没戏了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  杂灰  
+##### 1783#       发表于 2020-4-6 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994398&amp;ptid=1860852" target="_blank">leleq 发表于 2020-04-06 17:49:15</a>
+看了DM重置的作画 今年Q娃打斗怕是又没戏了……</blockquote>乐观点，也许接下来大家都因为疫情全部打戏gg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  catenary  
+##### 1784#       发表于 2020-4-6 18:26
+
+
+
+
+话说，微笑那年也挺安定的，为啥关注度高啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1785#       发表于 2020-4-6 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46989131&amp;ptid=1860852" target="_blank">hgcg-w 发表于 2020-4-6 07:33</a>
+太好看了，简直街角魔族续作
+
+砖楼太冷清，求添砖加瓦
+
+https://bbs.saraba1st.com/2b/forum.php?mod=viewt ...</blockquote>
+马克了，明早看。
+
+jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1786#       发表于 2020-4-6 18:39
+
+
+
+ 本帖最后由 風駿 于 2020-4-6 18:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46994806&amp;ptid=1860852" target="_blank">catenary 发表于 2020-4-6 18:26</a>
+
+话说，微笑那年也挺安定的，为啥关注度高啊
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+微笑那年人设更为鲜明，比较能抓眼球，剧情以欢乐为主，爆笑段子不止，有几集为了爆笑玩的让我感觉很尬。但偶尔重要剧情进入文艺路线反而能让我感到惊讶，比如我就多次感叹过见幸“哎？这孩子居然通情达理知分寸懂进退不是个笨蛋？”
+
+
+
+今年人设第一印象绝对是属于系列中较为普通的，日常剧情稳扎稳打表现出自己的个性三人的互动，看着很舒心但并不夺目。
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1787#       发表于 2020-4-6 19:40
+
+
+
+
+这次反派难得智商在线+粉毛智商下线，结果还是被救场了
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 1788#       发表于 2020-4-6 21:11
+
+
+
+
+感觉Q娃主动要分开单打独斗的情节不多？
+
+本来还以为要有什么特别的东西……
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1789#       发表于 2020-4-6 23:59
+
+
+
+
+一下打三个 可还行
+
+不能追加个交通工具么……如果再来几次这样跑着也蛮累的（其实她们也不会累吧）
+
+
+看着这两集一单元的进展，不禁想到以前看奥的时候打难打的怪兽先要打退反省一下然后再战，看预告好像也没这个意思，有点像打完之后和佳的自我反省？
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1790#       发表于 2020-4-7 01:01
+
+
+
+
+神回。。。面对剧情撞车疫情stuff没有选择绕道走而是正面迎上，强啊！你说grace暗示安倍死保奥运我都要信了，而且之后深刻地反省了，强啊！
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1791#       发表于 2020-4-7 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46984349&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-4-5 18:21</a>
+
+作为团宠担当的粉主感觉很少见？</blockquote>
+公主的春春，拥抱的花都有这种性质，不过在公主之前确实没有？
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 1792#       发表于 2020-4-7 03:29
+
+
+
+
+不知为何现在兴起了一股想看和佳哭出来的风潮，真是扭曲(我也想，我也想看啊)
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 1793#       发表于 2020-4-7 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46999291&amp;ptid=1860852" target="_blank">吹雪桑大胜利 发表于 2020-04-07 03:29:19</a>
+不知为何现在兴起了一股想看和佳哭出来的风潮，真是扭曲(我也想，我也想看啊) ...</blockquote>粉主哭几乎是定番了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1794#       发表于 2020-4-7 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47001204&amp;ptid=1860852" target="_blank">moooooonlight 发表于 2020-4-7 10:49</a>
+
+粉主哭几乎是定番了吧
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+前段时间战吧 不是弄了个每年粉红痛哭的图么 其中一半都是用Q娃凑得<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1795#       发表于 2020-4-7 11:26
+
+
+
+
+疗q下限会不会比水果好？
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 1796#       发表于 2020-4-7 19:31
+
+
+
+ 本帖最后由 灼眼的夏娜酱 于 2020-4-7 19:32 编辑 
+
+补抓心的时候下载的版本第34集后面这个预告上出来的是谁？是声优还是什么相关人员还是只是个节目主持人？
+
+
+
+
+
+
+抓心一集的片尾，这人是谁？_看图王.png
+(725.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-7 19:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/07/193123yjyjecdaocb4xtzv.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1797#         楼主| 发表于 2020-4-7 20:17
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdle71vpixj20u00ycnj0.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdle724s7oj20ww0u0tt4.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gdle70xhmgj20u0171tmn.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gdle71eb8nj20wt0u01kx.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdle719lqej20qk1hcqno.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gdle71d28zj20u019jawe.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1798#       发表于 2020-4-7 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">今年什么情况，才十几集怎么搞得和快大结局了一样，第11集还不能演完第10集后续的内容。我想要摩多摩多的日常三人互动
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1799#       发表于 2020-4-7 20:53
+
+
+
+
+居然同时三地出现怪，这是首次吗？记不太清了
+
+今年粉主挨打得有点多啊，好心疼，刚打完又开反省会，我爱上粉主了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1800#       发表于 2020-4-7 20:57
+
+
+
+
+15居然粉红组吵架了，第二集还说兔子喜欢和佳来着
+
+
+估计接下来该给追加战士做铺垫了吧
+
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1801#       发表于 2020-4-8 22:18
+
+
+
+
+录音棚都关了，q娃是不是要停播了？
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1802#         楼主| 发表于 2020-4-8 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47018738&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-4-8 22:18</a>
+
+录音棚都关了，q娃是不是要停播了？</blockquote>
+停播的话，能免费在电视台放今年剧场版么……
+
+
+
+
+
+
+
+-----
+
+####  Blackson  
+##### 1803#       发表于 2020-4-8 22:50
+
+
+
+
+我觉得这点是不可能的
+
+
+
+
+
+                                       
