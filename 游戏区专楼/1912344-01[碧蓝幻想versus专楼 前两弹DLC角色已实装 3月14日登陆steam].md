@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-07 16:01** 
+> ## **本文件最后更新于2020-04-08 10:01** 
 
 
 
@@ -9899,4 +9899,539 @@ ps4主题啥时候单独卖<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
-                               
+
+
+-----
+
+####  air11974  
+##### 542#       发表于 2020-4-7 16:15
+
+
+
+
+看了几局老头的对战，普通状态下要靠霸体蓄槽，到能爆衣的时候基本上就剩血皮，说得好听就是靠底力翻盘，但是风险远大于回报
+吉他虽然低配古兰，但是基本性能摆在那里，挤不进4天王混个a+感觉还是没问题的。
+
+
+
+
+
+
+
+-----
+
+####  センコウ  
+##### 543#       发表于 2020-4-7 16:19
+
+
+
+
+老头主要爆衣算觉醒，槽满了也不能直接爆有些难受。。而且他这个爆衣并没有什么肉眼可见的性能提升
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 544#       发表于 2020-4-7 16:26
+
+
+
+
+在大厅玩了几把老头，感觉移动慢，难打逆，百烈拳不能接地拳，2h防空发动慢，升龙还凹不了，真的难受<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hashire.owl  
+##### 545#       发表于 2020-4-7 17:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">吉他是完全的男主下位版？？不买了
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 546#       发表于 2020-4-7 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005493&amp;ptid=1912344" target="_blank">hashire.owl 发表于 2020-4-7 17:26</a>
+吉他是完全的男主下位版？？不买了</blockquote>
+等四月底平衡更新估计古兰就跌下神坛了
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 547#       发表于 2020-4-7 17:41
+
+
+
+
+有美少女的皮，还要什么自行车<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 548#       发表于 2020-4-7 17:58
+
+
+
+
+各大高手姬塔纷纷断连笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 549#       发表于 2020-4-7 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005617&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-7 17:40</a>
+
+等四月底平衡更新估计古兰就跌下神坛了</blockquote>
+古兰确定要削了吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 550#       发表于 2020-4-7 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005860&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-4-7 18:09</a>
+古兰确定要削了吗</blockquote>
+总得削吧，太赖了，低修正高回报大判定，感觉菲莉也要削一手凹
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 551#       发表于 2020-4-7 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005877&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-7 18:11</a>
+
+总得削吧，太赖了，低修正高回报大判定，感觉菲莉也要削一手凹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">古兰削了大快人心
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 552#       发表于 2020-4-7 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005776&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-7 17:58</a>
+各大高手姬塔纷纷断连笑死我了</blockquote>
+那个手搓奥义吗，好像出招表有点误导，llmmhh，hh有三下的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，一开始老老实实按节奏按怎么都打不出来，后面疯狂连打才发现
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 553#       发表于 2020-4-7 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005938&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-7 18:18</a>
+那个手搓奥义吗，好像出招表有点误导，llmmhh，hh有三下的，一开始老老实实按节奏按怎么都打不出 ...</blockquote>
+我放弃了，实战用这个压力太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，裸凹也就少两百伤害
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 554#       发表于 2020-4-7 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47005973&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-7 18:23</a>
+我放弃了，实战用这个压力太大，裸凹也就少两百伤害</blockquote>
+主要是远距离中了也能派生追加攻击，简易指令不行
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 555#       发表于 2020-4-7 18:29
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  cvql  
+##### 556#       发表于 2020-4-7 19:46
+
+
+
+
+没。。。那是H后要慢L因为动作不对你是要看着他动作按，ll锤子MM出两刀ll那两下很慢然后lmh可以连按，看到出完**动作就可以安心慢慢刷反半圈U了，毕竟最后开**是三段
+
+—— 来自 samsung SM-N9760, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 557#       发表于 2020-4-7 20:31
+
+
+
+
+ 最开始的ll中间要有间隔吗，还是必须卡好必杀命中时间连按？
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 558#       发表于 2020-4-7 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007176&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-7 20:31</a>
+最开始的ll中间要有间隔吗，还是必须卡好必杀命中时间连按？</blockquote>
+连按就行
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 559#       发表于 2020-4-7 20:36
+
+
+
+
+psn ALINDA12  有空的今晚可以打打哈，练练姬塔
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 560#       发表于 2020-4-7 21:45
+
+
+
+
+丢人了，本来以为100胜以内可以上说，现在55胜只有a4...高估自己了
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 561#       发表于 2020-4-7 21:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007824&amp;ptid=1912344" target="_blank">Bani82 发表于 2020-4-7 21:45</a>
+丢人了，本来以为100胜以内可以上说，现在55胜只有a4...高估自己了</blockquote>
+感觉现在AB段鱼塘比开服那阵强了很多
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 562#       发表于 2020-4-7 22:00
+
+
+
+
+现在sss都跑到冠位了，不应该集体都往上跑了吗
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 563#       发表于 2020-4-7 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007945&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-7 21:56</a>
+感觉现在AB段鱼塘比开服那阵强了很多</blockquote>
+不强吧，
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 564#       发表于 2020-4-7 22:09
+
+
+
+
+是么，我打大厅碰到不少蛮厉害的B和A
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 565#       发表于 2020-4-7 22:12
+
+
+
+
+我只遇到几个60胜以下a1的觉得还能打，超100胜a段觉得和新手区别不大
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 566#       发表于 2020-4-7 23:39
+
+
+
+
+73胜进A1了，运气好再来个3连胜就S了！
+
+不过感觉打到S毫无意义，依然没出新手区的感觉，可能STEAM上打得人太少了吧
+
+日服好像SSS很厉害，一晚上打我50:0的人只能在日服当SSS守门员
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 567#       发表于 2020-4-8 00:06
+
+
+
+ 本帖最后由 Bani82 于 2020-4-8 00:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46744298&amp;ptid=1912344" target="_blank">mhfdt 发表于 2020-3-15 14:33</a>
+
+MAO感觉还行，新人用有奇效，可以乱拳打死老师傅
+
+本人格斗菜鸡用MAO定完级是B
+
+我觉得用MAO最大的要点就是你 ...</blockquote>
+根本不可能的，奶刀目前版本性能算差的，虽然不至于完全不能打，但是新手打赢老师傅绝对不现实
+
+无非三种情况
+
+1.对面也是新手
+
+2.你太有天赋
+
+3.完完全全第一次见
+
+实际上奶刀虽然可以左右择上下择，但是新手的奶刀基本破不了对面防
+
+今天杀了不下4、5奶刀，A段的都和新手没区别，rank打了差不多有100场了就没见过rank里有厉害的奶刀
+
+唯一打过打不过的奶刀靠的也是人间性能，远H命中复合切勾还能确认三连刀，被关厕所就有可能被一个差合直接收走后5割的那种
+
+
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 568#       发表于 2020-4-8 01:05
+
+
+
+
+个人体感国内的s跟日本的b差不多<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 569#       发表于 2020-4-8 01:08
+
+
+
+
+真的吗，早知道我不挂东京节点了....虽然也一个多月没打rank了
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 570#       发表于 2020-4-8 01:21
+
+
+
+ 本帖最后由 Bani82 于 2020-4-8 01:30 编辑 
+
+我没打过PSN上的RANK，反正我对PSN联机基本绝望状了
+
+不过STEAM上来看RANK选亚洲区起码A段不少人基础连都打不齐，就别说限定之类的了
+
+有时候我都觉得自己赢得莫名其妙
+
+
+不过也不要盲信什么日本那边水平多高，路人终归是路人，以前GG打过日本15~20段的路人，也和砍瓜切菜区别不大
+
+当然，如果非要说去马场打的话，那算了，反正我也就路人水平就不挑战专业场去了
+
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 571#       发表于 2020-4-8 09:41
+
+
+
+
+現在、ジータの「大いなる破局」を受けた相手が仰け反らない状態の時に通常より大きいダメージが発生する不具合を確認しております。
+現在修正対応を行っており、4月下旬配信のアップデートで修正予定となります。お客様には大変ご迷惑をおかけいたしますことをお詫び申し上げます。
+
+吉他解放奥义打霸体有伤害bug，直接打十割<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
