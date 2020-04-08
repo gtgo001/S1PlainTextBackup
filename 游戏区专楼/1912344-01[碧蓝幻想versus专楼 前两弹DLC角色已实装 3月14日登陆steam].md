@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-08 10:01** 
+> ## **本文件最后更新于2020-04-09 04:01** 
 
 
 
@@ -10434,4 +10434,551 @@ MAO感觉还行，新人用有奇效，可以乱拳打死老师傅
 
 
 
-                              
+
+
+-----
+
+####  air11974  
+##### 572#       发表于 2020-4-8 11:21
+
+
+
+
+【A9VG】专访《GBVS》福原导演：平衡性还有大调整 会长期推出新内容 [http://a9vg.com/article/72517](http://a9vg.com/article/72517)
+
+4天王要掉下神坛了
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 573#       发表于 2020-4-8 11:51
+
+
+
+
+看视频老头感觉慢慢开发出来了，冷却很快的突进技压制力挺大的
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 574#       发表于 2020-4-8 11:57
+
+
+
+
+卡姐废了的话就玩姬塔了
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  onezeron  
+##### 575#       发表于 2020-4-8 12:21
+
+
+
+
+我在b站看到朱军发猫叔的讣告，心里一惊。。心想做格斗内容的朱军讲的猫叔，八成就是我们论坛的大脸猫了吧。。毕竟故事描述是非常接近。。希望不是如此。。。。。唉
+
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 576#       发表于 2020-4-8 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012844&amp;ptid=1912344" target="_blank">onezeron 发表于 2020-4-8 12:21</a>
+我在b站看到朱军发猫叔的讣告，心里一惊。。心想做格斗内容的朱军讲的猫叔，八成就是我们论坛的大脸猫了吧 ...</blockquote>
+应该不会吧？叫这名挺多的感觉
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  onezeron  
+##### 577#       发表于 2020-4-8 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012903&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-8 12:27</a>
+
+应该不会吧？叫这名挺多的感觉
+
+
+—— 来自 OnePlus GM1910, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+希望如此。。格斗的不多吧。。而且挺像的。。只能说希望不是了
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 578#       发表于 2020-4-8 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012178&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-8 11:21</a>
+
+【A9VG】专访《GBVS》福原导演：平衡性还有大调整 会长期推出新内容 http://a9vg.com/article/72517
+
+
+4天王 ...</blockquote>
+古兰 卡姐 兰斯洛特 夏洛特？
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 579#       发表于 2020-4-8 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013108&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-4-8 12:47</a>
+古兰 卡姐 兰斯洛特 夏洛特？</blockquote>
+是菲利，夏洛特性能不过分
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 580#       发表于 2020-4-8 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013123&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-8 12:48</a>
+
+是菲利，夏洛特性能不过分
+
+
+—— 来自 OnePlus GM1910, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+夏洛特升龙被防后只能用5L确反，46c突进无责任，打起来非常头疼。感觉和兰斯洛特性能差不多。
+
+
+
+
+
+
+
+-----
+
+####  wyjbnb  
+##### 581#       发表于 2020-4-8 12:51
+
+
+
+<blockquote>onezeron 发表于 2020-4-8 12:21
+我在b站看到朱军发猫叔的讣告，心里一惊。。心想做格斗内容的朱军讲的猫叔，八成就是我们论坛的大脸猫了吧 ...</blockquote>
+他前几天才说话了
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 582#       发表于 2020-4-8 13:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013135&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-4-8 12:49</a>
+夏洛特升龙被防后只能用5L确反，46c突进无责任，打起来非常头疼。感觉和兰斯洛特性能差不多。 ...</blockquote>
+这个就像加强版本田一样，本田下水道的性能都能恶心人，所以矮子恶心也是正常的。夏洛特就t2水平的性能，不配给兰斯提鞋的。
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  克瓦特罗大尉  
+##### 583#       发表于 2020-4-8 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">问下这游戏可以不打RPG模式直接网战不，有啥影响没
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 584#         楼主| 发表于 2020-4-8 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013490&amp;ptid=1912344" target="_blank">克瓦特罗大尉 发表于 2020-4-8 13:22</a>
+问下这游戏可以不打RPG模式直接网战不，有啥影响没</blockquote>
+没有
+而且说实话如果不是为了特典，这rpg模式真的有玩的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克瓦特罗大尉  
+##### 585#       发表于 2020-4-8 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013494&amp;ptid=1912344" target="_blank">yuwe0714 发表于 2020-4-8 13:22</a>
+
+没有
+
+而且说实话如果不是为了特典，这rpg模式真的有玩的必要吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">忘记之前哪里看到的好像说rpg打到的武器可以用到对战模式，既然不影响就等pc打折弄个好了
+
+
+
+
+
+
+
+-----
+
+####  onezeron  
+##### 586#       发表于 2020-4-8 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013160&amp;ptid=1912344" target="_blank">wyjbnb 发表于 2020-4-8 12:51</a>
+
+他前几天才说话了</blockquote>
+我也看到了。。
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 587#       发表于 2020-4-8 14:05
+
+
+
+
+还差2个点就S了，目前77胜
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 588#       发表于 2020-4-8 14:14
+
+
+
+
+姬塔5M确反矮子升龙板边可以大连段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 589#       发表于 2020-4-8 15:57
+
+
+
+ 本帖最后由 佐伯香織 于 2020-4-8 16:04 编辑 
+
+姬塔的前后走速度是全角色最快的好像，真的好爽。2m也长，卡好距离接波动是加帧的，我觉得应该有t2，等古兰一削就机会上位。
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 590#       发表于 2020-4-8 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47015082&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-8 15:57</a>
+姬塔的前后走速度是全角色最快的好像，真的好爽。2m也长，卡好距离接波动是加帧的，我觉得应该有t2，等古兰 ...</blockquote>
+移动速度真的太爽了，投起来上瘾
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 591#       发表于 2020-4-8 16:29
+
+
+
+
+有人晚上来打么，主要在STEAM上，虽说PSN上也有
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 592#       发表于 2020-4-8 18:23
+
+
+
+
+问下，换武器外观怎么获取？在rpg模式吗？
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 593#       发表于 2020-4-8 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013524&amp;ptid=1912344" target="_blank">克瓦特罗大尉 发表于 2020-4-8 13:25</a>
+
+忘记之前哪里看到的好像说rpg打到的武器可以用到对战模式，既然不影响就等pc打折弄个好了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">除了买额外配色包和默认的几个颜色外的角色配色以及每个角色武器的皮肤都是在RPG模式里拿的
+
+其他就没什么打RPG的必要了，尤其steam版还没码
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 594#       发表于 2020-4-8 20:01
+
+
+
+
+有没有rpg大佬带我过hard啊，至今没有卖码<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuwe0714  
+##### 595#         楼主| 发表于 2020-4-8 20:06
+
+
+
+ 本帖最后由 yuwe0714 于 2020-4-8 20:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47017411&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-8 20:01</a>
+
+有没有rpg大佬带我过hard啊，至今没有卖码</blockquote>
+兄弟很简单的，挂机开自动去爬塔，这个时候你可以去看番或者做别的，等到爬不动的时候去理一下盘子卖一些给商店，都不一定需要抽出什么武器，光是商店里卖的那把光武全部强化满，堆满盘子，然后再带上两个加血的技能，这个时候你的生命都高的不行了，等最终boss放飞行道具的时候切自动让AI帮你躲就行了，最终战容错率高到无脑的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 596#       发表于 2020-4-8 21:27
+
+
+
+
+82胜S达成~<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+最后A1段开始竟然直接一波连胜上去了，没想到
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 597#       发表于 2020-4-8 21:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47017461&amp;ptid=1912344" target="_blank">yuwe0714 发表于 2020-4-8 20:06</a>
+兄弟很简单的，挂机开自动去爬塔，这个时候你可以去看番或者做别的，等到爬不动的时候去理一下盘子卖一些 ...</blockquote>
+我竟然忘了还有自动模式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 598#       发表于 2020-4-8 23:03
+
+
+
+
+新角色都没武器皮肤的？姬塔刷半天一个皮肤没有
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 599#       发表于 2020-4-8 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47019249&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-8 23:03</a>
+新角色都没武器皮肤的？姬塔刷半天一个皮肤没有
+
+—— 来自 OnePlus GM1910, Android 9上的 S1Next-鹅版 v2 ...</blockquote>
+我看对战视频有个姬塔拿着条咸鱼打……应该有吧
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 600#       发表于 2020-4-9 02:50
+
+
+
+ 本帖最后由 佐伯香織 于 2020-4-9 03:00 编辑 
+
+我对比了一下姬塔和古兰，
+普通技姬塔5m被防平帧，2m被防负帧，古兰5m被防加帧，2m被防加帧，远m姬塔稍微长一点。
+速度上古兰跑步快于姬塔，姬塔走路比古兰快。
+伤害在正常情况下伤害古兰胜出。
+技能上姬塔可以蓄二段波，古兰m波自带消波功能，214的技能就不提了，古兰无敌。
+
+总结古兰就算把断子绝孙腿砍了，还是强姬塔一档，所以用姬塔理由只有皮……
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 601#       发表于 2020-4-9 02:58
+
+
+
+
+听奶王说zeta已经脱离下水道了，不知道madao如何了
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                             
