@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-08 20:03** 
+> ## **本文件最后更新于2020-04-09 10:01** 
 
 
 
@@ -11847,4 +11847,755 @@ nice
 
 
 
-                           
+
+
+-----
+
+####  贴杂司马  
+##### 15666#       发表于 2020-4-8 21:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47016580&amp;ptid=1912063" target="_blank">thisisaspider 发表于 2020-4-8 18:17</a>
+
+最近和观众互动是比较多，个人本身是不喜欢她和观众太多互动的。但U1S1节目效果和质量都挺高的，能剪挺多东 ...</blockquote>
+她和观众互动是一直以来就有的事，不如说她的剪辑里面找评论一直是件必须掌握的技能<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15667#       发表于 2020-4-8 21:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47017992&amp;ptid=1912063" target="_blank">贴杂司马 发表于 2020-4-8 21:09</a>
+
+她和观众互动是一直以来就有的事，不如说她的剪辑里面找评论一直是件必须掌握的技能 ...</blockquote>
+那当然，弹幕互动本来就属于直播内容的。何况她和弹幕互动的效果本身就挺一流的。
+
+这里指的是她通过TAG征集内容。比起多，说深入应该比较好。
+
+虽然这类东西也是传统的直播内容，但一般我都不会参与。说到底也只是我个人喜好。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15668#       发表于 2020-4-8 21:33
+
+
+
+<blockquote>thisisaspider 发表于 2020-4-8 21:28
+那当然，弹幕互动本来就属于直播内容的。何况她和弹幕互动的效果本身就挺一流的。
+
+这里指的是她通过TAG征 ...</blockquote>
+大爷党？
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15669#       发表于 2020-4-8 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47018202&amp;ptid=1912063" target="_blank">IrisL 发表于 2020-4-8 21:33</a>
+
+大爷党？</blockquote>
+没到那地步，直播会追弹幕还是会发的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 15670#       发表于 2020-4-8 23:15
+
+
+
+ 本帖最后由 単推し人 于 2020-4-8 23:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47015969&amp;ptid=1912063" target="_blank">甘栗No.007 发表于 2020-4-8 17:19</a>
+
+她直播的回答是认清了找不到男人、永居第二位的现实，不如找个又帅又多金声音又好听，还爱她的阿宅结婚[f:0 ...</blockquote>
+还直播回答了原因吗？4.4号早上那个直播里说的？有时间戳吗，错过了那次直播真的很可惜啊，一觉睡到中午了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15671#       发表于 2020-4-8 23:31
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-4-8 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47019374&amp;ptid=1912063" target="_blank">単推し人 发表于 2020-4-8 23:15</a>
+
+还直播回答了原因吗？4.4号早上那个直播里说的？有时间戳吗，错过了那次直播真的很可惜啊，一觉睡到中午了 ...</blockquote>
+我说的是征集阿宅声音那回的开头
+
+不是回答原因，（上面是我瞎说的
+
+那是为了引入整活的闲话而已，不要太在意
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15672#       发表于 2020-4-8 23:35
+
+
+
+
+你楼还认真分析她每一句话的实数太闲。
+
+有兴趣的可以把她直播中说的不一致的话全部摆出来看看。
+
+包括只穿什么颜色的衣服，
+
+对钱财的理解，
+
+对gachi的态度，
+
+结婚的选择，
+
+女性权利相关。
+
+千层饼分析那么多干嘛。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15673#       发表于 2020-4-8 23:38
+
+
+
+
+那矛盾点可多了
+你咩姐要么是精神病人，要么喜欢跑火车
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15674#       发表于 2020-4-8 23:39
+
+
+
+
+多重人格说
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15675#       发表于 2020-4-8 23:41
+
+
+
+
+真正的虚拟人，没人能触及到真实
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15676#       发表于 2020-4-9 00:00
+
+
+
+ 本帖最后由 A2014720 于 2020-4-9 00:01 编辑 
+
+要的不就是这味么<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+髣髴兮若轻 云之蔽月，飘飖兮若流风之回雪
+
+真正的女猎人咩，所以我才会看她啊<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15677#       发表于 2020-4-9 00:08
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-8 23:41
+真正的虚拟人，没人能触及到真实</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 15678#       发表于 2020-4-9 00:56
+
+
+
+
+人的想法本来就是会变的呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+就像我前两天还觉得咩怀孕了，今天又觉得咩咩是处女<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX|-2|恶心人？？？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 15679#       发表于 2020-4-9 05:17
+
+
+
+
+最近玩砍2玩得走火入魔，当南帝女王的舔狗真开心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+这几天直播有没有啥重要的事情，帮我云一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15680#       发表于 2020-4-9 06:19
+
+
+
+
+b限突击，好起来了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15681#       发表于 2020-4-9 06:19
+
+
+
+
+朝活LOL<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还好我昨晚睡得早
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15682#       发表于 2020-4-9 06:22
+
+
+
+
+直接起飞
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15683#       发表于 2020-4-9 06:24
+
+
+
+
+半夜一直没睡，一想睡觉她来了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15684#       发表于 2020-4-9 06:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020696&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-9 06:19</a>
+朝活LOL还好我昨晚睡得早</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 15685#       发表于 2020-4-9 07:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一段时间没看，这咋妖姬都玩起来了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15686#       发表于 2020-4-9 07:11
+
+
+
+ 本帖最后由 IrisL 于 2020-4-9 07:14 编辑 
+
+她就不疑惑妖姬q为什么有标记吗仔细一看就一级q(害怕)
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 15687#       发表于 2020-4-9 07:22
+
+
+
+
+为什么今天说话这种调调啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 15688#       发表于 2020-4-9 08:06
+
+
+
+
+大早上就打的动lol  年轻真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 15689#       发表于 2020-4-9 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47016488&amp;ptid=1912063" target="_blank">A2014720 发表于 2020-04-08 18:07:56</a>
+确实，我看的少给了我这种感觉
+
+算了我去睡会，晚上还得蹲呢</blockquote>
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 15690#       发表于 2020-4-9 08:31
+
+
+
+
+无业neet真是好啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15691#       发表于 2020-4-9 08:44
+
+
+
+
+大清早就玩，没时间看呀，嗨呀这诺手饱了
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 15692#       发表于 2020-4-9 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这孩子几点就起来了…
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15693#       发表于 2020-4-9 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">渐行渐远
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15694#       发表于 2020-4-9 08:46
+
+
+
+
+也许没睡
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15695#       发表于 2020-4-9 08:50
+
+
+
+
+波比人柱力还是有水平的
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15696#       发表于 2020-4-9 09:06
+
+
+
+
+醒来就有麻看，真好
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15697#       发表于 2020-4-9 09:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后跑了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 15698#       发表于 2020-4-9 09:10
+
+
+
+
+草我才刚起来<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 15699#       发表于 2020-4-9 09:40
+
+
+
+
+姐姐你摇过社畜8
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15700#       发表于 2020-4-9 09:41
+
+
+
+
+又来了……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15701#       发表于 2020-4-9 09:42
+
+
+
+
+咩宝一定是在搞我
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 15702#       发表于 2020-4-9 09:43
+
+
+
+ 本帖最后由 八月琉璃 于 2020-4-9 09:45 编辑 
+
+这孩子精力真好啊，老父亲落泪。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15703#       发表于 2020-4-9 09:45
+
+
+
+
+又播了？？？
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 15704#       发表于 2020-4-9 09:46
+
+
+
+
+有两个月没早上播了吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15705#       发表于 2020-4-9 09:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是真的neet限定啊，大早上一直播播播
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15706#       发表于 2020-4-9 09:56
+
+
+
+
+草了，听不了，渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15707#       发表于 2020-4-9 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">neet怕是还没醒，这个点播就是给社畜唱歌
+
+
+
+
+
+                          
