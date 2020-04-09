@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-09 10:01** 
+> ## **本文件最后更新于2020-04-09 22:01** 
 
 
 
@@ -12598,4 +12598,1003 @@ b限突击，好起来了
 
 
 
-                          
+
+
+-----
+
+####  若风之景  
+##### 15708#       发表于 2020-4-9 10:07
+
+
+
+
+唉
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15709#       发表于 2020-4-9 10:08
+
+
+
+
+你这是唱歌啊还是说相声啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15710#       发表于 2020-4-9 10:20
+
+
+
+
+唱歌加段子就是有搞头啊
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 15711#       发表于 2020-4-9 10:30
+
+
+
+
+咩咩唱歌好嘢
+
+
+真系好
+
+
+咩咩唱歌劲
+
+
+冇得顶
+
+
+我系社畜啊~~~~你又系社畜~~~
+
+
+ohyeahohyeahohyeahohyeahohyeahohyeah
+
+
+妈的没得听气哭了
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 15712#       发表于 2020-4-9 10:39
+
+
+
+
+“因为没出门，和大家也没什么好说的”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15713#       发表于 2020-4-9 10:39
+
+
+
+
+社畜岂不是得后台播放插耳机（）
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15714#       发表于 2020-4-9 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杂谈系，出门取材很重要啊。没啥说的也可以理解
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15715#       发表于 2020-4-9 10:43
+
+
+
+
+不能出门，连小钢珠都没法云出来
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 15716#       发表于 2020-4-9 10:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那这几个月疫情能不能培养成游戏主播
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15717#       发表于 2020-4-9 10:46
+
+
+
+
+能变成LOL主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15718#       发表于 2020-4-9 10:49
+
+
+
+
+但是又不想一个人玩游戏，游戏主播当不成的
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15719#       发表于 2020-4-9 10:49
+
+
+
+
+大家在努力，那我就睡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神奇逻辑
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15720#       发表于 2020-4-9 10:56
+
+
+
+
+没药救了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15721#       发表于 2020-4-9 10:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天早上洗澡了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15722#       发表于 2020-4-9 10:57
+
+
+
+
+动不动就自杀，一看就是老太宰治了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15723#       发表于 2020-4-9 10:57
+
+
+
+
+那只能多运动多分泌点多巴胺了(
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 15724#       发表于 2020-4-9 10:57
+
+
+
+
+体感上唱了好久，因为上午的原因吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15725#       发表于 2020-4-9 10:59
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-4-9 11:01 编辑 
+
+这就是典型一个人在家关太久了出现的情绪吧，人还是需要去外面晒晒太阳的。不对，东京那状况还是别出门了，忧郁就忧郁吧，还是命要紧
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15726#       发表于 2020-4-9 11:04
+
+
+
+
+笑死我了，咩啊在看着你
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15727#       发表于 2020-4-9 11:05
+
+
+
+
+。。。你咩姐播了这么久？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15728#       发表于 2020-4-9 11:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15729#       发表于 2020-4-9 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">不会唱的部分可以哼过去啊，非要哒出来》。。。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15730#       发表于 2020-4-9 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15731#       发表于 2020-4-9 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47022628&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-9 11:05</a>
+。。。你咩姐播了这么久？</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15732#       发表于 2020-4-9 11:43
+
+
+
+
+  直播生活音来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15733#       发表于 2020-4-9 11:43
+
+
+
+
+我草这个刷牙音我冲爆
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15734#       发表于 2020-4-9 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15735#       发表于 2020-4-9 11:43
+
+
+
+
+有专业的能从声音判断一下她的牙口好么？
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15736#       发表于 2020-4-9 11:44
+
+
+
+
+好听吗 好听就是好牙
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15737#       发表于 2020-4-9 11:45
+
+
+
+
+不用听都知道不太行吧（确信）
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 15738#       发表于 2020-4-9 11:47
+
+
+
+
+还播呢？
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 15739#       发表于 2020-4-9 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">这刷牙效率，想刷干净需要买个电动牙刷
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15740#       发表于 2020-4-9 11:59
+
+
+
+
+建议一律按照yhm平均牙口处理
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15741#       发表于 2020-4-9 12:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">...
+
+我醒的一个小时前她在播， 我写了几个小时代码她还在播<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|你和她都在工作，贴贴|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15742#       发表于 2020-4-9 13:34
+
+
+
+
+搜东西时忽然发现这个，打不出第二个字也太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/787aad1d22ab14db6d92149022edb9b0/IMG_20200409_133241.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 15743#       发表于 2020-4-9 14:31
+
+
+
+
+天狗拉跨，anti也拉跨，天狗anti贴贴
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15744#       发表于 2020-4-9 19:06
+
+
+
+
+好累，想看联动<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 15745#       发表于 2020-4-9 19:31
+
+
+
+
+推特10w了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15746#       发表于 2020-4-9 19:47
+
+
+
+
+冻了两次终于到了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15747#       发表于 2020-4-9 19:47
+
+
+
+
+合理怀疑下午没睡是在等到10w关注发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15748#       发表于 2020-4-9 20:02
+
+
+
+
+终于啊……
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15749#       发表于 2020-4-9 20:02
+
+
+
+
+合理怀疑下午没睡晚上不播，今晚可以早睡了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15750#       发表于 2020-4-9 20:17
+
+
+
+<img src="https://p.sda1.dev/0/8dc683392c9608f91e8fb326ef25b5b7/6ce00944d2353a37.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|莫名色|
+| 时雨rain| + 1|欢乐多|
+| likemike| + 1|好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 15751#       发表于 2020-4-9 20:19
+
+
+
+
+草这什么傻屌图
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15752#       发表于 2020-4-9 20:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/09/201943uyp3c0cqik4vfttt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>sample-2a06feb6ac28a0be96c930d39f36b5b6.jpg</strong> (97.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-9 20:19 上传
+
+
+
+
+
+下午看到的时候幻视了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1||
+| A2014720| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15753#       发表于 2020-4-9 20:51
+
+
+
+
+友人A跑过来祝贺mea十万fo还行，事到如今杏运营（之一）还能有空跑来搭理咩姐真是不容易<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15754#       发表于 2020-4-9 20:58
+
+
+
+
+友人a是最近半年杏里和mea互动最多的人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑她就是来维持下杏的一般外交的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15755#       发表于 2020-4-9 20:58
+
+
+
+
+来谈转会的
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15756#       发表于 2020-4-9 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a酱就是专门搞外交的啊，基本上v有什么庆祝推都会回
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15757#       发表于 2020-4-9 21:00
+
+
+
+
+虽然我很想看她进holo喂某人吃屎，但为了恶心而恶心实在没有必要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15758#       发表于 2020-4-9 21:06
+
+
+
+
+（γ世界线）
+
+先进holo，过两个月毕业进彩虹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+虚拟人界的破坏者
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15759#       发表于 2020-4-9 21:12
+
+
+
+
+A酱不是说过喜欢咩咩吗， 难道是社交辞令<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15760#       发表于 2020-4-9 21:14
+
+
+
+
+我看a酱说什么都像是社交辞令<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15761#       发表于 2020-4-9 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种对外的运营角色不就是干这种事的么
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15762#       发表于 2020-4-9 21:21
+
+
+
+
+是啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15763#       发表于 2020-4-9 21:46
+
+
+
+
+不如搞个进彩虹的时间线，然后双方相爱相杀的剧本，贴贴人会喜欢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        

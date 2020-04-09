@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-02 14:03** 
+> ## **本文件最后更新于2020-04-09 22:05** 
 
 
 
@@ -10562,7 +10562,7 @@ b博评论比s1还脑瘫<img src="https://static.saraba1st.com/image/smiley/face
 
 
 Screenshot_20200225-012554.jpg
-(578.22 KB, 下载次数: 0)
+(578.22 KB, 下载次数: 1)
 
 
 
@@ -11939,7 +11939,7 @@ ark不也挺好吗？<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 2.png
-(28.06 KB, 下载次数: 0)
+(28.06 KB, 下载次数: 2)
 
 
 
@@ -23360,4 +23360,529 @@ mea可是连做梦信姬换了推特头图这事都能自闭
 
 
 
-        
+
+
+-----
+
+####  小博禹  
+##### 2733#       发表于 2020-4-2 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46954965&amp;ptid=1914314" target="_blank">专业划水人员 发表于 2020-4-2 13:48</a>
+mea可是连做梦信姬换了推特头图这事都能自闭</blockquote>
+你还真信，咩要真有你们想的那么敏感，去年不得被夸哥和粉丝气死又气活好多次了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2734#       发表于 2020-4-3 00:16
+
+
+
+
+究竟什么时候才能有糖吃呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2735#       发表于 2020-4-3 01:19
+
+
+
+
+快了，这个月一定有。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2736#       发表于 2020-4-3 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46962081&amp;ptid=1914314" target="_blank">stedckk 发表于 2020-4-3 01:19</a>
+快了，这个月一定有。</blockquote>
+2019年的4月特别多，我打赌年四月没有，起码要五月<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+syl,有没有来和我进行s1特色赌头活动的啊。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2737#       发表于 2020-4-3 01:47
+
+
+
+
+搬：你像一颗洋葱，我想了解你，于是我不停地剥下它，一片一片，最后才发现，原来洋葱没有心。
+
+土味情话就是好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2738#       发表于 2020-4-3 01:48
+
+
+
+
+建议黑化，不要再留恋了。
+
+体验一下也好嘛，先来篇巨魔文创，你会喜欢上这种感觉的。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2739#       发表于 2020-4-3 21:44
+
+
+
+
+明天清明，来扫个墓
+<img src="https://static.saraba1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2740#       发表于 2020-4-3 22:02
+
+
+
+
+変わらないもの<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2741#       发表于 2020-4-3 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46962222&amp;ptid=1914314" target="_blank">A2014720 发表于 2020-4-3 01:47</a>
+
+搬：你像一颗洋葱，我想了解你，于是我不停地剥下它，一片一片，最后才发现，原来洋葱没有心。
+
+
+土味情话就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">人没心不能活，洋葱没心岂能活
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 2742#       发表于 2020-4-5 17:56
+
+
+
+<img src="https://p.sda1.dev/0/4e769a4dc548d7e4c40f79c87cf233cc/27570f2c41ac371b.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">小羊讲新人了就想撞上来，小夸的小心思好坏哦，看不下她身边有其他人wwwwww
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 2743#       发表于 2020-4-5 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46984038&amp;ptid=1914314" target="_blank">ColdAir 发表于 2020-4-5 17:56</a>
+小羊讲新人了就想撞上来，小夸的小心思好坏哦，看不下她身边有其他人wwwwww ...</blockquote>
+等一个今晚歌回被跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2744#       发表于 2020-4-6 09:42
+
+
+
+
+头顶排球这个号的部分精分发言几天前是爷在用
+
+虽然clay这比我挺想给他一拳完事的 但是也别瞎给他扣所谓官组的帽子
+
+不过官组连三字母都能有人嘴边挂的地方凭什么就不能有所谓四字母anti呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这逻辑属实搞笑
+
+不过还是要说清楚 爷跟任何组基本没多少关系 
+
+至于为什么今天发言 台球新号要三天我也很无奈啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2745#         楼主| 发表于 2020-4-6 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46989720&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-6 09:42</a>
+
+头顶排球这个号的部分精分发言几天前是爷在用
+
+虽然clay这比我挺想给他一拳完事的 但是也别瞎给他扣所谓官组 ...</blockquote>
+您是谁啊
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2746#       发表于 2020-4-6 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46989900&amp;ptid=1914314" target="_blank">离魂仙 发表于 2020-4-6 10:04</a>
+
+您是谁啊</blockquote>
+我谁又不重要 反正那个号我用过就是了 看到你楼有人说他是大亏anti我觉得还是不能平白冤枉无辜人士的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2747#         楼主| 发表于 2020-4-6 10:26
+
+
+
+
+哦
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2748#       发表于 2020-4-6 14:48
+
+
+
+
+你妈的我那天导师还催着论文进度在那赶饭盒和booth指引，你tm还拿那号整事真的是给爷整吐了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2749#       发表于 2020-4-6 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46992584&amp;ptid=1914314" target="_blank">Cla0221 发表于 2020-4-6 14:48</a>
+
+你妈的我那天导师还催着论文进度在那赶饭盒和booth指引，你tm还拿那号整事真的是给爷整吐了。
+
+ ...</blockquote>
+说的跟那号是你的一样，爷没叫结芽直接做了你真是给足您面子<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2750#       发表于 2020-4-6 15:32
+
+
+
+
+那你tm早说一声是你不就行了？非要让别人以为我要恶心人？有意思？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2751#       发表于 2020-4-6 15:38
+
+
+
+
+你们好gay啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2752#       发表于 2020-4-6 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46993015&amp;ptid=1914314" target="_blank">Cla0221 发表于 2020-4-6 15:32</a>
+
+那你tm早说一声是你不就行了？非要让别人以为我要恶心人？有意思？</blockquote>
+爷语气都改了，还有瞎子认错我可没义务纠正他，而且说你是大亏anti这帽子还能如何不成，官组上面都说了，某带翻译这种人都在，不会真有2b觉得大亏不存在anti吧
+
+退一万步说，去年还有人和爷说大亏组当时组长是六字母anti呢 那又能如何
+
+别真把自己那点风评看太重，crew真以为官组前成员是大亏anti我寻思也没啥问题
+
+只不过就事论事，是就是，不是就不是而已
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2753#       发表于 2020-4-6 16:59
+
+
+
+
+请问同好会里有贴杂么。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 2754#       发表于 2020-4-6 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">俺寻思天狗组有四字母黑子怎么了，法律规定不许有吗？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2755#       发表于 2020-4-6 17:58
+
+
+
+
+艹mea组都有mea黑子，还不允许有aqua黑子了？
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 2756#       发表于 2020-4-6 18:15
+
+
+
+
+逛了一圈v8，感想就是，凛子跟野男人约炮，麻麻跟男人同居，这就是贴贴吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2757#       发表于 2020-4-6 18:15
+
+
+
+
+管有没有呢，我不知道，不过我不是，我不想再听到有人和我说人家看见我当时接棉花糖时说我是夸anti要给我搞事（虽然也没咋碰到），这很难理解吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 2758#       发表于 2020-4-6 18:19
+
+
+
+
+今天收到了咩夸本
+令人感慨
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2759#       发表于 2020-4-6 18:30
+
+
+
+
+你说今天是330，令人感慨还可以理解。
+
+本子有啥感慨的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2760#       发表于 2020-4-9 19:52
+
+
+
+
+Make Meaqua Great Again!
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2761#       发表于 2020-4-9 20:16
+
+
+
+
+我等着看今天多长时间她们推特互动
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2762#       发表于 2020-4-9 20:38
+
+
+
+
+人就不能是私下里已经祝贺过了？这才才是真正的贴贴啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你们可不可以不要这么梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+       
