@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-09 22:05** 
+> ## **本文件最后更新于2020-04-10 02:03** 
 
 
 
@@ -23885,4 +23885,855 @@ Make Meaqua Great Again!
 
 
 
-       
+
+
+-----
+
+####  坚果收藏家  
+##### 2763#       发表于 2020-4-9 22:05
+
+
+
+
+镜头：“我10万了，那家伙不来祝贺一下吗。”
+
+镜头：“终于40万了，她会出现吗？。”
+
+“来和我说说话也好啊。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|是假的，我会很高兴（乐的）；是真的，我也.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2764#       发表于 2020-4-9 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47029653&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-9 22:05</a>
+
+镜头：“我10万了，那家伙不来祝贺一下吗。”
+
+镜头：“终于40万了，她会出现吗？。”
+
+“来和我说说话也好啊 ...</blockquote>
+是假的，我会很高兴（乐的）；是真的，我也会很高兴（真心）
+
+（第一次知道评分的理由有字数上限？）
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 2765#       发表于 2020-4-9 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47028404&amp;ptid=1914314" target="_blank">A2014720 发表于 2020-4-9 20:16</a>
+
+我等着看今天多长时间她们推特互动</blockquote>
+大胆判断 0互动 
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2766#       发表于 2020-4-9 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都2020年了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2767#       发表于 2020-4-9 22:50
+
+
+
+<blockquote>JY要塞 发表于 2020-4-9 22:49
+都2020年了</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 2768#       发表于 2020-4-9 22:52
+
+
+
+
+算了，今天对海苔男恨意减一<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 2769#       发表于 2020-4-9 22:52
+
+
+
+
+我又可以靠着这点糖渣撑到过年了 谢谢你苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2770#       发表于 2020-4-9 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">《卑微》
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 2771#       发表于 2020-4-9 22:53
+
+
+
+
+提了一句mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">糖渣也是糖
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2772#       发表于 2020-4-9 22:58
+
+
+
+
+发生了什么? 你们贴贴人都达成了无声的默契了?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2773#       发表于 2020-4-9 23:00
+
+
+
+
+啊这
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2774#       发表于 2020-4-9 23:00
+
+
+
+
+苔姨属实不行，多提几句恶心恶心不行么？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2775#       发表于 2020-4-9 23:05
+
+
+
+
+没啥，就阿夸刚打算说前天和mea聊天的内容的时候就被评论区出现的船长打断了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2776#       发表于 2020-4-9 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">看到nt天狗又在脑补不仲给mea拉黑，一天的心情又好了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识|-1|看到ntcrew我心情变差了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2777#       发表于 2020-4-9 23:07
+
+
+
+
+? ..<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+莫非是咖啡厅的信号
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2778#       发表于 2020-4-9 23:13
+
+
+
+
+“前天还说过话呢”
+
+是咖啡厅第二季🐴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2779#       发表于 2020-4-9 23:13
+
+
+
+
+八成日常聊天而已
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2780#       发表于 2020-4-9 23:36
+
+
+
+
+是谎话，大亏在说谎<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2781#       发表于 2020-4-9 23:36
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-9 23:13
+八成日常聊天而已</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2782#       发表于 2020-4-9 23:37
+
+
+
+
+看见前面天狗crew打架，作为暗黑贴贴人，我的心情好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2783#       发表于 2020-4-10 00:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来了来了，天狗出征mea粉，到底想让mea粉怎么样，不加入你们天狗anti大队给mea招黑就得被扣鹅
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2784#       发表于 2020-4-10 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让我看看谁是nt管人粉
+
+
+
+
+
+
+
+-----
+
+####  GRtime  
+##### 2785#       发表于 2020-4-10 00:10
+
+
+
+
+没看到这几层有人脑补不仲啊，虚空打靶可还行
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2786#       发表于 2020-4-10 00:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">她俩肯定最近做过了，我就是那双头龙。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2787#       发表于 2020-4-10 00:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是疯了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2788#       发表于 2020-4-10 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031104&amp;ptid=1914314" target="_blank">GRtime 发表于 2020-4-10 00:10</a>
+
+没看到这几层有人脑补不仲啊，虚空打靶可还行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2774楼还在提用mea恶心aqua，都成虚空打靶了，你们天狗是装看不见还是互相包庇习惯了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|没注意2774楼，以为你在虚空打靶.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2789#       发表于 2020-4-10 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031164&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-04-10 00:16:09</a>
+2774楼还在提用mea恶心aqua，都成虚空打靶了，你们天狗是装看不见还是互相包庇习惯了 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶心贴贴人到你这就成恶心aqua了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2790#       发表于 2020-4-10 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031185&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-4-10 00:18</a>
+
+恶心贴贴人到你这就成恶心aqua了
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别人说恶心贴贴人我信，这个泥潭ID知名aqua梁木人说的我不信
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2791#       发表于 2020-4-10 00:20
+
+
+
+
+明明被恶心的是我，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道我就是aqua？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2792#       发表于 2020-4-10 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031199&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-04-10 00:20:00</a>
+别人说恶心贴贴人我信，这个泥潭ID知名aqua梁木人说的我不信</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个泥潭不知名梁木人说别人是梁木人也是很有醍醐味
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2793#       发表于 2020-4-10 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031199&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-04-10 00:20:00</a>
+别人说恶心贴贴人我信，这个泥潭ID知名aqua梁木人说的我不信</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">还省一楼，梁木人贴贴！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2794#       发表于 2020-4-10 00:23
+
+
+
+
+性爱飞宝梁木人来一个秋梨膏
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 2795#       发表于 2020-4-10 00:25
+
+
+
+
+没看直播，听说今天海苔男没疯狂拱火咩夸贴贴？看来这对cp的热度完全过去了，海苔男看不上了。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2796#       发表于 2020-4-10 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">你们认识的管人粉丝还挺多，以后开团可以先列个粉丝列传吗，我不认识他啊
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2797#       发表于 2020-4-10 00:26
+
+
+
+ 本帖最后由 飞姆托 于 2020-4-10 00:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031217&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-4-10 00:21</a>
+
+你这个泥潭不知名梁木人说别人是梁木人也是很有醍醐味
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这观点真奇怪，还是你意思MK2和2000互称纯良，贴贴呢？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2798#       发表于 2020-4-10 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031264&amp;ptid=1914314" target="_blank">草牛 发表于 2020-04-10 00:25:59</a>
+你们认识的管人粉丝还挺多，以后开团可以先列个粉丝列传吗，我不认识他啊 ...</blockquote>是她
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2799#       发表于 2020-4-10 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031270&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-04-10 00:26:31</a>
+你这观点真奇怪，还是你意思MK2和2000互称纯良，贴贴呢？</blockquote>当然贴啊，v综两人都互掘腚眼子了，当众湿吻
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2800#       发表于 2020-4-10 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031285&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-4-10 00:27</a>
+
+当然贴啊，v综两人都互掘腚眼子了，当众湿吻
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那这互掘腚眼也太多了，红宝和2000，mk2和2000，AI和2000，我好像发现了什么
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2801#       发表于 2020-4-10 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031407&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-04-10 00:52:25</a>
+那这互掘腚眼也太多了，红宝和2000，mk2和2000，AI和2000，我好像发现了什么</blockquote>现在加上你
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2802#       发表于 2020-4-10 00:58
+
+
+
+
+🔒了🔒了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2803#       发表于 2020-4-10 01:02
+
+
+
+
+欢乐多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2804#       发表于 2020-4-10 01:09
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-10 01:11 编辑 
+
+催化了场小规模的“打架”，对不起<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">（还浪费了两条鱼）
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2805#       发表于 2020-4-10 01:19
+
+
+
+ 本帖最后由 小博禹 于 2020-4-10 01:21 编辑 
+
+他的意思明显就是恶心阿夸吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过他的意思不应该是夸在尽量避免提到咩，所以苔苔是在故意恶心人，这跟咩夸不仲又有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2806#       发表于 2020-4-10 01:43
+
+
+
+
+整笑了，这人搞男同贴贴一直有一套的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2807#       发表于 2020-4-10 01:49
+
+
+
+
+怎么理解其实无所谓的，主要是理解别人的理解前提下的行为的内在逻辑和合理性
+
+（他不说，我也以为那楼是在黑屁贴贴人（毕竟是在这楼嘛），所以略过去了）
+
+
+
+
+
+      
