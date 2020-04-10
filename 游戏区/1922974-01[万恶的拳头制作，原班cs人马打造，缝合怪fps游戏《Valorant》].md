@@ -1,0 +1,3077 @@
+> ## **本文件最后更新于2020-04-10 12:14** 
+
+
+
+-----
+
+####  bobby312123  
+##### 1#       楼主       发表于 2020-4-7 21:27
+
+
+
+
+
+<input name="formhash" type="hidden" value="af03c43f"/)
+
+<strong>单选投票</strong> , 投票后结果可见, 共有 511 人参与投票
+
+
+
+
+距结束还有:
+
+<strong>
+
+7 天20 小时21 分钟
+
+</strong>
+
+
+
+
+
+1.  下一个fps版lol,红遍全球。
+
+
+
+2.  在fps市场上拥有一席之地，没明显优势。
+
+
+
+3.  爆红一时，过两年消失不见
+
+
+
+4.  大暴死
+
+
+ 
+提交
+
+
+
+
+ 本帖最后由 bobby312123 于 2020-4-10 08:35 编辑 
+
+北京时间4月7号晚上8点，《Valorant》正式开始公测了。目前twitch最高峰值160多万观众，排行历史第3
+
+而各位可以进行云评测了，这款游戏争议性大，有人说必火无疑，有人说这画面比cf还不堪。
+
+封测进行到第四天，10名特工已全部上线。主播基本上评价都比较好，开放者与社区的交流比较正面。但已经有人开挂被封禁了。
+
+我看了主播上传的挂视频，用的是透视自瞄。但打的人很近身，不知道战争迷雾系统有没发挥作用。
+
+
+
+不知道s1的各位如何预测这款游戏呢？虽然我的标题很像troll，但只是想玩一把乳法梗，我会根据坛友的投票结果更改标题。
+
+
+
+
+
+
+
+
+
+-----
+
+####  ‮agur4kI  
+##### 2#       发表于 2020-4-7 21:32
+
+
+
+
+我投了第二个
+
+我觉得它开头会火一下, 后面平稳了
+
+缩小版的堡垒之夜
+
+
+
+
+
+
+
+-----
+
+####  bobby312123  
+##### 3#         楼主| 发表于 2020-4-7 21:33
+
+
+
+
+目前twitch人数已经到了140万，历史第一是2018e3,170万人
+
+
+
+
+
+
+
+-----
+
+####  八汰乌丶  
+##### 4#       发表于 2020-4-7 21:36
+
+
+
+
+130W什么概念
+
+其他FPS游戏多少<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bobby312123  
+##### 5#         楼主| 发表于 2020-4-7 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007737&amp;ptid=1922974" target="_blank">八汰乌丶 发表于 2020-4-7 21:36</a>
+
+130W什么概念
+
+其他FPS游戏多少</blockquote>
+fortnite达到过150万和160万
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 6#       发表于 2020-4-7 21:38
+
+
+
+
+我不信这游戏能红3个月
+
+
+
+
+
+
+
+-----
+
+####  bobby312123  
+##### 7#         楼主| 发表于 2020-4-7 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007761&amp;ptid=1922974" target="_blank">胧楼 发表于 2020-4-7 21:38</a>
+
+我不信这游戏能红3个月</blockquote>
+4月封测，8月上线，怎么也得过3个月吧。
+
+
+
+
+
+
+
+-----
+
+####  mirrorside  
+##### 8#       发表于 2020-4-7 21:39
+
+
+
+
+感觉这个会和堡垒成竞争关系啊
+
+
+
+
+
+
+
+-----
+
+####  thecatnie  
+##### 9#       发表于 2020-4-7 21:40
+
+
+
+
+观众都想看这游戏烂成什么样吧
+
+
+
+
+
+
+
+-----
+
+####  frankCC  
+##### 10#       发表于 2020-4-7 21:46
+
+
+
+ 本帖最后由 frankCC 于 2020-4-7 22:18 编辑 
+
+虽然我选的1，但我还是忍不住去别的社区找圣经去了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">=====================
+
+
+<img src="https://img.saraba1st.com/forum/202004/07/215441rwiwf266elz0plpl.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20200407215141.png</strong> (701.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-7 21:54 上传
+
+
+
+
+
+
+正好我这第一排在加上bf应该就是这几年主流的射击对抗游戏了，
+
+除了valorant外，cs20年不怎么变，其他几家都有自己的东西，
+
+就连创新最比较弱的ow在各方面都算是tf2的威力加强版了，各方面的设计都很扎实，
+
+国内一堆网游出身的用户，
+
+特别喜欢高估运营，觉得曝光轰炸=无敌，
+
+问题是游戏的本质先是游戏，才是其他，
+
+fps没创新真的就是等死，
+
+然后，
+
+valorant这个，大家也都知道什么样子，
+
+自己的东西没看到，反而是别人的东西能找到不少。
+
+
+
+
+
+
+
+-----
+
+####  operatbig  
+##### 11#       发表于 2020-4-7 21:47
+
+
+
+
+请你坛不要逆天而行。
+
+
+
+
+
+
+
+-----
+
+####  最美人贩子  
+##### 12#       发表于 2020-4-7 21:48
+
+
+
+
+泥潭有恐鹅症，连带拳头也跟着遭殃，恐难得出客观结论。
+
+
+
+
+
+
+
+-----
+
+####  医生狼多  
+##### 13#       发表于 2020-4-7 21:48
+
+
+
+<img src="https://p.sda1.dev/0/5bc7bdaf4ccb0252e883af20aa1d3574/IMG_2545FA2FCCCC05A24D4C9096B6489E44.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  修罗王  
+##### 14#       发表于 2020-4-7 21:52
+
+
+
+
+多人fps历史上保3争1吧
+
+
+
+
+
+
+
+-----
+
+####  摩天城  
+##### 15#       发表于 2020-4-7 21:53
+
+
+
+
+支持valorant干死csgo，valve滚回去做单机！
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 16#       发表于 2020-4-7 21:54
+
+
+
+
+也就拳头开发还能这么有争议了，这游戏要是ea或者动视做的怕是能被喷死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 17#       发表于 2020-4-7 21:54
+
+
+
+
+TWITCH有系数的说法嘛？平时没怎么研究
+
+summit1g TTT平时看他们打其他游戏的时候就1，2W左右人数，现在玩一个刚刚BETA的游戏直接往后加一个0到6位数是认真的嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+我记得个人主播到10W+以前都得是Ninja这种，shroud doc和都到不了.
+
+
+
+
+
+
+
+-----
+
+####  tand177  
+##### 18#       发表于 2020-4-7 21:57
+
+
+
+
+我希望腾讯代理火遍中国，网吧满地你游玩家，重现当年吃鸡神仙养蛊，其他FPS游戏环境清新的盛况<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 19#       发表于 2020-4-7 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007927&amp;ptid=1922974" target="_blank">Asukalangley33 发表于 2020-4-7 09:54</a>
+
+TWITCH有系数的说法嘛？平时没怎么研究
+
+summit1g TTT平时看他们打其他游戏的时候就1，2W左右人数，现在玩一 ...</blockquote>
+这游戏开twitch drop 所有在这个频道的直播间都能开这个功能掉key
+
+很多人（包括我）都是开七八个直播间在后台挂机的
+
+你可以用这个思路推算一下真实人数
+
+顺便一说owl的观看人数也是这个套路 内嵌广告植入在一些网站里面
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 20#       发表于 2020-4-7 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007927&amp;ptid=1922974" target="_blank">Asukalangley33 发表于 2020-4-7 21:54</a>
+
+TWITCH有系数的说法嘛？平时没怎么研究
+
+summit1g TTT平时看他们打其他游戏的时候就1，2W左右人数，现在玩一 ...</blockquote>
+挂在直播间有几率得到激活码
+
+
+
+
+
+
+
+-----
+
+####  Asukalangley33  
+##### 21#       发表于 2020-4-7 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007968&amp;ptid=1922974" target="_blank">缺德猫 发表于 2020-4-7 21:59</a>
+
+挂在直播间有几率得到激活码</blockquote>
+既然能掉鸡和马拿去EBAY卖钱，那有这么多观众倒没啥毛病
+
+要是纯看游戏的人有100多W，我只能说大家都疯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cranberries  
+##### 22#       发表于 2020-4-7 22:02
+
+
+
+
+16年已经上过网易营销的当了。
+现在这卖相比ow不论是画面，美术还是观感都差不少的玩意，我是不会有啥想法的。
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 23#       发表于 2020-4-7 22:08
+
+
+
+<blockquote>qianoooo 发表于 2020-4-7 21:58
+这游戏开twitch drop 所有在这个频道的直播间都能开这个功能掉key
+
+很多人（包括我）都是开七八个直播间在 ...</blockquote>
+听说淘宝一个激活码两三千？那的确值得挂啊，难怪这么多人。话说卡激活码不是腾讯绝活吗？
+
+
+
+
+
+
+
+-----
+
+####  bobby312123  
+##### 24#         楼主| 发表于 2020-4-7 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007844&amp;ptid=1922974" target="_blank">frankCC 发表于 2020-4-7 21:46</a>
+
+虽然我选的1，但我还是忍不住去别的社区找圣经去了=====================</blockquote>
+其实还是有自己东西的。据说所有硬核fps玩家的三大梦想128tick，反外挂，全球主要城市延迟低于30。如果可以做到这3点，那确实就可以了
+
+
+
+
+
+
+
+-----
+
+####  DeepRed  
+##### 25#       发表于 2020-4-7 22:23
+
+
+
+
+本来想投第一个的，想了想如今fps游戏市场选了第二个。（选大暴死的真不是在否定fps游戏的可玩性？）
+
+
+
+
+
+
+
+-----
+
+####  Bondrewd  
+##### 26#       发表于 2020-4-7 22:24
+
+
+
+
+没云过，但是对拳头的平衡组没什么信心，觉得最好也不过是下一个ow。ow被平衡组折磨得现在什么low样不用多说了吧
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  frankCC  
+##### 27#       发表于 2020-4-7 22:31
+
+
+
+ 本帖最后由 frankCC 于 2020-4-7 22:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47008138&amp;ptid=1922974" target="_blank">bobby312123 发表于 2020-4-7 22:20</a>
+
+其实还是有自己东西的。据说所有硬核fps玩家的三大梦想128tick，反外挂，全球主要城市延迟低于30。如果可 ...</blockquote>
+这仨是fps的痛点，但不是游戏设计层面的东西啊，
+
+游戏本身先是游戏，然后再讨论电竞、体验、外挂什么的，
+
+“Artifact会在竞技领域击败所有卡牌游戏”这个已经是笑话了，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+rpg什么的随便改改、缝合一下，有点创新，剧本不错就有不少人买账，
+
+fps这几年感觉弄点微创新都杯水车薪，一定要大改，
+
+没到“玩你从没见过的世界”的程度，（魔兽那句广告词，有点忘了）
+
+起码也要“介四里没有挽过的船新版本”，这样才能活下来。
+
+
+
+
+
+
+
+-----
+
+####  jy000129  
+##### 28#       发表于 2020-4-7 22:34
+
+
+
+
+VA必火，不火吃我翔<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 29#       发表于 2020-4-7 22:36
+
+
+
+
+先不说上手再评价，云也多云几个视频啊。
+
+
+
+
+
+
+
+-----
+
+####  awy47  
+##### 30#       发表于 2020-4-7 22:36
+
+
+
+
+这人设被ow吊打玩法又是缝合怪很难想象tx要砸多少钱才能把这游戏推起来。
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.1.1-alpha
+
+
+
+
+
+
+
+-----
+
+####  chenzhi11  
+##### 31#       发表于 2020-4-7 22:37
+
+
+
+
+紫罗兰是不可能翻车的,我要吹爆拳头
+
+
+
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 32#       发表于 2020-4-7 22:38
+
+
+
+
+塔科夫也进主流了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lighttt  
+##### 33#       发表于 2020-4-7 22:40
+
+
+
+
+这画质也太垃圾了。。又是个缝合怪
+
+
+
+
+
+
+
+-----
+
+####  最美人贩子  
+##### 34#       发表于 2020-4-7 22:45
+
+
+
+
+这类大众游戏的制作不是短跑，而是一种马拉松式的耐力赛。
+
+想想看吧，lol s1-s3的时候，一样被人认为画面简陋，人设丑陋，抄袭。但是这种游戏，推广，更新，维护就是王道。开始不行，只要玩的人多，就有希望！游戏有问题，没关系，只要更新勤奋，一切都可以改！原画可以改，英雄可以加，不好就重做！腾讯的人数加上拳头的钱，只要坚持下去就能赢啊。
+
+有太多游戏，推出的时候满堂彩，但是更新不力加上玩的人少，迅速凉了下去。这个时代，无论什么产品，钱多，人多，更新快，就能赢！
+
+
+
+
+
+
+
+-----
+
+####  爱护动物抓根宝  
+##### 35#       发表于 2020-4-7 22:52
+
+
+
+
+云了一会，除开第一眼印象实在是low到爆表外感觉乐趣还是有的(虽说大部分都是cs的乐趣)，不过整个英雄系统就突出一个意义不明，还不如把人物改成皮肤然后把技能改成可购买的投掷物。
+
+
+
+
+
+
+
+-----
+
+####  dev2ce  
+##### 36#       发表于 2020-4-7 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007914&amp;ptid=1922974" target="_blank">摩天城 发表于 2020-4-7 21:53</a>
+支持valorant干死csgo，valve滚回去做单机！</blockquote>
+valve：说的csgo我管一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大行动磨磨唧唧，起源2遥遥无期，职业比赛基本外包
+
+
+
+
+
+
+
+-----
+
+####  Paradox7  
+##### 37#       发表于 2020-4-7 22:56
+
+
+
+
+其实还行，就是看着丑了点。玩法和思路完全就奔着csgo去的，从开始就一心想着电竞化。击杀的提示和配置要求用户盘感觉真就参考的cf，低配置要求+入门门槛低+击杀快感足，假如能做到门槛低同时有深度的话靠着拳头搞电竞的水平我觉得不会比ow混得差
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人  
+##### 38#       发表于 2020-4-7 23:07
+
+
+
+
+看了一下，这玩意对于一般路过玩家非常不友好吧
+
+
+
+
+
+
+
+-----
+
+####  zhacaizn  
+##### 39#       发表于 2020-4-7 23:22
+
+
+
+
+看了眼1.6m了，看来全球人都喜欢跟风和占小便宜
+
+
+
+
+
+
+
+-----
+
+####  巨型猫  
+##### 40#       发表于 2020-4-7 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47008497&amp;ptid=1922974" target="_blank">有优越感的人 发表于 2020-4-7 23:07</a>
+
+看了一下，这玩意对于一般路过玩家非常不友好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看职业哥玩，不是乱杀对面就是被对面乱杀
+
+
+
+
+
+
+
+-----
+
+####  yashisa  
+##### 41#       发表于 2020-4-7 23:29
+
+
+
+
+干过csgo毫无问题
+
+
+
+
+
+
+
+-----
+
+####  瓜苗乐章  
+##### 42#       发表于 2020-4-7 23:31
+
+
+
+
+还是看反外挂如何，这就一拳头版的cs，肯定能拉拢一大批人
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  瓜苗乐章  
+##### 43#       发表于 2020-4-7 23:34
+
+
+
+ 本帖最后由 瓜苗乐章 于 2020-4-7 23:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47007927&amp;ptid=1922974" target="_blank">Asukalangley33 发表于 2020-4-7 21:54</a>
+TWITCH有系数的说法嘛？平时没怎么研究
+
+summit1g TTT平时看他们打其他游戏的时候就1，2W左右人数，现在玩一 ...</blockquote>
+你要考虑到挂机看直播会掉落测试key
+
+4月4有百万人看录像，掉1.5万key
+今天拳头是找了很多主播（不光是fps，还有其他游戏的）打表演赛，而且今天会掉7.5万key
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 44#       发表于 2020-4-8 01:44
+
+
+
+
+已经170万人了呵呵
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 45#       发表于 2020-4-8 03:19
+
+
+
+
+上手玩了一下 微微fps菜鸡 这游戏的**和csgo一样的 准星是散的
+
+一堆投掷物 门槛其实还挺高的 地图比csgo简单一点 虽然有的图有ABC三个点
+
+有的英雄只能平着扔投掷物但是有技能 有的英雄可以无视地形直接地图上扔投掷物
+
+我觉得这游戏和CSGO有两点挺不一样的 一个是购买时间可以乱走 时间很长 足以直接走到进攻点位前面（有个空气墙挡着）所以可以直接一波爆弹拿下点位 另外一个是死了以后技能点数（投掷物）都留着 还是挺舒服的 不至于被无限滚雪球
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 46#       发表于 2020-4-8 03:29
+
+
+
+
+我在这游戏的目录里找到了wegame相关的文件 国服估计快上了
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 47#       发表于 2020-4-8 03:37
+
+
+
+
+为什么能看到对面钱，感觉很弱智
+
+
+
+
+
+
+
+-----
+
+####  市松椿  
+##### 48#       发表于 2020-4-8 06:56
+
+
+
+
+不喜欢这样的游戏 希望他死
+
+
+
+
+
+
+
+-----
+
+####  黑丝大野模  
+##### 49#       发表于 2020-4-8 07:49
+
+
+
+
+这游戏看着也太缝合怪了，而且是明目张胆不带掩饰的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Smile_D_up  
+##### 50#       发表于 2020-4-8 07:51
+
+
+
+
+希望能把外挂引流过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 51#       发表于 2020-4-8 08:17
+
+
+
+
+守望六号：GO
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  7450  
+##### 52#       发表于 2020-4-8 08:50
+
+
+
+
+这种SB游戏，活不过3个月
+
+当年我也是这么看LOL的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wwjwwgzhp  
+##### 53#       发表于 2020-4-8 08:56
+
+
+
+
+看过一点视频录像 有个像禅雅塔的在扔球 结果放技能是小美的冰墙 最后碰到人了突然掏出**啪啪啪爆头。。。。再加上这地图emmm说不出话
+
+
+
+
+
+
+
+-----
+
+####  C男  
+##### 54#       发表于 2020-4-8 08:56
+
+
+
+
+低配置缝合怪游戏，腾讯运营，满足了火的条件
+
+
+
+
+
+
+
+-----
+
+####  operatbig  
+##### 55#       发表于 2020-4-8 08:58
+
+
+
+
+事已至此，不要负隅顽抗了，很难看。
+
+
+
+
+
+
+
+-----
+
+####  凤凰院天豪  
+##### 56#       发表于 2020-4-8 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47008332&amp;ptid=1922974" target="_blank">最美人贩子 发表于 2020-4-7 22:45</a>
+
+这类大众游戏的制作不是短跑，而是一种马拉松式的耐力赛。
+
+想想看吧，lol s1-s3的时候，一样被人认为画面简 ...</blockquote>
+刀塔霸业哭了
+
+
+
+
+
+
+
+-----
+
+####  终结之心  
+##### 57#       发表于 2020-4-8 09:06
+
+
+
+
+建议蒸斯林和暴白手拉手联合起来
+
+
+
+
+
+
+
+-----
+
+####  fig3  
+##### 58#       发表于 2020-4-8 09:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47008032&amp;ptid=1922974" target="_blank">洗刷刷 发表于 2020-4-7 22:08</a>
+听说淘宝一个激活码两三千？那的确值得挂啊，难怪这么多人。话说卡激活码不是腾讯绝活吗？ ...</blockquote>
+拳頭不就是騰訊的
+
+
+
+
+
+
+
+-----
+
+####  chenzhi11  
+##### 59#       发表于 2020-4-8 09:21
+
+
+
+
+ 看了一下主播玩有种在玩csgo拿着ak突突突的时候突然冲出一个源氏拔刀开始收人头的生艹感233
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 60#       发表于 2020-4-8 09:57
+
+
+
+
+玩法看着像其他游戏，会不会是因为主播依然用以前游戏的玩法在玩，而没有去探索适合这款游戏的玩法？
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 61#       发表于 2020-4-8 10:51
+
+
+
+
+这游戏从地图就看得出来最开始绝对不是这样的
+
+游戏风格比起CS更像是TTF2那样的
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 62#       发表于 2020-4-8 10:55
+
+
+
+
+试玩甚至还有类似彩虹六号女武神的黑眼技能（可投掷黏在墙上的小型摄像头）真就不管地图风格照抄一遍啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 63#       发表于 2020-4-8 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47011824&amp;ptid=1922974" target="_blank">FUZE 发表于 2020-4-7 22:51</a>
+
+这游戏从地图就看得出来最开始绝对不是这样的
+
+游戏风格比起CS更像是TTF2那样的
+
+ ...</blockquote>
+还是更像cs一点感觉
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 64#       发表于 2020-4-8 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47011940&amp;ptid=1922974" target="_blank">qianoooo 发表于 2020-4-8 11:02</a>
+
+还是更像cs一点感觉</blockquote>
+这游戏最开始设计的时候应该不是朝向CS这样的风格。
+
+游戏地图明显比CS大得多，你能在地图里面找到一堆“梯子”，游戏里面的路也比CS宽很多，掩体也没有多少，游戏里面高低差也很多不少都高的可怕。说明至少拳头最开始做这游戏的时候不是朝着CS这样的思路，可能是类似于有贴墙跑，有二段跳，有闪现这样TTF2风格。前面不是有人说了么，这游戏立项都五六年了，可能最开始就是看到OW的爆火后，想做一个“高机动”的对抗FPS，但是后来OW凉了，这几年CSGO的人气缓缓上升又改成了CS那样的对抗FPS。看得出来拳头实际上自己也不是很清楚自己要做一个什么样的游戏。
+
+
+
+
+
+
+
+-----
+
+####  正直的黄瓜  
+##### 65#       发表于 2020-4-8 11:12
+
+
+
+
+这种狗屎游戏还有这么多人玩才是最骚的。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 龙爪|-1|刀狗急了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wl42523  
+##### 66#       发表于 2020-4-8 11:25
+
+
+
+
+只要肯持续运营撒钱，短期内肯定火爆。至于能火多久就看后续付费内容能不能支撑这撒出去的钱了。
+
+
+
+
+
+
+
+-----
+
+####  BISSBISS  
+##### 67#       发表于 2020-4-8 13:03
+
+
+
+
+不知道为啥，这游戏的拥戴者喜欢贬低csgo，小绝那个视频下一溜喷csgo的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JonnyGreenwood  
+##### 68#       发表于 2020-4-8 13:18
+
+
+
+
+拳头(腾讯)的受众喷valve难道不是传统异能？谁叫你csgo身上流着valve的血，我看要不了多久就要开始对着csgo的比赛制度倾泻火力了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙爪  
+##### 69#       发表于 2020-4-8 13:23
+
+
+
+
+拳头受众喷V游是不是传统艺能我不清楚，不过看这楼刀狗喷拳头是老本行了
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 正直的黄瓜|-2|喷拳头怎么了？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ybfelix  
+##### 70#       发表于 2020-4-8 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012015&amp;ptid=1922974" target="_blank">FUZE 发表于 2020-4-8 11:08</a>
+
+这游戏最开始设计的时候应该不是朝向CS这样的风格。
+
+游戏地图明显比CS大得多，你能在地图里面找到一堆“ ...</blockquote>
+怀疑会出能力是短暂贴墙跑的英雄
+
+
+
+
+
+
+
+-----
+
+####  医生狼多  
+##### 71#       发表于 2020-4-8 13:42
+
+
+
+
+刀刀也要来冰清玉洁这一套吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  njjwl2005  
+##### 72#       发表于 2020-4-8 13:54
+
+
+
+
+万一，我是说万一这游戏火到半巅峰lol水平，每年十几亿刀营收持续个三五年，超过csgo和ow的生涯收入，到时候是阀门更气还是暴雪更气？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 73#       发表于 2020-4-8 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013682&amp;ptid=1922974" target="_blank">ybfelix 发表于 2020-4-8 01:38</a>
+怀疑会出能力是短暂贴墙跑的英雄</blockquote>
+不会了 我觉得火箭跳和大招全图传送已经是极限了。。。
+这么一想爬墙跑好像也不是很过分
+
+
+
+
+
+
+
+-----
+
+####  JonnyGreenwood  
+##### 74#       发表于 2020-4-8 13:57
+
+
+
+
+可别说我刀狗了，虽然云了几年了，不过我可是s2开始看比赛s3开始玩的老观众。刀2从头到尾纯云的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只是这游戏一副“csgo职业哥玩了都说好”的架势，不禁让我感觉历史正在重演，颇有当年原班人马打造那味了，2020年了拳头还是没变<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  修罗王  
+##### 75#       发表于 2020-4-8 13:57
+
+
+
+<blockquote>医生狼多 发表于 2020-4-8 13:42
+刀刀也要来冰清玉洁这一套吗</blockquote>
+这个唐突转火水平也太次了吧
+
+
+
+
+
+
+
+-----
+
+####  poiuyt  
+##### 76#       发表于 2020-4-8 14:03
+
+
+
+
+拳头和腾讯被喷不是天经地义？
+
+跟是不是刀狗没有关系
+
+
+
+
+
+
+
+-----
+
+####  Wiksy  
+##### 77#       发表于 2020-4-8 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012015&amp;ptid=1922974" target="_blank">FUZE 发表于 2020-4-8 11:08</a>
+
+这游戏最开始设计的时候应该不是朝向CS这样的风格。
+
+游戏地图明显比CS大得多，你能在地图里面找到一堆“ ...</blockquote>
+最开始做的时候就是CS这思路，只是想让战术性利用地形更有玩法而已。
+
+
+
+
+
+
+
+-----
+
+####  蕾丝控  
+##### 78#       发表于 2020-4-8 14:04
+
+
+
+
+看着还行，起码比OW更像个FPS游戏。
+
+
+
+
+
+
+
+-----
+
+####  ‮agur4kI  
+##### 79#       发表于 2020-4-8 14:04
+
+
+
+
+看了小绝的视频, 泥潭又在胡说八道
+
+我不说什么像不像cs
+
+好消息是没有英雄会像士兵76
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 80#       发表于 2020-4-8 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013941&amp;ptid=1922974" target="_blank">Wiksy 发表于 2020-4-8 14:03</a>
+
+最开始做的时候就是CS这思路，只是想让战术性利用地形更有玩法而已。</blockquote>
+那么这地图设计确实和原本的思路差的有点大的，这地图设计的太奔放狂野了
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 81#       发表于 2020-4-8 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013497&amp;ptid=1922974" target="_blank">龙爪 发表于 2020-4-8 13:23</a>
+
+拳头受众喷V游是不是传统艺能我不清楚，不过看这楼刀狗喷拳头是老本行了
+
+
+—— 来自 HUAWEI TAS-AL00, Andr ...</blockquote>
+刀狗罵拳頭跟任豚罵米哈游都是天賦人權，無可非議的
+
+有的遊戲公司就是活該
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 82#       发表于 2020-4-8 14:17
+
+
+
+
+真是有意思，刀刀还没留言呢怎么这些楼里的人就要立个靶子自己开始先打起来了？
+
+毕竟自己的爹没啥做游戏的能力只能缝合，粉丝声音不吼大声一点怎么办呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 83#       发表于 2020-4-8 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013275&amp;ptid=1922974" target="_blank">BISSBISS 发表于 2020-4-8 13:03</a>
+
+不知道为啥，这游戏的拥戴者喜欢贬低csgo，小绝那个视频下一溜喷csgo的 ...</blockquote>
+小绝受众喷CSGO不是因为这个游戏。
+
+
+
+
+
+
+
+-----
+
+####  龙爪  
+##### 84#       发表于 2020-4-8 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47014048&amp;ptid=1922974" target="_blank">病態極端 发表于 2020-4-8 14:14</a>
+刀狗罵拳頭跟任豚罵米哈游都是天賦人權，無可非議的
+
+有的遊戲公司就是活該 ...</blockquote>
+谁都能喷拳头，除了给OG打成RBQ的刀狗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  修罗王  
+##### 85#       发表于 2020-4-8 14:38
+
+
+
+ 本帖最后由 修罗王 于 2020-4-8 14:43 编辑 
+
+老套路了，先突然转火，然后发一些弱智都能看出问题的言论钓鱼，吵起来后就是装作弱势群体，最后火了就是把别人脸打烂了，不火就是无事发生。我唯一好奇的是大家都知道的对国内舆论有着近乎绝对控制权的公司，，为何装出被霸凌的模样还有那么多人相信
+
+
+
+
+
+
+
+-----
+
+####  zhacaizn  
+##### 86#       发表于 2020-4-8 14:43
+
+
+
+
+怎么说呢，这游戏，比烂的话，和ow一起塞到我嘴里我还是更不想玩ow，那这么看火一火也没啥
+
+
+
+
+
+
+
+-----
+
+####  瓜苗乐章  
+##### 87#       发表于 2020-4-8 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013951&amp;ptid=1922974" target="_blank">‮agur4kI 发表于 2020-4-8 14:04</a>
+看了小绝的视频, 泥潭又在胡说八道
+
+我不说什么像不像cs
+
+好消息是没有英雄会像士兵76 ...</blockquote>
+奶棒角色是有的……
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  louge19891020  
+##### 88#       发表于 2020-4-8 14:46
+
+
+
+
+转进拱火一下，原神这渣作都能被搞两个还是三个专楼喷，暴雪拳头这两个外国腾讯在这居然没被喷上一万楼，也是奇怪，按理说这里暴白暴黑拳黑拳孝子不少啊。
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 89#       发表于 2020-4-8 14:47
+
+
+
+
+看了小绝视频，他看到那个类似死神技能的角色后自己都笑了，后面女武神摄像头女鬼审问小美冰墙这一连串我感觉他自己都有点无语了赶快拿正统fps能一**爆头打死人来给台阶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  漫漫来  
+##### 90#       发表于 2020-4-8 14:47
+
+
+
+
+刀狗骂拳头天经地义？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把刀斯林语录再看一遍好吗，连续两年当欧洲儿子
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 91#       发表于 2020-4-8 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47014357&amp;ptid=1922974" target="_blank">louge19891020 发表于 2020-4-8 14:46</a>
+转进拱火一下，原神这渣作都能被搞两个还是三个专楼喷，暴雪拳头这两个外国腾讯在这居然没被喷上一万楼，也 ...</blockquote>
+拳头孝子啥时候学mwb跑到ow彩虹六号视频下面跟人对喷全网控评啥时候也一样能有这待遇
+
+
+
+
+
+
+
+-----
+
+####  kyonkoism  
+##### 92#       发表于 2020-4-8 14:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来还想正儿八经说下这是拳头把全部有点名的FPS主播全花钱请来播还掉key key还特值钱的结果
+
+然后一看回复发现全是刀撸打架，笑死我了
+
+
+
+
+
+
+
+-----
+
+####  louge19891020  
+##### 93#       发表于 2020-4-8 14:53
+
+
+
+<blockquote>艾登皮尔斯 发表于 2020-4-8 14:49
+拳头孝子啥时候学mwb跑到ow彩虹六号视频下面跟人对喷全网控评啥时候也一样能有这待遇 ...</blockquote>
+你说的这点以前的暴白做到了吧？至少我看ow和花园战争2的对比视频里的弹幕和我现实里的同事都做到了。
+
+
+
+
+
+
+
+-----
+
+####  johnwick  
+##### 94#       发表于 2020-4-8 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47014443&amp;ptid=1922974" target="_blank">louge19891020 发表于 2020-4-8 14:53</a>
+ 你说的这点以前的暴白做到了吧？至少我看ow和花园战争2的对比视频里的弹幕和我现实里的同事都做到了。 ...</blockquote>
+至少泥潭没有暴白打滚，也没有版主带头吟唱圣经<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  frankCC  
+##### 95#       发表于 2020-4-8 14:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47014409&amp;ptid=1922974" target="_blank">kyonkoism 发表于 2020-4-8 14:50</a>
+
+本来还想正儿八经说下这是拳头把全部有点名的FPS主播全花钱请来播还掉key key还特值钱的结果
+
+然后一 ...</blockquote>
+谁叫刀刀喜欢睁眼说瞎话，
+
+这美术，
+
+这手感，
+
+这角色设计，
+
+这地图风格，
+
+都不知道喷这游戏的人是没玩过游戏，还是没长眼睛，
+
+这么有特点的游戏却引来一群刀刀进来念经，
+
+还一点游戏内容不谈，一点系统设计不说，
+
+好吧，估计就以刀刀的智商估计对游戏设计也说不出个123来，
+
+只会转进到撸狗上，一言不合就给人扣帽子，
+
+说一些“撸狗也要来冰清玉洁这一套吗”的怪话，
+
+难道还不让别人反击了，
+
+就连路人都看不下去了。
+
+
+
+
+
+
+
+-----
+
+####  八八八云紫  
+##### 96#       发表于 2020-4-8 15:31
+
+
+
+
+来了来了，“本人是路人，实在看不下去了，你们这些刀斯林太可恶了，我才不是撸狗呢”
+
+
+
+
+
+
+
+-----
+
+####  louge19891020  
+##### 97#       发表于 2020-4-8 15:34
+
+
+
+<blockquote>八八八云紫 发表于 2020-4-8 15:31
+来了来了，“本人是路人，实在看不下去了，你们这些刀斯林太可恶了，我才不是撸狗呢” ...</blockquote>
+他应该是真反串吧，不然就太nt了
+
+
+
+
+
+
+
+-----
+
+####  终结之心  
+##### 98#       发表于 2020-4-8 15:38
+
+
+
+
+有内个味了，还差个三千院风和猛犸冲虚空
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 99#       发表于 2020-4-8 15:40
+
+
+
+
+是啊太有内股味了，阴阳人的味道都快拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Faith  
+##### 100#       发表于 2020-4-8 15:55
+
+
+
+
+老实说，dota2难道不是v社跟风拳头做的吗，怎么v社喷拳头就是天经地义了呢
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 101#       发表于 2020-4-8 15:59
+
+
+
+
+看着很违和，但是有腾讯在国内推的话应该不至于暴死吧
+
+
+
+
+
+
+
+-----
+
+####  louge19891020  
+##### 102#       发表于 2020-4-8 16:12
+
+
+
+<blockquote>asion617 发表于 2020-4-8 15:59
+看着很违和，但是有腾讯在国内推的话应该不至于暴死吧</blockquote>
+腾讯推然后内测三年爆死的游戏太多了吧
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 103#       发表于 2020-4-8 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47015229&amp;ptid=1922974" target="_blank">louge19891020 发表于 2020-4-8 16:12</a>
+ 腾讯推然后内测三年爆死的游戏太多了吧</blockquote>
+别卖激活码啊，一卖激活码我就想起剑灵和那群封测玩的皇家杀马特
+
+
+
+
+
+
+
+-----
+
+####  mamc06  
+##### 104#       发表于 2020-4-8 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013896&amp;ptid=1922974" target="_blank">修罗王 发表于 2020-4-8 13:57</a>
+ 这个唐突转火水平也太次了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你是sg那个送外卖的修罗王么？
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 105#       发表于 2020-4-8 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47015099&amp;ptid=1922974" target="_blank">asion617 发表于 2020-4-8 15:59</a>
+
+看着很违和，但是有腾讯在国内推的话应该不至于暴死吧</blockquote>
+堡垒之夜：关于这点，我也想不通
+
+
+
+
+
+
+
+-----
+
+####  有优越感的人  
+##### 106#       发表于 2020-4-8 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47013896&amp;ptid=1922974" target="_blank">修罗王 发表于 2020-4-8 13:57</a>
+
+这个唐突转火水平也太次了吧</blockquote>
+转火这一块应该没人比得过你这蛇口臭蛆吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  莫夜戎  
+##### 107#       发表于 2020-4-8 16:36
+
+
+
+
+台湾那边是拳头自己运营的吗？脸书上到处都是对大陆的歧视呀
+
+
+
+
+
+
+
+-----
+
+####  ChrisSnake  
+##### 108#       发表于 2020-4-8 16:37
+
+
+
+
+激活码营销 怼cs 有那味了
+
+
+
+
+
+
+
+-----
+
+####  莫夜戎  
+##### 109#       发表于 2020-4-8 16:37
+
+
+
+
+没有开始公测，目前是封测
+
+
+
+
+
+
+
+-----
+
+####  莫夜戎  
+##### 110#       发表于 2020-4-8 16:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/08/164005t822uwzqkbdukwg6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2020-04-08_163956.jpg</strong> (225.12 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-8 16:40 上传
+
+
+
+
+
+
+抵制拳头，从我做起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蕾丝控  
+##### 111#       发表于 2020-4-8 17:09
+
+
+
+
+开   幕   雷   击
+
+
+
+
+
+
+
+-----
+
+####  日子得过且过  
+##### 112#       发表于 2020-4-8 17:23
+
+
+
+
+这种缝合怪游戏看着不太行
+
+
+
+
+
+
+
+-----
+
+####  焚尘  
+##### 113#       发表于 2020-4-8 17:30
+
+
+
+
+现在已经看开了，别人喜欢，你算老几。玩自己的游戏，最近忙到游戏都没得玩，还有心情管别人玩啥？
+
+
+
+
+
+
+
+-----
+
+####  Jyions  
+##### 114#       发表于 2020-4-8 17:36
+
+
+
+
+刚刚看shourd视频 基本玩法还是有的 以及有一些意想不到的玩法 整体看下来好像没什么bug和其他问题 感觉好好打一局还是能玩开心的 至于能不能现象级的火起来那就看营销了
+
+
+
+
+
+
+
+-----
+
+####  381030691  
+##### 115#       发表于 2020-4-8 17:43
+
+
+
+
+缝合就缝合，只要做得好玩，反作弊完善我就射爆
+5E打的我恼得不行
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 116#       发表于 2020-4-8 17:45
+
+
+
+<blockquote>莫夜戎 发表于 2020-4-8 16:40
+抵制拳头，从我做起</blockquote>
+视频里没说wuhan，看到taiwan你还不懂吗
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 117#       发表于 2020-4-8 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47016257&amp;ptid=1922974" target="_blank">疾劲野风 发表于 2020-4-8 17:45</a>
+
+视频里没说wuhan，看到taiwan你还不懂吗</blockquote>
+这种运营留着生崽么？
+
+我记得拳头不是腾讯的子公司么？
+
+
+
+
+
+
+
+-----
+
+####  最美人贩子  
+##### 118#       发表于 2020-4-8 18:00
+
+
+
+<blockquote>莫夜戎 发表于 2020-4-8 16:40
+抵制拳头，从我做起</blockquote>
+台巴子挑拨离间，不要轻信。
+
+拳头是最爱中国的公司，老总亲自发过：tencent shi wo baba.
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 119#       发表于 2020-4-8 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47015514&amp;ptid=1922974" target="_blank">莫夜戎 发表于 2020-4-8 16:40</a>
+
+抵制拳头，从我做起</blockquote>
+技术总监那事都压下来了，外网的东西能起什么水花
+
+
+
+
+
+
+
+-----
+
+####  -SLSL-  
+##### 120#       发表于 2020-4-8 18:49
+
+
+
+
+云了下，比想象的要好
+
+但感觉很多机制比较迷，想不通设计思路是什么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  修罗王  
+##### 121#       发表于 2020-4-8 19:12
+
+
+
+<blockquote>有优越感的人 发表于 2020-4-8 16:33
+转火这一块应该没人比得过你这蛇口臭蛆吧</blockquote>
+哦，我在这论坛有这么转火过吗，上来扣帽子，谁才是蛆啊
+
+
+
+
+
+
+
+-----
+
+####  csgjjg  
+##### 122#       发表于 2020-4-8 19:32
+
+
+
+
+能火一年都不错了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 123#       发表于 2020-4-8 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47016414&amp;ptid=1922974" target="_blank">最美人贩子 发表于 2020-4-8 18:00</a>
+ 台巴子挑拨离间，不要轻信。 拳头是最爱中国的公司，老总亲自发过：tencent shi wo baba. ...</blockquote>
+我怎么记得是epic的Tim说的
+
+
+
+
+
+
+
+-----
+
+####  fraseal  
+##### 124#       发表于 2020-4-8 19:53
+
+
+
+
+大暴死谢谢，看着就没玩欲
+
+
+
+
+
+
+
+-----
+
+####  屠夫  
+##### 125#       发表于 2020-4-8 20:07
+
+
+
+
+好游我玩
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 126#       发表于 2020-4-8 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47017469&amp;ptid=1922974" target="_blank">屠夫 发表于 2020-4-8 20:07</a>
+
+好游我玩</blockquote>
+坏屠我砍
+
+
+
+
+
+
+
+-----
+
+####  正心审意l  
+##### 127#       发表于 2020-4-8 20:47
+
+
+
+
+你们刀斯林能在一个fps游戏里玩到这么多要素吗？别嫉妒我们小企鹅好吧？
+
+
+
+
+
+
+
+-----
+
+####  AIDSL  
+##### 128#       发表于 2020-4-8 21:06
+
+
+
+
+虽然我不会玩FPS吧
+
+但是FPS类游戏互相抄不是很正常吗？我觉得重点在于自夸的反作弊到底能反到什么程度吧。
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 129#       发表于 2020-4-8 21:31
+
+
+
+
+游戏论坛第一要素是不是“谈游戏的都是傻逼，我们只爱屁股”？玩屁股滚tm去外野好不好
+
+————————————————
+
+看了b站up'视频，这看起来就是个新时代的cs，也没比cs好玩到哪去
+
+不过拳头在更新上一向做的比较深入，过几年不死的话，也许会不一样。
+
+现在的样子，大概就是在fps市场里激起点水花罢了，扬不起多大的浪花
+
+
+
+
+
+
+
+-----
+
+####  tuiskusuomaa  
+##### 130#       发表于 2020-4-8 21:49
+
+
+
+
+如果他真能把作弊的数量级降低到一个很低的程度，那也不好说就会暴死
+
+
+
+
+
+
+
+-----
+
+####  夜留歌  
+##### 131#       发表于 2020-4-9 00:31
+
+
+
+ 本帖最后由 夜留歌 于 2020-4-9 00:33 编辑 
+
+云了一下直播，这贴图风格怎么感觉像是手游。。。
+而且有一瞬间我似乎看到了黑百合？也不知道是不是看错了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  发霉长毛等救济  
+##### 132#       发表于 2020-4-9 16:31
+
+
+
+
+这游戏目前所有技能都是**法的辅助，**法才是关键，玩法硬核，如果真能按他的说法做到无挂，多少硬核FPS玩家会真香呢？我看上去就是既视感太强优化不够，但这只是测试版，正式版优化好一点究极真香
+
+
+
+
+
+
+
+-----
+
+####  Litccc  
+##### 133#       发表于 2020-4-9 16:34
+
+
+
+
+好fps我玩
+
+
+
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 134#       发表于 2020-4-9 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020039&amp;ptid=1922974" target="_blank">夜留歌 发表于 2020-4-9 00:31</a>
+
+云了一下直播，这贴图风格怎么感觉像是手游。。。
+
+而且有一瞬间我似乎看到了黑百合？也不知道是不是看错了[ ...</blockquote>
+八成未来要跨手机平台<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+毕竟是企鹅粑粑给予商业建议，
+
+
+
+
+
+
+
+-----
+
+####  摩天城  
+##### 135#       发表于 2020-4-9 17:38
+
+
+
+
+说到手机版
+
+<img src="https://img.saraba1st.com/forum/202004/09/173649xwhrp9nrgowgwhgu.png" referrerpolicy="no-referrer">
+
+
+<strong>BFC11E94-2D90-4DE6-9B18-2C527459B890.png</strong> (791.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-9 17:36 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 136#       发表于 2020-4-9 19:39
+
+
+
+
+有手机版估计也跟LOL手游一样，跟端游俩游戏。
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 137#       发表于 2020-4-9 22:33
+
+
+
+
+刚刚想播一下valorant发现斗鱼把我直播间标题撤了 全斗鱼也搜不到这个游戏频道了 腾讯新指示？
+
+
+
+
+
+
+
+-----
+
+####  奥柏伦亲王  
+##### 138#       发表于 2020-4-9 23:14
+
+
+
+
+PC端FPS两个超巨大痛点：延迟和挂，特别是挂，能最好的解决挂的问题就是宇宙第一FPS，解决的不好，可就有得打咯
+
+
+
+
+
+
+
+-----
+
+####  医生狼多  
+##### 139#       发表于 2020-4-9 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47029977&amp;ptid=1922974" target="_blank">qianoooo 发表于 2020-4-9 22:33</a>
+刚刚想播一下valorant发现斗鱼把我直播间标题撤了 全斗鱼也搜不到这个游戏频道了 腾讯新指示？ ...</blockquote>
+tx禁播
+lor也是
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 140#       发表于 2020-4-10 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47029977&amp;ptid=1922974" target="_blank">qianoooo 发表于 2020-4-9 22:33</a>
+
+刚刚想播一下valorant发现斗鱼把我直播间标题撤了 全斗鱼也搜不到这个游戏频道了 腾讯新指示？ ...</blockquote>
+没版号的游戏现在都禁播
+
+
+
+
+
+
+
+-----
+
+####  myron_cloud  
+##### 141#       发表于 2020-4-10 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031088&amp;ptid=1922974" target="_blank">powerpyc 发表于 2020-4-10 00:08</a>
+没版号的游戏现在都禁播</blockquote>
+腾讯禁的
+
+别人生化3骑砍2ff7都播的好好的，哪来的版号…
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 142#       发表于 2020-4-10 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031223&amp;ptid=1922974" target="_blank">myron_cloud 发表于 2020-4-10 00:22</a>
+
+腾讯禁的
+
+
+别人生化3骑砍2ff7都播的好好的，哪来的版号…</blockquote>
+不是，问题是你说的这几个压根就没打算申请版号吧
+
+
+
+
+
+
+
+-----
+
+####  20002000  
+##### 143#       发表于 2020-4-10 01:00
+
+
+
+
+感兴趣的可以搜下csgo wc3 mod 各种神奇技能
+
+— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 144#       发表于 2020-4-10 03:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">**弹道和经济系统都抄过去过分了，1:1还原
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  几十个汉堡  
+##### 145#       发表于 2020-4-10 08:06
+
+
+
+
+刀斯林登场，准备开喷
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  久安aster  
+##### 146#       发表于 2020-4-10 08:24
+
+
+
+<blockquote>Bondrewd 发表于 2020-4-7 22:24
+没云过，但是对拳头的平衡组没什么信心，觉得最好也不过是下一个ow。ow被平衡组折磨得现在什么low样不用多 ...</blockquote>
+这游戏本质上是个cs的感觉，技能更像cs的烟，闪之类的玩意，和ow差距有点大
+
+
+
+
+
+
+
+-----
+
+####  久安aster  
+##### 147#       发表于 2020-4-10 08:28
+
+
+
+<blockquote>ammk 发表于 2020-4-8 09:57
+玩法看着像其他游戏，会不会是因为主播依然用以前游戏的玩法在玩，而没有去探索适合这款游戏的玩法？ ...</blockquote>
+不存在的，就这个**的经济系统，玩法必然往cs上靠拢，就连手感都差不多，整一个cs，技能看起来花里胡哨的，实际上很多就是cs的烟闪。
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 148#       发表于 2020-4-10 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47032488&amp;ptid=1922974" target="_blank">久安aster 发表于 2020-4-10 08:28</a>
+ 不存在的，就这个**的经济系统，玩法必然往cs上靠拢，就连手感都差不多，整一个cs，技能看起来花里胡哨的 ...</blockquote>
+只有那个丢飞刀的英雄
+她破点的时候可以dash，但这也是设计师赋予的能力，没什么不可预见的
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 149#       发表于 2020-4-10 09:01
+
+
+
+
+这游戏又要做武器平衡还要做技能平衡还要做地图平衡
+我觉得平衡性有点危险
+估计比ow的平衡性还差
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 150#       发表于 2020-4-10 09:34
+
+
+
+
+平衡性不好无所谓的，LOL平衡也就那样，但更新勤快啊，比某些游戏半年更一次强太多。
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 151#       发表于 2020-4-10 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47016082&amp;ptid=1922974" target="_blank">焚尘 发表于 2020-4-8 17:30</a>
+
+现在已经看开了，别人喜欢，你算老几。玩自己的游戏，最近忙到游戏都没得玩，还有心情管别人玩啥？ ...</blockquote>
+这你就错了，你坛某些人已经丧失了从游戏里获得快乐的能力，又看着别人开心玩游戏羡慕得要死，于是只能从论坛上指天骂地恶心别人中获得点乐趣
+
+
+
+
+
+
+
+-----
+
+####  lzmmzlzm  
+##### 152#       发表于 2020-4-10 09:47
+
+
+
+
+不看好，
+
+
+
+
+
+
+
+-----
+
+####  Tackstone  
+##### 153#       发表于 2020-4-10 09:49
+
+
+
+
+看上去很难爆火，主要还是门槛问题，这游戏**法的上限太高了。
+
+
+
+
+
+
+
+-----
+
+####  ml1642879  
+##### 154#       发表于 2020-4-10 09:55
+
+
+
+
+GO斯林不请自来，👊🐴必死
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 155#       发表于 2020-4-10 10:21
+
+
+
+
+OW不也是四处抄的缝合怪游戏
+营销到位第一波热度是有的，后续热度看游戏性
+
+
+
+
+
+
+
+-----
+
+####  diodio233  
+##### 156#       发表于 2020-4-10 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47033541&amp;ptid=1922974" target="_blank">ColdAir 发表于 2020-4-10 10:21</a>
+
+OW不也是四处抄的缝合怪游戏
+
+营销到位第一波热度是有的，后续热度看游戏性 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是战法牧这玩法FPS首创啊，我是真的没见过这么无聊的核心玩法的fps
+
+
+
+
+
+
+
+-----
+
+####  diodio233  
+##### 157#       发表于 2020-4-10 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47033038&amp;ptid=1922974" target="_blank">缺德猫 发表于 2020-4-10 09:34</a>
+
+平衡性不好无所谓的，LOL平衡也就那样，但更新勤快啊，比某些游戏半年更一次强太多。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某游戏人口基数就那么大，更那么勤快收益还没G胖桌子正前方的计数板跳的快
+
+
+
+
+
+
+
+-----
+
+####  diodio233  
+##### 158#       发表于 2020-4-10 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47031451&amp;ptid=1922974" target="_blank">20002000 发表于 2020-4-10 01:00</a>
+
+感兴趣的可以搜下csgo wc3 mod 各种神奇技能
+
+
+— from HMD Global Nokia 7 plus, Android 10 of S1 Next Go ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前浩方玩得很欢乐，什么闪电链霹人，缠绕住人什么的
+
+
+
+
+
+
+
+-----
+
+####  秋开  
+##### 159#       发表于 2020-4-10 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012015&amp;ptid=1922974" target="_blank">FUZE 发表于 2020-4-8 11:08</a>
+
+这游戏最开始设计的时候应该不是朝向CS这样的风格。
+
+游戏地图明显比CS大得多，你能在地图里面找到一堆“ ...</blockquote>
+有道理，应该是不是故意缝合的，可能是仿ow做到一半觉得没市场，但已经投入很多资源，又不可能打回去重做，于是就变成了现在的样子。
+
+
+
+
+
+
+
+-----
+
+####  yxzdr  
+##### 160#       发表于 2020-4-10 11:05
+
+
+
+
+虽然觉得不会火，但想想lol觉得自己可能会被打脸。
+
+
+
+
+
+
+
+-----
+
+####  hallowilliam  
+##### 161#       发表于 2020-4-10 11:20
+
+
+
+
+我玩fps不多，但是也知道pc fps最大痛点就是外挂。。。尤其是国内。
+
+拳头如果能把外挂限制好，想走一定受众不难。
+
+其实我没觉得拳头把这游戏当成那种爆款网红游戏宣传。想的话弄点社保人设不是很容易？我感觉目标是r6这种，受众喜欢，电竞成熟，但是玩的人没那么多。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 162#       发表于 2020-4-10 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47034294&amp;ptid=1922974" target="_blank">hallowilliam 发表于 2020-4-10 11:20</a>
+我玩fps不多，但是也知道pc fps最大痛点就是外挂。。。尤其是国内。
+
+拳头如果能把外挂限制好，想走一定受 ...</blockquote>
+R6用户数已经很多了，真能成r6拳头就已经算很成功了，而且说真的外挂只是影响游戏后续运营，这游戏能不能火起来还是得看好不好玩。
+
+
+
+
+
+
+
+-----
+
+####  operatbig  
+##### 163#       发表于 2020-4-10 11:35
+
+
+
+
+风评越来越好，已经赢了。
+
+
+
+
+
+
+
+-----
+
+####  20002000  
+##### 164#       发表于 2020-4-10 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47033797&amp;ptid=1922974" target="_blank">diodio233 发表于 2020-4-10 10:44</a>
+
+以前浩方玩得很欢乐，什么闪电链霹人，缠绕住人什么的</blockquote>
+最早的就是那个 现在csgo里的加了好多技能 创意完爆这些官方的
+
+
+
+
+
+                                            
