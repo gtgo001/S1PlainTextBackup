@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-11 00:01** 
+> ## **本文件最后更新于2020-04-11 02:02** 
 
 
 
@@ -15155,4 +15155,646 @@ M,V二楼自V版开创之前就是一衣带水的友好睦邻， 所谓对立纯
 
 
 
-                     
+
+
+-----
+
+####  Rem-清曲  
+##### 15850#       发表于 2020-4-11 00:02
+
+
+
+
+那个uuu贴吧土著不会有人想理他8
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15851#       发表于 2020-4-11 00:06
+
+
+
+
+小麻会不会半夜突击啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15852#       发表于 2020-4-11 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总感觉mea会直接半夜突击把这次直播补了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15853#       发表于 2020-4-11 00:10
+
+
+
+
+uuu9之前我看都还挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个小什么倒是惯犯了
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 15854#       发表于 2020-4-11 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47041343&amp;ptid=1912063" target="_blank">呓亘 发表于 2020-4-10 22:49</a>
+扣错人了……明天补上.....sorry.......</blockquote>
+呜呜呜，你还我鹅<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|不哭|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 15855#       发表于 2020-4-11 00:27
+
+
+
+
+回顾了一下一周年tc直播，现在的声音是真的严重姨化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 15856#       发表于 2020-4-11 00:40
+
+
+
+
+今晚播了什么?
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15857#       发表于 2020-4-11 00:42
+
+
+
+
+可能是睡过头了 ，没播。
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 15858#       发表于 2020-4-11 00:54
+
+
+
+
+小麻昏睡了，我也昏睡了，我和小麻贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">是纳豆味
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15859#       发表于 2020-4-11 00:54
+
+
+
+
+连个黄图都看不到几张的楼也就刚好适合你们这群蛆挤来挤去 挺合适的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 11战斗力 -12
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zhudhh|-1|思路广|
+| IrisL|-1|给你颁个小天才奖|
+| 时之虫|-1|有被冒犯到|
+| 神楽mea|-1||
+| 木板春香|-1|思路广|
+| 愛繋璃まつり|-1||
+| 息衍|-1|喜欢嘴臭|
+| 商博良|-1||
+| やト|-1||
+| aisakahammer|-2||
+| GRtime|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 15860#       发表于 2020-4-11 00:58
+
+
+
+
+有啥意见直说无妨，恶心人就不对了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 15861#       发表于 2020-4-11 01:00
+
+
+
+ 本帖最后由 noaki 于 2020-4-11 01:04 编辑 
+
+啊？怎么一进楼突然地图炮就怼脸上了？
+麻不播的日子里 ，连楼友都显得如此陌生...
+心好累<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，急需补充麻能量
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 15862#       发表于 2020-4-11 01:03
+
+
+
+
+来S1看黄图我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15863#       发表于 2020-4-11 01:06
+
+
+
+
+泥潭发黄图会被砍头的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15864#       发表于 2020-4-11 01:06
+
+
+
+
+建个专区，专楼，结果有八九成以上是NGA排泄物在发帖<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+现在甚至连发录像的发电台的都不怎么来了，而你们甚至还在和MK2这种傻逼聊得很开心
+
+
+你们二次元tm有病吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 10战斗力 -10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zhudhh|-1|思路广|
+| 时之虫|-1||
+| IrisL|-1|就是因为有你这样的s b s1才会被连坐.|
+| 儒门正御应无骞|-1|思路广|
+| GRtime|-1|欢乐多|
+| 神楽mea|-1||
+| 木板春香|-1|思路广|
+| 愛繋璃まつり|-1||
+| 息衍|-1|嘴臭|
+| 商博良|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15865#       发表于 2020-4-11 01:10
+
+
+
+
+专挑不播的时候来车轱辘内容少？
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15866#       发表于 2020-4-11 01:19
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-4-11 01:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">恶心一片人啊，人民群众喜闻乐见你算老几啊
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15867#       发表于 2020-4-11 01:23
+
+
+
+
+甚至486这种小号傻逼都有脸冒头扣分
+
+
+堪称奇景
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 儒门正御应无骞|-1|486小号再多，也不是你傻逼地图炮的理由，.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15868#       发表于 2020-4-11 01:26
+
+
+
+
+这才是梁木人的究极形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 15869#       发表于 2020-4-11 01:29
+
+
+
+
+mk2是脑瘫和春风是脑瘫并没有什么排斥关系。对扣鹅这么在意？nga来的吧。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 儒门正御应无骞| + 1|是这个道理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15870#       发表于 2020-4-11 01:31
+
+
+
+
+突然有个5级石头人闪现开团，把👴逗乐了
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 15871#       发表于 2020-4-11 01:36
+
+
+
+
+理论上真爱楼不许倒屎吧，我举报了，大家随意。
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15872#       发表于 2020-4-11 01:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">地图炮还要理由？真神奇
+
+
+我就是特别喜欢炸粪坑 还有小号吗 多来点 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">看看你楼都剩下些什么东西 486 512开小号装774钓鱼 头号傻逼 mk2不说了 傻逼 弱智 甚至不像个人
+
+
+给这群东西扣分有种荣耀感 麻烦换种方式侮辱我
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRtime|-1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 15873#       发表于 2020-4-11 01:40
+
+
+
+
+睡了几个小时起来，没看到mea，只看到这个死妈货<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15874#       发表于 2020-4-11 01:44
+
+
+
+<blockquote>春风女神狄璐卡 发表于 2020-4-11 01:38
+地图炮还要理由？真神奇
+
+
+我就是特别喜欢炸粪坑 还有小号吗 多来点 
+</blockquote>
+我装过774？  你那驴子先锋那号别人认不出来？照照镜子吧你。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 15875#       发表于 2020-4-11 01:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042516&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-11 01:40</a>
+
+睡了几个小时起来，没看到mea，只看到这个死妈货</blockquote>
+你今晚的钓鱼贴这么没了？
+
+泥潭对付不喜欢的内容竟然除了扣鹅还可以删帖封号的吗？
+
+
+作为泥潭新人我对泥潭有点失望了。
+
+
+
+
+
+
+
+-----
+
+####  eir45  
+##### 15876#       发表于 2020-4-11 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042507&amp;ptid=1912063" target="_blank">春风女神狄璐卡 发表于 2020-4-11 01:38</a>
+
+地图炮还要理由？真神奇
+
+
+我就是特别喜欢炸粪坑 还有小号吗 多来点 </blockquote>
+恁洗把脸看看自己内样，地图炮连自己都炸死了吧，满口傻逼傻逼的连句人话都不会说，还好意思出来装人？劝恁重新投胎不要做狗嗷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 15877#       发表于 2020-4-11 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042527&amp;ptid=1912063" target="_blank">坚果收藏家 发表于 2020-4-11 01:45</a>
+你今晚的钓鱼贴这么没了？
+
+泥潭对付不喜欢的内容竟然除了扣鹅还可以删帖封号的吗？</blockquote>
+没有钓鱼啊，我真的是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过这么久了还没动麻酱怕不是都脱水了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX|-2|哪会你都说不是钓鱼来着|
+
+
+
+查看全部评分
+
+
+
+
+                    
