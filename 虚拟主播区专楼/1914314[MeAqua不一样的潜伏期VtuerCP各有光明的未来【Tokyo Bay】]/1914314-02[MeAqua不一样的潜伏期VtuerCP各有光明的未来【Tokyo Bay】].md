@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 02:03** 
+> ## **本文件最后更新于2020-04-10 20:06** 
 
 
 
@@ -24727,13 +24727,335 @@ Make Meaqua Great Again!
 
 
 
+ 本帖最后由 素人不相识 于 2020-4-10 02:05 编辑 
 
 怎么理解其实无所谓的，主要是理解别人的理解前提下的行为的内在逻辑和合理性
 
 （他不说，我也以为那楼是在黑屁贴贴人（毕竟是在这楼嘛），所以略过去了）
 
 
+又想了想，第一句话的前半部分有很大问题，毕竟大部分的除利益外的争端都是基于认知和理解的不同
+
+想把前半句限定个范围，加个“在这种个例认知上”之类的
+
+但又想到认知本来就是由这么一小份一小份的个例认知复杂复合而来，如果否定个例认知，那么还是会否定整体认知
+
+所以第一句话还是改成“在这种个例认知上，除了怎么理解外，还要去理解别人的理解前提下的行为的内在逻辑和合理性”吧（我是真的神经病，大半夜又写这些个无聊的东西<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">）
 
 
 
-      
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 2808#       发表于 2020-4-10 16:13
+
+
+
+<img src="https://p.sda1.dev/0/7ae46b1866ba6acbb117acc568fec34e/IMG_98CC6B4843CC3F71B03F24118F6A7893.png" referrerpolicy="no-referrer">
+高达82人！
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2809#       发表于 2020-4-10 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看这楼不是梁木人就是乐子人吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2810#       发表于 2020-4-10 16:26
+
+
+
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2811#       发表于 2020-4-10 16:27
+
+
+
+
+0202年了怎么还有crew没事BB招黑的，建议先去猎杀内部NTcrew搁小秦那里刷SB梗的弱智批事
+
+顺便船长的确干得好，六字母赶紧彻底滚进历史的垃圾堆完事
+
+说难听点两个人私底下好不好跟我没关系，作为管人同行没有任何联动至少这边能平静很多已经是不争的事实了
+
+就算用所谓节目效果做理由。时隔一年，也快到去年知名虚无PUBG联动的一周年时刻了
+
+要再来一次吗，那只能说时间够多，佩服
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2812#       发表于 2020-4-10 17:08
+
+
+
+
+是个梁木人就是六字母了？就六字母这点儿破事大天使也配被黑屁？毕竟天狗crew连体婴人三方势力家大业大哪一边随便放个屁都有人附和，看看皆切，皆切挂件nt一日不死绝，在我这大天使一日活该被人恶心<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2813#       发表于 2020-4-10 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47037506&amp;ptid=1914314" target="_blank">ColdAir 发表于 2020-4-10 16:13</a>
+
+高达82人！</blockquote>
+你们<strong>meaqua圈</strong>玩得开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 2814#       发表于 2020-4-10 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038094&amp;ptid=1914314" target="_blank">Dualist彩 发表于 2020-4-10 17:08</a>
+
+是个梁木人就是六字母了？就六字母这点儿破事大天使也配被黑屁？毕竟天狗crew连体婴人三方势力家大业大哪一 ...</blockquote>
+現在哪來的皆切黨啊 不會真有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2815#       发表于 2020-4-10 18:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2020年的皆切真的要好好保护了，真的不容易
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 2816#       发表于 2020-4-10 18:11
+
+
+
+
+推特上还是能看到几个的，发病症状和meaqua人一模一样。不过至少没有暗黑皆切人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2817#         楼主| 发表于 2020-4-10 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038700&amp;ptid=1914314" target="_blank">兔耳僵尸 发表于 2020-4-10 18:11</a>
+
+推特上还是能看到几个的，发病症状和meaqua人一模一样。不过至少没有暗黑皆切人
+
+
+—— 来自 vivo V1 ...</blockquote>
+你好，有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2818#       发表于 2020-4-10 18:24
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-4-10 18:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">我想看meaqua贴贴！！我心好累啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2819#       发表于 2020-4-10 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗黑皆切人草，管人害人
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 2820#       发表于 2020-4-10 18:30
+
+
+
+
+塩水真好啊,贴贴!<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2821#       发表于 2020-4-10 19:19
+
+
+
+
+此楼暗黑贴贴人浓度很高啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2822#       发表于 2020-4-10 19:20
+
+
+
+
+我要贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2823#       发表于 2020-4-10 19:28
+
+
+
+ 本帖最后由 时雨rain 于 2020-4-10 19:29 编辑 
+
+md,这里快变成男同性 交友贴了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2824#       发表于 2020-4-10 19:42
+
+
+
+
+贴贴壬不是想让那俩人贴贴，而是想找另一个贴贴壬贴贴？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2825#       发表于 2020-4-10 19:48
+
+
+
+
+贴贴任没救了
+
+
+
+
+
+     

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 04:01** 
+> ## **本文件最后更新于2020-04-10 20:04** 
 
 
 
@@ -27761,4 +27761,602 @@ wt，不要再给我新人物了，已经够多了啊（绝望）
 
 
 
-   
+
+
+-----
+
+####  gasijier  
+##### 52382#       发表于 2020-4-10 07:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47023702&amp;ptid=98922" target="_blank">龙手马弗 发表于 2020-4-9 12:36</a>
+
+不可能是和大妈生的吧？要是大妈生的那大妈肯定就自己带走了啊，以大妈的脾气她生的她会留给凯多？ ...</blockquote>
+不然为什么说凯多欠她的情分呢？
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 52383#       发表于 2020-4-10 08:43
+
+
+
+ 本帖最后由 cdfjg 于 2020-4-10 08:44 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202004/10/084422w82xi2adaic3i3i2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>62425e1agy1gdoda1f07ij20i20f5whw.jpg</strong> (100.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-10 08:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 52384#       发表于 2020-4-10 09:08
+
+
+
+
+希望wt能画一场甚平正儿八经的打戏，鱼人空手道的设定我还挺喜欢的，wt喜欢的仁侠+乡土爱空手道元素，应该挺好发挥吧。
+
+
+
+
+
+
+
+-----
+
+####  wingzerocos  
+##### 52385#       发表于 2020-4-10 09:32
+
+
+
+
+兔子完全混进来了。
+
+
+
+
+
+
+
+-----
+
+####  sangsangCN  
+##### 52386#       发表于 2020-4-10 10:23
+
+
+
+
+兔子在哪里认识的甚平老大？不记得了... 抱的这么紧
+
+
+
+
+
+
+
+-----
+
+####  kuuga  
+##### 52387#       发表于 2020-4-10 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47033561&amp;ptid=98922" target="_blank">sangsangCN 发表于 2020-4-10 10:23</a>
+
+兔子在哪里认识的甚平老大？不记得了... 抱的这么紧</blockquote>
+甚平带草帽家走的呀，兔子就在船上了
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52388#       发表于 2020-4-10 11:43
+
+
+
+
+重回榜首
+
+
+
+
+
+
+3461a8ec08fa513d2d933ab82a6d55fbb3fbd98d.jpg
+(88.8 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-10 11:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/10/114341qcju9lywci9z9vu3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52389#       发表于 2020-4-10 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47032583&amp;ptid=98922" target="_blank">cdfjg 发表于 2020-4-10 08:43</a></blockquote>
+兔子看来真要入团了，毫无违和感
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 52390#       发表于 2020-4-10 13:20
+
+
+
+
+山治能混一个三灾或者将星的人头吗？
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52391#       发表于 2020-4-10 14:02
+
+
+
+<blockquote>yeluffy 发表于 2020-4-10 13:20
+山治能混一个三灾或者将星的人头吗？</blockquote>
+混个六子的，差不多了
+
+
+
+
+
+
+
+-----
+
+####  晃来晃去  
+##### 52392#       发表于 2020-4-10 14:04
+
+
+
+
+现在路飞是不是还差一个伙伴？
+
+
+
+
+
+
+
+-----
+
+####  ouhloo  
+##### 52393#       发表于 2020-4-10 14:17
+
+
+
+
+路飞披上外衣有点卡普那种威风凛凛的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 52394#       发表于 2020-4-10 14:24
+
+
+
+
+我还挺想看兔子上船的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52395#       发表于 2020-4-10 15:17
+
+
+
+
+所以这个作战计划翻译过来就是：
+
+路飞：莽tmd
+
+基德：莽tmd
+
+罗：先让这两个莽夫上去卖，你们也去卖，我带着翅鞘去收人头
+
+其他人：好的
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 52396#       发表于 2020-4-10 15:17
+
+
+
+
+弱小三人组喷了
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52397#       发表于 2020-4-10 15:31
+
+
+
+
+有一点真的很奇怪！太奇怪了！
+从漫画得描述方式来看 六子的排面比三灾还大？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52398#       发表于 2020-4-10 15:33
+
+
+
+
+最后一页专门给了一个弹琴的镜头，是日和？
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52399#       发表于 2020-4-10 15:36
+
+
+
+
+emm如果山治之前在新世界的战绩好一点的话我预期最后是这样子的
+
+
+路飞ko大妈
+
+索隆ko凯多
+
+山治拖延逼退某大将带领的海军干涉军
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52400#       发表于 2020-4-10 15:45
+
+
+
+
+罗和基德在，索隆大人头都不稳别说山治了
+
+
+
+
+
+
+
+-----
+
+####  lrgb  
+##### 52401#       发表于 2020-4-10 15:52
+
+
+
+
+也就是说在罗的计算里，光赤鞘的战力就起码可以拖住凯多加大妈？哪来的信心？
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52402#       发表于 2020-4-10 15:56
+
+
+
+ 本帖最后由 azbhg1 于 2020-4-10 16:00 编辑 
+
+这话真好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+锦卫门彻底谐星化<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+弱小三人组还是一如既往的躲船上还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+猫老大和小马哥他们啥时候集合进来啊
+
+
+
+
+
+
+
+-----
+
+####  Kyo.C  
+##### 52403#       发表于 2020-4-10 17:11
+
+
+
+
+新一话厨子吹们要哭了，攻陷小要塞的前三个战斗特写是路飞甚平和索隆，厨子甚至在下一页，在布鲁克和罗宾之后
+
+
+
+
+
+
+
+-----
+
+####  低级红  
+##### 52404#       发表于 2020-4-10 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47037128&amp;ptid=98922" target="_blank">少年包工头 发表于 2020-4-10 15:31</a>
+ 有一点真的很奇怪！太奇怪了！ 从漫画得描述方式来看 六子的排面比三灾还大？ </blockquote>
+飞六胞可能下一话就出
+numbers说不定还有藏一会儿
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52405#       发表于 2020-4-10 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47037319&amp;ptid=98922" target="_blank">lrgb 发表于 2020-4-10 15:52</a>
+也就是说在罗的计算里，光赤鞘的战力就起码可以拖住凯多加大妈？哪来的信心？ ...</blockquote>
+按象岛的故事猫狗都是和jack打平手的强度，如果不考虑细分战力，赤霄九侠战斗力都在伯仲的话，那就是有九个三灾级战力。现在不知道大妈的四将星来了几个，就算四个都来了，一共是七个人，九侠还富裕两人拖一下大妈和凯多，感觉勉强也说得过去。
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 52406#       发表于 2020-4-10 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038530&amp;ptid=98922" target="_blank">zuga 发表于 2020-4-10 17:52</a>
+按象岛的故事猫狗都是和jack打平手的强度，如果不考虑细分战力，赤霄九侠战斗力都在伯仲的话，那就是有九 ...</blockquote>
+猫狗那是车轮战打了三天三夜吧 不是两个一起上的
+
+
+
+
+
+
+
+-----
+
+####  管他三俗  
+##### 52407#       发表于 2020-4-10 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038530&amp;ptid=98922" target="_blank">zuga 发表于 2020-4-10 17:52</a>
+按象岛的故事猫狗都是和jack打平手的强度，如果不考虑细分战力，赤霄九侠战斗力都在伯仲的话，那就是有九 ...</blockquote>
+醒醒 叛变了一个 就要挪出来一个对付叛徒 难道是正好？
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52408#       发表于 2020-4-10 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038789&amp;ptid=98922" target="_blank">华丽の蝴蝶 发表于 2020-4-10 18:21</a>
+
+猫狗那是车轮战打了三天三夜吧 不是两个一起上的</blockquote>
+对，车轮打五天五夜，但是猫狗略占上风，所以粗略估计大概是平手水准。
+
+
+
+
+
+
+
+-----
+
+####  wingzerocos  
+##### 52409#       发表于 2020-4-10 18:48
+
+
+
+
+所以凯多的孩子到底是说他亲生的还是说就是这六子了。
+
+
+
+
+
+
+
+-----
+
+####  yth329  
+##### 52410#       发表于 2020-4-10 19:08
+
+
+
+
+不知道六子到底是真儿子还是结拜父子那种关系
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52411#       发表于 2020-4-10 19:08
+
+
+
+
+喷了，前面站友还在猜凯多和玲玲的孩子，结果是凌空六子
+
+
+
+
+
+
+
+-----
+
+####  marymax  
+##### 52412#       发表于 2020-4-10 19:48
+
+
+
+
+六子肯定不是亲儿子啊，德雷克就是凌空六子之一吧我记得
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52413#       发表于 2020-4-10 19:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47039577&amp;ptid=98922" target="_blank">marymax 发表于 2020-4-10 19:48</a>
+ 六子肯定不是亲儿子啊，德雷克就是凌空六子之一吧我记得</blockquote>
+德雷克好像是台柱吧，还是咋翻译的词来着
+
+
+
+
+
+  

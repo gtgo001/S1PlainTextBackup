@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 12:14** 
+> ## **本文件最后更新于2020-04-10 20:13** 
 
 
 
@@ -13,7 +13,7 @@
 
 <input name="formhash" type="hidden" value="af03c43f"/)
 
-<strong>单选投票</strong> , 投票后结果可见, 共有 511 人参与投票
+<strong>单选投票</strong> , 投票后结果可见, 共有 544 人参与投票
 
 
 
@@ -22,7 +22,7 @@
 
 <strong>
 
-7 天20 小时21 分钟
+7 天12 小时22 分钟
 
 </strong>
 
@@ -3074,4 +3074,418 @@ R6用户数已经很多了，真能成r6拳头就已经算很成功了，而且�
 
 
 
-                                            
+
+
+-----
+
+####  operatbig  
+##### 165#       发表于 2020-4-10 12:21
+
+
+
+<blockquote>艾登皮尔斯 发表于 2020-4-10 11:23
+R6用户数已经很多了，真能成r6拳头就已经算很成功了，而且说真的外挂只是影响游戏后续运营，这游戏能不能 ...</blockquote>
+真成R6对拳头来说就是个惨痛失败。
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 166#       发表于 2020-4-10 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47034497&amp;ptid=1922974" target="_blank">operatbig 发表于 2020-4-10 11:35</a>
+
+风评越来越好，已经赢了。</blockquote>
+这才几天啊就分输赢
+
+fps市场肯定是优秀的作品越多越好, 真玩游戏的都希望它好, 但是也得是游戏出来之后
+
+玩都没玩到就在越来越好已经赢了
+
+
+
+
+
+
+
+-----
+
+####  泪指环  
+##### 167#       发表于 2020-4-10 13:17
+
+
+
+
+真能一定程度上解决外挂绝对能火。
+
+
+另外音乐很好听
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 168#       发表于 2020-4-10 13:19
+
+
+
+
+他当然可以解决外挂
+
+这种美式卡通风格已经拦截了80%的中国人了，从根本上杜绝了外挂
+
+
+
+
+
+
+
+-----
+
+####  RookieTnT  
+##### 169#       发表于 2020-4-10 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47033781&amp;ptid=1922974" target="_blank">diodio233 发表于 2020-4-10 10:42</a>
+
+某游戏人口基数就那么大，更那么勤快收益还没G胖桌子正前方的计数板跳的快 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来G胖那么赚钱的吗 去年lol一年赚了15亿美元
+
+
+
+
+
+
+
+-----
+
+####  ybfelix  
+##### 170#       发表于 2020-4-10 15:45
+
+
+
+
+话说喜欢CS这种大抵一**爆头的玩家，和喜欢COD这种**伤害相对低的玩家，人数上限哪个多些？
+
+
+
+
+
+
+
+-----
+
+####  终结之心  
+##### 171#       发表于 2020-4-10 15:56
+
+
+
+
+每次看到吹捧G胖能躺着赚钱的人
+都觉得很不可思议
+
+如果你老爸是G胖，那就很好理解了
+毕竟你很有机会继承产业又不用怎么打理
+你老爸还有大把时间陪你抛接棒球玩
+
+如果不是，只能是精神私生子了吧
+
+
+
+
+
+
+
+-----
+
+####  L1n9ok3r  
+##### 172#       发表于 2020-4-10 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47037248&amp;ptid=1922974" target="_blank">ybfelix 发表于 2020-4-10 15:45</a>
+
+话说喜欢CS这种大抵一**爆头的玩家，和喜欢COD这种**伤害相对低的玩家，人数上限哪个多些？ ...</blockquote>
+cs是给pc玩的，cod是顺便给pc玩的
+
+
+
+
+
+
+
+-----
+
+####  哥斯拉58  
+##### 173#       发表于 2020-4-10 16:58
+
+
+
+
+当一个游戏最大的卖点是没外挂的时候还有什么可玩的，就是个游戏界的流量明星，有钱的爹疯狂营销忽悠傻子玩而已
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 174#       发表于 2020-4-10 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47037248&amp;ptid=1922974" target="_blank">ybfelix 发表于 2020-4-10 15:45</a>
+
+话说喜欢CS这种大抵一**爆头的玩家，和喜欢COD这种**伤害相对低的玩家，人数上限哪个多些？ ...</blockquote>
+打照面就是一**爆头算是很高强度了, 说到人数上限的时候, csgo里的一般玩家往往是电竞描边手更多, 一个爆头就能让他们吹好久. 很多人不会搞就是p90猪突, 拐角警喷, 大狙瞬镜
+
+这些在主机cod里, 都很常见.
+
+cs也只是看比赛的人多一点, 玩家肯定是cod多
+
+
+
+
+
+
+
+-----
+
+####  chenzhi11  
+##### 175#       发表于 2020-4-10 17:16
+
+
+
+
+已经出现外挂 视频https://tieba.baidu.com/p/6608190980
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 176#       发表于 2020-4-10 17:18
+
+
+
+
+美式卡通拦国人+1
+
+根据身边统计学，周围没一个玩堡垒之夜的，问原因就是美式画风受不了，当然也包括我本人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 177#       发表于 2020-4-10 18:09
+
+
+
+
+什么，你们还觉得ow是个fps?
+ow明明就是个3d moba好吧，套着个fps的皮的本质moba，设计思路完全是按moba去做的。
+比如你76平a dps多少，然后技能爆发多少，治疗量多少，暴击率多少，按照这个再去设计坦克和奶妈的血量，奶量，防御，护甲等等，技能都是moba里老几样，小美封路，路霸位移，铁拳跳脸，毛妹减伤盾，每个人再配个大招，到最后还是比较技能管理水平。刚开服还有点fps的味道，第一赛季开始几次削弱**位加奶和t，弄成303完全成为moba了（暴雪:在改321了
+拳头这个虽然带了技能但核心还是fps，真要说类似的游戏是r6这种带点moba要素的本质fps。
+
+
+
+
+
+
+
+-----
+
+####  血狂毘沙门  
+##### 178#       发表于 2020-4-10 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47033771&amp;ptid=1922974" target="_blank">diodio233 发表于 2020-4-10 10:41</a>
+
+但是战法牧这玩法FPS首创啊，我是真的没见过这么无聊的核心玩法的fps ...</blockquote>
+军团要塞也这样 不过战和牧都比较弱
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 179#       发表于 2020-4-10 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038167&amp;ptid=1922974" target="_blank">chenzhi11 发表于 2020-4-10 17:16</a>
+已经出现外挂 视频https://tieba.baidu.com/p/6608190980</blockquote>
+吹了这么久反外挂结果这就破功了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jokertx  
+##### 180#       发表于 2020-4-10 18:31
+
+
+
+
+之前不是看过说FPS从设计根本上就是没办法屏蔽外挂的，不然就是大家一起卡
+
+外挂泛滥程度其实跟游戏火不火成正比，不火了以后自然外挂就少了
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 181#       发表于 2020-4-10 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47035106&amp;ptid=1922974" target="_blank">operatbig 发表于 2020-4-10 12:21</a>
+真成R6对拳头来说就是个惨痛失败。</blockquote>
+Fps市场大但是竞争对手也多啊和moba不一样
+，动视ea2k育碧有名的欧美大厂都有有名的fps类型ip，指望新ip取得像lol一样的成功难度太大。r6s好歹也是千万俱乐部的游戏了真能达到这高度就已经算杀出重围了立下脚跟了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  继承权  
+##### 182#       发表于 2020-4-10 18:39
+
+
+
+ 本帖最后由 继承权 于 2020-4-10 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038684&amp;ptid=1922974" target="_blank">里少 发表于 2020-4-10 18:09</a>
+
+什么，你们还觉得ow是个fps?
+
+ow明明就是个3d moba好吧，套着个fps的皮的本质moba，设计思路完全是按moba去 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当moba玩大概在2000分，当fps玩能上到3500。
+
+至于goats(303)，真的玩过就不会拿“moba”来概括了，4000分以上才能入门，是集合了游戏地形、机制理解、即时沟通、技能运营、细节操作的极致竞技。
+
+
+
+
+
+
+
+-----
+
+####  矢吹可奈  
+##### 183#       发表于 2020-4-10 19:03
+
+
+
+
+这游戏是在cs上面做加法的而且ttk极短，只要**够刚不怕打不死人，至少不会因为没选版本人物就让玩家打不死人，不会出现ow那样吃屎的团队模式，追求竞技的玩家开黑配合，研究地图研究选人技能搭配乐趣肯定不低，拳头只要记得开个死斗模式照顾菜鸡玩家就行了
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  医生狼多  
+##### 184#       发表于 2020-4-10 19:27
+
+
+
+
+g2冠军皮肤<img src="https://p.sda1.dev/0/b82ca0c23f5812db045d9d76c9aead40/IMG_389F19F2D6EE5380A84CF802B67AD1CB.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -SLSL-  
+##### 185#       发表于 2020-4-10 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47012015&amp;ptid=1922974" target="_blank">FUZE 发表于 2020-4-8 11:08</a>
+
+这游戏最开始设计的时候应该不是朝向CS这样的风格。
+
+游戏地图明显比CS大得多，你能在地图里面找到一堆“ ...</blockquote>
+你这个说法似乎能解释开局三路对线的设计，这么大地图要都从家走光搜点就要弄半天<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+不好解释的是这游戏英雄技能设计都偏战术，而且基本都是守点攻坚型的，总不能做到一半全部推倒重做吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+（虽然反正都是抄的也死不了多少脑细胞<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  里少  
+##### 186#       发表于 2020-4-10 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038922&amp;ptid=1922974" target="_blank">继承权 发表于 2020-4-10 18:39</a>
+当moba玩大概在2000分，当fps玩能上到3500。
+
+至于goats(303)，真的玩过就不会拿“moba”来概括了， ...</blockquote>
+我玩了十多年fps了，ow现在银框，ow之前没玩过moba，csgo玩了一年多单排老鹰，r6 102级不记地图纯靠对**单排上白金，怎么说定位反应经验水准也比80%玩fps的人强了。ow第一赛季我当fps玩也就50分水平，折腾来折腾去也打不到钻石，后来学聪明了天天玩奶和t很快就3400往上走了。moba是这游戏的基础框架，从0到50的部分，你遇上对**对不过的换个肉轻松解决。fps水平是进阶部分，从50到80的水准，甚至对于定位要求都没那么高，主要吃反应，但哪个竞技游戏不吃反应呢？你如果从零直接用fps思路硬怼ow打不上去的。
+至于303，我认为基本任何分段303的下限和上限都远比其他阵容来的高的多，而不是一定要高分段才来的更高效。303的优势是刻在游戏机制上的bug，要是暴雪真能通过削弱角色这种表象方式解决303的无敌，也不会搞强制321和222了。
+
+
+
+
+
+                                           
