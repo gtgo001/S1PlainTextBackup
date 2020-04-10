@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 08:00** 
+> ## **本文件最后更新于2020-04-11 00:00** 
 
 
 
@@ -116,7 +116,7 @@
 
 
 21-05-23-067.png
-(763 Bytes, 下载次数: 68)
+(763 Bytes, 下载次数: 69)
 
 
 
@@ -1640,7 +1640,7 @@ lol打的好的哪里需要套皮？农药打的好的哪里需要套皮？
 
 
 image.jpg
-(118.59 KB, 下载次数: 0)
+(118.59 KB, 下载次数: 1)
 
 
 
@@ -2324,4 +2324,504 @@ roi karu关系一出，警察瞬间安静了，笑到
 
 
 
-                                             
+
+
+-----
+
+####  InvisibleP  
+##### 6123#       发表于 2020-4-10 08:11
+
+
+
+
+就度宝那几个私生饭都能拆cp，要是roi再复刻一遍，估计就不只是转发抽奖的乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6124#       发表于 2020-4-10 08:15
+
+
+
+
+你们觉得罗伊那性格做得出度人那事吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6125#       发表于 2020-4-10 08:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗伊这么专业，怎么会再出之前的事，之前rozaPV又做的很烂，被他巧妙直播吐槽化解。建议弥宝以后遇到炎上的事去咨询罗伊，
+
+staff的处理方法也太不靠谱了。
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6126#       发表于 2020-4-10 12:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">既然是熟人肯定是互相知道底细的，真起哄到贴贴营业怕不是两方都得尴尬
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6127#       发表于 2020-4-10 12:19
+
+
+
+
+罗伊现在肯定是继续和阿萨卖腐啊，只要有roza这个组合撑腰，他俩别的cp都不会成大势也不必成大势
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6128#       发表于 2020-4-10 14:37
+
+
+
+
+素人没水平就别绑定，另外我坚持bg营业死路一条
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6129#       发表于 2020-4-10 14:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 能不能好好叫ID啊，为啥是葵皇妹妹呢，柚子妹妹、熊猫人妹妹不行吗！？本葵熊激怒
+
+
+
+
+
+
+
+-----
+
+####  kairyuhhah118  
+##### 6130#       发表于 2020-4-10 14:56
+
+
+
+
+因为karu那脸和葵重合度最高啊
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6131#       发表于 2020-4-10 15:19
+
+
+
+
+说明葵皇在葵系脸中最被观众们熟知啊，是好事儿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6132#       发表于 2020-4-10 15:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 看到人家下面被太监虹粉刷屏有点恶心，说不定人家一点这个意思没有呢
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6133#       发表于 2020-4-10 15:52
+
+
+
+
+vr找这个画师不就有吸本社粉的意思在里面吗，你看2000就被吸过来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6134#       发表于 2020-4-10 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47037320&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-10 15:52</a>
+
+vr找这个画师不就有吸本社粉的意思在里面吗，你看2000就被吸过来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 这个画师去年年末生产去了，，从那时开始几乎没内容产出，
+
+
+我倾向于这个立绘是本社给vr的
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6135#       发表于 2020-4-10 17:18
+
+
+
+
+倒也是挺适合的歌
+
+[网易云](http://music.163.com/m/song?id=1438882873&amp;userid=1186254)
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdosg90p9rj20ik0min0m.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lutla1422  
+##### 6136#       发表于 2020-4-10 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47032673&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-10 08:56</a>
+
+罗伊这么专业，怎么会再出之前的事，之前rozaPV又做的很烂，被他巧妙直播吐槽化解。建议弥宝以后遇 ...</blockquote>
+没吃过猪肉也见过猪跑 这也证明了挖大物比抽素人卡稳得多
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 6137#       发表于 2020-4-10 18:09
+
+
+
+ 本帖最后由 Ketestrait 于 2020-4-10 18:12 编辑 
+
+删除，点错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6138#       发表于 2020-4-10 19:57
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-4-10 21:30 编辑 
+
+歌姬综艺打太极还是有趣
+
+直播跳舞强化月
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdozu5utl2j20mb0ja7ml.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdozto6z35g20ex08chdx.gif" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdozton45rg20es08chdx.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6139#       发表于 2020-4-10 21:42
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-10 21:58 编辑 
+
+我之前看蘑菇人直播感觉她还挺能动的，以为杏的live2d好起来了
+
+今天看看鱼怎么这皮动起来这么鬼畜，ruki那皮也就是不太能动的纸片感，她这皮稍微后仰或者转头的形变和拉伸也太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全身就真是一张纸...
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6140#       发表于 2020-4-10 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">纸片感是制作精度问题，杏的live2D最大的问题我觉得是身体动的幅度太大了，明明人只是头上下动一下，整个皮都在上下动，违和感爆表。
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 6141#       发表于 2020-4-10 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040686&amp;ptid=1909283" target="_blank">雅朵莉雀 发表于 2020-04-10 21:42:09</a>
+简直全身就真是一张纸...</blockquote>蘑菇人直播的时候一直侧着脸，感觉也有点鬼畜
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6142#       发表于 2020-4-10 22:21
+
+
+
+ 本帖最后由 不吃布丁的宫子 于 2020-4-10 22:23 编辑 
+
+vr新人这两个男的怎么是这个调调啊草，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+syl：蘑菇人播着还挺有意思的，她这个皮虽然侧头鬼畜了点但是还是蛮生草的（突然唱了香格里拉nice）
+
+另外两个人吗，爱夏没什么长进，帕里女儿那个真的是超出我的审美极限了，顶不住顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水浅王八多  
+##### 6143#       发表于 2020-4-10 23:22
+
+
+
+ 本帖最后由 水浅王八多 于 2020-4-10 23:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男V全都给你准备的？路线不同就吐了这么娇弱？胃浅就去看医生，顺便看看脑子，人家又不吃你这碗饭，钱打了吗就这么自我中心。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少把鸟信徒拉踩别人给自己抬轿的那套带到版主身…哦这就是个鸟信啊那没事了。狗改不了行为模式确实是这样。
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6144#       发表于 2020-4-10 23:29
+
+
+
+
+今天miki情绪好高涨啊！听的好开心啊！
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6145#       发表于 2020-4-10 23:31
+
+
+
+
+虽然怎么说很奇怪但是我觉得s1有点变成vr箱总楼的感觉
+
+（虽然也不坏就是了
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 6146#       发表于 2020-4-10 23:36
+
+
+
+
+版主是挺香的。问题是人vr运营又不傻，想抽什么类型的你看不出来？
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6147#       发表于 2020-4-10 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">版主一个男粉占大多数的打游戏男v，人虽然有魅力，但是涨粉能力太差了啊，vrKPI是涨粉来着。
+
+
+
+
+
+
+
+-----
+
+####  水浅王八多  
+##### 6148#       发表于 2020-4-10 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天天版主这好那好的，宁倒是关注版主啊？天天顶级流量真香喊得挺欢，一看粉丝四万都不到。踩新人的时候倒是拿出来吹了，你香的哪门子香？你的真香有任何用处吗？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VR抽卡能没有自己的考量？真就钱不打屁事不少，赶紧爬回去捧你鸟神去。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6149#       发表于 2020-4-10 23:48
+
+
+
+ 本帖最后由 kaion111 于 2020-4-10 23:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">蘑菇人钢之魂v真香啊，歌力也还可以，不过这个唱歌的方式怎么感觉和鲨皇好像啊，都是往上憋，虽然唱功天差地别。
+
+这嗓子老天挺赏饭的，系统的练练可以期待以后。
+
+欧靠，会月之茧，单推一礼拜。
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 6150#       发表于 2020-4-10 23:58
+
+
+
+
+论泥潭的讨论度版主+弥宝大概能顶10个HOLOCN然而B站关注加起来不如刚出道的鱼人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，在泥潭香有啥用
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6151#       发表于 2020-4-10 23:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            
