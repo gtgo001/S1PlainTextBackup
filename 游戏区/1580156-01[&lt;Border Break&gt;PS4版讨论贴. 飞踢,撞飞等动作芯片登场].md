@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-03-06 18:10** 
+> ## **本文件最后更新于2020-04-10 14:04** 
 
 
 
@@ -697,7 +697,7 @@ Fami通报售价了，18334 Yen.
 
 
 
-$('flv_ZPG').innerHTML=(mobileplayer() ? "" : AC_FL_RunContent('width', '640', 'height', '480', 'allowNetworking', 'internal', 'allowScriptAccess', 'never', 'src', 'https://player.youku.com/player.php/sid/XMzU0MTY5NTU4OA==.html/v.swf', 'quality', 'high', 'bgcolor', '#ffffff', 'wmode', 'transparent', 'allowfullscreen', 'true'));
+$('flv_Hjr').innerHTML=(mobileplayer() ? "" : AC_FL_RunContent('width', '640', 'height', '480', 'allowNetworking', 'internal', 'allowScriptAccess', 'never', 'src', 'https://player.youku.com/player.php/sid/XMzU0MTY5NTU4OA==.html/v.swf', 'quality', 'high', 'bgcolor', '#ffffff', 'wmode', 'transparent', 'allowfullscreen', 'true'));
 
 [http://v.youku.com/v_show/id_XMzU0MTY5NTU4OA==.html](http://v.youku.com/v_show/id_XMzU0MTY5NTU4OA==.html)
 
@@ -10715,7 +10715,7 @@ BB作为这10年来最成功的街机（我觉得甚至都不需要加之一）�
 
 Hey秋叶原那个老机器很多，水平高的大叔也很多（笑）机状维护好到惊人连介绍贴着和海报都是齐全的，不过没有BB。
 <img src="http://akibamap.info/jpg_2006.04/hey_7.jpg" referrerpolicy="no-referrer">
-<img src="https://static1.squarespace.com/static/500beccfe4b016a023c2f314/t/5a928a82e2c483bcb28fde49/1519553158205/IMG_0329.JPEG" id="aimg_SuJs0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://static1.squarespace.com/static/500beccfe4b016a023c2f314/t/5a928a82e2c483bcb28fde49/1519553158205/IMG_0329.JPEG" id="aimg_O2R0J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://pbs.twimg.com/media/BcSzBkbCEAAsp2u.jpg" referrerpolicy="no-referrer">
 
 
@@ -17016,6 +17016,841 @@ D4：ボーダーズチェック×20000
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                            
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zhfatwork| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 632#         楼主| 发表于 2020-3-6 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46637744&amp;ptid=1580156" target="_blank">devilgundam 发表于 2020-3-6 16:12</a>
+
+这周把之前的券和币都用来抽武器，强袭的散，后坐力有点大，连发式的打几发就要压**；游击的新武器在这星期 ...</blockquote>
+
+游击那个遥控炮台得找隐蔽的地方设置，因为不会自动攻击所以放到显眼的地方只会成为对方的+2PT，要是能放到对方核心塔里利然后自己转移回自己基地遥控凸就太爽了（妄想）
+
+
+浮游炮我的觉得其实是手残人士的“主武器”，要带浮游炮主武器就带炸炮猛虎吧，不然和其他主武器有重复感。而且这东西坑道战也有妙用，很多时候坑道里对峙大家都喜欢闪出来一下开火后就立刻缩回去，但浮游炮只要捕捉到就可以追过去到拐角后面打，这个特性很有意义。
+
+
+我现在尝试改变玩支援的风格，最近得到了巡航C-的Valor Rav脚，虽然载重比3凸的AT脚低150玩重火力困难但玩支援足够，巡航起来很舒适。另外开始换用修理站，再启动速度很快，并且可以给队友加满血是相较胶囊的优点。偶尔还会遇到救活的队友又死在修理站范围内，然后又复活情况…………
+
+
+
+
+
+
+
+
+-----
+
+####  devilgundam  
+##### 633#       发表于 2020-3-9 16:15
+
+
+
+
+你游也像其他游戏一样，搞step 抽卡了      http://ps4.borderbreak.com/news/2020-03-09-2
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 634#         楼主| 发表于 2020-3-10 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46670508&amp;ptid=1580156" target="_blank">devilgundam 发表于 2020-3-9 16:15</a>
+
+你游也像其他游戏一样，搞step 抽卡了      http://ps4.borderbreak.com/news/2020-03-09-2</blockquote>
+这个我捧了个场，不知道实际概率是多少，3阶段共3800种子25个武器出来三个三星武器，其中个包括强袭的双管大**，从结果来说还不错。
+
+
+另外今天UU正常么，我刚才打了6盘掉线4场，掉线交出去39*4的排名分，A4的156RP可是很多血汗啊！现在负分了。自从用加速器以来还没有遇到过这么厉害的掉线，仿佛回到了没加速器连续掉线直接降级的暗黑时代。
+
+
+最后放个上周的炸炮猛虎高点防守
+
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 635#       发表于 2020-3-10 23:50
+
+
+
+
+我只抽了5抽，理由是300种子换100材料好像不亏。。
+
+虽然凭良心讲，这半年的武器装备出的保守些是正确的，杀鸡取卵可能会游戏寿命会进一步缩短（如果还有的话）。但是从玩家的角度功利地说，这半年出的武器装备好像没什么抽的价值，课金玩家早就有前一世代op的人权装备，就算有些冤大头抽一些情怀装备（特指ヤクシャ、アスラ、STAR等旧时代的眼泪）也是早就抽了，大概不会在新神降临的前一个月抽出来玩。。（然后5月更新ゲヴァルト·ヤクト，スプーキーＧ·連発型，スクラムバスターＣ·ジオ等全新装备）
+
+
+ps：关于41式/41改的上方修正，我一直觉得如果这系列对コア伤害变成2.5倍的话或许能保有一点使用率(´・ω・`)
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 636#         楼主| 发表于 2020-3-11 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46687073&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-3-10 23:50</a>
+
+我只抽了5抽，理由是300种子换100材料好像不亏。。
+
+虽然凭良心讲，这半年的武器装备出的保守些是正确的，杀 ...</blockquote>
+
+其实要计算的话就是第一阶段300种子5个武器的最值。总体不如全是高实用货且必出3星的定番武器活动。但是鉴于我也没体验过这种类手游套路什么的，全当涨见识了（笑）
+
+关于41式单独提高对核心攻击力估计是没戏的，因为这等于给41式单独设计一套攻击属性，攻击力也很难再调高了，我觉得上方调整也只能是减重…………减重到和长柄Cracker差不多的重量，感觉也就能这样了……
+
+
+这场拯救我了上周末4v4活动的排名，下次我们也尝试邀请到一个队里刷分吧~
+
+
+
+
+
+
+
+
+-----
+
+####  devilgundam  
+##### 637#       发表于 2020-3-11 12:07
+
+
+
+ 本帖最后由 devilgundam 于 2020-3-11 12:21 编辑 
+<blockquote>zhfatwork 发表于 2020-3-10 19:17
+这个我捧了个场，不知道实际概率是多少，3阶段共3800种子25个武器出来三个三星武器，其中个包括强袭的双 ...</blockquote>
+我这边加速器问题已经是上次赛季末就有了，表现为一开始的一两局掉线几率极高，掉了后再次搜索房间几十秒后游戏显示连不上网（实际ps4网络情况和电脑程序端都显示没掉线），只有切换服务器再尝试搜索。为此我现在会先打几局非rank房，稳定后再打rank战
+
+
+武器方面我还是觉得有些新武器不易上手，例如重装的副武器，尽管那个新一点的光弹威力强点，然而在本周这张地图还是不如两星的弹c；支援出了那么多主武器，还是Flap最好用（我感觉支援比重装更有杀伤力）。不过新武器的某些属性在隐藏数值或显示数字以外的项目上有优势，重装的那把可变的主武器会心率很高，浮游炮的追击效果一流，特别是游击的遥控，上周的训练场和这周的山洞里我都发觉有人把机扔到死角或者光源（例如c点附近的光幕），有几局我方都大片倒在路口。
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 638#         楼主| 发表于 2020-3-11 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691585&amp;ptid=1580156" target="_blank">devilgundam 发表于 2020-3-11 12:07</a>
+
+我这边加速器问题已经是上次赛季末就有了，表现为一开始的一两局掉线几率极高，掉了后再次搜索房间几十秒 ...</blockquote>
+我估计是近期宅在家里打游戏的人较多，所以加速器其实不支了…………而且有时延迟极大，用绳索和修理点时非常明显。
+
+
+那我也只能先打两场练习战，确认稳定再打排名吧。
+
+
+重装那把准镜重机我发现也发现大部分人其实不切到准镜模式（B模式）就是直接冲近身用，但是这东西重量比初始的那系统重量大多了，我用起来感觉近似，领悟不到这把新的的魅力……
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 639#       发表于 2020-3-11 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46691686&amp;ptid=1580156" target="_blank">zhfatwork 发表于 2020-3-11 12:16</a>
+
+我估计是近期宅在家里打游戏的人较多，所以加速器其实不支了…………而且有时延迟极大，用绳索和修理点时 ...</blockquote>
+可是重火新机**dps高啊，没记错的话有6000+，マガジン火力也突破了50000，而初始的火力上差了不少。。
+
+（然而我选择ファフニール）
+
+我这边加速器一直都不太好用，最近的掉线率更是高的离谱。
+
+话说会心率是什么东西
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 640#         楼主| 发表于 2020-3-16 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46693559&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-3-11 14:56</a>
+
+可是重火新机**dps高啊，没记错的话有6000+，マガジン火力也突破了50000，而初始的火力上差了不少。。
+
+（ ...</blockquote>
+重火准镜轻机确实精度高，似乎有不少加特林信徒都换这把了。
+
+
+周末我仔细研究了了下UU加速，似乎每次连到的速度不一样，大多数时候是5M左右的上传，这种就会有比裸联大的延迟，大约是0.5到１秒，（从死掉的敌机跳出“击破”的延时看出来的）。
+
+但很偶尔的概率UU会联出以下截图这样的上传速度（60多M，比平时高10多倍），这时网络会延迟极小，我的武器命中率就会高很多，主武器打不到人的问题也得到了极大的解决。
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/160238ni0q77evrtvrzu41.png" referrerpolicy="no-referrer">
+
+
+<strong>net.png</strong> (190.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 16:02 上传
+
+
+
+
+
+
+
+我这个周六联到了一次这样的“好网”，然后不舍得断开，周末两天使劲玩了约60多盘，排名从A4一气升到A2.可见延迟小的网络有多么强大…………
+
+
+<img src="https://img.saraba1st.com/forum/202003/16/160248auzd7qw01017v8p1.png" referrerpolicy="no-referrer">
+
+
+<strong>weekend.png</strong> (220.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-3-16 16:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 641#       发表于 2020-3-16 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46758732&amp;ptid=1580156" target="_blank">zhfatwork 发表于 2020-3-16 16:16</a>
+
+重火准镜轻机确实精度高，似乎有不少加特林信徒都换这把了。
+
+
+周末我仔细研究了了下UU加速，似乎每次连到 ...</blockquote>
+延迟的正体果然是上传速度么。。我用uu好的时候上传速度有1mbs+，不好的时候大概500-800kbs左右（苦笑）
+
+
+
+
+
+
+
+-----
+
+####  devilgundam  
+##### 642#       发表于 2020-3-20 11:42
+
+
+
+
+http://ps4.borderbreak.com/news/2020-03-19-1 4月9日解禁union战了，不知道有推荐的装备呢？还有新的初始包可以购买，带一套空式和装备，不知道能不能用来换改造点数
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 643#         楼主| 发表于 2020-3-20 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46809914&amp;ptid=1580156" target="_blank">devilgundam 发表于 2020-3-20 11:42</a>
+[http://ps4.borderbreak.com/news/2020-03-19-1](http://ps4.borderbreak.com/news/2020-03-19-1) 4月9日解禁union战了，不知道有推荐的装备呢？还有新的初始 ...</blockquote>
+
+我估计Union战对比PVP应该会更火力至上，或者一些造成异常状态的东西比如减速麻痹什么也应该会好使。
+
+
+这个新的下载版游戏本体的特典其实我有点小失望，因为之前SEGA说会有很有魅力的特典，我以为会是以前不开放给玩家使用Boss机辉星破式。但最后其实是主角机空式。
+
+
+不过你的的思路很对，这个新下载版<strong>送的武器和部件碎掉出的改造碎料很足</strong>，等于不到3000日元直接得到400*8=3200的碎料。而按照通常掉落率3000日元只能出大约600点碎料。那10张卷和1000种子理论上也是600碎料，约等于6倍的效率。所以对于3凸透强迫症的人来说，反复买这个其实是获得改造碎料的最佳途径（笑）
+
+
+另外空式手很赞，装弹+13%，换武器+20%，弹数+25%，缺点只是后坐力吸收只要不用实弹武器就相当好用。
+
+<img src="http://ps4.borderbreak.com/data/news/2020-03-19-1/4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 644#       发表于 2020-3-21 13:15
+
+
+
+
+其实。。我不明白为什么sega那么推空式。。毕竟空式既不强也没情怀。。说是豪华但是这些东西老玩家基本都没什么需求（点名パラメタル）。送的装备都是古董，初心者开出去就是行走的战争博物馆，或许也就只有换碎料的性价比高一点吧
+
+
+（划掉）帮助新人入坑就应该推EVE头，雷花足，ライノス胴这种又帅气又强大的部件，再给他们发一个30m爆风的4连发ゲヴァルト，价格10万円一步到位（青木名留青史的好机会）
+
+
+
+
+
+
+
+-----
+
+####  metalyuki  
+##### 645#       发表于 2020-3-21 13:32
+
+
+
+
+你们uu加速器都怎么连的呢？
+选全部游戏》日本吗？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 646#       发表于 2020-3-21 19:51
+
+
+
+
+体感上各个游戏的日服节点好像都差不多？
+
+
+
+
+
+
+
+-----
+
+####  metalyuki  
+##### 647#       发表于 2020-3-21 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46825125&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-03-21 19:51:06</a>
+体感上各个游戏的日服节点好像都差不多？</blockquote>魔都电信的海外出口堵到不行，想问问是连日本节点好，还是连香港节点
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 648#       发表于 2020-3-21 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46825461&amp;ptid=1580156" target="_blank">metalyuki 发表于 2020-3-21 20:18</a>
+
+魔都电信的海外出口堵到不行，想问问是连日本节点好，还是连香港节点
+
+
+  -- 来自 能看大图的 Stage1官方 iO ...</blockquote>
+虽然我是移动不一定能作参考。。好像是日本好一点？我用日本节点延迟高，香港节点容易搜不到人
+
+
+
+
+
+
+
+-----
+
+####  metalyuki  
+##### 649#       发表于 2020-3-21 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46825932&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-03-21 20:51:40</a>
+虽然我是移动不一定能作参考。。好像是日本好一点？我用日本节点延迟高，香港节点容易搜不到人 ...</blockquote>多谢多谢🙏
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 650#         楼主| 发表于 2020-3-24 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46821754&amp;ptid=1580156" target="_blank">metalyuki 发表于 2020-3-21 13:32</a>
+
+你们uu加速器都怎么连的呢？
+
+选全部游戏》日本吗？</blockquote>
+我是这么联的，选单独的游戏也试过，不过就和dzdf说的一样，选日本其实感觉不到明显差异。
+
+香港没试过，我觉得这游戏只有日服，绝大多数玩家也是日本的，选日本以外的线路应该不会更好吧。
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 651#         楼主| 发表于 2020-3-24 16:04
+
+
+
+ 本帖最后由 zhfatwork 于 2020-3-24 16:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46821573&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-3-21 13:15</a>
+
+其实。。我不明白为什么sega那么推空式。。毕竟空式既不强也没情怀。。说是豪华但是这些东西老玩家基本都没 ...</blockquote>
+
+我知道你在恶搞，EVE横着长的脑袋怎么也算不上帅气吧（笑），但我觉得有一点提炼出来还是很有道理：就是新人入坑其实应该推荐重型机，比如送一套全游戏最硬的装甲37%EVE整机，这样同样的攻击打过来被人2秒被打死，你可以抗3秒才是对新手最友善的待遇。活着才能搞明白怎么回事，活着才能反击，活着才能更好的学习，被一下打没了才是最让人沮丧的。
+
+
+空式PS版片头帅啊，还有美少女驾驶员加成，怎能不火~ 美洲狮NX的问题是不是人头，是兽头，两侧眼睛……所以这个系统一般都用S型做招牌机。
+<img src="https://www.jp.playstation.com/blog/2018/01/20180201-borderbreak-18.jpg" referrerpolicy="no-referrer">
+<img src="https://www.jp.playstation.com/blog/2018/01/20180201-borderbreak-01.png" referrerpolicy="no-referrer">
+<img src="https://www.modelsale.com/modelsale/shopimg/KBYFAA19.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 652#       发表于 2020-3-24 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46857079&amp;ptid=1580156" target="_blank">zhfatwork 发表于 2020-3-24 16:04</a>
+
+我知道你在恶搞，EVE横着长的脑袋怎么也算不上帅气吧（笑），但我觉得有一点提炼出来还是很有道理：就是 ...</blockquote>
+我的意思是，EVE头那个S+的装甲很帅气，还那么轻(相对于它那么高的装甲),这么厉害的头难道不是游戏里最帅的头吗www
+
+其实不单单是推荐新人用重型机，所有人都该用重型机（认真）。重视机动的麻可能会用nx足（24.8）/雷花丽足（24.2）/雷花3星足（25.2）配重型头胴腕，现在的比赛里最后显示前三的时候是不是几乎都是EVE头www
+
+提到美少女驾驶员，sega真是不懂人心（叹气）为什么偏偏跳过モニカ还是没有新版本呢（2ch上那一堆モニモニ合唱团）
+
+
+
+
+
+
+
+-----
+
+####  metalyuki  
+##### 653#       发表于 2020-3-24 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46856675&amp;ptid=1580156" target="_blank">zhfatwork 发表于 2020-03-24 15:33:24</a>
+我是这么联的，选单独的游戏也试过，不过就和dzdf说的一样，选日本其实感觉不到明显差异。
+
+香港没试过， ...</blockquote>这个不是服务器或者延迟的问题。
+魔都电信的外网出口有qos，到高峰时段所有连海外的连接都会卡到最低几k的程度，但连香港节点反而有时还算正常，不知是不是香港不走国际出口的关系。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 654#         楼主| 发表于 2020-3-28 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46861072&amp;ptid=1580156" target="_blank">metalyuki 发表于 2020-3-24 22:10</a>
+
+这个不是服务器或者延迟的问题。
+
+魔都电信的外网出口有qos，到高峰时段所有连海外的连接都会卡到最低几k的 ...</blockquote>
+我不是非常懂网络，但是是不是加速线路可以无视运营商的限制呢？
+
+比如640楼的60M上传，其实是高于我的网络运营商的30M上传上限的。
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 655#         楼主| 发表于 2020-3-28 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46857476&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-3-24 16:38</a>
+
+我的意思是，EVE头那个S+的装甲很帅气，还那么轻(相对于它那么高的装甲),这么厉害的头难道不是游戏里最帅 ...</blockquote>
+因为莫妮卡已经不能穿的再少了，不穿的更少新形象SEGA大脑风暴不出来（笑）
+
+
+这两天的新武器试用，感觉爪子和齿轮发射器属于基本不会有人用的，联装火箭炮还行，炸狙是神器。
+
+
+尽管有掉线的因素（每次减40RP），但近期反复被从A1打回A2，让我也觉得可能到了自身技术和无课金的界限了，了解了自身的界限也就不纠结胜负了（简单的说就是被现实给打服了，笑）不过底下这场有两位队友给我留下了深刻的印象，一位是第527秒在激战区空血竖起大拇指的强者，另一位是120秒重火力追对方凸麻近10秒从D追到E追不上了也不喊防卫基地转身走了…………
+[https://www.bilibili.com/video/BV1Zz411t7Lv](https://www.bilibili.com/video/BV1Zz411t7Lv)
+
+
+我感觉顶级的BB玩家对局和普通的BB玩家对局主要体现在防卫尤其是防卫麻上。
+
+敌方凸麻杀向基地的时候，一般的玩家的应对往往是不想防，也防不住。因为防不住所以就更不想转移回去防，恶性循环，最后就看谁凸麻更凶。
+
+
+其实多数还是主观的问题：不想防－前方杀的正爽刷分ｉｎｇ　大于　防不住－回去可能也是无用功，不如在前面发挥作用　大于　没有后方索敌－根本不知道凸麻来了。
+
+
+我现在真觉得ＢＢ最好玩的要不就是去玩凸的战线突破，要不去防凸的，最能反映这个游戏对抗设计的本质。
+
+排名赛我觉得Ａ１已经到我天花板了，以后再玩也不纠结排名了，就应该是主要练习麻，体会游戏的精髓了。
+
+
+
+
+
+
+
+-----
+
+####  dzdf  
+##### 656#       发表于 2020-3-29 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46905174&amp;ptid=1580156" target="_blank">zhfatwork 发表于 2020-3-28 18:10</a>
+
+因为莫妮卡已经不能穿的再少了，不穿的更少新形象SEGA大脑风暴不出来（笑）
+
+
+这两天的新武器试用，感觉爪 ...</blockquote>
+变装不一定要穿的更少啊，露出度低的服装也可以很可爱不是(*´ω｀*)
+
+凸这东西一看地图能不能凸，二看支援（索敌）配不配合。。
+
+留意一下应该会发现愿意玩麻的人其实并不那么多（即使某个地图很适合麻），尤其防卫麻只适合胜负厨：全队最累，全程留意小地图四处救火，如果队里没有优秀的凸麻还得兼职凸麻，最后分数比起战斗麻还很低（sega设计在基地外防卫不给防卫分，凸麻虽然分也不高但是快乐啊，拿到凸击金牌的话就算分数垫底也可以很快乐）防卫麻虽然胜利的期望会上升一点，但是在格差战场想逆天改命也不太现实。。
+
+
+
+
+
+
+
+-----
+
+####  devilgundam  
+##### 657#       发表于 2020-3-31 13:27
+
+
+
+<blockquote>zhfatwork 发表于 2020-3-28 18:10
+因为莫妮卡已经不能穿的再少了，不穿的更少新形象SEGA大脑风暴不出来（笑）
+
+
+这两天的新武器试用，感觉爪 ...</blockquote>
+我昨晚抽了几次（包括之前获得的券），硬是出全了爪子和齿轮（我想要的是另外2个啊），齿轮是不会用的，可查wiki发现街机时代爪子竟然是强袭格斗装备排名第3的（前两个是最轻的刀和棍，用来配重的），看描述是用来移动的。重装的那个武器有点难用，射程不是很远，发射的时候要算好提前量，或者躲在障碍物后面，否则就是游击的活靶子
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 658#         楼主| 发表于 2020-4-2 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46933329&amp;ptid=1580156" target="_blank">devilgundam 发表于 2020-3-31 13:27</a>
+
+我昨晚抽了几次（包括之前获得的券），硬是出全了爪子和齿轮（我想要的是另外2个啊），齿轮是不会用的， ...</blockquote>
+
+爪子特殊攻击“钻头爪”，如果击中赶快挂上喷气背包再来一下，可以做出KOF里韩国队某人的必杀技（笑）
+
+
+游击的炸狙出了之后，已经濒临灭绝的游击兵装又有不少敢出来了，三连射*2的红莲的火力非常惊人，根本就可以当游击的火箭筒用。
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 659#         楼主| 发表于 2020-4-2 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46913889&amp;ptid=1580156" target="_blank">dzdf 发表于 2020-3-29 16:30</a>
+
+变装不一定要穿的更少啊，露出度低的服装也可以很可爱不是(*´ω｀*)
+
+凸这东西一看地图能不能凸，二看支 ...</blockquote>
+
+现在感觉是一看编成就基本知输赢
+
+
+要赢的队是这样的
+
+AA3 强袭
+
+AA5 强袭
+
+A1   游击
+
+A1   强袭
+
+A2   重火力
+
+A2   支援
+
+A3   重火力
+
+A3   重火力
+
+A4   支援
+
+A4   支援
+
+
+要输的队是这样的
+
+AA3 支援
+
+AA5 支援
+
+A1   重火力
+
+A1   支援
+
+A2   重火力
+
+A2   游击
+
+A3   强袭
+
+A3   重火力
+
+A4   强袭
+
+A4   强袭
+
+
+基本上就是如果同队的上位玩家是强袭，就胜算较大。如果上位玩家是支援或重装就胜算较小。
+
+因为重装和支援得高分容易，所以同等级的强袭（也可以算上游击）其实含金量更高。
+
+
+
+
+
+
+
+-----
+
+####  zhfatwork  
+##### 660#         楼主| 发表于 2020-4-6 17:18
+
+
+
+
+
+几个更新，
+
+一是HORI的PS4版的BB街机鼠标感觉可能要黄了…………目前看起来要到达2000个预约的目标很困难，我觉得这个其实挺酷的，希望能最后成功。
+[http://ps4.borderbreak.com/news/2020-03-30-1](http://ps4.borderbreak.com/news/2020-03-30-1)
+<img src="http://ps4.borderbreak.com/data/news/2020-03-30-1/1.png" referrerpolicy="no-referrer">
+<img src="http://hori.jp/image/2020/03/0f6fe58a0d691670d042b158ed119bd4.jpg" referrerpolicy="no-referrer">
+<img src="http://hori.jp/image/2020/03/be9330**8358293ebf1dcf1880c93cd.jpg" referrerpolicy="no-referrer">
+
+
+
+再就是这周要实施的平衡调整出来了，基本就是冷门武器少许加强，感觉加强最大的是掃射機銃，連続射撃时间足足增加了两成，以前那过热速度真的对不起名字（笑）。但打算减弱的武器/部件其实还挺客气的，基本射出后的手感的没变，比如3星ZR那匪夷所思的大爆风范围没变。还有就是轻量机的装甲升的很多。
+[http://ps4.borderbreak.com/news/o070E8LrBcW6](http://ps4.borderbreak.com/news/o070E8LrBcW6)
+
+装甲値のパラメータについて、A以下のものを全体的に上方調整しました。
+
+・Ａ　　+22% → +23%
+
+・Ａ－　+18% → +19%
+
+・Ｂ＋　+15% → +16%
+
+・Ｂ　　+10% → +12%
+
+・Ｂ－　 +5% → +8%
+
+・Ｃ＋　 0% → +4%
+
+・Ｃ　　 -5% → 0%
+
+・Ｃ－　-10% → -5%
+
+・Ｄ＋　-13% → -8%
+
+・Ｄ　　-19% → -12%
+
+・Ｄ－　-25% → -17%
+
+・Ｅ＋　-28% → -20%
+
+・Ｅ　　-32% → -24%
+
+・Ｅ－　-36% → -27%
+
+
+
+托这一赛季有时间玩的福，我昨天爬到AA5了，化解了一大怨念，对于无课金的我能到这里已经身心俱疲对排名赛战没有怨念了…… 10人对抗CPU的Union战下周就实装了，以后应该会快乐的打Union了（笑）
+[https://www.bilibili.com/video/BV1kc411h7pK](https://www.bilibili.com/video/BV1kc411h7pK)
+
+<img src="https://img.saraba1st.com/forum/202004/06/165515jhuwx9qup17hqjcr.png" referrerpolicy="no-referrer">
+
+
+<strong>AA5rank.png</strong> (722.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-6 16:55 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/06/165528p5mtes9aghey3dzs.png" referrerpolicy="no-referrer">
+
+
+<strong>AA5trophy.png</strong> (550.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-6 16:55 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  devilgundam  
+##### 661#       发表于 2020-4-10 13:17
+
+
+
+
+不知道大家打union战如何？我昨晚用了加速器也要很多次才连得上一局，打前面的难度还行，到了very hard就打不过那几个order（吸收装置和石巨人），最后差一滴血输了，看来还是要注重喷射和耐重来搬卫星炮。武器方面好像感觉不到明显的下方修正，重装的2星**还是那么好用
+
+
+
+
+
+                           
