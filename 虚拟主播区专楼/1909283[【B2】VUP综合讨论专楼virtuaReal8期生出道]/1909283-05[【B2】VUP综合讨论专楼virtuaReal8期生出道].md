@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-09 18:00** 
+> ## **本文件最后更新于2020-04-10 08:00** 
 
 
 
@@ -116,7 +116,7 @@
 
 
 21-05-23-067.png
-(763 Bytes, 下载次数: 65)
+(763 Bytes, 下载次数: 68)
 
 
 
@@ -1820,11 +1820,508 @@ rp就完事了
 
 
 
+ 本帖最后由 kabusei 于 2020-4-9 19:15 编辑 
 
-看到男v的两个妈妈刚发的微博，撕到画师头上也是离谱
-
-
-
+撕到画师头上也是离谱
 
 
-                                              
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6098#       发表于 2020-4-9 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听说还是个秦腔
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6099#       发表于 2020-4-9 18:28
+
+
+
+
+麻了，都还没出来露面就这股那股满天飞了，真就cp脑特供社团呗，打扰了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6100#       发表于 2020-4-9 18:30
+
+
+
+
+cp民是你vr特色，不得不品尝
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| InvisibleP| + 1|气抖冷，vr的二创空间又被压缩了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6101#       发表于 2020-4-9 18:50
+
+
+
+
+VR新人什么时候可以出道7w粉再内斗好不好啊？
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6102#       发表于 2020-4-9 18:59
+
+
+
+
+这都是铁血虹人的证明！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6103#       发表于 2020-4-9 19:30
+
+
+
+
+虹人先辈お静为了seeds的联动权本社爆破，黑黑为了给熊猫人隐退找个说法再次本社爆破，这才是铁血虹人，VR什么时候让星沙体面？
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6104#       发表于 2020-4-9 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47027936&amp;ptid=1909283" target="_blank">IDIDIDID 发表于 2020-4-9 19:30</a>
+
+虹人先辈お静为了seeds的联动权本社爆破，黑黑为了给熊猫人隐退找个说法再次本社爆破，这才是铁血虹人，VR ...</blockquote>
+感觉星沙姐一直以来都是负责服务器的程序员的感觉
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6105#       发表于 2020-4-9 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47027969&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-9 19:33</a>
+
+感觉星沙姐一直以来都是负责服务器的程序员的感觉</blockquote>
+不是说要给liver一人一封（辞退）信么，感觉权力大得很。
+
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6106#       发表于 2020-4-9 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47028001&amp;ptid=1909283" target="_blank">IDIDIDID 发表于 2020-4-9 19:36</a>
+
+不是说要给liver一人一封（辞退）信么，感觉权力大得很。</blockquote>
+草，一开始说实话我也有点这种感觉，不过下午看直播的时候就打消了顾虑了
+
+
+
+
+
+
+
+-----
+
+####  弥杀弥杀  
+##### 6107#       发表于 2020-4-9 20:07
+
+
+
+
+flag回收
+
+
+
+
+
+
+世事難料.png
+(64.34 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-9 20:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/09/200644hzoimtwpehuem9u8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 6108#       发表于 2020-4-9 20:18
+
+
+
+
+星沙对后面几期不清楚，至少对一二期在一定程度上要当P的
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6109#       发表于 2020-4-9 21:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/09/211419e81fzlt8fokellfl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-09 211308.jpg</strong> (8.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-9 21:14 上传
+
+
+
+
+
+
+就是这预告？有无弥人告知一下精彩在什么地方
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6110#       发表于 2020-4-9 21:54
+
+
+
+
+悲报：新人里葵皇的妹妹是别人邀请的
+
+喜报：邀请她的人似乎是roi
+
+
+现充suki，阳角摩多摩多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不智法师  
+##### 6111#       发表于 2020-4-9 22:02
+
+
+
+
+muri要参与炉石黄金赛了，vr这资源给的厉害
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6112#       发表于 2020-4-9 22:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">期待一下，邀请的话下限起码有了。
+
+syl，vr的资源怎么这么奇怪的，muri去参与了炉石活动，一般通过能接受的了萌音么，虽然她确实是本音这样，但是估计要被路人喷。
+
+
+
+
+
+
+
+-----
+
+####  瑕在瑾中  
+##### 6113#       发表于 2020-4-9 22:10
+
+
+
+
+muri终于能吃资源了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6114#       发表于 2020-4-9 22:23
+
+
+
+
+还行，是采访不是解说，之前muri播炉石的时候还问观众自己的水平能不能解说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那真是不太行
+
+
+
+
+
+
+
+-----
+
+####  不智法师  
+##### 6115#       发表于 2020-4-9 22:33
+
+
+
+
+看起来像给路人展示v这个概念，大哥自身估计吃不到多少红利
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6116#       发表于 2020-4-9 22:35
+
+
+
+
+这算哪门子红利哦，之前说不是说星沙杯也是资源，也是红利，结果呢?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不智法师  
+##### 6117#       发表于 2020-4-9 22:37
+
+
+
+ 本帖最后由 不智法师 于 2020-4-9 22:45 编辑 
+
+这个好歹是官方直接合作，跟星沙杯这种本质是自己high还是不一样的。反正是推广，有一个人被吸引那也是红利不是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且黄金赛算国内炉石顶级活动了，星沙杯跟黄金赛没法比的
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 6118#       发表于 2020-4-9 22:51
+
+
+
+
+隔壁还得要乱两天，直到首播各自打基本盘才会消停。
+
+印象里八老板刚出道时，还说VR有独立直播几次之后才能开始联动的规则？现在看看可真是
+
+
+roi karu关系一出，警察瞬间安静了，笑到
+
+请问cp民到底爬不爬呢
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6119#       发表于 2020-4-9 22:55
+
+
+
+
+要单人直播三次才能联动
+
+该贴就贴呗，这难道是非此即彼的事情吗
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6120#       发表于 2020-4-10 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47030232&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-9 22:55</a>
+
+要单人直播三次才能联动
+
+该贴就贴呗，这难道是非此即彼的事情吗</blockquote>
+未来的事也不太好说呢。。。。
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6121#       发表于 2020-4-10 07:00
+
+
+
+
+首播之前谈任何cp，表现，组合都是放屁，想当初渡渡鸟，现在不也成半个路人了吗？想当初罗伊aza，谁能想到成立半个头牌呢？不好说不好说啊，关心那么多，这些人也太闲了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 6122#       发表于 2020-4-10 07:24
+
+
+
+
+进来踩一句，cp豚是真滴不行
+
+
+
+
+
+                                             
