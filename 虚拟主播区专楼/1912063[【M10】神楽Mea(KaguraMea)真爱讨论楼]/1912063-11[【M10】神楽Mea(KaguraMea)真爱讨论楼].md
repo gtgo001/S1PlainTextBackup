@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-11 16:02** 
+> ## **本文件最后更新于2020-04-11 22:02** 
 
 
 
@@ -17355,4 +17355,1059 @@ noe也跑过来おめでとう，没通过气，真是复活了？
 
 
 
-                 
+
+
+-----
+
+####  JustW  
+##### 15964#       发表于 2020-4-11 16:18
+
+
+
+
+不太懂，个人势的3D设备能放家里吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15965#       发表于 2020-4-11 16:19
+
+
+
+
+可以是可以，模型都花了那么多钱了，3d披露用家用级捕捉她会甘心吗
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 15966#       发表于 2020-4-11 16:23
+
+
+
+
+感觉3d也不会平淡啊，不知道会发生什么<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15967#       发表于 2020-4-11 16:23
+
+
+
+
+别期待太多，她说了不能和企业比的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi120  
+##### 15968#       发表于 2020-4-11 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47047302&amp;ptid=1912063" target="_blank">往世雷书 发表于 2020-4-11 16:23</a>
+
+感觉3d也不会平淡啊，不知道会发生什么
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+我觉着撞上疫情已经够不平淡的了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15969#       发表于 2020-4-11 16:25
+
+
+
+
+5点播
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 15970#       发表于 2020-4-11 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47047309&amp;ptid=1912063" target="_blank">时雨rain 发表于 2020-04-11 16:23:51</a>
+别期待太多，她说了不能和企业比的</blockquote>不是质量，我又无所谓这个。就是觉得不会正常预告正常直播正常播完这样流程下来，按她的话题体质感觉会发生一些不同寻常的事
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15971#       发表于 2020-4-11 16:37
+
+
+
+
+能不能不播， 我要写报告<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15972#       发表于 2020-4-11 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那得看她3d披露想玩啥了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15973#       发表于 2020-4-11 16:45
+
+
+
+
+玩倒立， 俯卧撑， 仰卧起坐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15974#       发表于 2020-4-11 16:46
+
+
+
+
+躺着开3D回
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 15975#       发表于 2020-4-11 16:52
+
+
+
+
+上次看你楼奶的裙底二维码，要真有那必打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  驴子方舟  
+##### 15976#       发表于 2020-4-11 17:06
+
+
+
+
+给我卡了个很魔性的静帧
+
+
+<img src="https://img.saraba1st.com/forum/202004/11/170607i7de0d9cn279594c.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200411170524.png</strong> (313.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-11 17:06 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15977#       发表于 2020-4-11 17:09
+
+
+
+
+来，SL党和SC党， 做出选择吧！
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15978#       发表于 2020-4-11 17:12
+
+
+
+
+我选择sl，容易还没啥抽成<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+**以后看情况上下会员就拉倒
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15979#       发表于 2020-4-11 17:17
+
+
+
+
+两天前收益化就回来了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这吊人
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15980#       发表于 2020-4-11 17:22
+
+
+
+
+太沙雕了
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 15981#       发表于 2020-4-11 17:23
+
+
+
+
+太欢乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15982#       发表于 2020-4-11 17:24
+
+
+
+
+微妙<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 15983#       发表于 2020-4-11 17:30
+
+
+
+
+明天和八乙女MC联动
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15984#       发表于 2020-4-11 17:38
+
+
+
+
+【真是大爆睡了非常抱歉】
+【但是之前的直播我说以前饭盒直播迟到了大家都是安慰我的】
+【但想着昨天那样实在是不会被原谅吧】
+【结果就发了推特等批评我的】
+【结果大家还是态度很好的嘛 真好应付】
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15985#       发表于 2020-4-11 17:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">《筛粉》
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15986#       发表于 2020-4-11 17:40
+
+
+
+
+《应付》
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15987#       发表于 2020-4-11 17:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真有你的
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15988#       发表于 2020-4-11 17:41
+
+
+
+
+毫无负担的就说朋友是碧池，这就是女人的友谊嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15989#       发表于 2020-4-11 17:43
+
+
+
+
+因为是朋友所以才能说啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15990#       发表于 2020-4-11 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【顺着气势就说了】
+【我完全是有很多顺着氛围跟朋友说】
+【“这个画好可爱啊要不画一下嘛”】
+【这种完全跟直播活动没关系的话】
+【虽然是网上的朋友】
+【但是画完以后我说“诶好可爱”然后突然被说“好的5千日元”】
+【我就觉得既然是这样的话那提前先说嘛】
+【那生气了吗？诶 当然是生气了不过还是付钱了】
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 15991#       发表于 2020-4-11 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47047933&amp;ptid=1912063" target="_blank">kolu33 发表于 2020-4-11 17:41</a>
+毫无负担的就说朋友是碧池，这就是女人的友谊嘛</blockquote>
+类似损友天天黑对方？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 15992#       发表于 2020-4-11 17:47
+
+
+
+
+怎么笑声又变kimo了
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15993#       发表于 2020-4-11 17:48
+
+
+
+
+  这个不就是以前买图的段子再放送么
+
+
+
+
+
+
+
+-----
+
+####  流年似水ale  
+##### 15994#       发表于 2020-4-11 17:52
+
+
+
+
+撒花
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15995#       发表于 2020-4-11 17:52
+
+
+
+
+幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 15996#       发表于 2020-4-11 17:55
+
+
+
+
+草莓这个3D我是真的不喜欢 不知道军服怎么样 希望有浮游大衣<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 15997#       发表于 2020-4-11 17:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今天擦的是磨砂盘子？
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 15998#       发表于 2020-4-11 18:00
+
+
+
+
+之前她说自己404的收入变负数了是咋回事啊，难不成还要倒贴404钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15999#       发表于 2020-4-11 18:03
+
+
+
+
+是她给人上的会员，但是自己账上没钱的原因？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16000#       发表于 2020-4-11 18:05
+
+
+
+
+一会儿唱歌，心心念念的棉花糖呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 16001#       发表于 2020-4-11 18:13
+
+
+
+
+不吃晚饭？
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16002#       发表于 2020-4-11 18:17
+
+
+
+
+棉花糖好像说明天（明日复明日<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16003#       发表于 2020-4-11 18:20
+
+
+
+
+吃过了才开播的吧
+
+
+估计又是播完夜宵走起了
+
+
+坦度UP
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16004#       发表于 2020-4-11 19:06
+
+
+
+
+最近真是老年二刺螈特攻啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16005#       发表于 2020-4-11 19:09
+
+
+
+
+这次石头门op比上次好多了，然后被网线背刺了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16006#       发表于 2020-4-11 19:11
+
+
+
+
+石头门居然不是云的。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 16007#       发表于 2020-4-11 19:12
+
+
+
+
+不知道剧场版看了没，主题曲いつもこの場所で也很好听
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16008#       发表于 2020-4-11 19:31
+
+
+
+
+来劲
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16009#       发表于 2020-4-11 19:42
+
+
+
+
+1700了， 这就是golden time吗<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi120  
+##### 16010#       发表于 2020-4-11 19:46
+
+
+
+ 本帖最后由 yuandi120 于 2020-4-11 19:48 编辑 
+
+v综贴的mea加入anmr是什么鬼？
+
+[https://img.saraba1st.com/forum/202004/11/193627mms85qd5b1qb8q5q.jpg](https://img.saraba1st.com/forum/202004/11/193627mms85qd5b1qb8q5q.jpg)
+
+后续：原来是苔姨又整活了
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16011#       发表于 2020-4-11 19:47
+
+
+
+
+海苔男整的梗图
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16012#       发表于 2020-4-11 19:48
+
+
+
+
+p的图吧
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16013#       发表于 2020-4-11 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47048539&amp;ptid=1912063" target="_blank">A2014720 发表于 2020-4-11 19:06</a>
+最近真是老年二刺螈特攻啊</blockquote>
+所以舒适
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16014#       发表于 2020-4-11 19:59
+
+
+
+
+这首夏露露质量不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16015#       发表于 2020-4-11 20:09
+
+
+
+
+箱霸迟迟不肯交出接力棒，神乐组组内氛围水深火热<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 16016#       发表于 2020-4-11 20:14
+
+
+
+
+是不是该去咩姐直播间刷如月上了咩咩快下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16017#       发表于 2020-4-11 20:15
+
+
+
+ 本帖最后由 路人庚 于 2020-4-11 20:17 编辑 
+
+今天的直播应该结束了（歇会准备搞盒限力
+
+
+syl，下播就去如月那边了
+
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16018#       发表于 2020-4-11 20:17
+
+
+
+
+光速转生如月直播间草
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16019#       发表于 2020-4-11 20:21
+
+
+
+
+她才发现吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+【TwitterTweet 神楽めあ 推特发布】
+内容：うちの舎弟が収益化してるだってええええ！？！？？！？！？！？？！？！？！？？！！！！！！！！！！！？！？！？？！？！？！？！？！？！？！？！？！？！！？！？！？！？？！？！！？！？！？！？！？！？！？！？！？！？！！？！？？！？！？！？！？ https://t.co/4jQFkGSekr
+媒体：[]
+链接：['https://twitter.com/KisaragiKoyori/status/1248853732411858947']
+时间：2020-04-11 12:17:53 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1248948384473296896
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16020#       发表于 2020-4-11 20:22
+
+
+
+ 本帖最后由 路人庚 于 2020-4-11 20:24 编辑 
+
+宣传一下而已（刚刚直播不是说了，2天前收益化就回来了，比如月早
+
+
+syl，推特回复了小狐狸
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16021#       发表于 2020-4-11 20:25
+
+
+
+
+刚才没注意到她说了（
+
+syl
+【TwitterTweet 神楽めあ 推特回复】
+内容：@shirakamifubuki ふぶきちゃんおめでとおおおお！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+媒体：[]
+链接：[]
+时间：2020-04-11 12:19:18 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1248948740003487749
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16022#       发表于 2020-4-11 20:28
+
+
+
+
+是鱼板玉米赢了，鱼板玉米总是赢
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16023#       发表于 2020-4-11 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">定番问候，记得有空去看看娃（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16024#       发表于 2020-4-11 21:58
+
+
+
+
+tc突击
+
+
+
+
+
+               
