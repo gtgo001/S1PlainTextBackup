@@ -21,7 +21,7 @@
     "title": "[【B2】VUP综合讨论专楼virtuaReal8期生出道]",
     "lastedit": 1586613613,
     "category": "虚拟主播区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1806922",
@@ -37,7 +37,7 @@
     "title": "[【怪物猎人世界：冰原】综合讨论帖DLC发售日2019.09.06]",
     "lastedit": 1586584849,
     "category": "游戏区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1911963",
@@ -53,7 +53,7 @@
     "title": "[【专楼】魔法纪录动画专楼(最终话，第二季制作决定）]",
     "lastedit": 1586455260,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1868519",
@@ -889,9 +889,9 @@
   },
   {
     "id": "1914313",
-    "totalpage": 135,
+    "totalpage": 136,
     "title": "[vliver【湊-阿库娅（湊あくあ）】综合楼 再试行]",
-    "lastedit": 1586613854,
+    "lastedit": 1586628204,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -4661,7 +4661,7 @@
     "title": "[坦克世界国服更新！数据保留，南北区合并，直接最新版本]",
     "lastedit": 1584029106,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   {
     "id": "1728362",
@@ -5721,9 +5721,9 @@
   },
   {
     "id": "1920426",
-    "totalpage": 441,
+    "totalpage": 442,
     "title": "[【V7】虚拟YouTuber综合讨论楼織田信姫将于4月30日引退]",
-    "lastedit": 1586621151,
+    "lastedit": 1586628413,
     "category": "虚拟主播区专楼",
     "active": true
   },
