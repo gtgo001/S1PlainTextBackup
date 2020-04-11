@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 20:04** 
+> ## **本文件最后更新于2020-04-11 12:02** 
 
 
 
@@ -28359,4 +28359,562 @@ numbers说不定还有藏一会儿
 
 
 
-  
+
+
+-----
+
+####  qwxbtgb  
+##### 52414#       发表于 2020-4-10 20:25
+
+
+
+<blockquote>azbhg1 发表于 2020-4-10 19:49
+德雷克好像是台柱吧，还是咋翻译的词来着</blockquote>
+德雷克是六子之一，这话六子出场，有德雷克的脚
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52415#       发表于 2020-4-10 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47039908&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2020-4-10 20:25</a>
+
+德雷克是六子之一，这话六子出场，有德雷克的脚</blockquote>
+我记得他不是和霍金斯一个级别的吗，还是我记错了
+
+
+
+
+
+
+
+-----
+
+####  hie  
+##### 52416#       发表于 2020-4-10 20:44
+
+
+
+
+基德海贼团要变快乐海贼团了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52417#       发表于 2020-4-10 20:44
+
+
+
+
+开朗的海贼团还行，23333
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 52418#       发表于 2020-4-10 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040016&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-4-10 20:40</a>
+
+我记得他不是和霍金斯一个级别的吗，还是我记错了</blockquote>
+都是真打 然后真打中最强的六个被称为六飞胞
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52419#       发表于 2020-4-10 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038530&amp;ptid=98922" target="_blank">zuga 发表于 2020-4-10 17:52</a>
+按象岛的故事猫狗都是和jack打平手的强度，如果不考虑细分战力，赤霄九侠战斗力都在伯仲的话，那就是有九 ...</blockquote>
+不会的，九侠只有4个天灾级别。河松实力存疑，锦卫门，小菊，雷藏都失去了20年变强的时间，可能也就维尔戈的程度
+其余猫狗变月亮狮子搞不好比皇副还强一点，至少不会更差，其他修罗童子和传次郎就不好说了，但起码最弱的三灾的程度还是有的吧
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52420#       发表于 2020-4-10 21:11
+
+
+
+ 本帖最后由 8aa8aa8aa 于 2020-4-10 21:17 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52421#       发表于 2020-4-10 21:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040192&amp;ptid=98922" target="_blank">renkan119 发表于 2020-4-10 20:56</a>
+
+都是真打 然后真打中最强的六个被称为六飞胞</blockquote>
+原来是这样，之前应该没有提到过凌空六子这个称号吧
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52422#       发表于 2020-4-10 21:15
+
+
+
+ 本帖最后由 8aa8aa8aa 于 2020-4-10 21:17 编辑 
+
+前面有提到凌空六子，还感慨神棍居然混不上凌空六子的位置
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 52423#       发表于 2020-4-10 21:29
+
+
+
+
+这个飞六有啥好神神秘秘的，大概就是神棍和阿普之上，三灾之下呗，
+唯一有趣的有个武士，武士的话搞不好是卧底或者为了保护和之国才加盟的，本来武士应该尾田的美化对象，堪十郎好歹算和之国的家务事，其他武士再出个强力的二五仔就不大好了
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52424#       发表于 2020-4-10 21:55
+
+
+
+<blockquote>8aa8aa8aa 发表于 2020-4-10 21:15
+前面有提到凌空六子，还感慨神棍居然混不上凌空六子的位置</blockquote>
+神棍才加入没几个星期，而且六子说不定都是动物系的古代种
+
+
+
+
+
+
+
+-----
+
+####  X(iaolw)S  
+##### 52425#       发表于 2020-4-10 22:16
+
+
+
+
+山治再见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/10/221608c7ajqa9ijkf5qjkq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>351070cf3bc79f3dc6d0a056ada1cd11728b2954.jpg</strong> (455.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-10 22:16 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ceruleancard  
+##### 52426#       发表于 2020-4-10 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040382&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-4-10 21:12</a>
+
+原来是这样，之前应该没有提到过凌空六子这个称号吧</blockquote>
+提过啊，山治第一次变身就是打皮几万，凌空六子之一，感觉完全打不过山治
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52427#       发表于 2020-4-10 22:54
+
+
+
+
+凯多儿子到底是另有其人还是六飞胞之一？
+
+
+
+
+
+
+
+-----
+
+####  狗眼蛋蛋  
+##### 52428#       发表于 2020-4-10 23:03
+
+
+
+
+凯多儿子应该另有其人，不然不必要在飞六胞出场前加这一茬，另外本来以为numbers都是些类监狱兽的动物系果实能力者，但这一话看来起码还是有表达能力的
+
+
+
+
+
+
+
+-----
+
+####  uswhzh  
+##### 52429#       发表于 2020-4-11 00:10
+
+
+
+<blockquote>lrgb 发表于 2020-4-10 15:52
+也就是说在罗的计算里，光赤鞘的战力就起码可以拖住凯多加大妈？哪来的信心？ ...</blockquote>
+20年前御田带这伙人都差点杀了凯多，凯多靠着抓儿子勉强打赢，这次凯多也有儿子，我看这次占优。
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52430#       发表于 2020-4-11 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040366&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2020-04-10 21:11:43</a>
+不会的，九侠只有4个天灾级别。河松实力存疑，锦卫门，小菊，雷藏都失去了20年变强的时间，可能也就维尔 ...</blockquote>河松，酒天丸，传次郎可是被锦卫门重点提到过的高战力角色，是在猫狗之上的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52431#       发表于 2020-4-11 00:40
+
+
+
+ 本帖最后由 8aa8aa8aa 于 2020-4-11 00:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47041996&amp;ptid=98922" target="_blank">少年包工头 发表于 2020-4-11 00:13</a>
+河松，酒天丸，传次郎可是被锦卫门重点提到过的高战力角色，是在猫狗之上的
+
+  -- 来自 能搜索的 Stage1官 ...</blockquote>
+锦卫门的情报过时了
+20年过去啦，河松再强，毕竟在牢里蹲了那么多年了，而且能打得过甚平不
+猫狗有种族天赋加成，谨慎不看好酒天丸和传次郎比猫狗强。
+但无论他们的强弱，都是同一档次，差不了多少就是了。
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52432#       发表于 2020-4-11 00:51
+
+
+
+
+如果凯多团除了三灾以外最强战力就是凌空六子的话那真的太菜了，从佩吉万打山治那场就能看出凌空六子的战力根本没有什么水平，和大妈团那边一比就逊色多了，大妈团除了三将星，起码什么大福啊之类的战力都很够看
+
+不过不知道numbers和凌空六子哪个战力比较高，虽然现在看起来是凌空六子的地位高一点
+
+
+
+
+
+
+
+-----
+
+####  XSK小龙王  
+##### 52433#       发表于 2020-4-11 00:56
+
+
+
+ 本帖最后由 XSK小龙王 于 2020-4-11 00:59 编辑 
+<blockquote>引用第52430楼8aa8aa8aa于2020-04-11 00:40发表的  :
+
+本帖最后由 8aa8aa8aa 于 2020-4-11 00:43 编辑 引用:少年包工头 发表于 ......</blockquote>
+@8aa8aa8aa
+
+猫狗已经残疾了啊，实力大打折扣的，大概要有两个联手的戏码。
+
+
+----发送自 [vivo V1818A,Android 8.1.0](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 52434#       发表于 2020-4-11 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038123&amp;ptid=98922" target="_blank">Kyo.C 发表于 2020-4-10 17:11</a>
+
+新一话厨子吹们要哭了，攻陷小要塞的前三个战斗特写是路飞甚平和索隆，厨子甚至在下一页，在布鲁克和罗宾之 ...</blockquote>
+只是排版需要罢了
+
+
+单论战斗力，罗宾绝不可能高于弗兰奇和厨子
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 52435#       发表于 2020-4-11 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040556&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-4-10 21:29</a>
+
+这个飞六有啥好神神秘秘的，大概就是神棍和阿普之上，三灾之下呗，
+
+唯一有趣的有个武士，武士的话搞不好是 ...</blockquote>
+不知6子以前介绍过没
+
+没介绍过的话，这么神神秘秘说明这6人里有“认识的”
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 52436#       发表于 2020-4-11 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47041996&amp;ptid=98922" target="_blank">少年包工头 发表于 2020-4-11 00:13</a>
+河松，酒天丸，传次郎可是被锦卫门重点提到过的高战力角色，是在猫狗之上的
+
+  -- 来自 能搜索的 Stage1官 ...</blockquote>
+重点提到那是因为他们有别于和之国其他武士吧，阿修罗和老狗已经打过一场了，基本上是平分秋色
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 52437#       发表于 2020-4-11 09:07
+
+
+
+
+凯多这边最惨的是真打起来恐怕有几个要反水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  生物学圣剑  
+##### 52438#       发表于 2020-4-11 09:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47043417&amp;ptid=98922" target="_blank">六次方 发表于 2020-04-11 09:07:54</a>
+凯多这边最惨的是真打起来恐怕有几个要反水</blockquote>德雷克和霍金斯就差脸上写二五仔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  七十七  
+##### 52439#       发表于 2020-4-11 10:54
+
+
+
+
+还有阿普，也是会叛变的那一种
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 52440#       发表于 2020-4-11 11:13
+
+
+
+
+说实话，要说尾田没有任何刻意压制山治表现的动机，我是不信的
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52441#       发表于 2020-4-11 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47039191&amp;ptid=98922" target="_blank">icewolf01 发表于 2020-4-10 19:08</a>
+
+喷了，前面站友还在猜凯多和玲玲的孩子，结果是凌空六子</blockquote>
+翻译问题，已经改了，飞六胞/凌空六子和凯多的孩子是两拨人。
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52442#       发表于 2020-4-11 11:57
+
+
+
+
+儿子不会是这位吧
+
+<img src="https://img.saraba1st.com/forum/202004/11/115630p1s50zx6t66zo4gf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f015bafb43166d22af2bb5f2512309f79152d263.jpg</strong> (21.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-11 11:56 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/11/115702ivffd2ifxwpnqn76.jpg" referrerpolicy="no-referrer">
+
+
+<strong>75f80124ab18972b5c65a0acf1cd7b899f510a63.jpg</strong> (33.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-11 11:57 上传
+
+
+
+
+
+
+
+
+
+
+ 
