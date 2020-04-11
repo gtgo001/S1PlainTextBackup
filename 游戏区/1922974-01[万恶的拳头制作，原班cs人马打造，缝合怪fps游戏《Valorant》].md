@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 20:13** 
+> ## **本文件最后更新于2020-04-11 14:11** 
 
 
 
@@ -13,7 +13,7 @@
 
 <input name="formhash" type="hidden" value="af03c43f"/)
 
-<strong>单选投票</strong> , 投票后结果可见, 共有 544 人参与投票
+<strong>单选投票</strong> , 投票后结果可见, 共有 580 人参与投票
 
 
 
@@ -22,7 +22,7 @@
 
 <strong>
 
-7 天12 小时22 分钟
+6 天18 小时24 分钟
 
 </strong>
 
@@ -3488,4 +3488,490 @@ g2冠军皮肤<img src="https://p.sda1.dev/0/b82ca0c23f5812db045d9d76c9aead40/IM
 
 
 
-                                           
+
+
+-----
+
+####  frankCC  
+##### 187#       发表于 2020-4-10 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038889&amp;ptid=1922974" target="_blank">艾登皮尔斯 发表于 2020-4-10 18:34</a>
+
+Fps市场大但是竞争对手也多啊和moba不一样
+
+，动视ea2k育碧有名的欧美大厂都有有名的fps类型ip，指望新ip ...</blockquote>
+冷知识：R6S比OW早发售6个月，到达2000W玩家晚了10个月，但是到达5000万玩家却早了5个月。
+
+R6S远比印象中成功。
+
+
+
+
+
+
+
+-----
+
+####  八汰乌  
+##### 188#       发表于 2020-4-10 21:44
+
+
+
+
+这会是一款"什么都不好,就是好玩"的游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  S=K㏑W  
+##### 189#       发表于 2020-4-10 22:01
+
+
+
+
+这游戏人物卡通，**和环境写实，各种技能效果又是卡通的，不觉得别扭么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 190#       发表于 2020-4-10 23:12
+
+
+
+ 本帖最后由 Ik4ruga 于 2020-4-10 23:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47039551&amp;ptid=1922974" target="_blank">-SLSL- 发表于 2020-4-10 19:45</a>
+
+你这个说法似乎能解释开局三路对线的设计，这么大地图要都从家走光搜点就要弄半天
+
+不好解释的是这 ...</blockquote>
+有第一点位的说法，不至于从家出门开始搜点
+
+csgo的地图都是日字变形，防守阵型也是212，311这样
+
+这个游戏是田字变形，去任意包点的时间其实并不多，就有三路进攻，三路回防
+
+分散防守压力大导致进攻优势大，防守方守中路方便三路回防就很重要
+
+所以设计空气墙有三点目的
+
+消除新手进攻跑图浪费时间，加快游戏节奏
+
+消除出生随机身位差带来的不稳定和战术选择影响（相对csgo
+
+回防路线有时可以选择两个base的方向，增加守包难度（就是容易破点也容易回防。也许frag没有csgo那么重要？
+
+
+
+
+
+
+
+
+-----
+
+####  继承权  
+##### 191#       发表于 2020-4-10 23:38
+
+
+
+ 本帖最后由 继承权 于 2020-4-11 01:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47039760&amp;ptid=1922974" target="_blank">里少 发表于 2020-4-10 20:08</a>
+
+我玩了十多年fps了，ow现在银框，ow之前没玩过moba，csgo玩了一年多单排老鹰，r6 102级不记地图纯靠对** ...</blockquote>
+玩奶坦好上分是另外一回事。
+
+如果当初开排位就是强制222的话你只玩**位也不难上钻石，当时的排位机制决定了只玩**位的话要比T奶C都玩的人强度高一个段位才能上分。
+
+我说的当FPS玩是指对空间地形站位**线的理解和反应，缺了这个怎么玩奶坦也上不了钻石。FPS才是基础，哪怕玩大锤也是需要FPS思路才能玩好，举盾不是为了站着抗伤害，而是前压给己方输出提供安全视野，逼迫对方走位。
+
+低分段303根本称不上goats，阵容也是乱七八糟甚至有带天使路霸的，只是当队伍选出303时就有了沟通和配合，就能打出优势，如果对面的常规阵容也有沟通配合很容易把这种303打崩。
+
+去年第三阶段303其实已经没有绝对优势了，只有部分地形适合 [https://www.bilibili.com/video/BV1Kx411o7b5](https://www.bilibili.com/video/BV1Kx411o7b5)，强制222更像是对天梯环境的改革，奶坦玩家的竞技体验好了很多，输出玩家玩起来也是更舒服了，但匹配时间过长太毁体验。
+
+
+
+
+
+
+
+
+-----
+
+####  acg_gyanc  
+##### 192#       发表于 2020-4-11 00:34
+
+
+
+
+总觉得这游戏故意把渲染调得像是lol一样……不太理解这种思路，就算是为了吸引lol用户，也太奇怪了吧……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  矢吹可奈  
+##### 193#       发表于 2020-4-11 02:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47041721&amp;ptid=1922974" target="_blank">继承权 发表于 2020-4-10 23:38</a>
+
+玩奶坦好上分是另外一回事。
+
+如果当初开排位就是强制222的话你只玩**位也不难上钻石，当时的排位机制决定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按你说的大锤举盾不是为了站着抗伤害，而是前压给己方输出提供安全视野，逼迫对方走位，这就是MOBA才存在的概念啊。。。哪怕是R6大盾也干不了这样的事
+
+
+
+
+
+
+
+-----
+
+####  矢吹可奈  
+##### 194#       发表于 2020-4-11 02:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47040716&amp;ptid=1922974" target="_blank">八汰乌 发表于 2020-4-10 21:44</a>
+
+这会是一款"什么都不好,就是好玩"的游戏吗</blockquote>
+没号看主播玩云了几把，游戏设计上是没问题的，所以好玩没问题
+
+
+
+
+
+
+
+-----
+
+####  FUZE  
+##### 195#       发表于 2020-4-11 02:54
+
+
+
+
+我觉得好玩不好玩其实都无所谓
+
+如果真的能像他说的那样BAN大部分外挂，这都算FPS的里程碑了
+
+可千万别吹破了
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 196#       发表于 2020-4-11 03:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042136&amp;ptid=1922974" target="_blank">acg_gyanc 发表于 2020-4-11 00:34</a>
+总觉得这游戏故意把渲染调得像是lol一样……不太理解这种思路，就算是为了吸引lol用户，也太奇怪了吧……[f ...</blockquote>
+等一波背景联动？毕竟都叫瓦罗兰了，没道理不和lol宇宙串联
+
+
+
+
+
+
+
+-----
+
+####  hallowilliam  
+##### 197#       发表于 2020-4-11 03:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47034345&amp;ptid=1922974" target="_blank">艾登皮尔斯 发表于 2020-4-10 11:23</a>
+
+R6用户数已经很多了，真能成r6拳头就已经算很成功了，而且说真的外挂只是影响游戏后续运营，这游戏能不能 ...</blockquote>
+R6玩家基数可不能和lol比啊，所以R6级别的“玩家数”我觉得还是很容易的。。。
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 198#       发表于 2020-4-11 03:48
+
+
+
+
+我最近云了两天 自己稍微玩了两把 raze这个新加的角色绝对是不符合这个游戏设计逻辑的
+
+其他角色最多就是多打信息 或者投掷物之类的 这个角色大招火箭筒火力太足了 严重破坏游戏平衡了 删了应该也不过分
+
+
+
+
+
+
+
+-----
+
+####  继承权  
+##### 199#       发表于 2020-4-11 04:04
+
+
+
+ 本帖最后由 继承权 于 2020-4-11 04:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042669&amp;ptid=1922974" target="_blank">矢吹可奈 发表于 2020-4-11 02:31</a>
+
+按你说的大锤举盾不是为了站着抗伤害，而是前压给己方输出提供安全视野，逼迫对方走位，这就是MOB ...</blockquote>
+视野即**线。R6的盾是不够大不能给队友提供视野，但作用是一致的。
+
+
+
+
+
+
+
+-----
+
+####  trumen  
+##### 200#       发表于 2020-4-11 08:53
+
+
+
+
+fps永远是真实性更重要，我认为这游戏取代不了cs
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  朔方原的星  
+##### 201#       发表于 2020-4-11 09:23
+
+
+
+
+老缝合怪了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱火不火，反正这屎我不恰
+
+
+
+
+
+
+
+-----
+
+####  Donglinjie  
+##### 202#       发表于 2020-4-11 10:32
+
+
+
+
+这几天看下来有望成为fps界的lol(指风评)，提到名字全在骂，哪都不好就是好玩<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  发霉长毛等救济  
+##### 203#       发表于 2020-4-11 10:35
+
+
+
+
+好了，现在已经封了第一个挂比了，看到后面是谁赢吧
+
+
+
+
+
+
+
+-----
+
+####  Faith  
+##### 204#       发表于 2020-4-11 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042136&amp;ptid=1922974" target="_blank">acg_gyanc 发表于 2020-4-11 00:34</a>
+总觉得这游戏故意把渲染调得像是lol一样……不太理解这种思路，就算是为了吸引lol用户，也太奇怪了吧……[f ...</blockquote>
+lol的动作细节和表现力能把这玩意爆出屎来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  杨雪崩  
+##### 205#       发表于 2020-4-11 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是吹从底层开始就设计防科学家么
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 206#       发表于 2020-4-11 11:31
+
+
+
+
+看了一下。。太像cs了，我估计玩不来。怀念最好的ow
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 207#       发表于 2020-4-11 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47044115&amp;ptid=1922974" target="_blank">Faith 发表于 2020-4-11 10:41</a>
+
+lol的动作细节和表现力能把这玩意爆出屎来</blockquote>
+lol搞了10年了
+
+应该跟lol s1赛季比
+
+
+
+
+
+
+
+-----
+
+####  Ik4ruga  
+##### 208#       发表于 2020-4-11 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47044376&amp;ptid=1922974" target="_blank">杨雪崩 发表于 2020-4-11 11:10</a>
+
+不是吹从底层开始就设计防科学家么
+
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 S1Next-鹅版 v2.1. ...</blockquote>
+要我说不如从底层开始设计暗桩
+
+想直接防科学家
+
+火的靠法院, 凉的靠人少
+
+
+
+
+
+
+
+-----
+
+####  矢吹可奈  
+##### 209#       发表于 2020-4-11 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47042835&amp;ptid=1922974" target="_blank">继承权 发表于 2020-4-11 04:04</a>
+视野即**线。R6的盾是不够大不能给队友提供视野，但作用是一致的。</blockquote>
+既然你都知道大盾不能给队友提供视野，大盾不在特定的地形甚至不能给队友提供有效的保护，只能充当一个人肉报点机，在防守重点防守的区域大盾也只能站在门口干瞪眼，跟在大盾身后的队友就是防守的活靶子，那还和大锤同样作用？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  xxyyhhjj  
+##### 210#       发表于 2020-4-11 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47044667&amp;ptid=1922974" target="_blank">Ik4ruga 发表于 2020-4-11 11:37</a>
+lol搞了10年了
+
+应该跟lol s1赛季比</blockquote>
+但是现在是2020年
+
+—— 来自 blackshark SKR-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  继承权  
+##### 211#       发表于 2020-4-11 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47044872&amp;ptid=1922974" target="_blank">矢吹可奈 发表于 2020-4-11 11:55</a>
+
+既然你都知道大盾不能给队友提供视野，大盾不在特定的地形甚至不能给队友提供有效的保护，只能充当一个人 ...</blockquote>
+大盾可以给自己提供视野在一定程度上压制对方啊
+
+
+
+
+
+                                          
