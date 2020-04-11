@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-10 20:06** 
+> ## **本文件最后更新于2020-04-11 20:03** 
 
 
 
@@ -25058,4 +25058,532 @@ md,这里快变成男同性 交友贴了<img src="https://static.saraba1st.com/i
 
 
 
-     
+
+
+-----
+
+####  坚果收藏家  
+##### 2826#       发表于 2020-4-10 20:47
+
+
+
+
+真正的暗黑贴贴人，听到她们结婚的消息，心中只会隐隐作痛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2827#       发表于 2020-4-11 00:57
+
+
+
+
+这，这是多么值得敬佩的暗黑精神<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+看了感觉真可怜.JPG<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2828#       发表于 2020-4-11 01:08
+
+
+
+
+别问，问就是那群贴贴民真的害人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 2829#       发表于 2020-4-11 01:34
+
+
+
+
+贴贴人害人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2830#       发表于 2020-4-11 03:36
+
+
+
+
+暗黑皆切人是什么鬼
+听起来带点病娇的
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2831#       发表于 2020-4-11 09:00
+
+
+
+
+暗黑皆切人是SMJB，狗狗不是摸鱼摸得开心最近才播了一下来着，不太了解反正看她那样子自己玩LOL还挺开心的
+
+还有，现在难道不是浮亏时代？盐水也行啊XD
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2832#       发表于 2020-4-11 09:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47043382&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-11 09:00</a>
+暗黑皆切人是SMJB，狗狗不是摸鱼摸得开心最近才播了一下来着，不太了解反正看她那样子自己玩LOL还挺开心的
+
+ ...</blockquote>
+现在是天使与龙轮舞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">龙夸贴贴。
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2833#       发表于 2020-4-11 09:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47043603&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-11 09:36</a>
+
+现在是天使与龙轮舞了龙夸贴贴。</blockquote>
+不清楚那么多 反正不是六字母就行
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2834#       发表于 2020-4-11 10:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暗黑皆切人是什么鬼，我真没见过，能让我见识下吗。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2835#       发表于 2020-4-11 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卍组apex卫星上天，是不是可以看到暗黑皆切人了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2836#       发表于 2020-4-11 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47043382&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-11 09:00</a>
+
+暗黑皆切人是SMJB，狗狗不是摸鱼摸得开心最近才播了一下来着，不太了解反正看她那样子自己玩LOL还挺开心的
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">福夸一边说交流少，一边说不回消息，一点都不坚挺
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 2837#       发表于 2020-4-11 13:10
+
+
+
+
+浮夸最后一次单独联动是12月了吧
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2838#       发表于 2020-4-11 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重演去年复活回的尴尬？狗狗咱不受这个气，安心打lol他不香吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2839#       发表于 2020-4-11 14:23
+
+
+
+
+狗狗自己找上门想联动的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2840#       发表于 2020-4-11 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还行，那这波是梁木砍伐还是种植就很楽しみ
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2841#       发表于 2020-4-11 14:31
+
+
+
+
+和狗狗玩了就玩了呗，皆切能复活真是再好不过了，这样微博那位300斤重姐姐再阳NT也能重回初心了呢呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2842#       发表于 2020-4-11 15:31
+
+
+
+ 本帖最后由 noaki 于 2020-4-11 15:38 编辑 
+
+能不能不要提那个人，这玩意儿可比那群粉头恶心多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+啊不过想起来之前一个66号线把人感动得发长文回坑了，最近还看她参加洋葱杯了，和一群发糖的文佬画佬们交谈甚欢....是一个能让人感动到哭出来的完美结局呢～
+可喜可贺可喜可贺
+
+
+........
+........如果当初那几段奇妙深刻的发言我没有看到过的话或许就更完美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2843#       发表于 2020-4-11 15:42
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-11 15:43 编辑 
+
+这么神奇的吗，，，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+伟大！ 起死人肉白骨！ 
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2844#       发表于 2020-4-11 15:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们为什么这么懂啊，我要发动A岛民抓BOG的本领了
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2845#       发表于 2020-4-11 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47046922&amp;ptid=1914314" target="_blank">noaki 发表于 2020-4-11 15:31</a>
+
+能不能不要提那个人，这玩意儿可比那群粉头恶心多了
+
+
+啊不过想起来之前一个66号线把人感动得发长文 ...</blockquote>
+看看贴贴民黑化不彻底的下场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当初这人看起来好像伤得多深跟失恋一样，结果感动一下就重回meaqua的怀抱了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+真是meaqua虐我千百遍我待meaqua如初恋呐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+坐等两女主播在这群人心里再割一刀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2846#       发表于 2020-4-11 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">黑暗与光明之间自由转换才是贴贴人的最高境界。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2847#       发表于 2020-4-11 16:25
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-11 16:19
+看看贴贴民黑化不彻底的下场
+
+
+当初这人看起来好像伤得多深跟失恋一样，结果感动一下就重回meaqua ...</blockquote>
+贴贴任真是没药救
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2848#       发表于 2020-4-11 16:30
+
+
+
+
+皆切人给👴🏻死好吗？是不是狗狗自己找的她暂且不说，卫星不落地或者落地时间不对她大天使照样8行<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2849#       发表于 2020-4-11 18:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗦来皆切人之前还真见过那么几个，口径异常一致地把皆切没了的锅丢到咩桑头上，流石温暖大家庭（
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2850#       发表于 2020-4-11 18:44
+
+
+
+
+？？？去年不是你们六字母人一提到皆切就硬踩狗狗一脚？现在搁这儿篡改事实颠倒黑白<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2851#       发表于 2020-4-11 18:44
+
+
+
+
+昨天的早餐都要被你们恶心出来了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2852#       发表于 2020-4-11 19:04
+
+
+
+
+那是贴贴人里crew浓度高的一派
+
+
+天狗从来都是meayame党<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2853#       发表于 2020-4-11 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉着狗狗尬其应该偏486多点吧，现在还健在的皆切党到底是啥成分我暂且蒙古
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2854#       发表于 2020-4-11 19:35
+
+
+
+
+我寻思皆切这多久的化石级车轱辘了还能搞话题，贴贴楼的纯度实在是降低了
+说明脱离了物质基础的二次创作，即便是蜕变成暗黑贴贴人也难以挽回，楼里一直看的乐子也变成了复读，遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2855#       发表于 2020-4-11 19:42
+
+
+
+
+遗憾啥，这cp越凉越是好事
+
+
+
+
+
+    
