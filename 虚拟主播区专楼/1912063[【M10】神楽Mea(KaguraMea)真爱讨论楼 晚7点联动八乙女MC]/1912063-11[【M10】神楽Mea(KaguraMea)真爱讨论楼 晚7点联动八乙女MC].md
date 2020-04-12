@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-12 16:01** 
+> ## **本文件最后更新于2020-04-12 20:01** 
 
 
 
@@ -18866,4 +18866,623 @@ real shit.jpg
 
 
 
-              
+
+
+-----
+
+####  Dualist彩  
+##### 16052#       发表于 2020-4-12 18:39
+
+
+
+
+今天小僵尸初次歌回，有人可以调个合唱么？
+
+
+“多谢xx哥”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16053#       发表于 2020-4-12 18:58
+
+
+
+
+待机间开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16054#       发表于 2020-4-12 19:04
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16055#       发表于 2020-4-12 19:06
+
+
+
+
+我这还是头一回看noe，感觉她声音就没有mea如月这么有特色了啊，比较普通的感觉
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16056#       发表于 2020-4-12 19:07
+
+
+
+
+《从神乐组内部联动氛围看神乐组权利变更》
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 16057#       发表于 2020-4-12 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">声音有点姨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16058#       发表于 2020-4-12 19:15
+
+
+
+
+真实尬聊草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+mea:嗨
+noe:嗨
+mea:嗨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16059#       发表于 2020-4-12 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47057544&amp;ptid=1912063" target="_blank">记莫更寂寞 发表于 2020-4-12 19:14</a>
+声音有点姨</blockquote>
+noe的声音听起来真的有丶怪
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16060#       发表于 2020-4-12 19:18
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-12 19:21 编辑 
+
+感觉神乐组的中心其实是如月，连接mea与noe的枢纽<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl，你咩姐这一手不熟是真的还是营业<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16061#       发表于 2020-4-12 19:19
+
+
+
+
+这电波对不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16062#       发表于 2020-4-12 19:20
+
+
+
+
+所以该建设环如月圈了吗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16063#       发表于 2020-4-12 19:23
+
+
+
+
+我 有 一 座 恐 怖 屋
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16064#       发表于 2020-4-12 19:25
+
+
+
+
+一定是和入社团第一天的后辈找话题的rp
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16065#       发表于 2020-4-12 19:28
+
+
+
+ 本帖最后由 A2014720 于 2020-4-12 19:31 编辑 
+
+尬
+生
+太难受了，我得了癌先走了
+
+
+
+
+
+
+
+-----
+
+####  赫罗酱的胖次  
+##### 16066#       发表于 2020-4-12 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">太尴尬了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16067#       发表于 2020-4-12 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea和惩役太郎那会都没这样吧
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16068#       发表于 2020-4-12 19:38
+
+
+
+
+总有种她在演的感觉。毕竟以前第一次和别人首次联动说话也不像这样结结巴巴的，更何况是自家新人。
+
+但是这样的演又有什么意义。
+
+还是看不懂咩姐<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16069#       发表于 2020-4-12 19:41
+
+
+
+
+就硬引流<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16070#       发表于 2020-4-12 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是被逼着联动的，这样的解释行得通吗
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16071#       发表于 2020-4-12 19:42
+
+
+
+
+这大概就是赠品8
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16072#       发表于 2020-4-12 19:42
+
+
+
+
+你麻和小绿小紫离关系好差一次线下会啊，遥想当年anmr<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小麻被两个大姐姐左右夹攻的场景也不错嘛<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16073#       发表于 2020-4-12 19:44
+
+
+
+
+是如月，是如月让咩宝这么做的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16074#       发表于 2020-4-12 19:44
+
+
+
+
+呜呜呜要鸠占鹊巢了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16075#       发表于 2020-4-12 19:47
+
+
+
+
+现在我唯一能想到解释是：
+
+你咩姐通过限制自己的表现，想更多让noe表现自己，毕竟是给noe引流，自己不能太过招摇，否则就本末倒置，喧“宾”夺“主”了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16076#       发表于 2020-4-12 19:47
+
+
+
+
+看了两眼，是相敬如宾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16077#       发表于 2020-4-12 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47057768&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-12 19:36</a>
+
+mea和惩役太郎那会都没这样吧</blockquote>
+暗示这俩人之间代沟比和惩役太郎都深，noe姨度upup<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16078#       发表于 2020-4-12 19:49
+
+
+
+
+这个笑声尬的我<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16079#       发表于 2020-4-12 19:49
+
+
+
+
+这个天气怎么样突然一转漫画的话题，我觉得你咩有八成是故意的了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16080#       发表于 2020-4-12 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要演，演这么尬有什么意义吗，meapro不仲说？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16081#       发表于 2020-4-12 19:54
+
+
+
+
+就是真不熟吧。。。和如月的联动可以明显看出不同
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16082#       发表于 2020-4-12 19:56
+
+
+
+
+简称我朋友的朋友不是我的朋友？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16083#       发表于 2020-4-12 19:56
+
+
+
+
+倒是noe一听到如月就来劲
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16084#       发表于 2020-4-12 19:57
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-12 19:59 编辑 
+
+实质神乐组组长是谁不用多说了8
+
+如月，你好强大！
+
+草，刚说完就被这俩刺杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16085#       发表于 2020-4-12 19:59
+
+
+
+
+然后组长就给砍死了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16086#       发表于 2020-4-12 19:59
+
+
+
+
+还是去当灯泡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16087#       发表于 2020-4-12 20:01
+
+
+
+
+这个服甚至已经搞起村民养殖了啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16088#       发表于 2020-4-12 20:01
+
+
+
+
+这波，这波是宣布主权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+             
