@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-11 22:02** 
+> ## **本文件最后更新于2020-04-13 00:01** 
 
 
 
@@ -18410,4 +18410,1531 @@ tc突击
 
 
 
-               
+
+
+-----
+
+####  A2014720  
+##### 16025#       发表于 2020-4-11 22:08
+
+
+
+
+她困了 她困了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16026#       发表于 2020-4-11 22:15
+
+
+
+
+看这人困成这样总觉得有点爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 16027#       发表于 2020-4-11 22:19
+
+
+
+
+太闹腾了
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16028#       发表于 2020-4-11 22:24
+
+
+
+
+不行，太软太闹腾，想给两拳<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16029#       发表于 2020-4-11 22:41
+
+
+
+
+手动播了一下，结果还是没开打钱音效（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16030#       发表于 2020-4-11 22:42
+
+
+
+
+bsyl，然后还是开了草
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16031#       发表于 2020-4-11 22:47
+
+
+
+
+今晚太麻味了，我撑不住了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16032#       发表于 2020-4-11 22:48
+
+
+
+
+绝了，有趣的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16033#       发表于 2020-4-11 22:51
+
+
+
+
+打钱续费，每打一次钱，mea的清醒时间就续费5秒钟（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16034#       发表于 2020-4-11 23:00
+
+
+
+ 本帖最后由 路人庚 于 2020-4-11 23:02 编辑 
+
+直播盒限来力（只是听个响
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16035#       发表于 2020-4-11 23:04
+
+
+
+
+感觉可以配上那个尼哥meme了
+
+I sleep.jpg
+
+real shit.jpg
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16036#       发表于 2020-4-11 23:08
+
+
+
+
+直播盒限我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16037#       发表于 2020-4-11 23:11
+
+
+
+
+我能幻灭一下吗？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16038#       发表于 2020-4-11 23:17
+
+
+
+
+不放画面的绘森，是不是也就你麻独一份了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16039#       发表于 2020-4-11 23:42
+
+
+
+
+不放画面的动森 不放画面的绘森
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16040#       发表于 2020-4-11 23:43
+
+
+
+
+画面，有用吗，只听声音我就好了
+咩宝可爱，太可爱了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16041#       发表于 2020-4-11 23:45
+
+
+
+
+盒限之前说了是因为担心关了直播不说话会太困，所以开着直播一边说话一边盒限
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16042#       发表于 2020-4-11 23:46
+
+
+
+ 本帖最后由 路人庚 于 2020-4-11 23:51 编辑 
+
+地震了还行，4级左右
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16043#       发表于 2020-4-12 00:00
+
+
+
+
+打呵欠的时候居然闻到了幻臭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16044#       发表于 2020-4-12 00:02
+
+
+
+
+你该刷牙了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16045#       发表于 2020-4-12 00:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">天天刷牙
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16046#       发表于 2020-4-12 00:09
+
+
+
+
+竟然是青椒肉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16047#       发表于 2020-4-12 00:14
+
+
+
+
+歇了（kana？
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16048#       发表于 2020-4-12 00:18
+
+
+
+
+复活回没赶上，歌回在外面吃饭，TC时在打WZ，好不容易打开TC在喊再见了
+
+
+不过听到那恢复元气的声音我觉得就足够了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16049#       发表于 2020-4-12 13:55
+
+
+
+
+晚7点八乙女mc。。本月第一个**游戏直播？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16050#       发表于 2020-4-12 13:58
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：本日20：00から！
+
+うちの新人、八乙女のえちゃんと今後のことについて話したいと思います。
+のえちゃん....。君と出会ったことは忘れないよ。また逢う日まで。
+
+配信URLはバグ防止のために配信するときに発行します！YOUTUBEの通地を入れるかツイッター見て待っててください！ https://t.co/jaNUZrqbc6
+媒体：['https://twitter.com/KaguraMea_VoV/status/1249213800424919042/photo/1']
+链接：[]
+时间：2020-04-12 05:52:33 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1249213800424919042
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16051#       发表于 2020-4-12 14:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想吃好吃的外卖，然而没钱
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16052#       发表于 2020-4-12 18:39
+
+
+
+
+今天小僵尸初次歌回，有人可以调个合唱么？
+
+
+“多谢xx哥”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16053#       发表于 2020-4-12 18:58
+
+
+
+
+待机间开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16054#       发表于 2020-4-12 19:04
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16055#       发表于 2020-4-12 19:06
+
+
+
+
+我这还是头一回看noe，感觉她声音就没有mea如月这么有特色了啊，比较普通的感觉
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16056#       发表于 2020-4-12 19:07
+
+
+
+
+《从神乐组内部联动氛围看神乐组权利变更》
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 16057#       发表于 2020-4-12 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">声音有点姨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16058#       发表于 2020-4-12 19:15
+
+
+
+
+真实尬聊草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+mea:嗨
+noe:嗨
+mea:嗨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16059#       发表于 2020-4-12 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47057544&amp;ptid=1912063" target="_blank">记莫更寂寞 发表于 2020-4-12 19:14</a>
+声音有点姨</blockquote>
+noe的声音听起来真的有丶怪
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16060#       发表于 2020-4-12 19:18
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-12 19:21 编辑 
+
+感觉神乐组的中心其实是如月，连接mea与noe的枢纽<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl，你咩姐这一手不熟是真的还是营业<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16061#       发表于 2020-4-12 19:19
+
+
+
+
+这电波对不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16062#       发表于 2020-4-12 19:20
+
+
+
+
+所以该建设环如月圈了吗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16063#       发表于 2020-4-12 19:23
+
+
+
+
+我 有 一 座 恐 怖 屋
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16064#       发表于 2020-4-12 19:25
+
+
+
+
+一定是和入社团第一天的后辈找话题的rp
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16065#       发表于 2020-4-12 19:28
+
+
+
+ 本帖最后由 A2014720 于 2020-4-12 19:31 编辑 
+
+尬
+生
+太难受了，我得了癌先走了
+
+
+
+
+
+
+
+-----
+
+####  赫罗酱的胖次  
+##### 16066#       发表于 2020-4-12 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">太尴尬了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16067#       发表于 2020-4-12 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea和惩役太郎那会都没这样吧
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16068#       发表于 2020-4-12 19:38
+
+
+
+
+总有种她在演的感觉。毕竟以前第一次和别人首次联动说话也不像这样结结巴巴的，更何况是自家新人。
+
+但是这样的演又有什么意义。
+
+还是看不懂咩姐<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16069#       发表于 2020-4-12 19:41
+
+
+
+
+就硬引流<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16070#       发表于 2020-4-12 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是被逼着联动的，这样的解释行得通吗
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16071#       发表于 2020-4-12 19:42
+
+
+
+
+这大概就是赠品8
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16072#       发表于 2020-4-12 19:42
+
+
+
+
+你麻和小绿小紫离关系好差一次线下会啊，遥想当年anmr<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小麻被两个大姐姐左右夹攻的场景也不错嘛<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16073#       发表于 2020-4-12 19:44
+
+
+
+
+是如月，是如月让咩宝这么做的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16074#       发表于 2020-4-12 19:44
+
+
+
+
+呜呜呜要鸠占鹊巢了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16075#       发表于 2020-4-12 19:47
+
+
+
+
+现在我唯一能想到解释是：
+
+你咩姐通过限制自己的表现，想更多让noe表现自己，毕竟是给noe引流，自己不能太过招摇，否则就本末倒置，喧“宾”夺“主”了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16076#       发表于 2020-4-12 19:47
+
+
+
+
+看了两眼，是相敬如宾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16077#       发表于 2020-4-12 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47057768&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-12 19:36</a>
+
+mea和惩役太郎那会都没这样吧</blockquote>
+暗示这俩人之间代沟比和惩役太郎都深，noe姨度upup<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16078#       发表于 2020-4-12 19:49
+
+
+
+
+这个笑声尬的我<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16079#       发表于 2020-4-12 19:49
+
+
+
+
+这个天气怎么样突然一转漫画的话题，我觉得你咩有八成是故意的了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16080#       发表于 2020-4-12 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要演，演这么尬有什么意义吗，meapro不仲说？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16081#       发表于 2020-4-12 19:54
+
+
+
+
+就是真不熟吧。。。和如月的联动可以明显看出不同
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16082#       发表于 2020-4-12 19:56
+
+
+
+
+简称我朋友的朋友不是我的朋友？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16083#       发表于 2020-4-12 19:56
+
+
+
+
+倒是noe一听到如月就来劲
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16084#       发表于 2020-4-12 19:57
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-12 19:59 编辑 
+
+实质神乐组组长是谁不用多说了8
+
+如月，你好强大！
+
+草，刚说完就被这俩刺杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16085#       发表于 2020-4-12 19:59
+
+
+
+
+然后组长就给砍死了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16086#       发表于 2020-4-12 19:59
+
+
+
+
+还是去当灯泡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16087#       发表于 2020-4-12 20:01
+
+
+
+
+这个服甚至已经搞起村民养殖了啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16088#       发表于 2020-4-12 20:01
+
+
+
+
+这波，这波是宣布主权<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16089#       发表于 2020-4-12 20:03
+
+
+
+
+如月毒唯激怒<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16090#       发表于 2020-4-12 20:03
+
+
+
+
+这个服不是以前贴贴联动的服吗？感觉又恰独食了？
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16091#       发表于 2020-4-12 20:05
+
+
+
+
+不会真有如月单推吧（名言背诵）
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16092#       发表于 2020-4-12 20:06
+
+
+
+
+呜呜呜mea这么好我还推什么如月(附议)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16093#       发表于 2020-4-12 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">咩在中间就是个带摄影功能的大灯泡。。。
+
+
+当你活成了当年苔姨的样子.jpg
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16094#       发表于 2020-4-12 20:08
+
+
+
+
+这是新服，建筑八乙女搞的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16095#       发表于 2020-4-12 20:11
+
+
+
+ 本帖最后由 离心 于 2020-4-12 20:12 编辑 
+
+等录播再看一下，前面有没看到，只看了最后一小段，到时候重新看一下。syl:物资还蛮丰富的，新服可能性不大
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16096#       发表于 2020-4-12 20:14
+
+
+
+
+其实简单和惩役太郎那次对标就可以了，你麻和惩役太郎唯一接点就是黄兔子，所以只能靠聊黄兔子来推进话题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+所以这次看出来你麻和小紫唯一的共同语言也只有如月而已，神乐组真要变成环如月圈了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 16097#       发表于 2020-4-12 20:24
+
+
+
+
+ 3个个人势都能加戏成这样。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 16098#       发表于 2020-4-12 20:27
+
+
+
+
+加戏是管人观众的特色 不能不品尝
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16099#       发表于 2020-4-12 20:31
+
+
+
+
+又发散宫斗.jpg
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16100#       发表于 2020-4-12 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个人只有不仲和贴贴，三个人当然就有精彩纷呈的宫斗啦
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16101#       发表于 2020-4-12 21:16
+
+
+
+
+你咩应该龙宫闹海了吧
+
+
+如月这唱法也不演了，池面音果然只是为了掩饰女子音的一些问题，初见还挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16102#       发表于 2020-4-12 21:17
+
+
+
+
+如月唱的还不错（
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 16103#       发表于 2020-4-12 21:17
+
+
+
+
+感觉两人都比mea对神乐组更上心，挺好的，再怎么也是个归处
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16104#       发表于 2020-4-12 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才发现Echo快破百万播放了
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16105#       发表于 2020-4-12 21:25
+
+
+
+
+如月还是输一手萌音（
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 16106#       发表于 2020-4-12 21:42
+
+
+
+
+挺好的啊 以后合唱可以不用再唱男part了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16107#       发表于 2020-4-12 22:03
+
+
+
+
+唱姨part
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16108#       发表于 2020-4-12 23:07
+
+
+
+
+有啥关系不关系的
+
+很显然，mea只认识如月koyori，然后如月koyori通过mea这层关系出道，顺便拉来了自己的连体朋友。
+
+说是神乐组，其实也就是挂个名而已。
+
+如果加起来都没有1000同接，穷贫苟活的三个five还要搞宫斗，那也太空虚了⑧。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16109#       发表于 2020-4-12 23:31
+
+
+
+
+咩姐好歹也有1k同接吧。。。
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 16110#       发表于 2020-4-12 23:31
+
+
+
+
+无非就不熟呗，也能讨论一大串。
+
+朋友的朋友无非吃顿饭唱个k就玩熟了嘛，只是她们现在环境不允许罢了
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16111#       发表于 2020-4-12 23:34
+
+
+
+
+搬个消息：组长预定在黄金周办“あたおか”篇V骚，嘉宾有Mea，夏色祭，郡道老师和江良
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16112#       发表于 2020-4-12 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是混沌组合
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 16113#       发表于 2020-4-12 23:40
+
+
+
+
+这阵容我爱了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16114#       发表于 2020-4-12 23:59
+
+
+
+
+混沌写在脸上了
+
+
+
+
+
+            
