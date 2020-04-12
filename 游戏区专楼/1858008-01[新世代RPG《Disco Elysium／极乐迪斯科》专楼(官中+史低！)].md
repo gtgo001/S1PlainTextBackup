@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-06 22:02** 
+> ## **本文件最后更新于2020-04-12 12:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_KK015" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_FZG31" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -25716,4 +25716,624 @@ Frank的死亡，象征着一个阶层努力自救却最终被时代洪流无情
 
 
 
-      
+
+
+-----
+
+####  威爾第晚禱  
+##### 1292#       发表于 2020-4-6 22:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46995475&amp;ptid=1858008" target="_blank">Mr.BBWoLf 发表于 2020-4-6 19:17</a>
+
+……bug了？还是得先触发Cinder的对话？</blockquote>
+是bug了，重新进出了几次房间小姑娘又出现辽 感谢坛友w
+
+
+
+
+
+
+
+-----
+
+####  WA2ST  
+##### 1293#       发表于 2020-4-6 23:56
+
+
+
+<blockquote>Rai.Z 发表于 2020-4-6 12:41
+一周目打完，我还是没搞懂主角那3天里疯狂酗酒乃至撞车失忆的动机是啥，是触及世界的真实崩溃了？ ...</blockquote>
+主角可能一直把前女友的相关东西放在档案夹夹层里，根据上一个案子，主角因为夹层卡死而把别人字面意义打断腿，而这次可能夹层打开，主角看到了前女友最后的留言，然后就疯了
+
+
+
+
+
+
+
+-----
+
+####  北卡厨王  
+##### 1294#       发表于 2020-4-7 00:25
+
+
+
+
+wtf? kim是homo?!
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 1295#       发表于 2020-4-7 00:55
+
+
+
+[https://b23.tv/BV12K411L7qe](https://b23.tv/BV12K411L7qe)
+
+喷了，编剧竟然是个毛味软妹………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  サリシノハラ  
+##### 1296#       发表于 2020-4-7 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46998772&amp;ptid=1858008" target="_blank">天下至贱 发表于 2020-04-07 00:55:58</a></blockquote>主笔是在gs上讲课的那位，游戏里5成文本是他写的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  北卡厨王  
+##### 1297#       发表于 2020-4-7 01:37
+
+
+
+
+遇见前妻是怎么触发的?爬了一下楼发现我根本没有见过这剧情就通关了?!
+
+
+
+
+
+
+
+-----
+
+####  tama_chan  
+##### 1298#       发表于 2020-4-7 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46998993&amp;ptid=1858008" target="_blank">北卡厨王 发表于 2020-4-7 01:37</a>
+遇见前妻是怎么触发的?爬了一下楼发现我根本没有见过这剧情就通关了?!</blockquote>
+在岛上睡觉
+
+—— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北卡厨王| + 1|见到前妻了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 1299#       发表于 2020-4-7 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46998897&amp;ptid=1858008" target="_blank">サリシノハラ 发表于 2020-4-7 01:17</a>
+
+主笔是在gs上讲课的那位，游戏里5成文本是他写的
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+我说也是，果然花15年写剧本的不能是这位<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.BBWoLf  
+##### 1300#       发表于 2020-4-7 13:24
+
+
+
+
+毛味软妹 ×
+
+铁血毛妹 √
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crabwar  
+##### 1301#       发表于 2020-4-7 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46998772&amp;ptid=1858008" target="_blank">天下至贱 发表于 2020-4-7 00:55</a>
+https://b23.tv/BV12K411L7qe
+
+喷了，编剧竟然是个毛味软妹………</blockquote>
+她这身没去年tga领奖那身好看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  牛兔子  
+##### 1302#       发表于 2020-4-8 14:34
+
+
+
+ 本帖最后由 牛兔子 于 2020-4-8 16:47 编辑 
+
+据说快出NS版了。
+
+
+期待续作。
+
+
+
+
+
+
+
+-----
+
+####  暴走机关车  
+##### 1303#       发表于 2020-4-8 16:39
+
+
+
+
+等个PS4版
+
+
+
+
+
+
+
+-----
+
+####  普通的石头门厨  
+##### 1304#       发表于 2020-4-9 15:46
+
+
+
+
+爬了一下楼，好像大部分人都觉得竹节虫是真的？
+
+
+我当时的第一反应是主角的精神确实出问题了，金为了稳住情绪骗他说也看到了。
+
+
+是不是我漏过了什么对话
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1305#       发表于 2020-4-9 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47025598&amp;ptid=1858008" target="_blank">普通的石头门厨 发表于 2020-4-9 15:46</a>
+
+爬了一下楼，好像大部分人都觉得竹节虫是真的？
+
+
+我当时的第一反应是主角的精神确实出问题了，金为了稳住情 ...</blockquote>
+金都拍下照片了
+
+
+
+
+
+
+
+-----
+
+####  chaoswing  
+##### 1306#       发表于 2020-4-9 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47025598&amp;ptid=1858008" target="_blank">普通的石头门厨 发表于 2020-4-9 15:46</a>
+
+爬了一下楼，好像大部分人都觉得竹节虫是真的？
+
+
+我当时的第一反应是主角的精神确实出问题了，金为了稳住情 ...</blockquote>
+我第一遍玩英文版的时候最后是跟cuno一块儿，我也以为是假的
+
+最近换了个路线玩了遍中文，最后是kim，才知道有拍照
+
+
+
+
+
+
+
+-----
+
+####  电动犀牛  
+##### 1307#       发表于 2020-4-10 10:06
+
+
+
+
+通关之后回想，反而是逃兵对雷内的言论最触动我。
+
+对话里老头是很反感雷内的，反感他日复一日地扔球，反感他穿得像斗鸡一样地站着，反感到甚至想一**把他崩掉。
+
+但选择告诉老头雷内已经去世时，在主角面前一直又臭又硬的他第一次崩溃。对话里展示了他的震惊，他向主角确认，并翻来覆去地说这老家伙应该由自己审判云云。
+
+
+刚点进这段对话的时候我有点不解，为什么一个与整个事件关系都不大的角色会让逃兵有这么大的反应，自持为拉瓦肖观察者的他到底对雷内是什么样的感情。
+
+之后的对话里挑明，逃兵的作案动机中的一部分是嫉妒，直到这时我才想通。
+
+
+在我眼里，逃兵对卡拉杰和上校的嫉妒以及他的性心理变态都是模糊的，反而是他对雷内的嫉妒无比真实。
+
+作为旧旧时代的活化石，雷内是国王时代在现代的投影，是比逃兵还要悲惨的失败者的代表。
+
+逃兵作为一个旧时代的政委，鄙视旧旧时代是他为数不多的乐趣。但雷内这个老不死的总是以一种积极的姿态站在他的瞄准镜下，跟他脑子里的那点骄傲作对。这是反感情绪的来源。
+
+
+对话里可以知道，逃兵与雷内没有多少交流，应该也不知道他的战场往事，但光从对穿着的评论也可以判断，他知道雷内是个荣誉士兵。
+
+荣誉士兵，是逃兵这一角色真正的天敌，哪怕他们作战于不同的时代，效忠的是不同的领袖。
+
+海上要塞战斗结束后，政委靠思想和意识武装自己，让自己的精神不至于死在临阵脱逃的原罪之下。
+
+但他始终无法从往日的阴影中解脱，他想回到过去重新选择，他想成为雷内。这是嫉妒情绪的来源。
+
+
+但雷内死了。逃兵对他的审视的批判的反感的嫉妒都随之中止，他不再有可能去跟雷内面对面探索自己思想中最卑微的部分了，哪怕只是有可能。
+
+
+
+
+
+
+
+
+
+-----
+
+####  普通的石头门厨  
+##### 1308#       发表于 2020-4-11 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47025713&amp;ptid=1858008" target="_blank">傲娇的章鱼 发表于 2020-4-9 15:56</a>
+
+金都拍下照片了</blockquote>
+我玩的结局是没拍到照片。。让我更确信了金是在演戏，为了拉主角一把
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1309#       发表于 2020-4-11 14:52
+
+
+
+<blockquote>普通的石头门厨 发表于 2020-4-11 13:33
+我玩的结局是没拍到照片。。让我更确信了金是在演戏，为了拉主角一把</blockquote>
+所以这游戏剧本的醍醐味正在于玩家内心深处是什么样的人，看到的世界“真实”就是什么样。。。
+
+
+
+
+
+
+
+-----
+
+####  嘻嘻哈哈麻木  
+##### 1310#       发表于 2020-4-11 15:42
+
+
+
+ 本帖最后由 嘻嘻哈哈麻木 于 2020-4-11 15:43 编辑 
+
+我怀疑金跟主角一样，在晚上道晚安后就偷偷出去搞事情了。
+证据就是上了岛后，逃兵会说同性 恋来了，一周目我周四才发现阳台上那个神秘抽烟男，还没等到第二天晚上我就直接进结局上岛了，一开始我还以为是逃兵骂主角和金，就是纯口嗨、污蔑。但是补了神秘抽烟男的剧情和思想后，才知道说的是金，但是逃兵是怎么知道金的性取向呢，真相只有一个<img src="https://static.saraba1st.com/image/smiley/carton2017/059.png" referrerpolicy="no-referrer">那就是晚上金背着主角去找人了。
+然后想想主角晚上都在干啥，扒靴子煮靴子，找渔村居民然后被拒绝，命苦啊。
+
+
+
+
+
+
+
+-----
+
+####  cortexiv  
+##### 1311#       发表于 2020-4-11 18:48
+
+
+
+
+“真是个好邮筒”<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1312#       发表于 2020-4-11 21:27
+
+
+
+
+一周目通了，问下是旅馆门口火拼之后就会强制跳到第七天吗，我第五天火拼，受伤之后直接第七天。
+
+顺便一提看到有人说一开始的园丁会在最高潮有很亮眼的表演，但是感觉我打出的剧情没啥她戏份啊。
+
+看了很多人说20h左右通，我咋才13h就通了，支线也做了很多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1313#       发表于 2020-4-11 21:41
+
+
+
+<blockquote>华发夜眼[CN] 发表于 2020-4-11 21:27
+一周目通了，问下是旅馆门口火拼之后就会强制跳到第七天吗，我第五天火拼，受伤之后直接第七天。
+
+顺便一提 ...</blockquote>
+你后面没遇见某“律师”吗
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1314#       发表于 2020-4-11 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47049888&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-4-11 21:41</a>
+
+你后面没遇见某“律师”吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有，是火拼之后吗
+
+
+
+
+
+
+
+-----
+
+####  eblis2  
+##### 1315#       发表于 2020-4-11 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47025598&amp;ptid=1858008" target="_blank">普通的石头门厨 发表于 2020-4-9 15:46</a>
+
+爬了一下楼，好像大部分人都觉得竹节虫是真的？
+
+
+我当时的第一反应是主角的精神确实出问题了，金为了稳住情 ...</blockquote>
+是真的。拍下了照片。最后同事过来找你还可以把照片给他们看，片尾还上了报纸
+
+
+
+
+
+
+
+-----
+
+####  nogi  
+##### 1316#       发表于 2020-4-11 23:41
+
+
+
+
+一周目打通了。。这游戏作为推理故事一点都不本格啊  最后真凶突然空降都没啥铺垫的
+
+我一直到结尾都没拿到自己的**。。如果拿到**了帮派冲突会有不同的结果么  我是大腿中** 兄弟会死了4个人
+
+另外灰域到底是啥玩意  之前在教堂召唤那什么洞的时候最后感觉不太妙就把音响关了
+
+
+
+
+
+
+
+-----
+
+####  Pelishere  
+##### 1317#       发表于 2020-4-11 23:55
+
+
+
+
+玩完之后平生第一次产生磕游戏同人图的想法😳
+
+
+
+
+
+
+
+-----
+
+####  augustinus  
+##### 1318#       发表于 2020-4-12 09:31
+
+
+
+<blockquote>华发夜眼[CN] 发表于 2020-4-11 22:36
+没有，是火拼之后吗</blockquote>
+不是，就是在酒店一楼找那群工会兄贵调查了解案件情况的时候，包间一楼一直有一位“律师”在专业的拦你质问以及阻止那群傻大个瞎说。。。感觉这个是主线不会跳过的吧
+
+
+
+
+
+
+
+-----
+
+####  #@qqqy  
+##### 1319#       发表于 2020-4-12 10:16
+
+
+
+
+玩了4小时左右，这游戏对建政中毒群体太友好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1320#       发表于 2020-4-12 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47052769&amp;ptid=1858008" target="_blank">augustinus 发表于 2020-4-12 09:31</a>
+
+不是，就是在酒店一楼找那群工会兄贵调查了解案件情况的时候，包间一楼一直有一位“律师”在专业的拦你质 ...</blockquote>
+原来是这个，这个有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  F.R.ONY  
+##### 1321#       发表于 2020-4-12 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47049782&amp;ptid=1858008" target="_blank">华发夜眼[CN] 发表于 2020-4-11 21:27</a>
+一周目通了，问下是旅馆门口火拼之后就会强制跳到第七天吗，我第五天火拼，受伤之后直接第七天。
+
+顺便一提 ...</blockquote>
+一共132个任务 我大概30小时通过的时候做了110多个 主要是几个隐藏和磕药的任务没做   不过还可能和steam的时间统计有关系 我玩的时候经常离线 最后只统计了我17小时
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  sherryyy  
+##### 1322#       发表于 2020-4-12 12:02
+
+
+
+
+三十来个小时英文通了 不知道是不是应该可以自豪一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+有点想看看中文翻译但是又不知道值不值得二周目。。。。再怎么选相反的选项主线流程也不会变吧 就只能当检测之前理解的到不到位了。。。
+
+
+
+
+
+
+     
