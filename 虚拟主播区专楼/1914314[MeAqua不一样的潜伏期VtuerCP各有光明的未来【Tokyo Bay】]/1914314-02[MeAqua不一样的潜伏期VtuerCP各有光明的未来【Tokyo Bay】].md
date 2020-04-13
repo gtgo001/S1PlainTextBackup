@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-13 14:02** 
+> ## **本文件最后更新于2020-04-14 04:02** 
 
 
 
@@ -25961,8 +25961,11 @@ C]LTPOZB%CA2C2~Y]}19)7W.jpg
 
 
 
+ 本帖最后由 坚果收藏家 于 2020-4-13 14:21 编辑 
 
 什么叫作品里面夹带私货啊，明明是私货里面夹带作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+那图一股标准贴贴民的幻想味道
 
 
 
@@ -26072,10 +26075,594 @@ C]LTPOZB%CA2C2~Y]}19)7W.jpg
 
 
 
+ 本帖最后由 魔法使い2019 于 2020-4-13 14:24 编辑 
+
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+别随便安排人退坑啊， 人家已经不搞大新闻了， 而且还入饭盒万档
 
 
 
-   
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2884#       发表于 2020-4-13 14:14
+
+
+
+
+这图有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<[img src="https://i.ibb.co/gRSTpf1/zue37-Q5-8v6d-K2n-T3c-Sph-fx.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2885#       发表于 2020-4-13 14:17
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-13 14:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065221&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-13 14:14</a>
+
+这图有点意思</blockquote>
+草，安抚独角兽，xswl<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+暗黑二创摩多摩多
+
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2886#       发表于 2020-4-13 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065221&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-13 14:14</a>
+
+这图有点意思</blockquote>
+草，这不是阿夸在ark里抓到的那个独角兽吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+也可以理解成虚空联动civia，贴贴。
+
+一般观众对独角兽这个词汇不会很快发散到那方面去吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 2887#       发表于 2020-4-13 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">要对自己养出来的玩意负责哦
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 2888#       发表于 2020-4-13 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">要对自己养出来的玩意负责哦
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2889#       发表于 2020-4-13 16:53
+
+
+
+
+真tm恶心，以前带队蝗mea的时候怎么就不想这么多<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 2890#       发表于 2020-4-13 17:19
+
+
+
+
+因为别人是质素极高的crew啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2891#       发表于 2020-4-13 18:13
+
+
+
+
+嗯？Han这人有啥奇怪的历史吗
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 2892#       发表于 2020-4-13 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是标准的捧一踩一么
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 2893#       发表于 2020-4-13 18:26
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-13 18:13
+嗯？Han这人有啥奇怪的历史吗</blockquote>
+主要还是那些单纯的历史遗留问题。
+
+不过最值得细品的是你咩独唱曲pv被乱刷的时候推波助澜的人现在——
+
+大可细品
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2894#       发表于 2020-4-13 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47067608&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-13 18:13</a>
+
+嗯？Han这人有啥奇怪的历史吗</blockquote>
+我怀疑你是假暗黑贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2895#       发表于 2020-4-13 18:37
+
+
+
+
+我还记得han以前也是单推夸对咩有梁木的，但是就算以前做过啥，最起码人家现在还给咩续着饭盒呢，就算是RP这也比那些白嫖还天天鬼叫贴贴的高到不知哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2896#       发表于 2020-4-13 18:41
+
+
+
+
+所以碰到梁木人不要老想着橄榄，人是感情动物，多宽慰，帮助他们解开心结才是正道<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2897#       发表于 2020-4-13 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47067760&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-13 18:27</a>
+
+我怀疑你是假暗黑贴贴人</blockquote>
+暗黑贴贴人也没有无聊到每天准点收看每日贴闻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2898#       发表于 2020-4-13 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065767&amp;ptid=1914314" target="_blank">h1001010 发表于 2020-4-13 15:10</a>
+
+草，这不是阿夸在ark里抓到的那个独角兽吗。
+
+也可以理解成虚空联动civia，贴贴。
+
+一般观众对独角 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ark时船长直接叫过aqua独角兽系偶像
+
+
+
+
+
+
+
+-----
+
+####  夜明的月下  
+##### 2899#       发表于 2020-4-14 00:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/14/001655ufj49tova54soo7o.png" referrerpolicy="no-referrer">
+
+
+<strong>L)UBITDIP18@83HX8WCVF(U.png</strong> (499.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-14 00:16 上传
+
+
+
+
+
+事到如今我还能说什么呢，回不到过去了
+
+
+<img src="https://img.saraba1st.com/forum/202004/14/001705ijajad77du7sujlp.gif" referrerpolicy="no-referrer">
+
+
+<strong>OLQK`)SO3XWYFVIVI6HVA.gif</strong> (191.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-14 00:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2900#       发表于 2020-4-14 00:32
+
+
+
+
+并不是过去多美好，只是你看清了真相
+
+谎言可以是无限美好的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 2901#       发表于 2020-4-14 00:56
+
+
+
+
+han的话，她从始至终都是阿夸单推（老父亲粉而不是毒唯），早期对mea整的那些活感到反感，后面因为阿夸和mea联动是表现出的信任关系，对mea的印象有改善，说出大致意思是“出于相信阿夸而信任mea，但如果mea伤害了阿夸的话绝对不可以原谅”的话，被部分偏mea的观众（有单推也有贴贴人）怼说作为粉头捧一踩一（讲道理不是为了突显一方的好而去贬低另一方的话，算个p的捧一踩一，人还不能有自己的偏好了？），表示自己不当粉头，怒删过一波订阅的粉丝。在贴贴二创组，纯粹是相信阿夸和mea之间有真情，为她感到高兴，对mea则是爱屋及乌。
+
+
+
+
+
+
+
+-----
+
+####  夜明的月下  
+##### 2902#       发表于 2020-4-14 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47071247&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-14 00:32</a>
+
+并不是过去多美好，只是你看清了真相
+
+谎言可以是无限美好的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">可是信玉是真的直到最终都在贴贴啊！
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 2903#       发表于 2020-4-14 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47071366&amp;ptid=1914314" target="_blank">面具13 发表于 2020-4-14 00:56</a>
+han的话，她从始至终都是阿夸单推（老父亲粉而不是毒唯），早期对mea整的那些活感到反感，后面因为阿夸和me ...</blockquote>
+这心态还蛮正常的其实，不过暗黑贴贴人要整活儿的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2904#       发表于 2020-4-14 01:55
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-14 01:58 编辑 
+
+那单纯的anti我们看了心里也不舒服的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+何况还有像我这种虽然不是暗黑贴贴人但多多少少有点夸anti的成分
+
+
+当然要是从“两人间的所谓真情根本没法支撑起这种担保，这人还是把不切实际的期望加到了两人身上”的角度出发去反对，未尝不是一种贴贴人
+
+
+当然这种情况下或者称之为真物厨比较好
+
+
+“我只是想让大家对她们人际关系的认知符合事实而已啊——”
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2905#       发表于 2020-4-14 02:08
+
+
+
+
+观众认为的不都只是认为的而已吗，哪来的真物，吵过对方你认为的就变成真物了吗。
+硬要说的话确实有些距离更近的观众，他们倒是更接近真物一点<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2906#       发表于 2020-4-14 02:09
+
+
+
+
+我反正对mea和夸两女主播中立的，随便看看，她们怎么样我无所谓，然后专黑贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+看这描述心态还算正常，太没意思了。建议这位遵从内心的想法，想踩一捧一就大胆地踩一捧一，不要在意世俗的眼光，大胆说出自己的心声。踩一捧一的典范如踩夸捧咩mk2，踩咩捧夸萨尔哥，等等等等，毫不虚伪，直抒胸臆，给泥潭带来多少欢乐。何必在贴贴圈子里虚与委蛇呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+小松鼠在此诚挚邀请贴贴粉头入驻泥潭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2907#       发表于 2020-4-14 02:12
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-14 02:16 编辑 
+
+至少别太严重的歪曲事实嘛
+
+
+简单来说我不认为两个YHM主播之间的友谊能保证什么“两边人品都不出问题”
+
+
+——当然对于主播路线的观感差打到人品问题上这本身就很离谱
+
+“因为我推厉害/品行好所以她朋友也厉害/品行好”和“我推NB我也NB”的逻辑没差到哪儿去
+
+有点不让孩子和差学生玩的老妈子那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+“RP5岁，你还真把人家当5岁了，精神矮化有一手啊”
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2908#       发表于 2020-4-14 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47071685&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-4-14 02:12</a>
+
+至少别太严重的歪曲事实嘛
+
+
+简单来说我不认为两个YHM主播之间的友谊能保证什么“两边人品都不出问题”</blockquote>
+你这纯粹是立场的问题
+
+
+就像前面为Han说话的很多都有crew的身份，你面对一个踩咩捧夸的人总会找到对方哪里不对。偶像这种事情从来不需要讲道理，立场不同就永远无法达成一致。
+
+
+所以说为什么要做无谓的争论呢，想办法找乐子开发新理论才是正道啊
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2909#       发表于 2020-4-14 02:56
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-4-14 03:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47071366&amp;ptid=1914314" target="_blank">面具13 发表于 2020-4-14 00:56</a>
+han的话，她从始至终都是阿夸单推（老父亲粉而不是毒唯），早期对mea整的那些活感到反感，后面因为阿夸和me ...</blockquote>
+这就是话术吗，这可真了不起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+han佬当初说的话可是我当初转变味meaquaanti的加速器呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于这是哪位粉头底下的爱犬出来洗地了啊，我暂时蒙在鼓里。
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 2910#       发表于 2020-4-14 03:10
+
+
+
+
+crew偏向夸沒毛病啊
+
+傻的是一群自稱咩夸雙推的貼貼人把crew當粉頭
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|有这么想过|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2911#       发表于 2020-4-14 03:12
+
+
+
+
+说白了还是信者大战。好期待贴贴粉头入驻泥潭来战个痛快啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  
