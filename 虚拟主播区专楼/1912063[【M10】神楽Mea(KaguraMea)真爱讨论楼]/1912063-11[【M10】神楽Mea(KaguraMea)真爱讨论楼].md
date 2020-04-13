@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-13 00:01** 
+> ## **本文件最后更新于2020-04-13 16:01** 
 
 
 
@@ -19937,4 +19937,653 @@ mea和惩役太郎那会都没这样吧</blockquote>
 
 
 
-            
+
+
+-----
+
+####  魔法使い2019  
+##### 16115#       发表于 2020-4-13 00:28
+
+
+
+
+如果有星川就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 16116#       发表于 2020-4-13 09:07
+
+
+
+
+这就是v界混沌势力吗？爱了爱了。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16117#       发表于 2020-4-13 11:01
+
+
+
+
+在v骚三进三出我没想到的，兔姨，永远滴神
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16118#       发表于 2020-4-13 14:02
+
+
+
+
+改直播间标题了，要b限lol
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16119#       发表于 2020-4-13 14:03
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 16120#       发表于 2020-4-13 14:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下午茶？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16121#       发表于 2020-4-13 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快乐LOL
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16122#       发表于 2020-4-13 14:21
+
+
+
+
+才发现播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16123#       发表于 2020-4-13 14:26
+
+
+
+
+滋悠滋悠草
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16124#       发表于 2020-4-13 14:30
+
+
+
+
+下午不要上班吗！！！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16125#       发表于 2020-4-13 14:33
+
+
+
+
+桌面露出了啥？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16126#       发表于 2020-4-13 14:33
+
+
+
+
+桌面露出了？有露出什么东东吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16127#       发表于 2020-4-13 14:33
+
+
+
+
+加油越努力越幸运
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 16128#       发表于 2020-4-13 14:34
+
+
+
+
+看到很多字<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16129#       发表于 2020-4-13 14:34
+
+
+
+
+桌面截图有吗？
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16130#       发表于 2020-4-13 14:35
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-4-13 14:37 编辑 
+
+menhera好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16131#       发表于 2020-4-13 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然是满屏的字，仏了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16132#       发表于 2020-4-13 14:36
+
+
+
+
+吓哭了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16133#       发表于 2020-4-13 14:39
+
+
+
+
+草<img src="https://p.sda1.dev/0/2c5790dc19b348b4c156ce3d6cc0b475/IMG_FF25E98E3118E7AA7236155AAB0C0C14.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16134#       发表于 2020-4-13 14:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想象了一下桌面全是“死而后已死而后已死而后已死而后已死而后已死而后已死而后已死而后已”的样子。。。嗯。。。土味mehera
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16135#       发表于 2020-4-13 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065478&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-13 14:40</a>
+想象了一下桌面全是“死而后已死而后已死而后已死而后已死而后已死而后已死而后已死而后已”的样子 ...</blockquote>
+鞠 躬 尽 瘁
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16136#       发表于 2020-4-13 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。。。。。
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 16137#       发表于 2020-4-13 14:45
+
+
+
+
+別慌 這肯定也是rp的一部分
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16138#       发表于 2020-4-13 14:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">yhm真可怕
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16139#       发表于 2020-4-13 15:02
+
+
+
+
+说好的桌面是绮罗罗老师呢，rp大失败<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16140#       发表于 2020-4-13 15:09
+
+
+
+
+mea这玩的啥英雄啊，怎么身上套个呼啦圈
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16141#       发表于 2020-4-13 15:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065757&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-13 15:09</a>
+
+mea这玩的啥英雄啊，怎么身上套个呼啦圈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你这脱离版本有点久啊。去年出的琪亚娜，通称圈子妈
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16142#       发表于 2020-4-13 15:12
+
+
+
+
+刚睡醒就有咩看<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16143#       发表于 2020-4-13 15:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065777&amp;ptid=1912063" target="_blank">上坂蓮華 发表于 2020-4-13 15:11</a>
+你这脱离版本有点久啊。去年出的琪亚娜，通称圈子妈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后一次玩LOL是15年
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16144#       发表于 2020-4-13 15:12
+
+
+
+
+草播了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 16145#       发表于 2020-4-13 15:14
+
+
+
+
+社畜做错了什么<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16146#       发表于 2020-4-13 15:23
+
+
+
+
+丝血逃生
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 16147#       发表于 2020-4-13 15:26
+
+
+
+
+?玩了琪亚娜?
+我届到了
+虽然上班看不到
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16148#       发表于 2020-4-13 15:29
+
+
+
+
+狗头鲨疯了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16149#       发表于 2020-4-13 15:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗头+水龙魂，这把木了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16150#       发表于 2020-4-13 15:38
+
+
+
+
+希望她能体会到lol快乐游戏的精髓，多玩玩雪人、亚索、悠米这种英雄<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16151#       发表于 2020-4-13 15:53
+
+
+
+
+孩子哭的多开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 16152#       发表于 2020-4-13 15:57
+
+
+
+
+ 偷空听了一下 确实好听 
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16153#       发表于 2020-4-13 15:58
+
+
+
+
+这接豹女标**笑死我了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 16154#       发表于 2020-4-13 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47066012&amp;ptid=1912063" target="_blank">甘栗No.007 发表于 2020-4-13 15:38</a>
+
+希望她能体会到lol快乐游戏的精髓，多玩玩雪人、亚索、悠米这种英雄
+
+ ...</blockquote>
+现在努努路人局强的批爆好吗，前期gank独一档，第一波回家摸个狼头，直接线上推球过来，交闪都没用
+
+
+
+
+
+           

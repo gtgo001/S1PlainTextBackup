@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-09 00:00** 
+> ## **本文件最后更新于2020-04-13 16:00** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_v8Qns" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_lmP46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_AlBF2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_XgORw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -5801,4 +5801,514 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 
-                                       
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1804#       发表于 2020-4-9 06:20
+
+
+
+
+光之美少女去和新冠病毒战斗了，所以暂时没办法拍动画片给大家看（确信）
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1805#       发表于 2020-4-9 06:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能改剧本，最后净化科罗娜酱
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1806#       发表于 2020-4-9 06:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020707&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-9 06:24</a>
+
+有没有可能改剧本，最后净化科罗娜酱</blockquote>
+这种东西无论作品世界观还是现实世界里都是该被消灭干净的东西。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1807#       发表于 2020-4-9 07:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020707&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-9 06:24</a>
+
+有没有可能改剧本，最后净化科罗娜酱</blockquote>
+后期提一句或暗示一下的难度应该不大
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 1808#       发表于 2020-4-9 08:07
+
+
+
+
+今年Q娃没有被剧中的病毒打败却有可能因为现实的病毒停播，听起来真的很讽刺啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1809#       发表于 2020-4-9 08:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020942&amp;ptid=1860852" target="_blank">蓬莱妹红 发表于 2020-4-9 08:07</a>
+
+今年Q娃没有被剧中的病毒打败却有可能因为现实的病毒停播，听起来真的很讽刺啊 ...</blockquote>
+看预告下一集不就是被病毒打退场了吗，不过下下集练功房里修炼过会干回来的
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1810#         楼主| 发表于 2020-4-12 08:00
+
+
+
+
+第二只怪是秒杀……
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdqmxyigccj21400mib2a.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdqmycpheqj21400mie81.jpg" referrerpolicy="no-referrer">
+
+
+“だとしても”
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdqn4jdpxvj21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+你果然是世界上第一个……
+<img src="https://wx3.sinaimg.cn/large/9657fdc2gy1gdqn788v86j21hc0u0npd.jpg" referrerpolicy="no-referrer">
+
+
+合体技
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdqnfwk2h6j21400mikjm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdqnfx1pdyj21400miu0y.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdqnfxoicij21400miqv5.jpg" referrerpolicy="no-referrer">
+
+
+植物传动物！再下去就要动物传人了！
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdqnj9kll4j21400mihdt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdqnja5rujj21400mi7wh.jpg" referrerpolicy="no-referrer">
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdqnmv0wwij21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1811#       发表于 2020-4-12 08:23
+
+
+
+
+这个三人合体技模式照搬抱Q三人合体技，但演出水平也比不上啊
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1812#       发表于 2020-4-12 08:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47052400&amp;ptid=1860852" target="_blank">風駿 发表于 2020-4-12 08:23</a>
+
+这个三人合体技模式照搬抱Q三人合体技，但演出水平也比不上啊</blockquote>
+今年的心思都花在变身卡之外了，这集最后兔子躲在粉主背后时还记得把耳朵往下拉，以防露出来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1813#       发表于 2020-4-12 08:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47052438&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-4-12 08:32</a>
+
+今年的心思都花在变身卡之外了，这集最后兔子躲在粉主背后时还记得把耳朵往下拉，以防露出来 ...</blockquote>
+是的，但这种差异有点不正常，新大招怎么说也是推销玩具环节吧
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1814#       发表于 2020-4-12 08:57
+
+
+
+
+是这个大招卡还是我的电脑卡<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1815#       发表于 2020-4-12 13:01
+
+
+
+
+分镜角铜博之
+
+居然从植物传染到动物了，下一话预告看起来很欢乐
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1816#         楼主| 发表于 2020-4-12 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47054442&amp;ptid=1860852" target="_blank">reficul 发表于 2020-4-12 13:01</a>
+
+分镜角铜博之
+
+居然从植物传染到动物了，下一话预告看起来很欢乐</blockquote>
+还没有动物传动物和人传人的证据，可防可控
+
+
+
+
+
+
+
+-----
+
+####  天邪鬼  
+##### 1817#       发表于 2020-4-12 18:41
+
+
+
+
+下一步就是某个人作死吃野味了
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 1818#       发表于 2020-4-12 18:53
+
+
+
+
+我还以为在看奥特曼
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1819#       发表于 2020-4-12 18:56
+
+
+
+
+某个被传染的豚鼠（？）怎么感觉还是个小boss<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+新大招有点水
+
+
+
+
+
+
+
+-----
+
+####  白水潭的饿鬼  
+##### 1820#       发表于 2020-4-12 19:12
+
+
+
+
+看到后面精灵CV有花守和木彩花，以后会不会转正啊
+搞个抚子类粉主是不是有看头
+
+—— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  钞君  
+##### 1821#       发表于 2020-4-12 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47018738&amp;ptid=1860852" target="_blank">傲娇的章鱼 发表于 2020-4-8 22:18</a>
+
+录音棚都关了，q娃是不是要停播了？</blockquote>
+有存货的吧，录音一般比动画早，有絵コンテLayout就能录了。参考特摄那边的，现在存货应该也能播到5月吧？
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 1822#       发表于 2020-4-12 19:15
+
+
+
+
+卧槽这集最后这这这这不是下一步就要感染人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1823#       发表于 2020-4-12 19:34
+
+
+
+
+今年女人假如玩具卖得不行 反正有瘟疫借口搞定 怪不了兼卡不行
+问题是甜梦猫美妙今年主力也是淫兽毛绒玩具 三足鼎立 是看谁厉害了
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1824#       发表于 2020-4-12 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47052451&amp;ptid=1860852" target="_blank">風駿 发表于 2020-4-12 08:34</a>
+
+是的，但这种差异有点不正常，新大招怎么说也是推销玩具环节吧</blockquote>
+水果的大招也不怎么华丽吧，玩具销量也挺高
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1825#       发表于 2020-4-12 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47057328&amp;ptid=1860852" target="_blank">圆神最高 发表于 2020-4-12 18:53</a>
+
+我还以为在看奥特曼</blockquote>
+BGM让我觉得我在玩RPG，
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1826#       发表于 2020-4-12 22:11
+
+
+
+
+新大招我倒觉得效果挺棒的
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1827#       发表于 2020-4-12 22:36
+
+
+
+
+其实小招大招那个螺旋手臂，挺微妙的。。
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1828#       发表于 2020-4-13 12:04
+
+
+
+<blockquote>千叶铁矢 发表于 2020-4-12 19:15
+卧槽这集最后这这这这不是下一步就要感染人了</blockquote>
+敢照着现实演一遍剧情就是神作了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1829#       发表于 2020-4-13 13:20
+
+
+
+
+那个山头跟怪物体型和造型，确实很容易让人联想到奥特曼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。我甚至感觉突然跳一个出来跟小怪肉搏都没有违和感
+
+战斗过程异常的古怪，小怪一直转圈一直爽
+
+合体技兼用卡好菜啊
+
+下一集感觉会很好看
+
+
+
+
+
+
+
+-----
+
+####  noneoneone  
+##### 1830#       发表于 2020-4-13 14:23
+
+
+
+
+我倒觉得新大招还可以，召唤绿洲的气势很足啊。
+
+
+
+
+
+
+
+-----
+
+####  moooooonlight  
+##### 1831#       发表于 2020-4-13 15:45
+
+
+
+
+结合来看这两集还挺失望的，上集三人聚集再分开再聚集，这集被打飞后醒来还原地思考人生，就不能在演出剧本上改一点加强合理性紧张感吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
