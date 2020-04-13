@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-13 22:01** 
+> ## **本文件最后更新于2020-04-14 00:01** 
 
 
 
@@ -20912,6 +20912,25 @@ last  绝活波比
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1|之前错扣的鹅....|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -21024,10 +21043,409 @@ syl，如月女声发声方式不行，池面音其实也是上底力是被迫�
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">电音转声线好带感啊woc
+ 本帖最后由 笋狐 于 2020-4-13 22:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">电音转声线好带感啊woc，为何电属性的羊从来不正经唱（
 
 
 
 
 
-          
+
+
+-----
+
+####  路人庚  
+##### 16179#       发表于 2020-4-13 23:11
+
+
+
+
+在犬山那边连麦了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16180#       发表于 2020-4-13 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16181#       发表于 2020-4-13 23:16
+
+
+
+
+你楼前些天那些说要冲了苔苔的人呢，该行动起来了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16182#       发表于 2020-4-13 23:17
+
+
+
+
+你咩姐这假笑冷到我了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16183#       发表于 2020-4-13 23:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">酒后适婚女青年骚扰少女
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16184#       发表于 2020-4-13 23:27
+
+
+
+
+把适婚删了吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16185#       发表于 2020-4-13 23:31
+
+
+
+
+苔姨以后就靠养小白脸吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16186#       发表于 2020-4-13 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">看隔壁说夏哥吃辣，我记不得mea有没有直播吃超辣拉面什么的么？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16187#       发表于 2020-4-13 23:37
+
+
+
+
+有联动草
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16188#       发表于 2020-4-13 23:37
+
+
+
+
+去年2.24的憋尿俄罗斯方块联动里说自己吃了辛辛鱼算不算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16189#       发表于 2020-4-13 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播没有
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16190#       发表于 2020-4-13 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47070730&amp;ptid=1912063" target="_blank">上坂蓮華 发表于 2020-4-13 23:36</a>
+看隔壁说夏哥吃辣，我记不得mea有没有直播吃超辣拉面什么的么？</blockquote>
+没播过吧，她都不怎么提辣的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">记得她去年吃辣辣鱼，那几天她的直播都带着拉肚子的味道
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16191#       发表于 2020-4-13 23:40
+
+
+
+
+只记得她说过吃辛辛鱼，然后屁股流油；专门的企划吃什么东西的直播我倒是没见过她搞过<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 16192#       发表于 2020-4-13 23:41
+
+
+
+
+突然发现明天是线下live一周年，真快啊
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16193#       发表于 2020-4-13 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">屁股流油可还行，这是吃油鱼了吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16194#       发表于 2020-4-13 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47070730&amp;ptid=1912063" target="_blank">上坂蓮華 发表于 2020-4-13 23:36</a>
+看隔壁说夏哥吃辣，我记不得mea有没有直播吃超辣拉面什么的么？</blockquote>
+直播没，有吃过辛辛鱼闹肚子
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16195#       发表于 2020-4-13 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47070562&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-13 23:18</a>
+酒后适婚女青年骚扰少女
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+按照我国规定，女性晚婚指的是23岁以上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+苔姨明明是大龄单身女青年
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16196#       发表于 2020-4-13 23:46
+
+
+
+
+看到个好图草<img src="https://p.sda1.dev/0/f6c1ee6ecd7f23689097d5b462f52d76/-zue37Q5-eemqK11T1kScm-ev.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16197#       发表于 2020-4-13 23:46
+
+
+
+
+恐怖游戏都不整的，这种垃圾企划就算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16198#       发表于 2020-4-13 23:47
+
+
+
+
+吃辣企划真是弱智，还伤嗓子
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16199#       发表于 2020-4-13 23:50
+
+
+
+
+咩啊声音都变丑了，你们还想让她毁嗓子<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16200#       发表于 2020-4-13 23:52
+
+
+
+
+有一说一，我觉得是上一年的414搞得她声带受伤了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16201#       发表于 2020-4-13 23:59
+
+
+
+
+我倒是觉得现在的声音和麻酱的声音比没啥变化...
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16202#       发表于 2020-4-14 00:00
+
+
+
+
+我想了想她的歌力也没珍惜到不能吃辣的地步
+
+
+当然本人吃不了也不想吃是另一回事
+
+
+再说我们提了她就要做吗，把她当成啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
