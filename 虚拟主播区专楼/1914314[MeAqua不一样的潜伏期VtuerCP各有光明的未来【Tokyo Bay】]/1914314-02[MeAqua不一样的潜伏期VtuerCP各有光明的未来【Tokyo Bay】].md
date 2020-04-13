@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-11 20:03** 
+> ## **本文件最后更新于2020-04-13 14:02** 
 
 
 
@@ -25586,4 +25586,496 @@ md,这里快变成男同性 交友贴了<img src="https://static.saraba1st.com/i
 
 
 
-    
+
+
+-----
+
+####  Dualist彩  
+##### 2856#       发表于 2020-4-12 17:24
+
+
+
+
+贴贴组憋了一个多月就整个这？
+
+
+缺了个mix而已，萨尔哥，你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2857#       发表于 2020-4-12 17:38
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-11 19:42
+遗憾啥，这cp越凉越是好事</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 2858#       发表于 2020-4-12 18:38
+
+
+
+
+贴贴组是可以替代的，萨尔是不可替代的，萨尔永远的神<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 2859#       发表于 2020-4-13 10:40
+
+
+
+
+贴贴人大多都对ayamea和皆切没什么反感吧，踩狗狗干嘛....
+
+也就福夸有点杀伤力
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2860#       发表于 2020-4-13 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47062807&amp;ptid=1914314" target="_blank">airclab 发表于 2020-4-13 10:40</a>
+贴贴人大多都对ayamea和皆切没什么反感吧，踩狗狗干嘛....
+
+也就福夸有点杀伤力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2861#       发表于 2020-4-13 10:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是很懂福夸和盐水有什么区别
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2862#       发表于 2020-4-13 10:49
+
+
+
+
+猫夸线下也煞了一波
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2863#       发表于 2020-4-13 11:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初咩夸搞起来的时候m楼有几个说不想再看到皆切，要是皆切再联动就去点踩可不是假的。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2864#       发表于 2020-4-13 11:05
+
+
+
+
+皆切人和几个crew对咩打断夸皇和狗狗打电话这活上头的也不是没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+害，还是夸皇心机，把这事儿一说化身不粘锅，五岁弱智，永远滴神
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 2865#       发表于 2020-4-13 11:06
+
+
+
+
+就没有meayame贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 小心石头啊 小心石头
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2866#       发表于 2020-4-13 11:14
+
+
+
+
+小心石头是有意思，可我还是喜欢生日人狼里的那几句互动
+
+
+不知道咩ddd的时候会不会请ayame来<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2867#       发表于 2020-4-13 11:19
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-13 11:21 编辑 
+
+说不定被holo给绝罚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2868#       发表于 2020-4-13 12:08
+
+
+
+
+前段时间万组联动，猫夸联动时有的是贴贴人撒泼打滚闹情绪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 2869#       发表于 2020-4-13 12:46
+
+
+
+
+太草了，ysyy，有被咲到
+
+
+
+
+
+
+C]LTPOZB%CA2C2~Y]}19)7W.jpg
+(217.18 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-13 12:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/13/124623y4j8h49pj6jggjxh.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2870#       发表于 2020-4-13 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47064198&amp;ptid=1914314" target="_blank">oifaker 发表于 2020-4-13 12:46</a>
+太草了，ysyy，有被咲到</blockquote>
+终究会被反噬，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2871#       发表于 2020-4-13 12:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波啊，这波是孽力回馈
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2872#       发表于 2020-4-13 12:57
+
+
+
+
+这波啊，这波是反伤（
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 2873#       发表于 2020-4-13 13:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孽力回馈，孽力回馈，想当坟头就要有被反噬的觉悟
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2874#       发表于 2020-4-13 13:05
+
+
+
+
+可你要说那张图没有刻意塞私货我是不信的，白猫这个也完全是贴贴壬创造出来的象征，你放到那里说你没想画咩夸？
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2875#       发表于 2020-4-13 13:07
+
+
+
+
+你跟这种煞笔讲道理，有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2876#       发表于 2020-4-13 13:08
+
+
+
+
+什么叫作品里面夹带私货啊，明明是私货里面夹带作品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2877#       发表于 2020-4-13 13:18
+
+
+
+
+歌回唱的歌都给你剪出来做成贴贴pv，颤抖吧！
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2878#       发表于 2020-4-13 13:21
+
+
+
+
+放以前一点点要素也不会满屏哭残党的，说明一般通过也开始魔怔了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2879#       发表于 2020-4-13 13:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打开第一眼看到图我就觉得私货满满了。。。
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2880#       发表于 2020-4-13 13:46
+
+
+
+
+都怪我不好，像我这种垃圾发出了质疑meaqua的声音，还喊的贼大声，结果就被有心人传到mea和aqua她们那边了。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我知道错了。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2881#         楼主| 发表于 2020-4-13 13:48
+
+
+
+
+祝愿梁木能在han姐姐的心房里开花结果，早日退坑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2882#       发表于 2020-4-13 13:53
+
+
+
+
+别骂了别骂了，咩和夸在阿b最近这么凉还不是二创组没了产出，好不容易憋出点东西还被你们搞自闭了，你们这是要她们死🐴，而萨尔早就预见了一切，是萨尔，萨尔永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2883#       发表于 2020-4-13 13:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+   
