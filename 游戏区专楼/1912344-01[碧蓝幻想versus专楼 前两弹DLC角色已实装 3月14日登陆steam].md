@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-09 04:01** 
+> ## **本文件最后更新于2020-04-13 22:02** 
 
 
 
@@ -10981,4 +10981,560 @@ MAO感觉还行，新人用有奇效，可以乱拳打死老师傅
 
 
 
-                             
+
+
+-----
+
+####  air11974  
+##### 602#       发表于 2020-4-9 08:39
+
+
+
+ 本帖最后由 air11974 于 2020-4-9 08:51 编辑 
+
+2020年3月のグラブルVSのアクティブユーザー数（3/1～3/31に1回でもランクマしたプレイヤー人数）は、74,663名でした。
+
+ランク分布、ランク比率も公開。Sランク以上は9.4%しかいないという結果に。
+<img src="https://s1.ax1x.com/2020/04/09/GhHC90.png" referrerpolicy="no-referrer">
+<img src="https://s1.ax1x.com/2020/04/09/Gh7zAs.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 603#       发表于 2020-4-9 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47020528&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-9 02:58</a>
+
+听奶王说zeta已经脱离下水道了，不知道madao如何了
+
+
+—— 来自 OnePlus GM1910, Android 9上的 S1Next-鹅版 ...</blockquote>
+zeta被压版边怎么逃压？没有升龙，当身发生很慢。
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 604#       发表于 2020-4-9 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021771&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-4-9 09:47</a>
+
+zeta被压版边怎么逃压？没有升龙，当身发生很慢。</blockquote>
+猜，复合拆投，当身，当身只是怕投，用投压起身不一定准，
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 605#       发表于 2020-4-9 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47019249&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-8 23:03</a>
+
+新角色都没武器皮肤的？姬塔刷半天一个皮肤没有
+
+
+—— 来自 OnePlus GM1910, Android 9上的 S1Next-鹅版 v2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">七星剑、十天光辉还有个啥来着，是刷RPG那边hard的boss然后用牌子换的
+
+金币应该也有两把，其他的应该都在卡池里靠脸抽，还有就是各boss的掉落？
+
+我自己要等周末才开机更新，不知道具体怎么配置的就是了
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 606#       发表于 2020-4-9 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021822&amp;ptid=1912344" target="_blank">yla 发表于 2020-4-9 09:51</a>
+
+七星剑、十天光辉还有个啥来着，是刷RPG那边hard的boss然后用牌子换的
+
+金币应该也有两把，其他的应 ...</blockquote>
+金币怎么拿皮肤的？我现在姬塔就抽到个咸鱼
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 607#       发表于 2020-4-9 09:55
+
+
+
+ 本帖最后由 yla 于 2020-4-9 10:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021849&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-9 09:54</a>
+
+金币怎么拿皮肤的？我现在姬塔就抽到个咸鱼</blockquote>
+商店购买，我不确定会不会有就是了毕竟金币买的是低配方阵武器，可能不会追加新武器进去就是了，不过角色配色也是那边买的
+
+PS：DLC角色额外配色竟然不包含在季票里，明明角色DLC都包含了，吃屎啦KMR！
+
+
+
+
+
+
+
+-----
+
+####  naclken.  
+##### 608#       发表于 2020-4-9 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021822&amp;ptid=1912344" target="_blank">yla 发表于 2020-4-9 09:51</a>
+
+七星剑、十天光辉还有个啥来着，是刷RPG那边hard的boss然后用牌子换的
+
+金币应该也有两把，其他的应 ...</blockquote>
+惊了 你玩这个的？
+
+手游就算了，格斗别刷了对自己好一点……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 609#       发表于 2020-4-9 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021893&amp;ptid=1912344" target="_blank">naclken. 发表于 2020-4-9 09:57</a>
+
+惊了 你玩这个的？
+
+手游就算了，格斗别刷了对自己好一点……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我玩GBF的呀，买特典送游戏，打个hard剧情通关还能拿绝版皮肤，买个DLC还能拿到游戏里还没有获得途径的满级武器，超级划算
+
+
+
+
+
+
+
+-----
+
+####  windlikeman  
+##### 610#       发表于 2020-4-9 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021822&amp;ptid=1912344" target="_blank">yla 发表于 2020-4-9 09:51</a>
+
+七星剑、十天光辉还有个啥来着，是刷RPG那边hard的boss然后用牌子换的
+
+金币应该也有两把，其他的应 ...</blockquote>
+咸鱼金币抽
+
+十天武器 黑化武器 七星剑商店换
+
+巴长打HARD副本送
+
+还有一把应该是碧哥武器？
+
+这样7把正好齐
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 611#       发表于 2020-4-9 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021771&amp;ptid=1912344" target="_blank">nagitoY 发表于 2020-4-9 09:47</a>
+zeta被压版边怎么逃压？没有升龙，当身发生很慢。</blockquote>
+c当身可以起身马上出，比升龙有一点好处是可以看清对面动作再派生防骗。
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 612#       发表于 2020-4-9 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47021130&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-9 08:39</a>
+2020年3月のグラブルVSのアクティブユーザー数（3/1～3/31に1回でもランクマしたプレイヤー人数）は、74,66 ...</blockquote>
+意思大概有8万人在打格斗模式？
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 613#       发表于 2020-4-9 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47023073&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-9 11:47</a>
+意思大概有8万人在打格斗模式？</blockquote>
+3月份之间至少打过1次排位的人
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 614#       发表于 2020-4-9 12:27
+
+
+
+
+还有f5人的我感觉是故意钓鱼的，日本房里碰到过一个叫gbvs最弱王的，打起来一点不含糊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 615#       发表于 2020-4-9 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47023560&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-9 12:27</a>
+还有f5人的我感觉是故意钓鱼的，日本房里碰到过一个叫gbvs最弱王的，打起来一点不含糊 ...</blockquote>
+我碰到个d5的兰斯洛特，全程在加帧和择，头上挂着30多连胜<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 616#       发表于 2020-4-9 12:47
+
+
+
+
+所以4月底会把5m加帧全部一刀切吗
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  一夜四次羊  
+##### 617#       发表于 2020-4-9 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47023730&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-9 12:38</a>
+我碰到个d5的兰斯洛特，全程在加帧和择，头上挂着30多连胜</blockquote>
+从零单排<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 618#       发表于 2020-4-9 14:49
+
+
+
+
+姬塔怎么对策菲莉，突进技太短，感觉中距离打不进去
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 619#       发表于 2020-4-9 14:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47025100&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-9 14:49</a>
+
+姬塔怎么对策菲莉，突进技太短，感觉中距离打不进去</blockquote>
+我觉得是没得打的.......没有突进，蓄力波也是废得
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 620#       发表于 2020-4-10 12:08
+
+
+
+ 本帖最后由 佐伯香織 于 2020-4-10 12:16 编辑 
+
+我皮肤基本刷齐了，就是02编号的武器皮肤有的人没有，好像是碧的武器皮肤，是在特定的地方拿吗？
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  MVnetVn  
+##### 621#       发表于 2020-4-10 12:11
+
+
+
+
+上面4个神仙 看月底大更怎么削
+
+很多没法打
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 622#       发表于 2020-4-10 12:26
+
+
+
+
+看了下分布感觉S1差不多算是鱼塘出口的样子，S升SS确实已经有点难了
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 623#       发表于 2020-4-11 01:09
+
+
+
+
+大厅头一次碰到master阶<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">，真是稳扎稳打的立回。
+
+
+
+
+
+
+
+-----
+
+####  Bani82  
+##### 624#       发表于 2020-4-11 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47023036&amp;ptid=1912344" target="_blank">air11974 发表于 2020-4-9 11:43</a>
+c当身可以起身马上出，比升龙有一点好处是可以看清对面动作再派生防骗。 ...</blockquote>
+对面直接投不就没了，还有2ll刷闪避，虽说都是猜但是感觉和生龙比对面有更多对策手段
+
+
+
+
+
+
+
+-----
+
+####  佐伯香織  
+##### 625#       发表于 2020-4-11 12:05
+
+
+
+<img src="http://wx4.sinaimg.cn/mw690/6baa557agy1gdpp3mmjrag20dc07ib0m.gif" referrerpolicy="no-referrer">
+
+远c差合打中接不上后续是真的烦
+
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 626#       发表于 2020-4-11 13:24
+
+
+
+
+今年EVO八成要停了吧，也没什么比赛，不知道这游戏能走多远，访谈说放慢DLC节奏，这十几个角色估计打一年了
+
+
+
+
+
+
+
+-----
+
+####  air11974  
+##### 627#       发表于 2020-4-11 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47045827&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-11 13:24</a>
+今年EVO八成要停了吧，也没什么比赛，不知道这游戏能走多远，访谈说放慢DLC节奏，这十几个角色估计打一年了 ...</blockquote>
+看cy想不想继续搞了，角色还有大把，但是系统始终单薄了点，出完第二弹人物再隔个一年半载出新作吧，前提是本家热度还在。
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 628#       发表于 2020-4-13 16:23
+
+
+
+
+pc是今天更新吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yla  
+##### 629#       发表于 2020-4-13 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47034941&amp;ptid=1912344" target="_blank">佐伯香織 发表于 2020-4-10 12:08</a>
+
+我皮肤基本刷齐了，就是02编号的武器皮肤有的人没有，好像是碧的武器皮肤，是在特定的地方拿吗？
+
+
+—— 来 ...</blockquote>
+百度下？碧皮都在RPG模式的任务里面，不过只有一句模糊的描述加个进度条
+
+
+
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 630#       发表于 2020-4-13 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagitoY  
+##### 631#       发表于 2020-4-13 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47069137&amp;ptid=1912344" target="_blank">红魔馆的糖 发表于 2020-4-13 20:59</a></blockquote>
+老头的突进也是加帧？
+
+
+
+
+
+                            

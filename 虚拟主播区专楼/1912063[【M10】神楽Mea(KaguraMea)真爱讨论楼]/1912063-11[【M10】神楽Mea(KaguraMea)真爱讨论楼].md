@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-13 16:01** 
+> ## **本文件最后更新于2020-04-13 22:01** 
 
 
 
@@ -20586,4 +20586,448 @@ mea这玩的啥英雄啊，怎么身上套个呼啦圈</blockquote>
 
 
 
-           
+
+
+-----
+
+####  h1001010  
+##### 16155#       发表于 2020-4-13 16:07
+
+
+
+ 本帖最后由 h1001010 于 2020-4-13 16:08 编辑 
+
+水友赛lei了
+
+
+草，又取消了。<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16156#       发表于 2020-4-13 16:08
+
+
+
+
+笨B不会调水友赛无法观战
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16157#       发表于 2020-4-13 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然鹅并没有
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 16158#       发表于 2020-4-13 16:52
+
+
+
+
+last  绝活波比
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16159#       发表于 2020-4-13 17:17
+
+
+
+
+怎么看着这把摁着对面打啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16160#       发表于 2020-4-13 17:18
+
+
+
+
+快乐下播，估计一会还有（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16161#       发表于 2020-4-13 18:48
+
+
+
+
+阿b都73万了，下午没记错的话乘着lpl的风涨了不少？流量民欢喜
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16162#       发表于 2020-4-13 18:58
+
+
+
+
+今天lpl的比赛不好看啊，也就那会那场有点看头
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16163#       发表于 2020-4-13 19:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对青少年造成的影响不可估量.jpg
+
+<img src="https://img.saraba1st.com/forum/202004/13/191655j0lz2nva0kcfvf9a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11.jpg</strong> (70.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-13 19:16 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 13战斗力 +13
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kanoya| + 1|欢乐多|
+| WhiteAvalon| + 1|欢乐多|
+| 儒门正御应无骞| + 1|欢乐多|
+| A2014720| + 1||
+| h1001010| + 1|欢乐多|
+| 时雨rain| + 1|欢乐多|
+| Dualist彩| + 1|欢乐多|
+| 时之虫| + 1|好评加鹅|
+| Rem-清曲| + 1|欢乐多|
+| weiweiEX| + 1|欢乐多|
+| 记莫更寂寞| + 1|欢乐多|
+| 惑星| + 1|欢乐多|
+| 魔法使い2019| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16164#       发表于 2020-4-13 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47068228&amp;ptid=1912063" target="_blank">笋狐 发表于 2020-4-13 19:17</a>
+
+对青少年造成的影响不可估量.jpg</blockquote>
+已关注<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16165#       发表于 2020-4-13 19:29
+
+
+
+
+这算记者夹带私货吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 16166#       发表于 2020-4-13 19:31
+
+
+
+
+火出圈了（bushi）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16167#       发表于 2020-4-13 19:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">草，真出圈了
+
+
+
+
+
+
+
+-----
+
+####  三学研究员  
+##### 16168#       发表于 2020-4-13 19:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">真是个已关注吗？这波是真的引流，我还记得有不少政府公务员看mea来着。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 16169#       发表于 2020-4-13 19:48
+
+
+
+
+这是游客模式，关注个锤子
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16170#       发表于 2020-4-13 19:53
+
+
+
+
+地方台4秒就别想着引啥流了。不过那个可领取的宝箱，说明最起码看了三分钟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（也不知道是看进去了还是别的什么可能
+
+而且不说别的，你楼就有个公务员吧
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 16171#       发表于 2020-4-13 21:10
+
+
+
+[https://web.jshcsoft.com/jiangsu/HTML/listDetails.html?id=1&amp;channel_id=1033&amp;textId=4122](https://web.jshcsoft.com/jiangsu/HTML/listDetails.html?id=1&amp;channel_id=1033&amp;textId=4122)
+
+咩宝要🔥了？
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 16172#       发表于 2020-4-13 21:14
+
+
+
+
+都没说她名字 路人都不认识把
+
+
+
+
+
+
+
+-----
+
+####  sunisover2000  
+##### 16173#       发表于 2020-4-13 21:15
+
+
+
+
+乳法了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16174#       发表于 2020-4-13 21:30
+
+
+
+
+如月唱一次echo，你麻又被鞭尸一次，苦啊
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 16175#       发表于 2020-4-13 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47069440&amp;ptid=1912063" target="_blank">uuuuu7 发表于 2020-4-13 21:30</a>
+
+如月唱一次echo，你麻又被鞭尸一次，苦啊</blockquote>
+没事，如月唱烟草像小女生撒娇，你咩苦情歌女王的地位还是不可撼动的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16176#       发表于 2020-4-13 21:46
+
+
+
+
+是的，如月虽然直播用萌音但是唱歌萌音倒不咋地，苦情歌更是活脱脱唱出了舞台演出的感觉（贬义），阿咩情绪渲染上面依然强强。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16177#       发表于 2020-4-13 21:53
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-13 21:55 编辑 
+
+Melt啊，我去试试看能混个合唱不能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，如月女声发声方式不行，池面音其实也是上底力是被迫的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16178#       发表于 2020-4-13 22:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">电音转声线好带感啊woc
+
+
+
+
+
+          
