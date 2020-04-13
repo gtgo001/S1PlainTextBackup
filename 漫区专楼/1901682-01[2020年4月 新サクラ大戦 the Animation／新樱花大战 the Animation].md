@@ -1,0 +1,2978 @@
+> ## **本文件最后更新于2020-04-13 12:11** 
+
+
+
+-----
+
+####  Toby_dak  
+##### 1#       楼主       发表于 2019-12-12 09:52
+
+
+
+ 本帖最后由 Toby_dak 于 2020-4-3 23:41 编辑 
+
+[https://sakura-taisen-theanimation.com](https://sakura-taisen-theanimation.com)
+
+
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1g9szoh6jexj20ys0jphdt.jpg" referrerpolicy="no-referrer">
+
+
+昨晚游戏发售前夜活动公布的，漫区没人发帖，是不是都在玩游戏了……
+
+
+看到小野学就<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 2#       发表于 2019-12-12 11:18
+
+
+
+
+早就公布动画化消息了，游戏专楼里就有
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 3#         楼主| 发表于 2019-12-12 11:25
+
+
+
+<blockquote>引用第1楼莉莉橙于2019-12-12 12:18发表的  :
+
+早就公布动画化消息了，游戏专楼里就有</blockquote>
+你可以看看专楼，每次现场活动我都有直播的。动画化消息是TGS公布，具体播放日期是昨天才公布的。
+而且动画新闻在漫区没提及也说不过去吧。
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 4#       发表于 2019-12-12 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">游戏内动画3渲2感觉不太行
+
+
+
+
+
+
+
+-----
+
+####  lawsherman  
+##### 5#       发表于 2019-12-12 12:09
+
+
+
+
+原画还是久保带人吗
+
+
+
+
+
+
+
+-----
+
+####  莉莉橙  
+##### 6#       发表于 2019-12-12 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=45831354&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2019-12-12 11:25</a>
+你可以看看专楼，每次现场活动我都有直播的。动画化消息是TGS公布，具体播放日期是昨天才公布的。
+而且动 ...</blockquote>
+嗯，没看清是公布具体日期，抱歉抱歉
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 7#         楼主| 发表于 2020-1-29 20:28
+
+
+
+
+莫斯科华击团
+
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1gbdp05zr2yj21hc0u0qb3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gbdp069canj21hc0u0dqm.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gbdp05zzvwj21hc0u07al.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gbdp066706j21hc0u0n4h.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gbdp0694jaj21hc0u00z6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/82f2a336gy1gbdp06ajn9j21hc0u0ai6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gbdp06b6t0j21hc0u00zt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gbdp068l2vj21hc0u011g.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gbdp06eelaj21hc0u0gt8.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gbdp06barbj21hc0u010q.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 8#         楼主| 发表于 2020-1-29 20:28
+
+
+
+
+主视觉图
+
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1gbdp33zjpgj21hc0u0e82.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1gbdp3e64t4j21hc0u0tk3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子2  
+##### 9#       发表于 2020-1-29 20:35
+
+
+
+
+赤羽根终于还愿了
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 10#         楼主| 发表于 2020-1-29 20:42
+
+
+
+ 本帖最后由 Toby_dak 于 2020-1-29 21:43 编辑 
+
+新PV
+
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 11#         楼主| 发表于 2020-1-29 20:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46275033&amp;ptid=1901682" target="_blank">任天索尼子2 发表于 2020-1-29 21:35</a>
+
+赤羽根终于还愿了</blockquote>
+可惜新花组队长没选上他<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haluka  
+##### 12#       发表于 2020-1-29 21:11
+
+
+
+
+制作人不是还想通过动画来带动游戏销量吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 13#         楼主| 发表于 2020-1-29 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46275305&amp;ptid=1901682" target="_blank">haluka 发表于 2020-1-29 22:11</a>
+
+制作人不是还想通过动画来带动游戏销量吗</blockquote>
+游戏销量已经差不多吧，最多就是等上steam了。
+
+
+
+大概是给新2代打广告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子2  
+##### 14#       发表于 2020-1-29 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46275305&amp;ptid=1901682" target="_blank">haluka 发表于 2020-1-29 21:11</a>
+
+制作人不是还想通过动画来带动游戏销量吗</blockquote>
+其实销量还行，实体版20万多，算上数字版和中文版差不多也有快30万了。
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 15#       发表于 2020-1-29 22:43
+
+
+
+
+還是期待師父的真面目吧
+
+總感覺她一定有黑幕
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 16#       发表于 2020-1-29 23:03
+
+
+
+
+看上去动画不是游戏剧情，那是游戏结局之后的剧情？
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子2  
+##### 17#       发表于 2020-1-29 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46276133&amp;ptid=1901682" target="_blank">影山银 发表于 2020-1-29 23:03</a>
+
+看上去动画不是游戏剧情，那是游戏结局之后的剧情？</blockquote>
+是的。游戏之后的剧情，估计是给2代游戏做铺垫。
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 18#         楼主| 发表于 2020-1-29 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46276133&amp;ptid=1901682" target="_blank">影山银 发表于 2020-1-30 00:03</a>
+
+看上去动画不是游戏剧情，那是游戏结局之后的剧情？</blockquote>
+[https://sakura-taisen-theanimation.com/story/](https://sakura-taisen-theanimation.com/story/)
+ <blockquote>太正三十年（1941年）
+
+帝都・東京は、平和な日々を取り戻していた ―――
+
+
+
+『帝国華撃団・花組』は隊長神山誠十郎が欧州へ赴任し、天宮さくらが隊長代理に就任していた。
+
+
+日々奮闘している花組の元に神山が一時帰国するが、その傍には見知らぬ少女がいた。
+
+
+少女の名はクラーラ。
+
+大きな事故に遭い壊滅した莫斯科（モスクワ）華撃団の唯一の生存者だという。
+
+
+神山から託され、花組へと転属になったクラーラを迎え入れるさくら達。
+
+
+
+
+そんな中、『莫斯科華撃団』を名乗る一団が突如帝都に現れる―――
+
+
+
+
+莫斯科から来たクラーラとは何者なのか？
+
+そして、壊滅したはずの莫斯科華撃団の来日の目的とは？
+
+
+
+
+
+帝国華撃団・花組の新たな戦いの幕が開く！</blockquote>
+
+神山不是新人队长，肯定是游戏后剧情。
+
+不去过欧洲出差都不好意思叫花组队长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 19#       发表于 2020-1-30 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46276475&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-1-29 23:57</a>
+
+https://sakura-taisen-theanimation.com/story/</blockquote>
+之後在歐洲在了另一組隊長
+
+再在下集歐洲後宮們都被「投射」到日本搶老公?
+
+
+
+
+
+
+
+-----
+
+####  天成小次郎  
+##### 20#       发表于 2020-1-31 02:23
+
+
+
+
+莫斯科的蒸汽垃圾桶又一个画风
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 21#         楼主| 发表于 2020-2-26 19:39
+
+
+
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1gca1a66hljj21hc0u0dqv.jpg" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  whzfjk  
+##### 22#       发表于 2020-2-26 21:56
+
+
+
+
+看OP是高分少女那种3D？
+
+
+
+
+
+
+
+-----
+
+####  zmw_831110  
+##### 23#       发表于 2020-2-26 23:39
+
+
+
+
+樱花大战,我还停留在真宫寺樱...
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 24#       发表于 2020-2-26 23:40
+
+
+
+
+这OP咋没有上击啊，希望正片里黄郁戏分多一点
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 25#         楼主| 发表于 2020-2-27 12:01
+
+
+
+<blockquote>引用第21楼whzfjk于2020-02-26 22:56发表的  :
+
+看OP是高分少女那种3D？</blockquote>
+跟游戏过场动画的同一个制作公司三次元，都是3渲2。游戏区专楼有业内出没。
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 26#       发表于 2020-2-27 12:29
+
+
+
+
+ED又在折磨佐仓了。
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 27#         楼主| 发表于 2020-3-30 14:55
+
+
+
+
+🌸「#サクラ大戦」シリーズの初公開情報満載🌸
+公式生放送「サクラ大戦 帝劇宣伝部通信」、3/30(月)20時より配信❗
+
+今回は「アニメ放送開始直前スペシャル」！ 4/3より放送開始の『新サクラ大戦 the Animation』を中心に、さまざまな情報をお届けいたします✨
+
+https://t.co/3wcr9H6W13
+#新サクラ大戦 https://t.co/oXy1SeVoHh
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 28#         楼主| 发表于 2020-3-30 19:42
+
+
+
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gdc6std8mmj20yy0jn16g.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gdc6sl0t1aj20z30jw4aa.jpg" referrerpolicy="no-referrer">
+
+
+去俄罗斯吃蛋包饭了……
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 29#         楼主| 发表于 2020-4-1 13:10
+
+
+
+
+
+这三个终于露面了……
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 30#       发表于 2020-4-1 17:59
+
+
+
+
+第1話：堂々開幕！新生華撃団
+
+
+太正三十年―多くの客で賑わう大帝国劇場。帝国歌劇団の新作公演初日。楽屋には隊長代理としての初めての舞台を迎える天宮さくら、そして、東雲初穂、望月あざみ、アナスタシア・パルマ、クラリスの新生花組の4人の姿が。
+
+そこに神山誠十郎が帰国。その後ろには見知らぬ一人の少女の姿が…
+
+
+シナリオ：浦畑達彦　 絵コンテ：小野学　 演出：浅利藤彰
+
+<img src="https://files.catbox.moe/0lsyhn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/udpvx8.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/fnw0bm.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/68qmgl.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/bpssrm.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/xipby2.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 31#       发表于 2020-4-2 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46946134&amp;ptid=1901682" target="_blank">xingenge 发表于 2020-04-01 17:59:40</a>
+第1話：堂々開幕！新生華撃団
+
+
+太正三十年―多くの客で賑わう大帝国劇場。帝国歌劇団の新作公演初日。楽屋 ...</blockquote>原来第一集就回国了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 32#       发表于 2020-4-2 09:05
+
+
+
+
+问下这片是周几？
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 33#         楼主| 发表于 2020-4-2 09:14
+
+
+
+<blockquote>引用第31楼hypnossz86于2020-04-02 10:05发表的  :
+
+问下这片是周几？</blockquote>
+21楼。
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  神王西格玛  
+##### 34#       发表于 2020-4-2 09:31
+
+
+
+
+还挺期待新佐仓大战的
+
+
+
+
+
+
+
+-----
+
+####  blood_iron  
+##### 35#       发表于 2020-4-2 10:03
+
+
+
+
+很好，推翻腾岛时代，迎接久保时代
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 36#         楼主| 发表于 2020-4-3 10:56
+
+
+
+
+■テレビアニメ『新サクラ大戦 the Animation』
+2020年4月3日（金）放送開始
+
+【放送局】
+TOKYO MX：毎週金曜22:00～
+BS11：毎週金曜23:30～
+
+【先行配信】
+AbemaTV　2020年4月3日（金）配信開始　毎週金曜22:00～
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 37#       发表于 2020-4-3 21:22
+
+
+
+
+第１巻
+
+【発売日】2020年5月20日（水）
+
+
+【価格】
+
+Blu-ray特装版：￥7,000（本体）+税
+
+DVD特装版：￥6,000（本体）+税
+
+Blu-ray通常版：￥5,000（本体）+税
+
+
+【収録話数】第一話～第三話
+
+
+【特装版特典（Blu-ray、DVD共通）】
+
+描き下ろしアウターケース
+
+特製ブックレット
+
+第一話オーディオコメンタリー
+
+・佐倉綾音（天宮さくら役）
+
+・早見沙織（クラリス役）
+
+・和多田美咲（クラーラ役）
+
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1gdgvzz49iyj20il0p0az3.jpg" referrerpolicy="no-referrer">
+
+
+第２巻
+
+【発売日】2020年6月17日（水）
+
+
+【価格】
+
+Blu-ray特装版：￥7,000（本体）+税
+
+DVD特装版：￥6,000（本体）+税
+
+Blu-ray通常版：￥5,000（本体）+税
+
+
+【収録話数】第四話～第六話
+
+
+【特装版特典（Blu-ray、DVD共通）】
+
+描き下ろしアウターケース
+
+特製ブックレット
+
+第四話オーディオコメンタリー
+
+・佐倉綾音（天宮さくら役）
+
+・内田真礼（東雲初穂役）
+
+<img src="http://wx1.sinaimg.cn/large/740ca5e5gy1gdgvzx4iutj20il0p04k7.jpg" referrerpolicy="no-referrer">
+
+
+第３巻
+
+【発売日】2020年7月15日（水）
+
+
+【価格】
+
+Blu-ray特装版：￥7,000（本体）+税
+
+DVD特装版：￥6,000（本体）+税
+
+Blu-ray通常版：￥5,000（本体）+税
+
+
+【収録話数】第七話～第九話
+
+
+【特装版特典（Blu-ray、DVD共通）】
+
+描き下ろしアウターケース
+
+特製ブックレット
+
+第七話オーディオコメンタリー（予定）
+
+
+第４巻
+
+【発売日】2020年8月19日（水）
+
+
+【価格】
+
+Blu-ray特装版：￥7,000（本体）+税
+
+DVD特装版：￥6,000（本体）+税
+
+Blu-ray通常版：￥5,000（本体）+税
+
+
+【収録話数】第十話～第十二話
+
+
+【特装版特典（Blu-ray、DVD共通）】
+
+描き下ろしアウターケース
+
+特製ブックレット
+
+第十二話オーディオコメンタリー（予定）
+
+[https://sakura-taisen-theanimation.com/news/20200403_02.php](https://sakura-taisen-theanimation.com/news/20200403_02.php)
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 38#         楼主| 发表于 2020-4-3 21:39
+
+
+
+
+第一话还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  990076  
+##### 39#       发表于 2020-4-3 22:05
+
+
+
+
+完全不夠看，請給我更多クラリス
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 40#       发表于 2020-4-3 22:26
+
+
+
+
+一本满足 就这么演就很稳 别搞别的幺蛾子
+
+
+
+
+
+
+
+-----
+
+####  bbbuster  
+##### 41#       发表于 2020-4-3 22:32
+
+
+
+
+比想象中开局好不少
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 42#       发表于 2020-4-3 22:41
+
+
+
+
+居然剧情是后续？偶应该先去玩游戏吗？
+
+
+
+
+
+
+
+-----
+
+####  musicat  
+##### 43#       发表于 2020-4-3 22:43
+
+
+
+
+第一话也太公式化了点，每个人做一句话自我介绍的开场。
+期待下一话的正式剧情吧。
+
+
+
+
+
+
+
+-----
+
+####  迷路的  
+##### 44#       发表于 2020-4-3 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">柏林和伦敦的人有一起唱ED，看来二代（假如有）入团确定啊
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 45#       发表于 2020-4-3 23:27
+
+
+
+ 本帖最后由 伊可费斯 于 2020-4-3 23:29 编辑 
+
+三次元这么多年还是……
+另外居然改了铁蛋的机设<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">还我
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 46#       发表于 2020-4-3 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971529&amp;ptid=1901682" target="_blank">迷路的 发表于 2020-4-3 23:09</a>
+
+柏林和伦敦的人有一起唱ED，看来二代（假如有）入团确定啊</blockquote>
+游戏的ED也是大家一起唱的 这个真别想太多
+
+
+（水树入队了还有你新花组的活路？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  太阳寺太守  
+##### 47#       发表于 2020-4-3 23:37
+
+
+
+
+久保的人设3d的不够骚，不如只有机战做3d<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tamatama  
+##### 48#       发表于 2020-4-3 23:40
+
+
+
+
+英国为啥是兰斯洛特来啊，如果是队长应该排亚瑟；战斗力的话，帝击应该是樱吧。
+
+—— 来自 Xiaomi Redmi K20, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  knee又中箭了  
+##### 49#       发表于 2020-4-3 23:44
+
+
+
+
+三次元做的片子，那肯定都是3D啊
+
+
+
+
+
+
+
+-----
+
+####  gane1010  
+##### 50#       发表于 2020-4-3 23:48
+
+
+
+
+第一话很稳啊
+
+
+
+
+
+
+
+-----
+
+####  迷路的  
+##### 51#       发表于 2020-4-3 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971709&amp;ptid=1901682" target="_blank">无动于衷 发表于 2020-4-3 23:35</a>
+
+游戏的ED也是大家一起唱的 这个真别想太多
+
+
+（水树入队了还有你新花组的活路？） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想想确实，柏林团用水树和钉宫大概主要目的还是利用人气吸引新人入坑，常驻是不太现实
+
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 52#       发表于 2020-4-3 23:54
+
+
+
+<blockquote>tamatama 发表于 2020-4-3 23:40
+英国为啥是兰斯洛特来啊，如果是队长应该排亚瑟；战斗力的话，帝击应该是樱吧。
+
+
+—— 来自 Xiaomi Redmi K ...</blockquote>
+游戏里有段打戏就是兰斯洛特vs小樱
+
+
+兰斯洛特的实力并不低
+
+
+
+
+
+
+
+-----
+
+####  kraoo  
+##### 53#       发表于 2020-4-4 00:05
+
+
+
+
+第一话就是标准流程啊，唱了一场剧打了一场架，简直和模板一样，不过也挺好。动画听说是后传，剧情和游戏有联系吗
+
+
+
+
+
+
+
+-----
+
+####  dzcsings  
+##### 54#       发表于 2020-4-4 00:09
+
+
+
+
+听讲剧情是接在游戏之后的？
+那我是不是要打完游戏再来看？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 55#       发表于 2020-4-4 00:18
+
+
+
+
+同楼上 如果还需要本篇游戏的熟悉和理解 那就不看了
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 56#       发表于 2020-4-4 00:19
+
+
+
+
+没玩过游戏问一句，前女主们会出场吗？
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 57#       发表于 2020-4-4 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神山这就出差了，我还指望看他巨魔呢
+
+
+
+
+
+
+
+-----
+
+####  tachikoma0080  
+##### 58#       发表于 2020-4-4 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971980&amp;ptid=1901682" target="_blank">dzcsings 发表于 2020-4-4 00:09</a>
+
+听讲剧情是接在游戏之后的？
+
+那我是不是要打完游戏再来看？</blockquote>
+不打大概也能看下去，反正动画是新章节和前面剧情没有直接关系，不过玩过游戏对角色了解会多一点，还有几段涉及重要设定的剧情。
+
+
+
+
+
+
+
+-----
+
+####  Dai-Dai-Dai-Dai  
+##### 59#       发表于 2020-4-4 00:31
+
+
+
+
+不错啦，不过我全程<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+音乐充分发挥原作优势，给个好评
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 60#       发表于 2020-4-4 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46972049&amp;ptid=1901682" target="_blank">马桶3 发表于 2020-4-4 00:19</a>
+
+没玩过游戏问一句，前女主们会出场吗？</blockquote>
+游戏当初的角色介绍就已经出场了啊
+
+
+
+
+
+
+
+-----
+
+####  马桶3  
+##### 61#       发表于 2020-4-4 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46972172&amp;ptid=1901682" target="_blank">月夜凝雪 发表于 2020-4-4 00:34</a>
+
+游戏当初的角色介绍就已经出场了啊</blockquote>
+那这次动画有没有机会露脸呢？
+
+
+
+
+
+
+
+-----
+
+####  月夜凝雪  
+##### 62#       发表于 2020-4-4 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46972178&amp;ptid=1901682" target="_blank">马桶3 发表于 2020-4-4 00:35</a>
+
+那这次动画有没有机会露脸呢？</blockquote>
+我没玩游戏也不知道游戏后面怎么了，不过这个谁都不好说吧
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 63#       发表于 2020-4-4 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46972178&amp;ptid=1901682" target="_blank">马桶3 发表于 2020-4-4 00:35</a>
+那这次动画有没有机会露脸呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">游戏里樱高光过了，不过这动画看起来没前辈什么事了
+
+
+
+
+
+
+
+-----
+
+####  鶴来  
+##### 64#       发表于 2020-4-4 01:02
+
+
+
+
+还行，樱的师傅看起来也要填坑了。
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 65#       发表于 2020-4-4 01:05
+
+
+
+
+首先动画是游戏后传
+其次游戏可以去B站云一下，不用自己打
+第三游戏其实挺好玩的，打了不亏
+
+是说男主是怎么搞成那种风评的啊，对话选项疯狂巨魔吗？
+
+
+
+
+
+
+
+-----
+
+####  百升飞上天  
+##### 66#       发表于 2020-4-4 01:12
+
+
+
+
+完全承继游戏结局，这好度感怕是要重新刷了
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 67#       发表于 2020-4-4 01:22
+
+
+
+
+还行，中规中矩，挺稳的。克拉拉看来2代要成为正式队员了。
+
+
+
+
+
+
+
+-----
+
+####  ggrreen33  
+##### 68#       发表于 2020-4-4 02:21
+
+
+
+
+制委会里怎么有腾讯日本
+
+
+
+
+
+
+
+-----
+
+####  wly  
+##### 69#       发表于 2020-4-4 02:29
+
+
+
+
+佐仓唱歌真的不行，比前三任女主差的有点多。
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 70#       发表于 2020-4-4 05:00
+
+
+
+
+这质量挺稳的，希望一直保持下去
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kerorokun  
+##### 71#       发表于 2020-4-4 06:06
+
+
+
+
+上来就把男主踢走，这个可以有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sdzzzdc  
+##### 72#       发表于 2020-4-4 09:03
+
+
+
+
+神山在欧洲泡洋妞的部分说不定能出一话
+
+
+
+
+
+
+
+-----
+
+####  cowgp01  
+##### 73#       发表于 2020-4-4 09:09
+
+
+
+
+什么，骚话巨魔男主没了？
+
+
+
+
+
+
+
+-----
+
+####  绯夜殃雨  
+##### 74#       发表于 2020-4-4 09:30
+
+
+
+
+男主居然这么快就退场了
+
+
+
+
+
+
+
+-----
+
+####  windtrack  
+##### 75#       发表于 2020-4-4 10:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨魔男主果然甩了小樱去泡其他团的妹子了么
+
+
+
+
+
+
+
+-----
+
+####  沙包王  
+##### 76#       发表于 2020-4-4 11:10
+
+
+
+ 本帖最后由 沙包王 于 2020-4-4 11:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神山你这就把小樱甩了去其他团泡妹子了？大神好歹也呆了整整两作啊，其他队友风评看来是没错了，小白巨魔脸渣男啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来除了傻哭啦之外其他队友都选巨魔选项才是正统男主
+
+
+
+
+
+
+
+
+-----
+
+####  newise  
+##### 77#       发表于 2020-4-4 11:27
+
+
+
+
+我怎么就觉得这新佐仓大战整一个💊的节奏呢？
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 78#       发表于 2020-4-4 11:34
+
+
+
+
+三次元的sakura脸怎么这么大，我觉得不如游戏的建模<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 79#       发表于 2020-4-4 11:49
+
+
+
+ 本帖最后由 aptx8285144 于 2020-4-4 12:17 编辑 
+
+老一代都没看，看了第一话感觉列车那段剧情比后面主角团打斗要刺激紧张多了，主角团那段太短了，3d这作画确实不错，剧情节奏还比较流畅，不过佐仓这小迷妹样感觉怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  myarms  
+##### 80#       发表于 2020-4-4 12:05
+
+
+
+
+人物3D建模五官和头的比例有些奇怪
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 81#       发表于 2020-4-4 12:42
+
+
+
+
+想去b站看一下，刚刚还有番剧区的，现在没了
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 82#       发表于 2020-4-4 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46974536&amp;ptid=1901682" target="_blank">Yeaha123 发表于 2020-4-4 12:42</a>
+
+想去b站看一下，刚刚还有番剧区的，现在没了</blockquote>
+有啊，我现在还能看。。。
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 83#       发表于 2020-4-4 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46974536&amp;ptid=1901682" target="_blank">Yeaha123 发表于 2020-4-4 12:42</a>
+
+想去b站看一下，刚刚还有番剧区的，现在没了</blockquote>
+首页，左上角主站，然后番剧区。。
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 84#       发表于 2020-4-4 14:15
+
+
+
+
+这打戏经费很足啊
+
+
+
+
+
+
+
+-----
+
+####  tamatama  
+##### 85#       发表于 2020-4-4 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46971853&amp;ptid=1901682" target="_blank">无动于衷 发表于 2020-4-3 23:54</a>
+
+游戏里有段打戏就是兰斯洛特vs小樱
+
+
+兰斯洛特的实力并不低</blockquote>
+我就是吐槽下日本是队长，德国是队长，就英国派了个战力单位。虽然我怀疑是因为卖歌，毕竟我那霸响.
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 86#       发表于 2020-4-4 16:33
+
+
+
+
+看完了，3渲2的人物还是有些不自然
+但是打戏反而因为是3渲2导致没有崩坏
+有利有弊吧......
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就是插入歌佐仓和福凛唱的真是让人不敢恭维.....
+
+
+
+
+
+
+
+-----
+
+####  sdzzzdc  
+##### 87#       发表于 2020-4-4 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46975407&amp;ptid=1901682" target="_blank">tamatama 发表于 2020-4-4 16:11</a>
+
+我就是吐槽下日本是队长，德国是队长，就英国派了个战力单位。虽然我怀疑是因为卖歌，毕竟我那霸响. ...</blockquote>
+兰斯洛特结局还说想和神山打一次，也算有flag吧
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 88#       发表于 2020-4-4 17:08
+
+
+
+
+还以为是改编游戏，结果是新樱战之后的故事，不知道游戏会不会继续出
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 89#       发表于 2020-4-4 17:10
+
+
+
+
+樱小姐的声音听的高潮了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cybernetics31  
+##### 90#       发表于 2020-4-4 19:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就是冲着樱小姐唱高音去看的，还行吧
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 91#       发表于 2020-4-4 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46975692&amp;ptid=1901682" target="_blank">soranoguiji 发表于 2020-4-4 17:08</a>
+
+还以为是改编游戏，结果是新樱战之后的故事，不知道游戏会不会继续出</blockquote>
+销量虽然就那样，但是你想想如龙7成本大多了才不到50万销量，新樱战那么低的成本都能卖二三十万，肯定有赚头。
+
+
+
+
+
+
+
+-----
+
+####  培根芝士蛋堡  
+##### 92#       发表于 2020-4-4 20:22
+
+
+
+
+唉，我想看骚话神山，谁想看这些臭旅人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 美風藍| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 93#       发表于 2020-4-4 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46976518&amp;ptid=1901682" target="_blank">cybernetics31 发表于 2020-4-4 19:46</a>
+
+我就是冲着樱小姐唱高音去看的，还行吧</blockquote>
+田中大爷说特别欣赏佐仓的高音……
+
+
+我觉得TV版ED已经是进一步的迫害了……
+
+
+
+
+
+
+
+-----
+
+####  アーシェス  
+##### 94#       发表于 2020-4-4 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46976597&amp;ptid=1901682" target="_blank">任天索尼子 发表于 2020-4-4 20:00</a>
+
+销量虽然就那样，但是你想想如龙7成本大多了才不到50万销量，新樱战那么低的成本都能卖二三十万，肯定有 ...</blockquote>
+新樱战到处请画师，核心staff广井田中诗人要的钱估计都不会少吧
+
+
+
+
+
+
+
+-----
+
+####  アーシェス  
+##### 95#       发表于 2020-4-4 22:14
+
+
+
+
+不知道还能不能看见游戏里樱那种没文化的样子，还是说游戏后面已经没了？
+
+
+
+
+
+
+
+-----
+
+####  arthurmizuki  
+##### 96#       发表于 2020-4-4 22:33
+
+
+
+
+还是喜欢老派的唱法，插曲那里感觉会自然很多
+
+话说这3d日常僵表情僵，打斗反倒挺流畅的
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 97#       发表于 2020-4-4 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977282&amp;ptid=1901682" target="_blank">アーシェス 发表于 2020-4-4 22:14</a>
+
+不知道还能不能看见游戏里樱那种没文化的样子，还是说游戏后面已经没了？ ...</blockquote>
+樱只是不识字吧，后续没有发短信的话就看不到了……
+
+
+等等她不识字的话是怎么读剧本的……
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 98#       发表于 2020-4-4 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 我要看巨魔神山 谁他妈要看这些吕人
+
+
+化妆间对话一看就是巨魔选项达人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  殿珣  
+##### 99#       发表于 2020-4-4 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977567&amp;ptid=1901682" target="_blank">王留美 发表于 2020-4-4 23:02</a>
+樱只是不识字吧，后续没有发短信的话就看不到了……
+
+
+等等她不识字的话是怎么读剧本的…… ...</blockquote>
+剧本全平假<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">樱不认汉字
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 100#       发表于 2020-4-4 23:40
+
+
+
+
+新巨魔大战<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  natsu1211  
+##### 101#       发表于 2020-4-4 23:47
+
+
+
+
+超出预期，居然是后续。。
+
+不过这样游戏续作还能有么
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 102#       发表于 2020-4-4 23:53
+
+
+
+
+那位...好明顯是師父吧?不過師父在遊戲都沒太多表現，原本還以為是黑幕來
+
+不過看到今次的敵人，第一個反應是...殺女?
+
+不過2人的CV還是???
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 103#       发表于 2020-4-5 01:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977822&amp;ptid=1901682" target="_blank">natsu1211 发表于 2020-4-4 23:47</a>
+超出预期，居然是后续。。
+
+不过这样游戏续作还能有么</blockquote>
+没问题的 动画可以做不容易做成游戏的内容 游戏想编还是随便编续作的 
+
+
+
+
+
+
+
+-----
+
+####  gothicmaid  
+##### 104#       发表于 2020-4-5 01:59
+
+
+
+
+刚才重看op发现制作人里还有个叫姚迪的，是腾讯日本的？
+
+
+
+
+
+
+
+-----
+
+####  Wenber  
+##### 105#       发表于 2020-4-5 02:12
+
+
+
+
+泽城这虽然故意不说话但是光哼唧两句就够辨识的了
+
+
+
+
+
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 106#       发表于 2020-4-5 05:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">我对这个系列一点都不了解就随便看了第一话。不谈这明显完全粉丝向一点背景说明都没有的第一话脚本，你们都觉得这个3D真的可以吗？？？抛开还不错的机甲我觉得每个3d人都很吓人啊
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 107#       发表于 2020-4-5 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46979176&amp;ptid=1901682" target="_blank">mqnwbeebwnqm 发表于 2020-4-5 05:21</a>
+
+我对这个系列一点都不了解就随便看了第一话。不谈这明显完全粉丝向一点背景说明都没有的第一话脚本 ...</blockquote>
+这个系列的特点恰恰就是没有任何烧脑的背景剧情 想入坑随时可以入坑
+
+
+就好像你去看舞台剧 难道也要提前翻资料吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 108#       发表于 2020-4-5 10:34
+
+
+
+
+老粉就是自带滤镜的……说实话，我看了几分钟后关闭了
+
+
+
+
+
+
+
+-----
+
+####  xvi黑翼公  
+##### 109#       发表于 2020-4-5 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46979176&amp;ptid=1901682" target="_blank">mqnwbeebwnqm 发表于 2020-4-5 05:21</a>
+
+我对这个系列一点都不了解就随便看了第一话。不谈这明显完全粉丝向一点背景说明都没有的第一话脚本 ...</blockquote>
+因为游戏里角色建模和演出就是这样的，动画只不过是沿用了游戏的制作方式来拍而已。
+
+至于为什么不做成传统2D，应该是为了保持一致性和减少新开支吧。
+
+
+
+
+
+
+
+
+
+-----
+
+####  白房子  
+##### 110#       发表于 2020-4-5 12:36
+
+
+
+
+还是比较喜欢佐仓小姐的妹音<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，但是千万不要开口唱歌……
+
+
+
+
+
+
+
+-----
+
+####  黄字  
+##### 111#       发表于 2020-4-5 12:47
+
+
+
+ 本帖最后由 黄字 于 2020-4-5 12:48 编辑 
+
+这动画就是做游戏过场的做的，毕竟游戏最大的喷点就是3D建模奇怪了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">另外我觉得到这么多年都半点没接触过樱战系列的就别勉强自己看了吧。
+
+
+
+
+
+
+
+-----
+
+####  影山银  
+##### 112#       发表于 2020-4-5 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977567&amp;ptid=1901682" target="_blank">王留美 发表于 2020-4-4 23:02</a>
+
+樱只是不识字吧，后续没有发短信的话就看不到了……
+
+
+等等她不识字的话是怎么读剧本的…… ...</blockquote>
+樱不是不识字吧，只是发短信的时候都是紧急事态再加上不太会用手机所以把字打错了，后期我记得短信里面就没错别字了
+
+
+
+
+
+
+
+-----
+
+####  haluka  
+##### 113#       发表于 2020-4-5 14:33
+
+
+
+
+神山台词感觉是全推上摇杆，不巨魔没那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lushark  
+##### 114#       发表于 2020-4-5 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977667&amp;ptid=1901682" target="_blank">殿珣 发表于 2020-4-4 23:22</a>
+
+剧本全平假樱不认汉字</blockquote>
+请问这是游戏里哪段提到的？
+
+
+
+
+
+
+
+-----
+
+####  lushark  
+##### 115#       发表于 2020-4-5 17:19
+
+
+
+ 本帖最后由 lushark 于 2020-4-5 17:21 编辑 
+
+真就送给游戏玩家的赠礼啊，只买了份普通版的看起来都觉得有点不好意思。
+
+以及虽说是3D作画，但一看就没少修，很可以了。
+
+
+
+
+
+
+
+-----
+
+####  bm7号  
+##### 116#       发表于 2020-4-5 18:02
+
+
+
+
+我3d看得少，相比敌方，主角团倒像是披着人皮的怪物。
+
+
+
+
+
+
+
+-----
+
+####  殿珣  
+##### 117#       发表于 2020-4-5 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983667&amp;ptid=1901682" target="_blank">lushark 发表于 2020-4-5 17:14</a>
+请问这是游戏里哪段提到的？</blockquote>
+我记得有人说过是日版游戏中樱发短信都是平假，中文版改成了错别字。
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 118#         楼主| 发表于 2020-4-5 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46983667&amp;ptid=1901682" target="_blank">lushark 发表于 2020-4-5 18:14</a>
+
+请问这是游戏里哪段提到的？</blockquote>
+<img src="http://wx4.sinaimg.cn/large/82f2a336gy1g9vgztkrhsj21hc0u0wn9.jpg" referrerpolicy="no-referrer">
+
+
+汉字基本全错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lushark  
+##### 119#       发表于 2020-4-5 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46985289&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-4-5 19:43</a>
+
+汉字基本全错</blockquote>
+打错字这个我知道，但是好像没有说明到底是不擅长操作手机还是文盲，也没提剧本的事，不知道是不是哪个对话选择肢里的。
+
+
+
+
+
+
+
+-----
+
+####  lesangellos  
+##### 120#       发表于 2020-4-5 20:36
+
+
+
+ 本帖最后由 lesangellos 于 2020-4-5 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46980415&amp;ptid=1901682" target="_blank">麻花疼 发表于 2020-4-5 10:34</a>
+
+老粉就是自带滤镜的……说实话，我看了几分钟后关闭了</blockquote>
+你这是潜意识带有“不是系列粉肯定很尴尬”的一种暗示来看，自然看不下去.
+
+
+
+
+
+
+
+-----
+
+####  罗马教皇  
+##### 121#       发表于 2020-4-5 21:33
+
+
+
+
+虽然很多人都说，众女对诚哥的评语，貌似全点巨魔选项了，但是众女见到诚哥的反应，看起来还是好感度全满的样子？
+
+
+
+
+
+
+
+-----
+
+####  满月美夜子  
+##### 122#       发表于 2020-4-5 23:17
+
+
+
+
+3d的打戏不错啊，但人物确实看着有点不太适应
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 123#       发表于 2020-4-5 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46985289&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-4-5 19:43</a>
+汉字基本全错</blockquote>
+应该只是不善于用手机拼音输入法
+我记得这个短战结束时神山的台词是下次有机会一起练习写短信吧
+
+
+
+
+
+
+
+-----
+
+####  zhabi  
+##### 124#       发表于 2020-4-5 23:42
+
+
+
+
+樱武哪去了？樱小姐怎么变成开无限了
+
+
+
+
+
+
+
+-----
+
+####  天天那个啥  
+##### 125#       发表于 2020-4-5 23:54
+
+
+
+
+我没看过前作没玩过游戏，第一话很简单的就建立起对这系列的印象了，哪怕是对新人来说也很好入坑，一下子就能了解到这系列的主要特点
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 126#       发表于 2020-4-5 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46987738&amp;ptid=1901682" target="_blank">zhabi 发表于 2020-4-5 23:42</a>
+
+樱武哪去了？樱小姐怎么变成开无限了</blockquote>
+樱武不稳定，一般作战还是无限更靠谱。
+
+
+
+
+
+
+
+-----
+
+####  Dai-Dai-Dai-Dai  
+##### 127#       发表于 2020-4-6 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46986383&amp;ptid=1901682" target="_blank">罗马教皇 发表于 2020-4-5 21:33</a>
+虽然很多人都说，众女对诚哥的评语，貌似全点巨魔选项了，但是众女见到诚哥的反应，看起来还是好感度全满的 ...</blockquote>
+好感度继承了，然后在二周目疯狂巨魔
+
+
+
+
+
+
+
+-----
+
+####  FanFun  
+##### 128#       发表于 2020-4-6 00:51
+
+
+
+
+游戏也3D....会不会是直接把游戏的建模搬过来了吧
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 129#       发表于 2020-4-6 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46988273&amp;ptid=1901682" target="_blank">FanFun 发表于 2020-4-6 00:51</a>
+游戏也3D....会不会是直接把游戏的建模搬过来了吧</blockquote>
+我觉得把心态转换一下，直接看成可以直接云的新樱战1.5比较好
+
+真的，各种场景啊演出啊什么的，完全就是游戏的感觉
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 130#       发表于 2020-4-6 01:26
+
+
+
+<blockquote>FanFun 发表于 2020-4-6 00:51
+游戏也3D....会不会是直接把游戏的建模搬过来了吧</blockquote>
+TVA和游戏过场动画都是三次元负责的，游戏本身的建模和动画不一样
+
+
+
+
+
+
+
+-----
+
+####  百升飞上天  
+##### 131#       发表于 2020-4-6 09:01
+
+
+
+<blockquote>xvi黑翼公 发表于 2020-4-5 12:06
+因为游戏里角色建模和演出就是这样的，动画只不过是沿用了游戏的制作方式来拍而已。
+
+至于为什么不做成传统 ...</blockquote>
+
+3次元本来就是cg大社，不做cg做手绘那还找这社干嘛？
+
+
+
+
+
+
+
+-----
+
+####  罗马教皇  
+##### 132#       发表于 2020-4-6 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46988050&amp;ptid=1901682" target="_blank">Dai-Dai-Dai-Dai 发表于 2020-4-6 00:21</a>
+
+好感度继承了，然后在二周目疯狂巨魔</blockquote>
+所以B站弹幕有人说「全点巨魔选项又实现全员攻略」估计就是这种情况吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 133#       发表于 2020-4-6 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46989617&amp;ptid=1901682" target="_blank">罗马教皇 发表于 2020-4-6 09:26</a>
+所以B站弹幕有人说「全点巨魔选项又实现全员攻略」估计就是这种情况吧
+
+ ...</blockquote>
+也可能是圣诞全约了然后一场没去吧😂
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 134#         楼主| 发表于 2020-4-6 17:22
+
+
+
+ 本帖最后由 Toby_dak 于 2020-4-8 21:02 编辑 
+
+第2話：正体不明！謎の怪人現る
+
+
+神山から託されたクラーラを家族として迎える決意をしたさくら。一方、街では神出鬼没の怪人・白マントの話題で持ちきりになっていた。さくらはクラーラを連れて花組メンバーの紹介や大帝国劇場を案内することに。
+
+
+シナリオ：砂山蔵澄　 絵コンテ：石黒達也、なかの☆陽　 演出：後藤康徳
+
+<img src="http://wx4.sinaimg.cn/large/82f2a336gy1gdk63btwsij20m80ci75v.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gdk63dbnecj20m80ciwi9.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gdk63epcqlj20m80ci76x.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/82f2a336gy1gdk63g5h90j20m80ci0vj.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1gdk63hn7n3j20m80ci0wd.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gdk63j27tyj20m80ciacz.jpg" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 135#       发表于 2020-4-6 19:07
+
+
+
+
+最后那张图是啥……看着不像新莫击的空中战舰啊
+
+
+
+
+
+
+
+-----
+
+####  alerbe  
+##### 136#       发表于 2020-4-7 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46977234&amp;ptid=1901682" target="_blank">无动于衷 发表于 2020-4-4 22:06</a>
+
+田中大爷说特别欣赏佐仓的高音……
+
+
+我觉得TV版ED已经是进一步的迫害了…… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">是大家都喜欢欺负的樱小姐
+
+
+
+
+
+
+
+-----
+
+####  基本农田  
+##### 137#       发表于 2020-4-10 17:47
+
+
+
+
+樱小姐就是被迫害出阴影所以不爱唱歌了么。
+
+说正题，女主的眼睛不能干点啥吗，让我想起幼女战记的副官
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 138#       发表于 2020-4-10 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47038477&amp;ptid=1901682" target="_blank">基本农田 发表于 2020-4-10 17:47</a>
+
+樱小姐就是被迫害出阴影所以不爱唱歌了么。
+
+说正题，女主的眼睛不能干点啥吗，让我想起幼女战记的副官 ...</blockquote>
+“不爱唱歌”在先 然后田中大爷访谈里一直在夸佐仓小姐唱得好 需要鼓励云云
+
+
+然而我觉得起了反效果……
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 139#         楼主| 发表于 2020-4-10 21:30
+
+
+
+
+师父要做少年RED吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
+
+
+
+
+
+
+
+-----
+
+####  990076  
+##### 140#       发表于 2020-4-10 21:35
+
+
+
+
+小櫻那懷疑師父的表情ww
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 141#       发表于 2020-4-10 22:29
+
+
+
+
+光武三式改就是在挖坑 多半无限又得坏
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 142#       发表于 2020-4-10 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47041177&amp;ptid=1901682" target="_blank">无动于衷 发表于 2020-4-10 22:29</a>
+光武三式改就是在挖坑 多半无限又得坏</blockquote>
+无限坏了不能开樱武嘛……就强行降级😂
+
+本周也很安定，满足满足
+
+
+
+
+
+
+
+-----
+
+####  990076  
+##### 143#       发表于 2020-4-10 23:32
+
+
+
+
+三式光武更像是給克拉拉開吧
+
+
+
+
+
+
+
+-----
+
+####  武蔵  
+##### 144#       发表于 2020-4-10 23:40
+
+
+
+
+强行认不出师傅就是白披风，这也太都合了吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 145#       发表于 2020-4-10 23:40
+
+
+
+
+强行降级也是有梗的(参考2代)
+
+
+
+
+
+
+
+-----
+
+####  殿珣  
+##### 146#       发表于 2020-4-10 23:48
+
+
+
+<img src="https://p.sda1.dev/0/882b3fe561dc178549e63631b2e15e97/IMG_BA68249374AFA4D236CCE344B059F8DB.jpeg" referrerpolicy="no-referrer">
+老师自己吹自己还挺有趣的。还挺脱线的。游戏里对老师着墨不多，动画可以多写点
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 147#       发表于 2020-4-10 23:53
+
+
+
+
+師父:我家徒弟真是非常可愛...認得出刀法但認不到我的聲音
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 148#       发表于 2020-4-10 23:58
+
+
+
+
+樱的光武在游戏里不是被夜叉砍坏了吗，怎么又开出来了？
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 149#       发表于 2020-4-11 00:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还是想看神山啊，一群女队员没啥意思
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 150#       发表于 2020-4-11 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47041891&amp;ptid=1901682" target="_blank">Ditfran 发表于 2020-4-10 23:58</a>
+
+樱的光武在游戏里不是被夜叉砍坏了吗，怎么又开出来了？</blockquote>
+当然是被司马令士修好了
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 151#       发表于 2020-4-12 00:08
+
+
+
+
+真扎的角色拿着锤子当武器感觉好出戏呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 152#       发表于 2020-4-12 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47051018&amp;ptid=1901682" target="_blank">aptx8285144 发表于 2020-4-12 00:08</a>
+
+真扎的角色拿着锤子当武器感觉好出戏呀，樱小姐你的师傅连白衣服都没换，你没反应过来肯定是重度近 ...</blockquote>
+衣服肯定换了啊……
+
+
+<img src="https://img.saraba1st.com/forum/202004/12/004236atpf12xghdytyc7x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>swa02_Moment.jpg</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2020-4-12 00:42 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/12/004237sn536phzbniinzp1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1586530233828.jpg</strong> (113.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-12 00:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  沙包王  
+##### 153#       发表于 2020-4-12 10:02
+
+
+
+
+太草生了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+黑白色盲的速破AI sakura酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丹波朱红  
+##### 154#       发表于 2020-4-13 04:46
+
+
+
+<blockquote>武蔵 发表于 2020-4-10 23:40
+强行认不出师傅就是白披风，这也太都合了吧</blockquote>
+正常，游戏里的神山和库拉莉丝也一直认不出小巷里的占仆师是谁。^ω^
+
+
+
+
+
+
+                                            
