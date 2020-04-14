@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-15 02:00** 
+> ## **本文件最后更新于2020-04-15 04:00** 
 
 
 
@@ -3232,4 +3232,1905 @@ meaqua贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 
 
-                                           
+
+
+-----
+
+####  小博禹  
+##### 16690#       发表于 2020-4-15 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083772&amp;ptid=1912063" target="_blank">planetcd 发表于 2020-4-15 01:59</a>
+大概是刚官组剪了个贴贴先行版，又迅速删了吧</blockquote>
+原来是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 16691#       发表于 2020-4-15 02:02
+
+
+
+
+睡了😁
+
+—— 来自 OnePlus ONEPLUS A5000, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16692#       发表于 2020-4-15 02:03
+
+
+
+
+有看到staff表么
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16693#       发表于 2020-4-15 02:06
+
+
+
+
+官组都没啥人了，别要求那么高，想烤啥就烤啥吧。烤完又能续航百来天不是挺好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 16694#       发表于 2020-4-15 02:06
+
+
+
+
+你要干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我也是看到贴吧的图才知道，听着歌，没注意。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16695#       发表于 2020-4-15 02:08
+
+
+
+
+不忘初心，挺好的
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16696#       发表于 2020-4-15 02:08
+
+
+
+
+所有人以为“他们不至于还这么做吧”的时候
+他们真的这么做了，这也是一种______<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16697#       发表于 2020-4-15 02:08
+
+
+
+
+不都是mea很常唱的曲子么，哪来什么贴不贴的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16698#       发表于 2020-4-15 02:10
+
+
+
+
+。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有这种事
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16699#       发表于 2020-4-15 02:11
+
+
+
+
+是因为这个，虽然很快就删了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16700#       发表于 2020-4-15 02:12
+
+
+
+
+因为没想到因为啥，所以就往那边想了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，至于熟肉，现在又不是当年那时候了，我反正无所谓吧，多干活总是好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16701#       发表于 2020-4-15 02:13
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-15 02:16 编辑 
+
+说实话， 挺好笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+达到一定的程度就会显得滑稽
+
+
+睡了。 明天继续写代码<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16702#       发表于 2020-4-15 02:13
+
+
+
+
+倒是把staff截了啊，让我们瞅瞅
+
+不过猜都能猜到名单了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16703#       发表于 2020-4-15 02:13
+
+
+
+
+我不是谜语人啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">只是不想开团想抱怨一下的
+删了就算了
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 16704#       发表于 2020-4-15 02:13
+
+
+
+
+yysy，这不是你们一直想要的具有实效性的速切熟肉吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没什么不好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16705#       发表于 2020-4-15 02:14
+
+
+
+
+这可真是"产能过盛"啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16706#       发表于 2020-4-15 02:15
+
+
+
+
+艹（被净化的负能量迅速崛起，这什么几把玩意
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|摸摸头。 因为他们， 不值得|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16707#       发表于 2020-4-15 02:16
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/15/021550ramwowaooj4fml0s.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (23.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-15 02:15 上传
+
+
+
+
+
+
+最后在评论区冒了一下
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16708#       发表于 2020-4-15 02:17
+
+
+
+
+在乎那么多也没啥意义了。
+
+今天歌回唱的挺卖力，有2000同接，让人还是有点惊喜的。
+
+现在的字幕组也不可能凭空搞出好活儿来，整点烂活儿，至少有人看。
+
+都这个情况了，有人看就不错，想烤点什么烤点什么，想做点什么做点什么吧。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16709#       发表于 2020-4-15 02:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是兔鞠最近怎么一直追着mea直播看啊，他不会真的喜欢mea吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|贴贴|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuandi120  
+##### 16710#       发表于 2020-4-15 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083841&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-15 02:13</a>
+
+yysy，这不是你们一直想要的具有实效性的速切熟肉吗没什么不好的 ...</blockquote>
+什么v什么粉嘛，meaqua（b站限定）和速切熟肉（贴贴限定），挺般配的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16711#       发表于 2020-4-15 02:19
+
+
+
+
+人民群众喜闻乐见，后略
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16712#       发表于 2020-4-15 02:20
+
+
+
+
+哎，搞这些花里胡哨的干嘛
+
+建议先把“meaqua”正常化了再说
+
+和谁联动一碗水端平，官组泼盆冷水先给这些狂热粉丝脑子降降温，这样对主播，对粉丝都好
+
+
+什么，你说高额sc高点击率高播放量泥潭高kpi，好好好，当我没说。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16713#       发表于 2020-4-15 02:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先行片段又不是PV，上次夏哥MC联动也有剪，没必要PTSD（虽然正片还没出），贴贴民的粉丝氛围偶尔也是要维护一下的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 16714#       发表于 2020-4-15 02:22
+
+
+
+ 本帖最后由 小博禹 于 2020-4-15 02:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083880&amp;ptid=1912063" target="_blank">笋狐 发表于 2020-4-15 02:21</a>
+先行片段又不是PV，上次夏哥MC联动也有剪，没必要PTSD（虽然正片还没出），贴贴民的粉丝氛围偶尔也 ...</blockquote>
+我反正觉得挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">完全没必要删
+
+官组这发了又秒删简直和mea酱说自己是处女一样，当了婊子还要立牌坊，果然什v什粉
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古战场亡魂|-1|去了外野回来连人话都不会说了，可怜.|
+| noaki|-1|出色的比喻，就是脑子看上去不太好使.|
+| 路人庚|-1|欢乐多|
+| aisakahammer|-2|学学说话|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16715#       发表于 2020-4-15 02:23
+
+
+
+
+总归今天是好的<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+小心驶得万年船
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 16716#       发表于 2020-4-15 02:24
+
+
+
+
+屁大点事
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 16717#       发表于 2020-4-15 02:24
+
+
+
+
+其实是有人想退休了，找个事由就可以边骂边退还顺带捞一波鲜花与掌声，老剧本了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16718#       发表于 2020-4-15 02:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜官组这次没有被弱智巨魔占领智商，所以他们删了，真可惜
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 16719#       发表于 2020-4-15 02:24
+
+
+
+
+其实也挺可怜的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16720#       发表于 2020-4-15 02:24
+
+
+
+
+刚说完人手不足就更了先行pv，激活论有一手的。。。不过无所谓了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16721#       发表于 2020-4-15 02:24
+
+
+
+
+发了我也就乐一下，发了又删笑疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl
+兔鞠喜不喜欢mea我不知道，但我喜欢兔鞠
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16722#       发表于 2020-4-15 02:25
+
+
+
+
+我现在反而有点希望提高联动频率，弄得正常一点
+
+不要好久一次搞得大家狂欢一样，散场之后回去虚空创作或者梁木发病，直到下次联动继续疯
+
+但要是“正常联动”都没法搞，两人串起门来还不如兔苔随意的话，那我也只能说“隔了一层可悲的厚障壁”了——虽然好像早就是了
+
+说起来绿熊是不是该加强一下了（）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16723#       发表于 2020-4-15 02:26
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-15 02:27 编辑 
+
+删了大概是因为轴什么的有问题打回去了吧，你们难道真以为官组那些人会考虑到这么多东西然后决定明天再放这个肉吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，这俩人早就渐行渐远没共同语言了，不如学mrra断了对两边都好
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16724#       发表于 2020-4-15 02:27
+
+
+
+
+我倒是希望有多多meaqua联动， (在mea频道)， 然后让那些人多多发挥作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16725#       发表于 2020-4-15 02:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083886&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-15 02:22</a>
+
+我反正觉得挺好的完全没必要删
+
+
+官组这发了又秒删简直和mea酱说自己是处女一样，当了婊子还要立牌 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来来来，说清楚，怎么个当了婊子还要立牌坊？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16726#       发表于 2020-4-15 02:28
+
+
+
+
+发就发了呗。至于所谓的正常联动？我现在看着就挺正常的，mea最近联动的这么多，不差这一个
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16727#       发表于 2020-4-15 02:28
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-4-15 02:37 编辑 
+<blockquote>笋狐 发表于 2020-4-15 02:21
+先行片段又不是PV，上次夏哥MC联动也有剪，没必要PTSD（虽然正片还没出），贴贴民的粉丝氛围偶尔也 ...</blockquote>
+去年到现在揪着时效性骂过几次了，最近咩姐70w那个对粉丝的话和咩夏mc联动的先行pv都是两天后才投稿的。。。唉，不想说话
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16728#       发表于 2020-4-15 02:31
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-4-15 02:32 编辑 
+
+官组某些成员真的连装都不愿意装，一次又一次失望，没想到把期待放到最低还能再恶心到我，真的不把官号当咩姐的东西看
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16729#       发表于 2020-4-15 02:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083930&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-15 02:28</a>
+
+夏哥那个联动是20多天后才出的。。。去年到现在揪着时效性骂过几次了，最近咩姐70w那个对粉丝的话都是两 ...</blockquote>
+就是官组现在没有能喷火的单推人呗
+
+621在的时候自己龙了庄司那段，也才半天就发了，现在只是龙的人变成贴贴人了而已
+
+那么，谁愿意当二般通过天狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16730#       发表于 2020-4-15 02:31
+
+
+
+
+听着歌，不小心刷到，之后突然就有了成见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+确实有些反应过度，我去冷静冷静（睡觉）
+
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16731#       发表于 2020-4-15 02:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是有小道消息说这羊最近在募集人打麻将吗，结合加强绿熊，去年绿熊拉着羊联动天凤那个阵容复刻一波吧秋梨膏。对，拉上那只狐狸（
+
+
+syl，怎么我又预见到如果早上先行版发出来评论过千，点进去一看又是撕逼的场面了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16732#       发表于 2020-4-15 02:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我搞不清楚官组怎么回事，就像我搞不清楚兔皇到底害不害怕社霸二创
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16733#       发表于 2020-4-15 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083930&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-15 02:28</a>
+
+夏哥那个联动是20多天后才出的。。。去年到现在揪着时效性骂过几次了，最近咩姐70w那个对粉丝的话都是两 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们讲道理啊，先行片段220，直播218，你说的是反向TP吧
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16734#       发表于 2020-4-15 02:36
+
+
+
+
+雀魂工商请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过彩虹刚搞过
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16735#       发表于 2020-4-15 02:36
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-15 02:31
+就是官组现在没有能喷火的单推人呗
+
+621在的时候自己龙了庄司那段，也才半天就发了，现在只是龙的人变成贴 ...</blockquote>
+官组在621手上逐渐变成现在这个鸟样的，他作为去年年初的实际官组组长真是放任某些东西不管埋下大患。不过他现在估计在忙学习，咩姐大概已经无所谓了
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16736#       发表于 2020-4-15 02:36
+
+
+
+
+半年前贴贴人还能困兽犹斗，现在连他们自己都叫自己残党觉得某种意义上是傻叉了，就这环境你还搞这个速度……我怀疑官组某些人穿越过去可以干出1945年进皇协军的伟业。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16737#       发表于 2020-4-15 02:36
+
+
+
+<blockquote>笋狐 发表于 2020-4-15 02:35
+我们讲道理啊，先行片段220，直播218，你说的是反向TP吧</blockquote>
+我的问题，看错了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16738#       发表于 2020-4-15 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083886&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-15 02:22</a>
+
+我反正觉得挺好的完全没必要删
+
+
+官组这发了又秒删简直和mea酱说自己是处女一样，当了婊子还要立牌 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以之前看你还算正常，结果你去外野肖战楼逛了逛被饭圈女孩骂了一圈、v综云了一会学了句“太监”，为啥回来就变成这样了啊？
+
+你一边自认是贴贴人又自认独角兽又说mea当婊子，你是不是精神分裂啊？每次都来玩一击脱离很好玩吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16739#       发表于 2020-4-15 02:42
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-15 02:43 编辑 
+
+反正出来之后看播放量呗，我觉得肯定不会低的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+啥时候官组龙个贴贴肉出来播放量比你麻单人肉都低，那才说明这群人是真正的残党了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在叫自己残党的都是满足自己的优越感吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16740#       发表于 2020-4-15 02:44
+
+
+
+
+现在叫残党和越共是个时髦梗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16741#       发表于 2020-4-15 02:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083886&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-15 02:22</a>
+
+我反正觉得挺好的完全没必要删
+
+
+官组这发了又秒删简直和mea酱说自己是处女一样，当了婊子还要立牌 ...</blockquote>
+还事没权限扣鹅。
+
+
+傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16742#       发表于 2020-4-15 02:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行，重新上传了
+
+@小博禹   这波怎么说？
+
+[https://www.bilibili.com/video/BV14z411B754](https://www.bilibili.com/video/BV14z411B754)
+
+神乐Mea的膀胱管制【Meaqualol先行篇】
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16743#       发表于 2020-4-15 02:54
+
+
+
+
+这波啊，这波是不辞辛苦深夜加班赶工<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16744#       发表于 2020-4-15 02:55
+
+
+
+
+现在又投了，这些人哪想这么多呢
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16745#       发表于 2020-4-15 02:58
+
+
+
+
+好！我去点个赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 小博禹| + 1|记得投两个币|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16746#       发表于 2020-4-15 02:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么快就要还贷款了吗，只能劝梁木人少去评论区惹事了，这波真没必要
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16747#       发表于 2020-4-15 02:59
+
+
+
+
+可以下注了， 明天的评论会不会有事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16748#       发表于 2020-4-15 02:59
+
+
+
+
+做了哪有不投的道理
+
+挺好的，不爱看不看就是了，没必要拦着其他人找乐子。
+
+官组能光速烤出这个也是好的，现在mea身上还能有点他们感兴趣的东西，就是好事儿了。
+
+事到如今，就别挑食了。什么视频不是视频呢？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| meatybobby| + 1|成佛了成佛了 佛系單推人典範|
+| 魔法使い2019| + 1|老哥悟了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16749#       发表于 2020-4-15 03:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不知道，以前打架也没参与过，这事由不得我啊
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16750#       发表于 2020-4-15 03:04
+
+
+
+
+心疼你麻，又要收到一堆弹劾官组的怪文书
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 16751#       发表于 2020-4-15 03:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084029&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-15 02:53</a>
+还行，重新上传了
+
+@小博禹   这波怎么说？</blockquote>
+这不正说明了mea酱不是处女吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">你有什么好开心的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16752#       发表于 2020-4-15 03:07
+
+
+
+
+我被弱智到了，你赢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16753#       发表于 2020-4-15 03:08
+
+
+
+
+这种事连道场的小鬼都知道啊
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16754#       发表于 2020-4-15 03:08
+
+
+
+
+此一时彼一时，过去反对官组做六字母，是因为觉得mea还有那么大的潜力，但官组只顾自我满足，无视她个人，过度关注她以外的东西。
+
+现在嘛，就觉得：唉，她还有人看就不错了，讲究那么多干嘛。
+
+丧志了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16755#       发表于 2020-4-15 03:09
+
+
+
+<blockquote>小博禹 发表于 2020-4-15 03:06
+这不正说明了mea酱不是处女吗你有什么好开心的</blockquote>
+可以啊，在真爱楼这么蹦哒？你是家里祖坟被刨了，这么着急在楼里找人手把你埋进去？
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16756#       发表于 2020-4-15 03:10
+
+
+
+
+看着他们一旦贴贴就加班加点烤肉的样子，不有趣吗，不滑稽吗
+
+生活中不缺少乐子，只是缺少发现乐子的眼睛
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16757#       发表于 2020-4-15 03:13
+
+
+
+
+大火儿都这个岁数了，对那层膜也没什么在乎的。
+
+倒不如说按日本yhm的年龄，20岁左右，还是个主播，就不太可能是处女。
+
+
+但不是处女就是婊子了吗？
+
+那你妈是什么呢？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16758#       发表于 2020-4-15 03:14
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-15 03:08
+此一时彼一时，过去反对官组做六字母，是因为觉得mea还有那么大的潜力，但官组只顾自我满足，无视她个人， ...</blockquote>
+说的挺好的，看你这么能苟祝你telegram吃鸡
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16759#       发表于 2020-4-15 03:16
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-15 03:13
+大火儿都这个岁数了，对那层膜也没什么在乎的。
+
+倒不如说按日本yhm的年龄，20岁左右，还是个主播，就不太可 ...</blockquote>
+那你妈可能是jinv，毕竟你又不是你妈，你也不能证伪。
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 16760#       发表于 2020-4-15 03:19
+
+
+
+
+哈哈哈哈哈哈哈哈，半夜一个动态把我弄清醒了。
+
+牛逼嗷牛逼
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16761#       发表于 2020-4-15 03:19
+
+
+
+
+这里又不需要讨论这种无价值的东西。想黑屁滚出去，外面有的是地方。是黑屁吃多了，还是脑子进水了，连穿着衣服说话都做不到了？
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16762#       发表于 2020-4-15 03:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084097&amp;ptid=1912063" target="_blank">古战场亡魂 发表于 2020-4-15 03:16</a>
+
+那你妈可能是jinv，毕竟你又不是你妈，你也不能证伪。</blockquote>
+别无差别攻击，看看我怼的是谁再说，友军误伤是要扣分的。
+
+膜不膜的我真不怎么在乎，我估计大火儿也不太在乎。
+
+倒不如说“说一个人不是处女就是对她的攻击”这种思维方式，只该存在于未成年萌二脑子里。
+
+难道你生他气不是因为那句“当婊子立牌坊”吗？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16763#       发表于 2020-4-15 03:20
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-15 03:19
+别无差别攻击，看看我怼的是谁再说，友军误伤是要扣分的。
+
+膜不膜的我真不怎么在乎，我估计大火儿也不太 ...</blockquote>
+他是废物，我一直在骂啊，只是找了个靠近的回复罢了。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16764#       发表于 2020-4-15 03:23
+
+
+
+
+话题逐渐弱智起来了，该迫真论证小麻膜的完整性了吗
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16765#       发表于 2020-4-15 03:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084109&amp;ptid=1912063" target="_blank">古战场亡魂 发表于 2020-4-15 03:20</a>
+
+他是废物，我一直在骂啊，只是找了个靠近的回复罢了。</blockquote>
+别显示的自己对“处女”这件事反应过大，毕竟他就想看你这样。
+
+这是个既无法证实，也无法证伪的东西，所以你说是他说不是，但他笑嘻嘻，你气了，他就达成目的了。
+
+
+但以“处女与否”攻击人的这个逻辑本身就是站不住脚的，因为这是典型的未成年日漫痴萌二才会在乎的点
+
+所以从这个点去喷他，要比围绕“处女”更合理一些。
+
+毕竟把“非处”和“婊子”联系在一起的人，可能没有女朋友，也失去了母亲的清誉。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16766#       发表于 2020-4-15 03:25
+
+
+
+
+别论证这个好吗，怪恶心的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16767#       发表于 2020-4-15 03:25
+
+
+
+
+车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16768#       发表于 2020-4-15 03:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084092&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-15 03:14</a>
+
+说的挺好的，看你这么能苟祝你telegram吃鸡</blockquote>
+吃鸡的估计只可能是后来者，轮不到现在的人了。
+
+毕竟无病无灾，她能再播个几年，我们消耗这么大，未必能再看个几年。
+
+但是放平心态可以让人多活一段时间，总是好的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16769#       发表于 2020-4-15 03:27
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-4-15 03:34 编辑 
+<blockquote>yanghaozhend 发表于 2020-4-15 03:24
+别显示的自己对“处女”这件事反应过大，毕竟他就想看你这样。
+
+这是个既无法证实，也无法证伪的东西，所 ...</blockquote>
+我是觉得你很烦，从你跪舔用家里钱打赏，直播间辣鸡刷屏的未成年人，说只要有钱你愿意跪舔，你价值观就不行了。又不是打给你的？又不是你打的，你的行动简直莫名其妙，和你今天的发言如出一辙。
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 16770#       发表于 2020-4-15 03:29
+
+
+
+
+这熟肉看得我火气直往上蹭，大亏就tm一sb，对方都演那么用力了都不想配合，还出来当直播，真tm气人
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16771#       发表于 2020-4-15 03:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084066&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-15 03:06</a>
+
+这不正说明了mea酱不是处女吗你有什么好开心的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能解释一下你的逻辑吗？我一直很奇怪为什么你非常执着于对神乐mea进行荡妇羞辱
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16772#       发表于 2020-4-15 03:30
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-15 03:32 编辑 
+
+处不处这个还有一层就是你麻的欺骗也得考虑进去吧，和欺骗的内容无关单纯的骗了观众那也是516级别的问题，毕竟说的时候是反少日还挺严肃的
+
+不过她总不能直接说自己不是处了吧，那样估计烧她的更多(
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16773#       发表于 2020-4-15 03:31
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-15 03:27
+吃鸡的估计只可能是后来者，轮不到现在的人了。
+
+毕竟无病无灾，她能再播个几年，我们消耗这么大，未必能 ...</blockquote>
+神乐mea对于我而言她受苦难的时候更有意思，但我并没有想去推动她进火海。对中之人并没有过多的兴趣，也并不代表着把随便讨论19岁小姑娘是不是初这种话题挂嘴边当成多开明的表现。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16774#       发表于 2020-4-15 03:31
+
+
+
+<blockquote>2111X 发表于 2020-4-15 03:29
+这熟肉看得我火气直往上蹭，大亏就tm一sb，对方都演那么用力了都不想配合，还出来当直播，真tm气人 ...</blockquote>
+对咩姐和自己单人直播的态度不同，这不就是贴贴么
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16775#       发表于 2020-4-15 03:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">老粉都淡然了，重视生活与正主，无趣的粉丝节奏都随风去吧
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16776#       发表于 2020-4-15 03:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084123&amp;ptid=1912063" target="_blank">古战场亡魂 发表于 2020-4-15 03:27</a>
+
+我是觉得你很烦，从你跪舔用家里钱打赏，直播间辣鸡刷屏的未成年人，说只要有钱你愿意跪舔，你价值观就不 ...</blockquote>
+钱是出发点也是落脚点，如果他的钱是正经来的，那总是好的。
+
+况且只不过顺了他的心意，引导打钱，也谈不上什么跪舔。
+
+
+而至于他是个偷家里钱的散财童子，我一开始肯定是不知道的，只以为他是个脑子有点问题的富二代或者土豪。
+
+毕竟这钱不是三观问题，它是烫手，拿了会出事
+
+但如果你一开始就知道，那何不告诉大家，却要用事后才知道的情报去给当局者下判断呢？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16777#       发表于 2020-4-15 03:34
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-15 03:30
+处不处这个还有一层就是你麻的欺骗也得考虑进去吧，和欺骗的内容无关单纯的骗了观众那也是516级别的问题
+
+不 ...</blockquote>
+咩姐虽然特殊点，但作为vtb，根据直播内容讨论中之人是不是处挺怪的。。。
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 16778#       发表于 2020-4-15 03:34
+
+
+
+
+别想太多～
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16779#       发表于 2020-4-15 03:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084140&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-15 03:34</a>
+
+咩姐虽然特殊点，但作为vtb，根据直播内容讨论中之人是不是处挺怪的。。。 ...</blockquote>
+反少日那天和516一样都没放立绘，是她作为她自己而不是扮演的角色来面对观众的，说的也都是现实中的事
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16780#       发表于 2020-4-15 03:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你们阿宅看人都先看膜的吗，太可怕了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16781#       发表于 2020-4-15 03:38
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-15 03:34
+钱是出发点也是落脚点，如果他的钱是正经来的，那总是好的。
+
+况且只不过顺了他的心意，引导打钱，也谈不 ...</blockquote>
+一个金主再有钱打赏是他自己的事，把直播间氛围搞垃圾了，损失费是更多的普通观众，包括里面的潜在金主。看见短期收益其它啥都看不见才是搞笑。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16782#       发表于 2020-4-15 03:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是@小博禹 这位处女厨整天没事就跳进来说你mea姐是婊子，根本就没多少人对膜感兴趣吧，所以小博禹这位兄弟你能否好好的呆在你自己的独角兽楼别出来祸害大伙了啊？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16783#       发表于 2020-4-15 03:41
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-15 03:36
+反少日那天和516一样都没放立绘，是她作为她自己而不是扮演的角色来面对观众的，说的也都是现实中的事
+
+ ...</blockquote>
+这样么。。。入坑晚并没有看过反少日，只看了一点百科
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 16784#       发表于 2020-4-15 03:41
+
+
+
+
+🦄️？为什么这种东西会出现在这个论坛里的这个楼？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16785#       发表于 2020-4-15 03:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084148&amp;ptid=1912063" target="_blank">古战场亡魂 发表于 2020-4-15 03:38</a>
+
+一个金主再有钱打赏是他自己的事，把直播间氛围搞垃圾了，损失费是更多的普通观众，包括里面的潜在金主。 ...</blockquote>
+那么我们现在又要谈直播间氛围了，倒也可以。
+
+这么久以来，直播间的氛围到底怎么样呢？我觉得是算不上好的，刷梗的，版聊没少，人倒是越来也少。
+
+那她挣的钱最多的时候，是不是直播间氛围最好的时候呢？
+
+那么最后一问，她的直播间氛围最好的，也是人最少现在，潜在观众和潜在金主又去哪了呢？
+
+你的眼光长远，我的眼光未必短浅，如果他真的只是一个脑子有点问题的富二代或土豪，你未必不能引导他以后正常的说话和打钱，让他成为一个固定的，正常的金主。
+
+况且你骂他的时候，肯定没想那么长远，更多的是为了让自己心里先痛快点不是吗？
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 16786#       发表于 2020-4-15 03:55
+
+
+
+
+让更多人来看她，创造更多的“潜在观众”和“潜在金主”，我自认还是做了点微小的贡献的。
+
+倒也不必把“直播环境”这种道场的小鬼都能想通的事，作为自己眼光长远，别人眼光短浅的论证。毕竟琢磨琢磨，连你都想得到的东西，会有人想不到吗？
+
+不过我看走眼了是事实，怪我没开天眼一眼看穿他，也怪实名制上网没做到完全透明。
+
+事到如今我也不在乎这些“数字”的事了，至少她挣多挣少，看的人多人少，我是不会再多想了。
+
+自己能看一天是一天，“把命保住”是最主要的。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16787#       发表于 2020-4-15 03:58
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-15 03:55
+让更多人来看她，创造更多的“潜在观众”和“潜在金主”，我自认还是做了点微小的贡献的。
+
+倒也不必把“直 ...</blockquote>
+举极端例子没有必要。目前的直播间肯定比以前好多了。我可没说自己眼光长远，但是你在楼里传播那种非常功利化的跪舔金主的思想是不可取的，甚至那金主还不是你的，太迷惑了。
+
+
+
+
+
+                                        
