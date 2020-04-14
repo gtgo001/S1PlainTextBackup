@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 22:00** 
+> ## **本文件最后更新于2020-04-15 02:00** 
 
 
 
@@ -2287,4 +2287,949 @@ mea最近的联动里，就这次的嘉宾声音听不来，最喜欢的是虚�
 
 
 
-                                             
+
+
+-----
+
+####  路人庚  
+##### 16633#       发表于 2020-4-14 23:00
+
+
+
+
+真准点啊
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16634#       发表于 2020-4-14 23:01
+
+
+
+
+歌回来了
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 16635#       发表于 2020-4-14 23:07
+
+
+
+
+今天声音真好听啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16636#       发表于 2020-4-14 23:16
+
+
+
+
+唉，唉，阿咩唱歌真好听
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16637#       发表于 2020-4-14 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16638#       发表于 2020-4-14 23:23
+
+
+
+
+希望有人能替我抱抱她吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16639#       发表于 2020-4-14 23:24
+
+
+
+
+你咩姐开始正义发言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16640#       发表于 2020-4-14 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这疫情期是要闲出病来了，杂谈素材也没了，会忍不住跑出去么
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16641#       发表于 2020-4-14 23:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小僵尸来了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16642#       发表于 2020-4-14 23:32
+
+
+
+
+闲是好事，珍惜自己闲暇时光吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16643#       发表于 2020-4-14 23:40
+
+
+
+
+净化模式，要被脑控力<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16644#       发表于 2020-4-14 23:40
+
+
+
+
+我被净化了（
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16645#       发表于 2020-4-14 23:41
+
+
+
+
+《论眼界和见识》
+
+
+我觉得她也不是打死都不玩游戏的类型
+
+何况还有那么多别人的电视节目和直播可以看呢车轱辘同行也是一种办法
+
+
+当然万一真的根本世界观有差异，她要是觉得出门点杯饮料坐着也比在家里有意思我也没辙了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16646#       发表于 2020-4-14 23:42
+
+
+
+
+就这样死了也值得了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16647#       发表于 2020-4-14 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">需要被引导，但至少她会思考
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16648#       发表于 2020-4-14 23:51
+
+
+
+
+这首好听啊，虽然还是有点卡壳
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 16649#       发表于 2020-4-15 00:09
+
+
+
+
+唱完girigiri爱时候的迷之声是啥啊，循环出不去了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16650#       发表于 2020-4-15 00:12
+
+
+
+
+我倒确实有朋友是除了在家打游戏，一刻都不想坐下的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16651#       发表于 2020-4-15 00:22
+
+
+
+
+这个“呐”原曲明明没有这么突出强调的，看来你咩姐蛮喜欢这个“呐”的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16652#       发表于 2020-4-15 00:22
+
+
+
+
+你咩又不打篮球啥的
+
+
+跑去出还是要把自己累得够呛
+
+
+感觉还是社交方面的频率降低的感觉
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16653#       发表于 2020-4-15 00:29
+
+
+
+
+yhm增进感情的方式还得是出去一起逛街之类的，靠线上打个游戏就能关系变好只存在在纸片世界里<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16654#       发表于 2020-4-15 00:31
+
+
+
+
+被感染的什么话都说不出来了……你咩姐的苦情慢歌真是一绝…
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16655#       发表于 2020-4-15 00:33
+
+
+
+
+今天同接能过2000吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16656#       发表于 2020-4-15 00:33
+
+
+
+
+爽哥把你咩当bgm了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16657#       发表于 2020-4-15 00:34
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16658#       发表于 2020-4-15 00:52
+
+
+
+
+是双马尾的苔苔！！！！！啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aliade  
+##### 16659#       发表于 2020-4-15 00:52
+
+
+
+
+这波啊，这波是直播冲塔
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16660#       发表于 2020-4-15 00:54
+
+
+
+
+这波啊，这波是死者苏生（二度）
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16661#       发表于 2020-4-15 00:54
+
+
+
+
+那些说灰青的暗黑贴贴人呢？快过来啊—
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16662#       发表于 2020-4-15 00:55
+
+
+
+
+草，这smjb
+<img src="https://p.sda1.dev/0/b38854433da2099ff8773e499fa421c2/IMG_55DCF6233F605F80EFDB3F46BE0B8163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  奇拉奇拉  
+##### 16663#       发表于 2020-4-15 00:59
+
+
+
+
+挂在后台听歌，刚才切回去一个苔苔大脸吓我一跳
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16664#       发表于 2020-4-15 01:02
+
+
+
+
+还在播， 吓到了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16665#       发表于 2020-4-15 01:02
+
+
+
+ 本帖最后由 2014720 于 2020-4-15 01:06 编辑 
+
+要2000了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+过了2000！<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16666#       发表于 2020-4-15 01:07
+
+
+
+
+听到这么温柔的歌声，我已经没有斗虫的力气了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16667#       发表于 2020-4-15 01:08
+
+
+
+
++1。被净化了，随便吧
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16668#       发表于 2020-4-15 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083433&amp;ptid=1912063" target="_blank">2014720 发表于 2020-4-15 01:02</a>
+要2000了</blockquote>
+好
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16669#       发表于 2020-4-15 01:12
+
+
+
+
+最近歌回虽然多但都还算有点劲的，还行
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16670#       发表于 2020-4-15 01:18
+
+
+
+
+英语组好像挺有用的，直播间多好多英语发言。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16671#       发表于 2020-4-15 01:18
+
+
+
+
+啥时候能演唱会啊<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+唉，今年也是也一样不顺，难顶。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16672#       发表于 2020-4-15 01:24
+
+
+
+
+真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+真好啊
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16673#       发表于 2020-4-15 01:29
+
+
+
+
+演唱会反正也是线上的，阿b复工之后应该就能正常准备了吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16674#       发表于 2020-4-15 01:32
+
+
+
+
+她总不可能在家搞这个吧……肯定也要等那边结束的……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16675#       发表于 2020-4-15 01:33
+
+
+
+
+今天这i love不太行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16676#       发表于 2020-4-15 01:34
+
+
+
+
+这续了多少首了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16677#       发表于 2020-4-15 01:46
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-4-15 01:51 编辑 
+
+为什么贷款的黑屁总能成真呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+算了，也没啥太大的期望了
+
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 16678#       发表于 2020-4-15 01:47
+
+
+
+
+因为发生过太多次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16679#       发表于 2020-4-15 01:51
+
+
+
+
+历史沿着车轱辘印前进啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16680#       发表于 2020-4-15 01:52
+
+
+
+
+哎，服了，不指望什么了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16681#       发表于 2020-4-15 01:52
+
+
+
+
+meaqua贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 16682#       发表于 2020-4-15 01:54
+
+
+
+
+人类从历史中学到的教训就是...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16683#       发表于 2020-4-15 01:55
+
+
+
+
+你们突然又在说什么怪话，看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16684#       发表于 2020-4-15 01:55
+
+
+
+
+你们梁木太多了，单纯欣赏歌不行吗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16685#       发表于 2020-4-15 01:57
+
+
+
+
+不是，突然咋了，不就唱了几首贴贴金曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16686#       发表于 2020-4-15 01:58
+
+
+
+
+你们到底看到了啥，突然看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16687#       发表于 2020-4-15 01:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">大概是刚官组剪了个贴贴先行版，又迅速删了吧
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 16688#       发表于 2020-4-15 02:00
+
+
+
+
+明明我已经这么弱智了，怎么还是完全看不懂你们在说什么
+
+看来是我还不够弱智吗
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 16689#       发表于 2020-4-15 02:00
+
+
+
+
+刚才字幕组又上传他们的贴贴先导pv了，只是很快就删了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
