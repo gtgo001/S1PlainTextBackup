@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 04:02** 
+> ## **本文件最后更新于2020-04-14 12:02** 
 
 
 
@@ -26665,4 +26665,1645 @@ crew偏向夸沒毛病啊
 
 
 
-  
+
+
+-----
+
+####  若风之景  
+##### 2912#       发表于 2020-4-14 05:44
+
+
+
+<blockquote>无限舰制 发表于 2020-4-14 02:12
+至少别太严重的歪曲事实嘛
+
+
+简单来说我不认为两个YHM主播之间的友谊能保证什么“两边人品都不出问题”
+</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2913#       发表于 2020-4-14 05:51
+
+
+
+<blockquote>meatybobby 发表于 2020-4-14 03:10
+crew偏向夸沒毛病啊
+
+傻的是一群自稱咩夸雙推的貼貼人把crew當粉頭</blockquote>
+是的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2914#       发表于 2020-4-14 06:49
+
+
+
+ 本帖最后由 离心 于 2020-4-14 06:51 编辑 
+
+说到底至今不联动的主要原因就是两人直播路线的不同，mea是杂谈和唱歌为主，游戏为副（而且就算是游戏也就那几样加沙雕小游戏）而aqua是游戏为主，杂谈唱歌为副（杂谈还特虚无<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2915#       发表于 2020-4-14 06:59
+
+
+
+
+《牵强》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 2916#       发表于 2020-4-14 07:35
+
+
+
+
+如果不是前世那点关系x，如果不是大亏要恰烂钱o
+
+
+一己之见，不要在意，我想听听负责论，安排联动是不负责的吗？什么责任，为何不负责？
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 2917#       发表于 2020-4-14 07:58
+
+
+
+
+没有交集就别之前没啥表现收益化一过就跳出来嗯蹭啊，当初怎么就不负责了？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 2918#       发表于 2020-4-14 08:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47071766&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 02:56</a>
+
+这就是话术吗，这可真了不起
+
+han佬当初说的话可是我当初转变味meaquaanti的加速器呢双标就 ...</blockquote>
+说起来没记错的话，当时mk2就已经冲锋在最前线了啊，一点也不像个萌萌贴贴人，倒像个把自己的推当成至高无上的魔怔偶像厨。han虽然也是偶像厨，但是人家好歹把热情投入到二次创作里，你的热情就只能逼着自己的推出来说“不要说我的朋友的坏话”。
+
+“粉头”、“踩一捧一”这些神奇的用语要不是你们我还没听过呢，偶像厨别把自己投射到别人擅自把别人当偶像厨啊，还是有人看V只是图一乐的。要不是静凛后来玩的游戏不对我胃口，我可能还主要看她呢
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2919#       发表于 2020-4-14 08:22
+
+
+
+ 本帖最后由 若风之景 于 2020-4-14 09:19 编辑 
+<blockquote>面具13 发表于 2020-4-14 08:21
+说起来没记错的话，当时mk2就已经冲锋在最前线了啊，一点也不像个萌萌贴贴人，倒像个把自己的推当成至高 ...</blockquote>
++1，早看它不舒服了
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 2920#       发表于 2020-4-14 08:33
+
+
+
+
+双标和偏好本来就是正常的啊
+
+不如说不正常的本来就是mea组那些脑瘫
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 2921#       发表于 2020-4-14 09:16
+
+
+
+
+有偏好肯定是可以的啊，不过这么明显的偏向还当贴贴粉头，被拿出来批斗不很正常，要是普普通通做crew领袖，也不会老是被拖出来团建啊。所以归根结底，其实还是那套历史遗留问题，meaqua贴贴德不配位（确信
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2922#       发表于 2020-4-14 09:22
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-14 09:34 编辑 
+
+马后炮： 
+
+meaqua先天条件不足： 
+
+1.企业势个人势 2. 营业路线 3. 本土热度 
+
+当它引起对立， 矛盾没被化解甚至累积的时候就已经输了。
+
+因为双方（或者3方， 包括holo）打算冷却的概率会上升。
+
+要怪就怪meaqua民的代表性人物， 喊得最大声的那些人和在字幕组运营做出偏向性操作的人犯下的过错吧。
+
+没有道歉的迷惑行为，踩一捧一行为， 过激的， 对现实影响视而不见的行为， 宣告了meaqua的衰亡。
+
+
+被粉丝捧起来的cp亡于粉丝之手， 挺合理的。
+
+
+水能载舟， 亦能覆舟。
+
+
+出来混的， 总是要还的。
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2923#       发表于 2020-4-14 09:30
+
+
+
+<blockquote>魔法使い2019 发表于 2020-4-14 09:22
+马后炮： 
+
+meaqua先天条件不足： 
+
+1.企业势个人势 2. 营业路线 3. 本土热度 
+</blockquote>
+是的
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2924#       发表于 2020-4-14 09:31
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-4-14 09:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072243&amp;ptid=1914314" target="_blank">面具13 发表于 2020-4-14 08:21</a>
+说起来没记错的话，当时mk2就已经冲锋在最前线了啊，一点也不像个萌萌贴贴人，倒像个把自己的推当成至高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他们要是谨守本分，会有人来巴不得它们死？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 2925#       发表于 2020-4-14 09:36
+
+
+
+
+所以MK2本质上就是所谓的管人粉之粉呗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2926#       发表于 2020-4-14 09:38
+
+
+
+
+早就说了mk2不看管人了，当初病栋mea直播的时候不聊mea在那吵架的不就有mk2
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2927#       发表于 2020-4-14 09:40
+
+
+
+
+han当时不是还有人把他的言论当什么至高指示，在那里开贴挂起来吗
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2928#       发表于 2020-4-14 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072802&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-14 09:38</a>
+早就说了mk2不看管人了，当初病栋mea直播的时候不聊mea在那吵架的不就有mk2</blockquote>
+妈了巴子的满口喷粪的张口就来说我不看直播，当时我在骂不看直播的人反而在这乱战的人，你这脑残跑出来扣我帽子混淆事实了？
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 2929#       发表于 2020-4-14 09:48
+
+
+
+
+六字母人脑补能力过强，自我洗脑能力拉满。无论是当纸片人，主播还是偶像来看，也不应当不看台上表现，全靠虚无想象吧？只能说没有人比坟头更懂六字母了，二创和脑补才是一切，原作是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2930#       发表于 2020-4-14 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072856&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 09:43</a>
+妈了巴子的满口喷粪的张口就来说我不看直播，当时我在骂不看直播的人反而在这乱战的人，你这脑残跑出来扣 ...</blockquote>
+那你看直播咋还那么云呢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2931#       发表于 2020-4-14 09:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">云可能是因为看不懂
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2932#       发表于 2020-4-14 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072917&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-14 09:48</a>
+那你看直播咋还那么云呢</blockquote>
+我云的不是夸皇直播？现在看了就想吐出来你该不会指望我去天天守着吧。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2933#       发表于 2020-4-14 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072959&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 09:52</a>
+
+我云的不是夸皇直播？现在看了就想吐出来你该不会指望我去天天守着吧。 ...</blockquote>
+我当然说的是你云所有管人的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2934#       发表于 2020-4-14 09:54
+
+
+
+
+粉头这词儿还真不是暗黑贴贴壬创的，是粉头和粉头下面的人自封的，现在不也有“xx级牌子说话就是硬气”吗
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2935#       发表于 2020-4-14 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072966&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-14 09:53</a>
+我当然说的是你云所有管人的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的你说我云倒罢了，mea这个我不背哦，虽然不一定有空追直播，但是录像我都存了呢，我有空追的都尽量直播追了，她有时大半夜开tc导致我没看到，没了解到一些事，那样的话你说我云了，我没辙，我不可能24小时看管吧。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2936#       发表于 2020-4-14 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073053&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 10:00</a>
+
+别的你说我云倒罢了，mea这个我不背哦，虽然不一定有空追直播，但是录像我都存了呢，我有空追的都 ...</blockquote>
+你爬吧 没空24小时看管 倒是有空24小时对喷
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2937#       发表于 2020-4-14 10:12
+
+
+
+
+骂MK2云直播倒是没必要，你还是直接骂他大亏anti实在点，说到底能追全直播的人还是少数，难听点，你楼有几个和我差不多的
+
+录像全补全还去剪辑打轴的再说吧，也不是帮他说话，但是MK2这人的问题在以前隔壁绿帽谭显然算不上第一档突出的那个，
+
+如果非要选最突出那还是大亏anti这点，这点的确沾丶，最近去大亏直播间那波有丶不太行
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2938#       发表于 2020-4-14 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073164&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-4-14 10:12</a>
+
+你爬吧 没空24小时看管 倒是有空24小时对喷</blockquote>
+24小时看管恁考研过了？真别恶心我一整天看管人是什么强制DD洗脑ZC吗
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2939#       发表于 2020-4-14 10:15
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-4-14 10:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073183&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-14 10:13</a>
+
+24小时看管恁考研过了？真别恶心我一整天看管人是什么强制DD洗脑ZC吗</blockquote>
+我一分钟都不看的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer"> 日本话是什么鸟语 一个字都听不懂 看个jb
+
+
+
+
+
+
+
+-----
+
+####  ShyCrazydog  
+##### 2940#       发表于 2020-4-14 10:16
+
+
+
+
+得，真就全忘了，han在516的时候发动官组成员抨击甚至辱骂想去推特上给mea应援的人，道理说的头头是道（我也不知道她个crew操啥心），被他带动的某官组成员的妈都是这些向上推特应援的人救回来的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，结果后来mea说看到这些应援很感动，她屁话也不放一句（哦，人家说过自己不看mea直播来着？）
+       自从414后就有人把她当粉头供着舔，此后一直不停的拉mea这边的偏架，基本上每次mea这边单推和贴贴人吵架都能看到她的影子（可能确实是阿亏直播太无聊了需要找点事情做）。最后meaalice联动那次还想拉偏架，避重就轻，只谈有人在阿亏直播间刷mealice，只口不提mealice这边直接被刷爆了，然后被人用她动态相同的句式刷爆了评论区，可能是她发现这次热评里都没有人护她了，觉得大势已去，之后就低调了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2941#       发表于 2020-4-14 10:17
+
+
+
+
+mea这个真没办法，半夜TC真的遭不住放弃了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShyCrazydog  
+##### 2942#       发表于 2020-4-14 10:19
+
+
+
+
+顺便一提去年阿亏是卖什么紀念来着？有亲笔签名，但唯独海外的观众没有，好像引起了一批crew的不满。然后HAN护崽心切，直接b博动态一句“你觉得你配得上她的亲笔签名吗？”
+当然，Han肯定是配得上的，因为她当时在日本<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2943#       发表于 2020-4-14 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073206&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-4-14 10:15</a>
+
+我一分钟都不看的 日本话是什么鸟语 一个字都听不懂 看个jb</blockquote>
+那你讲个棒棒锤呢，24小时看管人真当观众人均家财万贯创业失败被迫继承亿万家产了是吧
+
+VI你能不能行一点啊，现在国V那里找到你这单亲家庭小玩意儿的温暖归处了没，你论坛考研一直可以的
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2944#       发表于 2020-4-14 10:21
+
+
+
+
+旧账翻起来了 好起来了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2945#       发表于 2020-4-14 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073292&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-14 10:21</a>
+
+那你讲个棒棒锤呢，24小时看管人真当观众人均家财万贯创业失败被迫继承亿万家产了是吧
+
+VI你能不能行一点 ...</blockquote>
+我喷mk2关你啥事 mk2是你爹？
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2946#       发表于 2020-4-14 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073299&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-4-14 10:22</a>
+
+我喷mk2关你啥事 mk2是你爹？</blockquote>
+我觉得你比喻烂不行？喷你用语都有问题了？24小时看管人这种喷法我看着觉得过于NT不行吗？MK2你随便喷啊，反正他的确NT一个，24小时什么JB
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2947#       发表于 2020-4-14 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073323&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-14 10:24</a>
+
+我觉得你比喻烂不行？喷你用语都有问题了？24小时看管人这种喷法我看着觉得过于NT不行吗？MK2你随便喷啊 ...</blockquote>
+他他妈自己先提的24小时看管 我说他没空24小时看管倒是有空24小时对喷有问题？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2948#       发表于 2020-4-14 10:28
+
+
+
+
+你俩对起线了还行，我要是mk2都笑死了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2949#       发表于 2020-4-14 10:28
+
+
+
+
+美好的一天从看到ntcrew无脑洗白开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2950#       发表于 2020-4-14 10:31
+
+
+
+<blockquote>草牛 发表于 2020-4-14 10:28
+你俩对起线了还行，我要是mk2都笑死了</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2951#       发表于 2020-4-14 10:31
+
+
+
+
+得，这又回到了老生常谈的话题了，到底是看管人还是管人粉丝了，我相信有些贴贴人是正常的，但我始终忘不了，碧蓝联动时一个贴贴弱智人对aqua三技能气急败坏的样子，竟然还有人附和，六字母贴贴人，永远的神
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2952#       发表于 2020-4-14 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bsyl，han是aqua单推有偏好正常，mea单推有偏好那也正常，请大家理性看待对han输出
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2953#       发表于 2020-4-14 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073356&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-4-14 10:27</a>
+
+他他妈自己先提的24小时看管 我说他没空24小时看管倒是有空24小时对喷有问题？ ...</blockquote>
+他自己说没时间24小时看管我可不觉得有什么问题，难道你觉得真有人能D到这B地步？
+
+24小时对喷难听点，您以前考研没听过所谓实验室网络不行的B事吗，没时间戴上耳机看管跟来论坛找人对线可不冲突，他给泥潭贡献KPI你咋这么不乐意了呢
+
+而且你一个不看日V的玩意儿来这里BB我觉得也挺搞笑的，VI你喜欢找乐子就直说，别搁这儿装NM正义使者，你和MK2本质差不多烂
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2954#       发表于 2020-4-14 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073263&amp;ptid=1914314" target="_blank">ShyCrazydog 发表于 2020-4-14 10:19</a>
+
+顺便一提去年阿亏是卖什么紀念来着？有亲笔签名，但唯独海外的观众没有，好像引起了一批crew的不满。然后HA ...</blockquote>
+别云了，别云了，拿云到的还是错误得信息去嘲讽别人看着真的尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2955#       发表于 2020-4-14 10:45
+
+
+
+
+喵喵喵<img src="https://static.saraba1st.com/image/smiley/animal2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ShyCrazydog  
+##### 2956#       发表于 2020-4-14 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073546&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 10:42</a>
+别云了，别云了，拿云到的还是错误得信息去嘲讽别人看着真的尴尬
+
+ ...</blockquote>
+那好哥哥能不能为了让我以后不尴尬，告诉我事情的真相<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2957#       发表于 2020-4-14 10:47
+
+
+
+ 本帖最后由 贴杂司马 于 2020-4-14 10:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073546&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 10:42</a>
+
+别云了，别云了，拿云到的还是错误得信息去嘲讽别人看着真的尴尬
+
+ ...</blockquote>
+有什么区别吗，没有to签然后别人不满han小姐来带节奏说你们怎么能这么说大亏不是吗
+
+本质不还是这边单独没有to签，难不成杏花那边事后给国内观众补上了？来庄司直播间直球这边都是YYR的亚当先生我们讲讲理嘛，给点正确情报，不要说别人不对连个正确解答都没有，他分不清to签你也该给他科普一下吗，难不成我问别人买了的都说没有是假的，你亚当18级大亏牌子给他们补一个？
+
+哦，敢情最后两边都没有了是吧，不过在最后两边都没有之前han小姐那段发言显然是出自自己真心的，难道你和她有什么特别关系不成？
+
+之前只在booth上时候是有的，后来开了海外通道有人带了to签节奏，结果两边都没有，这是我得到的情报，欢迎您的指正，最开始被带节奏难不成还是无中生有了
+
+
+
+
+
+
+
+
+-----
+
+####  ShyCrazydog  
+##### 2958#       发表于 2020-4-14 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073546&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 10:42</a>
+别云了，别云了，拿云到的还是错误得信息去嘲讽别人看着真的尴尬
+
+ ...</blockquote>
+好哥哥，对不起🧎‍♂️。刚刚了解了一下好像是to签，就是写粉丝名字的那种。而且并不是海外观众没有，而是之前只在booth上时候是有的，后来开了海外通道有人带了to签节奏，结果两边都没有。对不起我☁️的太过分了，在此表达深深的歉意
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2959#       发表于 2020-4-14 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073621&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-14 10:47</a>
+
+有什么区别吗，没有to签然后别人不满han小姐来带节奏说你们怎么能这么说大亏不是吗
+
+本质不还是这边单独没 ...</blockquote>
+得勒，又是一条被我钓鱼的气急败坏的舔狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我说你们云是全部都没有to签的，拿这个攻击大亏也太云了，还不如跟我学钓鱼，养个大亏牌子钓舔狗来攻击大亏来的实在<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 2960#       发表于 2020-4-14 10:57
+
+
+
+ 本帖最后由 贴杂司马 于 2020-4-14 11:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073703&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 10:54</a>
+
+得勒，又是一条被我钓鱼的气急败坏的舔狗
+
+我说你们云是全部都没有to签的，拿这个攻击大亏也太云了 ...</blockquote>
+我没拿这个攻击过大亏，说实话你觉得你钓鱼技术很高超我最多也就把你塞抹布啊，反正当年带节奏的是国内愿意买大亏to签的人，养牌子啊，不好意思，我觉得有您家四字母的牌子都嫌看到就烦
+
+不用觉得自己钓鱼很高超，下次可以去直播间，我继续找人送你720不谢
+
+四字母粉丝就这吗，建议混上房管再吹嘘一波自己的丰功伟绩嗷话又说回来，泥潭骂人舔狗算不算扣帽子啊，毕竟我真不舔主播的，我觉得你这护着大亏的样子比我还舔狗一点，特意点进去自己讨厌的直播间带节奏也是为难你这crew了哎
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2961#       发表于 2020-4-14 11:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">玩钓鱼还这么骄傲，不和mk2一起亲密亲密吗
+
+
+
+
+
+
+
+-----
+
+####  ShyCrazydog  
+##### 2962#       发表于 2020-4-14 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073703&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 10:54</a>
+得勒，又是一条被我钓鱼的气急败坏的舔狗
+
+我说你们云是全部都没有to签的，拿这个攻击大亏也太云了 ...</blockquote>
+好哥哥能多说点关于阿亏节奏的真相吗？我怕我之后又出去丢人<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2963#       发表于 2020-4-14 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073748&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-14 10:57</a>
+
+我没拿这个攻击过大亏，说实话你觉得你钓鱼技术很高超我最多也就把你塞抹布啊，反正当年带节奏的是国内愿 ...</blockquote>
+我不养牌子怎么钓你们舔狗去攻击大亏啊，你都把crew的帽子往我头上扣了，不正说明我钓鱼钓的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+就三字母和四字母的直播间我都懒得点进去的，都是软件送的
+
+
+S1有举报的，行动起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 2964#       发表于 2020-4-14 11:08
+
+
+
+
+所以现在meaqua只剩下粉丝有讨论度了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ashero| + 1|qs|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2965#       发表于 2020-4-14 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47073868&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 11:06</a>
+
+我不养牌子怎么钓你们舔狗去攻击大亏啊，你都把crew的帽子往我头上扣了，不正说明我钓鱼钓的好吗
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">云粉丝配云crew的帽子不是正好么
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2966#       发表于 2020-4-14 11:12
+
+
+
+
+为了保护自己的推当场脱粉，太嗯了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2967#       发表于 2020-4-14 11:13
+
+
+
+
+黑暗英雄，我看湿了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2968#       发表于 2020-4-14 11:14
+
+
+
+
+这是什么样的精神啊，是伟大管人粉丝的精神
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2969#       发表于 2020-4-14 11:17
+
+
+
+<blockquote>离心 发表于 2020-4-14 11:14
+这是什么样的精神啊，是伟大管人粉丝的精神</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 2970#       发表于 2020-4-14 11:17
+
+
+
+
+产出全靠粉丝，果然暗黑贴贴人和贴贴人没有本质区别
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2971#       发表于 2020-4-14 11:28
+
+
+
+
+亚当熏兄，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">挺爽的
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2972#       发表于 2020-4-14 11:32
+
+
+
+
+所以说你们舔狗以为在和脑瘫crew互掐，其实不过是一群乐子人钓你们两方狗咬狗一嘴毛看乐子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过谁叫你们舔狗弱智，见钩就咬，一钓就上钩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2973#       发表于 2020-4-14 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074183&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 11:28</a>
+
+亚当熏兄，改天我们一块去四字母直播间钓鱼啊挺爽的</blockquote>
+算了吧，你这钓鱼还要花钱的，人家一分钱不出都能黑屏钓一万
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2974#       发表于 2020-4-14 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074183&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 11:28</a>
+
+亚当熏兄，改天我们一块去四字母直播间钓鱼啊挺爽的</blockquote>
+你以为我没钓过？我三字母牌子都快20级了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+脑瘫crew还是太佛系了，哪有钓弱智舔狗好玩，你看看楼里舔狗那气急败坏的样子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2975#       发表于 2020-4-14 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074232&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-4-14 11:32</a>
+算了吧，你这钓鱼还要花钱的，人家一分钱不出都能黑屏钓一万</blockquote>
+qnmlgb,我钓鱼是crew打钱给龙皇，一帮人让辣辣军打钱狗妈，那不是左手换右手，有够nt的
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2976#       发表于 2020-4-14 11:36
+
+
+
+
+有一说一，黑屏钓一万是辣辣军太猛了，v8都看傻眼。
+
+crew费拉不堪应该钓不到那么多钱。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2977#       发表于 2020-4-14 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074275&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 11:35</a>
+你以为我没钓过？我三字母牌子都快20级了呢
+
+脑瘫crew还是太佛系了，哪有钓弱智舔狗好玩，你看看楼 ...</blockquote>
+没事没事，多送点钱，只要给mea送钱我觉得就行，哪有嫌钱多的
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2978#       发表于 2020-4-14 11:38
+
+
+
+ 本帖最后由 noaki 于 2020-4-14 11:41 编辑 
+
+''钓鱼是巨魔最后的遮羞布''.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+''其实我是在钓鱼''是真的可以缓解大部分尴尬的，很好用。
+话说回来了，无论是不是渔夫，拿''渔夫''兄这些话再贴个他的某隔壁楼发言记录应该可以拿去其它管人社区再钓一次，完了就是不承认自己在钓。效果我觉得会比''明示钓鱼''好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2979#       发表于 2020-4-14 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074308&amp;ptid=1914314" target="_blank">儒门正御应无骞 发表于 2020-4-14 11:37</a>
+
+没事没事，多送点钱，只要给mea送钱我觉得就行，哪有嫌钱多的</blockquote>
+你想多了吧，还送钱？你不会不知道辣条软件吧？也难怪舔狗弱智，什么V什么粉嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2980#       发表于 2020-4-14 11:41
+
+
+
+
+meaqua虽然亡了，但还是可以给贴贴壬提供二创脑补，给暗黑贴贴壬提供对线素材，给乐子人提供乐子，给渔夫提供鱼竿，给鱼提供鱼饵。meaqua，永远滴神。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2981#       发表于 2020-4-14 11:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亚当熏这三句不离舔狗把我给整笑了
+春风女神那句话怎么说来着，你们二次元是真的傻逼
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2982#       发表于 2020-4-14 11:43
+
+
+
+ 本帖最后由 儒门正御应无骞 于 2020-4-14 11:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074353&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 11:40</a>
+你想多了吧，还送钱？你不会不知道辣条软件吧？也难怪舔狗弱智，什么V什么粉嘛
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">早知道我就把夸牌刷的高高的，天天去夸皇直播间晃悠，还有我爱给mea打钱关你屁事啊。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2983#       发表于 2020-4-14 11:43
+
+
+
+
+还有你们对烤盐党恶意太大了，还好我不考
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2984#       发表于 2020-4-14 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">承认自己钓鱼和认输有什么区别
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2985#       发表于 2020-4-14 11:49
+
+
+
+ 本帖最后由 亚当薰 于 2020-4-14 11:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074409&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-4-14 11:44</a>
+
+承认自己钓鱼和认输有什么区别</blockquote>
+区别就在于钓鱼了快一年你们都没发现，而且六字母在乐子人的钓鱼下粉丝对立，基本死亡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+舔狗们欢呼这是他们的胜利，却不知道他们像猴一样被乐子人牵着走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在出来就是告诉弱智舔狗们事实，看他们被当猴耍气急败坏的样子取乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2986#       发表于 2020-4-14 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074409&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-4-14 11:44</a>
+
+承认自己钓鱼和认输有什么区别</blockquote>
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  Ashen-11  
+##### 2987#       发表于 2020-4-14 11:50
+
+
+
+
+你们别耍猴了，有个好鱼不容易啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2988#       发表于 2020-4-14 11:52
+
+
+
+
+六字母还需要乐子人钓鱼才能粉丝对立？你太小看六字母了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钓鱼就算了，能觉得自己有功是真的牛逼，你们乐子人都喜欢这么自娱自乐吗，太逗了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2989#       发表于 2020-4-14 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074479&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 11:49</a>
+
+区别就在于钓鱼了快一年你们都没发现，而且六字母在乐子人的钓鱼下粉丝对立，基本死亡
+
+舔狗们欢呼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种说法就和没有萨拉热窝的刺客就不会有一战一样，你以为是你钓鱼引起的，其实只是两边借你的手下刀
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2990#       发表于 2020-4-14 11:55
+
+
+
+
+我以为在s1是看不到承认自己在钓鱼这种精神胜利法的，对泥潭又一次幻灭了，s1水平再评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2991#       发表于 2020-4-14 11:55
+
+
+
+ 本帖最后由 noaki 于 2020-4-14 12:00 编辑 
+
+就是你凭一己之力挑起了这么长时间的粉丝对立？那你可真是个带恶人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 组织需要你这样的武器，对面不熟悉，摸不清。不像mk2那边都知道是个nt了反而不好整<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+...至于你是不是真心想被当武器使我们不介意的<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2992#       发表于 2020-4-14 11:55
+
+
+
+
+太啊Q了，给自己安个乐子人身份就真把自己代入了
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2993#       发表于 2020-4-14 11:56
+
+
+
+
+毕竟是aqua的粉丝所以是阿Q啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2994#       发表于 2020-4-14 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074518&amp;ptid=1914314" target="_blank">草牛 发表于 2020-4-14 11:52</a>
+
+六字母还需要乐子人钓鱼才能粉丝对立？你太小看六字母了吧
+
+钓鱼就算了，能觉得自己有功是真的牛逼， ...</blockquote>
+我钓鱼没功吗？你们弱智舔狗不是还拿我的发言截图疯狂团建来攻击crew和大亏，我加速了六字母粉丝的对立和死亡，你们舔狗还不感谢我吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 2995#       发表于 2020-4-14 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074518&amp;ptid=1914314" target="_blank">草牛 发表于 2020-4-14 11:52</a>
+
+六字母还需要乐子人钓鱼才能粉丝对立？你太小看六字母了吧
+
+钓鱼就算了，能觉得自己有功是真的牛逼， ...</blockquote>
+怎么又风怒了
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2996#       发表于 2020-4-14 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074589&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 11:57</a>
+我钓鱼没功吗？你们弱智舔狗不是还拿我的发言截图疯狂团建来攻击crew和大亏，我加速了六字母粉丝的对立和 ...</blockquote>
+你怎么老风怒<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2997#       发表于 2020-4-14 11:57
+
+
+
+
+bsyl，han应该是他爹或者🐴吧，为了保护han不被喷，我😭了
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  儒门正御应无骞  
+##### 2998#       发表于 2020-4-14 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074599&amp;ptid=1914314" target="_blank">Rem-清曲 发表于 2020-4-14 11:57</a>
+bsyl，han应该是他爹或者🐴吧，为了保护han不被喷，我😭了</blockquote>
+han是女的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以是她🐴
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2999#       发表于 2020-4-14 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074589&amp;ptid=1914314" target="_blank">亚当薰 发表于 2020-4-14 11:57</a>
+我钓鱼没功吗？你们弱智舔狗不是还拿我的发言截图疯狂团建来攻击crew和大亏，我加速了六字母粉丝的对立和 ...</blockquote>
+成功了成功了，都是你一手挑起的，一双巧手幕后操作，引得六字母风云变幻，太精彩了，跟电视连续剧似得
+
+
+
+
+
+
+
+-----
+
+####  Ashen-11  
+##### 3000#       发表于 2020-4-14 12:00
+
+
+
+
+一天的好心情从观赏张口闭口自己事高贵的钓鱼人开始
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
