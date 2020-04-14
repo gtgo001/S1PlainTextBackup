@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 14:02** 
+> ## **本文件最后更新于2020-04-14 16:01** 
 
 
 
@@ -22711,4 +22711,1083 @@ mea没必要b限lol，除非是转战dota2<img src="https://static.saraba1st.com
 
 
 
-       
+
+
+-----
+
+####  Rem-清曲  
+##### 16274#       发表于 2020-4-14 14:04
+
+
+
+
+话说千里酱考研成功了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16275#       发表于 2020-4-14 14:18
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-14 14:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076123&amp;ptid=1912063" target="_blank">Rem-清曲 发表于 2020-4-14 14:04</a>
+
+话说千里酱考研成功了吗？</blockquote>
+大概在论文地狱里受难吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+话说， 他是毕业论文吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+指硕士学位论文
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16276#       发表于 2020-4-14 14:19
+
+
+
+<img src="https://p.sda1.dev/0/d9381706504d8d7d613a2caa6e9df46c/IMG_ED36408C3CB8B46BCECF969E967AF272.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16277#       发表于 2020-4-14 14:22
+
+
+
+
+2.4g转5g这操作其实不是设置信道吧，这是改输出波长了（而且前提是她的wifi有这个功能
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16278#       发表于 2020-4-14 14:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就千里酱那隔三岔五水外野那样子，怕是又是论坛考研
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16279#       发表于 2020-4-14 14:26
+
+
+
+
+wifi那个真的好使吗。。我连网线才有那个速度
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16280#       发表于 2020-4-14 14:27
+
+
+
+
+跑去聊舞元了还行<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16281#       发表于 2020-4-14 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076280&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-14 14:18</a>
+
+大概在论文地狱里受难吧
+
+话说， 他是毕业论文吧</blockquote>
+论文和考研不冲突呀
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16282#       发表于 2020-4-14 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47075252&amp;ptid=1912063" target="_blank">鷹書たかしょ 发表于 2020-4-14 12:48</a>
+
+又是lol（clay并感）</blockquote>
+现在任何联动我都不看的）
+
+而且我前两个lol剪也没从任何联动里挑过素材，不想因为其他人的出现让评论弹幕被喧宾夺主。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 16283#       发表于 2020-4-14 14:29
+
+
+
+
+官组好急，直播间封面都换好了，饿坏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16284#       发表于 2020-4-14 14:34
+
+
+
+
+话说，现在字幕组是不剪单曲了么？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16285#       发表于 2020-4-14 14:40
+
+
+
+
+直播间标题都改了，难道不是她自己换的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16286#       发表于 2020-4-14 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她会换封面吗
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16287#       发表于 2020-4-14 14:44
+
+
+
+
+都说了组里没mix了，mix估计也就剩贴贴组里的瓶覗和那个萨尔亲传弟子了，萨尔哥，可以假装道个歉回来救救组里🐴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16288#       发表于 2020-4-14 14:47
+
+
+
+
+可别恶心我了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16289#       发表于 2020-4-14 14:48
+
+
+
+
+不是，这讨论的越来越奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥官组要找外面人做mix啊，你出钱啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16290#       发表于 2020-4-14 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥翻译组就非要会做mix？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16291#       发表于 2020-4-14 14:51
+
+
+
+
+饭盒那个gf游戏有中文了（
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16292#       发表于 2020-4-14 14:51
+
+
+
+
+有人约fanart那肯定也有人愿意约个mix，反正肯出钱的冤大头一抓一大把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16293#       发表于 2020-4-14 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076655&amp;ptid=1912063" target="_blank">uuuuu7 发表于 2020-4-14 14:51</a>
+有人约fanart那肯定也有人愿意约个mix，反正肯出钱的冤大头一抓一大把</blockquote>
+你是不是哪里有点毛病<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一边指望官组约个mix一边说是冤大头
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16294#       发表于 2020-4-14 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076646&amp;ptid=1912063" target="_blank">zhicai618 发表于 2020-4-14 14:51</a>
+
+饭盒那个gf游戏有中文了（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">还竟然是简体中文，这波真没想到。。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16295#       发表于 2020-4-14 14:57
+
+
+
+
+约mix当然是粉丝个人行为了，官组之后想干嘛那是他们的事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16296#       发表于 2020-4-14 14:58
+
+
+
+
+godfield的简中是fanbox群的那群人搞的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16297#       发表于 2020-4-14 14:58
+
+
+
+
+不是，你这一边安排mea性爱派对，一边在这整些语无伦次的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看来我前两天觉得你还挺正常是看歪了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16298#       发表于 2020-4-14 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你是想说mea骗钱还是mea官组骗钱啊，大胆点，把你想说的说出来
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16299#       发表于 2020-4-14 15:01
+
+
+
+
+我这不是在影射70w二创大赛那次吗，包括冤大头这种说法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没人看出来那就算了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16300#       发表于 2020-4-14 15:03
+
+
+
+
+饭盒，变身中（）
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16301#       发表于 2020-4-14 15:03
+
+
+
+
+不做挺好的，不然按照某些人的见地，萨尔可为麦克阿瑟之故事。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16302#       发表于 2020-4-14 15:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话都不会说就知道弱智巨魔快拉倒吧
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 16303#       发表于 2020-4-14 15:06
+
+
+
+ 本帖最后由 小博禹 于 2020-4-14 15:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076688&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-14 14:54</a>
+你是不是哪里有点毛病一边指望官组约个mix一边说是冤大头</blockquote>
+因为这人是个gay，他在嫉妒mea酱天天性爱趴
+
+哎呦回错了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">回的你下条消息
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16304#       发表于 2020-4-14 15:07
+
+
+
+
+我还蛮想官组不要mix和pv，直接把当天歌回精彩，高光的歌剪下来
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16305#       发表于 2020-4-14 15:08
+
+
+
+
+你看，这才是真正的弱智巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说我也不是gay啊，说话得拿出证据来，别传谣好吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16306#       发表于 2020-4-14 15:12
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-14 15:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076851&amp;ptid=1912063" target="_blank">素人不相识 发表于 2020-4-14 15:07</a>
+我还蛮想官组不要mix和pv，直接把当天歌回精彩，高光的歌剪下来</blockquote>
+u1s1没啥热点的话剪个歌出来我没多少人看的，记得二月情人节剪我成为别人的女朋友，还有后面一次投歌对比就挺明显的，播放量民激怒（
+
+syl<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那天被抽了的俩楼不是上面这俩人么
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16307#       发表于 2020-4-14 15:14
+
+
+
+
+70w那次没光速剪个新宝岛啊，除了那次最近也没多少有梗的歌了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16308#       发表于 2020-4-14 15:28
+
+
+
+
+又可以听到👼那()的声音，我时时刻刻殷切期望着这一刻的到来，愿天堂宽恕我，阿门
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 16309#       发表于 2020-4-14 15:28
+
+
+
+
+为啥非要pv啊
+我觉得官号上就不该放二创
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16310#       发表于 2020-4-14 15:32
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们打一架吧
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16311#       发表于 2020-4-14 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077158&amp;ptid=1912063" target="_blank">IrisL 发表于 2020-4-14 15:28</a>
+
+又可以听到👼那()的声音，我时时刻刻殷切期望着这一刻的到来，愿天堂宽恕我，阿门 ...</blockquote>
+你走错了，朝拜堂在对面<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16312#       发表于 2020-4-14 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47076851&amp;ptid=1912063" target="_blank">素人不相识 发表于 2020-4-14 15:07</a>
+我还蛮想官组不要mix和pv，直接把当天歌回精彩，高光的歌剪下来</blockquote>
+好
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16313#       发表于 2020-4-14 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077162&amp;ptid=1912063" target="_blank">Duke_of_Paris 发表于 2020-4-14 15:28</a>
+为啥非要pv啊
+我觉得官号上就不该放二创</blockquote>
+好主意
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16314#       发表于 2020-4-14 15:35
+
+
+
+
+我怎么感觉是官组没人了，歌pv没调音不发能理解，一般熟肉的时效性和质量是越来越低，除了和如月的联动已经lol剪辑，现在是两三天憋一个几个月前内容还不到五分钟的剪辑，近期杂谈有趣的地方和相关重要的事项也不烤，看着挺迷惑的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16315#       发表于 2020-4-14 15:38
+
+
+
+
+不屑于撞同好会的车吗？转发一下不也挺好，还是说同好会不给官组转？这波呀，这波是小团体我看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16316#       发表于 2020-4-14 15:39
+
+
+
+ 本帖最后由 路人庚 于 2020-4-14 15:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这饭盒回复问“吃了啥”的有4个，就离谱，你咩姐还每个都回了，窝也算是体会到了fansa的艰辛8
+
+
+syl
+
+↑你确定没有撞同好会的车吗?
+
+0331同好会：[https://www.bilibili.com/video/BV1pe411x7Kx](https://www.bilibili.com/video/BV1pe411x7Kx)
+
+0408官方号：[https://www.bilibili.com/video/BV1Fe411474j](https://www.bilibili.com/video/BV1Fe411474j)
+
+
+其实现在我已经懒得车字幕组的问题了，别哪天发病把熟肉全删了就万事大吉了（目前就这个心态，就很佛系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16317#       发表于 2020-4-14 15:39
+
+
+
+
+官组又不是一天两天这样了，关注现在就为了看个b限，真要找直播内容和情报同好会不好吗
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16318#       发表于 2020-4-14 15:41
+
+
+
+ 本帖最后由 Kayz996 于 2020-4-14 15:42 编辑 
+
+问问题这种是死宅最不擅长的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16319#       发表于 2020-4-14 15:42
+
+
+
+
+不是，你俩是暗黑官组gachi吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">官组一直都不转海盗肉的，我感觉也没啥毛病啊，同好会红莲华那个pv也转过了啊
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16320#       发表于 2020-4-14 15:42
+
+
+
+
+官组老毛病了，不知道是人手紧张还是什么原因。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16321#       发表于 2020-4-14 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077338&amp;ptid=1912063" target="_blank">h1001010 发表于 2020-4-14 15:42</a>
+官组老毛病了，不知道是人手紧张还是什么原因。</blockquote>
+摊手
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16322#       发表于 2020-4-14 15:47
+
+
+
+
+人手紧张（烤贴贴肉时除外）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16323#       发表于 2020-4-14 15:49
+
+
+
+
+官组转过一次同好会的内容，我是同好会和其他海盗（除了那个法国二刺螈）都关注了，也是靠这些人才发现官组的翻译方向越来怪，那么大的粉丝量不好好引导看着遗憾，咩那么多有趣的地方却没法展现给更多人，俺寻思现在不知道又有新人出道和收益化被收回过的人都有吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 16324#       发表于 2020-4-14 15:50
+
+
+
+
+别捧杀同好会了，现在就是靠fafa和hl69两个神龙在燃烧自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16325#       发表于 2020-4-14 15:50
+
+
+
+
+估计后天就有熟肉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 16326#       发表于 2020-4-14 15:51
+
+
+
+
+刚才一翻还看到去年11月记者咩版考察民意说官组要改变<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+然后呢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+现在别的都不指望，只要别给她惹事就行
+大概这也是奢望吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16327#       发表于 2020-4-14 15:54
+
+
+
+
+超级回复时间应该是结束了，到一库哥那画风都不一样了，还是蛮有喜剧效果的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16328#       发表于 2020-4-14 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077423&amp;ptid=1912063" target="_blank">pei23333 发表于 2020-4-14 15:49</a>
+官组转过一次同好会的内容，我是同好会和其他海盗（除了那个法国二刺螈）都关注了，也是靠这些人才发现官组 ...</blockquote>
+u1s1如月出道烤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">收益化回收是用推文通知的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过剪辑的内容倒确实和同好会的不一样
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16329#       发表于 2020-4-14 15:56
+
+
+
+
+那要不我们猜猜这次lol熟肉多久出？我赌一周内出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16330#       发表于 2020-4-14 15:56
+
+
+
+
+流量民看同好会播放量是真的看不下去是一方面，关键是有蛮多的能表现这女人种种当前状态给人看的稿子被埋没很心痛啊，二创组没产出，官组又不知道在干嘛，你咩能不凉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+《我不行我不上我就bb》
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16331#       发表于 2020-4-14 15:57
+
+
+
+
+除了没有大块熟肉还行吧，有意思的海盗不也先烤了吗
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 16332#       发表于 2020-4-14 15:57
+
+
+
+
+我赌明天
+先出个pv
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16333#       发表于 2020-4-14 15:57
+
+
+
+
+你麻搞贴贴联动其实是想让官组成员回归初心、找回一开始推咩时的热情，激励官组产能，老千层饼了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 16334#       发表于 2020-4-14 15:59
+
+
+
+
+  也别搁这儿车官组了。作为一个普通观众，官组海盗什么的都关注一圈基本上可以做到天天有肉看。对于一般观众来说已经很满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+  啊？你说什么时效性？什么公关？什么内部管理？俺就是一看客，现实里课本课外书都啃不过来了还去操心那些，累不累啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16335#       发表于 2020-4-14 16:00
+
+
+
+
+我现在对官组的最大期望就是别整活了，目前为止还行<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 16336#       发表于 2020-4-14 16:01
+
+
+
+
+如果官组人员推咩的初心是贴贴的话，那一切都解释得通了(
+
+
+
+
+
+     
