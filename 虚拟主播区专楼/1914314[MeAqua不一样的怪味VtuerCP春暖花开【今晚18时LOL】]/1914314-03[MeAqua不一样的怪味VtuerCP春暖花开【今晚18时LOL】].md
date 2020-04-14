@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 20:02** 
+> ## **本文件最后更新于2020-04-14 22:02** 
 
 
 
@@ -2077,4 +2077,309 @@ syl
 
 
 
-                                              
+
+
+-----
+
+####  oifaker  
+##### 3120#       发表于 2020-4-14 20:17
+
+
+
+
+听下来感觉，说是联动，其实和咩咩单人直播也没啥区别，就是多了一个一直hehehe的bgm，话题基本全是你咩在找，自演乙也基本上是你咩一直在整，感觉严重缺乏有效交流<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+要说最大的区别大概就是咩咩声音大了，因为多了一个bgm<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">天狗的耳膜受害更严重了
+
+有点累了，等咩咩晚上歌回吧<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+啊最后合作唱ed还是蛮有趣的，有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3121#       发表于 2020-4-14 20:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">下次贴贴再来首yygq灰青就圆满了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3122#         楼主| 发表于 2020-4-14 20:17
+
+
+
+
+这就是変わらないもの吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">真是有够胡闹的
+
+弹幕SC都不看一眼，所以咖啡厅呢<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3123#       发表于 2020-4-14 20:18
+
+
+
+
+“夸皇是真的不行”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3124#       发表于 2020-4-14 20:18
+
+
+
+
+直播结束了，梁木人请出来表演
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3125#       发表于 2020-4-14 20:19
+
+
+
+
+估计梁木人在码字了，养一晚明早来看
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 3126#       发表于 2020-4-14 20:20
+
+
+
+
+说好的心满意足晒太阳呢
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 3127#       发表于 2020-4-14 20:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你大亏演都不带演的，六字母名存实亡
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3128#       发表于 2020-4-14 20:26
+
+
+
+
+辛苦阿咩了，看在sc的份上今天不黑夸皇（
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3129#       发表于 2020-4-14 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不仲说已经传达到了，希望能搞不仲营业再恰一波
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 3130#       发表于 2020-4-14 20:40
+
+
+
+
+如果每联动一次mea都能收到这么多钱的话，那我对lzm联动真的没意见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3131#       发表于 2020-4-14 20:40
+
+
+
+
+不仲营业有点想看<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+最好能打起来，能听到扇巴掌声音的那种<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimuer  
+##### 3132#       发表于 2020-4-14 20:41
+
+
+
+
+能继续送钱给mea 其他的都可以随便搞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3133#       发表于 2020-4-14 20:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47080516&amp;ptid=1914314" target="_blank">planetcd 发表于 2020-4-14 20:37</a>
+
+不仲说已经传达到了，希望能搞不仲营业再恰一波</blockquote>
+那不就是“底边没什么好理会的”嘛，有什么好需要营业的么
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3134#       发表于 2020-4-14 21:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和刚才的联动比，这才叫真正的尬（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3135#       发表于 2020-4-14 21:13
+
+
+
+
+“她们都互相捅了一刀了，是糖！贴贴！”
+
+
+咩宝开台的联动可以多一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3136#       发表于 2020-4-14 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47080557&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-4-14 20:40</a>
+不仲营业有点想看
+
+最好能打起来，能听到扇巴掌声音的那种</blockquote>
+那不就说明线下了吗<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+贴贴  贴贴  贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3137#       发表于 2020-4-14 21:35
+
+
+
+
+像这种联动不都是会分成的吗，谁几谁几还不一定呢（逃）
+
+
+
+
+
+                                             
