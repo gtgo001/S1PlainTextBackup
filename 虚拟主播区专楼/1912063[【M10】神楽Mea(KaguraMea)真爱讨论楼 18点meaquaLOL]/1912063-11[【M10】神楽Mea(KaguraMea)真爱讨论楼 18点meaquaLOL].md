@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 18:02** 
+> ## **本文件最后更新于2020-04-14 20:01** 
 
 
 
@@ -24704,4 +24704,1882 @@ neet啊<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" ref
 
 
 
-   
+
+
+-----
+
+####  时雨rain  
+##### 16390#       发表于 2020-4-14 18:04
+
+
+
+
+好久没听见圣皇的声音了。。。
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 16391#       发表于 2020-4-14 18:08
+
+
+
+ 本帖最后由 贴杂司马 于 2020-4-14 18:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16392#       发表于 2020-4-14 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47078937&amp;ptid=1912063" target="_blank">贴杂司马 发表于 2020-4-14 18:08</a>
+
+感觉生疏了是我的错觉吗？</blockquote>
+你眼中有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16393#       发表于 2020-4-14 18:09
+
+
+
+
+艹，居然联动了？有谁告诉我圣皇这次转推了吗？
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16394#       发表于 2020-4-14 18:09
+
+
+
+
+vn露露标准逼打野当狗的组合
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16395#       发表于 2020-4-14 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比咖啡厅开头半小时要自然一些啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16396#       发表于 2020-4-14 18:10
+
+
+
+
+没转，
+
+
+说不定真的生疏了，
+
+
+还问最近怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16397#       发表于 2020-4-14 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47078957&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-14 18:09</a>
+比咖啡厅开头半小时要自然一些啊</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 16398#       发表于 2020-4-14 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这气氛怎么怪怪的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16399#       发表于 2020-4-14 18:11
+
+
+
+<blockquote>liousluna 发表于 2020-4-14 18:09
+艹，居然联动了？有谁告诉我圣皇这次转推了吗？</blockquote>
+没有
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16400#       发表于 2020-4-14 18:12
+
+
+
+
+熟悉的鬼叫（虽然没有贴贴）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16401#       发表于 2020-4-14 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47078784&amp;ptid=1912063" target="_blank">uuuuu7 发表于 2020-4-14 17:52</a>
+
+六点了我去看傻之逼新番不比虚无联动强吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，那个傻之逼弱智新番还不如看直播
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16402#       发表于 2020-4-14 18:13
+
+
+
+
+经典vn在塔下被q死不过是卡尔玛的q
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16403#       发表于 2020-4-14 18:13
+
+
+
+<blockquote>JY要塞 发表于 2020-4-14 18:12
+有一说一，那个傻之逼弱智新番还不如看直播</blockquote>
+我还以为会比游戏王强来着。。。结果半斤八两（虽然我不懂影之诗）上次咩姐玩露露玩的挺惨的，怎么不玩版本强势日女啊，月蚀皮肤还好看
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16404#       发表于 2020-4-14 18:14
+
+
+
+
+就是。。。很普通的直播啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 16405#       发表于 2020-4-14 18:14
+
+
+
+
+问最近咋样不是在小巨魔想关心aqua之前被anti么
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16406#       发表于 2020-4-14 18:14
+
+
+
+
+游戏王不是挺好的吗(前4部限定)，不过麻不怎么提，唯一一次提到是小时候看别人玩
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16407#       发表于 2020-4-14 18:16
+
+
+
+
+没转那就算了，再去看一遍pcr第二集好了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16408#       发表于 2020-4-14 18:16
+
+
+
+
+不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LOL直播，除了贴贴人难道有人一开始会觉得整啥大活吗，除非是咖啡厅才行啊
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16409#       发表于 2020-4-14 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起手比咖啡厅自然多了，只能说明你大亏哥不打游戏就不会聊天
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16410#       发表于 2020-4-14 18:17
+
+
+
+
+还联动着呢，没必要没必要，她们开心就好，明天继续猎杀贴贴人就好了
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 16411#       发表于 2020-4-14 18:17
+
+
+
+
+玩apex不就说话比玩lol还多了吗，毕竟我能做的事情更少了（不想聊天）
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16412#       发表于 2020-4-14 18:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">边刷s1边看直播很有意思的，两者缺一不可
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16413#       发表于 2020-4-14 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079055&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-14 18:17</a>
+还联动着呢，没必要没必要，她们开心就好，明天继续猎杀贴贴人就好了</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16414#       发表于 2020-4-14 18:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16415#       发表于 2020-4-14 18:19
+
+
+
+
+s1比直播好看一点
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16416#       发表于 2020-4-14 18:19
+
+
+
+
+emo草
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16417#       发表于 2020-4-14 18:19
+
+
+
+
+只能说一个不会打游戏一个不会聊天，就是这么悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16418#       发表于 2020-4-14 18:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然聊起粉丝生态了，神回啊
+
+
+
+
+
+
+
+-----
+
+####  荣耀祝福LV20  
+##### 16419#       发表于 2020-4-14 18:20
+
+
+
+
+要什么节目效果，只要他俩联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂得都懂
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16420#       发表于 2020-4-14 18:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这波我觉得要算mk2届到了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16421#       发表于 2020-4-14 18:21
+
+
+
+
+这样下次圣亏录游戏你麻解说好不好啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16422#       发表于 2020-4-14 18:21
+
+
+
+
+同步了同步了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16423#       发表于 2020-4-14 18:22
+
+
+
+<blockquote>Kayz996 发表于 2020-4-14 18:14
+游戏王不是挺好的吗(前4部限定)，不过麻不怎么提，唯一一次提到是小时候看别人玩 ...</blockquote>
+我记得那次在nga和人讨论过，她好像自己也有玩
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 16424#       发表于 2020-4-14 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079089&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-14 18:20</a>
+这波我觉得要算mk2届到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16425#       发表于 2020-4-14 18:22
+
+
+
+
+聊起粉丝生态和二创，车轱辘，没话说，幻灭了（我真这么想的）
+
+
+把粉丝二创当话题不就变成了三次创作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 16426#       发表于 2020-4-14 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么觉得这段话很刻意，是不是又有谁通风报信了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16427#       发表于 2020-4-14 18:24
+
+
+
+
+舞mea都能整出那么多怪文书<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相比之下这一对……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16428#       发表于 2020-4-14 18:24
+
+
+
+
+肯定有人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16429#       发表于 2020-4-14 18:24
+
+
+
+
+真有内鬼？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16430#       发表于 2020-4-14 18:25
+
+
+
+
+又不是不可能
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16431#       发表于 2020-4-14 18:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有才奇怪吧
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16432#       发表于 2020-4-14 18:25
+
+
+
+ 本帖最后由 IrisL 于 2020-4-14 18:27 编辑 
+
+我都无法想象mea邮箱有什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+变羊给得好慢是老了么
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16433#       发表于 2020-4-14 18:26
+
+
+
+
+这联动不亏8，贴贴人打钱还是挺猛的
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 16434#       发表于 2020-4-14 18:26
+
+
+
+
+其实就是交流少了没话说了 没法杂谈直播了呗
+感觉就跟毕业以后大学舍友那感觉吧 最近疫情甚至没法继续出去玩收集素材 咖啡厅应该没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16435#       发表于 2020-4-14 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079153&amp;ptid=1912063" target="_blank">IrisL 发表于 2020-4-14 18:25</a>
+
+我都无法想象mea邮箱有什么</blockquote>
+深 渊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16436#       发表于 2020-4-14 18:26
+
+
+
+
+bsyl，算了她俩开心就好
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16437#       发表于 2020-4-14 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079167&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-14 18:26</a>
+bsyl，算了她俩开心就好</blockquote>
++2
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 16438#       发表于 2020-4-14 18:29
+
+
+
+
+为什么还有人玩阿卡丽的，都被削成five了。。。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16439#       发表于 2020-4-14 18:29
+
+
+
+<blockquote>离心 发表于 2020-4-14 18:26
+bsyl，算了她俩开心就好</blockquote>
+bsyl是啥意思啊。。。
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16440#       发表于 2020-4-14 18:29
+
+
+
+
+用madoka打断了5岁rp
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16441#       发表于 2020-4-14 18:30
+
+
+
+
+果然骨子里都是lol废人，我居然感觉不到什么梁木，甚至不记得已经取关大亏快有一个月
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16442#       发表于 2020-4-14 18:30
+
+
+
+<blockquote>疾劲野风 发表于 2020-4-14 18:29
+为什么还有人玩阿卡丽的，都被削成five了。。。</blockquote>
+大招时间现在挺快的，匹配随便玩玩可以
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16443#       发表于 2020-4-14 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079164&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-14 18:26</a>
+深 渊</blockquote>
+把处理邮箱的官组成员都气疯掉那种东西
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16444#       发表于 2020-4-14 18:31
+
+
+
+
+bsyl，bsyl我理解的是不省一楼
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16445#       发表于 2020-4-14 18:31
+
+
+
+<blockquote>Leutnant某囧 发表于 2020-4-14 18:29
+bsyl是啥意思啊。。。</blockquote>
+不省一楼
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16446#       发表于 2020-4-14 18:31
+
+
+
+
+⬆️理解的对
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16447#       发表于 2020-4-14 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然还行啊，有五成PUBG抓人联动内味了（大概
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16448#       发表于 2020-4-14 18:32
+
+
+
+
+贴贴人打钱力度不太够啊
+
+时隔一百多天的联动难道不配总督吗，meaqua对你们而言只是这种程度的cp吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16449#       发表于 2020-4-14 18:33
+
+
+
+
+clay能出来说一下处理棉花糖的情况吗？我觉得和mea的邮箱应该没什么区别……
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16450#       发表于 2020-4-14 18:34
+
+
+
+<blockquote>离心 发表于 2020-4-14 18:31
+不省一楼</blockquote>
+谢谢楼上们的解答
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16451#       发表于 2020-4-14 18:35
+
+
+
+
+所以madoka到底是啥
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16452#       发表于 2020-4-14 18:35
+
+
+
+
+魔法少女小圆吧
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16453#       发表于 2020-4-14 18:36
+
+
+
+
+你麻最爱的小园
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16454#       发表于 2020-4-14 18:36
+
+
+
+
+去年330就在研究madoka是啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜一个小名
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16455#       发表于 2020-4-14 18:36
+
+
+
+
+まどか
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16456#       发表于 2020-4-14 18:37
+
+
+
+
+能下路弄点厉害的么？厄斐琉斯+泰坦来一发啊。。。枣子哥都不玩vn
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16457#       发表于 2020-4-14 18:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">人气这就过百万了，贴贴人还是多啊（也可能是crew多）
+
+
+
+
+
+
+
+-----
+
+####  yuandi120  
+##### 16458#       发表于 2020-4-14 18:39
+
+
+
+
+结果到最后只有lol废人是真物吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16459#       发表于 2020-4-14 18:40
+
+
+
+
+露露就是fw啊求求你别玩了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16460#       发表于 2020-4-14 18:40
+
+
+
+
+那不是，贴贴也是真物
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16461#       发表于 2020-4-14 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079229&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-14 18:33</a>
+
+clay能出来说一下处理棉花糖的情况吗？我觉得和mea的邮箱应该没什么区别…… ...</blockquote>
+还好啊，就是累，没啥其他的。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16462#       发表于 2020-4-14 18:41
+
+
+
+
+虽然帖的火热<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但刚才一看战绩0/9/14草
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16463#       发表于 2020-4-14 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079087&amp;ptid=1912063" target="_blank">笋狐 发表于 2020-4-14 18:20</a>
+居然聊起粉丝生态了，神回啊</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16464#       发表于 2020-4-14 18:42
+
+
+
+
+你打出去的钱和这个月的账单都是真物
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16465#       发表于 2020-4-14 18:42
+
+
+
+
+这狮子狗就爱玩蒸发
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16466#       发表于 2020-4-14 18:42
+
+
+
+<blockquote>IrisL 发表于 2020-4-14 18:40
+露露就是fw啊求求你别玩了</blockquote>
+露露不是fw，但是软辅难玩啊。。。咩姐练个日女不香吗
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 16467#       发表于 2020-4-14 18:43
+
+
+
+
+感觉这次演的好自然啊，熟悉的大亏味儿都回来了。。。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16468#       发表于 2020-4-14 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴贴投球居然冷场，你们这俩丫头行不行啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16469#       发表于 2020-4-14 18:44
+
+
+
+
+原创曲草
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 16470#       发表于 2020-4-14 18:44
+
+
+
+
+难受，宁愿这把的狮子狗是我
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16471#       发表于 2020-4-14 18:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如何看待凑阿库娅直播学唱神乐mea的原创曲？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16472#       发表于 2020-4-14 18:46
+
+
+
+
+看到弹幕刷才8点我笑了，我不禁也刷了一次
+
+
+
+
+
+
+
+-----
+
+####  青叶假司  
+##### 16473#       发表于 2020-4-14 18:46
+
+
+
+
+我战胜了我自己 我热爱贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16474#       发表于 2020-4-14 18:46
+
+
+
+
+支离破碎的交流
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16475#       发表于 2020-4-14 18:47
+
+
+
+
+这节奏也太好带了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16476#       发表于 2020-4-14 18:47
+
+
+
+
+相信大伙看的是lol，不是女人，👩爬
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16477#       发表于 2020-4-14 18:47
+
+
+
+
+被迫用英文向观众解释<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 16478#       发表于 2020-4-14 18:47
+
+
+
+
+别说，唱的还可以
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16479#       发表于 2020-4-14 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079388&amp;ptid=1912063" target="_blank">Cuppco 发表于 2020-4-14 18:47</a>
+别说，唱的还可以</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16480#       发表于 2020-4-14 18:52
+
+
+
+
+节奏来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 16481#       发表于 2020-4-14 18:53
+
+
+
+
+好久没看了，还是熟悉的菜味
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16482#       发表于 2020-4-14 18:55
+
+
+
+
+有人开始带节奏了（）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16483#       发表于 2020-4-14 18:56
+
+
+
+
+啥节奏啊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16484#       发表于 2020-4-14 18:56
+
+
+
+
+还是垃圾涌来那段儿，打的30sc，mk2亲传
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16485#       发表于 2020-4-14 18:58
+
+
+
+
+没看见节奏啊，就这？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 16486#       发表于 2020-4-14 18:58
+
+
+
+
+经典天空之城
+
+
+
+
+
+
+OGIAHW303%{Q)8])ISM8HFJ.png
+(21.48 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-14 18:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/14/185820h2hjk28h38otv3ob.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16487#       发表于 2020-4-14 18:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用理那种低智商节奏，好死不死敢挑今天联动来，这帮宵小怕不是会被饿了许久的贴贴民活撕了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16488#       发表于 2020-4-14 18:58
+
+
+
+
+原来是那个，在v8看到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1一段sc应该会被光速刷下去
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16489#       发表于 2020-4-14 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079461&amp;ptid=1912063" target="_blank">JustW 发表于 2020-4-14 18:56</a>
+还是垃圾涌来那段儿，打的30sc，mk2亲传</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16490#       发表于 2020-4-14 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079320&amp;ptid=1912063" target="_blank">Cla0221 发表于 2020-4-14 18:41</a>
+
+还好啊，就是累，没啥其他的。</blockquote>
+那好吧，看来我猜错了，以为棉花糖和mea的邮箱差不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">clay辛苦了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16491#       发表于 2020-4-14 18:59
+
+
+
+
+经典对面3AD出水银鞋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16492#       发表于 2020-4-14 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079320&amp;ptid=1912063" target="_blank">Cla0221 发表于 2020-4-14 18:41</a>
+还好啊，就是累，没啥其他的。</blockquote>
+辛苦了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16493#       发表于 2020-4-14 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实没看见这个sc
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 16494#       发表于 2020-4-14 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这水银鞋出的我真是
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 16495#       发表于 2020-4-14 19:02
+
+
+
+
+如何评价我到头来还是纯良贴贴人，我就喜欢两个水灵灵的妹子搞在一起👭❤️👭
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 16496#       发表于 2020-4-14 19:04
+
+
+
+
+这日语都搞不明白也能anti吗，靠看烤肉anti？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16497#       发表于 2020-4-14 19:04
+
+
+
+
+这会儿感觉放开了点了，好甜啊草，要变贴贴人力<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16498#       发表于 2020-4-14 19:05
+
+
+
+
+没有新黑料就是这样的，只能车轱辘
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16499#       发表于 2020-4-14 19:05
+
+
+
+
+30就想带节奏，别看不起节奏啊
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16500#       发表于 2020-4-14 19:05
+
+
+
+
+这种SC发出去人家就没懂他到底啥意思……传达不到的anti究竟属于哪一层呢
+
+
+
+
+

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 14:04** 
+> ## **本文件最后更新于2020-04-14 20:02** 
 
 
 
@@ -814,10 +814,12 @@ b限恰烂钱嘛，贴贴，不寒碜，反正mea开台<img src="https://static.
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 惑星| + 1|提前加鹅吧，真的没活了|
+| 魔法使い2019| + 1|你就是producer？|
 | whbstc4545| + 1|好评加鹅|
 
 
@@ -1232,4 +1234,847 @@ lolb限吸血都有了，咖啡厅第二季还会远吗<img src="https://static.
 
 
 
-                                               
+
+
+-----
+
+####  普通人止戈  
+##### 3071#       发表于 2020-4-14 14:09
+
+
+
+
+我摊牌了，我是乐子人，想看粉丝迷惑行为。
+
+
+
+
+
+
+
+-----
+
+####  夜明的月下  
+##### 3072#       发表于 2020-4-14 14:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">草了，我昨晚还在哭信玉贴贴。今天这对就搞这一出
+
+
+
+
+
+
+
+-----
+
+####  SumW5  
+##### 3073#       发表于 2020-4-14 14:17
+
+
+
+ 本帖最后由 SumW5 于 2020-4-14 14:21 编辑 
+
+<strong>春よ、来い</strong>
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|でも春とともにきたのは暖かい日差しだけで.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3074#       发表于 2020-4-14 14:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想了想我果然还是开始看管人之前就是糖anti的感觉了（任何作品都是这样）
+
+
+爱都不该被公开展示消费，更别说友情了
+
+
+可以默默品味，但公开提出来就觉得像是被污染了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+哪怕没有任何迷惑行为，单单一句“发糖”就能让我心生恶感
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 3075#       发表于 2020-4-14 14:29
+
+
+
+
+好起來了 準備看今晚貼貼人能打多少錢了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3076#       发表于 2020-4-14 14:30
+
+
+
+<blockquote>thisisaspider 发表于 2020-4-14 13:59
+乐子人居然站出来对某些粉丝的迷惑操作负责。真的太伟大了。这一刻乐子人的本质得到了升华 ...</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  花泽冒菜  
+##### 3077#       发表于 2020-4-14 15:25
+
+
+
+
+meaqua贴贴啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3078#       发表于 2020-4-14 15:28
+
+
+
+
+怎么冒出这么多贴贴人？平时都没看到你们出来团建刷kpi，柰子要哭了
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3079#       发表于 2020-4-14 15:46
+
+
+
+ 本帖最后由 ColdAir 于 2020-4-14 15:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">性爱双排约等于直播做爱，妈妈我磕了对真的
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3080#       发表于 2020-4-14 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077163&amp;ptid=1914314" target="_blank">离心 发表于 2020-4-14 15:28</a>
+怎么冒出这么多贴贴人？平时都没看到你们出来团建刷kpi，柰子要哭了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 3081#       发表于 2020-4-14 16:56
+
+
+
+
+是meaqua联动 ！！   来了来了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3082#       发表于 2020-4-14 17:20
+
+
+
+
+草，一下午没看时代就变了，佛了
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 3083#       发表于 2020-4-14 17:21
+
+
+
+
+贴贴！
+
+咖啡厅2还有吗
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3084#       发表于 2020-4-14 17:30
+
+
+
+
+还行 贴贴
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3085#       发表于 2020-4-14 18:02
+
+
+
+
+来了来了 贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3086#       发表于 2020-4-14 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是老配方的贴贴开场，真熟练啊
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 3087#       发表于 2020-4-14 18:09
+
+
+
+
+不方便翻，亏皇转推了吗，可以开始贴了吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 3088#       发表于 2020-4-14 18:10
+
+
+
+
+贴贴人，复活！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3089#       发表于 2020-4-14 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一上来就问近况是多久没见了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3090#       发表于 2020-4-14 18:11
+
+
+
+
+没转推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3091#       发表于 2020-4-14 18:12
+
+
+
+
+没转，反正不缺这点梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3092#       发表于 2020-4-14 18:14
+
+
+
+
+我没什么所谓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3093#       发表于 2020-4-14 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079012&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-4-14 18:14</a>
+我没什么所谓</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 3094#       发表于 2020-4-14 18:14
+
+
+
+
+是我127喜欢的后花园秘密约会，贴了贴了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3095#       发表于 2020-4-14 18:14
+
+
+
+
+看看这SC，暗黑贴贴人多么卑微<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3096#       发表于 2020-4-14 18:14
+
+
+
+
+啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+为什么！！！！！
+
+
+mea酱邀请你去玩apex， aqua酱你为什么要当作没听到？？？！！！
+
+
+幻灭了！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3097#       发表于 2020-4-14 18:19
+
+
+
+
+太吵了！！！这就是我的青春吗?幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3098#         楼主| 发表于 2020-4-14 18:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这是哪儿听到贴贴破产的风声了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3099#       发表于 2020-4-14 18:20
+
+
+
+
+来呖，点草来呖
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3100#       发表于 2020-4-14 18:20
+
+
+
+
+大亏还是分不清说谎和演技的区别，真敷衍啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3101#       发表于 2020-4-14 18:21
+
+
+
+
+草有内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3102#       发表于 2020-4-14 18:25
+
+
+
+
+不是5岁夸还是非常喜欢的
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3103#       发表于 2020-4-14 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079141&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-14 18:25</a>
+不是5岁夸还是非常喜欢的</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3104#       发表于 2020-4-14 18:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那么快就到学婴儿阶段了，后面怎么办
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 3105#       发表于 2020-4-14 18:32
+
+
+
+
+剧透了剧透了真的被楼友剧透了
+
+可恶
+
+
+
+
+
+
+
+-----
+
+####  Oshino57  
+##### 3106#       发表于 2020-4-14 18:33
+
+
+
+
+又是 LOL 又是 b 限（
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3107#       发表于 2020-4-14 18:37
+
+
+
+
+b站限定贴贴的实质就是看弹幕不停地刷直播无关梗罢，无聊，撤了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3108#       发表于 2020-4-14 18:39
+
+
+
+
+我去做事了， 等下看有没有神回（
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3109#       发表于 2020-4-14 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次我就奔着弹幕乐子去看的，结果没什么活儿都没，时隔那么久了，anti都熬死了吗
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3110#         楼主| 发表于 2020-4-14 18:48
+
+
+
+
+会在mea直播间里整活的是哪一种型号的Anti啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+syl
+
+好久没听制糖曲了，将来的将来，能不能营业一波互唱原创曲啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3111#       发表于 2020-4-14 18:55
+
+
+
+
+直播结束前就先不插梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3112#       发表于 2020-4-14 19:03
+
+
+
+
+可爱，suki，我好了
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 3113#       发表于 2020-4-14 19:23
+
+
+
+
+夸哥真就一点面子不给，啥话题都不抛光沉默着等mea装疯卖傻逗他啊？meaqua果然是名存实亡，日常普通能聊的一点聊完了只能玩尬的混时长了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3114#       发表于 2020-4-14 19:27
+
+
+
+
+别说了，看看夸夸本质lol废人只是想翻盘而已啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3115#       发表于 2020-4-14 19:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你夸狂打哈欠，看来也是腻了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3116#       发表于 2020-4-14 19:31
+
+
+
+
+这直播间背景怎么还实时更换的草
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 3117#       发表于 2020-4-14 19:35
+
+
+
+
+“我和你妈谁重要？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  摘星者  
+##### 3118#       发表于 2020-4-14 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+这也太尬了吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3119#       发表于 2020-4-14 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077383&amp;ptid=1914314" target="_blank">ColdAir 发表于 2020-4-14 15:46</a>
+性爱双排约等于直播做爱，妈妈我磕了对真的</blockquote>
+艹
+
+
+
+
+
+                                              
