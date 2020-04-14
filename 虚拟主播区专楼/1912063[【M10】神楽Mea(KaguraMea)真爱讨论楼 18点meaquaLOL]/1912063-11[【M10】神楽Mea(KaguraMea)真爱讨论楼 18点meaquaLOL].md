@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-14 16:01** 
+> ## **本文件最后更新于2020-04-14 18:02** 
 
 
 
@@ -23749,10 +23749,15 @@ u1s1如月出道烤了<img src="https://static.saraba1st.com/image/smiley/face20
 
 
 
+ 本帖最后由 noaki 于 2020-4-14 16:04 编辑 
 
   也别搁这儿车官组了。作为一个普通观众，官组海盗什么的都关注一圈基本上可以做到天天有肉看。对于一般观众来说已经很满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
   啊？你说什么时效性？什么公关？什么内部管理？俺就是一看客，现实里课本课外书都啃不过来了还去操心那些，累不累啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+syl    上个月下来官组看上去运行得挺好的，和平，没有大规模粉丝冲突。安安稳稳的多好
 
 
 
@@ -23790,4 +23795,913 @@ u1s1如月出道烤了<img src="https://static.saraba1st.com/image/smiley/face20
 
 
 
-     
+
+
+-----
+
+####  Cuppco  
+##### 16337#       发表于 2020-4-14 16:02
+
+
+
+
+可垃圾吧到吧
+一过气网络主播人气每况愈下，还指望自我发光发热人越来越多？
+那跟指望别人缺心眼有啥区别？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16338#       发表于 2020-4-14 16:02
+
+
+
+
+产能不足的问题就是没人啊。。。同好会和官组都没人，看staff都是那几个，官组最近还投了好几个存着的退组组员的烤肉
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16339#       发表于 2020-4-14 16:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077517&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-14 15:56</a>
+
+流量民看同好会播放量是真的看不下去是一方面，关键是有蛮多的能表现这女人种种当前状态给人看的稿子被埋没 ...</blockquote>
+不过真正表现这人深层想法的剪辑放官组也没太大用，记得那个pubg的时候知道wowaka去世了然后谈起自己生死观的稿子播放也不好看，明明给我印象挺深的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">说白了还是需要直白的浅层的能随便玩的梗才能有热度，但官组连这个也做不到了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16340#       发表于 2020-4-14 16:05
+
+
+
+
+说到这个，我还想着官组投一下未成年人别打钱那个稿来着，最次也能当蹭下热度
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 16341#       发表于 2020-4-14 16:05
+
+
+
+
+为什么这么多神龙宁愿自己建个小组燃烧自己烤出让事业人不满意数字有趣的肉也不愿意进官组或者进不了官组呢？这就是外人不得而知的了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16342#       发表于 2020-4-14 16:07
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-14 16:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077636&amp;ptid=1912063" target="_blank">age45 发表于 2020-4-14 16:05</a>
+
+为什么这么多神龙宁愿自己建个小组燃烧自己烤出让事业人不满意数字有趣的肉也不愿意进官组或者进不了官组呢 ...</blockquote>
+官组进去要《政审》的，神龙过得了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+审什么，怎么审，谁来审，我是一问三不知
+
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16343#       发表于 2020-4-14 16:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">指望字幕组剪辑涨粉本来就是可遇不可求的事，像70w纪念这种直播也能及时发出来，直播间也有同传，贴贴联动一年没几次，没什么机会龙，回归到一般字幕组的定位也挺好
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16344#       发表于 2020-4-14 16:08
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-14 16:03
+不过真正表现这人深层想法的剪辑放官组也没太大用，记得那个pubg的时候知道wowaka去世了然后谈起自己生死 ...</blockquote>
+在选材方面做的还行吧。。。最近10w左右播放的稿件有几个
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16345#       发表于 2020-4-14 16:11
+
+
+
+
+未成年打钱这种火就不要玩了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+我觉得官组做的可以了，有些东西海盗做我觉得确实更好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16346#       发表于 2020-4-14 16:12
+
+
+
+<blockquote>草牛 发表于 2020-4-14 16:08
+指望字幕组剪辑涨粉本来就是可遇不可求的事，像70w纪念这种直播也能及时发出来，直播间也有同传，贴 ...</blockquote>
+是的，3.10给如月引流的直播3.11出来的，现在官组能做到关键直播光速出肉就行了，没能力要求更多，平时同传有直播间的scpointer和nga的mul
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16347#       发表于 2020-4-14 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077513&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-04-14 15:56:13</a>
+u1s1如月出道烤了不过剪辑的内容倒确实和同好会的不一样</blockquote>谢谢老哥回复，如月烤了的我知道，我是说八乙女那天的那场直播，阿咩摆正了心态，提出了应对措施，并且介绍了新人，这些事应该用翻译视频及时传达的给观众的，而不是靠一个动态了事，官组这个不烤真的有点没想到
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16348#       发表于 2020-4-14 16:13
+
+
+
+
+露出桌面那个你麻还点名了不要官组，海盗地位最高的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16349#       发表于 2020-4-14 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播间同传确实也很辛苦的，你咩姐最近各种播爆，对每个烤肉人的压力都不小，别车了别车了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16350#       发表于 2020-4-14 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077735&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-14 16:14</a>
+直播间同传确实也很辛苦的，你咩姐最近各种播爆，对每个烤肉人的压力都不小，别车了别车了 ...</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Duke_of_Paris  
+##### 16351#       发表于 2020-4-14 16:15
+
+
+
+
+选材什么的时效性什么的早就无所谓了，只要别整活就谢天谢地了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+这话也不知道说过多少遍了，然后官组每次都能搞个我看不懂的新活
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16352#       发表于 2020-4-14 16:15
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-14 16:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077717&amp;ptid=1912063" target="_blank">pei23333 发表于 2020-4-14 16:12</a>
+谢谢老哥回复，如月烤了的我知道，我是说八乙女那天的那场直播，阿咩摆正了心态，提出了应对措施，并且介绍 ...</blockquote>
+八乙女mea自己也没怎么仔细介绍吧，至于那场直播要不要烤出来……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也不知道该怎么说比较好了，现在来看感觉烤或者不烤感觉都有点微妙
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16353#       发表于 2020-4-14 16:17
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-14 16:20 编辑 
+
+我也烤过几个肉，你麻的烤肉man确实难当<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过也得感谢你麻让我的日语听力水平大步提升，现在看个番都相当于简单模式了
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16354#       发表于 2020-4-14 16:20
+
+
+
+
+别人攻击咩其中主要之一不就字幕组吗，如今楼里发情都要被别人拿去开，字幕组谨慎点挺好的
+环境恶劣的现在还能怎样呢，难
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16355#       发表于 2020-4-14 16:21
+
+
+
+<blockquote>age45 发表于 2020-4-14 16:05
+为什么这么多神龙宁愿自己建个小组燃烧自己烤出让事业人不满意数字有趣的肉也不愿意进官组或者进不了官组呢 ...</blockquote>
+也不多吧。。。我想想，今年以来有印象的稿件比较多的海盗（仅翻译）有吟游（半退坑？）、she、et、fafa、hl69、宁宁、seven70。前面三个人肯定不会进官组；宁宁比较dd，而且在动态里说过不会进组；seven70我记得比较忙（好像是et说的）；fafa和hl69这两个同好会目前的主力我就不清楚了。。。只知道fafa是有能女粉，hl69经常考古
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|好评加鹅|
+| age45| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16356#       发表于 2020-4-14 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47077817&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-14 16:21</a>
+
+也不多吧。。。我想想，今年以来有印象的稿件比较多的海盗（仅翻译）有吟游（半退坑？）、she、et、fafa ...</blockquote>
+吟游半退坑？我怎么昨天lol还看到他过来续提督来着
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16357#       发表于 2020-4-14 16:26
+
+
+
+
+插播一则新闻：echo还差几百播放就破百万了（官号上首个真正意义上的百万播放）
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16358#       发表于 2020-4-14 16:26
+
+
+
+<blockquote>Leutnant某囧 发表于 2020-4-14 16:21
+也不多吧。。。我想想，今年以来有印象的稿件比较多的海盗（仅翻译）有吟游（半退坑？）、she、et、fafa ...</blockquote>
+就日语水平而言，根据吟游的那个专栏，他本人之前进组没成功（当然他在日本接下来几个月应该会进步不少？），在同好会的时候是给she、et、fafa、seven70的肉校对的水平。hl69经常考古，而且在staff里面也是担当校对
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16359#       发表于 2020-4-14 16:26
+
+
+
+
+看贴吧说已经一百万了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16360#       发表于 2020-4-14 16:27
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-14 16:23
+吟游半退坑？我怎么昨天lol还看到他过来续提督来着</blockquote>
+我也看到了。。。不过那个专栏的意思是退坑吧，所以我注明的是半退坑
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16361#       发表于 2020-4-14 16:34
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-14 16:44 编辑 
+
+也不用要什么深不深度的，一高中毕业的厂妹能有几个深度，这可是活着的三次元反差萌，多整点尤里稿子就行，不脑控财布是要饿死咩咩吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16362#       发表于 2020-4-14 16:37
+
+
+
+
+给路人粉看的的和给gachi看的稿子很多时候就又不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16363#       发表于 2020-4-14 16:43
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-14 16:48 编辑 
+
+我觉得前几天深夜tc那个打钱叫醒你麻五秒钟的就挺草的，但这个放官组没准又是一波节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有她这种打个临时工都干不下去的真的能比得上厂妹吗，要叫neet<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16364#       发表于 2020-4-14 16:48
+
+
+
+
+都是rp（
+你麻其实是大师级rp（
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16365#       发表于 2020-4-14 16:48
+
+
+
+
+害，啥都是节奏，你麻播就可以摁做骗钱了，你麻唱歌就说是变声器
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16366#       发表于 2020-4-14 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47078099&amp;ptid=1912063" target="_blank">Kayz996 发表于 2020-4-14 16:48</a>
+
+害，啥都是节奏，你麻播就可以摁做骗钱了，你麻唱歌就说是变声器</blockquote>
+b限歌回v8还有指控你麻全程放录播假唱的，属实笑到我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16367#       发表于 2020-4-14 16:52
+
+
+
+
+u1s1，假唱实锤了（
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 16368#       发表于 2020-4-14 16:57
+
+
+
+
+无端联想：洛天依吸毒假唱
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16369#       发表于 2020-4-14 17:04
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-14 16:52
+b限歌回v8还有指控你麻全程放录播假唱的，属实笑到我了</blockquote>
+假唱还放口胡版本啊。。。
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 16370#       发表于 2020-4-14 17:09
+
+
+
+ 本帖最后由 棉花怪 于 2020-4-14 17:11 编辑 
+
+她要是愿意私下里花时间唱个完美版本直播的时候放 那这样的假唱也不是不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过同一首歌不能来两次
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16371#       发表于 2020-4-14 17:09
+
+
+
+
+你咩也要算假唱那隔壁有些算不算代唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16372#       发表于 2020-4-14 17:32
+
+
+
+
+改了签名
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16373#       发表于 2020-4-14 17:34
+
+
+
+
+社会地位最底边？ 那是什么地位<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16374#       发表于 2020-4-14 17:38
+
+
+
+
+neet啊<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16375#       发表于 2020-4-14 17:38
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 16376#       发表于 2020-4-14 17:42
+
+
+
+
+哇你妈我吐了尼哥谭这审核傻不傻逼啊改个标题俩钟头了不放出来
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16377#       发表于 2020-4-14 17:45
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-4-14 17:49 编辑 
+
+惨，我试试改下如月楼的标题看情况如何秒过，咩楼可能楼层是比较多吧。。。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16378#       发表于 2020-4-14 17:47
+
+
+
+
+草了,直播间又变成贴贴特供背景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16379#       发表于 2020-4-14 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道今天又要演什么戏，好期待啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16380#       发表于 2020-4-14 17:52
+
+
+
+
+这群人真就过年啊…还是不希望有人搞事
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16381#       发表于 2020-4-14 17:52
+
+
+
+
+六点了我去看傻之逼新番不比虚无联动强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16382#       发表于 2020-4-14 17:54
+
+
+
+
+就奶， 等下奶出贴贴神回怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16383#       发表于 2020-4-14 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得戏外比戏里好看
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 16384#       发表于 2020-4-14 17:56
+
+
+
+
+无聊，睡了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16385#       发表于 2020-4-14 17:58
+
+
+
+<img src="https://p.sda1.dev/0/3dd63dc2d4059a5ebbe0952d7936c45c/IMG_CCCEE624D65DDB55ABE8355640FDAF04.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16386#       发表于 2020-4-14 17:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都0202年了哪还有什么神回，真神回了我去朝拜堂磕三个响头好伐
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16387#       发表于 2020-4-14 18:00
+
+
+
+
+人在外面，看不了，只能云直播了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16388#       发表于 2020-4-14 18:00
+
+
+
+
+奶出来那我们也不亏啊
+
+
+又不是打死都不看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16389#       发表于 2020-4-14 18:02
+
+
+
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+   
