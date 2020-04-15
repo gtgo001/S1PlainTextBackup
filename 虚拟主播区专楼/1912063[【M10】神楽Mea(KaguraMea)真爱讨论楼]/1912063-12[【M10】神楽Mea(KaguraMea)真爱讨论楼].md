@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-15 18:01** 
+> ## **本文件最后更新于2020-04-15 20:02** 
 
 
 
@@ -7818,10 +7818,11 @@ V综从夜里开始刷了30页，M楼也就几页。今天的流量都在V综呢
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| JustW|-1|开楼就见你滚来滚去，蛮好|
 | やト|-1|滚|
 
 
@@ -8042,4 +8043,571 @@ ID横跨整个键盘的人有被冒犯到<img src="https://static.saraba1st.com/
 
 
 
-                                   
+
+
+-----
+
+####  2014720  
+##### 16945#       发表于 2020-4-15 18:04
+
+
+
+
+休息<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16946#       发表于 2020-4-15 18:17
+
+
+
+
+看来你们有些人还是带着期待去看的啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+我是觉得没那么复杂，单纯业务联系太少，亏哥跟不上你咩干脆专心当lol废人，其他就应付一下
+
+B限一般容忍度很高，杏人没道理不了解这个现象
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16947#       发表于 2020-4-15 18:19
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-15 18:21 编辑 
+
+贴贴人把meaqua联动一帧帧分析找糖， 暗黑贴贴人一帧帧分析找梁木， 不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老天， 我这个破程序跑了20分钟了， 还要多久<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16948#       发表于 2020-4-15 18:21
+
+
+
+
+暗黑贴贴人和贴贴人贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16949#       发表于 2020-4-15 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47091612&amp;ptid=1912063" target="_blank">上坂蓮華 发表于 2020-4-15 17:33</a>
+我就觉得联动完就完了。而且相比之下舞元和惩役太郎的声音我觉得还OK，又不是那种含着口水的弱智笑 ...</blockquote>
+舞元前几次是真不行，uno很有意思。mea抛的东西要接住才有意思啊。。这个是犬山组的吧。。希望希望。
+太郎同学就是感觉一个是不熟一个是代差忒严重了。。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16950#       发表于 2020-4-15 18:30
+
+
+
+ 本帖最后由 Rem-清曲 于 2020-4-15 18:31 编辑 
+
+正常人都看明白她俩现在什么关系了8
+希望大🔥不要再擅自的抱有期待然后失望
+不然个人觉得有点脑残<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大亏现在基本的瑞思拜都没了8
+—— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16951#       发表于 2020-4-15 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47091723&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-15 17:43</a>
+现在我就想赶紧看到兔妈妈的黄金组合联动，绝对会是神回</blockquote>
+黄兔子会互动的，上次双人聊天有一种闺蜜的感觉，还不是那种节目相声的感觉，听起来还行。然后犬山一进来本来蛮舒缓的音乐厅突然进来几个吹唢呐的有点遭不住
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16952#       发表于 2020-4-15 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47091723&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-15 17:43</a>
+现在我就想赶紧看到兔妈妈的黄金组合联动，绝对会是神回</blockquote>
+黄兔子和mea互抛很有意思，节奏很舒缓。。就普通的聊天。然后上次犬山哥乱入就突然感觉像是轻音乐里面进来个吹唢呐的，很怪
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|吹唢呐草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16953#       发表于 2020-4-15 18:35
+
+
+
+
+比喻很恰当<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+话说你楼有多少苔anti
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16954#       发表于 2020-4-15 18:37
+
+
+
+
+苔anti还不至于，前面毒唯浓度高而已
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16955#       发表于 2020-4-15 18:37
+
+
+
+
+离联昨天联动已将近整整24个小时了，人家真贴贴人都快偃旗息鼓了，v综也有其他瓜，你们怎么还在一个接一个地批判<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+太暗黑了，梁木真爱楼
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 16956#       发表于 2020-4-15 18:38
+
+
+
+
+即使是字幕组精选的，也不要对有The sb参与的谈话剪辑有任何一丝期待。
+
+我吸取教训。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16957#       发表于 2020-4-15 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092325&amp;ptid=1912063" target="_blank">坚果收藏家 发表于 2020-4-15 18:35</a>
+比喻很恰当
+
+话说你楼有多少苔anti</blockquote>
+不是anti，主要是开始就是黄兔子敲鼓，mea拉二胡，进来个吹唢呐的可以一起嗨。然而黄兔**钢琴，mea拉小提琴，进来个吹唢呐的就很怪
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 16958#       发表于 2020-4-15 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092367&amp;ptid=1912063" target="_blank">nightmare902015 发表于 2020-4-15 18:37</a>
+
+离联昨天联动已将近整整24个小时了，人家真贴贴人都快偃旗息鼓了，v综也有其他瓜，你们怎么还在一个接一个 ...</blockquote>
+yysy，直播看一半弃了，剪辑只过了15小时<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+只能说这剪辑把sb的表现浓缩提纯了，劲大
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16959#       发表于 2020-4-15 18:51
+
+
+
+
+多剪几个尴尬集锦也好，我坚信不是所有人都会自我洗脑的
+
+
+再怎么说提高节目效果的要求是正当的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16960#       发表于 2020-4-15 18:51
+
+
+
+
+吹唢呐怎么就anti了，吹唢呐吹的有来有回也好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16961#       发表于 2020-4-15 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092487&amp;ptid=1912063" target="_blank">2111X 发表于 2020-4-15 18:47</a>
+yysy，直播看一半弃了，剪辑只过了15小时
+
+只能说这剪辑把sb的表现浓缩提纯了，劲大 ...</blockquote>
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">劲大你去隔壁meaqua楼刷去不行吗，跳着楼来来回回刷了一天了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 16962#       发表于 2020-4-15 19:01
+
+
+
+
+喝了假酒是这样的，觉得没疯的才是疯了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+想找解酒歌回解酒还要慢慢下载<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16963#       发表于 2020-4-15 19:05
+
+
+
+
+轱辘一天了，还是翻篇吧，M楼纯度地下降了（
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16964#       发表于 2020-4-15 19:09
+
+
+
+
+外面这么多咩夸楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们倒是用用啊
+之前那个V骚是啥时候来着？
+我之前看黄兔子直播时问怎么弄下次V骚，比如menheraV骚，然后观众说了句otahokaV骚怎么样，结果黄兔子在那爆笑说脑子奇怪的只有mea了啊，mea的等级比其他人高太多了导致想不起来其他人了，就像有个last boss一样
+这次还是找到了人了，大概跟我想的也差不多。其实meahera篇也可以找这几个，感觉没差<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 16965#       发表于 2020-4-15 19:10
+
+
+
+<blockquote>framita 发表于 2020-4-15 19:09
+外面这么多咩夸楼你们倒是用用啊
+
+之前那个V骚是啥时候来着？
+
+我之前看黄兔子直播时问怎么弄下次V骚 ...</blockquote>
+黄金周，一连好几场好像是
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16966#       发表于 2020-4-15 19:11
+
+
+
+
+真要整怎么感觉咩姐不是最厉害的。。。不过还是期待
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16967#       发表于 2020-4-15 19:13
+
+
+
+
+menhara篇倒不是很期待<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总感觉会跟犬山的最强神经病差不多，有点重复了
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16968#       发表于 2020-4-15 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然无关，不过突然想起前几个月有人在星川那冲你麻的塔，星川念到一半慌慌张张嘀嘀咕咕换话题了，还是有点逗
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 16969#       发表于 2020-4-15 19:22
+
+
+
+
+menhara确实咩等级太高，我至今记得苔姨那次神经病联动的梅毒梗，差点把希姐当场笑去世
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16970#       发表于 2020-4-15 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092807&amp;ptid=1912063" target="_blank">framita 发表于 2020-4-15 19:13</a>
+虽然无关，不过突然想起前几个月有人在星川那冲你麻的塔，星川念到一半慌慌张张嘀嘀咕咕换话题了， ...</blockquote>
+草，这个完全没看人提起过
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16971#       发表于 2020-4-15 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092983&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-15 19:30</a>
+草，这个完全没看人提起过</blockquote>
+因为不太好发nga，而且那时发出来感觉会有脑瘫去骚扰星川就没说，隔久点说要好点
+而且是我偶尔写作业开着星川直播当bgm才偶然注意到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16972#       发表于 2020-4-15 19:35
+
+
+
+<blockquote>framita 发表于 2020-4-15 19:33
+因为不太好发nga，而且那时发出来感觉会有脑瘫去骚扰星川就没说，隔久点说要好点
+
+而且是我偶尔写作业开着 ...</blockquote>
+有无日期和时间轴，感谢
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16973#       发表于 2020-4-15 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">难受，希望自己是Démon de Laplace
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16974#       发表于 2020-4-15 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47093040&amp;ptid=1912063" target="_blank">Rem-清曲 发表于 2020-4-15 19:35</a>
+有无日期和时间轴，感谢</blockquote>
+没，几个月前的事了。哪场直播都忘了
+
+
+
+
+
+                                  
