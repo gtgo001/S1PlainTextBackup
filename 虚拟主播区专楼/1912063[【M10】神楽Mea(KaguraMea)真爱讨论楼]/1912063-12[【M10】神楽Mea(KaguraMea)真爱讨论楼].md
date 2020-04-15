@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-15 12:02** 
+> ## **本文件最后更新于2020-04-15 14:02** 
 
 
 
@@ -5449,10 +5449,12 @@ syl，怎么我又预见到如果早上先行版发出来评论过千，点进�
 
 
 
- 参与人数 12战斗力 -15
+ 参与人数 14战斗力 -17
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 诡秘侍者|-1|好评加鹅|
+| stageKK|-1||
 | planetcd|-1|还没死啊|
 | 370535090|-1||
 | jhouo8989|-2|好评加鹅|
@@ -6306,4 +6308,738 @@ https://bbs.saraba1st.com/2b/thread-1220112-0-1.html</blockquote>
 
 
 
-                                      
+
+
+-----
+
+####  uuuuu7  
+##### 16850#       发表于 2020-4-15 12:06
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-15 12:09 编辑 
+
+害搁这跳脸反杀呢，五岁带天使的rp崩了你麻负责的起吗
+
+“可悲的厚障壁”
+
+
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16851#       发表于 2020-4-15 12:08
+
+
+
+
+lol就是这样的，连胜就什么都好，连败就啥都不好，气氛也尴尬。凑阿夸好像昨天起码稍微复健lol一下。昨天对面简直狙击疯了，lol直播最后一把的胜负会影响整场直播的观感，如果昨天全输，那现在的反应又不一样。
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 16852#       发表于 2020-4-15 12:08
+
+
+
+
+哪敢啊，不怕被404四十万crew冲崩频道么
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 16853#       发表于 2020-4-15 12:09
+
+
+
+
+夸皇不是自己把这个弱智RP 分离出来了？ 
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16854#       发表于 2020-4-15 12:10
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-15 12:19 编辑 
+
+最后一把不是赢了吗
+
+甚至还是她梦寐以求的自己主导的大逆风翻盘，看她播lol以来就没昨天那么兴奋过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16855#       发表于 2020-4-15 12:11
+
+
+
+
+夸皇也要占领这个楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16856#       发表于 2020-4-15 12:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">讨论节目效果就讨论节目效果，别扯其他有的没的
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 16857#       发表于 2020-4-15 12:41
+
+
+
+
+几天没看怎么这么多事
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16858#       发表于 2020-4-15 12:42
+
+
+
+
+话说， 最近多了yoisora的剪辑， 哪来的啊？ 贴贴民内部推荐入官组？ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16859#       发表于 2020-4-15 12:44
+
+
+
+
+今年多了的剪辑有好几个，去年有俩月看起来就俩人来回转
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 16860#       发表于 2020-4-15 12:46
+
+
+
+ 本帖最后由 2014720 于 2020-4-15 12:57 编辑 
+
+这次联动我看到了我想要的东西<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+贴贴人有了新糖，梁木人有了新梁木，巨魔有了新的饵食，论坛有了kpi，还不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+确实，昨天咩数据挺好看的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| planetcd| + 1|不怕无聊就怕不来|
+| 魔法使い2019| + 1|满足多种需求， 强！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 16861#       发表于 2020-4-15 12:53
+
+
+
+
+建议加上你麻有了贴贴人的打赏，真正的一举多得
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 16862#       发表于 2020-4-15 13:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次联动我反正看的挺开心的，好事儿
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16863#       发表于 2020-4-15 13:32
+
+
+
+
+其实近一年来不早就是这个互动模式了么，18年的pubg已经反倒是例外了吧，你亏哥最近风波不断已是疲于奔命，你咩姐也乐得逗她玩玩，而且你咩姐看来也还蛮开心的，就这么算了8
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 16864#       发表于 2020-4-15 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47087916&amp;ptid=1912063" target="_blank">2014720 发表于 2020-4-15 12:46</a>
+这次联动我看到了我想要的东西
+贴贴人有了新糖，梁木人有了新梁木，巨魔有了新的饵食，论坛有了kpi ...</blockquote>
+要多谢我献出的头啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16865#       发表于 2020-4-15 13:37
+
+
+
+
+要不我怎么说有些梁木人推的早不是mea了
+看起来你mea姐玩的挺开心，有人疯狂找着mea粉说怪话、挑刺，不要骗自己了趁早清醒点好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16866#       发表于 2020-4-15 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088598&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-15 13:37</a>
+
+要不我怎么说有些梁木人推的早不是mea了
+
+看起来你mea姐玩的挺开心，有人疯狂找着mea粉说怪话、挑刺，不要骗 ...</blockquote>
+那是因为最后一把翻盘赢了，要是输了，那气氛尬死还连败，别提多难受了。
+
+mea单人lol 连败心情也不会多少，可以比较一下几次b限胜负对她心情的影响。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16867#       发表于 2020-4-15 13:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个问题很难解决啊，舞咩联动你咩姐也挺开心，该开还是开
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16868#       发表于 2020-4-15 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088630&amp;ptid=1912063" target="_blank">古战场亡魂 发表于 2020-4-15 13:40</a>
+那是因为最后一把翻盘赢了，要是输了，那气氛尬死还连败，别提多难受了。
+
+mea单人lol 连败心情也不会多少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是能当成一般b限看还能有这么多事吗
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16869#       发表于 2020-4-15 13:42
+
+
+
+
+你要当一般b限，官组干吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16870#       发表于 2020-4-15 13:43
+
+
+
+
+meaqua早就被特殊化了， 从各种意义上， 还回得去吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我只看了开头， 所以我就☁一下论坛而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16871#       发表于 2020-4-15 13:44
+
+
+
+
+这和官组又有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别整官组gachi辣
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16872#       发表于 2020-4-15 13:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞咩能开成这样之前也说过了，多方因素
+
+而且男女组合跟女女组合的侧重点不太一样，我觉得不能类比
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16873#       发表于 2020-4-15 13:46
+
+
+
+
+一开始就不是当一般b限看的环境起来了，个人觉得当个屏障人很难<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16874#       发表于 2020-4-15 13:46
+
+
+
+
+看了看剪辑，还是被甜到了那么一点，矛盾了，这就是yhm的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16875#       发表于 2020-4-15 13:47
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-4-15 13:56 编辑 
+
+没连续看
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16876#       发表于 2020-4-15 13:49
+
+
+
+
+昨天不是全胜了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16877#       发表于 2020-4-15 13:50
+
+
+
+
+害，但现实是大逆你咩姐靠自己大中三人一波翻盘爽的一笔，不要再说“如果连败”会怎样的话了，这跟聊伽马世界线的故事有区别吗（
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16878#       发表于 2020-4-15 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理昨天不是只输了一把来着
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16879#       发表于 2020-4-15 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨天到底输了几把了?我昨天直播间进进出出好几次，挂在外面都忍不住关了直播间，实在不清楚战况。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16880#       发表于 2020-4-15 13:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麻宝也云直播啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16881#       发表于 2020-4-15 13:53
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-15 13:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088721&amp;ptid=1912063" target="_blank">古战场亡魂 发表于 2020-4-15 13:47</a>
+当成一般b限，连败也不好看啊。
+
+mea连败的时候什么样子大家也都知道，难受而且话也会少，会闹会叫。
+
+昨天 ...</blockquote>
+这跟我说的倒不太一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">举个我昨天看到的例子
+贴吧有个人从联动开始之前就不停说什么他们不贴了/这不好那不好/要谴责xx，联动直播时也在说，联动完了还在说
+这就不是一句不舒服能扯的了吧
+说难听点在mea粉聚集地整这套就跟给你mea姐砸场子差不多了吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16882#       发表于 2020-4-15 13:53
+
+
+
+
+昨天2赢1输啊，希望大家看看直播，尽力别做云人8（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16883#       发表于 2020-4-15 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">我是懒得开。昨天最后一把翻盘高兴我理解，前面那一个人嚎个不停我看着都累，希望下次别搞这种东西了，不值得，闭嘴打游戏不也挺好
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16884#       发表于 2020-4-15 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088837&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-15 13:55</a>
+我是懒得开。昨天最后一把翻盘高兴我理解，前面那一个人嚎个不停我看着都累，希望下次别搞这种东西 ...</blockquote>
+mea很多次不玩游戏直播不是都说自己认真打游戏会闭嘴，就无聊了么，估计在她潜意识里好好搞游戏直播就得不停的说话
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16885#       发表于 2020-4-15 13:58
+
+
+
+
+不都说咩姐玩的挺开心么，她做什么事都是开心优先啊
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 16886#       发表于 2020-4-15 14:00
+
+
+
+
+你又找不到mea姐高兴不高兴咯，我感觉独角戏唱的挺累的啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 16887#       发表于 2020-4-15 14:00
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-4-15 14:02 编辑 
+
+嗯，第一把没看完，下路死成那样我还以为输了呢。波比和后面霞洛的看完了。
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 16888#       发表于 2020-4-15 14:00
+
+
+
+
+你咋知道她心里不是在想傻逼女人别装死了多说两句话啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16889#       发表于 2020-4-15 14:00
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-15 14:01 编辑 
+
+我不要你觉得我在扮小丑，我只要我玩的开心
+
+她真的开心吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16890#       发表于 2020-4-15 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088837&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-15 13:55</a>
+
+我是懒得开。昨天最后一把翻盘高兴我理解，前面那一个人嚎个不停我看着都累，希望下次别搞这种东西 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁兔子罪状之一就是B限闭嘴打游戏
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16891#       发表于 2020-4-15 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088923&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-15 14:01</a>
+隔壁兔子罪状之一就是B限闭嘴打游戏</blockquote>
+反正你咩姐b限lol也能正常说话，开不起来
+
+
+
+
+
+                                    
