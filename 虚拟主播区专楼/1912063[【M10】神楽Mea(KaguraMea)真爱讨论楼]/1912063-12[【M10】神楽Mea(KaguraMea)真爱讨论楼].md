@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-16 20:02** 
+> ## **本文件最后更新于2020-04-16 22:01** 
 
 
 
@@ -10005,4 +10005,853 @@ LOL你认真看看攻略选个OP英雄练两下连招不上黄金都难。
 
 
 
-                               
+
+
+-----
+
+####  路人庚  
+##### 17055#       发表于 2020-4-16 20:10
+
+
+
+
+mea+koyori齐聚noe直播间（会突然上线一起玩吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17056#       发表于 2020-4-16 20:14
+
+
+
+ 本帖最后由 路人庚 于 2020-4-16 20:20 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202004/16/201319yzdfqiaysyeayrlz.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (30.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 20:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/16/201321fxb3ylqio7qaanz7.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (12.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 20:13 上传
+
+
+
+
+
+
+神乐组mc服务器突然进来一个不认识的人
+
+↓
+
+都表示不知道这人是谁
+
+↓
+
+把noe的家一把火烧了
+
+
+
+更新1：
+
+<img src="https://img.saraba1st.com/forum/202004/16/201549lv2uvu3gzl6puuwn.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (23.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 20:15 上传
+
+
+
+
+
+
+mea换mc服务器ip
+
+
+
+更新2：
+
+<img src="https://img.saraba1st.com/forum/202004/16/201844vjox1jjpj30deonj.png" referrerpolicy="no-referrer">
+
+
+<strong>4.png</strong> (6.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 20:18 上传
+
+
+
+
+
+
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_GUthr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+怪事（
+
+
+
+
+
+
+
+5.png
+(14.95 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-16 20:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/16/201847hex1ezuho1fx0eu1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17057#       发表于 2020-4-16 20:16
+
+
+
+
+怪事，这是ip暴露了？
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17058#       发表于 2020-4-16 20:19
+
+
+
+
+服务器被爆破了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17059#       发表于 2020-4-16 20:25
+
+
+
+ 本帖最后由 路人庚 于 2020-4-16 20:27 编辑 
+
+5ch毫无反应，看来是其他人搞事了
+
+
+怎么感觉像台本啊（
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17060#       发表于 2020-4-16 20:28
+
+
+
+
+所以这波是第几层？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17061#       发表于 2020-4-16 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">我心脏受不了啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17062#       发表于 2020-4-16 20:28
+
+
+
+
+台本草
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17063#       发表于 2020-4-16 20:29
+
+
+
+[https://minecraft-statistic.net/en/player/Iron883.html](https://minecraft-statistic.net/en/player/Iron883.html)
+
+应该是撞上的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17064#       发表于 2020-4-16 20:30
+
+
+
+
+可以设置白名单的吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17065#       发表于 2020-4-16 20:32
+
+
+
+
+这撞的可真是巧了，撞了个直播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17066#       发表于 2020-4-16 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥啥啥，发生了啥 ←情弱
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17067#       发表于 2020-4-16 20:46
+
+
+
+ 本帖最后由 路人庚 于 2020-4-16 20:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经没事了，上面发的就是事件全过程
+
+
+
+补个推特回复：
+
+<img src="https://img.saraba1st.com/forum/202004/16/205150rz3355ykh3qnhlht.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (66.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 20:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 17068#       发表于 2020-4-16 20:51
+
+
+
+
+好事儿，给小紫拉了一百多同接，只要阿咩别为了这事受打击就行了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17069#       发表于 2020-4-16 20:56
+
+
+
+
+草
+[https://b23.tv/BV1ma4y1x7o1](https://b23.tv/BV1ma4y1x7o1)
+<img src="https://p.sda1.dev/0/2e7cab2305f13254519e8ef68c4e616c/IMG_83E267F5742FE1914E47D934176D1CD3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17070#       发表于 2020-4-16 21:05
+
+
+
+
+所以不是台本也不是anti，而是撞上了？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17071#       发表于 2020-4-16 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47106818&amp;ptid=1912063" target="_blank">JustW 发表于 2020-4-16 21:05</a>
+
+所以不是台本也不是anti，而是撞上了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17072#       发表于 2020-4-16 21:07
+
+
+
+
+《节 目 效 果 》
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17073#       发表于 2020-4-16 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看B博，mea这是把烂摊子丢给小僵尸处理了啊
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17074#       发表于 2020-4-16 21:11
+
+
+
+
+老倒霉蛋了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17075#       发表于 2020-4-16 21:12
+
+
+
+
+只能指望新人再来个地位比自己还低的了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17076#       发表于 2020-4-16 21:14
+
+
+
+
+咩咩要生第四个了吗，好色哦<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 17077#       发表于 2020-4-16 21:25
+
+
+
+
+连第三个都没有吧，儿子粉可以不要塞私货吗<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17078#       发表于 2020-4-16 21:31
+
+
+
+
+吓到了。。。刚学完，还以为是什么大事。。。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17079#       发表于 2020-4-16 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你咩姐上次歇了几天就生出来一个，这次必生，神乐服几张床来着？
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 17080#       发表于 2020-4-16 21:37
+
+
+
+
+五张，三张有颜色了，两张白的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17081#       发表于 2020-4-16 21:38
+
+
+
+
+不要不要不要不要不要不要不要不要不要不要不要<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17082#       发表于 2020-4-16 21:38
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-16 21:40 编辑 
+
+举荐制，你麻举荐了小绿，小绿举荐了小紫，小紫该拉个熟人进群了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17083#       发表于 2020-4-16 21:40
+
+
+
+
+再拉一对CP不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+大家一起当长颈鹿
+
+“我嘛，也是有过喜欢的人啊”——想看这样的好女人
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17084#       发表于 2020-4-16 21:43
+
+
+
+
+等一手meapro 3期生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17085#       发表于 2020-4-16 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一期一个啊
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17086#       发表于 2020-4-16 21:48
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-16 21:49 编辑 
+
+我是指mea一期生，koyori，noe二期生（她们出道时间太近了）如果最近就能出的话，也能并入二期生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 17087#       发表于 2020-4-16 21:50
+
+
+
+
+说到新人，这张图带哥们看一下是小紫和小绿的合照🐎？我没文化看不懂日文
+
+
+
+
+
+
+1627.png
+(235.13 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-16 21:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/16/215020bfy6dqnvfnsu6ppn.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17088#       发表于 2020-4-16 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47107410&amp;ptid=1912063" target="_blank">pei23333 发表于 2020-4-16 21:50</a>
+
+说到新人，这张图带哥们看一下是小紫和小绿的合照🐎？我没文化看不懂日文
+
+ ...</blockquote>
+好腿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17089#       发表于 2020-4-16 21:53
+
+
+
+
+是小紫小绿啊，小号上好像拍正面的？
+
+小号推特头图还是情头
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 17090#       发表于 2020-4-16 21:55
+
+
+
+
+妈也，指甲油都一样
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17091#       发表于 2020-4-16 21:55
+
+
+
+<blockquote>pei23333 发表于 2020-4-16 21:50
+说到新人，这张图带哥们看一下是小紫和小绿的合照🐎？我没文化看不懂日文
+
+ ...</blockquote>
+这腿我好了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 17092#       发表于 2020-4-16 21:55
+
+
+
+
+阿这，那这腿有、好
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17093#       发表于 2020-4-16 21:56
+
+
+
+
+啊， 腿， 
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17094#       发表于 2020-4-16 21:56
+
+
+
+ 本帖最后由 小博禹 于 2020-4-16 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47107426&amp;ptid=1912063" target="_blank">h1001010 发表于 2020-4-16 21:51</a>
+好腿</blockquote>
+肯定天天被麻酱这色批摸来摸去<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+小弟直播的时候，麻酱在直播间假装看直播，暗地里却在摸小弟老婆的腿<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17095#       发表于 2020-4-16 22:01
+
+
+
+
+这腿是紫的还是绿的
+
+
+
+
+
+                              
