@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-11 22:00** 
+> ## **本文件最后更新于2020-04-16 14:39** 
 
 
 
@@ -4047,7 +4047,7 @@ QQ截图20200411210249.png
 
 
 21-02-37-067.png
-(763 Bytes, 下载次数: 8)
+(763 Bytes, 下载次数: 14)
 
 
 
@@ -4202,4 +4202,3183 @@ artia是美籍华人？
 
 
 
-                                          
+
+
+-----
+
+####  Osier2333  
+##### 6225#       发表于 2020-4-11 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47047885&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-11 17:34</a>
+
+你最后一行的要求，完全不用舍近求远啊，直接大陆粉圈里找，全是这种啊。B站不是在搞明星活动么，可以想 ...</blockquote>
+这个时候蹭肖战粉是怕死得不够快吗
+
+
+
+
+
+
+
+-----
+
+####  夜鹿  
+##### 6226#       发表于 2020-4-12 03:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47049237&amp;ptid=1909283" target="_blank">攻心为上木之本 发表于 2020-4-11 20:28</a>
+
+副会长野外露O直播太色了，“啊那边有人快藏起来”，“噫有人来了有人来了”，简直朗读古早矽统文。
+
+
+——  ...</blockquote>
+戳到好球区了
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6227#       发表于 2020-4-12 03:14
+
+
+
+
+弥宝又在养gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6228#       发表于 2020-4-12 07:33
+
+
+
+
+有评论说哪有萌音那就有度宝想想好像确实<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 6229#       发表于 2020-4-12 10:01
+
+
+
+
+阿媂娅是剑锋粉，有人一起胃疼的感觉真好♪♪
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6230#       发表于 2020-4-12 10:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/12/100956nkifkw0faixaxo71.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EVQHRvkU0AAVSVV.jpg</strong> (704.9 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-12 10:09 上传
+
+
+
+
+
+
+
+网课型vup
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 6231#       发表于 2020-4-12 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47053015&amp;ptid=1909283" target="_blank">某穆克拉 发表于 2020-04-12 10:10:13</a>
+网课型vup</blockquote>爷的幼儿期回来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6232#       发表于 2020-4-12 12:09
+
+
+
+
+我才意识到弥宝昨天直播是手机播没法录像的？
+
+看到标题是动森我就去看孟宝联动了，有没有好哥哥发个录播给我，奈子哥录播合集还没更新
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6233#       发表于 2020-4-12 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47053954&amp;ptid=1909283" target="_blank">雅朵莉雀 发表于 2020-04-12 12:09:12</a>
+我才意识到弥宝昨天直播是手机播没法录像的？
+
+看到标题是动森我就去看孟宝联动了，有没有好哥哥发个录播给 ...</blockquote>[https://b23.tv/BV1pT4y1G7nk](https://b23.tv/BV1pT4y1G7nk)
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雅朵莉雀| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  矢吹奈子  
+##### 6234#       发表于 2020-4-12 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47053954&amp;ptid=1909283" target="_blank">雅朵莉雀 发表于 2020-4-12 12:09</a>
+我才意识到弥宝昨天直播是手机播没法录像的？
+
+看到标题是动森我就去看孟宝联动了，有没有好哥哥发个录播给 ...</blockquote>
+在传了，传录播那个百度号好像出问题了，下午我换个盘…
+
+—— 来自 HUAWEI RVL-AL09, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6235#       发表于 2020-4-12 14:06
+
+
+
+
+弥宝大喊生日快乐还挺浪漫的，
+期待和mhr一起露营<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6236#       发表于 2020-4-12 15:10
+
+
+
+
+害鳖说，爱哥这歌回有点意思
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdr01t43rvj21hc0u0x18.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdr02hp96yj21hc0u0ael.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gdr02u37ktj21hc0u0dkt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6237#       发表于 2020-4-12 17:04
+
+
+
+ 本帖最后由 不吃布丁的宫子 于 2020-4-12 17:11 编辑 
+
+有趣是有趣，就是不知道楼里有多少人看四号机<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+syl：昨天的超有趣度人沙夜萨麦尔套娃80剪辑出了，E[https://www.bilibili.com/video/BV1rp4y1C7PE](https://www.bilibili.com/video/BV1rp4y1C7PE)
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6238#       发表于 2020-4-12 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好活，谢谢度宝
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6239#       发表于 2020-4-12 22:20
+
+
+
+
+一个中国人 一个日本人 用英语联动，太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">心心这英语口语跟独角兽有差距啊
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6240#       发表于 2020-4-12 22:42
+
+
+
+ 本帖最后由 CCCCCC梵 于 2020-4-12 22:47 编辑 
+
+这是主播真会玩？这剪的，这也太V辣
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6241#       发表于 2020-4-12 22:56
+
+
+
+
+楼上延迟也太高了，vr这视频都出到第四期了，而且前面几期宣传效果还不错
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6242#       发表于 2020-4-12 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47059633&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-12 22:56</a>
+
+楼上延迟也太高了，vr这视频都出到第四期了，而且前面几期宣传效果还不错 ...</blockquote>
+云了云了，我道歉
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6243#       发表于 2020-4-12 23:57
+
+
+
+
+看海子姐云ff7好爽！，有没有粉丝说说要补剧情的话应该从哪里补好啊！
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6244#       发表于 2020-4-13 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47060223&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-12 23:57</a>
+
+看海子姐云ff7好爽！，有没有粉丝说说要补剧情的话应该从哪里补好啊！</blockquote>
+你这该去nga问
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6245#       发表于 2020-4-13 00:06
+
+
+
+
+铃果这女人戏越来越多了，柠哥生活肯定异常不枯燥
+
+
+
+
+
+
+c2ae4ae0395ca4813130816fd20a082278a6f711.jpg@518w_1e_1c.jpg
+(154.44 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-4-13 00:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/13/000500tfhhw49amobe2afa.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| magus| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6246#       发表于 2020-4-13 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47060223&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-12 23:57</a>
+
+看海子姐云ff7好爽！，有没有粉丝说说要补剧情的话应该从哪里补好啊！</blockquote>
+hxd，去nga有专楼
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 6247#       发表于 2020-4-13 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47060297&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-13 00:06</a>
+
+铃果这女人戏越来越多了，柠哥生活肯定异常不枯燥</blockquote>
+笑疯了，钢板 
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 6248#       发表于 2020-4-13 00:58
+
+
+
+
+这500强的天使也太强了。。。
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6249#       发表于 2020-4-13 01:02
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-13 01:06 编辑 
+
+阿媂娅这就开始播OW，玩起来骚话没歇过还自己解说，这就是“OW很菜”的500强的世界吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都不带掩饰的。
+
+
+
+省一楼。果总半夜突击写舰长ID，柠哥下播在旁边当人工弹幕姬。什么TMSK真的太弟弟了。
+
+
+
+这是真身吗卧槽，面子阿媂娅
+
+
+
+
+
+
+
+QQ截图20200413010314.png
+(20.6 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-4-13 01:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/13/010547k48fpf8ipf9ebd4p.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6250#       发表于 2020-4-13 01:14
+
+
+
+
+草，在阿媂娅直播间发了句殴打小朋友就禁言一个月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  d515512594  
+##### 6251#       发表于 2020-4-13 02:21
+
+
+
+
+我倒是觉得版主和一果锁的太死不是什么好事。多和其他女v联动效果可能还要好一点。不过版主感觉本质懒狗从来不想什么策划的，哪怕不愿意放弃dota基本盘做点第一视角教学也是能涨粉的。现在虽然是直播当道没啥人做第一视角教学讲解不过版主还蛮适合干这个的。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  d515512594  
+##### 6252#       发表于 2020-4-13 02:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47060981&amp;ptid=1909283" target="_blank">d515512594 发表于 2020-04-13 02:21:53</a>
+我倒是觉得版主和一果锁的太死不是什么好事。多和其他女v联动效果可能还要好一点。不过版主感觉本质懒狗从 ...</blockquote>最主要b站根本就没dota主播出路，dota观众全在鱼虎猫三个平台。加上版主技术半上不下的有点尴尬，跑去做视频的第一视角可能还能有点涨粉空间。 也不用多10天做一期也差不多够了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 6253#       发表于 2020-4-13 02:31
+
+
+
+
+今天看了会儿沙夜直播，说自己是VR地暖，社内地位最低，还80啥的。是再说社内不仲，还是单纯调侃啊
+另外，我怀疑千夜这个逼在画沙夜头发的时候是闭着眼睛选色的，配色那是真的丑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6254#       发表于 2020-4-13 02:38
+
+
+
+ 本帖最后由 aucun 于 2020-4-13 02:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47061004&amp;ptid=1909283" target="_blank">月光润色 发表于 2020-4-13 02:31</a>
+今天看了会儿沙夜直播，说自己是VR地暖，社内地位最低，还80啥的。是再说社内不仲，还是单纯调侃啊
+另外， ...</blockquote>
+是整活，6237楼老哥发了切片视频链接，你看了就懂了，还是挺有趣的
+
+syl，回楼下，这不就变成葵皇妹妹在holo？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 6255#       发表于 2020-4-13 02:38
+
+
+
+
+花留的皮有点喜欢，但你为啥不是holo人，在vr你只能成炮灰的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6256#       发表于 2020-4-13 02:44
+
+
+
+
+你们再葵皇妹妹，2000哥要进来发疯了
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6257#       发表于 2020-4-13 04:07
+
+
+
+ 本帖最后由 南云铁虎 于 2020-4-13 04:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47061016&amp;ptid=1909283" target="_blank">YODOboi 发表于 2020-4-13 02:38</a>
+
+花留的皮有点喜欢，但你为啥不是holo人，在vr你只能成炮灰的</blockquote>
+毕竟是罗伊自己拉进去的人
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6258#       发表于 2020-4-13 04:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47060247&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-13 00:00</a>
+
+你这该去nga问</blockquote>
+但是只找到ff14的版块。。。
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6259#       发表于 2020-4-13 04:40
+
+
+
+
+这能顺劈tmsk我是没想到的，建议发到300
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6260#       发表于 2020-4-13 09:59
+
+
+
+
+holo摇170w了，水友们想个曲子看看能不能国v复刻一波啊，holocn人手不足，其他大箱整一个蹭热度试试啊，说不定效果拔群呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过像天真烂漫这种废萌口水歌国产圈子里有吗？一提到国产圈子我脑子里全是九九八十一，神经病之歌什么的，我是想不到类似的曲子啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6261#       发表于 2020-4-13 10:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47062357&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-13 09:59</a>
+
+holo摇170w了，水友们想个曲子看看能不能国v复刻一波啊，holocn人手不足，其他大箱整一个蹭热度试试啊，说 ...</blockquote>
+复刻一下卡路里？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6262#       发表于 2020-4-13 10:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 葵皇妹妹因为皮和自己根本不认识的葵皇扯上关系，真的是好事吗？对本人百害无一益吧
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 6263#       发表于 2020-4-13 10:49
+
+
+
+ 本帖最后由 gearbox 于 2020-4-13 11:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47062357&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-13 09:59</a>
+holo摇170w了，水友们想个曲子看看能不能国v复刻一波啊，holocn人手不足，其他大箱整一个蹭热度试试啊，说 ...</blockquote>
+那来个小苹果？还是最炫民族风？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">民族风好像也是09年出12年火的，小苹果14年
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 6264#       发表于 2020-4-13 11:26
+
+
+
+
+这个不如上最潮最in的抖音上面找
+
+
+
+
+
+
+
+-----
+
+####  ZarcV  
+##### 6265#       发表于 2020-4-13 13:42
+
+
+
+<blockquote>激光2000 发表于 2020-4-13 10:35
+葵皇妹妹因为皮和自己根本不认识的葵皇扯上关系，真的是好事吗？对本人百害无一益吧 ...</blockquote>
+我觉得就算不认识，借此机会认识一下也无妨吧。毕竟有些人推b喜欢认关系，比如人际关系，箱内关系，亲子关系什么的都挺重要的。我觉得按增加曝光度来说这些关系都挺正面的，负面影响我觉得要看这层关系能不能处理好，比如破除一些由于期望带来的失望吧。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 6266#       发表于 2020-4-13 14:32
+
+
+
+
+要不等holocn大家族起来了去蹭波好不好，大家都是中国人不要学鬼子那一套，弥宝已经抢跑了
+
+
+
+
+
+
+
+-----
+
+####  107a  
+##### 6267#       发表于 2020-4-13 16:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/13/162118dw2jkn2ynd33xdej.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200413161621.png</strong> (125.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-13 16:21 上传
+
+
+
+
+
+
+这个时候播cc，那真的是很有创意
+
+
+
+
+
+
+
+-----
+
+####  发疯棉花糖  
+##### 6268#       发表于 2020-4-13 20:04
+
+
+
+
+魔女新人装日v这活儿你们怎么看？
+[https://live.bilibili.com/21718578](https://live.bilibili.com/21718578)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6269#       发表于 2020-4-13 20:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47065395&amp;ptid=1909283" target="_blank">YODOboi 发表于 2020-4-13 14:32</a>
+
+要不等holocn大家族起来了去蹭波好不好，大家都是中国人不要学鬼子那一套，弥宝已经抢跑了 ...</blockquote>
+有道理，版主认了独角兽当妹妹这么久，怎么也不联动蹭一波
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6270#       发表于 2020-4-13 20:27
+
+
+
+
+版主心中只有dota，联动都是被邀请的一方<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6271#       发表于 2020-4-13 20:57
+
+
+
+
+看vr官号的动态，意思是他们这个一周年留言征集收到的全是gachi发言和爱的祝愿？
+
+
+其实，吐槽这个形容就很微妙——说清了吧，不痛不痒，顶多算是建议，对于接受者来说写了也没有意义；说重了吧，有损脸面，伤感请伤面子，又不会选出来读，对于写者来说这个活动又没了什么意义。
+
+
+而且要我说吧，vr最近除了渡渡鸟那破事还真没什么值得说道的地方，翻旧账吧，也没什么意义，没什么意思也不太有节目效果，写了就是浪费时间啊浪费时间<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/13/205629n55tpyyd5ttlgyap.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200413202159.png</strong> (36.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-13 20:56 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  x1034  
+##### 6272#       发表于 2020-4-13 21:55
+
+
+
+
+鸟神也直球动态吐槽这个活动了。
+这种投稿活动不会收到什么有价值的留言，stf心里没点数么？
+
+
+
+
+
+
+
+-----
+
+####  HSNYKE/EKPL  
+##### 6273#       发表于 2020-4-13 22:03
+
+
+
+ 本帖最后由 HSNYKE/EKPL 于 2020-4-14 17:56 编辑 
+
+编辑
+
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6274#       发表于 2020-4-13 22:09
+
+
+
+
+蘑菇人打块水平到底如何？我总感觉她打普通房有演的成分在里面
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6275#       发表于 2020-4-14 00:44
+
+
+
+
+我看不懂蘑菇人打块
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 6276#       发表于 2020-4-14 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47069116&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-13 20:57</a>
+
+看vr官号的动态，意思是他们这个一周年留言征集收到的全是gachi发言和爱的祝愿？
+
+
+其实，吐槽这个形容就很 ...</blockquote>
+这企划不会是要搞一个和mean tweets那样的活动吧……
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6277#       发表于 2020-4-14 02:41
+
+
+
+
+弥宝什么时候把黑客联动烤了
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6278#       发表于 2020-4-14 02:52
+
+
+
+
+bsyl，我是真的不理解为啥要装弱。
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 6279#       发表于 2020-4-14 07:52
+
+
+
+
+不能说演吧，失误太多
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6280#       发表于 2020-4-14 09:35
+
+
+
+
+总有人说蘑菇人装弱，如果这就是真实水平的话，就是不到30lpm？但是高层挖掘的时候还挺快的，看不懂
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6281#       发表于 2020-4-14 10:43
+
+
+
+ 本帖最后由 aucun 于 2020-4-14 10:47 编辑 
+
+发这个不会被2000哥杀吧？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/bfce914580f4f0773327fa69469336b6/IMG_14D19D4FF67A7AB9ABFA2D881113B5F6.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6282#       发表于 2020-4-14 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">贴，都可以贴，都快蹭到一万粉了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6283#       发表于 2020-4-14 15:28
+
+
+
+
+还不到1万粉真的算蹭到吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl 装弱也许是cn独创的企业文化
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6284#       发表于 2020-4-14 18:59
+
+
+
+ 本帖最后由 不吃布丁的宫子 于 2020-4-14 19:05 编辑 
+
+miki这个新活还挺有看头的，艾因也挺能说的，期待期待。
+
+
+syl：惊了没有vrl的寿寿歌，魔魔他们，社内不仲石锤？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+zsyl：新一期的vrfm好像也挺有意思的啊，终于要好起来了吗？（话说这个节目如果做一周年什么的我感觉比读来信要有意思多了，期待期待）
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6285#       发表于 2020-4-14 19:13
+
+
+
+
+这是拉来魔魔当主持人么？应该不会拉胯
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6286#       发表于 2020-4-14 19:38
+
+
+
+
+可以统计一下“终于要好起来了”在你楼出现了多少次
+反正我是说过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6287#       发表于 2020-4-14 19:58
+
+
+
+ 本帖最后由 zz101896 于 2020-4-14 20:07 编辑 
+
+这期vrfm必不可能拉胯好吧
+syl,上一次应该是saya首播的时候吧，没想到后面拉了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6288#       发表于 2020-4-14 20:01
+
+
+
+
+版主有女gachi吗？我特别想知道如果有的话天天看光一果和好妹妹是什么心情，这可比狐皇给杏星喂饭带劲多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6289#       发表于 2020-4-14 20:03
+
+
+
+
+你楼到底说了多少次vr好起来了
+
+nga游而不击，s1才是毒奶主力<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6290#       发表于 2020-4-14 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6291#       发表于 2020-4-14 20:49
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-14 20:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079878&amp;ptid=1909283" target="_blank">死去的御景柚姬 发表于 2020-4-14 19:38</a>
+
+可以统计一下“终于要好起来了”在你楼出现了多少次
+
+反正我是说过的</blockquote>
+草 ，好像都说过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6292#       发表于 2020-4-14 21:05
+
+
+
+
+还是等能有个50W的V再好起来吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6293#       发表于 2020-4-14 21:07
+
+
+
+
+50w不算泠鸢这种的话必然要看holocn啊，vr是什么臭鱼烂虾。
+
+
+
+
+
+
+
+-----
+
+####  御坂MKII  
+##### 6294#       发表于 2020-4-14 21:15
+
+
+
+
+不愧是弥宝 vrfm依旧在榜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6295#       发表于 2020-4-14 21:19
+
+
+
+
+弥宝自从投入鲨皇旗下，现在就是vr的太子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  膝盖中五箭  
+##### 6296#       发表于 2020-4-14 22:13
+
+
+
+
+妈呀，粗事儿了，听说vr8期生pax是火爆猴粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6297#       发表于 2020-4-14 22:18
+
+
+
+
+你们上次还说弥宝是火爆猴粉
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6298#       发表于 2020-4-14 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47081655&amp;ptid=1909283" target="_blank">膝盖中五箭 发表于 2020-4-14 22:13</a>
+
+妈呀，粗事儿了，听说vr8期生pax是火爆猴粉</blockquote>
+都横空出殡了难不成她还能直播安利？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6299#       发表于 2020-4-14 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47081655&amp;ptid=1909283" target="_blank">膝盖中五箭 发表于 2020-4-14 22:13</a>
+
+妈呀，粗事儿了，听说vr8期生pax是火爆猴粉</blockquote>
+这是哪来的消息？
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 6300#       发表于 2020-4-14 23:07
+
+
+
+
+pax从里到外的数值都很强，就等一个首播了
+顺便装画伯已经被评论戳爆了，其实那个头像就是自己画的
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6301#       发表于 2020-4-15 01:17
+
+
+
+
+确实，皮好看也耐看，rp和营业的度把握的很好，先奶一口帕皇，接下来就看声音了，就怕是下一个沙皇
+syl，个人觉得8期2个男人有点营业过度了，看接下来实力吧
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6302#       发表于 2020-4-15 01:23
+
+
+
+
+风怒了
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6303#       发表于 2020-4-15 01:25
+
+
+
+
+VR又要好起来了
+
+顺便怎么大家都突然都吹起帕皇了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6304#       发表于 2020-4-15 01:26
+
+
+
+
+就VR这样还是主直播我觉得八期半年能有个3-4W的粉丝就够厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6305#       发表于 2020-4-15 01:48
+
+
+
+
+手机不行没法syl
+星弥在叶底下回个早上好被踩了300多
+有这帮彩虹太监，VR还是别指望好起来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">如果没有什么特别出圈的活，就凭彩虹太监这帮背后捅刀子还是别想好了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6306#       发表于 2020-4-15 03:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083697&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-04-15 01:48:38</a>
+手机不行没法syl
+星弥在叶底下回个早上好被踩了300多
+有这帮彩虹太监，VR还是别指望好起来了
+ ...</blockquote>哈哈，我看到了，要笑死，不过我觉得仓鼠本身也挺有问题
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 6307#       发表于 2020-4-15 03:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47083519&amp;ptid=1909283" target="_blank">aucun 发表于 2020-04-15 01:17:42</a>
+确实，皮好看也耐看，rp和营业的度把握的很好，先奶一口帕皇，接下来就看声音了，就怕是下一个沙皇
+syl，个 ...</blockquote>沙夜是什么问题啊，感觉声音还蛮好听的。就是看过几次直播，没一次live2d是正常作用的，头不是被颜文字挡了就是被静止图片挡住。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 6308#       发表于 2020-4-15 04:52
+
+
+
+
+现在来vr不是混吃等死兼职的，就是想舔本社V的，真要看好，还是得看关系户转生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定遇见个愿意给一群废物引流的带善人呢
+
+
+
+
+
+
+
+-----
+
+####  花生酱多士  
+##### 6309#       发表于 2020-4-15 05:32
+
+
+
+
+今晚8点仓鼠开反省会
+
+哭哭，因为我不够好所以被300人踩，哭哭，但是谢谢粉丝们包容这样的我
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6310#       发表于 2020-4-15 08:24
+
+
+
+
+虽然我也觉得两边都有问题，叶粉的铁血度还是笑死我了
+
+
+
+
+
+
+
+-----
+
+####  铁木公  
+##### 6311#       发表于 2020-4-15 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47084110&amp;ptid=1909283" target="_blank">月光润色 发表于 2020-4-15 03:20</a>
+
+沙夜是什么问题啊，感觉声音还蛮好听的。就是看过几次直播，没一次live2d是正常作用的，头不是被颜文字挡了 ...</blockquote>
+沙夜没什么问题，就是不太上进<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6312#       发表于 2020-4-15 08:45
+
+
+
+
+我记得楼里不是说八期生有个mhr粉？是哪位啊
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6313#       发表于 2020-4-15 10:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">沙夜主要是没整啥新活，首播搞的精分的活之后基本就是轻松打游戏，后续没起来也很正常，而且东北大碴子味不能说不好，但是真的好出戏啊。
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6314#       发表于 2020-4-15 11:11
+
+
+
+ 本帖最后由 turtlejk 于 2020-4-15 11:16 编辑 
+
+帕皇这个能力值很强啊..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6315#       发表于 2020-4-15 12:18
+
+
+
+
+仓鼠以前天天怼anti可是那些都不是真anti，现在点踩的才是真anti<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  矢吹奈子  
+##### 6316#       发表于 2020-4-15 12:46
+
+
+
+[https://www.bilibili.com/video/BV1fg4y1b7Au?p=12](https://www.bilibili.com/video/BV1fg4y1b7Au?p=12)
+
+
+诚意推荐S1娘昨晚这场直播，是我最近看的最有趣的直播了，从五分钟处开始。
+
+前情是前天歌会，SC点的歌没唱，气跑了个舰长，于是特地在直播中放录播来复盘为什么会发生这种事，捶胸顿足念头不顺的气氛漫出了屏幕，甚至因为这件事反复向运营和其他V求助问自己是不是做错了，认真的考虑要不要以后不接受SC点歌以免悲哀的螺旋继续上升。
+
+S1娘平时一直在粉丝群活跃，把观众都当成网友来对待，这次事件可以说是一次“文化冲击”，让她意识到"观众"和“网友”是不同的，同样，因为这次事件，观众也能意识到S1娘“Virtual”的边界在哪里，这条边界正在随着直播次数的增加以肉眼可见的速度开始变得清晰起来。
+
+虚拟主播的直播间是一个有魔力的地方，当直播画面接续，弹幕栏开始流动，一场互动式的戏剧就开始上演——人的一生中总是扮演着几个不同的角色，轮番上场、谢幕，而昨天的直播显然就是S1娘拿错了自己的台本，对自己到底是哪个角色产生了混乱，从而上演了一场冲突性极高的喜剧。
+
+一边哀叹失去了朋友，一边惋惜丢掉了金主；一边自责自己的敷衍，一边怒斥粉丝的薄情，在各种矛盾的冲突中，我们似乎可以窥见到那个终极答案了——当我们在看V的时候，我们实际是在看什么？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 萌之上弥人| + 1|好评加鹅|
+| 穆幕姆| + 1|好评加鹅|
+| magus| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6317#       发表于 2020-4-15 12:53
+
+
+
+
+没关注这波新人，怎么来看一眼都开始吹那个pax了，有什么牛逼之处吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6318#       发表于 2020-4-15 12:56
+
+
+
+
+v是什么 v什么也不是
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6319#       发表于 2020-4-15 13:25
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-15 13:56 编辑 
+
+仓鼠跟叶师傅女粉不是打了好几回吗，一个虹女粉的能打程度大概得有三到五个虹太监那么多吧
+
+去年12月临近年底的时候有次垃圾棉花糖回，贴了好些个叶师傅女粉给她塞的垃圾，我刚大体翻了翻好像没传录播
+
+当时就感觉她一套垃圾棉花糖+哭哭组合拳的手法相当娴熟，平时直播也是非常小女生的女友感
+
+我一直认为她如果往钓系偶像发展应该是五期里前景最好的一个，结果天天想着往虹贴，整成现在这样不上不下还挺怪的
+
+结论就是无论是作为观众的虹粉还是作为主播的虹粉，通通都不行
+
+
+VR现在领头的几位除了鲨皇以外我寻思压根都不认得虹几个人，可见早切割早好，招一群粉丝来当太君舔狗有什么好看的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6320#       发表于 2020-4-15 13:28
+
+
+
+
+蘑菇人终于开始唱粤语歌了..<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+一波直接冲了百舰..
+
+
+
+
+
+
+
+-----
+
+####  Framea  
+##### 6321#       发表于 2020-4-15 13:42
+
+
+
+
+所以仓鼠一开始做了什么才会被虹女粉倒垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6322#       发表于 2020-4-15 13:48
+
+
+
+
+所以说舔狗不得house，管人舔狗更是死路一条
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6323#       发表于 2020-4-15 13:51
+
+
+
+
+弥宝怎么不学蘑菇人这样唱粤语歌，不需要唱的好听就能有效果，不比跟着mhr做绿叶好，
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6324#       发表于 2020-4-15 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088778&amp;ptid=1909283" target="_blank">Rosefinch 发表于 2020-4-15 13:51</a>
+
+弥宝怎么不学蘑菇人这样唱粤语歌，不需要唱的好听就能有效果，不比跟着mhr做绿叶好， ...</blockquote>
+就弥宝这粤语水平我看是难了
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6325#       发表于 2020-4-15 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088856&amp;ptid=1909283" target="_blank">jkol 发表于 2020-4-15 13:56</a>
+
+就弥宝这粤语水平我看是难了</blockquote>
+粤语歌的话可能并不需要唱的好听
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6326#       发表于 2020-4-15 14:01
+
+
+
+
+pax在放机战歌回卫星了，不知道钢之魂程度如何。
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6327#       发表于 2020-4-15 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088890&amp;ptid=1909283" target="_blank">Rosefinch 发表于 2020-4-15 13:58</a>
+
+粤语歌的话可能并不需要唱的好听</blockquote>
+不好听的话效果差不少吧..蘑菇这是老广州人了..
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 6328#       发表于 2020-4-15 15:15
+
+
+
+
+弥宝的粤语水平，饶了她吧（
+
+
+
+
+
+
+
+-----
+
+####  阿由  
+##### 6329#       发表于 2020-4-15 15:33
+
+
+
+
+重点不应该是弥宝唱歌水平和粤语水平都不行吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 6330#       发表于 2020-4-15 15:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就是因为水平不行弥人才爱看吧
+
+—— 来自 Sony G8441, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6331#       发表于 2020-4-15 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6332#       发表于 2020-4-15 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47088667&amp;ptid=1909283" target="_blank">Framea 发表于 2020-4-15 13:42</a>
+
+所以仓鼠一开始做了什么才会被虹女粉倒垃圾</blockquote>
+舔狗相轻罢了，明明是一类人
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6333#       发表于 2020-4-15 16:27
+
+
+
+
+是因为都被脑控了弥人才喜欢
+
+
+
+
+
+
+
+-----
+
+####  花生酱多士  
+##### 6334#       发表于 2020-4-15 16:53
+
+
+
+
+miki就一假广东人儿，敢唱广东歌广东观众必秒转anti
+
+
+
+
+
+
+
+-----
+
+####  lkciub  
+##### 6335#       发表于 2020-4-15 17:11
+
+
+
+
+原来广东只有粤语区吗，又在你楼学到了
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 6336#       发表于 2020-4-15 17:35
+
+
+
+
+潮汕人激怒<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空无阿冰  
+##### 6337#       发表于 2020-4-15 18:20
+
+
+
+
+原石系偶像唱法怎么了?等我弥歌力上来收获养成系的快乐不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6338#       发表于 2020-4-15 19:20
+
+
+
+
+发现一个有趣的事，只要一提s1娘就会顺劈弥宝，你们弥人没有自己的专楼吗？
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6339#       发表于 2020-4-15 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092893&amp;ptid=1909283" target="_blank">穆幕姆 发表于 2020-4-15 19:20</a>
+
+发现一个有趣的事，只要一提s1娘就会顺劈弥宝，你们弥人没有自己的专楼吗？ ...</blockquote>
+B综就是弥人自己的楼阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6340#       发表于 2020-4-15 20:11
+
+
+
+<blockquote>Rosefinch 发表于 2020-4-15 19:44
+B综就是弥人自己的楼阿</blockquote>
+还真是，那没事了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6341#       发表于 2020-4-15 22:03
+
+
+
+
+哈农玩英雄联盟又是个什么世界线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  冯格特罗伊德  
+##### 6342#       发表于 2020-4-15 22:30
+
+
+
+
+怕不是真有英雄联盟工商
+
+
+
+
+
+
+
+-----
+
+####  TOWA  
+##### 6343#       发表于 2020-4-15 22:44
+
+
+
+
+我傻了 其他人直播间都打得开就鸟神直播间打不开<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  废都刽子手  
+##### 6344#       发表于 2020-4-15 22:47
+
+
+
+
+英雄联盟也需要工商吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决战平安京大概需要吧
+
+
+
+
+
+
+
+-----
+
+####  恨讨论  
+##### 6345#       发表于 2020-4-15 22:49
+
+
+
+
+填格子这么无聊的联动弥宝是怎么想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6346#       发表于 2020-4-15 22:50
+
+
+
+
+这招高了，一句英雄联盟工商，两边都恶心到了
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6347#       发表于 2020-4-15 22:55
+
+
+
+
+miki这个没意思了嗷，总是玩梗扯淡不正面回答，哪怕做全肯定bot也比这样瞎扯强啊，有点尬场<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6348#       发表于 2020-4-15 23:00
+
+
+
+
+我觉得鸟神现在没有什么搞企划的心气了，不知道之前muri说的鸟神联动卫星什么时候落下来，
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6349#       发表于 2020-4-15 23:02
+
+
+
+
+miki这活节目效果没有想象的好，幸亏艾因talk力还能顶，不然真的尬
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6350#       发表于 2020-4-15 23:10
+
+
+
+
+我记得这节目本家就有吧
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6351#       发表于 2020-4-15 23:16
+
+
+
+
+miki这企划不是抄的吗
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6352#       发表于 2020-4-15 23:18
+
+
+
+
+居然想当我鲨皇的姐姐，本脆脆鲨激怒，
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6353#       发表于 2020-4-15 23:20
+
+
+
+
+度人最近各种企划和联动搞得挺好啊，个人直播也开始积极整活了，不那么虚无了，“终于要好起来了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6354#       发表于 2020-4-15 23:23
+
+
+
+
+弥宝越来越pro了，都没有炎上发言和黑皮同事了，再这样下去我要脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6355#       发表于 2020-4-15 23:23
+
+
+
+ 本帖最后由 kaion111 于 2020-4-15 23:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">度人基本盘打牌能多说些骚话就好了，天津相声啥的，纯解说打牌很难顶，可以学学蘑菇人。syl，谁特么打的#翻译校对天生一对的，笑死了。
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6356#       发表于 2020-4-15 23:32
+
+
+
+
+度人最近不是放了个社内博弈游戏大联动的卫星吗，他要是真能主持好搞出效果，可以封一个联动第二神
+
+
+
+
+
+
+
+-----
+
+####  猫狐  
+##### 6357#       发表于 2020-4-15 23:34
+
+
+
+
+原来白色情人节逆向弹幕是艾因弄得吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还以为弥宝这么标新立异
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6358#       发表于 2020-4-16 00:03
+
+
+
+
+85分的企划只作出了65分的效果，这种企划最关键的妄想的部分太少了，有点可惜啊弥宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6359#       发表于 2020-4-16 00:09
+
+
+
+
+弥宝还是放不开啊，填的时候太顺从正常印象了，不过起码没有那么拉胯了，比以前好点了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6360#       发表于 2020-4-16 00:13
+
+
+
+
+好干，弥宝虽然努力了但怎么回事呢<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+image.jpg
+(118.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-16 00:13 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/16/001325tyfady22b0u8c121.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6361#       发表于 2020-4-16 00:52
+
+
+
+
+弥宝会抄作业真了不起
+
+
+
+
+
+
+
+-----
+
+####  墨色aoi  
+##### 6362#       发表于 2020-4-16 01:36
+
+
+
+
+这
+<img src="https://i.loli.net/2020/04/16/eh9BGSKRZsU18lg.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6363#       发表于 2020-4-16 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47096460&amp;ptid=1909283" target="_blank">墨色aoi 发表于 2020-4-16 01:36</a>
+
+这</blockquote>
+这就是三期生的默契吧（
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6364#       发表于 2020-4-16 02:28
+
+
+
+
+草，muri还看s1娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 6365#       发表于 2020-4-16 02:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友还在muri弹幕里面钓鱼也太草了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6366#       发表于 2020-4-16 02:33
+
+
+
+
+不是muri先钓楼友的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6367#       发表于 2020-4-16 02:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47096740&amp;ptid=1909283" target="_blank">Alphawalker 发表于 2020-4-16 02:33</a>
+
+楼友还在muri弹幕里面钓鱼也太草了</blockquote>
+真的有钓鱼的嘛，感觉不出来啊
+
+
+
+
+
+
+
+-----
+
+####  wsifan  
+##### 6368#       发表于 2020-4-16 03:09
+
+
+
+
+muri也是学生啊
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6369#       发表于 2020-4-16 03:31
+
+
+
+
+如果14.9W粉就是粉丝多的话，如果这就是抗压能力强的话
+
+
+
+
+
+
+
+-----
+
+####  纯种路人甲  
+##### 6370#       发表于 2020-4-16 06:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/16/063814oezsdwz3skodtlsc.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200416063753.png</strong> (87.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 06:38 上传
+
+
+
+
+
+
+
+尼PSP真der各个精品，连猴崽都生出来了，这就是真正的杏CN嘛？
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 6371#       发表于 2020-4-16 07:45
+
+
+
+
+副会长为什么昨晚一直强调进公司以后才和大家认识？和仓鼠可能不熟但不至于不认识吧。
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6372#       发表于 2020-4-16 08:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像是真不认识，翻译和校对也就是群文件的关系了，而且弥宝好多都是一人龙的。
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6373#       发表于 2020-4-16 08:46
+
+
+
+ 本帖最后由 南云铁虎 于 2020-4-16 08:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47096890&amp;ptid=1909283" target="_blank">CCCCCC梵 发表于 2020-4-16 03:31</a>
+
+如果14.9W粉就是粉丝多的话，如果这就是抗压能力强的话</blockquote>
+其实相关抗压能力言论从高考联动结束后就开始了如果没记错的话
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6374#       发表于 2020-4-16 09:17
+
+
+
+ 本帖最后由 CCCCCC梵 于 2020-4-16 09:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47097637&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-16 08:46</a>
+
+其实相关抗压能力言论从高考联动结束后就开始了如果没记错的话</blockquote>
+就VR从一开始就有人不看好的，高考联动就一个点。但也就在各种社交论坛或软件阴阳怪气了吧，也没见着什么正面对线，如果这就抗压能力强了的话，有个什么大节奏对骂对线这群人是不是要统统毕业<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  爱乃一声山水绿  
+##### 6375#       发表于 2020-4-16 09:43
+
+
+
+
+弥宝评价的太正经了，相对的没什么节目效果，不过弥宝又做企划了，弥宝好棒👍🏻
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 萌之上弥人| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6376#       发表于 2020-4-16 10:09
+
+
+
+
+仓鼠也是绿仙组的？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6377#       发表于 2020-4-16 11:46
+
+
+
+
+新科娘最近怎么样了
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 6378#       发表于 2020-4-16 13:27
+
+
+
+
+artia直播ow的反应也太有意思了，我愿称之为冲国龙皇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6379#       发表于 2020-4-16 13:30
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-16 13:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">发点muri昨晚直播repo，加完班回家边打游戏边看方丈下棋边听的，顺序是乱的，想到什么写什么
+
+
+开头一段开玩笑是说的自己是走妹系路线的，以后是妹妹不是大哥
+
+1、自己是被熟人问想不想成为魔法少女吸引来的，结果发现不是做魔法少女是做虚拟主播；开始对虚拟主播行业几乎不了解，只看过个别剪辑。
+
+
+2、在VR加罗伊微信之后才发现是自己现实认识的人（但是不是很熟）；
+
+跟孟宝也有些关系，孟宝是自己朋友的朋友（挺喜欢孟宝的，但是孟宝太摸了，直播一般都看不到）
+
+
+3、因为跟VR签了合同所以客观上直播是一份工作，但是自己想把直播当兴趣来做，跟VR合同签了很久不是半年，所以不用担心很快就不见。
+
+之前staff有说过让她多跟其他liver搞好关系，多搞社内外联动，还推荐了几个联动对象，看起来都是萌音萝莉路线的，
+
+自己听的时候假装像弥宝一样唯唯诺诺其实经典叛逆不想去，把原来有预定的也取消了，VR三期本来应该走经典萌音萝莉路线的人因为各种原因都好像跑偏了。
+
+
+4、希望未成年人不要给自己打钱，有稳定收入的人理性打钱，因为是兼职所以直播收入并不太影响生活；
+
+理想的虚拟主播未来不是单纯靠粉丝打钱，而是像**频道主一样通过流量获取收益；
+
+但是社内社外都有很多主播是全职，付出了很多心血在直播上，希望大家能够多多支持。
+
+
+5、在VR群里跟其他liver讨论过直播的意义和涨粉的情况，单纯直播的粉丝增长量非常少，几个小时的长录播也很少有人看；
+
+在B站主要涨粉还是要靠精彩的视频剪辑，联动也有一定的涨粉作用。
+
+
+6、晚上无聊看S1娘直播，感觉她跟自己最初直播的时候很像，因为自己是素人主播，除了首播跟staff彩排过有台本，刚直播的时候都不知道做什么
+
+起初直播打游戏就是纯在自己打游戏播出来看，但是粉丝都比较宽容，让自己度过了直播初期的新手阶段，甚至因为没多少批评还感觉自己很上手，现在也逐渐掌握了直播技能，像OBS操作、看弹幕等等
+
+但是S1娘不一样，S1娘作为素人出道实际上也很迷茫不知道做什么好，但是看S1娘的人会直球anti发表不满，“你坛在anti戳人痛点的方面非常擅长”，S1娘承受的压力肯定很大
+
+自己很喜欢S1娘，当时投票就是投的她。
+
+
+7、对营业的看法是不应该拿自己的感情出来表演，所以如果有一天看到她在营业，那就是她们的关系真有那么好
+
+VR社内的有些营业看起来是营业，其实就是现实不直播的时候关系也有那么好，除非他们不直播的时候也在表演。
+
+
+8、自己社交性格比较被动，开始都不想跟别人联动，现在跟大家关系慢慢好起来了所以可以组织一些活动，感觉VR大家人都挺好的
+
+认为出来直播的不可能有阴角，（弹幕提到Hanon）Hanon看起来不怎么跟其他人交流，其实在八期生群里跟人聊的飞起。
+
+（这里插播一点昨天弥宝的直播内容，弥宝还没跟八期生说过话）
+
+
+9、提到弥宝，说自己很喜欢看弥宝直播，感觉她直播很有意思；
+
+认为直播不是一定要完成什么目标达成什么效果，让大家感到快乐就好了，所以总说拉胯不太合适。
+
+
+10、提到抗压，ruki现在粉丝最多处在风口浪尖上，也是从最开始一路走过来的，她遇到很多困难，感觉她抗压蛮强的，弥宝抗压也很强。
+
+
+最后还有一点我忘记提了，中间在讨论粉丝氛围的时候，她说她收到的质问箱很少是无意义的gachi言论或者烂梗，大家都在给她理性建议所以她感觉非常好；
+
+探讨了一下“批评不自由则赞美无意义”的话题，她说她打辩论出身，辩论时候是不能只阐述个人观点的，在阐述个人观点之后一定要从对方的观点出发辩驳对手。
+
+全肯定bot是没有意义的，只有有批评和意见才能从中找到问题（大概是这个意思来着记不太清了）
+
+
+后面我游戏关了专心看方丈下棋，听的不太仔细或者是脑死忘光了
+
+感觉muri算是比较能够理性看待自己和观众，对直播和前景也都有考量的主播了，年前云P讲座的时候就挺有意思
+
+虽然我因为之前有点梁木也发表过anti言论，但是还是感觉她挺不错的，是我VR最早关注的三个人之一，希望有好的发展
+
+
+
+最后讨论一下弥宝和ruki的问题，昨天弥宝直播真是多亏了好女人救了她，弥宝也太一板一眼了没效果，多跟好女人学学吧
+
+不过弥宝确实现在比直播初期有不小进步，以前就硬读台本，现在讲话流利多了不提，也能拿鲨皇开开玩笑了，但是在用自己娱乐大家方面的职业精神还是很缺乏。
+
+
+
+ruki的抗压方面我倒是感觉压力没多少是虹人来的
+
+实际上ruki粉丝很多都是靠她在B站游戏区主播互动还有跟冷鸟这种大物一起玩搞来的，她好像也是逍遥散人粉丝（我记得逍遥散人女粉含量非常高，战斗力绝对差不了），之前也跟陆巨婴打OW
+
+虹人巴掌大的体量在这些游戏区大UP面前就是个屁，她是比较靠近B站游戏区甚至音乐区主流用户的一侧，真正要面对的是大物粉丝对她蹭热度的攻击
+
+不过以上都是我云的，我一次也没看过她直播所以压根不知道具体情况<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+顺便还有一点，昨天净土VR楼有几楼讨论muri直播间弹幕攻击虹人的问题，今天早上起来看发现连mute都没有楼都被抽了
+
+看来净土楼确实有人在管事啊，就这也要控评？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| minamichisei| + 1||
+| Fakerの幻影| + 1|好评加鹅，大哥还是有点意思的.|
+| Rosefinch| + 1||
+| plllllum| + 1|感谢repo|
+| lunaticfool| + 1|好评加鹅|
+| kaion111| + 1|感谢repo|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  minamichisei  
+##### 6380#       发表于 2020-4-16 13:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TNY-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6381#       发表于 2020-4-16 13:53
+
+
+
+
+大哥认识罗伊真是惊了，mhr自己直播就说过自己差不多是实名上网类似的话了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6382#       发表于 2020-4-16 13:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">现在挖个前世也无所谓了吧，木口cn三个一秒被挖，前世有点名还能帮忙引流，不是挺好的。
+
+vr感觉是熟人介绍邀请和简历投稿对半开啊，不过招素人确实素质波动太大，也很正常。
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6383#       发表于 2020-4-16 13:59
+
+
+
+
+mhr不是和国语配音团队有点关系吗，也配过一些小角色
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 6384#       发表于 2020-4-16 13:59
+
+
+
+
+熟人邀请的话那圈子本身就那么大，很容易拉上关系。
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 6385#       发表于 2020-4-16 14:05
+
+
+
+
+muri那句现实中和罗伊认识我觉得要这么理解
+
+她特意挑了弹幕中一句“在B站认识还是现实中认识”中的“在B站”来复读，也可能意识到有人挖坑冲塔
+
+我觉得是VR本身在B的up里面广撒网了好大一批，一果和aza也是同理
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 6386#       发表于 2020-4-16 14:23
+
+
+
+ 本帖最后由 滑稽Captain 于 2020-4-16 14:33 编辑 
+
+mhr确实是实名上网了，昨天大哥提到孟宝太摸时，弹幕表现出来几乎所有人都清楚她是清华学生
+
+顺便仔细一想，我和孟宝之间的联系也是朋友的朋友（
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6387#       发表于 2020-4-16 14:32
+
+
+
+
+确实，圈子本来就不大，想了想鸟神也可以算我朋友的朋友<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     

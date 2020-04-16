@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-15 02:01** 
+> ## **本文件最后更新于2020-04-16 14:45** 
 
 
 
@@ -814,10 +814,16 @@ b限恰烂钱嘛，贴贴，不寒碜，反正mea开台<img src="https://static.
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 11战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 若风之景| + 1||
+| rubinliu| + 1|爬v综特地过来给你加鹅的，预言家牛比.|
+| DDWarrior| + 1|思路广|
+| mrm4B| + 1|云完了，屑屑|
+| 2111X| + 1|告诉我，这次是不是19年三月录的.|
+| noaki| + 1|差强人意，不过点都贷款到了，下次还用.|
 | planetcd| + 1|好评加鹅|
 | Fakerの幻影| + 1|预言家刀了刀了|
 | 惑星| + 1|提前加鹅吧，真的没活了|
@@ -2697,4 +2703,1197 @@ syl
 
 
 
-                                            
+
+
+-----
+
+####  ylssb10438  
+##### 3156#       发表于 2020-4-15 02:01
+
+
+
+
+啥时候能看到18年的腹黑夸呢
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3157#       发表于 2020-4-15 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47075331&amp;ptid=1914314" target="_blank">pei23333 发表于 2020-4-14 12:54</a>
+1~2个小时，前期尬聊尬贴鬼叫，后期熟络了开始聊聊线抖抖“糖渣”，互相逗一逗，再放几个虚空约定，期间来 ...</blockquote>
+前面的我都无所谓，但最后一行......刚刚让我突然有了那么一丝共鸣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3158#       发表于 2020-4-15 02:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47075331&amp;ptid=1914314" target="_blank">pei23333 发表于 2020-4-14 12:54</a>
+1~2个小时，前期尬聊尬贴鬼叫，后期熟络了开始聊聊线抖抖“糖渣”，互相逗一逗，再放几个虚空约定，期间来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+权限不够加不了鹅
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3159#       发表于 2020-4-15 02:17
+
+
+
+
+放的是录播实锤了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3160#       发表于 2020-4-15 02:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多，就是时间轴出了点问题，这波有点高开低走
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3161#       发表于 2020-4-15 07:03
+
+
+
+
+没看昨晚全程，前面打了个sc就跑了，听你们描述，meaqua联动和mea五元联动的区别只有一个在b站一个在油罐？
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3162#       发表于 2020-4-15 07:06
+
+
+
+
+差不多，我甚至有点理解当时黑屁五元的心态了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 3163#       发表于 2020-4-15 07:39
+
+
+
+
+联动先行熟肉已经出了，大概这就是贴贴限定时效性8
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3164#       发表于 2020-4-15 09:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那还是舞元更给面子一些
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3165#       发表于 2020-4-15 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着冲五元就因为五元是男人？气冷抖
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 3166#       发表于 2020-4-15 09:42
+
+
+
+
+大胆猜测，不出意外今天下午就会有长熟肉了，只要不卡审核<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3167#       发表于 2020-4-15 10:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不禁好奇如果每次联动都是抓人PUBG和抓人lol那种氛围，还会有梁木人存在吗
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3168#       发表于 2020-4-15 10:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/15/102030dhyi3exi44t4zxxf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E7676CE0-D9B7-4F91-AEF4-38A308195E11.jpeg</strong> (35.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-15 10:20 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3169#       发表于 2020-4-15 13:19
+
+
+
+ 本帖最后由 noaki 于 2020-4-15 13:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47085980&amp;ptid=1914314" target="_blank">JustW 发表于 2020-4-15 10:20</a></blockquote>
+有人在嘴里种甘蔗，有人在眼里种梁木
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+不过无论是种啥，种的地方我都建议离大脑远一点。不然长太大了容易挤到脑子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimuer  
+##### 3170#       发表于 2020-4-15 17:30
+
+
+
+
+不管是不是线下如此亦或者是啥 海皇的直播水平属实拉胯 事到如今贴贴人到底在想什么 这种水平的贴贴也能直呼甜吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 3171#       发表于 2020-4-15 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47091565&amp;ptid=1914314" target="_blank">Reimuer 发表于 2020-04-15 17:30:41</a>
+不管是不是线下如此亦或者是啥 海皇的直播水平属实拉胯 事到如今贴贴人到底在想什么 这种水平的贴贴也能直 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这2联动打游戏一向这么虚无，贴贴还是那几次线下后才热起来的，以前深夜lol的熟肉又不是删了，对比一下就知道了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3172#       发表于 2020-4-15 18:21
+
+
+
+
+她没动她也没动
+
+嗷嗷嗷嗷<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Anahs  
+##### 3173#       发表于 2020-4-15 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47079024&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-14 18:14</a>
+
+啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+为什么！！！！！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">兄啊明明说的是可以玩双排模式你这节奏带的也太歪了
+
+
+
+
+
+
+
+-----
+
+####  Reimuer  
+##### 3174#       发表于 2020-4-15 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092126&amp;ptid=1914314" target="_blank">飞姆托 发表于 2020-4-15 18:18</a>
+
+这2联动打游戏一向这么虚无，贴贴还是那几次线下后才热起来的，以前深夜lol的熟肉又不是删了，对比 ...</blockquote>
+海皇一直都是拉胯 我除了刚开始那几次联动打游戏 就再也没看了 现在一看果然海皇还是拉胯专业户<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3175#       发表于 2020-4-16 04:46
+
+
+
+[https://www.zhihu.com/question/320886403/answer/983825033](https://www.zhihu.com/question/320886403/answer/983825033)
+
+
+呃，meaqua是真的吗
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 3176#       发表于 2020-4-16 05:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47096979&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-16 04:46</a>
+
+https://www.zhihu.com/question/320886403/answer/983825033
+
+
+呃，meaqua是真的吗</blockquote>
+是真的的话楼里还能是这样啊？但不是真的又不妨碍贴贴，百合营业多了去了（虽然meaqua甚至从开始就说了不是搞百合营业，到最后都只是说朋友
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3177#       发表于 2020-4-16 05:20
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-16 05:22 编辑 
+
+是不是真的无所谓了。
+
+当meaqua给狂热的人带来伤害的时候就已经不值得了。
+
+你看看这个知乎答主的回答，再看看评论区。这些值得吗？
+
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3178#       发表于 2020-4-16 07:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">是真的，我以前6点给人拉起来打游戏，我大概也是真的**
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3179#       发表于 2020-4-16 07:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47096997&amp;ptid=1914314" target="_blank">a982902854 发表于 2020-4-16 05:03</a>
+是真的的话楼里还能是这样啊？但不是真的又不妨碍贴贴，百合营业多了去了（虽然meaqua甚至从开始就说了不 ...</blockquote>
+屑女仆说的话都只能信半分，包括什么只是朋友和不百合营业，开头说什么提前说明一下我没打算跟你搞什么百合营业，然后直播里什么话都敢说<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3180#       发表于 2020-4-16 10:49
+
+
+
+
+萌新想要求证一下，"天狗大多不会讨厌阿夸，最多讨厌的是一些ntcrew，而crew讨厌咩的一堆一堆"这言论的真实性
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3181#       发表于 2020-4-16 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47099013&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-16 10:49</a>
+
+萌新想要求证一下，"天狗大多不会讨厌阿夸，最多讨厌的是一些ntcrew，而crew讨厌咩的一堆一堆"这言论的真实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年年初那会儿可能还有那么些真实性，现在嘛...
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 3182#       发表于 2020-4-16 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47099013&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-16 10:49</a>
+
+萌新想要求证一下，"天狗大多不会讨厌阿夸，最多讨厌的是一些ntcrew，而crew讨厌咩的一堆一堆"这言论的真实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议自己分别混进两个群体内部观察打探，我觉得你在这里得不到答案
+
+
+
+
+
+
+
+-----
+
+####  sky5  
+##### 3183#       发表于 2020-4-16 11:02
+
+
+
+
+你觉得呢？真的有人做过调查，统计过数字吗？”大多“是多少，”一堆一堆“又是多少呢。公开场合说话声音大并不能代表多数人的意见。
+
+
+
+
+
+
+
+-----
+
+####  zybdnf  
+##### 3184#       发表于 2020-4-16 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47099013&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-16 10:49</a>
+萌新想要求证一下，"天狗大多不会讨厌阿夸，最多讨厌的是一些ntcrew，而crew讨厌咩的一堆一堆"这言论的真实 ...</blockquote>
+讨厌跟喜欢不是一个东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+结合这点你再细品所有联动对象 比一下
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3185#       发表于 2020-4-16 11:04
+
+
+
+ 本帖最后由 LunarCorona_VOV 于 2020-4-16 11:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一圈觉得天狗讨厌阿夸的确实有，但是就算是mk2这种水平好像也只是暗黑贴贴人的水平，放到B站还要吃各种屏蔽，也没多少人真的上升到单纯对夸皇的攻击，功利论什么的不算，但是crew讨厌咩的还是一堆一堆
+
+
+syl，其实也不是求证到底有多少人的数字，只是以前爬哪个楼忘了，看到过这样的言论，以前纯良的时候还没有这种感觉，后来也不知是眼里长出梁木来发现好像这句话还挺有道理的
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3186#       发表于 2020-4-16 11:06
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-16 11:21 编辑 
+
+谢邀，利益相关，匿了
+
+本人咩粉，梁木人，讨厌ntcrew，不讨厌夸
+
+syl，突然发现就只是单纯讨厌nt而已，毕竟也不怎么讨厌正常crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3187#       发表于 2020-4-16 11:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟以前贴的最狠的时候部分crew甚至有用来倒黑泥的群
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3188#       发表于 2020-4-16 11:23
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-16 12:24 编辑 
+
+泻药， 对夸没什么看法， 对crew没什么看法， 对洗夸某些可能迷惑操作的也没什么看法毕竟和我无关。 
+
+稍微有关的比如meaqua我也是带着看戏找乐子的心理的， 我对阿夸对meaqua对上心是没有期待的， 我又不是（暗黑）贴贴民<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+可是上次某crew把meaqua不联动的锅甩mea头上了， 我就有看法了， 你甩holo也比较好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我大概比起恶意更讨厌愚蠢吧， 那个人估计也不是故意针对mea， 只是不会说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+不过我无法代表任何人， 除了自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3189#       发表于 2020-4-16 11:24
+
+
+
+
+两边都有，没太大实质性差别。
+骂得和死了妈一样难听然后说其实并不讨厌只是讨厌脑残粉这没什么说服力吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3190#       发表于 2020-4-16 11:29
+
+
+
+ 本帖最后由 Cla0221 于 2020-4-16 11:34 编辑 
+
+我只讨厌anti，管他是crew里的nt还是虹人里的太监呢。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+不过吧，观察这么久，咩夸俩人的粉对对方anti的人数估计不相上下。当初那几个crew在自己楼里暴露本性的时候，话有多难听我都看在眼里来着。
+
+然后就会变成比较“功利论”“吸血论”和“硬舔都舔不到”“404才过10w粉的废物”哪边的话更过分这种问题了，真的没劲。
+
+啊当然天狗这边一般功利吸血就是底线了，别人对我麻荡妇羞辱的时候可是没有一点底线，可我也不知道这里有没有crew啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3191#       发表于 2020-4-16 11:34
+
+
+
+
+其实硬要说区别的话，咩粉里的夸anti看过夸的比例，肯定比夸粉里看过咩的咩anti的比例高，很多咩anti在成为crew前就是咩anti了，而很多夸anti是真的一路看过来的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3192#       发表于 2020-4-16 11:37
+
+
+
+<blockquote>Cla0221 发表于 2020-4-16 11:29
+我只讨厌anti，管他是crew里的nt还是虹人里的太监呢。
+
+不过吧，观察这么久，咩夸俩人的粉对对方anti ...</blockquote>
+＋1，nga专楼有时说的话是真的过分，好像mea杀了rzcrew的🐴一样。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3193#       发表于 2020-4-16 11:39
+
+
+
+
+两边nt都多，不过看管人的nt已经够多了，所以都属于正常范围<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3194#       发表于 2020-4-16 11:53
+
+
+
+
+个人判断：
+
+mea早期路线的关系导致喜欢她和讨厌她的人存在两级分化的情况，肯定比aqua要明显（对aqua更多可能是无感），所以这个命题可能是成立的，但是这些人可能即使不粉aqua也讨厌mea。
+
+但是从明面上看，看到另一边的元素就ptsd并且发评论、上书什么的，肯定是mea粉比aqua粉多的。可能算是行动力或者容忍力方面的差异吧。
+
+利益相关：18年后半开始主看mea，19年3、4月份转夸推，19年后半转的咩夸双推（不是贴贴人，单纯有段时间喜欢听她唱歌）,今年3月后回归夸推。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3195#         楼主| 发表于 2020-4-16 12:09
+
+
+
+
+不知道，我生于S1，长于S1
+只记得自己从V综流浪到M楼，从M楼流浪到无家可归
+也许这就是虚拟吉普赛人吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 3196#       发表于 2020-4-16 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">其实要说上书，大亏那边也不会少吧，只是一个有运营一个没运营，大亏应该没开私信吧，她顶多就是自搜看到或者自己爬串了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3197#       发表于 2020-4-16 12:25
+
+
+
+
+说不定人家是上书给holo运营了， 所以mea被绝罚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3198#       发表于 2020-4-16 13:02
+
+
+
+
+以前还是挺喜欢看夸的游戏实况的，毕竟总有游戏得云。但后来五岁rp和照顾箱推越来越多，我也就不怎么看了，我既不喜欢子供向也不是箱推。还有就是她杂谈的信息量太稀薄了，我没那么多时间听她兜圈子。至于她搞特供贴贴，不喜欢我不看就是了，虽然希望她还是别搞了，贴贴壬还是暗黑梁木壬都已经太多了。我对crew也没什么看法，但不喜欢nt、冠军粉和把夸一成年人真当成五岁大天使的crew。互相尊重吧。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|希望大家互相尊重+1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3199#       发表于 2020-4-16 13:04
+
+
+
+
+梁木人，很不爽夸皇，不过跟六字母倒没啥大关系，还是会被实实在在存在的糖所吸引，主要是过不去皆切这个坎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 3200#       发表于 2020-4-16 13:11
+
+
+
+
+还是路线问题，阿夸现在是恐男5岁大天使，游戏废宅，这很二次元，笑。
+至少比这个口嗨想要男朋友的，黑历史天天被人车轱辘，谣言也天天被车轱辘的mea看起来靠谱。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 3201#       发表于 2020-4-16 13:19
+
+
+
+
+有一说一 偶尔看夸打游戏还行 贴贴也就那样 还不如看贴贴人发散比看贴贴本身有趣多了 对夸本来就没意见 只是对nt 夸粉有意见 我觉得你讨厌就算了 跳脸荡妇羞辱 不合适吧 就此之后我就有整天带天使 两面人 吸血论 挂嘴上了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3202#       发表于 2020-4-16 13:40
+
+
+
+
+说起来去年我还呆过一个mea粉的黑泥群，基本上黑泥对象就夸皇相关，一天到晚倒黑泥犯愁
+那会我还说你们这么烦夸皇为啥不引赵弹把夸皇炸了这么类似的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后我就被踢了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 暗心舞踏| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3203#       发表于 2020-4-16 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101268&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-4-16 13:40</a>
+说起来去年我还呆过一个mea粉的黑泥群，基本上黑泥对象就夸皇相关，一天到晚倒黑泥犯愁
+那会我还说你们这么 ...</blockquote>
+踢得好，有原则<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 3204#       发表于 2020-4-16 13:53
+
+
+
+
+大亏说到底也是mea朋友，crew脑瘫就喷crew好了，我反正对大亏无感，也不讨厌就是了。
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3205#       发表于 2020-4-16 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101268&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-4-16 13:40</a>
+说起来去年我还呆过一个mea粉的黑泥群，基本上黑泥对象就夸皇相关，一天到晚倒黑泥犯愁
+那会我还说你们这么 ...</blockquote>
+''干掉你的人，只能是我！！！''
+
+呜哇想想这扭曲劲儿就上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3206#       发表于 2020-4-16 14:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101327&amp;ptid=1914314" target="_blank">JoelBirch 发表于 2020-4-16 13:46</a>
+踢得好，有原则</blockquote>
+那会梁木人还基本都缩在群里，就mk2在外面跳，我在群里还经常试着劝他们看开点，但基本上每回都会吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后就那么说了，现在论坛里梁木人那么多也蛮蛋疼的
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3207#       发表于 2020-4-16 14:05
+
+
+
+
+黄发与粉发的前世滤镜是真的很强就是了 只是时代变了 各自又不是真的姬 
+
+何况企业势和个人势之间的不同，还有那么多事件发生之后只能这样了 
+
+人生有梦 各自精彩
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3208#       发表于 2020-4-16 14:09
+
+
+
+
+黑泥溢出来了，被淹没的人迟早都得疯<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+无视是能够保命的最佳手段<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3209#       发表于 2020-4-16 14:18
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-16 14:22 编辑 
+
+两方粉丝圈我都待过，毕竟黑化前是贴贴民。
+
+两个人都看的人中99%都喜欢贴贴，或者说都是贴贴民，这类人还算正常。但是一旦贴贴民以二创为核心抱起团来，就会魔怔起来，变得理解不了贴贴圈外任何反对的声音，变得攻击性十足。
+
+两边只看一边的基本上对另一边都有点看不惯。只单推，不接触另一边粉丝的，虽然心里不爽对面，但对面粉丝圈的人不来烦这种单推人，就没什么事，这种单推人不会怎么发声。
+
+只要是单推人，虽然理由各种各样，但多多少少会看不惯对面，这是一个立场的问题，不是什么讲道理的问题。而且单推忠诚度越高，一般对另一方的恶意就越重，这是规律。因为人类天生掌握“平衡”这种艺术，喜欢一个主播，正常来说喜爱之情是+30，但你要维持+80的喜爱之情，就需要有一个-50的发泄窗口，恰好，贴贴的另一方就成了这样的一个发泄窗口。如果有一个人吃饭睡觉都能舔，那么她吃饭睡觉也能黑。变的不是主播，只是眼里的梁木。
+
+只要是天狗，你眼里的ntcrew就特别显眼；只要是crew，你眼里的nt天狗就特别显眼。你是一方的单推天生就有黑另一方的需求，理由都可以不需要的。看看楼上几楼的发言，泥潭天狗优势还是crew优势结论很明显了。天狗crew与其纷争不断，不如一起开火魔怔贴贴民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|带师，我悟了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3210#       发表于 2020-4-16 14:18
+
+
+
+ 本帖最后由 h1001010 于 2020-4-16 14:29 编辑 
+
+前贴贴人，因为二创太过虚无与实际联动情况差距过大退了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+吃了一些mk2等暗黑贴贴人的黑泥，对夸有了不少梁木，还能保持一些好感。
+
+当然最恶心的是b站一些ntcrew，年纪轻情商低到处跳脸招黑。<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+对V本人还是看节目效果的，最近直播不太符合我胃口就没怎么追了，也没什么有趣的b限。
+
+
+syl,
+
+虽然我也不太算双推人，但是可以简单解释一下。
+
+喜欢咩的部分是由咩单人带给我的快乐，喜欢夸的部分也是同理。
+
+就好像你喜欢两个风格有点不太相同的游戏一样，有一天联动了就是“双厨狂喜”。
+
+但是没联动也不妨碍你分别享受这两个游戏给你的快乐。
+
+
+其实也就是“DD”嘛，很常见的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3211#       发表于 2020-4-16 14:26
+
+
+
+
+车轱辘
+
+所以说有人觉得mea金钱艺丑陋不堪，道德败坏，天狗饭圈毒瘤，比他们主子更令人作呕
+aqua冷血事业人，顿口拙腮，crew脑瘫玩意，比他们主子更聪明睿智
+贴贴人更是不应存在于世，属实该天诛
+
+突然感觉不值得
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3212#       发表于 2020-4-16 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101712&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-16 14:18</a>
+两方粉丝圈我都待过，毕竟黑化前是贴贴民。
+
+两个人都看的人中99%都喜欢贴贴，或者说都是贴贴民，这类人还算 ...</blockquote>
+有一说一，你这也就我去年五月份的想法，自从我意识到有夸皇在，这meaqua就死不了，我就决定要一锅端了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3213#       发表于 2020-4-16 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101840&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-16 14:28</a>
+
+有一说一，你这也就我去年五月份的想法，自从我意识到有夸皇在，这meaqua就死不了，我就决定要一锅端了[f ...</blockquote>
+你端不掉的。如果你对mea已经没有什么留恋了，不妨离开meaqua这个是非之地，像你上一个号里写的签名一样。
+
+或者你已经喜欢上了夸anti这种感觉。
+
+我的话以前是双方的粉丝，黑化之后对她们中立了，没有什么感觉。哪天黑贴贴民黑得无聊了就离开了。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 3214#       发表于 2020-4-16 14:37
+
+
+
+
+快了⑧，俺寻思再过一段时间亏皇把阿咩的B站订阅一超，这cp就彻底没价值了，应该就可以彻底死了，下次个尬贴应该就是bls了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 3215#       发表于 2020-4-16 14:38
+
+
+
+
+想要端掉贴贴 只要来一波 华丽的来自吾友的背刺 就行了 我突然好期待这个时候的到来 
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3216#       发表于 2020-4-16 14:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">端个锤子，mk2你有这个能耐吗
+
+
+
+
+
+                                          
