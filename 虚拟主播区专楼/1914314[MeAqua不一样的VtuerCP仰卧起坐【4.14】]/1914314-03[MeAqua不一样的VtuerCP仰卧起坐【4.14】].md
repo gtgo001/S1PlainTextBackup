@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-16 14:45** 
+> ## **本文件最后更新于2020-04-16 18:02** 
 
 
 
@@ -3282,11 +3282,11 @@ syl，突然发现就只是单纯讨厌nt而已，毕竟也不怎么讨厌正常
 
 
 
- 本帖最后由 魔法使い2019 于 2020-4-16 12:24 编辑 
+ 本帖最后由 魔法使い2019 于 2020-4-16 15:05 编辑 
 
 泻药， 对夸没什么看法， 对crew没什么看法， 对洗夸某些可能迷惑操作的也没什么看法毕竟和我无关。 
 
-稍微有关的比如meaqua我也是带着看戏找乐子的心理的， 我对阿夸对meaqua对上心是没有期待的， 我又不是（暗黑）贴贴民<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+稍微有关的比如meaqua我也是带着看戏找乐子的心理的， 我对阿夸对meaqua上心不上心是没有期待的， 我又不是（暗黑）贴贴民<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
 可是上次某crew把meaqua不联动的锅甩mea头上了， 我就有看法了， 你甩holo也比较好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -3297,9 +3297,6 @@ syl，突然发现就只是单纯讨厌nt而已，毕竟也不怎么讨厌正常
 
 
 不过我无法代表任何人， 除了自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
 
 
 
@@ -3896,4 +3893,464 @@ aqua冷血事业人，顿口拙腮，crew脑瘫玩意，比他们主子更聪明
 
 
 
-                                          
+
+
+-----
+
+####  JustW  
+##### 3217#       发表于 2020-4-16 14:49
+
+
+
+
+就算从今天开始俩人再也不联动、再也不在直播提到对方，meaqua就死了吗？我看俩人最近几次一直在说：“不是不播，缘分未到”，我就觉得没这俩人meaqua也死不了。已经有了的东西加上二创脑补还够续好久，说不定比业界命还长。想端掉meaqua，必须得彻底破坏这个美好幻想，比如说爆出来给鸣神裁黑料的是夸，或者爆出一段咩嘲讽夸的录音文件，无论是哪一种，都不太可能发生，而且不仅meaqua没了，俩人中至少也得没一个。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3218#       发表于 2020-4-16 14:58
+
+
+
+
+我觉得她们俩谁说一句够了就行
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3219#       发表于 2020-4-16 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101953&amp;ptid=1914314" target="_blank">草牛 发表于 2020-4-16 14:39</a>
+端个锤子，mk2你有这个能耐吗</blockquote>
+如果我拍到夸皇的床照不就行了，可惜疫情推迟了我的行程<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3220#       发表于 2020-4-16 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47102218&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-16 15:02</a>
+
+如果我拍到夸皇的床照不就行了，可惜疫情推迟了我的行程</blockquote>
+加油，要是真做得到全体crew可以封你为神<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3221#       发表于 2020-4-16 15:06
+
+
+
+
+一会就安排上了我没想到的，那什么时候麻凜能浮游炮互怼呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3222#       发表于 2020-4-16 15:09
+
+
+
+
+那你麻必被阿凛打趴<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3223#       发表于 2020-4-16 15:09
+
+
+
+
+V圈黄掉的CP那么多，就没有什么可以借鉴的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+（我对这些真的不怎么熟）
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3224#       发表于 2020-4-16 15:10
+
+
+
+
+直播透露出好友男朋友电话。复刻nico？
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3225#       发表于 2020-4-16 15:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47102256&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-16 15:06</a>
+加油，要是真做得到全体crew可以封你为神</blockquote>
+这个计划已经设计好了，首先去hololive本社调查，然后再跟踪<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">最后再以曝光身份做威胁，回来写篇夸皇解密。完美
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3226#       发表于 2020-4-16 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47102425&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-16 15:15</a>
+这个计划已经设计好了，首先去hololive本社调查，然后再跟踪最后再以曝光身份做威胁，回来写篇夸 ...</blockquote>
+网络不是无法之地， 慎言慎言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mrm4B  
+##### 3227#       发表于 2020-4-16 15:17
+
+
+
+
+《文艺向》神楽めあ——我和凑阿库娅的关系不好
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 3228#       发表于 2020-4-16 15:42
+
+
+
+
+麻凛 互爆黑历史 背刺 小号挂人一气呵成 有nico那味了 GKD啊 什么时候来一次 斩断贴贴 
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 3229#       发表于 2020-4-16 15:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对想凉真就不容易，用皮撕逼也会被美化成运营强迫的，中之人撕逼我先不管凜会不会干出这种事，就算真的中之人打起来了，那跟皮也没关系，贴贴壬依旧可以继续二创meaqua
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3230#       发表于 2020-4-16 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47101840&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-16 14:28</a>
+有一说一，你这也就我去年五月份的想法，自从我意识到有夸皇在，这meaqua就死不了，我就决定要一锅端了[f ...</blockquote>
+谢谢，有笑到
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3231#       发表于 2020-4-16 16:32
+
+
+
+
+“Meaqua是什么动漫啊？”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3232#       发表于 2020-4-16 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同人比原作更广为人知，同人二创的兴盛培养出许多狂热民众，曾经红极一时而今热度下降导致粉丝纷纷自称残党，但却像越共一样你总能在各种奇怪的地方看到贴贴民——meaqua车万说
+
+
+
+
+
+
+
+-----
+
+####  dorasir  
+##### 3233#       发表于 2020-4-16 16:50
+
+
+
+
+没看过夸楼，你们说的crew对mea荡妇羞辱有没有截图啥的啊，不过在外面顶着夸头像对mea yygq的倒是见过好多次了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3234#       发表于 2020-4-16 16:52
+
+
+
+
+没有恶意，只是讨厌愚蠢——指5岁
+
+因为不太看对面粉丝生态，我可能对5岁RP的恶意比对crew更大
+不看夸比对贴贴产生梁木还要早一点
+当然mea如果太弱智了我也恨不得顺劈，想了想克制了，比如说她强行要播恐怖游戏的时候
+
+
+“如果5岁是RP呢”
+那，装傻博取同情比真傻更不可饶恕
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 3235#       发表于 2020-4-16 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  5岁rp挺难的,你得让观众不能一直出戏
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 3236#       发表于 2020-4-16 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47103726&amp;ptid=1914314" target="_blank">dorasir 发表于 2020-4-16 16:50</a>
+
+没看过夸楼，你们说的crew对mea荡妇羞辱有没有截图啥的啊，不过在外面顶着夸头像对mea yygq的倒是见过好多 ...</blockquote>
+m楼往前面翻个几页就有 
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3237#       发表于 2020-4-16 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47103635&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-4-16 16:42</a>
+
+同人比原作更广为人知，同人二创的兴盛培养出许多狂热民众，曾经红极一时而今热度下降导致粉丝纷纷 ...</blockquote>
+补充点证据
+
+现在的车车人都不用玩原作游戏了，对应现在的贴贴民不看直播看二创就行了
+
+二设入脑：十万巫女对应咩猫夸兔
+
+不行了太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimuer  
+##### 3238#       发表于 2020-4-16 17:13
+
+
+
+
+至少在国内 就算不播从此不往来避嫌 也会有nc贴贴人整天幻想这对是迫于无奈、实际上私底下好着呢之类的脑补自我安慰<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 3239#       发表于 2020-4-16 17:19
+
+
+
+
+大亏这么多纯良粉 隐退了一定很有趣 可是我端不掉 呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 3240#       发表于 2020-4-16 17:31
+
+
+
+
+看貼貼人能不能持續meaqua
+
+持續到mea受不了說別再meaqua了 她是偶像我是av女優
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3241#       发表于 2020-4-16 17:35
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-16 17:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47104344&amp;ptid=1914314" target="_blank">meatybobby 发表于 2020-4-16 17:31</a>
+
+看貼貼人能不能持續meaqua
+
+持續到mea受不了說別再meaqua了 她是偶像我是av女優 ...</blockquote>
+类似的话mea早就已经说过了
+
+贴贴民甚至奉为了贴贴圣经<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+参考：《纯黑色的舞台篇》
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3242#       发表于 2020-4-16 17:38
+
+
+
+ 本帖最后由 2014720 于 2020-4-16 17:41 编辑 
+
+不可能的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+mea未收益化时就杀过了，记忆犹新
+正是那次我才发现了贴贴人恐怖的生命力
+
+
+
+
+
+                                         
