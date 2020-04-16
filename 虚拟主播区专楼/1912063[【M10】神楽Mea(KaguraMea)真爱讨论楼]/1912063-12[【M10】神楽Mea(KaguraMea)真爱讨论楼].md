@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-16 22:01** 
+> ## **本文件最后更新于2020-04-17 00:01** 
 
 
 
@@ -8593,7 +8593,7 @@ menhara确实咩等级太高，我至今记得苔姨那次神经病联动的梅�
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
 
 啵.mp3
-(185.08 KB, 下载次数: 99)
+(185.08 KB, 下载次数: 100)
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_GUthr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_afFjF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10854,4 +10854,631 @@ mea换mc服务器ip
 
 
 
-                              
+
+
+-----
+
+####  rubinliu  
+##### 17096#       发表于 2020-4-16 22:01
+
+
+
+
+火腿肠，完败
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17097#       发表于 2020-4-16 22:02
+
+
+
+
+麻酱还剩下什么<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17098#       发表于 2020-4-16 22:04
+
+
+
+
+别慌， 还有平板<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17099#       发表于 2020-4-16 22:10
+
+
+
+
+还有大屁股
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17100#       发表于 2020-4-16 22:15
+
+
+
+
+不如小麻的腿好
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17101#       发表于 2020-4-16 22:17
+
+
+
+
+天知道现在的腿有多粗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17102#       发表于 2020-4-16 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你麻有这个清晰度的腿照？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17103#       发表于 2020-4-16 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47107682&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-16 22:17</a>
+
+不是，你麻有这个清晰度的腿照？
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202004/16/222058s8rfpkmdnkeefe3l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>麻酱 (37).jpg</strong> (31.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-16 22:20 上传
+
+
+
+
+
+
+这张【
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17104#       发表于 2020-4-16 22:23
+
+
+
+
+这张啊，这张右边是胳膊，左边是平板（）
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17105#       发表于 2020-4-16 22:32
+
+
+
+
+这腿，我军败了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17106#       发表于 2020-4-16 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前我一直好奇这图是个啥玩意，怎么还是个锐角，在你楼才发现这是短裤
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17107#       发表于 2020-4-16 22:40
+
+
+
+
+发黄，输了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17108#       发表于 2020-4-16 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">一定是打光问题
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17109#       发表于 2020-4-16 22:42
+
+
+
+
+这不是健康（？）的颜色吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17110#       发表于 2020-4-16 22:46
+
+
+
+
+非肉体厨，问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17111#       发表于 2020-4-16 22:48
+
+
+
+
+<[img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">咩咩没加上<strong>美少女滤镜</strong>，咩咩还没输！
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17112#       发表于 2020-4-16 22:49
+
+
+
+
+我高中暗恋的那个女孩和她有一样的肤色，也有一样的米奇T恤，让我想起了青春<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17113#       发表于 2020-4-16 22:50
+
+
+
+
+美少女滤镜只剩浴衣照了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17114#       发表于 2020-4-16 22:51
+
+
+
+
+所以浴衣照能证明是她本人么，那个床单和这张里的又不一样
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17115#       发表于 2020-4-16 22:52
+
+
+
+
+别说了，不然clay可能又冲错人了
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17116#       发表于 2020-4-16 22:53
+
+
+
+
+clay反正冲错过那么多次了，不差这一次，多冲冲对身体好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17117#       发表于 2020-4-16 22:56
+
+
+
+
+薛定谔的麻照+薛定谔的床单，best match（
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17118#       发表于 2020-4-16 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47108033&amp;ptid=1912063" target="_blank">暗心舞踏 发表于 2020-04-16 22:51:08</a>
+所以浴衣照能证明是她本人么，那个床单和这张里的又不一样</blockquote>我觉得挺像的啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17119#       发表于 2020-4-16 23:10
+
+
+
+
+床单明明一模一样啊，方向问题
+
+反正肯定不会错的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 17120#       发表于 2020-4-16 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47108033&amp;ptid=1912063" target="_blank">暗心舞踏 发表于 2020-04-16 22:51:08</a>
+所以浴衣照能证明是她本人么，那个床单和这张里的又不一样</blockquote>仔细看脖子上是有俩颗痣的，位置和一张标了名字的麻凛合照位置是一样的，肯定是麻
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17121#       发表于 2020-4-16 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47108209&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-16 23:07</a>
+我觉得挺像的啊
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+压线和面料不一样，一个是菱形压线的布面料的，一个是有些褶皱的绒的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17122#       发表于 2020-4-16 23:14
+
+
+
+
+这还没我白（）
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17123#       发表于 2020-4-16 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47108282&amp;ptid=1912063" target="_blank">JustW 发表于 2020-04-16 23:14:40</a>
+这还没我白（）</blockquote>发出来啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17124#       发表于 2020-4-16 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47108282&amp;ptid=1912063" target="_blank">JustW 发表于 2020-4-16 23:14</a>
+
+这还没我白（）</blockquote>
+发
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17125#       发表于 2020-4-16 23:24
+
+
+
+
+警防m楼也变成gay楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17126#       发表于 2020-4-16 23:24
+
+
+
+
+警惕和平演变gay佬楼
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17127#       发表于 2020-4-16 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">唔，你们要发自拍照了吗，这是要交同性朋友?好。。。哦
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17128#       发表于 2020-4-16 23:28
+
+
+
+
+jy宝你要gay就去v综gay吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17129#       发表于 2020-4-16 23:29
+
+
+
+[http://tieba.baidu.com/p/6623173 ... D9613C82E3F86291E52](http://tieba.baidu.com/p/6623173841?share=9105&amp;fr=share&amp;sfc=copy&amp;client_type=2&amp;client_version=10.3.8.19&amp;st=1587050978&amp;unique=D6A9199564DFDD9613C82E3F86291E52)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|还是女粉好看|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17130#       发表于 2020-4-16 23:33
+
+
+
+
+警惕同**友网站，净化网络环境从我做起（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17131#       发表于 2020-4-16 23:34
+
+
+
+
+这里也要沦陷了吗
+
+
+
+
+
+                            
