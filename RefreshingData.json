@@ -4449,9 +4449,9 @@
   },
   {
     "id": "1916462",
-    "totalpage": 94,
+    "totalpage": 95,
     "title": "[【仁王2专楼】国内首个合作MV发布、血刀冢的细节彩蛋]",
-    "lastedit": 1587039010,
+    "lastedit": 1587110585,
     "category": "游戏区专楼",
     "active": true
   },
@@ -5421,7 +5421,7 @@
     "title": "[美国人不给你戴口罩上班(更新：全体wfh)]",
     "lastedit": 1584511708,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1919525",
@@ -5653,7 +5653,7 @@
     "title": "[联动杀公知贴，为什么有些专业型人士粉丝多了之后就会往公知方向发展呢？]",
     "lastedit": 1586880338,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1919787",
@@ -6585,9 +6585,9 @@
   },
   {
     "id": "1923803",
-    "totalpage": 151,
+    "totalpage": 153,
     "title": "[疫情专楼]",
-    "lastedit": 1587103982,
+    "lastedit": 1587110803,
     "category": "外野专楼",
     "active": true
   },
@@ -6681,9 +6681,9 @@
   },
   {
     "id": "1910096",
-    "totalpage": 4,
+    "totalpage": 5,
     "title": "[20.04『富豪刑警 Balance：UNLIMITED／富豪刑事』专楼]",
-    "lastedit": 1586751089,
+    "lastedit": 1587110825,
     "category": "漫区专楼",
     "active": true
   },
@@ -6865,10 +6865,74 @@
   },
   {
     "id": "1924531",
-    "totalpage": 7,
+    "totalpage": 12,
     "title": "[【V8】虚拟YouTuber综合讨论楼織田信姫将于4月30日引退]",
-    "lastedit": 1587104037,
+    "lastedit": 1587110870,
     "category": "虚拟主播区专楼",
+    "active": true
+  },
+  {
+    "id": "1924617",
+    "totalpage": 6,
+    "title": "[著名博主平民王小石炮打张文宏：“是不是崇洋媚外过头了？”]",
+    "lastedit": 1587110879,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1924413",
+    "totalpage": 5,
+    "title": "[同人不同命, 当年硫酸泼熊的清华大学刘海洋现况优渥]",
+    "lastedit": 1587110887,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1921849",
+    "totalpage": 4,
+    "title": "[你身边纹身的人多吗？]",
+    "lastedit": 1587110893,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1924402",
+    "totalpage": 6,
+    "title": "[白嫖了1200刀]",
+    "lastedit": 1587110901,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1924156",
+    "totalpage": 4,
+    "title": "[回合制是否有复辟的危险，以及你的看法]",
+    "lastedit": 1587110907,
+    "category": "游戏区",
+    "active": true
+  },
+  {
+    "id": "1924190",
+    "totalpage": 4,
+    "title": "[新作XCOM：奇美拉战队综合讨论帖-4月24日发售，打折49元]",
+    "lastedit": 1587110913,
+    "category": "游戏区专楼",
+    "active": true
+  },
+  {
+    "id": "1924451",
+    "totalpage": 4,
+    "title": "[FF7re下水道里先去扶谁真是送命题啊]",
+    "lastedit": 1587110919,
+    "category": "游戏区",
+    "active": true
+  },
+  {
+    "id": "1924351",
+    "totalpage": 4,
+    "title": "[新时代GAL标杆？：Steam《猫娘乐园》系列销量突破300万]",
+    "lastedit": 1587110926,
+    "category": "游戏区",
     "active": true
   }
 ]
