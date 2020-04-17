@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 00:01** 
+> ## **本文件最后更新于2020-04-18 02:02** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_lvi7M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_Y863t" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_YC3Jq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_RBzk6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -12488,10 +12488,14 @@ dream solister！这真是歌单？
 
 
 
- 参与人数 3战斗力 -3
+ 参与人数 7战斗力 -8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| noaki|-1|跟团|
+| 专业划水人员|-1|舔刀|
+| h1001010|-1|特意起床扣鹅|
+| jhouo8989|-2|傻逼|
 | 诡秘侍者|-1|好评加鹅|
 | 时雨rain|-1|欢乐多|
 | weiweiEX|-1||
@@ -12625,4 +12629,743 @@ dream solister！这真是歌单？
 
 
 
-                          
+
+
+-----
+
+####  魔法使い2019  
+##### 17194#       发表于 2020-4-18 00:05
+
+
+
+
+唐突哲学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17195#       发表于 2020-4-18 00:07
+
+
+
+
+就是整天说这种话才会被人当作小鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 17196#       发表于 2020-4-18 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">可以去斗鱼的转播
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17197#       发表于 2020-4-18 00:08
+
+
+
+
+还用被当做小鬼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17198#       发表于 2020-4-18 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119871&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-17 23:58</a>
+
+草，唐突发散，话说隔壁偷转被背刺了，tc又卡到爆，好难受</blockquote>
+k1佬改到斗鱼了，直播间号在动态
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17199#       发表于 2020-4-18 00:10
+
+
+
+
+这bgm是动漫曲串烧？
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17200#       发表于 2020-4-18 00:10
+
+
+
+
+这种天天喜欢胡思乱想又不去读书的yhm真麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17201#       发表于 2020-4-18 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119974&amp;ptid=1912063" target="_blank">甘栗No.007 发表于 2020-4-18 00:10</a>
+这种天天喜欢胡思乱想又不去读书的yhm真麻烦</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17202#       发表于 2020-4-18 00:12
+
+
+
+
+不用加前缀，yhm都麻烦....
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17203#       发表于 2020-4-18 00:14
+
+
+
+
+哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17204#       发表于 2020-4-18 00:15
+
+
+
+
+精神强韧性+适当的才能构筑起来的道路自信和自我强化的认知
+
+
+以及“正是因为和别人不一样才有价值的自我主义”（至少在娱乐业里这一点没啥毛病）
+
+
+不遵从单一评判标准的开阔视野
+
+
+她一个都没有.jpg
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17205#       发表于 2020-4-18 00:18
+
+
+
+
+这个问题，一般过一天就好了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17206#       发表于 2020-4-18 00:19
+
+
+
+
+其实我觉得只是半夜发病而已，就跟她的一些粉丝一样（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17207#       发表于 2020-4-18 00:19
+
+
+
+
+她要真一个都没有18年就毕业了（
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17208#       发表于 2020-4-18 00:22
+
+
+
+
+拥有一个完美的平板还不够么？
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17209#       发表于 2020-4-18 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 17210#       发表于 2020-4-18 00:25
+
+
+
+
+偶尔发下疯挺好的，怎么也好过独自在那憋着难受
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17211#       发表于 2020-4-18 00:25
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-18 00:27 编辑 
+
+建议咩姐来中国大学留学
+
+在大学开拓视野，学点知识和思维方式
+
+来中国，能学会中文，更多了解中国文化，以你咩姐，必将成为B站大爆款，不只是是重回b站中国女王，更能真正火出圈
+
+此后，你咩姐因为读了大学，本身素质提高；又在中国真正有了超强人气并因为在中国能自我认识到这些，又拥有了更大的资源。未来一片美好
+
+（然后终于能看见麻鼻了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17212#       发表于 2020-4-18 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120053&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-18 00:19</a>
+她要真一个都没有18年就毕业了（</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17213#       发表于 2020-4-18 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120085&amp;ptid=1912063" target="_blank">素人不相识 发表于 2020-4-18 00:25</a>
+建议咩姐来中国大学留学
+
+在大学开拓视野，学点知识和思维方式
+
+来中国，能学会中文，更多了解中国文化，以你 ...</blockquote>
+好主意
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17214#       发表于 2020-4-18 00:27
+
+
+
+
+什么大学会收啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17215#       发表于 2020-4-18 00:29
+
+
+
+
+说着不想杂谈结果还是聊起来了还行（
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17216#       发表于 2020-4-18 00:30
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-18 00:31 编辑 
+
+要是能好好说服自己“就是一时的心理问题而已，这些事不去想清楚也无所谓”
+
+那也算是另一种层面上的自信吧，“第二天会啥事都没有”的自信
+
+
+当然也不可能说她毫无事业心，不然盒限啥的不会搞的
+
+
+但“肯定自己的事业成果”、“认识到一部分客观不足（不仅限于同行，事实上她的日常心态可能更像是和传统行业比较时候的负面感受）”、“但还是有继续努力的心思”
+
+还是希望都能做到
+
+
+话说回来虚无感果然应该只有“认真思考准备怎么直播”才能排解吧？
+
+从另一个层面上也是展现对直播过程的控制权力（附加成就感），而不是一直顺着观众话题的流向走
+
+如果自我认知为只是舔观众讨钱的活，产生负面感受很难避免的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17217#       发表于 2020-4-18 00:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而她之前说过3月还蛮有干劲的，进了4月就什么都不想做了
+
+
+3月底对她来说最大的事大概就是信姬毕业，但这个事情能影响她多少天的心情看不太出来
+
+
+不过在她收益化回收前几天她也因为某件跟直播无关的事非常消沉，当然同样不知道是什么事
+
+
+现在看来4月没干劲就跟上面这两件事情相关，所以估计对于这种情况估计等一段时间就好了，想太多有的没的大概没啥用
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17218#       发表于 2020-4-18 00:40
+
+
+
+ 本帖最后由 惑星 于 2020-4-18 00:42 编辑 
+
+你咩姐已经聊嗨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小孩子骑自行车摔骨折还挺困难的
+你咩姐的网真的不行
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17219#       发表于 2020-4-18 00:40
+
+
+
+
+原来骑自行车会摔得这么严重吗……
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17220#       发表于 2020-4-18 00:40
+
+
+
+ 本帖最后由 呓亘 于 2020-4-18 00:43 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17221#       发表于 2020-4-18 00:40
+
+
+
+
+睡了， <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17222#       发表于 2020-4-18 00:41
+
+
+
+
+看怎么摔的
+
+
+我怀疑是前翻拿大顶了（不）
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17223#       发表于 2020-4-18 00:47
+
+
+
+
+走路很菜？下楼梯很菜？运痴？我不信除非你用3d走给我看<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17224#       发表于 2020-4-18 00:48
+
+
+
+
+年轻真好，总有说不完的话题
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17225#       发表于 2020-4-18 00:49
+
+
+
+
+自行车摔多疼记不清了，只记得我就是小时候摔疼怕了，从此就没学会自行车<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17226#       发表于 2020-4-18 00:51
+
+
+
+
+今日收货，楼友不会骑自行车
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17227#       发表于 2020-4-18 00:51
+
+
+
+
+#神乐mea竟是运动音痴
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17228#       发表于 2020-4-18 00:51
+
+
+
+
+下楼菜这一点让我想起了空丸
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17229#       发表于 2020-4-18 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120226&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-18 00:51</a>
+#神乐mea竟是运动音痴</blockquote>
+运动音痴是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17230#       发表于 2020-4-18 00:54
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-18 00:52
+运动音痴是什么</blockquote>
+在日语中音痴也有某一方面能力不足的意思，如「方向音痴」指的就是路痴，「運動音痴」指的就是不擅长运动的人。（来自萌娘wiki）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17231#       发表于 2020-4-18 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120239&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-18 00:54</a>
+在日语中音痴也有某一方面能力不足的意思，如「方向音痴」指的就是路痴，「運動音痴」指的就是不擅长运动 ...</blockquote>
+草音痴还能这么用的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17232#       发表于 2020-4-18 01:56
+
+
+
+
+mea放的这个歌唱的蛮可爱的，是谁唱的啊
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17233#       发表于 2020-4-18 01:57
+
+
+
+
+复盘加自我吐槽可爱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17234#       发表于 2020-4-18 01:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己对比18年的不能天使和最近的不能天使，发现区别了，说自己早期好有干劲好可爱，好起来了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17235#       发表于 2020-4-18 02:01
+
+
+
+
+主播踩一捧一，我长梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
