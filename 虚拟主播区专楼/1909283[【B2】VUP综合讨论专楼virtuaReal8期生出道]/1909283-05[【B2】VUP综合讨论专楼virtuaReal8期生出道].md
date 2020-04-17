@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-17 20:00** 
+> ## **本文件最后更新于2020-04-18 00:00** 
 
 
 
@@ -7620,7 +7620,7 @@ IMG_20200417_174719.jpg
 
 
 IMG_20200417_174742.jpg
-(369.73 KB, 下载次数: 1)
+(369.73 KB, 下载次数: 2)
 
 
 
@@ -8252,4 +8252,641 @@ v8前世粉说的
 
 
 
-                                   
+
+
+-----
+
+####  fjm  
+##### 6434#       发表于 2020-4-17 20:12
+
+
+
+
+八木引火有一套的
+
+
+
+
+
+
+2CAD3396-D2B0-4BB4-B3AB-6267333AB289.jpeg
+(63.29 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-17 20:12 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/17/201226zu12nnwy5wxzazz2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6435#       发表于 2020-4-17 20:19
+
+
+
+
+[ 本帖最后由 zhongdasang 于 2020-4-17 20:30 编辑 ]\n\n编辑来自: iPhone客户端
+
+
+
+
+
+
+image.jpg
+(118.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-17 20:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/17/201928x11a28yvym9m3qw2.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 6436#       发表于 2020-4-17 20:19
+
+
+
+
+karu这下巴好怪啊，像那种多边形很少的早年3D游戏
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 6437#       发表于 2020-4-17 20:21
+
+
+
+
+emmm，桃子这个瓜有点意外啊
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6438#       发表于 2020-4-17 20:27
+
+
+
+
+一般都会象征性地毕个业吧 这突然蒸发了还是没断干净啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6439#       发表于 2020-4-17 20:57
+
+
+
+
+3个月就毕业也不咋滴啊…
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6440#       发表于 2020-4-17 20:58
+
+
+
+
+每次有人说是公会带节奏我都不信，这次我感觉真有点像<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 6441#       发表于 2020-4-17 21:02
+
+
+
+ 本帖最后由 バーチャルS1er 于 2020-4-17 21:03 编辑 
+
+如果真发生了这种事也正常，网文作者突然失踪的太监要多少有多少，国内低人气主播哪天啥都不说就散群失踪也是毫不稀奇
+
+
+不过播了这么久突然就这个时间冒出来也是节奏大师了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+
+-----------------------------------------------------------
+
+以前有段时间加过几个女主播群去观察过，群里基本上都是个说个的，女主播和自己群里的人无话可说也是日常茶饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6442#       发表于 2020-4-17 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47118199&amp;ptid=1909283" target="_blank">聪明墨菲特 发表于 2020-4-17 20:58</a>
+
+每次有人说是公会带节奏我都不信，这次我感觉真有点像</blockquote>
+别多想，nga和这里都没人带节奏，贴吧是我在xjb开，根本没啥人真要咋地的，出不了事
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6443#       发表于 2020-4-17 21:30
+
+
+
+ 本帖最后由 不吃布丁的宫子 于 2020-4-17 21:32 编辑 
+
+御水这个音色是真的标准，跟我一个学播音的熟人一模一样，要么是练过要么是干过，各种意义上的特攻人才，带劲嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  御坂MKII  
+##### 6444#       发表于 2020-4-17 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 弥宝播了没一个小时鼠标没电没备用电池还行
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 6445#       发表于 2020-4-17 21:41
+
+
+
+
+副会长播到一半无线鼠标没电撂下直播出门买电池了还行。
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  BotRondo  
+##### 6446#       发表于 2020-4-17 21:47
+
+
+
+
+miki，拉胯滴神！
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6447#       发表于 2020-4-17 21:50
+
+
+
+
+miki怎么总能有新的拉胯方式
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6448#       发表于 2020-4-17 22:05
+
+
+
+
+七海怎么挂主机区了，混不了时长还没人气。。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6449#       发表于 2020-4-17 22:17
+
+
+
+
+帕克丝这个麦……但是翻唱还是不错的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6450#       发表于 2020-4-17 22:19
+
+
+
+ 本帖最后由 kaion111 于 2020-4-17 22:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">Pax好清楚，不过清楚系rp很辛苦啊，不知道实际直播怎么样
+
+syl，pax和御水的麦感觉都有点。。。
+
+再syl，萨麦尔这个自我介绍...完全没有信息量啊，虽然做的挺中二的，没信息量怎么吸引路人粉。
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6451#       发表于 2020-4-17 22:21
+
+
+
+
+昨晚歌姬迎来了首位第二次过生日的罗兹
+
+
+官方切片简介：
+
+
+这首《DREAMS》是4月16日罗兹生贺直播中，罗兹现场弹唱的，不知不觉已经是罗兹和其他歌姬们，以及战姬众们一起过的第二个生日了，距离第一次唱出这首《DREAMS》已经一年有余，罗兹的成长不知道大家是否都看到了呢？
+
+[【钢琴弹唱】还是从前那个红发少女，梦想依然没有改变《DREAMS》](https://www.bilibili.com/video/BV1ma4y1x7ET)
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6452#       发表于 2020-4-17 22:21
+
+
+
+
+感觉8期这几个都不错啊，可以看看首播
+
+
+
+
+
+
+
+-----
+
+####  阿达克和稳定  
+##### 6453#       发表于 2020-4-17 22:22
+
+
+
+
+pax的翻唱好清楚啊
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 6454#       发表于 2020-4-17 22:28
+
+
+
+
+就冲着这个妖旋好吧
+
+就这个传统空灵麦好吧
+
+这PAX老子推爆了。
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6455#       发表于 2020-4-17 22:40
+
+
+
+
+pax真就vr修女了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 6456#       发表于 2020-4-17 23:00
+
+
+
+
+所以桃子＝翠水灵＝翠seika？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">别吧，我几年前还玩舰C的时候就关注了这个女提督➕coser，突然感觉怪怪的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6457#       发表于 2020-4-17 23:15
+
+
+
+
+为什么B站弹幕可以刷“就这就这”，SC却打不出来？…syl 翠seika的cos硬照太杀独角兽了，希望不是真的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6458#       发表于 2020-4-17 23:17
+
+
+
+
+我还特地去搜了一下，怎么说呢，就很hololive吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6459#       发表于 2020-4-17 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119453&amp;ptid=1909283" target="_blank">金魚佬 发表于 2020-4-17 23:15</a>
+
+为什么B站弹幕可以刷“就这就这”，SC却打不出来？…syl 翠seika的cos硬照太杀独角兽了，希望不是真的 ...</blockquote>
+这也复刻传统吗 vr那边人均帅哥美女 咋到木口就拉了跨呢
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 6460#       发表于 2020-4-17 23:19
+
+
+
+
+帅哥美女和有趣的灵魂天然冲突？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6461#       发表于 2020-4-17 23:19
+
+
+
+
+vr有些ssr卡不要的原因找到了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6462#       发表于 2020-4-17 23:20
+
+
+
+ 本帖最后由 金魚佬 于 2020-4-17 23:24 编辑 
+<blockquote>VivillonTundra 发表于 2020-4-17 23:17
+这也复刻传统吗 vr那边人均帅哥美女 咋到木口就拉了跨呢</blockquote>
+都是石头人的错！萝莉呢？就这就这？<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6463#       发表于 2020-4-17 23:22
+
+
+
+<blockquote>胡桃丶 发表于 2020-4-17 23:19
+帅哥美女和有趣的灵魂天然冲突？</blockquote>
+你意思是桃皇属于有趣的灵魂？这不就是传统杏人吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6464#       发表于 2020-4-17 23:22
+
+
+
+
+事有不豫VR摄像头一开马上变成sleeCN，这也被星沙算到了？
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6465#       发表于 2020-4-17 23:32
+
+
+
+
+pax啊，从这些天的动态还有出道视频来看应该是准备一直rp下去了，蛮好的，VR现在就罗伊一个好好rp的吧。
+有意语大佬分析下她这个发音是真的会还是“罗马”音战士吗？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6466#       发表于 2020-4-17 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119594&amp;ptid=1909283" target="_blank">死去的御景柚姬 发表于 2020-4-17 23:32</a>
+
+pax啊，从这些天的动态还有出道视频来看应该是准备一直rp下去了，蛮好的，VR现在就罗伊一个好好rp的吧。
+
+有 ...</blockquote>
+你说的是最新那首翻唱？不是意大利语，是拉丁语，虽然意大利语是拉丁语系，但基本上没人说拉丁语了，也就文献资料和一些拉丁语词被引用etc. e.g Q.E.D.。还有要看拉丁文版圣经的神父需要。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+这首在**翻唱很火的，B站也有搬运，我是觉得唱这首歌的应该都是“罗马音”战士，但不妨碍好听呀<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  

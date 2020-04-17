@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-17 00:01** 
+> ## **本文件最后更新于2020-04-18 00:01** 
 
 
 
@@ -8593,7 +8593,7 @@ menhara确实咩等级太高，我至今记得苔姨那次神经病联动的梅�
 <img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/av.gif" referrerpolicy="no-referrer">
 
 啵.mp3
-(185.08 KB, 下载次数: 100)
+(185.08 KB, 下载次数: 101)
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_afFjF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_lvi7M" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11481,4 +11481,1148 @@ jy宝你要gay就去v综gay吧<img src="https://static.saraba1st.com/image/smile
 
 
 
-                            
+
+
+-----
+
+####  rubinliu  
+##### 17132#       发表于 2020-4-17 00:28
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-16 23:29
+http://tieba.baidu.com/p/6623173841?share=9105&amp;fr=share&amp;sfc=copy&amp;client_type=2&amp;client_version=10.3.8 ...</blockquote>
+是女粉拯救了m楼<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 17133#       发表于 2020-4-17 00:46
+
+
+
+
+又是沉迷砍2的一天，几天不来，你楼多了这么多楼，发生啥事了
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 17134#       发表于 2020-4-17 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47109136&amp;ptid=1912063" target="_blank">肚子疼了 发表于 2020-4-17 00:46</a>
+又是沉迷砍2的一天，几天不来，你楼多了这么多楼，发生啥事了</blockquote>
+meaqua贴贴联动
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17135#       发表于 2020-4-17 01:00
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-17 01:05 编辑 
+
+几天没来的话大概比较重要的是：
+
+meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
+
+然后，然后就2天没播了
+
+中间大概有3场联动预告（和犬山，大头，星川）（和犬山，心心，夏色，新街，时雨的打块（漏尿）联动）（和巧可的联动）
+
+还有大概就是今晚koyori，noe在咩服MC直播时突然闯进了个路人的小事件
+
+其他大多就是m楼日常了吧
+
+可恶，我也想玩骑砍2<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|好评加鹅|
+| 木板春香| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 17136#       发表于 2020-4-17 06:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47109277&amp;ptid=1912063" target="_blank">素人不相识 发表于 2020-4-17 01:00</a>
+几天没来的话大概比较重要的是：
+
+meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
+
+然后，然后就2天没播 ...</blockquote>
+怎么能忘了黄金周兔妈妈联动呢
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|昨晚太困了，记忆力大暴死|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17137#       发表于 2020-4-17 08:10
+
+
+
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_YC3Jq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17138#       发表于 2020-4-17 08:11
+
+
+
+
+
+佃煮のりお/犬山たまき狗脸蓝心
+
+@norioo_
+
+【蓝心配信告知蓝心】
+
+
+狗【逆凸】3D晩酌地獄…ガチ酔っ払いのたまつり！？逆凸通話でダル絡みする♡【犬山たまき/夏色まつり】
+
+狗4月17日23時～24時
+[https://youtube.com/channel/UC8NZiqKx6fsDT3AVcMiVFyA](https://youtube.com/channel/UC8NZiqKx6fsDT3AVcMiVFyA)
+
+
+たまつり3D晩酌逆凸狗脸蓝心
+
+全員に地獄のダル絡みするゾ…恐惧脸日本清酒酒壶和杯子
+
+※逆凸＆ダル絡みの許可取ってます闪片
+
+配信タグ▶#たまつり晩酌逆凸
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17139#       发表于 2020-4-17 08:43
+
+
+
+
+逆凸的话可能也就几分钟吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17140#       发表于 2020-4-17 08:44
+
+
+
+
+这次嘉宾少也可能多聊一下
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 17141#       发表于 2020-4-17 10:39
+
+
+
+
+又开始联动月了么
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17142#       发表于 2020-4-17 11:16
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 17143#       发表于 2020-4-17 11:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 17144#       发表于 2020-4-17 14:48
+
+
+
+ 本帖最后由 meatybobby 于 2020-4-17 15:32 编辑 
+
+<img src="https://s1.ax1x.com/2020/04/17/JVUOC6.png" referrerpolicy="no-referrer">
+
+女僕咖啡廳？？
+
+
+似乎我理解錯了 原本以為是holo箱推有近期女僕咖啡廳的消息
+
+應該只是holo箱推整理幾個有趣的配信
+
+不過holo箱推裡面有喜歡看女僕咖啡廳也挺神奇的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17145#       发表于 2020-4-17 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47114629&amp;ptid=1912063" target="_blank">meatybobby 发表于 2020-04-17 14:48:36</a>
+女僕咖啡廳？？</blockquote>这是谁
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17146#       发表于 2020-4-17 15:10
+
+
+
+
+就29粉，不是啥重要人物吧
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 17147#       发表于 2020-4-17 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47114831&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-17 15:08</a>
+
+这是谁
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+沒啥 就一般holo箱推 原以為是箱推民有啥聯動消息
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17148#       发表于 2020-4-17 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47115120&amp;ptid=1912063" target="_blank">meatybobby 发表于 2020-04-17 15:38:24</a>
+沒啥 就一般holo箱推 原以為是箱推民有啥聯動消息</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算什了，联动舅舅党？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17149#       发表于 2020-4-17 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真有联动消息轮得到holo箱推当第一手？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17150#       发表于 2020-4-17 22:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">耳膜炸裂
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17151#       发表于 2020-4-17 22:42
+
+
+
+
+标准展开
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 17152#       发表于 2020-4-17 22:43
+
+
+
+
+演技过于迫真，建议两个人找麻酱学一学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17153#       发表于 2020-4-17 22:44
+
+
+
+
+喝酒不打嗝终究差点内味
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17154#       发表于 2020-4-17 22:46
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-17 22:47 编辑 
+
+yysy，你咩打嗝技术越来越强了，之前有几次打嗝，我甚至仿佛感觉她从嘴里吐出了什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17155#       发表于 2020-4-17 22:47
+
+
+
+
+我又错过了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17156#       发表于 2020-4-17 22:59
+
+
+
+
+我错过了等于今天没播，听不到新鲜的麻酱声音要死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17157#       发表于 2020-4-17 23:21
+
+
+
+
+tctctc
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17158#       发表于 2020-4-17 23:24
+
+
+
+
+活了活了，爽了爽了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17159#       发表于 2020-4-17 23:24
+
+
+
+
+秃了啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17160#       发表于 2020-4-17 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">几天没播了，终于播了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 17161#       发表于 2020-4-17 23:28
+
+
+
+
+tc啦
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17162#       发表于 2020-4-17 23:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">错过几分钟还行
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17163#       发表于 2020-4-17 23:30
+
+
+
+
+你们行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17164#       发表于 2020-4-17 23:32
+
+
+
+
+看一会就睡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17165#       发表于 2020-4-17 23:32
+
+
+
+
+麻酱歌单跟我高中时候的超像的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17166#       发表于 2020-4-17 23:32
+
+
+
+
+完美错过犬山那，完美邂逅tc<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17167#       发表于 2020-4-17 23:33
+
+
+
+
+yhm起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17168#       发表于 2020-4-17 23:34
+
+
+
+ 本帖最后由 IrisL 于 2020-4-17 23:35 编辑 
+
+这是怎么了是哪里又有人在乱嗨吗(原来是网卡)
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17169#       发表于 2020-4-17 23:34
+
+
+
+
+我高中有一段时间歌单也是这样，后来有点腻了，全换成jojo里替身名的歌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在我的歌单已经全是咩的歌回了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17170#       发表于 2020-4-17 23:36
+
+
+
+
+这歌单听的我头大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17171#       发表于 2020-4-17 23:37
+
+
+
+ 本帖最后由 IrisL 于 2020-4-17 23:39 编辑 
+
+好吧她才是来乱嗨的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17172#       发表于 2020-4-17 23:38
+
+
+
+
+yhm恐怖啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17173#       发表于 2020-4-17 23:39
+
+
+
+
+哈哈哈哈哈哈，逗乐我了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17174#       发表于 2020-4-17 23:40
+
+
+
+
+咩咩好恐怖啊，被骂了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17175#       发表于 2020-4-17 23:42
+
+
+
+
+这是咋了，比撤销收益化还要恼火<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17176#       发表于 2020-4-17 23:42
+
+
+
+
+😨😨😨😨😨😨😨😨😨😨😨😨😨
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17177#       发表于 2020-4-17 23:43
+
+
+
+
+草，你咩姐上播发疯而已
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17178#       发表于 2020-4-17 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">具体什么没说，感觉只是yhm的不安定日常
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17179#       发表于 2020-4-17 23:44
+
+
+
+ 本帖最后由 2111X 于 2020-4-17 23:48 编辑 
+
+dream solister！这真是歌单？
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17180#       发表于 2020-4-17 23:46
+
+
+
+
+感觉跟holo那边有关，关于讨厌的话题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17181#       发表于 2020-4-17 23:47
+
+
+
+
+草， 这发散角度太过自由了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17182#       发表于 2020-4-17 23:48
+
+
+
+
+主播yhm，观众就不要yhm了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17183#       发表于 2020-4-17 23:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">估计出不了门难受而已
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17184#       发表于 2020-4-17 23:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阴谋论哥你又开始了？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17185#       发表于 2020-4-17 23:49
+
+
+
+
+大胆假设，小心论证<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17186#       发表于 2020-4-17 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47104917&amp;ptid=1912063" target="_blank">2111X 发表于 2020-4-16 18:21</a>
+昨晚挂了快10天的死喷终于下线了</blockquote>
+十几天的乱趴终于结束了
+
+今天心情不好估计是在怀念这十多天的快乐
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 诡秘侍者|-1|好评加鹅|
+| 时雨rain|-1|欢乐多|
+| weiweiEX|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17187#       发表于 2020-4-17 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正真有大事她会说的，她不说就当没啥大事了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17188#       发表于 2020-4-17 23:50
+
+
+
+
+是的，因为holo不让她和holostars联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">(
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17189#       发表于 2020-4-17 23:51
+
+
+
+
+刚才有提到holo吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17190#       发表于 2020-4-17 23:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17191#       发表于 2020-4-17 23:57
+
+
+
+ 本帖最后由 2111X 于 2020-4-17 23:59 编辑 
+
+要时刻紧绷神经，保障麻酱精神世界的纯洁性。
+
+
+因为消息传到麻酱那里至少在三个环节可以有意识地删减和增添。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17192#       发表于 2020-4-17 23:58
+
+
+
+
+草，唐突发散，话说隔壁偷转被背刺了，tc又卡到爆，好难受<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17193#       发表于 2020-4-17 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119867&amp;ptid=1912063" target="_blank">2111X 发表于 2020-4-17 23:57</a>
+要时刻紧绷神经，保障麻酱精神世界的纯洁性。
+
+
+因为消息传到麻酱那里至少在三个环节可以有意识地删减和增添 ...</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+                          
