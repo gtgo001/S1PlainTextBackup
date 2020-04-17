@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 02:02** 
+> ## **本文件最后更新于2020-04-18 04:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_Y863t" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_lXbh2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_RBzk6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_Nf1V1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -12488,10 +12488,11 @@ dream solister！这真是歌单？
 
 
 
- 参与人数 7战斗力 -8
+ 参与人数 8战斗力 -9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| clvan_|-1|脑子|
 | noaki|-1|跟团|
 | 专业划水人员|-1|舔刀|
 | h1001010|-1|特意起床扣鹅|
@@ -13068,6 +13069,25 @@ k1佬改到斗鱼了，直播间号在动态
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13368,4 +13388,306 @@ mea放的这个歌唱的蛮可爱的，是谁唱的啊
 
 
 
-                         
+
+
+-----
+
+####  无限舰制  
+##### 17236#       发表于 2020-4-18 02:06
+
+
+
+
+初心啊初心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17237#       发表于 2020-4-18 02:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">唔，回不去了吗，原来的干劲咩
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17238#       发表于 2020-4-18 02:08
+
+
+
+
+咩姨不如小咩啊，输了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17239#       发表于 2020-4-18 02:08
+
+
+
+
+……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17240#       发表于 2020-4-18 02:08
+
+
+
+
+不要捧一踩一，三号机和一号机一样可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17241#       发表于 2020-4-18 02:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">她还是觉得自己装可爱的声音kimo，坏起来了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17242#       发表于 2020-4-18 02:09
+
+
+
+
+我怎么起鸡皮疙瘩了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">…
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 17243#       发表于 2020-4-18 02:09
+
+
+
+
+她害羞了，好可爱好可爱
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17244#       发表于 2020-4-18 02:11
+
+
+
+
+吐槽自己的歌回还行
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 17245#       发表于 2020-4-18 02:14
+
+
+
+
+你怎么这样模仿小麻说话，麻姨，yygq的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17246#       发表于 2020-4-18 02:15
+
+
+
+
+回不去的，咩姨别装了，恶心！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17247#       发表于 2020-4-18 02:15
+
+
+
+
+没可爱了可以多来点GHS吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17248#       发表于 2020-4-18 02:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">刚刚一瞬还魂
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17249#       发表于 2020-4-18 02:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神乐mea带你一起解读神乐mea在直播的时候点鼠标是在干啥
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17250#       发表于 2020-4-18 02:22
+
+
+
+
+这么说，这个就是那个什么，副音轨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17251#       发表于 2020-4-18 03:22
+
+
+
+
+下了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17252#       发表于 2020-4-18 03:25
+
+
+
+
+下了
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17253#       发表于 2020-4-18 03:25
+
+
+
+
+舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17254#       发表于 2020-4-18 03:39
+
+
+
+
+下次tc聊起来了估计就要超4小时了（
+
+
+
+
+
+                        
