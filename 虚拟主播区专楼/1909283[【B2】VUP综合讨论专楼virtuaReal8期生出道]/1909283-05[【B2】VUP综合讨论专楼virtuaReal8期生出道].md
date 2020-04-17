@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-17 00:00** 
+> ## **本文件最后更新于2020-04-17 20:00** 
 
 
 
@@ -7080,10 +7080,11 @@ ruki的抗压方面我倒是感觉压力没多少是虹人来的
 
 
 
- 参与人数 9战斗力 +9
+ 参与人数 10战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空无阿冰| + 1|好评加鹅|
 | 花生酱多士| + 1||
 | wx41122| + 1|好评加鹅|
 | obheng| + 1|好评加鹅|
@@ -7457,4 +7458,798 @@ Muri发微博说因为附近有人确诊被居家隔离了...
 
 
 
-                                    
+
+
+-----
+
+####  magus  
+##### 6392#       发表于 2020-4-17 01:46
+
+
+
+[https://vc.bilibili.com/video/3042721](https://vc.bilibili.com/video/3042721)
+
+muri这个唱歌太可爱了  <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6393#       发表于 2020-4-17 04:30
+
+
+
+
+artia是真的厉害玩ow，而且本音听的真的非常舒服
+
+看高手玩真的很有观赏性！
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 6394#       发表于 2020-4-17 11:09
+
+
+
+
+artia的洋泾浜中文好像也是rp,真就cn龙皇?
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 6395#       发表于 2020-4-17 13:30
+
+
+
+
+副会长抽卡vtl一转sss的间隙正好一个id是モルルーナ的打sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6396#       发表于 2020-4-17 15:50
+
+
+
+
+karu的萌音我有点顶不住，虽然这应该只是为了模仿硬掐出来的吧
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6397#       发表于 2020-4-17 16:01
+
+
+
+
+不会真以为她声音听起来这样吧，要模仿西施惠肯定调的妈都不认识了啊
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6398#       发表于 2020-4-17 16:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">动森那个是调音压出来的啊，和本人声线完全没关系，你去压也是这个声线。
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6399#       发表于 2020-4-17 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+IMG_20200417_174719.jpg
+(272.93 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-4-17 17:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/17/174830dkxphr1edazi7rap.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+IMG_20200417_174742.jpg
+(369.73 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-17 17:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/17/174829sa4313ocmvtot4d4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6400#       发表于 2020-4-17 18:03
+
+
+
+
+喵月播pcr自己配音算好活<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6401#       发表于 2020-4-17 18:05
+
+
+
+
+二手live这诨名谁想的，太精辟了吧，本破鞋爱好者直接高潮了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| minamichisei| + 1|好评|
+| 阿达克和稳定| + 1|欢乐多|
+| oshinoshinobu| + 1|qs|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 6402#       发表于 2020-4-17 18:09
+
+
+
+
+一位老粉失去了梦想.jpg
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6403#       发表于 2020-4-17 18:11
+
+
+
+
+唉，还以为桃皇又犯傻了呢，这种没劲
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 6404#       发表于 2020-4-17 18:13
+
+
+
+
+比起嗷的一声抽过去的mrr字幕组还算好了233
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6405#       发表于 2020-4-17 18:20
+
+
+
+
+怎么还扯上木乃一了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有知情的指个桃皇的路
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 6406#       发表于 2020-4-17 18:21
+
+
+
+
+桃皇挖出来的是A站一个小up主靠谱吗，如果属实的话a岛有没有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6407#       发表于 2020-4-17 18:21
+
+
+
+
+所以桃皇前世是谁<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6408#       发表于 2020-4-17 18:23
+
+
+
+
+桃皇挖掘机来一个
+
+
+
+
+
+
+
+-----
+
+####  ihihihihi  
+##### 6409#       发表于 2020-4-17 18:27
+
+
+
+
+看牌子可能前世就是翠水灵
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6410#       发表于 2020-4-17 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47116783&amp;ptid=1909283" target="_blank">金魚佬 发表于 2020-4-17 18:23</a>
+
+桃皇挖掘机来一个</blockquote>
+[https://www.acfun.cn/u/16323065.aspx](https://www.acfun.cn/u/16323065.aspx)翠水灵， 打钱的那个好像是他房管
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6411#       发表于 2020-4-17 18:38
+
+
+
+
+来holo前途不比当个人势好？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 6412#       发表于 2020-4-17 18:41
+
+
+
+
+说起来A站现在有直播功能吗，我刚才去找了一圈没看到，在A当v难道要当视屏势吗，然后开网店卖货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 6413#       发表于 2020-4-17 18:43
+
+
+
+
+如果SC说的是真的话，没有通告直接玩消失确实挺过分的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6414#       发表于 2020-4-17 18:44
+
+
+
+
+啥，桃皇有老公了？
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6415#       发表于 2020-4-17 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47116947&amp;ptid=1909283" target="_blank">Fakerの幻影 发表于 2020-4-17 18:38</a>
+
+来holo前途不比当个人势好？</blockquote>
+主要问题不是玩人间蒸发吗
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6416#       发表于 2020-4-17 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47116992&amp;ptid=1909283" target="_blank">VivillonTundra 发表于 2020-4-17 18:45</a>
+主要问题不是玩人间蒸发吗</blockquote>
+突然消失确实不好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6417#       发表于 2020-4-17 18:48
+
+
+
+ 本帖最后由 金魚佬 于 2020-4-17 18:50 编辑 
+
+头像都变黑白照了。目前38个粉儿。就这？39了，这还能涨的啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6418#       发表于 2020-4-17 18:52
+
+
+
+
+有りんこ推特下那个味了，无言跑路挺正常的，老粉伤心也挺正常的，或许这就是人生吧
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6419#       发表于 2020-4-17 18:59
+
+
+
+
+39个粉是在开玩笑么，还是a站的机制特殊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6420#       发表于 2020-4-17 19:00
+
+
+
+
+b站前世不是有4000粉吗 ID：迷路的天使无处可寻 
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 6421#       发表于 2020-4-17 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47116758&amp;ptid=1909283" target="_blank">proxima 发表于 2020-4-17 18:20</a>
+
+怎么还扯上木乃一了有没有知情的指个桃皇的路</blockquote>
+真的有人叫木乃一？？
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6422#       发表于 2020-4-17 19:08
+
+
+
+
+桃皇是怎么想出翠水灵这么土的名字的
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6423#       发表于 2020-4-17 19:09
+
+
+
+
+按理来说这种转世不应该提前给个暗示把老粉引过去，玩蒸发是啥意思
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6424#       发表于 2020-4-17 19:10
+
+
+
+
+这楼好像也卡页了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6425#       发表于 2020-4-17 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47117199&amp;ptid=1909283" target="_blank">tiro_finale 发表于 2020-4-17 19:10</a>
+
+这楼好像也卡页了</blockquote>
+之前V7抽楼这楼也被抽了啊
+
+只要抽楼就会这样
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 6426#       发表于 2020-4-17 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47117185&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-17 19:08</a>
+桃皇是怎么想出翠水灵这么土的名字的</blockquote>
+翠水灵，黑桃影，差不多嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 6427#       发表于 2020-4-17 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47117192&amp;ptid=1909283" target="_blank">fjm 发表于 2020-4-17 19:09</a>
+
+按理来说这种转世不应该提前给个暗示把老粉引过去，玩蒸发是啥意思</blockquote>
+39个粉丝有引流的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6428#       发表于 2020-4-17 19:22
+
+
+
+
+A岛整个大活可以吗？饿死猴山逸不实睿栗的贞节牌坊被砸了能忍？
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6429#       发表于 2020-4-17 19:26
+
+
+
+ 本帖最后由 seaside 于 2020-4-17 19:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看戏倒是认真点啊 人b站播过的 
+
+v8前世粉说的
+
+“翠水灵，2019年4月16日出道的个人势虚拟主播，同日投稿自我介绍视频，并开始初配信。
+
+任豚主播/自虐系游戏主播，玩任天堂游戏、iwanna、猫里奥；还直播过跑跑卡丁车这种上古游戏。
+
+出道当天收获1提督2舰长。四天后粉丝破千
+
+5月中旬消失过一段时间，给粉丝称回天界处理事务，6月8日、6月9日复播，正常打游戏，并无毕业征兆。
+
+下播后停止一切活动，粉丝群里也从不冒泡。粉丝等待了几个月，期间互相安慰天上一天地下一年，水灵只不过是在天界打了个瞌睡而已。
+
+10月17日，粉丝群里的粉丝们互相问候早安时，粉丝群被解散。推、管销号，b站头像全黑。
+
+6月停止活动时粉丝数3000出头
+
+            5月中旬时承诺过给粉丝生日歌回，（生日6月1日）；可是生日当天并没有播，最后一次直播也没有进行歌回。
+
+”
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 6430#       发表于 2020-4-17 19:29
+
+
+
+
+草，在贴吧看到视频了
+
+“我是大天使派来的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6431#       发表于 2020-4-17 19:48
+
+
+
+
+桃在B博动态里开始活动是啥时候？…其实2个月攒3000粉的国V挺不错了，但是第一天就有上舰的又不敢确定是个人势还是公会试水<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 6432#       发表于 2020-4-17 19:52
+
+
+
+
+天使风评被害
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6433#       发表于 2020-4-17 19:58
+
+
+
+
+国产大天使啊这是，前世有贴贴营业对象吗？工毛以<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   
