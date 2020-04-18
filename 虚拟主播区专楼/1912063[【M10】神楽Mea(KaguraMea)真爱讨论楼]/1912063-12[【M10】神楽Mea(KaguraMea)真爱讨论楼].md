@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 00:02** 
+> ## **本文件最后更新于2020-04-19 02:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_cul13" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_u8AjS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_aFEfD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_F5pt5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -14731,4 +14731,694 @@ TC没推送通知吗？怎么我手机每次都有推送的？<img src="https://
 
 
 
-                      
+
+
+-----
+
+####  weiweiEX  
+##### 17316#       发表于 2020-4-19 00:03
+
+
+
+
+开了，歌回
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17317#       发表于 2020-4-19 00:05
+
+
+
+
+《mea的病》
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17318#       发表于 2020-4-19 00:09
+
+
+
+
+红色内裤不是代表本命年吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17319#       发表于 2020-4-19 00:11
+
+
+
+
+真有那么多大红胖次吗
+
+
+就算有也代表热情而不是少女感吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17320#       发表于 2020-4-19 00:18
+
+
+
+
+她在说啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+【有一次在家里试穿了一次然后被母亲发现了然后禁止了】
+【要么是左边很紧要么右边很紧】
+【被妈妈看到就被说了】
+【那我画给你看吧】
+【首先这里是脚】
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17321#       发表于 2020-4-19 00:20
+
+
+
+
+himopan应该是那种系带胖次吧
+
+让妈妈帮忙系带子也太尴尬了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17322#       发表于 2020-4-19 00:25
+
+
+
+
+怪骗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17323#       发表于 2020-4-19 00:27
+
+
+
+
+【但是有一次圣诞节】
+【箱子里就收到了非常多巧克力】
+【因为旁边的箱子是非常受欢迎的孩子】
+【然后可能是我这边箱子没锁】
+【就放到我这边了】
+【结果大概放了5个巧克力吧】
+【那时候我还不知道 很开心的吃完了就回去了】
+【然后以为是男孩子同班的】
+【去问了 结果说没送我巧克力啊】
+【然后去问了其实是给另外的三个女生的】
+【因为那时候换座位了】
+【所以似乎是所以箱子也换了】
+【就放错巧克力了】
+【我那时候非常害怕啊】
+【都说不出口“抱歉巧克力是被我吃了”】
+【然后就不小心说了“诶我不知道啊”】
+【就说“诶，不小心放到我箱子里了吗”】
+【“我昨天没锁箱子，是不是被偷了”】
+【然后就说了这样编出来莫非也不是不可能的假说】
+【就说“也可能是有人看到巧克力在箱子里就投了把”】
+【然后大家也没多想 可能就觉得“这样啊，也是有可能的吧”】
+【完全没说出来5个都是我自己吃掉了】
+【在回家路上基本全都吃掉了】
+【回家吃剩还给了父母一些】
+【但是没什么情书啊只有巧克力】
+【以前情人节的时候我有很好的朋友倒是有】
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17324#       发表于 2020-4-19 00:29
+
+
+
+
+开始唱第一首歌了么？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17325#       发表于 2020-4-19 00:32
+
+
+
+
+《歌回》
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17326#       发表于 2020-4-19 00:32
+
+
+
+
+《歌回》
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17327#       发表于 2020-4-19 00:32
+
+
+
+
+《歌回》
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17328#       发表于 2020-4-19 00:33
+
+
+
+
+杂谈复建挺好的，还不是车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 17329#       发表于 2020-4-19 00:39
+
+
+
+
+狂犬桑是你吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17330#       发表于 2020-4-19 00:39
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-19 00:41 编辑 
+
+那看来精神压力确实挺大的，到哪儿都被厄介围剿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有直球发情舔芒果的，clay是你吗
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17331#       发表于 2020-4-19 00:41
+
+
+
+
+……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17332#       发表于 2020-4-19 00:41
+
+
+
+
+……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17333#       发表于 2020-4-19 00:42
+
+
+
+
+泥潭今晚心情不大好
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17334#       发表于 2020-4-19 00:43
+
+
+
+
+我强烈怀疑这人在等兔鞠。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17335#       发表于 2020-4-19 00:43
+
+
+
+
+说起来虽然应该是她画的不准……
+
+但刚才那副系带胖次按构造中间就露出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17336#       发表于 2020-4-19 00:44
+
+
+
+
+刚才她说那个sc<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我第一时间也是想到了狂犬
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17337#       发表于 2020-4-19 00:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厄介观众每天给她发暗黑日记和发性骚扰的留言给她带来太多压力了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17338#       发表于 2020-4-19 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得组长唱歌是不是巧克级的来着
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 17339#       发表于 2020-4-19 01:05
+
+
+
+
+奶音可爱死了，草<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17340#       发表于 2020-4-19 01:06
+
+
+
+
+今天好像又被限流了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17341#       发表于 2020-4-19 01:09
+
+
+
+
+日常恶意买萌中……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17342#       发表于 2020-4-19 01:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xjb操作结果把直播推流停了，李在赣神魔
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17343#       发表于 2020-4-19 01:30
+
+
+
+
+咩用chrome，我用火狐，渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17344#       发表于 2020-4-19 01:32
+
+
+
+
+Chrome党狂喜
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17345#       发表于 2020-4-19 01:32
+
+
+
+
+fuckyoumea?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17346#       发表于 2020-4-19 01:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌，她火狐、chrome都有的，之前暴露过桌面（）
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17347#       发表于 2020-4-19 01:39
+
+
+
+
+用360的我不配发言<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17348#       发表于 2020-4-19 01:41
+
+
+
+
+360不也是chrome
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17349#       发表于 2020-4-19 01:44
+
+
+
+
+酸奶加蜂蜜...会发胖吗……
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17350#       发表于 2020-4-19 01:49
+
+
+
+
+蜂蜜酸奶减肥啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17351#       发表于 2020-4-19 01:49
+
+
+
+
+妈的你必肥30斤嗷<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17352#       发表于 2020-4-19 01:50
+
+
+
+
+酸奶糖分一顶一的，睡前喝没救了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17353#       发表于 2020-4-19 01:56
+
+
+
+
+说唱部分进步很大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17354#       发表于 2020-4-19 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47129863&amp;ptid=1912063" target="_blank">呓亘 发表于 2020-4-19 01:44</a>
+
+酸奶加蜂蜜...会发胖吗……</blockquote>
+怎么说呢，能量摄入大于消耗，就会转化为脂肪
+
+（直球医学生）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1||
+
+
+
+查看全部评分
+
+
+
+
+                     
