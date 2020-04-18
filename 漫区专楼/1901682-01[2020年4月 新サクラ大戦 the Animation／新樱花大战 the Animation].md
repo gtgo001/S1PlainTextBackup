@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-13 12:11** 
+> ## **本文件最后更新于2020-04-19 00:10** 
 
 
 
@@ -2975,4 +2975,492 @@ TVA和游戏过场动画都是三次元负责的，游戏本身的建模和动�
 
 
 
-                                            
+
+
+-----
+
+####  xingenge  
+##### 155#       发表于 2020-4-13 17:04
+
+
+
+
+第3話：帝都激震！新生莫斯科華撃団
+
+
+突如現れた莫斯科華撃団所属の空中移動要塞『セバストーポリ』。その巨大な要塞から一人の男が、謎の鉄仮面集団を引き連れて大帝国劇場に降りて来た。男は莫斯科華撃団隊長ヴァレリー・カミンスキーと名乗り、さくらに一本の赤い薔薇を差し出す。
+
+
+シナリオ：砂山蔵澄　 絵コンテ：今義和　 演出：のがみかずお
+
+<img src="https://files.catbox.moe/w0j20r.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/0nlid1.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/41akuj.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/6nabwg.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/dgf348.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/1nsn8x.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 156#         楼主| 发表于 2020-4-17 21:36
+
+
+
+
+我怎么觉得是剧场版剧本再来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+话说赤羽根见到天宫樱和堇的差别对待，是本色演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/82f2a336gy1gdx2y2s804j20u00ny0xg.jpg" referrerpolicy="no-referrer">
+
+
+播完新TV版就播OVA樱华………… ​​​​
+<img src="http://wx1.sinaimg.cn/large/82f2a336gy1gdx39h10jfj213c0nse82.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  990076  
+##### 157#       发表于 2020-4-17 21:41
+
+
+
+
+想不到下集就去東雲神社，又填一個遊戲埋下的坑
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 158#       发表于 2020-4-17 22:36
+
+
+
+
+b站这个翻译真是一言难尽，把无限翻成了梦幻也就罢了，次回预告话数都错了……
+
+
+
+
+
+
+
+-----
+
+####  lushark  
+##### 159#       发表于 2020-4-17 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47061185&amp;ptid=1901682" target="_blank">丹波朱红 发表于 2020-4-13 04:46</a>
+
+正常，游戏里的神山和库拉莉丝也一直认不出小巷里的占仆师是谁。^ω^</blockquote>
+说起来占卜师到底是谁，安娜吗
+
+
+
+
+
+
+
+-----
+
+####  Ditfran  
+##### 160#       发表于 2020-4-17 23:15
+
+
+
+
+梦幻把我愣住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 161#       发表于 2020-4-17 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119245&amp;ptid=1901682" target="_blank">lushark 发表于 2020-4-17 22:52</a>
+说起来占卜师到底是谁，安娜吗</blockquote>
+是
+
+
+
+
+
+
+
+-----
+
+####  osore  
+##### 162#       发表于 2020-4-18 09:33
+
+
+
+
+对面的妹子比较赞啊，我要叛变
+
+
+
+
+
+
+
+-----
+
+####  自行车1993  
+##### 163#       发表于 2020-4-18 10:32
+
+
+
+
+才注意到库拉丽丝把自己姓氏删掉了？
+
+
+
+
+
+
+
+-----
+
+####  tachikoma0080  
+##### 164#       发表于 2020-4-18 11:08
+
+
+
+
+初穗真是最惨，定位是樱的幼驯染，游戏里没个人回只能在樱的主线里刷下存在感，看下一集个人回预告好像也是以两人友情为重点，可以预见又要被樱抢戏，这完全是天宫樱附带洗脚婢的感觉。
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 165#       发表于 2020-4-18 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47121711&amp;ptid=1901682" target="_blank">osore 发表于 2020-4-18 09:33</a>
+
+对面的妹子比较赞啊，我要叛变</blockquote>
+大概率是第一话开场的露乳降魔了
+
+
+
+
+
+
+
+-----
+
+####  77is77  
+##### 166#       发表于 2020-4-18 12:28
+
+
+
+<blockquote>tachikoma0080 发表于 2020-4-18 11:08
+初穗真是最惨，定位是樱的幼驯染，游戏里没个人回只能在樱的主线里刷下存在感，看下一集个人回预告好像也是 ...</blockquote>
+惨得飞起，完全没怎么塑造，没个人回，最闪光的地方是打夜叉破了武御雷，最大的存在感在于选了樱做副队长后，大部分人都疑问怎么是初穗做僚机？
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 167#       发表于 2020-4-18 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47123112&amp;ptid=1901682" target="_blank">77is77 发表于 2020-4-18 12:28</a>
+惨得飞起，完全没怎么塑造，没个人回，最闪光的地方是打夜叉破了武御雷，最大的存在感在于选了樱做副队长 ...</blockquote>
+除了选初穗做副队之外其他所有人当副队的僚机都是初穗
+当然了你选初穗当队长也还是她做僚机（
+
+
+
+
+
+
+
+-----
+
+####  gofbayrf  
+##### 168#       发表于 2020-4-18 12:55
+
+
+
+
+為什麼我看出poro味了
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 169#       发表于 2020-4-18 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47123112&amp;ptid=1901682" target="_blank">77is77 发表于 2020-4-18 12:28</a>
+
+惨得飞起，完全没怎么塑造，没个人回，最闪光的地方是打夜叉破了武御雷，最大的存在感在于选了樱做副队长 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且明明有超级正的巫女服 平时却要穿抬神轿的衣服
+
+
+
+
+
+
+
+-----
+
+####  alerbe  
+##### 170#       发表于 2020-4-18 13:31
+
+
+
+
+看了点游戏视频，感觉是戏份不是很平衡，到动画也会这样吗
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 171#       发表于 2020-4-18 15:11
+
+
+
+
+小白脸：我的队员都烧伤了，只能这么捂着见人。
+
+蕾拉：（脱掉罩袍和面具，完全看不出烧伤）
+
+花组众人：（无反应）
+
+——这么大一个破绽你们都能放过去吗，呛他两句都行啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 172#       发表于 2020-4-18 16:30
+
+
+
+
+哦忘记说了 
+
+
+红茶里放果酱这个喝法我当年还是从(2代)堇老板那里知道的
+
+
+看来堇老板是没教给这群后生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 173#       发表于 2020-4-18 17:08
+
+
+
+
+真扎这疯狂吃噶莫名的喜感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，下一话是交代心态失衡的原因了吧，莫斯科军团齐射的动画效果真好看
+
+
+
+
+
+
+
+-----
+
+####  tamatama  
+##### 174#       发表于 2020-4-18 21:31
+
+
+
+
+所以本作神山之前选的什么选项，看真扎对他好感也不低啊。
+
+
+
+
+
+
+
+-----
+
+####  lushark  
+##### 175#       发表于 2020-4-18 21:47
+
+
+
+
+游戏里本来就是初穗最主动吧，Sakura才是一股小家子气，现在动画换了视角显现出了花痴气息反而有点不适应。
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 176#       发表于 2020-4-18 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说我记得游戏里面的杂兵核心都是红的....这话这个为啥是蓝的
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 177#       发表于 2020-4-18 22:52
+
+
+
+
+编剧就突出一个糊弄事
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 178#       发表于 2020-4-18 23:00
+
+
+
+
+粉丝向以为是轰华绚烂那种风格 结果是标准的流水线剧情 失望...
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 179#       发表于 2020-4-18 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47128219&amp;ptid=1901682" target="_blank">hypnossz86 发表于 2020-4-18 22:31</a>
+
+话说我记得游戏里面的杂兵核心都是红的....这话这个为啥是蓝的</blockquote>
+新品种呗
+
+十有八九是人造的之类
+
+当然前提是莫击那些还是人
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 180#       发表于 2020-4-18 23:30
+
+
+
+
+B站不知道啥时候买了樱战1动画的版权 可端上来的翻译那叫一个烂啊 比机翻还不如
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 181#         楼主| 发表于 2020-4-19 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47128652&amp;ptid=1901682" target="_blank">王留美 发表于 2020-4-19 00:14</a>
+
+新品种呗
+
+十有八九是人造的之类
+
+当然前提是莫击那些还是人</blockquote>
+所以我觉得剧场版剧本要再来一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           

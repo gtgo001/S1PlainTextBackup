@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 22:00** 
+> ## **本文件最后更新于2020-04-19 00:00** 
 
 
 
@@ -10430,4 +10430,435 @@ mihiru贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png
 
 
 
-                               
+
+
+-----
+
+####  asclepiusz  
+##### 6548#       发表于 2020-4-18 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，泛式要VUP出道了
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6549#       发表于 2020-4-18 22:06
+
+
+
+
+mhr的哼声不看直播间名还以为是miki呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 6550#       发表于 2020-4-18 22:06
+
+
+
+
+光一真是个优秀的迫害对象
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6551#       发表于 2020-4-18 22:07
+
+
+
+
+不靠女粉确实迫害起来方便，也是苦了女粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6552#       发表于 2020-4-18 22:08
+
+
+
+
+不管形式上有什么问题，内容上看的好开心。
+
+你说吧，这几个人同屏也不是没有过，也就喵月和hsm出现的次数少了点，其他的都是联动常客，也没什么特别的。
+
+如果你要说观感这么好是因为仓鼠喵月，那我是不信的。
+
+所以说————
+
+痛失我魔，vr亏大了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 6553#       发表于 2020-4-18 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47128015&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-04-18 22:08:58</a>
+不管形式上有什么问题，内容上看的好开心。
+
+你说吧，这几个人同屏也不是没有过，也就喵月和hsm出现的次数少 ...</blockquote>泥潭也亏大了，痛失真正的s1娘
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6554#       发表于 2020-4-18 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">痛失我魔，迫害光一就对了
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6555#       发表于 2020-4-18 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127982&amp;ptid=1909283" target="_blank">曜不能停 发表于 2020-4-18 22:06</a>
+
+mhr的哼声不看直播间名还以为是miki呢</blockquote>
+草，听了下这也太严重了吧，简直是副会长早期口癖复刻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6556#       发表于 2020-4-18 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127982&amp;ptid=1909283" target="_blank">曜不能停 发表于 2020-04-18 22:06:13</a>
+mhr的哼声不看直播间名还以为是miki呢</blockquote>弥语害人
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 6557#       发表于 2020-4-18 22:18
+
+
+
+ 本帖最后由 攻心为上木之本 于 2020-4-18 22:20 编辑 
+
+组织给版主发的老婆太好欺负了吧，感觉五个人欺负她一个，太可怜了。
+副会长想选整活选项却支支吾吾编不出理由导致冷场，全靠看不下去的蓝莲安强行拱火扶一把才勉强撑住节目流畅度，婆罗门侠主持实力深不可测，考虑75%off的时候支持一下《他人世界末》。
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6558#       发表于 2020-4-18 22:25
+
+
+
+
+动态下面已经有光一gachi/gaychi不开心了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Kobayashi  
+##### 6559#       发表于 2020-4-18 22:28
+
+
+
+
+魔宝，妈妈爱你！
+
+大家可以去支持一下三字母的《他人世界末》，steam上6月出
+
+虽然现在demo玩了一下，bug不少，有点拉胯，但是我估计6月份会好很多8<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6560#       发表于 2020-4-18 22:32
+
+
+
+
+我顶不住mhr的哼声了，miki永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6561#       发表于 2020-4-18 22:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">听了一下确实好像，以后钱直接打给mhr吧
+
+
+
+
+
+
+
+-----
+
+####  sonyjam  
+##### 6562#       发表于 2020-4-18 22:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwlqxs  
+##### 6563#       发表于 2020-4-18 22:54
+
+
+
+
+有人还记得雪绘首播时候说以后会玩玩速通吗，翻了翻列表好像一次没打过，字幕组还叫速通练习室
+
+
+
+
+
+
+
+-----
+
+####  不智法师  
+##### 6564#       发表于 2020-4-18 23:03
+
+
+
+
+仓鼠出道的时候玩光一爬梗就被gachi出警了你们忘了吗？
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6565#       发表于 2020-4-18 23:06
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-18 23:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47128537&amp;ptid=1909283" target="_blank">不智法师 发表于 2020-4-18 23:03</a>
+
+仓鼠出道的时候玩光一爬梗就被gachi出警了你们忘了吗？</blockquote>
+看了下VR专楼，有点意外，光一gachi粉现在柔和了不少啊，言辞委婉了很多，没以前那么冲的味儿了，不然今晚几个好妹妹怕是都得一起爬，特别是你副会长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+大家庭建设还是有用的。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6566#       发表于 2020-4-18 23:20
+
+
+
+
+你圈的速通能有几个是真速通
+
+
+
+
+
+
+
+-----
+
+####  d515512594  
+##### 6567#       发表于 2020-4-18 23:29
+
+
+
+
+版主老是能当被迫害役没啥意思啊
+这种联动不如花点心思早点和惑姬早点联动下一期电台
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6568#       发表于 2020-4-18 23:32
+
+
+
+
+嗨，来看罗伊放我心永恒抽卡吧，花式沉船<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6569#       发表于 2020-4-18 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁这么多人心疼版主，版主播完乐呵去和美少女吃饭去了。
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6570#       发表于 2020-4-18 23:51
+
+
+
+
+也许这就是人生吧（版主已经回家了，没有海底捞恰了
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6571#       发表于 2020-4-18 23:52
+
+
+
+
+问题是版主说自己没去，阿咋反而去了
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 6572#       发表于 2020-4-18 23:55
+
+
+
+ 本帖最后由 西瓜爆裂 于 2020-4-18 23:59 编辑 
+
+看到孟宝转发才知道川内级都是和孟宝一个妈···
+
+
+
+
+
+                              

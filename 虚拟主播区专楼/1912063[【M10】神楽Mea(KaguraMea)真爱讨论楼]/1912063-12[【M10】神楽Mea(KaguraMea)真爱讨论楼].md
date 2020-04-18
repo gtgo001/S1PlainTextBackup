@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 20:01** 
+> ## **本文件最后更新于2020-04-19 00:02** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_n3hnn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_cul13" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_UNrZL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_aFEfD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -14195,4 +14195,540 @@ TC没推送通知吗？怎么我手机每次都有推送的？<img src="https://
 
 
 
-                       
+
+
+-----
+
+####  weiweiEX  
+##### 17283#       发表于 2020-4-18 20:02
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17284#       发表于 2020-4-18 20:04
+
+
+
+
+鼻血组没人了，留守儿童和孤寡老人<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17285#       发表于 2020-4-18 20:05
+
+
+
+
+惨惨惨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17286#       发表于 2020-4-18 20:06
+
+
+
+
+为啥刚才奶奶把小孩踹飞了却没掉血啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17287#       发表于 2020-4-18 20:10
+
+
+
+
+因为小孩是没有hp条的，只有bba有hp条
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17288#       发表于 2020-4-18 20:12
+
+
+
+
+1v1战斗力感觉不太平衡啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17289#       发表于 2020-4-18 20:14
+
+
+
+
+奶奶和孙子战斗力差距有点大吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17290#       发表于 2020-4-18 20:15
+
+
+
+
+这游戏奶奶岂不是只能挨打
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17291#       发表于 2020-4-18 20:21
+
+
+
+
+不过看了看奶奶可以回血？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17292#       发表于 2020-4-18 20:22
+
+
+
+
+巧克老师相当熟练啊。。。咩姐被踢爆了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17293#       发表于 2020-4-18 20:23
+
+
+
+<blockquote>JustW 发表于 2020-4-18 20:15
+这游戏奶奶岂不是只能挨打</blockquote>
+不是，但仍然很惨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17294#       发表于 2020-4-18 20:24
+
+
+
+
+这个啤酒瓶伤害好高
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17295#       发表于 2020-4-18 20:25
+
+
+
+
+居然赢了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17296#       发表于 2020-4-18 20:25
+
+
+
+
+咩姐赢了，**，永远的神！
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17297#       发表于 2020-4-18 20:54
+
+
+
+
+草，什么弱智bug
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17298#       发表于 2020-4-18 21:01
+
+
+
+
+奶奶终于赢了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17299#       发表于 2020-4-18 21:24
+
+
+
+
+我怀疑我中了打奶奶诅咒，每次直播打奶奶都因为各种原因错过<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+和奶奶渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17300#       发表于 2020-4-18 21:25
+
+
+
+
+会限了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17301#       发表于 2020-4-18 21:26
+
+
+
+
+会限画头像啊
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17302#       发表于 2020-4-18 21:33
+
+
+
+
+来了来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17303#       发表于 2020-4-18 21:40
+
+
+
+
+酸的一笔，挂后台了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17304#       发表于 2020-4-18 21:53
+
+
+
+
+这个滑稽可太形象了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17305#       发表于 2020-4-18 22:06
+
+
+
+
+画了4个下了，晚上精神的话还会勃
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17306#       发表于 2020-4-18 22:55
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：深夜の1時開けといて！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+ヨフカシだあああああああああああああああああああああああああああああああああああああああああああああああああああああああああ！
+媒体：[]
+链接：[]
+时间：2020-04-18 14:54:35 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1251524533254668290
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17307#       发表于 2020-4-18 22:57
+
+
+
+
+要熬死了。。。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17308#       发表于 2020-4-18 22:58
+
+
+
+
+熬起来了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17309#       发表于 2020-4-18 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">做个人吧
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17310#       发表于 2020-4-18 23:01
+
+
+
+
+咩宝好顶
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17311#       发表于 2020-4-18 23:02
+
+
+
+
+精力旺盛的女人
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17312#       发表于 2020-4-18 23:03
+
+
+
+
+哦， 咩宝能不能gck?<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17313#       发表于 2020-4-18 23:56
+
+
+
+
+太🐮了，她未来的男人不得被榨干?
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17314#       发表于 2020-4-18 23:57
+
+
+
+
+直播间开了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17315#       发表于 2020-4-19 00:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
