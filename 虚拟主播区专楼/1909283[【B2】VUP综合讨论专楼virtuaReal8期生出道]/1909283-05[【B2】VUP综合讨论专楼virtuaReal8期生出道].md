@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 20:00** 
+> ## **本文件最后更新于2020-04-18 22:00** 
 
 
 
@@ -10010,4 +10010,424 @@ syl 又花了一点时间找了个无关视频三个踩换了11赞（35赞左右
 
 
 
-                                
+
+
+-----
+
+####  plllllum  
+##### 6523#       发表于 2020-4-18 20:07
+
+
+
+ 本帖最后由 plllllum 于 2020-4-18 20:09 编辑 
+
+原来是版主拉跨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6524#       发表于 2020-4-18 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">版主迟到了，四舍五入s1拉胯
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6525#       发表于 2020-4-18 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只要开溜就不会被架上烧烤架
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6526#       发表于 2020-4-18 20:21
+
+
+
+
+如果是度人到底有几个好姐姐我必看好吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 6527#       发表于 2020-4-18 20:23
+
+
+
+
+魔宝拱火一直可以的
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6528#       发表于 2020-4-18 20:23
+
+
+
+
+这个拱火有点意思，好，有看头，我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MyOnlyJustICE  
+##### 6529#       发表于 2020-4-18 20:24
+
+
+
+
+版主好活，上交好妹妹名单，魔魔还是懂<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  江少寒  
+##### 6530#       发表于 2020-4-18 20:25
+
+
+
+ 本帖最后由 江少寒 于 2020-4-18 20:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">魔宝这主持人一开始就拉偏架……
+
+魔魔不行呀，老在那儿迫害版主，都不知道咋接话。喧宾夺主和控场是两回事吧。
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6531#       发表于 2020-4-18 20:30
+
+
+
+
+中单光一无解肥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 6532#       发表于 2020-4-18 20:33
+
+
+
+
+魔宝控场真的太pro了，有你真好
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6533#       发表于 2020-4-18 20:33
+
+
+
+
+魔宝，主持滴神（&gt;5块钱的麦限定）
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 6534#       发表于 2020-4-18 20:34
+
+
+
+
+vr痛失控场vip我魔，亏了一个亿
+
+顺便问问vr有没有光艾因的cp存在
+
+
+
+
+
+
+
+-----
+
+####  瑕在瑾中  
+##### 6535#       发表于 2020-4-18 20:36
+
+
+
+
+魔魔这主持还真是稳，基本没有冷场。
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6536#       发表于 2020-4-18 20:39
+
+
+
+
+果然还是要有魔魔，就算是gyg也没那么尬了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6537#       发表于 2020-4-18 20:41
+
+
+
+
+弥宝又隐形了
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6538#       发表于 2020-4-18 20:58
+
+
+
+
+其实这不就是综艺节目么
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 6539#       发表于 2020-4-18 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127370&amp;ptid=1909283" target="_blank">Rosefinch 发表于 2020-4-18 20:58</a>
+
+其实这不就是综艺节目么</blockquote>
+拉胯vr能做综艺节目难道不是史诗级飞跃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 6540#       发表于 2020-4-18 21:02
+
+
+
+
+孟宝开了
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 6541#       发表于 2020-4-18 21:12
+
+
+
+
+魔宝疯狂拱你弥的火 我笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 6542#       发表于 2020-4-18 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127167&amp;ptid=1909283" target="_blank">斯大林的拖拉机 发表于 2020-4-18 20:34</a>
+
+vr痛失控场vip我魔，亏了一个亿
+
+顺便问问vr有没有光艾因的cp存在</blockquote>
+[https://www.bilibili.com/video/BV18E411L7UE](https://www.bilibili.com/video/BV18E411L7UE) 这个不知道你看过没，姑且还是发一下
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 6543#       发表于 2020-4-18 21:19
+
+
+
+
+《从VRFM看权力变迁》版主肯定曾经偷看b综<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Déclencheur  
+##### 6544#       发表于 2020-4-18 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草原歌回 我傻了
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6545#       发表于 2020-4-18 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127573&amp;ptid=1909283" target="_blank">极光A° 发表于 2020-4-18 21:19</a>
+
+《从VRFM看权力变迁》版主肯定曾经偷看b综</blockquote>
+版主看b综不是很正常
+
+syl，xx权力变迁又不是你楼首创的，老烂梗了
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6546#       发表于 2020-4-18 21:59
+
+
+
+
+mihiru贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  御坂MKII  
+##### 6547#       发表于 2020-4-18 22:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vrfm弥宝公开宣称在看mhr直播
+
+—— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                               
