@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 04:01** 
+> ## **本文件最后更新于2020-04-18 20:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_lXbh2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_n3hnn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_Nf1V1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_UNrZL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -12488,10 +12488,11 @@ dream solister！这真是歌单？
 
 
 
- 参与人数 8战斗力 -9
+ 参与人数 9战斗力 -10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| WhiteAvalon|-1|欢乐多|
 | clvan_|-1|脑子|
 | noaki|-1|跟团|
 | 专业划水人员|-1|舔刀|
@@ -13690,4 +13691,508 @@ mea放的这个歌唱的蛮可爱的，是谁唱的啊
 
 
 
-                        
+
+
+-----
+
+####  Oshino57  
+##### 17255#       发表于 2020-4-18 07:15
+
+
+
+
+twitcast 的 app 有办法开推送通知嘛？
+
+不想再错过 tc 了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+— from OnePlus ONEPLUS A5010, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17256#       发表于 2020-4-18 07:46
+
+
+
+<blockquote>Oshino57 发表于 2020-4-18 07:15
+twitcast 的 app 有办法开推送通知嘛？
+
+
+不想再错过 tc 了</blockquote>
+TC没推送通知吗？怎么我手机每次都有推送的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17257#       发表于 2020-4-18 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和巧可老师联动是1V1打奶奶
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17258#       发表于 2020-4-18 09:35
+
+
+
+
+不懂就问，为什么巧可这么喜欢打奶奶
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17259#       发表于 2020-4-18 09:37
+
+
+
+
+就算菜姐姐和阿喵喵不在了，也要继续打下去<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17260#       发表于 2020-4-18 09:38
+
+
+
+
+也许和人生经历有关吧（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17261#       发表于 2020-4-18 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47121739&amp;ptid=1912063" target="_blank">暗心舞踏 发表于 2020-4-18 09:37</a>
+
+就算菜姐姐和阿喵喵不在了，也要继续打下去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有粽子呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17262#       发表于 2020-4-18 10:31
+
+
+
+
+巧克对一些游戏的执着真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17263#       发表于 2020-4-18 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老湿也是yhm性子，明明缺钱到要匿名希望了，直播还是玩自己想玩的dbd，有龙皇也不去蹭，蹭完说不定就和傻紫那样起飞了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 17264#       发表于 2020-4-18 10:39
+
+
+
+
+饭可以不恰，但是dbd是一定要玩的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 17265#       发表于 2020-4-18 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47122126&amp;ptid=1912063" target="_blank">暴走的包子 发表于 2020-4-18 10:36</a>
+
+老湿也是yhm性子，明明缺钱到要匿名希望了，直播还是玩自己想玩的dbd，有龙皇也不去蹭，蹭完说不定 ...</blockquote>
+本双推感觉受到了双重暴击。。。。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17266#       发表于 2020-4-18 12:10
+
+
+
+
+打奶奶这游戏两个人也能玩吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17267#       发表于 2020-4-18 12:40
+
+
+
+
+昨晚过后她的直播时间会调整吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17268#       发表于 2020-4-18 13:25
+
+
+
+
+不会立刻调整的，但也不会总是这种生物钟
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 17269#       发表于 2020-4-18 13:27
+
+
+
+
+估计是考虑到国人这边所以才选打老奶奶而不是dbd的，两个人打老奶奶不就和两个人玩抽鬼牌一样离谱
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17270#       发表于 2020-4-18 13:48
+
+
+
+
+皇城pk
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17271#       发表于 2020-4-18 15:51
+
+
+
+
+结果鼻血组到最后只剩下mea和老师么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，都是阿菜的错？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17272#       发表于 2020-4-18 16:05
+
+
+
+
+谁知道呢.jpg
+
+
+当时那个通知指的是不是鼻血组都不一定呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17273#       发表于 2020-4-18 16:22
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/fe695b8d48a7a013a80044584b3e4b9e/-zue37Q5-jr7sZgT3cSgo-8c.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17274#       发表于 2020-4-18 16:29
+
+
+
+
+这什么jb图
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 17275#       发表于 2020-4-18 16:35
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17276#       发表于 2020-4-18 16:37
+
+
+
+
+这图不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17277#       发表于 2020-4-18 17:29
+
+
+
+
+怎么感觉这段时间天空之城暴增<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+我的问题吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17278#       发表于 2020-4-18 17:38
+
+
+
+
+这图有点意思啊……mea士郎说？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17279#       发表于 2020-4-18 17:58
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-18 16:22
+草</blockquote>
+草
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17280#       发表于 2020-4-18 19:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/18/190000btp8o3zc2ac582dp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>WechatIMG1353.jpeg</strong> (171.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-18 19:00 上传
+
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17281#       发表于 2020-4-18 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47126124&amp;ptid=1912063" target="_blank">JustW 发表于 2020-4-18 19:00</a></blockquote>
+这是哪个视频啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17282#       发表于 2020-4-18 19:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47126149&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-18 19:03</a>
+
+这是哪个视频啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，8分钟左右提了犬山的方块企划
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+                       

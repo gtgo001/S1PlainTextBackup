@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 14:00** 
+> ## **本文件最后更新于2020-04-18 20:00** 
 
 
 
@@ -9190,4 +9190,824 @@ u1s1我挺欣赏阿萨的
 
 
 
-                                 
+
+
+-----
+
+####  aucun  
+##### 6483#       发表于 2020-4-18 14:31
+
+
+
+
+就看直播能力，帕皇up↑up↑<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cybaster#5141  
+##### 6484#       发表于 2020-4-18 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47122910&amp;ptid=1909283" target="_blank">zhongdasang 发表于 2020-4-18 12:07</a>
+花留的自我介绍评论（目前）是罗伊第一度人第二阿萨第三啊</blockquote>
+VR女不如男。。
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6485#       发表于 2020-4-18 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47122809&amp;ptid=1909283" target="_blank">during 发表于 2020-04-18 11:55:45</a>
+顺便此楼又bug了</blockquote>我的理解是
+在给沙夜点踩的时候
+喵月是排在阿萨后面的，所以没成为被踩目标
+只踩了沙夜那些排在阿萨前面的
+后来喵月那些低赞的被捞上来后
+沙夜的被踩也没取消掉
+所以喵月那些低赞的*现在*会排在沙夜前面
+
+顺便说一下这种刷踩的不一定要每个女粉踩一下，有几个，甚至可能只要有一个懂得这种刷赞刷踩的饭圈女孩在可能就够了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6486#       发表于 2020-4-18 15:08
+
+
+
+ 本帖最后由 plllllum 于 2020-4-18 15:10 编辑 
+
+连B站评论依据什么方式排序都没搞清楚就来阴谋论，还说没梁木？
+
+SYL  斗评论点赞数实在太尼玛弱智了。。。最近闲的没事做了？
+
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6487#       发表于 2020-4-18 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47124297&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-04-18 15:08:11</a>
+连B站评论依据什么方式排序都没搞清楚就来阴谋论，还说没梁木？
+
+SYL  斗评论点赞数实在太尼玛弱智了。。 ...</blockquote>那我确实不知道怎么排序
+我自己认为排序是'点赞减踩'，我自己也能自圆其说
+谁眼里还没点梁木没点刺啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+我也说了可能都不需要几个人，一个吃饱了撑得，想着“我得把我的好哥哥顶上去”的就够了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6488#       发表于 2020-4-18 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47124385&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-18 15:20</a>
+
+那我确实不知道怎么排序
+
+我自己认为排序是'点赞减踩'，我自己也能自圆其说
+
+谁眼里还没点梁木没点刺啊[f:049 ...</blockquote>
+除了赞踩比，还有评论，点赞速度之类的影响排序
+
+
+
+
+
+
+8NWI5M)G0VLS@]WMZ10TOS4.png
+(76.08 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-18 15:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/18/152250nlzat9dcz9jjhljd.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  during  
+##### 6489#       发表于 2020-4-18 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47124385&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-18 15:20</a>
+
+那我确实不知道怎么排序
+
+我自己认为排序是'点赞减踩'，我自己也能自圆其说
+
+谁眼里还没点梁木没点刺啊[f:049 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按你这个算法沙夜排在喵月下面确实得被踩400多次啊，你对男人太有信心了
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6490#       发表于 2020-4-18 15:25
+
+
+
+
+知道了，这就去踩下阿萨评论试试看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  34st  
+##### 6491#       发表于 2020-4-18 15:28
+
+
+
+
+客服娘 排序只和赞踩数有关
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6492#       发表于 2020-4-18 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47124402&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-04-18 15:23:30</a>
+除了赞踩比，还有评论，点赞速度之类的影响排序</blockquote>我会同意你的说法
+但是我觉得点赞速度和评论的影响没有点踩大而且直接
+不然没有办法解释光一喵月紫纪三百赞能在七百多赞的沙夜之上
+两百多赞的ruki能在500赞的寿寿歌之上
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6493#       发表于 2020-4-18 15:38
+
+
+
+
+随便截了一张，搞不清b站机制就别瞎拱了。这张第一位就是个普通观众，赞更少，排序也比saya高
+动不动就男粉女粉男v女v是女ptsd了吧。来自: iPhone客户端
+
+
+
+
+
+
+image.jpg
+(97.47 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-18 15:38 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/18/153816qzqzfqck3kpvpd32.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6494#       发表于 2020-4-18 15:53
+
+
+
+
+这是什么情况，sc同接已经满足不了你们日益增长的斗虫需求了吗？这也太虚无了吧
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6495#       发表于 2020-4-18 15:54
+
+
+
+
+别争点赞了，来猜猜晚上版主后宫之旅会不会拉胯吧<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">我觉得会很尬
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 6496#       发表于 2020-4-18 15:56
+
+
+
+
+闲的蛋疼统计了下5个出道视频下的“踩数”，数字取的是赞的数量和上一个疑似正常排序赞数的差距。不考虑评论本身内容。
+
+vr其它女v似乎无此现象。另有一些不同程度“被踩”的个例未计入。
+
+<img src="https://img.saraba1st.com/forum/202004/18/154527lzfsqsy0cuzasss2.png" referrerpolicy="no-referrer">
+
+
+<strong>ss.PNG</strong> (13.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-18 15:45 上传
+
+
+
+
+
+
+个人觉得这个数量如果完全是人为动员的结果，能量未免也太大了。
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6497#       发表于 2020-4-18 15:58
+
+
+
+
+求求你们了，聊聊版主吧
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6498#       发表于 2020-4-18 16:11
+
+
+
+ 本帖最后由 zhongdasang 于 2020-4-18 17:39 编辑 
+
+晚上不是肉眼可见的虚无吗
+
+魔魔在看吗？我只有一个要求，别一转万能的gyg了求求了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整点新活
+
+syl 
+
+不看好的原因是除了光一一果以外，miki艾因仓鼠都是老拱火人了，还是边拱边不想把火往自己身上烧的那种。魔魔倒是挺期待的，但她应该是一个主持人的位置？比起参与这次活动更应该考虑怎么接话稳住场不尬的问题。喵月不了解
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6499#       发表于 2020-4-18 16:43
+
+
+
+
+不是要选谁是好妹妹，整几个和版主有关选择题，一人一个情景模拟，再整个猜答案，再来个女生挑礼物，让版主选喜欢哪个，一个环节十分钟，再扯扯淡，两个小时不就混下来了吗？就怕魔魔和前几天弥宝一样，不敢说不敢想不敢拱火，那就没意思了嗷，大家都知道是整活，别有心理负担，干就完事了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6500#       发表于 2020-4-18 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">晚上这个是staff策划的吧，谨慎看好，希望别一转gyg了，把企划本身内容弄弄好，一果最近压力也大得很。
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 6501#       发表于 2020-4-18 16:46
+
+
+
+
+有光一果，你让VR这帮人不一转，那必然是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6502#       发表于 2020-4-18 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不是，现在光一果都要用缩写了吗
+
+
+晚上肯定是版主怪话集避火呀，嗯？这样看不是更像轻小说男主了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 6503#       发表于 2020-4-18 16:52
+
+
+
+
+赞和踩的权重应该是不一样的，基本可以确认一个踩大于一个赞，大多少就不知道了。
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6504#       发表于 2020-4-18 17:08
+
+
+
+
+让vr在有光一果的情况下不转光一果，可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  铁木公  
+##### 6505#       发表于 2020-4-18 17:11
+
+
+
+ 本帖最后由 铁木公 于 2020-4-18 17:22 编辑 
+
+晚上这个一看就很虚无吧，不是一转光一果，就是听版主说些没什么意思的怪话，想想就尬<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+syl，不过说起这个八期的自我介绍，pax我觉得跟有加很像，有点电波系。萨麦尔rp用力过猛，不爱看。御水比较正常，声音挺好的，可惜皮不咋样。紫纪不是理想的御姐音。花留声音贴皮，挺会整活，还是罗伊邀请来的，我比较看好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  轮回的焰  
+##### 6506#       发表于 2020-4-18 17:15
+
+
+
+
+光一果爬爬爬，一个梗玩尼玛大半年不恶心吗。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6507#       发表于 2020-4-18 17:17
+
+
+
+
+你好，不烦的，假面骑士的破梗都快两年了，现在不还经常见
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6508#       发表于 2020-4-18 17:27
+
+
+
+
+肯定会一转光一果的，不过你要是把问好妹妹的问题再问一果一边来凸显光一果的“羁绊”那也算是有可取之处了，就怕硬转，尬转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 6509#       发表于 2020-4-18 17:38
+
+
+
+ 本帖最后由 kabusei 于 2020-4-18 18:26 编辑 
+
+我操作了一下，用了两个号就让寿寿歌下沉了一位，不需要多少人点踩就行
+
+对不起寿寿歌我马上给你投一堆三连！！！
+
+syl 又花了一点时间找了个无关视频三个踩换了11赞（35赞左右的评论）四个踩换了33个赞（2800赞左右的评论）
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6510#       发表于 2020-4-18 17:41
+
+
+
+
+那点踩的也太恶心了8
+
+
+
+
+
+
+
+-----
+
+####  TOWA  
+##### 6511#       发表于 2020-4-18 18:05
+
+
+
+
+海豹和桃子玩兔子<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6512#       发表于 2020-4-18 18:08
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-18 18:23 编辑 
+
+我试了试，版主399赞在喵月388上面，我两个号点踩就下去了，一个号点不会，但是还有可能有其他人同步点踩
+
+又找了个冷门视频试了试，一个踩可以让17掉到15下面，但是不会让11掉到8下面
+
+可以让8掉到6下面，但是不会让3掉到1下面
+
+同样的一个踩可以让81掉到75下面，但是不会让25掉到19下面
+
+
+应该不是单纯的踩X固定系数，跟赞数有一个比例关系
+
+但是像领先几百赞被弄下去的肯定是几十个踩起步吧，没有几百个那么多
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 6513#       发表于 2020-4-18 18:24
+
+
+
+
+大概是几个姐妹们拉个小群专门干这个<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  -_-||  
+##### 6514#       发表于 2020-4-18 19:13
+
+
+
+
+不用看就知道最后肯定一转光一果
+
+求求版主播dota2吧
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6515#       发表于 2020-4-18 19:14
+
+
+
+ 本帖最后由 plllllum 于 2020-4-18 19:15 编辑 
+
+这就下点踩的anti＝女粉的结论了吗？
+
+这楼都给我一种沙夜和roza有仇的感觉了
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6516#       发表于 2020-4-18 19:19
+
+
+
+
+也许这楼现在浓度比NGAVR专楼浓度还高
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6517#       发表于 2020-4-18 19:19
+
+
+
+ 本帖最后由 lxccsnm 于 2020-4-18 19:44 编辑 
+
+确实不至于，可能是saya和ssg自己号出问题了，pax发的歌下面也是她们两赞多排下面去了
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6518#       发表于 2020-4-18 19:29
+
+
+
+ 本帖最后由 plllllum 于 2020-4-18 19:33 编辑 
+
+本来觉得讨论评论赞踩已经够蠢的了，没想到下的结论更蠢
+
+楼上做实验得出的结论是踩比赞影响大，至于点踩的是什么成分，因为什么原因点踩谁都不知道
+结果就直接甩锅给女粉了，推断出的点踩的目的还只是为了让自推上既没收益又没宣传效果的热评第一名，想泼脏水也不是这么泼的
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6519#       发表于 2020-4-18 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">虚空打靶摩多摩多，版主好妹妹算个屁，真整活还得看vr综
+
+顺便记得把我贴的那个普通观众的粉也算上
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6520#       发表于 2020-4-18 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">点赞这个问题能聊这么多页确实太强了
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6521#       发表于 2020-4-18 19:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">我忏悔 我有罪
+我这就去循环一个月Pax的lilium
+都是sayassg自己有问题才排序这么后的
+我们还是康版主吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 6522#       发表于 2020-4-18 19:57
+
+
+
+
+这哪是为了捧自推，其他人都没有什么影响，明显是anti这几位
+
+
+
+
+
+                                
