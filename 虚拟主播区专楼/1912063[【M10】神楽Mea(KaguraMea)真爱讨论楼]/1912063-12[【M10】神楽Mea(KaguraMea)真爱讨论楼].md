@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 02:01** 
+> ## **本文件最后更新于2020-04-19 06:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_u8AjS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_rotQ5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_F5pt5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_W2mvX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -15421,4 +15421,283 @@ fuckyoumea?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 
 
-                     
+
+
+-----
+
+####  呓亘  
+##### 17355#       发表于 2020-4-19 02:18
+
+
+
+
+闹腾的庄司好可爱
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17356#       发表于 2020-4-19 02:18
+
+
+
+
+接力接力棒～
+这歌有点魔性
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17357#       发表于 2020-4-19 02:18
+
+
+
+
+确实可爱
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17358#       发表于 2020-4-19 02:26
+
+
+
+
+？？？我这种怂逼咋敢发啊，对她说的时候只可能是我下一秒就能做到的时候。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17359#       发表于 2020-4-19 02:29
+
+
+
+
+草，太拉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17360#       发表于 2020-4-19 02:37
+
+
+
+
+今天全是现场找的新歌，正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她唱的这些我甚至没听过几首
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17361#       发表于 2020-4-19 02:42
+
+
+
+ 本帖最后由 呓亘 于 2020-4-19 02:55 编辑 
+
+b站直播间里发日语的那个观众是本土粉吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17362#       发表于 2020-4-19 02:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没想到吧，还有b限LOL
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17363#       发表于 2020-4-19 02:55
+
+
+
+
+绝了，还播
+睡了睡了，命重要
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17364#       发表于 2020-4-19 02:55
+
+
+
+
+该睡了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17365#       发表于 2020-4-19 03:00
+
+
+
+
+一转b限lol，半夜冲分不可取啊，我以前半夜冲分反向上了好几段
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17366#       发表于 2020-4-19 03:02
+
+
+
+ 本帖最后由 路人庚 于 2020-4-19 03:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧在tc冒头了，不是b限
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17367#       发表于 2020-4-19 03:04
+
+
+
+
+她知道一播lolb站的人就会说她菜，所以改在转播不了的tc自己偷偷玩去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波你咩姐在第五层
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17368#       发表于 2020-4-19 03:14
+
+
+
+
+单纯想聊天的话可以不放画面和游戏的声音吧（？）
+就当是打着游戏吹比好了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17369#       发表于 2020-4-19 03:25
+
+
+
+
+md这补刀看得我头疼
+
+
+
+
+
+
+
+-----
+
+####  D1relia  
+##### 17370#       发表于 2020-4-19 04:30
+
+
+
+
+Tailwind Pile、普通のDD，你们这种彩笔能不能有丶自知之明，LOL就乖乖看着，不要进来坑mea姐好吗。玩个波比5分钟被刀妹单杀3次，10分钟被单杀5次；玩个莫干娜就跟在不存在一样，再和下一把mea姐的莫甘娜一比，不羞愧🐎？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17371#       发表于 2020-4-19 04:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47130274&amp;ptid=1912063" target="_blank">D1relia 发表于 2020-4-19 04:30</a>
+Tailwind Pile、普通のDD，你们这种彩笔能不能有丶自知之明，LOL就乖乖看着，不要进来坑mea姐好吗。玩个波 ...</blockquote>
+开队友草
+
+
+
+
+
+                    
