@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-13 16:00** 
+> ## **本文件最后更新于2020-04-18 14:02** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_lmP46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_jkJ1n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_XgORw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_fEaYb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -6311,4 +6311,656 @@ BGM让我觉得我在玩RPG，
 
 
 
-                                      
+
+
+-----
+
+####  lyflyflxf  
+##### 1832#       发表于 2020-4-13 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47063718&amp;ptid=1860852" target="_blank">haojie_ma 发表于 2020-4-13 12:04</a>
+
+敢照着现实演一遍剧情就是神作了</blockquote>
+然后剧组就变成非国民了
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1833#       发表于 2020-4-13 23:16
+
+
+
+
+今年的振作嘴炮比较言之有物，但新外挂给得很突兀，有点令人失望
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1834#       发表于 2020-4-14 09:03
+
+
+
+
+海贼的录音工作已经确认停掉了，动画应该也会跟着暂停播出一段时间。其他东映系作品应该也会如此。 ​​​​
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1835#       发表于 2020-4-14 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47072491&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-4-14 09:03</a>
+
+海贼的录音工作已经确认停掉了，动画应该也会跟着暂停播出一段时间。其他东映系作品应该也会如此。 ​​​ ...</blockquote>
+就日本这鸟样 至少得7月才能重开吧 
+
+
+sb安倍天诛国贼<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最低人间肥宅  
+##### 1836#       发表于 2020-4-14 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+改剧本它来了。
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1837#       发表于 2020-4-14 11:40
+
+
+
+
+假如确实会停播，而且明年还是2月放新作的话，剧情大纲调整估计是不可避免的吧，因为停播会导致集数的缩短。
+
+
+不过会不会更改剧情走向就难说了。
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1838#       发表于 2020-4-14 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074358&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-4-14 11:40</a>
+
+假如确实会停播，而且明年还是2月放新作的话，剧情大纲调整估计是不可避免的吧，因为停播会导致集数的缩短 ...</blockquote>
+没必要非要2月放新作吧 偶活 美妙 不都是4月“新番”么 推迟2个月也没问题吧 当然再多估计就要减集数了
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1839#       发表于 2020-4-14 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">被预告误导了，原来是打败第三只后再进练功房
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1840#       发表于 2020-4-14 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47074423&amp;ptid=1860852" target="_blank">leleq 发表于 2020-4-14 11:45</a>
+
+没必要非要2月放新作吧 偶活 美妙 不都是4月“新番”么 推迟2个月也没问题吧 当然再多估计就要减集数了 ...</blockquote>
+主要是这些年来都是固定的2月，恐怕不是那么好改的
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1841#       发表于 2020-4-14 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47080760&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-4-14 20:58</a>
+
+主要是这些年来都是固定的2月，恐怕不是那么好改的</blockquote>
+从故事上来讲 影响最大的就是“圣诞回”以前圣诞以后直接就决战了 不过一般而言只要在4月开学季前开播就没什么问题 况且Q娃第一集一般都是转校 开学放到4月也许更好
+
+
+当然这只是剧情 
+
+电视播出这种大人的问题我也不清楚 不过这么多年Q娃都已经是 专属时段了把 我觉得也就一句话的事 
+
+明年新玩具还没开始设计呢吧 偶活 美妙 4月开卖新玩具也没啥问题啊 
+
+至于财报这种东西 跟疫情比起来还能叫事么
+
+上面的大人们封城时间不能去风俗店 料理亭 呆在家里几个电话都不愿打 那我也没啥好说的Q娃少几集就少几集呗 不能影响上面大人们在家休息啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1842#       发表于 2020-4-15 00:40
+
+
+
+
+以战斗为主导真的不行，今年的除了战斗外都好说……你们私下解决心结商场没那么多事估计还好点……
+
+反派一直站着看戏有点突兀，毕竟习惯了过去一年几个都上场打架…田村的那位还会嘴炮阴阳人，有点逗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+我觉得合体技挺不错的，比南十字好些
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1843#       发表于 2020-4-15 17:56
+
+
+
+
+这两集给我的感觉像是到了最终决战一样<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1844#       发表于 2020-4-15 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47091882&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-4-15 17:56</a>
+
+这两集给我的感觉像是到了最终决战一样</blockquote>
+这两集Q娃们频繁摔到地上让我想起了无印的中期BOSS战
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1845#       发表于 2020-4-15 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47092183&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-4-15 18:23</a>
+
+这两集Q娃们频繁摔到地上让我想起了无印的中期BOSS战</blockquote>
+但是这次不仅摔得毫无紧张感甚至有点草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，打起来一股浓浓的演戏味
+
+
+
+
+
+
+
+-----
+
+####  泰安巨人ex  
+##### 1846#       发表于 2020-4-15 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47066063&amp;ptid=1860852" target="_blank">moooooonlight 发表于 2020-4-13 15:45</a>
+
+结合来看这两集还挺失望的，上集三人聚集再分开再聚集，这集被打飞后醒来还原地思考人生，就不能在演出剧本 ...</blockquote>
+上集我就想吐槽为什么先散开再聚集了……
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1847#       发表于 2020-4-18 09:33
+
+
+
+<img src="https://files.catbox.moe/qxucnv.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/1gdehp.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/yvyt6g.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/neasv9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hgcg-w  
+##### 1848#         楼主| 发表于 2020-4-18 11:30
+
+
+
+
+大门大兽没进化前？
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gdxqnfg1hij20go0b6n4c.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1849#       发表于 2020-4-18 11:37
+
+
+
+
+包子？
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1850#       发表于 2020-4-18 11:39
+
+
+
+
+第四人来了 ​​​​
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdxrmz5kmzj20u01hc1l0.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdxrn3zfvzj20730art9h.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xzhlj0325  
+##### 1851#       发表于 2020-4-18 11:41
+
+
+
+
+这是那只女王狗变的吧<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1852#       发表于 2020-4-18 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老太婆q娃？
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1853#       发表于 2020-4-18 11:58
+
+
+
+ 本帖最后由 leleq 于 2020-4-18 11:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47122665&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-4-18 11:39</a>
+
+第四人来了 ​​​​</blockquote>
+这尼玛30岁了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不注意还以为是黄战士老妈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1854#       发表于 2020-4-18 12:01
+
+
+
+
+不要啊，这是大妈Q娃吗？真就妈Q啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1855#       发表于 2020-4-18 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个角度想想大妈也挺好的，不会因为第四者的入队，破坏三人之间的平衡
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1856#       发表于 2020-4-18 12:08
+
+
+
+
+人间体？
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdxshxgtl8j20u01hcx6s.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdxsi8huhzj20u01hc4qt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/mw690/9657fdc2gy1gdxsi3652nj20730art9h.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1857#       发表于 2020-4-18 12:09
+
+
+
+
+这不会是那个狗女王 身旁的那个石像变的吧？
+
+
+
+
+
+
+
+-----
+
+####  chentry  
+##### 1858#       发表于 2020-4-18 12:13
+
+
+
+
+要真是和女王女神有关，这个设定就小光了吧
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1859#       发表于 2020-4-18 12:13
+
+
+
+
+叫アスミ，和其他三个人不一样是片假名，所以应该是外国人or异世界人？
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdxsg26pbvj20u01hc47a.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdxsg2g0cij20u01hc47v.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1860#       发表于 2020-4-18 12:13
+
+
+
+
+形象和另外3人不搭
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1861#       发表于 2020-4-18 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47122917&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-4-18 12:08</a>
+
+人间体？</blockquote>
+cv：大原さやか 的感觉
+
+
+
+
+
+
+
+-----
+
+####  蓝泽渚  
+##### 1862#       发表于 2020-4-18 12:25
+
+
+
+
+人间体感觉比变身后还老了
+
+
+
+
+
+
+
+-----
+
+####  流浪的咸鱼  
+##### 1863#       发表于 2020-4-18 12:30
+
+
+
+
+这也太显老了吧……
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1864#       发表于 2020-4-18 12:46
+
+
+
+
+第四人就算穿泳装也给人一股强行装嫩的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1865#       发表于 2020-4-18 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46657353&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-03-08 13:56:28</a>
+狗女王看了眼那个人类雕像的时候突然想到，该不会那个就是当年的q娃本人吧，今年的追加莫非是来自古代的战 ...</blockquote>我是不是猜中了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，追加是那个雕像复活，真·远古q娃
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1866#       发表于 2020-4-18 13:50
+
+
+
+
+你们说声优会是谁
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1867#       发表于 2020-4-18 13:50
+
+
+
+
+平成q娃石像复活
+猜宍户
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1868#       发表于 2020-4-18 14:00
+
+
+
+[https://www.weibo.com/tv/v/IDSKkDbyd?fid=1034:4495051703648297](https://www.weibo.com/tv/v/IDSKkDbyd?fid=1034:4495051703648297)
+
+三森？
+
+
+
+
+
+                                     

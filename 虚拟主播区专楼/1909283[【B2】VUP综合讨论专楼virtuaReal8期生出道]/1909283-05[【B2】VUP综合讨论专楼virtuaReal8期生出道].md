@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 00:00** 
+> ## **本文件最后更新于2020-04-18 14:00** 
 
 
 
@@ -8889,4 +8889,305 @@ pax啊，从这些天的动态还有出道视频来看应该是准备一直rp下
 
 
 
-                                  
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6467#       发表于 2020-4-18 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47119863&amp;ptid=1909283" target="_blank">金魚佬 发表于 2020-04-17 23:57:25</a>
+你说的是最新那首翻唱？不是意大利语，是拉丁语，虽然意大利语是拉丁语系，但基本上没人说拉丁语了，也就 ...</blockquote>这样啊，确实好听。因为自我介绍视频里面有比关于意大利语的内容所以就联想到一起去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  MyOnlyJustICE  
+##### 6468#       发表于 2020-4-18 00:59
+
+
+
+
+好久没听鸟神直播了，觉得她好甜，坏了坏了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6469#       发表于 2020-4-18 01:04
+
+
+
+
+说真的，我都忘了VR还有鸟神这号人了。。。似乎很久没在联动里出现过，现在是全社曝光最低的一个吧？
+
+
+
+
+
+
+
+-----
+
+####  iewgnoix  
+##### 6470#       发表于 2020-4-18 01:07
+
+
+
+
+不联动不挺好么，一联动又要挨劈，又不图赚钱，吃底薪算了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6471#       发表于 2020-4-18 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120309&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-18 01:04</a>
+说真的，我都忘了VR还有鸟神这号人了。。。似乎很久没在联动里出现过，现在是全社曝光最低的一个吧？ ...</blockquote>
+曝光最低，有加不服吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6472#       发表于 2020-4-18 01:44
+
+
+
+
+夜之中星也老师不算人？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lutla1422  
+##### 6473#       发表于 2020-4-18 01:56
+
+
+
+
+vr人均帅哥美女 H总监却狂舔敌台主播 兄弟 太云了吧
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6474#       发表于 2020-4-18 01:56
+
+
+
+ 本帖最后由 穆幕姆 于 2020-4-18 01:58 编辑 
+<blockquote>聪明墨菲特 发表于 2020-4-18 01:44
+夜之中星也老师不算人？
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+编辑
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 6475#       发表于 2020-4-18 02:04
+
+
+
+ 本帖最后由 jk9hot 于 2020-4-18 02:06 编辑 
+
+退坑V已久，听闻VR新人出自我介绍，看了一下撒旦跟pax。
+
+如果撒旦直播能有这自我介绍一半的功力（指坚守皮设定的来RP）必火。
+
+pax这翻唱确实顶，至于会不会直播就不知道了。电竞副社长的声音，闭上眼睛不看皮第一反应是脑补叶修（就是国漫声优杰大那种语气）的形象，睁开眼再看皮一言难尽。
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6476#       发表于 2020-4-18 02:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120408&amp;ptid=1909283" target="_blank">Mika-S 发表于 2020-04-18 01:24:31</a>
+曝光最低，有加不服吧</blockquote>谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6477#       发表于 2020-4-18 02:48
+
+
+
+
+有加还在直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6478#       发表于 2020-4-18 02:50
+
+
+
+ 本帖最后由 ocyashiroi 于 2020-4-18 11:45 编辑 
+
+品了下VR八期生的自我介绍视频
+
+注意到了评论区的Aza和叶评论区下的仓鼠有异曲同工之妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+情况有变，编辑一下：我凌晨看的时候 评论区的阿萨四百多赞在度人等人七八百赞之上
+
+现在基本是有阿萨在 基本评论区第一了，还是挺大幅度的领先
+
+现在就萨麦尔底下的阿萨还有点味儿，七百赞踩在八百赞的沙夜头上
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+u1s1我挺欣赏阿萨的
+
+我盲猜都不盲猜了，肯定是他女粉搞得，估计就几个混饭圈一起的小团体搞得
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kumalen  
+##### 6479#       发表于 2020-4-18 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47120726&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-04-18 02:50:00</a>
+品了下VR八期生的自我介绍视频
+注意到了评论区的Aza和叶评论区下的仓鼠有异曲同工之妙啊 ...</blockquote>别骂了别骂了，女粉多就是不一样<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6480#       发表于 2020-4-18 09:26
+
+
+
+ 本帖最后由 plllllum 于 2020-4-18 12:20 编辑 
+
+评论点赞这么虚无的东西有什么好斗的……b站评论排序有时候挺奇怪的，可能跟点赞速度也有关系，我不觉得八期生自我介绍下面前辈的评论会有什么人点踩
+
+
+
+
+
+
+
+-----
+
+####  during  
+##### 6481#       发表于 2020-4-18 11:55
+
+
+
+ 本帖最后由 during 于 2020-4-18 13:27 编辑 
+<blockquote>ocyashiroi 发表于 2020-4-18 02:50
+品了下VR八期生的自我介绍视频
+
+注意到了评论区的Aza和叶评论区下的仓鼠有异曲同工之妙啊
+
+</blockquote>
+按照pax评论区点赞数直接算的:沙夜700赞被排在喵月300赞下面，阿萨800赞，只算赞踩女粉得踩400赞出去，你是认真觉得阿萨粉丝有一半多闲到给沙夜点踩吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">顺便此楼又bug了
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6482#       发表于 2020-4-18 12:07
+
+
+
+
+花留的自我介绍评论（目前）是罗伊第一度人第二阿萨第三啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+                                 
