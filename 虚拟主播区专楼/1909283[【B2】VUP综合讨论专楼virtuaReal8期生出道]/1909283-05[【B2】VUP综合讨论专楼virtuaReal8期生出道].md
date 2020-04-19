@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 18:00** 
+> ## **本文件最后更新于2020-04-20 00:00** 
 
 
 
@@ -11432,4 +11432,681 @@ vr赶紧找个能代替光一果的梗吧，越玩这个越没意思了
 
 
 
-                             
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6603#       发表于 2020-4-19 19:12
+
+
+
+
+VR现在是重点招留学生啊，pax意大利留学，御水日本留学，花留大概率在加拿大，沙夜是美国。这是准备以后国际化演出有人上么？
+
+
+
+
+
+
+
+-----
+
+####  鹅饿鹅  
+##### 6604#       发表于 2020-4-19 19:25
+
+
+
+
+留学生多应该有多重因素
+
+国内大学生大多住多人宿舍
+
+干这种前景渺茫的工作（娱乐）需要良好的家庭
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6605#       发表于 2020-4-19 20:07
+
+
+
+
+之前留学生也不少吧，有加，hsm，saya都是
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6606#       发表于 2020-4-19 20:24
+
+
+
+
+罗伊开幕就草死人了  草
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6607#       发表于 2020-4-19 20:27
+
+
+
+
+草，鲨皇说了773
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6608#       发表于 2020-4-19 20:28
+
+
+
+
+我一进去就听到三字母
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6609#       发表于 2020-4-19 20:48
+
+
+
+
+diss就这？
+
+
+
+
+
+
+
+-----
+
+####  文长ddd  
+##### 6610#       发表于 2020-4-19 20:54
+
+
+
+
+没办法，骂的太狠的没法播，能播的只能是这种不痛不痒的投稿。
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 6611#       发表于 2020-4-19 20:56
+
+
+
+
+不行，完全不行，就这？
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6612#       发表于 2020-4-19 21:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会吧你们真的以为会有那种diss吗，有也不可能放出来的啊(
+
+
+
+
+
+
+
+-----
+
+####  汝之真言  
+##### 6613#       发表于 2020-4-19 21:07
+
+
+
+
+但是放出来的也避重就轻。。。属实不行
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6614#       发表于 2020-4-19 21:14
+
+
+
+
+上位势杂谈力确实不错 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 6615#       发表于 2020-4-19 21:18
+
+
+
+
+跟昨天差的有点多
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6616#       发表于 2020-4-19 21:19
+
+
+
+
+吐槽liver环节居然还真是现场的几个v吐槽啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+全程就这？就这？
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6617#       发表于 2020-4-19 21:30
+
+
+
+
+公司周年纪念就是5个人搁这发散唠嗑可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过有艾因阿萨带着节奏，还能看，比VR昨晚那种不知所谓的节目好不少。
+
+
+嘉宾祝福环节把我尬到了，八竿子打不着的猫猫和歌姬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6618#       发表于 2020-4-19 21:32
+
+
+
+
+这啥啊...就幸福美满呗
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6619#       发表于 2020-4-19 21:33
+
+
+
+
+四号机的文案水平就这就这就这？
+
+神tm诚实守信相亲相爱的大家庭，给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ihihihihi  
+##### 6620#       发表于 2020-4-19 21:34
+
+
+
+
+阿萨把我尬到了
+
+
+
+
+
+
+
+-----
+
+####  Joreder  
+##### 6621#       发表于 2020-4-19 21:36
+
+
+
+
+什么敌台敌台，中国人不打中国人，大家一起打樱花妹<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6622#       发表于 2020-4-19 21:43
+
+
+
+
+居然有田角<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6623#       发表于 2020-4-19 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这个是纯staff弄的流程，就普通的纪念流程也挺正常的，不过看后面的祝福部分，确实是减少了虹浓度，加大了vup圈的浓度，
+
+vup老是当yhm的洗脚婢确实不行，抱团拓圈也挺好。
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 6624#       发表于 2020-4-19 21:58
+
+
+
+
+没钱做周边众筹可以拿两次钱
+
+
+
+
+
+
+
+-----
+
+####  lutla1422  
+##### 6625#       发表于 2020-4-19 21:59
+
+
+
+
+连周边启动资金都没有还需要liverr自己来讲的 真好笑
+
+
+
+
+
+
+
+-----
+
+####  苏打饼干喵  
+##### 6626#       发表于 2020-4-19 22:01
+
+
+
+
+阿萨太尬了，不会说就少说几句吧
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6627#       发表于 2020-4-19 22:01
+
+
+
+
+草，敢敢心心3D联动b站up主做挑战游戏，这综艺味爆棚了好吧？还要走本社的老路子吗，说好的本国特色呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 6628#       发表于 2020-4-19 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为是3d什么的，结果还是吃虹剩下的菜，令人失望
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6629#       发表于 2020-4-19 22:04
+
+
+
+
+信息量好低<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lkciub  
+##### 6630#       发表于 2020-4-19 22:09
+
+
+
+
+就这
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6631#       发表于 2020-4-19 22:12
+
+
+
+
+真不愧是VR呢
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6632#       发表于 2020-4-19 22:13
+
+
+
+
+就这？全靠五人杂谈力撑起来的一周年纪念 vr好起来了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6633#       发表于 2020-4-19 22:14
+
+
+
+
+今天也是没有终于好起来的一天呢
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6634#       发表于 2020-4-19 22:18
+
+
+
+
+谢谢毛鸡排的人贡献的一场直播
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6635#       发表于 2020-4-19 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">红晓音的机战歌回开始了
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6636#       发表于 2020-4-19 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47137205&amp;ptid=1909283" target="_blank">seaside 发表于 2020-4-19 22:13</a>
+
+就这？全靠五人杂谈力撑起来的一周年纪念 vr好起来了</blockquote>
+还要怎样？穿越回半年前你要说VR可以组织一场5个人参与没有全程高尬高冷高度劝退的杂谈回，就算纯良民里也没几个信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  文长ddd  
+##### 6637#       发表于 2020-4-19 22:29
+
+
+
+
+不过靠五个人的杂谈力撑起了一场直播这不也证明了vr好起来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好歹liver们不拉跨了
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6638#       发表于 2020-4-19 22:31
+
+
+
+
+十年之约？十年之后虚拟主播通通给我完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6639#       发表于 2020-4-19 22:31
+
+
+
+
+确实，终于好起来了！
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6640#       发表于 2020-4-19 22:32
+
+
+
+
+10年也太弱智了，1年就很好
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6641#       发表于 2020-4-19 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以隔壁是半年论我们这整个1年论或者10年论吗，B综也好起来了
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6642#       发表于 2020-4-19 22:34
+
+
+
+
+说实话，可以理解，但确实不行
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6643#       发表于 2020-4-19 22:44
+
+
+
+
+信息少、阿萨铁直男RP、众筹之类其实都是小问题，我最想吐槽的是VR打算把跨界联动这种高难玩法交给依旧处于社内临场能力中下游的敢敢心心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
