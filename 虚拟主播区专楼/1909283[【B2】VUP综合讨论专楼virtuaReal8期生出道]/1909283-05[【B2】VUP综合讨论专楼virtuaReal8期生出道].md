@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 00:00** 
+> ## **本文件最后更新于2020-04-19 18:00** 
 
 
 
@@ -10861,4 +10861,575 @@ mhr的哼声不看直播间名还以为是miki呢</blockquote>弥语害人
 
 
 
-                              
+
+
+-----
+
+####  wuaistage1  
+##### 6573#       发表于 2020-4-19 00:01
+
+
+
+
+罗宝：“我悟了！我放前辈们的歌企图甩锅是失败根源，我要从自己身上挖掘勇气！”
+
+
+于是最后十连放了《直升机巴士》<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 90连，堂堂阵亡。
+
+
+
+
+
+
+
+
+QQ截图20200418235644.png
+(836.97 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-19 00:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/19/000050gdtlyzzkqymtml5t.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6574#       发表于 2020-4-19 00:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在上海的有空去了挺正常的，只不过版主居然没去，难道是线上连线的么，线上居然都迟到了。那这波被迫害血亏，没吃到饭。
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 6575#       发表于 2020-4-19 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 总算有人提你弥的哼~了，这算不算萌音主播的奥义
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6576#       发表于 2020-4-19 00:27
+
+
+
+
+鸟神又在一图流，听不下去
+
+
+
+
+
+
+
+-----
+
+####  lkciub  
+##### 6577#       发表于 2020-4-19 00:28
+
+
+
+
+村民哼是压制早期小声复读的对策，我还是想听小声复读
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6578#       发表于 2020-4-19 00:31
+
+
+
+
+罗伊今晚这抽卡也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  links8018  
+##### 6579#       发表于 2020-4-19 00:40
+
+
+
+
+看了一段时间的罗伊，aza两人的直播，不禁感叹要是vr有几个这样水平相当的女v也不至于现在这么拉跨了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6580#       发表于 2020-4-19 00:51
+
+
+
+
+这个水平的女v多半会去holocn吧，罗伊现在这数据有点对不起他的水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 想长点人气还要靠自己的人脉
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6581#       发表于 2020-4-19 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">罗伊是时长比较少，时薪在vr里也很高了，粉丝数这个男v在国内天生劣势涨的慢也很无奈。
+
+syl，看数据弥宝真的摸啊，不过时薪倒是很高，弥人gachi好强大。
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6582#       发表于 2020-4-19 01:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看男V单人开台播我不如去看海鲜台，顶天看看版主解说比赛
+
+我感觉V圈还是靠差异化吸引亚文化爱好者，有泛ACG爱好的妹子闲聊对我来说非常少见，但是能说会侃打游戏本领高强戏多的男主播也太多了
+
+我是没感觉除了皮套以外比起传统游戏主播有什么特殊优势
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6583#       发表于 2020-4-19 01:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面又提到招人，有个挺有意思的。木口cn现在挖出来4个，1个前个人势v主播，一个前企业势v主播，一个前斗鱼女主播，一个前老鼠台女主播。
+
+vr挖出来，前偶像、现任巨魔坛版主、业余coser、现充up主、翻唱区up主、混音工作人员、作豚、少数社畜兼职、大量的学生妹，甚至有好几个留学学生妹，总体里管人粉丝浓度还挺低的。
+
+两边招人思路是不是属于完全没有重合度，可能是运营的大方向不同，不然vr背靠b站要招到几个转生女主播应该还是不难的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6584#       发表于 2020-4-19 01:59
+
+
+
+
+VR主要看各个方向有特色有特长的人，广撒网，
+木口cn目前看来是注重直播能力，营业能力，可能跟两边本社运营方向和国内的基本盘有关
+像弥宝这种一开始话都抖不清楚，还有小声复读的毛病能进VR这种企业势只能说多谢彩虹哥了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6585#       发表于 2020-4-19 02:04
+
+
+
+
+这话题似曾相识，梦回B1
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6586#       发表于 2020-4-19 02:17
+
+
+
+
+B1不是整天劈弥宝，后来劈鸟神，不时劈劈VR联动拉胯，偶尔冒出几个聊别的国V么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6587#       发表于 2020-4-19 02:25
+
+
+
+
+vr现在招人不是靠亲友吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Tauta  
+##### 6588#       发表于 2020-4-19 08:02
+
+
+
+
+扫了眼B站的源码，按点赞数排序的标准是100 * (点赞数+2) / (点踩数+举报数+4)。感觉有点迷，不知道为啥这么排。
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 6589#       发表于 2020-4-19 08:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47124297&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-18 15:08</a>
+连B站评论依据什么方式排序都没搞清楚就来阴谋论，还说没梁木？
+
+SYL  斗评论点赞数实在太尼玛弱智了。。。 ...</blockquote>
+毕竟B站没有hiyoko这种官方斗虫指定平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  樱绫  
+##### 6590#       发表于 2020-4-19 09:13
+
+
+
+
+除法草，那点几个踩就下去了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6591#       发表于 2020-4-19 10:31
+
+
+
+
+vr赶紧找个能代替光一果的梗吧，越玩这个越没意思了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6592#       发表于 2020-4-19 11:14
+
+
+
+
+问题是当事人喜欢这个梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| InvisibleP| + 1|kusa，借机拍拖建议**毙）|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6593#       发表于 2020-4-19 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47131359&amp;ptid=1909283" target="_blank">聪明墨菲特 发表于 2020-4-19 10:31</a>
+
+vr赶紧找个能代替光一果的梗吧，越玩这个越没意思了
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+你觉得没意思，但昨晚人气可是完爆欺诈游戏大联动，VR巅峰时刻
+
+
+
+
+
+
+
+-----
+
+####  ihihihihi  
+##### 6594#       发表于 2020-4-19 11:51
+
+
+
+
+其他人起哄不觉得很尬吗
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6595#       发表于 2020-4-19 11:59
+
+
+
+ 本帖最后由 zhongdasang 于 2020-4-19 12:04 编辑 
+
+昨天的活动都上分区banner了，一个欺诈游戏怎么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl
+
+一果最近压力大的一批还说vr的工作是爱好，不想集中一切在一件事情特别是爱好上。所以本人都不上心的东西也别争来争去了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 6596#       发表于 2020-4-19 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47131973&amp;ptid=1909283" target="_blank">ihihihihi 发表于 2020-4-19 11:51</a>
+其他人起哄不觉得很尬吗</blockquote>
+尬是挺尬的，但是写实啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6597#       发表于 2020-4-19 12:30
+
+
+
+
+想想上学的时候有没有一对关系好的男女大家跟着起哄，大部分观众现在就是跟着起哄的。
+而且光一果是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，起哄的有理有据
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6598#       发表于 2020-4-19 12:36
+
+
+
+
+毕竟组织给版主发的女友<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6599#       发表于 2020-4-19 12:51
+
+
+
+
+啥人气完爆欺诈游戏…我怎么印象中VR所有大联动热度都是三十万左右 昨天也不例外 基本盘.jpg
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6600#       发表于 2020-4-19 13:53
+
+
+
+
+方言整活多搞点这东西好玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6601#       发表于 2020-4-19 15:16
+
+
+
+
+今晚的vrfm算不算官方钦点的上位势<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6602#       发表于 2020-4-19 16:07
+
+
+
+
+版主的网课听着舒服
+
+
+
+
+
+                             
