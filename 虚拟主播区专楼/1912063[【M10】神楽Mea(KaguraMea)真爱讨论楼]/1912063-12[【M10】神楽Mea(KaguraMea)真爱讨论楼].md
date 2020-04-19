@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 20:01** 
+> ## **本文件最后更新于2020-04-19 22:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_x13Pa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_woWeZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_L7Rd8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_Rjb8n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -18455,4 +18455,298 @@ bcr是不可能玩的，gbf已经把我榨干了
 
 
 
-               
+
+
+-----
+
+####  Dualist彩  
+##### 17537#       发表于 2020-4-19 20:01
+
+
+
+
+意外的好效果，这么会搞多接点啊
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 17538#       发表于 2020-4-19 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个小时完美剧本
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 17539#       发表于 2020-4-19 20:02
+
+
+
+
+这工商效果怕不是厂家流泪
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17540#       发表于 2020-4-19 20:03
+
+
+
+
+之前骂骂咧咧
+最后一发出货大喊pcr真好玩，人物真可爱，好真实<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 17541#       发表于 2020-4-19 20:03
+
+
+
+
+这是剧本吧,怎么我扣石头就不行呢?
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 17542#       发表于 2020-4-19 20:06
+
+
+
+
+最后一刻大欢呼，你猜我信不信<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+先把这次水古战打完再考虑送不送钱给睿国
+
+感觉也没啥好玩的……
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17543#       发表于 2020-4-19 20:06
+
+
+
+
+体现了一个prc开荒玩家的真实写照
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17544#       发表于 2020-4-19 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要是不打竞技场也不想肝的话，这游戏和galgame+内置番剧区别不大啊（虽然我打上头了）
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17545#       发表于 2020-4-19 20:10
+
+
+
+
+所有手游都是这样的啊，你不上头也就那样
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17546#       发表于 2020-4-19 20:11
+
+
+
+
+CY系就白嫖党送得多一点咯（）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17547#       发表于 2020-4-19 20:22
+
+
+
+
+说归说，手游还是爬，下个月最后的一个手游弃了就给她上一万饭盒香一香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17548#       发表于 2020-4-19 20:23
+
+
+
+
+还是想看咩咩接lol工商被职业哥打爆<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">，一个人害羞就拉着大小姐、狗狗、aqua、阿菜一起被只能出肉装的职业哥暴打吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17549#       发表于 2020-4-19 20:36
+
+
+
+
+这弹幕笑死我了<img src="https://p.sda1.dev/0/a2add7908a9dd72a66e1d67f38dd402d/IMG_E3B016C4BD1C5A7E55D76CABD61C574A.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17550#       发表于 2020-4-19 20:38
+
+
+
+
+手游的抽卡真实
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17551#       发表于 2020-4-19 21:02
+
+
+
+
+草，错过了，感觉亏大了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 17552#       发表于 2020-4-19 21:15
+
+
+
+
+不管怎么说节目效果是有了，不亏！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17553#       发表于 2020-4-19 21:48
+
+
+
+
+字幕组帮点忙啊，时效性啊，加速一下抽卡过程，配两个uc。送上来的热度不要白不要啊。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17554#       发表于 2020-4-19 21:51
+
+
+
+
+这种神回肯定是要烤的，就看效率了，不过激光烤肉我觉得不现实
+
+
+
+
+
+              
