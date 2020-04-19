@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 06:01** 
+> ## **本文件最后更新于2020-04-19 14:03** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_rotQ5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_wxl7t" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_W2mvX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_tkInP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -15700,4 +15700,506 @@ Tailwind Pile、普通のDD，你们这种彩笔能不能有丶自知之明，LO
 
 
 
-                    
+
+
+-----
+
+####  Dualist彩  
+##### 17372#       发表于 2020-4-19 07:15
+
+
+
+
+我醒了，真有你的啊麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 17373#       发表于 2020-4-19 07:20
+
+
+
+
+一大早起来就有咩看
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17374#       发表于 2020-4-19 07:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47130274&amp;ptid=1912063" target="_blank">D1relia 发表于 2020-4-19 04:30</a>
+Tailwind Pile、普通のDD，你们这种彩笔能不能有丶自知之明，LOL就乖乖看着，不要进来坑mea姐好吗。玩个波 ...</blockquote>
+半夜打LOL的大多数人没什么状态了，这点国服日服想必都是一样的<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 17375#       发表于 2020-4-19 07:42
+
+
+
+
+一早起来她在打雀魂，比起惊悚片还是更像家庭日常<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17376#       发表于 2020-4-19 07:54
+
+
+
+
+我醒了，不会还在播吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 17377#       发表于 2020-4-19 07:57
+
+
+
+
+还在播？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 17378#       发表于 2020-4-19 08:04
+
+
+
+
+这就是年轻的肉体的威力吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17379#       发表于 2020-4-19 08:14
+
+
+
+
+白毛太太还搁这麻将呢
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17380#       发表于 2020-4-19 08:26
+
+
+
+
+……我麻了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17381#       发表于 2020-4-19 08:28
+
+
+
+
+今日耐久.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17382#       发表于 2020-4-19 08:29
+
+
+
+
+全是老处男还是分奴啊，追梦局全整这些小牌
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17383#       发表于 2020-4-19 08:56
+
+
+
+
+还在播？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">太恐怖了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17384#       发表于 2020-4-19 08:57
+
+
+
+
+《作息》
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17385#       发表于 2020-4-19 08:58
+
+
+
+
+“我是不会开8小时的”
+
+
+年轻真好<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17386#       发表于 2020-4-19 08:59
+
+
+
+
+?????<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+咩宝你做个人啊
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 17387#       发表于 2020-4-19 08:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">岭上耐久
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17388#       发表于 2020-4-19 09:03
+
+
+
+
+咩宝别播了，👩🏻怕
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17389#       发表于 2020-4-19 09:06
+
+
+
+
+刚刚那几句有小麻“君だからね”那味了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17390#       发表于 2020-4-19 10:41
+
+
+
+
+做个人吧，求你了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17391#       发表于 2020-4-19 11:07
+
+
+
+
+这也太能播了，这就是年轻🌸妹吗？
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 17392#       发表于 2020-4-19 11:13
+
+
+
+
+甚至还在打<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+这就是年轻肉体力量吗，真好
+看来今日小麻直播记录创下新高了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17393#       发表于 2020-4-19 12:03
+
+
+
+
+00后太年轻了，通宵熬夜不在话下，老年人真的追不上，歌回没听到几首歌就昏迷了。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17394#       发表于 2020-4-19 12:31
+
+
+
+
+身体好是好事，但比起耐久配信更希望看到她能有健康的生活习惯，吃好喝好，早睡早起，保持身体锻炼习惯，上播时能有好心情。正能量的咩小姐不会有人不爱吧？
+syl说到底还是一条懒狗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17395#       发表于 2020-4-19 12:32
+
+
+
+
+别说歌回了，11点就昏迷了，啥都没看到
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17396#       发表于 2020-4-19 12:34
+
+
+
+
+健康的咩姐或许就不是你咩姐了
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 17397#       发表于 2020-4-19 12:42
+
+
+
+
+老了老了扛不住yhm的奇怪作息
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 17398#       发表于 2020-4-19 13:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这就是年轻的身体吗？真是太羡慕了
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 17399#       发表于 2020-4-19 13:19
+
+
+
+
+睡了在直播，醒了也在直播
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 17400#       发表于 2020-4-19 13:54
+
+
+
+
+为什么如月唱歌我总以为是master在代唱。。。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17401#       发表于 2020-4-19 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47132978&amp;ptid=1912063" target="_blank">疾劲野风 发表于 2020-4-19 13:54</a>
+为什么如月唱歌我总以为是master在代唱。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
