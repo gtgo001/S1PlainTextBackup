@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 14:03** 
+> ## **本文件最后更新于2020-04-19 20:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_wxl7t" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_x13Pa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_tkInP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_L7Rd8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -16202,4 +16202,2257 @@ syl说到底还是一条懒狗<img src="https://static.saraba1st.com/image/smile
 
 
 
-                   
+
+
+-----
+
+####  笋狐  
+##### 17402#       发表于 2020-4-19 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火星一下，刷首页看到个近期投稿的粽子来了的手书有咩桑友情出演，再一看，官号投稿...
+
+
+芜湖，看来今年清明应该包点羊肉粽的（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17403#       发表于 2020-4-19 14:34
+
+
+
+
+现在看来粽子好像不大可能再和咩姐联动。。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17404#       发表于 2020-4-19 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47133187&amp;ptid=1912063" target="_blank">笋狐 发表于 2020-4-19 14:20</a>
+火星一下，刷首页看到个近期投稿的粽子来了的手书有咩桑友情出演，再一看，官号投稿...
+
+
+芜湖，看来 ...</blockquote>
+哪一个啊，求个bv号
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 17405#       发表于 2020-4-19 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47133294&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-19 14:34</a>
+
+哪一个啊，求个bv号</blockquote>
+BV1c741127W6
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17406#       发表于 2020-4-19 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47133290&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-19 14:34</a>
+现在看来粽子好像不大可能再和咩姐联动。。。</blockquote>
+惩役太郎这种聊不来的都能联动二度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要你mea姐想，没啥不可能的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17407#       发表于 2020-4-19 16:52
+
+
+
+
+你咩姐的联动就跟她yhm的性格一样令人捉摸不透，看就完事了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17408#       发表于 2020-4-19 17:10
+
+
+
+
+能不能哪天和月之美兔来一次联动呢（<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17409#       发表于 2020-4-19 17:21
+
+
+
+
+这几波联动下来15万妥妥的有了，不晓得她又有什么肉猪
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17410#       发表于 2020-4-19 17:47
+
+
+
+[https://ngabbs.com/read.php?tid=21364371](https://ngabbs.com/read.php?tid=21364371)
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17411#       发表于 2020-4-19 18:00
+
+
+
+
+到底是先和月之美兔联动呢，还是再和卯月联动呢（）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17412#       发表于 2020-4-19 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47134876&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-19 17:47</a>
+https://ngabbs.com/read.php?tid=21364371</blockquote>
+这啥啊，点进去显示维护中
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17413#       发表于 2020-4-19 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47135059&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-04-19 18:09:00</a>
+这啥啊，点进去显示维护中</blockquote>《[无聊水一发]真的有平胸但是屁股特别大的身材啊……》
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17414#       发表于 2020-4-19 18:10
+
+
+
+
+彩虹没的可蹭了，不如找几个木口的联动联动，还能发挥点影之一期生这个设定的价值<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准真就有路人以为她真的是木口的把关注点上了呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17415#       发表于 2020-4-19 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47135069&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-19 18:10</a>
+《[无聊水一发]真的有平胸但是屁股特别大的身材啊……》
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+草
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17416#       发表于 2020-4-19 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47135073&amp;ptid=1912063" target="_blank">uuuuu7 发表于 2020-4-19 18:10</a>
+彩虹没的可蹭了，不如找几个木口的联动联动，还能发挥点影之一期生这个设定的价值没准真就有路人以 ...</blockquote>
+现在就是啊，熟肉和二创弹幕里好多牙膏血压爆炸之类的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17417#       发表于 2020-4-19 18:35
+
+
+
+
+你麻什么时候能多蹭点热度，食杀名取我就没有遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17418#       发表于 2020-4-19 18:35
+
+
+
+
+唉……看楼友黑p黑多了自己总是冒出来让mea赶紧加入木口，让木口的一些人喊mea前辈的想法……s1害人啊呜呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17419#       发表于 2020-4-19 18:44
+
+
+
+
+草，你麻接工商了，b限pcr
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17420#       发表于 2020-4-19 18:44
+
+
+
+
+今日は19時からBILIBILI限定プリコネ実況するよ～～～～～！！！！！！！
+プリコネやったことないし中国語読めないからみんないろいろ教えてくれたらうれしい～～～～！！！！！！！！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17421#       发表于 2020-4-19 18:45
+
+
+
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17422#       发表于 2020-4-19 18:45
+
+
+
+
+靠，妈的，没我了，朋友刚约我
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17423#       发表于 2020-4-19 18:45
+
+
+
+
+你麻会接工商<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我不信
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17424#       发表于 2020-4-19 18:45
+
+
+
+
+草？？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17425#       发表于 2020-4-19 18:46
+
+
+
+
+阿B为了推PCR真是不遗余力啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17426#       发表于 2020-4-19 18:47
+
+
+
+
+你麻是被派来完成任务的吧（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17427#       发表于 2020-4-19 18:48
+
+
+
+
+呜呜呜， 麻麻已经是阿b的走狗了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17428#       发表于 2020-4-19 18:49
+
+
+
+
+在玩了在玩了，pcr能出个白发异色瞳军服女仆🐎？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 17429#       发表于 2020-4-19 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波恰饭怎么样会不会影响阿睿的业绩考核啊
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17430#       发表于 2020-4-19 18:50
+
+
+
+
+居然接工商了。。mea那几个工商。。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17431#       发表于 2020-4-19 18:50
+
+
+
+
+至少说明小麻在阿b还是有价值的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17432#       发表于 2020-4-19 18:51
+
+
+
+
+等一个陈睿下场打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17433#       发表于 2020-4-19 18:51
+
+
+
+
+工商也能突击啊？？？？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17434#       发表于 2020-4-19 18:51
+
+
+
+
+mea工商过的……这次到底是播pcr还是bcr？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17435#       发表于 2020-4-19 18:52
+
+
+
+
+今晚会有吗
+
+<img src="https://img.saraba1st.com/forum/202004/19/185158o9vggqqgq972kgn0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>84CEAF133BABF06DD34B10CD2DC56271.jpg</strong> (32.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-19 18:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17436#       发表于 2020-4-19 18:52
+
+
+
+
+bcr吧，中文的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17437#       发表于 2020-4-19 18:52
+
+
+
+
+他们给的太多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+恶堕了麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 17438#       发表于 2020-4-19 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让她恰，以前说不是工商的要再评了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17439#       发表于 2020-4-19 18:54
+
+
+
+
+草有点不敢相信，竟然接工商了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17440#       发表于 2020-4-19 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么会是中文的，中文玩个鸡儿
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17441#       发表于 2020-4-19 18:55
+
+
+
+
+咩咩接工商了，我的青春结束了。打了两天pcr，没想到咩咩也要打，👴爽了
+
+
+
+
+
+
+
+-----
+
+####  荣耀祝福LV20  
+##### 17442#       发表于 2020-4-19 18:56
+
+
+
+
+没牙的工商马上开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17443#       发表于 2020-4-19 18:56
+
+
+
+ 本帖最后由 2111X 于 2020-4-19 18:58 编辑 
+
+我们仍未知道那天的黑白棋是不是工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过推广期的工商找你麻的上一个还是雀魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，会出你麻角色卡吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17444#       发表于 2020-4-19 18:57
+
+
+
+
+奶一个中文，好好教她中文啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17445#       发表于 2020-4-19 18:58
+
+
+
+
+草<img src="https://p.sda1.dev/0/56e0659889adda03e41afe2bcb1b9cbd/-657b3dd07c9d4b1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17446#       发表于 2020-4-19 18:58
+
+
+
+
+直播间标题都改了，就是国服
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17447#       发表于 2020-4-19 18:59
+
+
+
+
+好！终于恰饭了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17448#       发表于 2020-4-19 18:59
+
+
+
+
+国服草，这怎么教
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17449#       发表于 2020-4-19 19:00
+
+
+
+
+我哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+让她怡，让她怡
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 17450#       发表于 2020-4-19 19:02
+
+
+
+
+？？？
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17451#       发表于 2020-4-19 19:04
+
+
+
+
+好事
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17452#       发表于 2020-4-19 19:06
+
+
+
+
+开局有狼艹，我酸了
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 17453#       发表于 2020-4-19 19:08
+
+
+
+
+狼可以给需要的人吗
+
+为什么要这样伤害我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17454#       发表于 2020-4-19 19:08
+
+
+
+
+  居然BCR 广告
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17455#       发表于 2020-4-19 19:08
+
+
+
+
+她这声音好像嘴里面含着什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  荣耀祝福LV20  
+##### 17456#       发表于 2020-4-19 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47135603&amp;ptid=1912063" target="_blank">小博禹 发表于 2020-4-19 19:08</a>
+
+她这声音好像嘴里面含着什么东西</blockquote>
+跟刚睡醒一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 17457#       发表于 2020-4-19 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">正好可以给我麻写个评价了，正向反馈一波吧
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 17458#       发表于 2020-4-19 19:10
+
+
+
+
+刚睡醒吧，感觉一嘴口气的样子
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17459#       发表于 2020-4-19 19:12
+
+
+
+
+我要瞎了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17460#       发表于 2020-4-19 19:12
+
+
+
+
+惊了，突击工商就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17461#       发表于 2020-4-19 19:13
+
+
+
+
+喂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17462#       发表于 2020-4-19 19:14
+
+
+
+
+或许这就是人生吧
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17463#       发表于 2020-4-19 19:15
+
+
+
+
+有一说一+19我只碰到过一回
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17464#       发表于 2020-4-19 19:15
+
+
+
+
+  人生就是9白一金 我想通了就去碎石刷装备了。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17465#       发表于 2020-4-19 19:17
+
+
+
+
+b站给工商的时候倍率不改，也太真实了。
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17466#       发表于 2020-4-19 19:18
+
+
+
+
+mea姐只玩真实（指爆率）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17467#       发表于 2020-4-19 19:19
+
+
+
+
+草，忙着玩BCR结果错过了播，绝了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17468#       发表于 2020-4-19 19:19
+
+
+
+
+kuso game草草草
+
+
+
+
+
+
+
+-----
+
+####  南非大金钻  
+##### 17469#       发表于 2020-4-19 19:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 17470#       发表于 2020-4-19 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡游戏
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 17471#       发表于 2020-4-19 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷工商的游戏辣鸡，你号没了（
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17472#       发表于 2020-4-19 19:21
+
+
+
+
+工商鬼才
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 17473#       发表于 2020-4-19 19:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 减分之加|-1|啊这|
+| 时之虫|-1|海豹的下场不用我多说了吧|
+| h1001010|-1|不用多解释吧？|
+| 记莫更寂寞|-1|海豹的下场不用我多说了吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 17474#       发表于 2020-4-19 19:22
+
+
+
+
+发工资了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17475#       发表于 2020-4-19 19:23
+
+
+
+
+这真的不是在yygq吗， 鼓掌打气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  harry3  
+##### 17476#       发表于 2020-4-19 19:23
+
+
+
+
+这标准的狼+11500钻自抽号应该不是阿B给的吧
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17477#       发表于 2020-4-19 19:23
+
+
+
+
+还好金主不会日语<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17478#       发表于 2020-4-19 19:24
+
+
+
+
+感谢官方（棒读）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17479#       发表于 2020-4-19 19:24
+
+
+
+
+反向工商还打钱，这波是第几层
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17480#       发表于 2020-4-19 19:24
+
+
+
+<blockquote>贴杂司马 发表于 2020-4-19 19:21
+我怀疑我把咩咩的运气给偷走了</blockquote>
+扣鹅警告⚠️
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17481#       发表于 2020-4-19 19:24
+
+
+
+ 本帖最后由 IrisL 于 2020-4-19 19:27 编辑 
+
+这个乱来的阵容其实还蛮科学的前期群奶不行的啊
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17482#       发表于 2020-4-19 19:27
+
+
+
+
+  这个卡哇伊配置很合理的- -可惜我就有里面的千歌和奶牛。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17483#       发表于 2020-4-19 19:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">⬅️一直在瞎配置
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17484#       发表于 2020-4-19 19:31
+
+
+
+
+看不懂乱按有点血压拉满的<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17485#       发表于 2020-4-19 19:32
+
+
+
+
+  看她玩BCR 有点我以前玩PCR 看不懂的那种感觉了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 17486#       发表于 2020-4-19 19:33
+
+
+
+
+到底是谁想的这个让她来玩国服bcr的主意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+虽然她播的很tm搞笑但策划真的搞
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17487#       发表于 2020-4-19 19:34
+
+
+
+
+开始痛击观众了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17488#       发表于 2020-4-19 19:34
+
+
+
+
+话说这次居然提前建好号了，没机会露出输入法，残念<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 17489#       发表于 2020-4-19 19:34
+
+
+
+
+一转乳宅，牙白跌死内~<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17490#       发表于 2020-4-19 19:35
+
+
+
+
+我终于明白为什么mea不接工商了，一直在吐槽哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  KuonjiClara  
+##### 17491#       发表于 2020-4-19 19:36
+
+
+
+
+工商鬼才,把观众游戏运营全骂了一遍233
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 17492#       发表于 2020-4-19 19:37
+
+
+
+
+mea接了工商 国服这波要凉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17493#       发表于 2020-4-19 19:37
+
+
+
+
+居然有点想玩了bcr了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 但是已经玩了舰b和舟游没精力了啊
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17494#       发表于 2020-4-19 19:39
+
+
+
+
+  你这不是等于只玩了舰B么！抽抽卡就完事了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 17495#       发表于 2020-4-19 19:40
+
+
+
+
+那就省下看管人的时间去玩bcr啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 17496#       发表于 2020-4-19 19:41
+
+
+
+
+bcr是不可能玩的，gbf已经把我榨干了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17497#       发表于 2020-4-19 19:41
+
+
+
+
+来玩prc吧大家一起当#皇
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17498#       发表于 2020-4-19 19:44
+
+
+
+
+白嫖还是挺香的
+
+
+反正也不打jjc
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 17499#       发表于 2020-4-19 19:44
+
+
+
+
+草   打bcr错过了   这人的屏幕怎么这么瞎  不过很温暖
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17500#       发表于 2020-4-19 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太非了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17501#       发表于 2020-4-19 19:45
+
+
+
+
+姐啊这是工商冷静点呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17502#       发表于 2020-4-19 19:46
+
+
+
+
+服了wwww
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17503#       发表于 2020-4-19 19:46
+
+
+
+ 本帖最后由 离心 于 2020-4-19 19:49 编辑 
+
+节目效果爆表了哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17504#       发表于 2020-4-19 19:46
+
+
+
+
+  草 太节目效果了吧 居然是第二头狼
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 17505#       发表于 2020-4-19 19:47
+
+
+
+
+这狼节目效果爆了啊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17506#       发表于 2020-4-19 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一波三折的剧情，节目效果爆炸
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17507#       发表于 2020-4-19 19:47
+
+
+
+
+双狼起飞()
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 17508#       发表于 2020-4-19 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看谁还敢说这游戏没狼
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17509#       发表于 2020-4-19 19:48
+
+
+
+
+节目效果拉满了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 17510#       发表于 2020-4-19 19:48
+
+
+
+
+能直播卸载吗   我觉得这游戏不配在你麻手机里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17511#       发表于 2020-4-19 19:48
+
+
+
+
+草草草，节目效果和阿b的心态一样爆炸
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17512#       发表于 2020-4-19 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就不能分我一头狼
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17513#       发表于 2020-4-19 19:49
+
+
+
+
+多谢咩姐的宣传，我已经卸载这游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17514#       发表于 2020-4-19 19:50
+
+
+
+
+ 这学会了跳过 就太熟练了吧
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17515#       发表于 2020-4-19 19:51
+
+
+
+
+笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这节目效果也太好了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17516#       发表于 2020-4-19 19:51
+
+
+
+
+看见了自己
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 17517#       发表于 2020-4-19 19:51
+
+
+
+
+我也是开局给的三星和后面抽到的三星重复，而且是什么妹弓，还不是狼，昨天直接卸载了，什么屑游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17518#       发表于 2020-4-19 19:51
+
+
+
+
+作为个人节目这效果点满了，作为工商不知道能不能拿到钱。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17519#       发表于 2020-4-19 19:52
+
+
+
+
+建议tb35买一个带狼和偶像的初始号，能让自己有更好的游戏体验
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17520#       发表于 2020-4-19 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实有节目效果工商就算成了吧，毕竟要的是曝光度
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17521#       发表于 2020-4-19 19:53
+
+
+
+
+拿了个小电视，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17522#       发表于 2020-4-19 19:54
+
+
+
+
+麻麻多接点工商吧，反正好处都是自己的，让阿b承担一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17523#       发表于 2020-4-19 19:54
+
+
+
+
+  这扣扣索索的下载拿石头 满眼都是19岁时的自己啊
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 17524#       发表于 2020-4-19 19:54
+
+
+
+ 本帖最后由 nightmare902015 于 2020-4-19 19:58 编辑 
+
+阿B：不会再有下次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+说真的这人真的很会做工商，到处扣石头然后抽到三星兴高采烈，完美诠释了手游的内核
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17525#       发表于 2020-4-19 19:55
+
+
+
+
+当初阴阳师的宣传不也是SSR多难抽之类的吗，曝光率才是首要的
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17526#       发表于 2020-4-19 19:57
+
+
+
+
+草充电宝
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17527#       发表于 2020-4-19 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草完美收尾，剧情有起有伏，很完美
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17528#       发表于 2020-4-19 19:57
+
+
+
+
+节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17529#       发表于 2020-4-19 19:57
+
+
+
+
+  这个广告打的 稍微有点感情了，无情的卡哇伊机器。
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 17530#       发表于 2020-4-19 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这是套路吧，剧情都写好的
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17531#       发表于 2020-4-19 19:58
+
+
+
+
+这是剧本吧？这一定是剧本吧！
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 17532#       发表于 2020-4-19 19:59
+
+
+
+
+节目效果拉满了
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17533#       发表于 2020-4-19 20:00
+
+
+
+
+ 准 时 下 班
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17534#       发表于 2020-4-19 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这剧情真和剧本一样，一转攻势
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 17535#       发表于 2020-4-19 20:01
+
+
+
+
+不愧是你，工商都能有声有色。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17536#       发表于 2020-4-19 20:01
+
+
+
+
+这节目效果比大多数pcr抽卡主播好了
+
+
+
+
+
+               
