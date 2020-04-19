@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 14:02** 
+> ## **本文件最后更新于2020-04-19 16:00** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_jkJ1n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_f5UYg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_fEaYb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_HRXBe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -6963,4 +6963,456 @@ cv：大原さやか 的感觉
 
 
 
-                                     
+
+
+-----
+
+####  宅音  
+##### 1869#       发表于 2020-4-18 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别说jcjk了，这个感觉jd都不算，更像社会人
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1870#       发表于 2020-4-18 15:10
+
+
+
+
+不谈肉体年龄，精神年龄绝对超龄
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1871#       发表于 2020-4-18 16:20
+
+
+
+
+超古代q娃（迪迦感）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  haojie_ma  
+##### 1872#       发表于 2020-4-18 16:46
+
+
+
+
+人间体粗看有种隔壁偶活棚过来串场的感觉……
+
+
+
+
+
+
+
+-----
+
+####  zyw0  
+##### 1873#       发表于 2020-4-18 17:25
+
+
+
+
+这也太老了。比香恋年纪还大
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  liu2000310  
+##### 1874#       发表于 2020-4-18 18:16
+
+
+
+
+去年星闪4个三十代一个未知年龄和5个大学生一样，今年这追加光看脸都要40代了
+
+
+
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 1875#       发表于 2020-4-18 18:29
+
+
+
+
+可能是个毛妹，同龄显老
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1876#       发表于 2020-4-18 18:57
+
+
+
+
+声线挺像三森的
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 1877#       发表于 2020-4-18 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47122981&amp;ptid=1860852" target="_blank">leleq 发表于 2020-4-18 12:15</a>
+
+cv：大原さやか 的感觉</blockquote>
+不是，大原不是这声音
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1878#       发表于 2020-4-18 20:34
+
+
+
+
+去年一个年龄不明的蓝猫，今年又一个疑似的远古超龄q娃，莫非妈妈q娃有望？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1879#       发表于 2020-4-18 20:48
+
+
+
+
+和噗哩呛里的白鸟安洁很像
+
+感觉真的是木木木木木木木木木
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1880#       发表于 2020-4-18 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47126115&amp;ptid=1860852" target="_blank">qb0079 发表于 2020-4-18 18:59</a>
+
+不是，大原不是这声音</blockquote>
+……大原=太太=老太婆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qb0079  
+##### 1881#       发表于 2020-4-18 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127351&amp;ptid=1860852" target="_blank">leleq 发表于 2020-4-18 20:56</a>
+
+……大原=太太=老太婆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来是梗嘛
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1882#       发表于 2020-4-19 07:58
+
+
+
+
+“ほまれ！” ​​​​
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdyq58nlujj21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdyq9mefgsj21400mib29.jpg" referrerpolicy="no-referrer">
+
+
+你个舔企鹅 ​​​​
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdyq9u42yzj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdyq9uz5qzj21400mib29.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdyqbcy5g7j21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdyqbhvovyj21400miu0x.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdyqc6mgdyj21hc0u04qr.jpg" referrerpolicy="no-referrer">
+
+
+ごますりクソマウス
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gdyqdm5hyjj21400mie81.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdyqdm14fmj21400mihdt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyqdpx38cj21400mihdt.jpg" referrerpolicy="no-referrer">
+
+
+想象中的特训
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gdyqe5xirxj21hc0u0n8q.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gdyqe6kfz2j21hc0u0tir.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gdyqe6kqb1j21hc0u0n6e.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gdyqe7syvcj21hc0u0dr5.jpg" referrerpolicy="no-referrer">
+
+
+猫 企鹅 兔子
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyqipe8wej21400mi7wi.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gdyqise745j21400miu0x.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyqispjr6j21400mix6p.jpg" referrerpolicy="no-referrer">
+
+
+你果然是大门大兽未进化吧
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdyqqkxzuij21hc0u0b2b.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdyqr733hgj21hc0u0kjn.jpg" referrerpolicy="no-referrer">
+
+
+只有你gu……
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyquxs8lxj21400mix6p.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyquywb10j21400miqv5.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyqv0r4nbj21400mikjl.jpg" referrerpolicy="no-referrer">
+
+
+不安
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdyqxb79kpj21hc0u01kz.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gdyqxcvm9xj21hc0u0kjm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cmyk1234  
+##### 1883#       发表于 2020-4-19 08:39
+
+
+
+
+东映采石场？
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1884#       发表于 2020-4-19 08:50
+
+
+
+
+日向居然要知难而退了，历代q娃里有害怕而退出q娃的吗？
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1885#       发表于 2020-4-19 09:03
+
+
+
+
+和佳越来越响爷化了，今年这战姬梗绕不过去了啊
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1886#       发表于 2020-4-19 10:02
+
+
+
+
+这截图属实好活
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1887#       发表于 2020-4-19 10:29
+
+
+
+
+日向这身的开叉有点高啊
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gdyqe6kqb1j21hc0u0n6e.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1888#       发表于 2020-4-19 10:39
+
+
+
+
+日向这想象图简直为同人而生啊
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 1889#       发表于 2020-4-19 12:43
+
+
+
+
+这造干部也太容易了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家一起上拖延时间就能培养这么强的战斗力
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1890#       发表于 2020-4-19 13:06
+
+
+
+ 本帖最后由 Sliurus 于 2020-4-19 13:11 编辑 
+
+变三人报幕了，所以为什么去年阿光一个人寂寞地报了一年幕<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+新干部我挺喜欢的，比另外三个只会站在一边的懒鬼好多了，性格有点微笑的小丑的味道，而且还没那么变态
+
+
+前半段笑成煞笔，上周还以为凹酱要唱英雄故事特训，没想到只是搞笑回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+今年三人的关系可太好了，好到不想有追加来扰乱现在的状态
+
+
+
+一想到今年会停播就感到惋惜
+
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1891#       发表于 2020-4-19 15:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一想到今年的q娃会受到疫情影响缩短集数改剧本就觉得好难过
+
+
+
+
+
+                                    
