@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 16:00** 
+> ## **本文件最后更新于2020-04-20 18:01** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_f5UYg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_Q9efJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_HRXBe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_pzqPV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -7415,4 +7415,611 @@ cv：大原さやか 的感觉</blockquote>
 
 
 
-                                    
+
+
+-----
+
+####  hgcg-ix  
+##### 1892#       发表于 2020-4-19 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47131348&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-4-19 10:29</a>
+
+日向这身的开叉有点高啊</blockquote>
+被黑丝包裹的大腿
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1893#       发表于 2020-4-19 20:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47134335&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-4-19 16:38</a>
+
+被黑丝包裹的大腿</blockquote>
+相较之下，Q娃装居然更保守一些<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8a0ba758e1c0833c96a678faa7ad7d16/2020-04-19_20-21-08.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1894#       发表于 2020-4-19 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47132640&amp;ptid=1860852" target="_blank">Sliurus 发表于 2020-4-19 13:06</a>
+
+变三人报幕了，所以为什么去年阿光一个人寂寞地报了一年幕
+
+
+新干部我挺喜欢的，比另外三个只会站在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有画面了，就差个队长带着nodoka边跑边唱英雄故事了
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1895#       发表于 2020-4-19 21:21
+
+
+
+
+原来今年反派，附身兽大范围散播病毒+干部保护才应该是正确配置，老员工你们在干什么啊喂
+
+
+
+
+
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 1896#       发表于 2020-4-19 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47136747&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-19 21:21</a>
+原来今年反派，附身兽大范围散播病毒+干部保护才应该是正确配置，老员工你们在干什么啊喂 ...</blockquote>
+老员工摸鱼不是很正常吗？
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1897#       发表于 2020-4-19 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47136513&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-19 20:52</a>
+
+有画面了，就差个队长带着nodoka边跑边唱英雄故事了</blockquote>
+而且刚好是（粉）红黄蓝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1898#       发表于 2020-4-20 00:25
+
+
+
+
+香香猫脸好可爱 知优形体语言好可爱 日向这高叉黑丝<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+话说虎兔对演的时候 那些动作有没有梗？
+包子的老鼠不错比其他3个好玩 
+
+—— 来自 HUAWEI HLK-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1899#       发表于 2020-4-20 01:07
+
+
+
+
+先看冒号再看Q娃 天差地别
+
+首先日向旗袍好看
+
+这集我觉得要说差的话就是这臭弟弟太丑了……因为达鲁伊森真的太俊了
+
+
+这集打得可以 之前一直说他们为什么一直看着 现在终于下场了
+
+听到臭弟弟说战斗很开心 就能想到后面一些发展了 结果一下子就来了日向的心结 估计是她家是医院所以“打斗不是开心的”这样的发展吧……
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1900#       发表于 2020-4-20 07:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47138590&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-4-20 01:07</a>
+
+先看冒号再看Q娃 天差地别
+
+首先日向旗袍好看
+
+这集我觉得要说差的话就是这臭弟弟太丑了……因为达鲁伊森真的 ...</blockquote>
+只要不是这种展开就行
+<img src="https://p.sda1.dev/0/ac1ecbdf2c3f5b1bb1a5173a88362116/2020-04-20_07-24-57.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1901#       发表于 2020-4-20 09:04
+
+
+
+<img src="http://wx4.sinaimg.cn/large/740ca5e5gy1gdzyfxcn0jj20jg0njdj1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1902#       发表于 2020-4-20 09:07
+
+
+
+
+这下日向要纠结到什么时候(
+
+
+
+
+
+
+
+-----
+
+####  秋色如歌  
+##### 1903#       发表于 2020-4-20 09:09
+
+
+
+
+东映动画这周也延迟了，药丸药丸，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1904#       发表于 2020-4-20 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">要压缩剧本了吗
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1905#       发表于 2020-4-20 09:12
+
+
+
+
+没想到这么早，说明配音工作早在动画陆续公布延期前就开始停了？
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1906#       发表于 2020-4-20 09:51
+
+
+
+
+我的心之花要枯萎了
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 1907#       发表于 2020-4-20 09:54
+
+
+
+
+残念
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1908#       发表于 2020-4-20 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47139840&amp;ptid=1860852" target="_blank">nerugigannte 发表于 2020-4-20 09:12</a>
+
+没想到这么早，说明配音工作早在动画陆续公布延期前就开始停了？</blockquote>
+在2月还是3月的时候已经有几个相关者说了
+
+主要是这声优的配音是好几个公司牵扯进来 不同事务所 制作组 音响工作室等等
+
+所以更复杂点 很早就开始采取应对措施了
+
+
+
+
+
+
+
+-----
+
+####  吹雪桑大胜利  
+##### 1909#       发表于 2020-4-20 10:25
+
+
+
+
+不知道会压缩集数还是改档期
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1910#       发表于 2020-4-20 10:42
+
+
+
+
+哎 希望上面的大人们在休假时干点正事把今年的影响减低吧 虽然我现在觉得东大妈的大人们不会给Q娃多打一通电话多开一次视频会议 直接要staff减几集完事了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1911#       发表于 2020-4-20 10:47
+
+
+
+
+q娃这种体量的年番只要不改剧本大纲减几集整体上也不会有什么影响吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">可今年的三小女孩实在太对我胃口了，就算是日常水回我也一集都不想少看
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1912#       发表于 2020-4-20 11:12
+
+
+
+ 本帖最后由 Tomorrow_D 于 2020-4-20 11:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47140984&amp;ptid=1860852" target="_blank">leleq 发表于 2020-4-20 10:42</a>
+
+哎 希望上面的大人们在休假时干点正事把今年的影响减低吧 虽然我现在觉得东大妈的大人们不会给Q娃多打一通 ...</blockquote>
+东映现在大多数环节都是继续进行的，停掉的主要是音响这一块。
+
+但是如果新作还是明年2月播的话，缩减集数是必然的。而且档期这个事关键还要看电视台的安排。
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1913#       发表于 2020-4-20 11:16
+
+
+
+
+数字电视的节目表已经显示这周日重播今年第一话了
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1914#       发表于 2020-4-20 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47141430&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-4-20 11:12</a>
+
+东映现在大多数环节都是继续进行的，停掉的主要是音响这一块。
+
+但是如果新作还是明年2月播的话，缩减集数 ...</blockquote>
+Q娃拍了这么多年基本应该算的上 专有时段了吧 不播Q娃还能播别的？
+
+
+前面我说了2月推到4月 只要大人们认真办事为动画着想 有点困难是可以克服的 偶活 美妙不就4月播的么
+
+
+但是我现在不觉得大人们回去办事因为会影响“传统”会“破例” 在家歇着不好么 Q娃减几集也不会死
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1915#       发表于 2020-4-20 11:24
+
+
+
+
+现在东映的情况是前期和中期的所有环节都照常进行，而且虽然已经采用远程办公了但是隔三岔五也需要去公司，因为对于动画制作来说远程办公解决不了所有问题。
+
+
+但是现在这样也使得staff暴露在比较高的风险之下，尤其是制作进行现在仍然要到处跑。
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1916#       发表于 2020-4-20 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47141563&amp;ptid=1860852" target="_blank">leleq 发表于 2020-4-20 11:21</a>
+
+Q娃拍了这么多年基本应该算的上 专有时段了吧 不播Q娃还能播别的？
+
+
+前面我说了2月推到4月 只要大人们认 ...</blockquote>
+这很大程度上也要看电视台了。
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1917#       发表于 2020-4-20 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47141641&amp;ptid=1860852" target="_blank">Tomorrow_D 发表于 2020-4-20 11:26</a>
+
+这很大程度上也要看电视台了。</blockquote>
+……日本制作单位和电视台关系这么差的么？ 合作这么多年互相通融都没 电视台站完全主导权 那我也是服<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那是不是说要是2月初断 电视台定了重播过去的Q娃一波就是一年？！不会让东大妈中间插播新的？！
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1918#       发表于 2020-4-20 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47141757&amp;ptid=1860852" target="_blank">leleq 发表于 2020-4-20 11:35</a>
+
+……日本制作单位和电视台关系这么差的么？ 合作这么多年互相通融都没 电视台站完全主导权 那我也是服[f: ...</blockquote>
+这和关系差不差倒是没关系，不过对于非制作委员会形式的作品而言电视台确实是一直占据主导权的。按理说对于这种情况东A和台方肯定会有沟通，但是沟通的结果是什么谁也说不清。
+
+
+不过我个人倒是觉得，如果停得久了（比如两个月）那么明年延期的可能性比较大，如果停得不久（比如停一个月以后恢复）的话那么就会大概率缩减集数。而且换一种思路去想，本来今年计划开奥运会，奥运会期间估计本来也就可能要停播两周，所以如果这次只停一个月的话实质影响应该还是有限的。
+
+
+
+现在的关键还是尽快抑制住疫情吧，否则的话不光涉及到停播的问题，还涉及到其他现在仍然正常工作的staff的风险问题。
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1919#       发表于 2020-4-20 11:48
+
+
+
+
+问题是日本看不到控制住疫情的希望……
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1920#       发表于 2020-4-20 13:53
+
+
+
+
+太悲剧了
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1921#       发表于 2020-4-20 16:25
+
+
+
+
+严重应该不会特别严重吧，应该不会到美国意大利的地步。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">诶，希望天佑日本
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1922#       发表于 2020-4-20 16:33
+
+
+
+
+mam
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1923#       发表于 2020-4-20 16:34
+
+
+
+
+难得今年Q娃的剧情一直都很稳，居然出问题的是社会大环境……
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  leghorn00  
+##### 1924#       发表于 2020-4-20 16:49
+
+
+
+
+日本本土疫情是一方面，Q娃还有大量东映菲律宾的外包作画，每年还有几回整集外包，现在菲律宾是东南亚疫情最严重的国家之一。
+
+
+
+
+
+                                   

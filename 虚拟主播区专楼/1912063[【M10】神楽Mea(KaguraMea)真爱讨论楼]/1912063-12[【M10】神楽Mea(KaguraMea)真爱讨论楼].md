@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 22:01** 
+> ## **本文件最后更新于2020-04-20 18:02** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_woWeZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_iU2ZU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_Rjb8n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_lsWjJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -18749,4 +18749,2669 @@ CY系就白嫖党送得多一点咯（）
 
 
 
-              
+
+
+-----
+
+####  WhiteAvalon  
+##### 17555#       发表于 2020-4-19 22:04
+
+
+
+
+希望能快点 我们这些没看的只能被吊胃口<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 17556#       发表于 2020-4-19 22:05
+
+
+
+
+先激光点精采部分当预告片也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17557#       发表于 2020-4-19 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不要再抬高期望了，你们这是在种树苗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17558#       发表于 2020-4-19 22:38
+
+
+
+
+我出发了
+<img src="https://p.sda1.dev/0/92b69d9c06c1125c253e18e035ab774c/IMG_55710FBB296EFA11777926110BB38200.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+指把弹幕和视频压到一起准备发上来
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 诡秘侍者| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17559#       发表于 2020-4-19 22:50
+
+
+
+
+我艹，直播时没看正在看录播，我单知道开头她出了俩三星<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17560#       发表于 2020-4-19 22:52
+
+
+
+
+是中间一个（重复的），下播前一个（new）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17561#       发表于 2020-4-19 22:53
+
+
+
+ 本帖最后由 JustW 于 2020-4-19 22:55 编辑 
+
+开播前有狼三星，然后抽了半天都没有三星，最后好不容易抽出三星，揭开一看还是狼。只能看了半天动画（光速学会跳过），攒石头又抽，下播前最后一发抽出充电宝，光荣下播。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17562#       发表于 2020-4-19 22:56
+
+
+
+
+熟练的跳剧情xswl
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17563#       发表于 2020-4-19 22:58
+
+
+
+
+没有大亏内容的东西官组没动力激光吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17564#       发表于 2020-4-19 23:02
+
+
+
+
+别的我也没什么感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17565#       发表于 2020-4-19 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">以咩姐这作息不会今天还半夜播吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17566#       发表于 2020-4-19 23:21
+
+
+
+
+现在大概率是没睡，播不播主要看她有没有灵感了（
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17567#       发表于 2020-4-19 23:21
+
+
+
+
+她工商的时候好像是刚睡醒，这会儿肯定精神着，播不播全看她够不够残忍了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17568#       发表于 2020-4-19 23:24
+
+
+
+
+以前的单场翻页n段式集锦没了是我一直的痛<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17569#       发表于 2020-4-19 23:41
+
+
+
+
+说起来昨天这张蛮不错的<img src="https://p.sda1.dev/0/d2cf0b60895632b00d8edad2ca3d122c/2a875afb52f1d32d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 17570#       发表于 2020-4-20 00:12
+
+
+
+
+这招友条件随便挑个全肯定gachi就能胜任了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17571#       发表于 2020-4-20 00:13
+
+
+
+
+新推
+rp的全肯定gachi可以吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17572#       发表于 2020-4-20 00:14
+
+
+
+
+我当不了全肯定民， 没戏了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17573#       发表于 2020-4-20 00:45
+
+
+
+
+现在当她的朋友已经没有工资了吗，明明当初她还要交朋友费来着
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17574#       发表于 2020-4-20 13:45
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 14:32 编辑 
+
+　　　　　。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17575#       发表于 2020-4-20 13:55
+
+
+
+
+到底啥叫贴贴民啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17576#       发表于 2020-4-20 13:58
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 14:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47143245&amp;ptid=1912063" target="_blank">暗心舞踏 发表于 2020-4-20 13:55</a>
+到底啥叫贴贴民啊</blockquote>
+哦， 我将他归类为贴贴民是因为他特意转发meaquafanart而没转单人的
+
+我也转过meaqua fanart可是我是并没有特意转meaqua或者避开
+
+(不过那个人只转了那个也许是因为认识画画的人， 他关注了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 17577#       发表于 2020-4-20 14:05
+
+
+
+
+害，贴贴民有什么不好的，要控制也只能在早期控制，现在覆水难收了。
+
+事到如今，不如退一步，趁着贴贴民还没醒，让他们多做点工作，毕竟能干活儿的也就剩他们了。
+
+谁叫18年，19年初的时候，大火儿没想到今天呢？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17578#       发表于 2020-4-20 14:08
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 14:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47143327&amp;ptid=1912063" target="_blank">yanghaozhend 发表于 2020-4-20 14:05</a>
+
+害，贴贴民有什么不好的，要控制也只能在早期控制，现在覆水难收了。
+
+事到如今，不如退一步，趁着贴贴民还 ...</blockquote>
+其实， 我觉得会日语的多萌萌人， 而萌萌人多贴贴民是必然的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+所以其实无解，你意识到也无用，  这个圈子就是这种结构<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我只能祈祷：
+
+1. 萌萌人别掺和面向群众的工作
+
+2. 那些贴贴民是偏向mea的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17579#       发表于 2020-4-20 14:08
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-20 14:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你不会是说那个龙了单人歌回的吧，看图有偏好很正常吧，喜欢就转呗
+
+我不觉得喜欢贴贴内容和喜欢v本身有什么矛盾的
+
+划个贴贴民和单推人的框把所有人分类往里塞，然后觉得贴贴民就不应该喜欢单人内容，单推人就不应该喜欢贴贴内容，在我看来都挺nt的
+
+大部分人其实喜欢什么就是喜欢什么，懒得拿身份认同捆绑自己
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17580#       发表于 2020-4-20 14:10
+
+
+
+
+萌萌人必不会偏向你咩姐
+别发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17581#       发表于 2020-4-20 14:11
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 14:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47143361&amp;ptid=1912063" target="_blank">暗心舞踏 发表于 2020-4-20 14:08</a>
+
+你不会是说那个龙了单人歌回的吧，看图有偏好很正常吧，喜欢就转呗
+
+我不觉得喜欢贴贴内容和喜欢v本 ...</blockquote>
+的确是不一定， 也许只是某些挂件人让我长了梁木吧， 我的锅 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然是不一定， 固有印象与偏见不一定符合现实， 可是在发生了这么多事情后在我眼中贴贴民的形象早已坠毁， 无法让我信任不是非常合理吗？
+
+
+虽然喜好无法百分百准确预测那个人到底怎么样， 可是过去的经验足以影响我对那个人是否偏爱贴贴而不喜欢单人的概率的判断。不过考虑到他龙了单人歌回， 应该还行， 那是我梁木+ptsd了
+
+
+看到贴贴成分就产生警戒反应， 思维短路， 也是厉害了（自嘲
+
+
+大家引以为戒， 不要像我一样成为被ptsd影响判断的受害者
+
+
+这就是我说的， 让思维被局限啊， 我只看到了他转贴贴图， 却忘了他龙单人歌回（自嘲
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 17582#       发表于 2020-4-20 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47143355&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-20 14:08</a>
+
+其实， 我觉得会日语的多萌萌人， 而萌萌人多贴贴民是必然的
+
+
+所以其实无解，你意识到也无用，  这 ...</blockquote>
+贴贴民偏向mea是不太可能了
+
+贴贴民不做面向群众的工作...也有点难
+
+
+前两天找了个游戏固定队，玩了几天磨合的挺好了，突然进来个vtb观众，猛发vtb表情包，群里其他人也加入进去，我就退了。
+
+萌萌人永远是最活跃的，要么放低期望，要么干脆眼不见心不烦
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17583#       发表于 2020-4-20 14:23
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 14:24 编辑 
+
+事实证明在论坛显露自己的愚蠢是有好处的 - 有人会指出你的愚蠢之处
+
+
+（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然， 我觉得在nga应该是会打起来， 所以还是看人
+
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17584#       发表于 2020-4-20 14:27
+
+
+
+
+你们又在讨论管人粉了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17585#       发表于 2020-4-20 14:29
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 14:32 编辑 
+
+哦， 抱歉， 我回去做信息论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没了， 没了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17586#       发表于 2020-4-20 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47143550&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-04-20 14:29:22</a>
+哦， 抱歉， 我回去做信息论了</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">先把自己拉的屎铲走，留在楼里恶心人？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17587#       发表于 2020-4-20 14:38
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-20 15:07 编辑 
+
+很多人反贴贴人其实只是毒唯
+
+偏mea的贴贴人或许不那么招你们烦
+
+
+syl：
+
+认真讨论都能当成钓鱼。
+
+算了，爱当成钓鱼就钓鱼吧，反正这是s1。
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17588#       发表于 2020-4-20 14:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47143627&amp;ptid=1912063" target="_blank">坚果收藏家 发表于 2020-4-20 14:38</a>
+很多人反贴贴人其实只是毒唯
+
+偏mea的贴贴人或许不那么招你们烦</blockquote>
+请不要用不存在的东西当论据<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17589#       发表于 2020-4-20 14:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">装纯良钓鱼的在V综钓完怎么又跑回m楼钓了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17590#       发表于 2020-4-20 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17591#       发表于 2020-4-20 15:10
+
+
+
+
+真就见不得一点贴贴要素啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17592#       发表于 2020-4-20 15:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看个海盗肉还需要查成分吗，这也太累了吧
+
+
+偏mea的贴贴民又不是没有，只不过很少出来发声而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+话说饭盒mc换世界了估计可以等一波直播了，不知道我造的东西会不会在直播中展示出来<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17593#       发表于 2020-4-20 15:23
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 15:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144064&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-20 15:19</a>
+
+看个海盗肉还需要查成分吗，这也太累了吧
+
+
+偏mea的贴贴民又不是没有，只不过很少出来发声而已[f:067 ...</blockquote>
+因为那个人被邀请去官组审核群所以我才看一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+楼下你在说什么啊， 听不懂。
+
+
+我是希望新神龙不是那种贴贴内容特别积极的人
+
+
+
+楼下的， 我也没说多加一个烤肉人不好， 多出劳动力比没多好。 我是希望（终于）能有一个对单人内容也能积极， 能做到时效性的人， 那样对我来说更好。对贴贴积极的人已经太多了， 都已经边际收益递减了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17594#       发表于 2020-4-20 15:25
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-20 15:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144112&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-20 15:23</a>
+因为那个人被邀请去官组审核群所以我才看一下啊</blockquote>
+我觉得关注了夸的人不能关注mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得怎么样
+
+同时关注了两边十有八九是贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定就要变成祸害，为了mea好还是不要来关注的好
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17595#       发表于 2020-4-20 15:27
+
+
+
+
+所以就是毒唯思想啊，这回我确实没钓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17596#       发表于 2020-4-20 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看一下就看一下咯，至少还是愿意龙2个长熟肉的烤肉人，有这份干活的心思在总归是好事儿
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 17597#       发表于 2020-4-20 15:32
+
+
+
+
+虽然在这里提有些不太合适，但如果想到大亏组里也有应该一定比例的贴贴人的话会不会平衡一些？
+（这里贴贴是泛指，某些cp洁癖不包括）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17598#       发表于 2020-4-20 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144211&amp;ptid=1912063" target="_blank">noaki 发表于 2020-4-20 15:32</a>
+虽然在这里提有些不太合适，但如果想到大亏组里也有应该一定比例的贴贴人的话会不会平衡一些？
+（这里贴贴 ...</blockquote>
+平衡啥啊，只要能反贴贴，黑暗贴贴人就算搞mea都无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和大亏组有什么关系吗
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17599#       发表于 2020-4-20 15:35
+
+
+
+ 本帖最后由 yuandi20 于 2020-4-20 15:39 编辑 
+
+mea粉 贴贴人 人性
+
+
+这就是v圈的不可能三角
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 17600#       发表于 2020-4-20 15:37
+
+
+
+
+怎么魔法使害搁这装疯卖傻的，那个人不是就在工作群里吗，PCR的肉他还帮忙翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17601#       发表于 2020-4-20 15:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144268&amp;ptid=1912063" target="_blank">ReinH 发表于 2020-4-20 15:37</a>
+
+怎么魔法使害搁这装疯卖傻的，那个人不是就在工作群里吗，PCR的肉他还帮忙翻译了 ...</blockquote>
+滚<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17602#       发表于 2020-4-20 15:42
+
+
+
+
+是左还是右不是个问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17603#       发表于 2020-4-20 15:45
+
+
+
+
+怎么了怎么了怎么了color🐴🐴🐴revolution要开始了🐴
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 17604#       发表于 2020-4-20 15:48
+
+
+
+
+草，讨论一圈合着都是你们同好会自己人还行
+
+想起那些把你们全组打成毒唯的贴贴粉头了，看起来以偏概全扣帽子的弱智事儿拿来团建养蛊真的很好用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 17605#       发表于 2020-4-20 15:50
+
+
+
+
+在乎那么多效益干嘛呢？都这样了。
+
+多一个贴贴，多一个“毒唯”，能有多大区别。
+
+环境都已经定下来了，现在时间是2020年4月20日，难不成还能有什么变化吗？
+
+爱怎么样怎么样吧。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17606#       发表于 2020-4-20 15:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">稍微乐了2秒钟，溜了溜了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17607#       发表于 2020-4-20 15:51
+
+
+
+
+这么多楼我还以为播了
+讨论的什么jb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17608#       发表于 2020-4-20 15:53
+
+
+
+
+et你在看吗，之前我说一看到贴贴就高潮的黑暗贴贴人还不如贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在能理解一下了吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|他会说是我弱智|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 17609#       发表于 2020-4-20 15:56
+
+
+
+
+为mea和或者mea观众纠结就是自讨苦吃，因为没什么太大意义
+
+就好像那个比较经典的比喻：
+
+小时候有一盒蜡笔，每次收拾的时候都按照颜色一根根排序好放回去，直到某一天它们撒在了地上，乱七八糟。
+
+
+“爱tm怎么样怎么样吧，我不在乎了”
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|是这个感觉|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17610#       发表于 2020-4-20 15:58
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-20 16:11 编辑 
+
+暗黑贴贴人成天关注管人粉不如直接去解决问题源头，木口解散全靠你们了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17611#       发表于 2020-4-20 16:15
+
+
+
+
+同好会什么时候可以食杀官组啊
+
+
+警惕恶龙的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+至于各组成分还需要讨论吗？咩组双推人大权在握，颇有众生平等之意，二创组现在应该是crew话语权更重了，mix和画师都能看出来，夸组不看不了解<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17612#       发表于 2020-4-20 16:16
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-20 16:19 编辑 
+
+亚文化也就图一乐，当真了陷进去反而变成苦修了，所以萌萌人才是最正常的观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌萌人，你好强大！
+
+这辈子我已经被咩姐套牢出不去了，如果有来生的话我愿意当一个啥都不用管只懂玩梗的DD<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|有来生神经病才看管人|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17613#       发表于 2020-4-20 16:20
+
+
+
+
+只要不是组里贴贴人突然嗷的一声疯了给你咩姐搞个大新闻，就没什么事<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17614#       发表于 2020-4-20 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144687&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-20 16:20</a>
+只要不是组里贴贴人突然嗷的一声疯了给你咩姐搞个大新闻，就没什么事 ...</blockquote>
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在看来明显是黑暗贴贴人嗷一声疯了搞大新闻的更多吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17615#       发表于 2020-4-20 16:21
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 16:24 编辑 
+
+与你相遇， 误了一生（<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+暗黑贴贴人没有影响力的， 只能论坛bb
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17616#       发表于 2020-4-20 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144703&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 16:21</a>
+不是现在看来明显是黑暗贴贴人嗷一声疯了搞大新闻的更多吧</blockquote>
+能量越大炸的越大啊，粉头炸了能跟粉丝炸了比吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17617#       发表于 2020-4-20 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144723&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-20 16:23</a>
+能量越大炸的越大啊，粉头炸了能跟粉丝炸了比吗</blockquote>
+我看不少贴贴人是没活了就自己不看了/退坑了（然后被黑暗贴贴人挂出来婊）
+黑暗贴贴人里疯了的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17618#       发表于 2020-4-20 16:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舟游都能从年轻人的第一款手游变成老年人的最后一款手游，愿所有人都能佛系过完管人粉余生
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17619#       发表于 2020-4-20 16:31
+
+
+
+
+希望晚上有歌回<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17620#       发表于 2020-4-20 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144761&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 16:26</a>
+我看不少贴贴人是没活了就自己不看了/退坑了（然后被黑暗贴贴人挂出来婊）
+黑暗贴贴人里疯了的么 ...</blockquote>
+如果每个贴贴人都能和平退坑，就不会有暗黑贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+打住了，不讨论这弱智问题了，我推黄油呢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17621#       发表于 2020-4-20 16:34
+
+
+
+
+对了想起这个过审了
+[【带直播弹幕】完全不懂中文的我竟然会玩公主连结国服？](https://b23.tv/BV1Li4y1t7wm)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17622#       发表于 2020-4-20 16:37
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 16:26
+我看不少贴贴人是没活了就自己不看了/退坑了（然后被黑暗贴贴人挂出来婊）
+
+黑暗贴贴人里疯了的么 ...</blockquote>
+这不是那套迫真和平退坑理论？他们去年年初群体里不少人的作妖又选择性无视了？反正把咩姐国内粉丝环境糟蹋成这样拍拍屁股直接走人美名其曰和平退坑，更何况还有一堆反踩的呢。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17623#       发表于 2020-4-20 16:40
+
+
+
+
+我想了想比起贴贴人说不定他们meaanti的身份更重要点
+
+
+anti多也是不争的事实
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17624#       发表于 2020-4-20 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144886&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 16:37</a>
+这不是那套迫真和平退坑理论？他们去年年初群体里不少人的作妖又选择性无视了？反正把咩姐国内粉丝环境糟 ...</blockquote>
+整的跟黑暗贴贴人作妖少了一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">各种弱智看多了之后我发现，作妖只是因为自己是个弱智而已
+说粉丝环境？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一遇到贴贴元素就高潮的到底是什么人，你再看看？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17625#       发表于 2020-4-20 16:42
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 16:34
+对了想起这个过审了
+
+【带直播弹幕】完全不懂中文的我竟然会玩公主连结国服？ ...</blockquote>
+还是对昨天打卡下班出三星这件事蛮震惊的，一度怀疑是录的实况
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17626#       发表于 2020-4-20 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144455&amp;ptid=1912063" target="_blank">yanghaozhend 发表于 2020-4-20 15:56</a>
+为mea和或者mea观众纠结就是自讨苦吃，因为没什么太大意义
+
+就好像那个比较经典的比喻：
+
+小时候有一盒蜡笔， ...</blockquote>
+老哥终于悟了
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 17627#       发表于 2020-4-20 16:46
+
+
+
+
+mea不装纯，不装可怜，不当被害役，拿什么让萌萌人偏mea
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17628#       发表于 2020-4-20 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不至于
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17629#       发表于 2020-4-20 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144948&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 16:42</a>
+还是对昨天打卡下班出三星这件事蛮震惊的，一度怀疑是录的实况</blockquote>
+昨天完美的体现了手游玩家的心态（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17630#       发表于 2020-4-20 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144948&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 16:42</a>
+还是对昨天打卡下班出三星这件事蛮震惊的，一度怀疑是录的实况</blockquote>
+前半段要是没调伽玛值那段就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17631#       发表于 2020-4-20 16:56
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 16:42
+整的跟黑暗贴贴人作妖少了一样各种弱智看多了之后我发现，作妖只是因为自己是个弱智而已
+
+说粉丝环 ...</blockquote>
+上面she老哥的蜡笔论我觉得说的挺好的，反正也没人爱惜这些蜡笔，乱整就乱整，贴贴人先作的那么多次就当无视了，当当理客中一句弱智两边各打两巴掌，咩姐单推真是一点人权都没有呢
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17632#       发表于 2020-4-20 16:59
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 17:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47144947&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 16:42</a>
+
+整的跟黑暗贴贴人作妖少了一样各种弱智看多了之后我发现，作妖只是因为自己是个弱智而已
+
+说粉丝环 ...</blockquote>
+虽然这是个很弱智的话题， 不过我选择接
+
+
+贴贴民没有理由偏激， 因为从粉丝构成上占据优势。 官组成员大多贴贴民， 官组偏向性行为也是偏向meaqua。 他们没有理由像单推一样感到愤怒和不平。 
+
+
+你的说法就像是在对比一个拥有全面优势和一个因为势力弱小， 没有安全感而偏激的群体
+
+弱小的群体不偏激难道还能是强大的群体偏激了吗？
+
+
+
+穷人无法像有钱人那样讲究风度， 难道是穷人的错吗？ 
+
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17633#       发表于 2020-4-20 16:59
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 16:52
+前半段要是没调伽玛值那段就完美了</blockquote>
+昨天她是苹果播的吗？她上次播黑白棋的时候好像没啥问题
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17634#       发表于 2020-4-20 17:01
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-20 17:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145094&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 16:56</a>
+上面she老哥的蜡笔论我觉得说的挺好的，反正也没人爱惜这些蜡笔，乱整就乱整，贴贴人先作的那么多次就当 ...</blockquote>
+弱智了就喷有什么不对吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是说你在意的是，和贴贴人所对立的“咩姐单推”被喷了
+这真的是咩姐单推吗？叫做黑暗贴贴人单推比较好吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正因为这些就知道研究成分的弱智，我才说黑暗贴贴人推的早就不是mea了，别骗自己了，清醒点不好吗
+
+好像这话也能用来回复上面的魔法使，一并看了吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17635#       发表于 2020-4-20 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145162&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 17:01</a>
+
+弱智了就喷有什么不对吗还是说你在意的是，和贴贴人所对立的“咩姐单推”被喷了
+
+这真的是咩姐单推 ...</blockquote>
+我没说单推的弱智不是弱智， 只是告诉你单推偏激的理由
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17636#       发表于 2020-4-20 17:04
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 17:01
+弱智了就喷有什么不对吗还是说你在意的是，和贴贴人所对立的“咩姐单推”被喷了
+
+这真的是咩姐单推 ...</blockquote>
+去年各大社区的讨论环境你比我更清楚，暗黑贴贴人不都是被逼出来的？脱离环境谈问题，理客中有一套的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17637#       发表于 2020-4-20 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145205&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-20 17:04</a>
+我没说单推的弱智不是弱智， 只是告诉你单推偏激的理由</blockquote>
+我也没说单推是弱智<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">我说的是
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17638#       发表于 2020-4-20 17:05
+
+
+
+
+所以这个话题怎么来的？
+一个烤过单人歌回的神龙转了张贴贴图，所以必须给他划清成分，看他是贴贴人还是单推人，这比什么都重要。
+那么现在划清了吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17639#       发表于 2020-4-20 17:05
+
+
+
+
+不研究成分了，谁把公主连接抽卡uc给我交了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17640#       发表于 2020-4-20 17:06
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145212&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 17:05</a>
+
+我也没说单推是弱智我说的是</blockquote>
+ok， 反meaqua的人的弱智也是弱智， 可是他们和meaqua民比起来比较偏激是因为他们占据弱势
+
+如果不是上面那个说什么贴贴民搞事比较少我才不继续这个弱智话题。
+
+
+在野党不搞事难道还要执政党搞事吗
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17641#       发表于 2020-4-20 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145229&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-20 17:06</a>
+ok， 反meaqua的人的弱智也是弱智， 可是他们和meaqua民比起来比较偏激是因为他们占据弱势 ...</blockquote>
+占据弱势就是犯弱智的理由吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这话也很上面那句一块回了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17642#       发表于 2020-4-20 17:09
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 17:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145255&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 17:08</a>
+
+占据弱势就是犯弱智的理由吗</blockquote>
+不是理由， 只是自然规律。
+
+
+我想说的是， 贴贴民少搞事不是因为喜欢贴贴内容的人素质高， 而是情况使然。大家对调一下他们也会偏激。
+
+
+我没打算正当化什么， 找到一个现象发生的原因并不代表是要正当化它。
+
+你陷入了谬论 - Confusing an Explanation with an Excuse。 我只打算说它因为这个原因发生。 而没打算说因为有原因所以就正当。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17643#       发表于 2020-4-20 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145206&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 17:04</a>
+去年各大社区的讨论环境你比我更清楚，暗黑贴贴人不都是被逼出来的？脱离环境谈问题，理客中有一套的 ...</blockquote>
+是啊黑暗贴贴人当年多苦多痛，所以他们犯弱智时大家一起来相互理解吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17644#       发表于 2020-4-20 17:10
+
+
+
+
+你们聊这个聊了好几页我是没想到的，今天kpi还没到吗
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 17645#       发表于 2020-4-20 17:11
+
+
+
+
+UC已经在路上了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17646#       发表于 2020-4-20 17:12
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 17:10
+是啊黑暗贴贴人当年多苦多痛，所以他们犯弱智时大家一起来相互理解吧 ...</blockquote>
+弱智该喷是要喷，我一直注重提的讨论环境你就当听不懂呗
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17647#       发表于 2020-4-20 17:13
+
+
+
+
+暗黑贴贴人也有对mea不持粉黑立场的
+
+
+syl：厌倦了纷争那就退坑好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17648#       发表于 2020-4-20 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145273&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-20 17:09</a>
+不是理由， 只是自然规律。
+
+
+我想说的是， 贴贴民少搞事不是因为他们素质高， 而是情况使然。大家对调一下 ...</blockquote>
+前面我一直被骂理客中，我觉得你这才算理客中<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要是你只是想说什么规矩的话就不用回我了，各种粉丝是啥样我自己心里有底
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17649#       发表于 2020-4-20 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145308&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 17:12</a>
+弱智该喷是要喷，我一直注重提的讨论环境你就当听不懂呗</blockquote>
+那我问你，“现在”最影响讨论环境的是什么人
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17650#       发表于 2020-4-20 17:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外面刚发完要自省，转头就来，所以说改不了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17651#       发表于 2020-4-20 17:16
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145357&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-20 17:15</a>
+
+外面刚发完要自省，转头就来，所以说改不了
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+按照我自己的标准， 这回不用自省， 刚才的那个要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+相当于粗心写错答案和不会答案的差别吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 17652#       发表于 2020-4-20 17:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">想讨论外面开楼讨论。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17653#       发表于 2020-4-20 17:18
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-20 17:19 编辑 
+
+现在最影响讨论环境的是那些混沌乐子人，搞得现在圈子很明显开始乱了，那些人危害性能把所有人拉一起秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最近的各种瓜真的感觉很危险
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17654#       发表于 2020-4-20 17:18
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-20 17:14
+那我问你，“现在”最影响讨论环境的是什么人</blockquote>
+不还是“残党”“越共”们么，粉头对讨论环境的影响始终是最大的
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17655#       发表于 2020-4-20 17:19
+
+
+
+
+那我懂了，v8乐子人这是鲁路修的剧本啊
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17656#       发表于 2020-4-20 17:20
+
+
+
+
+感觉双方都在鸡同鸭讲...
+
+一方觉得不论meaqua党还是单推，弱智就是弱智，无论弱智的人对直播内容的偏好如何，对粉丝群体都会造成伤害；而另一方在解释为什么单推看上去更容易出现偏激，强调“偏激”这个现象不是因为直播内容的偏好是“单推”，而是由于双方处境不同造成的，若处境对调，“偏激”现象也会在对面出现，不应产生“因为单推所以偏激”的印象。
+
+
+所以各位可以聊一聊直播内容了吗....
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17657#       发表于 2020-4-20 17:21
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-20 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145406&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 17:18</a>
+不还是“残党”“越共”们么，粉头对讨论环境的影响始终是最大的</blockquote>
+是个屁，我心思平时单人的东西，几十条评论能看到一条“残党”“越共”
+至于黑暗贴贴人的招魂力度，你看看这版那几栋楼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+不在这扯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要有想法随便从啥能找得到我的渠道来找我扯都行
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17658#       发表于 2020-4-20 17:21
+
+
+
+
+外面有的是可以打架的楼，你们非要在这楼里打？？这楼里的人可能很极端，但是楼大部分时候讨论是不极端的。
+
+谁也说服不了谁，谁也代表不了谁。吵了3页了也差不多够了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17659#       发表于 2020-4-20 17:21
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-20 17:18
+现在最影响讨论环境的是那些混沌乐子人，搞得现在圈子很明显开始乱了，那些人危害性能把所有人拉一起秒了[f ...</blockquote>
+是的，vtuber吧没人管理后各路牛鬼蛇神都冒头了。。。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17660#       发表于 2020-4-20 17:22
+
+
+
+
+可她也妹播啊
+
+所以你楼名言该用起来了，不要没话找话，她不动就自己找自己事做不好嘛，非要跑这来打谁都说服不了谁的嘴炮，还搞得楼友看见多了这么多楼以为你麻又突击了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17661#       发表于 2020-4-20 17:23
+
+
+
+
+有哪位好哥哥能分析一下昨天庄司抽到的卡吗？貌似抽到的三星都挺强的？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 小博禹| + 1|咩咩抽走了我的狼，我恨她|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17662#       发表于 2020-4-20 17:25
+
+
+
+
+她就抽到个狼和笑脸..有啥好分析的
+等fes或者送十连吧，不过我也不觉得她会玩
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 17663#       发表于 2020-4-20 17:26
+
+
+
+
+受老玩家影响，我只知道狼是人权卡，初始没抽到就血亏。
+
+所以mea应该挺赚的，可惜她不会玩下去了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17664#       发表于 2020-4-20 17:26
+
+
+
+
+小狼唯一指定人权，那群攻略说的好像没有这卡你这游戏就白玩了一样。不过我反正懒得刷初始了，谁爱刷谁刷吧，玩个游戏事这么多
+
+咲恋还行吧，充电宝很有用的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17665#       发表于 2020-4-20 17:27
+
+
+
+
+这倒是，估计也就只播工商这一次
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17666#       发表于 2020-4-20 17:28
+
+
+
+
+说起直播，我想起在推上看到不少回有人说mea歌回不留档很可惜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一直在想能不能把mea歌回档整个传到404上
+或者要是怕撞了会ban，就加个遮罩之类的再传
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17667#       发表于 2020-4-20 17:28
+
+
+
+
+昨天手游工商有点意思的。抽卡吃瘪。
+可惜最后出了彩不是傻逼游戏下播
+还是吃瘪有意思啊
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17668#       发表于 2020-4-20 17:29
+
+
+
+ 本帖最后由 framita 于 2020-4-20 17:30 编辑 
+
+Pcr人权很重要，以后至少得把511和nnk抽到，特别nnk出来前511对于新人铁人权，出来后也可以不同队
+
+咲恋强的是泳装那个 也得抽，而且跟着一堆泳装限定。春田也重要。再之后也要春黑和新版吃货。反正这游戏要么玩久点攒井要么氪点，然后等送每日十连白嫖。她肯定没耐心玩下去。不过这游戏好的地方在于扫荡省时间
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17669#       发表于 2020-4-20 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145560&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 17:28</a>
+
+说起直播，我想起在推上看到不少回有人说mea歌回不留档很可惜一直在想能不能把mea歌回档整个传到404 ...</blockquote>
+之前有这么干的她特地发推让那个人撤了来着，404判定重复内容可不知道你这是给她留档，传完整直播很危险的
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17670#       发表于 2020-4-20 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145560&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 17:28</a>
+说起直播，我想起在推上看到不少回有人说mea歌回不留档很可惜一直在想能不能把mea歌回档整个传到404 ...</blockquote>
+直接b站链接。鬼佬都会去b站找录播了。。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17671#       发表于 2020-4-20 17:30
+
+
+
+
+她自己说过不要传的，别想了，除非你去问她得到其他答案。但是我不建议去问，应该不会有任何改变，不如宣传b这边的歌回存档链接。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17672#       发表于 2020-4-20 17:31
+
+
+
+
+听说怪物弹珠还挺肝的。。。咩姐目前已知一直在玩的手游就这个吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17673#       发表于 2020-4-20 17:31
+
+
+
+
+直接发b站链接会不会安全一点...要是怕日本粉丝不知道怎么操作，就再附上一个操作指南...我是已经被404的各种骚操作搞出PTSD了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17674#       发表于 2020-4-20 17:31
+
+
+
+
+工商回刚补到抽出+50，节目效果太好了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 17675#       发表于 2020-4-20 17:32
+
+
+
+
+说到pcr，刚刚看到的pjjc攻防战
+
+<img src="https://p.sda1.dev/0/6fc16db86c163b5bb8b7e615c3d9c2fd/IMG_072901974C3275D277391A0E407ABC64.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17676#       发表于 2020-4-20 17:32
+
+
+
+
+真要搬建议搬加工过的，比如加了字幕或者换了画面的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17677#       发表于 2020-4-20 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145625&amp;ptid=1912063" target="_blank">草牛 发表于 2020-4-20 17:31</a>
+工商回刚补到抽出+50，节目效果太好了吧</blockquote>
+那里期待了9个牌最后重复了一发把我笑的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+现在给人发链接我都是发b的，我想的就是加个比较明显的标志，例如“非公式”这种，不知道这样能不能ok
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17678#       发表于 2020-4-20 17:35
+
+
+
+
+404那群做新番reaction的基本都是变色+镜像+遮罩只留下面条字幕，就这还有中招的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|那以后还是发b站链接了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17679#       发表于 2020-4-20 17:35
+
+
+
+
+你楼有没有日语大手子在推上发一个“如何找到mea的b站直播间和各种录像”的日语操作指南啊，我给发指南的好哥哥们加鹅
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17680#       发表于 2020-4-20 17:35
+
+
+
+
+换画面？你咩姐歌回串烧那种形式就行吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17681#       发表于 2020-4-20 17:37
+
+
+
+
+可憋bcr了，咱快200抽一了个重复的，恶心吐了，现在0钻了都。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17682#       发表于 2020-4-20 17:41
+
+
+
+
+pcr本来看梗和宣传动画挺想试试，但一看游戏画面感觉太油腻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">遭不住，就没入坑
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17683#       发表于 2020-4-20 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145709&amp;ptid=1912063" target="_blank">Cla0221 发表于 2020-4-20 17:37</a>
+可憋bcr了，咱快200抽一了个重复的，恶心吐了，现在0钻了都。</blockquote>
+其实cy的游戏我都建议等fes/转盘过后买初始，便宜又效果很好
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17684#       发表于 2020-4-20 17:42
+
+
+
+
+昨天下了pcr试了一下，目前抽完邮箱里送的所有钻后，还是只有初始的那个三星初音....顿时觉得庄司的运气还是不错的...
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17685#       发表于 2020-4-20 17:42
+
+
+
+
+别玩bcy了，来玩邦邦吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17686#       发表于 2020-4-20 17:43
+
+
+
+ 本帖最后由 呓亘 于 2020-4-20 17:45 编辑 
+
+不知道为啥，一直觉得庄司会喜欢音游，并且感觉她会对音游比较上手。我啥时候能看你咩姐播一回muse dash啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17687#       发表于 2020-4-20 17:44
+
+
+
+ 本帖最后由 离心 于 2020-4-20 17:49 编辑 
+
+bsyl，自从知道mea喜欢弦卷心之后她就是我异父异母的兄弟了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17688#       发表于 2020-4-20 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145406&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-20 17:18</a>
+不还是“残党”“越共”们么，粉头对讨论环境的影响始终是最大的</blockquote>
+去年那些贴贴坟头基本都退坑了吧，抓着尸体输出有什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17689#       发表于 2020-4-20 17:48
+
+
+
+
+她好几次想播osu来着吧，可惜号好像上不去
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17690#       发表于 2020-4-20 17:50
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-20 17:53 编辑 
+
+之前还有过osub限卫星来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忘了因为啥坠毁了
+
+
+
+
+
+          
