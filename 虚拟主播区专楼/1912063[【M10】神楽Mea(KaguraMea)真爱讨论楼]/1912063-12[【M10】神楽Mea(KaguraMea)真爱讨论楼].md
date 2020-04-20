@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-20 22:02** 
+> ## **本文件最后更新于2020-04-21 00:01** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_fak3u" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_QhvEh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_aopp3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_GxbW6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -21591,14 +21591,10 @@ bsyl，自从知道mea喜欢弦卷心之后她就是我异父异母的兄弟了<
 
 
 
+ 本帖最后由 noaki 于 2020-4-20 23:38 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47146336&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-20 18:34</a>
 你翻他回复，回回都在扯你mea姐和774性爱呢，是个钓鱼的没必要理他</blockquote>
-钓了一下午的鱼了（指mc）一看那位还是啥也没憋出来， 估计是得不到几位''尸体''老朋友的下落了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-可惜了，列表里的''残党头子''并没有减少。
-
-
-他们在那部分粉丝中占的影响力大不大不知道，但他们在粉丝群中建立的''公国''倒是挺大。
-按影响力看来；比起暗黑贴贴人在一个鸟不拉屎论坛里弱智，倒也比在几百个人的q群和b博里弱智要好得多吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+本楼无关消息，已编辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -21618,6 +21614,25 @@ bsyl，自从知道mea喜欢弦卷心之后她就是我异父异母的兄弟了<
  ...</blockquote>
 你这第二段放去年说还挺对<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">然而上回meaqua联动可是黑暗贴贴人在哪都有拉屎的
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|那收回前言，这俩边都是一样的弱智.|
+
+
+
+查看全部评分
 
 
 
@@ -21952,9 +21967,40 @@ afe2b60a-3b26-407f-832e-81b0487d27b6.jpg
 
 
 
- 本帖最后由 Mr.shelter 于 2020-4-20 22:00 编辑 
+ 本帖最后由 Mr.shelter 于 2020-4-20 22:15 编辑 
 
-这张我也翻到了，发图的人感觉是麻的现实好友，所以这人时麻的可能性挺大的（个人猜测，不承担任何责任）编辑，这兇上不写着马自立吗......
+这张我也翻到了，发图的人感觉是麻的现实好友，所以这人时麻的可能性挺大的（个人猜测，不承担任何责任）——编辑，这兇上不写着马自立吗......——再编辑，应该就是本人了吧
+
+
+
+
+
+
+
+93a4adbe628f73514b4bc6e58820c93.jpg
+(71.73 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-20 22:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/20/221512ttjsmmmtf4xggglg.jpg" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -21997,4 +22043,1081 @@ afe2b60a-3b26-407f-832e-81b0487d27b6.jpg
 
 
 
-         
+
+
+-----
+
+####  离心  
+##### 17722#       发表于 2020-4-20 22:04
+
+
+
+
+单车口罩不是说不是麻吗？目前可信度最高的就是bs的那张后台自拍了吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17723#       发表于 2020-4-20 22:04
+
+
+
+ 本帖最后由 惑星 于 2020-4-20 22:05 编辑 
+
+难道不是钢板那张最可信吗
+bs后台的可信度高，但是胸太大了，不对劲
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17724#       发表于 2020-4-20 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148230&amp;ptid=1912063" target="_blank">Mr.shelter 发表于 2020-4-20 22:00</a>
+
+惊了有图吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202004/20/220956egwllobqgxplvlll.jpg" referrerpolicy="no-referrer">
+
+
+<strong>tTyIx96DUQ5Ydna.jpg</strong> (55.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-20 22:09 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是这个
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17725#       发表于 2020-4-20 22:11
+
+
+
+
+？所以上面的老哥麻烦上图啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17726#       发表于 2020-4-20 22:12
+
+
+
+
+等小麻ddd手飘在胸上面你们就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17727#       发表于 2020-4-20 22:13
+
+
+
+
+手漂在胸上 --》指肥胖
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17728#       发表于 2020-4-20 22:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个手插在腰上浮空
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17729#       发表于 2020-4-20 22:18
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-4-20 22:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148316&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-20 22:10</a>
+
+就是这个</blockquote>
+所以这发色不是石锤了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl（顺便再蹲一个后台的照片）
+
+
+zsyl 等一个ddd坐地上浮空<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17730#       发表于 2020-4-20 22:21
+
+
+
+
+发色说实话能锤的程度也就那样，又不是只有她会做这种发色，尤其是樱花妹
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17731#       发表于 2020-4-20 22:24
+
+
+
+
+她的皮肤不是应该更黄一点吗（
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17732#       发表于 2020-4-20 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148415&amp;ptid=1912063" target="_blank">Mr.shelter 发表于 2020-4-20 22:18</a>
+
+所以这发色不是石锤了吗为什么会有人说不是她啊（顺便再蹲一个后台的照片）
+
+
+syl 等一个ddd坐地上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发色不能算实锤的啊，这个发色又不是只有她
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17733#       发表于 2020-4-20 22:28
+
+
+
+
+那些脑瘫在黑她的时候这种发色的照片可多了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17734#       发表于 2020-4-20 22:29
+
+
+
+
+学生合照.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17735#       发表于 2020-4-20 22:34
+
+
+
+
+所以还是没有所谓的后台和钢板照啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 港真我一转贴贴讨论帖为挖掘照片鉴赏贴是不是有功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">(
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|有功|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17736#       发表于 2020-4-20 22:41
+
+
+
+
+后台照，钢板的不清楚。主要是因为她在直播时说过自己不骑自行车的（她说的话总是真假参半）所以我认为自行口罩是假的
+
+
+
+
+
+
+d28222cc-8a2e-4584-8a4c-de7884960baa.jpg
+(44.44 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-20 22:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/20/223920ih9yrabsh0dd4xdl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17737#       发表于 2020-4-20 22:42
+
+
+
+
+怕不是运动神经不行骑车要摔
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 17738#       发表于 2020-4-20 22:46
+
+
+
+
+前几天直播她好像提过骑自行车摔跤的事吧 所以自行口罩还是有可能的？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17739#       发表于 2020-4-20 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148639&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-20 22:41</a>
+
+后台照，钢板的不清楚。主要是因为她在直播时说过自己不骑自行车的（她说的话总是真假参半）所以我认为自行 ...</blockquote>
+见鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17740#       发表于 2020-4-20 22:49
+
+
+
+
+等ddd吧看是不是穿模的
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17741#       发表于 2020-4-20 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3D不能说明一切啊，连蝙蝠妹都有穿模的，不仅要看人还要看模
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17742#       发表于 2020-4-20 22:52
+
+
+
+
+今儿是麻图阶段性复习？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17743#       发表于 2020-4-20 22:54
+
+
+
+[https://baike.baidu.com/item/%E9 ... 0%E5%BF%86%E6%B3%95](https://baike.baidu.com/item/%E9%87%8D%E5%A4%8D%E8%AE%B0%E5%BF%86%E6%B3%95)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17744#       发表于 2020-4-20 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148729&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-20 22:52</a>
+
+3D不能说明一切啊，连蝙蝠妹都有穿模的，不仅要看人还要看模</blockquote>
+真正大的人（比如团长）都是反向穿模的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17745#       发表于 2020-4-20 22:56
+
+
+
+
+那张后台照肯定是本人啊，因为后面的勇者yui可以和live返图对得上
+
+
+看live的返图就挺大的但不是很自然而且裙腰带扎太高看着像防pad掉
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17746#       发表于 2020-4-20 22:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/20/225746p53aa55voloca5cl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>214047iq2glg3j6ggpplqq.jpg</strong> (139.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-20 22:57 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/20/225815rz8v0vkpajajr0g3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>214048s3grbrb0kkgl0hkr.jpg</strong> (73.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-20 22:58 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/20/225833izttdzgig69oggsm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>182639ftgzu15glgtark5g.jpg</strong> (34.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-20 22:58 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这三张图片衣服都一样，这总实锤了吧
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17747#       发表于 2020-4-20 22:59
+
+
+
+
+小麻是有的！！！！
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17748#       发表于 2020-4-20 23:00
+
+
+
+
+钢板<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17749#       发表于 2020-4-20 23:01
+
+
+
+
+小麻不是贫乳<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">我的青春结束了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17750#       发表于 2020-4-20 23:02
+
+
+
+
+好！钢板民终于不是一家独大了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17751#       发表于 2020-4-20 23:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/20/230250iqiy8wa804872z2a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>DCVPhD4VoAA22UN.jpg</strong> (66.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-20 23:02 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那再温习一下钢板吧，你们信哪个
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 奇拉奇拉| + 1|永远支持钢板|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17752#       发表于 2020-4-20 23:05
+
+
+
+
+拍摄的问题？啊好烦……mea今天播不播呢？
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 17753#       发表于 2020-4-20 23:05
+
+
+
+
+大概是穿衣显瘦脱衣有肉的类型
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17754#       发表于 2020-4-20 23:05
+
+
+
+
+那当然是都可以
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17755#       发表于 2020-4-20 23:06
+
+
+
+
+草这到底怎么回事，女人是这种构造的吗？而且仔细想想线下的时候麻几岁啊，怎么想都太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17756#       发表于 2020-4-20 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148864&amp;ptid=1912063" target="_blank">Mr.shelter 发表于 2020-4-20 23:06</a>
+
+草这到底怎么回事，女人是这种构造的吗？而且仔细想想线下的时候麻几岁啊，怎么想都太大了吧我不管 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像也就17年吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17757#       发表于 2020-4-20 23:10
+
+
+
+
+就隔几个月而已，又不是吹气球哪能大那么快
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17758#       发表于 2020-4-20 23:11
+
+
+
+
+mea不播，你们已经闲到开始论证她贫乳是不是rp了。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17759#       发表于 2020-4-20 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下次有棉花糖的话旁敲侧击一下pad行情探一下虚实
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17760#       发表于 2020-4-20 23:12
+
+
+
+
+那又要被骂kimo了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17761#       发表于 2020-4-20 23:13
+
+
+
+
+都说不出门了还戴什么pad（
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 17762#       发表于 2020-4-20 23:14
+
+
+
+
+看不透看不透
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17763#       发表于 2020-4-20 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148942&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-20 23:12</a>
+
+那又要被骂kimo了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以rp女粉啊，我开始学习yhm伪装术了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17764#       发表于 2020-4-20 23:14
+
+
+
+
+你想看透什么
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17765#       发表于 2020-4-20 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148956&amp;ptid=1912063" target="_blank">JY要塞 发表于 2020-4-20 23:14</a>
+
+可以rp女粉啊，我开始学习yhm伪装术了</blockquote>
+不亏是你.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17766#       发表于 2020-4-20 23:16
+
+
+
+
+“我是女粉，pad选什么样式的比较好”
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17767#       发表于 2020-4-20 23:17
+
+
+
+
+这也太直了吧，还不如说自己戴的pad不舒服，有什么推荐的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17768#       发表于 2020-4-20 23:17
+
+
+
+
+可信度不够高， 应该拍几张pad的照片
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17769#       发表于 2020-4-20 23:18
+
+
+
+
+PAD给她垫屁股底下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+另，据自述她有时候蹲椅子上直播
+
+
+我不懂，这样膝盖压力不会很大吗
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17770#       发表于 2020-4-20 23:18
+
+
+
+
+“唔，我最近被男朋友嫌弃胸大了”这样行吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17771#       发表于 2020-4-20 23:19
+
+
+
+
+应该一上来说自己是冲国女粉，掩盖自己对yhm一无所知的事实<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 17772#       发表于 2020-4-20 23:21
+
+
+
+
+第一届，女粉rp大赛正式开始<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17773#       发表于 2020-4-20 23:21
+
+
+
+ 本帖最后由 惑星 于 2020-4-20 23:23 编辑 
+
+你楼女粉浓度激增，好起来了
+
+syl，你麻直播的时候嘿咻嘿咻说不定就是在放松膝盖
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17774#       发表于 2020-4-20 23:21
+
+
+
+
+rp大赛可还行溜了溜了，看来没直播了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17775#       发表于 2020-4-20 23:34
+
+
+
+
+翻了半天终于找到这个我去年11月发的图了（感觉这图过几个月就要重新在这楼发一次
+
+<img src="https://img.saraba1st.com/forum/202004/20/233421by58lnymetw5ty6y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1.jpeg</strong> (151.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-20 23:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17776#       发表于 2020-4-20 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47149155&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-04-20 23:34:26</a>
+翻了半天终于找到这个我去年11月发的图了（感觉这图过几个月就要重新在这楼发一次
+
+
+
+ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">谢谢你，重新点燃了希望
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+       
