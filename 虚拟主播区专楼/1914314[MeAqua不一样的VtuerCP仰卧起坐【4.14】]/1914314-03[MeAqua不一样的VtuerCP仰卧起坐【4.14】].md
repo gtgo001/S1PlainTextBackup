@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-18 22:02** 
+> ## **本文件最后更新于2020-04-20 20:02** 
 
 
 
@@ -4954,15 +4954,43 @@ BV号或者关键字来一个秋梨膏</blockquote>
 
 
 
+ 本帖最后由 noaki 于 2020-4-18 22:15 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47127566&amp;ptid=1914314" target="_blank">JustW 发表于 2020-4-18 21:18</a>
+
 贴贴壬不是也拿tamaqua的magnet整过一样的事吗，还把犬山的图抠掉换成咩</blockquote>
 这不一样，因为
 
+
 ''万恶的皆切wishing能不能自动滚蛋''
+
 ''但是现在时代不一样了''
+
 ''皆切是假的''
 
+
 所以情有可原<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+syl 好吧这个呢，
+
+1.因为是别人"亲口"拜托字幕组弄的，意义非凡
+
+2.投入了pv组组员的劳动和心血，直接拿来主义不可取
+
+3.这是被本人所认可的"真物"，两人羁绊的证明，神圣而不可侵犯
+
+4.犬山本人并没有对此明示不满，而且犬山哥是贴贴头子
+
+……
+
+这样的话是否满意？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 
@@ -4984,4 +5012,507 @@ BV号或者关键字来一个秋梨膏</blockquote>
 
 
 
-                                        
+
+
+-----
+
+####  JustW  
+##### 3276#       发表于 2020-4-18 22:37
+
+
+
+<blockquote>noaki 发表于 2020-4-18 21:58
+这不一样，因为
+
+
+''万恶的皆切wishing能不能自动滚蛋''
+</blockquote>
+这不成，himea才是真的，roki可以，magnet爪巴（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3277#       发表于 2020-4-19 15:53
+
+
+
+ 本帖最后由 2014720 于 2020-4-19 16:17 编辑 
+
+414熟肉p1出了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+看完了，ed真好看
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3278#       发表于 2020-4-19 16:00
+
+
+
+
+贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jlzhao218  
+##### 3279#       发表于 2020-4-19 17:37
+
+
+
+
+meaqua是真的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3280#       发表于 2020-4-19 17:58
+
+
+
+
+话说这次怎么不是合作投稿啊，以前这种联动熟肉不都是一个up一个参演吗？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3281#       发表于 2020-4-19 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47134962&amp;ptid=1914314" target="_blank">JustW 发表于 2020-4-19 17:58</a>
+话说这次怎么不是合作投稿啊，以前这种联动熟肉不都是一个up一个参演吗？ ...</blockquote>
+可能要等等吧，那个先行版也是后来才加上参演的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3282#       发表于 2020-4-19 18:02
+
+
+
+
+因为直播间只在一个啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3283#       发表于 2020-4-19 18:05
+
+
+
+
+黑暗一点，两组不仲可以有了
+
+
+syl，粉丝生态那段你咩真的没有在cnbbs里安插内鬼吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3284#       发表于 2020-4-19 18:05
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-19 18:02
+因为直播间只在一个啊</blockquote>
+不不不，要按这个说法大部分联动都不用合作投稿了，而且以前咩组也不是这么操作的。可能打算后加参演吧（）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3285#       发表于 2020-4-19 18:24
+
+
+
+
+不仲！不仲！
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3286#       发表于 2020-4-19 18:47
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-19 20:08 编辑 
+
+阿夸工商， mea也工商， meaqua贴贴！！！！
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3287#       发表于 2020-4-19 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">再看时为什么觉得贴贴了呢，很怪，在现场明明眼里全是梁木
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3288#       发表于 2020-4-19 21:55
+
+
+
+
+梁木都在p2p3啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+估计到时评论区会很好看吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3289#       发表于 2020-4-19 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47137049&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-19 21:55</a>
+
+梁木都在p2p3啊
+
+估计到时评论区会很好看吧</blockquote>
+剪辑警告<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3290#       发表于 2020-4-19 22:26
+
+
+
+
+合作投稿了，好起来了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3291#       发表于 2020-4-20 00:10
+
+
+
+
+meaqua还能贴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3292#       发表于 2020-4-20 03:34
+
+
+
+ 本帖最后由 2014720 于 2020-4-20 04:26 编辑 
+
+aqua马上要70w了
+又看了看数据没啥事感觉5月不会追平了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+难
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3293#       发表于 2020-4-20 05:40
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-20 06:16 编辑 
+
+支离破碎的呓语， 不用在意:
+这个圈子果然需要多学数学啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很多人会应对物理世界中的种种， 如回避障碍物， 摆弄物体等等， 可是缺乏了严谨地对待脑中的概念的能力。
+
+嗯? 好像和AI系统的某些部件对应上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唉， 发现了用ai系统中的现象与特性来描述各种犯弱智的方式的可能性。
+
+思维发散到博弈论了。
+
+ 啊， 这个圈子又是哪一种"系统"呢?
+
+想来想去， 这个圈子弱智实在太多了。 啊! 咩啊! 你快来个神操作把我弄退坑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 3294#       发表于 2020-4-20 05:49
+
+
+
+
+上次夸哥在b限透露过下一次联动了？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3295#       发表于 2020-4-20 05:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">昨天我还翻过贴贴楼，好像没说联动吧，就是提了一句
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3296#         楼主| 发表于 2020-4-20 11:01
+
+
+
+
+直播时听着以为是说“跟mea的某个企划推迟了”
+熟肉复盘了下大概是“有个企划推迟了，很多人做过，跟mea也做过的那种”
+
+推测只是aqua自己的B限棉花糖吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3297#       发表于 2020-4-20 17:43
+
+
+
+
+我以后要多看管人，少看管人粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3298#       发表于 2020-4-20 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145778&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-20 17:43</a>
+我以后要多看管人，少看管人粉丝</blockquote>
+我真的想连管人都不看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就等咩姐把我杀到脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3299#       发表于 2020-4-20 17:50
+
+
+
+
+暗黑贴贴民又被代表<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+黑贴贴人顺带两个主播一起黑不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 3300#       发表于 2020-4-20 17:53
+
+
+
+
+大亏哥又在打官腔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3301#       发表于 2020-4-20 18:25
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-20 18:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145778&amp;ptid=1914314" target="_blank">2014720 发表于 2020-04-20 17:43:47</a>
+
+我以后要多看管人，少看管人粉丝</blockquote>
+米🔥了后就变成了饭，饭圈人都是用这种方法煮的饭，经典的饭圈操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3302#       发表于 2020-4-20 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47146248&amp;ptid=1914314" target="_blank">素人不相识 发表于 2020-4-20 18:25</a>
+
+米🔥了后就变成了饭，饭圈人都是用这种方法煮的饭，经典的饭圈操作
+
+
+  -- 来自 有消息提醒的 Stage ...</blockquote>
+暗示小米
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+                                       
