@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-22 10:04** 
+> ## **本文件最后更新于2020-04-22 20:02** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_Oazn2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_N56NZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_FUroi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_zwsd3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -23846,8 +23846,9 @@ https://b23.tv/BV1Ap4y1y7qs</blockquote>
 
 
 
+ 本帖最后由 単推し人 于 2020-4-22 14:21 编辑 
 
-你咩姐好久之前那个活搞的火热的时候提了一句夏天会有和五元的合唱咋还有人当定番了呢，八字还没一撇呢，照我看依现在这状态要不就是吹了或者是多人合唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你咩姐好久之前那个活搞的火热的时候提了一句夏天会有和五元的合唱咋还有人当定番了呢，八字还没一撇呢，照我看依现在这状态要不就是没有或者是多人合唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -23973,4 +23974,789 @@ pcr熟肉食毕。吐槽真有点意思，再加上节目效果拉满，运营�
 
 
 
-     
+
+
+-----
+
+####  Rem-清曲  
+##### 17826#       发表于 2020-4-22 12:47
+
+
+
+
+准备个4w5抽的时候就不会有心里压力
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17827#       发表于 2020-4-22 13:54
+
+
+
+
+说得好，我去氪舟游了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17828#       发表于 2020-4-22 15:42
+
+
+
+
+【TwitterTweet 犬山たまき 推特发布】
+内容：🌞〜本日(4/22)の配信予定〜🌞
+
+21:00〜愛宮みるく🍼💖you
+22:00〜白雪みしろ🐶❄bilibili
+23:00〜犬山たまき🐶💙you(コラボ:夏色まつり様、伊東ライフ様、夢追翔様、花畑チャイカ様、神楽めあ様、星川サラ様)
+
+のりおママです‼️
+本日も応援よろしくお願いします☺️🙏✨
+#のりプロ
+媒体：[]
+链接：[]
+时间：2020-04-21 23:01:14 (GMT)
+网址：https://twitter.com/norioo_/status/1252734164148895744
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17829#       发表于 2020-4-22 16:14
+
+
+
+
+看熟肉看到这么个评论草<img src="https://p.sda1.dev/0/e554f452a9b9dc3fea726754c3fe8c06/IMG_E0531B6DA6C70F14643236F1FC03726E.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17830#       发表于 2020-4-22 16:21
+
+
+
+
+抽卡游戏的本质，最近越来越感觉抽卡游戏比老虎机的危害更严重，所以我一直很感谢阿咩，让我告别了永无止境的抽卡地狱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 17831#       发表于 2020-4-22 17:09
+
+
+
+
+出啥圈，我看直播没有多么火热，熟肉点击量也不算高啊，出圈的标准那有那么低<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+以前点生活粉丝最喜欢把出圈挂在嘴边，该没落还是没落了，他们所谓的出圈屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17832#       发表于 2020-4-22 17:14
+
+
+
+
+只能说是让小部分手游玩家看吧，好歹有个百万播放量再来谈出小圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这个只能说比较吸引一些路人看，毕竟节目效果确实好，而且她吐槽也很搞笑
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17833#       发表于 2020-4-22 17:14
+
+
+
+
+起码相对mea自己算是个小热点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+自个看的舒服数字还挺好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就得了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17834#       发表于 2020-4-22 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">那50分钟熟肉还行吧，半夜发的，现在还在以每一小时一万的趋势增长，上一个这样的肉还是meaqua那个小切片呢
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17835#       发表于 2020-4-22 17:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出圈得看微博转发吧，可惜那边是脱脂人主场
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17836#       发表于 2020-4-22 17:31
+
+
+
+
+其实这直播丢404也应该能吸引一些手游玩家，可惜是B站工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17837#       发表于 2020-4-22 17:32
+
+
+
+
+真正的出圈应该是狗妈那种吧。mea这种就是小范围传播，这次工商是真的有意思啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17838#       发表于 2020-4-22 17:33
+
+
+
+
+所以我一直很好奇狗妈播的不多，甚至没签约，为什么就出圈了呢？
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 17839#       发表于 2020-4-22 17:34
+
+
+
+
+别老出圈啦，日本个人势在中国出圈能有啥用啊…
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17840#       发表于 2020-4-22 17:34
+
+
+
+
+好歹制造出了点流量，
+
+
+希望以后能继续和阿b合作愉快，
+
+
+就算没有广告费，
+
+
+能制造出流量就已经能说是互惠互利了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17841#       发表于 2020-4-22 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47166061&amp;ptid=1912063" target="_blank">Mr.shelter 发表于 2020-4-22 17:33</a>
+
+所以我一直很好奇狗妈播的不多，甚至没签约，为什么就出圈了呢？</blockquote>
+因为她和你麻不同， 能露腿
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 17842#       发表于 2020-4-22 17:37
+
+
+
+
+不说别的，涨粉效果很明显，今天已经涨了2700粉了，估计今天过完能涨个3千多粉，我还指望着咩金盾那一天呢
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17843#       发表于 2020-4-22 17:39
+
+
+
+
+今晚还是之前那种一人一人打电话的联动？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17844#       发表于 2020-4-22 17:39
+
+
+
+ 本帖最后由 离心 于 2020-4-22 17:42 编辑 
+
+如果按照平时的涨法加上偶尔有个小爆点不出意外今年就能金盾吧
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 17845#       发表于 2020-4-22 17:46
+
+
+
+ 本帖最后由 単推し人 于 2020-4-22 18:09 编辑 
+
+本来3d回和阿b的live弄的好的话都应该是两个大爆点的，可惜如今日本这疫情搞得感觉有点遥遥无期了，哎，上天总是那么不眷顾她
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17846#       发表于 2020-4-22 17:50
+
+
+
+
+能躲过疫情就是好事<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">，金盾能带来什么嘛…随意
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17847#       发表于 2020-4-22 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波疫情上天不眷顾的是所有人好吧，上天并没有针对谁，不如说能躲过这一波更算是受到了眷顾
+
+
+syl
+
+总感觉联动前会突击一下（）<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17848#       发表于 2020-4-22 18:07
+
+
+
+
+15万肉猪最后的一千粉，老规矩，五毛，原创曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 17849#       发表于 2020-4-22 18:13
+
+
+
+
+五毛，ddd，，，，好像不太可能，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 17850#       发表于 2020-4-22 18:17
+
+
+
+
+只是觉得她正如火如荼的搞的事业上的事被突入其来的灾难打断感觉难受而已，就像她过去一样，总是走的那么坎坷，一时有点悲观，什么时候上天才能关照一下她呢。
+
+不过能躲过疫情才是最好的，之前她说家里物资充沛我还蛮放心的，后来又说厕纸没了去超市买又有点担心了，妹啊，你不是说你家厕纸都堆了一厕所吗？这要也是云的那我可心脏绷紧了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 17851#       发表于 2020-4-22 18:20
+
+
+
+
+原来meapro要20W才有DDD吗，太黑暗了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17852#       发表于 2020-4-22 18:21
+
+
+
+
+没疫情估计现在已经预告3d时间了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">天灾无解啊
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17853#       发表于 2020-4-22 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47166241&amp;ptid=1912063" target="_blank">2014720 发表于 2020-4-22 17:50</a>
+能躲过疫情就是好事，金盾能带来什么嘛…随意</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17854#       发表于 2020-4-22 18:30
+
+
+
+
+给她ddd定投的钱都弄了好久了，不晓得到时候是不是双推流，话说阿b礼物是不是比sc加人气多啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17855#       发表于 2020-4-22 18:43
+
+
+
+
+再来阿b播回3d呗，就算404播过一次了天狗也会打钱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，应该能赚回来吧？救救孩子（虽然这事儿八字没一撇）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17856#       发表于 2020-4-22 18:48
+
+
+
+
+要是家用2d省事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定3d后她就不用2d了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17857#       发表于 2020-4-22 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">不知道咩的3d帽子能摘下来吗，好像看看里面有没有呆毛啊
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17858#       发表于 2020-4-22 18:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别看了，是秃的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17859#       发表于 2020-4-22 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47166778&amp;ptid=1912063" target="_blank">framita 发表于 2020-4-22 18:51</a>
+别看了，是秃的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">秃头中间有一小撮呆毛，i了i了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 17860#       发表于 2020-4-22 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47166745&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-22 18:48</a>
+
+要是家用2d省事说不定3d后她就不用2d了</blockquote>
+那不是更好吗.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17861#       发表于 2020-4-22 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47166835&amp;ptid=1912063" target="_blank">noaki 发表于 2020-4-22 18:58</a>
+那不是更好吗.jpg</blockquote>
+然后挖个鼻子都被看光了？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17862#       发表于 2020-4-22 19:16
+
+
+
+
+三毛
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17863#       发表于 2020-4-22 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47167005&amp;ptid=1912063" target="_blank">zhicai618 发表于 2020-4-22 19:16</a>
+然后挖个鼻子都被看光了？</blockquote>
+说不定直播扣脚呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17864#       发表于 2020-4-22 19:22
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-22 19:23 编辑 
+
+我不觉得她会日常暴露自己的肢体动作<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+如果会的话， 那说明她变味了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17865#       发表于 2020-4-22 19:26
+
+
+
+
+她不是之前说过3d会暴露自己小动作么
+提前打过预防针了，不算变味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17866#       发表于 2020-4-22 19:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她说的不是担心暴露自己的小动作所以要用灵敏度低的3D设备么，哪天日常开启家用3D才是变味啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17867#       发表于 2020-4-22 19:35
+
+
+
+
+变味了好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17868#       发表于 2020-4-22 19:46
+
+
+
+
+你知道她是什么味儿吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17869#       发表于 2020-4-22 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47167120&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-22 19:28</a>
+她说的不是担心暴露自己的小动作所以要用灵敏度低的3D设备么，哪天日常开启家用3D才是变味啊 ...</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17870#       发表于 2020-4-22 19:49
+
+
+
+
+开个眼球捕捉来回乱动，部分粉丝儿对着粉红椭圆都能发情，这3D得比2D灵敏度还低才行吧（）
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17871#       发表于 2020-4-22 19:52
+
+
+
+
+如果70w人都会对她的粉红椭圆发情那她永远都不缺钱用了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
