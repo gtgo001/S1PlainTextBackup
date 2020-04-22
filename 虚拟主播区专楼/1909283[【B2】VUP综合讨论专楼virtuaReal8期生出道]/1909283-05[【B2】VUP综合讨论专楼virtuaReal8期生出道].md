@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-22 10:00** 
+> ## **本文件最后更新于2020-04-23 00:00** 
 
 
 
@@ -13087,4 +13087,481 @@ shooter game又强又menhera  有不爱的道理吗
 
 
 
-                          
+
+
+-----
+
+####  plazum  
+##### 6699#       发表于 2020-4-22 10:28
+
+
+
+
+什么鬼，三代目那种明显照章办事的整活你们也看得下去？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6700#       发表于 2020-4-22 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47161853&amp;ptid=1909283" target="_blank">plazum 发表于 2020-4-22 10:28</a>
+
+什么鬼，三代目那种明显照章办事的整活你们也看得下去？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">声 豚 狂 怒
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6701#       发表于 2020-4-22 12:29
+
+
+
+
+声音好就是可以吸引路人粉
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 6702#       发表于 2020-4-22 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47162718&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-22 11:48</a>
+
+声 豚 狂 怒</blockquote>
+我没说人家声音不好听，祖安直播那一晚我还看了呢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6703#       发表于 2020-4-22 12:32
+
+
+
+
+看到蘑菇人评价好我就很欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6704#       发表于 2020-4-22 12:44
+
+
+
+
+我就习惯这种打牌的时候唠嗑的，一言不发的真没意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl：度人最近好活跃啊，好起来了
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 6705#       发表于 2020-4-22 13:09
+
+
+
+
+我听说蘑菇人是以前斗鱼的那个某霜，是真的吗？
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6706#       发表于 2020-4-22 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6707#       发表于 2020-4-22 14:04
+
+
+
+<blockquote>lllithid 发表于 2020-4-22 13:09
+我听说蘑菇人是以前斗鱼的那个某霜，是真的吗？</blockquote>
+据说是真的
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6708#       发表于 2020-4-22 14:07
+
+
+
+
+不用据说，直接搜斗鱼某霜，点开第一个录播一听就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 6709#       发表于 2020-4-22 14:12
+
+
+
+
+这样啊，我以前看过一段时间某霜，后来szb弃坑了就没看了
+
+她以前在斗鱼不是经常露脸播来着，我第一次看到她的真容有种以前看到秦川真容的微妙感觉
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6710#       发表于 2020-4-22 16:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">与其在某鱼泯然众人，不如狂割萌萌人韭菜，还不用怕被潜规则，简直爽爆
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 6711#       发表于 2020-4-22 16:34
+
+
+
+
+某霜以前在斗鱼也不能算是泯然众人了，本身女牌佬就少，国内的szb主播除去饼飘两个头部以外她也能排的上号，不过披层皮对她肯定是利大于弊的
+
+vup无关的几句牢骚：前不久看到饼佬也要套皮出道了，我以前一直对他批站动态下面的一堆饼飘贴贴人感到恶心，两个胖子贴贴的场景想象一下就不寒而栗
+
+以及，鱼丸真的是傻逼职业，铺场中速爱好者没人权<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6712#       发表于 2020-4-22 17:08
+
+
+
+
+有那味了，想看看b站版是啥词结果还没发
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge2nmw6ji1j20he0fr12d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  duperbigd  
+##### 6713#       发表于 2020-4-22 17:22
+
+
+
+
+霜爷其实也在B播过一段时间吧，在鱼直播的时候最受不了的是整天捏着嗓子唱萌音歌，还是没加音染的那种，现在想起来ptsd都要犯了
+
+现在有企业势加持会好点吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6714#       发表于 2020-4-22 17:53
+
+
+
+
+有加持肯定好呀，隔壁都有人吹桃子萌音自然的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6715#       发表于 2020-4-22 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">桃子那个
+摇了我吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6716#       发表于 2020-4-22 18:44
+
+
+
+
+度宝参加了好多联动，不错不错
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6717#       发表于 2020-4-22 19:48
+
+
+
+
+喷桃子的比吹的多不少吧，即便在NGA
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6718#       发表于 2020-4-22 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">版主的铁门声回来辣，青回
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6719#       发表于 2020-4-22 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6720#       发表于 2020-4-22 22:54
+
+
+
+
+草，vr开始激励制度了？一果说如果她每周社内联动一次社外联动一次，星沙就给她打礼花，坚持两个月给小电视，不知道其他人有没有。不过社内一堆阴角，想扩张影响力也只能靠一果这个准阳角搞外交了，期待成果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6721#       发表于 2020-4-22 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47169369&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-22 22:54</a>
+草，vr开始激励制度了？一果说如果她每周社内联动一次社外联动一次，星沙就给她打礼花，坚持两个月给小电视 ...</blockquote>
+只有一果敢出去社外联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6722#       发表于 2020-4-22 23:46
+
+
+
+ 本帖最后由 南云铁虎 于 2020-4-22 23:51 编辑 
+
+重新编辑了一下
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6723#       发表于 2020-4-22 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">怎么也算不上激励制度吧，顶多是小鼓励，礼花才28啊，俩月才小电视，听说vr是高底薪低分成，可以说毛毛雨，形式上的鼓励吧。
+
+syl，弥宝好几天没播了，戒断了。
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6724#       发表于 2020-4-22 23:50
+
+
+
+
+只有一果也太秀了，不看其他人的吗，前几天惑妈不还联动分手厨房呢
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6725#       发表于 2020-4-22 23:51
+
+
+
+
+ssg跟度人搞了个年上年下限定声剧
+
+ssg剧本：年上 ssg，罗伊，mhr；年下 waku，aza
+
+度人剧本：年上 saya，pax；年下 度人，萨麦尔，一果
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6726#       发表于 2020-4-22 23:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">有加这证件照企划是抄作业还是自己想的啊
+这么多liver转
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉有点意思，但是有加的水平。。。
+我对有加的印象只有上次带光一果的恋爱相谈全程尬场
+和印度印尼联动中规中矩
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                         

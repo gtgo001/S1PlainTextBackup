@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-22 22:02** 
+> ## **本文件最后更新于2020-04-23 00:02** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_q6Hs5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_yPP8x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_igg03" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_FTRvN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -24775,7 +24775,7 @@ syl
 <img src="https://img.saraba1st.com/forum/202004/22/202428rbblb4bfl4xfzzll.jpg" referrerpolicy="no-referrer">
 
 
-<strong>QQ图片20200422202331.jpg</strong> (386.86 KB, 下载次数: 1)
+<strong>QQ图片20200422202331.jpg</strong> (386.86 KB, 下载次数: 2)
 
 下载附件
 
@@ -25091,6 +25091,25 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25163,10 +25182,11 @@ syl
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| weiweiEX| + 1|草|
 | 甘栗No.007| + 1|原来平平淡淡才是真|
 
 
@@ -25218,9 +25238,11 @@ syl
 
 
 
+ 本帖最后由 Sanguine 于 2020-4-22 22:14 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47168448&amp;ptid=1912063" target="_blank">framita 发表于 2020-4-22 21:33</a>
 今天打电话是几点来着</blockquote>
 北京时间晚上九点，已经开了，还没咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+草串了串了，我悔过罢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -25353,10 +25375,841 @@ syl
 
 
 
-现在还在接夏哥连线，那个女人来不了了没戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">犬山哥在播了吗
+现在还在接连线，那个女人来不了了没戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">犬山哥在播了吗
 
 
 
 
 
-   
+
+
+-----
+
+####  惑星  
+##### 17901#       发表于 2020-4-22 22:03
+
+
+
+
+在播了在播了，嘉宾都在待机
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17902#       发表于 2020-4-22 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然被苔苔叫醒了，总感觉亏了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17903#       发表于 2020-4-22 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一个就是咩姐还行，挺好的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17904#       发表于 2020-4-22 22:06
+
+
+
+
+草，一听就是刚睡醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17905#       发表于 2020-4-22 22:06
+
+
+
+
+确实是刚醒
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 17906#       发表于 2020-4-22 22:06
+
+
+
+
+草，这屑女人太自信了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17907#       发表于 2020-4-22 22:07
+
+
+
+
+来了来了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17908#       发表于 2020-4-22 22:07
+
+
+
+
+刚睡醒，今晚要爽了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17909#       发表于 2020-4-22 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊，这段子第几次了来着？好像是第三次？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17910#       发表于 2020-4-22 22:09
+
+
+
+
+又是猩红的士又是猩红的士又是猩红的士
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17911#       发表于 2020-4-22 22:09
+
+
+
+
+……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17912#       发表于 2020-4-22 22:11
+
+
+
+
+推一下她就是早上十点睡的咯
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17913#       发表于 2020-4-22 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行了，最近她出不了门，你麻没段子了，怪不得不播，要和你们聊什么嘛，最近自己小号钓了多少男人吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17914#       发表于 2020-4-22 22:12
+
+
+
+
+神乐mea，车轱辘的神
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17915#       发表于 2020-4-22 22:13
+
+
+
+
+给孩子憋的，素材都用完了开始车轱辘哦了都
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17916#       发表于 2020-4-22 22:15
+
+
+
+
+摊手
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17917#       发表于 2020-4-22 22:15
+
+
+
+
+看日本这情况不还得几个月，要想想播啥了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17918#       发表于 2020-4-22 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47168940&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-22 22:15</a>
+看日本这情况不还得几个月，要想想播啥了</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17919#       发表于 2020-4-22 22:16
+
+
+
+
+播公主连结日服
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17920#       发表于 2020-4-22 22:16
+
+
+
+
+该找舞元了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17921#       发表于 2020-4-22 22:17
+
+
+
+
+能找卯月吗，能找卯月吗，能找卯月吗
+不要五元好不好，不要五元好不好，不要五元好不好，
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17922#       发表于 2020-4-22 22:17
+
+
+
+
+老老实实去播游戏实况吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17923#       发表于 2020-4-22 22:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17924#       发表于 2020-4-22 22:18
+
+
+
+
+为啥你们觉得卵用可以伍员就不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这有啥区别吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17925#       发表于 2020-4-22 22:18
+
+
+
+
+你咩姐倒是想找，找的到吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17926#       发表于 2020-4-22 22:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">能晒一下游泳圈吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 17927#       发表于 2020-4-22 22:18
+
+
+
+
+今天晚上如果有直播大概是通宵游戏预定？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17928#       发表于 2020-4-22 22:18
+
+
+
+
+去网络社区修炼， 争取成为知乎用户
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17929#       发表于 2020-4-22 22:20
+
+
+
+
+刚睡醒的话确实蛮危险的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计等苔苔这边结束了就要熬起来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17930#       发表于 2020-4-22 22:20
+
+
+
+
+和卵用也是要整活的，出不了门创意逐渐枯竭，怎么整活
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17931#       发表于 2020-4-22 22:20
+
+
+
+
+动森不播，宝可梦不播，健身环播了两次不播，你们替她想主意有啥用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 17932#       发表于 2020-4-22 22:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17933#       发表于 2020-4-22 22:20
+
+
+
+
+不如回麻台tc开一播，效果绝对爆炸
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 17934#       发表于 2020-4-22 22:21
+
+
+
+
+现在不会在睡回笼觉了吧，那上半夜应该安全了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17935#       发表于 2020-4-22 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47169021&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-22 22:20</a>
+
+不如回麻台tc开一播，效果绝对爆炸</blockquote>
+草这个可以有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17936#       发表于 2020-4-22 22:22
+
+
+
+
+别播了别播了， 等我考完试再播可好？ 
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17937#       发表于 2020-4-22 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">就你麻现在这状态还播原来的号呢，保不准被人怀疑盗了人家萌音之神的号
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17938#       发表于 2020-4-22 22:23
+
+
+
+
+能做饭配信吗（）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17939#       发表于 2020-4-22 22:24
+
+
+
+
+能穿裸体围裙吗
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17940#       发表于 2020-4-22 22:25
+
+
+
+
+yysy，上次tc也没车轱辘啊，苔式车轱辘怕不是犬山频道的惯例。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17941#       发表于 2020-4-22 22:25
+
+
+
+
+能发平板图吗
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17942#       发表于 2020-4-22 22:34
+
+
+
+
+能发水袋图吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17943#       发表于 2020-4-22 22:36
+
+
+
+
+能发正面图吗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17944#       发表于 2020-4-22 22:36
+
+
+
+
+她不让我发
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17945#       发表于 2020-4-22 22:37
+
+
+
+
+我答应她了，只要听话就不发出去
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17946#       发表于 2020-4-22 22:43
+
+
+
+
+刚点进来我还以为又是风怒了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17947#       发表于 2020-4-22 22:45
+
+
+
+
+阿咩：扰人清梦的犬山め！我要讲车轱辘段子制裁她！
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17948#       发表于 2020-4-22 22:51
+
+
+
+
+对烂梗人这算不算制裁我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+复读机多来点
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17949#       发表于 2020-4-22 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47169345&amp;ptid=1912063" target="_blank">无限舰制 发表于 2020-4-22 22:51</a>
+对烂梗人这算不算制裁我暂且蒙古
+
+
+复读机多来点</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17950#       发表于 2020-4-22 23:40
+
+
+
+
+隔壁要被清算，这里呢，现在跑来的急吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 17951#       发表于 2020-4-22 23:45
+
+
+
+
+看黑涩会如何用qiang逼你们把版主的位置交出来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 

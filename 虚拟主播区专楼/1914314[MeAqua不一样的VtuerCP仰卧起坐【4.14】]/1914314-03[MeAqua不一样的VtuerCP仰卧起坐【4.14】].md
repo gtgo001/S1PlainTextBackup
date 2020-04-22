@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-20 20:02** 
+> ## **本文件最后更新于2020-04-23 00:03** 
 
 
 
@@ -5515,4 +5515,605 @@ aqua马上要70w了
 
 
 
-                                       
+
+
+-----
+
+####  Mr.shelter  
+##### 3303#       发表于 2020-4-21 07:31
+
+
+
+
+所以你们居然都看了那份lol吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3304#       发表于 2020-4-21 08:14
+
+
+
+<blockquote>2014720 发表于 2020-4-20 17:43
+我以后要多看管人，少看管人粉丝</blockquote>
+“提纯”这个词还是梁木人教我的
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3305#       发表于 2020-4-21 08:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 3306#       发表于 2020-4-21 08:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47150463&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-4-21 07:31</a>
+所以你们居然都看了那份lol吗我不行，顶不住。有没有大佬告诉我贴贴的地方和睿智的地方都在哪儿啊[f ...</blockquote>
+先行版那个小便控制应该就是最精彩的了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3307#       发表于 2020-4-21 08:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47150758&amp;ptid=1914314" target="_blank">zhicai618 发表于 2020-4-21 08:34</a>
+
+先行版那个小便控制应该就是最精彩的了</blockquote>
+淦哦那玩意儿我怎么看怎么感觉剧本痕迹超重，而且大亏还心不在焉的差点儿没接上话。原来这两个小时就是这种层次之下的东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 3308#       发表于 2020-4-21 11:58
+
+
+
+
+就不能是即兴发挥吗！
+
+如果是剧本的话，我就想知道
+
+（我和你妈谁重要？果然比起妈妈还是我跟重要吧？是的哦！）
+
+这段是谁想出来的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3309#       发表于 2020-4-21 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47153042&amp;ptid=1914314" target="_blank">airclab 发表于 2020-4-21 11:58</a>
+
+就不能是即兴发挥吗！
+
+如果是剧本的话，我就想知道
+
+（我和你妈谁重要？果然比起妈妈还是我跟重要吧？是的哦 ...</blockquote>
+那必定咩咩想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3310#       发表于 2020-4-21 12:18
+
+
+
+
+别这样，虽然都是梁木人，但看了后感觉烤出来的那两个稿子还是挺甜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3311#       发表于 2020-4-21 12:38
+
+
+
+
+甜不起来，我只觉得气抖冷，他们贴贴人什么时候才能不站起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 3312#       发表于 2020-4-21 19:40
+
+
+
+ 本帖最后由 a772803314 于 2020-4-21 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47145778&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-20 17:43</a>
+
+我以后要多看管人，少看管人粉丝</blockquote>
+meaqua一直是粉丝热情大于营业热情，而粉丝热情又建立在节目效果上，和东纶这种纯偶像根本没法比，饭圈营业手法在自编经历上“汪东城早年对他很好啊，他受伤会背他，夏天热会爬树给他摘椰子喝，闹着玩会把他扛在肩上，还会给他擦眼泪。”，其实这俩私下性取向不同且早打的不可开交了，现在老死不相往来，而meaqua就一句“那时候苹果能倾诉的人只有马自立了”还是前同事讲出来的，建议把图里这段当圣典之前先对饭圈有一个基本的了解。
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3313#       发表于 2020-4-21 19:42
+
+
+
+
+mea是二次元卢本伟，aqua在抗压吧风评很好，meaqua贴贴！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3314#       发表于 2020-4-21 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47157174&amp;ptid=1914314" target="_blank">a772803314 发表于 2020-4-21 19:40</a>
+meaqua一直是粉丝热情大于营业热情，而粉丝热情又建立在节目效果上，和东纶这种纯偶像根本没法比，饭圈营 ...</blockquote>
+我只想为贴贴楼添砖加瓦而已，为本区的kpi做点微小的贡献<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3315#       发表于 2020-4-21 19:51
+
+
+
+
+说到底大亏是百合控这种事到底是谁传出来的啊，三天两头见贴贴人拿来说事儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，有出处吗？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3316#       发表于 2020-4-21 19:52
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-21 19:53 编辑 
+
+大亏点赞过挺多百合内容吧
+
+不过我很久没视奸贴贴楼了， 记忆已经模糊， 版本已经落后<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3317#       发表于 2020-4-21 19:54
+
+
+
+
+凛子点赞过les video吧，虽然和性取向无关，应该算性癖
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3318#       发表于 2020-4-21 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47157271&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-21 19:54</a>
+
+凛子点赞过les video吧，虽然和性取向无关，应该算性癖</blockquote>
+？这点赞在哪儿看到的？推上还有lv内容的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这得跟夏哥有的一拼了吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 3319#       发表于 2020-4-21 20:10
+
+
+
+
+说的是前世吧。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3320#       发表于 2020-4-22 15:37
+
+
+
+
+mk2出不出来赌头看看晚上夸哥连麦有没有咩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，gkdgkd
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3321#       发表于 2020-4-22 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47164761&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-4-22 15:37</a>
+mk2出不出来赌头看看晚上夸哥连麦有没有咩啊，gkdgkd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3322#       发表于 2020-4-22 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+一个是有灭秦立汉伟任的天选之人<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+一个是混吃等死的三线套皮女主播<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+将她们扯一起有好处吗，她们自己都说按她们自己的节奏来，好聚好散不好吗
+https://b23.tv/BV1W741177UQ
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3323#       发表于 2020-4-22 15:58
+
+
+
+
+建议再赌头，起个布袋戏名字多好，mk2这个新id响亮但不够文雅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3324#       发表于 2020-4-22 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47164958&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-22 15:58</a>
+建议再赌头，起个布袋戏名字多好，mk2这个新id响亮但不够文雅</blockquote>
+其实已经筹措好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">随时能无缝衔接。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3325#       发表于 2020-4-22 16:14
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-4-22 16:41 编辑 
+
+建议集头，收集七个召唤皮套出道。暗黑贴贴人会支持你的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3326#       发表于 2020-4-22 16:35
+
+
+
+
+夸皇在404提一嘴mea我就给她磕个头，这么看五岁弱智还是爱我的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3327#       发表于 2020-4-22 17:00
+
+
+
+
+提不提无所谓，只要不磨蹭一切都好说
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3328#       发表于 2020-4-22 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47165338&amp;ptid=1914314" target="_blank">Dualist彩 发表于 2020-4-22 16:35</a>
+夸皇在404提一嘴mea我就给她磕个头，这么看五岁弱智还是爱我的</blockquote>
+朋友你这个磕头的时限有多久啊，如果是无限长我总觉得这帖子有天能挖出来鞭尸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3329#       发表于 2020-4-22 19:04
+
+
+
+
+又有暗黑贴贴人献祭了，今晚连麦可能性存微^^
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3330#       发表于 2020-4-22 19:04
+
+
+
+ 本帖最后由 时雨rain 于 2020-4-22 19:06 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3331#       发表于 2020-4-22 22:00
+
+
+
+
+无时限又怎样，大天使是不会让我失望的
+
+
+连麦？更不可能了，40万大v联动你个什么热度都没有的15万底边个人fw，那是连麦吗，那不是打你麻的脸吗？她们关系那么好，这是凜子在保护她的麻酱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3332#       发表于 2020-4-22 22:27
+
+
+
+
+看来头保住了？ 
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3333#       发表于 2020-4-22 22:33
+
+
+
+
+你们是巴不得大亏死还是麻姐死还是mk2死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3334#       发表于 2020-4-22 22:37
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-4-22 22:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47169150&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-22 22:33</a>
+
+你们是巴不得大亏死还是麻姐死还是mk2死啊</blockquote>
+无脑贴贴人死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3335#       发表于 2020-4-22 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47169196&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-4-22 22:37</a>
+贴贴人死</blockquote>
+mk2发言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3336#       发表于 2020-4-22 22:39
+
+
+
+
+所以离safe还有多远？如果还在期间的话我的头不妨也拿去一试。（说真的40w纪念自己那边都不够用还会想到mea，不可能的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3337#       发表于 2020-4-22 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47169205&amp;ptid=1914314" target="_blank">Sanguine 发表于 2020-4-22 22:38</a>
+
+mk2发言</blockquote>
+那改成无脑贴贴人死吧，我不想成为mk2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，道歉了www
+
+
+
+
+
+                                      
