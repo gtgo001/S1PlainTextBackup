@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-20 20:00** 
+> ## **本文件最后更新于2020-04-22 10:00** 
 
 
 
@@ -12591,4 +12591,500 @@ muri好像听了蛮多摇滚乐的，什么时候叫上魔魔和版主一起搞�
 
 
 
-                           
+
+
+-----
+
+####  zs008007  
+##### 6671#       发表于 2020-4-20 20:53
+
+
+
+
+唱凤凰传奇的歌算土味吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ThreeStones  
+##### 6672#       发表于 2020-4-20 21:41
+
+
+
+
+muri玩只狼这么可爱的吗 i了
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6673#       发表于 2020-4-20 21:42
+
+
+
+
+花留的处处吻翻唱6小时8600播放60弹幕136评论，艾因的《Do You Want to Build a Snowman》50个小时1w播放130弹幕216评论。
+
+难道歌势真的不行了吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lkciub  
+##### 6674#       发表于 2020-4-20 21:49
+
+
+
+
+歌势x 推送√
+
+
+
+
+
+
+
+-----
+
+####  轮回的焰  
+##### 6675#       发表于 2020-4-20 22:41
+
+
+
+
+只是不对b站人口味。说实话艾因新翻唱不是关注推送我在首页看到都不会点进去的。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6676#       发表于 2020-4-20 23:24
+
+
+
+
+水母在被鬼形部暴打中迎来了5w粉，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 6677#       发表于 2020-4-20 23:25
+
+
+
+
+魔魔这立绘能用l2d能用连b站号都能用，到底毕业了个啥
+
+
+
+
+
+
+
+-----
+
+####  疾风血誓  
+##### 6678#       发表于 2020-4-20 23:54
+
+
+
+
+这年头谁看翻唱正经听歌的，只要调音不调成电音不都差不多，也就图个喜欢的曲子有人唱开心开心。
+
+
+
+
+
+
+
+-----
+
+####  lutla1422  
+##### 6679#       发表于 2020-4-21 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47149069&amp;ptid=1909283" target="_blank">wx41122 发表于 2020-4-20 23:25</a>
+
+魔魔这立绘能用l2d能用连b站号都能用，到底毕业了个啥</blockquote>
+只是隐退 就是很少主动直播了 毕竟lla看起来挺忙
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6680#       发表于 2020-4-21 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47148115&amp;ptid=1909283" target="_blank">lkciub 发表于 2020-4-20 21:49</a>
+
+歌势x 推送√</blockquote>
+推送 （×）
+
+
+选曲+联合创作  （√）
+
+
+当初阿萨的翻唱超级强推了2天也就两万多播放，还惹一身骚。RUKI的《囍》没上强推1天就有六位数播放了。
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 6681#       发表于 2020-4-21 00:23
+
+
+
+
+艾因换个封面和标题可能比较好，有点区分不出来，如果赶上之前这首歌火的时候可能会好点
+
+质量那么高的翻唱没人听有点可惜
+
+完全没觉得差不多
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6682#       发表于 2020-4-21 00:27
+
+
+
+
+感觉八期生都能在首播前到万粉
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6683#       发表于 2020-4-21 06:16
+
+
+
+ 本帖最后由 CCCCCC梵 于 2020-4-21 06:18 编辑 
+
+这都能像asaki就离谱，你们这到底怎么听出来的
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 6684#         楼主| 发表于 2020-4-21 09:28
+
+
+
+[https://www.bilibili.com/video/BV1Lp4y1y7RP/](https://www.bilibili.com/video/BV1Lp4y1y7RP/)
+
+S1娘****面接，后半段无许可同框所有国内有热度的Vtb，算是蹭全了
+
+为什么泥潭没人喷s1娘就硬蹭吸血？
+
+因为是奈子的企划吗，你们也太温柔了8<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+——
+
+syl，完成度不错，感觉可以买一点
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 6685#       发表于 2020-4-21 10:11
+
+
+
+
+搜了一下没发现专楼，就发这里了
+[http://acg.tv/av412753853](http://acg.tv/av412753853)这段剪辑有点意思
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6686#       发表于 2020-4-21 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47151279&amp;ptid=1909283" target="_blank">萌之上弥人 发表于 2020-4-21 09:28</a>
+
+https://www.bilibili.com/video/BV1Lp4y1y7RP/
+
+S1娘****面接，后半段无许可同框所有国内有热度的Vtb，算是 ...</blockquote>
+没人提的最大原因是没人看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6687#       发表于 2020-4-21 11:17
+
+
+
+
+别说出来，这样不好，我可是很尊敬版主的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 6688#       发表于 2020-4-21 13:33
+
+
+
+
+可是群里很热闹啊媲美千人群
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6689#       发表于 2020-4-21 14:10
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-21 14:18 编辑 
+
+看过头2次直播后我也没看S1娘了，还有四代新科也是。
+
+
+刚才发现四代新科娘几乎每天都在掉粉，日增播放量十万八万的涨，但粉丝数几百几百的掉，我还真没见过这阵仗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6690#       发表于 2020-4-21 14:24
+
+
+
+
+四代新科娘就是中规中矩的管人，没什么黑点也没什么爆点，看可以快进的视频观感比看直播的观感要更好一点。
+
+直播效果整活的程度上三代还是很强的，日粉丝增量最高也是三代目的时候。如果不是rp有问题的话，好聚好散的三代目就算单走也估计也是头部vup了，然而自爆了没办法
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6691#       发表于 2020-4-21 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">难不成还会有非学生兼职党能应聘成功吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">但凡有直播经验就无法确保ta没有黑历史啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">一朝被蛇咬，大不了就把四代目从零培养起来
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我觉得会四门语言前景还挺好的
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 6692#       发表于 2020-4-21 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47154285&amp;ptid=1909283" target="_blank">丶彼岸花开丶 发表于 2020-4-21 14:24</a>
+四代新科娘就是中规中矩的管人，没什么黑点也没什么爆点，看可以快进的视频观感比看直播的观感要更好一点。 ...</blockquote>
+三代还是挺厉害的，其它的先不提，至少声音就很有优势了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6693#       发表于 2020-4-21 17:02
+
+
+
+
+这楼是不是出Bug了
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6694#       发表于 2020-4-21 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47155757&amp;ptid=1909283" target="_blank">寒星 发表于 2020-4-21 16:58</a>
+
+三代还是挺厉害的，其它的先不提，至少声音就很有优势了</blockquote>
+u1s1，三代目除了前几次直播略微拉胯，越到后面直播效果越好，进步也是飞快，本身声线就很有特点，自身能力处于国v最顶尖的一批。
+
+ 德不配才，自己把自己路堵死了。
+
+
+
+
+
+
+
+-----
+
+####  胡桃丶  
+##### 6695#       发表于 2020-4-21 21:56
+
+
+
+
+4代目上了之后新科娘掉粉，S1娘上了后S1账号也掉粉，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 6696#       发表于 2020-4-22 02:28
+
+
+
+
+shooter game又强又menhera  有不爱的道理吗
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 6697#       发表于 2020-4-22 07:52
+
+
+
+
+女牌佬的观感不错
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6698#       发表于 2020-4-22 09:50
+
+
+
+
+蘑菇人是木口cn最对我胃口的，游戏王多来点
+
+
+
+
+
+                          

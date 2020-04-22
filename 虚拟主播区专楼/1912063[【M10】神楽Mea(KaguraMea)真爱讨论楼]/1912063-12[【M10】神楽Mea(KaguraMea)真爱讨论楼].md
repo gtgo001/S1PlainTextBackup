@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-21 00:01** 
+> ## **本文件最后更新于2020-04-22 10:04** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_QhvEh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_Oazn2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_GxbW6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_FUroi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -23120,4 +23120,857 @@ rp大赛可还行溜了溜了，看来没直播了
 
 
 
-       
+
+
+-----
+
+####  路人庚  
+##### 17777#       发表于 2020-4-21 00:15
+
+
+
+
+推特回复女粉（要突击了kana？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17778#       发表于 2020-4-21 00:19
+
+
+
+
+老子的睡眠被你全毁了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 17779#       发表于 2020-4-21 09:24
+
+
+
+
+你好闲啊（
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 17780#       发表于 2020-4-21 09:40
+
+
+
+
+好起来了,我需要这些
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 17781#       发表于 2020-4-21 12:23
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-21 13:10 编辑 
+
+希望主播多关注管人，而不是管人粉丝生态(新推并感)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17782#       发表于 2020-4-21 12:35
+
+
+
+
+（讨论小麻pad大小不就是关注管人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 17783#       发表于 2020-4-21 15:57
+
+
+
+
+我觉的只是单纯的关注性癖<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17784#       发表于 2020-4-21 18:04
+
+
+
+
+二次元卢本伟草
+<img src="https://p.sda1.dev/0/f1121bb0add24aa9e99d3c620c4988ef/-zue37Q5-33nK26T1kSe8-sg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 17785#       发表于 2020-4-21 18:07
+
+
+
+
+你咩姐身份真多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17786#       发表于 2020-4-21 18:13
+
+
+
+
+蹭，给我蹭<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17787#       发表于 2020-4-21 18:26
+
+
+
+
+这个剪辑效果还挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d5e1ebe6788f1fff836b1c10d23023ee/IMG_E0F2FD6F414147C786054105825B4FE8.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17788#       发表于 2020-4-21 18:39
+
+
+
+
+阿b还有找其他v做工商了吗？你麻利用价值再评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17789#       发表于 2020-4-21 18:43
+
+
+
+
+草<img src="https://p.sda1.dev/0/7e5e9789fa3984f0f3d5a75839b126c2/1e9d2163eda34ac3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17790#       发表于 2020-4-21 18:45
+
+
+
+
+如果真能抱上这条大腿会很舒服吧
+
+但bcr能活多久呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 17791#       发表于 2020-4-21 18:45
+
+
+
+
+你咩姐吐槽很有意思，我记得还有迫害死宅朋友最多3个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看见抖m那个表情说是阿黑颜
+
+
+
+
+
+
+
+-----
+
+####  真六武眾獨人13  
+##### 17792#       发表于 2020-4-21 19:00
+
+
+
+
+能不能整丶阳间的人蹭啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17793#       发表于 2020-4-21 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47156630&amp;ptid=1912063" target="_blank">Dualist彩 发表于 2020-4-21 18:39</a>
+
+阿b还有找其他v做工商了吗？你麻利用价值再评价</blockquote>
+苔姨啊，苔姨的运气估计都给咩姐了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+苔姨PCR天井有一手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17794#       发表于 2020-4-21 19:13
+
+
+
+
+这事可得没选<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17795#       发表于 2020-4-21 19:15
+
+
+
+<img src="https://p.sda1.dev/0/a93e3f3e1c6fcefd32615ff7405f2ccb/IMG_5AE489B91C39F7463CB9709D26AB552D.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 17796#       发表于 2020-4-21 21:37
+
+
+
+ 本帖最后由 惑星 于 2020-4-21 21:39 编辑 
+
+才发现除了那首自我介绍曲，你咩姐还填过别的歌的歌词，太逗了
+[https://www.bilibili.com/video/BV1Ub411P7CT](https://www.bilibili.com/video/BV1Ub411P7CT)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17797#       发表于 2020-4-21 21:41
+
+
+
+
+感觉那时候唱歌的声音确实跟现在不一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17798#       发表于 2020-4-21 21:49
+
+
+
+
+寂寞的夜，没有新鲜的麻音听简直生不如死<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17799#       发表于 2020-4-21 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">你麻现在不会在开小号钓男人玩吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17800#       发表于 2020-4-21 22:04
+
+
+
+
+钓钓挺好， 也许能提升直播能力
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17801#       发表于 2020-4-21 22:22
+
+
+
+
+就她就她就她就她就她就她就她就她就她就她？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17802#       发表于 2020-4-21 22:25
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-21 22:30 编辑 
+
+就她是什么意思， 看不起你麻的钓男人能力？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+看她最近发的那些推特什么的， 我有理由相信她最近开始偏移向兔姨派了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17803#       发表于 2020-4-21 22:28
+
+
+
+ 本帖最后由 路人庚 于 2020-4-21 22:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻老作曲家了，之前那个吹替歌王也是鬼才作词
+
+
+syl，你麻跟野男人打撸啊撸用得着开小号吗？根本不会遮遮掩掩的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+zsyl，久违的搜了下tag发现了这个野生熟肉：[https://www.bilibili.com/video/BV1nZ4y1j7M3](https://www.bilibili.com/video/BV1nZ4y1j7M3)，所以其实声音是没怎么变，只是现在忘记发生方式了（大概
+
+
+jxsyl，[https://www.bilibili.com/video/BV1354y1d77s](https://www.bilibili.com/video/BV1354y1d77s)，这个snow halation真就是一模一样的感觉啊（小饼干
+
+
+hssyl，看了一眼画面，这烤肉man好gachi，内味儿有点重<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17804#       发表于 2020-4-21 22:35
+
+
+
+
+我其实挺喜欢gachi观察的， 触及灵魂的zqsg很有味道<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17805#       发表于 2020-4-21 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47158713&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-21 22:28</a>
+你麻老作曲家了，之前那个吹替歌王也是鬼才作词
+
+
+syl，你麻跟野男人打撸啊撸用得着开小号吗？根本不 ...</blockquote>
+这烤肉man好像经常看到他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 17806#       发表于 2020-4-21 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47158713&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-21 22:28</a>
+你麻老作曲家了，之前那个吹替歌王也是鬼才作词
+
+
+syl，你麻跟野男人打撸啊撸用得着开小号吗？根本不 ...</blockquote>
+草，是他啊，点进去前我还寻思是谁呢....<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+一般在官组动态下和0群出现，浓度挺高的。
+....年轻真好啊（望天）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17807#       发表于 2020-4-21 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">哎，最近推文养的gachi，等到和五元唱的情歌发出来全都杀了，这就是你咩姐，好算计，可啪可啪。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17808#       发表于 2020-4-21 23:51
+
+
+
+
+管养管杀， 从摇篮到坟墓
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 17809#       发表于 2020-4-21 23:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要慌，你咩姐的双人合唱曲自古以来都象征着那个双人cp的结束（大概）
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 17810#       发表于 2020-4-21 23:55
+
+
+
+
+原来还有最近几个月入坑然后从最早视频开始看一路刷，每天高强度摄入麻毒然后gachi的人，还以为新人不会翻老肉的，这种感觉肯定很酸爽
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17811#       发表于 2020-4-21 23:57
+
+
+
+
+新入坑的最有可能还是变成萌萌贴贴人，所以你们这种特别过激的暗黑贴贴人只会把人吓成anti<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17812#       发表于 2020-4-21 23:58
+
+
+
+
+没事， 人们终将找到适合自己的位置， 不管是在哪一个“群体”中， 或者留下或者退坑
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17813#       发表于 2020-4-22 00:01
+
+
+
+
+《位置》
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17814#       发表于 2020-4-22 00:03
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-22 00:13 编辑 
+
+你楼又开始研究粉丝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看新入坑的人也就罢了，别在这招魂了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17815#       发表于 2020-4-22 00:07
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-22 00:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47159584&amp;ptid=1912063" target="_blank">小走 发表于 2020-4-21 23:55</a>
+原来还有最近几个月入坑然后从最早视频开始看一路刷，每天高强度摄入麻毒然后gachi的人，还以为新人不会翻 ...</blockquote>
+当年奥利奥的视频不也是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17816#       发表于 2020-4-22 01:31
+
+
+
+
+pcr熟肉出来了
+[https://b23.tv/BV1Ap4y1y7qs](https://b23.tv/BV1Ap4y1y7qs)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17817#       发表于 2020-4-22 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47160096&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-22 01:31</a>
+pcr熟肉出来了
+https://b23.tv/BV1Ap4y1y7qs</blockquote>
+好好好<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 17818#       发表于 2020-4-22 01:37
+
+
+
+
+你咩姐好久之前那个活搞的火热的时候提了一句夏天会有和五元的合唱咋还有人当定番了呢，八字还没一撇呢，照我看依现在这状态要不就是吹了或者是多人合唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 17819#       发表于 2020-4-22 05:02
+
+
+
+
+妈耶 爷的青春回来了
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 17820#       发表于 2020-4-22 06:28
+
+
+
+
+杀吧杀吧，看到幻灭之人疯狂的模样，我既觉得害怕又觉得有趣
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17821#       发表于 2020-4-22 06:35
+
+
+
+
+pcr熟肉食毕。吐槽真有点意思，再加上节目效果拉满，运营不给加点钱吗）
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 17822#       发表于 2020-4-22 07:29
+
+
+
+<blockquote>JustW 发表于 2020-4-22 06:35
+pcr熟肉食毕。吐槽真有点意思，再加上节目效果拉满，运营不给加点钱吗）</blockquote>
+工商应该有钱吧。。。而且官方还送了个小电视
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 17823#       发表于 2020-4-22 09:43
+
+
+
+ 本帖最后由 蔵女 于 2020-4-22 09:51 编辑 
+
+这工商效果好像还挺好的？
+
+不仅把人骗进来玩还把玩家骗去抽卡，效果好强啊…
+
+加钱加钱！
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 17824#       发表于 2020-4-22 09:51
+
+
+
+
+本来我都弃坑了，熟肉出来了，就顺手再去抽抽卡，3000钻2个三星。好了，又能玩下去了。没想到mea又一次出圈是因为工商。倒也是神奇。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17825#       发表于 2020-4-22 10:03
+
+
+
+
+这个工商告诉玩家： 只要坚持， 就能出货！下一次， 下一次就出了也说不定呢？（
+
+
+
+
+
+     
