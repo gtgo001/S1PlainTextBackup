@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-23 00:00** 
+> ## **本文件最后更新于2020-04-23 16:00** 
 
 
 
@@ -13564,4 +13564,1147 @@ ssg剧本：年上 ssg，罗伊，mhr；年下 waku，aza
 
 
 
-                         
+
+
+-----
+
+####  Fakerの幻影  
+##### 6727#       发表于 2020-4-23 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47170039&amp;ptid=1909283" target="_blank">曜不能停 发表于 2020-4-22 23:50</a>
+只有一果也太秀了，不看其他人的吗，前几天惑妈不还联动分手厨房呢</blockquote>
+惑妈一周都不一定开次直播，论外论外
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6728#       发表于 2020-4-23 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47170185&amp;ptid=1909283" target="_blank">Fakerの幻影 发表于 2020-4-23 00:06</a>
+
+惑妈一周都不一定开次直播，论外论外</blockquote>
+那度人上周还是上上周还社外跑团呢，vr社外联动不少，只是你没看而已<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6729#       发表于 2020-4-23 00:14
+
+
+
+
+哦对了，说到ssg的声剧企划，抽签时roi和aza连续两次分到一组、结果这个贴贴就刷起来了，再次证明了vr中cp粉的浓度，实属影响观感，窒息啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6730#       发表于 2020-4-23 00:28
+
+
+
+
+倒不是vr的cp粉浓度高，是v圈的贴贴民多，看外面六字母病栋就知道了。搞贴贴营业是最容易起话题度的，比起其他营业，低付出高回报。
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6731#       发表于 2020-4-23 00:40
+
+
+
+
+男男cp吸金吸粉可香了 除了引来无脑贴贴人之外 总比一个个bg营业香
+
+—— 来自 HUAWEI MLA-AL10, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| a982902854| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6732#       发表于 2020-4-23 00:58
+
+
+
+<blockquote>不吃布丁的宫子 发表于 2020-4-22 22:54
+草，vr开始激励制度了？一果说如果她每周社内联动一次社外联动一次，星沙就给她打礼花，坚持两个月给小电视 ...</blockquote>
+vr葵皇？
+
+(能钓到2000吗？
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6733#       发表于 2020-4-23 00:59
+
+
+
+
+2000已经有梁木了别钓了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6734#       发表于 2020-4-23 01:16
+
+
+
+
+就算只看一果不看其他人也不会觉得这是果子哥的定位吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也差太远了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6735#       发表于 2020-4-23 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47170573&amp;ptid=1909283" target="_blank">穆幕姆 发表于 2020-4-23 00:58</a>
+
+vr葵皇？
+
+(能钓到2000吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 我想看花留被葵、笹厄介粉丝冲，然后恼羞成怒侮辱葵、笹，然后彻底撕皮，每天萌音破骂管人粉丝，
+
+
+这种剧情来了再钓我
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6736#       发表于 2020-4-23 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47170060&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-22 23:53</a>
+
+有加这证件照企划是抄作业还是自己想的啊
+
+这么多liver转</blockquote>
+有加跑团和搞怪还不错的，其他就乏善可陈了。
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6737#       发表于 2020-4-23 01:38
+
+
+
+
+不会钓人肥肠抱歉，我会继续努力学习的
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 6738#       发表于 2020-4-23 07:54
+
+
+
+
+这是换staff了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6739#       发表于 2020-4-23 08:19
+
+
+
+
+ru皇开团了嗷，这动态的小心思就不说了，你个做主播的真以为自己套了层皮就高贵起来了？主播的本职你做不好还不被警告那才叫stf无能呢好吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不过这一手我支持ru皇，本社的放养传统怎么到你vr就变了，不行啊，说好的自由发展狼性企业呢，臭stf把你的手给我缩回去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl：看了眼评论区，hsm最近也在直播里抱怨填表的事情，不愧是你啊hsm，哪一日你称皇了一定要带着你的粉丝把stf势力彻底驱逐，让vr重回彩虹正统啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+微信图片_20200423081027.png
+(62.13 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-23 08:14 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/23/081459vgspyoou9t99ti4z.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6740#       发表于 2020-4-23 08:34
+
+
+
+ 本帖最后由 aucun 于 2020-4-23 08:36 编辑 
+
+应该是staff或者说运营终于开始做事了，之前一周年收集云p看来有作用的，
+Ruki的ow说实话没啥节目效果，再加上ow这游戏。。
+ssg和saya播ow一个会萌音怪叫一个会暴言观感还行
+
+syl，为什么运营开始做事，弥宝好几天没播了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6741#       发表于 2020-4-23 08:44
+
+
+
+ 本帖最后由 死去的御景柚姬 于 2020-4-23 08:54 编辑 
+
+那天他们不是说stf扩招到十个了吗？可能有专门负责这一块的吧
+
+syl 弥宝几天没播了，弥宝转运营了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leonardoooo  
+##### 6742#       发表于 2020-4-23 08:45
+
+
+
+
+主要是 分段太低真的影响观感<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6743#       发表于 2020-4-23 08:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运营一直会找liver谈话的，以前不是还骂哭过一果。
+
+还有ruki喜欢玩c的时候喜欢玩长**...同样是被打死，狗冲被打死和被狗冲死后者还是憋屈一点。
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6744#       发表于 2020-4-23 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47171794&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-23 08:52</a>
+
+运营一直会找liver谈话的，以前不是还骂哭过一果。
+
+还有ruki喜欢玩c的时候喜欢玩长**...同样是被打 ...</blockquote>
+骂哭一果是什么时候的事情啊，说来听听<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6745#       发表于 2020-4-23 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47171794&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-23 08:52</a>
+
+运营一直会找liver谈话的，以前不是还骂哭过一果。
+
+还有ruki喜欢玩c的时候喜欢玩长**...同样是被打 ...</blockquote>
+骂哭过一果是什么时候的事情啊，说来听听<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6746#       发表于 2020-4-23 10:39
+
+
+
+
+ow真有那么多人玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6747#       发表于 2020-4-23 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47165904&amp;ptid=1909283" target="_blank">duperbigd 发表于 2020-4-22 17:22</a>
+
+霜爷其实也在B播过一段时间吧，在鱼直播的时候最受不了的是整天捏着嗓子唱萌音歌，还是没加音染的那种，现 ...</blockquote>
+其实现在也偶尔在b播的(指出道后..以前唱歌就是图个乐..都是没效果加持直接硬唱的..肯定比不上现在有混响啥的..
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6748#       发表于 2020-4-23 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47172677&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-23 10:28</a>
+
+骂哭过一果是什么时候的事情啊，说来听听</blockquote>
+她自己直播说过吧，刚出道的时候，直播还比较生涩。
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 6749#         楼主| 发表于 2020-4-23 11:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/23/110214r1ly6tgjs21tijxg.png" referrerpolicy="no-referrer">
+
+
+<strong>4YUI@PIR9MGLU}FPF})5MGD.png</strong> (8.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-23 11:02 上传
+
+
+
+
+
+ 友人看管两个月的时候在群里提出的vliver模糊划分法，感觉还蛮有道理（他现在已经回去看偶像了，管人真的不行）
+
+第一象限互动偶像的典型是mea
+
+第二象限互动陪伴的典型是拿lulu
+
+第三象限陪伴内容暂定典型社筑
+
+第四象限内容偶像是星街同学
+
+
+来点kpi
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不吃布丁的宫子| + 1|好图，但四个象限怎么分来着|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  MagiczZ  
+##### 6750#       发表于 2020-4-23 11:13
+
+
+
+
+不懂就问，ru皇称呼怎么来的
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6751#       发表于 2020-4-23 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47173243&amp;ptid=1909283" target="_blank">MagiczZ 发表于 2020-4-23 11:13</a>
+不懂就问，ru皇称呼怎么来的</blockquote>
+因为ruki是vr关注第一人啊(泠鸢除外)
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6752#       发表于 2020-4-23 11:44
+
+
+
+
+ruki这波就搞笑，宁愿得罪老板也要对观众卖哭<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要我是stf就放置，不听话还当头牌养，当商人都是慈善家吗
+
+是时候来点花帕营业了，还是观众最喜欢的白头发和紫头发的姐姐呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6753#       发表于 2020-4-23 12:14
+
+
+
+
+这手开团不管有意还是无意称一句皇没问题的
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6754#       发表于 2020-4-23 12:33
+
+
+
+
+粉丝就用脚投票吧，播ow数据好的话staff肯定是不会说什么的，虽然不知道ruki为什么要用那样的措辞，但是在“赢了队员牛逼输了怪bp”这样的大文化环境中诞生的VR，以及ruki的这条明指staff的动态能存在这么久任由评论和各方讨论发酵，可以说明头部vup在跟staff的对话中至少不会处于像她说描述的那样弱势的地位
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6755#       发表于 2020-4-23 12:53
+
+
+
+
+有一说一，ru皇不是蹭鲨皇起来的？
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6756#       发表于 2020-4-23 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47173682&amp;ptid=1909283" target="_blank">zhongdasang 发表于 2020-4-23 11:44</a>
+
+ruki这波就搞笑，宁愿得罪老板也要对观众卖哭要我是stf就放置，不听话还当头牌养，当商人都是慈善家 ...</blockquote>
+这头牌怎么看也不像VR安排出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种和几百万大物联动，VR有这能耐早捧出一堆破十万的了。
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6757#       发表于 2020-4-23 12:55
+
+
+
+
+看了阿媂娅的ow我才发现真的不完全是ow的问题，有实力确实好看不少(也有怪叫<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6758#       发表于 2020-4-23 12:56
+
+
+
+
+stf这话可以理解为ruki技术上不去，再不下心思在互动上，上限也快要到了，改变才是好事，但显然对她来说改变技术更难
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 6759#       发表于 2020-4-23 12:58
+
+
+
+
+miki声音还蛮好听的
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6760#       发表于 2020-4-23 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174707&amp;ptid=1909283" target="_blank">曜不能停 发表于 2020-4-23 12:56</a>
+
+stf这话可以理解为ruki技术上不去，再不下心思在互动上，上限也快要到了，改变才是好事，但显然对她来说改 ...</blockquote>
+对ruki这种我没错我就是一根筋的人来说，从不会到学会边打边卖萌比提升技术恐怕难不少，有点强人所难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6761#       发表于 2020-4-23 13:00
+
+
+
+
+上次Ruki播PUBG还是apex来着，问弹幕喜欢看她玩PUBG还是ow还是apex，结果绝大部分都是apex，她还很困惑<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6762#       发表于 2020-4-23 13:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 6763#       发表于 2020-4-23 13:07
+
+
+
+
+蘑菇人刚发的动态怎么解读？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6764#       发表于 2020-4-23 13:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174742&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-23 12:59</a>
+
+对ruki这种我没错我就是一根筋的人来说，从不会到学会边打边卖萌比提升技术恐怕难不少，有点强人所难[f:06 ...</blockquote>
+ruki要是能像版主那样边打游戏边分析局势，ow这游戏认个角色又不像dota2那么难，观感肯定要好不少，问题在于ruki也没这技术，看她ow还没阿堇的ow有意思<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+ps：版主对我这种多年不打dota2的人来说太友好了，记大招cd算血量还有局势判断，不得不佩服，所以只要版主播dota2我肯定会开直播看，反而ruki播ow我就不会看
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 6765#       发表于 2020-4-23 13:09
+
+
+
+
+有没有我最喜欢的互撕头花环节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6766#       发表于 2020-4-23 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174800&amp;ptid=1909283" target="_blank">Fakerの幻影 发表于 2020-4-23 13:04</a>
+
+净土宗一堆看不惯staff的，之前嫌弃说没有staff管理，现在又说staff多管闲事 ...</blockquote>
+你说的“一堆”加起来也就勉强一页啊。而且对STAFF抱怨也分人，星沙说的那就万事大吉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+毕竟不是VR楼热点人物，换成光一或MIKI那可就不是一页两页的事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+QQ截图20200423130710.png
+(11.33 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-23 13:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/23/130743urgjx5989m6vabx8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6767#       发表于 2020-4-23 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174864&amp;ptid=1909283" target="_blank">曜不能停 发表于 2020-4-23 13:08</a>
+
+ruki要是能像版主那样边打游戏边分析局势，ow这游戏认个角色又不像dota2那么难，观感肯定要好不少，问题 ...</blockquote>
+阿堇除了声音萌点，她播OW跟RUKI没啥区别。还是骚话怪话有意思，参考寿寿歌阿媂娅SAYA。
+
+
+
+
+
+
+
+-----
+
+####  darkclouds  
+##### 6768#       发表于 2020-4-23 13:18
+
+
+
+
+经典人菜瘾大，何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6769#       发表于 2020-4-23 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174955&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-23 13:16</a>
+
+阿堇除了声音萌点，她播OW跟RUKI没啥区别。还是骚话怪话有意思，参考寿寿歌阿媂娅SAYA。 ...</blockquote>
+我不就这意思，水平不行好歹有点其他东西看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6770#       发表于 2020-4-23 13:20
+
+
+
+
+有会解梦的吗？分析一下蘑菇人的梦
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6771#       发表于 2020-4-23 13:20
+
+
+
+
+saya ssg确实播ow我有时间碰上了还会看一会儿，起码有点味道。不过总的来说，ow这游戏还是不行，有别的选择我基本不会看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 6772#         楼主| 发表于 2020-4-23 13:28
+
+
+
+ 本帖最后由 萌之上弥人 于 2020-4-23 13:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174995&amp;ptid=1909283" target="_blank">Mika-S 发表于 2020-4-23 13:20</a>
+
+saya ssg确实播ow我有时间碰上了还会看一会儿，起码有点味道。不过总的来说，ow这游戏还是不行，有别的选择 ...</blockquote>
+这种需要游戏水平/解说水平才有观赏性的游戏，在两个主播差距过大的时候，完全是赢者通吃，只会剩下小部分gachi可能还看
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6773#       发表于 2020-4-23 13:35
+
+
+
+
+Ruki打ow可以说是最无聊的那档，说明staff看的还是清啊
+
+
+
+
+
+
+
+-----
+
+####  文长ddd  
+##### 6774#       发表于 2020-4-23 13:36
+
+
+
+
+不是ow游戏的问题，我感觉是他们玩的英雄问题，你看他们玩什么安娜艾什天使大锤希格玛。这些英雄玩起来本身就很枯燥，直播效果自然不好。
+
+（其实我就是想看一个v玩铁拳全场飞来飞去杀奶妈然后暴毙，大喊一声锤妹nt。那节目效果该多好啊）
+
+
+
+
+
+
+
+-----
+
+####  MagiczZ  
+##### 6775#       发表于 2020-4-23 13:52
+
+
+
+<blockquote>文长ddd 发表于 2020-4-23 13:36
+不是ow游戏的问题，我感觉是他们玩的英雄问题，你看他们玩什么安娜艾什天使大锤希格玛。这些英雄玩起来本身 ...</blockquote>
+暗示pva出道
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6776#       发表于 2020-4-23 14:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来版主也到家了，我梦寐以求的dota天梯100分要来了
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6777#       发表于 2020-4-23 14:26
+
+
+
+
+一果准阳角这个标签是从哪来的？单人直播还是联动？
+
+要是说stf想拉一果一把我还信，把她培养成外交大使还是算了吧
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6778#       发表于 2020-4-23 14:29
+
+
+
+
+我佛了，s1转nga，nga转s1，转来转去讨论人数能不能填满一个群，我尚且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6779#       发表于 2020-4-23 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47175754&amp;ptid=1909283" target="_blank">jkol 发表于 2020-4-23 14:29</a>
+我佛了，s1转nga，nga转s1，转来转去讨论人数能不能填满一个群，我尚且蒙古 ...</blockquote>
+其实都是一波人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 6780#       发表于 2020-4-23 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174847&amp;ptid=1909283" target="_blank">ktmoon 发表于 2020-4-23 13:07</a>
+
+蘑菇人刚发的动态怎么解读？</blockquote>
+暗示要叛逃（联动）<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6781#       发表于 2020-4-23 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47175708&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-23 14:26</a>
+
+一果准阳角这个标签是从哪来的？单人直播还是联动？
+
+要是说stf想拉一果一把我还信，把她培养成外交大使还是 ...</blockquote>
+建议逼着版主学日语，让版主当外交大使<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+稳重老男人谁不爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6782#       发表于 2020-4-23 14:46
+
+
+
+
+一果动不动在微博怨天尤人的怎么还准阳角了，ruki都更阳一点吧
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6783#       发表于 2020-4-23 14:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真没劲阿，你ruki节目效果被隔壁同样游戏的阿媂娅吊起来打，就这?
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 6784#       发表于 2020-4-23 15:13
+
+
+
+
+都说ru皇开团我翻了半天没看到是怎么开的结果原来是那一条我还点过赞的动态。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现在这开团成本也忒低了，再说staff干的不就这事，另外这语气和力度和本社那几个水平差远了，纯粹一被训女生发个牢骚程度。
+
+syl，没有版主的天梯掉分看我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                       
