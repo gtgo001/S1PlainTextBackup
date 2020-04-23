@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-23 00:02** 
+> ## **本文件最后更新于2020-04-23 12:02** 
 
 
 
@@ -10109,7 +10109,7 @@ mea换mc服务器ip
 
 
 
-<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_yPP8x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://bbs.saraba1st.com/2b/forum.php?mod=image&amp;aid=666558&amp;size=300x300&amp;key=a97add91bcc6f1e5&amp;nocache=yes&amp;type=fixnone" id="aimg_THhHy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11650,7 +11650,7 @@ meaqua联动，紧接着是深夜高质量长时间（3小时）歌回
 
 
 
-<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_FTRvN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
+<img src="https://pbs.twimg.com/media/EVvzkudUYAACEmm?format=jpg&amp;name=large" id="aimg_PHjC0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)犬山整活了
 
 
 
@@ -26212,4 +26212,959 @@ yysy，上次tc也没车轱辘啊，苔式车轱辘怕不是犬山频道的惯�
 
 
 
- 
+
+
+-----
+
+####  単推し人  
+##### 17952#       发表于 2020-4-23 00:54
+
+
+
+
+其实可以多搞观众参与型直播的，前几次的发录音之类的效果不是很好么，很有趣，我之前好像也听她说生日回想搞观众参与型的样子，说起来还有一个人生商谈回搁置着呢
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17953#       发表于 2020-4-23 01:09
+
+
+
+
+观众参与型偶尔搞搞可以，不能常来，过度拉近和观众的距离还是不太好
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17954#       发表于 2020-4-23 01:12
+
+
+
+
+已经够近的了.jpg
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17955#       发表于 2020-4-23 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47170664&amp;ptid=1912063" target="_blank">无限舰制 发表于 2020-4-23 01:12</a>
+已经够近的了.jpg</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 17956#       发表于 2020-4-23 01:35
+
+
+
+
+出不了门没有段子灵感就从观众身上找呗，不管是直播时实时互动也好，就像上次那种直播时观众发推配合咩那类，还是提前收集的棉花糖之类的，感觉要找的话还是能整出不少活的，比如可以搞一个怪文书长文大赛，看谁让阿咩觉得最kimo，大🔥不是最擅长这个了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2111X  
+##### 17957#       发表于 2020-4-23 01:42
+
+
+
+
+可是为什么现在不播呢<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17958#       发表于 2020-4-23 02:04
+
+
+
+
+对着吵闹的隔壁放就能让他们安静下来的神乐mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/a0ed6e17d26a659375c6a9ab754bae58/1d4a4db79d68c9ca.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 17959#       发表于 2020-4-23 06:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47170897&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-04-23 02:04:39</a>
+对着吵闹的隔壁放就能让他们安静下来的神乐mea</blockquote>止战之殇
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 17960#       发表于 2020-4-23 08:12
+
+
+
+
+咩咩保佑我今天黑骑池不交井  我不想和睿叔叔睡<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">   上次碧蓝活动去隔壁拜了下  结果抽吐了  隔壁真的不行
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17961#       发表于 2020-4-23 08:26
+
+
+
+
+咩咩保佑我10连出纯，因为你不是运营所以不想和运营睡<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+算了，咩咩保佑我可以和你困觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17962#       发表于 2020-4-23 08:28
+
+
+
+ 本帖最后由 时雨rain 于 2020-4-23 08:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">怎么这里成朝拜堂了
+syl咩宝保佑我出黑骑<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17963#       发表于 2020-4-23 08:54
+
+
+
+
+住手啊你们要朝拜去隔壁天使堂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，或者再建一个咩咩朝拜堂。
+
+（sly 有人在夸夸楼里朝拜，有人在咩咩楼里朝拜，所以六字母贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17964#       发表于 2020-4-23 09:34
+
+
+
+
+好歹这个做过工商（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 17965#       发表于 2020-4-23 10:13
+
+
+
+
+就事啊，所以我不会让她保佑我别卡船<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 17966#       发表于 2020-4-23 10:31
+
+
+
+
+今天接着播pcr?
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17967#       发表于 2020-4-23 10:31
+
+
+
+
+她要抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议一起抽
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17968#       发表于 2020-4-23 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">切撸！切撸切撸！
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17969#       发表于 2020-4-23 10:33
+
+
+
+ 本帖最后由 aisakahammer 于 2020-4-23 10:35 编辑 
+
+ PCR 抽切噜 还行吧
+
+<img src="https://img.saraba1st.com/forum/202004/23/103439zit2pw5wz85ntxty.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200423103410.jpg</strong> (53.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-23 10:34 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/23/103446jjjopqe1eeogrgze.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200423103419.png</strong> (39.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-23 10:34 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/23/103454jtlkj68gajtokf8g.gif" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200423103415.gif</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2020-4-23 10:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17970#       发表于 2020-4-23 10:36
+
+
+
+
+她被自己的工商劝诱了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17971#       发表于 2020-4-23 10:38
+
+
+
+
+  这可是光明佐仓绫音啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17972#       发表于 2020-4-23 10:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">得，咩宝要把自己工商赚的还回去了说不定还倒贴
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17973#       发表于 2020-4-23 10:39
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：プリコネのチエルちゃんって子かわいい！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+今日ガチャ配信しようかな！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+媒体：[]
+链接：[]
+时间：2020-04-23 02:28:38 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1253148747338407937
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17974#       发表于 2020-4-23 10:40
+
+
+
+
+游戏工商化倒贴还行，这很正常
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17975#       发表于 2020-4-23 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播哪个服啊
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 17976#       发表于 2020-4-23 10:41
+
+
+
+
+mea这是要播PCR抽卡？毕竟BCR好像还没有这个角色的样子
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 17977#       发表于 2020-4-23 10:43
+
+
+
+
+日服啊，整个石头号就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 17978#       发表于 2020-4-23 10:46
+
+
+
+
+有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 17979#       发表于 2020-4-23 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用国服工商的钱氪日服？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17980#       发表于 2020-4-23 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">献祭咩咩抽卡体验给我一个黑骑啊啊啊啊啊啊啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 17981#       发表于 2020-4-23 10:48
+
+
+
+
+  PCR 送的石头超多的， 这点是可以放心的。
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17982#       发表于 2020-4-23 11:00
+
+
+
+
+自我工商？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 17983#       发表于 2020-4-23 11:01
+
+
+
+ 本帖最后由 Sanguine 于 2020-4-23 11:02 编辑 
+
+听说日服未成年氪金有上限？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">38岁人设崩塌预感
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17984#       发表于 2020-4-23 11:01
+
+
+
+
+-1500💎
+
+📄🏃‍♀️☁️
+
+🚪👐🚪
+
+素敵な仲間が増えますよ！
+
+📄📄📄📄📄
+
+📄📄📄📄📒
+
+🔮x1🔮x1🔮x1🔮x1🔮x1
+
+🔮x1🔮x1🔮x1🔮x1🔮x10
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17985#       发表于 2020-4-23 11:03
+
+
+
+
+你就这么喜欢粉毛水母头吗.jpg
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17986#       发表于 2020-4-23 11:03
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：19：00スタートか20：00スタートの予定！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+またツイートする！！！！！！！！！！！！！！！！！！！！！！！
+媒体：[]
+链接：[]
+时间：2020-04-23 03:03:00 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1253157397725470720
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 17987#       发表于 2020-4-23 11:04
+
+
+
+ 本帖最后由 IrisL 于 2020-4-23 11:06 编辑 
+
+切鲁可还行，下体党必抽直接整一个带人权的初始号不贵的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 17988#       发表于 2020-4-23 11:05
+
+
+
+ 本帖最后由 小博禹 于 2020-4-23 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47173094&amp;ptid=1912063" target="_blank">Sanguine 发表于 2020-4-23 11:01</a>
+听说日服未成年氪金有上限？38岁人设崩塌预感</blockquote>
+影之诗氪金是小于18岁的一个档，18到20一个档
+
+等下暴露了咩妹代播，咩咩其实在外面参加他最爱的乱趴
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 -11
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer|-2|恶意骗鹅|
+| GRMeA104|-1|回来一看还多了一句|
+| WhiteAvalon|-1|闲呐|
+| Sanguine|-2|特地编辑加上最后一句还行|
+| Cla0221|-1|傻逼|
+| h1001010|-1|不要乱趴不要乱趴|
+| Ky·Kiske|-1|放过杏爱趴吧|
+| weiweiEX|-1||
+| A2014720|-1|咋就不长记性呢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 17989#       发表于 2020-4-23 11:14
+
+
+
+
+啊咩抽511的时候486会赞助么？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17990#       发表于 2020-4-23 11:14
+
+
+
+
+等会儿咩咩现在过了个生日是19还是20了？<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 17991#       发表于 2020-4-23 11:21
+
+
+
+ 本帖最后由 JustW 于 2020-4-23 11:27 编辑 
+
+在本楼推一个漫画：[https://m.dmzj.com/info/53456.html](https://m.dmzj.com/info/53456.html) 是偶像，也是有两个孩子的单身母亲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/23/112715br5kbbwn6jrfdjt3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>WechatIMG1360.jpeg</strong> (141.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-23 11:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 17992#       发表于 2020-4-23 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47173348&amp;ptid=1912063" target="_blank">JustW 发表于 2020-4-23 11:21</a>
+在本楼推一个漫画：https://m.dmzj.com/info/53456.html 是偶像，也是有两个孩子的单身母亲 ...</blockquote>
+这漫画在漫区还看到有人水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光看名字挺正常，结果神展开
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 17993#       发表于 2020-4-23 11:27
+
+
+
+
+疫情没事干靠玩手游打发时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17994#       发表于 2020-4-23 11:33
+
+
+
+
+19明年20。小麻会不会参加成人礼呢？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 17995#       发表于 2020-4-23 11:35
+
+
+
+
+话题和游戏都来了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 17996#       发表于 2020-4-23 11:45
+
+
+
+
+会蹭热度了，渐行渐远了，她不会是和阿b签了不可描述的协议吧，被阿b的专业经济人指导，面见，接而发生丑闻等等等等。。。。。。也快到那个日子了，要死了要死了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17997#       发表于 2020-4-23 11:47
+
+
+
+
+小麻到时候20了会不会有饮酒配信啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17998#       发表于 2020-4-23 11:49
+
+
+
+
+完了完了， 和阿b日本分部人员出去应酬喝酒<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 17999#       发表于 2020-4-23 11:52
+
+
+
+
+你们不会从好一点的方向思考吗？也许就是单纯对pcr感兴趣。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|草， 楼友95%是rp|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 18000#       发表于 2020-4-23 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47173789&amp;ptid=1912063" target="_blank">离心 发表于 2020-4-23 11:52</a>
+你们不会从好一点的方向思考吗？也许就是单纯对pcr感兴趣。</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
