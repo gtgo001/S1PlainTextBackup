@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-23 16:00** 
+> ## **本文件最后更新于2020-04-24 00:00** 
 
 
 
@@ -14707,4 +14707,1264 @@ syl，没有版主的天梯掉分看我要死了<img src="https://static.saraba1
 
 
 
-                       
+
+
+-----
+
+####  黑糖花园  
+##### 6785#       发表于 2020-4-23 18:19
+
+
+
+
+昨天版主直播间有人乱说话吗，好像听到他用很认真的语气说弹幕什么，神灵庙那里
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  HSNYKE/EKPL  
+##### 6786#       发表于 2020-4-23 18:21
+
+
+
+<blockquote>黑糖花园 发表于 2020-4-23 18:19
+昨天版主直播间有人乱说话吗，好像听到他用很认真的语气说弹幕什么，神灵庙那里
+
+
+—— 来自 Sony J9110, An ...</blockquote>
+弹幕有个人说死人庙 蔑称还是不太合适
+
+
+
+
+
+
+
+-----
+
+####  苹果丧尸  
+##### 6787#       发表于 2020-4-23 19:19
+
+
+
+ 本帖最后由 苹果丧尸 于 2020-4-23 19:39 编辑 
+
+
+
+
+
+<img src="https://s1.ax1x.com/2020/04/23/Jd77l9.png" referrerpolicy="no-referrer">
+
+《小拳拳锤你呀》
+
+<[strong>不定时更新的非官方鸟语电台</strong>](http://music.163.com/radio/?id=794429540)
+http://music.163.com/radio/?id=794429540
+
+<img src="https://static.saraba1st.com/image/hrline/5.gif" referrerpolicy="no-referrer">
+
+<strong>2020.4.23更新日志：</strong>
+
+
+*更新了四月七日和九日两次<strong>非正式歌回</strong>中练习的17+11共<strong>28首歌</strong>
+
+-部分歌曲只有半首，内含大量口胡和哼唱，但七日晚间唱地基本都很认真
+
+-推测是在为之后的正式歌回做准备，也有可能只是随性唱唱
+
+
+*新增了四月七日、八日、九日三次非正式歌回的<strong>歌曲切片整理</strong>
+
+-三个文件共计34首歌<strong>可以一口气听完了</strong>！
+
+-<strong>文件较大</strong>，推荐在有Wifi的环境中提前下载或缓存歌曲文件，是您上班上学地铁公交打发时间的不二之选
+
+-原始文件音量较小(增益后人声失真问题较为显著)，如果佩戴耳机高音量使用的话，需要注意切到其他歌曲时可能存在鼓膜受损的风险
+
+-九日十一首推荐睡前使用
+<img src="https://s1.ax1x.com/2020/04/23/Jd7HyR.png" referrerpolicy="no-referrer">
+
+
+*更新了四月十九日大头菜睡眠直播间的即兴朗读中文音声台本
+
+-《您订购的机器人女友到货了，一起happy吧》一则
+<strong>台词节选：“......谁让人家这么喜欢你呢；主人，你怎么能摸我的丝袜呢，太痒了，好痒呢......”</strong>
+
+-《幻想的姐姐》一则
+
+-《&lt;幻想的姐姐&gt;阅后感——小拳拳锤你呀》一则
+
+-后期添加了用以带动气氛的BGM
+
+-去除了部分卡壳内容(笑场的救不回来)
+
+<img src="https://static.saraba1st.com/image/hrline/5.gif" referrerpolicy="no-referrer">
+
+<strong>歌曲列表</strong>
+
+注：前标时间为录播档的具体位置
+
+【4.7精神安定夜谈】
+
+1.2;12;37-2;17;16 別の人の彼女になったよ
+
+2.2;21;58-2;27;37 世界は恋に落ちている
+
+3.2;29;43-2;34;16 心拍数♯0822
+
+4.2;36;00-2;40;03 不可思議のカルテ
+
+5.2;44;23-2;46;50 破滅の純情
+
+6.2;47;58-2;52;57 远い音楽
+
+7.2;53;07-2;56;45 ルル
+
+8.2;57;17-3;02;16 Last Kiss
+
+9.3;03;52-3;08;25 リトルリドル
+
+10.3;08;59-3;13;58 奏(かなで)
+
+11.3;14;14-3;20;28 星のかけらを探しにいこうagain
+
+12.3;21;08-3;25;40 アイル
+
+13.3;26;34-3;30;28 数え歌
+
+14.3;31;50-3;35;04 まっくら森の歌
+
+15.3;37;45-3;42;11 Storm in Lover
+
+16.3;43;34-3;47;10 soldier game
+
+17.3;48;50-3;54;07 Mermaid festa vol.2 ~Passionate~
+
+【4.09有人说话的音乐电台】
+
+1.3;02;08-3;07;56 一番の宝物
+
+2.3;08;14-3;14;10 Wishing「RE:0」挿入歌
+
+3.3;16;36-3;21;17 初恋「月がきれい」挿入歌
+
+4.3;24;26-3;26;36 you「冴えない彼女の育てかた」霞ヶ丘诗羽Ver半首
+
+5.3;28;28-3;30;47 YAGOO大家族半首
+
+6.3;33;23-3;37;33 可愛くなりたい
+
+7.3;39;46-3;40;29 ときめきポポロン♪半首
+
+8.3;44;18-3;48;08 ハートビート・フロムユー
+
+9.3;50;00-3;51;57 Don't be afraid!
+
+10.3;56;30-4;01;42 いつもこの場所で
+
+11.4;01;45-4;04;34 羽音Hanon自产ED
+
+<strong>中文音声后期BGM</strong>
+
+1.愛を教えて「Clover Day's」MANYO/三輪学
+
+2.トゥルー・トゥルー~ピアノ・ヴァージョン(日向大介)
+
+3.Old Memory『ヨスガノソラ』オリジナルサウンドトラック-New-
+
+4.帝国のマーチ(ダース・ベイダーのテーマ)
+
+
+
+
+其他：
+
+1.本文参考了前人的资料整理与宣发模式，站在巨魔的肩膀上爬地更远——贝尔法斯特
+
+2.下次想起这个账号密码不知道是啥时候，更新随缘
+
+3.近来强对流天气造成全国多地大范围降温降水，望坛友注意添衣防寒外出备伞，最后祝您身体健康
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 夕才| + 1||
+| Havik| + 1|好评加鹅|
+| 黑糖花园| + 1|好评加鹅|
+| lunaticfool| + 1|好评加鹅|
+| 不吃布丁的宫子| + 1|好评加鹅|
+| Rosefinch| + 1||
+| Kyonkon| + 1|好评加鹅|
+| x1034| + 1|好评加鹅|
+| NeTlk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6788#       发表于 2020-4-23 19:26
+
+
+
+
+话说火鸡这种会直播看论文的人怎么不玩极乐迪斯科
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6789#       发表于 2020-4-23 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47179558&amp;ptid=1909283" target="_blank">好德我基 发表于 2020-04-23 19:26:27</a>
+话说火鸡这种会直播看论文的人怎么不玩极乐迪斯科</blockquote>印象中鸟神和ssg都播过一次，这游戏就不适合直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6790#       发表于 2020-4-23 20:49
+
+
+
+
+听了听ruki直播，居然把stf让不直播ow等同于不能继续喜欢这个游戏，这什么脑回路
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 6791#       发表于 2020-4-23 20:51
+
+
+
+
+想有直播效果你得有举重若轻的能力，就上次vr社内那个ow联动都给我看傻了，分到水友边的v就开启自闭模式，就这还要玩ow？我是staff的话我已经进icu了
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6792#       发表于 2020-4-23 21:06
+
+
+
+
+这波啊，这波是糊弄观众，反正管人观众挺好糊弄的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AEmpire  
+##### 6793#       发表于 2020-4-23 21:14
+
+
+
+
+VR的OW水平真的拉垮，上次那个风祭搞的OW比赛，对面一个奶C4000分的个人势用副T把VR这边吊起来打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6794#       发表于 2020-4-23 21:32
+
+
+
+
+这点事能专门开个正儿八经的吐苦水回，是熟悉的ru爹。
+
+
+PS：鸟神王朝是不可能复辟的。
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6795#       发表于 2020-4-23 21:37
+
+
+
+
+结论，还是要多练。
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6796#       发表于 2020-4-23 21:38
+
+
+
+
+让天天播ow还没有节目效果的ruki粉丝最多，vr每个人都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6797#       发表于 2020-4-23 21:47
+
+
+
+
+既然直播看着没意思为啥非要在ow这个破游戏上吊死呢，玩玩独立打打单机不也挺好的吗。
+
+
+syl：ru皇说自己技术到了瓶颈期，要突破必须多练，说实话，我怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 6798#       发表于 2020-4-23 21:55
+
+
+
+
+之前就车过为什么vr那么喜欢ow，只能是真爱了，这都算了，多少要对播ow的节目效果有点自知之明吧
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6799#       发表于 2020-4-23 21:59
+
+
+
+
+苦水回，又有以前看vr的感觉了
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6800#       发表于 2020-4-23 22:01
+
+
+
+
+比作田忌赛马的话，ru皇的上等马是歌力才对，为什么要拿自己的中等马ow和别人的上等马打呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有把ow练到holocn那位的时间不如多录几个十万级别的稿子再蹭蹭冷鸟不是爽爆了，当然也不是不能播ow
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6801#       发表于 2020-4-23 22:13
+
+
+
+
+播ow还是等ow2出来再说吧，讲真没搞明白暴雪这么早把ow2的消息放出来是为什么，要是快出了还行，这又放个echo出来拖时间。
+
+syl 播apex和pubg都行，完全不指望她们玩cod，这游戏更搞心态
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6802#       发表于 2020-4-23 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂录歌肯定不行，会占用很多直播时间的，毕竟vliver不是vsinger，发歌是为了吸引粉丝转化成看直播的粉。播ow不是不行，技术流、骚话流、怪叫流总得选一种，技术打不过只能别的方面想想办法了。
+
+顺便顺劈一下弥宝，现在是因为学业播的少，之前发歌天天画曲绘导致没时间播。你不播，怎么把歌吸引来的粉丝转化成直播粉丝。
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6803#       发表于 2020-4-23 22:16
+
+
+
+
+星沙还在弹幕里解释，这vr的staff是真的难做
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6804#       发表于 2020-4-23 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47179558&amp;ptid=1909283" target="_blank">好德我基 发表于 2020-4-23 19:26</a>
+
+话说火鸡这种会直播看论文的人怎么不玩极乐迪斯科</blockquote>
+这种游戏还是自己玩有意思
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6805#       发表于 2020-4-23 22:23
+
+
+
+
+极乐迪斯科这游戏也有雷在里面，去查查康米主义是啥，汉化组想到很全面了。而且这游戏真就自己玩有意思
+
+
+
+
+
+
+
+-----
+
+####  轮回的焰  
+##### 6806#       发表于 2020-4-23 22:27
+
+
+
+
+vr还是那吊样，一二期生一年下来有明显进步的就一个艾因。其他的除了粉丝数字高了其他有什么变化。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6807#       发表于 2020-4-23 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47181512&amp;ptid=1909283" target="_blank">lxccsnm 发表于 2020-4-23 22:16</a>
+
+星沙还在弹幕里解释，这vr的staff是真的难做</blockquote>
+难做也得做啊。
+
+
+MIKI现在正说着今天下午被斯达夫警告了：“你跟八期生互动是最少的，请抓紧改正”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">放以前哪管这么细，好起来力。
+
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6808#       发表于 2020-4-23 22:31
+
+
+
+
+别说的那么直白嘛，艾因变了那叫成长，ru皇不变那叫人设。
+
+虚拟的事情，怎么能叫没长进呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6809#       发表于 2020-4-23 22:33
+
+
+
+
+其实真的要高强度开始管理又提前感觉没意思了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这应该不属于业界常态吧，还是，只是vr的主播会这么肆无忌惮向观众倒苦水而别的主播不会说
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6810#       发表于 2020-4-23 22:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">倒苦水也是养gachi的一环吧
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6811#       发表于 2020-4-23 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47181048&amp;ptid=1909283" target="_blank">lxccsnm 发表于 2020-4-23 21:38</a>
+
+让天天播ow还没有节目效果的ruki粉丝最多，vr每个人都有责任</blockquote>
+这可是有拜年祭加bml加持的（虽然拜年祭不是什么c位【对比沃玛、谢拉】）
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6812#       发表于 2020-4-23 22:39
+
+
+
+ 本帖最后由 ocyashiroi 于 2020-4-23 22:42 编辑 
+
+也别培养什么ru皇了
+
+培养678吧
+
+感觉比前5期有潜力多了（不算版主、艾因，惑姬不摸鱼也可以不算；7期也不算某火腿
+
+说不定可以在V圈爆炸的时候涅槃
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6813#       发表于 2020-4-23 22:40
+
+
+
+ 本帖最后由 丶彼岸花开丶 于 2020-4-23 22:47 编辑 
+
+vr的八期生抽到几个优质卡，不知道有几个能保证高强度直播的，七期生一个相当于没有，一个半摸鱼，只靠saya一个人撑场面，这卡抽的也太离谱了。
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6814#       发表于 2020-4-23 22:43
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-4-23 22:44 编辑 
+
+前面一个穿ig队服突然想起jkl，一转假哭，
+
+下一位出场立马: jkl是谁？不认识
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge42yztwc2j20n50djgz3.jpg" referrerpolicy="no-referrer">
+
+关注警察出警， 看到关注后，dd啊，那没事了
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不吃布丁的宫子| + 1|大佬每次都能发现好康的，爱了爱了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6815#       发表于 2020-4-23 22:44
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-23 22:47 编辑 
+
+不太能想象到虹杏哪个主播跟观众说“我最近跟社内互动少了所以被staff说了”，然后坦言“对他人不关心才是常态”，接下来会发生什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+表面功夫还是得做的啊，至少不该拿到直播里说。
+
+
+省一楼，lulu这个DD真人选美槽点好多，草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">hololive的袋子
+
+
+
+
+
+
+
+
+
+QQ截图20200423224624.png
+(611.99 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-23 22:47 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/23/224705dw7r2st56fuo8srk.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AEmpire  
+##### 6816#       发表于 2020-4-23 22:45
+
+
+
+
+高强度管理怎么就不是业界常态了，大福熊猫人当年也经常在直播里提被staff骂的事，就连以放养闻名的虹都如此，更别说其他箱了。
+
+既然自己说了把直播当工作，那能不能先职业一点，本来可以和staff私下解决的直播路线问题，非要拿到台面上拿自己粉丝压staff，吓唬谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  links8018  
+##### 6817#       发表于 2020-4-23 22:46
+
+
+
+
+八期生奶一波花留吧，罗伊推荐的，最起码下限保住了，而且发的两个视频播放量都过十万了，也很清楚观众想看什么。
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 6818#       发表于 2020-4-23 22:47
+
+
+
+
+直播跟观众找认同就很离谱，观众能给你什么反馈，尤其是抱怨性质的直播，能看下去的大多不都是全肯定bot，整个直播能找到哪怕一丝的吸引其他观众的出路吗，直说守着一亩三分地不想动也许还豁达一些
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6819#       发表于 2020-4-23 22:49
+
+
+
+
+草miki今天是小作文青春回忆回
+
+配合miki论坛发的小说可真是回味无穷（
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6820#       发表于 2020-4-23 22:50
+
+
+
+
+花留是播fps的，话题又绕回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6821#       发表于 2020-4-23 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以VR八期生什么时候首播有说了吗
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6822#       发表于 2020-4-23 22:51
+
+
+
+
+顺便一提，米奇想写一个人倒在另一个人怀里的剧情，虽然只是纯粹想写结果不想写过程<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 6823#       发表于 2020-4-23 22:52
+
+
+
+
+miki这口癖又加重了
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6824#       发表于 2020-4-23 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47181915&amp;ptid=1909283" target="_blank">Kyonkon 发表于 2020-4-23 22:51</a>
+
+所以VR八期生什么时候首播有说了吗</blockquote>
+这就太云了，昨天就公布了
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6825#       发表于 2020-4-23 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒苦水又不是坏事，真情实感是养gachi的一种方式。不如说ruki倒的频率可以说极低了，v不是一图流倒垃圾多得是么。
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6826#       发表于 2020-4-23 22:58
+
+
+
+
+速报，miki逐渐丧失“爱”的感情，被亲母认定与父亲越来越像
+
+果然女随父亲，男随母亲这种说法不是假的（
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6827#       发表于 2020-4-23 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47181943&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-23 22:52</a>
+
+这就太云了，昨天就公布了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">看直播没看动态而已，这也算云了吗
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6828#       发表于 2020-4-23 23:05
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-4-23 23:07 编辑 
+
+lulu这期企划 投稿还挺多，感觉挺像口罩时期buff，池面除外
+
+[https://t.bilibili.com/topic/name/lulu%E9%80%89%E7%BE%8E/feed](https://t.bilibili.com/topic/name/lulu%E9%80%89%E7%BE%8E/feed)
+
+
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6829#       发表于 2020-4-23 23:16
+
+
+
+<blockquote>wuaistage1 发表于 2020-4-23 22:44
+不太能想象到虹杏哪个主播跟观众说“我最近跟社内互动少了所以被staff说了”，然后坦言“对他人不关心才是 ...</blockquote>
+柴卡的那个新年mix up看了吗？
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6830#       发表于 2020-4-23 23:23
+
+
+
+ 本帖最后由 ocyashiroi 于 2020-4-23 23:24 编辑 
+
+问一下
+
+ru皇和星沙这个
+
+可不可以算第一个实锤的社内不仲啊
+
+毕竟ru皇都开了苦水回了
+
+一开始我还以为星沙是来背锅的
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6831#       发表于 2020-4-23 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47182171&amp;ptid=1909283" target="_blank">穆幕姆 发表于 2020-4-23 23:16</a>
+
+柴卡的那个新年mix up看了吗？</blockquote>
+小半年没看彩虹了，他说啥了？ 其实我重点是说像holo这样注重大家庭氛围的公司（粉丝脑内），VR也类似。不过VR也不止弥宝一个人YYGQ过温暖大家庭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6832#       发表于 2020-4-23 23:28
+
+
+
+
+ruki照着白洋葱抄不就完事了。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6833#       发表于 2020-4-23 23:30
+
+
+
+ 本帖最后由 kaion111 于 2020-4-23 23:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能叫不仲吗，staff对v的直播内容进行干涉不是职责吗，不然要你干啥，yysy讲的不无道理。
+
+syl，弥宝悄悄暗示西米露半年纪念是hsm不想弄，能不能锤一个不仲。
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6834#       发表于 2020-4-23 23:31
+
+
+
+
+职业人士不会发牢骚，没有我克服不了的困难
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6835#       发表于 2020-4-23 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47182309&amp;ptid=1909283" target="_blank">穆幕姆 发表于 2020-4-23 23:31</a>
+职业人士不会发牢骚，没有我克服不了的困难</blockquote>
+那个指的是阿萨播爆了公司电脑，在修电脑
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6836#       发表于 2020-4-23 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47182230&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-23 23:23</a>
+
+问一下
+
+ru皇和星沙这个
+
+可不可以算第一个实锤的社内不仲啊</blockquote>
+这也叫不仲的话，兄啊你眼里的社会到底是怎样一副美好场景<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6837#       发表于 2020-4-23 23:35
+
+
+
+<blockquote>wuaistage1 发表于 2020-4-23 23:28
+小半年没看彩虹了，他说啥了？ 其实我重点是说像holo这样注重大家庭氛围的公司（粉丝脑内），VR也类似。 ...</blockquote>
+彩虹人太多了，然后游戏环节说要不最后一名直接毕业吧。不过柴卡也就是嘴上说说就是了
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6838#       发表于 2020-4-23 23:38
+
+
+
+<blockquote>kaion111 发表于 2020-4-23 23:31
+那个指的是阿萨播爆了公司电脑，在修电脑</blockquote>
+这样啊，我没看阿萨直播，还以为vr要出狐皇了呢
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6839#       发表于 2020-4-23 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47182284&amp;ptid=1909283" target="_blank">IDIDIDID 发表于 2020-4-23 23:28</a>
+
+ruki照着白洋葱抄不就完事了。</blockquote>
+这要是想抄就能抄那人人都是职业选手了
+
+人家打的时候还有功夫分神看弹幕，还有精力解说
+
+
+
+
+
+
+
+-----
+
+####  疾风血誓  
+##### 6840#       发表于 2020-4-23 23:41
+
+
+
+
+西米露现在还有啥纪念的必要吗？MMM48搞点活动还靠谱点，已经过去的就过去吧。
+
+
+
+
+
+
+
+-----
+
+####  lkciub  
+##### 6841#       发表于 2020-4-23 23:42
+
+
+
+
+弥宝劈hsm从不客气，这可能是半年唯一没变的地方。
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6842#       发表于 2020-4-23 23:46
+
+
+
+
+西米露就让它死了吧，再说又是一波对hsm的批判，当初说的那么好听，现在评一个形同陌路不过分吧。
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6843#       发表于 2020-4-23 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47182356&amp;ptid=1909283" target="_blank">穆幕姆 发表于 2020-4-23 23:35</a>
+
+彩虹人太多了，然后游戏环节说要不最后一名直接毕业吧。不过柴卡也就是嘴上说说就是了 ...</blockquote>
+狼性企业这样说不挺正常嘛，但换到VR谁这么开玩笑怕不是自己毕业。
+
+SLY，露宝这个活动DD投稿是真多，看这么久还没看完。。。
+
+
+
+
+
+                     
