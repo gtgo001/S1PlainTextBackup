@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 20:00** 
+> ## **本文件最后更新于2020-04-25 00:00** 
 
 
 
@@ -17170,10 +17170,11 @@ syl，我觉得仓鼠一点都不功利，功利还不去舔舔本社上位势�
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Rosefinch| + 1|欢乐多|
 | 阿达克和稳定| + 1|好评加鹅|
 | 萌之上弥人| + 1|铁anti啊|
 | turtlejk| + 1|好评加鹅|
@@ -17684,6 +17685,25 @@ QQ截图20200424192333.png
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不吃布丁的宫子| + 1|之前做过的《waku麻吉》和日语回都很有趣，.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17739,7 +17759,7 @@ QQ截图20200424192333.png
 
 
 QQ图片20200411052312.png
-(326.76 KB, 下载次数: 0)
+(326.76 KB, 下载次数: 1)
 
 
 
@@ -17784,4 +17804,847 @@ saya这大碴子味咋还越听越亲切了，我有毛病。
 
 
 
-                  
+
+
+-----
+
+####  wuaistage1  
+##### 6934#       发表于 2020-4-24 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194232&amp;ptid=1909283" target="_blank">Mika-S 发表于 2020-4-24 19:44</a>
+
+四代目为什么现在天天掉粉啊，有分析结果吗？我虽然不看，不过偶尔看看感觉评价不是还可以吗，会韩语啊歌 ...</blockquote>
+在哪个版块看见“风评不错”的？就算净土宗那帖子里也就夸一句四语种牛逼，但这玩意又没法直接转化成有趣的直播内容。至于唱歌，现场说不上稳，声线也不够讨喜。口癖有模仿三代的痕迹但卖萌卖蠢又没内味。
+
+
+
+总之抓不出亮点，换成几万粉的账号可能还没事，但70万粉。。。怕不是过半个月就要重新庆祝70万粉了。
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6935#       发表于 2020-4-24 20:07
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-4-24 20:11 编辑 
+
+<img src="http://i.loli.net/2020/04/24/ZRxMQWrBKkjOdJL.jpg" referrerpolicy="no-referrer">
+
+藻藻开两段，熟悉的压着清歌打的套路
+
+
+
+
+
+
+
+-----
+
+####  zs008007  
+##### 6936#       发表于 2020-4-24 20:16
+
+
+
+ 本帖最后由 zs008007 于 2020-4-24 20:18 编辑 
+
+上代的清歌因为舞蹈方面的原因跑的？最近重回来看歌姬觉得这代的清歌肢体语言多了不少，其余几只猴子到没觉得有多大变化
+
+
+希望这次别比个赛又跑一位<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6937#       发表于 2020-4-24 20:24
+
+
+
+
+墨汐跳恋爱循环太违和了，猛男萌舞的感觉。
+
+
+SAYA和度宝赶紧成立个方言组合吧，每天直播唠嗑都可以看。
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6938#       发表于 2020-4-24 20:29
+
+
+
+
+果然歌姬才是硬实力冠军啊 太强了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 6939#       发表于 2020-4-24 20:47
+
+
+
+
+度宝这个学米奇太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zs008007  
+##### 6940#       发表于 2020-4-24 20:48
+
+
+
+ 本帖最后由 zs008007 于 2020-4-24 20:50 编辑 
+
+歌姬群舞太奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+别又跑掉一个啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6941#       发表于 2020-4-24 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195004&amp;ptid=1909283" target="_blank">zs008007 发表于 2020-4-24 20:48</a>
+
+歌姬群舞太奇怪了</blockquote>
+组团跳跟单人难度不一样啊。
+
+
+难为歌姬的这个舞蹈导师了，要透过3D模型抓实际细节缺点，不过确实好专业。
+
+
+
+
+
+
+
+-----
+
+####  小妻水亚美  
+##### 6942#       发表于 2020-4-24 20:56
+
+
+
+
+爹今天直播教学直男撩妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT1929-15, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6943#       发表于 2020-4-24 20:58
+
+
+
+
+呀，度人这不比其他CP营业好看多了么
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6944#       发表于 2020-4-24 21:15
+
+
+
+
+草，歌姬这说是舞蹈特训，结果总分出来舞力最强的2个倒数第二加倒数第三<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+这就是女团嘛。
+
+
+
+
+
+
+
+-----
+
+####  zs008007  
+##### 6945#       发表于 2020-4-24 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195307&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 21:15</a>
+
+草，歌姬这说是舞蹈特训，结果总分出来舞力最强的2个倒数第二加倒数第三
+
+
+这就是女团嘛。 ...</blockquote>
+嘛，去年6月那场还是挺公平公正的
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6946#       发表于 2020-4-24 21:21
+
+
+
+
+草 果然是“人气决选”吗？我白小白老师不要面子的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6947#       发表于 2020-4-24 21:22
+
+
+
+
+我看度人是好起来了，保持这种态势不光直播涨粉还能经常上vr那个官方剪辑引流，最近粉涨的确实也快了不少
+
+
+
+
+
+
+
+-----
+
+####  水浅王八多  
+##### 6948#       发表于 2020-4-24 21:27
+
+
+
+
+度人不错，走出舒适圈了
+
+
+
+
+
+
+
+-----
+
+####  zs008007  
+##### 6949#       发表于 2020-4-24 21:28
+
+
+
+ 本帖最后由 zs008007 于 2020-4-24 21:33 编辑 
+
+歌姬这场没看全部，就看到的部分，去年6月那场比今天强不少，除了有个专业的导师这点。
+
+
+尤其是今年投票太难看了，去年投票部分各家粉丝都挺收敛。
+
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6950#       发表于 2020-4-24 21:30
+
+
+
+
+玉藻教徒今天简直无情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6951#       发表于 2020-4-24 21:33
+
+
+
+
+歌姬本质综艺正常正常
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6952#       发表于 2020-4-24 21:37
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-4-24 21:42 编辑 
+
+最后几分钟玉藻那边爆了几百万票直接把卡缇娅摁下去了，看得我一脸懵逼，原来玉藻神教教徒们这么强的吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6953#       发表于 2020-4-24 21:42
+
+
+
+ 本帖最后由 死去的御景柚姬 于 2020-4-24 21:45 编辑 
+
+六期本来就没有一个省油的灯啊，感觉之前只是被脑控pua了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在独立出来重新找回了自信，企划联动整活，不说效果，至少都尝试搞起来了。
+
+
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6954#       发表于 2020-4-24 21:44
+
+
+
+
+很期待B站V区今年再搞一波BLS斗虫，最好前十是holo内战那种，想想就精彩。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lxlyandccc| + 1|其乐无穷|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6955#       发表于 2020-4-24 21:48
+
+
+
+
+玉藻粉丝第一名砸了578w人气，几乎顶上了贝拉全部粉丝。有钱就是可以为所欲为。
+
+如果把过单人过投票百万的剔除的话，排名应该是：卡缇娅、清歌、罗兹、墨汐、玉藻、贝拉。（不客观不科学，排名仅供娱乐）
+
+乐元素也是需要kpi的。
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6956#       发表于 2020-4-24 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195702&amp;ptid=1909283" target="_blank">丶彼岸花开丶 发表于 2020-4-24 21:48</a>
+
+玉藻粉丝第一名砸了578w人气，几乎顶上了贝拉全部粉丝。有钱就是可以为所欲为。
+
+如果把过单人过投票百万的 ...</blockquote>
+下个月还有歌C的决选，想想就觉得刺激<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6957#       发表于 2020-4-24 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195631&amp;ptid=1909283" target="_blank">死去的御景柚姬 发表于 2020-4-24 21:42</a>
+
+六期本来就没有一个省油的灯啊，感觉之前只是被脑控pua了现在独立出来重新找回了自信，企划联动整活 ...</blockquote>
+那八木怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6958#       发表于 2020-4-24 21:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195720&amp;ptid=1909283" target="_blank">lxlyandccc 发表于 2020-4-24 21:50</a>
+
+下个月还有歌C的决选，想想就觉得刺激</blockquote>
+无火佬这财力推任何一个歌姬，不说能保第一，反正前二肯定是保的。
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6959#       发表于 2020-4-24 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195744&amp;ptid=1909283" target="_blank">丶彼岸花开丶 发表于 2020-4-24 21:52</a>
+
+无火佬这财力推任何一个歌姬，不说能保第一，反正前二肯定是保的。</blockquote>
+那怪不得，果然那位“薪王们的化身”就是无火啊……改了名字一时没认出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6960#       发表于 2020-4-24 21:57
+
+
+
+
+无火有出现在歌姬这边过？ 说起无火就想到holocn二期，唯独最好玩的阿媂娅没拿到新手大礼包和总督，好气哦。
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6961#       发表于 2020-4-24 21:59
+
+
+
+
+b综好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6962#       发表于 2020-4-24 21:59
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-4-24 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195804&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 21:57</a>
+
+无火有出现在歌姬这边过？ 说起无火就想到holocn二期，唯独最好玩的阿媂娅没拿到新手大礼包和总督，好气哦 ...</blockquote>
+歌姬的微信小程序，一个人砸了几百万票，今天直接把玉藻推上了第一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6963#       发表于 2020-4-24 22:00
+
+
+
+ 本帖最后由 Havik 于 2020-4-24 22:04 编辑 
+
+重复编辑
+
+syl歌姬感觉歌姬关注有点低，我一直以为歌姬关注有50多w，结果才25w
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 6964#       发表于 2020-4-24 22:01
+
+
+
+
+去年有段时间无火每周都来歌姬这送几十个小电视
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6965#       发表于 2020-4-24 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195836&amp;ptid=1909283" target="_blank">死去的御景柚姬 发表于 2020-4-24 22:01</a>
+
+去年有段时间无火每周都来歌姬这送几十个小电视
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+100个小电视我印象中就有3次
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6966#       发表于 2020-4-24 22:08
+
+
+
+
+无火佬一人拯救vup(NO)
+
+
+
+
+
+
+
+-----
+
+####  疾风血誓  
+##### 6967#       发表于 2020-4-24 22:11
+
+
+
+ 本帖最后由 疾风血誓 于 2020-4-24 22:40 编辑 
+
+ruki和雪绘看到棉花糖:直男和女生没有共同话题怎么办，直接来了句“你喜欢的是高达吧？”
+
+syl，教了一晚上直男谈恋爱，结果弹幕都在刷“谈恋爱真麻烦”，所以说男人和女人谈恋爱是没前途的，还是百合好。
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6968#       发表于 2020-4-24 22:13
+
+
+
+
+歌姬这边估计和b站签的合约，b站抽成会很高，要不然b站不会允许在直播间宣传别的氪金渠道。
+
+我估计乐元素staff估计和几个石油佬私下聊过，尽量不要在b站大量氪金。
+
+现在歌姬的几个石油佬基本都不在b站发礼物了。而且直播的礼物涨粉效果不是太好。b站涨粉最快的还是发视频上推荐位，参与各种官方活动c位，以及参与拜年祭之类的爆款
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lxlyandccc| + 1|确实有可能|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6969#       发表于 2020-4-24 22:22
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-24 22:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195944&amp;ptid=1909283" target="_blank">丶彼岸花开丶 发表于 2020-4-24 22:13</a>
+
+歌姬这边估计和b站签的合约，b站抽成会很高，要不然b站不会允许在直播间宣传别的氪金渠道。
+
+我估计乐元素st ...</blockquote>
+这不是又顺劈VR嘛，去年敢敢心心各种B站大舞台一个不落，结果还是龟速爬升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+省一楼。副会长年初说的和独角兽联动，原来是指让自己的好姐妹鲨鱼跟独角兽联动啊。
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6970#       发表于 2020-4-24 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196024&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 22:22</a>
+
+这不是又顺劈VR嘛，去年敢敢心心各种B站大舞台一个不落，结果还是龟速爬升
+
+
+省一楼。副会长年初说 ...</blockquote>
+那版主也说和亲妹妹civia的联动在鹿上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是让认定的好妹妹和亲妹妹联动吗
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 6971#       发表于 2020-4-24 22:35
+
+
+
+
+vr技术力达不到，个人实力也达不到，个人特点也没有达到独当一面的能力。
+
+vr的几个参演节目也没有什么值得多次观看的爆款视频。
+
+对比沃玛的相声，节目足够有意思，放在拜年祭开头，沃玛声线足够有特点造成了沃玛的爆火。
+
+ruki参与的合唱，日v强行唱中文歌不好听，ruki的声线也没有让人一耳朵上瘾，合唱人数过多导致曝光不明晰，吸粉能力确实差了一点。
+
+至于bml和bw的参加绝大多数是增强老粉的gachi力，而不是吸引新粉。
+
+所以想要在b站爆发式涨粉还是作为c位参与一个千万播放量的视频，少说也能涨个几十万粉了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6972#       发表于 2020-4-24 22:42
+
+
+
+
+海子姐今天开宝箱还是挺有意思的。
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6973#       发表于 2020-4-24 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195729&amp;ptid=1909283" target="_blank">jkol 发表于 2020-4-24 21:51</a>
+那八木怎么说</blockquote>
+八木明显是来和美少女玩+体验生活的
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6974#       发表于 2020-4-24 23:15
+
+
+
+ 本帖最后由 lxlyandccc 于 2020-4-24 23:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195827&amp;ptid=1909283" target="_blank">Havik 发表于 2020-4-24 22:00</a>
+
+重复编辑
+
+
+syl歌姬感觉歌姬关注有点低，我一直以为歌姬关注有50多w，结果才25w ...</blockquote>
+关注数与粉丝粘性/活度的不成比例也是从歌姬出道以来一直说到现在的老话题了。和主流若即若离是这样的，竞争者少的同时享受到的大环境福利也少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6975#       发表于 2020-4-24 23:23
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-24 23:28 编辑 
+
+寿寿歌半年纪念。看自己出道视频，对比堪比小千早期和后期。
+
+[https://live.bilibili.com/216646 ... C-C464-C12FBF510426](https://live.bilibili.com/21664698?session_id=CD9AEDFD-66E8-8FAC-C464-C12FBF510426)
+
+这么一对比，SSG进步也好大。不过最初的清纯是一滴都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TOWA  
+##### 6976#       发表于 2020-4-24 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初的青涩一点都模仿不来了
+
+
+
+
+
+                 

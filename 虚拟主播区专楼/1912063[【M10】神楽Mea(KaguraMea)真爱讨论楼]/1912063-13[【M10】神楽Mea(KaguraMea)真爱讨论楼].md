@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 22:01** 
+> ## **本文件最后更新于2020-04-25 00:01** 
 
 
 
@@ -4303,7 +4303,7 @@ https://t.co/Q1PajnqnVg
 
  本帖最后由 Dualist彩 于 2020-4-24 17:07 编辑 
 
-<img src="https://t.bilibili.com/381722915015289467?share_source=copy_link&amp;share_medium=android" id="aimg_gkEMx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://t.bilibili.com/381722915015289467?share_source=copy_link&amp;share_medium=android" id="aimg_Fu333" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 5.5b限耐久唱歌
 
@@ -6108,4 +6108,877 @@ syl，你咩姐一边唱歌一边刷推也是日常了（比如现在<img src="h
 
 
 
-                                      
+
+
+-----
+
+####  weiweiEX  
+##### 18354#       发表于 2020-4-24 22:02
+
+
+
+
+开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18355#       发表于 2020-4-24 22:05
+
+
+
+
+今天的成员都被炎上过草
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18356#       发表于 2020-4-24 22:07
+
+
+
+
+mea:我不懂炎上
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 18357#       发表于 2020-4-24 22:11
+
+
+
+
+这什么直播间，我耳朵没了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18358#       发表于 2020-4-24 22:14
+
+
+
+
+这排名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18359#       发表于 2020-4-24 22:17
+
+
+
+
+这碾压啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 18360#       发表于 2020-4-24 22:17
+
+
+
+
+这场不行，没人能制裁咩悬念不够啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18361#       发表于 2020-4-24 22:21
+
+
+
+
+草，刚才那个特别粗的声音是谁发的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18362#       发表于 2020-4-24 22:25
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-24 22:28 编辑 
+
+你楼炸了？怎么我回复了翻不了页
+
+现在好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18363#       发表于 2020-4-24 22:30
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 18364#       发表于 2020-4-24 22:32
+
+
+
+
+相互link！
+
+信姬还玩打牌王的吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18365#       发表于 2020-4-24 22:35
+
+
+
+
+草，信姬居然比苔苔高
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18366#       发表于 2020-4-24 22:37
+
+
+
+
+弱智度up↑up↑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+翻车了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 18367#       发表于 2020-4-24 22:42
+
+
+
+
+草，她也太会联动整活了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18368#       发表于 2020-4-24 22:43
+
+
+
+
+hime的奇妙比喻
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18369#       发表于 2020-4-24 22:45
+
+
+
+
+mea:hime真是好女人啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18370#       发表于 2020-4-24 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">星川才不会下雪你们别乱说啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18371#       发表于 2020-4-24 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">vtb是不会下雪的，都是rp，不要慌
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18372#       发表于 2020-4-24 22:54
+
+
+
+
+你麻又花生inm小鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18373#       发表于 2020-4-24 22:58
+
+
+
+<blockquote>时雨rain 发表于 2020-4-24 22:54
+你麻又花生inm小鬼了</blockquote>
+这连小鬼都不如吧。。。
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 18374#       发表于 2020-4-24 22:59
+
+
+
+
+哪来的小鬼一直复读压力马斯内
+
+哦是咩啊,那没事了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 18375#       发表于 2020-4-24 23:03
+
+
+
+
+妈呀一群人就硬拖时间
+
+
+星川要死了……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18376#       发表于 2020-4-24 23:03
+
+
+
+
+我的青春结束了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18377#       发表于 2020-4-24 23:04
+
+
+
+
+结束了结束了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18378#       发表于 2020-4-24 23:04
+
+
+
+
+从此再无himea呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18379#       发表于 2020-4-24 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来一切都那么突然
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 18380#       发表于 2020-4-24 23:09
+
+
+
+
+这大概就是最自然的谢幕吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18381#       发表于 2020-4-24 23:20
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：星川とあぺしたいねって話になって新PCに入ってなかったから入れてるんだけど回線がポンコツ過ぎてあと10時間かかる
+媒体：[]
+链接：[]
+时间：2020-04-24 15:19:30 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1253705129229815815
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18382#       发表于 2020-4-24 23:23
+
+
+
+
+看出来了，她家网好像真的不太行
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 18383#       发表于 2020-4-24 23:25
+
+
+
+
+这波啊，这波是不和阿夸玩apex要和星川玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18384#       发表于 2020-4-24 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大亏哥大忙人哪有空玩什么apex…（看了一眼推特）
+
+啊（察觉）
+
+
+（尝试转移话题）
+
+不过这星川最近怎么这么爱apex，各种找人私下线上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18385#       发表于 2020-4-24 23:32
+
+
+
+
+草，一看到星川和APEX就想到要是mea星川叶底下开黑被人撞出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18386#       发表于 2020-4-24 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加个mea就算私下玩被撞出来估计反而一点事都不会有了，这波是群体炎上抗性护盾
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 18387#       发表于 2020-4-24 23:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196380&amp;ptid=1912063" target="_blank">Ky·Kiske 发表于 2020-4-24 23:09</a>
+这大概就是最自然的谢幕吧</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18388#       发表于 2020-4-24 23:42
+
+
+
+
+唐突凭空盲狙发散一波：
+
+
+为什么你麻没有和gibara继续发展呢？
+
+
+我认为这是因为你麻怕自己的粉丝被养gachi的王 - gibara所夺走！
+
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 18389#       发表于 2020-4-24 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196663&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-24 23:42</a>
+
+唐突凭空盲狙发散一波：
+
+
+为什么你麻没有和gibara继续发展呢？</blockquote>
+有点弱智，她这么喜欢gachi当初就不会杀这么狠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可以是怕观众被抢走，但绝对不包括弱智gachi<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18390#       发表于 2020-4-24 23:48
+
+
+
+
+弱智gachi死了活该<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 18391#       发表于 2020-4-24 23:48
+
+
+
+
+？？？我就下午想睡了一会儿结果睡到了现在…………
+
+神tm还有歌回，亏成傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+至于英文版聊，先让海盗组自己提议看看效果，如果没什么效果的话再直接向她建议比较好。
+
+“那些英文很多是在版聊，不是在和你互动，要不要出个英文版规则放在直播间里啊”大概这样吧。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18392#       发表于 2020-4-24 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 18393#       发表于 2020-4-24 23:50
+
+
+
+
+  还有别人遇到翻页BUG么？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18394#       发表于 2020-4-24 23:50
+
+
+
+
+怎么就没有继续发展了，2个月前不是说了gibara还想出去玩跟她说，被她劝有病毒别出去玩了吗¿
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 18395#       发表于 2020-4-24 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196705&amp;ptid=1912063" target="_blank">魔法使い2019 发表于 2020-4-24 23:48</a>
+
+弱智gachi死了活该</blockquote>
+为什么要这么说，弱智gachi的心好卵痛<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18396#       发表于 2020-4-24 23:51
+
+
+
+
+好像是有翻页bug
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 18397#       发表于 2020-4-24 23:52
+
+
+
+
+bsyl，没继续互动下去的v多了，每个都要找原因吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18398#       发表于 2020-4-24 23:53
+
+
+
+
+诶， 你在暗示什么吗？ <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 18399#       发表于 2020-4-24 23:53
+
+
+
+
+ 那我明天白天处理完事情把楼换一下，翻页BUG还挺烦。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18400#       发表于 2020-4-24 23:54
+
+
+
+
+以后要玩就不能换个号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么信任炎上抗性
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 18401#       发表于 2020-4-24 23:55
+
+
+
+
+啊这
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 18402#       发表于 2020-4-24 23:56
+
+
+
+
+不，没继续互动下去的v真的很多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+离得比较近的，海牛mico，远一点的子兔音大福，真的每个都要找原因吗，没必要啊。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18403#       发表于 2020-4-24 23:56
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-25 00:01 编辑 
+
+唉， 睡了， z...z..z
+
+别太当回事啊，
+
+
+我说的东西80%属于扯谈<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+我说这么多其实只是想说“mea的粉丝被养gachi强者抢走”而已， 相当于段子<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18404#       发表于 2020-4-24 23:57
+
+
+
+
+星川叶也没被炎吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过私底下玩被直播的人撞到是很生草啊
+
+
+
+
+
+                                    

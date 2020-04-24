@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 22:07** 
+> ## **本文件最后更新于2020-04-25 00:09** 
 
 
 
@@ -7744,7 +7744,7 @@ apex的排位其实你只要多打打都能上去，就看你肝不肝，上钻�
 <img src="https://img.saraba1st.com/forum/202004/24/145028qq35vy33qjzcdvj2.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EWWOX8UUYAExUZT.jpg</strong> (1.67 MB, 下载次数: 18)
+<strong>EWWOX8UUYAExUZT.jpg</strong> (1.67 MB, 下载次数: 19)
 
 下载附件
 
@@ -11131,7 +11131,7 @@ ark实在是又丑又无聊，subnautica能有联机模式就好了。</blockquo
 
 
 QQ图片20200424185753.png
-(2.26 KB, 下载次数: 19)
+(2.26 KB, 下载次数: 21)
 
 
 
@@ -12550,7 +12550,7 @@ syl：车叶师傅那边打钱，会不可避免的同比三字母和狗妈，�
 <img src="https://img.saraba1st.com/forum/202004/24/194920zeei1j51wyksanls.png" referrerpolicy="no-referrer">
 
 
-<strong>微信图片_20200424194848.png</strong> (1.34 MB, 下载次数: 3)
+<strong>微信图片_20200424194848.png</strong> (1.34 MB, 下载次数: 4)
 
 下载附件
 
@@ -16154,6 +16154,25 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ascending| + 1|倒装好评|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -16291,4 +16310,1424 @@ syl
 
 
 
-                      
+
+
+-----
+
+####  daoyuan  
+##### 8327#       发表于 2020-4-24 22:08
+
+
+
+
+点进蘑菇人的直播看过，那个L2D就离谱，看的人想吐<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8328#       发表于 2020-4-24 22:08
+
+
+
+
+船长要播舰b了，难道说第二波联动有戏了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8329#       发表于 2020-4-24 22:10
+
+
+
+
+工商吧，之前不也有一个讨论立绘的工商？
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8330#       发表于 2020-4-24 22:11
+
+
+
+
+要是舰B联动第二弹，白姨又要被人骂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8331#       发表于 2020-4-24 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195901&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-04-24 22:08:52</a>
+船长要播舰b了，难道说第二波联动有戏了</blockquote>我觉得没戏，包括粥的联动是也没戏，现在就偶尔做做工商直播。
+当然我还是很乐意被打脸的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8332#       发表于 2020-4-24 22:12
+
+
+
+
+第一弹联动的时候狐狸还被骂了？
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 8333#       发表于 2020-4-24 22:12
+
+
+
+
+如果说你坛管人粉对视奸的态度是：“啊？这旮瘩还有人看？”的话，微博的某些管人粉就是：“天啊我天天被视奸，腿都要被奸软了”（转发8评论2）
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8334#       发表于 2020-4-24 22:12
+
+
+
+ 本帖最后由 ひびき 于 2020-4-24 22:14 编辑 
+
+皆村水平不行，话说这一期生苦力的过年皮都被人家印尼新人的皮吊打了，yagoo能有点良心吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 不过想想夸皇，也就罢了
+
+
+讲道理皆村ghs的想法还可以，就是技术支撑不了他的idea
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8335#       发表于 2020-4-24 22:13
+
+
+
+
+无内鬼，来丶弹幕爆炸煽动视频<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波情绪稍猛，不过倒也没想到这里会被剪辑。
+
+一部のにじさんじライバーに100回は聞いてほしい委員長のお言葉
+[https://www.nicovideo.jp/watch/sm36733219](https://www.nicovideo.jp/watch/sm36733219)
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8336#       发表于 2020-4-24 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195900&amp;ptid=1924531" target="_blank">daoyuan 发表于 2020-4-24 22:08</a>
+
+点进蘑菇人的直播看过，那个L2D就离谱，看的人想吐</blockquote>
+我觉得还行啊，比白洋葱还多了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8337#       发表于 2020-4-24 22:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本质是zwb和lwb打架，你v圈只是两个庞然大物和神级ip之间的工具而已
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8338#       发表于 2020-4-24 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195927&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-04-24 22:12:05</a>
+第一弹联动的时候狐狸还被骂了？</blockquote>nga都打起来几次了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8339#       发表于 2020-4-24 22:16
+
+
+
+
+三小只的女子会听得耳朵要怀孕了😋
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8340#       发表于 2020-4-24 22:16
+
+
+
+
+萝莉化风潮不该怪下巴/时雨妈吗
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 8341#       发表于 2020-4-24 22:16
+
+
+
+
+阿委毕竟是一个人唱过《团结》的，肯定真爱啊
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8342#       发表于 2020-4-24 22:17
+
+
+
+
+白姨自己也做的太无情了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用V综的话说就是些梁木人吧
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 8343#       发表于 2020-4-24 22:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/197.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 8344#       发表于 2020-4-24 22:21
+
+
+
+
+太电了，我受不了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8345#       发表于 2020-4-24 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195979&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-04-24 22:17:54</a>
+白姨自己也做的太无情了呀用V综的话说就是些梁木人吧</blockquote>狐皇顶多也就种点梁木，真正引爆全场的还是接了粥的工商和nga的V版里来了一句和粥联动比碧蓝好一万倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没粥的工商根本拉不到这么大仇恨。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8346#       发表于 2020-4-24 22:26
+
+
+
+
+我苔这个憋尿企划已经实质杂谈回了.......
+
+喝水的时候也不cue 来cue去了，完全不强调的抿一口就重开接着聊了.......
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8347#       发表于 2020-4-24 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196051&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-24 22:25</a>
+
+狐皇顶多也就种点梁木，真正引爆全场的还是接了粥的工商和nga的V版里来了一句和粥联动比碧蓝好一万倍[f:067 ...</blockquote>
+粥比碧蓝好联动一万倍（指正
+
+虽然梁木已经种下了，但是该指正还是要指正的。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 8348#       发表于 2020-4-24 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195945&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-24 22:13</a>
+
+我觉得还行啊，比白洋葱还多了好吧</blockquote>
+那种上下拉伸的感觉，我反正是麻了，至于白洋葱我不认识阿<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8349#       发表于 2020-4-24 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196062&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-24 22:26</a>
+
+我苔这个憋尿企划已经实质杂谈回了.......
+
+
+喝水的时候也不cue 来cue去了，完全不强调的抿一口就重开接着聊 ...</blockquote>
+你是多久没看海苔男了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">海苔男现在的联动只有两个人的杂谈联动跟假装打游戏的很多人的杂谈联动
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8350#       发表于 2020-4-24 22:30
+
+
+
+
+白洋葱那个，l2d虽然拉跨，不过直播的时候基本都在关注游戏画面，所以反倒没啥感觉。
+
+另外，憨憨的l2d配上憨憨的说话方式，其实挺和谐的。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8351#       发表于 2020-4-24 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">谁还记得在舰B之前有个叫《方舟指令》的手游和他杏联动过呢
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 8352#       发表于 2020-4-24 22:32
+
+
+
+
+七色太监这也太不要脸了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mika-S|-1||
+| TRW|-1|脑瘫孤儿又来了？|
+| AloissiolA|-1|破百应援|
+| 墨玄i|-1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 8353#       发表于 2020-4-24 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196062&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-24 22:26</a>
+我苔这个憋尿企划已经实质杂谈回了.......
+
+喝水的时候也不cue 来cue去了，完全不强调的抿一口就重开接着聊 ...</blockquote>
+这四个人实力打不起来啊，游戏效果还是得指望过几天星圣乱杀吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8354#       发表于 2020-4-24 22:33
+
+
+
+
+想给一弦写小作文了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8355#       发表于 2020-4-24 22:36
+
+
+
+
+讲真，今天的vup大乱斗是海子姐的hobo模拟器赢了，笑死。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8356#       发表于 2020-4-24 22:37
+
+
+
+
+闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_d6hhi" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8357#       发表于 2020-4-24 22:55
+
+
+
+
+欸凪白你什么意思哦<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">暗示我🦊👑脸上肉多？
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/225532dpll884x37lr4eeu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWYGrrKUMAAEZ34.jpg</strong> (170.69 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-24 22:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 8358#       发表于 2020-4-24 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194505&amp;ptid=1924531" target="_blank">Vneet 发表于 2020-4-24 20:07</a>
+
+的确，现在的情况也是算挺好的了。短命秦过去了，希望现在这子公司会是刘邦而不是项羽吧。（虽然yygq地讲， ...</blockquote>
+汉承秦制！
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8359#       发表于 2020-4-24 22:56
+
+
+
+ 本帖最后由 屑屑代沟尼亚 于 2020-4-24 23:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">夏哥跟兎鞠这联动...
+
+
+
+
+
+
+QQ截图20200424225855.jpg
+(108.2 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-24 23:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/230027poobwml3vi1wjmef.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 8360#       发表于 2020-4-24 22:58
+
+
+
+
+舰b出了这么久，玩家疲倦去玩粥挺正常的，但你木口管人进来，就是要被手游毒爆虫们拿来当弹药的啊233。当年毒爆们给bc还有其他游戏扔了多少次赵蛋。v8乐子人和毒爆比根本是小绵羊
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8361#       发表于 2020-4-24 22:59
+
+
+
+
+星川好色哦
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8362#       发表于 2020-4-24 23:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/230824fq3qoxf0qcr2cyo3.png" referrerpolicy="no-referrer">
+
+
+<strong>0 11-07-47-6227.png</strong> (14.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-24 23:08 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 8363#       发表于 2020-4-24 23:10
+
+
+
+
+刚刚看了一下叶师，在打apex，一进去就看到抱着俩把狙乱杀
+怎么感觉全v圈突然都开始打apex了？
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 8364#       发表于 2020-4-24 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，加点aki提升杏浓度。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8365#       发表于 2020-4-24 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我虹大头是靠周边和投资的，SC扣掉油guan税只是些小钱
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8366#       发表于 2020-4-24 23:12
+
+
+
+
+阿，微博二手💩真的好精彩，不行，我要忍住。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8367#       发表于 2020-4-24 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196389&amp;ptid=1924531" target="_blank">八月琉璃 发表于 2020-4-24 23:11</a>
+
+https://live.bilibili.com/21219990，加点aki提升杏浓度。
+
+
+  -- 来自 能搜索的 Stage1官方 Androi ...</blockquote>
+开幕成人用品店
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 8368#       发表于 2020-4-24 23:15
+
+
+
+
+怎么逛到这种城乡结合部了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 8369#       发表于 2020-4-24 23:16
+
+
+
+
+成人用品太草了，感觉这个b限效果不错。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8370#       发表于 2020-4-24 23:16
+
+
+
+
+深刻感受到5g建设刻不容缓<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8371#       发表于 2020-4-24 23:17
+
+
+
+
+又是舰政又是舰政又是舰政？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你确定现在乐子人们不是早就随大流混进最新最in的各家手游里了吗？——甚至云就可以了，和管人完全一样的
+
+不会真有人以为V8里的是观众吧
+
+何况现在到底是谁比较上纲上线我暂且蒙古
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8372#       发表于 2020-4-24 23:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然完全没准备，就瞎逛
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8373#       发表于 2020-4-24 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ截图20200424231903.jpg
+(26.7 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-24 23:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/231922lfmmwp8kpfojrp4w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8374#       发表于 2020-4-24 23:20
+
+
+
+ 本帖最后由 金魚佬 于 2020-4-24 23:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是又要开团了。。字幕组准备的经典在百度街景上真的有吗，拍照的车又开不进去syl 原来街景有室内的啊
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8375#       发表于 2020-4-24 23:20
+
+
+
+
+起床，翻了一圈v综，划到最后，成人用品店，草<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8376#       发表于 2020-4-24 23:21
+
+
+
+
+y1s1，路人看到那条微博的反应大概是为什么彩虹人人人喊打
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8377#       发表于 2020-4-24 23:21
+
+
+
+
+笑抽了，必须给所有人推荐今晚舞元体验ickr VR陪聊企划这个视频。
+
+本来还想着你舞元是身经百战了，结果这30岁大叔跟处男一样的恶心反应真是xswl<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=A066IoSvhes](https://www.youtube.com/watch?v=A066IoSvhes)
+
+
+
+
+
+
+
+-----
+
+####  57131928  
+##### 8378#       发表于 2020-4-24 23:22
+
+
+
+
+b限逛地图的作业开始抄起来了
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8379#       发表于 2020-4-24 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">V吧现在还有能开的团吗，感觉只剩烂活了
+
+
+
+
+
+
+
+-----
+
+####  Ascending  
+##### 8380#       发表于 2020-4-24 23:23
+
+
+
+
+空降鬼才<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 8381#       发表于 2020-4-24 23:29
+
+
+
+
+今天晚上又从你楼得到了新的乐子
+
+“管儿中之神”
+
+伟大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你们到底是从哪发掘的二手屎啊，搜看看发现转发10个都没有
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 8382#       发表于 2020-4-24 23:30
+
+
+
+
+大概是臭味相投？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8383#       发表于 2020-4-24 23:31
+
+
+
+
+职业掏粪人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ntlv0  
+##### 8384#       发表于 2020-4-24 23:34
+
+
+
+
+绊爱和阿望推特互关了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8385#       发表于 2020-4-24 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">算了，就当作教育PXJ跨国交流的难度好了
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 8386#       发表于 2020-4-24 23:40
+
+
+
+
+其实说实话，这些yhm完全可以抄b站洋鬼子的作业，保证节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8387#       发表于 2020-4-24 23:42
+
+
+
+<blockquote>IDIDIDID 发表于 2020-4-24 22:55
+欸凪白你什么意思哦暗示我🦊👑脸上肉多？</blockquote>
+咬一次500
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8388#       发表于 2020-4-24 23:42
+
+
+
+
+说不定真会有半瓶醋的运营让YHM去抄伏拉夫然后风评爆炸的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8389#       发表于 2020-4-24 23:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/234447zvtkqsswfvikkk7k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ai.jpg</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2020-4-24 23:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8390#       发表于 2020-4-24 23:44
+
+
+
+
+需要这么的大概不太会有专业的运营吧（？）
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8391#       发表于 2020-4-24 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_y1M6z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_nveBK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8392#       发表于 2020-4-24 23:47
+
+
+
+
+一看到A8这拿什么“基于5g的次世代VR”忽悠投资人钱的公司扯什么“以扩展生存于世的选项为使命就感觉<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 8393#       发表于 2020-4-24 23:48
+
+
+
+
+不过这没啥准备的，上高速可太草了
+
+syl说起aki，另一个aki的台词回<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8394#       发表于 2020-4-24 23:51
+
+
+
+
+哪个yhm中文能有伏拉夫的水平风评应该差不了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8395#       发表于 2020-4-24 23:51
+
+
+
+ 本帖最后由 ひびき 于 2020-4-24 23:54 编辑 
+
+华强北没生在日本真是太可惜了，不然
+
+
+山寨3D打印机——“基于5g的次世代可定制手办流水线”
+
+山寨无人机——“基于5g的次世代航空物流”“解决无缘社会难题”
+
+tm能忽悠多少钱
+
+
+
+捂屎哥哥张张嘴就忽悠到十亿巨款，可不比你虹杏100来号人累死累活收sc厉害多了
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8396#       发表于 2020-4-24 23:53
+
+
+
+
+我以为花妖精开新台了结果是之前那个杂谈聊了5个小时还在聊……
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 8397#       发表于 2020-4-24 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196482&amp;ptid=1924531" target="_blank">crito 发表于 2020-4-24 23:21</a>
+y1s1，路人看到那条微博的反应大概是为什么彩虹人人人喊打</blockquote>
+可是七色太监只会觉得自己又被针对了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">全v圈观众都想害他们，整个世界都在迫害七色太监<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| TRW|-1|你妈泉下有知也痛哭流涕|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8398#       发表于 2020-4-25 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196482&amp;ptid=1924531" target="_blank">crito 发表于 2020-4-24 23:21</a>
+y1s1，路人看到那条微博的反应大概是为什么彩虹人人人喊打</blockquote>
+你能代表路人还是这人能代表彩虹人？地图炮前动动脑子
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 8399#       发表于 2020-4-25 00:08
+
+
+
+
+哥们，有什么痛苦就告诉大家伙吧，不然你天天搁这复读也不能解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
