@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 18:00** 
+> ## **本文件最后更新于2020-04-24 20:00** 
 
 
 
@@ -8158,29 +8158,10 @@ A岛整个大活可以吗？饿死猴山逸不实睿栗的贞节牌坊被砸了�
 
 
 
- 本帖最后由 seaside 于 2020-4-17 19:31 编辑 
+ 本帖最后由 seaside 于 2020-4-24 19:01 编辑 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看戏倒是认真点啊 人b站播过的 
+编辑
 
-v8前世粉说的
-
-“翠水灵，2019年4月16日出道的个人势虚拟主播，同日投稿自我介绍视频，并开始初配信。
-
-任豚主播/自虐系游戏主播，玩任天堂游戏、iwanna、猫里奥；还直播过跑跑卡丁车这种上古游戏。
-
-出道当天收获1提督2舰长。四天后粉丝破千
-
-5月中旬消失过一段时间，给粉丝称回天界处理事务，6月8日、6月9日复播，正常打游戏，并无毕业征兆。
-
-下播后停止一切活动，粉丝群里也从不冒泡。粉丝等待了几个月，期间互相安慰天上一天地下一年，水灵只不过是在天界打了个瞌睡而已。
-
-10月17日，粉丝群里的粉丝们互相问候早安时，粉丝群被解散。推、管销号，b站头像全黑。
-
-6月停止活动时粉丝数3000出头
-
-            5月中旬时承诺过给粉丝生日歌回，（生日6月1日）；可是生日当天并没有播，最后一次直播也没有进行歌回。
-
-”
 
 
 
@@ -16927,7 +16908,7 @@ syl，我觉得仓鼠一点都不功利，功利还不去舔舔本社上位势�
 
 
 1b07d405aad844eedb8fcec2eb8b8bb_副本.png
-(476.91 KB, 下载次数: 3)
+(476.91 KB, 下载次数: 6)
 
 
 
@@ -17461,4 +17442,346 @@ muri交互能力哪有这么强啊。
 
 
 
-                   
+
+
+-----
+
+####  l778899  
+##### 6918#       发表于 2020-4-24 18:02
+
+
+
+
+你版只要开始车轱辘vr就不缺kpi啊
+
+当大家开始想vr好起来的时候，才是真的缺kpi了
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 6919#         楼主| 发表于 2020-4-24 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47192915&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 17:54</a>
+
+以前那个 交互--偶像--综娱 三维就行了。
+
+
+交互：杂谈、联动、临场应对、养gachi等操作都算在内。</blockquote>
+那个没办法斗虫啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6920#       发表于 2020-4-24 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47193005&amp;ptid=1909283" target="_blank">l778899 发表于 2020-4-24 18:02</a>
+
+你版只要开始车轱辘vr就不缺kpi啊
+
+当大家开始想vr好起来的时候，才是真的缺kpi了 ...</blockquote>
+vr好起来还可以顺劈弥宝<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  magus  
+##### 6921#       发表于 2020-4-24 18:19
+
+
+
+ 本帖最后由 magus 于 2020-4-24 18:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47184545&amp;ptid=1909283" target="_blank">弥杀弥杀 发表于 2020-4-24 09:44</a>
+唉 啥时给孟宝多一点推广</blockquote>
+推广也要你孟宝播啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 6922#       发表于 2020-4-24 18:21
+
+
+
+
+哎，孟宝这周又摸了，只能说多喝热水好好休息
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6923#       发表于 2020-4-24 18:21
+
+
+
+
+该推出vr版萌战无双了，可以尽情斗虫
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6924#       发表于 2020-4-24 18:29
+
+
+
+
+“内容”这个词，要深究起来那可太重了，绝大部分人看直播本质图一乐，为什么要在直播里纠结“内容”呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6925#       发表于 2020-4-24 18:56
+
+
+
+
+UNO联动？这东西看互相的熟悉程度，本质是个迫害和被迫害的游戏，而且再加上杂谈，这人要是不熟那就是没眼看
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6926#       发表于 2020-4-24 19:00
+
+
+
+
+服务器不拉胯就谢天谢地了 
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6927#       发表于 2020-4-24 19:26
+
+
+
+
+开播才能勉强止血，新科这IP混到这地步当真世事难测。
+
+
+
+
+
+
+
+
+QQ截图20200424192333.png
+(8.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-24 19:25 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/192525uj715z050ek6g092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6928#       发表于 2020-4-24 19:35
+
+
+
+
+这方言拆弹好玩儿<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6929#       发表于 2020-4-24 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47190708&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-24 15:34</a>
+
+互动：靠弹幕推进直播
+
+内容：靠准备推进直播
+
+偶像：就偶像</blockquote>
+层主能不能详细说一下惑妈偏向偶像，内容的原因
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 6930#       发表于 2020-4-24 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47193992&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 19:26</a>
+
+开播才能勉强止血，新科这IP混到这地步当真世事难测。</blockquote>
+四代目为什么现在天天掉粉啊，有分析结果吗？我虽然不看，不过偶尔看看感觉评价不是还可以吗，会韩语啊歌唱得不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6931#       发表于 2020-4-24 19:46
+
+
+
+<blockquote>Mika-S 发表于 2020-4-24 19:44
+四代目为什么现在天天掉粉啊，有分析结果吗？我虽然不看，不过偶尔看看感觉评价不是还可以吗，会韩语啊歌 ...</blockquote>
+整天换人人家还敢放心推吗？这波打完钱过两天又换了咋办
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6932#       发表于 2020-4-24 19:47
+
+
+
+
+内容啊内容，现在的萌音主播弥宝还记得当年自己赞同过的“内容取胜”的初心吗？<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200411052312.png
+(326.76 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-24 19:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/194658eojoo5uco5onbja2.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  疾风血誓  
+##### 6933#       发表于 2020-4-24 19:48
+
+
+
+
+saya这大碴子味咋还越听越亲切了，我有毛病。
+
+
+
+
+
+                  
