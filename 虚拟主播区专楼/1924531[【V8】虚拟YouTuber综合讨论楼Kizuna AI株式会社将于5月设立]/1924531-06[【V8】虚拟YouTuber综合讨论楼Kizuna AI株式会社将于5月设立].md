@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 00:09** 
+> ## **本文件最后更新于2020-04-25 02:07** 
 
 
 
@@ -11131,7 +11131,7 @@ ark实在是又丑又无聊，subnautica能有联机模式就好了。</blockquo
 
 
 QQ图片20200424185753.png
-(2.26 KB, 下载次数: 21)
+(2.26 KB, 下载次数: 23)
 
 
 
@@ -14654,7 +14654,7 @@ syl，都说了不是以后休止怎么还有人说心理问题？直播推特�
 <img src="https://img.saraba1st.com/forum/202004/24/212329jamm7db87dm5083e.png" referrerpolicy="no-referrer">
 
 
-<strong>微信图片_20200424212247.png</strong> (370.21 KB, 下载次数: 1)
+<strong>微信图片_20200424212247.png</strong> (370.21 KB, 下载次数: 4)
 
 下载附件
 
@@ -16848,7 +16848,7 @@ syl
 
 
 闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_d6hhi" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_aWWnV" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -16872,7 +16872,7 @@ syl
 <img src="https://img.saraba1st.com/forum/202004/24/225532dpll884x37lr4eeu.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EWYGrrKUMAAEZ34.jpg</strong> (170.69 KB, 下载次数: 1)
+<strong>EWYGrrKUMAAEZ34.jpg</strong> (170.69 KB, 下载次数: 2)
 
 下载附件
 
@@ -17515,7 +17515,7 @@ b限逛地图的作业开始抄起来了
 <img src="https://img.saraba1st.com/forum/202004/24/234447zvtkqsswfvikkk7k.jpg" referrerpolicy="no-referrer">
 
 
-<strong>ai.jpg</strong> (1.17 MB, 下载次数: 0)
+<strong>ai.jpg</strong> (1.17 MB, 下载次数: 1)
 
 下载附件
 
@@ -17556,8 +17556,8 @@ b限逛地图的作业开始抄起来了
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
-<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_y1M6z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_nveBK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_WzwJ3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_AwfYf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17684,10 +17684,11 @@ y1s1，路人看到那条微博的反应大概是为什么彩虹人人人喊打<
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| AloissiolA|-1|不就是回收死鱼嘛|
 | TRW|-1|你妈泉下有知也痛哭流涕|
 
 
@@ -17724,10 +17725,1626 @@ y1s1，路人看到那条微博的反应大概是为什么彩虹人人人喊打<
 
 
 
-哥们，有什么痛苦就告诉大家伙吧，不然你天天搁这复读也不能解决问题<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+哥们，有什么痛苦就告诉大家伙吧，不要再天天复读了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 
 
 
 
-                    
+
+
+-----
+
+####  遍体精淋af  
+##### 8400#       发表于 2020-4-25 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">绊爱这个ip不值十亿吗？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8401#       发表于 2020-4-25 00:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">最后还是变成了b限看片
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8402#       发表于 2020-4-25 00:16
+
+
+
+
+收藏价值可能值十亿 ()
+
+
+
+
+
+
+
+-----
+
+####  护之灵  
+##### 8403#       发表于 2020-4-25 00:16
+
+
+
+ 本帖最后由 护之灵 于 2020-4-25 00:24 编辑 
+
+狐狸的机会来了？syl罗森5月4号就开了，应该不是上面写的需要准备时间。
+
+
+
+
+
+
+-klbw3Q5-6vc6K27T1kShs-12h.jpg
+(26.91 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-25 00:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/001636acnorrhn4gn1l40n.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8404#       发表于 2020-4-25 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196925&amp;ptid=1924531" target="_blank">护之灵 发表于 2020-4-25 00:16</a>
+
+狐狸的机会来了？</blockquote>
+不像啊
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 8405#       发表于 2020-4-25 00:19
+
+
+
+
+不是罗森吗？
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8406#       发表于 2020-4-25 00:19
+
+
+
+
+我懂了，是联动少女前线<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8407#       发表于 2020-4-25 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次是肯德基，这次那么重磅还要准备很久我猜是cyberpunk2077
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8408#       发表于 2020-4-25 00:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真联动杏的话有一说一狐狸在国内说不定能反弹超过狗妈，毕竟光两边的卫兵打架的热度就高得不行
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 8409#       发表于 2020-4-25 00:21
+
+
+
+
+舟游这产能，出一个无剧情联动限定池就完事了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8410#       发表于 2020-4-25 00:22
+
+
+
+ 本帖最后由 rzrbtk 于 2020-4-25 00:32 编辑 
+
+应该是便利店吧，之前有吹风
+
+如果是holo就真的心情复杂，碧蓝舟、强度、人选都能节奏风暴，不太好啊
+
+
+ syl，记得以前2000想看口了下三路段子，这个勉强算吧
+[https://www.youtube.com/watch?v=1WutQpGxAAs](https://www.youtube.com/watch?v=1WutQpGxAAs)
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8411#       发表于 2020-4-25 00:23
+
+
+
+ 本帖最后由 cckuku 于 2020-4-25 00:26 编辑 
+
+手机不省一楼。nga的帖子里我已经看到好几个说不管联动什么都不要联动vtb的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 8412#       发表于 2020-4-25 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196392&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-24 23:12</a>
+我虹大头是靠周边和投资的，SC扣掉油guan税只是些小钱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">版本又进步了，我来给你们更新下。官宣vtl的网票卖了26k多，这里就过了亿; 巡演按nico预约数来看每场都有vtl的约一半，福冈甚至直接超了vtl。韭菜超好割的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了，可以开始发散这里有多少能到liver手里了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8413#       发表于 2020-4-25 00:25
+
+
+
+
+手游玩家怎麽比管人粉丝还司马啊，当然不排除重合度高
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8414#       发表于 2020-4-25 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196995&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-25 00:25</a>
+
+手游玩家怎麽比管人粉丝还司马啊，当然不排除重合度高</blockquote>
+倒不如说手游和管人的功能高度重合，手游玩家对管人有敌意很正常
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8415#       发表于 2020-4-25 00:32
+
+
+
+
+联不联动其实看5/2杏官号那个活动准备打几个卫星上天比较靠谱。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8416#       发表于 2020-4-25 00:32
+
+
+
+
+建议把手游玩家和管人粉丝关在同一个笼子里炼蛊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8417#       发表于 2020-4-25 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197014&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-25 00:29</a>
+倒不如说手游和管人的功能高度重合，手游玩家对管人有敌意很正常</blockquote>
+好像是这样的🤔
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8418#       发表于 2020-4-25 00:32
+
+
+
+
+有人能数一下至今为止联动过VTB的手游有几个吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8419#       发表于 2020-4-25 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196980&amp;ptid=1924531" target="_blank">TRW 发表于 2020-4-25 00:23</a>
+
+版本又进步了，我来给你们更新下。官宣vtl的网票卖了26k多，这里就过了亿; 巡演按nico预约数来看 ...</blockquote>
+liver赚不赚我不知道，但田角肯定数户头上的零数到眼花<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8420#       发表于 2020-4-25 00:34
+
+
+
+
+国内的方舟指令，舰b，国外的就多了去了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8421#       发表于 2020-4-25 00:35
+
+
+
+
+以目前Vjuan的体量，有人气的手游跑过来联动只可能是运营or投资人关系/厨力驱动二选一。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8422#       发表于 2020-4-25 00:37
+
+
+
+
+管人粉丝凭什么和手游玩家一起炼蛊啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+明日方舟碧蓝航线哪一家粉丝不把管人粉摁着锤。这还只是二次元类型的手游，猪鹅两厂的我都不敢提<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 8423#       发表于 2020-4-25 00:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197029&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-4-25 00:32</a>
+
+有人能数一下至今为止联动过VTB的手游有几个吗</blockquote>
+机动战队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8424#       发表于 2020-4-25 00:38
+
+
+
+
+兔皇说“我爱你”了，这算有梁木吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8425#       发表于 2020-4-25 00:39
+
+
+
+
+错过了，我想听<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8426#       发表于 2020-4-25 00:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这些手游要是自己出个官方vtuber发动一波王之力不是能把你juan所有V拉一起A了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8427#       发表于 2020-4-25 00:40
+
+
+
+
+一个大热手游的粉丝就能把你整个管人饭圈的费拉拉起来A了 
+
+管人粉丝请有点逼数<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8428#       发表于 2020-4-25 00:40
+
+
+
+
+掰手指掰来掰去，掰出三个我知道一点的手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以还是不要想太多了。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8429#       发表于 2020-4-25 00:43
+
+
+
+
+https://ngabbs.com/read.php?tid=21452611
+天狗说木口粉丝少碰瓷明日方舟，下面有人说彩虹人急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没想到能带给我最大快乐的还是粥游区<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 8430#       发表于 2020-4-25 00:44
+
+
+
+
+我看小白联动的手游挺多的，至少有三个吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">始皇帝也不少，有名一点的还有猫宫的compass
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 8431#       发表于 2020-4-25 00:44
+
+
+
+
+所以就像之前说的，来b限不全是为了sc和舰长，维护和阿b以及这些工商主的关系才是大头
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 8432#       发表于 2020-4-25 00:45
+
+
+
+ 本帖最后由 NBXX 于 2020-4-25 01:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197029&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-4-25 00:32</a>
+
+有人能数一下至今为止联动过VTB的手游有几个吗</blockquote>
+苍蓝境界——绊爱
+
+エイリアンのたまご——绊爱
+
+密特拉之星——绊爱
+
+テクテクテクテク——绊爱
+
+八月的棒球甜心——绊爱
+
+VGAME——绊爱
+
+碧蓝航线——绊爱，hololive
+
+方舟指令——hololive
+
+灾祸的真理——小白，狐娘大叔
+
+现代战争:尖峰对决——小白
+
+晓之破坏者——多人多箱
+
+Q&amp;Q——HimeHina
+
+LAST IDEA——阿夸
+
+空虚日记——萝卜子，琉璃姐
+
+Asami逃脱——DWU
+
+东京偶像计划——azulim
+
+COMPASS——猫宫
+
+東京 Conception——绊爱，时乃空，富士葵
+
+机动战队——千草hana，夢乃栞
+
+魔法书:私立魔法学园——时乃空
+
+FOX-Flame Of Xenocide-——富士葵
+
+橙汁100%——樱巫女（纯配音）
+
+狂热冲击——Entum，绊爱
+
+Five Kingdom―虛假的王国——akari
+
+幻象回忆——akari
+
+弹射世界——斗和奇迹
+
+粉彩回忆——天神子兔音
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北山玖公| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 8433#       发表于 2020-4-25 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197092&amp;ptid=1924531" target="_blank">NBXX 发表于 2020-4-25 00:45</a>
+明日方舟，碧蓝航线，魔法禁书目录幻想收束（只是联动直播）——hololive
+
+灾祸的真理——小白
+
+晓之破坏者 ...</blockquote>
+我认为你想打的应该是方舟指令而不是明日方舟。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 1|刚才在看楼上讨论手滑了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8434#       发表于 2020-4-25 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197063&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-25 00:39</a>
+
+错过了，我想听</blockquote>
+等archive吧。33分钟左右吧大概，没看画面，大约是有个冲国棉花糖
+
+兔皇念了两三遍我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|感谢时间点|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8435#       发表于 2020-4-25 00:48
+
+
+
+
+但凡火一点的手游，联动前的舆论都是一套套皮女主播不要组合拳打下来，v圈人↓人难道还没有自知之明吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8436#       发表于 2020-4-25 00:49
+
+
+
+
+我才想起来🌈和wixoss出过实体卡，生态位秒了秒了。
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 8437#       发表于 2020-4-25 00:53
+
+
+
+
+木口要是跟暮色大师联动的话还挺不错的，虽然没有舟、舰那么大人气但至少比晓之破坏者好多了吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8438#       发表于 2020-4-25 00:53
+
+
+
+ 本帖最后由 QWANG 于 2020-4-25 00:57 编辑 
+
+这润姨，什么时候了还播，幸好船长那边可以关了，只要开兔皇一窗就行了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，露酱现在正在播呢。
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 8439#       发表于 2020-4-25 00:54
+
+
+
+ 本帖最后由 ete 于 2020-4-25 00:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">V圈粉丝战斗力怎么能和从14年一直战到现在的二次元手游粉丝比嘛，更别提网易企鹅这俩用口水都能淹死人的。真要开团怕不是被那些天天没事打架的手游卫兵摁着打。
+
+和舟联动的问题是，舟现在是上升期，与舟这边来说这会儿联动木口并不能有效扩大用户圈是个问题。可能拍个卫星等到年底再联动比较正常
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8440#       发表于 2020-4-25 00:55
+
+
+
+
+龙皇会员解禁了，待机间疯狂上分中。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 8441#       发表于 2020-4-25 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197141&amp;ptid=1924531" target="_blank">ete 发表于 2020-4-25 00:54</a>
+
+V圈粉丝战斗力怎么能和从14年一直战到现在的二次元手游粉丝比嘛，更别提网易企鹅这俩用口水都能淹死 ...</blockquote>
+但是话又说回来，其实手游玩家也就国内势力特别大，日本基本是五五开，而欧美就是直接反过来了
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 8442#       发表于 2020-4-25 00:58
+
+
+
+
+到底什么时候舆论氛围变成虹杏粉丝对立了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+要说打的凶，有旧仇也是虹信和天狗啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8443#       发表于 2020-4-25 00:59
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-4-25 01:01 编辑 
+
+宣布宿敌可以增加凝聚力产出
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8444#       发表于 2020-4-25 01:01
+
+
+
+
+粉丝群体里最有识别度的永远是嗓门最大的，古来如此，不要想着李克忠了。
+
+
+天狗风评差不就是👇这种人到处都是么：
+
+<img src="https://img.saraba1st.com/forum/202004/25/010250devl30eqevywktev.jpg" referrerpolicy="no-referrer">
+
+
+<strong>007GTNWcly1ge59argsbnj30qo0r8jsz.jpg</strong> (43.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 01:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8445#       发表于 2020-4-25 01:02
+
+
+
+<blockquote>ヒトニナル 发表于 2020-4-25 00:44
+我看小白联动的手游挺多的，至少有三个吧始皇帝也不少，有名一点的还有猫宫的compass ...</blockquote>
+他家切割前运营是日本手游坟场appland，关系户抓案件是一绝，除开老爱不算剩下月明绑一起不一定有她的案件一半多。
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 8446#       发表于 2020-4-25 01:03
+
+
+
+
+希望v圈爆炸前，holo能努努力舔到gbf，想看cy画的露腋狐皇
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8447#       发表于 2020-4-25 01:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧美这种遍地主机玩家的地方都是以氪金抽卡为耻的，EA搞个开箱都能把你骨灰扬了，你让他们玩手游？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8448#       发表于 2020-4-25 01:05
+
+
+
+ 本帖最后由 poipanchao 于 2020-4-25 01:08 编辑 
+
+那个帖子被骂彩虹人急了的好像是个天狗？
+
+天狗什么时候受过这种委屈，被当成虹人还能忍吗
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/010804fjzeek9qillq3hq3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200425010744.png</strong> (106.22 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-25 01:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 8449#       发表于 2020-4-25 01:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197182&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-25 01:04</a>
+
+欧美这种遍地主机玩家的地方都是以氪金抽卡为耻的，EA搞个开箱都能把你骨灰扬了，你让他们玩手游？ ...</blockquote>
+其实某种意义上，舟游在欧美真的是“年轻人第一款手游”，所以在这个意义上，不联动vtb也就算了，真要联动holo是会想尽一切办法抢下来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8450#       发表于 2020-4-25 01:08
+
+
+
+
+受过的委屈可多了去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被当成虹人好像没啥大不了的
+
+反正虹那么多人，随便看个谁都成虹人了
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 8451#       发表于 2020-4-25 01:09
+
+
+
+<blockquote>yuandi20 发表于 2020-4-25 01:08
+其实某种意义上，舟游在欧美真的是“年轻人第一款手游”，所以在这个意义上，不联动vtb也就算了，真要联 ...</blockquote>
+这么吊吗，详细希望
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8452#       发表于 2020-4-25 01:11
+
+
+
+
+老子信了你的邪 虽然家纹挺帅的但做了那么些天就这几个表情<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8453#       发表于 2020-4-25 01:11
+
+
+
+
+虽然EA被骂惨了
+
+但根据云的信息，那个最新的nba游戏，不是要抽卡抽尼哥的吗
+
+最后也真香了来着？
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8454#       发表于 2020-4-25 01:11
+
+
+
+
+V圈粉丝鄙视链不是早有定论了吗，此事免议，当然想要kpi'议论一下也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8455#       发表于 2020-4-25 01:12
+
+
+
+
+crew和天狗都觉得自己受过委屈，到底是哪个罪大恶极的群体欺负他们呢
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 8456#       发表于 2020-4-25 01:12
+
+
+
+
+那帖子锁了回不了了。。也不知道他发现自己怼错人之后会不会道个歉啥的<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8457#       发表于 2020-4-25 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197092&amp;ptid=1924531" target="_blank">NBXX 发表于 2020-4-25 00:45</a>
+エイリアンのたまご——绊爱
+
+密特拉之星——绊爱
+
+テクテクテクテク——绊爱</blockquote>
+补充几个
+决斗大师（Duel Master Plays） —— 葛叶、兔、葵
+王国纪元（工商）—— 森中、诗子、天宫、eli等多人
+Elemental story（联动谷） —— sakuyui
+其他一些杂七杂八的工商比如今晚露露的是兄弟就来砍我就不说了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8458#       发表于 2020-4-25 01:13
+
+
+
+
+mea不是还有个蓝色的吗？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 8459#       发表于 2020-4-25 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">知道刷其他V不好还要刷mea，你确定这种人是天狗？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8460#       发表于 2020-4-25 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197092&amp;ptid=1924531" target="_blank">NBXX 发表于 2020-4-25 00:45</a>
+
+エイリアンのたまご——绊爱
+
+密特拉之星——绊爱
+
+テクテクテクテク——绊爱</blockquote>
+城与龙太子大葵空妈合唱的主题曲算么
+[https://www.youtube.com/watch?v=MHO8foVT5zI](https://www.youtube.com/watch?v=MHO8foVT5zI)[https://www.youtube.com/watch?v=ZgXe8iB11pg](https://www.youtube.com/watch?v=ZgXe8iB11pg)
+[https://www.youtube.com/watch?v=4ZVOz63d6EQ](https://www.youtube.com/watch?v=4ZVOz63d6EQ)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8461#       发表于 2020-4-25 01:19
+
+
+
+
+真亏龙皇的会员表情能过审核啊。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8462#       发表于 2020-4-25 01:19
+
+
+
+ 本帖最后由 遍体精淋af 于 2020-4-25 01:22 编辑 
+
+天狗和crew还是不一样的吧，我就没见到过哪个路人aoe crew的，但凡例举套皮女主播的种种饭圈行为的时候，总是会顺劈三酱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8463#       发表于 2020-4-25 01:21
+
+
+
+
+睡前提一嘴<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+你楼有些老哥不是喜欢乐子吗？建议早上去nga粥版发一帖“为什么大家都不想要联动vtb？我还挺喜欢xx的呀”
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8464#       发表于 2020-4-25 01:22
+
+
+
+
+谁说欧美人不爱玩手游的 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 都是一群嘴上说fking pay to win身体却很老实的，毛子美国佬有钱的充起来可不比国人差
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 8465#       发表于 2020-4-25 01:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出了s1我哪敢黑屁crew，天狗倒好像是到处被压着打没什么话语权
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 8466#       发表于 2020-4-25 01:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47189319&amp;ptid=1924531" target="_blank">墨玄i 发表于 2020-4-24 14:07</a>
+
+醒来就看到你们在车这，浪费时间力
+
+我本想拒绝的，但是他们给的实在太多了 ...</blockquote>
+大哥你也不至于把历史发言全部编辑了吧……
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 8467#       发表于 2020-4-25 01:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47187768&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-24 12:34</a>
+
+IMAGINATION Vol.2 那张管人拼盘专辑
+
+在**自动生成的频道里，inui翻唱的那首歌200万播放了。
+
+https://www.y ...</blockquote>
+已经被干掉了，视频无法播放。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8468#       发表于 2020-4-25 01:37
+
+
+
+
+倒也不必如此，欧美人的第一款手游还有奇迹暖暖系列，如果没记错这个游戏(系列？)的欧美基本盘是超过国内和日韩的<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 8469#       发表于 2020-4-25 01:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197278&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-04-25 01:19:07</a></blockquote>孽力反馈罢了，就跟现在啥事都一转顺劈aqua一样，本质上crew和天狗粉丝重合性大，粉到处跳。而且从另一方面看重复性上，前些时候aqua联动职业哥炎上跟mea联动舞元炎上也是一个路子
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8470#       发表于 2020-4-25 01:39
+
+
+
+<img src="https://p.sda1.dev/0/dd7abea7139592959ff691dce4d74093/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/ee373f321a6fc0fd3e7366fc8cc80aff/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8471#       发表于 2020-4-25 01:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197345&amp;ptid=1924531" target="_blank">灵魂收割机 发表于 2020-4-25 01:34</a>
+
+已经被干掉了，视频无法播放。</blockquote>
+我这里是正常的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 8472#       发表于 2020-4-25 01:42
+
+
+
+
+那么嫌弃黄毛吗，要真能联动黄毛那可有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8473#       发表于 2020-4-25 01:42
+
+
+
+
+虹人天狗的💩都搬过了不搬杏的容易被说歪屁股，贴个图睡觉。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/mw690/007GTNWcly1ge591ki0ncj30go10rmzm.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| h1001010| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 8474#       发表于 2020-4-25 01:44
+
+
+
+
+贴吧还经常流传着那张饭圈舔狗图，做的确实挺恶心人的。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8475#       发表于 2020-4-25 01:52
+
+
+
+
+你们真就管人粉丝聊一晚了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹粉木口粉天狗crew几个大点的团体全拉出来了。几十万个人没几个弱智，你以为活在天堂吗.jpg
+管人这么拉跨的吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8476#       发表于 2020-4-25 01:54
+
+
+
+
+是的，看露露马里奥看的我火都上来了，跑来泄泄火。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8477#       发表于 2020-4-25 01:55
+
+
+
+
+那这管人粉丝可是万里挑一的精英，比管人强也是可以理解的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8478#       发表于 2020-4-25 01:57
+
+
+
+
+那张图不就是去年某组p出来恶心天狗的吗
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 8479#       发表于 2020-4-25 01:58
+
+
+
+ 本帖最后由 KarsusNeko 于 2020-4-25 02:00 编辑 
+
+看来管人粉确实挺弱智的。有十v就有十粉？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 8480#       发表于 2020-4-25 02:00
+
+
+
+
+补了补理赔男打卫星，回来居然又车起管人粉丝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那张舔狗图我还在v8看到了crew版和彩虹版，太草了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8481#       发表于 2020-4-25 02:00
+
+
+
+
+所以说不要产生群体认同感，这样就不会被恶心到了。有句老话说的好，“你必须斩断与卡拉的连接”
+
+
+
+
+
+                 

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 00:01** 
+> ## **本文件最后更新于2020-04-25 02:00** 
 
 
 
@@ -4303,7 +4303,7 @@ https://t.co/Q1PajnqnVg
 
  本帖最后由 Dualist彩 于 2020-4-24 17:07 编辑 
 
-<img src="https://t.bilibili.com/381722915015289467?share_source=copy_link&amp;share_medium=android" id="aimg_Fu333" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://t.bilibili.com/381722915015289467?share_source=copy_link&amp;share_medium=android" id="aimg_aZf2F" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 5.5b限耐久唱歌
 
@@ -6949,7 +6949,7 @@ bsyl，没继续互动下去的v多了，每个都要找原因吗<img src="https
 
 
 
- 本帖最后由 魔法使い2019 于 2020-4-25 00:01 编辑 
+ 本帖最后由 魔法使い2019 于 2020-4-25 00:03 编辑 
 
 唉， 睡了， z...z..z
 
@@ -6959,7 +6959,7 @@ bsyl，没继续互动下去的v多了，每个都要找原因吗<img src="https
 我说的东西80%属于扯谈<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-我说这么多其实只是想说“mea的粉丝被养gachi强者抢走”而已， 相当于段子<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+我说这么多其实只是想说说“mea的粉丝被养gachi强者抢走”而已， 相当于段子<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
 
@@ -6981,4 +6981,357 @@ bsyl，没继续互动下去的v多了，每个都要找原因吗<img src="https
 
 
 
-                                    
+
+
+-----
+
+####  无限舰制  
+##### 18405#       发表于 2020-4-25 00:06
+
+
+
+
+反正我个人感觉就是非同社如果社交群啥的好久没说话
+
+
+你麻怕是拉不下面子再给人发消息一起玩啥的
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 18406#       发表于 2020-4-25 00:12
+
+
+
+
+tc突了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 18407#       发表于 2020-4-25 00:13
+
+
+
+
+又突了  今天好狠  拉满了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18408#       发表于 2020-4-25 00:13
+
+
+
+
+需要的时候能主动去抓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外交力够用了
+说起来去年有事了是找miu聊，之前有事了是找苔苔聊，不知道现在有没有换
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18409#       发表于 2020-4-25 00:14
+
+
+
+
+https://twitcasting.tv/kaguramea_vovhttps://t.bilibili.com/381849418983018584?tab=2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18410#       发表于 2020-4-25 00:16
+
+
+
+
+每次看到这个写初见桑名字的标题都感觉很奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tcyhm都爱这么玩吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18411#       发表于 2020-4-25 00:17
+
+
+
+
+蛤你麻这是要熬死人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 18412#       发表于 2020-4-25 00:18
+
+
+
+
+其实每次这样我都会装初见但是她根本不会写，标题诈骗！
+
+当bgm给论文凑字去了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 18413#       发表于 2020-4-25 00:19
+
+
+
+
+看看直播时长，所以现在是有事找阿宅聊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18414#       发表于 2020-4-25 00:19
+
+
+
+
+你麻不是在歌回就困了吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">年轻人精神充沛啊
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 18415#       发表于 2020-4-25 00:21
+
+
+
+
+日常.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18416#       发表于 2020-4-25 00:21
+
+
+
+ 本帖最后由 2014720 于 2020-4-25 00:22 编辑 
+
+草，我聋了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 18417#       发表于 2020-4-25 00:23
+
+
+
+
+男👊在哪出来打一拳
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18418#       发表于 2020-4-25 00:27
+
+
+
+
+日语丈育留下了不学无术的泪水<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">只能当背景音听了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 18419#       发表于 2020-4-25 00:41
+
+
+
+
+tc是不是初见是可以后台看出来的，装根本毫无意义，而且tc的yhm很讨厌初见诈欺。
+
+
+至于联动，害，爱跟谁玩跟谁玩呗。想那么多干嘛
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 18420#       发表于 2020-4-25 00:49
+
+
+
+
+wtf一不注意就错过半小时
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18421#       发表于 2020-4-25 00:51
+
+
+
+ 本帖最后由 Sanguine 于 2020-4-25 01:01 编辑 
+
+tc突击有望一转歌回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+果然还是耐久杂谈
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18422#       发表于 2020-4-25 00:55
+
+
+
+
+bug了，翻页
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18423#       发表于 2020-4-25 01:09
+
+
+
+
+这什么煞比老年二刺螈歌单<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 18424#       发表于 2020-4-25 01:26
+
+
+
+
+挺怀念的，一晚上听到了好几个能跟着唱出来，但是想不出来在哪听过的歌了。
+
+bgm比直播还好听，主播能发一下bgm下载地址吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18425#       发表于 2020-4-25 01:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这么喜欢一方
+
+
+
+
+
+                                   
