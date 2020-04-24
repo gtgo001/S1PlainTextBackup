@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 00:00** 
+> ## **本文件最后更新于2020-04-24 14:01** 
 
 
 
@@ -14902,10 +14902,11 @@ http://music.163.com/radio/?id=794429540
 
 
 
- 参与人数 9战斗力 +9
+ 参与人数 10战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1|十分感谢！|
 | 夕才| + 1||
 | Havik| + 1|好评加鹅|
 | 黑糖花园| + 1|好评加鹅|
@@ -15967,4 +15968,733 @@ SLY，露宝这个活动DD投稿是真多，看这么久还没看完。。。
 
 
 
-                     
+
+
+-----
+
+####  灵魂收割机  
+##### 6844#       发表于 2020-4-24 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47181888&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-23 22:49</a>
+
+草miki今天是小作文青春回忆回
+
+配合miki论坛发的小说可真是回味无穷（</blockquote>
+详细希望，哪个论坛？什么小说？
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6845#       发表于 2020-4-24 00:15
+
+
+
+
+b综KPI好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空无阿冰  
+##### 6846#       发表于 2020-4-24 00:36
+
+
+
+ 本帖最后由 空无阿冰 于 2020-4-24 00:37 编辑 
+
+问西米露能不能合唱要去直播间求hsm才行
+
+线下联动就差指名hsm不想去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好聚好散
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6847#       发表于 2020-4-24 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">西米露不仲不是很明显吗？一开始就很尬
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6848#       发表于 2020-4-24 00:54
+
+
+
+
+翻译校对，天生一对
+
+
+这说法不怎么科学嘛。副会长几个月前就在说HSM对她不太搭理。
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 6849#       发表于 2020-4-24 01:32
+
+
+
+
+ruki可能是被新来的stf说了所以这么大反应？要是这样那能理解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6850#       发表于 2020-4-24 01:39
+
+
+
+
+西米露这点破事来个外力给点危机感就完事了。隔壁夜王独角兽疑似不仲，桃皇来了之后也没事了。
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 6851#       发表于 2020-4-24 02:04
+
+
+
+
+弥宝这话...以后有谁到hsm直播间跳脸质问为什么弄得西米露和5期生半年纪念都搞不起来，然后说是弥宝指示的都毫无违和感<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 6852#       发表于 2020-4-24 02:09
+
+
+
+
+副会长这个“最近发觉自己爱无能，所以靠高强度漫画/动画学习爱”的dt肥宅rp也用力太猛了吧，真的能吸到吃cp营业吃腻了的独角兽么？
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6853#       发表于 2020-4-24 03:05
+
+
+
+ 本帖最后由 南云铁虎 于 2020-4-24 03:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47182601&amp;ptid=1909283" target="_blank">灵魂收割机 发表于 2020-4-24 00:04</a>
+
+详细希望，哪个论坛？什么小说？</blockquote>
+其实就是弥奇语录的一部分啦
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6854#       发表于 2020-4-24 06:51
+
+
+
+
+为什么不搞事的艾因不火呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6855#       发表于 2020-4-24 08:20
+
+
+
+
+可能是给的资源太少<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  links8018  
+##### 6856#       发表于 2020-4-24 08:22
+
+
+
+
+可能是声音听起来太不二次元了吧
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6857#       发表于 2020-4-24 08:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">原因还是有几个的，一个是不搞dd们最喜欢的贴贴营业，二是声音没那么二次元，三是游戏库实在是太窄了，基本就是mc那种，四是宅味比较淡，和阿宅的距离感比较远。不过全能的v基本也只是在幻想中而已，各有不同也挺好。
+
+
+
+
+
+
+
+-----
+
+####  文长ddd  
+##### 6858#       发表于 2020-4-24 09:33
+
+
+
+
+主要是资源不够啊，要是把前期给琉皇的资源给艾因，感觉现在不止十五万粉啊。还有艾因录歌选材不好，选几个阿宅愿意听的歌再配上好看的pv，涨粉不是很简单。就比如前期和本社前辈合唱我看就搞的不错，也不知道为啥就不弄了。
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6859#       发表于 2020-4-24 09:43
+
+
+
+
+Ruki前期比艾因多的资源基本上都是敢敢心心，这怎么给艾因，而且ruki粉丝真正拉开和七海差距就是那次和老e打ow吧，之前一直差不多的
+
+
+
+
+
+
+
+-----
+
+####  弥杀弥杀  
+##### 6860#       发表于 2020-4-24 09:44
+
+
+
+
+唉 啥时给孟宝多一点推广
+
+
+
+
+
+
+
+-----
+
+####  文长ddd  
+##### 6861#       发表于 2020-4-24 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47184538&amp;ptid=1909283" target="_blank">lxccsnm 发表于 2020-4-24 09:43</a>
+
+Ruki前期比艾因多的资源基本上都是敢敢心心，这怎么给艾因，而且ruki粉丝真正拉开和七海差距就是那次和老e ...</blockquote>
+还有冷鸟啊，冷鸟手里资源也不少啊。要是冷鸟艾因出个合唱，以艾因歌力也能吸不少粉。举个例子，柠哥当初和艾玛就出过一个合唱吸了不少粉。
+
+syl，从前期憨憨组团就能看出来琉皇有远见，组合本身能吸粉，还能拿资源。艾因咋就好巧不巧碰上一果了呢，她当时找版主可能都好一点。
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6862#       发表于 2020-4-24 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47184659&amp;ptid=1909283" target="_blank">文长ddd 发表于 2020-4-24 09:52</a>
+
+还有冷鸟啊，冷鸟手里资源也不少啊。要是冷鸟艾因出个合唱，以艾因歌力也能吸不少粉。举个例子，柠哥当初 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可是版主心里只有dota没有女人
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 6863#       发表于 2020-4-24 10:04
+
+
+
+<blockquote>文长ddd 发表于 2020-4-24 09:52
+还有冷鸟啊，冷鸟手里资源也不少啊。要是冷鸟艾因出个合唱，以艾因歌力也能吸不少粉。举个例子，柠哥当初 ...</blockquote>
+冷鸟也只和敢敢心心合唱了一首，Ruki能和鸟一起直播联动和转翻唱，也是她自己社交能力强，艾因还是没那么阳角的，VR也不太可能强行推吧
+
+
+
+
+
+
+
+-----
+
+####  不智法师  
+##### 6864#       发表于 2020-4-24 10:05
+
+
+
+
+艾因跟psp的钢板充分说明了这种类型的v是不吃香的
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6865#       发表于 2020-4-24 10:50
+
+
+
+ 本帖最后由 turtlejk 于 2020-4-24 10:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47184659&amp;ptid=1909283" target="_blank">文长ddd 发表于 2020-4-24 09:52</a>
+
+还有冷鸟啊，冷鸟手里资源也不少啊。要是冷鸟艾因出个合唱，以艾因歌力也能吸不少粉。举个例子，柠哥当初 ...</blockquote>
+是沃玛2333..吸了一大批粉..这还是在沃玛拜年祭之前合唱的..如果是拜年祭之后合唱那柠哥应该直接就往15w去了..
+
+syl 蘑菇下周要和vr的联动打uno<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6866#       发表于 2020-4-24 11:05
+
+
+
+
+还搞uno联动?上回uno联动什么情况没人记得了吗
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6867#       发表于 2020-4-24 11:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">uno本质是杂谈联动
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6868#       发表于 2020-4-24 12:19
+
+
+
+
+uno不是实在闲着没事干，找点东西尬玩的时候才用的吗
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6869#       发表于 2020-4-24 12:31
+
+
+
+
+uno联动说阵容了吗？要是有一果喵月有加就无视了，这几位联动=自闭，虽然蘑菇人确实挺能聊的，看她尬聊水平如何了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6870#       发表于 2020-4-24 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">搞uno联动不如强推版主的围棋漫谈，说不定能从某牙的围棋蛋糕里分一点出来，这才是长久之计
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6871#       发表于 2020-4-24 12:49
+
+
+
+
+蘑菇人聊也是聊婆罗门话题啊
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6872#       发表于 2020-4-24 12:50
+
+
+
+
+根据你楼吹死婊活的特性，我觉得这次联动可以观望一下
+
+
+
+
+
+
+
+-----
+
+####  铁木公  
+##### 6873#       发表于 2020-4-24 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47187690&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-24 12:31</a>
+
+uno联动说阵容了吗？要是有一果喵月有加就无视了，这几位联动=自闭，虽然蘑菇人确实挺能聊的，看她尬聊水平 ...</blockquote>
+这三位还好吧，只是比较容易尬。miki和鲨皇才是联动=自闭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 6874#       发表于 2020-4-24 12:57
+
+
+
+
+艾因的绝活mc和ff14，能涨粉才是神奇了
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6875#       发表于 2020-4-24 12:59
+
+
+
+
+我为喵月鸣不平<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">喵月要么干脆不联动，联动了绝对不是自闭角吧
+
+syl
+可能我小心眼吧
+我觉得仓鼠特别在意一些'名'上面的，像sc量和粉丝数啥的；世界服为了能和前辈互动，基本不和本社几个互动
+再说仓鼠一出道就发翻唱，各种专业操作，目标就是五期最强吧
+但是次月sc量就不如miki；之后粉丝也被超了，被超第二天，好像就找哪个人谈心了；miki这种阴角还能和黛灰联动【仓鼠明显更喜欢彩虹男v前辈】
+估计现在仓鼠就和某些虹人粉一样，酸死miki了
+还指望西米露半周年呢
+以上发言源自我的小心眼
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6876#       发表于 2020-4-24 13:04
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-24 13:19 编辑 
+
+我家以前厕所读物就是围棋杂志，《围棋》和《围棋天地》
+
+对我来说《围棋天地》故事多讲棋少，每期单纯讲棋的文章就两三个专栏，可比满本棋谱的《围棋》好看多了，外行人也能看得津津有味。
+
+版主现在讲讲围棋风云人物恩怨情仇自然看的人多，要是真开始讲棋或者下棋那还是算了吧，路人也不会有人想看这个
+
+他打dota都够无聊的，围棋爱好者跟二刺螈重合度又低的可怜，真下棋能有几个人看？
+
+还想跟专业围棋主播比那不是异想天开<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6877#       发表于 2020-4-24 13:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47187690&amp;ptid=1909283" target="_blank">不吃布丁的宫子 发表于 2020-4-24 12:31</a>
+
+uno联动说阵容了吗？要是有一果喵月有加就无视了，这几位联动=自闭，虽然蘑菇人确实挺能聊的，看她尬聊水平 ...</blockquote>
+还瞄月联动自闭，没瞄月你VR去年联动唯一遮羞布的甜蜜之家回后半段怕不是比高考回还尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+SYL，你楼也多了万事万物一转光一的账号，净土化指日可待。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6878#       发表于 2020-4-24 13:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喵月联动完全不自闭好吧，联动最地瓜的是miki和mhr，其他有些人最多是话插的没有那么恰当，还能救，这俩地瓜就是别人不递话一个字没有。
+
+
+
+
+
+
+
+-----
+
+####  lunaticfool  
+##### 6879#       发表于 2020-4-24 13:26
+
+
+
+
+原话不记得了，喵月说过自己虽然是个阴角但是如果联动还是会透支社交力的
+syl hsm天天蹭彩虹、彩虹id，社内拉小团体，结果还不如蹭aza涨粉快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+zsyl 版主最好看的还是解说比赛啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 6880#       发表于 2020-4-24 13:27
+
+
+
+
+弥宝自闭归自闭，没人控场或者冷场还是会尝试怪叫或者找话题来让场面不太尴尬，但是有人能控场她就完全地藏了。弥宝真是冷淡呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 6881#       发表于 2020-4-24 13:40
+
+
+
+
+琉皇联动也尬的啊，她跟柠哥一块玩那次把我尬的讲不出话
+
+感觉VR的几个女V联动都比较缺乏娱乐精神，用比较潮比较in的说法就是人⬆人，玩笑开不动，架子端起来，就会一套牌组摁着指定目标迫害
+
+上次VR版主好妹妹活动，魔宝那么明显的硬给弥宝加戏喂话，弥宝就硬能顾左右而言他，遇到问题就是“风大听不见“，这套牌起码打了几个月了吧，距离感也不是靠这个保持的
+
+
+喵月已经算是很能弯的下身子与民同乐的类型了，能拿自己开玩笑的女人玩起来都不会太难看，就是话术还是要练。
+
+孟宝是连遇到单人presentation都急得要退课的女人，这种问题只会更严重，多人活动只有问到头上才有话接，就硬考验MC的控场水平，上次舰B活动整的跟没这人一样
+
+
+至于仓鼠这人的心机小女生形象不是一开始就写脸上的吗，虽然手法娴熟但是心态不行，难成大器（
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6882#       发表于 2020-4-24 13:42
+
+
+
+
+感觉很多人云喵月联动，都以为她不说话不找话题啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6883#       发表于 2020-4-24 13:44
+
+
+
+
+万一人家是rp脆弱养gachi呢
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6884#       发表于 2020-4-24 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47188328&amp;ptid=1909283" target="_blank">雅朵莉雀 发表于 2020-4-24 13:04</a>
+
+我家以前厕所读物就是围棋杂志，《围棋》和《围棋天地》
+
+对我来说《围棋天地》故事多讲棋少，每期单纯讲棋 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">虎牙哪来几个专业的围棋主播啊，都是自闭下棋的，真要他们讲个所以然也讲不明白。
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">堂堂柯世界冠军都要靠**支撑直播效果。
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">而且围棋漫谈不也挺好吗，版主自己都说复健很不成功来着
+
+
+
+
+
+                    

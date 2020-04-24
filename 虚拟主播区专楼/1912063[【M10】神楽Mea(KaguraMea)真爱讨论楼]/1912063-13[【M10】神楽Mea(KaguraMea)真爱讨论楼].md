@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 10:01** 
+> ## **本文件最后更新于2020-04-24 14:02** 
 
 
 
@@ -3065,10 +3065,11 @@ cy全家桶系主播，哎
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 静夜观星| + 1|杀到巴黎，夺了鸟位|
 | weiweiEX| + 1|草|
 
 
@@ -3627,4 +3628,589 @@ https://t.co/Q1PajnqnVg
 
 
 
-                                          
+
+
+-----
+
+####  Sanguine  
+##### 18214#       发表于 2020-4-24 10:06
+
+
+
+
+特殊时期有东西播不是挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 18215#       发表于 2020-4-24 10:12
+
+
+
+
+艹，有可能看不了啊……难得是耐久歌回……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18216#       发表于 2020-4-24 10:14
+
+
+
+
+你们也要梁木吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 18217#       发表于 2020-4-24 10:20
+
+
+
+
+赶鸭子上架倒不至于，反正没啥播的，b限打卡唱歌也没差
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18218#       发表于 2020-4-24 10:35
+
+
+
+
+也搞不好是阿b找她，她自己也想播，就一拍即合了
+之前不是说心情不好所以不播么，昨天看情绪还不错？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 18219#       发表于 2020-4-24 10:40
+
+
+
+
+心情不好可能纯粹是在家里憋坏了，网又卡
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 18220#       发表于 2020-4-24 10:54
+
+
+
+ 本帖最后由 GRMeA104 于 2020-4-24 11:16 编辑 
+
+憋在家里网又差很容易暴躁的,像是冲浪网课甚至刚刚登陆S1能卡5分钟的话我都想鲨了运营商的ma<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18221#       发表于 2020-4-24 11:17
+
+
+
+
+昨天下播时不感觉怎么高兴啊.....管他那么多晚上看联动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18222#       发表于 2020-4-24 11:34
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：サムネを作ってから配信するけど
+媒体：[]
+链接：[]
+时间：2020-04-24 03:33:26 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1253527440980185089
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 18223#       发表于 2020-4-24 11:37
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-24 11:45 编辑 
+
+她不会真想播pcr吧。。。鬼看啊
+
+好，钦定了，不愧是她
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18224#       发表于 2020-4-24 11:39
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：あたしは麻雀に100票入れます
+媒体：[]
+链接：[]
+时间：2020-04-24 03:38:22 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1253528686520725504
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 18225#       发表于 2020-4-24 11:46
+
+
+
+
+不不不求求小麻别再氪金了，但是我寻思练级也没人看那<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 18226#       发表于 2020-4-24 11:46
+
+
+
+
+麻将是最强的!
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 18227#       发表于 2020-4-24 11:48
+
+
+
+
+是雀魂，mea操控赌局，虚空100票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18228#       发表于 2020-4-24 11:49
+
+
+
+
+ 突
+【YoutubeLive 神楽めあ 直播开始】
+标题：【雀魂】悪いけどそれロォォォォォン！【神楽めあ】
+时间：0分-1秒
+网址：https://www.youtube.com/watch?v=mPF7PJVErsw
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18229#       发表于 2020-4-24 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47186564&amp;ptid=1912063" target="_blank">Mr.shelter 发表于 2020-4-24 11:46</a>
+不不不求求小麻别再氪金了，但是我寻思练级也没人看那</blockquote>
+小麻给麻酱投了一百票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 18230#       发表于 2020-4-24 11:50
+
+
+
+
+不能折中一下吗，比如雀魂抽卡。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18231#       发表于 2020-4-24 11:54
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-24 11:50
+小麻给麻酱投了一百票</blockquote>
+麻酱，永远滴神！
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18232#       发表于 2020-4-24 11:58
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么把什么犬山绿熊舞元gbr扯了一圈
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 18233#       发表于 2020-4-24 12:00
+
+
+
+
+雀魂不能转播？哦，开了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 18234#       发表于 2020-4-24 12:01
+
+
+
+
+转播了，突击太快，跟不上你麻的思必得
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 18235#       发表于 2020-4-24 12:02
+
+
+
+
+评论区一路点名过来的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18236#       发表于 2020-4-24 12:05
+
+
+
+
+草，直播间挂在后台，声音突然冒出来有点懵
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18237#       发表于 2020-4-24 12:10
+
+
+
+
+牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18238#       发表于 2020-4-24 12:10
+
+
+
+
+刚想说转播这没遮上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没想到直接把mea立绘拿来遮了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 18239#       发表于 2020-4-24 12:13
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18240#       发表于 2020-4-24 12:14
+
+
+
+
+这同接<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 18241#       发表于 2020-4-24 12:17
+
+
+
+
+吃饭呢
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 18242#       发表于 2020-4-24 12:29
+
+
+
+
+上家不会是麻将妹8
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 18243#       发表于 2020-4-24 12:48
+
+
+
+
+这遮弹幕鬼才
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18244#       发表于 2020-4-24 12:49
+
+
+
+ 本帖最后由 2014720 于 2020-4-24 12:50 编辑 
+
+你在吹什么<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+不行了看得我裂开<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18245#       发表于 2020-4-24 12:57
+
+
+
+
+看你麻打牌是种享受，赌徒的快乐你理解不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 18246#       发表于 2020-4-24 13:02
+
+
+
+
+赌徒可不会立直不立平和强行少一番，建议叫mea慈善家
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18247#       发表于 2020-4-24 13:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你麻怎么还突击的
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">算了，麻将也看不懂
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18248#       发表于 2020-4-24 13:28
+
+
+
+
+连摸三把 这咩运气有点好<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
