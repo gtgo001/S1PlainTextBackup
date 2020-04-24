@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 14:01** 
+> ## **本文件最后更新于2020-04-24 18:00** 
 
 
 
@@ -14902,10 +14902,11 @@ http://music.163.com/radio/?id=794429540
 
 
 
- 参与人数 10战斗力 +10
+ 参与人数 11战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| tsoulgain| + 1|好评加鹅|
 | minamichisei| + 1|十分感谢！|
 | 夕才| + 1||
 | Havik| + 1|好评加鹅|
@@ -16697,4 +16698,767 @@ zsyl 版主最好看的还是解说比赛啊
 
 
 
-                    
+
+
+-----
+
+####  雅朵莉雀  
+##### 6885#       发表于 2020-4-24 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47189199&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-24 13:58</a>
+
+虎牙哪来几个专业的围棋主播啊，都是自闭下棋的，真要他们讲个所以然也讲不明白。
+
+堂堂柯 ...</blockquote>
+我只知道虎牙中象有王天一，他直播还挺有意思的，还以为现在棋类直播都发展得很好<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+不过想想也是，围棋直播如果闭口不讲简直就是地狱一样无聊，比中象这种家喻户晓一目了然的差太多了
+
+看天元围棋讲棋都看得人想睡觉（
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6886#       发表于 2020-4-24 14:23
+
+
+
+
+睡醒了想想，好像自己对喵月联动的印象还停留在鸟神的黑历史自爆回上，明明少钱xp联动和好妹妹联动都看得挺开心的。
+
+这就是梁木吗？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6887#       发表于 2020-4-24 14:24
+
+
+
+
+仓鼠一边拒绝西米露贴贴一边在微博“人家眼里的男liver只有妈妈和正太啦”，确实有内味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  feelmydick  
+##### 6888#       发表于 2020-4-24 14:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大家都看得出hsm的小心思,或者说她压根没掩饰
+
+
+VR这堆女人确实都比较人上人,联动自闭我觉得miki是"不想做",孟宝是真的"做不到"
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弥宝次次联动都积极参加,结果去了又当隐形人,难道只是去混个投稿合作位?
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6889#       发表于 2020-4-24 14:34
+
+
+
+
+现在仓鼠在的社内女性小团体还有hssn来着
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 6890#       发表于 2020-4-24 14:38
+
+
+
+
+什么，仓鼠不是彩虹社的吗，跟你vr有什么关系？
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6891#       发表于 2020-4-24 15:09
+
+
+
+
+B综终于走出车轱辘，可喜可贺<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6892#       发表于 2020-4-24 15:10
+
+
+
+
+hsm就是把功利写在脸上的类型，但是能力不行(还特别喜欢在直播间怼虚拟anti)，急也没用
+
+SYL联动uno最大的问题就是育碧土豆一样的服务器，导致让人连闷头打游戏这个选项都没有了，不会杂谈的话播这个游戏必拉胯
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 6893#       发表于 2020-4-24 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47189679&amp;ptid=1909283" target="_blank">feelmydick 发表于 2020-4-24 14:30</a>
+
+大家都看得出hsm的小心思,或者说她压根没掩饰
+
+
+VR这堆女人确实都比较人上人,联动自闭我觉得miki是" ...</blockquote>
+想跨出改变自己的一步却又怯场，弥宝，我懂你!<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 6894#       发表于 2020-4-24 15:17
+
+
+
+ 本帖最后由 kaion111 于 2020-4-24 15:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仓鼠确实很容易招各路anti，对社内男v嚣张出击，对同期组合爱理不理。然后在世界服和vr粉和虹粉都基本没听说过的海外虹男虹女快乐玩耍，
+
+舔本社的还能理解，舔海外还是语言不通的....心态实在是难以理解。大概是我眼中的梁木已经长成世界树了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，我觉得仓鼠一点都不功利，功利还不去舔舔本社上位势，搞搞本期组合，多蹭企划，不如说是追星心态太重。
+
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6895#       发表于 2020-4-24 15:32
+
+
+
+
+对海外的是舔吗，虹海外那几位人气也没有很高吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">异国男女一个服务器里面玩耍怎么看怎么暧昧啊
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6896#       发表于 2020-4-24 15:34
+
+
+
+
+互动：靠弹幕推进直播
+
+内容：靠准备推进直播
+
+偶像：就偶像
+
+陪伴：像网友
+
+
+大概就是这么个衡量标准，做完之后感觉相比日v，国v更加符合，没那么极端，可能这就是国v都不够pro的原因吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+1b07d405aad844eedb8fcec2eb8b8bb_副本.png
+(476.91 KB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-4-24 15:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/153227k2py00pax78zppjy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Kyonkon| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6897#       发表于 2020-4-24 15:43
+
+
+
+
+版主和度人是偶像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6898#       发表于 2020-4-24 15:49
+
+
+
+
+这分类看得出不是一般的云。。。
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 6899#       发表于 2020-4-24 15:50
+
+
+
+
+我觉得saya偏互动吧，还有你说光一度人偏偶像确实不懂，之前一个深夜万智牌一个深夜dota这是偶像的活儿吗，不如把roza分到偶像区里
+
+
+
+
+
+
+
+-----
+
+####  AEmpire  
+##### 6900#       发表于 2020-4-24 15:52
+
+
+
+
+这个分区跟我心里的出入有点大<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">，直播有内容是用什么标准评的
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6901#       发表于 2020-4-24 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47191007&amp;ptid=1909283" target="_blank">fjm 发表于 2020-4-24 15:50</a>
+
+我觉得saya偏互动吧，还有你说光一度人偏偶像确实不懂，之前一个深夜万智牌一个深夜dota这是偶像的活儿吗， ...</blockquote>
+偶像不偶像的定位是看粉丝不是看本人，光一粉的浓度我看V两年只在神乐mea那见过。
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 6902#       发表于 2020-4-24 16:00
+
+
+
+
+度人是做到最后烦躁了，放弃了思考，只考虑了内容的部分
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6903#       发表于 2020-4-24 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47189425&amp;ptid=1909283" target="_blank">雅朵莉雀 发表于 2020-4-24 14:14</a>
+
+我只知道虎牙中象有王天一，他直播还挺有意思的，还以为现在棋类直播都发展得很好
+
+不过想想也是， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直播下棋就是真的没什么直播效果啊，如果下同水平的棋，要动脑子思考，分不出心思互动了。
+
+如果去虐菜，确实有互动的余裕，但是一边倒的棋确实没什么意思。（柯洁甚至双开打牌了）
+
+如果是那种故意下无理手寻求刺激来增加直播效果，确实会很有意思，但是很容易翻车（虽然翻车也是直播效果的一部分）
+
+真要在职业棋手或者所谓的围棋大主播里面找能像版主这样把围棋历史讲的幽默风趣的，我觉得十不存一吧。
+
+（说实话，看柯洁直播的有几个是看棋去的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6904#       发表于 2020-4-24 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47191043&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 15:52</a>
+
+偶像不偶像的定位是看粉丝不是看本人，光一粉的浓度我看V两年只在神乐mea那见过。 ...</blockquote>
+但是版主粉丝才四万，为什么打lol的旅人行，打dota的老男人不行
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 6905#       发表于 2020-4-24 16:33
+
+
+
+
+讲道理版主和艾因真的很搭，果子哥能让一让吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 6906#       发表于 2020-4-24 16:35
+
+
+
+
+哪怕鲨皇都比一果强啊，能不能腾出来这个位置换个人
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6907#       发表于 2020-4-24 16:40
+
+
+
+ 本帖最后由 jkol 于 2020-4-24 16:44 编辑 
+
+别劈了，别劈了，弥宝什么时候能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/24/163830zr8qjwr3whz3pkwz.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图.png</strong> (389.39 KB, 下载次数: 2)
+
+下载附件
+
+2020-4-24 16:38 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 7战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 阿达克和稳定| + 1|好评加鹅|
+| 萌之上弥人| + 1|铁anti啊|
+| turtlejk| + 1|好评加鹅|
+| 苏利羊驼| + 1|万事转劈弥|
+| AEmpire| + 1|这样就没有出入了|
+| 锡哒哒| + 1|欢乐多|
+| wuaistage1| + 1|草草草没想到|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6908#       发表于 2020-4-24 16:59
+
+
+
+ 本帖最后由 ocyashiroi 于 2020-4-24 17:04 编辑 
+
+评几个我有康过的和我又有点出入的吧
+
+罗伊:可以放在惑妈的位置,万粉歌回的时候，他对V的见解就是《虚拟》和《偶像》，罗伊直播也没啥内容，但播的有趣，唱歌还挺不错
+
+惑妈:有学识的知心大姐姐，摸的很，离偶像十万八千里吧，可以丢陪伴区了
+
+鸟神&amp;大哥:我觉得内容和互动都有啊，撕一半扔对面区吧
+
+孟宝:如果声豚知识也算内容的话...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我觉得还是丢互动区更好
+
+有加:互动拉满吧，别内容了，没弹幕基本就全领域静默了
+
+(**照活动后浏览了几个录播和剪辑，和康了一次直播，真的遭罪
+
+八木：可以下拉点，因为确实他有时候会讲的射箭和咖啡啥的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6909#       发表于 2020-4-24 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47192298&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-24 16:59</a>
+
+评几个我有康过的和我又有点出入的吧
+
+罗伊:可以和惑妈换一个位置,万粉歌回的时候，他对V的见解就是《虚拟》 ...</blockquote>
+确实，很中肯的意见
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 6910#       发表于 2020-4-24 17:05
+
+
+
+
+yysy蘑菇明明是互动拉满的..昨天3小时战场挖个雷4基本全程都在和弹幕吹比..从小黄书到老游戏到新游戏..<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+而且魔宝陪伴拉满还行..偶像全无.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+顺便uno联动可能有寿寿歌..
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6911#       发表于 2020-4-24 17:07
+
+
+
+
+这象限图根子上就有大问题所以没讨论价值，属性边界是模糊的，并且虚拟主播多多少少都是三四重属性全沾。以前柰子画的那个集合图靠谱些。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 6912#       发表于 2020-4-24 17:11
+
+
+
+
+不是 这期三个明明都是互动拉满的 再加上根源上为什么内容和互动要是两极？互动就不能有内容吗
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6913#       发表于 2020-4-24 17:17
+
+
+
+
+顺劈来顺劈去还是学生妹不行<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  弥杀弥杀  
+##### 6914#       发表于 2020-4-24 17:24
+
+
+
+
+弥宝放在8老板那個位置也行，就像人跟寵物永遠不會互相理解，但人還是會養寵物
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6915#       发表于 2020-4-24 17:28
+
+
+
+
+上面老哥说得挺有道理的
+
+搞个四维图可能合理点
+
+
+
+
+
+
+大哥.png
+(72.85 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-24 17:28 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/172808lrhasfssrrcvoaj3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 萌之上弥人| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6916#       发表于 2020-4-24 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47192634&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-24 17:28</a>
+
+上面老哥说得挺有道理的
+
+搞个四维图可能合理点</blockquote>
+以前那个 交互--偶像--综娱 三维就行了。
+
+
+交互：杂谈、联动、临场应对、养gachi等操作都算在内。
+
+
+偶像：粉丝滤镜薄厚决定属性高低。
+
+
+综合娱乐：企划、整活、唱歌才艺等视听娱乐内容。有趣和丰富都重要。
+
+
+muri交互能力哪有这么强啊。
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 6917#         楼主| 发表于 2020-4-24 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47192394&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-24 17:07</a>
+
+这象限图根子上就有大问题所以没讨论价值，属性边界是模糊的，并且虚拟主播多多少少都是三四重属性全沾。以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">因为这个图本来就是创造KPI用的
+
+
+
+
+
+                   
