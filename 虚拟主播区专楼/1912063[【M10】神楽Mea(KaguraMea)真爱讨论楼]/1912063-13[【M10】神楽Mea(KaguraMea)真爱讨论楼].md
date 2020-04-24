@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-24 14:02** 
+> ## **本文件最后更新于2020-04-24 22:01** 
 
 
 
@@ -4213,4 +4213,1899 @@ https://t.co/Q1PajnqnVg
 
 
 
-                                         
+
+
+-----
+
+####  2014720  
+##### 18249#       发表于 2020-4-24 14:32
+
+
+
+
+希望不是鏖战到晚上接联动<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 18250#       发表于 2020-4-24 15:08
+
+
+
+
+转播呢？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 18251#       发表于 2020-4-24 15:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">赢了，12000点，要跑了么
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18252#       发表于 2020-4-24 15:12
+
+
+
+
+看人说阿b转播炸了？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18253#       发表于 2020-4-24 15:14
+
+
+
+
+炸了，阿咩404四逆一也要光荣下播了，没错过多少
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18254#       发表于 2020-4-24 17:03
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-24 17:07 编辑 
+
+<img src="https://t.bilibili.com/381722915015289467?share_source=copy_link&amp;share_medium=android" id="aimg_gkEMx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+5.5b限耐久唱歌
+
+不会要复刻五小时吧，声带受损警告，年轻人是真的飘<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18255#       发表于 2020-4-24 17:32
+
+
+
+
+五小时lol不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 18256#       发表于 2020-4-24 18:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">带头最后的波纹要来了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18257#       发表于 2020-4-24 18:06
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-24 18:18 编辑 
+
+能不能表演一下不仲
+
+
+相比于温暖大家庭我比较喜欢你欺我诈， 弱肉强食， 你死我活， 零和游戏， 黑暗森林
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 18258#       发表于 2020-4-24 18:11
+
+
+
+
+明天六点神乐组联动，顺带做个梦，今晚玩着玩着她不会哭出来⑧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18259#       发表于 2020-4-24 18:17
+
+
+
+
+有说是要玩什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 18260#       发表于 2020-4-24 18:27
+
+
+
+
+没说，俺寻思不是杂谈就是mc，还有就是今天晚上七点还是八点还有一次歌回
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18261#       发表于 2020-4-24 18:41
+
+
+
+
+晚上七点歌回，唱两小时休一小时就去打块联动
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18262#       发表于 2020-4-24 18:43
+
+
+
+
+https://b23.tv/BV1Ea4y147oN 
+
+这个手书做的挺好的
+
+
+
+
+
+
+Screenshot_20200424_184245.jpg
+(33.6 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-4-24 18:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/24/184323eamg1h1v1ncl15g5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18263#       发表于 2020-4-24 19:05
+
+
+
+
+【YoutubeLive 神楽めあ 直播等待】
+标题：【歌枠/アーカイブなし】作業用BGMはこちら【神楽めあ】
+时间：2分32秒
+网址：https://www.youtube.com/watch?v=-MZFXvyA77c
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 18264#       发表于 2020-4-24 19:12
+
+
+
+
+最后还是没有盼到mea和信姬的合唱吗……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18265#       发表于 2020-4-24 19:13
+
+
+
+
+能不能用玩subnautical代替玩纪念恐怖游戏呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18266#       发表于 2020-4-24 19:17
+
+
+
+
+不过信姬最后这么频繁活动，倒感觉也有转生的可能性就是了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18267#       发表于 2020-4-24 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么还翻的
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不过还挺可爱的
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">刚说就原形毕露
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18268#       发表于 2020-4-24 19:52
+
+
+
+
+一唱歌胸腹用力，尿就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 18269#       发表于 2020-4-24 19:53
+
+
+
+
+不是胃液吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18270#       发表于 2020-4-24 19:53
+
+
+
+
+这伴奏不行啊，原版听多了再听这伴奏跟尿了一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 18271#       发表于 2020-4-24 19:55
+
+
+
+
+**英文刷屏的比中文还可怕，毕竟这人看汉字至少能猜到大概说的啥，一堆字母...
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18272#       发表于 2020-4-24 20:07
+
+
+
+
+突然萌萌
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18273#       发表于 2020-4-24 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">装得挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 18274#       发表于 2020-4-24 20:09
+
+
+
+
+继续卖萌中
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18275#       发表于 2020-4-24 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 18276#       发表于 2020-4-24 20:09
+
+
+
+
+萌音之神将于今日莅临她忠诚的メロメロ王国
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 18277#       发表于 2020-4-24 20:09
+
+
+
+
+今晚可爱过分了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18278#       发表于 2020-4-24 20:12
+
+
+
+
+风格突变
+
+
+这回算cool 吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18279#       发表于 2020-4-24 20:21
+
+
+
+[@Cla0221](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=528160) 
+
+
+她404直播间下面的规矩有没有考虑整个英文版的？最近英文版聊现象有点多，虽然还在可接受范围内
+
+不过之前看乐一在推特上发了个不要英文版聊但鬼佬根本不会搜tag看推特的所以估计没啥用
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18280#       发表于 2020-4-24 20:25
+
+
+
+
+我倒觉得中文和英文应该没本质差别吧（？）
+
+大概是一样的看不懂
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18281#       发表于 2020-4-24 20:28
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-24 20:33 编辑 
+
+中文版聊中文社区会约束， 
+
+
+毕竟中国观众大多是通过阿b认识到mea的。
+
+
+英文版聊缺乏有效传达信息的通道, 
+
+reddit也不一定能广泛传播。
+
+
+不如说会参与那种社区的人大多已经“懂规矩”了。
+
+
+
+不过体感其实也只有歌回的时候英文比较多， 如果是这样那倒还行。
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 18282#       发表于 2020-4-24 20:30
+
+
+
+
+困了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18283#       发表于 2020-4-24 20:31
+
+
+
+
+她有提到么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+她不喜欢了就说了，不用提前想这些吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18284#       发表于 2020-4-24 20:34
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-24 20:31
+她有提到么
+
+她不喜欢了就说了，不用提前想这些吧</blockquote>
+18年底她在有管的直播就被中文评论影响的比较厉害吧。。。刚才特意去看了看，感觉外文评论是有点多，我记得木口那边就有不许外文版聊的规定，让咩姐照搬没问题吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18285#       发表于 2020-4-24 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">不过也没之前中文版聊严重就是，暂时不管看来也没什么大问题，稍微提一下的程度罢了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 18286#       发表于 2020-4-24 20:35
+
+
+
+
+跟那个做英文剪辑的人说一下，加个不要英文版聊呗<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18287#       发表于 2020-4-24 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194827&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-24 20:34</a>
+18年底她在有管的直播就被中文评论影响的比较厉害吧。。。刚才特意去看了看，感觉外文评论是有点多，我记 ...</blockquote>
+我是觉得粉丝想这事多此一举，她想加直接自己在概要栏加就行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">要是是让中国粉丝拱个禁止英文版聊出来就变味了吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|这个说的对|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18288#       发表于 2020-4-24 20:37
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-24 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194841&amp;ptid=1912063" target="_blank">惑星 发表于 2020-4-24 20:35</a>
+
+跟那个做英文剪辑的人说一下，加个不要英文版聊呗</blockquote>
+也对， 稳定观众， 如果有的话， 应该会看翻译剪辑。
+
+
+从源头上传达信息是合理的。
+
+
+这个也不算干预mea本身。 
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18289#       发表于 2020-4-24 20:41
+
+
+
+
+不过我觉得应该看看这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://bbs.nga.cn/read.php?tid=21396016&amp;_fp=3](https://bbs.nga.cn/read.php?tid=21396016&amp;_fp=3)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18290#       发表于 2020-4-24 20:41
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-24 20:36
+我是觉得粉丝想这事多此一举，她想加直接自己在概要栏加就行了要是是让中国粉丝拱个禁止英文版聊 ...</blockquote>
+问题是她被影响后要等一段时间才会说，而且那时候影响都比较严重了，比如去年的直播间规则，还有今年年初的阿宅邮箱，规矩早点立才好
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 18291#       发表于 2020-4-24 20:42
+
+
+
+
+呜呜呜mea唱歌技巧越来越好了，但是比以前少了些什么。。。😭😭😭
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18292#       发表于 2020-4-24 20:42
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-24 20:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194913&amp;ptid=1912063" target="_blank">Leutnant某囧 发表于 2020-4-24 20:41</a>
+问题是她被影响后要等一段时间才会说，而且那时候影响都比较严重了，比如去年的直播间规则，还有今年年初 ...</blockquote>
+我觉得这就是粉丝管得太宽了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她不急你急啥啊
+比较严重的事，比如爱讨论这种也就算了。版聊这种多大点事等她自己处理就行了
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 18293#       发表于 2020-4-24 20:43
+
+
+
+
+昨天血压爆炸的坛友可以安心了，她井了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18294#       发表于 2020-4-24 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194934&amp;ptid=1912063" target="_blank">gundamf91 发表于 2020-4-24 20:43</a>
+昨天血压爆炸的坛友可以安心了，她井了</blockquote>
+就剩那一点肯定井啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得昨天都到261了吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18295#       发表于 2020-4-24 20:47
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-24 20:50 编辑 
+
+还行， 我看了一下， 其实英文翻译视频那边介绍栏有写的。
+
+
+虽然我不知道多少人会看就是了。
+
+
+版聊其实还容易搞定， 观众也能看出是不是到了会影响她的程度， 而不像当年传信鸽一样她在不在意也不知道。
+
+
+所以我认为这个暂且观望就好。
+
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 18296#       发表于 2020-4-24 20:49
+
+
+
+
+少什么不知道,肉肯定多了点
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18297#       发表于 2020-4-24 20:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47194928&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-24 20:42</a>
+
+我觉得这就是粉丝管得太宽了她不急你急啥啊</blockquote>
+但她看不懂在说啥，老外也不知道有个直播间规矩禁止版聊，刚刚就看到一个对俄文老哥用英文出警的，说“兄弟你一个人用俄语跟谁聊天呢？”，你说这不是找事吗？来几个上头的看见了大概瞬间就能吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过目前暂时还好，所以不管也行，但“运营组”比粉丝多留一份心不也很正常么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18298#       发表于 2020-4-24 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">可怜的琪爱露，最终这是麻酱抽nnk到借口，这可能就是工具人吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18299#       发表于 2020-4-24 20:51
+
+
+
+
+她唱歌有没有内味儿关键在于她想不想，今天明显是省力模式，当个bgm算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 18300#       发表于 2020-4-24 20:53
+
+
+
+
+你楼以前怎么黑屁信姬来着？肉多气稳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18301#       发表于 2020-4-24 20:54
+
+
+
+
+没听过歌回，mea唱歌日常每首都口胡吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18302#       发表于 2020-4-24 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195015&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-24 20:49</a>
+但她看不懂在说啥，老外也不知道有个直播间规矩禁止版聊，刚刚就看到一个对俄文老哥用英文出警的，说“兄 ...</blockquote>
+说白了本身就不是什么多大问题，就算吵起来有啥很严重的后果么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对mea心情的影响大概还不如来封怪文书的。何况现在就那么几个人会说外文
+往现实点想，反正成问题了也不会有太大危害，那就等成问题了再处理呗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 18303#       发表于 2020-4-24 20:55
+
+
+
+<blockquote>Sanguine 发表于 2020-4-24 20:54
+没听过歌回，mea唱歌日常每首都口胡吗</blockquote>
+看发挥，胡的居多
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 18304#       发表于 2020-4-24 20:56
+
+
+
+
+确实，过年以来的歌回都总觉得她声音有一丝肉肉的，就像声带长胖了。或许是发音方式有变化
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 18305#       发表于 2020-4-24 20:57
+
+
+
+
+有的时候不知道是唱错了笑，还是因为笑唱错。胡的时候，能明显感觉被其他东西吸引注意力
+
+
+
+
+
+
+
+-----
+
+####  柚子皮  
+##### 18306#       发表于 2020-4-24 20:57
+
+
+
+
+难道不是单纯地长大了么..
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18307#       发表于 2020-4-24 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道她都多久没出门了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18308#       发表于 2020-4-24 20:58
+
+
+
+
+什么叫长大， 
+
+
+那叫老了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18309#       发表于 2020-4-24 20:59
+
+
+
+
+算了，老了就老了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 18310#       发表于 2020-4-24 21:00
+
+
+
+
+说老的拖出去埋了
+
+
+麻酱永远年轻
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18311#       发表于 2020-4-24 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195143&amp;ptid=1912063" target="_blank">2014720 发表于 2020-4-24 20:59</a>
+算了，老了就老了</blockquote>
+是成熟大姐姐还是姨不都看观众怎么叫吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">38叫姨都年轻了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 18312#       发表于 2020-4-24 21:07
+
+
+
+ 本帖最后由 若风之景 于 2020-4-24 21:10 编辑 
+
+那么神乐组在联动时除了喧哗上等营业还能跑团讲相声吗？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18313#       发表于 2020-4-24 21:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195080&amp;ptid=1912063" target="_blank">weiweiEX 发表于 2020-4-24 20:54</a>
+
+说白了本身就不是什么多大问题，就算吵起来有啥很严重的后果么对mea心情的影响大概还不如来封怪文 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话不能这么说，中文版聊吵起来其实也不如怪文书对她的影响大，那为啥她要招个中国粉丝当房管啊
+
+也总不能一直不管等她哪天拉个鬼佬当房管才算完吧，虽然现在确实不用管，但房管需要留意，我艾特流星就是想说这个
+
+
+syl，你咩姐一边唱歌一边刷推也是日常了（比如现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 18314#       发表于 2020-4-24 21:10
+
+
+
+
+胡不胡这个看选曲的，这种观众点歌型的她不熟的多，要是自己准备歌单连唱的那种就胡的少
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 18315#       发表于 2020-4-24 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">mea今天这网络状况堪忧啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18316#       发表于 2020-4-24 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195235&amp;ptid=1912063" target="_blank">路人庚 发表于 2020-4-24 21:09</a>
+话不能这么说，中文版聊吵起来其实也不如怪文书对她的影响大，那为啥她要招个中国粉丝当房管啊
+
+也 ...</blockquote>
+为啥招记者我还真忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是觉得现在这才几个外国人看她啊，根本不用这么在意
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18317#       发表于 2020-4-24 21:14
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-24 21:17 编辑 
+
+不知道是因为日本网络负担还是因为油  管不行
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18318#       发表于 2020-4-24 21:14
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-24 21:15 编辑 
+
+但我得提醒一点
+
+
+泛二次元圈子
+
+
+东亚中韩两国，甚至东南亚，二次元用户比例我直觉上是高于欧美的，换句话说欧美死宅更没地位更小圈子
+
+如果你把龙珠为代表的少年漫系观众排除出去，关注VTB市场的观众群就更是如此
+
+
+哪怕在墙的封锁这个debuff之下，大家都敞开了版聊，我觉得中文浓度也可能会压过英文浓度
+
+
+——所以打靶英文评论某种意义上不用那么着急……
+
+刚NGA那楼也有点虚空打靶的嫌疑
+
+
+这种现状的成因之一，可以说有一份nico衰落，B崛起——但B事实上不怎么能服务海外用户的的原因
+
+事实上B就是扩展了国内二次元广度，但没怎么辐射到其它国家地区去
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18319#       发表于 2020-4-24 21:16
+
+
+
+
+这赞数要破同接了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 18320#       发表于 2020-4-24 21:18
+
+
+
+
+我觉得mea的网不行
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18321#       发表于 2020-4-24 21:19
+
+
+
+
+大概是今晚mea网卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18322#       发表于 2020-4-24 21:19
+
+
+
+
+日本网络也不堪重负了？还是她自己设置/运营商的问题
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18323#       发表于 2020-4-24 21:20
+
+
+
+
+到底是哪边的网卡成狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18324#       发表于 2020-4-24 21:21
+
+
+
+
+说不定她不会设定密码， 网被偷了（
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 18325#       发表于 2020-4-24 21:21
+
+
+
+
+这种唱法，嗓子不要了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18326#       发表于 2020-4-24 21:22
+
+
+
+
+来劲
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 18327#       发表于 2020-4-24 21:23
+
+
+
+
+我猜是公寓公用的网,最近没人出门负荷太高遭不住
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18328#       发表于 2020-4-24 21:23
+
+
+
+
+突然这么强<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 18329#       发表于 2020-4-24 21:23
+
+
+
+
+唱high了？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18330#       发表于 2020-4-24 21:23
+
+
+
+
+我错了我错了，咩咩轻点，心疼死了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 18331#       发表于 2020-4-24 21:23
+
+
+
+
+厉害，网卡可惜了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18332#       发表于 2020-4-24 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">唔，咩咩嗓子痛吗我可以亲一亲
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 18333#       发表于 2020-4-24 21:24
+
+
+
+
+唱完自己都有点吓到了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 18334#       发表于 2020-4-24 21:25
+
+
+
+
+刚那首太爽了，回味无穷<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 18335#       发表于 2020-4-24 21:25
+
+
+
+
+邻居怕不是因为这人天天三更半夜鬼吼怒而偷了她家的网报复(
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 18336#       发表于 2020-4-24 21:25
+
+
+
+
+爽啊，怕是要唱到十点？待会联动应该也要大喊大叫大笑吧
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18337#       发表于 2020-4-24 21:27
+
+
+
+
+我怎么觉得Mea自己倒唱爽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能vtb直播房隔音效果好吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18338#       发表于 2020-4-24 21:27
+
+
+
+
+她开心我开心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18339#       发表于 2020-4-24 21:28
+
+
+
+
+这状态也许可以来一首反乌托邦（
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 18340#       发表于 2020-4-24 21:29
+
+
+
+
+越唱越好听
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 18341#       发表于 2020-4-24 21:30
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-24 21:32 编辑 
+
+苔苔为什么要这时候安排联动，就不能让她好好唱爽一次吗，梁木+1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 18342#       发表于 2020-4-24 21:32
+
+
+
+
+这个唱法很麻，看来她去研究过自己过去的发声方式了，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 18343#       发表于 2020-4-24 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">她居然还在唱吗…
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 18344#       发表于 2020-4-24 21:34
+
+
+
+
+厉害！
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18345#       发表于 2020-4-24 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195521&amp;ptid=1912063" target="_blank">uuuuu7 发表于 2020-4-24 21:30</a>
+
+苔苔为什么要这时候安排联动，就不能让她好好唱爽一次吗，梁木+1</blockquote>
+要是晚上没联动
+
+
+她睡到十点起来熬死观众咋办
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18346#       发表于 2020-4-24 21:37
+
+
+
+
+找来INSIDE IDENTITY原曲听了下，也不是她这么个嚎叫唱法啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">在家憋太久了吗
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 18347#       发表于 2020-4-24 21:38
+
+
+
+
+感觉有点喘了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18348#       发表于 2020-4-24 21:38
+
+
+
+
+唱歌魔改是传统艺能了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18349#       发表于 2020-4-24 21:41
+
+
+
+ 本帖最后由 2014720 于 2020-4-24 21:43 编辑 
+
+这首麻是真的上手
+
+翻了翻了翻了翻了翻了翻了翻了翻了翻了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 18350#       发表于 2020-4-24 21:46
+
+
+
+
+休息一下看信姬，唉
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 18351#       发表于 2020-4-24 21:48
+
+
+
+
+孩子见不得sc夸奖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 18352#       发表于 2020-4-24 21:50
+
+
+
+
+按照她今天这个去厕所的频率，一会被打到直接漏的可能性还蛮高的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 18353#       发表于 2020-4-24 21:51
+
+
+
+
+今晚就犬山能打点，其他两个人的砖法都是垫脚石级<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
