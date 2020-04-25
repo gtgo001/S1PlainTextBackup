@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 00:10** 
+> ## **本文件最后更新于2020-04-26 02:13** 
 
 
 
@@ -313,4 +313,1382 @@ syl，海猫羽中不好看，姚蒙海猫羽中，好看！
 
 
 
-                                                 
+
+
+-----
+
+####  wsotaku  
+##### 9017#       发表于 2020-4-26 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47205943&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-4-26 00:04</a>
+
+夏吹营业总能整些好活，这就是前任的默契吗？
+
+syl，百万b限这种狐狸都不在意的东西为什么dd要在意
+
+syl，海 ...</blockquote>
+怎么忽然谈到夏吹，最近几天没活呀<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9018#       发表于 2020-4-26 00:14
+
+
+
+<blockquote>【棉花糖】
+
+假设手里有2000日元
+
+①入两个月频道会员（其实是4个月）
+
+②买2000日元的音声
+
+③打2000日元的sc
+
+④推生送2000日元的茶（礼物）
+
+哪一个给vtb的钱最多？
+
+
+叶：音声</blockquote>看来彩虹在其他地方的抽成是真的高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9019#       发表于 2020-4-26 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206000&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-26 00:14</a>
+
+看来彩虹在其他地方的抽成是真的高</blockquote>
+这另外三个不都会先被平台抽三成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 9020#       发表于 2020-4-26 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206000&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-26 00:14</a>
+看来彩虹在其他地方的抽成是真的高</blockquote>
+彩虹抽成高❌
+平台抽成高✅
+
+booth只抽3.6%，比其他平台动不动两三成确实友好
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9021#       发表于 2020-4-26 00:20
+
+
+
+
+t台也是抽三吗
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 9022#       发表于 2020-4-26 00:25
+
+
+
+
+oto这个新皮摇来摇去地唱萌音曲太可爱了
+
+不行了，我被老阿姨俘获了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9023#       发表于 2020-4-26 00:25
+
+
+
+
+本来音声不管谁写台本都是成本最低的，最终所得当然高
+
+
+syl 二次元里粥游确实不算肝了，去年玩的梦幻模拟战比他肝十倍
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9024#       发表于 2020-4-26 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206025&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-26 00:20</a>
+
+彩虹抽成高❌
+
+平台抽成高✅</blockquote>
+然而交互感低真的要命，这是我的个人体验，对主播友好也要对自己友好才行，这样才能winwin和持久推呀
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9025#       发表于 2020-4-26 00:26
+
+
+
+[https://www.youtube.com/watch?v=gW2IWU93HPg](https://www.youtube.com/watch?v=gW2IWU93HPg)
+
+Think of me【日本語/Japanese】
+
+
+管人歌力上限的竞争者之一，这位怕不真的是音乐老师吧，挺想看这位和エーテル同台斗斗歌的......
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 9026#       发表于 2020-4-26 00:26
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-4-26 00:44 编辑 
+<blockquote>wsotaku 发表于 2020-4-26 00:11
+怎么忽然谈到夏吹，最近几天没活呀</blockquote>
+不是你们先谈的吗。夏吹联动虽然可能台本味比较浓，但就是合胃口。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 9027#       发表于 2020-4-26 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206070&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-26 00:26</a>
+然而交互感低真的要命，这是我的个人体验，对主播友好也要对自己友好才行，这样才能winwin和持久推呀 ...</blockquote>
+所以booth在结算完有个发推按钮，就是让你方便发推让人自搜搜到点个赞嘛。
+
+而且给了boost之后截图金额带tag、自搜词发个推也大概率能被点赞，再不济写点音声感想一般都一定会点。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9028#       发表于 2020-4-26 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206097&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-26 00:28</a>
+
+所以booth在结算完有个发推按钮，就是让你方便发推让人自搜搜到点个赞嘛。
+
+
+而且给了boost之后截图金额带 ...</blockquote>
+完全不会用，买了大脸T发推了夏哥也没点赞，交互感好低好低<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9029#       发表于 2020-4-26 00:34
+
+
+
+<blockquote>斯大林的拖拉机 发表于 2020-4-26 00:25
+oto这个新皮摇来摇去地唱萌音曲太可爱了
+
+不行了，我被老阿姨俘获了</blockquote>
+确实，老阿姨卖萌一直很可以的
+
+说着就来了个总督草
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 9030#       发表于 2020-4-26 00:35
+
+
+
+<blockquote>wsotaku 发表于 2020-4-26 00:33
+完全不会用，买了大脸T发推了夏哥也没点赞，交互感好低好低</blockquote>
+穿上发照片大概就点了
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 9031#       发表于 2020-4-26 00:36
+
+
+
+
+音声听起来还是很舒服的，有些sc打了顶多念两秒<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">而且虹音声出得勤，买着买着就有收集感了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9032#       发表于 2020-4-26 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206123&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-26 00:33:34</a>
+完全不会用，买了大脸T发推了夏哥也没点赞，交互感好低好低</blockquote>谁叫你不是女祭丝 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9033#       发表于 2020-4-26 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206187&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 00:46</a>
+
+谁叫你不是女祭丝 
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+点赞也不如念SC的满足感好……声音本身质量……反正不能用以后估计不会买了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9034#       发表于 2020-4-26 00:51
+
+
+
+ 本帖最后由 ひびき 于 2020-4-26 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206072&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 00:26</a>
+[https://www.youtube.com/watch?v=gW2IWU93HPg](https://www.youtube.com/watch?v=gW2IWU93HPg)
+
+Think of me【日本語/Japanese】</blockquote>
+啊这啊，这首歌是歌剧魅影里女主的solo啊，唱这歌不用担心版权的么（该不会是四季剧团里某人的马甲吧
+
+
+顺便一说这个歌的英文版&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;日语版
+
+
+
+
+
+话说我对阿希的终极期望也就是能唱这个水平的曲子了，不说唱好吧，能唱就行了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9035#       发表于 2020-4-26 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206229&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 00:51</a>
+
+啊这啊，这首歌是歌剧魅影里女主的solo啊，唱这歌不用担心版权的么（该不会是四季剧团里某人的马甲吧
+
+
+顺 ...</blockquote>
+不是 免费发的这个唱得这么拉跨 你居然听得下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9036#       发表于 2020-4-26 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206229&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 00:51</a>
+
+啊这啊，这首歌是歌剧魅影里女主的solo啊，唱这歌不用担心版权的么（该不会是四季剧团里某人的马甲吧
+
+
+顺 ...</blockquote>
+这位你点进频道看看，一看就是和大葵エーテル一样，从哪个剧团跑出来的，唱的全是这种，还动不动给人讲音乐史的
+
+上一首是caro mio ben，听完这个姐姐再听空妈的简直辣耳朵<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=2oaGBeaNK7Q](https://www.youtube.com/watch?v=2oaGBeaNK7Q)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9037#       发表于 2020-4-26 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206072&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 00:26</a>
+
+https://www.youtube.com/watch?v=gW2IWU93HPg
+
+Think of me【日本語/Japanese】</blockquote>
+这人中之人是谁啊，没エーテル的好找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9038#       发表于 2020-4-26 00:59
+
+
+
+<blockquote>ひびき 发表于 2020-4-26 00:51
+啊这啊，这首歌是歌剧魅影里女主的solo啊，唱这歌不用担心版权的么（该不会是四季剧团里某人的马甲吧
+
+
+顺 ...</blockquote>
+要求太高了吧 这首也太高了
+
+现在音乐剧走流行的也不少的，这首为目标没必要吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9039#       发表于 2020-4-26 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206264&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-26 00:57</a>
+
+不是 免费发的这个唱得这么拉跨 你居然听得下去</blockquote>
+以V的标准这个已经强到没边了，当然真的上剧院舞台上当女主是不太行，问题这已经是V界顶点了，凑合听吧，エーテル其实也混不上女主的...
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 9040#       发表于 2020-4-26 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206131&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-4-26 00:34</a>
+
+确实，老阿姨卖萌一直很可以的
+
+说着就来了个总督草</blockquote>
+啊，这哭的太真情实感了
+
+忍不住打钱了
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 9041#       发表于 2020-4-26 01:04
+
+
+
+
+上微博冲女拳冲上了彩虹女粉，怕了怕了我先撤<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9042#       发表于 2020-4-26 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206264&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-26 00:57</a>
+
+不是 免费发的这个唱得这么拉跨 你居然听得下去</blockquote>
+这还拉胯啊，think of me 最后那个花腔能拉上去不破音就已经是顶尖了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+除非你这拉胯是跟Sierra Boggess，或者野村玲子、铃木京子、井料瑠美比
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9043#       发表于 2020-4-26 01:07
+
+
+
+
+听了听，感觉不太行。看在free老哥的面子上点个赞再走好了。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9044#       发表于 2020-4-26 01:07
+
+
+
+<blockquote>ひびき 发表于 2020-4-26 01:04
+这还拉胯啊，think of me 最后那个花腔能拉上去不破音就已经是顶尖了
+
+
+除非你这拉胯是跟Sierra Bo ...</blockquote>
+不是 音乐剧又不是比炫技 他说的也是大剧团女主吧 
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9045#       发表于 2020-4-26 01:08
+
+
+
+ 本帖最后由 ひびき 于 2020-4-26 01:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206289&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 01:00</a>
+
+以V的标准这个已经强到没边了，当然真的上剧院舞台上当女主是不太行，问题这已经是V界顶点了，凑合听吧， ...</blockquote>
+我说了，好多舞台是靠关系的，帝剧的某些剧的女主还不如这位或者不如大葵的也不是没有
+
+
+当然歌剧魅影（オペラ座の怪人）好像没出现过这种情况<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 毕竟这剧你塞人只会惨不忍睹
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9046#       发表于 2020-4-26 01:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206265&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 00:57</a>
+
+这位你点进频道看看，一看就是和大葵エーテル一样，从哪个剧团跑出来的，唱的全是这种，还动不动给人讲音 ...</blockquote>
+后面那caro mio ben根本就不是她唱的，写的很清楚是Tomomasa Giorgione唱的，up主是负责演奏的
+
+
+然后我真的不懂喜欢美声为什么要在管人里找  思路太清奇了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9047#       发表于 2020-4-26 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206316&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 01:04</a>
+
+这还拉胯啊，think of me 最后那个花腔能拉上去不破音就已经是顶尖了
+
+
+除非你这拉胯是跟Sierra Bo ...</blockquote>
+最后上去了也不能掩盖前面拉跨，都不用和谁比**上随便搜一个就完爆了
+[https://www.youtube.com/watch?v=yJV_SurTE8w](https://www.youtube.com/watch?v=yJV_SurTE8w)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9048#       发表于 2020-4-26 01:12
+
+
+
+ 本帖最后由 ひびき 于 2020-4-26 01:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206343&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-26 01:09</a>
+
+最后上去了也不能掩盖前面拉跨，都不用和谁比**上随便搜一个就完爆了
+[https://www.youtube.com/watch?v=y](https://www.youtube.com/watch?v=y) ...</blockquote>
+你给的这位也不知道是谁，我感觉已经可以和四季已经出了录音的三版平齐了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+艹我搜了一下你给的这个就是元劇団四季所属 沼尾みゆき，电影版歌剧魅影克里斯汀的配音，这还比个锤子
+
+
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 9049#       发表于 2020-4-26 01:13
+
+
+
+
+好久没来了，问今是何世？
+
+阿夸食杀阿葵没？白姨食杀月之没？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9050#       发表于 2020-4-26 01:15
+
+
+
+<blockquote>Igarashi 发表于 2020-4-26 01:13
+好久没来了，问今是何世？
+
+阿夸食杀阿葵没？白姨食杀月之没？</blockquote>
+翻一下前面就有了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9051#       发表于 2020-4-26 01:15
+
+
+
+
+ig好久不见啊，都有了，都有了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9052#       发表于 2020-4-26 01:15
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-4-26 01:19 编辑 
+<blockquote>ひびき 发表于 2020-4-26 01:12
+你给的这位也不知道是谁，我感觉已经可以和四季已经出了录音的三版平齐了 ...</blockquote>
+
+不是 哥哥 你这平不平的标准难道就是高音唱没唱上去吗 这完全没感情没张力的搁这唱口水歌呢 不过我也没听过日版 如果本来就是这样的当我没说
+
+
+不过现在也差不多是饭圈了 能不能当主角跟功力也没啥关系 毕竟小神马都能上
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9053#       发表于 2020-4-26 01:18
+
+
+
+ 本帖最后由 ひびき 于 2020-4-26 01:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206381&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-4-26 01:15</a>
+
+不是 哥哥 你这平不平的标准难道就是高音唱没唱上去吗 这完全没感情没张力的搁这唱口水歌呢 不过我也没听 ...</blockquote>
+我查了下这位就是日语版歌剧魅影电影克里斯汀的吹替，你再考虑考虑？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 9054#       发表于 2020-4-26 01:18
+
+
+
+
+点回复才发现又换楼了
+
+我看这好几百页还以为是上一栋楼呢
+
+十天水了三百页还行
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9055#       发表于 2020-4-26 01:21
+
+
+
+
+你们怎么能给V画条条框框呢，天天除了管人金曲就是anisong就好吗，谁规定管人就不能唱美声的，给你们来个不一样的还不好。
+
+这个姐姐主要是...全是这种歌，像エーテル有时候还能来点流行呢，这个姐姐就全是这样的，去年底还拉了一帮人合唱欢乐颂
+[https://www.youtube.com/watch?v=aQBAzWfZfqk](https://www.youtube.com/watch?v=aQBAzWfZfqk)
+
+当然这帮人里除了她自己和那位奏音lily之外都不太行就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9056#       发表于 2020-4-26 01:22
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-4-26 01:24 编辑 
+<blockquote>ひびき 发表于 2020-4-26 01:18
+我查了下这位就是四季剧团的啊</blockquote>
+
+不是 能不能就歌论歌你这咋又开始搬身份 我听过原版 说这版本完全没法比 然后你搬个身份出来是想压谁？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9057#       发表于 2020-4-26 01:22
+
+
+
+
+因为小天使的原因搜了早安的原曲，好听：
+
+
+モーニング娘。'16『泡沫サタデーナイト！』
+[https://www.youtube.com/watch?v=IiV-aaLo9SM](https://www.youtube.com/watch?v=IiV-aaLo9SM)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9058#       发表于 2020-4-26 01:27
+
+
+
+
+free老哥你喜欢高雅艺术没问题，喜欢听管人唱高雅艺术也没无所谓，但是能不能别每次带其他管人？唱v家曲和anisong招你惹你了？下次再看到你顺劈小天使和空妈我要扣鹅了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9059#       发表于 2020-4-26 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206428&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-04-26 01:22:23</a>
+不是 能不能就歌论歌你这咋又开始搬身份 我听过原版 说这版本完全没法比 然后你搬个身份出来是想压谁？ ...</blockquote>从感情上我更接受25周年版人鱼的带感情的表演，但就算是那个版本感情也是内敛的，think of me是小克演的戏中戏啊，相当于就在演一个正在歌唱的歌剧演员，只不过这演员是个新人而已
+
+从理智上我不能产生我比日语版歌剧魅影吹替更懂女主感情的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9060#       发表于 2020-4-26 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206314&amp;ptid=1924531" target="_blank">daoyuan 发表于 2020-4-26 01:04</a>
+
+上微博冲女拳冲上了彩虹女粉，怕了怕了我先撤</blockquote>
+在微博上恨国和女拳是高度相关的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9061#       发表于 2020-4-26 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206357&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 01:12</a>
+
+你给的这位也不知道是谁，我感觉已经可以和四季已经出了录音的三版平齐了</blockquote>
+所以啊 虚拟管人就是图一乐 首先要yhm对口味了才去顺便听听她唱歌 哪有因为能唱那么点美声就去看她做虚拟官人的道理
+
+真要听歌在电脑手机上听就扯淡，何必和耳朵过不去？最低最低也得上个小黑砖，3000+的耳机和专业歌手的hi res音源来听吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9062#       发表于 2020-4-26 01:34
+
+
+
+<blockquote>kanonsisya 发表于 2020-4-26 01:31
+所以啊 虚拟管人就是图一乐 首先要yhm对口味了才去顺便听听她唱歌 哪有因为能唱那么点美声就去看她做虚拟 ...</blockquote>
+确实 这个聊下去没啥意思 真要聊这个还不如晒晒票看看到底听过几场
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9063#       发表于 2020-4-26 01:35
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-26 01:51 编辑 
+
+首先日本人的音乐剧圈多少有点
+
+第二流媒体听音乐剧就离谱
+
+第三免费发的那老姐收录问题大得很
+
+第四你们可不可以不要老是上他的钩啊？
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9064#       发表于 2020-4-26 01:38
+
+
+
+
+蘑菇人歌回，我好力：
+[https://live.bilibili.com/21908222](https://live.bilibili.com/21908222)
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9065#       发表于 2020-4-26 01:40
+
+
+
+<blockquote>IDIDIDID 发表于 2020-4-26 01:38
+蘑菇人歌回，我好力：
+
+https://live.bilibili.com/21908222</blockquote>
+
+这都唱了一个半小时了 
+
+蘑菇人的强强电脑又要推迟了 
+
+火 京东 火
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9066#       发表于 2020-4-26 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206505&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-04-26 01:34:58</a>
+确实 这个聊下去没啥意思 真要聊这个还不如晒晒票看看到底听过几场</blockquote>那我怂行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">让我做个百老汇、西区还有维也纳的梦吧
+
+
+讲回刚才你问我那个问题，其实原本阿希能正常完整唱一次let it go我就终极满足的，但是她有一次比较完整的唱了for the first time in forever，我就感觉要完整唱let it go也就是跺跺脚的事情了，当然不谈唱多好噢
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9067#       发表于 2020-4-26 01:44
+
+
+
+
+蘑菇人日语发音在holocn里是最准的了 当我看龙皇的bgm还不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9068#       发表于 2020-4-26 01:46
+
+
+
+ 本帖最后由 free 于 2020-4-26 01:48 编辑 
+
+我怎么就变成高雅品味的象征了，我喜欢的歌都特别土，比如cocotsuki那原创曲多土鳖，我就是爱听......
+[https://www.youtube.com/watch?v=Gv2KQpr0HXg](https://www.youtube.com/watch?v=Gv2KQpr0HXg)
+
+我就喜欢这种土鳖的，求求你们下次别说我品味好了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+唱音乐剧的是因为他是“不一样”的东西，而V界我觉得需要多来点不一样的，至于咲耶姐姐录音环境烂这个很多人都说过了一听就知道，家里录的没办法
+
+大葵早年也喜欢这些，现在都完了也开始鬼叫金曲了
+[https://www.youtube.com/watch?v=5nH5mFg9xYA](https://www.youtube.com/watch?v=5nH5mFg9xYA)
+
+【Cover】富士葵、スーザンボイルと呼ばれて　夢やぶれて/Les Misérables
+
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9069#       发表于 2020-4-26 01:48
+
+
+
+<blockquote>ひびき 发表于 2020-4-26 01:44
+那我怂行吧让我做个百老汇、西区还有维也纳的梦吧
+
+</blockquote>
+其实小肥妹真要想上台，进剧团当当背景音其实没多难，总能混进去的
+
+主要是这个又赚不到啥钱，其实没多大意思
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 9070#       发表于 2020-4-26 01:48
+
+
+
+
+蘑菇人这歌单的年代感...
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9071#       发表于 2020-4-26 01:50
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-4-26 01:51 编辑 
+<blockquote>fjm 发表于 2020-4-26 01:48
+蘑菇人这歌单的年代感...</blockquote>
+还算可以的了，惑姬前两天连劲歌金曲都整过了
+
+主要蘑菇人不仅是歌单，玩的也感觉好老
+
+
+
+连声音都是，整个一副三十岁姐姐的调调
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9072#       发表于 2020-4-26 01:52
+
+
+
+
+平野绫都能悲惨世界，佐藤希这个梦少的主要是牌面而不是实力。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9073#       发表于 2020-4-26 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206571&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-04-26 01:50:19</a>
+还算可以的了，惑姬前两天连劲歌金曲都整过了
+
+主要蘑菇人不仅是歌单，玩的也感觉好老
+
+
+
+连声音都是，整 ...</blockquote>其实今天这歌单还好吧，大部分有名到现在新入坑的也会知道的程度。上次的歌单才是，我自动归到和狐皇一档了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9074#       发表于 2020-4-26 01:58
+
+
+
+
+希望日本管人多整点jpop，中国管人多整点cpop，术力口阿尼宋别了别了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9075#       发表于 2020-4-26 01:58
+
+
+
+
+传说近来挺好的了，比当年刚转音乐剧那会强多了呀，B站经常有搬运的
+[https://space.bilibili.com/7589356](https://space.bilibili.com/7589356)
+
+夏哥主要还是志不在此吧，平野绫人家从小就混剧团的，声优都算误打误撞才去当的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9076#       发表于 2020-4-26 02:00
+
+
+
+<blockquote>IDIDIDID 发表于 2020-4-26 01:52
+平野绫都能悲惨世界，佐藤希这个梦少的主要是牌面而不是实力。</blockquote>
+等哪天holo可以在各个综艺节目串场了说不定就有机会了
+
+音乐剧想混上台真的挺好混的，全世界都有这种，韩雪，小神马，甚至林聚聚这种五音不全的都能上来玩，无所谓的其实
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 9077#       发表于 2020-4-26 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206598&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 01:58</a>
+
+传说近来挺好的了，比当年刚转音乐剧那会强多了呀，B站经常有搬运的
+
+https://space.bilibili.com/7589356
+
+ ...</blockquote>
+又减下来了？！感觉比她声优时期还要瘦
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9078#       发表于 2020-4-26 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206607&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-4-26 02:00</a>
+
+等哪天holo可以在各个综艺节目串场了说不定就有机会了
+
+音乐剧想混上台真的挺好混的，全世界都有这种，韩 ...</blockquote>
+那也是夏色祭的牌面，不是佐藤希的，就像绊爱270万粉难道对阿望的声优事业有非常大帮助么......
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9079#       发表于 2020-4-26 02:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206598&amp;ptid=1924531" target="_blank">free 发表于 2020-04-26 01:58:28</a>
+传说近来挺好的了，比当年刚转音乐剧那会强多了呀，B站经常有搬运的</blockquote>阿希那是从小就往网红发展的，反倒是不知怎么练了一套非常正统的气息才是异常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9080#       发表于 2020-4-26 02:08
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-26 02:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206607&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-4-26 02:00</a>
+
+等哪天holo可以在各个综艺节目串场了说不定就有机会了
+
+音乐剧想混上台真的挺好混的，全世界都有这种，韩 ...</blockquote>
+的确日本剧团早就老少咸宜了，少女歌剧也是音乐剧（笑
+
+但是管人吧，能从坐着唱歌进化到站着唱歌就是胜利了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+前面那个schedule看到肥希每周都上音乐课，老师没叫她先把不同音域的音量拉拉平吗？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9081#       发表于 2020-4-26 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206617&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 02:03</a>
+
+阿希那是从小就往网红发展的，反倒是不知怎么练了一套非常正统的气息才是异常难道真是练管乐练出来 ...</blockquote>
+你这不是废话嘛 管乐气息比唱歌还重要<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+话说羊说过学校里想学管乐结果没选上被分配到打击乐器了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9082#       发表于 2020-4-26 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206626&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-04-26 02:08:43</a>
+你这不是废话嘛 管乐气息比唱歌还重要
+
+
+话说羊说过学校里想学管乐结果没选上被分配到打击乐器了 ...</blockquote>我意思阿希练过管乐这事是不是真的，我查信息也没查到过相关的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9083#       发表于 2020-4-26 02:11
+
+
+
+
+bsyl 目测龙皇会员应该有4500左右了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9084#       发表于 2020-4-26 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206635&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 02:10</a>
+
+我意思阿希练过管乐这事是不是真的，我查信息也没查到过相关的
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客 ...</blockquote>
+那我也不知道了 阿希我只是偶尔看看联动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                               
