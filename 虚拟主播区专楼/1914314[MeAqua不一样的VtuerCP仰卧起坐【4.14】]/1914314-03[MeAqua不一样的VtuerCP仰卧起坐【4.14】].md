@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 14:02** 
+> ## **本文件最后更新于2020-04-25 18:01** 
 
 
 
@@ -6539,6 +6539,25 @@ bsyl  盐水真好啊，盐水贴贴（暴论）
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|我单纯是最后一种|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -6760,6 +6779,25 @@ meaqua， kpi的神！
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 坚果收藏家| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -6881,4 +6919,392 @@ mea自己都说今年跟绿熊都没怎么联系了，她们这批人的关系�
 
 
 
-                                     
+
+
+-----
+
+####  小博禹  
+##### 3379#       发表于 2020-4-25 14:53
+
+
+
+ 本帖最后由 小博禹 于 2020-4-25 14:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200445&amp;ptid=1914314" target="_blank">小走 发表于 2020-4-25 13:21</a>
+不是你到这楼发这么大一串有人关心吗</blockquote>
+不是六字母人先顺劈其他v的？只许六字母人罔顾事实随便恶心其他v其他cp，还不可以反击的？
+别人真心实意的cp，两个人互相为了对方好才疏远对方，你这个充满了铜臭利益虚伪谎言的恶心六字母cp也好意思来碰瓷<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">不恶心吗
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3380#       发表于 2020-4-25 14:57
+
+
+
+
+一年过去了，六字母人还是这么恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3381#       发表于 2020-4-25 14:58
+
+
+
+
+还什么jb暗黑贴贴人，不都是六字母人，有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3382#       发表于 2020-4-25 15:00
+
+
+
+
+慢点<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 3383#       发表于 2020-4-25 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201192&amp;ptid=1914314" target="_blank">小博禹 发表于 2020-4-25 14:53</a>
+
+不是六字母人先顺劈其他v的？只许六字母人罔顾事实随便恶心其他v其他cp，还不可以反击的？
+
+别人真心实意 ...</blockquote>
+过于rz，以至于笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真的不是反串吗？真和平分手怎么会在推特背刺呢？怎么称呼变成梦月さん呢？
+
+不过你这句别人真心实意的cp，两个人互相为了对方好才疏远对方倒是挺好用的，感觉可以套用在很多地方
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3384#       发表于 2020-4-25 15:36
+
+
+
+
+怎么吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3385#       发表于 2020-4-25 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201432&amp;ptid=1914314" target="_blank">小走 发表于 2020-4-25 15:27</a>
+过于rz，以至于笑出了声真的不是反串吗？真和平分手怎么会在推特背刺呢？怎么称呼变成梦月さん呢 ...</blockquote>
+要在明面上撕破这对cp，让自己粉丝不再去骚扰对方
+
+不然难道要像你家两个婊子一样为了恰烂钱不择手段<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3386#       发表于 2020-4-25 15:41
+
+
+
+
+六字母不都是只考虑自己，只在自己需要的时候拿对方来当做盈利的工具，这种烂到根里的cp还拿来碰瓷<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3387#       发表于 2020-4-25 15:52
+
+
+
+
+铁傻逼一个，搭理他干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3388#       发表于 2020-4-25 15:56
+
+
+
+
+池子都干了…随便吧<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3389#       发表于 2020-4-25 16:04
+
+
+
+
+六字母自己的价值都快被压榨尽了，现在连塘里的鱼都不放过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3390#       发表于 2020-4-25 16:10
+
+
+
+
+哪里还有鱼哦…这里就一废弃厕所，巨魔都看不上的
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 3391#       发表于 2020-4-25 16:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还鱼呢 每次点进这贴都是一模一样的废话 居然搞了这么多页
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3392#       发表于 2020-4-25 17:15
+
+
+
+
+说的挺有道理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3393#       发表于 2020-4-25 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201432&amp;ptid=1914314" target="_blank">小走 发表于 2020-4-25 15:27</a>
+
+过于rz，以至于笑出了声真的不是反串吗？真和平分手怎么会在推特背刺呢？怎么称呼变成梦月さん呢 ...</blockquote>
+他就是钓鱼的啊，你翻翻他聊天记录和这负一百多鹅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3394#       发表于 2020-4-25 17:28
+
+
+
+
+等一个五岁弱智食杀AI酱后反出hololiive，搬进麻酱在东京买的大别野开始疯狂贴贴营业，这波是无产者装弱智隐忍反杀资本家，matsurinco贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3395#       发表于 2020-4-25 17:31
+
+
+
+
+草有没有大手写楼上老哥的文啊我好想看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3396#       发表于 2020-4-25 17:32
+
+
+
+
+阿夸逃不出狐皇的手掌心的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3397#       发表于 2020-4-25 17:33
+
+
+
+
+bsyl 我高中的时候跟别人打赌输了写了2000字的百合短文，be，有人要看的话我改成六字母版本发出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3398#       发表于 2020-4-25 17:43
+
+
+
+
+还是别了，还是巨魔文创吧，这种类型的贴贴民写得够多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3399#       发表于 2020-4-25 17:44
+
+
+
+
+小凜肯定是掰不过fbk的，但麻凜的爱一定是可以创造奇迹的（呕）
+
+
+
+草，犯恶心了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3400#       发表于 2020-4-25 17:50
+
+
+
+
+也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3401#       发表于 2020-4-25 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202492&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-4-25 17:50</a>
+也是，我刚刚看了一眼觉得我笔下的女主们好歹还是真心的，六字母比不得
+
+ ...</blockquote>
+我麻心还不够诚吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                    

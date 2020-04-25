@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 16:07** 
+> ## **本文件最后更新于2020-04-25 18:07** 
 
 
 
@@ -16850,7 +16850,7 @@ syl
 
 
 闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_HyqiW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_V8KIe" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17558,8 +17558,8 @@ b限逛地图的作业开始抄起来了
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
-<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_OcHTB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_f4bEz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_MHuAY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_W99yI" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -22010,4 +22010,1171 @@ frrom. 弁護士唐澤貴洋の CALL IN SHOW
 
 
 
-            
+
+
+-----
+
+####  mmbk  
+##### 8614#       发表于 2020-4-25 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201619&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-25 15:53</a>
+一时间我不知道你在指唐澤貴洋还是天音かなた</blockquote>
+很长时间没关注恒心了，没想到唐泽自玉音放送以来脸皮能厚到这个地步
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8615#       发表于 2020-4-25 16:11
+
+
+
+
+前段时间还以为会是towa带领杏进入fps时代 没想到是小肥妹先把杏带入了apex时代
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 8616#       发表于 2020-4-25 16:14
+
+
+
+<blockquote>中野六小龄童 发表于 2020-4-25 16:11
+前段时间还以为会是towa带领杏进入fps时代 没想到是小肥妹先把杏带入了apex时代 ...</blockquote>
+怎么能确定是她带起的潮流啊www
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8617#       发表于 2020-4-25 16:16
+
+
+
+
+尊师的境界 岂是普通人可以理解的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8618#       发表于 2020-4-25 16:17
+
+
+
+
+今晚anmr三个DLC角色首播
+
+
+JST
+
+20:00- 白宮みみ [http://bit.ly/2JCISNT](http://bit.ly/2JCISNT) 
+
+20:30- 灰原あかね [http://bit.ly/34FXwhi](http://bit.ly/34FXwhi) 
+
+21:00- 羽柴なつみ [http://bit.ly/2xBbGEg](http://bit.ly/2xBbGEg)
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8619#       发表于 2020-4-25 16:26
+
+
+
+
+硬要说那也是狗狗带的啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8620#       发表于 2020-4-25 16:28
+
+
+
+
+夸皇的APEX又被人忘了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 8621#       发表于 2020-4-25 16:29
+
+
+
+
+只有某人一个脑死玩不能叫带，从某人开始一窝蜂风靡起来才能叫带吧，从这方面来说好像的确是夏哥没错。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8622#       发表于 2020-4-25 16:30
+
+
+
+
+夸过🐰比🐲过夸快就算赢了，毕竟后浪追前浪。谁知道五期会不会有更可怕的怪物呢。
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 8623#       发表于 2020-4-25 16:30
+
+
+
+
+这apex风潮不止你杏啊，我认识的好些日本乐手特别是几个和二刺螈沾边玩东方金属之类的最近都在高强度apex
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8624#       发表于 2020-4-25 16:33
+
+
+
+
+简单搜了下，大亏一年内好像也就播了5次apex？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8625#       发表于 2020-4-25 16:34
+
+
+
+
+大亏去年播得勤快，论今年抓人播apex最勤的应该就是小肥妹了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8626#       发表于 2020-4-25 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201895&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-25 16:30</a>
+
+夸过🐰比🐲过夸快就算赢了，毕竟后浪追前浪。谁知道五期会不会有更可怕的怪物呢。 ...</blockquote>
+无印一二三四五期期期出UR，那yagoo这狗屎运是把他下辈子透支了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8627#       发表于 2020-4-25 16:40
+
+
+
+
+apex在冲国都凉透了 这游戏到底有啥好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer"> 
+
+我反正觉得不如最新最in的cod和很老很out的pubg
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8628#       发表于 2020-4-25 16:41
+
+
+
+
+これ
+
+<img src="https://img.saraba1st.com/forum/202004/25/164042ljwii3nwmpmwqij6.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-25 164022.png</strong> (43.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 16:40 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8629#       发表于 2020-4-25 16:44
+
+
+
+
+外文书店🌈摊人头攒动杏这边一个人都没有，输了。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8630#       发表于 2020-4-25 16:48
+
+
+
+
+是我最爱的BBA<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+b243491bd62aabea643cfa90f46742efb8ec8c1c.jpg@518w_1e_1c.jpg
+(40.18 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 16:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/164804sik5h5545e547lz6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8631#       发表于 2020-4-25 16:48
+
+
+
+
+黑黑全切，然后还有女宅宅宅劝另一个女宅宅不要买西西的谷子因为“她性格很屑”
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8632#       发表于 2020-4-25 16:50
+
+
+
+
+要变成管人女粉讨论楼了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8633#       发表于 2020-4-25 16:50
+
+
+
+
+所以谷子是啥黑话？
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 8634#       发表于 2020-4-25 16:50
+
+
+
+
+现在去外文书店是不是能偶遇4id<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+居然还偷听女粉对话，太变态了
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 8635#       发表于 2020-4-25 16:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">又当偶像又当艺人还要搞直播，要么福报累了翻车要么半年大限后一起过气
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 8636#       发表于 2020-4-25 16:50
+
+
+
+
+什么时候谷子都成黑话了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8637#       发表于 2020-4-25 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202040&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-25 16:50</a>
+
+所以谷子是啥黑话？</blockquote>
+谷子=goods=周边
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|楼主好心人|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8638#       发表于 2020-4-25 16:53
+
+
+
+[https://www.ea.com/zh-tw/games/a ... verride-patch-notes](https://www.ea.com/zh-tw/games/apex-legends/news/system-override-patch-notes)
+[https://www.ea.com/zh-tw/games/a ... ld-ways-patch-notes](https://www.ea.com/zh-tw/games/apex-legends/news/old-ways-patch-notes)
+
+[https://www.youtube.com/watch?v=rSBRfOrV85g&amp;t=4013s](https://www.youtube.com/watch?v=rSBRfOrV85g&amp;t=4013s)
+[https://www.youtube.com/watch?v=GLvTkQwFO4U&amp;t=3s](https://www.youtube.com/watch?v=GLvTkQwFO4U&amp;t=3s)
+
+其实像towa和夜见这样的fps老玩家，对更新还是挺敏感的，系统超载活动刚开就去玩了
+
+昔日之道活动和这回热潮有没有关系我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8639#       发表于 2020-4-25 16:57
+
+
+
+
+我撤了，宅宅浓度过高好多超龄jk。虹杏谷子都是旧货。顺便现场是以前杏的柜台分了一半给虹。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8640#       发表于 2020-4-25 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">话说A店贩的谷有什么特别吗？为什么不在网上买？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8641#       发表于 2020-4-25 17:00
+
+
+
+
+因为不能带妹逛网店吧。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 8642#       发表于 2020-4-25 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202093&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-25 16:58</a>
+话说A店贩的谷有什么特别吗？为什么不在网上买？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户 ...</blockquote>
+这次卖的谷子之前在网上卖过一轮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">留到线下再卖一次也算是给了粉丝面基的机会吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8643#       发表于 2020-4-25 17:03
+
+
+
+
+盐水春游整整六小时终于进末地了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8644#       发表于 2020-4-25 17:05
+
+
+
+
+龙皇绿毯至今未停
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8645#       发表于 2020-4-25 17:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还以为有妹的现充都是隐宅呢。而且感觉女宅宅很多的样子，她们不会同担拒否吗，还面基？网上发情或黑屁还能勉强接受，让我在现实里和半生不熟的人一起对着纸片人发情（或黑屁）还是饶了我吧。
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过也可能只是我社交力太低了。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8646#       发表于 2020-4-25 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 玩了一下，葵皇晚上打算玩的原gamers小游戏
+
+
+梗不是很多，期待葵皇感动最终回大概要失望了
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 8647#       发表于 2020-4-25 17:09
+
+
+
+
+不说4ID，有机会遇到3ID吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8648#       发表于 2020-4-25 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202164&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-25 17:07</a>
+
+我还以为有妹的现充都是隐宅呢。而且感觉女宅宅很多的样子，她们不会同担拒否吗，还面基？网上发情 ...</blockquote>
+你又不是妹子，怎么能知道女宅宅线下面基发情不好呢？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8649#       发表于 2020-4-25 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202179&amp;ptid=1924531" target="_blank">soraku 发表于 2020-4-25 17:09</a>
+
+不说4ID，有机会遇到3ID吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 你遇到010的机会更大点
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8650#       发表于 2020-4-25 17:11
+
+
+
+
+门口俩穿背带裤的不知是店员还是女粉的门神热情安利🌈好吧，虽然指着葵皇调侃说她是🌈第一带货业务员。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8651#       发表于 2020-4-25 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202197&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-25 17:11</a>
+
+门口俩穿背带裤的不知是店员还是女粉的门神热情安利🌈好吧，虽然指着葵皇调侃说她是🌈第一带货业务员。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer"> 你没恰个微博、微信什么的？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8652#       发表于 2020-4-25 17:13
+
+
+
+<blockquote>激光2000 发表于 2020-4-25 17:13
+你没恰个微博、微信什么的？</blockquote>
+我带妹的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8653#       发表于 2020-4-25 17:15
+
+
+
+
+居然生意火热嘛，我看上海那边整理卷都发不出去，广州那边直接在官博下面求代购，好像是一件加五元，4ID要是愿意代购还可以赚一笔嘞
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8654#       发表于 2020-4-25 17:19
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-25 17:20 编辑 
+
+根本没人问整理券的事情。另外两家加起来也就半个货架还都是旧货。。。尚不如外面最新最in的舟舟。
+
+倒是白上的立牌被葵皇赶到角落里去了233
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8655#       发表于 2020-4-25 17:22
+
+
+
+
+holo好久没有这种耐久型悠闲MC了……
+
+不知道ARK结束之后还能不能回MC继续
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8656#       发表于 2020-4-25 17:26
+
+
+
+
+你敢拍个狐狸立牌在角落里，加个tag发推吗
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8657#       发表于 2020-4-25 17:30
+
+
+
+
+这张照片得无意间拍到葵皇前边的人流 然后狐皇顺手点个转发...基德，基德
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8658#       发表于 2020-4-25 17:35
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-25 17:37 编辑 
+
+算了等我回去用电脑传吧。
+
+手机要怎么删除附件？
+
+
+
+
+
+
+IMG_20200425_165058.jpg
+(52.28 KB, 下载次数: 6)
+
+
+
+
+下载附件
+
+
+2020-4-25 17:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/173515unixjfjbhjd3mra6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 8659#       发表于 2020-4-25 17:36
+
+
+
+ 本帖最后由 soraku 于 2020-4-25 17:37 编辑 
+
+怎么这么糊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8660#       发表于 2020-4-25 17:36
+
+
+
+
+我的脖子......
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8661#       发表于 2020-4-25 17:37
+
+
+
+
+自然的让人头，这就是带妹吗
+
+有种一季动画完结的感觉
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 8662#       发表于 2020-4-25 17:38
+
+
+
+
+女人同担拒否多了去了，但是同担拒否看到另外一个同担都是恨不得杀妈的，既然能约出来那当然都是方向性一致的同好
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8663#       发表于 2020-4-25 17:46
+
+
+
+
+有人了解404会员吗？龙皇说自己因为会员人数增加能做41个会员表情了。评论里有说3000个会员能做40个表情。属实吗？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8664#       发表于 2020-4-25 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202228&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-25 17:15</a>
+居然生意火热嘛，我看上海那边整理卷都发不出去，广州那边直接在官博下面求代购，好像是一件加五元，4ID要 ...</blockquote>
+也不知道为什么要搞那个什么整理卷，我不少群友去上海店完全就不需要领那个<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+syl，女人同担拒否多是实话，但能约出来的本身就已经不会是同担拒否人的同担啊<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8665#       发表于 2020-4-25 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202457&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-25 17:46</a>
+
+有人了解404会员吗？龙皇说自己因为会员人数增加能做41个会员表情了。评论里有说3000个会员能做40个表情。 ...</blockquote>
+龙皇肯定不止3000了  1w3人直播间发言会员浓度90%以上，我觉得少说也有五千<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8666#       发表于 2020-4-25 17:50
+
+
+
+ 本帖最后由 rzrbtk 于 2020-4-25 17:51 编辑 
+
+郡道的真格教师指导，不过这么看来日本那边真的管很严啊，我们补习班老师下课还跟我们联机来着。
+
+顺便宣传一下，今天下午19：00郡道要教大小姐历史，没有邀请原来的学生代表sasaki，可能真的太忙了吧，虹女top最近的直播频率感觉被月之吸走了一样（gbtk欲しい
+
+
+
+
+
+
+
+gndu.png
+(160.16 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 17:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/174607excohwwht2xvikwp.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8667#       发表于 2020-4-25 17:52
+
+
+
+
+好起来了，今天的虹浓度好高啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8668#       发表于 2020-4-25 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202457&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-25 17:46</a>
+
+有人了解404会员吗？龙皇说自己因为会员人数增加能做41个会员表情了。评论里有说3000个会员能做40个表情。 ...</blockquote><blockquote>1,000 30個
+
+1,200 31
+
+1,400 32
+
+1,600 33
+
+1,800 34
+
+2,000 35
+
+2,200 36
+
+2,400 37
+
+2,600 38
+
+2,800 39
+
+3,000 40
+
+3,200 41
+
+3,400 42
+
+3,600 43
+
+3,800 44
+
+4,000 45
+
+4,200 46
+
+4,400 47
+
+4,600 48
+
+4,800 49
+
+5,000 お問い合わせください</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8669#       发表于 2020-4-25 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202470&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-25 17:47</a>
+
+也不知道为什么要搞那个什么整理卷，我不少群友去上海店完全就不需要领那个
+
+
+syl，女人同担拒否多 ...</blockquote>
+因为错误估计了国内虹人的数量与热情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，昨天还公告不能提前排队造成拥挤，否则贩卖取消嘞。结果一上午过去就三十多个来领卷。说真的这压箱货，想买的早就海外购了啊，稀罕这个，大部分虹人去可能都是去面基额
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8670#       发表于 2020-4-25 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201196&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-4-25 14:53</a>
+
+来张没穿裤子的阿夸。推：https://twitter.com/umaiyo_puyoman/status/1253936614457307137?s=19</blockquote>
+这个我懂，寝バック<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+syl，会员表情数跟人数对应关系可以查的到的，41个表情是3200以上了
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 8671#       发表于 2020-4-25 18:00
+
+
+
+
+海外vtuber 初漫才
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge660wxniwj20g40gj7b1.jpg" referrerpolicy="no-referrer">
+
+[【全編日本語】Vアイドルがぺこぱ風漫才やってみた【海外Vtuber】](https://youtu.be/6B3efK9OWLY)
+
+
+
+
+
+          
