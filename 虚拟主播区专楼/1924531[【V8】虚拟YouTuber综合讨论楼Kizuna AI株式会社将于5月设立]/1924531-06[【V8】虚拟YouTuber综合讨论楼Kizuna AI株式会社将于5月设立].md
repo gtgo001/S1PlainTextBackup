@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 18:07** 
+> ## **本文件最后更新于2020-04-25 20:08** 
 
 
 
@@ -16850,7 +16850,7 @@ syl
 
 
 闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_V8KIe" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_T06Jq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17558,8 +17558,8 @@ b限逛地图的作业开始抄起来了
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
-<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_MHuAY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_W99yI" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_sQZXC" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_R89HV" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -22983,10 +22983,11 @@ syl，女人同担拒否多是实话，但能约出来的本身就已经不会�
 
 
 
+ 本帖最后由 kanonsisya 于 2020-4-25 18:21 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202457&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-25 17:46</a>
 
 有人了解404会员吗？龙皇说自己因为会员人数增加能做41个会员表情了。评论里有说3000个会员能做40个表情。 ...</blockquote>
-龙皇肯定不止3000了  1w3人直播间发言会员浓度90%以上，我觉得少说也有五千<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+说多了 3800不到<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
 
@@ -23177,4 +23178,1724 @@ syl，会员表情数跟人数对应关系可以查的到的，41个表情是320
 
 
 
-          
+
+
+-----
+
+####  a37356205  
+##### 8672#       发表于 2020-4-25 18:26
+
+
+
+ 本帖最后由 a37356205 于 2020-4-25 18:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202554&amp;ptid=1924531" target="_blank">喜闻乐见 发表于 2020-4-25 18:00</a>
+
+海外vtuber 初漫才</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ReVdol!比战斗吧歌姬这沙雕名字好一万倍
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8673#       发表于 2020-4-25 18:32
+
+
+
+
+我越看kson越觉得她像孙红雷
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 8674#       发表于 2020-4-25 18:37
+
+
+
+
+animate卖的这不是2年前的彩虹周边嘛，真就清库存啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8675#       发表于 2020-4-25 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202789&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-4-25 18:32</a>
+我越看kson越觉得她像孙红雷</blockquote>
+woc仔细一想确实有点
+
+巨目女红雷
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 8676#       发表于 2020-4-25 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202496&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-25 17:50</a>
+郡道的真格教师指导，不过这么看来日本那边真的管很严啊，我们补习班老师下课还跟我们联机来着。
+
+顺便宣传 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月之也很忙了，到50w前一周只在周末播过两次雀魂，50w后到现在共一个NG集两次闪马仕，我怀疑田角又想搞小动作
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 8677#       发表于 2020-4-25 18:40
+
+
+
+
+新的梁木出现了，v综小兴安岭化又进了一步
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8678#       发表于 2020-4-25 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202214&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-25 17:13</a>
+
+我带妹的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">如果没带妹子就会出手吗。。。感觉到了和现充的段位差
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 8679#       发表于 2020-4-25 18:43
+
+
+
+
+渡边直美今天直播前两小时才发通知，幸好只错过一点点开头。。
+
+syl，原来油 管连渡边直美的频道都gank，看来抽风得是有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/184246ssl5azssze9lsoqo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>naomi.JPG</strong> (34.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 18:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8680#       发表于 2020-4-25 18:56
+
+
+
+ 本帖最后由 winda 于 2020-4-25 19:16 编辑 
+
+一个人，100分钟
+
+两个人，6.5小时
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">但是，被優しいの世界背叛与回归優しいの世界，到底是谁赢了呢？
+
+
+
+おめでとう，湊あくあ。
+
+
+
+
+
+
+aquaRTA.png
+(906.93 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-25 18:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/185201ibrtbjjgziiibmxm.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+sioRTA.png
+(721.39 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-25 18:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/185201jyyysms4h570chhc.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 8681#       发表于 2020-4-25 18:59
+
+
+
+
+如果当初蛋蛋进的是木口，带天使进的是点。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8682#       发表于 2020-4-25 19:00
+
+
+
+
+说起来点的人是怎么招进去的？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8683#       发表于 2020-4-25 19:03
+
+
+
+
+草小肥妹批限前偷偷和mrr联动apex
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 8684#       发表于 2020-4-25 19:03
+
+
+
+
+进点还行
+那真是会少不少有趣的东西
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8685#       发表于 2020-4-25 19:03
+
+
+
+
+今天fgo日服居然公布送五星......以前我是不认为if线是存在的，现在我信了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">也许我真的能看见stars能有虹男关注度的未来
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8686#       发表于 2020-4-25 19:04
+
+
+
+
+蛋蛋进杏那不是要和白姨一天25小时高强度扯头发，仔细想想，硬了。
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 8687#       发表于 2020-4-25 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">今天散爆真的和育碧联动了，我也相信有if线了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8688#       发表于 2020-4-25 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203044&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-25 19:03</a>
+
+今天fgo日服居然公布送五星......以前我是不认为if线是存在的，现在我信了也许我真的能看见stars能 ...</blockquote>
+それはない
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8689#       发表于 2020-4-25 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202975&amp;ptid=1924531" target="_blank">winda 发表于 2020-4-25 18:56</a>
+
+一个人，100分钟
+
+两个人，5小时
+
+但是，被優しいの世界背叛与回归優しいの世界，到底是谁赢了呢？</blockquote>
+盐水是6.5小时
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 8690#       发表于 2020-4-25 19:08
+
+
+
+
+你们对蛋蛋是不是过大评价了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 8691#       发表于 2020-4-25 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203044&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-25 19:03</a>
+
+今天fgo日服居然公布送五星......以前我是不认为if线是存在的，现在我信了也许我真的能看见stars能 ...</blockquote>
+黑宝竟然之前都不信stars能翻身的吗，信者失格<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8692#       发表于 2020-4-25 19:13
+
+
+
+
+今天少前还和育碧联动了呢…等等粥粥宣布联动点生活也有可能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8693#       发表于 2020-4-25 19:14
+
+
+
+
+日本观众的历史素养还蛮高的诶，郡道讲的这个已经细到某朝代的一些政策了，一般会教这么细吗，而且知道的观众还蛮多的，难道在日本历史是考试科目之一？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8694#       发表于 2020-4-25 19:14
+
+
+
+
+祝！あにまーれ加入！！白宮みみ　LOL配信切り抜き集８
+[https://www.nicovideo.jp/watch/sm36669102](https://www.nicovideo.jp/watch/sm36669102)
+
+后知后觉，anmr打头新人是你啊<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+syl打嗝kimo
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8695#       发表于 2020-4-25 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203093&amp;ptid=1924531" target="_blank">fjm 发表于 2020-4-25 19:09</a>
+
+黑宝竟然之前都不信stars能翻身的吗，信者失格</blockquote>
+我谢罪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8696#       发表于 2020-4-25 19:15
+
+
+
+
+如果蛋蛋和大亏互换的话。
+
+蛋蛋和少主扯头发，杏炸了
+
+大亏不能和mea营业，无法中国大返还，点也炸了
+
+
+是虹统一的世界线
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8697#       发表于 2020-4-25 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203132&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-25 19:14</a>
+日本观众的历史素养还蛮高的诶，郡道讲的这个已经细到某朝代的一些政策了，一般会教这么细吗，而且知道的观 ...</blockquote>
+本国史肯定是必修啊，你见过哪个初中生不上历史的<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8698#       发表于 2020-4-25 19:21
+
+
+
+
+我记得商鞅变法还是中考重要考点呢，不是一回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8699#       发表于 2020-4-25 19:24
+
+
+
+
+紫宝这人缘真好
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8700#       发表于 2020-4-25 19:25
+
+
+
+
+不然何来众皇的太紫啊。<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8701#       发表于 2020-4-25 19:27
+
+
+
+
+只有winda老哥坚持把蛋蛋认定为品质高于白上的箱推发动机......但看到点都炸成这样了，就给些自由想象空间吧
+
+其实我感觉蛋蛋不但不会和少主扯头发，两人搞不好还能整一整末影龙RTA联动，说不定今天就不是盐水而是蛋狐春游
+
+2019新年时候，两个人都在玩末影龙RTA，当时楼里还说两人隔空对决：同接方面少主没过8000，蛋蛋近9000；游戏方面少主打穿了，蛋蛋坑了
+
+那时候怎么也想不到2020年的现在会是这样的局面
+
+
+附一个少主的RTA成绩（随便翻的一次，不一定是最好）
+
+<img src="https://img.saraba1st.com/forum/202004/25/192545kq201cccaxxx40q4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>RTA.jpg</strong> (216.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:25 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8702#       发表于 2020-4-25 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47202869&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-25 18:41</a>
+
+如果没带妹子就会出手吗。。。感觉到了和现充的段位差</blockquote>
+是个女人就是你老婆吗.jpg
+
+
+说起来国产宅妹和日本宅妹差距不大，国产宅男普遍品相比日宅好太多了。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8703#       发表于 2020-4-25 19:32
+
+
+
+
+蛋蛋不是逼上梁山吗，如果去木口为什么要和少主扯皮
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8704#       发表于 2020-4-25 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203173&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-25 19:20</a>
+
+本国史肯定是必修啊，你见过哪个初中生不上历史的</blockquote>
+但是真的很细诶，商业方面的法律、国民状态之类的，我们上的历史课一般都是讲朝代、意识形态变化，哪有这么详细讲古代史。所以我觉得可能一是郡道按自己兴趣讲，那这样能回答她提问然后聊起来的观众历史学蛮好；二是这个是课本内容，那日本就很重视历史教学诶。
+
+主要是和我刻板印象不服啦，在我心里日本就是关心AKB选举胜过领导人人选的娱乐国家...
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8705#       发表于 2020-4-25 19:37
+
+
+
+ 本帖最后由 winda 于 2020-4-25 19:40 编辑 
+
+天开司盛赞虹雀魂杯70000同接，舞元最强
+
+syl以前5ch就横向对比过yagoo和宗像了
+
+建筑王——&gt;“怪物家长”
+
+阿夸休止——&gt;谨慎两个月，解约
+
+还有私联限制这种奇葩规则，appland真的带不动啊
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8706#       发表于 2020-4-25 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203291&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-25 19:35</a>
+
+但是真的很细诶，商业方面的法律、国民状态之类的，我们上的历史课一般都是讲朝代、意识形态变化，哪有这 ...</blockquote>
+你可能没有认真听中学历史课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8707#       发表于 2020-4-25 19:40
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-25 19:41 编辑 
+
+人太多不好放开拍随便看看得了：
+
+
+聚集性人群：
+
+<img src="https://img.saraba1st.com/forum/202004/25/193459v63tr1h3kn66x6xr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193131.jpg</strong> (209.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:34 上传
+
+
+
+
+
+
+
+
+まんさんじ最強！まんさんじ最強！
+
+顺便彩虹就这么点，而且都是压箱货。
+
+<img src="https://img.saraba1st.com/forum/202004/25/193607zmqe5zvr7f7afvrj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193321.jpg</strong> (245.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:36 上传
+
+
+
+
+
+
+
+大阪导购：
+
+<img src="https://img.saraba1st.com/forum/202004/25/193758w5ttza5jo0atatot.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193326.jpg</strong> (158.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:37 上传
+
+
+
+
+
+
+
+滚去角落的杏生活
+
+<img src="https://img.saraba1st.com/forum/202004/25/193820zvi5yvh7yhn5ij8a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193332.jpg</strong> (300.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:38 上传
+
+
+
+
+
+
+
+和杏生活群租的老爱
+
+<img src="https://img.saraba1st.com/forum/202004/25/193854tdd27ree64av0dej.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193344.jpg</strong> (276.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:38 上传
+
+
+
+
+
+
+
+被大阪导购赶去角落的狐狸：
+
+<img src="https://img.saraba1st.com/forum/202004/25/193921ct1te8tefo3torht.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193357.jpg</strong> (193.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:39 上传
+
+
+
+
+
+
+
+
+おまけ：VTB人👇人可给我往后稍稍
+
+<img src="https://img.saraba1st.com/forum/202004/25/193937itt7048i4g8wk48k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200425193402.jpg</strong> (318.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:39 上传
+
+
+
+
+
+
+
+
+
+
+
+微信图片_20200425193131.jpg
+(209.41 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 19:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/193458riitfddkgdkgkmme.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ascending| + 1|好评加鹅|
+| 激光2000| + 2|葵牌帮大忙了|
+| rzrbtk| + 1|上海宅质量高的|
+| winda| + 1|好评加鹅|
+| oshinoshinobu|-1|没有杏星|
+| Izuru单推人| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8708#       发表于 2020-4-25 19:41
+
+
+
+
+上课这种东西还是看老师吧，我曾经的历史老师各个口若悬河，一件事能延伸到好多件同时代的事连起来讲来讲去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8709#       发表于 2020-4-25 19:43
+
+
+
+
+哪条世界线的中国古代史只教朝代更替和打仗不教新朝新政的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 8710#       发表于 2020-4-25 19:46
+
+
+
+
+狐狸还是这旧皮顺眼
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8711#       发表于 2020-4-25 19:48
+
+
+
+
+这个扔V综也没毛病吧
+
+
+
+
+
+
+雀魂2.png
+(862.38 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 19:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/194825x5mw13lwcc94951b.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8712#       发表于 2020-4-25 19:49
+
+
+
+
+阿望：绊爱是我扮的，但我不是绊爱
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/194623ecica5rrhm9tck5z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ai.jpg</strong> (175.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8713#       发表于 2020-4-25 19:49
+
+
+
+
+第一次看tf说别人，而且还是winda老哥，不愧是你楼第一坦荡杏仁，想说什么也不会藏着掖着<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8714#       发表于 2020-4-25 19:50
+
+
+
+
+应该这么说，如果历史不是升学考试科目，日V观众怎么会有这么高的历史素养！？
+
+你们说实话，本国古代史哪有教这么细的，一般被提及也只有那些嘛，只是接受义务教育的话哪知道这些百姓层次的事，只有我是历史白痴的感觉过于微妙
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8715#       发表于 2020-4-25 19:50
+
+
+
+
+anmr这个新人好清楚，声质不错
+
+<img src="https://img.saraba1st.com/forum/202004/25/194957o8oiexiwbbi000ze.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-25 194940.png</strong> (432.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 19:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8716#       发表于 2020-4-25 19:51
+
+
+
+
+草上面的老哥怎么还能因为没stars扣鹅的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我知道的stars目前就出了一期生的吧唧和全员的立牌，国内A店上立牌这次，按A店说法还是第一次在中国上stars相关周边
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8717#       发表于 2020-4-25 19:51
+
+
+
+ 本帖最后由 proxima 于 2020-4-25 19:54 编辑 
+
+草草草，海苔男家白雪要跟梅露联动？？？
+
+
+我他喵下巴都吓掉了，这为什么？没道理啊
+
+
+syl，文科高考也要考历史的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8718#       发表于 2020-4-25 19:52
+
+
+
+
+刚看了会，确实还蛮好听的，物种居然是小熊猫，难怪haneru根本看不出来
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8719#       发表于 2020-4-25 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203404&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-25 19:50</a>
+
+应该这么说，如果历史不是升学考试科目，日V观众怎么会有这么高的历史素养！？
+
+你们说实话，本国古代史哪有 ...</blockquote>
+我曾经也痴心妄想历史和英语一切全国升学考试占比等同
+
+
+然而终究是美梦罢了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8720#       发表于 2020-4-25 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203412&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-25 19:51</a>
+
+草上面的老哥怎么还能因为没stars扣鹅的我知道的stars目前就出了一期生的吧唧和全员的立牌，国内A店 ...</blockquote>
+我看你加了才扣的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8721#       发表于 2020-4-25 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">估计点生活推都幻想过无数次现在是三足鼎立的场面，那V圈就真的好起来了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8722#       发表于 2020-4-25 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203408&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-25 19:50</a>
+
+anmr这个新人好清楚，声质不错</blockquote>
+28:名無しさん＠お腹いっぱい。[sage] 2020/04/25(土) 20:45:22.25
+
+めりたんの友達のじーたやぞ
+
+ツイッターのアカウント消えてるし声比べたらそっくりや
+[https://www.youtube.com/channel/UCwg6kZ-f5NKx6Sqok2VNkaQ](https://www.youtube.com/channel/UCwg6kZ-f5NKx6Sqok2VNkaQ)
+
+
+29:名無しさん＠お腹いっぱい。[sage] 2020/04/25(土) 20:49:26.76
+
+めりたんショックで配信できなかった理由これか？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8723#       发表于 2020-4-25 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203433&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-25 19:52</a>
+
+我看你加了才扣的啊</blockquote>
+我只是给4ID老哥加个拍摄实景的辛苦鹅啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8724#       发表于 2020-4-25 19:55
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-25 19:57 编辑 
+
+点生活这种把旗下员工当女奴管理的蛋蛋不炸也会炸别人，别想好起来了。
+
+
+我在看舟舟一周年直播。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8725#       发表于 2020-4-25 19:58
+
+
+
+
+bsyl，来点兔皇
+
+
+
+
+
+
+IMG_20200425_195658.jpg
+(121.87 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 19:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/195802vjn79b7mo6jl6jlo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 8726#       发表于 2020-4-25 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203435&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-4-25 19:53</a>
+
+估计点生活推都幻想过无数次现在是三足鼎立的场面，那V圈就真的好起来了
+
+ ...</blockquote>
+现在anmr复兴都比点复活可能性大了233
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8727#       发表于 2020-4-25 19:59
+
+
+
+
+今天边看直播边玩动森好爽，但是一想到明天要上班就好不爽<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8728#       发表于 2020-4-25 19:59
+
+
+
+
+ORICON 专辑日榜 2020/04/24付
+
+
+petit fleurs 1st Album 「premiere fleurs」第4日排名7位。
+<img src="https://p.sda1.dev/0/ef0d3e0b49cb966d77c487025d5ce33a/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8729#       发表于 2020-4-25 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203404&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-25 19:50</a>
+
+应该这么说，如果历史不是升学考试科目，日V观众怎么会有这么高的历史素养！？
+
+你们说实话，本国古代史哪有 ...</blockquote>
+郡道讲的也都是些日本史上的重大事件，对日本史有点认识的即使不记得内容也都记得个名字；顶多再加点故事性内容；再说之前讲的贵族宫斗就等于日本的朝代更替了，不然难道讲天皇万世一系从未更换朝代么。
+
+
+还有就是你看评论栏当然是已经被内容筛选过了的，完全不懂的人根本就不会发言；就像你看什么游戏直播，那评论栏看上去就是人人都会玩这个游戏一样
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8730#       发表于 2020-4-25 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203416&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-25 19:51</a>
+
+草草草，海苔男家白雪要跟梅露联动？？？
+
+
+我他喵下巴都吓掉了，这为什么？没道理啊</blockquote>
+老哥哪看的啊，翻了两人的推没看到撒。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8731#       发表于 2020-4-25 20:00
+
+
+
+[https://www.youtube.com/watch?v=-L5HXxeIa5Y](https://www.youtube.com/watch?v=-L5HXxeIa5Y)
+
+【歌ってみた】ハッピーエンド / back number covered by musica
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千祀蛮巧  
+##### 8732#       发表于 2020-4-25 20:01
+
+
+
+<blockquote>某穆克拉 发表于 2020-4-25 19:59
+老哥哪看的啊，翻了两人的推没看到撒。</blockquote>
+刚刚白雪直播自己预告的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8733#       发表于 2020-4-25 20:02
+
+
+
+
+きっつい
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8734#       发表于 2020-4-25 20:02
+
+
+
+
+小天使萝莉化开始了
+[https://www.youtube.com/watch?v=E0g-cJ7m-LM&amp;feature=youtu.be](https://www.youtube.com/watch?v=E0g-cJ7m-LM&amp;feature=youtu.be)
+
+反正我先进去了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8735#       发表于 2020-4-25 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203499&amp;ptid=1924531" target="_blank">Ketestrait 发表于 2020-4-25 19:59</a>
+
+郡道讲的也都是些日本史上的重大事件，对日本史有点认识的即使不记得内容也都记得个名字；顶多再加点故事 ...</blockquote>
+游戏直播云游戏的指示厨其实还蛮多的
+
+云历史厨可能就真的少了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8736#       发表于 2020-4-25 20:03
+
+
+
+
+马自立人气怒杀明日方舟一周年，人👆人坏起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 8737#       发表于 2020-4-25 20:06
+
+
+
+
+舟舟人气不都200多万了吗。。怎么还有人上总督
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 8738#       发表于 2020-4-25 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203543&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-25 20:03</a>
+
+马自立人气怒杀明日方舟一周年，人👆人坏起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">200w打17w，你确定吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8739#       发表于 2020-4-25 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203568&amp;ptid=1924531" target="_blank">Alphawalker 发表于 2020-4-25 20:06</a>
+
+200w打17w，你确定吗</blockquote>
+我看小时榜单第一是马自立阿，这个到底是怎么排的？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8740#       发表于 2020-4-25 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我国高考历史是各省组织中学教师根据高考大纲来命题，日本是各学校自己找历史系教授命题吧，着重的方向肯定不一样，另外如果没有考纲限制，中学教师们也能给你出一堆偏题怪题，但是这些题也就在模考里能见到，所以我们高考考历史也是考通识。日本学校组织命题，搞些刁钻的知识点，辅导机构肯定要跟上啊。
+
+不过以上都是我编的，没参加过日本的大学选拔考试。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8741#       发表于 2020-4-25 20:07
+
+
+
+[https://www.youtube.com/watch?v=Zes41j9LM7o](https://www.youtube.com/watch?v=Zes41j9LM7o)
+
+
+LIZ在歌回
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8742#       发表于 2020-4-25 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203499&amp;ptid=1924531" target="_blank">Ketestrait 发表于 2020-4-25 19:59</a>
+
+郡道讲的也都是些日本史上的重大事件，对日本史有点认识的即使不记得内容也都记得个名字；顶多再加点故事 ...</blockquote>
+如果这就是重大事件.....如果本国史用这个标准，那历史书得有字典厚了，可能是体量问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">在我的预设中，大家应该都像大小姐那样hhh
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8743#       发表于 2020-4-25 20:07
+
+
+
+
+小肥妹这是撞装甲车啊，能拿下小时第一吗？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 8744#       发表于 2020-4-25 20:07
+
+
+
+
+sc食杀吧，气人值没有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/f5f1201f349296b84dda17c46b00f6cd/IMG_27FE7663628B41D8DD7AAED68F6C685A.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/26237e3c0db34df3d4b12b55f46dec22/IMG_5A4A4CA251FA2F2BFBF7ED752C742597.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8745#       发表于 2020-4-25 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203578&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-25 20:07</a>
+
+我看小时榜单第一是马自立阿，这个到底是怎么排的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">榜单上不是写着吗 拼的金瓜子
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8746#       发表于 2020-4-25 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203578&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-25 20:07</a>
+我看小时榜单第一是马自立阿，这个到底是怎么排的？</blockquote>
+特地帮你去阿b看了一哈，是本小时内的礼物换算的
+
+
+
+
+
+        
