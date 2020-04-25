@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 10:07** 
+> ## **本文件最后更新于2020-04-25 14:08** 
 
 
 
@@ -16850,7 +16850,7 @@ syl
 
 
 闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_IyY6I" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_q72LB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17558,8 +17558,8 @@ b限逛地图的作业开始抄起来了
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
-<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_F5bUS" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_Z0ZI2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_NYCy3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_wbGa0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -20252,6 +20252,1157 @@ IMG_20200425_092219.jpg
 
 
 
+﹍﹍﹍
+
+评分
 
 
-               
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1||
+| 57042711| + 1|谁？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8523#       发表于 2020-4-25 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198715&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-04-25 10:02:45</a>
+早，来张泳装小天使提升下浓度。</blockquote>要是没手里剑这小天使我都不敢认
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8524#       发表于 2020-4-25 10:15
+
+
+
+
+明明已经285了，但是外面一直显示284，这就是翻页BUG吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8525#       发表于 2020-4-25 10:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198766&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-25 10:10</a>
+
+要是没手里剑这小天使我都不敢认
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+这个大概是十年后的小天使吧
+
+虽说小天使设定上是17岁，不过立绘大概就是13,4的样子。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 8526#       发表于 2020-4-25 10:22
+
+
+
+ 本帖最后由 NBXX 于 2020-4-25 10:24 编辑 
+
+へい💫似合うかな？」って言う、水着ロングヘアーかなたん☀️
+
+<img src="https://img.saraba1st.com/forum/202004/25/102200okd0xorrrykxpfrr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>yande.re 628987 sample amane_kanata bikini cleavage hololive swimsuits tagme wet.jpg</strong> (399.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 10:22 上传
+
+
+
+
+
+
+原图（27.2MB） [https://www.pixiv.net/artworks/81027788](https://www.pixiv.net/artworks/81027788)
+
+——————————————————
+
+才发现有人发过了，不过没留出处我这个就不编辑了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8527#       发表于 2020-4-25 10:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198785&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-25 10:15</a>
+
+明明已经285了，但是外面一直显示284，这就是翻页BUG吗</blockquote>
+我记得楼主说过啊，楼外看的缺页不是翻页bug，因为进楼后还能正常翻页<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果你在楼内，明明有下一页却进不去才是翻页bug
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cckuku| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 8528#       发表于 2020-4-25 11:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">兔子MGS2转播这边的沙雕图有毒...
+
+她甚至准备了前情提要··什么叫专业啊！
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8529#       发表于 2020-4-25 11:15
+
+
+
+
+方舟说的联动要是vtb我当场把屏幕吃掉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8530#       发表于 2020-4-25 11:19
+
+
+
+
+舟游不是说那个联动要准备很久，而且是以yj的名义联动的，vtb配么
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8531#       发表于 2020-4-25 11:19
+
+
+
+
+舟游联动CNC都比vtb靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 8532#       发表于 2020-4-25 11:24
+
+
+
+
+vjuan被当场爆破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 8533#       发表于 2020-4-25 11:24
+
+
+
+
+相比其他几个平台，倒是微博营业最多
+
+
+yysy，改编得还不错
+[《燃烧吧，鲈鱼精》](http://t.cn/A6wDLrst?m=4497554320462034&amp;u=6175815222)
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5uljg1q8j20kv125ngj.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 8534#       发表于 2020-4-25 11:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚开始挖矿没多久就见到钻石，亏雷达恐怖如斯
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 8535#       发表于 2020-4-25 11:32
+
+
+
+
+我复活了！感谢s1娘赞助的头像。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 8536#       发表于 2020-4-25 11:35
+
+
+
+
+不开个竞猜？看看周联不联动管人
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 8537#       发表于 2020-4-25 11:37
+
+
+
+<img src="https://img.imoutomoe.net/images/2020/04/25/EWXL3xkUEAA5OvEformatjpgnamelarge.md.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/rutubo_doc/status/1253632320340283392](https://twitter.com/rutubo_doc/status/1253632320340283392)
+
+转张非常怪的猫狗
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8538#       发表于 2020-4-25 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是悠星，我还能期待一下联动管人，鹰角就算了，十有八九是联动某个音游
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8539#       发表于 2020-4-25 11:42
+
+
+
+
+我只能说粥游第一次联动肯定不是管人，超级热门顶级ip或者极小众婆罗门ip都有可能。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8540#       发表于 2020-4-25 11:50
+
+
+
+
+明日方舟 X 我的青春恋爱物语果然有问题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 8541#       发表于 2020-4-25 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">与音乐人联动，鹰角要出新专辑
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8542#       发表于 2020-4-25 11:54
+
+
+
+
+警惕演变和平手游讨论楼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 8543#       发表于 2020-4-25 12:17
+
+
+
+
+草，看到知乎上那个问题才发现V吧也可以是如此的高尚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SKR-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8544#       发表于 2020-4-25 12:22
+
+
+
+
+说起来之前贴吧不是发通知要把没吧务的吧统一进行选举吗，现在也没个动静
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8545#       发表于 2020-4-25 12:31
+
+
+
+
+v吧现在那kpi，百度估计都不希望它有吧务
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8546#       发表于 2020-4-25 12:39
+
+
+
+
+夢追翔在直播生活音，他不是结婚了吗为什么这么大胆，老婆回娘家了？<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 8547#       发表于 2020-4-25 12:48
+
+
+
+
+结婚就不能养gachi了？生活音耐久半天估计应该家里就他一个人吧
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8548#       发表于 2020-4-25 12:50
+
+
+
+ 本帖最后由 遍体精淋af 于 2020-4-25 13:03 编辑 
+
+龙皇超过空妈了，正式成为木口第三，而且按照这个速度，食杀圣皇也就是时间的问题，未曾预想的道路，圣皇竟然会痛失亚军<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 8549#       发表于 2020-4-25 12:54
+
+
+
+
+带天使加上太紫现在都打不过兔皇solo，订阅比不过龙皇能有什么场面好看，常规操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8550#       发表于 2020-4-25 12:58
+
+
+
+
+meme狐是木口开疆扩土的矛的话，龙皇就是稳固军心的盾，这两个拿下冠亚军算是实至名归，其他人不能也不敢有异议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 8551#       发表于 2020-4-25 13:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那带天使呢
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 8552#       发表于 2020-4-25 13:07
+
+
+
+
+粥游虽然不联动管人这管人粉丝都先被鄙视了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 公开生活音养gachi这数字不错啊，之前有谁做吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8553#       发表于 2020-4-25 13:09
+
+
+
+
+当初碧蓝联动管人是这么和谐 现在为什么会这样呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8554#       发表于 2020-4-25 13:09
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-25 13:21 编辑 
+
+阿夸是主角， 就等着她坐收渔翁之利吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+未来是holo的也是彩虹的， 但归根结底是阿夸的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8555#       发表于 2020-4-25 13:13
+
+
+
+
+阿夸应该算那种武力值很高但统御力不高的猛将型吧，自己能起飞，但能否带着箱一起飞要看有没有引导
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8556#       发表于 2020-4-25 13:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">圣皇莫不是虚拟袁绍
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8557#       发表于 2020-4-25 13:14
+
+
+
+
+楼里天天车的小肥妹不是整天直播洗澡，就差没直播072了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8558#       发表于 2020-4-25 13:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">碧蓝联动的时候哪门子和谐了…哦，你说和老爱啊，那没事了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 8559#       发表于 2020-4-25 13:17
+
+
+
+
+那不应该是虚拟吕布么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8560#       发表于 2020-4-25 13:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吕布好歹武力值第一，但是圣皇现在有哪项能算第一吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8561#       发表于 2020-4-25 13:19
+
+
+
+
+马自立歌回被ban了？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8562#       发表于 2020-4-25 13:20
+
+
+
+
+说不定是虚拟德川家康呢？ <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8563#       发表于 2020-4-25 13:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">油\管ai乱杀 不明白G点在哪 被ban只能认
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8564#       发表于 2020-4-25 13:20
+
+
+
+
+一弦下周的直播表，时间全是JST
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/132053e5qkr4jpsp4h0p24.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1587791628235.jpg</strong> (80.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 13:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8565#       发表于 2020-4-25 13:21
+
+
+
+
+天皇是周天子，白上桑是袁绍，谁赢了官渡谁就是曹操。圣皇啊…我觉得圣皇应该姓刘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8566#       发表于 2020-4-25 13:22
+
+
+
+
+Animate：微博转发那么多，一定会有很多人来买吧，我们要做好限流措施。
+
+第二天：目前暂时还没满30人。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/525982ff620d06a2c5acf06682e54b6b/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/677838552240e23cb5cea5980242f011/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8567#       发表于 2020-4-25 13:24
+
+
+
+
+兔皇虽然数据更猛但我不认为就是面板数值碾压。
+兔皇的粉丝中坚层形成已经是木口强势和v圈膨胀的时期了，就像游戏版本后期数据膨胀一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 8568#       发表于 2020-4-25 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺着绊爱始皇帝开始的话，应该是holo彩虹楚汉争霸，狐狸和圣皇是虚拟韩信萧何吧
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8569#       发表于 2020-4-25 13:32
+
+
+
+
+虚拟魏延大天使<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8570#       发表于 2020-4-25 13:32
+
+
+
+
+可傲天月增和aqua是一样的（5w3），搞不好摸到aqua之前就被peko（6w1）反杀了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8571#       发表于 2020-4-25 13:34
+
+
+
+
+如果是楚汉相争，那喊出“此天亡我也，非战之罪”的霸王是谁啊？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8572#       发表于 2020-4-25 13:34
+
+
+
+
+404会不会读空气呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">晚上小肥妹30w重大发表了
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 8573#       发表于 2020-4-25 13:35
+
+
+
+
+“此天亡我也，非meme之罪”
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 8574#       发表于 2020-4-25 13:38
+
+
+
+
+animate本来就没啥VTB周边吧，尤其是彩虹19组开始基本没有和animate合作的周边吧。每次去日本的animate基本都得问店员才能找到VTB周边在哪，然后就看到哈哥和绊爱的一些零碎的周边孤零零地待在一个小角落里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8575#       发表于 2020-4-25 13:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 拿葵皇宣传不行！
+
+
+初期骁勇善战，最终兵败乌江，这波啊，这波是”四面狐歌“
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 8576#       发表于 2020-4-25 13:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚拟魏延刚被小白和僵尸围殴致死
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8577#       发表于 2020-4-25 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前有人理了虹的apex等级，我理一下holo的
+
+超百级以及近百级的有狗狗157，大亏135，萝卜子132，傻紫107，夏哥92
+
+非个位数等级彗星53，狗子54，towa28
+
+剩下船长,luna，watame都是个位数等级
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8578#       发表于 2020-4-25 13:53
+
+
+
+
+有情强说一下狗子的54级是最近吃独食吃出来的还是去年没出道时候的前世打的？
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 8579#       发表于 2020-4-25 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200446&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-25 13:22</a>
+Animate：微博转发那么多，一定会有很多人来买吧，我们要做好限流措施。
+
+第二天：目前暂时还没满30人。
+
+[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为今天人多打算周三去
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8580#       发表于 2020-4-25 13:58
+
+
+
+
+“ 醒来看群上海a店熊柄黑黑吧唧和公式书已经切了”
+
+日本第一vtuber事务所       X
+
+日本第一男性vtuber事务所 √
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8581#       发表于 2020-4-25 14:02
+
+
+
+
+老实说你们还是别想追大天使订阅了，就算每周追5000，龙皇都得追20来周，兔皇更是30周，20年年末的事了。何况每周追5000基本不大可能。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8582#       发表于 2020-4-25 14:05
+
+
+
+
+”四面狐歌”的话，被围的不应该是狐狸吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8583#       发表于 2020-4-25 14:05
+
+
+
+[https://prtimes.jp/main/html/rd/p/000000101.000033882.html](https://prtimes.jp/main/html/rd/p/000000101.000033882.html)
+
+a8认真做VR的话
+
+このたび調達した資金の主な使途は以下の通りです。
+
+・xRコンテンツ事業の強化
+
+・Spectacle（仮称）の開発
+
+・海外事業展開の強化
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都有Spectacle了还要和appland抢vrlive的名字，过分了（
+
+
+
+
+
+
+
+
+224704gevc2sv7c7x2jz7e.png
+(102.2 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 14:04 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/140416okaci4mmxzodqpib.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+             

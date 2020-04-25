@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-11 12:02** 
+> ## **本文件最后更新于2020-04-25 14:02** 
 
 
 
@@ -15297,7 +15297,7 @@ cp9的时候可以。
 <img src="https://img.saraba1st.com/forum/202002/21/000004te3z34e0ep93szfl.jpg" referrerpolicy="no-referrer">
 
 
-<strong>84ddf736afc37931fd2f4b7ee4c4b74542a911d4.jpg</strong> (130.71 KB, 下载次数: 0)
+<strong>84ddf736afc37931fd2f4b7ee4c4b74542a911d4.jpg</strong> (130.71 KB, 下载次数: 1)
 
 下载附件
 
@@ -17114,7 +17114,7 @@ WT应该就是想表现出御田的武士浪人，侠客感。
 
 
 12DF2414-228C-4D66-B52D-3DA2CFB6964F.png
-(1.33 MB, 下载次数: 3)
+(1.33 MB, 下载次数: 4)
 
 
 
@@ -20512,7 +20512,7 @@ PH岛那个吃了果实的毒气史莱姆死了后，放在它附近一袋苹果
 
 
 1A129B83-5BC6-4948-B8F1-00178464793E.jpeg
-(350.08 KB, 下载次数: 0)
+(350.08 KB, 下载次数: 1)
 
 
 
@@ -25469,7 +25469,7 @@ O 是的 如果大家真的看得很认真也会发现了
 
 
 16f28f01a18b87d6ba4b2345080828381e30fd4a.jpg
-(125.01 KB, 下载次数: 0)
+(125.01 KB, 下载次数: 2)
 
 
 
@@ -25601,7 +25601,7 @@ CBギャラン　CB加兰特/CB戈蓝（ギャラン 和 三菱的一款汽车�
 
 
 45109125bc315c60104de2**2b1cb134b5477fa.jpg
-(131.74 KB, 下载次数: 2)
+(131.74 KB, 下载次数: 3)
 
 
 
@@ -26313,7 +26313,7 @@ tvb配音版的打工魔王还玩过“XX第一智将（障）”这个梗<img s
 
 
 74ada54bd11373f06a5719fab30f4bfbfaed045d.jpg
-(84.09 KB, 下载次数: 1)
+(84.09 KB, 下载次数: 2)
 
 
 
@@ -28888,7 +28888,7 @@ numbers说不定还有藏一会儿
 <img src="https://img.saraba1st.com/forum/202004/11/115630p1s50zx6t66zo4gf.jpg" referrerpolicy="no-referrer">
 
 
-<strong>f015bafb43166d22af2bb5f2512309f79152d263.jpg</strong> (21.66 KB, 下载次数: 0)
+<strong>f015bafb43166d22af2bb5f2512309f79152d263.jpg</strong> (21.66 KB, 下载次数: 1)
 
 下载附件
 
@@ -28917,4 +28917,537 @@ numbers说不定还有藏一会儿
 
 
 
- 
+
+
+-----
+
+####  李剡s  
+##### 52443#       发表于 2020-4-12 02:07
+
+
+
+
+果然要变成众超新星围殴凯多团吗？一帮兽脚类恐龙哪里能凌空了
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52444#       发表于 2020-4-12 04:01
+
+
+
+
+杰尔马穿了战斗服也是一线的战斗力啊，四个人暴打大妈团干部，山治不过是打了个看起来是六子吊车尾的货色而已就开始贬低六子了？我看好六子老大暴打山治为六子正名，区区一个会月步的厨子…
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52445#       发表于 2020-4-15 21:41
+
+
+
+
+人物太多确实容易乱，
+
+
+除了亲儿子、三灾、六子、台柱，还有蛮霸者，
+
+
+这次欠下的酒宴怕是要等到2021年了。
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 52446#       发表于 2020-4-15 21:57
+
+
+
+
+……沙姐什么时候能再登场啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gasijier  
+##### 52447#       发表于 2020-4-16 07:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47094473&amp;ptid=98922" target="_blank">廖化 发表于 2020-4-15 21:57</a>
+
+……沙姐什么时候能再登场啊</blockquote>
+凌空六子打头的可能就是他。
+
+
+
+
+
+
+
+-----
+
+####  七十七  
+##### 52448#       发表于 2020-4-23 12:58
+
+
+
+
+情报凌空六子出了，这次人设还可以，没有可以往丑了整，不过感觉没啥特点
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 52449#       发表于 2020-4-23 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47174726&amp;ptid=98922" target="_blank">七十七 发表于 2020-4-23 12:58</a>
+
+情报凌空六子出了，这次人设还可以，没有可以往丑了整，不过感觉没啥特点 ...</blockquote>
+有个疑似巨人的呀
+
+
+
+
+
+
+
+-----
+
+####  垃垃藻  
+##### 52450#       发表于 2020-4-23 14:08
+
+
+
+
+鱼人是不是标配啊，又是一个鱼人。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  李剡s  
+##### 52451#       发表于 2020-4-23 14:42
+
+
+
+<blockquote>C男人 发表于 2020-4-15 21:41
+人物太多确实容易乱，
+
+
+除了亲儿子、三灾、六子、台柱，还有蛮霸者，
+</blockquote>
+这几个人儿都不如德蕾丝罗萨那帮子人多
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 52452#       发表于 2020-4-24 12:18
+
+
+
+
+这六子会有几个二五仔<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  chais613  
+##### 52453#       发表于 2020-4-24 14:31
+
+
+
+
+凌空六子都是恐龙吗
+
+
+
+
+
+
+
+-----
+
+####  chais613  
+##### 52454#       发表于 2020-4-24 14:32
+
+
+
+
+凌空六子都是恐龙吗
+
+
+
+
+
+
+
+-----
+
+####  hagaren  
+##### 52455#       发表于 2020-4-24 16:16
+
+
+
+
+水城动物园的延续版-鬼岛恐龙乐园
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 52456#       发表于 2020-4-24 18:47
+
+
+
+
+吧友退坑，后会无期。
+时代变了，情非得已。
+全网收费，日方要求。
+情报图源，越来越少。
+热门漫画，殊途同归。
+如有兴趣，贴吧个汉。
+更高质量，周一腾讯。
+支持正版，大势所趋。
+最后退出，无憾无悔。
+
+以后周五只有看海盗版了？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52457#       发表于 2020-4-24 18:53
+
+
+
+
+前两天坛友推荐的海贼小站也完了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我日你妈哔哩哔哩
+
+
+
+
+
+
+
+-----
+
+####  最爱面包超人  
+##### 52458#       发表于 2020-4-24 18:54
+
+
+
+
+所以以后是没法白嫖了吗
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52459#       发表于 2020-4-24 19:16
+
+
+
+ 本帖最后由 金鱼师父 于 2020-4-24 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47193613&amp;ptid=98922" target="_blank">最爱面包超人 发表于 2020-4-24 18:54</a>
+
+所以以后是没法白嫖了吗</blockquote>
+难说 龙珠超都可以拿英文版搞二次汉化 op这种盗版能带来大量流量的再不济也可以搞二次汉化，顶多比抢生肉要再慢一点点。
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 52460#       发表于 2020-4-24 20:50
+
+
+
+
+哪里能看到汉化啊。。
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 52461#       发表于 2020-4-24 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195020&amp;ptid=98922" target="_blank">刹那の劍 发表于 2020-04-24 20:50:16</a>
+哪里能看到汉化啊。。</blockquote>其实虎扑出乎意料的可以
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52462#       发表于 2020-4-24 21:02
+
+
+
+
+话说勘十郎已经到鬼岛了吧，应该通风报信了的，怎么凯多这边一点儿准备都没有，还是埋伏已经准备好了…
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 52463#       发表于 2020-4-24 23:12
+
+
+
+
+这么多新敌人要打几年？
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 52464#       发表于 2020-4-25 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47195092&amp;ptid=98922" target="_blank">Algie 发表于 2020-4-24 20:55</a>
+
+其实虎扑出乎意料的可以
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+我对比了一下英文版，虎扑那个二次翻译有点吓人。。。
+[http://mangaburn.blogspot.com/20 ... nglish-page-14.html](http://mangaburn.blogspot.com/2020/04/one-piece-chapter-978-english-page-14.html)
+
+
+
+
+
+
+
+-----
+
+####  youjh  
+##### 52465#       发表于 2020-4-25 02:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47175509&amp;ptid=98922" target="_blank">垃垃藻 发表于 2020-4-23 14:08</a>
+
+鱼人是不是标配啊，又是一个鱼人。
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+是，鱼人是海贼世界的政治正确，好莱坞拍片敢不用黑人么
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52466#       发表于 2020-4-25 08:56
+
+
+
+
+等正版就完事了，这些二手翻译真的不行。
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52467#       发表于 2020-4-25 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198382&amp;ptid=98922" target="_blank">缺德猫 发表于 2020-4-25 08:56</a>
+
+等正版就完事了，这些二手翻译真的不行。</blockquote>
+毕竟汉化组有负责润色校对的 单人哪有时间斟酌
+
+
+
+
+
+
+
+-----
+
+####  584520184  
+##### 52468#       发表于 2020-4-25 11:30
+
+
+
+
+正版？企鹅的？那个挺搞笑的
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52469#       发表于 2020-4-25 11:49
+
+
+
+
+也就这两周吧，不会以后周五没海贼王看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  破鞋三公主  
+##### 52470#       发表于 2020-4-25 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">企鹅这翻译质量还不如贴吧个翻
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 52471#       发表于 2020-4-25 12:26
+
+
+
+
+暴言一下，如果这就是以后的新常态，那对我来说可能是时候渐渐放下海贼了。。。本来新世界以后就对海贼的发展颇有微词，但还是因为看海贼已经成习惯了于是依旧有一周看一周地追着，对于故事的心态也逐渐变成主要想看大局会怎么演进而已了，比方说相比和之国的冒险，对世界会议篇更感兴趣。。。
+
+大概会攒一下，以后得空了再把剩下半套海贼单行本买齐连贯看吧。
+
+再说就海贼现在的情报水平，如果只关心个大概情节，看看文字情报也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52472#       发表于 2020-4-25 12:51
+
+
+
+
+企鹅主要是人名太蛋疼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+

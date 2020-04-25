@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-23 00:03** 
+> ## **本文件最后更新于2020-04-25 14:02** 
 
 
 
@@ -6116,4 +6116,769 @@ mk2发言</blockquote>
 
 
 
-                                      
+
+
+-----
+
+####  2014720  
+##### 3338#       发表于 2020-4-23 22:51
+
+
+
+ 本帖最后由 2014720 于 2020-4-23 22:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+看到夸在那狂嗨突然就有梁木了，烦
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3339#       发表于 2020-4-23 23:04
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-23 23:11 编辑 
+
+突然无关话题展开：
+
+
+我最后一次比较稳定的看阿夸是她血源诅咒系列
+
+
+没看也不是因为梁木， 就是没时间
+
+
+我一向喜欢排优先顺位， 有必要抛下什么的时候就比较方便<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+也许我这个思维方式就很不贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+--------
+
+大概是我的悲观主义和被害妄想倾向的一部分：
+
+
+我坐车时会靠近出口- 出了意外方便逃生（
+
+
+我过马路等红绿灯会避免站在人的前方 - 怕被推到马路上
+
+
+
+在房间中喜欢在视野开阔， 没人在我后面的位置
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3340#       发表于 2020-4-23 23:04
+
+
+
+
+建议去隔壁朝拜堂来祈祷缓解一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3341#       发表于 2020-4-23 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+血缘很好玩的，有时间可以试试
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3342#       发表于 2020-4-23 23:57
+
+
+
+
+血源除了帧数是我心中的完美游戏<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+syl，直播抽卡拿到好剧本还是好看啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3343#       发表于 2020-4-24 00:49
+
+
+
+
+阿夸雾子贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3344#       发表于 2020-4-24 00:51
+
+
+
+
+被ban了?
+
+网络断了？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3345#       发表于 2020-4-24 17:37
+
+
+
+
+傻葵是大亏的冲国上位替代，嗯嗯<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3346#       发表于 2020-4-24 20:42
+
+
+
+
+今日份的直播间贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d00bf634121f3a01e9e6ea13618991a6/IMG_DE9F460C332317F4FCB927F06A973CCE.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 3347#       发表于 2020-4-25 07:34
+
+
+
+
+这俩的关系V出道前就已经到达顶点了吧，出道后出各种破事一直是往疏远方向加速的。
+
+现在mea要联动也是优先跟犬山组长和神乐组，线下聊天爆出来的也是跟犬山的多，跟夸的关系越来越像毕业后偶尔一起开黑叙旧的老同学，咖啡厅也是叙旧大会，这种情况下还想维持以前那种“最特别的朋友”的表面印象来忽悠贴贴人也太难了，今年还会有生日互赠视频吗？出了本人看着不觉得尴尬吗？
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3348#       发表于 2020-4-25 08:16
+
+
+
+
+去年那样都不尴尬，今年有什么好尴尬的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是不知道字幕组心里怎么想呢，不过反正字幕组人均脑瘫
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3349#       发表于 2020-4-25 11:05
+
+
+
+
+她俩自己都觉得关系毫无变化，为什么总有人希望她们的关系拉近或疏远呢
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3350#       发表于 2020-4-25 11:13
+
+
+
+
+因为想贴贴人死啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是什么楼啊
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 3351#       发表于 2020-4-25 11:19
+
+
+
+
+关系变没变没人知道，倒是交流变少是肯定的，516后的b限联动能打完游戏纯聊天聊1小时，现在聊个半局游戏就没得聊了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3352#       发表于 2020-4-25 11:24
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-25 11:44 编辑 
+
+努力论证meaqua渐行渐远就如同无神论者试图对信教者论证不存在神吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">....
+
+啊这， 这个思路挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+meaqua联动其实就如"神迹"来加强信徒的信心
+
+不过信徒本身也分不同的教派， 比如百合派就算正主说了是朋友还是继续画亲嘴之类的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+从这个角度来说mea和aqua其实不是这个宗教的神， 而是沟通神人的桥梁。 "神"在不同的教派中表现为: "meaqua是恋人"， "meaqua是真物" 等等
+
+有些人在意正主明面上的联系(神迹)，
+
+有些人只要有"牧师讲道"， "教众社区" 和"内心和神的链接" 就能继续相信或者继续保持教徒身份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有些人是浅信者， 不会要死要活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+注： 我是不可知论者<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3353#       发表于 2020-4-25 11:48
+
+
+
+
+建议去补昨天羊的tc，舔一方通行的时候说“我又不是蕾丝，是异性恋啊”www。然而贴贴河豚终究是不会相信的。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3354#       发表于 2020-4-25 11:49
+
+
+
+
+bsyl  盐水真好啊，盐水贴贴（暴论）
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3355#       发表于 2020-4-25 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47199324&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-25 11:24</a>
+努力论证meaqua渐行渐远就如同无神论者试图对信教者论证不存在神吧....
+
+啊这， 这个思路挺有趣的[f ...</blockquote>
+那么暗黑贴贴人呢？算是什么邪典信者吗？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3356#       发表于 2020-4-25 11:53
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-25 12:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47199574&amp;ptid=1914314" target="_blank">贴杂司马 发表于 2020-4-25 11:52</a>
+
+那么暗黑贴贴人呢？算是什么邪典信者吗？</blockquote>
+新教（异端）？ 不然就是异 教 徒<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+“贴贴人”和“暗黑贴贴人”都没有被精确定义， 估计在不同人眼里都指向不同的东西
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3357#       发表于 2020-4-25 11:54
+
+
+
+
+盐水联动飘过一个“meaqua永远t0”<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+时至今日还会因为这个暴怒的我真是个傻逼啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3358#       发表于 2020-4-25 12:03
+
+
+
+
+暗黑贴贴人的诉求也有很多种吧，有希望两人关系破裂的，有只是希望两人不再联动的，也有单纯想杀贴贴人的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3359#       发表于 2020-4-25 12:08
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-25 12:03
+暗黑贴贴人的诉求也有很多种吧，有希望两人关系破裂的，有只是希望两人不再联动的，也有单纯想杀贴贴人的 ...</blockquote>
+我感觉希望前两种的本质是在希望最后一种，毕竟已经对“虽然联动但是没有贴贴壬”这件事不抱希望了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3360#       发表于 2020-4-25 12:13
+
+
+
+
+想当年我也当过贴贴人啊，然而现在只剩下一颗希望不仲的心了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3361#       发表于 2020-4-25 12:13
+
+
+
+
+我只希望贴贴人能捂热五岁弱智那副冰冷的铁石心肠
+
+
+盛夏就要到了，向日葵也要再盛开了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3362#       发表于 2020-4-25 12:15
+
+
+
+
+meaqua， kpi的神！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3363#       发表于 2020-4-25 12:21
+
+
+
+
+别再说向日葵了，我都快要ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3364#       发表于 2020-4-25 12:22
+
+
+
+
+“嫌いじゃないけど好きじゃないよ”
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 3365#       发表于 2020-4-25 12:38
+
+
+
+
+暗黑贴贴人是想要这俩像mrra那样明面上闹掰吧，而不是像现在这样半死不活，明明回不去了还要时不时蹦出来勾起ptsd，让人想起曾经的自己有多么sb。就像分手了之后要把前任物品烧掉一样，断绝勾起回忆的可能性。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3366#       发表于 2020-4-25 12:47
+
+
+
+
+这应该算我说的第一种吧，除非这俩彻底决裂不然免不了还会产生联系触发ptsd。
+有这种诉求的话应该会想办法让她俩反目成仇
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3367#       发表于 2020-4-25 12:48
+
+
+
+
+不行，那样的黑暗贴贴人还不如贴贴人呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3368#       发表于 2020-4-25 12:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">看你们说了那么多就我什么都感受不到吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">可能作为贴贴人的一部分早就被时间冲刷掉了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不过我还是爱着aqua的，毕竟她实现了我的愿望（虽然晚了几天）
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3369#       发表于 2020-4-25 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200008&amp;ptid=1914314" target="_blank">小走 发表于 2020-4-25 12:38</a>
+暗黑贴贴人是想要这俩像mrra那样明面上闹掰吧，而不是像现在这样半死不活，明明回不去了还要时不时蹦出来勾 ...</blockquote>
+怎么这么多人都说mrra爆炸其实就是这俩不太熟的相性差的liver想要营业，但双方都找到了其他更合适的联动对象(主要是郡道)，单推的粉丝也不喜欢对方的风格(主要是roa粉),这俩又各有各的顾虑(郡道很烦别人管她，roa不想别人被自己粉丝影响),最后算是和平分手吧郡道看到roa相关就会疯狂自贬，说roa是偶像自己是艾薇女优，脑补的roa香水小故事里自己是温柔守望的高龄老妇最后还死了，roa在mrra分手回边哭边讲自己现在还是喜欢老师，因为怕打扰老师所以叫老师把自己和mrra相关给屏蔽了
+
+六字母可不可以别来碰瓷我家mrra？这可是真正百合？你六字母配吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ashero|-1|哦|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3370#       发表于 2020-4-25 12:54
+
+
+
+<blockquote>小走 发表于 2020-4-25 12:38
+暗黑贴贴人是想要这俩像mrra那样明面上闹掰吧，而不是像现在这样半死不活，明明回不去了还要时不时蹦出来勾 ...</blockquote>
+这段也算是我的zqsg了。（摊）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3371#       发表于 2020-4-25 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200140&amp;ptid=1914314" target="_blank">小博禹 发表于 2020-4-25 12:52</a>
+怎么这么多人都说mrra爆炸其实就是这俩不太熟的相性差的liver想要营业，但双方都找到了其他更合适的联动 ...</blockquote>
+郡道不是你最恶心的bg营业吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3372#       发表于 2020-4-25 12:58
+
+
+
+
+mea自己都说今年跟绿熊都没怎么联系了，她们这批人的关系的确已经有点走到头的趋势了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 3373#       发表于 2020-4-25 13:07
+
+
+
+
+关系走到头了也不会有明面上的不仲啊，暗黑贴贴人期待的也是另一种不会实现的脑补，毕竟本质还是贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3374#       发表于 2020-4-25 13:10
+
+
+
+
+有道理，她们要是明天官宣结婚我也会跟她们绝交一样开心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3375#       发表于 2020-4-25 13:15
+
+
+
+
+较长时间没联系关系就走到头了还行
+一般来说，真要到头起码得来一次线下真人快打吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3376#       发表于 2020-4-25 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200179&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-4-25 12:57</a>
+郡道不是你最恶心的bg营业吗</blockquote>
+被七色太监们按着头去搞bg，只能将自己对roa的爱埋在心底<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+七色太监，该死<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3377#       发表于 2020-4-25 13:19
+
+
+
+
+那不还是线下吗，贴贴人会骚动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 3378#       发表于 2020-4-25 13:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200140&amp;ptid=1914314" target="_blank">小博禹 发表于 2020-4-25 12:52</a>
+
+怎么这么多人都说mrra爆炸其实就是这俩不太熟的相性差的liver想要营业，但双方都找到了其他更合适的联动 ...</blockquote>
+不是你到这楼发这么大一串有人关心吗
+
+
+
+
+
+                                     
