@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 20:00** 
+> ## **本文件最后更新于2020-04-25 22:00** 
 
 
 
@@ -19793,4 +19793,681 @@ syl七海变声器剪辑快30w播放了，这是出圈了?
 
 
 
-               
+
+
+-----
+
+####  lxccsnm  
+##### 7040#       发表于 2020-4-25 20:04
+
+
+
+
+咋感觉花皇有点紧张啊
+
+
+
+
+
+
+
+-----
+
+####  wsifan  
+##### 7041#       发表于 2020-4-25 20:06
+
+
+
+
+首播都会紧张啊，你看昨天ssg都发不出首播的声音了
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7042#       发表于 2020-4-25 20:09
+
+
+
+
+花留声音好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">不行了被这个萌音戳中了……
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7043#       发表于 2020-4-25 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这紧张的，都结巴了，还撞上装甲车，天胡开局点炮
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7044#       发表于 2020-4-25 20:10
+
+
+
+
+确实感觉很紧张
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7045#       发表于 2020-4-25 20:12
+
+
+
+
+紧张怎么了，这音加皮加清楚度很可以了，不过vr怎么想的和舟游生放送撞
+
+
+
+
+
+
+
+-----
+
+####  疾风血誓  
+##### 7046#       发表于 2020-4-25 20:13
+
+
+
+
+可以了，可以了，要不回忆下弥宝首播。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7047#       发表于 2020-4-25 20:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按以前挖出来的前世看，虽然各种各样的人，但是一个有直播经验的人都不招，首播紧张太正常了。
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7048#       发表于 2020-4-25 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203671&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-25 20:13</a>
+
+按以前挖出来的前世看，虽然各种各样的人，但是一个有直播经验的人都不招，首播紧张太正常了。 ...</blockquote>
+仓鼠和咋子哥就直播过吧
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7049#       发表于 2020-4-25 20:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203671&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-25 20:13</a>
+按以前挖出来的前世看，虽然各种各样的人，但是一个有直播经验的人都不招，首播紧张太正常了。 ...</blockquote>
+二期生全都有直播过啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7050#       发表于 2020-4-25 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203707&amp;ptid=1909283" target="_blank">ocyashiroi 发表于 2020-4-25 20:16</a>
+
+仓鼠和咋子哥就直播过吧</blockquote>
+这俩不是只发过歌么，还直播过么。
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 7051#       发表于 2020-4-25 20:18
+
+
+
+
+花留的声音确实挺好听的，但配这个皮我莫名的感到有种不协调感，固有印象，看到花留的皮总觉得她会发出葵皇的声音。
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7052#       发表于 2020-4-25 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203720&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-25 20:18</a>
+
+这俩不是只发过歌么，还直播过么。</blockquote>
+阿萨以前常直播，没留录播
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7053#       发表于 2020-4-25 20:21
+
+
+
+
+目前首播能看的只有罗伊，从出道到现在状态变化很小。
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7054#       发表于 2020-4-25 20:22
+
+
+
+
+怎么又是fps，不会还是ow吧
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7055#       发表于 2020-4-25 20:30
+
+
+
+
+花留的ow奶位水平应该还不错
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 7056#       发表于 2020-4-25 20:31
+
+
+
+
+花留总体来讲就挺稳的，有直播经验吗？
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7057#       发表于 2020-4-25 20:31
+
+
+
+
+这花留怎么感觉随时都处于聊/演不下去的边缘
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7058#       发表于 2020-4-25 20:31
+
+
+
+
+首播不是saya么，虽然我没看
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7059#       发表于 2020-4-25 20:33
+
+
+
+
+这种漫无目的的萌萌感，已经有好久没看过了。
+
+虽然很可爱，但是俺困了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HMI  
+##### 7060#       发表于 2020-4-25 20:34
+
+
+
+
+你就算播化妆小游戏我也看
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7061#       发表于 2020-4-25 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203756&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-25 20:21</a>
+
+目前首播能看的只有罗伊，从出道到现在状态变化很小。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">宁也不看看罗伊前世何许人也
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7062#       发表于 2020-4-25 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203867&amp;ptid=1909283" target="_blank">HKGC296 发表于 2020-4-25 20:31</a>
+
+花留总体来讲就挺稳的，有直播经验吗？</blockquote>
+没播过
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 7063#       发表于 2020-4-25 20:35
+
+
+
+
+睡都可以睡，能催眠何尝不是另一种意义上的褒奖呢
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7064#       发表于 2020-4-25 20:40
+
+
+
+
+还是太紧张了
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7065#       发表于 2020-4-25 20:42
+
+
+
+
+看了眼铲楼的锤，听了下口音是挺像的。留学生不知道能不能保证直播频率，这个还是挺影响发展的。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7066#       发表于 2020-4-25 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊，说是喜欢阿葵，2000快出击。
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7067#       发表于 2020-4-25 20:44
+
+
+
+
+姐控<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7068#       发表于 2020-4-25 20:47
+
+
+
+
+原先不知道gachi什么意思，最喜欢向日葵，2000梁木增生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7069#       发表于 2020-4-25 20:49
+
+
+
+
+笹shi
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7070#       发表于 2020-4-25 20:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗伊的人脉就别指望真认识什么本社前辈了
+
+
+临时补课几下应付应付虹人们就好了
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7071#       发表于 2020-4-25 20:52
+
+
+
+
+还是期待帕皇吧
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7072#       发表于 2020-4-25 20:53
+
+
+
+
+紧张归紧张，这节奏把握的很好啊
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 7073#       发表于 2020-4-25 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可爱就行了
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7074#       发表于 2020-4-25 21:02
+
+
+
+
+希望保持正常萌系角色的设定<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 7075#         楼主| 发表于 2020-4-25 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47204043&amp;ptid=1909283" target="_blank">H2DR 发表于 2020-4-25 20:49</a>
+
+笹shi</blockquote>
+激光2000老哥，你这就是你期待的b人吗
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 7076#       发表于 2020-4-25 21:04
+
+
+
+
+这太rp了
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 7077#       发表于 2020-4-25 21:04
+
+
+
+
+呐呐呐2000，你现在是什么心情
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7078#       发表于 2020-4-25 21:17
+
+
+
+[https://live.bilibili.com/631](https://live.bilibili.com/631)
+
+今天叽叽唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+虽然孟宝因为八期生没法唱了让我有点不爽，但是能听到叽叽唱还是很开心
+
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 7079#       发表于 2020-4-25 21:23
+
+
+
+
+2000激怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HMI  
+##### 7080#       发表于 2020-4-25 21:35
+
+
+
+
+早稻叽这歌力太顶尖了
+
+
+
+
+
+              

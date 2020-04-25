@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 20:10** 
+> ## **本文件最后更新于2020-04-25 22:10** 
 
 
 
@@ -1813,4 +1813,367 @@ syl，没有结果，日后再说，开放式结局
 
 
 
-                                              
+
+
+-----
+
+####  weiweiEX  
+##### 103#       发表于 2020-4-25 20:19
+
+
+
+
+原定5月5日晚上21点进行的直播，修改为5月4日晚上21点进行。 
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 104#       发表于 2020-4-25 20:53
+
+
+
+
+估计是考虑到许多人5月6号上班或返校吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 105#       发表于 2020-4-25 21:07
+
+
+
+
+突然来个耐久歌回不是很懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 106#       发表于 2020-4-25 21:20
+
+
+
+
+怕不是阿b安排的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 107#       发表于 2020-4-25 21:23
+
+
+
+
+不安排演唱会安排这个，有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 108#       发表于 2020-4-25 21:25
+
+
+
+
+十有八九就是阿b拿黄金周问了问，然后mea就答应了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 109#       发表于 2020-4-25 21:29
+
+
+
+
+“黄金周你必须给我播，马上把时间告诉我，否则你知道的吧？”
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 110#       发表于 2020-4-25 21:30
+
+
+
+
+是好事，阿b毕竟大公司，对你麻上点心绝对的好事，个人live我还是觉得能在ddd上做文章，又不麻烦，名利双收的好事我不信阿b抓不住机会
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 111#       发表于 2020-4-25 21:32
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-25 21:33 编辑 
+
+bsyl，说不定草莓饺子的动捕配信就是阿b限定首发，期待设备故障暴露中之人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 112#       发表于 2020-4-25 21:32
+
+
+
+
+阿b如果能给你麻赏饭我当小将又何妨？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 113#       发表于 2020-4-25 21:33
+
+
+
+
+先是工商又是耐久歌回，麻要成为啊批的旗子了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 114#       发表于 2020-4-25 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉在中国你麻几乎差不多就是b站企业势了（大嘘
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 115#       发表于 2020-4-25 21:34
+
+
+
+
+５小时耐久歌回，嗓子真能撑得住吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 116#       发表于 2020-4-25 21:34
+
+
+
+
+说到阿b，前几天的b站工商我还以为睿总也会上个舰撑撑场面呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 117#       发表于 2020-4-25 21:35
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-25 21:37 编辑 
+
+倒不如说这个时间让我感觉更奇幻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">21点开始搞5小时耐久
+怕不是一边随口一问一边就随口一说
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 118#       发表于 2020-4-25 21:40
+
+
+
+
+已婚疯了吗给她上舰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+仔细想想不是太拼五小时还行吧
+
+我心里一直有个小小的愿望，就是她每天能稳定直播一小时<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 119#       发表于 2020-4-25 21:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47204602&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-25 21:40</a>
+
+已婚疯了吗给她上舰
+
+
+仔细想想不是太拼五小时还行吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小小的？？？
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 120#       发表于 2020-4-25 21:46
+
+
+
+
+怎么你们都默认是5小时，对我来说歌回超过2个半小时就算耐久了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 121#       发表于 2020-4-25 21:50
+
+
+
+
+唱不下去提前下播也不是不行，不用那么纠结<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 122#       发表于 2020-4-25 21:51
+
+
+
+
+“如果你不能乖乖播满五小时的话， 下次我再去你房间监督你了”
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 123#       发表于 2020-4-25 21:59
+
+
+
+
+原来没说5小时么，我还纳闷怎么都跟公布了一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 124#       发表于 2020-4-25 22:03
+
+
+
+
+五小时是哪儿的消息啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">血压拉满
+
+
+
+
+
+                                             
