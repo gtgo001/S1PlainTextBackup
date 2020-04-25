@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 02:13** 
+> ## **本文件最后更新于2020-04-26 06:05** 
 
 
 
@@ -1691,4 +1691,559 @@ bsyl 目测龙皇会员应该有4500左右了
 
 
 
-                                               
+
+
+-----
+
+####  IDIDIDID  
+##### 9085#       发表于 2020-4-26 02:14
+
+
+
+
+BSYL：你们听的在管人这块都有指望，我听fusion和big band的，我最没指望了，我不是推星街推的好好的，别纠结了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9086#       发表于 2020-4-26 02:16
+
+
+
+
+他杏最会“吹”的可能是空妈，不过吹了就不能唱了，所以平时歌回还是得弹键盘
+
+另外据说昭和音大的管乐系也特别厉害，和东京艺大差不多
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/021555v7ng37upktuu79jd.png" referrerpolicy="no-referrer">
+
+
+<strong>彩菜姐姐真能吹.png</strong> (12.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 02:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9087#       发表于 2020-4-26 02:17
+
+
+
+
+提到会员，杏是不是又只剩小天使不能开会员了？而且最近杏会限的浓度感觉变高了，不知道是不是错觉。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9088#       发表于 2020-4-26 02:21
+
+
+
+ 本帖最后由 ひびき 于 2020-4-26 02:22 编辑 
+
+来讨论一下蘑菇人的年龄吧，为啥一个女性会唱向着未来咆哮
+
+
+A.她在nico红火的时期听过这首歌的nico翻唱
+
+
+B.她精研galgame，所以玩过批评空间90点台的muv-luv
+
+
+C.她是jam project的死忠粉，所以听了这首歌
+
+
+
+不管是哪一种，感觉都........<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9089#       发表于 2020-4-26 02:23
+
+
+
+
+30代老宅不是挺好，非常符合杏箱标准。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9090#       发表于 2020-4-26 02:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206652&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-26 02:17</a>
+
+提到会员，杏是不是又只剩小天使不能开会员了？而且最近杏会限的浓度感觉变高了，不知道是不是错觉。 ...</blockquote>
+是的 别的只有莉香和空妈是不开。弱弱小天使<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+会限可能是因为之前大多数人都开太少了导致会员数下降，然后运营给标准了吧，瞎猜的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9091#       发表于 2020-4-26 02:25
+
+
+
+
+不就是你楼最喜欢的姨，老哥们该冲了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9092#       发表于 2020-4-26 02:26
+
+
+
+
+30代应该没什么问题，最最乐观也是船长级别的27，8这样，这人的爱好真实一点年轻要素都没有
+
+不过30代又怎么样嘛我也是30代 贴贴嗷<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9093#       发表于 2020-4-26 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206671&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-04-26 02:23:06</a>
+30代老宅不是挺好，非常符合杏箱标准。</blockquote>感觉蘑菇人就是泥潭游戏区梦想中的老婆人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，其实A和C指向20代后半或者30代，B选项的下限能低很多的，毕竟gal的高分作也就那么几部，新入坑的也会去玩。夸皇一个20岁小姑娘也玩过她十岁时候出的euphoria<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过结合蘑菇人太阁一类的jrpg喜好就.....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 9094#       发表于 2020-4-26 02:38
+
+
+
+
+……我一个二十代前半也很喜欢这首曲子啊，你们都什么恶意推定
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9095#       发表于 2020-4-26 02:41
+
+
+
+
+你们一说玩老游戏，我又想起来今天空妈还播浪漫沙加3来着，这个是95年的。你设定不是2000年生的迫真JK吗，怎么这么喜欢玩出生5年前的老游戏，JK都不会扮，傻呵呵的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9096#       发表于 2020-4-26 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206695&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 02:33</a>
+
+感觉蘑菇人就是泥潭游戏区梦想中的老婆人设
+
+
+syl，其实A和C指向20代后半或者30代，B选项的下限能低 ...</blockquote>
+梦想里的老婆，是的。
+
+但是本人亲身血泪经历正告各位不要找爱好太相似的女人，难伺候。
+
+要过下去各玩各的才可持续发展<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9097#       发表于 2020-4-26 02:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206706&amp;ptid=1924531" target="_blank">ミオチュン 发表于 2020-4-26 02:38</a>
+
+……我一个二十代前半也很喜欢这首曲子啊，你们都什么恶意推定</blockquote>
+曲子只是一方面，这人各方面爱好都太有30代老宅范儿了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9098#       发表于 2020-4-26 02:51
+
+
+
+
+白洋葱已经脱离虚拟管人的低级趣味了吗，我看她最近全是在守望区开播的<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+批站守望区一姐<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 9099#       发表于 2020-4-26 02:54
+
+
+
+
+......爱听艺术歌曲怎么没人去听国内本科生的考试，拿他们比管人就是屈才。有些附中的学生水平都够格，就算没人帮他们好好录，听起来也舒服多了。
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 9100#       发表于 2020-4-26 02:55
+
+
+
+
+萝卜金曲还能说是钢之魂指路，唱10年前的阿尼桑金曲只能说真的是爱过才会唱了。应该和我一样都是种命后bt下载时代的老害。
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 9101#       发表于 2020-4-26 02:57
+
+
+
+
+另外蘑菇号称看完校园迷糊大王的，这怎么看都是30代了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9102#       发表于 2020-4-26 03:04
+
+
+
+
+v综b综化
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 9103#       发表于 2020-4-26 03:09
+
+
+
+
+主楼写了不禁止，话题轮到这了讨论讨论不挺好的
+
+愿意唱未来への咆哮的v我都想去看两眼
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9104#       发表于 2020-4-26 03:22
+
+
+
+<blockquote>kanonsisya 发表于 2020-4-26 02:51
+白洋葱已经脱离虚拟管人的低级趣味了吗，我看她最近全是在守望区开播的
+
+批站守望区一姐 ...</blockquote>
+大概是，习惯使然吧。我说怎么在管人区没看到。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9105#       发表于 2020-4-26 03:25
+
+
+
+
+白洋葱实质三语直播也太顶了，实质hololiveEN一期生，建议和龙皇一起移籍。
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 9106#       发表于 2020-4-26 03:30
+
+
+
+
+b综聊VR，v综聊holocn。这么说起来还是holo更有排面一点
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 9107#       发表于 2020-4-26 03:30
+
+
+
+
+要是holo早发那个英文圈主播招募没准真就去了
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 9108#       发表于 2020-4-26 03:42
+
+
+
+
+十年前的阿尼松感觉不是很老的样子啊，是vtb经常唱我时间观念模糊了吗？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9109#       发表于 2020-4-26 03:51
+
+
+
+
+想了很久还是把老爱的B站关注也点回来了，不管怎么说阿望今后对绊爱有更多的话语权应该还是好事吧
+
+[https://www.bilibili.com/read/cv5778660](https://www.bilibili.com/read/cv5778660)<strong>
+</strong>
+AIC+现况以及今后发展
+
+
+老爱B站组长昨晚写的专栏，比较长，有兴趣的可以看看
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9110#       发表于 2020-4-26 04:12
+
+
+
+
+管人特别喜欢唱的星间飞行那也是12年的anisong了啊。
+
+更不要说还整点什么god knows啥的。杏粉特别喜欢还被夸组做了工毛pv的yagoo大家族那也是十多年啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我觉得不是上个世纪的都可以不算太老（
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9111#       发表于 2020-4-26 04:18
+
+
+
+[https://www.bilibili.com/video/BV14t411V7q3](https://www.bilibili.com/video/BV14t411V7q3)
+
+
+emma的歌回合集，基本没怎么唱过这个世纪的歌，不过emma也不大啊，自己好像说过也就20后半吧
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9112#       发表于 2020-4-26 04:23
+
+
+
+ 本帖最后由 yuandi20 于 2020-4-26 04:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206839&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 03:51</a>
+
+想了很久还是把老爱的B站关注也点回来了，不管怎么说阿望今后对绊爱有更多的话语权应该还是好事吧
+
+
+https:/ ...</blockquote>
+这篇文章除了让大家确认字幕组的立场确实已经变成了a8的员工之外好像也没说啥了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不过好在够坦诚，直接就承认字幕组已经不是粉丝团体而是一份工作了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 9113#       发表于 2020-4-26 05:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203687&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-25 20:15</a>
+
+あにまーれ 灰原あかね = じーた
+
+twitter1: https://twitter.com/rojita_71 (已删除)
+
+twitter2: https:// ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">あにまーれ的新人是这位啊，这位除了是梅丽小姐的朋友之外，以前跟狗狗还挺熟的，虽然不知道为啥后来取关了。
+
+
+
+
+
+                                              
