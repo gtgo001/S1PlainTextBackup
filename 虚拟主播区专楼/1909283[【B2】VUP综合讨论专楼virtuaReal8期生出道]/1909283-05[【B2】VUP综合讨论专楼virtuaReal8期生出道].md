@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 22:00** 
+> ## **本文件最后更新于2020-04-26 00:00** 
 
 
 
@@ -16497,6 +16497,25 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 花生酱多士| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20470,4 +20489,114 @@ syl七海变声器剪辑快30w播放了，这是出圈了?
 
 
 
-              
+
+
+-----
+
+####  lutla1422  
+##### 7081#       发表于 2020-4-25 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47204534&amp;ptid=1909283" target="_blank">HMI 发表于 2020-4-25 21:35</a>
+ 早稻叽这歌力太顶尖了</blockquote>
+顶可以 尖就有失偏颇了
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 7082#       发表于 2020-4-25 22:20
+
+
+
+
+为什么我不是冠绝<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7083#       发表于 2020-4-25 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200681&amp;ptid=1909283" target="_blank">水浅王八多 发表于 2020-4-25 13:49</a>
+
+两个人说个话就cp营业（x）
+
+两个人说个话就被逮着喊新股贴贴（√）
+
+这才是你VR观众现状</blockquote>
+这人也不多吧，果然还是要八期赶紧开播几次稳固基本盘才行
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7084#       发表于 2020-4-25 22:50
+
+
+
+ 本帖最后由 H2DR 于 2020-4-25 22:53 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  nihilism  
+##### 7085#       发表于 2020-4-25 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203720&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-25 20:18</a>
+
+这俩不是只发过歌么，还直播过么。</blockquote>
+不止这两个，皇子前世那种现充大物都开过唱歌直播，直播不就是兴趣使然就做过吗，又不需要专业直播。
+
+syl.仓鼠不了解，咋子哥前世直播频率还挺高的（根据前世粉直播截图来看）。花留前世应该也直播过才对啊。
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7086#       发表于 2020-4-25 23:41
+
+
+
+
+花留前世直播过么？漫展上节目不算吧
+
+
+
+
+
+             
