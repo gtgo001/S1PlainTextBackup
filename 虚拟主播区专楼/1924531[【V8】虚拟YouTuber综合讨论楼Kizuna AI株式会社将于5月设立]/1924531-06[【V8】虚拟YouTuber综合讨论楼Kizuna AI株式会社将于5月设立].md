@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 04:07** 
+> ## **本文件最后更新于2020-04-25 10:07** 
 
 
 
@@ -16770,10 +16770,11 @@ syl
 
 
 
- 参与人数 5战斗力 -6
+ 参与人数 6战斗力 -7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1|辛苦了|
 | zpbzpb123123|-2|辛苦了|
 | Mika-S|-1||
 | TRW|-1|脑瘫孤儿又来了？|
@@ -16849,7 +16850,7 @@ syl
 
 
 闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_qb17g" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_IyY6I" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17557,8 +17558,8 @@ b限逛地图的作业开始抄起来了
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
-<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_jtO3X" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_h5zot" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_F5bUS" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_Z0ZI2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17685,10 +17686,11 @@ y1s1，路人看到那条微博的反应大概是为什么彩虹人人人喊打<
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1||
 | AloissiolA|-1|不就是回收死鱼嘛|
 | TRW|-1|你妈泉下有知也痛哭流涕|
 
@@ -18394,10 +18396,11 @@ Five Kingdom―虛假的王国——akari
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 头上一板砖| + 1|好评加鹅|
 | 北山玖公| + 1|好评加鹅|
 
 
@@ -19433,6 +19436,25 @@ B站那个实时互动的统计网址有人有吗，我不小心弄丢了</block
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| VivillonTundra| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -19568,4 +19590,668 @@ A店那个从图上看大部分是虹一二期啊。。。
 
 
 
-                
+
+
+-----
+
+####  noHentai  
+##### 8494#       发表于 2020-4-25 04:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197712&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-4-25 03:40</a>
+
+A店那个从图上看大部分是虹一二期啊。。。</blockquote>
+冲国人只配清仓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8495#       发表于 2020-4-25 04:22
+
+
+
+
+那是因为你船皇抽卡太欧了，尼哥纷纷点👎<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8496#       发表于 2020-4-25 04:53
+
+
+
+
+指示厨看的暴躁了吧怕不是
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8497#       发表于 2020-4-25 05:09
+
+
+
+
+狐狸怎么又蹭早安可可热度，还是虚空蹭
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8498#       发表于 2020-4-25 05:35
+
+
+
+ 本帖最后由 Vneet 于 2020-4-25 05:40 编辑 
+
+说到联动手游，怎少得了艾琳一家，都成异世界穿（恰）越（饭）系列了，虽然多是些没听说过的游戏。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8499#       发表于 2020-4-25 06:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197839&amp;ptid=1924531" target="_blank">Vneet 发表于 2020-4-25 05:35</a>
+
+说到联动手游，怎少得了艾琳一家，都成异世界穿（恰）越（饭）系列了，虽然多是些没听说过的游戏。 ...</blockquote>
+艾琳好啊业界最pro的烂饭，她那个频道我都跳掉yomemi的实况专门看她和萌实的恰烂饭视频
+
+艾琳一家也只能在烂饭视频里看到了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8500#       发表于 2020-4-25 08:04
+
+
+
+
+昨晚做了个奇怪的梦，大概跟vtuber擦边，幽幽子跟妖梦在做3D杂谈，突然妖梦的头部穿模飞出画面外了，幽幽子大笑了，下一个画面重置的妖梦提着剑追斩幽幽子。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8501#       发表于 2020-4-25 08:26
+
+
+
+
+xswl
+
+粥游是欧美人的第一款手游还行，md木口是怎么进出欧美的，红迪上聊得什么鸡掰，这都能张口就来？
+
+我对天发誓我两边都不玩，但粥卫兵真就第一天看v啊怎么着都说得出口啊
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8502#       发表于 2020-4-25 08:35
+
+
+
+
+我举报，黑宝是粥卫兵
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 8503#       发表于 2020-4-25 08:40
+
+
+
+
+咋就成了粥卫兵了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 8504#       发表于 2020-4-25 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47197344&amp;ptid=1924531" target="_blank">灵魂收割机 发表于 2020-4-25 01:34</a>
+大哥你也不至于把历史发言全部编辑了吧……</blockquote>
+这只是我的个人习惯罢了，不至于说因为有人视 奸而编辑的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl,s1也有人做管人梦了，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8505#       发表于 2020-4-25 08:45
+
+
+
+
+但现在粥确实是欧美市场热度最高的本国手游，流水高于其他家不少，总之哪个V蹭到就是赚到，只怕手游卫兵不满而已
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8506#       发表于 2020-4-25 08:47
+
+
+
+
+怎么斗管人虫还不满足，还要斗手游的？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8507#       发表于 2020-4-25 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198266&amp;ptid=1924531" target="_blank">掉头学姐 发表于 2020-4-25 08:35</a>
+
+我举报，黑宝是粥卫兵</blockquote>
+我不玩碧蓝所以不成立对碧蓝的舟卫兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但我确实构成对fgo的舟卫兵，因为我是被fgo恶心才来的舟
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8508#       发表于 2020-4-25 08:53
+
+
+
+ 本帖最后由 シナモンロール 于 2020-4-25 08:58 编辑 
+
+也不是真的生yuandi老哥的气
+
+
+就是觉得一个手游没必要恭敬成那样，当年舰b欧美进出烧钱韩国进出也没有大鸣大放。本来就是资本家赚钱，外服怎么样关我pis
+
+
+不光粥卫兵是这种恶性营销的一部分，受到这种恶性营销后本身产生偏差的常识观念也是。正视手游卫兵就行了，敬而远之就行了，没必要搞得太谨小慎微
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8509#       发表于 2020-4-25 08:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/085649opiraewkkkrmttwd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWW-q_7VAAAkGOq.jpg</strong> (137.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 08:56 上传
+
+
+
+
+
+
+[https://twitter.com/Seic_Oh/status/1253617828256595968](https://twitter.com/Seic_Oh/status/1253617828256595968)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8510#       发表于 2020-4-25 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198389&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-4-25 08:57</a>
+
+https://twitter.com/Seic_Oh/status/1253617828256595968</blockquote>
+i了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8511#       发表于 2020-4-25 09:01
+
+
+
+
+黑宝用着fate有关的头像还对fgo口出恶言，好薄情的男人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8512#       发表于 2020-4-25 09:01
+
+
+
+
+说起舟，NGA舟版待见vtb的地方只有外服专版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我甚至见过野生的stars粉丝
+
+
+syl，冲国年轻人第一款日式或类似的手游的问题，MA出的略早，国内智能手机还没普及到小城市和农村所以定算不上<strong>年轻人</strong>第一款，而智能机普及大概可以认定在15、16年，那我有足够的把握认为fgo和yys也许勉强能称为第一款<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8513#       发表于 2020-4-25 09:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/090136knzrnudjjn0z2ndv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200425090118.jpg</strong> (76.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 09:01 上传
+
+
+
+
+
+
+
+“人的烦恼就是记性太好，如果可以把所有事都忘掉，以后每一日都是个新开始，你说多好。”
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8514#       发表于 2020-4-25 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198405&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-25 09:01</a>
+
+黑宝用着fate有关的头像还对fgo口出恶言，好薄情的男人</blockquote>
+我只对fgo印象极差不代表我对别的作品印象差啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8515#       发表于 2020-4-25 09:10
+
+
+
+
+海苔男悟到了，榨不出sc了就开分矿榨，又是一波。
+
+
+syl，警惕上位替代和平演变，来点大亏se图好吗，要大奈奈
+
+
+
+
+
+
+IMG_20200425_044218.jpg
+(108.24 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 09:08 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/090800yl7orkf6uuffms9f.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+IMG_20200425_090644.jpg
+(129.43 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 09:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/090751e0g608t8vxgjgzmg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8516#       发表于 2020-4-25 09:13
+
+
+
+
+扯碧蓝和粥就算了，毕竟还有低概率联动，fgo这种100%不会联动的就不要车了好吗，虽然fgo写手瞎写画师瞎画周边死贵游戏性死差但我还是喜欢fgo<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8517#       发表于 2020-4-25 09:13
+
+
+
+
+葵皇开了个原gamers整RPG的直播间，大约是触景生情了
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 8518#       发表于 2020-4-25 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47198415&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-25 09:03</a>
+
+“人的烦恼就是记性太好，如果可以把所有事都忘掉，以后每一日都是个新开始，你说多好。”
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑白熊猫人是给右边两位调和阴阳吗？
+
+太极：阴角，阳角
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8519#       发表于 2020-4-25 09:20
+
+
+
+[https://www.youtube.com/watch?v=lwbGo-O6buc](https://www.youtube.com/watch?v=lwbGo-O6buc)
+
+
+100分钟后盐水耐久末影龙
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8520#       发表于 2020-4-25 09:24
+
+
+
+
+所以holoark浓度激增是为了这个团建吗
+
+
+
+
+
+
+IMG_20200425_092219.jpg
+(24.79 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 09:23 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/092313scqcc38m3rc3cl1r.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 8521#       发表于 2020-4-25 09:35
+
+
+
+
+啊，昨天看到大亏那有个和小学生联动的直播我还在好奇内容，封面实在太怪了
+
+整挺好，今天打ff14又有bgm可以用了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8522#       发表于 2020-4-25 10:02
+
+
+
+
+早，来张泳装小天使提升下浓度。
+
+<img src="https://img.saraba1st.com/forum/202004/25/100231ao89x9ffx8etr98n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-bx2fZdT1kShs-ov.jpg</strong> (208.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 10:02 上传
+
+
+
+
+
+
+
+
+
+
+               
