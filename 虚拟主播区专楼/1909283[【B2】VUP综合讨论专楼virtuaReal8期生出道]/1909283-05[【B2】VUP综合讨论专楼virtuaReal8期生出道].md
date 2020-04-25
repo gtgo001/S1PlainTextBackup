@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 00:00** 
+> ## **本文件最后更新于2020-04-25 12:02** 
 
 
 
@@ -1688,583 +1688,6 @@ rp就完事了
 
 -----
 
-####  死去的御景柚姬  
-##### 6091#       发表于 2020-4-9 18:28
-
-
-
-
-麻了，都还没出来露面就这股那股满天飞了，真就cp脑特供社团呗，打扰了
-
-[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6092#       发表于 2020-4-9 18:30
-
-
-
-
-cp民是你vr特色，不得不品尝
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| InvisibleP| + 1|气抖冷，vr的二创空间又被压缩了.|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  IDIDIDID  
-##### 6093#       发表于 2020-4-9 18:50
-
-
-
-
-VR新人什么时候可以出道7w粉再内斗好不好啊？
-
-
-
-
-
-
-
------
-
-####  aucun  
-##### 6094#       发表于 2020-4-9 18:59
-
-
-
-
-这都是铁血虹人的证明！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  IDIDIDID  
-##### 6095#       发表于 2020-4-9 19:30
-
-
-
-
-虹人先辈お静为了seeds的联动权本社爆破，黑黑为了给熊猫人隐退找个说法再次本社爆破，这才是铁血虹人，VR什么时候让星沙体面？
-
-
-
-
-
-
-
------
-
-####  南云铁虎  
-##### 6096#       发表于 2020-4-9 19:33
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47027936&amp;ptid=1909283" target="_blank">IDIDIDID 发表于 2020-4-9 19:30</a>
-
-虹人先辈お静为了seeds的联动权本社爆破，黑黑为了给熊猫人隐退找个说法再次本社爆破，这才是铁血虹人，VR ...</blockquote>
-感觉星沙姐一直以来都是负责服务器的程序员的感觉
-
-
-
-
-
-
-
------
-
-####  IDIDIDID  
-##### 6097#       发表于 2020-4-9 19:36
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47027969&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-9 19:33</a>
-
-感觉星沙姐一直以来都是负责服务器的程序员的感觉</blockquote>
-不是说要给liver一人一封（辞退）信么，感觉权力大得很。
-
-
-
-
-
-
-
-
------
-
-####  南云铁虎  
-##### 6098#       发表于 2020-4-9 19:47
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47028001&amp;ptid=1909283" target="_blank">IDIDIDID 发表于 2020-4-9 19:36</a>
-
-不是说要给liver一人一封（辞退）信么，感觉权力大得很。</blockquote>
-草，一开始说实话我也有点这种感觉，不过下午看直播的时候就打消了顾虑了
-
-
-
-
-
-
-
------
-
-####  弥杀弥杀  
-##### 6099#       发表于 2020-4-9 20:07
-
-
-
-
-flag回收
-
-
-
-
-
-
-世事難料.png
-(64.34 KB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-4-9 20:06 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202004/09/200644hzoimtwpehuem9u8.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
-
-
------
-
-####  滑稽Captain  
-##### 6100#       发表于 2020-4-9 20:18
-
-
-
-
-星沙对后面几期不清楚，至少对一二期在一定程度上要当P的
-
-
-
-
-
-
-
------
-
-####  jkol  
-##### 6101#       发表于 2020-4-9 21:15
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202004/09/211419e81fzlt8fokellfl.jpg" referrerpolicy="no-referrer">
-
-
-<strong>批注 2020-04-09 211308.jpg</strong> (8.22 KB, 下载次数: 0)
-
-下载附件
-
-2020-4-9 21:14 上传
-
-
-
-
-
-
-就是这预告？有无弥人告知一下精彩在什么地方
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6102#       发表于 2020-4-9 21:54
-
-
-
-
-悲报：新人里葵皇的妹妹是别人邀请的
-
-喜报：邀请她的人似乎是roi
-
-
-现充suki，阳角摩多摩多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  不智法师  
-##### 6103#       发表于 2020-4-9 22:02
-
-
-
-
-muri要参与炉石黄金赛了，vr这资源给的厉害
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6104#       发表于 2020-4-9 22:02
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">期待一下，邀请的话下限起码有了。
-
-syl，vr的资源怎么这么奇怪的，muri去参与了炉石活动，一般通过能接受的了萌音么，虽然她确实是本音这样，但是估计要被路人喷。
-
-
-
-
-
-
-
------
-
-####  瑕在瑾中  
-##### 6105#       发表于 2020-4-9 22:10
-
-
-
-
-muri终于能吃资源了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  雅朵莉雀  
-##### 6106#       发表于 2020-4-9 22:23
-
-
-
-
-还行，是采访不是解说，之前muri播炉石的时候还问观众自己的水平能不能解说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那真是不太行
-
-
-
-
-
-
-
------
-
-####  不智法师  
-##### 6107#       发表于 2020-4-9 22:33
-
-
-
-
-看起来像给路人展示v这个概念，大哥自身估计吃不到多少红利
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6108#       发表于 2020-4-9 22:35
-
-
-
-
-这算哪门子红利哦，之前说不是说星沙杯也是资源，也是红利，结果呢?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  不智法师  
-##### 6109#       发表于 2020-4-9 22:37
-
-
-
- 本帖最后由 不智法师 于 2020-4-9 22:45 编辑 
-
-这个好歹是官方直接合作，跟星沙杯这种本质是自己high还是不一样的。反正是推广，有一个人被吸引那也是红利不是？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且黄金赛算国内炉石顶级活动了，星沙杯跟黄金赛没法比的
-
-
-
-
-
-
-
------
-
-####  极光A°  
-##### 6110#       发表于 2020-4-9 22:51
-
-
-
-
-隔壁还得要乱两天，直到首播各自打基本盘才会消停。
-
-印象里八老板刚出道时，还说VR有独立直播几次之后才能开始联动的规则？现在看看可真是
-
-
-roi karu关系一出，警察瞬间安静了，笑到
-
-请问cp民到底爬不爬呢
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6111#       发表于 2020-4-9 22:55
-
-
-
-
-要单人直播三次才能联动
-
-该贴就贴呗，这难道是非此即彼的事情吗
-
-
-
-
-
-
-
------
-
-####  南云铁虎  
-##### 6112#       发表于 2020-4-10 02:20
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47030232&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-9 22:55</a>
-
-要单人直播三次才能联动
-
-该贴就贴呗，这难道是非此即彼的事情吗</blockquote>
-未来的事也不太好说呢。。。。
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6113#       发表于 2020-4-10 07:00
-
-
-
-
-首播之前谈任何cp，表现，组合都是放屁，想当初渡渡鸟，现在不也成半个路人了吗？想当初罗伊aza，谁能想到成立半个头牌呢？不好说不好说啊，关心那么多，这些人也太闲了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
-
-
-
-
-
-
-
------
-
-####  GrandAko  
-##### 6114#       发表于 2020-4-10 07:24
-
-
-
-
-进来踩一句，cp豚是真滴不行
-
-
-
-
-
-
-
------
-
-####  InvisibleP  
-##### 6115#       发表于 2020-4-10 08:11
-
-
-
-
-就度宝那几个私生饭都能拆cp，要是roi再复刻一遍，估计就不只是转发抽奖的乐子了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
-
-—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6116#       发表于 2020-4-10 08:15
-
-
-
-
-你们觉得罗伊那性格做得出度人那事吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6117#       发表于 2020-4-10 08:56
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">罗伊这么专业，怎么会再出之前的事，之前rozaPV又做的很烂，被他巧妙直播吐槽化解。建议弥宝以后遇到炎上的事去咨询罗伊，
-
-staff的处理方法也太不靠谱了。
-
-
-
-
-
-
-
------
-
-####  lunaticfool  
-##### 6118#       发表于 2020-4-10 12:14
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">既然是熟人肯定是互相知道底细的，真起哄到贴贴营业怕不是两方都得尴尬
-
-
-
-
-
-
-
------
-
-####  锡哒哒  
-##### 6119#       发表于 2020-4-10 12:19
-
-
-
-
-罗伊现在肯定是继续和阿萨卖腐啊，只要有roza这个组合撑腰，他俩别的cp都不会成大势也不必成大势
-
-
-
-
-
-
-
------
-
-####  穆幕姆  
-##### 6120#       发表于 2020-4-10 14:37
-
-
-
-
-素人没水平就别绑定，另外我坚持bg营业死路一条
-
-
-
-
-
-
-
------
-
 ####  激光2000  
 ##### 6121#       发表于 2020-4-10 14:48
 
@@ -3838,7 +3261,7 @@ rp白痴的一律按白痴处理
 
 
 QQ截图20200411210249.png
-(17.85 KB, 下载次数: 0)
+(17.85 KB, 下载次数: 1)
 
 
 
@@ -4143,7 +3566,7 @@ artia是美籍华人？
 <img src="https://img.saraba1st.com/forum/202004/12/100956nkifkw0faixaxo71.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EVQHRvkU0AAVSVV.jpg</strong> (704.9 KB, 下载次数: 1)
+<strong>EVQHRvkU0AAVSVV.jpg</strong> (704.9 KB, 下载次数: 2)
 
 下载附件
 
@@ -6569,7 +5992,7 @@ miki这企划不是抄的吗
 
 
 image.jpg
-(118.59 KB, 下载次数: 0)
+(118.59 KB, 下载次数: 1)
 
 
 
@@ -7591,7 +7014,7 @@ karu的萌音我有点顶不住，虽然这应该只是为了模仿硬掐出来�
 
 
 IMG_20200417_174719.jpg
-(272.93 KB, 下载次数: 2)
+(272.93 KB, 下载次数: 3)
 
 
 
@@ -7620,7 +7043,7 @@ IMG_20200417_174719.jpg
 
 
 IMG_20200417_174742.jpg
-(369.73 KB, 下载次数: 2)
+(369.73 KB, 下载次数: 3)
 
 
 
@@ -16908,7 +16331,7 @@ syl，我觉得仓鼠一点都不功利，功利还不去舔舔本社上位势�
 
 
 1b07d405aad844eedb8fcec2eb8b8bb_副本.png
-(476.91 KB, 下载次数: 6)
+(476.91 KB, 下载次数: 7)
 
 
 
@@ -17170,10 +16593,11 @@ syl，我觉得仓鼠一点都不功利，功利还不去舔舔本社上位势�
 
 
 
- 参与人数 8战斗力 +8
+ 参与人数 9战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| mizuho18| + 2|欢乐多|
 | Rosefinch| + 1|欢乐多|
 | 阿达克和稳定| + 1|好评加鹅|
 | 萌之上弥人| + 1|铁anti啊|
@@ -17759,7 +17183,7 @@ QQ截图20200424192333.png
 
 
 QQ图片20200411052312.png
-(326.76 KB, 下载次数: 1)
+(326.76 KB, 下载次数: 4)
 
 
 
@@ -18609,6 +18033,25 @@ syl歌姬感觉歌姬关注有点低，我一直以为歌姬关注有50多w，�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Havik| + 1|感谢解惑|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18647,4 +18090,377 @@ syl歌姬感觉歌姬关注有点低，我一直以为歌姬关注有50多w，�
 
 
 
-                 
+
+
+-----
+
+####  seaside  
+##### 6977#       发表于 2020-4-25 00:21
+
+
+
+
+b博 pax和御水这高强度互动 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">上一个还没播就开始互动的bgcp现在都成什么样了 还是要搞男女贴贴啊？搞点白发和紫发的百合不香吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| a982902854| + 1|呜呜呜|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 6978#       发表于 2020-4-25 00:29
+
+
+
+
+同框即同床的脑子不要怪社会。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6979#       发表于 2020-4-25 00:30
+
+
+
+
+线虫社团是这样的，不伺候没谈过恋爱的白河豚嗷。
+
+
+
+
+
+
+
+-----
+
+####  lxlyandccc  
+##### 6980#       发表于 2020-4-25 00:34
+
+
+
+<blockquote>丶彼岸花开丶 发表于 2020-4-24 21:52
+无火佬这财力推任何一个歌姬，不说能保第一，反正前二肯定是保的。</blockquote>
+嗯，我刚才又查了一下歌姬的小程序。这次应该不是无火，无火的贡献值没变，玉藻那边投票的多半是其它的粉丝。
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 6981#       发表于 2020-4-25 01:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47196962&amp;ptid=1909283" target="_blank">seaside 发表于 2020-4-25 00:21</a>
+
+b博 pax和御水这高强度互动 上一个还没播就开始互动的bgcp现在都成什么样了 还是要搞 ...</blockquote>
+我看到层主这个言论，想起来当初部分vr的cp粉挺诡异的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，就一般般的谈话都能说成cp糖。
+
+
+
+
+
+
+
+-----
+
+####  ZarcV  
+##### 6982#       发表于 2020-4-25 01:53
+
+
+
+ 本帖最后由 ZarcV 于 2020-4-25 02:14 编辑 
+
+不过出警cp的察觉力也可以堪比初中班主任抓搞不正当男女关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 6983#       发表于 2020-4-25 01:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">是我企业文化ptsd了  给独角兽一点活路吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">今天的四十七真的好听啊
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 6984#       发表于 2020-4-25 01:58
+
+
+
+
+直播没意思还不让人自己找乐子，坛友是真的很严格
+
+
+
+
+
+
+
+-----
+
+####  lutla1422  
+##### 6985#       发表于 2020-4-25 02:34
+
+
+
+
+对不起 无火的钱不是钱
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 6986#       发表于 2020-4-25 06:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">为什么只许光一果放火
+不允许帕水点灯
+
+度宝那事再复刻我就当场把显示屏吃了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6987#       发表于 2020-4-25 08:42
+
+
+
+
+010说自己没法骑独角兽，我的青春结束了
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 6988#       发表于 2020-4-25 09:05
+
+
+
+
+意思无火也是b或者什么公会的托？
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 6989#       发表于 2020-4-25 10:21
+
+
+
+
+不是的，无火的名字我也在小说软件上见过，应该是单纯的有钱
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 6990#       发表于 2020-4-25 11:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">纯正刀狗不管什么营业不营业，我们只想看版主打刀塔
+
+
+
+
+
+
+
+-----
+
+####  GrandAko  
+##### 6991#       发表于 2020-4-25 11:16
+
+
+
+
+四十七真好听mtoubile
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 6992#       发表于 2020-4-25 11:29
+
+
+
+
+说到底看管人就不要当男友粉，这样就什么cp都无所谓了╮(‘ _ ’)╭
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 6993#       发表于 2020-4-25 11:40
+
+
+
+
+这楼刷新好几遍了怎么都看不到回复的
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 6994#       发表于 2020-4-25 11:41
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-4-25 11:46 编辑 
+
+之前还没注意日历上面的类似个人logo，翻了下出的周边里面没有出现过，
+
+唯一不用字母的女人，清歌
+
+下月歌特训，挺想看乐元素能请来哪位尴尬又不失礼貌的来参与大概没啥用的打分
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5urbzpjej20ft0jo7gj.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5urc1kn8j20fp0jkak2.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5urc3tozj20fx0jo4b4.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5urc6xc9j20fq0izn7p.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5urc7tkjj20ft0k213w.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge5urc7fqbj20fp0jk13g.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 6995#       发表于 2020-4-25 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是接受不了男女cp，是接受不了御水好吧，这一手女粉特攻低音炮我是听不下去
+
+
+
+
+
+
+
+-----
+
+####  pm雪拉比  
+##### 6996#       发表于 2020-4-25 11:53
+
+
+
+
+少代言女粉说话了，二次元小妹妹怎么可能喜欢御水这种抖音现充男<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 6997#       发表于 2020-4-25 12:00
+
+
+
+
+之前认为御水是ow特化型aza，结果一开口就把人整麻了，声音和皮不搭到了一种程度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                
