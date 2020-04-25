@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 14:08** 
+> ## **本文件最后更新于2020-04-25 16:07** 
 
 
 
@@ -11131,7 +11131,7 @@ ark实在是又丑又无聊，subnautica能有联机模式就好了。</blockquo
 
 
 QQ图片20200424185753.png
-(2.26 KB, 下载次数: 24)
+(2.26 KB, 下载次数: 25)
 
 
 
@@ -14654,7 +14654,7 @@ syl，都说了不是以后休止怎么还有人说心理问题？直播推特�
 <img src="https://img.saraba1st.com/forum/202004/24/212329jamm7db87dm5083e.png" referrerpolicy="no-referrer">
 
 
-<strong>微信图片_20200424212247.png</strong> (370.21 KB, 下载次数: 4)
+<strong>微信图片_20200424212247.png</strong> (370.21 KB, 下载次数: 6)
 
 下载附件
 
@@ -16850,7 +16850,7 @@ syl
 
 
 闻到了给的味道，来增加点给浓度吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_q72LB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWNT8W_UYAI-C0L?format=jpg&amp;name=large" height="510" id="aimg_HyqiW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -17558,8 +17558,8 @@ b限逛地图的作业开始抄起来了
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">溜了，这云旅游属实不行。但以后有B限的新活还是会看。
-<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_NYCy3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_wbGa0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWSI_ZLU8AAmlKI?format=jpg&amp;name=large" height="1131" id="aimg_OcHTB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EVzFs3RX0AEmfB0?format=jpg&amp;name=large" height="1131" id="aimg_f4bEz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -20260,10 +20260,11 @@ IMG_20200425_092219.jpg
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| noaki| + 1|？？？|
 | kanonsisya| + 1||
 | 57042711| + 1|谁？|
 
@@ -20364,6 +20365,25 @@ IMG_20200425_092219.jpg
 
 才发现有人发过了，不过没留出处我这个就不编辑了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -21405,4 +21425,589 @@ a8认真做VR的话
 
 
 
-             
+
+
+-----
+
+####  シナモンロール  
+##### 8584#       发表于 2020-4-25 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200494&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-4-25 13:28</a>
+顺着绊爱始皇帝开始的话，应该是holo彩虹楚汉争霸，狐狸和圣皇是虚拟韩信萧何吧
+
+ ...</blockquote>
+无印：彩菜-夏侯婴
+
+一期：狐皇-萧何
+
+二期：圣皇-陈平
+
+Gamers：三才-曹参
+
+三期：船皇-周勃
+
+四期：龙皇-张良
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 8585#       发表于 2020-4-25 14:16
+
+
+
+
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8586#       发表于 2020-4-25 14:24
+
+
+
+
+日南(かなん)
+
+@canan8181
+
+【大事なお知らせ】
+
+定期的にアナウンス失礼致します。
+
+私の画像＆動画は無断転載禁止です。
+
+特にニコニコチャンネル内の有料コンテンツはどんな理由であれ転載を禁じており、見つけ次第、法的処置をとらせていただきます。
+
+(実際に損害賠償請求が成立した事例もあります)
+
+
+何卒宜しくお願い致します。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 8587#       发表于 2020-4-25 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47200959&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-25 14:24</a>
+日南(かなん)
+
+@canan8181
+
+【大事なお知らせ】</blockquote>
+日南现在日子不是挺巴适的
+
+怎么突然开始打击这个了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8588#       发表于 2020-4-25 14:32
+
+
+
+
+这谁搬过去的，图都是一样的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/25/142927b1dfl9f29azlfgp7.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-25 142907.png</strong> (61.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-25 14:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 8589#       发表于 2020-4-25 14:32
+
+
+
+<blockquote>シナモンロール 发表于 2020-4-25 14:26
+日南现在日子不是挺巴适的
+
+
+怎么突然开始打击这个了</blockquote>
+小肥妹没说到法律责任的问题，但是禁止转载也是很严格的，估计还是要严格分开不同身份的活动吧，是不是holo要求的就不清楚了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8590#       发表于 2020-4-25 14:43
+
+
+
+
+如果说是真的有人外传的话
+
+不是应该她的限定视频都网上漫天传了么
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 8591#       发表于 2020-4-25 14:44
+
+
+
+
+大亏明明是孙笨(孙策)<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 8592#       发表于 2020-4-25 14:51
+
+
+
+
+大天使不该是邓艾？
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 8593#       发表于 2020-4-25 14:53
+
+
+
+
+来张没穿裤子的阿夸。推：[https://twitter.com/umaiyo_puyoman/status/1253936614457307137?s=19](https://twitter.com/umaiyo_puyoman/status/1253936614457307137?s=19)
+
+
+
+
+
+
+
+
+
+BFPJ5S%$%]0~W3LAZ]~L7`J.png
+(1.62 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-25 14:53 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/25/145323pqq3kkskqchps1s3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8594#       发表于 2020-4-25 14:56
+
+
+
+
+屯田？屯啥啊......
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8595#       发表于 2020-4-25 14:56
+
+
+
+
+那谁是钟会谁是姜维？
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 8596#       发表于 2020-4-25 15:02
+
+
+
+ 本帖最后由 墨玄i 于 2020-4-25 15:06 编辑 
+
+不要因为邓艾能“顺手牵羊”就把大天使当邓艾好吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+能不能尊重我大天使复活的设定，要是也得是庞统好吧，又能跟诸葛狐演对手戏<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 8597#       发表于 2020-4-25 15:04
+
+
+
+
+算上复活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道是孟获？
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 8598#       发表于 2020-4-25 15:05
+
+
+
+
+可是蜀汉不是最终的胜利者啊，刚才拿楚汉做例子的时候不是把木口当胜利者了吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8599#       发表于 2020-4-25 15:07
+
+
+
+ 本帖最后由 colodes 于 2020-4-25 15:10 编辑 
+
+[premiere]
+
+上達の兆し スーパーマリオメーカー2に挑戦【唐澤貴洋のゲーム実況】
+
+frrom. 弁護士唐澤貴洋の CALL IN SHOW
+[https://youtu.be/hlpb7xC0P4M](https://youtu.be/hlpb7xC0P4M)
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 8600#       发表于 2020-4-25 15:07
+
+
+
+
+确实有点像孟获，被诸葛狐打败后加入了蜀汉温暖大家庭
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8601#       发表于 2020-4-25 15:11
+
+
+
+
+吓我一跳，还以为尊师也要当V了，不过日本...准确来说全世界都这个状态，人人呆在家里高强度看管，好！！！
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 8602#       发表于 2020-4-25 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201280&amp;ptid=1924531" target="_blank">lllithid 发表于 2020-4-25 15:05</a>
+
+可是蜀汉不是最终的胜利者啊，刚才拿楚汉做例子的时候不是把木口当胜利者了吗 ...</blockquote>
+然而现在世界线变了，这条世界线上华容道斩了美兔丞相，魏阿库娅子午谷偷家成功，点十万倒还是在内乱中完蛋了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8603#       发表于 2020-4-25 15:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么套三国，slee岂不是晋，吞彩虹灭木口，最后收了苟延残喘的点
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8604#       发表于 2020-4-25 15:19
+
+
+
+
+受不了了，谁来剧透一下三国的结局
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8605#       发表于 2020-4-25 15:26
+
+
+
+
+别套三国啊，三国最后的赢家可是晋，难不成真要让slee成为下一个碾压的偶像团体？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不是偶像厨的我都不知道拿什么来比对最后的赢家SLEE了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8606#       发表于 2020-4-25 15:29
+
+
+
+
+怎么就slee了，不能是我木口星吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8607#       发表于 2020-4-25 15:33
+
+
+
+
+怎么就木口星了，就不能是s1管人粉出道吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8608#       发表于 2020-4-25 15:34
+
+
+
+[https://www.youtube.com/watch?v=c4tcadZK5RM](https://www.youtube.com/watch?v=c4tcadZK5RM)
+
+【初APEX】とりあえず優勝すればいんでしょ？いけるいける！【ホロライブ/赤井はあと】
+
+这莫名的apex潮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8609#       发表于 2020-4-25 15:41
+
+
+
+
+狗子和紫宝最近私下在玩
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8610#       发表于 2020-4-25 15:43
+
+
+
+ 本帖最后由 某穆克拉 于 2020-4-25 15:59 编辑 
+
+小天使8点要玩壶男，来赌一波能不能过第一棵树？等等，仔细看了下还要萝莉音玩，全麻。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 8611#       发表于 2020-4-25 15:45
+
+
+
+
+前面不是说世界线变动了嘛，狐皇是北伐成功的诸葛亮，那还有啥晋朝嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 8612#       发表于 2020-4-25 15:49
+
+
+
+
+哇，真的是尊师啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8613#       发表于 2020-4-25 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201588&amp;ptid=1924531" target="_blank">mmbk 发表于 2020-4-25 15:49</a>
+
+哇，真的是尊师啊</blockquote>
+一时间我不知道你在指唐澤貴洋还是天音かなた
+
+
+
+
+
+            
