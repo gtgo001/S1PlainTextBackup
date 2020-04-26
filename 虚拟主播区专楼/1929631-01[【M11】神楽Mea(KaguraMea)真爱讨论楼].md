@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 22:10** 
+> ## **本文件最后更新于2020-04-26 12:12** 
 
 
 
@@ -2176,4 +2176,833 @@ bsyl，说不定草莓饺子的动捕配信就是阿b限定首发，期待设备
 
 
 
-                                             
+
+
+-----
+
+####  Sanguine  
+##### 125#       发表于 2020-4-25 22:18
+
+
+
+
+草，回去爬楼，原来只是潭友顺嘴猜了一句是不是复刻五小时<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 126#       发表于 2020-4-25 22:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">蛤，想多了，你麻高兴两小时，兴致不大一小时准时打卡下班
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 127#       发表于 2020-4-25 22:35
+
+
+
+
+一天没看M11了？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 128#       发表于 2020-4-25 23:11
+
+
+
+
+15万了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 129#       发表于 2020-4-25 23:17
+
+
+
+
+15万会有恐怖游戏吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 130#       发表于 2020-4-25 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像被她逃到20万，还要和如月一块玩了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 131#       发表于 2020-4-25 23:34
+
+
+
+
+怂逼
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 132#       发表于 2020-4-25 23:35
+
+
+
+
+不是很喜欢恐怖游戏直播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看不来
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 133#       发表于 2020-4-25 23:36
+
+
+
+
+明天要跟海苔男联动抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+珍爱生命，远离手游
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 134#       发表于 2020-4-25 23:36
+
+
+
+
+恐怖游戏不喜欢就不玩，这有什么。现在还有几个V是纪念回搞恐怖游戏的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 135#       发表于 2020-4-26 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47204451&amp;ptid=1929631" target="_blank">草牛 发表于 2020-4-25 21:29</a>
+“黄金周你必须给我播，马上把时间告诉我，否则你知道的吧？”</blockquote>
+楼友们对阿b梁木太重，为什么一定是威逼呢，说不定是利诱<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">只要咩咩答应黄金周后播，就可以参加日本分部的黄金周乱趴
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 15战斗力 -17
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 寂寞小小鱼|-2||
+| WhiteAvalon|-1||
+| Cla0221|-1|先回家看好你妈吧|
+| deep24froz|-1|你对乱p的执着我们已经感受到了,可以爬了.|
+| planetcd|-1|你就是罗志祥粉丝？|
+| jhouo8989|-2||
+| Ky·Kiske|-1|骗鹅飞驴|
+| sthunterr|-1||
+| weiweiEX|-1||
+| 素人不相识|-1|过于执着于性趴，甚至乐到我了.|
+| 呓亘|-1||
+| h1001010|-1|滴，日常打卡|
+| 时雨rain|-1|天天乱趴，麻酱身体真好|
+| A2014720|-1|能扣到负1000吗|
+| thisisaspider|-1|你妈又没带上你去参加乱趴吗，这么有空？.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 136#       发表于 2020-4-26 00:08
+
+
+
+
+哇，新楼留名
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 137#       发表于 2020-4-26 00:40
+
+
+
+
+歌回啊，挺好的，希望这次有新活儿听
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 138#       发表于 2020-4-26 00:59
+
+
+
+
+【TwitterTweet 犬山たまき 推特发布】
+内容：【💙配信告知💙】
+
+🐕【プリコネガチャ】ガチャ地獄バトル！？どちらが先にハロウィンキョウカをゲットできるのか！？【神楽めあ/犬山たまき】
+🐕4月26日21時～22時
+https://t.co/Q1PajnqnVg
+
+めあたまでガチャ地獄勝負⁉️🐶💙
+ガチャを交互に引いて行って、出るまで耐久勝負…😨💦
+配信タグ▶#めあたま https://t.co/cdL7mlHo9f
+媒体：['https://twitter.com/norioo_/status/1254092315225817088/photo/1']
+链接：['https://www.youtube.com/channel/UC8NZiqKx6fsDT3AVcMiVFyA']
+时间：2020-04-25 16:58:02 (GMT)
+网址：https://twitter.com/norioo_/status/1254092315225817088
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 139#       发表于 2020-4-26 01:32
+
+
+
+
+钱包大对决<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 140#       发表于 2020-4-26 01:44
+
+
+
+
+又是犬山阿姨又是犬山阿姨又是犬山阿姨
+
+我没所谓！
+
+
+
+
+
+
+
+-----
+
+####  不想当咸鱼  
+##### 141#       发表于 2020-4-26 04:08
+
+
+
+
+难以置信，这就11了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 142#       发表于 2020-4-26 05:33
+
+
+
+
+你麻实质44娘   就等一个上位了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 143#       发表于 2020-4-26 07:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">2233天天在手机登录界面上，等你麻什么时候上一次我就承认她是四四了
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不过叫四四是不是不太好啊，叫00不错
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 144#       发表于 2020-4-26 08:18
+
+
+
+
+连日历封面都不是你麻，还是别做梦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 145#       发表于 2020-4-26 08:48
+
+
+
+
+新人报道 怎么换楼了
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 146#       发表于 2020-4-26 08:59
+
+
+
+
+ 一般末页卡翻页BUG ，翻不过去或者重大纪念会换楼。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 147#       发表于 2020-4-26 09:47
+
+
+
+
+怪不得 之前翻页的bug有点多 换了也好 新楼新气象 希望对面早点把情况控制住 我要看3d啊啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 148#       发表于 2020-4-26 10:01
+
+
+
+
+原来抽卡对决是你咩拱的苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 149#       发表于 2020-4-26 10:41
+
+
+
+
+话说之前苔苔和家主比收入结果怎么样了来着
+
+不过现在的话你麻收入应该比苔苔高吧，苔苔漫画都休载了还有啥其他收入来源吗
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 150#       发表于 2020-4-26 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47208101&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-4-26 09:47</a>
+怪不得 之前翻页的bug有点多 换了也好 新楼新气象 希望对面早点把情况控制住 我要看3d啊啊 ...</blockquote>
+3d至少下半年。。别急
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 151#       发表于 2020-4-26 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47208671&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-4-26 10:45</a>
+
+3d至少下半年。。别急</blockquote>
+假设这楼坚持3个月 也就8月份了 想想可能确实有点难……
+
+
+PS.比收入肯定比不过富婆苔
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 152#       发表于 2020-4-26 10:57
+
+
+
+[https://bbs.nga.cn/read.php?pid=416589269&amp;opt=128](https://bbs.nga.cn/read.php?pid=416589269&amp;opt=128)
+犬山tc:めあ会直播前先说今天准备的话题 这样的人很少见 めあ是神啊, めあ说最近コロナ没外出没新作了 用以前的话题可以吗 
+喜欢めあヘラ时的直播:杀めあガチ恋势跟推特冻结 
+收益化没了也没事的样子 还有别的收益 tc bili sl, 要是bilibili没了可能会發狂吧 毕竟是bilibili的女王 
+我出道前就是めあ的粉丝啊 很喜欢
+直播有めあ自然有趣 我家的核兵器 
+说めあ自我评价很低 明明已经经常贊她
+
+开头也说了说pcr是めあ来问的 问她怎做抽卡直播 犬山表示没什么可以教的啊 今日这场抽卡比赛好像也是めあ提出的 现场dc通知めあ推特發了 45分集合 充10万iTunes 叫观众rt
+
+另外问一下 3月语音还没發吧?
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 153#       发表于 2020-4-26 10:57
+
+
+
+
+收入的话，noripro是正经社团啊，有公司的。白雪milk要给海苔男钱的啊。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 154#       发表于 2020-4-26 11:02
+
+
+
+
+那么麻现在收入大概有多少呢，只知道她去年交税好像交的日本最高那档?
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 155#       发表于 2020-4-26 11:06
+
+
+
+
+我没收到语音就是了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 156#       发表于 2020-4-26 11:06
+
+
+
+
+还不止 虽然她现在不画新漫画了（摸鱼真开心） 但是之前画的也还在卖啊 工商也接过吧 总的来说肯定比mea高 猜测  
+
+不过具体mea赚多少钱至今肯定是没石锤的
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 157#       发表于 2020-4-26 11:12
+
+
+
+
+pretender<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 158#       发表于 2020-4-26 11:13
+
+
+
+<img src="https://p.sda1.dev/0/c0df1e45e77d63c341d0589751bc0875/IMG_0F0C22EFA5E6F0D03793BC6C407F03FD.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/b3d1f500190f5770c76ac5521112e568/32A376722EFEF7CEEADC6C16EC6B0F7D.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 159#       发表于 2020-4-26 11:13
+
+
+
+
+cst19:00 pretender 15w纪念投稿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 160#       发表于 2020-4-26 11:17
+
+
+
+
+晚上六点投稿啊，挺好的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 161#       发表于 2020-4-26 11:22
+
+
+
+
+但并不是プレミア公開 没有sc打吧 回馈粉丝了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 162#       发表于 2020-4-26 11:24
+
+
+
+
+散发比油条好看多了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 163#       发表于 2020-4-26 11:34
+
+
+
+ 本帖最后由 the_cook 于 2020-4-26 11:37 编辑 
+
+不说散发
+
+单单去掉油条清楚程度也直线上升啊要不3D干脆去掉油条吧，省得穿模
+
+
+syl，苔姨资产多没问题，但看现在年收明显不如mea吧
+
+说很多回次边打钱大方了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 164#       发表于 2020-4-26 11:51
+
+
+
+
+散发好，不要短发（
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 165#       发表于 2020-4-26 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47208634&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-26 10:41</a>
+
+话说之前苔苔和家主比收入结果怎么样了来着
+
+不过现在的话你麻收入应该比苔苔高吧，苔苔漫画都休载了还有啥 ...</blockquote>
+信姬人都没了还比个锤子收入<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+海苔男要是真的收入比mea高她就不会整天看着mea的sc流口水了。不过她一直都在扩展业务，以后的事情就说不好了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 166#       发表于 2020-4-26 12:05
+
+
+
+
+期待新歌
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 167#       发表于 2020-4-26 12:06
+
+
+
+
+看到钱流口水跟总资产有啥关系......大小都是肉啊。不过我一直很好奇为啥mea的gachi很多，为啥大家都想给她打钱啊（虽然我也是）
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 168#       发表于 2020-4-26 12:09
+
+
+
+
+mea的gachi不算多了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 169#       发表于 2020-4-26 12:11
+
+
+
+
+资产这个问题太虚无了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+mea一个未成年人上哪儿来资产。就算海苔男也没几个存款的，我之前在隔壁v综就说过的，一线城市有个几套房资产不是随便缪海苔男。
+
+
+说到未成年人，海苔男昨天在那里疑惑为什么mea一个月课金只能2w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还说是不是年龄限制搞错了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 170#       发表于 2020-4-26 12:12
+
+
+
+
+当你麻gachi可是只有少数人可以坚持下去的试炼（
+
+
+
+
+
+                                            

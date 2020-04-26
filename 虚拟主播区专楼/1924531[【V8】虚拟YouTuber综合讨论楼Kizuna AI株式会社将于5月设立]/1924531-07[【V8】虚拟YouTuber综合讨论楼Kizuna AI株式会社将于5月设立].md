@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 10:07** 
+> ## **本文件最后更新于2020-04-26 12:10** 
 
 
 
@@ -2614,4 +2614,473 @@ jam pro不是唯一指定婆罗门白月光乐队，我选C
 
 
 
-                                             
+
+
+-----
+
+####  Izuru单推人  
+##### 9134#       发表于 2020-4-26 11:20
+
+
+
+
+一弦下午两点播塞尔达幻影沙漏，在这之前12点一边洗衣服一边杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9135#       发表于 2020-4-26 11:26
+
+
+
+
+所以杏星老哥，打游戏和洗衣服杂谈哪个更吸引你？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9136#       发表于 2020-4-26 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209149&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-26 11:26</a>
+
+所以杏星老哥，打游戏和洗衣服杂谈哪个更吸引你？</blockquote>
+我下午有作业要做，两个都只能挂着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9137#       发表于 2020-4-26 11:29
+
+
+
+
+怎么感觉虹女的日增和酬勤度都被天皇吸走了……
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9138#       发表于 2020-4-26 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209203&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-26 11:29</a>
+怎么感觉虹女的日增和酬勤度都被天皇吸走了……</blockquote>
+昨天就有人这么说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 9139#       发表于 2020-4-26 11:35
+
+
+
+
+彩虹上上下下养出来的超级无敌我爱你葛皇ark平a也打不过v8养的兔皇了。唯一能吹的彩虹男v也落了，剩几天不用说了吧？
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 9140#       发表于 2020-4-26 11:37
+
+
+
+
+把天皇激活了不好么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Symphomy  
+##### 9141#       发表于 2020-4-26 11:40
+
+
+
+ 本帖最后由 Symphomy 于 2020-4-26 11:42 编辑 
+
+天皇这也酬勤？还没有50W之前一天两动勤吧。
+
+
+syl：葛叶确实不行了，但是还是所有liver里ARK最高的，毕竟兔子才1W4
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9142#       发表于 2020-4-26 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209281&amp;ptid=1924531" target="_blank">zilch_ren 发表于 2020-04-26 11:35:52</a>
+彩虹上上下下养出来的超级无敌我爱你葛皇ark平a也打不过v8养的兔皇了。唯一能吹的彩虹男v也落了，剩几天不 ...</blockquote>V吧养的什么鬼，V吧顶多帮忙小创收一波sc功劳还要和兔组分，同接和V吧那是p关系没有，别太看得起V吧好吗<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9143#       发表于 2020-4-26 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我梦想中，ark凉凉之后，葵皇一个人在服务器里孤独传说的故事要成真了吗？
+
+
+葵皇黑化每天暴言多来点
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 9144#       发表于 2020-4-26 11:45
+
+
+
+
+田角差不多可以拿出SLEE这个杀手锏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9145#       发表于 2020-4-26 11:47
+
+
+
+
+阿媂娅这个大师渡劫局打了几个小时了 感觉心态快炸了
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9146#       发表于 2020-4-26 11:48
+
+
+
+
+20组自从三小只之后又不抽卡了，合理怀疑ichikara已经懒的养新liver了
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 9147#       发表于 2020-4-26 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">进去就看到播了10.5个小时。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9148#       发表于 2020-4-26 11:50
+
+
+
+<blockquote>八月琉璃 发表于 2020-4-26 11:49
+进去就看到播了10.5个小时。
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+这局已经是第四还是第几次渡劫局了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她自己心态不炸我都快炸了
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 9149#       发表于 2020-4-26 11:50
+
+
+
+
+现在也没几个打的过peko的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9150#       发表于 2020-4-26 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">不管蘑菇人多大，在家撅着屁股装电脑还是挺性感的
+
+
+syl ARK还可以播很久吧，而且相当于平A，兔皇MGS算是专武了，而且也只能在周末耐久。
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 9151#       发表于 2020-4-26 11:54
+
+
+
+
+狐狸今天推特火力全开了
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 9152#       发表于 2020-4-26 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 9153#       发表于 2020-4-26 11:57
+
+
+
+
+那peko有胆子在这时候播死亡搁浅么。等一个战兔这仗该怎么打。
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 9154#       发表于 2020-4-26 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209433&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-04-26 11:50:03</a>
+这局已经是第四还是第几次渡劫局了她自己心态不炸我都快炸了</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上头是这样的。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9155#       发表于 2020-4-26 12:01
+
+
+
+
+我们是冠军！
+
+
+
+
+
+
+1CC4B5A47873F420458ED1DAE794BD5D.jpg
+(831.09 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-26 12:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/120122y9z2f9c0p22932cw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9156#       发表于 2020-4-26 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 蘑菇人dva玩的不如葵皇，其他都能吊打，葵皇的dva真的很6.
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 9157#       发表于 2020-4-26 12:04
+
+
+
+
+holocn也去b综啊，警惕b综变成vr专楼，增加点其他箱浓度。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9158#       发表于 2020-4-26 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">葵皇dva玩得6是不是因为韩国男友啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9159#       发表于 2020-4-26 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209589&amp;ptid=1924531" target="_blank">kaion111 发表于 2020-4-26 12:04</a>
+
+holocn也去b综啊，警惕b综变成vr专楼，增加点其他箱浓度。</blockquote>
+可不得不承认，B综建立开始基本不就是为了VR来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                            
