@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 16:01** 
+> ## **本文件最后更新于2020-04-26 20:01** 
 
 
 
@@ -22168,4 +22168,1356 @@ ru爹励志打c位的，不是辅助玩家可以比的
 
 
 
-          
+
+
+-----
+
+####  Kyonkon  
+##### 7177#       发表于 2020-4-26 16:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">楼上这是低端钓鱼吗
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 7178#       发表于 2020-4-26 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210033&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-26 12:41</a>
+
+演肯定不是演的，首播就发现是个比RUKI还固执的人，都有点偏执了，而且较真。
+
+
+就算萌萌观众们挺吃这一口 ...</blockquote>
+嘛其实。。你看一般主播不也就摁着一款游戏玩，也没啥吧
+
+非到了V这边就三板斧，如果能看她做成长系ow主播感觉也不错，声音也好听。
+
+
+
+
+
+
+
+-----
+
+####  御坂MKII  
+##### 7179#       发表于 2020-4-26 16:43
+
+
+
+ 本帖最后由 御坂MKII 于 2020-4-26 18:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 弥宝的聊天看着着急
+
+回来又看正常多了
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7180#       发表于 2020-4-26 16:46
+
+
+
+
+副会长真尼玛急死个人。。。她对聊天的定义难道就是联谊相亲吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7181#       发表于 2020-4-26 16:53
+
+
+
+
+蘑菇人这歌单，真实老二次元了，俺喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7182#       发表于 2020-4-26 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">安定的拉跨嘎聊SUKI，
+
+中间XJB聊 杏仁豆腐=人脑 那段挺好的，估计她一周能憋出这么30秒的话是极限了
+
+
+
+
+
+
+
+-----
+
+####  turtlejk  
+##### 7183#       发表于 2020-4-26 17:53
+
+
+
+
+蘑菇的曲库很夸张的..毕竟翻唱搞了十几年了..顺便蘑菇的游戏库也挺大的..跟隔壁游戏区的老害差不多了..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是有分类..带act属性的基本都不玩..<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 7184#       发表于 2020-4-26 17:56
+
+
+
+
+holocn没箱度，可是holo有箱推啊
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 7185#       发表于 2020-4-26 17:59
+
+
+
+
+有一说一，pax会成为第二个弥宝那样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7186#       发表于 2020-4-26 18:02
+
+
+
+
+pax明显Pro多了不会这么拉胯
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7187#       发表于 2020-4-26 18:02
+
+
+
+
+帕皇唱歌就把弥宝爆得渣都不剩了
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7188#       发表于 2020-4-26 18:05
+
+
+
+
+ru皇直接撞新人首播，社内不仲还是准备毕业
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7189#       发表于 2020-4-26 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213570&amp;ptid=1909283" target="_blank">lxccsnm 发表于 2020-4-26 18:05</a>
+
+ru皇直接撞新人首播，社内不仲还是准备毕业</blockquote>
+不好说，感觉确实发生了一些事情有矛盾了，至于最原始的原因是什么她不说我们永远不会知道。
+
+但是我们可以猜，反正猜错不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+应该不会是礼物分成的问题，我觉得最主要的就是直播内容的分歧吧，她贴游戏区大物蹭粉被骂这么久了应该也不是原因。
+
+说不定觉得单干能赚更多呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 7190#       发表于 2020-4-26 18:19
+
+
+
+
+vr没有让步新人的传统吧？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7191#       发表于 2020-4-26 18:21
+
+
+
+
+等播了不就知道了，让路这种也属于日系特色了，国内都比较随意。
+
+
+
+
+
+
+
+-----
+
+####  HSNYKE/EKPL  
+##### 7192#       发表于 2020-4-26 18:22
+
+
+
+ 本帖最后由 HSNYKE/EKPL 于 2020-4-26 19:25 编辑 
+
+虽说没这传统， 但这时候发预告，该说不愧是Ru皇吗
+
+社外联动没法避免，那Staff咋想的
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7193#       发表于 2020-4-26 18:26
+
+
+
+
+即使没有这个传统，昨天所有人都让了。
+
+那所有人都让就ruki不让，这不是不仲是什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 7194#       发表于 2020-4-26 18:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7195#       发表于 2020-4-26 18:29
+
+
+
+
+昨天大哥播只狼到点就直接下了，安堂好像是在播？不过印象中是在看新人首播，也没差了
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 7196#       发表于 2020-4-26 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">硬要说的话安堂不算VR
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7197#       发表于 2020-4-26 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">别奶了，求你们了
+帕
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  AntiLinked  
+##### 7198#       发表于 2020-4-26 18:34
+
+
+
+
+ru皇这是当场叫板，向运营展示自己在vr粉最多的“核心地位”？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7199#       发表于 2020-4-26 18:42
+
+
+
+
+stf怎么这样安排的，很怪哦
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7200#       发表于 2020-4-26 18:46
+
+
+
+
+到时候新人首播数据不好看，所有人都恨她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7201#       发表于 2020-4-26 18:49
+
+
+
+
+Ru皇平时那么点人气也影响不到新人啊，过分了
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7202#       发表于 2020-4-26 18:50
+
+
+
+
+草，说是staff给安排的，怕不是给新人赏饭。
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7203#       发表于 2020-4-26 18:51
+
+
+
+ 本帖最后由 aucun 于 2020-4-26 18:52 编辑 
+
+估计安排和御水对qiang
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7204#       发表于 2020-4-26 18:55
+
+
+
+
+副会长：我今天主要是想看两点，一是PAX会不会唱歌，二是听说御水想联动MHR，希望他有点自知之明。
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7205#       发表于 2020-4-26 18:55
+
+
+
+
+miki：啊听说遇水要和mahiru联动？希望他有点自知之明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  御坂MKII  
+##### 7206#       发表于 2020-4-26 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miki：我听说御水想联动mhr，不是这样的吧，我希望他能有自知之明.jpg
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7207#       发表于 2020-4-26 18:59
+
+
+
+
+草这翻页BUG，是时候该开新楼了 
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7208#       发表于 2020-4-26 19:11
+
+
+
+
+御水首播声线感觉自然一点了，但还是有种现充感，看着谜之窝火<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+pax给御水上舰了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7209#       发表于 2020-4-26 19:13
+
+
+
+
+没玩过PUBG当教学了
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7210#       发表于 2020-4-26 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ruki发预告整个杂谈十几分钟1w人气都没有，和新人撞车何必自取其辱呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不是社内不仲我是不信的
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 7211#       发表于 2020-4-26 19:15
+
+
+
+
+看了会别的，怎么一进直播间在pubg？自我介绍结束了？
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7212#       发表于 2020-4-26 19:16
+
+
+
+
+ru皇明明是社外联动，和新人真就没关系啊
+
+
+
+
+
+
+
+-----
+
+####  AEmpire  
+##### 7213#       发表于 2020-4-26 19:17
+
+
+
+
+ruki预告要跟御水合唱打啦蹦吧，御水负责PV？
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7214#       发表于 2020-4-26 19:18
+
+
+
+
+ruki这社外联动撞车新人首播，过于尴尬，影响社内关系啊。
+
+vr的士大夫真就不干正事呗
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7215#       发表于 2020-4-26 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双开大概听了一下，大概是要和中国爱还有其他人出合唱吧，因为要和其他人在同一个时间直播所以刚好是7点，staff这个迷之思维，这完全没必要吧。
+
+说不定还会被箱推小炎上。
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7216#       发表于 2020-4-26 19:19
+
+
+
+
+而且还是定好时间一起直播的联动，stf带头不仲啊
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7217#       发表于 2020-4-26 19:21
+
+
+
+
+vr的staff把ruki架在火上烧，败坏路人缘
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7218#       发表于 2020-4-26 19:25
+
+
+
+
+神他妈和四号机合唱，我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+syl：真就pubg教学啊，可是俺根本不玩啊，这可恶的现充<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7219#       发表于 2020-4-26 19:25
+
+
+
+
+御水这是在干嘛？这复盘不如现场开一把，下次直播再复盘，首播复盘录像？
+
+
+
+
+
+
+
+-----
+
+####  多余的动作  
+##### 7220#       发表于 2020-4-26 19:26
+
+
+
+
+为什么我看御水直播感觉这么想打他，难道他就是那种不装X就会死的人
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7221#       发表于 2020-4-26 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214266&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-26 19:14</a>
+
+ruki发预告整个杂谈十几分钟1w人气都没有，和新人撞车何必自取其辱呢
+
+这不是社内不仲我是不 ...</blockquote>
+这个御水人气也拉胯啊，感觉还没有昨天萨麦尔一半
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7222#       发表于 2020-4-26 19:27
+
+
+
+
+首播我都没看，等着看帕皇
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7223#       发表于 2020-4-26 19:28
+
+
+
+
+因为声音有点女性特攻+语气装逼+扬言联动mhr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7224#       发表于 2020-4-26 19:29
+
+
+
+
+再加一条和帕皇贴贴，气死我了
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7225#       发表于 2020-4-26 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上说不仲的，被打脸了
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7226#       发表于 2020-4-26 19:29
+
+
+
+
+不愧是弥宝楼，mhr这坎过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  植树淡季  
+##### 7227#       发表于 2020-4-26 19:32
+
+
+
+
+不说别的，联动mhr我就想把他扬了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bawula| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 7228#       发表于 2020-4-26 19:32
+
+
+
+
+这新人的皮看起来怎么这么像毛基，真的有女人喜欢吗
+
+
+
+
+
+
+
+-----
+
+####  多余的动作  
+##### 7229#       发表于 2020-4-26 19:35
+
+
+
+
+谁说的ruki撞新人首播是社内不仲，明明ru皇在新人首播的时候还在兢兢业业从大人气主播那里吸粉，扩大VR箱，这是多强的箱推力啊我感动得要哭了
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7230#       发表于 2020-4-26 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是硬核fps玩家，说不定后面男人看的还多一点。
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7231#       发表于 2020-4-26 19:36
+
+
+
+
+女人喜不喜欢不知道，就看s1老哥这咬牙切齿，vr神田预定来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7232#       发表于 2020-4-26 19:37
+
+
+
+
+毛基：但是男生就算了，我怕我忍不住揍你
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拳头真的硬了……
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7233#       发表于 2020-4-26 19:39
+
+
+
+
+这个杂谈节奏把握的挺好的
+
+
+
+
+
+
+
+-----
+
+####  铁木公  
+##### 7234#       发表于 2020-4-26 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214460&amp;ptid=1909283" target="_blank">daoyuan 发表于 2020-4-26 19:32</a>
+
+这新人的皮看起来怎么这么像毛基，真的有女人喜欢吗</blockquote>
+这也能叫毛基，你对毛基有什么误解吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7235#       发表于 2020-4-26 19:44
+
+
+
+
+看到有那么多老哥恨得咬牙切齿看来人还蛮不错的推了推了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7236#       发表于 2020-4-26 19:45
+
+
+
+
+确实有神田那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7237#       发表于 2020-4-26 19:48
+
+
+
+
+有啥不敢的，你s1就这几个人，就算跳起来打你看人家会怕吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AEmpire  
+##### 7238#       发表于 2020-4-26 19:49
+
+
+
+
+期待水宝和mhr的联动<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  多余的动作  
+##### 7239#       发表于 2020-4-26 19:50
+
+
+
+
+他要是敢和mhr联动我就再也不给他和miki打钱了，哦我本来就不打钱啊，没事了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7240#       发表于 2020-4-26 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214606&amp;ptid=1909283" target="_blank">fjm 发表于 2020-4-26 19:45</a>
+
+确实有神田那味儿了话说他想和mhr联动的话要做什么内容啊。双人声剧，他敢吗？合唱投稿，他敢吗？没 ...</blockquote>
+就这？要当神田好歹得来个线下联动吧
+
+
+
+
+
+
+
+-----
+
+####  十月鼠  
+##### 7241#       发表于 2020-4-26 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214658&amp;ptid=1909283" target="_blank">多余的动作 发表于 2020-4-26 19:50</a>
+
+他要是敢和mhr联动我就再也不给他和miki打钱了，哦我本来就不打钱啊，没事了 ...</blockquote>
+全新的顺劈姿势，学到了
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7242#       发表于 2020-4-26 19:51
+
+
+
+
+整活还得看你楼
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7243#       发表于 2020-4-26 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214651&amp;ptid=1909283" target="_blank">AEmpire 发表于 2020-4-26 19:49</a>
+
+期待水宝和mhr的联动</blockquote>
+我也期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7244#       发表于 2020-4-26 19:53
+
+
+
+
+跟国爱这种联动肯定是staff联络安排的吧，不知道怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7245#       发表于 2020-4-26 19:53
+
+
+
+
+为什么不问问mhr两大粉头
+
+沙漠之辰光和闪光罗伊呢
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7246#       发表于 2020-4-26 19:53
+
+
+
+
+别的不说，杂谈听的真的舒服
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7247#       发表于 2020-4-26 19:54
+
+
+
+
+御水首播有条不紊，杂谈也发挥的不错，大概率是个直播经验者
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7248#       发表于 2020-4-26 19:56
+
+
+
+
+水宝听我一句劝，和mhr联动多没意思，有时间找miki双排打**好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  多余的动作  
+##### 7249#       发表于 2020-4-26 19:57
+
+
+
+
+哇花留给御水打钱了，他们一定线下做过了吧，又有一个理由讨厌CN神田了呢好开心啊
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7250#       发表于 2020-4-26 19:57
+
+
+
+
+感觉这个人讲话节奏把握挺好的，听起来不怎么紧张，开场也很自然
+
+就是复盘PUBG开始一句话"小笨蛋“把我整的差点把手机扔出去，接着就把直播间关了
+
+这也太刻意了点，不说女粉喜不喜欢，以后打游戏还能维持这种形象？
+
+我倒是希望孟宝能多跟别人一起玩玩，问题是这兄弟看起来就是跟孟宝一点共同话题都没有的类型啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+顺便从头到尾都没见有人讨论的彩虹人式子姐才可能是接近弥宝的角色吧
+
+帕皇一看爱好就跟坛友截然不同
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| plllllum| + 1|小笨蛋和略略略差点把我送走|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 7251#       发表于 2020-4-26 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214591&amp;ptid=1909283" target="_blank">铁木公 发表于 2020-4-26 19:44</a>
+
+这也能叫毛基，你对毛基有什么误解吗</blockquote>
+纯云的毛基，脸看起来有那种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">兽脸
+
+
+
+
+
+
+
+-----
+
+####  疾风血誓  
+##### 7252#       发表于 2020-4-26 19:58
+
+
+
+
+御水看着还好，可惜我看fps头晕，就不能来个rts主播吗？
+
+
+
+
+
+
+
+-----
+
+####  空无阿冰  
+##### 7253#       发表于 2020-4-26 20:00
+
+
+
+
+敢和MHR联动?anti了
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7254#       发表于 2020-4-26 20:00
+
+
+
+<blockquote>daoyuan 发表于 2020-4-26 19:58
+纯云的毛基，脸看起来有那种感觉兽脸</blockquote>
+vr不是有真的毛基吗
+
+
+
+
+
+        

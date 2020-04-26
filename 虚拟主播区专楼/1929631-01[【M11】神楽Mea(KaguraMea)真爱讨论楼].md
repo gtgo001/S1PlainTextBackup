@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 16:08** 
+> ## **本文件最后更新于2020-04-26 20:09** 
 
 
 
@@ -3756,4 +3756,967 @@ lol高能时刻第三期，我这边找不到了</blockquote>
 
 
 
-                                          
+
+
+-----
+
+####  Rem-清曲  
+##### 215#       发表于 2020-4-26 16:22
+
+
+
+
+不全款直接冲一套?
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 216#       发表于 2020-4-26 16:26
+
+
+
+
+还婚房， 太限制人家自由了， 就不能男人一点送她一套房子， 给她一点自己的空间吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|证上写的是她的名字♥|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 217#       发表于 2020-4-26 16:40
+
+
+
+
+要什么自由，一起待在地下室里锁在一起天天那什么就行了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 218#       发表于 2020-4-26 17:00
+
+
+
+
+别说了，你们的录像记得分享到楼里一下<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 219#       发表于 2020-4-26 17:01
+
+
+
+
+新楼有一股石楠花的味道
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 220#       发表于 2020-4-26 17:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">麻可以给你们，介意我先从她嘴里套点消息出来吗。
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 221#       发表于 2020-4-26 17:07
+
+
+
+
+想了想还是不继续安排她了
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 222#       发表于 2020-4-26 17:27
+
+
+
+
+看到如月祝贺她15w，她反手一个但是你怎么不回我line。她好像不是第一次做这类事了，联动时候或者推特互动表现得关系好的人，她反手拆穿线下联动少反应慢，不知道是情商低还是巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 223#       发表于 2020-4-26 17:29
+
+
+
+
+反向营业也是一种营业
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 224#       发表于 2020-4-26 17:31
+
+
+
+
+不仲营业desu
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 225#       发表于 2020-4-26 17:32
+
+
+
+
+^ ^?
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 226#       发表于 2020-4-26 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213176&amp;ptid=1929631" target="_blank">往世雷书 发表于 2020-4-26 17:27</a>
+看到如月祝贺她15w，她反手一个但是你怎么不回我line。她好像不是第一次做这类事了，联动时候或者推特互动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是算节目效果的么
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 227#       发表于 2020-4-26 17:57
+
+
+
+
+要来了，不知道这次的唱法是怎样的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 228#       发表于 2020-4-26 17:59
+
+
+
+
+最近嗓子好了很多，应该还是不错的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 229#       发表于 2020-4-26 18:02
+
+
+
+ 本帖最后由 路人庚 于 2020-4-26 18:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在404频道暂时还看不见，点推特的转到404才看得见
+
+
+[https://www.youtube.com/watch?v=bTM49QdwMj0&amp;feature=youtu.be](https://www.youtube.com/watch?v=bTM49QdwMj0&amp;feature=youtu.be)
+
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 230#       发表于 2020-4-26 18:06
+
+
+
+
+这次的调音终于顶了一次
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 231#       发表于 2020-4-26 18:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 232#       发表于 2020-4-26 18:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">这像是通了气的声音，是调音的效果么？mea的歌回我大部分都是开的公放，很少细听
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 233#       发表于 2020-4-26 18:08
+
+
+
+
+怎么感觉bgm大人声小<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 234#       发表于 2020-4-26 18:08
+
+
+
+
+b也发了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 235#       发表于 2020-4-26 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么事到如今还有吐槽BGM声音大的，这人就好这一口，没办法
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 236#       发表于 2020-4-26 18:11
+
+
+
+
+感觉听不清就声音往大放往大放，最后耳朵疼<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 237#       发表于 2020-4-26 18:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听完了，这唱的也太软了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 238#       发表于 2020-4-26 18:12
+
+
+
+
+你去听听爱言叶，那首应该是人声最小的一个pv了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 239#       发表于 2020-4-26 18:16
+
+
+
+
+爱言叶没什么问题吧，感觉这首真的有些地方听不清<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+我的问题吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 240#       发表于 2020-4-26 18:19
+
+
+
+
+事到如今她开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 241#       发表于 2020-4-26 18:19
+
+
+
+ 本帖最后由 路人庚 于 2020-4-26 18:29 编辑 
+
+就是你的问题，爱言叶的bgm也不小啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，这唱法还是爱言叶系的唱法呢
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 242#       发表于 2020-4-26 18:23
+
+
+
+
+不是你的问题，bgm大过人声之前只要发歌就一定有人说，由于她本人就喜欢这种感觉，所以改变不了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 243#       发表于 2020-4-26 18:24
+
+
+
+
+这人声也太小了吧就像她在隔墙唱一样
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 244#       发表于 2020-4-26 18:27
+
+
+
+
+真的感觉mea的品味真的挺奇特的。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 245#       发表于 2020-4-26 18:30
+
+
+
+
+有点听不动，去拉拉EQ试试
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 246#       发表于 2020-4-26 18:32
+
+
+
+
+每次发歌都有人说bgm太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在奇妙的地方和mea达成了共识
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 247#       发表于 2020-4-26 18:32
+
+
+
+ 本帖最后由 2014720 于 2020-4-26 18:47 编辑 
+
+手机上好一点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+外星人组曲和爱言叶就像上单和诺手鳄鱼对线一样爽，这首像炼金在溜你
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 248#       发表于 2020-4-26 18:33
+
+
+
+
+不过至于吗……我觉得也很好听啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不能改变她的形状，那就去变成她的形状呗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 249#       发表于 2020-4-26 18:36
+
+
+
+
+不是每次的解决方式都是换个好些的耳机么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 250#       发表于 2020-4-26 18:48
+
+
+
+
+没有好耳机就公放吧。带着耳机我耳朵都要聋了，公放效果还不错的。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 251#       发表于 2020-4-26 18:50
+
+
+
+
+不行，她人声貌似加的东西有点多，其实拉大了倒不如伴奏大点（也可能我太菜）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 252#       发表于 2020-4-26 18:50
+
+
+
+
+《纯度》<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/26/185021fj00l5kl02o3i3pj.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (14.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 18:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 253#       发表于 2020-4-26 18:51
+
+
+
+
+我觉得还好啊，这bgm比那种爱言叶小多了，可能我是头戴式吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+长发咩可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 254#       发表于 2020-4-26 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214039&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-26 18:51</a>
+我觉得还好啊，这bgm比那种爱言叶小多了，可能我是头戴式吧
+长发咩可爱
+ ...</blockquote>
+是，还是长发好
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 255#       发表于 2020-4-26 19:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我觉得很好听啊 爱了
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 256#       发表于 2020-4-26 19:11
+
+
+
+
+又是混ぜ郎，欣赏不来，感觉不如歌回听的
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 257#       发表于 2020-4-26 19:20
+
+
+
+
+挺好，这首歌是用来感谢粉丝的，不管怎样是份心意
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 258#       发表于 2020-4-26 19:33
+
+
+
+<blockquote>路人庚 发表于 2020-4-26 18:50
+《纯度》</blockquote>
+这老哥到现在还应援着mzr，就很恐怖。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 259#       发表于 2020-4-26 19:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然不知道是mix的爱好还是你麻的爱好，但是你麻私下就没叫过第二个人混过她的歌
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 260#       发表于 2020-4-26 19:37
+
+
+
+
+那还是不止的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 261#       发表于 2020-4-26 19:45
+
+
+
+
+我还去看了看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 262#       发表于 2020-4-26 19:50
+
+
+
+
+怎么你们都觉得人声小.Jpg
+
+
+我没听出来啊）
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 263#       发表于 2020-4-26 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214028&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-26 18:50</a>
+
+《纯度》</blockquote>
+而且还继续推着bs，这粘度真厉害
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 264#       发表于 2020-4-26 20:01
+
+
+
+[https://www.youtube.com/watch?v=bCV4hqHaPUY](https://www.youtube.com/watch?v=bCV4hqHaPUY)
+
+开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 265#       发表于 2020-4-26 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214667&amp;ptid=1929631" target="_blank">小走 发表于 2020-4-26 19:50</a>
+而且还继续推着bs，这粘度真厉害</blockquote>
+其实我挺好奇这种，自己推的人体量大了几十上百倍自己会怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单纯RPG升级的感觉？会不会有别的什么想法
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 266#       发表于 2020-4-26 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214782&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-26 20:01</a>
+https://www.youtube.com/watch?v=bCV4hqHaPUY
+
+开了</blockquote>
+草不是10点么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 267#       发表于 2020-4-26 20:04
+
+
+
+
+抽抽抽<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+syl刚听了一遍又变的好听了<img src="https://static.saraba1st.com/image/smiley/face2017/228.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 268#       发表于 2020-4-26 20:07
+
+
+
+
+又是在犬山直播间送流量，我还指望她在自己直播间涨涨粉呢，现在这情况今年想100W根本没戏
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 269#       发表于 2020-4-26 20:08
+
+
+
+
+耳機鑑定曲，聽得清最後那段才能算是好耳機
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 270#       发表于 2020-4-26 20:09
+
+
+
+
+没就没呗，为啥这么想100w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
