@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 20:01** 
+> ## **本文件最后更新于2020-04-26 22:01** 
 
 
 
@@ -23029,10 +23029,11 @@ ruki发预告整个杂谈十几分钟1w人气都没有，和新人撞车何必�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空无阿冰| + 1|气死我了|
 | bawula| + 1||
 
 
@@ -23520,4 +23521,2692 @@ vr不是有真的毛基吗
 
 
 
-        
+
+
+-----
+
+####  aucun  
+##### 7255#       发表于 2020-4-26 20:01
+
+
+
+
+明天6点播，不是和VR跑团撞了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7256#       发表于 2020-4-26 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213733&amp;ptid=1909283" target="_blank">HSNYKE/EKPL 发表于 2020-4-26 18:22</a>
+
+虽说没这传统， 但这时候发预告，该说不愧是Ru皇吗
+
+社外联动没法避免，那Staff咋想的 ...</blockquote>
+因为staff要求预热绊爱联动
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7257#       发表于 2020-4-26 20:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214750&amp;ptid=1909283" target="_blank">疾风血誓 发表于 2020-4-26 19:58</a>
+
+御水看着还好，可惜我看fps头晕，就不能来个rts主播吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">RTS主播高速切屏怕不是劝退一群人
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7258#       发表于 2020-4-26 20:10
+
+
+
+
+紫纪老北京研究生了
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7259#       发表于 2020-4-26 20:10
+
+
+
+
+好狠，VR挖掘机？
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7260#       发表于 2020-4-26 20:16
+
+
+
+
+没觉出来是北京的
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7261#       发表于 2020-4-26 20:17
+
+
+
+
+还蛮有意思的嘛紫纪
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7262#       发表于 2020-4-26 20:17
+
+
+
+
+紫纪之后可以在直播间公开斗虫吗，我支持哦
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7263#       发表于 2020-4-26 20:20
+
+
+
+
+紫纪的这个调查有点意思，这就是人类观察的美妙之处吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7264#       发表于 2020-4-26 20:23
+
+
+
+
+紫纪姐姐能统计一下s1顺劈弥宝的次数吗？从中可以得知s1老哥的什么心理呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7265#       发表于 2020-4-26 20:24
+
+
+
+
+感觉有点pro啊
+
+等一个紫纪S1账号被挖爆火
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7266#       发表于 2020-4-26 20:24
+
+
+
+
+数字好，关注数字的没有坏人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7267#       发表于 2020-4-26 20:25
+
+
+
+
+紫纪你会看s1吧，会吧会吧
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 7268#       发表于 2020-4-26 20:25
+
+
+
+
+铁血虹人分到了最差的一张皮，vr终于领悟到沾虹是debuff了？
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7269#       发表于 2020-4-26 20:25
+
+
+
+
+泥潭对数字才是真爱呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7270#       发表于 2020-4-26 20:26
+
+
+
+
+能来个特定楼友嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7271#       发表于 2020-4-26 20:28
+
+
+
+
+这么爱数字，肯定是好人。
+
+推了推了，紫妃姐姐快做一个VR 3月人气斗虫视频吧
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7272#       发表于 2020-4-26 20:29
+
+
+
+
+紫纪这PPT做的还不错，首播文案用心了，不过看起来不吸粉啊，舰长8个人vrp就占了4个，也太惨了
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7273#       发表于 2020-4-26 20:31
+
+
+
+
+紫纪姐姐能不能观察一下b综<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7274#       发表于 2020-4-26 20:34
+
+
+
+
+紫纪对s1特攻
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7275#       发表于 2020-4-26 20:35
+
+
+
+
+是个神仙啊，爱了爱了，现在我也是姐控了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 7276#       发表于 2020-4-26 20:35
+
+
+
+
+我看不懂，这是个什么人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7277#       发表于 2020-4-26 20:37
+
+
+
+
+内容、内容
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7278#       发表于 2020-4-26 20:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做游戏斗虫系vup，我宣布我不推弥宝推阿姨了
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7279#       发表于 2020-4-26 20:41
+
+
+
+
+期待和谜叔联动
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7280#       发表于 2020-4-26 20:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">做内容的，爱了爱了，不过做内容太花时间，而且不是声线比较日常，吸粉可能比较难吧。
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7281#       发表于 2020-4-26 20:45
+
+
+
+
+紫纪首播也太有内容了吧，爱了爱了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7282#       发表于 2020-4-26 20:45
+
+
+
+
+事实证明肉鸽like游戏才是直播效果之王，还不快快放弃ow投入独立游戏的怀抱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7283#       发表于 2020-4-26 20:46
+
+
+
+
+紫纪首播好玩啊
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7284#       发表于 2020-4-26 20:47
+
+
+
+
+虽然内容系管人很好，但是现在大环境就是做内容死路一条。
+
+紫纪首播很有意思，但是真的不吸粉，看以后的直播效果了
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7285#       发表于 2020-4-26 20:47
+
+
+
+ 本帖最后由 不吃布丁的宫子 于 2020-4-26 20:50 编辑 
+
+草，是个铁血虹人，单推柴犬，快快和hsm打一场我等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7286#       发表于 2020-4-26 20:49
+
+
+
+
+不看VR只看本社 草 太铁血了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  田中普尼惠  
+##### 7287#       发表于 2020-4-26 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沒有什麽特別喜歡的vr前輩
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7288#       发表于 2020-4-26 20:49
+
+
+
+
+不用打了，紫纪最喜欢hsm了
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 7289#       发表于 2020-4-26 20:50
+
+
+
+
+铁血虹人 内容为王<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7290#       发表于 2020-4-26 20:51
+
+
+
+
+啊，真单推了。
+
+2020年还要做内容的管人，铁血彩虹人没看VR。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7291#       发表于 2020-4-26 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哦吼 入VR前不看VR这点
+
+是个铁血虹人
+
+希望不要是仓鼠那样的心机女生就好了
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7292#       发表于 2020-4-26 20:52
+
+
+
+
+这就是铁血虹人吗 i了i了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 7293#       发表于 2020-4-26 20:53
+
+
+
+
+你vr这群底边有什么看的必要嘛
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7294#       发表于 2020-4-26 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫纪 你好强大
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7295#       发表于 2020-4-26 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">学生党约等于时间少，做内容的，不会唱歌，声音不是萌音，涨粉情况和收益情况严重不看好啊，但是还是希望做内容的v能过活下来。
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7296#       发表于 2020-4-26 20:56
+
+
+
+
+来了来了，SSR来了。
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7297#       发表于 2020-4-26 20:57
+
+
+
+
+平时直播肯定不是主攻今天首播的内容嘛，也说了主要播播肉鸽之类的，期待内容量还是省省<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7298#       发表于 2020-4-26 20:57
+
+
+
+
+看颜文字感觉在上匿名版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7299#       发表于 2020-4-26 20:57
+
+
+
+
+帕皇不要输给紫纪姐姐啊
+
+
+
+
+
+
+
+-----
+
+####  Dystopia.  
+##### 7300#       发表于 2020-4-26 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">又是一个管人粉丝出道吗
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7301#       发表于 2020-4-26 21:01
+
+
+
+
+皮太太太太太重要了，没开播的老帕舰长都比紫纪多了
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7302#       发表于 2020-4-26 21:04
+
+
+
+
+帕皇唱的有点拉啊，紧张了
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7303#       发表于 2020-4-26 21:04
+
+
+
+ 本帖最后由 H2DR 于 2020-4-26 21:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 7304#       发表于 2020-4-26 21:04
+
+
+
+
+我被养gachi气声小视频欺骗了 这歌唱得好御 i了i了
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7305#       发表于 2020-4-26 21:04
+
+
+
+
+pax没开混音能唱成这样，歌力强强
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7306#       发表于 2020-4-26 21:05
+
+
+
+
+紫纪配这皮可惜了
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7307#       发表于 2020-4-26 21:06
+
+
+
+
+这歌力，是不是跟视频里的差别有点大。
+
+这魂之轮回没味道呀
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7308#       发表于 2020-4-26 21:07
+
+
+
+
+满满的紧张感
+
+给我一种高配有加的感觉
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7309#       发表于 2020-4-26 21:07
+
+
+
+
+明显是紧张了，气不稳声音也有点抖
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7310#       发表于 2020-4-26 21:08
+
+
+
+
+草，楼上说高配有加我说怎么说话有既视感，有加唱歌也不错的
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7311#       发表于 2020-4-26 21:10
+
+
+
+
+pax开场的礼物就已经比紫纪多了吧，数字厨输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7312#       发表于 2020-4-26 21:10
+
+
+
+ 本帖最后由 aucun 于 2020-4-26 21:12 编辑 
+
+第一次紧张了没关系，比miki好多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+图一乐的syl<img src="https://p.sda1.dev/0/84c318cdbb36b4f19a1e71227b6eaccc/IMG_3A85D1DBEBC7962649A1680BDC9CCA10.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7313#       发表于 2020-4-26 21:10
+
+
+
+
+只能说帕皇虽然紧张了，输出还是打满了
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7314#       发表于 2020-4-26 21:11
+
+
+
+
+pax有点冒失娘的感觉
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7315#       发表于 2020-4-26 21:11
+
+
+
+
+跟miki比太恶意了，艾因首播开场唱歌也紧张，正常<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7316#       发表于 2020-4-26 21:12
+
+
+
+
+声音可以，说话清楚，台本也准备的不错，可以了
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7317#       发表于 2020-4-26 21:12
+
+
+
+
+这么一说有点那味了
+
+
+
+
+
+
+
+-----
+
+####  秋月逍遥  
+##### 7318#       发表于 2020-4-26 21:12
+
+
+
+
+帕皇紧张疯了
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7319#       发表于 2020-4-26 21:12
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-26 21:14 编辑 
+
+比起皮，声音问题更大...八期皮也没哪个好看的
+
+式子姐这口音就重的离谱，如果是个男人京腔可能还是加分项，女人，尤其是这种声线的女人不太行
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7320#       发表于 2020-4-26 21:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 楼上厉害，一张嘴就觉得像VR的谁，你这么一说确实很有有加内味
+
+
+
+
+
+
+
+-----
+
+####  极光A°  
+##### 7321#       发表于 2020-4-26 21:13
+
+
+
+
+帕皇的的确确可以立了
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7322#       发表于 2020-4-26 21:13
+
+
+
+
+唉，替紫姨不开心。这皮给紫姨多好
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7323#       发表于 2020-4-26 21:14
+
+
+
+ 本帖最后由 aucun 于 2020-4-26 21:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215537&amp;ptid=1909283" target="_blank">雅朵莉雀 发表于 2020-4-26 21:12</a>
+比起皮，声音问题更大...八期皮也没哪个好看的
+
+式子姐这口音就重的离谱，如果是个男人京腔可能还是加分项， ...</blockquote>
+确实，看你这么一说感觉紫纪现实感太强了
+syl，紫纪跟这皮绝对不搭
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7324#       发表于 2020-4-26 21:16
+
+
+
+
+好起来了，帕皇好起来了
+
+
+
+
+
+
+
+-----
+
+####  ThreeStones  
+##### 7325#       发表于 2020-4-26 21:16
+
+
+
+
+那 唱歌吧（阿菜既视感）
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7326#       发表于 2020-4-26 21:16
+
+
+
+
+歌是真的好听
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7327#       发表于 2020-4-26 21:16
+
+
+
+
+紫纪的皮给谁能行啊？给女性八期生版主？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7328#       发表于 2020-4-26 21:16
+
+
+
+
+今天的观感整体比昨天好
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7329#       发表于 2020-4-26 21:17
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-26 21:19 编辑 
+
+龟龟生日回，安堂不在场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+省一楼，PV跟现场的歌力从来都是2个位面的事。哦柠哥这种除外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7330#       发表于 2020-4-26 21:17
+
+
+
+
+第二首好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7331#       发表于 2020-4-26 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乳菜了，现在菜不是以前的数虐了
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7332#       发表于 2020-4-26 21:18
+
+
+
+
+帕皇登基
+
+声音清楚，歌力很强，唱到现在甚至没有开混响
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7333#       发表于 2020-4-26 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">首播就连续唱歌，有点担心后面没有直播的内容啊，但是国内好像比404更喜欢歌势一点，而且人也足够可爱，些许看好。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7334#       发表于 2020-4-26 21:18
+
+
+
+
+帕皇真的好紧张啊…
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7335#       发表于 2020-4-26 21:18
+
+
+
+
+声音好就可以为所欲为吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">目测帕皇的杂谈力是全社垫底梯队
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7336#       发表于 2020-4-26 21:18
+
+
+
+ 本帖最后由 曜不能停 于 2020-4-26 21:21 编辑 
+
+开混响了吧，刚才不还说混响是不是开的有点小，问需不需要开大点
+
+ps：原来真的没有开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 7337#       发表于 2020-4-26 21:19
+
+
+
+
+这两个压轴都不错，如果帕花再搞搞，能不能起飞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7338#       发表于 2020-4-26 21:19
+
+
+
+
+首播就连续唱歌
+
+后面直播不知道聊什么只能唱歌
+
+近有VR郡主
+
+远有数虐阿菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7339#       发表于 2020-4-26 21:19
+
+
+
+
+昨天人气高啊，两个都是20多万
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7340#       发表于 2020-4-26 21:20
+
+
+
+
+trust you，梦回2010啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 7341#       发表于 2020-4-26 21:20
+
+
+
+
+帕皇这种是不是在养gachi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱了
+
+
+
+
+
+
+
+-----
+
+####  秋月逍遥  
+##### 7342#       发表于 2020-4-26 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215624&amp;ptid=1909283" target="_blank">Fakerの幻影 发表于 2020-4-26 21:20</a>
+
+帕皇这种是不是在养gachi爱了</blockquote>
+单纯感觉只是太紧张加上杂谈力低而已
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7343#       发表于 2020-4-26 21:22
+
+
+
+
+姐姐虹粉够硬核<img src="https://p.sda1.dev/0/bf8c1f86a9fd6f6bdc130cd7b2f5a993/IMG_EB48F6C2676A16C28A7C9FFE21B40E7C.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7344#       发表于 2020-4-26 21:23
+
+
+
+
+明显是的，“不经意间”的装傻，当然效果很好
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7345#       发表于 2020-4-26 21:23
+
+
+
+
+面部捕捉可以看到pax紧张得向上看的细节  可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 7346#       发表于 2020-4-26 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">帕皇脑控力确实强
+
+
+
+
+
+
+
+-----
+
+####  CCCCCC梵  
+##### 7347#       发表于 2020-4-26 21:26
+
+
+
+
+SSR它来了？
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7348#       发表于 2020-4-26 21:26
+
+
+
+
+pax的面部捕捉很强啊，眼神向上看都捕捉出来了
+
+皮和魂合一，下一代vr扛把子就是pax了
+
+
+
+
+
+
+
+-----
+
+####  ThreeStones  
+##### 7349#       发表于 2020-4-26 21:27
+
+
+
+
+都是偶像化的高达 根本不是真正的钢之魂
+
+但太可爱了 i了
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7350#       发表于 2020-4-26 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我正式从版主单推人变成PAX单腿人辣
+
+版主？臭男人，不爱的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7351#       发表于 2020-4-26 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我弥宝vr第一萌音脑控主播也要让位了吗，枯了。
+
+syl，紫纪工地日语也能d这么多本社的么，彩虹熟肉率没那么高吧。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7352#       发表于 2020-4-26 21:28
+
+
+
+
+脑控的秘诀是不是小声哼，哼啊<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">我已经不行辣
+
+
+
+
+
+
+
+-----
+
+####  田中普尼惠  
+##### 7353#       发表于 2020-4-26 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人造人派駱駝 喜歡聊蘿蔔 唱歌好聼 i了i了
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 7354#       发表于 2020-4-26 21:29
+
+
+
+
+臭女人哪有版主韵味十足回味悠长，你会回来的胖友
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7355#       发表于 2020-4-26 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然是虚假的钢之魂，但是人可爱，歌好听。
+
+syl，是不是又楼层bug了。
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 7356#       发表于 2020-4-26 21:29
+
+
+
+
+那我就是版主pax双推人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7357#       发表于 2020-4-26 21:30
+
+
+
+
+果然不懂s1老哥的口味，帕酱这直播好虚无啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7358#       发表于 2020-4-26 21:31
+
+
+
+
+因为做内容死路一条啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7359#       发表于 2020-4-26 21:31
+
+
+
+
+弥宝第一萌音脑控主播要让位了，帕皇登基，帕神降临
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7360#       发表于 2020-4-26 21:31
+
+
+
+
+s1老哥看到看萝卜的女生就会兴奋吗，pax也是蘑菇人也是
+
+
+
+
+
+
+
+-----
+
+####  便秘的猫  
+##### 7361#       发表于 2020-4-26 21:31
+
+
+
+
+pax可爱，已经取关miki了
+
+
+
+
+
+
+
+-----
+
+####  ThreeStones  
+##### 7362#       发表于 2020-4-26 21:32
+
+
+
+
+虚无怎么了 当小狼这么久了就爱这种的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 7363#       发表于 2020-4-26 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215702&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-26 21:27</a>
+
+我弥宝vr第一萌音脑控主播也要让位了吗，枯了。
+
+syl，紫纪工地日语也能d这么多本社的么，彩虹熟肉率 ...</blockquote>
+听的懂说不来很正常
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7364#       发表于 2020-4-26 21:32
+
+
+
+
+真看不懂你楼老哥的口味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7365#       发表于 2020-4-26 21:32
+
+
+
+
+这杂谈力也太弱了吧
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 7366#       发表于 2020-4-26 21:34
+
+
+
+
+别奶了，vr又好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7367#       发表于 2020-4-26 21:34
+
+
+
+
+帕皇不是还有一手画画吗，到时候画画加唱歌，整就完事了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 7368#       发表于 2020-4-26 21:34
+
+
+
+
+萌音，被弹幕带着跑
+
+
+楼友是看到了当年miki的影子
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7369#       发表于 2020-4-26 21:35
+
+
+
+
+这比弥宝首播还虚无得多，尬度倒是有麦宝一半水准。。。投胎到HOLOCN更合适点。
+
+
+草，原来安堂在看PAX，因缺思厅。
+
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7370#       发表于 2020-4-26 21:35
+
+
+
+
+要是直播内容就画画加唱歌，能出vr小圈子就见鬼了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7371#       发表于 2020-4-26 21:37
+
+
+
+
+满场漫长的35分钟，还有接近半个小时没有其它环节的话实在不知道该怎么撑过去<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7372#       发表于 2020-4-26 21:37
+
+
+
+
+你们又开始捧杀了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7373#       发表于 2020-4-26 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215722&amp;ptid=1909283" target="_blank">l778899 发表于 2020-4-26 21:29</a>
+
+臭女人哪有版主韵味十足回味悠长，你会回来的胖友</blockquote>
+暗讽版主是老太婆的裹脚布，举报了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7374#       发表于 2020-4-26 21:39
+
+
+
+
+前面吹后面婊，pax在s1能不能活我已经看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 7375#       发表于 2020-4-26 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">看到现在感觉就是vr修女阿。。。真的很亮眼吗
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 7376#       发表于 2020-4-26 21:40
+
+
+
+
+因为仓鼠，我已经对虹粉有点梁木了，为什么又有虹粉，VR是专门搞虹粉再生产的吗
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7377#       发表于 2020-4-26 21:40
+
+
+
+
+这首播什么时候结束啊，就无尽的被弹幕带着走。有看的价值吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+不是，我不是说弥宝，弥人不要骂我
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7378#       发表于 2020-4-26 21:42
+
+
+
+
+帕皇啊，你这也太没话说了吧，我哭了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 7379#       发表于 2020-4-26 21:43
+
+
+
+
+是我的错觉吗，pax说话也会嗯一下嗯一下的
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7380#       发表于 2020-4-26 21:43
+
+
+
+
+杂谈力弱鶸加没准备台本就是这样了，所以以后画画会怎么播呢？画画基本上就是杂谈了
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7381#       发表于 2020-4-26 21:43
+
+
+
+
+会唱歌的miki来了，我愿称之为s1特攻
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7382#       发表于 2020-4-26 21:43
+
+
+
+
+后面估计再唱首歌就结束了，
+帕皇啊帕皇啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+我还是相信pax能进化成帕皇的<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 7383#       发表于 2020-4-26 21:45
+
+
+
+ 本帖最后由 daoyuan 于 2020-4-26 21:48 编辑 
+
+这帕克斯说到花留翻来覆去就可爱，好人，我暂且蒙在鼓里<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，其他三个倒是说的生动
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7384#       发表于 2020-4-26 21:45
+
+
+
+ 本帖最后由 aucun 于 2020-4-26 21:47 编辑 
+
+风怒了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+回去肝bcr了
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7385#       发表于 2020-4-26 21:46
+
+
+
+
+一边凹深渊一边听感觉良好，说明至少声音听着还蛮舒服<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 7386#       发表于 2020-4-26 21:47
+
+
+
+
+你楼好球带真怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7387#       发表于 2020-4-26 21:47
+
+
+
+ 本帖最后由 雅朵莉雀 于 2020-4-26 21:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你在说什么啊，大家最喜欢的弥宝不就是虹人吗
+
+就算讨厌虹人也不要讨厌弥宝
+
+
+亏得她说喜欢shiba和tomoe，稍微挽回了一点好感，要是再来整一套绿仙叶师傅我就真的要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7388#       发表于 2020-4-26 21:47
+
+
+
+ 本帖最后由 kabusei 于 2020-4-26 21:48 编辑 
+
+怎么办pax太清楚太单纯了   万一被御水骗了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7389#       发表于 2020-4-26 21:48
+
+
+
+
+从pax开始搞同期bg营业就知道s1老哥吹错人了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+原来我也是s1老哥啊？那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7390#       发表于 2020-4-26 21:49
+
+
+
+
+转歌回了转歌回了转歌回了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7391#       发表于 2020-4-26 21:49
+
+
+
+
+草，设闹钟发生日快乐，好tm像我一个现充播音系同学啊，御水的形象更加丰满了，是打游戏很好的现充，岂可休<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ameyu  
+##### 7392#       发表于 2020-4-26 21:49
+
+
+
+
+首播就一转歌回的之前有过么
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7393#       发表于 2020-4-26 21:49
+
+
+
+
+不开玩笑，我觉得PAX跟麦宝挺般配的，风格上。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7394#       发表于 2020-4-26 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吹和婊不就一念之间的事情，不要太在意
+
+
+
+
+
+
+
+-----
+
+####  wsifan  
+##### 7395#       发表于 2020-4-26 21:50
+
+
+
+
+感觉像是miki和mahiru的混合体
+
+
+
+
+
+
+
+-----
+
+####  ThreeStones  
+##### 7396#       发表于 2020-4-26 21:50
+
+
+
+
+终于唱歌了 我差点就把直播关了
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7397#       发表于 2020-4-26 21:50
+
+
+
+ 本帖最后由 aucun 于 2020-4-26 21:52 编辑 
+
+砖石裂痕<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">，拉胯了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7398#       发表于 2020-4-26 21:50
+
+
+
+
+是不是高配有加不知道，我感觉像是不偶像特化的常识人+皮level up版本的mhr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7399#       发表于 2020-4-26 21:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">会唱部长的歌，我先+点分。
+
+做内容死路一条，说不定只是可爱会唱歌就能起来呢，说不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ocyashiroi  
+##### 7400#       发表于 2020-4-26 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215939&amp;ptid=1909283" target="_blank">Ameyu 发表于 2020-4-26 21:49</a>
+
+首播就一转歌回的之前有过么</blockquote>
+有 大家最爱的仓鼠
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 7401#       发表于 2020-4-26 21:51
+
+
+
+
+我眼里有梁木了，pax选的这几首歌原唱太优秀了，我听不出歌力来
+
+
+
+
+
+
+
+-----
+
+####  夕才  
+##### 7402#       发表于 2020-4-26 21:51
+
+
+
+
+同样是虚无捡弹幕，不如去看底边，至少捡的弹幕是你发的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7403#       发表于 2020-4-26 21:52
+
+
+
+
+感觉很少人说像mhr的
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7404#       发表于 2020-4-26 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那看来确实是融合了几个特点的 人造人
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7405#       发表于 2020-4-26 21:52
+
+
+
+ 本帖最后由 plllllum 于 2020-4-26 21:53 编辑 
+
+和麦宝一致啊，眼瘸了
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7406#       发表于 2020-4-26 21:53
+
+
+
+ 本帖最后由 lxccsnm 于 2020-4-26 21:57 编辑 
+
+首播60多舰长，帕皇会在争议中成长吗
+
+
+
+
+
+
+
+-----
+
+####  lkciub  
+##### 7407#       发表于 2020-4-26 21:53
+
+
+
+
+mhr不是这个气质，除了这个嗯嗯嗯有点像被弥宝传染的mhr
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7408#       发表于 2020-4-26 21:54
+
+
+
+
+mhr直播时给人的距离感完全就不是一个唱见的感觉，硬说pax更像hsm
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7409#       发表于 2020-4-26 21:55
+
+
+
+
+不是指气质，唉不知道聊什么了 我们还是来唱歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7410#       发表于 2020-4-26 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总体看下来，直播确实太青涩了，这个选曲，原唱都太强了，管人扬长避短的还是多一点。
+
+syl，听到钻石裂痕顺便想到may'n在阿b开官号了，球球大家去关注一下，经常发弹唱的。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7411#       发表于 2020-4-26 21:56
+
+
+
+
+这个聊不下去就一转唱歌⑧还不够mhr吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 7412#       发表于 2020-4-26 21:58
+
+
+
+
+帕皇这杂谈既“real”又业余，我觉得更像一果
+
+目前可见的优点都在硬件上，已经足够在数字上取胜了
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7413#       发表于 2020-4-26 21:58
+
+
+
+ 本帖最后由 曜不能停 于 2020-4-26 22:00 编辑 
+
+mhr明显是没准备在直播上深耕的人，问题是看mhr的有谁在意着一点呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，而且pax虽然杂谈能力不行，但是前两首后一首明显是安排好的，哪里来的聊不下去一转歌回
+
+
+
+
+
+
+
+-----
+
+####  空无阿冰  
+##### 7414#       发表于 2020-4-26 21:59
+
+
+
+
+PAX西米露混合体说 三位一体必成女皇!
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 7415#       发表于 2020-4-26 22:00
+
+
+
+
+总觉得很多管人的高音部分过于浑厚，像是在唱美声，异质感特别严重，听不来这种风格
+
+有专业人士解析下吗
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7416#       发表于 2020-4-26 22:00
+
+
+
+
+vr首播舰长最多的v<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  

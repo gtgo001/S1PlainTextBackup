@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 20:08** 
+> ## **本文件最后更新于2020-04-26 22:08** 
 
 
 
@@ -9665,7 +9665,7 @@ holo这个恭请贵安新节目是不是专门给mrr赏饭的</blockquote>
 <img src="https://img.saraba1st.com/forum/202004/26/200420yfxxxk3h12xovzhx.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EWhs5BDWsAY_coP.jpg</strong> (106.2 KB, 下载次数: 0)
+<strong>EWhs5BDWsAY_coP.jpg</strong> (106.2 KB, 下载次数: 1)
 
 下载附件
 
@@ -9709,4 +9709,1241 @@ holo这个恭请贵安新节目是不是专门给mrr赏饭的</blockquote>
 
 
 
-                                 
+
+
+-----
+
+####  シナモンロール  
+##### 9509#       发表于 2020-4-26 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214840&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-4-26 20:07</a>
+颜值一般吧，但是胸很大</blockquote>
+咿，我好了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9510#       发表于 2020-4-26 20:10
+
+
+
+
+皇女颜值还行吧，反正我可以。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9511#       发表于 2020-4-26 20:12
+
+
+
+
+反正铲楼都亡了，你们不能直接把图发这里吗
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9512#       发表于 2020-4-26 20:14
+
+
+
+
+直接发出来+1
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9513#       发表于 2020-4-26 20:15
+
+
+
+
+直接发出来+2
+
+
+
+
+
+
+
+-----
+
+####  北極海航路  
+##### 9514#       发表于 2020-4-26 20:17
+
+
+
+
+splatoon一万年不玩了 现在x什么水平？
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 9515#       发表于 2020-4-26 20:17
+
+
+
+
+
+不是B站都有过前世录像的嘛。。まかだみあ
+
+
+syl，不知道为啥谷歌图片搜まかだみあ出来的第二张图片是张美得像白麻的山本彩，还是个孟加拉语的推特账号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/201521h2idp2pogptt6b6i.png" referrerpolicy="no-referrer">
+
+
+<strong>mia_kao.png</strong> (276.44 KB, 下载次数: 2)
+
+下载附件
+
+2020-4-26 20:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9516#       发表于 2020-4-26 20:17
+
+
+
+[https://www.youtube.com/watch?v=XEYPcdqRxOk](https://www.youtube.com/watch?v=XEYPcdqRxOk)
+
+Paradise Lost - Covered by YuNi【茅原実里】
+
+
+candee撤了后太子就归a8这边了，这次老爱独立出去不知道有没有啥影响的
+
+另外太子今年以来的歌都标注了mv制作和mix的，以前都是自己mix，乙女丸做mv，乙女丸不会也跑路了吧......
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9517#       发表于 2020-4-26 20:18
+
+
+
+
+铲楼的目的就是做集合方便你我<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北極海航路  
+##### 9518#       发表于 2020-4-26 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这张戴口罩的皇女特定照不是刚出道就有了吗...
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 9519#       发表于 2020-4-26 20:21
+
+
+
+
+太子现在归a8了吗？candee官网上不是还挂着嘛。。。。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9520#       发表于 2020-4-26 20:21
+
+
+
+[https://www.youtube.com/watch?v=8vQoQWx7kI4](https://www.youtube.com/watch?v=8vQoQWx7kI4)
+
+【うちで過ごそう】オススメの作品紹介してもらったよ！【富士葵】#100文字プレゼン #おうちって楽しい
+
+
+找了一帮人每个人用100个字推荐一部片或者漫画，大葵这人缘挺好啊
+
+最傻的是空妈，居然喜欢看转生史莱姆<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/202128ubg6u566c6unwnib.jpg" referrerpolicy="no-referrer">
+
+
+<strong>100.jpg</strong> (490.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 20:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9521#       发表于 2020-4-26 20:21
+
+
+
+
+前面看到说二期生粉丝重复度的问题，本来用userlocal看的，其他四人都正常但aqua排第一是aki，感觉是数据没怎么更新...
+
+用whotwi看了下，因为vtuber有转推fan art之类的习惯，分析出来经常带一堆粉丝，手动去掉了一下，只留了V和自己的画师，和官号
+
+看了前四个本想说没什么太特别的，然后看到choco<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/201935xihw9szw9z2s2mhz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2nd.jpg</strong> (424.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 20:19 上传
+
+
+
+
+
+
+
+标准是说推特上提到的比例，但感觉这算法BUG也蛮多的（比如莫名其妙的油土鳖号），仅供参考
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 9522#       发表于 2020-4-26 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214957&amp;ptid=1924531" target="_blank">北極海航路 发表于 2020-4-26 20:20</a>
+
+这张戴口罩的皇女特定照不是刚出道就有了吗...</blockquote>
+对啊，所以我也好奇为啥这么多人要照片，皇女应该算是最好特的V之一了，随便一搜就有了。。我倒是想伸手求别人特个口了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深林幽泉  
+##### 9523#       发表于 2020-4-26 20:25
+
+
+
+
+我还以为特到啥了，这老照片又看不见脸，颜值怎么评价啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 9524#       发表于 2020-4-26 20:27
+
+
+
+
+说这么热闹还以为有了新特，结果还是陈年老照<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  swordofsoul1  
+##### 9525#       发表于 2020-4-26 20:32
+
+
+
+
+阿望也要玩村民抽卡了……
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9526#       发表于 2020-4-26 20:37
+
+
+
+
+😯一只萌也开直播了啊
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 9527#       发表于 2020-4-26 20:46
+
+
+
+<blockquote>tiro_finale 发表于 2020-4-26 20:21
+前面看到说二期生粉丝重复度的问题，本来用userlocal看的，其他四人都正常但aqua排第一是aki，感觉是数据没 ...</blockquote>
+粉丝重合度竟然能达到百分之百？
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 9528#       发表于 2020-4-26 20:52
+
+
+
+
+伊織もえ同接也有近2000啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9529#       发表于 2020-4-26 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47214995&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-4-26 20:23</a>
+
+对啊，所以我也好奇为啥这么多人要照片，皇女应该算是最好特的V之一了，随便一搜就有了。。我倒是想伸手 ...</blockquote>
+之前综合整理表里有，过程没有（我也好奇）
+[https://twitter.com/amami_kokoa](https://twitter.com/amami_kokoa)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 9530#       发表于 2020-4-26 21:02
+
+
+
+<blockquote>包之沐白 发表于 2020-4-26 19:24
+“春日望”保护性注册的id还没移交，别人脚本抢注咋办
+
+那个号能有8.5万粉也是离谱
+
+</blockquote>
+有条件的话，或许她们可以尝试联系下互换个名字，我想没人不会不愿意_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9531#       发表于 2020-4-26 21:04
+
+
+
+<blockquote>free 发表于 2020-4-26 20:21
+https://www.youtube.com/watch?v=8vQoQWx7kI4
+
+【うちで過ごそう】オススメの作品紹介してもらったよ！【富 ...</blockquote>
+空妈一个后辈都没来，杏就她一个，也有点www
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9532#       发表于 2020-4-26 21:09
+
+
+
+
+stars的ARK开始了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9533#       发表于 2020-4-26 21:12
+
+
+
+
+平野绫：听星野源的在家跳舞(指团舞)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9534#       发表于 2020-4-26 21:17
+
+
+
+
+404又白给了吗，小天使开始转圈了。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9535#       发表于 2020-4-26 21:18
+
+
+
+
+一弦的电脑不行不能直播这个genesis......明明去年一弦能播ARK啊，这个DLC比本体吃配置吗？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9536#       发表于 2020-4-26 21:20
+
+
+
+
+小天使也到9了啊，要开见证20w最迟就是明天中午了。其实晚上也可以直接开个到20w的耐久，能到的。
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 9537#       发表于 2020-4-26 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">打开叶的直播间结果和菜菜子在联动apex，声音好听真的可以随便联动
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9538#       发表于 2020-4-26 21:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215621&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-26 21:20</a>
+
+小天使也到9了啊，要开见证20w最迟就是明天中午了。其实晚上也可以直接开个到20w的耐久，能到的。 ...</blockquote>
+傍晚歌回还是8，估计正好差1k了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 9539#       发表于 2020-4-26 21:22
+
+
+
+[https://www.youtube.com/watch?v=GlFUfCUfgOo](https://www.youtube.com/watch?v=GlFUfCUfgOo)
+
+
+【歌枠】９～１３万人記念！感謝のハッピーソング！🎤【ホロライブ/不知火フレア】
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9540#       发表于 2020-4-26 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215593&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-26 21:17</a>
+
+404又白给了吗，小天使开始转圈了。</blockquote>
+重开了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9541#       发表于 2020-4-26 21:25
+
+
+
+
+看了眼明天晚上有mio占卜大亏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 9542#       发表于 2020-4-26 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不光声音好听还有实力可以带妹啊
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9543#       发表于 2020-4-26 21:28
+
+
+
+
+sakuyui<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我青回
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9544#       发表于 2020-4-26 21:29
+
+
+
+
+最美好最retro的sakuyui你楼真没人看啊？
+
+
+不愧是唯一指定任任女孩，播喷喷都一万棒。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9545#       发表于 2020-4-26 21:32
+
+
+
+
+star开创世纪了 可以云了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9546#       发表于 2020-4-26 21:32
+
+
+
+
+stars众这是捏了些什么妖魔鬼怪<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9547#       发表于 2020-4-26 21:33
+
+
+
+ 本帖最后由 克罗夏 于 2020-4-26 21:36 编辑 
+
+这全败看的我笑了，喷喷女王不再<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这聊天氛围真的听不出有什么不仲啊，为什么就是不联动呢<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+两个30w的人了就是硬拖着连20w联动纪念都不做<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9548#       发表于 2020-4-26 21:35
+
+
+
+
+杏星播ARK好像还真有人看啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9549#       发表于 2020-4-26 21:35
+
+
+
+
+突然看到好多v都直播过偶像大师的新作，就没人播as吗？ll没排面啊233
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9550#       发表于 2020-4-26 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215786&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-04-26 21:35:18</a>
+杏星播ARK好像还真有人看啊。</blockquote>ark永远有人看，何况这图大家都还没云过，我就挂着夸的歌回在看…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 9551#       发表于 2020-4-26 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215791&amp;ptid=1924531" target="_blank">离心 发表于 2020-4-26 21:35</a>
+突然看到好多v都直播过偶像大师的新作，就没人播as吗？ll没排面啊233</blockquote>
+过仨月nico生日老爱抽给你看
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 9552#       发表于 2020-4-26 21:39
+
+
+
+
+要是HOLOSTAR之后和彩虹那边来ARK联动就好玩了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+世界大战！
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 9553#       发表于 2020-4-26 21:40
+
+
+
+
+刚刚看完tes暴打ig就能接着看咲唯，今晚也太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9554#       发表于 2020-4-26 21:41
+
+
+
+
+有一说一，这个genesis我经常幻视成genius<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不该看太多来打的
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9555#       发表于 2020-4-26 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  sakuyui糖好吃，只有葵皇一个人昨天玩了五小时孤独gamers RPG怀念旧情吗？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9556#       发表于 2020-4-26 21:42
+
+
+
+
+大概是因为lovelive过气了？我只追了缪团 后边的水团啥的全没看 单纯学园偶像祭我还是蛮喜欢的 后边final live看完就退坑了 前段时间还被翻出来复活炒冷饭 不如加入最潮最in的Vtuber创建LL社套皮出道 Lantis放出这消息搞不好三天食杀狐皇一星期食杀kizunaAI
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 9557#       发表于 2020-4-26 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215535&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-26 21:12</a>
+
+平野绫：听星野源的在家跳舞(指团舞)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">组长：不做，不做。（还是跳了）
+
+
+
+
+
+
+
+02.png
+(554.07 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-26 21:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/214345w2aai1ta312e3iti.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+01.png
+(58.53 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-26 21:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/214345xzoq9x09swzyhfxs.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 9558#       发表于 2020-4-26 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215851&amp;ptid=1924531" target="_blank">qq845629713 发表于 2020-4-26 21:41</a>
+ sakuyui糖好吃，只有葵皇一个人昨天玩了五小时孤独gamers RPG怀念旧情吗？ ...</blockquote>
+虽然这样比较养gachi，但你也不要老想着给葵皇立个不悯人设好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9559#       发表于 2020-4-26 21:48
+
+
+
+ 本帖最后由 离心 于 2020-4-26 21:52 编辑 
+
+对了，想起来了，黑宝如果喜欢男人之间的正常交流不卖gay的话推荐男邦邦。正好现在男邦邦动画绝赞放松中<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|多谢介绍，我会去了解下的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 9560#       发表于 2020-4-26 21:48
+
+
+
+
+水团还是有在追，家里小宫的写真快糊墙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再后面的虹团才是真的追不动了。虽然楠木灯挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9561#       发表于 2020-4-26 21:54
+
+
+
+
+小天使舔卡万棒达成。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9562#       发表于 2020-4-26 21:57
+
+
+
+
+看了一会儿伊织萌
+
+
+*感觉自己充满了决心
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9563#       发表于 2020-4-26 21:57
+
+
+
+
+顶不住了一会儿要睡了，如果有老哥能持续挂一下stars那边顺便说两句就感激不尽了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9564#       发表于 2020-4-26 21:59
+
+
+
+
+露露盖尔战开始了，反正我街舞🗡过不了盖尔就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9565#       发表于 2020-4-26 22:00
+
+
+
+
+近期可能会有银火合作B限
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 9566#       发表于 2020-4-26 22:01
+
+
+
+<img src="https://p.sda1.dev/0/c6ef1cd27f8850562deb835f294e30e6/EWhSBKYU4AAAFt9.jpg" referrerpolicy="no-referrer">
+
+
+增加点姨浓度
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 9567#       发表于 2020-4-26 22:04
+
+
+
+
+阿叶最近的给营业怎么少了，天天找女管人一起打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9568#       发表于 2020-4-26 22:04
+
+
+
+
+真要看萝莉化还是得看小肥妹
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9569#       发表于 2020-4-26 22:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216089&amp;ptid=1924531" target="_blank">zaku11ku 发表于 2020-4-26 22:01</a>
+
+增加点姨浓度</blockquote>
+狗子抱了个啥
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9570#       发表于 2020-4-26 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216119&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-26 22:04</a>
+
+狗子抱了个啥</blockquote>
+宝可梦里面的吧，她画宝可梦那次画出来的奇怪生物。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9571#       发表于 2020-4-26 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216132&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-26 22:05</a>
+
+宝可梦里面的吧，她画宝可梦那次画出来的奇怪生物。</blockquote>
+自制大濑良嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 9572#       发表于 2020-4-26 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">露皇初见盖尔三次进了两次二阶段，拿的还是街舞大剑这种前摇大的武器，真的很行了
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 9573#       发表于 2020-4-26 22:07
+
+
+
+
+我觉得盖爷快撑不住露露几回合了(刚说完就浪死了)
+
+
+
+
+
+                              

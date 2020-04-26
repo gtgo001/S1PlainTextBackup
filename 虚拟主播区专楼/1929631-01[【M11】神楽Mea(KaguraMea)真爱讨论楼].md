@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 20:09** 
+> ## **本文件最后更新于2020-04-26 22:09** 
 
 
 
@@ -4719,4 +4719,839 @@ syl刚听了一遍又变的好听了<img src="https://static.saraba1st.com/image
 
 
 
-                                         
+
+
+-----
+
+####  weiweiEX  
+##### 271#       发表于 2020-4-26 20:10
+
+
+
+
+刚才那声nice，忽然唤起了我跟室友互晒得回忆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 272#       发表于 2020-4-26 20:12
+
+
+
+
+居然还有活着的事业厨？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 273#       发表于 2020-4-26 20:19
+
+
+
+
+苔姨太浮夸了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 274#       发表于 2020-4-26 20:20
+
+
+
+
+长辈的演技不行,小辈没入戏啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 275#       发表于 2020-4-26 20:21
+
+
+
+
+好姨女
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 276#       发表于 2020-4-26 20:23
+
+
+
+
+两个小仓位
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 277#       发表于 2020-4-26 20:23
+
+
+
+
+？？？？？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 278#       发表于 2020-4-26 20:23
+
+
+
+
+双小仓唯草
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 279#       发表于 2020-4-26 20:23
+
+
+
+
+mea杀疯了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 280#       发表于 2020-4-26 20:23
+
+
+
+
+好，双XCW，杀了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 281#       发表于 2020-4-26 20:23
+
+
+
+
+草直接双虹结束比赛，这不是我认识的mea<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 282#       发表于 2020-4-26 20:24
+
+
+
+
+双神的挂件舒服了
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 283#       发表于 2020-4-26 20:25
+
+
+
+ 本帖最后由 aisakahammer 于 2020-4-26 20:30 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/202522c4fms6tvblfbybgg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200426202510.png</strong> (51.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 20:25 上传
+
+
+
+
+
+开心狗叫（指MEA，我自己去年出的时候就有了）   
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 284#       发表于 2020-4-26 20:26
+
+
+
+
+右上角离谱
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 285#       发表于 2020-4-26 20:26
+
+
+
+
+苔苔，狗海豹还要再跳你半个小时，你还要和她好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 286#       发表于 2020-4-26 20:27
+
+
+
+
+看咩咩抽了两个xcw,我也抽了两个xcw,我跟咩咩贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|同喜贴贴|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 287#       发表于 2020-4-26 20:28
+
+
+
+
+草，太狗了，扣鹅了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 288#       发表于 2020-4-26 20:30
+
+
+
+
+说不出话（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 289#       发表于 2020-4-26 20:31
+
+
+
+
+说不出话来，苔苔和我差不多，我和苔苔贴贴
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 290#       发表于 2020-4-26 20:34
+
+
+
+
+太欧了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 291#       发表于 2020-4-26 20:34
+
+
+
+
+受不了了，抽卡的时候旁边站着一个海豹，想想都暴躁
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 292#       发表于 2020-4-26 20:36
+
+
+
+
+根据人品守恒定律下次就得#了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 293#       发表于 2020-4-26 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215113&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-26 20:34</a>
+受不了了，抽卡的时候旁边站着一个海豹，想想都暴躁</blockquote>
+我大概明白为什么300万了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 294#       发表于 2020-4-26 20:42
+
+
+
+
+草，退坑bcr就在今天（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 295#       发表于 2020-4-26 20:43
+
+
+
+
+舒服了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 296#       发表于 2020-4-26 20:44
+
+
+
+ 本帖最后由 惑星 于 2020-4-26 21:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
++50
++50
++50
++50<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 297#       发表于 2020-4-26 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47215229&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-26 20:44</a>
++50
++50</blockquote>
++50
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 298#       发表于 2020-4-26 20:49
+
+
+
+
+绿发奔跑时拿着的文件不发彩光时也可能出彩吗？
+
+—— 来自 vivo V1824A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 299#       发表于 2020-4-26 20:50
+
+
+
+
+有虹就能在文件夹外面看到的
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 300#       发表于 2020-4-26 20:50
+
+
+
+
+看苔姨抽卡吃瘪有点爽。你咩要是歪成这样我估计都关直播不敢看了
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 301#       发表于 2020-4-26 20:53
+
+
+
+
+人类的悲喜并不相通；一切喜剧的内核都是悲剧（名言bot并感）
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 302#       发表于 2020-4-26 20:55
+
+
+
+
+好麻麻不要学苔苔
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 303#       发表于 2020-4-26 20:55
+
+
+
+ 本帖最后由 棉花怪 于 2020-4-26 20:56 编辑 
+
+苔姨这个直播还特意隐藏了赞踩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+syl 五星春黑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 304#       发表于 2020-4-26 20:55
+
+
+
+
+多谢犬山哥！
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 305#       发表于 2020-4-26 20:57
+
+
+
+
+咩要是抽成这样是痛在财布心里
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 306#       发表于 2020-4-26 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑出了声（
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 307#       发表于 2020-4-26 21:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/210013c9bqlh13mjq0va33.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200426205953.png</strong> (52.04 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-26 21:00 上传
+
+
+
+
+
+人和人的悲喜真的不相通啊
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 308#       发表于 2020-4-26 21:01
+
+
+
+
+没事,这人有氪金限制,想氪都氪不了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 309#       发表于 2020-4-26 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后下播前这个笑声听着真爽啊
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 310#       发表于 2020-4-26 21:08
+
+
+
+
+最后成了苔姨有氪金限制，想氪都氪不了
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 311#       发表于 2020-4-26 21:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好！
+
+不过到底会不会线下联动
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 312#       发表于 2020-4-26 21:10
+
+
+
+
+吃井就线下，因为没钱吃井所以回避了，未曾设想的展开
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 313#       发表于 2020-4-26 21:15
+
+
+
+
+off回避<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 314#       发表于 2020-4-26 21:17
+
+
+
+
+草，犬山组这个无缝转播有点蛋疼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">转播man没不播，录播站直接没传档，我还想着再弄个带弹幕的录像看呢
+
+syl
+【TwitterTweet 犬山たまき 推特发布】
+内容：【💙お疲れ様でした💙】
+
+✨結果✨
+めあ：60連でゲット
+たまき：270連でクレカ上限で金がなくなる
+
+お疲れ様でした…ヴォエ！🤮🤮🤮
+
+【プリコネガチャ】ガチャ地獄バトル！？どちらが先にハロウィンキョウカをゲットできるのか！？【神楽めあ/犬山たまき】#めあたま 
+https://t.co/cmmKM9rmqO https://t.co/11EjOqJ5Re
+媒体：['https://twitter.com/norioo_/status/1254398220588822529/photo/1']
+链接：['https://youtu.be/bCV4hqHaPUY']
+时间：2020-04-26 13:13:36 (GMT)
+网址：https://twitter.com/norioo_/status/1254398220588822529
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 315#       发表于 2020-4-26 21:17
+
+
+
+ 本帖最后由 路人庚 于 2020-4-26 21:18 编辑 
+
+各种意义上的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，新推，好跳啊（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 316#       发表于 2020-4-26 21:25
+
+
+
+
+此处可出本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+美少女主播强制off联动！巨○巴别塔突击！
+<img src="https://p.sda1.dev/0/c1f4216595ecaa296ec5b5323e220be9/38ea6a4dbbd89d2e.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 317#       发表于 2020-4-26 21:58
+
+
+
+
+建议到达后强制开直播，绝对是暴涨粉的双赢联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
