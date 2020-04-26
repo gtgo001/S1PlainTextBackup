@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 00:00** 
+> ## **本文件最后更新于2020-04-26 14:01** 
 
 
 
@@ -15428,7 +15428,7 @@ vr的八期生抽到几个优质卡，不知道有几个能保证高强度直播
 
 
 QQ截图20200423224624.png
-(611.99 KB, 下载次数: 0)
+(611.99 KB, 下载次数: 1)
 
 
 
@@ -17167,7 +17167,7 @@ syl，我觉得仓鼠一点都不功利，功利还不去舔舔本社上位势�
 <img src="https://img.saraba1st.com/forum/202004/24/163830zr8qjwr3whz3pkwz.png" referrerpolicy="no-referrer">
 
 
-<strong>屏幕截图.png</strong> (389.39 KB, 下载次数: 2)
+<strong>屏幕截图.png</strong> (389.39 KB, 下载次数: 3)
 
 下载附件
 
@@ -20599,4 +20599,1279 @@ syl.仓鼠不了解，咋子哥前世直播频率还挺高的（根据前世粉�
 
 
 
-             
+
+
+-----
+
+####  wuaistage1  
+##### 7087#       发表于 2020-4-26 00:05
+
+
+
+
+久违的柠果夜话
+
+[https://live.bilibili.com/213796 ... 6-9CBB-501017B1816C](https://live.bilibili.com/21379626?session_id=16C7D6F4-9560-90D6-9CBB-501017B1816C)
+
+
+刚还吵到底谁睡相更差，弹幕来了句：你俩早上会被对方口臭熏醒吗。草
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 7088#       发表于 2020-4-26 01:00
+
+
+
+
+净土宗个把月前有个男配音在猴区吐苦水说本职做不下去，然后下面的都在建议他去做管人，难道···
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7089#       发表于 2020-4-26 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206287&amp;ptid=1909283" target="_blank">西瓜爆裂 发表于 2020-4-26 01:00</a>
+
+净土宗个把月前有个男配音在猴区吐苦水说本职做不下去，然后下面的都在建议他去做管人，难道··· ...</blockquote>
+又有大物转生啊！？
+
+
+
+
+
+
+
+-----
+
+####  西瓜爆裂  
+##### 7090#       发表于 2020-4-26 01:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206547&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-26 01:44</a>
+
+又有大物转生啊！？</blockquote>
+不是大物啊，就一般的播音系毕业出来去配路人，那个发帖人都自嘲不如民工了···
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7091#       发表于 2020-4-26 02:32
+
+
+
+
+阿媂娅晚上直播突然本音不压嗓子了，听着舒服多了
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7092#       发表于 2020-4-26 06:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206694&amp;ptid=1909283" target="_blank">丶彼岸花开丶 发表于 2020-4-26 02:32</a>
+
+阿媂娅晚上直播突然本音不压嗓子了，听着舒服多了</blockquote>
+但是遇到好多奇奇怪怪的队友我自己看的心态有点爆炸....
+
+
+
+
+
+
+
+-----
+
+####  14569852  
+##### 7093#       发表于 2020-4-26 10:25
+
+
+
+
+既psp-SOW之后，chaoslive弄了个同样互助性质的chaoslive·s计划。有了解的说说运行机制嘛?
+
+
+魔女公司好像有个sp计划。性质更像收编？听说是积分制的。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7094#       发表于 2020-4-26 11:03
+
+
+
+
+来了来了，karu也打的ow，昨天那个预言带师挺准的。
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 7095#       发表于 2020-4-26 11:15
+
+
+
+
+vr转行电竞吧，第一支vup组成的ow电竞战队，这名头挺响的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7096#       发表于 2020-4-26 11:35
+
+
+
+
+不要啊，为什么karu也开始ow了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  秋月逍遥  
+##### 7097#       发表于 2020-4-26 11:41
+
+
+
+
+麻了 真就ow是年轻人第一款fps呗
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 7098#       发表于 2020-4-26 11:41
+
+
+
+
+阿媂娅大概能把VR这帮打OW的拉起来A了
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7099#       发表于 2020-4-26 11:42
+
+
+
+ 本帖最后由 aucun 于 2020-4-26 11:46 编辑 
+
+御水好像挺厉害的不知道能不能打
+syl，VR那帮ow人基本上都是玩奶位，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7100#       发表于 2020-4-26 11:48
+
+
+
+
+怎么ow这个破游戏这么多vup爱玩
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7101#       发表于 2020-4-26 11:50
+
+
+
+
+你们怎么跟刚意识到她会播ow一样，karu那微博一看就知道之后直播内容就是ow为主了
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7102#       发表于 2020-4-26 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明ow妹子玩的多啊，还不快去玩ow把妹.jpg
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7103#       发表于 2020-4-26 11:56
+
+
+
+
+不容易有心理负担，排的还快，还不容易被看出水平，多好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7104#       发表于 2020-4-26 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 说明是聪明人，问她认识彩虹社的柚子不？
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 7105#       发表于 2020-4-26 12:02
+
+
+
+
+这个nice发音好标准
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 7106#       发表于 2020-4-26 12:10
+
+
+
+
+阿这，vr收那么多打ow的，图啥，水平又拉跨，又不会搞乐子<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7107#       发表于 2020-4-26 12:11
+
+
+
+
+怎么这就刷起爷爷了，营业妨碍啊
+
+
+
+
+
+
+
+-----
+
+####  wx41122  
+##### 7108#       发表于 2020-4-26 12:19
+
+
+
+
+artia百舰落泪：之前看别人百舰了我都没有百舰，我好酸
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 7109#       发表于 2020-4-26 12:21
+
+
+
+
+artia养gachi有一手的，打ow都能急哭
+
+
+
+
+
+
+
+-----
+
+####  black333  
+##### 7110#       发表于 2020-4-26 12:25
+
+
+
+
+Artia10小时耐久ow，中间突然赌气不上3k5不吃东西<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+最后刚刚好国内12pm前渡劫成功，恰好接预定的纪念回
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7111#       发表于 2020-4-26 12:33
+
+
+
+
+阿媂娅现在放开了直说不想玩OW以外的游戏和不想联动，这样还干啥直播啊。。。
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7112#       发表于 2020-4-26 12:33
+
+
+
+
+花留ow的观感挺好的，边打边说嘴没停过的
+
+
+
+
+
+
+
+-----
+
+####  千葉恵里  
+##### 7113#       发表于 2020-4-26 12:34
+
+
+
+
+抵制手柄，别的游戏都要逼着自己玩，做什么直播
+
+
+
+
+
+
+
+-----
+
+####  black333  
+##### 7114#       发表于 2020-4-26 12:35
+
+
+
+
+这种introvert性格实在有点戳我，也不觉得是演出来的
+
+可能就是被脑控了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7115#       发表于 2020-4-26 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209971&amp;ptid=1909283" target="_blank">black333 发表于 2020-4-26 12:35</a>
+
+这种introvert性格实在有点戳我，也不觉得是演出来的
+
+
+可能就是被脑控了吧</blockquote>
+演肯定不是演的，首播就发现是个比RUKI还固执的人，都有点偏执了，而且较真。
+
+
+就算萌萌观众们挺吃这一口头铁傻萌，但想想以后365天看OW<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7116#       发表于 2020-4-26 12:48
+
+
+
+
+也没说不玩别的嘛，“你们想看我玩，我可以逼着自己玩。”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7117#       发表于 2020-4-26 12:48
+
+
+
+
+你祸害了多少人啊，ow，可恶的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  black333  
+##### 7118#       发表于 2020-4-26 12:50
+
+
+
+<blockquote>wuaistage1 发表于 2020-4-26 12:41
+演肯定不是演的，首播就发现是个比RUKI还固执的人，都有点偏执了，而且较真。
+
+
+就算萌萌观众们挺吃这一口 ...</blockquote>
+其实我对她的期望一直都是那个twitch主播 看得足够满足了……现在这么多人喜欢也不错
+
+
+但萌萌观众的问题我确实没考虑过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不由得杞忧了起来
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7119#       发表于 2020-4-26 12:53
+
+
+
+
+萌萌人转播ark之类的脑死作业都看的下去，这点肯定不成问题
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7120#       发表于 2020-4-26 12:53
+
+
+
+
+天天只播ow套个皮干嘛……v圈不会真有大量能一年里天天看ow的吧，直接做ow主播得了呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7121#       发表于 2020-4-26 12:58
+
+
+
+
+人家今天都挂到ow区了 ow主播有什么不好嘛 反正我爱看
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 7122#       发表于 2020-4-26 12:59
+
+
+
+
+等拳头那个fps搞起来了估计就能换一茬了，那个挺有潜力的，下一个“年轻人的第一款fps”
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7123#       发表于 2020-4-26 13:00
+
+
+
+
+那个不能选奶，恐怕妹子不喜欢
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7124#       发表于 2020-4-26 13:01
+
+
+
+
+而且阿媂娅也说过不想联动的原因了 不想有人情往来，不想感觉欠别人人情
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7125#       发表于 2020-4-26 13:03
+
+
+
+
+一个人闷头玩ow也不想联动，这个阿媂娅这么自闭的吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7126#       发表于 2020-4-26 13:05
+
+
+
+<blockquote>锡哒哒 发表于 2020-4-26 13:03
+一个人闷头玩ow也不想联动，这个阿媂娅这么自闭的吗</blockquote>
+“希望我哪一天可以消失我是个废物”
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 7127#       发表于 2020-4-26 13:08
+
+
+
+
+怎么说呢……看起来迷的人一般都会看起来有趣？但别迷过头了就行
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 7128#       发表于 2020-4-26 13:10
+
+
+
+
+直接说面试过“别的公司”没有选上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7129#       发表于 2020-4-26 13:13
+
+
+
+
+artia可能不符合很多人的预期吧，我倒是越看越觉得有意思
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7130#       发表于 2020-4-26 13:14
+
+
+
+<blockquote>死去的御景柚姬 发表于 2020-4-26 13:13
+artia可能不符合很多人的预期吧，我倒是越看越觉得有意思
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
++1
+
+至少目前我是看v直播时候优先级最高的
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7131#       发表于 2020-4-26 13:14
+
+
+
+
+这么自闭选holocn倒是对的，现在的holocn人还少，温暖大家庭氛围还没起来，自闭不会被人说这说那<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7132#       发表于 2020-4-26 13:16
+
+
+
+
+就是井皇这皮做的太差了，
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 7133#       发表于 2020-4-26 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">她前世那个大正女仆味的皮比现在这个帕里皮好看一万倍
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 7134#       发表于 2020-4-26 13:18
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7135#       发表于 2020-4-26 13:19
+
+
+
+
+我是没怎么看过这位，不过按楼里的说法来猜，应该是以直播为主业的？纯粹不善于人情世故也太不正常了，真是这样做v没一点好处的吧……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ps：想了想版主刀性恋也能随叫随到，应该还是性格所致吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7136#       发表于 2020-4-26 13:20
+
+
+
+
+确实 井皇爬
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7137#       发表于 2020-4-26 13:22
+
+
+
+
+有没有贴一下前世的皮，其实她这种水平比较高的ow看起来也确实比较舒服，但是皮真的大扣分。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7138#       发表于 2020-4-26 13:22
+
+
+
+<blockquote>曜不能停 发表于 2020-4-26 13:19
+我是没怎么看过这位，不过按楼里的说法来猜，应该是以直播为主业的？纯粹不善于人情世故也太不正常了，真是 ...</blockquote>
+打游戏打到被学校退学的
+
+想想一个留美国人 能有那么足的樱花妹味也是蛮怪的
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7139#       发表于 2020-4-26 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210499&amp;ptid=1909283" target="_blank">VivillonTundra 发表于 2020-4-26 13:22</a>
+
+打游戏打到被学校退学的
+
+想想一个留美国人 能有那么足的樱花妹味也是蛮怪的 ...</blockquote>
+草，玩到退学也太厉害了，电竞游戏水平高就是最好的看点，希望这条路能走的好一些吧。
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7140#       发表于 2020-4-26 13:26
+
+
+
+
+这也太自闭了，白费了P家和holo的人脉资源啊
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7141#       发表于 2020-4-26 13:27
+
+
+
+
+也难怪天天ow耐久
+
+
+
+
+
+
+
+-----
+
+####  cuiluzhu  
+##### 7142#       发表于 2020-4-26 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">听说是很小就出国了？那倒是可以理解。如果融不进留学生的圈子平时确实没什么社交了，时间长了就容易自闭。我就是这样，自闭后每天日夜颠倒和国内的朋友玩游戏，然后没等劝退我自己就退学了
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7143#       发表于 2020-4-26 13:30
+
+
+
+
+就这样多去ow分区多播播，走技术流扩扩圈也挺好的，而且又不是不会聊
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7144#       发表于 2020-4-26 13:31
+
+
+
+
+人脉资源吸引来的能留下一个是一个，比直接从ow主播做起好太多，能打游戏打到退学的人性格如此能怎么办呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+ps：完全没有贬义的意思
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 7145#       发表于 2020-4-26 13:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">但是你b玩ow除了12team那批所谓大up主也没几个人气高的了，企图通过ow
+水平得到新人脉我觉得是不太可能
+
+
+
+
+
+
+
+-----
+
+####  十月鼠  
+##### 7146#       发表于 2020-4-26 13:39
+
+
+
+
+我只求别再来辅助选手了，tm打开拆尼斯葵直播就看见天使换莫伊拉，吐了
+
+c位还好说有几个头铁的天天练
+
+除了时音我就没见过玩t的
+
+syl，爱铃妈可是aiko，井皇是算是什么东西，有手游厂敢邀请他么？
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7147#       发表于 2020-4-26 13:39
+
+
+
+
+想起来了，在vr一直玩ow会被staff警告，还要开直播倒苦水反思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7148#       发表于 2020-4-26 13:41
+
+
+
+
+可能是我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7149#       发表于 2020-4-26 13:42
+
+
+
+
+vr那帮人ow什么水平你们又不是不知道，staff警告有什么问题
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7150#       发表于 2020-4-26 13:44
+
+
+
+
+不想学新游戏，不想研究新节目，只能打打脑死ow这样，我超喜欢ow，这游戏不用互动、不用技术，我超喜欢这游戏，
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7151#       发表于 2020-4-26 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210496&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-26 13:22</a>
+
+有没有贴一下前世的皮，其实她这种水平比较高的ow看起来也确实比较舒服，但是皮真的大扣分。 ...</blockquote>
+这皮还不行？ 傻气溢出了还要怎样，跟中之人挺搭的。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7152#       发表于 2020-4-26 13:45
+
+
+
+ 本帖最后由 锡哒哒 于 2020-4-26 13:49 编辑 
+
+刚刚点进去又听artia说：大家喜欢看csgo！我也喜欢播，那就多播点吧
+：大家把artia当作一个游戏玩家就可以
+
+纪念回结束时：以后也可能会去联动吧！
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 7153#       发表于 2020-4-26 13:45
+
+
+
+
+目前抛开不玩的aza和还没播的御水，我记得最高的好像是沙夜，之前上了3500分，也是奶位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十月鼠  
+##### 7154#       发表于 2020-4-26 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210697&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-26 13:44</a>
+
+这皮还不行？ 傻气溢出了还要怎样，跟中之人挺搭的。</blockquote>
+原罪在井皇
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7155#       发表于 2020-4-26 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210654&amp;ptid=1909283" target="_blank">锡哒哒 发表于 2020-4-26 13:39</a>
+
+想起来了，在vr一直玩ow会被staff警告，还要开直播倒苦水反思</blockquote>
+玩OW被警告  （×）
+
+
+玩OW又菜又没节目效果被警告  （√）
+
+
+真能像阿媂娅那样时不时来点秀的还骚话不断，谁特么警告你啊 高兴还来不及<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 7156#       发表于 2020-4-26 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210717&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-26 13:46</a>
+玩OW被警告  （×）
+
+
+玩OW又菜又没节目效果被警告  （√）</blockquote>
+那是我云出偏差了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十月鼠  
+##### 7157#       发表于 2020-4-26 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210707&amp;ptid=1909283" target="_blank">aucun 发表于 2020-4-26 13:45</a>
+
+目前抛开不玩的aza和还没播的御水，我记得最高的好像是沙夜，之前上了3500分，也是奶位 ...</blockquote>
+s1娘天使能摸个4000的边，有个车队估计就稳大师了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7158#       发表于 2020-4-26 13:52
+
+
+
+<blockquote>aucun 发表于 2020-4-26 13:45
+目前抛开不玩的aza和还没播的御水，我记得最高的好像是沙夜，之前上了3500分，也是奶位 ...</blockquote>
+可是沙夜夜是男的
+
+另外你们怎么把dva妹忘了，不算v吗
+
+
+
+
+
+
+
+-----
+
+####  默默路过  
+##### 7159#       发表于 2020-4-26 13:59
+
+
+
+
+artia就是心态有点容易小崩，只要不是出格的话都有很大回转余地。有些人开她团也都是些烂活，她没必要看的
+
+syl holocn二期，鱼人越看越有种虚拟周淑怡的感觉，蘑菇人婆度比较高，三个人风格差别还挺大的。
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 7160#       发表于 2020-4-26 14:00
+
+
+
+
+来做这行怎么也得懂点人情世故，太自闭了不是什么好事，她话也没说死这就行了
+
+syl原来前世皮是aiko画的，前世皮是真的好看
+
+
+
+
+
+           

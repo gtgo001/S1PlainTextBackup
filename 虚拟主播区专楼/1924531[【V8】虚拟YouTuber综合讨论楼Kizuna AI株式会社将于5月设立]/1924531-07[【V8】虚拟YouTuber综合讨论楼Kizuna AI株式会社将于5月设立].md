@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 12:10** 
+> ## **本文件最后更新于2020-04-26 14:08** 
 
 
 
@@ -2990,7 +2990,7 @@ syl ARK还可以播很久吧，而且相当于平A，兔皇MGS算是专武了，
 
 
 1CC4B5A47873F420458ED1DAE794BD5D.jpg
-(831.09 KB, 下载次数: 0)
+(831.09 KB, 下载次数: 1)
 
 
 
@@ -3083,4 +3083,1366 @@ holocn也去b综啊，警惕b综变成vr专楼，增加点其他箱浓度。</bl
 
 
 
-                                            
+
+
+-----
+
+####  bluebaby  
+##### 9160#       发表于 2020-4-26 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209649&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-04-26 12:08:45</a>
+葵皇dva玩得6是不是因为韩国男友啊</blockquote>葵皇那天dota2小牛也打的还行，是不是还能发散牛头人的关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9161#       发表于 2020-4-26 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209649&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-26 12:08</a>
+葵皇dva玩得6是不是因为韩国男友啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 她小美玩的也可以的
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 9162#       发表于 2020-4-26 12:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时不是v综谈论vr的人太多被赶出去开了b综么，到底是虹人排斥vr还是杏人全球化大家庭我暂时蒙古。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 9163#       发表于 2020-4-26 12:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">谁比较闲翻一下V6查一下那些反对聊弥宝的人的屁股呗
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 9164#       发表于 2020-4-26 12:16
+
+
+
+
+别车了，别车了，v综信息浓度又降低了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 9165#       发表于 2020-4-26 12:17
+
+
+
+
+就不能是什么个人势粉丝抵制VR吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 9166#       发表于 2020-4-26 12:17
+
+
+
+
+绝了你们怎么这么想知道蘑菇人的年龄，她以前在斗鱼又不是没露过脸，看到脸应该能猜个大概吧
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 9167#       发表于 2020-4-26 12:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不就是天狗想复刻下mea么，别甩锅虹人杏人啊
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 9168#       发表于 2020-4-26 12:19
+
+
+
+
+你们说得这个vr是什么阿，我都不看b站的，能不能讨论一些在404播的啊，v综的信息浓度又降低了，这里是vtb讨论楼不是vup讨论楼啊
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9169#       发表于 2020-4-26 12:21
+
+
+
+
+弥宝还有呼吸吗。。官群一摊死水连可以云的repo都没有，也就无尽的养gachi复读，感觉官群里都没多少看她的了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9170#       发表于 2020-4-26 12:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">dva，小牛，小美。。葵皇被ow安排的明明白白
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 9171#       发表于 2020-4-26 12:24
+
+
+
+
+不愿意看vup讨论可以自己出去开个V9在主楼写上禁止vup
+
+一个个倒是挺矫情的，虹人要是有你一半玻璃心早疯特了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9172#       发表于 2020-4-26 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209798&amp;ptid=1924531" target="_blank">Rosefinch 发表于 2020-4-26 12:19</a>
+
+你们说得这个vr是什么阿，我都不看b站的，能不能讨论一些在404播的啊，v综的信息浓度又降低了，这里是vtb讨 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202004/26/122525qmw1dnlr3z13ar7r.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-26 122447.png</strong> (52.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 12:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 9173#       发表于 2020-4-26 12:27
+
+
+
+
+【6万人記念】皆を壁にする12時間バイノーラル生活音垂れ流し配信【にじさんじ/鈴木勝】
+[https://www.youtube.com/watch?v=qcjRxa4VtWY](https://www.youtube.com/watch?v=qcjRxa4VtWY)
+
+这个才叫养gachi好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 9174#       发表于 2020-4-26 12:27
+
+
+
+
+我只是把我比较又印象的一些说法复读一下而已
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9175#       发表于 2020-4-26 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">某些虹人虽然嘴上说着vr恶心，但实际看vr、云vr的不是蛮多的么？我作为杏人，提升下杏cn浓度有错吗？
+
+
+蘑菇妹还会日语，说是vtb没问题
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 9176#       发表于 2020-4-26 12:33
+
+
+
+
+支持蘑菇人，挺对我味口的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 9177#       发表于 2020-4-26 12:34
+
+
+
+
+2k你是不是隔壁漫区跑来的屑魔人啊，怎么什么屁话都能随口说的，经典知名扭曲葵熊都变成木口人了，我不知道是虹人先奔走相告，还是木口人急忙划清界限<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 9178#       发表于 2020-4-26 12:38
+
+
+
+
+好，我先划清界限
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9179#       发表于 2020-4-26 12:41
+
+
+
+
+又绕回B综的事情了啊，首先B综不是因为V综赶人建立的，那时候V综确实有赶人现象，却根本赶不走，打了好几架也没用
+
+我那时候劝建个新楼，但聊VUP的人一是怕出去开楼被版主乱杀，二是说VTB和VUP紧密相连，习惯待在这里。习惯是很难改变的，我也没辙
+
+最后是因为V综锁楼，有弥人想和一般通过同乐，开的B综，具体去看B1主楼就行了，这展开我是没料到的，因为锁楼和VUP完全无关
+
+
+现在看来，B综和V综确实走向完全不同吧，开两个楼挺好的。还是那句话，习惯是很难改变的，那时候都跟我说二者密不可分、我们习惯这里、赶走我们不公平，现在则是就该分清楚、谨防和平演变，虽然不是同一批人，也可以看出各种状态下都是能形成稳态的
+
+VTB和VUP确实有千丝万缕的联系，所以我不主张搞得泾渭分明，如果模棱两可，发两边都行，不强制要求。V综那时候打起来，很大程度是出现了VTB讨论度低下、VUP几页几页地刷的现象，现在则根本不存在了，反而是V综变成史上最火热的状态。miki刚起来的时候VUP浓度比现在大多了，尚能和谐共存，只要不是VUP压倒性刷楼的状况，不用太敏感为好
+
+
+话说回来B综都凉了，VUP整体都支撑不起当时刷页的盛况了，没什么和平演变的可能
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 9180#       发表于 2020-4-26 12:43
+
+
+
+
+好，支持2000弃暗投明
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 9181#       发表于 2020-4-26 12:44
+
+
+
+
+如果蘑菇人是vtb，那tb这两东西在哪呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 9182#       发表于 2020-4-26 12:45
+
+
+
+
+“V综那时候打起来，很大程度是出现了VTB讨论度低下、VUP几页几页地刷的现象，现在则根本不存在了”
+那为啥还有人天天嫌别人在这儿讨论holocn呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9183#       发表于 2020-4-26 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210071&amp;ptid=1924531" target="_blank">Mika-S 发表于 2020-4-26 12:45</a>
+
+“V综那时候打起来，很大程度是出现了VTB讨论度低下、VUP几页几页地刷的现象，现在则根本不存在了”
+
+那为啥 ...</blockquote>
+程度不同，那时候打架都是团战PVP，能怼上几页
+
+现在嫌弃holocn的程度都不到嫌弃虹嫌弃杏的程度的一半吧，更不用说是嫌弃管人粉丝了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9184#       发表于 2020-4-26 12:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 因为看vr的虹人急了阿，口喜口喜，蘑菇人和vr人一样是vup，为什么没人讨论vr人呢，
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9185#       发表于 2020-4-26 12:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地元偶像可以讨论，但holocn不行
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 9186#       发表于 2020-4-26 12:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">加点杏浓度，今天22：00巧可在阿B玩D5。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9187#       发表于 2020-4-26 12:49
+
+
+
+
+不抽卡或者抽卡速度降低，难道不是因为粉丝群体扩张比不上liver群体扩张吗，僧多粥少根本养不活那么多套皮主播
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 9188#       发表于 2020-4-26 12:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前黑宝还是红宝的时候罗密欧pv那事儿也在v综聊起了vr吧？不过当时的玩笑式解释是弥宝不属于vup
+属于楼友
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9189#       发表于 2020-4-26 12:51
+
+
+
+
+哪个VUP想被V综无限制聊的，建议主动承认楼友身份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9190#       发表于 2020-4-26 12:53
+
+
+
+
+蘑菇妹如果暴露泥潭账号，是不是就是完美vub了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9191#       发表于 2020-4-26 12:53
+
+
+
+ 本帖最后由 墨玄i 于 2020-4-26 13:05 编辑 
+
+會喜歡vtuber，表示你老了、不中用了？
+實際訪問現在小學四年級的學生，得到的答案一致是熱烈推崇「vtuber」。
+至於為什麼，現正就讀國小四年級的小桐是這麼回答的。
+
+記者：你有聽過vup嗎？為什麼更喜歡vtuber呢？
+
+國小四年級生小桐：
+不是說vup不好，而是因為，那是<strong>下個時代</strong>的產物了，所謂的時代感真的很重要，
+我們小學四年級當然是選擇vtuber，這是屬於我們這個時代的記憶，
+我並不是說vup不好，而是那已經是<strong>未来式</strong>了，
+不想一直聽<strong>新参</strong>說教關於vup有多炫砲，
+感覺那就像是一種賣弄，你才活那麼多年，懂的當然比較少，
+像我就很討厭你講什麼20年vup有誰的那些話題，我根本不想知道。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 9192#       发表于 2020-4-26 12:53
+
+
+
+
+能跨楼被聊的vup就已经算是成功了吧。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9193#       发表于 2020-4-26 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209561&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-4-26 12:01</a>
+我们是冠军！</blockquote>
+因为我们一直打架直到结束！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9194#       发表于 2020-4-26 12:59
+
+
+
+
+呃，论新潮度的话，VUP才是比较新潮的那个吧，VUP有挺多观众是VTB老观众，至少S1是这样的
+
+当时不少人都看好VUP才是未来，VTB打不过本土原生新力量的，结果似乎变成国漫日漫的状况了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9195#       发表于 2020-4-26 12:59
+
+
+
+
+来点vtb 昨天的斗虫
+
+
+
+
+
+
+F47AFDDD33EB5901740CB38522B7974A.jpg
+(25.09 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-26 12:59 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/125917lzoo33uoj3k042vt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 9196#       发表于 2020-4-26 13:01
+
+
+
+
+这张图昨天就发过了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9197#       发表于 2020-4-26 13:01
+
+
+
+ 本帖最后由 某穆克拉 于 2020-4-26 13:06 编辑 
+
+来点小天使浓度，今天晚上6点歌回，大概50分钟。
+
+然后9点继续舔卡。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9198#       发表于 2020-4-26 13:04
+
+
+
+
+vr别的和本家相差甚远，但是贩卖关系这个倒是学了个十足十，天天就是谁和谁又不仲了，谁和谁又搭cp了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。从这个角度讲holocn的确不适合在b综讨论，老老实实在v综就好
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 9199#       发表于 2020-4-26 13:08
+
+
+
+
+你这讲的，好像V综就不聊这些东西了一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白姨的推特解读，夸皇和大家庭的对抗，虹gamers的不仲在V综也是很受欢迎的话题啊
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 9200#       发表于 2020-4-26 13:09
+
+
+
+
+这张图不是更加水说明舟游找杏工商门当户对了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 9201#       发表于 2020-4-26 13:10
+
+
+
+
+樱花妹武徳充沛
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 9202#       发表于 2020-4-26 13:12
+
+
+
+
+先提前问一下，SLEE出道之后能在V综聊嘛？这个好像跟V都没有关系了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 9203#       发表于 2020-4-26 13:12
+
+
+
+
+人家聊holocn的就是想单纯聊v，不像某些两千这种的只想借机顺劈聊类似意识形态之类的的玩意儿
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 9204#       发表于 2020-4-26 13:15
+
+
+
+
+来点意识形态，白洋葱直播直接说了面试过“其他公司”没被选上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 9205#       发表于 2020-4-26 13:15
+
+
+
+
+先把聊管人粉丝的清算了，再提holocn的事？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 9206#       发表于 2020-4-26 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和yhm隔着海的管人粉丝都能聊，天皇凛姨面试出来的slee当然能聊啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 9207#       发表于 2020-4-26 13:16
+
+
+
+
+hololive cn虽然属于hololive pro，却不等于hololive 。    (用科普holostar不等于hololive的定型文改更有效果）
+
+同时hololive cn因为活动平台和语言，存在天然壁垒，讨论内容上存在隔阂，V综自身也建议VUP相关前往B综讨论。
+
+（无形拔**olostar在holopro里的地位）
+
+因此，建议holo cn多到B综讨论。
+
+
+
+最后还有一点是发言的“立场”，黑宝，你在哪里。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">holo en出了star地位还要低一级，要多找找机会提高一下star的地位啊。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9208#       发表于 2020-4-26 13:18
+
+
+
+
+说实话最近感觉自己有点找到看v的初心了 快变回萌萌人了(虽然还是不打钱)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9209#       发表于 2020-4-26 13:19
+
+
+
+
+SLEE新闻之类的应该算ickr相关，但是要具体到日常直播repo、人际关系乃至信者大战什么的就无关了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9210#       发表于 2020-4-26 13:20
+
+
+
+
+我觉得就是习惯问题…
+木口cn有人看是有人看，但愿意坛里讨论主动引起话题的就那么几个楼友吧
+
+你总不能给他们单独定点迁移了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 9211#       发表于 2020-4-26 13:20
+
+
+
+
+萌萌人有什么不好，梁木人除了搞得自己和别人都心累之外有什么好处
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 9212#       发表于 2020-4-26 13:21
+
+
+
+
+SLEE出来前后应该还会定期拿出来乳一下田角，等出来了些日子估计也就没人说了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9213#       发表于 2020-4-26 13:21
+
+
+
+
+说到底是“v综”的重点到底是在“v”上，还是在“综”上
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 9214#       发表于 2020-4-26 13:22
+
+
+
+
+老实说隔壁B综楼跟VR楼有什么区别？holocn还没这边讨论得多。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9215#       发表于 2020-4-26 13:22
+
+
+
+
+说到底VTuber是什么？看VTuber的意义是什么？
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9216#       发表于 2020-4-26 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210351&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-26 13:08</a>
+
+你这讲的，好像V综就不聊这些东西了一样白姨的推特解读，夸皇和大家庭的对抗，虹gamers的不仲在V综 ...</blockquote>
+所以归根到底我其实只是想嘲讽vr粉丝少而已，明星的八卦大家都爱谈，虾兵蟹将的情感故事就有点无趣了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过或许这就是地元偶像的魅力所在吧。
+
+
+但是话又说回来，从这个角度讲holocn还是和b综格格不入啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9217#       发表于 2020-4-26 13:23
+
+
+
+
+昨天都车了一天手游了大家就不要计较这么多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9218#       发表于 2020-4-26 13:24
+
+
+
+
+这里建议相信自己的直觉，想做就去做，不要问意义
+
+
+你真心想讨论楼友也拦不住你——再怎么样也比特定粉丝有意义一点吧
+
+
+虽然我是两者都无所谓的状态啦）
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 9219#       发表于 2020-4-26 13:25
+
+
+
+
+那也得想聊holocn的人去b综聊聊看啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">而且要聊也不是聊不起来，毕竟也就换个楼的事情，现在不就在聊阿媂娅
+
+
+
+
+
+
+
+-----
+
+####  丢了五块钱  
+##### 9220#       发表于 2020-4-26 13:26
+
+
+
+
+问一下有没有holo aki的塔啊？大号被封了进不去铲楼
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9221#       发表于 2020-4-26 13:26
+
+
+
+<blockquote>锡哒哒 发表于 2020-4-26 13:25
+那也得想聊holocn的人去b综聊聊看啊而且要聊也不是聊不起来，毕竟也就换个楼的事情，现在不就在聊阿 ...</blockquote>
+确实就是换个楼的事情
+
+主要就是想云的在这个楼，想聊的隔壁平时也没人聊，手机懒得切来切去
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9222#       发表于 2020-4-26 13:30
+
+
+
+ 本帖最后由 ひびき 于 2020-4-26 13:31 编辑 
+
+我在这楼说蘑菇人原因主要是蘑菇人打的游戏唱的歌，比年轻的纯yhm还ACG正统，和隔壁车轱辘人际关系和公司关系的环境格格不入 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 这种我就忍不住用狐皇做参照
+
+
+
+讲道理我不信木口年纪小的那批小女孩接触过那么多jrpg和萝卜片，特别是阿希这种现充<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">（当然漫画应该是比不了，日本真的是漫画之国，是书记还是谁说过高中生阅览量都能吊打天朝婆罗门
+
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9223#       发表于 2020-4-26 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 偶然看到传说在推上发视频，
+
+
+如果传说来做V，是不是连阿希都打不过，说明阿希＞传说，阿希最强！
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9224#       发表于 2020-4-26 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210133&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-4-26 12:49</a>
+
+不抽卡或者抽卡速度降低，难道不是因为粉丝群体扩张比不上liver群体扩张吗，僧多粥少根本养不活那么多套皮 ...</blockquote>
+我觉得也不一定啊。如果合同没有很多固定工资的话，养活套皮主播并不需要什么成本啊。或者说不需要事务所什么成本，liver自己挣不到钱自己想办法。事务所的成本应该还是在员工和设备还有宣发这些上面吧。
+
+把资源逐步移到红火的新人上面，不能创造价值的老人就自生自灭。
+
+
+我绝对没有暗示某个木口一期生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9225#       发表于 2020-4-26 13:36
+
+
+
+
+别粥了，能不能再来点彩虹gamers不仲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9226#       发表于 2020-4-26 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210609&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-26 13:34</a>
+
+我觉得也不一定啊。如果合同没有很多固定工资的话，养活套皮主播并不需要什么成本啊。或者说不需要事务所 ...</blockquote>
+我是觉得盲目扩张从市场角度来说并不算好事，制造分流不如专精，而且楼里也车轱辘过虹体量太大过于臃肿之类的话题？
+
+不过还是我一己之见啦...<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 9227#       发表于 2020-4-26 13:52
+
+
+
+
+v圈这种扩张圈子来提高付费人数可比提高付费率容易多了，再说了，韭菜少了也禁不住多割啊
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 9228#       发表于 2020-4-26 13:57
+
+
+
+ 本帖最后由 锡哒哒 于 2020-4-26 13:59 编辑 
+
+有关付费人数，招新人也不一定能吸引多少新观众，相反的老主播也不一定吸引不了新观众。当然不是说因为这样抽卡就不值得，只是抱着只要抽了就会有人看的心态去强抽还是不可取，吧
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9229#       发表于 2020-4-26 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210437&amp;ptid=1924531" target="_blank">winda 发表于 2020-4-26 13:16</a>
+
+hololive cn虽然属于hololive pro，却不等于hololive 。    (用科普holostar不等于hololive的定型文改更有 ...</blockquote>
+我要写作业啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种事有你们提就好了，我的目的就达到了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9230#       发表于 2020-4-26 14:01
+
+
+
+
+虹的问题其实不是抽太多卡而是抽到的卡不行吧。江露莉安之后都扛不起大旗。杏却搞到了黄金世代三期生跟龙皇。
+
+如果把虹底边砍了变成跟杏差不多人数会有多大影响？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9231#       发表于 2020-4-26 14:06
+
+
+
+
+比温馨大家庭比不过杏，又自断大型多人联动企划，这不是要亡了吗。不合适，不合适。
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 9232#       发表于 2020-4-26 14:07
+
+
+
+
+总是说黄金三期和龙皇，难道四期生除了龙皇其他的连sr都不算吗
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 9233#       发表于 2020-4-26 14:07
+
+
+
+
+
+无内鬼，来点gamers不仲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+前彩虹gamers一期生叶在接受V综车轱辘报访问时，炮轰椎名唯华和本间向日葵等人，称她们就是彩虹gamers的毒瘤。
+
+
+叶谈到：“如果你作为gamers的老大哥，你本应该感到高兴因为这是一种荣誉，你可以带领你的团队不断前进，你就是团队领袖，但是我从来没有享受过这样的待遇，团队有太多超级VTB，他们直播都是以我为主，本社休息室经常发生矛盾，开始我还试着去阻止，后来他们直接叫我闭嘴，我根本感觉不到在gamers的地位。”
+
+
+叶：“在休息室椎名唯华常常痛骂一些新人VTB，这再正常不过了，不过也有新人被激怒的时候，记得在一场本社大型联动休息的时候，椎名唯华联动中表现得很不自在，回到休息室用水瓶怒砸一位才进彩虹社的新人，当时很多VTB都已经无法容忍椎名唯华的所作所为，再加上那些常被她欺辱的VTB，无法阻止的一幕发生了，至少有10人群殴了椎名唯华，你可以想象被10人群殴的滋味，在一旁的笹木咲更是拍手叫好，不停大喊：“给我打，把她往死里打！”当时本间向日葵、葛叶这两位大佬并没有参与这次殴斗，他们也没有阻止，好像一切与他俩无关。”
+
+
+叶：“当发生那件事情后，椎名唯华的储物柜多了一根铁棍，我想她是用来防身吧，在今年gamers纪念配信中她正是用这根铁棍报复了本间向日葵。在纪念配信结束后，所有人回到休息室，笹木咲讽刺性地说道：“彩虹次期天皇，明天你订阅就要被凑阿库娅超了。”本间向日葵脸色僵硬但并没有回应什么，只是默默地走出休息室，这不像本间向日葵的性格，果然在本间向日葵再次回到休息室的时候手里握着一根木棍，在笹木咲毫无防备的情况一棍打下，笹木咲挨那一下着实不轻，趴在地上痛苦地抬头才看到打她那人正是本间向日葵，不等笹木咲起身，本间向日葵又是一顿乱棍爆打，笹木咲在地上满地打滚不停求饶，在一旁的椎名唯华可不会放过这样的机会不断说道：“向日葵，打熊猫，用力打，往死里给我打，打熊猫怎能少了我。”椎名唯华的防身铁棍终于派上了用场，可惜一棍下去笹木咲就昏死了过去，打得兴起的本间向日葵怒了，朝着椎名唯华吼道：“这下还还怎么打，你该滚一边去！”椎名唯华也不甘示弱：“你再说一遍，有种你重复一遍！”本间向日葵没有再回应椎名唯华什么，如果椎名唯华手上没有铁棍那么她们肯定会打起来。当时我身边的叶子嘴里不停地说：“疯了，疯了，都已经疯了。”
+
+
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9234#       发表于 2020-4-26 14:08
+
+
+
+
+也别江露莉安了，四个人只有露一个人能维持直播频率，早晚也得被历史的车轮碾过去<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 12:12** 
+> ## **本文件最后更新于2020-04-26 14:09** 
 
 
 
@@ -3005,4 +3005,621 @@ mea一个未成年人上哪儿来资产。就算海苔男也没几个存款的�
 
 
 
-                                            
+
+
+-----
+
+####  Mr.shelter  
+##### 171#       发表于 2020-4-26 12:14
+
+
+
+
+我寻思这女人这没做过什么养gachi的事儿啊，倒是一直在杀......
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 172#       发表于 2020-4-26 12:16
+
+
+
+
+她才有几个gachi啊……
+
+核心粉比例稍微多点不代表这些人就是gachi，那几个我很羡慕的总能给她打红sc的，不是有家庭就是有女友了。
+
+还要好几年才能有自己的收入，难受<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 173#       发表于 2020-4-26 12:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第一次听这首歌原曲，男声听着很清爽啊。不知道mea这版本，调完是什么样的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 174#       发表于 2020-4-26 12:20
+
+
+
+
+刷b博了可还行
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 175#       发表于 2020-4-26 12:21
+
+
+
+
+bsyl希望不要再bgm拉满了……
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 176#       发表于 2020-4-26 12:22
+
+
+
+
+又刷屏，anti了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 177#       发表于 2020-4-26 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连发六条，掉粉不可避。丫的看个二创手书都大喘气，您倒是直播鉴赏啊（半恼）
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 178#       发表于 2020-4-26 12:30
+
+
+
+
+直播看二创不是混时长才用的下策吗(
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 179#       发表于 2020-4-26 12:31
+
+
+
+
+md又刷屏，取关了（
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 180#       发表于 2020-4-26 12:32
+
+
+
+ 本帖最后由 JustW 于 2020-4-26 12:35 编辑 
+
+bsyl：她会转发了？
+
+哦没有啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 181#       发表于 2020-4-26 12:36
+
+
+
+ 本帖最后由 Sanguine 于 2020-4-26 12:38 编辑 
+
+孩子想起来b站官号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+草，转发还不是自己转的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 182#       发表于 2020-4-26 12:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们要是有你麻这水平m楼现在起码60多楼了
+
+syl<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">前几天不还在半夜翻官组视频吗
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 183#       发表于 2020-4-26 12:43
+
+
+
+
+她应该忘了自己还有微博账号吧
+
+那个华为手机估计都已经扔了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 184#       发表于 2020-4-26 12:46
+
+
+
+
+她推特被封就换新手机了吧，好像推特账号和手机号是绑定的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 185#       发表于 2020-4-26 12:48
+
+
+
+
+忘了就忘了，微博没啥意义
+syl，来人教你咩姐syl
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 186#       发表于 2020-4-26 12:52
+
+
+
+
+不经意间把泥潭网址暴露给她就行，骗她是虚拟5ch还会不来看？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 187#       发表于 2020-4-26 13:03
+
+
+
+
+日语5ch她都不一定看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中文的她会来看？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 188#       发表于 2020-4-26 13:07
+
+
+
+
+泥潭用语yygq谷歌翻译不来的，想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你V版外野都看不懂咩能看懂个球
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 189#       发表于 2020-4-26 13:08
+
+
+
+
+今天皮套man很机灵嘛，赏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl  5ch还是要去的 可以编几个段子回来 这里啥都看不懂有什么好看的 可能本人好不容易注册个号发日文还被当成拟态虫一顿输出  这么想想突然好期待啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+syl syl是省一楼吧 没理解错吧
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 190#       发表于 2020-4-26 13:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议把发情楼扔评论区。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 191#       发表于 2020-4-26 13:15
+
+
+
+
+噶吃多不多不知道，疯了的人比例体感是真的高
+
+
+大家都跟着她一起一上一下的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 192#       发表于 2020-4-26 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210419&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-4-26 13:15</a>
+
+噶吃多不多不知道，疯了的人比例体感是真的高
+
+
+大家都跟着她一起一上一下的 ...</blockquote>
+好，好色哦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+屏幕里的小麻一上一下，屏幕前的肥宅也一上一下
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 193#       发表于 2020-4-26 13:22
+
+
+
+
+syl，疏远了，指渐行渐远
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 194#       发表于 2020-4-26 13:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/132237m4t74c1xl77ff44l.png" referrerpolicy="no-referrer">
+
+
+<strong>0CF385C0-A79D-41AC-BF69-BBC45EFBB284.png</strong> (24.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 13:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 195#       发表于 2020-4-26 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209614&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-04-26 12:06:11</a>
+看到钱流口水跟总资产有啥关系......大小都是肉啊。不过我一直很好奇为啥mea的gachi很多，为啥大家都想给她 ...</blockquote>谁的sc多、舰长多，谁的gachi就多，明显mea不是最多的，甚至不是第一梯队的，gachi多这话就不要提了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 196#       发表于 2020-4-26 13:26
+
+
+
+
+现在跟大物比噶吃确实不行，问题是当你麻噶吃不就是自己找罪受吗
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 197#       发表于 2020-4-26 13:28
+
+
+
+
+当咩啊gachi要天天挨骂，所以留下来的gachi纯度一定很高
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 198#       发表于 2020-4-26 13:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次推特投票有一千多个呢，排除掉80%点着玩的剩下200多个，emmmm，大概还行8
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 199#       发表于 2020-4-26 13:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">那么有新麻图吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 200#       发表于 2020-4-26 13:50
+
+
+
+
+找到了新麻图的不要私藏，要与大家一起分享<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 201#       发表于 2020-4-26 13:51
+
+
+
+
+lol三期怎么没了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 202#       发表于 2020-4-26 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210764&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-26 13:51</a>
+lol三期怎么没了</blockquote>
+还在啊，我能看啊
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 203#       发表于 2020-4-26 13:58
+
+
+
+
+不会真的入PCR坑了吧 怕不是在重氪的道路上越走越远了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 204#       发表于 2020-4-26 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210799&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-26 13:55</a>
+还在啊，我能看啊</blockquote>
+lol高能时刻第三期，我这边找不到了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 205#       发表于 2020-4-26 14:04
+
+
+
+
+我还是觉得如月10月份那张高中同学背影的身段和头跟你麻在麦当劳那张的还蛮匹配的，可惜已经被删了无从考究，不知道有挖掘机特到如月小号没
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 206#       发表于 2020-4-26 14:05
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-26 14:06 编辑 
+
+gachi本意不是男友粉吗，怎么就跟打钱多等同了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然确实两者是正相关没错就是了，不过有些石油佬也不是真当gachi才给她打钱的吧
+
+
+
+
+
+                                           
