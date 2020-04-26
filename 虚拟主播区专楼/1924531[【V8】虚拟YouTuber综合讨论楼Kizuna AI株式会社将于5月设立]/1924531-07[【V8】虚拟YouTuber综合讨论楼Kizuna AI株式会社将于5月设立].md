@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 16:06** 
+> ## **本文件最后更新于2020-04-26 18:05** 
 
 
 
@@ -6575,4 +6575,1691 @@ Hololive二期生凑阿夸在自传中爆出猛料，称自己当初在时与白
 
 
 
-                                      
+
+
+-----
+
+####  某穆克拉  
+##### 9347#       发表于 2020-4-26 16:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/160624pmtdhe9rhrqeiwkr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWdq6ZUUMAAmK5p.jpg</strong> (159.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 16:06 上传
+
+
+
+
+
+
+发一张曲线比较正常的小天使。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9348#       发表于 2020-4-26 16:08
+
+
+
+
+纯孝子以前是明显有的，各种弱智刷屏，最近不怎么见了。mgs比其他高同接的游戏多了大概6k同接，不过也不确定周末的因素占多少。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9349#       发表于 2020-4-26 16:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狐狸哪里治愈了，整天yygq的，看多了会变梁木人吧
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9350#       发表于 2020-4-26 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212202&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-26 16:08</a>
+
+纯孝子以前是明显有的，各种弱智刷屏，最近不怎么见了。mgs比其他高同接的游戏多了大概6k同接，不过也不确 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 今天黄金周
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9351#       发表于 2020-4-26 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212206&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-04-26 16:08:53</a>
+狐狸哪里治愈了，整天yygq的，看多了会变梁木人吧</blockquote>狐狸直播内容还行吧，yygq不主要都是推特分析和行为分析吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9352#       发表于 2020-4-26 16:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/161057r9xcy8gbslc6l7sl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200426161044.png</strong> (9.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 16:10 上传
+
+
+
+
+
+
+恭喜兔皇
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9353#       发表于 2020-4-26 16:12
+
+
+
+
+一兔 ≈ 半纯
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9354#       发表于 2020-4-26 16:13
+
+
+
+
+坂上先生还挺效率的嘛 demo曲几天就做出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9355#       发表于 2020-4-26 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 楼里虹人不会被这个数字瞎的尿裤子了把，别恶心我，
+
+我木口同接秒杀、sc秒杀，
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9356#       发表于 2020-4-26 16:16
+
+
+
+
+兔皇3w了，果然要靠播片，MGS4重大利好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl 狐狸推特把人变成鬼，以后只看直播好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9357#       发表于 2020-4-26 16:16
+
+
+
+<blockquote>qq845629713 发表于 2020-4-26 16:13
+楼里虹人不会被这个数字瞎的尿裤子了把，别恶心我，
+
+我木口同接秒杀、sc秒杀，
+
+ ...</blockquote>
+说到现在终于能说是运营差距导致的公司差距了吧
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 9358#       发表于 2020-4-26 16:16
+
+
+
+
+兔皇这个月成绩斐然啊，酸也没用
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 9359#       发表于 2020-4-26 16:17
+
+
+
+<blockquote>金魚佬 发表于 2020-4-26 16:08
+狐狸哪里治愈了，整天yygq的，看多了会变梁木人吧</blockquote>
+yygq是职业女性社交生活的一环，不爽不要玩
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9360#       发表于 2020-4-26 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212309&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-26 16:16</a>
+
+说到现在终于能说是运营差距导致的公司差距了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 这就是ichikara自由的空气吗？真的香甜那？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9361#       发表于 2020-4-26 16:18
+
+
+
+<blockquote>金魚佬 发表于 2020-4-26 16:08
+狐狸哪里治愈了，整天yygq的，看多了会变梁木人吧</blockquote>
+有一说一，对于不是刺头的同事，狐狸照顾得算很好了，明明是没这个义务的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9362#       发表于 2020-4-26 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212336&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-26 16:18</a>
+
+有一说一，对于不是刺头的同事，狐狸照顾得算很好了，明明是没这个义务的 ...</blockquote>
+我又不是她同事，只是个日常被敲打的观众，感觉不到治愈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 9363#       发表于 2020-4-26 16:23
+
+
+
+
+船宝这个同接，sc就嗯上不去，是因为gachi不够吗
+
+昨天也是三期上刚来节目效果拉满，结果直接打卡下班了。。导致放ED的时候刷了好多SC
+
+
+
+
+
+
+
+-----
+
+####  丢了五块钱  
+##### 9364#       发表于 2020-4-26 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212163&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-26 16:05:30</a>
+套在狐狸身上也没问题啦</blockquote>fbk看过几个熟肉就觉得rp痕迹太重，可能是我也不是萌萌人了，年纪偏大
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9365#       发表于 2020-4-26 16:25
+
+
+
+
+狐皇要的不是阴阳怪气，要的就是她每发一条推就能让你们在各个地方反复分析讨论她的微言大义，研究她到底是不是阴阳怪气，你看现在这目的不是达到了？“狐皇今天又发了啥啥推，是不是在阴阳怪气谁谁谁什么事”是不是变成楼里日常了？这就对了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9366#       发表于 2020-4-26 16:26
+
+
+
+
+兔子这个同接居然还在加，哪来这么多人不看前面的内容还能进直播间直接看…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9367#       发表于 2020-4-26 16:26
+
+
+
+<blockquote>sisyphus_ 发表于 2020-4-26 16:23
+船宝这个同接，sc就嗯上不去，是因为gachi不够吗
+
+昨天也是三期上刚来节目效果拉满，结果直接打卡下班了。。 ...</blockquote>
+不如说昨晚的等待连线来的人除了三期生那么少我也有点费解，也就小肥妹早早去了为此当初还把自己的等待三十万直播砍到一小时连sc都没念
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9368#       发表于 2020-4-26 16:26
+
+
+
+ 本帖最后由 某穆克拉 于 2020-4-26 16:28 编辑 
+
+联动sc低算是正常？去看了下原来是25w纪念，姐姐啊您都29.5w关注了才办25w纪念吗？
+
+要打钱的估计早就打完了吧。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9369#       发表于 2020-4-26 16:26
+
+
+
+
+小肥妹好起来了 同接高起来了
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9370#       发表于 2020-4-26 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212309&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-26 16:16</a>
+
+说到现在终于能说是运营差距导致的公司差距了吧</blockquote>
+田角：等Seele出道就要你们全都跪在我面前道歉<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9371#       发表于 2020-4-26 16:29
+
+
+
+<blockquote>中野六小龄童 发表于 2020-4-26 16:26
+小肥妹好起来了 同接高起来了</blockquote>
+今天不是还没直播吗怎么突然说这个？
+
+syl，她鸽了边读sc边杂谈的直播我还是有点伤心啊，没提没所谓提了又鸽了真的不太爽
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9372#       发表于 2020-4-26 16:29
+
+
+
+
+低调 隐忍 杀戮！<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9373#       发表于 2020-4-26 16:29
+
+
+
+[https://twitter.com/kanadeizuru/status/1254325423976198144](https://twitter.com/kanadeizuru/status/1254325423976198144)
+
+虽然奏手很会做饭，但是有人能和他说一下拍吃的不要用这种滤镜吗.......
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/162937hpjppkkwtwzar6yt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (441.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 16:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9374#       发表于 2020-4-26 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212496&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 16:29</a>
+
+https://twitter.com/kanadeizuru/status/1254325423976198144
+
+虽然奏手很会做饭，但是有人能和他说一下拍 ...</blockquote>
+这滤镜好克系  <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9375#       发表于 2020-4-26 16:30
+
+
+
+
+船皇这SC不低了，还是前四太强了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">昨天纪念时直接下班太突然了。估计有不少人是打算凸结束后打的，结果直接下了根本措手不及。看月末的冲30w吧。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9376#       发表于 2020-4-26 16:30
+
+
+
+<blockquote>free 发表于 2020-4-26 16:29
+https://twitter.com/kanadeizuru/status/1254325423976198144
+
+虽然奏手很会做饭，但是有人能和他说一下拍 ...</blockquote>
+这种滤镜不就是为了掩饰不会做饭吗，你看看皆村老师的菜式图多直白且好看，还会做口水鸡呢
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9377#       发表于 2020-4-26 16:32
+
+
+
+
+这一盆呕吐物可以看出其主人吃的又素又油并且不太爱咀嚼
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9378#       发表于 2020-4-26 16:32
+
+
+
+
+日均85.5条的推废，先加三层滤镜，再拿着显微镜看，当然是能看出一个宇宙来的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9379#       发表于 2020-4-26 16:33
+
+
+
+
+这一碗确实有点掉san，想起之前追的一本克系网文的描述了。。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9380#       发表于 2020-4-26 16:33
+
+
+
+
+等一下 ... ... 你们怎么都在看杏星 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 9381#       发表于 2020-4-26 16:35
+
+
+
+
+建议楼里某些人去北京和红学学会交流下心得成立狐学学会
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9382#       发表于 2020-4-26 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212488&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-26 16:29</a>
+今天不是还没直播吗怎么突然说这个？
+
+syl，她鸽了边读sc边杂谈的直播我还是有点伤心啊，没提没所谓提了又 ...</blockquote>
+年初那会平均三千不到 现在往四千冲了
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9383#       发表于 2020-4-26 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212627&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-4-26 16:39</a>
+
+年初那会平均三千不到 现在往四千冲了</blockquote>
+当初ark的buff巨大的时候她选择在别人频道出现和独食，我都不知道她发什么神经了，现在以及完全不想谈她同接了，明明自己又那么在意同接
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9384#       发表于 2020-4-26 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212649&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-26 16:41:12</a>
+当初ark的buff巨大的时候她选择在别人频道出现和独食，我都不知道她发什么神经了，现在以及完全不想谈她 ...</blockquote>那段时间是一开始被回收收益化，所以先预约了去别人频道联动，然后又拿回收益化了但已经定了去人家频道吧。至于那段时间夏哥是不是被指示厨烦到了就不知道了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9385#       发表于 2020-4-26 16:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">又给起来了。
+
+别人刚拔完智齿，只能吃流食吧
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 9386#       发表于 2020-4-26 16:51
+
+
+
+
+为什么一定是运营差距，就不能是人不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+2000哥，我感受到了你内心的温柔<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 9387#       发表于 2020-4-26 16:51
+
+
+
+
+为什么一定是运营差距，就不能是人不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9388#       发表于 2020-4-26 16:54
+
+
+
+
+我是没看出木口营业策略成功在哪了，他yagoo有这个智商搞木口星的时候就会开个新企划乃至新公司
+
+倒不如说就是抽卡抽的好，无印一二三四期期期有SSR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9389#       发表于 2020-4-26 16:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212770&amp;ptid=1924531" target="_blank">雅朵莉雀 发表于 2020-4-26 16:51</a>
+
+为什么一定是运营差距，就不能是人不行吗
+
+2000哥，我感受到了你内心的温柔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> ，运营和运营的差距你看mrr在两社的成绩就知道了
+
+
+mrr在本社：几百同接，订阅不到10w，sc拉跨，社内顶点（兔头）不搭理她，
+
+
+mrr在木口：上千同接，订阅10w+，sc最次也有150w，社内大佬纷纷积极把饭嚼烂喂到嘴里，
+
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9390#       发表于 2020-4-26 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212807&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 16:54</a>
+
+我是没看出木口营业策略成功在哪了，他yagoo有这个智商搞木口星的时候就会开个新企划乃至新公司
+
+
+倒不如说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">阿笹（SSR）俩人撑到19年呢，
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9391#       发表于 2020-4-26 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212807&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 16:54</a>
+
+我是没看出木口营业策略成功在哪了，他yagoo有这个智商搞木口星的时候就会开个新企划乃至新公司
+
+
+倒不如说 ...</blockquote>
+yagoo的能力不就是运营的能力？抽卡的能力不是能力吗www
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9392#       发表于 2020-4-26 16:57
+
+
+
+
+一弦现在发个啥都是油画滤镜，上次连摘个野菜都是油画滤镜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但他之前很早的一次不用油画滤镜看起来还不错，我还是相信他会做饭的
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 9393#       发表于 2020-4-26 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212811&amp;ptid=1924531" target="_blank">qq845629713 发表于 2020-4-26 16:54</a>
+
+，运营和运营的差距你看mrr在两社的成绩就知道了
+
+
+mrr在本社：几百同接，订阅不到10w，sc拉跨， ...</blockquote>
+几百同接不到10w和上千同接超过10w这差距也没什么啊，还是在木口同期龙皇有一手早安可可可以加大曝光度的前提下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9394#       发表于 2020-4-26 17:01
+
+
+
+
+这是10月份发的
+
+
+<img src="https://img.saraba1st.com/forum/202004/26/170116wcmkmwrmkgchvcug.png" referrerpolicy="no-referrer">
+
+
+<strong>1587891590540.png</strong> (694.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 17:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9395#       发表于 2020-4-26 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212839&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-26 16:57:24</a>
+yagoo的能力不就是运营的能力？抽卡的能力不是能力吗www</blockquote>这么一说好有道理，千里马常有而伯乐不常有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl，兔子今天峰值应该是3W2吧，mgs后面还有，不知道还能不能涨。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9396#       发表于 2020-4-26 17:02
+
+
+
+
+楼上说的也算是抽卡策略的优劣了，底边太多，上位就救不过来，单独救一两个又容易引发社内矛盾，难做呀。
+
+同时，说是抽卡但其实是双向选择，同样的分成合同，好卡肯定优先去尝试更热情，扶植力度更大的地方，别人选剩下了才是你能抽的。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9397#       发表于 2020-4-26 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212778&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-26 16:51</a>
+
+为什么一定是运营差距，就不能是人不行吗</blockquote>
+原本确实不好比，但这不是出来mrr这个参考系了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9398#       发表于 2020-4-26 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212867&amp;ptid=1924531" target="_blank">Mika-S 发表于 2020-4-26 17:00</a>
+
+几百同接不到10w和上千同接超过10w这差距也没什么啊，还是在木口同期龙皇有一手早安可可可以加大曝光度的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 成绩差距其实无所谓，氛围更重要，举个例子：
+
+
+龙圣早安可可大力宣传，大家纷纷感觉美好大家庭，mrr本人心里暖暖的；
+
+
+你要是天皇百物语、愚人节整活宣传社内底边，大家（特指太监囚人）纷纷觉得底边没🐎，整活宣传你🐎，
+
+
+垃圾ichikara强塞垃圾底边给我天皇，那么社内底边本人怎么想？
+
+
+
+————这就是差距了
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9399#       发表于 2020-4-26 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212839&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-26 16:57:24</a>
+yagoo的能力不就是运营的能力？抽卡的能力不是能力吗www</blockquote>他杏三四期还可说是内定和选人挑上来的，无印和一二期除了利香是内定的其他不纯粹是运气好撞上的？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+一小公司随便招聘不到十来个人，有空妈有狐皇有夸皇，这运气已经顶天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9400#       发表于 2020-4-26 17:05
+
+
+
+
+为狐学研究献份力，正在把狐狸所有推文扒下来
+
+<img src="https://img.saraba1st.com/forum/202004/26/170455s9bugsksks9swks9.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-26 165905.png</strong> (115.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 17:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9401#       发表于 2020-4-26 17:05
+
+
+
+
+纯云的，mrr在彩虹的直播频率也比不过露娜在木口吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 9402#       发表于 2020-4-26 17:08
+
+
+
+
+没钱没人看没人喂饭，运营和liver每天撕逼打架，同期隐退，你给我我也不播
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9403#       发表于 2020-4-26 17:09
+
+
+
+
+话说小天使今天又抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这真的是万南工商吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9404#       发表于 2020-4-26 17:11
+
+
+
+ 本帖最后由 金魚佬 于 2020-4-26 17:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">彩虹无敌的19组怎么了，听闻每次都能抽到SSR，怎么现在变成好像天底下的SSR都被yagoo抽走了一样？而且hololive歌力游戏力双拉，只会一手养gachi割韭菜，气吞天下的虹都看不上的吧。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9405#       发表于 2020-4-26 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212977&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-26 17:09</a>
+
+话说小天使今天又抽卡这真的是万南工商吧
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+多抽点，dd喜欢看。
+
+最近就期待小天使每天抽卡然后发情，别的感觉都没意思了。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9406#       发表于 2020-4-26 17:12
+
+
+
+
+可以作为语料随便喂给一个RNN，搞个狐推生成器，这样即使她不发推，也能有材料可以解读
+
+
+
+
+
+
+
+-----
+
+####  囧Smith  
+##### 9407#       发表于 2020-4-26 17:13
+
+
+
+
+你们狐学家已经饥渴到这种地步了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 9408#       发表于 2020-4-26 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉就是工商吧，又不是第一次免费十连，真就天皇带起来的也不用这样高密度播吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 9409#       发表于 2020-4-26 17:14
+
+
+
+
+化学家们咋不扒一下化合物互动呢？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9410#       发表于 2020-4-26 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213027&amp;ptid=1924531" target="_blank">暴走的包子 发表于 2020-4-26 17:13</a>
+
+感觉就是工商吧，又不是第一次免费十连，真就天皇带起来的也不用这样高密度播吧
+
+
+—— 來自 samsung ...</blockquote>
+那万代这工商效果还是超值的。
+
+不过不是说爱马仕不太看得上v的工商吗，之前有明确到谁接到爱马仕的工商吗？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9411#       发表于 2020-4-26 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213026&amp;ptid=1924531" target="_blank">囧Smith 发表于 2020-4-26 17:13</a>
+
+你们狐学家已经饥渴到这种地步了吗</blockquote>
+说到对狐狸饥渴……现在狐狸贵为直播系第一人，又天天如诸葛那般yygq，这样的女人被你征服也许很有成就感？
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 9412#       发表于 2020-4-26 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47212913&amp;ptid=1924531" target="_blank">qq845629713 发表于 2020-4-26 17:04</a>
+
+成绩差距其实无所谓，氛围更重要，举个例子：
+
+
+龙圣早安可可大力宣传，大家纷纷感觉美好大家庭， ...</blockquote>
+彩虹不是也有让底边表现自己的各种大会啊，MIX UP之类的啊，你不要老盯着天皇的百物语不放啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9413#       发表于 2020-4-26 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213074&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-26 17:17:32</a>
+说到对狐狸饥渴……现在狐狸贵为直播系第一人，又天天如诸葛那般yygq，这样的女人被你征服也许很有成就感 ...</blockquote>清醒点，谁征服谁搞清楚干嘛
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9414#       发表于 2020-4-26 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213119&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-26 17:21</a>
+
+清醒点，谁征服谁搞清楚干嘛
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+哎，因为这种想法……一直没感觉的狐狸fanart变的涩起来了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9415#       发表于 2020-4-26 17:25
+
+
+
+
+说到抽卡我最好奇的还是空妈和A酱是谁把谁拉进杏的，A酱从一开始就叫空妈 sora，都不带酱的，应该是来杏之前就很熟了。
+
+A酱这个全能人才啊，早期给空妈做视频MV，现在各种联动缺人就拉来当主持嘉宾的，空妈看着傻呵呵的，居然还有这种朋友。
+
+
+[https://twitter.com/f_fuu/status/1254308583371489280](https://twitter.com/f_fuu/status/1254308583371489280)
+
+<img src="https://img.saraba1st.com/forum/202004/26/172455vssf6kdfnpwkxpdi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a.jpg</strong> (668.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-26 17:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9416#       发表于 2020-4-26 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213149&amp;ptid=1924531" target="_blank">free 发表于 2020-4-26 17:25</a>
+
+说到抽卡我最好奇的还是空妈和A酱是谁把谁拉进杏的，A酱从一开始就叫空妈 sora，都不带酱的，应该是来杏之 ...</blockquote>
+yagoo真的狗屎运……然而19年前后谁敢说这些话，现在看A酱离秋月律子只差台上唱跳而已，这样完美复刻IM@S本家剧情真是无语
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 9417#       发表于 2020-4-26 17:30
+
+
+
+
+建设狐学研究专楼迫在眉睫
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 9418#       发表于 2020-4-26 17:32
+
+
+
+ 本帖最后由 noHentai 于 2020-4-26 17:33 编辑 
+
+发现你们吹木口还不如我会吹，好好看好好学怎么云P。
+
+
+当然不可能只是单方面的差距，而是运营和人两方面都有差距。
+
+对于直播势来说，运营不可能像其他类型的V一样，事先做好人设、规划好全部的内容，绝大部分的成绩本就要回归到liver自身以及直播上来。
+
+
+从人的角度上来说，yagoo一开始说想做偶像是一方面，一期生产出的内容、形成的直播风格、对自身角色的塑造与包装才是确立一个箱后续发展的根本，后辈无论是有意还是无意，或多或少必然都会模仿前辈的风格、顺着这样的氛围。更简单一点来说，木口出道的人，首先必然是原本就看木口、被驯化的粉丝，是喜欢那种直播风格和氛围的，当然自己也会这样做。所以当白上吹雪这样的一期生与yagoo的想法不谋而合时，可以说第一步就成功了、铺下的轨道也是正确的，而白上她的能力就不用多说了。随后二期生aqua在此基础上，又用自己的能力拉来了大量能打钱的粉丝，彻底贯彻了“偶像”这条道路。
+
+但风格并非没有缺陷，只有一、二期生时的木口最常见的负面评价无疑是“虚无”二字。不过随着体量的发展，风格传承的过程中当然会有“变异”，三期生、四期生的peko、船长、龙皇毫无疑问对木口整体的氛围和直播风格又带来相当大的革新，是“良性变异”，彻底弥补了所谓“虚无”的缺点。与此同时伴随着箱本身的快速扩张期，因此被吸引、未来出道的后辈，必然也会继续传承、发展下去这种优异的氛围，构成了良性循环。
+
+
+从运营的角度上来说，cover的运营正如yagoo及其高层团队的年龄段一样，稳重又不失进取。首先就是车轱辘过许多遍的少抽卡、精细化包装运营了。从为liver准备好必要的配信器材为起点，大到高水平的3D设备、技术，对冲国进出的杰出判断和魄力，以及拉来碧蓝航线这样的高回报工商，小到最近我一直有在说的，那首holo摇。holo摇的创作就是跟liver无关，纯粹的运营胜利。巩固线上定位，做好资金储备，稳扎稳打，运营之后无论想做什么都会更加轻松。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|有理有据，令人信服。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9419#       发表于 2020-4-26 17:34
+
+
+
+
+我倾向于飞鸟和sora没什么特别的关系，进了holo才认识的可能性高一点
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9420#       发表于 2020-4-26 17:34
+
+
+
+
+今天A不是发推说买了唱歌用的家用吸音材料吗，创自己的频道可能性上升。
+但不过被黑之前承诺不创建自己channel的，现在的举止完全是“挡在sora前面”
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 9421#       发表于 2020-4-26 17:36
+
+
+
+
+ORICON 专辑日榜 2020/04/25付
+
+
+petit fleurs 1st Album 「premiere fleurs」第5日排名44位。
+<img src="https://p.sda1.dev/0/94fa1e9f98a4049edbaa2cc4e366e520/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9422#       发表于 2020-4-26 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47213262&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-26 17:34</a>
+
+今天A不是发推说买了唱歌用的家用吸音材料吗，创自己的频道可能性上升。
+
+但不过被黑之前承诺不创建自己chan ...</blockquote>
+现在疫情长期化，在家里主持节目参加联动的时间肯定越来越多，但这不一定就是创自己的频道，用官号也是很正常的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9423#       发表于 2020-4-26 17:39
+
+
+
+
+别吹了，请回头看holo一期出道时的评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ときのそら　乙烷
+ロボ子　neet、线下pako、乞食
+フブキ　不正行为、乞食
+まつり　debu、RP完全无视
+アキ　瞒着丈夫配信
+クリス　雷普被害
+はあと　H以外，无
+メル　干都不想干
+
+cover已经完蛋了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 9424#       发表于 2020-4-26 17:40
+
+
+
+
+【歌ってみた】-ERROR【町田ちま/にじさんじ】
+[https://www.youtube.com/watch?v=eIYdsLWkc-o](https://www.youtube.com/watch?v=eIYdsLWkc-o)
+<img src="https://p.sda1.dev/0/e095adb3f32eec2024d6bb4acf0f8397/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9425#       发表于 2020-4-26 17:42
+
+
+
+
+V1楼还在呢，回去看看对彩虹一期的评价，比他杏也没有好到哪去
+
+我到现在都记得那句很经典的“一下子出8个，这看得过来吗”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9426#       发表于 2020-4-26 17:42
+
+
+
+<blockquote>友人A「主役のそらがうまく飛び立てるように、その日まで私も一生懸命がんばりたいです。」</blockquote>
+回过头来看，这一天不但已经到了，而且已经是过去时了
+
+从一个人的友人A到大家的A酱，飞鸟桑现在渐行渐远也是意料之中了
+
+也没什么对错，就是有点无奈
+
+她和aqua的互动真的蛮有意思的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9427#       发表于 2020-4-26 17:44
+
+
+
+
+现在想想，要是V5之前的V综出现吹运营的，怕不是现在早就把stars好好顺劈一顿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">某种意义上，一弦那次B限对stars在中国的风评也算勉强救回来了一点吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9428#       发表于 2020-4-26 17:50
+
+
+
+
+回过头来看，倒不如说虹杏之外一个接一个的纷纷自爆才是最不可思议的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9429#       发表于 2020-4-26 18:03
+
+
+
+
+chima是一个观测🌈运营路线是否有优化的标准，别再和阿玲千南那样浪费了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9430#       发表于 2020-4-26 18:03
+
+
+
+
+点开粽子直播居然又是萝莉化
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9431#       发表于 2020-4-26 18:04
+
+
+
+
+你杏除了空龙羊还有没萝莉化过的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9432#       发表于 2020-4-26 18:04
+
+
+
+
+※狐学原典※
+
+shirakamifubuki所有推文及带文字转推（39014条）
+[https://send.firefox.com/downloa ... e_1SqZOtteojru5DPvQ](https://send.firefox.com/download/a5bc36d5a9f638fb/#rFse_1SqZOtteojru5DPvQ)
+
+100次下载或7天后过期
+
+
+咱散步去了，回来再统计分析
+
+
+
+
+
+                                   
