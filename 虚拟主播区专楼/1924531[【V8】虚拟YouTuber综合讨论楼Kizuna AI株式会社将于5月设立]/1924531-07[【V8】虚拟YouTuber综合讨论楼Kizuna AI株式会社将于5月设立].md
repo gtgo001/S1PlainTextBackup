@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 02:10** 
+> ## **本文件最后更新于2020-04-27 04:06** 
 
 
 
@@ -14058,7 +14058,7 @@ QQ截图20200427015144.png
 
 
 QQ截图20200427015129.png
-(988 KB, 下载次数: 0)
+(988 KB, 下载次数: 1)
 
 
 
@@ -14260,7 +14260,7 @@ QQ截图20200427015129.png
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217934&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-27 01:59</a>
 
 说起来历史上松散联邦被集权国家暴打也不是一次两次了</blockquote>
-松散联邦还好了，现在你虹给我的感觉就是奥匈帝国或者奴隶制的美国，一边是向偶像圈高歌猛进的上层，一边是坚守套皮主播不动摇的底边。两边割裂的吓人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">11
+松散联邦还好了，现在你虹给我的感觉就是奥匈帝国或者奴隶制的美国，一边是向偶像圈高歌猛进的上层，一边是坚守套皮主播不动摇的底边。两边割裂的吓人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
 
@@ -14282,4 +14282,284 @@ QQ截图20200427015129.png
 
 
 
-                         
+
+
+-----
+
+####  wsotaku  
+##### 9749#       发表于 2020-4-27 02:11
+
+
+
+<blockquote>Zaphikel 发表于 2020-4-27 01:54
+利香这两张图是梅露妈Ayamy的画风吧？画师是否知晓中之人身份呢？
+
+
+</blockquote>
+这画师在梅露出道前就给利香画形象图了，你说知道不知道www
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 9750#       发表于 2020-4-27 02:11
+
+
+
+
+天谴没有降临到七色太监身上，反而是彩虹的v们受到惩罚，这可真是<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">苍天不公
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9751#       发表于 2020-4-27 02:13
+
+
+
+
+这也能扯到七色太监。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9752#       发表于 2020-4-27 02:14
+
+
+
+<blockquote>好德我基 发表于 2020-4-27 02:06
+你觉得看了那个视频的白皮会把兔头当成什么</blockquote>
+怪人，迷meme作者，也可能会和b站比较云的观众眼中的阿委差不多。如果还想看委继续产出迷meme的话估计会失望，阿委不耗点心思关照一下的话buff不会久的。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9753#       发表于 2020-4-27 02:15
+
+
+
+<blockquote>oshinoshinobu 发表于 2020-4-27 01:59
+说起来历史上松散联邦被集权国家暴打也不是一次两次了</blockquote>
+某nation因为疫情加速崛起，没想到杏也因为疫情加速崛起，yagoo真的能这么撞到大运……
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9754#       发表于 2020-4-27 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217980&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-27 02:14</a>
+
+怪人，迷meme作者，也可能会和b站比较云的观众眼中的阿委差不多。如果还想看委继续产出迷meme的话估计会 ...</blockquote>
+我认为白皮会把那个视频视为直接真人出镜，长远来看这样的认知并不好。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9755#       发表于 2020-4-27 02:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217980&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-04-27 02:14:01</a>
+怪人，迷meme作者，也可能会和b站比较云的观众眼中的阿委差不多。如果还想看委继续产出迷meme的话估计会 ...</blockquote>想见她短期内甚至一年内再做这样一个视频基本不可能了，本来就是废片cut，谁知道戳到白皮g点了。
+做起来不难，但她基本不可能有兴趣这么快再搞一次。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9756#       发表于 2020-4-27 02:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47218001&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-04-27 02:20:51</a>
+我认为白皮会把那个视频视为直接真人出镜，长远来看这样的认知并不好。 ...</blockquote>这方面还好吧，我看下面大部分白皮的评论，都是和我们一样，完全不知道看了什么，于是就反复的看……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9757#       发表于 2020-4-27 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217864&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 01:43</a>
+
+你圈牌面&gt;一切，你永远可以依赖通讯录摇人。</blockquote>
+我是真的不懂这联动怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+海苔男自己都没跟梅露单独联动过，不会是海苔男牵的线。
+
+mishiro自己就是个海苔男抓来的打工妹，也没道理跟利香以前认识。
+
+要说是梅露自己主动的就更不可能了，再说这联动不是开在梅露频道。
+
+
+除非是，梅露虽然自己不播，但是其实别人邀请她联动还是会去，只是木口大家庭这么久了没有一个人找她联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我信了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9758#       发表于 2020-4-27 02:26
+
+
+
+ 本帖最后由 proxima 于 2020-4-27 02:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217864&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 01:43</a>
+
+你圈牌面&gt;一切，你永远可以依赖通讯录摇人。</blockquote>
+这破网怎么又风怒
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9759#       发表于 2020-4-27 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47218014&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-27 02:26</a>
+
+这破网怎么又风怒</blockquote>
+有些神奇人脉就和绿仙社长一样当事人不说谁会知道。
+
+
+当然也有可能是新合同谈好了mel先找几个联动作为软起动吧。
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 9760#       发表于 2020-4-27 02:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我以为直播ff14已经够虚无了一看还是ulk不过看起来静凛玩得挺开心的
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 9761#       发表于 2020-4-27 03:10
+
+
+
+
+半夜乳一波苔姨
+
+平野绫今年都32了跳团舞依然元气满满的青春少女感，你苔姨比人家小五岁倒是老气横秋的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9762#       发表于 2020-4-27 03:19
+
+
+
+
+其实我很好奇你虹看见他杏最近连连吸了欧美粉，为何不抓紧跟进，委员长这一波不是也有很多英文评论吗，搞类似狐皇那些小视频也不需要很高的制作成本。既然都征集英语圈剪辑烤肉了，怎么这些不跟进一下，拉不下脸抄作业？
+
+
+
+省一楼，传说都是音乐剧演员了，而且经常演女主的，不光是唱，舞台表现形体气质都得多练的，而且体力也得够，不然一场怕是都唱不下来。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9763#       发表于 2020-4-27 03:42
+
+
+
+
+熊猫人是真的硬骨头，不如意了反应也特别快，早先稳坐三号位的可能还有顾忌，现在几轮打击搞得心态本身就差，逼急了会咬人的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+虹这么大盘子炸不了的，但如果樱之雨二周目，还真不知道该用什么表情面对<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
