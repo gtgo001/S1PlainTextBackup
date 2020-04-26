@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 00:07** 
+> ## **本文件最后更新于2020-04-27 02:10** 
 
 
 
@@ -11475,7 +11475,7 @@ BSYL：
 <img src="https://img.saraba1st.com/forum/202004/26/232649fbsrhceffxbzjhek.jpg" referrerpolicy="no-referrer">
 
 
-<strong>微信图片_20200426232340.jpg</strong> (351.37 KB, 下载次数: 0)
+<strong>微信图片_20200426232340.jpg</strong> (351.37 KB, 下载次数: 1)
 
 下载附件
 
@@ -12517,4 +12517,1769 @@ SYL：黑龙这种解法严格的boss不知道她要卡多久。</blockquote>
 
 
 
-                            
+
+
+-----
+
+####  charzeta  
+##### 9660#       发表于 2020-4-27 00:12
+
+
+
+
+吓得我赶紧开了个熊猫人会员去亲自听了下，看来确实是疫情原因，运营的一些做法让熊猫人不爽了。
+
+还好声音听上去情绪还不算太差，哎
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9661#       发表于 2020-4-27 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217193&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-27 00:00</a>
+
+然而新冠把一切线下全干爆了啊，而且在日本的拉垮政策下短时间绝对结束不了 ...</blockquote>
+线下多半是录制。
+
+
+前几天大阪还公布了几家头铁不肯关门的钢珠店，但日本法律也就到此为止了，人家接着开。田角硬要冒险谁也强制不了他怎么样。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9662#       发表于 2020-4-27 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217227&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-04-27 00:04:50</a>
+实话说，我觉得jk3人的初始皮比不上狐皇龙皇6字母之类的有记忆点</blockquote>阿委：当初我看到我的人设，就知道光靠人设不可能火<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+syl，阿凛后来不管了关阿委什么事，说的好像阿委真的有实权去管别人或者有兴趣去换别人。看看她在意的vtb都是什么类型的：下巴，卵用，花生还有野良猫。
+本来阿凛是因为又大姐大气场和功绩其他liver才会在最开始尊重她一些，后来沉迷ff14也没见得其他人就各种矛盾啊。
+
+不过我还是蛮庆幸能看到彩虹爆炸的一天的，不如说这天来的太晚了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 9663#       发表于 2020-4-27 00:14
+
+
+
+
+业界最大的烟花要来了吗？好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9664#       发表于 2020-4-27 00:15
+
+
+
+
+感觉上有明显的反抗迹象的，也就sakuyui
+
+诶，说来可怕，感觉她俩退了依然不会伤筋动骨
+
+除非gamers一起
+
+
+以我看偶像的经验，看情况应该退坑，船沉的时候还在坑里的粉丝，心态会炸
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 9665#       发表于 2020-4-27 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">sasaki走过一次都没掀起风浪，走第二次还能引爆什么不成？楼里真是听风就是雨，还不如凛转生播爆来的不吉。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9666#       发表于 2020-4-27 00:16
+
+
+
+
+之前杏蹭武士道活动的时候我和你楼其他几个老哥都说过，真正“主流出道”的福报程度是这帮家里蹲无法想象的。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 9667#       发表于 2020-4-27 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">虹整个儿炸了对我来说毫无影响，本来我的重心就不在套皮管人上
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 9668#       发表于 2020-4-27 00:17
+
+
+
+
+对中国人有梁木了也没有拒绝运营强加的批限，每次都是笑容满载的韩国友人真是天使（
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 9669#       发表于 2020-4-27 00:19
+
+
+
+
+要我说，就是疫情遥遥无期让本就想把重心转向直播外的方面的ickr丧失了冷静。
+
+和共同电视台合作的レバーガチャタイパン很明显地虽然效果好但因疫情没法继续录制，本来请了一票大物音乐人的DJ party也得延期，按不少liver口中那个私底下把大多数工作做好只在最后丢给liver的ickr，估计不少规划中的企划都因为疫情黄了，这不急才怪呢。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9670#       发表于 2020-4-27 00:21
+
+
+
+
+你们怎么真的说得煞有介事一样。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9671#       发表于 2020-4-27 00:21
+
+
+
+
+要我说还是要学大福。老娘就是躺平不动我就不信你运营真敢开掉我<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9672#       发表于 2020-4-27 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217286&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 00:14</a>
+
+线下多半是录制。
+
+
+前几天大阪还公布了几家头铁不肯关门的钢珠店，但日本法律也就到此为止了，人家接着开 ...</blockquote>
+录音室本来就是封闭高危场所好吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，再加上东京现在遍地未知感染源，田角要真要冒险那可真是踩着刀尖跳舞了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9673#       发表于 2020-4-27 00:23
+
+
+
+
+大福真实甩脸子，那个接力的广播愣是不去，直接反向搬家到大阪
+
+《混》
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9674#       发表于 2020-4-27 00:23
+
+
+
+
+绿（虹）：ACE被称为阿嚏斯特（月之整活高手）/走不同于其他女团的风格（出道即撕皮，艺人路线不同于大多偶像箱）/出道凭神曲爆火（月之十分钟剪辑火遍nico）/运营拉跨（ickr）/团内不和，团员恋爱传闻出现（各种不仲）/厄介困扰（月之被贴告示，江良不停换公寓）/top活动休止复归（sasaki）/成员毕业引发更多不仲猜想（mrr）/Ace出状况，东蛋等大型活动取消，粉丝流失（谁熊猫3bk东京取消，holo大势）/资源打压，粉丝不和（工商分配信者大战）/大top毕业潮（可千万别到这）/活动约等于暂停
+
+
+不过也就说着图一乐，绿没了平不行，虹不一样
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 9675#       发表于 2020-4-27 00:23
+
+
+
+
+星街不是也有节目要录吗，那个是怎么弄的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 9676#       发表于 2020-4-27 00:24
+
+
+
+
+虹现在上下层割裂的很厉害，头部的这些人主要都是在忙各种节目各种录歌，中下层还是每天直播上班下班，要让虹炸得让sasaki毕业把虹的头部全带跑路才行
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9677#       发表于 2020-4-27 00:25
+
+
+
+[https://www.youtube.com/watch?v=Ok66YqtOQ6g](https://www.youtube.com/watch?v=Ok66YqtOQ6g)
+
+【半澤まどか】初ウタ枠！！！【まど生】
+
+0:03:20   甲賀忍法帖
+
+0:10:22   Ash like snow
+
+0:21:35   水の星へ愛をこめて
+
+0:34:56   ETERNAL WIND~ほほえみは光る風の中~
+
+0:44:57   小さきもの
+
+1:04:00   God know...
+
+1:23:15   おちゃめ机能
+
+1:30:00   名前のない怪物
+
+1:42:20   Let it go
+
+1:54:20   BLACK☆ROCK SHOOTER
+
+2:06:20   シルシ
+
+
+
+强烈推荐一下这位，挺厉害的，就是L2D有问题，嘴张不开......
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9678#       发表于 2020-4-27 00:25
+
+
+
+
+此局gamers全员请辞或许可破
+
+
+说说而已，不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 9679#       发表于 2020-4-27 00:26
+
+
+
+ 本帖最后由 Viden 于 2020-4-27 00:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217367&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-27 00:23</a>
+星街不是也有节目要录吗，那个是怎么弄的</blockquote>
+今天的广播，有提到和之前弹吉他的那个小哥，这次变成了远程通话。
+只能祈祷星街的录音也是在家远程了。
+不过去录音室也有可能。。
+
+[https://www.agqr.jp/sp/topics/archives/ag_78.php](https://www.agqr.jp/sp/topics/archives/ag_78.php)
+vtb这种还是很有可能远程收录的。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9680#       发表于 2020-4-27 00:26
+
+
+
+
+有一说一，即使今年没疫情，我也完全不看好ickr试图走主流这条道，本来说到底套皮主播就是一个直播行业和AG结合的产物，ACG本身就是小众了，你ickr又算是哪根葱？
+现在线下完蛋了，急了，还不如赶快找点手游厂商合作，学学holo，打开白皮市场，起码要先保证活下来吧。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9681#       发表于 2020-4-27 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217355&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-27 00:22</a>
+
+录音室本来就是封闭高危场所好吧，再加上东京现在遍地未知感染源，田角要真要冒险那可真是踩着刀 ...</blockquote>
+还是那句话，给田角19个逸的没有一个是带善人。之前为了融钱PPT画了多少饼麻烦原样做出来不然没好果汁吃。
+
+
+
+
+
+
+
+-----
+
+####  charzeta  
+##### 9682#       发表于 2020-4-27 00:28
+
+
+
+
+不过至少从今天熊猫人的会限的口气听下来，短时间内应该不至于会发生引退什么的
+
+这个时候看来真的需要阿凛再站出来敲打一下运营了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9683#       发表于 2020-4-27 00:29
+
+
+
+
+阿喵喵和阿床还是聪明啊，就硬混，唱歌出道别找我。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 9684#       发表于 2020-4-27 00:32
+
+
+
+
+阿喵喵就是来玩的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 9685#       发表于 2020-4-27 00:32
+
+
+
+
+虚拟人单人广播能远程录算好的了
+文化放送可不打烊，声优小妹妹们天天到演播室上班呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9686#       发表于 2020-4-27 00:37
+
+
+
+ 本帖最后由 colodes 于 2020-4-27 00:45 编辑 
+
+ちょっと待って
+
+
+
+
+
+
+
+
+アイドル部2周年、おめでとう🥳
+<img src="https://p.sda1.dev/0/301d6295ad8f75dcbe49ce82f7ab0f3c/EWiz055VcAIW.jpg" referrerpolicy="no-referrer">
+https://twitter.com/Taradaikon/status/1254450228704317440
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9687#       发表于 2020-4-27 00:37
+
+
+
+
+说到底其实我就想看个没有真人的套皮主播，挂在后台听个响(叶子除外)，田角折腾这些对我来说大可不必
+
+希望ickr也不要再逼游戏势唱歌了，真的很难听
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9688#       发表于 2020-4-27 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217505&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-04-27 00:37:46</a>
+说到底其实我就想看个没有真人的套皮主播，挂在后台听个响(叶子除外)，田角折腾这些对我来说大可不必
+
+希望 ...</blockquote>说的好像不是游戏势就不难听了一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+本来ickr能火我觉得最大的原因在于认清了自己旗下vtb就是套皮主播的事实，没想到后来真的以为自己能冲击主流市场。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 9689#       发表于 2020-4-27 00:42
+
+
+
+
+田角会来低头么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9690#       发表于 2020-4-27 00:42
+
+
+
+
+问题是真的只搞套皮主播后面有人拿着菜刀已经追到脸上了啊……
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9691#       发表于 2020-4-27 00:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217535&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-04-27 00:42:53</a>
+问题是真的只搞套皮主播后面有人拿着菜刀已经追到脸上了啊……</blockquote>这方面说到底还是田角自己不上心。我虽然不喜欢holo吧，但holo很多操作确实给自己底下liver提供了很大帮助，手游联动更是直接打开白皮市场，狐皇也下得去面子搞劣质meme，土嗨歌也靠换封面播放量暴涨。
+彩虹这边线上又给了自己liver多少帮助？最后还都是各凭本事硬升升拉高了彩虹热度，这种做法线上不被人追上乃至打爆才怪。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9692#       发表于 2020-4-27 00:49
+
+
+
+
+【バーチャルYoutuber】にじさんじ有ンチスレ18801【反逆のゲマズ】 ​​
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 9693#       发表于 2020-4-27 00:50
+
+
+
+
+真炸了对大家都没好处啊.....管人市场还没到边界上，扩大市场让底边都饿不死才是保证业界良性发展的办法。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9694#       发表于 2020-4-27 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217581&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-27 00:49</a>
+
+这方面说到底还是田角自己不上心。我虽然不喜欢holo吧，但holo很多操作确实给自己底下liver提供了很大帮助 ...</blockquote>
+开局空妈/开局天皇，后面路径依赖都不一样。
+
+
+另外谷乡20多年老社畜了怎么管公司肯定比田角有经验也没办法。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9695#       发表于 2020-4-27 00:58
+
+
+
+
+虹杏滚雪球到底是扩大市场还是挤压市场我暂且蒙古
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9696#       发表于 2020-4-27 00:58
+
+
+
+
+虹之前的运营模式类似工会，发布任务、兑换奖励，也红红火火所以一直这么运作着。
+
+但是不知道是受live等线下效果还不错的影响，还是holo奋起直追并顺利反超让田角有了危机感……总之现在一边push顶部一边无视底边，不三不四反而进入了现在这个奇怪的境地
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9697#       发表于 2020-4-27 01:01
+
+
+
+<blockquote>代表取締役社長CEO　谷郷 元昭
+
+次世代のエンターテインメント企業を一緒に作りませんか？
+
+私たちは、YouTubeやBilibiliの様なグローバルなメディアプラットフォーム上で事業を展開することで、日本にいながら海外、特に中国での人気を獲得しています。VTuberの運営企業として始まった当社も、グローバルなIPを創出する企業への進化が始まっています。世界中のデジタルネイティブ世代へ向けた新しいエンターテインメント企業を一緒に作りませんか？</blockquote>
+
+我以前没看过yagoo的求人介绍，中国这块是最近加的还是原来就有？
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9698#       发表于 2020-4-27 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217598&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-04-27 00:52:29</a>
+开局空妈/开局天皇，后面路径依赖都不一样。
+
+
+另外谷乡20多年老社畜了怎么管公司肯定比田角有经验也没办 ...</blockquote>说到底彩虹里有太多人真的就是过来图一乐的了，我虽然最喜欢这点，也觉得这种氛围挺舒服的，但这样类似大学社团的公司，注定赢不了真的在用心搞主播工会的公司，连最开始领先巨大优势的线上都输了，即使没了疫情，也完全不觉得比线上难度大的多线下能搞好。
+彩虹要是明天就完蛋，我也挺乐意看到的，毕竟本来就觉得这种形式存活不长，业界的扩大也不需要这种形式，但起码曾经存在的时光确实是快乐的。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 9699#       发表于 2020-4-27 01:03
+
+
+
+
+本身这次疫情影响的只是线下，估计对大多数主播都没影响，钱一样挣，但是你运营非要逼着人冒着危险搞线下肯定就有人不爽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这波影响最大的应该还是staff，特别是做3d的，现在全停了不知道之后怎么撑下去
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9700#       发表于 2020-4-27 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217535&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 00:42</a>
+
+问题是真的只搞套皮主播后面有人拿着菜刀已经追到脸上了啊……</blockquote>
+然而专心搞套皮的yagoo现在反而慢慢和东方圈、游戏圈这些地方开始接触扩展自己的影响力。试图一步到位的田角遇到疫情这种黑天鹅就方寸大乱，这就是年龄的差距么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9701#       发表于 2020-4-27 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217648&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-27 01:02</a>
+
+说到底彩虹里有太多人真的就是过来图一乐的了，我虽然最喜欢这点，也觉得这种氛围挺舒服的，但这样类似大学 ...</blockquote>
+我和你的想法是一样的。虽然我的推在杏，但是杏是不可能出五元飞鸟P这种人的。另外完蛋远远不至于，大不了半年后回归线上安心当老二，就是田角风评变成第二个takeshi而已。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 9702#       发表于 2020-4-27 01:07
+
+
+
+
+大学生社团怎么比得过真的主播工会啊，就怎么保证底边收益彩虹就整不明白
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 9703#       发表于 2020-4-27 01:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别的懒得管，只希望主播别出事就是了，日本这疫情真不好说……
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9704#       发表于 2020-4-27 01:08
+
+
+
+ 本帖最后由 yuandi20 于 2020-4-27 01:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217665&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-4-27 01:07</a>
+
+大学生社团怎么比得过真的主播工会啊，就怎么保证底边收益彩虹就整不明白 ...</blockquote>
+田角可能才是真正看不起、真正讨厌套皮主播的人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+这不就是免费嘛（恍然大悟）
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 9705#       发表于 2020-4-27 01:09
+
+
+
+
+彩虹炸了就炸了，炸了我露皇露脸直播不比现在套个皮香。
+
+看了两年了也知足了。
+
+
+
+
+
+
+
+-----
+
+####  charzeta  
+##### 9706#       发表于 2020-4-27 01:10
+
+
+
+
+你楼一堆人天天希望虹爆炸，虽然暂时看上去这次还没到多严重的程度，不过如果以后哪天虹真的炸了，只剩下一个杏，没有了隔壁比较对象，斗虫民也会觉得无聊了吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9707#       发表于 2020-4-27 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217677&amp;ptid=1924531" target="_blank">jk9hot 发表于 2020-04-27 01:09:03</a>
+彩虹炸了就炸了，炸了我露皇露脸直播不比现在套个皮香。
+
+看了两年了也知足了。 ...</blockquote>露皇早就说过，如果以后不做vtb那就做真人主播。
+这么一想，彩虹现在就给我炸吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9708#       发表于 2020-4-27 01:12
+
+
+
+
+什么鬼，我杏人都觉得你们在说胡话了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9709#       发表于 2020-4-27 01:12
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 9710#       发表于 2020-4-27 01:13
+
+
+
+
+彩虹炸了，彩虹主播又不会炸了的，有能力的照样能混的好，也没啥影响
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9711#       发表于 2020-4-27 01:13
+
+
+
+
+如果一个从来不看V的朋友想入坑，问你虹杏两家有什么根本区别，看哪个有意思，你怎么回答他？
+
+我想来想去除了杏的男女团是分开的之外，这两家从内容到形式根本没啥区别，大家都是主播公会，产出的东西大部分都是一样的。
+
+谁更有趣这种话就算了，每个人都觉得自己推的最有趣，我和colodes的意见一致，作为（不管套不套皮）的游戏主播，加藤纯一最有趣。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 9712#       发表于 2020-4-27 01:15
+
+
+
+
+加藤纯一最有趣还行，是国内主播不够好看么
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 9713#       发表于 2020-4-27 01:16
+
+
+
+
+加藤纯一究竟怎么有趣了，你们能不能吹的时候顺便带个剪辑之类的啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9714#       发表于 2020-4-27 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217653&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-27 01:04</a>
+
+然而专心搞套皮的yagoo现在反而慢慢和东方圈、游戏圈这些地方开始接触扩展自己的影响力。试图一步到位的 ...</blockquote>
+虹马车大赛还直接拉世界冠军来当教练呢。你本事够大直播内容够有诚意早晚会有有能信者冒出来赏你饭吃。只是杏的养gachi路线&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;虹，所以看上去有能信者源源不断。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9715#       发表于 2020-4-27 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217648&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-04-27 01:02:57</a>
+说到底彩虹里有太多人真的就是过来图一乐的了，我虽然最喜欢这点，也觉得这种氛围挺舒服的，但这样类似大学 ...</blockquote>我也很喜欢这种非主流直播方式的直播，想做就做，也(一定程度上）不受约束；说不上解构，但天皇下巴为主的很多liver的配信总能一边考虑直播的文化一边发挥套皮的真正优势，做到和一般游戏实况主区分开来，因为虚拟而更加有趣
+
+但也正是因为是非主流的，肯定是比不过隔壁的主流直播的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9716#       发表于 2020-4-27 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217707&amp;ptid=1924531" target="_blank">free 发表于 2020-04-27 01:13:54</a>
+如果一个从来不看V的朋友想入坑，问你虹杏两家有什么根本区别，看哪个有意思，你怎么回答他？
+
+我想来想去除 ...</blockquote>？？？你不如举PDD还更有说服力一点
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9717#       发表于 2020-4-27 01:21
+
+
+
+
+纯一真的不行，或者说鬼子真的不行
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 9718#       发表于 2020-4-27 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217735&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-04-27 01:19:23</a>
+？？？你不如举PDD还更有说服力一点</blockquote>pdd天下第一！
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9719#       发表于 2020-4-27 01:23
+
+
+
+
+别车虹杏了，来点梁木：[https://twitter.com/shirakamifubuki/status/1254360513439346694](https://twitter.com/shirakamifubuki/status/1254360513439346694)
+
+
+白上：我就喜欢看你这副表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9720#       发表于 2020-4-27 01:24
+
+
+
+<blockquote>好德我基 发表于 2020-4-27 00:58
+虹杏滚雪球到底是扩大市场还是挤压市场我暂且蒙古</blockquote>
+杏绝对是扩大市场，非日本的直播V市场都被holo占了
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9721#       发表于 2020-4-27 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217721&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 01:16</a>
+
+虹马车大赛还直接拉世界冠军来当教练呢。你本事够大直播内容够有诚意早晚会有有能信者冒出来赏你饭吃。只 ...</blockquote>
+把坐在家里打马车的一个宅男和zun放在一起比。您认真的么<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">?还是说您觉着就靠一两个gachi的个人爱好，就可以把商业合同送上门来?
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 9722#       发表于 2020-4-27 01:27
+
+
+
+
+天皇这种阴湿宅女，是不是影响了2434的欧美进军啊，毕竟白皮就是喜欢萌萌二次元纸片人。彩虹这边天皇上梁都不正还指望个啥呢
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 9723#       发表于 2020-4-27 01:29
+
+
+
+
+管人要和游戏主播比先把时长堆上去吧，你一天2个小时的产出怎么可能比得过人家一天7、8个小时
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 9724#       发表于 2020-4-27 01:34
+
+
+
+ 本帖最后由 Ketestrait 于 2020-4-27 01:35 编辑 
+
+露皇只差一个理解可以致命就能街舞过了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9725#       发表于 2020-4-27 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217782&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-4-27 01:27</a>
+
+天皇这种阴湿宅女，是不是影响了2434的欧美进军啊，毕竟白皮就是喜欢萌萌二次元纸片人。彩虹这边天皇上梁都 ...</blockquote>
+委这周周增1w2，除了爱马仕之力和破50w那波冲刺，其他大部分都是她那个废弃片段meme吸引过来的欧美宅宅<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，不如说她这波吃欧美buff比虹其他根本就没被欧美认知的人大多了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9726#       发表于 2020-4-27 01:35
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-27 01:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217773&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-27 01:25</a>
+
+把坐在家里打马车的一个宅男和zun放在一起比。您认真的么?还是说您觉着就靠一两个gachi的个人爱好 ...</blockquote>
+首先，东方station赏饭的肯定是节目组船皇的某个patron而不是zun本人。
+
+第二，杏目前还没有出过“sacra拿钱抢时间让田角给德龙弄新3D”这个程度的事情。目前抱的大腿和虹还不是一个级别的。
+
+第三，gachi带不来商单，但是鉴于V圈总共这么点大小的影响力，gachi会是很多商单的前提。碧蓝联动这种深度原创剧情合作一看就是厨力驱动&gt;商业考虑的，悠星日本负责人自己都跳出来承认了（你杏唯一真皇船皇牛逼）。
+
+
+最后我觉得我前面的确没说清楚我想说的就是了。在目前管人圈影响力只有一丢丢的前提下，杏patron模式搞合作确实要比虹在商言商要好得多。你田角拿什么和索尼环球讨价还价？杏这里甲方老板是粉丝就完事了。
+
+
+总结一下：
+
+就目前来说虹的合作资源是&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;杏的，但是因为这样那样的原因结果看上去不是很好，这个只能说他自己太急了。
+
+
+
+我自认V综田角猎马人排第一，但是还是要客观。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9727#       发表于 2020-4-27 01:38
+
+
+
+
+太不可思议了我决定再发一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+IMG_20200427_013231.jpg
+(542.36 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-4-27 01:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/013753jbkiu3ichguh4228.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9728#       发表于 2020-4-27 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217836&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-27 01:38</a>
+
+太不可思议了我决定再发一次</blockquote>
+你圈牌面&gt;一切，你永远可以依赖通讯录摇人。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 9729#       发表于 2020-4-27 01:45
+
+
+
+
+67天后，利香终于想起了这个号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl你楼几个小时没人谈梅露复活联动，梅露大概的确已经死了罢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200427014322.png
+(1.54 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-27 01:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/014352xxahvvziiwimwhnv.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9730#       发表于 2020-4-27 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217819&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-27 01:35</a>
+
+委这周周增1w2，除了爱马仕之力和破50w那波冲刺，其他大部分都是她那个废弃片段meme吸引过来的欧美宅宅[f ...</blockquote>
+这个buff带毒的，后面要解释起来不容易
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 9731#       发表于 2020-4-27 01:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">mel开频道吗
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9732#       发表于 2020-4-27 01:47
+
+
+
+
+夜间大型云C现场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 9733#       发表于 2020-4-27 01:48
+
+
+
+<blockquote>Zaphikel 发表于 2020-4-27 01:45
+67天后，利香终于想起了这个号
+
+syl你楼几个小时没人谈梅露复活联动，梅露大概的确已经死了罢 ...</blockquote>
+的确找不到活的梅露粉了，还没谈利香的多
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9734#       发表于 2020-4-27 01:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217728&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-04-27 01:17:40</a>
+我也很喜欢这种非主流直播方式的直播，想做就做，也(一定程度上）不受约束；说不上解构，但天皇下巴为主的 ...</blockquote>作为囚人和James吧，对阿委还是完全无法理解，从18年单纯的百物语到19年把整个百物语作为结构自身的物语，从18年的全部美兔到19年的男友精分和真假美兔，从19年暗网风格的愚人节视频到20年的视频和直播相结合。自己直言说主播说到底和风俗产业没差，但是该整活的时候却异常用心。有一说一，还是完全不懂她。现在唯一的期望就是她继续“升级”，至于数字啥的，真的老了，比不了，她也没在意过。
+对下巴的期望就是以后用心读书吧，反正他也一直在说「当上vtb就已经很开心了」，不过一直觉得他算是彩虹社里数一数二对vtb这个行业抱有喜爱之情的人了，彩虹倒的那天也许会头一次看到他在直播里露出难过的神情吧（真的蛮想看到的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9735#       发表于 2020-4-27 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217821&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 01:35</a>
+
+首先，东方station赏饭的肯定是节目组船皇的某个patron而不是zun本人。
+
+第二，杏目前还没有出过“sacra拿 ...</blockquote>
+但是方向错误，资源越多越反噬。就像你说的，田角肯定是给合作伙伴画了很大的饼才拿下的这些资源。但是哪怕没有疫情这个黑天鹅，以管人圈的影响力，这些资源得到的回报肯定是满足不了那些大公司的要求的。到时候就看大公司反过头来把虹吃干抹净吧。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 9736#       发表于 2020-4-27 01:53
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1ge7pc90akpj20yv0jmdio.jpg" referrerpolicy="no-referrer">
+
+
+只要不停止街舞，道路就会延伸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 9737#       发表于 2020-4-27 01:54
+
+
+
+
+利香这两张图是梅露妈Ayamy的画风吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ截图20200427015144.png
+(182.82 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-27 01:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/015214v9ttau19ruegoott.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ截图20200427015129.png
+(988 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-27 01:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/015213x8ffmkym5qkf6zdy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 9738#       发表于 2020-4-27 01:55
+
+
+
+
+熊猫人这波的问题很大，当然她是经历过一次的人，目前来看毕业的可能性还是非常低的。但是能让一个不考虑走线上直播以外路线的老主播说出“以后大概也在配信频度上不会有改进，会员退了就退了吧，对不起”这种话，说明问题很大了，可以说是要了人的命根，真逼急了未必不会鱼死网破、今晚就走。
+
+这也不是没有征兆的，天皇在直播里直言“ickr事业部乱转”，大福在直播里直球diss ickr，leader明示18年反抗运营的椎名最近苏醒了，曾经为箱拍桌的龙姐这次选择回本体号重操旧业，葵皇数周前坦言因为疫情总算可以闲了一点，叶今天则说之后又要忙起来了。
+
+
+就像楼上老哥说的，拿了钱搞不出画过的饼田角必没好果汁吃。去年末的访谈里，田角雄心壮志今年要在线下活动这块重拳出击，激发粉丝热情，结果今年一开始就是被全世界都没想到的疫情重拳出击。其中多少钱、多少企划打水漂是不得而知的，明面上就有zepp东京、STP抽选音乐会、德龙单曲发售系列活动等一堆活动取消或者延期。对于这个全体社员平均年龄不到27岁，CEO也就刚刚大学毕业、有钱有计划正准备大展宏图的年轻公司来说，今年这波急刹车把所有人都整上火、失去判断力倒也情有可原。
+
+
+其实本来按ickr的战略，这种问题是必然会遇到的，但可以有一段比较长的时间去过度、让liver适应，有机会平稳度过，但现在的情况无疑是田角急了急了。
+
+这波疫情会搞死无数企业，有比ickr小的，无疑也有很多比ickr强的，那么ickr会不会成为其中一个烟花，个人非常期待<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 9739#       发表于 2020-4-27 01:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">街舞大剑板载！
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 9740#       发表于 2020-4-27 01:59
+
+
+
+
+说起来历史上松散联邦被集权国家暴打也不是一次两次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 9741#       发表于 2020-4-27 02:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217916&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-27 01:55</a>
+
+熊猫人这波的问题很大，当然她是经历过一次的人，目前来看毕业的可能性还是非常低的。但是能让一个不考虑走 ...</blockquote>
+给了我第一次看章律师著作的既视感，这时候不看虹杏的优势出来了：横竖都不输<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 9742#       发表于 2020-4-27 02:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217934&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-04-27 01:59:55</a>
+说起来历史上松散联邦被集权国家暴打也不是一次两次了</blockquote>这波啊，这波是历史重演<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9743#       发表于 2020-4-27 02:03
+
+
+
+<blockquote>好德我基 发表于 2020-4-27 01:46
+这个buff带毒的，后面要解释起来不容易</blockquote>
+?
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9744#       发表于 2020-4-27 02:05
+
+
+
+
+お静这块起码截止到公布她是slee甄选评委这个时间点，肯定是和公司没啥大矛盾的。现在变成这个情况可以假设slee企划黄了/运营方针她意见很大。
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 9745#       发表于 2020-4-27 02:05
+
+
+
+
+你们不会真想虹爆炸吧，虹真死了绝对是弊大于利啊，一家独大会怎么样看看百度就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9746#       发表于 2020-4-27 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217947&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-27 02:03</a>
+
+?</blockquote>
+你觉得看了那个视频的白皮会把兔头当成什么
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 9747#       发表于 2020-4-27 02:08
+
+
+
+ 本帖最后由 yuandi20 于 2020-4-27 02:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217934&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-27 01:59</a>
+
+说起来历史上松散联邦被集权国家暴打也不是一次两次了</blockquote>
+松散联邦还好了，现在你虹给我的感觉就是奥匈帝国或者奴隶制的美国，一边是向偶像圈高歌猛进的上层，一边是坚守套皮主播不动摇的底边。两边割裂的吓人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">11
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 9748#       发表于 2020-4-27 02:09
+
+
+
+
+只能说该死的是七色太监，但是彩虹的v是无辜的<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         

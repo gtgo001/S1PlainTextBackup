@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 00:01** 
+> ## **本文件最后更新于2020-04-27 02:04** 
 
 
 
@@ -10805,1588 +10805,6 @@ mhr的哼声不看直播间名还以为是miki呢</blockquote>弥语害人
 
 
 也许这就是人生吧（版主已经回家了，没有海底捞恰了
-
-
-
-
-
-
-
------
-
-####  lxccsnm  
-##### 6571#       发表于 2020-4-18 23:52
-
-
-
-
-问题是版主说自己没去，阿咋反而去了
-
-
-
-
-
-
-
------
-
-####  西瓜爆裂  
-##### 6572#       发表于 2020-4-18 23:55
-
-
-
- 本帖最后由 西瓜爆裂 于 2020-4-18 23:59 编辑 
-
-看到孟宝转发才知道川内级都是和孟宝一个妈···
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6573#       发表于 2020-4-19 00:01
-
-
-
-
-罗宝：“我悟了！我放前辈们的歌企图甩锅是失败根源，我要从自己身上挖掘勇气！”
-
-
-于是最后十连放了《直升机巴士》<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 90连，堂堂阵亡。
-
-
-
-
-
-
-
-
-QQ截图20200418235644.png
-(836.97 KB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-4-19 00:00 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202004/19/000050gdtlyzzkqymtml5t.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6574#       发表于 2020-4-19 00:01
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在上海的有空去了挺正常的，只不过版主居然没去，难道是线上连线的么，线上居然都迟到了。那这波被迫害血亏，没吃到饭。
-
-
-
-
-
-
-
------
-
-####  rzy  
-##### 6575#       发表于 2020-4-19 00:20
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 总算有人提你弥的哼~了，这算不算萌音主播的奥义
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6576#       发表于 2020-4-19 00:27
-
-
-
-
-鸟神又在一图流，听不下去
-
-
-
-
-
-
-
------
-
-####  lkciub  
-##### 6577#       发表于 2020-4-19 00:28
-
-
-
-
-村民哼是压制早期小声复读的对策，我还是想听小声复读
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6578#       发表于 2020-4-19 00:31
-
-
-
-
-罗伊今晚这抽卡也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  links8018  
-##### 6579#       发表于 2020-4-19 00:40
-
-
-
-
-看了一段时间的罗伊，aza两人的直播，不禁感叹要是vr有几个这样水平相当的女v也不至于现在这么拉跨了
-
-
-
-
-
-
-
------
-
-####  死去的御景柚姬  
-##### 6580#       发表于 2020-4-19 00:51
-
-
-
-
-这个水平的女v多半会去holocn吧，罗伊现在这数据有点对不起他的水平<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 想长点人气还要靠自己的人脉
-
-[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6581#       发表于 2020-4-19 01:02
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">罗伊是时长比较少，时薪在vr里也很高了，粉丝数这个男v在国内天生劣势涨的慢也很无奈。
-
-syl，看数据弥宝真的摸啊，不过时薪倒是很高，弥人gachi好强大。
-
-
-
-
-
-
-
------
-
-####  雅朵莉雀  
-##### 6582#       发表于 2020-4-19 01:18
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看男V单人开台播我不如去看海鲜台，顶天看看版主解说比赛
-
-我感觉V圈还是靠差异化吸引亚文化爱好者，有泛ACG爱好的妹子闲聊对我来说非常少见，但是能说会侃打游戏本领高强戏多的男主播也太多了
-
-我是没感觉除了皮套以外比起传统游戏主播有什么特殊优势
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6583#       发表于 2020-4-19 01:22
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面又提到招人，有个挺有意思的。木口cn现在挖出来4个，1个前个人势v主播，一个前企业势v主播，一个前斗鱼女主播，一个前老鼠台女主播。
-
-vr挖出来，前偶像、现任巨魔坛版主、业余coser、现充up主、翻唱区up主、混音工作人员、作豚、少数社畜兼职、大量的学生妹，甚至有好几个留学学生妹，总体里管人粉丝浓度还挺低的。
-
-两边招人思路是不是属于完全没有重合度，可能是运营的大方向不同，不然vr背靠b站要招到几个转生女主播应该还是不难的。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  aucun  
-##### 6584#       发表于 2020-4-19 01:59
-
-
-
-
-VR主要看各个方向有特色有特长的人，广撒网，
-木口cn目前看来是注重直播能力，营业能力，可能跟两边本社运营方向和国内的基本盘有关
-像弥宝这种一开始话都抖不清楚，还有小声复读的毛病能进VR这种企业势只能说多谢彩虹哥了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6585#       发表于 2020-4-19 02:04
-
-
-
-
-这话题似曾相识，梦回B1
-
-
-
-
-
-
-
------
-
-####  ocyashiroi  
-##### 6586#       发表于 2020-4-19 02:17
-
-
-
-
-B1不是整天劈弥宝，后来劈鸟神，不时劈劈VR联动拉胯，偶尔冒出几个聊别的国V么
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  好德我基  
-##### 6587#       发表于 2020-4-19 02:25
-
-
-
-
-vr现在招人不是靠亲友吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  Tauta  
-##### 6588#       发表于 2020-4-19 08:02
-
-
-
-
-扫了眼B站的源码，按点赞数排序的标准是100 * (点赞数+2) / (点踩数+举报数+4)。感觉有点迷，不知道为啥这么排。
-
-
-
-
-
-
-
------
-
-####  InvisibleP  
-##### 6589#       发表于 2020-4-19 08:57
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47124297&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-18 15:08</a>
-连B站评论依据什么方式排序都没搞清楚就来阴谋论，还说没梁木？
-
-SYL  斗评论点赞数实在太尼玛弱智了。。。 ...</blockquote>
-毕竟B站没有hiyoko这种官方斗虫指定平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  樱绫  
-##### 6590#       发表于 2020-4-19 09:13
-
-
-
-
-除法草，那点几个踩就下去了
-
-[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  聪明墨菲特  
-##### 6591#       发表于 2020-4-19 10:31
-
-
-
-
-vr赶紧找个能代替光一果的梗吧，越玩这个越没意思了
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  zz101896  
-##### 6592#       发表于 2020-4-19 11:14
-
-
-
-
-问题是当事人喜欢这个梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| InvisibleP| + 1|kusa，借机拍拖建议**毙）|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6593#       发表于 2020-4-19 11:47
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47131359&amp;ptid=1909283" target="_blank">聪明墨菲特 发表于 2020-4-19 10:31</a>
-
-vr赶紧找个能代替光一果的梗吧，越玩这个越没意思了
-
-
-  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
-你觉得没意思，但昨晚人气可是完爆欺诈游戏大联动，VR巅峰时刻
-
-
-
-
-
-
-
------
-
-####  ihihihihi  
-##### 6594#       发表于 2020-4-19 11:51
-
-
-
-
-其他人起哄不觉得很尬吗
-
-
-
-
-
-
-
------
-
-####  zhongdasang  
-##### 6595#       发表于 2020-4-19 11:59
-
-
-
- 本帖最后由 zhongdasang 于 2020-4-19 12:04 编辑 
-
-昨天的活动都上分区banner了，一个欺诈游戏怎么比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl
-
-一果最近压力大的一批还说vr的工作是爱好，不想集中一切在一件事情特别是爱好上。所以本人都不上心的东西也别争来争去了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  InvisibleP  
-##### 6596#       发表于 2020-4-19 12:17
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47131973&amp;ptid=1909283" target="_blank">ihihihihi 发表于 2020-4-19 11:51</a>
-其他人起哄不觉得很尬吗</blockquote>
-尬是挺尬的，但是写实啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  Havik  
-##### 6597#       发表于 2020-4-19 12:30
-
-
-
-
-想想上学的时候有没有一对关系好的男女大家跟着起哄，大部分观众现在就是跟着起哄的。
-而且光一果是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，起哄的有理有据
-
-
-
-
-
-
-
------
-
-####  Fakerの幻影  
-##### 6598#       发表于 2020-4-19 12:36
-
-
-
-
-毕竟组织给版主发的女友<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  死去的御景柚姬  
-##### 6599#       发表于 2020-4-19 12:51
-
-
-
-
-啥人气完爆欺诈游戏…我怎么印象中VR所有大联动热度都是三十万左右 昨天也不例外 基本盘.jpg
-
-[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  CCCCCC梵  
-##### 6600#       发表于 2020-4-19 13:53
-
-
-
-
-方言整活多搞点这东西好玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  zz101896  
-##### 6601#       发表于 2020-4-19 15:16
-
-
-
-
-今晚的vrfm算不算官方钦点的上位势<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  曜不能停  
-##### 6602#       发表于 2020-4-19 16:07
-
-
-
-
-版主的网课听着舒服
-
-
-
-
-
-
-
------
-
-####  丶彼岸花开丶  
-##### 6603#       发表于 2020-4-19 19:12
-
-
-
-
-VR现在是重点招留学生啊，pax意大利留学，御水日本留学，花留大概率在加拿大，沙夜是美国。这是准备以后国际化演出有人上么？
-
-
-
-
-
-
-
------
-
-####  鹅饿鹅  
-##### 6604#       发表于 2020-4-19 19:25
-
-
-
-
-留学生多应该有多重因素
-
-国内大学生大多住多人宿舍
-
-干这种前景渺茫的工作（娱乐）需要良好的家庭
-
-
-
-
-
-
-
------
-
-####  fjm  
-##### 6605#       发表于 2020-4-19 20:07
-
-
-
-
-之前留学生也不少吧，有加，hsm，saya都是
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6606#       发表于 2020-4-19 20:24
-
-
-
-
-罗伊开幕就草死人了  草
-
-
-
-
-
-
-
------
-
-####  zz101896  
-##### 6607#       发表于 2020-4-19 20:27
-
-
-
-
-草，鲨皇说了773
-
-
-
-
-
-
-
------
-
-####  fjm  
-##### 6608#       发表于 2020-4-19 20:28
-
-
-
-
-我一进去就听到三字母
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6609#       发表于 2020-4-19 20:48
-
-
-
-
-diss就这？
-
-
-
-
-
-
-
------
-
-####  文长ddd  
-##### 6610#       发表于 2020-4-19 20:54
-
-
-
-
-没办法，骂的太狠的没法播，能播的只能是这种不痛不痒的投稿。
-
-
-
-
-
-
-
------
-
-####  斯大林的拖拉机  
-##### 6611#       发表于 2020-4-19 20:56
-
-
-
-
-不行，完全不行，就这？
-
-
-
-
-
-
-
------
-
-####  Kyonkon  
-##### 6612#       发表于 2020-4-19 21:02
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会吧你们真的以为会有那种diss吗，有也不可能放出来的啊(
-
-
-
-
-
-
-
------
-
-####  汝之真言  
-##### 6613#       发表于 2020-4-19 21:07
-
-
-
-
-但是放出来的也避重就轻。。。属实不行
-
-[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  死去的御景柚姬  
-##### 6614#       发表于 2020-4-19 21:14
-
-
-
-
-上位势杂谈力确实不错 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  ArcticIce  
-##### 6615#       发表于 2020-4-19 21:18
-
-
-
-
-跟昨天差的有点多
-
-
-
-
-
-
-
------
-
-####  zhongdasang  
-##### 6616#       发表于 2020-4-19 21:19
-
-
-
-
-吐槽liver环节居然还真是现场的几个v吐槽啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-全程就这？就这？
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6617#       发表于 2020-4-19 21:30
-
-
-
-
-公司周年纪念就是5个人搁这发散唠嗑可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过有艾因阿萨带着节奏，还能看，比VR昨晚那种不知所谓的节目好不少。
-
-
-嘉宾祝福环节把我尬到了，八竿子打不着的猫猫和歌姬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  CCCCCC梵  
-##### 6618#       发表于 2020-4-19 21:32
-
-
-
-
-这啥啊...就幸福美满呗
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6619#       发表于 2020-4-19 21:33
-
-
-
-
-四号机的文案水平就这就这就这？
-
-神tm诚实守信相亲相爱的大家庭，给我整笑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  ihihihihi  
-##### 6620#       发表于 2020-4-19 21:34
-
-
-
-
-阿萨把我尬到了
-
-
-
-
-
-
-
------
-
-####  Joreder  
-##### 6621#       发表于 2020-4-19 21:36
-
-
-
-
-什么敌台敌台，中国人不打中国人，大家一起打樱花妹<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  Fakerの幻影  
-##### 6622#       发表于 2020-4-19 21:43
-
-
-
-
-居然有田角<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6623#       发表于 2020-4-19 21:46
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这个是纯staff弄的流程，就普通的纪念流程也挺正常的，不过看后面的祝福部分，确实是减少了虹浓度，加大了vup圈的浓度，
-
-vup老是当yhm的洗脚婢确实不行，抱团拓圈也挺好。
-
-
-
-
-
-
-
------
-
-####  H2DR  
-##### 6624#       发表于 2020-4-19 21:58
-
-
-
-
-没钱做周边众筹可以拿两次钱
-
-
-
-
-
-
-
------
-
-####  lutla1422  
-##### 6625#       发表于 2020-4-19 21:59
-
-
-
-
-连周边启动资金都没有还需要liverr自己来讲的 真好笑
-
-
-
-
-
-
-
------
-
-####  苏打饼干喵  
-##### 6626#       发表于 2020-4-19 22:01
-
-
-
-
-阿萨太尬了，不会说就少说几句吧
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6627#       发表于 2020-4-19 22:01
-
-
-
-
-草，敢敢心心3D联动b站up主做挑战游戏，这综艺味爆棚了好吧？还要走本社的老路子吗，说好的本国特色呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
------
-
-####  Alphawalker  
-##### 6628#       发表于 2020-4-19 22:03
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为是3d什么的，结果还是吃虹剩下的菜，令人失望
-
-
-
-
-
-
-
------
-
-####  lunaticfool  
-##### 6629#       发表于 2020-4-19 22:04
-
-
-
-
-信息量好低<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  lkciub  
-##### 6630#       发表于 2020-4-19 22:09
-
-
-
-
-就这
-
-
-
-
-
-
-
------
-
-####  CCCCCC梵  
-##### 6631#       发表于 2020-4-19 22:12
-
-
-
-
-真不愧是VR呢
-
-
-
-
-
-
-
------
-
-####  seaside  
-##### 6632#       发表于 2020-4-19 22:13
-
-
-
-
-就这？全靠五人杂谈力撑起来的一周年纪念 vr好起来了
-
-
-
-
-
-
-
------
-
-####  死去的御景柚姬  
-##### 6633#       发表于 2020-4-19 22:14
-
-
-
-
-今天也是没有终于好起来的一天呢
-
-[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6634#       发表于 2020-4-19 22:18
-
-
-
-
-谢谢毛鸡排的人贡献的一场直播
-
-
-
-
-
-
-
------
-
-####  Kyonkon  
-##### 6635#       发表于 2020-4-19 22:21
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">红晓音的机战歌回开始了
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6636#       发表于 2020-4-19 22:28
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47137205&amp;ptid=1909283" target="_blank">seaside 发表于 2020-4-19 22:13</a>
-
-就这？全靠五人杂谈力撑起来的一周年纪念 vr好起来了</blockquote>
-还要怎样？穿越回半年前你要说VR可以组织一场5个人参与没有全程高尬高冷高度劝退的杂谈回，就算纯良民里也没几个信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  文长ddd  
-##### 6637#       发表于 2020-4-19 22:29
-
-
-
-
-不过靠五个人的杂谈力撑起了一场直播这不也证明了vr好起来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-好歹liver们不拉跨了
-
-
-
-
-
-
-
------
-
-####  zhongdasang  
-##### 6638#       发表于 2020-4-19 22:31
-
-
-
-
-十年之约？十年之后虚拟主播通通给我完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  死去的御景柚姬  
-##### 6639#       发表于 2020-4-19 22:31
-
-
-
-
-确实，终于好起来了！
-
-[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
-
-
------
-
-####  lxccsnm  
-##### 6640#       发表于 2020-4-19 22:32
-
-
-
-
-10年也太弱智了，1年就很好
-
-
-
-
-
-
-
------
-
-####  Kyonkon  
-##### 6641#       发表于 2020-4-19 22:33
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以隔壁是半年论我们这整个1年论或者10年论吗，B综也好起来了
-
-
-
-
-
-
-
------
-
-####  aucun  
-##### 6642#       发表于 2020-4-19 22:34
-
-
-
-
-说实话，可以理解，但确实不行
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6643#       发表于 2020-4-19 22:44
-
-
-
-
-信息少、阿萨铁直男RP、众筹之类其实都是小问题，我最想吐槽的是VR打算把跨界联动这种高难玩法交给依旧处于社内临场能力中下游的敢敢心心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  1140945841  
-##### 6644#       发表于 2020-4-20 16:31
-
-
-
-
-发错楼，编辑
-
-
-
-
-
-
-
------
-
-####  多余的动作  
-##### 6645#       发表于 2020-4-20 17:04
-
-
-
-
-发土味蹭热度视频就是VR本土化的方式么，那roza还真的是抽到了SSR卡呢
-
-
-
-
-
-
-
------
-
-####  锡哒哒  
-##### 6646#       发表于 2020-4-20 17:15
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有热度不蹭是傻b好吧，整点大伙喜闻乐见的活说不定还能吸引两个一般通过，难道要靠鸟神repo拯救vr？
-
-
-
-
-
-
-
------
-
-####  ocyashiroi  
-##### 6647#       发表于 2020-4-20 17:17
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这就是梁木吧
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  H2DR  
-##### 6648#       发表于 2020-4-20 17:18
-
-
-
- 本帖最后由 H2DR 于 2020-4-20 17:20 编辑 
-
-大概明白你们说的了aza唯粉多
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6649#       发表于 2020-4-20 17:25
-
-
-
- 本帖最后由 plllllum 于 2020-4-20 17:26 编辑 
-
-我好像被前几天的讨论种梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  zhongdasang  
-##### 6650#       发表于 2020-4-20 17:29
-
-
-
-
-一周年更加看清了vr派系呢
-
-
-
-
-
-
-
------
-
-####  萌之上弥人  
-##### 6651#         楼主| 发表于 2020-4-20 17:35
-
-
-
-
-roi上来就是土味营业，一下子拓宽了多少戏路啊！
-
-
-
-
-
-
-
------
-
-####  不吃布丁的宫子  
-##### 6652#       发表于 2020-4-20 17:39
-
-
-
- 本帖最后由 不吃布丁的宫子 于 2020-4-20 17:47 编辑 
-
-我不仅不觉的这个视频很傻x，反而感觉太少了，还有拓展的空间啊，做个剪辑，最后弄个手机掉落，aza惊讶脸特写，做个抱枕或者是布达佩斯大饭店的收尾，一个视频多个烂梗，这热度蹭的不是美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-syl：草，花留翻了个处处吻（动物之森改词版），还挺好听的，不愧是roi圈子的人，确实给劲嗷，更期待了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| plllllum| + 1|只蹭一个还是太单调了|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6653#       发表于 2020-4-20 17:52
-
-
-
-
-这不是挺好么，总不能一直吃日v尾气吧，v和土味还有高低区别么
-
-
-
-
-
-
-
------
-
-####  wuaistage1  
-##### 6654#       发表于 2020-4-20 17:58
-
-
-
-
-这两天你楼的黑屁尬出天际了，啥情况
-
-
-
-
-
-
-
------
-
-####  锡哒哒  
-##### 6655#       发表于 2020-4-20 18:02
-
-
-
-
-之前的黑桃影翠水灵后续怎么只在v综看到讨论，到最后原来是乌龙还白给桃皇个小电视<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  lunaticfool  
-##### 6656#       发表于 2020-4-20 18:02
-
-
-
- 本帖最后由 lunaticfool 于 2020-4-20 19:31 编辑 
-
-不是特定
-
-karu唱歌的声线怎么这么像asaki<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  锡哒哒  
-##### 6657#       发表于 2020-4-20 18:07
-
-
-
-
-asaki和罗伊前世有交集吗？八期目前有谁被特到了吗…
-
-
-
-
-
-
-
------
-
-####  plllllum  
-##### 6658#       发表于 2020-4-20 18:09
-
-
-
-
-怎么可能是asaki，asaki是之前和阿萨一起玩游戏的那个
-
-
-
-
-
-
-
------
-
-####  kaion111  
-##### 6659#       发表于 2020-4-20 18:10
-
-
-
-
-什么，桃皇是翠水灵是乌龙吗原来。
-
-
-
-
-
-
-
------
-
-####  滑稽Captain  
-##### 6660#       发表于 2020-4-20 18:12
-
-
-
-
-pax疑似找到了，是个画师，从意大利留学和画风来看应该还挺靠谱的
 
 
 
@@ -26961,10 +25379,11 @@ muri之前老是工作到10点多才回来直播，还经常半夜作业音，�
 
 
 
+ 本帖最后由 死去的御景柚姬 于 2020-4-27 00:03 编辑 
 
-印象中大哥变相透露自己年龄的情况还挺多的，但是主播里面给的时间点和自己当时的年纪倒也不一定是真实的
+印象中大哥变相透露自己年龄的情况还挺多的，但是直播里面给的时间点和自己当时的年纪倒也不一定是真实的
 
-[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
 
 
 
@@ -27087,13 +25506,600 @@ muri之前老是工作到10点多才回来直播，还经常半夜作业音，�
 
 
 
+ 本帖最后由 死去的御景柚姬 于 2020-4-27 00:06 编辑 
 
-可以用hanser音源那个AI来当作底边的分界线吗？
-
-[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
+可以用hanser音源那个AI来当作VUP底边的分界线吗？正好24小时在线。21舰长，3500热度
 
 
 
 
- 
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7467#       发表于 2020-4-27 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217171&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-26 23:57</a>
+
+这谁？罗宝他女友？再说罗伊也完全不怕冲啊。</blockquote>
+花留啊
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7468#       发表于 2020-4-27 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217195&amp;ptid=1909283" target="_blank">丶彼岸花开丶 发表于 2020-4-27 00:00</a>
+
+罗伊前世是谁啊？给个楼层呗</blockquote>
+张恩恩
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7469#       发表于 2020-4-27 00:05
+
+
+
+<blockquote>丶彼岸花开丶 发表于 2020-4-27 00:00
+罗伊前世是谁啊？给个楼层呗</blockquote>
+张恩恩，而且他已经有女朋友了
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7470#       发表于 2020-4-27 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217218&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-27 00:03</a>
+
+花留啊</blockquote>
+应该不会吧，哪需要换大号上舰这么多此一举，用花留号上舰不是一举两得么。
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7471#       发表于 2020-4-27 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217240&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-27 00:06</a>
+
+应该不会吧，哪需要换大号上舰这么多此一举，用花留号上舰不是一举两得么。 ...</blockquote>
+你们没想过上错号这个可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7472#       发表于 2020-4-27 00:11
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-27 00:15 编辑 
+
+@萌之上弥人   
+
+该换楼了 翻页难顶
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7473#       发表于 2020-4-27 00:12
+
+
+
+
+翻页bug影响有点大，该换楼了
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7474#       发表于 2020-4-27 00:25
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-27 00:27 编辑 
+
+这是哪个区转过来？还是说画师出道？5总督有点唬人
+
+
+
+
+
+
+
+QQ截图20200427002214.png
+(141.51 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-4-27 00:24 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/002426l6qp4bvffyvbq8bg.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 7475#       发表于 2020-4-27 00:28
+
+
+
+
+樱群，还行，上高中那会看山下智博视频知道了这个人，一开始还以为是日本人。话说屈楚萧也叫自己对象狗狗，pax这么叫总感觉有点奇怪。顺便问一下为什么叫紫纪式子姐？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7476#       发表于 2020-4-27 00:30
+
+
+
+<blockquote>聪明墨菲特 发表于 2020-4-27 00:28
+樱群，还行，上高中那会看山下智博视频知道了这个人，一开始还以为是日本人。话说屈楚萧也叫自己对象狗狗， ...</blockquote>
+shiki日语可以翻译为式
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7477#       发表于 2020-4-27 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217382&amp;ptid=1909283" target="_blank">wuaistage1 发表于 2020-4-27 00:25</a>
+
+这是哪个区转过来？还是说画师出道？5总督有点唬人</blockquote>
+这个是个画师啊，和鱼总他们挺熟的，说话挺有意思，皮也挺有特色
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7478#       发表于 2020-4-27 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217260&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-27 00:10</a>
+
+你们没想过上错号这个可能吗</blockquote>
+上错号还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7479#       发表于 2020-4-27 00:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不怕被挖，俊男靓女的，都是好事儿，都0202年了，前世给v引流也很正常。
+
+
+
+
+
+
+
+-----
+
+####  文长ddd  
+##### 7480#       发表于 2020-4-27 00:37
+
+
+
+ 本帖最后由 文长ddd 于 2020-4-27 00:40 编辑 
+
+vr找的怎么都是帅哥美女<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就不能来个小肥妹稀释一下现充气息吗syl，这么明目张胆的用前世引流就不怕等以后发展起来了前世粉和现在粉丝打架吗
+
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7481#       发表于 2020-4-27 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217501&amp;ptid=1909283" target="_blank">文长ddd 发表于 2020-4-27 00:37</a>
+
+vr找的怎么都是帅哥美女就不能来个小肥妹稀释一下现充气息吗syl，这么明目张胆的用前世引流就不怕等 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">版主不就是真实debu吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 攻心为上木之本| + 1|情弱求个版主颜出|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 7482#       发表于 2020-4-27 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217522&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-27 00:40</a>
+
+版主不就是真实debu吗</blockquote>
+版主是debu还能吸到一果那我还蛮服气的
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7483#       发表于 2020-4-27 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217437&amp;ptid=1909283" target="_blank">保罗赫伯特 发表于 2020-4-27 00:31</a>
+
+这个是个画师啊，和鱼总他们挺熟的，说话挺有意思，皮也挺有特色</blockquote>
+草，这可太特色了，别人是多开工让好让看客多打钱，这边是让看客多打钱才多开工<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小机灵鬼
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7484#       发表于 2020-4-27 00:44
+
+
+
+<blockquote>文长ddd 发表于 2020-4-27 00:37
+vr找的怎么都是帅哥美女就不能来个小肥妹稀释一下现充气息吗syl，这么明目张胆的用前世引流就不怕等 ...</blockquote>
+我觉得现在就在罗伊那上个舰还没构成引流吧，没有深挖过的粉丝怎么会联系到一起，罗伊前世还是b站大up都没主动引过流吧，他划分的还是很清楚的
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7485#       发表于 2020-4-27 00:47
+
+
+
+
+阿媂娅还不播 戒断了
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7486#       发表于 2020-4-27 00:47
+
+
+
+
+与其说是引流，不如说是不在意，以前七海不是还：谢谢wxqj给我送的钱。知道不知道并不影响当v。
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 7487#         楼主| 发表于 2020-4-27 00:49
+
+
+
+
+谁又爱讨论被ban号导致抽楼？
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 7488#       发表于 2020-4-27 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216871&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-26 23:22</a>
+光一说的S1牛伯伯是谁啊他干了什么？</blockquote>
+有1整个excel表格存放马甲号的男人
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  萌之上弥人  
+##### 7489#         楼主| 发表于 2020-4-27 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217577&amp;ptid=1909283" target="_blank">萌之上弥人 发表于 2020-4-27 00:49</a>
+
+谁又爱讨论被ban号导致抽楼？</blockquote>
+怎么就看b人脑瘫总是被ban号，隔壁几栋楼都好好的
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7490#       发表于 2020-4-27 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217567&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-27 00:47</a>
+
+与其说是引流，不如说是不在意，以前七海不是还：谢谢wxqj给我送的钱。知道不知道并不影响当v。 ...</blockquote>
+wxqj是谁啊，不怎么关注SNH
+
+
+
+
+
+
+
+-----
+
+####  kabusei  
+##### 7491#       发表于 2020-4-27 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217601&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-27 00:53</a>
+
+wxqj是谁啊，不怎么关注SNH</blockquote>
+无限奇迹
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7492#       发表于 2020-4-27 01:09
+
+
+
+
+才发现醒爷弄了5个总督，b站绘画区都快死了，结果靠套皮又活了过来。
+
+水叔也是套皮光速10万粉，结果粉丝太多吓得准毕业了。
+
+画师偶像化成不成功还是看杂谈力强不强吧，之前仓鼠撑起了绘画区半边天，前期收益还是很不错的，就是直播次数太少没有吃到b站粉丝暴涨的红利，现在边缘化后收益化也不是太好。
+
+鱼总孙渣他们男性画师天生劣势，大角虫倒了以后还在中国搞漫画的是真爱啊，虽然死路一条。
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 7493#       发表于 2020-4-27 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217522&amp;ptid=1909283" target="_blank">CoimKem 发表于 2020-4-27 00:40</a>
+版主不就是真实debu吗</blockquote>
+一果怎么说也是美少女好吧，版主不能是debu吧
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 7494#       发表于 2020-4-27 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216871&amp;ptid=1909283" target="_blank">南云铁虎 发表于 2020-4-26 23:22</a>
+
+光一说的S1牛伯伯是谁啊他干了什么？</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1065095-1-1.html](https://bbs.saraba1st.com/2b/thread-1065095-1-1.html)
+
+（主楼有反白可见部分）
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7495#       发表于 2020-4-27 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217706&amp;ptid=1909283" target="_blank">灵魂收割机 发表于 2020-4-27 01:13</a>
+
+https://bbs.saraba1st.com/2b/thread-1065095-1-1.html
+
+（主楼有反白可见部分）</blockquote>
+谢谢老哥科普
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7496#       发表于 2020-4-27 01:30
+
+
+
+
+V综都因为抽楼换了一栋了还没事呢
+
+同一天抽的同一个人，只不过这两天没啥热度无所谓就是了
+
+张嘴就地图炮的确实是有点脑瘫，建议有心情的找个马甲开楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
