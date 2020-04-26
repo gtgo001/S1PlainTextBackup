@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 22:01** 
+> ## **本文件最后更新于2020-04-27 00:01** 
 
 
 
@@ -26209,4 +26209,891 @@ vr首播舰长最多的v<img src="https://static.saraba1st.com/image/smiley/face
 
 
 
-  
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7417#       发表于 2020-4-26 22:03
+
+
+
+
+清楚歌势就是吸粉
+
+
+
+
+
+
+
+-----
+
+####  NeTlk  
+##### 7418#       发表于 2020-4-26 22:03
+
+
+
+ 本帖最后由 NeTlk 于 2020-4-26 22:21 编辑 
+
+看以后的直播内容吧
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7419#       发表于 2020-4-26 22:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216076&amp;ptid=1909283" target="_blank">kabusei 发表于 2020-4-26 22:00</a>
+
+vr首播舰长最多的v</blockquote>
+沙皇首播完多少舰长?
+
+
+
+
+
+
+
+-----
+
+####  during  
+##### 7420#       发表于 2020-4-26 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最多的沙皇吧
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7421#       发表于 2020-4-26 22:06
+
+
+
+
+pax试试向冷鸟方向努力吧，估计以后也就装傻卖呆役了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 7422#       发表于 2020-4-26 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">养gachi创收也是企业势的重要一环呀
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 7423#       发表于 2020-4-26 22:08
+
+
+
+
+不太了解沙皇，有人讲讲强在哪里吗
+
+
+
+
+
+
+
+-----
+
+####  feelmydick  
+##### 7424#       发表于 2020-4-26 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谢1245老板这段哼哼啊啊有点可爱
+
+
+登基了登基了
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7425#       发表于 2020-4-26 22:08
+
+
+
+
+saya首播60舰吧？斗虫网礼物是一万九千多，看看pax这次首播的收入是多少吧
+
+
+
+
+
+
+
+-----
+
+####  黑糖花园  
+##### 7426#       发表于 2020-4-26 22:09
+
+
+
+
+我的心已经被pax夺走，今生或许不再会有悲喜
+
+—— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7427#       发表于 2020-4-26 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">杂谈虚无倒也不是不能当v，就是怎么也不定一个以后的直播内容，阿菜也不是好当的啊
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7428#       发表于 2020-4-26 22:11
+
+
+
+
+沙皇首播在两个同期的拉跨对比之下显得很用心（其实只是中上水平，后来涨粉速度也降下来了），还有一手切换自如的萌音和青年音，首播我记得是接近70舰长下的？不过现在才2.3w粉，快被花留超了。
+
+花爷，永远滴神（论蹭热度唱歌的重要性）
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7429#       发表于 2020-4-26 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216167&amp;ptid=1909283" target="_blank">ArcticIce 发表于 2020-4-26 22:08</a>
+
+不太了解沙皇，有人讲讲强在哪里吗</blockquote>
+全靠同期衬托
+
+
+
+
+
+
+
+-----
+
+####  Kyonkon  
+##### 7430#       发表于 2020-4-26 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">艾因这个监控室好活
+
+沙皇同期衬托太厉害了
+
+
+
+
+
+
+
+-----
+
+####  l778899  
+##### 7431#       发表于 2020-4-26 22:13
+
+
+
+
+沙夜太爱她的ow了，但凡斗个地主粉丝也比现在多了吧（我永远爱铃鹿）
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7432#       发表于 2020-4-26 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216147&amp;ptid=1909283" target="_blank">zhongdasang 发表于 2020-4-26 22:06</a>
+
+pax试试向冷鸟方向努力吧，估计以后也就装傻卖呆役了</blockquote>
+冷鸟历史地位最低的一次
+
+
+
+
+
+
+
+-----
+
+####  d515512594  
+##### 7433#       发表于 2020-4-26 22:20
+
+
+
+
+版主感觉也太容易迟到拉跨了
+没有时间管理啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  jk9hot  
+##### 7434#       发表于 2020-4-26 22:27
+
+
+
+
+看完新人一圈，最后还是打开艾因的直播间。
+
+老人播了这么久，虽然不说大红大紫，有了经验还是看的比较舒服的。
+
+有的人喜欢陪着偶像磕磕碰碰成长，有的人喜欢看随手拈来的老油条。
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 7435#       发表于 2020-4-26 22:27
+
+
+
+
+断断续续终于把版主和组织给版主发的老婆的凭依华看完了，虽然知道是在钓鱼，但是不懂装懂张嘴就云的样子还是让人恨不得给他两拳。有点怀疑自己之前觉得版主mc/神界原罪观感还不错是不是因为没看过不套皮的人玩mc/神界原罪？
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑糖花园|-1|不行|
+| 克罗夏| + 1|光一的确尬翻我了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7436#       发表于 2020-4-26 22:32
+
+
+
+
+鸟神好像很喜欢紫纪啊，贴贴
+
+
+
+
+
+
+
+-----
+
+####  lxccsnm  
+##### 7437#       发表于 2020-4-26 22:33
+
+
+
+
+holo内鬼贴铁血虹人？
+
+
+
+
+
+
+
+-----
+
+####  achou  
+##### 7438#       发表于 2020-4-26 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216354&amp;ptid=1909283" target="_blank">攻心为上木之本 发表于 2020-4-26 22:27</a>
+
+断断续续终于把版主和组织给版主发的老婆的凭依华看完了，虽然知道是在钓鱼，但是不懂装懂张嘴就云的样子还 ...</blockquote>
+能看完也是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不过我感觉光一联动和SOLO是两个风格
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 7439#       发表于 2020-4-26 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216354&amp;ptid=1909283" target="_blank">攻心为上木之本 发表于 2020-4-26 22:27</a>
+
+断断续续终于把版主和组织给版主发的老婆的凭依华看完了，虽然知道是在钓鱼，但是不懂装懂张嘴就云的样子还 ...</blockquote>
+我就无所谓了，不看版主联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过自己懂别人不懂的东西，看着本来就容易上火
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7440#       发表于 2020-4-26 22:43
+
+
+
+ 本帖最后由 wuaistage1 于 2020-4-26 22:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216478&amp;ptid=1909283" target="_blank">achou 发表于 2020-4-26 22:40</a>
+
+能看完也是真爱了，不过我感觉光一联动和SOLO是两个风格</blockquote>
+光一solo确实很OK，但联动。。。还记得最初2次MC和首次神界联动，看得我少有的想喷人，包括所谓神回甜蜜之家后半段也是真的很傻逼。我还是头一次在直播里见到各种强行不听人话的做法。
+
+
+省一楼，花留杂谈力这是直奔VR顶层了。
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7441#       发表于 2020-4-26 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">罗伊邀请的还是给力啊，毕竟是名up转生，杂谈听起来很舒服，首播就算是ow也能出梗，比较看好。
+
+syl，版主的脑回路是比别人多几圈的，solo和联动简直是2个世界。
+
+
+
+
+
+
+
+-----
+
+####  不吃布丁的宫子  
+##### 7442#       发表于 2020-4-26 23:02
+
+
+
+
+翻页问题有点严重啊，是时候b3了
+
+
+
+
+
+
+
+-----
+
+####  zhongdasang  
+##### 7443#       发表于 2020-4-26 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216241&amp;ptid=1909283" target="_blank"> wuaistage1 发表于 2020-4-26 22:15</a> 引用:zhongdasang 发表于 2020-4-26 22:06 pax试试向冷鸟方向努力吧，估计以后也就装傻卖呆役了 冷鸟历史地位最低的一次 </blockquote>
+确实，仔细想想冷鸟也不会说自己的的粉丝是狗来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 7444#       发表于 2020-4-26 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216213&amp;ptid=1909283" target="_blank">plllllum 发表于 2020-4-26 22:12</a>
+全靠同期衬托</blockquote>
+这么一说确实对同期基本没印象
+
+
+
+
+
+
+
+-----
+
+####  斯大林的拖拉机  
+##### 7445#       发表于 2020-4-26 23:06
+
+
+
+
+久违的看了一下安堂姐直播
+
+感觉摆脱太君rp的残留之后比以前有意思多了，玩泰坦陨落的那种嚣张感也很萌
+
+而且她说话的语调真的好秦川，不是八木那种刻意模仿的感觉，就是神似
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 7446#       发表于 2020-4-26 23:07
+
+
+
+
+原来muri还在上学啊，为什么原来云到的信息都说是社畜
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 7447#       发表于 2020-4-26 23:12
+
+
+
+<blockquote>ArcticIce 发表于 2020-4-26 23:07
+原来muri还在上学啊，为什么原来云到的信息都说是社畜</blockquote>
+那就是研究生吧，我觉得我之前看大哥直播感觉她应该是本科毕业了，而且能感觉出来她比鸟神大一点
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 7448#       发表于 2020-4-26 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216741&amp;ptid=1909283" target="_blank">ArcticIce 发表于 2020-4-26 23:07</a>
+
+原来muri还在上学啊，为什么原来云到的信息都说是社畜</blockquote>
+muri之前老是工作到10点多才回来直播，还经常半夜作业音，不是研究生就是社畜吧。
+
+
+
+
+
+
+
+-----
+
+####  南云铁虎  
+##### 7449#       发表于 2020-4-26 23:22
+
+
+
+
+光一说的S1牛伯伯是谁啊他干了什么？
+
+
+
+
+
+
+
+-----
+
+####  H2DR  
+##### 7450#       发表于 2020-4-26 23:25
+
+
+
+
+建议看一下BV1i7411E73t推一下大哥的年龄
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7451#       发表于 2020-4-26 23:33
+
+
+
+
+版主表达了对cp粉乱刷的观点“规矩是定给守规矩的人的”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzy  
+##### 7452#       发表于 2020-4-26 23:34
+
+
+
+
+樱群 给roi上舰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 7453#       发表于 2020-4-26 23:35
+
+
+
+
+光一的振兴dota计划还遥遥无期，但是有多少人为了版主交了五块钱呢
+
+反正至少我是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkol  
+##### 7454#       发表于 2020-4-26 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216965&amp;ptid=1909283" target="_blank">曜不能停 发表于 2020-4-26 23:33</a>
+
+版主表达了对cp粉乱刷的观点“规矩是定给守规矩的人的”</blockquote>
+可以说看得很透了
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 7455#       发表于 2020-4-26 23:38
+
+
+
+ 本帖最后由 曜不能停 于 2020-4-26 23:40 编辑 
+
+版主说到底还是会说话，这一点主要体现在solo直播里，联动到现在没人能跟得上他的节奏，也就和惑姬的那次有点感觉
+
+
+
+
+
+
+
+-----
+
+####  nihilism  
+##### 7456#       发表于 2020-4-26 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216182&amp;ptid=1909283" target="_blank">黑糖花园 发表于 2020-4-26 22:09</a>
+
+我的心已经被pax夺走，今生或许不再会有悲喜
+
+
+—— 来自 Sony J9110, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+好耶！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7457#       发表于 2020-4-26 23:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那人家不守规矩能怎么办呢？又没有惩罚
+
+
+
+
+
+
+
+-----
+
+####  ArcticIce  
+##### 7458#       发表于 2020-4-26 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216850&amp;ptid=1909283" target="_blank">kaion111 发表于 2020-4-26 23:19</a>
+muri之前老是工作到10点多才回来直播，还经常半夜作业音，不是研究生就是社畜吧。 ...</blockquote>
+我还以为是铲子铲歪了
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7459#       发表于 2020-4-26 23:46
+
+
+
+
+印象中大哥变相透露自己年龄的情况还挺多的，但是主播里面给的时间点和自己当时的年纪倒也不一定是真实的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 7460#       发表于 2020-4-26 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47216978&amp;ptid=1909283" target="_blank">rzy 发表于 2020-4-26 23:34</a>
+樱群 给roi上舰了</blockquote>
+用前世号上舰 真就不怕被冲啊 引流gkd<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7461#       发表于 2020-4-26 23:55
+
+
+
+
+挨着看了一圈国V下层，舰队数的普遍区间从去年下半年的30-50下降到现在的10-30。
+
+
+
+圈子没怎么扩大，VR和HOLOCN两公司发力后的挤压效果非常显著。“公会”势力还没入驻呢，个人势和底层小箱就已经没戏了。
+
+
+
+
+
+
+
+-----
+
+####  wuaistage1  
+##### 7462#       发表于 2020-4-26 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217099&amp;ptid=1909283" target="_blank">seaside 发表于 2020-4-26 23:49</a>
+
+用前世号上舰 真就不怕被冲啊 引流gkd</blockquote>
+这谁？罗宝他女友？再说罗伊也完全不怕冲啊。
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 7463#       发表于 2020-4-26 23:57
+
+
+
+
+樱群还行 居然还是个我眼熟的coser
+
+
+
+
+
+
+
+-----
+
+####  CoimKem  
+##### 7464#       发表于 2020-4-26 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47217082&amp;ptid=1909283" target="_blank">死去的御景柚姬 发表于 2020-4-26 23:46</a>
+
+印象中大哥变相透露自己年龄的情况还挺多的，但是主播里面给的时间点和自己当时的年纪倒也不一定是真实的
+
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">版主天天说自己19岁呢，你信吗
+
+
+
+
+
+
+
+-----
+
+####  丶彼岸花开丶  
+##### 7465#       发表于 2020-4-27 00:00
+
+
+
+
+罗伊前世是谁啊？给个楼层呗
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7466#       发表于 2020-4-27 00:01
+
+
+
+
+可以用hanser音源那个AI来当作底边的分界线吗？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+ 
