@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 06:05** 
+> ## **本文件最后更新于2020-04-26 10:07** 
 
 
 
@@ -2246,4 +2246,372 @@ twitter2: https:// ...</blockquote>
 
 
 
-                                              
+
+
+-----
+
+####  YODOboi  
+##### 9114#       发表于 2020-4-26 06:43
+
+
+
+
+刚听了emma的September喜欢上了，结果发现才毕业不久
+
+看着就不缺钱的立绘和模型，怎么就被赶到管人败者区sr唱金曲了呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9115#       发表于 2020-4-26 06:56
+
+
+
+
+Emma不是某电视台的项目吗，电视台对收视率还是很严格的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9116#       发表于 2020-4-26 07:14
+
+
+
+
+小肥妹练没练管乐我不清楚 记得前几天的tc她在水里吹了三十秒的泡泡
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 9117#       发表于 2020-4-26 07:36
+
+
+
+
+狗子又要熬死人了，我有点抗不住<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9118#       发表于 2020-4-26 08:08
+
+
+
+<blockquote>kanonsisya 发表于 2020-4-26 02:51
+白洋葱已经脱离虚拟管人的低级趣味了吗，我看她最近全是在守望区开播的
+
+批站守望区一姐 ...</blockquote>
+专心上分就挂在守望区了好像，不用一直说话
+
+不过B站守望区也太弱了，这就已经一姐了……
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 9119#       发表于 2020-4-26 08:26
+
+
+
+
+总感觉这个星期夏哥相关kpi增加了百分之二百
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9120#       发表于 2020-4-26 08:27
+
+
+
+
+运营发了个discord给狗子“游戏机已经很可怜了 你就放过它吧”
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9121#       发表于 2020-4-26 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47207353&amp;ptid=1924531" target="_blank">与天争锋_LZ 发表于 2020-04-26 08:26:36</a>
+总感觉这个星期夏哥相关kpi增加了百分之二百
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的  v2.2.2.1 ...</blockquote>油管30W阿b60W刷点kpi怎么了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9122#       发表于 2020-4-26 08:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206863&amp;ptid=1924531" target="_blank">proxima 发表于 2020-04-26 04:12:03</a>
+管人特别喜欢唱的星间飞行那也是12年的anisong了啊。
+
+更不要说还整点什么god knows啥的。杏粉特别喜欢还被 ...</blockquote>anisong也要区分大热的和冷门的
+
+比如夸皇阿希这个年纪的唱比她们年纪大的残酷天使的行动纲领和brave heart也是毫无问题
+
+可要是唱狐皇唱过的06年的斩魔大圣就有点奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9123#       发表于 2020-4-26 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206804&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-04-26 03:25:48</a>
+白洋葱实质三语直播也太顶了，实质hololiveEN一期生，建议和龙皇一起移籍。</blockquote>白洋葱可惜了，要是晚点进holoEN装成三语华裔来你B还能享受yhm待遇<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 9124#       发表于 2020-4-26 08:46
+
+
+
+
+mysk唱魔神z和大魔神的呢，比起来邓丽君的歌都算年轻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+你们也知道她不可能是60岁
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9125#       发表于 2020-4-26 08:54
+
+
+
+
+能有人画mysk姐贵把游戏机榨干到死亡蓝灯的本子吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9126#       发表于 2020-4-26 09:00
+
+
+
+
+再播报一下，今天晚上九点stars的Ark服开放，已知的是夕刻roberu似乎不会来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 9127#       发表于 2020-4-26 09:28
+
+
+
+
+海牛apex上钻石了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9128#       发表于 2020-4-26 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206025&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-26 00:20</a>
+彩虹抽成高❌
+平台抽成高✅</blockquote>
+booth作为平台开发成本和运营成本也最低啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 9129#       发表于 2020-4-26 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206662&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-26 02:21</a>
+来讨论一下蘑菇人的年龄吧，为啥一个女性会唱向着未来咆哮
+
+
+A.她在nico红火的时期听过这首歌的nico翻唱</blockquote>
+jam pro不是唯一指定婆罗门白月光乐队，我选C
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 9130#       发表于 2020-4-26 09:41
+
+
+
+
+不知道为什么觉得apex钻石没那么难上，大概是天天看某人的下饭直播看出错觉了，还以为钻石就这水平，结果之前科普了一下才发现“这水平”已经超过很多很多人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+不过小海牛是apex铁粉了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9131#       发表于 2020-4-26 09:50
+
+
+
+
+海牛也太强了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9132#       发表于 2020-4-26 09:59
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-26 10:01 编辑 
+
+斩魔大圣怎么了.jpg
+
+
+我这边一堆十几二十的同龄人讨论钢屋讨论的热烈着呢
+
+
+就不许年轻人精神上怀念一下以前吗
+
+
+另外，我挺喜欢的一个黄油脚本家，91年生人，然而作品里全是上世纪80年代欧美日本文化产品的梗，这怎么算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 9133#       发表于 2020-4-26 10:01
+
+
+
+
+  阴湿的人想攻击别人年龄大而已，又不敢直球嘴臭怕被扣鹅。
+
+
+
+
+
+                                             
