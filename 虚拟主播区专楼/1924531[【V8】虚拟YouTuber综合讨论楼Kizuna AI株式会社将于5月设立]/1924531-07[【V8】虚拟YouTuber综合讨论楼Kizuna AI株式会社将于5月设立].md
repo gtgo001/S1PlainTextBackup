@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 18:08** 
+> ## **本文件最后更新于2020-04-27 20:08** 
 
 
 
@@ -21261,7 +21261,7 @@ bsyl，我当时还问过版主-8了能不能进去，结果没回咱。如果�
 
 
 福报相关，另外以哈哥为首的2020新男v时间都算可以
-<img src="https://pbs.twimg.com/media/EWlB3acUMAIHph2?format=png&amp;name=900x900" height="660" id="aimg_I6sDz" onclick="zoom(this, this.src, 0, 0, 0)" width="720"/)
+<img src="https://pbs.twimg.com/media/EWlB3acUMAIHph2?format=png&amp;name=900x900" height="660" id="aimg_zg5J2" onclick="zoom(this, this.src, 0, 0, 0)" width="720"/)
 
 
 
@@ -27588,7 +27588,7 @@ azuma和柚子转生了之后还一起联动，不也挺好的吗
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225401&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-4-27 17:43</a>
 
 兔子前几天不是说自己新手吗，怎么直接不演了</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她躺赢的啊，萝卜才是大腿。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她躺赢的啊，萝卜才是大腿，这种游戏太久不玩变菜很正常。
 
 
 
@@ -27644,4 +27644,1576 @@ azuma和柚子转生了之后还一起联动，不也挺好的吗</blockquote>�
 
 
 
-  
+
+
+-----
+
+####  ひびき  
+##### 10422#       发表于 2020-4-27 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225699&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-4-27 18:08</a>
+
+小肥妹带队 这一小时估计都要白给了</blockquote>
+不应该第一把吃个鸡然后白给一个小时么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 10423#       发表于 2020-4-27 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">彩虹炸的那天，我会和各位一起见证，
+
+
+
+
+
+
+
+-----
+
+####  weisika  
+##### 10424#       发表于 2020-4-27 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225622&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-27 18:02</a>
+
+最近要补作业需要点背景音，就打算找些ASMR，nico频道会员都开了，但是感觉不错的真的没几个，朋友们来推荐 ...</blockquote>
+PTR的好姐妹西園寺メアリ姐姐  还有彩虹的小熊猫也挺不错的.
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|声音可以的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10425#       发表于 2020-4-27 18:10
+
+
+
+ 本帖最后由 某穆克拉 于 2020-4-27 18:13 编辑 
+
+小天使的目标是30w关注，长胸，还有游戏上手。说想搞asmr，然后翻了翻sc的资料本。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10426#       发表于 2020-4-27 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225622&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-27 18:02</a>
+
+最近要补作业需要点背景音，就打算找些ASMR，nico频道会员都开了，但是感觉不错的真的没几个，朋友们来推荐 ...</blockquote>
+虹的话可以试试噗酱啊。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|这位棒诶，谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10427#       发表于 2020-4-27 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225557&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-27 17:57</a>
+
+VOEM三人也算不上底边。在有大物gyari天天画图引流的情况下头牌pikamee现在都三万多快四万订阅了，混血双语 ...</blockquote>
+哦？能简单介绍下水平吗，我对管人要求不高，单人打普通模式全程无压力就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 10428#       发表于 2020-4-27 18:17
+
+
+
+
+说起来有公开过「SLEE」的语源或者全称吗，有点在意
+
+这个又被转到timeline上以后看着猜了半天，S-新世代、L-リアル/ライブ(？)，然后就编不下去了
+
+
+
+
+
+
+5009BFD9-757F-4F50-911F-F6764FF2B225.jpeg
+(25.35 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-27 18:13 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/181326jsjw7h79cwbfsksh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 10429#       发表于 2020-4-27 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225762&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-27 18:13</a>
+
+哦？能简单介绍下水平吗，我对管人要求不高，单人打普通模式全程无压力就行 ...</blockquote>
+[https://www.youtube.com/watch?v=UqDRHb_NghY&amp;pbjreload=10](https://www.youtube.com/watch?v=UqDRHb_NghY&amp;pbjreload=10)
+
+现在就在播，我也没玩过泰拉瑞亚不知道这水平怎么样，单纯看着很了解这游戏，你自己鉴定一下吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10430#       发表于 2020-4-27 18:20
+
+
+
+
+粽子这是上瘾了啊
+
+
+
+
+
+
+1587982756054.jpg
+(81.29 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-27 18:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/182023wa9cao72bt32p2n9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10431#       发表于 2020-4-27 18:23
+
+
+
+
+说到asmr，有个404经常给我推送的asmr频道，那天看到发了个黑屏视频哭诉被404误上了年龄限制，找客服也没用，让观众多点订阅上了银盾客服才会认真处理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这一看404也是店大欺客啊，十万对大部分虚拟管人来说简直是天堑了。实在不是个什么好的活动平台<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10432#       发表于 2020-4-27 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225833&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-27 18:20</a>
+
+https://www.youtube.com/watch?v=UqDRHb_NghY&amp;pbjreload=10
+
+现在就在播，我也没玩过泰拉瑞亚不知道这水 ...</blockquote>
+看到了，モノエ对吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 10433#       发表于 2020-4-27 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225622&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-27 18:02</a>
+
+最近要补作业需要点背景音，就打算找些ASMR，nico频道会员都开了，但是感觉不错的真的没几个，朋友们来推荐 ...</blockquote>
+点的北上双叶，比不上DL上卖钱的专业水平，就纯白嫖的来说还阔以 建议只听最新的
+
+你的要求我觉得男v的一般向奥术比较合适（）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|我听见男人假装情意浓浓会头疼.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10434#       发表于 2020-4-27 18:30
+
+
+
+
+年龄限制对频道影响很大吗？
+
+是说整个频道被年龄限制还是只是单视频受限制
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10435#       发表于 2020-4-27 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225814&amp;ptid=1924531" target="_blank">null0304 发表于 2020-4-27 18:17</a>
+说起来有公开过「SLEE」的语源或者全称吗，有点在意
+
+这个又被转到timeline上以后看着猜了半天，S-新世代、L ...</blockquote>
+你就当是seele好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10436#       发表于 2020-4-27 18:35
+
+
+
+<blockquote>null0304 发表于 2020-4-27 18:17
+说起来有公开过「SLEE」的语源或者全称吗，有点在意
+
+这个又被转到timeline上以后看着猜了半天，S-新世代、L ...</blockquote>
+entertainment explorer 啥的... 这谁猜的出来啊
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 10437#       发表于 2020-4-27 18:40
+
+
+
+ 本帖最后由 辻君 于 2020-4-27 19:22 编辑 
+
+语死早，应该是没开SC的不能官号转，组号转，开了SC的无所谓
+
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10438#       发表于 2020-4-27 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225999&amp;ptid=1924531" target="_blank">辻君 发表于 2020-4-27 18:40</a>
+
+现在彩虹转播只要开SC就不让转了...越来越离谱
+
+
+—— 来自 Sony H8296, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+？这是被yagoo脑控了下的指令？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10439#       发表于 2020-4-27 18:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/184501bwlh7wkmzmww0wi7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200427184432.png</strong> (924.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-27 18:45 上传
+
+
+
+
+
+
+我错了，我要色小天使！
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 10440#       发表于 2020-4-27 18:49
+
+
+
+
+楼上一堆篮球足球梗看不太懂，提供点新思路。
+四天王所代表的视频势：任地狱
+彩虹：索尼
+holo：xbox
+ps1时代（18年）索尼通过ff7（月ノ美兔）等一系列划时代游戏和对手（任地狱）的一系列狂妄自大的作死行为，初出茅庐的却一跃成为那个时代的王者，喊出的口号就是所有的游戏（vtb）集结于此。而微软的第一代主机只在欧美有市场。
+ps2时代（19年），任地狱推出n64（四爱企划），市场反馈却不佳，并且被ps2（19组）吊锤，微软方面有起色，却依然无法与索尼分庭抗礼。
+ps3时代（也就是今年），索尼彻底飘了，试图把游戏机打造成多媒体一体机，并且售价高昂，发言激怒玩家群体（对应田角不自量力试图进军主流市场，遭遇黑天鹅后又昏招频出），初期销量和口碑滑铁卢。而微软的360虽然有着三红问题，却凭借技术积累和欧美游戏的崛起（龙皇，手游联动和meme），逐渐开始反过来吊打索尼，成为一代神机。而任天堂开发出了will（老爱复活）
+
+不过以上也都是硬对，实际情况还是有挺大出入的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10441#       发表于 2020-4-27 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225999&amp;ptid=1924531" target="_blank">辻君 发表于 2020-4-27 18:40</a>
+
+现在彩虹转播只要开SC就不让转了...越来越离谱
+
+
+—— 来自 Sony H8296, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+有详细消息吗，我们组好像没有提过这方面（暂时）<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10442#       发表于 2020-4-27 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226035&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-27 18:45</a>
+
+我错了，我要色小天使！</blockquote>
+本虹人也好喜欢她<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10443#       发表于 2020-4-27 18:50
+
+
+
+
+编辑了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 10444#       发表于 2020-4-27 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225999&amp;ptid=1924531" target="_blank">辻君 发表于 2020-4-27 18:40</a>
+现在彩虹转播只要开SC就不让转了...越来越离谱
+
+—— 来自 Sony H8296, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+不知道你的消息源是什么，我这边收到的消息是没开sc的直播官号不转组号转
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10445#       发表于 2020-4-27 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226101&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-27 18:52</a>
+
+不知道你的消息源是什么，我这边收到的消息是没开sc的直播官号不转组号转 ...</blockquote>
+这不是早有规定了吗，针对非收益化的配信内容
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 10446#       发表于 2020-4-27 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225999&amp;ptid=1924531" target="_blank">辻君 发表于 2020-4-27 18:40</a>
+现在彩虹转播只要开SC就不让转了...越来越离谱
+
+—— 来自 Sony H8296, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+你看错了吧 原文是没开sc的不能官号转，可以组号或斗鱼转，然后老任不能官号转
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10447#       发表于 2020-4-27 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226073&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-04-27 18:49:18</a>
+楼上一堆篮球足球梗看不太懂，提供点新思路。
+四天王所代表的视频势：任地狱
+彩虹：索尼
+holo：xbox
+ps1时 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">wii倒是套得上老爱，体感游戏的始皇，但是买游戏的用户少得可怜，wii u则是四爱。
+索尼和微软根据局势不同虹杏都可以套。
+但要从PS1世代开始论道，我SEGA呢？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 10448#       发表于 2020-4-27 18:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/2ad6d1d226d37b685176d55bc73ea4b3/IMG_D5FEE9F0524E442AFD97C4B696D38AAE.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10449#       发表于 2020-4-27 18:57
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-4-27 19:13 编辑 
+
+沃日，刚才看了下这人上次的录像，起手专家还行，2.6w订阅玩一个在日本根本没人气还不支持日语的游戏能有1k多同接，知道见到腐地回头就跑，还会用回城药水，经验者无疑<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+有时间看看打boss水平，如果有点儿操作那就是不比我自己玩差太多了
+
+
+一般鉴定水平看三个boss：骷髅队长、肉山、猪鲨，也不知道能不能打到这仨boss
+
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10450#       发表于 2020-4-27 19:03
+
+
+
+<blockquote>金魚佬 发表于 2020-4-27 18:57
+wii倒是套得上老爱，体感游戏的始皇，但是买游戏的用户少得可怜，wii u则是四爱。
+
+索尼和微软根据局 ...</blockquote>
+那sega就是p家吧
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 10451#       发表于 2020-4-27 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222928&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-04-27 14:34:59</a>
+电台是正经职业加长期饭票吧，船长肯定很满意的，何况就宅知识也只有狐船比较匹配了
+
+ ...</blockquote>看看武士道当前一姐爱美那个越来越重的黑眼圈你就知道了。
+武士道这高强度997福报不把你管人安排明白？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10452#       发表于 2020-4-27 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226195&amp;ptid=1924531" target="_blank">fjm 发表于 2020-04-27 19:03:19</a>
+那sega就是p家吧</blockquote>P家是小霸王还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10453#       发表于 2020-4-27 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226211&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-4-27 19:05</a>
+
+P家是小霸王还差不多
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+小霸王，然后在天朝一款机子爆了御三家？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10454#       发表于 2020-4-27 19:15
+
+
+
+
+sega不是应该是点吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10455#       发表于 2020-4-27 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226146&amp;ptid=1924531" target="_blank">soraku 发表于 2020-4-27 18:57</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说这两个规定是什么原因啊？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10456#       发表于 2020-4-27 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226298&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-27 19:16</a>
+
+话说这两个规定是什么原因啊？</blockquote>
+应该是版权原因，怕追到国内来吧。
+
+不能开sc就是版权有问题这样。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 10457#       发表于 2020-4-27 19:19
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-4-27 19:20 编辑 
+<blockquote>stedckk 发表于 2020-4-27 19:16
+话说这两个规定是什么原因啊？</blockquote>
+
+官号算彩虹的，一般不开sc就是怕版权，怕被任天堂之类的找上门吧
+
+国内的无所谓任天堂管不到，搞个彩虹还是没啥难度的
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10458#       发表于 2020-4-27 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226252&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-27 19:11</a>
+
+小霸王，然后在天朝一款机子爆了御三家？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是狗妈吧
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10459#       发表于 2020-4-27 19:20
+
+
+
+
+本田翼真可爱啊，能不能套个皮当当虚拟管人啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10460#       发表于 2020-4-27 19:21
+
+
+
+
+mio占卜aqua ——— 永远的欲求不满
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10461#       发表于 2020-4-27 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226337&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-27 19:21</a>
+
+mio占卜aqua ——— 永远的欲求不满</blockquote>
+这就是数字厨啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10462#       发表于 2020-4-27 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226298&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-27 19:16</a>
+
+话说这两个规定是什么原因啊？</blockquote>
+有很多游戏是只能播出/申请播出不能收益的，不光任任
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 10463#       发表于 2020-4-27 19:23
+
+
+
+
+阿夸：（欲求不满）能改正么？
+
+mio：改不了了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl
+
+阿夸的表情我i了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10464#       发表于 2020-4-27 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那杏呢，除了不播动森和某些游戏和asmr，好像没啥特别的限制啊。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10465#       发表于 2020-4-27 19:23
+
+
+
+
+阿希好惨，好不容易有点带妹的样子，被强强电脑背刺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 10466#       发表于 2020-4-27 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226329&amp;ptid=1924531" target="_blank">M829A4 发表于 2020-4-27 19:19</a>
+那是狗妈吧</blockquote>
+狗妈现在不也是最新最in的，小霸王一段时间就倒了，其实还挺符合P家的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三种人  
+##### 10467#       发表于 2020-4-27 19:24
+
+
+
+
+《 樱花ライト版βリリース決定樱花 》
+
+
+スマートフォンでも、ユメノグラフィア！
+
+
+より手軽にご体験頂ける
+
+ライト版のオープンβリリースが
+
+4/30(木) に決定しました！
+
+
+ickr不会把运营精力都放在陪酒女企划上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10468#       发表于 2020-4-27 19:25
+
+
+
+
+谢谢提醒，我赶紧去看aqua占卜结果
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10469#       发表于 2020-4-27 19:26
+
+
+
+ 本帖最后由 colodes 于 2020-4-27 19:29 编辑 
+
+必死想保住自己在hololive皇的地位 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 10470#       发表于 2020-4-27 19:28
+
+
+
+
+虚拟陪酒女企划怎么看都是败了，还投钱真是疯了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10471#       发表于 2020-4-27 19:28
+
+
+
+
+占卜的解牌也有一定主观性，这波是来自三才的敲打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10472#       发表于 2020-4-27 19:28
+
+
+
+
+同样的国王卡
+
+逆位置：aqua
+
+正位置：pekora
+
+解释一致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 10473#       发表于 2020-4-27 19:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">MIO妈占卜，在周围的人看来，阿夸在为了保持目前top的地位而烦恼着
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 10474#       发表于 2020-4-27 19:29
+
+
+
+
+草，阿夸皇帝卡牌逆位
+
+阿夸：FBK有没有皇帝的卡牌
+
+mio：FBK大多数是正位，好像没有皇帝的卡牌，出现皇帝卡牌的是Pekora
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+笑死了
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 10475#       发表于 2020-4-27 19:29
+
+
+
+
+你虹怎么想尽办法不让观众打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没开sc的官方转播都不给，这究竟多怕惹事
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10476#       发表于 2020-4-27 19:29
+
+
+
+
+MIO妈说的这么直吗，可以的。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10477#       发表于 2020-4-27 19:29
+
+
+
+
+太辛辣了，本玻璃心要受不住了。
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10478#       发表于 2020-4-27 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这波是煮酒论英雄？
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 10479#       发表于 2020-4-27 19:30
+
+
+
+
+这是大仙在线作法还是影之王的敲打
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10480#       发表于 2020-4-27 19:31
+
+
+
+
+还带怼运营的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10481#       发表于 2020-4-27 19:32
+
+
+
+
+我看你们的repo感觉三才太yygq了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 10482#       发表于 2020-4-27 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梁木一下就是之前狐狸给三才压力了，三才设计让圣皇和兔皇先打起来
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10483#       发表于 2020-4-27 19:32
+
+
+
+
+感觉夸被忽悠的一愣一愣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10484#       发表于 2020-4-27 19:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有yygq，mio算是非常直球了。
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 10485#       发表于 2020-4-27 19:33
+
+
+
+
+holostars那个新女装子推一下就5000的fo了，频道也有2000+订阅了。感觉杏星要起飞了，如果真的起来了，黑宝会不会流下欣慰的泪水。
+
+另，露露真可爱。
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10486#       发表于 2020-4-27 19:33
+
+
+
+
+这波，这波是Dio遇到恩雅婆婆<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10487#       发表于 2020-4-27 19:33
+
+
+
+
+怼运营我喜欢，多来点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10488#       发表于 2020-4-27 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226453&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-27 19:33</a>
+
+holostars那个新女装子推一下就5000的fo了，频道也有2000+订阅了。感觉杏星要起飞了，如果真的起来了，黑宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果杏星崛起还是靠了女人（
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10489#       发表于 2020-4-27 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226415&amp;ptid=1924531" target="_blank">cherryrain 发表于 2020-04-27 19:29:06</a>
+你虹怎么想尽办法不让观众打钱没开sc的官方转播都不给，这究竟多怕惹事</blockquote>有来自游戏方的版权限制啊，除了游戏…任何有版权的影片、音乐都有限制的，不注意会惹上麻烦的<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+syl，它pilipili现在也开始卡版权了，使用了无授权(不可商业)的源都会ban掉
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10490#       发表于 2020-4-27 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225931&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-4-27 18:30</a>
+
+年龄限制对频道影响很大吗？
+
+是说整个频道被年龄限制还是只是单视频受限制
+
+ ...</blockquote>
+单个视频被限制吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我感觉其实是yhm被搞了心态怕被ban，ban了就不想干了。理论上应该没有什么影响。不过mkt的频道我记得好像收益化也被杀过？404可能对asmr管的比较严。
+
+
+
+草，再去看了一眼那个哭诉的视频也因为担心违反404规范删了。感觉就是单纯没有办法对应提心吊胆的
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 10491#       发表于 2020-4-27 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226457&amp;ptid=1924531" target="_blank">M829A4 发表于 2020-4-27 19:33</a>
+结果杏星崛起还是靠了女人（</blockquote>
+您不能这么讲，之前杏星有假声伪娘也没起来啊。
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 10492#       发表于 2020-4-27 19:37
+
+
+
+ 本帖最后由 喜闻乐见 于 2020-4-27 19:38 编辑 
+
+[A组404游戏联动杏仁ミル](https://bbs.saraba1st.com/2b/youtu.be/Yza0XKMsBU0)
+
+
+目前4人无声厨房中
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1ge8jzdu2hpj20q90i3adx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 10493#       发表于 2020-4-27 19:37
+
+
+
+https://www.bilibili.com/read/cv4878620
+阿夸上次占卜也是逆位牌偏多
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10494#       发表于 2020-4-27 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不懂卡罗牌，完球了。
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 10495#       发表于 2020-4-27 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">占卜，深层心理：想做点什么，找回初心，重新开始。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10496#       发表于 2020-4-27 19:38
+
+
+
+
+需要懂吗，不就是在线看mio改编吗 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10497#       发表于 2020-4-27 19:39
+
+
+
+
+aqua season2<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10498#       发表于 2020-4-27 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">占卜不是全靠一张嘴么
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10499#       发表于 2020-4-27 19:39
+
+
+
+
+塔罗牌就是这样的，其实全看解牌的人怎么圆<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+可以了，已经不用再战斗了. jpg
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10500#       发表于 2020-4-27 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47226453&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-27 19:33</a>
+
+holostars那个新女装子推一下就5000的fo了，频道也有2000+订阅了。感觉杏星要起飞了，如果真的起来了，黑宝 ...</blockquote>
+嘛，如果三期和女团三期一样能带飞，那我当然高兴了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">希望我能看到这个世界线吧
+
+
+
+
+

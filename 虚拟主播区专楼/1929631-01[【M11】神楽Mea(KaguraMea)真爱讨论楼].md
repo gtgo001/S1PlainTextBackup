@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-26 22:09** 
+> ## **本文件最后更新于2020-04-27 20:10** 
 
 
 
@@ -2359,10 +2359,12 @@ bsyl，说不定草莓饺子的动捕配信就是阿b限定首发，期待设备
 
 
 
- 参与人数 15战斗力 -17
+ 参与人数 17战斗力 -19
 
 |昵称|战斗力|理由|
 |----|---|---|
+| airclab|-1|思路广|
+| Rem-清曲|-1||
 | 寂寞小小鱼|-2||
 | WhiteAvalon|-1||
 | Cla0221|-1|先回家看好你妈吧|
@@ -5554,4 +5556,340 @@ syl，新推，好跳啊（<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
-                                       
+
+
+-----
+
+####  甘栗No.007  
+##### 318#       发表于 2020-4-26 22:17
+
+
+
+
+建议直播说海苔男坏话的时候敲门<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 319#       发表于 2020-4-26 23:44
+
+
+
+
+除了加的电音有点破坏她的声音以外意外的耐听
+
+BGM我习惯了，我也喜欢听吵一点的歌
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 320#       发表于 2020-4-27 00:26
+
+
+
+
+这次的歌真的挺好听的
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 321#       发表于 2020-4-27 01:58
+
+
+
+
+好不容易从比赛失利中回过神来，<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+mea散发太好看了，被歌声治愈了一下.
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 322#       发表于 2020-4-27 17:02
+
+
+
+
+她的抽卡直播伤害了我，我已经变anti了
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 323#       发表于 2020-4-27 17:08
+
+
+
+
+说道比赛失利，我记得去年516那两天有人说现在最痛苦的是咩gachi，ig粉丝和哪个足球队的粉丝，要是同时有这三重身份真是难上加难了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 324#       发表于 2020-4-27 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225053&amp;ptid=1929631" target="_blank">往世雷书 发表于 2020-4-27 17:08</a>
+
+说道比赛失利，我记得去年516那两天有人说现在最痛苦的是咩gachi，ig粉丝和哪个足球队的粉丝，要是同时有这 ...</blockquote>
+想起来了，去年季中赛GG，我直接把所有LOL相关的咨询全部取关眼不见为净。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+但还是很难受只好专注沉迷vtb分散注意力，结果516了，再加上后面的禁转播以及某些事件，弃了各个论坛和讨论区半年时间，靠着rimworld之类的杀时间游戏才缓过来。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 325#       发表于 2020-4-27 17:27
+
+
+
+
+呜呜呜 要忆苦思甜了吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 326#       发表于 2020-4-27 17:44
+
+
+
+
+5月快到了，你楼要开始回忆杀了吗，不要啊，这种事不想再看见一遍了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 327#       发表于 2020-4-27 17:53
+
+
+
+
+草，五月了，爷先去看看那个视频打个预防针
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 328#       发表于 2020-4-27 17:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">看都可以看
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">真好啊，又快到一年一度的天狗暴毙日
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">不知道会不会有人旧伤复发啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 329#       发表于 2020-4-27 18:14
+
+
+
+
+516让我真正明白了我只是一个观众，什么都做不了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 330#       发表于 2020-4-27 18:14
+
+
+
+
+好兴奋啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 331#       发表于 2020-4-27 18:14
+
+
+
+
+草你们好闲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 332#       发表于 2020-4-27 18:16
+
+
+
+
+为啥没人看LPL
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 333#       发表于 2020-4-27 18:17
+
+
+
+
+我在随机只狼，楼友在忆苦思甜黑魂，好起来了
+大螃蟹脑袋抬起来的时候可以直接处决，打快一点不会跑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|3q|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 334#       发表于 2020-4-27 18:20
+
+
+
+<blockquote>Rem-清曲 发表于 2020-4-27 18:16
+为啥没人看LPL</blockquote>
+上流！
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 335#       发表于 2020-4-27 18:23
+
+
+
+
+30分钟0:0上流的折磨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 336#       发表于 2020-4-27 19:36
+
+
+
+<img src="https://p.sda1.dev/0/f036523**4d189cc1c85891c430965/BE548BB270BA6407276B8B9D6D4D5C62.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      

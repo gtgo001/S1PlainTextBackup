@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-20 18:01** 
+> ## **本文件最后更新于2020-04-27 20:00** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_Q9efJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_jUZBn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_pzqPV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_wo6qR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -8022,4 +8022,476 @@ mam
 
 
 
-                                   
+
+
+-----
+
+####  xingenge  
+##### 1925#       发表于 2020-4-20 20:03
+
+
+
+
+忘记去年的楼叫啥了 发这儿好了 太搞笑了
+
+[https://twitter.com/futagokamikita/status/1252205416471097345](https://twitter.com/futagokamikita/status/1252205416471097345)
+
+<img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ge0hg10s2mj20m80cbgw0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1926#       发表于 2020-4-20 20:21
+
+
+
+
+没办法 之前就有预警了
+就不知道延多久... 怎么补回来
+还有剧场版是不是干脆自己卖bd了吧<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 1927#       发表于 2020-4-20 20:52
+
+
+
+
+这也是没办法的事，sigh
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1928#       发表于 2020-4-21 01:05
+
+
+
+
+日向这是第一个因为敌人太强而想打退堂鼓的Q娃？前一个有印象的是微笑了，打boss之前想了一晚要不要缩
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1929#       发表于 2020-4-21 01:13
+
+
+
+
+今年的女人真是朴实无华的好看
+
+
+希望不要停播太久
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 1930#       发表于 2020-4-21 01:16
+
+
+
+
+我的心之花也枯萎了
+
+
+
+
+
+
+
+-----
+
+####  damian-wade  
+##### 1931#       发表于 2020-4-21 16:53
+
+
+
+
+趁休息一口气补上进度，结果发现跟着就停播了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">难得今年的主题这么贴合时事，好希望愈Q在现实也能战胜疫情
+
+
+
+
+
+
+
+
+-----
+
+####  Cloudslin  
+##### 1932#       发表于 2020-4-22 17:42
+
+
+
+
+中谷友紀子（公主人设总作监）说她发烧38度了，但不咳嗽，四天后去就医<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1933#       发表于 2020-4-22 20:20
+
+
+
+
+今年的Q娃这么好看却停播了，唉。
+
+
+然后我用了好几年的微博也炸了。
+
+
+祸不单行……
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1934#       发表于 2020-4-22 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47167598&amp;ptid=1860852" target="_blank">麻花疼 发表于 2020-4-22 20:20</a>
+
+今年的Q娃这么好看却停播了，唉。
+
+
+然后我用了好几年的微博也炸了。</blockquote>
+你的weibo为什么会炸
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1935#       发表于 2020-4-22 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47168122&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-4-22 21:06</a>
+
+你的weibo为什么会炸</blockquote>
+不晓得，最近只发做菜的照片和转一下你坛的新闻。
+
+
+我几千条微博一个都没少，就突然炸号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 1936#       发表于 2020-4-22 22:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47168122&amp;ptid=1860852" target="_blank">hgcg-ix 发表于 2020-4-22 21:06</a>
+
+你的weibo为什么会炸</blockquote>
+我新号关注你了，阿库西斯教团的猫猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+我好友列表也没了好几个，都不记得关注过谁了，只能凭记忆一个个加了
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1937#       发表于 2020-4-23 00:58
+
+
+
+
+这次会不会就这样一 cour 直接腰斩，然后七月份彻底换主题从头来过？
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 1938#       发表于 2020-4-24 21:34
+
+
+
+
+我弟乖乖，这干部还带量产的，有点牛逼豪
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1939#       发表于 2020-4-26 11:30
+
+
+
+
+没有Q娃的第一周想她<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 1940#       发表于 2020-4-26 19:21
+
+
+
+
+没有Q娃的第一周想她<img src="https://static.saraba1st.com/image/smiley/goose2017/062.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1941#       发表于 2020-4-26 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">周末调休回到家没妈q看了
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1942#       发表于 2020-4-26 19:30
+
+
+
+
+没q娃看后连星期几都没什么概念了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1943#       发表于 2020-4-26 20:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">和佳我想你啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1944#       发表于 2020-4-26 20:42
+
+
+
+
+q娃停了
+频道停了
+甜梦猫停了
+已死爱活配信时间不定
+来打 战队还有几集库存<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+还是安心炒大头菜吧
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 1945#       发表于 2020-4-27 11:17
+
+
+
+<img src="https://img.vim-cn.com/d6/0c4645b3c0c3ac14d7bd3001d831fc5708311b.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kal_008  
+##### 1946#       发表于 2020-4-27 11:28
+
+
+
+
+活生生从春季剧场版延期到夏季剧场版了<img src="https://static.saraba1st.com/image/smiley/goose2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1947#       发表于 2020-4-27 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47220545&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-4-27 11:17</a></blockquote>
+星q组太贴了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1948#       发表于 2020-4-27 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47220545&amp;ptid=1860852" target="_blank">xingenge 发表于 2020-4-27 11:17</a></blockquote>
+还以为是lovelive海报<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1949#       发表于 2020-4-27 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47224063&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-4-27 15:58</a>
+
+还以为是lovelive海报</blockquote>
+某花和某鸟如出一辙啊……
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1950#       发表于 2020-4-27 19:21
+
+
+
+
+这个星期好长。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  野上由加奈  
+##### 1951#       发表于 2020-4-27 19:24
+
+
+
+
+今年搞不好也没有独立剧场版了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+抱q没独立剧场版就让我怨念很久
+
+
+
+
+
+                                  
