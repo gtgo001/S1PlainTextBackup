@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 20:10** 
+> ## **本文件最后更新于2020-04-28 00:08** 
 
 
 
@@ -5892,4 +5892,2008 @@ mea散发太好看了，被歌声治愈了一下.
 
 
 
-                                      
+
+
+-----
+
+####  路人庚  
+##### 337#       发表于 2020-4-27 21:10
+
+
+
+
+转了下如月的推
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 338#       发表于 2020-4-27 21:41
+
+
+
+
+阿苔这会就三千五同接了，麻酱挣点气多恰点热度回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 339#       发表于 2020-4-27 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要来力，总感觉mea会在开场十秒内gg
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 340#       发表于 2020-4-27 22:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 341#       发表于 2020-4-27 22:00
+
+
+
+
+想看她漏
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 342#       发表于 2020-4-27 22:04
+
+
+
+
+开场吃二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 343#       发表于 2020-4-27 22:05
+
+
+
+
+草，战歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 344#       发表于 2020-4-27 22:05
+
+
+
+
+来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 345#       发表于 2020-4-27 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225777&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-27 18:14</a>
+
+草你们好闲啊那有没有人能告诉我黑魂3那个大螃蟹怎么打死啊，没打两下就跑路遁地了 ...</blockquote>
+上岸就会钻地
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 346#       发表于 2020-4-27 22:08
+
+
+
+
+漏尿战
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 347#       发表于 2020-4-27 22:09
+
+
+
+
+快两万五同接就nm离谱，有热度真好啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 348#       发表于 2020-4-27 22:11
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-27 22:13 编辑 
+
+砖法乱了
+
+这战斗力差太多了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 349#       发表于 2020-4-27 22:11
+
+
+
+
+没想到是心心第一个挂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+mea居然还没死草
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 350#       发表于 2020-4-27 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无锁定的结果就是星姐无双，规则能改成2打4吗（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 351#       发表于 2020-4-27 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47227845&amp;ptid=1929631" target="_blank">oshinoshinobu 发表于 2020-4-27 22:06</a>
+上岸就会钻地</blockquote>
+原来是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 352#       发表于 2020-4-27 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea肯定偷偷练了，就她和星街一开始搭了t旋
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 353#       发表于 2020-4-27 22:13
+
+
+
+
+太惨烈了<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 354#       发表于 2020-4-27 22:14
+
+
+
+
+但是没搭成，自己炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 355#       发表于 2020-4-27 22:15
+
+
+
+
+心心到底啥情况<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 356#       发表于 2020-4-27 22:16
+
+
+
+
+干不过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 357#       发表于 2020-4-27 22:17
+
+
+
+
+喝是必要的，热度才是重点，流量民就指望这种联动活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 358#       发表于 2020-4-27 22:21
+
+
+
+
+星姐掌控全场啊，强<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 359#       发表于 2020-4-27 22:22
+
+
+
+
+我今天只想看咩尿出来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 360#       发表于 2020-4-27 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225777&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-27 18:14</a>
+
+草你们好闲啊那有没有人能告诉我黑魂3那个大螃蟹怎么打死啊，没打两下就跑路遁地了 ...</blockquote>
+活祭品之路那个？架盾绕它右钳，看它仰头吐泡泡或者下砸可以处决。
+
+不过这个螃蟹哪里会跑路，难道不是追着你打到死的吗
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 361#       发表于 2020-4-27 22:23
+
+
+
+
+好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 362#       发表于 2020-4-27 22:25
+
+
+
+
+怎么还不漏，好急啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 363#       发表于 2020-4-27 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47227989&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-27 22:22</a>
+活祭品之路那个？架盾绕它右钳，看它仰头吐泡泡或者下砸可以处决。
+
+不过这个螃蟹哪里会跑路，难道不是追 ...</blockquote>
+砍个小螃蟹他就来千里追杀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看楼上说的应该是追到路上就会遁地了
+
+syl这个俄罗斯方块不来组队打boss模式，那谁喝水都没悬念啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 364#       发表于 2020-4-27 22:29
+
+
+
+
+有人说话装得厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">根本分不清谁在说话
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 365#       发表于 2020-4-27 22:30
+
+
+
+
+不熟没法用聊天流啊，没悬念了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 366#       发表于 2020-4-27 22:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">希望你麻发现差距放下紧绷的神经，这样应该能早点漏出来
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 367#       发表于 2020-4-27 22:32
+
+
+
+
+时雨妈，永远滴神
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 368#       发表于 2020-4-27 22:33
+
+
+
+
+星街上来被秒了草，刚想说有没有机会整个第一，然而mea页挂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 369#       发表于 2020-4-27 22:35
+
+
+
+
+苔苔赢了草，鄙视链崩塌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 370#       发表于 2020-4-27 22:35
+
+
+
+
+颠覆历史
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 371#       发表于 2020-4-27 22:36
+
+
+
+
+现在这人感觉全力在打,话都没说多少了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 372#       发表于 2020-4-27 22:36
+
+
+
+
+感觉咩都可以去上次厕所了，犬山哥拿第一的时间
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 373#       发表于 2020-4-27 22:36
+
+
+
+
+刚刚是不是偷偷去上厕所了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 374#       发表于 2020-4-27 22:37
+
+
+
+
+从末预想的道路.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 375#       发表于 2020-4-27 22:40
+
+
+
+
+今天塔诺西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 376#       发表于 2020-4-27 22:41
+
+
+
+
+没人送礼能上百万，恐怖啊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 377#       发表于 2020-4-27 22:42
+
+
+
+
+吊人比我想象的强啊
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 378#       发表于 2020-4-27 22:44
+
+
+
+
+当年的教练团现在还剩几个在看她呢？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 379#       发表于 2020-4-27 22:46
+
+
+
+
+云一下，你麻现在不播打块就是刻意疏远所谓教练团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 380#       发表于 2020-4-27 22:47
+
+
+
+ 本帖最后由 nightmare902015 于 2020-4-27 22:49 编辑 
+
+坚持了挺久的，几次都救回来了但不是对手
+
+
+syl，我有个室友被她带进坑打块，半年前就不看VTB了，但是时至今日还打块
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏说不定比主播更持久一点
+
+
+经典老6
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 381#       发表于 2020-4-27 22:47
+
+
+
+<blockquote>JustW 发表于 2020-4-27 22:42
+吊人比我想象的强啊</blockquote>
+当我没说
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 382#       发表于 2020-4-27 22:48
+
+
+
+
+炸膛太草
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 383#       发表于 2020-4-27 22:48
+
+
+
+
+同步喝尿，我已经要漏了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 384#       发表于 2020-4-27 22:52
+
+
+
+
+贪死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 385#       发表于 2020-4-27 22:52
+
+
+
+
+对一个懒狗来说可以了，看的很开心
+
+怎么突然就zqsg了，我更期待未来的apex卫星
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 386#       发表于 2020-4-27 22:52
+
+
+
+
+留着的这三排就仿佛昨天mea跳犬山一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 387#       发表于 2020-4-27 22:55
+
+
+
+
+一直不说话，在憋尿？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 388#       发表于 2020-4-27 22:56
+
+
+
+
+不说话是憋尿吗，那是偷偷去厕所<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 389#       发表于 2020-4-27 22:58
+
+
+
+
+她脑子已经糊了，不知道说啥了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 390#       发表于 2020-4-27 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定已经尿过了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 391#       发表于 2020-4-27 22:59
+
+
+
+
+这句塔诺西game太阴阳了，爱了
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 392#       发表于 2020-4-27 23:06
+
+
+
+
+“玩得好开心哦”
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 393#       发表于 2020-4-27 23:06
+
+
+
+
+该尿的时候不尿，不该尿的时候使劲尿<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 394#       发表于 2020-4-27 23:07
+
+
+
+
+一个小时过的好快草
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 395#       发表于 2020-4-27 23:08
+
+
+
+
+今天兴致太低了，被秒麻木了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 396#       发表于 2020-4-27 23:10
+
+
+
+
+其实前面还好,发挥不错的,后面感觉有点被打出脾气了,也可能是憋的难受了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 397#       发表于 2020-4-27 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">预料之中的吃瘪
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 398#       发表于 2020-4-27 23:10
+
+
+
+
+好久没看其他yhm，感觉yhm们还挺同质化的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 399#       发表于 2020-4-27 23:11
+
+
+
+
+全场至少3个对手会DT，留3行确实会各种暴毙
+
+今天几次单挑能看出来几个勇者里底力最高的是你咩，然并卵，打不过
+
+
+还有睿国的星小鬼该清算清算了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 400#       发表于 2020-4-27 23:13
+
+
+
+
+表现还行吧
+今天话题基本是holo内部，想接话也难接上啊，做个只想赢的人也好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 401#       发表于 2020-4-27 23:14
+
+
+
+
+一个懒狗这么拼很累的好不好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+看她那样子，我想起当年她组队打vtblol赛还有吃鸡大赛，好像两次都被打哭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，现在很好啦
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 402#       发表于 2020-4-27 23:14
+
+
+
+
+不熟啊，联动的人里也就犬山是和mea玩的多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是来个黄兔子估计么啊都能活跃不少
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 403#       发表于 2020-4-27 23:15
+
+
+
+
+以后八成也不会有这种场面的联动了吧，就算有，mea八成也不会来。syl星小鬼就星小鬼吧，看淡了，下一个爆火的v的粉丝里也许就有这些星小鬼。习惯了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 404#       发表于 2020-4-27 23:17
+
+
+
+
+有时雨妈妈咩会不来？<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+苔姨已经摸到新饵了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 405#       发表于 2020-4-27 23:18
+
+
+
+
+真要还有，mea来的可能性还挺大的，我看她是挺喜欢这种团建（？）
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 406#       发表于 2020-4-27 23:19
+
+
+
+ 本帖最后由 rosevalley46 于 2020-4-27 23:28 编辑 
+
+她和夏哥也很熟啊,holo里除了大亏就是夏狗粽和她关系最近吧.....哦,忘了傻紫和老师
+
+时雨妈也不陌生
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 407#       发表于 2020-4-27 23:19
+
+
+
+
+苔苔拉你mea姐联动有一手的，也没什么拒绝的理由
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 408#       发表于 2020-4-27 23:20
+
+
+
+
+你咩姐早说过想参加那种多人的游戏大赛了，只是没条件<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 409#       发表于 2020-4-27 23:21
+
+
+
+
+咩姐就没拒绝几次犬山吧，除了线下
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 410#       发表于 2020-4-27 23:21
+
+
+
+
+mea和时雨妈妈很熟？（联动看的不多不了解）感觉这次活动把夏哥换成兔妈妈会比较好点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 411#       发表于 2020-4-27 23:22
+
+
+
+
+下来还不是有个黄金周联动吗
+
+多谢犬山哥兔妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">！
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 412#       发表于 2020-4-27 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47228583&amp;ptid=1929631" target="_blank">rosevalley46 发表于 2020-4-27 23:19</a>
+
+她和夏哥也很熟啊,holo里除了大亏就是夏狗粽和她关系最近吧
+
+时雨妈也不陌生 ...</blockquote>
+你还忘了小学生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打了两次骚扰电话了
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 413#       发表于 2020-4-27 23:23
+
+
+
+
+讲道理今天一点也不丢人 没mea估计大家早就放尿live了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 414#       发表于 2020-4-27 23:24
+
+
+
+
+这丢啥人，能过两招，打得不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 415#       发表于 2020-4-27 23:24
+
+
+
+
+巧可真就没人权啊（）
+
+
+至少比狗狗熟吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 416#       发表于 2020-4-27 23:26
+
+
+
+
+艹，还忘了老师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mea和holo二期生的关系都蛮不错的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 417#       发表于 2020-4-27 23:26
+
+
+
+
+小学生好歹也是出现在线下live的pv里的朋友
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 418#       发表于 2020-4-27 23:30
+
+
+
+
+那船长也是出现在线下live的视频里啊，还画了商品<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 419#       发表于 2020-4-27 23:31
+
+
+
+
+所以啊咩到底有没去过厕所<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">今晚这么沉默到底是脑子被打宕机自闭了还是已经闭麦去过顺带无能狂怒了
+不过mea虐真让人兴奋，对不起咩<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 420#       发表于 2020-4-27 23:31
+
+
+
+
+接下来公布的联动还有哪些？
+我就知道兔子那个v骚有一个
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 421#       发表于 2020-4-27 23:31
+
+
+
+
+今天决赛圈对位几次了都，眼球赚足不亏
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 422#       发表于 2020-4-27 23:31
+
+
+
+
+你要说杏二期有她不熟或者没联系过得么
+
+好歹曾经是杏幻之二期生，只不过现在杏二期生不是主体了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 423#       发表于 2020-4-27 23:36
+
+
+
+
+二期才是你麻正儿八经的后宫团，可惜了，我心心念念的ayamea<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 424#       发表于 2020-4-27 23:41
+
+
+
+
+企业就是好啊，一年前木口和她一个水平的比她差的全tm起来了，就咩和以前一样。明明直播内容都差不多同接都不是一个量级的了，但愿咩以后能多蹭蹭她们的热度吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 425#       发表于 2020-4-27 23:43
+
+
+
+
+聊这个没营养，企业死的也不少，只能说yagoo作为营运来说还是有点手段的，业界草台企业不要太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 426#       发表于 2020-4-27 23:43
+
+
+
+
+又要来车轱辘进不进企业势了吗？我青回了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 427#       发表于 2020-4-27 23:44
+
+
+
+
+516能炸箱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 428#       发表于 2020-4-27 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人势就是这样，那热度也不是想蹭就能蹭的，搞个联动不容易
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 429#       发表于 2020-4-27 23:45
+
+
+
+
+艹，别说如果进企业的话516或许就不会发生了127也不会了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 430#       发表于 2020-4-27 23:45
+
+
+
+
+NO讨论企业好不好
+
+
+资本家剥削劳动力赚的盆满钵满，跟你咩过自己的小日子有什么关系？
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 431#       发表于 2020-4-27 23:47
+
+
+
+
+没没没，不车轱辘了我这就爬，就是看完联动感慨一哈，有点替她不甘，都打拼一年结果却不一样。要是车轱辘话烦到你们了我道个歉
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 432#       发表于 2020-4-27 23:47
+
+
+
+
+而且你mea现在吃好喝好，何苦进企业这个罪呢？除非她重拾了梦想这种虚无缥缈的东西了吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 433#       发表于 2020-4-27 23:48
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-27 23:49 编辑 
+
+停一停，这话题太弱智了，请自行代入月入10狗不用上班的生活体会一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你麻的钱从来没少，只是别人多了点而已
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 434#       发表于 2020-4-27 23:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有事业民的，不要看了联动的数字就开始键盘做梦了，赶紧睡，去床上做梦8，偶捏该
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 435#       发表于 2020-4-27 23:49
+
+
+
+
+人生没有如果，偶尔做做梦可以
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 436#       发表于 2020-4-27 23:49
+
+
+
+
+打拼这种事……她自己也不是事业厨，虽然不能说完全没压力，但大体还是按着自己的节奏走的吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 437#       发表于 2020-4-27 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事业民还没死完啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 438#       发表于 2020-4-27 23:52
+
+
+
+
+风水轮流转，明年什么样，谁都说不清<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 439#       发表于 2020-4-27 23:52
+
+
+
+
+那个楼友也不算事业厨吧，只是日常发散？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 440#       发表于 2020-4-27 23:53
+
+
+
+
+研究数字研究多了会魔怔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 441#       发表于 2020-4-27 23:53
+
+
+
+ 本帖最后由 2014720 于 2020-4-27 23:54 编辑 
+
+说不定你麻3d回事业第二春就来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我还想看3d联动呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 442#       发表于 2020-4-27 23:54
+
+
+
+
+芜湖，好起来了，大家都开始做梦了
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 443#       发表于 2020-4-27 23:54
+
+
+
+
+你们讨论这些还不如指望麻箱崛起 然后多招人自己当老板<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 444#       发表于 2020-4-27 23:56
+
+
+
+
+她当老板？不要姨，这梦我不做了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 445#       发表于 2020-4-27 23:56
+
+
+
+
+那也是不可能程度半斤八两的梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 446#       发表于 2020-4-27 23:58
+
+
+
+
+她当老板？算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 447#       发表于 2020-4-28 00:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">进holo进企业什么的是老版本是事业民车轱辘了，现版本的事业民车轱辘应该想办法把mea要怎么操作才能让神乐组发展壮大并如何避免空妈化被两小只架空权力的车轱辘造起来才对
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 448#       发表于 2020-4-28 00:02
+
+
+
+
+别提了神乐组名都要改了，这波啊，叫曹魏篡汉
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 449#       发表于 2020-4-28 00:02
+
+
+
+
+mea好胜心那么强要说事业上真的就懒狗了还是mea吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只不过到底能走出什么路就看她自己慢慢琢磨吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 450#       发表于 2020-4-28 00:03
+
+
+
+ 本帖最后由 2014720 于 2020-4-28 00:06 编辑 
+
+就上次联动来说我觉得效果跟万组联动是一个水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我觉得如月水平不错，noe差点，具体怎么发展还得看这三人心里怎么想的，都感觉不是很上心
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 451#       发表于 2020-4-28 00:04
+
+
+
+
+瞅了一眼隔壁咋阿b弹幕还打起来了，有无乐子来讲一下哈<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 452#       发表于 2020-4-28 00:05
+
+
+
+
+啊这，没人是事业民啊，上的税没她多当个锤子事业民，就是有时觉得vtb这块明明一样的虚无同质的内容一边过万一边不到百这事很离谱，阿咩奋斗一年的订阅大箱新人两三场直播就能拿下，想到这些单纯不爽而已，不过想也没用，还不如猜猜4号前她能播几次
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 453#       发表于 2020-4-28 00:05
+
+
+
+
+神乐组就是搞出来体验一下类似企业势的同事感的玩意，要做大就算她有苔苔那手段（并不太可能）也得小绿小紫也有同样的想法才行
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 454#       发表于 2020-4-28 00:07
+
+
+
+
+说打起来也就那样，谁直播间没经常打过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+一如既往的出警反出警 这有啥好细讲的，还没看厌吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 455#       发表于 2020-4-28 00:08
+
+
+
+
+这你就酸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 456#       发表于 2020-4-28 00:08
+
+
+
+
+反正我打游戏空闲看了几眼弹幕还挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 457#       发表于 2020-4-28 00:08
+
+
+
+
+建箱论的事业民论调可是比“她一个人数着这些钱好好过日子就好了”这种粉丝单方面美好的愿望更有正当性的。举个例子来说，你咩可是投入了真金白银和时间来倒腾这个箱的，你真的想看到因为“她一个人数着这些钱好好过日子就好了”的这个美好愿望而导致她现在努力白费的事情出现么？
+
+
+
+
+
+                                  
