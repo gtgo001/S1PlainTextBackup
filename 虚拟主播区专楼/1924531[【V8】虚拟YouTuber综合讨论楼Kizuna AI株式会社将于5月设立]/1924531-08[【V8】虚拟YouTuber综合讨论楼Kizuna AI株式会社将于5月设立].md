@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 00:06** 
+> ## **本文件最后更新于2020-04-28 02:08** 
 
 
 
@@ -1578,9 +1578,9 @@ syl，给楼里不了解的哥大概介绍一下，武藏也是日本最著名�
 都是白上的错把mio带坏了，大家不要对mio有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 来点幼狼
-<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_xafNW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_ggm77" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_pjnaA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_jU85j" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_lfNvZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_mL6qH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4303,7 +4303,7 @@ repo部分：阿星这个“真死宅加入闲聊为主的现充游戏社团感�
 
 
 来点葵来点葵
-<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_j4858" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_aYzqf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/27/224839kqw650cs57w9ahd5.jpg" referrerpolicy="no-referrer">
 
@@ -5404,7 +5404,7 @@ RTA的cut我都看了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_W5G6E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_l6ZKO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，看了一眼关注，怎么还有几个在lol的，葛皇要复出了？
@@ -6824,8 +6824,9 @@ TIM截图20200427234052.png
 
 
 
+ 本帖最后由 QWANG 于 2020-4-28 00:13 编辑 
 
-你们这么在意这个来做ふぁんでっど啊，润姨自称1米6的，虽然皮和夸皇差不多高。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你们这么在意这个来做ふぁんでっど啊，润姨自称1米6的，虽然粽子和夸皇差不多高。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
@@ -6897,4 +6898,1247 @@ Saya说过胸小的
 
 
 
-                                     
+
+
+-----
+
+####  cwjzy  
+##### 10869#       发表于 2020-4-28 00:07
+
+
+
+
+我感觉夸皇就算很大了吧，又不是非得日南这样的，<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10870#       发表于 2020-4-28 00:08
+
+
+
+
+你楼人均D往上<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10871#       发表于 2020-4-28 00:08
+
+
+
+ 本帖最后由 erer 于 2020-4-28 00:11 编辑 
+
+就女性目光来看，夸夸她真的不大啊。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你们不要把那货的虚握当真啊。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10872#       发表于 2020-4-28 00:08
+
+
+
+ 本帖最后由 proxima 于 2020-4-28 00:16 编辑 
+
+草，海苔男也只有158呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+海苔男好姬友的桑原甚至只有147，跟大亏五五开。海苔男另一个好姬友小野也比海苔男矮只有153<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过的确胸很大
+
+
+刚好有张三个人站一起还有参照物的照片
+
+
+
+
+
+
+
+IMG_20190902_212215.jpg
+(247.84 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-28 00:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/28/001537y8j2hhh8ehihglhu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10873#       发表于 2020-4-28 00:09
+
+
+
+
+所以说巨乳萝莉这种type也就在作品里爽一爽了啊……现实里太难了
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10874#       发表于 2020-4-28 00:11
+
+
+
+
+海台男158？？？她这脸看怎么像170往上啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10875#       发表于 2020-4-28 00:11
+
+
+
+
+日语里抱きしめる不就是sex的隐语么，二二姐这么纯良的？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10876#       发表于 2020-4-28 00:11
+
+
+
+
+你们要是gachi恋的头脑来思考的话现实一点，和一个150左右的女生真的很不方便，没有想象那么美好的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10877#       发表于 2020-4-28 00:11
+
+
+
+
+现在都能看脸猜身高了吗？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10878#       发表于 2020-4-28 00:11
+
+
+
+ 本帖最后由 QWANG 于 2020-4-28 00:13 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10879#       发表于 2020-4-28 00:11
+
+
+
+
+见鬼，这话你说出来自己不觉得怪吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪有看脸还能看出来身高的
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10880#       发表于 2020-4-28 00:12
+
+
+
+ 本帖最后由 Devi_Lito 于 2020-4-28 00:14 编辑 
+
+露露魂3通关后久违的杂谈，写个速食版repo，虽然前面Ketestrait老哥也提了不少了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为边听边在刷V综和推特，内容可能有差错，欢迎指正
+
+
+关于杂谈形式：今天是普通杂谈，没有喝酒，后面也没有醉酒魔界村
+
+关于昨天魂3DLC的通关：通关之后意犹未尽，一整天没睡，白天又打了一会只狼，一直打到杂谈开播前1个小时
+
+关于只狼的二周目配信：考虑一周年配信之后搞，其他宫崎英高的作品也会陆陆续续地开始二周目配信
+
+关于一周年配信：目前计划是5月1日21:00开始，啥时候结束取决于游戏进程，可能超过24小时。中间会搞歌回，但因为版权原因不会搞电影同时视听
+
+关于にじ3D：明天休息不直播，然后不出意外的话后天开始能用彩虹的家用3D直播了。考虑用家用3D玩点能动起来的游戏，比如健身环和switch上的just dance
+
+关于恐怖游戏：《事故物件》、《夜勤事件》同一个公司的新作《怨灵》考虑会玩。生化3重制版也买了，考虑要不要近期直播。棉花糖里提到的寂静岭也很感兴趣。被问到哪个游戏场景最可怕的时候露露表示还是动森里的蜘蛛最可怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+关于想玩的其他游戏：《もじぴったん アンコール》已经买了，马里奥兄弟2也想玩
+
+关于和皇女的新广播《lize lulu listen》：两人并不是第一次交流，之前和inui，尊妈一起录过合唱视频（这里特别有意思的是露露一开始称呼尊妈用的是“尊ちゃん”，后来改成敬称的），后面因为版权原因视频下架了。但这首歌的版权好像还在谈，未来好像还有重新看到的可能。。之后夸了一大通皇女，说皇女头脑很好，非常擅长聊天，看皇女的直播学到了很多
+
+关于广播录制中的episode：因为是在很短的几天内录了两个月份的内容，结果露露在没有安排录制的一天给皇女发了录制广播方面的内容，还被皇女已读了，暴露了自己废柴的一面
+
+关于之前弄了一期就鸽了的露露广播：残机们表示想看第二期，露露表示会弄的，会弄的
+
+关于露露的杂谈力：之前弄过一次6小时耐久棉花糖杂谈配信，露露表示有足够棉花糖的情况下耐久6小时没啥问题，但没棉花糖的情况下自己的杂谈力就不咋地了，需要聊一些《全职猎人》这种感兴趣的话题才可能做到耐久
+
+关于露露的料理水平：露露自己做的东西自己能吃，但不确定其他人能不能吃。。在很小的时候给父原和姐原做过便当，但不记得有没有收到过两人“好吃”的评价，但依稀记得姐原向其他人炫耀过自己妹妹给她做了便当（难道姐原是个妹控？）
+
+关于30w纪念配信：想搞凸待，但是感觉又有点可怕
+
+关于露露エモい的感想：直播了快一年，差不多是该从“直播新人”这个称号里毕业了。。如果不是因为当管人的话可能不会接触宫崎英高的作品，也不会去打魔界村。没有大家的支持就没有现在的露露<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl：露露今天杂谈当中念了好多好多绕口令，超级可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ErenJager| + 1|好评加鹅|
+| zpbzpb123123| + 1|好评加鹅|
+| 57042711| + 1|好评加鹅|
+| feketerigowien| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10881#       发表于 2020-4-28 00:13
+
+
+
+
+不是前些天那个撸啊撸主播智勋的事还挺有名的么，那个就是160长了180的脸，迷惑了一堆粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10882#       发表于 2020-4-28 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47228960&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-27 23:56</a>
+
+葛叶，叶、哈、石油王带个考拉组了个lol队要去打比赛，所以这几天这几人高强度lol联动 ...</blockquote>
+就这...
+
+无语睡了，还gamer呢
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10883#       发表于 2020-4-28 00:14
+
+
+
+
+脸是看不出身高的 180的脸是什么脸？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+syl 巨乳萝莉真的不少，一部分人长不高是因为发育太早，而这种一般第二性征发育都比较剧烈。 当然脸还要好看那肯定就比较少了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10884#       发表于 2020-4-28 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">反正现实中我看到的胸很大的矮个女生无一例外都是坦克。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 10885#       发表于 2020-4-28 00:17
+
+
+
+
+大亏以前因为太平，在病栋还跟麻并称()和[]的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10886#       发表于 2020-4-28 00:18
+
+
+
+
+不是钢板跟饭勺吗，大亏还是有那么点的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 10887#       发表于 2020-4-28 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">https://www.youtube.com/channel/UCGqO-zHwgaTiKR5tIXzZO0A 昏迷之前再宣传一波葵皇的第二频道，都是短切片，喜欢不喜欢的都可以点个订阅
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10888#       发表于 2020-4-28 00:19
+
+
+
+
+插播一条。龙皇明天的早安可可暂休了。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10889#       发表于 2020-4-28 00:19
+
+
+
+
+纯良2000爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10890#       发表于 2020-4-28 00:20
+
+
+
+
+还是遇见过矮个大胸美少女的，但是气质就很御姐，还是究极体现充，充满了让宅宅难以接近的气场。还是夸夸好，就算不是巨乳<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10891#       发表于 2020-4-28 00:20
+
+
+
+
+2000这真情实感太感人了。希望你能来看葵皇今天的B限。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10892#       发表于 2020-4-28 00:22
+
+
+
+
+今天的2000又要用什么理由来逃避葵桑的b限呐，我很期待。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10893#       发表于 2020-4-28 00:23
+
+
+
+
+龙皇就是作息时间紊乱，瞎几把霍霍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10894#       发表于 2020-4-28 00:26
+
+
+
+
+阿葵的153，55kg是rp还是真的，有没有楼友好心告知
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10895#       发表于 2020-4-28 00:26
+
+
+
+
+龙皇要准备两边的直播，可能真会劳累过度，光一个早安可可要看录像写稿子就要花不少时间
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 10896#       发表于 2020-4-28 00:30
+
+
+
+
+2000你正常点，我害怕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+明天可以给葵皇上个舰么<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10897#       发表于 2020-4-28 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229308&amp;ptid=1924531" target="_blank">cherryrain 发表于 2020-4-28 00:30</a>
+
+2000你正常点，我害怕
+
+明天可以给葵皇上个舰么</blockquote>
+《2000在忙》
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10898#       发表于 2020-4-28 00:32
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-4-28 00:33 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10899#       发表于 2020-4-28 00:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看个apex 弹幕都可以跟crew大战。。。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10900#       发表于 2020-4-28 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229341&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-28 00:34</a>
+
+看个apex 弹幕都可以跟crew大战。。。</blockquote>
+crew，永远的ky。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10901#       发表于 2020-4-28 00:37
+
+
+
+
+为啥会吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+阿夸现在白金4和狗狗钻石4也能比？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10902#       发表于 2020-4-28 00:38
+
+
+
+
+摸余人气挺不错啊，这个点在阿B还有20w人气，据说杏的人气倍率被下调了，不知道是摸到忘记被调了还是真这么高。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10903#       发表于 2020-4-28 00:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是b站萌萌crew永远夸神牛逼，快来带妹刷到了狗狗直播间吧。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10904#       发表于 2020-4-28 00:39
+
+
+
+
+溜了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10905#       发表于 2020-4-28 00:39
+
+
+
+
+我就看到有说狗狗技术比阿夸好的，然后就吵起来了
+
+
+yysy，apex的段位不说明什么问题，狗狗私下开黑组排升段很快的，阿夸这种单排还玩得不多的本来就难
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10906#       发表于 2020-4-28 00:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她这水平能上钻肯定是有固定队友的
+
+
+不过今晚打得还算蛮准的了。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 10907#       发表于 2020-4-28 00:41
+
+
+
+ 本帖最后由 poipanchao 于 2020-4-28 00:49 编辑 
+
+露露叫尊ちゃん，又暴露溜海小朋友的年纪
+
+
+5月1日：17:00阿葵 歌回 19:00 静凛 游戏 21:00 爱丽丝 歌回
+
+5月2日：22:00舞元 杂谈
+
+5月3日：19:00德比 游戏
+
+5月5日：17:00阿葵 游戏 19:00德比 游戏
+
+
+葵上次的歌回我还意外的挺喜欢的，比几次live观感好多了
+
+再看了下葵5号的游戏是堡垒之夜……谁出的主意啊
+
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10908#       发表于 2020-4-28 00:43
+
+
+
+
+有一说一，阿夸其他实力怎么样我不敢说，但是tmd捡东西贼jb快。好羡慕她手速啊。打字时敲击键盘也超快，本手残人士表示羡慕妒忌恨。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10909#       发表于 2020-4-28 00:44
+
+
+
+
+真就虚拟孙哥舔包一绝啊
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 10910#       发表于 2020-4-28 00:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">懒狗今天发挥感觉还挺稳定的，或者真的是摸鱼摸多了有进步呢
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10911#       发表于 2020-4-28 00:46
+
+
+
+
+吃鸡开黑最大的看点就是谁舔得快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10912#       发表于 2020-4-28 00:47
+
+
+
+
+没办法，我国观众不管你管人直播间规矩的，粉盘大的几个V直播间传信鸽浮游炮信者大战是人气的一部分。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10913#       发表于 2020-4-28 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229368&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-28 00:38</a>
+
+摸余人气挺不错啊，这个点在阿B还有20w人气，据说杏的人气倍率被下调了，不知道是摸到忘记被调了还是真这么 ...</blockquote>
+批站人气倍率是自动的，除了特殊情况以外没有手动调整，主播评级升降都是有公式的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10914#       发表于 2020-4-28 00:56
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-4-28 00:58 编辑 
+
+今晚神回完了之后谁还敢说畸变地图没意思没内容播来着的
+
+
+啊纠正一下  是加了MOD的……
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 10915#       发表于 2020-4-28 01:00
+
+
+
+
+组排、代练和开挂是竞技游戏的一环，不爽不要玩。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 10916#       发表于 2020-4-28 01:02
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-28 01:05 编辑 
+
+巨乳萝莉很难见到的，我依稀记得初中同学有一个一直保持着巨乳萝莉，高考后还见过一次，还是那副模样，长的可爱人也好玩，就是学习超级狗屎，现在大概已经被……<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+还是yhm好啊，实在不行也能跑来当VTB，不需要学历，学历都是附加分<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">。
+
+syl，apex的段位到底能证明多少技术我存疑，反正之前我在楼里发过的钻石的那位直播的时候很少看见吃鸡。
+顺便一提，那位的游戏力着实不咋滴，大概fps上是玩的最好的了。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10917#       发表于 2020-4-28 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229430&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-28 00:47</a>
+没办法，我国观众不管你管人直播间规矩的，粉盘大的几个V直播间传信鸽浮游炮信者大战是人气的一部分。[f:06 ...</blockquote>
+老实说404也没区别吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10918#       发表于 2020-4-28 01:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">apex段位真的不能太说明问题，还是得看实际打得如何。
+
+
+syl
+
+404虽然也有传信鸽浮游炮之类的，但是不会大规模出警反出警套娃。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10919#       发表于 2020-4-28 01:09
+
+
+
+
+毕竟青少年受的教育就是什么都要比一比啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 10920#       发表于 2020-4-28 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229527&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-4-28 01:02</a>
+巨乳萝莉很难见到的，我依稀记得初中同学有一个一直保持着巨乳萝莉，高考后还见过一次，还是那副模样，长的 ...</blockquote>
+apex不吃鸡单纯只是活到最后几个照样可以上分的，而且野队运气好遇上大腿队友可能一路苟就苟进前几，被轻松带上段位也不是不可能，项羽刚玩apex不到一个星期现在都黄金快白金了。
+
+
+
+
+
+
+
+-----
+
+####  chaucerling  
+##### 10921#       发表于 2020-4-28 01:13
+
+
+
+
+apex高段位（白金，钻石）首先要苟，其次**法不能差，就算一局吃了鸡下局落地白给了不还是掉分，另外还有的因素就是服务器的水平
+
+现在赛季末要上分还是比较难的，毕竟还在打的都是老油条
+
+赛季初可以去美服捞小学生薯条上分（ps4）
+
+
+
+
+
+
+
+-----
+
+####  Golubaya  
+##### 10922#       发表于 2020-4-28 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229405&amp;ptid=1924531" target="_blank">无限舰制 发表于 2020-4-28 00:44</a>
+真就虚拟孙哥舔包一绝啊</blockquote>
+黄mea孙aqua<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Xiaomi MI MAX 2, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10923#       发表于 2020-4-28 01:24
+
+
+
+
+apex也就图一乐，真看打QIANG图一乐还得看斗鱼9418
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10924#       发表于 2020-4-28 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229639&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-28 01:24</a>
+
+apex也就图一乐，真看打QIANG图一乐还得看斗鱼9418</blockquote>
+茄子好像糊了很多？最火的时候天天老婆代播兄弟代播，观感好差。后来我进去过几次，没啥弹幕，而且很多是机器人不知道在说啥
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10925#       发表于 2020-4-28 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229684&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-28 01:35</a>
+茄子好像糊了很多？最火的时候天天老婆代播兄弟代播，观感好差。后来我进去过几次，没啥弹幕，而且很多是 ...</blockquote>
+不如说整个斗鱼都在衰落中？土豪的钱如数奉还，百姓的钱三七分成的骗局不可能无限玩下去的
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10926#       发表于 2020-4-28 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229684&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-28 01:35</a>
+
+茄子好像糊了很多？最火的时候天天老婆代播兄弟代播，观感好差。后来我进去过几次，没啥弹幕，而且很多是 ...</blockquote>
+不知道 最近我也没看 18，19年看过点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+代播只是偶尔吧 大部分时间还是自己播的
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 10927#       发表于 2020-4-28 01:41
+
+
+
+
+你楼啊委靓照让我睡意吓跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10928#       发表于 2020-4-28 01:45
+
+
+
+
+舞元组发个b限通知还要澄清没催过本人来保命，这虹杏饭圈舆论差距也太大了。。。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10929#       发表于 2020-4-28 01:45
+
+
+
+
+这是保命不是yygq吗
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10930#       发表于 2020-4-28 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229731&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-28 01:45</a>
+舞元组发个b限通知还要澄清没催过本人来保命，这虹杏饭圈舆论差距也太大了。。。 ...</blockquote>
+字幕组是没催，但是是不是被运营或者19亿的金主催就是另一回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10931#       发表于 2020-4-28 01:49
+
+
+
+<blockquote>yuandi20 发表于 2020-4-28 01:47
+字幕组是没催，但是是不是被运营或者19亿的金主催就是另一回事了
+
+
+—— 来自 HUAWEI VOG-AL00, An ...</blockquote>
+真把国内业务交给伊藤忠打理那这群v日子不好过的。
+
+
+syl：
+
+杏不来b限：看不起pxj，烧死你。
+
+虹不来b限：不许催。
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10932#       发表于 2020-4-28 01:58
+
+
+
+
+apex真看水平可以看对地图的熟悉程度和控**看出来。apex很多地图都有隐藏补给点，不一定非得跳激战区才能拿到好武器，新手跳伞跳下来不熟悉地图很容易漏关键补给，激战区也有很多比较偏得补给点，比如世界尽头游轮上得舞台灯都是高级补给但是你不熟的话是根本不知道的。控**可以看手炮和r99敢不敢多用，敢次次有r99必用的话肯定是熟练者，千哈弟sumomo这些熟手基本都是有r99必用，哈弟甚至还会要求队友给他发r99和手炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 10933#       发表于 2020-4-28 02:00
+
+
+
+
+原azulim组又发了动态。看着心塞<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10934#       发表于 2020-4-28 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229535&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-28 01:04</a>
+
+老实说404也没区别吧
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+量少太多了，哪像B站套娃出警对线乌泱泱和蝗虫一样。
+
+
+
+
+
+                                   

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 00:08** 
+> ## **本文件最后更新于2020-04-28 02:10** 
 
 
 
@@ -7790,8 +7790,12 @@ mea好胜心那么强要说事业上真的就懒狗了还是mea吗<img src="http
 
 
 
+ 本帖最后由 Dualist彩 于 2020-4-28 00:21 编辑 
 
 瞅了一眼隔壁咋阿b弹幕还打起来了，有无乐子来讲一下哈<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+算了算了，不是恶性事件就当没有这回事儿吧
 
 
 
@@ -7840,9 +7844,14 @@ mea好胜心那么强要说事业上真的就懒狗了还是mea吗<img src="http
 
 
 
+ 本帖最后由 framita 于 2020-4-28 01:47 编辑 
 
 说打起来也就那样，谁直播间没经常打过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
 一如既往的出警反出警 这有啥好细讲的，还没看厌吗
+
+
+而且说是打架也就几个弹幕而已
 
 
 
@@ -7896,4 +7905,436 @@ mea好胜心那么强要说事业上真的就懒狗了还是mea吗<img src="http
 
 
 
-                                  
+
+
+-----
+
+####  Dualist彩  
+##### 458#       发表于 2020-4-28 00:12
+
+
+
+
+我反正没看出来你麻有一丁点建箱的样子，我现在也没关注如月和八乙女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 459#       发表于 2020-4-28 00:13
+
+
+
+
+怎么都算不上个箱吧，也就一个组
+感觉也就网游里老手带带萌新，顺便交个朋友
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 460#       发表于 2020-4-28 00:13
+
+
+
+
+怎么这都能打架，听说他们还打上百万人气值了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+有段时间没在阿B看了，完全不懂他们。虽然上404主要是因为没延迟。
+
+
+SYL，你咩姐会做主播，但直播这种事情确实不以实力之分。多看点底边就知道有实力又默默无名的人挺多的。
+
+钱够支撑活动然后能尽量少点事才是真的好。
+
+现在已经是2020年的V圈了.jpg
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 461#       发表于 2020-4-28 00:14
+
+
+
+
+她有没有把投进去的真金白银当一回事都不好说，朋友之间打个水漂听个响图一乐多正常。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 462#       发表于 2020-4-28 00:15
+
+
+
+
+小绿小紫每天tc都有播的吧，感觉小绿相对重视vtb一些，小紫还不是很在意
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 463#       发表于 2020-4-28 00:16
+
+
+
+
+话说弹幕没有打起来吧，全程看下来挺愉快的
+若是打起来了v8早就开了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 464#       发表于 2020-4-28 00:17
+
+
+
+
+建箱是真的图一乐，别被奇怪论调影响判断了。
+
+她知道企业是怎么运行的。她怎么可能成为企业。
+
+宣传个人势建箱和企业比拼的不是还没大学毕业就是活在17，18年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 465#       发表于 2020-4-28 00:17
+
+
+
+
+我想起上次mea犬山还有个谁联动时隔壁也说弹幕打起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但那会我一样没啥感觉
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 466#       发表于 2020-4-28 00:19
+
+
+
+
+赶快整个线下联动比什么都实在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 467#       发表于 2020-4-28 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229132&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-4-28 00:12</a>
+
+我反正没看出来你麻有一丁点建箱的样子，我现在也没关注如月和八乙女 ...</blockquote>
+“没看出来你麻有一丁点建箱的样子”这个用近期在推上较高频率转箱内推引流的事情就可以论破了，她最近留下了的推特差不多就是由段子，直播联动感想以及剩下的全部都是箱内引流提及推和转推组成的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 468#       发表于 2020-4-28 00:20
+
+
+
+
+线下联动都变成梗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计没戏了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 469#       发表于 2020-4-28 00:21
+
+
+
+
+线下也算了吧，东京已经成疫区叻。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 470#       发表于 2020-4-28 00:22
+
+
+
+
+现在整线下干嘛，听麻酱和对面在线下戴口罩呼麦？
+yhm出门大部分戴口罩，记下口罩下的声音日后一定能活用<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 471#       发表于 2020-4-28 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229215&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 00:20</a>
+
+线下联动都变成梗了估计没戏了</blockquote>
+这你都看不透吗，造梗就是炒热度宣传期，热度炒够了一波兑现不就收割了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 472#       发表于 2020-4-28 00:23
+
+
+
+
+这会儿让她从东京跑大阪去找小绿小紫也不现实啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 473#       发表于 2020-4-28 00:25
+
+
+
+
+话说神乐组名字也没确定吧，你麻鸽杂谈就算了，怎么组名都拖的
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 474#       发表于 2020-4-28 00:29
+
+
+
+
+不过神乐组作为名字实在是不够有趣是真的，念着就老气横秋的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 475#       发表于 2020-4-28 01:14
+
+
+
+
+顺便去大阪找乌冬玩玩也不错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki|-1|欢乐多|
+| Zhudhh|-1|欢乐多|
+| weiweiEX|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 476#       发表于 2020-4-28 01:14
+
+
+
+
+草<img src="https://p.sda1.dev/0/3876ab597cc4a75eeb49e0c8de0a4e28/IMG_CAB8D41F0F47A29B3E4100B3DB57E2DB.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 477#       发表于 2020-4-28 01:25
+
+
+
+
+咩这种极度避讳线下见面的偏执狂思维我还是蛮喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">希望别是什么攒人气等收割
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 478#       发表于 2020-4-28 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229642&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-28 01:25</a>
+咩这种极度避讳线下见面的偏执狂思维我还是蛮喜欢的希望别是什么攒人气等收割 ...</blockquote>
+虽说人均社恐比较扯，不过mea也不是啥超级阳角，我觉得她拒绝线下还是zqsg的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过她和人吃个烤肉啥的好像也不是什么难事<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以也不敢说死
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 479#       发表于 2020-4-28 01:40
+
+
+
+
+所以可以随时突击mea家的大小姐才是例外么<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，meamiu贴贴（鬼叫
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 480#       发表于 2020-4-28 01:43
+
+
+
+
+主动邀请的她都挺抗拒的，不过要松口的话应该是先答应苔苔吧
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 481#       发表于 2020-4-28 01:44
+
+
+
+
+上次线下还在同时摸俩人大腿和柰子呢。
+这次线下怕不是阿咩把她们都给推到了吧。
+
+
+
+
+
+                                 
