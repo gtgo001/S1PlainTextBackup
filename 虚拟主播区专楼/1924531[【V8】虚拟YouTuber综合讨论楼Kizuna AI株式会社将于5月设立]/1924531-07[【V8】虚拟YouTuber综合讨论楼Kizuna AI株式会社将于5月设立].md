@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 14:06** 
+> ## **本文件最后更新于2020-04-27 16:07** 
 
 
 
@@ -21259,7 +21259,7 @@ bsyl，我当时还问过版主-8了能不能进去，结果没回咱。如果�
 
 
 福报相关，另外以哈哥为首的2020新男v时间都算可以
-<img src="https://pbs.twimg.com/media/EWlB3acUMAIHph2?format=png&amp;name=900x900" height="660" id="aimg_wjayD" onclick="zoom(this, this.src, 0, 0, 0)" width="720"/)
+<img src="https://pbs.twimg.com/media/EWlB3acUMAIHph2?format=png&amp;name=900x900" height="660" id="aimg_bZav5" onclick="zoom(this, this.src, 0, 0, 0)" width="720"/)
 
 
 
@@ -22509,7 +22509,7 @@ Idol club is kilakila
 <img src="https://img.saraba1st.com/forum/202004/27/133436o0rwcgbk2kqcw22c.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-04-27 133317.png</strong> (42.84 KB, 下载次数: 0)
+<strong>批注 2020-04-27 133317.png</strong> (42.84 KB, 下载次数: 1)
 
 下载附件
 
@@ -22616,6 +22616,25 @@ Idol club is kilakila
 
 着实不知道图个啥 可能彩虹的半年真的快到了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lllithid| + 1|玛奥本很好看，请加大力度|
+
+
+
+查看全部评分
 
 
 
@@ -22860,4 +22879,2920 @@ mk2的软肋？<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 
 
-           
+
+
+-----
+
+####  泡芙好吃  
+##### 10165#       发表于 2020-4-27 14:09
+
+
+
+
+但是那份不包括少主以前发完删掉的推特吧
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 10166#       发表于 2020-4-27 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222477&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-27 13:55</a>
+mk2的软肋？</blockquote>
+记下来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 10167#       发表于 2020-4-27 14:12
+
+
+
+ 本帖最后由 贴杂司马 于 2020-4-27 14:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10168#       发表于 2020-4-27 14:17
+
+
+
+
+隔壁杏星楼都吵起来了，杏星真的要好起来了！
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10169#       发表于 2020-4-27 14:18
+
+
+
+
+组长的团舞24小时不到已经200多万播放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">组长这个油 管频道也是开了两个礼拜不到就40多万订阅了啊。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10170#       发表于 2020-4-27 14:20
+
+
+
+
+说到团舞，山本宽不是欠债么，不如去虹当管人还债吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 10171#       发表于 2020-4-27 14:20
+
+
+
+
+今晚十点，海爱有催眠向歌回
+
+妹啊唱歌催眠不如直接做奥术魔刃的
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 10172#       发表于 2020-4-27 14:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222672&amp;ptid=1924531" target="_blank">贴杂司马 发表于 2020-04-27 14:12:45</a></blockquote>你这么一说我反而觉得有必要去云一下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10173#       发表于 2020-4-27 14:23
+
+
+
+
+阿宽能和神前晓打包一起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我想听vtb版的mp
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 10174#       发表于 2020-4-27 14:26
+
+
+
+
+狐皇这波也太直球了，大伙都看出来了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10175#       发表于 2020-4-27 14:27
+
+
+
+<blockquote>贴杂司马 发表于 2020-4-27 14:12
+我最近住在只有100+号人的大宿舍楼里，自己一个人住一个宿舍，晚上出去打水，水房还不在这个楼层。 ...</blockquote>
+人体蜈蚣又不是鬼片，毫无恐怖要素
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 10176#       发表于 2020-4-27 14:28
+
+
+
+
+阿宽来当vtb?好主意
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10177#       发表于 2020-4-27 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222822&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-4-27 14:26</a>
+
+狐皇这波也太直球了，大伙都看出来了嘛
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+a、死
+
+
+这说的一定不是aqua，肯定说的是ayame，是狐皇对摸余狗摸得太狠无非容忍了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 10178#       发表于 2020-4-27 14:30
+
+
+
+ 本帖最后由 opersuper 于 2020-4-27 14:31 编辑 
+
+狐皇已经下必杀令了？今天有夸没我推特治国颇有特靠谱的风范
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 10179#       发表于 2020-4-27 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222856&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-27 14:29</a>
+a、死
+
+
+这说的一定不是aqua，肯定说的是ayame，是狐皇对摸余狗摸得太狠无非容忍了 ...</blockquote>
+或许她是全都要呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10180#       发表于 2020-4-27 14:30
+
+
+
+
+狐皇今天是杀疯了吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 10181#       发表于 2020-4-27 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mk2怎么说的跟一群crew住在一起一样。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 10182#       发表于 2020-4-27 14:31
+
+
+
+
+建议狐皇以后出行带一个伊兹那样的秘书，她yygq一句小秘书就在旁边解释一句
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 10183#       发表于 2020-4-27 14:32
+
+
+
+
+看来不止国内有狐学家，日本也是有狐学家的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 10184#       发表于 2020-4-27 14:33
+
+
+
+ 本帖最后由 tiro_finale 于 2020-4-27 14:34 编辑 
+
+她整天在推上死来死去的，不就和发个awsl一样么
+
+随便找几个
+ <blockquote>あっ…(二度目の死)</blockquote>[https://twitter.com/shirakamifubuki/status/1071310138563158016](https://twitter.com/shirakamifubuki/status/1071310138563158016) <blockquote>ぁ"っ…(可愛死)</blockquote>[https://twitter.com/shirakamifubuki/status/1047494001425702912](https://twitter.com/shirakamifubuki/status/1047494001425702912) <blockquote>( 'ㅂ')ﾋｯ
+
+
+＿人人 人人＿ 
+
+＞ 突然の死 ＜ 
+
+￣Y^Y^Y^Y￣</blockquote>[https://twitter.com/shirakamifubuki/status/1162901004347559936](https://twitter.com/shirakamifubuki/status/1162901004347559936)
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10185#       发表于 2020-4-27 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47219904&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-27 10:27</a>
+
+润姨倒是因为自肃没法去打工了，现在每天都快闲出病来了。</blockquote>
+SC收入那么高还要发愁吗www
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10186#       发表于 2020-4-27 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222822&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-4-27 14:26</a>
+
+狐皇这波也太直球了，大伙都看出来了嘛
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+冷静分析可能是被之前转发的丹帝fa尊到了
+
+开团式分析就是直球诅咒阿夸，建议crew冲了狐皇推特
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 10187#       发表于 2020-4-27 14:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">狐皇语录赶紧出版得了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10188#       发表于 2020-4-27 14:34
+
+
+
+
+no one 
+
+knows hololive
+
+better than
+
+me
+
+period
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10189#       发表于 2020-4-27 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47219868&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 10:24</a>
+
+白上和船皇都蹭到武士道的电台了啊……</blockquote>
+电台是正经职业加长期饭票吧，船长肯定很满意的，何况就宅知识也只有狐船比较匹配了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10190#       发表于 2020-4-27 14:36
+
+
+
+
+狐皇还顺带挑唆粽子冲了A酱，下一步就是逼宫yagoo了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10191#       发表于 2020-4-27 14:38
+
+
+
+
+狐皇从5ch得知彩虹要亡了，今天很兴奋吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10192#       发表于 2020-4-27 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222928&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-27 14:34</a>
+
+电台是正经职业加长期饭票吧，船长肯定很满意的，何况就宅知识也只有狐船比较匹配了
+
+ ...</blockquote>
+不许摸可是地狱。
+
+船长昨天说9点播完没吃晚饭11点不播了大家8好意思，然后就摸了。
+
+不许摸自家的女人可能只有在梦里才能有这个待遇吧。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10193#       发表于 2020-4-27 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47220525&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 11:15</a>
+
+话说pro哥能不能告诉我一下犬山平时憋尿打块多少同接啊？我看一下晚上星街彗星绝境战能拉多少buff。
+
+@proxi ...</blockquote>
+一般一万左右吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海苔男这次宣传了这么久，不整个两万同接那就拉了，要谢罪的
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 10194#       发表于 2020-4-27 14:40
+
+
+
+
+第二部是监狱那一部吗，我倒是感觉连起来的人多了，没那味了，而且没啥特别细节描写，剧情里手法也是学的第一部的，没啥新意，就是人多
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 10195#       发表于 2020-4-27 14:40
+
+
+
+
+草，粽子字幕组转发上面那张图的时候叫狐皇了，然后又自删了重发把狐皇去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计是逛v8s1后忘记切换回正常形态了，狐学把人变成鬼
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10196#       发表于 2020-4-27 14:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222986&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-4-27 14:40</a>
+
+草，粽子字幕组转发上面那张图的时候叫狐皇了，然后又自删了重发把狐皇去了估计是逛v8s1后忘记切换 ...</blockquote>
+狐皇已深入人心，为何不输出批站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10197#       发表于 2020-4-27 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222721&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 14:17</a>
+
+隔壁杏星楼都吵起来了，杏星真的要好起来了！</blockquote>
+我们对线你都看，4ID老哥你怎么肥四<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 10198#       发表于 2020-4-27 14:44
+
+
+
+<blockquote>podball 发表于 2020-4-27 14:40
+第二部是监狱那一部吗，我倒是感觉连起来的人多了，没那味了，而且没啥特别细节描写，剧情里手法也是学的第 ...</blockquote>
+监狱是第三部，第二部是停车场，画面重口到自动打上黑白滤镜
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10199#       发表于 2020-4-27 14:45
+
+
+
+
+中央大学法学部特定难道是真的？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+リゼ様と学ぶ！つよつよ法律講座
+[https://www.bilibili.com/video/BV1R5411x7g1/](https://www.bilibili.com/video/BV1R5411x7g1/)
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10200#       发表于 2020-4-27 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222917&amp;ptid=1924531" target="_blank">八月琉璃 发表于 2020-4-27 14:34</a>
+
+狐皇语录赶紧出版得了。
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+                        《白 宝 书》
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">白上吹雪，万寿无疆，万寿无疆，
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">凑阿库娅，永远健康，永远健康 ，
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">桐生可可，比较健康，比较健康 ，
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">宝钟马琳，勉强健康，勉强健康。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10201#       发表于 2020-4-27 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222986&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-4-27 14:40</a>
+
+草，粽子字幕组转发上面那张图的时候叫狐皇了，然后又自删了重发把狐皇去了估计是逛v8s1后忘记切换 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 10202#       发表于 2020-4-27 14:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">回想一下，小狐狸当初还是叫少主的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10203#       发表于 2020-4-27 14:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑杏字幕组组均观察s1，毕竟有的组长也在这混。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10204#       发表于 2020-4-27 14:50
+
+
+
+
+狐皇自己都叫fbking，这称呼没什么不妥啊
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10205#       发表于 2020-4-27 14:51
+
+
+
+
+不对劲 狐皇之前发推都很隐晦的 现在估计是意识到自己的隐喻被解读并扩散出去了 干脆自己亲自下场带节奏免得别人解读出错借此攻击holo大家庭 以洗了自己的一般通过粉为代价 维护了整个大家庭的欣欣向荣 狐皇 你好强大
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10206#       发表于 2020-4-27 14:52
+
+
+
+ 本帖最后由 colodes 于 2020-4-27 15:07 编辑 
+
+「狐皇」怎么了，フブキング这个称号还是2018年那时候夏哥初配信给狐狸取的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10207#       发表于 2020-4-27 14:53
+
+
+
+
+白少主难道不是因为50w+超了天皇膨胀了吗
+
+我想看yagoo也跟着膨胀，什么时候ppt里面把订阅第一vliver吹起来
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10208#       发表于 2020-4-27 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223095&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-27 14:50</a>
+
+狐皇自己都叫fbking，这称呼没什么不妥啊</blockquote>
+fbking不是别人对她的称呼吗，有自称过？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10209#       发表于 2020-4-27 14:53
+
+
+
+
+你带个王冠就不要怪有人想"玩弄王座"啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10210#       发表于 2020-4-27 14:53
+
+
+
+
+组长这个油 管频道订阅增长简直离谱，半小时一刷新就涨了1k<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 10211#       发表于 2020-4-27 14:54
+
+
+
+
+草，这莉泽有点东西，更爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 10212#       发表于 2020-4-27 14:54
+
+
+
+
+狐皇现在订阅远超月丿，又在昨日得知彩虹将亡，可不高兴坏了，兴致来了给底下人讲解两句罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 10213#       发表于 2020-4-27 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223138&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-27 14:53</a>
+
+fbking不是别人对她的称呼吗，有自称过？</blockquote>
+多次自称过，顺便头上的王冠就是自己要求的，理由就是フブキング这个称呼
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 10214#       发表于 2020-4-27 14:56
+
+
+
+
+露露黑魂3boss耗时及死亡次数，蛮厉害的
+
+
+
+
+
+
+EWjtwbtVAAA832W.png
+(22.4 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-27 14:55 上传
+
+
+
+
+
+
+
+
+1
+
+<img src="https://img.saraba1st.com/forum/202004/27/145514l60n6t606z2toch9.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10215#       发表于 2020-4-27 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223178&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-4-27 14:56</a>
+
+多次自称过，顺便头上的王冠就是自己要求的，理由就是フブキング这个称呼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧，那在b站叫她狐皇好像没什么毛病啊，字幕组干嘛要删掉
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10216#       发表于 2020-4-27 14:58
+
+
+
+
+狐皇这个自以为得计的小聪明样真的和啊king一摸一样，啥时候出签名鞋啊？我买还不成么。
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 10217#       发表于 2020-4-27 15:00
+
+
+
+
+King Fubuki
+
+怕是马上就要被玩弄王座了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 10218#       发表于 2020-4-27 15:00
+
+
+
+
+王女这个法学素养肯定是学过的
+考虑到日本人平均的法学水平，还有谜之英文中文的能力
+这么高规格的怎么来做主播的
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10219#       发表于 2020-4-27 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223209&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-04-27 14:58:25</a>
+好吧，那在b站叫她狐皇好像没什么毛病啊，字幕组干嘛要删掉</blockquote>还没称帝，只是狐丞相，虽然大家都知道实际是狐皇掌权，但样子还是要做的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 10220#       发表于 2020-4-27 15:02
+
+
+
+
+看来是真的很多新观众啊，白姨播喷射2同接都有9000左右
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 10221#       发表于 2020-4-27 15:04
+
+
+
+
+lize真就月之的小粉丝？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，这种配置还当主播。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 10222#       发表于 2020-4-27 15:05
+
+
+
+ 本帖最后由 tiro_finale 于 2020-4-27 15:07 编辑 
+
+一些狐学材料
+ <blockquote>白上フブキ＠ホロライブ
+
+@shirakamifubuki
+
+
+私はキングになりたいです！👑🦊
+
+ホロライブのお姫様達を引っ張れるキングになるぞぉぉい！！
+
+
+＼フブキング／＼フブキング／
+
+
+いつか……すこん部達を巻き込んだフブキングダムを作る……(^・ω・^§)ﾉ
+
+
+いや、立派なお狐様になって白上稲荷神社作るぞい🦊
+
+
+#とまらないホロライブ</blockquote>
+[https://twitter.com/shirakamifubuki/status/1210746038614540289](https://twitter.com/shirakamifubuki/status/1210746038614540289)
+ <blockquote>白上フブキ＠ホロライブ
+
+@shirakamifubuki
+
+
+ありがとうございます✨
+
+でもこの時の心は
+
+雄々しいキングなんじゃよ💪🏼🦊
+
+フブキング！フブキング！
+
+姫もいいですが、王という気持ちでありたいっ これからもどっしり前方腕組みするぞ💪🏼🦊 ホロライブキングダム～</blockquote>
+
+[https://twitter.com/shirakamifubuki/status/1247114460675751936](https://twitter.com/shirakamifubuki/status/1247114460675751936)
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10223#       发表于 2020-4-27 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那么问题来了，皇女是不是虹杏里面学历水平最高的。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10224#       发表于 2020-4-27 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是狐皇把天赋带到了木口生
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10225#       发表于 2020-4-27 15:08
+
+
+
+
+确实，不组三巨头（指夸兔船）不会打。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10226#       发表于 2020-4-27 15:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有三巨头，只有三期生可以吗？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10227#       发表于 2020-4-27 15:08
+
+
+
+
+你楼今天又是太监又是皇的，要出大问题
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10228#       发表于 2020-4-27 15:10
+
+
+
+
+🦊则天？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10229#       发表于 2020-4-27 15:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只说夸兔船，那我龙皇算什么
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 10230#       发表于 2020-4-27 15:13
+
+
+
+ 本帖最后由 ete 于 2020-4-27 15:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙皇带羊天
+
+当然是金⚪勇⚪啦，然后等被击败的联盟第二人加入就能玩弄王座，你看隔壁最近不是就闹腾（
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 10231#       发表于 2020-4-27 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222134&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-27 13:24</a>
+管人粉丝当谜语人，不好看！管人当谜语人，好看！</blockquote>
+所有v粉都是伏拉夫！
+
+成了！
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10232#       发表于 2020-4-27 15:14
+
+
+
+
+拉倒吧，nba都要gg了，还搁这套三巨头呢。
+
+不过反正我勇这赛季是鱼腩，毫无压力。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10233#       发表于 2020-4-27 15:16
+
+
+
+ 本帖最后由 noHentai 于 2020-4-27 15:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223327&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-27 15:06</a>
+
+那么问题来了，皇女是不是虹杏里面学历水平最高的。</blockquote>
+不是，至少实锤的就有翔哥这样的修士。
+
+有一份广为流传的学历表，当然这里面是有一些没实锤的，比如德龙其实至今都算不上有实锤特定，还有爱丽丝这种写进来搞笑的。 <blockquote>にじさんじライバー学力ランキング
+
+
+1位 ジョー・カー 京大
+
+2位 黛灰 東工大修士
+
+3位 夢追翔 農工大農学修士
+
+4位 静凛 東京女子師範学校(現お茶の水女子大学)
+
+4位 雨森小夜 お茶の水女子大
+
+5位 剣持刀也 横国経済
+
+6位 夕陽リリ ICU合格レベル
+
+7位 物述アリス 防衛大
+
+8位 リゼ・ヘルエスタ 中央大法学
+
+9位 社築 都留文
+
+10位 樋口楓 関西学院
+
+11位 遠北千南 MARCH合格レベル
+
+12位 月ノ美兎 学習院</blockquote>
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stedckk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 10234#       发表于 2020-4-27 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222486&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-27 13:56</a>
+
+毕竟昨天有事没法播不过热度的话，这个DLC姑且也算个不新鲜事物里的新鲜东西了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">本来以为直播的时候码字分神听错了，结果时间表真的是24：00~ARK
+
+深夜耐久预感
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10235#       发表于 2020-4-27 15:16
+
+
+
+
+为什么erer老姐足球也熟悉篮球也熟悉，突然感觉自己被碾压了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 10236#       发表于 2020-4-27 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223327&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-04-27 15:06:35</a>
+那么问题来了，皇女是不是虹杏里面学历水平最高的。</blockquote>学历肯定是高的，但未必是最高。
+未来人疑似有留学经验，黛灰和翔和的英语也很好，特化的还有像月ノ这种，下巴不知道未来会上哪个大学，这人也不像学渣，疑似被提前录取了。有蛮多人其实平时也就装傻吧。
+
+syl，突然觉得狐皇这种yygq和小人得志后无法压抑的兴奋感，和我第一份工作中接触到的管仓库的几个大妈很像，还是说人到中年都会这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 10237#       发表于 2020-4-27 15:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我木口学历就不行了？985虹人也得给我带专杏人打工嗷！
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10238#       发表于 2020-4-27 15:19
+
+
+
+
+你来之前我们就是业界第一箱啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10239#       发表于 2020-4-27 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223470&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-27 15:16</a>
+
+为什么erer老姐足球也熟悉篮球也熟悉，突然感觉自己被碾压了
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户 ...</blockquote>
+不熟足球，篮球看一点。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 10240#       发表于 2020-4-27 15:20
+
+
+
+
+虹人学历有多高不好说
+但是gamers一定全是高中学历
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 10241#       发表于 2020-4-27 15:21
+
+
+
+
+王座和勇士都被你们给木口安排了，那我🌈是什么？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10242#       发表于 2020-4-27 15:21
+
+
+
+
+是虹gamers还是杏gamers
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 10243#       发表于 2020-4-27 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223417&amp;ptid=1924531" target="_blank">ete 发表于 2020-4-27 15:13</a>
+龙皇带羊天
+
+当然是金⚪勇⚪啦，然后等被击败的联盟第二人加入就能玩弄王座，你看隔壁最近不是就闹腾 ...</blockquote>
+我觉得三期才是勇士吧
+
+四期不是龙皇一个后撤步托起半边天，小天使关键场次伤病，龙皇独木难支嘛
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10244#       发表于 2020-4-27 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223532&amp;ptid=1924531" target="_blank">Mika-S 发表于 2020-4-27 15:21</a>
+
+王座和勇士都被你们给木口安排了，那我🌈是什么？</blockquote>
+永远的总冠军—紫金湖人。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10245#       发表于 2020-4-27 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223513&amp;ptid=1924531" target="_blank">erer 发表于 2020-04-27 15:19:49</a>
+不熟足球，篮球看一点。</blockquote>不熟足球三棍客张口就来，原来这梗传播范围这么大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，前面拿公司大妈比狐皇的会不会举例啊，我还说美国总统发推没狐皇有水平呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 10246#       发表于 2020-4-27 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">东大力一，合情合理
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 10247#       发表于 2020-4-27 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223551&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-27 15:22</a>
+不熟足球三棍客张口就来，原来这梗传播范围这么大的吗
+
+syl，前面拿公司大妈比狐皇的会不会举例啊， ...</blockquote>
+这话可不能乱说，如果是假的不如那就是开玩笑
+
+不过是真的不如啊.......<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10248#       发表于 2020-4-27 15:24
+
+
+
+ 本帖最后由 QWANG 于 2020-4-27 15:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222909&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-27 14:33</a>
+
+SC收入那么高还要发愁吗www</blockquote>
+就是穷病+不安です。打工的钱不想放，不去打工有份看起来正经的工作感觉不安です。你要说真缺钱，同期的阿火住在东京，各项数据都不如她，也不会有什么副业收入都能活下去，除非她有什么额外的开销，不然我是不信的。syl
+
+出了趟门没看到粽组发狐皇感觉好亏啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 10249#       发表于 2020-4-27 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223547&amp;ptid=1924531" target="_blank">erer 发表于 2020-4-27 15:22</a>
+永远的总冠军—紫金湖人。</blockquote>
+woc erer姐你怎么谁都顺劈啊
+
+你到底是那边的啊，难道是马刺球迷？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10250#       发表于 2020-4-27 15:27
+
+
+
+<blockquote>Mika-S 发表于 2020-4-27 15:21
+王座和勇士都被你们给木口安排了，那我🌈是什么？</blockquote>
+绿凯or狗刺，底蕴，瑞斯拜🙌
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 10251#       发表于 2020-4-27 15:27
+
+
+
+
+阿委年轻学历高，才华横溢，前途无量，而且同接还高，囚人何必酸呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10252#       发表于 2020-4-27 15:28
+
+
+
+ 本帖最后由 stedckk 于 2020-4-27 15:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">研究了一下，京大应该是京都大学吧。。
+
+
+syl
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们梁木也太大了吧，怎么就小人得志了。。。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10253#       发表于 2020-4-27 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223582&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-27 15:25</a>
+
+woc erer姐你怎么谁都顺劈啊
+
+
+你到底是那边的啊，难道是马刺球迷？</blockquote>
+我不是早就说了我勇吗。库里球迷嘛。不过反正勇士那些梗早就传遍了。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10254#       发表于 2020-4-27 15:28
+
+
+
+
+这楼里也妹囚人啊
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10255#       发表于 2020-4-27 15:28
+
+
+
+
+虹要亡了为什么不是yagoo很高兴呢，你们怎么都往狐皇身上扯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10256#       发表于 2020-4-27 15:29
+
+
+
+
+彩虹要是黄了我还能有机会看一次大惨事杯么，等一个大福加盟勇士
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10257#       发表于 2020-4-27 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">二二姐竟然是勇士粉，眼里有梁木了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10258#       发表于 2020-4-27 15:30
+
+
+
+
+因为大伙儿都默认fubuki实质运营。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10259#       发表于 2020-4-27 15:30
+
+
+
+
+erer老姐不会还看lpl，还是ig粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">昨天没出现是去微博战斗了吗？
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 10260#       发表于 2020-4-27 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223616&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-4-27 15:28</a>
+这楼里也妹囚人啊</blockquote>
+就应该整个囚人点将录，我先提名nH老哥
+
+文能emo小作文，武能yygq委黑
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10261#       发表于 2020-4-27 15:32
+
+
+
+
+小肥妹日常让人说喜欢她……今天忽然多了龙皇萝卜子和粽子回答喜欢，这能分析出什么吗？熟悉白（姨）学的楼内老哥能帮忙捋捋不<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10262#       发表于 2020-4-27 15:32
+
+
+
+
+乐言套皮出道holostarcn一期生我举五只手欢迎
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 10263#       发表于 2020-4-27 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223616&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-4-27 15:28</a>
+
+这楼里也妹囚人啊</blockquote>
+当然有，你再找找，不是0人
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10264#       发表于 2020-4-27 15:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天ig输了我笑得很开心。
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 10265#       发表于 2020-4-27 15:34
+
+
+
+
+虹那必是马刺啊
+
+吹了一百年团队氛围教练水平波波维奇当世第一，结果离了邓肯屁都不是，邓肯可比天皇，GDP就是3JK
+
+现在只等一个天皇退役，继承人跟运营不睦跳槽怒夺总冠军好吧
+
+sasaki，我看好你
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宫宝兔丁|-1|马刺粉不高兴了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10266#       发表于 2020-4-27 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不懂lpl，吃过一点瓜，实质纯路人。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 10267#       发表于 2020-4-27 15:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">阿笹转生木口，首播踩能突破1w吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10268#       发表于 2020-4-27 15:37
+
+
+
+
+虹现在真的有人想出头吗，连个精神继承人都没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10269#       发表于 2020-4-27 15:37
+
+
+
+
+3ID小姐也是囚人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10270#       发表于 2020-4-27 15:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们这套nba也太过于生搬硬套了吧。。
+
+要是sasaki是小卡，那杏怎么看都不是猛龙啊。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 10271#       发表于 2020-4-27 15:39
+
+
+
+
+就不能是我水子哥吗
+
+
+
+
+
+
+
+-----
+
+####  AEmpire  
+##### 10272#       发表于 2020-4-27 15:39
+
+
+
+
+兔皇尽力了，虹女CBA<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10273#       发表于 2020-4-27 15:40
+
+
+
+
+主要管人圈转会太少，没法类比竞技项目
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10274#       发表于 2020-4-27 15:40
+
+
+
+
+原来mrr是大卫韦斯特😯，30代老将实锤了
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10275#       发表于 2020-4-27 15:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223659&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-27 15:32</a>
+
+小肥妹日常让人说喜欢她……今天忽然多了龙皇萝卜子和粽子回答喜欢，这能分析出什么吗？熟悉白（姨）学的楼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这有什么好分析的 大亏回了才有讨论价值
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10276#       发表于 2020-4-27 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223785&amp;ptid=1924531" target="_blank">屑屑代沟尼亚 发表于 2020-4-27 15:40</a>
+
+这有什么好分析的 大亏回了才有讨论价值</blockquote>
+如果阿夸回了，我都替小肥妹高兴好吧。
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 10277#       发表于 2020-4-27 15:42
+
+
+
+
+别提了，昨天比赛打完之前我去微博开团马都没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10278#       发表于 2020-4-27 15:42
+
+
+
+
+狐皇直播时不能发推，寂寞的楼友们只得又开始车小肥妹了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10279#       发表于 2020-4-27 15:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/27/154302sgkizgb1rprbeieb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200427154246.png</strong> (395.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-27 15:43 上传
+
+
+
+
+
+
+恭喜小天使20w无会员成就解锁，这波是天龙贴贴。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 10280#       发表于 2020-4-27 15:43
+
+
+
+[https://twitter.com/amanekanatach/status/1254676772622221312](https://twitter.com/amanekanatach/status/1254676772622221312) <blockquote>🌸🌸ありがとう🌸🌸
+
+
+YouTube登録者数20万人、
+
+本当に本当にありがとうございます！
+
+
+まだまだ未熟な僕ですが、みんなに恩返しができるようにこれからも努力し続けます。
+
+
+ずっとずっと一緒にいてねっ。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202004/27/154402n7ab27kb27b7mksa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWl8lq2VcAA3-yJ.jpg</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2020-4-27 15:44 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10281#       发表于 2020-4-27 15:43
+
+
+
+
+你们根本不爱狐皇，发推特都比直播车的楼多<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10282#       发表于 2020-4-27 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223659&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-27 15:32</a>
+
+小肥妹日常让人说喜欢她……今天忽然多了龙皇萝卜子和粽子回答喜欢，这能分析出什么吗？熟悉白（姨）学的楼 ...</blockquote>
+按照一般的思路这不应该是养gachi行为？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后附和的同事当然是大家庭表现啦
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10283#       发表于 2020-4-27 15:44
+
+
+
+ 本帖最后由 Devi_Lito 于 2020-4-27 15:47 编辑 
+
+消息人士称，彩虹CEO田角陆的情绪已经快失去控制了。
+
+
+田角现在正在大阪市中心开车晃悠，通过短信向笹木咲家人乞求笹木咲的家里住址。
+
+
+根据最新的消息，yagoo和holo管理层人员已在笹木咲家中将她团团围住。
+
+
+syl，中文篮球段子是不是相对太少了，倒是reddit上有好多copypasta素材。。红色体育论坛上还是“冷手硬打”，“热手硬传”，“协防拉丝化”这些造词有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10284#       发表于 2020-4-27 15:45
+
+
+
+
+狐皇直播，不好分析；狐皇发推，好分析！
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10285#       发表于 2020-4-27 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223857&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-4-27 15:44</a>
+
+消息人士称，彩虹CEO田角陆的情绪已经快失去控制了。
+
+
+田角现在正在大阪市中心开车晃悠，通过短信向笹木咲 ...</blockquote>
+小乔丹梗？
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 10286#       发表于 2020-4-27 15:46
+
+
+
+
+狐皇gachi激怒，再让我抓到你们黑屁狐皇妹有你们好果汁吃
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10287#       发表于 2020-4-27 15:46
+
+
+
+
+草，不要再引起小牛球迷的ptsd了，乔守义bs
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10288#       发表于 2020-4-27 15:46
+
+
+
+
+喷射谁来播我都不看<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10289#       发表于 2020-4-27 15:46
+
+
+
+
+看到说杏三期是勇士忽然感觉好有道理。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10290#       发表于 2020-4-27 15:47
+
+
+
+
+错了呀，应该是田角和西西包围阿咲不让谷乡见她。你这咋反过来了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10291#       发表于 2020-4-27 15:47
+
+
+
+
+在白（姨）学成为显学的今天，我再发一个疑问：
+
+兔皇名字是pekora，和意大利文pecora发音一致，然而pecora在意大利文的意思却是绵羊，这里面到底有啥含义呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+至于你说我是不是专门去查了，那还真没有，作为吃货我也很喜欢芝士，最近喜欢上意大利硬质芝士，而pecorino芝士我也想试试，放狗搜索得出的关于pecora的说明<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10292#       发表于 2020-4-27 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223659&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-27 15:32</a>
+小肥妹日常让人说喜欢她……今天忽然多了龙皇萝卜子和粽子回答喜欢，这能分析出什么吗？熟悉白（姨）学的楼 ...</blockquote>
+那你可以这么想 萝卜子代表无印 粽子代表三期生 龙皇代表四期生 三个表态算是站队 加油啊小肥妹 你就是holo下一个少主
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10293#       发表于 2020-4-27 15:48
+
+
+
+
+夸西贴贴还能有么
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10294#       发表于 2020-4-27 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223897&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-27 15:47</a>
+
+错了呀，应该是田角和西西包围阿咲不让谷乡见她。你这咋反过来了</blockquote>
+但原文背景是小乔丹已经和小牛口头协议达成了，这边阿咲并没确定去holo啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10295#       发表于 2020-4-27 15:49
+
+
+
+
+你们又聊了些啥啊，我看不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10296#       发表于 2020-4-27 15:49
+
+
+
+
+阿夸说西西不理她了，按v综说法大约是不想再被阿夸吸血了吧。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 10297#       发表于 2020-4-27 15:50
+
+
+
+
+杏三期是勇士那粽子就是追梦绿了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10298#       发表于 2020-4-27 15:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别套nba模版了，又没有频繁转会，真的不合适。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10299#       发表于 2020-4-27 15:51
+
+
+
+
+那兔皇肯定是库里把<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10300#       发表于 2020-4-27 15:52
+
+
+
+
+所以管人圈077什么时候能出来呢，来一个改变业界的超级新人吧，给v粽点新话题
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10301#       发表于 2020-4-27 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">按阿笹抛出来的剧本，西西现在在玩非暴力不合作，窝在舒适区不动
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10302#       发表于 2020-4-27 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223965&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-27 15:51</a>
+
+那兔皇肯定是库里把</blockquote>
+不行，兔皇是真的强者，而我库外强中干，时常拉跨。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10303#       发表于 2020-4-27 15:53
+
+
+
+
+警惕楼友和平演变JR
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 10304#       发表于 2020-4-27 15:54
+
+
+
+
+西西又不是最近才开始非暴力不合作
+
+从东京搬回大阪的时候就等于明确表态不要找我了
+
+从关西搬到东京的两个倒是感觉有点想法的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10305#       发表于 2020-4-27 15:54
+
+
+
+
+007长得这么帅，必须是个中之人超级美少女出道才行。就决定是你了，芦田爱菜。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10306#       发表于 2020-4-27 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">芦田爱菜有点长歪了，或者说不达预期，小时候太可爱，出道即巅峰
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 10307#       发表于 2020-4-27 15:56
+
+
+
+
+库里一己之力带着勇士改变联盟打法时代，兔皇横空出世带着三期生让木口终登王座
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 10308#       发表于 2020-4-27 15:56
+
+
+
+
+如果木口是勇士，那狐皇是谁，科尔么，但是科尔又没有和狐皇一样苦尽甘来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10309#       发表于 2020-4-27 15:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">都说了不要生搬硬套球队历史了，如果只是套球星个人倒是没问题。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10310#       发表于 2020-4-27 16:01
+
+
+
+
+我是把粽子比作汤普森，不如双皇但也够强。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10311#       发表于 2020-4-27 16:01
+
+
+
+
+大家、等一下 😳
+
+我发现了件大事！
+
+
+
+
+
+还是不说了
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 10312#       发表于 2020-4-27 16:02
+
+
+
+
+聊篮球怎么能不顺劈湖人，你们谁来搞一个rurudo在东京找房，欲加盟2434的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10313#       发表于 2020-4-27 16:02
+
+
+
+
+吊人胃口？
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 10314#       发表于 2020-4-27 16:03
+
+
+
+
+哪个老哥能讲讲2434又出啥幺蛾子，本情弱翻页看的有点晕
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10315#       发表于 2020-4-27 16:03
+
+
+
+
+虹杏搬NBA段子一大阻碍还是mrr地位太低了，和杜兰特差太多，让白姨在停车场招募mrr显然不太合适<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10316#       发表于 2020-4-27 16:04
+
+
+
+
+楼友特定相关，感觉还是不说的比较好，把秘密放在自己心中<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10317#       发表于 2020-4-27 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47224172&amp;ptid=1924531" target="_blank">ksline114 发表于 2020-4-27 16:03</a>
+
+哪个老哥能讲讲2434又出啥幺蛾子，本情弱翻页看的有点晕</blockquote>
+熊猫人会限抱怨运营安排太多工作，限制了自己的直播安排。大概就这样？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10318#       发表于 2020-4-27 16:05
+
+
+
+
+又是楼友特定....<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10319#       发表于 2020-4-27 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47224191&amp;ptid=1924531" target="_blank">colodes 发表于 2020-04-27 16:04:33</a>
+楼友特定相关，感觉还是不说的比较好，把秘密放在自己心中</blockquote>只要不是特出来erer是夸皇本尊其他的我觉得算不上大事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 10320#       发表于 2020-4-27 16:06
+
+
+
+<blockquote>某穆克拉 发表于 2020-4-27 16:04
+熊猫人会限抱怨运营安排太多工作，限制了自己的直播安排。大概就这样？ ...</blockquote>
+懂了，2434biss
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10321#       发表于 2020-4-27 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47223857&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-04-27 15:44:53</a></blockquote>上手上手
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+     
