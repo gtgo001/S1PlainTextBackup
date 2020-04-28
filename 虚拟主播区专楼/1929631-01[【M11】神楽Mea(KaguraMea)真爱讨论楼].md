@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 02:10** 
+> ## **本文件最后更新于2020-04-28 14:09** 
 
 
 
@@ -8221,10 +8221,12 @@ yhm出门大部分戴口罩，记下口罩下的声音日后一定能活用<img 
 
 
 
- 参与人数 3战斗力 -3
+ 参与人数 5战斗力 -5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Cla0221|-1||
+| 呓亘|-1||
 | noaki|-1|欢乐多|
 | Zhudhh|-1|欢乐多|
 | weiweiEX|-1||
@@ -8337,4 +8339,939 @@ yhm出门大部分戴口罩，记下口罩下的声音日后一定能活用<img 
 
 
 
-                                 
+
+
+-----
+
+####  yanghaozhend  
+##### 482#       发表于 2020-4-28 02:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47228022&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-27 22:26</a>
+
+砍个小螃蟹他就来千里追杀看楼上说的应该是追到路上就会遁地了
+
+
+syl这个俄罗斯方块不来组队打boss ...</blockquote>
+对，你要是跑到路上就白打了，所以触发之后最好还是在水里打死。
+
+抓好处决时机还是很好打的，水里不好翻滚，所以架盾绕右手比较简单。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 483#       发表于 2020-4-28 03:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229885&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 02:40</a>
+对，你要是跑到路上就白打了，所以触发之后最好还是在水里打死。
+
+抓好处决时机还是很好打的，水里不好翻 ...</blockquote>
+已经打过了，过了恶心人的法兰要塞图之后打不死队特别爽快，宫崎老贼的快感管理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 484#       发表于 2020-4-28 06:37
+
+
+
+
+在知乎看到了这个，感觉是对mea直播活动最大的褒奖，果然还是有懂的人的。
+
+
+
+
+
+
+aaaaaaa.png
+(54.82 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-28 06:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/28/063449p85eafhia0x5x1nx.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|男子初中生人设大成功|
+| weiweiEX| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 485#       发表于 2020-4-28 06:40
+
+
+
+
+楼友变gay了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Alkaidec  
+##### 486#       发表于 2020-4-28 08:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230108&amp;ptid=1929631" target="_blank">a772803314 发表于 2020-4-28 06:37</a>
+
+在知乎看到了这个，感觉是对mea直播活动最大的褒奖，果然还是有懂的人的。
+
+ ...</blockquote>
+RP太成功了是会这样
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 487#       发表于 2020-4-28 08:22
+
+
+
+
+只要用了这个变声器就可以变成麻吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 488#       发表于 2020-4-28 08:26
+
+
+
+
+我一开始看那个 屑女人 的剪辑还真以为是男的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 489#       发表于 2020-4-28 08:36
+
+
+
+
+彻底点，要扒就扒干净，那什么时候来个mea太君rp说？什么纯正yhm，再到暗示中日混血，再到hk友人，再到虽然自己是粤语使用者但母亲却来自某疫情隔离重区
+
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 490#       发表于 2020-4-28 09:01
+
+
+
+ 本帖最后由 nightmare902015 于 2020-4-28 09:06 编辑 
+
+总是有人对变声器的性能有着误解<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">觉得所有不露脸的主播都是变声器骗人的数量不少
+
+听次歌回就能分辨的，实在是替那个支支吾吾的粉丝感到着急
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 491#       发表于 2020-4-28 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230494&amp;ptid=1929631" target="_blank">lovcavil 发表于 2020-4-28 08:36</a>
+
+彻底点，要扒就扒干净，那什么时候来个mea太君rp说？什么纯正yhm，再到暗示中日混血，再到hk友人，再到虽然 ...</blockquote>
+除了这种看了几个视频的，冲点塔都能了解怎么回事了。但就是因为这位才看了几个视频，她的看法才更纯粹，得到的结论才更难能可贵。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|难能可贵|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 492#       发表于 2020-4-28 09:18
+
+
+
+
+这不刚好证明虚拟卢本伟牛逼吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 493#       发表于 2020-4-28 09:55
+
+
+
+
+有一说一，现实也有这种女孩子，只是大多在网上重拳出击。（现实里也重拳出击的已经和我分了）
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 494#       发表于 2020-4-28 12:05
+
+
+
+
+官组投pv了诶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 495#       发表于 2020-4-28 12:06
+
+
+
+<blockquote>惑星 发表于 2020-4-28 12:05
+官组投pv了诶</blockquote>
+和夸组一起投的，贴贴
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 496#       发表于 2020-4-28 12:07
+
+
+
+
+还有这种操作
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 497#       发表于 2020-4-28 12:08
+
+
+
+
+美好的一天从看到虚空二创结束
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 498#       发表于 2020-4-28 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47232775&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 12:06</a>
+和夸组一起投的，贴贴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+警告，有ptsd的就别看评论区了，我怕你们遭不住
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 499#       发表于 2020-4-28 12:08
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-28 12:10 编辑 
+
+草， 有人能告诉我是真的有"糖"还是阿b评论区日常玩梗吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦， 是糖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 500#       发表于 2020-4-28 12:09
+
+
+
+
+是两边字幕组各投了一首歌一首火花一首没什么大不了，曲绘是成对的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 501#       发表于 2020-4-28 12:10
+
+
+
+<blockquote>魔法使い2019 发表于 2020-4-28 12:08
+草， 有人能告诉我是真的有"糖"还是阿b评论区日常玩梗吗</blockquote>
+你看夸组封面不就知道了，还都是radwimps的歌
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 502#       发表于 2020-4-28 12:11
+
+
+
+
+不行，不能只让我一个人看到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+“一起发，是糖！”
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 503#       发表于 2020-4-28 12:11
+
+
+
+
+算了，有比没有好，贴贴人四舍五入也是粉丝，也有可能打钱，是好事（尝试理性
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 504#       发表于 2020-4-28 12:13
+
+
+
+
+其实我觉得挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 505#       发表于 2020-4-28 12:15
+
+
+
+
+事实上二创组出手是在救你咩的人气（
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 506#       发表于 2020-4-28 12:20
+
+
+
+
+你麻发的15w庆祝pv，不行，加了二创组虚空发糖的pv，彳亍！
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 507#       发表于 2020-4-28 12:24
+
+
+
+
+现在看评论都像是钓鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我大约的确是没救了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 508#       发表于 2020-4-28 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">帮你麻做mv算不错的了，还有那么多要求。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这mix是谁啊，没见过
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 509#       发表于 2020-4-28 12:30
+
+
+
+
+这pv，又到虚空制糖的季节了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 510#       发表于 2020-4-28 12:35
+
+
+
+
+两边看了一下，咩评论区的夸比夸评论区的咩少多了，好起来了（
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 511#       发表于 2020-4-28 12:36
+
+
+
+
+我闻到晚上歌会的味道了。那个时间+jpop，好起来了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 512#       发表于 2020-4-28 12:38
+
+
+
+
+希望晚上歌回，最好还是b限，不然就要虚空续舰长了
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 513#       发表于 2020-4-28 12:40
+
+
+
+
+有很多高级财布留言都没往贴贴上靠，这当然是好事啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 514#       发表于 2020-4-28 12:41
+
+
+
+
+咩评论区这踩有点真实啊，制糖评论赞数很多但都靠下了，好起来了（二度）
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 515#       发表于 2020-4-28 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233291&amp;ptid=1929631" target="_blank">JustW 发表于 2020-4-28 12:41</a>
+
+咩评论区这踩有点真实啊，制糖评论赞数很多但都靠下了，好起来了（二度） ...</blockquote>
+《沉默的大多数》
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 516#       发表于 2020-4-28 12:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这可能是天狗最后的倔强吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 517#       发表于 2020-4-28 12:46
+
+
+
+
+唱点术曲怎么样，来个奶油糖专场
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 518#       发表于 2020-4-28 12:58
+
+
+
+
+有mix吃就不错了（悲）  好事好事（
+
+另外实在是有点久没听到beast dance了 说好的最拿手的曲子呢<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 519#       发表于 2020-4-28 13:05
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-4-28 13:15 编辑 
+
+感觉发过的曲子，发完之后，直播都不太唱
+
+是怕对比？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 520#       发表于 2020-4-28 13:07
+
+
+
+
+她自己发过的歌基本都封印了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 521#       发表于 2020-4-28 13:08
+
+
+
+
+想听mea唱一笑悬命
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 522#       发表于 2020-4-28 13:08
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 523#       发表于 2020-4-28 13:13
+
+
+
+<blockquote>甘栗No.007 发表于 2020-4-28 13:05
+感觉发过的曲子，直播都不太唱
+
+是怕对比？</blockquote>
+pretender和this game唱的比较多
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|我是说发完之后啦|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 524#       发表于 2020-4-28 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233674&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 13:13</a>
+pretender和this game唱的比较多</blockquote>
+this game发过后就不怎么唱了啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 525#       发表于 2020-4-28 13:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得她今天不会播
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 526#       发表于 2020-4-28 13:15
+
+
+
+
+我就觉得怎么有人刷糖，刚想说你怕不是洽冰du，原来来这么一手
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 527#       发表于 2020-4-28 13:19
+
+
+
+
+你麻什么时候能学下猛独袭来呀，这首我挺喜欢u18r唱的，还有bs置顶的那首笨蛋合唱，她该不会忘了怎么唱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 528#       发表于 2020-4-28 13:19
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-28 13:14
+this game发过后就不怎么唱了啊</blockquote>
+好像是诶，但爱言叶III她去年年初唱的也不少
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 529#       发表于 2020-4-28 13:46
+
+
+
+
+喜欢制糖就制吧，想玩点啥就玩点啥，挺好的。
+
+不看就完事了。
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 530#       发表于 2020-4-28 13:56
+
+
+
+
+还是灰青更打动我一点
+
+我现在缓存了4个版本了,有段时间单曲循环
+
+
+
+
+
+                                

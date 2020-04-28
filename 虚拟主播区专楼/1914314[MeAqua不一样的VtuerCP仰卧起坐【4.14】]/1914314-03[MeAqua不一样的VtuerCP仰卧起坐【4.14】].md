@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 18:01** 
+> ## **本文件最后更新于2020-04-28 14:01** 
 
 
 
@@ -7305,6 +7305,765 @@ bsyl 我高中的时候跟别人打赌输了写了2000字的百合短文，be，
 
 
 
+﹍﹍﹍
+
+评分
 
 
-                                    
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 小博禹|-1|你麻对乱趴的爱大概是真的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 3402#       发表于 2020-4-25 18:19
+
+
+
+
+都过去那么久了看见推荐视频里有夸皇还是本能犯恶心怎么治？楼里有成功拔除梁木的案例吗？
+
+感觉就跟分手后在朋友圈看见前任晒幸福，跟新男人秀恩爱那样难受啊，关键还没法屏蔽
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3403#       发表于 2020-4-25 18:23
+
+
+
+
+我现在梁木还小，仅仅只对她俩同框恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3404#       发表于 2020-4-25 18:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">其他CP“有始有终”不就是利益冲突后翻牌了吗，把CP当成工具用
+
+meaqua发现白河豚脑子有问题，调整路线冷处理反而证明了她们是真的（指好网友关系）
+
+贴贴人怎么想关她们吊事，偶尔提几句敷衍就完事了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3405#       发表于 2020-4-25 18:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">直播间放两个立绘，出几个声就是贴贴人翘首以盼的过年。一年来收两次租就行了，其他做的再多都是多余
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3406#       发表于 2020-4-25 19:22
+
+
+
+
+Matsurinco贴贴不错，就喜欢这种先抑后扬为爱反杀的设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 3407#       发表于 2020-4-26 01:33
+
+
+
+
+半个多月没来泥板，一进这楼还是那些废话翻来覆去地说，佛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3408#       发表于 2020-4-26 01:43
+
+
+
+
+说明暗黑贴贴人需要新鲜血液
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3409#       发表于 2020-4-26 08:04
+
+
+
+
+需要点新理论<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3410#       发表于 2020-4-26 08:12
+
+
+
+
+别半个月，这车轱辘从去年轮转至今
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3411#       发表于 2020-4-26 14:25
+
+
+
+
+414二期不远了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+如果aqua能黄金周70w棉花糖b限，还是能整出新活的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 3412#       发表于 2020-4-26 15:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">冷处理是对于“乐子”最恶毒的处理方式
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3413#       发表于 2020-4-28 11:54
+
+
+
+
+414熟肉p2搞快啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+我要吃糖<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3414#       发表于 2020-4-28 11:59
+
+
+
+
+我要看黄金周meaqua（b限）联动！<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3415#       发表于 2020-4-28 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我可以复读han的b博吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3416#       发表于 2020-4-28 12:13
+
+
+
+
+新投稿目前还没有人捧一踩一<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3417#       发表于 2020-4-28 12:15
+
+
+
+
+如果你从中找到了乐子， 也许你的思路和我比较接近<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3418#       发表于 2020-4-28 12:17
+
+
+
+
+没见过的mix啊，有来历吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3419#       发表于 2020-4-28 12:23
+
+
+
+<img src="https://p.sda1.dev/0/4efcfbdd0c4a16fa321579d342b33750/IMG_A20EA1E91B36E42733583EA29DB6206C.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">世界上还有更真的cp？铁子们把贴贴打在屏幕上！
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3420#       发表于 2020-4-28 12:26
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-28 12:29 编辑 
+
+meaqua， 永远的神!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我看着评论区笑的不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+大家都有光明的未来.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3421#       发表于 2020-4-28 12:28
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-28 12:36 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3422#       发表于 2020-4-28 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233034&amp;ptid=1914314" target="_blank">ColdAir 发表于 2020-4-28 12:23</a>
+
+我磕的cp又发糖了！！！！！！！妙啊，两个人发歌都要四目相对世界上还有更真的cp？铁子们 ...</blockquote>
+mea组和aqua组贴贴！！！！！
+
+啊啊啊啊啊啊啊啊啊啊这两组太甜了，我要溺死在东京湾的糖水里了！！！！
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3423#       发表于 2020-4-28 12:37
+
+
+
+
+已经有人开始批判虚空制糖了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3424#       发表于 2020-4-28 12:39
+
+
+
+
+声明：在下没有在评论区发言，甚至还给贴贴点了赞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 3425#       发表于 2020-4-28 12:42
+
+
+
+
+有一说一，贴贴人为了自己推的CP已经酬勤成这样了，该饶人处且饶人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 3426#       发表于 2020-4-28 12:43
+
+
+
+
+有一说一，我觉得夸这pv质量挺好的，想必mea的也不错。看在质量的份上，就让他们虚空贴贴一次吧。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3427#       发表于 2020-4-28 12:46
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-28 12:49 编辑 
+
+事先声明：
+
+
+只要不是拿官组搞偏向性行为， 这种2创我随便你， 不如说是资瓷的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我只是在意程序正义而已， 从来都是如此。
+
+
+只要按照游戏规则来， 你能怎么玩就让你玩<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+不过我是非常怀疑他们能理清这种东西， 所以我是不报什么期待<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3428#       发表于 2020-4-28 12:46
+
+
+
+
+都说了，你麻和你凜现在凉成这样被冲国新皇吊着锤，贴贴人没创作占一半影响，半兽人都拆家了宁还搁着五军之战呢，时代变了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3429#       发表于 2020-4-28 12:46
+
+
+
+
+来不及了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顶住啊贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3430#       发表于 2020-4-28 12:47
+
+
+
+
+有一说一，确实<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3431#       发表于 2020-4-28 12:49
+
+
+
+ 本帖最后由 JoelBirch 于 2020-4-28 12:50 编辑 
+
+不会真有人觉得暗黑贴贴人在批站有什么实际战斗力吧，你黑泥散发一天出的梁木人估计还没两位一小时涨的粉多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3432#       发表于 2020-4-28 12:51
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-28 12:53 编辑 
+
+其实这波我是希望贴贴民胜利的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我们必须承认， 阿b小鬼势大。
+
+
+如果加点“糖” 就能增加热度的话， 能利用何不利用呢？
+
+
+只要不拿官号搞7搞8就好了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3433#       发表于 2020-4-28 12:55
+
+
+
+
+挺好的，歌里没有任何贴贴要素，说明问题都在评论区，只要你不同时关注不看评论区，它就是两个单人pv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3434#       发表于 2020-4-28 12:56
+
+
+
+
+二创本身这种程度的发散还是可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+梁木梁木梁木梁木梁木<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 3435#       发表于 2020-4-28 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们好gay啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3436#         楼主| 发表于 2020-4-28 13:07
+
+
+
+
+咕，两首循环着听，<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，泪水打湿了擦汗巾（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3437#       发表于 2020-4-28 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233368&amp;ptid=1914314" target="_blank">Dualist彩 发表于 2020-4-28 12:46</a>
+
+都说了，你麻和你凜现在凉成这样被冲国新皇吊着锤，贴贴人没创作占一半影响，半兽人都拆家了宁还搁着五军之 ...</blockquote>
+五军包括了奥克那边的两波军队了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等下……我感觉到了又有暗黑贴贴人可以整的活了，我就不多说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3438#       发表于 2020-4-28 13:14
+
+
+
+
+我的结论竟然被推翻了，竟然夸皇的评论区前几个都是贴贴，反而咩宝的评论区贴贴都被打压下去了，是不是有潭友在作法啊，还是贴贴人已经混入了crew的队伍中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3439#       发表于 2020-4-28 13:17
+
+
+
+ 本帖最后由 2014720 于 2020-4-28 13:20 编辑 
+
+是天狗主动为拉废不堪的crew吸引了火力
+
+贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+然而nga阿夸楼到现在也没人发pv<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+好难分析啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3440#       发表于 2020-4-28 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233730&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-28 13:17</a>
+
+是天狗主动为拉废不堪的crew吸引了火力
+
+
+贴贴！</blockquote>
+《真正的纯度》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3441#       发表于 2020-4-28 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新皇也不靠搞同 性 恋吸人气啊，为啥这就只能装同 性 恋呢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3442#       发表于 2020-4-28 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233692&amp;ptid=1914314" target="_blank">Cla0221 发表于 2020-4-28 13:14</a>
+
+五军包括了奥克那边的两波军队了的
+
+等下……我感觉到了又有暗黑贴贴人可以整的活了，我就不多说了 ...</blockquote>
+总之是那么个意思，不要较真<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 3443#       发表于 2020-4-28 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233260&amp;ptid=1914314" target="_blank">惑星 发表于 2020-4-28 12:39</a>
+声明：在下没有在评论区发言，甚至还给贴贴点了赞</blockquote>
+我已经在给贴贴人点赞了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">加油啊，不要输给邪恶的单推
+
+
+
+
+
+                                   
