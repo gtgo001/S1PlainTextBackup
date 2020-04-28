@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 18:10** 
+> ## **本文件最后更新于2020-04-28 20:08** 
 
 
 
@@ -13803,4 +13803,1766 @@ https://www.bilibili.com/video/BV1ti4y1b7qh?t=3 ...</blockquote>
 
 
 
-                        
+
+
+-----
+
+####  路人庚  
+##### 775#       发表于 2020-4-28 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237412&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 18:06</a>
+
+不在这扯了
+
+回答一下问题，本以为黑暗贴贴人只是对这种虚空制糖的不满，但看了414几个社区 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">414mea说的那段“不仲”麻烦去仔细看看熟肉吧，她说的是“最近有传言说因为我和阿夸交往了，所以明面上要减少来往，这种都市传说”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还不如举例说之前的“重要邮件”事件，那边其实更接近你的论点，然而mea也没太当回事
+
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 776#       发表于 2020-4-28 18:10
+
+
+
+
+其他弱智迷惑行为就不说了，听歌去了。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 777#       发表于 2020-4-28 18:12
+
+
+
+
+其实我最好奇的是夏哥，为啥俩这么混沌的人联动就没啥效果。。都是受害角？但是mea和bfm就很正常啊。。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 778#       发表于 2020-4-28 18:13
+
+
+
+<blockquote>路人庚 发表于 2020-4-28 18:10
+414mea说的那段“不仲”麻烦去仔细看看熟肉吧，她说的是“最近有传言说因为我和阿夸交往了，所以 ...</blockquote>
+草，龙魂没认真看同传吧，这段挺有意思的，我记得很清楚
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 779#       发表于 2020-4-28 18:14
+
+
+
+
+我把她们联动没效果的情况统称为:“不熟”
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 780#       发表于 2020-4-28 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咩姐能不能跳起来只看她够不够熟，最近这个信姬方块mea就跳的飞起，味儿也算是回到之前内味儿了，可惜信姬马上就要换号了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 781#       发表于 2020-4-28 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237471&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-28 18:10</a>
+414mea说的那段“不仲”麻烦去仔细看看熟肉吧，她说的是“最近有传言说因为我和阿夸交往了，所以 ...</blockquote>
+414那段确实没仔细看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但mea自己的联动都来了还要一边说怪话一边自称是为mea好这就让我无语了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 782#       发表于 2020-4-28 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237512&amp;ptid=1929631" target="_blank">离心 发表于 2020-4-28 18:14</a>
+我把她们联动没效果的情况统称为:“不熟”</blockquote>
+也有道理。。但是吧，夏哥作为第一个和mea联动的木口生，经常多人联动一起出场，双人是三次还是四次了（马车，拆弹，暮色）。还不熟也太神奇了。。。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 783#       发表于 2020-4-28 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏哥太阳角了，把你咩这个假装阳角实质阴角吓得不轻（
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 784#       发表于 2020-4-28 18:17
+
+
+
+
+也有可能是太熟了所以要掩盖一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 785#       发表于 2020-4-28 18:19
+
+
+
+<blockquote>zhicai618 发表于 2020-4-28 18:12
+其实我最好奇的是夏哥，为啥俩这么混沌的人联动就没啥效果。。都是受害角？但是mea和bfm就很正常啊。。 ...</blockquote>
+联动效果不好的只是mc吧，拆弹和马里奥赛车我感觉都可以，我觉得大概还是定位和熟悉程度的问题？hinako作为稳定的被迫害役还有和咩姐线下过的关系，比夏哥联动效果好正常，而且话题上感觉夏哥和咩姐聊不来，混沌也是有区别的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 786#       发表于 2020-4-28 18:19
+
+
+
+
+而且把联动没效果归结为不熟也太奇怪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+本来就是演戏，不能说演员关系不好拍的戏就一定不好看啊，只能说她们的表演不到位或者不合你口味
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 787#       发表于 2020-4-28 18:20
+
+
+
+
+跟夏哥联动一直感觉怪怪的，俩人都是那种可以在联动时活跃气氛的人，但她俩放一起就是有种对不上电波的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，官组人力有限做不出高质量pv可理解，但是为什么不做一些歌会剪辑直接发呢？其实按照绝大多数人的音乐水平都是听个响，调音真的很重要吗？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 788#       发表于 2020-4-28 18:20
+
+
+
+<blockquote>路人庚 发表于 2020-4-28 18:14
+咩姐能不能跳起来只看她够不够熟，最近这个信姬方块mea就跳的飞起，味儿也算是回到之前内味儿了，可 ...</blockquote>
+是，挺可惜的，而且我喜欢看咩姐玩游戏赢，一直输心里会不舒服
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 789#       发表于 2020-4-28 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237536&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-04-28 18:16:13</a>
+也有道理。。但是吧，夏哥作为第一个和mea联动的木口生，经常多人联动一起出场，双人是三次还是四次了（ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三四次不熟不是挺正常的，要看性格合不合得来
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 790#       发表于 2020-4-28 18:22
+
+
+
+<blockquote>zhicai618 发表于 2020-4-28 18:16
+也有道理。。但是吧，夏哥作为第一个和mea联动的木口生，经常多人联动一起出场，双人是三次还是四次了（ ...</blockquote>
+两人定位有点类似吧，导致她们掌握不了度（放不开）也不是没有笑点，比如装田中打电话的时候，mea那声去死就代表两人关系还行？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 791#       发表于 2020-4-28 18:23
+
+
+
+
+事实是最近歌回质量都不错，我记得有位神龙烤了两个歌回全熟，同好会和海盗又剪了一部分，官组以无熟肉可烤（最近撞车几次了吧）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 792#       发表于 2020-4-28 18:23
+
+
+
+
+团建这么久结果连个要播的迹象都没有，这就难受了，不会摸到黄兔子联动吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 793#       发表于 2020-4-28 18:24
+
+
+
+
+夏mea最逗的还是mea对着Omega发笑，结果“最混沌”的夏哥完全不懂abo梗）
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 794#       发表于 2020-4-28 18:24
+
+
+
+
+说真的，我觉得一开始就是阴谋。以前明明再怎么搞都不会私信mea的，众所周知的**炮也是从来没人和她说过。可是不知道从什么时候开始经常有人往她那里倒黑泥，粉丝这边感觉也有人在带节奏。本来meaanti都已经没剩多少了，最多也就几十个，但现在一看粉丝居然没anti多了。而且最近只要一提到mea就必会被带节奏，明明别的V就没事，但只要提到mea就算老帖也会有人超时空出警，发帖带张mea图都会被人骂
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 795#       发表于 2020-4-28 18:25
+
+
+
+
+那次mc我觉得单纯就是虽然决定了主题但根本没设计好流程。。。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 796#       发表于 2020-4-28 18:27
+
+
+
+<blockquote>makourisu 发表于 2020-4-28 18:20
+跟夏哥联动一直感觉怪怪的，俩人都是那种可以在联动时活跃气氛的人，但她俩放一起就是有种对不上电波的感觉 ...</blockquote>
+歌剪辑除了特定情况都很难吸引人点击观看吧。。。必须曲目好（名曲，热曲，非日文）或者时间合适。比如在合适时间发的別の人の彼女になったよ，还有500刀之歌裏表ラバーズ，著名“冲塔”歌曲灰色と青，抖音bgm好想你
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 797#       发表于 2020-4-28 18:28
+
+
+
+
+有一说一，经常逛各个贴吧会发现meaanti真的很多，基本上都把mea当作是V饭圈的罪恶之源，对其他V反而没太多看法。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 798#       发表于 2020-4-28 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237610&amp;ptid=1929631" target="_blank">离心 发表于 2020-4-28 18:22</a>
+两人定位有点类似吧，导致她们掌握不了度（放不开）也不是没有笑点，比如装田中打电话的时候，mea那声去 ...</blockquote>
+电话那次确实是有意思。。所以。。蛮奇怪的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 799#       发表于 2020-4-28 18:30
+
+
+
+
+现在饭圈是泛网络文化圈最常用的一顶帽子了，不可否认的是咩出圈的负面印象不少，自然更容易被引导攻击。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 800#       发表于 2020-4-28 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有anti但锤不死说明人气高，是好事儿，真的糊成一坨的根本没人搭理
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 801#       发表于 2020-4-28 18:31
+
+
+
+
+又吵架了。来来回回吵了这么多次架，官组照样联合贴贴组想自嗨就自嗨，反正用爱发电+你行你上的combo能把自己占个官组名头的一切行为合理化，单人短熟肉效率还是那个吊样，有什么用呢。
+
+你咩又不可能彻底撕破脸，要么等这群混二创圈子混魔怔的人清醒了，要么就等同好会影响力上去呗。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 802#       发表于 2020-4-28 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237631&amp;ptid=1929631" target="_blank">cgz 发表于 2020-04-28 18:24:45</a>
+说真的，我觉得一开始就是阴谋。以前明明再怎么搞都不会私信mea的，众所周知的**炮也是从来没人和她说过。 ...</blockquote>私信骚扰应该一直有的，别忘了有人都给她推特私信调图和奥利给的，应该只是国人的云p意识觉醒了所以能知道的内容多了，至于粉丝问题，俺寻思是天狗太收敛了，出事先是退让和自肃，没攻击性了，可能是真的被骂怕了吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 803#       发表于 2020-4-28 18:31
+
+
+
+<blockquote>cgz 发表于 2020-4-28 18:24
+说真的，我觉得一开始就是阴谋。以前明明再怎么搞都不会私信mea的，众所周知的**炮也是从来没人和她说过。 ...</blockquote>
+粉丝肯定比anti多，但anti跳，声音大，会报团，而且目标明确，很坚持。咩姐的路人黑也有不少。粉丝里的问题不能推，十常侍是通过她饭盒1w档的私信骚扰的，anti每月一次648就只是为了假装粉丝骚扰咩姐？这不大可能，更廉价的方式是骚扰邮箱
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 804#       发表于 2020-4-28 18:31
+
+
+
+
+和夏哥没什么效果主要是没梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你mea姐直播的内容一个是自己生活的点点滴滴，另一个就是梗啊
+可以参考前俩月提到的雨衣妈妈母乳梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被人剪辑了效果不错，mea提的也就多了，和夏哥似乎就没诞生这样的梗
+另一方面的话，要是跟佐藤希恰个烤肉，联动肯定就有东西聊了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 805#       发表于 2020-4-28 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237631&amp;ptid=1929631" target="_blank">cgz 发表于 2020-4-28 18:24</a>
+
+说真的，我觉得一开始就是阴谋。以前明明再怎么搞都不会私信mea的，众所周知的**炮也是从来没人和她说过。 ...</blockquote>
+舆情攻击呗，污名化。
+
+当初虹人516搞出的那个知乎文章就是摆明了舆情攻击了。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 806#       发表于 2020-4-28 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237623&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-4-28 18:23</a>
+团建这么久结果连个要播的迹象都没有，这就难受了，不会摸到黄兔子联动吧
+
+  -- 来自 能搜索的 Stage1官方  ...</blockquote>
+杂谈主不出门没素材，打游戏你们又不爱看。。咋办嘛，天天唱歌就车轱辘了。
+其实那次年代酒吧唱歌挺有意思的，希望再来一次
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 807#       发表于 2020-4-28 18:32
+
+
+
+
+反正mea在中日两边的v观众大环境里印象都不差
+
+
+
+
+
+
+
+-----
+
+####  小走  
+##### 808#       发表于 2020-4-28 18:33
+
+
+
+
+活到现在的贴贴粉头们现在心理状态到底是怎样的？我觉得早就疯了吧，靠着狂信维持幻想，比暗黑贴贴人还要魔怔个几倍。可怜再怎么塞私货也改变不了渐行渐远的事实，咩吐露心里话的第一人选也不是亏哥了，这批人就是定时**等哪天认清现实了爆炸。
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 809#       发表于 2020-4-28 18:33
+
+
+
+
+其实这跟西方喜欢抹黑我国是一个道理
+
+懂的都懂，但都不懂装懂
+
+黑不是目的，目的大家都懂，但说出来就太low了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 810#       发表于 2020-4-28 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237700&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 18:31</a>
+和夏哥没什么效果主要是没梗啊你mea姐直播的内容一个是自己生活的点点滴滴，另一个就是梗啊
+可以参 ...</blockquote>
+我挺喜欢这俩的，可惜电波对不上（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 811#       发表于 2020-4-28 18:34
+
+
+
+
+侧面反映了很多人不看v啊，略微地图炮一下，ghs的、snp的、直球要钱的。比比皆是。mea巫妖王的属性又不是一天两天了。太正常了，一边说mea的粉丝是饭圈，却不知自己厨的v也是饭圈了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 812#       发表于 2020-4-28 18:34
+
+
+
+
+你咩最出名的几个梗番剧里还是挺常见有人沾点就刷的，也不知道是算大环境印象好还是差了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 813#       发表于 2020-4-28 18:35
+
+
+
+<blockquote>小走 发表于 2020-4-28 18:33
+活到现在的贴贴粉头们现在心理状态到底是怎样的？我觉得早就疯了吧，靠着狂信维持幻想，比暗黑贴贴人还要魔 ...</blockquote>
+“不需要联动，只要关系好就行”我看有人是这么说的，应该可以反应很多人的心态吧
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 814#       发表于 2020-4-28 18:38
+
+
+
+
+下次的**预告就剩下v骚了？感觉这两天至少应该有一个歌会的。。没播的就来几个恐怖游戏嘛。。多有意思啊，虽然我不敢玩
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 815#       发表于 2020-4-28 18:38
+
+
+
+
+有时也是，出了事全在那相信她默默守望，力所能及的事应该做一做的，516后的应援和收益化联络客服都是值得的，就这还有人说，反正都被骂饭圈了，那就有点饭圈的战斗力呗，搞得跟过街老鼠一样
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 816#       发表于 2020-4-28 18:39
+
+
+
+
+414那场摆明了就是说别拿有没有联动来车她俩的关系，想方设法论证渐行渐远的和魔怔了的贴贴人谁还更高贵了不成<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+每次都车这个话题除了强化各方的偏见外没什么意义，聊点别的吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 817#       发表于 2020-4-28 18:39
+
+
+
+
+yysy，我看无间道有个“咩啊”的发音都好多人刷她，都不知道应不应该开心<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还有pcr最新一集，那个羊驼说的是“nimanima”，然后有人刷“money～money”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 818#       发表于 2020-4-28 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237778&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-4-28 18:39</a>
+yysy，我看无间道有个“咩啊”的发音都好多人刷她，都不知道应不应该开心
+
+还有pcr最新一集，那个羊 ...</blockquote>
+挺好玩的。。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 819#       发表于 2020-4-28 18:40
+
+
+
+<blockquote>zhicai618 发表于 2020-4-28 18:38
+下次的**预告就剩下v骚了？感觉这两天至少应该有一个歌会的。。没播的就来几个恐怖游戏嘛。。多有意思啊， ...</blockquote>
+五月四日还有耐久b限歌会，反正最近就等突击了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 820#       发表于 2020-4-28 18:41
+
+
+
+
+目が覚めたら，新しい仲間を得ました！！！！！
+あああああこここここれでまままままさかかかかかぐら—————
+       ——モニカ？wwwwwww 
+<img src="https://p.sda1.dev/0/de88656cd7531694c458d52228d2ef33/IMG_BDEE7AFAD8B396D744A7BD2603B8B805.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|ん?|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 821#       发表于 2020-4-28 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237778&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-4-28 18:39</a>
+yysy，我看无间道有个“咩啊”的发音都好多人刷她，都不知道应不应该开心
+
+还有pcr最新一集，那个羊 ...</blockquote>
+又有小号引战呢，快去
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 822#       发表于 2020-4-28 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237718&amp;ptid=1929631" target="_blank">小走 发表于 2020-4-28 18:33</a>
+活到现在的贴贴粉头们现在心理状态到底是怎样的？我觉得早就疯了吧，靠着狂信维持幻想，比暗黑贴贴人还要魔 ...</blockquote>
+<img src="https://p.sda1.dev/0/dbc6d40cc46976aa3724c324c441a051/IMG_E66BCACF0DB425C8582A8DF1BD938021.jpeg" referrerpolicy="no-referrer">
+
+只许咩夸放火，不准皆切点灯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 823#       发表于 2020-4-28 18:44
+
+
+
+
+睡一个下午起来看到多了三百楼，什么嘛，m楼人还蛮多的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 824#       发表于 2020-4-28 18:45
+
+
+
+
+目前来看你麻还是一条活鱼<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+批判贴贴人去黑暗贴贴楼啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 825#       发表于 2020-4-28 18:45
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 18:41
+目が覚めたら，新しい仲間を得ました！！！！！
+
+あああああこここここれでまままままさかかかかかぐら—— ...</blockquote>
+看到后犹豫要不要注明描图转meart的tag里，不过这个作者这次特意没加，也不越俎代庖了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 826#       发表于 2020-4-28 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237825&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-4-28 18:44</a>
+只许咩夸放火，不准皆切点灯
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2. ...</blockquote>
+你看这为了车咩夸连皆切都能搬出来<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 827#       发表于 2020-4-28 18:46
+
+
+
+<blockquote>Sanguine 发表于 2020-4-28 18:44
+睡一个下午起来看到多了三百楼，什么嘛，m楼人还蛮多的</blockquote>
+我带的车轱辘，抱歉，每次都忍不住
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 828#       发表于 2020-4-28 18:47
+
+
+
+
+以前团建这么多页mea都会播的，今晚会遵守这个定律吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 829#       发表于 2020-4-28 18:48
+
+
+
+
+什么叫打游戏不爱看（）
+
+
+只要玩点新游戏我相信大家还是爱看的（哪怕菜点都没关系）
+
+
+但游戏打的真的不多
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 830#       发表于 2020-4-28 18:48
+
+
+
+
+贴贴粉头心理哪有什么疯狂的，对于部分百合或者耽美这种圈子里的二次创作者来说，一切行为都能被拆解成预设性格模板下的cp滤镜解读，你以为她们真的在意你咩的想法和行为吗？
+
+对于这个群体来说你咩和其他动画里的纸片人没什么区别，都是为了混圈子而服务的工具罢了，只要火的其他作品二创梗都可以随便改改带入就是一篇文或者一张图。
+
+你咩不换营业对象或者不撕破脸皮这个群体基本是无敌的。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 831#       发表于 2020-4-28 18:48
+
+
+
+<blockquote>Rem-清曲 发表于 2020-4-28 18:47
+以前团建这么多页mea都会播的，今晚会遵守这个定律吗</blockquote>
+去年nga就有这种说法。。。现在咩姐直播频率上来了，吵完播也很正常
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 832#       发表于 2020-4-28 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237872&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-4-28 18:48</a>
+什么叫打游戏不爱看（）
+
+
+只要玩点新游戏我相信大家还是爱看的（哪怕菜点都没关系）</blockquote>
+公主链接抽卡是真的有意思，尤其是跳犬山有意思加倍。。
+LOL也还好吧。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 833#       发表于 2020-4-28 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237879&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 18:48</a>
+
+去年nga就有这种说法。。。现在咩姐直播频率上来了，吵完播也很正常</blockquote>
+这种程度叫吵<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+太小看以前的m楼了8
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 834#       发表于 2020-4-28 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好累
+
+那条删了，我得躺了，有弱智再说吧。对了，mk2这种比较出名的我寻思也不用动了。
+
+这个视频已经这样了，希望下次能及时掐灭火星吧。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 835#       发表于 2020-4-28 18:51
+
+
+
+
+她私下也玩了一些游戏，要播也不是不能播，但她可能对播游戏该有怎么样的直播效果要求太高了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 836#       发表于 2020-4-28 18:51
+
+
+
+
+比起这个为什么不去多听几遍Pretender呢，这么好的歌播放却不高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 837#       发表于 2020-4-28 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237653&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 18:27</a>
+
+歌剪辑除了特定情况都很难吸引人点击观看吧。。。必须曲目好（名曲，热曲，非日文）或者时间合适。比如在 ...</blockquote>
+是的，我同意作品需要有一定的吸引人的点才能让人有动力点击去看。
+
+我的想法是这样的，可能是我已经看mea一年了所以没有那么新鲜感，再加上我会尽量追直播翻nga楼同传看海盗切片，以至于我觉得官组出的切片类视频越来越“没意思”了，一些远古腊肉的观感并不怎么好。那么投一些剪辑的歌回单曲不也挺好吗，如果从播放量数字而言，确实比不上一些标题恰当内容精彩的剪辑熟肉，但这种题材的视频太少了。
+
+另外，按照我听歌的理解，歌曲的剪辑除了合适的标题封面，质量的好坏比普通熟肉剪辑更重要，因为好的歌可以一开头就可以让人决定听下去，再加上时间短，观众不一定不愿意点击去听。这在剪辑和翻译难度上应该也相对较小，既然高质量剪辑熟肉越来越难发，那么不能试试歌回剪辑吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">从功利角度上讲，听歌曲的关注转化率应该不错吧，我是从烦恼相谈系列开始看起，但是听了Hitchcock点的关注
+
+莫名其妙打了一大堆文字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 838#       发表于 2020-4-28 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237872&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-4-28 18:48</a>
+什么叫打游戏不爱看（）
+
+
+只要玩点新游戏我相信大家还是爱看的（哪怕菜点都没关系）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近一回打游戏效果还不错，我感觉她之前对自己打游戏直播的想法挺迷茫的，不知道最近的游戏直播能不能让她找到新的路
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 839#       发表于 2020-4-28 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237870&amp;ptid=1929631" target="_blank">Rem-清曲 发表于 2020-4-28 18:47</a>
+以前团建这么多页mea都会播的，今晚会遵守这个定律吗</blockquote>
+黄金周怎么可能播<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">估计又要去大阪玩一周了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚|-1|这么喜欢乌冬滚去他推特下面叫啊.|
+| h1001010|-1|啊这|
+| Cla0221|-1|sb|
+| weiweiEX|-1|还在车啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 840#       发表于 2020-4-28 18:52
+
+
+
+
+抽卡要钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然总体收益应该还是正的吧
+
+
+但也不能搞很多次
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 841#       发表于 2020-4-28 18:53
+
+
+
+<blockquote>Rem-清曲 发表于 2020-4-28 18:50
+这种程度叫吵
+
+太小看以前的m楼了8</blockquote>
+毕竟现在情况大家也明白。。。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 842#       发表于 2020-4-28 18:54
+
+
+
+
+说真的apex感觉她会播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 843#       发表于 2020-4-28 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237918&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 18:51</a>
+最近一回打游戏效果还不错，我感觉她之前对自己打游戏直播的想法挺迷茫的，不知道最近的游戏直播 ...</blockquote>
+我喜欢看mea抽卡的，但是这成本。。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 844#       发表于 2020-4-28 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">现在v圈很多人都是来混圈子的，这也是为什么小鬼四处乱窜，自嗨狂热的原因，他们享受的是那种其乐融融氛围，有一种特别的归属感
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 845#       发表于 2020-4-28 18:56
+
+
+
+ 本帖最后由 Rem-清曲 于 2020-4-28 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237920&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-4-28 18:52</a>
+
+黄金周怎么可能播估计又要去大阪玩一周了</blockquote>
+mea被困在东京了，应该是阿夸去大阪玩了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 846#       发表于 2020-4-28 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">一下午怎么多了这么多楼  结果稍微翻了一下都是废话
+我的感觉已经从哀其不幸——为什么无关视频还有人无脑刷贴贴，变成了怒其不争——为什么单人高质量pv这么少，多几个单推咩咩的调音、pv师，定期可以联合投几个稿，偶尔看到个贴贴pv不也无所谓。
+所以，有能man呢<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 847#       发表于 2020-4-28 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237945&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-28 18:54</a>
+说真的apex感觉她会播</blockquote>
+mea的fps还是可以的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 848#       发表于 2020-4-28 18:57
+
+
+
+
+主要还是她自己认为的直播就得不停说话很蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 849#       发表于 2020-4-28 18:58
+
+
+
+
+挺好，大伙都挺闲的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 850#       发表于 2020-4-28 18:58
+
+
+
+
+apex前几天也下回来了
+所以能不能做个梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我再去睡了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 851#       发表于 2020-4-28 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的下回来了吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 852#       发表于 2020-4-28 19:02
+
+
+
+<blockquote>makourisu 发表于 2020-4-28 18:51
+是的，我同意作品需要有一定的吸引人的点才能让人有动力点击去看。
+
+我的想法是这样的，可能是我已经看mea ...</blockquote>
+是的，可以尝试，也许可以选咩姐唱的好的歌一周投一次，用以前的fanart做封面
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 853#       发表于 2020-4-28 19:03
+
+
+
+
+说实话她要真的坚持有话说才上播，没话题不播的随性路子倒也好（）
+
+
+但现在很明显有一定的义务感（不管你是说出于收入考虑还是本人的责任感）
+
+
+必须得定期维持上播，有的时候效果不好就比较尴尬
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 854#       发表于 2020-4-28 19:03
+
+
+
+
+我挺喜欢你咩打游戏就认真打的态度的，不会故意卖蠢。她去整点文字游戏或者rpg玩做吐槽役应该挺有意思的。不过她自己不爱播也没什么办法。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 855#       发表于 2020-4-28 19:08
+
+
+
+
+确实她吐槽pcr挺可以的，但感觉她不想做这一类<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+算了她有的播就好了，不然又得车轱辘了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 856#       发表于 2020-4-28 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以蹭一发最新最in的sc啊，从天皇到亏皇个个都在抄作业
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 857#       发表于 2020-4-28 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237920&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-4-28 18:52</a>
+黄金周怎么可能播估计又要去大阪玩一周了</blockquote>
+我觉得你还是担心下夸皇是不是拉着大福和她男朋友双飞了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 858#       发表于 2020-4-28 19:13
+
+
+
+<blockquote>暴走的包子 发表于 2020-4-28 19:11
+可以蹭一发最新最in的sc啊，从天皇到亏皇个个都在抄作业
+
+
+—— 來自 samsung SM-N9750, Android 10 ...</blockquote>
+sc是啥游戏，不会是星际争霸吧？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 859#       发表于 2020-4-28 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽卡游戏最重要的节目是舔卡啊，但她对抽卡目标和粉毛幼女以外的角色真的是连装都懒得装
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 860#       发表于 2020-4-28 19:14
+
+
+
+
+她在这边播bcr还好，那边pcr不抽卡同接就掉的厉害，还没人打sc<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> 不太行
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 861#       发表于 2020-4-28 19:16
+
+
+
+
+看她吐槽还挺有意思的，虽然不知道游戏粉丝会怎么想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，跟犬山联动骑在脸上嘲讽真是草了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 862#       发表于 2020-4-28 19:16
+
+
+
+ 本帖最后由 暴走的包子 于 2020-4-28 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47238129&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 19:13</a>
+sc是啥游戏，不会是星际争霸吧？</blockquote>
+偶像大师闪耀色彩，shiny color
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 863#       发表于 2020-4-28 19:18
+
+
+
+
+播手游打游戏是没啥好看的啊，手游游戏性有几个能跟王者荣耀打的，所以我比较好奇她会不会觉醒了玩玩其他单机之类的
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 864#       发表于 2020-4-28 19:20
+
+
+
+
+那该at天美给这人找个王者荣耀的工商了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟是简化版lol，没准她真能玩上手也说不定
+
+最重要的是，这游戏里她终于不会漏兵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 865#       发表于 2020-4-28 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47238206&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 19:20</a>
+那该at天美给这人找个王者荣耀的工商了毕竟是简化版lol，没准她真能玩上手也说不定
+
+最重要的是，这 ...</blockquote>
+好主意，就告诉她这是可以躺在床上玩的lol就好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 866#       发表于 2020-4-28 19:26
+
+
+
+<blockquote>uuuuu7 发表于 2020-4-28 19:20
+那该at天美给这人找个王者荣耀的工商了毕竟是简化版lol，没准她真能玩上手也说不定
+
+最重要的是，这 ...</blockquote>
+那还不如第五人格呢。。。她自己本来就玩，在日本也有热度
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 867#       发表于 2020-4-28 19:30
+
+
+
+
+想了想要是来个王者荣耀b限就草了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 868#       发表于 2020-4-28 19:33
+
+
+
+
+会怡饭了是好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看来这评论区一时半会好不了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 869#       发表于 2020-4-28 19:35
+
+
+
+
+这都能扯到aqua我是没想到的，暗黑crew可不可以爪巴
+
+没有一点关系，天天跑mea这边aqua.. aqua的叫，这么喜欢aqua滚去她那边叫啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 870#       发表于 2020-4-28 19:42
+
+
+
+
+别玩贴膜游戏，求你了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 871#       发表于 2020-4-28 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克论选手都相信现在你麻的小肥手指已经不能玩王者了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 872#       发表于 2020-4-28 19:58
+
+
+
+<blockquote>JY要塞 发表于 2020-4-28 19:48
+坦克论选手都相信现在你麻的小肥手指已经不能玩王者了</blockquote>
+电竞选手也有不少胖的。。。怎么可能肥到玩不了手游的地步
+
+
+
+
+
+                    
