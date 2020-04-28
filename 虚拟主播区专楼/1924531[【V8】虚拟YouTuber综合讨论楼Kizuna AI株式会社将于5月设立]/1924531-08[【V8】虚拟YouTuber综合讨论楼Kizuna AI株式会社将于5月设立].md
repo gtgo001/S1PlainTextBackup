@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 22:08** 
+> ## **本文件最后更新于2020-04-29 00:06** 
 
 
 
@@ -1597,9 +1597,9 @@ syl，给楼里不了解的哥大概介绍一下，武藏也是日本最著名�
 都是白上的错把mio带坏了，大家不要对mio有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 来点幼狼
-<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_Qxxjm" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_UYyXG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_eBteP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_q53lP" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_VWDNI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_uzony" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4322,7 +4322,7 @@ repo部分：阿星这个“真死宅加入闲聊为主的现充游戏社团感�
 
 
 来点葵来点葵
-<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_ZbU48" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_EQj6e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/27/224839kqw650cs57w9ahd5.jpg" referrerpolicy="no-referrer">
 
@@ -5423,7 +5423,7 @@ RTA的cut我都看了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_GI0i2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_AdH68" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，看了一眼关注，怎么还有几个在lol的，葛皇要复出了？
@@ -19871,7 +19871,7 @@ kmm有男朋友有什么奇怪的，人总需要性生活的
 <img src="https://img.saraba1st.com/forum/202004/28/181222a17k0f0uwqom8w78.jpg" referrerpolicy="no-referrer">
 
 
-<strong>marin.jpg</strong> (183.94 KB, 下载次数: 2)
+<strong>marin.jpg</strong> (183.94 KB, 下载次数: 4)
 
 下载附件
 
@@ -19934,7 +19934,7 @@ RAB经常用管人的翻唱当bgm，又不是第一次了...
 <img src="https://img.saraba1st.com/forum/202004/28/181901haz4yxqbb3044ywk.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Screenshot_20200428_181441_com.google.android.youtube.jpg</strong> (881.15 KB, 下载次数: 3)
+<strong>Screenshot_20200428_181441_com.google.android.youtube.jpg</strong> (881.15 KB, 下载次数: 4)
 
 下载附件
 
@@ -22333,6 +22333,25 @@ bug的话可以取消重新开直播间多试几次 就像今天下午的阿心�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 57042711| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -22859,9 +22878,12 @@ syl，发现阿b彩虹官号难波场底下都在求福冈场，彩虹女人什�
 
 
 
+ 本帖最后由 贝伦二世 于 2020-4-28 22:18 编辑 
 
 doom
 不是那个猛男游戏么
+
+开的坑真nb
 
 
 
@@ -22902,4 +22924,2156 @@ syl
 
 
 
-          
+
+
+-----
+
+####  面具13  
+##### 11686#       发表于 2020-4-28 22:09
+
+
+
+
+面包狗404直播间现在80%的评论都是英文，不安です
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 11687#       发表于 2020-4-28 22:09
+
+
+
+
+peko声音很多人都觉得是扣分项啊，被声音直接劝退的不少的；要说多掐倒也没有，本身就挺尖的
+还是坚持2P色理论
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11688#       发表于 2020-4-28 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">兔皇已经舍弃110时代的3岁rp了，这也是一种上位替代
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11689#       发表于 2020-4-28 22:09
+
+
+
+
+兔子要平时吐槽的生艹音和偶尔的gachi音结合听，配上笑声达到最佳听觉体验<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 11690#       发表于 2020-4-28 22:10
+
+
+
+
+我感觉大亏还好点吧，兔皇真的有点像国内那些萝莉音主播，竟然不是掐的么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 11691#       发表于 2020-4-28 22:11
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-4-28 22:15 编辑 
+<blockquote>贝伦二世 发表于 2020-4-28 22:05
+doom
+
+不是那个猛男游戏么</blockquote>
+总之不是最新的那个猛男游戏
+
+
+
+
+
+
+
+-----
+
+####  千祀蛮巧  
+##### 11692#       发表于 2020-4-28 22:11
+
+
+
+<blockquote>opersuper 发表于 2020-4-28 21:54
+颤抖的带上梁木眼镜，白发猫耳是不是有诅咒
+
+怎么海苔坡拿皮蹭狐皇热度的那个深雪比狐皇还会yygq ...</blockquote>
+哪啊，刚才那“欺负”“妹妹”“玩”
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11693#       发表于 2020-4-28 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239792&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-28 21:58</a>
+
+第一部不算恶心，就是单纯的烂，烂到我觉得给VO团队加个特效师都能拍出来
+
+syl，发现阿b彩虹官号难波 ...</blockquote>
+恶心剧透反白：我一开始听名字就猜出怎么回事了，观影期间一直想着这些人最后都要<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">就反胃，无法平静地看下去。
+
+VO虽然粗糙但是不恶趣味啊，僵尸战就是清爽的恐怖，完全不恶心，最后还有阿花光线，好得很啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11694#       发表于 2020-4-28 22:14
+
+
+
+
+一弦这个弹唱回有300多同接，果然不愧是LL吗......顶不住了要睡了，明日再见
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 11695#       发表于 2020-4-28 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239761&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-4-28 21:54</a>
+颤抖的带上梁木眼镜，白发猫耳是不是有诅咒
+
+怎么海苔坡拿皮蹭狐皇热度的那个深雪比狐皇还会yygq ...</blockquote>
+那是狗耳（严肃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，反正这白雪确实实力强，居然还是素人就更吓人了（至少海苔男自己这么说）
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 11696#       发表于 2020-4-28 22:16
+
+
+
+
+我一看怎么暴走P也八美肉了，nico老害浓度再一次提升
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 11697#       发表于 2020-4-28 22:17
+
+
+
+
+N64版doom，接触的人比较少，时间线跟在老doom后面
+
+最近随永恒移植了一遍
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11698#       发表于 2020-4-28 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239761&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-4-28 21:54</a>
+
+颤抖的带上梁木眼镜，白发猫耳是不是有诅咒
+
+怎么海苔坡拿皮蹭狐皇热度的那个深雪比狐皇还会yygq ...</blockquote>
+深白，深白。
+
+天然腹黑不好吗hhhh<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再说小野这个憨憨的妈宝rp不也挺配合的吗
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 11699#       发表于 2020-4-28 22:19
+
+
+
+
+把peko这种自带“萌音”看成是先天缺陷，她努力顶着这么尖锐的声音打出一片天，看起来就挺励志了，毕竟她主打的就不是卖萌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+另外她还有慢性鼻炎
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11700#       发表于 2020-4-28 22:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不止一片天，现在是整片天了。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 11701#       发表于 2020-4-28 22:22
+
+
+
+
+二二姐对兔皇的的森林太茂盛了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11702#       发表于 2020-4-28 22:26
+
+
+
+ 本帖最后由 opersuper 于 2020-4-28 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239938&amp;ptid=1924531" target="_blank">千祀蛮巧 发表于 2020-4-28 22:11</a>
+
+哪啊，刚才那“欺负”“妹妹”“玩”</blockquote>
+随便看，她只要联动除了海苔和谁都是yygq，阴角听出心理阴影<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 11703#       发表于 2020-4-28 22:27
+
+
+
+
+其实みしろ是狗耳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11704#       发表于 2020-4-28 22:28
+
+
+
+
+等等，原来你们都觉得兔子的声音不算好么，我一直觉得还挺好听的，玩游戏吐槽时候很适合，包括笑声也是。还有特地慢速轻声的软兔子音我也很喜欢，带点鼻音的部分也很萌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+还有打人时候的欧拉，犯傻时候的诶，吃瘪时候的呐都好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 11705#       发表于 2020-4-28 22:30
+
+
+
+
+兔皇确实可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 声音应该算个人喜好问题
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11706#       发表于 2020-4-28 22:31
+
+
+
+
+面包狗30w了，这SC真是各国都有，和船皇差别挺大的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11707#       发表于 2020-4-28 22:31
+
+
+
+
+设定知道的，两狗一猫
+
+这种耳朵就是个设定有什么区别
+
+
+
+
+
+
+
+-----
+
+####  千祀蛮巧  
+##### 11708#       发表于 2020-4-28 22:31
+
+
+
+<blockquote>opersuper 发表于 2020-4-28 22:26
+随便看，她只要联动除了海苔和谁都是yygq，阴角听出心理阴影</blockquote>
+白雪太阳了，加上天然Srp，反正我听着还蛮自然
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 11709#       发表于 2020-4-28 22:32
+
+
+
+
+一把就吃鸡结束挑战的大天使是vtb之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+下次换点有难度的挑战吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11710#       发表于 2020-4-28 22:32
+
+
+
+
+阿夸apex第一把吃鸡，企画倒れの神<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 11711#       发表于 2020-4-28 22:35
+
+
+
+
+下次带兔皇吃鸡吧，有这个机会么
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11712#       发表于 2020-4-28 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240156&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-4-28 22:35</a>
+
+下次带兔皇吃鸡吧，有这个机会么</blockquote>
+你有问题
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 11713#       发表于 2020-4-28 22:36
+
+
+
+
+伊东门前弄大斧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11714#       发表于 2020-4-28 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">大亏说想要solo上钻，但是果然还是组队上钻轻松
+
+有点生梁木了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 11715#       发表于 2020-4-28 22:37
+
+
+
+
+葛葉/Kuzuha
+
+【 新衣装 】かっけえ布ラジ男【 #Zatsu 】
+
+2020-04-28(火) 21:32:02 / 1h38m19s
+
+視聴者:約25320人 累計:52392人
+
+チャット:54646件 / 6316人
+
+スパチャ:1271件 / 約￥2,606,254
+
+メンバ:71件
+
+詳細&gt;&gt;https://2434analytics.com/chart/video/_lT8oipmQ0I.html
+
+
+こっわ
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11716#       发表于 2020-4-28 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊あくぺこ？！有这个我可就不梁木了。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 11717#       发表于 2020-4-28 22:38
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-28 22:39 编辑 
+
+太尖的声音和萌音我都听不惯的，池面女和中性男我听着最舒服，所以现在看的最多的就是安洁，阿胜，ましろ<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+德比的声音不知道为什么挺喜欢，单纯的觉得可爱。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 11718#       发表于 2020-4-28 22:39
+
+
+
+
+你们天天种狐皇yygq的梁木，我现在觉得yygq的狐hso<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11719#       发表于 2020-4-28 22:40
+
+
+
+ 本帖最后由 贴杂司马 于 2020-4-28 22:45 编辑 
+
+铁血crew对兔皇那股酸劲已经冒出来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">说到底大亏的确是拾人牙慧，玩的都是人家玩剩下的，打游戏的品味有兔皇的一半吗？
+
+除了声音以外，比起来真的一无是处，也无怪sc和同接都流失了。你说夸皇玩apex，但是我觉得他连泰坦陨落都没了解过。玩只狼黑魂她能对世界观有所认识吗？所谓的gamer称呼只能算是crew们吹法螺吹出来的人设
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fromsaitama|-1|mk2南波万！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11720#       发表于 2020-4-28 22:42
+
+
+
+
+只要兔皇跟大亏组cp就可以吃鸡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11721#       发表于 2020-4-28 22:43
+
+
+
+
+erer老姐居然想看二人联动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+葛皇已经够努力了。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11722#       发表于 2020-4-28 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔子那有点闷+沙的声音和gongon挺像，这种声音该称慢性鼻炎声么
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 11723#       发表于 2020-4-28 22:46
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-4-28 22:49 编辑 
+
+狗狗holo初期也打pubg，也可以贴 
+
+干脆组一个holofps小分部，天天打qiang爽歪歪
+
+csgo3人可以守一个大区，压力不大还可以派个人协防小区，享受和路人互动的快感
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 11724#       发表于 2020-4-28 22:49
+
+
+
+
+葛叶新衣服要是能和叶新衣服一样的话估计能多收点钱
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11725#       发表于 2020-4-28 22:51
+
+
+
+
+阿夸三连胜还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 11726#       发表于 2020-4-28 22:52
+
+
+
+
+大天使再挑战下去就要上钻石了
+
+夸宝别杀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11727#       发表于 2020-4-28 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这女人今晚运气太好了吧，强强队友带你飞。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 11728#       发表于 2020-4-28 22:55
+
+
+
+ 本帖最后由 Mika-S 于 2020-4-28 22:58 编辑 
+
+这手感也是火热<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+哈哈哈说完终于被奶死了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11729#       发表于 2020-4-28 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">只有我在心疼西西吗？她疯狂点赞sakuyui，和fa的样子，，像是优等生暴露了和i小混混交往的事实，结果疯狂学习掩盖一切的样子
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11730#       发表于 2020-4-28 22:59
+
+
+
+
+没血包被打死了。惨 阿夸 惨
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11731#       发表于 2020-4-28 22:59
+
+
+
+
+都脱单了就别心疼人家了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11732#       发表于 2020-4-28 23:00
+
+
+
+
+2000又发些怪文书了，说起来今天的葵皇B限看了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11733#       发表于 2020-4-28 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">草这么快就没了。没有夸能量了。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 11734#       发表于 2020-4-28 23:03
+
+
+
+
+你们怎么天天催2000看葵皇，你们是葵皇深柜还是2000深柜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11735#       发表于 2020-4-28 23:05
+
+
+
+
+fromsaitama兄怎么就知道偷偷摸摸的扣鹅啊，说明你看的到，还很愤怒，却连回嘴的勇气都没有，这就是社恐吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11736#       发表于 2020-4-28 23:06
+
+
+
+
+草草草，海苔男这个会限直播还真的有一个踩，大亏anti拉了
+
+
+不是我点的
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11737#       发表于 2020-4-28 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240467&amp;ptid=1924531" target="_blank">贴杂司马 发表于 2020-4-28 23:05</a>
+
+fromsaitama兄怎么就知道偷偷摸摸的扣鹅啊，说明你看的到，还很愤怒，却连回嘴的勇气都没有，这就是社恐吗 ...</blockquote>
+看到湾湾你会跟他争一个中国？
+
+我只会和他说呆湾南波万
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11738#       发表于 2020-4-28 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240481&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-28 23:06</a>
+
+草草草，海苔男这个会限直播还真的有一个踩，大亏anti拉了
+
+
+不是我点的</blockquote>
+大亏上次会限有2个踩，还是大亏anti强。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 11739#       发表于 2020-4-28 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240481&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-28 23:06</a>
+
+草草草，海苔男这个会限直播还真的有一个踩，大亏anti拉了
+
+
+不是我点的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏哥这有两个 赢了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11740#       发表于 2020-4-28 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 葵皇最后马上通关时候遭遇滑铁卢，象征着ichikara马上起飞结果坠入谷底，
+
+
+一切溃灭之后，liver大难临头各自飞，失意的田角在街边摊车喝闷酒，
+
+
+不知什么时候，他的身后聚集了最初的一群人，有《》、《》、《》。结果田角头也没回
+
+
+“休息一年，然后回来”众人正欲追问，田角摆了摆手，
+
+
+即便是被木口黑云遮蔽的天空，星星却从未像这般明亮过。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 离魂仙| + 1|V综最后的虹骑士（|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11741#       发表于 2020-4-28 23:09
+
+
+
+
+草，连会限踩数都要拿来斗虫了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11742#       发表于 2020-4-28 23:09
+
+
+
+
+夸：已经不用再担心我了，我已经好了
+
+
+以夸的智商看来完全理解不了昨天mio的话中话
+
+这算好事还是坏事 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11743#       发表于 2020-4-28 23:09
+
+
+
+
+被狗子doom转晕了草
+
+syl 兔皇的声音老外形容是annoyingly cute 我反正听得惯
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11744#       发表于 2020-4-28 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240481&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-28 23:06</a>
+
+草草草，海苔男这个会限直播还真的有一个踩，大亏anti拉了
+
+
+不是我点的</blockquote>
+我上次说的是夸初次真会限没踩，后来也有了，最多的一次还有10个。
+
+不过踩这种东西也可能是反对会限内容踩的，不一定是anti
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11745#       发表于 2020-4-28 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240483&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:07</a>
+
+看到湾湾你会跟他争一个中国？
+
+我只会和他说呆湾南波万</blockquote>
+湾湾也有支持HT的啊，你就在这默认台湾人民都不支持一个中国了啊？你是要实质分裂吗？什么v什么粉?
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fromsaitama|-1|mk南波万就完事了嗷！气的本crew满地打滚！.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11746#       发表于 2020-4-28 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240514&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-28 23:09</a>
+
+夸：已经不用再担心我了，我已经好了
+
+
+以夸的智商看来完全理解不了昨天mio的话中话</blockquote>
+阿这，也许智商低，一根筋也是好事吧。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 11747#       发表于 2020-4-28 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">MK2是被外面那张大字报刺激到了？
+
+要证明自己才是泥潭最恶心的人
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11748#       发表于 2020-4-28 23:13
+
+
+
+
+那mk2必输好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11749#       发表于 2020-4-28 23:14
+
+
+
+
+你们别真把三才当幕后黑手啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+狐皇离猫宫还差一万，下个星期就能斩杀了吧。
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11750#       发表于 2020-4-28 23:17
+
+
+
+ 本帖最后由 贴杂司马 于 2020-4-28 23:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240554&amp;ptid=1924531" target="_blank">屑屑代沟尼亚 发表于 2020-4-28 23:12</a>
+
+MK2是被外面那张大字报刺激到了？
+
+要证明自己才是泥潭最恶心的人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪敢招惹别人啊。
+
+首先说夸皇确实没给她当初的言论道歉，
+
+其次crew是在这地域歧视
+
+第三他试图把我打成对岸网特其心可诛。
+
+要论恶心还是fromsaitama比较恶心吧
+
+作为一般路过型中间派马主义者感觉自己受到了冒犯
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fromsaitama|-1|-1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 11751#       发表于 2020-4-28 23:20
+
+
+
+
+说出来有点失礼。我还蛮想看看西西下次直播能有多少踩的
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11752#       发表于 2020-4-28 23:20
+
+
+
+
+建议mk给我起个简称啊，想起你发一次言打一次这么长的一串字母本crew就心疼的不行<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11753#       发表于 2020-4-28 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240566&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-4-28 23:13</a>
+
+那mk2必输好吧</blockquote>
+2000最强！2000最强！
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11754#       发表于 2020-4-28 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240636&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:20</a>
+
+建议mk给我起个简称啊，想起你发一次言打一次这么长的一串字母本crew就心疼的不行 ...</blockquote>
+有f有m，就叫飞马好了，还是四爷手底下的香烟牌子呢，根正苗红，你看看我多大度。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11755#       发表于 2020-4-28 23:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/28/232224fa4r5rhy47phu7xm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200428232053.png</strong> (307.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-28 23:22 上传
+
+
+
+
+
+
+
+如何评价葵皇看到这个国旗迟疑了一下，才说出名字
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 坚果收藏家| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 11756#       发表于 2020-4-28 23:23
+
+
+
+
+粉丝打架随意，不要爱讨论炸楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，翻页bug很麻烦的
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11757#       发表于 2020-4-28 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240657&amp;ptid=1924531" target="_blank">贴杂司马 发表于 2020-4-28 23:22</a>
+
+有f有m，就叫飞马好了，还是四爷手底下的香烟牌子呢，根正苗红，你看看我多大度。 ...</blockquote>
+你这不疼不痒的，文采不太行
+
+本来想再扣你一分的想了想为了节约
+
+还是明天扣吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000|-2|能不能尊敬一下我想了很久的黑屁段子.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11758#       发表于 2020-4-28 23:25
+
+
+
+
+葵宝该不会不是韩国人吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11759#       发表于 2020-4-28 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240684&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-28 23:25</a>
+
+葵宝该不会不是韩国人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你可以去看下原视频，明显尬住了，装作不知道，然后赶紧选了日语，真萌啊，，suki
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 11760#       发表于 2020-4-28 23:26
+
+
+
+
+葵宝说不定是真的不清楚，毕竟笨笨的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11761#       发表于 2020-4-28 23:26
+
+
+
+
+还是2000这两分扣的我比较上头<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+学学人家啊弟弟
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000| + 2|出去打架行么？影响我黑屁了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11762#       发表于 2020-4-28 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240678&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:24</a>
+
+你这不疼不痒的，文采不太行
+
+本来想再扣你一分的想了想为了节约
+
+还是明天扣吧 ...</blockquote>
+这就不行了？这就不行了？这就不行了？这就不行了？这就不行了？
+
+能不能来点让我有危机感的东西啊，号我自己都砍了一个了，还怕个蛐蛐扣鹅吗？
+
+crew给夸anti扣的鹅这就是军功章啊
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11763#       发表于 2020-4-28 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240704&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:26</a>
+
+还是2000这两分扣的我比较上头
+
+学学人家啊弟弟</blockquote>
+是吗，盯着个鹅看挺小家子气的，我偏偏不给扣鹅，不聊了我还可以私信轰炸呢
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 11764#       发表于 2020-4-28 23:32
+
+
+
+
+天狗crew打架，2000欢乐梁木种植，这才是v版该有的样子嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11765#       发表于 2020-4-28 23:32
+
+
+
+
+又扣不动鹅又被你气的精神崩坏可不是不行了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11766#       发表于 2020-4-28 23:33
+
+
+
+
+两边都加油啊 马飞起来
+
+小博鱼和虹人打那么凶两边都没封说明这边的版主还是很深明大义的
+
+马飞起来！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11767#       发表于 2020-4-28 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 其实也不算种梁木啦，举个例子，
+
+
+假如你认识一个海外网友（朋友），一起打游戏、玩的很嗨皮，
+
+
+后续如果别人再提到这个国家的话，会很有兴致的说起这个国家，对不对？这是人之常情，
+
+
+葵皇欲拒还迎的样子好萌，
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11768#       发表于 2020-4-28 23:36
+
+
+
+
+跟小博宇打起来的不止是虹人吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11769#       发表于 2020-4-28 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240751&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:32</a>
+
+又扣不动鹅又被你气的精神崩坏可不是不行了</blockquote>
+fromsaitama拆分一下就是from saitama。您就是是埼玉县人?原来是日本来的国际友人？在中国论坛上上操着不熟悉的语言和人互喷很痛苦吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fromsaitama|-1|反应挺快啊，貌似日语英语也不错呢，mk在我.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11770#       发表于 2020-4-28 23:36
+
+
+
+
+一想到这个楼被v圈多少人视奸我就觉得羞耻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+出去会不会给人说你们看他居然在v综和那个mk对线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还被mk气的半死<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11771#       发表于 2020-4-28 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240787&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:36</a>
+
+一想到这个楼被v圈多少人视奸我就觉得羞耻
+
+出去会不会给人说你们看他居然在v综和那个mk对线
+
+ ...</blockquote>
+您对线也没对过啊，建议找块豆腐把自己砸死，这样就不用羞耻了。我还可以给你送花圈呢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fromsaitama|-1|那对不过，mk南波湾！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11772#       发表于 2020-4-28 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 真没劲，这么多陌生ID，还以为点进了隔壁楼，昏迷了
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 11773#       发表于 2020-4-28 23:39
+
+
+
+
+狐皇新推是不是在吐槽管人和管人观众之间的奇妙角色扮演？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【悲報】白上、ついに夢小説を読み生死を彷徨う。
+
+耐性がなかった事が原因とみられ床に倒れふしてる所を家族のレオ氏により発見されました
+
+現在、脳内集中治療をうけているもようです
+
+発見当時うわ言で
+
+｢読んだらあかん……魔境や…対ｱﾘ…｣
+
+と呟いていたという事です。
+
+現場からお伝えしました。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 11774#       发表于 2020-4-28 23:39
+
+
+
+
+怎么形势有点往人身攻击方面走了，不妙啊不妙，要有人被封了。
+
+正确的吵架方式不是互黑对方的v吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11775#       发表于 2020-4-28 23:41
+
+
+
+
+fromsaitama兄想好死不死了吗？我好准备花圈啊，上面就写勋业起南天北伐功成三尺剑
+
+神灵护中土东方感德一完人
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 11776#       发表于 2020-4-28 23:42
+
+
+
+ 本帖最后由 fromsaitama 于 2020-4-28 23:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240819&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-4-28 23:39</a>
+
+怎么形势有点往人身攻击方面走了，不妙啊不妙，要有人被封了。
+
+正确的吵架方式不是互黑对方的v吗 ...</blockquote>
+这就是巨魔无敌的地方了再说了我也没黑别人推的习惯，最多黑屁一句狐狸的泪水好吧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11777#       发表于 2020-4-28 23:42
+
+
+
+
+那小博宇不还照样到处蹦跶着吗，这种程度封不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11778#       发表于 2020-4-28 23:43
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-28 23:39
+怎么形势有点往人身攻击方面走了，不妙啊不妙，要有人被封了。
+
+正确的吵架方式不是互黑对方的v吗 ...</blockquote>
+那可太弱智了，我相信楼友宁愿被封号也不会做出这种行为的
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11779#       发表于 2020-4-28 23:45
+
+
+
+
+面包狗这直播过程中有意识地在多说英文啊，配合doom这些对欧美有吸引力的老游戏，怕不是要培养一波欧美核心粉，感觉这比狐狸的meme攻势更欧美特攻啊。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11780#       发表于 2020-4-28 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这一刻，我竟然认同了2000的想法。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11781#       发表于 2020-4-28 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240869&amp;ptid=1924531" target="_blank">面具13 发表于 2020-4-28 23:45</a>
+
+面包狗这直播过程中有意识地在多说英文啊，配合doom这些对欧美有吸引力的老游戏，怕不是要培养一波欧美核心 ...</blockquote>
+那可能是你很久没看过狗子直播，早两个月就英文攻势了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11782#       发表于 2020-4-28 23:49
+
+
+
+
+最近感觉2000哥越来越正常了，难道是我的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 11783#       发表于 2020-4-28 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240844&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-4-28 23:42</a>
+
+这就是巨魔无敌的地方了再说了我也没黑别人推的习惯，最多黑屁一句狐狸的泪水好吧
+
+ ...</blockquote>
+我接着您的话茬来啊，你要是真为了夸皇而死，我反而是要肃然起敬了。如此忠贞节义之士，我该三叩首，再上柱香啊，我就再也不黑crew是缩卵废物了
+
+syl我这种程度都要封的话，建议小博宇同葬
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11784#       发表于 2020-4-28 23:50
+
+
+
+
+面包狗已经有不少欧美核心粉了，至少会上个会员的那种。现在直播间也挂着不少欧美SC，有些也算石油佬了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11785#       发表于 2020-4-28 23:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们为什么有这么多精力观测那么多v的数据啊。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11786#       发表于 2020-4-28 23:54
+
+
+
+
+2000哥？别恶心我 虽然2000哥菜了点但人也是拿过Ti的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 11787#       发表于 2020-4-28 23:55
+
+
+
+
+宫姨每次直播时间点卡在欧美下午茶时间了吧
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 11788#       发表于 2020-4-28 23:56
+
+
+
+
+一来就是管人粉丝打架，能不能好好当个萌萌人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+实在不行rp萌萌人也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 11789#       发表于 2020-4-28 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240499&amp;ptid=1924531" target="_blank">屑屑代沟尼亚 发表于 2020-4-28 23:08</a>
+夏哥这有两个 赢了</blockquote>
+草原来我是胜负手吗
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 11790#       发表于 2020-4-28 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240970&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-4-28 23:56</a>
+
+草原来我是胜负手吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草 原来是你吗 内鬼抓到了
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 11791#       发表于 2020-4-28 23:59
+
+
+
+
+七色太监又不是人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">也就这儿会考虑他们的感受，泥潭真是温柔啊
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 11792#       发表于 2020-4-29 00:00
+
+
+
+
+谁又想得到，七色太监在国内最后的家，居然是四季如春的温柔乡s1呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+      
