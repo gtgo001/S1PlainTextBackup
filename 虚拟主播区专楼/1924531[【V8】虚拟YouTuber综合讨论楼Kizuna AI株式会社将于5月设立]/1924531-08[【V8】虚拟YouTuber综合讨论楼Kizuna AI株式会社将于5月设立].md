@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 02:08** 
+> ## **本文件最后更新于2020-04-28 10:07** 
 
 
 
@@ -1578,9 +1578,9 @@ syl，给楼里不了解的哥大概介绍一下，武藏也是日本最著名�
 都是白上的错把mio带坏了，大家不要对mio有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 来点幼狼
-<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_jU85j" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_lfNvZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_mL6qH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_gTgVj" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_mU5sn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_Xw1hQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4303,7 +4303,7 @@ repo部分：阿星这个“真死宅加入闲聊为主的现充游戏社团感�
 
 
 来点葵来点葵
-<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_aYzqf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_iLa4h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/27/224839kqw650cs57w9ahd5.jpg" referrerpolicy="no-referrer">
 
@@ -5404,7 +5404,7 @@ RTA的cut我都看了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_l6ZKO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_FYAM9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，看了一眼关注，怎么还有几个在lol的，葛皇要复出了？
@@ -7171,10 +7171,11 @@ syl：露露今天杂谈当中念了好多好多绕口令，超级可爱<img src
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| zz101896| + 1||
 | ErenJager| + 1|好评加鹅|
 | zpbzpb123123| + 1|好评加鹅|
 | 57042711| + 1|好评加鹅|
@@ -8141,4 +8142,1174 @@ apex真看水平可以看对地图的熟悉程度和控**看出来。apex很多�
 
 
 
-                                   
+
+
+-----
+
+####  usodakedo  
+##### 10935#       发表于 2020-4-28 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229776&amp;ptid=1924531" target="_blank">mmbk 发表于 2020-04-28 02:00:12</a>
+原azulim组又发了动态。看着心塞</blockquote>有时候会回想起18年刚接触vtb的时候<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+那时候小天使在v圈还是指后辈，搬运组坚持了这么久也算是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10936#       发表于 2020-4-28 02:21
+
+
+
+
+小天使速报，明天晚上萝卜，屑猫，小天使apex联动
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 10937#       发表于 2020-4-28 02:21
+
+
+
+
+搞不懂彩虹催b限的是怎么个催法，是其他人都太倔了吗，让一个五元来，人气没有钱也没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10938#       发表于 2020-4-28 02:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229695&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-28 01:37</a>
+
+不如说整个斗鱼都在衰落中？土豪的钱如数奉还，百姓的钱三七分成的骗局不可能无限玩下去的
+
+
+—— 来自 HU ...</blockquote>
+虎牙18年就盈利，斗鱼19年也扭亏为盈，最近也没有什么衰退的迹象啊，可能是你虚拟管人看太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+工会有返利和优惠，但也不是如数奉还的。然后老百姓的钱55分账，这套至少目前还是能用的。
+
+国内直播泡沫说到底是主播签约费用太膨胀，大鱼动不动几千万甚至上亿/年，又不能产出体育娱乐明星的当量，当然亏。但随着熊猫爆炸泡沫破裂业内达成共识大部分主播的实际签约费都有很大幅度缩水了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10939#       发表于 2020-4-28 02:22
+
+
+
+
+补图
+
+
+
+
+
+
+-zue37Q5-emcwZbT3cSxk-ix.jpg.medium.jpg
+(53.14 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-28 02:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/28/022235ywimniitccawnqnn.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10940#       发表于 2020-4-28 02:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229842&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-28 02:22</a>
+
+补图</blockquote>
+自备降压药  我估计会看爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10941#       发表于 2020-4-28 02:27
+
+
+
+<blockquote>kanonsisya 发表于 2020-4-28 02:25
+自备降压药  我估计会看爆炸</blockquote>
+躺平看小天使白给就行了，不是主窗也没啥233
+
+已经做好小天使每次第一个白给的心理预期了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10942#       发表于 2020-4-28 02:29
+
+
+
+
+bsyl，隔壁说屑猫也是fps苦手，本质逛街模拟器成了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10943#       发表于 2020-4-28 02:32
+
+
+
+
+为啥现在apex又复兴了。是因为真的没有别的游戏好播了吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10944#       发表于 2020-4-28 02:35
+
+
+
+
+杏这边估计只是单纯的出不去太无聊找点游戏一起玩吧，尝试点不一样的东西。（顺便给萝卜前辈喂饭）
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10945#       发表于 2020-4-28 02:35
+
+
+
+
+apex倒是方便抓人联动。不过我还挺想看小天使玩的。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10946#       发表于 2020-4-28 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229873&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-4-28 02:35</a>
+
+杏这边估计只是单纯的出不去太无聊找点游戏一起玩吧，尝试点不一样的东西。（顺便给萝卜前辈喂饭） ...</blockquote>
+来玩萝卜酱最爱的锄大地好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10947#       发表于 2020-4-28 06:05
+
+
+
+
+Kira的订阅过万了啊......顺便这是今天下午六点一弦要发的，[https://youtu.be/W9RLe0K9N5s](https://youtu.be/W9RLe0K9N5s)
+
+<img src="https://img.saraba1st.com/forum/202004/28/060530i5r9xi9sx5x5sir9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200428_060058_com.google.android.youtube.jpg</strong> (705.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-28 06:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sylali  
+##### 10948#       发表于 2020-4-28 06:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47225814&amp;ptid=1924531" target="_blank">null0304 发表于 2020-4-27 18:17</a>
+
+说起来有公开过「SLEE」的语源或者全称吗，有点在意
+
+这个又被转到timeline上以后看着猜了半天，S-新世代、L ...</blockquote>
+目前还没有公表过全称。Slee的官方读法是スリー，可能有一部分Three的含义，因为是三次元偶像。要求里也有 容姿に自信がある 这一条。田角自己的推里有个提法是「国民的アイドル」，说不定有个E是Everyone。求人广告里写 関東を拠点に日本全国でのライブやイベント活動 ，所以可能另一个E是Event？连起来不大通顺，都是瞎猜。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10949#       发表于 2020-4-28 07:21
+
+
+
+
+希小姐每月二十五号的直播鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10950#       发表于 2020-4-28 07:34
+
+
+
+
+今天羊特意在羊歌之后直播20分钟顶班朝闻可可，这波是糖。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 10951#       发表于 2020-4-28 08:13
+
+
+
+
+不过「三僕」这个词其实已经是一个固有名词，专门指某三个人了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10952#       发表于 2020-4-28 08:18
+
+
+
+
+狐狸这幻觉早安可可的梗还没玩够吗，早上起来又是一排消息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 10953#       发表于 2020-4-28 08:31
+
+
+
+
+我就说一句，大脸猫的教练是懒狗（
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 10954#       发表于 2020-4-28 08:37
+
+
+
+
+醒来还打算丢阿葵副频道链接一看2000哥发言有点害怕，下播未关推流既视感<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不过还是谢谢宣传
+
+syl，关于apex，去年为了看懂v们打apex然后自己去玩了玩结果一玩就沉迷打了几百小时<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 10955#       发表于 2020-4-28 08:39
+
+
+
+
+对三僕有反应，真的是国民老哥还是老姐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">实况主圈对管人什么看法，这样撞称呼有反应吗
+看虹这政策搞不好会去和实况主圈接轨，好奇一下
+
+比起来开b限的想知道虹下批入驻是谁了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 10956#       发表于 2020-4-28 08:46
+
+
+
+ 本帖最后由 Vneet 于 2020-4-28 08:52 编辑 
+
+龙族·封印之壶 初见成效，朝闻可可休息一天也是好事。
+
+说不定明天可以顺势玩玩 壶魔人 的梗复出。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10957#       发表于 2020-4-28 08:52
+
+
+
+
+ORICON 专辑日榜 2020/04/26付
+
+
+petit fleurs 1st Album 「premiere fleurs」第6日排名2位，当日销量2,329枚。
+<img src="https://p.sda1.dev/0/4d96fa7612c7184348f25ae7f5e3e4bc/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 10958#       发表于 2020-4-28 08:54
+
+
+
+
+话说有玩csgo的管人么
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 10959#       发表于 2020-4-28 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230608&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-28 08:52</a>
+ORICON 专辑日榜 2020/04/26付
+
+
+petit fleurs 1st Album 「premiere fleurs」第6日排名2位，当日销量2,329 ...</blockquote>
+突然爆上？发生什么了？
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 10960#       发表于 2020-4-28 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230624&amp;ptid=1924531" target="_blank">icecry 发表于 2020-04-28 08:54:18</a>
+话说有玩csgo的管人么</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">铁血杏仁给你推荐白洋葱
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 10961#       发表于 2020-4-28 09:06
+
+
+
+
+老农可能是最近吃运营给的工商太多了，总要回报下不要让组织脸上太难看的就来了吧。
+
+
+至于大部队依旧是安能摧眉折腰事金主，使我不得开心颜。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10962#       发表于 2020-4-28 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230682&amp;ptid=1924531" target="_blank">TRW 发表于 2020-4-28 09:01</a>
+
+突然爆上？发生什么了？</blockquote>
+补货+前两天新MV的发布效应吧
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 10963#       发表于 2020-4-28 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230515&amp;ptid=1924531" target="_blank">lor 发表于 2020-4-28 08:39</a>
+对三僕有反应，真的是国民老哥还是老姐实况主圈对管人什么看法，这样撞称呼有反应吗
+看虹这政策搞不 ...</blockquote>
+是老姐。居然能在泥潭碰见国民，s1真的是个神奇的地方<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 10964#       发表于 2020-4-28 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230726&amp;ptid=1924531" target="_blank">yinoh 发表于 2020-4-28 09:06</a>
+老农可能是最近吃运营给的工商太多了，总要回报下不要让组织脸上太难看的就来了吧。
+
+
+至于大部队依旧是安能 ...</blockquote>
+真当金主是慈善家么，不愿意开拓新市场就滚蛋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 10965#       发表于 2020-4-28 09:23
+
+
+
+ 本帖最后由 TRW 于 2020-4-28 09:44 编辑 
+
+モイラ@にじさんじ所属の女神
+@Moiramoimoimoi
+女神は、後輩のことはみんな大事で素敵な後輩だと思ってるけど。 女神が大事にしてるものを大事にしてくれないなら首輪を捨ててきた方がいいんじゃない？ つけたおぼえはないけども
+
+モイラ@にじさんじ所属の女神
+@Moiramoimoimoi
+各方面本当にごめんね。
+
+
+"虽然我觉得后辈都是好样的。但非要触犯老娘底线的话撕下脸皮如何，别装文明人了。" 这样解读？
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">牛逼，通过收益化都不开sc、真正当爱好来播的佛系社畜都发火了，彩虹还有半年吗？
+
+----------
+误解，是在训粉
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 10966#       发表于 2020-4-28 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230847&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-28 09:19</a>
+
+真当金主是慈善家么，不愿意开拓新市场就滚蛋。还有因为b站关不了sc所以禁止播任任游戏
+
+
+ ...</blockquote>
+不是字幕组几位说法还不一样么，我们都知道在法外之地不需要这么谨小慎微，大不了出了问题再调整，
+
+
+可日本人不那么想咋办。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10967#       发表于 2020-4-28 09:27
+
+
+
+
+之前当时查虹ark的服务器的时候因为点进每个人的名字可以看到那个人的steam号玩其他游戏的服务器记录，看到夜见12月的时候玩过csgo，不过她从来都没播过。说实话这帮管人还是不太喜欢玩硬核的fps的，虹那边的r6也就是联动的效果还可以，后面病兔子夜见美夜子单排r6都没啥人看，一个是csgo，cod，r6，ow这些硬核fps太消耗精力，一旦玩起来根本没办法关注评论只能自闭打**，结果就是观众完全被晾着评论完全变成版聊。另外本身这些人玩的再好也就最多最多算上层玩家，不像shroud菠萝那帮职业哥可以讲讲地图理解讲讲细节操作，直播起来效果并不好，所以基本全放弃这类游戏了。这些传统fps只有联动内战才有看点，国内ob那帮子人打csgo也是只打内战，因为打水友赛不是职业哥基本就是被水友吊着锤完全没节目效果。这些传统fps啥时候能在虹杏这些看重节目效果的管人中流行起来得看他们什么能拉到足够的人打内战，管人内战应该还是很好看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 10968#       发表于 2020-4-28 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 能惹到女神的后辈，也就青长能这么ky了吧
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 10969#       发表于 2020-4-28 09:30
+
+
+
+
+不懂虹内部关系，跳脸元老前辈有什么好处？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 10970#       发表于 2020-4-28 09:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 盲猜葵皇找女神玩逆凸结果被当成跳脸了？毕竟葵皇说要找没联系过的人玩，葵皇真KY阿！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|铁骨铮铮|
+| cckuku| + 1|这也太铁血葵熊了|
+| 激光2000|-1|我不需要crew给我加鹅！|
+| erer| + 1|通常运转2000|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10971#       发表于 2020-4-28 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230882&amp;ptid=1924531" target="_blank">TRW 发表于 2020-4-28 09:23</a>
+
+モイラ@にじさんじ所属の女神
+
+@Moiramoimoimoi
+
+女神は、後輩のことはみんな大事で素敵な後輩だと思ってるけ ...</blockquote>
+可能不是吧,这个好像是在劝粉丝....(大概）
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10972#       发表于 2020-4-28 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230882&amp;ptid=1924531" target="_blank">TRW 发表于 2020-4-28 09:23</a>
+
+モイラ@にじさんじ所属の女神
+
+@Moiramoimoimoi
+
+女神は、後輩のことはみんな大事で素敵な後輩だと思ってるけ ...</blockquote>
+女神的粉丝统称“こいぬ”，即小狗。
+
+这里喷的是前两天喷gaku的厄介小狗。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 10973#       发表于 2020-4-28 09:38
+
+
+
+
+这是在训粉吧，装项圈的小狗是她给粉的设定<img src="https://static.saraba1st.com/image/smiley/animal2017/004.png" referrerpolicy="no-referrer">依稀记得
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 10974#       发表于 2020-4-28 09:42
+
+
+
+
+gaku跟女神有cp
+前几天gaku那事被女神的某个粉丝狂喷，这条应该是针对这事
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  Havik  
+##### 10975#       发表于 2020-4-28 09:42
+
+
+
+
+应该说像csgo，r6，codmw，ow这些是竞技性强的游戏，竞技性强的游戏播起来需要自身有一定硬实力才能播的好看。这些还算不上硬核，像arma，红管，叛乱，这些算硬核，这些要是能凑够人集体报团初见应该也能挺有意思。播pubg和apex多因为这些游戏不特别侧重技术，游戏性很好，还有各种节目效果，所以播的人多
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 10976#       发表于 2020-4-28 09:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">原来是gaku那事啊，情弱了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 10977#       发表于 2020-4-28 09:45
+
+
+
+
+自己女神有了cp去厄介结果被女神训，这个云绿帽有点意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 10978#       发表于 2020-4-28 09:48
+
+
+
+ 本帖最后由 poipanchao 于 2020-4-28 09:50 编辑 
+
+陈年老cp了，非常初期的时候的事儿吧
+主要是他俩关系还行，才有了这茬
+话又说回来如果没这层联系，其实很难有人会去antigaku，毕竟……人气就那样
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 10979#       发表于 2020-4-28 09:49
+
+
+
+
+梅莉小姐拿到的礼物，有点糟糕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+7CP@4WO26SW[{_866`V[W3A.jpg
+(121.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-28 09:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/28/094926a9uanocidi9tr80d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 10980#       发表于 2020-4-28 09:50
+
+
+
+<blockquote>いちから株式会社
+
+営業部長
+
+
+        
+
+＜標準的な労働時間＞
+
+9:00～18:00 （所定労働時間：8時間0分）
+
+休憩時間：60分
+
+時間外労働有無：有
+
+
+＜フレックスタイム制＞
+
+コアタイム：12:00～16:00
+
+
+＜予定年収＞
+
+500万円～(残業手当：有)
+
+
+＜月給＞
+
+416,600円～(以下一律手当を含む)
+
+基本給：312,000円～
+
+固定残業手当：104,600円～（固定残業時間45時間0分/月）
+
+※超過した時間外労働の残業手当は追加支給
+
+
+＜賃金形態＞
+
+月給制
+
+
+＜昇給有無＞
+
+有
+
+
+＜給与補足＞
+
+※年収は、年齢やスキル・経験等に応じて決定致します。
+
+■賞与：あり
+
+
+予定年収はあくまでも目安の金額であり、選考を通じて上下する可能性があります。
+
+月給は固定手当を含めた表記です。
+
+
+通勤手当、健康保険、厚生年金保険、雇用保険、労災保険
+
+
+＜待遇・福利厚生補足＞
+
+通勤手当：全額支給
+
+社会保険：補足事項なし
+
+
+＜教育制度・資格補助補足＞
+
+補足事項なし
+
+
+＜その他補足＞
+
+■その他手当
+
+
+完全週休2日制(かつ土日祝日)
+
+有給休暇10日～20日
+
+休日日数120日</blockquote><blockquote>いちから株式会社
+
+営業
+
+
+＜予定年収＞
+
+400万円～600万円(残業手当：有)
+
+
+＜月給＞
+
+333,333円～(以下一律手当を含む)
+
+基本給：249,633円～
+
+固定残業手当：83,700円～（固定残業時間45時間0分/月）
+
+※超過した時間外労働の残業手当は追加支給
+
+
+＜給与補足＞
+
+※上記年収は目安年収であり、これまでの経験やスキル、年収面を考慮した上で最終決定致します。
+
+■賞与：業績連動型賞与（年１回）
+
+
+通勤手当、健康保険、厚生年金保険、雇用保険、労災保険
+
+
+＜待遇・福利厚生補足＞
+
+通勤手当：全額支給
+
+社会保険：補足事項なし
+
+
+＜教育制度・資格補助補足＞
+
+補足事項なし
+
+
+＜その他補足＞
+
+近距離手当（5km圏内)＊近距離手当対象者は通勤手当対象外
+
+リファラル報奨制度
+
+インフルエンザ予防接種補助
+
+コミュニケーション補助費用（部内懇親会に関する補助制度）
+
+オフィスグリコ、ウォーターサーバー
+
+
+完全週休2日制(かつ土日祝日)
+
+有給休暇10日～20日
+
+休日日数120日
+
+
+特別休暇（結婚・忌引・配偶者の出産）
+
+産休、育児休業、介護休業制度（性別に関係なく法定通り）</blockquote><blockquote>いちから株式会社
+
+広報責任者
+
+
+■歓迎条件：
+
+・エンターテイメント業界、インフルエンサー業界等の経験
+<strong>・IPOもしくはIPO準備フェーズの経験</strong>
+
+・3人以上の管理をおこなった経験（予算、目標設定、進行管理等を行った経験）
+
+
+＜予定年収＞
+
+500万円～800万円(残業手当：有)
+
+
+＜月給＞
+
+416,666円～666,667円(以下一律手当を含む)
+
+基本給：312,066円～499,367円
+
+固定残業手当：104,600円～167,300円（固定残業時間45時間0分/月）
+
+※超過した時間外労働の残業手当は追加支給</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 10981#       发表于 2020-4-28 10:00
+
+
+
+
+那之前几年是谁在跑营业啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10982#       发表于 2020-4-28 10:03
+
+
+
+
+邪神ちゃん監督
+
+<img src="https://img.saraba1st.com/forum/202004/28/100215t4ii4s54k8dvsa6a.png" referrerpolicy="no-referrer">
+
+
+<strong>1254783391586594816.png</strong> (537.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-28 10:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 10983#       发表于 2020-4-28 10:06
+
+
+
+
+待遇中规中矩，补贴升给福利厚生该有也有。ickr在wantedly上基本都是招经验者，新卒是肯定进不去了
+
+
+
+
+
+                                 
