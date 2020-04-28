@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 20:08** 
+> ## **本文件最后更新于2020-04-28 22:11** 
 
 
 
@@ -14598,10 +14598,11 @@ yysy，我看无间道有个“咩啊”的发音都好多人刷她，都不知�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1|毛二力草，不过可爱|
 | 惑星| + 1|ん?|
 
 
@@ -14974,10 +14975,11 @@ LOL也还好吧。
 
 
 
- 参与人数 4战斗力 -4
+ 参与人数 5战斗力 -6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| jhouo8989|-2|兄啊我鹅都给你了，别再乱趴了.|
 | 路人庚|-1|这么喜欢乌冬滚去他推特下面叫啊.|
 | h1001010|-1|啊这|
 | Cla0221|-1|sb|
@@ -15565,4 +15567,777 @@ sc是啥游戏，不会是星际争霸吧？</blockquote>
 
 
 
-                    
+
+
+-----
+
+####  无限舰制  
+##### 873#       发表于 2020-4-28 20:09
+
+
+
+
+肢端肥大，那是病，得治
+
+
+胖哪有那么容易胖到指头上的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 874#       发表于 2020-4-28 20:11
+
+
+
+
+玩农药的也有不少肥肥啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">不对，已经没有人论证不是坦克了吗
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 875#       发表于 2020-4-28 20:39
+
+
+
+
+坦克民为了论证你麻是坦克已经不惜扭曲事实了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">气抖冷，钢板民什么时候才能掌握话语权
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 876#       发表于 2020-4-28 20:40
+
+
+
+
+15页下来没看出个所以然，忘了在哪儿看的，婆罗门只会坐而论道，真下场害得看首陀罗，最后只会把头埋在地里安排你麻，同好会什么时候可以橄榄官组啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 877#       发表于 2020-4-28 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">别骂了别骂了，本肥肥手机九宫格摁错已经是日常了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 878#       发表于 2020-4-28 20:59
+
+
+
+
+所以这个钢板怎么除了点赞一点动静都没了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 879#       发表于 2020-4-28 21:02
+
+
+
+
+噢耶！邦邦出货了！彩彩我喜欢你啊！
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 880#       发表于 2020-4-28 21:03
+
+
+
+
+不会8，能上流一点用26键吗
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 881#       发表于 2020-4-28 21:03
+
+
+
+
+不知道,按以前的习惯大联动前后会单独播一次,现在好像没这个规律了
+
+也许麻神已经不爱我们了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 882#       发表于 2020-4-28 21:06
+
+
+
+
+变味了（因为呆在家里太久
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 883#       发表于 2020-4-28 21:29
+
+
+
+ 本帖最后由 2014720 于 2020-4-28 21:35 编辑 
+
+没播吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+想了下今天这波并不是因为官组的meaqua太多内容而是因为mea相关内容太少了的不满一次爆发吧。对我这个双推人来说尤其是和隔壁夸组比真是相差太多，时效性也比不过同好会海盗，虽然知道不该催但是人不怕穷怕比啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+感觉官组现在既不是无情的传话筒，也不会整活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 884#       发表于 2020-4-28 21:35
+
+
+
+
+不是，为啥这么纠结转海盗熟肉啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 885#       发表于 2020-4-28 21:40
+
+
+
+<blockquote>2014720 发表于 2020-4-28 21:29
+没播吗
+
+
+想了下今天这波并不是因为官组的meaqua太多内容而是因为mea相关内容太少了的不满一次爆发吧 ...</blockquote>
+看你这段话去看了下部分木口的v，发现咩组确实更新频率低了，这么看she说的还挺对的，贴贴至少能让官组这个号有产出
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 886#       发表于 2020-4-28 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239589&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 21:35</a>
+不是，为啥这么纠结转海盗熟肉啊</blockquote>
+好多人只看官组熟肉吧，那些海盗熟肉烤了就放在那里最后点击甚至都不过万感觉浪费了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 887#       发表于 2020-4-28 21:42
+
+
+
+
+从早上发视频团建到现在了，都休息休息休息吧带哥们，官组这个问题老生常谈了，转了会给海盗涨一定的播放量但还是不如官组自己弄啊，不过现在是别帮倒忙就可以了，其他爱咋样咋样⑧，能反应过来最好，反应不过来也没办法啊，保持住自己对咩的热情就好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 888#       发表于 2020-4-28 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239649&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-28 21:41</a>
+好多人只看官组熟肉吧，那些海盗熟肉烤了就放在那里最后点击甚至都不过万感觉浪费了 ...</blockquote>
+就让人自己找着就行了，外边人烤的肉粉丝能随便吃官号也不能随便转啊，万一撞着个烤肉搞事的暗大佐之类的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">到时候还要给海盗肉做审核吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 889#       发表于 2020-4-28 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239653&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-4-28 21:42</a>
+从早上发视频团建到现在了，都休息休息休息吧带哥们，官组这个问题老生常谈了，转了会给海盗涨一定的播放量 ...</blockquote>
+官组也没有怎么弄啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 890#       发表于 2020-4-28 21:47
+
+
+
+<blockquote>pei23333 发表于 2020-4-28 21:42
+从早上发视频团建到现在了，都休息休息休息吧带哥们，官组这个问题老生常谈了，转了会给海盗涨一定的播放量 ...</blockquote>
+真讽刺，我去年入坑的时候一定想不到一年后各个社区都是劝人保持热情的，这情况真是独mea粉丝一份了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 891#       发表于 2020-4-28 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239688&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 21:46</a>
+就让人自己找着就行了，外边人烤的肉粉丝能随便吃官号也不能随便转啊，万一撞着个烤肉搞事的暗大佐之类的 ...</blockquote>
+真就天空之城ptsd吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 892#       发表于 2020-4-28 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239706&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-28 21:48</a>
+真就天空之城ptsd吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你看这么搞下来还不如直接把海盗拉进官组
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 893#       发表于 2020-4-28 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239724&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 21:50</a>
+你看这么搞下来还不如直接把海盗拉进官组</blockquote>
+我倒是好奇为什么没进组<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 894#       发表于 2020-4-28 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这和我上面说的差不多啊 有能man去干起来啊 调音做起来 pv画起来 牛逼的校对也可以去内部和平演变吧 为什么说这么多 不去做啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 895#       发表于 2020-4-28 21:52
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 21:46
+就让人自己找着就行了，外边人烤的肉粉丝能随便吃官号也不能随便转啊，万一撞着个烤肉搞事的暗大佐之类的 ...</blockquote>
+官组又不待见同好会，毕竟木口类似的组织是有官方成员参与的。官组现在熟肉经常连两天一更都做不到，转发一下同好会的熟肉或fafa的熟肉都不行吗
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 896#       发表于 2020-4-28 21:52
+
+
+
+
+主要是官组现在烤肉速率稍微有点慢了，又不转海盗肉的话，仅点个关注的路人对咩的认识就会过于片面且转化为粉的转化率过低，因为这种路人缺乏了解她的契机
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 897#       发表于 2020-4-28 21:53
+
+
+
+<blockquote>2014720 发表于 2020-4-28 21:51
+我倒是好奇为什么没进组</blockquote>
+之前分析过啊，比较活跃的海盗除了fafa都没有进组可能，hl69不清楚
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 898#       发表于 2020-4-28 21:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239735&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 21:52</a>
+官组又不待见同好会，毕竟木口类似的组织是有官方成员参与的。官组现在熟肉经常连两天一更都做不到，转发 ...</blockquote>
+这个不待见同好会是怎么来的啊，不是还转过红莲华么
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 899#       发表于 2020-4-28 21:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239694&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 21:47</a>
+
+真讽刺，我去年入坑的时候一定想不到一年后各个社区都是劝人保持热情的，这情况真是独mea粉丝一份了 ...</blockquote>
+啊这，因为一年前谁也想不到能拉跨成这样啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 900#       发表于 2020-4-28 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239746&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 21:53</a>
+之前分析过啊，比较活跃的海盗除了fafa都没有进组可能，hl69不清楚</blockquote>
+这又是怎么分析的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 901#       发表于 2020-4-28 21:54
+
+
+
+
+红莲华是私信记者才转发的……
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 902#       发表于 2020-4-28 21:54
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 21:53
+这个不待见同好会是怎么来的啊，不是还转过红莲华么</blockquote>
+木口能日更熟肉的字幕组都会转发衍生组织的熟肉作为补充，咩组怎么就不肯呢
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 903#       发表于 2020-4-28 21:56
+
+
+
+
+熟肉转发私信记者吧
+
+木口那边人家官组海盗组实质上一家人，对接当然快，这边官组同好会可能互相看不对眼，沟通都不想沟通，那不就僵在这了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 904#       发表于 2020-4-28 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239762&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 21:54</a>
+木口能日更熟肉的字幕组都会转发衍生组织的熟肉作为补充，咩组怎么就不肯呢 ...</blockquote>
+你这问我，我既不是同好会也不是官组，我怎么知道啊
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 905#       发表于 2020-4-28 21:57
+
+
+
+ 本帖最后由 noaki 于 2020-4-28 22:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239748&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 21:53</a>
+这个不待见同好会是怎么来的啊，不是还转过红莲华么</blockquote>
+同好会可是某几位官组大佬钦定毒唯，人看不上的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 906#       发表于 2020-4-28 22:00
+
+
+
+
+草，什么年代了还搞这一出，建议推翻建立共和国嗷<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 907#       发表于 2020-4-28 22:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239786&amp;ptid=1929631" target="_blank">noaki 发表于 2020-4-28 21:57</a>
+同好会可是某几位官组大佬钦定毒唯，看不上这些人的</blockquote>
+同好会的人基本上也和我最初知道时换了一圈了，最初的几个倒确实跟官组相互看不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在活跃的人我就都没啥交流了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 908#       发表于 2020-4-28 22:01
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 21:54
+这又是怎么分析的啊</blockquote>
+我那个分析的有点早了，你可以翻下我的记录，最近新的几个海盗，、Saiga好像官组去谈了？我印象中你在楼里说的；霜堑狮好像是临时拿出来的烤肉号，最近活跃内容和mea四月活动有关，最后一个动态停在23号，动态再往前是19年8月的转发抽奖，如果有意向也可能进组吧。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 909#       发表于 2020-4-28 22:03
+
+
+
+
+隔壁芙宝和清算人都能一起工作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，这边就不行了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 910#       发表于 2020-4-28 22:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239822&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 22:01</a>
+同好会的人基本上也和我最初知道时换了一圈了，最初的几个倒确实跟官组相互看不上现在活跃的人我 ...</blockquote>
+最初吗，我说的''钦定''大概在三周前和一周前，不知道符不符合你说的这个时间线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 911#       发表于 2020-4-28 22:04
+
+
+
+<blockquote>noaki 发表于 2020-4-28 22:03
+最初吗，我说的''钦定''大概在三周前和一周前，不知道符不符合你说的这个时间线 ...</blockquote>
+是哪几位官组聚聚啊，还挺好奇的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 912#       发表于 2020-4-28 22:05
+
+
+
+<blockquote>2014720 发表于 2020-4-28 22:03
+隔壁芙宝和清算人都能一起工作，这边就不行了</blockquote>
+又是哪几位大明星，不认识
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 913#       发表于 2020-4-28 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话题就没完了？还要继续聊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 914#       发表于 2020-4-28 22:06
+
+
+
+
+官组收人不是开过一波团了么？
+
+
+syl之前我就在你楼说了，不晓得是官组看不上同好会还是同好会不跟官组玩
+
+
+zsly警惕和平演变组gachi，就算橄榄了官组也只是换了一批人而已，地位是不变的，把人变成鬼的小团体依旧存在<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 915#       发表于 2020-4-28 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239850&amp;ptid=1929631" target="_blank">noaki 发表于 2020-4-28 22:03</a>
+最初吗，我说的''钦定''大概在三周前和一周前，不知道符不符合你说的这个时间线 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过同样是拿过去的人和事来车，那几个大佬指的是不是现在这几个我就不清楚了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 916#       发表于 2020-4-28 22:07
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-28 22:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47239786&amp;ptid=1929631" target="_blank">noaki 发表于 2020-4-28 21:57</a>
+
+同好会可是某几位官组大佬钦定毒唯，人看不上的</blockquote>
+我觉得要学会区分蛋和下蛋的鸡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 而且感觉不只是这个原因，感觉官组一直都有不转海盗的习惯（虽然以前官组全盛时期可以算是有不转海盗的资本）
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 917#       发表于 2020-4-28 22:10
+
+
+
+
+这车轱辘还能一天转两次的。
+
+
+
+
+
+                   

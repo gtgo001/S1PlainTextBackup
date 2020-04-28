@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-25 14:02** 
+> ## **本文件最后更新于2020-04-28 22:02** 
 
 
 
@@ -25469,7 +25469,7 @@ O 是的 如果大家真的看得很认真也会发现了
 
 
 16f28f01a18b87d6ba4b2345080828381e30fd4a.jpg
-(125.01 KB, 下载次数: 2)
+(125.01 KB, 下载次数: 3)
 
 
 
@@ -25572,7 +25572,7 @@ CBギャラン　CB加兰特/CB戈蓝（ギャラン 和 三菱的一款汽车�
 
 
 881be8fe9925bc317f8588c251df8db1c91370fa.jpg
-(140.18 KB, 下载次数: 1)
+(140.18 KB, 下载次数: 2)
 
 
 
@@ -29446,6 +29446,529 @@ numbers说不定还有藏一会儿
 
 
 企鹅主要是人名太蛋疼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52473#       发表于 2020-4-25 15:19
+
+
+
+
+人名有啥蛋疼的，也许是我入坑太早了吧，当年看的时候除了路飞，其他角色都不是现在的主流叫法......卓洛、佐罗、索隆，三治、香吉士、桑吉我都所谓的，你叫雨之溪流还是雨之紫龙和我有什么关系？我又不是看不懂。
+
+
+倒是汉化组的私货文言和打油诗严重影响我对剧情的理解。
+
+
+
+
+
+
+
+-----
+
+####  eflni  
+##### 52474#       发表于 2020-4-25 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47201388&amp;ptid=98922" target="_blank">缺德猫 发表于 2020-4-25 15:19</a>
+人名有啥蛋疼的，也许是我入坑太早了吧，当年看的时候除了路飞，其他角色都不是现在的主流叫法......卓洛、 ...</blockquote>
+有几个还是挺蛋疼的，比如高露德罗杰总是让我出戏到高露洁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 52475#       发表于 2020-4-25 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47044889&amp;ptid=98922" target="_blank">金鱼师父 发表于 2020-4-11 11:57</a>
+儿子不会是这位吧</blockquote>
+这是那一话？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  数独无双  
+##### 52476#       发表于 2020-4-25 23:01
+
+
+
+
+腾讯的翻译就别提什么质量了 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uswhzh  
+##### 52477#       发表于 2020-4-26 01:13
+
+
+
+
+奎恩作为疫灾估计要造重了，轻则被揍出屎，重则估计真像六子说的要死，挺有趣的胖子摊上个不好称号。
+
+
+
+
+
+
+
+-----
+
+####  套路设计师  
+##### 52478#       发表于 2020-4-27 01:54
+
+
+
+
+人物那么多，不会又要打很久吧。
+
+
+希望尽快结束和之岛篇
+
+
+
+
+
+
+
+-----
+
+####  拉鲁拉丝  
+##### 52479#       发表于 2020-4-27 10:49
+
+
+
+
+大妈的孩子也要来，这人是要有多少……
+
+—— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52480#       发表于 2020-4-27 12:00
+
+
+
+
+还好七武海出来的早，不然不得被鼠绘翻译成海上七霸啊
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52481#       发表于 2020-4-27 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47206363&amp;ptid=98922" target="_blank">uswhzh 发表于 2020-4-26 01:13</a>
+
+奎恩作为疫灾估计要造重了，轻则被揍出屎，重则估计真像六子说的要死，挺有趣的胖子摊上个不好称号。 ...</blockquote>
+queen算好的了，jack才是要被打出屎的那个，新仇+旧恨，而且本身实力也不咋地，钦定了不如猫狗，凯多团被揍得最惨的角色肯定有他一份
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 52482#       发表于 2020-4-27 12:40
+
+
+
+
+说个难听点的
+
+国内几大流氓为啥不引进巨人，主要是巨人后期偏zz因素太多，流氓不敢引进吧，不然这么火的“第一漫画”怎么就放着不管了？
+
+再难听点
+
+曲线救国，发掘海贼有乳滑内容，强制正版下架，然后小圈子又可以再开了
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52483#       发表于 2020-4-27 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47221641&amp;ptid=98922" target="_blank">hagane 发表于 2020-4-27 12:40</a>
+
+说个难听点的
+
+国内几大流氓为啥不引进巨人，主要是巨人后期偏zz因素太多，流氓不敢引进吧，不然这么火的“ ...</blockquote>
+动画刚播就全禁了 哪有什么zz要素
+
+纯粹是因为吃人
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 52484#       发表于 2020-4-27 12:48
+
+
+
+
+凌空六子跟恐龙男差不多实力水平的话，也强不到哪去
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 52485#       发表于 2020-4-27 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47221703&amp;ptid=98922" target="_blank">klzxs 发表于 2020-4-27 12:44</a>
+
+动画刚播就全禁了 哪有什么zz要素
+
+纯粹是因为吃人</blockquote>
+想白嫖海贼赶紧找爆破点
+
+
+
+
+
+
+
+-----
+
+####  stevenzero  
+##### 52486#       发表于 2020-4-27 13:04
+
+
+
+
+霍金斯和德罗克不可能有档次上的差距，这6人肯定有凯多偏向的意思，德罗克是动物类稀有的古代种，所以就比霍金斯级别高了
+
+
+
+
+
+
+
+-----
+
+####  faust123  
+##### 52487#       发表于 2020-4-27 13:25
+
+
+
+
+wt为了出手办疯了
+
+飞6胞 工具人 X 手办人O
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52488#       发表于 2020-4-27 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47222156&amp;ptid=98922" target="_blank">faust123 发表于 2020-4-27 13:25</a>
+
+wt为了出手办疯了
+
+飞6胞 工具人 X 手办人O</blockquote>
+现在POP的心思不在OP上了，新人物出得慢不说，还老出些过去人物的V2什么的，飞六胞出手办不知道哪年哪月了
+
+不过景品的速度还是可以的，光是草帽团和之国换的那几身估计就能出个好几套的样子
+
+
+
+
+
+
+
+-----
+
+####  恋妖壶  
+##### 52489#       发表于 2020-4-27 16:48
+
+
+
+
+花钱一点关系都没，能不能体验做好点
+
+
+这他妈最新话去腾讯看的，选双页模式是把所有跨页图切开的，自己调也调不了，看NM啊
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 52490#       发表于 2020-4-27 16:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47224834&amp;ptid=98922" target="_blank">恋妖壶 发表于 2020-4-27 16:48</a>
+
+花钱一点关系都没，能不能体验做好点
+
+
+这他妈最新话去腾讯看的，选双页模式是把所有跨页图切开的，自己调也 ...</blockquote>
+可以去b漫上看，PC端能调跨页匹配，手机端调成日漫模式可以合并跨页
+
+
+
+
+
+
+
+-----
+
+####  恋妖壶  
+##### 52491#       发表于 2020-4-27 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47224897&amp;ptid=98922" target="_blank">gs2-d2up 发表于 2020-4-27 16:54</a>
+
+可以去b漫上看，PC端能调跨页匹配，手机端调成日漫模式可以合并跨页</blockquote>
+看到了，是不是比腾讯慢？没看到最新
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 52492#       发表于 2020-4-27 17:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47224946&amp;ptid=98922" target="_blank">恋妖壶 发表于 2020-4-27 16:58</a>
+
+看到了，是不是比腾讯慢？没看到最新</blockquote>
+我早上起来还在b漫看到了978，不过里面有一句翻译错误，不知道是不是准备重发一次。这几家都是从翻翻那里拿的中文版，一般来说都是一起发。
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52493#       发表于 2020-4-27 18:06
+
+
+
+
+以后周五只能看英文版或者吧友翻译了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caster  
+##### 52494#       发表于 2020-4-27 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47221934&amp;ptid=98922" target="_blank">stevenzero 发表于 2020-4-27 13:04</a>
+
+霍金斯和德罗克不可能有档次上的差距，这6人肯定有凯多偏向的意思，德罗克是动物类稀有的古代种，所以就比 ...</blockquote>
+德罗克刚到新世界就去做卧底了，霍金斯是最近才加的。。
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52495#       发表于 2020-4-27 23:19
+
+
+
+ 本帖最后由 7七麦 于 2020-4-27 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47221495&amp;ptid=98922" target="_blank">zodiac137 发表于 2020-4-27 12:27</a>
+queen算好的了，jack才是要被打出屎的那个，新仇+旧恨，而且本身实力也不咋地，钦定了不如猫狗，凯多团被 ...</blockquote>
+没吧，原文是猫狗轮着打不落下风，Jack烦了才用生化武器的
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52496#       发表于 2020-4-28 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47228581&amp;ptid=98922" target="_blank">7七麦 发表于 2020-4-27 23:19</a>
+
+没吧，原文是猫狗轮着打不落下风，Jack烦了才用生化武器的</blockquote>
+还有另一个参考，jack遇到酒天丸的时候被一招撂倒，虽然靠着自身血厚很快爬起来了，但还是看出水平不咋地，主要还是这货和路飞团有梁子，肯定要被血虐
+
+
+
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 52497#       发表于 2020-4-28 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47229364&amp;ptid=98922" target="_blank">zodiac137 发表于 2020-4-28 00:38</a>
+
+还有另一个参考，jack遇到酒天丸的时候被一招撂倒，虽然靠着自身血厚很快爬起来了，但还是看出水平不咋地 ...</blockquote>
+我记得jack被砍得那个分镜，下一格就是jack还了酒天丸一刀，俩人应该是55开
+
+更何况jack无论是打猫狗还是酒天丸都没开人兽模式这个动物系果实最强形态
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52498#       发表于 2020-4-28 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47230710&amp;ptid=98922" target="_blank">qzfjnv 发表于 2020-4-28 09:04</a>
+我记得jack被砍得那个分镜，下一格就是jack还了酒天丸一刀，俩人应该是55开
+
+更何况jack无论是打猫狗还是 ...</blockquote>
+这么一说，猫狗也没开月亮狮子。不过现在猫狗都断手断腿了，实力肯定得有点折扣吧。到是酒天丸看不出还有什么能提升战力的方式。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52499#       发表于 2020-4-28 16:41
+
+
+
+
+堪十郎根本没去鬼岛
+凯多的儿子登场
+能把凯多儿子带来的人能得到挑战飞六胞和大看板的机会（？）
+飞六胞是以凯多之名召集来的
+就算是以King的名义也没法召集来飞六胞
+因为以福兹福和佐佐木为首的“原海贼团船长”组本来就是想取代大看板的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 52500#       发表于 2020-4-28 18:05
+
+
+
+
+三看板出场太早，这话连king的逼格都下降了
+
+只能靠飞六子来拉百兽海贼团的时髦值
 
 
 
