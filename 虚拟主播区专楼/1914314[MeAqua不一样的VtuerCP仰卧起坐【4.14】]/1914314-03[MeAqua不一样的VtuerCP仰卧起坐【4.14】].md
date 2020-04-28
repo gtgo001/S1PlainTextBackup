@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 14:01** 
+> ## **本文件最后更新于2020-04-28 18:01** 
 
 
 
@@ -8066,4 +8066,230 @@ mea组和aqua组贴贴！！！！！
 
 
 
-                                   
+
+
+-----
+
+####  闪刀姬  
+##### 3444#       发表于 2020-4-28 14:19
+
+
+
+
+我又是贴贴民了！！！！！！！（暂时）
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3445#       发表于 2020-4-28 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区别是明着反和暗着反，粉丝也在漆黑与纯白的舞台上对着起舞，贴贴呐（
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3446#       发表于 2020-4-28 16:22
+
+
+
+<img src="https://p.sda1.dev/0/da35adbc69cac678a2ca00789a004cc4/-69841561880a633e.jpg" referrerpolicy="no-referrer">抱歉，贴贴人就是挨我踩。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3447#       发表于 2020-4-28 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47233701&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-28 13:14</a>
+
+我的结论竟然被推翻了，竟然夸皇的评论区前几个都是贴贴，反而咩宝的评论区贴贴都被打压下去了，是不是有潭 ...</blockquote>
+贴贴人不一直都是crew为了正当化吸血行为给自己披上的伪装么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 3448#       发表于 2020-4-28 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236084&amp;ptid=1914314" target="_blank">yuandi20 发表于 2020-4-28 16:37</a>
+贴贴人不一直都是crew为了正当化吸血行为给自己披上的伪装么</blockquote>
+抱歉，还是有喜欢meaqua推mea的脑瘫的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3449#       发表于 2020-4-28 16:46
+
+
+
+
+是贴贴，是贴贴把人变成了鬼<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3450#       发表于 2020-4-28 16:48
+
+
+
+
+伪装成贴贴人的冠军粉可不是贴贴人哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3451#       发表于 2020-4-28 16:58
+
+
+
+
+《贴贴心理学之贴贴民巨魔说》
+
+贴贴人圈子里喜欢夹带私货不是一天两天了。
+
+有关mea和aqua即使是单人作品，同人图，就喜欢带一些向日葵，百合花，咩猫夸兔之类的二设。mea单人图就喜欢哪里戴个船锚吊坠，aqua单人图甚至holo全家福就喜欢哪里塞一个鱼板，露出一只白手套。
+
+关键他们对夹带私货的巧妙程度，技巧甚至都形成了一套艺术欣赏体系。单推人强行无视私货，只听歌的话正中贴贴人的下怀，让他们感觉自己夹带私货的巧妙。就比如上次han搞的那个夸单人曲题图，图像左右接合，猫象征咩猫，两人隔空牵手，按照贴贴人的评价水准绝对是夹带私货的上乘作品。
+
+夹带私货，可以说是对单推人的试探。这样的心理类似于钓鱼。拉钩重了？被喷了？下次就说得不明显一点，拉钩轻一点。如果有很多鱼上钩，那下次稍微拉钩重一点，试探试探这些鱼的眼力，底线如何。私货多了？被喷了？下次就少一点，用更隐晦的意像和二设在非贴贴作品中表达贴贴。单推人看不出来，夹带者就能享受到成功夹带的快乐，类似于成功钓鱼的快乐。大家看不出来，那就多加点要素试探试探单推人对贴贴的接受程度，拉钩重一点。
+
+因此，贴贴人看似身处在纯良粉丝簇拥，两主播支持，二创高产出的，一片阳光的正道上，但却做着比泥潭巨魔更巨魔的行为，内心早已被钓鱼心理腐化扭曲。贴贴创作者早已与泥潭最阴暗最令人讨厌的巨魔无异。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|你很有想法，来当管人粉丝吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3452#       发表于 2020-4-28 17:01
+
+
+
+
+泥潭又吞楼了？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3453#       发表于 2020-4-28 17:06
+
+
+
+
+你这么想贴贴人，你才是最高级的巨魔啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3454#       发表于 2020-4-28 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236565&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-28 17:06</a>
+
+你这么想贴贴人，你才是最高级的巨魔啊</blockquote>
+发散新思路，探索新理论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 3455#       发表于 2020-4-28 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236596&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-04-28 17:08:12</a>
+发散新思路，探索新理论</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有人比你更懂巨魔
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                                  

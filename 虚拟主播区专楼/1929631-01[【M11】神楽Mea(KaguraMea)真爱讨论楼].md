@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 14:09** 
+> ## **本文件最后更新于2020-04-28 18:10** 
 
 
 
@@ -9274,4 +9274,4533 @@ this game发过后就不怎么唱了啊</blockquote>
 
 
 
-                                
+
+
+-----
+
+####  专业划水人员  
+##### 531#       发表于 2020-4-28 14:31
+
+
+
+
+所以星川约的apex还搞不搞啊。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 532#       发表于 2020-4-28 14:34
+
+
+
+
+联动前应该会先私下练一阵子吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 533#       发表于 2020-4-28 14:34
+
+
+
+
+她apex最后一次玩还是四个月前，没改名
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 534#       发表于 2020-4-28 15:10
+
+
+
+
+听了听她最近唱的号哭，比以前好太多了，高音也上去了，越来越期待bls了（虽然还是遥遥无期）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 535#       发表于 2020-4-28 15:39
+
+
+
+ 本帖最后由 路人庚 于 2020-4-28 15:41 编辑 
+
+聊到号哭特地对比了一下18年的那一版，然后很不厚道的笑出了声（<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+20181116：[https://www.bilibili.com/video/BV1nt411m7KL](https://www.bilibili.com/video/BV1nt411m7KL)
+
+20200424：[https://www.bilibili.com/video/BV1aa4y147Fy](https://www.bilibili.com/video/BV1aa4y147Fy)
+
+
+
+
+
+
+
+
+-----
+
+####  驴子方舟  
+##### 536#       发表于 2020-4-28 15:46
+
+
+
+
+说是五一被萝卜籽搞炸了？有确切消息吗
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 537#       发表于 2020-4-28 15:50
+
+
+
+
+看了看新pv评论区，我快笑出来了。一直以来的努力没有白费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 538#       发表于 2020-4-28 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235369&amp;ptid=1929631" target="_blank">驴子方舟 发表于 2020-4-28 15:46</a>
+说是五一被萝卜籽搞炸了？有确切消息吗</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1930579-3-1.html](https://bbs.saraba1st.com/2b/thread-1930579-3-1.html)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 539#       发表于 2020-4-28 15:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235416&amp;ptid=1929631" target="_blank">贴杂司马 发表于 2020-4-28 15:50</a>
+看了看新pv评论区，我快笑出来了。一直以来的努力没有白费</blockquote>
+要不我怎么说黑暗贴贴人脱粪招人嫌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/3f9a09af739f2b66e9940e05aacbbd6b/IMG_20200428_155301.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 540#       发表于 2020-4-28 16:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">都是孽力回馈
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 541#       发表于 2020-4-28 16:09
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 15:55
+要不我怎么说黑暗贴贴人脱粪招人嫌</blockquote>
+之前官组承诺过减少私货，有些曲子只投二创组的号不投官号。现在改用联合投稿单人pv关联歌曲封面来带私货还有道理了么。。。而且这次投pv用萨尔名言形容还挺合适的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 542#       发表于 2020-4-28 16:11
+
+
+
+
+草， 你们可以换楼继续
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 543#       发表于 2020-4-28 16:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235478&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 15:55</a>
+要不我怎么说黑暗贴贴人脱粪招人嫌</blockquote>
+你的图我加载不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然贴贴人都给我死，最好我也死了，
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 544#       发表于 2020-4-28 16:14
+
+
+
+
+多大事，现在也没必要炒作这个问题了，形势变了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 545#       发表于 2020-4-28 16:14
+
+
+
+
+都M11了，你们不会还要车轱辘这些吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不如养精蓄锐准备等她起来一起熬
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 546#       发表于 2020-4-28 16:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235672&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:09</a>
+之前官组承诺过减少私货，有些曲子只投二创组的号不投官号。现在改用联合投稿单人pv关联歌曲封面来带私货 ...</blockquote>
+我倒觉得要是meaqua组发，官组转发会比较好
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但这是跑去搞事的理由吗，“你这作品发的形式不对，闹tm的”
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 547#       发表于 2020-4-28 16:16
+
+
+
+
+夹带私货还是挺明显的
+
+但夹带就夹带了呗，你能把他怎么样呢
+
+别去看就行了，你骂他显得你好像不占理似的
+
+mea可以想和舞元联动就和舞元联动，官组也可以想夹带私货就夹带私货，关观众什么事呢
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 548#       发表于 2020-4-28 16:18
+
+
+
+
+外面一万个贴贴楼、暗黑贴贴楼，你们喜欢打架的各路贴贴人能不能出去打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过聊到官组我就再复述一遍自己的观点：光喊口号改变不了官组，除非你自己进去着手引领改变，一般通过天狗可以做到的，你也可以做到，相信自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，归纳为形式问题可还行，这真的只是形式问题吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 549#       发表于 2020-4-28 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235761&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 16:16</a>
+夹带私货还是挺明显的
+
+但夹带就夹带了呗，你能把他怎么样呢
+
+别去看就行了，你骂他显得你好像不占理似的</blockquote>
+老哥看得透彻，这堆舔狗欺软怕硬，不敢骂mea，只敢追着粉丝咬，真的还不如贴贴人硬气<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX|-1||
+| 惑星|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 550#       发表于 2020-4-28 16:20
+
+
+
+[https://www.bilibili.com/video/BV1G64y1M7MV](https://www.bilibili.com/video/BV1G64y1M7MV)
+
+
+建议来听这个，恶心的东西不听不看，少让自己受点气吧。
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 551#       发表于 2020-4-28 16:22
+
+
+
+
+形势是大亏那首播放量比你咩高4000多
+
+
+我很不爽
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 552#       发表于 2020-4-28 16:23
+
+
+
+
+我觉得事到如此是种必然，热度的下滑导致不少人人心惶惶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，急是急了不解决问题，隔壁顺风顺水自然没啥事
+现在官组的想法比麻本人还捉摸不透，瞒怪的<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+所以还是不要当你麻的事业民啊
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 553#       发表于 2020-4-28 16:25
+
+
+
+
+在乎热度干嘛呢？mea自己都不是很在乎。
+
+况且现在红利期已过，除非你拿资本硬砸，不然也没有什么能让热度回升的操作。
+
+放宽心，凑合过吧。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 554#       发表于 2020-4-28 16:26
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:15
+我倒觉得要是meaqua组发，官组转发会比较好
+
+但这是跑去搞事的理由吗，“你这作品发的形式不对，闹 ...</blockquote>
+想让私货pv投二创组又没有反馈渠道，不就只能闹了，虽然闹了也没用。
+
+说起来因为这次事情我才知道han之前因为夸单人pv有很多贴贴评论而写了一些话，只能说不恶心到自己头上的时候人是无所谓的，咩单推被恶心这么多次一点办法都没有，han领导的二创组不就是那个推波助澜的么。这次二创组加大力度用分开的单人pv制糖，我觉得是在继续恶化环境
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 555#       发表于 2020-4-28 16:26
+
+
+
+ 本帖最后由 路人庚 于 2020-4-28 16:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这有啥可比性，木口那边箱推已成气候，mea再nb也只是一个人，播放量斗虫还是算了8
+
+
+syl，
+
+↑觉得恶化了环境的，有能力的自己进组引领黄金之风，没能力的努力上班打钱别看，空喊口号除了自己急自己没有任何实际作用
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 556#       发表于 2020-4-28 16:27
+
+
+
+[https://www.bilibili.com/video/BV1EK4y1b7aM](https://www.bilibili.com/video/BV1EK4y1b7aM)
+
+
+这个也不错，听点让人舒心的东西，日子还得过。
+
+哭也一天乐也一天，官组就随他们去吧
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 557#       发表于 2020-4-28 16:27
+
+
+
+ 本帖最后由 noaki 于 2020-4-28 16:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235672&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:09</a>
+
+之前官组承诺过减少私货，有些曲子只投二创组的号不投官号。现在改用联合投稿单人pv关联歌曲封面来带私货 ...</blockquote>
+减少这个…我记得这个是由画师来决定的，你画师真要加了官组总不可能给你pass了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看了一眼，这个算萨尔哥没了后pv组在官号上的出山之作，在这之前倒是已经很久没出现过这样的“私货”了
+
+
+
+题外话顺便提一嘴，我感觉还是很平衡的，在夸那边最近两个贴贴组参与的pv都有大量画师私货，某画师还特地为因此造成的评论区大规模贴贴发生动态诉苦…所以我现在感觉良好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+剩下的还是不要在这楼提了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 558#       发表于 2020-4-28 16:27
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-28 16:25
+在乎热度干嘛呢？mea自己都不是很在乎。
+
+况且现在红利期已过，除非你拿资本硬砸，不然也没有什么能让热度回 ...</blockquote>
+mea不在乎，官组不在乎，普通粉丝自然没什么好在乎的，说的很对
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 559#       发表于 2020-4-28 16:28
+
+
+
+
+没想到突然来一波造势，明明两人都没什么意向，只能说忠于欲望是好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 560#       发表于 2020-4-28 16:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">she怕不是被夺舍了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 561#       发表于 2020-4-28 16:29
+
+
+
+
+多在乎她自己就行了（指给她打钱为她做事
+
+多余的不想说了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 562#       发表于 2020-4-28 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235795&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-28 16:18</a>
+外面一万个贴贴楼、暗黑贴贴楼，你们喜欢打架的各路贴贴人能不能出去打
+
+
+不过聊到官组我就再复述一 ...</blockquote>
+这不就是形式问题么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚才我看看meaqua组几个不是合作投稿的数字也挺好看，还没人吵架
+但拿歌曲封面关联来出警这不是搞事么，这么说mea以后得主动避开隔壁的东西？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 563#       发表于 2020-4-28 16:30
+
+
+
+
+she大约的确被夺舍了，那个模型师小明的投稿我还没看过，挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 564#       发表于 2020-4-28 16:30
+
+
+
+
+只能说最近形式不好，还是因为疫情搞得ddd bls都不行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，估计不少人憋着一股气
+有人害怕热度真的下去后被黑子小鬼彻底撕了，然而选择权在她手上不是吗
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 565#       发表于 2020-4-28 16:33
+
+
+
+
+你麻一个小小个人势何德何能和如日中天的大企业木口比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是在夹缝中艰难求存，没被挤下去就不错了
+
+企业势斗虫拼业绩，你麻凑什么热闹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 566#       发表于 2020-4-28 16:34
+
+
+
+
+热度下去了反而就不会有小鬼了，黑子也因为没有小鬼所以找不到什么茬了
+
+
+反正vtb现在就是比圈钱和烂，这点倒不是问题。问题是热度下去了我怕她恰钱恰不够
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 567#       发表于 2020-4-28 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">担心这些还不如担心下她最近的状态
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 568#       发表于 2020-4-28 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235913&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:26</a>
+想让私货pv投二创组又没有反馈渠道，不就只能闹了，虽然闹了也没用。
+
+说起来因为这次事情我才知道han之前 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">到底什么叫恶化环境
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 569#       发表于 2020-4-28 16:35
+
+
+
+
+我过去急也好，纠结也好，是因为她确实还有转机。
+
+但现在万事休矣，那还急什么呢？
+
+就好像家里孩子高考都考完了，落榜了，你着急了，追问孩子为什么当初不好好学习，就挺没劲的。不如让孩子愿意做点什么就做点什么，上个大专也好，去工地也好，又不是不能活。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 570#       发表于 2020-4-28 16:36
+
+
+
+<blockquote>noaki 发表于 2020-4-28 16:27
+减少这个…我记得这个是由画师来决定的，你画师真要加了官组总不可能给你pass了吧
+
+看了一眼，这个 ...</blockquote>
+han那个不是自己的问题吗，加了私货就别怪别人提的多，虽然用的是之前的fanart。另外sparkle为什么是唯一一个带了私货的作品，还不是因为官组没人做pv。当初看到投手在踢走萨尔的动态下面说闲了，han说还有计划的时候其实我内心还挺期待的。但期待两个月等出来这种“单人”pv，我只能安慰自己有产出总比没产出好了，而且这些“计划”的产能估计也没几个是咩姐单人的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 571#       发表于 2020-4-28 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235959&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-4-28 16:29</a>
+多在乎她自己就行了（指给她打钱为她做事
+
+多余的不想说了</blockquote>
+其实我一直想问的是，之前记者说不想好作品被影响所以会删评论<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">v8炸了之后钓鱼的评论多了不少，有没有打算把这种钓鱼出警的评论删了啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 572#       发表于 2020-4-28 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">事到如今喊口号有什么意义吗，喊打到暗黑贴贴人他们也不会少，因为他们疯了；喊打到贴贴人他们也不会少，因为他们忠于自己的欲望；喊求同存异也不会增加纯良，因为所有人都是从纯良过来的。看戏就完事了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 573#       发表于 2020-4-28 16:38
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:34
+到底什么叫恶化环境</blockquote>
+han自己抱怨完单人pv刷贴贴的问题，反手又让二创组出这种联动糖的pv投稿在官号上，这难道不是恶化环境吗
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 574#       发表于 2020-4-28 16:38
+
+
+
+
+保持热度还是很重要的，你看贴贴组可是用行为阐释了其重要性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，变成死水可就完了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 575#       发表于 2020-4-28 16:39
+
+
+
+<blockquote>Ky·Kiske 发表于 2020-4-28 16:34
+热度下去了反而就不会有小鬼了，黑子也因为没有小鬼所以找不到什么茬了
+
+
+反正vtb现在就是比圈钱和烂，这点 ...</blockquote>
+路人黑无所谓的，但一直咬着咩姐不放的黑子可不少
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 576#       发表于 2020-4-28 16:39
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-28 16:45 编辑 
+
+可你又不是孩子家长啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人家去哪打工本来就不关你事
+
+而且人家就是想去打工不想上大学，你还要心里念一句“烂泥扶不上墙”然后一直和别人宣传这孩子怎么怎么不可教也吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 577#       发表于 2020-4-28 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236098&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:38</a>
+han自己抱怨完单人pv刷贴贴的问题，反手又让二创组出这种联动糖的pv投稿在官号上，这难道不是恶化环境吗 ...</blockquote>
+可这次pv和han都没啥关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">（从staff看的）
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 578#       发表于 2020-4-28 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236098&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:38</a>
+
+han自己抱怨完单人pv刷贴贴的问题，反手又让二创组出这种联动糖的pv投稿在官号上，这难道不是恶化环境吗 ...</blockquote>
+《双标》
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 579#       发表于 2020-4-28 16:41
+
+
+
+<blockquote>路人庚 发表于 2020-4-28 16:26
+这有啥可比性，木口那边箱推已成气候，mea再nb也只是一个人，播放量斗虫还是算了8
+
+
+syl，
+</blockquote>
+但不管怎么规避，总有你没法规避、不看的，所以我一直强调环境的重要性
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 580#       发表于 2020-4-28 16:42
+
+
+
+
+有句讲句，han虽然本质铁血crew，但是她画起画来不算夹私货多的那种，这次PV的画师耀，才是典型的连体脑瘫<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 581#       发表于 2020-4-28 16:42
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:39
+可这次pv和han都没啥关系啊（从staff看的）</blockquote>
+han不一直是二创组的组长吗？我记错了？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 582#       发表于 2020-4-28 16:42
+
+
+
+
+这次的pv除了找pv组组外画师约了曲绘外，两边staff没什么重合吧
+
+你不把它当贴贴pv看它就是个单纯的单人pv
+
+当然评论区刷太多贴贴确实很弱智
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 583#       发表于 2020-4-28 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47235966&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 16:29</a>
+
+这不就是形式问题么刚才我看看meaqua组几个不是合作投稿的数字也挺好看，还没人吵架
+
+但拿歌曲封面 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抱歉，二创组取关很久了，根本不知道那些播放量有多少
+
+
+
+传统艺能“不患寡而患不均”，已经见得太多了，不过这块还真没什么第三方来主持公道，要怪就怪几个二创大手子都是贴贴人8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 584#       发表于 2020-4-28 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236118&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 16:39</a>
+
+可你又不是孩子家长啊</blockquote>
+是啊，所以现在更没必要急了。
+
+因为<strong>不论如何，mea的热度都回不来了</strong>
+
+1840年的时候为大清急一下还行，都20世纪了才开始急，那也就只能干着急了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 585#       发表于 2020-4-28 16:43
+
+
+
+<blockquote>ReinH 发表于 2020-4-28 16:42
+有句讲句，han虽然本质铁血crew，但是她画起画来不算夹私货多的那种，这次PV的画师耀，才是典型的连体脑瘫[ ...</blockquote>
+所以han那次才会抱怨啊，有些画师估计巴不得私货被找出来然后大家都刷贴贴吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 586#       发表于 2020-4-28 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236160&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:42</a>
+han不一直是二创组的组长吗？我记错了？</blockquote>
+我还真不知道她是不是，不过这能算虚空出警吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 587#       发表于 2020-4-28 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236146&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:41</a>
+
+但不管怎么规避，总有你没法规避、不看的，所以我一直强调环境的重要性 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不参与管理无法改变环境，就算你财布20也不可能准确带领每一个投稿的风向，所以要么进去干活，要么佛系心态
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 588#       发表于 2020-4-28 16:45
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-28 16:42
+这次的pv除了找pv组组外画师约了曲绘外，两边staff没什么重合吧
+
+你不把它当贴贴pv看它就是个单纯的单人pv
+
+ ...</blockquote>
+耀是二创组组内画师吧。。。咩那边那个mix我还挺好奇的，不知道是二创组的还是咩组的
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 589#       发表于 2020-4-28 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236112&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:39</a>
+
+路人黑无所谓的，但一直咬着咩姐不放的黑子可不少</blockquote>
+本质上是眼红地位
+
+地位没了你看他们还疯狗吗，不继续对着自家主子去舔了
+
+
+你咩一直是被波及的多，真盯着黑的现在很少了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 590#       发表于 2020-4-28 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236154&amp;ptid=1929631" target="_blank">ReinH 发表于 2020-4-28 16:42</a>
+有句讲句，han虽然本质铁血crew，但是她画起画来不算夹私货多的那种，这次PV的画师耀，才是典型的连体脑瘫[ ...</blockquote>
+耀我感觉挺好的啊，虽然是贴贴人，画单人图的时候也都挺正常的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 591#       发表于 2020-4-28 16:46
+
+
+
+
+我现在连她打算播几年都不知道，更不知道她要干嘛，这也算她魅力所在了
+
+今天这次只能算意外引爆吧，别给自己种梁木了
+贴贴组能放出视频就是好事，怎么说比没有强吧
+
+还是希望v8赶紧选出吧主，这段时间真心培养出了不少小鬼，再出几个星姐kiss实在是太恶心人了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 592#       发表于 2020-4-28 16:46
+
+
+
+
+能不能别在这热度热度的了，我看她赚的钱也没少多少，别再祥林嫂了求你了。
+
+引战和造谣一直在删，但是我只能把握在最低限度。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 593#       发表于 2020-4-28 16:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236212&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:45</a>
+
+耀是二创组组内画师吧。。。咩那边那个mix我还挺好奇的，不知道是二创组的还是咩组的 ...</blockquote>
+单独挂在联合投稿里的，所以不是组内的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 594#       发表于 2020-4-28 16:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 595#       发表于 2020-4-28 16:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236212&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:45</a>
+耀是二创组组内画师吧。。。咩那边那个mix我还挺好奇的，不知道是二创组的还是咩组的 ...</blockquote>
+是mea组还是二创组有意义吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好像在评论里闹是在精确打击一样
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 596#       发表于 2020-4-28 16:48
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:44
+我还真不知道她是不是，不过这能算虚空出警吗</blockquote>
+什么虚空出警，不是很懂意思
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 597#       发表于 2020-4-28 16:50
+
+
+
+
+越是重复说她热度没了热度没了，只能越证明你心里还是放不下这道坎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+真正看开的话不会在这一次次自我麻醉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这叫啥，暗黑事业民吗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 598#       发表于 2020-4-28 16:50
+
+
+
+
+这话说的是真的，有一技之长的话都去加加官组试试，别一开始就戴上了有色眼镜再去看。
+
+我现在pr还都只会简单操作呢，比我强的肯定有的是。
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 599#       发表于 2020-4-28 16:51
+
+
+
+
+给个建议，删的时候要谨慎，不然到时候又给一个控评、春秋笔法之类帽子，那可受不起。
+实在不行就乱斗算了
+我倒是觉得这次pv内容没啥毕竟是二创，只是操作引起了一些人ptsd
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 600#       发表于 2020-4-28 16:51
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:47
+是mea组还是二创组有意义吗好像在评论里闹是在精确打击一样</blockquote>
+不闹官组也不会管吧，上次Halloween闹完才承诺减少私货的，按闹分配在现在的官号管理模式下是无奈选择。mix是哪个组的确实没意义，我个人好奇而已，区别应该只有到时候是不是联合投稿以及后面可能的单人pv进度
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 601#       发表于 2020-4-28 16:51
+
+
+
+
+其实就评论区炸了。中午两个论坛都没什么反应，这评论区就很怪。
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 602#       发表于 2020-4-28 16:52
+
+
+
+
+该干嘛干嘛去吧，去看看海盗的熟肉，歌回的剪辑，官号的录播，哪个不比对着官组的这个烂pv闹心强。
+
+龙魂是暗黑暗黑贴贴人，每当有这种事的时候他是最兴奋的，因为又有帽子可以扣了。
+
+持续battle什么结果都没有，就是等于在给他撸一样。
+
+希望以后不会再有暗黑暗黑暗黑贴贴人，暗黑暗黑暗黑暗黑贴贴人形成套娃。
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 603#       发表于 2020-4-28 16:52
+
+
+
+
+草 竟然有这么多种套娃，笑死我了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 604#       发表于 2020-4-28 16:53
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-28 16:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236318&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:51</a>
+不闹官组也不会管吧，上次Halloween闹完才承诺减少私货的，按闹分配在现在的官号管理模式下是无奈选择。m ...</blockquote>
+可管的到底是啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">逮着点就闹，我看以后就是要你mea姐的一切都得主动想着避开隔壁才行
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 605#       发表于 2020-4-28 16:53
+
+
+
+
+今天看评论好多346字母评论都没快速删掉也算是打起来的原因之一吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 606#       发表于 2020-4-28 16:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236329&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 16:52</a>
+该干嘛干嘛去吧，去看看海盗的熟肉，歌回的剪辑，官号的录播，哪个不比对着官组的这个烂pv闹心强。
+
+龙魂是 ...</blockquote>
+原来我这种时候是最兴奋的时候<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可能吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 607#       发表于 2020-4-28 16:54
+
+
+
+<blockquote>2014720 发表于 2020-4-28 16:53
+今天看评论好多346字母评论都没快速删掉也算是打起来的原因之一吧</blockquote>
+是的，有黑称的评论应该第一时间删
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 608#       发表于 2020-4-28 16:55
+
+
+
+
+这些ntplus的出现大概只能说v8功不可没了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 609#       发表于 2020-4-28 16:56
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:53
+可管的到底是啥</blockquote>
+比如你前面所说让二创组单独投稿然后官号转发就是可管理的，但他们这次想造私货，自然不可能按你说的做
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 610#       发表于 2020-4-28 16:57
+
+
+
+
+暗黑贴贴是一种梁木
+
+暗黑暗黑贴贴亦是一种梁木
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 611#       发表于 2020-4-28 16:58
+
+
+
+
+不过我可以分享一下我心态良好的秘诀：
+
+①所有联动一律不看
+
+②当视频中可能出现六字母要素时，一律不看
+
+③当关注者中出现vtb观众时，立刻取关。
+
+④不要关注VTB观众
+
+⑤做一个异度侵入里的反向洞哥，尽量让自己患上数字认知障碍。
+
+⑥实在不爽的时候，去杀虹人
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 612#       发表于 2020-4-28 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236363&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-28 16:53</a>
+
+今天看评论好多346字母评论都没快速删掉也算是打起来的原因之一吧</blockquote>
+我现在的情况不能一直在评论区……
+
+没办法快速准确的找到引战评论的……
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 613#       发表于 2020-4-28 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236405&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 16:56</a>
+比如你前面所说让二创组单独投稿然后官号转发就是可管理的，但他们这次想造私货，自然不可能按你说的做 ...</blockquote>
+你看上面有人说我在扣帽子，可我觉得你这才算扣帽子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+虽然我自己也觉得单独发然后转发更好一点，不过联合投稿了也没必要开始揣测什么塞私货啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">单独发不也是一样的私货么
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 614#       发表于 2020-4-28 16:59
+
+
+
+
+15w到底纪念过没。有点忘了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 615#       发表于 2020-4-28 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236469&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-4-28 16:59</a>
+15w到底纪念过没。有点忘了</blockquote>
+没说吧
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 616#       发表于 2020-4-28 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236469&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-4-28 16:59</a>
+
+15w到底纪念过没。有点忘了</blockquote>
+不是发了个PV吗？纪念直播还没搞呢
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 617#       发表于 2020-4-28 17:00
+
+
+
+
+没有，过15w后甚至没在自己频道出现过
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 618#       发表于 2020-4-28 17:00
+
+
+
+ 本帖最后由 专业划水人员 于 2020-4-28 17:03 编辑 
+
+说实话不知道有多少乐子人是直奔评论区的。双开精神分裂估计也有一堆。v8没被盖好前真希望管组别搞骚操作了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 619#       发表于 2020-4-28 17:01
+
+
+
+<blockquote>zhicai618 发表于 2020-4-28 16:59
+15w到底纪念过没。有点忘了</blockquote>
+只投了纪念曲
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 620#       发表于 2020-4-28 17:01
+
+
+
+
+我觉得根本问题是“如果我没看隔壁，那这不就是个单人PV”
+
+
+又不是合唱，曲子都不是同一首，为什么非得贴
+
+
+就因为画师？
+
+这还不够虚空？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 621#       发表于 2020-4-28 17:01
+
+
+
+
+现在没有专人管评论区吗，我觉得得有一个，到时丢锅也轻松点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 622#       发表于 2020-4-28 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236467&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 16:59</a>
+
+你看上面有人说我在扣帽子，可我觉得你这才算扣帽子
+
+虽然我自己也觉得单独发然后转发更好一点，不 ...</blockquote>
+你到现在还给官组洗地值得么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，这次的私货塞的一眼就能看出来，不然评论区能吵成这样？
+
+等等，你是不是只关注了mea没关注aqua，那确实看不出来。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 623#       发表于 2020-4-28 17:03
+
+
+
+
+这么浓的cp味道说仅仅是单人曲说不过去啊
+还是得自己拔梁木，当萌萌人
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 624#       发表于 2020-4-28 17:04
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 16:59
+你看上面有人说我在扣帽子，可我觉得你这才算扣帽子
+
+虽然我自己也觉得单独发然后转发更好一点，不 ...</blockquote>
+如果你不觉得这算是想造私货的操作那我没什么好说的了，之前官组承诺要减少私货，如果有私货就不联合投稿，所以他们联合投稿用这种拐弯抹角的方式就合理了吗？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 625#       发表于 2020-4-28 17:05
+
+
+
+
+该不是不想玩恐怖游戏就不搞纪念了吧。。虽然我确实挺期待恐怖游戏的。
+刚才看了个剪辑如月说一直唱歌就完美了结合犬山说杂谈完美。能再来个熊说玩游戏完美了么？
+“我们分了她吧”
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 626#       发表于 2020-4-28 17:05
+
+
+
+
+这波是钓鱼，让你睁开了你发现贴贴的眼睛
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 627#       发表于 2020-4-28 17:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236519&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-4-28 17:02</a>
+你到现在还给官组洗地值得么，这次的私货塞的一眼就能看出来，不然评论区能吵成这样？
+
+等等，你是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你说这次是不是就是“我觉得有私货，所以要闹”，然后更进一步就该mea避开所有隔壁相关了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 628#       发表于 2020-4-28 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236519&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-4-28 17:02</a>
+
+你到现在还给官组洗地值得么，这次的私货塞的一眼就能看出来，不然评论区能吵成这样？
+
+等等，你是 ...</blockquote>
+原来这地方还真有人关注aqua？
+
+我也没关注。但这也不是看不出夹带私货的理由
+
+其实夹带了就夹带了，这也没什么可辩驳的。
+
+官组发之前会想不到有这个结果吗？肯定想到了，但就是要发。
+
+就好像mea和舞元联动前会想不到粉丝不爽吗？肯定想到了，但就是要搞。
+
+这就是自由的人生。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 629#       发表于 2020-4-28 17:08
+
+
+
+
+那也别杀官组了
+
+
+弹幕评论出警虚空贴贴人请——但这种做法又着实在败坏环境
+
+
+最后还是得打入内部大权在握啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 630#       发表于 2020-4-28 17:09
+
+
+
+
+又要清君侧了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+大萌药丸啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 631#       发表于 2020-4-28 17:09
+
+
+
+
+我的意思反正就是无论如何不想人在她评论区吵架。
+
+如果我能一直看着就好了，我肯定在第一时间已经就删掉挑事的了。
+
+无论是抱怨贴贴评论被点踩的，还是抱怨官组又虚空制糖了的。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 632#       发表于 2020-4-28 17:09
+
+
+
+
+又是舞元又是舞元又是舞元
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 633#       发表于 2020-4-28 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236549&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-4-28 17:05</a>
+
+该不是不想玩恐怖游戏就不搞纪念了吧。。虽然我确实挺期待恐怖游戏的。
+
+刚才看了个剪辑如月说一直唱歌就完 ...</blockquote>
+为什么不一边玩游戏一边唱歌然后唱歌间隙杂谈呢？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 634#       发表于 2020-4-28 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236544&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:04</a>
+如果你不觉得这算是想造私货的操作那我没什么好说的了，之前官组承诺要减少私货，如果有私货就不联合投稿 ...</blockquote>
+我问了好几遍了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种程度的彩蛋都在mea这都算不合理，那mea是不是不能和隔壁扯上一点关系呢，这你能回答一下么，这警察管的也太宽了一点吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 635#       发表于 2020-4-28 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">提到舞咩我就想说了，她硬是要搞这个第一是想蹭热度，第二八成是不想当虚拟陪酒女的心理在作祟
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 636#       发表于 2020-4-28 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了，又是我最爱的天狗逼宫mea了，什么时候又给mea塞怪文书
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 637#       发表于 2020-4-28 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236633&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:10</a>
+我问了好几遍了这种程度的彩蛋都在mea这都算不合理，那mea是不是不能和隔壁扯上一点关系呢，这你 ...</blockquote>
+mea自己扯上关系欢迎，字幕组越俎代庖扯上关系反对。就这么简单。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 638#       发表于 2020-4-28 17:14
+
+
+
+
+某囧的G点太低了，每次都能被触发，把楼里人都看湿了      <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 639#       发表于 2020-4-28 17:14
+
+
+
+
+还真是kpi密码。。
+别轱辘了说说mea不好吗？就是因为你们天天打架才有热度啊。。
+官组作为没人指导跌跌撞撞的也还挺好了，小错有点没大错还挺可靠的。
+没必要去评论区闹啊点个踩就完事了。
+我不喜欢我点踩了被踩的不高兴非要按头赞同自己的意见才是傻吧。。贴贴和单推都是mea的粉丝，发表下意见挺正常的，但是非要按着对面脑袋承认自己是对的很蠢的，谁能夺走别人按键盘的权利呢？默默的点个踩走人就是了，喜欢的评论给个赞。
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 640#       发表于 2020-4-28 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">LOL联动就很合理啊。无中生有就是不合理，多简单的事
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 641#       发表于 2020-4-28 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236675&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-4-28 17:13</a>
+mea自己扯上关系欢迎，字幕组越俎代庖扯上关系反对。就这么简单。
+
+—— 来自 HUAWEI VOG-AL00, Android  ...</blockquote>
+mea自己扯上关系的时候闹得少吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 642#       发表于 2020-4-28 17:14
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:06
+你说这次是不是就是“我觉得有私货，所以要闹”，然后更进一步就该mea避开所有隔壁相关了 ...</blockquote>
+还洗呢，上面对你这个暗黑暗黑贴贴人的评价真的没错，官组几次这种可以好好单独投个pv情况，他们都选择用带私货、有争议的方式进行。至于避嫌也是正常避嫌，尤其考虑到最近v8环境造成的大批乐子人出没。联动视频联合投稿有人闹吗？正常不带私货的pv联合投稿有人闹吗？官号一意孤行，绕着弯子恶心人，han自己可以抱怨几句，我们不能抱怨几句？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 643#       发表于 2020-4-28 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236614&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-4-28 17:09</a>
+我的意思反正就是无论如何不想人在她评论区吵架。
+
+如果我能一直看着就好了，我肯定在第一时间已经就删掉挑 ...</blockquote>
+现在她的评论区怎么可能不吵，天狗又不是crew<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+我觉得让大家集火小鬼才是关键<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 644#       发表于 2020-4-28 17:16
+
+
+
+
+不在评论区说就随便<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 645#       发表于 2020-4-28 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236633&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:10</a>
+
+我问了好几遍了这种程度的彩蛋都在mea这都算不合理，那mea是不是不能和隔壁扯上一点关系呢，这你 ...</blockquote>
+你还是没懂，问题不在于你眼前这几个，或者评论区那一堆反对夹带六字母要素的人。
+
+而是在于这个对立情形已经客观存在了，官组非但不避其锋芒，仍然一意孤行地就是要发私货。
+
+这很显然就是一种“爷不在乎打不打的起来，也不在乎会不会引战，爷就是要爽”的态度。
+
+
+但这种态度有错吗？也说不上有错。毕竟手长在他身上，他想做什么就做什么。
+
+这种只顾自己腚眼痛快的做法，官组已经不是第一次了，但跟某些下场对线的虹组比，官组又很克制。
+
+人往低处走，水往低处流，还是得往下看。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 646#       发表于 2020-4-28 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236686&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:14</a>
+还洗呢，上面对你这个暗黑暗黑贴贴人的评价真的没错，官组几次这种可以好好单独投个pv情况，他们都选择用 ...</blockquote>
+扣我帽子和she达成一致了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说说还不行吗
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 647#       发表于 2020-4-28 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236628&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:09</a>
+为什么不一边玩游戏一边唱歌然后唱歌间隙杂谈呢？</blockquote>
+太难了做不到的。就拿lol能做到对线的时候精准解说操作，无聊的发育期找话题杂谈，胜利或者失败或赢团输团都来个歌抒发自己的心情么？联动可能会有，单人的话mea单线程顶不住的。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 648#       发表于 2020-4-28 17:18
+
+
+
+
+舞咩在我看来，是她眼中风险最低的bg营业，毕竟舞元常年薪王定位，没什么人会当真，自己的粉丝应该也不会过度抵触。
+
+当然实际操作下来她自己的发挥和粉丝的反应不一定如愿
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 649#       发表于 2020-4-28 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论区两边带节奏的sb不少，换了ID都能看出来发言风格很类似，你们搁这认真讨论操作是否合理纯属被钓上了，虽说苍蝇不叮无缝的蛋，但这蛋有缝了该怎么办在这聊不出任何结果
+
+
+syl，我最开始就是看了她的LOL剪辑觉得这女人有意思的，姑且算一个“游戏完美”民
+
+
+zsyl，舞元那活其实我感觉没什么太复杂的心理动机，无非是你咩姐从万圣节合唱之后就觉得这人有点好玩，然后苔苔推了一手就联动了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 650#       发表于 2020-4-28 17:19
+
+
+
+
+怎么又开始五元了，他是你和犬山的爹吗
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 651#       发表于 2020-4-28 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236729&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-4-28 17:17</a>
+
+太难了做不到的。就拿lol能做到对线的时候精准解说操作，无聊的发育期找话题杂谈，胜利或者失败或赢团输 ...</blockquote>
+其实可以LOL歌回
+
+开始先来一局LOL，然后根据这局LOL死的次数决定自己唱几首歌。
+
+那不爽吗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 652#       发表于 2020-4-28 17:20
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-28 17:18
+舞咩在我看来，是她眼中风险最低的bg营业，毕竟舞元常年薪王定位，没什么人会当真，自己的粉丝应该也不会过 ...</blockquote>
+一开始确实是如此，后面咩姐显然没有规划好，还有没兴致的舞元和不分场合嗯拱火的海苔男
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 653#       发表于 2020-4-28 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236713&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:16</a>
+你还是没懂，问题不在于你眼前这几个，或者评论区那一堆反对夹带六字母要素的人。
+
+而是在于这个对立情形 ...</blockquote>
+实不相瞒，我觉得这种屁大点的事就要开始闹的人不值得被在乎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">今日闹官组，明日闹本人，至死方休？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 654#       发表于 2020-4-28 17:20
+
+
+
+
+还有啊，接受投稿是因为质量够好，不是因为可以虚空制糖。之前不就有个人和官组联合投了fans吗。
+
+说真的，我真希望能有高质量单人pv投稿。
+
+甚至就直接进组做pv更好……
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 655#       发表于 2020-4-28 17:20
+
+
+
+
+谁又一转舞元了？
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 656#       发表于 2020-4-28 17:20
+
+
+
+
+我感觉这波是各方都求仁得仁啊，官组发二创爽了，贴贴壬贴贴爽了，单腿人评论爽了，乐子人钓鱼爽了，毕竟各方从一开始就对结果有一些预见**。要说谁不会爽，确实可能只有mea了吧。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 657#       发表于 2020-4-28 17:22
+
+
+
+
+说不定mea也进去钓鱼了 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 658#       发表于 2020-4-28 17:22
+
+
+
+
+我很不爽，说实话。
+
+我本来听着歌听的好好的补着报告，寻思看看评论结果又tm开始了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 659#       发表于 2020-4-28 17:22
+
+
+
+<blockquote>JustW 发表于 2020-4-28 17:20
+我感觉这波是各方都求仁得仁啊，官组发二创爽了，贴贴壬贴贴爽了，单腿人评论爽了，乐子人钓鱼爽了，毕竟各 ...</blockquote>
+真会有人评论爽了？
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 660#       发表于 2020-4-28 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236771&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:20</a>
+
+实不相瞒，我觉得这种屁大点的事就要开始闹的人不值得被在乎今日闹官组，明日闹本人，至死方休？ ...</blockquote>
+你这话就错了。
+
+你觉得“屁大点事”，所以这些人不用被在乎，都赶走就行。
+
+但这些人是她的核心观众，很多是给她稳定打钱的重要资金来源
+
+激发矛盾引起的环境恶化，还有这些人被逼走后的收入空缺，你能用SC给补上吗？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+你补不上，官组也补不上，但是：不管可能出现的问题有多大，我现在就是要爽
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 661#       发表于 2020-4-28 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那结论不就是谁都没有考虑mea的感受么。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 662#       发表于 2020-4-28 17:23
+
+
+
+
+她不敢找金发小男孩联动、专门找了个职业被烧30年形象还是个大叔的舞元搞bg营业试试水，结果都要为了怪文书单独开一次直播谢罪，那我真不敢想象这人要真接受金发小男孩的联动邀请再续前缘会是什么结果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 663#       发表于 2020-4-28 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">she是最先提舞元的
+
+
+syl，钓鱼人看着这副盛况不是乐到原地高潮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 664#       发表于 2020-4-28 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236821&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 17:23</a>
+她不敢找金发小男孩联动、专门找了个职业被烧30年形象还是个大叔的舞元搞bg营业试试水，结果都要为了怪文书 ...</blockquote>
+金发小男孩不可能联动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人和自己cp打的火热，找前女友干啥啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 665#       发表于 2020-4-28 17:25
+
+
+
+
+那钓鱼人早高潮脱水致死了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 666#       发表于 2020-4-28 17:25
+
+
+
+
+特供直播都快搞不下去的cp真的还有贴的必要吗，咋就有些人就看不懂形势呢，两边的单人直播那么多好内容不整非要栓死在这棵树上，可能很多人眼里她们只有贴贴的价值了呗，没有也要整点虚空贴的内容
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 667#       发表于 2020-4-28 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236739&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-4-28 17:18</a>
+舞咩在我看来，是她眼中风险最低的bg营业，毕竟舞元常年薪王定位，没什么人会当真，自己的粉丝应该也不会过 ...</blockquote>
+五元和司会的皮。。太不符合我审美了。第一印象就觉得不太行，然后mea单方面搞事五元不接挺尴尬的。。uno那次就有点意思了。前面几次差评uno好评。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 668#       发表于 2020-4-28 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236781&amp;ptid=1929631" target="_blank">JustW 发表于 2020-4-28 17:20</a>
+我感觉这波是各方都求仁得仁啊，官组发二创爽了，贴贴壬贴贴爽了，单腿人评论爽了，乐子人钓鱼爽了，毕竟各 ...</blockquote>
+好处粉头拿走，坏处主播收下，官组，你好强大。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 669#       发表于 2020-4-28 17:26
+
+
+
+
+拱火卵用的很多啊，她不接应该是出于不给对方添麻烦的考虑吧， 毕竟卵用那边绑定cp营业得正火热
+
+我觉得她很多事考虑时的第一出发点都是不给对方添麻烦，包括和阿夸<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 670#       发表于 2020-4-28 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236813&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:23</a>
+你这话就错了。
+
+你觉得“屁大点事”，所以这些人不用被在乎，都赶走就行。
+
+但这些人是她的核心观众，很多 ...</blockquote>
+会嗷嗷叫着闹其他观众的“核心观众”，这就是曾经顺劈黄兔子时所说的那批最排外的粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 671#       发表于 2020-4-28 17:26
+
+
+
+
+这人的态度之前就说过了啊，希望喜欢mea的人不要打架
+
+所以你看现在打架的很明显都是不喜欢mea的人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（半圆式论证）
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 672#       发表于 2020-4-28 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236814&amp;ptid=1929631" target="_blank">上坂蓮華 发表于 2020-4-28 17:23</a>
+
+那结论不就是谁都没有考虑mea的感受么。</blockquote>
+答对了，大火儿都顾着自己的腚眼爽，谁也没在乎海对面那吊人如何想。
+
+不过最先不在乎的，想自己爽爽的是她最信任的官组，除了好玩我也说不出啥。<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+就，挺好的，反正都这样了，想玩点啥玩点啥吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 673#       发表于 2020-4-28 17:27
+
+
+
+
+别车官组了，我觉得麻和官组现在的情况55开好吧
+cp只能说她和五元效果不行（谢罪回还行），但是现在还有几个能联动的呢
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 674#       发表于 2020-4-28 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236842&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-4-28 17:25</a>
+特供直播都快搞不下去的cp真的还有贴的必要吗，咋就有些人就看不懂形势呢，两边的单人直播那么多好内容不整 ...</blockquote>
+这俩人关系挺好的啊。但是路线差的太远了，而且都不想拿个人感情出来消费。我觉得都挺好。。是粉丝过于狂热了。不过也没办法。对我来说观感最好的是去年8月半夜lol突击联动吧，其他的都不行。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 675#       发表于 2020-4-28 17:28
+
+
+
+
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不接meakou的不是卯月那边吗，人都有自己的营业了，难道是我记错了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 676#       发表于 2020-4-28 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">五元不行，哈哥行，快去请哈哥
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 677#       发表于 2020-4-28 17:28
+
+
+
+
+确实是那边不接的，以前邀请过，被拒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 678#       发表于 2020-4-28 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236889&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-28 17:28</a>
+五元不行，哈哥行，快去请哈哥</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 679#       发表于 2020-4-28 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236887&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:28</a>
+
+不是不接meakou的不是卯月那边吗，人都有自己的营业了，难道是我记错了 ...</blockquote>
+金发小男孩好几次说了想找你麻联动，拒绝的是你麻那边
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 680#       发表于 2020-4-28 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236887&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:28</a>
+不是不接meakou的不是卯月那边吗，人都有自己的营业了，难道是我记错了 ...</blockquote>
+是卵用那边啊，不过那边拱火的也确实多。总能蹦出来一两条，笑死了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 681#       发表于 2020-4-28 17:29
+
+
+
+<blockquote>yanghaozhend 发表于 2020-4-28 17:26
+答对了，大火儿都顾着自己的腚眼爽，谁也没在乎海对面那吊人如何想。
+
+不过最先不在乎的，想自己爽爽的是 ...</blockquote>
+是的，官组成员对她负有责任都是这种儿戏态度
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 682#       发表于 2020-4-28 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236897&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 17:29</a>
+
+金发小男孩好几次说了想找你麻联动，拒绝的是你麻那边</blockquote>
+草，我听到的版本怎么和你这个相反
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 683#       发表于 2020-4-28 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236862&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:26</a>
+
+会嗷嗷叫着闹其他观众的“核心观众”，这就是曾经顺劈黄兔子时所说的那批最排外的粉丝吧 ...</blockquote>
+“排外”这个词用的没错，但是“排外”只是一种态度，不代表这些人一定会闹事。
+
+只要处理好矛盾，一样可以让一切稳定和谐。
+
+但是官组没想处理矛盾，没想保持稳定和谐，就是要爽tm一把
+
+“我就是要引进黑人，反对的人肯定是没受过教育”的心态，只会让一切越来越糟
+
+不过谁在乎呢
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 684#       发表于 2020-4-28 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236897&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 17:29</a>
+金发小男孩好几次说了想找你麻联动，拒绝的是你麻那边</blockquote>
+去年6月多的时候卵用说mea拒绝过一次吧。。然后10月？mea说想找卵用单独联动，卵用那边说和莉莉姆正好呢就拒绝了。都有都有
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 685#       发表于 2020-4-28 17:30
+
+
+
+
+我现在巴不得没有这个傻逼论文。
+
+很多事都有想法但是就是没时间没精力去做……
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 686#       发表于 2020-4-28 17:31
+
+
+
+
+草，组长v骚，有绿仙的那个档，问过mea为啥不找卵用联动，去听一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 687#       发表于 2020-4-28 17:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，怎么和论证西夸谁先不理谁一个样
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 688#       发表于 2020-4-28 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236935&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-28 17:31</a>
+
+草，组长v骚，有绿仙的那个档，问过mea为啥不找卵用联动，去听一下</blockquote>
+那段我记得mea说过，自己邀请了，然后卵用说现在不太方便如何如何。
+
+反正是有了稳定的cp，不能再随便搞这种外部联动了。
+
+
+确实是卵用拒绝的啊，怎么还有人修史的。
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 689#       发表于 2020-4-28 17:32
+
+
+
+
+论文啊，不慌的，我前言刚写到一半不还是该看管人看管人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正下周才查重截止
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 690#       发表于 2020-4-28 17:32
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:20
+实不相瞒，我觉得这种屁大点的事就要开始闹的人不值得被在乎今日闹官组，明日闹本人，至死方休？ ...</blockquote>
+去年年初有多少次“屁大点事”？今天这种恶劣环境不都多亏了这些屁事？今天掺一点私货，明天掺一点私货，造成的累加效应就是去年5-8月那种情况，官组和部分贴贴人不但不愿为那段时期还债，还一意孤行，你觉得这没有问题？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 691#       发表于 2020-4-28 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236949&amp;ptid=1929631" target="_blank">M829A4 发表于 2020-4-28 17:32</a>
+草，怎么和论证西夸谁先不理谁一个样
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+都是有档的啊。。对一下就知道了，又不是虚空的。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 692#       发表于 2020-4-28 17:34
+
+
+
+<blockquote>zhicai618 发表于 2020-4-28 17:30
+去年6月多的时候卵用说mea拒绝过一次吧。。然后10月？mea说想找卵用单独联动，卵用那边说和莉莉姆正好呢 ...</blockquote>
+这两次都有印象，不过应该还是卵用拒绝的更多
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 693#       发表于 2020-4-28 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236951&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:32</a>
+
+那段我记得mea说过，自己邀请了，然后卵用说现在不太方便如何如何。
+
+反正是有了稳定的cp，不能再随便搞这 ...</blockquote>
+v骚没看，那我记得的那次应该是上面说的去年六月那时候的事
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 694#       发表于 2020-4-28 17:34
+
+
+
+
+实在不行能选杏星吗，那个新伪娘我可以<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 695#       发表于 2020-4-28 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236917&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:30</a>
+“排外”这个词用的没错，但是“排外”只是一种态度，不代表这些人一定会闹事。
+
+只要处理好矛盾，一样可 ...</blockquote>
+你这搞错了一个问题，这不是官组处不处理矛盾的事，而是“闹事”的那一批已经闹到mea脸上去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 696#       发表于 2020-4-28 17:35
+
+
+
+
+杏星可还行，你认真的吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 697#       发表于 2020-4-28 17:36
+
+
+
+
+顺劈官组的各位麻烦仔细看看现任官组成员的发言吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以在这上头干啥呢，那个什么囧，你还是先冷静一下吧，现在的官组跟之前的官组并不太一样，扯旧账驳如今意义不是太大
+
+
+<img src="https://img.saraba1st.com/forum/202004/28/173452e2l0p8p6pt280yyb.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (34.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-28 17:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 698#       发表于 2020-4-28 17:36
+
+
+
+
+去年那会儿是她去找卵用然后卵用拒绝了，今年来她这拱火的还多着呢
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 699#       发表于 2020-4-28 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236975&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:34</a>
+这两次都有印象，不过应该还是卵用拒绝的更多</blockquote>
+是这样啊。也还好吧。走出舒适区
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 700#       发表于 2020-4-28 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237014&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-4-28 17:36</a>
+去年那会儿是她去找卵用然后卵用拒绝了，今年来她这拱火的还多着呢</blockquote>
+卵用那边我记得也是一堆拱火的。。其实都喜欢看这种互损的
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 701#       发表于 2020-4-28 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236814&amp;ptid=1929631" target="_blank">上坂蓮華 发表于 2020-04-28 17:23:23</a>
+那结论不就是谁都没有考虑mea的感受么。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你才发现吗，别人家字幕组随便闹，企业势大不了yagoo出来谢罪，mea只能自己顶。而且这也不是第一次了，反正这事最后又是一堆人上书mea让出来主持字幕组公道，但是字幕组本来就是为爱发电塞点私货忍忍也就过去了，真要mea换人换谁去呢，让mea出钱招人吗？反正指望不了你楼里人顶上就是了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 702#       发表于 2020-4-28 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236958&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:32</a>
+去年年初有多少次“屁大点事”？今天这种恶劣环境不都多亏了这些屁事？今天掺一点私货，明天掺一点私货， ...</blockquote>
+拿过去来绑架现在，你这个的出发点是什么？
+拿恶劣环境说事，恶劣环境的又是谁？
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 703#       发表于 2020-4-28 17:37
+
+
+
+
+你们怎么还在和龙魂争啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不会真有人以为在网络上可以说服另一个人吧，谁都改变不了谁的想法那大家安安静静当自己的暗黑贴贴人和暗黑暗黑贴贴人不好吗
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 704#       发表于 2020-4-28 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236883&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-04-28 17:27:58</a>
+这俩人关系挺好的啊。但是路线差的太远了，而且都不想拿个人感情出来消费。我觉得都挺好。。是粉丝过于狂 ...</blockquote>关系好是有目共睹的，也不想看到因为这些事破坏了她们现实的关系。只是希望不要再有粉丝在她们明面上没互动的时候煽风点火了，搞得两边下不来台，提的人还要挨骂，默默看着就行呗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 705#       发表于 2020-4-28 17:38
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:35
+你这搞错了一个问题，这不是官组处不处理矛盾的事，而是“闹事”的那一批已经闹到mea脸上去了 ...</blockquote>
+官组一直没有一个稳定的有效渠道，经历了那么多次事情官组的公信力也不如以往。另外，闹到咩姐脸上有效这点可是贴贴人先证明的，这批人在官组这个渠道几近于无用的情况下不只剩咩姐本人了？这个完全无解啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 706#       发表于 2020-4-28 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236994&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:35</a>
+
+你这搞错了一个问题，这不是官组处不处理矛盾的事，而是“闹事”的那一批已经闹到mea脸上去了 ...</blockquote>
+闹到她那去这回事，如今这个环境下去分析成分也没什么意义了，是贴贴民还是暗黑贴贴民，就算是单纯的乐子人去恶心她也有可能
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 707#       发表于 2020-4-28 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236994&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:35</a>
+
+你这搞错了一个问题，这不是官组处不处理矛盾的事，而是“闹事”的那一批已经闹到mea脸上去了 ...</blockquote>
+所以你还是没看问题的源头。
+
+为什么会有“闹事”的？
+
+告京官的人之所以去告京官是因为地方不给解决问题。
+
+长期以来，官组的一意孤行使得你说的“排外”由心态变成了行动，最后造成了mea的困扰。
+
+你也可以说这些人做法不对啦，脑子有病啦如何如何
+
+但人是目的不是工具，产生这些所谓的“梁木人”的根源一定是事，而不是人本身，毕竟一个普通的精神错乱的人，是不会闲着没事去骚扰一个跟自己无关的人的。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 708#       发表于 2020-4-28 17:40
+
+
+
+
+我喜欢互跳的那种互动。我记得有mea去前道明寺那里留乱码被吐槽说啥呢，然后绿仙人互跳，和叶互动的草履虫？
+大概就是这样吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 709#       发表于 2020-4-28 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237050&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:38</a>
+官组一直没有一个稳定的有效渠道，经历了那么多次事情官组的公信力也不如以往。另外，闹到咩姐脸上有效这 ...</blockquote>
+当年贴贴人骑脸mea，那现在骑脸mea的又是谁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 710#       发表于 2020-4-28 17:42
+
+
+
+
+算了她联动谁我也不会惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+等个和星川联动好吧
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 711#       发表于 2020-4-28 17:42
+
+
+
+
+其实神乐组的建立也可以稳定产出这种娱乐性质的互动
+
+比如互相跳脸啦，互相恶搞啦之类的。
+
+不过搞晚了，事到如今我一点也不想看什么神乐组。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 712#       发表于 2020-4-28 17:42
+
+
+
+ 本帖最后由 uuuuu7 于 2020-4-28 17:45 编辑 
+
+话说最近以来你麻人际圈变化也挺大的，前几天直播也说了最近都没怎么和绿熊来往了，家主也是更早之前就不在她推特评论区出现了，以前几乎是条条都在的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+syl，神乐组的优点是同为个人势你麻还是有着绝对的主导权，大概重蹈不了那谁谁的覆辙
+
+不过我还是取关了如月就是了
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 713#       发表于 2020-4-28 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237074&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:40</a>
+
+当年贴贴人骑脸mea，那现在骑脸mea的又是谁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">不管什么时候，去骑脸的唯一身份都是傻逼
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 714#       发表于 2020-4-28 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237063&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-4-28 17:39</a>
+闹到她那去这回事，如今这个环境下去分析成分也没什么意义了，是贴贴民还是暗黑贴贴民，就算是单纯的乐子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但这么搞事还要给自己找个理由正当化就让我感觉很蠢了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 715#       发表于 2020-4-28 17:43
+
+
+
+
+别管组里什么样，反正我要是早早看见吵架的肯定在萌芽时期就删掉。可惜已经彻底吵起来了，也就没法再多做什么反应了。
+
+还是那句话，这里怎么吵都无所谓，别带到评论区就行，求求各位。虽然其他地方的过去我也还是得头疼，但还是让我减少一些工作量吧。
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 716#       发表于 2020-4-28 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237090&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 17:42</a>
+
+话说最近以来你麻人际圈变化也挺大的，前几天直播也说了最近都没怎么和绿熊来往了，家主也是更早之前就不在 ...</blockquote>
+网友嘛，这段时间玩的多，过段时间其中一个人忙起来了，就玩得少了。
+
+这种朋友圈流动性大也很正常
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 717#       发表于 2020-4-28 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237074&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:40</a>
+当年贴贴人骑脸mea，那现在骑脸mea的又是谁</blockquote>
+因为反抗会让mea困扰，所以一开始就投降？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 718#       发表于 2020-4-28 17:45
+
+
+
+
+还是把记者拉出来了，粉丝群体确实分化太严重了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 719#       发表于 2020-4-28 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237102&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-4-28 17:43</a>
+
+因为反抗会让mea困扰，所以一开始就投降？
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+投降吧，真的hxd，劝你投降。
+
+现在反抗基本没啥收益，只有你自己爽了。
+
+但这样的话你跟贴贴人又没什么区别，那不就滑天下之大稽了。
+
+当然，如果你愿意把自己拉低到跟萌二一个水平线，就当我没说。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 720#       发表于 2020-4-28 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237090&amp;ptid=1929631" target="_blank">uuuuu7 发表于 2020-4-28 17:42</a>
+话说最近以来你麻人际圈变化也挺大的，前几天直播也说了最近都没怎么和绿熊来往了，家主也是更早之前就不在 ...</blockquote>
+没啥来往不是正常。一堆朋友天天联系就不用干啥了。我们寝室四个人从本科一起走到研究生毕业，铁到不能再铁了，小群也就几个月说一次话，关系还是很好的。不是不说话关系就淡了。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 721#       发表于 2020-4-28 17:45
+
+
+
+ 本帖最后由 路人庚 于 2020-4-28 17:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237095&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-28 17:42</a>
+
+但这么搞事还要给自己找个理由正当化就让我感觉很蠢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想问问，现在还有谁在骑脸
+
+
+“这么搞事”？你是指评论区乐子人搞事吗？
+
+
+如果你说官组投稿，那么上面流星已经说了，是因为“质量高”所以通过了，那么问题来了，为什么没有单人的质量高的pv投稿呢？没人参与or自己放弃就不要怪别人了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 722#       发表于 2020-4-28 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237087&amp;ptid=1929631" target="_blank">2014720 发表于 2020-4-28 17:42</a>
+算了她联动谁我也不会惊讶
+等个和星川联动好吧</blockquote>
+星川互动也挺喜欢的，互跳先锋。
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 723#       发表于 2020-4-28 17:46
+
+
+
+
+问题不还是出在字幕组身上么，内战倒是起劲的很
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 724#       发表于 2020-4-28 17:46
+
+
+
+
+现在车轱辘这些也没用了啊，事情到了这种局面谁都解决不了了。除非两人爆一个，或者真正实锤两人不仲，逼走贴贴人。但这概率比我一发十连直接毕业还难。看见有私货就不看了啊。或者让自己冷静一下，少看一点管人和管人粉丝。维持好自己的心理健康
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 725#       发表于 2020-4-28 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237064&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:40</a>
+所以你还是没看问题的源头。
+
+为什么会有“闹事”的？
+
+告京官的人之所以去告京官是因为地方不给解决问题。 ...</blockquote>
+这不就和前一页说的一样，拿着过去的事来现在找绑定了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 726#       发表于 2020-4-28 17:47
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:37
+拿过去来绑架现在，你这个的出发点是什么？
+
+拿恶劣环境说事，恶劣环境的又是谁？ ...</blockquote>
+要避免过去去年8月的事情再发生，除了坚决抵制一切有私货的行为还有什么办法？
+
+恶劣环境是谁？恶劣环境体现在评论区弹幕虚空制糖，还有b限跳脸问关系高低的弱智。别告诉我贴贴人也去杀了，先污染，再治理，这是贴贴人应该负的责任。
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 727#       发表于 2020-4-28 17:47
+
+
+
+
+不过你们没人讨论五一黄金周那播还有没有吗？
+
+看来B站宣传口这块儿溜冰溜大了，把自己溜进去了。
+
+虚拟主播区活动取消了，不知道mea的B限还播不播。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 728#       发表于 2020-4-28 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237151&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:47</a>
+不过你们没人讨论五一黄金周那播还有没有吗？
+
+看来B站宣传口这块儿溜冰溜大了，把自己溜进去了。
+
+虚拟主播 ...</blockquote>
+等消息呗（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 729#       发表于 2020-4-28 17:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">按照咩姐的性格那天估计还是会播一下的
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 730#       发表于 2020-4-28 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237151&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:47</a>
+
+不过你们没人讨论五一黄金周那播还有没有吗？
+
+看来B站宣传口这块儿溜冰溜大了，把自己溜进去了。
+
+虚拟主播 ...</blockquote>
+活动取消，但是刚刚看日历上mea的5月4号那一播还在
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 731#       发表于 2020-4-28 17:49
+
+
+
+
+说到bg，舞咩搞成这样两边都有责任，一是咩用力过猛，二是五元没太大反应，看着观感真的不好，能把咩的重女营业接出让观众有ptsd也是厉害，顺带一提，没有人嗑过mea和青猫吗，这对互动是除meakou观感最好的了，要不是因为隐退和六字母，这对真的好看。那会还说咩老牛吃嫩草，现在看是真的天仙配
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 732#       发表于 2020-4-28 17:49
+
+
+
+
+我觉得避避火也行，现在你说不准怎么的雷区就跑到你脚底下了，阿b属实不行
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 733#       发表于 2020-4-28 17:49
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:40
+当年贴贴人骑脸mea，那现在骑脸mea的又是谁</blockquote>
+你这逻辑真搞笑，官组污染造成的后果官组不管好，影响到了咩姐不是官组的问题？？？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 734#       发表于 2020-4-28 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237102&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-4-28 17:43</a>
+因为反抗会让mea困扰，所以一开始就投降？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+去年贴贴人和黑暗贴贴人打架那叫反抗，现在黑暗贴贴人一边困扰mea一边评论区搞事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这你让我怎么看
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 735#       发表于 2020-4-28 17:50
+
+
+
+
+配个锤子
+
+我最配<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 736#       发表于 2020-4-28 17:50
+
+
+
+
+不许招魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+跳脸互损是真的意思，希望阿咩多搞搞
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 737#       发表于 2020-4-28 17:50
+
+
+
+
+所以我常说，宣传这块儿得舍得花钱，文案弱智导致爆炸的东西还少吗？
+
+这个词用的是真的憨憨，我觉得我小学就知道这是个贬义词。
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 738#       发表于 2020-4-28 17:50
+
+
+
+
+b限应该问题不大，不过就阿b这个内部问题真的怕哪一天把v圈炸了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 739#       发表于 2020-4-28 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一起投肯定有脑瘫贴贴人刷贴贴然后引起其他人出警
+
+作为还算是想看贴贴的人的我恨不得埋了那群还专门找理由刷贴贴的脑瘫
+
+可怜那些做PV的人了，这PV你隔个一两天投，至少乱刷的会少很多
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 740#       发表于 2020-4-28 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237181&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-4-28 17:49</a>
+说到bg，舞咩搞成这样两边都有责任，一是咩用力过猛，二是五元没太大反应，看着观感真的不好，能把咩的重女 ...</blockquote>
+青猫转生之后还来过一次，然后就没了。
+估摸着是职业选手忙吧。
+看国内那群昼夜颠倒的职业选手挺辛苦的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 741#       发表于 2020-4-28 17:51
+
+
+
+
+有的时候xx蠢到一定程度，你根本分辨不出他是文化不高、敏感度太低还是故意反串（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 742#       发表于 2020-4-28 17:52
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:46
+这不就和前一页说的一样，拿着过去的事来现在找绑定了</blockquote>
+你这是否定了过去和现在的联系，想搞治标不治本的解决方法。当然也没什么解决这个本的方法，如上面所说，但是作为根源的官组必须负起责任。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 743#       发表于 2020-4-28 17:52
+
+
+
+
+真的好看啊兄弟们，但那个剪辑已经没有了，青猫看见咩的那个反应和咩傲娇的骂青猫那段，给我甜傻了都
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 744#       发表于 2020-4-28 17:52
+
+
+
+
+我以前认为XX都是故意反串的，直到我在生活中遇到了一个真的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 745#       发表于 2020-4-28 17:53
+
+
+
+
+好吧是我上头了，仔细想想你们说的也是一种策略了，欲使贴贴人灭亡，先要让其疯狂么。反正贴贴组越是这么整活，直球去mea跳脸的连体婴就越多，你咩又是越有人跳脸越对着干的类型。到时候激出绝交的话也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 746#       发表于 2020-4-28 17:53
+
+
+
+
+我对你麻今年怎么在两大箱之间求生还是很感兴趣的，当然在这之前不要被苔苔和黄兔子玩弄致死就好<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+官组就这样吧，这里讨论也没发现更好的方法，不管是毒唯路线还是贴贴路线效果都不行，我还是希望多几个熟肉来的实在<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 747#       发表于 2020-4-28 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237214&amp;ptid=1929631" target="_blank">椎名mahuyo 发表于 2020-4-28 17:51</a>
+一起投肯定有脑瘫贴贴人刷贴贴然后引起其他人出警
+
+作为还算是想看贴贴的人的我恨不得埋了那群还专门 ...</blockquote>
+是这个理，明知道会打起来还要搞这种暗示形的联动，这稿一投就知道要打，我管住自己没用啊，我管不住别人
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 748#       发表于 2020-4-28 17:54
+
+
+
+
+我一直想不通怎么有些人就五元ptsd了
+
+感觉就是突然有一两个ptsd，然后大家就都开始ptsd，很迷<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 749#       发表于 2020-4-28 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237196&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-28 17:50</a>
+不许招魂
+跳脸互损是真的意思，希望阿咩多搞搞</blockquote>
+在等绿仙，星川呢。口嗨怪mea不靠谱，口头约了约了然后人没了。如月也有意思，感觉很放得开。。最奇怪的是夏哥。。不知道为啥气氛怪怪的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 750#       发表于 2020-4-28 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47236574&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 17:07</a>
+原来这地方还真有人关注aqua？
+
+我也没关注。但这也不是看不出夹带私货的理由
+
+其实夹带了就夹带了，这也没 ...</blockquote>
+她可能还真没想到<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">都怪mea酱太天真善良纯洁可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 751#       发表于 2020-4-28 17:54
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-28 17:57 编辑 
+
+评论区主要吵的点不是觉得贴贴向内容有特权吗，但是实际上所有人都可以找记者去申请联合投稿
+
+放黑屁的其实很早就被冲进来的围观群众按着打了，当然啥都不懂光会刷贴贴的也不行
+
+我以为这事本来是没啥可讨论的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 752#       发表于 2020-4-28 17:55
+
+
+
+
+我也和她互损啊，我跳脸她补刀，她跳脸我menhera，甜到爆了好吧，快来磕cp啦！！
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 753#       发表于 2020-4-28 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237258&amp;ptid=1929631" target="_blank">素人不相识 发表于 2020-4-28 17:54</a>
+我一直想不通怎么有些人就五元ptsd了
+
+感觉就是突然有一两个ptsd，然后大家就都开始ptsd，很迷 ...</blockquote>
+你要是看过一个夏哥粉对星川夏哥的抱怨就能理解了。不要使劲舔啊，观感很差的。平等互跳才有意思。meailce有意思的那次小游戏也是最后面黑白棋赢了，km桑让爱丽丝念台词啊。都能脑补出来mea流鼻血的片段了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 754#       发表于 2020-4-28 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237150&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:47</a>
+要避免过去去年8月的事情再发生，除了坚决抵制一切有私货的行为还有什么办法？
+
+恶劣环境是谁？恶劣环境体 ...</blockquote>
+抵制去年八月的事发生，可去年八月的事是什么样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">mea前两天半夜和大亏突击联动，后两天半夜被狙加上一群人拱大亏结果心态爆炸
+这和这个所谓的私货的联系有多大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 755#       发表于 2020-4-28 17:58
+
+
+
+ 本帖最后由 路人庚 于 2020-4-28 18:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了半天没用的
+
+
+@weiweiEX ，回应一下“现在骑脸的是谁”，没记错的话最近一次骑脸不是b限的贴贴人sc跳脸吗，那次之后贴贴头子自己去私信把那人教育了一顿，mea也没太当回事就这么过去了，暗黑贴贴人跳脸的证据麻烦出示一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+@Leutnant某囧 ，回应一下流星的“高质量投稿”，这都明说了因为质量过硬所以可以投稿，你非要纠结贴贴投稿完全没必要，要不你出钱请几个专业pv师做一大堆单人pv往官号上发去呗，用数量淹过这“贴贴”pv让贴贴人知道谁才是真正的主流也就没有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我觉得你们两个可以私聊了，你们在这聊把蛆都招来了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 756#       发表于 2020-4-28 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237258&amp;ptid=1929631" target="_blank">素人不相识 发表于 2020-4-28 17:54</a>
+
+我一直想不通怎么有些人就五元ptsd了
+
+感觉就是突然有一两个ptsd，然后大家就都开始ptsd，很迷 ...</blockquote>
+说了啊，五元不接梗和咩用力过猛，俺寻思主要责任在五元，真的是个铁龙鸣，久而久之就PTSD了，如果能像哈哥那样是可以成为一个好玩的梗的，结果不是
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 757#       发表于 2020-4-28 17:59
+
+
+
+<blockquote>暗心舞踏 发表于 2020-4-28 17:54
+评论区主要吵的点不是觉得贴贴向内容有特权吗，但是实际上所有人都可以找记者去申请联合投稿
+
+放黑屁的其实 ...</blockquote>
+上面说的很明确了，归根到底还是产出不足。插画上有内容产出能力的就那几个贴贴人，比较愿意画咩姐单独一人的也就楽一；mix在萨尔走了后咩组的调音产出能力从这两个月的等待也可以见识到；动画这块也要等人，比如之前的振袖和服，生产力的差距确实很大。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 758#       发表于 2020-4-28 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237310&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-4-28 17:58</a>
+说了啊，五元不接梗和咩用力过猛，俺寻思主要责任在五元，真的是个铁龙鸣，久而久之就PTSD了，如果能像哈 ...</blockquote>
+不熟吧。uno那次不就还好么
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 759#       发表于 2020-4-28 18:01
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-28 17:58
+抵制去年八月的事发生，可去年八月的事是什么样的mea前两天半夜和大亏突击联动，后两天半夜被狙加 ...</blockquote>
+咩姐自己在直播间规则说的还不够清楚？？？你这都要故意混淆了是吧？？？
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 760#       发表于 2020-4-28 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最可笑难道不是贴贴人有行动力有产出，有高质量pv能进官组干活，另一边行动力呢？会上告mea这pv塞私货太贴贴，污染环境
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 761#       发表于 2020-4-28 18:02
+
+
+
+
+青春又回来了，m11的第一次车轱辘？实现证明贴贴就是流量
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 762#       发表于 2020-4-28 18:03
+
+
+
+<blockquote>路人庚 发表于 2020-4-28 17:58
+说了半天没用的
+
+
+@weiweiEX ，回应一下“现在骑脸的是谁”，没记错的话最近一次骑脸不是b限的贴贴人 ...</blockquote>
+出钱不可能，上次二创大赛不就明确了不能约稿，用在官组的投稿上肯定也是。不过约稿自己发确实可以
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 763#       发表于 2020-4-28 18:04
+
+
+
+
+真的想杀贴贴人看看mk2<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+还是建议自己动手，不管是杀贴贴还是做pv
+上次不是亲手让官组转了一个歌舞伎町吗，你麻的指导路线现在懂了吗
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 764#       发表于 2020-4-28 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237321&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-4-28 18:00</a>
+
+不熟吧。uno那次不就还好么</blockquote>
+那次确实好了，但已经晚了，有PTSD的还是看不下去，就是前期没铺垫好，反正五月还有一次mc联动，二周年还是生日还有个合唱，该难受还得难受
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 765#       发表于 2020-4-28 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237376&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 18:03</a>
+
+出钱不可能，上次二创大赛不就明确了不能约稿，用在官组的投稿上肯定也是。不过约稿自己发确实可以 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日常投稿又不是比赛，你约个搞找记者搞个联合投稿谁管你是不是约的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 766#       发表于 2020-4-28 18:05
+
+
+
+
+所以大家还是来听同好会的切片歌吧https://b23.tv/BV1EK4y1b7aM
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 767#       发表于 2020-4-28 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237388&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-4-28 18:04</a>
+那次确实好了，但已经晚了，有PTSD的还是看不下去，就是前期没铺垫好，反正五月还有一次mc联动，二周年还 ...</blockquote>
+反正上次气氛还行，mc再看看吧，这人路线明显又变了，一阵一阵的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 768#       发表于 2020-4-28 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237320&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-28 17:59</a>
+
+上面说的很明确了，归根到底还是产出不足。插画上有内容产出能力的就那几个贴贴人，比较愿意画咩姐单独一 ...</blockquote>
+看之前的staff表，机制上应该是这样的，官组里有一定数量的二创作者，如果单纯由组内的人做，就是单独的官组投稿，如果在二创组借了人，就是联合投稿。
+
+观察一下那个单人主题但挂了联合投稿的pv，应该能总结出官组主要缺哪些职能的二创作者
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 769#       发表于 2020-4-28 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237309&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-28 17:58</a>
+说了半天没用的
+
+
+@weiweiEX ，回应一下“现在骑脸的是谁”，没记错的话最近一次骑脸不是b限的贴贴人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">不在这扯了
+回答一下问题，本以为黑暗贴贴人只是对这种虚空制糖的不满<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，但看了414几个社区的反应，还有mea她们说的有人跑到她们那“不仲”了，那骑脸不就是一目了然了么
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 770#       发表于 2020-4-28 18:06
+
+
+
+
+有行动力？有产出？哈……然后就造成有rz天天喊着两人联动，逼的mea改直播间规则，发rz迷惑sc，三番四次敲打贴贴人。最近的一次联动虚无，和舞元的虚无联动不上相下。mea一个人的独角戏，呵
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 771#       发表于 2020-4-28 18:07
+
+
+
+
+我建议你们放弃那个PV，来听听真正的音乐。
+[https://www.bilibili.com/video/BV1ti4y1b7qh?t=3](https://www.bilibili.com/video/BV1ti4y1b7qh?t=3)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 772#       发表于 2020-4-28 18:09
+
+
+
+
+同好会必秒官组<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 773#       发表于 2020-4-28 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47237435&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-28 18:07</a>
+我建议你们放弃那个PV，来听听真正的音乐。
+
+https://www.bilibili.com/video/BV1ti4y1b7qh?t=3 ...</blockquote>
+感觉mea的歌不是直播没内味儿
+
+
+
+
+
+
+
+-----
+
+####  贴杂司马  
+##### 774#       发表于 2020-4-28 18:10
+
+
+
+
+这波是贴贴人自觉自己没有生存空间了好吧，关我们球事情，建议不要讨论。
+
+
+
+
+
+                        
