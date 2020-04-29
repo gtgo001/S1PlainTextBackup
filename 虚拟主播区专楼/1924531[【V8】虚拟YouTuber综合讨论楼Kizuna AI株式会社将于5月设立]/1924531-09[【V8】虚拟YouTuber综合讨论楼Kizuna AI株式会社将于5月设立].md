@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 18:05** 
+> ## **本文件最后更新于2020-04-29 20:06** 
 
 
 
@@ -4059,7 +4059,7 @@ Orga/Ogress，欧洲神话中的食人魔/怪物，由于本身的形象十分�
 
 
 Giovanni_Lanfranco_Norandino_and_Lucina_Discovered_by_the_Ogre.jpg
-(67.76 KB, 下载次数: 0)
+(67.76 KB, 下载次数: 2)
 
 
 
@@ -5006,7 +5006,7 @@ bsyl
 <img src="https://img.saraba1st.com/forum/202004/29/155758o6jpb6glsplbknbe.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200429155735.png</strong> (884.88 KB, 下载次数: 4)
+<strong>QQ截图20200429155735.png</strong> (884.88 KB, 下载次数: 5)
 
 下载附件
 
@@ -6735,4 +6735,3364 @@ syl点内部排座次第一是小白，第二是羊，第三才排的到会长�
 
 
 
-                                      
+
+
+-----
+
+####  free  
+##### 12356#       发表于 2020-4-29 18:07
+
+
+
+
+空妈社外的朋友多呀，昨晚奏天生日会就和空妈连麦聊了半天，放下电话又去口吃神两周年开聊。问题是现在除了虹杏都是臭鱼烂虾了，你和这些人玩得好管啥用，不过想了想，空妈那样的要和那些游戏宅女打成一片天天泡在ARK里边一起玩，也挺难想象的......<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+azki这现在五一假期还要天天播呢，你看看她能播啥游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 12357#       发表于 2020-4-29 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249335&amp;ptid=1924531" target="_blank">free 发表于 2020-04-29 18:07:29</a>
+空妈社外的朋友多呀，昨晚奏天生日会就和空妈连麦聊了半天，放下电话又去口吃神两周年开聊。问题是现在除了 ...</blockquote>播车万吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12358#       发表于 2020-4-29 18:18
+
+
+
+
+ナナメ 30日22時〜お絵描き配信
+
+@7name_
+
+46分钟
+
+【お仕事報告】
+
+ホロスターズ3期生「TriNero（トライネロ）」
+
+月下カオルさん(@tsukishitakaoru)のLive2Dを担当させて頂きました！
+
+
+今夜20時より初配信ですのでどうぞよろしくお願い致します！
+[https://youtu.be/4mGKa04JHQk](https://youtu.be/4mGKa04JHQk)
+
+
+#月下カオル初配信 #TriNero #ホロスターズ
+[https://twitter.com/7name_/status/1255429460247097344](https://twitter.com/7name_/status/1255429460247097344)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12359#       发表于 2020-4-29 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249172&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-29 17:52</a>
+
+龙姐再不复活彩虹要炸，不过现在也今非昔比了，复活了估计没法像以前那样敲打运营。所以还是打游戏香[f:067 ...</blockquote>
+你在暗示谁<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北極海航路  
+##### 12360#       发表于 2020-4-29 18:23
+
+
+
+
+有老哥愿意讲一下大福男友暴露这件事的来龙去脉吗..
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 12361#       发表于 2020-4-29 18:26
+
+
+
+
+二手屎楼，请
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 12362#       发表于 2020-4-29 18:27
+
+
+
+
+还有半个小时月下就初配信了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12363#       发表于 2020-4-29 18:27
+
+
+
+
+组长的评论栏纯度好高啊，基本都能跟上。其他的b限基本我都不看的，铃木悠太除外
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12364#       发表于 2020-4-29 18:29
+
+
+
+
+而null姐睡了
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 12365#       发表于 2020-4-29 18:32
+
+
+
+
+有一说一，狐皇的字我是真的可以
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 12366#       发表于 2020-4-29 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么葵皇的色 图这么多后●
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 12367#       发表于 2020-4-29 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248913&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 17:33</a>
+
+我查了一下，最早有人说我是gay是3.17，然后一直到现在</blockquote>
+↑至今为止这个人喊了十二遍以上“我不是gay”（同一时间段按一次算）
+
+
+另一个角度可以看出V综一个半月内车轱辘了12遍gay的话题
+
+漫区，kpi怎么来的看到了吗
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 12368#       发表于 2020-4-29 18:49
+
+
+
+<blockquote>ゴリスナー：彼氏できてえらい ​​​</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抱着这样想法的人好像很多?
+
+最近没什么精力关注霓虹那边(v也不怎么看了)，大福现在应该还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12369#       发表于 2020-4-29 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249661&amp;ptid=1924531" target="_blank">与天争锋_LZ 发表于 2020-4-29 18:39</a>
+↑至今为止这个人喊了十二遍以上“我不是gay”（同一时间段按一次算）
+
+
+另一个角度可以看出V综一个半月内 ...</blockquote>
+可别，满区没什么坛友粉版友楼友粉，哪像v综把论坛当qq群，几个人聊天就把漫区超了
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12370#       发表于 2020-4-29 18:55
+
+
+
+
+holostars初配信同接ranking
+
+
+鏡見キラ            845
+
+花咲みやび         577
+
+アルランディス  502
+
+律可                  407
+
+岸堂天真            405
+
+アステル            311
+
+薬師寺朱雀         308
+
+奏手イヅル         280
+
+夕刻ロベル         162
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12371#       发表于 2020-4-29 18:56
+
+
+
+
+抽到了！！！小天使！！她没有井！！
+
+（虽然240抽了）
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12372#       发表于 2020-4-29 18:57
+
+
+
+
+薰大佬的直播要来啦，1800待机。
+
+2000+了。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12373#       发表于 2020-4-29 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249499&amp;ptid=1924531" target="_blank">北極海航路 发表于 2020-4-29 18:23</a>
+有老哥愿意讲一下大福男友暴露这件事的来龙去脉吗..</blockquote>
+大福有天晚上说不想直播，然后有人突然往串上丢了个openrec一群主播开黑喷喷的直播，其中有一个就是用不同名义参加的大福。同时这人宣称其中的一位是大福男友，诱发串民开始挖掘。越挖发现这人透露出的和女友的信息和大福直播中说的一些事情对得上，就实锤了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北極海航路| + 1|感谢 不用翻5ch了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 12374#       发表于 2020-4-29 19:00
+
+
+
+
+ickr最近怎么突然想起来要扶一下那个虚拟陪酒女企划啦，田角受了什么刺激<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12375#       发表于 2020-4-29 19:01
+
+
+
+
+啊
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12376#       发表于 2020-4-29 19:02
+
+
+
+
+这男声吓到我了
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 12377#       发表于 2020-4-29 19:02
+
+
+
+
+八美肉啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12378#       发表于 2020-4-29 19:02
+
+
+
+
+纯男声，一点不带掐的
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 12379#       发表于 2020-4-29 19:02
+
+
+
+
+关了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12380#       发表于 2020-4-29 19:03
+
+
+
+
+可傲天16:00-18:30播了ARK，现在换号打生化(20:00)，之后切回来22:00如龙，明早还要あさココ<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12381#       发表于 2020-4-29 19:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">爬得越高摔得越惨
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12382#       发表于 2020-4-29 19:03
+
+
+
+ 本帖最后由 Vneet 于 2020-4-29 19:05 编辑 
+
+很普通的男声八美肉_(´_`」 ∠)_
+
+syl，3000同接了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12383#       发表于 2020-4-29 19:04
+
+
+
+
+全tm完了23333
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 12384#       发表于 2020-4-29 19:04
+
+
+
+
+这个声音也太……<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">我还以为不是女声起码也是偏温柔的男声呢
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12385#       发表于 2020-4-29 19:04
+
+
+
+
+之前谁奶的中性声线出来受死<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">，不过我还是能坚持看到配信内容的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12386#       发表于 2020-4-29 19:05
+
+
+
+
+与其说是和Kira相近，倒不如说是花咲那种吧
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 12387#       发表于 2020-4-29 19:05
+
+
+
+
+还好我还在吃饭还没去看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 12388#       发表于 2020-4-29 19:05
+
+
+
+
+每日兔宝涩图
+<img src="https://p.sda1.dev/0/681ab2c73cdaebc70f61b6889619a637/IMG_88483395BEC353C2EDABBDD4EEA66D25.jpeg" referrerpolicy="no-referrer">
+
+https://twitter.com/Seic_Oh/status/1255440548925669382?s=20
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|感谢净化心灵|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12389#       发表于 2020-4-29 19:05
+
+
+
+
+楼友的梦，碎了。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 12390#       发表于 2020-4-29 19:05
+
+
+
+
+草这语气停顿习惯好像我一个gay佬朋友 找个机会问问他有没有兴趣出道吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12391#       发表于 2020-4-29 19:06
+
+
+
+
+トワ様再評価
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12392#       发表于 2020-4-29 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 黑宝放心了，
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 12393#       发表于 2020-4-29 19:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249950&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 19:05</a>
+
+与其说是和Kira相近，倒不如说是花咲那种吧</blockquote>
+比花咲还硬一点，花咲是那种很温柔的声音
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12394#       发表于 2020-4-29 19:06
+
+
+
+
+奶了半天全部木大<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12395#       发表于 2020-4-29 19:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249900&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-4-29 19:00</a>
+ickr最近怎么突然想起来要扶一下那个虚拟陪酒女企划啦，田角受了什么刺激 ...</blockquote>
+疫情当头，不少人没法社交，所以想靠这种虚拟社交捞钱吧
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12396#       发表于 2020-4-29 19:07
+
+
+
+
+不，这个声音怎么通过的杏女liver初试啊
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 12397#       发表于 2020-4-29 19:07
+
+
+
+
+好homo的声音啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12398#       发表于 2020-4-29 19:08
+
+
+
+
+yagoo太傻了，yagoo太傻了，yagoo太傻了，yagoo太傻了，yagoo太傻了
+
+
+我就说了yagoo不行，这皮找一个愿意用变声器的岂不是绝杀，一个兔鞠那样的直接起飞，改天换地扭转乾坤之机会就这么被浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+不过这声音还算比较清爽的那类，要是debu音就真完蛋了
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 12399#       发表于 2020-4-29 19:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这说明yagoo的品味是正常的，你们不要随便给别人戴上gay的帽子啊
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12400#       发表于 2020-4-29 19:08
+
+
+
+
+你们对别人声音究竟有什么奇怪的期待，正常男声可不就是这样的吗，还是说你们是想看的是掐女声的男人？
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 12401#       发表于 2020-4-29 19:09
+
+
+
+
+nmd wsm，跟想的差太远了，往女性那边偏一点都不行吗
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12402#       发表于 2020-4-29 19:09
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-29 19:10 编辑 
+
+我的，中性厨血流三丈，躺地上死了。
+
+
+syl，
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/190907ge2m2muqyidvz2ym.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200429190851.png</strong> (63.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 19:09 上传
+
+
+
+
+
+
+
+
+zsyl，
+
+<img src="https://img.saraba1st.com/forum/202004/29/191015nqvonpyqolyxn5zy.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200429190948.png</strong> (284.85 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 19:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12403#       发表于 2020-4-29 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249988&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-29 19:07</a>
+
+不，这个声音怎么通过的杏女liver初试啊
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2. ...</blockquote>
+官方设定而已不要入脑啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12404#       发表于 2020-4-29 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250006&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-29 19:08</a>
+
+你们对别人声音究竟有什么奇怪的期待，正常男声可不就是这样的吗，还是说你们是想看的是掐女声的男人？
+
+
+— ...</blockquote>
+兔鞠那样的不好么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+要求再放低点，奈奈华那样的也能接受
+
+
+当然最好的还是朝日娘那样的女配男声<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12405#       发表于 2020-4-29 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250006&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-29 19:08</a>
+
+你们对别人声音究竟有什么奇怪的期待，正常男声可不就是这样的吗，还是说你们是想看的是掐女声的男人？
+
+
+— ...</blockquote>
+参考kira的同接，我怀疑你猜对了
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 12406#       发表于 2020-4-29 19:10
+
+
+
+ 本帖最后由 null0304 于 2020-4-29 19:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">全身立绘，好腿！syl，
+
+其实伪声的话会面对[女孩子说起话来就吵吵的]这样的问题，不一定是缺点诶（大概
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12407#       发表于 2020-4-29 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250006&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-29 19:08</a>
+
+你们对别人声音究竟有什么奇怪的期待，正常男声可不就是这样的吗，还是说你们是想看的是掐女声的男人？
+
+
+— ...</blockquote>
+反正是套皮管人，掐的好就能当女生看啊
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12408#       发表于 2020-4-29 19:11
+
+
+
+
+木口这FF7Re整个第18章都是放送禁止区间，企业势，不行；直播还得看个人势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12409#       发表于 2020-4-29 19:11
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-29 19:13 编辑 
+
+听八美肉讲俄语还是很带劲的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不对，算了一下，我还是比妖精少个几十斤的，他那样也不太容易变成。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 12410#       发表于 2020-4-29 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">正常男声用这种皮干嘛嘛
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12411#       发表于 2020-4-29 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250026&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-29 19:09</a>
+兔鞠那样的不好么
+
+
+要求再放低点，奈奈华那样的也能接受</blockquote>
+这… 我没觉得那样坏，但是也不知道会好到哪里，所以说我不能理解
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12412#       发表于 2020-4-29 19:11
+
+
+
+
+这皮为啥不给女v啊233333
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 12413#       发表于 2020-4-29 19:12
+
+
+
+<blockquote>某穆克拉 发表于 2020-4-29 19:11
+这皮为啥不给女v啊233333</blockquote>
+最好给个会变声的呀，好浪费
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 12414#       发表于 2020-4-29 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋还喜欢小英雄 木口培训不过关
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 12415#       发表于 2020-4-29 19:13
+
+
+
+
+五期皮比不过这个yagoo好上天了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12416#       发表于 2020-4-29 19:13
+
+
+
+
+人数上上下下的 铁直男进来听到男声估计就直接关了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12417#       发表于 2020-4-29 19:13
+
+
+
+
+八美肉又不是男角色，为什么有期待八美肉的
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12418#       发表于 2020-4-29 19:13
+
+
+
+ 本帖最后由 Vneet 于 2020-4-29 19:15 编辑 
+
+既然声音出来了，说点别的，之前有点即视感，现在想起来了，是之前看的那部女装大佬新番（不是里的，但有啪啪啪），好像是叫裙底下有野兽？虽然完全不像。
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12419#       发表于 2020-4-29 19:13
+
+
+
+ 本帖最后由 KarsusNeko 于 2020-4-29 19:15 编辑 
+
+原来有的人性癖是看男人用女皮掐着女声说话，抱歉我刚才没懂现在我悟了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我觉得这些人里可能有那么一丢丢给的概率比黑宝还大。如果黑宝是99%那么有那么一丢丢是99.1
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12420#       发表于 2020-4-29 19:13
+
+
+
+
+狐皇今天的联动是对占卜的恩赏吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12421#       发表于 2020-4-29 19:13
+
+
+
+
+不过这声音配这个形象，可能在B这边更吃香，毕竟B这边有京华和帕里在前做先例
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12422#       发表于 2020-4-29 19:14
+
+
+
+
+我觉得这皮给女V比给男V效益大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12423#       发表于 2020-4-29 19:14
+
+
+
+
+YAGOO发推表示超可爱
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12424#       发表于 2020-4-29 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250073&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-29 19:13</a>
+原来有的人性癖是看男人用女皮掐着女声说话，抱歉我刚才没懂现在我悟了
+
+—— 来自 OnePlus ONEPLUS ...</blockquote>
+你以为鹦鹉哥那些订阅从哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 12425#       发表于 2020-4-29 19:15
+
+
+
+
+yagoo对杏⭐是真爱<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12426#       发表于 2020-4-29 19:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这皮不如让九血鬼试试
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12427#       发表于 2020-4-29 19:15
+
+
+
+
+不管怎样话题性是有了，而且看现场效果结合同期评价杂谈力还是不错的，应该。。。能留住。。。一些人吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 12428#       发表于 2020-4-29 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑宝好像很开心
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12429#       发表于 2020-4-29 19:17
+
+
+
+
+九血鬼自己的皮已经和他本人几乎一模一样了，不需要再换皮了，最近看了眼发现九血鬼平常的衣品和他那套皮都一模一样，甚至连涂指甲油的设定都加上了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12430#       发表于 2020-4-29 19:17
+
+
+
+
+看来还是有楼友完全不懂伪娘药娘圈的嘛 该说纯洁还是DT呢<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sylali  
+##### 12431#       发表于 2020-4-29 19:17
+
+
+
+ 本帖最后由 sylali 于 2020-4-29 19:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247201&amp;ptid=1924531" target="_blank">null0304 发表于 2020-4-29 15:11</a>
+
+「荒咬オウガ巨魔说（关于姓名来源的不负责任推测） 」
+
+
+【个人介绍】春の訪れと共に現れた、魔界育ちの気 ...</blockquote>
+<blockquote> Orga/Ogress，欧洲神话中的食人魔/怪物，由于本身的形象十分高大强壮，因为与（欧洲文化圈内的）食人魔形象有所区别，在奇幻文学中的译法一般是巨魔。在更狭义的北欧神话中有凶暴残忍的固有印象。是Troll的相关亲属（划掉）—— <blockquote>这个幻想种族往往和矮人是死敌，争夺地下洞穴和山岭作为自己的地盘。也和巨怪（trolls）相关。传说中此怪物身材高大肥胖，手臂粗壮力大无穷，头脑简单，喜欢吃任何肉类，尤其是新鲜的家畜和家畜的主人。《史瑞克》系列主角史瑞克和公主的形象即源自食人魔。</blockquote></blockquote>
+考据典故好评！但是这两段描述似乎有点奇怪和自相矛盾。我读过的资料里，Ogre是来自于法语/French folklore，属于欧洲大陆的神话/文化传统，而且较为晩近；而Troll则是来自于北欧神话（Norse mythology/Scadinavian folklore)。诗体埃达里应该是没有Ogre这种生物的，不知道您看到有什么我不了解的文献里提到过北欧神话里出现的Troll？
+
+
+Ogre和Troll在各种中文翻译版本里的混乱也是一个旧问题了。台版的游戏（一以贯之，从古早dnd到台版wow）和奇幻小说（狭义，主要是DND体系下的费伦/龙**等世界观）经常把Ogre翻译成巨魔，Troll翻译成食人妖/巨怪/洞穴巨人；这个翻译模式也影响到了大陆早期的一些奇幻游戏翻译，比如国服无尽的任务里就遵从了Ogre=巨魔/Troll=洞穴巨人的翻译。大陆的TRPG圈和DND相关小说在早期黯法塔/ntrpg，后期苹果园/trow的规则书和设定本翻译运动影响下，自行产生了一个较为一致自洽的翻译体系，Ogre一般翻译成食人魔，而Troll翻译成巨怪/巨魔。这一批译者对国内的游戏和奇幻翻译的影响甚大，比如nga以前的创始人和国内wc/wow的主要翻译Ediart。所以大陆中后期的游戏（比如大陆服的wow，和台服翻译形成有趣的对照）和奇幻小说翻译受此影响遵从了Ogre=食人魔，Troll=巨魔的翻译。国内论坛上后来把英文论坛meme的Troll转译为巨魔也是主要受此影响。
+
+
+但是，国内的早期大众奇幻类文学译作（比如魔戒和哈利波特），并未受到国内TRPG圈成体系翻译运动的影响，所以在Ogre和Troll的译名上依然不太稳定。最早的译林版魔戒 （不是后来出的有很大改进的第四版）里，Troll是翻译成食人妖的（米尔寇模仿恩特的造物）。魔戒里并没有Ogre，因为托老受到Ogre的启发创造了Orc一词和相关的物种；这也是后来的兽人一族之**。国内简体版哈利波特里出现的Orge被翻译成了吃人妖/吃人妖魔/吃人巨妖，而Troll则用了巨怪的翻译；和译林版魔戒的翻译刚好相反，十分有趣。
+
+至于Shrek，Quora上甚至有Is Shrek an Orge or a Troll?的问题，可见分不清Orge和Troll是个跨国界的普遍现象。但是官方设定里Shrek确实是Orge。  (和杏星三期的初始话题已经离题万里拉不回来了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12432#       发表于 2020-4-29 19:17
+
+
+
+
+女装、喜欢jump系 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 12433#       发表于 2020-4-29 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249006&amp;ptid=1924531" target="_blank">free 发表于 2020-4-29 17:40</a>
+
+龙皇换经纪人那就是玩一下自己极道大姐头的梗吧，这还能说换就换啊......
+
+
+要看空妈的圆脸美图吗，楼主快来 ...</blockquote>
+空妈这张照片有点“宽屏版小泽亚李”的感觉
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12434#       发表于 2020-4-29 19:18
+
+
+
+ 本帖最后由 ひびき 于 2020-4-29 19:21 编辑 
+
+yagoo要是真想让木口星改天换地，我这里有一条明路，花钱找铃平广画张皮，声音一定要偏女性化的，不管是变声器还是伪声还是直接找个女魂，中性到镜见那个程度就行，然后设定一定要清楚，最好是比木口全员都清楚<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 然后再有一丢丢本事，最好设定是个仆人，会家务，齐活了
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12435#       发表于 2020-4-29 19:18
+
+
+
+
+其实我还是知道这些的，但是没想到在非匿名论坛里会有这么多
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12436#       发表于 2020-4-29 19:19
+
+
+
+
+要是这人看电锯人的话，我可以考虑点个订阅，看dota比赛去了，希望看好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 12437#       发表于 2020-4-29 19:19
+
+
+
+
+这个真的想不到，因为男声套女皮的八美肉除了狐叔我印象中就没有火过的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主要是如果他是女声的话四舍五入就能当女v用，现在就有点……起码话题度有了，还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12438#       发表于 2020-4-29 19:19
+
+
+
+
+女魂不靠谱的，犬山自称伪娘，实际做的事情和女V完全无区别
+
+扔个女魂进男人堆，一些激进女粉不得杀人
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 12439#       发表于 2020-4-29 19:19
+
+
+
+
+问个事，最近又有哪个带物被挖了？刷微博刷出好几条了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12440#       发表于 2020-4-29 19:20
+
+
+
+
+这个l2d有点拉跨啊，一抬头脸就成纸片了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12441#       发表于 2020-4-29 19:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吹死婊活…其实楼友的期待也不是不能理解，毕竟普通男V的首选应该是彩虹，而杏星只能险中取胜。可惜yagoo再次证明自己只是个抽卡运好的草包，方向错了，又浪费了一次机会。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 12442#       发表于 2020-4-29 19:20
+
+
+
+
+楼友们奶的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12443#       发表于 2020-4-29 19:21
+
+
+
+[https://www.youtube.com/watch?v=EFAQXlE4SrM](https://www.youtube.com/watch?v=EFAQXlE4SrM)
+
+
+【歌ってみた】PLATONIC GIRL / みきとP【織田信姫 × Kotone(天神子兎音)coverコラボ】
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 12444#       发表于 2020-4-29 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250163&amp;ptid=1924531" target="_blank">Igarashi 发表于 2020-4-29 19:19</a>
+
+问个事，最近又有哪个带物被挖了？刷微博刷出好几条了</blockquote>
+订阅超40w的アジルス被挖了，中之人是著名声优杉田智和<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12445#       发表于 2020-4-29 19:23
+
+
+
+
+在转播间看，弹幕一会儿一个锤子，这位中国进出应该会很顺利
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 12446#       发表于 2020-4-29 19:24
+
+
+
+<blockquote>KarsusNeko 发表于 2020-4-29 19:13
+原来有的人性癖是看男人用女皮掐着女声说话，抱歉我刚才没懂现在我悟了
+
+
+我觉得这些人里可能有那么 ...</blockquote>
+我超爱安堂姐的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12447#       发表于 2020-4-29 19:25
+
+
+
+
+气死我了气死我了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12448#       发表于 2020-4-29 19:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250148&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-29 19:18</a>
+
+yagoo要是真想让木口星改天换地，我这里有一条明路，花钱找铃平广画张皮，声音一定要偏女性化的，不管是变 ...</blockquote>
+朋友你已经第几遍铃平广了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+y1s1我觉得铃平广真的不行，硬不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12449#       发表于 2020-4-29 19:25
+
+
+
+
+算了不看了，万一后面整活还请repo一下。
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 12450#       发表于 2020-4-29 19:26
+
+
+
+
+草，一个名字考据这么久，什么时候开个管人名字考据楼
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12451#       发表于 2020-4-29 19:26
+
+
+
+
+铃平广那个画风要是管人用真觉得不怎么行
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 12452#       发表于 2020-4-29 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249988&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-29 19:07</a>
+
+不，这个声音怎么通过的杏女liver初试啊
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2. ...</blockquote>
+超时空，这个是谁说的？
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12453#       发表于 2020-4-29 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250253&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-4-29 19:24</a>
+我超爱安堂姐的</blockquote>
+楼友要积德<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 12454#       发表于 2020-4-29 19:27
+
+
+
+
+京华和帕里进出可不是靠皮和声音，而且他们(曾经)还有高人气女儿
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12455#       发表于 2020-4-29 19:27
+
+
+
+
+至少首次同接是创记录了啦，是一般女V的同接水平∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12456#       发表于 2020-4-29 19:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑黑宝在乳井皇和锤子
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12457#       发表于 2020-4-29 19:29
+
+
+
+ 本帖最后由 ひびき 于 2020-4-29 19:30 编辑 
+
+其实木口的这几位皇，后期起来是靠自己本事，但前期吸眼球也没有超脱死宅常见人设类型阿，狐皇——狐娘，夸皇——女仆，兔皇——兔耳朵娘，龙皇——龙娘
+
+
+
+
+木口星要想一下子起来离不开女团这边的粉丝群，不是说现在木口星80%粉丝都是木口生活那边过来的么。那对死宅而且是直男死宅杀伤力最强的男性角色人设是啥——小仓朝日、宫小路瑞穗二选一啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 12458#       发表于 2020-4-29 19:30
+
+
+
+
+ena这直接颜出直播啊。。超美丽3D是我没想到的，井皇选人看脸选的吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12459#       发表于 2020-4-29 19:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">黑宝一看是男声，不是八美肉，瞬间放心了，
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12460#       发表于 2020-4-29 19:32
+
+
+
+<blockquote>Zaphikel 发表于 2020-4-29 19:30
+ena这直接颜出直播啊。。超美丽3D是我没想到的，井皇选人看脸选的吗？？ ...</blockquote>
+人在外面，给个截图呗兄弟
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 12461#       发表于 2020-4-29 19:32
+
+
+
+
+
+转张兔皇，推特链接：[https://twitter.com/Seic_Oh/status/1255073052947185665](https://twitter.com/Seic_Oh/status/1255073052947185665)
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/193153uh0dpfhfjzx8pj88.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWrqNOFU0AAz4qD.jpg</strong> (146.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 19:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 12462#       发表于 2020-4-29 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250320&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-29 19:29</a>
+其实木口的这几位皇，后期起来是靠自己本事，但前期吸眼球也没有超脱死宅常见人设类型阿，狐皇——狐娘，夸 ...</blockquote>
+别忘了木下秀吉和户冢彩加
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 12463#       发表于 2020-4-29 19:33
+
+
+
+
+来了，超美丽3D，前paryipro的ena<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200429193252.jpg
+(91.09 KB, 下载次数: 11)
+
+
+
+
+下载附件
+
+
+2020-4-29 19:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/193312gfvewkbtvwy8zvbw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 12464#       发表于 2020-4-29 19:33
+
+
+
+<img src="https://img.nga.178.com/attachments/mon_202004/29/-zue37Q5-f57oK13T1kSeo-k8.jpg" referrerpolicy="no-referrer">懒得截图直接搬了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12465#       发表于 2020-4-29 19:34
+
+
+
+
+月下カオル ≈ むつー
+[https://www.youtube.com/user/mutuugame](https://www.youtube.com/user/mutuugame)
+
+
+↓喜欢化妆和陀螺
+[https://twitter.com/mutuu24/status/1240183209733705728](https://twitter.com/mutuu24/status/1240183209733705728)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 12466#       发表于 2020-4-29 19:34
+
+
+
+
+所以井皇是看脸选人的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+79f0f736afc379311c537f40fcc4b74543a9119b.jpg
+(52.8 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-29 19:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/193347pcpvg3sicc0ddmvv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 12467#       发表于 2020-4-29 19:34
+
+
+
+ 本帖最后由 null0304 于 2020-4-29 19:38 编辑 
+
+kira来互动了
+
+aruran和temma也来了
+
+1. メインはゲーム，主游戏
+
+2. 说到对于男性的化妆的印象大家一般都会想到牛郎（），但是实际上日常系的妆容和那类完全不一样大家都该试一试，准备在起步阶段做三分钟左右的动画来介绍一下护肤化妆相关的内容
+
+3. 还有ASMR的预定（很心虚的说了大概三个月左右一次……？）
+
+
+
+
+
+
+2.png
+(73.39 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-29 19:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/193133npf1ijwsefw8s282.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12468#       发表于 2020-4-29 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250372&amp;ptid=1924531" target="_blank">包之沐白 发表于 2020-04-29 19:33:42</a>
+懒得截图直接搬了</blockquote>喔噢好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 12469#       发表于 2020-4-29 19:35
+
+
+
+
+那mana一定也很可爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 12470#       发表于 2020-4-29 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12471#       发表于 2020-4-29 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">P家人均美少女有被笑到，
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 12472#       发表于 2020-4-29 19:38
+
+
+
+
+这五官可太标致了，我可太好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12473#       发表于 2020-4-29 19:39
+
+
+
+
+你说这个话我就要发高小姐照片了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12474#       发表于 2020-4-29 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250358&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-4-29 19:32</a>
+
+别忘了木下秀吉和户冢彩加</blockquote>
+也是一样的，但是这两位人设不容易蹭到，为啥我说玲平广，因为她和凪白一样画啥都一个脸，你让她画个皮绝对整个和朝日娘差不多的出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12475#       发表于 2020-4-29 19:39
+
+
+
+
+彩加那种毕竟是假的，这可是真人呐。我只在匿名论坛见过自称直男约伪娘击剑的。
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12476#       发表于 2020-4-29 19:40
+
+
+
+
+我都不知道楼友在期待些什么，按杏仁视角星不是越拉跨越好吗，还是说楼友潜意识里是喜欢看套皮男人？
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 12477#       发表于 2020-4-29 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">韩国美少女这么可爱，阿葵一定不是坦克
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12478#       发表于 2020-4-29 19:41
+
+
+
+
+说到韩国，话说釜山有照片吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12479#       发表于 2020-4-29 19:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">魂账coc浓度，狐皇一定很喜欢吧
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 12480#       发表于 2020-4-29 19:41
+
+
+
+
+提到韩国人我会先想她脸上动了几刀<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12481#       发表于 2020-4-29 19:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12482#       发表于 2020-4-29 19:42
+
+
+
+
+一点进去就是TRPG还行，少主在杏星选人也有话语权的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12483#       发表于 2020-4-29 19:44
+
+
+
+ 本帖最后由 colodes 于 2020-4-29 19:45 编辑 
+
+目标10w人后3D化
+
+竟然聊起了本社，被丰州演唱会上空妈的歌冲击到
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 12484#       发表于 2020-4-29 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">加水温了 杏仁快冲啊
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 12485#       发表于 2020-4-29 19:45
+
+
+
+
+好孩子
+
+100k目标好远大，哎…
+
+
+
+
+
+
+B6623ADE-B233-47F7-93B5-053F58E2596F.png
+(237.8 KB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-4-29 19:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/194412dipnzkfpr6ppz33k.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 12486#       发表于 2020-4-29 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250386&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-4-29 19:34</a>
+
+所以井皇是看脸选人的吗</blockquote>
+对mana的期待程度一下子抬高了几个等级
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 12487#       发表于 2020-4-29 19:45
+
+
+
+
+天皇和凛姨能给slee做面试官，白姨怎么想也比这两个话语权高吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12488#       发表于 2020-4-29 19:46
+
+
+
+
+那么slee能抽出ena这个等级的吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12489#       发表于 2020-4-29 19:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/194704aqmbb45qqc5rtqr4.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-29 194652.png</strong> (110.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 19:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 12490#       发表于 2020-4-29 19:47
+
+
+
+
+说实话跟声音给我的印象还是差的有点多……不过现在在老鼠台声音跟以前确实也不太一样，挑染居然是本来就有的
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12491#       发表于 2020-4-29 19:47
+
+
+
+
+我操我现在回家听了一下，这个是むつー啊握日！！！
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12492#       发表于 2020-4-29 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 如果葵皇真的是韩国人，颜值也这个水平，那就没遗憾了
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 12493#       发表于 2020-4-29 19:48
+
+
+
+
+人家是女装子，大部分女装子是不会特地去学女音的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12494#       发表于 2020-4-29 19:49
+
+
+
+ 本帖最后由 ひびき 于 2020-4-29 19:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250559&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-4-29 19:47</a>
+
+我操我现在回家听了一下，这个是むつー啊握日！！！</blockquote>
+艹，我查了下，这TRPG浓度一定是狐皇走后门安插进来的吧，一定是吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+syl，估计木口星又一个订阅比本体低了
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12495#       发表于 2020-4-29 19:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250498&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-4-29 19:42</a>
+一点进去就是TRPG还行，少主在杏星选人也有话语权的吗</blockquote>
+杏星归根结底也是杏啊，少主是整个杏的少主<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 12496#       发表于 2020-4-29 19:50
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-4-29 19:51 编辑 
+
+另外孙小姐这推特设的賊恶心，HlME_SUN，这中间这个I根本打不出来，没链接连搜都搜不到
+
+另外还是熟悉的半天憋不出一句话
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12497#       发表于 2020-4-29 19:50
+
+
+
+
+合着这颜也没到惊艳的水准吧  去做真人女主播也就是中等偏上<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+我相信角田能选出本田翼水平的
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12498#       发表于 2020-4-29 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">むつー已婚，跟にどみ是好朋友，女性的RP非常优秀，但是并不会掐女声也不穿女装
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 12499#       发表于 2020-4-29 19:50
+
+
+
+
+是个能带团的人，狐皇大欢喜
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12500#       发表于 2020-4-29 19:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250559&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-4-29 19:47</a>
+我操我现在回家听了一下，这个是むつー啊握日！！！</blockquote>
+谁，发链接指个路？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12501#       发表于 2020-4-29 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250559&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-4-29 19:47</a>
+我操我现在回家听了一下，这个是むつー啊握日！！！</blockquote>
+老姐能不能介绍一下，不太懂实况主圈子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，目标10w，假如这皮在女团大概是一个月内的事情吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12502#       发表于 2020-4-29 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250595&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-4-29 19:50</a>
+
+むつー已婚，跟にどみ是好朋友，女性的RP非常优秀，但是并不会掐女声也不穿女装 ...</blockquote>
+这女性RP是跑团练出来的么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12503#       发表于 2020-4-29 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250597&amp;ptid=1924531" target="_blank">滑稽Captain 发表于 2020-4-29 19:50</a>
+
+是个能带团的人，狐皇大欢喜</blockquote>
+不懂trpg，是能当kp吗？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12504#       发表于 2020-4-29 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">好看，还想看mana长什么样，什么时候有得看。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12505#       发表于 2020-4-29 19:54
+
+
+
+
+你们这就特到了？
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 12506#       发表于 2020-4-29 19:54
+
+
+
+
+最后五分钟还要上个厕所 
+
+你这入职培训是阿希给你做的吗
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 12507#       发表于 2020-4-29 19:55
+
+
+
+
+又想到漂亮的女生往往喜欢和丑女做朋友<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12508#       发表于 2020-4-29 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">yagoo找优十还不死心又找了个大物吗
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12509#       发表于 2020-4-29 19:55
+
+
+
+
+推上fo了不少八美肉，还有葵皇、露露、gibara、修女
+
+和杏有点关系的就mysk本体
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12510#       发表于 2020-4-29 19:56
+
+
+
+
+楼友涉猎广泛，这句话很早就想说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 12511#       发表于 2020-4-29 19:56
+
+
+
+
+还剩五分钟：「トイレに行ってきます」<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12512#       发表于 2020-4-29 19:56
+
+
+
+
+可以的可以的，这特定速度和5ch谁快些？算不算v综历史性地位最高的一刻？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 12513#       发表于 2020-4-29 19:56
+
+
+
+
+楼里隐gay不少，一个个那么熟悉男人
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12514#       发表于 2020-4-29 19:57
+
+
+
+
+我搜了下这人的照片，头发都没几根了还搁这儿美妆呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12515#       发表于 2020-4-29 19:58
+
+
+
+ 本帖最后由 ヒトニナル 于 2020-4-29 19:59 编辑 
+
+统一回复
+
+
+むつー 推特@mutuu24 **主频道自己搜。算是游戏实况者但是作为TRPG模组作者和KP的他更有名。已婚，前阵子刚刚搬完家。和ﾀﾗﾁｵ以及にどみ关系很好。P，担当是芙芙。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12516#       发表于 2020-4-29 19:58
+
+
+
+
+可惜我之前发过了，还是虹串最先提出的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 12517#       发表于 2020-4-29 19:58
+
+
+
+<blockquote>stedckk 发表于 2020-4-29 19:52
+好看，还想看mana长什么样，什么时候有得看。</blockquote>
+已经超美丽3D过了，露脸应该不远了
+
+
+
+
+
+
+Screenshot_20200429_195757.jpg
+(40.33 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-29 19:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/195810wjgpzuyjsnvtt4jv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 12518#       发表于 2020-4-29 19:58
+
+
+
+
+那说明rp得好啊，够V<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12519#       发表于 2020-4-29 19:58
+
+
+
+
+最后同期宣传做的还是不错的，杂谈力可以，既然是nico老实况主游戏力应该也不错，而且初配信最让我好奇的就是那个描述的十分诡异的asmr，如果能造出梗来也挺好
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12520#       发表于 2020-4-29 19:59
+
+
+
+
+是否可以再次顺劈井皇废物，这把手牌能打飞就离谱。
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 12521#       发表于 2020-4-29 20:00
+
+
+
+<img src="https://p.sda1.dev/0/ec3f7d73cb97096c50f4295c0f5107f6/IMG_3852E54F8B5CC2FCCBA22168CA95C0B8.jpeg" referrerpolicy="no-referrer">
+萝卜子你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12522#       发表于 2020-4-29 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 真有楼友喜欢男人搞asmr，我是服的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12523#       发表于 2020-4-29 20:01
+
+
+
+
+今天很多人都发这个阿黑颜挑战来着，萝卜子还直接上あさココ开阿黑颜讲座了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12524#       发表于 2020-4-29 20:02
+
+
+
+
+这位薰大佬也是要每日播两次，早上一次晚上一次么？为holo开设早八档？
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12525#       发表于 2020-4-29 20:02
+
+
+
+<blockquote>激光2000 发表于 2020-4-29 20:00
+真有楼友喜欢男人搞asmr，我是服的</blockquote>
+我不喜欢，只是说这个可以成为他的梗来源而已
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 12526#       发表于 2020-4-29 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250731&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 20:00</a>
+
+真有楼友喜欢男人搞asmr，我是服的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">2000你ASMR肯定看得少。ASMR能出头的男人质量才是高的
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12527#       发表于 2020-4-29 20:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/200248hyyj4t7455jr37i5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>878EC1CB-10A6-4B88-BB14-9AAA662EDCC8.jpeg</strong> (23.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 20:02 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/200248ctc6a9qccjj7o52o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>525275D9-2177-4C1A-8CED-1167F1F829F7.jpeg</strong> (21.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 20:02 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12528#       发表于 2020-4-29 20:03
+
+
+
+
+有男人的阿黑颜挑战吗，不要yagoo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12529#       发表于 2020-4-29 20:04
+
+
+
+
+你楼今天车了一天男人，🐰皇平A 2w5都没人提了。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12530#       发表于 2020-4-29 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是我在路上没办法听直播哪还轮得到5ch，直播间点进去听声音一秒特定好吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 12531#       发表于 2020-4-29 20:05
+
+
+
+<blockquote>IDIDIDID 发表于 2020-4-29 19:59
+是否可以再次顺劈井皇废物，这把手牌能打飞就离谱。</blockquote>
+然而ena直播是真的8太行，现在也是，日常半天不说话然后萌混过关
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 12532#       发表于 2020-4-29 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250778&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-04-29 20:04:09</a>
+你楼今天车了一天男人，🐰皇平A 2w5都没人提了。</blockquote>狐皇2W5能刷屏，兔子最近都挺高也就这样吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                

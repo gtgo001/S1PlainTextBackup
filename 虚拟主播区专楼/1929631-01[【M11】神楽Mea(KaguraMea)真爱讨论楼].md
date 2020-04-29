@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 14:10** 
+> ## **本文件最后更新于2020-04-29 20:09** 
 
 
 
@@ -21425,4 +21425,733 @@ syl，最近很明显觉得她面对阿b这七十多万人已经不知道该怎�
 
 
 
-          
+
+
+-----
+
+####  thisisaspider  
+##### 1178#       发表于 2020-4-29 14:21
+
+
+
+
+领导要优先福报啊，不然下属没动力。咩咩是个好领导<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1179#       发表于 2020-4-29 15:05
+
+
+
+
+就不能是在404她搞企划的动力也没多大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+除了网吧KTV也干不了啥
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 1180#       发表于 2020-4-29 15:39
+
+
+
+
+你们就直说想看3d吧，我也想
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 1181#       发表于 2020-4-29 15:43
+
+
+
+
+她一开始给自己的目标就是一周3次，每次1小时跟人聊聊天。然后一个月收入三四十万日圆就行了，大满足了。也没想过换新衣服、换皮、搞3D.谁知道自己居然火得这么离谱，她其实一直都挺迷茫的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1182#       发表于 2020-4-29 15:45
+
+
+
+
+她在404的企划也少啊，通常都是她被邀请，很少邀请别人的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1183#       发表于 2020-4-29 15:55
+
+
+
+
+谁还不是个肉体厨呢<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1184#       发表于 2020-4-29 16:03
+
+
+
+
+看隔壁说她黄金周要大量出差，被拉了不少企划去？
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1185#       发表于 2020-4-29 16:11
+
+
+
+
+好事，好事
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 1186#       发表于 2020-4-29 16:22
+
+
+
+
+补了一下凌晨的tc，开头就在说自己这么早播要被指责生活不规律，还要被社畜学生之类的说道。
+这种干坏事的小孩子感十足啊，也算你麻长期萌点之一了()
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1187#       发表于 2020-4-29 16:24
+
+
+
+
+除了v骚还有哪个？
+
+
+
+V骚三进三出你麻不亏是兔姨黄金搭档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1188#       发表于 2020-4-29 16:27
+
+
+
+
+除了v骚跟b限歌回暂时没有情报吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 1189#       发表于 2020-4-29 16:27
+
+
+
+
+应该还会有个和苔姨舞元的mc吧，除此之外就不知道了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1190#       发表于 2020-4-29 16:28
+
+
+
+
+苔苔你必死<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 1191#       发表于 2020-4-29 16:43
+
+
+
+
+tc20分讨月末奖金挺萌的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1192#       发表于 2020-4-29 17:10
+
+
+
+
+这几天刚发现b站有一个叫“修恋”的up主在做麻的视频（以歌为主），没看过的老哥可以去看看，空间指路：[https://space.bilibili.com/36827 ... 3158847696388583592](https://space.bilibili.com/368270363?from=search&amp;seid=13158847696388583592)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1193#       发表于 2020-4-29 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248339&amp;ptid=1929631" target="_blank">Kayz996 发表于 2020-4-29 16:43</a>
+
+tc20分讨月末奖金挺萌的
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+这段有人烤了，链接见：[https://www.bilibili.com/video/BV15p4y197jN](https://www.bilibili.com/video/BV15p4y197jN)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1194#       发表于 2020-4-29 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248653&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-4-29 17:10</a>
+
+这几天刚发现b站有一个叫“修恋”的up主在做麻的视频（以歌为主），没看过的老哥可以去看看，空间指路：htt ...</blockquote>
+之前就注意到了，刚又去看了下，有点像てんしあずさ的小号
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1195#       发表于 2020-4-29 17:42
+
+
+
+
+想听歌回<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1196#       发表于 2020-4-29 17:46
+
+
+
+
+我也想听歌回<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+我想听很久没唱的旧歌<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+比如烟草，比如366日<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1197#       发表于 2020-4-29 17:47
+
+
+
+
+歌回好像她也放了卫星
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1198#       发表于 2020-4-29 17:49
+
+
+
+<blockquote>鷹書たかしょ 发表于 2020-4-29 17:36
+之前就注意到了，刚又去看了下，有点像てんしあずさ的小号</blockquote>
+修恋应该不是这个人，他之前视频简介里说视频剪辑是最近才开始做的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1199#       发表于 2020-4-29 19:45
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 19:48 编辑 
+
+隔壁ena颜出了， 你麻什么时候跟进<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+该不会是没有自信吧， 不会吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1200#       发表于 2020-4-29 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">肉体厨死亡
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1201#       发表于 2020-4-29 19:50
+
+
+
+
+别想了肯定是busu了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 1202#       发表于 2020-4-29 19:54
+
+
+
+ 本帖最后由 rosevalley46 于 2020-4-29 20:00 编辑 
+
+ena的颜以我的审美相当惊艳了,而且很有特点,和皮相当微妙
+
+帕里这人是有点东西,肉体厨不用太担惊受怕好吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1203#       发表于 2020-4-29 19:57
+
+
+
+
+提帕里干什么？ 
+
+
+难道你抱有帕里找到的个个颜值高的期望？ <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+嗯...
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1204#       发表于 2020-4-29 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250648&amp;ptid=1929631" target="_blank">rosevalley46 发表于 2020-4-29 19:54</a>
+ena的颜以我的审美相当惊艳了,而且很有特点,和皮相当微妙
+
+帕里这人是有点东西,肉体厨不用太担惊受怕好吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p家颜出的有几个人来着，可以估计估计
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 1205#       发表于 2020-4-29 20:02
+
+
+
+
+帕里对你麻这么恶劣，该不会因为小麻不是美少女吧，不会吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 1206#       发表于 2020-4-29 20:02
+
+
+
+
+讲个笑话，不管是蝙蝠妹还是猴子在形容mea的时候都没有说过漂亮之类的词，而是说的非常委婉的“kawaii”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">考虑到她现在比过去胖了十公斤起步，得有是乔碧罗的心理准备。
+
+我反正是默认乔碧罗黑皮太妹的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1207#       发表于 2020-4-29 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250750&amp;ptid=1929631" target="_blank">cgz 发表于 2020-4-29 20:02</a>
+讲个笑话，不管是蝙蝠妹还是猴子在形容mea的时候都没有说过漂亮之类的词，而是说的非常委婉的“kawaii”[f: ...</blockquote>
+怎么又变成10公斤了，不是10斤吗
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1208#       发表于 2020-4-29 20:03
+
+
+
+
+高小姐就一般般啊
+
+
+
+
+
+
+
+-----
+
+####  MAO_DREAMER  
+##### 1209#       发表于 2020-4-29 20:03
+
+
+
+
+高小姐的图有吗，听说是yyut看脸的话绝对不会和她交往的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打破对井皇的幻想
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1210#       发表于 2020-4-29 20:04
+
+
+
+
+啥，不是黄兔子夸过她好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一直以为她是纤细美少女来着。不过想想吃不胖的美少女怎么可能体重飙十公斤
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1211#       发表于 2020-4-29 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250742&amp;ptid=1929631" target="_blank">LunarCorona_VOV 发表于 2020-4-29 20:02</a>
+
+帕里对你麻这么恶劣，该不会因为小麻不是美少女吧，不会吧不会吧不会吧 ...</blockquote>
+草， 应该没见过面
+
+
+她都是在CM时偷瞄帕利摊位才知道对方长什么样
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1212#       发表于 2020-4-29 20:04
+
+
+
+
+不是美女的图为啥要存呢，cos的律图吧
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 1213#       发表于 2020-4-29 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我就知道肉体厨会有复辟的苗头，俺寻思都没办法论证的事情。前王国民说不定那个思想钢印都是因为看过真人过于震撼了呢？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1214#       发表于 2020-4-29 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻肯定是busu啦
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1215#       发表于 2020-4-29 20:06
+
+
+
+
+不要坦克不要坦克不要坦克不要坦克<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1216#       发表于 2020-4-29 20:06
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 20:08 编辑 
+
+线下见过的没有描述你麻长相肯定是因为被你麻封口了（指不想透露个人信息， 而不是...<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 1217#       发表于 2020-4-29 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250766&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-29 20:03</a>
+
+怎么又变成10公斤了，不是10斤吗</blockquote>
+女孩子的话能信？说自己胖10斤怎么也是20斤起步。考虑到声线都变形了，估计脖子上都长肉了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 1218#       发表于 2020-4-29 20:07
+
+
+
+
+此番，必将是坦克民的大获全胜<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1219#       发表于 2020-4-29 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250824&amp;ptid=1929631" target="_blank">cgz 发表于 2020-4-29 20:07</a>
+女孩子的话能信？说自己胖10斤怎么也是20斤起步。考虑到声线都变形了，估计脖子上都长肉了 ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl我记得铲楼有高小姐的cos照，之前的v综也有事故露脸来着
+
+
+
+
+
+         

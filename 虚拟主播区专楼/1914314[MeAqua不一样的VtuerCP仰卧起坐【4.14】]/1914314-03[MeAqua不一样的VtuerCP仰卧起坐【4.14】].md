@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-28 18:01** 
+> ## **本文件最后更新于2020-04-29 20:02** 
 
 
 
@@ -8292,4 +8292,911 @@ mea组和aqua组贴贴！！！！！
 
 
 
-                                  
+
+
+-----
+
+####  魔法使い2019  
+##### 3456#       发表于 2020-4-29 17:21
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 17:41 编辑 
+
+我有一个办法避免评论区吵架， <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+只要让作者声明作品是否是贴贴向的就行了。
+
+
+如果是贴贴向的， 随便喊贴贴， 如果不是就别刷贴贴了。
+
+
+这不就解决了？
+
+
+可是这样的话贴贴视频就无法上官组，
+
+
+所以他们只能用各种奇形手段来搞，
+
+
+虽然因为对于视频是否是 “贴贴向“容易引起争议并吵起来。
+
+
+我真的开始怀疑他们是巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+我对这个办法的效果有信心， 可是它是否会被采纳没有信心<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+虽说如此， 出于避免争端的意愿， 我将它提出了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+1. 明显以贴贴为主题的作品上不了官组
+
+
+-》要上官组还加贴贴要素只能用奇怪的手段暗示
+
+-》因为难以分辨视频是否属于 ”贴贴向“， 到底在评论区刷贴贴合不合理而吵起来
+
+2. 如果不加贴贴要素， 2创意愿下降
+
+
+所以这是2创与评论区和谐的抉择啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我不做选择， 我弃权
+
+交给官组去做选择了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3457#       发表于 2020-4-29 17:31
+
+
+
+
+稿子投歪到其他地方不怪吗？
+
+
+《命嫌的联合投稿》
+
+
+转移了热度你麻没钱恰，我看你们就是想要我的小麻饿死<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3458#       发表于 2020-4-29 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248766&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-29 17:21</a>
+我有一个办法避免评论区吵架， 
+
+
+只要让作者声明作品是否是贴贴向的就行了。</blockquote>
+你什么时候产生了贴贴视频就无法上官组的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3459#       发表于 2020-4-29 17:43
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 17:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248937&amp;ptid=1914314" target="_blank">yuandi20 发表于 2020-4-29 17:35</a>
+
+你什么时候产生了贴贴视频就无法上官组的错觉
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Nex ...</blockquote>
+可以吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+如果可以的话那不是好解决了吗？
+
+
+只要声明一切视频是否属于”贴贴向“ 就能避免评论区因为这回一样的原因吵架了（虽然可能因为其他原因...所以到头来还是取舍的问题
+
+我改变主意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我偏向流量了， 就算难以避免吵架也要流量
+
+
+原因比较复杂，
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3460#       发表于 2020-4-29 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249054&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-29 17:43</a>
+可以吗？ 
+
+
+如果可以的话那不是好解决了吗？</blockquote>
+众所周知只有贴贴视频才能上官组好吗，所以你的一大堆困扰根本不存在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3461#       发表于 2020-4-29 17:56
+
+
+
+
+那这个pv投稿到官号上是完全的单人pv啊，稿件本身没有任何mea以外的要素，要标注贴贴向吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3462#       发表于 2020-4-29 17:57
+
+
+
+
+我想通了，要是官方多转发同好会和海盗内容还有其他人做的好的单人内容的话，我就当贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3463#       发表于 2020-4-29 17:58
+
+
+
+
+不， 我不是在团建， 我是在认真分析问题。
+
+
+不过算了， 分析这么多干嘛呢？
+
+
+如果做决定的人无法自己想到的话， 迟早会再次， 无数次跌倒在同样的地方。
+
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3464#       发表于 2020-4-29 17:59
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-29 18:00 编辑 
+
+我发个钓鱼贴，你按字面意思理解并认真回复的话，我会开心得不得了。贴贴民估计也是这种心态吧，明明全是mea单人内容，完全没有贴贴要素，你真这么理解了，他们的目的也就达到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3465#       发表于 2020-4-29 18:00
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 18:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249227&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-29 17:56</a>
+
+那这个pv投稿到官号上是完全的单人pv啊，稿件本身没有任何mea以外的要素，要标注贴贴向吗 ...</blockquote>
+就是因为本体没有mea以外的要素， 可是发布时间和封面有，
+
+
+然后不同的人对它是否是“贴贴向”
+
+
+在评论区刷贴贴是否合理这件事产生了不同的看法才会吵起来啊。
+
+
+如果作者声明了的话就不会因为这个吵了。
+
+不管是声明“是” 还是“不是” 都可以， 就是要一个结束争吵的结论。
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 3466#       发表于 2020-4-29 18:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这楼越多越gay了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|你怎么知道我们都是gay|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3467#       发表于 2020-4-29 18:04
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-29 18:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249267&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-29 18:00</a>
+
+就是因为本体没有mea以外的要素， 可是发布时间和封面有，
+
+
+然后不同的人对它是否是“贴贴向”</blockquote>
+我发钓鱼贴要不要标题加个“钓鱼向”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你是一个单推，不喜欢贴贴，只关注了一边。你看到他们做的一个单人曲，很喜欢，赞赏他们的行为。你不知道这是两个组同时发的，不知道封面的深层含义。
+
+你现在假设是那些贴贴人，你看到一个对自己有敌意的单推被忽悠得团团转，你会是什么样的心情？
+
+这不就是钓单推？
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3468#       发表于 2020-4-29 18:07
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 18:08 编辑 
+
+去学数学吧， 学算法吧， 保证你分析问题分析到爽， 寻找事物之间的关系的行为会成为本能<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3469#       发表于 2020-4-29 18:09
+
+
+
+
+君名这个主题还有这两个pv的相关度真没有贴贴的意思谁信啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+为啥crew就基本没吵啊，人均铁血crew吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我还是认为这次莫名其妙的爆发绝对有原因是官组相比其他组不是太给力造成的，当然也有可能是我这个祈忧民的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3470#       发表于 2020-4-29 18:12
+
+
+
+
+其实本来是个各取所需皆大欢喜的事，无脑刷贴贴和对贴贴出警乃至后面话题偏到车轱辘上去，大概都不是原本要的效果<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3471#       发表于 2020-4-29 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249352&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-29 18:09</a>
+君名这个主题还有这两个pv的相关度真没有贴贴的意思谁信啊
+为啥crew就基本没吵啊，人均铁血crew吗[f ...</blockquote>
+废话，吸血的受益方为啥要跳起来，同样的活在404来一遍你看crew不得跳的飞起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3472#       发表于 2020-4-29 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249352&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-29 18:09</a>
+君名这个主题还有这两个pv的相关度真没有贴贴的意思谁信啊
+为啥crew就基本没吵啊，人均铁血crew吗[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为官组和部分粉丝的对立由来已久，有些东西，一旦开始，就停不下来，要不为什么说是孽力回馈呢
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3473#       发表于 2020-4-29 18:16
+
+
+
+ 本帖最后由 2014720 于 2020-4-29 18:18 编辑 
+
+为什么2020了我们还要在这里聊meaqua呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+官组在风向上能把单mea内容提高的话，再多一点meaqua又能咋
+
+经济不景气导致民怨沸腾，我可以这么说吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3474#       发表于 2020-4-29 18:17
+
+
+
+
+哀叹悲剧没有意义， 怨天怨地没有意义
+
+
+我选择学日语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+思考分析对我来说是本能， 没有选择<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3475#       发表于 2020-4-29 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249416&amp;ptid=1914314" target="_blank">草牛 发表于 2020-4-29 18:15</a>
+因为官组和部分粉丝的对立由来已久，有些东西，一旦开始，就停不下来，要不为什么说是孽力回馈呢 ...</blockquote>
+对立就对立呗，怎么避免打起来才是比较重要啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3476#       发表于 2020-4-29 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249458&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-29 18:19</a>
+对立就对立呗，怎么避免打起来才是比较重要啊</blockquote>
+如果是生产力不足的问题，那就按之前说的，同好会和官组合作。不过问题是双方能否放下成见<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3477#       发表于 2020-4-29 18:24
+
+
+
+
+再车轱辘一下，除去黄兔子和苔苔，mea再找个百合营业对象猛磕一个月也能解决部分问题（五元biss），但不可能不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3478#       发表于 2020-4-29 18:28
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 18:34 编辑 
+
+-----------------------
+
+最新PV评论区吵起来是因为对“视频是否属贴贴向” 和 “刷贴贴是否合理”有争议
+
+
+以后的二创作品， 只要作者声明是否是贴贴向还是单人向就可以解决这点， 避免因为这个问题吵起来。
+
+-----------------------
+
+
+不说那些复杂的东西， 
+
+
+我对于声明二创性质的建议就放这了。
+
+
+望大家批判。
+
+
+以上
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3479#       发表于 2020-4-29 18:31
+
+
+
+
+再造梗也只会是共存而已，我想不到有什么能把meaqua完全覆盖掉的东西，而且她看起来也没这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3480#       发表于 2020-4-29 18:45
+
+
+
+
+关于贴标签，我觉得你标贴贴向不会有人出警，但单人向依旧必会有人出警
+
+官组立二创规矩的话我有点好奇这个二创规矩是二传转发规矩还是制作规矩，是制作规矩肯定又有人跳出来，你凭什么管我啊
+而且如果把meaqua单独列出来，区别对待的话会不会产生新的矛盾和退坑
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3481#       发表于 2020-4-29 18:49
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 18:55 编辑 
+
+哦， 反正不会再差了， 我觉得值得一试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+算了算了， 思考这些不如思考数学， 简直浪费我的脑力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+do as you please, have fun
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3482#       发表于 2020-4-29 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249385&amp;ptid=1914314" target="_blank">yuandi20 发表于 2020-4-29 18:12</a>
+废话，吸血的受益方为啥要跳起来，同样的活在404来一遍你看crew不得跳的飞起
+
+—— 来自 HUAWEI V ...</blockquote>
+冲国这边都分化成这样了还能怎么吸啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3483#       发表于 2020-4-29 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249512&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-29 18:24</a>
+再车轱辘一下，除去黄兔子和苔苔，mea再找个百合营业对象猛磕一个月也能解决部分问题（五元biss），但不可 ...</blockquote>
+反过来另一边也可以啊，而且那边意愿还挺强的，你看上次夸粥一夜情就有一大堆人疯掉，如果来个三天三夜、一周一月差不多就能让连体婴全死光吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3484#       发表于 2020-4-29 19:09
+
+
+
+
+为啥要连体婴死光呢，我还等着夸哥b限meaqua贴贴，贴贴人给送钱呢，钱包没干不准走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3485#       发表于 2020-4-29 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250027&amp;ptid=1914314" target="_blank">睥睨寰宇荡红尘 发表于 2020-4-29 19:09</a>
+为啥要连体婴死光呢，我还等着夸哥b限meaqua贴贴，贴贴人给送钱呢，钱包没干不准走 ...</blockquote>
+他们死不死关我什么事啊，我只是想着两边至少明面上不要闹腾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3486#       发表于 2020-4-29 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47249948&amp;ptid=1914314" target="_blank">yuandi20 发表于 2020-4-29 19:04</a>
+反过来另一边也可以啊，而且那边意愿还挺强的，你看上次夸粥一夜情就有一大堆人疯掉，如果来个三天三夜、 ...</blockquote>
+可她没有做啊，我记得阿夸那边评论区有句“我们阿夸可不止这一个营业对象”，只能说阿夸对crew培育有佳了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3487#       发表于 2020-4-29 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250096&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-29 19:14</a>
+他们死不死关我什么事啊，我只是想着两边至少明面上不要闹腾</blockquote>
+我觉得不闹腾真的很难，这次某个视频贴贴评论被踩下去了，meaqua小鬼不就跳出来表达不满？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3488#       发表于 2020-4-29 19:20
+
+
+
+<blockquote>本帖最后由 魔法使い2019 于 2020-4-29 18:34 编辑
+
+
+
+-----------------------
+
+最新PV评论区吵起来是因为对“视频是否属贴贴向” 和 “刷贴贴是否合理”有争议
+
+
+以后的二创作品， 只要作者声明是否是贴贴向还是单人向就可以解决这点， 避免因为这个问题吵起来。
+
+-----------------------
+
+
+不说那些复杂的东西，
+
+
+我对于声明二创性质的建议就放这了。
+
+
+望大家批判。
+
+
+以上</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3489#       发表于 2020-4-29 19:23
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 19:24 编辑 
+
+思考和行动才能改变啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+抱怨有什么意义呢
+
+
+也许这个圈子就是这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3490#       发表于 2020-4-29 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250176&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-29 19:20</a></blockquote>
+“刷贴贴有什么不合理的，不知道你们脑子是怎么想的。aqua是mea的一部分，不爽不要看。在一个人的评论区刷其他的人是不礼貌的，但是meaqua的感情足以超越这一世俗的规矩。mea爱着aqua，你们连她最爱的女人都不喜欢还说爱她？”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3491#       发表于 2020-4-29 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250220&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-29 19:23</a>
+思考和行动才能改变啊
+
+
+抱怨有什么意义呢</blockquote>
+这里是黑暗贴贴楼，不在这抱怨干什么
+
+行动的话告御状和双方互相抹黑有停过吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3492#       发表于 2020-4-29 19:27
+
+
+
+
+不是那种行动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3493#       发表于 2020-4-29 19:30
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-29 19:24
+“刷贴贴有什么不合理的，不知道你们脑子是怎么想的。aqua是mea的一部分，不爽不要看。在一个人的评论区 ...</blockquote>
+b站评论区的？变得这么nt了吗？很好，我又对rz贴贴人刮目相看了
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3494#       发表于 2020-4-29 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250336&amp;ptid=1914314" target="_blank">离心 发表于 2020-4-29 19:30</a>
+
+b站评论区的？变得这么nt了吗？很好，我又对rz贴贴人刮目相看了</blockquote>
+我自己编的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3495#       发表于 2020-4-29 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250340&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-29 19:31</a>
+
+我自己编的</blockquote>
+我还以为真的有这种评论了，吓到我了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3496#       发表于 2020-4-29 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250433&amp;ptid=1914314" target="_blank">离心 发表于 2020-4-29 19:37</a>
+
+我还以为真的有这种评论了，吓到我了。</blockquote>
+这么写在b站评论区都很难钓到鱼
+
+根据我对贴贴人的了解，应该真有人这么想，只是嘴上不说出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
