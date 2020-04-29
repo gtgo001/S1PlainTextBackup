@@ -885,7 +885,7 @@
     "title": "[【VTB】vtb云绿帽楼]",
     "lastedit": 1585584244,
     "category": "虚拟主播区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1914313",
@@ -6865,9 +6865,9 @@
   },
   {
     "id": "1924531",
-    "totalpage": 436,
+    "totalpage": 440,
     "title": "[【V8】虚拟YouTuber综合讨论楼Kizuna AI株式会社将于5月设立]",
-    "lastedit": 1588176342,
+    "lastedit": 1588183535,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -7273,9 +7273,9 @@
   },
   {
     "id": "1929275",
-    "totalpage": 42,
+    "totalpage": 43,
     "title": "[【同人圈大事件？】肖战粉仙人跳腐文写手2]",
-    "lastedit": 1588176469,
+    "lastedit": 1588183663,
     "category": "外野专楼",
     "active": true
   },
@@ -7473,9 +7473,9 @@
   },
   {
     "id": "1930909",
-    "totalpage": 16,
+    "totalpage": 17,
     "title": "[疫情专楼]",
-    "lastedit": 1588176535,
+    "lastedit": 1588183716,
     "category": "外野专楼",
     "active": true
   },

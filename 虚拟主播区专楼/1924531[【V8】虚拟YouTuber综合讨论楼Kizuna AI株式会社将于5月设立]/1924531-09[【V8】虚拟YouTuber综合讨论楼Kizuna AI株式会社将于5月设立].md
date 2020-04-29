@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-30 00:05** 
+> ## **本文件最后更新于2020-04-30 02:05** 
 
 
 
@@ -5007,7 +5007,7 @@ bsyl
 <img src="https://img.saraba1st.com/forum/202004/29/155758o6jpb6glsplbknbe.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200429155735.png</strong> (884.88 KB, 下载次数: 5)
+<strong>QQ截图20200429155735.png</strong> (884.88 KB, 下载次数: 6)
 
 下载附件
 
@@ -20066,4 +20066,2283 @@ Mikimhr有首翻唱Miki自己描改寺田的也被小粉丝出警过，原来没
 
 
 
-              
+
+
+-----
+
+####  北山玖公  
+##### 13066#       发表于 2020-4-30 00:07
+
+
+
+
+太高端的欣赏不来，只要能让我觉得：“我日，好几把上头。”就行，差不多听的时候会自己跟着唱就能算我喜欢的好歌了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+粉丝要求哪有那么高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 13067#       发表于 2020-4-30 00:09
+
+
+
+
+管人金曲有什么不好，就是因为好听才会成金曲啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13068#       发表于 2020-4-30 00:12
+
+
+
+
+而且管人金曲因为听的人多所以推荐权重高，容易出现在おすすめ，容易搜关键词时搜到或者听其他人的翻唱时出现在侧边栏的推荐，对管人本人的人气也有帮助。这也是为什么你圈原创曲播放往往干不过金曲的原因<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13069#       发表于 2020-4-30 00:12
+
+
+
+ 本帖最后由 rzrbtk 于 2020-4-30 00:15 编辑 
+
+因为管人观众喜欢听无美感高音多快节奏怪叫歌（我也喜欢）#no more sad song#
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13070#       发表于 2020-4-30 00:14
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-30 00:18 编辑 
+
+这个就别怪管人观众了吧，这难道不是大众审美吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+天天大半夜听着ヒトリエ的歌落泪，一到管人这边就变成乐子人观众了，感谢管人，给我带来了无上的快乐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13071#       发表于 2020-4-30 00:14
+
+
+
+
+所以你们到底是批判管人金曲还是管人歌力还是管人观众啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 13072#       发表于 2020-4-30 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240212&amp;ptid=1924531" target="_blank">贴杂司马 发表于 2020-4-28 22:40</a>
+**** 作者被禁止或删除 内容自动屏蔽 ****</blockquote>
+夸哥播过泰坦跌啊，我还当攻略看过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+要不要这么云
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 13073#       发表于 2020-4-30 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253524&amp;ptid=1924531" target="_blank">anwen76 发表于 2020-4-29 23:51</a>
+
+星街5月3号B限第五人格，
+
+看来杏5月头也有不少人来啊</blockquote>
+B限第五人格是个什么想法<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 13074#       发表于 2020-4-30 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">是术圈观众自然选择bpm爆炸高的错
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13075#       发表于 2020-4-30 00:18
+
+
+
+
+《鬼叫》<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1a7411r7u5](https://www.bilibili.com/video/BV1a7411r7u5)
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/30/001759ni0iqudy4zszziqj.png" referrerpolicy="no-referrer">
+
+
+<strong>鬼叫.png</strong> (390.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-30 00:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13076#       发表于 2020-4-30 00:18
+
+
+
+
+你日唱见圈草创的那几年也是比谁高比谁快的，所以才出了一堆钢兵之类的玩意。进一步到术曲就便乘了看哪个P能调出人类唱不了的术味，两者一乘让N站翻唱榜简直惨不忍睹。然后管人又要吃上面2个社区的尾气。
+
+
+说实话阿床选曲很可以了，所以yorishika那首翻车才让我记忆深刻。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 13077#       发表于 2020-4-30 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253770&amp;ptid=1924531" target="_blank">落雪无痕 发表于 2020-4-30 00:17</a>
+
+B限第五人格是个什么想法</blockquote>
+上次b限弹幕教的，b限害人啊
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13078#       发表于 2020-4-30 00:18
+
+
+
+
+啊？第五人格还是阿B观众推荐的吧？阿B观众没那么虫民，老是推荐一些debuff游戏，没什么办法。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13079#       发表于 2020-4-30 00:19
+
+
+
+
+B限第五人格<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 13080#       发表于 2020-4-30 00:21
+
+
+
+
+59:43 [https://www.youtube.com/watch?v=fjSo960lmiI](https://www.youtube.com/watch?v=fjSo960lmiI)
+
+来首走姐的圣战士丹拜因OP，真的好
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 13081#       发表于 2020-4-30 00:22
+
+
+
+ 本帖最后由 57042711 于 2020-4-30 00:36 编辑 
+
+Levi那个僕が死のうと思ったのは不是翻的很不错嘛<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+SYL：May'n居然在B站开了账号···已经投了几首歌了但是就是没有Macross F歌有够怪
+[https://www.bilibili.com/video/B ... 333.788.videocard.3](https://www.bilibili.com/video/BV13a4y147M3/?spm_id_from=333.788.videocard.3)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Viden| + 1|感谢情报|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13082#       发表于 2020-4-30 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253781&amp;ptid=1924531" target="_blank">free 发表于 2020-4-30 00:18</a>
+
+《鬼叫》
+
+
+https://www.bilibili.com/video/BV1a7411r7u5</blockquote>
+我倒是觉得空妈挤式高音也就唱这种曲还凑合，正常曲目高音相当刺耳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13083#       发表于 2020-4-30 00:24
+
+
+
+ 本帖最后由 ひびき 于 2020-4-30 00:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253789&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-30 00:18</a>
+
+你日唱见圈草创的那几年也是比谁高比谁快的，所以才出了一堆钢兵之类的玩意。进一步到术曲就便乘了看哪个P ...</blockquote>
+惨不忍睹，害人不浅
+
+
+活活把日本一个流行音乐大国的年轻一辈的网络音乐圈搞得乌烟瘴气<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  
+
+
+一个有misia和kokia的民族，年轻人里火的是这么些玩意真的可悲（爆论
+
+到底谁第一个觉得术力口给年轻的作曲家们提供了一个好工具，这些创作出来的东西就适合人类也唱一通的
+
+怎么没人去翻唱钢琴小提琴啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13084#       发表于 2020-4-30 00:24
+
+
+
+
+看到空妈现场我就想起B站那两个她和azki合唱的视频了，简直串通调音师公开霸凌azki，只要两人一起开口你就只能提到空妈在吼，嗓门大是真的了不起。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 13085#       发表于 2020-4-30 00:25
+
+
+
+
+我还是坚持“只不过是原本沉默的人开始在网络上发声了”的理论
+
+
+“要听高品位你听啊，谁也没拦着你出警不是”
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 13086#       发表于 2020-4-30 00:27
+
+
+
+
+原来谱皇已经把爱的才能投了，演唱会还挺喜欢这首的改编的
+
+[tube](https://www.youtube.com/watch?v=Koz-8KthqRo&amp;feature=youtu.be)
+
+[阿B](https://www.bilibili.com/video/BV18A41147DH)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13087#       发表于 2020-4-30 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253823&amp;ptid=1924531" target="_blank">cgte030629 发表于 2020-4-30 00:22</a>
+
+我倒是觉得空妈挤式高音也就唱这种曲还凑合，正常曲目高音相当刺耳 ...</blockquote>
+她不鬼叫的时候没人听，还专门给钢琴重编系列弄了一个播放列表呢，这里的不比鬼叫强多了，根本没人听
+[https://www.youtube.com/watch?v= ... f-UDKErFfQ36LB7d6dt](https://www.youtube.com/watch?v=FrdLDOeMoyg&amp;list=PL_0A0t0-Y0AMAVf-UDKErFfQ36LB7d6dt)
+
+
+上次歌回一上来清唱的奇异恩典我觉得就挺好，然后一看评论栏“来首夏露露”“来首乙女解剖”，结果后面又高高兴兴鬼叫了一小时，人民群众爱听<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13088#       发表于 2020-4-30 00:28
+
+
+
+
+花近没现场的投稿也不是管人还是别绞进来了，我怎么觉得论歌力住持可以把杏拉一块a了，是我的错觉吗
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 13089#       发表于 2020-4-30 00:29
+
+
+
+
+羡慕，羡慕楼内老哥天天黑屁这个和那个，比较这个和那个，云这个和那个，好不快活的样子！<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+可叔我陷入了整天想着怎么才能多快好省届到小肥妹的困苦境地中，很痛苦，到底要如何才能推得快乐点，我怎么才能变回之前白嫖的那个我啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13090#       发表于 2020-4-30 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253870&amp;ptid=1924531" target="_blank">YODOboi 发表于 2020-4-30 00:28</a>
+
+花近没现场的投稿也不是管人还是别绞进来了，我怎么觉得论歌力住持可以把杏拉一块a了，是我的错觉吗 ...</blockquote>
+住持是哪个啊
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13091#       发表于 2020-4-30 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253870&amp;ptid=1924531" target="_blank">YODOboi 发表于 2020-4-30 00:28</a>
+
+花近没现场的投稿也不是管人还是别绞进来了，我怎么觉得论歌力住持可以把杏拉一块a了，是我的错觉吗 ...</blockquote>
+这楼车歌力时不怎么考虑国v的吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13092#       发表于 2020-4-30 00:31
+
+
+
+
+所以这就是vtl赢不了摇头曲的缘故吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13093#       发表于 2020-4-30 00:32
+
+
+
+
+住持说的应该是艾因吧......
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13094#       发表于 2020-4-30 00:32
+
+
+
+ 本帖最后由 YODOboi 于 2020-4-30 00:34 编辑 
+
+艾因，本来我还对自己推的底边现场唱的魂之轮回有点自信的，但和住持的碰一下就碎了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">（最起码魔魔同款麦克风没换之前是没得比的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 13095#       发表于 2020-4-30 00:33
+
+
+
+
+金曲的毛病就是会逆向淘汰其他曲子，唱了金曲就一路唱下去了，你再也听不到别的了。
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13096#       发表于 2020-4-30 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253866&amp;ptid=1924531" target="_blank">free 发表于 2020-4-30 00:28</a>
+
+她不鬼叫的时候没人听，还专门给钢琴重编系列弄了一个播放列表呢，这里的不比鬼叫强多了，根本没人听
+
+htt ...</blockquote>
+毕竟“高音=强”这个鬼认知不止在你juan，在整个华语圈都这样，根本不考虑质量如何<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+否则鬼嚎哭丧王x晨宇也不能这么火，那都不能叫高音，就楞嚎<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 13097#       发表于 2020-4-30 00:34
+
+
+
+
+空妈爱唱，群众爱听，这不就是人民群众喜闻乐见么<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 13098#       发表于 2020-4-30 00:34
+
+
+
+
+第五人格明明是星街自己提的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13099#       发表于 2020-4-30 00:34
+
+
+
+<blockquote>ひびき 发表于 2020-4-30 00:24
+惨不忍睹，害人不浅
+
+
+活活把日本一个流行音乐大国的年轻一辈的网络音乐圈搞得乌烟瘴气  
+</blockquote>
+管人想整点有挑战的安妈和宅光的曲子不够你玩一辈子的，也许是搞不定版权吧。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13100#       发表于 2020-4-30 00:35
+
+
+
+
+等下，这里也要车华晨宇吗？起码他还是有实力的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13101#       发表于 2020-4-30 00:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/30/003220jz9ln2m9wr455w2f.png" referrerpolicy="no-referrer">
+
+
+<strong>`_ISU9KIXGWDX@S}R0NAG~0.png</strong> (73.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-30 00:32 上传
+
+
+
+
+
+来点虫，今天有望全天万棒啊，不过从29号0点开始算的话已经全天万棒了。接下去的深夜万棒要靠江皇怎么也抽不到来延续了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13102#       发表于 2020-4-30 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253909&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-4-30 00:33</a>
+
+金曲的毛病就是会逆向淘汰其他曲子，唱了金曲就一路唱下去了，你再也听不到别的了。 ...</blockquote>
+
+逆向淘汰其他曲子倒也不全是金曲的错<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+我觉得也有资本主义版权这个帮凶，好的anisong、jpop乃至音乐剧的歌，不能随便唱，更不能随便投翻唱
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 13103#       发表于 2020-4-30 00:36
+
+
+
+ 本帖最后由 noHentai 于 2020-4-30 00:40 编辑 
+
+[彩虹合奏团]太阳照常升起
+[https://www.bilibili.com/video/BV1eg4y1z79c](https://www.bilibili.com/video/BV1eg4y1z79c)
+
+
+【月之美兔】月 之 小 丑
+[https://www.bilibili.com/video/BV1N54y1R7eD/](https://www.bilibili.com/video/BV1N54y1R7eD/)
+
+
+阿委开门.Treasure
+[https://www.bilibili.com/video/BV1kt4y127bN/](https://www.bilibili.com/video/BV1kt4y127bN/)
+
+
+【月之美兔】无法理解超前艺术的汤姆猫
+[https://www.bilibili.com/video/BV1va4y1x7Pm/](https://www.bilibili.com/video/BV1va4y1x7Pm/)
+
+
+每天一遍，防止自闭。走出阴霾，每天自信。
+[https://www.bilibili.com/video/BV1m4411K7SZ/](https://www.bilibili.com/video/BV1m4411K7SZ/)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13104#       发表于 2020-4-30 00:36
+
+
+
+
+所以免费能说说艾因的歌力究竟啥水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13105#       发表于 2020-4-30 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253924&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-04-30 00:35:01</a>
+来点虫，今天有望全天万棒啊，不过从29号0点开始算的话已经全天万棒了。接下去的深夜万棒要靠江皇怎么也抽 ...</blockquote>彩虹也就葵皇40W纪念高了点
+五一黄金周估计会更加被暴打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13106#       发表于 2020-4-30 00:40
+
+
+
+
+别问我啊我就听过艾因那首我心永恒，不过就这一首来看肯定比杏全员强的
+
+
+
+省一楼，华晨宇虽然也厉害，不过得歌王说不是台本有人信吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13107#       发表于 2020-4-30 00:40
+
+
+
+
+国v歌力我就觉得早稻鸡首屈一指，其次住持，其他卡拉ok<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13108#       发表于 2020-4-30 00:40
+
+
+
+ 本帖最后由 YODOboi 于 2020-4-30 00:46 编辑 
+
+他怕是根本没听过，可惜，要是住持换个国籍，怕不是要成车歌力kpi密码，毕竟歌单起码就是一般管人的三倍长<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+早稻叽就切换声线初见比较惊艳吧，婆度比住持低两个级别吧，我肯定不会把她排前面
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 13109#       发表于 2020-4-30 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253961&amp;ptid=1924531" target="_blank">cgte030629 发表于 2020-4-30 00:40</a>
+
+国v歌力我就觉得早稻鸡首屈一指，其次住持，其他卡拉ok</blockquote>
+mhr也是卡拉OK吗，别吧
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 13110#       发表于 2020-4-30 00:43
+
+
+
+[https://www.youtube.com/watch?v=6DMVk5FF8H4](https://www.youtube.com/watch?v=6DMVk5FF8H4)
+
+梅丽莎9W纪念清唱回，好听好听
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13111#       发表于 2020-4-30 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253956&amp;ptid=1924531" target="_blank">free 发表于 2020-04-30 00:40:08</a>
+别问我啊我就听过艾因那首我心永恒，不过就这一首来看肯定比杏全员强的
+
+
+
+省一楼，华晨宇虽然也厉害，不过 ...</blockquote>歌王我没看就是了，就是因为最近这事火才听说的。我其实是从那部被翻拍的巨辣鸡的「悟空传」才了解到他的，整首歌比整部电影都要贴合原作，之后一直算是路人粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 13112#       发表于 2020-4-30 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253821&amp;ptid=1924531" target="_blank">57042711 发表于 2020-4-30 00:22</a>
+Levi那个僕が死のうと思ったのは不是翻的很不错嘛
+
+
+SYL：May'n居然在B站开了账号···已经投了几首 ...</blockquote>
+可能版权问题？我记得马裤螺丝的版权争端好像还没有下落？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13113#       发表于 2020-4-30 00:43
+
+
+
+
+你指望yhm能有几个能唱《我心永恒》的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13114#       发表于 2020-4-30 00:44
+
+
+
+ 本帖最后由 cgte030629 于 2020-4-30 00:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253975&amp;ptid=1924531" target="_blank">zpbzpb123123 发表于 2020-4-30 00:42</a>
+
+mhr也是卡拉OK吗，别吧</blockquote>
+没想起来，孟浩然唱歌确实顶，开口就有婆味儿<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+syl
+
+本来很喜欢那节目，就是从华晨宇第一次参加得歌王开始不看的，小伙子正常唱的也还行但就非得喜欢嚎和毁经典，嚎也就算了还能得歌王就离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 13115#       发表于 2020-4-30 00:49
+
+
+
+
+提到艾因，教主2号8点有个歌会届时欢迎来看<img src="https://p.sda1.dev/0/207e35ee45b9144682987aea2833eb43/IMG_891A0218E6EE58E136D6675C30F489AF.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13116#       发表于 2020-4-30 00:50
+
+
+
+
+八期生那个pax也可以期待一下，简直就是歌力超级加强的脑控版弥宝<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13117#       发表于 2020-4-30 00:51
+
+
+
+
+免费不是不听成片吗，这里是现场BV1pE411f7EC，涨个播放到四千也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 13118#       发表于 2020-4-30 00:53
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-4-30 00:54 编辑 
+<blockquote>stmule 发表于 2020-4-30 00:14
+夸哥播过泰坦跌啊，我还当攻略看过
+
+要不要这么云
+</blockquote>
+但她没玩多人，失去了一次狙击的机会
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13119#       发表于 2020-4-30 00:55
+
+
+
+
+江皇这就下了，我要有梁木了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  曜不能停  
+##### 13120#       发表于 2020-4-30 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254033&amp;ptid=1924531" target="_blank">YODOboi 发表于 2020-4-30 00:51</a>
+
+免费不是不听成片吗，这里是现场BV1pE411f7EC，涨个播放到四千也好啊</blockquote>
+每次听到最后的革命机都笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13121#       发表于 2020-4-30 00:57
+
+
+
+
+星街字幕组要被烧力，要被烧力。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13122#       发表于 2020-4-30 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254068&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-30 00:57</a>
+
+星街字幕组要被烧力，要被烧力。</blockquote>
+咋了？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 13123#       发表于 2020-4-30 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254068&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-30 00:57</a>
+
+星街字幕组要被烧力，要被烧力。</blockquote>
+怎么了？来源地址呢？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13124#       发表于 2020-4-30 01:00
+
+
+
+<blockquote>star_platinum 发表于 2020-4-30 00:58
+咋了？</blockquote>
+https://t.bilibili.com/383680582584572873
+
+
+看评论
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 13125#       发表于 2020-4-30 01:02
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-30 01:04 编辑 
+
+矫枉过正了，多大点事
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13126#       发表于 2020-4-30 01:02
+
+
+
+
+这能烧起来？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13127#       发表于 2020-4-30 01:05
+
+
+
+ 本帖最后由 cgte030629 于 2020-4-30 01:06 编辑 
+
+那我也推荐点国货吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+声线多变且都能驾驭，气息好。
+
+
+颇有你圈歌力试金石味道的钻石裂痕[https://www.bili](https://www.bili)bili.com/video/BV14E411q7yA
+
+管人比较稀有的again [https://www.bilibili.com/video/BV1ZJ411Q7SV](https://www.bilibili.com/video/BV1ZJ411Q7SV)
+
+自杀金曲[https://www.bili](https://www.bili)bili.com/video/BV1Ht41137mk
+
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13128#       发表于 2020-4-30 01:09
+
+
+
+
+没开起来，散了散了。说起来好像大部分人在开ahe颜挑战是吧，正好给那些觉得套皮主播比斗鱼女主播高雅的年轻人上一课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13129#       发表于 2020-4-30 01:12
+
+
+
+
+我看v吧里面都不复读了，一个个都在批判这种行为，看起来天皇的“虚拟主播就是风俗业”，并没有得到广泛认同啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 13130#       发表于 2020-4-30 01:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近有种感觉，s1这边是不是消息都慢人一步的
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 13131#       发表于 2020-4-30 01:15
+
+
+
+
+我之前就说过贴吧杏信不少是怪物家长，阿嘿颜这事算彻底坐实了，只觉得可怕，只希望那几位别影响到我看的多的v
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13132#       发表于 2020-4-30 01:15
+
+
+
+
+别车歌力力，只听翻唱的多少都带点脑瘫
+
+别说管人了，整个唱见圈到都没听说过能爆非偶像声优的专业歌手的原唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 虚拟管人高尚？冲国女王咩姐和人气选手之一的夏哥还没给pxj整明白吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13133#       发表于 2020-4-30 01:15
+
+
+
+
+ 不都是杏仁在搞，木口就是虚拟圆光有什么问题吗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13134#       发表于 2020-4-30 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254188&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-4-30 01:14</a>
+
+最近有种感觉，s1这边是不是消息都慢人一步的</blockquote>
+因为现在开团的主要工作都是v吧做的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13135#       发表于 2020-4-30 01:16
+
+
+
+
+早上就有人发了萝卜子的ahe颜了吧，不过楼友见怪不怪。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13136#       发表于 2020-4-30 01:17
+
+
+
+ 本帖最后由 YODOboi 于 2020-4-30 01:20 编辑 
+
+希望星街也跟上，下次遇到小鬼复读六边形就把那图甩上去<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+syl 两个麻酱都被粉丝们用本质清楚的措辞消化掉了，我觉得这次也一定可以再接再厉
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13137#       发表于 2020-4-30 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254191&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-30 01:15</a>
+
+别车歌力力，只听翻唱的多少都带点脑瘫
+
+别说管人了，整个唱见圈到都没听说过能爆非偶像声优的专业歌手的原 ...</blockquote>
+要是这两发估计也就一两个帖子的事啊
+
+
+就是牵涉到很多人觉得软萌的萝卜子，还有小学生了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13138#       发表于 2020-4-30 01:19
+
+
+
+
+只要空妈不至于掺一脚我觉得没啥大事<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13139#       发表于 2020-4-30 01:19
+
+
+
+
+虚拟阿黑颜是挺弱智的，不过好歹不是整个v圈都在搞，爱咋咋
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13140#       发表于 2020-4-30 01:19
+
+
+
+
+你们觉得就这那就就这8，星街字幕组这玩意被上纲上线起来可比兔田那破事爆炸多了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 13141#       发表于 2020-4-30 01:19
+
+
+
+
+很多人都是因为想看纯净的纸片人来的。
+
+有的还没看到真相，
+
+有的看到了真相，失望地离开了，
+
+有的看到了真相，但是不愿相信，开始自欺欺人，
+
+有的已经被同化为自己以前讨厌的那种人了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13142#       发表于 2020-4-30 01:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254217&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-30 01:19</a>
+
+你们觉得就这那就就这8，星街字幕组这玩意被上纲上线起来可比兔田那破事爆炸多了。 ...</blockquote>
+B站那个宣传文案gcgq不都还被压下去了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13143#       发表于 2020-4-30 01:21
+
+
+
+
+出问题的话也是字幕组翻译的锅吧？没做好工具人翻译的本分
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13144#       发表于 2020-4-30 01:23
+
+
+
+
+贴吧还有一堆杏信？挺不可思议的，明明开兔皇最终伤的是杏在B的路人缘和整体增长。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13145#       发表于 2020-4-30 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254234&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-04-30 01:23:10</a>
+贴吧还有一堆杏信？挺不可思议的，明明开兔皇最终伤的是杏在B的路人缘和整体增长。 ...</blockquote>沉默是大多数，何况真的不会有人以为兔皇的事能给holo在国内带来多大影响吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13146#       发表于 2020-4-30 01:26
+
+
+
+
+延期这点破事都能逼逼到炎上 这群小鬼还有什么不能搞事的
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13147#       发表于 2020-4-30 01:27
+
+
+
+ 本帖最后由 cgte030629 于 2020-4-30 01:28 编辑 
+
+贴吧现在这波人都是转化来的原萌萌人，当然都是杏信<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13148#       发表于 2020-4-30 01:29
+
+
+
+
+贴吧的虹信倒是比杏信团结多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13149#       发表于 2020-4-30 01:31
+
+
+
+
+看了一眼，星街这点破事也值得炎<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13150#       发表于 2020-4-30 01:33
+
+
+
+
+事实是杏在B的关注增长是近期新低了，虽然有不少杏人归于开工开学。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过马上五一了，不能拿开工开学作借口了。看看阿B关注增长能不能跟上杏在404的增长吧，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 13151#       发表于 2020-4-30 01:33
+
+
+
+
+不会真的有人相信文字狱吧
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13152#       发表于 2020-4-30 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254212&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-30 01:18</a>
+
+要是这两发估计也就一两个帖子的事啊
+
+
+就是牵涉到很多人觉得软萌的萝卜子，还有小学生了 ...</blockquote>
+那pxj的G点也是有点奇怪的。不就玩个梗，pxj玩老八梗不是一个比一个兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 13153#       发表于 2020-4-30 01:36
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-30 01:37 编辑 
+
+贴吧在开的是ahe颜，这事v吧真不背锅
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13154#       发表于 2020-4-30 01:39
+
+
+
+
+能玩老八梗的对象大部分都自己带着点往这边去的意思，萌萌二次元当然不希望自己天天看的东西给的钱给的是什么下九流的妓。
+
+当然就算是，他们也希望能是高级点的卖艺不卖身的妓，毕竟还有人说过嘛，“我们是偶像营业”，我可没听说过偶像玩这套，这还是年轻人的第一个大众偶像吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，有点抵触很正常。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13155#       发表于 2020-4-30 01:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254256&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-04-30 01:29:12</a>
+贴吧的虹信倒是比杏信团结多了</blockquote>本来人就少，以前呆在楼里自己聊自己的，大门不出二门不迈的，都天天被碰瓷，回几句直接扣太监帽子，现在V8直接炸了还能不团结<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13156#       发表于 2020-4-30 01:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254273&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-30 01:33</a>
+
+事实是杏在B的关注增长是近期新低了，虽然有不少杏人归于开工开学。还有转播人气值，虽然不清楚是怎 ...</blockquote>
+5ch上有人抓数据对比出来星街的舰长数这个月较上个月少了两三百……提督数和总督数也少了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13157#       发表于 2020-4-30 01:43
+
+
+
+
+我懒一点，直接复制一下净土坛杏楼的杏关注日增。（4月1号开始）
+
+34,487 41,494 （这期间数据网站挂了几次）43,136 50,094 53,225 58,947 48,588 58,003 51,532 50,186 46,573【15号开始炎兔皇了】
+
+33,015 35,891 33,170 34,717  29,330 33,363 31,990 31,036 25,250 30,696 24,981 24,166 22,811 24,741
+
+这个里面还是加了狗妈holocn这些没怎么受影响的人的。你要说没影响实在有些睁眼说瞎话了。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13158#       发表于 2020-4-30 01:46
+
+
+
+
+很多人发现他们在B打的礼物回报太小，醒了。杏女大部分连舰长价值3000日元都不知道，也从来不念。阴谋论一点也可以认为她们就拿不到这笔钱
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 13159#       发表于 2020-4-30 01:46
+
+
+
+
+星街冠军粉占比大啊，感觉得砍一半才正常
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13160#       发表于 2020-4-30 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254314&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-30 01:43</a>
+
+我懒一点，直接复制一下净土坛杏楼的杏关注日增。（4月1号开始）
+
+34,487 41,494 （这期间数据网站挂了几次 ...</blockquote>
+为啥会加石夫人
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13161#       发表于 2020-4-30 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254293&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-4-30 01:39</a>
+
+能玩老八梗的对象大部分都自己带着点往这边去的意思，萌萌二次元当然不希望自己天天看的东西给的钱给的是什 ...</blockquote>
+萌萌二次元不也很爱夏哥和咩姐吗？她们下九流段子的时候好像刷的也很嗨啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+况且上层真人女主播也不卖身，就算真卖的也不是谁都买得起的，那批价都抬到几百万了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 13162#       发表于 2020-4-30 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254328&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-30 01:46</a>
+很多人发现他们在B打的礼物回报太小，醒了。杏女大部分连舰长价值3000日元都不知道，也从来不念。阴谋论一 ...</blockquote>
+起码当初就很长一段时间都拿不到，石倒了之后能不能拿到就不清楚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13163#       发表于 2020-4-30 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254333&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-30 01:46</a>
+萌萌二次元不也很爱夏哥和咩姐吗？她们下九流段子的时候好像刷的也很嗨啊
+
+
+况且上层真人女主播也 ...</blockquote>
+不同受众嘛<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13164#       发表于 2020-4-30 01:49
+
+
+
+
+现在天天能在v吧看到开杏团的，虹这边安利贴竟然比v吧没炸之前还多
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13165#       发表于 2020-4-30 01:50
+
+
+
+
+星街字幕组虽然品味和策略有点问题，但是速度和诚意还是可以的，尤其不少人是从官号小几万粉一个视频几千点击熬过来的，因为这种事换血也太背了。
+
+
+当然组里有点人当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13166#       发表于 2020-4-30 01:50
+
+
+
+
+兔皇炎上那波对木口中国增长肯定是有影响的 没得说
+
+syl p限的钱现在是能拿到的 但是肯定比404少很多啦，毕竟啊p多抽两成<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13167#       发表于 2020-4-30 01:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254331&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-4-30 01:46</a>
+
+为啥会加石夫人</blockquote>
+我也不懂啊，我自己看的时候从来都是去掉狗妈和时雨妈的，还有404去掉ID，B站去掉CN。不过我没有记录的习惯。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13168#       发表于 2020-4-30 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254331&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-4-30 01:46</a>
+
+为啥会加石夫人</blockquote>
+你都说出原因了啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13169#       发表于 2020-4-30 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254352&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-30 01:50</a>
+
+兔皇炎上那波对木口中国增长肯定是有影响的 没得说
+
+syl p限的钱现在是能拿到的 但是肯定比404少很多啦，毕 ...</blockquote>
+啊p多抽两成换到v身上也就少一成啊，如果企业v对半分的话<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 这能和**的差多少？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13170#       发表于 2020-4-30 01:53
+
+
+
+
+这都行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13171#       发表于 2020-4-30 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254338&amp;ptid=1924531" target="_blank">Mika-S 发表于 2020-4-30 01:48</a>
+
+起码当初就很长一段时间都拿不到，石倒了之后能不能拿到就不清楚了 ...</blockquote>
+当初倒石后还承诺会公开透明呢，照这大半年的情况，估计连杏女都不在承诺的范围里。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13172#       发表于 2020-4-30 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254352&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-30 01:50</a>
+
+兔皇炎上那波对木口中国增长肯定是有影响的 没得说
+
+syl p限的钱现在是能拿到的 但是肯定比404少很多啦，毕 ...</blockquote>
+404不见得多
+
+404抽掉3成之后 cover拿回7成 这里面还要再分成
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13173#       发表于 2020-4-30 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254367&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-30 01:53</a>
+
+当初倒石后还承诺会公开透明呢，照这大半年的情况，估计连杏女都不在承诺的范围里。 ...</blockquote>
+企业机密怎么给你公开
+
+常识考虑一下吧
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13174#       发表于 2020-4-30 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254371&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-4-30 01:54</a>
+
+404不见得多
+
+404抽掉3成之后 cover拿回7成 这里面还要再分成</blockquote>
+废话，这谁都知道，但是p站抽了5成以后牙膏也还是要再抽的啊 
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13175#       发表于 2020-4-30 01:56
+
+
+
+
+所以v吧究竟选不选举啦，之前看选举贴，呼声最高的为啥都是虹人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13176#       发表于 2020-4-30 01:57
+
+
+
+
+不过MV延期这个事情在日本v那边影响也很不好吧
+
+以后估计不怎么会找中国的字幕组或者团队做MV了
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13177#       发表于 2020-4-30 01:57
+
+
+
+ 本帖最后由 crawarb 于 2020-4-30 02:05 编辑 
+
+去年萝卜子续签合同后说过她是五五分成的？（存疑
+
+早安可可里也隐晦的提过是五五分成，这个七三分成的说法有什么出处吗编辑，把“拿回七成”看成“拿走七成”，看错了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13178#       发表于 2020-4-30 01:58
+
+
+
+
+55可能性怎么想都太小了 这分法cover是真的不用想收回本了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13179#       发表于 2020-4-30 01:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254363&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-30 01:53</a>
+
+啊p多抽两成换到v身上也就少一成啊，如果企业v对半分的话 这能和**的差多少？ ...</blockquote>
+对半分担是最良心的情况了，你猜牙膏有没有这么良心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且其实除了个别以外大多数人来p其实也收不到很多钱，要提升收入的话得花很多时间钻研直播效果互动方式什么的，次数再一频繁的话两边都搞不好
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13180#       发表于 2020-4-30 01:59
+
+
+
+
+管的七三分成基本上是实锤，搜一下就有不少Youtuber讲sc分成的事情，管抽三成是板上钉钉。
+
+各管人公司内部抽多少酒完全是未知数了，参考如UUUM等MSN公司，一般都是两到三成左右，至于管人会不会被资本家剥削，这个确实没有明面数据，都停留在猜测层面罢了。
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 13181#       发表于 2020-4-30 02:00
+
+
+
+
+真的这么斤斤计较v能拿到多少的话还不如买音声T恤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过批站打钱除了能让v知道自己在这里还有可以割的韭菜之外确实没什么用处，只能说自我满足了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13182#       发表于 2020-4-30 02:01
+
+
+
+
+MV延期十有八九是星街犯甲方瘾了，这点不用担心。现在披露的成品不比她自己的一图流好一百倍？
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13183#       发表于 2020-4-30 02:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254376&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-4-30 01:54</a>
+
+企业机密怎么给你公开
+
+常识考虑一下吧</blockquote><blockquote>2.VTuber在b站的收益，按照现在的合约，将在这个月底打款。这次以及今后都采取B站直接汇款到cover的形式，会尽力做到透明和公开（例如公示汇款数额等）。</blockquote>
+他自己说要做到的，这时候扯企业机密干嘛呢，当初观众也没逼他一定要这么做。说话像放屁一样
+[https://t.bilibili.com/278948844452600891?tab=2](https://t.bilibili.com/278948844452600891?tab=2)
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 13184#       发表于 2020-4-30 02:03
+
+
+
+
+分成完全没必要固定，根据签的合同，阶梯分成都有可能
+
+固定分成的话，底边完全喝西北风了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13185#       发表于 2020-4-30 02:03
+
+
+
+
+404抽三成已经是常识了。关键是企业和管人怎么分，但这又没什么实锤。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13186#       发表于 2020-4-30 02:03
+
+
+
+
+我印象中卖周边能到v手上的应该是很少的，但龙皇说卖T恤到她手上的好像也不是特别少
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13187#       发表于 2020-4-30 02:05
+
+
+
+
+龙皇说的是卖抹布得了百万日元。抹布和挂牌海报那种周边可能又不一样。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+          
