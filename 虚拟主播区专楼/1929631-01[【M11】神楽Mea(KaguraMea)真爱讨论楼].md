@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 20:09** 
+> ## **本文件最后更新于2020-04-29 22:08** 
 
 
 
@@ -22154,4 +22154,1330 @@ syl我记得铲楼有高小姐的cos照，之前的v综也有事故露脸来着
 
 
 
-         
+
+
+-----
+
+####  路人庚  
+##### 1220#       发表于 2020-4-29 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来不好说，现在天天熬夜作息颠倒，妥妥的皮肤差加黑眼圈无疑，也许还会长痘，哦她自己说过长痘来着，那没事了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1221#       发表于 2020-4-29 20:10
+
+
+
+
+不说别的，ena这挑染就秒麻多少倍
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 1222#       发表于 2020-4-29 20:10
+
+
+
+
+麻麻已经长胖成水桶了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1223#       发表于 2020-4-29 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又开始了又开始了又开始了  不要主动拉低预期来缓冲了
+我先来 你麻肯定是美少女啦
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1224#       发表于 2020-4-29 20:12
+
+
+
+
+话说tc的直播听了两次，感觉都是JK力满满的小话题，随性说到什么聊什么没个方向感，还有无理由撒娇之类的，gachi应该会大喜过望吧（难怪咩的噶起杀不完
+但是听多了真的挺烦人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大概我就是注孤生吧大清早听咩的萌音暴击只想翻个身继续睡
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1225#       发表于 2020-4-29 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">成了，这就去做ena小姐的gachi恋去，你麻只能靠她的高p美少女图来挽回我
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1226#       发表于 2020-4-29 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250842&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-29 20:08</a>
+草
+
+syl我记得铲楼有高小姐的cos照，之前的v综也有事故露脸来着</blockquote>
+等等，所以图呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1227#       发表于 2020-4-29 20:13
+
+
+
+
+说自己长痘，胖了，不运动，没事儿了还喜欢恰蛋糕当零嘴，害怕线下，每天一半时间都在睡（自称），这样的人可能是坦克吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1228#       发表于 2020-4-29 20:14
+
+
+
+
+看浴衣图解毒去了
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1229#       发表于 2020-4-29 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250917&amp;ptid=1929631" target="_blank">惑星 发表于 2020-4-29 20:13</a>
+说自己长痘，胖了，不运动，没事儿了还喜欢恰蛋糕当零嘴，害怕线下，每天一半时间都在睡（自称），这样的人 ...</blockquote>
+可能X
+必然O
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1230#       发表于 2020-4-29 20:17
+
+
+
+ 本帖最后由 呓亘 于 2020-4-29 20:19 编辑 
+
+所以说麻坚持不线下是怕曝光自己胖了多少吗 幻灭了 渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1231#       发表于 2020-4-29 20:17
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-29 20:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250909&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 20:12</a>
+等等，所以图呢</blockquote>
+别人发的图好像搬出来不太好，过一会编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这是铲楼的，v综的忘了是在哪一楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1232#       发表于 2020-4-29 20:20
+
+
+
+
+韩国整容业那么发达，人均美少女不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1233#       发表于 2020-4-29 20:20
+
+
+
+ 本帖最后由 Sanguine 于 2020-4-29 20:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47250968&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-4-29 20:17</a>
+别人发的图好像搬出来不太好，过一会编辑了
+这是铲楼的，v综的忘了是在哪一楼了
+ ...</blockquote>
+存了存了，感谢 高小姐指的是咩么 我还没挖麻的前世不了解称呼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1234#       发表于 2020-4-29 20:20
+
+
+
+
+为什么要放出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1235#       发表于 2020-4-29 20:21
+
+
+
+ 本帖最后由 2014720 于 2020-4-29 20:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251007&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 20:20</a>
+存了存了，感谢，高小姐指的是咩么 我还没挖麻的前世不了解称呼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+事到如今居然有这么新的新人，很感动
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1236#       发表于 2020-4-29 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251007&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 20:20</a>
+存了存了，感谢，高小姐指的是咩么 我还没挖麻的前世不了解称呼</blockquote>
+高小姐是高槻律<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MAO_DREAMER  
+##### 1237#       发表于 2020-4-29 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251007&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 20:20</a>
+
+存了存了，感谢，高小姐指的是咩么 我还没挖麻的前世不了解称呼</blockquote>
+不是，高小姐指原p家的高规律
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 1238#       发表于 2020-4-29 20:23
+
+
+
+
+草草草 你都叫麻这个字了，怎么会觉得高小姐是指麻啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1239#       发表于 2020-4-29 20:23
+
+
+
+ 本帖最后由 Sanguine 于 2020-4-29 20:25 编辑 
+
+高规律啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听起来像御姐音结果外表好像不太符合
+syl 麻不也是前世名字之一吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为能挖出她真名带个高字什么的
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1240#       发表于 2020-4-29 20:24
+
+
+
+
+我爱二次元，我爱二次元，我爱二次元是真心的！
+
+网上的网红女，不好看！
+
+套皮女主播的中之人，好看！
+
+开摄像头的女主播，不好看！
+
+套过皮再看摄像头的女主播，好看！
+
+我爱二次元！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| likemike| + 1|撕皮了？那我直接关注.jpg|
+| 素人不相识| + 1|话糙理不糙（确实有一定这样的心态）.|
+| 魔法使い2019| + 1|这叫包装， 不懂包装活该单身穷（.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 1241#       发表于 2020-4-29 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">说到底我还是个颜厨
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 1242#       发表于 2020-4-29 20:25
+
+
+
+
+草，印象里V综那张高太尉看起来还挺姨的，这张不是还不错嘛，也没有那么不堪吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1243#       发表于 2020-4-29 20:26
+
+
+
+
+高小姐我觉得是真的不行，麻不可能是那样子<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1244#       发表于 2020-4-29 20:28
+
+
+
+ 本帖最后由 weiweiEX 于 2020-4-29 20:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251057&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 20:23</a>
+高规律啊听起来像御姐音结果外表好像不太符合
+syl 麻不也是前世名字之一吗我还以为能挖出她 ...</blockquote>
+麻酱怂的一批，现在没爆出能实锤的照片，真名就更不用想了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果啥时候来中国搞活动倒可能把真名爆了
+
+syl高小姐在v综那个是vtb直播事故爆出来的，跟cos照比肯定不会好看啊
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1245#       发表于 2020-4-29 20:31
+
+
+
+
+麻酱真身暴露之时，会是天狗群体叛逃，还是会使敌对势力皈依，让我们拭目以待
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 1246#       发表于 2020-4-29 20:32
+
+
+
+
+被爆了的话，第一个跑的会是她本人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 1247#       发表于 2020-4-29 20:33
+
+
+
+
+麻的疑似照为啥都是那种挑染呀
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1248#       发表于 2020-4-29 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251199&amp;ptid=1929631" target="_blank">十九号大侠 发表于 2020-4-29 20:33</a>
+麻的疑似照为啥都是那种挑染呀</blockquote>
+不是挑染也不会被当成疑似照吧
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1249#       发表于 2020-4-29 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251159&amp;ptid=1929631" target="_blank">素人不相识 发表于 2020-4-29 20:31</a>
+
+麻酱真身暴露之时，会是天狗群体叛逃，还是会使敌对势力皈依，让我们拭目以待 ...</blockquote>
+在你巅峰时慕名而来，在你露脸时崩撤卖遛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1250#       发表于 2020-4-29 20:37
+
+
+
+
+但是，有没有老挖掘机来说说她当初挑染状态持续了多久呀
+
+假如挑染状态持续时间不长的话，挑染图的可能性应该整体都会下降吧
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1251#       发表于 2020-4-29 20:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251261&amp;ptid=1929631" target="_blank">素人不相识 发表于 2020-04-29 20:37:05</a>
+但是，有没有老挖掘机来说说她当初挑染状态持续了多久呀
+
+假如挑染状态持续时间不长的话，挑染图的可能性应 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是挑染照片不知道是什么时候才的，反正近几年都已经是小棕毛了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1252#       发表于 2020-4-29 20:39
+
+
+
+
+我还挺喜欢她那个挑染的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1253#       发表于 2020-4-29 20:40
+
+
+
+
+她那挑染从直播截图里看其实偏橙红吧，现在各种挑染感觉颜色都挺偏的
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1254#       发表于 2020-4-29 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251229&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-29 20:35</a>
+
+在你巅峰时慕名而来，在你露脸时崩撤卖遛</blockquote>
+其实我还挺想看到，她长得很不错，然后大部分路人黑转路人粉后，那些yyr和anti孤立无援时气得跳脚的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1255#       发表于 2020-4-29 20:41
+
+
+
+
+18年那会挑染直播图乱传那会我还真信了，算了我又不是王国明也不是挖掘机
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1256#       发表于 2020-4-29 20:42
+
+
+
+
+如果是辣妹系不良我可以<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1257#       发表于 2020-4-29 20:44
+
+
+
+
+明明连牙齿都没保养<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 1258#       发表于 2020-4-29 20:45
+
+
+
+
+别做梦了，一起研究坦克驾驶不好吗，为什么要搞内部分裂<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1259#       发表于 2020-4-29 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251340&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 20:42</a>
+如果是辣妹系不良我可以麻好歹也是会化妆出门的，正常的樱花妹皮肤保养在做吧在做吧 ...</blockquote>
+不用骗自己了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1260#       发表于 2020-4-29 20:45
+
+
+
+
+不洗澡不知道洗不洗脸
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1261#       发表于 2020-4-29 20:45
+
+
+
+
+不要不良辣妹，不要不良辣妹<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+我喜欢稍微带一点媚的清纯系<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1262#       发表于 2020-4-29 20:46
+
+
+
+ 本帖最后由 2014720 于 2020-4-29 20:47 编辑 
+
+涩谷老妖<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1263#       发表于 2020-4-29 20:46
+
+
+
+
+那我觉得ena中之人还挺不“女主播”的（传统意义上）
+
+
+当然也不是说就一定会去看，但至少不会先入为主地套上啥负面印象
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 1264#       发表于 2020-4-29 20:46
+
+
+
+
+yhm的牙齿都不行，麻又不是个例
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1265#       发表于 2020-4-29 20:47
+
+
+
+
+洗了洗了，孩子最近都定期洗澡了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|+1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1266#       发表于 2020-4-29 20:52
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-29 21:02 编辑 
+
+我心邪，韩国r19女主播看多了，总感觉对韩国长得好看的女主播带有怪怪的梁木<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（可能是因为我和韩国文化的接触，目前只有这一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1267#       发表于 2020-4-29 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有疫情之前她不是说过有过出门做美容，不过做到什么程度就不知道了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1268#       发表于 2020-4-29 20:55
+
+
+
+
+我觉得你麻整容的可能性很高，所以中之人样子也无所谓了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1269#       发表于 2020-4-29 20:56
+
+
+
+
+麻只要不比大毛丑我就能接受，喜欢看麻还是有意思
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1270#       发表于 2020-4-29 20:59
+
+
+
+
+只要麻本体是个人，是个女人，我就能接受
+
+反正我又不可能和她在一起，管她到底长啥样，再丑也不是我来消受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1271#       发表于 2020-4-29 20:59
+
+
+
+
+所有当vtb赚了钱的都去接受肉体改造吧，这样再也不会害怕被挖中之人了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1272#       发表于 2020-4-29 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像有点歪，美容不是整容啊，做护肤加湿面部按摩什么的都算美容的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1273#       发表于 2020-4-29 21:08
+
+
+
+
+不不不我是真觉得有整容<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1274#       发表于 2020-4-29 21:08
+
+
+
+
+她说的应该就是做护理一类的，而且好像不常做
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1275#       发表于 2020-4-29 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就整容了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1276#       发表于 2020-4-29 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">吉良吉影暴露踪迹后也整容，没毛病
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1277#       发表于 2020-4-29 21:16
+
+
+
+
+前面不是也有楼友说，她会把知道她身份的人灭口吗，杀手皇后第三**石锤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1278#       发表于 2020-4-29 21:20
+
+
+
+ 本帖最后由 Dualist彩 于 2020-4-29 21:23 编辑 
+
+有一说一，个人看着bs六人你麻虽然头大上身骨头架子大，腿倒是在几个人里算细的，就很神奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+扒出来看了看，算了当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1279#       发表于 2020-4-29 21:21
+
+
+
+
+是弱智time，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1280#       发表于 2020-4-29 21:21
+
+
+
+
+我知道了， 麻麻一定是整容失败了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 1281#       发表于 2020-4-29 21:25
+
+
+
+
+终于补完了录播了，真是要命
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1282#       发表于 2020-4-29 21:26
+
+
+
+
+除了u18r外好像腿都不算特别细
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1283#       发表于 2020-4-29 21:28
+
+
+
+
+你楼有人用麻图拼出过全脸吗？好像差个鼻子？不知道有没有能将一堆部分人脸图片还原出完整人像的神经网络
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1284#       发表于 2020-4-29 21:32
+
+
+
+
+你说这个我只能想起那张🚲v好吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+那么敏感的一个人那事后整容不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1285#       发表于 2020-4-29 21:33
+
+
+
+
+小麻一定是有欧派的美少女！不是坦克！不是钢板呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cortana  
+##### 1286#       发表于 2020-4-29 21:39
+
+
+
+
+有一说一，整容是好事，日本的微整形很发达，反正没爆出过正脸，整成个美少女还不是想怎么收天狗就怎么收<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1287#       发表于 2020-4-29 21:41
+
+
+
+
+我现在陷入一个两难抉择，我是一个贫乳民+非坦克民
+
+在默认她胖十斤的前提下，如果她长的是胸，作为贫乳民我难受；若果她长的不是胸，作为非坦克民我难受，我哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1288#       发表于 2020-4-29 21:52
+
+
+
+
+世界上存在平胸坦克吗？
+
+胖都会胖胸的吧
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1289#       发表于 2020-4-29 21:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就不是钢板了，太好了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1290#       发表于 2020-4-29 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251949&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-4-29 21:28</a>
+
+你楼有人用麻图拼出过全脸吗？好像差个鼻子？不知道有没有能将一堆部分人脸图片还原出完整人像的神经网络 ...</blockquote>
+你好，
+
+
+这门技术叫做facial inpainting/face completion
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1291#       发表于 2020-4-29 21:59
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-29 22:01 编辑 
+
+当然有啊，奈子虽然也是脂肪但和身上的肥肉不是同一路来的
+
+除非把长在前面的脂肪都叫做奈子
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1292#       发表于 2020-4-29 22:00
+
+
+
+
+往好处想，就当涨屁股上了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1293#       发表于 2020-4-29 22:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252280&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-4-29 21:59</a>
+
+你好，
+
+
+这门技术叫做facial inpainting/face completion</blockquote>
+多谢！我去查文献了，争取早日复原出麻图！
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1294#       发表于 2020-4-29 22:04
+
+
+
+<img src="https://p.sda1.dev/0/d09e41c04e8c7b2e6d3221009c0208ed/IMG_F8C5CCC54EECA54559E4F1FCDEA4F00B.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+      
