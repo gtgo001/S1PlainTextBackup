@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 16:07** 
+> ## **本文件最后更新于2020-04-29 18:05** 
 
 
 
@@ -3863,7 +3863,7 @@ S1搜索权重比5ch都高<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://img.saraba1st.com/forum/202004/29/150527wccwppp9uh9yczkc.png" referrerpolicy="no-referrer">
 
 
-<strong>2020-04-29 15-04-37 的屏幕截图.png</strong> (253.45 KB, 下载次数: 1)
+<strong>2020-04-29 15-04-37 的屏幕截图.png</strong> (253.45 KB, 下载次数: 2)
 
 下载附件
 
@@ -4084,6 +4084,25 @@ Giovanni_Lanfranco_Norandino_and_Lucina_Discovered_by_the_Ogre.jpg
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sylali| + 1|考据好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -4810,8 +4829,9 @@ bsyl
 
 
 
+ 本帖最后由 ひびき 于 2020-4-29 16:09 编辑 
 
-只要yagoo按照我说的找玲广平画个皮，找个中性正太音的魂，保准瞬间起飞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  无他，力才儿这个皮还是不够伪
+只要yagoo按照我说的找玲平广画个皮，找个中性正太音的魂，保准瞬间起飞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  无他，力才儿这个皮还是不够伪
 
 
 
@@ -4986,7 +5006,7 @@ bsyl
 <img src="https://img.saraba1st.com/forum/202004/29/155758o6jpb6glsplbknbe.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200429155735.png</strong> (884.88 KB, 下载次数: 2)
+<strong>QQ截图20200429155735.png</strong> (884.88 KB, 下载次数: 4)
 
 下载附件
 
@@ -5190,4 +5210,1529 @@ yagoo要搞伪娘团是不是可以请苔姨来设计人设<img src="https://sta
 
 
 
-                                        
+
+
+-----
+
+####  激光2000  
+##### 12283#       发表于 2020-4-29 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247877&amp;ptid=1924531" target="_blank">八月琉璃 发表于 2020-4-29 16:04</a>
+
+下半身呢？
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 全身放了不太尊重人，属于“粗壮”那派
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 12284#       发表于 2020-4-29 16:08
+
+
+
+
+2k发的这个照片怎么看着像个男人。。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12285#       发表于 2020-4-29 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247921&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 16:07</a>
+全身放了不太尊重人，属于“粗壮”那派</blockquote>
+那为什么不喜欢白姨呢，那为什么不喜欢白姨呢，那为什么不喜欢白姨呢，那为什么不喜欢白姨呢
+
+白姨急了急了急了急了急了
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 12286#       发表于 2020-4-29 16:08
+
+
+
+
+大胆点，苔姨直接入驻holo星，holostar star?
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12287#       发表于 2020-4-29 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是不是顾忌黑宝不敢说这波抽卡是杏星的回光返照啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">yagoo就是女团走了狗屎运，换了男团卡池抽到出货的思路等杏星真的起飞再吹吧。
+
+不过吹死婊活已经是传统艺能了，吹爆了也不管埋，那就尽管吹吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12288#       发表于 2020-4-29 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247936&amp;ptid=1924531" target="_blank">cherryrain 发表于 2020-4-29 16:08</a>
+大胆点，苔姨直接入驻holo星，holostar star?</blockquote>
+直接把诺里欧普罗改叫门外顾问得了。
+
+innk就改叫巴利安暗杀部队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12289#       发表于 2020-4-29 16:11
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-29 16:14 编辑 
+
+私以为打钱是为了rp粉丝， 当将v当成自己的推时， 才能从当中之人男友这件事获得快感。 不然的话就是一个主播而已。
+
+表面上是普通粉丝， 线下却是男友...
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 12290#       发表于 2020-4-29 16:11
+
+
+
+
+白姨怎么就不行，可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12291#       发表于 2020-4-29 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247934&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 16:08</a>
+
+那为什么不喜欢白姨呢，那为什么不喜欢白姨呢，那为什么不喜欢白姨呢，那为什么不喜欢白姨呢
+
+
+白姨急了急 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 白姨敢cos狐狸，发推我也转，
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12292#       发表于 2020-4-29 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247987&amp;ptid=1924531" target="_blank">魔法使い2019 发表于 2020-4-29 16:11</a>
+
+私以为打钱是为了rp粉丝， 当自我认知是粉丝时， 才能从当中之人男友这事获得快感。 不然的话就是一个主播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 他自己头像就P了个猩猩emoji上去 ，你觉得呢？
+
+
+如果是粉头、金主转正，那就更值得黑屁了，
+
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 12293#       发表于 2020-4-29 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47247991&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 16:11</a>
+
+白姨敢cos狐狸，发推我也转，</blockquote>
+白姨敢cos狐狸，借V8老哥一句话：恨不得把蛋蛋都塞进去
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12294#       发表于 2020-4-29 16:18
+
+
+
+ 本帖最后由 colodes 于 2020-4-29 16:19 编辑 
+
+ヘッダーに毎日ライブ配信が追加
+
+<img src="https://img.saraba1st.com/forum/202004/29/161812x8z7zfkdd8xdkd3z.png" referrerpolicy="no-referrer">
+
+
+<strong>zRjKN51.png</strong> (106.69 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 16:18 上传
+
+
+
+
+
+
+
+FANBOX開始
+
+<img src="https://img.saraba1st.com/forum/202004/29/161821nlj0hhuzdu5j77lw.png" referrerpolicy="no-referrer">
+
+
+<strong>elB2CQp.png</strong> (40.17 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 16:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12295#       发表于 2020-4-29 16:18
+
+
+
+
+打钱这事儿难道就不能原来是粉丝，然后经过OOXXAABB成功届到的故事么<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 12296#       发表于 2020-4-29 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248063&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-4-29 16:17</a>
+
+白姨敢cos狐狸，借V8老哥一句话：恨不得把蛋蛋都塞进去</blockquote>
+那有点恶心，想一下那个脸配那个声音，绝了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12297#       发表于 2020-4-29 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248074&amp;ptid=1924531" target="_blank">Ketestrait 发表于 2020-4-29 16:18</a>
+
+打钱这事儿难道就不能原来是粉丝，然后经过OOXXAABB成功届到的故事么</blockquote>
+那还继续打钱的话大概是情趣的一部分吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12298#       发表于 2020-4-29 16:21
+
+
+
+
+油土鳖抽30%，就算田角大发慈悲一毛不抽，也只有3.33倍的放大而已，真要好刷哪还需要男朋友，自己刷起来不是更快
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12299#       发表于 2020-4-29 16:24
+
+
+
+
+如果说西西反被包养我还信一点，说西西包养别人……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过我也不是猩猩，可能情绪上无法感同身受吧。虽然我一直盼着来个好男人把阿花娶了，下巴能把到楼上福冈照片里那样靓的女粉就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12300#       发表于 2020-4-29 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248102&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-4-29 16:21</a>
+油土鳖抽30%，就算田角大发慈悲一毛不抽，也只有3.33倍的放大而已，真要好刷哪还需要男朋友，自己刷起来不 ...</blockquote>
+你这就着相了tf，你把这些钱全想成两人共有财产，那就是放大三点三三倍，确实亏了
+
+但你换个角度，把这个想成最大化利用修噶爹地给的零用钱，助力自己生涯，并且增强普通大猩猩的打钱动力，是不是就完全不一样了？
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12301#       发表于 2020-4-29 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248134&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-29 16:24</a>
+如果说西西反被包养我还信一点，说西西包养别人……
+不过我也不是猩猩，可能情绪上无法感同身受吧。 ...</blockquote>
+那个女粉真滴是瓦尔基里md
+
+下巴几世修来的福气，话说holo的星街也说过最喜欢下巴来着
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 12302#       发表于 2020-4-29 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248140&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 16:24</a>
+
+你这就着相了tf，你把这些钱全想成两人共有财产，那就是放大三点三三倍，确实亏了
+
+
+但你换个角度，把这个 ...</blockquote>
+但问题她现在SC离holo头部也有明显的差距吧。。这个得助多大的力
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12303#       发表于 2020-4-29 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248157&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-4-29 16:26</a>
+但问题她现在SC离holo头部也有明显的差距吧。。这个得助多大的力</blockquote>
+那也是一条路啊，凯圣告诉我们，经济政策不奏效不是因为政策错了，而是力度八够，奥利给！
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12304#       发表于 2020-4-29 16:28
+
+
+
+
+哪个女的不喜欢毒舌优等生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+下巴看起来就是赢得人生的现充
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12305#       发表于 2020-4-29 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248069&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 16:18</a>
+
+ヘッダーに毎日ライブ配信が追加</blockquote>
+[https://web.archive.org/web/2019 ... IdyB8qG1-GKC33CZmnw](https://web.archive.org/web/20190514072340/https://www.youtube.com/channel/UCv8qIdyB8qG1-GKC33CZmnw)
+
+
+龙姐这个毎日ライブ配信都多久前就有的东西了，我印象中两年前刚挖出luene的时候就挂着，只能找到去年上半年的快照但很明显已经挂着了。
+
+
+fanbox这个在pixiv上搜了下也没有，不知道是什么时候留下来的截图，可信度不高。
+
+串上也不少人说了这是钓鱼，还要转来楼里就没什么意思了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12306#       发表于 2020-4-29 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248187&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-29 16:28</a>
+[https://web.archive.org/web/2019](https://web.archive.org/web/2019) ... IdyB8qG1-GKC33CZmnw
+
+
+龙姐这个毎日ライブ配信都多久前就有的东西 ...</blockquote>
+[https://luene.fanbox.cc/](https://luene.fanbox.cc/)
+
+<img src="https://img.saraba1st.com/forum/202004/29/163015tktbhk6rl9497y4c.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-04-29 163000.png</strong> (17.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 16:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12307#       发表于 2020-4-29 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248183&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-04-29 16:28:31</a>
+哪个女的不喜欢毒舌优等生
+
+下巴看起来就是赢得人生的现充</blockquote>男的也喜欢啊，虽然现充的一比，但是也能和你聊acg，坚决的实体漫画党，明白漫画的优点，还是隐藏牌佬，对亚文化基本不抱有偏见，杂谈力满点，除去随他妈的电脑杂鱼属性基本就是存在于漫画里的人物了
+这种人我嫉妒也嫉妒不起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12308#       发表于 2020-4-29 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尾宝这个推论感觉真的不靠谱，抽成那么多还循环利用，西西的sc又不算高这么搞等于送钱。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12309#       发表于 2020-4-29 16:44
+
+
+
+
+404又不是b站，只靠发红sc钓不到土豪跟的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12310#       发表于 2020-4-29 16:44
+
+
+
+
+确实做梦。国内主播打榜最实用且划算的就是工会打，个人如果没和平台签协议打个吉尔？ 屎都给你亏出来
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12311#       发表于 2020-4-29 16:49
+
+
+
+
+喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/164854pz5xq9fciulaqtrq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1588150049813.jpg</strong> (271.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 16:48 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12312#       发表于 2020-4-29 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248408&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 16:49</a>
+
+喷了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">万物皆可接
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 12313#       发表于 2020-4-29 16:52
+
+
+
+ 本帖最后由 蒹葭公子 于 2020-4-29 16:55 编辑 
+
+接触过dnd的应该知道，巨魔能够再生，怕火，一般智力比较低，基础职业是战士；食人魔的话有智力比较高的双头版本，可以当法师……
+
+不过两者都属于大型巨人，一般不讲究的作品混用也很常见……
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 12314#       发表于 2020-4-29 16:54
+
+
+
+
+阿喵喵的建筑耐不住ark的丑陋建材啊
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12315#       发表于 2020-4-29 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248478&amp;ptid=1924531" target="_blank">艾特娜 发表于 2020-4-29 16:54</a>
+
+阿喵喵的建筑耐不住ark的丑陋建材啊</blockquote>
+公主居住的那个地图遗迹还是很好看的，丑建材也好看（虽然玩家也建造不出来）
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 12316#       发表于 2020-4-29 17:01
+
+
+
+ 本帖最后由 空派白 于 2020-4-29 17:04 编辑 
+
+不是 尾宝吹了半天的放大3.33倍那不就是三七分账的老路子吗w
+
+对不起 编辑了 只有尾宝在吹
+
+
+以及我记得虹人生胜利组多的说法很久以前就有了吧
+
+无印里显而易见的人生胜利组就有一堆了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 12317#       发表于 2020-4-29 17:02
+
+
+
+
+towa这个突击b限真的充分说明了阿b观众那b限优先级是真的高…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12318#       发表于 2020-4-29 17:02
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-4-29 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248274&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-29 16:37</a>
+
+男的也喜欢啊，虽然现充的一比，但是也能和你聊acg，坚决的实体漫画党，明白漫画的优点，还是隐藏牌佬，对 ...</blockquote>
+虹好多牌佬胶佬，非常有亲切感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，不知道是主播格外有钱还是消费观比较独特，感觉他们在个人爱好上花钱好多
+
+社长天天晒牌就算了，昨天晚上听哈哥说他玩赛车撞坏了五辆<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12319#       发表于 2020-4-29 17:07
+
+
+
+
+尾宝也就那么随口一说，你们咋就开始认真讨论了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 12320#       发表于 2020-4-29 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有锤佬吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 12321#       发表于 2020-4-29 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248408&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 16:49</a>
+
+喷了</blockquote>
+草
+
+顺便现在月下的待机间人数就已经&gt;277了（英语浓度高的可怕
+
+
+
+
+
+
+1 (3).png
+(17.33 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-29 17:08 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/170849ai6luzwldbvhmhmn.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 12322#       发表于 2020-4-29 17:11
+
+
+
+
+gay浓度增高归根结底还是因为star浓度的增加 降低gay浓度最好的解决方法就是降低star在泥潭的曝光度<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 12323#       发表于 2020-4-29 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248558&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-4-29 17:02</a>
+
+虹好多牌佬胶佬，非常有亲切感
+
+syl，不知道是主播格外有钱还是消费观比较独特，感觉他们在个人爱好 ...</blockquote>
+社长感觉也不是特别缺钱的样子（甚至还害得观众的限定白嫁真实价值暴露了（
+
+哈哥和叶都是小资家庭 花钱还是比较自由的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12324#       发表于 2020-4-29 17:18
+
+
+
+
+holo小动画一周年
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/171722tmmsiex3axx3mqf4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault.jpg</strong> (157.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 17:17 上传
+
+
+
+
+
+
+[https://www.youtube.com/watch?v=UJElTRVZNIc](https://www.youtube.com/watch?v=UJElTRVZNIc)
+
+
+
+附预告最后签名板的对比
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/171739jn5qnh44nhsn57q8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>before.jpg</strong> (90.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 17:17 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/171757cpufnrufuroxhwib.jpg" referrerpolicy="no-referrer">
+
+
+<strong>after.jpg</strong> (149.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 17:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12325#       发表于 2020-4-29 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248693&amp;ptid=1924531" target="_blank">空派白 发表于 2020-4-29 17:13</a>
+
+社长感觉也不是特别缺钱的样子（甚至还害得观众的限定白嫁真实价值暴露了（
+
+哈哥和叶都是小资家庭 花钱还 ...</blockquote>
+那当个毛套皮主播啊，真就来泡女v呗
+
+我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12326#       发表于 2020-4-29 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248744&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-4-29 17:18</a>
+holo小动画一周年</blockquote>
+现在想想反而是holo做到了游戏部想做而没做到的事，真是讽刺<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12327#       发表于 2020-4-29 17:24
+
+
+
+
+不愧是狐皇，占了这么多镜头。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12328#       发表于 2020-4-29 17:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Top3这个站位是不是体重排序的啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12329#       发表于 2020-4-29 17:28
+
+
+
+
+从左到右按脸的大小排列也不是没可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12330#       发表于 2020-4-29 17:31
+
+
+
+
+不是很懂狐皇嗯要站c位的道理，只能说空妈不是蛋蛋，脾气好。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12331#       发表于 2020-4-29 17:32
+
+
+
+
+狐皇对holo的贡献应该尊为太宗，少主太委屈她了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12332#       发表于 2020-4-29 17:33
+
+
+
+
+我查了一下，最早有人说我是gay是3.17，然后一直到现在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12333#       发表于 2020-4-29 17:34
+
+
+
+
+杏星这三位里的伪娘还没开播，已经5200多粉了，另外两位一个1800一个1600，伪娘这个噱头就是好
+
+
+空妈脸圆是圆，论重量大概还是比不了狐皇的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12334#       发表于 2020-4-29 17:35
+
+
+
+ 本帖最后由 金魚佬 于 2020-4-29 17:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一般二代目不都是贡献没有上一代杰出但吹得响亮吗。
+
+别杀我，我是说董明珠<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">syl 我说按体重是领奖台的顺序 2 1 3
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12335#       发表于 2020-4-29 17:36
+
+
+
+
+说起来彩菜姐姐就那一张照片？不过彩菜姐姐应该会锻炼的，比不过狐皇的吧。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12336#       发表于 2020-4-29 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248773&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-04-29 17:22:14</a>
+那当个毛套皮主播啊，真就来泡女v呗
+
+我有梁木了</blockquote>都说了彩虹很多人就是图一乐啊，当然泡女V也可以是支线任务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12337#       发表于 2020-4-29 17:38
+
+
+
+
+想问一下，holo里现在有那种敢于拳爆运营、前辈的脾气大倔女吗？比sasaki还猛的的那种
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12338#       发表于 2020-4-29 17:38
+
+
+
+
+龙皇？经纪人都换了。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12339#       发表于 2020-4-29 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248963&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-29 17:37</a>
+都说了彩虹很多人就是图一乐啊，当然泡女V也可以是支线任务
+
+  -- 来自 有消息提醒的 Stage1官方 An ...</blockquote>
+田角泪目<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12340#       发表于 2020-4-29 17:40
+
+
+
+
+龙皇换经纪人那就是玩一下自己极道大姐头的梗吧，这还能说换就换啊......
+
+
+要看空妈的圆脸美图吗，楼主快来看<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/174028nahdp6lk6luddheu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>圆脸.jpg</strong> (30.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 17:40 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12341#       发表于 2020-4-29 17:40
+
+
+
+
+木口和谐大家庭怎么爆前辈啊，至少明面上演的没啥问题。
+
+爆运营的话四期生的运营换了，天龙羊还在ark联动里集体吐槽过。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12342#       发表于 2020-4-29 17:40
+
+
+
+
+HOLO三巨头
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 12343#       发表于 2020-4-29 17:41
+
+
+
+
+yagoo50多岁的人放下面子跪舔几句，再大的意见都给你憋回去了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 12344#       发表于 2020-4-29 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47248913&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 17:33</a>
+
+我查了一下，最早有人说我是gay是3.17，然后一直到现在</blockquote>
+可怜的黑宝，摸摸头不哭<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12345#       发表于 2020-4-29 17:42
+
+
+
+
+话是这么说，龙皇在换之前就多次diss经纪人了，换了之后还鞭尸。
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 12346#       发表于 2020-4-29 17:43
+
+
+
+
+明年中间该轮到龙皇了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12347#       发表于 2020-4-29 17:44
+
+
+
+ 本帖最后由 rzrbtk 于 2020-4-29 17:46 编辑 
+
+倒不是实际已经爆了，是想知道有没有那种胆量和魄力。（举例子就是tama西子凛
+
+来一张pako白上图作为感谢
+
+
+
+
+
+
+
+EWsZ5v-UMAYeDYP.jpg
+(138.86 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-29 17:46 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/174644yr1f1u8re1sw6zd3.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12348#       发表于 2020-4-29 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">除了龙皇，还有亏皇罢工啊
+
+syl点内部排座次第一是小白，第二是羊，第三才排的到会长啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 12349#       发表于 2020-4-29 17:46
+
+
+
+
+点艹运营还行，点艹前辈日本那边干不出…空妈不就被这套坑的，好多人肉眼可见不敢找她玩。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 12350#       发表于 2020-4-29 17:47
+
+
+
+<blockquote>艾特娜 发表于 2020-4-29 17:43
+明年中间该轮到龙皇了</blockquote>
+明年挤一点排五个_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12351#       发表于 2020-4-29 17:49
+
+
+
+
+空妈增长停滞很久很久了，远在资源重配置之前就到头了，现在涨一点都是吃箱推的汤
+
+差距实在太大，要还占着C位反而显得不对劲吧
+
+
+少主之前就提到周围的人都说她是代表，公司定位上就是这么走的了，空妈以后就养养老吧
+
+当初起箱的时候，空友派和直播势派就有点不对付，算是两种路线，现在两种路线有胜负了
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12352#       发表于 2020-4-29 17:52
+
+
+
+
+龙姐再不复活彩虹要炸，不过现在也今非昔比了，复活了估计没法像以前那样敲打运营。所以还是打游戏香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+19组火归火，却一直没能出一个像龙姐这样的人物，某种方面也是田角的运气，虽然也可能是田角有意为之，但我现在完全不觉得他有这头脑。
+楼上忘了补充一句，其实也有来泡男v的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 12353#       发表于 2020-4-29 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">等slee出来，我们再议怎么处置田角
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12354#       发表于 2020-4-29 18:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/180327g8a660aaxsz0ywao.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWwwAk-X0AIndLG.jpg</strong> (137.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 18:03 上传
+
+
+
+
+
+
+[https://twitter.com/AkasaAi/status/1255431189269266433](https://twitter.com/AkasaAi/status/1255431189269266433)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12355#       发表于 2020-4-29 18:05
+
+
+
+[https://live.bilibili.com/21307497?visit_id=5o4xafgm4ms0](https://live.bilibili.com/21307497?visit_id=5o4xafgm4ms0)
+
+组长B限开了
+
+
+
+
+
+                                      
