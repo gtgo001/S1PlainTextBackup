@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 10:10** 
+> ## **本文件最后更新于2020-04-29 14:10** 
 
 
 
@@ -16,7 +16,7 @@
 <img src="https://img.saraba1st.com/forum/202004/25/134212c4fzfq0saaa1atsf.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EV3t7nSUYAImUGw.jpg</strong> (43.78 KB, 下载次数: 0)
+<strong>EV3t7nSUYAImUGw.jpg</strong> (43.78 KB, 下载次数: 1)
 
 下载附件
 
@@ -20139,6 +20139,25 @@ mea说自己是以“あざとい女”为目标的那段？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|谢谢坐标|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20412,6 +20431,25 @@ mea在吃面，我也在吃面<img src="https://static.saraba1st.com/image/smile
 你能进组我是万万没想到的，觉得官组犯弱智了</blockquote>
 犯不犯弱智的，我是进去捣乱了还是怎么的了，觉得我不干好事的话就指出来呗。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|工作加油|
+
+
+
+查看全部评分
 
 
 
@@ -20905,4 +20943,486 @@ bsyl 刚才tc边播边做封面 做完了404又开台了
 
 
 
-           
+
+
+-----
+
+####  古战场亡魂  
+##### 1151#       发表于 2020-4-29 10:25
+
+
+
+
+无法判断mea是不是在骗筋
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1152#       发表于 2020-4-29 10:29
+
+
+
+<img src="https://p.sda1.dev/0/ebbf86c4e3d42831155a41b411f7f0c1/IMG_0D68E84D195CDFA33B4D1C90957592CD.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1153#       发表于 2020-4-29 10:30
+
+
+
+
+这就是yhm碰到电脑出问题的样子吗，i了i了
+
+
+
+
+
+
+
+-----
+
+####  闪刀姬  
+##### 1154#       发表于 2020-4-29 10:30
+
+
+
+
+原来这游戏还能胡炸屏幕，i了i了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 1155#       发表于 2020-4-29 10:31
+
+
+
+
+你麻这种叫声还是很难让人冷静下来的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1156#       发表于 2020-4-29 10:31
+
+
+
+
+厉害 把游戏打炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1157#       发表于 2020-4-29 10:45
+
+
+
+
+绝活😂
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1158#       发表于 2020-4-29 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241870&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-4-29 05:25</a>
+
+犯不犯弱智的，我是进去捣乱了还是怎么的了，觉得我不干好事的话就指出来呗。 ...</blockquote>
+你那段时间精神状态这么差，后来还因为某些事情怕炸过，还来论坛里说怪话。
+
+如果我是HR我是不敢用这种人的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|草， 他们像是有hr的样子吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1159#       发表于 2020-4-29 11:03
+
+
+
+
+没想到TC后面还接麻将，我爬了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1160#       发表于 2020-4-29 11:10
+
+
+
+
+打了一个早上的麻将，不愧是麻酱，我麻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1161#       发表于 2020-4-29 11:29
+
+
+
+
+二择失败，太惨了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1162#       发表于 2020-4-29 11:35
+
+
+
+
+年轻真好啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1163#       发表于 2020-4-29 11:36
+
+
+
+ 本帖最后由 2014720 于 2020-4-29 11:38 编辑 
+
+妈的小学生
+
+如月要上播估计要下了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1164#       发表于 2020-4-29 11:42
+
+
+
+
+这就是健康的作息吗？工作time就播爆，渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 1165#       发表于 2020-4-29 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这把AL坐庄打得啥啊。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1166#       发表于 2020-4-29 11:55
+
+
+
+
+mea太菜了，我急了……
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1167#       发表于 2020-4-29 12:07
+
+
+
+
+我上午课都上完了她怎么还不下播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">搞什么耐久不好搞雀魂耐久
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1168#       发表于 2020-4-29 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47245013&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-4-29 12:07</a>
+我上午课都上完了她怎么还不下播搞什么耐久不好搞雀魂耐久</blockquote>
+中老年妇女打麻将不都是一宿一宿的打么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1169#       发表于 2020-4-29 12:30
+
+
+
+
+她这睡了是午觉还是晚觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 1170#       发表于 2020-4-29 12:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">半夜嗨起来。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 1171#       发表于 2020-4-29 13:01
+
+
+
+
+想到个可能有关可能无关的事，昨天看到消息阿B直播映评馆区被严打了一波，未引进的不准播，引进了的没版权也不准播，所以她要是再搞观影会阿B这边的转播可能也和404一样不能放画面了，除非她看林正英全集之类的。
+
+不过观影会还会不会有都是个问号就是了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1172#       发表于 2020-4-29 13:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">服了，你麻这时候睡，醒来又是半夜
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1173#       发表于 2020-4-29 13:11
+
+
+
+
+最近的直播方式让我感觉她在混时长<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+观影会可以放b站电影吗，虽然不可能就是了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 1174#       发表于 2020-4-29 13:37
+
+
+
+
+可以是可以，但是没必要
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1175#       发表于 2020-4-29 13:52
+
+
+
+
+最近可能就是之前说的不想播但不播又怕观众流失的状态吧
+
+
+看b站资源要阿b单独帮忙解锁地区限制，b限搞的话应该还是能商量一下的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1176#       发表于 2020-4-29 13:58
+
+
+
+
+竟然还有对观影会心存幻想的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+syl，最近很明显觉得她面对阿b这七十多万人已经不知道该怎样和这么大的群体相处了，导致b限就是网吧和ktv轮着来
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1177#       发表于 2020-4-29 14:01
+
+
+
+
+她在藏牛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+          
