@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-30 02:05** 
+> ## **本文件最后更新于2020-04-30 04:05** 
 
 
 
@@ -9301,7 +9301,7 @@ B6623ADE-B233-47F7-93B5-053F58E2596F.png
 <img src="https://img.saraba1st.com/forum/202004/29/194704aqmbb45qqc5rtqr4.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-04-29 194652.png</strong> (110.42 KB, 下载次数: 0)
+<strong>批注 2020-04-29 194652.png</strong> (110.42 KB, 下载次数: 1)
 
 下载附件
 
@@ -15709,7 +15709,7 @@ mix 居然是这位
 <img src="https://img.saraba1st.com/forum/202004/29/221923d1q6p0zgi6x611f1.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200429221845.png</strong> (575.63 KB, 下载次数: 2)
+<strong>QQ截图20200429221845.png</strong> (575.63 KB, 下载次数: 3)
 
 下载附件
 
@@ -16023,7 +16023,7 @@ bsyl，待会儿海苔男唱一番の宝物的时候必然要边唱边哭的<img
 <img src="https://img.saraba1st.com/forum/202004/29/222511h1gf0uzfvdgbgeqs.png" referrerpolicy="no-referrer">
 
 
-<strong>1.png</strong> (828.46 KB, 下载次数: 2)
+<strong>1.png</strong> (828.46 KB, 下载次数: 3)
 
 下载附件
 
@@ -22160,11 +22160,15 @@ syl p限的钱现在是能拿到的 但是肯定比404少很多啦，毕 ...</bl
 
 
 
- 本帖最后由 crawarb 于 2020-4-30 02:05 编辑 
+ 本帖最后由 crawarb 于 2020-4-30 02:06 编辑 
 
 去年萝卜子续签合同后说过她是五五分成的？（存疑
 
-早安可可里也隐晦的提过是五五分成，这个七三分成的说法有什么出处吗编辑，把“拿回七成”看成“拿走七成”，看错了。
+早安可可里也隐晦的提过是五五分成。编辑，把“拿回七成”看成“拿走七成”，看错了。
+
+
+
+
 
 
 
@@ -22267,12 +22271,13 @@ MV延期十有八九是星街犯甲方瘾了，这点不用担心。现在披露
 
 
 
+ 本帖最后由 crawarb 于 2020-4-30 02:16 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254376&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-4-30 01:54</a>
 
 企业机密怎么给你公开
 
 常识考虑一下吧</blockquote><blockquote>2.VTuber在b站的收益，按照现在的合约，将在这个月底打款。这次以及今后都采取B站直接汇款到cover的形式，会尽力做到透明和公开（例如公示汇款数额等）。</blockquote>
-他自己说要做到的，这时候扯企业机密干嘛呢，当初观众也没逼他一定要这么做。说话像放屁一样
+他自己说要做到的，这时候扯企业机密干嘛呢，当初观众也没逼他一定要这么做。yagoo说话像放屁一样
 [https://t.bilibili.com/278948844452600891?tab=2](https://t.bilibili.com/278948844452600891?tab=2)
 
 
@@ -22345,4 +22350,778 @@ MV延期十有八九是星街犯甲方瘾了，这点不用担心。现在披露
 
 
 
-          
+
+
+-----
+
+####  kanonsisya  
+##### 13188#       发表于 2020-4-30 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254384&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-30 01:57</a>
+
+去年萝卜子续签合同后说过她是五五分成的？（存疑
+
+早安可可里也隐晦的提过是五五分成，这个七三分成的说法 ...</blockquote>
+扣完平台费以后的钱差不多64到55 然后还得扣完税才打到主播账上 
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13189#       发表于 2020-4-30 02:07
+
+
+
+
+杏的抹布能让liver卖力宣传，分成肯定是不会低的。这和虹liver往往只宣传自己设计or自己约稿监制的周边是一个道理，运营推的我又拿不到一分钱干嘛卖力宣传？提两句都是给运营面子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+当然如果把音声算作周边的话，那音声无疑是每一个虹liver都费尽心力宣传而且暗示liver提成最多的东西了。这点我不怎么关注杏liver，感觉上杏的音声反而没怎么被liver本人宣传。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13190#       发表于 2020-4-30 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254409&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-4-30 02:03</a>
+
+我印象中卖周边能到v手上的应该是很少的，但龙皇说卖T恤到她手上的好像也不是特别少 ...</blockquote>
+实物周边要看制作成本和设计成本，自己设计的T是成本最低的，分成少不了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13191#       发表于 2020-4-30 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254406&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-4-30 02:02</a>
+
+他自己说要做到的，这时候扯企业机密干嘛呢，当初观众也没逼他一定要这么做。说话像放屁一样
+
+https://t. ...</blockquote>
+谷乡说话跟放屁一样不是都知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13192#       发表于 2020-4-30 02:10
+
+
+
+
+不同收入等级的V估计合同和分成累进阶梯都不一样，不然有些活雷锋也太图一乐了。
+
+
+还有虹杏用社内资源比如3D studio什么的怎么内部计费又是一笔糊涂账，我觉得作为粉丝算这种暗帐没意思。
+
+现在的情况是顶部捞的多底边饿不死，差不多得了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13193#       发表于 2020-4-30 02:10
+
+
+
+
+杏音声宣传确实很少，基本就是个人音声可能会有一次直播来宣传一下。群体节日音声就发个推知会一下然后挂op完事了，最多快发售结束的时候再提一嘴。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13194#       发表于 2020-4-30 02:10
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-30 02:12 编辑 
+
+那种单纯的音声抽成应该是很低的，但杏很多音声是夹周边的，这种估计v拿不到多少钱，但v宣传得最卖力的也是这种，不是很懂。
+比如很多人都搞过的带亲笔签名的音声，就我所知抽成非常高
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13195#       发表于 2020-4-30 02:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254417&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-30 02:06</a>
+
+扣完平台费以后的钱差不多64到55 然后还得扣完税才打到主播账上</blockquote>
+我之前看错了，以为是说运营和V 七三分成。
+
+404抽三成这条我去查过官方公告，上面明确有写的，再扣除日本本地的税应该确实是64-55
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13196#       发表于 2020-4-30 02:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254435&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-4-30 02:10</a>
+
+那种单纯的音声抽成应该是很低的，但杏很多音声是夹周边的，这种估计v拿不到多少钱，但v宣传得最卖力的也是 ...</blockquote>
+那你这个消息渠道明显有问题，带签名明信片的音声是抽成最低的，每次最卖力宣传就是这玩意
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 13197#       发表于 2020-4-30 02:17
+
+
+
+
+不要一棒子打死杏信都是纯净mmr啊，我这种看船长和夏哥的只觉得啊黑弱智，毕竟跟阿姨平时ghs比也太小儿科了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 13198#       发表于 2020-4-30 02:18
+
+
+
+
+亲笔签名没啥好抽成的，可能抽成高的是附带其他特典周边的那种，但是音声的部分和特典的部分分成大概率是分开的，音声部分高，特典部分低。
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 13199#       发表于 2020-4-30 02:19
+
+
+
+ 本帖最后由 KarsusNeko 于 2020-4-30 02:24 编辑 
+
+关于sc抽成
+
+youtube抽三成是惯例，这个都知道的，google其他的渠道费用也是三成。tc台多少之前提到过。谷歌抽成后，以前弟姐有在oto的前几次配信中介绍过企业v是怎么抽成的，具体我忘了，她说的应该是当时彩虹的抽成比例，不过holo应该也类似。不过后面一年以后的合同应该是看你怎么谈了，这点看利香哪种情况应该能看出来。当然还有大家最喜闻乐见的yagoo对亏滑跪。另外p家sc抽成是5%，周边抽成是15%。
+
+关于membership抽成
+
+我记得以前有说法是彩虹的会员彩虹不抽成，不过不能确认
+
+关于周边
+
+实体周边这个抽成高是肯定的，数字的话不清楚，看叶的说法怕是音声类公司抽成应该不多。平台的话v8这楼之前也提到过booth等抽成很低。
+
+关于b站
+
+批站打赏据norio的说法我记得好像除掉50%抽成和各种抽税，到手大约两三成。然后企业势的还要在这里抽运营费用。
+
+
+之前德龙也有提到过钱的问题，v6还是v7有repost，可是那期我没看
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13200#       发表于 2020-4-30 02:19
+
+
+
+
+车收入不如车一下虹杏这波黄金周攻势都挺不上心的。虹的诉求是打出声量留下积极印象，杏的诉求是对虹防御同时扫除之前小小的不满。但是两社基本都是单兵作战XN，内容也都是自由发挥，一点看不出运营的痕迹。这么弄黄金周一过还不是各回各家，B站局势也是老样子。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13201#       发表于 2020-4-30 02:21
+
+
+
+
+话说批站那个nt文案开了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13202#       发表于 2020-4-30 02:24
+
+
+
+ 本帖最后由 QWANG 于 2020-4-30 02:25 编辑 
+
+五一又不是春节有压岁钱，差不多得了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真卖力除了观众人数其他的也不会比平日多多少。不过我觉得虹还是挺有发展空间的，几个先头能稳定下来就好了，不过得辛苦葵皇了。
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 13203#       发表于 2020-4-30 02:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹杏就这样挺好的，让其他小主播们多飞一会
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 13204#       发表于 2020-4-30 02:39
+
+
+
+
+其实虹的全社大型企划没法b限挺吃亏的。这算是虹在404的最大卖点了，不知道虹愿不愿意组织一次绿仙经常办的那种多人企划来b限，现在绿仙翔哥都有官号其实都还挺方便的
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 13205#       发表于 2020-4-30 02:41
+
+
+
+
+跑b站搞大型企划那真是把b站当爹了，不可能的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13206#       发表于 2020-4-30 02:42
+
+
+
+
+最近杏在国内的节奏怎么这么多，田角你那19亿究竟用了多少来请水军啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13207#       发表于 2020-4-30 02:45
+
+
+
+
+我觉得单纯是看木口的人比较多，国内人气高的不都开过好几轮了，开虹根本没人接话自然开不起来
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13208#       发表于 2020-4-30 02:46
+
+
+
+
+本土市场饱和你不找中国爹那就只好找东南亚爹了，可是令yhm不安的英文评论不打钱啊。<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 13209#       发表于 2020-4-30 02:47
+
+
+
+
+跑b站搞大型企划这也太能做梦了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 13210#       发表于 2020-4-30 02:50
+
+
+
+
+最舔批站用户的爱丽丝收入也就那样吧，说白了阿比这学生崽占多数的结构钱多数是极少数的富二代打的，凭这点虹杏不会把批站用户当作稳定收入来源，只是为了可能的流量灌饭舔批站而已
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13211#       发表于 2020-4-30 02:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254525&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-30 02:46</a>
+
+本土市场饱和你不找中国爹那就只好找东南亚爹了，可是令yhm不安的英文评论不打钱啊。 ...</blockquote>
+英文还是能打些钱的  不信看昨天狗子doom录像，不比日元少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13212#       发表于 2020-4-30 02:53
+
+
+
+
+关键贴吧想开虹的团的人也不少，但是每次都被虹人讲事实放熟肉给打退了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13213#       发表于 2020-4-30 02:53
+
+
+
+ 本帖最后由 crawarb 于 2020-4-30 02:59 编辑 
+
+这种几乎无上限的打钱平台，不要小看石油佬呀。b站V区这个月营收已经有1070W
+
+syl, 杏（不包括cn分部）88W.占比8.2%<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  妹控使徒  
+##### 13214#       发表于 2020-4-30 02:53
+
+
+
+
+看了下串规没禁止就这儿问问--------------清竜人25这个团队  除开清竜人本尊外剩下人当时的演出表现 整体评价  以及这个组合短时间对他们带来的影响大致是怎样的    目前只知道清竜人是个很厉害的音乐人+企划人  但这个组合就偶像定位来说非常危险 可以说是触犯了禁区 似乎看起来更像是REVO那样招一批女角当道具用
+
+
+简单问就是清竜人25这个企划是玩成功了还是砸了还是毁誉参半抑或清竜人本身赢了但陪衬的女优们赔了?
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13215#       发表于 2020-4-30 02:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254542&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-4-30 02:53</a>
+
+关键贴吧想开虹的团的人也不少，但是每次都被虹人讲事实放熟肉给打退了
+
+
+—— 来自 Xiaomi Redmi No ...</blockquote>
+讲事实放熟肉有屁用？开兔皇的理由除了后期的p限404mc温差大以外不全是造谣和翻译错误？一人复读一句之后预设好立场根本没几个人会追求事实了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13216#       发表于 2020-4-30 02:57
+
+
+
+
+v区1000w，木口又没有占大头，现在主要是有遍地开花的中日小v在创收
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13217#       发表于 2020-4-30 02:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254541&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-4-30 02:53</a>
+
+英文还是能打些钱的  不信看昨天狗子doom录像，不比日元少</blockquote>
+你可以复制doom，但是你没法复制狗子。现在虹杏都在拿“蓝海”市场进出给自己的天花板背书呢，要证明进出成功起码得有一半以上的人能达到昨天狗子的打钱比例吧。
+
+
+同样我觉得今天葵皇拿了小岛宝典学出来的和兔皇也不是一个味儿。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13218#       发表于 2020-4-30 03:02
+
+
+
+ 本帖最后由 kanonsisya 于 2020-4-30 03:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254552&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-30 02:59</a>
+
+你可以复制doom，但是你没法复制狗子。现在虹杏都在拿“蓝海”市场进出给自己的天花板背书呢，要证明进出 ...</blockquote>
+那肯定没错，只是既然有成功的例子甚至可能性，资本就必然不会把这个市场否掉，谁知道5期6期生出不了第二个狗子呢。况且洋大人钱不多声音还是很大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+补充，四期的鸣海同学炎了那波之后外币比例也很高
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13219#       发表于 2020-4-30 03:03
+
+
+
+
+反正我只是觉得贴吧这帮虹人有点团结过头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13220#       发表于 2020-4-30 03:09
+
+
+
+
+国内虹人开头被视频四天王骑，中间得意没多久又被点人杏仁骑，到现在怕不是散装樱花妹都要开始骑，当然团结了。而且体感上虹人里最起码懂日语的知道怎么去404的确实多一点。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 13221#       发表于 2020-4-30 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254559&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-4-30 03:03</a>
+
+反正我只是觉得贴吧这帮虹人有点团结过头了
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next ...</blockquote>
+虹人反而除了贴吧无处可去了么233。
+
+
+不过话说回来，s1我觉着是s1坛友最讨厌虹字幕组的婆罗门作风加之天狗太多，微博的虹人是迟早要吃爱讨论铁拳正常中国人都要敬而远之，最后为啥虹人在nga越来越少呢。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13222#       发表于 2020-4-30 03:12
+
+
+
+
+s1那个统计不是虹人和杏人还有天狗都是1:1:1吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13223#       发表于 2020-4-30 03:15
+
+
+
+
+而且我也没说贴吧虹人多，只是之前那些虹人在贴吧炸了之后特别团结而已<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 13224#       发表于 2020-4-30 03:16
+
+
+
+
+因为是多选啊
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 13225#       发表于 2020-4-30 03:16
+
+
+
+
+nga但是基本上没有B站的讨论环境，虹楼内容可以默认为**直播讨论
+
+这种环境下虹人再多也就那点数量了
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13226#       发表于 2020-4-30 03:17
+
+
+
+
+虹来b搞大联动是不可能的。
+首先本来语言就不通，这么多人七嘴八舌的，同传根本忙不过来。
+其次大联动一般都是比赛，得益于虹现在本来内部就是多个小团体组合而成的大团体，粉丝之间对立程度比你杏不知道低了几个点。不过即使这样，仍然会发生一些争端，真来到一个语言不通的地方搞大联动，恐怕最后会得到一个莫名其妙的结果<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 13227#       发表于 2020-4-30 03:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254574&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-4-30 03:10</a>
+
+虹人反而除了贴吧无处可去了么233。
+
+
+不过话说回来，s1我觉着是s1坛友最讨厌虹字幕组的婆罗门作风加之天 ...</blockquote>
+最近NGA虹人明明就是越来越多啊
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13228#       发表于 2020-4-30 03:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254596&amp;ptid=1924531" target="_blank">艾特娜 发表于 2020-04-30 03:24:51</a>
+最近NGA虹人明明就是越来越多啊</blockquote>有越来越多吗？从去年到今年，基本都是老面孔，退坑的倒是越来越多，现在一天专楼里能增加个几页<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，反正国内杏的人气和虹根本不在一个量级上，在真要开分分钟的事，包括这楼。楼上几位也别试图用探讨为什么贴吧虹人这么团结来开团了，我先替你们喊了：七色太监！
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 13229#       发表于 2020-4-30 04:01
+
+
+
+
+真的吗？我感觉虹楼新人还是挺多的，最明显的一点就是女粉变多了，以前都见不到几个的现在一刷楼感觉三分之一都是
+
+连带着你楼也变给了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
