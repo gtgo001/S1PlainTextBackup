@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 10:07** 
+> ## **本文件最后更新于2020-04-29 12:06** 
 
 
 
@@ -1597,9 +1597,9 @@ syl，给楼里不了解的哥大概介绍一下，武藏也是日本最著名�
 都是白上的错把mio带坏了，大家不要对mio有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 来点幼狼
-<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_KsiSb" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_NU350" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_tttTg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWbBq4kUwAEd6T2?format=jpg&amp;name=large" height="1100" id="aimg_rVrLa" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWmkFcnU8AEq9cC?format=jpg&amp;name=medium" id="aimg_aWY0Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EWmB8cvUwAAKqI8?format=jpg&amp;name=large" id="aimg_o7JJt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4322,7 +4322,7 @@ repo部分：阿星这个“真死宅加入闲聊为主的现充游戏社团感�
 
 
 来点葵来点葵
-<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_B7t0d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EVayt_HUUAA5sxi?format=jpg&amp;name=medium" id="aimg_UfgUf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 <img src="https://img.saraba1st.com/forum/202004/27/224839kqw650cs57w9ahd5.jpg" referrerpolicy="no-referrer">
 
@@ -5423,7 +5423,7 @@ RTA的cut我都看了<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_w5v1Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+再来点虹浓度<img src="https://pbs.twimg.com/media/ETKObn1UMAEteFj?format=jpg&amp;name=medium" id="aimg_Nq2X4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，看了一眼关注，怎么还有几个在lol的，葛皇要复出了？
@@ -9051,7 +9051,7 @@ gaku跟女神有cp
 
 
 7CP@4WO26SW[{_866`V[W3A.jpg
-(121.51 KB, 下载次数: 0)
+(121.51 KB, 下载次数: 2)
 
 
 
@@ -12774,7 +12774,7 @@ b限舞mea能来一个吗</blockquote>
 <img src="https://img.saraba1st.com/forum/202004/28/131835ixardv43jrcx28kj.jpg" referrerpolicy="no-referrer">
 
 
-<strong>LkJKBs6.jpg</strong> (801.98 KB, 下载次数: 2)
+<strong>LkJKBs6.jpg</strong> (801.98 KB, 下载次数: 3)
 
 下载附件
 
@@ -13732,7 +13732,7 @@ woc，kmm女士还能找到男友的，这活的比我现充多了，早知道�
 <img src="https://img.saraba1st.com/forum/202004/28/142505rqyqaq53yq457ttt.jpg" referrerpolicy="no-referrer">
 
 
-<strong>F50wrZI.jpg</strong> (165.07 KB, 下载次数: 2)
+<strong>F50wrZI.jpg</strong> (165.07 KB, 下载次数: 3)
 
 下载附件
 
@@ -18206,7 +18206,7 @@ hold不住不至于，说出来其实对大家都有好处。
 <img src="https://img.saraba1st.com/forum/202004/28/164113gxs4bx5ll13bzszl.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-04-28 163950.png</strong> (14.65 KB, 下载次数: 2)
+<strong>批注 2020-04-28 163950.png</strong> (14.65 KB, 下载次数: 3)
 
 下载附件
 
@@ -19000,7 +19000,7 @@ syl 虽然说不搞mrra之后是郡神bg，实际她下半年每次去东京都�
 
 
 8677A957-4FB2-4AEB-86FC-CF359C9BEFFC.jpeg
-(18.35 KB, 下载次数: 0)
+(18.35 KB, 下载次数: 1)
 
 
 
@@ -20038,7 +20038,7 @@ luna我记得上过金盾又掉下来了吧，已经反复横跳很久了
 <img src="https://img.saraba1st.com/forum/202004/28/182927kaxizlxot8iib6i4.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200428182855.png</strong> (182.39 KB, 下载次数: 1)
+<strong>QQ截图20200428182855.png</strong> (182.39 KB, 下载次数: 2)
 
 下载附件
 
@@ -20345,10 +20345,11 @@ QHA`]D)CY$2IQ}$A}[CR1(5.jpg
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| minamichisei| + 1||
 | Devi_Lito| + 1|好评加鹅|
 | icecry| + 1|好评加鹅|
 
@@ -20983,7 +20984,7 @@ holo居然用走弹对付彩虹五一攻势，实在太不基德了<img src="htt
 <img src="https://img.saraba1st.com/forum/202004/28/200211mwxj42j0ijy91h1l.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EWr-01kVcAAG39F.jpg</strong> (148.73 KB, 下载次数: 0)
+<strong>EWr-01kVcAAG39F.jpg</strong> (148.73 KB, 下载次数: 1)
 
 下载附件
 
@@ -21630,7 +21631,7 @@ sc怎么不能读阿，B站不是有翻译吗，之前看木口的aki就读完�
 <img src="https://img.saraba1st.com/forum/202004/28/203128dsbbp3pe0br0qfdy.png" referrerpolicy="no-referrer">
 
 
-<strong>vlcsnap-2020-04-28-20h30m51s251.png</strong> (924.25 KB, 下载次数: 0)
+<strong>vlcsnap-2020-04-28-20h30m51s251.png</strong> (924.25 KB, 下载次数: 1)
 
 下载附件
 
@@ -22621,7 +22622,7 @@ bug的话可以取消重新开直播间多试几次 就像今天下午的阿心�
 <img src="https://img.saraba1st.com/forum/202004/28/214814kynd8h4y2zdqh9qw.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EWsW7m6UEAE8Rl0.jpg</strong> (69.68 KB, 下载次数: 0)
+<strong>EWsW7m6UEAE8Rl0.jpg</strong> (69.68 KB, 下载次数: 1)
 
 下载附件
 
@@ -22756,7 +22757,7 @@ syl，发现阿b彩虹官号难波场底下都在求福冈场，彩虹女人什�
 <img src="https://img.saraba1st.com/forum/202004/28/215922clewz1qqom00wn1x.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-04-28 215903.png</strong> (48.05 KB, 下载次数: 0)
+<strong>批注 2020-04-28 215903.png</strong> (48.05 KB, 下载次数: 2)
 
 下载附件
 
@@ -22808,7 +22809,7 @@ syl，发现阿b彩虹官号难波场底下都在求福冈场，彩虹女人什�
 
 
 1.png
-(10.83 KB, 下载次数: 0)
+(10.83 KB, 下载次数: 1)
 
 
 
@@ -24289,7 +24290,7 @@ MK2是被外面那张大字报刺激到了？
 <img src="https://img.saraba1st.com/forum/202004/28/232224fa4r5rhy47phu7xm.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200428232053.png</strong> (307.34 KB, 下载次数: 1)
+<strong>QQ截图20200428232053.png</strong> (307.34 KB, 下载次数: 2)
 
 下载附件
 
@@ -25209,7 +25210,7 @@ syl我这种程度都要封的话，建议小博宇同葬
 
 
 68DB8C18-7134-481D-BD23-9E986CF2F327.jpeg
-(59.86 KB, 下载次数: 0)
+(59.86 KB, 下载次数: 1)
 
 
 
@@ -25238,7 +25239,7 @@ syl我这种程度都要封的话，建议小博宇同葬
 
 
 F377FF3C-7215-48AF-B998-F167521AB9EC.jpeg
-(21.98 KB, 下载次数: 0)
+(21.98 KB, 下载次数: 1)
 
 
 
@@ -25480,7 +25481,7 @@ nori pro又添新丁？<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 IMG_20200429_011945.jpg
-(338.01 KB, 下载次数: 0)
+(338.01 KB, 下载次数: 1)
 
 
 
@@ -25509,7 +25510,7 @@ IMG_20200429_011945.jpg
 
 
 IMG_20200429_012320.jpg
-(469.17 KB, 下载次数: 0)
+(469.17 KB, 下载次数: 1)
 
 
 
@@ -25610,7 +25611,7 @@ IMG_20200429_012320.jpg
 
 
 30543456624502-38-38-.jpg
-(66.37 KB, 下载次数: 1)
+(66.37 KB, 下载次数: 2)
 
 
 
@@ -25901,7 +25902,7 @@ ig这是移民美利坚了？
 <img src="https://img.saraba1st.com/forum/202004/29/072332gn35qv838i6xve8m.png" referrerpolicy="no-referrer">
 
 
-<strong>歌.png</strong> (82.59 KB, 下载次数: 0)
+<strong>歌.png</strong> (82.59 KB, 下载次数: 1)
 
 下载附件
 
@@ -26146,6 +26147,25 @@ aqua之前在收集棉花糖，说不定此地有伏兵
 
 做了个空妈现场合集
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 57042711| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -26737,7 +26757,7 @@ crew-1，杏星女粉+1。二二姐大失败，黑宝大胜利。</blockquote>
 <img src="https://img.saraba1st.com/forum/202004/29/095031i9as8d7yxiyqazpa.png" referrerpolicy="no-referrer">
 
 
-<strong>0 09-49-41-3533.png</strong> (15.66 KB, 下载次数: 0)
+<strong>0 09-49-41-3533.png</strong> (15.66 KB, 下载次数: 22)
 
 下载附件
 
@@ -26894,8 +26914,8 @@ from. ぽてとみかりん*
 
 
 
+ 本帖最后由 fjm 于 2020-4-29 10:10 编辑 
 
-_level0.str
 
 刚刷到首页偶然看见这一条，鸟神不会是看到了黑宝的呼唤而来的吧，黑鸟锁了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
@@ -26903,4 +26923,2189 @@ _level0.str
 
 
 
-   
+
+捕获.PNG
+(368.51 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-29 10:09 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/100953za1chbujpt3rjzs3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 11886#       发表于 2020-4-29 10:08
+
+
+
+
+《悲报：v综杏星产能或下滑至几月前水平》
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11887#       发表于 2020-4-29 10:10
+
+
+
+
+yysy，不仔细看我都看不见店长你在哪儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/101001oknwikkw42n55uxk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200429_100854_tv.danmaku.bili.jpg</strong> (793.34 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 10:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11888#       发表于 2020-4-29 10:14
+
+
+
+
+AZKI 4/29～5/6まで毎日配信、今日は🕘21:00～から！
+[https://twitter.com/AZKi_VDiVA/status/1255278227129536513](https://twitter.com/AZKi_VDiVA/status/1255278227129536513)
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 11889#       发表于 2020-4-29 10:15
+
+
+
+ 本帖最后由 noHentai 于 2020-4-29 10:21 编辑 
+
+看了一眼外面那楼，看来你区不看V的版主的意思是版规都是写着玩的，V区就是角斗场，他就想看V区坛友无限制PVP的乐子，顺便整点KPI<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11890#       发表于 2020-4-29 10:16
+
+
+
+
+这也是一种斗虫
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11891#       发表于 2020-4-29 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243415&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-29 10:15</a>
+
+看了一眼外面那楼，看来你区不看V的版主的意思是版规都是写着玩的，他就想看V区坛友无限制PVP的乐子，顺便 ...</blockquote>
+不不不，还是有底线的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你不能攻击crew，你看MK2攻击了crew就被关进去了。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 11892#       发表于 2020-4-29 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47242492&amp;ptid=1924531" target="_blank">ミオチュン 发表于 2020-4-29 08:44</a>
+
+https://twitter.com/Elliot_C_F/status/1255130889354240007
+
+早。</blockquote>
+好棒的氛围www
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 11893#       发表于 2020-4-29 10:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">V版人闹事拂了他的面子，那还能怎么办。版规是什么？一分钟能给你更新到2.0
+
+但是你真要我从黑屁一句封一年和屏蔽傻逼巨魔中二选一那我肯定选屏蔽巨魔
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11894#       发表于 2020-4-29 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243471&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-29 10:20</a>
+
+不不不，还是有底线的你不能攻击crew，你看MK2攻击了crew就被关进去了。 ...</blockquote>
+大伙儿说ntcrew的时候怎么没被封。crew版主怎么只逮着一只mk2图的啊。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11895#       发表于 2020-4-29 10:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243505&amp;ptid=1924531" target="_blank">erer 发表于 2020-4-29 10:22</a>
+
+大伙儿说ntcrew的时候怎么没被封。crew版主怎么只逮着一只mk2图的啊。</blockquote>
+树典型是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11896#       发表于 2020-4-29 10:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243518&amp;ptid=1924531" target="_blank">cckuku 发表于 2020-4-29 10:23</a>
+
+树典型是这样的</blockquote>
+杀鸡儆猴，可以可以。
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 11897#       发表于 2020-4-29 10:27
+
+
+
+
+好起来了，早上听听蛮不错的
+
+
+
+
+
+
+Screenshot_2020-04-29-10-23-38-549_com.google.android.youtube.jpg
+(782.04 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-4-29 10:25 上传
+
+
+
+
+
+
+
+
+1
+
+<img src="https://img.saraba1st.com/forum/202004/29/102527j1ldvpsldilxhx1l.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 11898#       发表于 2020-4-29 10:29
+
+
+
+
+现在虹还有什么记录是杏没破的吗？现在杏就是日本第一大箱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 11899#       发表于 2020-4-29 10:30
+
+
+
+
+「因为高强度皮肤护理所以这个时间才睡觉和节食期间去吃拉面一样矛盾吧💦」如果改成「因为高强度皮肤护理所以这个时间才睡觉和节食期间去吃拉面一样完全不矛盾吧🌟」就是年度名言了（
+
+
+有点好奇皮肤护理系是不是真的/如何用v展示护肤或美妆
+
+
+
+
+
+
+9D2550BA-8101-4403-8554-DF58746FC430.jpeg
+(55.56 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-29 10:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/102700avv9lvma3lvvm9ql.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11900#       发表于 2020-4-29 10:30
+
+
+
+
+单体、合作和箱总和的最大同接吧
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11901#       发表于 2020-4-29 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243542&amp;ptid=1924531" target="_blank">erer 发表于 2020-4-29 10:25</a>
+ 杀鸡儆猴，可以可以。</blockquote>
+erer老姐不要急，我说crew人上人，你可以转头就说这人在m楼说过话，是个傻逼天狗，不是crew<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">然后天狗再翻翻记录，说这个人又骂crew又骂咩咩，肯定是个孤儿杏仁。
+这一下大乱斗不就成了吗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 11902#       发表于 2020-4-29 10:32
+
+
+
+
+杏的同接还没摸到过7w吧
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 11903#       发表于 2020-4-29 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243589&amp;ptid=1924531" target="_blank">Suny08 发表于 2020-4-29 10:29</a>
+现在虹还有什么记录是杏没破的吗？现在杏就是日本第一大箱了吧</blockquote>
+人数<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+正经说的话，你虹明面数据剩下的纪录就是总同接和最高同接了
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 11904#       发表于 2020-4-29 10:33
+
+
+
+
+我倒是奇怪去年12月虹的sc为什么会那么高，因为两国吗？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11905#       发表于 2020-4-29 10:34
+
+
+
+
+杏星老姐出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11906#       发表于 2020-4-29 10:34
+
+
+
+
+萩原子荻还行，我看v这几个月见到的戏言id比过去几年都多
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11907#       发表于 2020-4-29 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243604&amp;ptid=1924531" target="_blank">null0304 发表于 2020-4-29 10:30</a>
+
+「因为高强度皮肤护理所以这个时间才睡觉和节食期间去吃拉面一样矛盾吧💦」如果改成「因为高强度皮肤护理所 ...</blockquote>
+记得在NGA看到过有关于V搞美妆的事，不过我也找不到了
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 11908#       发表于 2020-4-29 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243667&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-4-29 10:34</a>
+
+萩原子荻还行，我看v这几个月见到的戏言id比过去几年都多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">这是10多年前起的id，我现在是西尾黑
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 11909#       发表于 2020-4-29 10:37
+
+
+
+
+聊美妆的直播虹女倒是搞过，带图然后单纯评测这些化妆品的效用那样，V要实际和美妆博主一样试用就超出了V的界限了吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11910#       发表于 2020-4-29 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">现在疫情接奥运，两国这等级的场地到明年都借不到吧
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 11911#       发表于 2020-4-29 10:41
+
+
+
+
+我404ID是阿伊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 11912#       发表于 2020-4-29 10:42
+
+
+
+
+真正的版规：按版规举报、无许可群体行为同样要遭禁言<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0dfa3ae01d7932b079426be0540d4610/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 11913#       发表于 2020-4-29 10:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太乐了太乐了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11914#       发表于 2020-4-29 10:44
+
+
+
+ 本帖最后由 colodes 于 2020-4-29 10:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243247&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 10:01</a>
+
+ホロライブオーディション応募動画
+
+from. ぽてとみかりん*
+[https://youtu.be/cBgw2xCevUg](https://youtu.be/cBgw2xCevUg) ...</blockquote>
+已删除
+
+↓ 存档 投稿时间2019年7月3日
+[https://mega.nz/file/nn5hxBYB#la ... vA-HQN3gnYheZMYLgag](https://mega.nz/file/nn5hxBYB#laCTpLIsudSMQs1NUaJ525HjvA-HQN3gnYheZMYLgag)
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 11915#       发表于 2020-4-29 10:45
+
+
+
+
+喧嘩両成敗，好！
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 11916#       发表于 2020-4-29 10:46
+
+
+
+<blockquote>AloissiolA 发表于 2020-4-29 10:37
+聊美妆的直播虹女倒是搞过，带图然后单纯评测这些化妆品的效用那样，V要实际和美妆博主一样试用就超出了V的 ...</blockquote>
+如果是美妆特化的话，和美妆频道主跨界联动一下说不定意外的有趣（也可以绕过v的限制）
+
+虽然不一定有这样的机会……
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 11917#       发表于 2020-4-29 10:46
+
+
+
+
+击鼓鸣冤的被塞了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11918#       发表于 2020-4-29 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243247&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 10:01</a>
+
+ホロライブオーディション応募動画
+
+from. ぽてとみかりん*
+
+https://youtu.be/cBgw2xCevUg ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202004/29/104651b9kcykd1gcdvkkek.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200429104629.png</strong> (22.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 10:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 11919#       发表于 2020-4-29 10:47
+
+
+
+
+红a哥喜得八栋v综以来最大靠山——活的v号。
+
+
+不过你们真想让杏星老姐继续搁这聊就保持平常心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，否则就算是搞地元营业强行不弃号天天前呼后拥也不过是换个地方直播，完全没味儿了。
+
+
+不过昨天解释kaoru欠着的鹅我还是记着的，等我大号放出来再加吧。。。
+
+
+syl
+
+小野如果是真的话，是不是非玩票势最大牌的现役cv了？之前的几个不是dlsite职业就是cien大物，这位可是年年有活的哦
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 11920#       发表于 2020-4-29 10:48
+
+
+
+ 本帖最后由 敖轩 于 2020-4-29 10:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243683&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 10:35</a>
+
+记得在NGA看到过有关于V搞美妆的事，不过我也找不到了</blockquote>
+很早之前（v圈标准），有一个70w粉的美妆播主转vtuber的。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11921#       发表于 2020-4-29 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243814&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-4-29 10:46</a></blockquote>
+感觉还是被知情人放到公开列表上，而后其他人发现的可能性较大
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 11922#       发表于 2020-4-29 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243816&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 10:47</a>
+
+红a哥喜得八栋v综以来最大靠山——活的v号。
+
+
+不过你们真想让杏星老姐继续搁这聊就保持平常心，否则 ...</blockquote>
+三上那是玩票吗？
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11923#       发表于 2020-4-29 10:49
+
+
+
+ 本帖最后由 蒹葭公子 于 2020-4-29 10:52 编辑 
+
+不是，你们怎么老是纠结黑宝唯一男粉的事，我明明看过吉良小天使的，还是说看伪娘不算哦<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+syl
+
+想问问黑宝二期那位到底是女装男还是伪娘还是八美肉？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11924#       发表于 2020-4-29 10:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 只要喜欢男人就能得到和女V贴贴的机会吗？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11925#       发表于 2020-4-29 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243843&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 10:49</a>
+
+感觉还是被知情人放到公开列表上，而后其他人发现的可能性较大</blockquote>
+我也是倾向于这个应该是『意外泄漏』的推测观点
+
+但是刚才楼里有人扬言要再发其他人的视频 如果后续还有外泄那就不好说了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 11926#       发表于 2020-4-29 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243736&amp;ptid=1924531" target="_blank">winda 发表于 2020-4-29 10:40</a>
+现在疫情接奥运，两国这等级的场地到明年都借不到吧</blockquote>
+21年年初还是有的吧，疫情再严重也不可能严重到后半年了
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 11927#       发表于 2020-4-29 10:53
+
+
+
+ 本帖最后由 シナモンロール 于 2020-4-29 10:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243755&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-4-29 10:42</a>
+
+真正的版规：按版规举报、无许可群体行为同样要遭禁言</blockquote>
+殊不知外野比这naughty的多了去了，那么外野这种人就都是老逼了？我暂且蒙古。
+
+
+拿年龄压人，搞得好像觉得抱团就能搞事的只有小学生一样，md不抱团搞个p事，那叫送塔。
+
+
+说到底不就还是老害脾气，拉不下脸执法，总觉得参与进了v的争端自己就种姓跌落了，就要被自己的婆罗门朋友们耻笑了。
+
+
+可是你有没有想过，你要真的这么出淤泥而不染濯清涟而不妖，你当初干嘛批准v综呢？后来干嘛批准v区呢？
+
+
+“是勒夫给了钱我才开的”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+你管理一个网站，要么明令禁止一个话题，要么就尽到管理义务，不是在脑子里给话题分个三六九等，然后把自己因为犹犹豫豫瞻前顾后而开设的专楼专区视为对下等人的恩赐。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11928#       发表于 2020-4-29 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243851&amp;ptid=1924531" target="_blank">蒹葭公子 发表于 2020-4-29 10:49</a>
+不是，你们怎么老是纠结黑宝唯一男粉的事，我明明看过吉良小天使的，还是说看伪娘不算哦
+
+syl
+
+想问问 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 你看黑宝的态度就知道了，如果是女装男那就👍
+
+如果是八美肉就🙅
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 11929#       发表于 2020-4-29 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243878&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 10:51</a>
+
+只要喜欢男人就能得到和女V贴贴的机会吗？</blockquote>
+我最近一直在想，会不会红a哥实际上是反向八美肉
+
+
+也许，从一开始，我们的思考就出了偏差.......
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11930#       发表于 2020-4-29 10:55
+
+
+
+
+确实，V综带把的只有我一个。
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 11931#       发表于 2020-4-29 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243921&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 10:54</a>
+
+我最近一直在想，会不会红a哥实际上是反向八美肉
+
+
+也许，从一开始，我们的思考就出了偏差....... ...</blockquote>
+这个真的可以有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 11932#       发表于 2020-4-29 10:56
+
+
+
+
+不止性向连性别也要被操作真的太惨了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11933#       发表于 2020-4-29 10:56
+
+
+
+
+等一下，，，，，，那以后就不能说V综gay，该说V综腐了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11934#       发表于 2020-4-29 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243851&amp;ptid=1924531" target="_blank">蒹葭公子 发表于 2020-4-29 10:49</a>
+
+不是，你们怎么老是纠结黑宝唯一男粉的事，我明明看过吉良小天使的，还是说看伪娘不算哦
+
+syl
+
+想问问 ...</blockquote>
+二期？二期三人没有伪娘啊？你说三期的薰？还没播谁知道啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 11935#       发表于 2020-4-29 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243808&amp;ptid=1924531" target="_blank">null0304 发表于 2020-4-29 10:46</a>
+如果是美妆特化的话，和美妆频道主跨界联动一下说不定意外的有趣（也可以绕过v的限制）
+
+虽然不一定有这样 ...</blockquote>
+但和美妆博主联动也是只能语音评测没法试用吧，除非叫个staff帮忙。
+
+现在这么说也是因为还没出道，期待出道之后能搞点不一样的。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 11936#       发表于 2020-4-29 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243904&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 10:53</a>
+
+殊不知外野比这naughty的多了去了，那么外野这种人就都是捞逼了？我暂且蒙古。
+
+
+拿年龄压人，搞得好像觉 ...</blockquote>
+如果有nga纯良追求自由来s1，就用这个赶回去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11937#       发表于 2020-4-29 10:57
+
+
+
+
+你们，要夺走黑宝最重要的东西了吗。
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 11938#       发表于 2020-4-29 10:57
+
+
+
+
+你们够了，我相信黑宝是给
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11939#       发表于 2020-4-29 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243946&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 10:56</a>
+
+二期？二期三人没有伪娘啊？你说三期的薰？还没播谁知道啊</blockquote>
+好吧三期……
+
+看来我果然算不上粉，都没搞清楚人是第几期……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+总之先去404订阅了，看了初配信再决定推不推吧……
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 11940#       发表于 2020-4-29 10:58
+
+
+
+
+2k是JK、楼主也是JK、尾宝是yhm、黑宝是反向八美肉，V综本质上是一群小女生的午后茶话会<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11941#       发表于 2020-4-29 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">喜欢男人就算gay了，那我觉得尾巴哥是个好人,我也是gay了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11942#       发表于 2020-4-29 10:58
+
+
+
+
+你们怎么连我女扮男装的假说都弄出来了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 11943#       发表于 2020-4-29 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">八美肉确实不行啊。只是套了个女性皮，说话方式语气还是男人，让人怎么接受。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11944#       发表于 2020-4-29 10:59
+
+
+
+
+你们难道连黑宝的性取向都要夺走吗？<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11945#       发表于 2020-4-29 11:00
+
+
+
+
+u1s1喜欢伪娘不算gay<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 11946#       发表于 2020-4-29 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243965&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-4-29 10:58</a>
+
+2k是JK、楼主也是JK、尾宝是yhm、黑宝是反向八美肉，V综本质上是一群小女生的午后茶话会 ...</blockquote>
+我啥时候多出来的yhm设定
+
+
+倒是免费，在漫区国栋对宅社性别歧视重拳出击，把账号借给女性朋友玩，崇拜追音乐梦的v
+
+
+这么一看像不像一个自己追不了梦就把梦托付给别人的新时代女性？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+只是如果free是女的为什么大号会给md2加鹅我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11947#       发表于 2020-4-29 11:01
+
+
+
+
+我真TM服了，NGA好歹可以发语音，S1连语音都发不了，自证清白都不行<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 11948#       发表于 2020-4-29 11:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发语音不会讲你是变声器吗，天真！
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 11949#       发表于 2020-4-29 11:02
+
+
+
+
+S1可以发自拍
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11950#       发表于 2020-4-29 11:02
+
+
+
+
+没想到黑宝已经有了可以帮忙录音的男朋友了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 11951#       发表于 2020-4-29 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243946&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-4-29 10:56</a>
+
+二期？二期三人没有伪娘啊？你说三期的薰？还没播谁知道啊</blockquote>
+吉良明显说的是kira。。。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11952#       发表于 2020-4-29 11:03
+
+
+
+
+照片也可以是别人的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11953#       发表于 2020-4-29 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244024&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-29 11:02</a>
+
+S1可以发自拍</blockquote>
+建议黑宝火暴区出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 11954#       发表于 2020-4-29 11:03
+
+
+
+
+难道黑宝只能用牛子照片了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 11955#       发表于 2020-4-29 11:03
+
+
+
+
+好起来了，开始琢磨楼友爆照环节了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 11956#       发表于 2020-4-29 11:04
+
+
+
+
+黑宝都有男朋友了，本噶吃要疯了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11957#       发表于 2020-4-29 11:04
+
+
+
+
+你楼还有一个做人姐虽然是个叶师粉但是好像也看杏星。
+
+
+感谢杏星为调整你楼性别比例做出的贡献，正道的光，照在了V综里。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 11958#       发表于 2020-4-29 11:04
+
+
+
+
+丧心病狂，我为黑宝大哭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 11959#       发表于 2020-4-29 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244001&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 11:01</a>
+
+我啥时候多出来的yhm设定
+
+
+倒是免费，在漫区国栋对宅社性别歧视重拳出击，把账号借给女性朋友玩，崇拜追音 ...</blockquote>
+上次你说你啥电子产品用不太来的时候加的设定，yhm电子产品使用水平都不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">(远坂凛
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11960#       发表于 2020-4-29 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244039&amp;ptid=1924531" target="_blank">forzen 发表于 2020-4-29 11:03</a>
+
+吉良明显说的是kira。。。</blockquote>
+不，我说的就是薰，kira我有推啊，他是什么情况我清楚……
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 11961#       发表于 2020-4-29 11:04
+
+
+
+
+黑宝：欲加之罪何患无辞
+
+莫须有莫须有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 11962#       发表于 2020-4-29 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244027&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 11:02</a>
+
+没想到黑宝已经有了可以帮忙录音的男朋友了</blockquote>
+红届男，我青结
+
+
+syl
+
+2000你被cold老哥挖出来的那个早就被你楼作为出柜宣言了，大家不调戏你是对已经实锤的楼友的性向表达基本的尊重啊
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 11963#       发表于 2020-4-29 11:04
+
+
+
+
+那不如直接开直播吧
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11964#       发表于 2020-4-29 11:04
+
+
+
+
+黑宝一定是强气攻，
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11965#       发表于 2020-4-29 11:05
+
+
+
+
+开直播！开直播！
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11966#       发表于 2020-4-29 11:05
+
+
+
+
+建议黑宝加入holostarcn<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 11967#       发表于 2020-4-29 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说free，V综是不是很久没有车轱辘歌力了。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11968#       发表于 2020-4-29 11:06
+
+
+
+
+直播看黑宝对木口星发情，
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11969#       发表于 2020-4-29 11:06
+
+
+
+
+那2000你是病娇受？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 11970#       发表于 2020-4-29 11:07
+
+
+
+
+已经开始讨论攻受了，V综真变腐楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11971#       发表于 2020-4-29 11:07
+
+
+
+
+你们都疯了！！！<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11972#       发表于 2020-4-29 11:08
+
+
+
+
+空妈有一期SHISEIDO粉底的工商。其实只要可爱就行了，糙汉子又不懂化妆<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 11973#       发表于 2020-4-29 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草 你们这么想看黑宝 我怀疑你们才是给
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 11974#       发表于 2020-4-29 11:08
+
+
+
+
+2000不是才跟葵组组长砖佬贴过吗？
+
+这么快就忘了他的性取向？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 11975#       发表于 2020-4-29 11:09
+
+
+
+
+不要给楼友添加属性了，求求你们了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">，连VTB的粉丝都要变的这么V吗
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 11976#       发表于 2020-4-29 11:09
+
+
+
+
+昨天小博禹说头像不是处女的是我吗？最近没关注这边
+
+不过素晴我还是知道的，crew没少碰瓷水之女神呢
+
+说实话我真不知道aquamarine是海蓝宝石，但即使我知道我也会水一发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 11977#       发表于 2020-4-29 11:09
+
+
+
+
+开了个会出来一看：你们不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 11978#       发表于 2020-4-29 11:09
+
+
+
+
+说到美妆，清龙人25的第一夫人解散后就在油 管当美妆博主，人气还挺高的，订阅快30w了
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 11979#       发表于 2020-4-29 11:11
+
+
+
+
+免费老哥不开这头一般大家都不爱车歌力吧
+
+一般不都默认跟管人寻求歌力是不是哪里有问题么
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 11980#       发表于 2020-4-29 11:11
+
+
+
+
+那么喜欢反向八美肉的算给吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11981#       发表于 2020-4-29 11:11
+
+
+
+
+你们太虚无了，来点管人浓度：
+
+
+推上杏星三期那个伪娘薰的FA怎么那么多了已经<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11982#       发表于 2020-4-29 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244171&amp;ptid=1924531" target="_blank">yinoh 发表于 2020-04-29 11:09:18</a>
+开了个会出来一看：你们不对劲</blockquote>为什么还有别人在开会，都是青年节活动吗，我们还顺带强调网 络 安 全，在单位不能ke学404
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11983#       发表于 2020-4-29 11:11
+
+
+
+
+只要gay起来就不会有纷争了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 11984#       发表于 2020-4-29 11:11
+
+
+
+
+我觉得可以拉几个腐女老姐来围观v宗了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 11985#       发表于 2020-4-29 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47243965&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-4-29 10:58</a>
+
+2k是JK、楼主也是JK、尾宝是yhm、黑宝是反向八美肉，V综本质上是一群小女生的午后茶话会 ...</blockquote>
+V综就是hololive
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 11986#       发表于 2020-4-29 11:11
+
+
+
+
+喜欢男扮女装算不算给当然看你知不知道真相啊
+
+不知道的话就算事实上你没给心理上也给了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11987#       发表于 2020-4-29 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244158&amp;ptid=1924531" target="_blank">蒹葭公子 发表于 2020-4-29 11:08</a>
+
+2000不是才跟葵组组长砖佬贴过吗？
+
+这么快就忘了他的性取向？</blockquote>
+板砖佬不是葵组组长啊。
+
+syl，这样让我更加确信2000是病娇受了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11988#       发表于 2020-4-29 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47244204&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 11:11</a>
+
+你们太虚无了，来点管人浓度：
+
+
+推上杏星三期那个伪娘薰的FA怎么那么多了已经 ...</blockquote>
+皮好看+话题度高啊，理解理解。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 11989#       发表于 2020-4-29 11:12
+
+
+
+
+伪娘比起真yhm可是别有一番韵味的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 11990#       发表于 2020-4-29 11:14
+
+
+
+
+以喷代撩，装gay骗炮。我觉得你们是在觊觎女楼友身子。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11991#       发表于 2020-4-29 11:14
+
+
+
+
+黑宝看到女装木口星获得了最多关注，要为正统男人鸣不平了，黑宝化身为👹
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11992#       发表于 2020-4-29 11:14
+
+
+
+
+确实，2000当二二跟屁虫好几天了。
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 11993#       发表于 2020-4-29 11:15
+
+
+
+
+本来还想着薰是不是伪音女装男，结果刚翻到了这条回复。没事，就算100%男声性格可爱我也会看的<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+1.jpg
+(147.56 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-29 11:13 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/111347l0v4m0imey5illyu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11994#       发表于 2020-4-29 11:16
+
+
+
+
+我懂了，黑宝是匂宫出梦
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 11995#       发表于 2020-4-29 11:16
+
+
+
+
+那就是说2k在觊觎erer姐身子？你起码去看看夸皇吧，不然怎么泡女楼友啊
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 11996#       发表于 2020-4-29 11:16
+
+
+
+
+该不会真有人不喜欢伪娘吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就冲这个伪娘大姐姐皮，我也可以去康康杏星
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 11997#       发表于 2020-4-29 11:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">谢谢你，杏星，给v综带来了短暂的和平。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11998#       发表于 2020-4-29 11:17
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-4-29 11:19 编辑 
+
+我是个锤子あくま<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">需要我成为恶魔的时候只有万不得已之时
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 11999#       发表于 2020-4-29 11:18
+
+
+
+
+我认为是中性声线，要了这个皮肯定不会是纯男音的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12000#       发表于 2020-4-29 11:18
+
+
+
+
+又想要女粉来V综又想要KPI？我提供一个可行的思路：
+
+
+分别介绍一个叶师和葛叶的女唯粉来V综<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
