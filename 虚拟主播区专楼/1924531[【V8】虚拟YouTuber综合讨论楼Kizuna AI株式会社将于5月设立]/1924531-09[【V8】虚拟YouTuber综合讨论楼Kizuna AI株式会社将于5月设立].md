@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 22:06** 
+> ## **本文件最后更新于2020-04-30 00:05** 
 
 
 
@@ -15136,4 +15136,4934 @@ zsyx，你怎么这么会公开处刑你的观众啊？
 
 
 
-                      
+
+
+-----
+
+####  TRW  
+##### 12819#       发表于 2020-4-29 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快来个解读
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12820#       发表于 2020-4-29 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 故意撞车大天使亏圣，我替erer姐贵有梁木了
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 12821#       发表于 2020-4-29 22:06
+
+
+
+
+我最先听的还是yuni的翻唱，后听的大天使的，当时就觉得大天使好像唱的不太行，虽然确实挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 12822#       发表于 2020-4-29 22:07
+
+
+
+
+难道不是葵皇寻求外社支持？
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12823#       发表于 2020-4-29 22:07
+
+
+
+
+开始看苔苔，话说之前那谁说信姬要转生诺里欧普罗是胡咧还是真的？
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 12824#       发表于 2020-4-29 22:07
+
+
+
+
+阿葵被gaku拉着玩了pcr，我是一点梁木都没有啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12825#       发表于 2020-4-29 22:07
+
+
+
+
+一晚上就乐子人看了个爽，宫斗术有了，梁木长了，还顺便又能斗一斗虫，抨击一下彩虹，再来还能说一下底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12826#       发表于 2020-4-29 22:07
+
+
+
+
+《驱虎吞狼》
+
+syl mahi这边是爱园，这自我介绍太快没听清<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12827#       发表于 2020-4-29 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大天使那次请了全社人助威呢，这次阿葵会有朋友吗。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12828#       发表于 2020-4-29 22:09
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-4-29 22:11 编辑 
+
+有没有人分析一下这个选曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+编辑了
+
+syl我已经不是叶队了，叶师pubg现在太菜逼了没意思
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 12829#       发表于 2020-4-29 22:09
+
+
+
+
+阿葵自己做的pv必秒吸血大天使好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 12830#       发表于 2020-4-29 22:09
+
+
+
+
+唱同一首歌根据**推送还能涨点播放量呢，为啥要有梁木
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 12831#       发表于 2020-4-29 22:09
+
+
+
+ 本帖最后由 yuandi20 于 2020-4-29 22:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252367&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:07</a>
+
+开始看苔苔，话说之前那谁说信姬要转生诺里欧普罗是胡咧还是真的？</blockquote>
+更感觉是介于客套话和明示之间的样子，怎么理解都可以。不过现在讨论这个还太早了，小野从准备好皮和帐号到最后正式出道等了差不多一年，v圈什么事都可能发生的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12832#       发表于 2020-4-29 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">难道是葵皇为了报复冷落西西的大天使，故意出这招吗？葵西贴贴
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 12833#       发表于 2020-4-29 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252404&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-04-29 22:09:55</a>
+唱同一首歌根据**推送还能涨点播放量呢，为啥要有梁木</blockquote>大概因为谁唱的不行谁尴尬吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12834#       发表于 2020-4-29 22:11
+
+
+
+
+LIZ昨天刚唱，然后近期萌实唱过
+
+我懂了，这个是吹响订阅超过萌实的号角，只差4000临门一脚了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12835#       发表于 2020-4-29 22:11
+
+
+
+
+大天使30w时下的挑战书都没回收成功<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知是不是请社外人员翻车了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12836#       发表于 2020-4-29 22:12
+
+
+
+
+葵皇自制PV棋高一着<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12837#       发表于 2020-4-29 22:12
+
+
+
+
+这俩唱罗密欧灰姑娘都不太行
+
+当然我苔更拉一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 12838#       发表于 2020-4-29 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是西西拒绝跟阿夸连线，明明就是关西JK杯葛大天使
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 12839#       发表于 2020-4-29 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252410&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-4-29 22:11</a>
+
+大概因为谁唱的不行谁尴尬吧
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+我是游戏民，V打得菜会很气。歌的话就随便了，属于看人不看歌力的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12840#       发表于 2020-4-29 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">crew不用担心，阿葵歌力比大天使还要拉跨，订阅比不过，点击量估计也要被被杀，阿葵这波是自取其辱（2000别杀我）
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12841#       发表于 2020-4-29 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252367&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:07</a>
+
+开始看苔苔，话说之前那谁说信姬要转生诺里欧普罗是胡咧还是真的？</blockquote>
+我没说啊，海苔男可是明确说不会转生海苔坡的。她意思就是暂时不会加新人。
+
+
+只不过转生本身是个很简单的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要是实在有疑惑可以上个会员听一下嘛。才500
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 12842#       发表于 2020-4-29 22:14
+
+
+
+
+看虹都能看出杏的权利变更真是不易
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12843#       发表于 2020-4-29 22:14
+
+
+
+
+现在公布了就说了，其实1个月前阿葵就决定唱这个了，这次专门为细细撑腰是断不可能（老实人）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，虽然阿葵和细细关系是不错的，葵西yysd。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12844#       发表于 2020-4-29 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252433&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-29 22:13</a>
+
+crew不用担心，阿葵歌力比大天使还要拉跨，订阅比不过，点击量估计也要被被杀，阿葵这波是自取其辱 ...</blockquote>
+两千暗自窃喜呢
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12845#       发表于 2020-4-29 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252436&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-29 22:13</a>
+我没说啊，海苔男可是明确说不会转生海苔坡的。她意思就是暂时不会加新人。
+
+
+只不过转生本身是个很简单的 ...</blockquote>
+等她下次哭就上
+
+话说之前去看了你推荐的70万礼物
+
+.......
+
+给老娘送贵礼物虽然很好，但反反复复重复花了70万实在是太功利了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 12846#       发表于 2020-4-29 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252325&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 22:02</a>
+
+我还说是黑客拒绝了葵皇的逆凸去了撇撇那那里呢，</blockquote>
+本来想反驳一下的
+
+但是能从这个角度恶心到2000哥也是好事一件，那就当是这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+谢谢你，黑客（）
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12847#       发表于 2020-4-29 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252445&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-4-29 22:14</a>
+
+两千暗自窃喜呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer"> 你在楼里种植我不是葵熊的梁木是何居心？
+
+
+syl
+[https://www.youtube.com/watch?v=KcpX00ag8U8](https://www.youtube.com/watch?v=KcpX00ag8U8)
+
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12848#       发表于 2020-4-29 22:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/221645v6gznri2ib9zrbt6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (3.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 22:16 上传
+
+
+
+
+
+
+阿葵自制pv leile leile
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12849#       发表于 2020-4-29 22:18
+
+
+
+
+Inst/Mix:ハイカラサウンド様
+
+@highkarasound
+
+
+mix 居然是这位
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12850#       发表于 2020-4-29 22:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/221923d1q6p0zgi6x611f1.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200429221845.png</strong> (575.63 KB, 下载次数: 2)
+
+下载附件
+
+2020-4-29 22:19 上传
+
+
+
+
+
+
+
+哈哈哈，完美自嘲
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12851#       发表于 2020-4-29 22:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看楼云楼一遍葵桑凸待，还挺有趣。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12852#       发表于 2020-4-29 22:19
+
+
+
+
+看到了噗酱、夜见、尊妈和德比
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12853#       发表于 2020-4-29 22:20
+
+
+
+ 本帖最后由 poipanchao 于 2020-4-29 22:22 编辑 
+
+唱的怎么样咱先不论
+
+这PV做的是真的好
+
+
+尊妈debi夜见釜山
+
+王女狗狗老师阿菜
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12854#       发表于 2020-4-29 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252455&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:15</a>
+
+等她下次哭就上
+
+
+话说之前去看了你推荐的70万礼物</blockquote>
+不要那么梁木，她花的自己的钱随便怎么花不就完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那场直播打的钱还没70w呢
+
+
+
+
+syl，海苔男爆料说magnet是大亏哥找她录的。
+
+怎么看待大亏哥在自己还没那么高人气，而且meaqua营业如火如荼的时候，在自己频道的第一首翻唱选择了找海苔男唱magnet
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12855#       发表于 2020-4-29 22:21
+
+
+
+ 本帖最后由 tiro_finale 于 2020-4-29 22:23 编辑 
+
+这阵容也不差啊
+
+补图
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/222330emr8dp8hmuzdikuc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>hima.jpg</strong> (232.47 KB, 下载次数: 2)
+
+下载附件
+
+2020-4-29 22:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12856#       发表于 2020-4-29 22:21
+
+
+
+
+第二波是明治、郡道、皇女和inui
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12857#       发表于 2020-4-29 22:21
+
+
+
+
+这个动画都快能赶上原pv了，阿葵的技术水平确实越来越高
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12858#       发表于 2020-4-29 22:22
+
+
+
+ 本帖最后由 头上一板砖 于 2020-4-29 22:34 编辑 
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202004/29/223343jkekdn2reyf5wl7w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (86.55 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 22:33 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/223416km6rpt00sgypmepp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (64.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 22:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/223359m2ipbousxetieb3e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7.jpg</strong> (94.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 22:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12859#       发表于 2020-4-29 22:24
+
+
+
+
+mahi和mugi的莉莉争夺战结束
+
+大轴是空露露<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12860#       发表于 2020-4-29 22:24
+
+
+
+
+出大事了
+
+露露去撇撇那边凸了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12861#       发表于 2020-4-29 22:24
+
+
+
+
+bsyl，待会儿海苔男唱一番の宝物的时候必然要边唱边哭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尾巴哥不要被我抓到你没上会员好吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12862#       发表于 2020-4-29 22:25
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1geb06lgx5oj20jv0b613v.jpg" referrerpolicy="no-referrer">
+
+
+这个面子还是给了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12863#       发表于 2020-4-29 22:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/222511h1gf0uzfvdgbgeqs.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (828.46 KB, 下载次数: 2)
+
+下载附件
+
+2020-4-29 22:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 12864#       发表于 2020-4-29 22:26
+
+
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12865#       发表于 2020-4-29 22:26
+
+
+
+<img src="https://ftp.bmp.ovh/imgs/2020/04/7471f145d86d4ecd.jpeg" referrerpolicy="no-referrer">
+
+
+开门见山的kzh《牌面》
+
+<img src="https://ftp.bmp.ovh/imgs/2020/04/7eb095c211a0a0e6.jpeg" referrerpolicy="no-referrer">
+
+
+《导购小姐》
+
+<img src="https://ftp.bmp.ovh/imgs/2020/04/31049a691876b756.jpeg" referrerpolicy="no-referrer">
+
+
+《局外人》
+
+
+简单repo一下，活动应该是结束了，没什么太特殊的东西，只想吐槽一句外文书店这一间a店真滴小哦。你juan也没啥排面，实质就一两个架子吧，一个还是木口老货
+
+
+总之转了两圈就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 12866#       发表于 2020-4-29 22:26
+
+
+
+
+虽然但是，这不是nana画的素材丰富的功劳吗
+
+ナナヲアカリ的pv风格其实都是挺简单的结合阿
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12867#       发表于 2020-4-29 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252524&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-4-29 22:22</a>
+
+可爱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 官号什么时候能发啊，
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12868#       发表于 2020-4-29 22:27
+
+
+
+
+这一晚的虹权力变更也太激烈了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12869#       发表于 2020-4-29 22:27
+
+
+
+
+看到阿葵有这么多朋友，2000现在已经感动到哭了，谢谢你，阿葵
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12870#       发表于 2020-4-29 22:27
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-4-29 22:29 编辑 
+
+太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+syl，阿葵这是把半年后彩虹爆炸的再就业途径找好了吗
+
+田角，你这个王八
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12871#       发表于 2020-4-29 22:28
+
+
+
+
+也没啥给不给的，哟露还是非常好说话的，两个人之间又没什么深仇大恨，单纯作为同期不熟而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+我第七喜欢的levi和她的同期也一样不咋熟<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 12872#       发表于 2020-4-29 22:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/222750kau7qquh88ha4286.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200429222734.png</strong> (39.48 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 22:27 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/222805kft8enzdde5tcc5m.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200429222740.png</strong> (35.71 KB, 下载次数: 1)
+
+下载附件
+
+2020-4-29 22:28 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000| + 2|祝你在木口live一帆风顺|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 12873#       发表于 2020-4-29 22:28
+
+
+
+
+脖子，我的脖子<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Golubaya  
+##### 12874#       发表于 2020-4-29 22:28
+
+
+
+
+这张图居然成为了现实，是特异点吗<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 來自 Xiaomi MI MAX 2, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12875#       发表于 2020-4-29 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252591&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-4-29 22:27</a>
+
+看到阿葵有这么多朋友，2000现在已经感动到哭了，谢谢你，阿葵</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 和大天使那种全社宠幸没法比，，八个朋友我已经很满足了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12876#       发表于 2020-4-29 22:29
+
+
+
+
+你楼原来喜欢车轱辘的 歌力批判呢？歌力批判呢！歌力批判呢！？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12877#       发表于 2020-4-29 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252570&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:26</a>
+
+开门见山的kzh《牌面》</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我的脖子。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12878#       发表于 2020-4-29 22:30
+
+
+
+
+跟朋友唱K有什么可批判的，难道还要说你唱的太烂下次唱K不带你
+
+
+值得批判的最低得从空妈这个水平开始吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12879#       发表于 2020-4-29 22:30
+
+
+
+
+听完彩虹的歌欢迎来听听杏仁的弹唱（伴奏）歌回：
+
+[https://www.bilibili.com/video/BV16f4y1S7hK](https://www.bilibili.com/video/BV16f4y1S7hK)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 57042711| + 1|神回！|
+| Viden| + 1|这几天的游戏伴奏|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12880#       发表于 2020-4-29 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252611&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 22:29</a>
+
+你楼原来喜欢车轱辘的 歌力批判呢？歌力批判呢！歌力批判呢！？</blockquote>
+我本来想批判歌力的，但阿葵实在是太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12881#       发表于 2020-4-29 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252599&amp;ptid=1924531" target="_blank">口苗口苗口 发表于 2020-4-29 22:28</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+“你一定过的很好吧，我和阿笹最近过的也挺好的，”
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12882#       发表于 2020-4-29 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252611&amp;ptid=1924531" target="_blank">colodes 发表于 2020-4-29 22:29</a>
+
+你楼原来喜欢车轱辘的 歌力批判呢？歌力批判呢！歌力批判呢！？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对于阿葵这种天使是不用在意这种小事情的（毕竟已经车过阿葵几万次了）
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12883#       发表于 2020-4-29 22:31
+
+
+
+ 本帖最后由 头上一板砖 于 2020-4-29 22:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252577&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 22:26</a>
+
+官号什么时候能发啊，</blockquote>
+编辑，不发日文的，直接上官中版本<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 12884#       发表于 2020-4-29 22:32
+
+
+
+
+虽然佐贺鸽了一个月，但是看这质量可以啊
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 12885#       发表于 2020-4-29 22:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">静音后同步放原曲就很棒
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 12886#       发表于 2020-4-29 22:32
+
+
+
+
+插播一条消息。星街的《佐贺事变》将于5月下旬发布，pv由bilibili星街彗星字幕组制作。预告已释出。
+
+https://twitter.com/suisei_hosimati/status/1255502956415397888?s=19
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12887#       发表于 2020-4-29 22:33
+
+
+
+
+我还是想说小天使才是杏全社宠爱，生日祝贺明面上只有486，摸余，巧可，aki，小肥妹，三才和阿火没参加。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12888#       发表于 2020-4-29 22:34
+
+
+
+
+这种口水歌有什么好批判的，倒是夸皇那翻唱404二百万再生，b站50万，让我产生了b小将音乐鉴赏水平还高一点的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12889#       发表于 2020-4-29 22:34
+
+
+
+
+太可爱了以至于我对这首歌的梁木都没了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12890#       发表于 2020-4-29 22:35
+
+
+
+
+绝了，楼友一晚全变纯良，葵皇永远滴天使
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12891#       发表于 2020-4-29 22:35
+
+
+
+
+大亏bili播放不行难道不是因为已经有mea的版本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12892#       发表于 2020-4-29 22:35
+
+
+
+
+其实做这个pv还是蛮简单的，论难度学一两天ae就行，不过确实有心了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+突然想发散一下，n站现在虽然不行了，不过不少静止系mad和pv爱好者还是愿意在那优先甚至单独投稿，而油管上不少辣鸡剪辑却动辄几十几百万播放量，纯度比阿b还不如
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12893#       发表于 2020-4-29 22:36
+
+
+
+
+葵皇逆凸投歌，mahi凸待完也要发原创曲<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+mahimahi.png
+(558.62 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-29 22:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/223519g7ef377uu77o271i.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12894#       发表于 2020-4-29 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 葵皇批站发这个歌不会被天狗和crew冲烂吧，
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12895#       发表于 2020-4-29 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我记得夸夸好像就没有一个视频播放量特别高的吧，最高的好像是那个睡过头了。还是因为夏哥玩了这个梗助推了一波。丢人 crew 丢人。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12896#       发表于 2020-4-29 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252649&amp;ptid=1924531" target="_blank">6二三 发表于 2020-4-29 22:32</a>
+
+插播一条消息。星街的《佐贺事变》将于5月下旬发布，pv由bilibili星街彗星字幕组制作。预告已释出。
+
+
+https ...</blockquote>
+做PV的这位：
+
+[https://space.bilibili.com/36774154/dynamic](https://space.bilibili.com/36774154/dynamic)
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12897#       发表于 2020-4-29 22:37
+
+
+
+
+真就是工具人字幕组，再过一段时间是不是直接连油 管那边的运营都可以交给阿B这边做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过字幕组是不会在乎这些的，若不是真爱，谁会干这些活呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12898#       发表于 2020-4-29 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252689&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-04-29 22:37:33</a>
+葵皇批站发这个歌不会被天狗和crew冲烂吧，</blockquote>之前只狼火的时候，我随便打开一个打的比圣皇好一万倍的速杀视频都能看到crew云玩家在碰瓷，你觉得呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12899#       发表于 2020-4-29 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252693&amp;ptid=1924531" target="_blank">erer 发表于 2020-4-29 22:37</a>
+
+我记得夸夸好像就没有一个视频播放量特别高的吧，最高的好像是那个睡过头了。还是因为夏哥玩了这个 ...</blockquote>
+holo的所有视频里除了holo摇就是阿夸的这首废柴天使播放高，都280万了，本质全社捧场
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12900#       发表于 2020-4-29 22:38
+
+
+
+
+2000这是什么想法，杞忧民都不能概括了，你得有兔皇在B那种炎上才会发生这种情况吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 12901#       发表于 2020-4-29 22:39
+
+
+
+
+阿夸那首废天使直接被b站推送吃了，这个月刚刚恢复。这首30W之前还是b比404高的
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 12902#       发表于 2020-4-29 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252694&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 22:37</a>
+做PV的这位：
+
+
+https://space.bilibili.com/36774154/dynamic</blockquote>
+老赵，永远滴神。
+
+ps:这家伙红莲华那个pv实在是顶
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12903#       发表于 2020-4-29 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252658&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:34</a>
+
+太可爱了以至于我对这首歌的梁木都没了</blockquote>
+信姬乱唱成那个样子了还能可爱的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">尾巴哥你怎么回事
+
+
+
+syl，bili字幕组都不是第一次反向输出了，有啥好大惊小怪的
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 12904#       发表于 2020-4-29 22:40
+
+
+
+
+V界AE神触ranking有定论了
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12905#       发表于 2020-4-29 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252689&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 22:37</a>
+
+葵皇批站发这个歌不会被天狗和crew冲烂吧，</blockquote>
+那不至于，唱这歌的多了去了，拿这个开的话实属烂开。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12906#       发表于 2020-4-29 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252706&amp;ptid=1924531" target="_blank">free 发表于 2020-4-29 22:38</a>
+
+holo的所有视频里除了holo摇就是阿夸的这首废柴天使播放高，都280万了，本质全社捧场 ...</blockquote>
+我说的b站（捂脸）
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12907#       发表于 2020-4-29 22:40
+
+
+
+
+主要是在兔皇字幕组后，感觉上就有点奇怪了，大概梁木也长起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 12908#       发表于 2020-4-29 22:42
+
+
+
+
+Crew哪有那么狠啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12909#       发表于 2020-4-29 22:42
+
+
+
+ 本帖最后由 AloissiolA 于 2020-4-29 22:48 编辑 
+
+说起来，之前在nico看到个统计了彩虹所有百万以上播放视频的（sm36737921），刨除剑盾、ark战争这种百万的录像总共有三十五个，还有四五个已经九十多万了在百万路上。有没有人统计过杏的百万？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12910#       发表于 2020-4-29 22:43
+
+
+
+
+不过holo摇这辣鸡口水歌b站也快300万播放了，大家都是模因控制下的躯壳，也不用谁比谁了  <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12911#       发表于 2020-4-29 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先给crew道歉了，撞了大天使的歌真不好意思，大天使唱歌最好听！
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12912#       发表于 2020-4-29 22:43
+
+
+
+
+葵从忍者棒棒开始，视频制作力不断进化，还给同事做了好多东西
+
+近的就有ark新图pv，老师的ed，现在的歌
+
+技术力已经不用多说什么了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12913#       发表于 2020-4-29 22:43
+
+
+
+
+说到反向输出，hololive moments都快银盾了。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12914#       发表于 2020-4-29 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252714&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-29 22:39</a>
+信姬乱唱成那个样子了还能可爱的吗尾巴哥你怎么回事</blockquote>
+我切过去看葵皇废柴天使啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这俩确实拉，但同行一衬托，信姬就还凑合了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12915#       发表于 2020-4-29 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252754&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 22:43</a>
+
+我先给crew道歉了，撞了大天使的歌真不好意思，大天使唱歌最好听！</blockquote>
+好的，我接受你的道歉了。下次别被我看到你说阿夸唱歌难听。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 12916#       发表于 2020-4-29 22:45
+
+
+
+
+我看有些v还要花钱请剪辑，建议直接b站白嫖个字幕组给当工具人挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12917#       发表于 2020-4-29 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252745&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-4-29 22:42</a>
+Crew哪有那么狠啊</blockquote>
+太甜了你也<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 12918#       发表于 2020-4-29 22:45
+
+
+
+
+不也挺好吗，v自己省了pv制作费，字幕组得到舔到了的优越感，双赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12919#       发表于 2020-4-29 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252759&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:44</a>
+
+我切过去看葵皇废柴天使啊
+
+
+这俩确实拉，但同行一衬托，信姬就还凑合了 ...</blockquote>
+是我错怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+信姬唱歌还是行的，跟海苔男那是差远了，只不过今天好多歌本来就不熟吧
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12920#       发表于 2020-4-29 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252756&amp;ptid=1924531" target="_blank">poipanchao 发表于 2020-4-29 22:43</a>
+
+葵从忍者棒棒开始，视频制作力不断进化，还给同事做了好多东西
+
+近的就有ark新图pv，老师的ed，现在的歌
+
+技 ...</blockquote>
+毕竟ickr社内没有什么后期制作的人手，实质工具人，但阿葵也提过自己如果退休会选择的工作就是视频编辑制作这一类的，也从中找到了快乐，投入的热情肯定比其他人多。有些看起来可能ae稍微做做的其实也很费功夫的，就比如现在直播开头那个洗手漱口的片头，细节就很多<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12921#       发表于 2020-4-29 22:46
+
+
+
+ 本帖最后由 QWANG 于 2020-4-29 22:50 编辑 
+
+杏百万挺少的，主要就官号一首歌，3个剧场，大天使两首，小天使和星圣一首歌，大脸猫一首歌，狐皇一个小视频。哦还有空妈三首歌。syl
+
+空妈居然没在频道上登记上猫狗。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| AloissiolA| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12922#       发表于 2020-4-29 22:48
+
+
+
+
+杏百万的，官号有holo摇和三个小剧场，空妈三首，阿夸两首，星街的天球，天音的幽灵法则，粥哥的海底谭，狐皇的scatman
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| AloissiolA| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12923#       发表于 2020-4-29 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252761&amp;ptid=1924531" target="_blank">erer 发表于 2020-4-29 22:44</a>
+
+好的，我接受你的道歉了。下次别被我看到你说阿夸唱歌难听。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer"> 亏圣唱的废柴天使没有葵皇好听！
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 12924#       发表于 2020-4-29 22:48
+
+
+
+
+老赵就是那位水平很高的杏组人👆人吗？这个PV难道是有偿委托？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12925#       发表于 2020-4-29 22:49
+
+
+
+
+我心目中mega最好的投稿翻唱：
+
+[https://www.bilibili.com/video/BV1ox411H7qw](https://www.bilibili.com/video/BV1ox411H7qw)
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 12926#       发表于 2020-4-29 22:49
+
+
+
+
+这俩别比了吧，都好听都好听<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12927#       发表于 2020-4-29 22:50
+
+
+
+
+之前看到个holo社内每个人最高播放的视频名单，其他人都是唱歌、3D什么的，就towa是谢罪视频<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12928#       发表于 2020-4-29 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252799&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 22:48</a>
+
+亏圣唱的废柴天使没有葵皇好听！</blockquote>
+说话不算数<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">打爆你🐶头。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12929#       发表于 2020-4-29 22:51
+
+
+
+
+咱们能别菜鸡互啄了吗，歌视频本来就是图一乐.......就这还谁秒谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 12930#       发表于 2020-4-29 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">葵学会后期后印象中最近帮过美玲老师做了ed，再之前还帮rrm赶了OS宇宙人，还有自己的歌也是亲力亲为的，而且水平真的都不错。
+
+
+不过做后期虹里面还是小夜最pro的样子，做的歌的pv都可以说是专业级<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 12931#       发表于 2020-4-29 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252800&amp;ptid=1924531" target="_blank">离魂仙 发表于 2020-4-29 22:48</a>
+
+老赵就是那位水平很高的杏组人👆人吗？这个PV难道是有偿委托？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他是粉丝阿，你点进他B站看一眼不就知道
+
+不过这个麻薯映画算是你B mad社团混出来混得最好的了 高级工具人倒是真的
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 12932#       发表于 2020-4-29 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个把这俩都秒了的？
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12933#       发表于 2020-4-29 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252829&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-29 22:51</a>
+葵学会后期后印象中最近帮过美玲老师做了ed，再之前还帮rrm赶了OS宇宙人，还有自己的歌也是亲力亲为 ...</blockquote>
+破案了，mrr血亏，现在只能让龙皇帮着做后期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12934#       发表于 2020-4-29 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252836&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-4-29 22:51</a>
+
+来个把这俩都秒了的？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 我闭着眼睛点进**关注列表，都能点出来比这俩活宝唱得好的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12935#       发表于 2020-4-29 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252829&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-29 22:51</a>
+
+葵学会后期后印象中最近帮过美玲老师做了ed，再之前还帮rrm赶了OS宇宙人，还有自己的歌也是亲力亲为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer"> 做过就知道，这东西其实没什么技术含量，重要的是艺术细胞和点子，
+
+
+很明显，葵皇和这俩都不算太沾边
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 12936#       发表于 2020-4-29 22:54
+
+
+
+
+老赵就是职业的啊，麻薯映画哪还算得上什么社团，手游pv都做了一串了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12937#       发表于 2020-4-29 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说起字幕组这个事，懒狗组技术力也挺强的，好几个pv做得挺好，然后被狗狗杀了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12938#       发表于 2020-4-29 22:56
+
+
+
+
+大概率是有偿委托，老赵上星期都说快做完了，现在拖到5月底10有89是某甲方又发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl dadada天使这歌本来就是辣耳朵废萌曲，谁唱都差不多啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12939#       发表于 2020-4-29 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252798&amp;ptid=1924531" target="_blank">free 发表于 2020-4-29 22:48</a>
+
+杏百万的，官号有holo摇和三个小剧场，空妈三首，阿夸两首，星街的天球，天音的幽灵法则，粥哥的海底谭，狐 ...</blockquote>
+讲道理，狐皇夸皇放这里面有点拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  
+
+
+不过一想到空妈那三首是 太阳系 外星人 哨戒班我就<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">  循环起来还不如夸皇的废天使
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 12940#       发表于 2020-4-29 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252855&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 22:53</a>
+
+做过就知道，这东西其实没什么技术含量，重要的是艺术细胞和点子，
+
+
+很明显，葵皇和这俩都不算太 ...</blockquote>
+我就当你在吹小夜有艺术细胞和点子啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12941#       发表于 2020-4-29 22:57
+
+
+
+ 本帖最后由 colodes 于 2020-4-29 22:59 编辑 
+
+秒了[nsfw]
+[https://www.nicovideo.jp/watch/sm35180101](https://www.nicovideo.jp/watch/sm35180101)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12942#       发表于 2020-4-29 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252844&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:52</a>
+
+破案了，mrr血亏，现在只能让龙皇帮着做后期</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer"> 葵皇给rrm做的pv可不是无偿，收了几万的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12943#       发表于 2020-4-29 22:57
+
+
+
+
+既然说到歌力了，有品位的各位愿不愿意进来点个订阅<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12944#       发表于 2020-4-29 22:58
+
+
+
+
+水友们，做这个真的没技术含量吗，2000你又在嗯钓哦。
+不过有一说一，艺术细胞这个你看看平常直播封面基本可以看出一些端倪。<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12945#       发表于 2020-4-29 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252772&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-29 22:45</a>
+是我错怪了
+
+信姬唱歌还是行的，跟海苔男那是差远了，只不过今天好多歌本来就不熟吧 ...</blockquote>
+wok这白学神曲听聋我
+
+已经没什么好怕的了
+
+下一首直接深爱吧，不能只有我一个失聪！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12946#       发表于 2020-4-29 22:59
+
+
+
+
+轮歌力能不能轮轮虹杏之外的啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12947#       发表于 2020-4-29 23:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 不过你们回看mv，这里面除了协力者，出现的人就只有 mrr、阿笹、龙妈
+
+
+我可以说这三个人是对葵皇最重要的三个人不过分吧，
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12948#       发表于 2020-4-29 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252904&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-4-29 22:58</a>
+水友们，做这个真的没技术含量吗，2000你又在嗯钓哦。
+不过有一说一，艺术细胞这个你看看平常直播封面基本 ...</blockquote>
+砖神，这波我铁路人有一说一，一点不辣眼睛好吧，我可不是小砖人
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 12949#       发表于 2020-4-29 23:00
+
+
+
+
+发重了
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 12950#       发表于 2020-4-29 23:00
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/230031seor732uorfauzmx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200429230014.png</strong> (212.55 KB, 下载次数: 5)
+
+下载附件
+
+2020-4-29 23:00 上传
+
+
+
+
+
+
+我好酸我好酸我好酸
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 12951#       发表于 2020-4-29 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252893&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-4-29 22:57</a>
+
+既然说到歌力了，有品位的各位愿不愿意进来点个订阅https://www.youtube.com/watch?v=aH0SdgEfoIc
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你推荐这首太猎奇了，还不如直接推荐首页那首
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12952#       发表于 2020-4-29 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252905&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 22:58</a>
+
+wok这白学神曲听聋我
+
+
+已经没什么好怕的了</blockquote>
+都说了是一番の宝物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你信用卡备好了吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12953#       发表于 2020-4-29 23:01
+
+
+
+
+好奇会用什么字体
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 12954#       发表于 2020-4-29 23:01
+
+
+
+<blockquote>激光2000 发表于 2020-4-29 23:00
+不过你们回看mv，这里面除了协力者，出现的人就只有 mrr、阿笹、龙妈
+
+
+我可以说这三个人是对葵皇最 ...</blockquote>
+可是笹嫌里没阿葵啊
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12955#       发表于 2020-4-29 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252930&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-29 23:01</a>
+都说了是一番の宝物了你信用卡备好了吗</blockquote>
+家主先哭了草.......最后一天专职家主噶吃
+
+syl
+届到了啊，哎.......
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12956#       发表于 2020-4-29 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252922&amp;ptid=1924531" target="_blank">口苗口苗口 发表于 2020-4-29 23:00</a>
+
+我好酸我好酸我好酸</blockquote>
+哦哦哦哦哦，这太牛逼了，把木口一票人秒了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12957#       发表于 2020-4-29 23:02
+
+
+
+
+《品味》：
+
+[https://www.youtube.com/watch?v=hhXeNNxovSE](https://www.youtube.com/watch?v=hhXeNNxovSE)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12958#       发表于 2020-4-29 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252904&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-04-29 22:58:46</a>
+水友们，做这个真的没技术含量吗，2000你又在嗯钓哦。
+不过有一说一，艺术细胞这个你看看平常直播封面基本 ...</blockquote>论技术，仿完「玻璃之空」就能做了，我当初一天就仿完了。
+但是完全原创一个PV挺难的，因为无论是2D还是3D你要自己去想分镜。
+顺带安利一下世界第二好玩的游戏：AE
+能玩一辈子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12959#       发表于 2020-4-29 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252947&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:02</a>
+
+《品味》：
+
+
+https://www.youtube.com/watch?v=hhXeNNxovSE</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+《好品味》
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12960#       发表于 2020-4-29 23:04
+
+
+
+
+可以的，有心了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12961#       发表于 2020-4-29 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252928&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-4-29 23:01</a>
+
+你推荐这首太猎奇了，还不如直接推荐首页那首</blockquote>
+这首再生数最高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12962#       发表于 2020-4-29 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252915&amp;ptid=1924531" target="_blank">free 发表于 2020-4-29 22:59</a>
+
+轮歌力能不能轮轮虹杏之外的啊</blockquote>
+谁叫你家大葵在天朝不火嘞<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  赶紧叫smaprise来b站，多快好省提高V综歌力浓度
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 12963#       发表于 2020-4-29 23:05
+
+
+
+
+这不是第一次了啊，之前发批站也是自己做好的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12964#       发表于 2020-4-29 23:05
+
+
+
+
+《技术》：
+
+[https://www.bilibili.com/video/BV157411P7Q7](https://www.bilibili.com/video/BV157411P7Q7)
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 12965#       发表于 2020-4-29 23:06
+
+
+
+
+杏这波暗渡陈仓，黄金周一个个都要来b限了
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12966#       发表于 2020-4-29 23:06
+
+
+
+
+这是为家主上的会员.......太zqsg了，当yhm不顾形象唱的很难听也要哭的时候可能就是真的zqsg了吧
+
+你苔连哭的意思都么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12967#       发表于 2020-4-29 23:06
+
+
+
+
+《歌力》：
+
+[https://www.bilibili.com/video/BV1rs411R7fJ](https://www.bilibili.com/video/BV1rs411R7fJ)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12968#       发表于 2020-4-29 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252981&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 23:06</a>
+
+这是为家主上的会员.......太zqsg了，当yhm不顾形象唱的很难听也要哭的时候可能就是真的zqsg了吧
+
+
+你苔连哭 ...</blockquote>
+你正常点，不要那么梁木，罚你重看一遍
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12969#       发表于 2020-4-29 23:07
+
+
+
+
+cold老哥一说，我产生了点兴趣。
+
+无印：
+
+そら：【MMD公開】太陽系デスコ/ときのそら【歌ってMMDで踊ってみた】
+
+ロボ子：【MMD公開記念】おねがいダーリン 歌ってみた【ロボ子さん】
+
+みこ：【GTAV】なりゆきで悪の道を歩んでしまった陰キャのGTA5ストーリー
+
+AZKi：【とらドラ！】オレンジ 歌ってみた AZKi【オレンジ】
+
+すいせい：天球、彗星は夜を跨いで / 星街すいせい
+
+一期：
+
+メル：【#夜空メル】吸血鬼が『ビバハピ』踊って歌ってみた！【ホロライブ】
+
+アキロゼ：【#ホロライブ釣り王】てぇてぇの撒き餌に引っ掛かりなさい！【Aチーム視点】
+
+はあと：ECHO/赤井はあと【歌ってみた】
+
+フブキ：Im. Scatman
+
+まつり：白日 / King Gnu (Covered by 夏色まつり&amp;律可)
+
+二期
+
+あくあ：【１周年記念】ダダダダ天使／湊あくあ【歌ってみた】
+
+シオン：【歌ってみた】Mrs.Pumpkinの滑稽な夢／紫咲シオン×猫又おかゆ【ハロウィン】
+
+あやめ：愛言葉Ⅲ/百鬼あやめ【歌ってみた】
+
+ちょこ：【歌ってみた/4K】妄想税/癒月ちょこ【オリジナルMV】
+
+スバル：【ガチ恋】どぅーまいべすと！歌ってみた！【ぢろ】
+
+gamers：
+
+ミオ：凛として咲く花の如く Cover by大神ミオ【歌ってみた/オリジナルMV】
+
+ころね：【一周年記念】ヒャダインのじょーじょーゆーじょー / おかころ【歌ってみた】
+
+おかゆ：ウミユリ海底譚 / 猫又おかゆ(cover)
+
+三期：
+
+ぺこら：ディスコミュ星人/兎田ぺこら(cover)
+
+るしあ：【初凸待ち！】２０万人記念なので初凸待ちする！！もっと交流したい！凸来るまで地獄のしょぼんのアクション【ホロライブ】
+
+フレア：【ARK】三期生みんな揃って～出っ航～～～！！！🚢【3期生/ホロライブファンタジー】
+
+ノエル：【#白銀ノエル3D】白銀ノエル3Dお披露目会はじまりまっするうう！！！【みなさま感謝！！】
+
+マリン：【切り抜き】おもしろマリン動画【ホロライブ/宝鐘マリン】
+
+四期：
+
+ココ：【#祝桐生ココ収益化】この配信でスパチャ解禁！皆様に感謝を込めて…！アイドル桐生ココ…歌います！！！【スパチャ解禁！】
+
+かなた：ゴーストルール／天音かなた(Cover)
+
+わため：【クソザコ回線でも】わためラップ【投稿ならできる】
+
+トワ：【謝罪】昨日の件について
+
+ルーナ：【#姫森ルーナ初配信】みんな、はじめまして！姫森ルーナです！【新人Vtuber/ホロライブ4期生】
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12970#       发表于 2020-4-29 23:07
+
+
+
+
+我的天，葵宝太有心了........虽然不推但还是佩服她的努力，虽然也因此被ickr压榨感觉有点惨
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12971#       发表于 2020-4-29 23:08
+
+
+
+
+欢迎大家到时来听<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/230758ftvjooblo9xc1l1x.png" referrerpolicy="no-referrer">
+
+
+<strong>歌.png</strong> (24.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-29 23:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12972#       发表于 2020-4-29 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252992&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-29 23:07</a>
+
+你正常点，不要那么梁木，罚你重看一遍</blockquote>
+
+最后这几下，虽然我还是有梁木，但我愿意相信是真的泪水
+
+
+敬这两个人！
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 12973#       发表于 2020-4-29 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252995&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-4-29 23:07</a>
+
+cold老哥一说，我产生了点兴趣。
+
+无印：
+
+そら：【MMD公開】太陽系デスコ/ときのそら【歌ってMMDで踊ってみ ...</blockquote>
+还有ルーナ的初配信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 12974#       发表于 2020-4-29 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252985&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:06</a>
+
+《歌力》：
+
+
+https://www.bilibili.com/video/BV1rs411R7fJ</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">花近，她那首《今生如梦》还在我收藏夹，后面就没听过了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 12975#       发表于 2020-4-29 23:13
+
+
+
+
+怎么老是车管人歌力的？就不能车一车管人**力？
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 12976#       发表于 2020-4-29 23:13
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-29 23:14 编辑 
+
+说着品味，点进去一看还以为是哪个我不知道的底边，梅丽莎啊，小 蜜 蜂已经慢慢的人气上涨起来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+（这小 蜜 蜂是为啥屏蔽啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12977#       发表于 2020-4-29 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253028&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-4-29 23:11</a>
+
+花近，她那首《今生如梦》还在我收藏夹，后面就没听过了</blockquote>
+推荐一下花近的这几首：
+[https://www.bilibili.com/video/BV1eE411976G](https://www.bilibili.com/video/BV1eE411976G)
+[https://www.bilibili.com/video/BV1fx411T7hd](https://www.bilibili.com/video/BV1fx411T7hd)
+[https://www.bilibili.com/video/BV1cs411H7py](https://www.bilibili.com/video/BV1cs411H7py)
+[https://www.bilibili.com/video/BV1Ss411y7wx](https://www.bilibili.com/video/BV1Ss411y7wx)
+
+
+SYL：
+
+他家大葵那个实力的要多少我能给他找多少，别尬吹了。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12978#       发表于 2020-4-29 23:16
+
+
+
+
+其实车歌力得以现场为准的，发片把人声修的跟utau一样都能听，上面发的巧可老师播放最高的还是妄想税呢，我都听了两遍
+
+
+你虹上次接力歌回都很明显了吧 走姐&gt;levi&gt;梅丽莎绿仙&gt;小红帽
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12979#       发表于 2020-4-29 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253053&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-4-29 23:13</a>
+
+说着品味，点进去一看还以为是哪个我不知道的底边，梅丽莎啊，小 蜜 蜂已经慢慢的人气上涨起来了吧
+
+ ...</blockquote>
+正在冲银盾<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 12980#       发表于 2020-4-29 23:18
+
+
+
+
+非生唱车歌力一律耍流氓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 12981#       发表于 2020-4-29 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253053&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-4-29 23:13</a>
+
+说着品味，点进去一看还以为是哪个我不知道的底边，梅丽莎啊，小 蜜 蜂已经慢慢的人气上涨起来了吧
+
+ ...</blockquote>
+エバ是全社播放数第十三，全管这首歌翻唱播放量第二，超过第一只是时间问题。单纯就歌来说人气真的不一般。不知道以后会不会和某个白发女人一样就是了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12982#       发表于 2020-4-29 23:18
+
+
+
+
+？等一下我才反应过来，前面lor老姐说好认的叶队老姐指的是我吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12983#       发表于 2020-4-29 23:18
+
+
+
+
+大脸猫还挺歌势的，翻唱点击挺高的，还给其他人的频道送了不少高点击合唱。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+
+ANNYUI那个真不错啊。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12984#       发表于 2020-4-29 23:18
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-4-29 23:20 编辑 
+
+女王蜂和亚人歌力不相上下，但是她嗓音有特色选曲比较有品味，然后亚人歌回实在是能拖节奏稀烂，所以我还是比较喜欢melissa。
+
+走姐选曲突出一个自由和不想红，也行吧，图一乐彩虹人+1。
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 12985#       发表于 2020-4-29 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253079&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:16</a>
+
+推荐一下花近的这几首：
+
+https://www.bilibili.com/video/BV1eE411976G
+
+https://www.bilibili.com/video/ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">爷青回，当初上B站就主要是找翻唱听，后面渐渐就找不到了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12986#       发表于 2020-4-29 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253080&amp;ptid=1924531" target="_blank">free 发表于 2020-4-29 23:16</a>
+
+其实车歌力得以现场为准的，发片把人声修的跟utau一样都能听，上面发的巧可老师播放最高的还是妄想税呢，我 ...</blockquote>
+走姐是真的很强，接力一波涨了不少订阅
+
+绿仙，永远的神<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 12987#       发表于 2020-4-29 23:21
+
+
+
+
+melissa也是挺惊喜了，刚出道时还担心她会走levi老路，结果各种意义上都比levi强多了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12988#       发表于 2020-4-29 23:22
+
+
+
+
+这样啊，我强烈推荐两个b站up主，一个叫卡布叻，一个叫元宵节<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  前一个还是七位数ID的老up咧
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 12989#       发表于 2020-4-29 23:23
+
+
+
+
+levi也不是当年了，车她挺没意思的，现在她自己玩的开心就行。
+我心里最喜欢的歌系还是三得利，不过很久没看管人了，不知道现在车歌力她是不是也要被吊打了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 12990#       发表于 2020-4-29 23:23
+
+
+
+
+歌力什么的不重要，不管怎么样都有信者吹的
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12991#       发表于 2020-4-29 23:24
+
+
+
+ 本帖最后由 シナモンロール 于 2020-4-29 23:26 编辑 
+
+可能是这两个人之前乱七八糟的营业太多吧，我对这俩的商业感很敏感，常常也觉得，是不是连朋友都算不上。
+
+
+今天苔苔也开了打赏，一开始我是有点轻蔑的。
+
+
+当中也是一贯地玩闹，还有右下角那个gif，阿苔你到底是么得感情了还是单纯不擅长严肃呢？
+
+
+那种无法让人正经对待的感觉还是不断的涌出来。直到白学曲结束的时候，我苔跟家主说“最后还是届到了呢”这会儿家主已经有点憋不出了
+
+
+最后一首歌基本家主就一直在哭，我苔基本还是正常的，到结束的时候，阿苔还挺平静的报了幕，然后还是哭出来了。
+
+
+一如既往クソザコ的时机啊阿苔，看完我就想说。
+
+
+我想黑屁假哭集金，想黑屁这俩公布毕业后早早开始安排联动把冲击力弄没了，想黑屁信玉终究cp感稀薄，别离emo上限低。
+
+
+我还可以有一万个黑屁的借口，但我找不到黑屁的动机了.......也许这就是阿苔表现温柔的方法吧，故作镇定地安慰，被家主带跑的尬泣，还有无论怎么都学不会的マジメ
+
+
+也许每一个巨魔都是畏惧失望的孩子，越是畏惧就越是冷漠
+
+
+那就让我大胆一回吧，敬信たま，敬那可贵的友谊！
+
+
+
+
+
+
+
+-----
+
+####  宫宝兔丁  
+##### 12992#       发表于 2020-4-29 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253146&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-29 23:22</a>
+
+这样啊，我强烈推荐两个b站up主，一个叫卡布叻，一个叫元宵节  前一个还是七位数ID的老up咧 ...</blockquote>
+卡布叻还有你楼最喜欢的男人掐女声<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12993#       发表于 2020-4-29 23:26
+
+
+
+
+拿成曲点击比歌力和拿歌回同接比歌力有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12994#       发表于 2020-4-29 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253175&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-29 23:24</a>
+
+可能是这两个人之前乱七八糟的营业太多吧，我对这俩的商业感很敏感，常常也觉得，是不是连朋友都算不上。
+
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer"> 这你也能zqsg我是没想到的，在妈妈怀里哭吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12995#       发表于 2020-4-29 23:27
+
+
+
+ 本帖最后由 rzrbtk 于 2020-4-29 23:31 编辑 
+
+突然聊起来虹歌势，那来一个inui歌回合集（[https://www.bilibili.com/video/BV1La4y1x7UL/?p=1](https://www.bilibili.com/video/BV1La4y1x7UL/?p=1)），本人唯一指定网课歌单。
+
+省一楼，其实歌好不好听除了歌力还得看氛围合不合适，inui和千岁歌力都好，但是这两位唱I beg you和丸之内就很能看出氛围风格的不同
+
+
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12996#       发表于 2020-4-29 23:27
+
+
+
+
+草，真就小作文啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧好吧，我相信尾巴哥是海苔男gachi了。
+
+我道歉我道歉
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 12997#       发表于 2020-4-29 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252974&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:05</a>
+《技术》：
+
+
+https://www.bilibili.com/video/BV157411P7Q7</blockquote>
+这个很棒，感谢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 12998#       发表于 2020-4-29 23:28
+
+
+
+ 本帖最后由 シナモンロール 于 2020-4-29 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253199&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-4-29 23:26</a>
+
+这你也能zqsg我是没想到的，在妈妈怀里哭吧</blockquote>
+
+对苔我一向是很宽容也很严格的.......谁知道呢，也许只是害怕被pro老哥归为云苔推吧，跟利托老哥聊会儿睡觉了，夜里还有网课
+
+
+把舞台交给润噶吃
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12999#       发表于 2020-4-29 23:28
+
+
+
+
+三得利就是顶配azki，弱项太大，选曲很有问题。然后就是不唱歌的企划无聊至极甚至不如底边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然她是最无所谓的，靠山的《排面》那么大，HH出一砖还不是第一个去找她拜码头<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 13000#       发表于 2020-4-29 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252973&amp;ptid=1924531" target="_blank">KarsusNeko 发表于 2020-4-29 23:05</a>
+这不是第一次了啊，之前发批站也是自己做好的</blockquote>
+之前那次是组内有人夸海口还原好中文再发，我提倡是先发字幕版本，结果那人找的后期找借口鸽了没做之后转头去想去找阿葵要工程<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13001#       发表于 2020-4-29 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253190&amp;ptid=1924531" target="_blank">宫宝兔丁 发表于 2020-4-29 23:25</a>
+
+卡布叻还有你楼最喜欢的男人掐女声</blockquote>
+对呀，卡布叻简直就是你yagoo梦想中的完美木口星出道人选，无奈人家太牛逼，请不得<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13002#       发表于 2020-4-29 23:30
+
+
+
+ 本帖最后由 cgte030629 于 2020-4-29 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253205&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-29 23:27</a>
+
+突然聊起来虹歌势，那来一个inui歌回合集[https://b23.tv/BV1La4y1x7UL/p1](https://b23.tv/BV1La4y1x7UL/p1)，本人唯一指定网课歌单。
+
+省一楼 ...</blockquote>
+
+
+inui很怪，成曲普遍没歌回好听，歌回感染力超强
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13003#       发表于 2020-4-29 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253224&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-04-29 23:28:29</a>
+三得利就是顶配azki，弱项太大，选曲很有问题。然后就是不唱歌的企划无聊至极甚至不如底边 ...</blockquote>无聊归无聊，但是这不知道是真是假的大正风我是爱的不行，用你楼之前的话就是“成熟女性<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13004#       发表于 2020-4-29 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253248&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-4-29 23:30</a>
+之前那次是组内有人夸海口还原好中文再发，我提倡是先发字幕版本，结果那人找的后期找借口鸽了没做之后转 ...</blockquote>
+阿葵也太好了吧，虽然我不推她但她在我心中又加分了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13005#       发表于 2020-4-29 23:32
+
+
+
+
+阿葵是好孩子啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 13006#       发表于 2020-4-29 23:33
+
+
+
+
+车歌力还不如车原力靠谱，星川红心哪个原力更好呢，我反正都很喜欢就是了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13007#       发表于 2020-4-29 23:33
+
+
+
+
+虽然有个2000，不过阿葵可以成为V综女神了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13008#       发表于 2020-4-29 23:34
+
+
+
+
+草，阿葵这么好你们还整天黑阿葵，做个人吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13009#       发表于 2020-4-29 23:34
+
+
+
+
+别吹了别吹了，你们故意的吧
+
+我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13010#       发表于 2020-4-29 23:35
+
+
+
+
+像大葵这级别的当然能举出一些，不过都不出名了，那分享几个我收集的底边能唱的，万粉以下限定
+
+都是不到1万粉的底边，有兴趣关注下呀
+
+
+
+奏咪咪，这个不用说了吧，我们家大葵的猫，请大家不要以貌取猫，真的巨能唱
+[https://www.youtube.com/watch?v=RrEkqSq64_U](https://www.youtube.com/watch?v=RrEkqSq64_U)
+
+
+musica，这个也吹过好久了，一看这名字就和大葵一样是哪个剧团跑出来的
+[https://www.youtube.com/watch?v=NDrtQpqiAq0](https://www.youtube.com/watch?v=NDrtQpqiAq0)
+
+
+SHiNO这位我是看了V魂的推荐才知道的，V魂居然列为和emma一个级别，不过我觉得还是差点吧，没有过歌回不过原创曲都挺好的
+[https://www.youtube.com/channel/UCjP6LR6YlZF2tB31YT5Mckw](https://www.youtube.com/channel/UCjP6LR6YlZF2tB31YT5Mckw)
+
+
+ViANKiE，这个直接听余所事吧
+[https://www.youtube.com/watch?v=NbWtdf_Ftp4](https://www.youtube.com/watch?v=NbWtdf_Ftp4)
+
+
+HACHI你们听听这个幽灵法则
+[https://www.youtube.com/watch?v=mx4UP0Kw3pQ](https://www.youtube.com/watch?v=mx4UP0Kw3pQ)
+
+
+エーテル姐姐的剧团一天就众筹了300万，看来是没兴趣专心搞管人了
+[https://www.youtube.com/watch?v=OiBKN0ivOyI](https://www.youtube.com/watch?v=OiBKN0ivOyI)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 13011#       发表于 2020-4-29 23:36
+
+
+
+
+今晚的V综太恐怖了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 13012#       发表于 2020-4-29 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 成为V综女神之后的下场，
+
+
+嘶——
+
+
+估计快特到阿葵的欧尼酱了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13013#       发表于 2020-4-29 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253297&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-29 23:34</a>
+
+草，阿葵这么好你们还整天黑阿葵，做个人吧</blockquote>
+都怪2000<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13014#       发表于 2020-4-29 23:37
+
+
+
+ 本帖最后由 北山玖公 于 2020-4-29 23:39 编辑 
+
+我就没见过几个歌势唱我喜欢的乐队的歌<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+是鱼韵和ヒトリエ的歌太难唱了吗
+
+今天的V综恐怖吗？不是和平常差不多吗？管人粉-宫斗-过度解读-歌力，甚至比前几天还多了点元素<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 13015#       发表于 2020-4-29 23:37
+
+
+
+
+推阿葵为v综女神还不如推2000。啊，2000已经是了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13016#       发表于 2020-4-29 23:37
+
+
+
+
+今晚的V综？
+
+杏星出道——阿葵——歌力
+
+还好吧？怎么可怕了？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13017#       发表于 2020-4-29 23:37
+
+
+
+
+这不是挺好的，两边都不推的白吃一波贴贴也是很爽
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13018#       发表于 2020-4-29 23:38
+
+
+
+
+真正的中国进出:给字幕组擦屁股做歌词特效
+
+虚假的中国进出:不认识自己字幕组的片头
+
+
+
+不用我多说了罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 13019#       发表于 2020-4-29 23:38
+
+
+
+
+小熊猫也有新皮了，哦呦呦什么时候安排上啊<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 13020#       发表于 2020-4-29 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"> 成为V综女神的下场和啊喵喵一样！
+
+
+我不要阿葵成为V综女神，
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| AloissiolA|-1|我急了，扣你|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13021#       发表于 2020-4-29 23:39
+
+
+
+
+反正我是从来没黑过阿葵，不像你们，张口棒子闭口棒子的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13022#       发表于 2020-4-29 23:39
+
+
+
+
+啊， 有点希望阿葵是我女朋友了， 怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 13023#       发表于 2020-4-29 23:40
+
+
+
+
+阿葵本来大家都喜欢啊，也就2000喜欢批发梁木
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13024#       发表于 2020-4-29 23:40
+
+
+
+
+讲道理，一直提韩国人的是2000吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 13025#       发表于 2020-4-29 23:40
+
+
+
+
+只要别变成2k那副模样，多谈点阿葵没啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13026#       发表于 2020-4-29 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253217&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-4-29 23:27</a>
+
+这个很棒，感谢
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+她本体搞的玩意也可以听一下：
+
+[https://www.youtube.com/watch?v=fhZ0Znta0RI](https://www.youtube.com/watch?v=fhZ0Znta0RI)
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 13027#       发表于 2020-4-29 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253364&amp;ptid=1924531" target="_blank">魔法使い2019 发表于 2020-4-29 23:39</a>
+
+啊， 有点希望阿葵是我女朋友了， 怎么办</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/078.png" referrerpolicy="no-referrer"> “呜嗷嗷嗷嗷嗷嗷”
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13028#       发表于 2020-4-29 23:42
+
+
+
+
+上一次听女女合唱magnet是阿满和组长，上上次是UDK和RU
+
+白驹过隙光阴易逝啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13029#       发表于 2020-4-29 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253313&amp;ptid=1924531" target="_blank">free 发表于 2020-4-29 23:35</a>
+
+像大葵这级别的当然能举出一些，不过都不出名了，那分享几个我收集的底边能唱的，万粉以下限定
+
+都是不到1万 ...</blockquote>
+300万不够一个剧团吃几天的吧，讲不好还能多听几位虚拟音乐剧演员唱歌
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13030#       发表于 2020-4-29 23:42
+
+
+
+
+嗨，谁还不是个葵熊了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13031#       发表于 2020-4-29 23:44
+
+
+
+
+反正你juan歌势搞翻唱突出一个不自量力，详细不展开了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13032#       发表于 2020-4-29 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253255&amp;ptid=1924531" target="_blank">cgte030629 发表于 2020-4-29 23:30</a>
+
+inui很怪，成曲普遍没歌回好听，歌回感染力超强</blockquote>
+inui特点就是稳且持久，歌回后期也不会太显疲惫，而且声音素质也允许她对歌曲做一些即兴改编，有星间飞行（[https://www.bilibili.com/video/BV1La4y1x7UL?p=54](https://www.bilibili.com/video/BV1La4y1x7UL?p=54)）那种可爱类型的，也有Lullaby（[https://www.bilibili.com/video/BV1La4y1x7UL?p=11](https://www.bilibili.com/video/BV1La4y1x7UL?p=11)）这种唱着唱着就飙上去的，即兴就突出一个爽,成曲也不是不行，也好听，但少了那种随心所欲的惬意（有夸张表现）。当然也可能是因为没请YAB哥来MIX<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 13033#       发表于 2020-4-29 23:45
+
+
+
+ 本帖最后由 头上一板砖 于 2020-4-29 23:46 编辑 
+
+编辑，原来说的不是一个阿夸草
+
+
+
+
+
+
+1.jpg
+(14.04 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-4-29 23:40 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/29/234050w20r0r60g88dz0aq.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 13034#       发表于 2020-4-29 23:45
+
+
+
+
+晚上的v综不比白天聊男人强多了？
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 13035#       发表于 2020-4-29 23:45
+
+
+
+ 本帖最后由 Alphawalker 于 2020-4-29 23:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想起你楼之前说阿葵是彩虹第二三推
+
+我认识的黑黑推，除了你虹的男人，唯数不多认识的liver就包括阿葵
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13036#       发表于 2020-4-29 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253448&amp;ptid=1924531" target="_blank">Alphawalker 发表于 2020-4-29 23:45</a>
+
+想起你楼之前说阿葵是彩虹第二三推
+
+我认识的黑黑推，除了你虹的男人，唯数不多认识的女liver就包括 ...</blockquote>
+《天皇老矣》
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13037#       发表于 2020-4-29 23:47
+
+
+
+
+阿床的问题还是太随意，唱一半说话，唱两句懒得唱了这种。
+
+
+还有她唱《老娘不玩音乐了》一样车祸，可少唱点管人金曲8
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 13038#       发表于 2020-4-29 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253438&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-4-29 23:45</a>
+
+编辑，原来说的不是一个阿夸草</blockquote>
+?
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13039#       发表于 2020-4-29 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253430&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:44</a>
+
+反正你juan歌势搞翻唱突出一个不自量力，详细不展开了</blockquote>
+我点名一个阿希唱革命机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 13040#       发表于 2020-4-29 23:48
+
+
+
+
+我最喜欢看那些开头来一句:不是杠，非引战，纯路人，理性讨论 的纯傻逼被围着殴打的场面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13041#       发表于 2020-4-29 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253467&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-29 23:47</a>
+
+我点名一个阿希唱革命机</blockquote>
+这必须附议，自不量力拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13042#       发表于 2020-4-29 23:49
+
+
+
+
+翻个唱而已啊，何必呢？各位平日都是不唱歌的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13043#       发表于 2020-4-29 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253465&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:47</a>
+
+阿床的问题还是太随意，唱一半说话，唱两句懒得唱了这种。
+
+
+还有她唱《老娘不玩音乐了》一样车祸，可少唱点 ...</blockquote>
+阿床只是不想唱<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 13044#       发表于 2020-4-29 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你们别这样，葵皇弄个逆凸，你楼来来回回repo+车轱辘了16页，给杏人点空间，
+
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 13045#       发表于 2020-4-29 23:50
+
+
+
+
+阿葵确实很好，整天给阿葵安排生活和病毒确实非常不行
+
+—— 来自 Google Pixelbook, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13046#       发表于 2020-4-29 23:51
+
+
+
+ 本帖最后由 AloissiolA 于 2020-4-29 23:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253438&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-4-29 23:45</a>
+
+编辑，原来说的不是一个阿夸草</blockquote>
+草，第一次听说ナナヲアカリ还有阿夸的外号。特地去看了眼大天使的pv画师，也不是寺田本人啊，还想了会crew怎么能这么出警（无恶意）<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+板砖佬懒得和这人解释就丢他这个网页：[https://trcootworks.tumblr.com/post/177929640829/notes](https://trcootworks.tumblr.com/post/177929640829/notes)    寺田自己的二次创作规约里头没写不能描改
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 13047#       发表于 2020-4-29 23:51
+
+
+
+
+星街5月3号B限第五人格，
+看来杏5月头也有不少人来啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13048#       发表于 2020-4-29 23:52
+
+
+
+
+我记得上次夸皇投稿废天使的时候也是一堆人跳出来说什么本家不允许描改
+
+
+这种觉得自己比企业势还懂日本版权的人是怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 你要说404那天威不可测的版权管理指点两句也就算了，日本人抬头不见低头见的业内大手子不比你熟？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13049#       发表于 2020-4-29 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253467&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-4-29 23:47</a>
+
+我点名一个阿希唱革命机</blockquote>
+这种唱功不行硬操的一般通过都看得出来不提了。
+
+
+还有一种很普遍的问题是对于伴奏的不知道是不懂还是不重视，打个比方东变的歌里那么多大编制的玩意整个小灵通伴奏就敢唱还做不好EQ，突出一个听不下去，典型就是免费神曲之一，chima和力一那首《獣ゆく細道》
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13050#       发表于 2020-4-29 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253492&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-4-29 23:49</a>
+
+阿床只是不想唱</blockquote>
+我也只是表达一个听众的感受而已。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13051#       发表于 2020-4-29 23:54
+
+
+
+
+管人金曲毕竟是没有原唱的，能唱出自己的风格理解就赢了一半了。
+
+
+那些原唱太硬的名曲要硬撞，确实得对自己有信心才敢，看emma那歌回，什么吉田美和夏川里美misia山下达郎竹内玛莉亚邓丽君挨个来，这能火就怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 13052#       发表于 2020-4-29 23:54
+
+
+
+ 本帖最后由 头上一板砖 于 2020-4-30 00:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253518&amp;ptid=1924531" target="_blank">AloissiolA 发表于 2020-4-29 23:51</a>
+
+草，第一次听说ナナヲアカリ还有阿夸的外号。特地去看了眼大天使的pv画师，也不是寺田本人啊，还想了会cre ...</blockquote>
+确实，描改这个我也无法苟同他这个说法。顺便他说的阿夸应该是说的那个P主aqu3ra ( @AQU3RA_music )。是你楼害了我，还以为是厄介crew来了<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
+更新，刚准备再去理论一下发现这老哥自己删评了草。
+
+<img src="https://img.saraba1st.com/forum/202004/30/000016jbn29omfdmh3z9lo.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (11.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-30 00:00 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 13053#       发表于 2020-4-29 23:54
+
+
+
+
+Mikimhr有首翻唱Miki自己描改寺田的也被小粉丝出警过，原来没有这规矩吗？
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 13054#       发表于 2020-4-29 23:54
+
+
+
+
+可是你圈（直播势）原创曲的再生大部分都不太好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">翻唱起码能吸引人来看
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 13055#       发表于 2020-4-29 23:55
+
+
+
+
+这就是婆罗门吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 13056#       发表于 2020-4-29 23:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253465&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:47</a>
+
+阿床的问题还是太随意，唱一半说话，唱两句懒得唱了这种。
+
+
+还有她唱《老娘不玩音乐了》一样车祸，可少唱点 ...</blockquote>
+声线注定曲路窄，歌力UR版小肥妹。
+
+
+喜欢唱一半说话是真的难受，可能这就是玩票吧<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13057#       发表于 2020-4-29 23:57
+
+
+
+[https://b23.tv/BV1M54y1R75B](https://b23.tv/BV1M54y1R75B)
+
+来点杏浓度
+
+这就是润姨吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">看得我都想打sc了。润姨恐怖如斯！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13058#       发表于 2020-4-29 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253465&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-4-29 23:47</a>
+
+阿床的问题还是太随意，唱一半说话，唱两句懒得唱了这种。
+
+
+还有她唱《老娘不玩音乐了》一样车祸，可少唱点 ...</blockquote>
+这就是歌回的精髓嘛，久远不也唱着唱着敲个锅<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我作为没品V观众还是很喜欢这种的。
+
+inui唱管曲也算少了吧，感觉动漫曲、jpop比较多（我不懂音乐），就很想听她和星街卡拉OK歌回，可能是马三角专场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 13059#       发表于 2020-4-29 23:59
+
+
+
+ 本帖最后由 mmbk 于 2020-4-30 00:00 编辑 
+
+我也来推一个<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[https://b23.tv/BV1VQ4y1T7rH](https://b23.tv/BV1VQ4y1T7rH)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13060#       发表于 2020-4-29 23:59
+
+
+
+
+没不让你唱，东变也有群青日和这种一个band三件套就能整的东西你就算小灵通伴奏也不违和啊？
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 13061#       发表于 2020-4-30 00:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253524&amp;ptid=1924531" target="_blank">anwen76 发表于 2020-4-29 23:51</a>
+
+星街5月3号B限第五人格，
+
+看来杏5月头也有不少人来啊</blockquote>
+兔皇除外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13062#       发表于 2020-4-30 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253606&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-4-29 23:58</a>
+
+这就是歌回的精髓嘛，久远不也唱着唱着敲个锅我作为没品V观众还是很喜欢这种的。
+
+inui唱管曲也算 ...</blockquote>
+玲人是真的不爱服务冻鳗达利特，她初次歌回最后三首是自己特别喜欢的，全力全开可好听了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13063#       发表于 2020-4-30 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47253559&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-4-29 23:54</a>
+Mikimhr有首翻唱Miki自己描改寺田的也被小粉丝出警过，原来没有这规矩吗？</blockquote>
+作为以前混过术圈和唱见圈的人，这种其实也不会上推可是就很喜欢揪着一些也不知道哪里听来的规则出警的小粉丝确实不少。寺田至今为止那么多爆款曲子mv的描改可以说是浩如烟海，搞不懂这个不准描改的传言是怎么来的。
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 13064#       发表于 2020-4-30 00:03
+
+
+
+
+声乐还是听不懂，看来我只配听一些管人金曲了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 13065#       发表于 2020-4-30 00:04
+
+
+
+
+阿床和星街唱k是不是也是星街唱十首阿床唱一首啊，有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+              
