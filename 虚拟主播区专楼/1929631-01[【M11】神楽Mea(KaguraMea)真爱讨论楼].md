@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 00:08** 
+> ## **本文件最后更新于2020-04-29 10:10** 
 
 
 
@@ -9613,10 +9613,11 @@ syl，归纳为形式问题可还行，这真的只是形式问题吗？<img src
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 追风小星星|-1|看不懂|
 | weiweiEX|-1||
 | 惑星|-1|思路广|
 
@@ -17320,10 +17321,11 @@ clay当了一阵子发言人，疯了。记者人几乎不发言，也搞不清�
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Zhudhh|-1||
 | 素人不相识|-1|建议说清楚点，不然完不成你的千鹅大业了.|
 | weiweiEX|-1|请问黄金周会干啥啊我不太懂|
 
@@ -17980,10 +17982,11 @@ yamero！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" r
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 若风之景| + 1|确实|
 | 诡秘侍者| + 1|是啊|
 | 素人不相识| + 1|clay好样的|
 | 路人庚| + 1|好评加鹅，活久一点|
@@ -18600,10 +18603,14 @@ mea是播的不平均。。如果每天1-2小时而不是搞超长耐久然后�
 
 
 
- 参与人数 4战斗力 -4
+ 参与人数 8战斗力 -8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| WhiteAvalon|-1|啊这|
+| Zhudhh|-1||
+| h1001010|-1|懂得都懂|
+| 永青流火的心|-1|这时候就请贴贴人出来发散，她们正在船上贴.|
 | noaki|-1|一个梗一天玩三遍，过不去了是吧.|
 | 鷹書たかしょ|-1|正常点吧，疯疯癫癫装小丑真的很可怜.|
 | weiweiEX|-1|小博鱼大活跃，但我要没有鹅发给你了.|
@@ -18806,6 +18813,27 @@ sly最近的直播我倒基本 ...</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zhudhh|-1||
+| Kayz996|-1|欢乐多|
+| thisisaspider|-1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18921,4 +18949,1960 @@ sly最近的直播我倒基本 ...</blockquote>
 
 
 
-               
+
+
+-----
+
+####  weiweiEX  
+##### 1050#       发表于 2020-4-29 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241040&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-4-29 00:04</a>
+她想认真打，但是实力有限
+
+节目效果等于没有，不过日V国V的单人游戏实况除了高手表演外无外乎全是尬演
+
+这种 ...</blockquote>
+只狼的时候感觉其实还不错，也不一定飞得高游戏力才好看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我自己看不懂LOL，听别人说她播LOL还挺好看？
+
+syl楼上怎么还开始rp起正常人了
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1051#       发表于 2020-4-29 00:09
+
+
+
+
+所以还是跟着兔妈妈好好学两年吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">，md说到这个话题又想车轱辘nns的脑瘫操作，控制自己不车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1052#       发表于 2020-4-29 00:10
+
+
+
+
+那她又不是太愿意尬演<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，睡了睡了等apex v骚，她这些事肯定比我清楚
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1053#       发表于 2020-4-29 00:13
+
+
+
+
+LOL啊，打赢了好看，打输了观众跟她一起自闭
+
+不得不提一句上次咩亏联动第三把绝地翻盘挺刺激的
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1054#       发表于 2020-4-29 00:16
+
+
+
+ 本帖最后由 小博禹 于 2020-4-29 00:30 编辑 
+
+其他不清楚，但近年来国内最火那些的loldota炉石主播也都不是靠尬演的，他们就都是和某些相对稳定的朋友一起安心打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过和v比起来，国内这些主播都要福报得多
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1055#       发表于 2020-4-29 00:17
+
+
+
+ 本帖最后由 素人不相识 于 2020-4-29 00:21 编辑 
+
+自我认知问题吧。
+
+我记得最初她什么时候说过，之所以不播游戏就是因为她觉得她播游戏会很无聊。
+
+人是被过去的自己所决定与束缚的。她对自己的认知如此，直播时哪怕想做点啥，也会被自己束缚。
+
+除非我们给她更多的正反馈，让她慢慢修改自己对自己的固有印象。（实际上，近2年下来，还是有一定的改变了）
+
+
+如果她能认为 我们认为她打游戏和她杂谈、唱歌一样有趣，那么她必然会喜欢直播打游戏，并且必然直播效果会很好（在这种事情上，人很大程度上是被别人定义且实现的）
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1056#       发表于 2020-4-29 00:27
+
+
+
+<blockquote>素人不相识 发表于 2020-4-29 00:17
+自我认知问题吧。
+
+我记得最初她什么时候说过，之所以不播游戏就是因为她觉得她播游戏会很无聊。
+
+人是被过去 ...</blockquote>
+那她首先要从内容上进行改变，b限lol是对的，但观感上很容易疲劳。她之前爱播的pubg和死喷乱涂这种同接杀手怎么可能会有正反馈。。。咩姐之前征求过几次游戏，真的希望她能找些新的游戏播，在无法出门话题不足的情况下还是很必要的
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1057#       发表于 2020-4-29 00:35
+
+
+
+
+怎么开始云P了，你们都没有推特的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1058#       发表于 2020-4-29 00:41
+
+
+
+
+她b限lol就是来放松的，不是正经的直播状态。
+给她留点舒适空间吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1059#       发表于 2020-4-29 00:44
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-29 00:46 编辑 
+
+结果变成谁都无法踏出新的一步的状态了还行
+
+
+嘛，这也是另一种车轱辘
+
+
+在箱里的话同事推荐游戏，说话好歹有点分量，也能蹭到热度
+
+
+自己一个人来那就是别人也真的不好说啥了（她姑且也不算那种油盐不进的固执性格吧，可能单纯是周围的人不玩游戏……）
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1060#       发表于 2020-4-29 00:52
+
+
+
+ 本帖最后由 thisisaspider 于 2020-4-29 00:56 编辑 
+
+不会啊，她B限LOL就很有女主播的感觉。喜欢作死在追求节目效果的路上一去不复返。会感觉难受的大概就只有粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虽然如此，但是V播游戏我都不怎么看。
+
+
+SYL，你们真的可以试试发推不打TAG，然后加上神楽めあ。发点正常人的意见。就知道她看没看了
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1061#       发表于 2020-4-29 00:57
+
+
+
+
+咩姐涼不涼关我p事
+
+官组塞不塞私货关我p事
+
+
+
+
+话虽如此我还是顺手点进了新pv给前排那些带四字六字的评论点了个踩，从这个行为中我久违地感受到了18年年末看咩姐的那段单纯快乐的日子
+
+真是让人怀念啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+原来这个就是贴贴pv的精华吗？
+
+官组，你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1062#       发表于 2020-4-29 00:59
+
+
+
+
+你是真的阴湿回去虚拟5CH住怎样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1063#       发表于 2020-4-29 01:01
+
+
+
+
+看到合作者里有贴贴组就直接关视频就好了。
+
+和那些人八字不合，他们做的东西即使是单人的我也不想看。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1064#       发表于 2020-4-29 01:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来看打块熟肉
+
+
+谈到线下话题的时候
+
+
+“不想让别人去自己家”这事几个人聊起来，看弹幕制糖就感想非常之微妙
+
+
+谁知道330去的是不是“自己家”啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真就细思恐极
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|我不想给你加鹅的，但是我是小傅禹anti.|
+| 小博禹|-1|停一下停一下|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1065#       发表于 2020-4-29 01:01
+
+
+
+
+我自己都不知道自己除了GBF还有什么游戏会玩的，DOOME都没坚持下去，就不去替别人操心了
+
+马上孩子也要回家带了
+
+
+只要她有继续唱歌，一切都不是问题
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1066#       发表于 2020-4-29 01:02
+
+
+
+ 本帖最后由 thisisaspider 于 2020-4-29 02:22 编辑 
+
+那你还是停止思考吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+真拿着放大镜看管人？
+
+先编辑了，等有空我确认一下
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1067#       发表于 2020-4-29 01:03
+
+
+
+
+她说不想去别人家，也不想别人来自己家。
+当初借住的地方算不算“家”先不提，她确实去过别人家啊
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1068#       发表于 2020-4-29 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241281&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-4-29 00:44</a>
+
+结果变成谁都无法踏出新的一步的状态了还行
+
+
+嘛，这也是另一种车轱辘</blockquote>
+主要她还是失败一次就再不尝试那种 不然就趁着大家纷纷开始apex的时候一起玩了
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1069#       发表于 2020-4-29 01:04
+
+
+
+<blockquote>无限舰制 发表于 2020-4-29 01:01
+说起来看打块熟肉
+
+
+谈到线下话题的时候
+</blockquote>
+再深思下去感觉你的脑子会像爆头神座一样爆掉，所以请停下来吧，这楼人已经不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1070#       发表于 2020-4-29 01:07
+
+
+
+ 本帖最后由 小博禹 于 2020-4-29 01:10 编辑 
+
+我错了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104|-1||
+| Zhudhh|-1||
+| weiweiEX|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1071#       发表于 2020-4-29 01:09
+
+
+
+
+深夜的脑力风暴时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1072#       发表于 2020-4-29 01:10
+
+
+
+ 本帖最后由 thisisaspider 于 2020-4-29 01:14 编辑 
+
+编辑编辑
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1073#       发表于 2020-4-29 01:10
+
+
+
+ 本帖最后由 无限舰制 于 2020-4-29 01:12 编辑 
+
+不，我只是感叹情报差的问题而已（）
+
+
+凛去过麻自己家这事我觉得概率也不小，我对两人关系又没啥梁木
+
+
+但真的把330当成糖分来源我也不知道说啥好
+
+
+就……“从错误的前提得出了正确的结论”的微妙感觉
+
+
+外加舞台上下差异的感叹吧
+
+不过不再互相串门某种意义上也可以说是学生妹到正经有工作的成年人的身份转换了……大家有什么事约在外面那种感觉
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1074#       发表于 2020-4-29 01:11
+
+
+
+<blockquote>thisisaspider 发表于 2020-4-29 01:02
+那你还是停止思考吧
+
+
+真拿着放大镜看管人？
+</blockquote>
+管人的话没一句是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+SYL
+
+330不是默认在774家吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1075#       发表于 2020-4-29 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241450&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-4-29 01:10</a>
+不，我只是感叹情报差的问题而已（）
+
+
+凛去过麻自己家这事我觉得概率也不小，我对两人关系又没啥梁木</blockquote>
+到好朋友家一起玩一起唱歌一起直播了，是糖，没问题呀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1076#       发表于 2020-4-29 01:12
+
+
+
+
+线下联动当糖很正常，哪家贴贴人都是这么想的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1077#       发表于 2020-4-29 01:13
+
+
+
+
+我都说了330是官方判决百合民死刑，这都能当糖我也是服了那些贴贴人
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1078#       发表于 2020-4-29 01:15
+
+
+
+
+330挺有趣的，至少我是正视直播效果的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1079#       发表于 2020-4-29 01:15
+
+
+
+
+一个正常的阴角都不会随便让人来家和去别人家啊，这有啥好研究的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1080#       发表于 2020-4-29 01:15
+
+
+
+
+她话里前后矛盾的地方太多了，很多时候就一时想法脱口而事后自己都不一定记得，当时不是用这个当借口回绝线下么，和是不是真的不喜欢无关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1081#       发表于 2020-4-29 01:18
+
+
+
+ 本帖最后由 小博禹 于 2020-4-29 01:19 编辑 
+
+日本人的所谓阴角完全没意义<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+一个十三四岁搞直播，和朋友搞地下偶像，开live，还经常和粉丝私联的人你说她是阴角<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zhudhh|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1082#       发表于 2020-4-29 01:20
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-29 01:13
+我都说了330是官方判决百合民死刑，这都能当糖我也是服了那些贴贴人</blockquote>
+330这种不就是百合吗？
+
+被判死刑的那种叫磨豆腐民或者双头龙民吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 1083#       发表于 2020-4-29 01:24
+
+
+
+
+阴角羊角俯角都无所谓，重要的是给自己或者别人贴上标签。标签影响挺大的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1084#       发表于 2020-4-29 01:24
+
+
+
+
+涩谷民谢谢
+
+不过她自己家不愿意随便让人来的理由我倒是想得到（？）
+
+大概不收拾的话不太能见人吧.jpg
+
+这么一想在774家说不定还收敛点没敢搞那么乱七八糟
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1085#       发表于 2020-4-29 01:25
+
+
+
+
+我当初有段时间真的以为她们已经到快要在涉谷结婚的那种程度了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1086#       发表于 2020-4-29 01:27
+
+
+
+
+接下来不会是暗黑贴贴民忆苦思甜怀念过去的时间吧？別啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1087#       发表于 2020-4-29 01:28
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-29 01:33 编辑 
+
+百合这个名字就这么不值钱吗……这种关系中学里随便找两个小女生都有，又不是动漫里的轻百合。
+
+
+syl：要头脑风暴的话可以思考下为啥两人住宾馆分床睡，为什么330联动完夸急急忙忙回家
+
+(记混了）
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1088#       发表于 2020-4-29 01:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">我当时真心以为她们已经同居准备结婚了
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1089#       发表于 2020-4-29 01:29
+
+
+
+
+住宾馆是之前二月份那次旅行吧，考虑这个也太恶毒了吧，你居然是这样的松鼠<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1090#       发表于 2020-4-29 01:30
+
+
+
+
+只是他们聊到这个，我就顺便吐槽下曾经的自己而已。
+
+而且我也自认为不是暗黑帖帖人，只不过从贴贴人变成了单推罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1091#       发表于 2020-4-29 01:30
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-29 01:28
+百合这个名字就这么不值钱吗……这种关系中学里随便找两个小女生都有，又不是动漫里的轻百合。
+
+
+syl：要头 ...</blockquote>
+“不要让兄弟误会我对嫂子有想法”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1092#       发表于 2020-4-29 01:32
+
+
+
+
+另外阴角阳角这件事与其说是社交能力不如说是自我评价与反馈机制的问题
+
+阴角可以跳别人脸，但内核还是有缺乏自我认同，拿这个作为保护机制的感觉吧
+
+不过装弱这种事也算是萌要素里长久不衰的一环了，而且gachi确实会变多
+
+所以管人人均阴角或者至少有这种倾向也不奇怪吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1093#       发表于 2020-4-29 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241542&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-4-29 01:29</a>
+住宾馆是之前二月份那次旅行吧，考虑这个也太恶毒了吧，你居然是这样的松鼠 ...</blockquote>
+我觉得至少那次，应该是双人旅行的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX|-1|自问自答给我整笑了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1094#       发表于 2020-4-29 01:34
+
+
+
+
+让我想起了二手live人均社恐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 1095#       发表于 2020-4-29 01:35
+
+
+
+
+bsyl，现在只要连接上internet就是人均社恐自闭心理问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们都可以的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1096#       发表于 2020-4-29 01:36
+
+
+
+
+久违的忆苦思甜（？），爷的青春又回来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1097#       发表于 2020-4-29 01:39
+
+
+
+
+她不是还表示过羡慕绿熊交朋友的能力。从她谈及那些比较屑的现实朋友来看，这人交朋友好像还挺被动的，但又很怕失去朋友。虽然不到社障的程度但感觉还挺阴角的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1098#       发表于 2020-4-29 01:47
+
+
+
+
+冰山一角理论。既然mea做vtb的朋友都如此多，那就更不要提现实了。
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1099#       发表于 2020-4-29 01:47
+
+
+
+
+你们还可以思考一下是谁爆料给裁狗的
+
+裁狗出了VGAMING的视频和PEKO的视频中间的阿夸点踩炎上为什么被跳过了
+
+爱讨论，爱思考<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1100#       发表于 2020-4-29 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241392&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-4-29 01:02</a>
+
+那你还是停止思考吧
+
+
+真拿着放大镜看管人？</blockquote>
+能给个时间点吗？翻同传没翻到，听你这么说这段还蛮给力的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1101#       发表于 2020-4-29 01:51
+
+
+
+
+夸珍珠奶茶被封事件也被做过视频，思考不起来，讨论不起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 1102#       发表于 2020-4-29 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241603&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-4-29 01:47</a>
+ 你们还可以思考一下是谁爆料给裁狗的 裁狗出了VGAMING的视频和PEKO的视频中间的阿夸点踩炎上为什么被跳过了 ...</blockquote>
+我记得裁狗发过aqua珍珠奶茶事件吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1103#       发表于 2020-4-29 02:02
+
+
+
+ 本帖最后由 thisisaspider 于 2020-4-29 02:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241607&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-29 01:48</a>
+
+能给个时间点吗？翻同传没翻到，听你这么说这段还蛮给力的</blockquote>
+不到20分钟吧，自己看啊
+
+
+SYL，那是你们大脑不够发光啊。小傅禹不是都能脑补她线下乱趴的人了吗。
+
+然后澄清啊，我从来没有这么想过不管是mea还是aqua
+
+最后啊，裁狗不搞事对我来说还是好事的，至少我不是那种幸灾乐祸的人。
+
+还有知道不信的人还蛮多的，还是挺欣慰的。可能脑子不好使，但至少你们思维比较正值。比起弱智anti更喜欢些。
+
+还有，他现在不做不代表以后不做，可能下个视频就是了。这种弱智还在你圈还蛮恶心我的
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1104#       发表于 2020-4-29 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241636&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-4-29 02:02</a>
+不到20分钟吧，自己看啊
+
+
+SYL，那是你们大脑不够发光啊。小傅禹不是都能脑补她线下乱趴的人了吗。</blockquote>
+草整了半天你是在跟小博鱼互动吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1105#       发表于 2020-4-29 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241636&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-4-29 02:02</a>
+不到20分钟吧，自己看啊
+
+
+SYL，那是你们大脑不够发光啊。小傅禹不是都能脑补她线下乱趴的人了吗。</blockquote>
+草整了半天你是在跟小博鱼互动吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1106#       发表于 2020-4-29 02:09
+
+
+
+ 本帖最后由 路人庚 于 2020-4-29 02:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241636&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-4-29 02:02</a>
+
+不到20分钟吧，自己看啊
+
+
+SYL，那是你们大脑不够发光啊。小傅禹不是都能脑补她线下乱趴的人了吗。</blockquote>
+mea说自己是以“あざとい女”为目标的那段？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这段不是说当一个做作的女人可以钓到男人但是会被女人讨厌吗。。。跟你说的这个意思好像有点差别啊
+
+
+补个时间点
+
+[https://www.youtube.com/watch?v=E9vueYXGppU&amp;t=1028s](https://www.youtube.com/watch?v=E9vueYXGppU&amp;t=1028s)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中间又穿插了那套跟男人一起能安定的说辞（
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 1107#       发表于 2020-4-29 02:10
+
+
+
+ 本帖最后由 thisisaspider 于 2020-4-29 02:15 编辑 
+
+你楼有好几个人我都不喜欢，今晚看这几个都聚集起来聊些弱智话题，就给你们添把柴火？这种感觉。
+
+SYL，谢谢指出，先编辑了。我回去确认一下
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 1108#       发表于 2020-4-29 02:29
+
+
+
+
+一晚上不看你楼突然多出七页去，我还以为她又出啥事了呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+516的幕后黑手反正这人自己心里肯定或多或少是有点数的，毕竟知道她底细的真没几个，还得是混这圈子的，嗯......<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+算了不猜了，我们当观众的肯定是猜不到的，也没必要<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就跟516之前没人猜得到516是怎么回事一样
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1109#       发表于 2020-4-29 02:55
+
+
+
+
+话说你楼对咩姐吸粉能力没底气的悲观天狗这么多吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，我确实是新人，V版逛久了去看V然后逐渐单推的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1110#       发表于 2020-4-29 03:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是喜欢在这说话的这几个比较悲观罢了，这楼代表不了任何群体，这楼里的言论也没有任何普遍性
+
+
+不过主播火不过3年是有普遍性的，再有节目效果的主播3年后还是该凉的凉，当然这的凉是相对于巅峰时期的
+
+不过毕竟瘦死的骆驼比马大，还是有相当一部分人想多看几天你咩姐的，所以也在各种想办法给她多续几秒，这也是为什么这么多云p的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1111#       发表于 2020-4-29 03:58
+
+
+
+
+确实，瘦死的骆驼比马大，没事去TC台逛一逛，就会觉得麻作为一个萌声主现在已经很牛X了。
+
+还是那句话，凡事别往上看，往下看。
+
+你做买卖赔钱了，那还有跳楼的呢。
+
+你失业了，那还有失身的呢。
+
+你老婆不要你了，她也没要我啊。
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 1112#       发表于 2020-4-29 04:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">研究了一下两个小弟，发现满满都是过去的影子
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1113#       发表于 2020-4-29 04:27
+
+
+
+
+播
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1114#       发表于 2020-4-29 04:27
+
+
+
+
+播
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1115#       发表于 2020-4-29 04:28
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 1116#       发表于 2020-4-29 04:30
+
+
+
+
+轱辘鞋可以停了,她突了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1117#       发表于 2020-4-29 04:31
+
+
+
+
+早起吃面草，还是杯面，你麻太neet了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1118#       发表于 2020-4-29 04:33
+
+
+
+
+mea在吃面，我也在吃面<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我和mea
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1119#       发表于 2020-4-29 04:37
+
+
+
+
+宅家憋坏了想出门下馆子还行，听起来精神挺好的，蛮好的，之后补录播了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 1120#       发表于 2020-4-29 04:40
+
+
+
+
+唉，这破疫情早点结束吧。人都被憋坏了
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 1121#       发表于 2020-4-29 04:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">日已赢还早了，遥遥无期的3D
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 1122#       发表于 2020-4-29 05:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240883&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-4-28 23:46</a>
+
+你能进组我是万万没想到的，觉得官组犯弱智了</blockquote>
+犯不犯弱智的，我是进去捣乱了还是怎么的了，觉得我不干好事的话就指出来呗。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1123#       发表于 2020-4-29 05:33
+
+
+
+
+恐怖游戏卫星？
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 1124#       发表于 2020-4-29 06:09
+
+
+
+
+这个公众便所。。我在吃早饭啊喂！
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1125#       发表于 2020-4-29 06:15
+
+
+
+
+有人能说一下这是什么叫声吗？
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1126#       发表于 2020-4-29 06:24
+
+
+
+
+播的太早了…
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1127#       发表于 2020-4-29 06:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47241926&amp;ptid=1929631" target="_blank">JustW 发表于 2020-4-29 06:24</a>
+播的太早了…</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1128#       发表于 2020-4-29 07:25
+
+
+
+
+印象里已经不是第一次这人说想播但是不知道播啥就上个tc/或者就不播去睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">こだわりだなぁ
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1129#       发表于 2020-4-29 07:42
+
+
+
+
+bsyl 刚才tc边播边做封面 做完了404又开台了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1130#       发表于 2020-4-29 07:43
+
+
+
+
+变相耐久<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 1131#       发表于 2020-4-29 07:53
+
+
+
+
+  大早上起来居然打雀魂，直播间关闭。
+
+
+
+
+
+
+
+-----
+
+####  往世雷书  
+##### 1132#       发表于 2020-4-29 07:53
+
+
+
+
+羡慕，虽然她不是学生，但是也通过另一种方式可以自由安排时间
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1133#       发表于 2020-4-29 08:00
+
+
+
+
+雀魂之后会和天麻联动，她之后玩日麻应该就在雀魂了。
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 1134#       发表于 2020-4-29 08:12
+
+
+
+
+这作息也太健康了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1135#       发表于 2020-4-29 08:32
+
+
+
+
+早上第一节没课特意熬了一会夜，没想到咩姐居然是4点开播，不过这两个月半夜三四点开tc的情况也不少。。。
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 1136#       发表于 2020-4-29 08:34
+
+
+
+
+是准备玩怨灵？
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 1137#       发表于 2020-4-29 08:35
+
+
+
+
+早起看了一眼m楼新楼就发现你们车轱辘几十页，上一页有位老哥说的对，mea怎么想字幕组怎么干关我屁事，回归初心享受直播不好吗？
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 1138#       发表于 2020-4-29 08:37
+
+
+
+
+草为什么是血压麻将？享受不来滚了......
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104| + 1|欢乐多|
+| Kayz996| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1139#       发表于 2020-4-29 08:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47242433&amp;ptid=1929631" target="_blank">蒹葭公子 发表于 2020-4-29 08:37</a>
+草为什么是血压麻将？享受不来滚了......</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太真实了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1140#       发表于 2020-4-29 08:44
+
+
+
+
+“不，你享受不了她的直播”
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1141#       发表于 2020-4-29 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太真实了，我估计在家呆久了是真的不知道播啥了
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1142#       发表于 2020-4-29 08:46
+
+
+
+
+我也欣赏不来血压麻将，不过天天打麻将有中年家庭主妇那味了，小麻姨化程度越来越严重了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 1143#       发表于 2020-4-29 08:48
+
+
+
+
+听到她的声音就很幸福了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1144#       发表于 2020-4-29 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47240308&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-4-28 22:51</a>
+
+因为你说的东西我今天前面已经说过一遍了，aoe第二波已经没什么效果了抱歉
+
+
+其实算算时间 ...</blockquote>
+早上起来才看到回复 抱歉抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+麻将也看不懂所以挂在后台了，偶尔看看立绘自娱自乐<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1145#       发表于 2020-4-29 09:42
+
+
+
+
+真是自由啊mea<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1146#       发表于 2020-4-29 09:51
+
+
+
+
+刚刚想说这麻雀打得不错，然後就吃了个789s，血压要升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 1147#       发表于 2020-4-29 09:57
+
+
+
+
+完全不懂麻将啊
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1148#       发表于 2020-4-29 10:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不懂麻将，我很快乐
+
+
+
+
+
+
+
+-----
+
+####  spring_VOV  
+##### 1149#       发表于 2020-4-29 10:02
+
+
+
+
+熟练天狗
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 1150#       发表于 2020-4-29 10:04
+
+
+
+
+下家是天狗吧？咩姐这神操作也能连续两巡打铳牌，演技太差了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           
