@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-30 18:11** 
+> ## **本文件最后更新于2020-04-30 22:08** 
 
 
 
@@ -25143,4 +25143,1007 @@ echo 不可爱
 
 
 
-   
+
+
+-----
+
+####  Leutnant某囧  
+##### 1391#       发表于 2020-4-30 18:45
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-4-30 18:47 编辑 
+
+[https://b23.tv/BV1ek4y1r7mv](https://b23.tv/BV1ek4y1r7mv)原网站地址：[https://aidn.jp/wowa/](https://aidn.jp/wowa/)
+
+用这个网站做的，挺有意思
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1392#       发表于 2020-4-30 19:09
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：朝からずっと胃液が上がってきたり戻ったり上がったりってしてるんだけど一時的なものだと思って調子こいてココイチ３辛食ったらナイアガラの滝できちゃったんだが＾＾；
+メンヘラの体調悪いは7割、気持ちの持ちようみたいなとこあるけど今回のはまじで今夜が峠かもしれんので見送りよろしくでうｓ
+媒体：[]
+链接：[]
+时间：2020-04-30 11:07:53 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1255816137540947968
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1393#       发表于 2020-4-30 19:18
+
+
+
+
+饭盒也发了，rue，歇了歇了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1394#       发表于 2020-4-30 19:22
+
+
+
+
+今天一天没睡呢，明早见
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1395#       发表于 2020-4-30 19:39
+
+
+
+
+腹泻民亡了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 1396#       发表于 2020-4-30 19:47
+
+
+
+
+吃辣椒 吐彩虹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 1397#       发表于 2020-4-30 19:53
+
+
+
+
+明早见！我开始相信她在努力了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 1398#       发表于 2020-4-30 20:27
+
+
+
+ 本帖最后由 时之虫 于 2020-4-30 20:31 编辑 
+
+<img src="https://p.sda1.dev/0/7a24da4a032b8591885d5d739c751b6f/IMG_C60E374D12CB4710E1D242F8ADB7B5FA.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1399#       发表于 2020-4-30 20:32
+
+
+
+
+没想到会跟这几个人一块玩，主题很适合她就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 1400#       发表于 2020-4-30 20:32
+
+
+
+
+今晚过后不知道推特换什么banner 感觉比跟女友分手换头像还要伤感<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1401#       发表于 2020-4-30 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47262575&amp;ptid=1929631" target="_blank">hjcxiaowo 发表于 2020-4-30 20:32</a>
+今晚过后不知道推特换什么banner 感觉比跟女友分手换头像还要伤感</blockquote>
+估计头图会换成单人fanart吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一时也没想到啥更适合的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1402#       发表于 2020-4-30 20:35
+
+
+
+<blockquote>weiweiEX 发表于 2020-4-30 20:33
+估计头图会换成单人fanart吧一时也没想到啥更适合的</blockquote>
+我觉得可能是神楽组那个团子
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1403#       发表于 2020-4-30 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47262615&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-4-30 20:35</a>
+我觉得可能是神楽组那个团子</blockquote>
+感觉神乐组还没那么熟，概率应该不会很大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1404#       发表于 2020-4-30 20:44
+
+
+
+
+啊，这个联动，接下来gbr浓度会逐渐升高吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1405#       发表于 2020-4-30 20:44
+
+
+
+
+单人的可能性最大吧
+
+多人的话犬山和兔妈妈都有可能？
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 1406#       发表于 2020-4-30 20:45
+
+
+
+
+也许会不换吧
+
+syl   这好像是茄子和mea初次联动吧，首播一段时间后茄子和mea还有推特交往吗
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1407#       发表于 2020-4-30 20:48
+
+
+
+
+没茄子吧，茄子是下面一场啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1408#       发表于 2020-4-30 20:49
+
+
+
+
+挂神乐组头图，然后另外那俩挂的情头，不会显得很惨么
+
+还是挂单人图吧
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 1409#       发表于 2020-4-30 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47262750&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-4-30 20:48</a>
+
+没茄子吧，茄子是下面一场啊</blockquote>
+看岔了草
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1410#       发表于 2020-4-30 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">开局巫婆笑，秒退场
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1411#       发表于 2020-4-30 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道会不会连线啊……
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 1412#       发表于 2020-4-30 21:15
+
+
+
+
+要是……我说万一啊，大家懂得，真挂那个了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1413#       发表于 2020-4-30 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47263021&amp;ptid=1929631" target="_blank">cgz 发表于 2020-4-30 21:15</a>
+
+要是……我说万一啊，大家懂得，真挂那个了怎么办</blockquote>
+那就可以看404crew来出警了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1414#       发表于 2020-4-30 21:16
+
+
+
+
+连线环节已经没了，现在是播片，应该会有吧
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1415#       发表于 2020-4-30 21:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47263021&amp;ptid=1929631" target="_blank">cgz 发表于 2020-4-30 21:15</a>
+
+要是……我说万一啊，大家懂得，真挂那个了怎么办</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没必要贷款开团，真挂了再说
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1416#       发表于 2020-4-30 21:17
+
+
+
+
+要是挂双人的，肯定是商量好一起挂的，咩这方面还是很强的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1417#       发表于 2020-4-30 21:18
+
+
+
+
+弱智发散时间:mea前进的道路会越来越孤单吗？还是说会越来越充满陪伴？虽说信姬毕业了但还有mega在。能不能听到她们的合唱呢？也不知道mea毕业后她能拿起爱小姐这个号来播吗？
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1418#       发表于 2020-4-30 21:19
+
+
+
+
+咩身边已经挂了两个粉毛了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1419#       发表于 2020-4-30 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管做什么，只要想做好、想留下来，这条路都一定是充满荆棘的，和自己一块儿走的人一定会越来越少，就是不知道孤独和平庸更害怕哪一个了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|确实|
+| 离心| + 1|谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1420#       发表于 2020-4-30 21:25
+
+
+
+
+估计短时间不会换头图的，也不用急着贷款
+
+织田信姬也没了，其实是mea这个时代的vtb越来越少了，mea也算是vtb里比较能活的了。
+
+想想还是挺欣慰的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1421#       发表于 2020-4-30 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47263054&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-4-30 21:19</a>
+
+咩身边已经挂了两个粉毛了</blockquote>
+我怀疑你……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1422#       发表于 2020-4-30 21:27
+
+
+
+
+你楼太阴湿了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1423#       发表于 2020-4-30 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47263103&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-4-30 21:25</a>
+
+估计短时间不会换头图的，也不用急着贷款
+
+织田信姬也没了，其实是mea这个时代的vtb越来越少了，mea也算是vt ...</blockquote>
+是不是该感谢狐皇的不让任何人引退的宣言啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1424#       发表于 2020-4-30 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">挂什么不重要，自己开心就行了  虽然没有这个迹象，我倒是担心她难受太久的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1425#       发表于 2020-4-30 21:33
+
+
+
+
+苟，我疯狂的苟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+——所以说可以的话，打钱不一定是第一优先级，观众也该试着努力变得有趣一点，这样留下来的概率会更大
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1426#       发表于 2020-4-30 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有趣点指的是像mea观众这种“有趣”吗
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 1427#       发表于 2020-4-30 21:34
+
+
+
+
+反正她一句麻烦死了，不换的可能性是最大的，要不然也不会到现在还是一张皮了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1428#       发表于 2020-4-30 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">之前tc的时候不是说过会考虑换个单人头图，但还没决定换哪个
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1429#       发表于 2020-4-30 21:37
+
+
+
+
+如果我日语够好我也想发挥出水论坛的风采啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1430#       发表于 2020-4-30 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47263198&amp;ptid=1929631" target="_blank">cgz 发表于 2020-04-30 21:34:55</a>
+反正她一句麻烦死了，不换的可能性是最大的，要不然也不会到现在还是一张皮了 ...</blockquote>看成“反正一句麻死了”，吓死我了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1431#       发表于 2020-4-30 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47263230&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-4-30 21:37</a>
+如果我日语够好我也想发挥出水论坛的风采啊</blockquote>
+你水论坛的风采，难道是指跟mea说
+“mea酱啊，我观察了你的粉丝，实在非常有趣”
+“你粉丝的真情实感总是让人印象深刻啊”
+“和你粉丝的深刻交流总是让我深深思考”
+是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1432#       发表于 2020-4-30 21:43
+
+
+
+ 本帖最后由 JustW 于 2020-4-30 21:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">家主这播片让我梦回两年前
+
+syl：虚拟章金莱大草
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1433#       发表于 2020-4-30 21:50
+
+
+
+
+居然没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1434#       发表于 2020-4-30 21:50
+
+
+
+
+家主这是看了咩的兔子人联动？
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1435#       发表于 2020-4-30 21:54
+
+
+
+
+管人圈真不值得深刻思考<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我以前“深刻思考”的结论就是这圈子早走早解脱，然后我就放弃思考了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1436#       发表于 2020-4-30 21:59
+
+
+
+
+确实，不过不会有人现在还在混管人圈吧，那多少沾点脑瘫
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1437#       发表于 2020-4-30 21:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕业赠言来了
+
+
+“红豆泥红豆泥？”
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1438#       发表于 2020-4-30 21:59
+
+
+
+
+值得<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1439#       发表于 2020-4-30 22:00
+
+
+
+
+mea的信果然是放到最后一个
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1440#       发表于 2020-4-30 22:01
+
+
+
+<img src="https://p.sda1.dev/0/f8158c9140bfb7561b126c24f2f751d5/IMG_55EAA1265CAE12CBFEC059B8B459EF6B.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1441#       发表于 2020-4-30 22:01
+
+
+
+
+居然是最后登场
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 1442#       发表于 2020-4-30 22:03
+
+
+
+
+  也挺好，大头对MEA还是很好的。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1443#       发表于 2020-4-30 22:03
+
+
+
+
+我又相信爱了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1444#       发表于 2020-4-30 22:03
+
+
+
+
+唉……
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1445#       发表于 2020-4-30 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">听不了哭
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 1446#       发表于 2020-4-30 22:05
+
+
+
+<blockquote>yuandi20 发表于 2020-4-30 21:29
+是不是该感谢狐皇的不让任何人引退的宣言啊，鱼板玉米贴贴</blockquote>
+鱼板玉米贴贴！
+
+
+
+
+
+ 
