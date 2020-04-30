@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-30 22:01** 
+> ## **本文件最后更新于2020-05-01 00:02** 
 
 
 
@@ -10818,4 +10818,445 @@ mk2又倒了</blockquote>
 
 
 
-                              
+
+
+-----
+
+####  weiweiEX  
+##### 3586#       发表于 2020-4-30 22:46
+
+
+
+
+你楼的最爱来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 3587#       发表于 2020-4-30 22:49
+
+
+
+
+我猜一手一起看二创，贴贴!
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3588#       发表于 2020-4-30 22:50
+
+
+
+
+好起来了！
+
+
+
+
+
+
+
+-----
+
+####  tyyyaas  
+##### 3589#       发表于 2020-4-30 22:51
+
+
+
+
+猜一手apex联动
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3590#       发表于 2020-4-30 22:52
+
+
+
+
+在床上看到一口老血堵在喉咙里，跳起来的时候闪到了腰。所以奉劝大家不要当暗黑贴贴人，伤身体（
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 3591#       发表于 2020-4-30 22:54
+
+
+
+
+看来还有被吸血的价值，还没有完全过气<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3592#       发表于 2020-4-30 22:56
+
+
+
+
+贴贴！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 3593#       发表于 2020-4-30 22:56
+
+
+
+
+不要lol不要lol不要lol
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3594#       发表于 2020-4-30 22:57
+
+
+
+
+不要lol +1 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3595#       发表于 2020-4-30 22:58
+
+
+
+
+必是apex，不晓得贴贴人还有钱么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3596#         楼主| 发表于 2020-4-30 22:59
+
+
+
+
+总不会把咖啡厅放B站来吧夸哥<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3597#       发表于 2020-4-30 22:59
+
+
+
+
+mc lol apex 再有什么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 3598#       发表于 2020-4-30 23:00
+
+
+
+
+上次咩赚这次夸赚，轮着吸才能看起来长久啊，不过俺寻思五一后订阅反超了这cp也没啥价值了，抓紧时间贴最后一把
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3599#       发表于 2020-4-30 23:01
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-4-30 23:06 编辑 
+
+你楼又要开心几天了<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+作为暗黑贴贴民避难去了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3600#       发表于 2020-4-30 23:04
+
+
+
+
+咖啡厅真的能放b站吗，不可能的， 放了的话那梁木可是要...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3601#       发表于 2020-4-30 23:04
+
+
+
+
+开在哪个直播间都还没定，要不要根据两种情况分别设计一下黑屁思路
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3602#       发表于 2020-4-30 23:06
+
+
+
+
+事到如今无所谓了，还能贴几次啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3603#       发表于 2020-4-30 23:08
+
+
+
+
+1.开在mea直播间
+2.开在aqua直播间
+a.准备了企划
+b.没准备企划
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥漏下的情况吗，可以开始安排了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 3604#       发表于 2020-4-30 23:09
+
+
+
+
+肯定这次开在夸直播间啊，带天使都算好了，五一假期打的钱肯定比上次多好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3605#       发表于 2020-4-30 23:09
+
+
+
+
+没准备企划 ---》 敷衍， 完成任务
+
+
+还有思路吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3606#       发表于 2020-4-30 23:10
+
+
+
+ 本帖最后由 2014720 于 2020-4-30 23:12 编辑 
+
+阿夸发布的那肯定在阿夸直播间啊，难道还要让某人再吸一次血吗<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+至于剧情，上次lol谁写的那个剧本呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+不亏好吧，上次憋了那么久，哪次打钱涨粉多不一定呢
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3607#       发表于 2020-4-30 23:13
+
+
+
+
+不如分析一下她们为什么只在b站联动
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3608#       发表于 2020-4-30 23:13
+
+
+
+
+**的下一次联动要么是咖啡厅要么是在别人的直播间
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3609#       发表于 2020-4-30 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47264283&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-30 23:13</a>
+不如分析一下她们为什么只在b站联动</blockquote>
+唯独这个我是真的车不动啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3610#       发表于 2020-4-30 23:21
+
+
+
+
+车，都可以车，可劲儿车(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3611#       发表于 2020-4-30 23:26
+
+
+
+
+究竟是夸皇的本性在holo得到了放大还是holo残忍的剥夺了小凜对小麻的感情？
+
+
+
+《假如大亏是个人势》
+
+
+
+
+
+                             
