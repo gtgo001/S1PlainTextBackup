@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 02:06** 
+> ## **本文件最后更新于2020-05-01 04:06** 
 
 
 
@@ -6050,7 +6050,7 @@ F有</blockquote>
 
 
 
-点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_nZHp8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_W81Z9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10557,7 +10557,7 @@ V就是一个方便和观众保持距离凹人设的工具，我要是有个妹�
 
 
 
-<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_CuH6U" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_zlVzZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 这个女人今晚上ARK
 
@@ -12628,9 +12628,9 @@ sc分成10有89是阶梯了
 
  本帖最后由 alcoholic1000 于 2020-4-30 22:31 编辑 
 
-男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_K8HrE" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_V8z0l" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
-<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_MMk3Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_WvM7o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19950,4 +19950,519 @@ vr又不是虹在扶
 
 
 
-                
+
+
+-----
+
+####  proxima  
+##### 14520#       发表于 2020-5-1 02:21
+
+
+
+
+我真的跑去用工地日语又听了一遍海苔男的直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+“300人です、最初。というかここ数ヶ月前までは300人でした。”“今は、びっくりです。10倍と言っても過言ではございません。”
+
+她真的说的是十倍，怪不得海苔男最近这么膨胀。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+不过木口皇级现在不都是5k了吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 14521#       发表于 2020-5-1 02:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">海苔男3k会员我真的有点不信。。。
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 14522#       发表于 2020-5-1 02:23
+
+
+
+
+今晚点进西西直播看一眼，当时实时评论那个屌样，两千多踩有一半是加藤纯一那边过来的吧
+
+
+
+
+
+
+
+-----
+
+####  妹控使徒  
+##### 14523#       发表于 2020-5-1 02:26
+
+
+
+
+本来还想去铁铲楼问问想了下还是就这儿直接带着问了吧------------彩虹社那个考拉德比鲁的前世有挖到吗 主要是前世身份而不是真人形象  德比子那2个NICO生再现放送+追悼放送堪称神回  再加上他和大多数人的联动都做的很出色  整体能力出色到恐怖  感觉前世也是个大物   难道是NICO生血腥场的牺牲者之一?
+
+
+另 最近偶然在萌娘百科看了张锤子的风波信息页  虽然之前了解些但这次算是终于了解了详细  但全文的味道似乎略anti  总之好奇下它说的基本是正确的?   在意是否有自己加私料尤其是歪曲事实
+
+
+再另外  上面有人提到的狐皇洗粉是怎么回事? 并没有特别关注他只是作为一般的萌狐狸和HOLO劳模而有一定好感  是发生过什么事件还是说预防发生什么事件吗?  
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 14524#       发表于 2020-5-1 02:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的纯良来了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14525#       发表于 2020-5-1 02:31
+
+
+
+
+狐狸洗粉是一个长期而漫长的项目吧，简单来说就是不读sc，整天yygq，时不时敲打粉丝，不搞粉丝回馈直播，时不时播些粉丝不喜欢的东西（迪士尼女性向手游），与木口星高强度联动等等。产生的结果就是目前狐狸的同接和sc都在杏箱中部，整天被隔壁调侃为狐酱。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 14526#       发表于 2020-5-1 02:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14527#       发表于 2020-5-1 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266123&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-1 02:21</a>
+
+我真的跑去用工地日语又听了一遍海苔男的直播
+
+“300人です、最初。というかここ数ヶ月前までは300人 ...</blockquote>
+确定突破5k的只有龙皇吧，再就是狗子之前好像突破4k了，其他皇的好像没有具体数据。3k放在杏应该也能前五或者蹭个皇位了233
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 14528#       发表于 2020-5-1 02:33
+
+
+
+
+与其说狐狸在洗粉，不如说狐狸是在养成大家庭粉。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14529#       发表于 2020-5-1 02:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266123&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-1 02:21</a>
+
+我真的跑去用工地日语又听了一遍海苔男的直播
+
+“300人です、最初。というかここ数ヶ月前までは300人 ...</blockquote>
+会限说的吗？木口皇级是3，4000吧  5000只有龙皇一人
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14530#       发表于 2020-5-1 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266188&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-1 02:33</a>
+
+确定突破5k的只有龙皇吧，再就是狗子之前好像突破4k了，其他皇的好像没有具体数据。3k放在杏应该也能前五 ...</blockquote>
+我是这么看的，龙皇5k狗子4k说明大亏兔皇船皇润姨星街这些也差不远。可见木口整体会员数在蹭蹭往上涨。其他人不是没那么多，只是她们不见得会说
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14531#       发表于 2020-5-1 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266201&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-1 02:35</a>
+
+我是这么看的，龙皇5k狗子4k说明大亏兔皇船皇润姨星街这些也差不远。可见木口整体会员数在蹭蹭往上涨。其 ...</blockquote>
+确实，最近杏开始集体重视会员活动，应该也有一个大幅上升的动态。主要还是能搞真正的会限直播了，之前被anti把链接放出去搞了好几次事儿，404就离谱233
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14532#       发表于 2020-5-1 02:40
+
+
+
+
+确实 夸兔船星应该也不少 3000肯定有 4000可能有
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 14533#       发表于 2020-5-1 02:41
+
+
+
+
+后两件都是屁大点事，你要只是路人粉就没必要去问个臭了
+
+
+pax这还没有达到住持的高度嘛，不过说话时的声音比她好听多了，出于对vr无脑暴兵牺牲品的怜悯还是i了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14534#       发表于 2020-5-1 02:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/01/024519bmn6nb63mc64n4pa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWm5AkCUEAIKi8R.jpg</strong> (96.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-1 02:45 上传
+
+
+
+
+
+
+发张早班小天使，死线天使昨天终究还是没能播，今天加油吧。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14535#       发表于 2020-5-1 02:50
+
+
+
+
+太纯良了，草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 14536#       发表于 2020-5-1 02:50
+
+
+
+
+会限不是有链接也得是会员身份才能看吗？我会限看得晚，难道以前是有链接就能看？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14537#       发表于 2020-5-1 02:51
+
+
+
+
+鱼头像老哥一天没吸小天使有没有戒断反应<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 14538#       发表于 2020-5-1 02:52
+
+
+
+
+有会员才能看是刚出的功能，以前一直都是发非公开链接，只要有链接就可以看
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 14539#       发表于 2020-5-1 02:52
+
+
+
+
+纯良摩多摩多，端正你楼巨魔气息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14540#       发表于 2020-5-1 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266266&amp;ptid=1924531" target="_blank">cyz542 发表于 2020-5-1 02:50</a>
+
+会限不是有链接也得是会员身份才能看吗？我会限看得晚，难道以前是有链接就能看？ ...</blockquote>
+似乎这个月才修复的 之前能看 
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14541#       发表于 2020-5-1 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266266&amp;ptid=1924531" target="_blank">cyz542 发表于 2020-5-1 02:50</a>
+
+会限不是有链接也得是会员身份才能看吗？我会限看得晚，难道以前是有链接就能看？ ...</blockquote>
+不是，之前的会限其实是叫私密直播（？），把链接放只有会员能看到的社区里，如果有内鬼把链接放给别人，就也能看。
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 14542#       发表于 2020-5-1 02:54
+
+
+
+
+。原来如此
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14543#       发表于 2020-5-1 02:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266275&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-1 02:51</a>
+
+鱼头像老哥一天没吸小天使有没有戒断反应</blockquote>
+还好，b站官组今天放了好几块大熟肉，晚上打wow又放了之前的歌回当bgm，还是很满足的。下午看到推就做好没得直播看的准备了。
+
+
+
+
+
+
+
+-----
+
+####  KarsusNeko  
+##### 14544#       发表于 2020-5-1 02:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266281&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-1 02:52</a>
+似乎这个月才修复的 之前能看</blockquote>
+不是修复，是没有那个功能，以前妥协的办法是发非公开视频/直播的链接，然后播主还要嘱托大家不要公开出去。
+
+—— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14545#       发表于 2020-5-1 03:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/01/030948dv1k1e44z11mj1t1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-gq7bZfT3cSku-ht.jpg.medium.jpg</strong> (102.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-1 03:09 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/01/030939h13k1wyjis1835wd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-4klkZaT1kSfs-l3.jpg</strong> (102.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-1 03:09 上传
+
+
+
+
+
+
+来点四月木口斗虫。狐酱继续守皇门。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 14546#       发表于 2020-5-1 03:41
+
+
+
+
+京华有什么风波？牡丹还是谜语人？
+
+
+
+
+
+               

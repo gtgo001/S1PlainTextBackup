@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 02:07** 
+> ## **本文件最后更新于2020-05-01 04:09** 
 
 
 
@@ -3967,4 +3967,2525 @@ crew的原因容易猜到，主要是亏那边好像咩粉也不待见啊不管�
 
 
 
-                                           
+
+
+-----
+
+####  単推し人  
+##### 1710#       发表于 2020-5-1 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266004&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-1 02:02</a>
+
+因为你咩播的少我们心里痒就跑去看别的了啊，拿早期的三群举例，等你咩播的时间真的能疯，成天扭曲黒屁车 ...</blockquote>
+为啥会心里痒呢，咩没播的时候我就想着咩什么时候播，看看录播剪辑之类或者做些别的事，别的v有任何可以看的地方吗，为什么会去看呢，我只想看咩，别的v圈的啥我一概不想看，闲的时候做些别的事看看书玩玩游戏也好呀，或者想想咩，过一个充满咩的生活，真好
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1711#       发表于 2020-5-1 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266031&amp;ptid=1929631" target="_blank">刘邦去吃霸王餐 发表于 2020-05-01 02:07:01</a>
+mk2正在做毕设呢，哪有空水论坛</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼怎么不是毕设就是上学，大一点的考研，没有老男人了吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1712#       发表于 2020-5-1 02:09
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-1 02:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266002&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 02:01</a>
+你觉得是那就是吧，你从mea这看到的双推多还是多亏了mea早期粉丝群体的包容性，病栋作为实质v综什么阿猫 ...</blockquote>
+不是，你总是说因为过去的xxx过去的xxx导致了现在的群体<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看一个群体不应该看大部分么，你揪着几个的个例傻逼事一个劲的生梁木
+是要学she之前说，我要让所有喜欢paryi的mea粉清醒清醒（不是群里说的），来一个我要让所有喜欢aqua的mea粉清醒清醒吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+现在这群体有什么不好？有什么无事生非的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1713#       发表于 2020-5-1 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266011&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-1 02:04</a>
+
+纠正一点，转生夸群那个是原超绝系五群，因为爱讨论炸群后不管怎么重建都会被封，怀疑是不是群名有毒所以 ...</blockquote>
+是的，我可以作证，我一开始就是5群的。炸群了我才去的NGA
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1714#       发表于 2020-5-1 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266011&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-1 02:04</a>
+
+纠正一点，转生夸群那个是原超绝系五群，因为爱讨论炸群后不管怎么重建都会被封，怀疑是不是群名有毒所以 ...</blockquote>
+是的，我可以作证，我一开始就是5群的。炸群了我才去的病栋
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1715#       发表于 2020-5-1 02:09
+
+
+
+
+mk2给泥潭氪了多少个验证码
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1716#       发表于 2020-5-1 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266010&amp;ptid=1929631" target="_blank">M829A4 发表于 2020-5-1 02:04</a>
+
+所以你现在成了一个废物，垃圾话只敢往m楼倒
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+不知道你达成了什么成就，才觉得自己配得上说我是废物
+
+不过两年打来打去得下来，确实是我先累了，自己能力不足这点，我还是要承认。
+
+至于我说的是不是垃圾话，还在看管人的各位比我这个已经退了坑的人清楚
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1717#       发表于 2020-5-1 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266040&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-1 02:08</a>
+为啥会心里痒呢，咩没播的时候我就想着咩什么时候播，看看录播剪辑之类或者做些别的事，别的v有任何可以 ...</blockquote>
+大概是热情太多太盲目了吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1718#       发表于 2020-5-1 02:11
+
+
+
+
+老男人这个点还不睡等着猝死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1719#       发表于 2020-5-1 02:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266049&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-05-01 02:09:55</a>
+不知道你达成了什么成就，才觉得自己配得上说我是废物
+
+不过两年打来打去得下来，确实是我先累了，自己能 ...</blockquote>就凭你希望我死，我希望你活
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1720#       发表于 2020-5-1 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266043&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 02:09</a>
+不是，你总是说因为过去的xxx过去的xxx导致了现在的群体看一个群体不应该看大部分么，你揪着几个 ...</blockquote>
+有一说一，最后一句话不就是mk2现在身体力行的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1721#       发表于 2020-5-1 02:12
+
+
+
+
+我今天也是负能量爆棚才跑来打搅各位，还是赔个不是。
+
+我先崩撤卖遛了，各位保重。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1722#       发表于 2020-5-1 02:12
+
+
+
+<blockquote>Sanguine 发表于 2020-5-1 01:51
+其实他的观点我还蛮理解的，毕竟单推到魔怔的粉丝必然anti所有同行，简直是内娱基操，反而V圈能有多推人 ...</blockquote>
+内地娱乐圈更多师承韩娱吧，国内vtb圈子受到的是日本偶像圈的影响，我看日本偶像圈dd也不少
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1723#       发表于 2020-5-1 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266068&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:12</a>
+有一说一，最后一句话不就是mk2现在身体力行的吗</blockquote>
+mk2去年我就跟他扯过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扯不动啊，能一直念叨一年我也是服了（真心的）
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1724#       发表于 2020-5-1 02:13
+
+
+
+
+现在这咩莫名其妙的粉丝群体全是18年末开始国内爆发的时候埋下的祸根，19年只是分化加剧了裂痕
+当然现在天下是杏仁的，我蹲在这m楼就好<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1725#       发表于 2020-5-1 02:13
+
+
+
+
+dd这词就是从日娱圈来的吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1726#       发表于 2020-5-1 02:15
+
+
+
+<blockquote>単推し人 发表于 2020-5-1 02:08
+为啥会心里痒呢，咩没播的时候我就想着咩什么时候播，看看录播剪辑之类或者做些别的事，别的v有任何可以 ...</blockquote>
+因为咩姐去年还没安稳下来之前播的确实不多，而且在大部分粉丝心中作为vtb也不是不可替代的。现在咩姐直播时间日均能有2小时，还有各种bot录像站帮助粉丝
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1727#       发表于 2020-5-1 02:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266021&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-1 02:05</a>
+
+别右了，我这个右派有被侮辱到.jpg
+
+
+“求求你们搞点资本主义吧，这么封建实在太low了”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">左派右派都是正常思想，但右倾和左倾社会就不是单纯的思想差别了
+
+
+还有总有乐子人当anti时表示自己是圈外人，没推——鬼信啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+真正的后现代迷茫青年不可能有如此长时间的专注力去坚持一件事情，除非他本身就身在这个阶级中，而且很自然的要维护他自己的阶级处于更高的优越权上，所以才会坚持他的“斗争”，甚至不惜出卖自己的脸面和智商——因为他不是没有自己的信仰
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1728#       发表于 2020-5-1 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266052&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-1 02:10</a>
+
+大概是热情太多太盲目了吧</blockquote>
+热情全给咩就好了，这样会很开心的，没有比她更可爱的人了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1729#       发表于 2020-5-1 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266099&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-05-01 02:16:23</a>
+真正的后现代迷茫青年不可能有如此长时间的专注力去坚持一件事情，除非他本身就身在这个阶级中，而且很 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又要回到黑暗森林了？不要暴露自己的推
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1730#       发表于 2020-5-1 02:19
+
+
+
+
+日本偶像圈不买周边不跑握手会在那白嫖的DD不被老害看不起才怪哦
+
+自称DD结果不花钱或者只给某几个花钱，那可算了吧.jpg
+
+V圈好歹割韭菜没那么厉害，轻量化适合快速进出，草台的同时也对上了国内大多数的低消费水准，不至于变成石油佬纯自娱自乐
+
+而且官方斗虫不太严重（除了BLS），没搞个总选举啥的直接割裂粉丝群，反倒不少单推抱怨大家庭粉，也算有好有坏吧
+
+至少现在的状态你麻还能过的不错，借助二次元的属性标签和设定，其它新人也还有点出头的机会
+404AI智障归智障，虹杏体量小到根本没法把持流量端口，大家一起被恶心也是微妙的众生平等
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1731#       发表于 2020-5-1 02:19
+
+
+
+
+可恶，水到现在都没有crewanti告诉我夸的黑料吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总不能meaquaanti全靠脑补吧
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1732#       发表于 2020-5-1 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266080&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 02:13</a>
+mk2去年我就跟他扯过了扯不动啊，能一直念叨一年我也是服了（真心的） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定他以前还想着让粉丝清醒呢，现在还能有几分真情实感？就我观察mk2也分活跃期和沉寂期的，现实生活一忙起来他就开始潜水了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1733#       发表于 2020-5-1 02:21
+
+
+
+
+泥潭搜索凑阿库娅的十二桩罪，有真相
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1734#       发表于 2020-5-1 02:21
+
+
+
+
+从18年底人气爆发性增长开始算的话，国内咩粉群体早期形成的过程还挺有意思的。
+
+官群早期基本算是无管理的（群管理标配：完全不冒泡的群主菇妈，基本不冒泡的帕里，大部分时候不冒泡的记者。正式设置管理是blg工商前夕扩群时的事了）
+
+因为不允许重复加群所以人都是隔开的，每个群自由演化出了截然不同的生态，这可能就是日后群体分化的原型了。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1735#       发表于 2020-5-1 02:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266115&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:19</a>
+可恶，水到现在都没有crewanti告诉我夸的黑料吗总不能meaquaanti全靠脑补吧 ...</blockquote>
+黑料只能看前世呗
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1736#       发表于 2020-5-1 02:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266128&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-05-01 02:21:59</a>
+从18年底人气爆发性增长开始算的话，国内咩粉群体早期形成的过程还挺有意思的。
+
+官群早期基本算是无管理的 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以还是群的错，不加群屁事没有
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 1737#       发表于 2020-5-1 02:23
+
+
+
+
+不是，用霹雳布袋戏的七字ID在M楼只有一个人，害搁这装傻呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1738#       发表于 2020-5-1 02:23
+
+
+
+ 本帖最后由 Sanguine 于 2020-5-1 02:27 编辑 
+
+十二宗罪的贴看了啊，怎么结合回帖总有种微妙的误差感，mk2老兄是不是脑补太多细节了
+syl，相对于国内cp毒唯那种喜欢a就不能喜欢b，喜欢a还去给bcd打钱就是不对，以及整体毒唯地位高于cp粉的迷之空气，v这边能容忍在a的直播间随便挂bcd的牌子的氛围太自由了（果然比烂是拉高幸福感的最快方式（
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 1739#       发表于 2020-5-1 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266115&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:19</a>
+ 可恶，水到现在都没有crewanti告诉我夸的黑料吗总不能meaquaanti全靠脑补吧 ...</blockquote>
+你可以翻翻夸楼/咩夸楼前面的部分，还有总结性的十二宗罪楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1740#       发表于 2020-5-1 02:25
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 02:09
+不是，你总是说因为过去的xxx过去的xxx导致了现在的群体看一个群体不应该看大部分么，你揪着几个 ...</blockquote>
+过去的问题就是导致了现在圈子的畸形，你为什么一直要否认这一点？？？mea的粉丝群体因为开始比较快的增长速度面对了大量发展中问题，这些问题的代价却由粉丝群体中偏向咩的粉丝甚至是咩姐来承担：粉丝群体开始较为包容的风气成为了对咩姐合理踩一捧一甚至抹黑诋毁的温床；在相当一部分的粉丝里咩姐被去中心化，稍好一点的是被各路粉头养的只看cp的。。。这些问题本来很多都能避免，不是吗？？？
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1741#       发表于 2020-5-1 02:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266137&amp;ptid=1929631" target="_blank">ReinH 发表于 2020-05-01 02:23:14</a>
+不是，用霹雳布袋戏的七字ID在M楼只有一个人，害搁这装傻呢</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么记得泥潭之前也有个剑非道头像的人来着。。。。。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1742#       发表于 2020-5-1 02:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266115&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:19</a>
+可恶，水到现在都没有crewanti告诉我夸的黑料吗总不能meaquaanti全靠脑补吧 ...</blockquote>
+梁木确实有产生原因的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+从v的角度大体概括起来就是区别对待吧，我印象比较深的就是大亏和mea联动完转头在404说这周和西西玩的很开心，我就心生梁木再也没看过大亏了，类似的事有过好几回
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1743#       发表于 2020-5-1 02:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266128&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-1 02:21</a>
+从18年底人气爆发性增长开始算的话，国内咩粉群体早期形成的过程还挺有意思的。
+
+官群早期基本算是无管理的 ...</blockquote>
+1群没去过听说全是老害挖掘机王国民，2群混沌不堪，3群现在算个小环mea圈吧，也有大量的贴贴人从这里诞生，4群是游戏群，剩下的就没啥精力去了解了
+和现在现状挺符合的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1744#       发表于 2020-5-1 02:28
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 02:25
+梁木确实有产生原因的啊
+
+从v的角度大体概括起来就是区别对待吧，我印象比较深的就是大亏和mea联动 ...</blockquote>
+去年五月黄金周总结，自己b限提了和西西联动提了就是没提b限联动玩lol的mea。区别对待咩姐一直可以的，从夸到贴贴人再到crew都是
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1745#       发表于 2020-5-1 02:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266153&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 02:25</a>
+梁木确实有产生原因的啊
+从v的角度大体概括起来就是区别对待吧，我印象比较深的就是大亏和mea联动 ...</blockquote>
+你举得例子都快满一周年了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也该更新版本了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1746#       发表于 2020-5-1 02:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266148&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 02:25</a>
+过去的问题就是导致了现在圈子的畸形，你为什么一直要否认这一点？？？mea的粉丝群体因为开始比较快的增 ...</blockquote>
+那你做时光机穿越回过去避免啊，要么就去引走弹橄榄v⭕️啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管现在，就想着清算过去吗
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1747#       发表于 2020-5-1 02:29
+
+
+
+
+要我说就是早期官组的问题，做翻译不老老实实做翻译，剪视频总要给人灌输自己认为的“mea是那样的人”的观念。导致群体的认知偏差和割裂
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1748#       发表于 2020-5-1 02:29
+
+
+
+
+当初谁家不是“包容”的，那年头木口连单人群都没，里面也全都是聊p家的
+
+混沌之初当然是扎堆在一起的，然后慢慢分化，最终各自去他们该去的地方
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1749#       发表于 2020-5-1 02:29
+
+
+
+
+就算指出了他们的“推”或者说优越感的来源，也不一定对乐子人有效啊（这里我不是说拿着黑料互炸的问题）
+
+首先双标的基操就是别人言行一致自己可以双标
+
+其次主动自我矮化的犬儒作风和网络上的表演的确可以让人立于不败之地
+
+是，他心里可能恨不得问候你全家，但他还是可以打字“就这？我两边一起黑哦”然后在地上打滚
+更别说还有用抽象话或者别的什么怪话降低交流效率抵抗伤害的手段
+
+最好的解决方法当然是自己忍着…毕竟一不能真人快打二不方便直球人身攻击（何况也没啥杀伤力）
+
+不管最后时间会不会证明他们自己的空虚，我们又能从“他做的事毫无意义”上获得多少精神胜利，我们都会毫无疑问地被某种程度上恶心到
+
+所以还是先点防御力吧——当然，别去犬儒化
+
+正道的光.jpg
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1750#       发表于 2020-5-1 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266166&amp;ptid=1929631" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-1 02:29</a>
+你举得例子都快满一周年了也该更新版本了。</blockquote>
+以后我就没关注过大亏的东西了啊，往后都是云的了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1751#       发表于 2020-5-1 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266139&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:23</a>
+
+十二宗罪的贴看了啊，怎么结合回帖总有种微妙的误差感，mk2老兄是不是脑补太多细节了 ...</blockquote>
+都是梁木，没亲历的别去看，很容易被带偏思想
+
+或者辩证的去看
+
+而且要认清一个基本现实，即企业势都是资本控制的中产阶级，没有多少自我选择权
+
+
+OK，没事了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 1752#       发表于 2020-5-1 02:30
+
+
+
+ 本帖最后由 素人不相识 于 2020-5-1 02:31 编辑 
+
+我的梁木产生得有点怪
+
+原本只是想更加好好学习而选择从贴贴变单推，没想到单推后，不时地回忆起之前的点滴，莫名就有了少量梁木<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然也就顶多是梁木，黑倒是没啥好黑的，毕竟v圈大多都是屁大点事
+
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1753#       发表于 2020-5-1 02:32
+
+
+
+<blockquote>2014720 发表于 2020-5-1 02:28
+1群没去过听说全是老害挖掘机王国民，2群混沌不堪，3群现在算个小环mea圈吧，也有大量的贴贴人从这里诞生 ...</blockquote>
+圈子的野蛮生长，mea是前几的受益者，但却是最大的受害者。她遭受了最多的恶意，被带了最多的节奏，被人无数次双标对待，其他国内火的vtb可是有公司/经纪人当保护，咩姐呢？
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 1754#       发表于 2020-5-1 02:32
+
+
+
+
+我的梁木是被mk2种的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1755#       发表于 2020-5-1 02:33
+
+
+
+
+那就更怪了，屡屡罢工，yagoo到底对大亏有多少控制力
+
+要说逼着liver当数字厨的话，那几个摸鱼怪怎么解释
+
+大亏哪怕是个人势，只要还是这个发展路线，联动起来最后没话说的情况大概就不太会改变
+
+至于粉丝群体的推波助澜是另一个问题
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1756#       发表于 2020-5-1 02:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266183&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 02:32</a>
+圈子的野蛮生长，mea是前几的受益者，但却是最大的受害者。她遭受了最多的恶意，被带了最多的节奏，被人 ...</blockquote>
+不，你别把这些绑你mea姐身上去好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这么爱绑架你mea姐，能分析一下有人无端发i love meaqua，你mea姐回了个我也想和aqua打麻将吗
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1757#       发表于 2020-5-1 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266189&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-05-01 02:33:39</a>
+那就更怪了，屡屡罢工，yagoo到底对大亏有多少控制力
+
+要说逼着liver当数字厨的话，那几个摸鱼怪怎么解释
+
+ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这些问题你要等到木口真爆炸才会知道了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1758#       发表于 2020-5-1 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266193&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 02:34</a>
+不，你别把这些绑你mea姐身上去好吧
+这么爱绑架你mea姐，能分析一下有人无端发i love meaqua，你m ...</blockquote>
+这点还是哟澄清一下，是有人发sc说想看mea和夸打麻将，mea回的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|原来是这样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1759#       发表于 2020-5-1 02:36
+
+
+
+ 本帖最后由 Sanguine 于 2020-5-1 02:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266179&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-1 02:30</a>
+都是梁木，没亲历的别去看，很容易被带偏思想
+
+或者辩证的去看
+
+而且要认清一个基本现实，即企业势都是资本 ...</blockquote>
+草生，看来还是要自己去扒一遍前世视频再得结论，不然想双推咩夸总觉得心里不踏实，怕咩真被大亏仙人跳骗感情还骗钱（指中国财布）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1760#       发表于 2020-5-1 02:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266193&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-01 02:34:44</a>
+不，你别把这些绑你mea姐身上去好吧
+这么爱绑架你mea姐，能分析一下有人无端发i love meaqua，你mea姐回 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后又提了一下舞元
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1761#       发表于 2020-5-1 02:37
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 02:29
+那你做时光机穿越回过去避免啊，要么就去引走弹橄榄v⭕️啊不管现在，就想着清算过去吗 ...</blockquote>
+清算过去不应该是由那些人来弥补他们犯的过错吗？？？风气确实变好了，但是造成现在这种情况的那几个贴贴粉头/官组成员装死或者退坑，他们把这些必须纠正的甩给别人做自己跑了还有理？事后还可以在动态里感叹“酒厂的人很可怜”（风见）或者“我们官组做的好你们看不到”（老宅）？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1762#       发表于 2020-5-1 02:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266193&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 02:34</a>
+
+不，你别把这些绑你mea姐身上去好吧
+
+这么爱绑架你mea姐，能分析一下有人无端发i love meaqua，你m ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个信息也是传歪的，是有个英语id的一直在刷i love meaqua，然后被封了。
+
+之后有个平假名id的打了个sc说想看和阿夸打麻将（当时话题在聊麻将），mea念了下sc然后回的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1763#       发表于 2020-5-1 02:37
+
+
+
+
+我只反以贴贴粉头为首的贴贴民
+
+就两小女生的友谊能被他们玩成这样
+
+八卦两个小女生的友谊真的是很无聊的事，这些人TM就没交过朋友吗，普普通通的事情大惊小怪，一会儿又结婚了一会儿又不仲了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1764#       发表于 2020-5-1 02:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266189&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-1 02:33</a>
+
+那就更怪了，屡屡罢工，yagoo到底对大亏有多少控制力
+
+
+要说逼着liver当数字厨的话，那几个摸鱼怪怎么解释</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以这只是个基本现实，是个思考方向而不是正确答案
+
+
+坊间传言静凛出身极道，彩虹根本拿她没辙才有她盘活彩虹前后辈联动的说法
+
+虽然我更加相信是运营及时修正了策略
+
+但是中产阶级受制于资本是不争的事实，也有很多事情并未浮于表面，简而言之，都是靠猜，总得找个靠谱的方向
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1765#       发表于 2020-5-1 02:39
+
+
+
+<blockquote>Sanguine 发表于 2020-5-1 02:36
+草生，看来还是要自己去扒一遍前世视频再得结论，不然想双推咩夸总觉得心里不踏实，怕咩真被大亏仙人跳骗 ...</blockquote>
+建议直接去300论坛，别在咩楼问了，要问去夸楼问，“前世”作为萌声主小团体线下过的水平确实在vtb这个圈子里可以算很好的朋友了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sanguine| + 1|感谢指路，我还怕有大雷不敢去300看.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1766#       发表于 2020-5-1 02:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266202&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:36</a>
+草生，看来还是要自己去扒一遍前世视频再得结论，不然想双推咩夸总觉得心里不踏实，怕咩真被大亏仙人跳骗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，你怎么会这么想
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1767#       发表于 2020-5-1 02:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266210&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 02:37</a>
+清算过去不应该是由那些人来弥补他们犯的过错吗？？？风气确实变好了，但是造成现在这种情况的那几个贴贴 ...</blockquote>
+不是，你老是说弥补赎罪什么的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那你觉得怎么样才能弥补？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1768#       发表于 2020-5-1 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266225&amp;ptid=1929631" target="_blank">草牛 发表于 2020-5-1 02:40</a>
+不是，你怎么会这么想</blockquote>
+感情指友情啊，不是，就只看V版那几个贴贴楼暗黑贴贴楼还有十二宗罪的阴阳怪气，莫名其妙产生这种印象了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1769#       发表于 2020-5-1 02:43
+
+
+
+
+其实我觉得一些小反应反而更能表现出meaqua的真实态度。我的梁木来源是有次mea给aqua打钱还是上会员，aqua说的阴阳怪气的话让我不舒服，大致的意思是让mea打更多点。这个视频时间点在去年5月之前。然后结合五月份暴露出的mea个人信息来反推的话，我得出来的结论是aqua对mea的真实态度其实是漠不关心，只是把她当做ATM.一个很好用的工具人朋友罢了。从此我就有梁木了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1770#       发表于 2020-5-1 02:44
+
+
+
+
+我眼里大亏就是那种纯种好学生吧，事实上她确实没啥好黑的，不管是她自己想还是别人后面推到这一步，她走的路确实给人种了好多梁木，对于一些早期随着咩入圈最后跟着夸走的人我也没啥说的，事到如今我只害怕咩夸彻底脱轨后两波人变成血仇
+
+两个人的关系你们比我清楚
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1771#       发表于 2020-5-1 02:48
+
+
+
+
+我就希望大天使能施展神力一键清空所有人的meaqua记忆让这两人关系正常化，让这两人联动就和普通两个人联动一样，没有讨论度，没有kpi，没有那群恶心的贴贴人
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1772#       发表于 2020-5-1 02:48
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 02:40
+不是，你老是说弥补赎罪什么的那你觉得怎么样才能弥补？</blockquote>
+这些人有出来为他们的言行道过歉吗？？？有为了弥补粉丝圈子的问题作出努力吗？？？比如风见有为他多次脑瘫连体言论和挂单推道歉过吗？作出实事弥补过吗？？？老宅有想办法弥补过他放纵0群弱智发酵，佬佬相护的情况吗？？？每次都为这些人这么努力的洗地，理客中真的恶心。
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1773#       发表于 2020-5-1 02:48
+
+
+
+
+虚假的舞台上再亲密的表演，也架不住血淋淋的现实刺出的冷刀。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">所以我建议大家不要看meaqua。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1774#       发表于 2020-5-1 02:48
+
+
+
+
+反正我是认为有两重错误啦（虽然算不上什么新观点）
+
+营业路线受制于本人水平不足以及路线差异、交流减少等原因，日趋平淡化，但两人（至少是大亏那边）不能做出对应的努力，用表演弥补（这里再黑屁一波低下的杂谈力）
+
+而且最初就定位不清，从单纯线下友谊的延长线到CP营业来回摇摆，混合着日常玩笑和为了服务观众的发言（比如说独占之类的）
+
+
+粉丝群体的推波助澜和自我发酵客观上助长了上述的路线摇摆，但双方客观条件上又难以维系营业（累得要死），同时粉丝还把两人关系过度神圣化罩上了光环（不仅指涩谷结婚派，“一生的朋友”派也算）
+
+结果就是不停的撕扯和争吵了
+
+以上是理客中的假设性解释，尽力不黑屁功利论，对差别待遇的事有所回避（摊手）
+
+要说核心论点嘛…“两个yhm本来就只有无聊的日常，无法满足观众的过度期待”
+结果粉丝不是暗黑化就是自我催眠虚空制糖
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1775#       发表于 2020-5-1 02:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mk2这是梁木生梁木
+虽然又车到六字母上了，但还是车一下
+meaqua一开始没想过营业，真没想过
+可能有些人不记得，但在meaqua开始营业之前，你咩姐杀过贴贴人，直播间直球杀，说meaqua的全部禁言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">粉丝从一开始就是脑补过头
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1776#       发表于 2020-5-1 02:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mk2这粱木还是生在错得乱七八糟的信息上的，堪称虚空粱木
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1777#       发表于 2020-5-1 02:52
+
+
+
+
+行了，我好像理解V版几位贴贴anti民的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过只要夸不是绿茶那类角色或者还没有迹象表明是绿茶就无妨，毕竟是你麻自己选的朋友，算不算平等交往她俩心里最清楚
+syl，今天的车轱辘也为m楼贡献了不少流量啊，这个点回帖数居然还能倍杀外野<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1778#       发表于 2020-5-1 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266254&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 02:48</a>
+这些人有出来为他们的言行道过歉吗？？？有为了弥补粉丝圈子的问题作出努力吗？？？比如风见有为他多次脑 ...</blockquote>
+你在搞笑吗，我又给她们洗地了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你翻来覆去的念叨群体畸形，那你这么追求的这个所谓的道歉，能改变这个群体吗
+做出事实弥补又是什么，能不能说清楚点
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1779#       发表于 2020-5-1 02:53
+
+
+
+
+咩夸的第一次当vtb，观众们的第一次看vtb，年轻人磕的第一对
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1780#       发表于 2020-5-1 02:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266272&amp;ptid=1929631" target="_blank">草牛 发表于 2020-05-01 02:51:15</a>
+粉丝从一开始就是脑补过头</blockquote>细说<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+我怎么木有这记忆
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1781#       发表于 2020-5-1 02:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你提这茬是想再起梁木啊，18年11月的事情，几乎紧接着就是凌晨哭泣和推特三连怼，重点突出一个孤立无援
+
+然后坚持到12月底过了收益，立刻就开始……
+
+
+你咩确实从头到尾都说不搞CP营业，是朋友，也不是唯一的朋友
+
+但事实上变成怎样……我觉得你们会去车苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1782#       发表于 2020-5-1 02:57
+
+
+
+
+所以直到今天都没有关于群体畸形的源头的好的理论吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1783#       发表于 2020-5-1 02:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266297&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-1 02:57</a>
+你提这茬是想再起梁木啊，18年11月的事情，几乎紧接着就是凌晨哭泣和推特三连怼，重点突出一个孤立 ...</blockquote>
+现在的风向是车脑补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1784#       发表于 2020-5-1 02:58
+
+
+
+
+未收益化时就已经专门杀过一次meaqua了，甚至那时群里好像也禁刷了
+这么做现在看来反而激起了未来贴贴人的反抗意识，反倒是给贴贴人爆发做了铺垫
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1785#       发表于 2020-5-1 02:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有好理论是好事，说明大家还没无聊到琢磨这破事
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1786#       发表于 2020-5-1 02:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266294&amp;ptid=1929631" target="_blank">59268416 发表于 2020-5-1 02:55</a>
+细说
+我怎么木有这记忆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得是说不准说meaqua，然后说提meaqua的我一个一个给你们禁言，然后一群人跟领赏一样的往上冲，阿咩鼠标啪啪啪啪都给禁了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1787#       发表于 2020-5-1 03:00
+
+
+
+
+现在贴贴人抗性这么高只能说是从一开始培养出来的，现在想来那时毒唯和贴贴人就已经在打了（18年末）
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1788#       发表于 2020-5-1 03:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266297&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-1 02:57</a>
+你提这茬是想再起梁木啊，18年11月的事情，几乎紧接着就是凌晨哭泣和推特三连怼，重点突出一个孤立 ...</blockquote>
+讲真海苔男的强行让两人营业糊脸的言论确实不适，而且又是社会人作风让人觉得就是拿六字母cp蹭国内热度<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">看在她那么宠咩份上就算了，而且咩作为个人势以后在行业混也需要人脉，粉丝还是不能跳脸
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1789#       发表于 2020-5-1 03:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那时候哪有什么毒唯，18年可是vtuber的田园时代啊……而且毒唯这个词也不准确，有人指出过了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1790#       发表于 2020-5-1 03:02
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 02:52
+你在搞笑吗，我又给她们洗地了？你翻来覆去的念叨群体畸形，那你这么追求的这个所谓的道歉，能改 ...</blockquote>
+道歉是起码的诚意，这个你不反对吧？这些人不认为自己做错了，所以让他们道歉才更重要。粉头和官组成员的声音比普通粉丝大这么多，造成不少坏的影响，环境恶化他们的锅不抗好？他们要做的弥补应该是从根本上尝试解决问题，脱离组员个人与面向粉丝社交媒体的关系，不用影响力去给粉丝群体卖私货。这么基本的东西这群人根本做不到。
+
+但字幕组确实没啥强制力，污染破坏完环境，针对恶心完粉丝，直接拍拍屁股走人就完事了呗。海对面一个yhm的信任对这些人来说屁都不是。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1791#       发表于 2020-5-1 03:02
+
+
+
+ 本帖最后由 Sanguine 于 2020-5-1 03:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266306&amp;ptid=1929631" target="_blank">草牛 发表于 2020-5-1 02:58</a>
+我记得是说不准说meaqua，然后说提meaqua的我一个一个给你们禁言，然后一群人跟领赏一样的往上冲 ...</blockquote>
+草怎么还有这事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了算了单纯当otaku强行届到主播的恶心方式吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1792#       发表于 2020-5-1 03:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266315&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 03:02</a>
+草怎么还有这事，你这一说反而像糖了我的妈</blockquote>
+这确实是贴贴人的糖
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 1793#       发表于 2020-5-1 03:03
+
+
+
+
+要说的话可以念叨的地方还是挺多的。
+首先最重要的就是这对“cp”的存在是贯穿了几乎整个Mea在中国市场高速发展的历程，也就是18年底到19年上半年这段时间，在这段时间里发展的粉丝，多多少少带点贴贴民属性，或者说多多少少带点crew属性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而这些粉丝相当一部分也正是现在活跃的粉丝主力，甚至可以说是官组、二创的主力。19年上半年各种PV几乎无一不塞私货应该无需我多言。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+再加上NGA旧病栋庞大的体量而去中心化的讨论氛围，导致了对于“单推”极端不友好的讨论环境，粉丝环境也难免稳不住的，只能说是时也命也
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1794#       发表于 2020-5-1 03:05
+
+
+
+
+不准提meaqua那事就是因为有人在推特上画了张挤牛奶盒的图，那图阿夸还点赞评论了，我记得评论内容还挺逗的，为什么很多人会觉得是从过收益化开始的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1795#       发表于 2020-5-1 03:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266312&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-1 03:01</a>
+那时候哪有什么毒唯，18年可是vtuber的田园时代啊……而且毒唯这个词也不准确，有人指出过了 ...</blockquote>
+偏向于照顾mea主观意识的人吧，但矛盾那时确实一直有了，后面数字爆发掩盖了一切，直到516…
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1796#       发表于 2020-5-1 03:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266202&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 02:36</a>
+
+草生，看来还是要自己去扒一遍前世视频再得结论，不然想双推咩夸总觉得心里不踏实，怕咩真被大亏仙人跳骗 ...</blockquote>
+这俩人年纪差不多，又都不傻，哪可能一个骗另一个。两人直播风格相差挺大，除开贴贴人这个群体，国内现在粉丝的重合度也不算高；单推不太可能给另一方打钱，双推怎么打钱是个人判断，骗中国财布的说法不成立。骗感情什么的，这俩就是普通的会唠唠嗑、煲煲电话粥的朋友，隔几个月半年才出去玩一次的，没什么可骗的。要不要双推全看自己对两个人的直播内容感不感兴趣，cp营业之类的，当添头看看就算了，效果不好就关直播间，只看solo。
+
+M楼一些人也太丧了，mea不管怎么说直播相关的一些数字也是稳步发展的，收入也高于一般社畜，直播也挺开心，还没到杞忧的时候；退一万步说，真到了直播不好做了那一天，mea也是一个有些积蓄的年轻人，又不是懒狗，总会找到新出路的。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1797#       发表于 2020-5-1 03:06
+
+
+
+
+那时我已经体会到贴贴民的狂热和顽强的生命力了。连mea的话都不听一心只想着贴贴，甚至认为mea不喜欢提贴贴是因为傲娇，她越不喜欢我们越提她心里反而越高兴。
+
+
+贴贴民的狂热和扭曲我认为，很明显就归功于贴贴粉头的炒作。自然而然的想到mea粉丝群的扭曲来源于早期字幕组剪辑输出自己的观点或者偏见，带头树立狂热gachi恋的榜样。但是后来感觉两种情况好像不大一样，类比不合适，所以也放弃去想这个问题了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1798#       发表于 2020-5-1 03:06
+
+
+
+<blockquote>Sanguine 发表于 2020-5-1 03:02
+草怎么还有这事算了算了单纯当otaku强行届到主播的恶心方式吧</blockquote>
+是糖啊，为什么要编辑呢？mea不和夸撞直播是糖，mea直播笑是糖，mea唱夸曾经唱过的歌也是糖，你们贴贴人不就喜欢这些？
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1799#       发表于 2020-5-1 03:07
+
+
+
+
+我有个理论，你们看mea推特3连失踪后，字幕组发的什么，是meaqua的pubg上下，因为当时的一张梗图下篇甚至有星际老男孩的留言，虚空制糖也因为这两个视频开始甚行。所以字幕组其实很早就开始无意识影响mea的行动，并不是mea粉丝多起来才开始的。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1800#       发表于 2020-5-1 03:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266326&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-1 03:05</a>
+不准提meaqua那事就是因为有人在推特上画了张挤牛奶盒的图，那图阿夸还点赞评论了，我记得评论内容还挺逗的 ...</blockquote>
+那时只有贴贴人的雏形啊，两人后面大量联动才将贴贴人培养成型，至于为啥后来还有贴贴人不断再生我是看不懂的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1801#       发表于 2020-5-1 03:08
+
+
+
+
+所以很期待你楼能出个解释粉丝群扭曲的好作品
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 1802#       发表于 2020-5-1 03:08
+
+
+
+
+很多人看了几个前世视频就自以为很懂她们，就一对比较好一点的朋友能拱火到现在这个地步。而且不管是她还是大亏真的都不是很会营业。贴贴（鬼叫）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1803#       发表于 2020-5-1 03:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266314&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:02</a>
+道歉是起码的诚意，这个你不反对吧？这些人不认为自己做错了，所以让他们道歉才更重要。粉头和官组成员的 ...</blockquote>
+别说没用的，你一口一个净化环境，那你说的这个“贴贴粉头”道歉，是能让环境更好还是更坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你一直看他们不爽，他们道歉了你爽了，那那些看他们挺好的人呢？可能这些人里一个mea粉都没有吧
+脱离组员个人与社交媒体的关系又怎么说？能不能在详细点，怎么样算是私货？这算不算慨他人之康<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1804#       发表于 2020-5-1 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266333&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:06</a>
+是糖啊，为什么要编辑呢？mea不和夸撞直播是糖，mea直播笑是糖，mea唱夸曾经唱过的歌也是糖，你们贴贴人 ...</blockquote>
+所以我不是编辑了不给你们添堵吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1805#       发表于 2020-5-1 03:12
+
+
+
+
+pubg上是7号发的，下是9号发的，mea推特三连是10号晚上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要用虚空粱木来战胜虚空贴贴吗
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1806#       发表于 2020-5-1 03:13
+
+
+
+
+字幕组现在也蛮怪的，硬是不出声，其他事一律由记者负责，小蘑菇18两次众筹后没啥动静了，mea组组长更像活在传说中
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1807#       发表于 2020-5-1 03:13
+
+
+
+
+妈的一车就车出这么多对不上的时间线，还说车轱辘没用<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1808#       发表于 2020-5-1 03:14
+
+
+
+
+因为大家接受的信息源本来就不一样啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，看事情的滤镜也不一样
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1809#       发表于 2020-5-1 03:18
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 03:09
+别说没用的，你一口一个净化环境，那你说的这个“贴贴粉头”道歉，是能让环境更好还是更坏啊你一 ...</blockquote>
+不为错误行为道歉还有理了？认识到错误行为道歉还会影响对他们观感好粉丝的看法？咩姐少点连体婴粉丝还有0群脑瘫不是坏事吧？贩卖私货看无限那几个错翻还有直播间规则的第一稿不就明白了，官组塞的这种程度的私货组员的动态不应该出现。当然字幕组从来就不具备对成员的强制执行力，这群土霸王爱干嘛干嘛吧，咩姐对他们来说不过是小圈子一个玩玩就丢的玩具，那些自己滚了的也不在乎就是
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1810#       发表于 2020-5-1 03:20
+
+
+
+<blockquote>2014720 发表于 2020-5-1 03:14
+因为大家接受的信息源本来就不一样啊，看事情的滤镜也不一样</blockquote>
+确实，看黑羽仙洛退坑文里的正义批判，说的真的太好力
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1811#       发表于 2020-5-1 03:20
+
+
+
+
+核心密码无非就mea和aqua到底咋想的，再挖清516，这样就再也不需要m楼和黑暗贴贴楼了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1812#       发表于 2020-5-1 03:22
+
+
+
+
+18年高速发展期，就我还记得的情形是没有多少两派人的争端的，11月咩很不好过，反而诞生出了“东京湾冰冻”是咩亏吵架，亏哥背叛这样的不仲说法
+
+仔细想想，理论基础不就是这两人之前是“真的”么，不然何来背叛一说
+
+再往后就是顺水推舟的营业起步，确实做出了互相扶持相亲相爱的感觉，MC连续剧还在我收藏夹里
+
+要说这是不会营业那还是太小看她们了，真正开始出破绽的时候大家都懂，但偏偏就在黑屏表白的场合，咩还是说了有想要一起奋斗之人（这个人是谁现在怕是要打问号
+
+
+然后这事情一过去，形势大变，梁木就开始大量丛生了
+
+所谓的不懂营业也开始了，专业的人还会退化成不专业，反正我是左右想不通，然后自爆了
+
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1813#       发表于 2020-5-1 03:22
+
+
+
+
+做到的人貌似也有，但是不是脱坑了就是隐姓埋名<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1814#       发表于 2020-5-1 03:25
+
+
+
+<blockquote>2014720 发表于 2020-5-1 03:22
+做到的人貌似也有，但是不是脱坑了就是隐姓埋名</blockquote>
+最跳的那批人我都记着呢，这些人脱坑后还一副委屈样，这是最恶心的
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1815#       发表于 2020-5-1 03:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你咩姐现在倒是想要一起奋斗的人了，我还记得tc说过想体会企业里那种互相打气的感觉
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1816#       发表于 2020-5-1 03:28
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-1 03:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266365&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:18</a>
+不为错误行为道歉还有理了？认识到错误行为道歉还会影响对他们观感好粉丝的看法？咩姐少点连体婴粉丝还有 ...</blockquote>
+我没问有没有理<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我先问的你所说的这个道歉，能让你说的群体更好吗，我倒是觉得现在粉丝大都挺正常的，我觉得不正常的就是看到你mea姐和她一个同行同时出现就会发作的人
+第二个问题跟第一个问题是一块的
+无限错翻我记得是海盗的熟肉吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">直播间规则不是标题就写了无脑贴贴不可取，剪辑有毛病而已，怎么成了塞私货的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1817#       发表于 2020-5-1 03:29
+
+
+
+
+当时黑屏说的是“今后也想一起努……今后想努力不给她添麻烦”
+
+挺悲哀的说法，但我不觉得这话是营业的一部分
+
+
+之后明面上的互动就明显减少了，但也多次正面侧面表示过两人关系依然（毕竟这事对私下关系本来就没有影响）
+
+平安夜直播时也分别说了私下做过约定，明面上的互动减少应该也是两人商量后的结果
+
+
+当然愿意怎么想无非是看立场
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1818#       发表于 2020-5-1 03:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266351&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-05-01 03:12:13</a>
+pubg上是7号发的，下是9号发的，mea推特三连是10号晚上
+
+要用虚空粱木来战胜虚空贴贴吗
+
+
+ ...</blockquote>哎呀卧槽，尽然记忆出现了偏差<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">，但那确实是评论区虚空制糖的开始。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1819#       发表于 2020-5-1 03:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我记得直播间规则是少翻了一段，然后评论区密集转火石油佬，挺惨的。之后删了补上重发了
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 1820#       发表于 2020-5-1 03:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">睡不着进来看又一堆车轱辘
+车这个实在太无聊了，还不如没事多看看录播
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1821#       发表于 2020-5-1 03:36
+
+
+
+
+二群和三群不都是有史官吗，能找到那些日志对照就行了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，骚年去努力吧
+
+516我是被打击到先跑了一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，自那以后我就再也没有过之前的热情了
+
+自始至终都是盲人摸象<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1822#       发表于 2020-5-1 03:38
+
+
+
+
+帮助大家修正记忆偏差不也挺好吗，多车几次就多一点共识，至少比之前无限丧到希望V圈赶紧死这种悲观言论好多了，V圈死了你让你咩姐上哪圈这么多钱<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1823#       发表于 2020-5-1 03:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266387&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-1 03:29</a>
+
+当时黑屏说的是“今后也想一起努……今后想努力不给她添麻烦”
+
+挺悲哀的说法，但我不觉得这话是营业的一部 ...</blockquote>
+但是之后的情况明显已经超出必要的范畴了啊，不如可以说是完全不考虑之前CP粉的想法的行为
+
+减少互动并不奇怪，走上陌路甚至还能引起反向猜测维持一波热度
+
+可西西小姐是怎么回事……那时候有多少CP粉就此原地爆炸
+
+什么理论都诠释不了啊，只能炸了啊
+
+对了，爆炸的人里有我一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+2020年的现在要想的话，我只能自我安慰说，资本主义真他吗是吃人不吐骨头的坏东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1824#       发表于 2020-5-1 03:39
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 03:28
+我没问有没有理我先问的你所说的这个道歉，能让你说的群体更好吗，我倒是觉得现在粉丝大都挺正常 ...</blockquote>
+早点纠错造成的影响就没那么大，这不是正常逻辑？道歉的积极影响在你眼里就没用了？警醒粉丝群体是最起码的一点。
+
+直播间规则说的是这个[url=]https://b23.tv/BV1d441197gr[/url]，这个初版剪辑多离谱你根本没印象吗？节奏甚至因为这个剪辑被带到无火身上了。当时看完的组员这么多，为什么经过翻译和校对后还会做出这么离谱的东西？不就是因为某些人想贩卖自己的私货？无限几次离谱的错翻都被大量传播了，mea514推特被冻结夸的评论硬造成糖，这不是私货？
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1825#       发表于 2020-5-1 03:40
+
+
+
+
+前面有个老哥种mea上阿夸会员的梁木，我贴个当时视频的BV号BV11t411477H，我看不出yygq在哪儿，只是因为没有扳手不能确定是不是本人，后面还提生日礼物的事情，嫌钱太少也不知道是从哪里脑补出来的。
+
+18年末的时候两人没什么互动，贴贴人都要饿死了，mea单推注意力都在直播哭了、泰坦尼克和收益化几个重要事件里，没什么吵架理由。真开始觉得不爽估计得等到两个人mc联动后，评论区开始被贴贴人占领之后吧，真的开团估计还是516之后吧。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 1826#       发表于 2020-5-1 03:42
+
+
+
+
+mea叫你们不要贴贴，你们不听，mea叫你们不要讨厌aqua，你们也不听
+
+
+听mea的话，别让她受伤<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1827#       发表于 2020-5-1 03:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266404&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-1 03:39</a>
+
+但是之后的情况明显已经超出必要的范畴了啊，不如可以说是完全不考虑之前CP粉的想法的行为
+
+减少互动并不 ...</blockquote>
+就当作516后这俩把自己的形象往“渣男”发展吧，百花齐放各取所需才是v圈营业的必然方向，毕竟大家都要恰饭的嘛。
+
+接受不了这个结果妄图索取更多的人让他们自杀就是了
+
+meall和aquall才是最终方向，其中也有留给那些能适应变化的meaqua党的一席之地
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Sanguine| + 1|这个思路对味，两人联动对象还是越多越好.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1828#       发表于 2020-5-1 03:46
+
+
+
+<blockquote>面具13 发表于 2020-5-1 03:40
+前面有个老哥种mea上阿夸会员的梁木，我贴个当时视频的BV号BV11t411477H，我看不出yygq在哪儿，只是因为没 ...</blockquote>
+b博是四月末或者五月初夸过金壶后到mea评论区肆意刷引爆了第一波冲突，病栋和s1的情况你们更清楚。
+
+在18年底到19年3月25日这段咩姐几乎没有收入的这段时间里，咩姐在明面上对夸只有支出，而夸就是这种回应，不用说跳脸收益化和yygq咩粉有钱了。当然咩姐在之后说了这些只是梗，所以我觉得无所谓，只是一想到就非常不舒服。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1829#       发表于 2020-5-1 03:49
+
+
+
+<blockquote>暗心舞踏 发表于 2020-5-1 03:45
+就当作516后这俩把自己的形象往“渣男”发展吧，百花齐放各取所需才是v圈营业的必然方向，毕竟大家都要恰 ...</blockquote>
+真有meall吗，想想贴楼那群之前以“扭曲”为名现在以“越共”为名的猎巫人，再看看fanart和粉丝群体的讨论程度还有视频的播放量。可悲的说，咩姐真找不到营业对象了，她现在联动最多的vtb是“贴贴头子”海苔男
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1830#       发表于 2020-5-1 03:51
+
+
+
+
+反正我在2018年12月5号后的一天在b吧看到mea转播小时榜第一的帖子，加上之前的众筹的传闻，产生了兴趣去b站搜索，看到的第一个视频就是meaqua的pubg上。我打出生尽然就有贴贴血统，我有罪<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1831#       发表于 2020-5-1 03:52
+
+
+
+
+想起某个有关mea深夜lol事件的视频一直有人去看<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，这也算新血没断的体现吧，挺好的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1832#       发表于 2020-5-1 03:53
+
+
+
+<blockquote>59268416 发表于 2020-5-1 03:51
+反正我在2018年12月5号后的一天在b吧看到mea转播小时榜第一的帖子，加上之前的众筹的传闻，产生了兴趣去b站 ...</blockquote>
+贴贴入坑正常，不正常的是这些粉头还有病栋粉丝群养蛊的做法
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 1833#       发表于 2020-5-1 03:54
+
+
+
+
+这点别瞎自害，咩从头到尾倒是贯彻好了一点，只有朋友、前辈和偶像，没有贴贴对象，她喜欢男人。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1834#       发表于 2020-5-1 03:54
+
+
+
+
+18年过来的全部有贴贴成分，对于贴贴，没有人是无辜的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1835#       发表于 2020-5-1 03:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266405&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:39</a>
+
+早点纠错造成的影响就没那么大，这不是正常逻辑？道歉的积极影响在你眼里就没用了？警醒粉丝群体是最起码 ...</blockquote>
+你又开始说早点纠错和道歉的积极影响了，还警醒粉丝？警醒几个粉丝，又需要警醒什么？
+
+难不成你觉得mea这整个粉丝群体，是那几个加一块不知道能有几万粉的人的改变的？我怎么觉得你始终都把这几个人看的比mea都重要了。
+
+你把这熟肉算成私货理由更站不住脚吧，这算虚空梁木吗
+
+无限这个回想了一下我没啥印象了，是什么样有多离谱的错译？我记得无限翻得内容大多数百合相关吧，有什么敏感话题吗？514夸的评论不是mea对爱丽丝发情，夸说染成金毛什么的吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1836#       发表于 2020-5-1 03:55
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-1 03:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266419&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:49</a>
+
+真有meall吗，想想贴楼那群之前以“扭曲”为名现在以“越共”为名的猎巫人，再看看fanart和粉丝群体的讨 ...</blockquote>
+苔苔，组长，神乐组，还有之前的爱丽丝，江良，星川，绿熊，海牛，舞元等等，你咩姐人际还没那么菜。
+
+当然你要说固定营业对象那确实没有，因为她本人也没这个意向。
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 1837#       发表于 2020-5-1 03:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266428&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-1 03:54</a>
+
+18年过来的全部有贴贴成分，对于贴贴，没有人是无辜的</blockquote>
+关于贴贴，人人都有原罪
+
+毕竟相比起后来产生的帖帖萌二，最早让贴贴活了的是18年的这批老害才对
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 1838#       发表于 2020-5-1 04:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266428&amp;ptid=1929631" target="_blank">2014720 发表于 2020-05-01 03:54:13</a>
+18年过来的全部有贴贴成分，对于贴贴，没有人是无辜的</blockquote>也是吧，我记得nga病栋几次统计大水比的词云，都是夸最多。虽然其实主要原因还是那时候mea太摸了，很难在正常时间看到她的直播。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 1839#       发表于 2020-5-1 04:01
+
+
+
+
+待机待机，我记得我肚子里反酸水是一觉就好了没怎么吃药。。不知道mea这情况是啥，应该弄点胃药睡一觉就好了吧。一号，黄金周是十号，大量出差应该日程满满的吧。。。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1840#       发表于 2020-5-1 04:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266415&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:46</a>
+
+b博是四月末或者五月初夸过金壶后到mea评论区肆意刷引爆了第一波冲突，病栋和s1的情况你们更清楚。
+
+在18 ...</blockquote>
+收益化跳脸那时候其实是因为这两人并没有关系好到能够交流双方家庭和经济情况的地步（参考前段时间阿夸休息时mea提到的一些信息），纯粹听说了中国粉丝给mea众筹了，以为她过得比自己好而已。
+
+mea好歹已经出来摸爬滚打很多年了，不是什么傻白甜，考虑到两个人已经有来往几年了，如果阿夸有什么明显的问题mea早和她绝交了，既然偶尔直播里还会提一提，两人还会联动，你们的各种梁木大概率都是基于一些片面或者被歪曲过的信息制造出来的。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1841#       发表于 2020-5-1 04:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266405&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 03:39</a>
+
+早点纠错造成的影响就没那么大，这不是正常逻辑？道歉的积极影响在你眼里就没用了？警醒粉丝群体是最起码 ...</blockquote>
+大半夜的边打游戏边等着回复好麻烦，这么跟你直接点说吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要真心想让粉丝群体好点，就少干点弱智出警，一看着aqua四个字母就发作的事，现在早没有那么多小鬼了，各方面也都挺好的
+
+你要就是想按着你所谓的贴贴人的头给你道歉，那就没啥好说的了，跟mk2一样继续搞你的成分斗争去吧，但愿你哪天别干出怪文书之类的事就行
+
+
+
+
+
+                                      
