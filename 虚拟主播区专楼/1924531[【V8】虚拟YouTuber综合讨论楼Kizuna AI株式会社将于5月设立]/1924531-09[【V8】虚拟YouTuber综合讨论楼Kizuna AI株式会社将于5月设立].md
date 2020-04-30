@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-30 06:05** 
+> ## **本文件最后更新于2020-04-30 10:05** 
 
 
 
@@ -14556,10 +14556,11 @@ syl，没有黑客和ars太遗憾了
 
 
 
- 参与人数 4战斗力 +5
+ 参与人数 5战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|有道理|
 | AloissiolA| + 1|确实|
 | colodes| + 1||
 | TRW| + 1|思路广|
@@ -23225,4 +23226,1350 @@ v家兴又不是日本流行音乐衰败的主要原因，现在v家完犊子了
 
 
 
-        
+
+
+-----
+
+####  kanonsisya  
+##### 13235#       发表于 2020-4-30 06:14
+
+
+
+
+被昨天杏星这个秃头”美妆“大叔刺激到刚才第一次点开kira直播间
+
+这尼玛不是还行吗？声音至少比鸣海要萌好吧
+
+狐皇该死嗷，月下这皮配一个kira这level的伪声直男都可以好了好吧
+
+梁木梁木<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+我关注kira了 黑宝贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13236#       发表于 2020-4-30 06:49
+
+
+
+
+不过力才儿这个称呼怎么有点儿传开的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">片假名传统艺能？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13237#       发表于 2020-4-30 07:02
+
+
+
+
+昨晚你们又水了这么多…
+话说你们讲的什么贴吧杏仁怪物家长的事，其实就是holo前段时间在国内吸了太多非核心观众。我一直觉得有那么一批人，从手游到假面骑士到jojo，什么火就凑过去蝗一下再来点道德制高点言论恶心下别人，前段时间蝗到V了。所以我气bcr不给力啊没把这帮人吸过去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 13238#       发表于 2020-4-30 07:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254793&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-04-30 06:49:46</a>
+不过力才儿这个称呼怎么有点儿传开的意思片假名传统艺能？</blockquote>一般是叫他力哥
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 13239#       发表于 2020-4-30 07:33
+
+
+
+
+啊，这群看アヘ顔就要生理厌恶的煞笔能不能早点因为基因遗传不下去而灭绝啊
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 13240#       发表于 2020-4-30 07:38
+
+
+
+
+之前看批站转播 蛮纳闷一些0级或者1级小号来一些弱智发言 什么主播你说的话听不懂啊 是外国人来中国直播吗之类的 挺好奇他们的成分
+
+
+
+
+
+
+
+-----
+
+####  proto  
+##### 13241#       发表于 2020-4-30 07:42
+
+
+
+
+在V8是“夸楼兼holo楼“，这命名大概相当于上海兼冲国办事处。里面的人对白姨（对，“holo楼“里喊白姨），以及星街兔皇这样的”上位替代“自然是可以开团的。
+“holo箱推”早就在去年圣皇罢工时被赶跑了。
+当然V8不管是不是虹人都会推爱丽丝，甚至说得出“爱丽丝给阿葵探路”。在塑造B限天皇方面确实团结。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 13242#       发表于 2020-4-30 07:46
+
+
+
+
+アヘ颜这活动原来有不少人参加了，挺弱智的
+就跟低质量r18图一样，真实难看
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13243#       发表于 2020-4-30 07:56
+
+
+
+
+VVD的猫芒ベル这种404一万订阅未满几百同接的只要肯耕耘B站照样混的有滋有味
+
+阿B底边人才救星说
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13244#       发表于 2020-4-30 07:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">杏的频道订阅统计是说holo.poi.cat吗？显示哪些liver可以设置，除了狗妈，时雨妈妈外还因作者个人趣味加了 犬山，猫宫，辉夜月和PPH的统计，不过没有杏星。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13245#       发表于 2020-4-30 07:57
+
+
+
+
+家主还有这种打算么，犬山哥也是明示了家主要转生去她那都欢迎的，不知道今后怎么考虑了，看看今晚直播会不会说些什么吧
+
+
+<img src="https://img.saraba1st.com/forum/202004/30/075701el0gdfj0grdj8dyj.png" referrerpolicy="no-referrer">
+
+
+<strong>mega.png</strong> (23.07 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-30 07:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 13246#       发表于 2020-4-30 08:01
+
+，
+
+
+ 本帖最后由 艾特娜 于 2020-4-30 08:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254599&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-30 03:31</a>
+
+有越来越多吗？从去年到今年，基本都是老面孔，退坑的倒是越来越多，现在一天专楼里能增加个几页
+
+sy ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说呢……你退坑后人真的变多了，多了不少新面孔
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 13247#       发表于 2020-4-30 08:04
+
+
+
+
+holo阿黑颜挑战斗虫，规则是只计本人发的图，点赞数降序
+
+
+35753 戌神ころね
+
+22248 猫又おかゆ
+
+21672 桐生ココ
+
+20520 紫咲シオン
+
+20392 夏色まつり
+
+13288 ロボ子さん
+
+10376 Ayunda Risu
+
+4493 黑桃影
+
+3739 さくらみこ
+
+924 阿媂娅
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13248#       发表于 2020-4-30 08:07
+
+
+
+ 本帖最后由 opersuper 于 2020-4-30 08:09 编辑 
+
+信姬这要是立马转生这两天说的可都是p话了，hhhh昨天信玉告别演出感动到的纯良人又何以自处
+
+
+
+
+
+
+
+-----
+
+####  TRW  
+##### 13249#       发表于 2020-4-30 08:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13250#       发表于 2020-4-30 08:09
+
+
+
+
+靠，信了你们的邪跑去V吧想骂dt，结果看到又在开兔子<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 13251#       发表于 2020-4-30 08:11
+
+
+
+
+薰晨间配信 - 1k+同接，挺稳定。
+
+对同社的介绍比较中规中矩，有点无聊就掐了一下表发现时间都很平均（赞赏）。
+
+比较有趣的地方是谈到了Kira和自己的差别，吐槽Astel的时候玩了便携WIFI的梗，说店长的时候提到店长喜欢的动漫都没有看过，但是“反正里面有ロベル最喜欢的大姐姐吧”——最后接近下播的时候提到晚上的动森配信直播突然转圈了，店长出来互动了一下（图）；没有什么特别的新信息量，不过提到联动的想法的频率很高（
+
+
+
+
+
+
+4.png
+(6.67 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-30 08:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/30/080705us1zmfqwbkrbib9u.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 13252#       发表于 2020-4-30 08:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255046&amp;ptid=1924531" target="_blank">null0304 发表于 2020-04-30 08:11:40</a>
+薰晨间配信 - 1k+同接，挺稳定。
+
+对同社的介绍比较中规中矩，有点无聊就掐了一下表发现时间都很平均（赞赏 ...</blockquote>星成员不多出来了吗，狐狸也在
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13253#       发表于 2020-4-30 08:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255010&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-4-30 08:07</a>
+
+信姬这要是立马转生这两天说的可都是p话了，hhhh昨天信玉告别演出感动到的纯良人又何以自处
+
+ ...</blockquote>
+本来不就是这么回事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先例难道还少了不成
+
+
+用海苔男的话来说，她喜欢的是织田信姬这个角色，就算转生了织田信姬这个角色也不存在了，那当然是要痛哭流涕的。
+
+挺有道理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺v的，这就是virtual youtuber啊。是不是好像可以跟0人互相理解了
+
+
+
+
+
+
+
+-----
+
+####  HinataJ  
+##### 13254#       发表于 2020-4-30 08:26
+
+
+
+<blockquote>opersuper 发表于 2020-4-30 08:07
+信姬这要是立马转生这两天说的可都是p话了，hhhh昨天信玉告别演出感动到的纯良人又何以自处
+
+ ...</blockquote>
+可要是转生到noripro不是情感天地，其他贴贴都什么土鸡瓦狗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13255#       发表于 2020-4-30 08:27
+
+
+
+
+不过今天晚七点是影山的初配信，shien应该对应什么汉字啊......至于姓氏我只能想起影山瞬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 13256#       发表于 2020-4-30 08:28
+
+
+
+
+月下大佬第二次配信同接仍然有千那还行啦
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13257#       发表于 2020-4-30 08:31
+
+
+
+
+月下什么时候讲美妆或者搞奥术魔刃了我再去看看，打游戏就算了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+家主真的要转生，犬山哥做皮也得花时间的，我觉得目前她还没那个意思，倒是感觉以后可能在犬山哥频道客串下什么的，就叫友人M吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 13258#       发表于 2020-4-30 08:37
+
+
+
+
+月下这声线有丶衫田智和先辈
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13259#       发表于 2020-4-30 08:40
+
+
+
+
+美妆到底是不是RP，虽然我只对Trpg感兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 13260#       发表于 2020-4-30 08:41
+
+
+
+
+要我说就用mega这个身份不也挺好吗，正好有模型<img src="https://p.sda1.dev/0/dcb27ba713b034c030fa5100668f5080/IMG_1F13470723CE4C6BFA6E13584491C312.png" referrerpolicy="no-referrer">
+
+没你好果汁吃.jpg
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13261#       发表于 2020-4-30 08:42
+
+
+
+ 本帖最后由 opersuper 于 2020-4-30 08:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255119&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-30 08:24</a>
+
+本来不就是这么回事吗先例难道还少了不成
+
+
+用海苔男的话来说，她喜欢的是织田信姬这个角色，就算 ...</blockquote>
+公开的放送海苔问来问去把她转生的可能性全问到否定了，这不等个几个月信姬这中之人说的话还有人信吗
+
+以后再做情感营业可就不能够了<img src="https://static.saraba1st.com/image/smiley/face2017/205.png" referrerpolicy="no-referrer"> 当然要是今天放送直接说不退了辣就太牛了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13262#       发表于 2020-4-30 08:42
+
+
+
+
+海苔男真的是明确说了不会加入noripro<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她一期生还没出完肯定没空搞二期生
+
+
+不过她也说要是自己当信姬运营的话不会是这样的结局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不摸鱼的话搓个人设其实也要不了多久
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 13263#       发表于 2020-4-30 08:46
+
+
+
+<blockquote>stars 发表于 2020-4-30 08:13
+星成员不多出来了吗，狐狸也在
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+互动只提了比较有意思的部分啦（店长那句吐槽确实有节目效果，还有最后唐突アフ森）
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13264#       发表于 2020-4-30 08:46
+
+
+
+
+隔壁怎么就车了好几页的阿嘿颜，太怪了。。
+
+
+
+
+
+
+
+-----
+
+####  xtl150ok  
+##### 13265#       发表于 2020-4-30 08:47
+
+
+
+
+车杏星都能顺劈到トワ<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 13266#       发表于 2020-4-30 08:54
+
+
+
+
+顺便明天就是麻醉医的世界恒常性活动了
+
+    21:00 - 开场，一个小时的待机时间（用于分散Cluster登录）
+
+    22:00~23:00 - 活动
+
+    ~24:00 - 结束
+
+
+
+
+
+
+
+EWh56ntVcAAdmWv.jpg
+(53.61 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-30 08:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/30/085046kbjyybu99vuy8sut.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 13267#       发表于 2020-4-30 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255216&amp;ptid=1924531" target="_blank">null0304 发表于 2020-04-30 08:46:19</a>
+互动只提了比较有意思的部分啦（店长那句吐槽确实有节目效果，还有最后唐突アフ森） ...</blockquote>那确实，店长直播真的很有梗，b站上有一个男性单推，全肯定力非常厉害
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13268#       发表于 2020-4-30 09:05
+
+
+
+
+店长今天居然四动啊......两班是ShinyColors，一班APEX，还有一个不知道
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 13269#       发表于 2020-4-30 09:06
+
+
+
+
+隔页回，叫我叶队老姐做人姐都行，我向来无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+省一楼，泥楼gay浓度越来越高了，这事好的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 13270#       发表于 2020-4-30 09:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 13271#       发表于 2020-4-30 09:08
+
+
+
+<img src="https://img.nga.178.com/attachments/mon_202004/30/-zue37Q5-71kkKzT1kSee-83.jpg" referrerpolicy="no-referrer">杏底边排班
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 13272#       发表于 2020-4-30 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我便是不明白为什么巧可这么喜欢歌回，是B站人民爱捧场吗？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13273#       发表于 2020-4-30 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255456&amp;ptid=1924531" target="_blank">ミオチュン 发表于 2020-04-30 09:11:58</a>
+我便是不明白为什么巧可这么喜欢歌回，是B站人民爱捧场吗？</blockquote>b站老哥说话好听，给她歌回带来极大自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13274#       发表于 2020-4-30 09:14
+
+
+
+
+练歌房啊，再加上b站全肯定氛围，不是车过好几次了。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 13275#       发表于 2020-4-30 09:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是不知道播什么嘛，歌回打钱人还多点。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13276#       发表于 2020-4-30 09:16
+
+
+
+
+这边喜欢她歌回啊，虽然不好听但很乐，大家都是喜欢气氛的人
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13277#       发表于 2020-4-30 09:16
+
+
+
+
+要不是dbd不给播，估计就是高强度dbd了。
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 13278#       发表于 2020-4-30 09:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">巧可的歌回，是真的要命
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 13279#       发表于 2020-4-30 09:21
+
+
+
+
+被忽悠去播了第五人格好像效果不咋地，结果还是唱歌了
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 13280#       发表于 2020-4-30 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254544&amp;ptid=1924531" target="_blank">妹控使徒 发表于 2020-4-30 02:53</a>
+
+看了下串规没禁止就这儿问问--------------清竜人25这个团队  除开清竜人本尊外剩下人当时的演出表现 整体 ...</blockquote>
+清竜人25的核心是清竜人，“一夫多妻”虽然很奇葩但至少是一个卖点。虽然清竜人25知名度真的不算高，但是没有清竜人的名气加成的话这个女团就真的nbcs了。。另外清竜人25至少还是上了幕张了，不能说誉很多但肯定没有太多毁（当然主要还是清竜人25比较nbcs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+至于清龙人和女偶像谁赚了那肯定是女偶像赚了啊，清竜人名气比她们大多了。做个不恰当的比喻的话，渡边直美带着一票管人联动了几次没下文了，那肯定也是管人赚了啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13281#       发表于 2020-4-30 09:37
+
+
+
+ 本帖最后由 AloissiolA 于 2020-4-30 09:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254544&amp;ptid=1924531" target="_blank">妹控使徒 发表于 2020-4-30 02:53</a>
+
+看了下串规没禁止就这儿问问--------------清竜人25这个团队  除开清竜人本尊外剩下人当时的演出表现 整体 ...</blockquote>
+[https://www.cinra.net/interview/201607-kiyoshiryujin25](https://www.cinra.net/interview/201607-kiyoshiryujin25)
+[https://www.cinra.net/interview/201704-kiyoshiryujin25](https://www.cinra.net/interview/201704-kiyoshiryujin25)
+[https://music-book.jp/music/news/news/146280](https://music-book.jp/music/news/news/146280)
+[https://realsound.jp/2014/11/post-1841.html](https://realsound.jp/2014/11/post-1841.html)
+[https://article.coneqt-8.com/kiyoshi-ryuujin-25/](https://article.coneqt-8.com/kiyoshi-ryuujin-25/)
+
+
+这是一些当时还在活动时的采访和介绍，可供参考。
+
+就我个人看一些采访的感觉，整体来说人气是不低的，而且评价也较高，贴一些不同网站的介绍： <blockquote>その実力と独創的なコンセプトによって注目されるグループ。</blockquote><blockquote>アイドルとしての実力は折り紙つきで現在アイドルファン、音楽ファンを中心に大きな革命を起こしつつあります。</blockquote>
+而且Live会场越开越大，解散live开到幕张メッセ，粉丝量应该还是不差的。
+
+
+有篇文章分析了为什么青龙人25能有人气，<blockquote>別の表現をすればそれは、演劇的と言ってもいい。ファンタジーの世界として作られた清竜人とその夫人たちのパーティーを描いたミュージカルに、受け手を気持ちよく陶酔させ踊らせている。そこでは六人の夫人たちは「夫人」という役柄を演技している存在だし、清竜人もまたその中央に立ちながら「６人の夫人たちの夫」という役柄、つまり夫人たちと同等に嘘の世界の、「理想化された夫としての清竜人」役を演技している。</blockquote>
+类似这种分析还是很多的，也就是说青龙人在粉丝心中担任的是牵**上偶像女人味的角色，同时身为p的他很会把握和夫人们的距离感，既不会太近惹人不快，也不会太远成为花瓶。而且从一开始讨厌这个概念的就不会入坑，入坑了的一定程度上都接受了青龙人本身的存在。
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 13282#       发表于 2020-4-30 09:43
+
+
+
+
+v综越来越多样化了
+
+
+
+想象中的清算和吊民伐罪并没有来，虹人和杏星新参却不断的增加
+
+
+正道的光，照在了v综上
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 13283#       发表于 2020-4-30 09:44
+
+
+
+
+翻了几页，你楼又在车歌力。我也不明白为啥管人非要去跟声优比，这年头喜欢听翻唱都不行么。
+
+
+放几个国V：
+
+
+LaHee-艾因
+[www.bilibili.com/video/BV1AE411o7fR](http://www.bilibili.com/video/BV1AE411o7fR)
+
+钻石裂痕-早稻叽
+[www.bilibili.com/video/BV14E411q7yA](http://www.bilibili.com/video/BV14E411q7yA)
+
+Star Divine-真绯瑠mahiru
+[www.bilibili.com/video/BV1QJ411D78o](http://www.bilibili.com/video/BV1QJ411D78o)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13284#       发表于 2020-4-30 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255811&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-30 09:43</a>
+
+v综越来越多样化了</blockquote>
+怎么正义之道突然火了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 13285#       发表于 2020-4-30 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47254599&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-4-30 03:31</a>
+
+有越来越多吗？从去年到今年，基本都是老面孔，退坑的倒是越来越多，现在一天专楼里能增加个几页
+
+sy ...</blockquote>
+阿道你多久没刷nga了，现在有大活动专楼一天能刷几十页不比杏楼少多少，平日也至少四五页，比你还在当老害的时期好不少了。
+
+
+另外有些楼友在这里呆了这么久还能轻而易举地图炮S1虹人，微博虹人，是不是除了以偏概全不会说话<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 13286#       发表于 2020-4-30 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255834&amp;ptid=1924531" target="_blank">ErenJager 发表于 2020-4-30 09:44</a>
+
+翻了几页，你楼又在车歌力。我也不明白为啥管人非要去跟声优比，这年头喜欢听翻唱都不行么。
+
+
+放几个国V：</blockquote>
+声优关键是也就那样啊，声优也有适合唱歌的和不适合唱歌的
+
+
+真的车歌力，去外野我是歌手楼车不香嘛
+
+
+话说艾因歌力那么强，为啥不火，因为太姨了吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 13287#       发表于 2020-4-30 09:50
+
+
+
+
+Alo哥又要敲打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 13288#       发表于 2020-4-30 09:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">一大清早的kanae又在跟女人打**
+
+我为什么不是yhm（？
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 13289#       发表于 2020-4-30 09:53
+
+
+
+
+lahee草，这歌居然也有人翻唱
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 13290#       发表于 2020-4-30 09:54
+
+
+
+
+七色太监这说法其实根本就不对，国内最大的虹人大本营明明是微博，微博虹人可一点都不太监，甚至应该叫七色疯狗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13291#       发表于 2020-4-30 09:55
+
+
+
+
+不过说起来昨天響老哥怎么说的月下彻底砸了一样......现在赞踩比是370:14，订阅都9100了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 13292#       发表于 2020-4-30 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艾因好歹也是个FF14er啊，有些攻略视频都有献声的。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 13293#       发表于 2020-4-30 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255901&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-4-30 09:49</a>
+
+声优关键是也就那样啊，声优也有适合唱歌的和不适合唱歌的
+
+
+真的车歌力，去外野我是歌手楼车不香嘛</blockquote>
+她播的内容主要都是FF14，健身环，MC，这些都是debuff，歌回也不多，小年轻不爱看。
+
+他的受众我感觉年龄层次稍大一点，她本人给我的感觉也是养老主播，你说姨也没错。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13294#       发表于 2020-4-30 09:58
+
+
+
+
+艾因还姨啊？
+
+作为ff14玩家发现艾因和子言姐姐合作的时候还挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13295#       发表于 2020-4-30 10:02
+
+
+
+
+讲道理，声优又不是唱歌的，漫区黑小仓唯还不够多吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+要不然这样，今天晚上有拿过声优赏歌唱赏的声优开歌回，有楼友看吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+IMG_20200430_100010.jpg
+(1.56 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-4-30 10:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202004/30/100136oh5ww5vt87knrf58.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13296#       发表于 2020-4-30 10:03
+
+
+
+
+隔壁b楼的寿命未免也忒短了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 13297#       发表于 2020-4-30 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256027&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-4-30 09:58</a>
+
+艾因还姨啊？
+
+
+作为ff14玩家发现艾因和子言姐姐合作的时候还挺有意思的</blockquote>
+艾因在vr公认是年龄比较大的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+不过硬要说姨肯定也是算不上的
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 13298#       发表于 2020-4-30 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256069&amp;ptid=1924531" target="_blank">proxima 发表于 2020-4-30 10:02</a>
+
+讲道理，声优又不是唱歌的，漫区黑小仓唯还不够多吗
+
+
+要不然这样，今天晚上有拿过声优赏歌唱赏的声 ...</blockquote>
+我看，本来的 动力只有kk阿苔仲良
+
+
+现在一寻思，不是看小野早稀live，还带rp了
+
+
+赚的批爆
+
+
+
+
+
+      
