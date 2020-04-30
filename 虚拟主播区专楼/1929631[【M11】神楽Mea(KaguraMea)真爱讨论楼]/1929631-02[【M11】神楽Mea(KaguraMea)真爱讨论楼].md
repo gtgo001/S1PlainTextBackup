@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 04:09** 
+> ## **本文件最后更新于2020-05-01 06:07** 
 
 
 
@@ -6488,4 +6488,704 @@ mea好歹已经出来摸爬滚打很多年了，不是什么傻白甜，考虑�
 
 
 
-                                      
+
+
+-----
+
+####  Leutnant某囧  
+##### 1842#       发表于 2020-5-1 04:12
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 03:54
+你又开始说早点纠错和道歉的积极影响了，还警醒粉丝？警醒几个粉丝，又需要警醒什么？
+
+难不成你觉得mea这 ...</blockquote>
+你觉得是那就是吧，你说的粉丝是点关注的，我应该在阐述时把点关注的粉丝和v圈观众，主看mea的分开，我一开始应该说明白的。病栋和b博如何扩大在主看mea的人和v圈观众中的影响都看在眼里。现在的粉丝环境好转代价大，用的时间多，绝对不及从粉头采取措施，对粉头下手还可以遏制去中心化，在有小部分人心中，咩姐确实不如粉头。
+
+熟肉是虚空梁木？这么离谱的剪辑，看完全程的组员不出来说声话？部分跟完直播的组员在这次剪辑放出根本没有阻止，他们不过把这次剪辑当成之前官组优先翻译贴贴相关的私货延伸罢了。
+
+514夸开始第一个评论可是责问咩犯啥事了，无限硬翻译成了糖，大意记不清了，应该是要一起度过之类的。当时这说法影响可真的很广呢
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1843#       发表于 2020-5-1 04:16
+
+
+
+<blockquote>面具13 发表于 2020-5-1 04:01
+收益化跳脸那时候其实是因为这两人并没有关系好到能够交流双方家庭和经济情况的地步（参考前段时间阿夸休 ...</blockquote>
+是呗，咩在明面上过的这么艰难，夸依然选择玩这些梗，贴贴民愿意给这样的朋友关系硬套百合，所以我恶心。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1844#       发表于 2020-5-1 04:24
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-1 04:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266444&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 04:12</a>
+
+你觉得是那就是吧，你说的粉丝是点关注的，我应该在阐述时把点关注的粉丝和v圈观众，主看mea的分开，我一 ...</blockquote>
+你怎么又开始你觉得是那就是那一套了，好麻烦你能不能说明白怎么是了，我始终问的都是你所说的目标“改变粉丝环境”和你认为达成目标的手段“让粉头道歉”之间的联系
+
+你说在有小部分人心中，咩姐确实不如粉头，我看你就是这么想的。既然你的目的是“改变环境”，那mea亲自说了，也烤成熟肉了，既然这个熟肉现在是正确的，主题也明确写出来了，你为什么还一直纠结在让几个粉头道歉？你所说的这个“粉头道歉”，如果是mea亲自说都改变不了的人，粉头道歉能改变吗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1845#       发表于 2020-5-1 04:26
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 04:08
+大半夜的边打游戏边等着回复好麻烦，这么跟你直接点说吧
+
+你要真心想让粉丝群体好点，就少干点弱智 ...</blockquote>
+真熟悉啊，这套说法，现在日子好了就要放弃对以前的追责？谁都在向前看，但为了不忘记过去的问题必须有真正能让人警惕的标志。
+
+我这几轮车轱辘都在s1，s1是公开论坛，但看这里的人应该都有自己的一套判断了（比如上面那位混内地娱乐圈的），我觉得我这套说法还是有一定道理的，你如果觉得是我看到夸的应激发作那我也无话可说。另外你最后这句话真是有意思，怪文书兄贵的出现不一定由环境导致（十常侍不清楚，推特那个是由于舞元），但绝对和环境有关。污染环境后出现怪物我只会怜悯和恶心，绝不会和这些东西苟同，另外，污染环境的还没付出代价呢
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1846#       发表于 2020-5-1 04:30
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 04:24
+你怎么又开始你觉得是那就是那一套了，好麻烦你能不能说明白怎么是了，我始终问的都是你所说的目标“改变 ...</blockquote>
+我始终强调的责任这点你看不清？是，这是爱好者圈子，没有那么多的强制力，没有那么多的责任，但该被记住的必须被记住，最好的方式就是让犯错的人道歉。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1847#       发表于 2020-5-1 04:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266449&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 04:16</a>
+
+是呗，咩在明面上过的这么艰难，夸依然选择玩这些梗，贴贴民愿意给这样的朋友关系硬套百合，所以我恶心。 ...</blockquote>
+你也是梁木大，阿夸当时也是穷的不行，吃饭也吃的最便宜的乌冬，去便利店买个几百日元的零食就算奢侈了，我觉得她时真觉得mea钱包比自己鼓。
+
+无限的翻译的事情你是把两句话搞串了，第一句是“你又犯啥事了（怎么又被锁推）”，第二句是mea聊了一堆爱丽丝的follow没了后，阿夸说的“虽然不是Alice但是Aqua会第一时间follow你的新号的”，确实有在发糖。
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 1848#       发表于 2020-5-1 04:34
+
+
+
+
+前面有个老哥说mea在努力，希望粉丝也能把自己变得更有趣，我本来觉得毫无逻辑
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">现在有点相当赞同了。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1849#       发表于 2020-5-1 04:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+PS.不是在鲨外头的anti乐子人吗，怎么车回来了，这样又有内战内行外战外行的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|草|
+| 呓亘| + 1|赞同|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 1850#       发表于 2020-5-1 04:41
+
+
+
+
+道歉虽然不能解决问题，但是可以给部分粉丝一个交代。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1851#       发表于 2020-5-1 04:43
+
+
+
+
+一看这么多页还以为突了，居然还在车轱辘，我也是仏了，懒得翻了挑两点想吐槽的说两句，“ 该被记住的必须被记住，最好的方式就是让犯错的人道歉”想记住都可以记住，但在网上谁给你道歉啊，更别提那些人上人了，你觉得他们会正眼看你吗，清醒一点。“阿夸当时也是穷的不行”，阿夸当时根木口签的什么合同我不知道，但我之前看18年打钱榜，你夸哥过了收益化之后每个月至少都有100万日元，这大概不能算“穷的不行”吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1852#       发表于 2020-5-1 04:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266459&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 04:26</a>
+
+真熟悉啊，这套说法，现在日子好了就要放弃对以前的追责？谁都在向前看，但为了不忘记过去的问题必须有真 ...</blockquote>
+为了不忘记过去的问题必须有真正能让人警惕的标志。
+
+什么教训啊警惕啊你也说过好多遍了，在你心目中一个mea的“无脑贴贴不可取”作为标志，还不如什么粉头的道歉？
+
+责任 但该被记住的必须被记住，最好的方式就是让犯错的人道歉。
+
+这说明白了不就好了，责任倒是能跟所谓“粉头道歉”放一块，但让该被记住的必须被记住，我觉得你太高估了他们身上的“责任”。
+
+
+重新捋一下，就是你想的是让人道歉→让粉丝们记住教训→改变粉丝们，可mea都说过了也烤过了无脑贴贴不可取，你这第一步的意义就只剩下道歉了，所以我说的是你一直在斗成分
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1853#       发表于 2020-5-1 04:47
+
+
+
+
+v8又有天狗被逼疯了
+自己的梁木还需自己拔
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1854#       发表于 2020-5-1 04:49
+
+
+
+<blockquote>面具13 发表于 2020-5-1 04:31
+你也是梁木大，阿夸当时也是穷的不行，吃饭也吃的最便宜的乌冬，去便利店买个几百日元的零食就算奢侈了， ...</blockquote>
+拿着工资（收益化过了但应该是三个月后才能拿到钱？）的觉得有饭盒愿望单tc/中国粉丝众筹的更有钱，确实合理，而且夸并不知道咩被迫一个人住到东京并且要向家里给钱。
+
+无限翻译的原翻很离谱，我忘了具体内容，正确翻译我没记清就激动的打字了，是我的问题，第二句是糖没错，第一句无限可也翻译成糖了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1855#       发表于 2020-5-1 04:51
+
+
+
+<blockquote>2014720 发表于 2020-5-1 04:47
+v8又有天狗被逼疯了
+
+自己的梁木还需自己拔</blockquote>
+去vtuber吧打架确实比我要好，之前b站打废一个小号后我放弃和这些人讲道理了，辱骂也只是互相精神胜利
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1856#       发表于 2020-5-1 04:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266491&amp;ptid=1929631" target="_blank">2014720 发表于 2020-05-01 04:47:34</a>
+v8又有天狗被逼疯了
+自己的梁木还需自己拔</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1857#       发表于 2020-5-1 04:57
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 04:46
+为了不忘记过去的问题必须有真正能让人警惕的标志。
+
+什么教训啊警惕啊你也说过好多遍了，在你心目中一个m ...</blockquote>
+确实高估了这些人的责任，他们直接脱坑走人，事后动态卖惨，自己之前的混账举措就一概不管了。
+
+咩姐的话相当于粉丝群体里的规则，可问题是带头违反规则的官组人员在违反事后并没有明面的道歉或者弥补，明面上行为起的作用是很大的，房管的禁言，粉丝的带头遵守还不够，犯错的作为典型例子也就是标志道歉能让效果更显著，每次晚上上头的时候话都捋不清，我的问题。
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 1858#       发表于 2020-5-1 05:00
+
+
+
+
+有一说一你楼越来越有以前nga病栋的味道了
+
+只能说按照历史进程来讲这不是个好现象
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1859#       发表于 2020-5-1 05:01
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-1 05:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266505&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 04:57</a>
+确实高估了这些人的责任，他们直接脱坑走人，事后动态卖惨，自己之前的混账举措就一概不管了。
+
+咩姐的话 ...</blockquote>
+带头违反规则又是啥事
+
+算了私聊吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">刚刚发现点事可以做一下，之前一直没注意到私聊的消息
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 1860#       发表于 2020-5-1 05:02
+
+
+
+
+你楼还缺一个先帝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1861#       发表于 2020-5-1 05:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266503&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-1 04:56</a>
+发生什么了，粉转黑还是退吧了…后者倒是个好事呢，前者那就
+
+  -- 来自 有消息提醒的 Stage ...</blockquote>
+就是天狗日常挨打被逼急<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1862#       发表于 2020-5-1 05:03
+
+
+
+<blockquote>jhouo8989 发表于 2020-5-1 05:02
+你楼还缺一个先帝</blockquote>
+韩锷离布丁是不是还差n2等级的日语
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1863#       发表于 2020-5-1 05:04
+
+
+
+
+问一下mea犬山信姬她们的方块联动是哪一天来着
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1864#       发表于 2020-5-1 05:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266521&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 05:04</a>
+问一下mea犬山信姬她们的方块联动是哪一天来着</blockquote>
+4.24
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1865#       发表于 2020-5-1 05:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266521&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 05:04</a>
+
+问一下mea犬山信姬她们的方块联动是哪一天来着</blockquote>
+4月24
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1866#       发表于 2020-5-1 05:06
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-1 05:04
+问一下mea犬山信姬她们的方块联动是哪一天来着</blockquote>
+4/24晚10点，我在韩锷版有个记录楼，前面以一持万发了记录图
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1867#       发表于 2020-5-1 05:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266515&amp;ptid=1929631" target="_blank">2014720 发表于 2020-05-01 05:02:53</a>
+就是天狗日常挨打被逼急</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1868#       发表于 2020-5-1 05:13
+
+
+
+<blockquote>シオン诗音 发表于 2020-5-1 05:11
+那帮蛆们也是真的闲，还鸡贼的很，对很多人来说那边就注重“开”一个人，开的是谁无所谓。结果那边 ...</blockquote>
+彩虹人没什么好钓的，人少，部分也有婆罗门心态。mea是这些蛆绝佳的靶子
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1869#       发表于 2020-5-1 05:16
+
+
+
+
+我倒是希望clay挺住压力，mea他们开来开去都是那些车轱辘，在跳的都是同一批人，没法让这些人消失的话不会有什么变化
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1870#       发表于 2020-5-1 05:18
+
+
+
+
+想找点东西忽然发现这个草<img src="https://p.sda1.dev/0/1d320679a7d3552ada359b2e4c9895fa/-425df6439a663222.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1871#       发表于 2020-5-1 05:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266535&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-05-01 05:13:36</a>
+彩虹人没什么好钓的，人少，部分也有婆罗门心态。mea是这些蛆绝佳的靶子 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">所以说那边的环境是真的差，水平也真的低，开一个很多跟风狗喜欢附和着黑的开得这么起劲，开了几个人发现开不动没人理就不开了，一点水平都显示不出来，那边还是没绕过弯来，太弱
+
+
+syl，clay抗压不仅限于盯着评论区，v8也有开clay的帖子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不知道几百个回复了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1872#       发表于 2020-5-1 05:36
+
+
+
+
+看到开clay发情的帖子笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 1873#       发表于 2020-5-1 05:42
+
+
+
+
+呜呜呜呜，yamero！！！！！
+
+我就事个小透明，求求v8人上人们不要开我<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1874#       发表于 2020-5-1 05:47
+
+
+
+
+草，我自己找了半天句子才想起这期打块有全熟
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1875#       发表于 2020-5-1 05:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266479&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-1 04:43</a>
+
+一看这么多页还以为突了，居然还在车轱辘，我也是仏了，懒得翻了挑两点想吐槽的说两句，“ 该被记住的必须 ...</blockquote>
+跳脸嘲讽收益化的时候阿夸通过收益化还不足一个月，哪来的钱。众筹的时间点我倒是记错了，是之后发生的事了。阿夸性格稍微有些腹黑，加上对和自己无关的事情比较冷漠，但是明知mea穷得不行还要yygq说她有钱天天吃烤肉，我觉得可能性不大，大概率是mea自尊高没提这些事。
+
+另外，她还没成年的时候收入大部分也是要上交家里管的，自己能随便花的钱不多。
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1876#       发表于 2020-5-1 05:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266565&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-05-01 05:42:54</a>
+呜呜呜呜，yamero！！！！！
+
+我就事个小透明，求求v8人上人们不要开我</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">想开clay的ass
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 1877#       发表于 2020-5-1 05:55
+
+
+
+
+可以，mea喜欢bl。
+你们来点可以投稿给mea的棉花糖了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 1878#       发表于 2020-5-1 06:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">让mea体验一下当红娘的快乐
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                                     

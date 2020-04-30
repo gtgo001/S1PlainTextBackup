@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 04:06** 
+> ## **本文件最后更新于2020-05-01 06:05** 
 
 
 
@@ -6050,7 +6050,7 @@ F有</blockquote>
 
 
 
-点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_W81Z9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_kqEYq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10557,7 +10557,7 @@ V就是一个方便和观众保持距离凹人设的工具，我要是有个妹�
 
 
 
-<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_zlVzZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_ftxbx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 这个女人今晚上ARK
 
@@ -12628,9 +12628,9 @@ sc分成10有89是阶梯了
 
  本帖最后由 alcoholic1000 于 2020-4-30 22:31 编辑 
 
-男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_V8z0l" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_ffeQ4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
-<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_WvM7o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_jmwY4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20465,4 +20465,239 @@ pax这还没有达到住持的高度嘛，不过说话时的声音比她好听�
 
 
 
-               
+
+
+-----
+
+####  シナモンロール  
+##### 14547#       发表于 2020-5-1 04:12
+
+
+
+
+虽然没看到过，但是真的会有字幕组或者海盗组录了烤了会限去发阿批的吗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 14548#       发表于 2020-5-1 04:14
+
+
+
+
+野兔子海盗干过，还曲解原意，就因为自己觉得pekora不喜欢社霸形象，希望类似二创受到抑制。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 14549#       发表于 2020-5-1 04:18
+
+
+
+ 本帖最后由 シナモンロール 于 2020-5-1 04:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266447&amp;ptid=1924531" target="_blank">面具13 发表于 2020-5-1 04:14</a>
+
+野兔子海盗干过，还曲解原意，就因为自己觉得pekora不喜欢社霸形象，希望类似二创受到抑制。 ...</blockquote>
+海盗也是永远滴神
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 14550#       发表于 2020-5-1 04:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266452&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-1 04:18</a>
+wdnmd那个pkr说不希望只被看成这样的角色的视频还是会限啊。
+
+
+这种灰色地带的搬运，还曲解意思搬过来，然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是海盗组啦
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 14551#       发表于 2020-5-1 04:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266464&amp;ptid=1924531" target="_blank">榊城翼 发表于 2020-5-1 04:33</a>
+
+是海盗组啦
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1</blockquote>
+没看清<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，编辑了
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 14552#       发表于 2020-5-1 04:36
+
+
+
+
+烤会限肉粉丝不会出警的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 14553#       发表于 2020-5-1 04:43
+
+
+
+
+凌晨起来起夜翻S1，居然看见因为当初那事又车了一堆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的锅我的锅，我谢罪
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 14554#       发表于 2020-5-1 04:48
+
+
+
+
+打开404
+
+
+关注列表白茫茫一片真干净，一个播的都无
+
+
+困高去，把舞台交给润噶吃
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14555#       发表于 2020-5-1 05:06
+
+
+
+[https://www.youtube.com/watch?v=FKVmej77AkE](https://www.youtube.com/watch?v=FKVmej77AkE)
+
+【5/2 20時〜】Kizuna AI 1st Live "hello, world"
+
+
+这是啥，老爱live的重播吗......
+
+
+
+
+
+
+
+-----
+
+####  p35535  
+##### 14556#       发表于 2020-5-1 05:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266470&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-1 04:36</a>
+烤会限肉粉丝不会出警的吗</blockquote>
+海盗组有时候都不说来源，说了也没几个人看简介，看简介的也不知道什么会限，知道会限的也没有不能传播的意识，就算明说不给传的还有一群人玩法外之地梗荣耀得很呢，找审核删了还有人反复传。这就是B站现状啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 14557#       发表于 2020-5-1 05:43
+
+
+
+
+B站啥时候也搞一个舰限直播功能<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 14558#       发表于 2020-5-1 05:50
+
+
+
+
+不太可能，b站舰长比404贵太多了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 14559#       发表于 2020-5-1 05:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266566&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-05-01 05:43:38</a>
+B站啥时候也搞一个舰限直播功能</blockquote>那不被pxj骂死，b站干开这功能也没管人敢用吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿b的舰长这么贵还卵用没有也就是欺负404进不来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+              
