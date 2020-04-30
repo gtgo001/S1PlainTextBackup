@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-29 20:02** 
+> ## **本文件最后更新于2020-04-30 18:02** 
 
 
 
@@ -9199,4 +9199,1312 @@ b站评论区的？变得这么nt了吗？很好，我又对rz贴贴人刮目相
 
 
 
-                                 
+
+
+-----
+
+####  离心  
+##### 3497#       发表于 2020-4-29 20:27
+
+
+
+<blockquote>坚果收藏家 发表于 2020-4-29 19:42
+这么写在b站评论区都很难钓到鱼
+
+根据我对贴贴人的了解，应该真有人这么想，只是嘴上不说出来 ...</blockquote>
+emmmm，别说还真有可能……
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3498#       发表于 2020-4-29 20:30
+
+
+
+
+yamero，萌二再怎么说也不会觉得meaqua是超越世俗绑定在一起的真爱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">真有这种评论mea唯粉会先去战死的
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 3499#       发表于 2020-4-29 21:18
+
+
+
+
+说到底，麻将和小凛对贴贴二创没做什么限制也做不了什么限制，况且前几天这两人还都给那个每点赞一次咩夸就亲1秒的推特+1s了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+国内那些人把贴贴二创发推特上，麻酱有时候还是会去点赞的，暗黑贴贴人说得再多也比不过人家正主的一个赞啊，官组在b站转发这些贴贴二创也就无可厚非了。
+
+说不定麻酱和小凛对目前这种**不熟，偶尔b限好姐妹加上适当单人或贴贴二创的情况挺满意的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3500#       发表于 2020-4-30 02:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47251819&amp;ptid=1914314" target="_blank">Urystal 发表于 2020-4-29 21:18</a>
+说到底，麻将和小凛对贴贴二创没做什么限制也做不了什么限制，况且前几天这两人还都给那个每点赞一次咩夸就 ...</blockquote>
+草，手机上梯子全灭还懒得用网页版上推的人感谢补足糖分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">泥潭看久了好像被灌输了太多奇怪的观念
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3501#       发表于 2020-4-30 04:54
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-30 04:56 编辑 
+
+理论更新了:
+
+通过让作者声明作品性质可以明确引起争议的责任人。
+
+如果作者声明是单人向作品， 在这种情况下还能引起争议的话大概是有很明显的"私货"。 这种情况下声明者至少要承受一部分责任。
+
+跟50万的二创破事一样， 不要让其他人为了某些人的失误承受后果。 这叫明确责任， 我的朋友。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3502#       发表于 2020-4-30 09:16
+
+
+
+
+可我觉得明确责任人并不能阻止战争啊，反而会打击二创作者的积极性不是吗
+希望这个新的二创条约是凡尔赛条约，而不是铁幕演说<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3503#       发表于 2020-4-30 09:24
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-30 09:51 编辑 
+
+没错
+
+
+从程序正义来说，
+
+
+的确有责任的人承受(至少部分)责任是天经地义的。
+
+
+从结果论来说，
+
+
+打击二创积极性。
+
+
+所以，问题是，要让一些人逃避责任来保持他们的积极性吗?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过自从50w比赛的事件后我就对你juan法制思想建设失去了信心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 3504#       发表于 2020-4-30 09:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点赞说明不了太多啊，麻麻的fanart没那么多自然每张都会点，大亏多很多估计就是看到就点没看到就算了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 3505#       发表于 2020-4-30 09:29
+
+
+
+
+这次暗黑贴贴人一如往常的在咩评论区闹，但反对的声音比之前大不少，感觉是咩歌点击数和夸有差距了激起部分粉丝的反抗意识了，是好事。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 3506#       发表于 2020-4-30 09:48
+
+
+
+
+holo的中日怪物家长粉也实在是有点可怕，有这样的粉丝在阿夸的直播风格永远不可能越雷池一步，想让holo早日爆炸阿夸回归个人势直播自由一些，又不想holo爆炸波及到mea在b站的基本盘。纠结。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3507#       发表于 2020-4-30 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255885&amp;ptid=1914314" target="_blank">a772803314 发表于 2020-4-30 09:48</a>
+
+holo的中日怪物家长粉也实在是有点可怕，有这样的粉丝在阿夸的直播风格永远不可能越雷池一步，想让holo早日 ...</blockquote>
+阿夸变个人势不是方便和mea贴贴了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 3508#       发表于 2020-4-30 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47255936&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-30 09:52</a>
+
+阿夸变个人势不是方便和mea贴贴了吗</blockquote>
+这当然也是其中一环，但在holo限制阿夸的不止这一点
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3509#       发表于 2020-4-30 09:55
+
+
+
+
+怎么和控制欲过强的粉丝斗智斗勇也是门学问<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+个人势一样容易被粉丝架着跑，要追求自由始终还得看自己
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3510#       发表于 2020-4-30 10:05
+
+
+
+
+两个pv没拉开点击数的前一小时就已经吵起来了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+二创作者有什么责任呢，生产新的贴贴人吗，那边希望你们少出警嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。说来刷贴贴的dd也不在少数，你杀得了贴贴人，杀的了跑来跑去的dd和反串吗
+
+阿夸那边数字可以掩盖一切，holo运营要管的事关我屁事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| a772803314| + 1|是这个道理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3511#       发表于 2020-4-30 10:22
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-30 10:42 编辑 
+
+声明作品性质以避免争吵的道德责任<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+不过道德责任这种东西比较暧昧， 所以要否定也行。 
+
+那样还能怎么样呢？ 也许那意味着“都是世界的错” ？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+反正性质没有定论肯定吵起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+如果做了声明， 可是群众发现声明是胡扯， 就变成了声明者的责任了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我认为在这种情况下， 二创作者如果是一个有担当的人的话， 应该站出来给作品性质一个定论结束争吵。
+
+
+不过这个圈子有多少人有担当， errrrr<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+vjuan给了我一个教训 - 避免让自己陷入让没得到自己认同的人影响自己心情的情况。 我以后会注意避开的， 不会再进入如此扭曲的圈子了。 这回我认栽， 终究是我too young<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  tyyyaas  
+##### 3512#       发表于 2020-4-30 10:23
+
+
+
+
+说道某些holo“箱推”，我不知道他们对阿夸抱有什么样的期待。阿夸参加的团建其实还是有的，马车杯之前的预热还是她主催的，一月之后也有和同社其他人的联动，也有在自己的直播里向观众介绍同社的其他人，结果那帮人口中阿夸就是个养不熟的白眼狼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+是真的希望她像fbk一样整天引流吗？
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 3513#       发表于 2020-4-30 10:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是两个单独的翻唱，贴贴人能不能别恶心人
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3514#       发表于 2020-4-30 10:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">骂暗黑贴贴人评论区开团和贴贴人刷贴贴都可以，骂点赞不行，赞踩都是正当行为，不满可以让b站取消赞踩
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3515#       发表于 2020-4-30 10:32
+
+
+
+<blockquote>等一个五岁弱智食杀AI酱后反出hololiive，搬进麻酱在东京买的大别野开始疯狂贴贴营业，这波是无产者装弱智隐忍反杀资本家，matsurinco贴贴</blockquote>
+剧情可以按这个剧本走了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3516#       发表于 2020-4-30 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256295&amp;ptid=1914314" target="_blank">tyyyaas 发表于 2020-4-30 10:23</a>
+说道某些holo“箱推”，我不知道他们对阿夸抱有什么样的期待。阿夸参加的团建其实还是有的，马车杯之前的预 ...</blockquote>
+不需要整天引流，起码也不要墙外木口不行的时候实质彩虹人，实质独狼，木口起来了就回来拥抱大家庭嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+夸皇说白了不就是做事做太绝
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3517#       发表于 2020-4-30 10:56
+
+
+
+
+阿夸40w归顺怀抱大家庭表现的不挺好吗
+我觉得阿夸还没有彻底不懂人心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 3518#       发表于 2020-4-30 10:57
+
+
+
+
+不就是功利 没啥错 
+就是功利的太明显 水准低了点
+
+
+
+
+
+
+
+-----
+
+####  tyyyaas  
+##### 3519#       发表于 2020-4-30 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256491&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-30 10:38</a>
+
+不需要整天引流，起码也不要墙外木口不行的时候实质彩虹人，实质独狼，木口起来了就回来拥抱大家庭嘛[f:2 ...</blockquote>
+木口没起来的时候谁又知道该怎么做，那时候箱推们要斗虫的时候还不是拿阿夸来当工具人，记得yagoo当时怎么说的“湊阿夸连续几个月拿下sc榜榜首”，说白了不就是形势比人强吗？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3520#       发表于 2020-4-30 11:10
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-4-30 11:14 编辑 
+
+有点笑到， i love meaqua 的评论被瞬间灭杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是一个人在刷 “i love meaqua” 然后被瞬间ban了
+
+
+唉， 我继续读书了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3521#       发表于 2020-4-30 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256875&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-4-30 11:10</a>
+有点笑到， i love meaqua 的评论被瞬间灭杀</blockquote>
+我看v综呢，怎么了
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3522#         楼主| 发表于 2020-4-30 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256831&amp;ptid=1914314" target="_blank">tyyyaas 发表于 2020-4-30 11:07</a>
+
+木口没起来的时候谁又知道该怎么做，那时候箱推们要斗虫的时候还不是拿阿夸来当工具人，记得yagoo当时怎 ...</blockquote>
+所以说，“云，就只能得到云认知”
+[あくあちゃんコラボ配信](https://www.youtube.com/playlist?list=PLcMPJzoPkbr_1lnQk8a7pHHN7t12bGEWb)
+
+记录就在那儿，有哪些社内联动，哪些社外联动，一目了然，没什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3523#       发表于 2020-4-30 11:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后正主回了条sc说想和阿夸打麻将
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3524#       发表于 2020-4-30 11:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想打就打啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3525#       发表于 2020-4-30 11:14
+
+
+
+
+快打， 快！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 3526#       发表于 2020-4-30 11:16
+
+
+
+
+本来她就不会去回避<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  tyyyaas  
+##### 3527#       发表于 2020-4-30 11:17
+
+
+
+
+快打，快<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3528#       发表于 2020-4-30 11:18
+
+
+
+ 本帖最后由 LunarCorona_VOV 于 2020-4-30 11:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256831&amp;ptid=1914314" target="_blank">tyyyaas 发表于 2020-4-30 11:07</a>
+
+木口没起来的时候谁又知道该怎么做，那时候箱推们要斗虫的时候还不是拿阿夸来当工具人，记得yagoo当时怎 ...</blockquote>
+还是编辑了，云是确实云，毕竟去年5.16之后就退坑夸了，下半年更是除了咩宝干脆都不看了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3529#       发表于 2020-4-30 11:19
+
+
+
+
+说起来最近我留意过，偶尔会有几个一看就是小号的id不停的刷meaqua，还是无意义的那种，果然还是让扳手来动手靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3530#       发表于 2020-4-30 11:25
+
+
+
+
+六字母bot去你麻那跳脸我是看不明白的，是疯了的贴贴人还是什么成分我蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tyyyaas  
+##### 3531#       发表于 2020-4-30 11:29
+
+
+
+ 本帖最后由 tyyyaas 于 2020-4-30 11:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47256986&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-30 11:18</a>
+
+那既然夸皇能力这么强，独狼人设卖的这么好，又何必回来拥抱大家庭呢，可不要告诉我是大势所趋哦
+
+ ...</blockquote>
+编辑了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3532#       发表于 2020-4-30 11:31
+
+
+
+
+二期毕竟是谷底时刻，收的又是tc台来的废物，心态出问题也正常，是木口，是木口把凜变成了鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3533#       发表于 2020-4-30 11:31
+
+
+
+
+怕不是暗黑贴贴人反串
+
+
+不过说得再过分她也不会真的狠下心去杀的
+
+
+人善被人欺.jpg——或者另一种意义上，“哪怕是踩一捧一的贴贴人也是热度啊……”
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3534#       发表于 2020-4-30 11:31
+
+
+
+
+“虽然你多年流浪在外，但我们的血缘不会变，我们是永远的亲兄弟”
+人之常情好吧，这种梁木就不要种了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3535#       发表于 2020-4-30 11:32
+
+
+
+
+所以我之前就说过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她那个直播间规则对她自己都不适用
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3536#       发表于 2020-4-30 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257138&amp;ptid=1914314" target="_blank">tyyyaas 发表于 2020-4-30 11:29</a>
+既然夸是独狼人设，“大家庭粉”又何必拿她来斗虫呢，二期生不成箱的问题还能全怪在她头上，
+
+fbk真的带起 ...</blockquote>
+我编辑了，无意吵架，毕竟我既不是大家庭粉也不是斗虫民，就是个天狗
+一期生不是梅露摸鱼aki病退吗，真要夸皇抬二期生怕是也抬不起来摸余
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3537#       发表于 2020-4-30 11:36
+
+
+
+
+草，mea杀疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ashen-11  
+##### 3538#       发表于 2020-4-30 11:36
+
+
+
+
+不就是恰独食，企业也许不在意同事肯定是会得罪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3539#       发表于 2020-4-30 11:38
+
+
+
+
+“至少，可以不要再伤害麻酱了，好吗大亏？”
+
+
+不知道大天使阿b订阅超了你麻后又是一片怎样的光景，b限向狐皇屈服？还是蹭上狗狗碰瓷狗妈？让我们拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tyyyaas  
+##### 3540#       发表于 2020-4-30 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257206&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-4-30 11:34</a>
+
+我编辑了，无意吵架，毕竟我既不是大家庭粉也不是斗虫民，就是个天狗
+
+一期生不是梅露摸鱼aki病退吗，真要 ...</blockquote>
+我也编辑了，狗狗的事情之前夸楼里有提过，说到底卍组三人都是阴角，起不来很正常
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3541#       发表于 2020-4-30 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻当年碰到刷屏的选择是避开直播时间，杀贴贴人这种事不会干的。用yhm思维来理解，大概贴贴是两个人的事，不能由一人做主
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3542#       发表于 2020-4-30 11:46
+
+
+
+
+bug了？
+你楼也有翻页bug，好起来了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3543#       发表于 2020-4-30 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257325&amp;ptid=1914314" target="_blank">草牛 发表于 2020-4-30 11:42</a>
+你麻当年碰到刷屏的选择是避开直播时间，杀贴贴人这种事不会干的。用yhm思维来理解，大概贴贴是两个 ...</blockquote>
+避开直播时间是怎么说的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你麻会懂这么避实就虚的招数？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3544#       发表于 2020-4-30 11:49
+
+
+
+
+难道不是随心所欲撞TM的吗
+
+“我既没有刻意避开也没有刻意去撞，你们看得出来规律算我输”
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3545#       发表于 2020-4-30 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257411&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-4-30 11:48</a>
+
+避开直播时间是怎么说的你麻会懂这么避实就虚的招数？</blockquote>
+定直播间规则那次说的，说和阿夸撞了就会被刷屏所以错开直播时间
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3546#       发表于 2020-4-30 11:52
+
+
+
+
+现在不就在撞吗<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3547#       发表于 2020-4-30 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257442&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-30 11:51</a>
+定直播间规则那次说的，说和阿夸撞了就会被刷屏所以错开直播时间</blockquote>
+草，我还真没印象了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过现在好像也不会避了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3548#       发表于 2020-4-30 11:56
+
+
+
+
+去翻翻nga当年的楼，meaqua箱是跟你吹的？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3549#       发表于 2020-4-30 11:56
+
+
+
+
+所以才有了那条sc不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3550#       发表于 2020-4-30 12:00
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-4-30 12:01 编辑 
+
+主要还是传话这个行为很不好，单纯的顺着话题提一句没啥问题吧
+
+她俩还约定了约束好粉丝，让粉丝不当传信鸽影响对方的直播呢（平安夜那次架娃娃机意外撞车的时候说的，两边都说了同样的内容）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3551#       发表于 2020-4-30 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257575&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-4-30 12:00</a>
+主要还是传话这个行为很不好，单纯的顺着话题提一句没啥问题吧
+
+她俩还约定了约束好粉丝，让粉丝不当传信鸽 ...</blockquote>
+这个我倒是还记得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然傻逼传信鸽根本不是主播能治得了的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3552#       发表于 2020-4-30 13:22
+
+
+
+
+你楼怎么没有crew型暗黑贴贴人啊，想听一点不一样的声音<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+结合最近夸pv底下吵的人少，meapv底下吵的人多，难道真没有crew型暗黑贴贴人吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3553#       发表于 2020-4-30 13:31
+
+
+
+ 本帖最后由 2014720 于 2020-4-30 13:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258317&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-30 13:22</a>
+你楼怎么没有crew型暗黑贴贴人啊，想听一点不一样的声音
+
+结合最近夸pv底下吵的人少，meapv底下吵的 ...</blockquote>
+还是那句“什么v什么粉啊”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你看v版的crew那个不是铁血人，比大声嚷嚷的天狗高了几个档次好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+区区贴贴营业有什么过不去的，我大亏哥面前一切障碍都会被扫平，所有人都会被清算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+外面别人都说天狗抗压强，在我看来给crew提鞋都不配，crew有如大亏一样是“忍，稳，狠”的完美体现好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3554#       发表于 2020-4-30 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47257521&amp;ptid=1914314" target="_blank">草牛 发表于 2020-4-30 11:56</a>
+
+去翻翻nga当年的楼，meaqua箱是跟你吹的？</blockquote>
+两人同时直播，是糖<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+两人错开时间直播，meaqua箱永不撞车，是糖<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 3555#       发表于 2020-4-30 13:38
+
+
+
+
+爷悟了，meaqua有什么好的，以后我就推歆旷神怡了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 3556#       发表于 2020-4-30 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258426&amp;ptid=1914314" target="_blank">2014720 发表于 2020-04-30 13:31:58</a></blockquote>麻烦大天使快点把mk2扫了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3557#       发表于 2020-4-30 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258462&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-30 13:36</a>
+两人同时直播，是糖
+
+两人错开时间直播，meaqua箱永不撞车，是糖 ...</blockquote>
+说真的现在这种弱智评论除了咱黑屁连体人的时候会用之外我还真没见过几个这么说的（不限平台）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3558#       发表于 2020-4-30 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258426&amp;ptid=1914314" target="_blank">2014720 发表于 2020-4-30 13:31</a>
+
+还是那句“什么v什么粉啊”
+
+你看v版的crew那个不是铁血人，比大声嚷嚷的天狗高了几个档次好吗[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">突然想起一个梗“低调、隐忍、杀戮” 当然 对应的是“逛街、看戏、抢人头”
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3559#       发表于 2020-4-30 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258490&amp;ptid=1914314" target="_blank">刘邦去吃霸王餐 发表于 2020-4-30 13:40</a>
+
+麻烦大天使快点把mk2扫了吧
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+昨天已经被大天使降下天罚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3560#       发表于 2020-4-30 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258508&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-30 13:42</a>
+昨天已经被大天使降下天罚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是吗，我怀疑他又夺舍重生了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3561#       发表于 2020-4-30 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258504&amp;ptid=1914314" target="_blank">noaki 发表于 2020-4-30 13:41</a>
+
+说真的现在这种弱智评论除了咱黑屁连体人的时候会用之外我还真没见过几个这么说的（不限平台） ...</blockquote>
+这种程度就弱智了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来没有卧底过贴贴粉丝群
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3562#       发表于 2020-4-30 13:48
+
+
+
+
+一个幽灵，暗黑crew的幽灵，在v版游荡<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 3563#       发表于 2020-4-30 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258556&amp;ptid=1914314" target="_blank">睥睨寰宇荡红尘 发表于 2020-4-30 13:46</a>
+是吗，我怀疑他又夺舍重生了。</blockquote>
+唯独这点你不需要怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3564#       发表于 2020-4-30 13:52
+
+
+
+
+某人别吊了，每个新人都是重要的kpi来源好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3565#       发表于 2020-4-30 14:00
+
+
+
+
+可能泥潭哪一个纯良crew有一天突然撕皮化身巨魔，那应该就是mk2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3566#       发表于 2020-4-30 14:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258571&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-4-30 13:48</a>
+这种程度就弱智了吗
+
+看来没有卧底过贴贴粉丝群</blockquote>
+谁一天到晚会没事盯着那些群啊，说起来我在的那个最近高强度pcr讨论，比起之前正常不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
