@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 00:06** 
+> ## **本文件最后更新于2020-05-02 02:06** 
 
 
 
@@ -248,7 +248,7 @@ https://twitter.com/ordan/status/1256170651146051584
 <img src="https://img.saraba1st.com/forum/202005/01/190339mi7ccc1x6omcko11.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200501190311.png</strong> (233.63 KB, 下载次数: 2)
+<strong>QQ截图20200501190311.png</strong> (233.63 KB, 下载次数: 3)
 
 下载附件
 
@@ -1214,7 +1214,7 @@ from.  ウタゴエ放送部プロジェクト
 <img src="https://img.saraba1st.com/forum/202005/01/200922ycllskivv8zbmlrl.png" referrerpolicy="no-referrer">
 
 
-<strong>微信图片_20200501200900.png</strong> (1.04 MB, 下载次数: 2)
+<strong>微信图片_20200501200900.png</strong> (1.04 MB, 下载次数: 3)
 
 下载附件
 
@@ -1286,7 +1286,7 @@ from.  ウタゴエ放送部プロジェクト
 
 
 Screenshot_20200501_201206.jpg
-(55.89 KB, 下载次数: 1)
+(55.89 KB, 下载次数: 2)
 
 
 
@@ -2034,7 +2034,7 @@ MV師
 
 
 批注 2020-05-01 205347.png
-(119.94 KB, 下载次数: 1)
+(119.94 KB, 下载次数: 2)
 
 
 
@@ -2708,7 +2708,7 @@ Liz直球车西西给我整乐了，话说妹啊你这才分手没多久啊
 
 
 63D0541C-6DB2-4B68-AD02-85D994DE4F81.jpeg
-(38.43 KB, 下载次数: 3)
+(38.43 KB, 下载次数: 4)
 
 
 
@@ -5528,7 +5528,7 @@ v吧人准备带这个牌子冲了兔皇直播间<img src="https://static.saraba
 
 
 37d3d539b6003af31981cb0a222ac65c1038b6a4.jpg
-(15.91 KB, 下载次数: 1)
+(15.91 KB, 下载次数: 5)
 
 
 
@@ -5655,7 +5655,7 @@ v吧人准备带这个牌子冲了兔皇直播间<img src="https://static.saraba
 
 
 30297242_p0.png
-(1.18 MB, 下载次数: 1)
+(1.18 MB, 下载次数: 4)
 
 
 
@@ -5856,6 +5856,25 @@ v吧人准备带这个牌子冲了兔皇直播间<img src="https://static.saraba
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 57042711| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -6117,4 +6136,953 @@ VR起手就是Roza王炸能不厉害吗？<img src="https://static.saraba1st.com
 
 
 
-                                       
+
+
+-----
+
+####  cwjzy  
+##### 15307#       发表于 2020-5-2 00:14
+
+
+
+
+Vr竟然是男人强么，绝了，有点本社味道了
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 15308#       发表于 2020-5-2 00:14
+
+
+
+
+啊这，笑死我了，实锤了
+<img src="https://p.sda1.dev/0/c5b6df7320dc73a51f354cb8cb7e2107/IMG_8D2D17EA3FD9D638CD3EAD5A7CF4AEFB.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 15309#       发表于 2020-5-2 00:17
+
+
+
+
+用rpgmaker一个人做一款游戏的话，确实挺厉害了，或者说更准确得说很有毅力。不过最终还是要看成品如何，在17还是18年的时候玩过一款叫做《KingExit》的游（huang）戏（you），立绘、剧情以及「挑选」的音乐都很棒，战斗就没什么特点了，rpgmaker固有的那套，作者花了三年多打磨这款游戏，其实一大半时间都在构思剧情。
+其实现在市面上简单易上手的引擎很多，像unity就深受独立游戏开发者喜爱，用rpgmaker这样的工具做游戏应该算是日本死宅独有的特色了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15310#       发表于 2020-5-2 00:19
+
+
+
+
+想知道那年龄咋推断的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15311#       发表于 2020-5-2 00:20
+
+
+
+
+不是说了从自称高中那里开始推断的吗？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15312#       发表于 2020-5-2 00:20
+
+
+
+ 本帖最后由 QWANG 于 2020-5-2 00:21 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 15313#       发表于 2020-5-2 00:25
+
+
+
+
+初中生就参加这么丰富的网络活动和有这种绘画水平吗？？如果真的那年龄推断要更大一些吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 15314#       发表于 2020-5-2 00:25
+
+
+
+ 本帖最后由 null0304 于 2020-5-2 00:26 编辑 
+
+世界恒常性有感：你们真的很喜欢叠罗汉。VRchat就算了，cluster也能玩起来的<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15315#       发表于 2020-5-2 00:27
+
+
+
+
+比较开明的家庭，自己从小喜欢玩游戏，然后家里安排学绘画，也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15316#       发表于 2020-5-2 00:29
+
+
+
+
+和犬山聊的时候，说画画是小学时期的兴趣。
+
+我当时以为是设定，现在一想，可能还真不是设定？
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 15317#       发表于 2020-5-2 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47274602&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-05-01 23:43:20</a>
+这个p站号还是很诡异啊，这是星街初中（12年）的时候画的？难以置信</blockquote>如果是从小绘画的话，初中这个水平有问题吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 15318#       发表于 2020-5-2 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47274974&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-5-2 00:31</a>
+
+如果是从小绘画的话，初中这个水平有问题吗？
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+感觉画的比她现在还好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15319#       发表于 2020-5-2 00:32
+
+
+
+
+可能好久没画变菜了，最近应该是没空画画了。
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 15320#       发表于 2020-5-2 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47274981&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-05-02 00:32:04</a>
+感觉画的比她现在还好啊</blockquote>那可能确实有问题了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 15321#       发表于 2020-5-2 00:33
+
+
+
+
+没画是会手生的
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 15322#       发表于 2020-5-2 00:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就我自己画画的手感来看，这个东西和学自行车差不多，手可能会变生，但是不至于波动如此大，可能是真的当V之后没有上心画画。不过看前世号活动的时间可以追溯到一个十三四岁的初中生，我还是觉得星姐的推断年龄应该会偏大一点
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15323#       发表于 2020-5-2 00:40
+
+
+
+
+这波管人里的apex热受益最大的人其实千和sumomo哈弟这帮高分玩家，迟早会把大部分看热闹的路人全吸到这边来，现在千播一通宵apex都能5000同接2500个高评价，哈弟也是稳定4000同接（要是下赛季冲猎杀估计又要上万），sumomo上次在404播了一次也是6000同接
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 15324#       发表于 2020-5-2 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275041&amp;ptid=1924531" target="_blank">Suny08 发表于 2020-05-02 00:40:27</a>
+这波管人里的apex热受益最大的人其实千和sumomo哈弟这帮高分玩家，迟早会把大部分看热闹的路人全吸到这边来 ...</blockquote>虽然自从小千变成了无情的apex机器后，就基本不太看她了，不过真的没想到当初那个杂鱼千会到达如今这种水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 15325#       发表于 2020-5-2 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275089&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-5-2 00:48</a>
+
+虽然自从小千变成了无情的apex机器后，就基本不太看她了，不过真的没想到当初那个杂鱼千会到达如今这种水平 ...</blockquote>
+你朋友那个私信啥的事件
+
+是不是kkbla这人发的
+
+莫名其妙给我发了一堆私信，我感受到了看管以来最大的迷惑
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15326#       发表于 2020-5-2 00:56
+
+
+
+
+不是，你们别把中国典型父母带入别的国家父母里啊，谁规定一定要小时候只念书的？我住欧洲十几年，这张12年图的绘画水平我这边随便找个小学里都能拉出一个排的小学生完爆
+
+azki 14岁出道唱歌，阿希12，3岁出道做网红，初中高中就参加同人社团的日本人可太多了
+
+而且星街都说好几次了，当v之前就画画赚零花钱了，真画的不堪入目有人会出钱给她画？无非是现在又不靠画画吃饭没那么用力罢了，再说给粽子那张不是画的挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不说了，反正各人爱信不信又没影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl fps当然是水平高的好看啊，不是gachi的话看菜鸡打fps头疼好吧
+
+
+
+
+
+
+
+-----
+
+####  魍洛聚貊  
+##### 15327#       发表于 2020-5-2 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47274602&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-1 23:43</a>
+这个p站号还是很诡异啊，这是星街初中（12年）的时候画的？难以置信</blockquote>
+这个水平确实不高啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">用ps的笔刷乱涂就能做到，不需要练习很久的。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15328#       发表于 2020-5-2 00:57
+
+
+
+
+你们虹人怎么花头那么透的，谜语太多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 15329#       发表于 2020-5-2 00:59
+
+
+
+ 本帖最后由 Zaphikel 于 2020-5-2 01:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47273137&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-1 21:07</a>
+
+原来兔组真的是在钓鱼执法</blockquote>
+那句老话怎么说来着了
+
+对了“B限有，但是不是最后一次就看你们的了”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+JPeEDI.jpg
+(60.75 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-2 01:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/010005b7kl4lrv21qhorlr.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15330#       发表于 2020-5-2 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275145&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-5-2 00:59</a>
+
+那句老话怎么说来着了
+
+对了“B限有，但是不是最后一次就看你们的了” ...</blockquote>
+所以我之前就问过了，这句话能不能成真呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15331#       发表于 2020-5-2 01:14
+
+
+
+
+这事由不得兔皇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15332#       发表于 2020-5-2 01:15
+
+
+
+
+azki今晚这个金曲歌回补完了，唉呀妈呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这还要连着开一周歌回的，还有谱皇专场，反正不唱金曲怎么都行吧
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/011529soimgqm0wosifqdd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>azki.jpg</strong> (206.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 01:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 15333#       发表于 2020-5-2 01:18
+
+
+
+
+字幕组这次迷幻操作到底是钓鱼杀anti，还是点燃情绪呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15334#       发表于 2020-5-2 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275216&amp;ptid=1924531" target="_blank">free 发表于 2020-5-2 01:15</a>
+
+azki今晚这个金曲歌回补完了，唉呀妈呀
+
+这还要连着开一周歌回的，还有谱皇专场，反正不唱金曲怎么都 ...</blockquote>
+别骂了别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15335#       发表于 2020-5-2 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275224&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-5-2 01:18</a>
+
+字幕组这次迷幻操作到底是钓鱼杀anti，还是点燃情绪呢？</blockquote>
+他们可能自己都搞不清楚自己到底在干嘛汗想干嘛吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 15336#       发表于 2020-5-2 01:20
+
+
+
+
+据说兔组这次没怎么拉黑人
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15337#       发表于 2020-5-2 01:21
+
+
+
+
+那等着被跳脸吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15338#       发表于 2020-5-2 01:29
+
+
+
+
+本质乐子人，我感觉也就当天节奏大，第二天就没事了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过兔组这样一直在危险的边缘疯狂试探是真的搞
+
+
+
+
+
+
+
+-----
+
+####  妹控使徒  
+##### 15339#       发表于 2020-5-2 01:30
+
+
+
+
+如果之前爆料的内部谈话属实  那么兔子烤肉组上层很多极品 无法交流的那种   老实说现在最好的方法是速度素清掉  继续闹下去之前的让官方发文表个态都还只是小事了  某裁又要狂喜乱舞   不知道兔子前世是做什么的  如果是NICO生的话应该还有抗性  那边类似的投屎事件是家常便饭
+
+这种本人没做什么但周围的人拿他当幌子来互相攻击的事看着真够蛋疼难受的
+
+
+另外彩虹的德比鲁有人知道前世是什么的   那几个nico生还原的短剧太神  不知道是当年厮杀过的NICO生主还是观看或了解过的观众
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15340#       发表于 2020-5-2 01:32
+
+
+
+
+兔组弱智，贴吧脑瘫
+
+管人观众，费拉不堪
+
+哦我也是啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15341#       发表于 2020-5-2 01:32
+
+
+
+
+纯良的浓度，大 大 滴提高了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15342#       发表于 2020-5-2 01:36
+
+
+
+ 本帖最后由 超能力者stven 于 2020-5-2 01:47 编辑 
+
+刚刚被炎掉的前azki组组长发退组b博，前兔组组长第一时间前来辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波啊，这波是抱团取暖
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 15343#       发表于 2020-5-2 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275302&amp;ptid=1924531" target="_blank">超能力者stven 发表于 2020-5-2 01:36</a>
+
+刚刚被炎掉的azki组组长发退组b博，前兔组组长第一时间前来辛苦了</blockquote>
+同是天涯沦落人，相逢何必曾相识啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+给我指条路呗，我去看看
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15344#       发表于 2020-5-2 01:41
+
+
+
+
+德比好像是特歪过？应该还没有实锤，不过看她的交际圈应该以前也是nico生那个圈子的人
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15345#       发表于 2020-5-2 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275318&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-5-2 01:39</a>
+
+同是天涯沦落人，相逢何必曾相识啊
+
+给我指条路呗，我去看看</blockquote>
+[https://t.bilibili.com/384116573308568026](https://t.bilibili.com/384116573308568026)
+
+能点开吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15346#       发表于 2020-5-2 01:44
+
+
+
+
+纯良才是最惨的啊，本来看点管人图一乐，上有胡搞海搞的人上人字幕组，下有强行代表自己开团的乐子人
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 15347#       发表于 2020-5-2 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275106&amp;ptid=1924531" target="_blank">poipanchao 发表于 2020-05-02 00:50:57</a>
+你朋友那个私信啥的事件
+
+是不是kkbla这人发的
+
+莫名其妙给我发了一堆私信，我感受到了看管以来最大的迷惑 ...</blockquote>是的，没想到你也被发了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15348#       发表于 2020-5-2 01:45
+
+
+
+
+组长退组怎么突然流行起来了。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15349#       发表于 2020-5-2 01:50
+
+
+
+ 本帖最后由 超能力者stven 于 2020-5-2 01:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275339&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-2 01:45</a>
+
+组长退组怎么突然流行起来了。</blockquote>
+兔组事情在前，望风而逃
+
+这位听说也是积怨已深了，再不跑路等名声臭了影响人家套皮出道做vtb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，组长做着做着就想套皮出道真不知道是啥风气，咱不是人上人不太理解<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15350#       发表于 2020-5-2 01:50
+
+
+
+
+字幕组的权力变更开始啦？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 15351#       发表于 2020-5-2 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275339&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-2 01:45</a>
+
+组长退组怎么突然流行起来了。</blockquote>
+也到时间了，字幕组工作如果认真做负担还是挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 15352#       发表于 2020-5-2 01:53
+
+
+
+
+补了下德龙今晚的直播，有点意思啊，根据当初德龙说过的，自己的新衣和幼花是差不多同时准备的，而且都准备了很久，搞不好之后有交集，反正阿话那边有劣质时光机，小孩开个大车啥的也符合她爱好。当然哪怕没交集这活整的也不错，也挺符合德龙一直以来给自己设的表面阳角实质阴角的性格。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 15353#       发表于 2020-5-2 01:55
+
+
+
+
+今晚忙着推第七章 有小肥妹凸待的repo吗
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 15354#       发表于 2020-5-2 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275346&amp;ptid=1924531" target="_blank">超能力者stven 发表于 2020-5-2 01:50</a>
+
+兔组事情在前，望风而逃
+
+这位听说也是积怨已深了，再不跑路等名声臭了影响人家套皮出道做vtb</blockquote>
+有瓜吗，放出来大家吃啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  妹控使徒  
+##### 15355#       发表于 2020-5-2 02:01
+
+
+
+
+露露的潜力真是不可限量     24H耐久直播本身就很猛了   还挑了之前一直苦手的节奏天国   然后这次表现还好了很多   蜘蛛之后节奏感的弱点似乎也快被克服了
+
+话说他除了葵和德比外似乎就很少联动人   挑游戏也少有跟风(比如被推了也没去碰动森)  这种独自努力追求着什么的风格莫名的有共鸣感
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15356#       发表于 2020-5-2 02:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275379&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-5-2 02:01</a>
+
+有瓜吗，放出来大家吃啊</blockquote>
+在净土坛看到几句谜语，我也不太确定，不敢乱说
+
+
+
+
+
+                                      
