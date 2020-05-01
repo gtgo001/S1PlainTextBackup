@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 02:06** 
+> ## **本文件最后更新于2020-05-02 04:05** 
 
 
 
@@ -7076,13 +7076,260 @@ syl，组长做着做着就想套皮出道真不知道是啥风气，咱不是�
 
 
 
+ 本帖最后由 超能力者stven 于 2020-5-2 02:07 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275379&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-5-2 02:01</a>
 
 有瓜吗，放出来大家吃啊</blockquote>
-在净土坛看到几句谜语，我也不太确定，不敢乱说
+除了听在azki官群的朋友说过之外，也就在净土坛看到几句谜语，咱也不太确定，不敢乱说
 
 
 
 
 
-                                      
+
+
+-----
+
+####  qw945  
+##### 15357#       发表于 2020-5-2 02:08
+
+
+
+
+怎么一放假管人观众又开始整活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15358#       发表于 2020-5-2 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275363&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-2 01:55</a>
+
+今晚忙着推第七章 有小肥妹凸待的repo吗</blockquote>
+除了太紫全是姨，阿希还要求对方装萝莉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15359#       发表于 2020-5-2 02:08
+
+
+
+
+azki起码把歌的生肉搬了吧，又不用多少时间的反正全是歌，哦还有和空妈的两次歌回都没有，算了我一会搬来吧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15360#       发表于 2020-5-2 02:10
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-2 02:12 编辑 
+
+Azki组如果整活的话也没多少人知道的吧，我怀疑azki在pxj心中的存在感可能都比彩虹的人低<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15361#       发表于 2020-5-2 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275409&amp;ptid=1924531" target="_blank">free 发表于 2020-5-2 02:08</a>
+
+azki起码把歌的生肉搬了吧，又不用多少时间的反正全是歌，哦还有和空妈的两次歌回都没有，算了我一会搬来吧 ...</blockquote>
+刚拿b站和404上传的情况一比对，真是吓一跳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 15362#       发表于 2020-5-2 02:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275383&amp;ptid=1924531" target="_blank">妹控使徒 发表于 2020-5-2 02:01</a>
+露露的潜力真是不可限量     24H耐久直播本身就很猛了   还挑了之前一直苦手的节奏天国   然后这次表现还好 ...</blockquote>
+可是露露玩过动森了呀，不止一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15363#       发表于 2020-5-2 02:28
+
+
+
+
+有好心人科普下486那个showroom前世是实锤还是歪锤
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15364#       发表于 2020-5-2 02:45
+
+
+
+
+这位ばぶ美吗，没有100%的实锤把握，不过鸭皇说自己有个姐姐也在当V，至于是真的还是设定掩饰你们看吧...
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 15365#       发表于 2020-5-2 02:48
+
+
+
+
+我更好奇486是大学生这个信息怎么来的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15366#       发表于 2020-5-2 02:53
+
+
+
+
+看了下光太郎的博客，感觉差不多90%实锤吧，真就此地无银嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15367#       发表于 2020-5-2 03:38
+
+
+
+[https://www.bilibili.com/video/BV1JT4y137BS](https://www.bilibili.com/video/BV1JT4y137BS)
+
+azki和空妈这歌回搬来了，字幕组原来连这个都不搬，在国内能火就怪了
+
+
+楼主说的好，箱就是用来贩卖人际关系的，有箱不联动，等于没有箱。azki这个专辑发售页面看看来祝贺的，真是要啥人有啥人，就是除了一个空妈之外没杏人，这实质开除出杏的可怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[http://without-u.azki-official.com/](http://without-u.azki-official.com/)
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 15368#       发表于 2020-5-2 03:52
+
+
+
+
+至少名义上还是杏人。狐皇有娃要带，找找希妹和一些底边也未尝不可，但木口真的有实际意义上的底边吗？
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 15369#       发表于 2020-5-2 04:01
+
+
+
+
+真正意义上的底边都是那些几十同接的吧，杏仁没一个真底边
+
+
+
+
+
+
+
+-----
+
+####  妹控使徒  
+##### 15370#       发表于 2020-5-2 04:01
+
+
+
+
+不找HOLO是因為唱功不够格吗  毕竟本体nayuta  也算是当年顶级翻唱歌手之一了  而且他是主打歌势的
+
+如果是圈子或者人际关系的话     麻烦了...................................
+
+
+
+话说azki的3D模型质量太低还是操作技术的问题   直播回用3D模型大多数时候嘴巴没动  感觉不比马自立的好多少
+
+
+
+
+
+                                     
