@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 20:09** 
+> ## **本文件最后更新于2020-05-01 22:08** 
 
 
 
@@ -9262,4 +9262,1001 @@ mea貌似还没祝贺如月1w粉，这个b啊<img src="https://static.saraba1st.
 
 
 
-                                 
+
+
+-----
+
+####  Mr.shelter  
+##### 1994#       发表于 2020-5-1 20:09
+
+
+
+
+那咩是还住在774家吗?真是这样774也不管管孩子让她别乱吃东西的吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1995#       发表于 2020-5-1 20:09
+
+
+
+
+原来那个头像的楼友不是萨尔哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1996#       发表于 2020-5-1 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你麻或多或少都讲过现在在单独一个人生活
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1997#       发表于 2020-5-1 20:13
+
+
+
+
+问题是她不是仍然没成年不能租房子吗（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1998#       发表于 2020-5-1 20:14
+
+
+
+
+用别人的名义喽
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 1999#       发表于 2020-5-1 20:14
+
+
+
+
+明面上没有任何动静了啊，提到处理工作的也是说的是有大人在帮忙，是谁当然全凭猜。
+搬出来是早搬出来了，事情过后应该就搬出来了。
+提过很多次，水电费啊，拉网啊，一个人什么的啊。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2000#       发表于 2020-5-1 20:15
+
+
+
+
+mea早就说是一个人住了啊，前几天还提过来着
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2001#       发表于 2020-5-1 20:17
+
+
+
+
+她离家直播也是因为家庭条件不允许，现在可以就能租了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2002#       发表于 2020-5-1 20:17
+
+
+
+
+未成年租房有父母同意就行吧，以前是父母不支持，现在为了她安全着想也应该会开绿灯了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2003#       发表于 2020-5-1 20:18
+
+
+
+
+麻之前还提过生理期痛到找不到药，在地板上睡了一宿。774在肯定会帮她翻个药啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2004#       发表于 2020-5-1 20:20
+
+
+
+
+所以说以现在的状况看还是有人照顾会安心一点啊(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2005#       发表于 2020-5-1 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那话题又要转到我出发了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2006#       发表于 2020-5-1 20:21
+
+
+
+
+她觉得一个人住更爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2007#       发表于 2020-5-1 20:22
+
+
+
+
+屏幕屏幕
+屏幕屏幕
+  戒指手手
+ 手手手手
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2008#       发表于 2020-5-1 20:22
+
+
+
+
+别想着养她了，她养好了一半的段子就没啦<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2009#       发表于 2020-5-1 20:24
+
+
+
+
+大概看了看，这么多直播只有两场不是联动，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过希望恐怖游戏可以有哪怕一次玩到游戏内容的，我自从追直播以来她就一次5w纪念恐怖游戏玩到了内容，还是一瞬间就过去了没吓到她。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2010#       发表于 2020-5-1 20:32
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-1 20:33 编辑 
+
+屏幕屏幕
+
+屏幕屏幕
+
+  戒指手手
+
+手手手手
+
+我的小小梦想： 希望她玩subnautical<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+完全可以代替恐怖游戏啊， 至少对一开始玩的人来说
+
+
+
+
+
+
+
+-----
+
+####  WhiteAvalon  
+##### 2011#       发表于 2020-5-1 20:34
+
+
+
+ 本帖最后由 WhiteAvalon 于 2020-5-1 20:59 编辑 
+
+时间也快到了 要不要庆祝一下成功渡劫一周年？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只是开个玩笑 冒犯到了我在此抱歉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2012#       发表于 2020-5-1 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47272785&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-5-1 20:32</a>
+
+屏幕屏幕
+
+屏幕屏幕
+
+  戒指手手</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">戒指前为啥要空一格
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2013#       发表于 2020-5-1 20:37
+
+
+
+
+别吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，谁能说不会再出事呢（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2014#       发表于 2020-5-1 20:38
+
+
+
+
+别奶了别奶了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2015#       发表于 2020-5-1 20:40
+
+
+
+
+爬爬爬，看不得这个，不过我还是蛮好奇到底是哪位给裁狗透的底<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2016#       发表于 2020-5-1 20:42
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-1 20:45 编辑 
+
+停停停<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+yysy没想到这就一年了，太快了，，，这一年跑了多少人呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+我还是倾向于裁狗没多少东西但是套话把她话套出来了，当初说是两小时极速应对，但是这么久看过来我又觉得当时很可能就是慌了才那么快开的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+yysy，别再车516了，没啥意思。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2017#       发表于 2020-5-1 20:52
+
+
+
+
+你说了就不让别人车？<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+无所谓了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2018#       发表于 2020-5-1 20:53
+
+
+
+
+还是别车了，要车的东西一年前应该都车过了，建议直接复制粘贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2019#       发表于 2020-5-1 20:56
+
+
+
+
+说来三月四月也是平静，414也就那样
+现在看点知道的也就小紫小绿 3d bls演唱会
+
+也不知道五月有新活没<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2020#       发表于 2020-5-1 21:00
+
+
+
+
+这几天怎么像周年庆前夕一样把一堆车轱辘都回顾了一轮
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2021#       发表于 2020-5-1 21:04
+
+
+
+
+还是mea不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2022#       发表于 2020-5-1 21:04
+
+
+
+ 本帖最后由 2014720 于 2020-5-1 21:05 编辑 
+
+安不忘危，盛必虑衰。<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+syl，小紫声音真的舒服
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2023#       发表于 2020-5-1 21:05
+
+
+
+
+有一说一mea这两天播的很多了
+所以还是临近516的ptsd吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2024#       发表于 2020-5-1 21:07
+
+
+
+
+呜呜呜呜要ptsd了， 要ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2025#       发表于 2020-5-1 21:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47273127&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 21:05</a>
+有一说一mea这两天播的很多了
+所以还是临近516的ptsd吧</blockquote>
+播的不少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但都错开了你楼水量大的时间
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2026#       发表于 2020-5-1 21:12
+
+
+
+
+主要六字母联动了一次，从贴贴人顺水推舟一路把原来的都车了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 2027#       发表于 2020-5-1 21:12
+
+
+
+
+怨灵有人云过么？有台灯么？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2028#       发表于 2020-5-1 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47273188&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-1 21:12</a>
+怨灵有人云过么？有台灯么？</blockquote>
+我比较好奇这游戏阿b能不能播
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2029#       发表于 2020-5-1 21:14
+
+
+
+ 本帖最后由 2014720 于 2020-5-1 21:18 编辑 
+
+她这躲着人播的方式属实蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，也不指望她改
+syl，我突然觉得各大m楼可以把小紫小绿相关讨论加进去，提高水量，养出新病栋<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+如果小紫小绿也能成功开出冲国二矿的话，怎么说都是好事（不会再有贴贴人就好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2030#       发表于 2020-5-1 21:15
+
+
+
+
+前面有人提了q君玩过，但不知道是不是在b站播的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2031#       发表于 2020-5-1 21:16
+
+
+
+
+增加其他人的讨论量不就是变相引流了，毒唯震怒<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2032#       发表于 2020-5-1 21:17
+
+
+
+
+貌似和犬鸣隧道是一个公司，也有蛋疼的摄像机
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2033#       发表于 2020-5-1 21:17
+
+
+
+
+不知道你麻给小绿小紫定的抽成是多少
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2034#       发表于 2020-5-1 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">然后m楼和平演变成贴贴楼最好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2035#       发表于 2020-5-1 21:20
+
+
+
+
+记得有个什么怨的游戏，是不能播的来着
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2036#       发表于 2020-5-1 21:21
+
+
+
+ 本帖最后由 2014720 于 2020-5-1 21:26 编辑 
+
+别啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，若是成功那必是第二春
+
+我要用这永恒之井的水，搞出第二颗世界之树<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2037#       发表于 2020-5-1 21:21
+
+
+
+
+环楼ptsd
+怨灵云过一点，挺黑的，拍照让我想起了零系列，不过零的主角都很色，没法比<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2038#       发表于 2020-5-1 21:23
+
+
+
+
+零系列不都凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记得每隔几天就会看到有人想让零系列上switch
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2039#       发表于 2020-5-1 21:25
+
+
+
+
+怨灵是那个上个月才发售的新游戏么
+
+
+推广小绿小紫应该往mea观众圈外推广啊，不然只会分流
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2040#       发表于 2020-5-1 21:27
+
+
+
+
+讲道理咩pro只是说着玩的吧，不会真有抽成吧......小紫感觉对v也不是很上心啊<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2041#       发表于 2020-5-1 21:28
+
+
+
+
+这是虚空车啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议把mea的line和discord盗号，这样就知道她们仨的关系了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2042#       发表于 2020-5-1 21:29
+
+
+
+
+p箱也不说着玩玩而已
+现在还会有众筹出圈这种事吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2043#       发表于 2020-5-1 21:29
+
+
+
+
+如月现在看还是有本事的，虽然给不了我你麻的感觉，但今天我还是把两边的fo交了，我忏悔，麻酱可以原谅我吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2044#       发表于 2020-5-1 21:34
+
+
+
+
+如果贴吧能恢复正常秩序的话，我希望那里能种下一颗世界树的种子，我相信那里新人还是多的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2045#       发表于 2020-5-1 21:37
+
+
+
+
+研究事业没意义啊，只会跟昨天一样再车一圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如研究研究他要玩的游戏
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2046#       发表于 2020-5-1 21:38
+
+
+
+
+有人可以直接黑她手机整几张自拍吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2047#       发表于 2020-5-1 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">黑完能把自拍私信给我吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2048#       发表于 2020-5-1 21:41
+
+
+
+
+建议众筹请黑客，既有麻照又有话题度，能出圈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2049#       发表于 2020-5-1 21:43
+
+
+
+
+也可以从爱小姐周围的tc主播开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2050#       发表于 2020-5-1 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么赶紧去攻略小绿啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2051#       发表于 2020-5-1 21:58
+
+
+
+
+如月被你麻洗脑把有头有脸的图全给删了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2052#       发表于 2020-5-1 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">VTB害人啊
+
+
+
+
+
+                               
