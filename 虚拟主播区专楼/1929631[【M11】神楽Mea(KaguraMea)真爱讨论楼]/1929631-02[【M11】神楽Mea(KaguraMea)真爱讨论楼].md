@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 18:09** 
+> ## **本文件最后更新于2020-05-01 20:09** 
 
 
 
@@ -8756,4 +8756,510 @@ mea貌似还没祝贺如月1w粉，这个b啊<img src="https://static.saraba1st.
 
 
 
-                                  
+
+
+-----
+
+####  Leutnant某囧  
+##### 1965#       发表于 2020-5-1 18:16
+
+
+
+<blockquote>Sanguine 发表于 2020-5-1 18:03
+舞mea不是你咩最起劲，兔子苔男这些人怕是都被私下授意过才敢拱火</blockquote>
+犬神因幡还有uno联动那两场程度的拱火也只有犬山做的出来了，咩姐这么回避话题还硬拱
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1966#       发表于 2020-5-1 18:17
+
+
+
+ 本帖最后由 Sanguine 于 2020-5-1 18:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47271763&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-1 18:16</a>
+犬神因幡还有uno联动那两场程度的拱火也只有犬山做的出来了，咩姐这么回避话题还硬拱 ...</blockquote>
+草，那么4.27打块那次说私下聊男人话题大概率也是在硬拱咯<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+记错时间了编辑，是4.24那次
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1967#       发表于 2020-5-1 18:19
+
+
+
+
+梁木大量增殖！
+
+
+
+不用再担心木材不够用了！
+
+
+好起来了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1968#       发表于 2020-5-1 18:22
+
+
+
+
+这不都是看节目效果吗，跟组长联动一直都不错，拱火过头不好看，犬神因幡mc那回肉眼可见的尴尬，和苔苔pcr抽卡联动我也喜欢看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1969#       发表于 2020-5-1 18:31
+
+
+
+<blockquote>Sanguine 发表于 2020-5-1 18:17
+草，那么4.27打块那次说私下聊男人话题大概率也是在硬拱咯</blockquote>
+谁知道呢，那天咩姐本来就没怎么讲话
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1970#       发表于 2020-5-1 18:53
+
+
+
+
+苔苔那里的整蛊回是神回啊，对苔苔梁木大可能是因为苔苔说话太咄咄逼人了吧，兔姨就是另一种方向上的让人无法拒绝了，拱起来没那么明显。
+这俩联动时都是压制的类型
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1971#       发表于 2020-5-1 19:01
+
+
+
+
+知名漫画家还是比nico生主播要狂的，苔苔硬拱的时候就是你兔姨也只能尬的顺着她稍微说几句，资本，永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1972#       发表于 2020-5-1 19:06
+
+
+
+
+呜呜呜 这是个人吃人的世界啊
+
+
+咩咩要被吃了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1973#       发表于 2020-5-1 19:13
+
+
+
+
+【TwitterTweet 神楽めあ 推特转推】
+内容：RT @KisaragiKoyori: チャンネル登録者数1万人記念でナユタン星人さんのエイリアンエイリアン
+歌ってみたよ！！👻💤
+
+沢山聴いてね～！ [https://t.co/dHhQZbHyIa](https://t.co/dHhQZbHyIa)
+媒体：['[https://twitter.com/KisaragiKoyo ... 53855373312/video/1](https://twitter.com/KisaragiKoyori/status/1256176953855373312/video/1)']
+链接：[]
+时间：2020-05-01 11:05:00 (GMT)
+网址：[https://twitter.com/KaguraMea_VoV/status/1256177798483308545](https://twitter.com/KaguraMea_VoV/status/1256177798483308545)
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1974#       发表于 2020-5-1 19:13
+
+
+
+
+耶<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1975#       发表于 2020-5-1 19:14
+
+
+
+
+快来喊贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1976#       发表于 2020-5-1 19:15
+
+
+
+
+不许你拆开小绿小紫<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 1977#       发表于 2020-5-1 19:16
+
+
+
+
+咩姐确实对如月相当上心，我之前还说到1w应该就引流的差不多了
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1978#       发表于 2020-5-1 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47272206&amp;ptid=1929631" target="_blank">2014720 发表于 2020-05-01 19:15:41</a>
+不许你拆开小绿小紫</blockquote>没事，都是我麻的翅膀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 1979#       发表于 2020-5-1 19:20
+
+
+
+
+如月新发的歌居然是你咩的御用调音师调的，难道774是神乐组共用的？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1980#       发表于 2020-5-1 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47272240&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-05-01 19:20:12</a>
+如月新发的歌居然是你咩的御用调音师调的，难道774是神乐组共用的？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都可以用，都可以用，夸皇也用过。说不定整个v圈女v都用过呢。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Pandator16  
+##### 1981#       发表于 2020-5-1 19:25
+
+
+
+
+兔姨和绿之人搞的相亲啊，不会觉得真的不拱火吧
+
+
+那苔苔优势就是人脉，能拉来那么多人开单台，硬要脑死杂谈唱歌不是傻了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1982#       发表于 2020-5-1 19:27
+
+
+
+
+草，你们这说的我还以为是黄兔子mea和舞元联动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1983#       发表于 2020-5-1 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47272277&amp;ptid=1929631" target="_blank">Pandator16 发表于 2020-5-1 19:25</a>
+兔姨和绿之人搞的相亲啊，不会觉得真的不拱火吧
+
+
+那苔苔优势就是人脉，能拉来那么多人开单台，硬要脑死杂谈 ...</blockquote>
+那不就正常联动水平吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这都能用拱火批判一番那mea不用和别人联动了
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 1984#       发表于 2020-5-1 19:32
+
+
+
+[https://www.youtube.com/watch?v=825Zrrvo0h0&amp;feature=youtu.be](https://www.youtube.com/watch?v=825Zrrvo0h0&amp;feature=youtu.be)
+
+如月的歌补一个油土鳖地址<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+混音郎背景音巨大的特性是改不了了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 1985#       发表于 2020-5-1 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">774爬啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1986#       发表于 2020-5-1 19:39
+
+
+
+
+不是说mea不用774的歌也背景音巨大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1987#       发表于 2020-5-1 19:40
+
+
+
+
+这事如月的歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1988#       发表于 2020-5-1 19:41
+
+
+
+
+这波啊，是神乐组内霸凌
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1989#       发表于 2020-5-1 19:52
+
+
+
+
+混子哥人声是真的难顶，明明拿的是最干净的干音硬是加的跟消伴奏消出来的一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1990#       发表于 2020-5-1 19:59
+
+
+
+
+说起来774还在帮羊做工作上的事情吗？（516之后明面上好像没动静了）
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1991#       发表于 2020-5-1 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就变混子哥了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1992#       发表于 2020-5-1 20:07
+
+
+
+
+去年提过一次还在帮忙处理一些工作
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1993#       发表于 2020-5-1 20:07
+
+
+
+
+话说萨尔竟然还活着，还转发了贴贴pv，不晓得还有没有在视奸泥潭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 

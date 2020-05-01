@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 18:08** 
+> ## **本文件最后更新于2020-05-01 20:07** 
 
 
 
@@ -6050,7 +6050,7 @@ F有</blockquote>
 
 
 
-点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_EfVSA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_hG73B" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10576,7 +10576,7 @@ V就是一个方便和观众保持距离凹人设的工具，我要是有个妹�
 
 
 
-<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_g2KjC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_Ei32m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 这个女人今晚上ARK
 
@@ -12647,9 +12647,9 @@ sc分成10有89是阶梯了
 
  本帖最后由 alcoholic1000 于 2020-4-30 22:31 编辑 
 
-男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_yS750" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_Jq7ar" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
-<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_Z9297" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_IyqJU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21095,11 +21095,11 @@ astel深夜直播被问看不看早安可可，回答是陷阱后沉默。这些
 
 今日份的小天使<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
-<img src="https://pbs.twimg.com/media/EWww1j5XgAAUCUl?format=jpg&amp;name=large" height="857" id="aimg_BKt76" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EW2tCeSU0AArO2E?format=png&amp;name=900x900" height="800" id="aimg_o8SrQ" onclick="zoom(this, this.src, 0, 0, 0)" width="800"/)
+<img src="https://pbs.twimg.com/media/EWww1j5XgAAUCUl?format=jpg&amp;name=large" height="857" id="aimg_mQP0y" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EW2tCeSU0AArO2E?format=png&amp;name=900x900" height="800" id="aimg_HaywA" onclick="zoom(this, this.src, 0, 0, 0)" width="800"/)
 
 顺便警惕新型网络诈欺<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWxENxnXkAIcli4?format=jpg&amp;name=medium" height="993" id="aimg_fz23Q" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxENxnXkAIcli4?format=jpg&amp;name=medium" height="993" id="aimg_KEe6v" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -26283,7 +26283,7 @@ syl
 
 
 EWhrSkUUcAcKc5Y.png
-(479.27 KB, 下载次数: 0)
+(479.27 KB, 下载次数: 1)
 
 
 
@@ -28928,7 +28928,7 @@ Akariは死んだ！もういない！
 <img src="https://img.saraba1st.com/forum/202005/01/175108ig5llogzzttto58t.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200501174951.png</strong> (331.1 KB, 下载次数: 0)
+<strong>QQ截图20200501174951.png</strong> (331.1 KB, 下载次数: 2)
 
 下载附件
 
@@ -29297,6 +29297,447 @@ chima歌回都没人发了吗</blockquote>
 
 不过兔组确实是细作嗷，剪这 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">真是不懂他们在想什么。。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 14980#       发表于 2020-5-1 18:08
+
+
+
+
+本间唱歌真好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 14981#       发表于 2020-5-1 18:09
+
+
+
+ 本帖最后由 tiro_finale 于 2020-5-1 18:12 编辑 
+
+紫宝前阵子还在被带，今天就开始带妹，不愧是无敌男友<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+草，带妹结果被妹教也是没谁了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 14982#       发表于 2020-5-1 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 一小时就跑了，。这波算不算不重视?
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14983#       发表于 2020-5-1 18:11
+
+
+
+
+没事，到时候只要拿出阿葵自己做的中文pv，一切黑屁迎刃而解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14984#       发表于 2020-5-1 18:11
+
+
+
+
+melty world/Kizuna AI/covered by キズナアイ(ブラック)【歌ってみた】
+
+from. A.I.Channel
+[https://youtu.be/cXzGINQASog](https://youtu.be/cXzGINQASog)
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 14985#       发表于 2020-5-1 18:12
+
+
+
+
+游走在夸龙船宫兔众皇之间，紫宝其实是コミュ強啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14986#       发表于 2020-5-1 18:13
+
+
+
+
+燦鳥ノム☂️@5/8(金)第3弾オリジナル曲公開!! (下午6:00 · 2020年5月1日)
+
+@suntory_nomu
+
+GLAY・TAKUROさん作詞作曲🎤ギターHISASHIさん🎸の
+
+
+燦鳥ノム第3弾オリジナルソングですが…
+
+5月8日（金）にMV公開が決定しました☆""ハ(Ծ∇Ծ✿)
+
+
+どきどき……💓
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 14987#       发表于 2020-5-1 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47271714&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-1 18:11</a>
+
+没事，到时候只要拿出阿葵自己做的中文pv，一切黑屁迎刃而解
+
+
+—— 来自 Xiaomi Redmi Note 7, Andr ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer"> 其实我投了学中文、云旅游、等热门批限节目的棉花糖
+
+
+但很明显，并没有什么卵用
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 14988#       发表于 2020-5-1 18:15
+
+
+
+<blockquote>激光2000 发表于 2020-5-1 18:09
+一小时就跑了，。这波算不算不重视?</blockquote>
+组曲唱完了，再唱要出事，见好就收
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 14989#       发表于 2020-5-1 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47271661&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-1 18:05</a>
+虽然对不起chima，
+
+
+但我是开着chima的声音，放葵皇的画面的，</blockquote>
+啊这
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 14990#       发表于 2020-5-1 18:20
+
+
+
+
+不会真有人喜欢看yhm用假名标音照着读塑料中文吧 顺便推个yhm 召唤师yami 学中文照着这位来 塑料中文和弹幕互动还是有意思的
+https://space.bilibili.com/487902?share_medium=android&amp;share_source=copy_link&amp;bbid=XY63DC961DE3B91A833A69E3653D5C222DCB6&amp;ts=1588328341059
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 14991#       发表于 2020-5-1 18:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 釜山太惨了，推特置顶从新衣服、换成了音声，
+
+
+
+
+
+
+
+-----
+
+####  lor  
+##### 14992#       发表于 2020-5-1 18:23
+
+
+
+
+中间是ういは，腿对上了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+syl 社笹这节目还是上次江刀嘉宾的好看
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14993#       发表于 2020-5-1 18:24
+
+
+
+
+那这频道一时半会还恢复不了了？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14994#       发表于 2020-5-1 18:24
+
+
+
+
+【公式】雀魂-じゃんたま-
+
+@MahjongSoul_JP
+
+【お知らせ】
+
+様々なエンタメ企業が集結し最強の座を競う「雀魂エンタメ企業対抗戦」を5月6日（水）開催！
+
+大会の模様はYoutubeにて配信予定です。
+
+
+「みんなで楽しく打つにゃ！」
+
+
+視聴はこちら！
+[https://youtu.be/9xKb0CcqbaA](https://youtu.be/9xKb0CcqbaA)
+
+5月6日（水）13時~
+
+#雀魂企業対抗戦 #PlayApartTogether #雀魂 #じゃんたま
+
+
+<img src="https://img.saraba1st.com/forum/202005/01/182441k7ytpfgfcurr1ur1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EW6YaGdUMAIFl6x.jpg</strong> (252.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-1 18:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14995#       发表于 2020-5-1 18:25
+
+
+
+
+◆大会概要
+
+開催日時：2020年5月6日 13時00分～
+
+出場企業数：12社
+
+優勝賞品：企業PRタイム+第一回大会王者の栄誉
+
+主催：インサイド＆株式会社Yostar
+
+企画協力：麻雀ウォッチ
+
+
+◆参加企業（五十音順）
+
+Activision Blizzard Japan株式会社／株式会社アニメイト／株式会社イード（インサイド）／株式会社ウィットワン／株式会社エイシス／株式会社エンジンズ／カバー株式会社（ホロライブ）／クリプトン・フューチャー・メディア株式会社／株式会社GamingD（DeToNator）／株式会社集英社（Vジャンプ編集部）／株式会社スクウェア・エニックス／株式会社ソフマップ／株式会社バーチャルキャスト／PUBG株式会社／株式会社Project White（TSUKUMO）／株式会社Yostar
+
+
+
+大会当日は、メインMCに『雀魂』公式配信「てん×くす」でもアンバサダーを務める人気VTuberの天開司さんと楠栞桜さんをお迎えし、YouTubeとPeriscopeにて大会の模様を中継します。さらに解説役として、最高位戦日本プロ麻雀協会所属の山田独歩プロ、日本プロ麻雀協会所属の都美プロを招待。豪華布陣が激闘をさらに盛り上げます。
+
+
+配信日時 ：2020年5月6日 13時00分～（決勝戦は19時頃を予定）
+
+配信URL ：YouTube（雀魂公式チャンネル）／Periscope（Twitter）
+
+大会MC：天開司（VTuber）、楠栞桜（VTuber）
+
+解説 ：山田独歩（最高位戦日本プロ麻雀協会）、都美（日本プロ麻雀協会）
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 14996#       发表于 2020-5-1 18:27
+
+
+
+<img src="https://p.sda1.dev/0/fd7f1b069ebcd2f50c943ab5bba90650/IMG_D0E75BDB08B6E684CDA685A5119D53C0.jpeg" referrerpolicy="no-referrer">
+
+老将不需要b限也能反击<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 14997#       发表于 2020-5-1 18:30
+
+
+
+
+不是说至少7天吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 14998#       发表于 2020-5-1 18:34
+
+
+
+
+hiyoko测试加入twitch同接
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 14999#       发表于 2020-5-1 18:35
+
+
+
+
+讲真holo官方运营没有直接开除解散整个组的权限么
+
+最大的漏洞啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15000#       发表于 2020-5-1 18:37
+
+
+
+
+当然有啊，直接联系b站取消转播权和搬运翻译权就好了，只不过现在还没到撕破脸那一步就是了。
 
 
 
