@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 12:05** 
+> ## **本文件最后更新于2020-05-01 14:06** 
 
 
 
@@ -6050,7 +6050,7 @@ F有</blockquote>
 
 
 
-点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_A0W61" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+点杏<img src="https://pbs.twimg.com/media/EW14yRNU4AAc8IZ?format=jpg&amp;name=medium" id="aimg_jb30b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10576,7 +10576,7 @@ V就是一个方便和观众保持距离凹人设的工具，我要是有个妹�
 
 
 
-<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_w5XxP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EN8qTTtUcAAa7K8?format=jpg&amp;name=large" id="aimg_zimav" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 这个女人今晚上ARK
 
@@ -12647,9 +12647,9 @@ sc分成10有89是阶梯了
 
  本帖最后由 alcoholic1000 于 2020-4-30 22:31 编辑 
 
-男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_MC92C" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+男娘（X）<img src="https://pbs.twimg.com/media/ETFY7YlUYAEoGsE?format=jpg&amp;name=large" height="1183" id="aimg_y762Z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
-<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_yc1Cm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUhdqeoU4AIyDIT?format=jpg&amp;name=large" id="aimg_TSZv6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21095,11 +21095,11 @@ astel深夜直播被问看不看早安可可，回答是陷阱后沉默。这些
 
 今日份的小天使<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
-<img src="https://pbs.twimg.com/media/EWww1j5XgAAUCUl?format=jpg&amp;name=large" height="857" id="aimg_lgAaW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pbs.twimg.com/media/EW2tCeSU0AArO2E?format=png&amp;name=900x900" height="800" id="aimg_U7Tx7" onclick="zoom(this, this.src, 0, 0, 0)" width="800"/)
+<img src="https://pbs.twimg.com/media/EWww1j5XgAAUCUl?format=jpg&amp;name=large" height="857" id="aimg_mlPuE" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EW2tCeSU0AArO2E?format=png&amp;name=900x900" height="800" id="aimg_ZUXwW" onclick="zoom(this, this.src, 0, 0, 0)" width="800"/)
 
 顺便警惕新型网络诈欺<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWxENxnXkAIcli4?format=jpg&amp;name=medium" height="993" id="aimg_Gl9Nb" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxENxnXkAIcli4?format=jpg&amp;name=medium" height="993" id="aimg_OhsqD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -24080,6 +24080,25 @@ winda老哥不是应该看得涕泗横流吗，我看完这预告还挺心情复
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -24164,10 +24183,11 @@ winda老哥不是应该看得涕泗横流吗，我看完这预告还挺心情复
 
 
 
- 参与人数 1战斗力 +2
+ 参与人数 2战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| cherryrain| + 1|为了虹人的未来，让你朋友联系版主举报吧.|
 | 激光2000| + 2|错怪你了|
 
 
@@ -24177,4 +24197,1267 @@ winda老哥不是应该看得涕泗横流吗，我看完这预告还挺心情复
 
 
 
-         
+
+
+-----
+
+####  遍体精淋af  
+##### 14731#       发表于 2020-5-1 12:06
+
+
+
+
+白上桑又出来解谜了，十分钟三k点赞两百回复，有无狐学家来分析一波
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14732#       发表于 2020-5-1 12:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/01/120650bzcomo322vrwsaok.png" referrerpolicy="no-referrer">
+
+
+<strong>1588305137699.png</strong> (529.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-1 12:06 上传
+
+
+
+
+
+小天使浓度，up，丢人马车和申必柯南游戏两动。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 14733#       发表于 2020-5-1 12:08
+
+
+
+
+空妈真是和holo箱真空隔离，这种话还得狐姨说
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14734#       发表于 2020-5-1 12:09
+
+
+
+ 本帖最后由 克罗夏 于 2020-5-1 12:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 14735#       发表于 2020-5-1 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47268842&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-5-1 12:06</a>
+
+白上桑又出来解谜了，十分钟三k点赞两百回复，有无狐学家来分析一波</blockquote>
+还用猜吗
+
+直球diss
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 14736#       发表于 2020-5-1 12:11
+
+
+
+
+打击对方新人不早有了吗
+
+杏anti串挖虹新人黑料把阿夸点着了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 14737#       发表于 2020-5-1 12:13
+
+
+
+
+2k你可别说话了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/9223f7a797f76f00698f9748d1286f92/IMG_804CC3A0E6899D10051655FDFC704A0B.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14738#       发表于 2020-5-1 12:15
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-1 12:22 编辑 
+
+釜山开马甲号吧
+
+SYL：
+
+我觉得狐狸直球点操挺好的。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 14739#       发表于 2020-5-1 12:16
+
+
+
+
+你楼怎么又质疑狐皇没gachi了，人家是流量明星，流量懂吗，流量就是金钱，就是生命，gachi算个屁。
+
+
+流量明星的特点就是“存在感”，几乎每个人都听过他的名字，知道他的几个梗，他会在各种各样不管跟他有没有关系的的场合出现，总是能成为各种社区的话题谈资，不过你要问他真正拿出了哪些好看的东西，反而没几个人能说上来。狐皇明显走的就是这个路线，怎么还质疑人家有没有gachi呢。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 14740#       发表于 2020-5-1 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47268891&amp;ptid=1924531" target="_blank">あのん 发表于 2020-5-1 12:11</a>
+打击对方新人不早有了吗
+
+杏anti串挖虹新人黑料把阿夸点着了</blockquote>
+我家苹果跟那个炮王没关系好吧，早就辟谣了，不要以讹传讹好吧。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 14741#       发表于 2020-5-1 12:18
+
+
+
+
+我是感觉讲得还挺对的，本人玩玩，看看笑笑就算了，去制作更丑化的图、乃至安排无关的人，就很那啥了
+
+至于“你们先玩擦边球，怪不得模仿犯”就属于强盗逻辑了
+
+
+当然老是要她出来讲这种话，真的是嘲讽拉满、伤害吃满<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 14742#       发表于 2020-5-1 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47268938&amp;ptid=1924531" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-1 12:16</a>
+
+我家苹果跟那个炮王没关系好吧，早就辟谣了，不要以讹传讹好吧。</blockquote>
+私底下恰独食谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 14743#       发表于 2020-5-1 12:20
+
+
+
+
+阿夸白金三了 单排钻石有望啊
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 14744#       发表于 2020-5-1 12:23
+
+
+
+
+这种直球diss也就狐狸和龙皇有胆子上，结果扩大化的龙皇本人反倒没有直球diss了。。惨狐狸惨
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 14745#       发表于 2020-5-1 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47268960&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-1 12:19</a>
+
+私底下恰独食谁知道呢</blockquote>
+同样逻辑所有女V都不无辜，就算明面上没和男人接触过，私生活怎么样谁知道呢。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+会扩大打击面的，不可取。
+
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 14746#       发表于 2020-5-1 12:24
+
+
+
+<blockquote>面具13 发表于 2020-5-1 11:53
+海盗组组长原话。</blockquote>
+从兔皇说的“有偏差”到自己觉得兔皇“会想多”，然后得出她“不喜欢”的结论并写上简介，想以此作为“遏制小鬼的‘工具’”，在失败甚至造成了重大危机时还觉得自己是战风车的堂吉诃德，在我理解看来他就是我所想的那个意思，就这种心态来看兔皇什么态度倒还在其次了
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 14747#       发表于 2020-5-1 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47268960&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-1 12:19</a>
+私底下恰独食谁知道呢</blockquote>
+vi不亏是vi，还是和以前一样恶心。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14748#       发表于 2020-5-1 12:24
+
+
+
+
+这话总得有人说，狐皇这波我点赞好吧
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 14749#       发表于 2020-5-1 12:25
+
+
+
+
+vi别光说啊，搞点创作，小黄文搞起来。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 14750#       发表于 2020-5-1 12:28
+
+
+
+<blockquote>刘邦去吃霸王餐 发表于 2020-5-1 12:25
+vi别光说啊，搞点创作，小黄文搞起来。
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+我多久没看管了 咋写
+
+你们提供点neta我还能搞搞
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 14751#       发表于 2020-5-1 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47268868&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-05-01 12:09:08</a></blockquote>我的朋友看估计还是会看，就是不想混圈了，我觉得这样也挺好就懒得劝了，反正我现在只是一个天天期盼彩虹爆炸的人。
+看不出发短消息的人是不是反串是因为那个人他疑似小号，发言只在彩虹相关的楼，但每次都明显试图往引战<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14752#       发表于 2020-5-1 12:31
+
+
+
+
+又到了特网友的时间了吗？
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 14753#       发表于 2020-5-1 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269030&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-5-1 12:30</a>
+
+我的朋友看估计还是会看，就是不想混圈了，我觉得这样也挺好就懒得劝了，反正我现在只是一个天天期盼彩虹爆 ...</blockquote>
+是哪个kkbla么
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 14754#       发表于 2020-5-1 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267919&amp;ptid=1924531" target="_blank">面具13 发表于 2020-5-1 10:43</a>
+夏哥凸待安排在狐夸粥船四人APEX联动前一小时，狐狸都预定去了，阿夸不去怕有大家庭粉又要开团 ...</blockquote>
+大家庭粉无所谓这个吧
+syl我倒是不希望大天使去，原因很简单：
+不能给你舔到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 14755#       发表于 2020-5-1 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269030&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-5-1 12:30</a>
+
+我的朋友看估计还是会看，就是不想混圈了，我觉得这样也挺好就懒得劝了，反正我现在只是一个天天期盼彩虹爆 ...</blockquote>
+去银色黎明举报就是了，版主能看ip的，如果人身攻击严重可以连大号一并砍
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 14756#       发表于 2020-5-1 12:42
+
+
+
+
+要是kkbla隔壁版主还不赶快把他赶出去啊，几句话离不开引战和阴阳怪气，发言比2000那边的号还故意膈应人，现在还多个骚扰新人。不除他就是个祸害<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14757#       发表于 2020-5-1 12:44
+
+
+
+
+比2000还膈应人却没被封<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 14758#       发表于 2020-5-1 12:44
+
+
+
+
+叫你朋友来S1啊，楼里来点新鲜虹浓度平衡一下。
+
+我一直觉得s1更适合我的原因就是s1er对自己还蛮有自知之明，虽然会骂别人恶心，但是心里明白自己也不咋地。
+
+nga就是，一团和气吧
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 14759#       发表于 2020-5-1 12:45
+
+
+
+
+比2000还膈应太草了，这人有后台吧
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 14760#       发表于 2020-5-1 12:47
+
+
+
+
+我看那帖子里版主发话了啊，消息记录给过去，让版主弄死算了
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 14761#       发表于 2020-5-1 12:48
+
+
+
+
+nga版主里有一位是葵熊吧，所以2000一直被针对<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 14762#       发表于 2020-5-1 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269220&amp;ptid=1924531" target="_blank">cherryrain 发表于 2020-5-1 12:48</a>
+
+nga版主里有一位是葵熊吧，所以2000一直被针对</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">葵熊何苦为难葵熊(自称）
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14763#       发表于 2020-5-1 12:58
+
+
+
+
+2000为什么能吸引到辣么多葵熊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 14764#       发表于 2020-5-1 13:02
+
+
+
+
+草隔了一会来看你楼又在车虹人懒实在忍不住了，那个图是solo同接没看到吗？葛皇的数据才17次没有人觉得奇怪？上个月本来就是ark+麻将+apex，天天都是一堆人联动，把这些全刨除去了当然次数少了啊，能多云云hiyoko就知道虹播的勤的比杏多多了，就是你们口中那帮同接4000 3000的“底边”天天播爆赚辛苦钱，一个月播100多个小时结果就拿50w左右的sc。你们一堆老害还诅咒ichr完蛋，ickr完蛋上位势当然没事了啊，反正都主流进出了还有两套3d赚的钱还多，现在虹真正的直播主力要是ickr没了没他们这帮全职主播每天打卡上班播爆你虹能留住新参？我是真的心疼这帮人，天天二动播爆还被顺劈被骂懒，赚着时间对出来的辛苦钱排队等一万年3d，而且还不像真正的底边那帮人都是兼职，人家都是做全职主播白天也播晚上也播的
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 14765#       发表于 2020-5-1 13:04
+
+
+
+
+小肥妹黄金周天天来批限 对比一下兔皇好吧
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 14766#       发表于 2020-5-1 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269348&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-1 13:04</a>
+小肥妹黄金周天天来批限 对比一下兔皇好吧</blockquote>
+pxj：“你要是不想来的话就别来了”
+这个结局不是正符合pxj的想法吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 14767#       发表于 2020-5-1 13:08
+
+
+
+<blockquote>tiro_finale 发表于 2020-5-1 11:55
+winda老哥不是应该看得涕泗横流吗，我看完这预告还挺心情复杂的，我推的也是蛋蛋和木曾啊
+
+
+</blockquote>
+众所周知meru的频道没有meru
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 14768#       发表于 2020-5-1 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269348&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-1 13:04</a>
+
+小肥妹黄金周天天来批限 对比一下兔皇好吧</blockquote>
+上次就说兔皇那个道歉声明怎么看都是撒由那拉嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 14769#       发表于 2020-5-1 13:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269348&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-1 13:04</a>
+
+小肥妹黄金周天天来批限 对比一下兔皇好吧</blockquote>
+小肥妹b限五天能有兔皇404播一次的钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+好吧应该还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14770#       发表于 2020-5-1 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269338&amp;ptid=1924531" target="_blank">Suny08 发表于 2020-5-1 13:02</a>
+
+草隔了一会来看你楼又在车虹人懒实在忍不住了，那个图是solo同接没看到吗？葛皇的数据才17次没有人觉得奇怪 ...</blockquote>
+当我每次都能看到一大堆虹人在直播就知道虹比杏勤奋的人多多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14771#       发表于 2020-5-1 13:17
+
+
+
+
+就连你们天天顺劈的学生党的VR人数比杏少播的直播时间总和都比杏多好吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 14772#       发表于 2020-5-1 13:17
+
+
+
+
+别把兔皇想得太可怕行不行，兔皇其实一个月404总共也就50w rmb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小肥妹b站上个月好歹也有12w
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 14773#       发表于 2020-5-1 13:18
+
+
+
+
+草是我耳朵出问题了吗 怎么小肥妹唱的这么拉跨？还是她故意的？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 14774#       发表于 2020-5-1 13:22
+
+
+
+[https://www.youtube.com/watch?v=FNtGznS0-EA](https://www.youtube.com/watch?v=FNtGznS0-EA)
+
+
+【歌枠】歌謡曲歌うゾウ♪【にじさんじ/レヴィ・エリファ】
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14775#       发表于 2020-5-1 13:22
+
+
+
+
+她歌力真的是忽高忽低(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14776#       发表于 2020-5-1 13:22
+
+
+
+
+说起来虹下一个3D应该轮到阿菜了吧？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 14777#       发表于 2020-5-1 13:23
+
+
+
+ 本帖最后由 rzrbtk 于 2020-5-1 13:48 编辑 
+
+虹浓度
+
+&gt;刚好随机到我认为inui最好的成曲，分享一下破200万的海盗音源（[https://www.youtube.com/watch?v=1boL5rnvJdk](https://www.youtube.com/watch?v=1boL5rnvJdk)），可能是MIX的人真的比较专业吧，能很明显的听出inui转音那种轻盈的感觉，过于明显的鼻音又能想到她皱着鼻子唱歌的样子<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，喜欢
+
+&gt;今晚又有郡道教书，主题是平安时代，邀请了胜来听课。按进度不久就要昭和了，我想着是不是要DM提醒一下，这个搞不好真的会炎起来，但好怕被block
+
+&gt;以前关注的一个纯情百合爱推主不知受什么刺激锁号了，然后在号里狂发gbtk涩文短打狂转涩图，时间线整个NSFW
+
+&gt;[https://twitter.com/oo___vt](https://twitter.com/oo___vt) KEMT穿越时空fanart，今晚的德龙穿越直播，不知道如今（社内地位）排第三（感谢2000哥更正：订阅排第八）的虹人对自己未来的幻想是怎么样（我好喜欢loli兔，好稀有好可爱，真正的幼女RP）
+
+
+
+
+
+
+EW5wqKRU4AU8C_8.png
+(982.49 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-5-1 13:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/01/132224z10nx1jpmogp1opn.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 14778#       发表于 2020-5-1 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269539&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-5-1 13:23</a>
+
+虹浓度
+
+&gt;刚好随机到我认为inui最好的成曲，分享一下破200万的海盗音源（https://www.youtube.com/watch?v=1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 她订阅不是排全社第八？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|不是说订阅，是想说那种前辈地位，就凛-月.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14779#       发表于 2020-5-1 13:29
+
+
+
+
+阿希拉跨不是常态吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 14780#       发表于 2020-5-1 13:29
+
+
+
+ 本帖最后由 yuandi20 于 2020-5-1 13:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269483&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-1 13:17</a>
+
+就连你们天天顺劈的学生党的VR人数比杏少播的直播时间总和都比杏多好吧 ...</blockquote>
+虽然不知道你是不是钓鱼还是反串，但是中国主播比日本主播播的时间长这是文化问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14781#       发表于 2020-5-1 13:33
+
+
+
+
+以同接来说，虹取前27和杏比并驾齐驱，直播时长虹前27肯定压过杏，杏甚至还有个不播势。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14782#       发表于 2020-5-1 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269602&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-5-1 13:29</a>
+
+虽然不知道你是不是钓鱼还是反串，但是中国主播比日本主播播的时间长这是文化问题吧，而为啥会形成 ...</blockquote>
+他应该看的是那个p站统计网站，那个不准的，很多游戏不让转播，还有皮套没人管的时候的突击漏网和兔组事件导致兔皇转播停了半拉月
+
+实际直播时间还是大于vr的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 14783#       发表于 2020-5-1 13:35
+
+
+
+
+虹全职底边是真的很不容易，就算播爆收入也不多，虹的银盾已经快70人了，3d遥遥无期
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 14784#       发表于 2020-5-1 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269636&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-1 13:34</a>
+
+他应该看的是那个p站统计网站，那个不准的，很多游戏不让转播，还有皮套没人管的时候的突击漏网和兔组事 ...</blockquote>
+你这么一解释不是显得vr更拉垮了么2333
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 14785#       发表于 2020-5-1 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269628&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-05-01 13:33:48</a>
+以同接来说，虹取前27和杏比并驾齐驱，直播时长虹前27肯定压过杏，杏甚至还有个不播势。 ...</blockquote>彩虹还有个不存在势<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，我也心疼那些播爆的中坚力量，我骂，也只骂彩虹的staff<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 14786#       发表于 2020-5-1 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 其实也不能这么说，比你惨的一抓一大把，
+
+
+进了杏才是人↑人，进了彩虹等于素餐，
+
+
+所以mrr的选择是正确的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 14787#       发表于 2020-5-1 13:41
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-1 13:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269663&amp;ptid=1924531" target="_blank">usodakedo 发表于 2020-5-1 13:38</a>
+
+彩虹还有个不存在势
+
+syl，我也心疼那些播爆的中坚力量，我骂，也只骂彩虹的staff</blockquote>
+我不是说取数据的前27么。
+
+田角骗19逸的新闻稿里画大饼说要增加talent待遇，看他能兑现多少吧。
+
+SYL：
+
+彩虹上位势功利一点说确实没必要福报。反正抽不出自己的龙皇下面人数据上不来，你田角有事还不是找上面几个。
+
+
+
+
+
+
+
+-----
+
+####  Golubaya  
+##### 14788#       发表于 2020-5-1 13:44
+
+
+
+
+进了彩虹相当于买了个初始<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 來自 Xiaomi MI MAX 2, Android 7.1.1上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 14789#       发表于 2020-5-1 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自己推的上层V不播可不得顺劈整个虹箱，踩杏也不影响杏女们赚钱，骂人都骂错，下次还会继续顺劈虹liver懒
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 14790#       发表于 2020-5-1 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269602&amp;ptid=1924531" target="_blank">yuandi20 发表于 2020-5-1 13:29</a>
+
+虽然不知道你是不是钓鱼还是反串，但是中国主播比日本主播播的时间长这是文化问题吧，而为啥会形成 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">因为平台要求播够多少小时才能拿当月工资阿，有的甚至要多少真实人数才算
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 14791#       发表于 2020-5-1 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 抽不来龙神还不是你田角自己的锅？自己抽了这么多人美其名与多元化，结果呢，小团体林立，各有各的山头
+
+
+kson就算来的是你虹，能联络到lize-an、阿笹吗？能联络到天皇吗？
+
+
+调侃前辈，第二天就给你人冲烂了
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 14792#       发表于 2020-5-1 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269766&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-05-01 13:52:44</a>
+抽不来龙神还不是你田角自己的锅？自己抽了这么多人美其名与多元化，结果呢，小团体林立，各有各的山头
+
+
+k ...</blockquote>能的，不知道你是真讨厌还是假讨厌的黛灰就是最好例子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+另外月撇算是这里面最好联系的了，只是没什么人愿意<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14793#       发表于 2020-5-1 14:04
+
+
+
+
+说起会员表情 大亏表情居然有rua。。。这是碰瓷我沪上皇痔疮王永远牛逼的峰哥吗<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 14794#       发表于 2020-5-1 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47269766&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-1 13:52</a>
+
+抽不来龙神还不是你田角自己的锅？自己抽了这么多人美其名与多元化，结果呢，小团体林立，各有各的 ...</blockquote>
+不至于昂，lizean两个都蛮随和，月之更是放得开，郡道纪念回跟月之要了个视频人家也发了，明明这两位也没啥交集。
+
+爱好不和硬是去蹭反而对双方都不好嘛，小团体多才正常啊，社会上哪有大家全挤作一团。
+
+虹现在的问题就是运营太放养了，对liver的支持力度不够，这也没有那也没有，群发新live2d烂3D更烂，底部中层除了播爆没什么活动，脾气差点的估计都不想播了，MIXUP搞搞没了真的奇怪
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 14795#       发表于 2020-5-1 14:05
+
+
+
+
+这算什么，以前直播op都写着“rua”呢，更何况只是三个分开的字母而已
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14796#       发表于 2020-5-1 14:06
+
+
+
+
+小天使这开局12名，还好不是下播企划。
+
+
+
+
+
+      
