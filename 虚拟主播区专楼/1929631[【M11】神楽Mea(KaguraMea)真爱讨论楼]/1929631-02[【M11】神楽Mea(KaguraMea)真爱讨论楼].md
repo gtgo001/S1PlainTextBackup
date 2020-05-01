@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 06:07** 
+> ## **本文件最后更新于2020-05-01 10:06** 
 
 
 
@@ -6214,10 +6214,11 @@ meall和aquall才是最终方向，其中也有留给那些能适应变化的mea
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 若风之景| + 1|有一说一，确实|
 | Sanguine| + 1|这个思路对味，两人联动对象还是越多越好.|
 
 
@@ -7073,8 +7074,11 @@ syl，clay抗压不仅限于盯着评论区，v8也有开clay的帖子<img src="
 
 
 
+ 本帖最后由 weiweiEX 于 2020-5-1 06:19 编辑 
 
 看到开clay发情的帖子笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+草，v吧发帖还要审核的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">爬了
 
 
 
@@ -7188,4 +7192,564 @@ syl，clay抗压不仅限于盯着评论区，v8也有开clay的帖子<img src="
 
 
 
-                                     
+
+
+-----
+
+####  framita  
+##### 1879#       发表于 2020-5-1 06:12
+
+
+
+
+我tm是回病栋了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1880#       发表于 2020-5-1 06:30
+
+
+
+
+草，之前只是听说，试了才感受到贴吧发帖也太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1881#       发表于 2020-5-1 06:58
+
+
+
+
+终于爬完楼了，给自己找点事做吧，转移一下注意力。mea播就看，不播就算了。
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 1882#       发表于 2020-5-1 07:24
+
+
+
+
+我对vtuber隐退的看法和mea非常一致，所以她这次的表现对我来说是加分项，更不用说大号还活动的情况下表现得太激烈会有多尴尬，这年头视频势最大的收益途径工商都被直播势挤压，加上udp8风评极差的领导班子（蝙蝠妹稻荷隐退事件，绊爱，代替发推洗游戏部），早退出是好事。至于贴吧就算了，且不说nmslese搞道德绑架多可笑，一群真把隐退当qs的人就让我不太想搭理。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1883#       发表于 2020-5-1 07:31
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：峠越えた
+
+生きてる
+媒体：[]
+链接：[]
+时间：2020-04-30 23:29:56 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1256002877417328641
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1884#       发表于 2020-5-1 07:40
+
+
+
+
+老男人醒了，并车完了母猪链接，这个黄金周咩又跟很多v联动了，咩all好起来了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1885#       发表于 2020-5-1 07:55
+
+
+
+
+神乐Mea同好会
+
+8 小时前
+
+【预告】Mea在5月5日19点 将有和湊阿库娅的b限联动 内容与直播间暂时未定
+
+黑暗贴贴人的狂欢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1886#       发表于 2020-5-1 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266833&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-5-1 07:55</a>
+神乐Mea同好会
+
+8 小时前
+
+【预告】Mea在5月5日19点 将有和湊阿库娅的b限联动 内容与直播间暂时未定</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看多出的这些页数，已经车过了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1887#       发表于 2020-5-1 07:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47266843&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 07:57</a>
+
+你看多出的这些页数，已经车过了</blockquote>
+年轻真好，能等咩播等到这么晚
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1888#       发表于 2020-5-1 08:28
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 1889#       发表于 2020-5-1 08:33
+
+
+
+
+你们这是聊了一晚？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1890#       发表于 2020-5-1 08:39
+
+
+
+
+边打游戏边聊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后我把黑魂卸了结束了，好好一个游戏怎么能把地图弄得这么恶心的
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 1891#       发表于 2020-5-1 08:40
+
+
+
+
+有一说一，有些地方很恶心，但总体来说体验还是很不错的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1892#       发表于 2020-5-1 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267047&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-1 08:40</a>
+有一说一，有些地方很恶心，但总体来说体验还是很不错的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">法兰要塞的沼泽那种也就罢了，各种和蛆相关的怪是真的让人生理不适
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1893#       发表于 2020-5-1 08:46
+
+
+
+
+建议上血缘以毒攻毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 1894#       发表于 2020-5-1 08:49
+
+
+
+
+翻页翻的好爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 1895#       发表于 2020-5-1 09:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是真的能聊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 1896#       发表于 2020-5-1 09:02
+
+
+
+
+yysy，幽邃教堂和地下监牢里的qu确实恶心，当然还是绘画世界苍蝇怪更恶心。
+
+基本是全程拿着火把打的，收集完之后的周目就隐身静音跑酷过去。
+
+
+交完报告今天有点空了，不知道能不能播。<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1897#       发表于 2020-5-1 09:04
+
+
+
+
+看了看同好会的那个通知，相比往常点赞没多多少，评论多了几十个。单推人还是要多发声啊，起码要把贴贴的声音压下去，就没人理会贴贴了。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 1898#       发表于 2020-5-1 09:04
+
+
+
+
+龙魂傻逼！！！！！！
+“处罚犯人不能改变受害人受害的事实所以处罚犯人不如普法重要所以不需要处罚犯人”
+一年前的小破群你车多少回了吃口球对你有那么大的阴影吗
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 1899#       发表于 2020-5-1 09:05
+
+
+
+
+  我日语就算有N1那也和布丁差别很大吧，喜欢年轻小姑娘和想看百合那可差别大了。 这对我的偏见也太大了。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1900#       发表于 2020-5-1 09:07
+
+
+
+
+团建一宿还行，你麻是年轻的肉体，楼友也是年轻的肉体
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1901#       发表于 2020-5-1 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267182&amp;ptid=1929631" target="_blank">ColdAir 发表于 2020-5-1 09:04</a>
+龙魂傻逼！！！！！！
+“处罚犯人不能改变受害人受害的事实所以处罚犯人不如普法重要所以不需要处罚犯人”
+ ...</blockquote>
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的是他目的跟他想要的联系不起来啊，不是什么重要不重要的问题，想改变群体想改变环境，怎么做呢，居然是让几个人道歉
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1902#       发表于 2020-5-1 09:40
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-1 09:41 编辑 
+
+能不能不要在这里讨论这些？
+
+
+恕我直言， 我能观察到的讨论中显现的逻辑水平和思维能力水平大多都不敢恭维<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 
+
+
+&amp;×……￥&amp;……￥&amp;%#&amp;#&amp;
+
+
+要讨论这些请换楼
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 1903#       发表于 2020-5-1 09:47
+
+
+
+ 本帖最后由 ColdAir 于 2020-5-1 09:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267336&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-1 09:32</a>
+不是我说的是他目的跟他想要的联系不起来啊，不是什么重要不重要的问题，想改变群体想改变环境， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫几个人，撇开身份谈影响？那几个就是最脑瘫的那部分人的领头人，能揪出来认错会没影响？
+
+考虑魔法使的血压SYL
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看开始硬杠了，怎么道歉是我该考虑的问题吗，量刑是法院的事，你承认了道歉有用，那我的目的已经达到了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 1904#       发表于 2020-5-1 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267414&amp;ptid=1929631" target="_blank">ColdAir 发表于 2020-5-1 09:47</a>
+什么叫几个人，撇开身份谈影响？那几个就是最脑瘫的那部分人的领头人，能揪出来认错会没影响？ ...</blockquote>
+好，那你说他们应该怎样道歉，才能改变整个mea粉丝群体呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1905#       发表于 2020-5-1 09:51
+
+
+
+
+弱智能不能滚出去？
+
+
+我好想开地图炮
+
+
+我能不能学历歧视？
+
+换楼那么难吗？ 
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1906#       发表于 2020-5-1 10:00
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-1 10:02 编辑 
+
+网上想改变一个人的看法还是太难力
+
+
+遑论一个群体
+
+
+事到如今除了真的好好像正常朋友一样多玩玩，把气氛正常化以外我也想不到啥能让这件事好好了结的办法了
+
+虽然这个时候我的确想甩锅木口了，哪怕你说两个人性格和事业有不小的差异，平时不太可能一起玩，但个人和企业制造的厚障壁甚至先于个人选择
+
+“是，人家也许真的不在乎，你能表现出不在乎的样子随便拉人玩吗？”
+
+面子啊面子.jpg
+
+
+大概率还是半死不活的一直拖着吧，一如平淡乏味的日常
+
+
+什么时候大家心里不切实际的渴望才能死掉呢（不管是哪一方）
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 1907#       发表于 2020-5-1 10:01
+
+
+
+
+时间无法倒流，别想着怎么改变环境了，随着睿站V圈入场势力越来越多mea的处境只会越来越差。在这边mea就是永远的巫妖王，过气隐退了也依旧会被拿出来嘲讽鞭尸的那种。真要看不到嫌话那还真得是V圈全炸了。总之且看且珍惜吧。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1908#       发表于 2020-5-1 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">通宵都不睡 突击必错过哦
+
+
+
+
+
+                                    
