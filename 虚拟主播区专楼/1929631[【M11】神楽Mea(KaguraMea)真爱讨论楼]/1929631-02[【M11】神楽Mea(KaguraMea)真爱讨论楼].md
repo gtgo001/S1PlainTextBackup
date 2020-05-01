@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 12:08** 
+> ## **本文件最后更新于2020-05-01 18:09** 
 
 
 
@@ -6005,6 +6005,25 @@ pubg上是7号发的，下是9号发的，mea推特三连是10号晚上<img src=
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| physi1202| + 1|确实|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -8101,4 +8120,640 @@ syl，你麻被开的那条推我昨天根本没看出什么问题来，今天�
 
 
 
-                                   
+
+
+-----
+
+####  IrisL  
+##### 1928#       发表于 2020-5-1 12:12
+
+
+
+
+呜呜呜已经成为一只合格的母猪了
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 1929#       发表于 2020-5-1 12:16
+
+
+
+
+都2020了被白猫手游联动拉到，咩是个手游小白啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1930#       发表于 2020-5-1 12:18
+
+
+
+
+来个人控制住咩啊我不想给cy中间商打钱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1931#       发表于 2020-5-1 12:21
+
+
+
+
+小麻之前都是影之诗A段了，说不定老早就是手游废人了。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 1932#       发表于 2020-5-1 12:52
+
+
+
+
+还记得天国的奥赛罗吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1933#       发表于 2020-5-1 13:03
+
+
+
+
+就算是手游母猪也不会一直是一个手游的母猪
+
+
+大概会周期性成为新的手游的母猪
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1934#       发表于 2020-5-1 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻玩这类游戏就没见过正常推剧情过
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1935#       发表于 2020-5-1 13:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">手游比小钢珠更能骗钱
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1936#       发表于 2020-5-1 13:12
+
+
+
+
+这是鄙视链最低端的手游蝗虫啊2333
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 1937#       发表于 2020-5-1 13:12
+
+
+
+
+我觉得跑来蝗一波才是手游玩家常态
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1938#       发表于 2020-5-1 13:17
+
+
+
+
+可以叫做公用母猪
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 1939#       发表于 2020-5-1 13:21
+
+
+
+
+她好可爱，她真可爱，她超可爱，身体好起来真是太好了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 1940#       发表于 2020-5-1 13:42
+
+
+
+
+yysy，麻可是白猫老玩家了，这还真不能说是蝗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1941#       发表于 2020-5-1 13:43
+
+
+
+
+你麻的品味.jpg
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 1942#       发表于 2020-5-1 13:55
+
+
+
+
+你麻是白猫老玩家 我也是白猫老玩家 所以？可以贴吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 1943#       发表于 2020-5-1 14:19
+
+
+
+
+求被小麻传教
+
+
+白猫
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1944#       发表于 2020-5-1 15:19
+
+
+
+
+临近那个日子了，你麻又做了两人的饭，我。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 1945#       发表于 2020-5-1 15:23
+
+
+
+
+黄兔子5月4号要来找mea打麻将了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 1946#       发表于 2020-5-1 15:33
+
+
+
+
+这几天联动是真的多
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 1947#       发表于 2020-5-1 15:59
+
+
+
+
+我干
+昨天你楼这nga味真的要冲死了
+我要成楼梁木人了
+
+不过也可能以前你楼的人全跑完了，剩下的都是nga老病栋慢慢偏移过来的
+毕竟你楼现在应该是公共网络上咩讨论度最高的地方了
+和平演变不可避免
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1948#       发表于 2020-5-1 16:00
+
+
+
+
+mea貌似还没祝贺如月1w粉，这个b啊<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1949#       发表于 2020-5-1 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47270686&amp;ptid=1929631" target="_blank">Cuppco 发表于 2020-5-1 15:59</a>
+我干
+昨天你楼这nga味真的要冲死了
+我要成楼梁木人了</blockquote>
+隔壁现在张嘴都不知道能说啥<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 1950#       发表于 2020-5-1 16:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">车轱辘正是因为它是车轱辘所以才称为车轱辘的，要是不一直车倒也不会称为车轱辘了
+
+4号麻将难道是下午？如果是晚上的话耐久歌回也不会太久了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 1951#       发表于 2020-5-1 16:36
+
+
+
+
+竟然有黄兔子联动，爽哦
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1952#       发表于 2020-5-1 16:58
+
+
+
+
+黄兔子 good， 苔姨bad！
+
+复读
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1953#       发表于 2020-5-1 17:08
+
+
+
+
+为啥你楼对苔苔梁木深重 但是却很喜欢兔子啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1954#       发表于 2020-5-1 17:09
+
+
+
+
+大概是肉体和气质的差异吧
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1955#       发表于 2020-5-1 17:26
+
+
+
+
+谁不喜欢组长呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 1956#       发表于 2020-5-1 17:40
+
+
+
+
+这就叫做人的差距。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 1957#       发表于 2020-5-1 17:43
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-1 17:49 编辑 
+
+谁又喜欢看傻逼呢？或者谁又喜欢看你麻当傻逼呢？
+
+
+以前刚知道兔姨nico生种种的时候甚至还有些虚空梁木和杞忧，现在我只想你麻多跟兔姨混一混<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 1958#       发表于 2020-5-1 17:45
+
+
+
+
+毒唯表示都不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+有点牵着你麻鼻子走的人都不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1959#       发表于 2020-5-1 17:49
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-1 17:50 编辑 
+
+你麻就是容易被牵
+
+嗯....我通过性格特点已经脑补了20集的人生经历了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 1960#       发表于 2020-5-1 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47271334&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 17:26</a>
+谁不喜欢组长呢</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 1961#       发表于 2020-5-1 17:53
+
+
+
+
+苔姨的功利味道太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">虽然说能拉来一些大家想看的喜闻乐见的联动，但对舞元用力过猛的那段时间也有苔姨煽动的嫌疑。
+另外，我一直想不明白为什么没看到贴贴人去冲苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初被认为贴贴人头子的是她，拱火舞mea的也是她。
+我对兔姨的好感源自于建筑王，非常喜欢那种节奏偏慢的对话联动感觉。mea的优点在于联动给力，有节目效果。所以苔姨兔姨会拉她联动，但苔姨的功利味让我觉得她拉mea的联动颇有把mea作为工具人的感觉，兔姨更让人感觉放心一些<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 1962#       发表于 2020-5-1 17:59
+
+
+
+
+黄兔子的联动效果好啊
+
+海苔男最近两次联动mea很多时候都是状况外，话都懒得接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 1963#       发表于 2020-5-1 18:00
+
+
+
+
+拱舞mea也有黄兔子一份啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 1964#       发表于 2020-5-1 18:03
+
+
+
+
+舞mea不是你咩最起劲，兔子苔男这些人怕是都被私下授意过才敢拱火<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  
