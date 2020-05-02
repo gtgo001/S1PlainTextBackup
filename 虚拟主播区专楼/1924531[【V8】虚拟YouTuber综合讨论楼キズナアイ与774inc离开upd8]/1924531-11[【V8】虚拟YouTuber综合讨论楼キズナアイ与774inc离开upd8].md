@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 04:05** 
+> ## **本文件最后更新于2020-05-02 10:04** 
 
 
 
@@ -5655,7 +5655,7 @@ v吧人准备带这个牌子冲了兔皇直播间<img src="https://static.saraba
 
 
 30297242_p0.png
-(1.18 MB, 下载次数: 4)
+(1.18 MB, 下载次数: 5)
 
 
 
@@ -6785,6 +6785,25 @@ azki今晚这个金曲歌回补完了，唉呀妈呀
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 澪MIO| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -7332,4 +7351,2350 @@ azki和空妈这歌回搬来了，字幕组原来连这个都不搬，在国内�
 
 
 
-                                     
+
+
+-----
+
+####  某穆克拉  
+##### 15371#       发表于 2020-5-2 04:08
+
+
+
+
+azki要是想转直播势，移籍holo本部可以找6皇1圣每周不同样的喂饭，然而歌势这条路就只有空妈还能联动了，其他人来怕不是azki反向喂饭。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15372#       发表于 2020-5-2 04:24
+
+
+
+
+不是innk的吗 星某innk的时候不是也不让联动holo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15373#       发表于 2020-5-2 04:29
+
+
+
+
+所以innk才是真的独角兽营业？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15374#       发表于 2020-5-2 04:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275597&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-2 04:29</a>
+
+所以innk才是真的独角兽营业？</blockquote>
+话说星某和天某是真的贴，前世nico20个上传视频里7个有天某出场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 15375#       发表于 2020-5-2 04:40
+
+
+
+
+卡拉ok团建不算联动的话，那就没什么好说的了。毕竟如果只想唱歌的话，本部的宅女们可派不上用场。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15376#       发表于 2020-5-2 04:48
+
+
+
+
+卡拉ok就那么一次，全体的，没少一个人。同理holo摇也有
+
+别的不联动不就是说明innk只管唱歌别的都不管嘛
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 15377#       发表于 2020-5-2 06:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47273796&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-05-01 22:12:29</a>
+今晚又是一堆破事全错过了......</blockquote>但只要翻翻动态就能基本了解了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 15378#       发表于 2020-5-2 07:10
+
+
+
+
+不能因为楼里不讨论动森就云出露皇不玩动森的结论啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15379#       发表于 2020-5-2 07:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑青蛙还没死啊
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15380#       发表于 2020-5-2 07:19
+
+
+
+<img src="https://img.imoutomoe.net/images/2020/05/02/EW91UGxXkAk6N41formatjpgname4096x4096.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/Bakyusan/status/1256354148951429121](https://twitter.com/Bakyusan/status/1256354148951429121)
+
+转张大家庭（¿）
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 15381#       发表于 2020-5-2 07:21
+
+
+
+
+要是每个字幕组都像爱丽丝组和翔哥组（？）那样就好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+兔组这样搞是真的逼人学日语直接去404...
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15382#       发表于 2020-5-2 07:31
+
+
+
+
+虹的字幕组我个人观感最好的是德龙组和安洁组，基本全是剪辑看起来爽而且产能高，组号也从来不说话就是无情的烤肉机器，我几百个**大部分都给这两个组了，爱丽丝组要是能多点剪辑就好了，不是gachi真的很少看这种全熟的录像
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 15383#       发表于 2020-5-2 07:31
+
+
+
+
+兔组目的真是赶人去404那可是大粉似黑，组能掌握绝对话语权而兔则可以在主战场恰到更多，实质winwin啊，兔组你好温柔！(
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15384#       发表于 2020-5-2 07:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">把愿意学日语的赶去404，剩下的转粉P限vtuber完成pxj化，p站进一步提升自己韭菜园的纯度。实质三赢。
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 15385#       发表于 2020-5-2 08:05
+
+
+
+
+不过为啥木口引流感觉效果都不错，但是彩虹引流就没啥用呢，感觉上位的联动也不少啊
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 15386#       发表于 2020-5-2 08:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275899&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-5-2 08:05</a>
+
+不过为啥木口引流感觉效果都不错，但是彩虹引流就没啥用呢，感觉上位的联动也不少啊 ...</blockquote>
+彩虹社粉丝多为单推，箱感不如holo
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15387#       发表于 2020-5-2 08:23
+
+
+
+<blockquote>「ホロコミ」開会まであと１時間です。
+
+
+「ホロコミ」スケジュール
+
+10:00　開会式
+
+10:10　ホロライブの新商品紹介
+
+11:00　あの…スケブいいですか？
+
+12:50　ホロスタのトークスターズ
+
+14:40　ホロライブ三者面談
+
+15:40　閉会式
+
+
+🔽ホロコミ会場🔽
+
+youtu.be/m1Ak7EUjMQ8</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/02/082312vghghmgro0cge0yx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault.jpg</strong> (79.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 08:23 上传
+
+
+
+
+
+
+——————————————————————————
+
+
+估计同接能有5w以上？
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 15388#       发表于 2020-5-2 08:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275899&amp;ptid=1924531" target="_blank">cwjzy 发表于 2020-5-2 08:05</a>
+
+不过为啥木口引流感觉效果都不错，但是彩虹引流就没啥用呢，感觉上位的联动也不少啊 ...</blockquote>
+歌接力引流效果不好吗
+
+至于普通联动引流效果不行还是人太多了，看不过来。原来三五十号人的时候可能我不看还能去点个订阅，现在一百多号你要我人人点订阅我订阅页面还能看别的吗
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15389#       发表于 2020-5-2 08:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">holocomi就是直播带货吧，而且杏星首次上官号？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15390#       发表于 2020-5-2 08:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276030&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-2 08:32</a>
+
+holocomi就是直播带货吧，而且杏星首次上官号？</blockquote>
+我梯子不稳没法盯着404看，到时候帮我数下增加的踩，就当stars的anti人口普查了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15391#       发表于 2020-5-2 08:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276041&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-05-02 08:34:23</a>
+我梯子不稳没法盯着404看，到时候帮我数下增加的踩，就当stars的anti人口普查了 ...</blockquote>真要有踩那也不是anti星，是重大发表拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 15392#       发表于 2020-5-2 08:42
+
+
+
+
+叶え葉两周年了
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 15393#       发表于 2020-5-2 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276041&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-05-02 08:34:23</a>
+我梯子不稳没法盯着404看，到时候帮我数下增加的踩，就当stars的anti人口普查了 ...</blockquote>每次到这种时刻我都有点疑神疑鬼
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15394#       发表于 2020-5-2 08:43
+
+
+
+
+ホロコミ总觉得最早公布的时候有人说这是全社活动，是我曼德拉效应了吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15395#       发表于 2020-5-2 08:49
+
+
+
+
+原来除了杏星老哥别的人也有PTSD。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15396#       发表于 2020-5-2 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275462&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-2 02:28</a>
+
+有好心人科普下486那个showroom前世是实锤还是歪锤</blockquote>
+没有确切的实锤证据但是有一种绝妙的配合感
+
+两边永远没有撞车过 都是这边结束那边开始
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15397#       发表于 2020-5-2 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275984&amp;ptid=1924531" target="_blank">NBXX 发表于 2020-5-2 08:23</a>
+
+——————————————————————————
+
+
+估计同接能有5w以上？</blockquote>
+CM兴趣者不占多数 流石5W可能性为0
+
+节目没有太多亮点 来场v和嘉宾也一般 节目排布也很拉胯
+
+参考刚才asamiko同接1.1W和阿夸8K 也就是说白天的同接是低的
+
+个人预测最高3W
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15398#       发表于 2020-5-2 08:55
+
+
+
+ 本帖最后由 金魚佬 于 2020-5-2 08:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276041&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-2 08:34</a>
+
+我梯子不稳没法盯着404看，到时候帮我数下增加的踩，就当stars的anti人口普查了 ...</blockquote>
+何必那么在意星anti，现在也没什么人追去stars直播间点踩，看看stars时留下的同接数字更有意义吧
+
+syl holo官号是视频势，视频势直播必拉，感觉同接不会超过asacoco<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15399#       发表于 2020-5-2 08:59
+
+
+
+
+5w应该到不了，现在待机不如同时间的玛琳模仿企划，这重大发表还注定虚无，没有什么爆点。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 15400#       发表于 2020-5-2 09:00
+
+
+
+<blockquote>NBXX 发表于 2020-5-2 08:23
+——————————————————————————
+
+
+估计同接能有5w以上？
+</blockquote>
+holocomi要来了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15401#       发表于 2020-5-2 09:00
+
+
+
+
+草，好活
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15402#       发表于 2020-5-2 09:01
+
+
+
+
+开播前待机没超过1w
+
+基本跟我猜测差不多
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15403#       发表于 2020-5-2 09:01
+
+
+
+
+你们有谁推荐一下梯子吗，我梯子好差
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15404#       发表于 2020-5-2 09:03
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-2 09:04 编辑 
+
+15点10分（JST）狐皇面谈凪白<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15405#       发表于 2020-5-2 09:04
+
+
+
+
+好了可以关闭了
+
+直接跳到下午2点10分钟的少主和​みと的直接对谈了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 15406#       发表于 2020-5-2 09:05
+
+
+
+
+不知为啥p站直播手机端完全打不开
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15407#       发表于 2020-5-2 09:05
+
+
+
+
+希望看到阿肥重拳出击连续质问皆村<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15408#       发表于 2020-5-2 09:06
+
+
+
+
+我得看到11点啊。
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 15409#       发表于 2020-5-2 09:06
+
+
+
+
+俩都被锤了才好，可惜是幻想
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15410#       发表于 2020-5-2 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276239&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-2 09:06</a>
+
+我得看到11点啊。</blockquote>
+润姨没见有排版啊
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15411#       发表于 2020-5-2 09:08
+
+
+
+ 本帖最后由 NBXX 于 2020-5-2 09:10 编辑 
+
+先来宣传一波stars
+
+——————————
+
+大概涨了10个踩？
+
+一分钟后快20多个了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15412#       发表于 2020-5-2 09:08
+
+
+
+
+开局就宣传杏星。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15413#       发表于 2020-5-2 09:08
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15414#       发表于 2020-5-2 09:09
+
+
+
+
+初手CM是holostar3期生宣传
+
+谁说要点踩来着的
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 15415#       发表于 2020-5-2 09:09
+
+
+
+
+然而简介连星的链接都没有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15416#       发表于 2020-5-2 09:09
+
+
+
+
+这星果然不出所料《牌面》巨大多增加，这个唐突komi集的一大目的可能就是推星
+
+
+syl
+
+月下这个声音选的实在是.......太硬汉了，观察一下后续的情况吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15417#       发表于 2020-5-2 09:10
+
+
+
+
+草，弹幕一群不基德星anti，黑宝激怒！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 15418#       发表于 2020-5-2 09:10
+
+
+
+
+我受不了狐皇这个捏着嗓子的萌声了，这MC不能换个人吗，关了，看楼里repo了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15419#       发表于 2020-5-2 09:11
+
+
+
+
+[速报]Stars广告片后踩增长40，19—&gt;69
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15420#       发表于 2020-5-2 09:11
+
+
+
+
+免费这梁木。
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15421#       发表于 2020-5-2 09:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">crew讲得出受不了声音这种话，到底是出于什么心态我是搞不明白
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15422#       发表于 2020-5-2 09:12
+
+
+
+
+80踩了
+
+到底是踩star还是踩少主我是不知道。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15423#       发表于 2020-5-2 09:13
+
+
+
+
+u1s1，大亏人气也不是第一档了，就算你要搞一期一代表，范特西难道不配有名字吗？
+
+三期箱推要有梁木的好吧，我建议以后把三期真c船皇挂到城楼上好吧。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15424#       发表于 2020-5-2 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276205&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-2 09:01</a>
+
+你们有谁推荐一下梯子吗，我梯子好差</blockquote>
+尾宝看私聊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15425#       发表于 2020-5-2 09:14
+
+
+
+
+少主这嘴是真的快<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+不考虑搞个rap翻唱吗？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15426#       发表于 2020-5-2 09:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">踩星=踩少主
+
+免费肯定想听大天使的声音，但大天使有点mc的技能吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15427#       发表于 2020-5-2 09:15
+
+
+
+
+这套图rurudo&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;the rest 4
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15428#       发表于 2020-5-2 09:16
+
+
+
+
+开场20分钟有接近3W完全没想到
+
+这群人真起得来啊
+
+都是来看star的？
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15429#       发表于 2020-5-2 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276306&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-2 09:14</a>
+
+少主这嘴是真的快
+
+
+不考虑搞个rap翻唱吗？</blockquote>
+[https://www.bilibili.com/video/BV1oC4y1p7fo](https://www.bilibili.com/video/BV1oC4y1p7fo)
+
+饶 舌 之 神 F B K
+
+
+之前的直播和rap god结合的二创
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| IDIDIDID| + 1|行|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15430#       发表于 2020-5-2 09:17
+
+
+
+
+杏星一出来就是10个dunk。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15431#       发表于 2020-5-2 09:17
+
+
+
+
+放假看个热闹也正常，或许这就是Hololive成瘾吧。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15432#       发表于 2020-5-2 09:17
+
+
+
+
+杏星商品宣传多了16个踩
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15433#       发表于 2020-5-2 09:17
+
+
+
+
+yaoi fans arise草，鬼佬思路有点僵化
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15434#       发表于 2020-5-2 09:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">到stars的商品时又涨了20踩
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15435#       发表于 2020-5-2 09:19
+
+
+
+
+fbk：我个人最喜欢夸夸的衣服。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+等一个解读
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15436#       发表于 2020-5-2 09:20
+
+
+
+
+还喜欢了空妈的大姐姐风格呀。
+
+不如讨论一下狐狸终于不是C位了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15437#       发表于 2020-5-2 09:20
+
+
+
+
+点踩安定增加中
+
+按照这个节奏在结束前能集满4位数么
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15438#       发表于 2020-5-2 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赞也在增加，赞破万肯定没什么问题，破4位数踩有点难吧。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15439#       发表于 2020-5-2 09:23
+
+
+
+
+4位数太难了，船长重大发表都没那么多，不过普通的商品宣传也会增加踩，不一定是杏星问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15440#       发表于 2020-5-2 09:23
+
+
+
+
+同接破3w了。加油干巴爹。
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 15441#       发表于 2020-5-2 09:24
+
+
+
+
+既然都宣传星了，简介连星的频道链接都不给实在理解不能<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15442#       发表于 2020-5-2 09:24
+
+
+
+
+kanatan 大天使可还行
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15443#       发表于 2020-5-2 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">彻底跟不上小狐狸的语速了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 15444#       发表于 2020-5-2 09:26
+
+
+
+
+新的一波宣传杏星商品就多了三四个踩，一开始还少了个踩，后面才增加的。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 15445#       发表于 2020-5-2 09:27
+
+
+
+
+草，龙皇亲自带货
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15446#       发表于 2020-5-2 09:27
+
+
+
+
+官方活动搞麻药梗没问题吗，不如说我一直讨厌这个梗就是了。。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15447#       发表于 2020-5-2 09:29
+
+
+
+
+半小时150踩，再播3个小时就能破4位数了，anti加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15448#       发表于 2020-5-2 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">平常直播的时候看不到，龙皇的这条尾巴真的好怪啊
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 15449#       发表于 2020-5-2 09:30
+
+
+
+<blockquote>ミオチュン 发表于 2020-5-2 09:17
+yaoi fans arise草，鬼佬思路有点僵化</blockquote>
+直球diss，黑宝激怒
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 15450#       发表于 2020-5-2 09:30
+
+
+
+
+日本人能接受就行呗，holo应该不会嫌自己死的不够快跑冲国玩这个梗
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 15451#       发表于 2020-5-2 09:30
+
+
+
+
+asacoco也商品化了_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15452#       发表于 2020-5-2 09:33
+
+
+
+
+麻药梗真sb
+
+r欧美人从上烂到下不意味着我们也要从上烂到下
+
+soma就留在美丽新世界吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15453#       发表于 2020-5-2 09:34
+
+
+
+
+想了想决定去点个踩，等麻药梗过去再取消掉。
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15454#       发表于 2020-5-2 09:35
+
+
+
+
+jp人就不反感这些吗，这玩意在日本也不合法的吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15455#       发表于 2020-5-2 09:37
+
+
+
+
+现在看来社内能和狐狸对谈完全不落下风的只有船皇和龙皇。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15456#       发表于 2020-5-2 09:41
+
+
+
+
+【速报】大根子顺坡下驴，自称0期生
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15457#       发表于 2020-5-2 09:41
+
+
+
+
+来晚了，真是电视购物节目啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15458#       发表于 2020-5-2 09:41
+
+
+
+
+萝卜仙贝的衣服还行，简称萝卜皮。
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 15459#       发表于 2020-5-2 09:41
+
+
+
+
+为什么看holo还要看到holo星（弹幕语
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 15460#       发表于 2020-5-2 09:41
+
+
+
+
+周边的t恤卫衣总是微妙的有点贵啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15461#       发表于 2020-5-2 09:42
+
+
+
+
+这高性能卫衣，看着不像成品呀。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15462#       发表于 2020-5-2 09:42
+
+
+
+
+大根子这个应该是现在杏的hoodie里最好看的了。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15463#       发表于 2020-5-2 09:42
+
+
+
+ 本帖最后由 NBXX 于 2020-5-2 09:43 编辑 
+
+<img src="https://ae01.alicdn.com/kf/U6036450e5fca47b5bacd51e0c049eb5bC.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15464#       发表于 2020-5-2 09:43
+
+
+
+
+这兔子耳朵谁想出来加到帽子上的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 15465#       发表于 2020-5-2 09:44
+
+
+
+
+既然能拆卸就无所谓了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 15466#       发表于 2020-5-2 09:44
+
+
+
+
+这导购节目看得好尬哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15467#       发表于 2020-5-2 09:48
+
+
+
+
+萝卜子这身可以啊
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15468#       发表于 2020-5-2 09:48
+
+
+
+
+联动昨天的外野贴
+
+オシャレ的宅宅只会让人更加生厌
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15469#       发表于 2020-5-2 09:49
+
+
+
+ 本帖最后由 colodes 于 2020-5-2 09:54 编辑 
+
+※ すいせい前世暴露过程
+
+5/1 有人向星街スレ投稿一首由 かなた的前世(のぞむ)MV担当 唱的歌 <blockquote>643:名無しさん＠お腹いっぱい。 2020/05/01(金) 17:02:23.24
+
+これすいちゃん？
+[https://www.nicovideo.jp/watch/sm25818043](https://www.nicovideo.jp/watch/sm25818043) (動画)
+http://egg.5ch.net/test/read.cgi/streaming/1586784914/</blockquote>
+声音微妙的相似 → 推特账号发现 → 歌、绘画、发言、俄罗斯方块等相似性证据确认
+
+
+※ 和かなた关系
+
+天音かなた前世的gachi恋&amp;专属
+
+   のぞむ的自画像 えんどる作
+
+   <img src="https://i.imgur.com/woxQX5T.png" referrerpolicy="no-referrer">
+
+   多首歌MV动画制作担当
+
+
+   在同一个圈子内做游戏、画画、写小说、做动画
+
+2014年就认识，推特账号则在2018年不自然的消失，重新开始推特后仍然非常亲密交流
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/092637i9y9xx11ww1ny9v4.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-01 221343.png</strong> (44.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 09:26 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/094709k00xuq6xr0q0o044.png" referrerpolicy="no-referrer">
+
+
+<strong>unnamed (2).png</strong> (37.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 09:47 上传
+
+
+
+
+
+
+有古参指出すいせい在かなたnico生时期就在其直播间活跃 <blockquote>663 名前：名無しさん＠お腹いっぱい。 (ｽﾌｯ Sdff-dNv7)[sage] 投稿日：2020/05/01(金) 20:04:40.19 ID:1ym5LI/9d
+
+もうバレたし消すだろうから言うけどえんどるさんはすいちゃんだよのぞむさんとは昔から交流がある
+
+当時はサークルでゲーム作って絵描いたりシナリオ書いたり動画作ってた
+
+当時のぞむさんのニコ生ですいちゃんは何でも出来て凄いって褒めちぎる配信してた
+
+当時知ってるからそれ以上言わないけど皆はそっとしてあげてね</blockquote>
+表 → かなた的前辈
+
+里 → かなた的gachi
+
+
+※ 年龄
+
+20代前半，2015年还在上高中
+
+<img src="https://img.saraba1st.com/forum/202005/02/093727lyynpsn2g2p4h1j2.png" referrerpolicy="no-referrer">
+
+
+<strong>unnamed (1).png</strong> (78.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 09:37 上传
+
+
+
+
+
+
+
+※ 俄罗斯混血
+
+本人回复过自己也是混血，而且羡慕日韩混血
+
+其他人回复
+
+“原来是1/4混血吗！”
+
+“是日本出生的俄罗斯人嘛”
+
+<img src="https://img.saraba1st.com/forum/202005/02/091948g6iq5z74z34ukz5k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>unnamed.jpg</strong> (20.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 09:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/091947sr2wc2ybe7ggww7t.png" referrerpolicy="no-referrer">
+
+
+<strong>unnamed.png</strong> (14.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 09:19 上传
+
+
+
+
+
+
+
+※ 住址
+
+以前经常来往东京，有住在出云市说(?)，最近住在东京
+
+<img src="https://img.saraba1st.com/forum/202005/02/094247sbw3vj6wz6ynwrbk.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-02 094226.png</strong> (19.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 09:42 上传
+
+
+
+
+
+
+
+※ 作品
+
+↓ 插画（包括已删）
+[http://pixiv.navirank.com/user/2586850/](http://pixiv.navirank.com/user/2586850/)
+
+↓ 游戏
+[https://meluzefellrosettas.wixsite.com/namea](https://meluzefellrosettas.wixsite.com/namea)
+
+
+
+
+
+
+批注 2020-05-02 091234.png
+(36.53 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-2 09:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/092618rmbnif5119f9v7m7.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+批注 2020-05-02 080701.png
+(43.83 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-2 09:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/092605aepfb0ecdcydwdpm.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| free| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15470#       发表于 2020-5-2 09:49
+
+
+
+
+1万丹也太可怕了，杏仁真的就是韭菜随便割啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 15471#       发表于 2020-5-2 09:49
+
+
+
+
+这都能拉垮的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15472#       发表于 2020-5-2 09:49
+
+
+
+
+我是看不来这导购节目，还不如去推舟游第七章......不过看来anti没那么多
+
+
+syl，“卖goods时带上，宣传就不让带上，你索尼马呢”我只想说这些
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 15473#       发表于 2020-5-2 09:53
+
+
+
+
+日俄混血也太冲击了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15474#       发表于 2020-5-2 09:54
+
+
+
+
+龙星不仲说可以安排起来了，一道铁幕落在hololive。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 15475#       发表于 2020-5-2 09:55
+
+
+
+
+俄罗斯人玩俄罗斯方块（笑）
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 15476#       发表于 2020-5-2 09:56
+
+
+
+
+龙皇阿迪达斯换着穿，这么高普尼克不仲个屁，该画龙星斯拉夫蹲FA了。
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15477#       发表于 2020-5-2 09:57
+
+
+
+
+所以说母街侧的亲戚，胸部都很大，听起来是真的。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15478#       发表于 2020-5-2 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276585&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-2 09:49</a>
+
+※ すいせい前世暴露过程
+
+5/1 有人向星街スレ投稿一首由 かなた的前世(のぞむ)MV担当 唱的歌</blockquote>
+这事就诡异
+
+讲道理要这么挖的话早挖出来了 
+
+非得等到星姐3D出道人气大涨的时候
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 15479#       发表于 2020-5-2 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275787&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-2 07:31</a>
+兔组目的真是赶人去404那可是大粉似黑，组能掌握绝对话语权而兔则可以在主战场恰到更多，实质winwin啊，兔 ...</blockquote>
+组团去404不太现实吧，一方面梯子不一定稳
+另一方面打钱很麻烦，我还不能用我国内的卡<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 15480#       发表于 2020-5-2 09:59
+
+
+
+
+日俄混血这个.......
+
+hololive冷战热斗安排上了，星街的神经质气质正好符合西方人污名化下的前输连
+
+syl
+In Russia,Tetris plays u.
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 15481#       发表于 2020-5-2 09:59
+
+
+
+
+月下首播那天，我在微博上说了月下的魂，然后现在被昵称为「奏手Izuru」的杏星观众评论阴阳怪气，红A哥你怎么看。
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15482#       发表于 2020-5-2 10:01
+
+
+
+
+确实，不明白sm25818043这首歌为什么留着，或者说现在才发现。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 15483#       发表于 2020-5-2 10:01
+
+
+
+
+可惜这东西不能明面讲，不然日俄混血也算是相当程度上丰富人设了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15484#       发表于 2020-5-2 10:01
+
+
+
+
+要出门了，麻烦老哥们多点repo。新周边来点图。
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 15485#       发表于 2020-5-2 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">星圣曾经也是个毛萝？
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 15486#       发表于 2020-5-2 10:02
+
+
+
+
+所以…星→天←龙，是变相的美俄逐日？
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 15487#       发表于 2020-5-2 10:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四分之一血统，应该和我见过的那些毛萝差别很大
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 15488#       发表于 2020-5-2 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276702&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-05-02 09:59:40</a>
+月下首播那天，我在微博上说了月下的魂，然后现在被昵称为「奏手Izuru」的杏星观众评论阴阳怪气，红A哥你怎 ...</blockquote>他说什么了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 15489#       发表于 2020-5-2 10:04
+
+
+
+
+按照5ch的说法是，龙←天←星。
+
+然后龙星不仲。
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 15490#       发表于 2020-5-2 10:04
+
+
+
+
+0308 名無しさん＠お腹いっぱい。 2020/05/02 00:08:05
+
+星街　→　スターシティ
+すいせい　→　ツァーリ・ボンバ
+シャリを捨てる　→反米精神
+テトリス　→ソ連が開発
+
+0321 名無しさん＠お腹いっぱい。 2020/05/02 00:08:20
+米を憎む
+星条旗を憎む
+ソ連のゲームを愛する
+
+確定では？
+
+0567 名無しさん＠お腹いっぱい。 2020/05/02 00:16:32
+
+共産党員かよ
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
