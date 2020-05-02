@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 14:01** 
+> ## **本文件最后更新于2020-05-03 06:01** 
 
 
 
@@ -11636,4 +11636,512 @@ https://b23.tv/CNzyHF
 
 
 
-                            
+
+
+-----
+
+####  2014720  
+##### 3634#       发表于 2020-5-2 14:54
+
+
+
+
+哦哦哦哦哦哦哦
+p2来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3635#       发表于 2020-5-2 14:58
+
+
+
+
+meaqua贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3636#       发表于 2020-5-2 15:01
+
+
+
+
+不看等总结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3637#       发表于 2020-5-2 15:12
+
+
+
+
+该看还是要看的，又不是假的不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3638#       发表于 2020-5-2 15:26
+
+
+
+
+“梁木不来就我，我来就梁木。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3639#       发表于 2020-5-2 15:46
+
+
+
+
+不行啊，这一点梁木我都看不出来啊，为啥直播时我就感觉怪怪的呢<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">，还是得多学日语好吧
+syl，最适合你咩姐的人还是夸，五岁rp都好看起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3640#       发表于 2020-5-2 17:02
+
+
+
+
+甜是真的甜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3641#       发表于 2020-5-2 17:42
+
+
+
+
+我都不知道你们在说正话反话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3642#       发表于 2020-5-2 23:02
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-2 23:05 编辑 
+
+あくあ、きっと、届ける<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3643#       发表于 2020-5-2 23:31
+
+
+
+
+该死的MK2，还我的青春
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3644#       发表于 2020-5-2 23:34
+
+
+
+
+贴吧还提到她哼处处夸一到羊就停，但是哼了西西的(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3645#       发表于 2020-5-2 23:35
+
+
+
+
+刚才不是还说唱什么歌要被咩嘲讽吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3646#       发表于 2020-5-2 23:36
+
+
+
+
+这就是欺负你们不看直播的了，全曲的三个人名，mea，西西，空妈，她都没跟着唱
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3647#       发表于 2020-5-2 23:38
+
+
+
+ 本帖最后由 2014720 于 2020-5-2 23:39 编辑 
+
+你们自己的梁木不能怪mk2啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，你夸一播v8就开始了，不过风向有点针对贴贴组的意思
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3648#       发表于 2020-5-2 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们这么关注的吗…？我看都没看
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3649#       发表于 2020-5-2 23:47
+
+
+
+
+有一说一，一直到mea名字出来之前她都是在跟着唱词的，到mea那一句明显一顿，然后开始哼节奏<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">西西和空妈那边也是有反应的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3650#       发表于 2020-5-2 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">你们在说什么啊
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3651#       发表于 2020-5-2 23:51
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-5-2 23:56 编辑 
+
+不看，看着闹心
+
+syl：一场solo就能让mk2的努力全部木大，哎，粉丝在主播面前真是渺小<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3652#       发表于 2020-5-2 23:52
+
+
+
+
+有反应<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+指嘻嘻嘻嘻嘻嘻嘻嘻哼一段
+以及那就是敌人了呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3653#       发表于 2020-5-2 23:54
+
+
+
+
+md不该进你楼，又了解到大天使的直播内容了，我自裁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3654#       发表于 2020-5-3 01:07
+
+
+
+
+也就图一乐 真杀起来还得看
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/010656bknnzmnnnjoh6rmb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200503010608.png</strong> (375.09 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-3 01:06 上传
+
+
+
+
+
+   我已经预感到之后的风暴肯定相当精彩了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3655#       发表于 2020-5-3 01:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这有啥，暗黑贴贴人都是二极管吗
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3656#       发表于 2020-5-3 01:20
+
+
+
+
+这个好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3657#       发表于 2020-5-3 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47285560&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-3 01:10</a>
+
+这有啥，暗黑贴贴人都是二极管吗</blockquote>
+能看到萌萌贴贴人跳脚足以称为一件大乐事<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3658#       发表于 2020-5-3 01:28
+
+
+
+
+好起来了
+
+
+“这周和小粥玩的很开心”
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3659#       发表于 2020-5-3 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47285682&amp;ptid=1914314" target="_blank">ashero 发表于 2020-5-3 01:25</a>
+
+能看到萌萌贴贴人跳脚足以称为一件大乐事</blockquote>
+b博都复刻过了
+
+正常人都学会挑自己想看的看了，也就暗黑贴贴人看到这些就跳脚，不许这俩和别人营业<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3660#       发表于 2020-5-3 05:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47284759&amp;ptid=1914314" target="_blank">十九号大侠 发表于 2020-5-2 23:31</a>
+该死的MK2，还我的青春</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3661#       发表于 2020-5-3 05:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47285560&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-3 01:10</a>
+这有啥，暗黑贴贴人都是二极管吗</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3662#       发表于 2020-5-3 05:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47285560&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-3 01:10</a>
+这有啥，暗黑贴贴人都是二极管吗</blockquote>风怒编辑
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+                           
