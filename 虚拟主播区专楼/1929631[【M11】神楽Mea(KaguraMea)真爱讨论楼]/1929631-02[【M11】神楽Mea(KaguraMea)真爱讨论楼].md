@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 18:08** 
+> ## **本文件最后更新于2020-05-02 20:08** 
 
 
 
@@ -12872,4 +12872,2545 @@ meaquaLOL P2的mea姊怎麼了，一直在沒話找話。<img src="https://stati
 
 
 
-                          
+
+
+-----
+
+####  离心  
+##### 2197#       发表于 2020-5-2 18:08
+
+
+
+
+等等，不知道是不是我的错觉，mea这个live2d。欧派在晃？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2198#       发表于 2020-5-2 18:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有亡国民的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2199#       发表于 2020-5-2 18:09
+
+
+
+
+你咩姐的欧派一直都能晃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2200#       发表于 2020-5-2 18:10
+
+
+
+
+推上那个是真吓人，第一次看到给我惊了......这大概才是gachi吧（你麻gachi跟我咩有啥关系.jpg）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2201#       发表于 2020-5-2 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281437&amp;ptid=1929631" target="_blank">离心 发表于 2020-5-2 18:08</a>
+等等，不知道是不是我的错觉，mea这个live2d。欧派在晃？</blockquote>
+注意了一下才发现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea姐的欧派好像水
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2202#       发表于 2020-5-2 18:10
+
+
+
+
+你咩姐说了，3d因为疫情没法播
+
+syl，要不怎么叫水袋呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2203#       发表于 2020-5-2 18:11
+
+
+
+
+安全最重要
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2204#       发表于 2020-5-2 18:12
+
+
+
+<img src="https://p.sda1.dev/0/2221cf740318f5ba1be3a66f916c94ed/7e756435bf17e693.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2205#       发表于 2020-5-2 18:12
+
+
+
+
+就是说家用3D还没搞起来（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2206#       发表于 2020-5-2 18:12
+
+
+
+
+貌似有人写了10个棉花糖催。。。服了，他们是不是不知道线下3d摄影室全关了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2207#       发表于 2020-5-2 18:13
+
+
+
+
+我艹，原来同一个人写多个棉花糖能看出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想起我以前换着人设RPG给她投棉花糖
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2208#       发表于 2020-5-2 18:14
+
+
+
+
+火星人不知道地球有疫情很正常，别尬黑
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2209#       发表于 2020-5-2 18:14
+
+
+
+
+会按顺序排的啊，连投当然能看出来
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2210#       发表于 2020-5-2 18:18
+
+
+
+
+女粉比例持续降低，记得之前到过11%来着
+<img src="https://p.sda1.dev/0/d113d1801f73e26860d12da38dd7b47c/-392ddf92b69ea19.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2211#       发表于 2020-5-2 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281512&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-2 18:14</a>
+会按顺序排的啊，连投当然能看出来</blockquote>
+那断开投的话应该就没问题了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2212#       发表于 2020-5-2 18:19
+
+
+
+
+有意思，跳过的这个谁呀？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2213#       发表于 2020-5-2 18:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">之前没事就开车 还能保留6.6的女粉吗 这一部分可能比男粉竞争力强多了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2214#       发表于 2020-5-2 18:22
+
+
+
+
+为啥你们会觉得女粉不喜欢开车啊（
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2215#       发表于 2020-5-2 18:23
+
+
+
+
+一般来说，只是新增粉丝中男粉占比太高导致的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2216#       发表于 2020-5-2 18:23
+
+
+
+
+她说本来想做视频给信姬，但截止日期太早了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2217#       发表于 2020-5-2 18:23
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-5-2 18:26 编辑 
+
+信姬隐退会上没视频好像是因为忘了。。。更正一下，我看的同传好像错了，是时间上来不及
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2218#       发表于 2020-5-2 18:23
+
+
+
+
+什么？不是时间太紧没录吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 2219#       发表于 2020-5-2 18:25
+
+
+
+
+恐怖游戏没了吗，看来是明天了
+今天的棉花糖就是很久以前的那个吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2220#       发表于 2020-5-2 18:25
+
+
+
+
+谁写的，站出来<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2221#       发表于 2020-5-2 18:25
+
+
+
+
+草smjb，我就听到兰太郎兰太郎了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2222#       发表于 2020-5-2 18:26
+
+
+
+
+草 这个嗝真是绝了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2223#       发表于 2020-5-2 18:26
+
+
+
+
+好久不见兰熊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2224#       发表于 2020-5-2 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281626&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 18:25</a>
+
+草smjb，我就听到兰太郎兰太郎了</blockquote>
+想给蘭太郎打个招呼说声谢谢的，结果刚说出ran的音节就打了这么大一个嗝，确实太失礼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">肥肠爆芡
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2225#       发表于 2020-5-2 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281643&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-2 18:27</a>
+想给蘭太郎打个招呼说声谢谢的，结果刚说出ran的音节就打了这么大一个嗝，确实太失礼了肥肠爆芡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然就开始高速神言没反应过来
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2226#       发表于 2020-5-2 18:29
+
+
+
+
+刚才长文大概啥内容啊，就听到个fanbox
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2227#       发表于 2020-5-2 18:30
+
+
+
+
+阿咩看到老男人仿佛看到了自己的未来
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2228#       发表于 2020-5-2 18:31
+
+
+
+
+【（棉花糖：30岁了，存了一些钱，打算悠闲地过一段时间）】
+【（然后看看动画vtb，说起来明年就40岁了）】
+
+mea:看到了自己的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2229#       发表于 2020-5-2 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不要姨化
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2230#       发表于 2020-5-2 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281661&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 18:29</a>
+
+突然就开始高速神言没反应过来</blockquote>
+突然开始高速神言 这种时候通常就是真的害羞了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2231#       发表于 2020-5-2 18:32
+
+
+
+
+贴吧看到的数据man<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/fcbb1fff71fa48718a2324349c9458d5/IMG_20200502_183214.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 2232#       发表于 2020-5-2 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281694&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-2 18:32</a>
+
+突然开始高速神言 这种时候通常就是真的害羞了</blockquote>
+兰太郎 不在场也可以让小咩害羞的永远的神<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2233#       发表于 2020-5-2 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">55以上还有1.1%
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2234#       发表于 2020-5-2 18:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281713&amp;ptid=1929631" target="_blank">yuandi20 发表于 2020-5-2 18:33</a>
+
+兰太郎 不在场也可以让小咩害羞的永远的神</blockquote>
+诶诶……<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">蘭太郎刚刚出来打招呼了呀 所以咩说要道个谢什么的 她在的
+
+
+syl B站弹幕有时候还是挺逗的 看到一条“看封面还以为是别人呢，才刚点进来错过了半小时”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2235#       发表于 2020-5-2 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/3bb12b27a22391c872129d7963ff135a/-1fbfbfa6ecf34ae9.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/cd7a1ebec9316601fd84a6045b26d91b/IMG_20200502_184345.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2236#       发表于 2020-5-2 18:46
+
+
+
+
+她不是在监视m楼吧，不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2237#       发表于 2020-5-2 18:47
+
+
+
+
+看个直播还能被精准打击，不安です了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2238#       发表于 2020-5-2 18:48
+
+
+
+
+我之前看斗鱼主播时也是碰到那种很爱互动的小主播就跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">进个房间他都要问一声，还好vtb有转播
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2239#       发表于 2020-5-2 18:50
+
+
+
+
+楼里yhm太多了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2240#       发表于 2020-5-2 18:51
+
+
+
+
+日语正常的棉花糖多起来了？ 
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2241#       发表于 2020-5-2 18:52
+
+
+
+
+神tm风云儿<img src="https://p.sda1.dev/0/cd74a26ba5994d22096f7ec2ab010f8e/7fe903ab628da7e2.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2242#       发表于 2020-5-2 18:55
+
+
+
+
+你麻被小鬼喜欢着呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2243#       发表于 2020-5-2 18:58
+
+
+
+
+第二首原创曲还行
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2244#       发表于 2020-5-2 18:58
+
+
+
+
+草 没猜到<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2245#       发表于 2020-5-2 18:58
+
+
+
+
+🌿
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2246#       发表于 2020-5-2 18:59
+
+
+
+
+明天第二首原创曲？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2247#       发表于 2020-5-2 18:59
+
+
+
+
+你咩的重大告知从不让人失望
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 2248#       发表于 2020-5-2 18:59
+
+
+
+
+吊人nb<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">举重若轻莫过如是
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2249#       发表于 2020-5-2 18:59
+
+
+
+
+牛逼，你咩姐不播的时候也不闲啊
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 2250#       发表于 2020-5-2 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2251#       发表于 2020-5-2 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">开心 好起来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2252#       发表于 2020-5-2 19:01
+
+
+
+
+我就说是原创曲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2253#       发表于 2020-5-2 19:01
+
+
+
+
+好起来了（｡ò ∀ ó｡）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2254#       发表于 2020-5-2 19:01
+
+
+
+
+什么叫偶像营业啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2255#       发表于 2020-5-2 19:01
+
+
+
+
+突然害怕起调音了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2256#       发表于 2020-5-2 19:02
+
+
+
+
+放企业势，可以做2次捞钱直播“我有重要的事跟大家说，希望啊大家来”“歌回原创区几年直播”
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2257#       发表于 2020-5-2 19:02
+
+
+
+
+好！
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2258#       发表于 2020-5-2 19:03
+
+
+
+
+原创曲调音都是作曲负责吧，774不会作曲，放心吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2259#       发表于 2020-5-2 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282009&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-2 19:01</a>
+突然害怕起调音了</blockquote>
+草莓果酱记得是直接把调音做了，估计这首也是差不多
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 2260#       发表于 2020-5-2 19:04
+
+
+
+
+怎么全是水果啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2261#       发表于 2020-5-2 19:04
+
+
+
+
+期待是苦情类的歌，能把mea的优势发挥出来
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2262#       发表于 2020-5-2 19:06
+
+
+
+
+但以小麻的口味总感觉会是甜蜜蜜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2263#       发表于 2020-5-2 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好事～
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2264#       发表于 2020-5-2 19:06
+
+
+
+
+演唱会开场一首结尾一首，爽到<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2265#       发表于 2020-5-2 19:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别是口水歌了，上次的歌词实在是不忍直视
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2266#       发表于 2020-5-2 19:08
+
+
+
+
+日本偶像曲基本都是那样不知所云吧
+
+之前玩过一段时间的偶像音游，词写得跟开玩笑似的
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2267#       发表于 2020-5-2 19:08
+
+
+
+
+yhm喜欢什么你们到现在还不懂么。99%是用萌音唱那种甜掉牙的歌
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2268#       发表于 2020-5-2 19:09
+
+
+
+
+但她有段时间还挺喜欢椎名🍎的歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也说不准
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 2269#       发表于 2020-5-2 19:10
+
+
+
+
+天狗眼中的mea.jpg
+
+麻酱眼中的mea.jpg
+
+这就是代沟么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2270#       发表于 2020-5-2 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她现在也很喜欢女王的歌啊，前两天不是刚表扬过那个pv，希望这首原创曲来首cool系的吧（
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2271#       发表于 2020-5-2 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282039&amp;ptid=1929631" target="_blank">离心 发表于 2020-5-2 19:04</a>
+期待是苦情类的歌，能把mea的优势发挥出来</blockquote>
+确实是这样
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2272#       发表于 2020-5-2 19:13
+
+
+
+
+cool系的话 以前她喜欢niconiconi吧 BIBI组里唯一不cool的一个 挺难的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">苦情曲挺好的  合适
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2273#       发表于 2020-5-2 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">你咩姐生活不能自理，可怎么办啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2274#       发表于 2020-5-2 19:14
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-2 19:15 编辑 
+
+第一首一定是百搭风的口水萌音曲，是丢出去探路的，后面的可以期待了其实
+
+
+不过好曲子是要钱的呀，霓虹商业曲分化还挺大的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2275#       发表于 2020-5-2 19:14
+
+
+
+
+草草草，这都什么生活习惯，没人照顾独居真的能活下去吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2276#       发表于 2020-5-2 19:14
+
+
+
+
+【包括内裤袜子全都给我送过来了父母】
+【连厕所的垫巾也都】
+【全都寄送过来了】
+【然后洗不了了就我再寄回去】
+【然后我就寄回去一堆不知道洗没洗的内裤】
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2277#       发表于 2020-5-2 19:15
+
+
+
+
+这种孩子，我是她父母我也不会放她出去的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2278#       发表于 2020-5-2 19:15
+
+
+
+
+真的？ 告诉我是营业<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 2279#       发表于 2020-5-2 19:16
+
+
+
+ 本帖最后由 rosevalley46 于 2020-5-2 19:17 编辑 
+
+我服了,这人的卫生习惯也太死宅了一点
+
+堆一堆衣服,寄回家给爹妈洗,还顺便和菜放在一起
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2280#       发表于 2020-5-2 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+我出发了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2281#       发表于 2020-5-2 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xswl
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2282#       发表于 2020-5-2 19:16
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-2 19:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/98fcd0269af120edf801d4945979ad60/-5e9e302488380c27.png" referrerpolicy="no-referrer">
+【而且还是稍微有点生气了】
+【我那时候也有点生气啊】
+【说我明明也是寄了点菜回去啊】
+【虽然只是要父母顺便帮洗衣服而已】
+【然后被说了“这边可是用了一整个肥皂(？）了啊”】
+【而且说不定哪天就不让我送了嘛】
+【会有不安】
+【送过去会花一天啊 诶——】
+【棉花糖吗 现在只有奇怪的棉花糖了】
+【莫非可能会被拒收？诶——】
+【真的会这样的吗】
+【那太过分了吧】
+【那可是可爱的女儿的洋服啊 不能洗一下嘛【】
+【被拒收的话我会哭的】
+【毕竟那如果拒收的话那怎么办】
+【那不就要我来洗了吗】
+【那得需要一个月啊】
+【完全不行的】
+【那我不就没衣服穿了吗】
+【那我会哭的啊】
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 2283#       发表于 2020-5-2 19:17
+
+
+
+
+住的地方没洗衣机？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2284#       发表于 2020-5-2 19:17
+
+
+
+
+进口洗衣机准备好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 2285#       发表于 2020-5-2 19:17
+
+
+
+
+父爱接口快开，该送洗衣机了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2286#       发表于 2020-5-2 19:19
+
+
+
+
+恐怖游戏是明天玩啊，肉眼可见的低情绪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2287#       发表于 2020-5-2 19:19
+
+
+
+
+mea的不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7a5e778afa1330a8d90d5e99dcddd900/IMG_20200502_191849.png" referrerpolicy="no-referrer">
+楼友的不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/657f087be70b5a6f1d9a5e89dfda3992/IMG_20200502_184345.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2288#       发表于 2020-5-2 19:20
+
+
+
+
+送洗衣机这么大的机械，有楼友考虑放一个定位器进去吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+她今天是因为没有起床气还是没有鼻塞，反正声音听着舒服的一逼。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2289#       发表于 2020-5-2 19:21
+
+
+
+
+没洗衣机还行
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2290#       发表于 2020-5-2 19:21
+
+
+
+
+我可以去帮她洗衣服（
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 2291#       发表于 2020-5-2 19:22
+
+
+
+
+被周围人说穿的衣服土，俺寻思小土妹推自行车那张可以锤了？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2292#       发表于 2020-5-2 19:22
+
+
+
+
+臭肥羊没图宁在这说你麻呢？来张麻图秋梨膏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2293#       发表于 2020-5-2 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+【虽然都不怎么出去买】
+【一直是穿着这3 4年间的衣服】
+【对...得去买了啊】
+【牌子我是不会说的【】
+【而且被因为牌子说“这家的衣服好土啊”的话】
+
+另外前几天有人提别人描述小麻外貌？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/a98b4f3ee83ff93080b10b4dc68b105e/IMG_20200502_192249.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2294#       发表于 2020-5-2 19:23
+
+
+
+
+无图言弔<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2295#       发表于 2020-5-2 19:23
+
+
+
+
+哦豁，高中衣服现在都能穿，这胖十斤是胖到哪里了kora
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2296#       发表于 2020-5-2 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bs合照不就能看出来了吗，裤腰带往上拉的都快提到胸了，能不土吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2297#       发表于 2020-5-2 19:24
+
+
+
+
+你咩姐几年前的衣服还在穿，是不是说明完全没有发育<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2298#       发表于 2020-5-2 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282260&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-2 19:23</a>
+哦豁，高中衣服现在都能穿，这胖十斤是胖到哪里了kora</blockquote>
+大概是……屁股？<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2299#       发表于 2020-5-2 19:25
+
+
+
+
+能穿的进说明坦克民都无了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 2300#       发表于 2020-5-2 19:25
+
+
+
+
+啊这，那图都发了好几次了吧，照着情况看可能不是中坦是个轻坦？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2301#       发表于 2020-5-2 19:25
+
+
+
+
+因为之前也要垫，所以现在不用垫了。正好解释了胖哪去了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 2302#       发表于 2020-5-2 19:25
+
+
+
+
+屁股胖了那就穿不上裤子了。不过假如是裙子的话应该没问题()
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2303#       发表于 2020-5-2 19:26
+
+
+
+
+坦克民最黑暗的一天
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2304#       发表于 2020-5-2 19:26
+
+
+
+
+坦克民给爷死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2305#       发表于 2020-5-2 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">以前衣服宽松现在长胖了正好，说不定还有点紧
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 2306#       发表于 2020-5-2 19:27
+
+
+
+
+我不信我不信,除非给我康新麻图<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+yysy衣服穿3-4年的话那体型确实和那些BS时期的照片差不离
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2307#       发表于 2020-5-2 19:27
+
+
+
+
+唐突唱歌
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2308#       发表于 2020-5-2 19:27
+
+
+
+
+有点紧会勒肉的那种吗，我好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 2309#       发表于 2020-5-2 19:28
+
+
+
+
+此役之后我们失败了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2310#       发表于 2020-5-2 19:28
+
+
+
+
+这歌没印象，是新歌吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2311#       发表于 2020-5-2 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282325&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 19:28</a>
+这歌没印象，是新歌吗</blockquote>
+网管的歌，唱过
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2312#       发表于 2020-5-2 19:29
+
+
+
+
+一转歌回还行
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 2313#       发表于 2020-5-2 19:30
+
+
+
+
+你麻这种阴角不注意体重是不可能的吧，这么在意别人的评价想法的性格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就是没有新麻图佐证
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2314#       发表于 2020-5-2 19:30
+
+
+
+
+但辣妹人设🈚了啊啊啊啊
+辣妹控暴哭，穿衣土气什么的，以前真的能是太妹吗
+不会从小就是自闭系的学校边缘人吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2315#       发表于 2020-5-2 19:30
+
+
+
+
+我们仍未知道那些年774到底被吊人的生活习惯祸害了多少次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2316#       发表于 2020-5-2 19:31
+
+
+
+
+为啥突然唱歌？
+
+这档不留了？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2317#       发表于 2020-5-2 19:31
+
+
+
+
+难怪说对咩一点兴趣都没有，就这当保姆当久了谁会有兴趣草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以请让我接手（（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2318#       发表于 2020-5-2 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282368&amp;ptid=1929631" target="_blank">the_cook 发表于 2020-5-2 19:31</a>
+为啥突然唱歌？
+
+这档不留了？</blockquote>
+说是歌回不能留档，但一首歌的话应该问题不大，好像是这样
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2319#       发表于 2020-5-2 19:32
+
+
+
+
+只是唱一首而已
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2320#       发表于 2020-5-2 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你原创曲图不能发一下吗
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 2321#       发表于 2020-5-2 19:35
+
+
+
+
+坦克民的fanart很少，我之前只翻到几张胖胖的画像
+我相信，只要坦克民不断虚无创作，一定能生存<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2322#       发表于 2020-5-2 19:35
+
+
+
+
+我怀疑她辣妹也是云的
+
+
+“好厉害啊挑染一个试一试吧”——完全没法融入进去——无奈放弃
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2323#       发表于 2020-5-2 19:35
+
+
+
+
+谁能和我说一下，yhm的洋服一般是啥样吗（
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2324#       发表于 2020-5-2 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282377&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 19:31</a>
+
+说是歌回不能留档，但一首歌的话应该问题不大，好像是这样</blockquote>
+就规避版权问题来说，不是多少的问题，而是有无的问题把
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2325#       发表于 2020-5-2 19:36
+
+
+
+
+就是LO娘吧
+
+
+看来出警牌子也是两边共通的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2326#       发表于 2020-5-2 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282422&amp;ptid=1929631" target="_blank">the_cook 发表于 2020-5-2 19:36</a>
+就规避版权问题来说，不是多少的问题，而是有无的问题把</blockquote>
+之前生日时也唱了首灰青，估计她对音源什么的也有准备吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且现在就算没了收益化也有后备渠道，估计没那么怕了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2327#       发表于 2020-5-2 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">坦克民永不言败
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2328#       发表于 2020-5-2 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282422&amp;ptid=1929631" target="_blank">the_cook 发表于 2020-5-2 19:36</a>
+就规避版权问题来说，不是多少的问题，而是有无的问题把</blockquote>
+我记得404判断版权也是用的ai吧，应该是概率问题，唱的多就容易遭重
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2329#       发表于 2020-5-2 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282427&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-2 19:36</a>
+就是LO娘吧
+
+
+看来出警牌子也是两边共通的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小麻穿那种洛丽塔衣服总感觉很生草
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2330#       发表于 2020-5-2 19:40
+
+
+
+
+原来是lo娘啊，怪不得看牌子说土的
+我已经完全理解了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2331#       发表于 2020-5-2 19:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不了解lo娘
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2332#       发表于 2020-5-2 19:40
+
+
+
+
+LO洋服还挺好看的，大牌子都很贵的吧，一般人买这个狠不下心买的。可能前两年买了舍不得扔吧，我感动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2333#       发表于 2020-5-2 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282447&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 19:38</a>
+
+小麻穿那种洛丽塔衣服总感觉很生草</blockquote>
+我不信，发出图来你们不还是冲爆
+
+
+虽然可能她本人气质既不是典型的可爱也不是高冷，的确形容起来比较“谐星”（？）
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2334#       发表于 2020-5-2 19:41
+
+
+
+
+有趣的女人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2335#       发表于 2020-5-2 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282468&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-2 19:41</a>
+我不信，发出图来你们不还是冲爆
+
+
+虽然可能她本人气质既不是典型的可爱也不是高冷，的确形容起来比较“谐 ...</blockquote>
+你想想穿着lo服恰蛋糕泡面的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2336#       发表于 2020-5-2 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2337#       发表于 2020-5-2 19:43
+
+
+
+
+场合问题啊场合问题，在家谁这么穿（当然不排除她脑子真的有点问题）
+
+
+出去那当然大家咖啡厅公园里拍照片啦
+
+
+那气氛也还好吧
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2338#       发表于 2020-5-2 19:45
+
+
+
+
+稀有！！麻酱与神乐mea的合照<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">(
+<img src="http://inews.gtimg.com/newsapp_bt/0/11580386075/641.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2339#       发表于 2020-5-2 19:45
+
+
+
+
+没麻图的没麻图的，你麻怎么可能把照片给阿宅看的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2340#       发表于 2020-5-2 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282518&amp;ptid=1929631" target="_blank">素人不相识 发表于 2020-5-2 19:45</a>
+稀有！！麻酱与神乐mea的合照(</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没死鱼加鹅了
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 2341#       发表于 2020-5-2 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民永不言弃
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2342#       发表于 2020-5-2 19:48
+
+
+
+
+还坦克民呢，你潭xp好jb怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2343#       发表于 2020-5-2 19:49
+
+
+
+
+LO装必须配坦克，没有大象腿的LO装是不完整的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2344#       发表于 2020-5-2 19:52
+
+
+
+
+说起来前几天我还纳闷，mea单独开了一个叫原创曲的播放列表在404频道上，里面只有草莓果酱一首歌，没想到这就有第二首了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2345#       发表于 2020-5-2 19:59
+
+
+
+
+去如月那里冒泡了了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2346#       发表于 2020-5-2 20:02
+
+
+
+
+【YoutubeChat 如月こよりYTB 直播评论】
+
+用户：神楽めあ / KaguraMea
+
+内容：こんより！
+
+类型：message
+
+网址：[https://www.youtube.com/watch?v=4qIz3EllByU](https://www.youtube.com/watch?v=4qIz3EllByU)
+
+
+
+
+
+                     
