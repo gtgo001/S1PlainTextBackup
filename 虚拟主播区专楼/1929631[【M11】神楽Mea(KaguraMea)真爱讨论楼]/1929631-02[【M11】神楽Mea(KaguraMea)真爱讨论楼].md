@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 20:08** 
+> ## **本文件最后更新于2020-05-02 22:08** 
 
 
 
@@ -15275,6 +15275,25 @@ LO洋服还挺好看的，大牌子都很贵的吧，一般人买这个狠不下
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15413,4 +15432,1117 @@ LO装必须配坦克，没有大象腿的LO装是不完整的<img src="https://s
 
 
 
-                     
+
+
+-----
+
+####  シオン诗音  
+##### 2347#       发表于 2020-5-2 20:20
+
+
+
+
+（bs相关）u18r开摄像头播了，当然没头就是了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好瘦
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2348#       发表于 2020-5-2 20:24
+
+
+
+
+来个链接?
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2349#       发表于 2020-5-2 20:28
+
+
+
+[https://twitcasting.tv/u1_8ra/movie/611411183](https://twitcasting.tv/u1_8ra/movie/611411183)
+
+弹唱中<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 2350#       发表于 2020-5-2 20:36
+
+
+
+
+艹，一觉睡过了15w纪念会
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2351#       发表于 2020-5-2 20:41
+
+
+
+
+u18r声音挺好听啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2352#       发表于 2020-5-2 20:43
+
+
+
+
+她唱歌吐息有点重啊，这样可以被说成是断气唱法吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2353#       发表于 2020-5-2 20:48
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-5-2 20:50 编辑 
+
+淦，又错过一次直播
+
+你楼这就被年轻的yhm给勾了魂？
+
+
+u18r的吐息的确是非常重，之前也说了相比你麻更有断气唱法的感觉
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2354#       发表于 2020-5-2 20:50
+
+
+
+
+夜明けと蛍<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 2355#       发表于 2020-5-2 20:50
+
+
+
+
+有一说一u18r唱歌真好听啊（）
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2356#       发表于 2020-5-2 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">谨防和平演变……
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2357#       发表于 2020-5-2 20:52
+
+
+
+
+要和平演变力！要和平演变力！
+
+说起来，阿B上还有u18r还是JC时翻唱的夜明けと蛍来着
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 2358#       发表于 2020-5-2 20:53
+
+
+
+ 本帖最后由 千木唯 于 2020-5-2 20:56 编辑 
+
+洋服是LO装是什么鬼印象
+
+比如她今天说的那个牌子的洋服是这样的
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/205645axglw8t01icgwlx6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200502205605.jpg</strong> (184.29 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-2 20:56 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2359#       发表于 2020-5-2 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一转另一🌸妹讨论
+
+
+
+syl：有一说一，确实好听，就是这衣服我高中男同学有一件一样的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2360#       发表于 2020-5-2 20:53
+
+
+
+
+所以当时u18r人气最高也不是没有道理啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2361#       发表于 2020-5-2 20:53
+
+
+
+ 本帖最后由 シオン诗音 于 2020-5-2 20:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊我本来的目的是想说你看一个团的妹子到现在都这么瘦，也是个neet（？） 你麻也不会差到哪去 至于，听歌就是没事做顺路挂着了。
+
+syl 软妹服啊 搭配的潮的话还是很棒的  到底怎么搭配成人见人说土啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2362#       发表于 2020-5-2 20:54
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-5-2 20:55 编辑 
+
+别瞎说，人气最高的是社畜酱，follower倍杀你麻的
+
+这衣服的确像是她会穿的
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2363#       发表于 2020-5-2 20:57
+
+
+
+
+啊夏祭
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2364#       发表于 2020-5-2 20:57
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-2 20:59 编辑 
+
+啊难道是我的消息有误<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说最有人气的是u18r，话说她颜出过吗？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2365#       发表于 2020-5-2 21:00
+
+
+
+ 本帖最后由 呓亘 于 2020-5-2 21:02 编辑 
+
+也不知道你麻有没有比较熟练的乐器（钢琴和吉他都没下文了……
+
+sly 目前bs流传下来的歌里有你麻和u18r的两人合唱吗？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2366#       发表于 2020-5-2 21:00
+
+
+
+
+emmmm上面的洋装理解不能……不清楚这些衣服到底土不土……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2367#       发表于 2020-5-2 21:01
+
+
+
+
+出过
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2368#       发表于 2020-5-2 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283206&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-05-02 20:57:54</a>
+说最有人气的是u18r，话说她颜出过吗？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有颜出
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2369#       发表于 2020-5-2 21:02
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-5-2 21:03 编辑 
+
+土不土是要对比的，你比她更土就不会觉得她土了
+
+小土妹那张是真的土，我都觉得土
+
+BS几个除了还在VTB活动那俩都有颜出，先辈的我没见过据说是有的
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2370#       发表于 2020-5-2 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">只要底子好，土也不土
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2371#       发表于 2020-5-2 21:03
+
+
+
+
+那大概底子...
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2372#       发表于 2020-5-2 21:04
+
+
+
+
+竟然还有人对你麻的品味抱有希望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2373#       发表于 2020-5-2 21:06
+
+
+
+
+u18r讲话真小声， 听惯了你麻真不习惯（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2374#       发表于 2020-5-2 21:06
+
+
+
+
+照理来说你麻的朋友也不少了吧，应该也有女子力很高的那种吧，小麻的品味就没受到感染？
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 2375#       发表于 2020-5-2 21:06
+
+
+
+
+这个牌子怎么说呢，如果麻酱再大几岁穿的话应该没什么问题，这人总喜欢穿得比实际年龄成熟、
+
+比如说这人16岁穿成这样~~~
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/210528msdmp6m5umxm6ptf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200502210501.jpg</strong> (68.58 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-2 21:05 上传
+
+
+
+
+
+
+一股20岁的感觉~<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+再说的话那个しまむら总体搭配风格是这样的
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/210617uqlqsjkhqsrz6j23.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200502205042.jpg</strong> (184.15 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-2 21:06 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/210617sckpp646uzhdd9zp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200502205400.jpg</strong> (73.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 21:06 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/210618lu19sflgli27fk1a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200502205406.jpg</strong> (19.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 21:06 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/210618m1erlttelrcficec.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200502210151.jpg</strong> (85.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 21:06 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 1|好图我收|
+| 离心| + 1|感谢解答|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2376#       发表于 2020-5-2 21:06
+
+
+
+
+保持自己的特色挺好的（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2377#       发表于 2020-5-2 21:07
+
+
+
+
+等等新图？加鹅了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2378#       发表于 2020-5-2 21:09
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-2 21:12 编辑 
+
+据说日本人对外表打扮的要求挺细致的。。。我有个学长去那边读研的时候也被说穿的太土了。
+
+但我看来就是普通男青年的休闲打扮<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+syl，这图里的衣服给40岁大妈穿都可以，黑底白花
+
+而且为啥这么大，视角原因？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2379#       发表于 2020-5-2 21:11
+
+
+
+
+对衣服完全没有了解，也欣赏不来到底好看不好看……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2380#       发表于 2020-5-2 21:11
+
+
+
+
+不够青春
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2381#       发表于 2020-5-2 21:11
+
+
+
+ 本帖最后由 シオン诗音 于 2020-5-2 21:13 编辑 
+
+那边这种文化还挺严重的，上班族OL如果不打扮一番再出门上班，会被认为对工作不认真不上心的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 我记得u18r有脐钉（曾经）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2382#       发表于 2020-5-2 21:12
+
+
+
+
+这品味也是......不过说实话那个染发也是接受不来
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2383#       发表于 2020-5-2 21:13
+
+
+
+
+这品味咋了，你麻还穿大裤衩呢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2384#       发表于 2020-5-2 21:14
+
+
+
+
+大裤衩是在家里所以没问题（
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2385#       发表于 2020-5-2 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟着楼友学时尚搭配
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2386#       发表于 2020-5-2 21:15
+
+
+
+
+山姥妆都顶了染个毛还顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2387#       发表于 2020-5-2 21:17
+
+
+
+
+那件刻在dna里的外套不知道还在不在
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2388#       发表于 2020-5-2 21:17
+
+
+
+
+山姥妆我认为是小胖子的黑屁
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2389#       发表于 2020-5-2 21:17
+
+
+
+
+现在也没有新的麻照，也不知道她的头发染回来了没有。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2390#       发表于 2020-5-2 21:18
+
+
+
+
+山姥装想表明的只是眼妆很重吧？
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 2391#       发表于 2020-5-2 21:19
+
+
+
+ 本帖最后由 千木唯 于 2020-5-2 21:21 编辑 
+
+粉挑染也就1年，刚上高中那时候染的，应该是刚开始学打扮，学化妆，画眼影胡化。到17年就换黄毛了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2392#       发表于 2020-5-2 21:20
+
+
+
+
+不知道， 可是从对pcr角色的反应来看你麻不喜欢黑发（
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2393#       发表于 2020-5-2 21:21
+
+
+
+
+我觉得就BS后台那张自拍有山姥妆的味道，黄毛的时候还好点
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2394#       发表于 2020-5-2 21:21
+
+
+
+
+呜呜呜，黑发民亡了，我最爱的黑发呀<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2395#       发表于 2020-5-2 21:23
+
+
+
+
+她还说自己只穿粉呢，然而圣皇说她穿黑的(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 2396#       发表于 2020-5-2 21:25
+
+
+
+
+她她以前就说过喜欢穿黑的，<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2397#       发表于 2020-5-2 21:33
+
+
+
+
+提问，山佬装是什么装
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2398#       发表于 2020-5-2 21:38
+
+
+
+
+是妆不是装
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2399#       发表于 2020-5-2 21:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283561&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 21:33</a>
+
+提问，山佬装是什么装</blockquote>
+妆，yamanba
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2400#       发表于 2020-5-2 21:41
+
+
+
+<[img src="https://i.ibb.co/6WcDF11/Vcut9qxm-400x400.jpg" referrerpolicy="no-referrer">
+
+这种?
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2401#       发表于 2020-5-2 21:46
+
+
+
+
+草你吓到我了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 2402#       发表于 2020-5-2 21:55
+
+
+
+
+差不多就是这种吧，但这张比较极端了，麻应该不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2403#       发表于 2020-5-2 21:58
+
+
+
+
+同好会的周报可以让官组转一下吗？专栏应该也能@吧好像，不如直接圈个官组试试<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2404#       发表于 2020-5-2 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凛子拿来举例的不就是这张么
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 2405#       发表于 2020-5-2 22:02
+
+
+
+
+我对她的审美不抱任何期待......
+
+
+
+
+
+                   

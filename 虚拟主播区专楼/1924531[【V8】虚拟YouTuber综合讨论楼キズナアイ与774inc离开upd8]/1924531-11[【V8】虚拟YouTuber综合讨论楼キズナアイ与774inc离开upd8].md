@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 20:06** 
+> ## **本文件最后更新于2020-05-02 22:06** 
 
 
 
@@ -9842,7 +9842,7 @@ In Russia,Tetris plays u.
 [https://ebten.jp/p/4541993047567](https://ebten.jp/p/4541993047567)
 [https://ebten.jp/p/4541993047574](https://ebten.jp/p/4541993047574)
 <img src="http://ebten.jp/eb/p/Vtuber_horoP_goods/robopP1.jpg" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EW-mltaUEAALUsX?format=jpg&amp;name=large" height="530" id="aimg_CR6Lm" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EW-mltaUEAALUsX?format=jpg&amp;name=large" height="530" id="aimg_k1RNe" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/robocosan/status/1256405994604650496/photo/1](https://twitter.com/robocosan/status/1256405994604650496/photo/1)
 
 
@@ -19897,6 +19897,25 @@ https://www.youtube.com/watch?v=Q5rrLQTEyuQ</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 57042711| + 1|奇怪的知识增加了···|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20530,7 +20549,7 @@ himmel我还是东方时期关注的他，怎么这么魔怔和弱智了<img src
 
 
 XpdvzSy.jpg
-(405.82 KB, 下载次数: 2)
+(405.82 KB, 下载次数: 4)
 
 
 
@@ -20876,7 +20895,7 @@ himmel我还是东方时期关注的他，怎么这么魔怔和弱智了</blockq
 <img src="https://img.saraba1st.com/forum/202005/02/172309f34fizo48v4r3033.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200502172205.png</strong> (129.52 KB, 下载次数: 0)
+<strong>QQ截图20200502172205.png</strong> (129.52 KB, 下载次数: 1)
 
 下载附件
 
@@ -22093,7 +22112,7 @@ colo可以封一个冲国第一门卫了
 <img src="https://img.saraba1st.com/forum/202005/02/175614ewgwqq1r3vz5p6yy.jpg" referrerpolicy="no-referrer">
 
 
-<strong>4C539634E6A8E9953F912E54F9DDA7B3.jpg</strong> (401.4 KB, 下载次数: 0)
+<strong>4C539634E6A8E9953F912E54F9DDA7B3.jpg</strong> (401.4 KB, 下载次数: 1)
 
 下载附件
 
@@ -23024,7 +23043,7 @@ d葵说葵像奇行种，2000都做不来吧？
 <img src="https://img.saraba1st.com/forum/202005/02/182228u7p5qqhhgg10op7q.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200502182209.png</strong> (462.54 KB, 下载次数: 0)
+<strong>QQ截图20200502182209.png</strong> (462.54 KB, 下载次数: 1)
 
 下载附件
 
@@ -24500,6 +24519,26 @@ yagoo不整个u8这样的联盟吗，拉拢收编一批个人势</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| abc12354aa|-1|欢乐多|
+| abc12354a|-1|快乐双标|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -24656,6 +24695,25 @@ https://www.youtube.com/watch?v=9MCwWcFpWfw
 【歌枠】GWだし、歌います。【アーカイブ残りません】#葵の ...</blockquote>
 昨天你发过了，待机中。我永远喜欢大葵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| abc12354a|-1|好好回复|
+
+
+
+查看全部评分
 
 
 
@@ -25045,4 +25103,1627 @@ wtm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 
 
-      
+
+
+-----
+
+####  stedckk  
+##### 16304#       发表于 2020-5-2 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也要骂狐皇的吗，狐皇好难
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16305#       发表于 2020-5-2 20:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/200944i47lzngt4uo3ou0j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXAu0VwUYAQhtcp.jpg</strong> (144.26 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-2 20:09 上传
+
+
+
+
+
+
+[https://twitter.com/Seic_Oh/status/1256556131851198465](https://twitter.com/Seic_Oh/status/1256556131851198465)
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 16306#       发表于 2020-5-2 20:10
+
+
+
+
+没想到第一个真杏仁是粽子……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16307#       发表于 2020-5-2 20:11
+
+
+
+
+粽子来了啊，企划破产。
+
+那不如猜猜2期4期谁来？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16308#       发表于 2020-5-2 20:12
+
+
+
+
+时间到了
+
+等会萝卜还要参加联动
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16309#       发表于 2020-5-2 20:13
+
+
+
+
+这不是在夸狐皇吗，真正的工具人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16310#       发表于 2020-5-2 20:14
+
+
+
+ 本帖最后由 ひびき 于 2020-5-2 20:15 编辑 
+
+今天小肥妹可怜撞了LPL决赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+水手这把二打五实在太强了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16311#       发表于 2020-5-2 20:14
+
+
+
+
+阿黑颜好伙伴的太紫要来吧，不来我要有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16312#       发表于 2020-5-2 20:14
+
+
+
+
+杏的图，怎么说呢，大部分都有点涩涩的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 16313#       发表于 2020-5-2 20:15
+
+
+
+
+今晚的夏妹爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 16314#       发表于 2020-5-2 20:16
+
+
+
+
+肥妹1小时连唱不bb，拒绝沟通<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16315#       发表于 2020-5-2 20:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282819&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-2 20:14</a>
+
+阿黑颜好伙伴的太紫要来吧，不来我要有梁木了
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+在直播
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16316#       发表于 2020-5-2 20:18
+
+
+
+
+粽子刚下直播，没看之前的情况，估计看到discord就来了，“没读空气”。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 16317#       发表于 2020-5-2 20:18
+
+
+
+
+差不多剪到平常的1小时直播时间，
+
+第二行的upd8
+
+秦国梦，醒了
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1geeddk8lw4j20im0edq4k.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16318#       发表于 2020-5-2 20:19
+
+
+
+
+towa竟然来了，震惊。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16319#       发表于 2020-5-2 20:19
+
+
+
+
+towasama也来了
+
+没空气了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16320#       发表于 2020-5-2 20:20
+
+
+
+
+还好啊，前半展示社外人脉，后半社内顶上，也不错
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 16321#       发表于 2020-5-2 20:20
+
+
+
+
+兔宝<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16322#       发表于 2020-5-2 20:20
+
+
+
+
+姑且贴一下神回截图
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/202049f8nvmzv5qmir5vom.png" referrerpolicy="no-referrer">
+
+
+<strong>GBmXSYg.png</strong> (963.76 KB, 下载次数: 3)
+
+下载附件
+
+2020-5-2 20:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16323#       发表于 2020-5-2 20:21
+
+
+
+ 本帖最后由 某穆克拉 于 2020-5-2 20:23 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/202123s939uv9vs0lyst9t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>少女天使.jpg</strong> (1.48 MB, 下载次数: 1)
+
+下载附件
+
+2020-5-2 20:21 上传
+
+
+
+
+
+你楼上午聊到的少年天使。
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 16324#       发表于 2020-5-2 20:21
+
+
+
+
+towa自己也在直播，好像挺有心的，这一部分可能就是企划外的了。
+
+
+
+
+
+
+
+-----
+
+####  reegun  
+##### 16325#       发表于 2020-5-2 20:22
+
+
+
+
+皇女的绝叫真是太美味了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16326#       发表于 2020-5-2 20:23
+
+
+
+
+来种点梁木，这不就是狐皇先跳出来表态你们可以上了，后面人才敢来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+狐皇不说话大家都不敢擅自连线<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16327#       发表于 2020-5-2 20:24
+
+
+
+
+真实的羊来了，要把萝卜吃掉吗。
+
+
+
+
+
+
+
+-----
+
+####  妹控使徒  
+##### 16328#       发表于 2020-5-2 20:26
+
+
+
+
+露露的24H终于结束了  这人各种意义上让人血压飙升导致熬成老父亲粉   希望他接下来2天啥都别播好好休息
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16329#       发表于 2020-5-2 20:26
+
+
+
+
+这梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，粽子和towa八成是没看直播内容的，只是看到discord就来了。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16330#       发表于 2020-5-2 20:28
+
+
+
+
+其实从时间来说我也觉得狐狸是有种专门来收尾的感觉的，但没想到后面还有人，那就直接放开了凸了，如果一开始就放开凸的话太紫没来感觉是有点奇怪
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16331#       发表于 2020-5-2 20:30
+
+
+
+
+我家太紫可是クソガキ的具象化，不来很正常
+
+再等一个月太紫就能开深夜台了，是时候把工作辞了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16332#       发表于 2020-5-2 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前一小时也没见太紫去打电话啊，是不是抱上龙皇大腿之后就看不上萝卜子桑了
+太紫也学坏了难道成长就代表着变得现实吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+四期生最给面子呢…请成长得慢一点，不要那么现实<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16333#       发表于 2020-5-2 20:35
+
+
+
+<blockquote>某穆克拉 发表于 2020-5-2 20:21
+你楼上午聊到的少年天使。</blockquote>
+很可以
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16334#       发表于 2020-5-2 20:36
+
+
+
+
+啊希真就唱不停啊。。。
+
+我倒是挺希望能歇会，和观众们互动一下
+
+这声音有点哑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16335#       发表于 2020-5-2 20:43
+
+
+
+
+今天阿希歌回质量比昨天高多了
+
+
+还不停的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16336#       发表于 2020-5-2 20:45
+
+
+
+
+双子超超超直球五问upd8
+
+[https://www.youtube.com/watch?v=Y5oUuKoe92E](https://www.youtube.com/watch?v=Y5oUuKoe92E)
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/204523m853wxu3xqua5as3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>rio.jpg</strong> (83.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 20:45 上传
+
+
+
+
+
+
+
+upd8短期解散不了了，对于她们这种个人势，处理一些杂事还是挺好用的
+
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 16337#       发表于 2020-5-2 20:46
+
+
+
+ 本帖最后由 Nonamesky 于 2020-5-2 20:50 编辑 
+
+看了下评论，大概懂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 16338#       发表于 2020-5-2 20:49
+
+
+
+ 本帖最后由 tafouuwadf 于 2020-5-2 20:54 编辑 
+
+双子现在是upd8唯一的“マルチクリエイター”了。。。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16339#       发表于 2020-5-2 20:49
+
+
+
+
+我昨天还在推特问小肥妹能不能批限观众参加型apex居然成了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16340#       发表于 2020-5-2 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283132&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-2 20:49</a>
+
+我昨天还在推特问小肥妹能不能批限观众参加型apex居然成了</blockquote>
+希望来几个巨佬，电梯直达钻石<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16341#       发表于 2020-5-2 20:55
+
+
+
+ 本帖最后由 rzrbtk 于 2020-5-2 21:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282903&amp;ptid=1924531" target="_blank">reegun 发表于 2020-5-2 20:22</a>
+
+皇女的绝叫真是太美味了</blockquote>
+[https://twitter.com/mosupine2434VvV/status/1256556959102205952](https://twitter.com/mosupine2434VvV/status/1256556959102205952)
+
+
+光速出剪辑，皇女夜勤名场面
+
+是和露露合作多了还是怎样，皇女最近直球涩图激增啊
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 16342#       发表于 2020-5-2 20:58
+
+
+
+
+体感五十人买票的B站zepp难波老害场结束了，弹幕很稀疏，ID都很熟，甚至不用关弹幕开屏蔽。
+
+不过倒是体现了圈子小的好处，和谐版聊，推老害的也都是老人了，说话都懂。
+<img src="https://p.sda1.dev/0/5dab4ab675b6d546a382d7ca1302f29c/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 16343#       发表于 2020-5-2 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281289&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-2 17:56</a>
+
+说起塔，在塔吧找到了张图，红圈他们说是Astel，那剩下的还有塔吗？</blockquote>
+隔六层的回复：
+
+图里应该是社长派阀，包含社长本人、铲弟（不破凑）和2000第四喜欢的黑客
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16344#       发表于 2020-5-2 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> no变态老哥这段话，结合你虹在冲国的情景，真是，，
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16345#       发表于 2020-5-2 21:05
+
+
+
+
+体感50人。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 16346#       发表于 2020-5-2 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉花谱演唱会卖得比难波追加还多一点
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 16347#       发表于 2020-5-2 21:09
+
+
+
+
+按照没有太多打钱的热度来算，最多300人还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 16348#       发表于 2020-5-2 21:10
+
+
+
+
+难波场都是老人卖的还比两国贵一倍。。。
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 16349#       发表于 2020-5-2 21:10
+
+
+
+
+我真的不明白为什么田角非得扒着难波追加场不放，这一场光看nico数据也没比其他场次强吧，真只能放一场不如放最吸金的福冈<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 16350#       发表于 2020-5-2 21:10
+
+
+
+
+葵的中文版上传批站了，两千记得看
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16351#       发表于 2020-5-2 21:11
+
+
+
+
+兔组下午那个肉重新发了，评论全部转火兔组心疼兔子。
+
+
+是你保护了兔子吗，人👆人？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16352#       发表于 2020-5-2 21:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过记得兔皇把她的无齿翼龙小队送去喂南巨的时候的确提过一嘴神 风，兔组拿这钓鱼，是真的想让兔子死
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 16353#       发表于 2020-5-2 21:17
+
+
+
+
+想到b吧之乱的炎之镇魂曲
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16354#       发表于 2020-5-2 21:21
+
+
+
+
+没有新衣服的女人同接怒杀另一个没有新衣服的女人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16355#       发表于 2020-5-2 21:23
+
+
+
+
+IN MY DREAM(Covered by レヴィ・エリファ)【歌ってみた /カバー】【にじさんじ/レヴィ・エリファ】
+[https://www.youtube.com/watch?v=EaMz2mwz6uM](https://www.youtube.com/watch?v=EaMz2mwz6uM)
+
+
+
+【オリジナルMV】胎生/ メリッサ・キンレンカ
+[https://www.youtube.com/watch?v=dlVWaAQZPag](https://www.youtube.com/watch?v=dlVWaAQZPag)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16356#       发表于 2020-5-2 21:30
+
+
+
+
+哈哈哈哈哈哈哈哈，管人粉丝真的太有意思了哈哈哈
+
+
+
+
+
+
+S00502-212813(1).jpg
+(9.63 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-2 21:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/212924frmilrm708r5x5l7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16357#       发表于 2020-5-2 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂气山脉结束了，最终同接3.3w 其实他如果能定期开wrwrd团的话sc能收到手软
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16358#       发表于 2020-5-2 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283524&amp;ptid=1924531" target="_blank">离心 发表于 2020-5-2 21:30</a>
+
+哈哈哈哈哈哈哈哈，管人粉丝真的太有意思了哈哈哈</blockquote>
+这不是你楼白金之星老哥么
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16359#       发表于 2020-5-2 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">什么玩意儿，有没有前情提要啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16360#       发表于 2020-5-2 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就打死了么，开局翻车，holo ark没救了
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 16361#       发表于 2020-5-2 21:33
+
+
+
+
+虹怎么倒霉了？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16362#       发表于 2020-5-2 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">melissa真棒啊，田角你基基德给她恰个星街位我立刻复活你🐎好吗好吗好吗好吗好吗好吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16363#       发表于 2020-5-2 21:35
+
+
+
+<blockquote>金魚佬 发表于 2020-5-2 21:31
+什么玩意儿，有没有前情提要啊</blockquote>
+http://bbs.nga.cn/read.php?tid=21578031
+
+名句在第四页
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16364#       发表于 2020-5-2 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283530&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-5-2 21:31</a>
+
+狂气山脉结束了，最终同接3.3w 其实他如果能定期开wrwrd团的话sc能收到手软 ...</blockquote>
+结果怎样？
+
+
+顺便这个模组网上没全文，这个模组的解密到底怎么发现啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16365#       发表于 2020-5-2 21:37
+
+
+
+
+叶子但凡播勤一点联动多一点，虹大人气男女cp就是双叶了，哪还有郡神红楚蟹的事。
+
+说到郡神，俄罗斯方块比赛这两人是一组，真的难顶。而且，不知道大家注意到没有，所有的大型社内活动都是有郡道无口了、有口了无郡道，ARK、麻将、喷喷、赛车、打字，全都没有！有点梦回隔壁卡黄那意思了
+
+
+
+
+
+
+EXA507uUEAEEgE0.jpg
+(1.11 MB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-5-2 21:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/213703izkehriy8iq9r6q6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16366#       发表于 2020-5-2 21:38
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-2 21:39 编辑 
+
+狂气山脉挺有名的啊，b站跑团replay都有好几个
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16367#       发表于 2020-5-2 21:38
+
+
+
+
+我都被特到啦，我说的有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16368#       发表于 2020-5-2 21:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/213931f8row8x8pk1xrkbw.png" referrerpolicy="no-referrer">
+
+
+<strong>(UKBAB~FCC6HMQZ{`Q@WU)U.png</strong> (11.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 21:39 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/213932oyzd32cuec16m1cm.png" referrerpolicy="no-referrer">
+
+
+<strong>R)VJA9YC1IY~]ZG%ADU0G.png</strong> (6.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 21:39 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 16369#       发表于 2020-5-2 21:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/214059hnpw84cn6els1v28.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXAxc9nU0AA2Ein.jpg</strong> (124.05 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-2 21:40 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/214105hbxtz32zsix92bcz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EOOhMqUUcAE-TW-.jpg</strong> (140 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-2 21:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16370#       发表于 2020-5-2 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283573&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-2 21:34</a>
+
+melissa真棒啊，田角你基基德给她恰个星街位我立刻复活你🐎好吗好吗好吗好吗好吗好吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer"> 3D排到哪里来着？，
+
+
+想插队？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 16371#       发表于 2020-5-2 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283598&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-5-2 21:37</a>
+
+叶子但凡播勤一点联动多一点，虹大人气男女cp就是双叶了，哪还有郡神红楚蟹的事。
+
+说到郡神，俄罗斯方块比 ...</blockquote>
+口了女士参加大型活动本来也不算多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，叶子什么时候从森林里出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16372#       发表于 2020-5-2 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283664&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-2 21:43</a>
+
+口了女士参加大型活动本来也不算多
+
+
+syl，叶子什么时候从森林里出来啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer"> 阿笹什么时候从rust里出来？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16373#       发表于 2020-5-2 21:46
+
+
+
+
+2000的RUST真的把我逗乐了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16374#       发表于 2020-5-2 21:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47283588&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-5-2 21:36</a>
+结果怎样？
+
+
+顺便这个模组网上没全文，这个模组的解密到底怎么发现啊</blockquote>
+PC死了一个NPC死了一个，相当好的结局了
+
+まだら牛的booth有个免费版的pdf，只看狂气山脉的话下那个文档就行，而且这个模组也没解密就是在上山下山啊
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 16375#       发表于 2020-5-2 21:46
+
+
+
+
+叶：“我以前过的就是一天到晚打游戏的生活，现在只不过是从自己一个人打游戏变成了把打游戏播出来而已，不如说当V后打游戏的时间还少了两个小时”
+
+“我一辈子都不会引退，大概叶子、葛叶、葵都是这样”
+
+“我身边基本上没有抱着使命感直播的人”
+
+
+插flag也就算了，rrm没啥交集也就算了，sakuyui……
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16376#       发表于 2020-5-2 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 葵皇还有俩月两周年纪念，，，到时候又是单人纪念，真的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16377#       发表于 2020-5-2 21:46
+
+
+
+<blockquote>star_platinum 发表于 2020-5-2 21:38
+我都被特到啦，我说的有问题吗</blockquote>
+嗯，没有，说的真棒
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 16378#       发表于 2020-5-2 21:50
+
+
+
+
+叶子两周年都不出来直个播联个动，说实话我有点急了(。
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 16379#       发表于 2020-5-2 21:52
+
+
+
+
+我也好想看叶子播啊……那来点叶え葉<img src="https://p.sda1.dev/0/0e0abd306d2df6bf02a0178405d1d676/IMG_90DB9766BADF8E9E7E812DE2803E0499.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16380#       发表于 2020-5-2 21:53
+
+
+
+
+今晚批限的撞了lpl决赛也太惨了点 说起来有S赛决赛的同接数据吗
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 16381#       发表于 2020-5-2 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47282572&amp;ptid=1924531" target="_blank">free 发表于 2020-5-2 19:49</a>
+
+https://www.youtube.com/watch?v=9MCwWcFpWfw
+
+【歌枠】GWだし、歌います。【アーカイブ残りません】#葵の ...</blockquote>
+真好听  一个小时一会就过去了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+大葵这家用的模型真的有够强··
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 16382#       发表于 2020-5-2 21:56
+
+
+
+<blockquote>poipanchao 发表于 2020-5-2 21:41
+</blockquote>
+真gamer
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 16383#       发表于 2020-5-2 21:57
+
+
+
+
+来点，现在连pubg都算过时游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/02/215603o6u4hhkvdwhkmcd5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>DsslQreUUAIQvMS.jpg</strong> (927.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 21:56 上传
+
+
+
+
+
+<img src="https://pbs.twimg.com/media/D5z5RR9UwAcDTwa?format=jpg&amp;name=large" height="1000" id="aimg_qsxMc" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16384#       发表于 2020-5-2 22:00
+
+
+
+
+快顶不住要睡觉了......不过今天想想这木口COMI的事，播到stars居然没掉太多同接倒也不意外，毕竟像那位店长全肯定bot的字幕组成员说的一样，有店长在嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+不过你们今天这么奶我是真的怕了就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至于stars命运的节点是哪个？“万籁俱寂的雪之日”，我的直觉我的梦境都是这样告诉我的，看看今年冬季这个日子会不会到来吧
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 16385#       发表于 2020-5-2 22:06
+
+
+
+
+大葵的歌回不留档吗···<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+   
