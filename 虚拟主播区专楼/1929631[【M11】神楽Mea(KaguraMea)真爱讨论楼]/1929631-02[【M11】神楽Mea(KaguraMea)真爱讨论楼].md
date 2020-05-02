@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 14:08** 
+> ## **本文件最后更新于2020-05-02 18:08** 
 
 
 
@@ -11625,4 +11625,1251 @@ syl
 
 
 
-                            
+
+
+-----
+
+####  weiweiEX  
+##### 2133#       发表于 2020-5-2 14:10
+
+
+
+
+棉花糖
+<img src="https://p.sda1.dev/0/031fa4f182becf4ee96868e470141be0/-67da51d5aeed749e.png" referrerpolicy="no-referrer">
+
+syl感觉不太可能公开那个饺子3d，她自己的3d都还没放出来，肯定不会先放别的3d啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2134#       发表于 2020-5-2 14:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就不能是新麻照的公布吗
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2135#       发表于 2020-5-2 14:34
+
+
+
+
+怎么还觉得麻能建箱，我麻了，怕不是建完箱当个影子leader
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2136#       发表于 2020-5-2 14:37
+
+
+
+
+b限的直播排班也发了，只有45两天，看来晚上的告知基本上可以排除黄金周直播预定的告知了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2137#       发表于 2020-5-2 14:47
+
+
+
+
+这么早就要说了吗...dokidoki...明明说好等不干了再说的，这么着急...
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2138#       发表于 2020-5-2 14:53
+
+
+
+
+P2发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 2139#       发表于 2020-5-2 16:33
+
+
+
+
+meaquaLOL P2的mea姊怎麼了，一直在沒話找話。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+就算不想冷場，直接罵糞遊戲(或者隊友)更符合她的人設吧
+
+還有幾段裝作低齡兒叭噗叭噗，像智障一樣。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2140#       发表于 2020-5-2 16:35
+
+
+
+
+偶尔会有的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2141#       发表于 2020-5-2 16:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+是这个意思
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2142#       发表于 2020-5-2 16:43
+
+
+
+
+去年lol联动就一起模仿五岁卖萌，这不是大家喜闻乐见的糖吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2143#       发表于 2020-5-2 16:45
+
+
+
+
+五岁rp不好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，我看挺好的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2144#       发表于 2020-5-2 17:00
+
+
+
+
+总要给凛子创造说话。哦不、张嘴的机会啊，喷游喷队友实质单人直播你让小凜在一旁多尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2145#       发表于 2020-5-2 17:01
+
+
+
+
+呜呜呜明明别人5岁rp都不会被骂zz，给38岁老阿姨一些尊重好么，气抖冷
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2146#       发表于 2020-5-2 17:10
+
+
+
+
+咩姐在直播间评论区大量发言了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2147#       发表于 2020-5-2 17:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/171114o5dyocf50o93q5ll.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (80.05 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 17:11 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/171128yqliptoen8tjvzbj.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (63.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 17:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 2148#       发表于 2020-5-2 17:12
+
+
+
+
+讲道理，咩组和如月组这更新频率完全还好吧，被些人说得好像半个月更新一个3分钟烤肉一样
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 2149#       发表于 2020-5-2 17:15
+
+
+
+
+点进去怎么变成英文刷屏了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2150#       发表于 2020-5-2 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47280832&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-2 17:12</a></blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么像是把棉花糖的问题复制出来了一样
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2151#       发表于 2020-5-2 17:17
+
+
+
+
+有趣的管人观众在哪啊
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 2152#       发表于 2020-5-2 17:20
+
+
+
+
+你咩吃到holo的鬼佬箱推假说成真了？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2153#       发表于 2020-5-2 17:21
+
+
+
+
+你咩姐有个英文海盗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2154#       发表于 2020-5-2 17:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/171918jdullaaxzkxiajyx.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (75.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 17:19 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/171932xidkk3fgsz0osrx5.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (78.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 17:19 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/171942srerd57qrq6cz1wq.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (73.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 17:19 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/171949oz2kz22hwo6o5wk2.png" referrerpolicy="no-referrer">
+
+
+<strong>4.png</strong> (76.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 17:19 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">留一下截图，看会不会触发“不安desu”
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2155#       发表于 2020-5-2 17:22
+
+
+
+
+前段时间mea的两块英文海盗还挺活跃的，记得视频播放量也不低，会吸引到一些外国佬也挺正常
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2156#       发表于 2020-5-2 17:23
+
+
+
+
+我不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2157#       发表于 2020-5-2 17:23
+
+
+
+
+我不安desu了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2158#       发表于 2020-5-2 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47280948&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-2 17:21</a>
+留一下截图，看会不会触发“不安desu”</blockquote>
+其实我比较好奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谈到18年时经常有人说你mea姐被抽象话刷屏，那会我没入坑，刷的是有多少啊，mea的反应是什么样啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2159#       发表于 2020-5-2 17:25
+
+
+
+
+那会我确实被恶心到了，都是些真小鬼
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2160#       发表于 2020-5-2 17:27
+
+
+
+
+那时候刷的老多了，连版聊都不是，大段的复制粘贴复制粘贴<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2161#       发表于 2020-5-2 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47280983&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-2 17:25</a>
+那会我确实被恶心到了，都是些真小鬼</blockquote>
+不过狗妈一个不安desu说出来能被念叨这么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你mea姐真要说出来估计只会被搞得更凶，这么反过来看倒说明你mea姐没对这些抽象话有什么很激烈的反应？
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 2162#       发表于 2020-5-2 17:27
+
+
+
+
+能把她逼得给记者一个房管，你说有多猖狂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2163#       发表于 2020-5-2 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">去找找当时的熟肉or生肉评论区有多少遮挡不就知道了，不过当时你咩姐不算火，刷的大概没刷大亏哥的多吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐的反应自然是无视啦，然后直接拉了记者当房管，应该是幕后沟通过8
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2164#       发表于 2020-5-2 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281012&amp;ptid=1929631" target="_blank">ReinH 发表于 2020-5-2 17:27</a>
+能把她逼得给记者一个房管，你说有多猖狂</blockquote>
+给记者房管是挺晚的时候了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是19年的事来着
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 2165#       发表于 2020-5-2 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281032&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 17:29</a>
+给记者房管是挺晚的时候了吧是不是19年的事来着</blockquote>
+给记者房管是18年12月26日收益化纪念直播的事情
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|那会的记忆模糊了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2166#       发表于 2020-5-2 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281026&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-2 17:28</a>
+去找找当时的熟肉or生肉评论区有多少遮挡不就知道了，不过当时你咩姐不算火，刷的大概没刷大亏哥的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没经历那会的时代实在很难想象
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2167#       发表于 2020-5-2 17:41
+
+
+
+<blockquote>如月可由莉 发表于 2020-5-2 17:12
+讲道理，咩组和如月组这更新频率完全还好吧，被些人说得好像半个月更新一个3分钟烤肉一样 ...</blockquote>
+我的意思是咩组居然和新成立的如月组更新频率差不多，更**内容都有pv、短剪辑、全熟
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2168#       发表于 2020-5-2 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281011&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 17:27</a>
+不过狗妈一个不安desu说出来能被念叨这么久你mea姐真要说出来估计只会被搞得更凶，这么反过来看倒 ...</blockquote>
+她又不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那会赵丹抽象版聊都有，看起来烦的一匹
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2169#       发表于 2020-5-2 17:44
+
+
+
+
+不少现在说着“多大点事”“你们眼里有梁木”的人，大多没经历过那个时代
+
+嘴巴没打到自己脸上，最爱劝人大度。我都怕站一块儿，雷劈下来波及到我
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2170#       发表于 2020-5-2 17:45
+
+
+
+
+之前补18年熟肉和录像的时候，稍微留意一下评论栏都会发现不少中文内容，咩姐这个房管确实该有
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2171#       发表于 2020-5-2 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时的战场和现在的又不是同一个，你把当时那些anti复活然后让它们穿越到现在，一样是会被喷出屎的
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2172#       发表于 2020-5-2 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281170&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-05-02 17:44:25</a>
+不少现在说着“多大点事”“你们眼里有梁木”的人，大多没经历过那个时代
+
+嘴巴没打到自己脸上，最爱劝人大 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是19年入坑的么，经历了个鸡儿
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2173#       发表于 2020-5-2 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281148&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-2 17:41</a>
+她又不懂
+那会赵丹抽象版聊都有，看起来烦的一匹</blockquote>
+正因为不懂才好奇她的反应啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2174#       发表于 2020-5-2 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281188&amp;ptid=1929631" target="_blank">M829A4 发表于 2020-5-2 17:46</a>
+
+你不是19年入坑的么，经历了个鸡儿
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+我是个锤子19年入坑的，你认错人了吧啥b
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 2175#       发表于 2020-5-2 17:48
+
+
+
+ 本帖最后由 如月可由莉 于 2020-5-2 17:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281147&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-2 17:41</a>
+
+我的意思是咩组居然和新成立的如月组更新频率差不多，更**内容都有pv、短剪辑、全熟 ...</blockquote>
+那你在B站随便点开一个还在活动的字幕组几乎都是这个“差不多”的频率以及比这个频率还低的，我不否认有些字幕组更新频率确实是高，但是想开团可不可以不要找些比“字幕组又光速烤贴贴肉了该杀”这种rz话说服力还低的东西来开团
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2176#       发表于 2020-5-2 17:50
+
+
+
+
+这点破事就别开团了
+
+官组最近干的还算不错了，相比起千里夜雨殉爆的时候，好了不止一个阶层了。
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 2177#       发表于 2020-5-2 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当时我也是刷的人之一，不过那时候我还是她的ANTI。现在看看还挺愧疚的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2178#       发表于 2020-5-2 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281201&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-5-2 17:48</a>
+我是个锤子19年入坑的，你认错人了吧啥b</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说咱俩没呆过同一个QQ群时也是这样的反应，
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2179#       发表于 2020-5-2 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281191&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 17:47</a>
+正因为不懂才好奇她的反应啊</blockquote>
+就不搭理呗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，毕竟一开始就打算恶心的是看直播会中文的人啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2180#       发表于 2020-5-2 17:52
+
+
+
+
+话说那个修恋是真的上古王国民吗？
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2181#       发表于 2020-5-2 17:53
+
+
+
+
+那时候大火儿多少沾点抽象梗和六字母，没办法，你不能超出历史背景去看问题。
+
+只能说都当过啥b
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2182#       发表于 2020-5-2 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281238&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-05-02 17:52:28</a>
+话说那个修恋是真的上古王国民吗？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">亡国民还能有这么高的贴贴热情？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2183#       发表于 2020-5-2 17:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺手烤了几块肉的挖掘机罢了，国内就没几个亡国民
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2184#       发表于 2020-5-2 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281236&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-2 17:52</a>
+就不搭理呗，毕竟一开始就打算恶心的是看直播会中文的人啊</blockquote>
+纯anti才会抱着不恶心你也要恶心你观众的心态活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为刷这个的是是单纯找乐子的玩梗小鬼
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2185#       发表于 2020-5-2 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281231&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 17:52</a>
+
+草你说咱俩没呆过同一个QQ群时也是这样的反应，</blockquote>
+谁让我确实对你没印象呢
+
+不过如此确信地说我19年入坑的，可能脑子多少沾点
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2186#       发表于 2020-5-2 17:56
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-2 18:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281280&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-5-2 17:55</a>
+谁让我确实对你没印象呢
+
+不过如此确信地说我19年入坑的，可能脑子多少沾点 ...</blockquote>
+单纯回想起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前每次提到QQ群的事，你还说你从不加QQ群来着
+
+算了不跟你争了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但愿你以后别让人那么容易产生即视感
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2187#       发表于 2020-5-2 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47281295&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 17:56</a>
+
+单纯回想起来以前每次提到QQ群的事，你还说你从不加QQ群来着</blockquote>
+确实啊，516的时候我把跟管人有关的群全都退了。就那么一个群还已经不是管人群了，你想想看你还见过哪个跟管人有关的地方出现了这个群的人
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2188#       发表于 2020-5-2 18:00
+
+
+
+ 本帖最后由 路人庚 于 2020-5-2 18:02 编辑 
+
+手游废人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/02/180048dohrydv1et1obo1t.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (39.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 18:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/180206txmnqbdpd2m8n6dx.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (38.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 18:02 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/02/180210ivuvww8sstb9vuvn.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (36.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-2 18:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2189#       发表于 2020-5-2 18:01
+
+
+
+
+我知道的王国民已经退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2190#       发表于 2020-5-2 18:01
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-2 17:52
+话说那个修恋是真的上古王国民吗？</blockquote>
+めあ國民还差不多。看300楼不少离谱挖掘就应该知道挖掘热情高的基本不是王国民了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2191#       发表于 2020-5-2 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来那么多亡国民还能被目击到退坑的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2192#       发表于 2020-5-2 18:03
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2193#       发表于 2020-5-2 18:03
+
+
+
+
+哪还有王国民能看到今天啊，那不得憋屈死
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2194#       发表于 2020-5-2 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前两天推上不还有一个么
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2195#       发表于 2020-5-2 18:05
+
+
+
+
+虽然没看过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲猜一下，小麻的同接估计也就几十人吧，再跨越海洋匀到中国，全中国加一块这才能匀到几个啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2196#       发表于 2020-5-2 18:07
+
+
+
+
+看来告知是直播预告了
+
+
+
+
+
+                          
