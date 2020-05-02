@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-02 08:06** 
+> ## **本文件最后更新于2020-05-02 14:08** 
 
 
 
@@ -8677,9 +8677,10 @@ mea貌似还没祝贺如月1w粉，这个b啊<img src="https://static.saraba1st.
 
 
 
+ 本帖最后由 若风之景 于 2020-5-2 08:28 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47271334&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-1 17:26</a>
 谁不喜欢组长呢</blockquote>
-+1
++1，黄兔子的路线确实在有些时候比苔苔观感好一些
 
 —— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
@@ -10603,4 +10604,1025 @@ bcr没更新到这呢
 
 
 
-                              
+
+
+-----
+
+####  シオン诗音  
+##### 2073#       发表于 2020-5-2 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47275666&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-02 06:09:30</a></blockquote>感觉和很多日本其他的同人作品一样，只要你不去问，小范围内（重点）做了也就做了，但是如果去问一般情况是要不到什么“官方授权”的
+PS.那个毛绒玩偶不也最终没联系上要授权么，小批量的粉丝向的做了就做了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2074#       发表于 2020-5-2 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276571&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-2 09:47</a>
+感觉和很多日本其他的同人作品一样，只要你不去问，小范围内（重点）做了也就做了，但是如果去问一般情况是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日本这规则覆盖的面还真是广
+
+
+
+
+
+
+
+-----
+
+####  青叶假司  
+##### 2075#       发表于 2020-5-2 11:05
+
+
+
+
+阿咩赎身吧，跟着阿b这个加速带师我总有不好的预感<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2076#       发表于 2020-5-2 11:08
+
+
+
+
+事到如今你想走就走，我阿b是这么好欺负的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+你一小小个人势，没我能有今天<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+bls演唱会还要不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2077#       发表于 2020-5-2 11:10
+
+
+
+
+bls演唱会有没有还说不准呢(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2078#       发表于 2020-5-2 11:13
+
+
+
+
+要被吃干抹净了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 2079#       发表于 2020-5-2 11:14
+
+
+
+
+不可能没有，阿b白字黑字承诺了我还截图保存了的，今年它要是不兑现，烧不死它，它连这种都能耍赖的话它别想有一点点公信力了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 2080#       发表于 2020-5-2 11:17
+
+
+
+
+ps：实在不行只有去阿b门口拉屎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2081#       发表于 2020-5-2 11:18
+
+
+
+
+草，不跟着b走去哪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过mea还挺佛系的，现在也不缺钱了，估计十有八九跟张大仙差不多，大不了等签约到期了想去哪就去哪呗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2082#       发表于 2020-5-2 11:22
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-2 11:24 编辑 
+
+你麻这70多万的体量说实话她已经撑不起来这场子了，只要能不要再出幺蛾子，其他要求真不高，阿b随便赏你麻一口饭吃或者稍微指点运营都要好很多的，放平心态吧
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 2083#       发表于 2020-5-2 11:30
+
+
+
+
+就日本今年这样，搞聚集性活动真的好么？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 2084#       发表于 2020-5-2 11:43
+
+
+
+
+国内除了阿b还能去哪里？离开了阿b只有凉的更彻底而已，别妄想啦，老老实实抱稳阿b大腿吧，如果今年日本情况确实一直不适合搞演唱会录制的话，阿b也会出个公告啥的解释一下吧，直接啥都不说就鸽了就只有炎上他了，证据我都还留着呢
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2085#       发表于 2020-5-2 11:46
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-2 11:47 编辑 
+
+呜呜呜麻麻要被压榨价值了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+要吃豆芽菜了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2086#       发表于 2020-5-2 11:49
+
+
+
+
+要被x
+
+正被√
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2087#       发表于 2020-5-2 11:49
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-2 11:52 编辑 
+
+阿b不兑现bls的话没法办第二次割韭菜活动的，毕竟这么多人盯着，大家都不傻。
+
+所以你看阿b不是搞了个直播日历，用月冠军挂版头来另类斗虫了吗。
+
+说归说，国内大家都绕不开阿b的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2088#       发表于 2020-5-2 11:51
+
+
+
+
+这么说我越来越怀疑六字母联动是阿b要求的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2089#       发表于 2020-5-2 11:54
+
+
+
+
+那只是为你讨厌一件事找个借口而已，就和咩anti说咩来b限都是为了割韭菜一样。
+事实如何根本不重要，起码对这么想的人不重要
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2090#       发表于 2020-5-2 11:58
+
+
+
+
+来B限：割韭菜
+
+不来B限：不尊重中国人
+
+来的少：只是定期打卡罢了
+
+来的多：本土混不下去只能来中国混饭
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2091#       发表于 2020-5-2 12:02
+
+
+
+
+说起来直到昨天在暗黑贴贴楼差点上头和crew打架才意识到来泥潭真的被种了很多夸皇的梁木，都怪mk2<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2092#       发表于 2020-5-2 12:03
+
+
+
+
+论迹不论心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+我现在只想看414p2熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2093#       发表于 2020-5-2 12:04
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-5-2 12:06 编辑 
+
+我一年前就这么想了。至少有啊b的干涉（商讨建议）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2094#       发表于 2020-5-2 12:06
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-2 12:12 编辑 
+
+又车要回来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一见到meaqua就高潮，对meaqua热情比对mea都大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是黑暗贴贴人的明显特征
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2095#       发表于 2020-5-2 12:09
+
+
+
+
+无聊看了看其他vtb的官号，发现如月组的更新频率和咩组差不多，看来这个组是真的没什么热情了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2096#       发表于 2020-5-2 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">五月那么多联动不车，非要车meaqua，你们是不是只看meaqua啊（暴论）
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 2097#       发表于 2020-5-2 12:10
+
+
+
+
+万物一转官组，绕了他们吧。下午可能要突击睡一觉等mea不好么？非要楼里嚼嚼屁？
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2098#       发表于 2020-5-2 12:10
+
+
+
+
+车字幕组滴神要来惹
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2099#       发表于 2020-5-2 12:10
+
+
+
+
+啊，又是这个，你们饶了夸宝好不好，我夸只想打游戏赚点钱，她那脑袋哪能想那么多。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 2100#       发表于 2020-5-2 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47277873&amp;ptid=1929631" target="_blank">草牛 发表于 2020-5-2 12:10</a>
+五月那么多联动不车，非要车meaqua，你们是不是只看meaqua啊（暴论）</blockquote>
+可以多来点弼羊温
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2101#       发表于 2020-5-2 12:12
+
+
+
+
+可是之前两场憋尿打块也就那么回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+只能期待v骚了
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2102#       发表于 2020-5-2 12:13
+
+
+
+
+其实我觉得mea和组长更搭
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2103#       发表于 2020-5-2 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47277857&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-2 12:09</a>
+
+无聊看了看其他vtb的官号，发现如月组的更新频率和咩组差不多，看来这个组是真的没什么热情了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次都是你，这么喜欢拉屎出去开个字幕组楼好不好啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2104#       发表于 2020-5-2 12:14
+
+
+
+
+组长的企划力一直都是可以的，v骚值得期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2105#       发表于 2020-5-2 12:15
+
+
+
+
+跟信姬打块那场我感觉还挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">星街那场因为对其他vtb都不太感冒就没啥比较深的感觉了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2106#       发表于 2020-5-2 12:15
+
+
+
+<blockquote>JY要塞 发表于 2020-5-2 12:13
+每次都是你，这么喜欢拉屎出去开个字幕组楼好不好啊</blockquote>
+翻关注列表的时候顺便对比了一下，打扰你们的心情了，今天或明天会播纪念回和恐怖游戏回，期待
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2107#       发表于 2020-5-2 12:18
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-2 12:15
+跟信姬打块那场我感觉还挺好的星街那场因为对其他vtb都不太感冒就没啥比较深的感觉了 ...</blockquote>
+星街那场咩姐没啥存在感，我现在也就记得开场模仿喝几次被犬山/夏哥叫了后才连说几句话，还有一次第二的悲鸣
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2108#       发表于 2020-5-2 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47277957&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-2 12:18</a>
+星街那场咩姐没啥存在感，我现在也就记得开场模仿喝几次被犬山/夏哥叫了后才连说几句话，还有一次第二的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也没啥她说话的印象
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2109#       发表于 2020-5-2 12:24
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-2 12:20
+我也没啥她说话的印象</blockquote>
+后面打块有点不行了话才多起来的，经典单线程
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2110#       发表于 2020-5-2 12:26
+
+
+
+
+奶一口，下午必有一播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2111#       发表于 2020-5-2 12:27
+
+
+
+
+那场除了让她喝了杯坏水外确实不出彩，最近身体上的麻烦有点多啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2112#       发表于 2020-5-2 12:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">今天播吧今天播吧今天播吧
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2113#       发表于 2020-5-2 12:34
+
+
+
+
+要播就早点播，还要看春决呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2114#       发表于 2020-5-2 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276905&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-2 10:22</a>
+
+日本这规则覆盖的面还真是广</blockquote>
+回复怎么syl啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+总之我感觉大部分同人作品都是这个调调，你情我愿就你好我好，真纠起版权什么的估计一地鸡毛，所以不太多想这方面
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2115#       发表于 2020-5-2 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47278130&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-2 12:35</a>
+回复怎么syl啊
+
+总之我感觉大部分同人作品都是这个调调，你情我愿就你好我好，真纠起版权什么的估 ...</blockquote>
+直接点编辑就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2116#       发表于 2020-5-2 13:23
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-5-2 13:26 编辑 
+
+动了，回复犬山pcr抽卡推才发现咩姐推特头图还没换
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2117#       发表于 2020-5-2 13:31
+
+
+
+
+今晚6点直播15w纪念回
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2118#       发表于 2020-5-2 13:32
+
+
+
+
+有告知，噔噔咚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2119#       发表于 2020-5-2 13:32
+
+
+
+
+恐怖游戏直播？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2120#       发表于 2020-5-2 13:34
+
+
+
+
+说的挺随便的，感觉不会是什么很重要的告知
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2121#       发表于 2020-5-2 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下注了 哪方面的告知  新衣服、3d方面/联动方面/饭盒之类的内容更新方面/黄金周直播预告/神乐组线下聚会（？？）/其他
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2122#       发表于 2020-5-2 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47278674&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-2 13:37</a>
+下注了 哪方面的告知  新衣服、3d方面/联动方面/饭盒之类的内容更新方面/黄金周直播预告/神乐组线下 ...</blockquote>
+结果是神乐组第四人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2123#       发表于 2020-5-2 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2124#       发表于 2020-5-2 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">四人打麻将，五人LOL
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2125#       发表于 2020-5-2 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47278693&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-2 13:38</a>
+不是，前面的都没稳定下来呢，第四人要来干嘛啊……结合最近的直播，这是强行凑一桌麻将吗 ...</blockquote>
+我是想起收益化回来的那次直播，冷不丁放了个noe出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要说其他的话，她自己频道搞得多人联动也是有可能的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2126#       发表于 2020-5-2 13:44
+
+
+
+
+再来人我就要脑补你麻有建箱食彩虹吞杏的野望了
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2127#       发表于 2020-5-2 13:48
+
+
+
+
+你平常干什么
+
+-吃饭，睡觉，打麻酱
+
+
+你平常干什么
+
+-吃饭，睡觉，打麻酱
+
+
+你平常干什么
+
+-吃饭，睡觉
+
+为什么不打麻酱
+
+-因为我就是麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2128#       发表于 2020-5-2 13:51
+
+
+
+
+不是这神乐组到底只是关系好引流还是真要搞pro啊......我开始怀疑了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2129#       发表于 2020-5-2 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有告知的图不是昨天就贴了，为什么才开始讨论
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2130#       发表于 2020-5-2 13:53
+
+
+
+
+还没播呢怎么就跟神乐组有关了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2131#       发表于 2020-5-2 13:55
+
+
+
+
+我们都不看mea的
+syl
+麻酱被抓到了把柄，现在只是小绿小紫的傀儡<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 2132#       发表于 2020-5-2 14:05
+
+
+
+
+我觉得应该是五一期间的直播计划+fanbox新内容或者音声<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">或者那个草莓皮肤模型正式公布？
+
+
+
+
+
+                            

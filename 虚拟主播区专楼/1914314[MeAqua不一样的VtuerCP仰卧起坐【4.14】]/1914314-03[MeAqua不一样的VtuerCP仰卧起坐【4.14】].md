@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 00:02** 
+> ## **本文件最后更新于2020-05-02 14:01** 
 
 
 
@@ -11259,4 +11259,381 @@ b.没准备企划
 
 
 
-                             
+
+
+-----
+
+####  Cuppco  
+##### 3612#       发表于 2020-5-1 00:09
+
+
+
+
+其实我个人觉得可能日本人真的不太吃这cp
+你比如国人互相看俩樱花妹咋咋唬唬觉得很好玩，人日本人又不一定喜欢
+既然本土人不喜欢那还非在**开不是给自己找不自在
+这种情况选择在b开不是双赢
+说白了主播服务粉丝，那有选择有对口的放松内容也不能算有毛病吧
+不然非得恶心本土盘才算“真物”我觉得也没啥意义
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 3613#       发表于 2020-5-1 00:16
+
+
+
+
+为什么夸哥在**很少播lol，是不是因为夸哥其实不喜欢玩lol，都是演给冲国粉丝看的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3614#       发表于 2020-5-1 00:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+有kpi就是好事
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3615#       发表于 2020-5-1 00:39
+
+
+
+
+kpi good！
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3616#       发表于 2020-5-1 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47265079&amp;ptid=1914314" target="_blank">fromsaitama 发表于 2020-5-1 00:16</a>
+
+为什么夸哥在**很少播lol，是不是因为夸哥其实不喜欢玩lol，都是演给冲国粉丝看的 ...</blockquote>
+v分两种，一种是mea和狗狗这样我自己先爽了，在我爽的前提下让观众爽，一切以自己为首发考虑。阿夸和三期生开始则是另一种以服务观众为目的，避免一切掉粉的可能性，以涨粉和高同接为第一目的。就像前段时间那个恐怖游戏，holo几乎人人都打一遍卡也太功利了，哪有这么多女人喜欢玩恐怖游戏的，ark也差不多有几个人明眼都看的出来不是特别想玩。当然大部分人肯定喜欢第二种，毕竟大部分人觉得你老老实实服务观众就好了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3617#       发表于 2020-5-1 00:45
+
+
+
+
+看到联动消息就来你楼找车轱辘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来这药可以啊，V版连卓明谷都超了
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 3618#       发表于 2020-5-1 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47265341&amp;ptid=1914314" target="_blank">cgz 发表于 2020-5-1 00:40</a>
+
+v分两种，一种是mea和狗狗这样我自己先爽了，在我爽的前提下让观众爽，一切以自己为首发考虑。阿夸和三期 ...</blockquote>
+你说的我很认同但我就是单纯在阴阳怪气上边的人而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3619#       发表于 2020-5-1 01:41
+
+
+
+
+许久不逛v区，你楼虽然换了不少面孔但还是熟悉的味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是传承吧
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3620#       发表于 2020-5-1 01:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">有点难受，泥潭能不能不封mk2了，一封了mk2meaqua联动就会跑出来。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3621#       发表于 2020-5-1 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47265872&amp;ptid=1914314" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-1 01:43</a>
+有点难受，泥潭能不能不封mk2了，一封了mk2meaqua联动就会跑出来。</blockquote>
+草，封了mk2顶多贴贴楼浮上来，不封mk2除了这楼你可能会看到新的黑屁贴贴楼，总量上来说本版贴贴含量还是增加了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3622#       发表于 2020-5-1 08:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盲狙一个一起看二创
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3623#       发表于 2020-5-1 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267040&amp;ptid=1914314" target="_blank">ColdAir 发表于 2020-5-1 08:39</a>
+盲狙一个一起看二创</blockquote>
+希望meaqua一起看西西咪咪二创。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3624#       发表于 2020-5-1 10:16
+
+
+
+
+草， 放过西西吧
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 3625#       发表于 2020-5-1 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47265872&amp;ptid=1914314" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-1 01:43</a>
+
+有点难受，泥潭能不能不封mk2了，一封了mk2meaqua联动就会跑出来。</blockquote>
+原来mk2是meaqua的人柱力吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3626#       发表于 2020-5-1 17:09
+
+
+
+
+说起来mk2还没转生吗（
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 3627#       发表于 2020-5-1 17:23
+
+
+
+
+不要lol，不要兔子人，不要雀魂。。
+来点逃脱升天，奥德赛
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 3628#       发表于 2020-5-2 12:09
+
+
+
+
+不要游戏，来点杂谈，不要neeemoooo，来点互动
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3629#       发表于 2020-5-2 12:31
+
+
+
+
+要咖啡厅2直说好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我觉得是真的流产了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+holo运营biss嗷<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3630#       发表于 2020-5-2 12:32
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-2 12:36 编辑 
+
+我也觉得流产了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要不大亏再罢一回工让YAGOO以礼来降？ <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3631#       发表于 2020-5-2 12:45
+
+
+
+
+说到底日本死宅为什么就不看meaqua呢，明明那么好看
+<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3632#       发表于 2020-5-2 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47267603&amp;ptid=1914314" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-1 10:13</a>
+希望meaqua一起看西西咪咪二创。</blockquote>
+西西已经是过去的女人了，要看就看最cool最in的夸粥3月线下啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+https://b23.tv/CNzyHF
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3633#       发表于 2020-5-2 12:52
+
+
+
+
+哈哈哈哈六字母一起看夸粥线下加上羊舞相亲搞起来
+
+
+
+
+
+                            
