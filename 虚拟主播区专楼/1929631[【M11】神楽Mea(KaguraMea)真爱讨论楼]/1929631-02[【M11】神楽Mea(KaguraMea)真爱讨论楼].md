@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 22:08** 
+> ## **本文件最后更新于2020-05-02 08:06** 
 
 
 
@@ -3320,10 +3320,11 @@ crew的原因容易猜到，主要是亏那边好像咩粉也不待见啊<img sr
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 减分之加| + 1||
 | 素人不相识| + 1|有点kimo，但也是我希望的我的理想状态.|
 
 
@@ -10259,4 +10260,347 @@ p箱也不说着玩玩而已
 
 
 
-                               
+
+
+-----
+
+####  魔法使い2019  
+##### 2053#       发表于 2020-5-1 22:08
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-1 22:11 编辑 
+
+我第n次后悔没学信息安全相关
+
+不过并不晚， 只要我们两个还活着， 就还不晚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2054#       发表于 2020-5-1 22:12
+
+
+
+ 本帖最后由 呓亘 于 2020-5-1 22:18 编辑 
+
+也不知道她在电脑上装的什么杀毒软件，千万别嫌麻烦不开启Windows defender啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2055#       发表于 2020-5-1 22:17
+
+
+
+
+一群老害<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2056#       发表于 2020-5-1 23:01
+
+
+
+
+麻：gachi果然好恶心<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2057#       发表于 2020-5-1 23:19
+
+
+
+
+建议打入line和discord母公司内部）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2058#       发表于 2020-5-1 23:24
+
+
+
+
+errr
+
+
+据我所知， 这种通讯软件服务器一般是作为记录对象ip地址的中间人
+
+
+信息是直接发到对方那里的
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2059#       发表于 2020-5-1 23:25
+
+
+
+
+那不就像某个老男人干过的事，连干事也要车轱辘吗
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2060#       发表于 2020-5-1 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打入推特内部也行，图肯定会在服务器的某个角落里
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 2061#       发表于 2020-5-1 23:28
+
+
+
+
+《日漂寻麻记》
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2062#       发表于 2020-5-1 23:28
+
+
+
+
+新的两期pcr打不动啊，这王之力也去的太快了
+你麻药丸
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2063#       发表于 2020-5-1 23:29
+
+
+
+
+bcr没更新到这呢
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 2064#       发表于 2020-5-1 23:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">删了也没用，额头已经刻进DNA了
+
+话说小紫这自拍狂魔要删的话工程量怕是有点大
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 2065#       发表于 2020-5-1 23:46
+
+
+
+
+这东西喊路人尝个鲜就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且这两天本来整体V的播放量就不行，关了这么久放假全跑出去玩了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 2066#       发表于 2020-5-2 00:18
+
+
+
+
+在歌姬吧眼到了奇怪的东西，你圈会不会要难受一点了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2067#       发表于 2020-5-2 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47274869&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-5-2 00:18</a>
+在歌姬吧眼到了奇怪的东西，你圈会不会要难受一点了
+
+  -- 来自 能看大图的 Stage1官方 Android客户 ...</blockquote>
+不要谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2068#       发表于 2020-5-2 00:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">批站绩效考核的事？谁知道呢
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2069#       发表于 2020-5-2 01:30
+
+
+
+
+是指这个帖子吗：[https://tieba.baidu.com/p/6654971367](https://tieba.baidu.com/p/6654971367)
+
+[摘录自1楼]由于Bilibili直播区负责人的更换为大鹅文化的前CEO及COO，Bilibili五月份直播区签约主播新增N个考核维度，其中直播间人气值考核作为其中一项，所以不是单个直播间要求高人气值的问题，是全部的签约主播都有人气值考核压力。
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 2070#       发表于 2020-5-2 02:25
+
+
+
+ 本帖最后由 単推し人 于 2020-5-2 02:29 编辑 
+
+人气值不用担心吧，b限歌回的人气值一直很高的，哪次打钱多点都可以上百万的（当然，这是在考核取最高值的情况下）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2071#       发表于 2020-5-2 06:09
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-2 06:10 编辑 
+
+美好的一天，从早睡早起开始
+
+话说在推特上看到这个，之前也看到有国人做类似的东西，这种需要授权之类的吗
+<img src="https://p.sda1.dev/0/9349aedef0f742237a4c6684bc033bdb/IMG_23B7296EB552911B52C121A1414FD2F7.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2072#       发表于 2020-5-2 06:30
+
+
+
+
+莫名其妙又通宵了，然而咩没播，亏了，今天大概要被献祭<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
