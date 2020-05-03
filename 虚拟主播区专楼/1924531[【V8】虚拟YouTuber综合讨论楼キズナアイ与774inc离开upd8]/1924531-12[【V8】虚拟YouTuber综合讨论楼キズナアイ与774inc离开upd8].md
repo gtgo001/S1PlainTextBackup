@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 12:04** 
+> ## **本文件最后更新于2020-05-03 14:05** 
 
 
 
@@ -677,7 +677,7 @@ holo摇458w已超遗作，封面似乎固定成首发的ayame了
 
 
 Screenshot_20200503_093629_tv.danmaku.bili.jpg
-(39.9 KB, 下载次数: 1)
+(39.9 KB, 下载次数: 2)
 
 
 
@@ -999,7 +999,7 @@ holo摇458w已超遗作，封面似乎固定成首发的ayame了</blockquote>
 <img src="https://img.saraba1st.com/forum/202005/03/111147nykq0kytktko0ykj.png" referrerpolicy="no-referrer">
 
 
-<strong>IY_`96~2`GY68]${NB8)0J5.png</strong> (356.78 KB, 下载次数: 2)
+<strong>IY_`96~2`GY68]${NB8)0J5.png</strong> (356.78 KB, 下载次数: 4)
 
 下载附件
 
@@ -1548,4 +1548,1177 @@ YACA IN DA HOUSEによる楽曲「IFIF」をnyankobrqくんとsomuniaちゃん�
 
 
 
-                                               
+
+
+-----
+
+####  cheatdeath3  
+##### 16584#       发表于 2020-5-3 12:05
+
+
+
+
+梅球王的直播吸订阅效率全社第一
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16585#       发表于 2020-5-3 12:16
+
+
+
+
+没有纠纷、单纯毕业是无所谓的，下位毕业就更无所谓了
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 16586#       发表于 2020-5-3 12:21
+
+
+
+
+波羅ノ鬼的新mv 20w播放了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16587#       发表于 2020-5-3 12:21
+
+
+
+
+？？？？？？
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/122139dm7jsi8ma7sajiir.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200503122038.png</strong> (26.85 KB, 下载次数: 3)
+
+下载附件
+
+2020-5-3 12:21 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 16588#       发表于 2020-5-3 12:23
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16589#       发表于 2020-5-3 12:24
+
+
+
+
+smjbwy
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16590#       发表于 2020-5-3 12:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，这什么鬼，谁在乱传。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16591#       发表于 2020-5-3 12:26
+
+
+
+
+造谣一张嘴.jpg
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 16592#       发表于 2020-5-3 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">这又是什么新型操作，癔病还是整活哦
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16593#       发表于 2020-5-3 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16594#       发表于 2020-5-3 12:29
+
+
+
+
+帝都魔导城风评被害
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16595#       发表于 2020-5-3 12:30
+
+
+
+
+原来那些人眼里的字幕组是这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16596#       发表于 2020-5-3 12:37
+
+
+
+
+字幕组军阀割据<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16597#       发表于 2020-5-3 12:39
+
+
+
+
+这是中二病又犯了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16598#       发表于 2020-5-3 12:40
+
+
+
+
+常常觉得和日本hape格格不入.jpg
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16599#       发表于 2020-5-3 12:42
+
+
+
+
+日式特色中二hape<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16600#       发表于 2020-5-3 12:43
+
+
+
+
+军阀割据来了，和这种霓虹人思想走不到一起去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 16601#       发表于 2020-5-3 12:43
+
+
+
+
+军阀就算了，怎么还搞地域的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16602#       发表于 2020-5-3 12:44
+
+
+
+
+学好中文啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 16603#       发表于 2020-5-3 12:45
+
+
+
+
+日式军阀中二还行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 16604#       发表于 2020-5-3 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有极道划地而治内味了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16605#       发表于 2020-5-3 12:46
+
+
+
+
+人上人从业员说不定还在搞垂帘听政呢，大家彼此彼此<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 16606#       发表于 2020-5-3 12:47
+
+
+
+
+怎么随便点进去肥希又要吃鸡了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16607#       发表于 2020-5-3 12:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">夏哥好强，6杀千伤带妹吃鸡
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16608#       发表于 2020-5-3 12:50
+
+
+
+
+懂了 阿希练好apex就能带妹贴贴了 怪不得这么强
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16609#       发表于 2020-5-3 12:51
+
+
+
+
+但是她们又要转去玩喷射了啊，惨 夏哥 惨。
+
+其实towa也练了一周的apex想要联动带妹233.
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16610#       发表于 2020-5-3 12:53
+
+
+
+
+小肥妹晚上不也要死喷？说不定又能走在时代前端。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16611#       发表于 2020-5-3 12:55
+
+
+
+
+小肥妹不会处理人际的话在木口到头还是个工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕是apex职业选手也是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16612#       发表于 2020-5-3 12:57
+
+
+
+[https://www.youtube.com/watch?v=V4wysLsl9Zc](https://www.youtube.com/watch?v=V4wysLsl9Zc)
+
+差不多5:00起
+
+V综不来讨论下安洁被粉丝特定住所的事么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16613#       发表于 2020-5-3 13:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小肥妹练apex不是为了舔不到的那个人吗，可惜舔不到就是舔不到。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16614#       发表于 2020-5-3 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288314&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-3 13:00</a>
+小肥妹练apex不是为了舔不到的那个人吗，可惜舔不到就是舔不到。</blockquote>
+那是段位不够高 小肥妹要是个宗师 那位不得来嗯舔
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16615#       发表于 2020-5-3 13:01
+
+
+
+ 本帖最后由 stedckk 于 2020-5-3 13:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288299&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-3 12:57</a>
+[https://www.youtube.com/watch?v=V4wysLsl9Zc](https://www.youtube.com/watch?v=V4wysLsl9Zc)
+
+差不多5:00起
+
+V综不来讨论下安洁被粉丝特定住所的事么[f:009 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">怎么虹liver老被粉丝特定住所啊，这么搞还怎么安心直播。
+
+
+syl
+
+怎么特到住处的？
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 16616#       发表于 2020-5-3 13:03
+
+
+
+
+得搬家了吧。
+
+还好是个耿直的脑子不正常粉丝不是啥阴湿跟踪狂当然这种想法只能说是稍微往好想法想了，正常人就不该去做这种到住址特定还去堵门的事<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16617#       发表于 2020-5-3 13:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">然后为了搬家两个月不播，这就是粉丝希望看到的吗。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16618#       发表于 2020-5-3 13:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288332&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-3 13:01</a>
+怎么虹liver老被粉丝特定住所啊，这么搞还怎么安心直播。
+
+
+syl</blockquote>
+方法挺多的，不过像这种不发家里环境照片的liver一般靠背景音来特定，比如呼啸而过的救护车或者警车。另外就是靠liver不小心说漏嘴的周边情报。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 16619#       发表于 2020-5-3 13:12
+
+
+
+
+安洁这种更像是美团小哥接单了发现是她
+也说了是常点外卖了一段时间，接了几次单被粉丝确认了吧
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16620#       发表于 2020-5-3 13:12
+
+
+
+
+突然手被抓住<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这种粉丝能把偶像给吓死，也不知道是什么脑回路。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16621#       发表于 2020-5-3 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288389&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-5-3 13:08</a>
+
+方法挺多的，不过像这种不发家里环境照片的liver一般靠背景音来特定，比如呼啸而过的救护车或者警车。另 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">还记得看过一个新闻有个日本偶像因为眼珠倒影被特定的，这些人都可以去做侦探了吧。。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16622#       发表于 2020-5-3 13:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">404评论区也在讨论是不是uber eats的配送员
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 16623#       发表于 2020-5-3 13:15
+
+
+
+
+可怕
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16624#       发表于 2020-5-3 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288412&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-3 13:13</a>
+
+还记得看过一个新闻有个日本偶像因为眼珠倒影被特定的，这些人都可以去做侦探了吧。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">鹦鹉哥被特定住所就是因为一张拍直播环境的照片拍到窗外风景+通过直播时的列车背景音用列车的时间表直接推算出位置来
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16625#       发表于 2020-5-3 13:18
+
+
+
+
+为什么都是彩虹的liver被特定住址
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16626#       发表于 2020-5-3 13:18
+
+
+
+
+这与其说适合当侦探不如去当警察<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 16627#       发表于 2020-5-3 13:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然现在圣皇各种数据都没办法争第一，但是好歹holo官方还是把她和狐空放在一起当看板娘的，好歹地位还是有保证了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16628#       发表于 2020-5-3 13:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">可怕
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 16629#       发表于 2020-5-3 13:22
+
+
+
+
+悠太先生都被特定了几次了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16630#       发表于 2020-5-3 13:22
+
+
+
+ 本帖最后由 stedckk 于 2020-5-3 13:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">夏哥又吃鸡了
+
+
+syl
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mrr来了之后天天被小肥妹硬舔，现在打游戏又被带着吃鸡，收入还比以前高。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16631#       发表于 2020-5-3 13:23
+
+
+
+
+也许放一起只是因为这三个新衣服最少呢
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 16632#       发表于 2020-5-3 13:25
+
+
+
+ 本帖最后由 贝伦二世 于 2020-5-3 13:32 编辑 
+
+记得是要搞社内apex大赛的？
+
+原来搞不起来
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16633#       发表于 2020-5-3 13:26
+
+
+
+
+这些社会的渣子可不会对自己“关心”的事物之外的东西产生动力，指望垃圾做侦探和警察真的是太高估他们了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16634#       发表于 2020-5-3 13:28
+
+
+
+
+那能看见阿希拿着克雷贝尔一**崩了阿夸的头吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16635#       发表于 2020-5-3 13:29
+
+
+
+
+搞不了大赛吧，哪有权限，职业选手都没。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16636#       发表于 2020-5-3 13:30
+
+
+
+ 本帖最后由 面具13 于 2020-5-3 13:31 编辑 
+
+sora我记得衣服挺多啊。狐狸新衣服虽说质量不太行，也不能直接忽略啊，何况三方会谈还在说新jk制服的事情。阿夸的第一套新常服就一句，がおう很忙，在画了，再等等，得等多久也说不好。
+
+syl，阿夸提过想组织apex社内比赛这件事，运营说受条件所限弄不起来。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16637#       发表于 2020-5-3 13:32
+
+
+
+
+apex大赛这个要找ea商量，估计没戏吧
+这点上还是pubg懂
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 16638#       发表于 2020-5-3 13:33
+
+
+
+ 本帖最后由 ete 于 2020-5-3 13:38 编辑 
+
+mio明天18时b限
+
+yagoo你还藏了几只牛
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 16639#       发表于 2020-5-3 13:34
+
+
+
+
+安洁被特到了？
+报警了吗<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 16640#       发表于 2020-5-3 13:40
+
+
+
+
+问一下 混ぜ郎是不是774啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16641#       发表于 2020-5-3 13:41
+
+
+
+
+我也想知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16642#       发表于 2020-5-3 13:42
+
+
+
+
+你们说夏哥带妹很强，我就去看了一下，刚进去就看到两梭子未中一**，被灭队<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 16643#       发表于 2020-5-3 13:43
+
+
+
+
+虽然大家都想知道，但为啥要在这个楼问啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 16644#       发表于 2020-5-3 13:43
+
+
+
+
+按安洁配信时说的，虽然突然被抓住手很kimo但没有比这更出格的事情即使报警也很难指望警察能做什么吧，我觉得这种情况还是搬家比较好吧，听上去有点吓人
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16645#       发表于 2020-5-3 13:45
+
+
+
+
+还好那人没发疯到更进一步<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16646#       发表于 2020-5-3 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发挥总有好有坏的嘛，就算大天使也时常白给啊，刚刚面对三四队围攻夏哥打了一千伤害算可以了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16647#       发表于 2020-5-3 13:48
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-3 13:54 编辑 
+
+叶最近b博发的挺多的啊，怎么就不考虑过来捞钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+难道跟妹子打apex比赚钱还香吗
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16648#       发表于 2020-5-3 13:48
+
+
+
+
+搬家有可能因为搬家公司的车继续特定到新住址吗？
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 16649#       发表于 2020-5-3 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288565&amp;ptid=1924531" target="_blank">ete 发表于 2020-5-3 13:33</a>
+
+mio明天18时b限
+
+yagoo你还藏了几只牛</blockquote>
+果然还是来唱歌了。歌回不仅能发挥出自己的特长，还能促进观众打钱，上次玩大鹅模拟器效果挺一般的。
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 16650#       发表于 2020-5-3 13:51
+
+
+
+ 本帖最后由 NBXX 于 2020-5-3 13:52 编辑 
+
+[https://twitter.com/rurudo_/status/1256817837479346176](https://twitter.com/rurudo_/status/1256817837479346176)<blockquote>rurudo
+
+@rurudo_
+
+後ほどお絵かき配信やるかもです🍩できればアーカイブが残せるyoutubeでやりたいが配信方法があんまりわからんので無理そうだったらsketchで…</blockquote>
+———————————
+
+要出道了吗（
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16651#       发表于 2020-5-3 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288685&amp;ptid=1924531" target="_blank">NBXX 发表于 2020-5-3 13:51</a>
+
+https://twitter.com/rurudo_/status/1256817837479346176
+
+———————————
+
+要出道了吗（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">支持出道
+
+
+
+
+
+                                            
