@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 20:07** 
+> ## **本文件最后更新于2020-05-03 22:09** 
 
 
 
@@ -19858,4 +19858,1712 @@ I'm not just cute
 
 
 
-             
+
+
+-----
+
+####  Dualist彩  
+##### 2598#       发表于 2020-5-3 20:07
+
+
+
+
+麻味十足
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2599#       发表于 2020-5-3 20:08
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-3 20:13 编辑 
+
+这不是挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过是因为调子太轻快了太甜吗，感觉很难给人回味的印象
+
+
+说的没错啊，确实有黄油OP那味
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 2600#       发表于 2020-5-3 20:08
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-5-3 20:11 编辑 
+
+好听，是谁说黄油op的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+凑个5、6曲就可以出专玩一玩了 我买！
+
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2601#       发表于 2020-5-3 20:08
+
+
+
+
+我麻了，麻死了。听着挺gal的，还行。
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2602#       发表于 2020-5-3 20:08
+
+
+
+
+前方只有黄油歌手的未来
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2603#       发表于 2020-5-3 20:08
+
+
+
+
+I'm a not just cute!
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2604#       发表于 2020-5-3 20:09
+
+
+
+
+不愧是她，曲子很有她的风味
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2605#       发表于 2020-5-3 20:09
+
+
+
+
+挺像gal曲的，还是那种很日常的gal。
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2606#       发表于 2020-5-3 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">偶像梦在MV里实现
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2607#       发表于 2020-5-3 20:10
+
+
+
+
+你麻想做萌音之神，怎么都想着她唱苦情歌的，你们怎么回事
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2608#       发表于 2020-5-3 20:10
+
+
+
+
+她衣服的露出度终于上升了（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2609#       发表于 2020-5-3 20:11
+
+
+
+
+对哦，你麻这次衣服露肉了，幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2610#       发表于 2020-5-3 20:12
+
+
+
+
+唔，竟然露了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2611#       发表于 2020-5-3 20:12
+
+
+
+
+不说露出度了，草莓果酱那张是正面还看不出来，这次是侧面，奶子是真的大
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2612#       发表于 2020-5-3 20:12
+
+
+
+
+露出度逐渐上升的套路？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2613#       发表于 2020-5-3 20:13
+
+
+
+
+我还以为我打开哪个尘封已久的GAL然后挂后台忘记所以自动播OP了
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 2614#       发表于 2020-5-3 20:13
+
+
+
+
+这首好很多
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2615#       发表于 2020-5-3 20:14
+
+
+
+
+等等这词不会是她自己写的吧
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2616#       发表于 2020-5-3 20:14
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-5-3 20:19 编辑 
+
+我还是喜欢听快歌，你们去试试1.25倍速，完全没有违和感。很gal。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|开了倍速，更加带感|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2617#       发表于 2020-5-3 20:15
+
+
+
+
+好像在哪说过原创曲作者是个bba
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2618#       发表于 2020-5-3 20:15
+
+
+
+
+那肯定就是说的她自己了（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2619#       发表于 2020-5-3 20:16
+
+
+
+ 本帖最后由 惑星 于 2020-5-3 20:19 编辑 
+
+草，听麻将妹的去开了倍速，一歌两听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我听的1.25版本
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古战场亡魂| + 1|我听得也是1.25倍版本。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 2620#       发表于 2020-5-3 20:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">专辑名，麻风爱豆卡古拉？
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 2621#       发表于 2020-5-3 20:18
+
+
+
+
+麻了麻了现在的个人专辑一般都是一张碟两首歌啊，可以出专辑了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2622#       发表于 2020-5-3 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">确实1.5没违和感
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2623#       发表于 2020-5-3 20:18
+
+
+
+
+惊了，放快了还真能听（虽然我觉得1.25刚好，1.5有点失真）
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2624#       发表于 2020-5-3 20:19
+
+
+
+
+这次歌曲画的mea欧派真大，i了i了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2625#       发表于 2020-5-3 20:19
+
+
+
+
+1.25倍速刚好+1 歌词和调子都能听清
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2626#       发表于 2020-5-3 20:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">1.25倍这不是TV动画OP的feel吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2627#       发表于 2020-5-3 20:20
+
+
+
+
+我打错了，应该是1.25倍。<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，不过1.5倍也还行。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2628#       发表于 2020-5-3 20:20
+
+
+
+
+麻了麻了，是她自己作词作曲的吧
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2629#       发表于 2020-5-3 20:20
+
+
+
+
+等一个彩虹战队专辑
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 2630#       发表于 2020-5-3 20:21
+
+
+
+
+1.25感觉曲子有点快，词倒是正好的感觉
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2631#       发表于 2020-5-3 20:22
+
+
+
+
+第三首原创可以整首苦情歌🐎
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2632#       发表于 2020-5-3 20:22
+
+
+
+<blockquote>Sanguine 发表于 2020-5-3 20:20
+麻了麻了，是她自己作词作曲的吧</blockquote>
+词曲还是上次那个人，之前还有人怀疑是774马甲，和混郎一样
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2633#       发表于 2020-5-3 20:23
+
+
+
+
+等她的衣服转到冷色系应该就行了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2634#       发表于 2020-5-3 20:23
+
+
+
+
+等卡面转到cool系就有了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2635#       发表于 2020-5-3 20:23
+
+
+
+
+什么鬼， 作曲不是樱花姨吗
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2636#       发表于 2020-5-3 20:23
+
+
+
+
+不是写了词曲编是 よし江 吗。。
+
+这首我寻思不是和第一首一样的甜吗（不过这鼓怎么混这么大
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2637#       发表于 2020-5-3 20:25
+
+
+
+
+I'm a not just cute是什么鬼
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2638#       发表于 2020-5-3 20:26
+
+
+
+
+smile是草莓果酱、pure是菠萝果酱、等cool的蓝莓果酱
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2639#       发表于 2020-5-3 20:26
+
+
+
+
+神TM，你们说了半天露肉，我又倒回去翻看，期望找到什么一闪而过的南半球或者肚脐之类的差分立绘，结果也没露啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+就大腿？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2640#       发表于 2020-5-3 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">万物皆可774，你说内混ぜ郎是774我还有点信
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2641#       发表于 2020-5-3 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再看觉得太亮了点
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2642#       发表于 2020-5-3 20:27
+
+
+
+
+我摊牌了其实我也是774
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2643#       发表于 2020-5-3 20:27
+
+
+
+<blockquote>时雨rain 发表于 2020-5-3 20:26
+万物皆可774，你说内混ぜ郎是774我还有点信</blockquote>
+之前看楼里有人说的。。。好像还有点道理？
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2644#       发表于 2020-5-3 20:28
+
+
+
+
+我也被他们骗了，就露了个胳膊和腿<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2645#       发表于 2020-5-3 20:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292159&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-5-3 20:26</a>
+
+神TM，你们说了半天露肉，我又倒回去翻看，期望找到什么一闪而过的南半球或者肚脐之类的差分立绘，结果也没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">今天露腿，明天指不定就露胸了呢，人，一定要有梦想
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2646#       发表于 2020-5-3 20:28
+
+
+
+
+我也以为是露侧乳了呢，就这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，yysy曲子还行。但我更想听苦情歌（是不是等到六字母闹翻之后会有呢）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2647#       发表于 2020-5-3 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">486能不能把草莓果酱换了啊，内已经是过去的女人了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2648#       发表于 2020-5-3 20:30
+
+
+
+
+原创曲子两首都慢悠悠，希望还是来点中速苦情歌或者高音快歌。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2649#       发表于 2020-5-3 20:30
+
+
+
+
+老年人念旧，是这样的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2650#       发表于 2020-5-3 20:30
+
+
+
+
+人写的无名氏胡乱猜猜就算了，不是无名氏就别乱猜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl，扪心自问，你咩姐漏过腿吗，漏过吗，漏过吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2651#       发表于 2020-5-3 20:30
+
+
+
+
+不过那个好大啊，我现在对3d期待又多了一分啊<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2652#       发表于 2020-5-3 20:31
+
+
+
+
+【TwitterUser 神楽めあ 数据改变】 键：user_location 原值：社会的地位最底辺女のツイッターです 现值：男ならエスコートして当たり前 是第二句歌词
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2653#       发表于 2020-5-3 20:32
+
+
+
+
+顶多就草莓＋军服吧。怎么可能再送你菠萝的？mea一个小主播，给这个钱不如给其他吸金个人势？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2654#       发表于 2020-5-3 20:33
+
+
+
+
+确实可爱～
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 2655#       发表于 2020-5-3 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292197&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-3 20:30</a>
+
+486能不能把草莓果酱换了啊，内已经是过去的女人了</blockquote>
+已经换了，就是你坛刷新头像要一点时间
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2656#       发表于 2020-5-3 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292027&amp;ptid=1929631" target="_blank">古战场亡魂 发表于 2020-5-3 20:14</a>
+我还是喜欢听快歌，你们去试试1.25倍速，完全没有违和感。很gal。</blockquote>
+谢啦～
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2657#       发表于 2020-5-3 20:34
+
+
+
+
+饭盒二连
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2658#       发表于 2020-5-3 20:35
+
+
+
+
+咩姐这个原创曲很早就开始准备了，勤奋啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2659#       发表于 2020-5-3 20:38
+
+
+
+
+反正774都是个连声都没出的马甲，现在不怕告诉楼友了，其实我也是774
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2660#       发表于 2020-5-3 20:39
+
+
+
+ 本帖最后由 若风之景 于 2020-5-3 21:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292299&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-3 20:38</a>
+反正774都是个连声都没出的马甲，现在不怕告诉楼友了，其实我也是774</blockquote>
++1，钓，就硬钓
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2661#       发表于 2020-5-3 20:41
+
+
+
+
+谁都可以是774，又或者谁都不是^^
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2662#       发表于 2020-5-3 20:41
+
+
+
+
+774是一个有774人在其中的吃桃组织，什么，我也在其中？那没事了
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 2663#       发表于 2020-5-3 20:44
+
+
+
+
+上次原创曲不就说了是个老太太吗，还774么呢
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2664#       发表于 2020-5-3 20:44
+
+
+
+
+我能不能当714？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2665#       发表于 2020-5-3 20:44
+
+
+
+
+现在，我们都是774了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2666#       发表于 2020-5-3 20:45
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：24：00からちょっと空けといて；ｖ：
+媒体：[]
+链接：[]
+时间：2020-05-03 12:40:49 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1256926686790074369
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2667#       发表于 2020-5-3 20:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292373&amp;ptid=1929631" target="_blank">千木唯 发表于 2020-5-3 20:44</a>
+上次原创曲不就说了是个老太太吗，还774么呢</blockquote>
+按一些人的想法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要mea身边不露面的，就跟那个混什么郎一样，都是774
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2668#       发表于 2020-5-3 20:49
+
+
+
+<blockquote>千木唯 发表于 2020-5-3 20:44
+上次原创曲不就说了是个老太太吗，还774么呢</blockquote>
+我看好像是有人去哪个网站搜了一下，但不是说以前作的曲子和现在差别比较大吗？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2669#       发表于 2020-5-3 20:52
+
+
+
+ 本帖最后由 惑星 于 2020-5-3 20:53 编辑 
+
+歌回还行
+
+补个图
+
+id81265286
+
+<img src="https://img.saraba1st.com/forum/202005/03/205200s09y9ig9s93yfzju.png" referrerpolicy="no-referrer">
+
+
+<strong>@J13~SLNNPM`BJ{AHNH_J4T.png</strong> (762.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-3 20:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2670#       发表于 2020-5-3 20:52
+
+
+
+
+叫よし江的可太多了，你一定要坚持“她肯定是在骗人，那个よし江肯定是774的马甲”那谁也没办法
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2671#       发表于 2020-5-3 20:52
+
+
+
+
+她肯定是在骗人，那个よし江肯定是坛友的马甲
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2672#       发表于 2020-5-3 20:53
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-3 20:56 编辑 
+
+同名的人的曲风和现在差别有点大，所以她就成了774<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+说实话出个曲子就有傻逼在那mix，774的我已经想直球骂娘很久了 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+想当774gachi就赶紧特定去，都死了一年了害搁这招魂招魂，吐了。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2673#       发表于 2020-5-3 20:54
+
+
+
+
+好像有bug了，我每次刷新回复都不一样，好像会缺字
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 2674#       发表于 2020-5-3 20:56
+
+
+
+
+那个什么江好像能搜到个脸书而且内容全和音乐有关的。而且还真是个老太婆
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2675#       发表于 2020-5-3 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这完全就是偶像服啊，后面还保留了大缎带，设计的挺不错
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2676#       发表于 2020-5-3 20:58
+
+
+
+
+咩咩的偶像梦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2677#       发表于 2020-5-3 20:58
+
+
+
+
+睿叔叔可以再给咩阿安排一件3D服吗？bls可以搞成像初音演唱会那样的唱几首曲子就换个装的形式吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2678#       发表于 2020-5-3 20:59
+
+
+
+ 本帖最后由 2014720 于 2020-5-3 21:00 编辑 
+
+她要是再没机会说清楚774这烂梗真是永远过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+希望蝾叔叔能懂点<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2679#       发表于 2020-5-3 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292544&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-3 20:58</a>
+睿叔叔可以再给咩阿安排一件3D服吗？bls可以搞成像初音演唱会那样的唱几首曲子就换个装的形式吗？ ...</blockquote>
+一个原创曲一个3d<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2680#       发表于 2020-5-3 21:01
+
+
+
+
+她现在怎么说清楚？当初就提了那么一下240都影响那么大。提个774，怕不是又要变天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2681#       发表于 2020-5-3 21:03
+
+
+
+<blockquote>专业划水人员 发表于 2020-5-3 20:56
+那个什么江好像能搜到个脸书而且内容全和音乐有关的。而且还真是个老太婆 ...</blockquote>
+我记得当初楼里也说的是脸书首页看到的，但是曲风差别大（老太太写gal曲总觉得不大对）
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2682#       发表于 2020-5-3 21:05
+
+
+
+
+众所周知，年纪比她大的女人一律会被称作bba
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2683#       发表于 2020-5-3 21:06
+
+
+
+
+我只是觉得你咩姐请了一群人忙活了那么长时间，和人家合作也挺愉快的，唐突把功劳扔给774实在不妥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 2684#       发表于 2020-5-3 21:08
+
+
+
+<blockquote>Leutnant某囧 发表于 2020-5-3 21:03
+我记得当初楼里也说的是脸书首页看到的，但是曲风差别大（老太太写gal曲总觉得不大对） ...</blockquote>
+她自己草莓果酱就说过作曲是个老太婆。。。。可能性比较高。而且说是老太婆实际上应该是中年人。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2685#       发表于 2020-5-3 21:09
+
+
+
+
+老太婆又不一定多老，她看见苔苔说不定也觉得是老太婆
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 2686#       发表于 2020-5-3 21:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292594&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-3 21:03</a>
+
+我记得当初楼里也说的是脸书首页看到的，但是曲风差别大（老太太写gal曲总觉得不大对） ...</blockquote>
+那人有推特 大概不是那个
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2687#       发表于 2020-5-3 21:11
+
+
+
+<blockquote>专业划水人员 发表于 2020-5-3 21:08
+她自己草莓果酱就说过作曲是个老太婆。。。。可能性比较高。而且说是老太婆实际上应该是中年人。 ...</blockquote>
+这样吗，反正咩姐有稳定合作对象是好事，作曲和mix的水平都在线
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2688#       发表于 2020-5-3 21:15
+
+
+
+
+不过说起来mea是白发，配上黄色这样比较柔和的颜色感觉有点太腻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">形象上我是比较喜欢上次的白配红的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2689#       发表于 2020-5-3 21:27
+
+
+
+
+确实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怪不得我这次看曲绘感觉怪怪的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2690#       发表于 2020-5-3 21:31
+
+
+
+
+挺符合你麻性格的。图片摘自“天邪鬼”维基百科词条
+
+
+sly 我挺喜欢你麻这次服装的色调的，对我来说，要是裙子和袜子不是蓝色而是薄荷绿就完美了
+
+
+
+
+
+
+
+TIM截图20200503212821.bmp
+(1.51 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-3 21:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/212936u7nzx6n7j9mxfnk1.bmp" id="aimg_672833" onclick="zoom(this, this.src, 0, 0, 0)" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 2691#       发表于 2020-5-3 21:31
+
+
+
+
+阿b要是能给这个也弄个3d我就是批小将了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2692#       发表于 2020-5-3 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292896&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-3 21:31</a>
+挺符合你麻性格的。图片摘自“天邪鬼”维基百科词条
+
+
+sly 我挺喜欢你麻这次服装的色调的，对我来说，要是裙 ...</blockquote>
+确实是这样，但我更喜欢蓝白搭配
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2693#       发表于 2020-5-3 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292896&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-3 21:31</a>
+
+挺符合你麻性格的。图片摘自“天邪鬼”维基百科词条
+
+
+sly 我挺喜欢你麻这次服装的色调的，对我来说，要是裙 ...</blockquote>
+那就变成几乎一模一样的斧乃木余接了啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 2694#       发表于 2020-5-3 21:36
+
+
+
+
+果然天邪鬼就是这个
+
+我第一反应看到曲名就觉得是“天之弱”
+
+
+
+
+
+          
