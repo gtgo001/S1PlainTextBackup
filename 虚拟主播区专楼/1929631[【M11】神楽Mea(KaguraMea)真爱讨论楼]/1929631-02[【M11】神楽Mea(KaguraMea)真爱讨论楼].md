@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 18:07** 
+> ## **本文件最后更新于2020-05-03 20:07** 
 
 
 
@@ -18384,4 +18384,1478 @@ bsyl盲猜一个よし江
 
 
 
-                
+
+
+-----
+
+####  the_cook  
+##### 2510#       发表于 2020-5-3 18:07
+
+
+
+
+说实在的
+
+她这种懒得动脑又全程动不动就尖叫的搞恐怖游戏实况效果是真的差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2511#       发表于 2020-5-3 18:08
+
+
+
+
+恐怖游戏lei了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2512#       发表于 2020-5-3 18:08
+
+
+
+
+太害怕了结果啥都不敢动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2513#       发表于 2020-5-3 18:09
+
+
+
+
+看这人播恐怖游戏对耳朵不好
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2514#       发表于 2020-5-3 18:10
+
+
+
+
+自己怕观众看得效果不好还强行要搞
+
+
+奇怪的执念.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2515#       发表于 2020-5-3 18:11
+
+
+
+
+变得可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺好的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2516#       发表于 2020-5-3 18:11
+
+
+
+
+声音好听，阿咩🉑
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2517#       发表于 2020-5-3 18:12
+
+
+
+
+这样吼一小时明天还能唱吗<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2518#       发表于 2020-5-3 18:13
+
+
+
+
+没看画面听个响，还挺热闹的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2519#       发表于 2020-5-3 18:13
+
+
+
+
+和往常一样，只是更勇敢了一点
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2520#       发表于 2020-5-3 18:15
+
+
+
+
+这游戏怎么是郭敬明视角
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2521#       发表于 2020-5-3 18:17
+
+
+
+
+吓哭了（吗？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2522#       发表于 2020-5-3 18:18
+
+
+
+
+看到了什么
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2523#       发表于 2020-5-3 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290783&amp;ptid=1929631" target="_blank">若风之景 发表于 2020-5-3 18:13</a>
+和往常一样，只是更勇敢了一点
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+收回前言
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2524#       发表于 2020-5-3 18:18
+
+
+
+
+啥都没，听个响就秒退了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2525#       发表于 2020-5-3 18:21
+
+
+
+
+传统艺能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2526#       发表于 2020-5-3 18:21
+
+
+
+ 本帖最后由 IrisL 于 2020-5-3 18:23 编辑 
+
+又开始踱步了 她玩了这么多恐怖游戏我都没见过鬼长什么样
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2527#       发表于 2020-5-3 18:22
+
+
+
+
+主播太弱智了， 关了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2528#       发表于 2020-5-3 18:23
+
+
+
+
+拖，就硬拖<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2529#       发表于 2020-5-3 18:23
+
+
+
+
+吵死了！（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2530#       发表于 2020-5-3 18:23
+
+
+
+
+难顶，宁愿玩游戏的是我
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2531#       发表于 2020-5-3 18:24
+
+
+
+<blockquote>惑星 发表于 2020-5-3 18:23
+难顶，宁愿玩游戏的是我</blockquote>
+这也能用dota梗吗。。。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2532#       发表于 2020-5-3 18:24
+
+
+
+
+难顶，宁愿里面的鬼事我
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2533#       发表于 2020-5-3 18:26
+
+
+
+
+叫声hso
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2534#       发表于 2020-5-3 18:28
+
+
+
+
+恐怖游戏帮大忙了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2535#       发表于 2020-5-3 18:29
+
+
+
+
+这时在玩吃鸡？
+
+LYB守门？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2536#       发表于 2020-5-3 18:31
+
+
+
+
+刚才发生了什么
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2537#       发表于 2020-5-3 18:31
+
+
+
+
+被裸男干死了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2538#       发表于 2020-5-3 18:35
+
+
+
+
+纪念回玩恐怖游戏这个行为已经超过恐怖游戏本身了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+看着真头疼
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2539#       发表于 2020-5-3 18:37
+
+
+
+
+一直在清喉咙啊，有点担心嗓子了，明天还唱歌呢......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2540#       发表于 2020-5-3 18:43
+
+
+
+ 本帖最后由 素人不相识 于 2020-5-3 18:46 编辑 
+
+所以我一直搞不懂为什么有那么多人期待她玩恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（而且大多恐怖游戏本来就没什么意思，既没有游戏性，也没有好的故事或内涵）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2541#       发表于 2020-5-3 18:43
+
+
+
+
+有那么多人期待吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2542#       发表于 2020-5-3 18:45
+
+
+
+
+咱以后就不整这了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2543#       发表于 2020-5-3 18:45
+
+
+
+
+草，这段她在说个锤子，好活
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2544#       发表于 2020-5-3 18:45
+
+
+
+
+你楼不能当代表，据我了解大部分人看主播玩恐怖游戏，特别是这种不怎么打游戏的主播，都是出于猎奇心理来看尖叫的，你们这群看内容的当然理解不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2545#       发表于 2020-5-3 18:47
+
+
+
+
+全自动尖叫机器真的好玩吗……没鬼也在叫
+
+
+她录一段自己的尖叫循环播放不就得了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2546#       发表于 2020-5-3 18:47
+
+
+
+
+wdnmd我耳朵没了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2547#       发表于 2020-5-3 18:50
+
+
+
+
+这裸男还穿模了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2548#       发表于 2020-5-3 18:52
+
+
+
+
+你麻营造恐怖气氛有一手，硬是给我看怕了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2549#       发表于 2020-5-3 18:53
+
+
+
+
+灵魂抉择
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2550#       发表于 2020-5-3 18:54
+
+
+
+
+别人玩游戏是有弹幕在假高能。这人直播是主播在全程假高能。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2551#       发表于 2020-5-3 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47291115&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-3 18:52</a>
+你麻营造恐怖气氛有一手，硬是给我看怕了</blockquote>
+是的
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2552#       发表于 2020-5-3 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼佬表示没见过叫得这么恐怖的，建议加大力度剪辑，木口海外进出引来的鬼佬咱也吸吸
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2553#       发表于 2020-5-3 18:56
+
+
+
+
+这裸男怎么回事？ dv？ 
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 2554#       发表于 2020-5-3 18:56
+
+
+
+
+难道不都是来看吃瘪的咩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2555#       发表于 2020-5-3 18:57
+
+
+
+
+这裸男什么棍法
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2556#       发表于 2020-5-3 18:58
+
+
+
+
+这裸男也太蠢了吧这是扭秧歌吗
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2557#       发表于 2020-5-3 18:58
+
+
+
+
+还是游戏不行，换个稍微有钱点的恐怖游戏比如死亡空间或者寂静岭啥的，还不愁没有效果？偏偏找这种低成本连个提示都没有的小游戏，看得头都晕了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2558#       发表于 2020-5-3 18:59
+
+
+
+
+主要还是她被气氛镇住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">压根不敢动
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2559#       发表于 2020-5-3 18:59
+
+
+
+
+就不能玩subnautical吗？ 
+
+
+龙皇比yhm强多了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2560#       发表于 2020-5-3 18:59
+
+
+
+
+你咩敢玩寂静岭吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2561#       发表于 2020-5-3 18:59
+
+
+
+
+那些游戏效果太好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2562#       发表于 2020-5-3 19:00
+
+
+
+
+这种垃圾小成本独立游戏还会吓得到人也算是有了存在意义
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 2563#       发表于 2020-5-3 19:00
+
+
+
+
+她要是去玩pt我怕她是会直接吓吐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种廉价感觉刚刚好
+这游戏我看q君玩一点都不恐怖，为啥看她玩就有种很吓人的氛围呢？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2564#       发表于 2020-5-3 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47291200&amp;ptid=1929631" target="_blank">IrisL 发表于 2020-5-3 19:00</a>
+这种垃圾小成本独立游戏还会吓得到人也算是有了存在意义</blockquote>
+确实
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2565#       发表于 2020-5-3 19:01
+
+
+
+
+Visage也没见她玩出效果啊，她一小时内顶多玩一般人起来的5分钟的流程，这什么游戏都一样的，听个响
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2566#       发表于 2020-5-3 19:01
+
+
+
+
+不是玩过TP了嘛。mea玩啥恐怖游戏效果都差不多。
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 2567#       发表于 2020-5-3 19:02
+
+
+
+
+你楼居然在认真的研究玩哪种恐怖游戏效果好
+
+就我一个光顾着听她的声音好了又好么<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2568#       发表于 2020-5-3 19:02
+
+
+
+
+这种收集解谜类的游戏是真的玩的累还没效果，来点只要wasd就有剧情看的那种最好
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2569#       发表于 2020-5-3 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47291172&amp;ptid=1929631" target="_blank">liousluna 发表于 2020-5-3 18:58</a>
+
+还是游戏不行，换个稍微有钱点的恐怖游戏比如死亡空间或者寂静岭啥的，还不愁没有效果？偏偏找这种低成本连 ...</blockquote>
+玩寂静岭你是想让她死吧
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2570#       发表于 2020-5-3 19:04
+
+
+
+
+逃生 无脑√吓神经质yhm√
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2571#       发表于 2020-5-3 19:05
+
+
+
+
+不要恐怖游戏.jpg
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2572#       发表于 2020-5-3 19:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来还有女鬼，都没看到过，这裸男憨憨地走过来还挥手攻击一点也不可怕啊
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2573#       发表于 2020-5-3 19:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下别人的视频，她这1小时的进度才抵别人5分钟
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2574#       发表于 2020-5-3 19:14
+
+
+
+
+正常表现.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 2575#       发表于 2020-5-3 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">听叫声好是好啊，但要玩下去才能有更多的叫声啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2576#       发表于 2020-5-3 19:16
+
+
+
+
+最后的裸男棍法是我印象最深的部分<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2577#       发表于 2020-5-3 19:18
+
+
+
+
+看咩玩恐怖游戏还需要在意什么剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2578#       发表于 2020-5-3 19:22
+
+
+
+
+挖坑不埋真是深恶痛绝！开了这么多恐怖游戏的坑，全部太监
+
+车轱辘，我可太想她玩死亡空间了，想象她拿着**在石村号里面边尖叫边踩碎尸变体就觉得精彩。比这些主角只能跑的实质解密游戏要有意思
+
+
+就是恐怕她玩流程的5%都困难，对她玩任何游戏不抱任何期望
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2579#       发表于 2020-5-3 19:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47291422&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-5-3 19:22</a>
+挖坑不埋真是深恶痛绝！开了这么多恐怖游戏的坑，全部太监
+
+车轱辘，我可太想她玩死亡空间了，想象她拿着** ...</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2580#       发表于 2020-5-3 19:25
+
+
+
+
+对战竞技&gt;低成本小游戏&gt;大型单机
+
+
+她可能玩的游戏种类
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2581#       发表于 2020-5-3 19:27
+
+
+
+
+一代死亡空间确实不错，恐怖和游戏性结合的很好<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 2582#       发表于 2020-5-3 19:28
+
+
+
+
+lol实乃万恶之源<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2583#       发表于 2020-5-3 19:51
+
+
+
+
+突然有点不敢看了…
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2584#       发表于 2020-5-3 19:53
+
+
+
+
+麻酱要拉垮了，
+
+
+这回就是滑铁卢！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2585#       发表于 2020-5-3 19:54
+
+
+
+
+↑ 楼友是真的不安，一个MV如此小鹿乱撞吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2586#       发表于 2020-5-3 20:01
+
+
+
+ 本帖最后由 2014720 于 2020-5-3 20:04 编辑 
+
+挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2587#       发表于 2020-5-3 20:04
+
+
+
+
+如何评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2588#       发表于 2020-5-3 20:04
+
+
+
+
+来了来了，看阵容和上次一样啊
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 2589#       发表于 2020-5-3 20:04
+
+
+
+
+就，就很麻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2590#       发表于 2020-5-3 20:05
+
+
+
+
+《如何评价神楽めあ的新原创曲？》
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2591#       发表于 2020-5-3 20:06
+
+
+
+
+太麻了，我爱了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2592#       发表于 2020-5-3 20:06
+
+
+
+
+ojbk
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2593#       发表于 2020-5-3 20:06
+
+
+
+
+あまのじゃく
+
+I'm not just cute
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还行
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2594#       发表于 2020-5-3 20:06
+
+
+
+
+好像哪里的op
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2595#       发表于 2020-5-3 20:06
+
+
+
+
+爬去v8啊<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+还行吧，比上次好点？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2596#       发表于 2020-5-3 20:06
+
+
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2597#       发表于 2020-5-3 20:07
+
+
+
+
+麻麻麻
+萌音萌音萌音
+
+
+
+
+
+             
