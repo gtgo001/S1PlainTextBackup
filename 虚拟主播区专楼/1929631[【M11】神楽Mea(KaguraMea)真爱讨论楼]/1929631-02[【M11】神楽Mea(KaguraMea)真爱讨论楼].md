@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 00:07** 
+> ## **本文件最后更新于2020-05-04 02:08** 
 
 
 
@@ -22441,4 +22441,887 @@ tc感好浓啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 
 
 
-        
+
+
+-----
+
+####  路人庚  
+##### 2747#       发表于 2020-5-4 00:08
+
+
+
+
+大概是被自己走调逗笑了
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 2748#       发表于 2020-5-4 00:08
+
+
+
+
+抒情歌回是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">希望明晚多唱点抒情歌
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2749#       发表于 2020-5-4 00:10
+
+
+
+
+是的，mea真是太适合抒情慢歌了，那种打在心口的感觉真是难以言说…
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2750#       发表于 2020-5-4 00:11
+
+
+
+
+你楼还是蛮会毒奶的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今晚听着睡觉去了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 2751#       发表于 2020-5-4 00:12
+
+
+
+
+当安眠曲听了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2752#       发表于 2020-5-4 00:25
+
+
+
+
+泡杯奶茶继续听
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2753#       发表于 2020-5-4 00:27
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 01:00 编辑 
+
+2300<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+2400<img src="https://static.saraba1st.com/image/smiley/face2017/175.gif" referrerpolicy="no-referrer">
+
+2500<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2754#       发表于 2020-5-4 00:28
+
+
+
+
+深夜喝这种东西，楼友当心变坦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2755#       发表于 2020-5-4 00:28
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-4 00:30 编辑 
+
+这音波炮一样的是啥woc，右耳有些疼
+
+
+还好一会就停了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2756#       发表于 2020-5-4 00:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2757#       发表于 2020-5-4 00:29
+
+
+
+ 本帖最后由 素人不相识 于 2020-5-4 00:31 编辑 
+
+在深夜和非b限的debuff下，b站人气也有40w多，好起来了（怪，为什么我要在意这个，明明我不是事业民呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 2758#       发表于 2020-5-4 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然，但是我还想听灰色と青 
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2759#       发表于 2020-5-4 00:33
+
+
+
+
+最近歌回的同接可以的，基本都能上2000
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2760#       发表于 2020-5-4 00:35
+
+
+
+
+被击沉了……这tm也太好听了…
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 2761#       发表于 2020-5-4 00:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">完美，meamea power MAX~
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2762#       发表于 2020-5-4 00:40
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 00:43 编辑 
+
+同接最高的时候金曲连发，可以可以<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+令人惊奇的是只有四个踩<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 2763#       发表于 2020-5-4 00:47
+
+
+
+
+这时候我想问下,她的吉他现在是不是已经都扔到二手店去了
+
+以前我还以为能听到弹唱来着
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2764#       发表于 2020-5-4 00:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47294746&amp;ptid=1929631" target="_blank">rosevalley46 发表于 2020-5-4 00:47</a>
+这时候我想问下,她的吉他现在是不是已经都扔到二手店去了
+
+以前我还以为能听到弹唱来着 ...</blockquote>
+单纯冷处理吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掏出来瞎鸡巴弹，然后被刷一波“让774教你啊”这样吗，要是她真练出来了倒有可能拿来玩玩
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 2765#       发表于 2020-5-4 00:50
+
+
+
+
+拉上几个熟人乐队出道<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+不过这个年龄学乐器怕不是学不进去
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2766#       发表于 2020-5-4 00:51
+
+
+
+ 本帖最后由 素人不相识 于 2020-5-4 00:55 编辑 
+
+我也有一把吉他，但几乎不会弹，在这些奇怪的方面我莫名能和咩姐共情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+草，楼下瞬间打我脸，咩姐比我努力，我不配和她共情<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  梦魂落叶  
+##### 2767#       发表于 2020-5-4 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47294765&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-4 00:49</a>
+单纯冷处理吧掏出来瞎鸡巴弹，然后被刷一波“让774教你啊”这样吗，要是她真练出来了倒有可能拿来 ...</blockquote>
+我上次饭盒问答的时候问过她还有没有练吉他来着，她说在练来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|咩姐比我努力|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2768#       发表于 2020-5-4 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47294783&amp;ptid=1929631" target="_blank">梦魂落叶 发表于 2020-5-4 00:52</a>
+我上次饭盒问答的时候问过她还有没有练吉他来着，她说在练来着
+
+—— 来自 Xiaomi MI 8, Android  ...</blockquote>
+这我好像倒有印象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过会不会再拿来直播感觉悬了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2769#       发表于 2020-5-4 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47294781&amp;ptid=1929631" target="_blank">素人不相识 发表于 2020-5-4 00:51</a>
+我也有一把吉他，但几乎不会弹，在这些奇怪的方面我莫名能和咩姐共情
+
+
+草，楼下瞬间打我脸，咩姐比 ...</blockquote>
+又一说一，我也确实不配和她共情<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2770#       发表于 2020-5-4 01:00
+
+
+
+
+你们谁家境贫寒父母不支持你事业你还敢不上大学就一个人跑去干一般人觉得没什么未来的工作的，那估计能共情个一半（
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2771#       发表于 2020-5-4 01:02
+
+
+
+
+那可能已经去三合当大神了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2772#       发表于 2020-5-4 01:06
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 01:08 编辑 
+
+她的neet想法能懂点，其他我就不乱猜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，不知道能破2600不<img src="https://static.saraba1st.com/image/smiley/face2017/175.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2773#       发表于 2020-5-4 01:11
+
+
+
+
+感觉家境贫寒算不上吧，看她说家里事不是很特别的样子，估计也就是一般家境吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2774#       发表于 2020-5-4 01:13
+
+
+
+
+首先能读完高中就跑到东京自己闯生活这点我还共情不来，好像也没机会共情了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 2775#       发表于 2020-5-4 01:19
+
+
+
+
+才想说神曲，结果就翻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 2776#       发表于 2020-5-4 01:19
+
+
+
+
+一瞬间2600整，结果又掉下去了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 2777#       发表于 2020-5-4 01:20
+
+
+
+
+这首挺好听的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2778#       发表于 2020-5-4 01:21
+
+
+
+
+一瞬2600就要下了，估计很开心吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2779#       发表于 2020-5-4 01:22
+
+
+
+
+一嗓子嚎清醒了草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 2780#       发表于 2020-5-4 01:24
+
+
+
+
+诶，神乐小姐啥时候才可以开演唱会呢❤️❤️❤️
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 2781#       发表于 2020-5-4 01:26
+
+
+
+
+罪与罚！强！
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2782#       发表于 2020-5-4 01:26
+
+
+
+
+这SC集中有点技惊四座的味道
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2783#       发表于 2020-5-4 01:35
+
+
+
+
+魔法少女乐府酱上舰，小飞船
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 2784#       发表于 2020-5-4 01:35
+
+
+
+
+有一说一
+又听了一晚上
+我有理由怀疑日本那边可能废萌曲是能够流水线生产，属于花销比较平民的原创曲目
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2785#       发表于 2020-5-4 01:43
+
+
+
+
+越唱越嗨了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 2786#       发表于 2020-5-4 01:44
+
+
+
+
+突然来劲了，女王连发，摆明不想睡
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2787#       发表于 2020-5-4 01:44
+
+
+
+
+说好的要结束了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 2788#       发表于 2020-5-4 01:48
+
+
+
+
+今晚同接好稳啊,一直在2500左右
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2789#       发表于 2020-5-4 01:55
+
+
+
+
+嗨起来了 草
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2790#       发表于 2020-5-4 01:56
+
+
+
+
+再上2600<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">，法皇复辟
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2791#       发表于 2020-5-4 01:59
+
+
+
+
+我觉得你不用怀疑，因为在哪儿都是一样的
+
+钱没准还是其次，制作人想不想花心思要看你面子的
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2792#       发表于 2020-5-4 02:02
+
+
+
+
+继续唱歌中
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2793#       发表于 2020-5-4 02:03
+
+
+
+
+提前耐久系列<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2794#       发表于 2020-5-4 02:04
+
+
+
+
+唱嗨了是这样的
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 2795#       发表于 2020-5-4 02:04
+
+
+
+
+話しがしたいよ，咩之前发的这首歌的推特小视频给我印象特别深...
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2796#       发表于 2020-5-4 02:05
+
+
+
+
+对对对 我也是 话说当时我还以为是你咩姐亲自弹的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2797#       发表于 2020-5-4 02:07
+
+
+
+
+这么唱还有明天歌回没事吧
+听着已经有点哑了
+
+
+
+
+
+      
