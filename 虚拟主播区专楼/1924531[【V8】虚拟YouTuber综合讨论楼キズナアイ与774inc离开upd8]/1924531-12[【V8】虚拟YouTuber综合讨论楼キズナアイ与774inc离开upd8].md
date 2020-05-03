@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 10:06** 
+> ## **本文件最后更新于2020-05-03 12:04** 
 
 
 
@@ -677,7 +677,7 @@ holo摇458w已超遗作，封面似乎固定成首发的ayame了
 
 
 Screenshot_20200503_093629_tv.danmaku.bili.jpg
-(39.9 KB, 下载次数: 0)
+(39.9 KB, 下载次数: 1)
 
 
 
@@ -829,7 +829,7 @@ Screenshot_20200503_093629_tv.danmaku.bili.jpg
 <img src="https://img.saraba1st.com/forum/202005/03/095922w4kwx447wzeq0770.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Screenshot_20200503_094016_com.twitter.android.jpg</strong> (454.99 KB, 下载次数: 0)
+<strong>Screenshot_20200503_094016_com.twitter.android.jpg</strong> (454.99 KB, 下载次数: 1)
 
 下载附件
 
@@ -860,4 +860,692 @@ Screenshot_20200503_093629_tv.danmaku.bili.jpg
 
 
 
-                                                
+
+
+-----
+
+####  erer  
+##### 16546#       发表于 2020-5-3 10:08
+
+
+
+
+黑宝截到了一个crew发言。
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 16547#       发表于 2020-5-3 10:27
+
+
+
+ 本帖最后由 57042711 于 2020-5-3 10:35 编辑 
+
+PAX居然唱了MACROSS  PLUS里的VOICES···时代的眼泪啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+SYL:[https://www.bilibili.com/video/BV1vk4y1k7bz](https://www.bilibili.com/video/BV1vk4y1k7bz)  狐狸这陆行鸟之歌真的有被笑到,啥时候真的抱上SE大腿就好玩了
+
+
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 16548#       发表于 2020-5-3 10:51
+
+
+
+<blockquote>tiro_finale 发表于 2020-5-3 09:17
+holo摇458w已超遗作，封面似乎固定成首发的ayame了</blockquote>
+该再评价狗狗的地位了∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16549#       发表于 2020-5-3 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47287336&amp;ptid=1924531" target="_blank">Vneet 发表于 2020-05-03 10:51:12</a>
+该再评价狗狗的地位了∠( ᐛ 」∠)_</blockquote>单纯觉得这个模型好吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16550#       发表于 2020-5-3 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47286477&amp;ptid=1924531" target="_blank">あのん 发表于 2020-5-3 08:09</a>
+
+我凪白大哥怕三者面談后被すこん部橄榄决定暂时不开直播了syl懒狗每次开台老三样还一直对营业对象鸭子瞎几 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比不了比不了，正规社员OL能有8、9位数年薪吗，有钱才是人↑人，其他都是假的。
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16551#       发表于 2020-5-3 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47286862&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-3 09:31</a>
+
+换头怪真是吉人天相啊，P站做这笔砸牌子的买卖给我乐了好几天</blockquote>
+舒服坏了，再签几个，桐乃的二次元皇帝就到头了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16552#       发表于 2020-5-3 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47287406&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-05-03 11:02:04</a>
+舒服坏了，再签几个，桐乃的二次元皇帝就到头了</blockquote>想多了，现在睿站天天有弱智操作，天天被人点艹，一点用都没有
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16553#       发表于 2020-5-3 11:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/111147nykq0kytktko0ykj.png" referrerpolicy="no-referrer">
+
+
+<strong>IY_`96~2`GY68]${NB8)0J5.png</strong> (356.78 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-3 11:11 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地位，yagoo的肯定。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16554#       发表于 2020-5-3 11:15
+
+
+
+
+还是比不上被yagoo跪舔
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16555#       发表于 2020-5-3 11:16
+
+
+
+
+你们都看不起pxj说谷乡底层员工梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但谷乡每次发推我都感觉一种很卑微很舔狗的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 16556#       发表于 2020-5-3 11:20
+
+
+
+
+其实单论404订阅，我觉得什么圣皇龙皇都只能吃狐皇的尾气，唯一有可能超过狐皇的，其实是holo官号
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16557#       发表于 2020-5-3 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47287558&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-05-03 11:20:42</a>
+其实单论404订阅，我觉得什么圣皇龙皇都只能吃狐皇的尾气，唯一有可能超过狐皇的，其实是holo官号 ...</blockquote>想多了，狐皇自己不作holo的订阅也永远没机会超过
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 16558#       发表于 2020-5-3 11:25
+
+
+
+<blockquote>シナモンロール 发表于 2020-5-3 11:16
+你们都看不起pxj说谷乡底层员工梗
+
+
+但谷乡每次发推我都感觉一种很卑微很舔狗的感觉 ...</blockquote>
+相敬如宾
+
+我本想这么说，但yagoo是有家室的人
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 16559#       发表于 2020-5-3 11:29
+
+
+
+
+问就工匠精神
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 16560#       发表于 2020-5-3 11:29
+
+
+
+<blockquote>bluebaby 发表于 2020-5-3 11:22
+想多了，狐皇自己不作holo的订阅也永远没机会超过
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+holo四月比狐皇多1w增速，如果能保持的话，理论上两年就可以超过狐皇了
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 16561#       发表于 2020-5-3 11:30
+
+
+
+
+彩虹铲弟10w了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16562#       发表于 2020-5-3 11:31
+
+
+
+
+员工人均印钞机，yagoo在家数钱数到笑开花了，舔两句怎么了。
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 16563#       发表于 2020-5-3 11:31
+
+
+
+
+杏自己能不能活到两年后还是个问题呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16564#       发表于 2020-5-3 11:39
+
+
+
+
+两年都能保持这增速，现在杏的成员都能人均金盾了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 16565#       发表于 2020-5-3 11:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">来个女的把温暖大家庭的形象弄破灭了就好这个角色会是大天使吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16566#       发表于 2020-5-3 11:42
+
+
+
+
+你在说什么？ 大亏早已战胜自己加入大家庭了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16567#       发表于 2020-5-3 11:44
+
+
+
+
+狐狸可可反水大概能把杏的温暖大家庭搞到元气大伤吧，其他人不行的。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16568#       发表于 2020-5-3 11:44
+
+
+
+
+短板理论，决定一个桶里面能装多少水的是最短的那块板
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16569#       发表于 2020-5-3 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47287715&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-3 11:39</a>
+
+两年都能保持这增速，现在杏的成员都能人均金盾了。</blockquote>
+这增速能维持半年就特么不错了
+
+v市场哪来那么大
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 16570#       发表于 2020-5-3 11:46
+
+
+
+ 本帖最后由 blattle 于 2020-5-3 11:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大天使一定可以的，而且当个人势吃钱那可比在杏爽太多了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16571#       发表于 2020-5-3 11:48
+
+
+
+
+大天使不敢做这种事
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16572#       发表于 2020-5-3 11:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">比较一下蛋蛋，牛卷和猫饼就知道了
+
+要一人干碎箱，本人体量和箱内地位都不能少，这方面来说狐龙船兔比圣皇机会要大底力不够就只能被大家庭干碎了
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 16573#       发表于 2020-5-3 11:51
+
+
+
+
+狐皇保持现在这个增速的话，大概两个月后（7月初）开始步入天王境，6.7个月后（有望在年末）金盾
+
+另外一方面，holo的矮子似乎永远追不到彩虹的矮子
+
+龙皇在订阅也被holo官号拉开，开始从第一梯队掉到第二梯队
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16574#       发表于 2020-5-3 11:51
+
+
+
+
+狐皇有病造自己的反，是yagoo舔的不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16575#       发表于 2020-5-3 11:51
+
+
+
+
+亏哥自己恰钱就凉了
+
+亏哥最懂了，要吸最低成本的血，拿最高的净收益，一个大树靠背少不了
+
+你杏优质的liver支持本来就是亏哥最需要的，否则靠她自己哪来这么多箱粉和免费的流量？
+
+当然最近亏哥热度下降了，所以转而开始融入也是很好理解的
+
+要是亏哥真个人了.......怕不是还不如虚拟ykw 404的顶级个人咯
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16576#       发表于 2020-5-3 11:54
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-5-3 11:56 编辑 
+
+虽说木板装多少水取决于最短的板，但可以用倾斜的方法在无法补短板的情况下来增加容量<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">当然这样做要求长板够长
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16577#       发表于 2020-5-3 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么那么想看别人砸自己饭碗
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16578#       发表于 2020-5-3 11:55
+
+
+
+
+阿夸不行的，不像去年，现在sc已经比不过社内几个大户，订阅永远追不上狐狸，同接被pekora倍杀，还是放她安心当个holo小主播吧。阿夸核心粉很吃“仲よくしよ”，出来搞事炸箱估计自己也一无所有，不如趁着业界未完，播爆换百万年薪。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16579#       发表于 2020-5-3 11:56
+
+
+
+
+虽说可以用倾斜的方法增加容量，但是梅露是0怎么倾斜都没用，木口要完。
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 16580#       发表于 2020-5-3 11:58
+
+
+
+
+(:]ミ - IFIF /をとは feat. nyankobrq, somunia -cover-
+
+[https://www.youtube.com/watch?v=Xq4adiPHItQ](https://www.youtube.com/watch?v=Xq4adiPHItQ)
+
+
+もしもあなたと出会えてなかったら
+
+
+YACA IN DA HOUSEによる楽曲「IFIF」をnyankobrqくんとsomuniaちゃんとカバーしました。
+
+
+■Music: YACA IN DA HOUSE
+
+■Lyrics: YACA IN DA HOUSE をとは nyankobrq somunia 
+
+■MC: をとは nyankobrq somunia  [http://t.cn/A6AfgTer](http://t.cn/A6AfgTer)
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">真可爱啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16581#       发表于 2020-5-3 11:58
+
+
+
+
+龙皇是个拥有T1级别输出的奶，这点不要忘了。整个虹杏卡面是这样的就这么一张。
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 16582#       发表于 2020-5-3 11:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">摧毁大家庭信仰也没那么难啊，在社内底层没关注没人气又没有发展前途的毕业一个就行了（所谓有一就有二
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 16583#       发表于 2020-5-3 12:02
+
+
+
+
+梅露这种情况都挂着，真有人会毕业吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                               
