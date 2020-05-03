@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 04:07** 
+> ## **本文件最后更新于2020-05-03 18:07** 
 
 
 
@@ -15283,10 +15283,11 @@ LO洋服还挺好看的，大牌子都很贵的吧，一般人买这个狠不下
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| zaozaoxx| + 1|欢乐多|
 | 呓亘| + 1||
 
 
@@ -17608,4 +17609,779 @@ k1佬没在转，我又想边洗澡边用手机看。。。 ...</blockquote>
 
 
 
-                 
+
+
+-----
+
+####  シオン诗音  
+##### 2469#       发表于 2020-5-3 07:31
+
+
+
+
+不到2点就睡着了，有无错过重要信息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看起来好像没有
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2470#       发表于 2020-5-3 09:25
+
+
+
+<blockquote>シオン诗音 发表于 2020-5-3 07:31
+不到2点就睡着了，有无错过重要信息看起来好像没有
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+印象比较深的是关于人生规划的那段，fafa已经烤了，[https://b23.tv/BV1J54y1X7G9](https://b23.tv/BV1J54y1X7G9)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2471#       发表于 2020-5-3 10:53
+
+
+
+
+看到了 帮大忙了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2472#       发表于 2020-5-3 14:54
+
+
+
+
+目前流出的麻图中有带美甲的吗？副业是美甲店的这种人生规划到底是怎么想出来的啊……
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2473#       发表于 2020-5-3 14:55
+
+
+
+
+话说这人身体是真不好....头晕到走不动道....
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2474#       发表于 2020-5-3 15:04
+
+
+
+
+yhm不人均美甲么<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 2475#       发表于 2020-5-3 15:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/151000l611q5dajlh6x1zq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8CD95C1E-B437-4EE5-9933-332FE8A0770D.jpeg</strong> (79.68 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-3 15:10 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2476#       发表于 2020-5-3 15:16
+
+
+
+
+翻了翻之前存的麻图，没发现有美甲...
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2477#       发表于 2020-5-3 15:17
+
+
+
+
+草图草
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2478#       发表于 2020-5-3 15:18
+
+
+
+
+草，盗图盗到科普漫画还行
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2479#       发表于 2020-5-3 15:20
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：今日の予定
+
+19:00～
+「怨霊」ホラゲープレイ
+(配信URLは後程ツイートします！)
+
+21:00～
+オリジナルソング第二弾
+プレミアム公開
+(20:00の予定でしたが諸事情でずらしてます😢)
+
+よろです！ https://t.co/MILA9gFbKt
+媒体：['https://twitter.com/KaguraMea_VoV/status/1256845768494772224/photo/1']
+链接：[]
+时间：2020-05-03 07:19:16 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1256845768494772224
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2480#       发表于 2020-5-3 16:06
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-3 16:09 编辑 
+
+看起来还是mmsk画的形象？<img src="https://p.sda1.dev/0/dfa8c9d5460d790f6800de3421f8fd93/IMG_18EC88816DDE524A5E67A83671B932BD.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2481#       发表于 2020-5-3 16:10
+
+
+
+
+おまのじゃく？
+
+天邪鬼？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2482#       发表于 2020-5-3 16:11
+
+
+
+
+好像是吧
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2483#       发表于 2020-5-3 16:14
+
+
+
+
+看着还行<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 2484#       发表于 2020-5-3 16:14
+
+
+
+
+应该音译：阿麻的夹克
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2485#       发表于 2020-5-3 16:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叫矫情壬算了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2486#       发表于 2020-5-3 16:33
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-3 16:36 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/163425f2ty09fl0dgdwj3f.png" referrerpolicy="no-referrer">
+
+
+<strong>143gt.png</strong> (42.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-3 16:34 上传
+
+
+
+
+
+
+一开始看成海苔，
+
+
+吓死我了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2487#       发表于 2020-5-3 16:34
+
+
+
+
+奶子好大
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2488#       发表于 2020-5-3 16:35
+
+
+
+
+注：天之弱也是这个发音
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2489#       发表于 2020-5-3 16:35
+
+
+
+
+感觉还是元气可爱的风格啊，不知道会不会打脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2490#       发表于 2020-5-3 16:37
+
+
+
+
+魔改天之弱
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 2491#       发表于 2020-5-3 16:44
+
+
+
+
+这奶子是参照实物画的么？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2492#       发表于 2020-5-3 16:44
+
+
+
+
+封面笑的这么开心肯定不是失恋曲。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2493#       发表于 2020-5-3 16:46
+
+
+
+
+别实物了，
+
+
+这么大，
+
+
+看着都要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2494#       发表于 2020-5-3 16:47
+
+
+
+
+你麻有这一半大？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2495#       发表于 2020-5-3 16:50
+
+
+
+
+bsyl盲猜一个よし江
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2496#       发表于 2020-5-3 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290032&amp;ptid=1929631" target="_blank">古战场亡魂 发表于 2020-5-3 16:44</a>
+封面笑的这么开心肯定不是失恋曲。</blockquote>
+不是苦情曲吧
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2497#       发表于 2020-5-3 17:01
+
+
+
+
+八成又是偶像口水歌了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2498#       发表于 2020-5-3 17:05
+
+
+
+
+这歌名看起来不像甜的发腻的萌系歌啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2499#       发表于 2020-5-3 17:06
+
+
+
+
+其一，本人审美
+
+
+其二，作曲门路
+
+
+总之对风格问题期望别太高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2500#       发表于 2020-5-3 17:15
+
+
+
+
+萌系歌咋了嘛，萌系歌咋了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2501#       发表于 2020-5-3 17:17
+
+
+
+
+喜欢废萌的都是人↓人你不知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 2502#       发表于 2020-5-3 17:18
+
+
+
+
+就不能单纯的喜欢咩唱的其他风格的歌的原因了吗
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2503#       发表于 2020-5-3 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290335&amp;ptid=1929631" target="_blank">Cuppco 发表于 2020-5-3 17:18</a>
+就不能单纯的喜欢咩唱的其他风格的歌的原因了吗</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2504#       发表于 2020-5-3 17:34
+
+
+
+
+这曲绘不是废萌^^
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2505#       发表于 2020-5-3 17:38
+
+
+
+
+来点天邪鬼pv图透（）
+
+<img src="https://img.saraba1st.com/forum/202005/03/173832ud38qepwq3xddqf3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (331.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-3 17:38 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 2506#       发表于 2020-5-3 17:39
+
+
+
+
+曲名看起来应该是要唱一个喜欢恶心人的妹子   我怕甜吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2507#       发表于 2020-5-3 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290513&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-3 17:38</a>
+来点天邪鬼pv图透（）</blockquote>
+草，这是啥
+还以为是随便找的张图，一看左上角人物和mea那个还挺像
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2508#       发表于 2020-5-3 17:54
+
+
+
+
+从pv的动画师推上找的（虽然没多久就能看到了）
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2509#       发表于 2020-5-3 17:55
+
+
+
+
+咩姐在待机间发言了，说是身体不好？
+
+
+
+
+
+                

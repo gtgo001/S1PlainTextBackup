@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 16:04** 
+> ## **本文件最后更新于2020-05-03 18:05** 
 
 
 
@@ -4322,4 +4322,2386 @@ syl那时候的同接好像是吃了时雨妈和船长的
 
 
 
-                                          
+
+
+-----
+
+####  stedckk  
+##### 16732#       发表于 2020-5-3 16:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可夸皇的奶子也不小啊。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16733#       发表于 2020-5-3 16:05
+
+
+
+
+到底说的是皮的奶子还是中之人的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16734#       发表于 2020-5-3 16:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要怪就怪饭勺吧，导致我一直摆脱不了这个印象。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16735#       发表于 2020-5-3 16:09
+
+
+
+
+coco用rap来感谢sc还挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16736#       发表于 2020-5-3 16:10
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-3 16:12 编辑 
+
+？到底从哪儿看出林小姐欧派大不大的？我寻思那个吃饭视频看起来挺小的。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16737#       发表于 2020-5-3 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer"> 听说巨乳都爱贫乳，不知道是不是真的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16738#       发表于 2020-5-3 16:12
+
+
+
+
+过于童真臭，溜了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16739#       发表于 2020-5-3 16:12
+
+
+
+
+？？？2000你要干嘛
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 16740#       发表于 2020-5-3 16:12
+
+
+
+
+不止要做v的肉体厨，还要做楼友的肉体厨。
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 16741#       发表于 2020-5-3 16:13
+
+
+
+
+可怕，可怕
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16742#       发表于 2020-5-3 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说的不是皮吗，怎么往中之人那飘了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16743#       发表于 2020-5-3 16:17
+
+
+
+
+皮的话也不小的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16744#       发表于 2020-5-3 16:17
+
+
+
+
+咋还看上楼友了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">啥时候s1漫展有摊位你们去线下互搏好了
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16745#       发表于 2020-5-3 16:18
+
+
+
+
+2000你不当铁血虹人了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16746#       发表于 2020-5-3 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">因为皮的话，真的是看个人发挥了。我买的夸画册里，夸父自己设定阿夸是贫乳，你敢信？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16747#       发表于 2020-5-3 16:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二二姐贵随便找个理由就有人上钩了，不喜欢谁要p理由啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16748#       发表于 2020-5-3 16:19
+
+
+
+
+说胸小是有复数证人的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16749#       发表于 2020-5-3 16:20
+
+
+
+
+夸的话皮和中之人差不多都是正常妹子的水平……
+
+同人图里不知道谁带的风气越垫越多
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16750#       发表于 2020-5-3 16:20
+
+
+
+
+太怪了，这里太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16751#       发表于 2020-5-3 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">夸父明明画得越来越大，有时候我都觉得大得过分了。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16752#       发表于 2020-5-3 16:21
+
+
+
+
+气氛不够给，黑宝开始抱怨了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16753#       发表于 2020-5-3 16:21
+
+
+
+
+2000说的好像还挺对的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16754#       发表于 2020-5-3 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47289813&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-3 16:20</a>
+
+夸父明明画得越来越大，有时候我都觉得大得过分了。</blockquote>
+确实，不过夸父画力好，大奶奶我也能接受。我大概不能接受的程度是奶子比脑子大吧。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16755#       发表于 2020-5-3 16:22
+
+
+
+
+那我们知道了erer奶子没有脑子大
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16756#       发表于 2020-5-3 16:22
+
+
+
+
+我其实对欧派大过头的本子也冲不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16757#       发表于 2020-5-3 16:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 能让我线下的只有尾宝，想和尾宝一起吃火锅看管人聊天，一定开心死了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16758#       发表于 2020-5-3 16:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一讨论奶子，黑宝就表示不满，到底黑宝是什么取向我想大家都懂了吧。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16759#       发表于 2020-5-3 16:23
+
+
+
+
+性癖讨论开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16760#       发表于 2020-5-3 16:23
+
+
+
+
+芙宝也这样？我觉得需要一些gay浓度了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 16761#       发表于 2020-5-3 16:23
+
+
+
+
+该gay起来了，来点杏⭐
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16762#       发表于 2020-5-3 16:24
+
+
+
+
+erer老姐一己之力打破了V综的gay氛围，太可怕了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16763#       发表于 2020-5-3 16:24
+
+
+
+
+确实，还是gay一点比较好。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16764#       发表于 2020-5-3 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47289829&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-3 16:23</a>
+
+能让我线下的只有尾宝，想和尾宝一起吃火锅看管人聊天，一定开心死了 ...</blockquote>
+2000适时的为楼里加入了gay的气息<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 16765#       发表于 2020-5-3 16:24
+
+
+
+
+撩二二姐，不好，撩黑宝，好！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16766#       发表于 2020-5-3 16:25
+
+
+
+
+别吧，楼里巨魔成这样线下了还不得真人快打
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16767#       发表于 2020-5-3 16:25
+
+
+
+
+2000这种直球性骚扰楼友的还是不应该提倡
+
+
+syl
+
+小天使想了半天才拼出了个てんし，xswl<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+zsyl
+
+感觉v综吹的都不是那种能大红大紫扬名立万的......
+
+
+本届v综推盾选手权冠军同接现状
+
+
+
+
+
+
+大红大紫.PNG
+(19.86 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-3 16:25 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/162536vn4jnsajk3y3b3un.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16768#       发表于 2020-5-3 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">2000太gay了，尾宝小心点。
+
+黑宝一己之力扭转楼里氛围，不愧是永远滴基。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16769#       发表于 2020-5-3 16:27
+
+
+
+
+楼内性格和现实性格可能截然不同呢？巨魔的第一步就是伪装啊
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 16770#       发表于 2020-5-3 16:28
+
+
+
+
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16771#       发表于 2020-5-3 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47289881&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-05-03 16:27:36</a>
+楼内性格和现实性格可能截然不同呢？巨魔的第一步就是伪装啊</blockquote>那建议直接去当V，很适合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16772#       发表于 2020-5-3 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47289887&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-3 16:28</a>
+
+那建议直接去当V，很适合
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+qs，我觉得现实里的cold哥可能是那种特别脆弱特别需要人保护的
+
+
+想想就爱了，如果cold老哥退管我可能也危险了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16773#       发表于 2020-5-3 16:29
+
+
+
+
+兔皇皮也是贫乳啊，比夸的皮还小
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16774#       发表于 2020-5-3 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47289887&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-3 16:28</a>
+
+那建议直接去当V，很适合
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的呀，3id小姐不就是出道的楼友吗。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16775#       发表于 2020-5-3 16:30
+
+
+
+ 本帖最后由 QWANG 于 2020-5-3 16:32 编辑 
+
+2000→尾巴→cold→erer？还有补充的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16776#       发表于 2020-5-3 16:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">给的氛围开始扩散了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16777#       发表于 2020-5-3 16:30
+
+
+
+
+有道理。所以为啥团长的就那么写实呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 16778#       发表于 2020-5-3 16:31
+
+
+
+
+又来了，受不了，溜了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16779#       发表于 2020-5-3 16:31
+
+
+
+
+不要对楼友发情不要对楼友发情不要对楼友发情
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16780#       发表于 2020-5-3 16:31
+
+
+
+
+确实，明明是公招的，却能招到日南，不过日南来了肯定要的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 16781#       发表于 2020-5-3 16:32
+
+
+
+
+叶师暴打女人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16782#       发表于 2020-5-3 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 只有单向箭头，却没有双向箭头吗！？
+
+
+可恶，什么时候楼友能站起来
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16783#       发表于 2020-5-3 16:33
+
+
+
+
+V综每日一gay到底是谁的错？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，安皇今天晚上还要播传说之下呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，不知道能打出多少同接
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16784#       发表于 2020-5-3 16:37
+
+
+
+
+十年大奶anti不请自来
+
+日南刚进杏两天就把公招论在nico会限里批判了一番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.dailymotion.com/video/x7frnf4](https://www.dailymotion.com/video/x7frnf4)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16785#       发表于 2020-5-3 16:39
+
+
+
+
+所以不是公招喽？那阿杏真是关系户丛生啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwjzy  
+##### 16786#       发表于 2020-5-3 16:39
+
+
+
+
+双向了就能写轻小说了，&lt;&lt;就算是巨魔也要谈恋爱&gt;&gt;
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16787#       发表于 2020-5-3 16:40
+
+
+
+
+草，你们现在不单只要脑补v，还要脑补楼友，快停下
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16788#       发表于 2020-5-3 16:40
+
+
+
+
+不是公招为什么要批判公招？
+
+对公招到底有什么怨念
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16789#       发表于 2020-5-3 16:41
+
+
+
+
+日南关系最好的就是利香吧……
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16790#       发表于 2020-5-3 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人找你办事和上杆子抱大腿是能体现不同身价的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16791#       发表于 2020-5-3 16:42
+
+
+
+
+利香的阴影永远笼罩在杏的上空。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16792#       发表于 2020-5-3 16:43
+
+
+
+ 本帖最后由 stedckk 于 2020-5-3 16:44 编辑 
+
+二期之后杏基本都是通讯录招人这个还有疑问的吗。。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16793#       发表于 2020-5-3 16:43
+
+
+
+
+所以看杏就不要搞前世情缘那套，不然箭头太乱早晚要疯
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16794#       发表于 2020-5-3 16:44
+
+
+
+
+阿夸是公招的吧？总不能是夏哥通讯录的吧。
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 16795#       发表于 2020-5-3 16:44
+
+
+
+
+杏的公招谁看了都嫌弱智，另外这链接的视频被删了，而且谷歌链接地址本楼又是第一
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 16796#       发表于 2020-5-3 16:44
+
+
+
+
+二期都是基本都是公招吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16797#       发表于 2020-5-3 16:45
+
+
+
+
+不是一二期公招，gamers开始通讯录吗？
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16798#       发表于 2020-5-3 16:45
+
+
+
+
+你们这么提起来我就有点好奇了，小天使是谁的通讯录上的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16799#       发表于 2020-5-3 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290043&amp;ptid=1924531" target="_blank">forzen 发表于 2020-05-03 16:45:38</a>
+你们这么提起来我就有点好奇了，小天使是谁的通讯录上的</blockquote>前两天不就在讨论这个，星街啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16800#       发表于 2020-5-3 16:46
+
+
+
+
+小天使不是刚讨论过，有星圣，船长，梅露三条可能的关系了啊。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16801#       发表于 2020-5-3 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">s1权重那么高，以后会不会发展成楼内黑屁出口转内销变成二手屎回来v综的。。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16802#       发表于 2020-5-3 16:47
+
+
+
+
+小天使星姐开的门嘛，我好奇是羊是谁通讯录上的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16803#       发表于 2020-5-3 16:49
+
+
+
+
+你们不应该问问龙皇是谁的通讯录吗，建议今年加奖金<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16804#       发表于 2020-5-3 16:49
+
+
+
+
+我想知道船长是谁通讯录上的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16805#       发表于 2020-5-3 16:49
+
+
+
+
+那我想些特别的......stars会不会也有通讯录招人的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16806#       发表于 2020-5-3 16:50
+
+
+
+
+星是坦克团gamers的通讯录啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 16807#       发表于 2020-5-3 16:52
+
+
+
+
+我看这个视频在2ch的repo怎么没提公招问题
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 16808#       发表于 2020-5-3 16:52
+
+
+
+
+搞得杏星不是通讯录招人一样
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16809#       发表于 2020-5-3 16:53
+
+
+
+
+木口星就不能是yagoo的秘密通讯录吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16810#       发表于 2020-5-3 16:54
+
+
+
+
+小天使同接相比sc一直拉跨啊，没记错的话过w棒的只有上周的歌回，前一次变声打块，以及夜勤。
+
+要说原因的话，游戏力拉跨直播效果有限，直播内容同质化缺少特色，可以车不少内容。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16811#       发表于 2020-5-3 16:54
+
+
+
+
+说是批判也就是观众问为什么接受杏公招
+
+大奶很轻蔑的“オーディション？ふん”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16812#       发表于 2020-5-3 16:54
+
+
+
+
+小天使是星街带的真不好说
+
+星姐去年年底才转到holo编制内的 在那之前很久时间都在INNK
+
+讲道理跟本部运营staff应该都不太熟
+
+这么短时间内直接带一个人进来怎么说都很奇怪
+
+船长或者利香带的可能性大
+
+但是船长明显平时没有太跟小天使玩在一起
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 16813#       发表于 2020-5-3 16:54
+
+
+
+
+现在看来这体系又有什么不好么，省时省力效率还好<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16814#       发表于 2020-5-3 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290071&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-3 16:49</a>
+
+你们不应该问问龙皇是谁的通讯录吗，建议今年加奖金
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客 ...</blockquote>
+yagoo
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16815#       发表于 2020-5-3 16:57
+
+
+
+
+虹也用的，无非以前抽的太厉害通讯录不够用
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16816#       发表于 2020-5-3 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290054&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-3 16:46</a>
+
+s1权重那么高，以后会不会发展成楼内黑屁出口转内销变成二手屎回来v综的。。 ...</blockquote>
+现在观察到的也就holoanti串有人在看
+
+虹的anti串有没有人在看就不知道了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16817#       发表于 2020-5-3 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">虹通讯录招人招了个森友配顶级皮，浪费资源啊
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 16818#       发表于 2020-5-3 17:01
+
+
+
+
+那mrr肯定是公招吧
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 16819#       发表于 2020-5-3 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290054&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-3 16:46</a>
+
+s1权重那么高，以后会不会发展成楼内黑屁出口转内销变成二手屎回来v综的。。 ...</blockquote>
+我想起纱利雅那件事好像就是v吧出口的黑屁
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16820#       发表于 2020-5-3 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290119&amp;ptid=1924531" target="_blank">头上一板砖 发表于 2020-5-3 16:54</a>
+
+现在看来这体系又有什么不好么，省时省力效率还好
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Ne ...</blockquote>
+ob不就是通讯录拉人，意思是看不起我fg
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16821#       发表于 2020-5-3 17:04
+
+
+
+
+mrr哪是公招
+
+那是cover对狼性企业的一次宣战，宣完狼性企业在豊洲连个花篮都没赏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16822#       发表于 2020-5-3 17:07
+
+
+
+
+完了又开始车轮丰洲花篮的梁木了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16823#       发表于 2020-5-3 17:10
+
+
+
+
+你们车星之彼方的时候，我的感觉就是星街舔小天使舔的这么厉害但小天使的回应不咋的，就这样星街真的会通讯录把小天使找来当后辈么
+
+
+不过小天使进holo之后给我的印象就是一个大写的舔字就是了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16824#       发表于 2020-5-3 17:10
+
+
+
+
+holo一期五个人全都放了设定图，公开招募，当然这五个人里没有梅露
+
+梅露肯定是邀请的；少主听说也是邀请的，来之前说是没听说过vtuber
+
+二期生aqua明确公募，其他还真不记得了，有资料可以补充，不过二期这些咖位不大不像是邀请的
+
+三期的兔粽没进公募，但公募说到底还是可能录通讯录摇出来的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16825#       发表于 2020-5-3 17:11
+
+
+
+
+芙宝想看轮别的话，兔子3W6了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 16826#       发表于 2020-5-3 17:11
+
+
+
+
+那是不是可以车holo派大亏连续7天b限挡掉彩虹最开始的冲国攻势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16827#       发表于 2020-5-3 17:14
+
+
+
+
+再车一车舰B联动给他们插点梁木
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16828#       发表于 2020-5-3 17:14
+
+
+
+
+阿希搞舰限不如来丶舰限音声或者视频
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16829#       发表于 2020-5-3 17:15
+
+
+
+
+星街和小天使一起去过漫画店啊，不如说和小天使贴贴的其实线上表现都不强烈（龙，星街，船长）。小天使呼吸前辈感觉跟她现在呼吸04是一样的，偶像宅本质发作了吧大概。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16830#       发表于 2020-5-3 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290283&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-05-03 17:14:04</a>
+再车一车舰B联动给他们插点梁木</blockquote>舰B联动只能塞狐皇的梁木，没啥意义，塞的够多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 16831#       发表于 2020-5-3 17:16
+
+
+
+
+再车一车（可能会有的）舟游联动订棺材板
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16832#       发表于 2020-5-3 17:17
+
+
+
+
+想到一个比喻：杏就是加州卷，不伦不类，不像虹是田角二郎手捏寿司，和味十足。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16833#       发表于 2020-5-3 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290105&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-5-3 16:52</a>
+
+搞得杏星不是通讯录招人一样</blockquote>
+也许那个实况主集团就是很多通讯录招人的关键......不过这么想想，只有一弦作为stars一期先行组的成员没有通讯录招人的理由了，Meiro他根本没有能联系到通讯录的要素，毕竟不是实况主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16834#       发表于 2020-5-3 17:18
+
+
+
+
+小天使在龙随便一句直接贴上门去了还不够贴么（
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 16835#       发表于 2020-5-3 17:18
+
+
+
+
+小天使所见之人基本全在线下贴过了，线上不搞这一套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16836#       发表于 2020-5-3 17:20
+
+
+
+
+“yagoo的jackd通讯录里满是杏星预备役”
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16837#       发表于 2020-5-3 17:20
+
+
+
+
+太紫联动猫狗
+
+不知道太紫对和自己亲妈基本同岁还向她撒娇的狗子是什么想法
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16838#       发表于 2020-5-3 17:22
+
+
+
+
+楼友都是jackd用户说
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16839#       发表于 2020-5-3 17:23
+
+
+
+
+说起来好像听说过杏公招的要求是成年
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16840#       发表于 2020-5-3 17:23
+
+
+
+
+亲妈也太过分了，哪有那么大。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+不过太紫真是受姨宠爱，和到处找姨的小肥妹相反。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16841#       发表于 2020-5-3 17:24
+
+
+
+
+四期我完全不记得有公募情报，就突然放出来新人要出道，然后两三天后就开播
+
+不过官网是一直常设招募的，也可能是凑满人就放出来了，也许是申请的人能收到角色选择？
+
+但五期又公开放了两个，不是很懂
+
+说到底只有零期和gamers，以及三期前两个，属于内定，其他有些最多算个内推
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16842#       发表于 2020-5-3 17:26
+
+
+
+
+狗子不是两种说法 一套90一套85还没实锤吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16843#       发表于 2020-5-3 17:26
+
+
+
+
+公招要求成年那一二期都有一堆人没法进了，摆明了没这个要求，或者可能需要监护人陪同
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16844#       发表于 2020-5-3 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290298&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-3 17:15</a>
+
+星街和小天使一起去过漫画店啊，不如说和小天使贴贴的其实线上表现都不强烈（龙，星街，船长）。小天使呼吸 ...</blockquote>
+《人设》
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16845#       发表于 2020-5-3 17:26
+
+
+
+
+那holocn是靠公招还是关系簿的呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16846#       发表于 2020-5-3 17:26
+
+
+
+
+太紫亲妈未成年生产三十代中旬可是自己说的
+
+我可是くろキャス的忠实听众
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16847#       发表于 2020-5-3 17:29
+
+
+
+
+cn这几个互相不熟成这样，肯定不是通讯簿了吧。应该是公招+从业经验要求这样？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16848#       发表于 2020-5-3 17:29
+
+
+
+ 本帖最后由 QWANG 于 2020-5-3 17:32 编辑 
+
+啊！？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这群人真是突然就能冒出来一个卖惨人设啊。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16849#       发表于 2020-5-3 17:29
+
+
+
+
+那母女丼有点香的 
+
+本来！
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 16850#       发表于 2020-5-3 17:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这么刺激的吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16851#       发表于 2020-5-3 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290342&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-3 17:20</a>
+
+“yagoo的jackd通讯录里满是杏星预备役”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那yagoo也太怪了，一个四十六七岁的辞职创业者怎么和一个二十出头的nico小唱见有联系
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 16852#       发表于 2020-5-3 17:36
+
+
+
+
+那太紫跟别人不会有代沟吗
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16853#       发表于 2020-5-3 17:38
+
+
+
+
+神父还喜欢小男孩呢<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16854#       发表于 2020-5-3 17:40
+
+
+
+
+yagoo又成年下控版gay了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16855#       发表于 2020-5-3 17:40
+
+
+
+
+那也是她妈跟别人妈有代沟，木口又不开家长会，哪来的代沟
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16856#       发表于 2020-5-3 17:40
+
+
+
+
+老男人喜欢搞小男孩不是很正常吗
+
+雅典公民震怒
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16857#       发表于 2020-5-3 17:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个...预订表都剧透了不发个正式合作的推么
+
+
+
+
+
+
+EXAYRFJVcAEMo70.jpg
+(53.36 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-3 17:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/173921fiomvx40xv8q888o.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16858#       发表于 2020-5-3 17:41
+
+
+
+
+空妈新翻唱，40分钟前发布。
+[https://www.youtube.com/watch?v=o206Ss9lvRM](https://www.youtube.com/watch?v=o206Ss9lvRM)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16859#       发表于 2020-5-3 17:51
+
+
+
+
+404又集体炸锅了么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16860#       发表于 2020-5-3 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290319&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-3 17:17</a>
+
+想到一个比喻：杏就是加州卷，不伦不类，不像虹是田角二郎手捏寿司，和味十足。 ...</blockquote>
+不亏你楼41阴，我彻底服了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16861#       发表于 2020-5-3 17:51
+
+
+
+
+有点意思，忠实听众可以多写点啊<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16862#       发表于 2020-5-3 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290610&amp;ptid=1924531" target="_blank">winda 发表于 2020-05-03 17:51:01</a>
+404又集体炸锅了么</blockquote>好了然后又炸了…
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JhIenog  
+##### 16863#       发表于 2020-5-3 17:52
+
+
+
+
+404这是又炸了？
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 16864#       发表于 2020-5-3 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290388&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-3 17:24</a>
+
+四期我完全不记得有公募情报，就突然放出来新人要出道，然后两三天后就开播
+
+不过官网是一直常设招募的，也 ...</blockquote>
+可是四期仔细一想全都是比较有路子的前从业者......
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16865#       发表于 2020-5-3 18:02
+
+
+
+
+炸了炸了 去p站给阿希贡献点人气
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 16866#       发表于 2020-5-3 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通讯录招人，那么luna到底是谁找来的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16867#       发表于 2020-5-3 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47290693&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-05-03 18:02:41</a>
+炸了炸了 去p站给阿希贡献点人气</blockquote>已经好了，就是还顿卡了几下…
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 16868#       发表于 2020-5-3 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47288685&amp;ptid=1924531" target="_blank">NBXX 发表于 2020-5-3 13:51</a>
+
+https://twitter.com/rurudo_/status/1256817837479346176
+
+———————————
+
+要出道了吗（</blockquote>
+还真ytb播了，爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这声音，是犯罪的味道
+
+
+
+
+
+                                     
