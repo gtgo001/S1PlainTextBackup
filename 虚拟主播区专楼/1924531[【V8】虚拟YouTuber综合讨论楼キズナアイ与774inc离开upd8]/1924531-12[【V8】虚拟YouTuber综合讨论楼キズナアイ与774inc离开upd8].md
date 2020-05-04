@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 08:05** 
+> ## **本文件最后更新于2020-05-04 10:06** 
 
 
 
@@ -20110,7 +20110,7 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
  本帖最后由 Alphawalker 于 2020-5-4 00:47 编辑 
 
-<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_B94x4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_MHg6A" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [苏姐](https://twitter.com/SephiraSu/status/1256951380729663488)这个自作3d还蛮好看的，感觉是saine设计服饰太花哨所以直接用新服饰盖过去了
 
 不过saine的推一点也没提到她，全是露露贺图相关，哭力<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
@@ -21174,4 +21174,465 @@ tf这样直球nga转生的新楼友合适吗ww
 
 
 
-            
+
+
+-----
+
+####  シナモンロール  
+##### 17617#       发表于 2020-5-4 08:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295764&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-4 08:02</a>
+
+你那是个jb红魔，真红魔只有利记给爷死派，不行你问问前面那几个
+
+
+  -- 来自 能看大图的 Stage1官方 ...</blockquote>
+屁，我有一朋友也是九年多魔迷了，就属于利物浦拿冠军也是利物浦这两年nb，坚决不能承认曼城这种靠砸钱砸出来的冠军，曼城铁憨憨不接受反驳
+
+
+基本上金元足球对老英超强队的那种自信还是有打击的，自然有很多人认为维持老秩序比“老强队”内斗重要，或者是觉得利物浦可以崛起那曼联也有希望，但如果利物浦崛起失败了可能就真的是食大便了。
+
+
+当然归根结底这是因为目前曼联还没有一个包头巾的爸爸<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 17618#       发表于 2020-5-4 08:18
+
+
+
+
+黑宝快来救救v综v综要被和平演变了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17619#       发表于 2020-5-4 08:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295814&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-05-04 08:16:33</a>
+屁，我有一朋友也是九年多魔迷了，就属于利物浦拿冠军也是利物浦这两年nb，坚决不能承认曼城这种靠砸钱砸 ...</blockquote>曼联从来不是钱的问题，是管理层脑子的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 17620#       发表于 2020-5-4 08:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295852&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-4 08:28</a>
+曼联从来不是钱的问题，是管理层脑子的问题顺便心疼下你朋友，九年前开始看曼联，那真是49年入国军[ ...</blockquote>
+他爸是魔迷.......<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">然后就在你魔撞冰山最后两年入了坑
+
+我13年认识他开始，眼睁睁看着他从<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+实在是太可怜了，不过最惨的还是当年你魔输给桑德兰，我那个朋友跟我说英国有个魔迷跳楼自杀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 17621#       发表于 2020-5-4 08:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">你要让我选择，那肯定是永远选择利物浦没有冠军
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17622#       发表于 2020-5-4 08:37
+
+
+
+
+一觉醒来你楼又咋回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17623#       发表于 2020-5-4 08:40
+
+
+
+
+你甚至能在v综讨论管人
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17624#       发表于 2020-5-4 08:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">10年后开始看英超的肯定是看着曼城一步步变成怪物的，利物浦对曼联根本没威胁，怎么可能对利物浦有什么厌恶感，而且国内的死敌情节基本上是靠球迷社区培养起来的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17625#       发表于 2020-5-4 08:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295909&amp;ptid=1924531" target="_blank">魔法使い2019 发表于 2020-05-04 08:40:28</a>
+你甚至能在v综讨论管人</blockquote>我们表面上说的是曼联，其实是暗喻彩虹，利物浦是四天王曼城是杏，而管理层是弱智那是真的管理层是弱智。不知道这么说能不能忽悠到你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17626#       发表于 2020-5-4 09:03
+
+
+
+
+你们说的这些谁懂阿（恼
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 17627#       发表于 2020-5-4 09:09
+
+
+
+
+谈点管人，星街舰长还剩500。这就是流星吗
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17628#       发表于 2020-5-4 09:12
+
+
+
+
+流星草
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 17629#       发表于 2020-5-4 09:16
+
+
+
+
+500可以了这留存率
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17630#       发表于 2020-5-4 09:18
+
+
+
+
+别太早提留存率
+
+再看下个月剩多少
+
+而且最大头的两个总督全撤了……
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 17631#       发表于 2020-5-4 09:24
+
+
+
+
+你楼是不是对舰长没概念啊
+
+你楼吹吹打打好像杏中国人望第一的阿希连着来p限也就200不到？（前几天看的之前又p限可能又多了）
+
+某初代呜喵王vjuan耐奥祖300多吧
+
+本代呜喵王所谓来国内挣得盆满钵满也就一百多
+
+就这三月一波爆发的一千五百舰也还有五百多，到底是搞错了什么......一千五是当时阿p的t0战力，全区有几个一千五百舰啊
+
+五百舰很能打了，何况阿星俩月才来俩批限一次打块一次猪场乐，还要咋样啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17632#       发表于 2020-5-4 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赚这一波也不亏了好吧，何况星街多久没有B限唱歌了
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 17633#       发表于 2020-5-4 09:25
+
+
+
+ 本帖最后由 如月可由莉 于 2020-5-4 09:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295170&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-4 02:13</a>
+
+既然不想虹人风评被害，那为什么连"就这"都不肯说呢？
+
+又想插一嘴当情强，又不肯完完整整说出来，当谜语人 ...</blockquote>
+就这？还以为有多劲爆呢
+以下内容需要积分高于 20000 才可浏览
+
+NBXX
+
+给人的印象挺好的，现在看这微博号完全变成了开玩笑一样的账号了
+
+少了把diss虹人的刀让事情有点无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17634#       发表于 2020-5-4 09:30
+
+
+
+
+话说舰长的钱是怎么分成的，b站的sc是含税55开我听过。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 17635#       发表于 2020-5-4 09:35
+
+
+
+
+应该和sc一样吧
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 17636#       发表于 2020-5-4 09:36
+
+
+
+
+一样的
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 17637#       发表于 2020-5-4 09:37
+
+
+
+
+一个舰长差不多分100。无公司分成的话
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17638#       发表于 2020-5-4 09:48
+
+
+
+
+那B站星咏者要加油了，星姐是那种累死累活拿不到钱会不开心的类型，“没有钱就什么都做不到”，是真·功利人 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 17639#       发表于 2020-5-4 09:53
+
+
+
+
+只有新舰长是200，续舰只有150吧，如果开了自动续舰的话只有130
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 17640#       发表于 2020-5-4 09:53
+
+
+
+
+人少可能会减少来b频率吧…但最大规模一次上舰也不是来b的时候…
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17641#       发表于 2020-5-4 09:56
+
+
+
+
+总觉得星咏者打钱和星街没什么关系，
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17642#       发表于 2020-5-4 10:01
+
+
+
+
+小羊五号18点b限，这么看会长应该能在5月中旬就来了。
+
+
+
+
+
+           
