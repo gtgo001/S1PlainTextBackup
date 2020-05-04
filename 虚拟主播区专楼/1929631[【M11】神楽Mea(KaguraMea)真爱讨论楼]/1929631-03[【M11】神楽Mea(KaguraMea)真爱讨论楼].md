@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 22:08** 
+> ## **本文件最后更新于2020-05-05 00:08** 
 
 
 
@@ -2250,4 +2250,2410 @@ mea的英文基本都是用日文念法吧<img src="https://static.saraba1st.com
 
 
 
-                                             
+
+
+-----
+
+####  古战场亡魂  
+##### 3137#       发表于 2020-5-4 22:09
+
+
+
+
+直播间卡疯了，mea歌词也卡了。
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3138#       发表于 2020-5-4 22:09
+
+
+
+
+？这首你以前不是很拿手的吗？今天比起昨天晚上简直不能想象是一个人唱的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3139#       发表于 2020-5-4 22:10
+
+
+
+
+今天是点歌，点歌是坏文明
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3140#       发表于 2020-5-4 22:11
+
+
+
+
+说明换人了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3141#       发表于 2020-5-4 22:12
+
+
+
+
+？？？？？？？？？？？？？？？？？？？？？？？？？？？？？ 
+
+脱粉了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3142#       发表于 2020-5-4 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3143#       发表于 2020-5-4 22:12
+
+
+
+
+艹
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3144#       发表于 2020-5-4 22:12
+
+
+
+
+我TM。。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3145#       发表于 2020-5-4 22:12
+
+
+
+
+草，mea变味了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3146#       发表于 2020-5-4 22:12
+
+
+
+
+尝试调音.jpg
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3147#       发表于 2020-5-4 22:13
+
+
+
+
+艹，哪来的这么多人卡死了，这人也开始整活了，可惜我还打算一边做工作一边当bgm呢
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 3148#       发表于 2020-5-4 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3149#       发表于 2020-5-4 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全麻
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3150#       发表于 2020-5-4 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3151#       发表于 2020-5-4 22:13
+
+
+
+
+这病名为爱唱到我掉san了。
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3152#       发表于 2020-5-4 22:13
+
+
+
+
+刚想说没原来给劲了
+
+但是她学会了加特效
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3153#       发表于 2020-5-4 22:13
+
+
+
+
+我TM人裂开，这个混响是什么东西
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3154#       发表于 2020-5-4 22:14
+
+
+
+
+村口广播啊……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3155#       发表于 2020-5-4 22:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3156#       发表于 2020-5-4 22:14
+
+
+
+
+？！
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3157#       发表于 2020-5-4 22:15
+
+
+
+
+论科技对人类生活带来的影响<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 3158#       发表于 2020-5-4 22:15
+
+
+
+
+三重混响，我死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3159#       发表于 2020-5-4 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她玩起来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3160#       发表于 2020-5-4 22:15
+
+
+
+
+我tm
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3161#       发表于 2020-5-4 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们不是喜欢点吗？我唱给你们听啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3162#       发表于 2020-5-4 22:21
+
+
+
+
+我们二次元不懂什么日语歌流行的， 只懂动漫歌曲的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3163#       发表于 2020-5-4 22:22
+
+
+
+
+flamingo（察觉）
+
+她还在疯狂按键盘，我怀疑这波是搜视频假唱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+竟然不是
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3164#       发表于 2020-5-4 22:23
+
+
+
+
+这什么伴奏，我裂开了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3165#       发表于 2020-5-4 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">谁tm点flamingo，以前那个伴奏不可能拿出来用了，这种神秘伴奏没法唱啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3166#       发表于 2020-5-4 22:24
+
+
+
+
+什么时候她来b限敢用原始伴奏。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3167#       发表于 2020-5-4 22:25
+
+
+
+
+刻在dna里的版权规避，我佛了
+
+
+
+
+
+
+
+-----
+
+####  sunisover2000  
+##### 3168#       发表于 2020-5-4 22:26
+
+
+
+
+晦气
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3169#       发表于 2020-5-4 22:26
+
+
+
+
+草？
+
+组团刷咩
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3170#       发表于 2020-5-4 22:27
+
+
+
+
+不对劲，这是阿b的要求么？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3171#       发表于 2020-5-4 22:28
+
+
+
+
+真点啥唱啥草
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3172#       发表于 2020-5-4 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算了算了，未必是坏事？虽然我也不爱看这样的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 3173#       发表于 2020-5-4 22:29
+
+
+
+
+咩真是单线程啊，摇头了歌就不会唱了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3174#       发表于 2020-5-4 22:29
+
+
+
+
+最起码只有一会儿，挺不错了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3175#       发表于 2020-5-4 22:29
+
+
+
+
+有点烦，算了算了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3176#       发表于 2020-5-4 22:29
+
+
+
+
+#皇，，，，，，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3177#       发表于 2020-5-4 22:29
+
+
+
+
+摇晃纸片人看来是体力活。
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 3178#       发表于 2020-5-4 22:29
+
+
+
+
+井皇还没完了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3179#       发表于 2020-5-4 22:30
+
+
+
+
+没招，自己来互动也没法杀刷的，，，
+
+也不知道咋回事，，，
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 3180#       发表于 2020-5-4 22:31
+
+
+
+
+神保町哀歌，咩应该没练过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3181#       发表于 2020-5-4 22:31
+
+
+
+
+你麻赶快整几首正常点的就行了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3182#       发表于 2020-5-4 22:31
+
+
+
+
+emmmmm，有点不对劲……
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3183#       发表于 2020-5-4 22:32
+
+
+
+
+我的卡古拉妹呀唱歌不可能这么像尼哥<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3184#       发表于 2020-5-4 22:32
+
+
+
+
+秋梨膏，唱点正常的吧……
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 3185#       发表于 2020-5-4 22:34
+
+
+
+
+她是在看点歌啊 快去发弹幕
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3186#       发表于 2020-5-4 22:38
+
+
+
+
+神保町哀歌能点出来我是不信的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3187#       发表于 2020-5-4 22:39
+
+
+
+
+她看没看小邪神都是个问题……
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3188#       发表于 2020-5-4 22:40
+
+
+
+ 本帖最后由 素人不相识 于 2020-5-4 22:41 编辑 
+
+怎么弹幕尽点些怪歌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3189#       发表于 2020-5-4 22:40
+
+
+
+
+确实，她这每次都念得特像money
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3190#       发表于 2020-5-4 22:41
+
+
+
+<blockquote>nightmare902015 发表于 2020-5-4 22:40
+确实，她这每次都念得特像money</blockquote>
+不用像，她念的就是money
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3191#       发表于 2020-5-4 22:42
+
+
+
+
+u1s1，今天的高难度歌真不少<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3192#       发表于 2020-5-4 22:44
+
+
+
+
+按照习惯，前面整活，要下了才会开始好好唱（
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3193#       发表于 2020-5-4 22:45
+
+
+
+
+主要是那些歌虽然难但你也不是唱不来，但连续狂翻就总感觉……很急。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3194#       发表于 2020-5-4 22:46
+
+
+
+ 本帖最后由 离心 于 2020-5-4 22:48 编辑 
+
+紫菜了，忘了是点歌了，孩子开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3195#       发表于 2020-5-4 22:46
+
+
+
+
+都说了今天是点歌，伴奏都是现搜的，70w那一看就是提前准备了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3196#       发表于 2020-5-4 22:47
+
+
+
+
+算了，孩子开心，有钱拿就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3197#       发表于 2020-5-4 22:47
+
+
+
+
+不是提前准备的歌忘掉一点很正常啊，自己去ktv也不敢说全唱对
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3198#       发表于 2020-5-4 22:52
+
+
+
+
+我还以为神保町哀歌是日本传统老歌来着的诶
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3199#       发表于 2020-5-4 22:52
+
+
+
+
+卧槽这也太来劲了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3200#       发表于 2020-5-4 22:53
+
+
+
+
+这嚎一嗓子挺有张力的，好
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3201#       发表于 2020-5-4 22:53
+
+
+
+
+话说这个点的娱乐榜也太神仙打架了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3202#       发表于 2020-5-4 22:53
+
+
+
+
+来感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3203#       发表于 2020-5-4 22:53
+
+
+
+
+好起来了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3204#       发表于 2020-5-4 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始好好唱了，要结束了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3205#       发表于 2020-5-4 22:54
+
+
+
+
+又被净化了，爽了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3206#       发表于 2020-5-4 22:57
+
+
+
+
+天乐
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3207#       发表于 2020-5-4 22:58
+
+
+
+
+高难度曲太多了吧，喉咙没问题么
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 3208#       发表于 2020-5-4 22:58
+
+
+
+
+火力全开,没问题的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3209#       发表于 2020-5-4 23:00
+
+
+
+
+我还是挺想她唱成为笨蛋的，就是感觉不合适，估计她也忘了咋唱了
+
+
+这首天乐是真的nb
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3210#       发表于 2020-5-4 23:01
+
+
+
+
+这个黄金周玩的真是开心
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3211#       发表于 2020-5-4 23:02
+
+
+
+
+不合适倒是没有，但忘了咋唱应该是没错
+
+还是很喜欢她唱成为笨蛋的
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 3212#       发表于 2020-5-4 23:04
+
+
+
+
+拟剧论大部分比以前好很多了，就是这两句<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3213#       发表于 2020-5-4 23:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+大可爱大可爱大可爱大可爱大可爱大可爱
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3214#       发表于 2020-5-4 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3215#       发表于 2020-5-4 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3216#       发表于 2020-5-4 23:12
+
+
+
+
+娱乐区榜二你咩姐在口胡唱歌，娱乐区榜一在大谈成功学、疫情风口，批站这也太魔幻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+大家都有着光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3217#       发表于 2020-5-4 23:14
+
+
+
+
+现在是连唱环节，不口胡了，但她失去了榜二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3218#       发表于 2020-5-4 23:17
+
+
+
+
+别做数字厨了听歌不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3219#       发表于 2020-5-4 23:17
+
+
+
+
+好听！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3220#       发表于 2020-5-4 23:18
+
+
+
+
+🉑
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3221#       发表于 2020-5-4 23:19
+
+
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3222#       发表于 2020-5-4 23:20
+
+
+
+
+天之弱来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3223#       发表于 2020-5-4 23:21
+
+
+
+
+good
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3224#       发表于 2020-5-4 23:21
+
+
+
+
+大家都在认真听歌啊打钱的鸡血劲已经过完了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，认真听歌不好吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3225#       发表于 2020-5-4 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3226#       发表于 2020-5-4 23:21
+
+
+
+
+慢节奏的也太工毛了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3227#       发表于 2020-5-4 23:23
+
+
+
+
+这首天之弱好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3228#       发表于 2020-5-4 23:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这慢版的天之弱都能听到哭腔了甚至，彻底好了
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3229#       发表于 2020-5-4 23:23
+
+
+
+
+艹………哭了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3230#       发表于 2020-5-4 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  闪刀姬  
+##### 3231#       发表于 2020-5-4 23:24
+
+
+
+
+好听
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 3232#       发表于 2020-5-4 23:24
+
+
+
+
+好听
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 3233#       发表于 2020-5-4 23:25
+
+
+
+
+呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3234#       发表于 2020-5-4 23:25
+
+
+
+
+戴上耳机：好听
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3235#       发表于 2020-5-4 23:26
+
+
+
+
+好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3236#       发表于 2020-5-4 23:26
+
+
+
+
+只想再听一遍不拉垮版的月兔
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3237#       发表于 2020-5-4 23:26
+
+
+
+
+跟女朋友跟你闹完后躺你怀里睡着了一样的感觉，我真kimo<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3238#       发表于 2020-5-4 23:28
+
+
+
+
+今天一整天听爽了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3239#       发表于 2020-5-4 23:29
+
+
+
+
+女朋友跟你闹完后躺你怀里睡着了一样的感觉是什么样的感觉
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3240#       发表于 2020-5-4 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">闹完还躺一起说明你至少付出了一支口红什么的
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3241#       发表于 2020-5-4 23:29
+
+
+
+
+声音没她甜，想象不出来
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3242#       发表于 2020-5-4 23:31
+
+
+
+
+节奏把控的真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3243#       发表于 2020-5-4 23:31
+
+
+
+
+有点累了，现在是抒情歌连发的时间
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3244#       发表于 2020-5-4 23:31
+
+
+
+
+这女人唱歌真清楚啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3245#       发表于 2020-5-4 23:32
+
+
+
+
+抒情歌回二回来了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 3246#       发表于 2020-5-4 23:37
+
+
+
+
+好<img src="https://static.saraba1st.com/image/smiley/carton2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3247#       发表于 2020-5-4 23:38
+
+
+
+
+要落泪了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3248#       发表于 2020-5-4 23:40
+
+
+
+
+我被净化了
+
+
+我要当个好人（限时<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3249#       发表于 2020-5-4 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3250#       发表于 2020-5-4 23:41
+
+
+
+
+？？。。。啊，
+
+
+我的青春<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3251#       发表于 2020-5-4 23:42
+
+
+
+
+还行
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3252#       发表于 2020-5-4 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3253#       发表于 2020-5-4 23:42
+
+
+
+
+希区柯克唱法变了
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 3254#       发表于 2020-5-4 23:42
+
+
+
+
+上一首挺好听，以前有唱过吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3255#       发表于 2020-5-4 23:42
+
+
+
+
+啊，泪目
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3256#       发表于 2020-5-4 23:42
+
+
+
+
+。。。怎么都想说这句话，我也是
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3257#       发表于 2020-5-4 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">无言
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3258#       发表于 2020-5-4 23:43
+
+
+
+
+不见当年千里酱
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3259#       发表于 2020-5-4 23:43
+
+
+
+ 本帖最后由 素人不相识 于 2020-5-4 23:45 编辑 
+
+终于又唱这首的这个版本了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我的入坑曲
+
+syl,好像稍微比那个快些
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3260#       发表于 2020-5-4 23:43
+
+
+
+
+有希区柯克PTSD吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3261#       发表于 2020-5-4 23:43
+
+
+
+
+唱累了之后有点内味儿了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3262#       发表于 2020-5-4 23:44
+
+
+
+<blockquote>肚子疼了 发表于 2020-5-4 23:42
+上一首挺好听，以前有唱过吗</blockquote>
+夏令时记录，咩姐好像唱过快版的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|谢了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3263#       发表于 2020-5-4 23:44
+
+
+
+
+md希区柯克听的好好的，突然斧子哥来了然后还有人对线<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">能不能别这么出戏，好好听歌嘛
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3264#       发表于 2020-5-4 23:44
+
+
+
+
+气声加哭腔，我被净化了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3265#       发表于 2020-5-4 23:46
+
+
+
+
+Hitchcock之前官组剪的那个我觉得是无法超越的，情绪状态不可能回到当时那个状态了，毕竟好起来了。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3266#       发表于 2020-5-4 23:47
+
+
+
+
+发个想结婚就能被读sc吗，酸了酸了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3267#       发表于 2020-5-4 23:47
+
+
+
+
+感觉又回到了刚入v坑的时候了，对vtuber的期待，不知道什么塔。每天都期待mea能整什么活。现在都回来了。谢谢mea
+
+
+
+
+
+
+
+-----
+
+####  Jo鸽  
+##### 3268#       发表于 2020-5-4 23:48
+
+
+
+
+hitchcock真好啊真好啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3269#       发表于 2020-5-4 23:50
+
+
+
+
+拉胯
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3270#       发表于 2020-5-4 23:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47304647&amp;ptid=1929631" target="_blank">离心 发表于 2020-5-4 23:47</a>
+
+感觉又回到了刚入v坑的时候了，对vtuber的期待，不知道什么塔。每天都期待mea能整什么活。现在都回来了。谢 ...</blockquote>
+真的是，饶了好远的路啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">谢谢你，mea
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3271#       发表于 2020-5-4 23:54
+
+
+
+
+还有弹幕问这么晚睡没问题吗， 有笑到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3272#       发表于 2020-5-4 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">地球最后的告白
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 3273#       发表于 2020-5-4 23:55
+
+
+
+
+不要变成橙汁了啊
+我不接受补完
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3274#       发表于 2020-5-4 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47304701&amp;ptid=1929631" target="_blank">静夜观星 发表于 2020-5-4 23:54</a>
+
+真的是，饶了好远的路啊谢谢你，mea</blockquote>
+jo7的梗用在这里可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3275#       发表于 2020-5-4 23:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 3276#       发表于 2020-5-4 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47304182&amp;ptid=1929631" target="_blank">静夜观星 发表于 2020-5-4 23:12</a>
+
+娱乐区榜二你咩姐在口胡唱歌，娱乐区榜一在大谈成功学、疫情风口，批站这也太魔幻了
+
+大家都有着光明 ...</blockquote>
+榜一这位是什么人啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3277#       发表于 2020-5-5 00:01
+
+
+
+
+榜一好像是鞋圈的，然后上舰的可以有福利，所以很多人上舰。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3278#       发表于 2020-5-5 00:02
+
+
+
+
+这啊啊啊啊的smjb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 3279#       发表于 2020-5-5 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47304771&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-5 00:02</a>
+
+这啊啊啊啊的smjb</blockquote>
+日常瞎J8唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3280#       发表于 2020-5-5 00:05
+
+
+
+
+随便发了个彗星蜜月竟然点到了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3281#       发表于 2020-5-5 00:05
+
+
+
+
+又来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3282#       发表于 2020-5-5 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">正在跟沙雕群友吹比聊米津玄师，mea就唱海之幽灵，这波事我汗mea贴贴
+
+
+贴完了就彗星蜜月<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                        

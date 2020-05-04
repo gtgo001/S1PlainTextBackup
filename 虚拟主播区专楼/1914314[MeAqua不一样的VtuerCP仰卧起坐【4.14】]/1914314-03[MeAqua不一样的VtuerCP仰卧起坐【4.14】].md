@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-03 06:01** 
+> ## **本文件最后更新于2020-05-05 00:02** 
 
 
 
@@ -11984,7 +11984,7 @@ md不该进你楼，又了解到大天使的直播内容了，我自裁<img src=
 <img src="https://img.saraba1st.com/forum/202005/03/010656bknnzmnnnjoh6rmb.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200503010608.png</strong> (375.09 KB, 下载次数: 1)
+<strong>QQ截图20200503010608.png</strong> (375.09 KB, 下载次数: 2)
 
 下载附件
 
@@ -12144,4 +12144,596 @@ b博都复刻过了
 
 
 
-                           
+
+
+-----
+
+####  noaki  
+##### 3663#       发表于 2020-5-3 12:45
+
+
+
+ 本帖最后由 noaki 于 2020-5-3 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47285682&amp;ptid=1914314" target="_blank">ashero 发表于 2020-5-3 01:25</a>
+能看到萌萌贴贴人跳脚足以称为一件大乐事</blockquote>
+想多了，萌萌贴贴人都是''杂食''性的，哪会因为这个跳脚。要说跳，当然还是得那些除了meaqua见不得两人其它''cp''好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这群人你楼有一部分，在你楼对立面里有另一部分。
+
+
+虽然我估计这次他们的的反应就不会有前几次大了，但我还是很期待的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3664#       发表于 2020-5-3 15:12
+
+
+
+
+这才是meaqua的乐趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3665#       发表于 2020-5-3 15:39
+
+
+
+
+有点怪<img src="https://p.sda1.dev/0/70c2856106100d7710e31e273e604624/IMG_8E040B2A8381D560EDAAD8B75432FDE6.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3666#       发表于 2020-5-3 16:29
+
+
+
+
+不怪，是我和羊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3667#       发表于 2020-5-3 16:29
+
+
+
+
+你想说什么
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3668#       发表于 2020-5-3 21:38
+
+
+
+
+大概率是随便点了张萌图配着发的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3669#       发表于 2020-5-3 21:59
+
+
+
+
+P2居然降了这么多......妈的，黑暗贴贴人我杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/03/215903u652gys0q0eis600.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-03 215720.png</strong> (19.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-3 21:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3670#       发表于 2020-5-3 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">p2有什么看头啊，又不在同一路又打得憋屈，聊天都被游戏干扰了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3671#       发表于 2020-5-3 22:10
+
+
+
+
+怎么就不能是贴贴人开始长梁木了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3672#       发表于 2020-5-3 22:18
+
+
+
+
+b站系列视频的规律就是越到后面点击越少，这个没必要长梁木
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3673#       发表于 2020-5-3 22:25
+
+
+
+
+梁木也要顾及质量啊， 不能乱种
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3674#       发表于 2020-5-4 19:42
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 19:51 编辑 
+
+种下一个种子，长出一棵大树
+
+<img src="https://img.saraba1st.com/forum/202005/04/193956xwatff9spm61a2ub.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-04 193433.png</strong> (221.33 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-4 19:39 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/193943eswuk0wiu4hiiswb.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-04 192133.png</strong> (62.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 19:39 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/195129yo68vq6vy55ejq5q.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-04 195041.png</strong> (294.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 19:51 上传
+
+
+
+
+
+
+今天棉花糖要是烤熟了一定要去看哦，还有好多惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3675#       发表于 2020-5-4 19:43
+
+
+
+
+如果夸夸能yygq连体民我以后就是铁血crew了（
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3676#       发表于 2020-5-4 19:45
+
+
+
+
+挺好挺好，一边在直球杀贴贴人一边yygq贴贴人，meaqua永不败北！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3677#       发表于 2020-5-4 19:47
+
+
+
+
+两边都在yygq贴贴人，是糖<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3678#       发表于 2020-5-4 19:50
+
+
+
+
+？？？ 真的yygq了？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3679#       发表于 2020-5-4 19:53
+
+
+
+
+让我看直播不如杀了我
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3680#       发表于 2020-5-4 19:57
+
+
+
+
+有无细说的，让我云一下好吗，实在不想看隔壁
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3681#       发表于 2020-5-4 19:58
+
+
+
+
+是棉花糖说中国这边女孩子关系好连拉屎都会一起去，她说拉屎还是不太想和人一起去那个？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3682#       发表于 2020-5-4 19:59
+
+
+
+
+？。。。
+
+
+会吗？。。。。
+
+
+我不太了解女孩子，，，
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3683#       发表于 2020-5-4 20:02
+
+
+
+
+唔，是指上厕所一起上的意思吧，能不能有个report实在是不想去看亏神直播，抹布洗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3684#       发表于 2020-5-4 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47293152&amp;ptid=1914314" target="_blank">2014720 发表于 2020-5-3 21:59</a>
+
+P2居然降了这么多......妈的，黑暗贴贴人我杀了你</blockquote>
+你去看看当初的mc连续剧，播放降得更厉害。
+
+b站无论什么连续更新性质的视频，播放量都会大体从第一期或者爆火的那一期沿着时间轴降低。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3685#       发表于 2020-5-4 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47301648&amp;ptid=1914314" target="_blank">Cla0221 发表于 2020-5-4 20:03</a>
+你去看看当初的mc连续剧，播放降得更厉害。
+
+b站无论什么连续更新性质的视频，播放量都会大体从第一期或者 ...</blockquote>
+顺劈一下黑暗贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3686#       发表于 2020-5-4 20:06
+
+
+
+
+会，但仅限于一起去厕所的路上聊聊天，然后在厕所门口互相等，没有想象中的有空一起拉屎那么恶心<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 3687#       发表于 2020-5-4 20:13
+
+
+
+
+还是缺乏爆点，印象里夸的mc冒险系列就不是这个趋势
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3688#       发表于 2020-5-4 20:13
+
+
+
+
+贴贴民好喜欢钓糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3689#       发表于 2020-5-4 20:48
+
+
+
+
+你们想个好的，说不定是mk2发的棉花糖。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3690#       发表于 2020-5-4 22:49
+
+
+
+
+怎么我印象里女生一起跑去上厕所是日本那边的习惯……
+
+
+还是说这也是共通的
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3691#       发表于 2020-5-4 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47303863&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-5-4 22:49</a>
+
+怎么我印象里女生一起跑去上厕所是日本那边的习惯……
+
+
+还是说这也是共通的 ...</blockquote>
+一起上厕所这没什么吧，一起逛街的话总不可能扔下一个人自己找厕所，到厕所门口的话，来都来了
+
+
+也不只女生这样吧，人是集群动物，一起做某事就有一起上厕所的可能
+
+秀吉不也和家康一起x（
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 3692#       发表于 2020-5-4 23:33
+
+
+
+ 本帖最后由 如月可由莉 于 2020-5-4 23:38 编辑 
+<blockquote>舰艇损害管制 34501370 声望: DD 威望: 学徒 注册: 15-01-16 
+
+2020-05-04 19:36 ★  ⚙ 
+
+ ⯅ 13 ⯆ 
+
+
+这话题好怪哦，有空一起拉屎.jpg
+
+有棉花糖说中国这边女孩子间关系好会经常一起行动，连摘花也一起
+
+问阿夸日本那边会不会这样
+
+
+阿夸说不喜欢厕所的味道，不想和人一起去臭的地方影响心情
+
+以前同级生里也确实有喜欢黏在一起的女孩子，突然楼上来，像信姬犬山(？)那样的
+
+构图和某个meaqua图差不多，本来想找一张挽着手的，找了张瓦瓦子画的睡在一起的
+
+很憧憬关系好的女孩子一起住在同一个宿舍里那种感觉</blockquote>
+翻了下nga贴贴楼的repo，所以所谓的yygq就是夸对厕所气味的一些看法么。
+
+本来想到夸楼找其他视角的repo来云的，结果nga夸楼当时就因为一个厕所问题就打起来了…
+
+
+
+
+
+                          
