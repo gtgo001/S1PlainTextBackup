@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 10:06** 
+> ## **本文件最后更新于2020-05-04 12:05** 
 
 
 
@@ -20110,7 +20110,7 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
  本帖最后由 Alphawalker 于 2020-5-4 00:47 编辑 
 
-<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_MHg6A" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_yo7bF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [苏姐](https://twitter.com/SephiraSu/status/1256951380729663488)这个自作3d还蛮好看的，感觉是saine设计服饰太花哨所以直接用新服饰盖过去了
 
 不过saine的推一点也没提到她，全是露露贺图相关，哭力<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
@@ -20160,10 +20160,11 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
 
 
- 参与人数 2战斗力 +3
+ 参与人数 3战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 暴走的包子| + 1|都不容易|
 | stedckk| + 1|魔迷来了，现在这批年轻人还是有希望的.|
 | Devi_Lito| + 2|同为魔迷，这两年都不敢穿曼联球衣出门了。.|
 
@@ -21635,4 +21636,968 @@ NBXX
 
 
 
-           
+
+
+-----
+
+####  艾特娜  
+##### 17643#       发表于 2020-5-4 10:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿道以前在楼里出现也不少啊哪里是新楼友，而且跟2000一样老把差不多的话两边发一遍
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 17644#       发表于 2020-5-4 10:11
+
+
+
+ 本帖最后由 寒星 于 2020-5-4 10:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296205&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-4 09:30</a>
+话说舰长的钱是怎么分成的，b站的sc是含税55开我听过。
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+普通未签约是不含税五五开，一个舰长到手不到80，签约就不知道了，含税减税的说法都有，像这种企业的话，一个舰长能拿40元差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17645#       发表于 2020-5-4 10:35
+
+
+
+
+小天使直播表五号写了个“会员解禁！”，但是后面又加了个？就很迷惑。
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 17646#       发表于 2020-5-4 10:40
+
+
+
+ 本帖最后由 包之沐白 于 2020-5-4 10:46 编辑 
+
+记得高小姐说了和阿b五五开，md还不止，黑啊。签约会有时长要求和底薪吧，所以高小姐签约还没过？
+
+<img src="https://img.saraba1st.com/forum/202005/04/104411fsow0n0o30r2rp6e.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200504104344.png</strong> (752.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 10:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17647#       发表于 2020-5-4 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296730&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-4 10:35</a>
+
+小天使直播表五号写了个“会员解禁！”，但是后面又加了个？就很迷惑。</blockquote>
+！？表示惊讶吧，没什么别的意思。
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 17648#       发表于 2020-5-4 10:50
+
+
+
+
+b站在直播平台里面算好的了，说b站黑还行
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17649#       发表于 2020-5-4 10:54
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1geg8athe55j20gq06g74w.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17650#       发表于 2020-5-4 10:54
+
+
+
+
+画的好不如有梗：
+
+<img src="https://img.saraba1st.com/forum/202005/04/105449ox906qekxhh6x2x9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWf0GYoVcAASY8p.jpg</strong> (741.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 10:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 17651#       发表于 2020-5-4 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296768&amp;ptid=1924531" target="_blank">包之沐白 发表于 2020-5-4 10:40</a>
+记得高小姐说了和阿b五五开，md还不止，黑啊。签约会有时长要求和底薪吧，所以高小姐签约还没过？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道为啥拖这么久
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17652#       发表于 2020-5-4 10:59
+
+
+
+
+最新版权力斗争：[https://hololive.doujin-event.com/](https://hololive.doujin-event.com/)
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/105944ug477o4m2me72mbz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200504105704.jpg</strong> (1.91 MB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 10:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 17653#       发表于 2020-5-4 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296859&amp;ptid=1924531" target="_blank">连清人 发表于 2020-5-4 10:50</a>
+
+b站在直播平台里面算好的了，说b站黑还行</blockquote>
+斗鱼以前100拿20，不知道现在怎么样
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 17654#       发表于 2020-5-4 11:02
+
+
+
+ 本帖最后由 包之沐白 于 2020-5-4 11:07 编辑 
+
+<img src="https://hololive.doujin-event.com/wp-content/uploads/2020/02/cropped-hololive_rgb_web.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/CasinoEP/status/1256331637534539778](https://twitter.com/CasinoEP/status/1256331637534539778)
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/110732drsrsx31uu3cza1d.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200504110614.png</strong> (371.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 11:07 上传
+
+
+
+
+
+
+纯粹人家个人喜好？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17655#       发表于 2020-5-4 11:04
+
+
+
+
+mysk已经悄咪咪摸到空妈脚下，兔皇也开始追船长，不过这个PP天使有点奇妙
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17656#       发表于 2020-5-4 11:04
+
+
+
+
+四期生位置竟然给了小天使没给龙皇，我估计是考虑龙皇直播内容过于危险的原因？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17657#       发表于 2020-5-4 11:05
+
+
+
+
+说起来yagoo真有信心10月份日本疫情可以缓解？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17658#       发表于 2020-5-4 11:05
+
+
+
+
+奇怪的企划增加了
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/110545hez560tf5plfxety.png" referrerpolicy="no-referrer">
+
+
+<strong>1588561424998.png</strong> (446.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 11:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17659#       发表于 2020-5-4 11:13
+
+
+
+
+这图我记得两三个月前就见过了。那时兔皇订阅还没超过团长。不过兔皇核心还是能感受得出来的。至于小天使，杏放在同期第一个出道的还是能感受到核心意味的。不过龙皇不可预测得强大。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17660#       发表于 2020-5-4 11:17
+
+
+
+
+这企划搞过的也不少了……
+
+
+不过会有女粉的房间照片吗
+
+
+女生宿舍.jpg
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17661#       发表于 2020-5-4 11:18
+
+
+
+
+与其说龙皇不可预测，不如说龙皇跟其他人就不是一个画风的。。虽然大家知道四期核心肯定是龙皇，不过宣传画嘛，还是要考虑形象的（
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17662#       发表于 2020-5-4 11:19
+
+
+
+
+10月…现在5月，还有5个月，嘛，要有自信_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17663#       发表于 2020-5-4 11:25
+
+
+
+
+夸皇这是放弃GW的节奏了？
+
+整个GW就播了一个FF耐久最高同接还只有1W出头
+
+
+
+
+
+
+
+-----
+
+####  Mawile  
+##### 17664#       发表于 2020-5-4 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296859&amp;ptid=1924531" target="_blank">连清人 发表于 2020-5-4 10:50</a>
+
+b站在直播平台里面算好的了，说b站黑还行</blockquote>
+B站直播区应该是最黑的，不然为什么B站直播区那么多人往外跑。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17665#       发表于 2020-5-4 11:26
+
+
+
+
+除了二期都是双奥古斯都制，一个皇负责内政外交，一个皇负责打数字。二期年龄最大的那个数字太低+真实自闭，没办法。
+
+PS：
+
+一期是二合一，mel摸了没办法。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17666#       发表于 2020-5-4 11:27
+
+
+
+
+阿希吐槽404砍掉了一半的广告收入 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  什么叫世界第一互联网企业啊（战术后仰
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17667#       发表于 2020-5-4 11:29
+
+
+
+ 本帖最后由 the_cook 于 2020-5-4 11:33 编辑 
+
+B站现在不也依样画葫芦搞起来了么。不过B站的观众结构转型菠菜平台有点困难。syl，就V圈那点击广告收入占比应该很低。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17668#       发表于 2020-5-4 11:31
+
+
+
+
+那海苔男惨了233
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17669#       发表于 2020-5-4 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297080&amp;ptid=1924531" target="_blank">无限舰制 发表于 2020-5-4 11:17</a>
+
+这企划搞过的也不少了……
+
+
+不过会有女粉的房间照片吗</blockquote>
+你在想些什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17670#       发表于 2020-5-4 11:33
+
+
+
+
+懂了，黑宝的房间很整洁
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 17671#       发表于 2020-5-4 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295194&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-4 02:19</a>
+
+博格巴现在出手卖不了大价钱最好还是留下吧，其实我挺期待他跟b费组合产生化学反应的。
+
+
+三 ...</blockquote>
+反正之前哈拉德已经把脸都打肿了，看桑乔在多特的表现我觉得肯定是能挖就得挖，与其担心太贵不如担心人家是不是“儿魔梦”愿不愿意来。。
+
+
+主要桑乔年龄真的小，挖过来就算不太合适也能像卢克肖一样培养几年，只要不像德佩那样心态爆炸的话都有的救。真挖个桑切斯这样的28熟男过来不行就真的烂手里了。所以说当初幸好管理层没听穆里尼奥把佩里西奇和托比买过来，不然的话现在阵容更加惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17672#       发表于 2020-5-4 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297245&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-4 11:32</a>
+
+你在想些什么啊这种企划真的有人会把自然乱的房间放出来吗</blockquote>
+我见过的没刻意去摆但确实很乱的不少啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17673#       发表于 2020-5-4 11:36
+
+
+
+
+原来404的广告分成是55%，不知道是404把广告分成砍到25%了，还是广告商集体施压把广告价格降了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+感觉全产业链都要给404舔鞋，就广告商是404爸爸
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 17674#       发表于 2020-5-4 11:36
+
+
+
+ 本帖最后由 Devi_Lito 于 2020-5-4 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295912&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-4 08:40</a>
+
+10年后开始看英超的肯定是看着曼城一步步变成怪物的，利物浦对曼联根本没威胁，怎么可能对利物浦有 ...</blockquote>
+那不一样，让曼联球迷选肯定是宁可曼城再拿个三连冠也不愿意利物浦拿一个联赛冠军。曼城反正联赛已经拿了不少了，利物浦可是0到1的突破，两者性质差太多。曼城的金元足球我觉得没啥好喷的，真请来中东土豪做自己球队的老板大部分球迷肯定还是觉得“真香”。
+
+
+另外国内外体育论坛里面利物浦球迷比曼城球迷多太多了，利物浦真拿了联赛冠军曼联球迷肯定要被膈应死。反正大部分球迷的心态就是“要低谷大家一起低谷，我嘲笑不了你你也嘲笑不了我，这是可以接受的”，被单方面踩在脚下那是不能忍的，所以绝对不希望利物浦拿联赛冠军，上赛季末曼联球迷可都是支持曼城夺冠的。
+
+
+（强行）回到管人：所以我觉得部分虹人(太监)的心态是宁可V圈爆炸，虹 杏最高同接都回到四位数，也不愿意看到杏的同接这么压虹一头的，不患寡而患不均嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17675#       发表于 2020-5-4 11:36
+
+
+
+
+房间整洁无异味，不是伪娘就是gay！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17676#       发表于 2020-5-4 11:37
+
+
+
+
+虽然但是，根据在大学的见识，是女生宿舍比较脏乱差一点。
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 17677#       发表于 2020-5-4 11:37
+
+
+
+
+b站直播原来算黑的吗？不是其他平台主播只能拿两成吗？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17678#       发表于 2020-5-4 11:41
+
+
+
+
+看抽成还行，但是不知道签约工资有多少啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17679#       发表于 2020-5-4 11:41
+
+
+
+
+看了下斗鱼基础分成好像也是5/5，但是你加了工会就不好说了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17680#       发表于 2020-5-4 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希视频播放量月增刚好是本社杏女中间值，还有广告收入似乎说明大部分杏女的频道还不错哦
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17681#       发表于 2020-5-4 11:42
+
+
+
+
+其实客观来说的话，不得不承认彩虹老害都有丶冠军粉的成分在里面，毕竟19年高歌猛进当了一整年冠军，人都是有虚荣心、优越感之类的东西，虽然这不好但必须承认这是有的，我想这点多数人也能理解。
+
+当初V综不管是不是虹人都用数字踩一脚杏，结果也就两三个月的时间情况就有些沧海桑田的感觉，这段时间在我的视野内，对杏梁木大增的彩虹老害确实不少，云P黑屁浓度也增加。在这么个不大的圈子里，现状对粉丝的影响是非常直观且实时的。
+
+不过老害越发魔怔对环境来说其实未必都是坏事，就像我之前说的，这批人基本都被关在Q群里了，也都懒得去公共论坛倒屎。
+
+=========================
+
+阿道的彩虹原地爆炸祈愿，也得承认在老害内部也是经常会被拿出来口嗨的东西。当然真心这么希望的人还是极少数，倒不如说这个东西从18年以来就有，而最早真心实意这么说的那批人大部分早就退坑了。
+
+昨天还在V综群里跟人讨论过所谓“个人势”的问题。曾经看过一个业内说，“终究是个人势最强”。当然，显而易见的是个人势的上限绝对比企业势低很多的。但是很多层面上，个人势可能是最为持久的，对于粉丝来说推的也是最为安心的。
+
+比起推个每天都要担心会不会被草台骚操作原地爆炸的企业势（曾经最为保守所以也最让人安心的点弟弟、曾经以为最有钱最强所以不会出事的爱始皇、游戏部都逃不过），显然个人势的粉丝心态多数情况下更为健康，毕竟只要推想做就能永远做下去，别的也都不用担心，无论发生什么都是推自己做出的选择，尊重并支持即可。
+
+即便谈到上限，混到茄子、mea那种水平，开个小场子个人live也是负担得起的，也不愁没人捧场，更不用担心哪天就过气到吃不上饭，这种可能性基本不存在。对于一名主播来说能做的事，混到个人势TOP都能做到，个人势展现出来的可能性我觉得足够满足绝大多数出道V最初的目标和愿望。
+
+那么如果彩虹爆炸了，这一百号人个人势出道会怎么样呢？当然能做到sio那种粉丝全带走，一人挑老东家全箱是不可能，对于头部来说收入之类的必定差一截，但足够小康是没问题的。
+实话说，可能对于相当一部分粉丝来说，可能会称得上“自私”的愿意用推的前途换取自己的安心感，更何况现在彩虹的前途仍不明朗，草台的阴影未曾消散。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17682#       发表于 2020-5-4 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297333&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-4 11:42</a>
+
+阿希视频播放量月增刚好是本社杏女中间值，还有广告收入似乎说明大部分杏女的频道还不错哦 ...</blockquote>
+有收益化就有广告收入啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 无非是蚊子腿还是大象腿的问题
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17683#       发表于 2020-5-4 11:47
+
+
+
+
+宿舍无异味和干净是做的到的，整齐实在做不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过确实，听说我们学校的公主楼可能比男生宿舍好不到哪里去
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17684#       发表于 2020-5-4 11:48
+
+
+
+
+有yyut说日均点击30w才能生存的说法？这样的话杏六皇（狐夸兔龙船狗）差不多都有日均30万的点击，不过holo应该是有抽成的。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17685#       发表于 2020-5-4 11:48
+
+
+
+
+国内带宽成本太高，各平台都是五五开，私下合同与公会抽成另说。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17686#       发表于 2020-5-4 11:53
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-4 11:55 编辑 
+
+兔子那边开始刷地毯了。
+
+这次感想会搞久一点还可以顺带庆祝30W，这都在你的计划中吗！兎田ぺこら！<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17687#       发表于 2020-5-4 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297275&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-5-4 11:36</a>
+
+那不一样，让曼联球迷选肯定是宁可曼城再拿个三连冠也不愿意利物浦拿一个联赛冠军。曼城反正联赛已经拿了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">你说得也有道理，对阿森纳球迷来说，吃屎程度大概是 热刺夺冠&gt;魔力鸟的球队夺冠&gt;利物浦夺冠&gt;切尔西夺冠&gt;曼城夺冠&gt;曼联夺冠
+
+以前和利物浦难兄难弟，现在利物浦发达了就看不顺眼<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+当然最不能接受的还是热刺，利物浦起码肯砸钱，tmd的北伦敦大家都是乞丐，你夺冠就更凸显我废物了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+（强行）回到管人：所以有些杏仁见不得杏星好起来，因为真的怕以后打不过女粉儿<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17688#       发表于 2020-5-4 11:55
+
+
+
+ 本帖最后由 ひびき 于 2020-5-4 11:57 编辑 
+
+看哪家直播平台最先上p2p了，应该能节约70%以上带宽成本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+淦，我记得好像海鲜台已经用上了，就是后台上传那玩意
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17689#       发表于 2020-5-4 11:57
+
+
+
+
+顺便给2000一点顺劈素材。
+
+最早希望彩虹爆炸的那批人，就是18年希望天皇转生点弟弟的那批古参囚人。
+而阿道之所以作为铁血囚人变成这样，一方面有天皇数字的愈发弱势、如前文所述冠军粉的因素在。另一方面就是一种不健康的云P心态，即天皇不得不从直播上分出精力，去做“身为粉丝看不清前途”的主流进出，以及屈服于市场的直播内容转型，从短时间杂谈整活变成有些千篇一律的长时间游戏配信。
+
+说起来前几天有一位铁血gbr信在群里说到，他宁愿看到gbr摸一点但都在自己的直播间播自己的东西，也不愿看到gbr一周四次都刷在别人的直播间、广播之类的地方。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17690#       发表于 2020-5-4 12:01
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/120146z9nyvrtvr2tlld3v.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-04 120126.png</strong> (109.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 12:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 17691#       发表于 2020-5-4 12:02
+
+
+
+
+为什么要在v综讨论我膜，意义不明
+
+
+
+
+
+          

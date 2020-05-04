@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 08:07** 
+> ## **本文件最后更新于2020-05-04 12:08** 
 
 
 
@@ -15782,6 +15782,25 @@ sly 目前bs流传下来的歌里有你麻和u18r的两人合唱吗？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 鷹書たかしょ| + 1|有一首音质极差的DRD|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -23752,4 +23771,886 @@ mea没说排班表没写应该是约改日聊
 
 
 
-     
+
+
+-----
+
+####  Cla0221  
+##### 2823#       发表于 2020-5-4 08:13
+
+
+
+
+之前不就说了吗，约了麻将还有一次苔服mc，这个应该是约的麻将又叫了组长一起打。
+
+反正和我没啥关系，今晚歌回过去我就又该潜水了，20号交初稿。（要不联动我也不看，更别提别的频道的了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2824#       发表于 2020-5-4 08:14
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 08:20 编辑 
+
+最近分明走的是养噶吃路线，这就要杀<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+还是你麻觉醒成了数字厨，看最近的行动，我有点怀疑了，如果真是这样，那也值得<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2825#       发表于 2020-5-4 08:29
+
+
+
+
+杀， 都可以杀<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+他人的悲痛就是我的食粮<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 2826#       发表于 2020-5-4 08:34
+
+
+
+ 本帖最后由 aisakahammer 于 2020-5-4 09:12 编辑 
+
+  你真的是带上耳机流泪，放下耳机骂娘的典型。
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2827#       发表于 2020-5-4 08:36
+
+
+
+ 本帖最后由 若风之景 于 2020-5-4 09:10 编辑 
+
+不要AOE到我啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">微妙
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2828#       发表于 2020-5-4 08:36
+
+
+
+
+妈的刚约会了一晚上就玩这一套，我也心里苦啊<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2829#       发表于 2020-5-4 08:39
+
+
+
+
+不不不不，即使真要骂娘我也是骂别人的娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不管什么时候我都不会骂她的，除了在脑补什么play的时候<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2830#       发表于 2020-5-4 08:40
+
+
+
+
+今天的联动突然就没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2831#       发表于 2020-5-4 08:41
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-4 08:43 编辑 
+
+额
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2832#       发表于 2020-5-4 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295906&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-05-04 08:39:29</a>
+不不不不，即使真要骂娘我也是骂别人的娘</blockquote>你脑补不得都是她骂你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2833#       发表于 2020-5-4 08:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295952&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-4 08:48</a>
+
+你脑补不得都是她骂你
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+有时候也会脑补下克上的））<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 2834#       发表于 2020-5-4 08:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">今天本来是啥联动来着？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2835#       发表于 2020-5-4 09:02
+
+
+
+
+你伤害了我，却一笑而过~<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2836#       发表于 2020-5-4 09:04
+
+
+
+
+虚空骂娘泄愤而已，谁希望喜欢的可爱女孩子在自己眼前相亲嘛，又不是拱坝老哥<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|+1，好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2837#       发表于 2020-5-4 09:05
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-4 09:12 编辑 
+
+呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+梦醒了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/237.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2838#       发表于 2020-5-4 09:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼哪来这多gachi
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2839#       发表于 2020-5-4 09:19
+
+
+
+
+还不让人rp的啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">…
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2840#       发表于 2020-5-4 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">等一首百万情歌彻底覆灭噶吃
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2841#       发表于 2020-5-4 09:25
+
+
+
+
+等舞mea线下<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2842#       发表于 2020-5-4 09:30
+
+
+
+
+话说昨晚歌回结束咩不还跑到卵用tc那去评论了吗，也没见你们这么大反应<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 2843#       发表于 2020-5-4 09:31
+
+
+
+
+太不现实，还是期待和苔姨线下吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2844#       发表于 2020-5-4 09:36
+
+
+
+
+卵用好啊，卵用多可爱，五元不行，真不行
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2845#       发表于 2020-5-4 09:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">按漫画剧情来，这时候会有一场男人之间的决斗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2846#       发表于 2020-5-4 09:41
+
+
+
+
+也不知道还能跟哈哥联动不，想看生草画面<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 2847#       发表于 2020-5-4 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296206&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-4 09:30</a>
+话说昨晚歌回结束咩不还跑到卵用tc那去评论了吗，也没见你们这么大反应 ...</blockquote>
+并不是 是卵用的评论有人提到她
+
+—— 来自 OPPO PDEM30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2848#       发表于 2020-5-4 10:20
+
+
+
+
+评论提到说明还有koumea残党<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2849#       发表于 2020-5-4 10:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">为什么对小男孩的评论栏这么熟悉
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2850#       发表于 2020-5-4 10:23
+
+
+
+<blockquote>JY要塞 发表于 2020-5-4 10:22
+为什么对小男孩的评论栏这么熟悉</blockquote>
+bot抓取了评论里有めあ的内容，我记得他们的bot监测范围还挺大的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2851#       发表于 2020-5-4 10:35
+
+
+
+
+这次组长和舞咩联动，控制变量法可以搞起来了？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2852#       发表于 2020-5-4 10:37
+
+
+
+
+那内容也不一样啊
+
+
+纯对谈之前的经验来看不是很乐观
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2853#       发表于 2020-5-4 10:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这是不好的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2854#       发表于 2020-5-4 10:53
+
+
+
+
+为啥你们对舞元意见这么大但是对卵用没啥意见啊？因为咩舔的太厉害了？
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2855#       发表于 2020-5-4 10:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">因为小男孩可爱
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 2856#       发表于 2020-5-4 11:03
+
+
+
+
+因为舞元不借梗，说起来万一这次有词语接龙环节，你咩会不会像拉着兰熊撩亏皇一样拉着组长撩舞元
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2857#       发表于 2020-5-4 11:19
+
+
+
+
+因为效果不好看<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+真是难啊，我信你麻一次好吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 2858#       发表于 2020-5-4 11:28
+
+
+
+
+真舞咩线下了节目效果不就起来了
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2859#       发表于 2020-5-4 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297207&amp;ptid=1929631" target="_blank">VivillonTundra 发表于 2020-5-4 11:28</a>
+真舞咩线下了节目效果不就起来了</blockquote>
+那还不如和我线下。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2860#       发表于 2020-5-4 11:32
+
+
+
+
+因为舞元憨憨（确信）
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2861#       发表于 2020-5-4 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">又在贷款，扯点别的好不好
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2862#       发表于 2020-5-4 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">五mea线下干嘛？录18×音声吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2863#       发表于 2020-5-4 11:46
+
+
+
+
+18x音声可还行，mea出18x音声我买爆，但是不要男人不要男人。
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 2864#       发表于 2020-5-4 11:48
+
+
+
+ 本帖最后由 noaki 于 2020-5-4 11:53 编辑 
+
+扯点别的吧，大概是有关官组二创条例的修订。关于这个有什么看法的可以去留言。
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/114844paniiigmlmh09rur.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CD319728-F10A-4537-926D-7E18E05DDC8F.jpeg</strong> (169.29 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-4 11:48 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2865#       发表于 2020-5-4 11:55
+
+
+
+
+这人警惕性高的离谱，海苔男这种都不敢去。没有前世关系基本可以排除线下的可能性。所以说与江哥约过线下就很迷。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2866#       发表于 2020-5-4 11:57
+
+
+
+
+描改手书没问题，但mmd直接套用感觉不能算优秀
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2867#       发表于 2020-5-4 11:57
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-4 12:02 编辑 
+
+我觉得只是想搞清楚群众怎么看待某些类型的作品是否优秀到能被转发/联合投稿/比赛(?)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波， 这波是民意调查<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2868#       发表于 2020-5-4 11:58
+
+
+
+
+也许她一直都是江哥迷妹呢，话说江哥有前世么
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2869#       发表于 2020-5-4 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297477&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-4 11:58</a>
+也许她一直都是江哥迷妹呢，话说江哥有前世么</blockquote>
+好像是素人
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2870#       发表于 2020-5-4 11:59
+
+
+
+
+海苔男的真容几乎人尽皆知啊，和苔姨线下容易被特定吧，我记得江良目前还没有被特定吧
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 2871#       发表于 2020-5-4 12:02
+
+
+
+
+手书没问题。MMD包括模型、动作、场景、BGM，要全是搬别人的自然不能算。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2872#       发表于 2020-5-4 12:08
+
+
+
+
+gibara听说大美女啊 好看的人怎么都有优势吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+二创那个 1可 2不可
+
+
+
+
+
+    
