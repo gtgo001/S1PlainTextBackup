@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 18:06** 
+> ## **本文件最后更新于2020-05-04 20:06** 
 
 
 
@@ -20110,7 +20110,7 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
  本帖最后由 Alphawalker 于 2020-5-4 00:47 编辑 
 
-<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_l7DrL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_IAkE8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [苏姐](https://twitter.com/SephiraSu/status/1256951380729663488)这个自作3d还蛮好看的，感觉是saine设计服饰太花哨所以直接用新服饰盖过去了
 
 不过saine的推一点也没提到她，全是露露贺图相关，哭力<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
@@ -27901,6 +27901,411 @@ yhm抽烟还是不少的，但是オタサー姫抽烟的话就要掉价了<img 
 
 
 5w同接放海鲜台百万人气总有了吧
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 17976#       发表于 2020-5-4 18:06
+
+
+
+
+抽烟喝酒先不说，烫头也不行了吗？抖冷哭
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17977#       发表于 2020-5-4 18:06
+
+
+
+
+抽烟喝酒烫头的，稻荷（现黄泉）满足你的要求，甚至有爆照
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 17978#       发表于 2020-5-4 18:07
+
+
+
+
+抽烟喝酒烫头的yhm应该不难找（
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 17979#       发表于 2020-5-4 18:11
+
+
+
+
+讨论啥呢，不如来听mio香唱歌
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 17980#       发表于 2020-5-4 18:11
+
+
+
+
+稻荷也是姨字辈了吧，好像30+了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17981#       发表于 2020-5-4 18:11
+
+
+
+
+为啥超管都会掐掉彩虹那边的任天堂游戏转播啊，难道不给播的是B站？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17982#       发表于 2020-5-4 18:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽烟有害身体健康，二手烟更是祸及他人，是真的讨厌。
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 17983#       发表于 2020-5-4 18:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">讨论啥喝酒烫头啊来看mio唱阿尼桑了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17984#       发表于 2020-5-4 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300634&amp;ptid=1924531" target="_blank">ete 发表于 2020-5-4 18:12</a>
+
+讨论啥喝酒烫头啊来看mio唱阿尼桑了</blockquote>
+来了来了 mio唱歌好听
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17985#       发表于 2020-5-4 18:14
+
+
+
+
+mio太惨了，连个红sc都没有
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17986#       发表于 2020-5-4 18:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">唱那么拉还是车回抽烟喝酒烫头吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17987#       发表于 2020-5-4 18:18
+
+
+
+
+幽灵法则，又是术力口又是术力口又是术力口又是术力口又是术力口又是术力口又是术力口又是术力口又是术力口
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 17988#       发表于 2020-5-4 18:19
+
+
+
+
+11岁凸待开始了，第一位gbr<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 17989#       发表于 2020-5-4 18:19
+
+
+
+
+azuma不就抽烟么<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+而且如果说考拉地声大放送的醉酒会是台本那就不用删档了
+
+
+
+
+
+
+
+-----
+
+####  JhIenog  
+##### 17990#       发表于 2020-5-4 18:20
+
+
+
+
+mio能不能不要唱术力口了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17991#       发表于 2020-5-4 18:20
+
+
+
+
+这就是v的优势啊，虽然现实里我很讨厌抽烟的人，但是是v的话我就可以<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17992#       发表于 2020-5-4 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">阿这首真好听
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17993#       发表于 2020-5-4 18:23
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-4 18:25 编辑 
+
+老干部的jpop才是精髓，都是老歌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+一点歌全是刷管人金曲的，mio来就该自卑歌单
+
+
+
+
+
+
+
+-----
+
+####  JhIenog  
+##### 17994#       发表于 2020-5-4 18:24
+
+
+
+
+草 听mio唱歌想起来之前我把b站牌子删了，我忏悔<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 17995#       发表于 2020-5-4 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">心情复杂，我还挺喜欢听术曲的
+
+虽然我了解术曲的唯一途径就是游戏吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17996#       发表于 2020-5-4 18:25
+
+
+
+
+双叶身体不适休了，雪山人狼就六个人了...
+
+
+
+
+
+
+
+-----
+
+####  JhIenog  
+##### 17997#       发表于 2020-5-4 18:26
+
+
+
+
+这首就比刚刚的幽灵法则好很多啊，果然mio还是唱jpop好听
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 17998#       发表于 2020-5-4 18:27
+
+
+
+
+mio妈妈木星也是老绝活了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17999#       发表于 2020-5-4 18:28
+
+
+
+
+mio唱歌好听，声音让人安心，真好啊。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18000#       发表于 2020-5-4 18:29
+
+
+
+
+我才发现B站也有转偶像部。
 
 
 

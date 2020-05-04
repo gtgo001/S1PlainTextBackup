@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 18:08** 
+> ## **本文件最后更新于2020-05-04 20:08** 
 
 
 
@@ -25929,4 +25929,909 @@ nico生都阴险说
 
 
 
- 
+
+
+-----
+
+####  weiweiEX  
+##### 2949#       发表于 2020-5-4 18:09
+
+
+
+<img src="https://p.sda1.dev/0/4879552c948d91d344bbb28ca6f4d3c8/IMG_6F112B92B40CC1040C5644FB12FC0704.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2950#       发表于 2020-5-4 18:10
+
+
+
+
+小麻理解了庞式骗局 智力+1
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2951#       发表于 2020-5-4 18:14
+
+
+
+
+我怎么觉得是mea在推锅？
+
+一边答应五元联动。拉兔姨来当背锅侠
+
+一边向自己噶吃说是别人定的。
+
+mea智商再评价。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2952#       发表于 2020-5-4 18:14
+
+
+
+
+怕是到时候还有个特约嘉宾苔苔，到时候两人就在那疯狂拱疯狂吸，让你麻下不了台，结束再来句“下次大家一起玩吧”你麻肯定拒绝不了，麻迟早被吸干<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+这个世界把人变成鬼<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2953#       发表于 2020-5-4 18:14
+
+
+
+
+兔姨可以安排一下ntr小麻的剧本吗？把舞元据为己有，这样我会很感谢你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2954#       发表于 2020-5-4 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300656&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-4 18:14</a>
+
+兔姨可以安排一下ntr小麻的剧本吗？把舞元据为己有，这样我会很感谢你的 ...</blockquote>
+这个好<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2955#       发表于 2020-5-4 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300656&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-4 18:14</a>
+兔姨可以安排一下ntr小麻的剧本吗？把舞元据为己有，这样我会很感谢你的 ...</blockquote>
+黄兔子精着呢，人家还要养噶吃呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2956#       发表于 2020-5-4 18:19
+
+
+
+
+？黄兔子走养gachi路线的吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2957#       发表于 2020-5-4 18:19
+
+
+
+
+现在想想还好动物园不入驻B站，要不然你麻绝对被黄兔子给吸干<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">怕不是现在B站一姐就是黄兔子了。是774拯救了mea，774你好伟大
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2958#       发表于 2020-5-4 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300681&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-4 18:19</a>
+？黄兔子走养gachi路线的吗</blockquote>
+说黄兔子养噶吃第二也就粽姨敢称第一吧，不行气死了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2959#       发表于 2020-5-4 18:22
+
+
+
+
+草，不说一个多月前还在输出独角兽吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟不上版本了
+
+syl黄兔子和男人联动不是不少吗
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 2960#       发表于 2020-5-4 18:23
+
+
+
+<blockquote>睥睨寰宇荡红尘 发表于 2020-5-4 18:14
+我怎么觉得是mea在推锅？
+
+一边答应五元联动。拉兔姨来当背锅侠
+
+一边向自己噶吃说是别人定的。
+</blockquote>
+坏女人咩咩，爱了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2961#       发表于 2020-5-4 18:25
+
+
+
+
+彩虹男人有什么好，你麻不如考虑一下杏星，我想看杏人什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2962#       发表于 2020-5-4 18:27
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 18:30 编辑 
+
+想来如月八乙女也有鬼，天天直播就硬提你咩姐，话题就硬往上面扯，怕不是羽翼未丰先不动手，也早早就和动物园新人和苔pro联动，怕是私下早就也串通好了<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+估计现在这群人就等着你麻出事然后一刀子上去把你麻吃抹的干干净净<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不敢想了，为啥你麻的路就这么难走<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2963#       发表于 2020-5-4 18:28
+
+
+
+
+和男人联动又不必然gachi少
+
+
+兔姨拿手的是不安诉苦吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2964#       发表于 2020-5-4 18:28
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-4 18:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来你楼的风向是不是该安排mea毕业了
+
+前面这就是为什么gachi写不出有趣棉花糖的原因（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2965#       发表于 2020-5-4 18:28
+
+
+
+ 本帖最后由 路人庚 于 2020-5-4 18:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然鹅你麻并不想考虑这些，她只想玩一下午osu
+
+
+syl，新推，预告了
+
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 2966#       发表于 2020-5-4 18:31
+
+
+
+
+“咩咩现在还能联动不是因为单腿的宽容，而是因为环党他们曾经来过”
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2967#       发表于 2020-5-4 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又在安排你麻被骗了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2968#       发表于 2020-5-4 18:32
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：今日は22：00から！
+
+BILIIBLI限定歌枠(長時間予定)
+
+昨日はYOUTUBEでバラード歌いまくったけど、いろんな曲歌うぞ！
+長めの予定なので最近覚えた曲や定番曲、懐かしい曲とかいっぱい歌えたらいいなって思ってる！
+日本の回線で見れるけどちょっと重いかも！
+
+【配信場所】
+https://t.co/t7sYFy0rW0
+媒体：[]
+链接：['https://live.bilibili.com/12235923']
+时间：2020-05-04 10:28:13 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1257255705532198913
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2969#       发表于 2020-5-4 18:38
+
+
+
+
+B博预警，话说她发现了云鬼老哥的合集，不晓得今晚会不会照着合集唱一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 2970#       发表于 2020-5-4 18:51
+
+
+
+
+建议小麻开始投资木材加工，不需要原材料了，粉丝直接供货）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2971#       发表于 2020-5-4 18:53
+
+
+
+
+（梁木梁木，你们天狗看什么都是梁木）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2972#       发表于 2020-5-4 18:53
+
+
+
+
+视节目效果和粉丝反应伐木
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2973#       发表于 2020-5-4 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300969&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-4 18:53</a>
+视节目效果和粉丝反应伐木</blockquote>
++1,我想相信兔妈<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2974#       发表于 2020-5-4 19:13
+
+
+
+
+云鬼兄的合集终于被官方发现了吗？好事。没事就会去合集里找喜欢的歌听
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1|多谢上次告诉我麻和U18R的合唱~.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2975#       发表于 2020-5-4 19:26
+
+
+
+
+往好处想....说不定是分手企划……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2976#       发表于 2020-5-4 19:27
+
+
+
+
+草这个真的可以有！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2977#       发表于 2020-5-4 19:28
+
+
+
+<blockquote>呓亘 发表于 2020-5-4 19:26
+往好处想....说不定是分手企划……</blockquote>
+之后还要苔服mc和合唱，感觉舞元可能像光君一样合唱后就不联系了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2978#       发表于 2020-5-4 19:29
+
+
+
+
+你麻还有情歌唱呢，怎么就分手了，只要别直播结婚就成了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 2979#       发表于 2020-5-4 19:30
+
+
+
+
+咋回事啊，之前不还兔妈妈吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2980#       发表于 2020-5-4 19:31
+
+
+
+
+直播结婚这也太过分了吧，恐怕真的会烧起来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2981#       发表于 2020-5-4 19:32
+
+
+
+
+希望合唱之后就结束，我对舞元倒不反感，就是已经有了粉丝爆炸PTSD......
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2982#       发表于 2020-5-4 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47301339&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-4 19:32</a>
+希望合唱之后就结束，我对舞元倒不反感，就是已经有了粉丝爆炸PTSD......</blockquote>
++1
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2983#       发表于 2020-5-4 19:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">唔，直播结婚后的麻会不会有人妻的成熟，变得稳重起来了呢，作为五元夫人同接会不会多上几百人呢，sc会不会只少一点点呢，人妻麻
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2984#       发表于 2020-5-4 19:36
+
+
+
+<blockquote>鷹書たかしょ 发表于 2020-5-4 19:13
+云鬼兄的合集终于被官方发现了吗？好事。没事就会去合集里找喜欢的歌听</blockquote>
+好像之前直播的时候就有人给咩姐推荐过b站的电台和合集
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 2985#       发表于 2020-5-4 19:46
+
+
+
+
+https://b23.tv/BV1rA411b7sh 大概24分钟左右吧，不知道是不是第一次发现云鬼兄的合集，还挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 2986#       发表于 2020-5-4 19:49
+
+
+
+
+淦哦
+你楼有些话是真他么吓人
+真是结婚我能不能不怪咩咩怪你楼乱奶啊？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2987#       发表于 2020-5-4 19:54
+
+
+
+
+前几天你麻还在TC说给不想找在网上直播的男朋友呢，你楼这就安排上婚礼了？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2988#       发表于 2020-5-4 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47301544&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-4 19:54</a>
+前几天你麻还在TC说给不想找在网上直播的男朋友呢，你楼这就安排上婚礼了？ ...</blockquote>
++1，这么云的吗
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2989#       发表于 2020-5-4 19:54
+
+
+
+
+结， 都可以结<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2990#       发表于 2020-5-4 19:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚拟结婚结了就结了呗，多大事，你咩姐都俩孩子了还怕再结一次婚？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2991#       发表于 2020-5-4 19:56
+
+
+
+
+能不能搞虚拟dv， 虚拟不论， 虚拟育儿？ <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2992#       发表于 2020-5-4 19:58
+
+
+
+
+咩还怕虚拟结婚？本质杀噶吃罢辽洗粉无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2993#       发表于 2020-5-4 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你麻不找男朋友但是可以虚拟结婚啊，你神乐没牙结婚和我麻找男朋友有什么关系
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 2994#       发表于 2020-5-4 20:00
+
+
+
+
+好开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2995#       发表于 2020-5-4 20:01
+
+
+
+
+这些不是全安排过了吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 2996#       发表于 2020-5-4 20:02
+
+
+
+
+她当然不怕，真要做的话她连虚拟中O，虚拟怀孕都应该不怕，但是有人会怕啊！
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再说了，有不喜欢寡妇的男人吗，单亲妈妈不是加分点吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2997#       发表于 2020-5-4 20:03
+
+
+
+
+其他论坛我看还挺正常的，就这楼爱拿舞元弱智而已
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2998#       发表于 2020-5-4 20:05
+
+
+
+
+不是....洗粉这词别乱用啊...咋搞的你咩姐跟gachi有仇一样...之前因为舞元那事不是还专门提了一下和男人联动是工作，怕被粉丝讨厌吗...有些东西别乱发散啊，之前她提前男友时你楼也是一堆人说她要隐退，结果深夜MC的时候她不是也说了前男友话题是无意提起的，说出来的时候就觉得糟糕了，但是话题已经打开了。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2999#       发表于 2020-5-4 20:08
+
+
+
+
+当时mea感觉确实像想隐退的,一个月内几次直播都提到隐退，说没想法是不可能的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3000#       发表于 2020-5-4 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼各种安排她不是第一次，也不会是最后一次，不需要每次都一惊一乍，淡定一点
+
+
+
+
+
