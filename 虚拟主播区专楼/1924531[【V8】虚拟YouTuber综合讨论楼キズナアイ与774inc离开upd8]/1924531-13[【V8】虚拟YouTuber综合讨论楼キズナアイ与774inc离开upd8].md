@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 02:06** 
+> ## **本文件最后更新于2020-05-05 04:05** 
 
 
 
@@ -3809,7 +3809,7 @@ y1s1白皮版聊是真的烦
 <img src="https://img.saraba1st.com/forum/202005/04/210154pnoyof5xbb66q15b.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200504210136.png</strong> (306.23 KB, 下载次数: 1)
+<strong>QQ截图20200504210136.png</strong> (306.23 KB, 下载次数: 2)
 
 下载附件
 
@@ -7319,7 +7319,7 @@ pekora还是pro的。
 
 
 D3C0)M]UCL%DK8R3J])XAIL.png
-(9.64 KB, 下载次数: 2)
+(9.64 KB, 下载次数: 3)
 
 
 
@@ -11039,7 +11039,7 @@ B站现在这个情况才是正常的，难道真让整个虚拟区认yagoo一�
 
 
 
-<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_UZfzN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_yL3lL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/sukosuko_sukoya/status/1257326947702464512](https://twitter.com/sukosuko_sukoya/status/1257326947702464512)
 
 
@@ -16730,6 +16730,7 @@ colo哥，v、chu~<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
+ 本帖最后由 SiolC 于 2020-5-5 02:08 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305625&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 02:02</a>
 
 日v有会在直播里跟观众聊捅尿道的吗
@@ -16751,8 +16752,1222 @@ colo哥，v、chu~<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 注*：膣爆的意思就是女性视角的射爆
 
+这位在直播中聊自己喜欢的BL体位，攻受类型，BG相关的性癖，淫语就是如数家珍<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
 
 
-                   
+
+
+
+-----
+
+####  mmbk  
+##### 18919#       发表于 2020-5-5 02:07
+
+
+
+
+这个已经车过好多次了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18920#       发表于 2020-5-5 02:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305646&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 02:05</a>
+
+其实我最近被阿媂娅脑控了，有没有什么不花一分钱就能届到她的办法 ...</blockquote>
+像人↑人↑人学习，写个曲子让她唱<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18921#       发表于 2020-5-5 02:07
+
+
+
+
+2000在说什么？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 18922#       发表于 2020-5-5 02:07
+
+
+
+
+脑残holoanti车轱辘了一个晚上pekomiko外部联动间接和2434的男v联动会造成的影响
+
+结果刚才miko直接在直播结束的时候顺嘴预告了一下明天要出场的事情 评论区情绪很稳定……
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 18923#       发表于 2020-5-5 02:07
+
+
+
+<blockquote>ひびき 发表于 2020-5-5 00:46
+艹，这团佐藤君和狐皇他们跑过了啊，这还怎么跑</blockquote>
+我记得很久之前v3还是v5我就跟一个跑团老哥讨论过了，这玩意也就是蹭原作疯狂山脉的热度。本质骰点机器，一点探索要素都没有，rp的不好就是无聊透顶，不知道为啥有那么多人吹捧......
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18924#       发表于 2020-5-5 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305646&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-05-05 02:05:40</a>
+其实我最近被阿媂娅脑控了，有没有什么不花一分钱就能届到她的办法</blockquote>去拿个OW世界冠军回来就行，不花钱还能顺便赚点
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18925#       发表于 2020-5-5 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305661&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-5 02:08</a>
+
+去拿个OW世界冠军回来就行，不花钱还能顺便赚点
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 198的舰长更划算不是吗？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18926#       发表于 2020-5-5 02:10
+
+
+
+
+是gay综！好起来了！
+
+前列腺液进肠道真的会肚子疼吗？有没有懂哥？我只知道带套防AIDS
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18927#       发表于 2020-5-5 02:11
+
+
+
+
+这话题就真的太gay了，杏星老哥都没法回答。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 18928#       发表于 2020-5-5 02:11
+
+
+
+
+artia来了，你们女生好恐怖啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+还是V综的肠道温暖
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 18929#       发表于 2020-5-5 02:11
+
+
+
+ 本帖最后由 mmbk 于 2020-5-5 02:28 编辑 
+
+以前查过，是的。
+
+前列腺素会导致平滑肌，包括消化道平滑肌收缩。
+
+备考：https://onlinelibrary.wiley.com/doi/abs/10.1111/j.1600-0897.1987.tb00151.x
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|看了下，应该没痛经没那么疼|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 18930#       发表于 2020-5-5 02:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305669&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 02:10</a>
+
+198的舰长更划算不是吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你连葵皇的舰长都不上去上别人的？你还好意思自称葵熊吗2000哥？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18931#       发表于 2020-5-5 02:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305679&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-5 02:11</a>
+
+你连葵皇的舰长都不上去上别人的？你还好意思自称葵熊吗2000哥？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 我努力提高你楼葵皇浓度才是对她最好的爱啊，
+
+
+198又界不到葵皇，
+
+
+反而能届到阿媂娅，
+
+
+那为什么不去届的到的呢？
+
+
+yhm就是井底的月、镜中的花
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18932#       发表于 2020-5-5 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305669&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-05-05 02:10:24</a>
+198的舰长更划算不是吗？</blockquote>198舰长就是个傻逼东西，我今天上了就后悔了，本来想着分成和sc一样反正b限sc也不读，现在回头一想我tm直接sc至少还能被看到<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18933#       发表于 2020-5-5 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305698&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-5 02:17</a>
+
+198舰长就是个傻逼东西，我今天上了就后悔了，本来想着分成和sc一样反正b限sc也不读，现在回头一想我tm直接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer"> 国v认准198
+
+
+yhm就，，随缘吧，
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 18934#       发表于 2020-5-5 02:18
+
+
+
+
+扭曲葵熊の末路
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18935#       发表于 2020-5-5 02:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305699&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 02:17</a>
+
+国v认准198
+
+
+yhm就，，随缘吧，</blockquote>
+葵皇批限打sc会读的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18936#       发表于 2020-5-5 02:19
+
+
+
+
+井底的月可以砸一块石头引起一翻涟漪，使其扭曲变形，
+
+
+镜中之花可以一拳砸碎玻璃，让其消失的无影无踪，
+
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18937#       发表于 2020-5-5 02:21
+
+
+
+
+2000在想屁吃呢，阿媂娅是比樱花妹还樱花妹的终极menhera樱花妹，而且人还不在中国，想届到这位还不如葵皇呢，日本好歹还比美帝近点
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 18938#       发表于 2020-5-5 02:24
+
+
+
+
+和男v联动还没直播前肯定不是什么大事，关键还是看直播效果怎么样，不过柴卡女人缘一直挺恐怖的，女v和他联动基本都被他逗过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18939#       发表于 2020-5-5 02:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">花生君那边的联动不是播片吗？算了，明天去看看，反正蛮能整活的，记得上次他们24小时差不多能保持2w同接
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18940#       发表于 2020-5-5 02:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305714&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 02:21</a>
+
+2000在想屁吃呢，阿媂娅是比樱花妹还樱花妹的终极menhera樱花妹，而且人还不在中国，想届到这位还不如葵皇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 终究只是个梦罢了
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18941#       发表于 2020-5-5 02:28
+
+
+
+
+那你做梦也应该去想你的大阪妹啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18942#       发表于 2020-5-5 02:29
+
+
+
+ 本帖最后由 kanonsisya 于 2020-5-5 02:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305698&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-5 02:17</a>
+
+198舰长就是个傻逼东西，我今天上了就后悔了，本来想着分成和sc一样反正b限sc也不读，现在回头一想我tm直接 ...</blockquote>
+自动续费只要138。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+还有个好办法就是去飞田新地
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18943#       发表于 2020-5-5 02:30
+
+
+
+ 本帖最后由 激光2000 于 2020-5-5 02:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 仔细一想，还是不去想了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18944#       发表于 2020-5-5 02:31
+
+
+
+
+2000你今天晚上怎么这么多愁善感<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18945#       发表于 2020-5-5 02:31
+
+
+
+
+不是 为啥我一个从来不用，0关注的推小号突然开始给我推送这种了？yagoo买广告了这是？<img src="https://p.sda1.dev/0/0dcf9d7dced359d582f4471d6b28d128/IMG_574FFFAB94E0749274968E562A3DE0E9.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18946#       发表于 2020-5-5 02:32
+
+
+
+
+工毛工毛
+
+2000中学生说浮上？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18947#       发表于 2020-5-5 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305757&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 02:31</a>
+
+不是 为啥我一个从来不用，0关注的推小号突然开始给我推送这种了？yagoo买广告了这是？ ...</blockquote>
+你小号和大号用的是一台设备吗？是的话那太正常了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18948#       发表于 2020-5-5 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305755&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-5 02:31</a>
+2000你今天晚上怎么这么多愁善感</blockquote>
+大概是向日葵真把明天B限取消了？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 18949#       发表于 2020-5-5 02:35
+
+
+
+
+广告商有无数种手段跟踪你
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18950#       发表于 2020-5-5 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305759&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-5 02:32</a>
+
+工毛工毛
+
+2000中学生说浮上？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> 我语文确确实实停留在中学水平，有什么意见吗？
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 18951#       发表于 2020-5-5 02:38
+
+
+
+
+一般这个点播的适合当bgm听的主播，楼友有推荐吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18952#       发表于 2020-5-5 02:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305784&amp;ptid=1924531" target="_blank">月光润色 发表于 2020-5-5 02:38</a>
+
+一般这个点播的适合当bgm听的主播，楼友有推荐吗？</blockquote>
+[https://twitcasting.tv/kaguramea_vov](https://twitcasting.tv/kaguramea_vov)
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18953#       发表于 2020-5-5 02:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305784&amp;ptid=1924531" target="_blank">月光润色 发表于 2020-5-5 02:38</a>
+一般这个点播的适合当bgm听的主播，楼友有推荐吗？</blockquote>
+https://space.bilibili.com/82389
+
+深夜档大物男v 星野饼美
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 18954#       发表于 2020-5-5 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305238&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-5 00:52</a>
+
+兔皇这波牛逼啊赚了5万6
+
+
+syl，aza今天能赚的比大亏和小肥妹的批限还多我是想不到的，VR粉还没被榨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天歌回 唱歌的时候打钱的人本来就挺多 今天还是直球骗了二十舰呢  看着小妹妹甚至想把饭钱打出去 还是感觉挺乐于奉献的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18955#       发表于 2020-5-5 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305783&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 02:38</a>
+
+我语文确确实实停留在中学水平，有什么意见吗？</blockquote>
+语文挺好的，我大概小学水平
+
+就是思想有点中学生了，咱社会人早就过了这个阶段了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 18956#       发表于 2020-5-5 02:42
+
+
+
+
+那当然是白胖了，这个点经常有超级加班
+douyu.com/501761
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 18957#       发表于 2020-5-5 02:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305798&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 02:41</a>
+
+https://space.bilibili.com/82389
+
+
+深夜档大物男v 星野饼美</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不玩影之诗，拿来当做bgm不是听谜语嘛
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18958#       发表于 2020-5-5 02:45
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-5-5 02:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305806&amp;ptid=1924531" target="_blank">月光润色 发表于 2020-5-5 02:43</a>
+不玩影之诗，拿来当做bgm不是听谜语嘛</blockquote>
+那就斗鱼王石虎https://m.douyu.com/10029
+
+yysy饼佬歌单挺不错的
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 18959#       发表于 2020-5-5 02:47
+
+
+
+
+没看过勒夫的直播，按他的介绍魔女的管人数据各个方面都相当不错，他这真不是用钱买的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18960#       发表于 2020-5-5 02:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305817&amp;ptid=1924531" target="_blank">YODOboi 发表于 2020-5-5 02:47</a>
+没看过勒夫的直播，按他的介绍魔女的管人数据各个方面都相当不错，他这真不是用钱买的吗？ ...</blockquote>
+有几个还不错，大多数你连名字都没听说过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 18961#       发表于 2020-5-5 02:51
+
+
+
+ 本帖最后由 qq845629713 于 2020-5-5 02:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305801&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-5 02:42</a>
+
+语文挺好的，我大概小学水平
+
+就是思想有点中学生了，咱社会人早就过了这个阶段了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 
+
+看管人，
+
+
+就像父母给你买书一样，
+
+
+他们总不会给你买你想看的书，
+
+
+但你又必须要看，
+
+长大之后，当你能买到你想看的书时，
+
+
+却发现，其实自己根本不想看书，
+
+
+你追求的，只是想看书，却看不到的心情，
+
+
+就是这样，
+
+
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 18962#       发表于 2020-5-5 02:55
+
+
+
+
+我小时候都是去新华书店白嫖的。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 18963#       发表于 2020-5-5 02:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305820&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 02:48</a>
+
+有几个还不错，大多数你连名字都没听说过</blockquote>
+诡异的是，他摆出来的人营收相当不错，这不是比vr的好多了吗。我印象中套皮主播区不是大部分连兼职播都活不下去吗
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18964#       发表于 2020-5-5 02:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305829&amp;ptid=1924531" target="_blank">qq845629713 发表于 2020-5-5 02:51</a>
+
+看管人，
+
+
+就像父母给你买书一样，</blockquote>
+可以，多来点工毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过我不管小时候还是现在买书全是自己决定的（学校要求的不算），不太能理解2000弟弟的心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 18965#       发表于 2020-5-5 02:58
+
+
+
+
+翻着v吧，居然看到免费老哥兢兢业业的发了一帖长篇大论谈管人歌力，哭泣，粪坑中的一股清流。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18966#       发表于 2020-5-5 02:58
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-5 03:00 编辑 
+
+比VR好多了……
+其实魔女公司我就认得伞爷和切西亚，还有其他的吗，这两个人数据是还行，但也不至于说比VR好多了吧
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 18967#       发表于 2020-5-5 03:02
+
+
+
+
+在v8刨屎一天，发现一个好贴不亏，两个就算赚了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 18968#       发表于 2020-5-5 03:02
+
+
+
+
+去看了眼，咋又找上王佩了，乐府这是打算把目前中国网络上有点骂名的一网打尽？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18969#       发表于 2020-5-5 03:03
+
+
+
+
+国内工会多少有点打榜行为的，打多少就不知道了没了解过勒夫同志的财力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 18970#       发表于 2020-5-5 03:04
+
+
+
+
+他那儿数据上月150万流水，holo百万都不到呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 18971#       发表于 2020-5-5 03:06
+
+
+
+ 本帖最后由 seaside 于 2020-5-5 03:07 编辑 
+
+[https://www.bilibili.com/read/cv4674749](https://www.bilibili.com/read/cv4674749)
+[https://www.bilibili.com/read/cv4566524](https://www.bilibili.com/read/cv4566524)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魔女公司这么多人 能认出几个啊？
+
+斗虫网上都没有魔女公司的 气抖冷 公会就不算组织了吗
+
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 18972#       发表于 2020-5-5 03:06
+
+
+
+<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_TP8dd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+[https://twitter.com/haruzo17/status/1257334774336819200](https://twitter.com/haruzo17/status/1257334774336819200)
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 18973#       发表于 2020-5-5 03:06
+
+
+
+
+嗨你们怎么翻人老底呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 18974#       发表于 2020-5-5 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305845&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-5-5 02:58</a>
+
+翻着v吧，居然看到免费老哥兢兢业业的发了一帖长篇大论谈管人歌力，哭泣，粪坑中的一股清流。 ...</blockquote>
+最近V吧突然出现了几个“论vtb歌力天花板”的帖，你说提名乙女音还有点那个意思，不过现在也下降了，提名花丸甚至星街的真不是反串黑？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过想到贴吧只认识杏人，好像也可以理解了，问题是杏的天花板也轮不到呀......
+
+
+
+当然主要还是为了推销我做的大葵合集<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1Gg4y167Hh](https://www.bilibili.com/video/BV1Gg4y167Hh)
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 18975#       发表于 2020-5-5 03:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305857&amp;ptid=1924531" target="_blank">seaside 发表于 2020-5-5 03:06</a>
+https://www.bilibili.com/read/cv4674749
+
+https://www.bilibili.com/read/cv4566524
+
+魔女公司这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概人太多了吧，乱七八糟一坨人
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 18976#       发表于 2020-5-5 03:14
+
+
+
+<blockquote>free 发表于 2020-5-5 03:11
+最近V吧突然出现了几个“论vtb歌力天花板”的帖，你说提名乙女音还有点那个意思，不过现在也下降了，提名 ...</blockquote>
+去粪坑发帖，免费也太勇了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 18977#       发表于 2020-5-5 03:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305874&amp;ptid=1924531" target="_blank">超能力者stven 发表于 2020-5-5 03:14</a>
+
+去粪坑发帖，免费也太勇了</blockquote>
+为了宣传我们家大葵，这都是值得的，我发完帖回去看了下B站的大葵合集就多了几个赞<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[https://tieba.baidu.com/p/6660526845](https://tieba.baidu.com/p/6660526845)
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 18978#       发表于 2020-5-5 03:20
+
+
+
+
+魔女的其他的没怎么听过，男的就听过那个紫宫Shimiya，感觉也是和电台区挺像的，录播没几个，经常无预告唱歌。之前早上起来一个播的都没有。就他在唱歌，随便听了几次感觉还行。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 18979#       发表于 2020-5-5 03:23
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-5-5 03:28 编辑 
+
+看书还是看书的内容比较重要
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18980#       发表于 2020-5-5 03:28
+
+
+
+
+其实葵皇取消B限也好，堡垒之夜在你批是不会有多少人看的
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 18981#       发表于 2020-5-5 03:32
+
+
+
+
+睡了一天半夜醒了。。。老阿姨这是在玩什么kusoge啊。。。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 18982#       发表于 2020-5-5 03:39
+
+
+
+ 本帖最后由 mmbk 于 2020-5-5 03:46 编辑 
+
+白胖马造1两波团灭，一次遇到已修复的三段接二段再接三段跳bug图，一次遇到TAS一格反墙，终于百人团见了公主
+
+syl,
+<img src="https://p.sda1.dev/0/9b8ae28af3b1522b1de46a04e4b2f6cd/IMG_0DCEDB406836F0F3183A84F048AE75F6.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+                 
