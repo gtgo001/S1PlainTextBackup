@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 14:08** 
+> ## **本文件最后更新于2020-05-04 18:08** 
 
 
 
@@ -24830,4 +24830,1103 @@ gibara听说大美女啊 好看的人怎么都有优势吧<img src="https://stat
 
 
 
-   
+
+
+-----
+
+####  肚子疼了  
+##### 2883#       发表于 2020-5-4 15:15
+
+
+
+
+这两天有空回来看一眼，你们还是老样子啊，突然有种安心感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2884#       发表于 2020-5-4 15:25
+
+
+
+
+那要怎样啊，全变贴贴人还是萌萌人还是毒唯啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2885#       发表于 2020-5-4 15:29
+
+
+
+
+在组长播雀魂的时候留言了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2886#       发表于 2020-5-4 15:32
+
+
+
+
+tc突击了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2887#       发表于 2020-5-4 15:32
+
+
+
+
+tc突击
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 2888#       发表于 2020-5-4 15:33
+
+
+
+ 本帖最后由 路人庚 于 2020-5-4 15:35 编辑 
+
+tc突击
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">居然开始玩osu了，麻起来了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 2889#       发表于 2020-5-4 15:34
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：tyotto / R●● https://t.co/sMiIP9Mn3U
+媒体：[]
+链接：['https://twitcasting.tv/kaguramea_vov/movie/611932148']
+时间：2020-05-04 07:33:05 (GMT)
+网址：https://twitter.com/KaguraMea_VoV/status/1257211632201035777
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2890#       发表于 2020-5-4 15:34
+
+
+
+
+怎么突然就tc了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+osu?
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 2891#       发表于 2020-5-4 15:35
+
+
+
+
+直播osu了，我青结
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 2892#       发表于 2020-5-4 15:38
+
+
+
+
+好好好！！！！
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 2893#       发表于 2020-5-4 15:40
+
+
+
+
+念叨了一年的osu 终于播了
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 2894#       发表于 2020-5-4 15:43
+
+
+
+
+天国的看房直播，能不能复活<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2895#       发表于 2020-5-4 15:46
+
+
+
+
+这么好的游戏她为啥不在**播（好菜）
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2896#       发表于 2020-5-4 15:47
+
+
+
+
+404，  AI  ，版权警告.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2897#       发表于 2020-5-4 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">好麻，我麻了
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 2898#       发表于 2020-5-4 15:50
+
+
+
+
+看起来是真的好久没玩了吧，生疏了不少啊，唯有菜单操作依旧熟练（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2899#       发表于 2020-5-4 15:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2900#       发表于 2020-5-4 16:00
+
+
+
+
+你麻能不能把歌声音调大一点。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2901#       发表于 2020-5-4 16:07
+
+
+
+ 本帖最后由 2014720 于 2020-5-4 16:20 编辑 
+
+感觉来了
+
+无能狂怒<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2902#       发表于 2020-5-4 16:23
+
+
+
+
+原来你麻是键鼠党，幻灭了
+
+
+看她玩了我也想复健去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2903#       发表于 2020-5-4 16:23
+
+
+
+
+水友赛看到了差距。。。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2904#       发表于 2020-5-4 16:23
+
+
+
+<blockquote>Dualist彩 发表于 2020-5-4 16:23
+原来你麻是键鼠党，幻灭了
+
+
+看她玩了我也想复健去了</blockquote>
+她不是说板子连不上来着。。。
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 2905#       发表于 2020-5-4 16:24
+
+
+
+
+水平不行的已经直接退了(指我自己)
+
+没会员进去还要手动下谱拖节奏，看dalao表演了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2906#       发表于 2020-5-4 16:24
+
+
+
+
+就他以前的收入怎么可能买的起板子
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2907#       发表于 2020-5-4 16:28
+
+
+
+
+官组投了歌剪辑啊。。。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 2908#       发表于 2020-5-4 16:29
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-5-4 16:31 编辑 
+
+草，壳之少女。变相传教吗……多来点黄游曲。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 2909#       发表于 2020-5-4 16:30
+
+
+
+
+言って。我觉得还是1114那版更有感染力
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 2910#       发表于 2020-5-4 16:33
+
+
+
+
+言って这首我还是喜欢11.18号那次的，钢琴伴奏加上开始的时候她的那句エモ和后面的两声哼哼，能萌死个人
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2911#       发表于 2020-5-4 16:34
+
+
+
+
+但不得不说这次唱的也不错，是个好剪辑
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2912#       发表于 2020-5-4 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打了一下午羽毛球 亏死了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2913#       发表于 2020-5-4 16:56
+
+
+
+
+🌿，搜到自己的曲了。。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2914#       发表于 2020-5-4 16:56
+
+
+
+
+草，打自己唱的歌是不是会蛮爽的
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 2915#       发表于 2020-5-4 16:58
+
+
+
+
+原汤化原食<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2916#       发表于 2020-5-4 16:58
+
+
+
+
+OSU曲包里会有病毒吗？这人是真的防备心这么重还是单纯在扯
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2917#       发表于 2020-5-4 16:59
+
+
+
+
+变羊！<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2918#       发表于 2020-5-4 17:02
+
+
+
+
+菜
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2919#       发表于 2020-5-4 17:02
+
+
+
+
+垃圾谱面滚出我的电脑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2920#       发表于 2020-5-4 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2921#       发表于 2020-5-4 17:11
+
+
+
+
+可爱咩<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2922#       发表于 2020-5-4 17:13
+
+
+
+
+考完试了，
+
+
+你咩在直播，
+
+
+我当然要，
+
+
+..........
+
+
+读论文啦！
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 2923#       发表于 2020-5-4 17:21
+
+
+
+
+说明这人是电脑盲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2924#       发表于 2020-5-4 17:26
+
+
+
+
+yhm人均电脑盲，c盘战士<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2925#       发表于 2020-5-4 17:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">傻子
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2926#       发表于 2020-5-4 17:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这也太可爱了 能不能烤啊 咚咚咚的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2927#       发表于 2020-5-4 17:39
+
+
+
+
+玩的很开心嘛，最近真的很好了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 2928#       发表于 2020-5-4 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 2929#       发表于 2020-5-4 17:50
+
+
+
+
+她的苦呀西没法冲
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2930#       发表于 2020-5-4 17:50
+
+
+
+
+她直播时有提过reol吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 2931#       发表于 2020-5-4 17:55
+
+
+
+
+结果这人都不知道兔姨那边给她安排了和5元的联动了吗 “已经定下来了，真好（棒读）”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 2932#       发表于 2020-5-4 17:55
+
+
+
+
+什么，她不知道要和五元联动，兔妈妈再评价
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 2933#       发表于 2020-5-4 17:56
+
+
+
+
+see you next time
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2934#       发表于 2020-5-4 17:57
+
+
+
+
+我就知道这兔姨有问题<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 2935#       发表于 2020-5-4 17:57
+
+
+
+
+爱酱sky high谱面的作者来tc发评论了，估计咩姐看不懂
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2936#       发表于 2020-5-4 17:57
+
+
+
+
+成了，兔姨植树民会有吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 2937#       发表于 2020-5-4 17:58
+
+
+
+
+我看今天本来是有联动的，然后黄兔子忘了，结果又凭空整出个舞元联动，是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2938#       发表于 2020-5-4 18:00
+
+
+
+
+联动这么大的事怎么可能会忘，这分明就是给你咩姐下套<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+这黄兔子心中绝对有鬼，麻也不知道长个心眼
+妈的我心脏疼<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2939#       发表于 2020-5-4 18:02
+
+
+
+
+梁木++++<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+nico生都阴险说
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 2940#       发表于 2020-5-4 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始植树？
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2941#       发表于 2020-5-4 18:03
+
+
+
+
+原来她们之间的联动是这样的流程吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2942#       发表于 2020-5-4 18:03
+
+
+
+
+只要推对了人，植树节每天都过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 2943#       发表于 2020-5-4 18:05
+
+
+
+
+这难道是比尔盖茨的女婿的故事
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 2944#       发表于 2020-5-4 18:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">视联动结果冲了组长直播间
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2945#       发表于 2020-5-4 18:05
+
+
+
+
+看节目效果吧，我还是相信兔妈的实力的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2946#       发表于 2020-5-4 18:07
+
+
+
+
+看效果决定（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 2947#       发表于 2020-5-4 18:07
+
+
+
+
+这黄兔子肯定看上了五元的流量，知道你麻吸不来血，就自己来吸<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+借着麻心软就玩这么一出，为什么你麻身边只有这种人啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2948#       发表于 2020-5-4 18:07
+
+
+
+
+种树开始，联动下套了鲨了黄兔子<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 16:06** 
+> ## **本文件最后更新于2020-05-04 18:06** 
 
 
 
@@ -20110,7 +20110,7 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
  本帖最后由 Alphawalker 于 2020-5-4 00:47 编辑 
 
-<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_IT6UL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_l7DrL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [苏姐](https://twitter.com/SephiraSu/status/1256951380729663488)这个自作3d还蛮好看的，感觉是saine设计服饰太花哨所以直接用新服饰盖过去了
 
 不过saine的推一点也没提到她，全是露露贺图相关，哭力<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
@@ -25935,4 +25935,1974 @@ miko前天晚上的突发深夜晚酌女子会再生快10W了
 
 
 
-    
+
+
+-----
+
+####  SuntoryNomu  
+##### 17870#       发表于 2020-5-4 16:07
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-5-4 16:28 编辑 
+
+怎么开VR那位才这么一会儿都获得外号“人上人（划掉）   人上人上人”了的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当初我对这人印象就只是“挺早以前就是中国车万音乐社团YonderVoice编曲作曲了”这样子
+
+瞎开团还被扒出来自主规制内容这些事儿也是没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+补一楼
+
+
+初直播打钱还真就是因为阿缔娅唱了YV的歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+（不过炯仙咋没上船呢
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17871#       发表于 2020-5-4 16:08
+
+
+
+
+注意措辞，留学生是人👆人，他是留学生的领导，是人👆人👆人。
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 17872#       发表于 2020-5-4 16:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你虹这个打块大赛用阿葵的频道就怼两个胸上来还行
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17873#       发表于 2020-5-4 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如叫人外人吧
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17874#       发表于 2020-5-4 16:11
+
+
+
+
+留学生得套皮才是人↑人，尾宝还差一步<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 17875#       发表于 2020-5-4 16:11
+
+
+
+
+星姐字幕组这边动不动十几个人一起烤肉简直可怕，甚至还有狗狗组的人<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17876#       发表于 2020-5-4 16:14
+
+
+
+
+这位陈先生应该不是直系主管，不过这种人↑人↑人，要不了多久就升迁了吧，祝他能领导B站的特大项目<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17877#       发表于 2020-5-4 16:16
+
+
+
+
+因为：
+
+立本留学生是人👆人。
+
+又因为：
+
+希望国是立本的爹。
+
+且
+
+尾宝是希望国留学生。
+
+所以：
+
+尾宝是人👆人的爹。
+
+得证：
+
+尾宝是人👆人👆人。
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 17878#       发表于 2020-5-4 16:17
+
+
+
+
+听论坛这么说白洋葱 搞得我也想去看了 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17879#       发表于 2020-5-4 16:18
+
+
+
+
+再人↑人不还是被樱花打工妹踩在脚底下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17880#       发表于 2020-5-4 16:18
+
+
+
+
+结论，yhm是神
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17881#       发表于 2020-5-4 16:19
+
+
+
+[https://www.youtube.com/watch?v=TSZ9RlU6EXk](https://www.youtube.com/watch?v=TSZ9RlU6EXk)
+
+
+点描の唄 / Mrs. GREEN APPLE (feat.井上苑子) covered by 律可×ロボ子さん
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17882#       发表于 2020-5-4 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47299306&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-4 15:33</a>
+到现在也就玩了两天csgo死斗说蛮好玩的，结果没两天又不想玩了开始ow大概这就是爱吧
+
+
+我看她还特别 ...</blockquote>
+这是挂片一生之敌啊233，她来了s1游戏区大概会立刻气死吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17883#       发表于 2020-5-4 16:20
+
+
+
+
+那这位人↑人↑人是阿娣娅的gachi恋，那阿娣娅算啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17884#       发表于 2020-5-4 16:27
+
+
+
+
+本部有yagoo对紫洋葱卑躬屈膝，cn有人上人对白洋葱gachi恋，这波还是上位替代。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17885#       发表于 2020-5-4 16:28
+
+
+
+
+阿媂娅=尾宝
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17886#       发表于 2020-5-4 16:30
+
+
+
+
+原来尾宝是自闭留学生死宅妹吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 17887#       发表于 2020-5-4 16:30
+
+
+
+
+上位替代都被你们玩出花来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17888#       发表于 2020-5-4 16:32
+
+
+
+
+别上位替代了，鱼都不上钩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17889#       发表于 2020-5-4 16:33
+
+
+
+
+你们这么玩，以后crew看到上位替代只会想笑了怎么办？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17890#       发表于 2020-5-4 16:34
+
+
+
+
+上位替代的意义应该在于找到一个更好的v，然后取关原来的那个
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17891#       发表于 2020-5-4 16:35
+
+
+
+
+那时候说不定能找到crew的上位替代
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17892#       发表于 2020-5-4 16:37
+
+
+
+
+crew的上位替代不就是天狗么，老上位替代了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17893#       发表于 2020-5-4 16:37
+
+
+
+
+只要crew不断地咬钩<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17894#       发表于 2020-5-4 16:38
+
+
+
+
+crew的上位替代应该是星咏者，打钱宣传浮游炮力度都是上位替代
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17895#       发表于 2020-5-4 16:39
+
+
+
+
+所以<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">这俩咬钩有啥区别啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17896#       发表于 2020-5-4 16:40
+
+
+
+ 本帖最后由 oshinoshinobu 于 2020-5-4 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47299801&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-4 16:37</a>
+
+crew的上位替代不就是天狗么，老上位替代了。</blockquote>
+真的假的，你能安排一下那个女人的上位替代论吗，看看效果
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17897#       发表于 2020-5-4 16:40
+
+
+
+
+一个只有一个钩，另一个全是钩的区别
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17898#       发表于 2020-5-4 16:42
+
+
+
+
+不过紫洋葱当v之前还只玩lol呢，白洋葱将来也开始玩别的游戏也不是不可能
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17899#       发表于 2020-5-4 16:44
+
+
+
+
+就看她能不能走出舒适区了呗，反正就算她天天ow也还是有人看的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 17900#       发表于 2020-5-4 16:45
+
+
+
+
+就离谱，我在没人dio我，我一走全都在开我，还是erer姐好，从来不顺劈我，下次黑ntcrew我会继续加大力度，兔夸两开花。对了，我游戏面非常窄，而fps和tps都属于完全八行滴那种。
+
+
+syl
+
+虽然美国是立本的爹，但yhm也还是全球死宅的爹啊。杏的美国死宅和俄罗斯死宅不是都匍匐在一个同接6000多的yhm脚下，极尽奉承之能事，何况我也不是（幸好不是）灯塔国滴人
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 17901#       发表于 2020-5-4 16:48
+
+
+
+
+目测的感觉就是<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+一个是鱼饵套娃<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">
+
+一个是排队上钩<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+（新来的咬了上面的一个空钩，图片视角转移到新上钩的那个，然后之前那个下移到视线外区域）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|好像有道理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17902#       发表于 2020-5-4 16:48
+
+
+
+<blockquote>但yhm也还是全球死宅的爹啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 17903#       发表于 2020-5-4 16:49
+
+
+
+
+怎么这里也开始套娃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17904#       发表于 2020-5-4 16:49
+
+
+
+
+在中国是妈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 17905#       发表于 2020-5-4 16:50
+
+
+
+
+打ow打傻了，纪念回说会看人玩魂系列，可能会打只狼，然而不知道可以用键鼠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17906#       发表于 2020-5-4 16:50
+
+
+
+
+用<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">感觉上有种满载而归的感觉
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 17907#       发表于 2020-5-4 16:53
+
+
+
+
+死宅归死宅，怎么就俄罗斯了。
+
+美国那个了解不多，真的是死宅么？
+
+syl
+
+只论杏的话，B站真正的top还是阿夸吧？
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/165230etfauop2opfe2ffo.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-04 165059.png</strong> (86.27 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-4 16:52 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/165234ieg9t99t6tk3ez69.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-04 165154.png</strong> (88.56 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-4 16:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17908#       发表于 2020-5-4 16:54
+
+
+
+
+一直不都是大亏吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17909#       发表于 2020-5-4 16:57
+
+
+
+
+夸手上两张王牌：一张贴贴营业，一张b站对她死心塌地的crew。兔皇上位替代论恐终结。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17910#       发表于 2020-5-4 16:58
+
+
+
+
+等小天使和星街贴贴起来你们就知道错了
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 17911#       发表于 2020-5-4 16:58
+
+
+
+
+律可和萝卜子唱歌真好听！！！
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17912#       发表于 2020-5-4 16:59
+
+
+
+
+holo b站这收益比之前差远了，上个月的爆炸图一乐的观众无所谓，愿意打钱的炸没了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17913#       发表于 2020-5-4 16:59
+
+
+
+
+今晚的兔皇b批限不就能见真章了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17914#       发表于 2020-5-4 17:01
+
+
+
+
+兔神在b劣势，因为404发展太好了，她根本懒得管b站这边啊，说不定她巴不得这边效果不好，以后可以安心只在404发展。
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 17915#       发表于 2020-5-4 17:02
+
+
+
+
+兔皇b限为啥是参观cn服这种垃圾企划
+草，不应该是棉花糖回么
+再不济唱歌也行啊
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17916#       发表于 2020-5-4 17:02
+
+
+
+
+看了一眼葵皇的b站收益，真的惨不忍睹<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17917#       发表于 2020-5-4 17:03
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/170221pkcq0kaq6ackqea0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXG0gFhUEAAHrzO.jpg</strong> (178.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 17:02 上传
+
+
+
+
+
+
+
+又来了又来了，两小时后开
+
+[https://www.youtube.com/watch?v=c-Ph-jT_YEI](https://www.youtube.com/watch?v=c-Ph-jT_YEI)
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17918#       发表于 2020-5-4 17:03
+
+
+
+
+pxj门压岁钱用光了吧。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17919#       发表于 2020-5-4 17:04
+
+
+
+
+早说了星街就算造星成功也就升到夏吹水平
+
+想超大亏得先把大亏踢出木口
+
+但那也只是大亏变弱了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17920#       发表于 2020-5-4 17:04
+
+
+
+
+我一直就想说这种喝酒对谈真的是喝酒吗，不会其实喝的是可乐吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 17921#       发表于 2020-5-4 17:05
+
+
+
+
+啤酒也是酒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17922#       发表于 2020-5-4 17:05
+
+
+
+
+得要让韭菜有时间长啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17923#       发表于 2020-5-4 17:05
+
+
+
+
+好像是一般都是喝果酒？肯定不会到喝醉那种程度吧，那其实喝啥都无所谓了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17924#       发表于 2020-5-4 17:06
+
+
+
+
+喝可乐耍观众寻开心的巨魔配信者，i了i了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17925#       发表于 2020-5-4 17:07
+
+
+
+
+holo在国内风风火火，感觉有稳定粉丝的还是那么几个人，顶多往那几个人的粉丝里塞了点箱推粉
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17926#       发表于 2020-5-4 17:07
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-4 17:11 编辑 
+
+喝酒回至今给我留下最深印象的就是muri那次醉酒萌音摇滚歌回<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17927#       发表于 2020-5-4 17:07
+
+
+
+
+说起来我个人是烟酒谢绝体质，所以对不喝酒的人天然好感。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17928#       发表于 2020-5-4 17:08
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-4 17:10 编辑 
+
+这俩老阿姨得聊点忆往昔峥嵘岁月才有看点，不然装萌萌人属实无聊。
+
+LZ一说我想起来了，上古时期ちめーろでい喝醉了给观众看莱莱着实牛逼。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17929#       发表于 2020-5-4 17:09
+
+
+
+
+德比不是有次喝高了有点撕皮吗，感觉尊妈PTR她们这块还是喜欢玩真的
+
+还有haneru另一个号很著名的发酒疯事迹...
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 17930#       发表于 2020-5-4 17:10
+
+
+
+
+不是还有ほろよい这种东西吗，虽然在我眼里微醺甚至啤酒都不算是酒都是饮料
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17931#       发表于 2020-5-4 17:11
+
+
+
+
+サボ余
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/171057ulcmjow53yhmr6uu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200504170236.png</strong> (34.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 17:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 17932#       发表于 2020-5-4 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300074&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-4 17:07</a>
+
+说起来我个人是烟酒谢绝体质，所以对不喝酒的人天然好感。</blockquote>
++1
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17933#       发表于 2020-5-4 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47299967&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-5-4 16:57</a>
+夸手上两张王牌：一张贴贴营业，一张b站对她死心塌地的crew。兔皇上位替代论恐终结。 ...</blockquote>
+crew对天狗说：等夸皇打出贴贴牌，野兔子就知道错了。
+天狗a：听起来不错，但和我们有什么关系。
+天狗b：我们是牌。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17934#       发表于 2020-5-4 17:13
+
+
+
+
+彩虹不是还有个德比江良社禁酒直播嘛，这三位都曾经喝酒喝出事故啊。
+
+不过说到发酒疯，谁又比得上mkt......
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 17935#       发表于 2020-5-4 17:16
+
+
+
+
+小天使玩了这么久了，还没玩到晴天娃娃么？
+
+中途才开始看，这个配音是真的卖力。
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17936#       发表于 2020-5-4 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300146&amp;ptid=1924531" target="_blank">Viden 发表于 2020-5-4 17:16</a>
+
+小天使玩了这么久了，还没玩到晴天娃娃么？
+
+中途才开始看，这个配音是真的卖力。</blockquote>
+完全没有跳过+全配音。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 17937#       发表于 2020-5-4 17:19
+
+
+
+
+饮酒配信都有台本吧，尤其企业势。酒后吐真言可不是玩笑话。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17938#       发表于 2020-5-4 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">酒回真的喝酒我是信的，不过也就啤酒而已，yhm喝其他酒一般要兑水的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17939#       发表于 2020-5-4 17:25
+
+
+
+
+艹，404白给小天使下播了，不知道会不会再开。精华还没看到啊。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17940#       发表于 2020-5-4 17:25
+
+
+
+
+立本人喝酒就喝不来，炒酒就比谁都厉害。三得利（指那家公司）我操你妈。
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 17941#       发表于 2020-5-4 17:26
+
+
+
+
+说到底喝点啤酒都能喝醉的人根本不会做这种配信吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 17942#       发表于 2020-5-4 17:26
+
+
+
+ 本帖最后由 Viden 于 2020-5-4 17:31 编辑 
+
+YTB拖后腿了……这也没办法。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17943#       发表于 2020-5-4 17:29
+
+
+
+
+懒狗粉丝能视奸懒狗半夜的lol记录就已经很开心了
+
+登个推特发个おはよう哪有半夜反向上分鼓舞粉丝人心呢
+
+
+
+
+
+
+
+-----
+
+####  kaion111  
+##### 17944#       发表于 2020-5-4 17:30
+
+
+
+
+喝酒回..之前muri喝酒摇滚歌回，一瓶125ml江小白，大半瓶100ml二锅头把自己喝断片了，还是staff断的推流。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 17945#       发表于 2020-5-4 17:30
+
+
+
+
+就算...
+
+
+就算只能看着你和其他人玩游戏的记录，
+
+
+已经很幸福了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17946#       发表于 2020-5-4 17:31
+
+
+
+
+警惕V综和平演变冒菜楼
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17947#       发表于 2020-5-4 17:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300167&amp;ptid=1924531" target="_blank">the_cook 发表于 2020-5-4 17:19</a>
+
+饮酒配信都有台本吧，尤其企业势。酒后吐真言可不是玩笑话。</blockquote>
+holo突击深夜晚酌女子会的神回阴阳表也是台本提前设计好的吗
+[https://www.youtube.com/watch?v=HytCW6Yi8IM](https://www.youtube.com/watch?v=HytCW6Yi8IM)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17948#       发表于 2020-5-4 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300225&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-4 17:25</a>
+
+立本人喝酒就喝不来，炒酒就比谁都厉害。三得利（指那家公司）我操你妈。 ...</blockquote>
+百年梅酒：叫我？？？？
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 17949#       发表于 2020-5-4 17:33
+
+
+
+
+今天v版KPI不行哎，都在等晚上兔神？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17950#       发表于 2020-5-4 17:34
+
+
+
+
+台本不至于，一般只要配信者不至于酩酊大醉说出奇怪的东西就行了。
+
+syl，小天使之前讲过自己不能喝酒来着。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17951#       发表于 2020-5-4 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300268&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-4 17:31</a>
+
+holo突击深夜晚酌女子会的神回阴阳表也是台本提前设计好的吗
+
+https://www.youtube.com/watch?v=HytCW6Yi8 ...</blockquote>
+不是，但这回根本没人喝酒，就纯谈天扯淡
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17952#       发表于 2020-5-4 17:35
+
+
+
+
+懒狗的节奏我都看腻了，每次都是一模一样的内容，直到她哪周被运营按着脑袋多播几次，开启下一个循环<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 17953#       发表于 2020-5-4 17:35
+
+
+
+<blockquote>kaion111 发表于 2020-5-4 17:30
+喝酒回..之前muri喝酒摇滚歌回，一瓶125ml江小白，大半瓶100ml二锅头把自己喝断片了，还是staff断的推流。 ...</blockquote>
+有点好奇，有链接吗？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17954#       发表于 2020-5-4 17:36
+
+
+
+
+yhm怎么不喝酒？日本5%以下的果酒调酒有10万甚至9万种，喝个14度清酒已经可以吹上天了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17955#       发表于 2020-5-4 17:39
+
+
+
+
+这么多爱喝酒的，为啥虹杏没人抽烟直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17956#       发表于 2020-5-4 17:39
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-4 17:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47300316&amp;ptid=1924531" target="_blank">克罗夏 发表于 2020-5-4 17:35</a>
+
+有点好奇，有链接吗？</blockquote>
+没，录播她自己删了，倒是有剪辑
+[https://www.bilibili.com/video/B ... 4874048213362009892](https://www.bilibili.com/video/BV1yA41147D5?from=search&amp;seid=14874048213362009892)
+
+syl，1两二锅头+2两半的江小白，还有牛腩山
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 克罗夏| + 1|七海之歌可爱|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17957#       发表于 2020-5-4 17:40
+
+
+
+
+日本的果酒不就是果汁味雪碧，没那么容易醉的。
+
+醉酒程度：情绪高涨LV.1——口舌不清——情绪高涨LV.2——做蠢事——睡觉
+
+
+一般企业势只能做到情绪高涨LV.2那里吧，更多的是LV.1装醉做蠢事
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17958#       发表于 2020-5-4 17:49
+
+
+
+
+口吃神和空妈玩MC，3小时后
+
+[https://www.youtube.com/watch?v=ax5C5xmXv1E](https://www.youtube.com/watch?v=ax5C5xmXv1E)
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17959#       发表于 2020-5-4 17:50
+
+
+
+[https://www.youtube.com/watch?v=FMU_F8ktRmg&amp;feature=youtu.be](https://www.youtube.com/watch?v=FMU_F8ktRmg&amp;feature=youtu.be)
+
+【オリジナルMV】magnet/健屋花那/白雪巴【にじさんじ性癖コンビ】
+
+おまたせ。
+
+0時からプレミア公開。
+
+
+tmsk版贴贴神曲来了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17960#       发表于 2020-5-4 17:51
+
+
+
+
+抽烟那还是樱花妹吗<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 17961#       发表于 2020-5-4 17:52
+
+
+
+
+是太妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17962#       发表于 2020-5-4 17:52
+
+
+
+
+抽烟到没有，DWU直接飞🍃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17963#       发表于 2020-5-4 17:53
+
+
+
+
+yhm抽烟还是不少的，但是オタサー姫抽烟的话就要掉价了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17964#       发表于 2020-5-4 17:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/175303s929v829m7z4m2i7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>15885859636168579635666250900331.jpg</strong> (620.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 17:53 上传
+
+
+
+
+
+来张小黑，木口b限大撞车又要来了。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17965#       发表于 2020-5-4 17:54
+
+
+
+
+百合漫里倒是有不少抽烟的
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 17966#       发表于 2020-5-4 17:55
+
+
+
+<img src="https://p.sda1.dev/0/b1968a2550f76872616248ebf5c7c436/IMG_2A8B1BF66BC1A68213318B25076E0C20.jpeg" referrerpolicy="no-referrer">
+
+梅露又动了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 17967#       发表于 2020-5-4 17:55
+
+
+
+
+大概是漫画世界的T标配？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17968#       发表于 2020-5-4 17:56
+
+
+
+
+抽烟伤嗓子啊，对于很对v来说是肯定不能接触的。
+
+
+
+
+
+
+
+-----
+
+####  qdaqd123  
+##### 17969#       发表于 2020-5-4 17:57
+
+
+
+ 本帖最后由 qdaqd123 于 2020-5-4 18:01 编辑 
+
+てぃっくとっくって陽キャがやってるやつ？【白雪巴・健屋花那/にじさんじ】
+[https://www.youtube.com/watch?v=gvqfXcH74nU](https://www.youtube.com/watch?v=gvqfXcH74nU)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17970#       发表于 2020-5-4 17:59
+
+
+
+
+偶尔抽两根，再咳两下，gachi就来了啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17971#       发表于 2020-5-4 18:02
+
+
+
+
+抽烟喝酒烫头的V来一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17972#       发表于 2020-5-4 18:02
+
+
+
+
+肥宅连卫生棉条都没见过你还让他们看女人抽烟，怕不是直接吓死了。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17973#       发表于 2020-5-4 18:03
+
+
+
+
+这和肥宅也没关呀，和偶像有关。我记得TFboy里就有一个因为抽烟炸了一波
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17974#       发表于 2020-5-4 18:05
+
+
+
+
+王源？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 17975#       发表于 2020-5-4 18:06
+
+
+
+
+5w同接放海鲜台百万人气总有了吧
+
+
+
+
+
