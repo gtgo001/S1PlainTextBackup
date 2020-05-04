@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 12:05** 
+> ## **本文件最后更新于2020-05-04 14:05** 
 
 
 
@@ -20110,7 +20110,7 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
  本帖最后由 Alphawalker 于 2020-5-4 00:47 编辑 
 
-<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_yo7bF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_YtbY1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [苏姐](https://twitter.com/SephiraSu/status/1256951380729663488)这个自作3d还蛮好看的，感觉是saine设计服饰太花哨所以直接用新服饰盖过去了
 
 不过saine的推一点也没提到她，全是露露贺图相关，哭力<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
@@ -21703,7 +21703,7 @@ NBXX
 <img src="https://img.saraba1st.com/forum/202005/04/104411fsow0n0o30r2rp6e.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200504104344.png</strong> (752.42 KB, 下载次数: 0)
+<strong>QQ截图20200504104344.png</strong> (752.42 KB, 下载次数: 1)
 
 下载附件
 
@@ -22569,7 +22569,7 @@ b站直播原来算黑的吗？不是其他平台主播只能拿两成吗？
 <img src="https://img.saraba1st.com/forum/202005/04/120146z9nyvrtvr2tlld3v.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-05-04 120126.png</strong> (109.69 KB, 下载次数: 0)
+<strong>批注 2020-05-04 120126.png</strong> (109.69 KB, 下载次数: 1)
 
 下载附件
 
@@ -22600,4 +22600,1548 @@ b站直播原来算黑的吗？不是其他平台主播只能拿两成吗？
 
 
 
-          
+
+
+-----
+
+####  Izuru单推人  
+##### 17692#       发表于 2020-5-4 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297449&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-4 11:54</a>
+
+你说得也有道理，对阿森纳球迷来说，吃屎程度大概是 热刺夺冠&gt;魔力鸟的球队夺冠&gt;利物浦夺冠&gt;切尔 ...</blockquote>
+这又是什么类比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17693#       发表于 2020-5-4 12:14
+
+
+
+
+夸皇又要APEX了，芙宝说得不对，夸皇除了ff7还打了APEX不是吗？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17694#       发表于 2020-5-4 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297556&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-4 12:08</a>
+
+这又是什么类比欺负我看不懂足球啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨天不就有人说VR的某个男人把HoloCN拉一起秒了吗，以后Stars一个男人把杏女拉一起秒了，就轮到杏仁盼着yagoo和cover随时爆炸了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17695#       发表于 2020-5-4 12:18
+
+
+
+
+不是我指的是耐久企划 
+
+APEX没耐久吧
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 17696#       发表于 2020-5-4 12:18
+
+
+
+
+最早希望彩虹爆炸的怎么会是内部的囚人，肯定是那堆觉得坏了规矩，什么量产机策略劣币驱除良币的人啊
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17697#       发表于 2020-5-4 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297264&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-5-4 11:35</a>
+反正之前哈拉德已经把脸都打肿了，看桑乔在多特的表现我觉得肯定是能挖就得挖，与其担心太贵不如担心人家 ...</blockquote>
+其实鸟买熟男想快速出成绩不是问题，高薪熟男才是，中等薪水用个两三年然后转手不比刮彩票差，只是太高薪会烂手里而已
+
+
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17698#       发表于 2020-5-4 12:21
+
+
+
+
+大亏现在到了上分瓶颈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">继续抱着solo上钻企划不放的话耗的时间精力比FF7RE只会多，不会少
+
+
+
+
+
+
+2020-5-4.png
+(78.93 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-4 12:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/122006j7rqyrgw0nyo0hs6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17699#       发表于 2020-5-4 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297639&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-4 12:17</a>
+
+昨天不就有人说VR的某个男人把HoloCN拉一起秒了吗，以后Stars一个男人把杏女拉一起秒了，就轮到杏 ...</blockquote>
+如果真有这天到来，怕不是这楼要V16了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 17700#       发表于 2020-5-4 12:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大亏想塑造单机竞技样样行的形象怎么可能嘛，单机耐久好歹就是熟练度的问题，竞技类耐久目标不确定性太多了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 17701#       发表于 2020-5-4 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297178&amp;ptid=1924531" target="_blank">Mawile 发表于 2020-5-4 11:26</a>
+
+B站直播区应该是最黑的，不然为什么B站直播区那么多人往外跑。</blockquote>
+之前应该是因为b站看直播的人少，b站是直播新手村，斗鱼和虎牙明显有更光明的未来，和分成关系应该不大吧。
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 17702#       发表于 2020-5-4 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297472&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-5-4 11:57</a>
+顺便给2000一点顺劈素材。
+
+最早希望彩虹爆炸的那批人，就是18年希望天皇转生点弟弟的那批古参囚人。</blockquote>
+这不是最扭曲的婆罗门+冠军粉么233，又要有数字还要有逼格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  不智法师  
+##### 17703#       发表于 2020-5-4 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297264&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-5-4 11:35</a>
+
+反正之前哈拉德已经把脸都打肿了，看桑乔在多特的表现我觉得肯定是能挖就得挖，与其担心太贵不如担心人家 ...</blockquote>
+看到聊足球忍不住插一句了，哈兰德不用可惜，现在还看不到他有背身能力，所以来了未必那么香。
+
+桑乔也是，技术不错，但没有非常好的身体素质，指望当大腿不大现实，不过肯定比现在的人好使。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17704#       发表于 2020-5-4 12:31
+
+
+
+
+足球讨论就算了，怎么还都是魔迷的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 17705#       发表于 2020-5-4 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297284&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-05-04 11:37:09</a>
+虽然但是，根据在大学的见识，是女生宿舍比较脏乱差一点。</blockquote>我之前给学校打工做过宿舍检查的工作，体感女生宿舍东西多会很乱，但男生宿舍已经到了味道刺激眼睛的地步了，冲完不知道把卫生纸丢垃圾桶吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17706#       发表于 2020-5-4 12:34
+
+
+
+
+给22姐安慰一下
+
+<img src="https://img.saraba1st.com/forum/202005/04/123432d2wtt2vs200ztr54.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200504123326.png</strong> (19.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 12:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17707#       发表于 2020-5-4 12:36
+
+
+
+
+难道日本也有上位替代学说？怎么也提这个的？
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17708#       发表于 2020-5-4 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47296362&amp;ptid=1924531" target="_blank">超能力者stven 发表于 2020-5-4 09:53</a>
+人少可能会减少来b频率吧…但最大规模一次上舰也不是来b的时候…</blockquote>
+那时候星圣的原话是：“不知不觉B站的舰长已经1000+了，是时候考虑B限了”
+确实是先有千舰再有B限<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 17709#       发表于 2020-5-4 12:37
+
+
+
+
+马造都上过s的人不到最后怎么可能放弃
+这赛季只有一个星期了，差1400分
+草
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17710#       发表于 2020-5-4 12:37
+
+
+
+
+五期快抽出来吧，最近太长草了。兔田也该有她的上位替代了。
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 17711#       发表于 2020-5-4 12:39
+
+
+
+
+还有别人还搞过脏房间企划吗？我看一些粉好像不是很满意
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17712#       发表于 2020-5-4 12:39
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-4 12:41 编辑 
+
+P1期带小姐，大受好评。
+
+主要是那个极道茶室和蒙古包太牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17713#       发表于 2020-5-4 12:40
+
+
+
+ 本帖最后由 colodes 于 2020-5-4 12:45 编辑 
+
+森永大小姐啊，当时我倒是看的挺开心的
+[https://www.bilibili.com/video/BV1mb411L72x](https://www.bilibili.com/video/BV1mb411L72x)
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17714#       发表于 2020-5-4 12:40
+
+
+
+
+一年前miu森永做过
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17715#       发表于 2020-5-4 12:40
+
+
+
+
+船长也弄过，还不只是脏房间，什么穷房间富房间什么都都有，官组还有熟肉。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17716#       发表于 2020-5-4 12:41
+
+
+
+
+这企划做得好就是神企划
+
+其实还是要看参与粉丝的配合情况
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 17717#       发表于 2020-5-4 12:41
+
+
+
+<blockquote>不智法师 发表于 2020-5-4 12:30
+看到聊足球忍不住插一句了，哈兰德不用可惜，现在还看不到他有背身能力，所以来了未必那么香。
+
+桑乔也是 ...</blockquote>
+哈兰德目前的优势就是高大强壮但特别能冲能跑，而且腿部发力击球的感觉非常好，但中锋式的技巧欠缺，来我膜必定废了会练出一身垃圾习惯。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17718#       发表于 2020-5-4 12:43
+
+
+
+
+不过啊，之前stars以前的境况，经常被这样说：“被两个歌势吊着半死不活”，现在三期一来至少可以把这个评价抛掉了，这就够了啊（不过我倒不认为一弦和律可是歌势，哪有发歌频率这么低打游戏频率这么高的歌势），甩掉这个评价才能迎来存在可能的未来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 17719#       发表于 2020-5-4 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297804&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-4 12:34</a>
+
+给22姐安慰一下</blockquote>
+peko把太多无关的内容带进了直播中。
+
+夸哥才是硬实力冠军
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 17720#       发表于 2020-5-4 12:45
+
+
+
+ 本帖最后由 超能力者stven 于 2020-5-4 12:46 编辑 
+
+我猜有些想让箱爆炸的粉的心态是这样的：反正你箱不重视我的推，不如整箱爆炸算了！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17721#       发表于 2020-5-4 12:47
+
+
+
+
+什么叫做重视
+
+天天围着你的推联动么
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17722#       发表于 2020-5-4 12:49
+
+
+
+
+这可别了啊，天天联动没个人回我会死的。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17723#       发表于 2020-5-4 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297655&amp;ptid=1924531" target="_blank">zpbzpb123123 发表于 2020-5-4 12:18</a>
+最早希望彩虹爆炸的怎么会是内部的囚人，肯定是那堆觉得坏了规矩，什么量产机策略劣币驱除良币的人啊 ...</blockquote>
+那这当然指的是虹人内部。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17724#       发表于 2020-5-4 12:50
+
+
+
+
+话说回来巧可今天GTA同接2K+
+
+azki同接2K+
+
+
+感觉holo越加有救了
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 17725#       发表于 2020-5-4 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297847&amp;ptid=1924531" target="_blank">stars 发表于 2020-5-4 12:39</a>
+
+还有别人还搞过脏房间企划吗？我看一些粉好像不是很满意
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+[https://space.bilibili.com/27780 ... =%E6%88%BF%E9%97%B4](https://space.bilibili.com/2778044/video?keyword=%E6%88%BF%E9%97%B4)
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 17726#       发表于 2020-5-4 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297752&amp;ptid=1924531" target="_blank">不智法师 发表于 2020-5-4 12:30</a>
+
+看到聊足球忍不住插一句了，哈兰德不用可惜，现在还看不到他有背身能力，所以来了未必那么香。
+
+桑乔也是 ...</blockquote>
+哈兰德的风格本来就不是站桩策应型中锋而是高大抢点型中锋吧，他现在的球风发展下去模板就是戈麦斯，要是以后能成长得比巅峰戈麦斯还强就又是一代顶级前锋了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17727#       发表于 2020-5-4 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297921&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-4 12:49</a>
+
+这可别了啊，天天联动没个人回我会死的。</blockquote>
+船长撒……
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17728#       发表于 2020-5-4 12:51
+
+
+
+ 本帖最后由 あのん 于 2020-5-4 12:55 编辑 
+
+唯二爆弹的choco能被拉活木口就真没有弱点了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17729#       发表于 2020-5-4 12:53
+
+
+
+
+之前404集体卡的时候叶师能直接在twich上播，小熊猫这边要考虑什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+Rqtnapetit.png
+(94.09 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-4 12:51 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/125115sshpsrrgfdlsl0qs.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17730#       发表于 2020-5-4 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297946&amp;ptid=1924531" target="_blank">あのん 发表于 2020-5-4 12:51</a>
+
+唯二爆弹的choco能被拉活木口就真没有弱点了</blockquote>
+还别说，巧可的ARK平时放在副频道播 你也知道副频道原来的知名度和订阅数
+
+结果最近副频道ARK同接稳定2-3K
+
+跟世界末日一般的奇迹
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17731#       发表于 2020-5-4 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297939&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-4 12:51</a>
+
+船长撒……</blockquote>
+船长虽然经常联动但还是会保证个人回次数的，经常是一天双动一次联动一次个人的。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17732#       发表于 2020-5-4 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297691&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-4 12:22</a>
+
+如果真有这天到来，怕不是这楼要V16了</blockquote>
+加油黑宝，相信你能看到这一天的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17733#       发表于 2020-5-4 12:55
+
+
+
+
+先富带后富，共奔圣皇路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17734#       发表于 2020-5-4 12:55
+
+
+
+
+V1到V8花了多久时间来着，不过按现在的增长效率，V16也就后两年的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 17735#       发表于 2020-5-4 13:00
+
+
+
+
+要是梅露再不摸那至少本社就没死角了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17736#       发表于 2020-5-4 13:02
+
+
+
+
+梅露今天继续联动，22点，
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17737#       发表于 2020-5-4 13:06
+
+
+
+
+杏非center毕业只要是风光大葬其实对本社毫无影响的。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17738#       发表于 2020-5-4 13:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">朱雀桑有风光大葬吗？
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 17739#       发表于 2020-5-4 13:22
+
+
+
+
+毕业配信也没有
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17740#       发表于 2020-5-4 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297997&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-5-4 12:55</a>
+V1到V8花了多久时间来着，不过按现在的增长效率，V16也就后两年的事</blockquote>
+管人还有半年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 17741#       发表于 2020-5-4 13:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47297847&amp;ptid=1924531" target="_blank">stars 发表于 2020-05-04 12:39:06</a>
+还有别人还搞过脏房间企划吗？我看一些粉好像不是很满意</blockquote>最近P家猫猫搞过这个。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17742#       发表于 2020-5-4 13:30
+
+
+
+
+对木口星的遭遇表示悲哀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 17743#       发表于 2020-5-4 13:30
+
+
+
+
+芙：朱雀算杏吗
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 17744#       发表于 2020-5-4 13:30
+
+
+
+
+木口今天从18点到24点都有人来B限，甚至两个debu还撞到一起了，这虚假的繁荣还能持续多久呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 17745#       发表于 2020-5-4 13:31
+
+
+
+
+gw结束后应该会正常起来吧
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 17746#       发表于 2020-5-4 13:32
+
+
+
+
+b站刚做直播的时候的确都在说b站提成最黑，熊猫还行，现在就不知道了毕竟平台都在用各种方法压榨主播，就我知道的那种抖音火山短视频平台做直播提成在30%左右，加了工会提成在38%-42%
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 17747#       发表于 2020-5-4 13:35
+
+
+
+
+问下现在下午档有什么推荐的主播吗?
+
+我现在比较喜欢看的几个要么上午要么晚上 下午这会儿整个关注列表就没人在播......
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17748#       发表于 2020-5-4 13:38
+
+
+
+
+兔圣啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17749#       发表于 2020-5-4 13:38
+
+
+
+
+杏星毕业你问yagoo，毕竟他带的亲兵，每天转推一万条的。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 17750#       发表于 2020-5-4 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47298372&amp;ptid=1924531" target="_blank">Mika-S 发表于 2020-5-4 13:38</a>
+
+兔圣啊</blockquote>
+兔田不看的 有没有亲中一点的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 17751#       发表于 2020-5-4 13:41
+
+
+
+
+12306 两点不准时开播
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17752#       发表于 2020-5-4 13:41
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-4 13:43 编辑 
+
+2000最讨厌的黑客正在apex<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17753#       发表于 2020-5-4 13:42
+
+
+
+
+艹，夸皇撞小肥妹，小肥妹要遭重啊
+
+
+要不你们两联动算了（不可能<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17754#       发表于 2020-5-4 13:44
+
+
+
+
+杏应激反应那么大，田角可不可以靠人数优势车轮战高强度B限累死杏仁？
+
+
+100个人轮班可以轮好久了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17755#       发表于 2020-5-4 13:44
+
+
+
+
+兔皇读SC呢，这有什么可看的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17756#       发表于 2020-5-4 13:44
+
+
+
+
+15分钟小天使心动文学俱乐部
+
+
+
+
+
+
+
+-----
+
+####  Urakawa  
+##### 17757#       发表于 2020-5-4 13:45
+
+
+
+
+下午档？牛姨？不过今天没播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17758#       发表于 2020-5-4 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47298414&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-4 13:44</a>
+
+杏应激反应那么大，田角可不可以靠人数优势车轮战高强度B限累死杏仁？
+
+
+100个人轮班可以轮好久了。 ...</blockquote>
+累死的难道不是虹人观众吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17759#       发表于 2020-5-4 13:46
+
+
+
+<blockquote>l⑨th_Knight 发表于 2020-5-4 13:32
+b站刚做直播的时候的确都在说b站提成最黑，熊猫还行，现在就不知道了毕竟平台都在用各种方法压榨主播，就我 ...</blockquote>
+公会应该是给流量赚提成的组织吧？怎么加了公会主播提成更高？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17760#       发表于 2020-5-4 13:47
+
+
+
+<blockquote>ひびき 发表于 2020-5-4 13:42
+艹，夸皇撞小肥妹，小肥妹要遭重啊
+
+
+要不你们两联动算了（不可能</blockquote>
+有啥好在意的，技不如人不丢人…………（只是我为了不天天想着届到她已经几天不看了，其实还是想届到啊哭）
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17761#       发表于 2020-5-4 13:49
+
+
+
+ 本帖最后由 QWANG 于 2020-5-4 13:50 编辑 
+
+下午的话。夸皇打APEX？虹打块大赛？syl
+
+没什么遭重的，B站杏人都被榨干了，该看的人还是会看的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17762#       发表于 2020-5-4 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47298432&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-4 13:46</a>
+
+累死的难道不是虹人观众吗</blockquote>
+本日天気晴朗ナレドモ浪高シ、皇国ノ兴廃此ノ一戦ニ在リ、各员一层奋励努力セヨ。
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 17763#       发表于 2020-5-4 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47298438&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-4 13:46</a>
+公会应该是给流量赚提成的组织吧？怎么加了公会主播提成更高？</blockquote>
+就是鼓励主播加工会，用工会的资源带主播数据，最后还是平台更赚钱
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 17764#       发表于 2020-5-4 13:51
+
+
+
+
+田角先想办法多动员几个人来b吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17765#       发表于 2020-5-4 13:52
+
+
+
+
+田角搞个网站取代b站吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17766#       发表于 2020-5-4 13:54
+
+
+
+
+19亿能办个什么规模的网站？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 17767#       发表于 2020-5-4 13:56
+
+
+
+
+b站的体量比彩虹大几百倍吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17768#       发表于 2020-5-4 13:56
+
+
+
+
+b站杏人居然这么容易就榨干了我是没想到的，这几天b限也就是平常404的直播频率，结果sc一下降低到了比404日常sc还要低一档的水平
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17769#       发表于 2020-5-4 13:57
+
+
+
+
+所以B站市场还是小啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JhIenog  
+##### 17770#       发表于 2020-5-4 13:57
+
+
+
+
+下午的话现在杏星2期那个店长在播超魔界村
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17771#       发表于 2020-5-4 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47298514&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-05-04 13:56:33</a>
+b站杏人居然这么容易就榨干了我是没想到的，这几天b限也就是平常404的直播频率，结果sc一下降低到了比404日 ...</blockquote>往好处想，说不定是留给狐皇100W呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+而且说实话，b站打钱一想到要分钱给b我就会浑身难受，在b其他项目上受气太多<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17772#       发表于 2020-5-4 14:03
+
+
+
+
+まんさんじ最強！まんさんじ最強！
+
+
+<img src="https://img.saraba1st.com/forum/202005/04/140300vppdvkmx3ylt9pty.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200504140233.png</strong> (93.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-4 14:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17773#       发表于 2020-5-4 14:03
+
+
+
+
+狐皇100万搁置多长时间了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17774#       发表于 2020-5-4 14:05
+
+
+
+
+狐皇的50W+100W纪念拖越久期待越高到时候拉跨可能越大。
+
+
+
+
+
+       
