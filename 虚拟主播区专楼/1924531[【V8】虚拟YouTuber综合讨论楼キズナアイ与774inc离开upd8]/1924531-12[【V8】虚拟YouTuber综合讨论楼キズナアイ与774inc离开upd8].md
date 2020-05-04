@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-04 02:06** 
+> ## **本文件最后更新于2020-05-04 08:05** 
 
 
 
@@ -9177,7 +9177,7 @@ HOLO社选游戏丰富的除了兔子外还有面包狗  除了老人扶持外
 <img src="https://img.saraba1st.com/forum/202005/03/193855fipioyhy4yugqi21.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EN2fJwyUYAIKwJk.jpg</strong> (534.62 KB, 下载次数: 2)
+<strong>EN2fJwyUYAIKwJk.jpg</strong> (534.62 KB, 下载次数: 3)
 
 下载附件
 
@@ -14854,10 +14854,11 @@ COD:现代战争</blockquote>
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| ErenJager| + 1|好评加鹅|
 | JhIenog| + 1|好评加鹅|
 | icecry| + 1|好评加鹅|
 | Ascending| + 1|好评加鹅|
@@ -16343,7 +16344,7 @@ lulu这个直播学中文，弹幕人是真的多
 
 
 IDOFH[X]TLA`69U]A[8HZTS.png
-(824.62 KB, 下载次数: 0)
+(824.62 KB, 下载次数: 1)
 
 
 
@@ -16522,7 +16523,7 @@ nico其实和彩虹一样的，先发优势拉满，内容生态丰富，十人�
 <img src="https://img.saraba1st.com/forum/202005/03/223403j648rzwr9aqg6gtu.jpg" referrerpolicy="no-referrer">
 
 
-<strong>nanba.jpg</strong> (45.25 KB, 下载次数: 2)
+<strong>nanba.jpg</strong> (45.25 KB, 下载次数: 3)
 
 下载附件
 
@@ -16945,7 +16946,7 @@ syl，阿道你也别顺劈彩虹技术了，单纯就联动实现不借助dis�
 
 
 U7]WZM~1SI5D]2E09X(C}ZP.png
-(772.28 KB, 下载次数: 1)
+(772.28 KB, 下载次数: 2)
 
 
 
@@ -16974,7 +16975,7 @@ U7]WZM~1SI5D]2E09X(C}ZP.png
 
 
 CLK%[~SD0JLR]05@52FT(EL.png
-(729.42 KB, 下载次数: 0)
+(729.42 KB, 下载次数: 1)
 
 
 
@@ -17003,7 +17004,7 @@ CLK%[~SD0JLR]05@52FT(EL.png
 
 
 [4_99C5@ZGB68(WJ@921K]O.png
-(756.02 KB, 下载次数: 1)
+(756.02 KB, 下载次数: 2)
 
 
 
@@ -17955,7 +17956,7 @@ holocn和vr这就打起来了，真就斗虫呗，不过holo这个牌子在国�
 <img src="https://img.saraba1st.com/forum/202005/03/233909epohugzynpy4cgop.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-05-03 233836.png</strong> (54.29 KB, 下载次数: 2)
+<strong>批注 2020-05-03 233836.png</strong> (54.29 KB, 下载次数: 3)
 
 下载附件
 
@@ -18557,7 +18558,7 @@ syl，阿道i不能算正常虹人，他在隔壁也说过退坑了，现在这�
 <img src="https://img.saraba1st.com/forum/202005/04/000811ui2xc6fuuzofj622.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200504000754.png</strong> (49.12 KB, 下载次数: 2)
+<strong>QQ截图20200504000754.png</strong> (49.12 KB, 下载次数: 3)
 
 下载附件
 
@@ -18847,7 +18848,7 @@ https://b23.tv/UePxMn</blockquote>
 <img src="https://img.saraba1st.com/forum/202005/04/001338xzg2eylmepl6pagh.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200504001257.png</strong> (63.33 KB, 下载次数: 0)
+<strong>QQ截图20200504001257.png</strong> (63.33 KB, 下载次数: 1)
 
 下载附件
 
@@ -19121,7 +19122,7 @@ zsyl 我nga ID只有一穷二白三光那个号，
 <img src="https://img.saraba1st.com/forum/202005/04/002015n9qtlsjg75zjqg5j.png" referrerpolicy="no-referrer">
 
 
-<strong>@D0_SR@GMK[~L0$`$J17J%R.png</strong> (45.21 KB, 下载次数: 0)
+<strong>@D0_SR@GMK[~L0$`$J17J%R.png</strong> (45.21 KB, 下载次数: 1)
 
 下载附件
 
@@ -19536,7 +19537,7 @@ syl帮黑宝贴一下izuru下周时间表
 
 
 EXGinOcU8AI8z2B.jpg
-(190.74 KB, 下载次数: 0)
+(190.74 KB, 下载次数: 1)
 
 
 
@@ -20109,7 +20110,7 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
  本帖最后由 Alphawalker 于 2020-5-4 00:47 编辑 
 
-<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_oB3o5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXGWnbtUcAIRB9X?format=jpg&amp;name=large" id="aimg_B94x4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [苏姐](https://twitter.com/SephiraSu/status/1256951380729663488)这个自作3d还蛮好看的，感觉是saine设计服饰太花哨所以直接用新服饰盖过去了
 
 不过saine的推一点也没提到她，全是露露贺图相关，哭力<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
@@ -20159,10 +20160,11 @@ syl，所以说真心佩服那些粉了阿森纳十几年的球迷，那真的�
 
 
 
- 参与人数 1战斗力 +2
+ 参与人数 2战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| stedckk| + 1|魔迷来了，现在这批年轻人还是有希望的.|
 | Devi_Lito| + 2|同为魔迷，这两年都不敢穿曼联球衣出门了。.|
 
 
@@ -20664,4 +20666,512 @@ zsyl，克姐想要新衣服新发型……也得有钱啊……
 
 
 
-             
+
+
+-----
+
+####  伊迪潘喵森  
+##### 17593#       发表于 2020-5-4 02:10
+
+
+
+
+https://b23.tv/UG5D4E  爱丽丝组十万纪念，四个组长从18年开始回忆
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17594#       发表于 2020-5-4 02:13
+
+
+
+ 本帖最后由 好德我基 于 2020-5-4 02:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295052&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-4 01:41</a>
+
+不要拿你楼套我，也不要拿我套彩虹人。本来就是个“就这”的事情，既然你都知道了，想说就说呗，我又不在 ...</blockquote>
+既然不想虹人风评被害，那为什么连"就这"都不肯说呢？
+
+又想插一嘴当情强，又不肯完完整整说出来，当谜语人虽然有优越感，但不是更加让虹人风评被害吗？
+
+让我们终结这场谜语吧。不当太监，不当谜语人，从我做起。以下内容需要积分高于 20000 才可浏览
+
+管人观众迷惑大赏本体是NBXX，确实不算虹人
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|字词|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17595#       发表于 2020-5-4 02:16
+
+
+
+ 本帖最后由 北山玖公 于 2020-5-4 02:20 编辑 
+
+知名管人粉？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，出现的地方也算挺多的了。既然老哥都设了个权限，那我也编辑掉好了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17596#       发表于 2020-5-4 02:19
+
+
+
+ 本帖最后由 stedckk 于 2020-5-4 02:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295074&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-5-4 01:47</a>
+
+我观点和icecry老哥应该差不多：
+
+
+穆鸟初期很惊艳，但后期真的太惨不忍睹了。再加上一帮游穆民族搞得各大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">博格巴现在出手卖不了大价钱最好还是留下吧，其实我挺期待他跟b费组合产生化学反应的。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">三德子是真的菜交了好多学费，但是索肖来了之后买人基本都买对了，暂时还是放过他吧。
+
+说实话要不是要不是疫情影响本来那段时间曼联起势那么厉害肯定要暴打穆鸟带领的残兵热刺，
+
+之后进前四的几率还是挺大的，可惜了。
+
+
+顺便现在桑乔貌似争议声挺大的，我抬右边锋位置短缺好多年了，现在出了个本土天才还愿意来按理说挺合适的就是价格比较贵，而且听说也不是爆点类型，真不知道到底合不合适<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17597#       发表于 2020-5-4 02:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">居然是他，他那么闲的吗。。。
+
+顺便这个权限真的有用嘛。
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 17598#       发表于 2020-5-4 02:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">居然是他
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17599#       发表于 2020-5-4 02:52
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-4 03:01 编辑 
+
+编辑晚了，我都知道是谁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那这位确实不像是虹人
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 17600#       发表于 2020-5-4 03:10
+
+
+
+
+传说之下洁宝居然在耐久<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17601#       发表于 2020-5-4 03:13
+
+
+
+
+彩虹作息永远是这么迷……<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17602#       发表于 2020-5-4 03:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295299&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-4 02:52</a>
+
+编辑晚了，我都知道是谁了
+
+那这位确实不像是虹人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这话说的，难道你真的不知道他是谁？铁定不是虹人啊。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17603#       发表于 2020-5-4 03:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">顺便2000今晚发什么疯，这都能强开inui
+
+居然还有人信才是最离谱的，信的人智商都跟2000一样低的吗？
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 17604#       发表于 2020-5-4 03:23
+
+
+
+
+被兔皇的数字刺激到了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 17605#       发表于 2020-5-4 03:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一下那个微博，发现下面评论好多虹人，居然还看到了v综楼友，笑死。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 17606#       发表于 2020-5-4 03:28
+
+
+
+ 本帖最后由 北山玖公 于 2020-5-4 03:30 编辑 
+
+那个微博我见2k见的最多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 17607#       发表于 2020-5-4 03:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295357&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-4 03:17</a>
+
+顺便2000今晚发什么疯，这都能强开inui
+
+居然还有人信才是最离谱的，信的人智商都跟2000一样低的吗？ ...</blockquote>
+都是乐子人，你说真有人信我是不信的，都陪着2000玩呐<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 17608#       发表于 2020-5-4 05:43
+
+
+
+
+这么多曼联球迷老哥zqsg还行，我觉得曼联也就是暂时性的起伏，本身家大业大不会像他毛一样沉沦下去的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+倒是我这个看埃弗顿的新球迷，这几年看着主队有钱瞎买人也挺难受的，小基恩和伊沃比花那么多我是真的服。不过安胖来了后感觉好起来了，几个年轻人可能都要踢出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|qs，我毛没钱和曼联差距还是大.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17609#       发表于 2020-5-4 06:38
+
+
+
+
+？？？？我进八体了？？？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17610#       发表于 2020-5-4 06:38
+
+
+
+
+看到虹人也觉得这个阿道魔怔我就放心了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 17611#       发表于 2020-5-4 07:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295543&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-4 06:38</a>
+
+看到虹人也觉得这个阿道魔怔我就放心了</blockquote>
+tf这样直球nga转生的新楼友合适吗ww
+
+
+虽然这位嘛.......<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17612#       发表于 2020-5-4 07:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">深夜变成魔迷交流了可还行，阿，还有埃佛顿球迷，利物浦球迷应该不会看管人，每天光看利物浦新闻就能够睡得香甜了
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 17613#       发表于 2020-5-4 07:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295687&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-4 07:41</a>
+
+深夜变成魔迷交流了可还行，阿，还有埃佛顿球迷，利物浦球迷应该不会看管人，每天光看利物浦新闻就 ...</blockquote>
+他军这两年真是抖得彻彻底底的，“好看城”没欧冠成绩，但是“好看铺”可上来就拿一欧冠呢
+
+
+而且看这阵容和运营策略，他军这才哪到哪，曼城衰败了他铺才开了个头呢
+
+
+syl
+
+魔迷是真的惨，这两年身边的魔迷分为“宁与死敌不予暴发户”派和”宁与同城不给历史宿敌“派
+
+
+颇有鸟巢争爸内维尔，看着也是让人唏嘘<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17614#       发表于 2020-5-4 08:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295683&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-4 07:40</a>
+
+tf这样直球nga转生的新楼友合适吗ww
+
+
+虽然这位嘛.......</blockquote>
+不是什么新转生，出现得比你早多了，整天反串杏赢虹输，不反串不会说话，以前就怼过
+
+现在号称弃坑还整天搁这爆炸，和自称不在意数字却骂白上小人得志有异曲同工之妙
+
+当然这号和NGA那个是同一个人倒是前阵子才知道的，联想到那个斋藤太君，还有2000，只能说魔怔的账号可能很多，但魔怔的人可能没有那么多<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17615#       发表于 2020-5-4 08:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47295728&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-05-04 07:53:05</a>
+他军这两年真是抖得彻彻底底的，“好看城”没欧冠成绩，但是“好看铺”可上来就拿一欧冠呢
+
+
+而且看这阵容 ...</blockquote>你那是个jb红魔，真红魔只有利记给爷死派，不行你问问前面那几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 17616#       发表于 2020-5-4 08:03
+
+
+
+<blockquote>Devi_Lito 发表于 2020-5-4 01:47
+我观点和icecry老哥应该差不多：
+
+
+穆鸟初期很惊艳，但后期真的太惨不忍睹了。再加上一帮游穆民族搞得各大 ...</blockquote>
+我密曼联还要早的多(要暴露年龄了
+
+博格巴我对他感情有点复杂，或者说博格巴他自己对曼联感情也是复杂的，可惜他身边给他吹耳边风的太多，他哥，拉伊奥拉这种..能留下肯定支持，想走钱也不能少。我们右路实在是瘫了太多年了，有球星肯来还是赶紧砸吧。这里都成球馆了233
+
+
+
+
+
+
+
+
+            
