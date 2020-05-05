@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 00:08** 
+> ## **本文件最后更新于2020-05-06 02:07** 
 
 
 
@@ -14352,4 +14352,2061 @@ k1为啥对苔苔这么怨念深重啊<img src="https://static.saraba1st.com/ima
 
 
 
-                     
+
+
+-----
+
+####  Leutnant某囧  
+##### 3860#       发表于 2020-5-6 00:35
+
+
+
+
+官组转meaqua雀魂录像却不肯转咩姐和gibara的互动吗，失望
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 3861#       发表于 2020-5-6 00:38
+
+
+
+
+gbr也就本土引流,真国内流量还得看我meaqua<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3862#       发表于 2020-5-6 00:40
+
+
+
+
+是回的江哥的推，江哥官号没复刻，这边也没法复刻啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3863#       发表于 2020-5-6 00:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别急着失望，我还在等着mea昨天B限那个不能天使的最高指令啥时候整出来（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3864#       发表于 2020-5-6 00:41
+
+
+
+<blockquote>GRMeA104 发表于 2020-5-6 00:38
+gbr也就本土引流,真国内流量还得看我meaqua</blockquote>
+gbr搬运组第一时间就翻译好了，官组连现成的动态都不愿意转却特意捞录像，真的很失望
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3865#       发表于 2020-5-6 00:43
+
+
+
+<blockquote>暗心舞踏 发表于 2020-5-6 00:40
+是回的江哥的推，江哥官号没复刻，这边也没法复刻啊</blockquote>
+江哥官号又不发推特动态。。。之前也转过bgr搬运组的动态
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3866#       发表于 2020-5-6 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315581&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 00:41</a>
+gbr搬运组第一时间就翻译好了，官组连现成的动态都不愿意转却特意捞录像，真的很失望 ...</blockquote>
+别xjb倒垃圾了，弱智不弱智<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">逮着点东西可劲失望，你就不能往好点的地方想或者直接去问问官组的人么
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3867#       发表于 2020-5-6 00:45
+
+
+
+
+真的一次又一次拉低下限，连和b站有官号的其他v互动的推特复刻都不管了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3868#       发表于 2020-5-6 00:45
+
+
+
+
+为啥要对官组执念那么深¿不会是官组粉丝8
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 3869#       发表于 2020-5-6 00:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315601&amp;ptid=1929631" target="_blank">Rem-清曲 发表于 2020-5-6 00:45</a>
+为啥要对官组执念那么深¿不会是官组粉丝8</blockquote>
+暗黑官组粉（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3870#       发表于 2020-5-6 00:47
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 00:45
+别xjb倒垃圾了，弱智不弱智逮着点东西可劲失望，你就不能往好点的地方想或者直接去问问官组的人么 ...</blockquote>
+能往啥好的地方想，我认识的官组成员已经私信问了，有没有效果不清楚
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3871#       发表于 2020-5-6 00:48
+
+
+
+
+直接问官组吧，想复刻推特也算是正常诉求
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3872#       发表于 2020-5-6 00:48
+
+
+
+<blockquote>Rem-清曲 发表于 2020-5-6 00:45
+为啥要对官组执念那么深¿不会是官组粉丝8</blockquote>
+及时复刻其他推特做的到，转发一条动态就不行了？而且官号是咩姐的东西，能复刻的本来就该复刻吧？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3873#       发表于 2020-5-6 00:50
+
+
+
+
+转了，没事了，希望官号以后再多捞咩姐发挥优秀的歌回录像
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3874#       发表于 2020-5-6 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315617&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 00:48</a>
+及时复刻其他推特做的到，转发一条动态就不行了？而且官号是咩姐的东西，能复刻的本来就该复刻吧？ ...</blockquote>
+b站官号又没复刻，说不定就是没注意到呗，随便找点事就跑这倒垃圾，那建议你上书推特找mea换掉官组呗，省的没事跑这倒些没用的垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3875#       发表于 2020-5-6 00:53
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 00:50
+b站官号又没复刻，说不定就是没注意到呗，随便找点事就跑这倒垃圾，那建议你上书推特找mea换掉官组呗，省 ...</blockquote>
+之前和gbr互动的时候能做到及时转发搬运组动态，现在为什么不能呢？之前能做到捞好的歌回的录像，现在为什么不能呢？我是懂为什么现在有些人能不断得寸进尺了。
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3876#       发表于 2020-5-6 00:56
+
+
+
+
+怎么还能有sb和我逼逼六字母这次联动有爆点所以特意捞了的，然后反手给你爹来一句歌回没爆点，我真是日了你x的组gachi
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3877#       发表于 2020-5-6 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315646&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 00:53</a>
+之前和gbr互动的时候能做到及时转发搬运组动态，现在为什么不能呢？之前能做到捞好的歌回的录像，现在为 ...</blockquote>
+还得寸进尺上了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">一个不是官号的推特复刻过了一个多小时转了就成了不及时，你这个v⭕️标准也太高了吧，自己没事给自己种梁木挑刺挑上瘾了说别人得寸进尺？
+<img src="https://p.sda1.dev/0/662321ed475156b2a963405e27875427/IMG_4A25F8EF1AC9178C0A963C6DA2BA4877.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3878#       发表于 2020-5-6 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315633&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 00:50:56</a>
+b站官号又没复刻，说不定就是没注意到呗，随便找点事就跑这倒垃圾，那建议你上书推特找mea换掉官组呗，省 ...</blockquote>gbr搬运组整个给你翻译出来你跟我说没有做？洗洗眼睛
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3879#       发表于 2020-5-6 00:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这波啊，这波我不知道是什么了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3880#       发表于 2020-5-6 00:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3881#       发表于 2020-5-6 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315676&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 00:56:40</a>
+还得寸进尺上了</blockquote>哦，六字母联动光速上传捞然后推特复刻不顺手捞一下？是不是你也要来个今晚和ponpoko的联动没爆点糊你爹我脸上啊？上次捞什么时候的事了？十五万油管纪念捞了？5月3号歌回要不要我找记者私聊直传录播给他啊？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 3882#       发表于 2020-5-6 00:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3883#       发表于 2020-5-6 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315680&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 00:56</a>
+gbr搬运组整个给你翻译出来你跟我说没有做？洗洗眼睛
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+我说了是官号没发，说不定就是没看到呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3884#       发表于 2020-5-6 01:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">彩虹官号和字幕组是分开的，一般都是字幕组复刻推特，官号没有很正常
+字幕组捞meaqua联动不捞歌回不怎么想追究，其实就是有偏向性罢了。我觉得歌回比meaqua联动好看，为啥捞meaqua联动，这普通联动到底特殊在哪了，显然官组是把meaqua联动特殊处理了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 3885#       发表于 2020-5-6 01:01
+
+
+
+
+she.jpg
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3886#       发表于 2020-5-6 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315698&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 00:59:01</a>
+我说了是官号没发，说不定就是没看到呗</blockquote>说的真棒，刚刚小破群团建一波然后官组【瞬间】看到了，我是不是要谢谢那几位官组成员反馈及时终于肯听一下意见了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">次次叫捞你当是赶牛呢，给爷爬
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3887#       发表于 2020-5-6 01:02
+
+
+
+
+不早就知道官组贴贴人多嘛，对此我只想说一句，意外吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3888#       发表于 2020-5-6 01:03
+
+
+
+
+一般有官号的不都是等转官号的吗
+
+真尼玛些破事
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3889#       发表于 2020-5-6 01:03
+
+
+
+
+就不能这么想么:歌回大多数人都看了，狗j8联动没人看还得捞一下
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3890#       发表于 2020-5-6 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315715&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 01:01</a>
+说的真棒，刚刚小破群团建一波然后官组【瞬间】看到了，我是不是要谢谢那几位官组成员反馈及时终于肯听一下 ...</blockquote>
+不好意思没加群，隔了一个来小时转发就能失望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道你那小群怎么看，反正我觉得挺弱智的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3891#       发表于 2020-5-6 01:04
+
+
+
+
+歌回不配，除非和大亏一起唱.jpg
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3892#       发表于 2020-5-6 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315727&amp;ptid=1929631" target="_blank">Rem-清曲 发表于 2020-05-06 01:03:40</a>
+就不能这么想么:歌回大多数人都看了，狗j8联动没人看还得捞一下</blockquote>好活，爷睡了，tc建议他组别上传了。
+下次继续和谬打我继续拉人烤<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3893#       发表于 2020-5-6 01:05
+
+
+
+
+顺便在这念念叨叨捞meaqua录像的，我心思字幕组不是还捞了mea的原创曲么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可能黑暗贴贴人看不到吧，他们眼里只有meaqua
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3894#       发表于 2020-5-6 01:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人看的联动多了，为什么只转meaqua啊，meaqua很特殊吗，很特殊吗各位，我觉得很普通啊
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3895#       发表于 2020-5-6 01:06
+
+
+
+
+每个人看法不同，你失望就失望呗，别老搁这丢垃圾行8
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3896#       发表于 2020-5-6 01:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这就是梁木啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3897#       发表于 2020-5-6 01:07
+
+
+
+
+捞近期投稿跟捞录像合集能一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3898#       发表于 2020-5-6 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315733&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 01:04:27</a>
+不好意思没加群，隔了一个来小时转发就能失望了不知道你那小群怎么看，反正我觉得挺弱智的 ...</blockquote>我不失望啊憨批<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3899#       发表于 2020-5-6 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315760&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 01:07</a>
+我不失望啊憨批六字母次次都这司马样早就习惯了，反正你逼逼一万句也改变不了他们捞生肉合集速度问 ...</blockquote>
+你这个所谓的司马样，到底是真的司马样，还是你跟人团建二创出来的司马样，我越来越疑惑了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3900#       发表于 2020-5-6 01:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315738&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 01:05:47</a>
+顺便在这念念叨叨捞meaqua录像的，我心思字幕组不是还捞了mea的原创曲么可能黑暗贴贴人看不到吧，他们眼里 ...</blockquote>哦，因为这件事做好了所以其他的不足我们不需要任何改进，建议去学学逻辑，或者你也来个爆点不足de批话给我听听，所有联动就你六字母有爆点必须捞，真别逗我笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3901#       发表于 2020-5-6 01:10
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:05
+顺便在这念念叨叨捞meaqua录像的，我心思字幕组不是还捞了mea的原创曲么可能黑暗贴贴人看不到吧，他 ...</blockquote>
+典型混为一谈，直播录像和本人的歌曲投稿性质一样？你用这个方法多少次了？看来咩姐昨天顶着生理期连唱接近四个小时的歌回就不值得捞了？？？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3902#       发表于 2020-5-6 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315770&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 01:09</a>
+哦，因为这件事做好了所以其他的不足我们不需要任何改进，建议去学学逻辑，或者你也来个爆点不足de批话给我 ...</blockquote>
+看来在你眼里捞一下meaqua录像就成了不足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你眼里meaqua录像不配被捞是吧
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3903#       发表于 2020-5-6 01:10
+
+
+
+
+去外面整栋楼嗯喷都没关系，别把垃圾丢餐桌上8
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3904#       发表于 2020-5-6 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315766&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 01:09:14</a>
+你这个所谓的司马样，到底是真的司马样，还是你跟人团建二创出来的司马样，我越来越疑惑了 ...</blockquote>你觉得不是那就不是，不过这跟我觉得你反梁木跟个ptsd玩意儿不冲突，说难听点，官组瞬间爆炸都不关我事，我看你不爽所以我喷你，这是你原话，逗比，别跟我装反梁木斗士了，看到就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3905#       发表于 2020-5-6 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315774&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:10</a>
+典型混为一谈，直播录像和本人的歌曲投稿性质一样？你用这个方法多少次了？看来咩姐昨天顶着生理期连唱接 ...</blockquote>
+那你倒是说你挑刺挑了多少回了，挑点刺就来失望一波？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3906#       发表于 2020-5-6 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315777&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 01:10:44</a>
+看来在你眼里捞一下meaqua录像就成了不足了你眼里meaqua录像不配被捞是吧</blockquote>哎哟，一起捞是不是要了官组上号人的狗命啊，真别恶心我<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3907#       发表于 2020-5-6 01:12
+
+
+
+
+单推人不愿意进官号增加单推浓度可不就只能在论坛干嚎了呗，这么急为啥不进组？流星进得你进不得？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+你咩姐B限指定的不能天使剪辑熟肉到现在一个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唯二的生肉剪辑只有下面两个
+[https://www.bilibili.com/video/BV1bp4y197Jw](https://www.bilibili.com/video/BV1bp4y197Jw)（生肉，把你咩姐的需求剪进来了，但没加你咩姐指定的前后对比，算是普通剪辑，目前482点击）
+[https://www.bilibili.com/video/BV1Dg4y1q75h](https://www.bilibili.com/video/BV1Dg4y1q75h)（生肉，纯唱歌剪辑，目前22点击）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波我能觉得你咩姐说话又都被官组+海盗全员当放屁了吗？所以搁这急啥？搁这急的再狠又有啥用？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3908#       发表于 2020-5-6 01:12
+
+
+
+<blockquote>framita 发表于 2020-5-6 01:03
+一般有官号的不都是等转官号的吗
+
+
+真尼玛些破事</blockquote>
+之前转的就是搬运组，现在不会了？组员这一下就记忆全无了？
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3909#       发表于 2020-5-6 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315787&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-06 01:12:11</a>
+那你倒是说你挑刺挑了多少回了，挑点刺就来失望一波？</blockquote>能做的更好非要用一堆理由粉饰，官组有你这种gachi实属三生之幸啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3910#       发表于 2020-5-6 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315794&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:12</a>
+之前转的就是搬运组，现在不会了？组员这一下就记忆全无了？</blockquote>
+过了一小时转到你这就成了不会转了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">mea半夜发推官号早上复刻时怎么没见你瞬间爆炸过
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3911#       发表于 2020-5-6 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">承认官组确实有偏向性就行了呗，为啥要否定，有偏向性我也可以不喷啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3912#       发表于 2020-5-6 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315793&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 01:12</a>
+
+单推人不愿意进官号增加单推浓度可不就只能在论坛干嚎了呗，这么急为啥不进组？流星进得你进不得？
+
+ ...</blockquote>
+别急，有人在做，因为最近投的和要投的歌实在太多了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3913#       发表于 2020-5-6 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315802&amp;ptid=1929631" target="_blank">草牛 发表于 2020-5-6 01:13</a>
+承认官组确实有偏向性就行了呗，为啥要否定，有偏向性我也可以不喷啊 ...</blockquote>
+没偏向性才奇怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3914#       发表于 2020-5-6 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315793&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-05-06 01:12:30</a>
+单推人不愿意进官号增加单推浓度可不就只能在论坛干嚎了呗，这么急为啥不进组？流星进得你进不得？这波我能 ...</blockquote>他官组的活我干嘛要去做，你这也是奇怪。我一个海盗我剪希区柯克感情还要考虑官组很忙没时间剪不能天使然后帮忙k轴投稿？这玩意儿不难也要认真k一小时上下，用嘴说的确很简单。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">建议知行合一
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3915#       发表于 2020-5-6 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315808&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 01:14</a>
+没偏向性才奇怪啊但他这失望的理由也太弱智了，一个推特复刻一小时没转这就失望了？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了，你骂他失望bot我是没意见的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3916#       发表于 2020-5-6 01:16
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:13
+过了一小时转到你这就成了不会转了mea半夜发推官号早上复刻时怎么没见你瞬间爆炸过 ...</blockquote>
+来，又混为一体了是吧？这性质完全不同，你有空捞直播录像没空转动态？一点逻辑都不讲了是吧？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3917#       发表于 2020-5-6 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315806&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-6 01:14</a>
+
+别急，有人在做，因为最近投的和要投的歌实在太多了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用慌，我知道官组有人在做这个，我这说的只是给暗黑官组民听的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 3918#       发表于 2020-5-6 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315806&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-6 01:14</a>
+
+别急，有人在做，因为最近投的和要投的歌实在太多了。</blockquote>
+要投的歌?是还有卫星吗<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3919#       发表于 2020-5-6 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315817&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:16</a>
+来，又混为一体了是吧？这性质完全不同，你有空捞直播录像没空转动态？一点逻辑都不讲了是吧？ ...</blockquote>
+不是，我好歹是把捞mea原创曲和捞mea录像放一块说的，你这都把转自己录像和转别人动态放一块说，混为一谈的人到底是谁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3920#       发表于 2020-5-6 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315810&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 01:15</a>
+
+他官组的活我干嘛要去做，你这也是奇怪。我一个海盗我剪希区柯克感情还要考虑官组很忙没时间剪不能天使然后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，这种活就是纯单推会干的活，为啥这么爱和官组争个单推高低的海盗没人去做呢，谁先做出来我就给谁奖励一个单推大红鹅好吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3921#       发表于 2020-5-6 01:20
+
+
+
+
+最近投的歌确实很多，4/26之后8个投稿里有4首歌（咩姐本人的两首，meaqua一首，直播剪辑一首），占了投稿数的一半
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 3922#       发表于 2020-5-6 01:21
+
+
+
+
+只会丢垃圾给楼友的bot太难顶了，官组里面大多啥成分大伙不都明白么，不进去改变搁这嗯丢垃圾真妹意思，官组也就这样了，不用洗懒得喷，因为几乎妹人进去改变它
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3923#       发表于 2020-5-6 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315829&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-05-06 01:18:23</a>
+是啊，这种活就是纯单推会干的活，为啥这么爱和官组争个单推高低的海盗没人去做呢，谁先做出来我就给谁奖 ...</blockquote>讲道理，没意义，我做出来很简单，但是这东西一来我说过了，是庄司自己说要做的，显然官组在传播力度上更合适。其二。你不会觉得我158粉丝的体量有什么用吧，最后，我想弄的是希区柯克，不能天使又不对我胃口<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3924#       发表于 2020-5-6 01:23
+
+
+
+
+b限扔生肉合集的意思不是短期内不烤吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3925#       发表于 2020-5-6 01:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3926#       发表于 2020-5-6 01:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年一直以来的印象积重难返，也只能说辛亏流星这个“污点证人”进了官组，而且还算活着，不然这波还真不好说。所以既然现在官组已经可以让纯单推进去了，那为啥害在外面吆喝呢？这还不赶紧像流星学习挤进去一波占据优势高地？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3927#       发表于 2020-5-6 01:25
+
+
+
+
+因为喷人比较爽（）
+
+
+但进组（至少在想象里）大概已经把自己给气死了
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3928#       发表于 2020-5-6 01:27
+
+
+
+
+进去逼死自己吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3929#       发表于 2020-5-6 01:27
+
+
+
+
+说真的，我这种没有啥本事却有严重成分问题和不良前科的人都能进去，如果真的是想她好的话为什么不去试着进去做事呢。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3930#       发表于 2020-5-6 01:28
+
+
+
+ 本帖最后由 路人庚 于 2020-5-6 01:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315861&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 01:22</a>
+
+讲道理，没意义，我做出来很简单，但是这东西一来我说过了，是庄司自己说要做的，显然官组在传播力度上更合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，海盗做的很多数字低的剪辑熟肉因为点击太低大部分都没什么意义，这也是之前千里一直提的核心内容，所以让官号来做是最优的选择。但官号一直以来被“贴贴人占据”，只想着为了你咩姐好的“单推”只好因为各种原因委曲求全做海盗也是没办法的事。但现在至少流星进了官组，说明现在的官组实际上是可以吸纳纯单推进去而且所谓的政审也并非无法绝对无法通过。所以事到如今还在一味的强调官组不行在我这种路人看来只是无理取闹罢了，真的想为了你咩姐好的（当然有特殊情况的除外），是可以放下成见加入官组为她做更多事情的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3931#       发表于 2020-5-6 01:29
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:18
+不是，我好歹是把捞mea原创曲和捞mea录像放一块说的，你这都把转自己录像和转别人动态放一块说，混为一谈 ...</blockquote>
+你说的捞原创曲是咩姐自己做的曲子，这种官组必须要捞；
+
+捞咩姐直播录像很久以前做过几次，现在完全不做的时候突然捞了meaqua的联动录像，meaqua的联动优先级确实高，比咩姐前两天连续三小时的歌回都要高；
+
+你的混为一谈是把两者性质故意混淆来谈，我说有空转录像没空转动态是指官组皮套时间上完全充裕，而且有过转发gbr搬运组先例的情况下仍然不转gbr搬运组的动态。你之前拿出深夜没法及时复刻推特也是故意混淆，组员睡觉主观上无法复刻，和咩组皮套有空是两码事
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 3932#       发表于 2020-5-6 01:30
+
+
+
+
+很简单，燃烧热情啊。做啥事啊，我以活下去为第一要义<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3933#       发表于 2020-5-6 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315897&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:29</a>
+
+你说的捞原创曲是咩姐自己做的曲子，这种官组必须要捞；
+
+捞咩姐直播录像很久以前做过几次，现在完全不做 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这么多，不就是想表达官组目前的贴贴人浓度高吗？
+
+
+但我寻思这不是废话吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单推人一年多以来一直在外面，觉得自己加入官号会气死自己，这种情况下单推浓度能起来才tm怪了好吧
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3934#       发表于 2020-5-6 01:32
+
+
+
+
+我翻了翻去年五月到现在的捞录像记录，希望下回失望之前把眼界放宽点，失望的太弱智了被我喷，我还要被打成官组gachi，感觉我好冤啊
+<img src="https://p.sda1.dev/0/016a9f48ae0c3de389da1757c6d15481/IMG_F20A2603C429399F3499C817EF3F2676.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/175098c08fabbb203d782da55d7e2aa2/458003975d6a7ce4.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/1673f1fa843e90ae1b5c8bc335fd39a4/IMG_74DE1A627676014089A68AE8D54831B9.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/841533afa7795a961269c6113b2218c9/-27e16bfcec7c2ad6.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/c384e63ba3331beffb2f0350eb179459/-7314007ee03ba3f.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/d50b618bcbc393f255dace117f2f5816/IMG_BED4E6A3B9367D489F1DCB86F7EFECF2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/417150299603f374723c053eb3a9ccfd/7674f3d1c62cab06.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5929d743c1374a3db115b4a0d5309d1a/IMG_46C68B7D2F2766FADE4618E06D14BA68.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/214bfe3d41c1ecf5a9bdabc6ffa10006/-50cf5b6e27b29038.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|干货加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3935#       发表于 2020-5-6 01:34
+
+
+
+
+。。。一排2019也太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 3936#       发表于 2020-5-6 01:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反对党的义务是反对
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3937#       发表于 2020-5-6 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315911&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 01:32</a>
+
+你说的这么多，不就是想表达官组目前的贴贴人浓度高吗？
+
+
+但我寻思这不是废话吗？单推人一 ...</blockquote>
+之前不是搞过一次加官组吗又不是没人上，过的好像没几个吧，再说了你一直在一个不舒服的环境做事，就算能为了所谓的为咩好忍一时，一直下去怕不是先把自己热情都用到吵架上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 成见没那么好放下的，何况还是死不改的官组
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3938#       发表于 2020-5-6 01:37
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:32
+我翻了翻去年五月到现在的捞录像记录，希望下回失望之前把眼界放宽点，失望的太弱智了被我喷，我还要被打成 ...</blockquote>
+10月29日，离今天差不多五个月，我说的很久以前捞过几次有错？连基本的评价都不会？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3939#       发表于 2020-5-6 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315936&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-6 01:36</a>
+
+之前不是搞过一次加官组吗又不是没人上，过的好像没几个吧，再说了你一直在一个不舒服的环境做事，就算能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，如果加进去的单推数量够多那真的还会存在“不舒服的环境”吗？
+
+
+忍一时是忍一时，但忍过一时之后如果有足够多的人在里面为单推发声那么不就可以改变环境了吗？
+
+
+哦如果无论忍多久都没有环境，那没事了，那可能真没那么多单推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该认清现实了
+
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 3940#       发表于 2020-5-6 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315944&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-05-06 01:37:28</a>
+10月29日，离今天差不多五个月，我说的很久以前捞过几次有错？连基本的评价都不会？ ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你楼天天盯着官组热情高过mea的人能不能出去建个组楼啊，说了几遍了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3941#       发表于 2020-5-6 01:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315944&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:37</a>
+10月29日，离今天差不多五个月，我说的很久以前捞过几次有错？连基本的评价都不会？ ...</blockquote>
+别tm给自己找理由了，几个月没捞录像，捞了个meaqua就成了你失望的理由？可能meaqua不算mea的内容吧在你眼里
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3942#       发表于 2020-5-6 01:42
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:40
+别tm给自己找理由了，几个月没捞录像，捞了个meaqua就成了你失望的理由？可能meaqua不算mea的内容吧在你 ...</blockquote>
+捞meaqua可以，不能把歌回也捞了？看完meaqua才想起来该捞录像？在你看来歌回就这么不值当？
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3943#       发表于 2020-5-6 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315956&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 01:39</a>
+
+有一说一，如果加进去的单推数量够多那真的还会存在“不舒服的环境”吗？
+
+
+忍一时是忍一时，但忍 ...</blockquote>
+你真的认为环境那么容易改吗？评论区 nga  贴吧 哪个没有单推去所谓矫正，有用吗，何况这个审核还是还是官组审，你不会认为官组里贴贴人会对单推没意见吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3944#       发表于 2020-5-6 01:43
+
+
+
+
+熟肉staff表里常出现的认识的名字里贴贴人和单推都有，如果真的对官组内到底是个啥氛围好奇的话，我觉得得一探究竟才能知道
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3945#       发表于 2020-5-6 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315969&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:42</a>
+捞meaqua可以，不能把歌回也捞了？看完meaqua才想起来该捞录像？在你看来歌回就这么不值当？ ...</blockquote>
+捞meaqua怎么没捞歌回？捞xx怎么没捞yy？我看没捞meaqua之前你也没想着捞歌回啊，怎么捞了meaqua你开始念叨歌回了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别拿着歌回当你反meaqua的大旗了好不好
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3946#       发表于 2020-5-6 01:47
+
+
+
+
+还有龙魂有意思吗，官组难道没问题，你一定要说是因为lzm ptsd 无理取闹   因为突然转了我想起来了行不行  ，下次不是lzm我也喷你满意了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3947#       发表于 2020-5-6 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315971&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-6 01:42</a>
+
+你真的认为环境那么容易改吗？评论区 nga  贴吧 哪个没有单推去所谓矫正，有用吗，何况这个审核还是还是官 ...</blockquote>
+所以我说的是积重难返啊，过去看起来确实有问题，但现在流星都能进去，你总不能说流星是卖了py才进去的8？
+
+环境是慢慢改变的，曾经看上去无法改变的组确实没什么办法，但至少现在我觉得不能再把它打上歪屁股的标志，否则这将会导致未来的有能单推组员流失，毕竟如果现在还持续宣传咩组歪屁股的话，损失的可能还会有未来的新的可能会加进去烤肉的粉丝
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过去的错误，不能让未来的粉丝承担，我是这样的观点
+
+
+而且你咩姐之前不也说过，“还没做就开始就否定自己，所以阿宅才不行啊”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3948#       发表于 2020-5-6 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315971&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-6 01:42</a>
+你真的认为环境那么容易改吗？评论区 nga  贴吧 哪个没有单推去所谓矫正，有用吗，何况这个审核还是还是官 ...</blockquote>
+不是，要是真有那么大意见你觉得流星能进的去吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他到处发病也不止一回了，真找个理由要卡他我估计也挺好找的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3949#       发表于 2020-5-6 01:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315988&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-6 01:47</a>
+还有龙魂有意思吗，官组难道没问题，你一定要说是因为lzm ptsd 无理取闹   因为突然转了我想起来了行不行   ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答应我，喷的时候出发点是为了mea，而不是为了斗成分好吗
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3950#       发表于 2020-5-6 01:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">捞meaqua之前有人说过捞录像的问题啊，这个话题车过了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3951#       发表于 2020-5-6 01:51
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:46
+捞meaqua怎么没捞歌回？捞xx怎么没捞yy？我看没捞meaqua之前你也没想着捞歌回啊，怎么捞了meaqua你开始念 ...</blockquote>
+反区别对待不对吗？捞meaqua怎么没看转动态？之前没想到捞直播剪辑，偏偏就这个时候想到了？gbr搬运组的动态也不及时转？官组是捞完meaqua也没想起要转动态。承认官组偏meaqua很难？
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3952#       发表于 2020-5-6 01:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315990&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 01:48</a>
+
+所以我说的是积重难返啊，过去看起来确实有问题，但现在流星都能进去，你总不能说流星是卖了py才进去的8 ...</blockquote>
+那你等下次官组招人再说，如果单推还是过不了那没办法了，何况我觉得官组不说全部，歪的是肯定有的，你现在空谈这些也没用
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3953#       发表于 2020-5-6 01:52
+
+
+
+
+自从不去观察各路管人后我的梁木已经砍了，所以现在我很状况外
+
+多嘴几句，谋求组织改进内外两种办法，内就打入其中，合纵连横，安插亲信，打击异己，最后跻身高位后施行改革，少一步都白搭，既得利益和习惯哪有这么容易改变？
+
+外都懂，暴力推翻，直接重建。事先说一句，谁敢干这事我他妈盯着他骂一个月——暴力推翻最终需要哪个人点头，造成哪个人的困惑甚至丧气。希望有些人梁木别高的超过心中的太阳
+
+
+综上，我建议你们跟she一样对咩佛系，对V圈愤世嫉俗一点，反而没啥笋食
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3954#       发表于 2020-5-6 01:52
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 01:50
+答应我，喷的时候出发点是为了mea，而不是为了斗成分好吗</blockquote>
+mea发挥这么出色的两次歌回，不应该捞？出发点是为了mea，捞她在生理期发挥良好的两次长时间歌回不是吗为了她？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3955#       发表于 2020-5-6 01:53
+
+
+
+
+不是“单推”还是“贴贴”的问题啊，是对你咩姐上不上心的问题啊，要是官组里的贴贴人都像千里、修恋那样，那会像今天这样产生这么大的分歧？
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3956#       发表于 2020-5-6 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315998&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 01:50</a>
+
+答应我，喷的时候出发点是为了mea，而不是为了斗成分好吗</blockquote>
+难道不是你一揪着lzm这点吗，那你跟我说官组这操作没问题？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3957#       发表于 2020-5-6 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316001&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:51</a>
+反区别对待不对吗？捞meaqua怎么没看转动态？之前没想到捞直播剪辑，偏偏就这个时候想到了？gbr搬运组的 ...</blockquote>
+在你眼里捞了一回录像就成了歪屁股，捞了原创曲就是性质不同不能算；在你眼里捞自己录像和转发别人的动态是一码；在你眼里一小时转动态就是不及时转发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">承认你为了当你的黑暗贴贴人到处挑刺很难？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3958#       发表于 2020-5-6 01:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316006&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-6 01:51</a>
+
+那你等下次官组招人再说，如果单推还是过不了那没办法了，何况我觉得官组不说全部，歪的是肯定有的，你现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是啊，现在空谈这些没用，毕竟已经没那么多烤肉人了，不然记者也不会揣着审核群的号去野生神龙下面吃人
+
+
+虽然我觉得审核群理论上是常开的就是，现在大概并没有关上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3959#       发表于 2020-5-6 01:55
+
+
+
+
+官组最近熟肉staff表上来来回回不就那么几个名字，烤meaqua在内的联动肉都要去别的组借人了，可能真的缺人干活吧。
+有些人b博活跃得很，staff表里就看不到他人<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3960#       发表于 2020-5-6 01:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316006&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-6 01:51</a>
+那你等下次官组招人再说，如果单推还是过不了那没办法了，何况我觉得官组不说全部，歪的是肯定有的，你现 ...</blockquote>
+审核群一直都在的，招人之前我就进过
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3961#       发表于 2020-5-6 01:56
+
+
+
+
+不过话说回来，我真的挺好奇官组的烤肉流程的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3962#       发表于 2020-5-6 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316020&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 01:54</a>
+
+在你眼里捞了一回录像就成了歪屁股，捞了原创曲就是性质不同不能算；在你眼里捞自己录像和转发别人的动态 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以少说两句，官组最近是有好转，但还是有改进的空间，如果你觉得官组还有上升空间的话就别回复了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真是服了，为什么每到这种时候总有这两个像打了鸡血的一直在啪啪啪的敲键盘
+
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 3963#       发表于 2020-5-6 01:58
+
+
+
+
+在这里这么久了为什么还要和杠精杠，这位是个能把让自己眼瞎了也要杠的。
+总体思想就是所有的都是你们梁木人暗黑人的错。
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 3964#       发表于 2020-5-6 01:58
+
+
+
+
+你们不要再打啦.gif
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3965#       发表于 2020-5-6 01:59
+
+
+
+
+按之前透露的，官组大概是没有由组长统一分配任务来烤的，都是剪了找人烤，烤完找人校，校完扔给后期处理完等发布
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3966#       发表于 2020-5-6 01:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316001&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 01:51</a>
+反区别对待不对吗？捞meaqua怎么没看转动态？之前没想到捞直播剪辑，偏偏就这个时候想到了？gbr搬运组的 ...</blockquote>
+所以说怎么区别对待了，官组干了什么极度特别的事吗，转了个meaqua录像就成了区别对待，去年的捞单人录像，昨天的捞原创曲通通无视
+你这都快赶上微博拳师了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3967#       发表于 2020-5-6 02:00
+
+
+
+
+还是那句话，官组确定是有偏向性的
+你说官组没人了，烤肉人少了，现在有好转，放过他们吧，用爱发电，互相体谅，我都ok。但你说官组没偏向性，我觉得不行
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3968#       发表于 2020-5-6 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316036&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 01:57</a>
+你可以少说两句，官组最近是有好转，但还是有改进的空间，如果你觉得官组还有上升空间的话就别回复 ...</blockquote>
+别的东西我都无所谓，这找茬找的太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3969#       发表于 2020-5-6 02:01
+
+
+
+<blockquote>路人庚 发表于 2020-5-6 01:57
+你可以少说两句，官组最近是有好转，但还是有改进的空间，如果你觉得官组还有上升空间的话就别回 ...</blockquote>
+晚上睡不着，一边背单词一边论坛清醒，累了就会去休息。
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3970#       发表于 2020-5-6 02:03
+
+
+
+
+建议把官号给我，我就负责每天捞一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">  这点我还是做得到的
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 3971#       发表于 2020-5-6 02:05
+
+
+
+ 本帖最后由 rubinliu 于 2020-5-6 02:06 编辑 
+<blockquote>草牛 发表于 2020-5-6 02:00
+还是那句话，官组确定是有偏向性的
+
+你说官组没人了，烤肉人少了，现在有好转，放过他们吧，用爱发电，互相 ...</blockquote>
+捞单人录像这事要一直往回到去年，然后他还能沾沾自喜的拿这个来说事，还不觉得有什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+给官组洗地当官组舔狗发工资吗？有发财机会不要忘了楼友好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3972#       发表于 2020-5-6 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316039&amp;ptid=1929631" target="_blank">千木唯 发表于 2020-5-6 01:58</a>
+在这里这么久了为什么还要和杠精杠，这位是个能把让自己眼瞎了也要杠的。
+总体思想就是所有的都是你们梁木 ...</blockquote>
+是没毛病啊，我觉得mea现在各方面都挺好，安稳下来了，也没什么去年刷屏的奇怪粉丝
+而现在一个劲找事的除了anti，就是这些所谓的黑暗贴贴人，你说这找事是为了mea好为了mea出发的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是看不出来
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3973#       发表于 2020-5-6 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316051&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 02:01</a>
+
+别的东西我都无所谓，这找茬找的太弱智了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，阿囧就是孽力反馈的具象化，梁木的化身，都是由于过去的种种不正确操作诞生的，虽然现在孽力少了，但还没到可以完全消除孽力的时候，所以你其实不用急，毕竟等孽力真的没了，那也就不会有了
+
+
+要如何消除孽力，我前面几楼已经说的很明白了
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3974#       发表于 2020-5-6 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316053&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 02:01</a>
+
+晚上睡不着，一边背单词一边论坛清醒，累了就会去休息。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">睡不着就去听你咩姐的抒情曲歌回录像吧，别在论坛水贴了
+
+
+
+
+
+                 
