@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 02:08** 
+> ## **本文件最后更新于2020-05-05 14:07** 
 
 
 
@@ -6105,4 +6105,526 @@ tc，“玩三十分钟就睡”
 
 
 
-                                     
+
+
+-----
+
+####  Cuppco  
+##### 3371#       发表于 2020-5-5 02:13
+
+
+
+
+这人玩osu好他妈可爱啊啊啊啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3372#       发表于 2020-5-5 02:15
+
+
+
+
+居然真的在研究怎么过难点
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3373#       发表于 2020-5-5 02:26
+
+
+
+
+反正到现在为主
+osu是我看的最舒服的，她直播玩的游戏
+
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3374#       发表于 2020-5-5 02:36
+
+
+
+
+30分钟又30分钟，dd不要睡觉辣
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 3375#       发表于 2020-5-5 02:42
+
+
+
+
+我要死了，麻麻和美少女必须选一个，然而我更想选自己的命<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3376#       发表于 2020-5-5 03:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">成了，她觉得玩过头了，下了，赢了！
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3377#       发表于 2020-5-5 03:36
+
+
+
+
+下播，今天也是玩到霓虹四点半的一天<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3378#       发表于 2020-5-5 03:55
+
+
+
+
+。。。看到一半睡在电脑前了，现在热醒，浑身每个地方都在痛
+
+她以后十二点以后再上播必不会看
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 3379#       发表于 2020-5-5 07:52
+
+
+
+
+还是命要紧，麻麻还年轻，我们玩不过她
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3380#       发表于 2020-5-5 08:06
+
+
+
+
+年轻真好啊
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 3381#       发表于 2020-5-5 08:08
+
+
+
+
+她要一直这样作息其实也还行,就当自己住在欧洲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 3382#       发表于 2020-5-5 08:58
+
+
+
+
+真的会有作息健康的全职管人吗？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3383#       发表于 2020-5-5 09:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">昨天提早一个小时睡了，实在熬不过她
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3384#       发表于 2020-5-5 09:13
+
+
+
+
+大致也就睡了不到4小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">人都不对了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3385#       发表于 2020-5-5 09:36
+
+
+
+
+b限昏迷了，大概是12点半的时候。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3386#       发表于 2020-5-5 09:55
+
+
+
+
+老男人纷纷倒下
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3387#       发表于 2020-5-5 10:53
+
+
+
+
+老男人配不上年轻樱花妹<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3388#       发表于 2020-5-5 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">如果本老年人不用加班必陪麻熬到天亮
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3389#       发表于 2020-5-5 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">现在才醒，浑身酸痛，实在是熬不动了。。。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3390#       发表于 2020-5-5 13:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">老男人专楼成了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3391#       发表于 2020-5-5 13:08
+
+
+
+
+之前不是说年龄55以上的粉丝还占比1.1%，你楼有没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3392#       发表于 2020-5-5 13:21
+
+
+
+
+送给你楼一张图片
+
+
+
+
+
+
+8DE73969-7F07-490D-830A-77FB093681E8.jpeg
+(85.34 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-5-5 13:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/05/132129lvxp6f46p6u67167.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 3393#       发表于 2020-5-5 13:23
+
+
+
+
+刚才看昨天的那个十年舰长的切片，不禁想到如果昨天能唱一首《letter song》那估计能直接封神回了，咩咩还是差了一手<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3394#       发表于 2020-5-5 13:41
+
+
+
+
+你麻要是这么功利现在肯定还是B站直播一姐<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3395#       发表于 2020-5-5 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">你麻这说是不功利，其实还是不会玩自己的梗，厉害的主播都会把自己的梗二次加工反向造势
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">哎臭女人也就只能装可爱了
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3396#       发表于 2020-5-5 13:51
+
+
+
+
+复仇echo还不算玩自己的梗么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+既满足了乐子人，又能减少点歌小鬼，提高正常观众观看体验
+
+不是硬玩梗，而是反转烂梗，多完美啊
+
+
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3397#       发表于 2020-5-5 13:53
+
+
+
+
+对啊，还有昨天的病名为爱也是梗回收。
+如果是当场临时发挥想出混响这个点子，那是真的不错。就算是提前准备了节目效果，也还成
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 3398#       发表于 2020-5-5 13:58
+
+
+
+
+混响也玩过很多次了，应该就是随手一弄<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3399#       发表于 2020-5-5 14:03
+
+
+
+
+那这还是少玩玩吧，昨天那一拨耳膜差点炸掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3400#       发表于 2020-5-5 14:05
+
+
+
+
+是真情实感还是只是表演，薛定谔的麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                    
