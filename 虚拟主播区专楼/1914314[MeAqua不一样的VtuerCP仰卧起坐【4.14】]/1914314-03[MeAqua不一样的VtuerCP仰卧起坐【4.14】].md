@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 16:01** 
+> ## **本文件最后更新于2020-05-05 18:02** 
 
 
 
@@ -13742,10 +13742,509 @@ MC效果应该要比LOL好吧。
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309997&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-5-5 15:58</a>
 
 您好，大概是有的。夸哥说过自己一定届得到，你咩姐也在414线下敷衍过魔怔贴贴人的涉谷说 ...</blockquote>
-？有坐标吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+？有坐标吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl 相比之下这两人的直女言论更多吧
 
 
 
 
 
-                         
+
+
+-----
+
+####  Sanguine  
+##### 3751#       发表于 2020-5-5 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310021&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-5-5 16:01</a>
+？有坐标吗？syl 相比之下这两人的直女言论更多吧</blockquote>
+这还要啥坐标，夸啥时候表现得像个直女了，就咩天天聊av男人体位结婚的事情还说过“我不是les哦”比较直而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3752#       发表于 2020-5-5 16:07
+
+
+
+
+你楼都有翻页bug了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好起来了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3753#       发表于 2020-5-5 16:11
+
+
+
+
+你们就不能想些好的吗？小麻知道我不会去大亏直播间看，专门给我开的台，呜呜呜，虽然会被隔壁人气和sc不知道几倍杀，但我还是爱她
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3754#       发表于 2020-5-5 16:11
+
+
+
+
+阿夸是直男营业好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3755#       发表于 2020-5-5 16:14
+
+
+
+
+？我寻思她俩不联动我也算个大亏的萌萌人啊，她前世好像说过有喜欢的男生来着。而且大亏就算不表现的像直女，也不像姬佬啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3756#       发表于 2020-5-5 16:17
+
+
+
+
+你觉得不像那就是友情吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凭感觉的玩意没法解释
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 3757#       发表于 2020-5-5 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310089&amp;ptid=1914314" target="_blank">Dualist彩 发表于 2020-5-5 16:11</a>
+
+你们就不能想些好的吗？小麻知道我不会去大亏直播间看，专门给我开的台，呜呜呜，虽然会被隔壁人气和sc不知 ...</blockquote>
+阿夸的sc倍杀还是想多了，crew的钱包差不多也要被榨干了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3758#       发表于 2020-5-5 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么你们觉得铁血cerw会给这俩联动打钱（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3759#       发表于 2020-5-5 16:22
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-5 16:39 编辑 
+
+那天狗会不会给mea打钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3760#       发表于 2020-5-5 16:25
+
+
+
+
+我觉得两边单推昨天b限应该都打过了，今天可以看看两边的贴贴人浓度如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3761#       发表于 2020-5-5 16:27
+
+
+
+
+会打啊
+每次联动咩不开台老着急了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3762#       发表于 2020-5-5 16:29
+
+
+
+
+不会真有人单纯是贴贴民不单推不给两边打钱只有联动才打吧？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3763#       发表于 2020-5-5 16:31
+
+
+
+ 本帖最后由 笋狐 于 2020-5-5 16:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3764#       发表于 2020-5-5 16:35
+
+
+
+
+她的几个石油佬都是看播的时候要是在的话就打，不在就不在这种的。别扯太远。
+
+而且之前两次mc不也都是双开台，有啥问题吗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3765#       发表于 2020-5-5 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥问题，只想提前说一句房管辛苦了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3766#       发表于 2020-5-5 16:38
+
+
+
+
+直播间打起来倒是不至于
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3767#       发表于 2020-5-5 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310255&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-5-5 16:31</a>
+
+顺劈到个人不可取，建议编辑</blockquote>
+有点道理，编辑了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3768#       发表于 2020-5-5 16:40
+
+
+
+
+不是，联动着不让刷也太过了，除非有那种传话比人气比打钱的，那房管加油吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|说的就是比人气的那种|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3769#       发表于 2020-5-5 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310173&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-5-5 16:22</a>
+
+那天狗会不会给mea打钱呢syl 那个b限经常打钱的石油佬卡门昨天没出现，今天会不会来呢
+
+ ...</blockquote>
+卡门昨晚大概没空 白天打了两个舰
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3770#       发表于 2020-5-5 16:44
+
+
+
+ 本帖最后由 noaki 于 2020-5-5 16:47 编辑 
+
+直播间打起来一般都是围绕着''刷无关v的和出警的谁跟傻逼''问题吧
+现在两边平时最顾虑的''无关''变成''有关''了，那自然不应该会打起来。甚至应该会比平时要更平静一点。（不考虑⛵️的情况下）
+
+
+
+除非有舞咩夸双飞人这种及其诡异的生物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不然我实在想不到打起来的理由
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3771#       发表于 2020-5-5 16:45
+
+
+
+
+crew不是和祭丝打过一场了吗，天狗昨天也被榨了不少，今天这波是好好享受贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3772#       发表于 2020-5-5 16:47
+
+
+
+
+你楼不应该越出乱子越开心吗……怎么和我想象的不一样<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3773#       发表于 2020-5-5 16:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能，萌萌人和贴贴人对自家西皮掺男性要素基本深恶痛绝
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3774#       发表于 2020-5-5 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310430&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-5 16:47</a>
+你楼不应该越出乱子越开心吗……怎么和我想象的不一样</blockquote>
+你这像是乐子人钓鱼.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3775#       发表于 2020-5-5 17:02
+
+
+
+ 本帖最后由 noaki 于 2020-5-5 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310430&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-5 16:47</a>
+你楼不应该越出乱子越开心吗……怎么和我想象的不一样</blockquote>
+等真出了乱子再乐不好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+搁这儿贷款不一定会出的乱子也没什么意义啊
+
+
+
+syl，说起乱子...但愿今天晚上不会看到超过500的巨魔sc，啊不对，最好都不要有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3776#       发表于 2020-5-5 17:18
+
+
+
+ 本帖最后由 Sanguine 于 2020-5-5 17:21 编辑 
+
+不出到自己推头上都可以看戏
+然而爬这楼的大部分都是三四字母的推啊<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 3777#       发表于 2020-5-5 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">来个营收胜负 输的弄个惩罚游戏 会不会很刺激
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3778#       发表于 2020-5-5 17:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">两个台挺好的啊，想看哪边的视角就看哪边（不光是更推谁的问题，还有谁的视角在做什么好玩的事情可以切过去看）
+
+而且，如果有要打起来的人/要素，那开一个台肯定也是打起来，开两个反而有些极端nt要顾忌对方可能想了想就不搞事了，不是挺好
+
+说白了，反正是要看的，找啥不自在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                        
