@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 02:07** 
+> ## **本文件最后更新于2020-05-06 04:06** 
 
 
 
@@ -16336,14 +16336,14 @@ mea发挥这么出色的两次歌回，不应该捞？出发点是为了mea，�
 
 
 
- 本帖最后由 rubinliu 于 2020-5-6 02:06 编辑 
+ 本帖最后由 rubinliu 于 2020-5-6 02:08 编辑 
 <blockquote>草牛 发表于 2020-5-6 02:00
 还是那句话，官组确定是有偏向性的
 
 你说官组没人了，烤肉人少了，现在有好转，放过他们吧，用爱发电，互相 ...</blockquote>
 捞单人录像这事要一直往回到去年，然后他还能沾沾自喜的拿这个来说事，还不觉得有什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
-给官组洗地当官组舔狗发工资吗？有发财机会不要忘了楼友好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+给官组洗地当官组舔狗发工资吗？有发财的机会带带楼友啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
 
@@ -16409,4 +16409,1278 @@ mea发挥这么出色的两次歌回，不应该捞？出发点是为了mea，�
 
 
 
-                 
+
+
+-----
+
+####  M829A4  
+##### 3975#       发表于 2020-5-6 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316053&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 02:01</a>
+
+晚上睡不着，一边背单词一边论坛清醒，累了就会去休息。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">https://bbs.saraba1st.com/2b/thread-1932768-1-1.html开了楼，以后能请你们去专楼讨论吗
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 3976#       发表于 2020-5-6 02:08
+
+
+
+
+之前捞录像是去年梁木人杀官组的时期，因为各种反馈官组象征性捞了一段时间。再就到这次了。做的挺好，不知道这次杀起来，能不能让官组再捞几天
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 3977#       发表于 2020-5-6 02:08
+
+
+
+
+其实官组和meaqua是一样的，有人将他们神圣化，特殊化了，他们都沉浸在过去的辉煌中不愿出来。现在的官组就是不行了，绿色了，跟其他的字幕组已经没什么区别了，不要再有什么别样的期待了，都是能干一天是一天，活下去就行了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3978#       发表于 2020-5-6 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316064&amp;ptid=1929631" target="_blank">rubinliu 发表于 2020-5-6 02:05</a>
+
+捞单人录像这事要一直往回到去年，然后他还能沾沾自喜的拿这个来说事，还不觉得有什么问题
+
+给官组 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3979#       发表于 2020-5-6 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316066&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 02:05</a>
+有一说一，阿囧就是孽力反馈的具象化，梁木的化身，都是由于过去的种种不正确操作诞生的，虽然现 ...</blockquote>
+跑到mea粉里上窜下跳还一个劲说自己是为了mea好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有些人都到了为了种梁木而种梁木的地步了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3980#       发表于 2020-5-6 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316091&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 02:13</a>
+
+跑到mea粉里上窜下跳还一个劲说自己是为了mea好有些人都到了为了种梁木而种梁木的地步了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他还真不是想做坏事，你也不必戴着有色眼镜看他，你跟他争了半天的内容其实并没有太大的建设性，所以我觉得不如你们都早点睡觉
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 3981#       发表于 2020-5-6 02:19
+
+
+
+
+说说让人加官组的。
+海盗为什么不加官组的，很简单。比如现在同好会的核心思想是资讯搬运机，然后才是烤肉，烤肉人员里已经一半都是dd。剩下的单推里有一个是绝对进不去的翻译，余下的几个基本都是打轴的和水平不够的翻译，官组不缺轴。翻译又水平不够。当然水平够的也不是没有，但是人家平时工作太忙。
+再就是方向性，海盗重视时效性，官组因为校对缺乏，无法做到时效性，那加进去做什么。
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 3982#       发表于 2020-5-6 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316091&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 02:13</a>
+
+跑到mea粉里上窜下跳还一个劲说自己是为了mea好有些人都到了为了种梁木而种梁木的地步了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你也是第二爱讨论的，能不能一起爬出去
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3983#       发表于 2020-5-6 02:21
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-6 02:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316108&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 02:18</a>
+他还真不是想做坏事，你也不必戴着有色眼镜看他，你跟他争了半天的内容其实并没有太大的建设性， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧，我也是一时感觉理由太弱智了接受不了就急了
+
+syl我现在也不怎么主动研究这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">除了mea动我都在抑制自己灌水的欲望的
+
+zsyl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">she这算是自己对号入座吗
+
+zzsyl满意，不知道你怎么延伸到这一层的，我在这事唯一的情绪就是你开官组开的太弱智了仅此而已。别人的组xx了mea组就得xx，别的怎么样mea组就得怎么样，这就是网络版的别人家的孩子吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3984#       发表于 2020-5-6 02:22
+
+
+
+ 本帖最后由 路人庚 于 2020-5-6 02:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316114&amp;ptid=1929631" target="_blank">千木唯 发表于 2020-5-6 02:19</a>
+
+说说让人加官组的。
+
+海盗为什么不加官组的，很简单。比如现在同好会的核心思想是资讯搬运机，然后才是烤肉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那问题就明朗了，结论就是还真没那么多单推，该洗洗睡了
+
+
+
+抑制水贴欲望还行，这就是水楼第一名topstar的实力吗？<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 3985#       发表于 2020-5-6 02:26
+
+
+
+
+爷也是梁木壬，但是爷也是加速壬<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+越是沉迷黄油，越是发现这些屁事不值得关心，大不了最后重回去年暑假只有油罐的时代。但是你麻也大概就混几年的样子，诸位不值得为一个失职的转播账号和某群品味稀烂的人浪费时间。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3986#       发表于 2020-5-6 02:26
+
+
+
+
+这 就 是 梁 木 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 3987#       发表于 2020-5-6 02:27
+
+
+
+
+看到跟龙魂争论的人就让我觉得急
+
+当一个人站出来，指着所有人说“你们都是弱智”的时候，要么他是苏格拉底，要么...
+
+而退一万步讲，跟苏格拉底争论也不是什么明智之选<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3988#       发表于 2020-5-6 02:31
+
+
+
+
+我觉得至少不能助长官组的人上人心态…
+
+换句话说S1NGA也是讨论场所，应该有人水一水听取意见，哪怕出来怼人都行
+
+自己啥都不听缩在Q群里把事情拍板了搞黑箱化，不太行
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3989#       发表于 2020-5-6 02:31
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-5-6 02:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316043&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 01:59</a>
+
+所以说怎么区别对待了，官组干了什么极度特别的事吗，转了个meaqua录像就成了区别对待，去年的捞单人录像 ...</blockquote>
+千木唯说的没错，和你这种人交流官组的事情根本没有价值。另外我了解了一下，这是因为夸组捞了合集咩组才跟着捞的，并且夸组经常捞合集呢（昨天夸的棉花糖b限就捞了哦）。如果你满意官组的操作，觉得我之前对官组提出的质疑没有道理，那也不用继续就此交流了。楼里关于这方面的讨论我以后都不会再有了，楼里很多人都觉得无意义且聒噪，觉得官组没问题。我会用我自己的方式去提建议、反馈的。
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 3990#       发表于 2020-5-6 02:35
+
+
+
+
+咩组夸组皮套不是同一个人吗
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3991#       发表于 2020-5-6 02:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讨论意见当然没错，不过事情分大小，但现在知道了连同好会都有一半是dd之后我不想去分析官组的dd占比了，佛系指数已经上升到了惊人的高度（）
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3992#       发表于 2020-5-6 02:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在论坛搞皿煮化评议实际上也是很……的行为，不比窝在自家小九九里定义黑箱聪明到哪去
+
+自由搏击场里会有人真的想讲道理吗<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+提意见的和反对意见的最终还是会互殴在一起，打死了一方不是另一方在理，是另一方人多……
+
+
+还是建议各位佛系一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3993#       发表于 2020-5-6 02:41
+
+
+
+
+有些人天天喊着看到meaqua就想吐，其实隐藏的话是看到和aqua贴贴营业的mea就想吐，这种人大概只有三种可能：
+
+（1）本质是mea anti，勉强自己看mea的其他内容，但是看到贴贴营业就完全接受不了；
+
+（2）说自己是老父亲粉说多了把自己催眠了，mea不懂事或者是被部分粉丝、官组绑架了，自己要从阿夸的手中保护mea；
+
+（3）做着白日梦认为mea是自己的所有物，自己不喜欢贴贴营业，所以希望能控制mea不去贴贴。
+
+建议对号入座，了解一下自己的行为动机，如果有新类型欢迎补充。
+
+
+是个正常人就好好去看mea的直播内容，不喜欢与aqua有关的内容就别看，嫌官组不行就只看转播或去404看，别天天想着斗来斗去的；当然如果你行动力超强那就去干些实事来改变你看不惯的东西，只要注意手段不要招引绝大多数人唾骂就行。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3994#       发表于 2020-5-6 02:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316154&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-5-6 02:35</a>
+
+咩组夸组皮套不是同一个人吗
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+皮套肯定有多个，其中几个持有多方vtuber的账号正常。
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 3995#       发表于 2020-5-6 02:52
+
+
+
+ 本帖最后由 如月可由莉 于 2020-5-6 02:54 编辑 
+
+官组确实有问题，反正现在是希望各路官组看不上的海盗能够好好活着就好了。官组也好好当一个打钱管道，偶尔漏点啥没人管得了他们，只要别眼红别人那点微不足道的点击量“以个人名义”去找理由出警海盗就够了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3996#       发表于 2020-5-6 02:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这跟meaqua的关系很大吗，无非就是争一个官组的“官”字。为什么喜欢用粉丝团体开脱啊，因为粉丝团体有偏向性是正常的，这是偏向性的正当化。官组自己不喜欢当“官”，那我就只在他越界的时候骂他
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3997#       发表于 2020-5-6 02:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316169&amp;ptid=1929631" target="_blank">面具13 发表于 2020-5-6 02:41</a>
+
+有些人天天喊着看到meaqua就想吐，其实隐藏的话是看到和aqua贴贴营业的mea就想吐，这种人大概只有三种可能 ...</blockquote>
+曾经没想着要斗，情况却恶化到了这种地步。另外，crew确实可以站在道德制高点指指点点，你们推的环境可好多了呢，也没有弱智的官组
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3998#       发表于 2020-5-6 02:59
+
+
+
+ 本帖最后由 Unlimited290 于 2020-5-6 03:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315896&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 01:28</a>
+
+是啊，海盗做的很多数字低的剪辑熟肉因为点击太低大部分都没什么意义，这也是之前千里一直提的核心 ...</blockquote>
+我不和恁BB，你可别忘了，同好会和千里夜雨的号，我如果借个面子
+
+比他官组简单十万倍，废话不多说，我K完不能天使了，恁呢？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|来力，奖励一个单推大红鹅！❤.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3999#       发表于 2020-5-6 03:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316208&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 02:58</a>
+曾经没想着要斗，情况却恶化到了这种地步。另外，crew确实可以站在道德制高点指指点点，你们推的环境可好 ...</blockquote>
+不是，你扯了这么久的环境恶化，你能说说到底怎么恶化了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 4000#       发表于 2020-5-6 03:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316122&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 02:21</a>
+
+好吧，我也是一时感觉理由太弱智了接受不了就急了
+
+
+syl我现在也不怎么主动研究这个啊除了m ...</blockquote>
+仔细想想，去年的几次转发和今天的一次转发的操作者可不一定是同一个人；拿过去不同个体的行为为这次的个体的行为作辩护怎么想都很奇怪。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我的话第一反应会认为是这个人的“问题”，而不是直接上升到这个有数十人的组；因为这次有人觉得“官组”一碗水没端平，但实际上有可能只是某部分人没端平（甚至翻碗）。可能在这个人心里今天的联动（虽然我看的挺乐呵）确实没有你咩顶着生理的四小时b限以及回溯到去年10月末之间的任何一场直播值得一捞。一想到这个，难免会有些不平衡，难免会一下子把昨天看完三场直播的好心情变糟，都是难免。
+
+
+对整个字幕组，倒真没什么想说的；组内一些人对mea的付出我看在眼里，但也确实被组里一些人恶心过。这种嘛只能说……“要辩证地看待.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">”
+
+
+顺便一提，“对官组有不满的就是暗黑贴贴人”和“对meaqua粉丝有不满的就是毒唯”似乎有异曲同工之妙，甚至好像就是后者的劣化翻版。
+
+
+再顺便一提，就这破事列表里一个正常看贴贴的萌萌人快黑化了，以此浪费时间打打字感慨一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4001#       发表于 2020-5-6 03:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316169&amp;ptid=1929631" target="_blank">面具13 发表于 2020-5-6 02:41</a>
+
+有些人天天喊着看到meaqua就想吐，其实隐藏的话是看到和aqua贴贴营业的mea就想吐，这种人大概只有三种可能 ...</blockquote>
+四，六字母壬的傻批和弱智双标活该下地狱，你爹我打过的联动轴可不少
+
+别自以为是了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4002#       发表于 2020-5-6 03:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316216&amp;ptid=1929631" target="_blank">noaki 发表于 2020-5-6 03:01</a>
+仔细想想，去年的几次转发和今天的一次转发的操作者可不一定是同一个人；拿过去不同个体的行为为这次的个 ...</blockquote>
+这和mea扯远了，不在这说了，我直接私聊你把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不出来聊了
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 4003#       发表于 2020-5-6 03:09
+
+
+
+
+为什么不对官组保持一种“想干点啥干点啥，别犯错就行”的态度呢？
+
+跟彩虹组和点人比一比，官组是不是不错了，是不是还行？
+
+那就得了呗。要啥自行车啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4004#       发表于 2020-5-6 03:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316208&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 02:58</a>
+
+曾经没想着要斗，情况却恶化到了这种地步。另外，crew确实可以站在道德制高点指指点点，你们推的环境可好 ...</blockquote>
+我主推是阿夸，但我副推mea啊，算是个歌粉，之前写歌回骗人进去听杂谈的时期断过一小段时间而已。从老病栋一路看过来，再到最近来s1看，mea粉内斗是一直没停过，劝架完全劝不住。有时我怀疑吵吵嚷嚷的人里面是不是有些人内心怀疑mea性 向而拒绝接受，还是看到nt连体人自己也被同化成nt了。
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4005#       发表于 2020-5-6 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316238&amp;ptid=1929631" target="_blank">面具13 发表于 2020-5-6 03:09</a>
+
+我主推是阿夸，但我副推mea啊，算是个歌粉，之前写歌回骗人进去听杂谈的时期断过一小段时间而已。从老病 ...</blockquote>
+我不要你觉得，我要我觉得，小朋友还是别用自己那点迫真猜想给人扣帽子了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4006#       发表于 2020-5-6 03:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316240&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 03:11</a>
+
+我不要你觉得，我要我觉得，小朋友还是别用自己那点迫真猜想给人扣帽子了
+
+ ...</blockquote>
+你也是拉屎主力[https://bbs.saraba1st.com/2b/thread-1932768-1-1.html](https://bbs.saraba1st.com/2b/thread-1932768-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4007#       发表于 2020-5-6 03:14
+
+
+
+<blockquote>面具13 发表于 2020-5-6 03:09
+我主推是阿夸，但我副推mea啊，算是个歌粉，之前写歌回骗人进去听杂谈的时期断过一小段时间而已。从老病 ...</blockquote>
+内心怀疑性取向是啥意思，这个没法断定吧，一般人都是异性恋，我觉得咩姐也是。
+
+看打架是一方面，把打架和官组的睿智操作隔离开看不是很有问题？官组部分人不作妖，哪来的反对？你的主推官组可没怎么作妖，咩组/组员的破事要数可能数很久
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4008#       发表于 2020-5-6 03:17
+
+
+
+
+太过神秘了 拿7个月之前的捞生肉记录出来 你是在打自己脸还是在打自己脸呢？之前没捞也开过团 对线完象征性捞了一两天 之后就没了 本来想着这么久不捞是不是某种考量 今天一捞发现原来可不是深思熟虑 纯粹就是蠢和漠不关心  对于7个月后光速捞贴贴生肉的不满在于没做什么而不是做了什么 现在解决方法自然也很简单 以后每个生肉定期捞  至于说缺人的 捞个生肉还要校对？ 顺便一提 今天的生肉传的真快啊 捞生肉也很好啊 希望别的也能有这么快 也能捞一下
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4009#       发表于 2020-5-6 03:18
+
+
+
+<blockquote>面具13 发表于 2020-5-6 02:41
+有些人天天喊着看到meaqua就想吐，其实隐藏的话是看到和aqua贴贴营业的mea就想吐，这种人大概只有三种可能 ...</blockquote>
+如何评价你的选项里没有aquanti?也许是大天使不会有anti的？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4010#       发表于 2020-5-6 03:21
+
+
+
+<blockquote>freeze_Jack 发表于 2020-5-6 03:17
+太过神秘了 拿7个月之前的捞生肉记录出来 你是在打自己脸还是在打自己脸呢？之前没捞也开过团 对线完象征性 ...</blockquote>
+确实是，我之前想补个tc还得去录像站
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4011#       发表于 2020-5-6 03:23
+
+
+
+
+不是，有人对我说的话误会有点深啊，发下我刚才私聊的内容复读一下好了
+光看到我发了之前的捞录像，可官组捞mea别的那些内容回数也不少啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难不成都要来说，捞录像和捞原创曲捞熟肉意义不一样，捞录像只捞了个meaqua的，不管你捞了多少熟肉原创曲就是屁股歪，要失望了！
+<img src="https://p.sda1.dev/0/01dd1cf4820b67f932fea27e528a7520/IMG_D65181380D666B28BA2E9FFE45D77B5D.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 4012#       发表于 2020-5-6 03:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316257&amp;ptid=1929631" target="_blank">freeze_Jack 发表于 2020-5-6 03:18</a>
+
+如何评价你的选项里没有aquanti?也许是大天使不会有anti的？</blockquote>
+缝了三顶帽子都是mea的错mea粉丝的错，老老实实承认阿夸有些地方招人讨厌还挺难的
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 4013#       发表于 2020-5-6 03:28
+
+
+
+
+在你们吵架的时候，我们的魔法猫咪刚刚打赢了一场比赛，捧起了属于她的奖杯！
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4014#       发表于 2020-5-6 03:28
+
+
+
+
+一般来说两连败的话可能会突击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4015#       发表于 2020-5-6 03:29
+
+
+
+
+她私下lol账号别放在公共论坛说啊。。。能不能编辑一下
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4016#       发表于 2020-5-6 03:31
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 03:23
+不是，有人对我说的话误会有点深啊，发下我刚才私聊的内容复读一下好了
+
+光看到我发了之前的捞录像，可官组 ...</blockquote>
+生肉合集7个月没捞 您是觉得和捞熟肉一样 那官组可不这么觉得呢 不然怎么7个月没捞呢
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 4017#       发表于 2020-5-6 03:33
+
+
+
+
+日本四点快五点了，看这人的作息还是如此自由我就放心了
+
+个屁，你可千万别这会儿播啊姐姐，要死人的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4018#       发表于 2020-5-6 03:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316279&amp;ptid=1929631" target="_blank">freeze_Jack 发表于 2020-5-6 03:31</a>
+生肉合集7个月没捞 您是觉得和捞熟肉一样 那官组可不这么觉得呢 不然怎么7个月没捞呢 ...</blockquote>
+是啊，七个月没捞生肉，不知道捞了多少回mea的熟肉和pv，现在捞了一回meaqua生肉<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">这一定是对mea屁股歪，要失望了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4019#       发表于 2020-5-6 03:36
+
+
+
+
+这是2019的团建么？kpi已经很可以了
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4020#       发表于 2020-5-6 03:37
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 03:33
+是啊，七个月没捞生肉，不知道捞了多少回mea的熟肉和pv，现在捞了一回meaqua生肉这一定是对mea屁 ...</blockquote>
+您觉得捞生肉捞熟肉一个概念 那官组怎么7个月没捞呢？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4021#       发表于 2020-5-6 03:41
+
+
+
+
+生肉上传理论上能用代码检测吧？我这两天看看能不能写个程序检测好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4022#       发表于 2020-5-6 03:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316299&amp;ptid=1929631" target="_blank">freeze_Jack 发表于 2020-5-6 03:37</a>
+您觉得捞生肉捞熟肉一个概念 那官组怎么7个月没捞呢？</blockquote>
+<img src="https://p.sda1.dev/0/a31a2c314c89ba78438770a8ff2f3243/-50cf5b6e27b29038.png" referrerpolicy="no-referrer">
+官组为什么半个月没捞录像呢？
+
+<img src="https://p.sda1.dev/0/9a1d2d8b4c972cdce5a9508c9cc956a2/7674f3d1c62cab06.png" referrerpolicy="no-referrer">
+官组为什么一个月没捞录像呢？
+
+<img src="https://p.sda1.dev/0/ee6538156345def89b16d703cac6674d/-27e16bfcec7c2ad6.png" referrerpolicy="no-referrer">
+官组为什么隔了一个多月才捞录像呢？
+我悟了，他们一定是把珍贵的捞录像机会留给meaqua，捞录像就像酿酒，捂的时间越久捞起来越香<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4023#       发表于 2020-5-6 03:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316251&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 03:14</a>
+
+内心怀疑性取向是啥意思，这个没法断定吧，一般人都是异性恋，我觉得咩姐也是。
+
+看打架是一方面，把打架 ...</blockquote>
+对，我的意思就是你知道她们只是营业，目的只是为了开拓粉丝群体，那就和黄兔子、海苔男等的联动端平了对待，不要整天搞什么ptsd。就算你因为某些原因把阿夸当成眼中钉，也别想着帮mea选择交际对象，毕竟你只是外人。
+
+官组的历史遗留问题我也清楚，受mea早期在国内的发展路线影响，里面贴贴人比重大，还有些魔怔人甚至巨魔，巨魔萨尔的几次捧一踩一我也在现场；不过你要说官组里没有除clay以外的纯单推，那基本是胡扯，毕竟还有不少不出来作妖的老实干活的人。
+
+老病栋当时最大的问题就是mea受环境因素直播频率低，缺少合适的讨论话题又有讨论热情才导致时不时就撕；现在mea直播频率也上来了，怎么还能前面正常讨论mea联动，后面就来车轱辘官组问题，总是有些莫名其妙的。国内V圈除了看内容，还重视讨论氛围的，天天吵些没建设性的架，只会把这些mmr从老粉中或者潜在粉丝群体中赶跑。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4024#       发表于 2020-5-6 03:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316308&amp;ptid=1929631" target="_blank">面具13 发表于 2020-5-6 03:42</a>
+对，我的意思就是你知道她们只是营业，目的只是为了开拓粉丝群体，那就和黄兔子、海苔男等的联动端平了对 ...</blockquote>
+对，我赞同把meaqua普通化看待。可问题是我发现不把meaqua普通看待的是官组，这就很蛋疼
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4025#       发表于 2020-5-6 03:46
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 03:42
+官组为什么半个月没捞录像呢？
+
+</blockquote>
+2019年6月16日  2020年5月5日 为什么7个月没捞录像呢？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4026#       发表于 2020-5-6 03:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316316&amp;ptid=1929631" target="_blank">freeze_Jack 发表于 2020-5-6 03:46</a>
+2019年6月16日  2020年5月5日 为什么7个月没捞录像呢？</blockquote>
+我说了呀，捞录像就像酿酒，捂的越久捞起来越香，所以才要把久久七个月的捞录像机会留给meaqua<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4027#       发表于 2020-5-6 03:50
+
+
+
+
+不就是妹人看那联动要捞一手么，将这种想法代入一下别再纠结了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4028#       发表于 2020-5-6 03:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316240&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 03:11</a>
+
+我不要你觉得，我要我觉得，小朋友还是别用自己那点迫真猜想给人扣帽子了
+
+ ...</blockquote>
+你觉得自己不是就不要对号入座，我又没指名道姓给谁扣帽子了。
+
+你觉得官组不行，还可以考虑联合一些你觉得行的其他单推海盗组成立一个新大组啊，只要能有足够好的成绩，替代现有官组也不是不可行，顶多需要一个过渡期而已，说不定你所认为的被压迫官组少数单推还会弃暗投明呢。否则你再怎么骂官组，能顶个屁用，毕竟官组明面上话事权最大的记者也有贴贴成分，单推粉头乐一也算半个贴贴脑。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4029#       发表于 2020-5-6 03:51
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 03:47
+我说了呀，捞录像就像酿酒，捂的越久捞起来越香，所以才要把久久七个月的捞录像机会留给meaqua ...</blockquote>
+继续yygq呗，这确实是和上次pv一样的字幕组贴贴操作，但在夸组有捞录像的习惯下看来真是显得恶心
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4030#       发表于 2020-5-6 03:52
+
+
+
+
+外面开了个楼，想去倒垃圾的请去对应的楼倒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我真tm服了，你咩姐的楼也太多了，上辈子绝对是学建筑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4031#       发表于 2020-5-6 03:53
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 03:47
+我说了呀，捞录像就像酿酒，捂的越久捞起来越香，所以才要把久久七个月的捞录像机会留给meaqua ...</blockquote>
+我说了呀，不捞视频只是蠢和漠不关心，大概只有某些特殊的香醇的优质内容才会让这些人久违的想起了捞一下吧 顺便加点光速的料
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 4032#       发表于 2020-5-6 03:53
+
+
+
+
+今日要闻：①朝鲜成功跻身世界大国行列
+
+②人类第一次登上了太阳
+
+③医学克服了死亡，长生不老不再是传说！
+
+④第一批时间穿越旅行者即将出发！
+
+⑤乐一成为了单推粉头！
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4033#       发表于 2020-5-6 03:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316326&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 03:51</a>
+继续yygq呗，这确实是和上次pv一样的字幕组贴贴操作，但在夸组有捞录像的习惯下看来真是显得恶心 ...</blockquote>
+yygq也是他找我开的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到底说到底就是不肯正视贴贴人也是你mea姐粉丝的现实
+字幕组里有贴贴人捞了一下录像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这是什么罪大恶极的事情吗，捞了不知道多少熟肉，因为七个月没捞生肉，捞生肉捞了个meaqua录像，这就是屁股歪要失望了吗
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4034#       发表于 2020-5-6 03:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316328&amp;ptid=1929631" target="_blank">framita 发表于 2020-05-06 03:52:22</a>
+外面开了个楼，想去倒垃圾的请去对应的楼倒</blockquote>口口声声说别忘了旧病栋的教训，又在重复旧病栋的事，只是内容从夸变成了字幕组，反正厕所是建好了，以后随地拉屎别说没地方让他们拉
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4035#       发表于 2020-5-6 03:59
+
+
+
+
+真尼玛弱智，给你们开了个野房能不能滚去房里做 爱
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|一时没忍住，我爬了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 4036#       发表于 2020-5-6 04:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316257&amp;ptid=1929631" target="_blank">freeze_Jack 发表于 2020-5-6 03:18</a>
+
+如何评价你的选项里没有aquanti?也许是大天使不会有anti的？</blockquote>
+mea粉里自然有阿夸anti，但是好歹联动也算正常的mea直播内容，你讨厌阿夸，就能顺带讨厌和阿夸联动的mea吗？你不喜欢mea的部分直播内容，没有问题，但犯不着在mea没有做错什么时候就在那里喊吐了吐了。
+
+
+
+
+
+
+
+-----
+
+####  yanghaozhend  
+##### 4037#       发表于 2020-5-6 04:03
+
+
+
+
+我这边建议先送龙魂去，不得不说，根据我一段时间的观察，这地方最爱这个话题的是他。
+
+大部分时候吐槽一句官组也吵不起来，毕竟官组的有些迷惑操作大火儿都习惯了，也不是很关心。
+
+但总是要有人出来指着所有人的鼻子说：你们都是“暗黑贴贴人”“梁木人”，不许说我爹，你看我爹这波儿哪里有问题
+
+
+结果都没人在意她好不容易赢了一把猫咪，气冷抖，辅助这个位置承受了太多，却没收到应有的关注。
+
+我觉得你们对辅助有梁木，我要化身嫩模了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4038#       发表于 2020-5-6 04:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316352&amp;ptid=1929631" target="_blank">yanghaozhend 发表于 2020-05-06 04:03:25</a>
+我这边建议先送龙魂去，不得不说，根据我一段时间的观察，这地方最爱这个话题的是他。
+
+大部分时候吐槽一句 ...</blockquote>他已经去了，你要不要去
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  freeze_Jack  
+##### 4039#       发表于 2020-5-6 04:05
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 03:58
+yygq也是他找我开的说到底说到底就是不肯正视贴贴人也是你mea姐粉丝的现实
+
+字幕组里有贴贴人捞了 ...</blockquote>
+有人捞了贴贴录像罪大恶极(x)
+
+7个月不捞视频蠢(✔)
+
+7个月不捞录像 捞了这个贴贴录像 双标nt(✔) 
+
+至于你在这里装傻觉得捞了这一个就不是双标  那种大概是下一层次了 得指望着官组加把劲了 
+
+
+
+
+
+               

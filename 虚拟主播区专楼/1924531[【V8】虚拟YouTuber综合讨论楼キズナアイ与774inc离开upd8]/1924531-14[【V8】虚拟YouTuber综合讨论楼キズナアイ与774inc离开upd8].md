@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 02:05** 
+> ## **本文件最后更新于2020-05-06 04:04** 
 
 
 
@@ -5016,11 +5016,11 @@ syl，我怎么觉得虹最近大赛的冠军都是男v<img src="https://static.
 
 
 
-<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_xvssp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_EUzk9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 https://twitter.com/Sco_ttie/status/1257597617019613186
 
 
-<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_Y1j7S" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_v5vQc" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1](https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1)
 
 
@@ -6292,7 +6292,7 @@ yagoo摁着夏心夸的头五一高强度b限了一圈，到底给他们许了�
 
 
 
-<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_yfjjI" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_r22jk" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
@@ -6474,7 +6474,7 @@ vjuan击剑好像是白夜那边带起来的？
 
 
 
-虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_N636t" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_vFfSf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -10450,4 +10450,408 @@ QQ截图20200506015232.png
 
 
 
-                               
+
+
+-----
+
+####  framita  
+##### 20057#       发表于 2020-5-6 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47313906&amp;ptid=1924531" target="_blank">cyz542 发表于 2020-5-5 21:50</a>
+刚回家。有没有屌大的说说ponpoco这里这么多踩是不是大福带过来的</blockquote>
+云了下5ch，差评多的原因一半是点粉点的（啥原因就不知道了，再之前的没看），另一半是兔子miko西西柴卡她们那场效果太差。话说西西还是先solo一阵吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">5ch这说的
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 20058#       发表于 2020-5-6 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315722&amp;ptid=1924531" target="_blank">wsotaku 发表于 2020-5-6 01:02</a>
+
+小妮子发照片了真的高中时期突然荷尔蒙发作变丑了，现在又长好了一点顺便会化妆了
+
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">叔你最近感觉有点魔怔了 少看两天转换下心态比较好
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20059#       发表于 2020-5-6 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316100&amp;ptid=1924531" target="_blank">framita 发表于 2020-5-6 02:17</a>
+
+云了下5ch，差评多的原因一半是点粉点的（啥原因就不知道了，再之前的没看），另一半是兔子miko西西柴卡 ...</blockquote>
+贴贴那场带了700+差评
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20060#       发表于 2020-5-6 02:25
+
+
+
+
+龙酱泯然众人矣<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+快回本体播我还要看大莱莱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 20061#       发表于 2020-5-6 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316131&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-6 02:25</a>
+龙酱泯然众人矣
+
+快回本体播我还要看大莱莱</blockquote>
+别慌，下件财宝掏ea，把木口地板都掀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20062#       发表于 2020-5-6 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315976&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-5-6 01:44</a>
+
+我就说今天感觉怪怪的睡不着，原来是我的身体在暗示我郡道大晚上要在T台播 ...</blockquote>
+&gt;可以扔掉戒指，但是不会扔掉信件
+
+&gt;一年真的很长，有liver（没说谁，不是她）一年前收到信，一年后发现寄信人不怎么看视频了，把信扔了。自己绝对做不到一年都喜欢一个人，很佩服一直坚持的观众
+
+&gt;又大晚上吃零食，还让观众推荐（我购物车里她提到的零食加起来大概有500多元.....），几分钟前完全不把贵贵配送费放在眼里，之后又假哭说没钱买不起零食（最后还是买了很多）
+
+&gt;郡道连说两声“お？”（我这可悲！可恶！的河豚脑）
+
+&gt;在她说想吃烤肉的时候有观众用tag发了烤肉照片，被她威胁要block
+
+&gt;又对着斉藤界限化了
+
+&gt;ダメですよ、Ｈわ
+
+&gt;は？唐揚げ？お前（低沉）
+
+&gt;私えらいですよ？もど褒めて？
+
+&gt;大晚上真的很适合脑控，小小声说话好可爱好可爱好可爱好可爱，说肚子饿的时候可爱，下单的时候可爱，滚来滚去不下单的时候可爱，说想吃饼干的时候可爱，完全没有那个必要但是会跟观众撒娇说想吃这个那个的时候可爱，连说block时候的发音也可爱，绝对很适合ASMR啊.......
+
+
+我也おやすみなさい（明早看到绝对被我自己恶心到）
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20063#       发表于 2020-5-6 02:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316196&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-5-6 02:52</a>
+
+&gt;可以扔掉戒指，但是不会扔掉信件
+
+&gt;一年真的很长，有liver（没说谁，不是她）一年前收到信，一年后发现寄 ...</blockquote>
+确实有被恶心到（（（
+
+
+瑞士t台有这么养噶吃吗？怪不得和肥希星川这帮人关系这么好.......<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+话说我还是不明白，在那么多白河豚都直球瑞士背叛了百合营业的情况下（我知道错不全在瑞士，但毕竟军神混出来了），您一个白河豚是怎么对瑞士还这么噶吃的.......也算是cp转单推吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20064#       发表于 2020-5-6 03:02
+
+
+
+
+一到深夜就发现这楼里全都是各家gachi恋，人均zqsg。感觉我不能融入了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20065#       发表于 2020-5-6 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315933&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-6 01:35</a>
+
+以前一直嘲讽V圈是澡盆里打海战，最近看V圈各种新闻感觉确实从澡盆变成泳池了。 ...</blockquote>
+泳池特别精准，总算是进入好歹看起来有点可看性的争斗了，不过早期虽然是澡盆，但毕竟澡盆里的娃儿还是很多的，现在虽然是泳池，但主要就是两个人对射，为数不多的在旁边see了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20066#       发表于 2020-5-6 03:15
+
+
+
+
+不出意外的话狐皇能在2周年之前超越HH。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 20067#       发表于 2020-5-6 03:22
+
+
+
+[星街すいせいさん荒らしを一喝する](https://www.nicovideo.jp/watch/sm36808897)
+[加藤純一　ぺこら　キレ芸比較](https://www.nicovideo.jp/watch/sm36755848)
+
+
+看💩的时候好奇点进了当前最潮最IN的配信者的精彩剪辑，原来也是这种风格啊确实很有群众基础啊，跟中文网络好像是一个尿路的呢
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20068#       发表于 2020-5-6 03:26
+
+
+
+
+哦对了尾巴哥，苔宝今天在兔姨那儿又表演直播哭了，你的小作文呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不到十天的时间里面演了五六场哭戏，我愿称苔宝为虚拟林黛玉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20069#       发表于 2020-5-6 03:28
+
+
+
+ 本帖最后由 シナモンロール 于 2020-5-6 03:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316268&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-6 03:26</a>
+
+哦对了尾巴哥，苔宝今天在兔姨那儿又表演直播哭了，你的小作文呢
+
+不到十天的时间里面演了五六场哭戏 ...</blockquote>
+
+我晚上上网课昏迷了
+
+
+话说上次家主我也是久违的zqsg了，阿苔哭要是每次都写小作文也着实写不出什么花来，尤其来说自从我说了想让阿苔哭怎么怎么她就哭上瘾了。何况她哭得实在是太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+话又说回来，她啥时候能开摄像头哭啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 20070#       发表于 2020-5-6 03:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316268&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-6 03:26</a>
+哦对了尾巴哥，苔宝今天在兔姨那儿又表演直播哭了，你的小作文呢
+
+不到十天的时间里面演了五六场哭戏 ...</blockquote>
+感觉你要ptsd了，拿出来说了好多回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 20071#       发表于 2020-5-6 03:33
+
+
+
+
+上次看信姬跟苔苔聯動
+
+兩人哭戲真不在一個水平上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20072#       发表于 2020-5-6 03:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316282&amp;ptid=1924531" target="_blank">meatybobby 发表于 2020-5-6 03:33</a>
+
+上次看信姬跟苔苔聯動
+
+兩人哭戲真不在一個水平上</blockquote>
+
+家主是我不能不信她哭的zqsg
+
+
+苔苔是哪怕我愿意信她也没法相信她不在尬演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+粉丝滤镜完全失效，苔苔哭的就是这么菜
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 20073#       发表于 2020-5-6 03:34
+
+
+
+<blockquote>シナモンロール 发表于 2020-5-6 03:28
+我晚上上网课昏迷了
+
+
+话说上次家主我也是久违的zqsg了，阿苔哭要是每次都写小作文也着实写不出什么花来， ...</blockquote>
+10号就是母亲节了，上个母亲节送礼物回忆母亲养育之恩不就开摄像头哭了
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20074#       发表于 2020-5-6 03:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316291&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-6 03:34</a>
+10号就是母亲节了，上个母亲节送礼物回忆母亲养育之恩不就开摄像头哭了</blockquote>
+事
+
+但是母亲节那次有几个问题，首先是阿苔执着于重复70w的金额，虽然可能确实是zqsg想表达自己的孝心，但直播给妈送包还老重复金额实在是太尬了（不过正因为尬过头了我相信苔苔只是感觉不到这样表达孝心很二而不是真的演给观众看）这样户外主播感贼强的直播内容让我emo不起来
+
+另一个问题就是.......她是半当中忆往昔峥嵘岁月的时候抽噎了两下，哭的感觉实在不那么明显.......我希望看到的是更zqsg的东西.......即便不是号泣，好歹也是那种哭到眼睛全红停不下来那种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20075#       发表于 2020-5-6 03:45
+
+
+
+ 本帖最后由 proxima 于 2020-5-6 03:47 编辑 
+
+这能不ptsd吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且还是被拉黑了
+
+
+苔宝烂活也整到头了，天天都是那几个老梗复读来复读去。又不知道是会员多了膨胀了还是想转型怎么的，就疯狂给自己加人设养信者。一点乐趣都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我觉得只有哪天她能真的爆炸才能有乐子了。
+
+
+
+只有小野能给我带来一点治愈，看海苔男跟男朋友恩恩爱爱把小野甩一边的样子让我找到了看露女士的快乐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感受到了看虚拟管人的原初的快乐。
+
+
+
+
+
+                              
