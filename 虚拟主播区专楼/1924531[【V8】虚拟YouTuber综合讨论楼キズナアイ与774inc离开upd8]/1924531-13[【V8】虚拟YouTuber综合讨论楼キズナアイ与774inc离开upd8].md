@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 10:05** 
+> ## **本文件最后更新于2020-05-05 12:06** 
 
 
 
@@ -5913,6 +5913,25 @@ syl 阿喵喵好像有在choco这里体检过吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KyotoAnimation|-2||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11039,7 +11058,7 @@ B站现在这个情况才是正常的，难道真让整个虚拟区认yagoo一�
 
 
 
-<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_dan38" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_y5dc2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/sukosuko_sukoya/status/1257326947702464512](https://twitter.com/sukosuko_sukoya/status/1257326947702464512)
 
 
@@ -16445,10 +16464,11 @@ syl
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| MisForTunez| + 2||
 | argaregeasr| + 1|欢乐多|
 
 
@@ -17796,7 +17816,7 @@ yysy饼佬歌单挺不错的
 
 
 
-<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_Z20E2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_f5CWp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/haruzo17/status/1257334774336819200](https://twitter.com/haruzo17/status/1257334774336819200)
 
 
@@ -18350,4 +18370,647 @@ holo摇批站400w了。前天口罩姬也在404自己频道发了个自我介绍
 
 
 
-                
+
+
+-----
+
+####  八月琉璃  
+##### 18997#       发表于 2020-5-5 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，artia居然要直播仙剑，未曾设想的道路。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 18998#       发表于 2020-5-5 10:18
+
+
+
+
+看完后我大概懂了......那位的意思是从S1了解到微博的事然后发S1了吧，虽然确实容易误会就是了......
+
+
+说起来V吧没炸时，我在贴吧有段时间以为stars的anti是看女团二期三人的虹人，后来想明白了根本不是这回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也差点闹大误会
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 18999#       发表于 2020-5-5 10:18
+
+
+
+
+这龙皇又在朝闻可可里给可可·卡因这颗卫星放风了，到底出道不出道呀∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19000#       发表于 2020-5-5 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47306984&amp;ptid=1924531" target="_blank">Vneet 发表于 2020-05-05 10:18:20</a>
+这龙皇又在朝闻可可里给可可·卡因这颗卫星放风了，到底出道不出道呀∠( ᐛ 」∠)_ ...</blockquote>出道也要换个名字吧，改改皮换个名字初配信吐槽下龙皇迫害她我能接受，要是就这名字出来我会踩到毕业，不过我觉得holo也没傻逼成这样
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19001#       发表于 2020-5-5 10:27
+
+
+
+
+可.卡因真的合适吗。。龙皇在这条路上越走越远我是真的不喜欢（虽然我算老几就是了。）
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 19002#       发表于 2020-5-5 10:27
+
+
+
+
+羊今天不读棉花糖直接开歌回啊。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19003#       发表于 2020-5-5 10:30
+
+
+
+
+看了看只说要唱歌，没说不读棉花糖吧。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19004#       发表于 2020-5-5 10:30
+
+
+
+ 本帖最后由 Vneet 于 2020-5-5 10:31 编辑 
+
+这名字的确不合适，折中点叫桐生卡因/凯茵吧，然后可可·卡因成为两姐妹的CP名_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19005#       发表于 2020-5-5 10:38
+
+
+
+
+原来是星街的会员比别人便宜
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 19006#       发表于 2020-5-5 10:38
+
+
+
+ 本帖最后由 金魚佬 于 2020-5-5 11:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">叫这个名字就算在404站不被针对，P站也能把你这个账号落地就扬了。龙皇陨落不可避免。
+
+syl 不过龙皇这种提前给以后要出道的新人造势的引流手段属实上乘，或者说V反而很适合这种引流和造势方式，反正设定随便编，只要皮下的魂别太拉垮就行，甚至还特别适合通讯录招人的杏，就是提前生产贴贴人有可能会反噬。杏仁千呼万唤的姐街也是一个侧面印证，一开始在星街频道里只闻其声不见其人，免费素材当形象，到星街演唱会上做guest赚足眼球，可把杏仁都馋哭了。可惜姐街明确和星街还有天音说过不会vtuber出道了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19007#       发表于 2020-5-5 10:41
+
+
+
+
+野兔子……
+
+<img src="https://img.saraba1st.com/forum/202005/05/104126biwi9vra392iiira.png" referrerpolicy="no-referrer">
+
+
+<strong>NSKaGUc.png</strong> (19.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 10:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19008#       发表于 2020-5-5 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307182&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-05-05 10:41:40</a>
+野兔子……</blockquote>这有啥好大惊小怪的，芙宝你敏感程度不输yhm…
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 19009#       发表于 2020-5-5 11:08
+
+
+
+
+404玩玩麻药哏就算了，阿B绝对把你扬了都不带考虑的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 19010#       发表于 2020-5-5 11:09
+
+
+
+
+我日本动画片看了六年，最近两三个月高强度看管，按照外野说法早该可以去考N1了，刚才去听月之录播又只能听懂一半.......
+
+难道看管的收获还不如玩黄油？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 19011#       发表于 2020-5-5 11:17
+
+
+
+
+草<img src="https://p.sda1.dev/0/b0f928b137f84342753f62bfc77510f0/IMG_3BD4DAEC0F3ECACB6BCDF106AA0A9176.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 19012#       发表于 2020-5-5 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307470&amp;ptid=1924531" target="_blank">weiweiEX 发表于 2020-5-5 11:17</a>
+草</blockquote>
+？？？
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19013#       发表于 2020-5-5 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307416&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-5-5 11:09</a>
+
+我日本动画片看了六年，最近两三个月高强度看管，按照外野说法早该可以去考N1了，刚才去听月之录播又只能听 ...</blockquote>
+硬要说的话N1本身词汇量也不算高，更别说月之这种高度依赖亚文化储备的杂谈了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19014#       发表于 2020-5-5 11:26
+
+
+
+
+猫猫要跟憨色合唱的消息早公布了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 19015#       发表于 2020-5-5 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307530&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-5 11:26</a>
+猫猫要跟憨色合唱的消息早公布了啊</blockquote>
+之前没关注，忽然看到这消息惊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19016#       发表于 2020-5-5 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307372&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-5 11:04</a>
+
+这有啥好大惊小怪的，芙宝你敏感程度不输yhm…
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+不对 这条SC应该是anti故意发的
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 19017#       发表于 2020-5-5 11:31
+
+
+
+<blockquote>ヒトニナル 发表于 2020-5-4 17:10
+不是还有ほろよい这种东西吗，虽然在我眼里微醺甚至啤酒都不算是酒都是饮料 ...</blockquote>
+啤酒不算酒太强了，你能表演一个蛇毒对瓶吹吗
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 19018#       发表于 2020-5-5 11:31
+
+
+
+
+上一个被前辈引流（迫害）的未出道新人至今未出道（指彩虹的肥宅哥哥）
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 19019#       发表于 2020-5-5 11:33
+
+
+
+
+芙宝首先排除了柴卡粉的选项<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19020#       发表于 2020-5-5 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307573&amp;ptid=1924531" target="_blank">Vneet 发表于 2020-5-5 11:31</a>
+
+上一个被前辈引流（迫害）的未出道新人至今未出道（指彩虹的肥宅哥哥）</blockquote>
+那个设定，中之人也太难找了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 19021#       发表于 2020-5-5 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307566&amp;ptid=1924531" target="_blank">穆幕姆 发表于 2020-5-5 11:31</a>
+啤酒不算酒太强了，你能表演一个蛇毒对瓶吹吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的确干过对瓶喝红酒的事，不过鉴于网上吹牛逼不用交税你可以选择不信
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19022#       发表于 2020-5-5 11:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人表达不爽只会阴阳怪气吗，好像很少看到直球辱骂的。
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 19023#       发表于 2020-5-5 11:43
+
+
+
+
+日本人确实阴阳怪气的多
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19024#       发表于 2020-5-5 11:43
+
+
+
+
+去雅虎新闻看看中国相关的新闻就能看到直球了
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 19025#       发表于 2020-5-5 11:44
+
+
+
+
+前几天推特趋势上已经见得够多了，没必要特地去雅虎找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 19026#       发表于 2020-5-5 11:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">雅虎和推特上也不一定全是日本人，可能是火山人和4v人
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 19027#       发表于 2020-5-5 11:48
+
+
+
+
+日语的直球辱骂和中文比起来是挺菜的，yygq起来是一绝，当然要扬长避短
+
+
+
+
+
+
+
+-----
+
+####  JonnyGreenwood  
+##### 19028#       发表于 2020-5-5 11:50
+
+
+
+
+不要看不起啤酒啊，虽然和白酒不能比，但多数人喝个三瓶罗10就能头顶着火了
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 19029#       发表于 2020-5-5 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305829&amp;ptid=1924531" target="_blank">qq845629713 发表于 2020-5-5 02:51</a>
+
+看管人，
+
+
+就像父母给你买书一样，</blockquote>
+有那么点意思
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19030#       发表于 2020-5-5 11:55
+
+
+
+
+柴卡粉的话只追兔皇也太奇怪了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19031#       发表于 2020-5-5 12:02
+
+
+
+
+芙宝是希望也给35打钱吗？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19032#       发表于 2020-5-5 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307779&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-5 11:55</a>
+
+柴卡粉的话只追兔皇也太奇怪了</blockquote>
+说不定是彩虹看柴卡，holo看兔皇的，然后两个推终于有了交集，所以很开心。
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 19033#       发表于 2020-5-5 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307150&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-5 10:38</a>
+
+原来是星街的会员比别人便宜</blockquote>
+那肯定啊，买别人会员一月看多少时间，这位V界公务员一月播多少时间，查了下，最多一个月播30小时
+
+
+
+
+
+               
