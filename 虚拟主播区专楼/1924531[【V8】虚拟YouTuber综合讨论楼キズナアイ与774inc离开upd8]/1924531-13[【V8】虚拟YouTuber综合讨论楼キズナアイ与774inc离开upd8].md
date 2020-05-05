@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 04:05** 
+> ## **本文件最后更新于2020-05-05 10:05** 
 
 
 
@@ -11039,7 +11039,7 @@ B站现在这个情况才是正常的，难道真让整个虚拟区认yagoo一�
 
 
 
-<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_yL3lL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_dan38" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/sukosuko_sukoya/status/1257326947702464512](https://twitter.com/sukosuko_sukoya/status/1257326947702464512)
 
 
@@ -16437,6 +16437,25 @@ syl
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17777,7 +17796,7 @@ yysy饼佬歌单挺不错的
 
 
 
-<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_TP8dd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_Z20E2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/haruzo17/status/1257334774336819200](https://twitter.com/haruzo17/status/1257334774336819200)
 
 
@@ -17821,6 +17840,25 @@ yysy饼佬歌单挺不错的
 当然主要还是为了推销我做的大葵合集<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV1Gg4y167Hh](https://www.bilibili.com/video/BV1Gg4y167Hh)
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北山玖公| + 1|加油，免费哥。|
+
+
+
+查看全部评分
 
 
 
@@ -17970,4 +18008,346 @@ syl,
 
 
 
-                 
+
+
+-----
+
+####  某穆克拉  
+##### 18983#       发表于 2020-5-5 06:53
+
+
+
+
+狗子下了，虽然我觉得她还很精神。。。
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 18984#       发表于 2020-5-5 06:56
+
+
+
+
+耐久12小时平均2w+同接。。这个月船狗同接要创新高了
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 18985#       发表于 2020-5-5 07:00
+
+
+
+
+毕竟这两个人的直播什么时候点进去都很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18986#       发表于 2020-5-5 07:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/05/070357g7w90jea154qjw8e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-kxdvZwT3cS1ck-wt.jpg</strong> (318.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 07:03 上传
+
+
+
+
+
+
+我听了12小时门子逼母
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 18987#       发表于 2020-5-5 07:12
+
+
+
+
+所以昨天又发生了啥......
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 18988#       发表于 2020-5-5 07:19
+
+
+
+
+holo摇批站400w了。前天口罩姬也在404自己频道发了个自我介绍动画，总感觉今年真的可以正式宣告2525已死
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 18989#       发表于 2020-5-5 08:14
+
+
+
+ 本帖最后由 tiro_finale 于 2020-5-5 08:15 编辑 
+
+结果双皇一起福报了还都耻辱下播了啊，各项数据倒是挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+还有mysk频道里好像没显示出来直播档，虽然链接可以进去
+
+呃，船长的也看不见了...
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18990#       发表于 2020-5-5 08:18
+
+
+
+ 本帖最后由 某穆克拉 于 2020-5-5 08:40 编辑 
+
+时间太长自动转码没结束吧syl，今天小天使要开会员了，会员能用谷歌卡开吗？
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 18991#       发表于 2020-5-5 08:42
+
+
+
+ 本帖最后由 NBXX 于 2020-5-5 09:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47306319&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 08:18</a>
+
+时间太长自动转码没结束吧syl，今天小天使要开会员了，会员能用谷歌卡开吗？</blockquote>
+可以，在网页端挂和货币相同地区的梯子就可以开会员。
+
+而且美元，日元，港元等不同地区的同一档次会员价格会有点差别，港元会比较便宜。
+
+<img src="https://img.saraba1st.com/forum/202005/05/085316rqhdmmi7ehqfhie1.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获.PNG</strong> (2.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 08:53 上传
+
+
+
+
+
+≈22.7645人民币
+
+<img src="https://img.saraba1st.com/forum/202005/05/085323alqlk63xl3vl8zyl.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获2.PNG</strong> (2.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 08:53 上传
+
+
+
+
+
+≈35.2304人民币
+
+<img src="https://img.saraba1st.com/forum/202005/05/085330ao4igdu1szgosfod.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获3.PNG</strong> (2.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 08:53 上传
+
+
+
+
+
+≈32.4349人民币
+
+————————————————————————
+
+试了下楼下提到的俄区
+
+<img src="https://img.saraba1st.com/forum/202005/05/093553u9xss3fttttyx3t3.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获4.PNG</strong> (2.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 09:35 上传
+
+
+
+
+
+≈23.5263人民币
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 18992#       发表于 2020-5-5 08:59
+
+
+
+
+挂俄区更便宜
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18993#       发表于 2020-5-5 09:03
+
+
+
+
+不开会员立省100%
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 18994#       发表于 2020-5-5 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47306319&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 08:18</a>
+
+时间太长自动转码没结束吧syl，今天小天使要开会员了，会员能用谷歌卡开吗？</blockquote>
+会员如果要用礼品卡的话，推荐用安卓上的谷歌应用开。有条件还是搞张visa卡吧，省事。
+
+
+
+
+
+
+
+-----
+
+####  八月琉璃  
+##### 18995#       发表于 2020-5-5 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305698&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-05-05 02:17:01</a>
+198舰长就是个傻逼东西，我今天上了就后悔了，本来想着分成和sc一样反正b限sc也不读，现在回头一想我tm直接 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你可以等aki来阿B。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18996#       发表于 2020-5-5 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47306849&amp;ptid=1924531" target="_blank">八月琉璃 发表于 2020-05-05 09:58:37</a></blockquote>404打钱就完事了等个屁b限，说白了这次要不是节奏闹这么大我根本不会b站打钱…
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                
