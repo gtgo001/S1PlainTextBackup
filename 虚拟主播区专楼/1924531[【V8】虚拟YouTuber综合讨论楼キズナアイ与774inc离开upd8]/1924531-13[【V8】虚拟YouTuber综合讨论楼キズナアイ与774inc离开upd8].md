@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 14:05** 
+> ## **本文件最后更新于2020-05-05 16:05** 
 
 
 
@@ -11058,7 +11058,7 @@ B站现在这个情况才是正常的，难道真让整个虚拟区认yagoo一�
 
 
 
-<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_GxzGS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_kvVq7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/sukosuko_sukoya/status/1257326947702464512](https://twitter.com/sukosuko_sukoya/status/1257326947702464512)
 
 
@@ -17816,7 +17816,7 @@ yysy饼佬歌单挺不错的
 
 
 
-<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_xDC7P" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_jS6MM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/haruzo17/status/1257334774336819200](https://twitter.com/haruzo17/status/1257334774336819200)
 
 
@@ -21353,9 +21353,9 @@ vtuber列表里可能只有mea能靠自己的收入在东京买房了
 
 
 
- 本帖最后由 Mika-S 于 2020-5-5 14:05 编辑 
+ 本帖最后由 Mika-S 于 2020-5-5 14:07 编辑 
 
-所以大多数人还是把v当兼职来干啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+所以大多数人还是把v当兼职来干啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 十分怀疑起手就干全职的是不是只有巧可大亏这种憨憨
 
 
 
@@ -21425,4 +21425,4125 @@ vtuber列表里可能只有mea能靠自己的收入在东京买房了
 
 
 
-           
+
+
+-----
+
+####  泡芙好吃  
+##### 19170#       发表于 2020-5-5 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309030&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 14:03</a>
+
+关键不是不知道能赚多少年吗
+
+由奢入俭难</blockquote>
+巧可……
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19171#       发表于 2020-5-5 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这样看来，996码农娶到肥满yhm管人的机会也不是0
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19172#       发表于 2020-5-5 14:06
+
+
+
+
+利香要是全职正常每天播收入也不会差的 至于她为什么放弃v这边没想通
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 19173#       发表于 2020-5-5 14:06
+
+
+
+
+个人猜测：圣皇这些企业势拿到钱有两种方式吧，要么全税直接从企业里面把分红取出来，要么就是把鸡蛋放在企业里面各种避税每年拿提成
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19174#       发表于 2020-5-5 14:07
+
+
+
+
+只要长得帅，届到谁都不是问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 19175#       发表于 2020-5-5 14:07
+
+
+
+
+就算挣几百万和一般社畜一个水平也比社畜轻松得多啊，上班时间少这么多还不用通勤，甚至还有兼职的，是我我肯定满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19176#       发表于 2020-5-5 14:07
+
+
+
+
+要来了吗，管人粉出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19177#       发表于 2020-5-5 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309027&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-5 14:03</a>
+
+也不至于啊，船长玩碧蓝不是直接开局2w7那个什么红尖尖吗？我看评论说得挺厉害的。不过我没玩不知道什么概 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该充了一两千rmb吧，也不算多。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19178#       发表于 2020-5-5 14:09
+
+
+
+
+企业势还要交90%的税那这企业也太废物了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 19179#       发表于 2020-5-5 14:09
+
+
+
+
+萝卜子红心早期爆的SC都是对半，最近可傲天爆会员对半，对半作为一个模糊的基准还是有可信度的
+
+偶像式分成不太可能，那么分的话可傲天卖抹布怎么也分不到百万
+
+当然我感觉赚得越多应该是抽得越少的，特别全职合同，不然三期这么努力读SC刷数字做什么
+
+加上YAGOO吹aqua的SC第一，他喜欢高数字，有适当的激励也不奇怪
+
+
+真正吃偶像式分成的恐怕是阿望
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 19180#       发表于 2020-5-5 14:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">几年前看《东京女子图鉴》，女主每次换工作升迁就搬家到“地位”相当的街道去住，不知道这些yhm现在到哪个阶段了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19181#       发表于 2020-5-5 14:10
+
+
+
+
+反正我还是认为杏中上层保底的2000会员的35%加上一些底薪就够每月三十来万了，其他的广告SC再来点什么就够活命了，就算收入不高也饿不死人的。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19182#       发表于 2020-5-5 14:11
+
+
+
+
+直播旱的旱死，涝的涝死，只看泥潭风云人物容易产生幻觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19183#       发表于 2020-5-5 14:11
+
+
+
+ 本帖最后由 stedckk 于 2020-5-5 14:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309056&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-5 14:06</a>
+
+利香要是全职正常每天播收入也不会差的 至于她为什么放弃v这边没想通</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">大概是中之人收入本身就不错吧，加上那边活动也多，就没精力搞v了
+
+
+可能本体有大粉不希望她把重心转到v也有影响。
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 19184#       发表于 2020-5-5 14:11
+
+
+
+
+木口的人和葛叶相当于nba，干几年之后只要不继续乱花就应该没问题
+
+
+彩虹3baka才多少sc……德龙能拿几百万不错了……线下有那么赚钱都抢着去
+
+
+一年赚个996码农的钱，浪费大好年华花在直播上，也是挺坑的……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 19185#       发表于 2020-5-5 14:12
+
+
+
+
+搞直播也不见得轻松啊，不能只把开播时间当作工作时间
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 19186#       发表于 2020-5-5 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309031&amp;ptid=1924531" target="_blank">Mika-S 发表于 2020-5-5 14:03</a>
+
+所以大多数人还是把v当兼职来干啊真能随便赚那么多，为啥不直接全职多轻松。始皇帝曾经那么福报，也 ...</blockquote>
+说什么呢，哪有人找她配音啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">更何况绊爱这工作早把她时间挤压没了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19187#       发表于 2020-5-5 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309059&amp;ptid=1924531" target="_blank">Mr.shelter 发表于 2020-5-5 14:07</a>
+
+只要长得帅，届到谁都不是问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长得帅也得有途径啊。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19188#       发表于 2020-5-5 14:13
+
+
+
+
+想要出道当管人，杂谈力游戏力歌唱力你总的有一个出彩吧。杂谈还不能是单纯的能说，得会引话题，回应评论；游戏力也不是单纯打得好，而是要有节目效果，能造梗；歌唱力我就不敢评说了。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 19189#       发表于 2020-5-5 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要小瞧日本某些公司的无耻嘴脸啊。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 19190#       发表于 2020-5-5 14:15
+
+
+
+
+搞直播的有些人一天就睡三四个小时的……
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19191#       发表于 2020-5-5 14:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 所以也是搞不懂，你虹这么多人底边看着就没什么收入，还继续干究竟为了什么，
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19192#       发表于 2020-5-5 14:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309097&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-5 14:11</a>
+
+木口的人和葛叶相当于nba，干几年之后只要不继续乱花就应该没问题
+
+
+彩虹3baka才多少sc……德龙能拿几百万不 ...</blockquote>
+996码农透支自己大好年华的身体来换这点钱不是更坑么
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19193#       发表于 2020-5-5 14:16
+
+
+
+
+如果我没记错，超额累进不都是写着“超过xx元到xx元的部分”征税率是多少吗......哪有到了这个档然后全额按这个档交税的道理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19194#       发表于 2020-5-5 14:16
+
+
+
+
+偶像分成那么坑，那些小偶像还呆着是想着万一自己火了就不一样了，都做着明星梦呢。你圈这群老油条那有这么纯粹的梦想。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19195#       发表于 2020-5-5 14:16
+
+
+
+
+睡三四个小时很正常了
+
+特别是holo
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19196#       发表于 2020-5-5 14:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">说起来栞樱还是楠妈在管账，”楠家pro所属楠栞樱“，倒是花音变动画公司所属了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 19197#       发表于 2020-5-5 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309128&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 14:15</a>
+所以也是搞不懂，你虹这么多人底边看着就没什么收入，还继续干究竟为了什么，
+
+
+ ...</blockquote>
+按照一般直播公司的弄法，公司员工都有底薪的啊，时长热度达标总归有点钱拿的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19198#       发表于 2020-5-5 14:17
+
+
+
+
+这群人要SC那么积极，有时看起来还真的很高兴，你要说拿不到？反正我是懒得替公司演的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19199#       发表于 2020-5-5 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309121&amp;ptid=1924531" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-5 14:14</a>
+
+不知道各位看过外野讲杭州在日地下偶像的帖子没有。直播收益归公司，拍立得，谷子啥的对半分 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 这我觉得和木口没什么关系，
+
+
+反倒我觉得你虹有这个味了，
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19200#       发表于 2020-5-5 14:18
+
+
+
+
+有歌力杂谈力却不火的底边一堆一堆，说到底还是没有曝光度，不会整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 19201#       发表于 2020-5-5 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309128&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 14:15</a>
+
+所以也是搞不懂，你虹这么多人底边看着就没什么收入，还继续干究竟为了什么，
+
+
+ ...</blockquote>
+不是为了接近偶像么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19202#       发表于 2020-5-5 14:18
+
+
+
+
+要么直播要么出门打工，这么一想能吃到直播这口饭还是很幸福的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19203#       发表于 2020-5-5 14:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是把直播当爱好，而且大部分都是兼职也不算很累。
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 19204#       发表于 2020-5-5 14:19
+
+
+
+
+不用露脸，能和网友聊天交流，还有钱拿。对于有一些表现欲望但又惧怕见光的人来说这兼职不要太好
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 19205#       发表于 2020-5-5 14:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309143&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-5 14:16</a>
+偶像分成那么坑，那些小偶像还呆着是想着万一自己火了就不一样了，都做着明星梦呢。你圈这群老油条那有这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">老油条自然不会，但是20+小姑娘就不一定了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19206#       发表于 2020-5-5 14:20
+
+
+
+
+拿直播的上限和走通常学业的平均线比是这样的。很多有很强直播能力的别人上学的时候她们就在直播了。如果没有赶上机遇的话，做个底边小主播也不会太好过。学业做得好，遇到好的机遇，自己能力足的话，上限是不可估量的。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19207#       发表于 2020-5-5 14:21
+
+
+
+
+斗鱼那边白天工作晚上直播的人多了去了，直播收入也不见得有多少，很多人就是打游戏顺便开个直播而已。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 19208#       发表于 2020-5-5 14:21
+
+
+
+
+管人中之人有钱了和一般观众又有什么关系呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不如说都财务自由了变身懒汉随便播的可能性更大
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 19209#       发表于 2020-5-5 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309027&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-5 14:03</a>
+
+也不至于啊，船长玩碧蓝不是直接开局2w7那个什么红尖尖吗？我看评论说得挺厉害的。不过我没玩不知道什么概 ...</blockquote>
+2W7红尖尖，不算首冲双倍也就是三单，3W日元
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19210#       发表于 2020-5-5 14:24
+
+
+
+
+想了，如果把线下银趴算进你虹收入的一部分，那就合理多了，，
+
+
+双赢！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 19211#       发表于 2020-5-5 14:24
+
+
+
+
+有虎扑那味儿了，天天操心球员三千万美刀年薪是不是拿少了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 19212#       发表于 2020-5-5 14:24
+
+
+
+
+对于阴盛阳衰的V圈直播势来说可能结婚恋爱了开始摸鱼的可能性更大些
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 19213#       发表于 2020-5-5 14:25
+
+
+
+
+有钱了工作热情高啊，她们赚的钱也没到财务自由的程度，可傲天整个holo house都有难度
+
+没钱会如何，参见游戏部、偶像部
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 19214#       发表于 2020-5-5 14:25
+
+
+
+
+拿那些高收入管人的收入套到那些兼职随便播的管人的工作强度上，显得直播来钱很轻松，我觉得有失偏颇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 19215#       发表于 2020-5-5 14:26
+
+
+
+
+还不是偶像的魔力大，让我甘心打钱，还要担忧她们生活水平。
+
+看了那么多年斗鱼，我也没花过钱，吵起来就加入进去骂，或者叉掉换一台
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19216#       发表于 2020-5-5 14:27
+
+
+
+
+话说回来22姐什么时候套皮出道啊 等着上舰呢
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19217#       发表于 2020-5-5 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 那阿笹多半是因为钱和田角掰了
+
+
+阿笹加入木口，会不会被孤立？
+
+
+mrr就没被孤立，甚至被各路人马赏饭
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19218#       发表于 2020-5-5 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说到底轻不轻松也只是我们的臆想而已，可能有些人高收入轻松，有些人高收入不轻松。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19219#       发表于 2020-5-5 14:28
+
+
+
+
+事实上高收入管人还是挺累的吧，阿夸就说自己根本睡不好，无法进入深度睡眠，只能晕晕乎乎睡几小时。想要留住观众还是需要一定策划和努力的，体量越大压力越大。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19220#       发表于 2020-5-5 14:28
+
+
+
+
+反正对我来说，知道她们收入够活得下去不会随便放弃这份工作就差不多了。
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 19221#       发表于 2020-5-5 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309129&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-5 14:15</a>
+
+996码农透支自己大好年华的身体来换这点钱不是更坑么</blockquote>
+一个人，很年轻作为元老加入创业公司，被用户称为“三xx”之一，后来公司爆红，暴打国内一切公司，而且还冲向海外。
+
+
+如果这个是码农，那就是s1著名的陌陌创始人坛友，已然财富自由。
+
+如果这个人是主播，她就是樋口枫，虽然是三幻神最弱的一个，虽然打游戏像通风口，虽然越来越没人看，但是仍然是公司元老，然后天天坐飞机出线下，还跑到海外，一年拿几百万日元的钱。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19222#       发表于 2020-5-5 14:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">芙宝化身二二姐gachi，真出道了到时候要怎么刺激二二姐？
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 19223#       发表于 2020-5-5 14:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我看了一眼影山这dbd就400不到啊，真的好起来了吗…
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19224#       发表于 2020-5-5 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309257&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-5 14:28</a>
+
+事实上高收入管人还是挺累的吧，阿夸就说自己根本睡不好，无法进入深度睡眠，只能晕晕乎乎睡几小时。想要留 ...</blockquote>
+草看成体重越大压力越大
+
+syl我觉得现在得有54.5了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 19225#       发表于 2020-5-5 14:30
+
+
+
+
+车收入了？国内主播还是不能看，我ninja shroud签约费加起来5000多万美金/年，再加上打赏广告活动404之类的两人爆你juan头部两家公司没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 能把日本个人税算出90%的脑瘫话居然也有人信，昏古七了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19226#       发表于 2020-5-5 14:31
+
+
+
+
+300多不错了，这还是杏大量开台的情况下，杏星一二期不是一两百是常态吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19227#       发表于 2020-5-5 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1熊猫人在杏也有几个熟人的，不过我觉得她是不会转会的，人生又不是只有直播，当初隐退也没转生。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 19228#       发表于 2020-5-5 14:31
+
+
+
+
+比起虹杏这种签约主播，肯定是老视频势这种试音会招进去直接签雇佣合同的惨啊，表现好就发点奖金能有几个钱。
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 19229#       发表于 2020-5-5 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309189&amp;ptid=1924531" target="_blank">バーチャルS1er 发表于 2020-5-5 14:21</a>
+
+管人中之人有钱了和一般观众又有什么关系呢？，不如说都财务自由了变身懒汉随便播的可能性更大 ...</blockquote>
+中之人有钱了没啥关系，但是顶部主播赚的还不如996的话，那每天想着剩下的人只能边卖笑直播边喝西北风的状态，自然是有关系的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19230#       发表于 2020-5-5 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309278&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-5 14:30</a>
+
+车收入了？国内主播还是不能看，我ninja shroud签约费加起来5000多万美金/年，再加上打赏广告活动404之类的 ...</blockquote>
+可能只是不懂超额累进规则吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19231#       发表于 2020-5-5 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309276&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-5-5 14:29</a>
+
+我看了一眼影山这dbd就400不到啊，真的好起来了吗…</blockquote>
+谁打DBD都不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 19232#       发表于 2020-5-5 14:34
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/05/143335w1838gkafg130ngg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>risu.jpg</strong> (99.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 14:33 上传
+
+
+
+
+
+risu要打bastion 好，爱了
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 19233#       发表于 2020-5-5 14:35
+
+
+
+
+为什么连顶部不如996都出来了，我有.窒息，你楼有些人是来替管人虐粉的吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19234#       发表于 2020-5-5 14:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 通口去年那么努力才几百万，我有点同情你虹的主播了，
+
+
+哦，你虹主播都是追星、银趴的人↑人啊，那没事了
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19235#       发表于 2020-5-5 14:37
+
+
+
+
+不要再虐粉了，顶部管人收入已经非常高了，再怎么想方设法往低了算都很高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 19236#       发表于 2020-5-5 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309327&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-5 14:35</a>
+
+为什么连顶部不如996都出来了，我有.窒息，你楼有些人是来替管人虐粉的吗</blockquote>
+这不是如果吗，大亏能挣n个996的钱，别的主播至少不是用爱发电，那不挺好的。
+
+只不过19组恐怕也就是996的钱
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19237#       发表于 2020-5-5 14:37
+
+
+
+
+怎么还有顺劈没存在感的巧克的，人家再穷也得喝红酒一只猫几十万活的比那些小妹BBA精致多了
+
+最近生活水平已经从900日元的红酒涨到1500日元的桃酒了
+
+syl
+
+我烟都降级到10块档还得给我的紫宝打sc，一想我的收入和她比就是个屁就很不平衡
+
+晚上得再打点钱
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19238#       发表于 2020-5-5 14:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">收入往低和惨的方向去说可以给自己和其他粉丝一个打更多钱的底气和理由。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 19239#       发表于 2020-5-5 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309312&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-5 14:33</a>
+谁打DBD都不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说来奇怪，一部分v还特别喜欢打这游戏。明明平衡做一塌糊涂还赚不到人气，但就是爱播这玩意儿，很怪。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19240#       发表于 2020-5-5 14:39
+
+
+
+
+巧可都这样，那杏真是慈善公会，人人都挤破头吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19241#       发表于 2020-5-5 14:41
+
+
+
+
+巧可上月67w的sc，算1/3再加底薪谷子，35w估计有吧，也跟一般社员差不多了？
+
+
+
+
+
+
+
+-----
+
+####  charzeta  
+##### 19242#       发表于 2020-5-5 14:41
+
+
+
+
+说到熊猫人，那天会限之后刚开始个人也挺慌的，不过事后回味一下，感觉很有可能小部分是抱怨下staff，更多是为了稳定下核心粉，毕竟摸了那么久，总得解释下。不过熊猫人那个语调和声线，说实话挺难看得出真实的情绪的。
+
+
+反正今天就要播了，而且号称这周会多动。
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 19243#       发表于 2020-5-5 14:42
+
+
+
+
+dbd日本挺多人玩的似乎，狩野英孝天天直播玩，还和品川佑双排播过
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19244#       发表于 2020-5-5 14:43
+
+
+
+
+可能dbd是日本的现充游戏吧。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19245#       发表于 2020-5-5 14:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309271&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-5 14:29</a>
+
+芙宝化身二二姐gachi，真出道了到时候要怎么刺激二二姐？</blockquote>
+打钱刺激咯
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 19246#       发表于 2020-5-5 14:44
+
+
+
+
+巧克没钱能买两个人头麦？匿名希望只搞了一次而已。都说了杏大概率有底边播爆换时薪的政策，不然几个播爆的星v早饿死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 19247#       发表于 2020-5-5 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">兔皇玩的这种经典日式RPG，走10步遇一次怪，看着都觉得累
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19248#       发表于 2020-5-5 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309392&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-5 14:43</a>
+
+打钱刺激咯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二二姐看到了没，我觉得你真的可以出掉了，楼里这么多粉
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19249#       发表于 2020-5-5 14:45
+
+
+
+
+#管人粉圈虐粉行为大赏
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19250#       发表于 2020-5-5 14:46
+
+
+
+
+RJ277717
+
+匿名希望巧克桑赚外快搞的同人音声也卖出去4000多，四舍五入又是一个月一般会社员草，半价了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19251#       发表于 2020-5-5 14:46
+
+
+
+
+900日元的红酒长啥样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ascending| + 1|比如说莫高？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19252#       发表于 2020-5-5 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309330&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 14:35</a>
+
+通口去年那么努力才几百万，我有点同情你虹的主播了，
+
+
+哦，你虹主播都是追星、银趴的人↑人啊，那 ...</blockquote>
+小博禹后继有人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19253#       发表于 2020-5-5 14:47
+
+
+
+
+兔头不知不觉a到了2w，龙皇真的不行了啊，连团长都干不过了。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19254#       发表于 2020-5-5 14:47
+
+
+
+ 本帖最后由 SiolC 于 2020-5-5 14:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">楼友一直拿德龙和夸对位就很奇怪，德龙那个位置不应该对位空妈吗？空妈和萝卜子收入有没有996？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19255#       发表于 2020-5-5 14:47
+
+
+
+
+holo粉基本就是变种偶像厨吧。我一个人打的钱虽然不多，但如果我不打钱，你不打钱，大家都不打钱，小姐姐就要饿死了，我不能确定别人会不会打钱，但我一定要打钱。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 19256#       发表于 2020-5-5 14:47
+
+
+
+
+签约费和年薪都分不清就别吹了
+
+日本税前1.5E的收入还真要交将近9成的税，2年个税8成，住民税1成。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19257#       发表于 2020-5-5 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309413&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-5 14:46</a>
+
+900日元的红酒长啥样啊</blockquote>
+我记得和苔苔对谈的时候说的，有年份了
+
+苔苔也是这个反应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 19258#       发表于 2020-5-5 14:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">兔皇昨天b限一小时大赚5w不就是又轻松又暴利的情况吗，皮套man不删SC留言的话还能多套点
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19259#       发表于 2020-5-5 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞清楚好吗，小博禹一般不攻击虹v的，而且2000比小博禹早多了，只不过大家懒得理他而已。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 19260#       发表于 2020-5-5 14:50
+
+
+
+
+别劈空妈了，以前铁人模式到处跑活动还能挣点，现在疫情在家，各种线下也参加不了了，搁家里直播有种半失业的感觉
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 19261#       发表于 2020-5-5 14:50
+
+
+
+
+900日元红酒应该是日本自产的吧，一般出口红酒没这么便宜的
+
+我这边烧菜用的红酒算成日元大概3，400日元1升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19262#       发表于 2020-5-5 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309417&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-5-5 14:46</a>
+
+小博禹后继有人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 他是胡编乱造，我说的都是客观事实啊，
+
+
+通口真的一年几百万，和我杏一比，也确实值得同情啊，
+
+
+至于追星、银趴又都是客观存在的，
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19263#       发表于 2020-5-5 14:50
+
+
+
+
+叶师也有说搬个家再买个隔音室就把这些年的收入都花差不多了，隔音室也就300w<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 19264#       发表于 2020-5-5 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309419&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-5 14:47</a>
+
+楼友一直拿德龙和夸对位就很奇怪，德龙那个位置不应该对位空妈吗？空妈和萝卜子收入有没有996？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 19265#       发表于 2020-5-5 14:51
+
+
+
+
+绝了 怎么有人还要出警WTM的中文意思的 批站评论区真就管人粉丝迷惑大赏
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19266#       发表于 2020-5-5 14:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309418&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-5 14:47</a>
+
+兔头不知不觉a到了2w，龙皇真的不行了啊，连团长都干不过了。</blockquote>
+按照龙皇自己的说法是最近自己频道的直播间运气不好一直出bug所以吸引不到新规来 基本就是会限模式一样的直播
+
+但实际上这几天的游戏直播直播间都是正常没被隐藏的状态 结果也就来那么点人 最惨的是昨天龙如就6000
+
+但是龙皇只要一开杂谈类型的直播就是稳定1W以上
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 19267#       发表于 2020-5-5 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">建议来个虹杏对照表，避免理解错误
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19268#       发表于 2020-5-5 14:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309421&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-5 14:47</a>
+
+holo粉基本就是变种偶像厨吧。我一个人打的钱虽然不多，但如果我不打钱，你不打钱，大家都不打钱，小姐姐就 ...</blockquote>
+那我基本上是相反了，这个小主播有意思，做的内容不错，花点钱支持一下。等到做大了，收入高了，好像也不缺我这点钱，何况主播收入比我都高，就变成白嫖党了。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19269#       发表于 2020-5-5 14:52
+
+
+
+
+狐皇这么富，会不会包个小白脸啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 19270#       发表于 2020-5-5 14:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两年八成，那要是第二年收入远不如第一年能退税吗？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19271#       发表于 2020-5-5 14:53
+
+
+
+
+龙皇的麻可可成就了自己也限制了自己
+
+箱buff加的也差不多了，建议转职DPS战胜自己走独狼路线
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19272#       发表于 2020-5-5 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309468&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-5 14:52</a>
+
+狐皇这么富，会不会包个小白脸啊</blockquote>
+star啊
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19273#       发表于 2020-5-5 14:54
+
+
+
+
+龙皇大不了当个会员SC强化版的狐皇就是了，有早安可可就能保证地位了。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19274#       发表于 2020-5-5 14:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 你杏有家里开美容院的二代吗？
+
+
+：“虹liver都是来玩玩而已，不缺钱”——他们真的这么说过
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19275#       发表于 2020-5-5 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309470&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-5 14:52</a>
+
+两年八成，那要是第二年收入远不如第一年能退税吗？</blockquote>
+肯定按第二年实际收入来啊......这招只是防逃税的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19276#       发表于 2020-5-5 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我杏有心心啊
+
+当年心心和我的紫宝可是未成年双子的光与暗，可惜现在心心成了年还变成了哈恰玛
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19277#       发表于 2020-5-5 14:56
+
+
+
+<blockquote>泡芙好吃 发表于 2020-5-5 14:53
+star啊</blockquote>
+偌大个star就一个人能和她跑团，看来还得做加把劲白姨。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 19278#       发表于 2020-5-5 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309380&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 14:41</a>
+
+巧可上月67w的sc，算1/3再加底薪谷子，35w估计有吧，也跟一般社员差不多了？ ...</blockquote>
+就我查到的，名牌大学硕士毕业的起薪25W日元*16个月，硕士毕业也25了，和这群管人年纪差不多。
+
+当然另一方面社员工资是越干越多，有保障，主播能赚一年是一年，甚至收入越来越少
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 19279#       发表于 2020-5-5 14:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">关键是管人观众认定没用，举个简单的例子，你是yagoo，你会把龙皇放到holo宣传绘的C位吗？就这一点龙皇就比不过狐皇了，更不用说龙皇现在订阅增速降下来了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19280#       发表于 2020-5-5 14:56
+
+
+
+
+手中的死鱼微微颤抖......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算了算了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19281#       发表于 2020-5-5 14:57
+
+
+
+
+看看你们，都让黑宝生气了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19282#       发表于 2020-5-5 14:58
+
+
+
+
+杏星老哥想到自己的推可能被狐皇包养就要气血上涌了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19283#       发表于 2020-5-5 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309482&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 14:54</a>
+
+你杏有家里开美容院的二代吗？
+
+
+：“虹liver都是来玩玩而已，不缺钱”——他们真的这么说过 ...</blockquote>
+你葵不就经常被人这么说吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 19284#       发表于 2020-5-5 14:58
+
+
+
+
+因为是根据上年收入预缴下年个税
+
+那次年当然要根据实际收入多退少补了
+
+不过从企业势的v应该不需要预缴税款
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19285#       发表于 2020-5-5 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309482&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 14:54</a>
+
+你杏有家里开美容院的二代吗？
+
+
+：“虹liver都是来玩玩而已，不缺钱”——他们真的这么说过 ...</blockquote>
+夸张了，大部分还是普通社会人和普通学生<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19286#       发表于 2020-5-5 14:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309501&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-5 14:56</a>
+
+就我查到的，名牌大学硕士毕业的起薪25W日元*16个月，硕士毕业也25了，和这群管人年纪差不多。
+
+当然另一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 谈这个没意义，11区草根能读名牌大学、甚至修士毕业的人少之又少，
+
+
+对于管人来说，草根和二代可没什么区别
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19287#       发表于 2020-5-5 14:59
+
+
+
+
+啊 触犯禁忌了……抱歉抱歉
+
+但是少主能帮star上人气这功不可没啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|確かに，不过感觉还是夏哥帮忙多些.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19288#       发表于 2020-5-5 14:59
+
+
+
+
+巧可的那个音声买的人知道是她吗？她宣传过吗？
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 19289#       发表于 2020-5-5 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇和肥妹不是和star跑过四人团吗，怎么也不能只关注了一位
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 19290#       发表于 2020-5-5 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309445&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 14:50</a>
+
+他是胡编乱造，我说的都是客观事实啊，
+
+
+通口真的一年几百万，和我杏一比，也确实值得同情啊，</blockquote>
+事实nm呢，前几句发言都说的是什么趴个蛋你
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19291#       发表于 2020-5-5 15:02
+
+
+
+
+居然会有人咬2000的钩，我这种新人都知道2000的黑屁就该无视的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19292#       发表于 2020-5-5 15:03
+
+
+
+
+看这楼挺久了，2000到底是什么成分
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 19293#       发表于 2020-5-5 15:04
+
+
+
+
+田园葵熊
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 19294#       发表于 2020-5-5 15:05
+
+
+
+
+结合狐皇的性癖来说 想包养star最符合的大概是律可吧
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19295#       发表于 2020-5-5 15:05
+
+
+
+
+扭曲葵熊
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 19296#       发表于 2020-5-5 15:05
+
+
+
+
+想扩大化并且挑起纷争，可以说2000是个葵熊，想单纯的让楼友同意，可以说他是个nt巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 19297#       发表于 2020-5-5 15:05
+
+
+
+
+你们怎么什么都要戳破的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，不把到手的钱往低了说，怎么让月收入经常不如她们一天营收的mmr打钱
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 19298#       发表于 2020-5-5 15:06
+
+
+
+ 本帖最后由 proxima 于 2020-5-5 15:11 编辑 
+
+怎么又是这个车轱辘啊？我上次不就贴过了吗
+[https://www.nta.go.jp/taxes/shiraberu/taxanswer/shotoku/2040.htm](https://www.nta.go.jp/taxes/shiraberu/taxanswer/shotoku/2040.htm)
+
+日本国税厅对于予定纳税的解说，这里很明确说了数额是予定纳税额的2/3，而且是分成7月跟11月两期每期1/3的。因为确定申告是在3月份，这比起提前交押金更像是把一年的税分成三次交才对吧。
+
+
+
+syl，海苔男吹水不会真有人信吧，不会吧不会吧。
+
+她原话说的是如果找虚拟管人结婚就要找大亏这样的，因为大亏在sc统计里面是第一。然后她看着民间做的sc统计说因为有企业抽成，所以大亏收入没她多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种偷梁换柱的说法也能信吗。
+
+不过海苔男明确说自己的周边没有女儿的卖的好。有一点我可以肯定的，她抽成绝对不止井皇的10%，跟虹杏指不定那个高呢
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19299#       发表于 2020-5-5 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309523&amp;ptid=1924531" target="_blank">the_cook 发表于 2020-5-5 14:58</a>
+
+因为是根据上年收入预缴下年个税
+
+那次年当然要根据实际收入多退少补了
+
+不过从企业势的v应该不需要预缴税款 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/05/150608i1q5bhilikbi1chd.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200505150542.png</strong> (39.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 15:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 19300#       发表于 2020-5-5 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">2000什么成分都可能是，就不可能是葵熊
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19301#       发表于 2020-5-5 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309568&amp;ptid=1924531" target="_blank">面具13 发表于 2020-5-5 15:05</a>
+
+你们怎么什么都要戳破的，不把到手的钱往低了说，怎么让月收入经常不如她们一天营收的mmr打钱 ...</blockquote>
+有些萌萌人即使意识到了这点也会心甘情愿打钱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不是很懂这些人啊
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 19302#       发表于 2020-5-5 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">最近好多新参啊
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 19303#       发表于 2020-5-5 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309574&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-5 15:06</a>
+怎么又是这个车轱辘啊？我上次不就贴过了吗
+
+https://www.nta.go.jp/taxes/shiraberu/taxanswer/shotoku/204 ...</blockquote>
+井皇不是5%吗
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19304#       发表于 2020-5-5 15:08
+
+
+
+<blockquote>遍体精淋af 发表于 2020-5-5 15:01
+狐皇和肥妹不是和star跑过四人团吗，怎么也不能只关注了一位</blockquote>
+star我都是云的，前段时间杏星不是刚招了一个有跑团经验的人嘛，你楼还黑屁说是走的狐狸后门。
+
+再说了，玩过跑团又不是会玩跑团，希妹天天打游戏，还不是被排除在宅女之外。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19305#       发表于 2020-5-5 15:08
+
+
+
+
+2000铁血杏仁啊
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 19306#       发表于 2020-5-5 15:08
+
+
+
+
+除了楼里已经自爆小号的人，我都不知道那些是新参，那些是装新参了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 19307#       发表于 2020-5-5 15:08
+
+
+
+
+2000天天黑葵和虹，其实就是等着咬钩的人反驳
+他，来替他说出那些套着巨魔皮时说不出口的话。
+看他那晚zqsg，他是很怀念虹的温暖大家庭时代的，是v圈的功利主义让他回不去了
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 19308#       发表于 2020-5-5 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309399&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-5-5 14:44</a>
+
+兔皇玩的这种经典日式RPG，走10步遇一次怪，看着都觉得累</blockquote>
+传统的JRPG都是这样的，暗雷，遇敌率高，SE的八方旅人就是致敬这些前辈的。DQ后来顺应时代也改成明雷模式了，游戏体验好了不少。
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 19309#       发表于 2020-5-5 15:09
+
+
+
+
+是不是钩我都咬了，无视2000的结果就是上周阿葵b限那天，贴吧就有人复读2000造谣的话来开阿葵的团，这“葵熊”干得可好了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19310#       发表于 2020-5-5 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309583&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-5-5 15:07</a>
+
+有些萌萌人即使意识到了这点也会心甘情愿打钱的
+
+不是很懂这些人啊 ...</blockquote>
+草，这种人到处都有啊，粉丝喜欢的球星明星偶像歌手什么的，都比他们赚的多啊，但这不妨碍他们花钱。说到底是出于对喜欢对象本人的支持，跟喜欢对象的收入无关啊。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19311#       发表于 2020-5-5 15:09
+
+
+
+ 本帖最后由 SiolC 于 2020-5-5 15:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309450&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-5 14:50</a>
+
+应该是葛叶对兔皇亏皇龙皇，问题是巧可这收入放彩虹大概已经可以进前20了 ...</blockquote>
+[https://playboard.co/en/youtube- ... ls-in-japan-monthly](https://playboard.co/en/youtube-ranking/most-superchated-all-channels-in-japan-monthly)
+
+单纯用SC量作为收入水平，巧可4月位于全管人147位，上面正好50个彩虹所属
+
+顺便帮你加一下B站，4月月收12018元，加上后巧可提升至全管人109位，超过了9个彩虹所属
+
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19312#       发表于 2020-5-5 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309596&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-5-5 15:08</a>
+
+2000天天黑葵和虹，其实就是等着咬钩的人反驳
+
+他，来替他说出那些套着巨魔皮时说不出口的话。
+
+看他那晚zqsg ...</blockquote>
+泪目
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19313#       发表于 2020-5-5 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309564&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-5 15:05</a>
+
+结合狐皇的性癖来说 想包养star最符合的大概是律可吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+（我的表情变化）
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19314#       发表于 2020-5-5 15:11
+
+
+
+
+我一直以为是棒葵摧毁了2000，不是很了解虹圈破事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 19315#       发表于 2020-5-5 15:11
+
+
+
+
+井皇画个皮就扔着自生自灭的怎么比
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19316#       发表于 2020-5-5 15:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309622&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-5-5 15:11</a>
+
+我一直以为是棒葵摧毁了2000，不是很了解虹圈破事</blockquote>
+你可以去外面看看那栋管人粉丝楼，里面有2000传。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 19317#       发表于 2020-5-5 15:12
+
+
+
+
+V区巨魔的事不用纯良了解的太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 19318#       发表于 2020-5-5 15:12
+
+
+
+
+在微信找了个做日本移民的公众号写的日本个人所得税的文章，算一下300万/500万/1000万/5000万日元的税各有多少。
+
+免征税的部分年轻未婚yhm大概分别有：158万/204万/255万/255万日元（不计社保和社会捐赠的免除部分）。
+
+应税额：142万/296万/745万/4745万。
+
+税额：7.25万/20.27万/110.01/1690.42（四舍五入保留至千分位）。税后：282.75万/479.73万/889.99万/3309.58万。
+
+没搜到预交税的情况，如果5000万要提前交明年的话，大概剩1619.16万。
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">预交明年后剩20%（年收应该5500万-6000万）也够吊打我，小兴安岭长起来了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 面具13| + 1|但5000w只有幻之三期生才有机会.|
+| 某穆克拉| + 1|干货加鹅|
+| 敖轩| + 1|好！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 19319#       发表于 2020-5-5 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309583&amp;ptid=1924531" target="_blank">坚果收藏家 发表于 2020-5-5 15:07</a>
+
+有些萌萌人即使意识到了这点也会心甘情愿打钱的
+
+不是很懂这些人啊 ...</blockquote>
+你要是懂了你也是mmr了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19320#       发表于 2020-5-5 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309608&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-5 15:09</a>
+
+https://playboard.co/en/youtube-ranking/most-superchated-all-channels-in-japan-monthly
+
+单纯用SC量 ...</blockquote>
+副频道不知道有多少？
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19321#       发表于 2020-5-5 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309633&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-5 15:11</a>
+
+你可以去外面看看那栋管人粉丝楼，里面有2000传。</blockquote>
+看过了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">而且看完后留言也是这句话
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 19322#       发表于 2020-5-5 15:16
+
+
+
+
+2000就是他自己最爱嘲讽的所谓“七色太监”啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 19323#       发表于 2020-5-5 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309587&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 15:07</a>
+
+井皇不是5%吗</blockquote>
+不是sc5周边10的吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19324#       发表于 2020-5-5 15:18
+
+
+
+
+我也没见过几个人被2000的巨魔发言搞急眼，这么看来2000哥一直在表演自残吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19325#       发表于 2020-5-5 15:19
+
+
+
+
+不过想起昨日的V16之约......倒也不想到时候stars能和女团分庭抗礼，只要能达到你楼标准的“底边”够生存就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当然，有一支能随时准备抵抗女团独角兽的自卫队就更好了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19326#       发表于 2020-5-5 15:20
+
+
+
+
+2000为你楼生态忍辱负重，自我伤害，泪目了
+
+2000真是好杏仁<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19327#       发表于 2020-5-5 15:20
+
+
+
+
+黑宝的野心...女独角兽瑟瑟发抖。少打了个团233
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|我寻思着22姐就算你是独角兽，不出来跳也没.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19328#       发表于 2020-5-5 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309697&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-5 15:19</a>
+
+不过想起昨日的V16之约......倒也不想到时候stars能和女团分庭抗礼，只要能达到你楼标准的“底边”够生存就 ...</blockquote>
+杏星要有属于自己粉丝队伍来面对一切舆论上的挑战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19329#       发表于 2020-5-5 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309650&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 15:14</a>
+
+副频道不知道有多少？</blockquote>
+副频道11959元，加上后57458，上升到当月全管人87位，再次超越9个彩虹所属。
+
+
+所以把明面数据相加，巧可在全彩虹中排第33位，显然楼友的推测不符现实。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|干货好评|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 19330#       发表于 2020-5-5 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黑宝你认真的？女粉组成自卫队那可不就是乱杀了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 19331#       发表于 2020-5-5 15:21
+
+
+
+ 本帖最后由 the_cook 于 2020-5-5 15:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309575&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-5 15:06</a></blockquote>
+不是由木口代缴？
+
+不过流水都经过木口，那也用不着预缴吧。仔细想想很多V中之人都是多开，代缴反而更麻烦。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19332#       发表于 2020-5-5 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还在烦盐信什么时候能解除虚空备战状态，黑宝居然在梦想star自卫队
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 19333#       发表于 2020-5-5 15:23
+
+
+
+
+别说了，女粉丝不乱杀男粉
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19334#       发表于 2020-5-5 15:23
+
+
+
+
+杏星老哥野心之大，此子断不可留啊！<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+syl
+
+巧可还可以加上B站营收呢，这么一看真的挺不少的。
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 19335#       发表于 2020-5-5 15:24
+
+
+
+
+你まこと姐姐杂谈的时候也经常吹自己年入过亿啊，反正都是吹逼，不过人家敢这么吹现在肯定是不差钱就是了
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19336#       发表于 2020-5-5 15:24
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-5-5 15:26 编辑 
+
+2000的巨魔发言挺欢乐的啊，为什么要急眼呢？
+
+管人粉丝为何喜欢无能狂怒<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19337#       发表于 2020-5-5 15:24
+
+
+
+
+聊到sc自然虹人就爬远了，2k想让大家多聊聊虹这都看不出来。只是他真引来个附和他说话的nt估计也挺扫兴的吧
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19338#       发表于 2020-5-5 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309708&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-5 15:21</a>
+
+副频道11959元，加上后57458，上升到当月全管人87位，再次超越9个彩虹所属。
+
+
+所以把明面数据相加，巧可 ...</blockquote>
+你没算批站的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 19339#       发表于 2020-5-5 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309710&amp;ptid=1924531" target="_blank">屑屑代沟尼亚 发表于 2020-5-5 15:21</a>
+
+黑宝你认真的？女粉组成自卫队那可不就是乱杀了</blockquote>
+就算女粉战斗力高，一个天火也打不过一百个米格鲁啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 19340#       发表于 2020-5-5 15:26
+
+
+
+ 本帖最后由 睥睨寰宇荡红尘 于 2020-5-5 15:29 编辑 
+
+你看一个erer老姐都让你楼巨魔竟折腰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+真要走女粉自卫队，可以杀了其他一切管人粉。
+打个比方说，女粉自卫队好比就是墨香铜臭粉。而其他人最多就是和priest粉和西子绪粉？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19341#       发表于 2020-5-5 15:26
+
+
+
+
+女粉倒不一定乱杀男粉，不过女粉组织力确实比男粉强，一整套反黑流程怕不是使用过无数次。男粉没经过训练只能吃瘪。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 19342#       发表于 2020-5-5 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309742&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-5 15:25</a>
+
+就算女粉战斗力高，一个天火也打不过一百个米格鲁啊</blockquote>
+那是线下，**实战和物理闭嘴
+
+
+线上你又打不死人，足够有毅力一个打一百个不成问题
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 19343#       发表于 2020-5-5 15:27
+
+
+
+
+这个自卫队自己不上却指望女粉，这就是gay粉的软弱本质吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19344#       发表于 2020-5-5 15:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 黑宝塑造恐女喜男人设，那就是喜欢贴贴的亏圣啊，
+
+
+黑宝女粉应该不少的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19345#       发表于 2020-5-5 15:28
+
+
+
+
+但是还是不要打架了，饭圈黑暗处的污言秽语实在难听，对可怜的黑宝来说还太早了。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19346#       发表于 2020-5-5 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309758&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 15:27</a>
+
+黑宝塑造恐女喜男人设，那就是喜欢贴贴的亏圣啊，
+
+
+黑宝女粉应该不少的 ...</blockquote>
+恐女喜男，虚拟平井坚。
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 19347#       发表于 2020-5-5 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女粉真那么有反黑意识 早把你楼说葛尊叶星的乱杀了 
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19348#       发表于 2020-5-5 15:29
+
+
+
+
+男粉组织性低下是稳定粉头很难形成吧，屁本事没有声音不小的阿猫阿狗也想成粉头（亲历
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19349#       发表于 2020-5-5 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309741&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-5 15:24</a>
+
+你没算批站的</blockquote>
+刷新看看我上一层楼说了什么。
+
+5w这个数据就是主副频+B站总明面收入核算，而比较对象是其他彩虹所属的playboard数据。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19350#       发表于 2020-5-5 15:31
+
+
+
+
+管人圈一直有不喜欢偶像化的人在啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 19351#       发表于 2020-5-5 15:35
+
+
+
+
+女唯粉拿葛尊叶星来反黑黑的，为什么会有意见
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 19352#       发表于 2020-5-5 15:37
+
+
+
+
+三小姐唯粉会用舞mea反六字母吗？
+
+哦，好像真的会，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 19353#       发表于 2020-5-5 15:39
+
+
+
+
+想看管人女粉饭圈的建议上微博搜一搜
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 19354#       发表于 2020-5-5 15:39
+
+
+
+
+但凡star粉有叶队或者火畜的规模，黑宝也不用孤军奋战了。最新最in的杏星成为v综第一潮流，黑宝每天和巨魔一起愉快地车杏星。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 19355#       发表于 2020-5-5 15:39
+
+
+
+
+今晚夸宝能不能祝福下舞meacp，！做个大度点的女人吧。
+
+
+
+
+
+
+
+-----
+
+####  seaside  
+##### 19356#       发表于 2020-5-5 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯粉难道不是独角兽占多数吗？女孩子们不都把叶星当成闺蜜组吗？真拿这来说事的 独角兽们会排除异己先扬掉的吧
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 19357#       发表于 2020-5-5 15:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了吧，杏星粉就是因为杏星糊才显得可爱
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 19358#       发表于 2020-5-5 15:43
+
+
+
+
+erer姐这就是云了，mea明明白白的说过五元是工作。你还不如期待mea祝福夸粥呢……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19359#       发表于 2020-5-5 15:44
+
+
+
+
+小天使这个配音力还是流弊。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19360#       发表于 2020-5-5 15:45
+
+
+
+
+我看到不少叶队都把跟叶师联动的女的当成是像妹妹或者是闺蜜的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 19361#       发表于 2020-5-5 15:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能祝福一下2000er吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 19362#       发表于 2020-5-5 15:46
+
+
+
+
+那还不如期待咩咩直球“meaqua是百合营业哦”呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 19363#       发表于 2020-5-5 15:46
+
+
+
+
+对自己这边当然是这样，不然不是自杀吗。对对家就要往cp上宣传
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19364#       发表于 2020-5-5 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309878&amp;ptid=1924531" target="_blank">离心 发表于 2020-5-5 15:43</a>
+
+erer姐这就是云了，mea明明白白的说过五元是工作。你还不如期待mea祝福夸粥呢…… ...</blockquote>
+那贴贴人肯定能脑补成mea吃醋了，需要安慰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19365#       发表于 2020-5-5 15:47
+
+
+
+ 本帖最后由 あのん 于 2020-5-5 15:55 编辑 
+
+不要提叶星啦
+
+クソガキ控独角兽快兴奋的受不了了
+
+为什么星川要去虹啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19366#       发表于 2020-5-5 15:47
+
+
+
+ 本帖最后由 SiolC 于 2020-5-5 15:50 编辑 
+
+唯粉≠过激梦女，不少人可能因为不喜欢对家，或者不喜欢对家粉丝和cp粉而转唯粉。举个例子就是贴贴人因为crew/天狗/其他贴贴人的极端操作而转为黑另一方的暗黑贴贴人。
+
+
+而且就和独角兽本身就不会入坑彩虹一样，过激梦女也不可能入坑，更别说叶这种洗粉好多次的人了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 19367#       发表于 2020-5-5 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309888&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 15:44</a>
+
+小天使这个配音力还是流弊。</blockquote>
+是的，情感还可以，差不多可以胜任一般黄油声优了（ghs部分存疑）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 19368#       发表于 2020-5-5 15:48
+
+
+
+
+又在开启泥潭经验包了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19369#       发表于 2020-5-5 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309909&amp;ptid=1924531" target="_blank">あのん 发表于 2020-5-5 15:47</a>
+
+不要提葛星啦
+
+クソガキ控独角兽快兴奋的受不了了
+
+为什么星川要去虹啊 ...</blockquote>
+葛星？我认为星川还是跟男性联动的时候更有趣
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 19370#       发表于 2020-5-5 15:49
+
+
+
+ 本帖最后由 シナモンロール 于 2020-5-5 15:52 编辑 
+
+有关偶像收入，贴一段我的胡诌，大概中的大概
+ <blockquote>syl
+
+偶像谷子多啊，首先是按年功序列排的累进工资，拿这个工资的条件是出席live，无特殊原因或者潜规则保护不得缺席握手会，按时参加团体活动，团体的特殊节目（比如乃团和开闭的sr），工资没人分成的，愣拿就是
+
+
+接下来就是综艺出场费，写真稿费，电影片酬，个人活动站台，这些分多少分不分都看具体合同
+
+
+然后是cm，这个看是事务所找到的还是团给的还是自己see到的，最后情况高低不等
+
+
+最后就是类似粉丝礼物，赞助商礼物，综艺奖品还有各类奖金之类的杂项，基本忽略不计。
+
+
+日本偶像收入格差是非常恐怖的
+
+
+我们就拿肥秋系诸神的时代最后也是极具代表性的白石麻衣为例：一期生干了快九年，年功序列爆炸，铁板前排+经常c奖金+按乃木坂潜规则不出席部分握手会，团体活动部特别重要不用临凡。
+
+
+综艺出场次数高的可怕，时常大番组特邀当嘉宾，和艺能界大手挥斥方遒，写真曾经是创纪录的刊印次数稿费拿不下，电影和电视剧都有主副役，个人活动停不下来，而且由于自己影响力大，不用事务所和团里给多少资源，拿到手的应该也比较可观。（我记得好像说写真集只用跟摄影师分红）
+
+
+cm女王，高质量高报酬的cm层出不穷，唯一的问题是作为乃团的代表需要经常参加团队cm，这个估计老白就相对无私一点了
+
+
+上综艺那张脸就谁都得惯着，又会做人，属于综艺拿奖不让sb樱花阴湿叽里咕噜的王道类型，各种奖也不断，赞助商更是为能让她看上感到骄傲。
+
+
+总之，忙，但是很爽。
+
+
+但如果你是底边就可能是这个样子：
+
+吃年功序列底薪，可能已经不记得奖金是什么样子了。对于握手会和live你生不出半点想法子逃避的念头（有特例），最好自己能通过狼性让多几个人看到自己。拼命的努力出席没啥报酬的团综和团活，有前排病休就低三下四的祈求士大夫让自己代班。
+
+
+综艺除了团队活动基本就是under限定才有你的份，写真集更是你祈求经纪人团体和出版社能赐给你的东西，电视剧出镜可能约等于国足拿世界杯，而且一切要以事务所和团体马首是瞻。
+
+
+cm别想了，偶尔让你后排伴个舞就能让你乐几天，杂项收入只有认知厨给你的一些礼物。
+
+
+然而我完全没有说这不公平的意思，因为老白这样的现象级偶像能给团体带来的太多了，而底边则完全可以忽略不计。
+
+
+最后，具体的收入区间还要根据整个团的吸金能力还有运营路线分。乃木坂底边和开闭底边显然不是一码事，而乃木坂底边和地方团的ace显然也不是</blockquote>
+
+syl
+
+你们一直有一点没有理解，那就是如果杏底边抽完水还是收入比个人或者所谓的“良心箱”高，那讨论杏的待遇问题就完全是在搞笑
+
+
+而对liver的支援方面，我已经说倦了，相信常看的楼友也听倦了，我就不多重复了
+
+
+现在除了抗拒营业，或者真的没有这方面的营业能力，又贪恋较为自由的直播安排的管人才不想去杏，毕竟比起别的去处，杏的底边也能算名利双收了。当然了，游戏力专精的，有野心的v可能会选择去虹，但一般通过想走v这条路的yhm不想去杏我也想不出有啥理由。
+
+
+之所以你杏的门槛还没被踩破、不过是大家都有通讯录，按人情亲疏排队罢了.......
+
+
+综合考量上下限，增收机会，工作省心程度，还有风险，你杏的待遇确实是没得说........
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19371#       发表于 2020-5-5 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309916&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-5 15:48</a>
+
+是的，情感还可以，差不多可以胜任一般黄油声优了（ghs部分存疑）</blockquote>
+可以用对着04发情那段糊弄过去
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 19372#       发表于 2020-5-5 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309913&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-5 15:47</a>
+
+唯粉≠过激梦女，不少人可能因为不喜欢对家，或者不喜欢对家粉丝和cp粉而转唯粉。举个例子就是贴贴人因为cr ...</blockquote>
+不是过激梦女不代表要喜欢自推和女v贴贴吧，别看现在和和气气的，要是叶真说和星川在一起你猜她们什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 19373#       发表于 2020-5-5 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309908&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-5 15:47</a>
+
+那贴贴人肯定能脑补成mea吃醋了，需要安慰</blockquote>
+有内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  charzeta  
+##### 19374#       发表于 2020-5-5 15:52
+
+
+
+
+看楼里谈起收入，好奇去查了下昨天小红帽的生日回sc，居然也有个6万rmb，虽然和第一大箱的木口的收入不能比，不过感觉小红帽这种只会稍微唱点歌别的业务水平都在平均以下的，也算活得挺滋润了吧，像小红帽这种直播频率也不高，更没有什么企划需要花时间，感觉甚至可以把V当做副业另外打一份工
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19375#       发表于 2020-5-5 15:52
+
+
+
+
+怎么还有开羊楼的
+
+羊和むっくん都是被五厕祝福的一对了，羊有KPI吗？
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 19376#       发表于 2020-5-5 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309926&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 15:49</a>
+
+可以用对着04发情那段糊弄过去</blockquote>
+那段建议外放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19377#       发表于 2020-5-5 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309778&amp;ptid=1924531" target="_blank">seaside 发表于 2020-5-5 15:29</a>
+
+女粉真那么有反黑意识 早把你楼说葛尊叶星的乱杀了</blockquote>
+叶修女不就被乱杀了吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+修女这么清楚可爱唯粉也下得去手，没有<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 19378#       发表于 2020-5-5 15:53
+
+
+
+
+阿菜收入可是不少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 19379#       发表于 2020-5-5 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309948&amp;ptid=1924531" target="_blank">charzeta 发表于 2020-5-5 15:52</a>
+看楼里谈起收入，好奇去查了下昨天小红帽的生日回sc，居然也有个6万rmb，虽然和第一大箱的木口的收入不能比 ...</blockquote>
+老哥你跟我一个毛病啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挣这点应该的啊
+
+你楼斗虫通货膨胀太影响人的理性判断了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19380#       发表于 2020-5-5 15:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309956&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-5 15:53</a>
+
+叶修女不就被乱杀了吗
+
+修女这么清楚可爱唯粉也下得去手，没有
+
+ ...</blockquote>
+叶修女我怎么感觉是修女这边的粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 19381#       发表于 2020-5-5 15:56
+
+
+
+
+别讨论虹了，我要出门了，没法刷论坛，来点杏浓度
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 19382#       发表于 2020-5-5 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309926&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-5 15:49</a>
+
+可以用对着04发情那段糊弄过去</blockquote>
+光那个不够，拔作你得有10种甚至9种叫法，还要自己琢磨各种口技拟声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19383#       发表于 2020-5-5 15:57
+
+
+
+
+杏浓度那就龙酱Ark7000
+
+龙酱Ark都完蛋了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19384#       发表于 2020-5-5 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309974&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-5 15:55</a>
+
+叶修女我怎么感觉是修女这边的粉啊</blockquote>
+不都是黑黑贴贴民吗<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+无脑贴贴民不管是哪家多少都沾点nt
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19385#       发表于 2020-5-5 15:59
+
+
+
+
+小天使这边好像要到关键点了2333
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19386#       发表于 2020-5-5 16:00
+
+
+
+ 本帖最后由 SiolC 于 2020-5-5 16:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309927&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-5 15:49</a>
+
+不是过激梦女不代表要喜欢自推和女v贴贴吧，别看现在和和气气的，要是叶真说和星川在一起你猜她们什么反 ...</blockquote>
+官宣和贴贴就不是一个水平的事情了，上面的回复用独角兽类比，独角兽本身就是连男女互动都不允许其存在的生物，所以才说过激梦女。
+
+
+不过BGCP里的男方也能梦的梦女也不少，毕竟做小和横插一脚之类的桥段在现实中存在，喜欢这些的也不少。
+
+
+syl，阿菜昨天凸待，虹an串还感叹了半天阿菜女粉的好几个高额SC，虽然没透露过具体比例，但应该是不低的。
+
+
+zsyl，看了眼修女第一次和叶一起建教会的录像，踩才1000出头，踩赞比接近8：1。第二次隐藏了赞踩不清楚，但第三次往后甚至三位数都不到。这个数字摆在今天根本算不上大规模炎上来着，通货膨胀<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 19387#       发表于 2020-5-5 16:00
+
+
+
+
+终于来了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 19388#       发表于 2020-5-5 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309992&amp;ptid=1924531" target="_blank">あのん 发表于 2020-5-5 15:57</a>
+
+杏浓度那就龙酱Ark7000
+
+龙酱Ark都完蛋了</blockquote>
+不是龙皇ark完蛋了
+
+是holoark完蛋了……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19389#       发表于 2020-5-5 16:02
+
+
+
+
+感谢小天使又帮我换了一副耳膜，帮大忙了。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 19390#       发表于 2020-5-5 16:04
+
+
+
+
+说起来最近大福的几场直播是没开SC还是怎么了？没看到投钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 19391#       发表于 2020-5-5 16:05
+
+
+
+
+小天使被吓到了，小天使可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+   

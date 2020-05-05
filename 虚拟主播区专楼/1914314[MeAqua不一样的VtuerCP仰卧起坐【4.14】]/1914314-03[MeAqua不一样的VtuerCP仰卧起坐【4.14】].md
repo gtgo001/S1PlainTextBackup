@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 00:02** 
+> ## **本文件最后更新于2020-05-05 16:01** 
 
 
 
@@ -12540,8 +12540,9 @@ b站系列视频的规律就是越到后面点击越少，这个没必要长梁�
 
 
 
+ 本帖最后由 时雨rain 于 2020-5-5 11:32 编辑 
 
-唔，是指上厕所一起上的意思吧，能不能有个report实在是不想去看亏神直播，抹布洗
+唔，是指上厕所一起上的意思吧，能不能有个repo实在是不想去看亏神直播，抹布洗
 
 
 
@@ -12736,4 +12737,1015 @@ b站无论什么连续更新性质的视频，播放量都会大体从第一期�
 
 
 
-                          
+
+
+-----
+
+####  无限舰制  
+##### 3693#       发表于 2020-5-5 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47304438&amp;ptid=1914314" target="_blank">zaozaoxx 发表于 2020-5-4 23:30</a>
+
+一起上厕所这没什么吧，一起逛街的话总不可能扔下一个人自己找厕所，到厕所门口的话，来都来了
+
+
+也不只女 ...</blockquote>
+没，我以为是学校课间那种典型场景
+
+
+没人陪的就是不受欢迎那种感觉
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3694#       发表于 2020-5-5 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47305279&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-5-5 00:59</a>
+没，我以为是学校课间那种典型场景
+
+
+没人陪的就是不受欢迎那种感觉</blockquote>
+我高中一天四五次厕所基本都是拉上不同人一起去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+下课第一件事就去找人“去不去厕所”
+主要路上能聊会儿天
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 3695#       发表于 2020-5-5 09:43
+
+
+
+
+于是今晚的特供贴贴有什么期望吗？我先来：不要lol不要lol不要lol不要lol
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3696#       发表于 2020-5-5 09:49
+
+
+
+
+不要lol不要lol不要lol不要lol
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3697#       发表于 2020-5-5 09:54
+
+
+
+
+昨晚打osu的时候有人问，说还没决定，没提前准备商量的话lol怕是没跑了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3698#       发表于 2020-5-5 09:57
+
+
+
+
+宁愿apex不要lol（话说老哥们这么注重游戏是都打算看吗？）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3699#       发表于 2020-5-5 09:58
+
+
+
+
+看不看看节目效果
+
+和有没有时间
+
+
+和心情
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 3700#       发表于 2020-5-5 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不玩游戏难道还对谈么，更加灾难了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3701#       发表于 2020-5-5 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">夸哥别乱叫适当接点话就成了
+
+别在爱搭不理了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 3702#       发表于 2020-5-5 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3703#       发表于 2020-5-5 10:07
+
+
+
+
+那咋办嘛，这俩联动不基本都是从那几个少得可怜的共通游戏里挑<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+就算前世一起开台次数也不多，要这俩去搞懂怎么设计联动太难为人了，有没有节目效果基本看命。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3704#       发表于 2020-5-5 10:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打游戏肯定没跑，打什么还没决定。纯杂谈怕不是种出一片蚂蚁森林
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3705#       发表于 2020-5-5 10:22
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-5 10:23 编辑 
+
+还是apex吧，这样大亏还能带妹不至于太拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3706#       发表于 2020-5-5 10:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">她们杂谈不差不多都把话题说完了吗，再加上最近又没怎么来往。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">车轱辘会碾死观众吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3707#       发表于 2020-5-5 10:25
+
+
+
+
+1.两人一起云品甜点，云挑衣服
+2.两人一起看b站的了不起的盖茨比<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+3.两人一起网上云看房吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+4.两人一起云lovehotel<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+5.两人一起打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3708#       发表于 2020-5-5 10:49
+
+
+
+
+这俩今年到现在都忙得不行，联动到底能看点啥，又不是同居能分享点同居日常，反正不打雀魂我都能接受<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3709#       发表于 2020-5-5 11:06
+
+
+
+
+那么我就想问一下了，凛子也是找勇者yui一起玩的多吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在还没动静，我们打apex好不好好不好
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3710#       发表于 2020-5-5 11:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">还没消息啊 这夸不是醒了吗 也不提前透露一下
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">那么到底是藏牛还是没好好商量过玩啥
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3711#       发表于 2020-5-5 11:21
+
+
+
+
+等个泥潭剧透或是实时repo(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3712#       发表于 2020-5-5 12:21
+
+
+
+
+来个君子献头赌内容啊。
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3713#       发表于 2020-5-5 12:25
+
+
+
+
+这时候是不是就要召唤六字母人柱力——mk2了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3714#       发表于 2020-5-5 12:32
+
+
+
+
+只要mk2说 “神回就砍头” 说不定就神回了
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3715#       发表于 2020-5-5 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47307025&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-5-5 10:22</a>
+还是apex吧，这样大亏还能带妹不至于太拉垮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人开个箱子她跑过去吧东西抢了的带妹吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3716#       发表于 2020-5-5 12:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mk2的钱也是钱啊，联动一次就5块钱太好收了吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3717#       发表于 2020-5-5 13:07
+
+
+
+
+诶mk2转生了吗？哪个?
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3718#       发表于 2020-5-5 13:20
+
+
+
+
+让mk2做会纯良不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+你们只想着自己的meaqua，在意过mk2的感受吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 3719#       发表于 2020-5-5 13:27
+
+
+
+
+你们可以上推推荐双人游戏啊，逃出生天，双子传说这种最好，什么死亡空间远哭啥的也不错
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 3720#       发表于 2020-5-5 13:44
+
+
+
+
+Mk2自己跳出来才是mk2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">,现在的他只是个贴贴人而已
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3721#       发表于 2020-5-5 14:04
+
+
+
+
+就森林冰火人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+单机大作也打不来
+
+
+选个合适的游戏至少还能就游戏内容本身交流一下，选其它的……我对这两人的不上心程度不抱期待
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3722#       发表于 2020-5-5 14:58
+
+
+
+
+草，是mc
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3723#       发表于 2020-5-5 15:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+行吧
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 3724#       发表于 2020-5-5 15:01
+
+
+
+
+神回就砍mk2头
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3725#       发表于 2020-5-5 15:03
+
+
+
+
+为啥不是神乐服mc啊，我等着看两人造个同居的屋子被小紫小绿雀占鸠巢，或者被进来捣乱的人烧掉呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3726#       发表于 2020-5-5 15:04
+
+
+
+
+能不能参观舞mea爱情旅馆？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3727#       发表于 2020-5-5 15:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea：看！这是我给5元造的爱情旅馆
+double kill！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3728#       发表于 2020-5-5 15:11
+
+
+
+
+然后阿夸把旅馆砸了？或者是两人进去睡了一觉？这不还是贴贴人的胜利吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3729#       发表于 2020-5-5 15:13
+
+
+
+
+该入皮舞咩贴贴人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3730#       发表于 2020-5-5 15:13
+
+
+
+
+好像是双开台唉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大亏啊大亏你怎么搞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3731#       发表于 2020-5-5 15:14
+
+
+
+
+双开台吗？那战争开始了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3732#         楼主| 发表于 2020-5-5 15:15
+
+
+
+
+这爱情公寓在苔服吗？
+那兄弟们一起刷屏拱火啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两边房间都要热热闹闹的
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 3733#       发表于 2020-5-5 15:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这个锅跟暗黑贴贴人有关系，都把孩子吓着了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3734#       发表于 2020-5-5 15:18
+
+
+
+
+，，，，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+想到了好多剧情展开， 
+
+
+不过还是算了，
+
+
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3735#       发表于 2020-5-5 15:19
+
+
+
+
+都暗黑贴贴人了还基啥德，快讲出来让大家开开眼界<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3736#       发表于 2020-5-5 15:21
+
+
+
+
+是吸血论那套不看啊，太老套了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3737#       发表于 2020-5-5 15:22
+
+
+
+
+进了苔服肯定绕不开舞元话题，她俩又不搞情侣人设了，贴贴人也对舞元话题没那么过敏了，还能当节目效果
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3738#       发表于 2020-5-5 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">啊，这爱情公寓不会要变成meaqualovehotel吧
+呃呃呃呃呃呃呃呃，👌🏻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3739#       发表于 2020-5-5 15:24
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-5 15:26 编辑 
+
+敢质疑我的理论水平？！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+我从来都不说什么吸血论的
+
+你懂什么<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+等着， 我现在就....
+
+
+算了算了， 基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3740#       发表于 2020-5-5 15:28
+
+
+
+
+逛自己亲手造的鬼屋两人啊啊啊啊啊一下也算有节目效果了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 3741#       发表于 2020-5-5 15:39
+
+
+
+
+MC效果应该要比LOL好吧。
+
+双开按照昨天b限情况，营收估计10倍杀吧。算上抽成估计20倍杀。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3742#       发表于 2020-5-5 15:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">犬山服先不说，B限双开联动是什么操作，官方提纯？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3743#       发表于 2020-5-5 15:45
+
+
+
+
+都今天了就不看营收了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，该打的都打了
+
+人气值又没法比，专心看管人吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3744#       发表于 2020-5-5 15:45
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-5 15:48 编辑 
+
+楼上的老哥水平不错啊
+
+
+我想到的正是双开台的影响
+
+
+凡事都有两面性
+
+虽然不清楚为什么要双开（有无法证实的猜想， 
+
+
+不过双开也有双开的问题，
+
+
+事物的发展往往出人意料
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3745#       发表于 2020-5-5 15:46
+
+
+
+
+贴贴联动？不看的。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3746#       发表于 2020-5-5 15:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该打钱的昨天都打完了，剩下是贴贴人的活
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3747#       发表于 2020-5-5 15:48
+
+
+
+
+她俩啥时候搞过情侣人设，那不是贴贴人的瞎鸡儿脑补吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3748#       发表于 2020-5-5 15:50
+
+
+
+
+真是官方提纯我就冲了批站<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+又玩斗虫<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3749#       发表于 2020-5-5 15:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您好，大概是有的。夸哥说过自己一定届得到，你咩姐也在414线下敷衍过魔怔贴贴人的涉谷说
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3750#       发表于 2020-5-5 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309997&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-5-5 15:58</a>
+
+您好，大概是有的。夸哥说过自己一定届得到，你咩姐也在414线下敷衍过魔怔贴贴人的涉谷说 ...</blockquote>
+？有坐标吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 14:07** 
+> ## **本文件最后更新于2020-05-05 16:07** 
 
 
 
@@ -6627,4 +6627,752 @@ b限昏迷了，大概是12点半的时候。
 
 
 
-                                    
+
+
+-----
+
+####  无限舰制  
+##### 3401#       发表于 2020-5-5 14:10
+
+
+
+
+病名为爱不是弹幕点到的吗
+
+
+大概是临时起意吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3402#       发表于 2020-5-5 14:16
+
+
+
+ 本帖最后由 2014720 于 2020-5-5 14:27 编辑 
+
+echo，500刀，阿宅解剖，猛毒，火鸟，dadadada天使，半首硬被刷出来的雪月花，红莲华，holo摇，超炮，中间胡唱乱唱，最后的催泪三首
+不要低估你麻的能力好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这歌回值得细品，昨晚回想起来基本就是如同手术般的精准屠宰，就是一开始装不舒服后面又玩那么久osu搞得我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/65d18a210a131398ac5af4df7d0e1c1b/IMG_B6E9CBA57373A5B8C27AEBCC0F44A788.jpeg" referrerpolicy="no-referrer">
+
+昨晚整体效果比70w那次还强吧，挺好的
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3403#       发表于 2020-5-5 14:22
+
+
+
+
+看了下十年舰长的熟肉发散了下
+我应该也不是觉得她不能谈恋爱甚至结婚啥的
+不如说她要真有真有这么一天我还觉得挺好的，如果她愿意分享出来就更好了
+5元营业味儿重一方面，某两位的拱火味儿太大了一方面，她自己是不是真的很快乐一方面
+反正结论大概还是5元不行吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3404#       发表于 2020-5-5 14:24
+
+
+
+
+现在百合营业不行，bg营业也不行，那建议咩咩多跟大猩猩或者柴柴联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3405#       发表于 2020-5-5 14:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谁说bg营业不行了，如果是卯月我就可以
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3406#       发表于 2020-5-5 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">呜，楼友又可以了，真的gay
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3407#       发表于 2020-5-5 14:28
+
+
+
+
+对了，目前有人整理过你麻唱过的所有歌吗？要是整理过的话，每次点歌回之前，发一下这个清单，让大家做个参考，是不是会好一些？昨天的效果确实好，但部分粉丝不知道一些歌名怎么打以及不知道你麻之前唱没唱过这首歌的问题还是给部分粉丝点歌造成了困难
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3408#       发表于 2020-5-5 14:29
+
+
+
+
+去同好会的电台翻翻看？
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 3409#       发表于 2020-5-5 14:30
+
+
+
+
+OK 干完活后去翻一翻
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3410#       发表于 2020-5-5 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309197&amp;ptid=1929631" target="_blank">Cuppco 发表于 2020-5-5 14:22</a>
+
+看了下十年舰长的熟肉发散了下
+
+我应该也不是觉得她不能谈恋爱甚至结婚啥的
+
+不如说她要真有真有这么一天我还 ...</blockquote>
+她这么爱内绪说不定哪天就掏个娃出来<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3411#       发表于 2020-5-5 14:35
+
+
+
+
+小博宇出去<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3412#       发表于 2020-5-5 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47309316&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-5 14:33</a>
+她这么爱内绪说不定哪天就掏个娃出来</blockquote>
+掏就掏呗
+怕的是啥
+还不是怕吃亏、上当、受骗
+有娃真正的问题不还是在于如果是受伤害那么很有可能伤害及其严重且不可逆呗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3413#       发表于 2020-5-5 14:42
+
+
+
+
+这人虽然放荡不羁没啥职业道德，但我觉得底线还是有的（大概）
+至少今年我不怕她掏出一个娃来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3414#       发表于 2020-5-5 14:43
+
+
+
+
+麻麻可是能成为我母亲的女性啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3415#       发表于 2020-5-5 14:43
+
+
+
+
+麻麻要被坏男人骗了， 
+
+
+要被dv了，
+
+
+要被小白脸吸血了，
+
+
+要被pua到斯德哥尔摩综合征了，
+
+
+啊啊啊啊啊，
+
+
+小麻啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3416#       发表于 2020-5-5 14:45
+
+
+
+
+作为看客这个剧情貌似还可以
+
+但是作为上贡方要转变这个思路还是有一定的困难诶
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3417#       发表于 2020-5-5 14:49
+
+
+
+
+又在安排她了。
+看她谈小孩和谈宠物一样，第一次看到有人特意提到拉屎很臭的
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3418#       发表于 2020-5-5 14:53
+
+
+
+
+如果帮小孩扔过纸尿裤的话虽然不会特意提也会有心理阴影的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3419#       发表于 2020-5-5 14:59
+
+
+
+
+小孩真的很讨厌啊
+
+睡了，梦里有3d预热
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3420#       发表于 2020-5-5 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">直播掏娃播什么
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">哺乳吗，有点涩
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3421#       发表于 2020-5-5 15:02
+
+
+
+
+这人肯定觉得孩子麻烦得要死啊
+
+
+哪可能弄出孩子来
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3422#       发表于 2020-5-5 15:05
+
+
+
+
+现在讨厌未来说不定啊，说不定就被苔苔黄兔子如月阿夸给忽悠养了一个然后被背刺呢<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3423#       发表于 2020-5-5 15:06
+
+
+
+
+孩子这东西， 有时候是意外的副产物啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3424#       发表于 2020-5-5 15:07
+
+
+
+
+下次你们去冒菜楼发散吧，我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3425#       发表于 2020-5-5 15:09
+
+
+
+
+这吊人满口跑火车呢，她现在还没成年肯定不会拿孩子出来吧，就算刚成年也不会吧，不会吧不会吧咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3426#       发表于 2020-5-5 15:12
+
+
+
+
+跑错了楼了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3427#       发表于 2020-5-5 15:13
+
+
+
+
+苔苔又赚了（不是）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nightmare902015| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3428#       发表于 2020-5-5 15:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正她说过不会瞒着的，信不信全看自己呗
+
+前两天不刚把去年黄金周去哪玩说出来了么，想安排的话麻烦根据直播内容安排一下好伐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3429#       发表于 2020-5-5 15:20
+
+
+
+
+是mc啊，算了不是lol一切都好说
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3430#       发表于 2020-5-5 15:23
+
+
+
+
+我还是希望玩新游戏的
+
+
+不过毕竟yhm<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3431#       发表于 2020-5-5 15:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来点武德充沛的女粉翻唱
+[https://www.bilibili.com/video/BV1Ei4y1b75H](https://www.bilibili.com/video/BV1Ei4y1b75H)
+
+【翻唱】あまのじゃく/天邪鬼
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3432#       发表于 2020-5-5 15:28
+
+
+
+
+明白了，男粉这就爬<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3433#       发表于 2020-5-5 15:29
+
+
+
+
+女粉能烤肉还能翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3434#       发表于 2020-5-5 15:47
+
+
+
+
+卧槽fafa是女粉？！<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3435#       发表于 2020-5-5 15:51
+
+
+
+
+女粉为何这么强<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3436#       发表于 2020-5-5 15:53
+
+
+
+
+就是这样<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 3437#       发表于 2020-5-5 15:56
+
+
+
+
+小编也很惊奇，但事实就是这样<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3438#       发表于 2020-5-5 15:57
+
+
+
+
+那次b限视频鉴赏就放过fafa翻唱的草莓果酱了啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3439#       发表于 2020-5-5 15:59
+
+
+
+
+fafa就是谭雅啊
+又想起隔壁erer,男粉拉废不堪<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3440#       发表于 2020-5-5 16:00
+
+
+
+
+你们能怕她哪天内绪到掏出个娃来，就不怕哪天内绪掏出涩谷结婚证吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">残党真是没牌面
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3441#       发表于 2020-5-5 16:05
+
+
+
+
+可恶啊女粉能翻唱男粉就只能吃桃了吗......气抖冷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3442#       发表于 2020-5-5 16:07
+
+
+
+
+和u18r结婚好吗？我会祝福她们的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+女粉真好啊，我还没有女朋友呢，麻酱赐我一个好吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                   
