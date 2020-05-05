@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 22:09** 
+> ## **本文件最后更新于2020-05-06 00:08** 
 
 
 
@@ -13534,4 +13534,822 @@ syl，k1对苔苔有梁木啊
 
 
 
-                       
+
+
+-----
+
+####  魔法使い2019  
+##### 3810#       发表于 2020-5-5 22:09
+
+
+
+
+？？？？ 
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3811#       发表于 2020-5-5 22:10
+
+
+
+
+熟练的栽赃（
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3812#       发表于 2020-5-5 22:10
+
+
+
+
+这上流社会是什么规则啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3813#       发表于 2020-5-5 22:10
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3814#       发表于 2020-5-5 22:10
+
+
+
+
+草，呕的也太那啥了，声临其境
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3815#       发表于 2020-5-5 22:10
+
+
+
+<blockquote>Sanguine 发表于 2020-5-5 22:10
+这上流社会是什么规则啊</blockquote>
+发出肮脏的声音就立即出局
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3816#       发表于 2020-5-5 22:10
+
+
+
+
+有点糟糕啊<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 3817#       发表于 2020-5-5 22:10
+
+
+
+
+草，我服了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3818#       发表于 2020-5-5 22:11
+
+
+
+
+太快了吧？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3819#       发表于 2020-5-5 22:11
+
+
+
+
+这什么企划啊，这企划害人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3820#       发表于 2020-5-5 22:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了全员退场
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3821#       发表于 2020-5-5 22:11
+
+
+
+
+开场目前为止11分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3822#       发表于 2020-5-5 22:11
+
+
+
+
+全员红宝石战神卡，游戏结束（
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 3823#       发表于 2020-5-5 22:12
+
+
+
+
+刚刚好像有人把面喷出来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3824#       发表于 2020-5-5 22:12
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-5 22:13 编辑 
+
+还有的比还行
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3825#       发表于 2020-5-5 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有的比还行
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3826#       发表于 2020-5-5 22:14
+
+
+
+
+k1为啥对苔苔这么怨念深重啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3827#       发表于 2020-5-5 22:16
+
+
+
+
+第二轮开始
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3828#       发表于 2020-5-5 22:16
+
+
+
+
+可乐一口闷
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3829#       发表于 2020-5-5 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不出意外的打嗝
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3830#       发表于 2020-5-5 22:17
+
+
+
+
+这个嗝很精髓了，欲扬先抑，非常有节目效果
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3831#       发表于 2020-5-5 22:17
+
+
+
+
+草，还是没怎么看懂啊，怎么证明自己是一口气喝了多大的一杯可乐
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3832#       发表于 2020-5-5 22:17
+
+
+
+
+成功嗝气（
+
+居然才黄金战神卡？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3833#       发表于 2020-5-5 22:21
+
+
+
+
+这嗝听着快吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3834#       发表于 2020-5-5 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">刚才是什么声音
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3835#       发表于 2020-5-5 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不对，搞错了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 3836#       发表于 2020-5-5 22:30
+
+
+
+
+这就是vtb最上层社会么,i了i了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3837#       发表于 2020-5-5 22:30
+
+
+
+
+卧槽你咩姐也要来这个
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 3838#       发表于 2020-5-5 22:31
+
+
+
+
+成功领取红宝石战神卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3839#       发表于 2020-5-5 22:31
+
+
+
+
+吃了辣喝了可乐还来吼死亡摇滚，铁没了呀
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3840#       发表于 2020-5-5 22:31
+
+
+
+
+咩姐努力力，已经不需要再战斗力（
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3841#       发表于 2020-5-5 22:32
+
+
+
+
+啊咩倒了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3842#       发表于 2020-5-5 22:33
+
+
+
+
+话说日本综艺节目就是这样的吗……
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3843#       发表于 2020-5-5 22:34
+
+
+
+
+まだげっぷとまらん
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3844#       发表于 2020-5-5 22:35
+
+
+
+
+新推
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3845#       发表于 2020-5-5 22:35
+
+
+
+
+太扭曲了欣赏不来，咩的屎尿屁黄直播都比这个清楚（）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3846#       发表于 2020-5-5 22:38
+
+
+
+
+立本综艺传统艺能，图一乐的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3847#       发表于 2020-5-5 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">mea的打嗝严重影响了我的判断力……
+
+<img src="https://img.saraba1st.com/forum/202005/05/223736xixj82f0p949xf9f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20200505223718392.jpg</strong> (46.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 22:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 3848#       发表于 2020-5-5 22:42
+
+
+
+
+这次同接怎么多 能吸到多少到咩那呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3849#       发表于 2020-5-5 22:44
+
+
+
+
+难道他们会觉得打嗝可爱而去推咩吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 3850#       发表于 2020-5-5 22:46
+
+
+
+
+还是想看猴子和咩单独联动,可惜最近没机会线下
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3851#       发表于 2020-5-5 22:46
+
+
+
+
+有曝光率总是好事，这种联动可遇不可求的（一转宣传原创曲还行
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3852#       发表于 2020-5-5 22:48
+
+
+
+
+溜了，今天还会有深夜osu吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3853#       发表于 2020-5-5 22:49
+
+
+
+
+下了，该快乐osu了（
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3854#       发表于 2020-5-5 23:00
+
+
+
+
+还在打嗝
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3855#       发表于 2020-5-5 23:10
+
+
+
+
+睡了睡了，必无突击
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3856#       发表于 2020-5-5 23:23
+
+
+
+
+希望咩姐的胃别出事。。。吃完辛辣的东西再灌一瓶可乐。。。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3857#       发表于 2020-5-5 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47314980&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-5 23:23</a>
+希望咩姐的胃别出事。。。吃完辛辣的东西再灌一瓶可乐。。。</blockquote>
+不是一直有问题吗，为了节目效果真的拼<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3858#       发表于 2020-5-5 23:28
+
+
+
+
+辣面估计也就一口吧，就吃了5秒钟都不到也吃不了多少
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3859#       发表于 2020-5-5 23:36
+
+
+
+
+这个她肯定知道轻重的。要是胃溃疡之类的可乐一点都不能沾
+
+
+
+
+
+                     
