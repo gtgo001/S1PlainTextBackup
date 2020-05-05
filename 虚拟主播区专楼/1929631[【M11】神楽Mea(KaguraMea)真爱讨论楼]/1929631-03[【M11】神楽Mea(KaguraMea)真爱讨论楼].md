@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 18:09** 
+> ## **本文件最后更新于2020-05-05 20:08** 
 
 
 
@@ -7509,6 +7509,25 @@ syl 你们说晚上阿b会给推荐吗？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -7915,4 +7934,2444 @@ u18r去年（还是今年年初）推上提到过“好想见一下BS的成员�
 
 
 
-                                  
+
+
+-----
+
+####  Leutnant某囧  
+##### 3475#       发表于 2020-5-5 18:10
+
+
+
+
+和犬山突击连麦了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3476#       发表于 2020-5-5 18:10
+
+
+
+ 本帖最后由 路人庚 于 2020-5-5 18:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人均 reading steiner 好起来了
+
+
+草，怎么跑苔苔那里去了
+[https://www.youtube.com/watch?v=ct52r8iHRUQ&amp;feature=youtu.be](https://www.youtube.com/watch?v=ct52r8iHRUQ&amp;feature=youtu.be)
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3477#       发表于 2020-5-5 18:10
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-5 18:13 编辑 
+
+和犬山突击连麦了
+
+一边聊还在一边打lol？
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3478#       发表于 2020-5-5 18:12
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-5 18:14 编辑 
+
+这短发，我可以，很可以
+
+
+看样子是我AFK时间里已经出现过的形象，我煋了，但还是挺好
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 3479#       发表于 2020-5-5 18:13
+
+
+
+
+边打lol边连线还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3480#       发表于 2020-5-5 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多线操作还行
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3481#       发表于 2020-5-5 18:19
+
+
+
+
+经典多线程
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3482#       发表于 2020-5-5 18:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">卧槽昨天b限你咩姐是生理中的直播，pro啊，完全没看出来
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3483#       发表于 2020-5-5 18:21
+
+
+
+
+虚空回复：然而当时在bs小麻就跟凛子关系很好。这怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3484#       发表于 2020-5-5 18:21
+
+
+
+
+昨天熬到几点了？<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+厉害啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3485#       发表于 2020-5-5 18:22
+
+
+
+
+昨天那么精神居然是生理期
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3486#       发表于 2020-5-5 18:25
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-5 18:29 编辑 
+
+怎么又是芒果话题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，五元出现了
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3487#       发表于 2020-5-5 18:33
+
+
+
+
+兔姨再评价
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3488#       发表于 2020-5-5 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被翘者终将翘别人（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3489#       发表于 2020-5-5 18:36
+
+
+
+ 本帖最后由 路人庚 于 2020-5-5 18:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当面跳苔苔，好起来了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">苔苔要给你咩姐穿小鞋力
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3490#       发表于 2020-5-5 18:37
+
+
+
+
+被咕过麻将，现在会咕别人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3491#       发表于 2020-5-5 18:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">切了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3492#       发表于 2020-5-5 18:38
+
+
+
+
+被赶走了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3493#       发表于 2020-5-5 18:40
+
+
+
+
+鸽，都可以鸽
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3494#       发表于 2020-5-5 18:40
+
+
+
+
+被赶走了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+另外咩应该是生理期如果不着凉就不会太生理痛的那种，别看她天天熬夜通宵，这身体底子确实好
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 3495#       发表于 2020-5-5 18:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311369&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-5 18:21</a>
+虚空回复：然而当时在bs小麻就跟凛子关系很好。这怎么说</blockquote>
+当年bs那个小团体就是麻凛拉人进来的啊，发起人就是她俩
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3496#       发表于 2020-5-5 18:42
+
+
+
+
+羡慕了，我的身体还没有咩咩好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，天天关节痛的要死要活的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3497#       发表于 2020-5-5 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311581&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-5-5 18:41</a>
+
+当年bs那个小团体就是麻凛拉人进来的啊，发起人就是她俩</blockquote>
+结果这两后来自己跑了吗？这真是<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3498#       发表于 2020-5-5 18:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u18r跑了之后bs实际上也就结束了，定好的live都没办成，这俩领队跑了也不奇怪
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3499#       发表于 2020-5-5 18:46
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-5 18:43
+结果这两后来自己跑了吗？这真是</blockquote>
+最先跑的是u18r，然后是锁号跑路的凛子
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3500#       发表于 2020-5-5 18:48
+
+
+
+
+崩撤卖溜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3501#       发表于 2020-5-5 18:52
+
+
+
+
+我是知道最先跑路的是u18r，但她为啥单飞啊（结合楼上有人说她还说想见bs成员），没有内绪的话是不是可以不仲论车起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3502#       发表于 2020-5-5 18:53
+
+
+
+
+你们死宅就喜欢脑补不仲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3503#       发表于 2020-5-5 18:53
+
+
+
+
+你麻VTB出道都快两年了害搁这讨论这陈芝麻烂谷子呢，老男人们就不要揣摩小女生的心思了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3504#       发表于 2020-5-5 18:54
+
+
+
+
+yysy，要不是大部分人的bs相关都是云的，那么早就有人去车bs不仲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3505#       发表于 2020-5-5 18:54
+
+
+
+
+“更有趣”（能整不仲营业吗）
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3506#       发表于 2020-5-5 18:56
+
+
+
+
+反正u18r跑的时候也没说理由，随便脑补咯。
+今年说想见bs的各位指的应该是那三个，或者全员。
+凛子也没锁号跑路啊，七月还有live，之前被老粉问会不会去当v的时候说还在考虑，打定主意大概是六七月的事。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3507#       发表于 2020-5-5 18:57
+
+
+
+
+yysy我不是老男人，我还是处男呢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+
+syl 我不正在云bs嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3508#       发表于 2020-5-5 18:57
+
+
+
+
+不是我麻先出道的麻
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3509#       发表于 2020-5-5 18:57
+
+
+
+
+事实是bs解散，怎么脑补就看个人了
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3510#       发表于 2020-5-5 19:01
+
+
+
+
+u18r为啥单飞不知道啊
+
+
+记得19年还有她们的live，不过只有三个人在了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 3511#       发表于 2020-5-5 19:01
+
+
+
+
+又开始车轱辘了，u18r的唯一有效信息是19年的一次直播，先唱了月兔，然后在没人点歌的情况下唱了wishing（嗯 就是aqua那个pv发了之后），但是明显wishing没学过。
+然后说了句，过去的朋友啊，算了，过去了。（大意）
+贴贴人以此推断当年u18r出走，可能是抢女人失败。抢谁就不知道了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3512#       发表于 2020-5-5 19:01
+
+
+
+
+老男人和处男又不冲突
+
+麻7月份出道，小胖子8月初还在推上发了翻唱呢
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3513#       发表于 2020-5-5 19:02
+
+
+
+
+两个直播间，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3514#       发表于 2020-5-5 19:03
+
+
+
+
+竟然是MC
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3515#       发表于 2020-5-5 19:03
+
+
+
+
+经典距离感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好起来了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3516#       发表于 2020-5-5 19:04
+
+
+
+
+竟然真的是官方斗虫，草
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3517#       发表于 2020-5-5 19:04
+
+
+
+
+封面我裂开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3518#       发表于 2020-5-5 19:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初的MC不就是双人视角吗，只不过物是人非..
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3519#       发表于 2020-5-5 19:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3520#       发表于 2020-5-5 19:05
+
+
+
+
+这波是回线打击
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 3521#       发表于 2020-5-5 19:06
+
+
+
+
+叫你不好好测试去聊天<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3522#       发表于 2020-5-5 19:06
+
+
+
+
+苔苔服不行啊
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3523#       发表于 2020-5-5 19:07
+
+
+
+
+这波又是苔苔的胜利，苔苔一直在赢
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3524#       发表于 2020-5-5 19:07
+
+
+
+
+败了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3525#       发表于 2020-5-5 19:07
+
+
+
+
+草，要换游戏了吗，蛮惨的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3526#       发表于 2020-5-5 19:08
+
+
+
+
+不不不不要虚空杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3527#       发表于 2020-5-5 19:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完了，开幕拉胯，对岸最近这怎么破网
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3528#       发表于 2020-5-5 19:09
+
+
+
+
+不要LOL不要LOL不要LOL
+
+唯独此时我是铁血刀斯林
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3529#       发表于 2020-5-5 19:09
+
+
+
+
+什么网络啊
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3530#       发表于 2020-5-5 19:09
+
+
+
+
+不要LOL不要LOL不要LOL
+
+唯独此时我是铁血刀斯林
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3531#       发表于 2020-5-5 19:09
+
+
+
+
+一转雀魂
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3532#       发表于 2020-5-5 19:09
+
+
+
+
+麻将？麻将？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3533#       发表于 2020-5-5 19:10
+
+
+
+
+雀魂吗？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3534#       发表于 2020-5-5 19:10
+
+
+
+
+lol不好吗。。。我挺想看lol的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3535#       发表于 2020-5-5 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一转麻将还行
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3536#       发表于 2020-5-5 19:10
+
+
+
+
+麻将好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3537#       发表于 2020-5-5 19:10
+
+
+
+
+雀魂好，可以控制变量
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 3538#       发表于 2020-5-5 19:12
+
+
+
+
+打雀还行，我选择品茶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3539#       发表于 2020-5-5 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">控制变量草，多看管人少斗虫啊
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 3540#       发表于 2020-5-5 19:12
+
+
+
+
+雀魂<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3541#       发表于 2020-5-5 19:14
+
+
+
+
+可恶啊这电音在这样我要去阿夸的直播间了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3542#       发表于 2020-5-5 19:15
+
+
+
+
+哦耶比mc好
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3543#       发表于 2020-5-5 19:15
+
+
+
+
+草，一瞬没
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 3544#       发表于 2020-5-5 19:16
+
+
+
+
+这电流麦麦麦麦麦我要死了
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 3545#       发表于 2020-5-5 19:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer"> LOL怎么了??现在是饭点啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3546#       发表于 2020-5-5 19:17
+
+
+
+
+咩姐最近网络状况好像真的不行，之前不是说装了新网吗
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 3547#       发表于 2020-5-5 19:18
+
+
+
+
+看不懂麻将哇
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3548#       发表于 2020-5-5 19:18
+
+
+
+
+贴贴！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3549#       发表于 2020-5-5 19:19
+
+
+
+
+贴贴！
+她网一直不好。去年周年那时是最伤的，好好唱的几首歌全因为回线断了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3550#       发表于 2020-5-5 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我日麻很烂，但血压依然很高
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3551#       发表于 2020-5-5 19:24
+
+
+
+
+大亏哥的头把第一个万字挡了（控诉
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3552#       发表于 2020-5-5 19:25
+
+
+
+
+mea太菜了，我真的急了。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3553#       发表于 2020-5-5 19:30
+
+
+
+
+草，这回是你咩不回复了，这是主客场互换吗
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 3554#       发表于 2020-5-5 19:36
+
+
+
+
+真的爽到啊 之前哪个楼说下次联动让aqua试试 这次成了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 3555#       发表于 2020-5-5 19:38
+
+
+
+
+舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 3556#       发表于 2020-5-5 19:38
+
+
+
+
+咩咩老阴阳人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3557#       发表于 2020-5-5 19:38
+
+
+
+
+话说她俩这操作真的让我觉得有人在视奸泥潭然后给她们提建议<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3558#       发表于 2020-5-5 19:39
+
+
+
+
+啊，爽了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 3559#       发表于 2020-5-5 19:40
+
+
+
+
+这个朋友太yygq了  我梁木要长天上去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3560#       发表于 2020-5-5 19:40
+
+
+
+
+两边楼画风不一样，夸楼甚至在斗虫
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3561#       发表于 2020-5-5 19:41
+
+
+
+
+yygq是好文明，多yy点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3562#       发表于 2020-5-5 19:42
+
+
+
+
+梁木上天，看贴贴弹幕都感觉是在yygq，我没救了没救了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3563#       发表于 2020-5-5 19:42
+
+
+
+
+说明一边在意的是“朋友”，一边在意的是“数字”
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 3564#       发表于 2020-5-5 19:43
+
+
+
+
+讲道理 这才是我想看的meaqua 阴阳人跟吃瘪人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3565#       发表于 2020-5-5 19:44
+
+
+
+
+我对梁木这词有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3566#       发表于 2020-5-5 19:45
+
+
+
+
+确实，阴阳人跟吃瘪人，就是这样才好看啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 3567#       发表于 2020-5-5 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不够跳不够阴阳，也就巅峰时期的五成功力8
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 3568#       发表于 2020-5-5 19:45
+
+
+
+
+这不就是原教旨meaqua吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+pubg可不就是这种搭配
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3569#       发表于 2020-5-5 19:46
+
+
+
+
+又回到了最初的起点~<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3570#       发表于 2020-5-5 19:46
+
+
+
+
+这不是挺好的，而且咩姐也是在生理期
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3571#       发表于 2020-5-5 19:46
+
+
+
+
+我觉得这次联动挺好的，请保持<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3572#       发表于 2020-5-5 19:47
+
+
+
+
+原来我是原教旨meaqua民吗
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 3573#       发表于 2020-5-5 19:48
+
+
+
+
+这你妈还分教派的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3574#       发表于 2020-5-5 19:49
+
+
+
+
+分教派还行
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 3575#       发表于 2020-5-5 19:49
+
+
+
+
+贴贴！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+回复
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 3576#       发表于 2020-5-5 19:49
+
+
+
+
+我也觉得挺好的  就是隔壁居然在斗虫我是没想到的  那是什么派<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3577#       发表于 2020-5-5 19:50
+
+
+
+
+教派，好起来了，给六字母也立个朝拜楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3578#       发表于 2020-5-5 19:50
+
+
+
+
+大概是阿拉伯派吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3579#       发表于 2020-5-5 19:50
+
+
+
+
+铁血crew随阿夸数字厨教条没问题
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3580#       发表于 2020-5-5 19:51
+
+
+
+
+异端比异教更可恨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3581#       发表于 2020-5-5 19:51
+
+
+
+
+出现了，烤肉卡组<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3582#       发表于 2020-5-5 19:52
+
+
+
+
+不知道，咩姐也没啥好斗的，比上不足比下有余
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3583#       发表于 2020-5-5 19:52
+
+
+
+
+车起来了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 3584#       发表于 2020-5-5 19:52
+
+
+
+
+看了下数据，mea只有涨粉赢了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3585#       发表于 2020-5-5 19:53
+
+
+
+
+然而从播放等数据看你咩姐活粉不足<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（算了，不斗虫了）
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3586#       发表于 2020-5-5 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47312420&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-5 19:53</a>
+然而从播放等数据看你咩姐活粉不足
+
+（算了，不斗虫了）</blockquote>
+播放也没几个比她能打的了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 3587#       发表于 2020-5-5 19:55
+
+
+
+
+数字跟不上需要道歉吗？
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 3588#       发表于 2020-5-5 19:55
+
+
+
+
+前脚踩别人斗虫，后脚自己斗，没意思啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3589#       发表于 2020-5-5 19:55
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-5 19:53
+然而从播放等数据看你咩姐活粉不足
+
+（算了，不斗虫了）</blockquote>
+不如说动态阅读量，这个更明显
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3590#       发表于 2020-5-5 19:56
+
+
+
+
+两番人<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">正义执行
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3591#       发表于 2020-5-5 19:56
+
+
+
+
+天狗老内斗了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3592#       发表于 2020-5-5 19:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换个话题，原创曲上首页了
+
+
+<img src="https://img.saraba1st.com/forum/202005/05/195644r1227yyy12yk8qk2.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕快照 2020-05-05 下午7.51.33.png</strong> (737.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 19:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 3593#       发表于 2020-5-5 19:57
+
+
+
+
+草，aqua这牌吓到了。幸好两番人执行了正义<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3594#       发表于 2020-5-5 19:57
+
+
+
+
+我是不觉得听了这曲子会入坑的人有多少......咩咩还是唱苦情曲能吸粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3595#       发表于 2020-5-5 19:58
+
+
+
+
+你让夸天天只杂谈和唱歌，不玩游戏。怕不是连傻紫的人气都能骑在她脸上<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">mea去年最火的时候她不是也在玩俄罗斯方块和只狼了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3596#       发表于 2020-5-5 19:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还是开着歌回云楼吧，麻将实在看不下
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3597#       发表于 2020-5-5 19:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47312443&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-5 19:55</a>
+
+不如说动态阅读量，这个更明显</blockquote>
+动态阅读量才体现不出来，动态是只要刷到了就给阅读量的，只能看出来粉丝对b站的粘度。
+
+我是觉得真要看还是看平均点赞吧。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3598#       发表于 2020-5-5 19:59
+
+
+
+
+但她就喜欢甜蜜蜜的歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 3599#       发表于 2020-5-5 19:59
+
+
+
+
+我没踩过斗虫人啊
+
+syl我一直认为觉得如果看不下去肯定是我自己的问题绝对不是主播的问题
+难不成我是少数人？
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3600#       发表于 2020-5-5 19:59
+
+
+
+
+我觉得是写得了苦情歌的人少
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3601#       发表于 2020-5-5 20:00
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-5 20:01 编辑 
+
+草 斗虫太虚无了 快停停
+
+看不懂， 撤退了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3602#       发表于 2020-5-5 20:00
+
+
+
+
+换个角度想，原创曲出苦情歌总觉得有点怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3603#       发表于 2020-5-5 20:00
+
+
+
+
+别斗虫，请继续刚才的教派话题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3604#       发表于 2020-5-5 20:01
+
+
+
+
+要有爱豆路风<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3605#       发表于 2020-5-5 20:01
+
+
+
+<blockquote>Cuppco 发表于 2020-5-5 19:59
+我没踩过斗虫人啊
+
+
+syl我一直认为觉得如果看不下去肯定是我自己的问题绝对不是主播的问题</blockquote>
+咩姐也说过观众可以自己选择主播，一般来说确实是不合口味就不看
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 3606#       发表于 2020-5-5 20:02
+
+
+
+
+原创曲出苦情歌有啥怪的，好听就行
+
+希望下一首蓝色系能满足天狗的需求
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 3607#       发表于 2020-5-5 20:02
+
+
+
+
+一个无役人，一个只会断幺九。我吐了。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3608#       发表于 2020-5-5 20:02
+
+
+
+
+贴贴是左 毒唯是右<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 3609#       发表于 2020-5-5 20:02
+
+
+
+
+支持出苦情歌，说不定就在做了
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 3610#       发表于 2020-5-5 20:02
+
+
+
+
+好像以前听的原创歌曲确实没有苦情歌来着
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 3611#       发表于 2020-5-5 20:02
+
+
+
+
+我都看不懂，我只会麻将连连看心态良好
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 3612#       发表于 2020-5-5 20:03
+
+
+
+
+话说我觉得最近的棉花糖，恐怖游戏，还有这次的贴贴官组都会烤，就是不知道啥时候能出来
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3613#       发表于 2020-5-5 20:04
+
+
+
+
+这也要有会作苦情歌的人来为你麻写歌啊
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 3614#       发表于 2020-5-5 20:04
+
+
+
+
+我来写谱可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 3615#       发表于 2020-5-5 20:04
+
+
+
+
+不需要看懂   看这单线程水平大概率就是大亏变一亏了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3616#       发表于 2020-5-5 20:05
+
+
+
+
+话说vtb有什么好的苦情原创曲吗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3617#       发表于 2020-5-5 20:05
+
+
+
+<blockquote>Cla0221 发表于 2020-5-5 19:58
+动态阅读量才体现不出来，动态是只要刷到了就给阅读量的，只能看出来粉丝对b站的粘度。
+
+我是觉得真要看还 ...</blockquote>
+有道理，我解读数据的方法错了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3618#       发表于 2020-5-5 20:06
+
+
+
+
+其实不一定要苦情歌啊，电波曲或者曲风比较帅的那种也可以
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3619#       发表于 2020-5-5 20:07
+
+
+
+
+别的先不提了，就没人教mea调1080 60帧么。直播观看体验总是低人一等，买个2080玩出1060的实力，宽带也垃圾。我要是她男朋友我就冲到她家给她调2K144帧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 3620#       发表于 2020-5-5 20:08
+
+
+
+<blockquote>cgz 发表于 2020-5-5 20:07
+别的先不提了，就没人教mea调1080 60帧么。直播观看体验总是低人一等，买个2080玩出1060的实力，宽带也垃圾 ...</blockquote>
+网不行啊。。。调高了可能会卡
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3621#       发表于 2020-5-5 20:08
+
+
+
+
+我倒是觉得一般路人不会对管人出的歌是不是原创而产生不同反应，这种的话对于她自己的意义肯定是大于涨粉这种事情的，所以她想怎么做就怎么做吧，反正都爱听。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+syl，自己整了官组里歌的列表和404她发的歌的列表，睡觉的时候手机放b站的循环，电脑放404的循环，旁边抱着小咩抱枕，这半年就这么挺过来吧。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             

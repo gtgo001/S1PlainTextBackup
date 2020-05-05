@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 18:07** 
+> ## **本文件最后更新于2020-05-05 20:06** 
 
 
 
@@ -11058,7 +11058,7 @@ B站现在这个情况才是正常的，难道真让整个虚拟区认yagoo一�
 
 
 
-<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_s1Rp7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLsMTSUEAA5Mg5?format=jpg&amp;name=medium" id="aimg_KrO8z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/sukosuko_sukoya/status/1257326947702464512](https://twitter.com/sukosuko_sukoya/status/1257326947702464512)
 
 
@@ -17816,7 +17816,7 @@ yysy饼佬歌单挺不错的
 
 
 
-<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_b0vg9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXLy_KPUYAA8a0r?format=jpg&amp;name=large" id="aimg_kT436" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/haruzo17/status/1257334774336819200](https://twitter.com/haruzo17/status/1257334774336819200)
 
 
@@ -26155,7 +26155,7 @@ K岛里版为让APPLAND凉还是让APPLAND苟着吵起来我倒挺理解的<img 
 
 
 
-<img src="https://pbs.twimg.com/media/EXNKIWWUcAAYRfG?format=jpg&amp;name=large" id="aimg_i8h8v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXNKIWWUcAAYRfG?format=jpg&amp;name=large" id="aimg_t4w1X" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26778,4 +26778,744 @@ syl羊还是要读棉花糖啊
 
 
 
- 
+
+
+-----
+
+####  free  
+##### 19461#       发表于 2020-5-5 18:08
+
+
+
+[https://www.youtube.com/watch?v=_ZO4kkhzfKE](https://www.youtube.com/watch?v=_ZO4kkhzfKE)
+
+azki的谱皇翻唱歌回......哎呀还真是喜欢谱皇
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19462#       发表于 2020-5-5 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311182&amp;ptid=1924531" target="_blank">八月琉璃 发表于 2020-05-05 18:06:31</a></blockquote>毕竟不读棉花糖要被开的啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19463#       发表于 2020-5-5 18:10
+
+
+
+
+12fanclub还行。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19464#       发表于 2020-5-5 18:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正有字幕组帮着筛，没有那么多直球辱穆的想开就开呗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19465#       发表于 2020-5-5 18:14
+
+
+
+
+我还挺看好小羊在b的，能唱歌在b天生有优势，表情包也强，感觉在阿b能做到四期二把手，战斗力0.8天吧<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19466#       发表于 2020-5-5 18:14
+
+
+
+
+搞点事情，肖战这个《光点》放管人里什么水平
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 19467#       发表于 2020-5-5 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311264&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-05-05 18:14:34</a>
+搞点事情，肖战这个《光点》放管人里什么水平</blockquote>不了解，不评价。也没准备了解，也不敢评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 19468#       发表于 2020-5-5 18:19
+
+
+
+
+说到体型，夜见除了那个暴食汉堡的推以外有暗示她debu的材料么
+
+明明照片看起来挺瘦，5ch却特爱黑她又老又胖
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19469#       发表于 2020-5-5 18:20
+
+
+
+
+姨是这样的，没有人权。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 19470#       发表于 2020-5-5 18:20
+
+
+
+
+私の配信、ここ最近ずっとバグで通知きてないみたいなので、是非拡散お願いします
+
+
+龙酱跪求扩散依旧7000该如何评价
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19471#       发表于 2020-5-5 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311264&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-5 18:14</a>
+
+搞点事情，肖战这个《光点》放管人里什么水平</blockquote>
+我刚查了一下，肖战卖了33millions载入史册，管人粉可以做到吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 19472#       发表于 2020-5-5 18:21
+
+
+
+ 本帖最后由 中野六小龄童 于 2020-5-5 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311264&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-5 18:14</a>
+搞点事情，肖战这个《光点》放管人里什么水平</blockquote>
+单曲销量超过3300w 别说管人了 V圈拉一块A了都没这个数字
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19473#       发表于 2020-5-5 18:21
+
+
+
+
+不是说销量，歌的水平
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19474#       发表于 2020-5-5 18:21
+
+
+
+
+问的难不成是歌力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 19475#       发表于 2020-5-5 18:22
+
+
+
+
+那你问错人了，你楼谁会花钱听男人唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19476#       发表于 2020-5-5 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311373&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-5 18:21</a>
+
+不是说销量，歌的水平</blockquote>
+那东西要花钱才能听吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你听了？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19477#       发表于 2020-5-5 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311392&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-5 18:23</a>
+
+那东西要花钱才能听吧
+
+你听了？</blockquote>
+你都说载入史册了那不得听一下。[http://www.yimuhe.com/down-4573883.html](http://www.yimuhe.com/down-4573883.html)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 19478#       发表于 2020-5-5 18:24
+
+
+
+
+骗人，明明你们都去听一弦了！
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 19479#       发表于 2020-5-5 18:24
+
+
+
+
+要是套皮男V出了这个单曲 恐怕3300都卖不出去？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 19480#       发表于 2020-5-5 18:25
+
+
+
+
+如果米津法师这种还是会花钱的吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 19481#       发表于 2020-5-5 18:26
+
+
+
+
+一点开小天使直播就看到了zs场景
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19482#       发表于 2020-5-5 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311403&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-5 18:23</a>
+
+你都说载入史册了那不得听一下。http://www.yimuhe.com/down-4573883.html</blockquote>
+销量确实载入史册了，花钱算了
+
+还要给管人打钱呢
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 19483#       发表于 2020-5-5 18:26
+
+
+
+
+龙皇嘴巴没把门的被404灰度限流不是很正常。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19484#       发表于 2020-5-5 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311408&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-5 18:24</a>
+骗人，明明你们都去听一弦了！</blockquote>
+那不是看在黑宝的面子上吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 19485#       发表于 2020-5-5 18:27
+
+
+
+ 本帖最后由 YODOboi 于 2020-5-5 18:34 编辑 
+
+我记得那个是数字专辑，3圆一张的吧，这么算有点犯规啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然真饭圈确实武德充沛，但那个谁也不是当红辣子鸡，国内基本盘虽大，但唱片市场一向低迷。就不提这个取巧的定价，我买鹿姨专的钱也够200份了。简而言之，拿圈外吊打废物管人可以，能不能别把阴间贵物抬出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 19486#       发表于 2020-5-5 18:28
+
+
+
+
+这钱我还不如去买瓶可乐给我的满足感大，不要不要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 19487#       发表于 2020-5-5 18:30
+
+
+
+
+就算是数字专辑，也有9900万元了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 19488#       发表于 2020-5-5 18:30
+
+
+
+
+警惕楼友诱骗购买专辑
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 19489#       发表于 2020-5-5 18:30
+
+
+
+
+HOLO这个第一次来B限不管谁都要读棉花糖到底咋想的？运营是真的觉得这环节很有趣么？还不算字幕组选出来的棉花糖里很多都迷惑的很……
+
+倒是有点期待如果龙皇来B限会不会也来这一套<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 19490#       发表于 2020-5-5 18:30
+
+
+
+
+我贴了下载链接啊，泥潭删不了附件不敢上传
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 19491#       发表于 2020-5-5 18:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/05/183117htwml1l3l0r5lyw3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200505183059.png</strong> (8.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-5 18:31 上传
+
+
+
+
+
+
+唐突自我介绍可还行。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 19492#       发表于 2020-5-5 18:32
+
+
+
+
+什么？泥楼里居然有🦐？不会吧不要恶心我
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 19493#       发表于 2020-5-5 18:33
+
+
+
+
+胡男乐队什么垃圾，我天下的2434秒了！
+
+<img src="https://img.saraba1st.com/forum/202005/05/183318gjxmjgy077yb0dga.png" referrerpolicy="no-referrer">
+
+
+<strong>2434.png</strong> (53.64 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-5 18:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  reegun  
+##### 19494#       发表于 2020-5-5 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311475&amp;ptid=1924531" target="_blank">ktmoon 发表于 2020-5-5 18:30</a>
+
+HOLO这个第一次来B限不管谁都要读棉花糖到底咋想的？运营是真的觉得这环节很有趣么？还不算字幕组选出来的 ...</blockquote>
+yysy，龙皇整棉花糖可能更有意思
+
+
+
+
+
+
+
+-----
+
+####  穆幕姆  
+##### 19495#       发表于 2020-5-5 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47310546&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-5-5 17:01</a>
+
+那我说的肯定是普通的啤酒，你拿酒精度这么高的啤酒出来说事不太好吧 ...</blockquote>
+这不是你之前说的啤酒没劲算饮料么。。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 19496#       发表于 2020-5-5 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311337&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-5 18:19</a>
+
+说到体型，夜见除了那个暴食汉堡的推以外有暗示她debu的材料么
+
+明明照片看起来挺瘦，5ch却特爱黑她又老又胖 ...</blockquote>
+不少次在直播说自己是大胃王了，比如M记打折的时候单人吃了两个巨无霸之类的。
+
+
+おば的说法主要是基于“萌生主都是bba”的偏见吧，lovely liar也没明说年龄。
+
+
+黑她颜面偏差值低的证据貌似还有一个开粉丝线下会回来之后自己说没能在这次之前瘦下来，粉丝回复她“声音可爱就是正义”，就被发散说其实又胖又丑了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| winda| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  6二三  
+##### 19497#       发表于 2020-5-5 18:38
+
+
+
+
+刚下完听了一下，还蛮好听的
+
+
+
+
+
+
+
+-----
+
+####  yuandi20  
+##### 19498#       发表于 2020-5-5 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47311475&amp;ptid=1924531" target="_blank">ktmoon 发表于 2020-5-5 18:30</a>
+
+HOLO这个第一次来B限不管谁都要读棉花糖到底咋想的？运营是真的觉得这环节很有趣么？还不算字幕组选出来的 ...</blockquote>
+嘴上说不要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 19499#       发表于 2020-5-5 18:39
+
+
+
+
+..第一次B限读棉花糖大家熟悉下都不行？那麻烦你给个建议呗
+
+一来直接拉满唱一小时无间断歌？还是直接开始游戏？自己都说第一次B限 难道直接说兄弟们，大家一起冲榜弄个好业绩？
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 19500#       发表于 2020-5-5 18:40
+
+
+
+
+为什么是术力口啊，wtm你的钢之魂呢
+
+
+
+
+
