@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 12:08** 
+> ## **本文件最后更新于2020-05-06 14:07** 
 
 
 
@@ -19278,4 +19278,822 @@ OTOTOY上新原创曲上架了，[https://ototoy.jp/_/default/p/537875](https://
 
 
 
-            
+
+
+-----
+
+####  无限舰制  
+##### 4120#       发表于 2020-5-6 12:09
+
+
+
+
+巨魔属性不是早有定论了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4121#       发表于 2020-5-6 12:20
+
+
+
+
+mea这里的天邪鬼也不过是闹变扭的意思。
+
+歌曲还是那种甜的。
+
+如果有
+
+《不可能弾幕には反則を》《永遠の三日天下》
+
+那种感觉就好了。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4122#       发表于 2020-5-6 12:29
+
+
+
+
+很早以前麻酱不就是小巨魔属性了吗<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4123#       发表于 2020-5-6 12:41
+
+
+
+
+不要舞元好不好不要舞元好不好，每次想到这个我就难受的得揍自己一拳免得发病，真的痛苦啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4124#       发表于 2020-5-6 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">b站从上往下俯视的那张系绳胖次的涩图炸了，有人发一下吗，我没保存
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4125#       发表于 2020-5-6 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319457&amp;ptid=1929631" target="_blank">草牛 发表于 2020-5-6 12:42</a>
+b站从上往下俯视的那张系绳胖次的涩图炸了，有人发一下吗，我没保存 ...</blockquote>
+昨天这图顶了一宿。。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4126#       发表于 2020-5-6 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319447&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 12:41</a>
+
+不要舞元好不好不要舞元好不好，每次想到这个我就难受的得揍自己一拳免得发病，真的痛苦啊 ...</blockquote>
+同学，
+
+
+要来学数学吗
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 4127#       发表于 2020-5-6 12:44
+
+
+
+
+这张？
+
+
+
+
+
+
+1588721995632.png
+(195.61 KB, 下载次数: 4)
+
+
+
+
+下载附件
+
+
+2020-5-6 12:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/124433se07vjwf0imn0q6x.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| やト| + 1|好评加鹅|
+| 草牛| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4128#       发表于 2020-5-6 12:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4129#       发表于 2020-5-6 12:48
+
+
+
+
+做了个图床 [https://i.loli.net/2020/05/06/mdNp2kaqI9zLyPo.png](https://i.loli.net/2020/05/06/mdNp2kaqI9zLyPo.png)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 草牛| + 1|清晰|
+| やト| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4130#       发表于 2020-5-6 12:49
+
+
+
+
+好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4131#       发表于 2020-5-6 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319475&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-5-6 12:44</a>
+
+同学，
+
+
+要来学数学吗</blockquote>
+莫得办法，就算我尽力不去想干别的转移注意力也不行，甚至最近好几次因为这个事半夜做噩梦惊醒<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">已经成为我的心病了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4132#       发表于 2020-5-6 13:03
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-6 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319541&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 12:49</a>
+
+莫得办法，就算我尽力不去想干别的转移注意力也不行，甚至最近好几次因为这个事半夜做噩梦惊醒已 ...</blockquote>
+是吗，
+
+
+人类的悲欢的确并不相通啊。
+
+
+愿你能获得安宁<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+别发病， 要发病的话到论坛发， 或者私信我也行
+
+可以多运动， 做做瑜伽啊什么的， 饮食健康也是要注意啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4133#       发表于 2020-5-6 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319541&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 12:49</a>
+
+莫得办法，就算我尽力不去想干别的转移注意力也不行，甚至最近好几次因为这个事半夜做噩梦惊醒已 ...</blockquote>
+建议适度适量服用安眠药。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4134#       发表于 2020-5-6 13:08
+
+
+
+
+舞元浓度已经差不多降到没太大感觉的程度了吧，不知道组长是什么拱法就是了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4135#       发表于 2020-5-6 13:18
+
+
+
+
+全部希望都寄托于组长了，救救舞mea<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4136#       发表于 2020-5-6 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319687&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-5-6 13:03</a>
+
+是吗，
+
+
+人类的悲欢的确并不相通啊。</blockquote>
+我只是想单纯的喜欢她，就算我知道不可能真和她在一起，但也想把她作为我的憧憬，单纯的喜欢她就能给我许多安慰，一个人在外面好几年了，我还是第一次遇到这么打动我心灵的女孩，一年以来难受的时候，孤独的时候，想想她就能好过许多，其实麻线下到底怎么样我都不在意的，这是她的自由，什么774也好还是谁，哪怕线下找了男朋友我也无所谓，她能幸福就好。但是实在是无法忍受一个我那么爱的女人在我面前那样的舔别的男人，和别人搞暧昧，就算这是演技还是什么也好，看着或者说只是知道这个消息，就让我好难受，好难受，就像有钝刀在割肉一样，我只是单纯的爱着她，憧憬着她，却有这么多劫难来考验我吗，有些时候真担心自己控制不住做些愚蠢的事，但又觉得千万不能给她添麻烦，真的好难受，不断的折磨着我<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4137#       发表于 2020-5-6 13:21
+
+
+
+
+最近的图真是越来越大了。。。
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4138#       发表于 2020-5-6 13:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这是怪文书还是真的年轻人第一个推啊   建议多爱几个女人
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4139#       发表于 2020-5-6 13:28
+
+
+
+
+总有各种各样的人抱着各种各样的心态嘛。。。只希望他能坚持久点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 4140#       发表于 2020-5-6 13:28
+
+
+
+
+b站那个恶搞二创视频《前浪》中mea出镜客串了几秒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+不过播放量只有50w应该不算出圈（毕竟这种登场方式在圈外也挺多的了）
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4141#       发表于 2020-5-6 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319841&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 13:20</a>
+
+我只是想单纯的喜欢她，就算我知道不可能真和她在一起，但也想把她作为我的憧憬，单纯的喜欢她就能给我许 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理本人最近几乎没怎么提了吧，也就苔姨这个功利逼万物转进硬拱
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4142#       发表于 2020-5-6 13:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+我都说麻酱是我初恋了
+
+你还要怎么样
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4143#       发表于 2020-5-6 13:30
+
+
+
+
+。。。吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4144#       发表于 2020-5-6 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">麻酱真的是罪孽深重的女人
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4145#       发表于 2020-5-6 13:31
+
+
+
+
+哥们……或许我们有个可以更加温和的推mea的方法
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4146#       发表于 2020-5-6 13:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4147#       发表于 2020-5-6 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+和日记哥贴贴吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4148#       发表于 2020-5-6 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">等合唱发完差不多就歇火了吧，舞mea我感觉她自己都整不出什么活了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4149#       发表于 2020-5-6 13:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是不是推上长文怪文书的那位啊，五元mea也就最开始的那一次整的有点歪（虽然也没歪到哪去），后面几次你咩姐早就没那么舔了，反倒是五元开始舔了起来（这也很符合他在最初联动之后的杂谈里说的“会用的战术是敌进我退、敌退我进的那种”），事到如今还抱着最初的印象自己给自己找罪受不可取
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4150#       发表于 2020-5-6 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47319992&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 13:34</a>
+
+这是不是推上长文怪文书的那位啊，五元mea也就最开始的那一次整的有点歪（虽然也没歪到哪去），后面 ...</blockquote>
+不管是谁舔谁也好，看到心爱的女人在眼前和别的男人搞暧昧，我怎么样都还是感觉好难受，好难受<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">就像一个梦魇一样纠缠着我，很多时候我都感觉快要发疯去做一些愚蠢的事情，但我不想这样，不想给她添麻烦，我只能尽力去忘掉它，但怎么也甩不掉它，不断的折磨着我
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4151#       发表于 2020-5-6 13:47
+
+
+
+
+yysy，突然想起了以前的自己，感觉欠人家一个道歉<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+更何况小麻这还是演的剧本，我那个是真的，，，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4152#       发表于 2020-5-6 13:48
+
+
+
+
+呜呜呜呜
+
+
+麻了麻了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4153#       发表于 2020-5-6 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320074&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 13:44</a>
+
+不管是谁舔谁也好，看到心爱的女人在眼前和别的男人搞暧昧，我怎么样都还是感觉好难受，好难受就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道你从啥时候开始看的，但你咩姐从出道就开始和男人玩一路过来只有19年上半年被抓去搞百合营业的时候稍微停了会现在只不过回到出道那时候的风格罢了，看的多了自然还真就觉得五元mea没什么特殊的了，你非要在意这点其实稍微有点莫名建议多去看几遍龙宫脑海（顺便一提龙宫脑海剪辑一度是我最爱看的剪辑前五，没事就会拿出来乐呵一下）
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4154#       发表于 2020-5-6 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320126&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 13:49</a>
+
+不知道你从啥时候开始看的，但你咩姐从出道就开始和男人玩一路过来只有19年上半年被抓去搞百合营 ...</blockquote>
+你说的我都知道，但我就是无法接受，没办法，无论怎么安慰自己，看到她在眼前和别的男人搞暧昧就是非常难受，非常难受，越是喜欢她，就越感觉难受，已经是我的心病了，我只能祈祷咩咩放过我或者自己别发疯
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4155#       发表于 2020-5-6 13:57
+
+
+
+
+兄弟建议你别看mea了...
+
+
+
+
+
+
+
+-----
+
+####  Jo鸽  
+##### 4156#       发表于 2020-5-6 13:58
+
+
+
+
+啊这
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4157#       发表于 2020-5-6 13:59
+
+
+
+
+
+
+最近最喜欢的切肉是这一段，要小钱钱的样子太可爱了啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4158#       发表于 2020-5-6 14:00
+
+
+
+
+兄啊，你这心里状态真的不健康，我害怕
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4159#       发表于 2020-5-6 14:00
+
+
+
+
+我讨厌原因是因为五元不赏饭啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+嘛，都过去了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4160#       发表于 2020-5-6 14:03
+
+
+
+
+别吧，那你这样怕不是想剐了苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4161#       发表于 2020-5-6 14:03
+
+
+
+
+害怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4162#       发表于 2020-5-6 14:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">建议去找点其他事做
+
+
+
+
+
+           
