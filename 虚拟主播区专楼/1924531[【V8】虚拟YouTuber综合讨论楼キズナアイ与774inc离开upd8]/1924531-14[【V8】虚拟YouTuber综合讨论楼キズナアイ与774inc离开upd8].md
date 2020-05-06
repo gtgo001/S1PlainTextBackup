@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 16:05** 
+> ## **本文件最后更新于2020-05-06 18:06** 
 
 
 
@@ -5016,11 +5016,11 @@ syl，我怎么觉得虹最近大赛的冠军都是男v<img src="https://static.
 
 
 
-<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_BssI9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_LbL6r" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 https://twitter.com/Sco_ttie/status/1257597617019613186
 
 
-<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_f51sQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_VKCGH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1](https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1)
 
 
@@ -6292,7 +6292,7 @@ yagoo摁着夏心夸的头五一高强度b限了一圈，到底给他们许了�
 
 
 
-<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_K07k0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_y5P9f" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
@@ -6474,7 +6474,7 @@ vjuan击剑好像是白夜那边带起来的？
 
 
 
-虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_k20Kg" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_F69AT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -14099,7 +14099,7 @@ Replying to @minatoaqua
 
 
 小天使gachi老哥今天怎么没发图啊，来点小天使Power<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EXR4_3HUYAAkeZz?format=jpg&amp;name=medium" id="aimg_lIXhi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXR4_3HUYAAkeZz?format=jpg&amp;name=medium" id="aimg_VC2Tq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16366,7 +16366,7 @@ sofmap的三色大叔惨
 
 
 majiong2.png
-(195.61 KB, 下载次数: 0)
+(195.61 KB, 下载次数: 1)
 
 
 
@@ -17258,11 +17258,2850 @@ syl，以前在k岛看到过一张虹杏点聊天室人数推移图，结论是�
 
 
 
+ 本帖最后由 シナモンロール 于 2020-5-6 16:08 编辑 
 
 你们何必假惺惺怀念阿点气winda哥，你们还不如想想，774能不能一转攻势，加冕吴大帝
 
 
+syl
+
+安给的家用3d真的tm界限开放才能开花，爱死了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 
 
-                    
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20395#       发表于 2020-5-6 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321541&amp;ptid=1924531" target="_blank">winda 发表于 2020-05-06 16:04:23</a>
+叶师下午也在绝赞下分，可以猜下夜见，葛叶，阿夸，叶师哪位先冲上钻了</blockquote>夸不是已经弃疗了吗，今天投奔狐皇去了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 20396#       发表于 2020-5-6 16:05
+
+
+
+
+说到独角兽，我露单推率都超50%了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 20397#       发表于 2020-5-6 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321555&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-6 16:05</a>
+
+夸不是已经弃疗了吗，今天投奔狐皇去了
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+夸私下打到白金2了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20398#       发表于 2020-5-6 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321542&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-6 16:04</a>
+
+因为叶在打排位啊，星川和他隔了段根本组不了队
+
+
+syl，以前在k岛看到过一张虹杏点聊天室人数推移图 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种看19年后半年订阅增长也挺明显，小白都蹭到pewdiepie热度了也没抓住机会，活该凉阿
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 20399#       发表于 2020-5-6 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321371&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-6 15:49</a>
+
+不过点没爆炸的世界线还挺难想象的，首先是杏能不能有现在的发展程度，毕竟杏吃点尸体的说法长期存在。然后 ...</blockquote>
+打得过letmea么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 20400#       发表于 2020-5-6 16:08
+
+
+
+
+帝国2是好文明啊， 比管人玩的金游高到不知哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20401#       发表于 2020-5-6 16:08
+
+
+
+
+点健在的时候，和虹都没有争霸的感觉，单纯就自己玩自己的，最多就参加一下百物语这样
+
+如果招个二期，把生态做大，或许会有些不一样吧
+
+刚炸的时候觉得蛋蛋挺惨的，最箱推的箱一地鸡毛也是倍感唏嘘，但现在栞桜这叱咤风云的样子，对她来说其实是打出隐藏的Good End了，反而有点释然
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20402#       发表于 2020-5-6 16:09
+
+
+
+
+其实我感觉现在杏都没怎么玩金游了，除了APEX。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 20403#       发表于 2020-5-6 16:09
+
+
+
+
+点在b站播那玩意，播一年恐怕连猫猫都打不过
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 20404#       发表于 2020-5-6 16:10
+
+
+
+
+帝国二普通管人播能有效果就有鬼了，而且鱼人在泥潭没讨论度的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 20405#       发表于 2020-5-6 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321556&amp;ptid=1924531" target="_blank">icecry 发表于 2020-5-6 16:05</a>
+
+说到独角兽，我露单推率都超50%了</blockquote>
+求教一下哪里能看单推数据啊？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20406#       发表于 2020-5-6 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 可惜不能看到蛋蛋加入杏，发展到巅峰之后，
+
+
+和狐狸在终末之谷大决战，最终狐狸认输，
+
+
+这才是true end
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 20407#       发表于 2020-5-6 16:14
+
+
+
+
+点没死的时候和虹是没啥竞争，问题还是在粉丝群体上。
+
+
+一边太婆，眼长在头顶上看别人谁家liver都是三流，又唯心又厄介有钱有时间还有攻击力。一边虽然大部分人不看点，但是一部分最婆的对居然还有更婆的压在自己头上，明明自家业绩已经超过他们了还要受对面粉的鄙视眼光牙根磨得嘎吱嘎吱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 20408#       发表于 2020-5-6 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321612&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-6 16:09</a>
+
+点在b站播那玩意，播一年恐怕连猫猫都打不过</blockquote>
+猫猫这都已经奔着30w去了打个锤子啊
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 20409#       发表于 2020-5-6 16:18
+
+
+
+
+鱼人帝国时代2效果挺好的，播出了个提督，游戏也是别人送的，赚大了。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20410#       发表于 2020-5-6 16:18
+
+
+
+
+怕不是先倒在兔圣手下
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 20411#       发表于 2020-5-6 16:19
+
+
+
+<blockquote>Devi_Lito 发表于 2020-5-6 16:13
+求教一下哪里能看单推数据啊？</blockquote>
+nga看到别人贴的数据
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20412#       发表于 2020-5-6 16:21
+
+
+
+
+这联动居然还有后续，真绝了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 20413#       发表于 2020-5-6 16:23
+
+
+
+
+一弦播的这个实在看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">挂着听个声吧
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20414#       发表于 2020-5-6 16:24
+
+
+
+
+说真的我觉得蛋蛋玩手腕、玩弄权力，能力不在狐狸之下，
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 20415#       发表于 2020-5-6 16:24
+
+
+
+
+期待像麦宝这样的文化人播帝国时代二，上次的骑砍2观感不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20416#       发表于 2020-5-6 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可别，白上桑到时候yygq的推量翻几倍，狐学家要累死了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20417#       发表于 2020-5-6 16:27
+
+
+
+
+那蛋蛋会yygq吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20418#       发表于 2020-5-6 16:27
+
+
+
+
+2000举点例子啊，把箱玩炸可不算玩弄权力
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20419#       发表于 2020-5-6 16:32
+
+
+
+
+蛋蛋玩什么权术了，她发那两条推就憨得要死，开直播一把鼻涕一把泪，还说自己不会引退，到被踢走连对话的机会都没争取到一个，都有点好笑了
+
+倒是最后本体解放，开始yygq的时候才是最棒的，那阵子的蛋学可比狐学有趣多了
+
+点生活限制了她的想象力
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20420#       发表于 2020-5-6 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇再怎么说也不会直播哭着diss运营好吧。。。。
+
+这种直接引爆全箱的行为也叫有手段吗？
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 20421#       发表于 2020-5-6 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321702&amp;ptid=1924531" target="_blank">aibot343 发表于 2020-5-6 16:18</a>
+
+鱼人帝国时代2效果挺好的，播出了个提督，游戏也是别人送的，赚大了。</blockquote>
+第一个蹭到格拉摩根伯爵的会是哪个v呢
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20422#       发表于 2020-5-6 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321886&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-05-06 16:32:18</a>
+狐皇再怎么说也不会直播哭着diss运营好吧。。。。
+
+这种直接引爆全箱的行为也叫有手段吗？ ...</blockquote>以后yagoo有可能哭着直播diss狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20423#       发表于 2020-5-6 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321825&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-6 16:27</a>
+
+2000举点例子啊，把箱玩炸可不算玩弄权力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">利用虚拟人的特殊性、直接一波带走点箱，并从内部制造对立，
+
+
+同时把仇人玩炸，全身而退，还不算手腕吗？
+
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 20424#       发表于 2020-5-6 16:34
+
+
+
+
+2000老哥哪天不在了就是被华硕弄进局子里去了
+
+坐牢警告
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20425#       发表于 2020-5-6 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321885&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-6 16:32</a>
+
+蛋蛋玩什么权术了，她发那两条推就憨得要死，开直播一把鼻涕一把泪，还说自己不会引退，到被踢走连对话的机 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 别闹，在哭的那瞬间，被开除的命运就已经决定了，
+
+
+之后的操作都是为了最终决战铺路，
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20426#       发表于 2020-5-6 16:37
+
+
+
+ 本帖最后由 winda 于 2020-5-6 16:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会长后面靠改推特概要栏虚空回鞭尸note是一绝啊
+
+syl 12月彻底撕破脸后天凤杯开路+津田辩护士护航，圣诞节直接撞车，10月后没背地里准备我是不信的
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 20427#       发表于 2020-5-6 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321909&amp;ptid=1924531" target="_blank">yuandi0120 发表于 2020-5-6 16:33</a>
+
+第一个蹭到格拉摩根伯爵的会是哪个v呢</blockquote>
+格拉摩根伯爵被人蹭过热度吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20428#       发表于 2020-5-6 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一波带走点那是因为点无能装死两个月，yagoo能低声下气舔主播，可能城府不小呢，到时候谁玩死谁可不好说。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 20429#       发表于 2020-5-6 16:39
+
+
+
+ 本帖最后由 あのん 于 2020-5-6 16:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yagoo硬气点阿夸早没了
+
+想让杏复制点箱路不可能的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 20430#       发表于 2020-5-6 16:41
+
+
+
+
+YAGOO什么时候才能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20431#       发表于 2020-5-6 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你细品，当时亏圣虽然停播，但可没有蛋蛋那种直球喷的情况，
+
+
+熊猫人第一次引退有机会一波带走你虹的，如果她态度坚决点，带走葵皇和mrr，也有炸的机会
+
+
+
+
+
+
+
+-----
+
+####  ミオチュン  
+##### 20432#       发表于 2020-5-6 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前yagoo还在办公室里笑着摸小狐狸大腿，现在就要互相哭着diss了吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 20433#       发表于 2020-5-6 16:43
+
+
+
+
+总算找到刚来你楼时听相声的那味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 20434#       发表于 2020-5-6 16:43
+
+
+
+
+没看狐皇都跨箱带后进了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">蛋蛋输的不算惨，起码还带走一个死党
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20435#       发表于 2020-5-6 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说如果有屁用，历史哪来的如果，事实就是虹杏没有被搞死。
+
+点生活压迫厉害又不代表别家压迫厉害，可能蛋蛋在杏待遇好钱恰够一点都不会哭闹呢，2000这些前提就离谱。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20436#       发表于 2020-5-6 16:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外求对话机会什么的，推特改头图的事已经表明出事后蛋蛋推已经被运营收回，后面猫部误爆又说明直播器材10月底也已经被没收了，appland那边的应对其实相当的铁血
+
+加上discord泄露，私下的联系方式也没了，剩下选择就只有出走一条路
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 20437#       发表于 2020-5-6 16:45
+
+
+
+
+蛋蛋不是大赢家吗，你看她现在的sc，还是个人势不用给公司交钱，虹杏主播都馋哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 20438#       发表于 2020-5-6 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能期待杏和点一样内爆了，虹就乱花钱没了好了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20439#       发表于 2020-5-6 16:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 狐狸现在很明显在内部制造对立
+
+
+因为有对立，才能让狐狸社内top的权限无限放大，对手下呼之即来，挥之即去
+
+
+对亏的分封，对兔皇的态度，都是在杏内部制造藩国，
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20440#       发表于 2020-5-6 16:47
+
+
+
+
+阿火的3D披露回被疫情闹黄了也就苦呀西一下，同期介护一下就完事了。要是被gank的是蛋蛋，那不敢想。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 20441#       发表于 2020-5-6 16:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47321947&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 16:37</a>
+
+会长后面靠改推特概要栏虚空回鞭尸note是一绝啊syl 12月彻底撕破脸后天凤杯开路+津田辩护士护航，圣 ...</blockquote>
+当时改概要一条一条鞭回去真的绝了，给所有观众都展示出自己虽然对点还有感情但绝不屈服的姿态，把对面只为宫斗的丑态完全的比了下去<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20442#       发表于 2020-5-6 16:49
+
+
+
+
+年近半百的已婚男士斗不过小五岁的桐乃就算了，连二十出头的卒业jk都能骑脸
+
+恐为狐皇笑矣
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20443#       发表于 2020-5-6 16:50
+
+
+
+ 本帖最后由 proxima 于 2020-5-6 17:11 编辑 
+
+来点kpi
+
+sio跟隔壁mea谁才是个人势收入冠军？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 20444#       发表于 2020-5-6 16:51
+
+
+
+
+当时跟着她一起走的那位现在怎么样了？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20445#       发表于 2020-5-6 16:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 现在饼脸不人气空妈已经被架空，实际权力早就被狐狸收入囊中，
+
+
+在“杏订阅第一”名号加持下，对手下liver肆意妄为，其他人也不敢不从
+
+
+自古权力如果过于集中势必要遭到反抗，
+
+
+“同接大将军”兔皇、“会员大将军”coco、“下位替代尚书”亏圣等，
+
+
+各个心怀鬼胎，木口王朝究竟能走多远还是未知数
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20446#       发表于 2020-5-6 16:52
+
+
+
+
+蛋蛋的总SC刚好是龙皇的1/2，因为她是个人势不用分成，所以她收入和杏TOP相差无几？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20447#       发表于 2020-5-6 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322153&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-05-06 16:52:05</a>
+现在饼脸不人气空妈已经被架空，实际权力早就被狐狸收入囊中，
+
+
+在“杏订阅第一”名号加持下，对手下liver ...</blockquote>不从的yagoo已经被发配到杏星了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20448#       发表于 2020-5-6 16:53
+
+
+
+
+莽夫诺艾尔莽穿魂三了，冰狗锤实在太莽了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 20449#       发表于 2020-5-6 16:53
+
+
+
+
+2000哥不去写一下holo权利演变史真是屈才了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20450#       发表于 2020-5-6 16:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322138&amp;ptid=1924531" target="_blank">proxima 发表于 2020-05-06 16:50:32</a>
+来点kpi
+
+sio跟隔壁bilibili的女王mea谁才是个人势收入冠军？</blockquote>mea，我一直觉得阿b线下活动的钱也是不少的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 20451#       发表于 2020-5-6 16:54
+
+
+
+
+2000怎么开始写杏的权利斗争了，之前不一直写虹的吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20452#       发表于 2020-5-6 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322138&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-6 16:50</a>
+
+来点kpi
+
+sio跟隔壁bilibili的女王mea谁才是个人势收入冠军？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 海苔男第一，别的我都不认
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20453#       发表于 2020-5-6 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2000怎么转做杏仁了，今天这么热心holo内部斗争，没想到你也是狐皇的gachi
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20454#       发表于 2020-5-6 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322008&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-6 16:41</a>
+
+你细品，当时亏圣虽然停播，但可没有蛋蛋那种直球喷的情况，
+
+
+熊猫人第一次引退有机会一波带走你虹 ...</blockquote>
+夸皇去年停播的时候带的节奏一点没比直接喷差
+
+她要是不提运营的话还没人会想到这方面的事情 这含糊措辞说是无意说出来的是不可能的
+
+夸皇在重大场合的措辞全都是台本
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20455#       发表于 2020-5-6 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322149&amp;ptid=1924531" target="_blank">anwen76 发表于 2020-5-6 16:51</a>
+
+当时跟着她一起走的那位现在怎么样了？</blockquote>
+[https://www.youtube.com/channel/UCzwhUA6fhZ1KtBA7AOqehxQ](https://www.youtube.com/channel/UCzwhUA6fhZ1KtBA7AOqehxQ)
+
+进了这家：ギャザリング株式会社
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| anwen76| + 1|谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20456#       发表于 2020-5-6 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322210&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-6 16:56</a>
+
+夸皇去年停播的时候带的节奏一点没比直接喷差
+
+她要是不提运营的话还没人会想到这方面的事情 这含糊措辞说 ...</blockquote>
+有啥用呢，狐皇发个推就全是“相信木口”，夸楼都不准提运营不好，啥都不能做，做了就是厄介。要“相信自己的推”
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 20457#       发表于 2020-5-6 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322138&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-6 16:50</a>
+
+来点kpi
+
+sio跟隔壁bilibili的女王mea谁才是个人势收入冠军？</blockquote>
+你还活在5个月前?论舰队比不过星姐，论SC被阿律石油佬给暴了，人气更是早一年不如阿夸，关注被狐狸、七奈骑在头上，二创更是连夏哥都比她多，甚至连B博的评论也是跟holo二线的夏哥一个级别。我是真不知道哪有脸还叫女王的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20458#       发表于 2020-5-6 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上当了，2000钓不到虹人开始钓杏仁了，不过2000这手自爆暴露了他想要拥狐皇入睡的梦想。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20459#       发表于 2020-5-6 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322099&amp;ptid=1924531" target="_blank">yuandi0120 发表于 2020-5-6 16:47</a>
+
+当时改概要一条一条鞭回去真的绝了，给所有观众都展示出自己虽然对点还有感情但绝不屈服的姿态，把对面只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">伸手党想问问有没有总结啊，因为之前看过一篇总结包含了箱内双方的隔空对线，但是独缺小白。有点好奇
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20460#       发表于 2020-5-6 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322182&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-5-6 16:54</a>
+
+2000怎么开始写杏的权利斗争了，之前不一直写虹的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你虹现在就像和杏疯狂军备竞赛末期的CCCP一样脆弱，
+
+
+表面强大、实际外强中干，没什么好谈的，等待12月25日解体就完事了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20461#       发表于 2020-5-6 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322210&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-6 16:56</a>
+
+夸皇去年停播的时候带的节奏一点没比直接喷差
+
+她要是不提运营的话还没人会想到这方面的事情 这含糊措辞说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸那个语焉不详的程度，要是吃一发谨慎禁言打击，后续狐皇发话说啥就是啥，她就只能到rinco号上去倒苦水了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20462#       发表于 2020-5-6 17:01
+
+
+
+
+蛋蛋当时真的有手段有气势啊，让我想起那个一个外国人在聚餐时扇翻所有人的gif了，白上阿夸应该还不觉得自己能做到这一步吧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20463#       发表于 2020-5-6 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322232&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-6 16:58</a>
+
+有啥用呢，狐皇发个推就全是“相信木口”，夸楼都不准提运营不好，啥都不能做，做了就是厄介。要“相信自 ...</blockquote>
+少主的言论就特么跟SB一样
+
+一边说相信自己的推一边说相信运营
+
+那推和运营起冲突了相信鬼呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 20464#       发表于 2020-5-6 17:01
+
+
+
+
+你们都在想女团内部的事，我倒是在想，现在cover与主播相关的事业部就已经4个了吧，live,star,cn,id，比起女团宫斗我对企业内的事业部内斗更感兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20465#       发表于 2020-5-6 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322162&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-6 16:52</a>
+
+蛋蛋的总SC刚好是龙皇的1/2，因为她是个人势不用分成，所以她收入和杏TOP相差无几？ ...</blockquote>
+光看sc收入是差不多了，但是杏top还有会员，基本工资，周边分成，总体来说上位还是要比蛋蛋高收入点
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20466#       发表于 2020-5-6 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322249&amp;ptid=1924531" target="_blank">cgz 发表于 2020-5-6 16:59</a>
+
+你还活在5个月前?论舰队比不过星姐，论SC被阿律石油佬给暴了，人气更是早一年不如阿夸，关注被狐狸、七奈 ...</blockquote>
+夏哥在国内的热度是一线，特别是视频播放这边是top级别
+[https://holo.poi.cat/bilibili-channel](https://holo.poi.cat/bilibili-channel)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20467#       发表于 2020-5-6 17:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">出了事肯定先相信自己的推啊，直接冲了运营就得了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20468#       发表于 2020-5-6 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322284&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-05-06 17:01:53</a>
+你们都在想女团内部的事，我倒是在想，现在cover与主播相关的事业部就已经4个了吧，live,star,cn,id，比起 ...</blockquote>斗不起来，没啥利益冲突，当然cn估计最近很不爽，holo高强度b限最倒霉的就是holocn
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 20469#       发表于 2020-5-6 17:03
+
+
+
+
+那肯定是live地位最高啊，有啥好斗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20470#       发表于 2020-5-6 17:03
+
+
+
+
+蛋蛋资源也不少了，工商也有份，还出书。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20471#       发表于 2020-5-6 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322308&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-6 17:03</a>
+
+斗不起来，没啥利益冲突，当然cn估计最近很不爽，holo高强度b限最倒霉的就是holocn
+
+
+  -- 来自 能看大图的  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那有啥办法呢，臭dd就是喜欢yhm
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 20472#       发表于 2020-5-6 17:04
+
+
+
+
+这波我站star，男人最强！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20473#       发表于 2020-5-6 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说熊猫人最近不是很不爽运营吗，或许可以看看有没有后续。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 20474#       发表于 2020-5-6 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 想起当年去莫斯科玩，亲眼见识了莫斯科七姐妹，真的被震撼到了
+
+
+彩虹七姐妹谁能排得上呢？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20475#       发表于 2020-5-6 17:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322280&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-6 17:01</a>
+
+少主的言论就特么跟SB一样
+
+一边说相信自己的推一边说相信运营
+
+那推和运营起冲突了相信鬼呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">发言要看目的，目的达到了，逻辑错误根本不重要
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20476#       发表于 2020-5-6 17:06
+
+
+
+ 本帖最后由 crawarb 于 2020-5-6 17:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322295&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-6 17:02</a>
+
+光看sc收入是差不多了，但是杏top还有会员，基本工资，周边分成，总体来说上位还是要比蛋蛋高收入点 ...</blockquote>
+我特地拿龙皇出来就是因为她没会员，而且龙皇今年的SC是杏里的第一。蛋蛋和龙皇比大概就少了T恤的那波收入
+
+编辑，楼上说蛋蛋还有雀魂等工商，龙皇的工商比较少吧？这样一对比收入更接近了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20477#       发表于 2020-5-6 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322251&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-6 16:59</a>
+
+伸手党想问问有没有总结啊，因为之前看过一篇总结包含了箱内双方的隔空对线，但是独缺小白。有点 ...</blockquote>
+原V综楼主莱先生写的，有可能你就是看的这篇
+
+[https://bbs.saraba1st.com/2b/thread-1889831-1-7.html](https://bbs.saraba1st.com/2b/thread-1889831-1-7.html)
+
+
+siro那段时间没什么表态，最多是中之人号有些语焉不详的话，也不知道是不是过度解读
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20478#       发表于 2020-5-6 17:08
+
+
+
+ 本帖最后由 winda 于 2020-5-6 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322251&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-6 16:59</a>
+
+伸手党想问问有没有总结啊，因为之前看过一篇总结包含了箱内双方的隔空对线，但是独缺小白。有点 ...</blockquote>
+鞭尸note是发一篇note改一次，没发note的自然也没被怼啊
+
+
+もこ田めめめ　[https://note.com/mokomeme_ch/n/nd43cac377781](https://note.com/mokomeme_ch/n/nd43cac377781)
+
+神楽すず　　　[https://note.com/kagura_suzu/n/nb26c56f8ab2f](https://note.com/kagura_suzu/n/nb26c56f8ab2f)
+
+ヤマトイオリ　[http://u0u1.net/U8u1](http://u0u1.net/U8u1)
+
+金剛いろは　　[http://u0u1.net/RgXT](http://u0u1.net/RgXT)
+
+八重沢なとり　[http://u0u1.net/Vkfa](http://u0u1.net/Vkfa)
+
+花京院ちえり　[http://u0u1.net/QxLn](http://u0u1.net/QxLn)
+
+
+[https://www.nicovideo.jp/watch/sm36047387](https://www.nicovideo.jp/watch/sm36047387)
+[https://www.nicovideo.jp/watch/sm36047193](https://www.nicovideo.jp/watch/sm36047193)
+
+
+
+
+
+
+
+
+note.jpg
+(197.55 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-6 17:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/170510s5wzo3lyrtd1zw1f.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20479#       发表于 2020-5-6 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322350&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-6 17:06</a>
+
+我特地拿龙皇出来就是因为她没会员，而且龙皇今年的SC是杏里的第一。蛋蛋和龙皇比大概就少了T恤的那波收 ...</blockquote>
+龙皇会员5500+怎么变没会员了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20480#       发表于 2020-5-6 17:10
+
+
+
+
+我始终认为维持和平要比挑动战争难很多很多<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| forzen| + 1|我还以为是自己搞错权术的意思了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20481#       发表于 2020-5-6 17:11
+
+
+
+
+星街千舰那不就昙花一现，高女士石油佬虽多跟bili签约都没签难道会有多少资源吗。至于人气热度什么的不是根本不在讨论范围内吗……这不是在说个人势收入。
+
+要是有人觉得bilibili的女王这个说法有所冒犯那我改了就是了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20482#       发表于 2020-5-6 17:12
+
+
+
+
+大家要是闲着无事可以来看看猫猫法庭<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">https://www.youtube.com/watch?v=AEQTzmgWT4E&amp;feature=youtu.be
+
+
+月之还转了，是真的喜欢猫诶
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20483#       发表于 2020-5-6 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">把箱引爆成就自己那确实挺爽挺有手段的，就是苦了那些傻傻站了她的人，不是人没了就是没起色。
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 20484#       发表于 2020-5-6 17:13
+
+
+
+
+付费人数破千ddd心情一好回巴黎分分钟的事，高小姐的签约是在路上在路上了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20485#       发表于 2020-5-6 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">首先点炸我是看别人总结的，如果我云错了请指出，我就一个想法，因为脱身了没有利益关系可以尽情扇脸了也能叫手段高权术强么
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20486#       发表于 2020-5-6 17:14
+
+
+
+
+那个啥
+
+萝卜子随手发了一条推之后删了
+
+<img src="https://img.saraba1st.com/forum/202005/06/171436dgddkd2vdc900zrs.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200506165850.png</strong> (18.25 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-6 17:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20487#       发表于 2020-5-6 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322386&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-6 17:09</a>
+
+龙皇会员5500+怎么变没会员了</blockquote>
+我说的是截止目前的收益，龙皇会员这个月刚开的，5500会员一个月275W日元，多了10%，即使算上还是同一个体量。
+
+另一方面，龙皇开了会员势必会影响到SC的量，观众钱包是有限的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20488#       发表于 2020-5-6 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322479&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-05-06 17:15:17</a>
+我说的是截止目前的收益，龙皇会员这个月刚开的，5500会员一个月275W日元，多了10%，即使算上还是同一个 ...</blockquote>体感会员不影响sc，会员这东西就和游戏月卡一样，氪金就会买，买了还继续氪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20489#       发表于 2020-5-6 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322479&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-6 17:15</a>
+
+我说的是截止目前的收益，龙皇会员这个月刚开的，5500会员一个月275W日元，多了10%，即使算上还是同一个 ...</blockquote>
+截至目前和龙皇比可能是低不了多少，但是蛋蛋那也是目前404个人势第一，收入不输企业top也正常吧
+
+
+另外，会员影响sc这个没有任何根据就别说了
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 20490#       发表于 2020-5-6 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322461&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-6 17:14</a>
+首先点炸我是看别人总结的，如果我云错了请指出，我就一个想法，因为脱身了没有利益关系可以尽情扇 ...</blockquote>
+当时是对方先扇过来的啊，重点在于一边要扇回去，一边还要扇的漂亮不能让观众觉着是泼妇在互揪头发，不然哪怕发泄出怒气了观众也跑光了。最后蛋蛋确实把这两点都做到了。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 20491#       发表于 2020-5-6 17:23
+
+
+
+
+会员其实不怎么影响sc吧，一个月也就500，会因为500块的会员影响打sc的是小学生零花钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+高女士404几乎忽略不计，签约之后bili这边工商可能会增加。
+
+mea404还有部分收入，bili有各种工商但是细节成谜
+
+sio404sc爆炸，还有雀魂等长期工商
+
+
+这比对下来sio可能已经是真正的个人势收入冠军了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便，海苔男这种硬实力第一就算了，而且真要说的话她都当老板了，把提成也算进去就不是公平战斗了不能混为一谈
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20492#       发表于 2020-5-6 17:23
+
+
+
+
+本来就只有2000在强行吹水平高啊，我觉得蛋蛋整个操作就是憨憨
+
+栞桜后来越混越好，是要分开看的，那个时候谁会知道今后如何，就算天凤这边有联系她，能不能弄出什么还两说，大部分先例都是死
+
+她最后还搞一段zqsg希望道歉，明显不是有预谋的，拿栞桜现状去逆推当时的想法，属于无聊的上帝视角阴谋论
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20493#       发表于 2020-5-6 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322461&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-6 17:14</a>
+
+首先点炸我是看别人总结的，如果我云错了请指出，我就一个想法，因为脱身了没有利益关系可以尽情扇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会长能赢一半靠的是平时当箱推头子的人望（把全箱所有直播看完），一半靠的是12月近乎完美的应对。
+
+做到我可以没箱，但箱不能没我之后，appland就真斗不过她了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20494#       发表于 2020-5-6 17:27
+
+
+
+
+所以ayame到底在干嘛
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 20495#       发表于 2020-5-6 17:27
+
+
+
+
+别问，问就是在学习
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20496#       发表于 2020-5-6 17:27
+
+
+
+
+SC和会员的关系是我自己想的，没有证据。这种收益化通过，会员卡住很久的我也就知道龙皇和天哥，样本太小。
+
+我提蛋蛋的收入是因为看到2000提的蛋蛋加入木口的猜想。感觉蛋蛋进去杏做到顶也就跟现在收入差不多，没啥意义
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20497#       发表于 2020-5-6 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322465&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-6 17:14</a>
+
+那个啥
+
+萝卜子随手发了一条推之后删了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这，芙宝解读一下
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20498#       发表于 2020-5-6 17:28
+
+
+
+
+重发了啊
+
+
+
+
+
+
+
+-----
+
+####  cxj649  
+##### 20499#       发表于 2020-5-6 17:28
+
+
+
+
+现在一些人对点的成员仇恨度：
+
+马论外，从大到小：羊-小白-皮皮-樱桃，樱桃反而比较小那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于小白怎么被仇恨：
+
+因为表面不帮蛋蛋以及
+
+共产少女西奈（zhina）酱~
+
+
+很莫名其妙的迁怒性质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20500#       发表于 2020-5-6 17:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真不知道她在干嘛，狗妈也联系不上她。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20501#       发表于 2020-5-6 17:29
+
+
+
+
+现在萝卜开了有摸余的待机间了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20502#       发表于 2020-5-6 17:29
+
+
+
+
+来自 ロボ子さん🤖ホロライブ@規制とけてはっぴーじゃむじゃむ最高おどr（@robocosan）的推文，写于 5月6日 17:25 - ⏰２３時～APEX
+１人は寂しいので鬼を１匹誘い込みました！GET！！
+やったね！一人じゃない余！！
+#鬼機組　#APEX
+
+【APEX】深夜の時間になりました！ランク！ランク！【ホロライブ/ロボ子さん】 https://t.co/EsZ590Vg2n https://t.co/cfXwdjaH7E
+
+https://twitter.com/robocosan/status/1257964612395261953
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20503#       发表于 2020-5-6 17:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322581&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-6 17:23</a>
+
+本来就只有2000在强行吹水平高啊，我觉得蛋蛋整个操作就是憨憨
+
+栞桜后来越混越好，是要分开看的，那个时候 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">点那时经过VTBland+怪兽家长的连续炎上，后续又是打乱全员直播安排的B限马拉松
+
+那个情况早晚要有人冲出来，按boss后面"我有一个朋友“式的杂谈，就算会长不搞，猫饼也迟早要炸
+
+另一方面夸周不是成了么，谁会想到appland会铁血到底，明王会冲得这么急呢
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20504#       发表于 2020-5-6 17:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">卧槽？
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20505#       发表于 2020-5-6 17:30
+
+
+
+
+萝卜！永远的神！
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20506#       发表于 2020-5-6 17:31
+
+
+
+
+我觉得萝卜比空妈更适合元老这个位置了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20507#       发表于 2020-5-6 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322652&amp;ptid=1924531" target="_blank">cxj649 发表于 2020-5-6 17:28</a>
+
+现在一些人对点的成员仇恨度：
+
+马论外，从大到小：羊-小白-皮皮-樱桃，樱桃反而比较小那个
+
+至于小白 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明王联想pubg大会炸嗓后我都可怜她了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20508#       发表于 2020-5-6 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322600&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 17:25</a>
+
+会长能赢一半靠的是平时当箱推头子的人望（把全箱所有直播看完），一半靠的是12月近乎完美的应对 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我一个路人觉得，这人先手开大把对面炸了一顿，在对面不讲体面地开撕之后，只要自己没直接跟着下场撕就足够躺赢了，换句话说我没看出这人手段有多高只觉得对面是真的太菜。。
+
+
+顺便其实我还觉得暗搓搓的改简介的操作，yygq功力不在狐狸之下。。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20509#       发表于 2020-5-6 17:35
+
+
+
+
+萝卜子超神了 把鬼救活了
+
+<img src="https://img.saraba1st.com/forum/202005/06/173513df63992p4rh4162g.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200506173221.png</strong> (7.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 17:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20510#       发表于 2020-5-6 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322663&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 17:29</a>
+
+点那时经过VTBland+怪兽家长的连续炎上，后续又是打乱全员直播安排的B限马拉松
+
+那个情况早晚要有人 ...</blockquote>
+主要她那个推也太狠了，我看到都傻了，以为看错了
+
+再跟上一个直播，完全不留余地了，这开头就ALL IN，后面还怎么操作啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只能说当时太冲动了吧...
+
+
+大环境上看可能总是要炸的...她留在那估计不如现在，属于塞翁失马焉知非福了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 20511#       发表于 2020-5-6 17:37
+
+
+
+
+可能是从那个holoapex开黑群抓出来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20512#       发表于 2020-5-6 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322701&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-6 17:33</a>
+
+我一个路人觉得，这人先手开大把对面炸了一顿，在对面不讲体面地开撕之后，只要自己没直接跟着下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没明王背刺，会长开直播和夸周一个性质，明王+pino下场后矛盾性质就变了。
+
+从liver与运营的矛盾变成了liver和liver+运营的矛盾，而当时只有一个人，还被剥夺发言能力的会长是劣势。
+
+当时discord泄露自演论还是很有卖点的。
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 20513#       发表于 2020-5-6 17:38
+
+
+
+<blockquote>Devi_Lito 发表于 2020-5-6 16:13
+求教一下哪里能看单推数据啊？</blockquote>
+https://twitter.com/2434livemoment/status/1255881080982212609?s=20
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Devi_Lito| + 1|谢谢！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20514#       发表于 2020-5-6 17:40
+
+
+
+ 本帖最后由 winda 于 2020-5-6 17:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322728&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-6 17:36</a>
+
+主要她那个推也太狠了，我看到都傻了，以为看错了
+
+再跟上一个直播，完全不留余地了，这开头就ALL IN，后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看完会长直播还是相信她出发点是好的，也相信这就是父女吵架程度的矛盾
+
+然后明王来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">把更衣室矛盾带到赛场，完了，全完了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20515#       发表于 2020-5-6 17:43
+
+
+
+
+狗楼念了半天竟然被萝卜前辈把狗拉出来了，萝卜前辈，木口的神！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20516#       发表于 2020-5-6 17:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/174441z41l73l8ljz46lfs.png" referrerpolicy="no-referrer">
+
+
+<strong>92JU{DLH8B(C3K)RO[F4@HO.png</strong> (52.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 17:44 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还不情不愿的。
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 20517#       发表于 2020-5-6 17:46
+
+
+
+
+我都不知道是该说那边更惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20518#       发表于 2020-5-6 17:46
+
+
+
+
+演戏还是要演一下的
+
+虽然本来也没必要
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 20519#       发表于 2020-5-6 17:47
+
+
+
+
+萝卜子先辈太强了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗妈都叫不动的摸余
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20520#       发表于 2020-5-6 17:48
+
+
+
+
+不过为什么你们觉得狗妈叫得动啊？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20521#       发表于 2020-5-6 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322780&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 17:40</a>
+
+我看完会长直播还是相信她出发点是好的，也相信这就是父女吵架程度的矛盾
+
+然后明王来了把更 ...</blockquote>
+樱桃不就是嫌她嘴太快全说了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">蛋蛋想法当然是好的，但公开矛盾后事情就不按预想的走了，然后她什么都做不了，所以觉得她憨
+
+aqua那时候可是含糊不清，到最后都不知道具体什么矛盾，蛋蛋如果只是自称最近心态很差、很多事情要整理，樱桃也不会直球开炮吧，那样真就是另一条世界线了
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 20522#       发表于 2020-5-6 17:48
+
+
+
+
+holo里怎么可能有无用之人，这次就是要打所有认为萝卜没能当上少主就是无能的人的脸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20523#       发表于 2020-5-6 17:48
+
+
+
+
+这说明一个事情
+
+人类和鬼是不能进行正常交流的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20524#       发表于 2020-5-6 17:49
+
+
+
+
+杏里设定上的正常人吧大概就一半吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20525#       发表于 2020-5-6 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也不是叫不叫得动的问题吧，昨天狗妈说发discord都联络不上，估计全世界都不知道她整个GW在干嘛
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20526#       发表于 2020-5-6 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322757&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 17:38</a>
+
+没明王背刺，会长开直播和夸周一个性质，明王+pino下场后矛盾性质就变了。
+
+从liver与运营的矛盾变 ...</blockquote>
+后面改推简介不是证明了点根本没法剥夺发言能力吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 20527#       发表于 2020-5-6 17:52
+
+
+
+
+阿夸罢工和蛋蛋操作还是比不了的，当时夸楼打压想要搞事的人用的理由就是阿夸还没把事情说明白，事情估计有协商的空间，要真是谈不拢再冲。
+
+阿夸如果来一个黑屏哭着上播，说自己准备直播怎么怎么辛苦，睡眠质量差，就这样运营还要强行指定工商、联动，那holo估计也得炸箱。当然当时究竟冲突是运营方向，还是分钱已经没法知道了。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 20528#       发表于 2020-5-6 17:53
+
+
+
+
+就硬要带上夸哥
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20529#       发表于 2020-5-6 17:54
+
+
+
+
+那谁来点熊猫人？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20530#       发表于 2020-5-6 17:54
+
+
+
+
+零期，萝卜子不是人，4/5
+
+一期，夏哥红心是普通人，2/5
+
+二期，aqua和486，2/5
+
+Gamers，全是动物，0/3
+
+三期，船长，1/5
+
+四期，没正常人，0/5
+
+
+9/28，三分之一都不到
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20531#       发表于 2020-5-6 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322935&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-05-06 17:53:55</a>
+就硬要带上夸哥</blockquote>大概因为大家都觉得夸那次是holo离炸最近的一次
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20532#       发表于 2020-5-6 17:55
+
+
+
+
+我倒是觉得从事后结果来看，阿夸那事还真的就是本来就有协商空间。如果说别觉得资本家是什么善茬，那么既然资本家不是善茬，阿夸结果能全身而退足够说明不是什么大事情了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20533#       发表于 2020-5-6 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322880&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-6 17:48</a>
+
+樱桃不就是嫌她嘴太快全说了吗蛋蛋想法当然是好的，但公开矛盾后事情就不按预想的走了，然后她什 ...</blockquote>
+要回也不能直接用樱桃身份回啊，矛盾性质直接变了。
+
+另外我就是那批被appland装死艺+奇葩的中国进出政策搞的相当烦躁的粉丝，会长能直接挑明硬怼，我还是挺高兴的。
+
+而且<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">holo dragon也直球怼前经纪人几次了，真要明事理，也不会由于公不公开具体矛盾的差别改变就应对结果啊
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20534#       发表于 2020-5-6 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322903&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-6 17:51</a>
+
+也不是叫不叫得动的问题吧，昨天狗妈说发discord都联络不上，估计全世界都不知道她整个GW在干嘛 ...</blockquote>
+和家人旅游啊，死宅不旅游的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20535#       发表于 2020-5-6 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322912&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-6 17:52</a>
+
+后面改推简介不是证明了点根本没法剥夺发言能力吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你知道这个推是什么时候建的么
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20536#       发表于 2020-5-6 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322982&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 18:00</a>
+
+那你知道这个推是什么时候建的么</blockquote>
+这个重要吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 20537#       发表于 2020-5-6 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cxj649  
+##### 20538#       发表于 2020-5-6 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322687&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-6 17:32</a>
+
+明王联想pubg大会炸嗓后我都可怜她了</blockquote>
+现在大致风向也是认为她只是戆戆
+
+
+不过5CH昨晚因为双叶和栞樱间接同台，比喻成牛郎织女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  人生败犬河大吉  
+##### 20539#       发表于 2020-5-6 18:05
+
+
+
+<blockquote>forzen 发表于 2020-5-6 17:55
+我倒是觉得从事后结果来看，阿夸那事还真的就是本来就有协商空间。如果说别觉得资本家是什么善茬，那么既然 ...</blockquote>
+蛋蛋那时候开始也不是什么大事啊，最后变成那样有几个人能想到
+
+
+
+
+
+               

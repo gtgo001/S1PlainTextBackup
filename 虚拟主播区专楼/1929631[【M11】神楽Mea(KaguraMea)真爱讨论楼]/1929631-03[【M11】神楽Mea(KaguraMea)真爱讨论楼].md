@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 16:08** 
+> ## **本文件最后更新于2020-05-06 18:09** 
 
 
 
@@ -19421,7 +19421,7 @@ b站从上往下俯视的那张系绳胖次的涩图炸了，有人发一下吗�
 
 
 1588721995632.png
-(195.61 KB, 下载次数: 6)
+(195.61 KB, 下载次数: 7)
 
 
 
@@ -20696,4 +20696,733 @@ clay不行（摇头
 
 
 
-          
+
+
+-----
+
+####  Cla0221  
+##### 4197#       发表于 2020-5-6 16:23
+
+
+
+
+？我咋就又疯了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过管人真的害人不浅！！！<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4198#       发表于 2020-5-6 16:25
+
+
+
+
+麻酱是tc人，不是管人
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4199#       发表于 2020-5-6 16:26
+
+
+
+
+怎么突然成了病友交流病情了，各位天气好的话多去爬爬山溜溜弯啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4200#       发表于 2020-5-6 16:26
+
+
+
+
+咩姐是管人啊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4201#       发表于 2020-5-6 16:32
+
+
+
+
+我觉得一定得学会主动回避会影响你心理健康的东西，有人疫情期间每天高强度刷相关新闻，越难受越刷，最后嗷地一声就疯了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4202#       发表于 2020-5-6 16:33
+
+
+
+
+“嗷地一声就疯了”还挺可爱的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4203#       发表于 2020-5-6 16:39
+
+
+
+
+我有一个建议，最近恒心教徒冲yyut无果，在冲yyut的关系者。
+
+要是有想橄榄苔宝的引一波火肯定有好戏看的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4204#       发表于 2020-5-6 16:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">然后苔苔被冲了之后拉着咩姐联动来一波“蛋白质块2.0”吗（）
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4205#       发表于 2020-5-6 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322169&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 16:53</a>
+
+然后苔苔被冲了之后拉着咩姐联动来一波“蛋白质块2.0”吗（）</blockquote>
+恒心教徒跟信者卫门那群日本狗粉丝的废物可不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要说的话更像是esu
+
+给苔宝整一波本名住址开示不得吓得搬家
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4206#       发表于 2020-5-6 17:07
+
+
+
+
+那mea在苔苔那里联动还挺多的，不得被一起扬了？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4207#       发表于 2020-5-6 17:10
+
+
+
+
+这echo。。循环了快一个小时了。。有点意思。还有参演的那个打call吞评论了。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4208#       发表于 2020-5-6 17:10
+
+
+
+
+麻将联动打call官肉出了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4209#       发表于 2020-5-6 17:10
+
+
+
+
+反正最后都是苔又赢，苔总赢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+pro妙计安天下，赔了夫人又折兵
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4210#       发表于 2020-5-6 17:11
+
+
+
+
+苔宝什么都算到了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4211#       发表于 2020-5-6 17:14
+
+
+
+
+这echo练了不会只唱一次吧？可以了可以了多来点。就今晚吧？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4212#       发表于 2020-5-6 17:22
+
+
+
+
+打call教程这评论区<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">是怕有人捣乱？
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 4213#       发表于 2020-5-6 17:23
+
+
+
+
+能评论但是显示不出来，好奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4214#       发表于 2020-5-6 17:24
+
+
+
+
+bug了吧，关闭评论是直接没法发评论的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4215#       发表于 2020-5-6 17:24
+
+
+
+
+这评论区给我整蒙了，up可以自己关评论区吗？我怎么不知道有这功能
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4216#       发表于 2020-5-6 17:25
+
+
+
+
+嘛嘛，最近**味确实太浓了
+不过想来早上那热评绝对有问题<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4217#       发表于 2020-5-6 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322586&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-6 17:24</a>
+这评论区给我整蒙了，up可以自己关评论区吗？我怎么不知道有这功能</blockquote>
+那是bug。关评论会跳提示的
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4218#       发表于 2020-5-6 17:42
+
+
+
+
+我好想看到她站在的舞台上的那一天啊，她是那么的耀眼，那么的迷人，平时感觉自己撑不住时就看看录像，听到她那非常有感染力的，让人听了就觉得是真的开心的笑声的时候，我就感觉自己还有动力，还是有人在我身边的，远在大洋彼方的小女孩都那么努力，我也要努力。最近看到日本疫情越来越严重，3d，bls的live都受到影响时，我是真的感觉心焦，感觉为什么上天总要为难她，想要看到有越来越多人喜欢她，想看到她能在舞台上大放光彩，想陪她到最后。我真的好喜欢她，好喜欢她，从没感觉过自己这么喜欢一个女孩。但是最近因为一个舞元，竟然成为了我的心魔，3个多月了，也无法甩掉它，不断的折磨着我，怎么也无法甩掉它。我是不是已经不配成为她的粉丝了呢，明明我只想要她能越来越好，却因为自己的一己私念，在这三个月间，不断的生出各种危险的想法，明明这都是最不该做的，我最讨厌的行为，明明一定不能给她添麻烦的，但我却不断的生出这些想法，我甚至害怕自己控制不住，害怕哪一天自己真去做了。我是不是已经成为了她前进路上的绊脚石了？成为真正的厄介了？我只想她好好的，只是想单纯的喜欢她到最后，为什么会这么难呢？是因为我自己的问题吗，因为在这一年多以来，当初那单纯的喜欢已经变质了？我已经逐渐成为会伤害她的我当初最讨厌的粉丝了？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4219#       发表于 2020-5-6 17:43
+
+
+
+
+这两天感觉难受的时候就循环天邪鬼，算是唯一的安慰了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4220#       发表于 2020-5-6 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你要不也去隔壁写写日记
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4221#       发表于 2020-5-6 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4222#       发表于 2020-5-6 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+我有一计，不如把你胡思乱想的时间用来挖掘，也许会有收获
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 4223#       发表于 2020-5-6 17:46
+
+
+
+
+害怕害怕<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4224#       发表于 2020-5-6 17:46
+
+
+
+
+这是好的， 在论坛发疯比影响她好，，
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4225#       发表于 2020-5-6 17:47
+
+
+
+
+说实话 有点kimo了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+看管人终究是娱乐，心理出了问题我只建议放下手机电脑出去多现充
+别入脑了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4226#       发表于 2020-5-6 17:47
+
+
+
+
+大家,都会发病啊<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4227#       发表于 2020-5-6 17:47
+
+
+
+
+不如出发吧 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4228#       发表于 2020-5-6 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4229#       发表于 2020-5-6 17:52
+
+
+
+
+看不见看不见<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4230#       发表于 2020-5-6 17:53
+
+
+
+
+kimo<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+有当年千里扬名天下的那篇zqsg的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4231#       发表于 2020-5-6 17:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4232#       发表于 2020-5-6 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我tm。。。下次再塞抹布
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4233#       发表于 2020-5-6 17:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+把这篇机翻放推上可以换一次突击吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4234#       发表于 2020-5-6 17:56
+
+
+
+
+每一个楼友都需要一个千酱.jpg
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4235#       发表于 2020-5-6 17:59
+
+
+
+
+写日记还是去日记楼吧，不得不说内味儿有点重<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4236#       发表于 2020-5-6 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47322830&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-6 17:45</a>
+
+你要不也去隔壁写写日记</blockquote>
+其实写过一阵，后面心越来越乱就没写了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| likemike| + 1|加油，祝你早日调整好心态|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4237#       发表于 2020-5-6 18:01
+
+
+
+
+今晚联动前会播吗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4238#       发表于 2020-5-6 18:02
+
+
+
+
+我也忘了自己是怎么开始不再去在意的了，要不别强迫自己做全肯定？
+
+或者的话，，，算了，你想知道就私聊我吧，我怕又被截图挂出去说在公共论坛过激发情<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4239#       发表于 2020-5-6 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323011&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-6 18:02</a>
+我也忘了自己是怎么开始不再去在意的了，要不别强迫自己做全肯定？
+
+或者的话，，，算了，你想知道就私聊我 ...</blockquote>
+流星变了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+        
