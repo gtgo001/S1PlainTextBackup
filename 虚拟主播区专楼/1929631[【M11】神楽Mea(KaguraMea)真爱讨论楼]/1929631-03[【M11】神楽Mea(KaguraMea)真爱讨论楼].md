@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 10:06** 
+> ## **本文件最后更新于2020-05-06 12:08** 
 
 
 
@@ -19001,4 +19001,281 @@ syl：CD还是再来两首吧，最好换换风格
 
 
 
-             
+
+
+-----
+
+####  Unlimited290  
+##### 4105#       发表于 2020-5-6 10:07
+
+
+
+
+https://b23.tv/BV1Hp4y1979j
+5.5TC全熟。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 4106#       发表于 2020-5-6 10:37
+
+
+
+
+组长舞元那个是雀魂啊，mc还是卫星状态吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4107#       发表于 2020-5-6 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47318112&amp;ptid=1929631" target="_blank">暴走的包子 发表于 2020-5-6 10:37</a>
+组长舞元那个是雀魂啊，mc还是卫星状态吧
+
+—— 來自 samsung SM-N9750, Android 10上的 S1Next-鵝版 v2.2. ...</blockquote>
+我看好mea雀魂飞人。就昨天那进章，无敌
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4108#       发表于 2020-5-6 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她也就靠其他人比她还菜，无敌个毛线
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4109#       发表于 2020-5-6 10:56
+
+
+
+
+听说舞元麻将打的挺好，咩姐会吃瘪吗
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 4110#       发表于 2020-5-6 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317805&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-6 10:07</a>
+
+https://b23.tv/BV1Hp4y1979j
+
+5.5TC全熟。</blockquote>
+<img src="http://i.loli.net/2020/05/06/7gMWXVwhJqUTf6Q.png" referrerpolicy="no-referrer">
+
+ありがとう、モリナカミ
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4111#       发表于 2020-5-6 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47318223&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-6 10:47</a>
+她也就靠其他人比她还菜，无敌个毛线</blockquote>
+？我起手天和不需要看别人
+我无敌，你们随意
+
+mea这几次的进章都这个感觉
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 4112#       发表于 2020-5-6 11:15
+
+
+
+
+麻将好不好不知道，彩虹大赛奶人倒是一流，点的全死了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4113#       发表于 2020-5-6 11:41
+
+
+
+
+天麻实在是害mea，岭上开花也就一番，速度慢，还破坏门清。这么喜欢尝试领上干嘛。
+
+就不能让科学麻将的当主角吗，讲讲牌效什么的。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4114#       发表于 2020-5-6 11:43
+
+
+
+
+又要多两个百万再生了，流量民还有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fuochai  
+##### 4115#       发表于 2020-5-6 11:50
+
+
+
+
+查了下天邪鬼，不就是巨魔的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4116#       发表于 2020-5-6 11:51
+
+
+
+
+OTOTOY上新原创曲上架了，[https://ototoy.jp/_/default/p/537875](https://ototoy.jp/_/default/p/537875)，可以用PayPal
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|好评加鹅|
+| weiweiEX| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4117#       发表于 2020-5-6 11:54
+
+
+
+
+原来麻酱是巨魔吗， 害怕
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 4118#       发表于 2020-5-6 11:55
+
+
+
+
+  天邪鬼我觉得更像是杠精
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 4119#       发表于 2020-5-6 12:04
+
+
+
+
+我觉得麻酱只想说自己毒舌傲娇而已<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+            
