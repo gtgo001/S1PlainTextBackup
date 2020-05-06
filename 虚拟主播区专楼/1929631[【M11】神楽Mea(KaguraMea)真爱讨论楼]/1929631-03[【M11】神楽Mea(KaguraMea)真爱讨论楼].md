@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 06:06** 
+> ## **本文件最后更新于2020-05-06 10:06** 
 
 
 
@@ -16878,10 +16878,11 @@ zzsyl满意，不知道你怎么延伸到这一层的，我在这事唯一的情
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 神楽mea| + 1|好评加鹅|
 | 路人庚| + 1|来力，奖励一个单推大红鹅！❤.|
 
 
@@ -18154,4 +18155,850 @@ mea粉里自然有阿夸anti，但是好歹联动也算正常的mea直播内容�
 
 
 
-              
+
+
+-----
+
+####  M829A4  
+##### 4061#       发表于 2020-5-6 06:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一大早在如月那里冒了泡，大概是要睡了吧
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 4062#       发表于 2020-5-6 06:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4063#       发表于 2020-5-6 06:41
+
+
+
+
+思考了下。恐怖游戏里有多少约定俗成的操作？照相机照鬼，躲柜子等。新人玩这种约定俗成不给提示或者少量提示的确实是不太行。。需要年轻人第一款恐怖游戏练一下啊。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4064#       发表于 2020-5-6 06:42
+
+
+
+
+【YoutubeChat 如月こよりYTB 直播评论】
+用户：神楽めあ / KaguraMea
+内容：おはようどざいます
+类型：message
+网址：https://www.youtube.com/watch?v=OYFNhRVN9Z8
+
+【YoutubeChat 如月こよりYTB 直播评论】
+用户：神楽めあ / KaguraMea
+内容：私もこれから寝ます
+类型：message
+网址：https://www.youtube.com/watch?v=OYFNhRVN9Z8
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4065#       发表于 2020-5-6 06:43
+
+
+
+
+果然再熬夜了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4066#       发表于 2020-5-6 06:43
+
+
+
+
+求求你们找点新的车轱辘吧，孩子都看腻了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4067#       发表于 2020-5-6 06:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316591&amp;ptid=1929631" target="_blank">若风之景 发表于 2020-5-6 06:43</a>
+果然再熬夜了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 S1Next-鹅版 v2.1.2</blockquote>
+晚上有v骚。。白天应该无了，或者8点多播一下精神精神
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4068#       发表于 2020-5-6 06:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316588&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-6 06:41</a>
+思考了下。恐怖游戏里有多少约定俗成的操作？照相机照鬼，躲柜子等。新人玩这种约定俗成不给提示或者少量提 ...</blockquote>
+主要还是mea和这种恐怖游戏相性一般吧
+我这段时间在打黑魂，有些时候干的事几乎和mea打恐怖游戏一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过她是怕的挪不动窝，我是怕的时候走到哪盾顶到哪
+要是是thehouse这种纯点击式的，她玩起来应该更好点
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4069#       发表于 2020-5-6 06:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316597&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-6 06:44</a>
+晚上有v骚。。白天应该无了，或者8点多播一下精神精神</blockquote>
+昨天你们也是这么说的！
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 4070#       发表于 2020-5-6 06:47
+
+
+
+
+真热闹啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+你咩这一晚上玩了十几把<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4071#       发表于 2020-5-6 06:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316604&amp;ptid=1929631" target="_blank">jhouo8989 发表于 2020-5-6 06:46</a>
+昨天你们也是这么说的！</blockquote>
+昨天我都在
+老预言家了，信我
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4072#       发表于 2020-5-6 06:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316600&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 06:46</a>
+主要还是mea和这种恐怖游戏相性一般吧
+我这段时间在打黑魂，有些时候干的事几乎和mea打恐怖游戏一模一样[ ...</blockquote>
+昨天早上看斗鱼的一个恐怖游戏主播谈直播恐怖游戏觉得说的有点道理。初见没法搞节目效果，不知道效果的点在哪。蛮多时候都是播给信粉看的，某个有爆点多的点说说骚话啥的可能看的有意思。但是vtb又不一样了，可以看皮有一个直观的主播反应，相当于多了一个效果。总之这玩意要常玩。mea游戏都不咋玩。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4073#       发表于 2020-5-6 07:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316634&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-6 06:59</a>
+昨天早上看斗鱼的一个恐怖游戏主播谈直播恐怖游戏觉得说的有点道理。初见没法搞节目效果，不知道效果的点 ...</blockquote>
+我一直觉得mea的两回thehouse是体现v的皮这个特点的神回，但从她玩这些3d恐怖游戏的反应看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她也是怂到一定程度了，走两步就想退回来，这就比较影响效果，所以想着她玩这种点击解密的类型
+
+
+
+
+
+
+
+-----
+
+####  Jo鸽  
+##### 4074#       发表于 2020-5-6 07:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">怎么又车轱辘一夜 视奸这么久你们三五天就车轱辘一次 不累吗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4075#       发表于 2020-5-6 07:24
+
+
+
+
+有些人大概属车轮胎的，不转难受
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4076#       发表于 2020-5-6 07:30
+
+
+
+
+当我干到现场时战斗已经结束了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+还是期待一下v骚吧，真心黄金阵容
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4077#       发表于 2020-5-6 07:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316712&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-6 07:30</a>
+当我干到现场时战斗已经结束了
+
+还是期待一下v骚吧，真心黄金阵容</blockquote>
+容我拿放大镜仔细看看mea和夏哥
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4078#       发表于 2020-5-6 07:39
+
+
+
+
+你们能车一宿我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4079#       发表于 2020-5-6 07:50
+
+
+
+
+我想看星川<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+不过gbr也是很好的，昨天刚联动过也有话题
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4080#       发表于 2020-5-6 07:51
+
+
+
+
+就一个不知道谁看贴贴看爽了 点了一下的事  能车成这样我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4081#       发表于 2020-5-6 08:30
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-5-6 08:35 编辑 
+
+还是产能不足的问题，字幕组产能跟不上mea直播频率了。
+
+现实考虑的话，希望字幕组在烤麻将回前多烤几个其他的肉。
+
+比如b限四小时歌回分成四个部分，先烤一个部分，然后在放麻将回上或者lol第三场，再放四小时歌回第二个部分。
+
+朝三暮四、暮四朝三，还是有一定意义的。
+
+可以的话，麻将回别把两边的视角别分开了，合起来做个多视角剪辑联合投稿，麻将没上帝视角或者多视角剪辑不好看。
+
+如何让看不懂麻将的人也能看出节目效果。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好主意|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  刘邦去吃霸王餐  
+##### 4082#       发表于 2020-5-6 08:38
+
+
+
+
+我一觉睡起来发现你们是真的闲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+NGA以前的话是mea配不上这么好的字幕组，现在的话转过来了，是字幕组配不上这么好的mea。把官组当成一个打钱平台不就行了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4083#       发表于 2020-5-6 08:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">车这个真不行，起来看到几层就知道不用爬楼了
+
+坐等晚上的直播
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4084#       发表于 2020-5-6 08:49
+
+
+
+
+对了，昨天和苔苔连麦的时候说到这个月加上犬鸣隧道就有3次联动，其中应该有一次舞mea lovehotel参观，要准备好应对冲击
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4085#       发表于 2020-5-6 08:53
+
+
+
+
+最近节奏挺好的希望不要翻车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，希望
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4086#       发表于 2020-5-6 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317103&amp;ptid=1929631" target="_blank">甘栗No.007 发表于 2020-5-6 08:49</a>
+对了，昨天和苔苔连麦的时候说到这个月加上犬鸣隧道就有3次联动，其中应该有一次舞mea lovehotel参观，要准 ...</blockquote>
+。。mea本人说的挺清楚了。
+就是工作
+如果有忍受不了那就随他去吧。。
+不过效果好我还是要鼓鼓掌的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|就是这样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4087#       发表于 2020-5-6 08:54
+
+
+
+
+上次草莓果酱是给樱桃乐园准备的。这次15w。。可以想下bls还有一个么？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4088#       发表于 2020-5-6 08:57
+
+
+
+
+不可能这么快的吧，除非你咩姐一开始就打算陆续发布两首歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 4089#       发表于 2020-5-6 09:01
+
+
+
+
+爆黄腔不可避<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">看点大概在于童贞对lovehotel到底有多少奇怪臆想
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4090#       发表于 2020-5-6 09:03
+
+
+
+ 本帖最后由 惑星 于 2020-5-6 09:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐的新歌上架了，想买的可以买了
+
+所以在哪买啊，我给忘了，来个铁汁说一下
+
+翻到了翻到了，三十多块买不了吃亏买不了上当
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4091#       发表于 2020-5-6 09:05
+
+
+
+
+你们居然车轱辘了一晚上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得的平安夜好好睡觉不好吗
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 4092#       发表于 2020-5-6 09:06
+
+
+
+
+话说有两首原创曲已经可以出CD了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4093#       发表于 2020-5-6 09:06
+
+
+
+ 本帖最后由 JustW 于 2020-5-6 09:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来昨晚熬夜看了六集BNA觉得自己浪费了时间，现在看来还好没来车轱辘，否则更浪费
+
+syl：CD还是再来两首吧，最好换换风格
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4094#       发表于 2020-5-6 09:10
+
+
+
+
+两首都太萌了（
+来点苦情歌和酷点的啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4095#       发表于 2020-5-6 09:13
+
+
+
+
+买了。感觉原创曲应该是半年一次，下次要等年底了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4096#       发表于 2020-5-6 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317287&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 09:13</a>
+买了。感觉原创曲应该是半年一次，下次要等年底了</blockquote>
+说不定是每次大活动都来一次g
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 4097#       发表于 2020-5-6 09:26
+
+
+
+
+原创曲这种东西不太可能高频率发布的，除非真的要和平演变成歌势了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4098#       发表于 2020-5-6 09:27
+
+
+
+<blockquote>zhicai618 发表于 2020-5-6 09:21
+说不定是每次大活动都来一次g</blockquote>
+有可能，上次的bml，这次原创曲本来也可能和bls有关
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4099#       发表于 2020-5-6 09:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317417&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 09:27</a>
+有可能，上次的bml，这次原创曲本来也可能和bls有关</blockquote>
+上次是樱桃乐园。。没参加成自己发布了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4100#       发表于 2020-5-6 09:30
+
+
+
+<blockquote>zhicai618 发表于 2020-5-6 09:28
+上次是樱桃乐园。。没参加成自己发布了</blockquote>
+啊，我的，忘了还有这回事。。。这么想咩姐老倒霉蛋了，樱桃乐园也是因为台风取消
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4101#       发表于 2020-5-6 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317439&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 09:30</a>
+啊，我的，忘了还有这回事。。。这么想咩姐老倒霉蛋了，樱桃乐园也是因为台风取消 ...</blockquote>
+塞翁失马焉知非福咯。。
+每次运气不好但是结果都不坏。
+还行
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4102#       发表于 2020-5-6 09:35
+
+
+
+
+除了V骚还有兔子舞元mc以外，现在还有别的日期确定了的安排吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4103#       发表于 2020-5-6 09:37
+
+
+
+
+暂时没有了吧，有些不知道是卫星还是定了没公布日期
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4104#       发表于 2020-5-6 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317494&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-6 09:35</a>
+除了V骚还有兔子舞元mc以外，现在还有别的日期确定了的安排吗？</blockquote>
+日期确定安排莫的
+
+
+
+
+
+             

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 04:04** 
+> ## **本文件最后更新于2020-05-06 10:04** 
 
 
 
@@ -5016,11 +5016,11 @@ syl，我怎么觉得虹最近大赛的冠军都是男v<img src="https://static.
 
 
 
-<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_EUzk9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_v4IUJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 https://twitter.com/Sco_ttie/status/1257597617019613186
 
 
-<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_v5vQc" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_KB0QG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1](https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1)
 
 
@@ -6292,7 +6292,7 @@ yagoo摁着夏心夸的头五一高强度b限了一圈，到底给他们许了�
 
 
 
-<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_r22jk" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_ooCfS" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
@@ -6474,7 +6474,7 @@ vjuan击剑好像是白夜那边带起来的？
 
 
 
-虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_vFfSf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_KH5jz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -8504,6 +8504,25 @@ https://b23.tv/XmgJJ4
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|喀秋莎好听|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10244,7 +10263,7 @@ BSYL：来点2000最不喜欢的葵笹贴贴。
 <img src="https://img.saraba1st.com/forum/202005/06/013925nzny8hg3wtttprzs.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EXOQ6hYUYAIV2y1.jpg</strong> (269.72 KB, 下载次数: 0)
+<strong>EXOQ6hYUYAIV2y1.jpg</strong> (269.72 KB, 下载次数: 1)
 
 下载附件
 
@@ -10854,4 +10873,1311 @@ QQ截图20200506015232.png
 
 
 
-                              
+
+
+-----
+
+####  肚子疼了  
+##### 20076#       发表于 2020-5-6 04:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316313&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-6 03:45</a>
+
+这能不ptsd吗找十个人来看十个人看了都要生梁木，我还能怎么办嘛，难道还搞mmr信者rp，我相信都是zq ...</blockquote>
+苔苔找到男友啦？啥时候的事
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20077#       发表于 2020-5-6 04:51
+
+
+
+
+泳池还可以，那有我fg坐镇的真人主播juan就是黄浦江了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 20078#       发表于 2020-5-6 04:51
+
+
+
+
+羊最好还是去找个专业声乐老师稍微学一下，唱歌动不动突然降一个key实在受不了。。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20079#       发表于 2020-5-6 04:56
+
+
+
+
+她也想学，这不是疫情嘛
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20080#       发表于 2020-5-6 04:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316411&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-6 04:51</a>
+泳池还可以，那有我fg坐镇的真人主播juan就是黄浦江了</blockquote>
+兄弟路走宽了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  新磕娘  
+##### 20081#       发表于 2020-5-6 05:03
+
+
+
+
+睡前看了眼V8，前些天弄得很大的兔组的事，有个退了兔组的真内鬼出来解释了。
+
+看了一下，大概内容是：
+
+兔子转发nico视频后，本来没多大事，V8一群乐子人随便开了一下带节奏而已，然后兔组里也有人因为兔子好久没来了，就擅自发了那个B限棉花糖的动态，然后没想到就闹大了。
+
+期间这个兔组的内鬼还主动提供黑料给那个V8的星宝把事搞大。
+
+然后问题其实最大是出在兔组和兔子的交接上，俩者没法直接交流，需要经过中国运营联系，就是兔子的B限直播时间也得看运营的安排，B限好久没来也是运营的懈怠导致。
+
+然后这个锅就砸到兔子和兔组身上了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 20082#       发表于 2020-5-6 05:21
+
+
+
+
+还以为天宝届到了，原来是花钱买画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 20083#       发表于 2020-5-6 05:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316442&amp;ptid=1924531" target="_blank">新磕娘 发表于 2020-5-6 05:03</a>
+睡前看了眼V8，前些天弄得很大的兔组的事，有个退了兔组的真内鬼出来解释了。
+
+看了一下，大概内容是：
+
+兔子 ...</blockquote>
+兔宝遭殃提前把**燃光，但给其他同社人敲了钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说一句兔子守护了木口不为过吧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20084#       发表于 2020-5-6 05:31
+
+
+
+
+原来是字幕组加戏吗
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 20085#       发表于 2020-5-6 05:49
+
+
+
+
+字幕组内鬼反逆，木口运营弱智无能，害了兔皇，苦了野兔？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 20086#       发表于 2020-5-6 06:18
+
+
+
+
+胡乱猜测，说不定内鬼是兔组的点组长
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20087#       发表于 2020-5-6 07:10
+
+
+
+
+小天使竟然久违的早起发推了，看样昨晚b限完应该就昏迷睡过去了。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 20088#       发表于 2020-5-6 07:16
+
+
+
+
+昨天好像是话都没说完 ED也没放 光速下播
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20089#       发表于 2020-5-6 07:18
+
+
+
+
+放了，一开始还放的蓝色的那个，然后改成真ed。应该是线路问题，当时看弹幕也有在说。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20090#       发表于 2020-5-6 07:42
+
+
+
+
+同事都这么利索，唯独兔神一个吃了营运的亏，那还真是可怜哦
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 20091#       发表于 2020-5-6 08:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315092&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-5 23:35</a>
+安利安利 俄罗斯小姐姐 而且自己开号来B站了
+上来就投了首喀秋莎https://b23.tv/uYHwuo</blockquote>
+这形象会吸引满人过来吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20092#       发表于 2020-5-6 08:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316751&amp;ptid=1924531" target="_blank">forzen 发表于 2020-05-06 07:42:05</a>
+同事都这么利索，唯独兔神一个吃了营运的亏，那还真是可怜哦</blockquote>露娜的首次b限都延期了哪里利索了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20093#       发表于 2020-5-6 08:14
+
+
+
+
+没想到一切都和脑补的差不多，已经无话可说了，无非就是字幕组和观众互相秀厄介下限而已
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20094#       发表于 2020-5-6 08:17
+
+
+
+
+不是，字幕组怎么就清楚运营和兔皇有没有对接了，看了下贴小部分挺有洗地文味道，7分真里夹杂3分“合理猜测”
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20095#       发表于 2020-5-6 08:22
+
+
+
+ 本帖最后由 tiro_finale 于 2020-5-6 08:28 编辑 
+
+贡贡排班是到九点啊，还在播，快6000了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+6000了
+
+
+
+省一楼，maia老姐深夜居然开TC台了，没留档，就看到评论栏各种ミライ部員<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20096#       发表于 2020-5-6 08:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316905&amp;ptid=1924531" target="_blank">winda 发表于 2020-05-06 08:17:23</a>
+不是，字幕组怎么就清楚运营和兔皇有没有对接了，看了下贴小部分挺有洗地文味道，7分真里夹杂3分“合理猜测 ...</blockquote>跑去看了贴子，运营和字幕组说的没交接<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 20097#       发表于 2020-5-6 08:28
+
+
+
+ 本帖最后由 蒹葭公子 于 2020-5-6 08:30 编辑 
+<blockquote>winda 发表于 2020-5-6 08:17
+不是，字幕组怎么就清楚运营和兔皇有没有对接了，看了下贴小部分挺有洗地文味道，7分真里夹杂3分“合理猜测 ...</blockquote>
+应该是字幕组跟兔皇没有对接，通过运营对接吧？
+
+运营本身都没对接的吗？太草台了吧？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20098#       发表于 2020-5-6 08:29
+
+
+
+早安彼方~来张小天使
+
+<img src="https://img.saraba1st.com/forum/202005/06/082919b1bgccavabgg33i9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXRFkpPU8AYHjnO.jpg</strong> (208.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 08:29 上传
+
+
+
+
+
+
+syl，怎么还在车兔皇那事儿，挺无聊的说实话。
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20099#       发表于 2020-5-6 08:31
+
+
+
+
+那贴子说的其实大多数都是大家知道的，有意思的大概就是，全holo负责字幕组交接的就3个运营，字幕组发b博居然真的是在逼宫，还有狐兔组长不仲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 20100#       发表于 2020-5-6 08:32
+
+
+
+
+苔姨现在单人回整不出新活太无趣了，还是多联动换血有意思
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 20101#       发表于 2020-5-6 08:35
+
+
+
+<blockquote>bluebaby 发表于 2020-5-6 08:28
+跑去看了贴子，运营和字幕组说的没交接
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+好吧，漏看一楼，兔皇这被烧的稀里糊涂程度又上一层了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20102#       发表于 2020-5-6 08:39
+
+
+
+
+说到母亲节昨天陆婉莹真把亲妈请来直播间我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过我的同理心不允许我在那个尴尬的氛围里不然会可怜这样一个母亲，于是又继续听蘑菇人唱粤语歌了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+syl 晚上zqsg的事情我懂的，n年以前买过一件eva的ut，有次穿着睡觉半夜醒了，发现胸前的evangelion几个字是夜光的，可把孩子高兴坏了，然而那时候是在家里，房间里只有我一个人，在黑暗的房间里找不到出口的热情瞬间冷却。所以晚上适合睡觉包括一个人两个人甚至多个人，但不宜zqsg和瞎想<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+zsyl 昨天蘑菇人的粤语歌会太菜了，直播间sc点的歌基本都不会唱，差评。但之后播十三机兵腐女病发的时候很kimo所以功过相抵。下次粤语歌回还敷衍就anti到她和902联动，不过902还是小动画有梗好看，直播一般般，跟蘑菇人联动效果成迷<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 20103#       发表于 2020-5-6 08:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">法国南部
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20104#       发表于 2020-5-6 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47315992&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-6 01:48</a>
+
+阿希现在的这张都使出坦克瘦脸绝技《掐下巴》了，必是胖过葵皇了。
+
+SYL：
+
+just fooking absurd。</blockquote>
+波羅ノ鬼是视频势吗，明明是西原的皮却完全没听过，翻了翻频道也感觉pv和封面有点过于随性...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 20105#       发表于 2020-5-6 08:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316983&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-6 08:31</a>
+那贴子说的其实大多数都是大家知道的，有意思的大概就是，全holo负责字幕组交接的就3个运营，字幕组发b博居 ...</blockquote>
+狐兔组长不仲是什么鬼，不是黑名单联动鲨人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20106#       发表于 2020-5-6 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316849&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-6 08:06</a>
+
+露娜的首次b限都延期了哪里利索了
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可连你说的这位也比兔神利索
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20107#       发表于 2020-5-6 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317081&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-5-6 08:46</a>
+狐兔组长不仲是什么鬼，不是黑名单联动鲨人吗？
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1N ...</blockquote>
+从业员退位兔组组长了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20108#       发表于 2020-5-6 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317081&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-05-06 08:46:41</a>
+狐兔组长不仲是什么鬼，不是黑名单联动鲨人吗？ v2.2.2.1</blockquote>那人的说法大概是狐组组长和兔组前组长有矛盾，觉得兔组组长管理太过散漫，然后被兔组组长从兔组踢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 20109#       发表于 2020-5-6 09:07
+
+
+
+
+没想到竟然还有3个运营，我还以为根本没运营呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20110#       发表于 2020-5-6 09:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/090707qslslbpstssr7r7l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXSMcIjUcAEizMG.jpg</strong> (187.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 09:07 上传
+
+
+
+
+
+
+JST 22:00
+[https://www.youtube.com/watch?v=amnz7MlIRZk](https://www.youtube.com/watch?v=amnz7MlIRZk)
+
+
+
+阿库碳现在成团建积极分子了啊
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20111#       发表于 2020-5-6 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317178&amp;ptid=1924531" target="_blank">forzen 发表于 2020-05-06 09:00:23</a>
+可连你说的这位也比兔神利索</blockquote>四期b限首播这种短期内运营首要工作都要延期，国内没盘的三期延期时间更长不是肯定的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20112#       发表于 2020-5-6 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317245&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-6 09:08</a>
+
+四期b限首播这种短期内运营首要工作都要延期，国内没盘的三期延期时间更长不是肯定的吗
+
+
+  -- 来自  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果后面没有古神的利索操作，我可能会相信你说的话
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20113#       发表于 2020-5-6 09:14
+
+
+
+
+看了下空妈这个pretender下边的评论，怎么全世界都会刷yagoo住进ICU这个梗啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/091408cpkl7fg9iw7wvptk.png" referrerpolicy="no-referrer">
+
+
+<strong>yagoo.png</strong> (68.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 09:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20114#       发表于 2020-5-6 09:15
+
+
+
+
+虽然这梗很老了，不过你可以怪到龙皇头上。
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 20115#       发表于 2020-5-6 09:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三个运营，假设一个干活，一个摸鱼，还有一个不上不下，这就能解释为什么有人快有人慢了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 20116#       发表于 2020-5-6 09:20
+
+
+
+
+问下，之前有段时间日v蝗过一阵winter project 你们觉得效果咋样？是个联动好游戏吗？
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 20117#       发表于 2020-5-6 09:21
+
+
+
+
+一般般吧。。除非第一次看，太容易看腻了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 20118#       发表于 2020-5-6 09:22
+
+
+
+
+个人觉得，还是小秦的好看点
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 20119#       发表于 2020-5-6 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317275&amp;ptid=1924531" target="_blank">forzen 发表于 2020-05-06 09:12:06</a>
+如果后面没有古神的利索操作，我可能会相信你说的话</blockquote>你又知道
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 20120#       发表于 2020-5-6 09:28
+
+
+
+
+之前人上人提到过holocn有三个运营。应该是兼管holo字幕组，毕竟holo不在职责范围内，不上心很正常啊。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 20121#       发表于 2020-5-6 09:30
+
+
+
+
+这个“Holo国内三个运营”，不知道含不含stars<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20122#       发表于 2020-5-6 09:31
+
+
+
+
+昨夜のマっキャスまとめ
+[https://twitcasting.tv/maia_illia/movie/612367932](https://twitcasting.tv/maia_illia/movie/612367932)
+
+
+877 今、天王星のwiki見てきたら軌道傾斜角(i) が0.774°だった (ﾜｯﾁｮｲ) 2020/05/06(水) 01:13:09.22 ID:K3CKfzD80
+
+・自分の演じたキャラは娘のように思ってる、ファンのみんなより愛してる自信がある
+
+・滑舌悪い事を気にしている
+
+・周りに嫌われるのが怖い、会話の途中で沈黙が出来るのが怖い
+
+・声優としてのイメージを気にし過ぎて本当の自分を出せない自分が嫌い
+
+・今までの私が好きだったファンに嫌われても自分を出したい
+
+・仕事以外はあまり喋らない、家で絵を描いている事が多い
+
+・声優の仕事が無いけど好きだから辞めたくない
+
+・友達が少ない。積極性がない。東京の友達が欲しい
+
+・喘息持ちで年明けから喘息が酷い
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 20123#       发表于 2020-5-6 09:35
+
+
+
+
+maia做vtb中之人的水平是真的不行，浪费akari的王炸起手
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20124#       发表于 2020-5-6 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317244&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-05-06 09:08:53</a>
+阿库碳现在成团建积极分子了啊</blockquote>夸皇加入大家庭比较晚，封面贴图就被放在底层，crew不能忍受这种屈辱<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+白上桑我要杀了你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 20125#       发表于 2020-5-6 09:39
+
+
+
+
+有点惨，不过看起来没什么砍项目的迹象<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 20126#       发表于 2020-5-6 09:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317054&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-6 08:42</a>
+
+波羅ノ鬼是视频势吗，明明是西原的皮却完全没听过，翻了翻频道也感觉pv和封面有点过于随性... ...</blockquote>
+算是，之前推特是每天发一段翻唱，还出过几次街头live，前不久和酸欠少女一起搞live涨了很大一波粉
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20127#       发表于 2020-5-6 09:41
+
+
+
+
+相信海苔男说真话不如相信夸夸能够罚球线扣篮。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 20128#       发表于 2020-5-6 09:42
+
+
+
+<blockquote>alcoholic1000 发表于 2020-5-6 08:42
+波羅ノ鬼是视频势吗，明明是西原的皮却完全没听过，翻了翻频道也感觉pv和封面有点过于随性... ...</blockquote>
+[@free](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=86255) 
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 20129#       发表于 2020-5-6 09:43
+
+
+
+小天使竟然转了两张cos，还原度还行。
+
+<img src="https://img.saraba1st.com/forum/202005/06/094302amch2rngrb26h6mj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXQS4cXVAAEKNU0.jpg</strong> (306.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 09:43 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/094302paczahnkikerdicc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXQS4tgUYAA69lT.jpg</strong> (257.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 09:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20130#       发表于 2020-5-6 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316442&amp;ptid=1924531" target="_blank">新磕娘 发表于 2020-5-6 05:03</a>
+
+睡前看了眼V8，前些天弄得很大的兔组的事，有个退了兔组的真内鬼出来解释了。
+
+看了一下，大概内容是：
+
+兔子 ...</blockquote>
+谁把这话传给holo运营去
+
+字幕组主动搞这么大的事情够不够解散的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 20131#       发表于 2020-5-6 09:43
+
+
+
+ 本帖最后由 colodes 于 2020-5-6 09:44 编辑 
+
+两条关于星街的，因为被人做成了视频上传了nico就说一下吧
+
+<img src="https://img.saraba1st.com/forum/202005/06/093628lttczn1wstdtmknu.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-06 093509.png</strong> (97.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 09:36 上传
+
+
+
+
+
+[https://www.nicovideo.jp/watch/sm36809134](https://www.nicovideo.jp/watch/sm36809134)
+[https://www.nicovideo.jp/watch/sm36808934](https://www.nicovideo.jp/watch/sm36808934)
+
+
+1.彩虹新人甲斐田晴发了条关于星街俄罗斯方块的推文，被人怼后删除
+
+2.星街把游戏误操作的粉丝当成故意捣乱的，暴言 “快去死”
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20132#       发表于 2020-5-6 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317350&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-05-06 09:20:42</a>
+问下，之前有段时间日v蝗过一阵winter project 你们觉得效果咋样？是个联动好游戏吗？ ...</blockquote>看有没会玩儿的带队了，萌新啥都不懂会被野怪乱杀，观看体验糟糕，但是很适合戏精发挥，楼上提小秦的也是因为小秦那一回演得好，流氓当警察可太精彩了，还有名言。
+另外就是很适合病娇rp
+国V要跟上1年前的版本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 20133#       发表于 2020-5-6 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317561&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-6 09:43</a>
+
+两条关于星街的，因为被人做成了视频上传了nico就说一下吧
+
+
+https://www.nicovideo.jp/watch/sm36809134</blockquote>
+然后之后那些误操作的粉丝被迫在视频评论区长文谢罪
+
+粉丝真不好做啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20134#       发表于 2020-5-6 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317561&amp;ptid=1924531" target="_blank">colodes 发表于 2020-05-06 09:43:35</a>
+1.彩虹新人甲斐田晴发了条关于星街俄罗斯方块的推文，被人怼后删除
+
+2.星街把游戏误操作的粉丝当成故意捣 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“快去死”已经是她打块的口头禅了吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20135#       发表于 2020-5-6 09:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317550&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-6 09:42</a>
+
+@free</blockquote>
+啥，波罗鬼就是纯视频歌势啊，不过有一次街头live来着，其实她们团队能看出来很厉害，广告也打了不少，上周的原创曲MV都50多万播放了，没看过的推荐大家再看看
+
+[https://www.youtube.com/watch?v=7GEan3dgcUA](https://www.youtube.com/watch?v=7GEan3dgcUA)
+
+「トラウマ」MV　-波羅ノ鬼（ハラノオニ）-
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 20136#       发表于 2020-5-6 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317400&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-6 09:25</a>
+
+你又知道
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来你不知道那我给你翻出来了，古神4.5放风4.14早上敲定4.16出货，同时14号当晚兔神事件开始发酵
+
+
+而兔神的情况根据内鬼说的是她2月起的念头，3月上旬开始准备（兔组宣称会做准备是得到对面肯首的）3月中开始交接（同样是兔组宣称）然后没后文
+
+
+另外你顺劈的公主是3月中放风，3月末字幕组说明疫情关系交接缓慢，4.7出货
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20137#       发表于 2020-5-6 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317605&amp;ptid=1924531" target="_blank">free 发表于 2020-5-6 09:48</a>
+
+啥，波罗鬼就是纯视频歌势啊，不过有一次街头live来着，其实她们团队能看出来很厉害，广告也打了不少，上 ...</blockquote>
+我刚才搜的时候看了，感觉还挺好的，就是特殊时期3d势都没办法进行活动吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proto  
+##### 20138#       发表于 2020-5-6 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47317609&amp;ptid=1924531" target="_blank">forzen 发表于 2020-05-06 09:49:11</a>
+看来你不知道那我给你翻出来了，古神4.5放风4.14早上敲定4.16出货，同时14号当晚兔神事件开始发酵
+
+
+而兔 ...</blockquote>古神头一次B限前就开始在私下学汉语了。有了基础再学点汉语歌，准备起来肯定快很多。棉花糖反而要走字幕组-运营-主播-字幕组的流程。
+另外公主那次棉花糖的质量挺让人印象深刻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限打火机  
+##### 20139#       发表于 2020-5-6 10:01
+
+
+
+
+稍微去V8趴了下，给坛友repo一下转折，有谜语人出现，又是问兔皇给字幕组q限爽不爽的，又问lol开不开心的，兔组内鬼解释兔组里只是开语音聊天哪有兔皇来q限，谜语人又打出语音的时间和人员，然后就在那儿吞吞吐吐说自己也不清楚，目前谜语人黑屁成分较大，不过也成功搅乱了局势
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 20140#       发表于 2020-5-6 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316207&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-6 02:58</a>
+确实有被恶心到（（（
+
+
+瑞士t台有这么养噶吃吗？怪不得和肥希星川这帮人关系这么好.......</blockquote>
+确实......确实有点恶哈<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">不过我只是大晚上不清醒啦，不是噶吃哦。
+
+虽然T台郡道确实可爱，但这也不算养噶吃吧，又舔了别的男人，又展示自己有钱一面，完全没诉苦，就是个比观众有钱而且薄情的女的在小声直播而已啊？按量表来看没在养嘛。
+
+cp这个，可能我和他们对mrra一开始理解就不一样吧。尊重V设定的纯良人应该认为这一对就是大姐姐捡到恶魔幼女然后同居，在我看来就是两个不熟的同事想搞营业。她们会这么想固然有纯良的原因，更多的是他们不会去看本人的直播，翻译组引导的就是这样，后期翻译组出力的又是郡神推，转折太大，他们就只能理解为神田把郡道拐了。这当然不是说他们有错，就是对简单直接女女情的追求罢了，所以他们现在都在搞tmsk了(没有说tmsk不好的意思，我也有搞)。
+
+我的话，比较喜欢不那么明显直白的东西吧。口了RP高手，但是因为mrra大流泪而且自己主动触及到中之人话题(大概是唯一一次)，郡道社交高手，和谁都能流畅交流、和谁吵架都能和好但就除了口了。复杂的关系性，真实的情感，即使是看V，我也想要真物，mrra就是看到这两人的真心的一个工具。
+
+不过当然是爱郡道多一点，以前就是单推哦
+
+看我讲了这么多，作文哥你就改改瑞士这个说法吧，真的有点恶意惹
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+                            
