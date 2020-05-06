@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 00:09** 
+> ## **本文件最后更新于2020-05-07 02:08** 
 
 
 
@@ -19421,7 +19421,7 @@ b站从上往下俯视的那张系绳胖次的涩图炸了，有人发一下吗�
 
 
 1588721995632.png
-(195.61 KB, 下载次数: 8)
+(195.61 KB, 下载次数: 9)
 
 
 
@@ -25844,10 +25844,13 @@ msc也会恰小v的人血馒头的。。。我觉得咩姐如果vtuber做的一�
 
 
 
+ 本帖最后由 2014720 于 2020-5-7 00:12 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326807&amp;ptid=1929631" target="_blank">惑星 发表于 2020-5-7 00:02</a>
 妈的，尊驾小博禹？
 我记得18年不是szl吗，szlbiss</blockquote>
 话说szl某个视频到现在还有人去看，这他妈绝对有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然不知道是谁在天天给新人讲这些，确定不是害人家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 
@@ -25936,6 +25939,29 @@ szl都车回来了草，这些东西在你楼应该都已经车过了
 
 
 （你咩姐怎么还不来快乐osu
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 4500#       发表于 2020-5-7 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326864&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-7 00:08</a>
+
+都是蝴蝶效应，国内不火谁管她跟谁玩LOL啊，就算有人盯着也不会有这么大的讨论度了
+
+
+（你咩姐怎么还 ...</blockquote>
+怕是已经玩上了忘记开播
+
+おやすみ
 
 
 

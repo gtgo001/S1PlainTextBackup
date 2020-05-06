@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 00:07** 
+> ## **本文件最后更新于2020-05-07 02:06** 
 
 
 
@@ -5016,11 +5016,11 @@ syl，我怎么觉得虹最近大赛的冠军都是男v<img src="https://static.
 
 
 
-<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_lfDu7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_t1OpO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 https://twitter.com/Sco_ttie/status/1257597617019613186
 
 
-<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_U33yO" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_QwaBA" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1](https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1)
 
 
@@ -6292,7 +6292,7 @@ yagoo摁着夏心夸的头五一高强度b限了一圈，到底给他们许了�
 
 
 
-<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_rB7Hv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_b2nM4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
@@ -6474,7 +6474,7 @@ vjuan击剑好像是白夜那边带起来的？
 
 
 
-虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_aJLUy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_JHZ59" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -14099,7 +14099,7 @@ Replying to @minatoaqua
 
 
 小天使gachi老哥今天怎么没发图啊，来点小天使Power<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EXR4_3HUYAAkeZz?format=jpg&amp;name=medium" id="aimg_Qvxvi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXR4_3HUYAAkeZz?format=jpg&amp;name=medium" id="aimg_CY1zP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26103,7 +26103,7 @@ b站早期那直播平台，基本没人会觉得有前途吧…………
 
 
 3.png
-(342.3 KB, 下载次数: 1)
+(342.3 KB, 下载次数: 2)
 
 
 
@@ -27560,7 +27560,7 @@ https://www.youtube.com/watch?v=JddbVfaUt3I</blockquote>
 
 
 E76I_KV6TTCGOTK7O$AGMOE.png
-(1.04 MB, 下载次数: 0)
+(1.04 MB, 下载次数: 1)
 
 
 
@@ -27849,9 +27849,9 @@ syl，mkjk只要营业一天我就会顺劈，这也是rp的一环<img src="http
 
 
 
- 本帖最后由 18300625949 于 2020-5-7 00:03 编辑 
+ 本帖最后由 18300625949 于 2020-5-7 01:18 编辑 
 
-突然感觉花寄和爆炸前的点箱好像啊，我理解点生活粉丝的感受了，脑补了花丸鹿乃对撕的情景，想想都很绝望啊。
+突然感觉花寄和爆炸前的点箱好像啊，我理解点生活粉丝的感受了。
 
 
 
@@ -27875,4 +27875,721 @@ syl，mkjk只要营业一天我就会顺劈，这也是rp的一环<img src="http
 
 
 
- 
+
+
+-----
+
+####  QWANG  
+##### 20949#       发表于 2020-5-7 00:07
+
+
+
+
+点是在管人初期才能形成那副模式的，现在你要复制当初的点还真不大可能。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20950#       发表于 2020-5-7 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326597&amp;ptid=1924531" target="_blank">保罗赫伯特 发表于 2020-5-6 23:44</a>
+
+云二刺猿的人太多</blockquote>
+论赚钱，搞不好他们才是真正的二次元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 20951#       发表于 2020-5-7 00:07
+
+
+
+
+栞桜刚在宣传花季<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 20952#       发表于 2020-5-7 00:08
+
+
+
+
+雪山没啥可以解读的，事实证明白姨已经是vliver的精神领袖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 20953#       发表于 2020-5-7 00:10
+
+
+
+<blockquote>格林卡罗尔 发表于 2020-5-7 00:07
+栞桜刚在宣传花季</blockquote>
+这是从花寄上看到当年令人怀念的影子的意思么_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 20954#       发表于 2020-5-7 00:11
+
+
+
+
+现在回想起来还会是怀念的影子吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 20955#       发表于 2020-5-7 00:13
+
+
+
+
+怀念初期的影子与厌恶现在的点并没有冲突_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 20956#       发表于 2020-5-7 00:13
+
+
+
+
+一个大物，一个BLS亚军，只有四个人，就能等级分明成这样了，怎么撕啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20957#       发表于 2020-5-7 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，匹配到上赛季猎杀者大佬了，直接一个人杀完吃鸡。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20958#       发表于 2020-5-7 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小心言出法随阿，不过画寄不才4个人？这也斗得起来吗
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 20959#       发表于 2020-5-7 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326854&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-7 00:07</a>
+
+论赚钱，搞不好他们才是真正的二次元</blockquote>
+maybe<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 20960#       发表于 2020-5-7 00:16
+
+
+
+
+4个人还是挺好管理的吧，没那么容易炸
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 20961#       发表于 2020-5-7 00:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四个人要是炸了，打麻将凑不齐一桌怎么办
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 20962#       发表于 2020-5-7 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326949&amp;ptid=1924531" target="_blank">a37356205 发表于 2020-5-7 00:16</a>
+
+四个人要是炸了，打麻将凑不齐一桌怎么办</blockquote>
+三麻其实也挺好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| oshinoshinobu| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20963#       发表于 2020-5-7 00:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">话说点和花是什么氛围啊，听说点很有箱感，日常接力直播不撞车，很少外联，但是又禁止liver私联，所以专业RP？
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 20964#       发表于 2020-5-7 00:27
+
+
+
+
+只是形容<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">。花寄不会炸的，四个兼职怎么炸啊……
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 20965#       发表于 2020-5-7 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326802&amp;ptid=1924531" target="_blank">18300625949 发表于 2020-5-7 00:02</a>
+
+突然感觉花寄和爆炸前的点箱好像啊，我理解点生活粉丝的感受了，脑补了花丸鹿乃对撕的情景，想想都很绝望啊 ...</blockquote>
+给点瓜吃呗？什么情况？
+
+
+
+
+
+
+
+-----
+
+####  小神sun  
+##### 20966#       发表于 2020-5-7 00:37
+
+
+
+
+真是感叹，猫猫今年年初才十多万粉到现在已经突破三十万了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 20967#       发表于 2020-5-7 00:51
+
+
+
+
+鹿乃又当选手又当裁判的，这撕不起来的，不如说点生活当时让小白多在内部活动哪轮得到蛋蛋
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 20968#       发表于 2020-5-7 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换头怪不过是B站想主流进出失败产物罢了，是为了拉换头粉丝来b站，哪有那么复杂，说白了P站高管自己都看不起mmr二次元
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 20969#       发表于 2020-5-7 01:00
+
+
+
+
+四个人凭啥不能斗，按你楼提供的情报，杏cn从两个人就开始斗，每多一个人就能换一种新斗法，哪怕最近的大联动还能五缺一呢。
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 20970#       发表于 2020-5-7 01:00
+
+
+
+
+不懂就问，mmr是什么意思呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20971#       发表于 2020-5-7 01:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果P站的个人势真的有P站在背后操盘的话，今年应该还要再诞生几个金盾，毕竟任由holo在国内市场独大敷衍B限同时反哺日本本土并不符合P站的利益，扶更多专注P站市场的个人势，无论是可控性还是利益上都对P站更优。P站应该是有意打通视频和直播的市场渠道，好让Up主的流量能在直播区直接变现，同时虚拟主播和观众对P站的黏性又显著高于真人主播，真人主播扶工会和虚拟区扶个人势，P站自己就是虚拟区的大工会，这应该是P站的新战略了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 20972#       发表于 2020-5-7 01:03
+
+
+
+
+花寄这四位还有什么矛盾的吗，我只听歌不太关注，谁能大概说说...
+
+
+
+
+
+
+
+-----
+
+####  小神sun  
+##### 20973#       发表于 2020-5-7 01:04
+
+
+
+<blockquote>PekoPekoPeko 发表于 2020-5-7 01:00
+不懂就问，mmr是什么意思呢</blockquote>
+萌萌人
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 20974#       发表于 2020-5-7 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47325362&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-05-06 21:53:40</a>
+说到憨色这可能是我在mmr时代真正第一个噶吃的网红（？）了。无论是启蒙唱见方面还是启蒙吹替方面都有很深 ...</blockquote>憨色身边这几个人都是谁啊？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 20975#       发表于 2020-5-7 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327290&amp;ptid=1924531" target="_blank">被雨困住的城市 发表于 2020-5-7 01:05</a>
+憨色身边这几个人都是谁啊？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+“网络世界我cnm！你把多少人的生活，都tm毁了！”
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 20976#       发表于 2020-5-7 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327327&amp;ptid=1924531" target="_blank">mmbk 发表于 2020-05-07 01:12:16</a>
+“网络世界我cnm！你把多少人的生活，都tm毁了！”</blockquote>啊？我不是很懂梗啊，求解释谢谢啦
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 20977#       发表于 2020-5-7 01:17
+
+
+
+ 本帖最后由 榊城翼 于 2020-5-7 01:34 编辑 
+
+记错人了编辑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 20978#       发表于 2020-5-7 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47325362&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-6 21:53</a>
+说到憨色这可能是我在mmr时代真正第一个噶吃的网红（？）了。无论是启蒙唱见方面还是启蒙吹替方面都有很深 ...</blockquote>
+请问您最后提到的憨色身边这些人都是谁呢，谢谢啦
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 20979#       发表于 2020-5-7 01:20
+
+
+
+
+我真的只是形容下啊……花寄四人目前看来没有矛盾，四人私交很好，小东甚至在鹿乃家住了一个月。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 20980#       发表于 2020-5-7 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327340&amp;ptid=1924531" target="_blank">被雨困住的城市 发表于 2020-5-7 01:15</a>
+啊？我不是很懂梗啊，求解释谢谢啦
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+[https://mzh.moegirl.org/神威鬼鸣](https://mzh.moegirl.org/神威鬼鸣)
+
+看看就好，别当真
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20981#       发表于 2020-5-7 01:31
+
+
+
+<blockquote>飞姆托 发表于 2020-5-7 00:59
+换头怪不过是B站想主流进出失败产物罢了，是为了拉换头粉丝来b站，哪有那么复杂，说白了P站高管自己 ...</blockquote>
+看不起二次元的高管搞了个出圈笑话，为进出主流添砖献瓦。
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 20982#       发表于 2020-5-7 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327402&amp;ptid=1924531" target="_blank">mmbk 发表于 2020-5-7 01:26</a>
+
+https://mzh.moegirl.org/神威鬼鸣
+
+
+看看就好，别当真</blockquote>
+但是这只是其中一位吧= =还有几个呀……
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 20983#       发表于 2020-5-7 01:35
+
+
+
+<blockquote>被雨困住的城市 发表于 2020-5-7 01:33
+但是这只是其中一位吧= =还有几个呀……</blockquote>
+还有yukiri和三无marblue
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 20984#       发表于 2020-5-7 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327421&amp;ptid=1924531" target="_blank">被雨困住的城市 发表于 2020-5-7 01:33</a>
+
+但是这只是其中一位吧= =还有几个呀……</blockquote>
+于玥-神威鬼鸣
+
+
+雪mm-yukiri
+
+
+三无-三无marblue
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 20985#       发表于 2020-5-7 01:51
+
+
+
+
+威秋霸又是谁啊，泠鸢yousa？
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 20986#       发表于 2020-5-7 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327461&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-7 01:43</a>
+于玥-神威鬼鸣
+
+
+雪mm-yukiri</blockquote>
+威秋霸又是谁啊，泠鸢yousa？
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 20987#       发表于 2020-5-7 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327494&amp;ptid=1924531" target="_blank">被雨困住的城市 发表于 2020-5-7 01:52</a>
+
+威秋霸又是谁啊，泠鸢yousa？
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+vtuber，这个区的名字
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 20988#       发表于 2020-5-7 01:57
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-5-7 02:03 编辑 
+<blockquote>被雨困住的城市 发表于 2020-5-7 01:52
+威秋霸又是谁啊，泠鸢yousa？
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+翻了下上下文，感觉说错了。尾宝说的vtb应该是猫猫，最近憨色和猫猫有联动。
+
+
+
+
+
