@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 20:08** 
+> ## **本文件最后更新于2020-05-06 22:10** 
 
 
 
@@ -22328,4 +22328,340 @@ osu这个游戏对大部分人来说还是硬核了一点
 
 
 
-       
+
+
+-----
+
+####  Sabishi_Jiku  
+##### 4288#       发表于 2020-5-6 20:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47324006&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-6 19:40</a>
+
+麻将妹对龙龟是有多怨念....话说龙龟玩的真的很差吗……不打lol的不太清楚…… ...</blockquote>
+大概是可以拉出去毙了的那种差
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rem-清曲| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4289#       发表于 2020-5-6 20:20
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/95683ec98be28ccf046b0738ec8963c0/F8235D9BEBC529F9FC7B42491C595C5D.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104| + 1|欢乐多|
+| 素人不相识| + 1|草死|
+| h1001010| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4290#       发表于 2020-5-6 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47324399&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 20:20</a>
+草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">魅芽诸葛亮说
+一切都是她安排好的预谋
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 4291#       发表于 2020-5-6 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47324399&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-6 20:20</a>
+
+草</blockquote>
+<img src="https://timgsa.baidu.com/timg?image&amp;quality=80&amp;size=b9999_10000&amp;sec=1588779685801&amp;di=ab676fb4bc8b320a59246ef949e4ee6d&amp;imgtype=0&amp;src=http%3A%2F%2Fb-ssl.duitang.com%2Fuploads%2Fitem%2F201701%2F20%2F20170120144807_m5JCE.jpeg" referrerpolicy="no-referrer">
+附圖:星航指揮官諸葛亮
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4292#       发表于 2020-5-6 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47324774&amp;ptid=1929631" target="_blank">病態極端 发表于 2020-5-6 20:54</a>
+附圖:星航指揮官諸葛亮</blockquote>
+衣服根本不一样，但帽子还挺像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4293#       发表于 2020-5-6 21:56
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/215609vvnhzwm9s3m8zh5x.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (32.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 21:56 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/06/215620sztvfhfti7ua6n2f.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (57 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-6 21:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4294#       发表于 2020-5-6 22:01
+
+
+
+
+怎么上来就聊上了草，吓我一跳
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4295#       发表于 2020-5-6 22:03
+
+
+
+
+这是nijisanji几期生？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4296#       发表于 2020-5-6 22:05
+
+
+
+
+没转播吗？完蛋……
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|斗鱼4629|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4297#       发表于 2020-5-6 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47325489&amp;ptid=1929631" target="_blank">离心 发表于 2020-5-6 22:05</a>
+没转播吗？完蛋……</blockquote>
+斗鱼应该有吧，记得搜animare有个老哥一直在转
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4298#       发表于 2020-5-6 22:06
+
+
+
+<blockquote>离心 发表于 2020-5-6 22:05
+没转播吗？完蛋……</blockquote>
+k1转了，斗鱼
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4299#       发表于 2020-5-6 22:06
+
+
+
+
+夏哥也是清楚担当了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4300#       发表于 2020-5-6 22:06
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-6 22:06
+斗鱼应该有吧，记得搜animare有个老哥一直在转</blockquote>
+现在那边还在转绿熊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4301#       发表于 2020-5-6 22:06
+
+
+
+
+看到了，谢谢各位了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4302#       发表于 2020-5-6 22:08
+
+
+
+
+这几个人真是不出所料<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+
+
+      
