@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 14:07** 
+> ## **本文件最后更新于2020-05-06 16:08** 
 
 
 
@@ -18088,12 +18088,10 @@ mea粉里自然有阿夸anti，但是好歹联动也算正常的mea直播内容�
 
 
 
- 本帖最后由 noaki 于 2020-5-6 05:21 编辑 
+ 本帖最后由 noaki 于 2020-5-6 15:16 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47316169&amp;ptid=1929631" target="_blank">面具13 发表于 2020-5-6 02:41</a>
 有些人天天喊着看到meaqua就想吐，其实隐藏的话是看到和aqua贴贴营业的mea就想吐，这种人大概只有三种可能 ...</blockquote>
-虽然我明白你在这个时候说这个想表达的意思也表示理解。但你这李克忠的口吻看着着实讨厌，比起这个像''讨厌aqua的都是**''这样更容易让人接受一些。
-
-说起来，您说说，像我这样现在''看meaqua相关（联动，单人直播和平台互动）时没什么特别的感觉，单看夸只限歌回和fanart。但就当某些人狂热到把这俩人说的一字一句都能解读到上床磨批（字面意思）这种程度时就特别恶心，当这人还是字幕组的人时就更恶心了''的是算在哪个帽子里的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+啊哈
 
 
 
@@ -19423,7 +19421,7 @@ b站从上往下俯视的那张系绳胖次的涩图炸了，有人发一下吗�
 
 
 1588721995632.png
-(195.61 KB, 下载次数: 4)
+(195.61 KB, 下载次数: 6)
 
 
 
@@ -19938,11 +19936,31 @@ yysy，突然想起了以前的自己，感觉欠人家一个道歉<img src="htt
 
 
 
+ 本帖最后由 路人庚 于 2020-5-6 14:08 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320074&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 13:44</a>
 
 不管是谁舔谁也好，看到心爱的女人在眼前和别的男人搞暧昧，我怎么样都还是感觉好难受，好难受就 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道你从啥时候开始看的，但你咩姐从出道就开始和男人玩一路过来只有19年上半年被抓去搞百合营业的时候稍微停了会现在只不过回到出道那时候的风格罢了，看的多了自然还真就觉得五元mea没什么特殊的了，你非要在意这点其实稍微有点莫名建议多去看几遍龙宫脑海（顺便一提龙宫脑海剪辑一度是我最爱看的剪辑前五，没事就会拿出来乐呵一下）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道你从啥时候开始看的，但你咩姐从出道就开始和男人玩一路过来只有19年上半年被抓去搞百合营业的时候稍微停了会现在只不过回到出道那时候的风格罢了，看的多了自然还真就觉得五元mea没什么特殊的了，你非要在意这点其实稍微有点莫名建议多去看几遍龙宫闹海（顺便一提龙宫闹海剪辑一度是我最爱看的剪辑前五，没事就会拿出来乐呵一下）
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1|我也特别喜欢龙宫闹海片段！|
+
+
+
+查看全部评分
 
 
 
@@ -20096,4 +20114,586 @@ yysy，突然想起了以前的自己，感觉欠人家一个道歉<img src="htt
 
 
 
-           
+
+
+-----
+
+####  路人庚  
+##### 4163#       发表于 2020-5-6 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320190&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 13:56</a>
+
+你说的我都知道，但我就是无法接受，没办法，无论怎么安慰自己，看到她在眼前和别的男人搞暧昧就是非常难 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我可以顺便问一下你怎么看前段时间那次mea对着帅哥音观众发情的片段？我觉得这应该比五元mea的杀伤力还大啊，毕竟五元只是个表演者，而你的身份是个观众，但现在有个身份一致的观众让你咩姐发情了，这刺激不到你吗？
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4164#       发表于 2020-5-6 14:10
+
+
+
+
+先别看了找朋友同学玩玩吧，你这样有点像在死胡同里出不来
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4165#       发表于 2020-5-6 14:21
+
+
+
+
+啊这，节目效果觉着好就看不好就不看，和五元有关的不看就好了，近期除了合唱其他都不在她频道吧，眼不见心不烦，而且俺寻思她还是未成年啊，不会真有人要对她来真的吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4166#       发表于 2020-5-6 14:23
+
+
+
+
+打住啊打住，太阴湿了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4167#       发表于 2020-5-6 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320311&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 14:08</a>
+
+那我可以顺便问一下你怎么看前段时间那次mea对着帅哥音观众发情的片段？我觉得这应该比五元mea的 ...</blockquote>
+是那期推特念台词的节目吗，大概是因为那次是和很多观众都有互动吧，也不只那一个，包括我自己也有机会，也可能是因为那次算是有点回馈观众们的感觉？而且因为我明白就算假如咩真的喜欢那个观众，会去交往也是私下里进行的，不会直播表演出来，我对她私下里怎么生活不在意的，我也没有阻止她追求自己幸福的权力。而且发情的时间也就一会儿，不会说专门搞次直播全程都是和那个观众互动，那样我大抵也是受不了的。就算是五元，我一开始虽然也很难受，但还能勉强忍受住，后来不断的搞直播，就像一次次的给我挂上负重，越来越难受，到现在，我已经不知道下一次承不承受的住了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4168#       发表于 2020-5-6 14:24
+
+
+
+
+我就是真的纯gachi恋啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+再未成年也才比我小三岁啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4169#       发表于 2020-5-6 14:28
+
+
+
+
+没有噶吃黑泥群之类的东西吗
+
+过会我去v8看看有没有挂你们的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4170#       发表于 2020-5-6 14:34
+
+
+
+
+那还是建议别看，不看就没有烦恼，咩姐就算不和舞元联动也有可能找新的男v玩
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4171#       发表于 2020-5-6 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320493&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 14:24</a>
+
+是那期推特念台词的节目吗，大概是因为那次是和很多观众都有互动吧，也不只那一个，包括我自己也有机会， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以比起真实性你更在意的是表演性吗？那问题又绕回去了，（大概是）众所周知，最初的那次舞元mea联动是有充足的台本支撑的，而且至少在直播开始前20分钟就已经在幕后联络了，苔苔也是全程监督按部就班的进行，可以类比是全程照稿念的朗诵比赛，虽然这个演讲稿大概有点过激。然而后面的数次舞元mea联动可以明显看出来没有什么台本，mea也对舞元的态度冷淡了起来（反而开始找时雨妈妈聊了）。在之后的mea单人直播面对舞元内容刷屏的时候她也很少给出积极应对。所以在这种mea已经开始转冷的情况下你依然觉得会增加“负重”我觉得好像有点不太对，相当于无视了mea自己的想法和努力，依旧在脑补她还是像最初跟舞元卿卿我我一样。
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4172#       发表于 2020-5-6 14:41
+
+
+
+
+hxd，跟我一起去冲了苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4173#       发表于 2020-5-6 14:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">苔苔最初种的梁木实在是又大又粗，导致后面咩姐开始转冷都收效甚微，都是孽啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4174#       发表于 2020-5-6 14:44
+
+
+
+
+木头都生产过剩了， 你们就不能减少产量吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4175#       发表于 2020-5-6 14:46
+
+
+
+
+梁木一但种植就难以拔除啊，抵制种植梁木，人人有责<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4176#       发表于 2020-5-6 14:47
+
+
+
+
+所以兔姨是怎么想到自己鸽了联动然后硬拉个五元进来的，我有、怀疑她要开始算计阿咩了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4177#       发表于 2020-5-6 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320595&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 14:36</a>
+
+所以比起真实性你更在意的是表演性吗？那问题又绕回去了，（大概是）众所周知，最初的那次舞元mea ...</blockquote>
+最初之后其实还有一次对舞元很积极的，就是mea和狗蛋和兔子一起聊天的那个晚上，那次是真的刺激到我了，到现在都还有很深的阴影，甚至看到咩的短发造型就有点失控。不是在意表演性或者真实性，而是不想看到或者听到自己爱的女人在面前表演和别的男人暧昧，如果是线下找了男朋友，我也会不甘心，但大抵也是会祝福的，但这样表演出来，就像在不断的刺激我，令我不断的痛苦。你说的后面对舞元态度冷淡了起来，我也知道，但我也无法控制我自己，看到他们两个一起联动，还是会难过，非常难过，真的没有办法，我自己也找了很多理由来安慰自己，你说的我也用过，但没太大用，我也不知道怎么了，就像之后和舞元打麻将，如果咩态度冷淡，我可能会好受一点，但依然感觉痛苦的快要发疯，而且随着8号的不断靠近，难受的感觉也越加深重，我也不知道怎么办了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4178#       发表于 2020-5-6 14:50
+
+
+
+
+时间对的上加上舞元正好也会打麻将（而且咩姐之前也想找舞元打麻将），就凑一桌了呗，毕竟咩姐也说了跟舞元的关系跟司会差不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4179#       发表于 2020-5-6 14:52
+
+
+
+
+她甚至想过把舞元和尼哥约出来然后自己鸽了让他们两个约会
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4180#       发表于 2020-5-6 14:53
+
+
+
+
+你们不会真有梁木吧，不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+批站不是有个v和mea声音很像吗，建议推那个，那个听说很宠粉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4181#       发表于 2020-5-6 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320697&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-6 14:48</a>
+
+最初之后其实还有一次对舞元很积极的，就是mea和狗蛋和兔子一起聊天的那个晚上，那次是真的刺激到我了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说你的ptsd有点严重了，mea苔苔兔子聊天后面不也还有个究极冷场MC么，可惜因为直播效果真的不行所以没什么人烤，如果你能看明白那次MC的话大概ptsd会好很多
+
+
+既然想了很多办法都没用那只能建议8号的时候多玩玩黄油了，别翻论坛，过了8号直接点最后一页完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4182#       发表于 2020-5-6 14:56
+
+
+
+
+突然想说点缺德段子，
+
+还是基德基德吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4183#       发表于 2020-5-6 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320780&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 14:55</a>
+
+只能说你的ptsd有点严重了，mea苔苔兔子聊天后面不也还有个究极冷场MC么，可惜因为直播效果真的不 ...</blockquote>
+是我自己困住了自己吗？这是我错了吗，但我也无法解决了，不知道怎么办好，无论怎么想，怎么安慰自己，我心中最后想的都只有喜欢咩啊，超喜欢她，最喜欢她了，不想看到联动，痛苦，难受，想要打自己一拳，讨厌舞元，讨厌狗蛋，恨的咬牙切齿，但又不想做任何会伤害到她的事，有些时候想做些事情转移注意力，一不注意就已经在发呆了，又想起这件事，真的好难受<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4184#       发表于 2020-5-6 14:58
+
+
+
+
+少缺点德吧，我大抵猜得到这位是谁，都有了v版了在外面几个mea相关楼缺缺德就得了。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4185#       发表于 2020-5-6 15:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老哥，多和朋友出去玩玩，有空找点心理咨询吧，你这精神状态我害怕
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 4186#       发表于 2020-5-6 15:02
+
+
+
+
+还用猜是谁吗，矩阵你还是去实验室做你的实验去把，别给疫情憋坏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 4187#       发表于 2020-5-6 15:06
+
+
+
+
+打麻将干嘛不叫我，我可能放铳了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4188#       发表于 2020-5-6 15:21
+
+
+
+
+不是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+人的悲喜并不相通，我只想给五元一拳
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4189#       发表于 2020-5-6 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47320098&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-6 13:47</a>
+
+yysy，突然想起了以前的自己，感觉欠人家一个道歉
+
+更何况小麻这还是演的剧本，我那个是真的，，，[f ...</blockquote>
+侠茶坐，说出你的故事<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4190#       发表于 2020-5-6 15:45
+
+
+
+
+就只有我没有故事了吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4191#       发表于 2020-5-6 15:48
+
+
+
+
+什么？clay和他女朋友因为mea分了？（）
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4192#       发表于 2020-5-6 15:49
+
+
+
+
+至少clay爱的还是女人
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 4193#       发表于 2020-5-6 16:03
+
+
+
+
+我记得几个月前clay还说要当s1的信鸽，现在已经彻底疯了，管人害人不浅！
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4194#       发表于 2020-5-6 16:06
+
+
+
+
+管人害人不浅（×）在论坛看管人害人不浅（√）
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4195#       发表于 2020-5-6 16:06
+
+
+
+
+clay不行（摇头
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 4196#       发表于 2020-5-6 16:06
+
+
+
+
+ 选个木制武器，然后刷剑冢 ，武器掉持久就修，很快就把木头消耗完了。
+
+
+
+
+
+          
