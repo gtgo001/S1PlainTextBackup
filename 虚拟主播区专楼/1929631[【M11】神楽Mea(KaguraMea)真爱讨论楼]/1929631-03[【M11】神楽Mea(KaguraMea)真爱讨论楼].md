@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 22:10** 
+> ## **本文件最后更新于2020-05-07 00:09** 
 
 
 
@@ -22470,7 +22470,7 @@ osu这个游戏对大部分人来说还是硬核了一点
 <img src="https://img.saraba1st.com/forum/202005/06/215609vvnhzwm9s3m8zh5x.png" referrerpolicy="no-referrer">
 
 
-<strong>1.png</strong> (32.88 KB, 下载次数: 0)
+<strong>1.png</strong> (32.88 KB, 下载次数: 1)
 
 下载附件
 
@@ -22664,4 +22664,3280 @@ k1转了，斗鱼
 
 
 
-      
+
+
+-----
+
+####  暗心舞踏  
+##### 4303#       发表于 2020-5-6 22:10
+
+
+
+
+不愧是重口味组合
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4304#       发表于 2020-5-6 22:11
+
+
+
+
+今天江赢了吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4305#       发表于 2020-5-6 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话题也太糟糕了，夏哥说小强喜欢钻洞……emmmmmm
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 4306#       发表于 2020-5-6 22:14
+
+
+
+
+哈哈哈
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4307#       发表于 2020-5-6 22:14
+
+
+
+
+上了趟厕所回来一看好像错过了什么很劲爆的东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4308#       发表于 2020-5-6 22:14
+
+
+
+
+还想要熟肉的…现在看不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4309#       发表于 2020-5-6 22:15
+
+
+
+
+永远谈不腻的话题
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4310#       发表于 2020-5-6 22:15
+
+
+
+
+怎么又是摘花话题，惊了......
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4311#       发表于 2020-5-6 22:15
+
+
+
+
+又是车轱辘又是车轱辘又是车轱辘<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4312#       发表于 2020-5-6 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个话题已经是经典老番了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4313#       发表于 2020-5-6 22:16
+
+
+
+
+就不能改一下吗，换成拉屎什么的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  升级似自己家  
+##### 4314#       发表于 2020-5-6 22:16
+
+
+
+
+车轱辘转起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4315#       发表于 2020-5-6 22:17
+
+
+
+
+加料了，这波是水声引起的条件反射<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4316#       发表于 2020-5-6 22:18
+
+
+
+
+？？？
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4317#       发表于 2020-5-6 22:18
+
+
+
+
+？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4318#       发表于 2020-5-6 22:19
+
+
+
+
+炼金术师<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4319#       发表于 2020-5-6 22:20
+
+
+
+
+小麻快跑！
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4320#       发表于 2020-5-6 22:20
+
+
+
+
+小麻快跑！
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4321#       发表于 2020-5-6 22:21
+
+
+
+
+都是麻姨了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4322#       发表于 2020-5-6 22:22
+
+
+
+
+gbr想要铜妈妈  小麻不行的
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4323#       发表于 2020-5-6 22:22
+
+
+
+
+想想炼金术师也看不上你麻，要不姨了，要不坦了，总之肉体民大失败<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4324#       发表于 2020-5-6 22:22
+
+
+
+
+小心马自立（真）<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4325#       发表于 2020-5-6 22:22
+
+
+
+
+夏哥真tm可怕
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4326#       发表于 2020-5-6 22:23
+
+
+
+
+小心马自立（确信）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4327#       发表于 2020-5-6 22:23
+
+
+
+
+这真的没问题吗......
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 4328#       发表于 2020-5-6 22:24
+
+
+
+
+感觉夏哥参加这类活动表演的rp有点过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4329#       发表于 2020-5-6 22:24
+
+
+
+
+嗨，夏哥日常操作。都习惯了……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4330#       发表于 2020-5-6 22:25
+
+
+
+
+草，不愧是你
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4331#       发表于 2020-5-6 22:26
+
+
+
+
+夏哥，，，算了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4332#       发表于 2020-5-6 22:26
+
+
+
+
+蠱毒配信<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4333#       发表于 2020-5-6 22:26
+
+
+
+
+不是  你一定要加最后一句吗<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4334#       发表于 2020-5-6 22:27
+
+
+
+
+帅哥死宅可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  升级似自己家  
+##### 4335#       发表于 2020-5-6 22:27
+
+
+
+
+又是池面又是池面又是池面，气抖冷，宅宅什么时候才能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4336#       发表于 2020-5-6 22:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喂喂，那边白头发的 口水擦一擦 醒醒
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4337#       发表于 2020-5-6 22:28
+
+
+
+ 本帖最后由 若风之景 于 2020-5-6 22:31 编辑 
+
+什么意思？本音还行 。这也能出事？
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4338#       发表于 2020-5-6 22:28
+
+
+
+
+死宅又被迫害了……
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4339#       发表于 2020-5-6 22:28
+
+
+
+
+别逗我，S1不会真有死宅吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4340#       发表于 2020-5-6 22:29
+
+
+
+
+整成山崎贤人就有机会了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4341#       发表于 2020-5-6 22:31
+
+
+
+
+艹，被整改了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4342#       发表于 2020-5-6 22:31
+
+
+
+
+草转播ban掉了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4343#       发表于 2020-5-6 22:31
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 4344#       发表于 2020-5-6 22:32
+
+
+
+
+一边打ff一边交公粮的神田真惨啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 4345#       发表于 2020-5-6 22:34
+
+
+
+
+所以说君道平常都是全裸six配信？
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4346#       发表于 2020-5-6 22:34
+
+
+
+
+b站还有转
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4347#       发表于 2020-5-6 22:35
+
+
+
+
+简单？的问题来了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4348#       发表于 2020-5-6 22:35
+
+
+
+
+这个我一开始以为是你咩来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4349#       发表于 2020-5-6 22:35
+
+
+
+
+这郡道老师尝试拉你咩下水<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其心可诛
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4350#       发表于 2020-5-6 22:36
+
+
+
+
+苔苔到底被多少人哭诉过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4351#       发表于 2020-5-6 22:36
+
+
+
+
+果然苔苔也是时间管理大师  真忙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4352#       发表于 2020-5-6 22:36
+
+
+
+
+我也猜错了
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4353#       发表于 2020-5-6 22:36
+
+
+
+
+草，这小麻又黑屁苔苔
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 4354#       发表于 2020-5-6 22:37
+
+
+
+
+17岁的27岁太草了
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 4355#       发表于 2020-5-6 22:47
+
+
+
+
+水龙敬乐园太草了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4356#       发表于 2020-5-6 22:48
+
+
+
+
+居然
+总是在奇怪的地方莫名其妙
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4357#       发表于 2020-5-6 22:48
+
+
+
+
+她这回答真的像是乡下的国中生。。。。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4358#       发表于 2020-5-6 22:48
+
+
+
+
+遵纪守法咩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4359#       发表于 2020-5-6 22:48
+
+
+
+
+正能量主播?
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4360#       发表于 2020-5-6 22:48
+
+
+
+
+好孩子（｡ò ∀ ó｡）
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 4361#       发表于 2020-5-6 22:49
+
+
+
+
+正道的光<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4362#       发表于 2020-5-6 22:49
+
+
+
+
+正能量主播，爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4363#       发表于 2020-5-6 22:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+夏哥你慢点
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4364#       发表于 2020-5-6 22:51
+
+
+
+
+大妹子别吹了 虽然我吐了   但是我不信的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4365#       发表于 2020-5-6 22:51
+
+
+
+
+这跟其他人真的不在一个级别啊夏哥(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 4366#       发表于 2020-5-6 22:52
+
+
+
+
+夏哥今天第几次冷场发言了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  CAvongola  
+##### 4367#       发表于 2020-5-6 22:52
+
+
+
+
+夏哥这种过度rp也算个人特色了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 4368#       发表于 2020-5-6 22:52
+
+
+
+
+这个能有熟肉吗
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4369#       发表于 2020-5-6 22:52
+
+
+
+ 本帖最后由 若风之景 于 2020-5-6 22:57 编辑 
+
+可怕发言，但是……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4370#       发表于 2020-5-6 22:52
+
+
+
+
+夏哥老梗了（）
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4371#       发表于 2020-5-6 22:54
+
+
+
+ 本帖最后由 2014720 于 2020-5-6 22:57 编辑 
+
+这一期的混沌深不可测
+
+草草草草，难猜
+
+fgo<img src="https://static.saraba1st.com/image/smiley/carton2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4372#       发表于 2020-5-6 22:57
+
+
+
+
+小心抽卡游戏.JPG
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4373#       发表于 2020-5-6 22:57
+
+
+
+
+我倒是想知道她氪了多少了。。。大家在喊诶，她好像没怎么出声的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4374#       发表于 2020-5-6 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">氪 金 母 猪
+
+不过算了下自己也不比她好
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4375#       发表于 2020-5-6 23:01
+
+
+
+
+经典，真是经典
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4376#       发表于 2020-5-6 23:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4377#       发表于 2020-5-6 23:02
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4378#       发表于 2020-5-6 23:02
+
+
+
+
+重用这个梗甚至很怀念
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4379#       发表于 2020-5-6 23:02
+
+
+
+
+只能车老梗了，咩郎才尽啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4380#       发表于 2020-5-6 23:02
+
+
+
+
+一 战 成 名
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4381#       发表于 2020-5-6 23:02
+
+
+
+
+老梗新用老梗新用
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4382#       发表于 2020-5-6 23:03
+
+
+
+
+果然（不过没有这个梗的话也许关注她的时间会晚一点
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4383#       发表于 2020-5-6 23:03
+
+
+
+
+该复习初配信了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4384#       发表于 2020-5-6 23:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">u1s1，你这手不动的话可能我现在不怎么会看vtb
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4385#       发表于 2020-5-6 23:04
+
+
+
+
+笑死我了，梦的开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4386#       发表于 2020-5-6 23:04
+
+
+
+
+惊天动地的一动（她改变了管人(ಥ_ಥ)）
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4387#       发表于 2020-5-6 23:05
+
+
+
+
+回首往事，我这净是可耻的一生<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4388#       发表于 2020-5-6 23:06
+
+
+
+
+有一说一，那一动确实让部分404V和阿B管人圈产生了巨大影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4389#       发表于 2020-5-6 23:06
+
+
+
+
+一问到家务这群人半天说不出一句话  只能互黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4390#       发表于 2020-5-6 23:06
+
+
+
+
+她手不动，她就不会火，她不火B站虚拟区就不会因为她而进入快速发展阶段，阿夸也不会跟着火，也许B站虚拟区爆发要等到3、4月狐狸第一次B限才能被更多的人知道。所以手冲带来了中国市场
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4391#       发表于 2020-5-6 23:06
+
+
+
+
+yysy，她手不动的话，也许会少一个有趣的vtuber吧，我也不会看v吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4392#       发表于 2020-5-6 23:06
+
+
+
+
+草，这是什么神奇环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">[
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 4393#       发表于 2020-5-6 23:07
+
+
+
+
+她不动手苔苔说不定不会出道
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 4394#       发表于 2020-5-6 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326209&amp;ptid=1929631" target="_blank">离心 发表于 2020-5-6 23:06</a>
+yysy，她手不动的话，也许会少一个有趣的vtuber吧，我也不会看v吧</blockquote>
+确实是这样
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4395#       发表于 2020-5-6 23:07
+
+
+
+
+营业妨碍车轱辘，线下可靠常识樱花妹
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4396#       发表于 2020-5-6 23:08
+
+
+
+
+蝴 蝶 效 应
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4397#       发表于 2020-5-6 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 4398#       发表于 2020-5-6 23:10
+
+
+
+
+她手没动的话，也会有另一个手动的出现的，不过历史发展的进程大不一样是肯定的
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 4399#       发表于 2020-5-6 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326205&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-6 23:06</a>
+她手不动，她就不会火，她不火B站虚拟区就不会因为她而进入快速发展阶段，阿夸也不会跟着火，也许B站虚拟区 ...</blockquote>
+有理
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4400#       发表于 2020-5-6 23:10
+
+
+
+ 本帖最后由 2014720 于 2020-5-6 23:12 编辑 
+
+想一想夸和holo在中国也不会那么火…
+可怕
+holo甚至没有崛起的世界线…会是什么样呢
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 4401#       发表于 2020-5-6 23:10
+
+
+
+
+东瀛樱花妹动了一次手，在对岸掀起了睿站中兴的后浪<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4402#       发表于 2020-5-6 23:11
+
+
+
+
+她要不动的话我只知道M楼这时候肯定开不到M11，B站V圈生态可能完全不一样，起码帕里圈子不会那么火吧（
+
+日V当时震动也蛮大的吧，虽然之前也有不少糟糕系，但是撕皮暴言荤段子行为艺术一条龙就不多了，我现在看初配信都觉得不可思议，放现在哪个新人初配信这么干我觉得基本不可能（哦S1娘可能搞点
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4403#       发表于 2020-5-6 23:11
+
+
+
+
+好开心，又好伤感，咩咩永远滴神
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 4404#       发表于 2020-5-6 23:14
+
+
+
+
+加油啊，马自立
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4405#       发表于 2020-5-6 23:14
+
+
+
+
+小饼干一样的发言<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4406#       发表于 2020-5-6 23:14
+
+
+
+
+这人不会夸人啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4407#       发表于 2020-5-6 23:14
+
+
+
+
+交流障碍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4408#       发表于 2020-5-6 23:14
+
+
+
+
+咩宝咩宝咩宝咩宝
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4409#       发表于 2020-5-6 23:15
+
+
+
+
+最后马自立这段给我一种赶时间随便交差的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4410#       发表于 2020-5-6 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326257&amp;ptid=1929631" target="_blank">zaozaoxx 发表于 2020-5-6 23:11</a>
+
+她要不动的话我只知道M楼这时候肯定开不到M11，B站V圈生态可能完全不一样，起码帕里圈子不会那么火吧（
+
+日V ...</blockquote>
+没有她S1哪里有这么火热的vtuber热度，S1娘根本不可能诞生
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4411#       发表于 2020-5-6 23:16
+
+
+
+
+她改变了s1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4412#       发表于 2020-5-6 23:17
+
+
+
+
+往其他方向想，就不会有六字母和暗黑贴贴人了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4413#       发表于 2020-5-6 23:17
+
+
+
+
+马自立<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4414#       发表于 2020-5-6 23:17
+
+
+
+
+没有那一冲的话我应该还在手游群里勾引小女生呢。<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4415#       发表于 2020-5-6 23:18
+
+
+
+
+不细想了，整个v圈的样子都无法想象
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4416#       发表于 2020-5-6 23:18
+
+
+
+
+clay这种风流人物怎么就栽在yhm上了呢
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 4417#       发表于 2020-5-6 23:19
+
+
+
+
+真要手没动18年末19年初那些营业还在的话，贴贴人纯度只会更高吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4418#       发表于 2020-5-6 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326323&amp;ptid=1929631" target="_blank">clvan_ 发表于 2020-5-6 23:19</a>
+真要手没动18年末19年初那些营业还在的话，贴贴人纯度只会更高吧</blockquote>
+没有热度怎么会有贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+最早的贴贴圣经估计光年桑都不会剪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4419#       发表于 2020-5-6 23:20
+
+
+
+
+想多了咩咩火不起来怎么会有人心甘情愿跟她百合营业呢(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4420#       发表于 2020-5-6 23:21
+
+
+
+
+她没火起来谁知道她们在贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+谁去那个世界线把贴贴录播下下来拷给我
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4421#       发表于 2020-5-6 23:21
+
+
+
+
+手游群勾引小女生还确实是挺简单的 氪点钱就能当大佬 重氪就是全服前几<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再利用利用她们的虚荣心
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4422#       发表于 2020-5-6 23:21
+
+
+
+<blockquote>2014720 发表于 2020-5-6 23:20
+没有热度怎么会有贴贴人
+
+最早的贴贴圣经估计光年桑都不会剪</blockquote>
+第一季是官号上的，估计咩姐连官号也不会有吧
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 4423#       发表于 2020-5-6 23:21
+
+
+
+
+真没手动，我觉得可能几个月后就没有咩了，哪还有后面那么多事
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4424#       发表于 2020-5-6 23:21
+
+
+
+
+没一开始的流量后面很难有大量贴贴人的，毕竟PUBG一开始的播放量也并不高
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4425#       发表于 2020-5-6 23:22
+
+
+
+
+＋1，她直接11月就去打工了才是最有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4426#       发表于 2020-5-6 23:24
+
+
+
+
+说不定回bs去了呢（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4427#       发表于 2020-5-6 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326349&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-6 23:21</a>
+
+手游群勾引小女生还确实是挺简单的 氪点钱就能当大佬 重氪就是全服前几再利用利用她们的虚荣心 ...</blockquote>
+草，我当时虽然没氪多少但是每月两单+还是有的，因为和大佬们混的熟所以在大区的第一公会公会当副会）
+
+yysy这种手游公会群的小姑娘属实好哄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 4428#       发表于 2020-5-6 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326332&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-6 23:20</a>
+
+没有热度怎么会有贴贴人
+
+最早的贴贴圣经估计光年桑都不会剪</blockquote>
+热度低相比下少的只是渠道，最后还是能在河豚群体内传播开的。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4429#       发表于 2020-5-6 23:26
+
+
+
+
+确实，官号的产生和初配信吸粉造话题离不开关系。一开始要不是这个路线的话，早期粉甚至记者之类的会不会看mea也难说了
+
+虽然说没流量11月12月有可能隐退，收益化应该会早过（不过用超新星的涨粉速度换一个快速收益化亏爆了吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4430#       发表于 2020-5-6 23:26
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-6 23:27 编辑 
+
+她要是没火起来，和现在区别最大的当然是她自己，关注点哪那么偏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+收益化没过和手冲也没什么关系
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4431#       发表于 2020-5-6 23:26
+
+
+
+
+经验丰富流星桑
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4432#       发表于 2020-5-6 23:26
+
+
+
+
+B站肯定大变样，也许直播只有几个企业势回来搞，个人势和P家指望这群YHM来搞B限也太看得起她们了。正因为有mea这个例子摆在那才会有越来越多的个人势和小团体来B站淘金，因为mea告诉了所有vtuber在B站个人势是可以成功的，算是给了很多个人势新的希望
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 4433#       发表于 2020-5-6 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326339&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-6 23:20</a>
+想多了咩咩火不起来怎么会有人心甘情愿跟她百合营业呢(눈_눈)</blockquote>
+你这话说的
+圣皇当年也苦过啊
+不过圣皇成名还是靠天道酬勤，主要是holo能不能撑到现在了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4434#       发表于 2020-5-6 23:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想了一下，如果初直播没有铁公鸡，但是还有其他梗比如youtube设定麻烦、海滨哥、脑壳上的螺丝、跳脸hana，等等还是能火的，但应该会少很多狗粉丝和恶俗人
+
+
+这样一来拆腻子浓度估计就不会那么高，**炮估计也不会有、收益化估计还是过不了因为她喜欢唱歌留档、平安夜收益化也会有
+
+
+跟帕里的争端还是会有、那么泰坦尼克估计还会有
+
+
+总体来看大概影响其实不算太大（？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4435#       发表于 2020-5-6 23:27
+
+
+
+
+但流星最后还是栽在了mea这个大坑里，真是令人唏嘘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 4436#       发表于 2020-5-6 23:27
+
+
+
+
+回bs，无非3个人一起毕业改成4个人而已，反正都不可能经营下去的，不过可能会有jd麻，如果她愿意去读的话（
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4437#       发表于 2020-5-6 23:28
+
+
+
+
+想这种事情脑子会变混沌啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4438#       发表于 2020-5-6 23:28
+
+
+
+
+怎么突然就忆往昔峥嵘岁月了，不过没她这个爆点国内v圈会是什么样真想像不出来，好多个第一都是她拿下的吧，这么一看的咩真的了不起
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 4439#       发表于 2020-5-6 23:28
+
+
+
+
+jd不太可能，带专吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4440#       发表于 2020-5-6 23:29
+
+
+
+
+那特供贴贴不还是没了吗？好事(눈_눈)，而且官组纯度或将上升
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4441#       发表于 2020-5-6 23:29
+
+
+
+
+谨防和平演变夸夸楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+该熬夜了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4442#       发表于 2020-5-6 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她只是说手别动啊，别的梗该抛的还是会抛的啊，而且以她的早期性格就算没了手冲梗也很别具一格吧，不过不会遭受那么多骂名倒是真的（仔细一想如果没人骂她我大概还真不会来看她了
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 4443#       发表于 2020-5-6 23:29
+
+
+
+
+都不一定有字幕组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 4444#       发表于 2020-5-6 23:29
+
+
+
+
+说这么多，手不动就不是你麻了。以她的性格手不动也能搞出其他的行为艺术吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4445#       发表于 2020-5-6 23:29
+
+
+
+
+骂名还是会有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 4446#       发表于 2020-5-6 23:30
+
+
+
+
+众筹这个关键爆点感觉还是会有的
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4447#       发表于 2020-5-6 23:31
+
+
+
+
+你们比yhm想得还多<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4448#       发表于 2020-5-6 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初配信的骂点也就是萌萌人口中的铁公鸡呗，但没了这个初次的骂名就会少很多，如果后续的操作导致骂名那也是后续的事情（这么一看大概关注她的时间果然还是会晚一点。。。
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4449#       发表于 2020-5-6 23:32
+
+
+
+
+你们开始了   你b没咩不就是被葵皇少主拉一起a了嘛  分庭抗礼还是比现在圣皇碾压有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 4450#       发表于 2020-5-6 23:33
+
+
+
+
+收益化是因为投稿版权问题吧，油馆哪管你手不手冲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过''屑营业导致收益化过不了''这个说法当时是很流行的。看起来那时的管人观众眼里油馆的形象还是比较高大伟岸的，哪像现在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4451#       发表于 2020-5-6 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你还真是人渣 我那时候打LLsif日服前50不过不勾搭妹子
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4452#       发表于 2020-5-6 23:34
+
+
+
+
+害，栽了就栽了，已经上了钩了，有招吗。<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4453#       发表于 2020-5-6 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326508&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-6 23:34</a>
+
+害，栽了就栽了，已经上了钩了，有招吗。</blockquote>
+去日本钓yhm啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4454#       发表于 2020-5-6 23:36
+
+
+
+
+你麻不是玩手游吗，去钓啊，这是你专业领域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4455#       发表于 2020-5-6 23:36
+
+
+
+
+首播即是撕皮确实厉害
+说不定v⭕️也不会沦落到套皮女主播直播圈，虽然你咩姐可能只是加速而已
+
+初配信—字幕组—众筹—抽象梗—b站开荒—516
+现在看缺一不可，有些东西真的无法复制
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4456#       发表于 2020-5-6 23:37
+
+
+
+
+草，明天去买日服初始）
+
+？正好赶紧通剧情，说不定还能在一个jjc和pjjc场）
+
+
+我出发了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4457#       发表于 2020-5-6 23:38
+
+
+
+
+516怎么就缺不得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4458#       发表于 2020-5-6 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">历史的车轮不可阻挡，你咩姐只是在合适的时间出现了，没了她本土一点都不会变，国内p家倒是不会起飞
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4459#       发表于 2020-5-6 23:39
+
+
+
+
+如果没有手冲就等于在国内火不起来的话，那确实不会有后面的众筹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没了众筹那世界线的变化就太大了（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4460#       发表于 2020-5-6 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">516的触发条件是声卡啊，声卡事件的原因是早期收益不行啊，收益不行的原因是喜欢唱歌留档啊，所以516跟手冲没有一毛钱关系
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4461#       发表于 2020-5-6 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326550&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-6 23:38</a>
+516怎么就缺不得了</blockquote>
+个人觉得516就是她在国内爆发的终点了
+没有516现在可能是真一姐，404也不会那么惨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4462#       发表于 2020-5-6 23:42
+
+
+
+
+有趣的人还在那，只是不一定能发现
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4463#       发表于 2020-5-6 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326571&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 23:41</a>
+516的触发条件是声卡啊，声卡事件的原因是早期收益不行啊，收益不行的原因是喜欢唱歌留档啊，所以51 ...</blockquote>
+不火裁某人怎么会去搞她
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4464#       发表于 2020-5-6 23:43
+
+
+
+
+不对，出发有个锤子用，人家玩了好几年的我咋跟人家比……
+
+现在要上贡还氪不了啦<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4465#       发表于 2020-5-6 23:44
+
+
+
+
+可是我喜欢的是现在的小麻啊， 516也是现在的小麻的经历的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4466#       发表于 2020-5-6 23:44
+
+
+
+
+听着504歌回的ふわふわ看楼友前尘忆梦遐想连篇别有一番风味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4467#       发表于 2020-5-6 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没516在国内也不会是一姐的，因为她会杀乱刷，毕竟维持乱刷才有热度，她把乱刷杀完了热度自然会降很多
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我确实也很想知道，如果那个声卡是我送的那会发生什么
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4468#       发表于 2020-5-6 23:45
+
+
+
+
+说到516，天国的看房直播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+osu都播了，这个卫星是不是可以回收了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4469#       发表于 2020-5-6 23:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没516就能是真一姐吗，企业入驻的影响远比你想象的要大。你咩姐404惨的久远，516是毛毛雨啦
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4470#       发表于 2020-5-6 23:47
+
+
+
+
+别看了，她现在肯定啥东西都不会漏你看了，双盾是最后的照片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4471#       发表于 2020-5-6 23:47
+
+
+
+ 本帖最后由 路人庚 于 2020-5-6 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326590&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-6 23:43</a>
+
+不火裁某人怎么会去搞她</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">裁种搞她是因为推特爆炸，加上5ch的各种莫须有的料一起捅出来造成的，根本原因还是那个声卡金主，跟火不火没啥关系，因为她需要声卡，但早期时候她买不起
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">不过如果声卡是我送的，那大概不会有那个“不为五斗米折腰”了，这个确实会影响到流星呢
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4472#       发表于 2020-5-6 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些已经和手不手冲没任何关系了，车轱辘该打住了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4473#       发表于 2020-5-6 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326615&amp;ptid=1929631" target="_blank">以一持万 发表于 2020-05-06 23:45:54</a>
+说到516，天国的看房直播
+
+osu都播了，这个卫星是不是可以回收了</blockquote>看房直播是播过得，应该在前年的12月左右，时间下午，记得看了好几个户型，然后就杂谈了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4474#       发表于 2020-5-6 23:51
+
+
+
+
+没有五斗米折腰也有人生相谈3吧，话说你咩姐第一次把我感动到泪目的片段是“想为了chinese留下最后一口气的神乐mea”
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4475#       发表于 2020-5-6 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326627&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-6 23:47</a>
+裁种搞她是因为推特爆炸，加上5ch的各种莫须有的料一起捅出来造成的，根本原因还是那个声卡金主， ...</blockquote>
+不火哪有关注度，哪有人去挖774，太复杂了不深究了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4476#       发表于 2020-5-6 23:52
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-6 23:54 编辑 
+
+草，为啥这么了解我啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+没那个的话确实就只是普通粉丝了，遇到难过的事会难过，但也仅此而已的程度了。
+
+
+主要是那个时期自己也是真的难熬，她也难熬但是她说出了那一番话，然后就开始往gachi化的方向不可逆转化了，虽然转化速率是由慢变快的。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4477#       发表于 2020-5-6 23:52
+
+
+
+
+我osu呢？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 4478#       发表于 2020-5-6 23:52
+
+
+
+
+我倒觉得516对订阅这类数据不是决定性影响因素……
+
+
+**炮还在的时候和木口一起吃瘪，大家解除了又赶上企业箱推扩大影响力了（）
+
+
+要说的话可能不播游戏这一点让很多潜在粉丝少了一个看她的理由，这个真的是没办法——其它同等级乃至更高位的，不管企业个人我觉得游戏可能都播得比她多吧（？）
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4479#       发表于 2020-5-6 23:53
+
+
+
+
+因为你zqsg多，我都不好意思zqsg的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4480#       发表于 2020-5-6 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326687&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-6 23:51</a>
+
+不火哪有关注度，哪有人去挖774，太复杂了不深究了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想的是如果没有手冲，国内不会火，但在日本还是会火的，毕竟其他的梗即使放到2020的初配信里来看还是蛮有趣的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4481#       发表于 2020-5-6 23:54
+
+
+
+<blockquote>2014720 发表于 2020-5-6 23:51
+不火哪有关注度，哪有人去挖774，太复杂了不深究了</blockquote>
+msc也会恰小v的人血馒头的。。。我觉得咩姐如果vtuber做的一般可能会两头跑（皮买了不能浪费），而且会辛苦很多
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4482#       发表于 2020-5-6 23:54
+
+
+
+
+所以懒得去猜想啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻的各个历程和内外影响怕不是编成个ADV,一条手冲梗开始就能衍生出来多个分支
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4483#       发表于 2020-5-6 23:55
+
+
+
+
+她手没动的话，我就可以省下一笔钱爽玩游戏，真是可惜
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4484#       发表于 2020-5-6 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐做vtuber哪能想到这么火啊，我估计她早就做好两头跑的准备了，谁知道是这样的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4485#       发表于 2020-5-6 23:57
+
+
+
+<blockquote>路人庚 发表于 2020-5-6 23:53
+我想的是如果没有手冲，国内不会火，但在日本还是会火的，毕竟其他的梗即使放到2020的初配信里来 ...</blockquote>
+也是，当初有茄子的引流，本土能凑合过。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4486#       发表于 2020-5-6 23:57
+
+
+
+
+也许麻last就不是麻last，而且说不定现在麻还在播，呜呜呜虚拟人害人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4487#       发表于 2020-5-6 23:58
+
+
+
+
+萌音之神哪有吊人好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4488#       发表于 2020-5-7 00:00
+
+
+
+
+也许咩姐会被迫像盐天使一样露手甚至和现黄泉一样露脸呢。。。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4489#       发表于 2020-5-7 00:01
+
+
+
+
+看房直播记得被踩的有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在我看来516就是滑铁卢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4490#       发表于 2020-5-7 00:01
+
+
+
+
+萌音之神有火腿肠啊，这还不够？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4491#       发表于 2020-5-7 00:01
+
+
+
+
+刚出道的时候不还天天和乌冬性爱四排<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">孩子哪里能想到这么多呢
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4492#       发表于 2020-5-7 00:02
+
+
+
+
+妈的，尊驾小博禹？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我记得18年不是szl吗，szlbiss
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4493#       发表于 2020-5-7 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326790&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-7 00:01</a>
+
+看房直播记得被踩的有点厉害
+
+
+在我看来516就是滑铁卢，也不知道她现在走出来没，之前那次tc ...</blockquote>
+好哥哥能告诉我是哪一次TC吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4494#       发表于 2020-5-7 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326807&amp;ptid=1929631" target="_blank">惑星 发表于 2020-5-7 00:02</a>
+妈的，尊驾小博禹？
+我记得18年不是szl吗，szlbiss</blockquote>
+话说szl某个视频到现在还有人去看，这他妈绝对有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4495#       发表于 2020-5-7 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326790&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-7 00:01</a>
+
+看房直播记得被踩的有点厉害
+
+
+在我看来516就是滑铁卢，也不知道她现在走出来没，之前那次tc ...</blockquote>
+她现在说一句516是骗人的也不晚<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">不过她也不是那种会回头看的人
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4496#       发表于 2020-5-7 00:05
+
+
+
+
+szl都车回来了草，这些东西在你楼应该都已经车过了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4497#       发表于 2020-5-7 00:06
+
+
+
+
+深夜车什么鬼东西
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4498#       发表于 2020-5-7 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326812&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-7 00:03</a>
+好哥哥能告诉我是哪一次TC吗？</blockquote>
+不记得了…是个剪辑…
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4499#       发表于 2020-5-7 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是蝴蝶效应，国内不火谁管她跟谁玩LOL啊，就算有人盯着也不会有这么大的讨论度了
+
+
+（你咩姐怎么还不来快乐osu
+
+
+
+
+
