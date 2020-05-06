@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-06 18:09** 
+> ## **本文件最后更新于2020-05-06 20:08** 
 
 
 
@@ -19421,7 +19421,7 @@ b站从上往下俯视的那张系绳胖次的涩图炸了，有人发一下吗�
 
 
 1588721995632.png
-(195.61 KB, 下载次数: 7)
+(195.61 KB, 下载次数: 8)
 
 
 
@@ -21425,4 +21425,907 @@ kimo<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referr
 
 
 
-        
+
+
+-----
+
+####  zhicai618  
+##### 4240#       发表于 2020-5-6 18:26
+
+
+
+
+来点中年人的哀嚎
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4241#       发表于 2020-5-6 18:27
+
+
+
+
+今天可能要三播。。。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4242#       发表于 2020-5-6 18:31
+
+
+
+ 本帖最后由 2014720 于 2020-5-6 18:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323252&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 18:27</a>
+今天可能要三播。。。</blockquote>
+？？？
+
+又是不眠夜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4243#       发表于 2020-5-6 18:32
+
+
+
+
+今日の予定
+
+２３：００　Vのから騒ぎ(因幡はねるチャンネル)
+
+それ以降に何か自枠撮ろうかなって思ってる！！！
+はまってるゲームしたいからキャスちょっととってYOUTUBEそのあとに撮ろうと思ってる！！！
+
+よろです！！！
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 4244#       发表于 2020-5-6 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323252&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 18:27</a>
+今天可能要三播。。。</blockquote>
+？？怎么<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4245#       发表于 2020-5-6 18:46
+
+
+
+ 本帖最后由 2014720 于 2020-5-6 19:33 编辑 
+
+草，我就知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+贴吧774铁噶吃uuuu达瓦开了
+
+http://tieba.baidu.com/p/6664118813?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=11.4.8.0&amp;st=1588762231&amp;unique=1737A1448C836B9AF35DAE2A14F52508
+
+在爬了在爬了，下次注意
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rem-清曲|-1|V吧人可以爬吗|
+| 时之虫|-1|倒垃圾|
+| 古战场亡魂|-1|你倒垃圾次数有点多|
+| yuandi0120|-2|倒垃圾，真的是垃圾|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ashen-11  
+##### 4246#       发表于 2020-5-6 18:49
+
+
+
+
+看了下挂人的人是NT，不过被挂的兄弟确实是让人生理不适了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4247#       发表于 2020-5-6 18:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">你们在说什么
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4248#       发表于 2020-5-6 18:52
+
+
+
+
+又开始做shi的搬运工了。。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4249#       发表于 2020-5-6 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我寻思V8楼也有啊，怎么还往这里搬
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 4250#       发表于 2020-5-6 18:54
+
+
+
+
+隔壁日记楼挂个窗帘吧，以后类似的都倒那里面去
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 4251#       发表于 2020-5-6 18:56
+
+
+
+
+看到那句mea和字幕组一起讨论就知道了，你以为是在挂约稿的人，其实是在造谣抹黑mea啊，你还兴高采烈搬过来，闲的吃💩吗
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4252#       发表于 2020-5-6 18:56
+
+
+
+
+完了，深夜播爆，老男人哭了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4253#       发表于 2020-5-6 18:56
+
+
+
+
+所以为啥要在公开论坛发病。。。之前s1好歹还有点准入条件，但那时候就一堆人盯着了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4254#       发表于 2020-5-6 18:57
+
+
+
+
+深夜にかけて配信するから寝る人とか予定ある人は無理しないでね！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+
+我先去泡一杯枸杞水？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4255#       发表于 2020-5-6 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">去隔壁里版发病呗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4256#       发表于 2020-5-6 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323536&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-5-6 18:56</a>
+看到那句mea和字幕组一起讨论就知道了，你以为是在挂约稿的人，其实是在造谣抹黑mea啊，你还兴高采烈搬过来 ...</blockquote>
+只是对这人效率感到惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 4257#       发表于 2020-5-6 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前发病和吵架都是常态，最近已经很好了，那兄弟我不认识，不过看来也憋了一阵
+
+自己的心结终归要自己解
+
+
+同理，V8疯人院的心结也得他们自己解，我也看开了
+
+咩自己努力就会有回报，能被疯人院劝退的粉，本身也待不久
+
+网络社区人人都是joker，唯独在网监的眼里，他们才是人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4258#       发表于 2020-5-6 19:02
+
+
+
+
+球球带🔥别去掏💩了
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 4259#       发表于 2020-5-6 19:02
+
+
+
+
+我抗压能力弱，别再让我看到任何v吧相关的东西<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4260#       发表于 2020-5-6 19:03
+
+
+
+ 本帖最后由 単推し人 于 2020-5-6 19:10 编辑 
+
+有点情绪失控，是不应该在公开论坛发病的，我的问题
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104| + 1|老哥注意点就好了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4261#       发表于 2020-5-6 19:06
+
+
+
+
+在现在的v吧，这种也算古典派黑子了，一股微博味
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4262#       发表于 2020-5-6 19:08
+
+
+
+
+倒二手💩的能不能换一个地方<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4263#       发表于 2020-5-6 19:08
+
+
+
+
+微博的nt才是人类进化最终形态吗，太悲哀了呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 4264#       发表于 2020-5-6 19:10
+
+
+
+
+公开场合发病确实不好，被人指责和批判也正常.
+不过经常视奸搬运挂人的也很恶心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4265#       发表于 2020-5-6 19:11
+
+
+
+
+她打算播个通宵，有人能追完吗，老男人真的整不过🌸妹了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4266#       发表于 2020-5-6 19:13
+
+
+
+
+熬不过就补录播啊，早睡早起，说不定起来后还能听一会
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4267#       发表于 2020-5-6 19:13
+
+
+
+
+天狗在s1发病，黑子在v8发病，天狗和黑子贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4268#       发表于 2020-5-6 19:13
+
+
+
+
+工作日熬夜通宵直播，是小人行为
+
+
+说真的她说不定睡了一个白天刚刚起床不久，这是作弊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4269#       发表于 2020-5-6 19:13
+
+
+
+
+我还是明天赶早看早安mea吧。。啥游戏这么好玩玩一宿。。lol吗？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4270#       发表于 2020-5-6 19:13
+
+
+
+
+该休息休息，白天摸鱼的时候可以挂着听听啊
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 4271#       发表于 2020-5-6 19:14
+
+
+
+
+是吗，我觉得发情至少比婊人黑人挂人好很多
+
+发情造成的熵增少，甚至有时能熵减
+
+而婊人黑人挂人，会造成很大熵增
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| likemike| + 1|刚在开玩笑，我是极端鄙视公开挂人行为的.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4272#       发表于 2020-5-6 19:14
+
+
+
+ 本帖最后由 Leutnant某囧 于 2020-5-6 19:15 编辑 
+<blockquote>zhicai618 发表于 2020-5-6 19:13
+我还是明天赶早看早安mea吧。。啥游戏这么好玩玩一宿。。lol吗？</blockquote>
+应该是osu，虽然lol她也没放下。。。不过osu不能在404播
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4273#       发表于 2020-5-6 19:14
+
+
+
+
+osu和lol吧
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4274#       发表于 2020-5-6 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323729&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-6 19:14</a>
+应该是osu，虽然lol她也没放下。。。不过osu好像不能在**播</blockquote>
+osu不能在b（存疑）和**播。
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4275#       发表于 2020-5-6 19:15
+
+
+
+
+原本只想随便说几句的，说着说着就没控制住情绪，我的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4276#       发表于 2020-5-6 19:16
+
+
+
+
+下次不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说这么讨厌直球怼就是了何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4277#       发表于 2020-5-6 19:17
+
+
+
+<blockquote>zhicai618 发表于 2020-5-6 19:15
+osu不能在b（存疑）和**播。</blockquote>
+b站没问题，看咩姐玩osu我去云了点内容，在b站看人直播osu mania，真的很厉害
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4278#       发表于 2020-5-6 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323744&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-6 19:16</a>
+下次不了
+话说这么讨厌直球怼就是了何必呢</blockquote>
+就跟你在公共场合倒shi一样享受一呼百应和恶心无数人的快感
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|没注意到楼友情绪在反省了，下次另找地方.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4279#       发表于 2020-5-6 19:18
+
+
+
+
+是时候b限osu了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来个水友赛让她吃瘪
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 4280#       发表于 2020-5-6 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47323744&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-6 19:16</a>
+
+下次不了
+
+话说这么讨厌直球怼就是了何必呢</blockquote>
+因为去怼了，我就变得和他们一样了，
+
+而且费时费力还费心情，有这个时间我还不如去学习物理数学
+
+（弱智发散：等哪天我得了诺贝尔奖或者阿贝尔奖，我就在获奖宣言里直球怼<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4281#       发表于 2020-5-6 19:22
+
+
+
+
+拿不了菲尔兹，还敢说爱魅娅？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4282#       发表于 2020-5-6 19:28
+
+
+
+<blockquote>whbstc4545 发表于 2020-5-6 19:18
+是时候b限osu了来个水友赛让她吃瘪</blockquote>
+她tc已经是倒数了。。。b限还能更惨吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4283#       发表于 2020-5-6 19:32
+
+
+
+
+她b限osu就会有很多很菜的入坑，osu届的龙龟应该有不少。
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4284#       发表于 2020-5-6 19:40
+
+
+
+
+麻将妹对龙龟是有多怨念....话说龙龟玩的真的很差吗……不打lol的不太清楚……
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4285#       发表于 2020-5-6 19:46
+
+
+
+
+确实很差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 4286#       发表于 2020-5-6 19:47
+
+
+
+
+osu这个游戏对大部分人来说还是硬核了一点
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4287#       发表于 2020-5-6 19:51
+
+
+
+
+她也不是当硬核的玩，图一乐的话其实还是挺老少咸宜的
+
+
+
+
+
+       
