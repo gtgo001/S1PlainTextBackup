@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 00:06** 
+> ## **本文件最后更新于2020-05-08 02:05** 
 
 
 
@@ -9792,7 +9792,7 @@ holo要真想再国际化一点，这点还是要注意下比较好。
 
 
 azulim中之人这是准备当个人势？
-<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_X3BIi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_F4A2J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13950,10 +13950,11 @@ v8虽然是真正无限制，但是。。。车轱辘/鹦鹉起来比s1还要虚
 
 
 
- 参与人数 11战斗力 +11
+ 参与人数 12战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 攻心为上木之本| + 1|虚拟前女友ver.上位替代|
 | 6二三| + 1|处女鹅给了|
 | 57042711| + 1|欢乐多|
 | 榊城翼| + 1|欢乐多|
@@ -16643,7 +16644,7 @@ syl 粽子新图去ins找啊
 
 
 
-可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_k3KzR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_Via7i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/428clv/status/1258025228875096066](https://twitter.com/428clv/status/1258025228875096066)
 
@@ -17256,7 +17257,7 @@ syl，宫姨可爱
 <img src="https://img.saraba1st.com/forum/202005/07/234839b6ds8t55w8wdn5oz.jpg" referrerpolicy="no-referrer">
 
 
-<strong>unnamed.jpg</strong> (317.32 KB, 下载次数: 1)
+<strong>unnamed.jpg</strong> (317.32 KB, 下载次数: 3)
 
 下载附件
 
@@ -17828,4 +17829,1164 @@ https://twitter.com/rurudo_/status/1258421188260278276?s=21
 
 
 
-                   
+
+
+-----
+
+####  激光2000  
+##### 21922#       发表于 2020-5-8 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338601&amp;ptid=1924531" target="_blank">mmbk 发表于 2020-5-8 00:05</a>
+
+早期可从来没这么撩过，无论男女联动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 一看你就不知道了吧，当时社也在discord频道里的，
+
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21923#       发表于 2020-5-8 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338616&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:07</a>
+一看你就不知道了吧，当时社也在discord频道里的，</blockquote>
+这标题里都写着了我还不知道<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21924#       发表于 2020-5-8 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338604&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:05</a>
+
+最多没现在rp的这么用力，远远没到这视频里的程度好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 之前葵皇深夜杂谈偶尔就很软的，RP傻里傻气不好吗？
+
+
+整天这么软，万一gachi多了怎么办，男友粉多了怎么办，以后再和男人联动就变味了啊，
+
+
+都是套路，傻里傻气有助于和男人联动不尬懂吧
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21925#       发表于 2020-5-8 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338630&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:09</a>
+
+之前葵皇深夜杂谈偶尔就很软的，RP傻里傻气不好吗？
+
+
+整天这么软，万一gachi多了怎么办，男友粉 ...</blockquote>
+这我懂啊，这不妨碍我想听啊
+
+
+我希望的和v希望的还有钱希望的不一样的多了去了。我还希望狐皇多玩老宅梗阿菜好好练歌苔姨zqsg周老师王者归来呢，然而有毛用
+
+
+你juan那么些傻里傻气，证明这东西确实好用，而且绝对不止跟男人联动不尬这一个
+
+
+但是听到这种钓音，还是もっとほしい
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21926#       发表于 2020-5-8 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 所以你们举起双手献上正义元气给狐狸啊，，
+
+
+狐狸摧毁彩虹之后，葵皇加入木口，就天天这么软、这么撩了，
+
+
+葵皇加入木口，维持软妹、恐男rp，gachi要爆炸多了好吗？
+
+
+软妹撩人版auqa不香吗？
+
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21927#       发表于 2020-5-8 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338630&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:09</a>
+之前葵皇深夜杂谈偶尔就很软的，RP傻里傻气不好吗？
+
+
+整天这么软，万一gachi多了怎么办，男友粉 ...</blockquote>
+啊这，虽然深夜杂谈里也没这么撩过，属实企业级理解<img src="https://static.saraba1st.com/image/smiley/face2017/170.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgte030629  
+##### 21928#       发表于 2020-5-8 00:14
+
+
+
+
+葵这声音有点像阿喵喵？
+
+要变成葵熊力<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21929#       发表于 2020-5-8 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338660&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:13</a>
+
+所以你们举起双手献上正义元气给狐狸啊，，
+
+
+狐狸摧毁彩虹之后，葵皇加入木口，就天天这么软、这么 ...</blockquote>
+你又要给erer老姐整个上位替代？
+
+
+我怀疑你是想引起erer老姐的注意好吧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21930#       发表于 2020-5-8 00:17
+
+
+
+
+楼友cp又要组起来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21931#       发表于 2020-5-8 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338669&amp;ptid=1924531" target="_blank">cgte030629 发表于 2020-5-8 00:14</a>
+
+葵这声音有点像阿喵喵？
+
+要变成葵熊力</blockquote>
+建议传教塩IC
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21932#       发表于 2020-5-8 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338676&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:15</a>
+
+你又要给erer老姐整个上位替代？
+
+
+我怀疑你是想引起erer老姐的注意好吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"> 不要，真有这个机会，我要女装成尾宝的推，然后和尾宝线下！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21933#       发表于 2020-5-8 00:20
+
+
+
+
+不要贴贴人，管人粉丝贴贴人也不要。
+
+syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4？有老哥帮忙确认一下吗？
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21934#       发表于 2020-5-8 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338714&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:19</a>
+
+不要，真有这个机会，我要女装成尾宝的推，然后和尾宝线下！</blockquote>
+你别整吐我了
+
+
+你连个答应我的号都不给我<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 21935#       发表于 2020-5-8 00:21
+
+
+
+
+那想听软萌恐男狐狸的该献上正义元气给谁，葵皇吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21936#       发表于 2020-5-8 00:21
+
+
+
+
+查了一下，这游戏不是看两小时直播就能拿到内测资格吗
+<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_qD8N9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21937#       发表于 2020-5-8 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338722&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:20</a>
+
+你别整吐我了
+
+
+你连个答应我的号都不给我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer"> 你不会是想要我的电话号，不好意思说吧，别恶心我
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 21938#       发表于 2020-5-8 00:22
+
+
+
+
+装gay以贴近妹子是什么套路<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21939#       发表于 2020-5-8 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338722&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:20</a>
+
+你别整吐我了
+
+
+你连个答应我的号都不给我</blockquote>
+这楼里负鹅号都绝迹了，2000肯定要珍藏着啊
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 21940#       发表于 2020-5-8 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338728&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 00:21</a>
+
+查了一下，这游戏不是看两小时直播就能拿到内测资格吗</blockquote>
+有概率的
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 21941#       发表于 2020-5-8 00:23
+
+
+
+
+楼友都这么热衷于和楼友搞关系吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21942#       发表于 2020-5-8 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338725&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-8 00:21</a>
+
+那想听软萌恐男狐狸的该献上正义元气给谁，葵皇吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">软萌恐男狐狸萌音，听批限不就行了？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21943#       发表于 2020-5-8 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338752&amp;ptid=1924531" target="_blank">北山玖公 发表于 2020-5-8 00:23</a>
+
+楼友都这么热衷于和楼友搞关系吗</blockquote>
+《箱力》
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21944#       发表于 2020-5-8 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338728&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 00:21</a>
+
+查了一下，这游戏不是看两小时直播就能拿到内测资格吗</blockquote>
+所以这游戏测试资格便宜的很啊，老鼠台那么大的流量也都是挂机脚本刷出来的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 21945#       发表于 2020-5-8 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338760&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:25</a>
+
+软萌恐男狐狸萌音，听批限不就行了？</blockquote>
+要刚出道那会的带点害羞感的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21946#       发表于 2020-5-8 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338796&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-8 00:29</a>
+
+要刚出道那会的带点害羞感的2000你居然看狐皇批限，你的虹人血统不纯了！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer"> 在我心中，批站的狐狸还是那个内心如钻石般纯净的狐狸，
+
+
+404的狐狸，已经是阴阳怪气bot了，
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 21947#       发表于 2020-5-8 00:36
+
+
+
+
+狐狸这次100W肯定还是歌回了··搞个油库里歌回蛮好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+SYL：[https://www.bilibili.com/watchlater/#/BV1Pt4y117ML/p1](https://www.bilibili.com/watchlater/#/BV1Pt4y117ML/p1)     这个彩虹版的JOJO第4部OP真的有够搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21948#       发表于 2020-5-8 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338821&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:34</a>
+
+在我心中，批站的狐狸还是那个内心如钻石般纯净的狐狸，
+
+
+404的狐狸，已经是阴阳怪气bot了， ...</blockquote>
+暗示在霹雳霹雳心硬若钻石
+
+
+明示在404阴阳如小何
+
+
+你就是crew？
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 21949#       发表于 2020-5-8 00:38
+
+
+
+
+虚假的斗虫，真实的斗虫（G）
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21950#       发表于 2020-5-8 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338821&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:34</a>
+
+在我心中，批站的狐狸还是那个内心如钻石般纯净的狐狸，
+
+
+404的狐狸，已经是阴阳怪气bot了， ...</blockquote>
+阴阳怪气它不香吗，不明白<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 21951#       发表于 2020-5-8 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338721&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-8 00:20</a>
+
+不要贴贴人，管人粉丝贴贴人也不要。
+
+syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4？有老哥帮 ...</blockquote>
+我是记得提到过买了PS4的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 21952#       发表于 2020-5-8 00:42
+
+
+
+
+阴阳怪气挺好，就是用在我推上的时候心里不太舒服，尤其是我推没文化都听不懂。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21953#       发表于 2020-5-8 00:44
+
+
+
+
+表情，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_XOdo6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+
+[https://twitter.com/1RBOX_CCC/status/1253824569250508801](https://twitter.com/1RBOX_CCC/status/1253824569250508801)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 21954#       发表于 2020-5-8 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338728&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 00:21</a>
+
+查了一下，这游戏不是看两小时直播就能拿到内测资格吗</blockquote>
+所以我说有点小牌面，运营主动找过来的（不过这么大的量也不存在排不排面的了）
+
+主要是日服根本没开，这次是因疫情影响先开放韩服给鬼子爽爽
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21955#       发表于 2020-5-8 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338842&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:38</a>
+
+暗示在霹雳霹雳心硬若钻石
+
+
+明示在404阴阳如小何</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer"> 
+
+
+狐狸在批站发现斗不过狗妈之后，挥挥手放弃，堪称拿得起放得下，足以见得她的胸怀足够容得下贝加尔湖
+
+
+可在404却发疯一般怼天皇，像一只发疯的母狐狸咬住她的对手，可见她的气度小的可以
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 21956#       发表于 2020-5-8 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338867&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-8 00:42</a>
+
+阴阳怪气挺好，就是用在我推上的时候心里不太舒服，尤其是我推没文化都听不懂。 ...</blockquote>
+草，按照楼里的解释，狐皇的yygq怎么都能顺劈到大天使好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21957#       发表于 2020-5-8 00:47
+
+
+
+
+粽子开了一个和龙酱的ark联动，洞窟占领，晚上9点。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 21958#       发表于 2020-5-8 00:48
+
+
+
+ 本帖最后由 Zaphikel 于 2020-5-8 00:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338885&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:45</a>
+
+狐狸在批站发现斗不过狗妈之后，挥挥手放弃，堪称拿得起放得下，足以见得她的胸怀足够容得下贝 ...</blockquote>因为她发现斗得过天皇，便一鼓作气展开全面攻击，可见其雷厉风行，抓住机会一点不拖泥带水。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+狐本柔弱，为皇则刚<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21959#       发表于 2020-5-8 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338885&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 00:45</a>
+
+狐狸在批站发现斗不过狗妈之后，挥挥手放弃，堪称拿得起放得下，足以见得她的胸怀足够容得下贝 ...</blockquote>
+你这话传到v8.......也不会如何，反正狐狸也开烂了，也毫不妨碍狐皇天下布武
+
+
+话又说回来，阿批的粉丝里程碑和**的比，活粉比例真的不如吗？
+
+
+不谈收益转化率，只是看直播的活粉比例如何呢？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 21960#       发表于 2020-5-8 00:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我觉得少主挺喜欢阿夸的，当然可能是本crew的推最可爱思想作祟，少主在直播里说会在有空的时候观看阿夸直播，还会补录像，还有线下见面的时候陪阿夸玩，抱阿夸。不过就是少主跟阿夸同时rp幼女声线实在太难顶了！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21961#       发表于 2020-5-8 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338913&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:51</a>
+
+你这话传到v8.......也不会如何，反正狐狸也开烂了，也毫不妨碍狐皇天下布武
+
+
+话又说回来，阿批的粉丝里 ...</blockquote>
+主要是b站没有计算真实观众的渠道吧，斗虫那边只能看到互动（发弹幕？）人数，然后404的聊天人数我不太清楚从哪看。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21962#       发表于 2020-5-8 01:01
+
+
+
+
+2020年5月买ps4不太合适吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21963#       发表于 2020-5-8 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338972&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-8 01:01</a>
+
+2020年5月买ps4不太合适吧</blockquote>
+我也想说这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  亚当薰  
+##### 21964#       发表于 2020-5-8 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338919&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-8 00:52</a>
+
+其实我觉得少主挺喜欢阿夸的，当然可能是本crew的推最可爱思想作祟，少主在直播里说会在有空的时候 ...</blockquote>
+帮erer补充一个，狐狸的电脑桌面也是阿夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 21965#       发表于 2020-5-8 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338988&amp;ptid=1924531" target="_blank">亚当薰 发表于 2020-5-8 01:06</a>
+
+帮erer补充一个，狐狸的电脑桌面也是阿夸</blockquote>
+贴贴捏！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 21966#       发表于 2020-5-8 01:08
+
+
+
+ 本帖最后由 好德我基 于 2020-5-8 01:15 编辑 
+
+原来今天的木口传说封面是狐皇做的，那必须要把自己放正中间啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">syl，阿叶怎么不在404开台
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 21967#       发表于 2020-5-8 01:13
+
+
+
+ 本帖最后由 シナモンロール 于 2020-5-8 01:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338919&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-8 00:52</a>
+
+其实我觉得少主挺喜欢阿夸的，当然可能是本crew的推最可爱思想作祟，少主在直播里说会在有空的时候 ...</blockquote>
+狐皇对于所有跟着他的人都是贤时便用，不贤便黜。而这贤与不贤，本身就不光是狐皇的信任。绝对中立之下，只有绝对的客观，三才有他的去处，凑小姐自然也有。
+
+
+云在青天水在瓶，有这个性子做群体的母亲角色，味增汤角色，狐皇自然会给你足够的信任和保底的热度。而有能力能在箱力加持下迅速聚集人气，而且快速形成自己牢固的粉圈，并有一定的集金力，狐皇自然也不介意给你一些自由。等到你的这份人气到头了，选择舍弃这份自由去到对自己更有利的位置的时候，狐皇也会接受。如果你迟迟不做选择，那狐皇会替你选。
+
+
+只有派不上用场的无能的人才会被狐皇无视，不过狐皇也并非不宽容，对于迷茫期和转型期的v给予时间上的宽大。毕竟箱力在上，用好现行的成员远比淘汰出一批精选组更关键。
+
+
+少主不讨厌任何人，也不喜欢任何人，少主的眼里只有holo箱的未来 
+
+
+“除了公敌之外，我没有敌人”。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 21968#       发表于 2020-5-8 01:15
+
+
+
+
+oto这手短时期商法是跟白姨学的吗 好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 21969#       发表于 2020-5-8 01:19
+
+
+
+
+已经加入了大家庭的大亏，已经没什么好怕的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 21970#       发表于 2020-5-8 01:20
+
+
+
+[https://youtu.be/j6_r6heXxlc?t=32](https://youtu.be/j6_r6heXxlc?t=32)
+
+这声こんばんは，这小句尾，也太撩了吧。2000哥，阿葵有对你们葵熊这么挑逗过吗？
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21971#       发表于 2020-5-8 01:20
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-5-8 01:24 编辑 
+
+与其说是狐皇的爱，不如说是箱推的需要。"东京湾只在需要时沸腾。"
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21972#       发表于 2020-5-8 01:21
+
+
+
+
+啊这，火星了
+
+syl，噗酱啊以后不要跟他们家孩子一起玩了
+<img src="https://p.sda1.dev/0/22ba23f21343487f487acd5c56d6c947/IMG_AD4BAE5453B2A31997F1188D1FFB8F04.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21973#       发表于 2020-5-8 01:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338913&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:51</a>
+
+你这话传到v8.......也不会如何，反正狐狸也开烂了，也毫不妨碍狐皇天下布武
+
+
+话又说回来，阿批的粉丝里 ...</blockquote>
+再列个简单的数据对比，4.22小天使生日，b站转播当天的互动人数为4880，弹幕20110条，4.23字幕组光速出熟肉，播放量为2.7w。对应404当天的平均同接18,207、最高22,898。再生数为121,968。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 21974#       发表于 2020-5-8 01:21
+
+
+
+
+狐夸好，乐子足，纯良玩法、巨魔玩法都可以，可玩性十足。
+
+狐夸好啊<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 21975#       发表于 2020-5-8 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338963&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-8 01:00</a>
+
+主要是b站没有计算真实观众的渠道吧，斗虫那边只能看到互动（发弹幕？）人数，然后404的聊天人数我不太清 ...</blockquote>
+[https://hiyoko.sonoj.net/video-info/i04mo5sFu9s](https://hiyoko.sonoj.net/video-info/i04mo5sFu9s)
+
+hiyoko有啊，发言人数/累计同接 一般数十分之一，可以倒推一下B站
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|了解|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21976#       发表于 2020-5-8 01:23
+
+
+
+
+虹是有统计单次直播评论数的网站的。可以做个参照。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 21977#       发表于 2020-5-8 01:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">妈的，葵皇竟然如斯可爱
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 21978#       发表于 2020-5-8 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338913&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-05-08 00:51:33</a>
+你这话传到v8.......也不会如何，反正狐狸也开烂了，也毫不妨碍狐皇天下布武
+
+
+话又说回来，阿批的粉丝里 ...</blockquote>P站还有很多脚本粉丝的，更何况关注都可以买，P站自己都不用关注当标准了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21979#       发表于 2020-5-8 01:46
+
+
+
+
+翻了半天，突然觉得b站的数据除了实打实的打赏好像没什么分析的意义，算了睡觉去。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 21980#       发表于 2020-5-8 01:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/013.png" referrerpolicy="no-referrer"> 吾心吾行澄如明镜，所作所为皆属正义！
+
+
+
+
+
+                 
