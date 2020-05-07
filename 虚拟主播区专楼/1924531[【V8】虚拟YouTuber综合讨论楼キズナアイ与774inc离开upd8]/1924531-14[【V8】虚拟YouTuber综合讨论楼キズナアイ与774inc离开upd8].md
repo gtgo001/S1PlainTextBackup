@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 02:06** 
+> ## **本文件最后更新于2020-05-07 08:05** 
 
 
 
@@ -5016,11 +5016,11 @@ syl，我怎么觉得虹最近大赛的冠军都是男v<img src="https://static.
 
 
 
-<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_t1OpO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXPiVL6VcAA8A8F?format=jpg&amp;name=large" id="aimg_x49f1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 https://twitter.com/Sco_ttie/status/1257597617019613186
 
 
-<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_QwaBA" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWxCIaiWAAUcxeM?format=jpg&amp;name=medium" height="565" id="aimg_ZTrjP" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1](https://twitter.com/YagitaniHitsuji/status/1255451154802237441/photo/1)
 
 
@@ -6292,7 +6292,7 @@ yagoo摁着夏心夸的头五一高强度b限了一圈，到底给他们许了�
 
 
 
-<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_b2nM4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EXQdugpUwAE1Rxb?format=jpg&amp;name=large" height="1006" id="aimg_qt8l8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
@@ -6474,7 +6474,7 @@ vjuan击剑好像是白夜那边带起来的？
 
 
 
-虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_JHZ59" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+虹浓度，黑客转推<img src="https://pbs.twimg.com/media/EXLm2FNUEAMSUnv?format=jpg&amp;name=large" height="775" id="aimg_SWw2u" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 
@@ -14099,7 +14099,7 @@ Replying to @minatoaqua
 
 
 小天使gachi老哥今天怎么没发图啊，来点小天使Power<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EXR4_3HUYAAkeZz?format=jpg&amp;name=medium" id="aimg_CY1zP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EXR4_3HUYAAkeZz?format=jpg&amp;name=medium" id="aimg_HDIF4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26382,7 +26382,9 @@ b站早期那直播平台，基本没人会觉得有前途吧…………
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 韩牛我有幸在济州岛吃过一次，俩人吃了500w韩元，
+ 本帖最后由 激光2000 于 2020-5-7 02:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 韩牛我有幸在济州岛吃过一次，俩人吃了50w韩元，
 
 
 要论贵，还是和牛更贵一点，
@@ -28588,6 +28590,245 @@ vtuber，这个区的名字
 
 —— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
 翻了下上下文，感觉说错了。尾宝说的vtb应该是猫猫，最近憨色和猫猫有联动。
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 20989#       发表于 2020-5-7 02:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327260&amp;ptid=1924531" target="_blank">攻心为上木之本 发表于 2020-5-7 01:00</a>
+
+四个人凭啥不能斗，按你楼提供的情报，杏cn从两个人就开始斗，每多一个人就能换一种新斗法，哪怕最近的大联 ...</blockquote>
+木口cn这个水平，正常人哪里做得到啊，实在是鬼才运营<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+再说第一个就招了yogiri这种暴躁老姐，后期也就罢了，前期还不如从微博上找个女权来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 20990#       发表于 2020-5-7 02:24
+
+
+
+
+说个不靠谱消息，之前v8就开过花寄影之第五人mue的女权团，但好像被官方ktv了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 20991#       发表于 2020-5-7 03:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327269&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-7 01:01</a>
+
+如果P站的个人势真的有P站在背后操盘的话，今年应该还要再诞生几个金盾，毕竟任由holo在国内市场独 ...</blockquote>
+P站找不到一个能力，事业心和气运都足够的种子选手来当C位。VR拉跨樱花妹玩票本土能打的只有冷鸟但是对直播也没太大兴趣。B站空有渠道找不到人喂饭可太有趣了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20992#       发表于 2020-5-7 03:44
+
+
+
+ 本帖最后由 金魚佬 于 2020-5-7 03:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327681&amp;ptid=1924531" target="_blank">yuanhang99 发表于 2020-5-7 03:32</a>
+
+P站找不到一个能力，事业心和气运都足够的种子选手来当C位。VR拉跨樱花妹玩票本土能打的只有冷鸟但是对直 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白上桑怎么就不是个人势还在404混得惨兮兮那种呢，P站都已经虚位以待了，不然哪里轮得到京华/丼皇/高小姐。倒是如果冰糖今年就能大学毕业或者大三上完大部分课程倒是可以试一试，就是日语那个口音太怪了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 20993#       发表于 2020-5-7 03:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327692&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-7 03:44</a>
+
+白上桑怎么就不是个人势还在404混得惨兮兮那种呢，P站都已经虚位以待了，不然哪里轮得到京华/丼皇/ ...</blockquote>
+个人势还在404混的一般般的不是已经有一位了吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 20994#       发表于 2020-5-7 04:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47326298&amp;ptid=1924531" target="_blank">宫宝兔丁 发表于 2020-5-6 10:16</a>
+
+如何看待2000去韩国吃人均1w5人民币的肉不肯给葵皇上舰长</blockquote>
+去吃烤肉可以爽1小时
+
+给葵皇上舰只能爽5秒钟
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 20995#       发表于 2020-5-7 04:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327700&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-7 03:53</a>
+
+个人势还在404混的一般般的不是已经有一位了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别闹，苔姨SC硬实力第一呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别闹，狗妈还要以本业为重呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别闹，P站还欠咩啊一场live呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别闹，安堂母语OS用得正好呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别闹，眠大佐RP洋装穿在身呢。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20996#       发表于 2020-5-7 04:17
+
+
+
+
+叶师千黑黑局apex上钻石了，下巴也终于拿了打块第一，两个人荣耀下播。
+
+syl葛皇仍在继续，这就是虹男v吗
+
+zsyl，据说葛皇ark装备恐龙已经没的差不多了，他上去看了一秒光速退出然后继续apex，虹ark时代结束了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 20997#       发表于 2020-5-7 04:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327732&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-05-07 04:17:58</a>
+别闹，眠大佐RP洋装穿在身呢。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">再来点
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 20998#       发表于 2020-5-7 04:50
+
+
+
+ 本帖最后由 yuanhang99 于 2020-5-7 04:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327734&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-7 04:19</a>
+
+再来点
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+别闹，我MEGA号刚建好就等大杀四方呢。
+
+别闹，已女汉字直播就等B站爸爸赏识呢。
+
+
+别闹，兔妈妈马上政变独走进出B预定呢。
+
+
+其他底边感觉没有足够能力当C位。
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 20999#       发表于 2020-5-7 05:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327692&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-6 14:44</a>
+
+白上桑怎么就不是个人势还在404混得惨兮兮那种呢，P站都已经虚位以待了，不然哪里轮得到京华/丼皇/ ...</blockquote>
+龙皇那日语口音很多人都能接受
+
+BT我觉得也可以
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 21000#       发表于 2020-5-7 05:47
+
+
+
+
+看rurudo老师自己的设定图出了，看起来又一个杏人妈妈出道？
 
 
 
