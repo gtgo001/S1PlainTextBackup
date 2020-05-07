@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 06:06** 
+> ## **本文件最后更新于2020-05-07 16:07** 
 
 
 
@@ -91,10 +91,12 @@
 
 
 
- 参与人数 9战斗力 -9
+ 参与人数 11战斗力 -12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Rem-清曲|-1|放过你自己的家里人吧|
+| aisakahammer|-2|骗鹅|
 | 专业划水人员|-1|这是公会战出刀吗|
 | Zhudhh|-1||
 | GRMeA104|-1|思路广|
@@ -563,4 +565,520 @@ Gbr和咩就算了，黄兔子年纪也不小了怎么跟着这两个聊到五�
 
 
 
-                                                
+
+
+-----
+
+####  2014720  
+##### 4533#       发表于 2020-5-7 06:35
+
+
+
+
+睡醒了，赚暴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4534#       发表于 2020-5-7 07:18
+
+
+
+
+在推特上看到了昨天和你楼一样的话题，机翻了一下更生草了
+<img src="https://p.sda1.dev/0/43ea503fed355f70de9670b932085f8d/-2a6989602020ed19.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4535#       发表于 2020-5-7 07:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327984&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-7 07:18</a>
+在推特上看到了昨天和你楼一样的话题，机翻了一下更生草了</blockquote>
+犬山不坏草
+复制机翻要注意回车和空格啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4536#       发表于 2020-5-7 07:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327990&amp;ptid=1929631" target="_blank">zaozaoxx 发表于 2020-5-7 07:19</a>
+犬山不坏草
+复制机翻要注意回车和空格啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">强强ai+强强脑补基本就能看出意思了，所以没怎么断过句
+
+syl发现这位也转发了，点进去一看v的内容真是多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0f0c004415fb09816fcaefeacad6bb05/IMG_3B8499233CB93CDB7A86739CB603B92C.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4537#       发表于 2020-5-7 07:28
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-7 07:35 编辑 
+
+原来还说了这个<img src="https://p.sda1.dev/0/1b511763a80ffdda1dccde625182b52a/IMG_0060C35DA5ABB7D4EF12CCCC84855C0C.png" referrerpolicy="no-referrer">
+
+syl这谷歌翻译的smjb
+<img src="https://p.sda1.dev/0/de606b72121f607f9e2d097e0bb6c25a/IMG_E189B5C2B4A8869625052893A9EB9E2F.png" referrerpolicy="no-referrer">
+
+zsyl头一次看到把彩虹叫2.3的
+<img src="https://p.sda1.dev/0/4e91a60929c5b3ba86a8f147b2784433/39aaa02f4a9f1626.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4538#       发表于 2020-5-7 08:09
+
+
+
+
+真和和江哥她们聊了个通宵啊。。。早知道不熬了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4539#       发表于 2020-5-7 08:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">聊到这么晚，这几个人……
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 4540#       发表于 2020-5-7 09:14
+
+
+
+
+拉关系啊……这波不错。希望一把年纪的兔姨能给阿麻传授点绝活
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4541#       发表于 2020-5-7 09:20
+
+
+
+
+抱紧江哥大腿啊mea，如果你想活下去的话，就不要松手啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4542#       发表于 2020-5-7 09:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你麻不抱江哥腿也能好好活下去
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4543#       发表于 2020-5-7 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我的腿抱起来挺舒服的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4544#       发表于 2020-5-7 09:31
+
+
+
+
+我<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">高中时女同学喜欢摸我小腿，可以抱我小腿
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4545#       发表于 2020-5-7 09:37
+
+
+
+
+我只摸过女生的小腿<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4546#       发表于 2020-5-7 09:39
+
+
+
+
+想摸火腿肠
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4547#       发表于 2020-5-7 09:43
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-7 09:31
+我高中时女同学喜欢摸我小腿，可以抱我小腿</blockquote>
+为什么会被捏啊。。。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4548#       发表于 2020-5-7 09:44
+
+
+
+
+草，你楼也太处男了吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4549#       发表于 2020-5-7 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47328945&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-7 09:43</a>
+为什么会被捏啊。。。</blockquote>
+可能是不软不硬比较舒服吧，我自己也捏过，现在家里蹲多了肥肉就变多了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4550#       发表于 2020-5-7 09:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">抱你们的腿有什么用吗
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4551#       发表于 2020-5-7 10:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">女生一直说我的腿挺好看的，可以抱我的
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4552#       发表于 2020-5-7 10:52
+
+
+
+
+不太相信，发张照片看看吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4553#       发表于 2020-5-7 13:21
+
+
+
+ 本帖最后由 PekoPekoPeko 于 2020-5-7 13:24 编辑 
+
+[123L<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4554#       发表于 2020-5-7 13:41
+
+
+
+ 本帖最后由 2014720 于 2020-5-7 13:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+为什么事到如今还有人在意这事呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这东西就这么爽吗
+下次去冒菜楼好不好，真的
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4555#       发表于 2020-5-7 13:49
+
+
+
+
+说实话没太看懂这123L有什么深意
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4556#       发表于 2020-5-7 13:58
+
+
+
+
+问一下，脑瘫的脑回路都是这样让人不知所云吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4557#       发表于 2020-5-7 14:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要去理解，理解了会被污染的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4558#       发表于 2020-5-7 14:04
+
+
+
+
+不用理他啊，既然奈子说了，那再跳出来巨魔我大不了去跟他一换一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4559#       发表于 2020-5-7 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果都能理解精神病世上就不需要疯人院了
+
+
+syl，哥杀的作者不是早就在看2434了，还画过不少同人来着
+
+
+zsyl，不知道阿咩被安利了那个游戏之后会不会像老师一样播一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4560#       发表于 2020-5-7 14:28
+
+
+
+
+来点搬运
+
+
+【翻唱/PV付】Charles/シャルル【神楽Mea】 UP：怒喝柠檬茶的阿初
+[https://www.bilibili.com/video/BV1yi4y1x7LY](https://www.bilibili.com/video/BV1yi4y1x7LY)
+
+
+灰色と青（纪念版）--神乐Mea/2018/2020【神楽めあ】 UP：模型师小明
+[https://www.bilibili.com/video/BV1Mg4y167Zv](https://www.bilibili.com/video/BV1Mg4y167Zv)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 1||
+| GRMeA104| + 1||
+| weiweiEX| + 1|好评加鹅|
+| Rem-清曲| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4561#       发表于 2020-5-7 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后台放5.4歌回，听到十年之约那段笑死我了，这反应太有趣了
+
+
+
+
+
+                                               
