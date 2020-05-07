@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 12:05** 
+> ## **本文件最后更新于2020-05-07 14:04** 
 
 
 
@@ -2741,7 +2741,7 @@ yua线以上基本聚焦了绝大部分知名度及倾向资源了。
 
 
 0fbea3003af33a875bd59370d15c10385243b5ac.jpg
-(164.46 KB, 下载次数: 2)
+(164.46 KB, 下载次数: 3)
 
 
 
@@ -2846,7 +2846,7 @@ syl
 
 
 efadd35c103853434c4c144b8413b07ecb808865.jpg
-(112.08 KB, 下载次数: 1)
+(112.08 KB, 下载次数: 2)
 
 
 
@@ -4045,4 +4045,2810 @@ syl星再干半年没起色就不是砸多少钱而是怎么止损的问题了<i
 
 
 
-                                           
+
+
+-----
+
+####  forzen  
+##### 21205#       发表于 2020-5-7 12:05
+
+
+
+
+红A哥也不用那么悲观，融资目的第一条就是加强对现有liver的支援第二条才是进出海外，除非说yagoo给你的印象就是压根已经不想建设星了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21206#       发表于 2020-5-7 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330511&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-7 11:58</a>
+
+点运营现在还有心思让6w粉的siro到阿b直播呢
+
+要么是运营已经失心疯，要么是在谋划和雄安一样的千年大计， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">6w已经很强了
+
+suzu和猫部都还要在阿B混饭
+
+
+
+syl点这群官号连互相关注都没，太拉胯了
+
+
+
+
+
+
+suzu.png
+(375.93 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-5-7 12:04 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/120450uzkdj19byvnzww9d.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+猫部.png
+(661.66 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-5-7 12:04 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/120450ehg4pq09ph0c9w9w.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21207#       发表于 2020-5-7 12:06
+
+
+
+
+那v吧又有可开素材了，区别对待翻译组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21208#       发表于 2020-5-7 12:07
+
+
+
+
+冲国区简直就是白送的，英文圈才是展现yagoo实力的时候
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21209#       发表于 2020-5-7 12:08
+
+
+
+
+星是必须输血都要养的，不然你等于直接放弃50%的市场，而且这50%打钱还特别勤快特别猛。
+
+当然男星粉抗压不可避。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 21210#       发表于 2020-5-7 12:08
+
+
+
+
+star现状其实已经不不少友商强了，没那么不堪
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21211#       发表于 2020-5-7 12:08
+
+
+
+
+杏星老哥想多了。现在杏仁是觉得给杏星投的资源太多了，至少不符合产出。而不是给杏星的资源太少了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21212#       发表于 2020-5-7 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330085&amp;ptid=1924531" target="_blank">バーチャルS1er 发表于 2020-5-7 11:26</a>
+
+FNNプライムオンライン
+
+@FNN_News
+
+【独自】人気ラッパー 大ma所持で現行犯逮捕</blockquote>
+问题是如果真有v管人被抓了新闻也会提管人的名字吗
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21213#       发表于 2020-5-7 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330228&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-7 11:37</a>
+
+转自净土坛
+
+想给pekomiko民的一段话</blockquote>
+自我意识过剩
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 21214#       发表于 2020-5-7 12:10
+
+
+
+
+那可不必，英翻多半也是人↑人来做的，圈子其实也就那么大
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21215#       发表于 2020-5-7 12:11
+
+
+
+
+进出英语圈肯定是直接建分部招liver啊，告示不都贴出来了
+
+
+
+
+
+
+
+-----
+
+####  proto  
+##### 21216#       发表于 2020-5-7 12:12
+
+
+
+
+现在杏的切片英翻也是国内粉丝做的吧？
+当然，翻汉语不给钱，翻英语给钱，节奏照样带。至于翻译者本身怎么想，谁管？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21217#       发表于 2020-5-7 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只能说一句，被带节奏真的是活该
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 21218#       发表于 2020-5-7 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330511&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-7 11:58</a>
+
+点运营现在还有心思让6w粉的siro到阿b直播呢
+
+要么是运营已经失心疯，要么是在谋划和雄安一样的千年大计， ...</blockquote>
+点生活游戏部都做到行业顶端了，居然能在巅峰期因为莫名奇妙的原因自爆，也是挺奇葩的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 21219#       发表于 2020-5-7 12:13
+
+
+
+
+为了不区别对待，可以招冲国人中英烤肉man，把发在b站的熟肉再翻译出去，会这个的肯定比会日语的多，不会日语也能当烤肉man了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 21220#       发表于 2020-5-7 12:13
+
+
+
+
+有专门提到加强英文翻译，与之对比的是中国字幕组这边翻译效率其实木口本身没太大插手空间，能主动去强化的起码不是用爱发电的志愿者了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 21221#       发表于 2020-5-7 12:15
+
+
+
+
+不是说按照市场价请不起做到当前字幕组做的程度吗
+
+英翻难道只翻小片段剪辑?
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21222#       发表于 2020-5-7 12:15
+
+
+
+
+说实话我是觉得虹能把女粉这市场占了是有原因的啊。各种面向女性向的企划什么男性制作人，职业男性音声企划，出专门的女性向音声，绿仙还说今年年底真要出个乙女galgame，是真的各种讨好女粉，我一个男粉看了都羡慕得不行。话说杏星有这种纯吸引女粉的企划么
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 21223#       发表于 2020-5-7 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330715&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-7 12:13</a>
+
+为了不区别对待，可以招冲国人中英烤肉man，把发在b站的熟肉再翻译出去，会这个的肯定比会日语的多，不会日 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你去HoloLive Moments 这个号上看看 他们就是在这么干啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 21224#       发表于 2020-5-7 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330636&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-7 12:08</a>
+
+杏星老哥想多了。现在杏仁是觉得给杏星投的资源太多了，至少不符合产出。而不是给杏星的资源太少了。 ...</blockquote>
+那是以他们的视角<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这边的视角，也就去年十二月末开始算是投入多了些
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 21225#       发表于 2020-5-7 12:17
+
+
+
+
+可是正规的翻译不便宜吧
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 21226#       发表于 2020-5-7 12:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">彩虹前段时间不也在招英翻吗 有下文没有？
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21227#       发表于 2020-5-7 12:18
+
+
+
+
+这个翻译，说真的，其实也只能去搞官号小品等等的翻译把了，至少具体到liver个人的直播是客观上绝无可能跟上的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21228#       发表于 2020-5-7 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330271&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-7 11:40</a>
+
+bsyl，话说XR是啥？我看第三个筹资目的里提到了这个</blockquote>
+XR：<blockquote>xRとは、「VR」「AR」「MR」などの総称のこと。「x」は未知数を示すもの、つまりxRealityということである。</blockquote><blockquote>VRが仮想現実、ARが拡張現実、MRが複合現実といわれてもどれが当てはまるか、その境界がどこにあるかわかりにくいから最近では全部まとめてXRと呼ばれてて、新技術ということではない</blockquote>
+[https://time-space.kddi.com/ict-keywords/20180816/2406](https://time-space.kddi.com/ict-keywords/20180816/2406)
+[https://newspicks.com/news/3577353/](https://newspicks.com/news/3577353/)
+
+メタバース： <blockquote>インターネット上に構築された、人々が様々な方法や形態で自由に交流できる仮想世界。AR/VR/MR/XRなどの技術を用いることで、メタバースはデジタルの世界と現実世界をつなぐことを可能とする。
+
+Invisible-to-Visibleはメタバースにつながり、ドライバーや乗員をメタバースで活動する人々とつなげることができる。</blockquote>
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 21229#       发表于 2020-5-7 12:19
+
+
+
+
+给holo官方频道的视频加404自带的字幕还是不会花太多钱的，要做到哪一步只有木口自己知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21230#       发表于 2020-5-7 12:21
+
+
+
+
+说实话B站字幕组这么累是有时候热情过头了，追求激光追求全熟。
+
+
+除了极少数直播之外，翻译完全没有全熟的必要，剪成几分钟一段的highlights翻译起来轻松吸引点击也更有效。这个模式剪&gt;翻，但是官方招剪辑比招翻译方便多了。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21231#       发表于 2020-5-7 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330805&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-7 12:21</a>
+
+说实话B站字幕组这么累是有时候热情过头了，追求激光追求全熟。
+
+
+除了极少数直播之外，翻译完全没有全熟的 ...</blockquote>
+b站应该有不少人就抱着熟肉啃当视频势看吧
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 21232#       发表于 2020-5-7 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330740&amp;ptid=1924531" target="_blank">Suny08 发表于 2020-5-7 12:15</a>
+
+说实话我是觉得虹能把女粉这市场占了是有原因的啊。各种面向女性向的企划什么男性制作人，职业男性音声企划 ...</blockquote>
+这个你去问滑稽老哥吧，他应该比我清楚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我实在想不起来了
+
+
+@滑稽Captain 
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21233#       发表于 2020-5-7 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330821&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-7 12:23</a>
+
+b站应该有不少人就抱着熟肉啃当视频势看吧</blockquote>
+应该说B站90%的都是这样吧
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21234#       发表于 2020-5-7 12:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等下，我有一个奇怪的想法。。那就是。。正式把asacoco收篇为asaholo，招收更多剪辑来辅助龙皇，并配备各个语种的翻译，身为专武创造人的龙皇则作为主编和主持来维持自己的利益。。。好像有那么点可行性？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21235#       发表于 2020-5-7 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330821&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-7 12:23</a>
+
+b站应该有不少人就抱着熟肉啃当视频势看吧</blockquote>
+虹杏本来就已经是业界最强视频势了。
+
+人均tiktok/抖音的时代mmr有多少人有耐心看完一个60分钟+的熟肉？搞5分钟以下的剪辑轰炸他们tl才是性价比最高的。
+
+
+真有动力完整看全熟的人基本上都有动力去追直播/学日语了。
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 21236#       发表于 2020-5-7 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330805&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-7 12:21</a>
+
+说实话B站字幕组这么累是有时候热情过头了，追求激光追求全熟。
+
+
+除了极少数直播之外，翻译完全没有全熟的 ...</blockquote>
+刚开始烤熟肉还新鲜，现在烤熟肉的都是旱的旱死涝的涝死，烤肉man太多剪辑不够用，alice组银盾直播的时候他们就这么说的……:
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21237#       发表于 2020-5-7 12:26
+
+
+
+
+这次融资的主要目的表面上没有涉及到star方面的活动支援
+
+但是嘛写是这么写的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21238#       发表于 2020-5-7 12:27
+
+
+
+
+剪辑还是要点技术的，剪得有趣抓住重点是要有点才华的。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21239#       发表于 2020-5-7 12:27
+
+
+
+
+所以像安洁组那样的组才是好文明啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21240#       发表于 2020-5-7 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330863&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-7 12:27</a>
+
+剪辑还是要点技术的，剪得有趣抓住重点是要有点才华的。</blockquote>
+反过来说，要知道哪里有趣本身还得会日语。。这个要求真的不高么
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21241#       发表于 2020-5-7 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330848&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-7 12:25</a>
+
+刚开始烤熟肉还新鲜，现在烤熟肉的都是旱的旱死涝的涝死，烤肉man太多剪辑不够用，alice组银盾直播的时候 ...</blockquote>
+剪辑这块可以通过官方提供做好了剪辑和特效的生肉来解决一部分产能问题。
+
+
+杏官号上每周一个主题集锦就是这种模式，以后无非多招人每个liver都能照顾到就行了。这时候杏liver少的优势又能发挥一下了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21242#       发表于 2020-5-7 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330842&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-7 12:25</a>
+
+等下，我有一个奇怪的想法。。那就是。。正式把asacoco收篇为asaholo，招收更多剪辑来辅助龙皇，并 ...</blockquote>
+运营又把未来和资源全押在coco上了
+
+这是最危险的
+
+更何况asacoco这本来也不是什么核心内容
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 21243#       发表于 2020-5-7 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剪辑要看得懂内容还要有时间追直播 比翻译难找
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21244#       发表于 2020-5-7 12:30
+
+
+
+
+直播势太长看不动需要靠剪辑快速传播这个事，差不多两年前委员长自己剪出第一期“10分钟带你看月之美兔”的时候就翻过来覆过去讨论好几页了，真是毅种循环......
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 21245#       发表于 2020-5-7 12:30
+
+
+
+
+校对才是所有翻译组的心病吧
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21246#       发表于 2020-5-7 12:30
+
+
+
+
+话说杏官号上的剪辑B站翻译好慢啊，NBXX宁愿在论坛黑屁微博挂人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| NBXX| + 2|翻译当天做好了，在等工程|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 21247#       发表于 2020-5-7 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">VR那种主播时刻不挺好的吗，把有意思的片段剪出来就可以了。
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 21248#       发表于 2020-5-7 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330805&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-7 12:21</a>
+说实话B站字幕组这么累是有时候热情过头了，追求激光追求全熟。
+
+
+除了极少数直播之外，翻译完全没有全熟的 ...</blockquote>
+夏组最近学聪明了投肉片，播放数据也高，看完的人也多
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21249#       发表于 2020-5-7 12:31
+
+
+
+
+斗鱼主播精彩时刻本来就是先进经验啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21250#       发表于 2020-5-7 12:31
+
+
+
+<blockquote>forzen 发表于 2020-5-7 12:25
+等下，我有一个奇怪的想法。。那就是。。正式把asacoco收篇为asaholo，招收更多剪辑来辅助龙皇，并 ...</blockquote>
+asshole（难视）
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 21251#       发表于 2020-5-7 12:32
+
+
+
+
+建议搞个主播真会玩vtb篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 21252#       发表于 2020-5-7 12:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21253#       发表于 2020-5-7 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330922&amp;ptid=1924531" target="_blank">与天争锋_LZ 发表于 2020-5-7 12:31</a>
+
+夏组最近学聪明了投肉片，播放数据也高，看完的人也多
+
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S ...</blockquote>
+咩夸夏这三组本来就是B站出肉质量&amp;稳定度最高那三组。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21254#       发表于 2020-5-7 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330935&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-05-07 12:32:44</a></blockquote>有一说一，红心啊粽子啊也弄了几次短视频，纯卖萌的一看就差了狐皇不少。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 21255#       发表于 2020-5-7 12:37
+
+
+
+
+高小姐yyutB限杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21256#       发表于 2020-5-7 12:37
+
+
+
+
+找不到剪辑可以从参考n站的剪辑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好多n站剪辑都标了出处的，没时间追直播找二手也行的啊
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21257#       发表于 2020-5-7 12:39
+
+
+
+
+二手的？兔皇事件导火线是什么忘了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 21258#       发表于 2020-5-7 12:39
+
+
+
+
+夏组确实劳苦功高 海盗组有十万关注估计是独一家
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21259#       发表于 2020-5-7 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330933&amp;ptid=1924531" target="_blank">h1001010 发表于 2020-5-7 12:32</a>
+建议搞个主播真会玩vtb篇</blockquote>
+天天被顺劈的VR早就搞过了，效果还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 21260#       发表于 2020-5-7 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330558&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-7 12:02</a>
+
+不过到希望这波筹资能给stars一个发展契机......虽然说肯定会全砸给女团就是了，不砸女团也砸给ID ...</blockquote>
+算算投入产出比，当然是给stars越少给女团或ID越多越好，这样说不定Stars的男人们先在投入产出比上吊打杏女<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21261#       发表于 2020-5-7 12:40
+
+
+
+
+爱丽丝组也有10万关注了啊，不过那是因为彩虹的字幕组运营模式的原因<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  baizhi  
+##### 21262#       发表于 2020-5-7 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">给阿B出个主意，不要搞什么VR了，大力搞虚拟主播时刻。以后我阿B想谁火就谁火
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 21263#       发表于 2020-5-7 12:44
+
+
+
+<blockquote>QWANG 发表于 2020-5-7 12:39
+二手的？兔皇事件导火线是什么忘了吗？</blockquote>
+怕出事可以去要授权啊，做剪辑的一般是粉丝，你愿意翻译推广大部分肯定给的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 21264#       发表于 2020-5-7 12:46
+
+
+
+
+B站有不少直接捡**、nico上的别人剪辑翻译的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，字幕组有没有这么搞没注意
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21265#       发表于 2020-5-7 12:47
+
+
+
+
+话说兔皇看的那个视频的原作者当时是什么态度？
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 21266#       发表于 2020-5-7 12:47
+
+
+
+
+悠宝要来了！<img src="https://p.sda1.dev/0/a6a66e18bf49262cd2682f9d338a0b3c/-499c1ac4804d7809.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 21267#       发表于 2020-5-7 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331121&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-7 12:47</a>
+话说兔皇看的那个视频的原作者当时是什么态度？</blockquote>
+有几个作者也去表示不满了
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 21268#       发表于 2020-5-7 12:48
+
+
+
+ 本帖最后由 18300625949 于 2020-5-7 12:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331121&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-7 12:47</a>
+
+话说兔皇看的那个视频的原作者当时是什么态度？</blockquote>
+表现得挺淡然的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 21269#       发表于 2020-5-7 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331087&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-7 12:44</a>
+
+怕出事可以去要授权啊，做剪辑的一般是粉丝，你愿意翻译推广大部分肯定给的 ...</blockquote>
+不一定、有不少专门的野生彩虹剪辑师都能靠着这个吃饭了，还有很多人传**不传nico（没收益）的
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 21270#       发表于 2020-5-7 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331114&amp;ptid=1924531" target="_blank">バーチャルS1er 发表于 2020-5-7 12:46</a>
+B站有不少直接捡**、nico上的别人剪辑翻译的吧，字幕组有没有这么搞没注意 ...</blockquote>
+鹰宫组就偷懒直接去推特上问一个粉丝剪辑的片段要授权，结果被大小姐本人逮个正着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21271#       发表于 2020-5-7 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330913&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-7 12:30</a>
+
+话说杏官号上的剪辑B站翻译好慢啊，NBXX宁愿在论坛黑屁微博挂人。</blockquote>
+说得真难听
+
+NB姐姐很忙的好吧……
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21272#       发表于 2020-5-7 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330887&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-7 12:29</a>
+
+运营又把未来和资源全押在coco上了
+
+这是最危险的
+
+更何况asacoco这本来也不是什么核心内容 ...</blockquote>
+实际上找几个剪辑翻译辅助龙皇完全算不上什么把未来和资源压在coco身上，反而asacoco的效果实际上确实是立竿见影。。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 21273#       发表于 2020-5-7 12:56
+
+
+
+
+点的运营是最奇怪，疯狂给siro堆资源却看不出有什么目标，直播对sc也不闻不问。这情况9成是点这个子公司拿v的项目从母公司骗经费，还有1成是白天王上面有干爹罩着随便玩。不管那种情况点箱的yhm都挺可悲的。
+
+
+
+
+
+
+
+-----
+
+####  pin_on  
+##### 21274#       发表于 2020-5-7 12:56
+
+
+
+
+就我知道的b站黑黑组把404一个专门做葛皇剪辑的火畜吃进组了。其他剪辑一般也有授权。还专门发了专栏庆祝
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21275#       发表于 2020-5-7 12:56
+
+
+
+
+我一直想不明白，兔皇删推道歉翻牌就能平息的问题，为什么非要拖到最后才解决，难道看上了之后的红地毯？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21276#       发表于 2020-5-7 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331244&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-7 12:56</a>
+
+实际上找几个剪辑翻译辅助龙皇完全算不上什么把未来和资源压在coco身上，反而asacoco的效果实际上确实是 ...</blockquote>
+立竿见影？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21277#       发表于 2020-5-7 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331258&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-7 12:56</a>
+
+我一直想不明白，兔皇删推道歉翻牌就能平息的问题，为什么非要拖到最后才解决，难道看上了之后的红地毯？ ...</blockquote>
+拖到最后？
+
+嫌兔皇第二天道歉不够及时？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21278#       发表于 2020-5-7 12:59
+
+
+
+
+友人A不是还说要帮龙皇，结果不是什么也没做？
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 21279#       发表于 2020-5-7 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47330834&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-7 12:24</a>
+
+这个你去问滑稽老哥吧，他应该比我清楚我实在想不起来了
+
+
+@滑稽Captain </blockquote>
+我清楚个锤子，除了白情音声，很女性向的内容我印象里还真没有
+
+偶尔有几场比较女性向的直播，没什么好提的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21280#       发表于 2020-5-7 13:00
+
+
+
+
+做字幕组需要的热情和日语力很高吧，我倒是想加但我又不会日语，楼里日语强强老哥感觉也没什么热情去加组或者做海盗，真的佩服字幕组的朋友。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21281#       发表于 2020-5-7 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331258&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-7 12:56</a>
+
+我一直想不明白，兔皇删推道歉翻牌就能平息的问题，为什么非要拖到最后才解决，难道看上了之后的红地毯？ ...</blockquote>
+我觉得倒是挺好想象的，日方隔着语言问题和时间问题（当时是大晚上）没法清楚的把握事态，也没法未卜先知预料到兔组的拱火，隔了一晚回过神来已经是完全搞不懂这tm啥jb玩意的状态了，既然成大炎上了兔神肯定是不可能独自决定怎么解决的，等公司开完会就又是一段时间了
+
+
+当然以上全部都是臆测就是了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21282#       发表于 2020-5-7 13:01
+
+
+
+
+A帮个几把
+
+A在去年的时候还多少有些帮忙
+
+今年基本歇菜了就是天天跑谁的直播间蹭热度
+
+还时不时整一些不慎发言然后自己事后默默删推
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21283#       发表于 2020-5-7 13:02
+
+
+
+<blockquote>泡芙好吃 发表于 2020-5-7 12:59
+拖到最后？
+
+嫌兔皇第二天道歉不够及时？</blockquote>
+抱歉云了，是只道歉还是删推道歉翻牌都做了？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 21284#       发表于 2020-5-7 13:03
+
+
+
+
+不是，你们把龙皇当什么了啊，真就asacoco改变木口吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 21285#       发表于 2020-5-7 13:03
+
+
+
+
+a既不出道又不收钱蹭个jb热度，她的kpi难道还跟推特关注挂钩的？
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 21286#       发表于 2020-5-7 13:04
+
+
+
+
+已经很好了，要是彩虹的v被说fh，田角和虹人估计管都不会管，七色太监应该在滑跪庆祝
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 21287#       发表于 2020-5-7 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟A酱是正儿八经被认可的P啊，野P当然嫉妒了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 21288#       发表于 2020-5-7 13:05
+
+
+
+
+人家不说你怎么知道没帮忙？整合社内信息以及筛选投稿这些干了也没有明显痕迹的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 21289#       发表于 2020-5-7 13:05
+
+
+
+
+A快要出道了啊
+
+上周asamiko都提到了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21290#       发表于 2020-5-7 13:05
+
+
+
+
+认真想想，其实我想看的也不是asaholo，而是zakoholo才对，这个不就是官号最近搞的东西么
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 21291#       发表于 2020-5-7 13:05
+
+
+
+
+yagoo和杏仁做了这么多弱智事情还是受人喜爱，不就是因为有田角哥哥和七色太监做对比<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qianoooo  
+##### 21292#       发表于 2020-5-7 13:06
+
+
+
+
+葵皇这 真就韩国人撸
+
+
+
+
+
+
+
+-----
+
+####  荣耀祝福LV20  
+##### 21293#       发表于 2020-5-7 13:06
+
+
+
+
+有请英字幕的钱不如去多找点以前视频v下岗员工，剪剪片就行主要还是宣传。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21294#       发表于 2020-5-7 13:06
+
+
+
+
+龙皇自己说的A要帮忙结果什么也没干啊。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 21295#       发表于 2020-5-7 13:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">a是正经八百的运营，她该干的事原本就是台下你们看不到的东西，难不成你还指望她出来发推灭火么
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 21296#       发表于 2020-5-7 13:07
+
+
+
+
+她不是每天发布时间表吗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21297#       发表于 2020-5-7 13:10
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-7 13:12 编辑 
+
+那位是小博宇转生吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+时间差不多能对的上唉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21298#       发表于 2020-5-7 13:10
+
+
+
+
+楼友不是指着A酱出来替龙皇播早安coco吧，龙皇也不一定乐意啊。
+
+私下提供剪辑和cm谁还知道做没做呢。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 21299#       发表于 2020-5-7 13:10
+
+
+
+
+阿夸大乱斗的时候A第一时间发推说运营很支持，兔子转剪辑她也去留言表示有趣，然后事后都装死了。
+
+A挺好的展现了运营事前只追求热度，出事后就出演者盾的态度。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 21300#       发表于 2020-5-7 13:10
+
+
+
+
+我也觉得像小博禹，看着拉黑吧
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 21301#       发表于 2020-5-7 13:12
+
+
+
+
+很多在油*管投稿的剪辑者都会标明频道不开收益，而且大部分人都很好说话。问授权的时候礼貌一些，除非涉及到多人合作或者版权之类的问题，一般都会同意搬运的。如果实在要不来授权，对着时间点剪个一模一样的也不是不可以<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 21302#       发表于 2020-5-7 13:14
+
+
+
+
+A酱当年开个推都闹腾了那么久，你们咋还非得指着人家出道，出道了能咋样啊...反正人家3D皮都有了，要发布什么信息也有官号呢
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 21303#       发表于 2020-5-7 13:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21304#       发表于 2020-5-7 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331252&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-7 12:56</a>
+
+点的运营是最奇怪，疯狂给siro堆资源却看不出有什么目标，直播对sc也不闻不问。这情况9成是点这个子公司拿v ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在吹逼appland内部可以分旧业务app派系，小白直属派和偶像部运营派，如果再考虑朝日电台入场，appland内部戏可多了
+
+至于sc，现在倒是对sc有反应了，以前一直是鼓励粉丝购买实体谷子的
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 21305#       发表于 2020-5-7 13:16
+
+
+
+
+【VALORANT TEST】プロゲーマーと猛者しかおらん新しいFPS【本間ひまわり/にじさんじ】
+
+
+画質とか動きテスト！アーカイブのこるかわからんち
+
+
+公式さんから特別にプレイ権利をいただきました🙏
+
+KR鯖でプレイします！ありがとう！
+
+
+还真的第一时间开荒啊，2000哥一语成谶
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21306#       发表于 2020-5-7 13:17
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gejtbamgbtj20yz0mbacu.jpg" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=YaJ44HRVTrE](https://www.youtube.com/watch?v=YaJ44HRVTrE)
+
+
+葵皇正在VALORANT测试服（韩国<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aucun  
+##### 21307#       发表于 2020-5-7 13:17
+
+
+
+
+啊葵现在在韩服打Valorant<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21308#       发表于 2020-5-7 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331514&amp;ptid=1924531" target="_blank">遍体精淋af 发表于 2020-5-7 13:15</a>
+
+https://bbs.nga.cn/read.php?tid=21638553&amp;_ff=-60204499</blockquote>
+钓，就直钩钓<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21309#       发表于 2020-5-7 13:19
+
+
+
+
+美服？欧服？👋
+
+
+韩服！👍
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21310#       发表于 2020-5-7 13:20
+
+
+
+
+2000越来越懂阿葵了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21311#       发表于 2020-5-7 13:21
+
+
+
+
+阿葵不会真的会韩语吧<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21312#       发表于 2020-5-7 13:21
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-7 13:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331565&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-7 13:19</a>
+
+美服？欧服？👋
+
+
+韩服！👍</blockquote>
+她拿得到美服和欧服的测试码吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我记得阿娣娅拿到过，然后又跑回去脑死ow了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 21313#       发表于 2020-5-7 13:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">天天指望运营镇火的是不是搞错了什么，能逼出cover发公告的严重程度和普通的道歉直播在等级上就不同。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是运营翻车，马头失言和改革出来的经理人部对粉丝打击有多大希望以后别家粉也能体验一下
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 21314#       发表于 2020-5-7 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331389&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-7 13:06</a>
+
+龙皇自己说的A要帮忙结果什么也没干啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙皇陨落的原因找到了，不知道hololive隐藏boss是谁吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 21315#       发表于 2020-5-7 13:23
+
+
+
+
+这狙有丶东西
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 21316#       发表于 2020-5-7 13:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然你们可能是在钓鱼但我还是把韩服原因发一下
+
+
+
+
+
+
+QQ截图20200507132259.jpg
+(37.83 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-7 13:23 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/132334dhbo212nicch1oc1.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21317#       发表于 2020-5-7 13:26
+
+
+
+
+所以阿葵是第一个直播这玩意的vtb？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 21318#       发表于 2020-5-7 13:27
+
+
+
+
+Vup播这个还挺多的
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 21319#       发表于 2020-5-7 13:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">看到葵+棒子文第一反应笑出了声，我紫菜。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21320#       发表于 2020-5-7 13:28
+
+
+
+
+aza和鲨皇都跟真人up主联动打过了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 21321#       发表于 2020-5-7 13:28
+
+
+
+
+2000属实带恶人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 21322#       发表于 2020-5-7 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331583&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-05-07 13:21:05</a>
+阿葵不会真的会韩语吧</blockquote>她不是和韩国女主播一起ow过吗，可能粉丝水平<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21323#       发表于 2020-5-7 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331583&amp;ptid=1924531" target="_blank">oshinoshinobu 发表于 2020-5-7 13:21</a>
+
+阿葵不会真的会韩语吧</blockquote>
+她确实会一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，ow里面韩语的报点她全看得懂，还会说左和右
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 21324#       发表于 2020-5-7 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> “尼样”教的韩语！
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 21325#       发表于 2020-5-7 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">脑补出阿葵"撒浪嘿"了。2000毁了多少人的生活啊。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 21326#       发表于 2020-5-7 13:32
+
+
+
+
+葵皇韩语基本只会OW用语（自称<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 21327#       发表于 2020-5-7 13:32
+
+
+
+
+证明了2000不是云P，真的是葵🐻？虽然是暗黑葵🐻
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 21328#       发表于 2020-5-7 13:32
+
+
+
+
+不要慌，形势还不严峻。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 21329#       发表于 2020-5-7 13:32
+
+
+
+
+葵自己的说法是会听会读一丢丢而已，单纯就知道一点游戏常用词，像这个游戏这种纯韩语就看不懂
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 21330#       发表于 2020-5-7 13:33
+
+
+
+
+2000这梁木都种到dna里面了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21331#       发表于 2020-5-7 13:33
+
+
+
+
+bsyl，说实话这游戏属于csgo和r6那种类型的，90%的时候都是**法解决一切，我对这帮v直播这游戏的效果不抱任何希望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这些人里面喜欢玩传统硬核fps的没几个
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 21332#       发表于 2020-5-7 13:34
+
+
+
+
+2000真的是坏东西，有这个洗脑力去安利点别的不好，现在看到葵有任何韩国要素都想笑我真的完蛋。昨天吃烤肉也是，第一反应是：是韩式烤肉吗？真的不太行<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21333#       发表于 2020-5-7 13:36
+
+
+
+
+说不定两千就是那个“尼样”呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21334#       发表于 2020-5-7 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331767&amp;ptid=1924531" target="_blank">star_platinum 发表于 2020-05-07 13:36:23</a>
+说不定两千就是那个“尼样”呢</blockquote>要是2000他能天天酸成这样？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21335#       发表于 2020-5-7 13:39
+
+
+
+
+2000二设多来点
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21336#       发表于 2020-5-7 13:39
+
+
+
+
+你怎么知道这种酸就不是一种rp呢，2000你会多少韩语<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 21337#       发表于 2020-5-7 13:40
+
+
+
+
+soft gibara韩语什么意思，2000不来翻译下吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21338#       发表于 2020-5-7 13:42
+
+
+
+
+隔壁nga开始带给英语翻译钱的节奏了，keke。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21339#       发表于 2020-5-7 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331823&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-7 13:42</a>
+
+隔壁nga开始带给英语翻译钱的节奏了，keke。</blockquote>
+v吧早就开始了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21340#       发表于 2020-5-7 13:42
+
+
+
+
+所以这个FPS缝合怪新游有机会火吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 21341#       发表于 2020-5-7 13:44
+
+
+
+
+起码在管人圈火有点难
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21342#       发表于 2020-5-7 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331830&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-7 13:42</a>
+
+所以这个FPS缝合怪新游有机会火吗</blockquote>
+毕竟是拳头的游戏，热度好像挺高的。
+
+不过作为不太关注fps的人，我是没接触到多少信息就是了，最近的新闻是owl上届世界冠军转战这个项目来着。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 21343#       发表于 2020-5-7 13:45
+
+
+
+
+阿葵坐实韩国人了？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 21344#       发表于 2020-5-7 13:46
+
+
+
+
+我只知道很多apex还有其他fps的职业选手被挖去玩这个拳头新游戏了
+
+最近看的一个apex大神也转了
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 21345#       发表于 2020-5-7 13:46
+
+
+
+
+挺难的，我印象中管人打过csgo的都少
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21346#       发表于 2020-5-7 13:47
+
+
+
+
+其实当初a牌也有很多职业卡牌游戏选手转项目，不过懂的都懂。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 21347#       发表于 2020-5-7 13:47
+
+
+
+
+拳头的游戏做好优化的话火的可能性还是不小的吧，管圈热度大概参考ow
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 21348#       发表于 2020-5-7 13:48
+
+
+
+
+麻了，一个字都不认识，服务器和语言选项不分开的吗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21349#       发表于 2020-5-7 13:49
+
+
+
+
+B站弹幕开始吵抄不抄袭了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 21350#       发表于 2020-5-7 13:49
+
+
+
+
+底子还是传统的竞技型fps，看管的一般人好像还是对吃鸡模式更能接受一点
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 21351#       发表于 2020-5-7 13:50
+
+
+
+
+都说了不可能火的，你看r6，csgo，cod这些游戏在管人圈是啥样就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这游戏和ow，apex这些轻度fps完全不一样的，能玩得转得只有专职主播，这需要花大把时间练**法的
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 21352#       发表于 2020-5-7 13:51
+
+
+
+
+只要像卢姥爷一样安装一个“fps辅助软件”就好了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21353#       发表于 2020-5-7 13:54
+
+
+
+
+这游戏能不能火还是未知数呢，不过在中国能火的可能性很大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 21354#       发表于 2020-5-7 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意twitch天天30w人
+
+lol现在也就平a10w
+
+至少在欧美就是下一个堡垒之夜
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21355#       发表于 2020-5-7 13:56
+
+
+
+
+欧美fps真的是人菜瘾大
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 21356#       发表于 2020-5-7 13:57
+
+
+
+
+草，欧美fps强的一逼
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 21357#       发表于 2020-5-7 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47331975&amp;ptid=1924531" target="_blank">cheatdeath3 发表于 2020-5-7 13:57</a>
+
+草，欧美fps强的一逼</blockquote>
+不是说职业，路人是真的菜
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 21358#       发表于 2020-5-7 14:00
+
+
+
+
+指不定能成为下一个批限管人金游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 21359#       发表于 2020-5-7 14:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话我觉得画面真的很简陋啊，拳头怎么老是搞这种卡通化建模。
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 21360#       发表于 2020-5-7 14:03
+
+
+
+
+在后台放着oto歌回，唱的中文歌怎么听起来像俄语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      
