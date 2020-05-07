@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-19 00:10** 
+> ## **本文件最后更新于2020-05-07 20:07** 
 
 
 
@@ -3463,4 +3463,560 @@ B站不知道啥时候买了樱战1动画的版权 可端上来的翻译那叫�
 
 
 
-                                           
+
+
+-----
+
+####  xingenge  
+##### 182#       发表于 2020-4-20 17:07
+
+
+
+
+第4話：友情満開！千年桜
+
+
+さくらは東雲初穂の様子が気になり部屋を訪れるが、扉には「実家に帰る」との張り紙が。花組一同が心配するが「お祭りの手伝いで帰ったのでは」と話し、さくらも手伝いに行くことにした。一緒に行きたいと言うクラーラと共に、さくらは初穂の実家である東雲神社に向かう。
+
+
+シナリオ：鈴木貴昭　 絵コンテ：坂田純一　 演出：浅利藤彰
+
+<img src="https://files.catbox.moe/978x3l.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/q54r5d.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/34ko8t.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4kk7v6.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/b4teea.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/0ovmbl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhwpjy  
+##### 183#       发表于 2020-4-20 20:51
+
+
+
+
+这个你猜太阴阳怪气了 就差说是我引过来的
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 184#         楼主| 发表于 2020-4-24 21:32
+
+
+
+
+莫击全家降魔？
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 185#       发表于 2020-4-24 22:43
+
+
+
+
+満開!!!
+
+之後大家會散華嗎?
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 186#       发表于 2020-4-24 23:03
+
+
+
+
+神龙轩歇业？晓龙和郁回上海了？
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 187#       发表于 2020-4-25 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">初穗家后院怎么布局和樱家一样的.......
+
+
+
+
+
+
+
+-----
+
+####  殿珣  
+##### 188#       发表于 2020-4-25 21:52
+
+
+
+
+初穗一说回老家我就开始脑补有多远，不说北海道怎么着也得是个关西吧。结果一看，坐电车一会就到，合着在东京郊区……这叫个毛回老家啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 189#       发表于 2020-4-26 00:51
+
+
+
+<blockquote>殿珣 发表于 2020-4-25 21:52
+初穗一说回老家我就开始脑补有多远，不说北海道怎么着也得是个关西吧。结果一看，坐电车一会就到，合着在东 ...</blockquote>
+这个倒是意料之中
+
+
+游戏版有个细节就是诚哥和小樱“穿越”回樱家见老妈的时候能够肉眼可见降魔战争的火光 而小樱小时候常去东云神社玩 就说明两家都离帝都不会太远
+
+
+
+
+
+
+
+-----
+
+####  宇宙大爆炸  
+##### 190#       发表于 2020-4-26 09:16
+
+
+
+
+诚哥呢？
+
+
+
+
+
+
+
+-----
+
+####  kos_mos  
+##### 191#       发表于 2020-4-26 11:17
+
+
+
+<blockquote>殿珣 发表于 2020-4-25 21:52
+初穗一说回老家我就开始脑补有多远，不说北海道怎么着也得是个关西吧。结果一看，坐电车一会就到，合着在东 ...</blockquote>
+原文实家，用老家其实不准确。
+
+
+
+
+
+
+
+-----
+
+####  ro4074  
+##### 192#       发表于 2020-4-26 11:27
+
+
+
+
+我感觉新樱战2的剧情应该就是动画同期神山在欧洲发生的事了，否则不会完全不提神山在干嘛，连上海华击团的人都不知所踪。
+
+
+
+
+
+
+
+-----
+
+####  lushark  
+##### 193#       发表于 2020-4-26 12:59
+
+
+
+
+游戏里圣诞夜就可以跟着初穗回神社抬轿再赶回来跟别人约会，距离可能也就美琪大戏院到宝山吧。
+
+
+
+
+
+
+
+-----
+
+####  殿珣  
+##### 194#       发表于 2020-4-26 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47209171&amp;ptid=1901682" target="_blank">ro4074 发表于 2020-4-26 11:27</a>
+我感觉新樱战2的剧情应该就是动画同期神山在欧洲发生的事了，否则不会完全不提神山在干嘛，连上海华击团的 ...</blockquote>
+如果真是这样那就好了。神山前往柏林华击团任队长，然后最后东京后宫团空降伦敦。ED来一段歌剧。完美。
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 195#       发表于 2020-4-26 13:25
+
+
+
+ 本帖最后由 aptx8285144 于 2020-4-26 13:30 编辑 
+
+樱花树重开还挺好看的，话说克拉拉这自称只是有点累，一种会有一天彻底昏过去的感觉，可别灯油耗尽<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+话说阿b的评分怎么在下降，这话看下来也没啥问题，樱小姐一直被刷佐仓行为笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">，克拉拉也可爱
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 196#       发表于 2020-4-26 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47210260&amp;ptid=1901682" target="_blank">lushark 发表于 2020-4-26 12:59</a>
+游戏里圣诞夜就可以跟着初穗回神社抬轿再赶回来跟别人约会，距离可能也就美琪大戏院到宝山吧。 ...</blockquote>
+多重影分身约会这种事情不能拿来做参考吧
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 197#       发表于 2020-4-27 17:07
+
+
+
+
+第5話：凸凹探偵！クラーラの秘密を探れ
+
+
+東雲神社での一件を目の当たりにした望月あざみは、莫斯科華撃団を壊滅させたのはクラーラではないかという疑惑を持ち調査を始める。それを聞いたクラリスは、いい脚本のネタになるかもしれないとその調査に参加。さらに、たまたま通りがかった司馬もそこに加わり、ドタバタ探偵劇が始まる。
+
+
+シナリオ：鈴木貴昭　 絵コンテ：松園公　 演出：後藤康徳
+
+<img src="https://files.catbox.moe/s6qar0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/fds9tg.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/sr3ud0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/lflus1.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ldtapn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4lkfjo.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 198#         楼主| 发表于 2020-5-1 21:27
+
+
+
+
+别告诉我这是澡堂回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  990076  
+##### 199#       发表于 2020-5-1 21:39
+
+
+
+
+繼續欺負司馬XD
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 200#       发表于 2020-5-2 06:13
+
+
+
+<blockquote>aptx8285144 发表于 2020-4-26 13:25
+樱花树重开还挺好看的，话说克拉拉这自称只是有点累，一种会有一天彻底昏过去的感觉，可别灯油耗尽
+
+ ...</blockquote>
+人气低负面评价就会扩大
+
+
+
+
+
+
+
+-----
+
+####  tachikoma0080  
+##### 201#       发表于 2020-5-2 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47203252&amp;ptid=1901682" target="_blank">hypnossz86 发表于 2020-4-25 19:29</a>
+
+初穗家后院怎么布局和樱家一样的.......</blockquote>
+最没地位女主角石锤，甚至连自己家的建模都不配拥有，只能蹭天宫家。
+
+话说staff是不是讨厌巨乳角色，初穗和安娜这两个酒保钦点最喜欢的巨乳存在感都有点弱。
+
+
+
+
+
+
+
+-----
+
+####  Dai-Dai-Dai-Dai  
+##### 202#       发表于 2020-5-2 09:51
+
+
+
+
+终于能看到帝剧三楼是怎样的了，在游戏里进不去。
+
+
+
+
+
+
+
+-----
+
+####  Harlaus  
+##### 203#       发表于 2020-5-2 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47276297&amp;ptid=1901682" target="_blank">tachikoma0080 发表于 2020-5-2 09:12</a>
+
+最没地位女主角石锤，甚至连自己家的建模都不配拥有，只能蹭天宫家。
+
+话说staff是不是讨厌巨乳角色，初穗 ...</blockquote>
+安娜在游戏中存在感还是很强的，初穗估计是因为和佐仓樱联系紧密，放其他作品就是典型的女主闺蜜，直接灯下黑
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 204#       发表于 2020-5-2 19:11
+
+
+
+
+有灵力增幅又是可爱的萝莉当然不想还了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">（当然大概率那场爆炸还另有隐情），这话后半部分节奏快起来感觉反而更好看
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 205#       发表于 2020-5-2 19:18
+
+
+
+
+克拉拉给我一种最终流放里的艾儿薇丝的感觉，虽然主观能动性要更强一些
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 206#       发表于 2020-5-3 21:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">司马洗澡那段没有做裸体建模，开门那张脸一下就崩了
+
+
+
+
+
+
+
+-----
+
+####  Tehebe  
+##### 207#       发表于 2020-5-3 21:13
+
+
+
+
+看了几级感觉还行，匆匆忙忙给游戏补了票，你们新花组一开始这么菜的么，就是到了动画版也没感觉很厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 208#       发表于 2020-5-4 17:12
+
+
+
+
+第6話：奇々怪々！黒マントの正体
+
+
+さくらの剣の師匠・村雨白秋が突然大帝国劇場に訪れる。白秋はクラーラとは初対面のはずだが、街で耳にする「莫斯科からの期待の新人現る」という噂ですでにクラーラのことを知っていた。白秋はさくらとクラーラを自分が面倒を見ている孤児院へと誘う。
+
+
+シナリオ：砂山蔵澄　 絵コンテ：中野典克　 演出：のがみかずお
+
+<img src="https://files.catbox.moe/pnz8vz.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/cbcnqy.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/h9hxzx.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/xeqthc.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/jx2snu.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/osy7yy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dent  
+##### 209#       发表于 2020-5-4 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47292715&amp;ptid=1901682" target="_blank">Tehebe 发表于 2020-5-3 21:13</a>
+
+看了几级感觉还行，匆匆忙忙给游戏补了票，你们新花组一开始这么菜的么，就是到了动画版也没感觉很厉害啊[f ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是还行，我觉得挺好看的了，远超预期
+
+新花组就是菜啊，不过蓟这集的表现比游戏里菜太多了，你这是哪门子忍者，给头领看到屁屁都要被打烂了
+
+
+
+
+
+
+
+-----
+
+####  tachikoma0080  
+##### 210#       发表于 2020-5-5 01:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47304730&amp;ptid=1901682" target="_blank">dent 发表于 2020-5-4 23:57</a>
+
+不是还行，我觉得挺好看的了，远超预期
+
+新花组就是菜啊，不过蓟这集的表现比游戏里菜太多了，你这 ...</blockquote>
+这集都不是菜的问题了，是蓟直接偏离角色设定。
+
+你一个忍者本职不就是侦查和情报收集吗？居然还要出钱委托小卖部去收集情报，这等于搞业务外包了，和游戏里一路塑造的敬业忍者形象差太多。
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 211#       发表于 2020-5-7 18:43
+
+
+
+
+7話「隠密作戦！デートを追え」
+
+8話「波乱万丈！華撃団大戦」
+
+9話「驚天動地！クラーラの真実」
+
+10話「帝都壊滅？ツングースカの怒り」
+
+
+
+
+
+                                          

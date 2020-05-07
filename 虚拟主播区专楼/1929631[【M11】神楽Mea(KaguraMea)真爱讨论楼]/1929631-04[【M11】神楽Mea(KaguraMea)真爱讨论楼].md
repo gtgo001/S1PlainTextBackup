@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 16:07** 
+> ## **本文件最后更新于2020-05-07 20:10** 
 
 
 
@@ -1081,4 +1081,796 @@ zsyl，不知道阿咩被安利了那个游戏之后会不会像老师一样播�
 
 
 
-                                               
+
+
+-----
+
+####  呓亘  
+##### 4562#       发表于 2020-5-7 16:07
+
+
+
+
+这女人今天会补直播吗……昨晚等到4点.....
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4563#       发表于 2020-5-7 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">煲电话粥真的可以说是突发情况，未必会补
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4564#       发表于 2020-5-7 16:17
+
+
+
+
+她连棉花糖收集的杂谈都能鸽还指望她补偿一句随口说的？“B限之后会去**播”这句话她起码鸽了5、6次
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4565#       发表于 2020-5-7 16:20
+
+
+
+
+相信mea是这个世界最愚蠢的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这是血的教训<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4566#       发表于 2020-5-7 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不播我又可以打一晚上电动，播了可以看一晚上直播，左右不亏的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4567#       发表于 2020-5-7 16:22
+
+
+
+ 本帖最后由 呓亘 于 2020-5-7 16:23 编辑 
+
+正式发过推的基本没怎么鸽过吧，不过这次也算是发推解释了一下
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4568#       发表于 2020-5-7 16:33
+
+
+
+
+对了，日本那边有专门的vtuber论坛或子版块吗（5ch除外）？要是有的话，要不要委托404常驻的两位本土粉建一个楼便于本土粉集中讨论？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4569#       发表于 2020-5-7 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47333633&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-7 16:33</a>
+对了，日本那边有专门的vtuber论坛或子版块吗（5ch除外）？要是有的话，要不要委托404常驻的两位本土粉建一 ...</blockquote>
+看起来那边更集中于推特上的，楼啥的感觉就不必要了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日本除了几个你mea姐的真爱粉，看讨论mea的大多是推别人的dd
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4570#       发表于 2020-5-7 16:55
+
+
+
+
+不光是讨论之类的，还有开播提醒啥的，都可以集中在楼里
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4571#       发表于 2020-5-7 16:57
+
+
+
+ 本帖最后由 呓亘 于 2020-5-7 17:00 编辑 
+
+对了，nns那边发了anmr的排班，你咩姐明天和兔姨舞元麻将是12点
+
+
+
+
+
+
+5DE98F1B-F889-4D76-99CD-0EA1F70E480F.png
+(30.38 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-7 17:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/170000j9gkdg0ss9k6usv6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4572#       发表于 2020-5-7 17:05
+
+
+
+
+请给我钱百万了，dadadada天使明后也会百万
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">黄姨你不要搞事啊
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4573#       发表于 2020-5-7 17:06
+
+
+
+
+你楼不要瞎JB奶就行
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4574#       发表于 2020-5-7 17:10
+
+
+
+
+排面.jpg
+
+图片来自b站用户“钻出一个大光头”
+
+
+
+
+
+
+F1CD422D-CDAA-41E2-853D-417C83C9DE24.jpeg
+(639.96 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-7 17:10 上传
+
+
+
+
+
+
+
+
+排面
+
+<img src="https://img.saraba1st.com/forum/202005/07/171024uek3tl3yals9eyyu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4575#       发表于 2020-5-7 17:13
+
+
+
+
+12点她起得来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+反正我起不来，最近昼夜颠倒
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4576#       发表于 2020-5-7 17:16
+
+
+
+<blockquote>呓亘 发表于 2020-5-7 17:10
+排面.jpg
+
+图片来自b站用户“钻出一个大光头”</blockquote>
+这个好像跟你常搜什么tag相关（并不是排面，是大数据
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4577#       发表于 2020-5-7 18:11
+
+
+
+
+刚刚刷动态看到睿站也有直播回放了，可以看两个月以内的录屏和实时弹幕，不知道申请条件是什么，官组要不去申请个这个？
+<img src="https://p.sda1.dev/0/3608eb84fe4c97d96ed242fc3f817e1f/IMG_D25BDC77262C467064480E1979EAA7B6.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4578#       发表于 2020-5-7 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47334736&amp;ptid=1929631" target="_blank">whbstc4545 发表于 2020-5-7 18:11</a>
+刚刚刷动态看到睿站也有直播回放了，可以看两个月以内的录屏和实时弹幕，不知道申请条件是什么，官组要不去 ...</blockquote>
+v区现在申不到吧
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4579#       发表于 2020-5-7 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47334749&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-7 18:12</a>
+v区现在申不到吧</blockquote>
+所以就是不知道要求，感觉可以去问问，粉丝数应该不是问题
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4580#       发表于 2020-5-7 18:42
+
+
+
+
+👊
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4581#       发表于 2020-5-7 18:49
+
+
+
+<blockquote>路人庚 发表于 2020-5-7 17:16
+这个好像跟你常搜什么tag相关（并不是排面，是大数据</blockquote>
+但我昨天也看到了，我也没搜过vtuber、、
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4582#       发表于 2020-5-7 18:49
+
+
+
+
+这饭盒还不错（放着我来
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4583#       发表于 2020-5-7 18:52
+
+
+
+
+舍不得 要不反过来吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4584#       发表于 2020-5-7 18:53
+
+
+
+
+👊👊👊
+其实我这的p站也能看到
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4585#       发表于 2020-5-7 18:57
+
+
+
+
+这饭盒吧，想了想能发啥感慨，但怎么想都是往发情那边想，所以就不说了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4586#       发表于 2020-5-7 19:03
+
+
+
+
+我来发散一下，
+
+
+你麻这人看来以后会成为dv的受害者
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4587#       发表于 2020-5-7 19:06
+
+
+
+
+我想打拳了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4588#       发表于 2020-5-7 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47334736&amp;ptid=1929631" target="_blank">whbstc4545 发表于 2020-5-7 18:11</a>
+刚刚刷动态看到睿站也有直播回放了，可以看两个月以内的录屏和实时弹幕，不知道申请条件是什么，官组要不去 ...</blockquote>
+[@Cla0221](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=528160) cla如果能有空看到可以在组里问问吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是能用上b自带的直播录像，传生肉能方便不少吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4589#       发表于 2020-5-7 19:22
+
+
+
+
+草，我刚才都看见了，结果光顾着回味饭盒给忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 4590#       发表于 2020-5-7 19:24
+
+
+
+
+不光DV受害者，怕还是渣男爱好者的一员（）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4591#       发表于 2020-5-7 19:27
+
+
+
+
+那我大概没机会了， 毕竟我不是渣男<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4592#       发表于 2020-5-7 19:37
+
+
+
+
+如果她喜欢，假装渣男也不是不可以
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4593#       发表于 2020-5-7 19:38
+
+
+
+
+这人以前就说过只要有爱，能接受dv吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4594#       发表于 2020-5-7 19:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4595#       发表于 2020-5-7 19:44
+
+
+
+
+这是五月病开始了吧，只求这个月能安稳些，不要再中旬突然爆炸了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4596#       发表于 2020-5-7 19:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼少点忆苦思甜就行
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4597#       发表于 2020-5-7 19:46
+
+
+
+
+不会的 18年12月7惨兮兮 19年12月7上了阿b 按照这个历史经验 516那天你咩姐会有大好事的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4598#       发表于 2020-5-7 19:48
+
+
+
+
+家用3d到货可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4599#       发表于 2020-5-7 19:48
+
+
+
+
+好像也没什么预定吧，平平稳稳的度过就是好事
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4600#       发表于 2020-5-7 19:49
+
+
+
+
+呜呜呜蒋劲夫预定
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4601#       发表于 2020-5-7 19:54
+
+
+
+
+要溺死了，要溺死了
+你看隔壁那么努力，市场就那么大，吃枣药丸，呜呜呜
+
+所以今晚播不播啊，mk2在吗，帮个忙好吗
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4602#       发表于 2020-5-7 20:02
+
+
+
+
+如月播完看情况吧，昨天等了一晚上却没播总感觉少点什么
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4603#       发表于 2020-5-7 20:04
+
+
+
+
+来了来了，新的传说曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4604#       发表于 2020-5-7 20:07
+
+
+
+
+你这戒断反应太严重了，得治
+溜了溜了，传说曲伤耳
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4605#       发表于 2020-5-7 20:09
+
+
+
+
+我现在就是字幕组噶吃了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
