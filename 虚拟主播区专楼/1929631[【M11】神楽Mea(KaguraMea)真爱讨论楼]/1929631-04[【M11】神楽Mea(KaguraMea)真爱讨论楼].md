@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 22:08** 
+> ## **本文件最后更新于2020-05-08 00:08** 
 
 
 
@@ -1328,7 +1328,7 @@ zsyl，不知道阿咩被安利了那个游戏之后会不会像老师一样播�
 
 
 F1CD422D-CDAA-41E2-853D-417C83C9DE24.jpeg
-(639.96 KB, 下载次数: 0)
+(639.96 KB, 下载次数: 3)
 
 
 
@@ -3004,4 +3004,1313 @@ syl没死鱼了，现在起也要变成+1bot了
 
 
 
-                                            
+
+
+-----
+
+####  草牛  
+##### 4669#       发表于 2020-5-7 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">觉得看数字不爽可以直说，我觉得没问题，不要拐弯抹角忧心收入，数字厨不丢人，杞忧才丢人
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 4670#       发表于 2020-5-7 22:08
+
+
+
+
+醒醒，mea糊的又不是本土盘，反而是本土盘有所回升。mea糊的是这边的盘子，这边翻过去打钱的人少了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4671#       发表于 2020-5-7 22:08
+
+
+
+
+日本税是少不了了，只不过国内交多少，那边相应的减多少。我都无语了，你楼还有杞犹她收入的，工资到起税点了吗？过了起税点的税后年薪有她税后月薪多吗？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4672#       发表于 2020-5-7 22:10
+
+
+
+
+税只是抵一部分，少的还得补，不过阿b抽的那部分貌似是含税的，苔苔还是谁不是说其实两边差不多么
+
+
+
+ddd加bls双buff越来越有可能了，虽然管子只恰三成，但我还是习惯在阿b，404给个会员加fanbox它不香么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4673#       发表于 2020-5-7 22:10
+
+
+
+
+别骂了别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 4674#       发表于 2020-5-7 22:13
+
+
+
+ 本帖最后由 rosevalley46 于 2020-5-7 22:16 编辑 
+
+我觉得她现在这状态挺好的,没啥可杞人忧天的
+
+能感觉到她比以前压力小多了,她有段时间播一段就要歇一段,那时候状态是真不怎么样
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4675#       发表于 2020-5-7 22:14
+
+
+
+
+与其说b站她糊了，倒不如说她这批进来的日v都下来了，现在b站已经是中国特供yhm的天下了，她本身在同期进来的v里面倒还是一样的前排
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4676#       发表于 2020-5-7 22:17
+
+
+
+
+确实，佛系看管，这种管不着的数字拿来杞忧只能让自己忧郁，钱的话自己有多少多少打点就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4677#       发表于 2020-5-7 22:17
+
+
+
+
+关键还是看mea自己怎么想，她觉得挺好我又能说什么，反正比我赚得多。她要是根本没提过这个话题，我也懒得脑补她的心思，脑补易上头。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4678#       发表于 2020-5-7 22:21
+
+
+
+
+这边糊了个锤子，去年6月以前高收入就集中在咩夸身上就不提了，那时候提到v也没几个说收入高的，因为体量都没起来。
+
+7月以后开始遍地开花，咩吃了几个月无火的电视，到了10月以后才不行的，如果没有无火和周年，其实7、8、9、10、11几个月都差不多。
+
+12月一波bls拉上去了，寒假开始提督舰长又多了起来，从11月的3提督300左右舰长，到现在10提督400左右舰长。过年几天十几万，情人节26万，白情十几万，4号也是十几万，这难道不是这边反而又好起来了？
+
+
+主要是突出一个这边糊了总感觉有暗指字幕组的意思，不是的话当我没说最后这句.
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4679#       发表于 2020-5-7 22:24
+
+
+
+
+这边糊了估计是跟其他vup相比的，毕竟阿律这两个月猛的不行（相比之下其他虚拟人在阿b就下去了那么一点
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4680#       发表于 2020-5-7 22:24
+
+
+
+
+扫阿b她的tag时看到多了好几个新稿子都是陌生的有能粉丝，官组和同好会快去恰人啊，还有我流量民心心念念的官组同好会联手之日什么时候才能到来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4681#       发表于 2020-5-7 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337474&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-7 22:21</a>
+这边糊了个锤子，去年6月以前高收入就集中在咩夸身上就不提了，那时候提到v也没几个说收入高的，因为体量都 ...</blockquote>
+你梁木太深了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+起来时说mea是风口上的猪，靠字幕组包装
+现在字幕组配不上mea<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+字幕组确实辛苦了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4682#       发表于 2020-5-7 22:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这两个月星皇和高女士太过亮眼，也没什么办法
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4683#       发表于 2020-5-7 22:25
+
+
+
+
+其实是其他v起来了，b站v区总体体量不是一年前可比的了，咩的占比少了=糊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4684#       发表于 2020-5-7 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">流星不必这么激动，在这儿要说字幕组的坏话是不会yygq的，都是直球痛斥，所以大可放心
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 4685#       发表于 2020-5-7 22:28
+
+
+
+
+糊当然是与自己比，舰长、充电人数都降了啊。至于今年星街、猫律这批，去年不也有kanna么，不同点大概就是现在这些起飞时一直有人在带mea节奏。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4686#       发表于 2020-5-7 22:28
+
+
+
+
+字幕组暗黑粉真爱粉可以去隔壁楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得mea打不过那些中国特供yhm是因为她对中国观众还是带点届不到的偶像味的，相比之下高太尉这种就接地气多了，打不过实属正常
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4687#       发表于 2020-5-7 22:28
+
+
+
+
+但看数据看国内翻出去打钱的确实变少了，虽然有一部分可能是换了streamlabs，但比二月还少我真的没想到。clay桑之前的担忧成真了，咩姐的本土讨论度提高了，也有新的本土vtb观众和鬼佬来看咩姐直播，但是他们不怎么打钱。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4688#       发表于 2020-5-7 22:29
+
+
+
+
+我就希望她事少点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 不要跟过年那时一样整天搞得跟抑郁了一样
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 离心| + 1|说的对|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4689#       发表于 2020-5-7 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337563&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-7 22:29</a>
+我就希望她事少点 不要跟过年那时一样整天搞得跟抑郁了一样</blockquote>
+现在我觉得她过的更舒服了
+每想起之前一个推特怪文书跟她扯bilibili的同接低了收入低了，就会回想当年自己作为数字民有多弱智<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4690#       发表于 2020-5-7 22:34
+
+
+
+
+我觉得本土讨论度高了哪怕钱少点她也要
+同接上去，主要是杂谈同接上去，我就很开心了
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4691#       发表于 2020-5-7 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337250&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-7 21:59</a>
++1
+
+syl没死鱼了，现在起也要变成+1bot了</blockquote>
+有丶搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4692#       发表于 2020-5-7 22:36
+
+
+
+
+现在本土不就只有holosc高，其它不普遍捞吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4693#       发表于 2020-5-7 22:37
+
+
+
+
+说翻出去打钱的人少了总得拉个id清单点一下人头，不能完全凭感觉吧。
+sc+sl和以前单月一两百万也差不了多少，为啥非得把她说糊了不可<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4694#       发表于 2020-5-7 22:37
+
+
+
+
+主要是本土新观众又不会主推她，靠联动吸粉也是吸的别家粉，现在即使粉丝吸过来了也没那么容易从他们企业v主推手里抢钱。至于鬼佬，不捣乱能涨涨同接就够不错的了。
+
+
+但是说到最后，她钱不是够花吗，还想这么多干嘛。我曾经最怕她收入下滑了，但现在看这数据觉得也就那样，又不是不够花。只要是喜欢她的人越来越多就行，那样她还能和人聊上天。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4695#       发表于 2020-5-7 22:37
+
+
+
+
+观众总是要轮转的，我不敢说我能推多长时间，有新观众是好的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4696#       发表于 2020-5-7 22:37
+
+
+
+
+彩虹还没死呢真的，v综在隔壁
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4697#       发表于 2020-5-7 22:37
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-7 22:39 编辑 
+
+“受苦受难的mea才是我喜欢的mea”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+你麻的饭盒收入我倒是挺想知道其实
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4698#       发表于 2020-5-7 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实刚才回文里顺手找顶以前车轱辘时的帽子顺手给人扣上的讨论方法不太好，虽然我开这话头确实是以前讨论过的一些东西但是我是因为见过”一些词“后续会带来的车轱辘所以不打算顺着这车轱辘滚下去，要是别人没见过这车轱辘的火气起来了开始反击就又是一轮十多页的车轱辘pvp了，这真的是大家想见到的讨论吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 草牛| + 1|支持正经讨论|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 4699#       发表于 2020-5-7 22:41
+
+
+
+
+斗虫别过度上头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+统计网站上是一个个数字，但实际上那可是货真价实的钱啊。mea的收入在同龄人阶段能有几个比得上她的。另外，说句扎心的，她交的税金说不定都比相当多打钱的观众的收入高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4700#       发表于 2020-5-7 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337621&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-7 22:36</a>
+现在本土不就只有holosc高，其它不普遍捞吗</blockquote>
+男人浓度越高的收入越低，很合理<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4701#       发表于 2020-5-7 22:42
+
+
+
+
+车轱辘就车轱辘呗，车轱辘能培养新人好吧
+反正她又不播
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4702#       发表于 2020-5-7 22:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/224656szky6aue7k8558kd.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200507_224628.png</strong> (42.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-7 22:46 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鳖说一个月了，就她过去7天的税前sc收入就能顶中国大多数应届生的年薪了吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4703#       发表于 2020-5-7 22:48
+
+
+
+
+你们担心什么？ 
+
+
+等我到了日本就都解决了.jpg
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4704#       发表于 2020-5-7 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337660&amp;ptid=1929631" target="_blank">age45 发表于 2020-5-7 22:40</a>
+其实刚才回文里顺手找顶以前车轱辘时的帽子顺手给人扣上的讨论方法不太好，虽然我开这话头确实是以 ...</blockquote>
+我瞅了半天之前的回复，难道扣帽子指的是我那句吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是真心想的没事爱研究字幕组的去隔壁的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4705#       发表于 2020-5-7 22:49
+
+
+
+
+就是税后也比大部分担心她收入的人月收入高了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4706#       发表于 2020-5-7 22:50
+
+
+
+
+再说你麻播得时间很有问题好吧，上个月黄金时间不播，半夜狂播，谁顶得住
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4707#       发表于 2020-5-7 22:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应届生第一年啊，那不是实习期工资吗（不过如果是程序员进外企的话第一年也是少说有个10万刀的
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4708#       发表于 2020-5-7 22:50
+
+
+
+
+别说出来，给实习生留个活路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4709#       发表于 2020-5-7 22:51
+
+
+
+
+抵制半夜狂播，人人有责
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4710#       发表于 2020-5-7 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337474&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-7 22:21</a>
+
+这边糊了个锤子，去年6月以前高收入就集中在咩夸身上就不提了，那时候提到v也没几个说收入高的，因为体量都 ...</blockquote>
+无火也没给mea打过几次钱吧，无火刚来V区的时候倒是给mea打过电视上过提督，反正总督肯定没给过，电视下半年也没见他给过。我已经很久没在mea的房间看过刷无火佬了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4711#       发表于 2020-5-7 22:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以黄兔子给她安排一个中午的联动顺便也可以憋一下她的生物钟，也是好的
+
+
+黄兔子 永远滴健康民
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4712#       发表于 2020-5-7 22:53
+
+
+
+
+不是正常时间播根本打不过两大箱才不播的吗
+
+麻永远是走邪路的啊
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4713#       发表于 2020-5-7 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337747&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-7 22:49</a>
+
+我瞅了半天之前的回复，难道扣帽子指的是我那句吗我是真心想的没事爱研究字幕组的去隔壁的 ...</blockquote>
+虽然不是但是字幕组确实在隔壁讨论比较好<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4714#       发表于 2020-5-7 22:55
+
+
+
+
+你这是思维迪化，我看你麻就是没人管生活不自律一不小心就昼夜颠倒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4715#       发表于 2020-5-7 22:55
+
+
+
+
+其实我觉得是她没睡起来/没酝酿好心情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4716#       发表于 2020-5-7 22:56
+
+
+
+
+这俩月吊人沉迷深夜TC，加上疫情居家没话题，正经的404杂谈回都办不太起来了
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4717#       发表于 2020-5-7 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337789&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-7 22:53</a>
+
+不是正常时间播根本打不过两大箱才不播的吗
+
+
+麻永远是走邪路的啊</blockquote>
+你麻想播的时候还管她撞不撞的<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4718#       发表于 2020-5-7 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337785&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-7 22:52</a>
+
+无火也没给mea打过几次钱吧，无火刚来V区的时候倒是给mea打过电视上过提督，反正总督肯定没给过，电视下 ...</blockquote>
+“界王拳”总督+100个小电视的组合第一拳打的就是mea，你再好好想想
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4719#       发表于 2020-5-7 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337817&amp;ptid=1929631" target="_blank">以一持万 发表于 2020-5-7 22:56</a>
+这俩月吊人沉迷深夜TC，加上疫情居家没话题，正经的404杂谈回都办不太起来了 ...</blockquote>
+不过联动是真不少，能跟花生君联动我是真没想到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4720#       发表于 2020-5-7 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337785&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-7 22:52</a>
+
+无火也没给mea打过几次钱吧，无火刚来V区的时候倒是给mea打过电视上过提督，反正总督肯定没给过，电视下 ...</blockquote>
+总督是从6月续到8月还是9月来着，100电视6月两到三次，7月两到三次，8月一次还是两次，9月一次，之后有哪次给过10个，再就没有了。
+
+我也只是证明一下现在和她之前对比并称不上糊而已。最多只能说有下降，但更应该是更好了的。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4721#       发表于 2020-5-7 23:02
+
+
+
+
+确实，我只是觉得404吸新粉现在难如登天<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4722#       发表于 2020-5-7 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337851&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-7 23:00</a>
+总督是从6月续到8月还是9月来着，100电视6月两到三次，7月两到三次，8月一次还是两次，9月一次，之后有哪 ...</blockquote>
+感觉一直是个波浪的样子，时高时低的，而现在我感觉是在一个山峰，随着疫情的影响变小mea的数字大概会下降一段时间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但愿数字民们做好准备
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4723#       发表于 2020-5-7 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337883&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-7 23:03</a>
+
+感觉一直是个波浪的样子，时高时低的，而现在我感觉是在一个山峰，随着疫情的影响变小mea的数字大概会下 ...</blockquote>
+山峰是过年到情人节，之后已经在慢慢降了，等下次估计要3d了。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4724#       发表于 2020-5-7 23:07
+
+
+
+
+404新观众确实有不少是表示因为新冠蹲在家超无聊的鬼佬就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等疫情结束了大家的同接都会降的
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 4725#       发表于 2020-5-7 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337943&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-7 23:07</a>
+
+404新观众确实有不少是表示因为新冠蹲在家超无聊的鬼佬就是了
+
+
+等疫情结束了大家的同接都会降的 ...</blockquote>
+在岩窟王和不安倍增的指导下“疫情结束”这个天知道到什么时候了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4726#       发表于 2020-5-7 23:23
+
+
+
+
+千言万语还是一句，个人势难啊     syl 之前一直在车516，那516前后数据变化有人给过吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4727#       发表于 2020-5-7 23:26
+
+
+
+
+疫情这种情况下，很多家庭顶梁柱失业，失去经济来源，学生也不能打工，v作为主播的一员在这种情况下反而有相对稳定和安全的收入，已经不错了。现在找份工作有多难。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4728#       发表于 2020-5-7 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338102&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-7 23:23</a>
+千言万语还是一句，个人势难啊     syl 之前一直在车516，那516前后数据变化有人给过吗(눈_눈) ...</blockquote>
+虽然看到不少发疯的人但好像没什么太大变化，就是多了波千舰
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4729#       发表于 2020-5-7 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338102&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-7 23:23</a>
+千言万语还是一句，个人势难啊     syl 之前一直在车516，那516前后数据变化有人给过吗(눈_눈) ...</blockquote>
+那个19年b站舰队数量变化视频和19年sc变化视频可以看出来点
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4730#       发表于 2020-5-7 23:41
+
+
+
+
+有人发这图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4731#       发表于 2020-5-7 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“终于”...不会是那台外星人吧
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4732#       发表于 2020-5-7 23:45
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-5-7 23:59 编辑 
+
+仔细想想，感觉记忆有点混乱有种缝合了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">怕散播错误情报，还是编辑了。
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4733#       发表于 2020-5-7 23:45
+
+
+
+
+管外星人叫显示器吗…
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4734#       发表于 2020-5-7 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4735#       发表于 2020-5-7 23:47
+
+
+
+
+呵，女人
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4736#       发表于 2020-5-7 23:48
+
+
+
+
+草，微博上搜mea看到了你版版主的视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[http://weibointl.api.weibo.com/s ... id=4501718865631826](http://weibointl.api.weibo.com/share/145284515.html?weibo_id=4501718865631826)
+<img src="https://p.sda1.dev/0/fed7db5487da68d6f40261abeddea47d/IMG_3713E2C0A4C5C76C3D5434614E8F4C53.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4737#       发表于 2020-5-7 23:48
+
+
+
+
+狗屎，不要的显示器可以roll给观众
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4738#       发表于 2020-5-7 23:50
+
+
+
+
+记得几个月之前她就吐槽过那个外星人蓝屏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 4739#       发表于 2020-5-7 23:52
+
+
+
+
+是怎么碎的来着
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4740#       发表于 2020-5-7 23:57
+
+
+
+
+一拳撸穿.gif
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4741#       发表于 2020-5-8 00:02
+
+
+
+
+我记得是打只狼的时候手柄砸的来着？
+
+
+
+
+
+                                         
