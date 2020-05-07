@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-05 22:02** 
+> ## **本文件最后更新于2020-05-07 22:01** 
 
 
 
@@ -15438,4 +15438,401 @@ mea那边的金瓜子多一点，微弱优势胜出。
 
 
 
-                     
+
+
+-----
+
+####  坚果收藏家  
+##### 3852#       发表于 2020-5-6 00:26
+
+
+
+ 本帖最后由 坚果收藏家 于 2020-5-6 00:28 编辑 
+
+听说这次联动看的人少，打的钱少，泥潭也没什么讨论度。
+
+终于这CP要凉下来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两女主播再接再厉，你们会有更拉跨的一天的。加油！！！！
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 3853#       发表于 2020-5-7 19:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/192912igk8iuwmgu8hrfuh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-csirKvT3cSii-7l[1].jpg</strong> (50.32 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-7 19:29 上传
+
+
+
+
+
+
+
+正义的皮套man
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3854#       发表于 2020-5-7 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47335560&amp;ptid=1914314" target="_blank">yuandi0120 发表于 2020-5-7 19:29</a>
+
+正义的皮套man</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是傻紫组写的么
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 3855#       发表于 2020-5-7 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47335632&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-5-7 19:34</a>
+这不是傻紫组写的么</blockquote>
+谁写的不重要，重要的是连体婴看见了嗷的一声就疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+http://bbs.nga.cn/read.php?tid=21650136
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3856#       发表于 2020-5-7 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47335706&amp;ptid=1914314" target="_blank">yuandi0120 发表于 2020-5-7 19:41</a>
+
+谁写的不重要，重要的是连体婴看见了嗷的一声就疯了
+
+[http://bbs.nga.cn/read.php?tid=21650136](http://bbs.nga.cn/read.php?tid=21650136)</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小号连体婴，说不定是你楼哪个反串呢
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 3857#       发表于 2020-5-7 19:54
+
+
+
+
+nga这个不行啊，b博比较zqsg
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 3858#       发表于 2020-5-7 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47335718&amp;ptid=1914314" target="_blank">JY要塞 发表于 2020-5-7 19:42</a>
+
+小号连体婴，说不定是你楼哪个反串呢</blockquote>
+这个不是小号啊，后面那个要“公平”才是小号。这个看着好像真的是连体婴抽过去了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3859#       发表于 2020-5-7 20:01
+
+
+
+
+贴贴人什么时候才能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3860#       发表于 2020-5-7 20:02
+
+
+
+
+联合投稿都不懂的，太业余了吧
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 3861#       发表于 2020-5-7 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47335706&amp;ptid=1914314" target="_blank">yuandi0120 发表于 2020-5-7 19:41</a>
+谁写的不重要，重要的是连体婴看见了嗷的一声就疯了
+
+http://bbs.nga.cn/read.php?tid=21650136</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">他被杀了呜呜呜，我们连体人什么时候能有阳光下生存的权利
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3862#       发表于 2020-5-7 20:18
+
+
+
+
+笑点有点低，那个公平乐到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3863#       发表于 2020-5-7 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b博小范围开团，不成气候
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3864#       发表于 2020-5-7 20:24
+
+
+
+
+这下真是残党了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这就是时代的变迁吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3865#       发表于 2020-5-7 20:26
+
+
+
+
+楼里翻了一阵我才发现出了什么事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过u1s1一个不怎么自己发言的官号突然来一句啊这，是挺吓人的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3866#       发表于 2020-5-7 20:28
+
+
+
+
+这开的什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v吧人↓人都不屑于开这破团
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3867#       发表于 2020-5-7 20:38
+
+
+
+
+因为水平过低， 我都怀疑是zqsg了。
+
+
+或者只是随便反串一下玩玩吗， 可是没有效果不是很无趣吗
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3868#       发表于 2020-5-7 21:26
+
+
+
+
+看了下
+
+''咩夸官组两组阴着制糖（指时间和封面小彩蛋）结果咩组被一堆人挂在树上打，
+盐水官组紫组明着制糖拉一波夸组（指联合投稿共享动态内容）结果一堆人护着。''
+
+这大概就是有人会觉得''不公平'''双标''的理由了吧.....
+
+.....怎么说呢...
+..有点微妙的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3869#       发表于 2020-5-7 21:28
+
+
+
+
+没啥好车的
+
+《论MeAqua的特殊性》
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3870#       发表于 2020-5-7 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47336872&amp;ptid=1914314" target="_blank">noaki 发表于 2020-5-7 21:26</a>
+
+看了下
+
+
+''咩夸官组两组阴着制糖（指时间和封面小彩蛋）结果咩组被一堆人挂在树上打，</blockquote>
+两个事实：1meaqua被追着喷    2盐水没什么人喷
+
+贴贴人想到的：“凭什么只喷我们不喷他们？这不公平！”
+
+正常人想到的：“这对CP的粉丝被追着喷，应该是做过不少惹人生气的事吧。”
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3871#       发表于 2020-5-7 21:49
+
+
+
+
+因为meaqua是真的（振声）
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3872#       发表于 2020-5-7 21:49
+
+
+
+
+风怒
+
+
+
+
+
+                    

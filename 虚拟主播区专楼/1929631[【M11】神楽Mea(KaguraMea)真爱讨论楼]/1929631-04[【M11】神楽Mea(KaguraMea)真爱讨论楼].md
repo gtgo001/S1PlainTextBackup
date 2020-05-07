@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 20:10** 
+> ## **本文件最后更新于2020-05-07 22:08** 
 
 
 
@@ -1866,11 +1866,1142 @@ v区现在申不到吧</blockquote>
 
 
 
+ 本帖最后由 2014720 于 2020-5-7 20:18 编辑 
 
 我现在就是字幕组噶吃了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+我觉得这次相比之前的有点尬，可能效果一般<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
 
 
-                                              
+
+
+
+-----
+
+####  Cla0221  
+##### 4606#       发表于 2020-5-7 20:22
+
+
+
+
+我倒不觉得，毕竟她自己加了个死亡调音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4607#       发表于 2020-5-7 20:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你楼戒断太快了，明明昨晚刚播过
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4608#       发表于 2020-5-7 20:27
+
+
+
+
+都是惯的，要不就没经历过那个哪天播了啥都还能记得一清二楚的时代
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4609#       发表于 2020-5-7 20:32
+
+
+
+
+不说更久的，就那次她一周没播上来耐久播那个棒球游戏我tm醉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后又一周没播
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4610#       发表于 2020-5-7 20:37
+
+
+
+
+五小时耐久棒球时我一边挂着听一边干别的，那会还听得挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道以后mea还会不会搞这种耐久游戏回
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4611#       发表于 2020-5-7 20:38
+
+
+
+
+如月今晚神回，我已经不需要她了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4612#       发表于 2020-5-7 20:39
+
+
+
+
+麻酱已经是过去的女人了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4613#       发表于 2020-5-7 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47336385&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-7 20:38</a>
+如月今晚神回，我已经不需要她了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">怎么了，我母鸡啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4614#       发表于 2020-5-7 20:44
+
+
+
+
+都爬都爬，把钱留下就行。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4615#       发表于 2020-5-7 20:45
+
+
+
+
+说到新人，这里贷款一波，小紫会不会因为她自己对v上心程度的和咩起摩擦啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4616#       发表于 2020-5-7 20:47
+
+
+
+
+会吗，如果是小紫或小绿掏钱买的皮，那不是想怎么播就怎么播？如果是mea送的皮，粽爹的皮应该挺贵的，那么贵的皮都送了还在乎播不播干嘛
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4617#       发表于 2020-5-7 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47336428&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-7 20:42</a>
+怎么了，我母鸡啊</blockquote>
+棉花糖人均村上春树<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4618#       发表于 2020-5-7 20:52
+
+
+
+
+这贷款没意义啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+很明显mea又不是她们运营，这要能起摩擦虹杏早炸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4619#       发表于 2020-5-7 20:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻都是快乐直播，能冲突啥
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4620#       发表于 2020-5-7 20:58
+
+
+
+
+那没事了，就看着小紫tc播的多油管不怎么在意想多了，我自己爬
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4621#       发表于 2020-5-7 20:59
+
+
+
+
+你楼别因为mea对自己当v的上心程度起摩擦就行
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4622#       发表于 2020-5-7 21:14
+
+
+
+
+本来好久没留意斗虫了
+
+<img src="https://img.saraba1st.com/forum/202005/07/210419k69xzx09d6200lid.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200507_210359.png</strong> (474.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-7 21:04 上传
+
+
+
+
+
+
+刚才无意中刷到4月sc排行的视频看到你阿咩不在排行榜上，想着“有收益化复活回不应该啊”然后就去找斗虫网站看
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/210451hyyyl4vvrvvlz5nl.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200507_205624.png</strong> (311.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-7 21:04 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/210450y1gqn603f30sg067.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200507_210131.png</strong> (286.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-7 21:04 上传
+
+
+
+
+
+
+
+看到在斗虫网站上已经百名开外了，而收益化复活回的钱钱完全不是想象中的数字
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/210451v7yqvtvtyrmriris.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200507_205707.png</strong> (230.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-7 21:04 上传
+
+
+
+
+
+
+
+而15万人纪念小钱钱的数字也和10万人纪念的数字差了个0
+
+去年10月到今年4月末发生了什么<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4623#       发表于 2020-5-7 21:16
+
+
+
+
+凉了.jpg
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4624#       发表于 2020-5-7 21:19
+
+
+
+
+不是在b打了吗，还有steamlab
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4625#       发表于 2020-5-7 21:20
+
+
+
+
+15w和10w没法比是肯定的，10w在所有人心里都是个坎，15w就没这个感觉了
+steamlab打赏提示我记得跳得还挺频繁的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4626#       发表于 2020-5-7 21:21
+
+
+
+
+我好像都在SL打了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4627#       发表于 2020-5-7 21:23
+
+
+
+
+因为她自己也对纪念回没什么感觉啊
+多少回她纪念回播一半自己就想跑路了，加上她不少财布是中国人，404收入自然拉跨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 4628#       发表于 2020-5-7 21:23
+
+
+
+
+上月加上SL差不多还是过百万日元的。不过15W好歹算是时隔半年的纪念回了，与以前比确实拉夸
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 4629#       发表于 2020-5-7 21:23
+
+
+
+
+没有B站收益你咩现在也就能糊口，B站盘子崩了的话，黄兔子的今日就是你咩的明天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4630#       发表于 2020-5-7 21:24
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/07/212310dvs0c6ycpy1yc1cv.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200507_212243.png</strong> (109.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-7 21:23 上传
+
+
+
+
+
+所以SL这个”月份“只是5月的数据么，有人存了上个月的数据吗？
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4631#       发表于 2020-5-7 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">斗虫是坏文明，事业民也没多少了吧
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4632#       发表于 2020-5-7 21:27
+
+
+
+
+主要是以前小钱钱的数字是睿油两开花的，现在这个数字有点不合印象吐槽一下，不是想搞和别的v斗虫什么的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4633#       发表于 2020-5-7 21:28
+
+
+
+
+做一个懒鬼个人式的事业民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+四月b20w还行吧，反正都要缴税<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+她自己急了再说
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4634#       发表于 2020-5-7 21:30
+
+
+
+
+她现在直播都纯粹是为了服务粉丝了，真的要恰饭哪是这样恰的。（不发散了）
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4635#       发表于 2020-5-7 21:30
+
+
+
+
+有去年10月至今404收入的变化曲线吗
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 4636#       发表于 2020-5-7 21:30
+
+
+
+
+以前众筹打钱都是希望她能继续活动下去，现在她已经能过得很好了，打钱就纯图一乐。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4637#       发表于 2020-5-7 21:30
+
+
+
+
+等到b站80万粉，如果有b限纪念，估计也打不过五月这回耐久歌回<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说白了纯粹的纪念回她压根提不起劲来的，学那个10年老哥倒说不定能让她兴奋起来
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4638#       发表于 2020-5-7 21:31
+
+
+
+
+5w算坎，10w银盾祝贺。15w嘛，没啥感觉
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4639#       发表于 2020-5-7 21:32
+
+
+
+
+就是拉了，拉了就拉了吧，让你咩姐自己动动脑瓜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 4640#       发表于 2020-5-7 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">yysy，streamlab我不用特地挂梯子来打，真的很方便，
+
+现在除了特定情况，不然我都基本上用streamlab打了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4641#       发表于 2020-5-7 21:32
+
+
+
+
+今年要节俭！节俭！
+其他人拼死拼活才保住不下滑，你咩姐随便播播割割草就这样不行嗷，德不配位嗷
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 4642#       发表于 2020-5-7 21:32
+
+
+
+
+这都等着虚无缥缈的3d那，平时上个舰长意思意思<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 4643#       发表于 2020-5-7 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47336873&amp;ptid=1929631" target="_blank">age45 发表于 2020-5-7 21:27</a>
+
+主要是以前小钱钱的数字是睿油两开花的，现在这个数字有点不合印象吐槽一下，不是想搞和别的v斗虫什么的
+
+ ...</blockquote>
+直播这行业就是逆水行舟，观众都是喜新厌旧的。事业民的担心不是没原因，真隐退了，大不了换个人看呗。
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4644#       发表于 2020-5-7 21:33
+
+
+
+
+希望阿b不要拉胯了啊，不然就要毕业跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 4645#       发表于 2020-5-7 21:34
+
+
+
+
+你可以想想订阅，18年10月5w，19年10月10w，现在15w
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4646#       发表于 2020-5-7 21:36
+
+
+
+
+bls连影子都没有，ddd八成也不可能出的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4647#       发表于 2020-5-7 21:36
+
+
+
+
+榜上这些应该都是同接日常破万的吧，现也不是那会订阅过10万就牛逼的战国时代了，她比不过现在的企业势的，更何况她的热度下降太多了，能吃饱饭就行了。不过突然看见这个还真是心里一沉，我把这些都屏蔽了的，下降也太多了吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 4648#       发表于 2020-5-7 21:36
+
+
+
+
+比起她跑路我竟然更想看她跑路后天狗的反应。不行了，人已经扭曲了。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4649#       发表于 2020-5-7 21:38
+
+
+
+
+她要是真不养牛郎之类的话，最大的开销还是花在事业上了吧，宣传联动新歌
+没人看出她规划，让她自己玩就是了
+她退坑那我走人就是了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4650#       发表于 2020-5-7 21:40
+
+
+
+
+她要跑路除了突然因为意外事件暴毙还挺难的，这人只要有点收入就能过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑就算以后b+404每月加起来只有现在404的收入，她也会跟没事人一样正常播
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4651#       发表于 2020-5-7 21:42
+
+
+
+
+收入这事她觉得够那就是够，到头来终究是你咩姐自己想办法，她要是觉得没办法，谁还能有办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4652#       发表于 2020-5-7 21:43
+
+
+
+
+其实小钱钱数字少了这种事情她自己想办法努力就好了，对我来说最大的外力打击大概得是”云鬼佬停更歌回切肉“这种级别的事情了吧
+
+万一出现这种事情对我来说肯定是比官组炸了还大件事的，认真的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4653#       发表于 2020-5-7 21:45
+
+
+
+
+看你楼不知道的还以为你麻快被饿死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4654#       发表于 2020-5-7 21:47
+
+
+
+ 本帖最后由 草牛 于 2020-5-7 21:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么饿死，不过是被你咩姐杀死的数字民心理浮出水面。你问问，他们谈收入的时候，心里想的是忍饥挨饿吗，他们想的是这数字，它咋就不高呢
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 4655#       发表于 2020-5-7 21:47
+
+
+
+
+由奢入俭难啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4656#       发表于 2020-5-7 21:47
+
+
+
+
+其实是我快被饿死了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4657#       发表于 2020-5-7 21:48
+
+
+
+
+从去年11月开始就不在榜上了，那时候可没有streamlab。
+
+sl的确实是统计当个自然月的收入来着，上个月看前十（大概200刀以上）没有现在那个第一的。
+
+不过我倒也是希望3d能反击一波的。516之后，6月有周年，7月没周年sc100w，8月有生日，9月没统计，10月有银盾，11月之后饭盒新增了不少东西，是有不少500升到了常驻3000的，然后就不在榜了。
+
+说到底有啥呢，钱再少也少不过去年11月了，那时候真是b和404都基本没啥钱，要同接没同接要播放没播放。12月初的50w纪念也才8wrmb，要知道那时候已经连续好几个月b收入也就6、7w了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4658#       发表于 2020-5-7 21:54
+
+
+
+
+说真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要老盯着她的数字，对她好对自己也好
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4659#       发表于 2020-5-7 21:56
+
+
+
+
+从去年8月开始SC就开始飙车了，holo三期生出来就开上法拉利了。也难怪holo三期生有资格不来B限，人家一个月500W日元起步，龙皇开始就用上火箭了每个月800w起步。个人势赚的多已经完全成笑话了，隔壁摸鱼的狗狗都吊锤她
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4660#       发表于 2020-5-7 21:56
+
+
+
+
+当年看sc看千舰是很爽
+看隔壁一天拼死拼活的睡3小时，心理压力大还睡不好，你麻一周不播都不是个事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+现在杏箱的那些怪物不是能拿来比的，那是降维打击
+我觉得她要是有心的话3d之前开始预热，还是能回暖一波的，她今年同接到最后不下滑我就满足了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4661#       发表于 2020-5-7 21:56
+
+
+
+
+想这些还不如想想她什么时候播……
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4662#       发表于 2020-5-7 21:58
+
+
+
+
+同接都差了20倍了，怎么这时候才拿出来说。间歇式发病么
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4663#       发表于 2020-5-7 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337213&amp;ptid=1929631" target="_blank">离心 发表于 2020-5-7 21:56</a>
+想这些还不如想想她什么时候播……</blockquote>
++1
+
+syl没死鱼了，现在起也要变成+1bot了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4664#       发表于 2020-5-7 22:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，怎么事到如今还有为她本土盘扼腕叹息的，这轮胎还没磨破啊原来（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4665#       发表于 2020-5-7 22:05
+
+
+
+
+啊，你麻饿不死的，不是说在b站打钱不用再在日本交税，在**打钱还要二次交税吗。
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4666#       发表于 2020-5-7 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337239&amp;ptid=1929631" target="_blank">上坂蓮華 发表于 2020-5-7 21:58</a>
+
+同接都差了20倍了，怎么这时候才拿出来说。间歇式发病么</blockquote>
+因为确实是大半年没看斗虫了，哪怕昨天v综有人贴了这个视频的截图我都没认真看就划过去了，今天睿国刷到了打开来看一下发现时代便了就拿出来说了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4667#       发表于 2020-5-7 22:07
+
+
+
+
+车轱辘这个，不也只能自己尽量打钱+想整二创整二创去宣传吗，光车也没用啊，最好还是看淡点
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 4668#       发表于 2020-5-7 22:07
+
+
+
+
+你们斗虫难道不会忍不住拿自己的收入和她斗吗
+
+
+
+
+
+                                            
