@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 18:09** 
+> ## **本文件最后更新于2020-05-08 22:07** 
 
 
 
@@ -8650,4 +8650,937 @@ miu妈带孩子有一手的
 
 
 
-                                 
+
+
+-----
+
+####  路人庚  
+##### 4991#       发表于 2020-5-8 18:15
+
+
+
+
+东京23点还会播还行
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4992#       发表于 2020-5-8 18:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">等一个爆燃剪辑
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 4993#       发表于 2020-5-8 18:20
+
+
+
+
+啊
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/181938nqjczb3q3ub2fyqj.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200508181915.png</strong> (663.64 KB, 下载次数: 3)
+
+下载附件
+
+2020-5-8 18:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/181938podyo7tyy5f6colc.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200508181919.png</strong> (369.72 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-8 18:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4994#       发表于 2020-5-8 18:21
+
+
+
+
+签起名来了还行
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4995#       发表于 2020-5-8 18:44
+
+
+
+
+真美好啊，这就是yhm的青春气味么
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4996#       发表于 2020-5-8 18:58
+
+
+
+
+这人玩起来是真的刹不住
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4997#       发表于 2020-5-8 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">再不下播我就要“被迫”加班了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4998#       发表于 2020-5-8 19:14
+
+
+
+
+云了 她说的是播到23点还是说23点还要播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4999#       发表于 2020-5-8 19:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前后说法好像不太一致，不过反正熬就对了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5000#       发表于 2020-5-8 19:28
+
+
+
+
+本来miu说要去吃饭，所以准备晚上继续
+但是阿咩：“你走了我就一个人玩了”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 5001#       发表于 2020-5-8 19:41
+
+
+
+
+mea姐的水平上升很快<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 5002#       发表于 2020-5-8 19:41
+
+
+
+
+osu耐久配信要来了（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5003#       发表于 2020-5-8 19:43
+
+
+
+
+别装萌了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 5004#       发表于 2020-5-8 19:49
+
+
+
+
+这人今天联动完了以后一直这么兴奋，miu平平淡淡的态度中是不是有什么魔法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 5005#       发表于 2020-5-8 19:51
+
+
+
+
+M是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5006#       发表于 2020-5-8 19:52
+
+
+
+
+friendship is magic
+
+友谊就是魔法
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 5007#       发表于 2020-5-8 19:52
+
+
+
+
+这波不是单纯的大小姐被咩耗尽了么（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5008#       发表于 2020-5-8 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miu，你好强大
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 5009#       发表于 2020-5-8 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">阿缪还露过手，不能比
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5010#       发表于 2020-5-8 20:21
+
+
+
+
+你咩姐真的强大，我要是跟她一样这么折腾，中间不睡一觉受不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5011#       发表于 2020-5-8 20:21
+
+
+
+
+之后这人不吃饭？
+快10点吃又撑的唱不了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 5012#       发表于 2020-5-8 20:21
+
+
+
+
+四个小时，大小姐好持久啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5013#       发表于 2020-5-8 20:23
+
+
+
+
+开播前就吃撑过了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5014#       发表于 2020-5-8 20:28
+
+
+
+
+突然太鼓达人
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5015#       发表于 2020-5-8 20:28
+
+
+
+
+这太鼓笑死我了
+4个小时了也饿了吧
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 5016#       发表于 2020-5-8 20:30
+
+
+
+
+她不停怪叫消耗应该好大啊。。。真不累啊
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 5017#       发表于 2020-5-8 20:32
+
+
+
+
+说明体内糖分和脂肪储量多
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5018#       发表于 2020-5-8 20:44
+
+
+
+
+坦克民又赢了，坦克民总是赢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5019#       发表于 2020-5-8 21:04
+
+
+
+
+确实有点难
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5020#       发表于 2020-5-8 21:09
+
+
+
+
+对孩子来说还是太早了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5021#       发表于 2020-5-8 21:10
+
+
+
+
+？？？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5022#       发表于 2020-5-8 21:10
+
+
+
+
+草，溜了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5023#       发表于 2020-5-8 21:11
+
+
+
+
+怎么下了？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5024#       发表于 2020-5-8 21:11
+
+
+
+
+下了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5025#       发表于 2020-5-8 21:11
+
+
+
+
+怒下
+
+好可爱啊……
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5026#       发表于 2020-5-8 21:13
+
+
+
+
+她留下一句“睡了”扬长而去，而10点的直播（歌回）还是未知数
+毕竟除了作好了直播间，都有可能爽约<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5027#       发表于 2020-5-8 21:15
+
+
+
+
+新推，玩累了，明天再播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 5028#       发表于 2020-5-8 21:16
+
+
+
+
+鸽了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5029#       发表于 2020-5-8 21:16
+
+
+
+
+音游玩这么久能不累嘛
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5030#       发表于 2020-5-8 21:18
+
+
+
+
+啊，这anti了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 5031#       发表于 2020-5-8 21:20
+
+
+
+
+她10点直播的事没有发推，按照惯例极大可能鸽了（她就算发推，鸽的次数也不少）
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5032#       发表于 2020-5-8 21:20
+
+
+
+
+今天5h了,还有咩缪珍贵录音,吸饱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5033#       发表于 2020-5-8 21:23
+
+
+
+
+👎
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5034#       发表于 2020-5-8 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新推，睡不着就半夜突击
+
+
+thereisnospoon
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5035#       发表于 2020-5-8 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有毒吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5036#       发表于 2020-5-8 21:34
+
+
+
+
+姐你给个准信好吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5037#       发表于 2020-5-8 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我觉得她会睡着的
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 5038#       发表于 2020-5-8 21:37
+
+
+
+
+这才是mea，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5039#       发表于 2020-5-8 21:37
+
+
+
+
+是测不准的小麻
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 5040#       发表于 2020-5-8 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">又要被榨干了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5041#       发表于 2020-5-8 21:39
+
+
+
+
+这人有毛病吧，不看<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5042#       发表于 2020-5-8 21:46
+
+
+
+
+要播就看录像了。。。明天还要补课
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 5043#       发表于 2020-5-8 21:46
+
+
+
+
+我想打拳了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5044#       发表于 2020-5-8 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">算了，当没看见
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5045#       发表于 2020-5-8 21:49
+
+
+
+
+没看见没看见没看见
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5046#       发表于 2020-5-8 22:01
+
+
+
+ 本帖最后由 シオン诗音 于 2020-5-8 22:05 编辑 
+
+阿律在那边真是啥也说啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">扫了一会，大致提了一下自己在b站高收入，然后提了一下mea也是，然后yyut说好像不知道mea，然后她说了一下mea大概是个什么贪财的设定吧
+
+弹幕拱火倒是一如既往的rz，比如现在mea来一战肯定战不过，冲国女王早该换人了之类的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然以前我觉得苔宝戴的这个帽子真的不行，但是现在觉得这帽子摘掉也没用了
+
+
+
+
+
+                               
