@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 10:02** 
+> ## **本文件最后更新于2020-05-08 12:02** 
 
 
 
@@ -16759,6 +16759,25 @@ mk2我想你了！<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -16879,4 +16898,629 @@ szm这种黑称一股当初那群微博人的恶臭味，如今可以心平气�
 
 
 
-                   
+
+
+-----
+
+####  age45  
+##### 3930#       发表于 2020-5-8 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340713&amp;ptid=1914314" target="_blank">草牛 发表于 2020-5-8 09:51</a>
+
+那也没办法，虹人创作出这个称呼的时候就是饭圈操作</blockquote>
+那些虹人也是抄饭圈的说法，三字母几乎可以代指任何名字是三个汉字的男女明星，差不多是谁火想黑谁就是这三字母，在二次元饭圈倒是固定套在了咩的头上了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3931#       发表于 2020-5-8 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340743&amp;ptid=1914314" target="_blank">某不知名的路人 发表于 2020-5-8 09:54</a>
+你这说的话没记录基本都无法考证的，都是凭借自己记忆来说的，要不你重新＋下群问下群主好不好啊 ...</blockquote>
+我觉得我印象还挺深刻的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个群主听说后来跑路了，黑泥群据说也转生成别的群了，上回我进去里面的人员已经基本不同了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 3932#       发表于 2020-5-8 10:35
+
+
+
+
+其实现在根本搜不到
+微博搜三字母不是黑塔利亚就是一个不知道什么男团
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3933#       发表于 2020-5-8 10:38
+
+
+
+
+有点可惜？这圈子是真的小…
+
+官组真爱楼有人说那是他们自己的问题吧
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 3934#       发表于 2020-5-8 10:47
+
+
+
+
+最好的办法不就是让mea出个官方中文名么，然后学习哆啦A梦胶大家别叫机器猫或是小叮当而是叫哆啦A梦的方式每次直播前都加个注释“请叫我神乐XX”名字里没了字母粉丝也不用mea这个称呼那么“三个字母”这个说法就会被逐渐淘汰
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3935#       发表于 2020-5-8 10:50
+
+
+
+
+说得跟淘汰了就不会有别的黑称一样……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3936#       发表于 2020-5-8 10:51
+
+
+
+
+这圈子里叫黑称就是为了跳脸上恶心人而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3937#       发表于 2020-5-8 11:01
+
+
+
+
+我说咩啊粉真的不能学人家亏圣粉一样功利一点吗？有什么热度就赶快蹭上去，有什么cp就赶快贴上去。像这样子佛系粉就真的佛起来了，还有一些人就忙着在肃清粉里的各种小鬼以及对着她的联动对象唧唧歪歪，虽然我也喜欢黑大亏玩没什么资格这么说，但是看到有些人都为此动zqsg了
+
+潜意识里觉得自己碍着了阿咩的路又怎么办呢？就给多多强化的她懒狗人设，“反正她本人现在已经懒狗不搞事业也能活得好好了，那我现在搞这些碍着她的路也没什么了”
+
+或者说你们就是想把她搞回收益化通过前夕那种“除了我和她就没有别人了”的那种状态？那也挺好，大力点搞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3938#       发表于 2020-5-8 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341384&amp;ptid=1914314" target="_blank">cgz 发表于 2020-5-8 10:47</a>
+最好的办法不就是让mea出个官方中文名么，然后学习哆啦A梦胶大家别叫机器猫或是小叮当而是叫哆啦A梦的方式 ...</blockquote>
+想太多了，语言的传播只取最简，中国犹以两音节词为正统，mea虽然是字母但又简单又是两音节，本身就已经无敌了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3939#       发表于 2020-5-8 11:05
+
+
+
+
+主要你现在很难确定蹭上去是不是给人家送热度
+
+
+（yysy联动里她干的事很像这种感觉，帮别人热场）
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3940#       发表于 2020-5-8 11:09
+
+
+
+
+怎么还有人拿蹭热度说事啊，谁挣钱到最后不都是夫妻共同财产
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3941#       发表于 2020-5-8 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341560&amp;ptid=1914314" target="_blank">age45 发表于 2020-5-8 11:01</a>
+我说咩啊粉真的不能学人家亏圣粉一样功利一点吗？有什么热度就赶快蹭上去，有什么cp就赶快贴上去。像这样子 ...</blockquote>
+说的不错，我很烦粉丝搞这种“除了我们没别人”的东西。粉丝都是来的来去了去，粘性最强的gachi也会突然嗷的一声发疯，粉丝把自己看的太重对v也是一种阻碍
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3942#       发表于 2020-5-8 11:12
+
+
+
+
+看看每次联动后推特上那个repo量，热度上真的不亏啊
+
+上次b限麻将，推特上都有好几百条
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3943#       发表于 2020-5-8 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341609&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-5-8 11:05</a>
+
+主要你现在很难确定蹭上去是不是给人家送热度
+
+
+（yysy联动里她干的事很像这种感觉，帮别人热场） ...</blockquote>
+哪有什么光进不出的事情啊，看开点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3944#       发表于 2020-5-8 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341746&amp;ptid=1914314" target="_blank">age45 发表于 2020-5-8 11:16</a>
+
+哪有什么光进不出的事情啊，看开点</blockquote>
+我倒不怎么反对联动……硬要说的话算是对粉丝群体构成的杞忧
+
+
+萌萌人比较难吃进来，老男人吸的差不多了……
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3945#       发表于 2020-5-8 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341652&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-8 11:09</a>
+
+怎么还有人拿蹭热度说事啊，谁挣钱到最后不都是夫妻共同财产</blockquote>
+不开这玩笑，我说真的，就是因为她们的钱不能是共同财产，你就应该让这些粉能继续留在阿咩这，而不是老是去想办法怎么杀光nt贴贴人把人赶跑，当然这话现在来看已经有点事后诸葛亮了
+
+当然还是那句，想回到“除了我和她就没有别人了”的状态？那也挺好，大力点搞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3946#       发表于 2020-5-8 11:24
+
+
+
+
+老害就是看不清啦，看数据最近还不好吗
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 3947#       发表于 2020-5-8 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341693&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-8 11:12</a>
+看看每次联动后推特上那个repo量，热度上真的不亏啊
+
+上次b限麻将，推特上都有好几百条 ...</blockquote>
+天狗还是没想明白，夸现在的体量，提一下你麻就是天大的恩惠，人家给你b限联动，还给脸不要脸
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3948#       发表于 2020-5-8 11:29
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-8 11:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341812&amp;ptid=1914314" target="_blank">无限舰制 发表于 2020-5-8 11:22</a>
+
+我倒不怎么反对联动……硬要说的话算是对粉丝群体构成的杞忧
+
+
+萌萌人比较难吃进来，老男人吸的差不多了… ...</blockquote>
+联动后歌回吸粉不是效果挺好吗，虽然不知道萌萌人到底是个什么定义，但她也是有自己吸引到新粉的手段的
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 3949#       发表于 2020-5-8 11:35
+
+
+
+
+不反对联动和嘲笑连体婴又不是对立的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3950#       发表于 2020-5-8 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341882&amp;ptid=1914314" target="_blank">PekoPekoPeko 发表于 2020-5-8 11:28</a>
+
+天狗还是没想明白，夸现在的体量，提一下你麻就是天大的恩惠，人家给你b限联动，还给脸不要脸 ...</blockquote>
+对啊，就吸你亏皇的恩惠怎么了，你这小nt急什么？<img src="https://static.saraba1st.com/image/smiley/face2017/235.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 3951#       发表于 2020-5-8 11:39
+
+
+
+
+想不明白个屁，部分毒唯天狗就是想要俩人老死不相往来，那点恩惠不要也罢，说的跟圣皇能给小羊带多少新粉似的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3952#       发表于 2020-5-8 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341819&amp;ptid=1914314" target="_blank">age45 发表于 2020-5-8 11:23</a>
+
+不开这玩笑，我说真的，就是因为她们的钱不能是共同财产，你就应该让这些粉能继续留在阿咩这，而不是老是 ...</blockquote>
+这话可以说给泥潭为mea的事业操碎了心的那部分暗黑贴贴人听。
+
+我就黑一黑以贴贴粉头为首的贴贴人，两女主播只是随便看看，早就退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她们怎么样我无所谓的
+
+虽然贴贴人发疯的样子真的很好玩，但是这cp要是早点凉掉不再害人的话还是挺基德的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3953#       发表于 2020-5-8 11:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">在p站贴贴恩惠有多大 
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么时候圣皇在她的频道与mea贴贴我就当一辈子的贴贴人
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 3954#       发表于 2020-5-8 11:48
+
+
+
+
+什么时候在404联动？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3955#       发表于 2020-5-8 11:51
+
+
+
+
+咖 啡 厅<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+看上次联动明明直播间大亏人多，打call视频也是大亏官组发的，最后涨粉咩多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3956#       发表于 2020-5-8 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342098&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-8 11:45</a>
+
+这话可以说给泥潭为mea的事业操碎了心的那部分暗黑贴贴人听。
+
+我就黑一黑以贴贴粉头为首的贴贴人，两女主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">你这种最好搞，当然要是等魔怔的那批不搞这些了你还能继续搞下去我就佩服你
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3957#       发表于 2020-5-8 11:55
+
+
+
+
+我倒是希望meall能发扬光大，meaqua搞的这么特殊实在诡异
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3958#       发表于 2020-5-8 11:57
+
+
+
+
+p家没了后你麻的圈子就黄姨兔姨，贴贴两个姨吗？
+没法meall啊
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 3959#       发表于 2020-5-8 11:58
+
+
+
+
+兔鞠可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3960#       发表于 2020-5-8 12:00
+
+
+
+
+等一下，楼里老哥该不会觉得我是那个为了反六字母觉得叫"三字母"好的吧，虽然是泥潭新参，但是好歹我也经历过去年七色太监在微博大肆污名化mea那会。
+我只是好奇，以前只觉得只有七色太监可以在B站直球黑称，毕竟太监没有下体，没想到现在连crew都可以在B站直球黑称了，我之前还在楼里问crew和天狗会互相打架吗，这次得到了验证，感觉非常奇妙而已<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3961#       发表于 2020-5-8 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342263&amp;ptid=1914314" target="_blank">2014720 发表于 2020-5-8 11:57</a>
+p家没了后你麻的圈子就黄姨兔姨，贴贴两个姨吗？
+没法meall啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">meall就非要贴贴吗，眼光太窄
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3962#       发表于 2020-5-8 12:01
+
+
+
+
+翻页
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3963#       发表于 2020-5-8 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342296&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-5-8 12:00</a>
+等一下，楼里老哥该不会觉得我是那个为了反六字母觉得叫"三字母"好的吧，虽然是泥潭新参，但是好歹我也经历 ...</blockquote>
+为啥crew就不能说了啊…
+
+天狗crew贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                 

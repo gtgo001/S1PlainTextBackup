@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 08:06** 
+> ## **本文件最后更新于2020-05-08 12:11** 
 
 
 
@@ -4431,6 +4431,25 @@ syl，404订阅15.5了，最近增速可以的（不知道今年有没有机会�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4956,4 +4975,1215 @@ crew里对咩夸厌恶的单推群体大概是不比天狗里厌恶咩夸的群�
 
 
 
-                                        
+
+
+-----
+
+####  zhicai618  
+##### 4776#       发表于 2020-5-8 08:16
+
+
+
+
+echo还是有点意思啊。。循环循环。希望来一款全点的。说是唱也未必有多好，就是对比起来这味道太棒了。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4777#       发表于 2020-5-8 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339871&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-8 08:16</a>
+echo还是有点意思啊。。循环循环。希望来一款全点的。说是唱也未必有多好，就是对比起来这味道太棒了。。 ...</blockquote>
+最近大概她也在纠结播啥，也不能老是唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近播起来都看的挺舒服的，但愿她能找到点灵感
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4778#       发表于 2020-5-8 08:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339931&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-8 08:27</a>
+最近大概她也在纠结播啥，也不能老是唱歌最近播起来都看的挺舒服的，但愿她能找到点灵感 ...</blockquote>
+mea的杂谈生活段子居多、不能脱离社会，需要出门取材。要转游戏主播要预先做功课和思考的，播游戏也很难的。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4779#       发表于 2020-5-8 08:46
+
+
+
+
+其实播游戏蛮简单的……还是看她想不想冲出舒适圈，多说就云p了也就算了。
+
+多了一个osu挺好的，可惜不能在404播……
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4780#       发表于 2020-5-8 08:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340068&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-8 08:46</a>
+其实播游戏蛮简单的……还是看她想不想冲出舒适圈，多说就云p了也就算了。
+
+多了一个osu挺好的，可惜不能在4 ...</blockquote>
+难。。我去看了下斗鱼的几个主机区主播，都是线下练游戏然后找爆点上播搞效果的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4781#       发表于 2020-5-8 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340068&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-8 08:46</a>
+其实播游戏蛮简单的……还是看她想不想冲出舒适圈，多说就云p了也就算了。
+
+多了一个osu挺好的，可惜不能在4 ...</blockquote>
+其实游戏不是问题，你看只狼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+她不播游戏我感觉主要原因是对游戏真的没太大兴趣，就是个玩玩LOL和手游的轻度玩家
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4782#       发表于 2020-5-8 08:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340081&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-8 08:47</a>
+
+难。。我去看了下斗鱼的几个主机区主播，都是线下练游戏然后找爆点上播搞效果的 ...</blockquote>
+可是她当初一直游戏的那段时间，除了她不擅长游戏的长时间耐久我都觉得挺有意思的。
+
+尤其是火柴人大乱斗，我们觉得好看她也觉得好玩，游戏主要还是要找对路子（我觉得各种沙雕小游戏就挺好），找对了播的时候其实挺容易的，反正肯定比杂谈容易……
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4783#       发表于 2020-5-8 08:58
+
+
+
+ 本帖最后由 JustW 于 2020-5-8 08:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟这人除了是lol重度患者之外，就和我身边偶尔玩跳一跳这种微信小游戏的现充朋友一样啊，打开7k7k4399打发无聊时间可以，对坚持玩没有社交功能的游戏没多大兴趣，一个人打apex会感觉孤独寂寞冷，说明比起投入游戏当中，她更希望有人陪她耍
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4784#       发表于 2020-5-8 09:02
+
+
+
+
+所以说看她爱不爱冲出舒适圈，我大三之前从来不看直播，和我之前不玩lol一样，感觉太占用时间。
+
+然后到了大三寒假发现只看熟肉完全得不到足够的咩信息获取，就开始舍弃时间来追直播了。
+
+
+算了，别再多说了，和昨晚扯收入一样没啥意思，希望今晚11点睡前她能播一回，溜了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4785#       发表于 2020-5-8 09:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340233&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-8 09:02</a>
+所以说看她爱不爱冲出舒适圈，我大三之前从来不看直播，和我之前不玩lol一样，感觉太占用时间。
+
+然后到了大 ...</blockquote>
+我感觉不是舒适圈的问题，不爱玩游戏靠毅力来玩自然算冲出舒适圈，但对游戏的兴趣就不是靠毅力能解决的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我觉得这时候需要的是灵感
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4786#       发表于 2020-5-8 09:11
+
+
+
+
+今天中午五咩不期待吗<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+希望你咩姐别被摁死了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4787#       发表于 2020-5-8 09:15
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-8 10:31 编辑 
+
+管人直播就三板斧，杂谈唱歌打游戏，杂谈和唱歌连着搞容易用光存货，只能降低直播频率，打游戏就没这个问题，所以满街都是游戏直播。
+
+要播游戏播得好私下得花很多功夫来准备没错，但她认识的人也有一堆开个直播打游戏没太多追求那种，她自己拿高标准要求自己不满足于此就没办法了。
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4788#       发表于 2020-5-8 09:16
+
+
+
+
+中午小意思，就怕晚上来个线下突击联动<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720|-1|这波是我没想到的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4789#       发表于 2020-5-8 09:19
+
+
+
+ 本帖最后由 2014720 于 2020-5-8 09:23 编辑 
+
+舞咩应该快要结束了，该发力了mea<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+也不知道她能在这稀烂的一段联动上吸取教训不<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4790#       发表于 2020-5-8 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340396&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-8 09:19</a>
+舞咩应该快要结束了，该发力了mea</blockquote>
+发个p。。你先让她安全出门吧。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4791#       发表于 2020-5-8 09:40
+
+
+
+
+今天咩姐应该也会开台吧，组长和舞元都开了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4792#       发表于 2020-5-8 10:41
+
+
+
+
+https://b23.tv/NxU9TT
+
+回看这个视频和现在的她对比，这人锐气大概已经挫光了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 4793#       发表于 2020-5-8 10:50
+
+
+
+
+其实她最近几个月高强度TC就是明着告诉观众别太在乎同接和收入，她直播本意是找人聊天
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4794#       发表于 2020-5-8 10:53
+
+
+
+
+不要开台不要开台不要开台<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4795#       发表于 2020-5-8 10:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">5月是有追思病的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">要不516同好会搞一个直播回顾，把那场直播再次重现一遍来对应酒厂的泰坦尼克
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 4796#       发表于 2020-5-8 10:58
+
+
+
+
+又来了
+她不在意同接和收入那为啥又要费精力去搞原创以及联动还要营业了
+所以讨论这个问题没有意义
+我实在觉得1年多以前就在车轱辘这话题了，正着说反着说都有道理，最后反正多是粉丝争起来
+只能说个人势就是这样，当成特点来接受可能会好一点
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4797#       发表于 2020-5-8 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341429&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-8 10:50</a>
+其实她最近几个月高强度TC就是明着告诉观众别太在乎同接和收入，她直播本意是找人聊天 ...</blockquote>
+可以的，有七色太监四成功力<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4798#       发表于 2020-5-8 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341319&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-8 10:41</a>
+https://b23.tv/NxU9TT
+
+回看这个视频和现在的她对比，这人锐气大概已经挫光了 ...</blockquote>
+其实就是声音劣化太多，对一个不露脸主播来说，黑丑村姑或者天天乱啪什么的都不是大问题，但声音太难听就实在是<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4799#       发表于 2020-5-8 11:02
+
+
+
+
+开台了还行
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4800#       发表于 2020-5-8 11:02
+
+
+
+
+开了，🖐🏻🐏贴贴
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4801#       发表于 2020-5-8 11:03
+
+
+
+
+hhhh偷了组长的封面啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4802#       发表于 2020-5-8 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341542&amp;ptid=1929631" target="_blank">PekoPekoPeko 发表于 2020-5-8 11:00</a>
+其实就是声音劣化太多，对一个不露脸主播来说，黑丑村姑或者天天乱啪什么的都不是大问题，但声音太难听就 ...</blockquote>
+我是指她对结婚的一些想法的变化和对未来看法的变化
+这人本质虽然没变，但和以前不一样太多
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4803#       发表于 2020-5-8 11:05
+
+
+
+ 本帖最后由 2014720 于 2020-5-8 11:06 编辑 
+
+这叠罗汉是真的蛋疼
+
+把兔妈妈放中间，有意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4804#       发表于 2020-5-8 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么还有接nt话的
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4805#       发表于 2020-5-8 11:07
+
+
+
+
+小nt的活就别接了吧你看有人理他吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4806#       发表于 2020-5-8 11:11
+
+
+
+
+有点水<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4807#       发表于 2020-5-8 11:12
+
+
+
+
+开幕振听。。。血压起来了
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4808#       发表于 2020-5-8 11:14
+
+
+
+
+不会真有人不刷论坛跑去看五咩3p吧？不会吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4809#       发表于 2020-5-8 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">地声
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咩咩怎么不装一下了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4810#       发表于 2020-5-8 11:15
+
+
+
+
+小博禹到底死了几个妈，天天办丧事就这么闲？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4811#       发表于 2020-5-8 11:23
+
+
+
+
+mea打的还是挺好的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4812#       发表于 2020-5-8 11:25
+
+
+
+
+又有电音了，确定设备没问题？
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4813#       发表于 2020-5-8 11:26
+
+
+
+
+会平和会防守就好了。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4814#       发表于 2020-5-8 11:31
+
+
+
+
+黄兔子还会骗筋<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4815#       发表于 2020-5-8 11:32
+
+
+
+
+看组长视角好多了，不用血压飙升<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4816#       发表于 2020-5-8 11:33
+
+
+
+
+这人不看就胡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4817#       发表于 2020-5-8 11:34
+
+
+
+
+mea这次打的问题不是很大。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4818#       发表于 2020-5-8 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔鞠来了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4819#       发表于 2020-5-8 11:35
+
+
+
+
+好好好，这个好
+
+兔鞠好！
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4820#       发表于 2020-5-8 11:35
+
+
+
+
+兔鞠来了，爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4821#       发表于 2020-5-8 11:35
+
+
+
+
+mea感觉问题不大吧。运气游戏正常。。
+
+兔鞠leile
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4822#       发表于 2020-5-8 11:35
+
+
+
+
+兔鞠草，微妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4823#       发表于 2020-5-8 11:35
+
+
+
+
+英雄救美，兔子好样的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4824#       发表于 2020-5-8 11:36
+
+
+
+
+这个立绘的位置<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看着兔鞠最亲近了 未曾设想的道路
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4825#       发表于 2020-5-8 11:36
+
+
+
+
+双兔傍地走?
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4826#       发表于 2020-5-8 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看见弹幕说兔鞠声音像fbk，梁木生出来了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4827#       发表于 2020-5-8 11:38
+
+
+
+
+兔鞠挡牌了，难受。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4828#       发表于 2020-5-8 11:39
+
+
+
+
+兔鞠还说你咩tc的事
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4829#       发表于 2020-5-8 11:42
+
+
+
+
+小剧场演起来了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4830#       发表于 2020-5-8 11:43
+
+
+
+
+有点同情五元了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4831#       发表于 2020-5-8 11:44
+
+
+
+
+直播的流向改变了，兔鞠，永远的神
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4832#       发表于 2020-5-8 11:47
+
+
+
+
+只有用男人才能打败男人，你麻玩弄男人有一手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4833#       发表于 2020-5-8 11:48
+
+
+
+
+完了完了，我怎么也觉得兔鞠声音有点像狐皇了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4834#       发表于 2020-5-8 11:49
+
+
+
+
+麻麻强强
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4835#       发表于 2020-5-8 11:50
+
+
+
+
+自摸喵！
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4836#       发表于 2020-5-8 11:51
+
+
+
+
+怎么家里又有自动麻将桌又有弹珠机<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+神乐mea的家到底有多大
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4837#       发表于 2020-5-8 11:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始尬聊了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4838#       发表于 2020-5-8 11:52
+
+
+
+<blockquote>甘栗No.007 发表于 2020-5-8 11:51
+怎么家里又有自动麻将桌又有弹珠机
+
+神乐mea的家到底有多大</blockquote>
+之前就说过来着。。。
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4839#       发表于 2020-5-8 11:53
+
+
+
+
+男人多了以后效果好起来了，小麻  果然是男人越多越开心的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+有点能理解她了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4840#       发表于 2020-5-8 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这什么对话啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">别吹麦了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4841#       发表于 2020-5-8 11:55
+
+
+
+
+咩姐这。。。老倒霉蛋了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4842#       发表于 2020-5-8 11:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出了趟门刚回来，怎么感觉错过了很重要的东西
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4843#       发表于 2020-5-8 12:06
+
+
+
+
+你麻萌音如果不是从mea嘴里出来的，算可爱吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4844#       发表于 2020-5-8 12:08
+
+
+
+
+当然算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4845#       发表于 2020-5-8 12:08
+
+
+
+
+u1s1，这算萌音吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚才声音开大了，阿姨洗铁路一出来我差点有把手机摔了的冲动
+
+
+
+
+
+                                      

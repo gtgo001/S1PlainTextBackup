@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 10:07** 
+> ## **本文件最后更新于2020-05-08 12:08** 
 
 
 
@@ -9792,7 +9792,7 @@ holo要真想再国际化一点，这点还是要注意下比较好。
 
 
 azulim中之人这是准备当个人势？
-<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_wscvR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_m6npa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16644,7 +16644,7 @@ syl 粽子新图去ins找啊
 
 
 
-可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_Zm0aY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_gx5xV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/428clv/status/1258025228875096066](https://twitter.com/428clv/status/1258025228875096066)
 
@@ -18129,7 +18129,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 查了一下，这游戏不是看两小时直播就能拿到内测资格吗
-<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_g3BEj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_OMKC4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18450,7 +18450,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 表情，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_GulhR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_m3oxD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 [https://twitter.com/1RBOX_CCC/status/1253824569250508801](https://twitter.com/1RBOX_CCC/status/1253824569250508801)
@@ -20538,4 +20538,1820 @@ C：但是shion根本不会去上学吧
 
 
 
-              
+
+
+-----
+
+####  fromsaitama  
+##### 22065#       发表于 2020-5-8 10:08
+
+
+
+
+紫宝为什么没去高中呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22066#       发表于 2020-5-8 10:09
+
+
+
+
+紫宝不是直接哈佛毕业了吗，那就没必要去高中了啊。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22067#       发表于 2020-5-8 10:10
+
+
+
+
+紫宝毕业于哈佛幼儿园，现在还在上小学，所以不用去高中。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22068#       发表于 2020-5-8 10:10
+
+
+
+
+葛皇看的不多说错莫怪，
+
+感觉他apex如果单排没有办法和队友很好的合作，看了几局基本都更倾向于一个人莽，但这又不算是单人能力强就上分的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 22069#       发表于 2020-5-8 10:11
+
+
+
+
+所以木口学历最低的是谁，紫宝吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|是|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22070#       发表于 2020-5-8 10:12
+
+
+
+
+我去gigguk那条推下看了下，发现有人发了这张《一家之主》的neta图，除了右边两个太瘦外感觉还挺形象的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/08/101014bonmx1enwxcg4h43.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EXWcNXcVcAUagjy.jpg</strong> (430.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 10:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22071#       发表于 2020-5-8 10:13
+
+
+
+
+草，太乳gamers了！
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22072#       发表于 2020-5-8 10:13
+
+
+
+
+学历最低的当然是现役JK
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22073#       发表于 2020-5-8 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">段位这么高，你倒是播呀，网瘾狗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 22074#       发表于 2020-5-8 10:14
+
+
+
+
+播也不会播排位的，直播掉分吗
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 22075#       发表于 2020-5-8 10:14
+
+
+
+
+突然想起两年后的香波地群岛
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 22076#       发表于 2020-5-8 10:16
+
+
+
+
+狗狗这是不播的时候都在打APEX吧··有点可怕<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22077#       发表于 2020-5-8 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340388&amp;ptid=1924531" target="_blank">cgz 发表于 2020-5-8 09:18</a>
+
+我说的是最近点击，又不是平均点击，最近狗妈视频点击其实都挺少的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/08/101554ijz1yk07mny0s8zy.png" referrerpolicy="no-referrer">
+
+
+<strong>1Z[TG[2)9T36`7]OYW4~`$F.png</strong> (452.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 10:15 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这个点击叫少吗？还有哪家二三线vup能比的？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22078#       发表于 2020-5-8 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341001&amp;ptid=1924531" target="_blank">57042711 发表于 2020-5-8 10:16</a>
+
+狗狗这是不播的时候都在打APEX吧··有点可怕</blockquote>
+欢迎去狗楼视奸狗狗，其实还有很长时间在打lol。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22079#       发表于 2020-5-8 10:18
+
+
+
+
+apex单排播出效果挺一般的，之前千把葛皇带上5000叶师带上钻，隔天葛皇就单排输干净了，叶师和妹子双排倒是稍微上了一点分
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22080#       发表于 2020-5-8 10:22
+
+
+
+
+说好的沉迷的lol呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这分肯定是一波冲上去就没动了吧，不是说她没播都在打lol的么
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 22081#       发表于 2020-5-8 10:22
+
+
+
+
+乳大亏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 22082#       发表于 2020-5-8 10:24
+
+
+
+
+a酱还有大道，黑青蛙三个人半夜在推特聊天，这是刚开过了啥小会吗
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22083#       发表于 2020-5-8 10:25
+
+
+
+ 本帖最后由 winda 于 2020-5-8 10:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葛叶玩亡灵突出一个快乐，蓝甲追着金甲打，和叶师拿白给小子下分有异曲同工之妙
+
+另外一边夜见如果肯肝应该也能上钻，华森+直布罗陀的分奴英雄池还是有点优势的，就是花粉症aim常年拖后腿
+
+大亏恶灵人柱力，虽然小千也是靠恶灵上分的，但小千侵蚀班加罗尔啥的被抢位置时也会拿出来用
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 22084#       发表于 2020-5-8 10:27
+
+
+
+
+S1，你把多少人的工作都给毁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/102706khpyye47cpypysnb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200508102604.jpg</strong> (58.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 10:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 22085#       发表于 2020-5-8 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340929&amp;ptid=1924531" target="_blank">榊城翼 发表于 2020-5-8 10:11</a>
+所以木口学历最低的是谁，紫宝吗
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+本身也就17岁，除非有人高中都没读。。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 22086#       发表于 2020-5-8 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341140&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-5-8 10:27</a>
+本身也就17岁，除非有人高中都没读。。
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">现在17吗？我还以为在成年±1了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 22087#       发表于 2020-5-8 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341198&amp;ptid=1924531" target="_blank">榊城翼 发表于 2020-5-8 10:31</a>
+现在17吗？我还以为在成年±1了
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+是不是18了还不清楚，前些日子还是17<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22088#       发表于 2020-5-8 10:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么越说越小了。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22089#       发表于 2020-5-8 10:33
+
+
+
+
+未成年打工不能过10点，印象中紫宝10点后没直播过吧，跨年那次也是，去了本社但因为时间太晚所以没有出现在直播里，当然这都是道听途说外加猜测<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 22090#       发表于 2020-5-8 10:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">爱了爱了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 22091#       发表于 2020-5-8 10:35
+
+
+
+
+ホロライブ年齢表2019年版 
+親方　推定30代半ばー20代後半 
+ころね、ミオ　34歳 
+アキ　31歳 
+るしあ　30歳 
+メル　29歳 
+マリン　27歳 
+すいせい　推定20代後半 
+ちょこ　推定20代半ば 
+ぺこら　25歳 
+ノエル　24歳 
+スバル　推定20代前半ー20代後半 
+ロボ子　23歳 
+おかゆ、みこ　22歳 
+あやめ　21歳 
+あくあ、まつり　20歳 
+はあと　18歳 
+シオン　17歳
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 榊城翼| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 22092#       发表于 2020-5-8 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341219&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-5-8 10:33</a>
+
+未成年打工不能过10点，印象中紫宝10点后没直播过吧，跨年那次也是，去了本社但因为时间太晚所以没有出现在 ...</blockquote>
+是真的，哈恰麻也有过这样一段时期，再者跨年大节目不是有这种红线问题的话明明在场的傻紫（颁奖节目就有傻紫份，后面吃面的时候其他人有提过傻紫还在场的）完全没有任何理由非要当空气
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22093#       发表于 2020-5-8 10:39
+
+
+
+
+所以说她才能当社宠太紫啊
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22094#       发表于 2020-5-8 10:39
+
+
+
+
+那组长那一群大叔把一个高二妹子请去围起来播节目就很小本子感了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| forzen| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 22095#       发表于 2020-5-8 10:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340645&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-8 09:44</a>
+
+看管人直播感觉日服我都能上白金</blockquote>
+白金本来就是平均水平就能上，无非是时间问题而已
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22096#       发表于 2020-5-8 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341096&amp;ptid=1924531" target="_blank">超能力者stven 发表于 2020-5-8 10:24</a>
+
+a酱还有大道，黑青蛙三个人半夜在推特聊天，这是刚开过了啥小会吗</blockquote>
+看了眼，可能只是几个半夜加班的中层管理在那里随便聊聊吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22097#       发表于 2020-5-8 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341110&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-8 10:25</a>
+
+葛叶玩亡灵突出一个快乐，蓝甲追着金甲打，和叶师拿白给小子下分有异曲同工之妙
+
+另外一边夜见如果肯 ...</blockquote>
+夜见她肝的少的原因一直就是以前apex排位挂太多了她挺反感的。要不是那个cod吃鸡把很多挂都引流过去了加上最近身边的人都在冲分我估计她这赛季结束了都还是黄金4<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 22098#       发表于 2020-5-8 10:45
+
+
+
+
+紫宝生日0603
+
+快成年了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+不知道今年还有没有生日的くろキャス
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| winda| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 22099#       发表于 2020-5-8 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341361&amp;ptid=1924531" target="_blank">あのん 发表于 2020-5-8 10:45</a>
+紫宝生日0603
+
+快成年了
+
+不知道今年还有没有生日的くろキャス</blockquote>
+20岁成年吧<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 22100#       发表于 2020-5-8 10:47
+
+
+
+
+平成30年修了民法
+
+18岁成年了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+不过好像34年实施，那我的紫宝还是未成年<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 22101#       发表于 2020-5-8 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341346&amp;ptid=1924531" target="_blank">Suny08 发表于 2020-5-8 10:44</a>
+夜见她肝的少的原因一直就是以前apex排位挂太多了她挺反感的。要不是那个cod吃鸡把很多挂都引流过去了加 ...</blockquote>
+我印象最深的一次就是去年APEX热的时候，萝卜子直播中有人语音卖挂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">丢人丢到日服去了
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 22102#       发表于 2020-5-8 10:49
+
+
+
+
+18岁了起码晚上10点后能播了，该通宵播爆了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22103#       发表于 2020-5-8 10:52
+
+
+
+
+真好啊，年轻的肉体
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22104#       发表于 2020-5-8 10:55
+
+
+
+
+holo以后再也没有紫宝这种款式的了，现在招人都是18岁以上限定
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 22105#       发表于 2020-5-8 10:55
+
+
+
+
+木口那堆姨是怎么打得动apex的....人过30那反应打打wows顶天了吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 22106#       发表于 2020-5-8 10:58
+
+
+
+
+高女士这个像3D一样的2D是怎么搞出来的？
+
+
+
+
+
+
+KR_9RGL5D1`SOXH53E6%[7E.png
+(653.82 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-8 10:57 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/105757mukmi8u4yr43487h.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+7@_8T_KJ%S%O4SR%_M`(@Q7.png
+(283.95 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-8 10:57 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/105757z1e19pyxohmay0x9.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 22107#       发表于 2020-5-8 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341517&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-5-8 10:58</a>
+
+高女士这个像3D一样的2D是怎么搞出来的？</blockquote>
+反了，是像2D的3D，她自己就是3D模型师，你可以去问她怎么做的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 22108#       发表于 2020-5-8 10:59
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-8 11:00 编辑 
+
+这不就是3D吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">家用3D有不少跟这差不多吧
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 22109#       发表于 2020-5-8 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341483&amp;ptid=1924531" target="_blank">ete 发表于 2020-5-8 10:55</a>
+
+木口那堆姨是怎么打得动apex的....人过30那反应打打wows顶天了吧</blockquote>
+apex是可以靠熟练度和练习解决问题的，要说吃反应apex怕是fps里要求很低的一档了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22110#       发表于 2020-5-8 11:03
+
+
+
+
+姨怎么了，姨就不能打游戏了吗。
+
+气抖冷，姨何站。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22111#       发表于 2020-5-8 11:03
+
+
+
+
+如果mel和懒狗今年终于要退役的话，对杏的影响能有多大呢？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22112#       发表于 2020-5-8 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341483&amp;ptid=1924531" target="_blank">ete 发表于 2020-5-8 10:55</a>
+
+木口那堆姨是怎么打得动apex的....人过30那反应打打wows顶天了吧</blockquote>
+apex属于长ttk的fps，不算很吃反应了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 22113#       发表于 2020-5-8 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341578&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-8 11:03</a>
+
+如果mel和懒狗今年终于要退役的话，对杏的影响能有多大呢？</blockquote>
+能有啥真的影响，根本不出现的人不会真的有粉丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">再说只要不是想去别的企业当v，就挂在这里又没损失，就别退呗一直挂名挂着
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 22114#       发表于 2020-5-8 11:06
+
+
+
+
+火星水，才发现太子404频道把几首与乙女丸合唱的歌全下了，最早的几次直播（都有乙女丸）貌似也没了。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 22115#       发表于 2020-5-8 11:06
+
+
+
+
+只要魂垢不乱说话没内鬼爆料问题都不大
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22116#       发表于 2020-5-8 11:06
+
+
+
+
+别的影响不知道，狗狗楼大概要疯特一批吧。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22117#       发表于 2020-5-8 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341483&amp;ptid=1924531" target="_blank">ete 发表于 2020-5-8 10:55</a>
+
+木口那堆姨是怎么打得动apex的....人过30那反应打打wows顶天了吧</blockquote>
+fps算是职业寿命很长的游戏了，csgo这种都有30多岁的职业哥，还是更吃肌肉记忆一些，不像moba这种需要反应一老就不行了，fps就算你很久不玩了多花点时间练**复建感觉就能回来，这些游戏老年玩家群体挺大的，就是打起来耗精力
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 22118#       发表于 2020-5-8 11:08
+
+
+
+
+懒狗楼肯定会疯一批的，但我觉得对holo屁影响都没，毕竟现在一丁点儿都看不出这俩毕业会是holo的责任，那就只能是人各有志好聚好散了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22119#       发表于 2020-5-8 11:10
+
+
+
+
+梅露影响约等于零
+
+ayame退的话，只可能是有更好的去处，少主跟486会有点难受，别的没了
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 22120#       发表于 2020-5-8 11:11
+
+
+
+
+但是话又说回来好像也没啥引退的必要啊，又不是〇急着要转生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 22121#       发表于 2020-5-8 11:13
+
+
+
+
+懒狗去别家当v我只想到一个可能，就是她不胜纷扰只想找个角落岁月静好。。。（虽然懒狗粉十有八九不会放过她的啦
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22122#       发表于 2020-5-8 11:15
+
+
+
+
+不知道这么说合不合适，狗狗想进一般会社的话完全可以直接进cover本部，叫a酱带着做运营吧。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22123#       发表于 2020-5-8 11:16
+
+
+
+
+A酱到现在就休过一次带薪假，整天加班，懒狗受得了这个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 22124#       发表于 2020-5-8 11:18
+
+
+
+
+别的fps里高手秒你（中近距离）只需要0.2-1秒，apex这种血甲厚成马的游戏就挺适合菜鸡玩的
+
+虹杏都没fps高手，v管人大概也就哈弟可以算牛逼了
+
+
+syl  牙垢让挂着为什么不挂着？不会有人以为懒狗毕业后会去那种忙到没时间没精力直播的黑心企业吧，船长不给她狗头打爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22125#       发表于 2020-5-8 11:18
+
+
+
+
+懒狗现在已经懒到钱都懒得收了，合理怀疑她懒得毕业
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 22126#       发表于 2020-5-8 11:18
+
+
+
+
+懒狗楼已经准备痛斥狗狗不理狗妈无情无义不孝女，连狐皇都放弃她，真要跑不追着她黑就算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22127#       发表于 2020-5-8 11:19
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-5-8 11:21 编辑 
+
+Cover这边的人走，不怎么播只是一个前提条件，然后就是一是像朱雀那样前世和葛叶联动过，看这边实在境况不佳回魂号发展；第二就是Cover财务状况不行裁员了，不过第二点有个不知道的问题就是，一个主播尸位素餐好像只是没有收益而不至于亏损？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22128#       发表于 2020-5-8 11:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">ayame拿病兔子剧本，自己的小圈子里出内鬼后吓到毕业
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22129#       发表于 2020-5-8 11:24
+
+
+
+
+人越多，单个人毕业的影响就越小，yagoo要做的就是继续定期加人就够了。虹那边千不好万不好，现在谁毕业也不会影响公司
+
+
+另外昨天FAMS不是把狗换成公主了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22130#       发表于 2020-5-8 11:24
+
+
+
+
+我就奇怪了，为什么v综允许这么一个无差别攻击的憨批存在？
+
+这种テロ一样的货需要给他什么权利吗
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22131#       发表于 2020-5-8 11:26
+
+
+
+
+问题: 成本几乎为0，挣钱如印钞机，用户不但给你打钱还免费给你干活。 这是什么企业？
+
+
+答: 要么学术期刊，要么是hololive<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 22132#       发表于 2020-5-8 11:26
+
+
+
+
+摸余就算这样也至少有每个月会员的二十来万拿，也没见有多少硬性指标，这也要退可能是压力太大了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 22133#       发表于 2020-5-8 11:26
+
+
+
+
+记得以前紫宝m台开个立绘脑死直播播爆啊，404也脑死傻之逼吧。倒是正规化，或者说人气起来之后就没这档次事了。呜呜呜怀念被窝紫宝<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22134#       发表于 2020-5-8 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341776&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-8 11:19</a>
+
+Cover这边的人走，不怎么播只是一个前提条件，然后就是一是像朱雀那样前世和葛叶联动过，看这边实在境况不 ...</blockquote>
+回魂号一个重要原因是不需要公司抽成了啊，如果一个企业势宁愿放弃部分粉丝回个人号发展那肯定是因为个人号就算粉丝少但是因为没有公司抽成收益还是很好，而且没有各种限制自己想干嘛就干嘛。尸位素餐本身就在主播这块很常见啊，因为直播活动的成本除了外设其他就没了，除非你签了合同不播有违约金不然怎么亏损<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22135#       发表于 2020-5-8 11:28
+
+
+
+
+日本时间已经过12点了，那个绊爱新公司还没有新消息公开么_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 22136#       发表于 2020-5-8 11:28
+
+
+
+
+说出来可能对holostars不太友好，但人家躺着不动也会有三套集体衣装、出场次数一只手数的过来的高昂成本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22137#       发表于 2020-5-8 11:29
+
+
+
+
+年轻人脑子抽了不差钱了被人际关系搞烦了啥的都是不奇怪的，只有姨才会相对理智理性一些<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22138#       发表于 2020-5-8 11:30
+
+
+
+
+所以才有什么白饭论<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22139#       发表于 2020-5-8 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341837&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-5-8 11:24</a>
+
+我就奇怪了，为什么v综允许这么一个无差别攻击的憨批存在？
+
+这种テロ一样的货需要给他什么权利吗 ...</blockquote>
+这个你得问版主，不是V综允不允许的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+推荐直接拉黑
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 22140#       发表于 2020-5-8 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341837&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-5-8 11:24</a>
+
+我就奇怪了，为什么v综允许这么一个无差别攻击的憨批存在？
+
+这种テロ一样的货需要给他什么权利吗 ...</blockquote>
+善用黑名单功能，如果再加上adblock把隐藏帖子的黄条也干掉那这个人对你而言就是彻底不存在了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 22141#       发表于 2020-5-8 11:42
+
+
+
+
+夸皇小团体又是什么鬼，不会是指环夸圈吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22142#       发表于 2020-5-8 11:43
+
+
+
+
+看了一眼老爱最近两个直播峰值2700同接，这转直播真的大丈夫？<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22143#       发表于 2020-5-8 11:44
+
+
+
+[https://www.youtube.com/user/letitgofrozenan](https://www.youtube.com/user/letitgofrozenan)
+
+emma找到了emma找到了emma找到了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+看来人家本体混的也不错我就放心了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22144#       发表于 2020-5-8 11:46
+
+
+
+
+海苔男战法：到处蹭蹭同接总能上去的
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 22145#       发表于 2020-5-8 11:47
+
+
+
+<blockquote>Izuru单推人 发表于 2020-5-8 10:43
+看了眼，可能只是几个半夜加班的中层管理在那里随便聊聊吧</blockquote>
+以为是集了波资后，yagoo喊着他们这些人半夜开小会呢
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22146#       发表于 2020-5-8 11:47
+
+
+
+
+以后不要叫里方A了
+
+请叫职业DJ-A
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22147#       发表于 2020-5-8 11:49
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-5-8 11:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341765&amp;ptid=1924531" target="_blank">PekoPekoPeko 发表于 2020-5-8 11:18</a>
+
+懒狗楼已经准备痛斥狗狗不理狗妈无情无义不孝女，连狐皇都放弃她，真要跑不追着她黑就算好的了 ...</blockquote>
+狗狗摸主要是一个问题
+
+你如果是个人势是活是死播不播都没人管
+
+你特么在一个v圈最大的箱之一里面占着坑吃着最优的资源然后什么事都不做 还业务联系不上 给人感觉太消极了
+
+谁看了都不爽吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22148#       发表于 2020-5-8 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342065&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-8 11:43</a>
+
+看了一眼老爱最近两个直播峰值2700同接，这转直播真的大丈夫？</blockquote>
+视频还在稳定更新啊，哪里说要转直播了
+
+她同接就没高过，分身前没有节奏+直播势同接没有膨胀的时期，都是日常被虹点乱杀
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22149#       发表于 2020-5-8 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341578&amp;ptid=1924531" target="_blank">IDIDIDID 发表于 2020-5-8 11:03</a>
+
+如果mel和懒狗今年终于要退役的话，对杏的影响能有多大呢？</blockquote>
+你觉得现在她们在箱内和不在箱内的空气差别大吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22150#       发表于 2020-5-8 11:54
+
+
+
+
+草，答应我，带77节奏也不要用苔宝来对比好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用v版指定kpi选手，另一个神乐不好吗。隔壁那么多对字幕组不满意的不是分分钟就kpi起来了。
+
+苔宝已经过气了，不要再顺劈她了。
+
+
+
+syl，我也被推送免费哥那个剪辑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22151#       发表于 2020-5-8 11:57
+
+
+
+
+说实话现在的两大箱只要有人不是因为箱的原因的毕业，都不会炸。或者是就算是因为箱的原因毕业了，要是那人打死不说那也就像mrr一样没人知道真实情况也不会有任何影响。个人原因给出来只要是个正常的理由比如结婚养孩子啥的也没办法炎的吧
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 22152#       发表于 2020-5-8 11:58
+
+
+
+
+懒狗重复老三样眼里明显就没有对数字的渴望嘛
+
+懒狗在我看来最强的还是放公司的鸽子，味噌头天晚上刚预告第二天狐狼猫鬼3D，第二天鬼就不见了
+
+以利香是カバー给员工的美少女同事这一激励措施的黑屁来看，有充分的理由怀疑狗也是美少女<img src="https://static.saraba1st.com/image/smiley/goose2017/028.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22153#       发表于 2020-5-8 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341729&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-8 11:15</a>
+
+不知道这么说合不合适，狗狗想进一般会社的话完全可以直接进cover本部，叫a酱带着做运营吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被龙皇怼得被换掉的运营不会就是狗狗吧，哈哈哈哈。狗狗不播都是龙皇的错！
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22154#       发表于 2020-5-8 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342163&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-8 11:50</a>
+
+视频还在稳定更新啊，哪里说要转直播了
+
+她同接就没高过，分身前没有节奏+直播势同接没有膨胀的时期，都是 ...</blockquote>
+以前同期（？）1w+的时候她45千，现在同期56千的时候2000+
+
+视频势真就同步萎缩呗
+
+高还是高过的，当时播播马车马里奥什么的表演吃瘪的时候靠外人还能有1w5同接
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22155#       发表于 2020-5-8 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341340&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-8 10:43</a>
+
+看了眼，可能只是几个半夜加班的中层管理在那里随便聊聊吧</blockquote>
+说到这个事情
+
+去年年底还是今年年初的时候A和大道同时参加了一个v圈新闻制作者的一个访谈类节目 聊了很多日常工作的事情 你们知道么
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22156#       发表于 2020-5-8 12:08
+
+
+
+
+【特番】ホロライブ/ホロスターズ裏方対談！【週刊MoguLive! 12/17 21時】
+[https://youtu.be/92YNARaEWr0?t=1944](https://youtu.be/92YNARaEWr0?t=1944)
+
+
+
+
+
+           
