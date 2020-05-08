@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 00:08** 
+> ## **本文件最后更新于2020-05-08 08:06** 
 
 
 
@@ -4313,4 +4313,647 @@ sc+sl和以前单月一两百万也差不了多少，为啥非得把她说糊了
 
 
 
-                                         
+
+
+-----
+
+####  草牛  
+##### 4742#       发表于 2020-5-8 00:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/001220a74wx1bfg4f6wdb2.gif" referrerpolicy="no-referrer">
+
+
+<strong>10000&amp;amp;sec=1588876836648&amp;amp;di=ef4ac3fe96c39863c21e07ed8351aa0b&amp;amp;imgtype=0&amp;amp;src=http%3.gif</strong> (230.07 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-8 00:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4743#       发表于 2020-5-8 00:13
+
+
+
+
+麻酱的铁拳
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4744#       发表于 2020-5-8 00:26
+
+
+
+
+坦克论又一力证，面对现实吧
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 4745#       发表于 2020-5-8 00:28
+
+
+
+
+有一说一
+赚钱还只能是让自己难受的人才容易赚到
+
+哎哟老子斟酌了半天语句，想起来这他妈不是一万年前车轱辘的话题么
+斗虫民事业民除了让自己难受外有个屁的用处
+真觉得她收入拉跨那就自己多打点，结束
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4746#       发表于 2020-5-8 00:32
+
+
+
+
+这也能坦克我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，404订阅15.5了，最近增速可以的（不知道今年有没有机会超名取）
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4747#       发表于 2020-5-8 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338784&amp;ptid=1929631" target="_blank">Cuppco 发表于 2020-5-8 00:28</a>
+
+有一说一
+
+赚钱还只能是让自己难受的人才容易赚到</blockquote>
+一个桌面上挂着“努力后再死”鸡汤的人难道不难受么，内着猪就把原创曲端出来难道不努力吗，这就是为什么事业民数字民的幽灵时不时会在本以为自己已经佛系了的粉丝心里飘荡的原因<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4748#       发表于 2020-5-8 01:34
+
+
+
+
+那咋办嘛,这个业界就这么卷下去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4749#       发表于 2020-5-8 01:36
+
+
+
+
+所以麻酱还是快点找人结婚吧，
+
+
+比如某些楼友就不错啊（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4750#       发表于 2020-5-8 01:39
+
+
+
+
+业界半年.jpg
+
+syl 你楼安排你咩姐有一手的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4751#       发表于 2020-5-8 01:41
+
+
+
+
+bsyl,到底还是她一天没动开始进入不安发散了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+不如早点睡免得错过明天的联动
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4752#       发表于 2020-5-8 01:46
+
+
+
+
+她今天动倒是动了，只是没播，万一半夜突个tc呢
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 4753#       发表于 2020-5-8 01:49
+
+
+
+
+但愿没有明天
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4754#       发表于 2020-5-8 01:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">五咩联动，啊。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">看不懂麻将，随缘吧
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 4755#       发表于 2020-5-8 02:03
+
+
+
+
+圣皇那期盐水评论区里也有直球"三字母"怼贴贴人和天狗厄介的评论了，圣皇视频看的不多，有没有现在还双推的楼友发现以前有这种情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4756#       发表于 2020-5-8 02:06
+
+
+
+
+不知道， 
+
+
+就算我看大亏也不会看阿b评论啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4757#       发表于 2020-5-8 02:12
+
+
+
+
+那边直球szm的一般会被怼，其他人的评论区不保证这点
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4758#       发表于 2020-5-8 02:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">Crew里面nt毒唯多的是，外征meaqua，内争大家庭，上次在贴吧里面还看见一个毒唯发帖直球恨兔皇数据好算了最后还踩一脚szm，真的就是希望v圈绕着圣皇转
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4759#       发表于 2020-5-8 02:28
+
+
+
+
+不在视频评论区拉屎一般是共识了，毕竟在国内视频才是吸粉最大的途径
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 4760#       发表于 2020-5-8 03:12
+
+
+
+
+只是想确认一下"三字母"应该没有在我不知道的时候温和化到已经不算是一个黑称，上次在B站看到这么直球的三字母还是七色太监的评论。视奸泥潭也有两三个月了，虽然黑屁看了不少，暗黑贴贴人攻击圣皇的也看了不少，当时就是萨尔那个事看到一堆人因为巨魔屏蔽mk2才决定来看泥潭，但是还是一直觉得crew应该还没有和天狗撕裂到要在B站直球三字母互扯头皮的地步，这次也许确实该刷新一下认知了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4761#       发表于 2020-5-8 04:23
+
+
+
+
+这认知刷新也够火星的
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4762#       发表于 2020-5-8 04:38
+
+
+
+ 本帖最后由 age45 于 2020-5-8 04:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339355&amp;ptid=1929631" target="_blank">LunarCorona_VOV 发表于 2020-5-8 03:12</a>
+
+只是想确认一下"三字母"应该没有在我不知道的时候温和化到已经不算是一个黑称，上次在B站看到这么直球的三 ...</blockquote>
+是的，szm还没温和到能随便用的地步，天狗里有人是会因此被激怒
+
+
+然后下面这一段只对中文粉丝圈
+
+crew里对咩夸厌恶的单推群体大概是不比天狗里厌恶咩夸的群体小的
+
+而且夸的贴贴营业展开和切断工作已经进入到了流程化操作，加上新粉的增加，所以就算crew的粉丝群体清理咩夸人其实对夸的影响也是有限的，crew里的单腿人估计已经忍天狗这边为了清理贴贴人而去anti阿夸的行为挺久了，反攻要是起来的话szm估计也会仅仅是一个相对温和的称呼了
+
+而天狗清除贴贴人的行动虽然更早，但是阿咩作为个人势是没法轻易放弃和任何一个企业势拉起来的线，所以下层根基就决定了天狗单腿人这些时间里清除贴贴人的各种行动效果有限。更何况加上最吸引关系厨的贴贴营业在阿咩这边除了咩夸外就几乎都没发展起来，加上后咩夸时代和环圈爆炸后阿咩粉丝圈的贴贴ptsd和环圈ptsd，只要粉丝群体里“她是不是在吸阿咩的血”这个模因一直存在的话，阿咩的粉丝群体里就几乎不可能再次建立像咩夸或者继续发展咩缪这样的关系了。而现状也是如此，甚至是连阿咩亲自建组，粉丝对这个组和阿咩的关系也是选择了一种相当谨慎的态度。
+
+如果在阿B的水面上彻底互相打起来的话，阿咩会失去一条已经摇摇欲坠的吸引关系粉的管道，陷入一种单打独斗完全得靠自己来吸引新粉的局面，而粉丝的存量也会被进一步打击，而阿夸继续打她的游戏拉新的cp跟着资源丰厚的holo大家庭一起走，就和现在404做的一样，可以说是没啥笋丝的了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4763#       发表于 2020-5-8 04:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339448&amp;ptid=1929631" target="_blank">age45 发表于 2020-5-8 04:38</a>
+是的，szm还没温和到能随便用的地步，天狗里有人是会因此被激怒
+
+
+然后下面这一段只对中文粉丝圈</blockquote>
+不是，你看这个车轱辘相比昨天的就很有意义么
+隔壁暗黑贴贴楼可是不少人为直球三字母叫好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反meaqua为黑mea的人叫好，这就是我觉得暗黑贴贴人的nt之处
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 4764#       发表于 2020-5-8 04:55
+
+
+
+ 本帖最后由 如月可由莉 于 2020-5-8 05:03 编辑 
+<blockquote>weiweiEX 发表于 2020-5-8 04:45
+不是，你看这个车轱辘相比昨天的就很有意义么
+
+隔壁暗黑贴贴楼可是不少人为直球三字母叫好反meaqua ...</blockquote>
+按照现在的情况来看，之前爬楼看到一个老哥说的“anti阿咩建立的咩夸关系其实就是觉得阿咩本人不行”（大意）其实有道理的，不然也没法解释为什么看到阿咩的敌人增加而去高兴了
+
+如果他能看到我在这里向他道个歉
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4765#       发表于 2020-5-8 05:00
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-8 05:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339465&amp;ptid=1929631" target="_blank">如月可由莉 发表于 2020-5-8 04:55</a>
+按照现在的情况来看，之前爬楼看到一个老哥说的“anti阿咩建立的咩夸关系其实就是觉得阿咩本人不行”（大 ...</blockquote>
+早就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一切我都在黑泥群里经历过，当时有人天天哭mea为什么还在提meaqua啊，准备反串夸粉打sc喷mea的时候就有不少人跟着支持，我完全不怀疑哪天黑暗贴贴人会直接变成mea黑
+本以为现在meaqua营业差不多结束了黑暗贴贴人也该消停了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只能说该死不死是为贼
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 4766#       发表于 2020-5-8 05:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339468&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-8 05:00</a>
+
+早就是了这一切我都在黑泥群里经历过，当时有人天天哭mea为什么还在提meaqua啊，准备反串夸粉打sc ...</blockquote>
+那么按照暗黑贴贴人的做法的黑咩的方式就是继续去黑阿咩其他的联动对象了吧，别说阿咩不努力了，那是因为阿咩联动找新粉的努力已经被暗黑贴贴人否认掉了啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4767#       发表于 2020-5-8 05:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339485&amp;ptid=1929631" target="_blank">如月可由莉 发表于 2020-5-8 05:13</a>
+那么按照暗黑贴贴人的做法的黑咩的方式就是继续去黑阿咩其他的联动对象了吧，别说阿咩不努力了，那是因为 ...</blockquote>
+黑其他人我也见过，曾经试着劝了但我自己都是个梁木人感觉没啥说服力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以现在我只希望，答应我，出发点是为了mea好，这样好吗
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4768#       发表于 2020-5-8 06:01
+
+
+
+
+看了看最近mea的发言。。人还真是群居动物啊。。不过也快转化了（
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4769#       发表于 2020-5-8 06:22
+
+
+
+
+希望你楼大半夜还在倒垃圾的是财务自由或者在其他时区的。而不是失业休学在家第二天不用上班上学，闲着没事没有其它娱乐只能泡帖子里。
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 4770#       发表于 2020-5-8 07:00
+
+
+
+
+得了吧，别什么帽子都往黑泥群上扣，那请问到现在为止的直播有几个反串圣皇粉跳脸咩lzm的，龙魂你自己才是那个魔怔的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4771#       发表于 2020-5-8 07:03
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-8 07:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339611&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-8 07:00</a>
+得了吧，别什么帽子都往黑泥群上扣，那请问到现在为止的直播有几个反串圣皇粉跳脸咩lzm的，龙魂你自己才是 ...</blockquote>
+这是我往黑泥群扣的帽子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你可以联系一下去年4-5月在黑泥群的人，问问黑泥群的群主有几回想要这么做，又有几回被我拉住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+黑泥群正常的很？可能在我被踢了之后正常了吧，听说还转生了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在群里时怎么印象是除了mea播就无时不刻不在互倒黑泥，以至于到了晚上一点以后不得不全群禁言的地步呢
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 4772#       发表于 2020-5-8 07:03
+
+
+
+
+人老了才能知道一个精致的睡眠是多么重要（
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 4773#       发表于 2020-5-8 07:08
+
+
+
+ 本帖最后由 某不知名的路人 于 2020-5-8 07:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339615&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-8 07:03</a>
+
+这是我往黑泥群扣的帽子吗
+
+你可以联系一下去年4-5月在黑泥群的人，问问黑泥群的群主有几回想要这 ...</blockquote>
+你是想让我问vi呢  还是博丽呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 人家那是真的不喜欢lzm  哦vi不清楚
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4774#       发表于 2020-5-8 07:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339627&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-8 07:08</a>
+你是想让我问vi呢  还是博丽呢，答应我，别真把自己当能左右别人意见的人好吗，何况这两位都不符合 ...</blockquote>
+是啊
+不喜欢就lzm到了要去喷mea地步，是哪一个呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对线来隔壁暗黑贴贴楼啊，不在这影响讨论mea了
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 4775#       发表于 2020-5-8 07:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339633&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-8 07:11</a>
+
+是啊
+
+不喜欢就lzm到了要去喷mea地步，是哪一个呢对线来隔壁暗黑贴贴楼啊，不在这影响讨论mea了 ...</blockquote>
+所以说很奇怪到底哪里跳脸咩了，你真不是把自己当回事了吧，她要真想跳脸咩还会听你的，还有你说的很多人支持你来搞笑的吧，没那么多时间花论坛上，只是纠正你几点而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 别把自己脑补的东西添加进去
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|提醒一下，贴贴相关去隔壁哦|
+
+
+
+查看全部评分
+
+
+
+
+                                        

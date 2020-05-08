@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 02:05** 
+> ## **本文件最后更新于2020-05-08 08:04** 
 
 
 
@@ -9792,7 +9792,7 @@ holo要真想再国际化一点，这点还是要注意下比较好。
 
 
 azulim中之人这是准备当个人势？
-<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_F4A2J" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_o877w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16644,7 +16644,7 @@ syl 粽子新图去ins找啊
 
 
 
-可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_Via7i" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_u55uc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/428clv/status/1258025228875096066](https://twitter.com/428clv/status/1258025228875096066)
 
@@ -18129,7 +18129,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 查了一下，这游戏不是看两小时直播就能拿到内测资格吗
-<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_qD8N9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_CPpPa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18450,7 +18450,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 表情，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_XOdo6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_I6FjN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 [https://twitter.com/1RBOX_CCC/status/1253824569250508801](https://twitter.com/1RBOX_CCC/status/1253824569250508801)
@@ -18989,4 +18989,333 @@ hiyoko有啊，发言人数/累计同接 一般数十分之一，可以倒推一
 
 
 
-                 
+
+
+-----
+
+####  寒星  
+##### 21981#       发表于 2020-5-8 02:10
+
+
+
+ 本帖最后由 寒星 于 2020-5-8 02:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339062&amp;ptid=1924531" target="_blank">离魂仙 发表于 2020-5-8 01:22</a>
+https://hiyoko.sonoj.net/video-info/i04mo5sFu9s
+
+hiyoko有啊，发言人数/累计同接 一般数十分之一，可以 ...</blockquote>
+十比一一般属于超级拉胯了吧，一般都是五比一，时间久一点效果好一点四比一也有
+<img src="https://p.sda1.dev/0/815ba75c502c530b65b590cb00834f52/IMG_00C8B43F80B3EC5373B0C7EFD4A63D32.jpeg" referrerpolicy="no-referrer">
+
+还有一般人数越多比例越低
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 21982#       发表于 2020-5-8 02:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338913&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 00:51</a>
+
+你这话传到v8.......也不会如何，反正狐狸也开烂了，也毫不妨碍狐皇天下布武
+
+
+话又说回来，阿批的粉丝里 ...</blockquote>
+狐皇在b站已经过气了，按动态点赞和相簿浏览估算，狐皇的活粉数估计只有鹿乃的二分之一不到，和狗妈差距更大
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 21983#       发表于 2020-5-8 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339227&amp;ptid=1924531" target="_blank">寒星 发表于 2020-5-8 02:10</a>
+
+十比一一般属于超级拉胯了吧，一般都是五比一，时间久一点效果好一点四比一也有</blockquote>
+说的”ライブ終了時点の視聴回数“
+
+你这个档有BUG，没统计出来
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 21984#       发表于 2020-5-8 02:19
+
+
+
+
+B站的话从记录来看两个小时左右的直播发言人数和人气比例在1比50，签约就是1比100<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒星  
+##### 21985#       发表于 2020-5-8 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339252&amp;ptid=1924531" target="_blank">离魂仙 发表于 2020-5-8 02:18</a>
+说的”ライブ終了時点の視聴回数“
+
+你这个档有BUG，没统计出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看全你的回复，我说的是最高人数和发言人数比
+
+
+
+
+
+
+
+-----
+
+####  lhawp  
+##### 21986#       发表于 2020-5-8 03:25
+
+
+
+[https://www.youtube.com/watch?v=23rfSaYKf7M](https://www.youtube.com/watch?v=23rfSaYKf7M)
+
+1小时59分开始，和栞桜连线的花音好可爱啊我酸了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 21987#       发表于 2020-5-8 03:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/033700igc1dhlbi03c3eh3.png" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-gbp0Z13T3cSb4-ed.png</strong> (390 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 03:37 上传
+
+
+
+
+
+
+狗子你。。。
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 21988#       发表于 2020-5-8 04:51
+
+
+
+
+羊今天连唱两首kinki我爱了
+
+不过这key是真的低。。。我都能唱上去的调还要降key
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 21989#       发表于 2020-5-8 06:00
+
+
+
+
+靠，做梦梦到兔子直播说被粉丝发消息要求不联动男人，然后哭着道歉，大清早被吓醒了。昨天兔子没直播感觉被芙宝梁木种起来了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 21990#       发表于 2020-5-8 07:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">话说开兔皇团那个句式“xxx，不好。xxx，好。”原梗是哪里的，我感觉应用场景很广泛？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 21991#       发表于 2020-5-8 07:25
+
+
+
+<blockquote>金魚佬 发表于 2020-5-8 07:22
+话说开兔皇团那个句式“xxx，不好。xxx，好。”原梗是哪里的，我感觉应用场景很广泛？ ...</blockquote>
+一个抖音恰烂钱的外国佬叫伏拉夫，原梗好像是“俄罗斯的土豆炖牛肉一般，加上中国的调料好吃”
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 21992#       发表于 2020-5-8 07:39
+
+
+
+<img src="https://ftp.bmp.ovh/imgs/2020/05/9d8373f42351be68.jpeg" referrerpolicy="no-referrer">
+
+你们杏星观众是真的怪，怎么就遇不到和红A哥一样的纯良少年呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 21993#       发表于 2020-5-8 07:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339717&amp;ptid=1924531" target="_blank">ヒトニナル 发表于 2020-5-8 07:39</a>
+
+你们杏星观众是真的怪，怎么就遇不到和红A哥一样的纯良少年呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 21994#       发表于 2020-5-8 07:56
+
+
+
+
+因为黑宝是19岁少年，和内心扭曲的姨们有着本质的区别
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 21995#       发表于 2020-5-8 07:56
+
+
+
+
+好久没了解过了，问下B站现在asmr还禁播吗？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 21996#       发表于 2020-5-8 07:59
+
+
+
+
+star这是女粉多了 转到主战场微博去跟虹人碰一碰了？
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 21997#       发表于 2020-5-8 08:01
+
+
+
+
+禁不禁播不知道，但是你直接在搜索栏打“asmr”还是不显示结果的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 21998#       发表于 2020-5-8 08:03
+
+
+
+
+不搞单声道、擦边球、标题没有相关字眼貌似没问题，不过对很多人那样似乎就不起作用了。
+
+
+
+
+
+                
