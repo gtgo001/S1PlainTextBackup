@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 08:04** 
+> ## **本文件最后更新于2020-05-08 10:07** 
 
 
 
@@ -9792,7 +9792,7 @@ holo要真想再国际化一点，这点还是要注意下比较好。
 
 
 azulim中之人这是准备当个人势？
-<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_o877w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_wscvR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16644,7 +16644,7 @@ syl 粽子新图去ins找啊
 
 
 
-可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_u55uc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_Zm0aY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/428clv/status/1258025228875096066](https://twitter.com/428clv/status/1258025228875096066)
 
@@ -18129,7 +18129,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 查了一下，这游戏不是看两小时直播就能拿到内测资格吗
-<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_CPpPa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_g3BEj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18450,7 +18450,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 表情，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_I6FjN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_GulhR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 [https://twitter.com/1RBOX_CCC/status/1253824569250508801](https://twitter.com/1RBOX_CCC/status/1253824569250508801)
@@ -19318,4 +19318,1224 @@ star这是女粉多了 转到主战场微博去跟虹人碰一碰了？
 
 
 
-                
+
+
+-----
+
+####  colodes  
+##### 21999#       发表于 2020-5-8 08:16
+
+
+
+
+搜了下 #holostars# 这个tag，根本没有出现你这条微博，所以排除冲到别人脸上的说法
+
+第二，你这属于自己发现，而不是搬运了论坛的发言，所以并不属于cross-board
+
+所以，跑到无关人士微博底下执法非常失礼
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22000#       发表于 2020-5-8 08:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339672&amp;ptid=1924531" target="_blank">离心 发表于 2020-05-08 07:25:31</a>
+一个抖音恰烂钱的外国佬叫伏拉夫，原梗好像是“俄罗斯的土豆炖牛肉一般，加上中国的调料好吃” ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前欧洲留学时还挺喜欢用匈牙利炖牛肉的调料包自己做土豆炖牛肉，我也是反式伏拉夫了…财富密码害人不浅
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22001#       发表于 2020-5-8 08:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339763&amp;ptid=1924531" target="_blank">VivillonTundra 发表于 2020-05-08 07:56:17</a>
+好久没了解过了，问下B站现在asmr还禁播吗？</blockquote>杏CN的鱼搞了几次立体声杂谈了，特别养gachi，应该是不禁双声道，但ghs似乎就不行了，摩擦音之类的好像也不行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 22002#       发表于 2020-5-8 08:44
+
+
+
+
+最近看第一季度涨粉的数据，这狗妈真的没买粉么？表情包入坑连视频都不看一眼就点个关注？尤其是最近这视频点击都低到比二三线vup都不如了，却依然能保持高涨粉，这也太离谱了。跟她获赞和播放数差不多的犬山粉丝比她少90W。别告诉我表情包入坑不看视频的有90W
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22003#       发表于 2020-5-8 08:49
+
+
+
+
+滚雪球效应，基数越大越容易被看到，随手点个关注不难。但b站看视频要看够一定时间，只有视频够有意思或者粉丝粘性够大才行。
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 22004#       发表于 2020-5-8 08:51
+
+
+
+
+看来我对二三线vup视频的播放量完全没有概念了......20w起步还低吗......
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22005#       发表于 2020-5-8 08:51
+
+
+
+
+换个角度，狗妈直播都懒得弄了她买b站粉有个p用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22006#       发表于 2020-5-8 08:52
+
+
+
+
+点关注比较随便的人，随便关注的账号一定很多，如果不和粉丝一样有定期刷动态的习惯，看不到视频不是很正常？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22007#       发表于 2020-5-8 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339776&amp;ptid=1924531" target="_blank">中野六小龄童 发表于 2020-5-8 07:59</a>
+
+star这是女粉多了 转到主战场微博去跟虹人碰一碰了？</blockquote>
+那最起码得有粉丝基数啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 22008#       发表于 2020-5-8 08:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一泥楼待久了这种程度的执法对我来说毫无损伤就给大家看个乐子，不过杏星要是真火起来这类脑瘫肯定会变多
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 22009#       发表于 2020-5-8 08:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪天杏星女粉能在微博和虹女粉对打，黑宝不该高兴得跳起来
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22010#       发表于 2020-5-8 09:00
+
+
+
+
+草没看过狗妈。原来单个视频播放数20w，这已经是v圈头部了吧，除了某些歌系的唱歌视频没人比得过啊。您不会比的是播放总数跟总获赞数吧，那跟视频数量直接挂钩啊，狗妈貌似视频数量挺少的。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22011#       发表于 2020-5-8 09:00
+
+
+
+
+照搬vr成例，可不可以说神乐奈奈小姐其实就是来体验了一把生活？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22012#       发表于 2020-5-8 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340193&amp;ptid=1924531" target="_blank">JY要塞 发表于 2020-05-08 08:58:32</a>
+哪天杏星女粉能在微博和虹女粉对打，黑宝不该高兴得跳起来</blockquote>想多了，那时候黑宝差不多要被女粉拉出来公审了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22013#       发表于 2020-5-8 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340193&amp;ptid=1924531" target="_blank">JY要塞 发表于 2020-5-8 08:58</a>
+
+哪天杏星女粉能在微博和虹女粉对打，黑宝不该高兴得跳起来</blockquote>
+别别别，自卫队不是远征军<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22014#       发表于 2020-5-8 09:02
+
+
+
+ 本帖最后由 colodes 于 2020-5-8 09:05 编辑 
+
+应该比同是表情包类的，感觉差不多
+ 频道名 粉丝数 总播放 视频数 总播放/视频数总播放/视频数/粉丝数  七濑胡桃 36w 696w 59 11.8w 0.33 神楽七奈 130w 2557w 71 36w 0.27 白上吹雪 103w 5831 467 12.5w 0.12
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 22015#       发表于 2020-5-8 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340220&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-8 09:01</a>
+
+想多了，那时候黑宝差不多要被女粉拉出来公审了
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能看到杏星这么火，黑宝想必被批斗也是带着微笑的
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 22016#       发表于 2020-5-8 09:04
+
+
+
+
+holo摇500w播放了
+这宫姨这个拍照滤镜我瞎了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22017#       发表于 2020-5-8 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340220&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-8 09:01</a>
+
+想多了，那时候黑宝差不多要被女粉拉出来公审了
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+说的就是啊，就我天天在S1动不动就提meiro，早就完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22018#       发表于 2020-5-8 09:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打开b站对比一下，狗妈单个视频播放量10倍甚至20倍秒杀苔苔，也不知道怎么得出的差不多结论。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22019#       发表于 2020-5-8 09:06
+
+
+
+
+bsyl，我在B站主页看到了free老哥的剪辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就空妈碰掉摄像头那个
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 22020#       发表于 2020-5-8 09:07
+
+
+
+
+草草草 我也看到了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22021#       发表于 2020-5-8 09:08
+
+
+
+
+20w播放还不高吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+按照之前的理论，虹中层很多liver最高的播放量也就20w
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 22022#       发表于 2020-5-8 09:09
+
+
+
+
+我在隔壁刷holo楼的时候光看标题就在想是不是free发的，一看头像id，果然，再点进去，果然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟v综以外没有楼主挡箭牌
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 22023#       发表于 2020-5-8 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340053&amp;ptid=1924531" target="_blank">cgz 发表于 2020-5-8 08:44</a>
+
+最近看第一季度涨粉的数据，这狗妈真的没买粉么？表情包入坑连视频都不看一眼就点个关注？尤其是最近这视频 ...</blockquote>
+哪个二三线vup能有20万起步的播放量？犬山投稿数是狗妈的四倍，总点赞被狗妈碾压，这也能拿出来说<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 22024#       发表于 2020-5-8 09:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">那不会的，要真批斗红A哥那就说明泥楼出了内鬼，需要大肃清
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 22025#       发表于 2020-5-8 09:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338919&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-8 00:52</a>
+其实我觉得少主挺喜欢阿夸的，当然可能是本crew的推最可爱思想作祟，少主在直播里说会在有空的时候 ...</blockquote>
+这么喜欢夸不还是被你们crew追着黑，crew就和七色太监一样，养不熟的狗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 22026#       发表于 2020-5-8 09:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340336&amp;ptid=1924531" target="_blank">18300625949 发表于 2020-5-8 09:13</a>
+
+哪个二三线vup能有20万起步的播放量？犬山投稿数是狗妈的四倍，总点赞被狗妈碾压，这也能拿出来说 ...</blockquote>
+我说的是最近点击，又不是平均点击，最近狗妈视频点击其实都挺少的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22027#       发表于 2020-5-8 09:21
+
+
+
+
+最近也是20w起步啊，老哥不会是看的404的播放吧。。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22028#       发表于 2020-5-8 09:23
+
+
+
+
+狐狸马里奥赛车时的眼泪我还真要黑<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22029#       发表于 2020-5-8 09:26
+
+
+
+
+苔宝自从踩了一脚夸皇以后天天在这里被反复顺劈说明了什么？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 22030#       发表于 2020-5-8 09:29
+
+
+
+
+她有不被顺劈的时候吗
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22031#       发表于 2020-5-8 09:29
+
+
+
+
+她什么时候踩夸哥了？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 22032#       发表于 2020-5-8 09:29
+
+
+
+
+说明苔宝可爱，苔宝喜欢
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 22033#       发表于 2020-5-8 09:29
+
+
+
+ 本帖最后由 18300625949 于 2020-5-8 09:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340388&amp;ptid=1924531" target="_blank">cgz 发表于 2020-5-8 09:18</a>
+
+我说的是最近点击，又不是平均点击，最近狗妈视频点击其实都挺少的</blockquote>
+狗妈最近两个视频点击是25万和44万，犬山哥在有织田信姬加成的情况下，四五月所有视频播放打不过狗妈两个视频播放，差距太大了。同为百万粉的狐狸，上一个超25万点击的非视频投稿日期是4月1日。我觉得你对b站播放数有点误解，狗妈b站视频播放v圈独一档，比国v一姐泠鸢都高<strong>
+</strong>
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22034#       发表于 2020-5-8 09:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来小博宇是无差别攻击所有粉丝群体，下次再把锅甩给crew的时候我就要把这截图发出来。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 22035#       发表于 2020-5-8 09:30
+
+
+
+
+主要是没人直击苔苔所以显得都是顺劈
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22036#       发表于 2020-5-8 09:32
+
+
+
+
+原来是这个b，那我浪费感情了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+但少主的眼泪我是不会忘记的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22037#       发表于 2020-5-8 09:34
+
+
+
+
+狐皇马车杯的眼泪我倒是不黑，毕竟有时候真的忍不住。但是新年大会把奖颁给狐狸，我真的受不了。这种会哭的孩子有奶吃的行为<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22038#       发表于 2020-5-8 09:36
+
+
+
+ 本帖最后由 opersuper 于 2020-5-8 09:39 编辑 
+
+我只是一般路过老害，真不是什么小博宇啊，名字都没听说过。差点以为背锅了<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|不是说你。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22039#       发表于 2020-5-8 09:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说你。
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 22040#       发表于 2020-5-8 09:37
+
+
+
+
+小博鱼是上面那个3peko
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22041#       发表于 2020-5-8 09:38
+
+
+
+
+虹中层的视频播放量哪里到的了20w，20w播放量除了那些歌势发的歌一般的实况录像就连顶头的那几个都到不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 22042#       发表于 2020-5-8 09:38
+
+
+
+
+peko的名字mea的头像发言骂crew，太混沌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  786223096  
+##### 22043#       发表于 2020-5-8 09:39
+
+
+
+
+真的不知道你们天天把玉姬拿出来贬得一文不值是为了什么，真的sjb……
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22044#       发表于 2020-5-8 09:39
+
+
+
+
+APEX段位
+
+
+5/8日AM2:00更新　ホロとにじのAPEXランク
+
+
+ホ・7522 ダイヤ4　パコ余
+
+に・7381 ダイヤ4　いちご
+
+に・7330 ダイヤ4　叶
+
+に・7309 ダイヤ4　ちーさん
+
+ホ・6270 プラチナ2　あくたん
+
+に・5450 プラチナ3　奈羅花
+
+に・5195 プラチナ4　神田
+
+に・4925 プラチナ4　夜見
+
+に・4844 プラチナ4　葛葉
+
+ホ・4800 プラチナ4　クソガキ
+
+ホ・4061 ゴールド2　まつり
+
+ホ・3889 ゴールド2　ロボ子
+
+ホ・3439 ゴールド3　トワ
+
+に・2868 ゴールド4　ういは
+
+に・2859 ゴールド4　パコレ
+
+に・2832 ゴールド4　イブラヒム
+
+に・2831 ゴールド4　黛
+
+に・2808 ゴールド4　アルス
+
+に・2544 シルバー1　星川
+
+に・2414 シルバー1　マオ
+
+ホ・2037 シルバー2　ルーナ
+
+に・1816 シルバー3　葉山
+
+ホ・1761 シルバー3　おかゆ
+
+に・1758 シルバー3　ライフ
+
+に・1698 シルバー3　りりむ
+
+に・1162 ブロンズ1　ひまわり
+
+に・1018 ブロンズ1　ハジメ
+
+に・*960 ブロンズ1　青長
+
+に・*901 ブロンズ1　ホスト
+
+に・*650 ブロンズ2　笹木
+
+ホ・*419 ブロンズ3　親方
+
+ホ・*385 ブロンズ3　スバル
+
+ホに**** ブロンズ4以下多数
+[http://egg.5ch.net/test/read.cgi/streaming/1588869783/](http://egg.5ch.net/test/read.cgi/streaming/1588869783/)
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 22045#       发表于 2020-5-8 09:40
+
+
+
+
+有时看到天狗crew和七色太监为自己辩解就觉得超搞笑<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+你们在放屁之前能不能先看下自己的历史发言<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 22046#       发表于 2020-5-8 09:41
+
+
+
+
+话说海牛的单排上钻的么？
+是的话那真是nb
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 22047#       发表于 2020-5-8 09:41
+
+
+
+
+新年大会不是会哭的孩子有奶吃，而是运营xjb找个由头给狐狸安个大赏上去吧……
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22048#       发表于 2020-5-8 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340573&amp;ptid=1924531" target="_blank">Suny08 发表于 2020-5-8 09:38</a>
+
+虹中层的视频播放量哪里到的了20w，20w播放量除了那些歌势发的歌一般的实况录像就连顶头的那几个都到不了[f ...</blockquote>
+我以为在说404，404确实是20w顶天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 22049#       发表于 2020-5-8 09:42
+
+
+
+
+葛叶打了这么久还是白金4<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22050#       发表于 2020-5-8 09:42
+
+
+
+
+新年那下明显少主自己都没料到吧，还专门发个推灭灭火
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 22051#       发表于 2020-5-8 09:43
+
+
+
+
+都怪这帮管人，现在我404的首页推荐全部都是apex了，甚至出现了职业选手的，连我从没看过的哈弟的都来了。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22052#       发表于 2020-5-8 09:44
+
+
+
+
+看管人直播感觉日服我都能上白金<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 22053#       发表于 2020-5-8 09:45
+
+
+
+
+管人明明是日本传来的舶来文化，现在比韩娱圈还恶臭<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+这都是葵的错吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22054#       发表于 2020-5-8 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340637&amp;ptid=1924531" target="_blank">erer 发表于 2020-5-8 09:43</a>
+
+都怪这帮管人，现在我404的首页推荐全部都是apex了，甚至出现了职业选手的，连我从没看过的哈弟的都来了。 ...</blockquote>
+挺好的
+
+反正holo里面唯一雷打不动不开APEX坑的只有一个人了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 22055#       发表于 2020-5-8 09:48
+
+
+
+
+不懂apex
+听说葛叶打的太不功利，到处跟人莽**，还经常迷惑操作（nico上还有剪辑喷他坑路人队友），所以上不去分
+还有狗这个段位是什么鬼，不是说到了一定段位以后必须靠杀人赚分数了吗，还是说车队那么强，躺在地上2人吃鸡带着上分，或者代打？
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 22056#       发表于 2020-5-8 09:48
+
+
+
+
+我看到这个表就想起之前有人说打到钻3才算有实力，用这个标准看虹杏这群人怕不都是菜的抠脚<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 22057#       发表于 2020-5-8 09:49
+
+
+
+
+不像会开APEX的还是有几个的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22058#       发表于 2020-5-8 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340676&amp;ptid=1924531" target="_blank">poipanchao 发表于 2020-5-8 09:48</a>
+
+不懂apex
+
+听说葛叶打的太不功利，到处跟人莽**，还经常迷惑操作（nico上还有剪辑喷他坑路人队友），所以上 ...</blockquote>
+叫狗狗过来补刀呗。再说狗狗打那么多，技术总归有点吧。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 22059#       发表于 2020-5-8 09:53
+
+
+
+
+车队开黑可以蹭伤害拿分吧
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 22060#       发表于 2020-5-8 09:55
+
+
+
+
+海牛上白金段后没直播打过排位吗？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 22061#       发表于 2020-5-8 09:56
+
+
+
+
+apex这个游戏是真的吃队友，基本上能单排上白金都能算有实力的，这游戏遇到队友坑是真的没得玩，要上分至少一队人里得有两个会玩的，要真有俩猎杀者带你你就当个移动背包都能把你拉上钻石，其实葛叶的水平是够的，他和千叶排到钻石局也能打2000伤害，分基本全是单排掉下来的，他单排和队友都不是一个节奏经常他想杀人队友想苟就白给了。这些人里敢直播拉出来单排的都算打的可以的了，其实还可以看他们的场均伤害也能看出水平
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 22062#       发表于 2020-5-8 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47338598&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-8 00:05</a>
+
+https://twitter.com/rurudo_/status/1258421188260278276?s=21</blockquote>
+老妈出来抢女儿饭碗的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 22063#       发表于 2020-5-8 10:04
+
+
+
+
+我觉得杏里towa和夏哥的水平都是高于萝卜的，倒是没想到公主和大脸猫看上去独食恰的不少。。
+
+
+至于懒狗，虽然公认是车队带上去的，不过你说她自己完全不能打也确实是有点小看懒狗。。至少做到不拖后腿的水平还是有的吧（
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22064#       发表于 2020-5-8 10:05
+
+
+
+
+towa：梦见了和okayu、shion、korone一起上学
+
+
+A：现实是只有你一个落单
+
+B：那么和你联动的aki前辈呢
+
+
+C：但是shion根本不会去上学吧 
+
+↑↑↑↑↑↑  确实
+
+
+
+
+
+              

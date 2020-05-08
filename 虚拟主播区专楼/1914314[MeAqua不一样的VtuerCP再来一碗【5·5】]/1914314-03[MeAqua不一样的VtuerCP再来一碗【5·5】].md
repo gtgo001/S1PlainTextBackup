@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 22:01** 
+> ## **本文件最后更新于2020-05-08 10:02** 
 
 
 
@@ -15472,7 +15472,7 @@ mea那边的金瓜子多一点，微弱优势胜出。
 <img src="https://img.saraba1st.com/forum/202005/07/192912igk8iuwmgu8hrfuh.jpg" referrerpolicy="no-referrer">
 
 
-<strong>-zue37Q5-csirKvT3cSii-7l[1].jpg</strong> (50.32 KB, 下载次数: 1)
+<strong>-zue37Q5-csirKvT3cSii-7l[1].jpg</strong> (50.32 KB, 下载次数: 2)
 
 下载附件
 
@@ -15835,4 +15835,1048 @@ http://bbs.nga.cn/read.php?tid=21650136</blockquote>
 
 
 
-                    
+
+
+-----
+
+####  noaki  
+##### 3873#       发表于 2020-5-7 22:06
+
+
+
+ 本帖最后由 noaki 于 2020-5-7 22:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337035&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-7 21:41</a>
+
+两个事实：1meaqua被追着喷    2盐水没什么人喷
+
+贴贴人想到的：“凭什么只喷我们不喷他们？这不公平！”
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我想说的是
+
+
+1.上面提到的的''一堆人''事实上是''两堆人''。既然相关群体都不同那把这两件事拿到一块说不合适。
+
+
+2.这次盐水两组这操作我寻思护着的人也不是搁咩pv评论觉得不满的人啊，咋就双标了？
+
+
+3.更何况pv评论那件事的时候还有部分杏人来你咩评论下yygq咩粉屁事多呢，这群杏人的观点倒是始终如一
+
+
+...再往下就不说了
+
+
+当然这p大点事儿确实没有讨论这么多的必要了，这次夸组倒真的是躺着中箭，魔怔贴贴人们倒也还是一如既往地令人心情愉悦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+syl。纠正一下，有罪推定不可取嗷，"苍蝇不叮无缝的蛋"这种哪里都能套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且这两次被喷的是各组的操作而不是cp本身。以及这次的盐水两组操作也是有人喷的，不过就我看到的是上次那些和"喷咩夸两组贴贴操作的人"对喷的人……
+
+草，咋越说越怪了……
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 3874#       发表于 2020-5-7 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47337035&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-7 21:41</a>
+
+两个事实：1meaqua被追着喷    2盐水没什么人喷
+
+贴贴人想到的：“凭什么只喷我们不喷他们？这不公平！”
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">正常人都知道傻紫的粉比mea的粉好伺候多了，傻紫组天天乱玩动态都不用担心被炎的
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 3875#       发表于 2020-5-7 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞅了一眼，如果打call视频简介像傻紫组这么写，你咩组不得让人给扬了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3876#       发表于 2020-5-8 01:26
+
+
+
+
+因为打call视频真的不怎么贴
+
+
+但是很好玩
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3877#       发表于 2020-5-8 01:58
+
+
+
+
+看了一下，圣皇评论区也有直球"三字母"暴扣贴贴人和天狗厄介的评论了，对上了，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3878#       发表于 2020-5-8 02:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">meaqua党越来越有残党内味了，原来一段时间的调侃渐渐变成了事实，即使b站限定联动也伐不了植根在眼里的梁木
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">等着贴贴壬一个接一个疯掉的每一天，看得到灭亡的结局（已经见过几个了）
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3879#       发表于 2020-5-8 02:20
+
+
+
+
+那将来会不会有暗黑mk2这样的生物出现在泥潭呢？暗黑贴贴阵营再分裂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3880#       发表于 2020-5-8 02:25
+
+
+
+
+除非两位正主在国内都凉掉，想想也不可能<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3881#       发表于 2020-5-8 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339255&amp;ptid=1914314" target="_blank">坚果收藏家 发表于 2020-5-8 02:20</a>
+那将来会不会有暗黑mk2这样的生物出现在泥潭呢？暗黑贴贴阵营再分裂</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3882#       发表于 2020-5-8 02:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339272&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-8 02:25</a>
+除非两位正主在国内都凉掉，想想也不可能</blockquote>
+我就给你这个泥潭幸存的头号贴贴人迎头重击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 3883#       发表于 2020-5-8 02:46
+
+
+
+
+迷惑操作搞多点，我最喜欢看连体婴发疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3884#       发表于 2020-5-8 02:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339305&amp;ptid=1914314" target="_blank">TioPlato 发表于 2020-5-8 02:46</a>
+迷惑操作搞多点，我最喜欢看连体婴发疯了</blockquote>
+我给你个主意哦，专门搞两个q
+号进meaqua群，一个进去发疯，一个看戏。你就能看到连锁反应了。
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3885#       发表于 2020-5-8 03:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339309&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 02:48</a>
+
+我给你个主意哦，专门搞两个q
+
+号进meaqua群，一个进去发疯，一个看戏。你就能看到连锁反应了。 ...</blockquote>
+太缺德了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 3886#       发表于 2020-5-8 03:11
+
+
+
+
+
+咩酱前天v骚车轱辘浴室尿尿的烂梗是因为：
+
+A.麻酱江郎才尽，想不出新话题了
+
+
+B.
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/030947n1iu83tm3qtj44qi.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200508_030933.png</strong> (634.09 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-8 03:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 3887#       发表于 2020-5-8 03:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339303&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 02:46</a>
+我就给你这个泥潭幸存的头号贴贴人迎头重击湊阿库娅早该发现自己的活跃粉丝量高于mea了。所以化合 ...</blockquote>
+上次B限联动夸皇同接倍杀咩宝，天狗大势已去，crew武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3888#       发表于 2020-5-8 04:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">天狗费拉不堪，迟早要被crew a走败退
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3889#       发表于 2020-5-8 04:36
+
+
+
+
+不是，暗黑贴贴人的诡异之处就在这里。明明是你mea姐的anti更跳了，他们却会感到高兴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3890#       发表于 2020-5-8 05:13
+
+
+
+
+这发言顶着这id我一下子还真没反应过来，大晚上搁这儿玩夺舍呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3891#       发表于 2020-5-8 05:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339484&amp;ptid=1914314" target="_blank">noaki 发表于 2020-5-8 05:13</a>
+这发言顶着这id我一下子还真没反应过来，大晚上搁这儿玩夺舍呢</blockquote>
+贴杂那号也是这么夺舍过来的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3892#       发表于 2020-5-8 06:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339309&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 02:48</a>
+我给你个主意哦，专门搞两个q
+号进meaqua群，一个进去发疯，一个看戏。你就能看到连锁反应了。 ...</blockquote>
+这是同好会最初几个成员之一的号，论粉头的威力怕是比以前的什么写手画师强多了，现在却开始搞这种事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真是可笑，暗黑贴贴人当年攻击贴贴人用过的手段总会回到自己身上
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3893#       发表于 2020-5-8 07:13
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-8 07:33 编辑 
+
+@某不知名的路人
+来来来说一说我哪一句说的不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会吧
+
+说了贴贴相关来贴贴楼，再at一遍
+@某不知名的路人
+是啊没多少人支持，也就mk2拉着忘了还有谁的人在起哄，都开始考虑怎么翻译了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3894#       发表于 2020-5-8 08:19
+
+
+
+
+mk2我想你了！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+来吧用你的力量打开新的咩夸蜜月期！<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">让残党再次复兴！<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3895#       发表于 2020-5-8 08:33
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-8 07:13
+@某不知名的路人
+
+来来来说一说我哪一句说的不对你不会是在纠结我说“把黑泥群群主劝回来了”这一点 ...</blockquote>
+第一点群主是翻译的并不是她想干的，第二点你说的反串在哪里我没看到，难道不是直球问？第三点你拿mk2来说支持这件事的就挺好笑的，黑泥群难道不是默认mk2是nt ？哦还有你也一样 第四点难道你不是在扣帽子，你的语气难道不是在表达不喜欢lzm一定是暗黑贴贴人，就不能是不喜欢lzm  你要是diss的是咩回应之后群主的反应 那随便diss 
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3896#       发表于 2020-5-8 08:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339967&amp;ptid=1914314" target="_blank">某不知名的路人 发表于 2020-5-8 08:33</a>
+第一点群主是翻译的并不是她想干的，第二点你说的反串在哪里我没看到，难道不是直球问？第三点你拿mk2来 ...</blockquote>
+第一群主是打钱的，钱都准备好了就等着翻译的
+第二他可是一开始就打算反串的，然后我在群里一遍又一遍的跟他说“与其反串让mea摸不清头脑，不如直接告诉mea你不喜欢meaqua”
+第三黑泥群默认mk2是nt，可我怎么记得群主说要反串时也没人反对啊，就剩mk2还有几个人在那起哄呢
+第四我还真没想过扣帽子的事，单纯是看到这楼前面都开始有人为别人叫“三字母”叫好了，联想到了黑泥群这件事而已
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 3897#       发表于 2020-5-8 08:41
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-5-8 08:43 编辑 
+
+我来辣
+当时开黑泥群是因为冲7还是冲5群内黑屁太多，管理要鲨人，所以我想着开个地方无限制发泄，省的都去论坛或者群里搞事
+
+当时唯一的群规是 群里干什么都可以，唯独不能把任何东西传出去
+
+然后我滚蛋一方面是考研，一方面是我脑残含量太高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+后面的事情我就不知道了，搞事情肯定不关我卵事的，我连直播间都几百年没进去过了怎么搞事
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3898#       发表于 2020-5-8 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47339552&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-5-8 06:17</a>
+这是同好会最初几个成员之一的号，论粉头的威力怕是比以前的什么写手画师强多了，现在却开始搞这种事[f:0 ...</blockquote>
+别扣帽子哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还要把别人划进我这一类里？
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3899#       发表于 2020-5-8 08:42
+
+
+
+ 本帖最后由 JustW 于 2020-5-8 08:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">觉得三字母叫得好的难道不知道四字母是叫谁的吗，真以为“敌人的敌人”是“朋友”？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3900#       发表于 2020-5-8 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340024&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-5-8 08:41</a>
+我来辣
+当时开黑泥群是因为冲7还是冲5群内黑屁太多，管理要鲨人，所以我想着开个地方无限制发泄，省的都去 ...</blockquote>
+这我倒是知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3901#       发表于 2020-5-8 08:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340029&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 08:42</a>
+别扣帽子哦无限把号给我都是因为泥潭某些人在他看来太恶心，放我出来恶心一下罢了mk2是个n ...</blockquote>
+这句是我故意说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+知道nt还不切割，这是不是就是小团体报团呢（经典复刻）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3902#       发表于 2020-5-8 08:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">四字母当然是米奇王了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3903#       发表于 2020-5-8 08:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340032&amp;ptid=1914314" target="_blank">JustW 发表于 2020-5-8 08:42</a>
+觉得三字母叫得好的难道不知道四字母是叫谁的吗，真以为“敌人的敌人”是“朋友”？ ...</blockquote>
+在这栋楼里面的，到底屁股在哪边还不一定呢。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 3904#       发表于 2020-5-8 08:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们男同之间的事能不能自己解决啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3905#       发表于 2020-5-8 08:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340061&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 08:45</a>
+在这栋楼里面的，到底屁股在哪边还不一定呢。</blockquote>
+但觉得三字母叫的好的，我想屁股应该不在mea这
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 3906#       发表于 2020-5-8 08:48
+
+
+
+
+哦对了，我本来这黑泥群还是想要做个天狗crew和其他各种成分的无限制格斗场的，结果天狗进来以后就不想让其他人进来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+只好算了
+不过现在已经有v8，然后发现真无限制了反而打不起来了，都去开兔田带佐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3907#       发表于 2020-5-8 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340079&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-5-8 08:46</a>
+但觉得三字母叫的好的，我想屁股应该不在mea这</blockquote>
+那请你去标记他呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻翻页就能看到了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3908#       发表于 2020-5-8 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340110&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 08:49</a>
+那请你去标记他呗翻翻页就能看到了。</blockquote>
+我没兴趣一个个的标记别人，更多是看到当年见过的场景的复刻，深有感触而已
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 3909#       发表于 2020-5-8 08:53
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-5-8 08:54 编辑 
+
+三字母这事我是这么想的，要是都把他当成黑称那永远都是黑称，但是粉丝如果能把黑称用起来，那它的意义就被消解掉了
+你看现在还有人把澡酱当黑称吗，都喊成枣子哥了
+当天狗都能随意地喊三字母的时候，黑称就失去意义了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+毕竟这三个字本身非常中性，其实本身完全看不出哪里有在黑
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3910#       发表于 2020-5-8 08:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340149&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-5-8 08:53</a>
+三字母这事我是这么想的，要是都把他当成黑称那永远都是黑称，但是粉丝如果能把黑称用起来，那它的意义就被 ...</blockquote>
+说是黑称其实也是难免的那么一个事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+今晚最草的还是为了反meaqua去为别人叫三字母而叫好
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 3911#       发表于 2020-5-8 08:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340166&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-5-8 08:55</a>
+说是黑称其实也是难免的那么一个事
+今晚最草的还是为了反meaqua去为别人叫三字母而叫好 ...</blockquote>
+咩夸不是本来就已经糊得差不多了吗，还有啥必要搞什么事情吗
+我就没怎么见过还有推咩夸的新人了，让他们自己慢慢凉掉呗
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 3912#       发表于 2020-5-8 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340149&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-5-8 08:53</a>
+三字母这事我是这么想的，要是都把他当成黑称那永远都是黑称，但是粉丝如果能把黑称用起来，那它的意义就被 ...</blockquote>
+其实该复刻一下某些流程，每次都在想，要不我不黑meaqua了吧的时候，总会有几个人跳出来给我打几针兴奋剂啊，龙魂你也是算是其中一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3913#       发表于 2020-5-8 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340185&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-5-8 08:57</a>
+咩夸不是本来就已经糊得差不多了吗，还有啥必要搞什么事情吗
+我就没怎么见过还有推咩夸的新人了，让他们 ...</blockquote>
+这营业都结束的差不多了，贴贴人也不怎么出来跳，仅剩下一堆梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以我之前说黑暗贴贴人再出来跳就是变相给这个招魂而已
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3914#       发表于 2020-5-8 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340149&amp;ptid=1914314" target="_blank">VivillonTundra 发表于 2020-5-8 08:53</a>
+
+三字母这事我是这么想的，要是都把他当成黑称那永远都是黑称，但是粉丝如果能把黑称用起来，那它的意义就被 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">感觉这个事完全消解了也不行，昨儿发明一个黑称我们也叫，今儿发明一个黑称我们也叫，虽然看上去我们立于了不败之地，但其实这不就是阿Q吗，别人朝我吐痰，我还得说我就爱痰抹脸。但一直出警也不行，乐子人越见你反应大越叫的来劲儿。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3915#       发表于 2020-5-8 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340190&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-8 08:58</a>
+其实该复刻一下某些流程，每次都在想，要不我不黑meaqua了吧的时候，总会有几个人跳出来给我打几针兴奋剂 ...</blockquote>
+你见到我就兴奋是你自己的问题，我又不研究贴贴我有什么办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3916#       发表于 2020-5-8 09:08
+
+
+
+
+你们那个小破群的事能不能在群里解决，mea粉全都是从你们那个群里出来的？
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 3917#         楼主| 发表于 2020-5-8 09:12
+
+
+
+
+毕竟曾以带带小师妹之名出过圈，招来这些以搞主播心态为乐子的年轻人也是没辙
+说到年轻人，刚看见一个60万播放的《前浪》，我咩和药水哥肩并肩，荣登网络审丑文化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感慨万分
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 3918#       发表于 2020-5-8 09:18
+
+
+
+
+我就是带带小师妹入坑的纯乐子人
+
+然而你咩姐连中文都看不懂 根本给不了反馈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要搞主播心态还是去看vup好，很多国v小姑娘根本顶不住的，随便打个sc甚至私信骂两句就受不了了，小羊还是顶多了
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 3919#       发表于 2020-5-8 09:22
+
+
+
+
+你咩再不济也是经验丰富的tc壬，国v有几个义务教育阶段天天直播的，怕不是被家长打断腿
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 3920#       发表于 2020-5-8 09:25
+
+
+
+
+黑称叫过来那当然是叫回去啊
+
+
+大家一起黑嘛
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3921#       发表于 2020-5-8 09:34
+
+
+
+
+看药水哥的人会被叫做饭圈吗
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 3922#       发表于 2020-5-8 09:35
+
+
+
+
+这是什么怪逻辑，别人叫你sb叫多了你就自己承认自己是sb了吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3923#       发表于 2020-5-8 09:41
+
+
+
+ 本帖最后由 2014720 于 2020-5-8 09:49 编辑 
+
+别车轱辘斗这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+别人说了就说了呗，这东西真的有攻击力？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3924#       发表于 2020-5-8 09:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">那路或多，正因为有这种想法，所以甚至在官组也有把那称呼当正常叫法的pong友在，悟了悟了
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 3925#       发表于 2020-5-8 09:48
+
+
+
+
+u1s1，黑称这个概念就蛮饭的
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3926#       发表于 2020-5-8 09:51
+
+
+
+
+那也没办法，虹人创作出这个称呼的时候就是饭圈操作
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 3927#       发表于 2020-5-8 09:51
+
+
+
+
+yysy，小学一年级就学过的英文字母不会非要说三字母我都不知道是饭还是弱智了。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3928#       发表于 2020-5-8 09:52
+
+
+
+
+微博小该该用黑称是为了防搜索，关上门来黑屁。管人粉用黑称是为了恶心到别人脸上，我觉得已经跑偏了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+szm这种黑称一股当初那群微博人的恶臭味，如今可以心平气和的无视但自己人拿来用还是算了吧
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 3929#       发表于 2020-5-8 09:54
+
+
+
+<blockquote>weiweiEX 发表于 2020-5-8 08:39
+第一群主是打钱的，钱都准备好了就等着翻译的
+
+第二他可是一开始就打算反串的，然后我在群里一遍又一遍的 ...</blockquote>
+你这说的话没记录基本都无法考证的，都是凭借自己记忆来说的，要不你重新＋下群问下群主好不好啊
+
+
+
+
+
+                   
