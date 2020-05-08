@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 12:08** 
+> ## **本文件最后更新于2020-05-08 14:06** 
 
 
 
@@ -9792,7 +9792,7 @@ holo要真想再国际化一点，这点还是要注意下比较好。
 
 
 azulim中之人这是准备当个人势？
-<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_m6npa" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_trK46" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16644,7 +16644,7 @@ syl 粽子新图去ins找啊
 
 
 
-可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_gx5xV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_pESFN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/428clv/status/1258025228875096066](https://twitter.com/428clv/status/1258025228875096066)
 
@@ -18129,7 +18129,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 查了一下，这游戏不是看两小时直播就能拿到内测资格吗
-<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_OMKC4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_VmTkm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18450,7 +18450,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 表情，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_m3oxD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_C20vn" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 [https://twitter.com/1RBOX_CCC/status/1253824569250508801](https://twitter.com/1RBOX_CCC/status/1253824569250508801)
@@ -22354,4 +22354,1634 @@ syl，我也被推送免费哥那个剪辑了<img src="https://static.saraba1st.
 
 
 
-           
+
+
+-----
+
+####  tiro_finale  
+##### 22157#       发表于 2020-5-8 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342323&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-8 12:02</a>
+
+以前同期（？）1w+的时候她45千，现在同期56千的时候2000+
+
+视频势真就同步萎缩呗
+
+高还是高过的，当时播播 ...</blockquote>
+哪次啊，她频道比较高的就1w8的极盛期AIP、2w的绊爱杯，以及Count0，这些都是搞活动
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22158#       发表于 2020-5-8 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341837&amp;ptid=1924531" target="_blank">fromsaitama 发表于 2020-5-8 11:24</a>
+我就奇怪了，为什么v综允许这么一个无差别攻击的憨批存在？
+
+这种テロ一样的货需要给他什么权利吗 ...</blockquote>
+可以监督小博鱼同志多多rp正常人，巨魔多了不知道什么时候就可以来个一换一了
+<img src="https://p.sda1.dev/0/c933d7bbb5cff5af07de8d411d37e308/IMG_511C8B2DFEA1E0A58D987FA01AFF52FB.png" referrerpolicy="no-referrer">
+一个人头换一个人头，挺公平的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22159#       发表于 2020-5-8 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342338&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-8 12:04</a>
+
+说到这个事情
+
+去年年底还是今年年初的时候A和大道同时参加了一个v圈新闻制作者的一个访谈类节目 聊了很多 ...</blockquote>
+colod老哥发了，就是那个，正好赶上战争最激烈那阵
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22160#       发表于 2020-5-8 12:18
+
+
+
+
+话说APPLAND和游戏部怎么招人的时候解的时候都没有竞业禁止协议？这么直接把人放出去把自己炸了属实NT。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另外Holo对旗下女V的资源投入这么多，一个号的IP价值已经慢慢起来了，与其不断车新卡，重新练级，换魂似乎更节约成本，只是前几个玩还魂的都炸了。
+
+但其实在老爱之前我所设想的Vtubetr虚拟偶像是可以还魂，可以有一二三代目的。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22161#       发表于 2020-5-8 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">换魂留皮，那人际关系怎么办，还是直言所有人际关系都是rp的。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 22162#       发表于 2020-5-8 12:24
+
+
+
+
+狗狗又不是说不想干了，这么安排她干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  克罗夏  
+##### 22163#       发表于 2020-5-8 12:24
+
+
+
+
+女武神联动这卡面怎么看怎么怪
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 22164#       发表于 2020-5-8 12:27
+
+
+
+[https://www.bilibili.com/video/BV14541147iY](https://www.bilibili.com/video/BV14541147iY)
+
+直播时碰倒了摄像头的傻妞
+
+
+你们说在首页看见的是这个吗...居然两万多播放了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|虽然主号点了不感兴趣，但是可以Logout再看.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 22165#       发表于 2020-5-8 12:27
+
+
+
+
+也冲到了我的首页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22166#       发表于 2020-5-8 12:29
+
+
+
+
+所以说阿b推送还真挺好，看帖的时候就发现在首页
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22167#       发表于 2020-5-8 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">re:从零开始的木口生活
+
+我就是脑洞一下，但是一个20w粉的号+3套3D和2套2Dlive，若果中人毕业Cover把这些说扔了就直接扔了那也是真的大气
+
+另外讲个无关但坦性恋激怒的事，前两天Adele瘦下来上twitter热搜了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22168#       发表于 2020-5-8 12:31
+
+
+
+
+竞业协议要期限内都打钱的，Vjuan有这个钱也不会有这么多事了……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22169#       发表于 2020-5-8 12:33
+
+
+
+
+粉丝既是资源也是负担，说难听的狗狗毕业不会炸箱，换魂留皮怕是要遭重。至于3d和l2d啥的，反倒是次要了。
+
+
+
+
+
+
+
+-----
+
+####  ete  
+##### 22170#       发表于 2020-5-8 12:34
+
+
+
+
+艹我刷了两下也蹦出来了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22171#       发表于 2020-5-8 12:35
+
+
+
+
+竞业协议总不能管个人势播不播吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+要顺劈这个774，虹全都跑不掉
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22172#       发表于 2020-5-8 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342656&amp;ptid=1924531" target="_blank">伊迪潘喵森 发表于 2020-5-8 12:31</a>
+
+竞业协议要期限内都打钱的，Vjuan有这个钱也不会有这么多事了……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">主播一年竞业禁止就够了，原岗位80%的薪资给一年其实也不多，反正本来这两家给的应该就不多。不过也对，压榨的时候给的钱就少，搞事情连竞业禁止的钱都不肯出那活该炸死自己了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 22173#       发表于 2020-5-8 12:36
+
+
+
+
+如果真毕业的话，怕不是大家庭每个人都会开个直播哭哭吊念，
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22174#       发表于 2020-5-8 12:37
+
+
+
+ 本帖最后由 opersuper 于 2020-5-8 12:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342404&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-5-8 12:10</a>
+
+哪次啊，她频道比较高的就1w8的极盛期AIP、2w的绊爱杯，以及Count0，这些都是搞活动 ...</blockquote>
+是一个死にゲー的实况，蛮早的统计网站和channel都没档了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+应该是Trap Adventure2，老爱这游戏的动画实况再生也很高（非生肉）
+
+这个放送主要是从实况切杂谈同接掉了一大半被5ch疯狂节奏记忆深刻
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 22175#       发表于 2020-5-8 12:38
+
+
+
+
+竟业协议要一直给钱的，国内搜了下是1/2或2/3，企业签了这个是真的慈善发钱
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22176#       发表于 2020-5-8 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342491&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-8 12:18</a>
+
+话说APPLAND和游戏部怎么招人的时候解的时候都没有竞业禁止协议？这么直接把人放出去把自己炸了属实NT。[f: ...</blockquote>
+点箱以前的管理方针我觉得不是赚钱而是管理的人能怎么省事怎么来，你们liver爽不爽不管反正我管理的摸爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 22177#       发表于 2020-5-8 12:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又开始安排狗狗毕业了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22178#       发表于 2020-5-8 12:41
+
+
+
+ 本帖最后由 某穆克拉 于 2020-5-8 12:42 编辑 
+
+招人的时候哪想得到这些事儿，国内也就是机密岗和高级技术岗入职前就要搞这个。至于解约的时候再谈，就不是你资方说的算了。另外我怀疑如果在招人的时候就搞竞业协议，怕是招不到几个liver了。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22179#       发表于 2020-5-8 12:41
+
+
+
+
+要是能有签竞业协议的完整商业思维，游戏部那就不会炸了啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 22180#       发表于 2020-5-8 12:44
+
+
+
+
+最近的彩虹，，，是要杀光独角兽吗
+
+<img src="https://img.saraba1st.com/forum/202005/08/124149u40w1dqwacj4qdxd.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-08 124123.png</strong> (86.91 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-8 12:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22181#       发表于 2020-5-8 12:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">竞业禁止协议有禁止期，一年两年的钱花出去/贪下来就能让你求生不得求死不能，另外签竞业禁止一般薪酬也要给高一些
+
+虽然解约的时候不能玩竞业禁止了，但是还是可以在离职协议里塞些保密条款塞抹布的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是日本律师费太贵，这些草台公司请不起吧。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22182#       发表于 2020-5-8 12:46
+
+
+
+
+在404的光辉下，nico就变成了5ch视频版了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 22183#       发表于 2020-5-8 12:46
+
+
+
+ 本帖最后由 lllithid 于 2020-5-8 12:49 编辑 
+
+游戏部出事到转生不止一年了，但是如果从全员换魂开始算的话好像也不到
+
+有竞业协议也没用啊，魂的账号都被挖出来了，辞职后在随便在推上黑屁两句效果是一样的
+
+哦对了，我忘记可以签保密条款了，那确实有办法伪装成和平分手
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22184#       发表于 2020-5-8 12:48
+
+
+
+
+为什么你们想到的是竞业协议
+
+对于娱乐圈来说这只是普通的移籍操作吧
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 22185#       发表于 2020-5-8 12:49
+
+
+
+
+这行有什么值得搞竞业协议和保密协议的吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22186#       发表于 2020-5-8 12:49
+
+
+
+
+不过想起来，去年战争最激烈那阵，A和忍参加个第三方主持的座谈都能被说成加强联动......你要说主播也算了，这俩一个boss下低头不见抬头见的同事都拿来说事，我当时是真的服了
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 22187#       发表于 2020-5-8 12:50
+
+
+
+ 本帖最后由 talse 于 2020-5-8 12:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47341763&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-8 11:18</a>
+
+别的fps里高手秒你（中近距离）只需要0.2-1秒，apex这种血甲厚成马的游戏就挺适合菜鸡玩的
+
+虹杏都没fps高手 ...</blockquote>
+大猩猩也挺强的，几个经常和大猩猩一起玩的也不错，这群人都经常和职业玩家一起玩的样子，就是除了哈弟外都没人看，或者说apex在油罐同接多的几乎只有哈弟，虹杏是本身高和游戏关系不大，apex主要观众还是在T台
+
+另外其他fps远距离TTK更短其实，正常游戏狙都是追求1下秒人的，哪像Apex只有空投的金狙爆头才能秒人，秒了还能轻易拉起来
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 22188#       发表于 2020-5-8 12:51
+
+
+
+
+说真的有时候完全搞不懂狗狗为何能这么摸<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22189#       发表于 2020-5-8 12:51
+
+
+
+
+草台公司+派遣小时工，做大了不出事才有鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 22190#       发表于 2020-5-8 12:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342831&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 12:44</a>
+最近的彩虹，，，是要杀光独角兽吗</blockquote>
+夜见这个hso<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22191#       发表于 2020-5-8 12:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">保密协议肯定有，萌木那事才过去不久
+
+管人直播搞竞业协议能到底管到什么啊，就现在在播的双开玩家就不少
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22192#       发表于 2020-5-8 12:53
+
+
+
+
+还不是都怪你虹开了分成工资的坏头，所有因为分成闹出的幺蛾子都是虹的锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22193#       发表于 2020-5-8 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342383&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 12:08</a>
+【特番】ホロライブ/ホロスターズ裏方対談！【週刊MoguLive! 12/17 21時】
+
+https://youtu.be/92YNARaEWr0?t ...</blockquote>
+啊这，mogulive面子这么大的吗。原本以为只是底边的花边新闻集散地
+
+
+
+
+
+
+
+-----
+
+####  lllithid  
+##### 22194#       发表于 2020-5-8 12:54
+
+
+
+
+简单地说就是你转生可以，转生之后别爆我黑料就行
+
+就像幽崎海爱首播的时候直球说自己不会大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22195#       发表于 2020-5-8 12:54
+
+
+
+
+狗狗这么摸受伤害最大的应该是百鬼组的gachi们了
+
+不仅要忍受长时间看不到推直播的心理煎熬还要面对承受外界对狗狗和百鬼组的大量质疑的极端舆论环境
+
+双重心理伤害…
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22196#       发表于 2020-5-8 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342956&amp;ptid=1924531" target="_blank">mmbk 发表于 2020-5-8 12:54</a>
+
+啊这，mogulive面子这么大的吗。原本以为只是底边的花边新闻集散地</blockquote>
+花边新闻就算了
+
+mogulive多少还是业界的正经传媒新闻组织
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22197#       发表于 2020-5-8 12:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">娱乐圈移籍我不太懂，但是足球俱乐部以前想转会可没有现在那么简单，而且就算现在俱乐部不同意球员转会也只能拿违约金砸，甚至有点复辟，跟青年球员签不设违约金的长期合同。
+
+当然你们说主播业不值得，但日本这种会社把员工当奴隶的地方应该都能想到才是一般情况。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22198#       发表于 2020-5-8 12:57
+
+
+
+
+按照某裁某期的内容，vtb行业因为分成问题引爆的最大黑手是辉夜月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+毕竟她多干多拿理所当然
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 22199#       发表于 2020-5-8 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342898&amp;ptid=1924531" target="_blank">talse 发表于 2020-5-8 12:50</a>
+
+大猩猩也挺强的，几个经常和大猩猩一起玩的也不错，这群人都经常和职业玩家一起玩的样子，就是除了哈弟外 ...</blockquote>
+大猩猩是谁，唱歌的那个？
+
+吃鸡类游戏远距离秒移动靶就算职业选手也是很难的，要靠一定运气
+
+pubg里三级头也只有空投大狙才能一**秒
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22200#       发表于 2020-5-8 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342831&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 12:44</a>
+
+最近的彩虹，，，是要杀光独角兽吗</blockquote>
+草，不会真的有推郡道老师的独角兽罢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+夜见这个不就是ghs
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 22201#       发表于 2020-5-8 13:18
+
+
+
+
+我觉得单纯是郡道这个地图炮惹到了处女厨而已
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 22202#       发表于 2020-5-8 13:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">24按你楼标准已经是姨了，处不处还重要吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22203#       发表于 2020-5-8 13:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343001&amp;ptid=1924531" target="_blank">yinoh 发表于 2020-5-8 12:57</a>
+
+按照某裁某期的内容，vtb行业因为分成问题引爆的最大黑手是辉夜月
+
+
+毕竟她多干多拿理所当然 ...</blockquote>
+勤劳刻苦辉夜月 能说会道未来明？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 22204#       发表于 2020-5-8 13:22
+
+
+
+
+草，这栋楼的姨线得是多少
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 22205#       发表于 2020-5-8 13:23
+
+
+
+
+25以上？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22206#       发表于 2020-5-8 13:24
+
+
+
+
+按照一般处女厨的标准JD以上都是姨了？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 22207#       发表于 2020-5-8 13:24
+
+
+
+
+夸夸白金1了？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22208#       发表于 2020-5-8 13:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">楼里除我之外全员JK，当然是18以上就算姨啦
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22209#       发表于 2020-5-8 13:29
+
+
+
+
+以前楼里车过姨约等于加龄臭，不是单纯的年龄问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22210#       发表于 2020-5-8 13:30
+
+
+
+
+那还是可以理解，毕竟纸片人不存在什么处不处女的问题。就好像白少主gachi也不会去想她是不是处这种问题。虽然我觉得郡道只是在说她自己就是了
+
+
+syl，24也要姨过分了啊，至少20代后半吧
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 22211#       发表于 2020-5-8 13:30
+
+
+
+
+你楼怎么持续降低姨的标准的，最后是不是除了海牛之外都是姨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 22212#       发表于 2020-5-8 13:31
+
+
+
+
+至少未成年的不要叫姨，好吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 22213#       发表于 2020-5-8 13:31
+
+
+
+
+听有人说爱丽丝要有新衣服了，是新画师吗？
+
+
+
+
+
+
+
+-----
+
+####  贝伦二世  
+##### 22214#       发表于 2020-5-8 13:33
+
+
+
+
+今天夸哥运气状态都不错，爽哦
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 22215#       发表于 2020-5-8 13:33
+
+
+
+
+但是法律规定年满14岁的就是妇女了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22216#       发表于 2020-5-8 13:34
+
+
+
+
+姨文化是坏文化，不如换成姐文化，阿姨控很少，姐控不算少
+
+PTR姐，凛姐，多么美好
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22217#       发表于 2020-5-8 13:36
+
+
+
+
+姨算什么，已婚人妻该香还是香<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 22218#       发表于 2020-5-8 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47340592&amp;ptid=1924531" target="_blank">colodes 发表于 2020-5-8 09:39</a>
+APEX段位
+
+
+5/8日AM2:00更新　ホロとにじのAPEXランク</blockquote>
+前十三打七，前二十六打十四，考虑到人口比感觉apex上彩虹的游戏力并没有那么恐怖的统治力
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 22219#       发表于 2020-5-8 13:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">补充：erer姐
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22220#       发表于 2020-5-8 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343300&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-8 13:21</a>
+
+勤劳刻苦辉夜月 能说会道未来明？</blockquote>
+说是当初勤奋时候，一个人干了团队几个人活。但是被社长阴了就开始摸鱼了，钱倒是一直没短她的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22221#       发表于 2020-5-8 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343442&amp;ptid=1924531" target="_blank">tiro_finale 发表于 2020-05-08 13:34:48</a>
+姨文化是坏文化，不如换成姐文化，阿姨控很少，姐控不算少
+
+PTR姐，凛姐，多么美好 ...</blockquote>姐有参考系，你30了就没法喊部分人姐了，但不管你多少岁改姨的还是姨
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22222#       发表于 2020-5-8 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343492&amp;ptid=1924531" target="_blank">yinoh 发表于 2020-5-8 13:38</a>
+
+说是当初勤奋时候，一个人干了团队几个人活。但是被社长阴了就开始摸鱼了，钱倒是一直没短她的 ...</blockquote>
+被阴了啥？
+
+早期她不是说有个一号二号和她一起弄的吗
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22223#       发表于 2020-5-8 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343519&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-8 13:40</a>
+
+被阴了啥？
+
+早期她不是说有个一号二号和她一起弄的吗</blockquote>
+看阿裁说的大概是社长擅自做主权益让给了某合作大企业啥的，时间太久了也就记得这么点了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22224#       发表于 2020-5-8 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343508&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-8 13:39</a>
+
+姐有参考系，你30了就没法喊部分人姐了，但不管你多少岁改姨的还是姨
+
+
+  -- 来自 有消息提醒的 Stage1官方  ...</blockquote>
+那还不如全员称呼妇女同志（jk除外）<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22225#       发表于 2020-5-8 13:44
+
+
+
+
+西子凛前辈......虽然年龄是姨，但是这个精力和耐力，真的是根性的化身，让我愿意称她为姐。
+
+姨不只是年龄，更是状态
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 22226#       发表于 2020-5-8 13:44
+
+
+
+
+竞业协议估摸也是有的，只是管得的多管得少管什么就差别大吧。
+
+说到摸鱼月，想到了一点，我觉得p○与他们应该也是有一年的协议，才让她正好干完一年后就完全本号复出双线活动了。阿望也是好像是干了两（3？）年才本号复出双线活动。
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 22227#       发表于 2020-5-8 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342990&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-8 12:56</a>
+
+娱乐圈移籍我不太懂，但是足球俱乐部以前想转会可没有现在那么简单，而且就算现在俱乐部不同意球员 ...</blockquote>
+现在转会不都看球员个人意愿嘛，除非剩余合同时间很长，不然球队不放人的话直接罢训就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然认真地说虽然博斯曼法案伤害到了阿贾克斯等以青训为基础的球队的利益，但还是极大地保障了球员的个人利益，像当年中超30个月的“无合同球员转会限制”那才叫“把球员当奴隶”。。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 22228#       发表于 2020-5-8 13:46
+
+
+
+
+按照二刺螈标准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gekzrrkh3eg206o04gx5c.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22229#       发表于 2020-5-8 13:46
+
+
+
+
+等了半天小天使把待机间改到三点了，现在午睡还来得及吗。
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 22230#       发表于 2020-5-8 13:48
+
+
+
+
+妇女咋了？那谁不是说过，妇女能顶半边天
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 22231#       发表于 2020-5-8 13:52
+
+
+
+
+足球和管人还是有点区别的，青训队员合同和职业队合同一般是有区别的，不然怎么会有挖青训的说法。
+
+—— 来自 Xiaomi Redmi Note 7 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 22232#       发表于 2020-5-8 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342432&amp;ptid=1924531" target="_blank">weiweiEX 发表于 2020-5-8 12:13</a>
+
+可以监督小博鱼同志多多rp正常人，巨魔多了不知道什么时候就可以来个一换一了
+
+
+一个人头换一个人头，挺公 ...</blockquote>
+虽然你版以前口口声声号称说举报没用，但现在看来就是要烦死那些版主他们才肯杀人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 22233#       发表于 2020-5-8 13:55
+
+
+
+
+阿夸apex单排要上钻了 水平如何
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22234#       发表于 2020-5-8 13:57
+
+
+
+
+水平排杏第一无问题
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 22235#       发表于 2020-5-8 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343666&amp;ptid=1924531" target="_blank">gearbox 发表于 2020-5-8 13:52</a>
+
+足球和管人还是有点区别的，青训队员合同和职业队合同一般是有区别的，不然怎么会有挖青训的说法。
+
+
+——  ...</blockquote>
+职业球员也有很多挖角的啊，近年来为了转会罢训的球员少嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更不用说当年还有什么佛罗伦蒂诺利用皇马主席改选把菲戈从巴萨挖来的经典操作
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22236#       发表于 2020-5-8 13:58
+
+
+
+<blockquote>百鬼あやめ 😈ホロライブ2期生
+
+@nakiriayame
+
+
+明日と明後日は放送がある余！！！
+
+月曜日からまたスケジュール作り始めるからよろしく頼もう🙏🙏
+
+
+4月のメンバーシップ特典も今作っておるから近々上げられる予定！遅くなってすまん😞💦</blockquote>
+
+[https://twitter.com/nakiriayame/status/1258632937982947329](https://twitter.com/nakiriayame/status/1258632937982947329)
+
+
+别安排人毕业啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Reimu853  
+##### 22237#       发表于 2020-5-8 14:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭反向指标可以的，一安排毕业就播了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 22238#       发表于 2020-5-8 14:01
+
+
+
+
+不亏是你楼，反向毒奶一直可以的
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 22239#       发表于 2020-5-8 14:01
+
+
+
+
+怎么还有人在安排毕业<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22240#       发表于 2020-5-8 14:01
+
+
+
+
+天天张口闭口姨的，换个词好不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">姑啊婶啊不好吗
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22241#       发表于 2020-5-8 14:02
+
+
+
+
+还有这种反向指标吗，那我偷偷奶一下叶子<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 22242#       发表于 2020-5-8 14:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">温暖大家庭是不会有人毕业的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 22243#       发表于 2020-5-8 14:03
+
+
+
+
+苔婶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22244#       发表于 2020-5-8 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343770&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-8 14:01</a>
+
+天天张口闭口姨的，换个词好不姑啊婶啊不好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这两个更难听啊，黑宝你什么时候变得这么坏的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22245#       发表于 2020-5-8 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343796&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-8 14:04</a>
+
+我觉得这两个更难听啊，黑宝你什么时候变得这么坏的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 黑宝对女人一直态度都很差的，你才知道？
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22246#       发表于 2020-5-8 14:05
+
+
+
+
+叫姐不是挺好的么，宫姐年纪大点也是姐，台姨年纪小点但是姨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        

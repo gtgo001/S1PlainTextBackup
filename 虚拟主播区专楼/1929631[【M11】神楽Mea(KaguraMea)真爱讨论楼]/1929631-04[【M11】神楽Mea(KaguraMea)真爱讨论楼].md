@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 12:11** 
+> ## **本文件最后更新于2020-05-08 14:08** 
 
 
 
@@ -5217,10 +5217,11 @@ mea的杂谈生活段子居多、不能脱离社会，需要出门取材。要�
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| makourisu|-1||
 | 2014720|-1|这波是我没想到的|
 
 
@@ -6186,4 +6187,760 @@ u1s1，这算萌音吗<img src="https://static.saraba1st.com/image/smiley/face20
 
 
 
-                                      
+
+
+-----
+
+####  暗心舞踏  
+##### 4846#       发表于 2020-5-8 12:11
+
+
+
+
+那种搞怪向萌音不就是让人吐槽的，认真憋萌音还是可以的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4847#       发表于 2020-5-8 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">恶，你不是mtr，你是mea，能不能别装了，咩姨
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4848#       发表于 2020-5-8 12:23
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/a4ff660adfc2febe35a58575888ea9f4/IMG_EC0D48F3254E4206518DD954ECB81B0C.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4849#       发表于 2020-5-8 12:28
+
+
+
+
+你麻yygq有一手的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4850#       发表于 2020-5-8 12:29
+
+
+
+
+你麻和兔姨不仲可以安排一下了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4851#       发表于 2020-5-8 12:29
+
+
+
+
+组长这。。。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4852#       发表于 2020-5-8 12:30
+
+
+
+
+组长，你还说你不会麻将<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4853#       发表于 2020-5-8 12:30
+
+
+
+
+这虽然看不懂麻将，但是这点数丢的太多了吧
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4854#       发表于 2020-5-8 12:31
+
+
+
+
+混一色三面听不敌七对清一色。mea被炸庄，太惨了……
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4855#       发表于 2020-5-8 12:31
+
+
+
+
+兔姨明显不是新手啊，没打过雀魂而已吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4856#       发表于 2020-5-8 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是刚玩一周的实力吗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4857#       发表于 2020-5-8 12:32
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-5-8 12:44 编辑 
+
+大家也来玩雀魂吧，一周你也能变成这样。mea太喜欢拆雀头了……
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4858#       发表于 2020-5-8 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342678&amp;ptid=1929631" target="_blank">古战场亡魂 发表于 2020-5-8 12:32</a>
+大家也来玩雀魂吧，一周你也能变成这样。mea太喜欢拆雀头了……</blockquote>
+草
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 4859#       发表于 2020-5-8 12:48
+
+
+
+
+适合低血压人士观看
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4860#       发表于 2020-5-8 12:48
+
+
+
+
+这三色也太抽象了。。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4861#       发表于 2020-5-8 12:49
+
+
+
+
+组长今天运气太好了吧。。。
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4862#       发表于 2020-5-8 12:51
+
+
+
+ 本帖最后由 age45 于 2020-5-8 12:53 编辑 
+
+这牌不转混一也太稳健了吧
+
+<img src="https://img.saraba1st.com/forum/202005/08/125243vx39pnmzmpu7dlym.png" referrerpolicy="no-referrer">
+
+
+<strong>sp200508_125220.png</strong> (258.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 12:52 上传
+
+
+
+
+
+
+
+稳健稳死了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4863#       发表于 2020-5-8 12:53
+
+
+
+
+同接快2000了怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说完就开始掉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4864#       发表于 2020-5-8 12:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+给我看傻了，血压不行了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4865#       发表于 2020-5-8 12:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">幸亏看不懂
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4866#       发表于 2020-5-8 12:59
+
+
+
+ 本帖最后由 zaozaoxx 于 2020-5-8 13:01 编辑 
+
+草，你们搞得我现在听兔鞠声眼前就浮现出狐皇的皮
+
+狐皇是不是男人啊，为什么能这么像，明明以前从没感觉的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4867#       发表于 2020-5-8 13:01
+
+
+
+
+大部分时间担当吐槽役，偶尔yygq，是有点像
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4868#       发表于 2020-5-8 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342912&amp;ptid=1929631" target="_blank">age45 发表于 2020-5-8 12:51</a>
+
+这牌不转混一也太稳健了吧</blockquote>
+打的没啥问题，1饼如果其他人不立直的话，迟早被打出来。4番庄家也够了，没必要贪。
+
+就是发牌姬不给面子。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4869#       发表于 2020-5-8 13:02
+
+
+
+
+把大伙都给整乐了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 4870#       发表于 2020-5-8 13:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47343038&amp;ptid=1929631" target="_blank">zaozaoxx 发表于 2020-05-08 12:59:53</a>
+草，你们搞得我现在听兔鞠声眼前就浮现出狐皇的皮
+
+狐皇是不是男人啊，为什么能这么像，明明以前从没感觉 ...</blockquote>那明明是兔鞠离谱
+
+因果关系搞反了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4871#       发表于 2020-5-8 13:03
+
+
+
+
+笑死我了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4872#       发表于 2020-5-8 13:03
+
+
+
+
+组长好狠。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4873#       发表于 2020-5-8 13:03
+
+
+
+
+麻将，塔诺西！
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4874#       发表于 2020-5-8 13:04
+
+
+
+
+哪的口音
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4875#       发表于 2020-5-8 13:06
+
+
+
+
+打的是挺精彩的，但是组长友人场还玩默听，没朋友是有原因。
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 4876#       发表于 2020-5-8 13:08
+
+
+
+
+这什么打法，真就打着打着就自摸了呗
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4877#       发表于 2020-5-8 13:09
+
+
+
+
+对不起，是我不会打麻将了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4878#       发表于 2020-5-8 13:14
+
+
+
+
+怎么就发展的这么快
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4879#       发表于 2020-5-8 13:16
+
+
+
+
+看mea打麻将一股动画味。。刚才是想试图抢杠么。。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 4880#       发表于 2020-5-8 13:20
+
+
+
+
+这麻将机没洗干净啊
+
+mea一巡
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/131950y7erub22k2zujr2y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20200508131929733.jpg</strong> (42.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 13:19 上传
+
+
+
+
+
+舞元二巡
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/131956oykt03v3j3kwr66d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20200508131934182.jpg</strong> (45.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 13:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4881#       发表于 2020-5-8 13:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">兔姨又在拱火了
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 4882#       发表于 2020-5-8 13:39
+
+
+
+
+满脸都是开心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 4883#       发表于 2020-5-8 13:42
+
+
+
+
+铁分奴。
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 4884#       发表于 2020-5-8 13:42
+
+
+
+
+这次联动效果挺好，果然是苔姨不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4885#       发表于 2020-5-8 13:44
+
+
+
+
+兔妈妈是神，以后不许你们再黑兔妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 4886#       发表于 2020-5-8 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双兔傍着走真的是完美的联动状态
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4887#       发表于 2020-5-8 13:56
+
+
+
+
+砍梁木
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 4888#       发表于 2020-5-8 14:07
+
+
+
+
+所以什么时候审判苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                     
