@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 16:06** 
+> ## **本文件最后更新于2020-05-08 18:06** 
 
 
 
@@ -9792,7 +9792,7 @@ holo要真想再国际化一点，这点还是要注意下比较好。
 
 
 azulim中之人这是准备当个人势？
-<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_Uhhf0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/1c4e87041b4d2082618e71263b24a3cc/IMG_20200507_170210.JPG" id="aimg_Om3oW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16644,7 +16644,7 @@ syl 粽子新图去ins找啊
 
 
 
-可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_KFekx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+可爱，喜欢<img src="https://pbs.twimg.com/media/EXVnPktUwAA1_jT?format=jpg&amp;name=4096x4096" id="aimg_F8b8s" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/428clv/status/1258025228875096066](https://twitter.com/428clv/status/1258025228875096066)
 
@@ -18129,7 +18129,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 查了一下，这游戏不是看两小时直播就能拿到内测资格吗
-<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_abRmN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/431e704d7790cbe24506afab8d166296/IMG_20200508_001816.JPG" id="aimg_yq6dB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18450,7 +18450,7 @@ syl，小天使好像在青鬼那次直播里提到买了（或者要买）ps4�
 
 
 表情，喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_pV44v" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EWZ6h_3U8AEQUmu?format=jpg&amp;name=large" height="1289" id="aimg_K9Cz7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 [https://twitter.com/1RBOX_CCC/status/1253824569250508801](https://twitter.com/1RBOX_CCC/status/1253824569250508801)
@@ -26913,4 +26913,1331 @@ otk还行
 
 
 
-   
+
+
+-----
+
+####  forzen  
+##### 22397#       发表于 2020-5-8 16:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我记得mio台的七日杀有一幕是坦胸露乳的。。虽然是女丧尸的，但不知道会不会算进去
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22398#       发表于 2020-5-8 16:06
+
+
+
+
+以前是mugen系怎么搞都没人管，后来就全都被扬了，现在是R18露太多MMD容易被扬，曾经的404，也是自由的乐土啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22399#       发表于 2020-5-8 16:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">噗酱的asmr明明很健康啊，该不会是因为皮的关系吧。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22400#       发表于 2020-5-8 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你们该担心的是釜山如果在第二频道播了，推流IP相同，再被封就完蛋了，
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22401#       发表于 2020-5-8 16:16
+
+
+
+
+视频网站草台期都是乐土，niconico过去还直接放海盗电影呢
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 22402#       发表于 2020-5-8 16:16
+
+
+
+
+粉丝数不知道什么时候能养回来，太可惜了，真的太可惜了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22403#       发表于 2020-5-8 16:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那怎么办，永远不能开直播了？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22404#       发表于 2020-5-8 16:21
+
+
+
+
+跟龙酱那次不一样吧，具体还要看404的条款和心情。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22405#       发表于 2020-5-8 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345408&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-8 16:01</a>
+
+我提ASMR主要是想起来之前小熊猫和404拉锯战开ASMR直播的事</blockquote>
+就这个
+
+之前有人提到说那次ASMR疯狂抽直播间有可能是有影响的
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 22406#       发表于 2020-5-8 16:22
+
+
+
+
+哪来这种一个频道被ban就彻底不能直播的事情，被ban过频道之后开新频道继续干的Youtuber多了去了。龙皇那种是“违反规约被警告期间不能直播”。
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 22407#       发表于 2020-5-8 16:22
+
+
+
+ 本帖最后由 age45 于 2020-5-8 16:23 编辑 
+
+正规起来把自己嗷的一下玩死的最好的例子就是布卡那样的了
+
+睿国虽然草台但总不会蠢到这种地步吧，不过不能指望睿国的智商就是了，
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22408#       发表于 2020-5-8 16:22
+
+
+
+
+不可能是ASMR吧，噗酱那个清楚到可以上P站播了。
+
+对了，要不上P站吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22409#       发表于 2020-5-8 16:22
+
+
+
+
+细扣条款申诉啊，vtb运营不就该干这个
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22410#       发表于 2020-5-8 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345605&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 16:16</a>
+
+你们该担心的是釜山如果在第二频道播了，推流IP相同，再被封就完蛋了， ...</blockquote>
+ip定位没关系，换个网就行了
+
+怕的是审核AI会记住脸，id甚至声音
+
+那就只能改名了……
+
+但愿谷歌的AI没用ReID，或者识别不出来纸片人…………
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22411#       发表于 2020-5-8 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">粉丝其实还好，我个人认为就是要舍弃初始皮肤，声线也尽量改一改，只要不被404判定为同一人就还好，
+
+
+最应该担心的是如果她之前粉丝打的sc和会员怎么办，gachi开的12个月会员说没就没了，而且这些钱她也拿不到，那她基本处于无收入状态，很危险
+
+
+就算新频道再开收益化、会员、sc，在有可能再次封杀的为线下，谁还会去加会员、打sc？
+
+
+总之她的状态很不妙，非常不妙，
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22412#       发表于 2020-5-8 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345716&amp;ptid=1924531" target="_blank">age45 发表于 2020-5-8 16:22</a>
+
+正规起来把自己嗷的一下玩死的最好的例子就是布卡那样的了
+
+睿国虽然草台但总不会蠢到这种地步吧，不过不能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">布卡真的作死，不知道b漫会不会走上同样的道路
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 22413#       发表于 2020-5-8 16:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2000 nijiark时反复骂puti白眼狼，现在又关心puti快到杞忧民的地步了，人设变化太大，不习惯
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 22414#       发表于 2020-5-8 16:28
+
+
+
+
+虹杏这些2d立绘不错的一搞3d拉胯的厉害，我以前对3d模型的标准太高了吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 22415#       发表于 2020-5-8 16:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">葵皇好姐妹这么惨2000你还一幅看戏模样，替葵皇不值。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22416#       发表于 2020-5-8 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345792&amp;ptid=1924531" target="_blank">winda 发表于 2020-5-8 16:27</a>
+
+2000 nijiark时反复骂puti白眼狼，现在又关心puti快到杞忧民的地步了，人设变化太大，不习惯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer"> 游戏而已，真涉及到这种严重问题，客观还是要客观的
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22417#       发表于 2020-5-8 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345802&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-8 16:28</a>
+
+虹杏这些2d立绘不错的一搞3d拉胯的厉害，我以前对3d模型的标准太高了吗 ...</blockquote>
+虹的3d硬要“锻炼人才”，所以自己做，杏的不是不错嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22418#       发表于 2020-5-8 16:31
+
+
+
+
+404会员不是每月自动扣费吗？而且噗酱会费好像是最低那一档，粉丝损失也没这么大吧.....
+
+现在只能寄希望于ickr了，拜托靠谱点吧
+
+
+
+
+
+
+
+-----
+
+####  月光润色  
+##### 22419#       发表于 2020-5-8 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345751&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 16:25</a>
+
+粉丝其实还好，我个人认为就是要舍弃初始皮肤，声线也尽量改一改，只要不被404判定为同一人就还好， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这些钱直接被**没收？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22420#       发表于 2020-5-8 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345843&amp;ptid=1924531" target="_blank">月光润色 发表于 2020-5-8 16:31</a>
+
+这些钱直接被**没收？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">在404眼里，这些钱可以当成是依靠违规内容收取的，条款我没仔细看，应该是没收
+
+
+粉丝、订阅什么的和葵皇、葛叶联动几次就回来了，
+
+
+金主可是可遇不可求阿，失去一个就是一个
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22421#       发表于 2020-5-8 16:35
+
+
+
+
+插播一条出口转内销
+
+梅露组发了一个动态：『还有5天（就要2出道2周年了）』
+
+5ch脑残理解：『还有5天（字幕组就要解散了）』
+
+<img src="https://img.saraba1st.com/forum/202005/08/163414uv0kn9vjjii9800q.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200508163307.png</strong> (87.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 16:34 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/163415h1xxw1llzx1bdqu0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200508163155.png</strong> (23.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-8 16:34 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rosefinch| + 1|太聪明了|
+| 某穆克拉| + 1|好活|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22422#       发表于 2020-5-8 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345809&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-8 16:28</a>
+
+葵皇好姐妹这么惨2000你还一幅看戏模样，替葵皇不值。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer"> 别闹，釜山出事之后我一直都在关注好吧，
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 22423#       发表于 2020-5-8 16:38
+
+
+
+
+想想兔头玩gta5的时候也说要去脱衣舞厅，可能当时离炸号也就一步之遥吧。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 22424#       发表于 2020-5-8 16:39
+
+
+
+
+2周年怎么也会播一次吧？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22425#       发表于 2020-5-8 16:40
+
+
+
+
+2周年重大发表×
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22426#       发表于 2020-5-8 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345927&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-8 16:38</a>
+
+想想兔头玩gta5的时候也说要去脱衣舞厅，可能当时离炸号也就一步之遥吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她要是炸了，日本人肯定能把404喷到推特世界趋势第一，可能就好解决了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 22427#       发表于 2020-5-8 16:41
+
+
+
+
+话说这难道是理解成，已经79天了，还有5天你不播我们就要解散了（威胁）吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  艾特娜  
+##### 22428#       发表于 2020-5-8 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">404不会因为新号的IP、声音、相貌跟被封禁的旧号一样就再封的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22429#       发表于 2020-5-8 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345976&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-8 16:41</a>
+
+话说这难道是理解成，已经79天了，还有5天你不播我们就要解散了（威胁）吗？ ...</blockquote>
+45天没干活就该解散了，他们自己说的233
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22430#       发表于 2020-5-8 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345989&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-8 16:42</a>
+
+45天没干活就该解散了，他们自己说的233</blockquote>
+解散再就地重组么
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 22431#       发表于 2020-5-8 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47344236&amp;ptid=1924531" target="_blank">バーチャルS1er 发表于 2020-5-8 14:36</a>
+不会真有人以为管人会真心关心粉丝的把？</blockquote>
+不是还有mea酱吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">小可爱是真心爱着粉丝的
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 22432#       发表于 2020-5-8 16:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">本来是指组内成员45天不干活就踢出去。现在全组都不干活，那么就把所有组员都踢出去。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22433#       发表于 2020-5-8 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346003&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-8 16:43</a>
+
+解散再就地重组么</blockquote>
+就地转生梅露妈字幕组吧，挺好的。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 22434#       发表于 2020-5-8 16:47
+
+
+
+
+真gachi金主还有booth这个上供渠道，无上限的boost要写几个零都可以<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 22435#       发表于 2020-5-8 16:48
+
+
+
+
+梅露前几天不是还有几个联动吗？搞个联合投稿什么的，还是有活干的吧
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 22436#       发表于 2020-5-8 16:51
+
+
+
+
+注意是“没在自己频道播”。最近跑别人那还是好几次的，硬要说的话烤肉活还是有的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22437#       发表于 2020-5-8 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345976&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-05-08 16:41:58</a>
+话说这难道是理解成，已经79天了，还有5天你不播我们就要解散了（威胁）吗？ ...</blockquote>大概兔组帮5ch打开了对字幕组重新理解的大门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 22438#       发表于 2020-5-8 16:54
+
+
+
+
+说明5ch也开始有字幕组学家了，一言一行都在品<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22439#       发表于 2020-5-8 16:57
+
+
+
+
+s1有狐学，5ch搞个组学怎么了。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 22440#       发表于 2020-5-8 16:58
+
+
+
+
+记得当初裁狗发关于字幕组的黑屁结果被笑话的时候，有人还开玩笑说日本人会不会一看“组”这个字以为这是什么黑道组织<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 22441#       发表于 2020-5-8 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346046&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-8 16:47</a>
+
+真gachi金主还有booth这个上供渠道，无上限的boost要写几个零都可以</blockquote>
+booth最高10w
+
+我视奸我的有钱情敌ぱんくん的时候见他打过
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 22442#       发表于 2020-5-8 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346176&amp;ptid=1924531" target="_blank">某穆克拉 发表于 2020-5-8 16:57</a>
+
+s1有狐学，5ch搞个组学怎么了。</blockquote>
+现在已经进入研究管人附属产物的时代了吗<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22443#       发表于 2020-5-8 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346203&amp;ptid=1924531" target="_blank">Zaphikel 发表于 2020-05-08 16:59:51</a>
+现在已经进入研究管人附属产物的时代了吗</blockquote>字幕组在中国管人生态里重要性高过运营，小部分甚至高过了V，还不配被研究研究吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 22444#       发表于 2020-5-8 17:03
+
+
+
+
+梅露组前天才联合投稿了的，哪能说解散就解散了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 22445#       发表于 2020-5-8 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346236&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-8 17:02</a>
+
+字幕组在中国管人生态里重要性高过运营，小部分甚至高过了V，还不配被研究研究吗
+
+
+  -- 来自 能搜索 ...</blockquote>
+holo的字幕组不配被研究
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22446#       发表于 2020-5-8 17:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 德龙组哪怕学到德龙本人的一丁点风度，也不会被人骂成这样了，
+
+
+当然了，首要功臣——空派白哥哥全责
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 22447#       发表于 2020-5-8 17:06
+
+
+
+[https://weibo.com/5955106173/J0YrLytN9](https://weibo.com/5955106173/J0YrLytN9)
+
+转发你坛微博，图爱讨论就不放了
+
+先从字幕组的宅左属性开始研究起来吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 22448#       发表于 2020-5-8 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346251&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-05-08 17:03:20</a>
+holo的字幕组不配被研究</blockquote>芙宝对字幕组的恨意事到如今我终于理解了。投票罢工＋b博逼宫＋自己带V节奏＋拱火，我以后也有机会顺劈就顺劈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 22449#       发表于 2020-5-8 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346265&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-8 17:04</a>
+
+德龙组哪怕学到德龙本人的一丁点风度，也不会被人骂成这样了，
+
+
+当然了，首要功臣——空派白哥哥全 ...</blockquote>
+我觉得空派白基本是个vtb本子汉化都有他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，怕不是个立派的肉体厨（黑屁
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22450#       发表于 2020-5-8 17:15
+
+
+
+
+去看了一眼，心心下午播的虾泥可乐因为版权问题被ban了，迷惑。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 22451#       发表于 2020-5-8 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346395&amp;ptid=1924531" target="_blank">嵐ステリ 发表于 2020-5-8 17:14</a>
+
+我觉得空派白基本是个vtb本子汉化都有他，怕不是个立派的肉体厨（黑屁 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer"> 和阿叶一样，老色坯了
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 22452#       发表于 2020-5-8 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47344583&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-5-8 15:02</a>
+直接拉一批国V再叫上几个经常来B限的日V(爱丽丝等)搞个真人秀节目produce404，最后选出一批V组成YHM*ONE ...</blockquote>
+太歹毒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+建议防备一下带头的虚报年龄，并且给士大夫足够的封口费<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 22453#       发表于 2020-5-8 17:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">404推送了才发现原来太紫去过杉田智和的广播
+
+アニゲラ！ディドゥーーン!!! #381 杉田智和 ゲスト,紫咲シオン（2020年01月16日）
+[https://youtu.be/4oJPoeJyZoA](https://youtu.be/4oJPoeJyZoA)
+
+アニゲラ！ディドゥーーン!!! #382 杉田智和 ゲスト,紫咲シオン（2020年01月23日）
+[https://www.youtube.com/watch?v=yIvhw1H8Ro8&amp;feature=youtu.be](https://www.youtube.com/watch?v=yIvhw1H8Ro8&amp;feature=youtu.be)
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 22454#       发表于 2020-5-8 17:33
+
+
+
+
+那两次紫宝怂的一笔，突出一个诚惶诚恐，不过她能来参加就很有勇气了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 22455#       发表于 2020-5-8 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346395&amp;ptid=1924531" target="_blank">嵐ステリ 发表于 2020-5-8 17:14</a>
+我觉得空派白基本是个vtb本子汉化都有他，怕不是个立派的肉体厨（黑屁 ...</blockquote>
+这叫立派皮性恋
+
+立派肉体厨会去翻kmm和德龙的本子吗？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22456#       发表于 2020-5-8 17:47
+
+
+
+
+大家如果很闲可以看看郡道打麻将，或者帮月之刷下播放。总比讨论坛友xp好<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+月之.png
+(263.76 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-8 17:45 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/08/174551colb5aomma3czmc2.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  物流大亨常凯申  
+##### 22457#       发表于 2020-5-8 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47344583&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-05-08 15:02:19</a>
+直接拉一批国V再叫上几个经常来B限的日V(爱丽丝等)搞个真人秀节目produce404，最后选出一批V组成YHM*ONE ...</blockquote>矮子王都要解散了，就别用这名字了，不吉利（确信）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 22458#       发表于 2020-5-8 17:50
+
+
+
+
+都在看阿葵p限
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 22459#       发表于 2020-5-8 17:51
+
+
+
+
+只有2000不在看
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 22460#       发表于 2020-5-8 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346691&amp;ptid=1924531" target="_blank">シナモンロール 发表于 2020-5-8 17:35</a>
+
+这叫立派皮性恋
+
+
+立派肉体厨会去翻kmm和德龙的本子吗？</blockquote>
+我怎么印象中德龙肉体还算可以的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fjm  
+##### 22461#       发表于 2020-5-8 17:55
+
+
+
+
+德龙不是偏坦吗，难道我看的是挖歪了的？
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 22462#       发表于 2020-5-8 17:56
+
+
+
+
+葵皇这b限是不是有点太惨了，感觉人好少<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 22463#       发表于 2020-5-8 17:58
+
+
+
+
+都是2000的错（大误
+
+
+好吧正经的讲谁会在工作日下午5点看直播啊，尤其现在好多地方已经复课了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 22464#       发表于 2020-5-8 17:59
+
+
+
+
+德龙没实锤的，现在大部分比较认同的是关西小号手那张图，但那个也不坦啊，顶多是壮，就是那种有在锻炼的健康身材
+
+
+
+
+
+
+
+-----
+
+####  伊迪潘喵森  
+##### 22465#       发表于 2020-5-8 17:59
+
+
+
+
+铲楼的德龙是那张演奏的图吧，坦吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 22466#       发表于 2020-5-8 18:01
+
+
+
+
+十分钟互动200+人，累计互动900+。
+
+是有点惨。
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 22467#       发表于 2020-5-8 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47346178&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-8 16:58</a>
+
+记得当初裁狗发关于字幕组的黑屁结果被笑话的时候，有人还开玩笑说日本人会不会一看“组”这个字以为这是什 ...</blockquote>
+草 真成极道组织了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+仔细一想之前兔组真的有那味··
+
+
+
+
+
+ 

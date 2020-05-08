@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 16:08** 
+> ## **本文件最后更新于2020-05-08 18:09** 
 
 
 
@@ -7781,4 +7781,873 @@ syl，tc突击
 
 
 
-                                   
+
+
+-----
+
+####  甘栗No.007  
+##### 4938#       发表于 2020-5-8 16:13
+
+
+
+
+把miu叫起来打osu<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4939#       发表于 2020-5-8 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">卧槽miu连麦了，meamiu民！复！活！
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4940#       发表于 2020-5-8 16:15
+
+
+
+
+啊， 是miu啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4941#       发表于 2020-5-8 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 4942#       发表于 2020-5-8 16:18
+
+
+
+
+回来了，都回来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4943#       发表于 2020-5-8 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ark
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4944#       发表于 2020-5-8 16:25
+
+
+
+
+好啊，好啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4945#       发表于 2020-5-8 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">这俩人如果说话声音都低一点 还是挺像的
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 4946#       发表于 2020-5-8 16:26
+
+
+
+<blockquote>暗心舞踏 发表于 2020-5-8 16:18
+ark</blockquote>
+大小姐私下居然也在玩ark，我记得咩姐说和绿仙玩过就没继续了。。。这个游戏这么好玩吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4947#       发表于 2020-5-8 16:27
+
+
+
+
+阿良良木火玲（mea）
+阿良良木月火（miu）
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4948#       发表于 2020-5-8 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47345767&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-8 16:26</a>
+
+大小姐私下居然也在玩ark，我记得咩姐说和绿仙玩过就没继续了。。。这个游戏这么好玩吗 ...</blockquote>
+欣赏不来，按miu说的有人一起玩会好玩吧大概
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 4949#       发表于 2020-5-8 16:30
+
+
+
+
+fire sisters（指被炎上）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4950#       发表于 2020-5-8 16:32
+
+
+
+
+要变miu嘎骑了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4951#       发表于 2020-5-8 16:38
+
+
+
+
+谢谢你，大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4952#       发表于 2020-5-8 16:41
+
+
+
+
+气氛太好了吧，有多久没看到这样的联动了，这就是t0亲属的实力吗，对比一下高下立判
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4953#       发表于 2020-5-8 16:43
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-8 16:45 编辑 
+
+啊， 拜拜麻酱， 转推大小姐了
+
+终于想起来了，
+
+我真正喜欢的人
+
+啊!
+
+绕了好远的路啊!
+
+为什么， 为什么没有早一点察觉到呢
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4954#       发表于 2020-5-8 16:44
+
+
+
+ 本帖最后由 以一持万 于 2020-5-8 16:46 编辑 
+
+我也想要一个这样的亲友一起吹逼<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+想玩就电话拉起来，游戏水平差不多能玩到一起去
+
+然而仔细想了想还是不太可能，已经不是那个年纪了
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 4955#       发表于 2020-5-8 16:45
+
+
+
+
+眼中有金果，看啥都像金果<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4956#       发表于 2020-5-8 16:48
+
+
+
+
+因为那个确实像啊（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4957#       发表于 2020-5-8 16:51
+
+
+
+
+太弱智了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuyuyui  
+##### 4958#       发表于 2020-5-8 16:52
+
+。。。
+
+
+
+。。。
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4959#       发表于 2020-5-8 16:55
+
+
+
+
+啊啊啊啊午睡错过了好多连麦
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4960#       发表于 2020-5-8 16:57
+
+
+
+
+被吊打了
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4961#       发表于 2020-5-8 16:58
+
+
+
+
+我错了，并不是水平差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而是，大小姐，你好温柔
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4962#       发表于 2020-5-8 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这完全打不过啊
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4963#       发表于 2020-5-8 17:00
+
+
+
+
+现场下单买个板子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 4964#       发表于 2020-5-8 17:01
+
+
+
+
+缪姨最强，缪姨最强<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4965#       发表于 2020-5-8 17:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么又缪姨了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4966#       发表于 2020-5-8 17:05
+
+
+
+
+我bug了
+我网不好
+手抖了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4967#       发表于 2020-5-8 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是输不起
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 4968#       发表于 2020-5-8 17:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我想起来了，大小姐给我感觉就像女朋友一样
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 4969#       发表于 2020-5-8 17:10
+
+
+
+
+看把孩子急的，为什么就是赢不了呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4970#       发表于 2020-5-8 17:11
+
+
+
+
+麻酱是小屁孩，
+
+大小姐才是恋爱对象<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 4971#       发表于 2020-5-8 17:12
+
+
+
+
+大小姐太暖了。这两人互动好自然啊
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 4972#       发表于 2020-5-8 17:13
+
+
+
+
+可惜啊可惜，tc不能转，不然的话这一波效果不是吊打？（摇头
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4973#       发表于 2020-5-8 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是亲姐妹
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4974#       发表于 2020-5-8 17:18
+
+
+
+
+麻像个笨蛋一样
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 4975#       发表于 2020-5-8 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">急哭了急哭了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4976#       发表于 2020-5-8 17:20
+
+
+
+
+缪给我打爆她！
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 4977#       发表于 2020-5-8 17:20
+
+
+
+
+大小姐这熟练的方式，估计也是资深mea虐爱好者（找到同好的笑容
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4978#       发表于 2020-5-8 17:20
+
+
+
+
+幼儿化了幼儿化了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 4979#       发表于 2020-5-8 17:21
+
+
+
+
+草 这次还截图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 是不是输不起啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 4980#       发表于 2020-5-8 17:32
+
+
+
+
+挂discord，是不是输不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 4981#       发表于 2020-5-8 17:32
+
+
+
+
+还是自然的好啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4982#       发表于 2020-5-8 17:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 4983#       发表于 2020-5-8 17:35
+
+
+
+
+女朋友欺负女儿的感觉，真好啊
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 4984#       发表于 2020-5-8 17:35
+
+
+
+
+女朋友欺负女儿还行,miu后妈说？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4985#       发表于 2020-5-8 17:40
+
+
+
+
+ごめんね
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 4986#       发表于 2020-5-8 17:42
+
+
+
+
+幼教直播爱了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4987#       发表于 2020-5-8 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">缪妈妈？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 4988#       发表于 2020-5-8 17:58
+
+
+
+
+miu妈带孩子有一手的
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 4989#       发表于 2020-5-8 18:00
+
+
+
+
+我好了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4990#       发表于 2020-5-8 18:00
+
+
+
+
+好好看，好好学
+
+
+
+
+
+                                 
