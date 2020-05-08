@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 22:07** 
+> ## **本文件最后更新于2020-05-09 00:08** 
 
 
 
@@ -9583,4 +9583,607 @@ thereisnospoon
 
 
 
-                               
+
+
+-----
+
+####  离心  
+##### 5047#       发表于 2020-5-8 22:08
+
+
+
+
+这个称号早该换了，rz的一批。屁用都没有，还经常惹得一身骚，当年巫妖王的景象还历历在目
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5048#       发表于 2020-5-8 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">这无所谓，本来就拉胯，再说就车轱辘
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5049#       发表于 2020-5-8 22:10
+
+
+
+
+确实，当时看的时候尴尬的一批(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5050#       发表于 2020-5-8 22:11
+
+
+
+ 本帖最后由 2014720 于 2020-5-8 22:13 编辑 
+
+过去某些东西那是洗不掉了，看未来了
+
+说来这圈联动下来你们觉得效果咋样，虹杏都蹭了，涨粉这段时间也明显快了，还有同接也不错
+是波回暖？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5051#       发表于 2020-5-8 22:14
+
+
+
+
+蹭蹭好，到处蹭蹭(눈_눈)。好起来。
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 5052#       发表于 2020-5-8 22:15
+
+
+
+
+就算是彩虹yyr也不会拿mea贪财来黑mea啊，一个每月T台直播=B限+自己**直播的人，有个锤子收入可言
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5053#       发表于 2020-5-8 22:15
+
+
+
+
+趁着这波再吸点血<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5054#       发表于 2020-5-8 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">战什么战，你咩姐现在出不了门，杂谈全在联动和tc里，几个梗还全是车轱辘，404疯狂歌回，15w纪念直播倒是不错，谈的东西都很有意思，是准备过了。希望直播能早日步入正轨吧
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 5055#       发表于 2020-5-8 22:19
+
+
+
+
+贪财是人设，说的其实没啥错。
+
+帽子带着就带着呗。法国落魄女王好歹还有联统西班牙的头衔，自己小日子也滋润能过
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 5056#       发表于 2020-5-8 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得好像有谁直播是不爱钱那样 贼弱智了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5057#       发表于 2020-5-8 22:52
+
+
+
+
+Mea 字幕组是不是人都走光了？视频发的越来越少我还不如关注海盗组呢
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5058#       发表于 2020-5-8 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350294&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-8 22:52</a>
+Mea 字幕组是不是人都走光了？视频发的越来越少我还不如关注海盗组呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">施主请移步
+https://bbs.saraba1st.com/2b/thread-1932768-6-1.html
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5059#       发表于 2020-5-8 22:56
+
+
+
+
+黄金周播的也不少，你要说贴贴优先连六字母联动都没出完。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5060#       发表于 2020-5-8 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350343&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-8 22:56</a>
+黄金周播的也不少，你要说贴贴优先连六字母联动都没出完。</blockquote>
+你在V综也在那字幕组M楼也字幕组，这么喜欢聊字幕组不是给你建了楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 5061#       发表于 2020-5-8 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350343&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-8 22:56</a>
+黄金周播的也不少，你要说贴贴优先连六字母联动都没出完。</blockquote>
+同好会的周报总结很齐全了，再用tag搜一搜，基本都有了。官组就当个转播工具人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没必要讨论了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5062#       发表于 2020-5-8 23:02
+
+
+
+
+去隔壁啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，建议自己发光发热
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5063#       发表于 2020-5-8 23:03
+
+
+
+
+同好会最强！同好会最强！同好会最强！
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 5064#       发表于 2020-5-8 23:05
+
+
+
+
+請問TwitCasting的錄像如何看?
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 5065#       发表于 2020-5-8 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350434&amp;ptid=1929631" target="_blank">病態極端 发表于 2020-5-8 23:05</a>
+
+請問TwitCasting的錄像如何看?</blockquote>
+没留档看不了，你需要自己找录播机
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5066#       发表于 2020-5-8 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350294&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-8 22:52</a>
+
+Mea 字幕组是不是人都走光了？视频发的越来越少我还不如关注海盗组呢</blockquote>
+居然敢攻击字幕组，龙魂酱要来出警你了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 5067#       发表于 2020-5-8 23:08
+
+
+
+
+今天还看着同好会说要烤tc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5068#       发表于 2020-5-8 23:10
+
+
+
+
+发光发热是估计不行，年初就脱粉了，我看管人关众的时间比管人长。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5069#       发表于 2020-5-8 23:11
+
+
+
+<blockquote>framita 发表于 2020-5-8 22:59
+你在V综也在那字幕组M楼也字幕组，这么喜欢聊字幕组不是给你建了楼吗 ...</blockquote>
+人少讨论不起来吗
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5070#       发表于 2020-5-8 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350434&amp;ptid=1929631" target="_blank">病態極端 发表于 2020-5-8 23:05</a>
+請問TwitCasting的錄像如何看?</blockquote>
+官号录像不知道啥事候能上传，nga有录播机，想看自己下吧
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5071#       发表于 2020-5-8 23:13
+
+
+
+<blockquote>yuandi0120 发表于 2020-5-8 23:08
+居然敢攻击字幕组，龙魂酱要来出警你了</blockquote>
+我怂了，字幕组万岁，海盗组万岁。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5072#       发表于 2020-5-8 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">建了楼还不能满足，我怀疑是有漏出癖
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 5073#       发表于 2020-5-8 23:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兔妈妈下次麻将安排上了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5074#       发表于 2020-5-8 23:19
+
+
+
+
+还有兔鞠？兔鞠我来啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5075#       发表于 2020-5-8 23:21
+
+
+
+
+黄兔子最棒了！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5076#       发表于 2020-5-8 23:35
+
+
+
+
+可惜看不懂麻将(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 5077#       发表于 2020-5-8 23:39
+
+
+
+
+unlimited和蜘蛛丝是两个人？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5078#       发表于 2020-5-8 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350855&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-5-8 23:39</a>
+
+unlimited和蜘蛛丝是两个人？
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+共享账号
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5079#       发表于 2020-5-8 23:49
+
+
+
+
+我愿在哪说还要由你管？你是楼主还是版主？ 算了不和喷子浪费论坛资源来了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| physi1202|-1|当众脱粪|
+| 2014720|-1|今日最后一鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5080#       发表于 2020-5-8 23:55
+
+
+
+
+妈的不睡了，赌一把
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 5081#       发表于 2020-5-9 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350940&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-05-08 23:48:30</a>
+共享账号</blockquote>贴贴！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                              
