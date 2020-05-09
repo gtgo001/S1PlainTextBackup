@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-09 12:08** 
+> ## **本文件最后更新于2020-05-09 20:08** 
 
 
 
@@ -10832,13 +10832,853 @@ mea这边粉转黑的还是比较少的，大多都是自以为是粉的臭DD路
 
 
 
+ 本帖最后由 魔法使い2019 于 2020-5-9 12:10 编辑 
 
 啊 是苔姨....
 
 可是， 梁木， 已经， 除不去了....<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+啊 回不去了 萌萌人的我(
 
 
 
 
-                             
+
+
+
+-----
+
+####  weiweiEX  
+##### 5113#       发表于 2020-5-9 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47354090&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-5-9 11:05</a>
+偶像是用来看的，不是用来研究的，mea播什么我看什么，你要去研究那你已经在往云p的路上走了。
+
+—— 来 ...</blockquote>
+原来在你眼中研究偶像就是云p，研究偶像的字幕组和前cp不是云p<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl这回联动不是在mea直播间么
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5114#       发表于 2020-5-9 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47352244&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-9 07:22</a>
+
+佃煮のりお/犬山たまき狗脸蓝心
+
+@norioo_
+
+·</blockquote>
+是什么插件能把emoji文字描述化的，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5115#       发表于 2020-5-9 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355383&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-9 12:50</a>
+是什么插件能把emoji文字描述化的，太草了</blockquote>
+实不相瞒，我是直接复制的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5116#       发表于 2020-5-9 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355383&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-9 12:50</a>
+是什么插件能把emoji文字描述化的，太草了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说了才发现，带有脸的太阳还行
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5117#       发表于 2020-5-9 14:38
+
+
+
+
+狗脸蓝心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5118#       发表于 2020-5-9 17:33
+
+
+
+
+新推，跟苔苔聊天还行
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5119#       发表于 2020-5-9 17:35
+
+
+
+<img src="https://p.sda1.dev/0/0c0f7c1124abf089a5d60983f0c5df86/IMG_A684F31CF99BD91E2B06F5D025B31D72.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5120#       发表于 2020-5-9 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">盲猜一个舞咩拱火
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5121#       发表于 2020-5-9 17:45
+
+
+
+
+世界树准备浇水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5122#       发表于 2020-5-9 17:49
+
+
+
+
+谁开台？还是都开？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5123#       发表于 2020-5-9 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358534&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-9 17:49</a>
+谁开台？还是都开？</blockquote>
+mea这的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5124#       发表于 2020-5-9 17:55
+
+
+
+
+《最近媚宅媚的有点多》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+大漫画家求你了放过我的小麻好吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5125#       发表于 2020-5-9 18:01
+
+
+
+
+说起媚宅，我倒想起有人说，mea麻将联动后发那推，是因为她跟舞元说她拿了一位就要交换line<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后mea被打了个第四
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5126#       发表于 2020-5-9 18:11
+
+
+
+
+只求别再一开播就把舞元立绘摆上来了，苔姨嗯拱真的⑧行
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5127#       发表于 2020-5-9 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358736&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-9 18:11</a>
+只求别再一开播就把舞元立绘摆上来了，苔姨嗯拱真的⑧行
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+u1s1，按之前苔苔说的mea联动前会跟她说有什么话题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说工作就是工作
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 5128#       发表于 2020-5-9 18:15
+
+
+
+
+有舞元就🏃🏃🏃
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5129#       发表于 2020-5-9 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358754&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-05-09 18:13:06</a>
+u1s1，按之前苔苔说的mea联动前会跟她说有什么话题只能说工作就是工作</blockquote>这次是无棉花糖杂谈啊，舞元话题肯定有，就是希望别拱的那么明显，上次兔羊狗杂谈联动硬放个舞元真的都有阴影了，都不想看屏幕。除开这个这次可能会整点新活吧，别是那种吓人的就好
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 5130#       发表于 2020-5-9 18:28
+
+
+
+
+就算是先定好话题拱火程度也是个问题.   昨天麻将黄兔的拱火程度算是和风细雨了,所以观感不差.
+
+苔苔是抓住每个梗就要添柴倒油,meaqua也是冲国女王也是,到现在的5mea.  希望晚上没有植树环节<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5131#       发表于 2020-5-9 18:29
+
+
+
+
+今晚就冲了苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5132#       发表于 2020-5-9 18:30
+
+
+
+
+来点mega啊？都传歌了（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5133#       发表于 2020-5-9 18:31
+
+
+
+
+这么担心那就不看这回了呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">苔苔就是个梗bot又不是新鲜事了
+
+还是要建议大家多学学流星桑
+
+
+
+
+
+
+
+-----
+
+####  hahaha111  
+##### 5134#       发表于 2020-5-9 18:32
+
+
+
+
+可能有点火星了，刚刚看翻译的犬山那期憋尿打块感觉时雨妈明显和mea不对付，这两人有什么冲突么
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5135#       发表于 2020-5-9 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358939&amp;ptid=1929631" target="_blank">hahaha111 发表于 2020-5-9 18:32</a>
+可能有点火星了，刚刚看翻译的犬山那期憋尿打块感觉时雨妈明显和mea不对付，这两人有什么冲突么 ...</blockquote>
+还没看熟肉，哪一段的啊怎么不对付<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 5136#       发表于 2020-5-9 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单纯就是属性不对头吧，第一次舞mea那个视频我就觉得挺有距离感的了，难不成还因为狗妈所以连带起来了？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5137#       发表于 2020-5-9 18:37
+
+
+
+<blockquote>hahaha111 发表于 2020-5-9 18:32
+可能有点火星了，刚刚看翻译的犬山那期憋尿打块感觉时雨妈明显和mea不对付，这两人有什么冲突么 ...</blockquote>
+唯一的冲突可能是之前说要喝奶吧。。。这是时雨妈和舞元联动的切片[https://b23.tv/BV1GQ4y1N7TP](https://b23.tv/BV1GQ4y1N7TP)，我觉得她对咩姐没啥看法。。。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5138#       发表于 2020-5-9 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358939&amp;ptid=1929631" target="_blank">hahaha111 发表于 2020-5-9 18:32</a>
+可能有点火星了，刚刚看翻译的犬山那期憋尿打块感觉时雨妈明显和mea不对付，这两人有什么冲突么 ...</blockquote>
+演员真不对付还能让观众看出来。。。mea造了个时雨妈妈的母乳梗，时雨妈妈也说过mea也是我的孩子。顶多算是不咋熟悉客气客气（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5139#       发表于 2020-5-9 18:40
+
+
+
+
+没啥不对付的，之前有个时雨mea的uno联动都正常的很，而且时雨对mea的评价也还蛮好的（参考：[https://www.bilibili.com/video/BV1GQ4y1N7TP](https://www.bilibili.com/video/BV1GQ4y1N7TP) 【熟肉】为舞Mea应援的时雨妈妈【舞元启介】【时雨羽衣】）
+
+
+憋尿方块那次看完熟肉感觉mea到后面估计喝酸水喝的想吐了都（
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5140#       发表于 2020-5-9 18:41
+
+
+
+
+打块那次她不在状态，没必要带梁木去看
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5141#       发表于 2020-5-9 18:44
+
+
+
+
+新推，待机间开了
+
+[https://www.youtube.com/watch?v=kWYbzO9kPAM&amp;feature=youtu.be](https://www.youtube.com/watch?v=kWYbzO9kPAM&amp;feature=youtu.be)
+
+
+有整活的预感
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 5142#       发表于 2020-5-9 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358939&amp;ptid=1929631" target="_blank">hahaha111 发表于 2020-5-9 18:32</a>
+
+可能有点火星了，刚刚看翻译的犬山那期憋尿打块感觉时雨妈明显和mea不对付，这两人有什么冲突么 ...</blockquote>
+熟肉还没看,我记得其实这次打块mea整体说话欲望都不强啊,跟谁搭话都不多.
+
+她和时雨妈的气氛你不如去看uno联动那次
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5143#       发表于 2020-5-9 18:48
+
+
+
+
+饭盒，盒限游戏换了啊，专门还提了一句晚上的苔苔联动（真要整活kana？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5144#       发表于 2020-5-9 18:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358932&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-9 18:31</a>
+
+这么担心那就不看这回了呗苔苔就是个梗bot又不是新鲜事了
+
+
+还是要建议大家多学学流星桑 ...</blockquote>
+这咋还学上经典厄介毒唯了呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5145#       发表于 2020-5-9 18:59
+
+
+
+
+希望和黄兔子一样是砍树直播嗷
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5146#       发表于 2020-5-9 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359236&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-9 18:58</a>
+这咋还学上经典厄介毒唯了呢</blockquote>
+起码我觉得，觉得有问题就不看是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5147#       发表于 2020-5-9 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信黄兔子的水平，相信mea的水平，但是海苔男嘛
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5148#       发表于 2020-5-9 19:07
+
+
+
+
+啊这，她直播少看一次都是损失啊，漏了这次你也不到下次什么时候播
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5149#       发表于 2020-5-9 19:10
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-9 19:13 编辑 
+
+这又不是去年了，直播早贬值）了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+当真的做不到一次不落下全追的时候，就很容易松懈下来了。现在我只能做到一次互动不落（靠别人提醒
+
+
+
+syl，我不会推荐和我一样一次联动都不看，但是看直播还是要顺应自己的生活习惯比较好，都花了钱了时间就还是看自己安排吧。别为了可能的突击熬夜，去年因为好几次错过又好几次没蹲到对她不满的人我记得有，而且还不少，，，
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5150#       发表于 2020-5-9 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359317&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-9 19:07</a>
+啊这，她直播少看一次都是损失啊，漏了这次你也不到下次什么时候播</blockquote>
+其实我的办法是看到可能拉血压的直播就不看，等下播了一边爬楼一边补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5151#       发表于 2020-5-9 19:17
+
+
+
+
+联动完还可能播
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5152#       发表于 2020-5-9 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359355&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-9 19:11</a>
+
+其实我的办法是看到可能拉血压的直播就不看，等下播了一边爬楼一边补 ...</blockquote>
+那种即时的感觉看录播找不到啊，像那天晚上她突然透露3d进程的那种惊喜看录播会淡很多，不过有些难顶的我也就是挂个同接去做其他事。最关键的是听到她的声音啊，折腾一天突然听到她的声音真的太舒服了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5153#       发表于 2020-5-9 19:20
+
+
+
+
+可能留档，可能唱歌，可能播可能不播可能咕咕咕，你们不是爱猜吗.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5154#       发表于 2020-5-9 19:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359428&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-9 19:18</a>
+那种即时的感觉看录播找不到啊，像那天晚上她突然透露3d进程的那种惊喜看录播会淡很多，不过有些难顶的我 ...</blockquote>
+这个你可以选择一直挂着b的转播间，这种干着活突然冒出她声音的感觉是挺爽的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5155#       发表于 2020-5-9 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359444&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-9 19:20</a>
+可能留档，可能唱歌，可能播可能不播可能咕咕咕，你们不是爱猜吗.jpg ...</blockquote>
+传统艺能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5156#       发表于 2020-5-9 19:27
+
+
+
+
+看动态忽然看到这么一条评论草<img src="https://p.sda1.dev/0/3ba862c73ec15e12e3b345c3a0d8ab78/IMG_20200509_192640.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5157#       发表于 2020-5-9 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359129&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-9 18:48</a>
+
+饭盒，盒限游戏换了啊，专门还提了一句晚上的苔苔联动（真要整活kana？</blockquote>
+新的饭盒游戏是啥？
+
+之前退了3000档的看不了，如果是我喜欢的游戏我重新把3000单给开了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5158#       发表于 2020-5-9 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359515&amp;ptid=1929631" target="_blank">age45 发表于 2020-5-9 19:30</a>
+
+新的饭盒游戏是啥？
+
+之前退了3000档的看不了，如果是我喜欢的游戏我重新把3000单给开了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打块ol
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5159#       发表于 2020-5-9 19:42
+
+
+
+
+联动效果决定梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5160#       发表于 2020-5-9 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359578&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-9 19:37</a>
+
+打块ol</blockquote>
+再见<img src="https://static.saraba1st.com/image/smiley/goose2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
