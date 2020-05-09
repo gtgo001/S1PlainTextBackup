@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-09 00:08** 
+> ## **本文件最后更新于2020-05-09 12:08** 
 
 
 
@@ -10125,8 +10125,9 @@ unlimited和蜘蛛丝是两个人？
 
 
 
+ 本帖最后由 yuanhang99 于 2020-5-9 09:46 编辑 
 
-我愿在哪说还要由你管？你是楼主还是版主？ 算了不和喷子浪费论坛资源来了
+服了，不和心意只会扣分，你们开心就好
 
 
 
@@ -10138,10 +10139,12 @@ unlimited和蜘蛛丝是两个人？
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 4战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 370535090|-2|欢乐多|
+| age45| + 2|回血|
 | physi1202|-1|当众脱粪|
 | 2014720|-1|今日最后一鹅|
 
@@ -10186,4 +10189,656 @@ unlimited和蜘蛛丝是两个人？
 
 
 
-                              
+
+
+-----
+
+####  framita  
+##### 5082#       发表于 2020-5-9 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350855&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-5-8 23:39</a>
+
+unlimited和蜘蛛丝是两个人？
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+
+之前你楼不就表演了自己骂自己的神奇戏码么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+很多人都很贴贴的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5083#       发表于 2020-5-9 00:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">你楼贴贴有一套的，什么时候涩谷结婚记得发个照
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5084#       发表于 2020-5-9 00:42
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-9 01:00 编辑 
+
+半天没看错过了啥<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+syl 不在这聊字幕组是因为没什么好处又基本都是车轱辘话，不聊的都看烦了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然也有120老哥这样不聊贴贴人和字幕组就浑身难受的人就是了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大体翻了翻发现他确实对研究mea没啥热情，动力都在研究贴贴人和字幕组上了
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5085#       发表于 2020-5-9 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350954&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-8 23:49</a>
+
+我愿在哪说还要由你管？你是楼主还是版主？ 算了不和喷子浪费论坛资源来了 ...</blockquote>
+感谢提示，关于字幕组讨论问题的相关内容已经暂时编辑到主楼了，等486看了没问题这条就留着吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|合理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5086#       发表于 2020-5-9 01:37
+
+
+
+ 本帖最后由 framita 于 2020-5-9 01:38 编辑 
+
+录播补完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完全搞不懂今天tc她是心情好还是心情差，情绪倒是挺高的
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 5087#       发表于 2020-5-9 02:15
+
+
+
+
+今天和缪缪玩这么久还是挺高兴的吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5088#       发表于 2020-5-9 07:22
+
+
+
+
+佃煮のりお/犬山たまき狗脸蓝心
+
+@norioo_
+
+·
+
+21分钟
+
+带有脸的太阳〜本日(5/9)の配信予定〜带有脸的太阳
+
+
+22:00〜白雪みしろ狗脸❄you
+
+23:00〜犬山たまき狗脸蓝心you(コラボ:神楽めあ様/相手ch)
+
+※愛宮みるく休暇
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5089#       发表于 2020-5-9 07:23
+
+
+
+
+
+你的主页时间线
+
+如月こより鬼睡觉符号
+
+@KisaragiKoyori
+
+·
+
+51分钟
+
+【寝ようとした時に突然来ためあさんのLINE】
+
+
+7時20分
+
+漩涡设计的鱼蛋糕「うんちびろーん」
+
+
+コアラのスタンプ
+
+
+鬼睡觉符号「今日のツイート決まりました」
+
+
+漩涡设计的鱼蛋糕「ありがとうございます」
+
+
+鬼睡觉符号「ネタ提供ありがとうございます」
+
+
+突然来たんです。ホントです。
+
+
+続きはまたツイートします(続きます)
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 5090#       发表于 2020-5-9 07:27
+
+
+
+[神乐mea「neru酱 我现在 很闲呢」V骚番外篇神乐mea合集](https://www.bilibili.com/video/BV1iC4y1W755)
+
+
+
+错过的可以看看
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5091#       发表于 2020-5-9 07:28
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/09373a0b8449a982ab6ef03a56f5770d/IMG_20B7722F7D42A2317BCB8F0E1716E7A1.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| h1001010| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 5092#       发表于 2020-5-9 07:35
+
+
+
+ 本帖最后由 aisakahammer 于 2020-5-9 07:55 编辑 
+
+捞一下这个：
+
+    
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5093#       发表于 2020-5-9 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47351004&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-8 23:55</a>
+
+妈的不睡了，赌一把</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">老哥还好吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5094#       发表于 2020-5-9 09:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47352746&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-9 08:54</a>
+老哥还好吗</blockquote>
+<img src="https://p.sda1.dev/0/adfaa6732cb4d1b2eba7c0b9130a8c6c/IMG_EA5417A09AEF7C345021266F6CDF4E9F.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  370535090  
+##### 5095#       发表于 2020-5-9 09:36
+
+
+
+
+女人的嘴，骗人的鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jhouo8989| + 1|回血|
+| 时雨rain| + 1|别报复了|
+| SNOWIMEA| + 1|弱智吧，这也扣？|
+| yuanhang99|-2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5096#       发表于 2020-5-9 09:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这几天哪次晚上播了，看她这作息应该只会白天播吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">半夜播看不见
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">syl怎么开始扣鹅了，这是。。。
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 5097#       发表于 2020-5-9 10:22
+
+
+
+
+今天又去给犬山输血了，今年到现在绿熊别说联动了，连电话聊天都没有，怕是不仲了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5098#       发表于 2020-5-9 10:23
+
+
+
+
+哪有，那天404歌回绿熊冒过头
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5099#       发表于 2020-5-9 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353598&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-9 10:22</a>
+今天又去给犬山输血了，今年到现在绿熊别说联动了，连电话聊天都没有，怕是不仲了 ...</blockquote>
+首先。。是犬山给mea输血（
+其次，绿熊没事就来mea评论区玩。。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5100#       发表于 2020-5-9 10:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">说话一股子yygq的味，是你魔愣还是我
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 5101#       发表于 2020-5-9 10:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 绿熊只有评论区露头的戏份吗?
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不仲了,不仲了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5102#       发表于 2020-5-9 10:38
+
+
+
+
+你楼喜欢不仲营业的，想当初伊达和mea雪山人狼都老兴奋了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5103#       发表于 2020-5-9 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353622&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-9 10:24</a>
+
+首先。。是犬山给mea输血（
+
+其次，绿熊没事就来mea评论区玩。。</blockquote>
+各取所需吧。苔姨还挺看重mea的节目效果的，就是有时候老农民中国女王连发闹得某人下不来台。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 5104#       发表于 2020-5-9 10:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谁让你苔姨拱火技术稀烂还不自知
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 5105#       发表于 2020-5-9 10:52
+
+
+
+
+来点新兰图
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 5106#       发表于 2020-5-9 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47353961&amp;ptid=1929631" target="_blank">林照人 发表于 2020-5-9 10:52</a>
+
+来点新兰图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您点的新兰图.jpg
+<img src="https://ss0.bdstatic.com/70cFvHSh_Q1YnxGkpoWK1HF6hhy/it/u=2852008893,497328951&amp;fm=26&amp;gp=0.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5107#       发表于 2020-5-9 11:01
+
+
+
+
+她必须在各个顶级P的监督下定期和朋友来往来完成各个顶级P给她定下的人生kpi，不然就是不仲，太难了吧
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5108#       发表于 2020-5-9 11:04
+
+
+
+
+之前的十人云P小组怎么样了？都粉转黑了还是已经退圈了？
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5109#       发表于 2020-5-9 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47351404&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-9 00:42</a>
+半天没看错过了啥
+
+syl 不在这聊字幕组是因为没什么好处又基本都是车轱辘话，不聊的都看烦了</blockquote>
+偶像是用来看的，不是用来研究的，mea播什么我看什么，你要去研究那你已经在往云p的路上走了。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5110#       发表于 2020-5-9 11:21
+
+
+
+
+不是弱智time吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 5111#       发表于 2020-5-9 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47354084&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-9 11:04</a>
+
+之前的十人云P小组怎么样了？都粉转黑了还是已经退圈了？</blockquote>
+mea这边粉转黑的还是比较少的，大多都是自以为是粉的臭DD路转黑。十长侍大概退圈或者去看高小姐、猫猫之类能满足自己内心的V了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5112#       发表于 2020-5-9 12:04
+
+
+
+
+啊 是苔姨....
+
+可是， 梁木， 已经， 除不去了....<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                             
