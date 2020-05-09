@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-09 16:01** 
+> ## **本文件最后更新于2020-05-10 00:02** 
 
 
 
@@ -18149,4 +18149,568 @@ yysy，麻凜咩夸这种放百合圈是真的8行，前者像友情还是多，
 
 
 
-                
+
+
+-----
+
+####  Urystal  
+##### 3994#       发表于 2020-5-9 16:25
+
+
+
+
+之前有人在百合吧推荐tmsk时咩夸和夏吹根本就是拿出来当经典反面教材好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过我看雪子和はるかは陽沉迷tmsk我还是真没想到的，不久前陽老师还给tmsk的magnet合唱pv画了图，等一个百合画家也变黑暗贴贴人?<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 3995#       发表于 2020-5-9 16:30
+
+
+
+
+说白了，关系好是正常的，这么多年朋友呢。脑补上床属于无由来的强加设定，久了呢这个bug就显现出来了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 3996#       发表于 2020-5-9 16:39
+
+
+
+ 本帖最后由 离心 于 2020-5-9 16:42 编辑 
+
+嗨，还不是因为mea这边能打的cp太少了，要么是没入驻，要么跟不上你mea的想法，或者是对cp营业不感兴趣。不需要有多火，只需要达成一个微妙的平衡，也不会是现在这个样子了。
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 3997#       发表于 2020-5-9 16:46
+
+
+
+
+以前百合吧是很极端，就是完全不能接受bg结局的那种，和300完全不同<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+六字母这种是要被挂着婊的
+
+不过如果真的被百合吧挂，那绝对是因为
+小可爱的问题<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720|-1|我有梁木了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3998#       发表于 2020-5-9 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47357808&amp;ptid=1914314" target="_blank">离心 发表于 2020-5-9 16:39</a>
+
+嗨，还不是因为mea这边能打的cp太少了，要么是没入驻，要么跟不上你mea的想法，或者是对cp营业不感兴趣。不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">曾经有个对此很感兴趣和你麻很有共同语言还很能打的人，现在她没了，总结：辣鸡运营biss
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3999#       发表于 2020-5-9 17:14
+
+
+
+
+当初推bfm的被哈哈梗刷到讨厌天狗的是什么水平<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|赵高水平|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4000#       发表于 2020-5-9 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358164&amp;ptid=1914314" target="_blank">笋狐 发表于 2020-5-9 17:08</a>
+曾经有个对此很感兴趣和你麻很有共同语言还很能打的人，现在她没了，总结：辣鸡运营biss ...</blockquote>
+在的时候也没打过啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 4001#       发表于 2020-5-9 17:23
+
+
+
+ 本帖最后由 离心 于 2020-5-9 17:29 编辑 
+
+说了啊，没入驻，否则b限线下贴贴，合唱几首歌，说暴打好像太绝对了，但至少不是meaqua一家独大，甚至在少联动的时候能够占据上风，真要扯前世那点事的话，就可以👮出警了。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4002#       发表于 2020-5-9 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358219&amp;ptid=1914314" target="_blank">2014720 发表于 2020-5-9 17:14</a>
+
+在的时候也没打过啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不知道你指的打过是指啥，不过从个人视角来说，这俩最终没发展起来大锅归运营，剩下的小锅苔姨和某些个毒唯西皮厨对半分
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4003#       发表于 2020-5-9 19:08
+
+
+
+
+说真的，在还没当gachi的时候，我也是以为梅小姐真能把她掰弯那种的呢，当时那几个切片，要说百合浓度真的比meaqua高了不知道多少（可惜然后就海苔男和梅丽联动拱了败犬火，紧接着出了个130mc的同床共枕）。
+
+不过224ttrs联动的时候海苔男给梅丽造败犬人设的时候还是很不开心的（就是现在说的种梁木），可是没多久彻底gachi了就没再想过了。
+
+
+现在想想高中的女同学之间能做到亲吻摸胸一起睡觉这样的一对一对可多了去了，但是基本上这样的一对里自己想勾引一个另外一个就给你捣乱。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4004#       发表于 2020-5-9 19:15
+
+
+
+
+要是有bfm没引退而且anmr搞了中国进出的世界线的话，我还挺想看三人行的。bfm说的把mea和阿夸一起接到家里玩的卫星也不知道有没有私下落地
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4005#       发表于 2020-5-9 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你苔姨当年和bfm联动一个劲说meaqua贴贴hinamea没机会，美其名曰自己有CP洁癖，对着本人出警简直魔幻的一批
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后这个当年说自己有洁癖受不了拆cp的人在疯狂尬拱老农民，什么叫铁血功利人啊（战术后仰）
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4006#       发表于 2020-5-9 19:51
+
+
+
+
+今日苔姨梁木＋1
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4007#       发表于 2020-5-9 19:58
+
+
+
+
+也不知道你咩姐到底去没去成bfm家
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4008#       发表于 2020-5-9 20:04
+
+
+
+
+已经看不到苔姨， 只能看到梁木了
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 4009#       发表于 2020-5-9 20:19
+
+
+
+
+也不看看最后一次苔姨拱meaqua时夸是什么反应<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+六字母人甩锅双标真是有一手<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4010#       发表于 2020-5-9 20:21
+
+
+
+
+苔苔最后一次拱是啥时候呢？（讲道理这不是苔苔这不是双标，是发现六字母营业拉夸决定换目标了）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 4011#       发表于 2020-5-9 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359952&amp;ptid=1914314" target="_blank">PekoPekoPeko 发表于 2020-5-9 20:19</a>
+也不看看最后一次苔姨拱meaqua时夸是什么反应
+六字母人甩锅双标真是有一手 ...</blockquote>
+哇，怎么开始学你最恨的单推太监，开始输出起贴贴人了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 4012#       发表于 2020-5-9 21:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人能给指个路吗？我还真想知道苔姨最后一次拱火meaqua是什么时候什么场景
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4013#       发表于 2020-5-9 21:20
+
+
+
+ 本帖最后由 呓亘 于 2020-5-9 22:37 编辑 
+
+搞错了，编辑了....
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4014#       发表于 2020-5-9 21:36
+
+
+
+
+不是前段时间联动的时候刚提过来着（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4015#       发表于 2020-5-9 21:42
+
+
+
+
+?俄罗斯方块的给个地址?这等有趣的东西我竟然错过了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 4016#       发表于 2020-5-9 22:07
+
+
+
+
+酒厂有上次苔夸联动，苔姨说夸在mea面前不装可爱的视频啊，这才是最近的吧
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4017#         楼主| 发表于 2020-5-9 22:18
+
+
+
+ 本帖最后由 离魂仙 于 2020-5-9 22:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360732&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-5-9 21:42</a>
+
+?俄罗斯方块的给个地址?这等有趣的东西我竟然错过了(눈_눈)</blockquote>
+这个？ [https://www.bilibili.com/video/BV1k7411T7yi](https://www.bilibili.com/video/BV1k7411T7yi)
+
+30分钟处<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">苔苔模仿阿夸喊咩咩，阿夸让苔苔学别人去，苔苔就模仿了江良
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 坚果收藏家| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  mengnvpu  
+##### 4018#       发表于 2020-5-9 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这不是和前面说的完全不是一回事吗
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 4019#       发表于 2020-5-9 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47361242&amp;ptid=1914314" target="_blank">mengnvpu 发表于 2020-5-9 22:24</a>
+这不是和前面说的完全不是一回事吗</blockquote>
+这栋楼里的话信三分就好，可能还多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 4020#       发表于 2020-5-9 22:36
+
+
+
+
+好像是我记错了....我不是故意的啊....要不你扣我鹅好了.....<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 4021#       发表于 2020-5-9 23:39
+
+
+
+
+为什么当年火的不是兔咩 他们两个杂谈相性是真的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4022#         楼主| 发表于 2020-5-9 23:53
+
+
+
+
+大恶人臭阿夸，自己大口吃牛舌，卷心菜全塞给咩咩解决<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4023#       发表于 2020-5-9 23:54
+
+
+
+
+这波是替代对方变肥， 是糖
+
+
+
+
+
+               
