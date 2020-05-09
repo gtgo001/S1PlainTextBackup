@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-10 00:10** 
+> ## **本文件最后更新于2020-05-10 02:09** 
 
 
 
@@ -16631,12 +16631,957 @@ md草稿一直挂这玩意怕没了就一直没打字憋死老子了</blockquote
 
 
 
+ 本帖最后由 weiweiEX 于 2020-5-10 00:18 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362489&amp;ptid=1929631" target="_blank">某不知名的路人 发表于 2020-5-10 00:05</a>
 列这些有意义吗，我只想看到利益在哪，要不sc 要不画师画同人图，至少不是只会在直播间刷屏而已 ...</blockquote>
 打sc才算人，看来你mea姐的粉丝应该不到一千人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">把404的中国人除外后剩下的粉丝有没有100人我挺好奇的
 
+快播了就syl<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">流星我就问你，你数过你mea姐一场solo杂谈下来，有几个在推特讨论她的人么
+zsyl发推不需要任何成本，那你觉得你对mea的热情是一文不值的吗
+zzsyl要是真的多去推特交流我还挺支持的，能让你mea姐更容易的看到她直播的反馈
+zzzsyl 2月开始来了多少人？那段时间涨粉速度我说过了，有疑问自己去查，还是说你跟楼上一样觉得不打钱就不算人
+
+
+回楼上对我的回复，转没转化你自己看图，我就是专门搜的我面生的讨论舞mea的mea粉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
 
 
-                  
+
+
+
+-----
+
+####  Cla0221  
+##### 5438#       发表于 2020-5-10 00:10
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-10 00:25 编辑 
+
+可拉倒吧，那不还是就那么几个？？2月到现在整整三个月因为这活来了多少人，多了几个会员多了几个sc？？反而看看最开始多了多少就知道无脑提的nt？？
+
+我寻思我也没说这边到处刷她money梗的不是小鬼吧，而且说是小鬼就是开除粉籍？？
+
+还有，发推需要投入任何成本？？不行就以后有什么感想多在推特发不在论坛发呗，这之后呢，有什么用呢？
+
+
+我就问你，有什么用？每个直播因为这些人多了几条讨论的推特有什么用？能引流还是能给钱？
+
+
+你要不私聊要不等歌回结束，现在懒得搭理你。你就不回头看看她自己的老粉有多少人因为觉得海苔男可能要硬拱放弃看这个联动的，如果影响不到任何她自己的粉那我无话可说，就和联动太郎一样。或者以后就黄兔子做中间人，也比海苔男带着好多了。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5439#       发表于 2020-5-10 00:10
+
+
+
+
+停一停，这歌回看标题怕是要耐久了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5440#       发表于 2020-5-10 00:11
+
+
+
+
+你想发的发完了吧，有什么话私聊，马上歌回了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5441#       发表于 2020-5-10 00:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞mea最近也整不出太过火的活了，梁木可以稍微砍一砍了
+
+
+顺便，如何看待苔苔刚刚说的“比起舞mea，还是更喜欢司会mea”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5442#       发表于 2020-5-10 00:13
+
+
+
+
+15.6了。。有点快
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5443#       发表于 2020-5-10 00:14
+
+
+
+
+和尼哥的麻将联动这不安排上了吗？
+
+
+说实话舞元现在在联动里越来越像空气了，几乎不影响观感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 5444#       发表于 2020-5-10 00:14
+
+
+
+
+还搁这五咩呢，楼友的弱智有够好笑的^
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 5445#       发表于 2020-5-10 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362562&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-10 00:11</a>
+舞mea最近也整不出太过火的活了，梁木可以稍微砍一砍了
+
+
+顺便，如何看待苔苔刚刚说的“比起舞mea， ...</blockquote>
+说明苔苔喜欢黑人，很政治正确
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5446#       发表于 2020-5-10 00:14
+
+
+
+
+海苔男，拱火的神
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5447#       发表于 2020-5-10 00:14
+
+
+
+<blockquote>路人庚 发表于 2020-5-10 00:11
+舞mea最近也整不出太过火的活了，梁木可以稍微砍一砍了
+
+
+顺便，如何看待苔苔刚刚说的“比起舞mea， ...</blockquote>
+是捧一踩一
+
+建议发动浮游炮冲了苔苔的直播间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 5448#       发表于 2020-5-10 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362547&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-10 00:10</a>
+
+打sc才算人，看来你mea姐的粉丝应该不到一千人把404的中国人除外后剩下的粉丝有没有100人我挺好奇 ...</blockquote>
+那得看你看重的是什么，单纯看同接那是个人都行，重点是所谓吃这对cp的人真的是mea可以转化的观众吗，单纯只是为了看这个cp的话我觉得没必要，说难听点不打钱的不就是白嫖的吗，至于算不算人，至少从收益上不算呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5449#       发表于 2020-5-10 00:15
+
+
+
+
+zzzq好啊
+
+油 管敢ban司会吗(
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5450#       发表于 2020-5-10 00:17
+
+
+
+
+说的好像你咩姐有稳定的可转化观众来源一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5451#       发表于 2020-5-10 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362562&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-10 00:11</a>
+
+舞mea最近也整不出太过火的活了，梁木可以稍微砍一砍了
+
+
+顺便，如何看待苔苔刚刚说的“比起舞mea， ...</blockquote>
+你又要种新梁木了吗？有节目笑果的话估计咩姐还是会上的。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5452#       发表于 2020-5-10 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">停一停，这都顺劈到哪去了，总有粉丝不打钱的，别都给开除了啊，戾气别这么重
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5453#       发表于 2020-5-10 00:18
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-10 00:22 编辑 
+
+除了核心粉外的观众本质都是乐子人，有人引流有乐子的时候来贡献个同接
+
+没必要老盯着账面收益和转化率，不可能有那个主播说自己不要热度的
+
+
+小鬼是另一回事，按规则杀就是了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 5454#       发表于 2020-5-10 00:21
+
+
+
+
+粉丝挂**，互动转发都是收益。就算石油佬还要享受被屌丝围观来满足虚荣心呢。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5455#       发表于 2020-5-10 00:21
+
+
+
+
+敢哼超级玛丽、ban了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5456#       发表于 2020-5-10 00:25
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 00:28 编辑 
+
+直接放毒，爽
+
+2000
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5457#       发表于 2020-5-10 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362550&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-10 00:10</a>
+可拉倒吧，那不还是就那么几个？？2月到现在整整三个月因为这活来了多少人，多了几个会员多了几个sc？？反 ...</blockquote>
+私聊你了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别搞得一副你自己不看还碎碎念舞mea，却抱怨我来找你吵架样子好吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5458#       发表于 2020-5-10 00:32
+
+
+
+
+歌回（杂谈）<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5459#       发表于 2020-5-10 00:33
+
+
+
+
+老腐女了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5460#       发表于 2020-5-10 00:34
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 00:37 编辑 
+
+所有的梁木在数字前不值一提<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+2500欧耶
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5461#       发表于 2020-5-10 00:37
+
+
+
+
+绮丽芒果再临
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5462#       发表于 2020-5-10 00:38
+
+
+
+
+最高指令:可爱芒果
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5463#       发表于 2020-5-10 00:43
+
+
+
+
+这人真是嗨的飞起
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5464#       发表于 2020-5-10 00:44
+
+
+
+
+机器人可来劲了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5465#       发表于 2020-5-10 00:44
+
+
+
+
+我是不是听到了EVA
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5466#       发表于 2020-5-10 00:46
+
+
+
+
+kira~
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 5467#       发表于 2020-5-10 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362866&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-10 00:44</a>
+
+我是不是听到了EVA</blockquote>
+说太神作了反而不想看
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5468#       发表于 2020-5-10 00:51
+
+
+
+
+她现在这种状态看eva，会不会太带入了？结果爱上了熏<img src="https://static.saraba1st.com/image/smiley/carton2017/034.png" referrerpolicy="no-referrer">
+（但是果然还是明日香才行<img src="https://static.saraba1st.com/image/smiley/carton2017/041.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5469#       发表于 2020-5-10 00:54
+
+
+
+
+EVA有点毒化神作的感觉，对上一点电波看完就立刻中二病全开了要<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+小麻不碰也不能说不对……
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5470#       发表于 2020-5-10 00:57
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 01:03 编辑 
+
+就硬云，就硬云<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+同接，在掉啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，不当事业民了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5471#       发表于 2020-5-10 01:06
+
+
+
+
+同接播放和订阅当然也有钱啊（当然最近404收益砍了的样子）
+
+syl这什么屌伴奏差点没听出来
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5472#       发表于 2020-5-10 01:07
+
+
+
+
+该掉了，我也掉了，该睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 5473#       发表于 2020-5-10 01:07
+
+
+
+
+这首真把我唱笑了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5474#       发表于 2020-5-10 01:08
+
+
+
+
+这拉胯得，能不掉吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5475#       发表于 2020-5-10 01:11
+
+
+
+
+说太多会导致歌力下降吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5476#       发表于 2020-5-10 01:13
+
+
+
+
+兴致挺高所以刚练没多久的歌也拿来唱，不功利歌回（
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5477#       发表于 2020-5-10 01:14
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 01:15 编辑 
+
+这伴奏有问题…
+
+我当是巩固，原来是洗粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5478#       发表于 2020-5-10 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363025&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-10 01:11</a>
+
+说太多会导致歌力下降吗</blockquote>
+喉肌群疲劳就会了，但是经常唱歌的人喉肌一般都锻炼得很好，我大声说话几十分钟都不行了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5479#       发表于 2020-5-10 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363049&amp;ptid=1929631" target="_blank">Zaphikel 发表于 2020-5-10 01:15</a>
+喉肌群疲劳就会了，但是经常唱歌的人喉肌一般都锻炼得很好，我大声说话几十分钟都不行了 ...</blockquote>
+今天听着有点麻，大概是说多了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5480#       发表于 2020-5-10 01:17
+
+
+
+
+行了数字民可以放下了
+
+
+小麻还是以前的小麻，她困了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 5481#       发表于 2020-5-10 01:20
+
+
+
+
+噗嗤炕噗嗤炕<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5482#       发表于 2020-5-10 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363060&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-10 01:17</a>
+
+今天听着有点麻，大概是说多了？</blockquote>
+那也得是大吼大叫才会哑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5483#       发表于 2020-5-10 01:36
+
+
+
+ 本帖最后由 rubinliu 于 2020-5-10 01:37 编辑 
+
+回去看了组长结尾那段，你咩姐的漫画感想(?)突入，吧啦吧啦说了一大堆童贞视角，然后组长一言不发地听完了才敲你咩姐，这段有种v的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5484#       发表于 2020-5-10 01:36
+
+
+
+
+这人唱歌好难听啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5485#       发表于 2020-5-10 01:41
+
+
+
+
+说，小麻唯唱歌贼好听
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 5486#       发表于 2020-5-10 01:42
+
+
+
+
+小仓唯唱歌贼难听！
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5487#       发表于 2020-5-10 01:55
+
+
+
+
+难听，睡了
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5488#       发表于 2020-5-10 02:02
+
+
+
+ 本帖最后由 framita 于 2020-5-10 02:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然打电话过来就听着在飙车
+
+
+进去第一句话就是开房脱衣洗澡
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5489#       发表于 2020-5-10 02:05
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-10 02:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363311&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-10 02:02</a>
+推上有剪黄兔子直播还没播完就被拉进discord的剪辑，太他妈搞笑了突然打电话过来就听着在飙 ...</blockquote>
+有地址么，我去瞅瞅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+草翻到了
+[https://twitter.com/yayoi_takamachi/status/1259144134469668864](https://twitter.com/yayoi_takamachi/status/1259144134469668864)
+黄兔子愣在那听她们聊天的样子笑死我了
+
+
+
+
+
+                 
