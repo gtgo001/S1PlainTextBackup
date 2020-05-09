@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-09 20:08** 
+> ## **本文件最后更新于2020-05-09 22:08** 
 
 
 
@@ -11681,4 +11681,691 @@ syl，我不会推荐和我一样一次联动都不看，但是看直播还是�
 
 
 
-                            
+
+
+-----
+
+####  weiweiEX  
+##### 5161#       发表于 2020-5-9 20:49
+
+
+
+
+
+如月こより鬼睡觉符号
+
+@KisaragiKoyori
+
+·
+
+4分钟
+
+【突然来ためあさんのLINE】2
+
+
+漩涡设计的鱼蛋糕「サムネ作るの上手になったね」
+
+
+鬼睡觉符号「えっやったぁ！！！」
+
+
+漩涡设计的鱼蛋糕「私の方が上手いけどね」
+
+
+鬼睡觉符号「e？」
+
+
+漩涡设计的鱼蛋糕「は？なに？」
+
+
+鬼睡觉符号「いいと思います」
+
+
+漩涡设计的鱼蛋糕「今日も一日頑張ろうな^^」
+
+
+鬼睡觉符号「今から寝ますけどね^^」
+
+
+漩涡设计的鱼蛋糕「同じ^^」
+
+
+当時の時刻、午前7時半
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5162#       发表于 2020-5-9 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360264&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-9 20:49</a>
+如月こより鬼睡觉符号
+
+@KisaragiKoyori
+
+·</blockquote>
+漩涡设计的鱼蛋糕哈哈哈哈哈哈哈哈啊哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5163#       发表于 2020-5-9 20:54
+
+
+
+
+从来没有什么鱼板,只有旋涡鱼蛋糕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 5164#       发表于 2020-5-9 21:12
+
+
+
+
+苔苔已经开始嗯丶拱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5165#       发表于 2020-5-9 21:14
+
+
+
+
+啊这，苔姨干啥了，要拉过来一起联动？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5166#       发表于 2020-5-9 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来一会苔苔拱火少不了的，ptsd患者为了自己的精神健康可以直接不看了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 5167#       发表于 2020-5-9 21:37
+
+
+
+
+等一个进入夸皇模式“换一个话题”
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 5168#       发表于 2020-5-9 21:39
+
+
+
+
+有点绝望<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">去翻了一下404那边播放量
+原创曲快一周了，播放量2万，麻将联动两万九。翻唱有七万多，跟苔姨兔姨联动播放量更高。也难怪车轱辘舞元，从这个数据上看，好像确实能蹭到点东西<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/393f0f02e52fae951e002602284b8f9a/IMG_2E13AC5F9146C2F34CF3C8F920D65ABA.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5169#       发表于 2020-5-9 21:43
+
+
+
+
+原创曲在b的播放量也不高啊。果然是曲子的问题吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5170#       发表于 2020-5-9 21:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360746&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-9 21:43</a>
+原创曲在b的播放量也不高啊。果然是曲子的问题吗(눈_눈)</blockquote>
+又不是热度曲。。不火不是正常吗？质量又不是贼高的那种
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5171#       发表于 2020-5-9 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">聊数字还是算了8，要扯这个一会又要扯到别的东西上面去
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5172#       发表于 2020-5-9 21:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">一语成箴
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">🖐🏻🐏贴贴
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5173#       发表于 2020-5-9 21:47
+
+
+
+
+这更说明了那一堆小鬼只是喜欢喊maimea贴贴的铁弱智而根本不可能转化为她自己的粉丝群体更别提做fanart和打钱了啊。<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5174#       发表于 2020-5-9 21:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">热度不就是这么回事吗
+
+原创曲在404不高很正常，又吃不到什么推送资源
+
+在b站属于正常发挥，不低啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5175#       发表于 2020-5-9 21:48
+
+
+
+
+嘤嘤嘤，麻酱什么时候才能摆脱贴贴好起来(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5176#       发表于 2020-5-9 21:51
+
+
+
+
+那还能怎么办，粉丝也不是从天上掉下来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 5177#       发表于 2020-5-9 21:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大箱v和个人小主播的差距是这样的啊,联动一下当然能感受到.  要是感受不到那也太看不起虹了.
+
+她在个人势里算金字塔顶的一批了, 没啥可绝望的. 想绝望去打开hiyoko拉到底.
+
+想要播放量需要曝光度,现在日本v界就是虹杏遮天你一个人搅得起多大的浪呢.
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5178#       发表于 2020-5-9 21:57
+
+
+
+
+所以作为曝光的好机会，她什么时候会再次跟那位40多万粉的大物联动呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5179#       发表于 2020-5-9 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360788&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-9 21:47</a>
+
+这更说明了那一堆小鬼只是喜欢喊maimea贴贴的铁弱智而根本不可能转化为她自己的粉丝群体更别提做fanart和打 ...</blockquote>
+不是，流星你都说了自己不看联动了，为啥还会骂为了5mea来看的人啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5180#       发表于 2020-5-9 21:59
+
+
+
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5181#       发表于 2020-5-9 22:01
+
+
+
+
+wdnmlgcb
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5182#       发表于 2020-5-9 22:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是3人联动还行
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5183#       发表于 2020-5-9 22:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360900&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-9 21:57</a>
+
+不是，流星你都说了自己不看联动了，为啥还会骂为了5mea来看的人啊</blockquote>
+因为几个月前还有人拿着我的ptsd当理由和我谈什么转化，说我是因为可怜的独角兽心里后来才继续讨厌这活。可是不说别的，18年到19年初国内v圈和现在本土v圈的环境一样吗，以前光说她的成功不可复刻，咋就觉得我认为这帮人不能转化成为了对她能力的不信任了呢。
+
+我还在这骂那些蝗虫本质是在怼当时说我只是独角兽发作而不是真的在认真思考的人而已。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 5184#       发表于 2020-5-9 22:02
+
+
+
+
+苔姨牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5185#       发表于 2020-5-9 22:02
+
+
+
+
+草开幕雷击
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5186#       发表于 2020-5-9 22:03
+
+
+
+
+👏
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5187#       发表于 2020-5-9 22:04
+
+
+
+
+我舞元mc呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5188#       发表于 2020-5-9 22:04
+
+
+
+
+不愧是苔苔,精准击中贷款heip<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 5189#       发表于 2020-5-9 22:04
+
+
+
+
+苔姨出现必把她和5元绑在一起
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 5190#       发表于 2020-5-9 22:04
+
+
+
+
+哈哈哈笑死我了
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5191#       发表于 2020-5-9 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞元mc会有的，不要急
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 5192#       发表于 2020-5-9 22:05
+
+
+
+
+呕<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">除了舞元就不会别的了是吧，这大龄剩女就掏不出别的活了？硬拱吗？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5193#       发表于 2020-5-9 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">红红火火恍恍惚惚，苔姨拱火的神
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 5194#       发表于 2020-5-9 22:06
+
+
+
+
+舞苔贴贴刷起来
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5195#       发表于 2020-5-9 22:06
+
+
+
+
+我怎么觉得今天咩咩的笑声有点清楚
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5196#       发表于 2020-5-9 22:07
+
+
+
+
+？
+
+一会儿唱歌吧好不好，我要顶不住了，操<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 5197#       发表于 2020-5-9 22:07
+
+
+
+
+真的要虚无杂谈没主题吗 好像有点难啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 5198#       发表于 2020-5-9 22:07
+
+
+
+
+恶心到我了上次还是mea说我不来生理期那是是怀孕了，苔姨秒接一句那一定是5元的
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5199#       发表于 2020-5-9 22:07
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-9 22:06
+我怎么觉得今天咩咩的笑声有点清楚</blockquote>
+换麦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
