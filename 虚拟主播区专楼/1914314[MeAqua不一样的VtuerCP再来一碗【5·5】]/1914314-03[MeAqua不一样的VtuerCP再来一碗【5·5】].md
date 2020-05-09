@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-08 12:02** 
+> ## **本文件最后更新于2020-05-09 16:01** 
 
 
 
@@ -17523,4 +17523,630 @@ p家没了后你麻的圈子就黄姨兔姨，贴贴两个姨吗？
 
 
 
-                 
+
+
+-----
+
+####  2014720  
+##### 3964#       发表于 2020-5-8 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342303&amp;ptid=1914314" target="_blank">草牛 发表于 2020-5-8 12:00</a>
+meall就非要贴贴吗，眼光太窄</blockquote>
+那要怎么办嘛，实在没那感觉啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3965#       发表于 2020-5-8 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342328&amp;ptid=1914314" target="_blank">2014720 发表于 2020-5-8 12:03</a>
+那要怎么办嘛，实在没那感觉啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉的没感觉自然有人觉得有感觉，泥潭老害都是少数人，普通人谁管你姨不姨的
+
+
+
+
+
+
+
+-----
+
+####  坚果收藏家  
+##### 3966#       发表于 2020-5-8 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342229&amp;ptid=1914314" target="_blank">age45 发表于 2020-5-8 11:55</a>
+
+你这种最好搞，当然要是等魔怔的那批不搞这些了你还能继续搞下去我就佩服你 ...</blockquote>
+哪天黑得无聊了我就退坑了，要是黑魔怔了不就变成了自己曾经最讨厌的样子了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这cp或许更快就凉了呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 3967#       发表于 2020-5-8 12:09
+
+
+
+
+就算当年也有这样的人，这有什么好惊讶的
+
+另外你说的那人应该是个虹箱推+木口箱推，直球后被人怼了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3968#       发表于 2020-5-8 12:12
+
+
+
+
+那不几乎就是看管vnt了吗，没事做推两个箱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 3969#       发表于 2020-5-8 18:15
+
+
+
+
+大亏只会吃 不会吐 其他人学不来的
+要不就她这水平 怎么火起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sutegoro  
+##### 3970#       发表于 2020-5-8 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47342296&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-5-8 12:00</a>
+
+等一下，楼里老哥该不会觉得我是那个为了反六字母觉得叫"三字母"好的吧，虽然是泥潭新参，但是好歹我也经历 ...</blockquote>
+有什么好好奇的吗，微博上的七色太监转crew的不是挺多的吗
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 3971#       发表于 2020-5-9 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感慨一下，虽然退了vtuber圈，但在某吧看到一个顶着meaqua头像的正义警察，对着认真打tag避雷的非百合向P站画师隔海出警，心里还是不由得会想，他应该也还奋战在大战毒唯人的战场上吧（笑）
+
+<img src="https://img.saraba1st.com/forum/202005/09/111129q9nla5e5altnh5t5.png" referrerpolicy="no-referrer">
+
+
+<strong>搜狗截图20200509110758.png</strong> (137.7 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-9 11:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3972#       发表于 2020-5-9 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47354171&amp;ptid=1914314" target="_blank">qfqczr 发表于 2020-5-9 11:11</a>
+
+感慨一下，虽然退了vtuber圈，但在某吧看到一个顶着meaqua头像的正义警察，对着认真打tag避雷的非百 ...</blockquote>
+简单搜了下原帖没搜到，估计没了。倒是搜到了在几个我常逛的音游贴吧的正常发言和v吧的一条怼带兔组节奏的人的回复。
+
+
+这帖的语气看着还挺和谐的（指#阴险），很感兴趣底下的评论风向是怎样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qfqczr  
+##### 3973#       发表于 2020-5-9 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355695&amp;ptid=1914314" target="_blank">noaki 发表于 2020-5-9 13:16</a>
+
+简单搜了下原帖没搜到，估计没了。倒是搜到了在几个我常逛的音游贴吧的正常发言和v吧的一条怼带兔组节奏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">邦邦人只在玩梗上重拳出击，剩下的领域都是纯良人，回复都很客观劝lz冷静一点。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于为啥要劝，是因为lz在后续回复里表现出了【我不喜欢所以不允许出现】的暴言，但帖子既然没了也就不说啥了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| noaki| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ddy2811  
+##### 3974#       发表于 2020-5-9 13:29
+
+
+
+<blockquote>qfqczr 发表于 2020-5-9 11:11
+感慨一下，虽然退了vtuber圈，但在某吧看到一个顶着meaqua头像的正义警察，对着认真打tag避雷的非百 ...</blockquote>
+很正常吧，推cp也许是一时的，但斗人是永恒的，就算爬墙出坑乃至转anti，只要不认贼作父当叛徒投靠毒唯做劣等人，敌人永远都是敌人
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 3975#       发表于 2020-5-9 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355820&amp;ptid=1914314" target="_blank">ddy2811 发表于 2020-5-9 13:29</a>
+很正常吧，推cp也许是一时的，但斗人是永恒的，就算爬墙出坑乃至转anti，只要不认贼作父当叛徒投靠毒唯做 ...</blockquote>
+qf的意思不就是你们这些脑瘫可不可以早点去死吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+你们怎么还聊上了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qfqczr| + 1|无所谓了，反正已经脱坑看不懂了（悲）.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3976#       发表于 2020-5-9 13:33
+
+
+
+ 本帖最后由 草牛 于 2020-5-9 13:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47354171&amp;ptid=1914314" target="_blank">qfqczr 发表于 2020-5-9 11:11</a>
+感慨一下，虽然退了vtuber圈，但在某吧看到一个顶着meaqua头像的正义警察，对着认真打tag避雷的非百 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">cp厨都这样吧，去年fumihiko画了张meaqua舔屌的双飞图，lga贴贴楼还打起来了，最后给画师扣了个不尊重两人的帽子，再也没转过fumihiko的画
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 3977#       发表于 2020-5-9 13:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355868&amp;ptid=1914314" target="_blank">草牛 发表于 2020-5-9 13:33</a>
+cp厨都这样吧，去年fumihiko画了张meaqua舔屌的双飞图，lga贴贴楼还打起来了，最后给画师扣了个不 ...</blockquote>
+这个真不是六字母人的问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+大概只有泥潭那些七色六字母太监会觉得这种图丢到贴贴楼没问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 3978#       发表于 2020-5-9 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355931&amp;ptid=1914314" target="_blank">PekoPekoPeko 发表于 2020-5-9 13:42</a>
+这个真不是六字母人的问题吧
+大概只有泥潭那些七色六字母太监会觉得这种图丢到贴贴楼没问题[f:009 ...</blockquote>
+你是不是脑残，那图怎么丢到楼里，你给我丢一个试试，整个楼都能炸了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 3979#       发表于 2020-5-9 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355868&amp;ptid=1914314" target="_blank">草牛 发表于 2020-5-9 13:33</a>
+
+cp厨都这样吧，去年fumihiko画了张meaqua舔屌的双飞图，lga贴贴楼还打起来了，最后给画师扣了个不 ...</blockquote>
+很奇怪啊，这个画师咩和夸单人被透的图可不少。
+
+比起前面这个双人舔吊不是要相对健全得多吗，为什么单人图的时候不出警啊草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想不通
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3980#       发表于 2020-5-9 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355961&amp;ptid=1914314" target="_blank">草牛 发表于 2020-5-9 13:45</a>
+你是不是脑残，那图怎么丢到楼里，你给我丢一个试试，整个楼都能炸了</blockquote>
+你翻翻他回复，小博鱼桑在发现直球巨魔会被爆破后就开始致力于四处拱火粉丝了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">每次都会智力+1，可喜可贺呢小博鱼桑
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 3981#       发表于 2020-5-9 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355990&amp;ptid=1914314" target="_blank">noaki 发表于 2020-5-9 13:48</a>
+很奇怪啊，这个画师咩和夸单人被透的图可不少。
+
+比起前面这个双人舔吊不是要相对健全得多吗，为什么单人 ...</blockquote>
+因为那是贴贴楼兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+你在小可爱真爱楼讨论麻酱乌冬乱趴不也会被骂
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|眼拙看错了|
+| 2014720|-1|？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 3982#       发表于 2020-5-9 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47355995&amp;ptid=1914314" target="_blank">weiweiEX 发表于 2020-5-9 13:48</a>
+你翻翻他回复，小博鱼桑在发现直球巨魔会被爆破后就开始致力于四处拱火粉丝了每次都会智力+1，可 ...</blockquote>
+只有顺劈七色太监不会被骂，龙魂酱我太难了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 3983#       发表于 2020-5-9 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47356035&amp;ptid=1914314" target="_blank">PekoPekoPeko 发表于 2020-5-9 13:53</a>
+只有顺劈七色太监不会被骂，龙魂酱我太难了</blockquote>
+为什么小博鱼桑会各种被骂呢，呜呜呜小博鱼桑太难了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3984#       发表于 2020-5-9 14:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这有什么好奇怪的，单人BG蝗图什么的在默认范畴之内所以见怪不怪，把百合当双飞可是河豚第一大雷
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 3985#       发表于 2020-5-9 14:38
+
+
+
+
+双飞民什么时候才能站起来
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 3986#       发表于 2020-5-9 15:00
+
+
+
+
+双飞爬啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 3987#       发表于 2020-5-9 15:21
+
+
+
+
+听说双飞图是百合民的禁忌，在下不是很懂，反正只要对的上xp的都看
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|下次转图请三思（池沼）|
+| physi1202| + 1|老色批了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3988#       发表于 2020-5-9 15:38
+
+
+
+ 本帖最后由 笋狐 于 2020-5-9 15:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人类的悲欢并不相通。也未必要懂，知道有这么回事就行
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然，人物只有女孩子的双飞可能是例外（
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 3989#       发表于 2020-5-9 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">啊，双头龙在百合民看起来是怎么样的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3990#       发表于 2020-5-9 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47357210&amp;ptid=1914314" target="_blank">时雨rain 发表于 2020-5-9 15:42</a>
+
+啊，双头龙在百合民看起来是怎么样的</blockquote>
+道具
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 3991#       发表于 2020-5-9 15:56
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-9 15:59 编辑 
+
+yysy，麻凜咩夸这种放百合圈是真的8行，前者像友情还是多，后者倒是更适合字母圈
+
+
+
+真高纯度百合害得看麻梅，你说你麻把梅丽小姐骗上床过我都信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3992#       发表于 2020-5-9 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了避免歧义补上一句，主要记者人每次一转没，看着那个已删除的动态总让人纠结那是个啥图（
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 3993#       发表于 2020-5-9 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47357345&amp;ptid=1914314" target="_blank">Dualist彩 发表于 2020-5-9 15:56</a>
+
+yysy，麻凜咩夸这种放百合圈是真的8行，前者像友情还是多，后者倒是更适合字母圈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么办法，当初爆炸式的人气直接把俩小姑娘脑袋炸蒙了，要我说，这俩后来的营业水平真心拉胯
+
+
+什么，你麻这个死童贞侄女口嗨怪拿的不应该是被表面软萌内心大胆的深闺梅小姐拐回家顺势推了的剧本吗
+
+
+
+
+
+                
