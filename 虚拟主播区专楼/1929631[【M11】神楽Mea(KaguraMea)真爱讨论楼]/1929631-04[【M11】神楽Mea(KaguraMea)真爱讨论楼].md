@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-10 18:09** 
+> ## **本文件最后更新于2020-05-11 02:08** 
 
 
 
@@ -19900,10 +19900,11 @@ hhhh笑死
 
 
 
- 参与人数 7战斗力 +7
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| planetcd| + 1|大悟，我湿了|
 | stageKK| + 1|大师，我悟了|
 | kenjjj| + 1|谢谢大师|
 | 时之虫| + 1|大事，我悟了|
@@ -20238,4 +20239,657 @@ yhm的心思 猜不透
 
 
 
-           
+
+
+-----
+
+####  路人庚  
+##### 5646#       发表于 2020-5-10 18:28
+
+
+
+
+数独解说版不错：[https://www.bilibili.com/video/BV12i4y1x7Sn](https://www.bilibili.com/video/BV12i4y1x7Sn)
+
+
+5分40秒那个看了这个解说版才明白（你咩姐瞎蒙一直可以的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 5647#       发表于 2020-5-10 19:28
+
+
+
+
+完了，我居然听不出mea和miu的区别来了。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5648#       发表于 2020-5-10 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听不出来正常，以前被怀疑是亲姐妹不是没道理的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5649#       发表于 2020-5-10 19:32
+
+
+
+
+osu这次直播确实不好分。。。之前splatoon那次差的还是比较多
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5650#       发表于 2020-5-10 19:37
+
+
+
+
+我tm也是，要先听个一两分钟才能分出谁是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 5651#       发表于 2020-5-10 19:38
+
+
+
+
+她们两个出道最初的时候不就被怀疑过是大小号么,后来联动过才没这说法了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5652#       发表于 2020-5-10 19:54
+
+
+
+
+miu的声音更脏一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 5653#       发表于 2020-5-10 20:06
+
+
+
+
+miu的声音更大姐姐，麻麻的声音挺小孩子气的
+有点怀疑是不是因为上辈子炼铜所以喜欢麻麻的声音<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 5654#       发表于 2020-5-10 20:33
+
+
+
+
+这几天每天都得在电脑前趴着码字，后台播放把精选歌回全听完了。咩的很多苦情歌真的好，把我都听湿了，眼角湿了。<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5655#       发表于 2020-5-10 21:21
+
+
+
+
+麻——酱——
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 5656#       发表于 2020-5-10 21:28
+
+
+
+
+麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5657#       发表于 2020-5-10 21:32
+
+
+
+
+再也没有永远18的小麻了，只有正在一年一年走向姨化的咩啊了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 5658#       发表于 2020-5-10 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">麻酱只能活在回忆中了，她永远活在那个夏天
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5659#       发表于 2020-5-10 21:33
+
+
+
+
+感觉miu的语气现在越来越不像咩了<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5660#       发表于 2020-5-10 21:36
+
+
+
+
+18年那会儿是真的挺像的，现在不怎么像了吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5661#       发表于 2020-5-10 21:50
+
+
+
+
+今晚会有吗会有吗(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5662#       发表于 2020-5-10 21:53
+
+
+
+
+至少明天了，睡了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5663#       发表于 2020-5-10 21:55
+
+
+
+
+说是今天没预定，只有盒限
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 5664#       发表于 2020-5-10 22:10
+
+
+
+
+看了miu的推才知道，原来今天是女仆之日啊
+
+
+<img src="https://img.saraba1st.com/forum/202005/10/221010kuhedh2v12h91v99.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200510220933.png</strong> (13.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-10 22:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 5665#       发表于 2020-5-10 22:25
+
+
+
+
+miu，mea，大头这三个人恰萌音挺像的。不如说萌音本来就都比较相似...
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5666#       发表于 2020-5-10 23:56
+
+
+
+
+回血真快啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 5667#       发表于 2020-5-10 23:58
+
+
+
+
+咩缪才是永远滴神啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5668#       发表于 2020-5-11 00:29
+
+
+
+
+还有5天<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 5669#       发表于 2020-5-11 00:41
+
+
+
+
+还搁这刷屏呢
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5670#       发表于 2020-5-11 00:45
+
+
+
+
+又刷屏又刷屏又刷屏又刷屏
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5671#       发表于 2020-5-11 00:45
+
+
+
+
+妹啊，就不能一起发吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5672#       发表于 2020-5-11 00:48
+
+
+
+
+又刷屏，睡了睡了，狗命要紧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5673#       发表于 2020-5-11 00:51
+
+
+
+
+妈的，又不知道要掉多少粉了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+这个傻逼
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5674#       发表于 2020-5-11 00:54
+
+
+
+
+晚安麻酱
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 5675#       发表于 2020-5-11 00:54
+
+
+
+
+把动态当line了，掉粉警告<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 5676#       发表于 2020-5-11 00:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明可以一次说完非要分成好几段发，苔姨被你咩私信轰炸和粽子私信轰炸你咩大概就是这种感觉吧（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5677#       发表于 2020-5-11 00:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">这签名是爸爸活?
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5678#       发表于 2020-5-11 00:56
+
+
+
+
+今日も生きてくれてありがとう
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 5679#       发表于 2020-5-11 00:58
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-11 01:06 编辑 
+
+为什么在母亲节刚过去不久的现在，用“晚安爸爸妈妈”的标会被认为是爸爸活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过标倒是已经换了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5680#       发表于 2020-5-11 01:04
+
+
+
+
+就不能是和家里人聊天后zqsg一波吗
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 5681#       发表于 2020-5-11 01:06
+
+
+
+
+就能不是menhara火力全开
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 5682#       发表于 2020-5-11 01:11
+
+
+
+
+这人突然的温柔真是让人心里一暖
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5683#       发表于 2020-5-11 01:44
+
+
+
+
+麻麻晚安
+
+
+
+
+
+          
