@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-10 04:06** 
+> ## **本文件最后更新于2020-05-10 10:08** 
 
 
 
@@ -17842,4 +17842,683 @@ syl这什么屌伴奏差点没听出来
 
 
 
-                
+
+
+-----
+
+####  Cuppco  
+##### 5505#       发表于 2020-5-10 04:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363588&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-10 03:24</a>
+这个是l2d表情嘛 我看的少 不是fanart嘛
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+我说的上面发的那个推截的直播录像
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5506#       发表于 2020-5-10 06:33
+
+
+
+
+歌回前昏迷了，今天有雀魂联动看真好。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5507#       发表于 2020-5-10 06:44
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-5-10 06:51 编辑 
+
+不用新下载游戏，人数1-4，可以随时突击联动，随时和观众互动游戏，输赢都有节目效果，抽卡花的钱也不多。雀魂，完美。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5508#       发表于 2020-5-10 07:31
+
+
+
+
+昏迷了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5509#       发表于 2020-5-10 07:53
+
+
+
+
+最大的问题是我完全看不懂麻将<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5510#       发表于 2020-5-10 07:56
+
+
+
+
+连麻将都不愿意去学还敢说爱她<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5511#       发表于 2020-5-10 07:57
+
+
+
+
+不懂麻将还敢说你爱麻酱
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5512#       发表于 2020-5-10 07:58
+
+
+
+
+没学我能好好看她播，学了怕不是要被气死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然不学才赚啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5513#       发表于 2020-5-10 08:03
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 08:06 编辑 
+
+我对麻将有梁木学不了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+早起的鸟儿有虫吃
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5514#       发表于 2020-5-10 08:05
+
+
+
+
+tc
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 5515#       发表于 2020-5-10 08:05
+
+
+
+
+这也能突?
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5516#       发表于 2020-5-10 08:06
+
+
+
+
+兔鞠现在都在，可以<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5517#       发表于 2020-5-10 08:06
+
+
+
+
+她这是没睡？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5518#       发表于 2020-5-10 08:07
+
+
+
+
+这兔鞠怎么回事，这都能看到？有被绿到呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5519#       发表于 2020-5-10 08:08
+
+
+
+
+她又改回去了（指作息）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 5520#       发表于 2020-5-10 08:18
+
+
+
+
+这，中午麻将困着打？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5521#       发表于 2020-5-10 08:19
+
+
+
+
+三个小时而已，憋憋尿最后解放一下不成问题（男性的经验）
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 5522#       发表于 2020-5-10 08:33
+
+
+
+
+这就跑了？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5523#       发表于 2020-5-10 08:37
+
+
+
+
+一开始说了就播十分钟确认存活
+大概就自闭完跑来看看阿宅吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5524#       发表于 2020-5-10 08:39
+
+
+
+
+吃早饭去了，唉…<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5525#       发表于 2020-5-10 08:47
+
+
+
+
+这么快就没了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 5526#       发表于 2020-5-10 09:03
+
+
+
+
+情绪不太好,估计也是上播倾诉下
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5527#       发表于 2020-5-10 09:06
+
+
+
+
+估计和早上饭盒说的有关系……这tm可咋整<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+真实在忍不住想说也别在推上说啊，还tm打tag，这意思就是想让她看见吗。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5528#       发表于 2020-5-10 09:14
+
+
+
+
+tag里有啥很奇怪的话吗，我看到最多的是狂犬的感想啊
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5529#       发表于 2020-5-10 09:16
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-5-10 09:27 编辑 
+
+发生了什么？怎么又突然不安了？
+
+
+都被看完了，删了有啥用啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5530#       发表于 2020-5-10 09:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我最近搜tag也是基本看到全是在吹她的，吹她能力和吹她唱歌的都很多，有啥怪话我看掉了吗
+不过她那精准对线的眼光可能真就比较敏感
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5531#       发表于 2020-5-10 09:18
+
+
+
+
+我倒是想起她昨天歌回有一段突然生气的比较诡异，不过没仔细看是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5532#       发表于 2020-5-10 09:24
+
+
+
+
+那可能是删了吧，昨天饭盒回复之后有人看见了截了图发给我了来着。总不可能是以前留着的截图发给我的吧。
+
+唉，特意在净土坛说了别做会影响到她的事，转身就有人给你加了个tag发推，真以为她说不看自己tag就不看了吗。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5533#       发表于 2020-5-10 09:31
+
+
+
+
+建议适当考虑去看心理医生（虽然在这说意义也不大）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5534#       发表于 2020-5-10 09:33
+
+
+
+
+其实我更建议调整作息，0-8点是不安desu高发期
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5535#       发表于 2020-5-10 09:34
+
+
+
+
+是疫情，疫情把现充咩变成了yh咩<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 5536#       发表于 2020-5-10 09:37
+
+
+
+ 本帖最后由 PekoPekoPeko 于 2020-5-10 09:39 编辑 
+
+之前我说希望她疫情期间快乐xxxx你们还喷我<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+事实上咩咩这种现充天天憋着什么都不做迟早憋坏
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cla0221|-1|sb|
+| 时雨rain|-1|欢乐多|
+| weiweiEX|-1|小博鱼桑你又来了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5537#       发表于 2020-5-10 09:39
+
+
+
+
+坏起来了
+
+vtb这行真是世道艰辛啊…<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5538#       发表于 2020-5-10 09:53
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-10 09:56 编辑 
+
+出现了，绝望性的世界观不同（）
+
+
+会看VTB的即使不是死宅也是能一个人对着屏幕傻笑，无法理解孤独有什么问题的家伙啊（不是）
+
+不过要求每个人在年轻的时候就知天命而不惑也不现实（）归根到底还是无法互相理解的问题了
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 5539#       发表于 2020-5-10 10:00
+
+
+
+
+谁来表演个出发了
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 5540#       发表于 2020-5-10 10:02
+
+
+
+
+还是太年轻的原因
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5541#       发表于 2020-5-10 10:03
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-10 10:04 编辑 
+
+这会概括起来还真就是不安desu了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 5542#       发表于 2020-5-10 10:05
+
+
+
+
+又有谁搞了啥活么？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5543#       发表于 2020-5-10 10:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">我是不信她很久不自搜的
+
+
+
+
+
+               
