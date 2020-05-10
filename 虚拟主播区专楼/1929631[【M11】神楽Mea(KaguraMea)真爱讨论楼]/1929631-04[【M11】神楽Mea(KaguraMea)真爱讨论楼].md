@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-10 10:08** 
+> ## **本文件最后更新于2020-05-10 12:10** 
 
 
 
@@ -18521,4 +18521,1074 @@ vtb这行真是世道艰辛啊…<img src="https://static.saraba1st.com/image/sm
 
 
 
-               
+
+
+-----
+
+####  JustW  
+##### 5544#       发表于 2020-5-10 10:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的时候你就算明知自己如果看了的话肯定会很难受，还是控制不住会看。
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 5545#       发表于 2020-5-10 10:15
+
+
+
+ 本帖最后由 oifaker 于 2020-5-10 10:20 编辑 
+
+特大悲报，彻底亡国了（悲），上帝死了x
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5546#       发表于 2020-5-10 10:18
+
+
+
+
+什么亡国了啊
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 5547#       发表于 2020-5-10 10:20
+
+
+
+
+小麻的推特，也不知道到底啥情况<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 5548#       发表于 2020-5-10 10:22
+
+
+
+
+？小麻推特无了？<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5549#       发表于 2020-5-10 10:22
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 10:24 编辑 
+
+看了眼，这
+
+中午希望好好的吧
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5550#       发表于 2020-5-10 10:24
+
+
+
+
+都一年多没上过了，估计是推特抽风吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 5551#       发表于 2020-5-10 10:25
+
+
+
+
+删了就删了吧，人总要往前看的
+
+
+
+
+
+
+
+-----
+
+####  棉花怪  
+##### 5552#       发表于 2020-5-10 10:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">看了下号没了，名字被占了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5553#       发表于 2020-5-10 10:26
+
+
+
+
+唉，最终还是到了这一步
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 5554#       发表于 2020-5-10 10:27
+
+
+
+
+嗯？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5555#       发表于 2020-5-10 10:29
+
+
+
+
+啊 麻倒了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5556#       发表于 2020-5-10 10:29
+
+
+
+
+发情对象莫得了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5557#       发表于 2020-5-10 10:31
+
+
+
+
+？大裤衩和毛绒袜的照片我还没存呢
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5558#       发表于 2020-5-10 10:33
+
+
+
+
+五月事多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5559#       发表于 2020-5-10 10:35
+
+
+
+
+麻没了…？！<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 5560#       发表于 2020-5-10 10:35
+
+
+
+
+这是自己把号销了吗？但为什么是显示2020年五月加入，太长时间没用，号被蓝鸟收回之后有人用这个ID注册了？<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5561#       发表于 2020-5-10 10:36
+
+
+
+
+五月份特有的不安<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5562#       发表于 2020-5-10 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">看来昨晚她说的那番话，还有早上tc30分钟那个气氛，是要忘掉过去吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5563#       发表于 2020-5-10 10:37
+
+
+
+
+她要是能从隔壁学一半就好了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5564#       发表于 2020-5-10 10:37
+
+
+
+
+bs又怎么了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5565#       发表于 2020-5-10 10:38
+
+
+
+
+应该是删推，删得手酸了干脆销号，然后新建了个上锁小号把原来的id占用防止被人占了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5566#       发表于 2020-5-10 10:39
+
+
+
+
+嗯，tc的时候就在删，估计是要挖到什么被她察觉了……
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5567#       发表于 2020-5-10 10:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">麻的内容物已经没有了吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5568#       发表于 2020-5-10 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前她一个小号销号了就被人光速占了ID开始搞事，估计这次是提防了一下
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5569#       发表于 2020-5-10 10:41
+
+
+
+
+这波分析很合理<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5570#       发表于 2020-5-10 10:42
+
+
+
+
+app的缓存还在，再看麻酱最后一眼<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5571#       发表于 2020-5-10 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那么挖到了吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5572#       发表于 2020-5-10 10:54
+
+
+
+
+她剩的推文都研究几遍了还能看出来啥，现在也看不了回复，截截图留个念想了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5573#       发表于 2020-5-10 10:56
+
+
+
+
+也没什么吧，我看是今年2月有人发的什么挖掘实锤的东西同时打了麻和咩的tag 看了一下大致都是老料，就是按tag搜的话下一个是bs18年的合唱，看着太突兀了被她发现了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5574#       发表于 2020-5-10 10:58
+
+
+
+
+联动直播间还没开<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 5575#       发表于 2020-5-10 10:58
+
+
+
+
+以前没关注过，**上的头图是没设置过还是最近改没的？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5576#       发表于 2020-5-10 11:00
+
+
+
+ 本帖最后由 鷹書たかしょ 于 2020-5-10 11:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47365203&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-5-10 10:58</a>
+
+以前没关注过，**上的头图是没设置过还是最近改没的？</blockquote>
+404一直是空头像，当时和凛子的频道一起搜的，她俩一个有头像一个没有
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5577#       发表于 2020-5-10 11:01
+
+
+
+
+还在lol呢
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 5578#       发表于 2020-5-10 11:01
+
+
+
+
+是时候MAKE M楼 MEA AGAIN了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5579#       发表于 2020-5-10 11:01
+
+
+
+
+めあ，你把多少麻酱都毁了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 5580#       发表于 2020-5-10 11:02
+
+
+
+
+唉，也不是什么大事，但还是感觉少了一块，空落落的
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5581#       发表于 2020-5-10 11:02
+
+
+
+
+麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5582#       发表于 2020-5-10 11:03
+
+
+
+
+看直播看直播看直播
+黄兔子不好看吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5583#       发表于 2020-5-10 11:04
+
+
+
+
+谁去看看那个古早王国民的反应?
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5584#       发表于 2020-5-10 11:04
+
+
+
+
+咩姐这。。。联动前玩lol不大好啊
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5585#       发表于 2020-5-10 11:05
+
+
+
+
+古早王国民早崩撤卖溜了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 5586#       发表于 2020-5-10 11:05
+
+
+
+
+这。。。不佳啊
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5587#       发表于 2020-5-10 11:05
+
+
+
+
+结束不了不能点了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+草 这么诚实的吗
+
+
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5588#       发表于 2020-5-10 11:06
+
+
+
+
+来了来了，问题不大
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5589#       发表于 2020-5-10 11:08
+
+
+
+
+刚来，我兔子呢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5590#       发表于 2020-5-10 11:09
+
+
+
+
+看直播了
+
+
+顺带开始对五月有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 5591#       发表于 2020-5-10 11:10
+
+
+
+
+假借上厕所之名霸占直播间.jpg
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5592#       发表于 2020-5-10 11:11
+
+
+
+
+不是。你倒是抽啊？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5593#       发表于 2020-5-10 11:13
+
+
+
+
+我还想看今天3000同接再稳一波<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+就这样吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5594#       发表于 2020-5-10 11:15
+
+
+
+
+才知道国服的号没法进日服友人房。。。难得有空
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5595#       发表于 2020-5-10 11:17
+
+
+
+
+5月10日麻酱受难日成吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5596#       发表于 2020-5-10 11:17
+
+
+
+ 本帖最后由 2014720 于 2020-5-10 11:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47365380&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-10 11:17</a>
+5月10日麻酱受难日成吗</blockquote>
+复活节
+
+syl 兔妈妈好人
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5597#       发表于 2020-5-10 11:26
+
+
+
+
+组长关了吧，没意思
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5598#       发表于 2020-5-10 11:28
+
+
+
+ 本帖最后由 古战场亡魂 于 2020-5-10 11:32 编辑 
+
+组长打牌很合理，看的很舒服。果断弃听防守，学到了。
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5599#       发表于 2020-5-10 11:29
+
+
+
+
+又拿爱丽丝当盾
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5600#       发表于 2020-5-10 11:38
+
+
+
+
+咩竟然赢了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5601#       发表于 2020-5-10 11:42
+
+
+
+
+咩姐这是新开fanbox吗？<img src="https://p.sda1.dev/0/6d078f628e3c3dbf5b7ac35c33e52659/IMG_34418ABC9E6B417266BB79134CDE1573.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 5602#       发表于 2020-5-10 11:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">麻酱。。。。
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 5603#       发表于 2020-5-10 11:49
+
+
+
+
+虽然明白人总是要向前看的，但是总觉得心里空落落的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+BS只剩3人了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5604#       发表于 2020-5-10 11:50
+
+
+
+
+凛子还没销号吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5605#       发表于 2020-5-10 11:50
+
+
+
+
+我身边为什么没有黄兔子，我要是有黄兔子会是这吊样<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5606#       发表于 2020-5-10 11:56
+
+
+
+
+不以那个身份活动了那号留不留就是一念之间的事了，挖掘机再挖也没她自己手头的东西多
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 5607#       发表于 2020-5-10 11:56
+
+
+
+
+因为你不是咩那样有趣的女人
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5608#       发表于 2020-5-10 12:00
+
+
+
+
+mea开着吧，有意思
+
+
+
+
+
+             
