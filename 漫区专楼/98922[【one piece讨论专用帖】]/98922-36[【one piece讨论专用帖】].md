@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-01 02:00** 
+> ## **本文件最后更新于2020-05-10 18:00** 
 
 
 
@@ -587,4 +587,548 @@
 
 
 
-                                                
+
+
+-----
+
+####  陈玉礼  
+##### 52533#       发表于 2020-5-1 08:18
+
+
+
+
+攒了小半年没看 收费前夕一口气看完了 以后周五只能去看英文了吗
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52534#       发表于 2020-5-1 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47264694&amp;ptid=98922" target="_blank">被子十三 发表于 2020-4-30 23:44</a>
+我倒是觉得腾讯的翻译除了人名之外都挺顺畅的
+
+— from OnePlus ONEPLUS A6013, Android 10 of S1 ...</blockquote>
+说起来大陆版和腾讯版佐罗这个翻译在所有名字中最对，不知道索隆这个翻译咋出来的
+
+
+
+
+
+
+
+-----
+
+####  gaomingyu  
+##### 52535#       发表于 2020-5-3 09:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/03/092948uppgkcsbhllv34z5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f30942a7d933c89581682512c61373f082020076 (1).jpg</strong> (110.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-3 09:29 上传
+
+
+
+
+
+
+
+这张图是哪一话里的～～～<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  汤圆です  
+##### 52536#       发表于 2020-5-3 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47264730&amp;ptid=98922" target="_blank">管他三俗 发表于 2020-4-30 23:47</a>
+六子除了德雷克都有牛角啊 这德雷克不是关系户还能进核心组员也是有牌面</blockquote>
+德雷克是纯天然无污染的原生古代种，珍稀度就吊打其他人一头了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 52537#       发表于 2020-5-3 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47286860&amp;ptid=98922" target="_blank">gaomingyu 发表于 2020-5-3 09:30</a>
+这张图是哪一话里的～～～</blockquote>
+同人图
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52538#       发表于 2020-5-3 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47286976&amp;ptid=98922" target="_blank">汤圆です 发表于 2020-5-3 09:49</a>
+
+德雷克是纯天然无污染的原生古代种，珍稀度就吊打其他人一头了</blockquote>
+PG ONE那个棘龙也是啊
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 52539#       发表于 2020-5-4 20:47
+
+
+
+
+这周没有op看我要有戒断反应了<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 52540#       发表于 2020-5-9 00:06
+
+
+
+
+下周休刊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52541#       发表于 2020-5-9 08:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47351124&amp;ptid=98922" target="_blank">powerpyc 发表于 2020-5-9 00:06</a>
+
+下周休刊</blockquote>
+半月刊啦
+
+
+看结尾路飞又要坏事？
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 52542#       发表于 2020-5-9 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47352461&amp;ptid=98922" target="_blank">灰狼 发表于 2020-5-9 08:16</a>
+
+半月刊啦
+
+
+看结尾路飞又要坏事？</blockquote>
+哦哦也好，尾田趁机休息休息
+
+
+路飞闹事，索隆迷路，正常节奏<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  寒山寺  
+##### 52543#       发表于 2020-5-9 10:20
+
+
+
+
+没办法，海贼还是全手绘。
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52544#       发表于 2020-5-9 20:22
+
+
+
+
+2皇结盟，然后宣布大事件，
+
+
+大事件还和儿子有关系，
+
+
+基本钦定这是大妈的儿子了吧。
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 52545#       发表于 2020-5-9 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47359991&amp;ptid=98922" target="_blank">C男人 发表于 2020-5-9 20:22</a>
+
+2皇结盟，然后宣布大事件，
+
+
+大事件还和儿子有关系，</blockquote>
+按大妈的习惯套路，双方儿子女儿联姻吧
+
+
+
+
+
+
+
+-----
+
+####  309465205  
+##### 52546#       发表于 2020-5-9 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47286976&amp;ptid=98922" target="_blank">汤圆です 发表于 2020-5-3 09:49</a>
+
+德雷克是纯天然无污染的原生古代种，珍稀度就吊打其他人一头了</blockquote>
+被山治吊锤那个不也是吗
+
+
+
+
+
+
+
+-----
+
+####  拉菲尔神父  
+##### 52547#       发表于 2020-5-9 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大汉化时代过于生草
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52548#       发表于 2020-5-9 22:22
+
+
+
+
+别跟我说接下来的剧情是大和阴差阳错的和草帽做了朋友当了带路党。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  西奈？！  
+##### 52549#       发表于 2020-5-9 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360033&amp;ptid=98922" target="_blank">tyauto 发表于 2020-5-9 20:26</a>
+
+按大妈的习惯套路，双方儿子女儿联姻吧</blockquote>
+布林再来一次，直接上船吧！
+
+
+
+
+
+
+
+-----
+
+####  frozenblood  
+##### 52550#       发表于 2020-5-10 05:50
+
+
+
+
+喷了，鼠绘这就是罗杰啊，以自己之死开启了大汉化时代
+
+
+
+
+
+
+
+-----
+
+####  finallyeva  
+##### 52551#       发表于 2020-5-10 09:18
+
+
+
+
+路飞怒了,下周休刊,我好像知道后续了
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52552#       发表于 2020-5-10 10:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363756&amp;ptid=98922" target="_blank">frozenblood 发表于 2020-5-10 05:50</a>
+
+喷了，鼠绘这就是罗杰啊，以自己之死开启了大汉化时代</blockquote>
+艹，那熊猫和热情就是什么洛克斯金狮子么
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 52553#       发表于 2020-5-10 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363756&amp;ptid=98922" target="_blank">frozenblood 发表于 2020-5-10 05:50</a>
+
+喷了，鼠绘这就是罗杰啊，以自己之死开启了大汉化时代</blockquote>
+鼠绘之前就大汉化了 后来其他汉化被鼠绘弄死了才变成鼠绘独占的
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52554#       发表于 2020-5-10 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47364357&amp;ptid=98922" target="_blank">finallyeva 发表于 2020-05-10 09:18:36</a>
+路飞怒了,下周休刊,我好像知道后续了</blockquote>與其說是武，不如說是舞。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52555#       发表于 2020-5-10 11:32
+
+
+
+
+索隆迷路就是被wt指派去收拾大和的吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 52556#       发表于 2020-5-10 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363756&amp;ptid=98922" target="_blank">frozenblood 发表于 2020-5-10 05:50</a>
+
+喷了，鼠绘这就是罗杰啊，以自己之死开启了大汉化时代</blockquote>
+帮帮忙哦，这帮人也配
+
+
+
+
+
+
+
+-----
+
+####  frozenblood  
+##### 52557#       发表于 2020-5-10 11:47
+
+
+
+
+我记得鼠绘前就是熊猫，热情这种吧，昨天一刷贴吧能有10来个个人汉化，囧了
+
+
+
+
+
+
+
+-----
+
+####  Alkarlindil  
+##### 52558#       发表于 2020-5-10 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363756&amp;ptid=98922" target="_blank">frozenblood 发表于 2020-5-10 05:50</a>
+喷了，鼠绘这就是罗杰啊，以自己之死开启了大汉化时代</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想要我的财宝吗（指二轮融资）
+
+
+
+
+
+
+
+-----
+
+####  细雨湿流光  
+##### 52559#       发表于 2020-5-10 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47258256&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-4-30 13:16</a>
+
+凯多儿子名字：Yamato ，大和。</blockquote>
+难怪凯多这么想把基德海贼团的基拉认过来
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52560#       发表于 2020-5-10 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47365933&amp;ptid=98922" target="_blank">细雨湿流光 发表于 2020-5-10 12:16</a>
+
+难怪凯多这么想把基德海贼团的基拉认过来</blockquote>
+种命万能+1
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52561#       发表于 2020-5-10 13:58
+
+
+
+
+这么多人物真不知尾田怎么收场，战斗的时候一个个画是不可能的，但是你让他们酱油好像又说不过去，还还不如不登场。
+
+
+
+
+
+
+
+-----
+
+####  satanas  
+##### 52562#       发表于 2020-5-10 17:05
+
+
+
+
+凯多没喝醉的时候 感觉挺靠谱的啊 KING也很懂人情世故 而且几个干部的画风正常比例挺高 有种好久没见到这么认真的海贼团的感觉
+
+
+
+
+
+                                               
