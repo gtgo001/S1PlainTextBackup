@@ -2,11 +2,10 @@
 
 本仓库用来存放S1部分高楼的纯文本备份，以50楼为一份文件，请善用搜索功能。
 
-被冲水的、超过一个月没有翻页的帖子移到了此处：https://github.com/TomoeMami/S1PlainTextArchive
+* 更多过往帖子
 
-- Gitee地址：https://gitee.com/TomoeMami/S1PlainTextBackup
+https://github.com/TomoeMami/S1PlainTextArchive
 
-- GitHub地址：https://github.com/TomoeMami/S1PlainTextBackup
 
 *** 目前支持的特殊效果
 
