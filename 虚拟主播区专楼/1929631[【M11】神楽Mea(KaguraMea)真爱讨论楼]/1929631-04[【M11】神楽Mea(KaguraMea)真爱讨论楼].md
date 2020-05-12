@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-12 10:08** 
+> ## **本文件最后更新于2020-05-13 00:10** 
 
 
 
@@ -22173,10 +22173,11 @@ nga禁中之人啊，讨论完人没了<img src="https://static.saraba1st.com/im
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| lovcavil|-2||
 | GRMeA104|-1||
 | 2014720|-1|你是杏仁吗|
 
@@ -22219,4 +22220,681 @@ nga禁中之人啊，讨论完人没了<img src="https://static.saraba1st.com/im
 
 
 
-       
+
+
+-----
+
+####  planetcd  
+##### 5764#       发表于 2020-5-12 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又来了个魔怔人，那么在意那么上头就果断离开找点别的兴趣的啊，老想着同化别人，扭扭捏捏的
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 5765#       发表于 2020-5-12 10:51
+
+
+
+
+这就是小博禹小号啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5766#       发表于 2020-5-12 10:51
+
+
+
+
+什么魔怔人，他就是一脑残，看娱乐圈把脑子看没了，说傻逼话是为了显示自己清醒，高人一等，u皇那句话怎么说的，你必须拯救v圈
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5767#       发表于 2020-5-12 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楽，弱智time摩多摩多
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5768#       发表于 2020-5-12 11:45
+
+
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 
+
+请翻看[@PekoPekoPeko](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=530074) 的论坛记录看他是不是真的够阴阳，我也正好戒了你坛
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5769#       发表于 2020-5-12 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47327394&amp;ptid=1929631" target="_blank">矢吹奈子 发表于 2020-5-7 01:24</a>
+
+你楼举报好多啊，举报按钮不是这么用的啊。
+
+这样吧，要谁死回复我,我明天检查对方的回帖，确实够阴阳就一换 ...</blockquote>
+而且你这层底下就有一个回复要一换一的，你到底有没有去检查小博禹他小号的回帖的？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5770#       发表于 2020-5-12 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47387444&amp;ptid=1929631" target="_blank">KKKt 发表于 2020-5-12 08:50</a>
+之前不是有人说了要跟这傻逼一换一的吗，怎么柰子就没消息了</blockquote>
+我举报了他好几回没反应的啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5771#       发表于 2020-5-12 11:59
+
+
+
+
+都说了黑名单就可以了何必搭上自己账号<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，一没工作跑路中的neet随口糊弄你们的话你也信？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 5772#       发表于 2020-5-12 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47389701&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-5-12 11:59</a>
+都说了黑名单就可以了何必搭上自己账号，一没工作跑路中的neet随口糊弄你们的话你也信？
+
+—— 来自 ...</blockquote>
+yysy，跑路贴是rpg，虽然图一乐效果还成
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5773#       发表于 2020-5-12 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47389825&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-5-12 12:07</a>
+
+yysy，跑路贴是rpg，虽然图一乐效果还成</blockquote>
+老实说，版主带头当长风难度那不是更恶劣么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5774#       发表于 2020-5-12 12:35
+
+
+
+
+今天有预告吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5775#       发表于 2020-5-12 13:07
+
+
+
+
+想听歌了，半夜一个人听你麻唱抒情歌，用手轻轻抚摸她live2D的脸流着泪是一件很美好的事情<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5776#       发表于 2020-5-12 13:46
+
+
+
+
+这次的一换一只有那位楼友死了么，等小博禹大号出来我再搭自己的号上去吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5777#       发表于 2020-5-12 14:07
+
+
+
+
+你们这样燃烧自己值得吗<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5778#       发表于 2020-5-12 14:09
+
+
+
+
+新时代海洋法也还行吧
+
+
+
+翻了下记录，阿咩跟苔苔聊的还蛮久的，估计今天又是下午起床的节奏了
+
+
+syl，看到有人画了mea的夜に駆ける主题fanart，去搜了下歌感觉还蛮好听的，希望哪天能听见阿咩唱这歌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 5779#       发表于 2020-5-12 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47391178&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-12 14:09</a>
+
+新时代海洋法也还行吧</blockquote>
+我这几天也在听这个，虽然也希望但是感觉曲风mea唱不来的感觉。。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5780#       发表于 2020-5-12 19:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听多了回贴都回歪了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5781#       发表于 2020-5-12 20:53
+
+
+
+
+大街上都好安静啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5782#       发表于 2020-5-12 20:59
+
+
+
+
+今晚必有一播
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5783#       发表于 2020-5-12 21:00
+
+
+
+
+明天中午有黄兔子联动，所以今晚不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5784#       发表于 2020-5-12 21:14
+
+
+
+
+没错，今晚必不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5785#       发表于 2020-5-12 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">说好今天努力的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5786#       发表于 2020-5-12 21:40
+
+
+
+
+还没醒吧，醒了可能会有凌晨tc或早上tc吧，明天她会开台吗，明明不久前播过但总给我一种好久没在**播的感觉
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 5787#       发表于 2020-5-12 21:42
+
+
+
+
+她最近感觉很累的样子啊，或者是半夜想播怕被阿宅骂？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5788#       发表于 2020-5-12 22:08
+
+
+
+
+也许又有什么内绪？但感觉她的精神状况很差……
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 5789#       发表于 2020-5-12 22:15
+
+
+
+
+你们到底怎么看出来精神状况的。。。有什么细节暗示吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5790#       发表于 2020-5-12 22:18
+
+
+
+
+因为之前在苔苔那里留言说身体状态不好了，不过也说了醒了之后会慢慢恢复
+
+
+（不过精神状态好的话也不会没事就销号8
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5791#       发表于 2020-5-12 22:18
+
+
+
+
+因为她是正在姨化的yhm啊
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 5792#       发表于 2020-5-12 22:21
+
+
+
+
+或许她也犯了啥ptsd吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5793#       发表于 2020-5-12 22:28
+
+
+
+
+你咩姐老ptsd了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5794#       发表于 2020-5-12 22:30
+
+
+
+
+你咩姐不说清是什么事就一律当没有，除非我出发了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5795#       发表于 2020-5-12 22:46
+
+
+
+
+我有点516ptsd了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5796#       发表于 2020-5-12 22:48
+
+
+
+
+4月初她不播的时候理由就说是心情状态不好不想上来喷人来着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">估计这会也差不了太多
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 5797#       发表于 2020-5-12 22:49
+
+
+
+
+可能她因为ptsd所以出发了
+
+
+这几天也许真的有ptsd，反正想播再播吧
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5798#       发表于 2020-5-12 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿咩老心情不好了，我很放心
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5799#       发表于 2020-5-12 22:59
+
+
+
+
+我很烦
+怎么了嘛
+怎么能跟阿宅讲嘛
+哦哦哦
+阿宅连安慰人都不会吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5800#       发表于 2020-5-12 23:02
+
+
+
+
+我觉得她很烦就是一气之下删了号突然发现号里有东西没存彻底丢了在那懊悔万分，大概
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5801#       发表于 2020-5-12 23:24
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-12 23:39 编辑 
+
+推特删号一个月内能直接恢复来着
+
+syl她这种不知道开过多少小号的人能不知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5802#       发表于 2020-5-12 23:35
+
+
+
+
+你们谁去告诉她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 5803#       发表于 2020-5-12 23:35
+
+
+
+
+不知道她知不知道
+
+今天又不动我有点担心
+
+
+
+
+
+      
