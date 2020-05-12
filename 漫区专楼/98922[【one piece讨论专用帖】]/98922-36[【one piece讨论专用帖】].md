@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-10 18:00** 
+> ## **本文件最后更新于2020-05-12 10:00** 
 
 
 
@@ -1131,4 +1131,561 @@ PG ONE那个棘龙也是啊
 
 
 
-                                               
+
+
+-----
+
+####  游蜓  
+##### 52563#       发表于 2020-5-10 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">六子的两个女角色好棒啊，越看越喜欢
+
+
+
+
+
+
+
+-----
+
+####  西奈？！  
+##### 52564#       发表于 2020-5-10 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47367023&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-5-10 13:58</a>
+
+这么多人物真不知尾田怎么收场，战斗的时候一个个画是不可能的，但是你让他们酱油好像又说不过去，还还不如 ...</blockquote>
+最终篇章一起登场从头打到尾<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52565#       发表于 2020-5-10 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47369018&amp;ptid=98922" target="_blank">satanas 发表于 2020-5-10 17:05</a>
+
+凯多没喝醉的时候 感觉挺靠谱的啊 KING也很懂人情世故 而且几个干部的画风正常比例挺高 有种好久没见到这么 ...</blockquote>
+毕竟是海上皇帝，海军都很难奈何的人物
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 52566#       发表于 2020-5-10 22:24
+
+
+
+
+节奏太慢了，我看💊，尾田江郎才jin……
+
+
+
+
+
+
+
+
+
+哎呦我操凌空六子真棒，乌尔提我老婆prpr<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  satanas  
+##### 52567#       发表于 2020-5-10 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47371998&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-5-10 22:15</a>
+
+毕竟是海上皇帝，海军都很难奈何的人物</blockquote>
+主要是上个章节 大妈那边的人物的画风和描写 让我做好了凯多这边就是差不多的动物园的预期 现在我怀疑之所以设定凯多被海军捉过很多次 是有别的意思的
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52568#       发表于 2020-5-10 23:21
+
+
+
+
+比起主线更想看基德团和飞六胞的刻画。
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52569#       发表于 2020-5-11 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47369018&amp;ptid=98922" target="_blank">satanas 发表于 2020-5-10 17:05</a>
+
+凯多没喝醉的时候 感觉挺靠谱的啊 KING也很懂人情世故 而且几个干部的画风正常比例挺高 有种好久没见到这么 ...</blockquote>
+可惜御田回忆的篇章把凯多的逼格打进了谷底...现在有点硬拉的感觉了
+
+总之御田回忆真的是太败笔了，把正方反方的逼格都给弄没了
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 52570#       发表于 2020-5-11 12:49
+
+
+
+
+喷了，鼠绘是罗杰都出来了，鼠绘明明是赤狗
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52571#       发表于 2020-5-11 12:55
+
+
+
+
+这个时候了又出新人物，飞六包早就提过不说，又出一个凯多儿子，这能讲好故事吗
+
+
+
+
+
+
+
+-----
+
+####  烤鱼饼  
+##### 52572#       发表于 2020-5-11 12:56
+
+
+
+
+但是十年前就有图源出来后一堆人汉化的情况了啊，还不如想想是谁让这种状况消失了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52573#       发表于 2020-5-11 14:48
+
+
+
+
+其实如果能做到周五出正版，我付费看看也不是不行，现在还要等周一。我知道是要给日本本土jump杂志让时间，但是这都什么时代了，怎么可能明知道出新了还要等等4天才看，有这时间盗版早看完了，那肯定也不会再去付费买一遍正版。感觉jump的运营对现在网络漫画读者的观看期望一点也不了解啊。你要是真能做到正版周4同步出或者周五出，能比盗版抢出1天时间来，我相信很多人付费眼都不会眨的，这样正版收入也有保障，弄成现在这样真是自损1千。
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52574#       发表于 2020-5-11 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47379293&amp;ptid=98922" target="_blank">zuga 发表于 2020-5-11 14:48</a>
+其实如果能做到周五出正版，我付费看看也不是不行，现在还要等周一。我知道是要给日本本土jump杂志让时间， ...</blockquote>
+这不可能的啊。实体杂志这点无解
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52575#       发表于 2020-5-11 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47379524&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2020-5-11 15:08</a>
+
+这不可能的啊。实体杂志这点无解</blockquote>
+要说对比一些新出的电影，网络版要给院线版让时间我还可以理解，但是毕竟在影院观影体验也是不同的。这个在线漫画和实体杂志观看体验上还真说不出优劣，这样还得平白等4天。
+
+干脆让jump放弃实体，全部移植在线版吧！（做梦）<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52576#       发表于 2020-5-11 15:17
+
+
+
+ 本帖最后由 千叶铁矢 于 2020-5-11 15:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47379583&amp;ptid=98922" target="_blank">zuga 发表于 2020-5-11 15:13</a>
+
+要说对比一些新出的电影，网络版要给院线版让时间我还可以理解，但是毕竟在影院观影体验也是不同的。这个 ...</blockquote>
+
+与其做梦网络版提前，集英社给印刷厂施压可能更现实点，虽然都不可能<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 52577#       发表于 2020-5-11 17:20
+
+
+
+
+看知乎的说法，罗的全名トラファルガー・D・ワーテル・ロー，这个ワーテル・ロー日文里和滑铁卢同音，难道暗示着罗要干掉大妈的拿破仑？
+
+— from OnePlus ONEPLUS A6013, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 52578#       发表于 2020-5-11 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47379293&amp;ptid=98922" target="_blank">zuga 发表于 2020-5-11 14:48</a>
+其实如果能做到周五出正版，我付费看看也不是不行，现在还要等周一。我知道是要给日本本土jump杂志让时间， ...</blockquote>
+所以说其实现在周四周五的盗版图源到底是哪里流出来的？我好奇好久了，以前一直以为盗版就是jump扫图
+
+— from OnePlus ONEPLUS A6013, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52579#       发表于 2020-5-11 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381046&amp;ptid=98922" target="_blank">被子十三 发表于 2020-5-11 17:21</a>
+
+所以说其实现在周四周五的盗版图源到底是哪里流出来的？我好奇好久了，以前一直以为盗版就是jump扫图
+
+
+— ...</blockquote>
+jump是周四发售，那最少周一周二就得把电子版杂志稿发印刷厂了，据说大部分流出是送稿和印刷期间发生的。
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 52580#       发表于 2020-5-11 18:08
+
+
+
+ 本帖最后由 Tomorrow_D 于 2020-5-11 18:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381104&amp;ptid=98922" target="_blank">zuga 发表于 2020-5-11 17:26</a>
+
+jump是周四发售，那最少周一周二就得把电子版杂志稿发印刷厂了，据说大部分流出是送稿和印刷期间发生的。 ...</blockquote>
+jump是周一发售
+
+
+换句话说，之所以国内正版也要等到周一才能看到，不是因为要刻意比jump发售日期晚几天，而是因为之前之所以周四就能看到，完全是因为汉化组（韩肉组、英肉组等等）提前偷跑。
+
+
+在顶上战争期间甚至出现过偷跑提前整整一周的情况。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52581#       发表于 2020-5-11 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381027&amp;ptid=98922" target="_blank">被子十三 发表于 2020-5-11 17:20</a>
+
+看知乎的说法，罗的全名トラファルガー・D・ワーテル・ロー，这个ワーテル・ロー日文里和滑铁卢同音，难道 ...</blockquote>
+特拉法尔加也是拿破仑的败仗
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52582#       发表于 2020-5-11 18:26
+
+
+
+ 本帖最后由 仟音一心 于 2020-5-11 18:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381046&amp;ptid=98922" target="_blank">被子十三 发表于 2020-5-11 17:21</a>
+
+所以说其实现在周四周五的盗版图源到底是哪里流出来的？我好奇好久了，以前一直以为盗版就是jump扫图
+
+
+— ...</blockquote>
+怎么可能是JUMP扫图？JUMP都是下周一发售，都是印刷厂和书店进货时流出的，集英社也没什么办法。
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 52583#       发表于 2020-5-11 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381850&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-5-11 18:26</a>
+
+怎么可能是JUMP扫图？JUMP都是下周一发售，都是印刷厂流出的，集英社也没什么办法。 ...</blockquote>
+其实周四的时候一些地方就已经能拿到印好的jump了。
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52584#       发表于 2020-5-11 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381892&amp;ptid=98922" target="_blank">Tomorrow_D 发表于 2020-5-11 18:29</a>
+
+其实周四的时候一些地方就已经能拿到印好的jump了。</blockquote>
+就是还没送到店里的那些。
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 52585#       发表于 2020-5-11 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47379293&amp;ptid=98922" target="_blank">zuga 发表于 2020-5-11 14:48</a>
+其实如果能做到周五出正版，我付费看看也不是不行，现在还要等周一。我知道是要给日本本土jump杂志让时间， ...</blockquote>
+兄弟，问题是民间汉化是偷跑啊，正版放周一不是给jump让时间，而是同步啊。周一发售的杂志提早一周就得开始铺货，总有提前一周的情报，基本都是书店流出的，碰到节假日合刊，杂志也是提前印好送书店的，所以经常合刊了就一个情报看一周多。相比销售网络，送稿和印刷偷跑一抓一准。
+
+正如：这个在线漫画和实体杂志观看体验上还真说不出优劣
+可以稳定在线抢先看的情况下，你还会去买杂志么？
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  一杯茶  
+##### 52586#       发表于 2020-5-11 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381027&amp;ptid=98922" target="_blank">被子十三 发表于 2020-5-11 17:20</a>
+
+看知乎的说法，罗的全名トラファルガー・D・ワーテル・ロー，这个ワーテル・ロー日文里和滑铁卢同音，难道 ...</blockquote>
+滑铁卢的说法比较早了，不过那个时候是和“law（罗的谐音）”联系起来的，彼时还是在德岛打明哥呢。所以说法是象征“无法”的明哥，会在“law”这里遭遇滑铁卢之败
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 52587#       发表于 2020-5-11 21:14
+
+
+
+
+飞六胞这种空降系小BOSS和司法岛那种工头跳狼观感上比不了啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52588#       发表于 2020-5-11 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47379583&amp;ptid=98922" target="_blank">zuga 发表于 2020-5-11 15:13</a>
+要说对比一些新出的电影，网络版要给院线版让时间我还可以理解，但是毕竟在影院观影体验也是不同的。这个 ...</blockquote>
+实体和线上还是有区别的，很多人就是喜欢杂种拿在手上的感觉。被放弃实体转线上，很多读者都会闹的。
+
+
+
+
+
+
+
+-----
+
+####  ohi  
+##### 52589#       发表于 2020-5-11 23:56
+
+
+
+
+B漫这分页看得真难受
+
+
+
+
+
+
+
+-----
+
+####  游蜓  
+##### 52590#       发表于 2020-5-12 00:34
+
+
+
+
+仔细想想凌空六子都是前船长，那说不定打着打着反了呢
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52591#       发表于 2020-5-12 04:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47385983&amp;ptid=98922" target="_blank">游蜓 发表于 2020-5-12 00:34</a>
+
+仔细想想凌空六子都是前船长，那说不定打着打着反了呢</blockquote>
+德雷克是个卧底，100%反
+
+不过其他的如果还反的话，凯多那边没人了吧...路飞那边人这么多，光是六子就分不过来了，应该不可能反
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 52592#       发表于 2020-5-12 08:06
+
+
+
+
+比较好奇黑色玛利亚原来的海贼团是个什么风格
+
+
+
+
+
+                                              
