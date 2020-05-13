@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-13 14:06** 
+> ## **本文件最后更新于2020-05-13 16:06** 
 
 
 
@@ -24253,4 +24253,1210 @@ line倒也没那么私人，真正私人的是电话号码
 
 
 
-    
+
+
+-----
+
+####  the_cook  
+##### 5881#       发表于 2020-5-13 14:06
+
+
+
+
+主要是这cp营业mea一女的属于作践自己的一方
+
+粉丝看了不舒服正常
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 5882#       发表于 2020-5-13 14:06
+
+
+
+
+当你们还在研究Line的时候，她的**偷偷爬到15.8了
+
+
+<img src="https://img.saraba1st.com/forum/202005/13/140637sz6hrq2q606he2q8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200513140613.png</strong> (62.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-13 14:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5883#       发表于 2020-5-13 14:07
+
+
+
+
+都5月13号了还作践的只能说没看过直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5884#       发表于 2020-5-13 14:08
+
+
+
+
+不会真有人还在幻想mea酱在乎你们这些死宅吧？
+天狗那句话怎么讲来着，不愿意看就滚？别bb
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5885#       发表于 2020-5-13 14:09
+
+
+
+
+别奶了别奶了
+原来黄姨就是温水煮青蛙啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+现在只有b限卫星apex卫星看房卫星才能治愈我的心<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5886#       发表于 2020-5-13 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">与五元cp营业的咩咩喜欢吗
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5887#       发表于 2020-5-13 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403588&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-13 14:09</a>
+别奶了别奶了
+原来黄姨就是温水煮青蛙啊
+现在只有b限卫星apex卫星看房卫星才能治愈我的心 ...</blockquote>
+。。。看房卫星落地了，前天tc啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5888#       发表于 2020-5-13 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403580&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 14:08</a>
+
+不会真有人还在幻想mea酱在乎你们这些死宅吧？
+
+天狗那句话怎么讲来着，不愿意看就滚？别bb ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那您来这干嘛呢？
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117)  我申请和小博禹一换一，顺便为了给论坛创收，我建议至少6个月或者1年吧
+
+
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5889#       发表于 2020-5-13 14:11
+
+
+
+
+像我这样根本不看的观众，就不会喷她、不会有意见<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+不看mea的天狗，才是好天狗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5890#       发表于 2020-5-13 14:11
+
+
+
+
+整个小号得了，大号不值得
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5891#       发表于 2020-5-13 14:12
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-13 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403580&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 14:08</a>
+不会真有人还在幻想mea酱在乎你们这些死宅吧？
+天狗那句话怎么讲来着，不愿意看就滚？别bb ...</blockquote>
+@矢吹奈子
+小博鱼放出来不到一白天又要开始车轱辘他那套性爱和七色太监了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样能来和他一换一吗
+
+草怎么有人先我一步的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我来好吧，正好可以换回自己ID的号了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5892#       发表于 2020-5-13 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403596&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-13 14:10</a>
+。。。看房卫星落地了，前天tc啊</blockquote>
+没有专门的杂谈了？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5893#       发表于 2020-5-13 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403623&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-13 14:12</a>
+没有专门的杂谈了？</blockquote>
+就这中午的毛线网怎么播。。黄金时间不得卡的飞起来
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5894#       发表于 2020-5-13 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403603&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-13 14:11</a>
+那您来这干嘛呢？
+
+
+@矢吹奈子  我申请和小博禹一换一，顺便为了给论坛创收，我建议至少6个月或者1 ...</blockquote>
+天狗为什么要自相残杀<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">我不来这里了好吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5895#       发表于 2020-5-13 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403612&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 14:11</a>
+
+像我这样根本不看的观众，就不会喷她、不会有意见
+
+不看mea的天狗，才是好天狗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看都不看了还来放什么屁啊，赶紧滚吧
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117)  奈子大老爷来做做主啊
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5896#       发表于 2020-5-13 14:17
+
+
+
+
+今天还播么
+<img src="https://p.sda1.dev/0/e9ee8400a709346f142f74744c0f0c70/6427854574695156F6442940CEDCA31F.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5897#       发表于 2020-5-13 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403685&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-5-13 14:17</a>
+今天还播么</blockquote>
+日本30小时制
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5898#       发表于 2020-5-13 14:18
+
+
+
+
+今天必不播
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5899#       发表于 2020-5-13 14:19
+
+
+
+
+最近狼来了玩太多了，不敢信
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5900#       发表于 2020-5-13 14:19
+
+
+
+
+好奶
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5901#       发表于 2020-5-13 14:23
+
+
+
+ 本帖最后由 小博禹 于 2020-5-13 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403648&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-13 14:14</a>
+看都不看了还来放什么屁啊，赶紧滚吧
+
+
+@矢吹奈子  奈子大老爷来做做主啊</blockquote>
+mea酱自己说的不想看自己右上角，人家cp直播，就算当场结婚都正常，给个line都要来哔哔赖赖，这样是要被mea酱讨厌的哟<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+不过今晚说不定就要在推上晒跟五元的甜蜜恩爱求婚了，这边建议先取关推特哟<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX|-1|又开始装起来给mea说话了可还行.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5902#       发表于 2020-5-13 14:23
+
+
+
+
+草，去翻了半天发现时间跨度太大，放弃了。
+
+但我绝对是有印象的，因为稍微平息了我当时的ptsd来着，应该在那次凌晨tcmc之前（吧？）
+
+不管怎么说line还是更私人的吧，其实这个line不希望给就和我当初也不希望214线下联动一样，比如说即使和卵用这么打赌我也是不希望给的，和是不是特定的人无关。
+
+希望在电脑送回来之后播……
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5903#       发表于 2020-5-13 14:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。。。cly你想的还挺多
+别找女朋友了，你看我行不行
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5904#       发表于 2020-5-13 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403449&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-13 13:59</a>
+真的说过这个吗？我怎么一点印象都没
+
+
+推特晒就晒了呗，这不是好事儿吗</blockquote>
+就只准自己说好，不准别人说不好呗，这和当初的六字母人有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这就是历史的轮回吧
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5905#       发表于 2020-5-13 14:26
+
+
+
+
+啊这，要会限安抚gachi了，这招我吃了，给我个头像吧求求你了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5906#       发表于 2020-5-13 14:27
+
+
+
+
+。。我延迟2s，怎么抢？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5907#       发表于 2020-5-13 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5908#       发表于 2020-5-13 14:27
+
+
+
+
+草是会限么，我说怎么外面看不到消息
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5909#       发表于 2020-5-13 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403545&amp;ptid=1929631" target="_blank">the_cook 发表于 2020-5-13 14:06</a>
+主要是这cp营业mea一女的属于作践自己的一方
+
+粉丝看了不舒服正常</blockquote>
+不要再找这些借口了，能先说服自己吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5910#       发表于 2020-5-13 14:28
+
+
+
+
+我没想多啊，我在想电脑能不能赶紧给我送回来赶会限……手机的梯子到期了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5911#       发表于 2020-5-13 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47403791&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 14:26</a>
+
+就只准自己说好，不准别人说不好呗，这和当初的六字母人有什么区别
+
+这就是历史的轮回吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以在外面随便开贴说不好，说不定还会有一大堆人给你加鹅，但你跑进来的结果估计就是送头了，你觉得愿意给s1送钱就继续吧，顺便你在这楼里今天的每一句yygq我都点了，不怂的话就继续发
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5912#       发表于 2020-5-13 14:32
+
+
+
+
+才发现不知道啥时候会员到期了，明明之前还有余额来着
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5913#       发表于 2020-5-13 14:33
+
+
+
+
+现在才反应过来这说话风格是草牛又开号了吧
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5914#       发表于 2020-5-13 14:40
+
+
+
+
+淦，这么早，只能把那45一个月的卡的离谱的**赶紧续上了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+晚上再开估计就不用花这冤枉钱了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5915#       发表于 2020-5-13 14:41
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5916#       发表于 2020-5-13 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5917#       发表于 2020-5-13 14:45
+
+
+
+
+line好像没拿到，呜呜呜我ptsd好了，会限太可爱了像个憨憨一样
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5918#       发表于 2020-5-13 14:46
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5919#       发表于 2020-5-13 14:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以还是有后续企划的嘛（这都是节目的一部分.jpg
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5920#       发表于 2020-5-13 14:47
+
+
+
+
+这弱智傻逼**不能后台
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5921#       发表于 2020-5-13 14:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  发飙的水  
+##### 5922#       发表于 2020-5-13 15:02
+
+
+
+ 本帖最后由 发飙的水 于 2020-5-13 15:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404023&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-13 14:47</a>
+
+这弱智傻逼**不能后台</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5923#       发表于 2020-5-13 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5924#       发表于 2020-5-13 15:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">所以那个打tag的还是被你咩姐看到了，至于吗，这种踢猫效应
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5925#       发表于 2020-5-13 15:14
+
+
+
+
+完，15，16，17都有联动，除了16号的全是和五元加苔姨嗯拱，不过再怎说也比去年516好是吧，艹<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5926#       发表于 2020-5-13 15:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">往好处想，联动涨粉快，直播看不下去可以打开斗虫网站看数字
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 5927#       发表于 2020-5-13 15:19
+
+
+
+
+上班会限真tm开心啊淦，幻灭了，脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5928#       发表于 2020-5-13 15:19
+
+
+
+ 本帖最后由 路人庚 于 2020-5-13 15:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以也听听你咩姐会限里说的别的话啊，总不能只听一半，不听另一半吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5929#       发表于 2020-5-13 15:21
+
+
+
+
+有同传吗，花45买了个废物梯……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5930#       发表于 2020-5-13 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">群里有吧
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5931#       发表于 2020-5-13 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404013&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-13 14:46</a>
+所以还是有后续企划的嘛（这都是节目的一部分.jpg</blockquote>
+这不是mea酱自己都知道做错了要想办法补救，而有些坟头忙着先开除别人粉籍，和当初六字母粉头的唯一区别大概就是能量没他们大，贡献也没他们大，庆幸的是负面影响也不会有他们大<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5932#       发表于 2020-5-13 15:23
+
+
+
+
+虚无
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5933#       发表于 2020-5-13 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404366&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-13 15:21</a>
+
+群里有吧</blockquote>
+我没加啥群，反正加的几个都没有……
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5934#       发表于 2020-5-13 15:25
+
+
+
+
+还特定粉丝小号的？
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 5935#       发表于 2020-5-13 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404359&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-13 15:21</a>
+
+有同传吗，花45买了个废物梯……</blockquote>
+你这梯子太烂了 要私发你在用的吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5936#       发表于 2020-5-13 15:29
+
+
+
+ 本帖最后由 惑星 于 2020-5-13 15:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404368&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 15:21</a>
+
+这不是mea酱自己都知道做错了要想办法补救，而有些坟头忙着先开除别人粉籍，和当初六字母粉头的唯一区别 ...</blockquote>
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 
+
+做错了？做错什么了？就不能是提前准备的？你什么人这么牛逼按着mea的头给人认错？草你妈的，开你妈的粉籍，你是不是粉丝和你没妈冲突吗
+
+青天大老爷，能不能直接封ip啊，我和他一换一
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5937#       发表于 2020-5-13 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404435&amp;ptid=1929631" target="_blank">黒長直姫 发表于 2020-5-13 15:27</a>
+
+你这梯子太烂了 要私发你在用的吗</blockquote>
+其实我电脑的可以，但是我电脑昨晚刚换送去修了还没送回来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+一般单人错过就错过了吧，非这个点会限……<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5938#       发表于 2020-5-13 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404368&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 15:21</a>
+
+这不是mea酱自己都知道做错了要想办法补救，而有些坟头忙着先开除别人粉籍，和当初六字母粉头的唯一区别 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和人联动怎么就做错了？不得不说像你这样的精神病独角兽观众真是有够好笑的，话说你不是自己滚了吗？怎么还在看这楼啊？喜欢找喷的傻逼吗，抖Mか？
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 继续一换一申请
+
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5939#       发表于 2020-5-13 15:35
+
+
+
+
+还是先想办法修网吧（）
+
+
+不过也不是努力就能办到的事
+
+
+话说接下来是连着打三天麻将？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5940#       发表于 2020-5-13 15:36
+
+
+
+
+不确定是不是三天麻将
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5941#       发表于 2020-5-13 15:37
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-13 15:44 编辑 
+
+15号还是17号是预定的mc吧
+
+144p播三秒卡五秒，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">不知道哪有录播可看……
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 5942#       发表于 2020-5-13 15:46
+
+
+
+
+我这边用wifi延迟至少三分钟，评论都从屏幕上刷走了我才听到她聊的那部分<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">换了流量之后好多了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 5943#       发表于 2020-5-13 15:49
+
+
+
+
+醒了，血亏，睡了。延迟说一下，舞元也说v里面没人有他的line，哪怕同社关系很好的周力一
+
+
+
+
+
+
+
+-----
+
+####  age45  
+##### 5944#       发表于 2020-5-13 15:53
+
+
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 
+
+
+如果觉得[@小博禹](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=513705) 足够阴阳怪气的话请用我的的号多换他一个月
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5945#       发表于 2020-5-13 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404459&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-5-13 15:29</a>
+和人联动怎么就做错了？不得不说像你这样的精神病独角兽观众真是有够好笑的，话说你不是自己滚了 ...</blockquote>
+故意模糊概念没意思，你明明知道这个错了指的是“交换line”，而且我又没看，是你楼自己先起反应的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 5946#       发表于 2020-5-13 16:03
+
+
+
+
+这个小博禹到底啥成分，是anti还是单纯的nt啊
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 5947#       发表于 2020-5-13 16:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">网络垃圾没有必要分类
+
+
+
+
+
+ 
