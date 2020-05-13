@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-13 00:10** 
+> ## **本文件最后更新于2020-05-13 12:07** 
 
 
 
@@ -22897,4 +22897,713 @@ syl她这种不知道开过多少小号的人能不知道吗<img src="https://st
 
 
 
-      
+
+
+-----
+
+####  魔法使い2019  
+##### 5804#       发表于 2020-5-13 03:39
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-13 03:47 编辑 
+
+搞了一天数学，
+
+玩了一会游戏，
+
+今天没动
+
+
+
+数学
+_____________________
+推荐 george polya的著作们，
+
+还有the art and craft of problem solving
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5805#       发表于 2020-5-13 03:40
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-13 03:42 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5806#       发表于 2020-5-13 08:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">啊咩…
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5807#       发表于 2020-5-13 10:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">五元...
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5808#       发表于 2020-5-13 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 5809#       发表于 2020-5-13 10:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5810#       发表于 2020-5-13 10:45
+
+
+
+
+要来力，感觉感觉没动过了的样子
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5811#       发表于 2020-5-13 10:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">咕咕咕
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5812#       发表于 2020-5-13 10:57
+
+
+
+
+自己开台了，说不定是睡到现在把作息调回来了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 5813#       发表于 2020-5-13 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47401293&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-13 10:57</a>
+
+自己开台了，说不定是睡到现在把作息调回来了
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+事到如今还有调整作息的必要么
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 5814#       发表于 2020-5-13 10:59
+
+
+
+
+竟然开台了，这不可能<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5815#       发表于 2020-5-13 11:02
+
+
+
+
+麻了，又麻了
+
+
+
+
+
+
+
+-----
+
+####  小博禹  
+##### 5816#       发表于 2020-5-13 11:02
+
+
+
+
+刚发错楼了[这两天沉迷这个，肯定很符合楼友们的性癖](https://bbs.saraba1st.com/2b/thread-1147880-0-1.html)<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|谢谢分享|
+| weiweiEX|-1|小博鱼注意这回要再谨慎一点，不要被一换一.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5817#       发表于 2020-5-13 11:04
+
+
+
+
+柰子呢，我回我来换，可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5818#       发表于 2020-5-13 11:05
+
+
+
+
+不是说要开台么，怎么没有啊
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5819#       发表于 2020-5-13 11:07
+
+
+
+
+听声音是不是有点哑啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 5820#       发表于 2020-5-13 11:09
+
+
+
+
+是有点儿哑
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5821#       发表于 2020-5-13 11:13
+
+
+
+
+没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5822#       发表于 2020-5-13 11:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挂着听听就是了……有什么信息的话麻烦楼友总结下
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5823#       发表于 2020-5-13 11:26
+
+
+
+
+看数据感觉被黄姨吸血了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5824#       发表于 2020-5-13 11:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天yygq拉满啊 笑死
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5825#       发表于 2020-5-13 11:32
+
+
+
+
+被吸血了？！
+
+
+看来你麻和姨比起来还是太嫩了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5826#       发表于 2020-5-13 11:34
+
+
+
+ 本帖最后由 weiweiEX 于 2020-5-13 11:36 编辑 
+
+虽然没太搞懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但总感觉舞元的软体不稳定
+
+syl数字看多了会变蠢得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议少斗虫
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5827#       发表于 2020-5-13 11:37
+
+
+
+ 本帖最后由 シオン诗音 于 2020-5-13 11:39 编辑 
+
+5元被咩yygq打击了半小时了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在绝赞垫底中
+
+
+PS，回b站看了下转播，这个帽子笑死我了syl，外面怎么看不到195页 bug了么
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 5828#       发表于 2020-5-13 11:41
+
+
+
+[https://www.bilibili.com/video/BV1P5411s7jV/](https://www.bilibili.com/video/BV1P5411s7jV/)
+
+好汀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5829#       发表于 2020-5-13 11:41
+
+
+
+
+5元变百元了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5830#       发表于 2020-5-13 11:43
+
+
+
+
+好像s1这两天是有翻页bug，不知道原因是什么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/e0b6d76047afc1b97e24a2831ce578ac/IMG_9D18F43A01965F1AEE719B3E0CF3384B.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5831#       发表于 2020-5-13 11:44
+
+
+
+
+果然魔法麻将才是王道啊……
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 5832#       发表于 2020-5-13 11:46
+
+
+
+
+虽然我看不懂，但是看这女人今天打牌总觉得好简单啊，几轮就凑齐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5833#       发表于 2020-5-13 11:49
+
+
+
+
+今天大吉？
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 5834#       发表于 2020-5-13 11:49
+
+
+
+
+这发牌机过分了吧。。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5835#       发表于 2020-5-13 11:49
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/29a1252c3aee51590347e2f4ed9c594b/-327081b97ac58382.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5836#       发表于 2020-5-13 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yygq拉满
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 5837#       发表于 2020-5-13 11:55
+
+
+
+
+混全<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是不是跟发牌机做交易了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5838#       发表于 2020-5-13 11:55
+
+
+
+
+今天开了吧。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5839#       发表于 2020-5-13 11:57
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 5840#       发表于 2020-5-13 11:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这人麻酱怎么突然起飞了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5841#       发表于 2020-5-13 11:59
+
+
+
+
+兴奋剂里一滴尿都没<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 5842#       发表于 2020-5-13 12:00
+
+
+
+
+她牌运一直不错的，就是之前牌效慢的不行。
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 5843#       发表于 2020-5-13 12:01
+
+
+
+
+我神乐mea没有开挂
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5844#       发表于 2020-5-13 12:02
+
+
+
+
+今天真的是mea么？换人了吧？
+
+
+
+
+
+     
