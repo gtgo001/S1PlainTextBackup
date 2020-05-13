@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-13 16:06** 
+> ## **本文件最后更新于2020-05-13 18:06** 
 
 
 
@@ -25459,4 +25459,573 @@ line好像没拿到，呜呜呜我ptsd好了，会限太可爱了像个憨憨一
 
 
 
- 
+
+
+-----
+
+####  惑星  
+##### 5948#       发表于 2020-5-13 16:08
+
+
+
+
+你只要知道小博禹是个无妈人，早年又失去了亲爹，缺少父爱，所以才来找骂
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 5949#       发表于 2020-5-13 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404777&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 16:01</a>
+
+故意模糊概念没意思，你明明知道这个错了指的是“交换line”，而且我又没看，是你楼自己先起反应的 ...</blockquote>
+你没看你在这回你爹吗？
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5950#       发表于 2020-5-13 16:10
+
+
+
+ 本帖最后由 yuandi0120 于 2020-5-13 16:11 编辑 
+
+就是杨志卖刀里的牛二啊，在你面前蹦来蹦去来享受气到你你又砍不死他的快感，都说了最简单的办法就是黑名单，你们又老想搭理他
+
+黑名单配合adblock把黄条消掉真的可以做到彻底让这个人消失的效果，推荐大家都用
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5951#       发表于 2020-5-13 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404777&amp;ptid=1929631" target="_blank">小博禹 发表于 2020-5-13 16:01</a>
+
+故意模糊概念没意思，你明明知道这个错了指的是“交换line”，而且我又没看，是你楼自己先起反应的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还真不知道这个错了指的是“交换line”，又开始了，你自己说不出道理就开始说“没意思”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且能麻烦你解释一下你理解的交换line怎么就“错”了吗？但我觉得你解释不清楚，因为你大概只是一个想屁吃想疯了的真把虚拟人当自己女朋友的所谓的“独角兽”观众而已，虚拟人的所有内容在你眼里大概都已经没有了任何价值，可能你喜欢的只有你自己心中喜欢的那一层虚拟膜吧，你不觉得自己很可悲吗？
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 奈子老爷，这位小博禹又开始打滚了，在v综也有放屁言论，所以该让它进去了吧，偶捏该
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5952#       发表于 2020-5-13 16:16
+
+
+
+ 本帖最后由 路人庚 于 2020-5-13 16:24 编辑 
+
+bsyl，你咩姐聊天聊嗨了好像忘记这是会限了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+hssyl，噗，最近的预定好多，好起来了
+
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 5953#       发表于 2020-5-13 16:20
+
+
+
+
+你真的需要去卡拉OK吗，播个歌回不就差不多一个意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 5954#       发表于 2020-5-13 16:21
+
+
+
+
+呜呜呜要被麻麻熬死了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 5955#       发表于 2020-5-13 16:21
+
+
+
+
+ 想唱K 是很JK的表现
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 5956#       发表于 2020-5-13 16:22
+
+
+
+
+会限播成了tc的模样
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 5957#       发表于 2020-5-13 16:22
+
+
+
+
+总之就是要播，等就完事了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 5958#       发表于 2020-5-13 16:25
+
+
+
+
+好吧原来是早上，看来开始调生物钟了（
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 5959#       发表于 2020-5-13 16:26
+
+
+
+
+会限播成了tc的模样+1
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 5960#       发表于 2020-5-13 16:27
+
+
+
+
+人数而言的话，会限&lt;tc&lt;普通404&lt;b限
+
+人越少这人说的话题越私密，所以会限赚了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5961#       发表于 2020-5-13 16:29
+
+
+
+
+太假了。。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 5962#       发表于 2020-5-13 16:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/13/163056o5kvzn5ybv3zptab.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200513163028.png</strong> (39.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-13 16:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5963#       发表于 2020-5-13 16:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">麻将麻将麻将，为什么播这么多麻将，看不懂麻酱
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5964#       发表于 2020-5-13 16:53
+
+
+
+
+我也看不懂，就很难受.Jpg
+
+
+不过最近事多，至少没那么可惜（）
+
+
+也就只能挂着听歌了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 5965#       发表于 2020-5-13 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47405301&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-13 16:50</a>
+麻将麻将麻将，为什么播这么多麻将，看不懂麻酱</blockquote>
+。。你把麻将换成mc ark 各种3a
+
+mea喜欢社交游戏，与人开黑的那种节奏慢点胜负心重
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 5966#       发表于 2020-5-13 17:05
+
+
+
+
+超级加倍可还行
+麻将想看懂很简单的，看看规则搓两把就行，用不了一小时
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 5967#       发表于 2020-5-13 17:24
+
+
+
+
+不是，我就说你们整个小号完事，这下s1还剩几个说话的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 5968#       发表于 2020-5-13 17:24
+
+
+
+
+超级加倍草
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 5969#       发表于 2020-5-13 17:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47405725&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-13 17:24</a>
+
+不是，我就说你们整个小号完事，这下s1还剩几个说话的</blockquote>
+所以之前说让我来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前稀里糊涂注册了好几个小号，正好可以拿来一换一（指龙魂绯影）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5970#       发表于 2020-5-13 17:28
+
+
+
+
+这波是人数优势
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 5971#       发表于 2020-5-13 17:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这要再创个小号玩，岂不又得送几个进去
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 5972#       发表于 2020-5-13 17:33
+
+
+
+
+你们是真的武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 5973#       发表于 2020-5-13 17:39
+
+
+
+
+没事，大家的小号不比他多？一换一到他彻底滚蛋或者学会说人话为止呗
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 5974#       发表于 2020-5-13 17:46
+
+
+
+ 本帖最后由 Unlimited290 于 2020-5-13 17:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种烂活不该交给我？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|meaqua人柱力能这样用吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5975#       发表于 2020-5-13 17:47
+
+
+
+
+二狗的服务器钱终于有着落了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 5976#       发表于 2020-5-13 18:02
+
+
+
+
+这也太悲壮了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+小博禹，你最大的罪恶，就是压根都不认为自己是“罪人”......那才是最“万恶不赦”的。（无端联想）
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 5977#       发表于 2020-5-13 18:04
+
+
+
+
+u1s1，这波是4个人的一个月换了小博禹的4个月
+
+
+
+
+
