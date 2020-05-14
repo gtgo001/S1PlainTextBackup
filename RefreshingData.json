@@ -6701,7 +6701,7 @@
     "title": "[广东游戏监管通知详情：换皮将暂停出版6个月，禁止全球同服]",
     "lastedit": 1586815574,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   {
     "id": "1923638",
@@ -8097,9 +8097,9 @@
   },
   {
     "id": "1933932",
-    "totalpage": 38,
+    "totalpage": 39,
     "title": "[疫情专楼]",
-    "lastedit": 1589393343,
+    "lastedit": 1589414839,
     "category": "外野专楼",
     "active": true
   },
