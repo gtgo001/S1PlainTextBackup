@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-10 00:02** 
+> ## **本文件最后更新于2020-05-15 22:01** 
 
 
 
@@ -18713,4 +18713,680 @@ yysy，麻凜咩夸这种放百合圈是真的8行，前者像友情还是多，
 
 
 
-               
+
+
+-----
+
+####  zaozaoxx  
+##### 4024#       发表于 2020-5-10 00:04
+
+
+
+
+前年兔咩交集太少，总共才联动几次，很生疏，哪里能比得上PUBG
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4025#       发表于 2020-5-10 00:06
+
+
+
+
+前年你咩那个狂人一样的风格也没几个人接得住
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 4026#       发表于 2020-5-10 08:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362390&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-5-9 23:54</a>
+这波是替代对方变肥， 是糖</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃完白菜就喝珍珠奶茶也别说谁，要胖一起胖
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 4027#       发表于 2020-5-10 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47362209&amp;ptid=1914314" target="_blank">hjcxiaowo 发表于 2020-5-9 23:39</a>
+为什么当年火的不是兔咩 他们两个杂谈相性是真的好啊</blockquote>
+都是nns的错<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 4028#       发表于 2020-5-14 12:33
+
+
+
+
+这波木口小剧场你楼竟然没有浮上来，难道贴贴人已经疯完了吗
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 4029#       发表于 2020-5-14 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47414688&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-05-14 12:33:01</a>
+这波木口小剧场你楼竟然没有浮上来，难道贴贴人已经疯完了吗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼有几个贴贴人，懒得再反串了而已
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4030#       发表于 2020-5-14 13:00
+
+
+
+
+小剧场咋了，还有这里不全是暗黑贴贴人吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 4031#       发表于 2020-5-14 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47415024&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-5-14 13:00</a>
+小剧场咋了，还有这里不全是暗黑贴贴人吗(눈_눈)</blockquote>
+小剧场的夸粥贴贴啊，那可是发在官号的竟然无人疯，不过也有道理，你楼都是暗黑贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 4032#       发表于 2020-5-14 13:21
+
+
+
+
+虚空暗黑不可取
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4033#       发表于 2020-5-14 13:28
+
+
+
+
+除了贴贴人这波大家都高兴好吧…
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 4034#       发表于 2020-5-14 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47415233&amp;ptid=1914314" target="_blank">LunarCorona_VOV 发表于 2020-5-14 13:16</a>
+
+小剧场的夸粥贴贴啊，那可是发在官号的竟然无人疯，不过也有道理，你楼都是暗黑贴贴人 ...</blockquote>
+会因为这个疯的只会是那些磕cp磕魔怔的除了咩夸见不得两人其他联动还觉得自己特正义在捍卫正统的那种吧，虽然我局的也勉强可以算是暗黑贴贴人的一种，但是绝对不会出现在你楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+syl，那个小剧场挺好玩的
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 4035#       发表于 2020-5-14 15:34
+
+
+
+
+有没有大佬存了这张图改的咩夸
+
+
+
+
+
+
+151836ykl35zwk3mq3j3k1.jpg
+(30.99 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-14 15:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/14/153448y3bw3rz3swfzswaz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4036#       发表于 2020-5-14 18:37
+
+
+
+
+基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4037#       发表于 2020-5-14 18:46
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-14 18:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这张魔改图看过某论坛某人当头像过
+不过，mea喜欢基德.jpg
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 4038#       发表于 2020-5-14 19:57
+
+
+
+
+那张改图圣·亏皇还点过赞的，看看就行也伤不到啥吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4039#       发表于 2020-5-15 18:20
+
+
+
+
+520夏色吹雪
+阿b你看今天mea掉了41个舰长，这业绩不好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 4040#       发表于 2020-5-15 18:27
+
+
+
+
+414联动完没续呗……这不正常吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4041#       发表于 2020-5-15 18:32
+
+
+
+
+所以说这40个舰长是不是该抢救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4042#       发表于 2020-5-15 19:07
+
+
+
+
+大胆预测522直播？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4043#       发表于 2020-5-15 19:47
+
+
+
+
+？这数字咋出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4044#       发表于 2020-5-15 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">木口什么时候把粥夸拉来B限啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4045#       发表于 2020-5-15 19:52
+
+
+
+
+草， 阿b有多少粥夸贴贴民？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4046#       发表于 2020-5-15 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47432699&amp;ptid=1914314" target="_blank">魔法使い2019 发表于 2020-5-15 19:52</a>
+
+草， 阿b有多少粥夸贴贴民？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有可以培养啊，虽然一开始可能会有转型的阵痛，但是两边统一口径肯定是大势所趋，总不能指望贴贴人当一辈子瞎子吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4047#       发表于 2020-5-15 20:05
+
+
+
+
+害粥夸呢，404演一演差不多得了，来阿b光萌萌人就得烂梗把直播间给刷烂来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 4048#       发表于 2020-5-15 20:06
+
+
+
+
+当一辈子瞎子得了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 4049#       发表于 2020-5-15 20:07
+
+
+
+
+现在最潮最in的明明是盐水<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 4050#       发表于 2020-5-15 20:10
+
+
+
+
+什么时候轮到⚓🌻
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4051#       发表于 2020-5-15 20:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47432645&amp;ptid=1914314" target="_blank">Mr.shelter 发表于 2020-5-15 19:47</a>
+？这数字咋出来的？，另外不单开一贴赌头吗</blockquote>
+522是我生日啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4052#       发表于 2020-5-15 20:31
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4053#       发表于 2020-5-15 20:32
+
+
+
+
+那么mk2的生日出来了，有没有有能之士来特定一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 4054#       发表于 2020-5-15 21:06
+
+
+
+
+这…<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+我是傻逼傻逼傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 4055#       发表于 2020-5-15 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，你楼有毒
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4056#       发表于 2020-5-15 21:32
+
+
+
+
+mk2太强了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4057#       发表于 2020-5-15 21:34
+
+
+
+
+确定是meaqua？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 4058#       发表于 2020-5-15 21:35
+
+
+
+
+u1s1，我看着不像，520可能更贴近情人节直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4059#       发表于 2020-5-15 21:35
+
+
+
+
+是联动早就直接两个都挂上去了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4060#       发表于 2020-5-15 21:36
+
+
+
+
+这跟meaqua有啥关系，又没写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4061#       发表于 2020-5-15 21:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好哇，你们胆敢把夸哥面向粉丝的直播脑补成meaqua，拖下去斩了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4062#       发表于 2020-5-15 21:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47433718&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-15 21:35</a>
+是联动早就直接两个都挂上去了</blockquote>
+你不是贴贴人吗？怎么能这么功利的看meaqua？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+              
