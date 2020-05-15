@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-15 12:06** 
+> ## **本文件最后更新于2020-05-15 14:06** 
 
 
 
@@ -5183,4 +5183,656 @@ syl，突发奇想能通过成绩特她么<img src="https://static.saraba1st.com
 
 
 
-                                        
+
+
+-----
+
+####  千木唯  
+##### 6281#       发表于 2020-5-15 12:08
+
+
+
+
+初中和高一成绩确实还行。后面不怎么上学了就另说了。
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6282#       发表于 2020-5-15 12:08
+
+
+
+
+日本上学很贵吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">高中后期学不进去了的例子我倒是遇见过
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 6283#       发表于 2020-5-15 12:09
+
+
+
+
+我记得好像在组长的学力测试中，mea知道x射线也叫伦琴射线，惊了
+syl，这女人连眼球捕捉都没开几次，想让她升级个可动性更高的皮可太难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6284#       发表于 2020-5-15 12:10
+
+
+
+
+大学确实很贵，高中后期她是逃课打游戏吧。。。
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 6285#       发表于 2020-5-15 12:11
+
+
+
+ 本帖最后由 千木唯 于 2020-5-15 12:15 编辑 
+
+公立还好吧，她不上学又不是退学，不登校而已吧。
+而且也就高二左右，高三就开始做v了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+打游戏，打工。bs工作，直播。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6286#       发表于 2020-5-15 12:14
+
+
+
+
+我觉得属于天赋选手，上课睡觉考试前翻翻书的那种
+
+
+反正高中没多难
+
+
+升学考试死扣细节不一定做得来，而且就算上个大学也可能被真正有难度的课程劝退，想了想不去了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6287#       发表于 2020-5-15 12:15
+
+
+
+
+她数学不行啊好像<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6288#       发表于 2020-5-15 12:19
+
+
+
+
+lol你害了多少yhm<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6289#       发表于 2020-5-15 12:19
+
+
+
+
+数学不行的多了去了……
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6290#       发表于 2020-5-15 12:23
+
+
+
+
+要多关注青少年的心理健康啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6291#       发表于 2020-5-15 12:30
+
+
+
+
+补上次唱歌的录像，麻麻说她用厕纸屁股痛，必须用エリエール这种。有人懂有啥区别吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 6292#       发表于 2020-5-15 12:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">日本这种高中没毕业就不上了的情况多吗？按照我的想法，既然都上高中了，就算不继续升学，至少读完拿个毕业证吧。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6293#       发表于 2020-5-15 12:35
+
+
+
+
+毕业了啊，怎么就没毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 6294#       发表于 2020-5-15 12:37
+
+
+
+
+说了想办法毕业了啊，怎么就没毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6295#       发表于 2020-5-15 12:39
+
+
+
+
+贴吧看到的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6296#       发表于 2020-5-15 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47427352&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-15 12:39</a>
+贴吧看到的不知道这个螺旋图案的鱼蛋糕有没有可能是你mea</blockquote>
+必然不是！<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 6297#       发表于 2020-5-15 12:41
+
+
+
+
+群里讨论了，难说啊，火影和游戏不太符，而她单独一个那排面有点大了。还是难说
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6298#       发表于 2020-5-15 12:42
+
+
+
+
+就不能是和康师傅鲜虾鱼板面联动吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6299#       发表于 2020-5-15 12:42
+
+
+
+
+别乱奶啊，这也太吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6300#       发表于 2020-5-15 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47427352&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-15 12:39</a>
+贴吧看到的不知道这个螺旋图案的鱼蛋糕有没有可能是你mea</blockquote>
+做梦吧。。还游戏联动。
+
+其实是联动的火影，这是漩涡鸣人
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6301#       发表于 2020-5-15 12:44
+
+
+
+
+除非阿b下场，你麻何德何能，这波必不可能是
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6302#       发表于 2020-5-15 12:46
+
+
+
+
+被你们这么一说 我到觉得可能是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 6303#       发表于 2020-5-15 12:54
+
+
+
+
+那必然就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">火影哪有用红色笔画成这样的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6304#       发表于 2020-5-15 12:56
+
+
+
+
+这游戏联动过的奇奇怪怪的东西还挺多的
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6305#       发表于 2020-5-15 12:56
+
+
+
+
+提前谢过睿叔叔了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6306#       发表于 2020-5-15 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就你mea和鱼板有关吗，想的太多，这个鱼板指御坂美琴，是和魔禁联动
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6307#       发表于 2020-5-15 13:00
+
+
+
+
+也就一个鱼板，能代表的多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6308#       发表于 2020-5-15 13:01
+
+
+
+
+之前方舟指令没和魔禁或者超炮联动过吗？我看联动对象还挺多的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6309#       发表于 2020-5-15 13:01
+
+
+
+
+🍥🍥🍥🍥🍥🍥
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6310#       发表于 2020-5-15 13:06
+
+
+
+
+是的话我再续几个月舰长谢谢小陈<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6311#       发表于 2020-5-15 13:07
+
+
+
+
+等下，这确定就是鱼板吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 6312#       发表于 2020-5-15 13:09
+
+
+
+
+没错，其实这是大红花啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6313#       发表于 2020-5-15 13:10
+
+
+
+
+还是不奶了，真没那个体量的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6314#       发表于 2020-5-15 13:28
+
+
+
+
+草昨天居然清唱口胡了promise。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 6315#       发表于 2020-5-15 13:33
+
+
+
+
+翻了下
+
+方舟指令4月营收苹果端23万元，安卓按2倍算46万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6316#       发表于 2020-5-15 13:35
+
+
+
+
+忽然想到，有没有人开个投票贴压这联动是不是mea，压错的赌一天小黑屋怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">权限不够开不了投票贴，有想法的可以来开一下帖啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6317#       发表于 2020-5-15 13:50
+
+
+
+
+我还不如赌下一次b限贴贴什么时候呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6318#       发表于 2020-5-15 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47428203&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-15 13:50</a>
+我还不如赌下一次b限贴贴什么时候呢</blockquote>
+贴贴有mk2和贴贴楼啊，这个我看不少人有那么点小期待，又不太敢下判断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正好我也有点小期待，感觉开帖赌会很有意思啊
+
+
+
+
+
+                                       
