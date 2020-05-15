@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-15 10:06** 
+> ## **本文件最后更新于2020-05-15 12:06** 
 
 
 
@@ -3543,4 +3543,1644 @@ tc是她放松的地方啊，相当于在闺房里自己胡闹那种感觉？能
 
 
 
-                                           
+
+
+-----
+
+####  时雨rain  
+##### 6191#       发表于 2020-5-15 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她自己应该知道只靠老观众sc只会越来越少
+她应该考虑怎么吸引新“付费观众”，但这件事本身就难。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6192#       发表于 2020-5-15 10:10
+
+
+
+
+yysy，真要云p起来b这边这么大体量不是应该尝试提高粉丝付费率吗，这边新粉的打钱意愿还普遍比那边高好几倍。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 6193#       发表于 2020-5-15 10:11
+
+
+
+
+是不是卖卖惨会比较好，比如说吹不到空调或者电脑又坏了啥的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6194#       发表于 2020-5-15 10:11
+
+
+
+
+不玩游戏还能怎么样嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+没别的轻松制造大量内容的直播选项了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6195#       发表于 2020-5-15 10:11
+
+
+
+
+到手的钱应该是多了，但她又想看sc铺地毯，觉得sl打钱不够热闹
+
+不是很懂
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6196#       发表于 2020-5-15 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想涨粉又来动态轰炸，差不多该来个字幕组成员告知一下这样掉粉了吧（池沼）
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6197#       发表于 2020-5-15 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425313&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-15 10:11</a>
+到手的钱应该是多了，但她又想看sc铺地毯，觉得sl打钱不够热闹
+
+不是很懂</blockquote>
+yhm的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6198#       发表于 2020-5-15 10:14
+
+
+
+
+千言万语汇成一句话，yhm害人害己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6199#       发表于 2020-5-15 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425322&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-5-15 10:12</a>
+想涨粉又来动态轰炸，差不多该来个字幕组成员告知一下这样掉粉了吧（池沼） ...</blockquote>
+这种想说直接去推上和她说就行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6200#       发表于 2020-5-15 10:16
+
+
+
+
+这又从哪里弄来的手图
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6201#       发表于 2020-5-15 10:19
+
+
+
+
+肉球被烫伤了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6202#       发表于 2020-5-15 10:21
+
+
+
+
+再说B的付费意愿的话无非加强B限冲国特供那几套……
+
+
+她会整吗.jpg
+
+
+结果好像还是实质视频势，看缘分发掘对上电波的人（也没啥不好的吧，这样先筛一遍可能生态还健康点——指不会被粉丝的群体行为反向绑架）
+
+
+不过作为代价好像粉丝内战和自己发疯的水平上去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6203#       发表于 2020-5-15 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425350&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-15 10:14</a>
+
+这种想说直接去推上和她说就行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒是想，但是以在下的塑料水平似乎并不足以把“掉粉”这个词表达的生动形象（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6204#       发表于 2020-5-15 10:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">果然你咩联动后开歌回就是来留粉的
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">真的是有小心机
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6205#       发表于 2020-5-15 10:24
+
+
+
+
+说真的，从赚钱的角度来看我巴不得她也整个提督画头像，一个月一次。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+（顺便我也能有个头像
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6206#       发表于 2020-5-15 10:27
+
+
+
+
+“我懒得画”
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6207#       发表于 2020-5-15 10:27
+
+
+
+
+她就这么一说，实际上真正联动接歌回的就没几次<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这种招式就是想起来才会用，大部分时间她还想不起来
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6208#       发表于 2020-5-15 10:28
+
+
+
+
+有这种事？那我直接付费<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6209#       发表于 2020-5-15 10:29
+
+
+
+
+歌回吸粉不行筛粉行<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+上个月付费人数有3000人吧，最近她b限都整的挺不错，也好
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6210#       发表于 2020-5-15 10:29
+
+
+
+
+mea还真是三和大神的心态，懒得挣钱<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 6211#       发表于 2020-5-15 10:29
+
+
+
+
+画头像骗舰这种还是别学了
+
+真当路人会为了个头像打2k甚至2W啊
+
+b站想吸金b限好好唱歌足矣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6212#       发表于 2020-5-15 10:31
+
+
+
+
+钱都够花了，混吃等死不好吗，我要有这么多钱天天在家躺着<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6213#       发表于 2020-5-15 10:31
+
+
+
+
+真有往上爬的想法会是她这样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+yhm啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6214#       发表于 2020-5-15 10:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">对她来说可能是够了吧
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6215#       发表于 2020-5-15 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425435&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-5-15 10:21</a>
+倒是想，但是以在下的塑料水平似乎并不足以把“掉粉”这个词表达的生动形象（ ...</blockquote>
+万能的百度翻译<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6216#       发表于 2020-5-15 10:33
+
+
+
+
+才发现hiyoko她的所属是Kaguragumi了
+
+放养型组长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+她个人的事情其实已经很多了，真不一定有精力想更多的问题了
+
+粉丝不要站着说话不腰疼<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6217#       发表于 2020-5-15 10:34
+
+
+
+
+bsyl 别p了，敢保证你p起来一定比她自己强吗，p的效果不好能负责吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能胡思乱想这些十有八九是云p被打脸打少了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6218#       发表于 2020-5-15 10:34
+
+
+
+
+能接歌回对留粉好，不接对身体好，看她咋想呗，不过B站上舰的真的厉害，能得到她反馈的机会太少了，真的是在靠爱和钱在推，虽然我觉得她还是没彻底了解哪些舰长值多少吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6219#       发表于 2020-5-15 10:36
+
+
+
+
+怎么可能，不要把她想成白痴啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6220#       发表于 2020-5-15 10:36
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-15 10:39 编辑 
+
+怎么说呢……
+
+
+个人感觉是
+
+
+1、钱已经够了，不如说和以前相比很多了
+
+
+2、现在也没太多用钱的地方，设备和3D啥的又搞不了，也出不了门
+
+
+3、不是很想像全职工作那样每天排班外加预先决定内容，感觉反而会损害自己的热情
+
+
+4、钱的实际数字不一定特别重要（反正算总数也懒得算），但是打钱这个行为本身还是觉得开心的（可能是习惯遗留或者某种意义上的人设塑造）
+
+换句话说不缺钱但是要热闹和排场
+
+
+结论：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要红地毯，你自己花钱找人再打给你自己吧（不是）
+
+排场这事不花钱不花精力哪里会有啊
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6221#       发表于 2020-5-15 10:37
+
+
+
+
+一月130块钱，够吃一顿饭吗，这续费功能我都懒得关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6222#       发表于 2020-5-15 10:39
+
+
+
+<img src="https://p.sda1.dev/0/3d286a7b950821e76b24ff5a46901219/IMG_6005D8B1DF364648E180C4D79AFF15CB.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6223#       发表于 2020-5-15 10:39
+
+
+
+
+不过这续费功能是不是就不能在直播里显示出来了啊，还是说到了每个月那个点就直接在直播间显示谁上舰呢。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6224#       发表于 2020-5-15 10:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">说实话不懂mea为什么出了两套3d都不打算换套衣服，对v来说换衣服应该不是个无所谓的事吧，除非你咩姐不把自己看成v
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6225#       发表于 2020-5-15 10:40
+
+
+
+
+谁知道呢（）
+
+
+说不定她的思路是“就是因为是V才不换衣服”
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6226#       发表于 2020-5-15 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425672&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-15 10:39</a>
+
+不过这续费功能是不是就不能在直播里显示出来了啊，还是说到了每个月那个点就直接在直播间显示谁上舰呢。 ...</blockquote>
+直接显示，虚空上舰<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6227#       发表于 2020-5-15 10:42
+
+
+
+
+说不定吊人调查过了，现在换衣服直播带来的平均收益并不高呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+个人势换衣服还要她自己联系画师做live2d的，对她来说不值得
+
+还可以留个梗，以后收益下降了再抛出来拉一波打钱
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6228#       发表于 2020-5-15 10:42
+
+
+
+ 本帖最后由 笋狐 于 2020-5-15 10:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425567&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-15 10:32</a>
+
+万能的百度翻译</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了吧，那还不如我自己来（
+
+
+syl，兄啊，图的出处呢
+
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6229#       发表于 2020-5-15 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425673&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-15 10:39</a>
+说实话不懂mea为什么出了两套3d都不打算换套衣服，对v来说换衣服应该不是个无所谓的事吧，除非你咩 ...</blockquote>
+类比下去年万圣节的monster，自己整了套新东西出来，万一被粉丝指划这不行那不行，不又得爆炸一回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉有些爹妈粉真干的出来
+还不如直接3d，我直接升级.JPG
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 6230#       发表于 2020-5-15 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425673&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-15 10:39</a>
+
+说实话不懂mea为什么出了两套3d都不打算换套衣服，对v来说换衣服应该不是个无所谓的事吧，除非你咩 ...</blockquote>
+找谁换？
+
+换个画风感官影响很大的
+
+就算去找井皇，你觉得井皇现在还能搞出p家一二三姐这种质量的皮吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 6231#       发表于 2020-5-15 10:44
+
+
+
+ 本帖最后由 kerfars 于 2020-5-15 10:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">有一说一打sc门槛还是挺高的，首先是电脑或者安卓端打，
+
+然后又要挂个能打的梯子，如果想要省钱还得买谷歌play礼品卡，梯子也要对得上
+
+而且一旦卡网速，就会钱打出去了，没到她口袋也不会显示出来，要等几天才退款（还有可能要申诉）
+
+反正我试过几次网速问题了，sl是真的好使
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6232#       发表于 2020-5-15 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425715&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-5-15 10:42</a>
+算了吧，那还不如我自己来（
+
+
+syl，兄啊，图的出处呢</blockquote>
+贴吧偷别人偷得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6233#       发表于 2020-5-15 10:45
+
+
+
+
+动态狂刷深夜突击，亏钱，干
+
+
+换衣服，不知道亏不亏钱，不干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+衣服这种事我倾向于不要讲什么道理了，大概就是奇怪的执念吧（前面那么久都没换，现在随随便便换了岂不是很没面子）
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6234#       发表于 2020-5-15 10:46
+
+
+
+
+草生
+<img src="https://p.sda1.dev/0/1a89dead54bc006ae7f447eb9e3c9579/IMG_90A981C9F3B26CC0A8BC5DAA7E7ECDCA.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6235#       发表于 2020-5-15 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我有段时间觉得是为了买断皮和井皇签了什么协议。
+协议中有不能在mea的基础人设改动这一条
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不过也只是脑补，毕竟谁也不知道事实是什么
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 6236#       发表于 2020-5-15 10:48
+
+
+
+
+上面那张咩虐图的pixiv号：81531214
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6237#       发表于 2020-5-15 10:49
+
+
+
+
+换皮这事参考调音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实数据上去的话，我又怕她吃不下，我也是yhm啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6238#       发表于 2020-5-15 10:49
+
+
+
+
+井皇，真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6239#       发表于 2020-5-15 10:54
+
+
+
+ 本帖最后由 餅月ひまり 于 2020-5-15 10:59 编辑 
+
+我还猜过是不是帕里直接限制了她换皮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过猜来猜去也没看到有什么底，就懒得想了
+
+syl 这使用率好强啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/12ee31e46589d0f33b42f12e77ab709f/IMG_391968238621571D1781C4D42C666A74.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6240#       发表于 2020-5-15 10:54
+
+
+
+
+倒不是，我记得她说过换衣服这个事的，好像是担心原来的形象会有大改变观众不适宜不太想搞，更何况井皇又不给她整，换画师就像绿粽子和韩国那两个一样，草莓果酱那个衣服我觉得momo是尽可能的向井皇那个风格靠，尤其那个脸，所以看着很像新衣服啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6241#       发表于 2020-5-15 10:55
+
+
+
+
+没人跟她反馈她是不回去换的，你们集结几百人直接去她推上说要看新衣服新人设，且不要帕里画，就这么闹不出一个月肯定有新皮
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6242#       发表于 2020-5-15 10:55
+
+
+
+
+momoshiki画风本来就偏萌系吧。。。没向帕里靠
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6243#       发表于 2020-5-15 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425865&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-15 10:55</a>
+没人跟她反馈她是不回去换的，你们集结几百人直接去她推上说要看新衣服新人设，且不要帕里画，就这么闹不出 ...</blockquote>
+这真不是逼宫么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">高小姐复刻.JPG
+
+反正我是对新衣服无所谓，现在这皮我看着也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6244#       发表于 2020-5-15 10:58
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-15 11:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">那随便了
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6245#       发表于 2020-5-15 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425905&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-15 10:58</a>
+
+我觉得可以搞个投票什么的，打上一个tag，mea没提就算了，提了也能明白态度吧 ...</blockquote>
+表什么态度，她说了多少遍没有新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对着她表态是啥意思
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6246#       发表于 2020-5-15 10:59
+
+
+
+ 本帖最后由 以一持万 于 2020-5-15 11:01 编辑 
+
+她TC用同人图，直播的时候总掉捕捉
+
+衣服已经是不便之物了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没新的就没新的吧
+
+你搞投票和逼宫有啥区别<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+为啥你们总想让她表态，给人留点余地不好么，你们这样是找不到女朋友的(
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6247#       发表于 2020-5-15 11:03
+
+
+
+
+说白了别扯新皮了，她都在各种场合反复说了不知道多少遍没新皮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">3d都两套了要什么自行车.JPG
+等她以后有想法了突然掏出来当个惊喜不好么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6248#       发表于 2020-5-15 11:04
+
+
+
+
+主要3D目前遥遥无期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就比较急
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6249#       发表于 2020-5-15 11:09
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-15 11:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是刚在v8看了个贴问mea为什么没有一件新衣服。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">我也想知道为什么
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫|-1|恰烂鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6250#       发表于 2020-5-15 11:10
+
+
+
+ 本帖最后由 黒長直姫 于 2020-5-15 11:11 编辑 
+
+?贴吧吃屎吃坏脑了还要来S1倒苦水？
+
+你转述贴吧的钓鱼屎之前能不能润色润色 看着头疼
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6251#       发表于 2020-5-15 11:11
+
+
+
+
+真是烂钱吗？没偷没抢没吃血馒头
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 6252#       发表于 2020-5-15 11:11
+
+
+
+
+就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6253#       发表于 2020-5-15 11:15
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-15 11:24 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么就扣鹅了，我也没说赞同恰烂钱啊
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 6254#       发表于 2020-5-15 11:15
+
+
+
+
+问题是换衣服是为了啥，不也是为了恰钱嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6255#       发表于 2020-5-15 11:15
+
+
+
+ 本帖最后由 餅月ひまり 于 2020-5-15 11:29 编辑 
+
+答应我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v8的东西多在脑子里转两圈在发过来好吗，v8随便找对男女照片就能说是mea，跟前两天那个5ch**妹是一个水平的
+
+扣鹅是因为太弱智了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要不是权限不够，我刚看到也被弱智到了的
+
+syl你为什么会觉得是因为三字母不爽的，“三字母恰那么多烂钱怎么还不给我艹”，你还要跟着来研究一下为什么她不给艹吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">v8基本就是无意义批话，别往正常讨论的地方扔好吧
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6256#       发表于 2020-5-15 11:19
+
+
+
+
+被v8反输出，你们丟不丟人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6257#       发表于 2020-5-15 11:19
+
+
+
+
+麻烦吃了💩不要在这吐出来好么，免得别人以为是我们产的
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6258#       发表于 2020-5-15 11:23
+
+
+
+
+洗澡方面微妙的真实感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/1dd0023ff3753d50f897453761759cd5/IMG_F60E4B790B95B131F75A5DBCF3A89B18.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6259#       发表于 2020-5-15 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个除了部分黑p应该都是正常讨论吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">你们看不惯那就把那三个字编辑一下吧
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6260#       发表于 2020-5-15 11:26
+
+
+
+
+还是从小没有养成天天洗澡的习惯。虽然到这个年龄会犯懒？我挺早就吐槽过mea的男性精神年龄，也可能是我对女性的认知有偏差
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 6261#       发表于 2020-5-15 11:27
+
+
+
+ 本帖最后由 病態極端 于 2020-5-15 11:37 编辑 
+
+<img src="http://i.loli.net/2020/05/15/MZCExqAUF3aQHJ9.jpg" referrerpolicy="no-referrer">
+這是柳田史太的神楽めあ(♂)人設嗎?
+
+經人指點，原來是2434的アルス·アルマル。
+
+VTB看得少，丟臉了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6262#       发表于 2020-5-15 11:27
+
+
+
+
+懒狗心理没人约束是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6263#       发表于 2020-5-15 11:28
+
+
+
+<blockquote>病態極端 发表于 2020-5-15 11:27
+這是柳田史太的神楽めあ(♂)人設嗎?</blockquote>
+这是彩虹社的帕里女儿吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6264#       发表于 2020-5-15 11:30
+
+
+
+
+话说我丈人她直播很少提啊
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6265#       发表于 2020-5-15 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47426319&amp;ptid=1929631" target="_blank">病態極端 发表于 2020-5-15 11:27</a>
+
+這是柳田史太的神楽めあ(♂)人設嗎?</blockquote>
+这明显是ars啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">狗屎，这俩人人设也太像了
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6266#       发表于 2020-5-15 11:32
+
+
+
+
+主要还是配色，白发+黑金服装（那个领结）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6267#       发表于 2020-5-15 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47426389&amp;ptid=1929631" target="_blank">以一持万 发表于 2020-5-15 11:32</a>
+
+主要还是配色，白发+黑金服装（那个领结）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">说不定是废案再利用
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6268#       发表于 2020-5-15 11:35
+
+
+
+
+你楼还有被v8反输出的？ 别恶心我<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6269#       发表于 2020-5-15 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩整个短发+兜帽是不是就一毛一样了（
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6270#       发表于 2020-5-15 11:37
+
+
+
+
+不过ars的脸圆的特点比较明显，虽然mea脸也挺圆，但没啥二创用这个做文章
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6271#       发表于 2020-5-15 11:39
+
+
+
+
+可能井皇就好这口吧，记得它的vtb废案里有个拿电锯的白发洛丽塔女仆，收拾收拾给咩整个新皮也挺好，虽然不可能
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6272#       发表于 2020-5-15 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425672&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-05-15 10:39:45</a>
+不过这续费功能是不是就不能在直播里显示出来了啊，还是说到了每个月那个点就直接在直播间显示谁上舰呢。 ...</blockquote>到点续费，如果想直播当场续，你取消自动续费再上舰不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6273#       发表于 2020-5-15 11:41
+
+
+
+
+别车轱辘皮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">momoshiki给mea画个皮的可能性都更大一点
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6274#       发表于 2020-5-15 11:44
+
+
+
+ 本帖最后由 第三惑星 于 2020-5-15 11:51 编辑 
+
+这么一看收入的事自己心里都清楚，也没什么好担心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，换皮这事，p家找帕里换皮的有几个？换我我绝对不会去找帕里，真要换那画风必会变，是福是祸难说
+再说了换皮这事就是粉丝回馈，你咩姐出原唱曲出的这么勤，也是粉丝回馈啊，为啥非要拘泥于一种形式，别被有心之人绕进去了<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6275#       发表于 2020-5-15 11:49
+
+
+
+
+现在的皮可动都那么高，真换皮她又说害羞了。
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6276#       发表于 2020-5-15 11:50
+
+
+
+
+好像之前成绩还一直不错？
+<img src="https://p.sda1.dev/0/d8d6c207331596c0e029a31d867382bd/IMG_6A315B22A8FE050676228B7EE46C291C.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6277#       发表于 2020-5-15 11:59
+
+
+
+
+草，这是什么传奇少女的故事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6278#       发表于 2020-5-15 12:02
+
+
+
+
+一律视为吹比
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6279#       发表于 2020-5-15 12:02
+
+
+
+
+见仁见智吧，环境不同对“成绩不错”、“认真复习”的定义也不一样
+
+真要是成绩不错的话会考虑来做v么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6280#       发表于 2020-5-15 12:05
+
+
+
+
+就不能是没钱上学迫于生计只能做套皮主播苟活于网上么
+
+
+syl，突发奇想能通过成绩特她么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                        
