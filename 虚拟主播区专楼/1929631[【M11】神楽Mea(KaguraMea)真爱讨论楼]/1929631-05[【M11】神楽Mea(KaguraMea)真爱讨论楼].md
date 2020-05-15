@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 00:06** 
+> ## **本文件最后更新于2020-05-16 02:05** 
 
 
 
@@ -7840,4 +7840,731 @@ hacking to the gate好
 
 
 
-                                   
+
+
+-----
+
+####  2014720  
+##### 6438#       发表于 2020-5-16 00:17
+
+
+
+
+今晚同接升的有点慢啊<img src="https://static.saraba1st.com/image/smiley/face2017/201.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6439#       发表于 2020-5-16 00:18
+
+
+
+
+皮卡丘~
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6440#       发表于 2020-5-16 00:20
+
+
+
+
+下周b限？
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 6441#       发表于 2020-5-16 00:20
+
+
+
+
+这样的516真不错呢
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6442#       发表于 2020-5-16 00:22
+
+
+
+
+转眼同接2300，这哪慢了……这个月你咩同接直接上了一个档次了，出道那阵都没有这么高又稳定过
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6443#       发表于 2020-5-16 00:24
+
+
+
+<blockquote>Ky·Kiske 发表于 2020-5-16 00:22
+转眼同接2300，这哪慢了……这个月你咩同接直接上了一个档次了，出道那阵都没有这么高又稳定过 ...</blockquote>
+歌回限定
+
+感觉你咩姐歌回同接好像比平日高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6444#       发表于 2020-5-16 00:31
+
+
+
+ 本帖最后由 2014720 于 2020-5-16 00:58 编辑 
+
+我估摸2500才差不多…现在就杂谈上不去…
+感觉还是没转化多少
+
+2600嗯嗯这才对嘛
+2700草
+2800牛皮
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6445#       发表于 2020-5-16 00:34
+
+
+
+
+霓虹一点半，已经可以了
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 6446#       发表于 2020-5-16 00:34
+
+
+
+
+这首也太好听了吧
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6447#       发表于 2020-5-16 00:36
+
+
+
+
+去年5月之前半夜能有1500都烧香了，哪怕是歌回
+
+当时有个说法，“深夜1200护法”，只要播了雷打不动都在
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6448#       发表于 2020-5-16 00:37
+
+
+
+
+去年最惨的是半夜lol吧，就600人
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6449#       发表于 2020-5-16 00:38
+
+
+
+
+最惨是之前最后一次黄金时间404死喷，才500左右人，一度440不到。
+
+就比之前凌晨四点突击tc人多点。
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6450#       发表于 2020-5-16 00:40
+
+
+
+
+让你咩现在播死喷一样难看，现在的数字至少除个3
+
+
+死乱喷涂可以当成同接下限探底器用了，专门测试抗压
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 6451#       发表于 2020-5-16 00:43
+
+
+
+
+死喷像其他社一样拉人一起打还好，单人脑死死喷就是在劝退观众，对谁来说都一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6452#       发表于 2020-5-16 00:47
+
+
+
+
+这人要是有点游戏力也不会这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6453#       发表于 2020-5-16 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6454#       发表于 2020-5-16 00:51
+
+
+
+
+啊 我死了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6455#       发表于 2020-5-16 00:53
+
+
+
+
+老婆婆不懂打游戏不也挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6456#       发表于 2020-5-16 00:53
+
+
+
+
+游戏力还是有一点的，就是明明特别吃嘲讽还爱玩pvp<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6457#       发表于 2020-5-16 00:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">难不成你麻要是有点游戏力同接还能上万?
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">现在只想听你麻唱上次玩osu那首pekopeko的歌
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 6458#       发表于 2020-5-16 00:58
+
+
+
+
+2800了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6459#       发表于 2020-5-16 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47435700&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-16 00:47</a>
+
+这人要是有点游戏力也不会这样</blockquote>
+她玩游戏也就图一乐 打块打得不差可是就是是随意玩玩不深入练 没人看的死喷lol就爱播 管人金游就不怎么想去蹭来玩 明明一堆人包括身边一堆熟人都在玩都在播的apex也就口头上说玩玩结果就没影了 突出一个自由
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|就是觉得很可惜…|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6460#       发表于 2020-5-16 01:01
+
+
+
+
+也不是自由，是她觉得自己播效果差的哪怕是当今最火管游她都不播，宁可下播玩
+
+这个直播效果解释权归她一人所有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|就是这样|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6461#       发表于 2020-5-16 01:04
+
+
+
+
+我倒是无所谓，我其实不喜欢她单人播游戏，虽然播了也会看两眼，不过大部分时间都挂后台了，如果让我在播一下午游戏和一小时杂谈里选，我会选一小时杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+syl，这首是新歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6462#       发表于 2020-5-16 01:14
+
+
+
+
+往好点想最近好歹找到个雀魂有效果她也爱玩 
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6463#       发表于 2020-5-16 01:16
+
+
+
+
+想起去年那个无语的熊棒球，现在想起来就是个浪费时间的游戏，我实在是不能理解那时是如何看到最后的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6464#       发表于 2020-5-16 01:19
+
+
+
+
+唱着唱着睡过去了 还行
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6465#       发表于 2020-5-16 01:20
+
+
+
+
+因为那玩意她坚持到底了，成为为数不多直播里通关的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|可能是|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 6466#       发表于 2020-5-16 01:22
+
+
+
+
+唱有心论了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+她怎么这么好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 6467#       发表于 2020-5-16 01:27
+
+
+
+
+
+啊，原来自然下了，我以为我卡了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 6468#       发表于 2020-5-16 01:28
+
+
+
+
+没有啊丢的直播结束没有灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6469#       发表于 2020-5-16 01:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 6470#       发表于 2020-5-16 01:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer"> 总感觉缺点什么,还是早点睡觉去了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6471#       发表于 2020-5-16 01:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6472#       发表于 2020-5-16 01:37
+
+
+
+
+STM还有tc草
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6473#       发表于 2020-5-16 01:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 6474#       发表于 2020-5-16 01:39
+
+
+
+
+肥羊非要吃了饭再睡
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6475#       发表于 2020-5-16 01:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要被羊搞死了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6476#       发表于 2020-5-16 01:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不应该看论坛的，不然早睡了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以你麻这饮食不规律习惯，应该早就不是当初模样了
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">深夜放毒你必肥嗷
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6477#       发表于 2020-5-16 01:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实……饮食不规律有可能越来越瘦的
+
+
+如果总量不是那么多外加消化不好（）
+
+
+虽然这种瘦法确实不太健康
+
+
+
+
+
+                                  
