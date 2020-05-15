@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-15 18:05** 
+> ## **本文件最后更新于2020-05-16 00:06** 
 
 
 
@@ -6249,4 +6249,1595 @@ qfq不是自称退坑了吗</blockquote>
 
 
 
-                                      
+
+
+-----
+
+####  feyir  
+##### 6343#       发表于 2020-5-15 18:28
+
+
+
+
+2.5次元偶像企划的乐队主唱和一个主播有什么可比的吗，你一个社区组织的足球赛参赛者和踢职业的完全不是一个概念，都职业了，菜就是原罪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">更何况是真的菜到家了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  feyir  
+##### 6344#       发表于 2020-5-15 18:30
+
+
+
+
+这边直说应该没人怼我<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">邦邦这新主唱真的刷新了我对声优偶像企划唱歌水平下限的认知，一个班去唱k都能找到几个比她强的
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 6345#       发表于 2020-5-15 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是那个发歌被狂喷，爆出是jk之后被狂舔的吗
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6346#       发表于 2020-5-15 19:00
+
+
+
+
+好像是准jk？反正蛮小的，采访的时候说自己童年是ll的时候我笑喷了。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6347#       发表于 2020-5-15 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么？是jk，我也去舔
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6348#       发表于 2020-5-15 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光是JK就比麻强了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6349#       发表于 2020-5-15 19:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议去复习14麻的哨戒班。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6350#       发表于 2020-5-15 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好歹勉强还在JK保质期，人不能，至少不应该
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 6351#       发表于 2020-5-15 20:10
+
+
+
+
+呜呜麻麻输给了jk，气冷抖，麻麻什么时候才能够站起来<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6352#       发表于 2020-5-15 20:10
+
+
+
+
+爬了下楼，看到你们早上又在车麻酱不读大学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+联动下这个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1935168](https://www.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1935168)
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6353#       发表于 2020-5-15 20:14
+
+
+
+
+预告了预告了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6354#       发表于 2020-5-15 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">11点要播
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6355#       发表于 2020-5-15 20:34
+
+
+
+
+好耶！希望不要又鸽，我已经有ptsd了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6356#       发表于 2020-5-15 20:35
+
+
+
+
+预告了大概不会的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6357#       发表于 2020-5-15 20:44
+
+
+
+
+唱完播还会鸽吗。。。上次鸽是因为和gbr还有郡道的聊天机会比较少吧
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6358#       发表于 2020-5-15 20:49
+
+
+
+
+作息白调了，b限又远了，但能听到她唱歌挺好的，希望不要聊个通宵
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6359#       发表于 2020-5-15 21:57
+
+
+
+
+女人要不然不熬夜然后整个白天在播要不然熬夜然后半夜播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+感觉要错过更多的直播了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6360#       发表于 2020-5-15 22:01
+
+
+
+ 本帖最后由 第三惑星 于 2020-5-15 22:09 编辑 
+
+网不好是这样的，黄金时间不好播
+拱了拱了，你感觉如何啊，感觉如何啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6361#       发表于 2020-5-15 22:08
+
+
+
+
+拱火六字母1—1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6362#       发表于 2020-5-15 22:09
+
+
+
+
+日常操作<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6363#       发表于 2020-5-15 22:10
+
+
+
+
+毕竟没和别人线下联动过了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6364#       发表于 2020-5-15 22:11
+
+
+
+
+？不说熊，天神和dwu没牌面的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6365#       发表于 2020-5-15 22:11
+
+
+
+
+子兔音激怒
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6366#       发表于 2020-5-15 22:13
+
+
+
+
+dwu不好提，子兔音和咩姐也没那么熟吧
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6367#       发表于 2020-5-15 22:13
+
+
+
+
+惊了，还能这样，没延迟的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6368#       发表于 2020-5-15 22:13
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-15 22:15 编辑 
+
+和犬山确实没线下见过面，唯一有机会那次是夸溜了她就也溜了
+去年在mea那的那次对谈提的，还约了dwu，结果阿夸脚扭了没去，这人也没去
+
+延迟问题解决方法是用tc台吧，以前提过
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6369#       发表于 2020-5-15 22:14
+
+
+
+
+哪次？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6370#       发表于 2020-5-15 22:14
+
+
+
+
+贴…不行，不能和苔姨贴<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 6371#       发表于 2020-5-15 22:16
+
+
+
+
+好久没有听到咩合唱了，谢谢你，犬山评价再上升
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6372#       发表于 2020-5-15 22:16
+
+
+
+
+没想到能解决的这么彻底，效果很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 6373#       发表于 2020-5-15 22:16
+
+
+
+
+空色days唱的蛮好的，感觉唱功有进步了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6374#       发表于 2020-5-15 22:17
+
+
+
+
+今天这破网居然没拉。。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6375#       发表于 2020-5-15 22:23
+
+
+
+
+这人手工艺卡拉ok每次都发挥的超好，绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6376#       发表于 2020-5-15 22:23
+
+
+
+
+客场认真模式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6377#       发表于 2020-5-15 22:24
+
+
+
+
+她的特色不就是在别人频道超神发挥，在自己频道yhm力全开
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6378#       发表于 2020-5-15 22:27
+
+
+
+
+麻酱的底力真音是真的亮，冲了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6379#       发表于 2020-5-15 22:29
+
+
+
+
+我悟了，阿咩没唱jpop是让着苔姨，苔姨歌力怎么拉成这样了
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 6380#       发表于 2020-5-15 22:30
+
+
+
+
+苔姨唱歌真的是那种，一堆公司社畜下班被老前辈大龄剩女拉去卡拉ok团建，然后这个剩女还拿着麦唱个不停的感觉。姨味太重了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6381#       发表于 2020-5-15 22:30
+
+
+
+
+苔苔以前还能唱唱，现在完全成了去ktv嚎歌的长辈了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6382#       发表于 2020-5-15 22:33
+
+
+
+
+合唱咬住秒针还行，我看你们前一页还在聊相关的
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6383#       发表于 2020-5-15 22:34
+
+
+
+
+苔苔是不是很累啊（
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 6384#       发表于 2020-5-15 22:35
+
+
+
+
+阿姨高音飙不上去·
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 6385#       发表于 2020-5-15 22:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">麻麻将来也会这样吗
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6386#       发表于 2020-5-15 22:36
+
+
+
+
+苔苔这被秒了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 6387#       发表于 2020-5-15 22:37
+
+
+
+
+被秒了，被秒了（
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6388#       发表于 2020-5-15 22:37
+
+
+
+
+苔苔安心唱唱和声吧
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6389#       发表于 2020-5-15 22:38
+
+
+
+
+我不相信小麻以后会变成苔姨这种一天到晚只想着蹭热度的老女人，呜呜呜……
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6390#       发表于 2020-5-15 22:38
+
+
+
+
+糟糕我困了…
+这人起那么早不困吗<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6391#       发表于 2020-5-15 22:38
+
+
+
+
+哼，明天就把小麻变成苔姨
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 6392#       发表于 2020-5-15 22:39
+
+
+
+
+世界上那么多姨，为什么非要她变苔姨，就不能自成一派变麻姨吗？
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 6393#       发表于 2020-5-15 22:40
+
+
+
+
+不然变雪姨？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6394#       发表于 2020-5-15 22:40
+
+
+
+
+你麻变姨八成就是兔姨那种了
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6395#       发表于 2020-5-15 22:41
+
+
+
+
+咩咩开启了认真模式
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 6396#       发表于 2020-5-15 22:41
+
+
+
+
+那还早着呢，再等十年吧！
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6397#       发表于 2020-5-15 22:42
+
+
+
+
+兔姨苔姨都很精明算计的，麻变姨估计不太行
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6398#       发表于 2020-5-15 22:42
+
+
+
+
+十年后，你我若还是单身(电视剧饼干)<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 6399#       发表于 2020-5-15 22:48
+
+
+
+
+全力发挥唱歌还不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好，功利点多吸点苔姨粉丝才更好
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6400#       发表于 2020-5-15 22:49
+
+
+
+ 本帖最后由 以一持万 于 2020-5-15 22:52 编辑 
+
+苔姨，落泪啊，上次手冲卡拉ok有这么处刑么<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+这就是杀猪刀么
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6401#       发表于 2020-5-15 22:50
+
+
+
+
+阿苔有点萎啊，怎么了怎么了怎么了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6402#       发表于 2020-5-15 22:51
+
+
+
+
+咩姐啥时候把白日练一下。。。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6403#       发表于 2020-5-15 22:52
+
+
+
+
+怎么捧一踩一的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+苔苔可爱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 6404#       发表于 2020-5-15 22:53
+
+
+
+
+苔苔这首和我朋友一个小胖子唱的差不多。。。声音甚至难辨雌雄
+
+廉颇老矣，英雄迟暮<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HinataJ  
+##### 6405#       发表于 2020-5-15 22:54
+
+
+
+
+她声音本来就低，怕伤喉咙现在都不用假声唱了是这样的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6406#       发表于 2020-5-15 23:03
+
+
+
+
+刚才卡了一下挺可惜的，咩姐的网确实不好
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 6407#       发表于 2020-5-15 23:04
+
+
+
+
+呜呜呜，小咩等会单独唱这首好不好。
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6408#       发表于 2020-5-15 23:06
+
+
+
+
+我想着这首苔苔你负责和声就好了嘛（
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6409#       发表于 2020-5-15 23:08
+
+
+
+
+挺好的，苔苔努力追逐青春的样子真是让人落泪<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6410#       发表于 2020-5-15 23:10
+
+
+
+
+最后的打上花火真好啊，苔苔的梁木又矮了一寸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6411#       发表于 2020-5-15 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">可惜贷款黑p没成
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">对苔苔又gachi了一分
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6412#       发表于 2020-5-15 23:15
+
+
+
+
+第一句是那个恐怖游戏？<img src="https://p.sda1.dev/0/b410b87fd92c416c976f980c2db5d669/IMG_5473EBAB70FE9A92D266CA11896625A2.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6413#       发表于 2020-5-15 23:16
+
+
+
+
+不黑苔苔了，那种历史的厚重感真的顶不住，歌回开了，该好好听了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6414#       发表于 2020-5-15 23:16
+
+
+
+
+15.9了，食杀名取，指日可待力
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6415#       发表于 2020-5-15 23:18
+
+
+
+
+今年有可能20w？好起来了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6416#       发表于 2020-5-15 23:20
+
+
+
+ 本帖最后由 2014720 于 2020-5-15 23:23 编辑 
+
+今年必20w的吧
+
+怎么开场就是这首<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6417#       发表于 2020-5-15 23:23
+
+
+
+ 本帖最后由 第三惑星 于 2020-5-15 23:25 编辑 
+
+第一首就杀了我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+喷嚏可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6418#       发表于 2020-5-15 23:23
+
+
+
+
+谁还拱了个绿色的
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 6419#       发表于 2020-5-15 23:23
+
+
+
+
+516你就唱这？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6420#       发表于 2020-5-15 23:24
+
+
+
+
+变吧，都可以变<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6421#       发表于 2020-5-15 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47434955&amp;ptid=1929631" target="_blank">keroko 发表于 2020-5-15 23:23</a>
+516你就唱这？</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6422#       发表于 2020-5-15 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6423#       发表于 2020-5-15 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">你麻一开始就是别人的女友，i了i了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 6424#       发表于 2020-5-15 23:26
+
+
+
+
+喜欢，拜托多来点<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6425#       发表于 2020-5-15 23:28
+
+
+
+
+这首确实好听，有录音环境了之后就去试着录一首和她合一版<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6426#       发表于 2020-5-15 23:30
+
+
+
+
+挺好的，去年再过半个小时就要突击黑屏带哭腔了，当时是一点准备没有。现在却还在唱歌，真的挺好
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 6427#       发表于 2020-5-15 23:31
+
+
+
+
+挺好，这样的516我喜欢
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6428#       发表于 2020-5-15 23:33
+
+
+
+
+最少最少她又活过了一年<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6429#       发表于 2020-5-15 23:34
+
+
+
+
+净化了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6430#       发表于 2020-5-15 23:39
+
+
+
+
+hacking to the gate好
+
+这几天一直在云鬼的合集里听这首
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6431#       发表于 2020-5-15 23:40
+
+
+
+
+虽然不知道这歌的名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但一听到这歌就想起以前mugen经常用这个做bgm
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 6432#       发表于 2020-5-15 23:41
+
+
+
+
+这Hacking to the Gate感觉奶味十足<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 6433#       发表于 2020-5-15 23:58
+
+
+
+
+是苔姨经典的内绪哒哟~
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6434#       发表于 2020-5-16 00:00
+
+
+
+
+逐渐苔化<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 6435#       发表于 2020-5-16 00:02
+
+
+
+
+好活
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 6436#       发表于 2020-5-16 00:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">555   渐渐变成苔姨的形状了
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 6437#       发表于 2020-5-16 00:05
+
+
+
+
+苔化50%<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">要便乘老女人了
+
+
+
+
+
+                                   
