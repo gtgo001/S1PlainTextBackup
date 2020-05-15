@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-15 14:06** 
+> ## **本文件最后更新于2020-05-15 18:05** 
 
 
 
@@ -5835,4 +5835,418 @@ lol你害了多少yhm<img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                       
+
+
+-----
+
+####  离心  
+##### 6319#       发表于 2020-5-15 14:24
+
+
+
+
+没有期待就没有失望，联动肯定不可能啦
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6320#       发表于 2020-5-15 14:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也不是没有可能，毕竟这游戏之前联动过holo那几个，从文案来看明显制作组内部是有DD的，不过单人联动也太牌面了吧，不可能的，不可能.jpg
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 6321#       发表于 2020-5-15 15:24
+
+
+
+
+与其猜这个，不如猜一下你麻的新签名是啥意思
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 6322#       发表于 2020-5-15 15:24
+
+
+
+
+斗虫比赛mea的演唱会什么时候能落地啊，mea有提过吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6323#       发表于 2020-5-15 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47429257&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-15 15:24</a>
+与其猜这个，不如猜一下你麻的新签名是啥意思</blockquote>
+mea:别发怪文书了，咱俩都轻松点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6324#       发表于 2020-5-15 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47429259&amp;ptid=1929631" target="_blank">聪明墨菲特 发表于 2020-5-15 15:24</a>
+斗虫比赛mea的演唱会什么时候能落地啊，mea有提过吗
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+没有，日本这个月底解除紧急状态，也不知b站分部什么时候才能运作
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6325#       发表于 2020-5-15 15:47
+
+
+
+
+日本这个解除靠不靠谱，别坑我咩啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6326#       发表于 2020-5-15 15:50
+
+
+
+
+电影院快开张了 或许快了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6327#       发表于 2020-5-15 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47429257&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-5-15 15:24</a>
+与其猜这个，不如猜一下你麻的新签名是啥意思</blockquote>
+推我不要想太多，我只是个小主播<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6328#       发表于 2020-5-15 15:54
+
+
+
+
+日本解除了我也不想让她去啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那捂盖子我看着害怕
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6329#       发表于 2020-5-15 16:08
+
+
+
+
+真解除了不跑去整3d也会跑出去玩的，这人已经要憋疯了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 6330#       发表于 2020-5-15 16:14
+
+
+
+
+路人庚如果你有小号在看的话可以和我接着上次的继续私聊么，你说的有一点我很好奇啊
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6331#       发表于 2020-5-15 16:27
+
+
+
+
+自信一点，方舟指令联动过木口就不能联动mea了吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6332#       发表于 2020-5-15 16:36
+
+
+
+
+这游戏单个角色联动比较少见，不过可以联动活动复刻然后塞个新角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6333#       发表于 2020-5-15 16:36
+
+
+
+
+“个人势指不定什么时候就自爆”去年上半年的时候做梦mea和什么游戏联动的时候被人这么说的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6334#       发表于 2020-5-15 16:37
+
+
+
+
+评论了个“希望推特运营的家人有事🙏”被举报人身攻击删除了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6335#       发表于 2020-5-15 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47430236&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-15 16:37</a>
+评论了个“希望推特运营的家人有事🙏”被举报人身攻击删除了</blockquote>
+就算被冻结了也不是谁都爱看这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被举报了正常
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 6336#       发表于 2020-5-15 16:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你该用文言文的
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6337#       发表于 2020-5-15 17:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/15/170433x317h0401e3z7i7a.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200515170345.png</strong> (36.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-15 17:04 上传
+
+
+
+
+
+
+bang人震怒
+
+不知道能不能吹一个月
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6338#       发表于 2020-5-15 17:11
+
+
+
+
+m团主唱唱力不行这不是公认的吗……一个唱力棒读，一个配音棒读。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6339#       发表于 2020-5-15 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47430651&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-5-15 17:05</a>
+
+bang人震怒
+
+不知道能不能吹一个月</blockquote>
+qfq不是自称退坑了吗
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6340#       发表于 2020-5-15 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47431128&amp;ptid=1929631" target="_blank">鷹書たかしょ 发表于 2020-5-15 17:39</a>
+qfq不是自称退坑了吗</blockquote>
+虽然退坑了但在二次元相关贴吧经常看到他<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6341#       发表于 2020-5-15 17:41
+
+
+
+
+这是哪首？
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6342#       发表于 2020-5-15 17:43
+
+
+
+
+咬秒针
+
+
+
+
+
+                                      

@@ -497,9 +497,9 @@
   },
   {
     "id": "1794543",
-    "totalpage": 217,
+    "totalpage": 218,
     "title": "[漫画《电锯人》专楼]",
-    "lastedit": 1589522491,
+    "lastedit": 1589536852,
     "category": "漫区专楼",
     "active": true
   },
@@ -4449,9 +4449,9 @@
   },
   {
     "id": "1916462",
-    "totalpage": 103,
-    "title": "[【仁王2专楼】更新隐藏的招式教学、全制作书和全技能掉落]",
-    "lastedit": 1588903459,
+    "totalpage": 104,
+    "title": "[【仁王2专楼】更新无妖怪化无伤全Boss，更新隐藏招式。]",
+    "lastedit": 1589536903,
     "category": "游戏区专楼",
     "active": true
   },
@@ -6845,7 +6845,7 @@
     "title": "[没有256G的胃，不要去新疆吃吃吃！]",
     "lastedit": 1586938318,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1924194",
@@ -6861,13 +6861,13 @@
     "title": "[【赌头】那对CP她们会四月里联动吗]",
     "lastedit": 1586938334,
     "category": "虚拟主播区",
-    "active": true
+    "active": false
   },
   {
     "id": "1924531",
-    "totalpage": 965,
+    "totalpage": 972,
     "title": "[【V8】虚拟YouTuber综合讨论楼A.I.Channel分离2／3号，开设新频道]",
-    "lastedit": 1589529795,
+    "lastedit": 1589537013,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -7273,9 +7273,9 @@
   },
   {
     "id": "1929275",
-    "totalpage": 151,
+    "totalpage": 152,
     "title": "[【糊肖山庄2】肖战正式集齐八大主流纸媒，成为顶流之主]",
-    "lastedit": 1589529934,
+    "lastedit": 1589537085,
     "category": "外野专楼",
     "active": true
   },
@@ -7305,9 +7305,9 @@
   },
   {
     "id": "1929631",
-    "totalpage": 211,
+    "totalpage": 212,
     "title": "[【M11】神楽Mea(KaguraMea)真爱讨论楼]",
-    "lastedit": 1589522801,
+    "lastedit": 1589537105,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -7629,7 +7629,7 @@
     "title": "[为什么阅文(起点)对网文的价值判断产生了变化。]",
     "lastedit": 1588587076,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1931622",
@@ -7637,7 +7637,7 @@
     "title": "[熊是多么恐怖的生物，看了真实事件才知道]",
     "lastedit": 1589299877,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1932059",
@@ -7645,7 +7645,7 @@
     "title": "[指责年轻人“未富先懒”, 是对社会异化的最大反讽]",
     "lastedit": 1588587094,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1932238",
@@ -8097,9 +8097,9 @@
   },
   {
     "id": "1933932",
-    "totalpage": 55,
+    "totalpage": 56,
     "title": "[疫情专楼]",
-    "lastedit": 1589530072,
+    "lastedit": 1589537341,
     "category": "外野专楼",
     "active": true
   },
@@ -8457,9 +8457,9 @@
   },
   {
     "id": "1934528",
-    "totalpage": 114,
+    "totalpage": 118,
     "title": "[【B5】VUP综合讨论专楼]",
-    "lastedit": 1589530147,
+    "lastedit": 1589537422,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -8508,6 +8508,22 @@
     "totalpage": 5,
     "title": "[互联网尸体：猫扑]",
     "lastedit": 1589451128,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1935091",
+    "totalpage": 11,
+    "title": "[“钟南山，造神翻车与人设崩塌的灾难现场”]",
+    "lastedit": 1589537445,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "1934973",
+    "totalpage": 10,
+    "title": "[所以二战的转折点究竟是什么？]",
+    "lastedit": 1589537460,
     "category": "外野",
     "active": true
   }
