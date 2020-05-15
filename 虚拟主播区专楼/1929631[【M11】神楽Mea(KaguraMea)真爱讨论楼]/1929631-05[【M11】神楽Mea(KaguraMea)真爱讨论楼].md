@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-15 08:52** 
+> ## **本文件最后更新于2020-05-15 10:06** 
 
 
 
@@ -3039,4 +3039,508 @@ b博动
 
 
 
-                                            
+
+
+-----
+
+####  暗心舞踏  
+##### 6161#       发表于 2020-5-15 08:53
+
+
+
+
+好姐姐你这样和涨粉渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6162#       发表于 2020-5-15 09:11
+
+
+
+
+tc播了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6163#       发表于 2020-5-15 09:18
+
+
+
+
+好姐姐可不可以分我一口<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6164#       发表于 2020-5-15 09:18
+
+
+
+
+今日的朝九晚五？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6165#       发表于 2020-5-15 09:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">以以往手充卡拉OK拱火情况来考虑。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">五元会放在mea的怀里
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6166#       发表于 2020-5-15 09:38
+
+
+
+
+谢绝贷款heip<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6167#       发表于 2020-5-15 09:38
+
+
+
+
+以前那次也没有拱火环节吧
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6168#       发表于 2020-5-15 09:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我tc卡死了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6169#       发表于 2020-5-15 09:39
+
+
+
+
+早上好软啊<img src="https://static.saraba1st.com/image/smiley/carton2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6170#       发表于 2020-5-15 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47424877&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-15 09:38</a>
+以前那次也没有拱火环节吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">咩夸cp有热度的时候，放过一次
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6171#       发表于 2020-5-15 09:44
+
+
+
+
+之前和mea不就只搞过一次手冲卡拉ok，那次哪有
+之后b限那次也没有啊<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6172#       发表于 2020-5-15 09:44
+
+
+
+
+mea和舞元都现在这么相处了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥还来在意个拱不拱
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6173#       发表于 2020-5-15 09:49
+
+
+
+
+kimo<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6174#       发表于 2020-5-15 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47424952&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-5-15 09:44</a>
+之前和mea不就只搞过一次手冲卡拉ok，那次哪有
+之后b限那次也没有啊</blockquote>
+https://b23.tv/1LfFV3
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">P站有熟肉
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6175#       发表于 2020-5-15 09:50
+
+
+
+
+又是私信发怪文书的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6176#       发表于 2020-5-15 09:51
+
+
+
+
+不过yysy，如果“tekoki”卡拉ok里放个男人的话那可确实是恶心爆了，不过我觉得海苔男不至于弱智到这种程度。
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6177#       发表于 2020-5-15 09:51
+
+
+
+
+这TC一没有多少钱，二涨不了粉，三画质又糟糕，她为什么这么喜欢播啊。最绝的是还是禁止转播，对于一般通过来说TC是不会去看的，兔子的联动B站也没转播，也就说她一个月直播国内一般通过起码有一半是看不到的。字幕组也很少烤兔子、犬山和TC的肉，然而这三个的直播效果是最好的。字幕组多烤电TC和联动的肉，mea把TC转播权开了，现在怎么也85W起步了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6178#       发表于 2020-5-15 09:51
+
+
+
+
+🐮的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6179#       发表于 2020-5-15 09:53
+
+
+
+
+这谁发的怪文书啊，有、恶心，只是希望今天阿咩唱完招牌苦情曲的时候苔姨别拱是给舞元唱的就好了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6180#       发表于 2020-5-15 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425064&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-15 09:51</a>
+这TC一没有多少钱，二涨不了粉，三画质又糟糕，她为什么这么喜欢播啊。最绝的是还是禁止转播，对于一般通过 ...</blockquote>
+一个是爱好，一个是工作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6181#       发表于 2020-5-15 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425064&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-15 09:51</a>
+这TC一没有多少钱，二涨不了粉，三画质又糟糕，她为什么这么喜欢播啊。最绝的是还是禁止转播，对于一般通过 ...</blockquote>
+我就当她和tc签约了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+习惯吧，她在这地方播了几年了吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6182#       发表于 2020-5-15 09:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">本质t台主播
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6183#       发表于 2020-5-15 09:58
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-15 09:59 编辑 
+
+她不是数字厨，话题结束.jpg
+
+说白了也就是情怀吧，和A站/nico老用户差不多的感觉
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6184#       发表于 2020-5-15 10:00
+
+
+
+
+看这意思是说大半都在sl上打了？<img src="https://p.sda1.dev/0/a98439a19e9f0c15c5208d7ad6dc69a1/IMG_C5D3025CED768E565CE1962919A601ED.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6185#       发表于 2020-5-15 10:00
+
+
+
+
+tc是她放松的地方啊，相当于在闺房里自己胡闹那种感觉？能播tc就是状态还不错，一月时没播tc都难受成那样了，看她直播得学会自我提纯自己找直播看，能做到的粘度也挺大得了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6186#       发表于 2020-5-15 10:01
+
+
+
+
+所以斗虫榜下去了大家也别慌嘛.jpg
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6187#       发表于 2020-5-15 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425164&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-15 10:00</a>
+
+看这意思是说大半都在sl上打了？</blockquote>
+财酱都在sl打的，确实sc会少很多
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 6188#       发表于 2020-5-15 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425088&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-15 09:53</a>
+
+一个是爱好，一个是工作啊</blockquote>
+
+她自己又在那因为钱没之前多而想东想西的
+
+半夜tc播的比404时长长几倍，B站还没转播。热门游戏也玩了不播。我都不想说啥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前我可能听到她这话又会闷头生气会儿，现在事业民早死光了，随便了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6189#       发表于 2020-5-15 10:04
+
+
+
+
+其实最近财报都是靠他撑上去的，去年的时候他赶上一次打500，一个月可能打个1000到2000刀。最近算b站是真的差不多月月上万刀了。
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6190#       发表于 2020-5-15 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47425187&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-15 10:02</a>
+她自己又在那因为钱没之前多而想东想西的
+
+半夜tc播的比404时长长几倍，B站还没转播。热门游戏也玩了不播 ...</blockquote>
+盯着数字云p瞎想到最后还不一定对她是好是坏，所以还不如安心看直播让她自己想去<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我现在基本就是这样
+
+
+
+
+
+                                           
