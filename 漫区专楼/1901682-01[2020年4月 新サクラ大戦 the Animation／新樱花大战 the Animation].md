@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-07 20:07** 
+> ## **本文件最后更新于2020-05-16 20:03** 
 
 
 
@@ -4019,4 +4019,612 @@ B站不知道啥时候买了樱战1动画的版权 可端上来的翻译那叫�
 
 
 
-                                          
+
+
+-----
+
+####  aptx8285144  
+##### 212#       发表于 2020-5-7 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47335081&amp;ptid=1901682" target="_blank">xingenge 发表于 2020-5-7 18:43</a>
+
+7話「隠密作戦！デートを追え」
+
+8話「波乱万丈！華撃団大戦」
+
+9話「驚天動地！クラーラの真実」</blockquote>
+标题可以放到第10话，看样子能在电视台顺利播到第10话，希望能顺利播完
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 213#       发表于 2020-5-7 20:41
+
+
+
+
+帝都又要毁灭了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 214#         楼主| 发表于 2020-5-8 22:17
+
+
+
+
+看不懂师傅究竟是无间道还是什么的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 215#       发表于 2020-5-8 22:39
+
+
+
+
+都第六话了依然在持续不断的挖坑……
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 216#       发表于 2020-5-8 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350142&amp;ptid=1901682" target="_blank">无动于衷 发表于 2020-5-8 22:39</a>
+都第六话了依然在持续不断的挖坑……</blockquote>
+反正出新樱2基本上没问题了吧
+
+
+
+
+
+
+
+-----
+
+####  DancingAndy  
+##### 217#       发表于 2020-5-8 23:05
+
+
+
+
+辣个男人居然回来了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">期待下一集
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 218#       发表于 2020-5-8 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47350220&amp;ptid=1901682" target="_blank">王留美 发表于 2020-5-8 22:46</a>
+
+反正出新樱2基本上没问题了吧</blockquote>
+不清楚 A9VG那边年初联系片野的访谈因为新冠早黄掉了
+
+
+也许TV完结来个2代锐意制作中的PV当然也不一定<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 219#       发表于 2020-5-9 00:29
+
+
+
+
+師父:我愈來愈擔心徒弟再這樣下去真是沒問題嗎...雖然她非常可愛...
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 220#       发表于 2020-5-9 13:36
+
+
+
+
+师傅还能这么蒙混过去，樱小姐这迟钝得有点恐怖（    打斗的水准挺不错的
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 221#       发表于 2020-5-9 13:38
+
+
+
+<blockquote>eilot 发表于 2020-5-9 00:29
+師父:我愈來愈擔心徒弟再這樣下去真是沒問題嗎...雖然她非常可愛...</blockquote>
+没事能打就行，迟钝和眼力问题大概是天生的（
+
+
+
+
+
+
+
+-----
+
+####  百升飞上天  
+##### 222#       发表于 2020-5-9 16:04
+
+
+
+
+你们这战力加起来都不如师傅一个人，建议退群吧，
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 223#       发表于 2020-5-9 16:25
+
+
+
+
+给师傅一台垃圾桶不就无敌了吗
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 224#       发表于 2020-5-9 17:01
+
+
+
+
+垃圾桶还行233
+
+
+
+
+
+
+
+-----
+
+####  kokyou  
+##### 225#       发表于 2020-5-9 17:58
+
+
+
+
+现在的观感就是游戏里夜叉什么的boss还不如动画杂鱼厉害，几次5V1翻车了这是<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 226#       发表于 2020-5-10 02:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47357422&amp;ptid=1901682" target="_blank">百升飞上天 发表于 2020-5-9 16:04</a>
+
+你们这战力加起来都不如师傅一个人，建议退群吧，</blockquote>
+師父是肉身上陣，你們都是開光武3式(改?)
+
+這已經不是集體退群就能解決問題...
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 227#       发表于 2020-5-10 02:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363483&amp;ptid=1901682" target="_blank">eilot 发表于 2020-5-10 02:44</a>
+師父是肉身上陣，你們都是開光武3式(改?)
+
+這已經不是集體退群就能解決問題... ...</blockquote>
+都算无限
+
+光武三改还在基地里面放着呢
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 228#       发表于 2020-5-10 08:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47358607&amp;ptid=1901682" target="_blank">kokyou 发表于 2020-5-9 17:58</a>
+现在的观感就是游戏里夜叉什么的boss还不如动画杂鱼厉害，几次5V1翻车了这是
+
+  -- 来自 能手机投票 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">别忘了打夜叉也是直接死了几个啊....
+那谁开白魔法复活的
+
+
+
+
+
+
+
+-----
+
+####  Tehebe  
+##### 229#       发表于 2020-5-10 12:50
+
+
+
+
+反派真是莫斯科团的人啊，还以为是假冒的呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 230#       发表于 2020-5-10 12:55
+
+
+
+
+是不是来自外星的肇事司机通过附体的方式救活了克拉拉
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 231#       发表于 2020-5-11 17:04
+
+
+
+
+
+第7話：隠密作戦！デートを追え
+
+
+欧州任務から帰国した神山をもてなすため、手料理を用意するさくらと花組の隊員たち。その夜神山は、隊長代理であるさくらをねぎらうため「明日２人で花やしきに遊びにいこう」と約束をする。しかし、神山とさくらの抜け駆けを許さない怪しげな影が…！
+
+
+シナリオ：浦畑達彦　 絵コンテ：増田敏彦　 演出：浅利藤彰
+
+<img src="https://files.catbox.moe/pfnenq.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4xac74.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/wk8z9z.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/b0xt1g.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ou885z.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/brfhbn.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nanoka1021  
+##### 232#       发表于 2020-5-11 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=46974060&amp;ptid=1901682" target="_blank">沙包王 发表于 2020-4-4 11:10</a>
+
+神山你这就把小樱甩了去其他团泡妹子了？大神好歹也呆了整整两作啊，其他队友风评看来是没错了，小 ...</blockquote>
+事实上，如果我没记错的话，当年大神在一、二代之间的这段时间里曾去过一次南美，只不过这段剧情只有文字提到从未有过任何作品来落实而不为人知。或许这段剧情也可以来展开延申做一款外传作品出来？只不过从新樱战的情况来看，现在几乎不再有这种可能性了。
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 233#       发表于 2020-5-11 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381128&amp;ptid=1901682" target="_blank">nanoka1021 发表于 2020-5-11 17:28</a>
+
+事实上，如果我没记错的话，当年大神在一、二代之间的这段时间里曾去过一次南美，只不过这段剧情只有文字 ...</blockquote>
+2代说的比较含糊 主要是随海军出去的而不是贤人机关委派
+
+
+何况 美国妹子都写不好 写南美妹子回头又写成一批披着外国皮的日本人 实在太难为编剧了
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 234#       发表于 2020-5-11 21:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47381128&amp;ptid=1901682" target="_blank">nanoka1021 发表于 2020-5-11 17:28</a>
+
+事实上，如果我没记错的话，当年大神在一、二代之间的这段时间里曾去过一次南美，只不过这段剧情只有文字 ...</blockquote>
+記得櫻5動畫版時，2周目才能攻略的前隊長說再次離開去搞新隊伍，之後有沒下文?
+
+
+
+
+
+
+
+-----
+
+####  plazum  
+##### 235#       发表于 2020-5-12 15:07
+
+
+
+
+纯动画党，就当轻百合看了
+
+克拉拉真可爱，我老婆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">尤其是声音太可爱了
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 236#       发表于 2020-5-12 15:36
+
+
+
+<blockquote>eilot 发表于 2020-5-11 21:58
+記得櫻5動畫版時，2周目才能攻略的前隊長說再次離開去搞新隊伍，之後有沒下文? ...</blockquote>
+就是柏林华击团
+
+
+
+
+
+
+
+-----
+
+####  sdzzzdc  
+##### 237#       发表于 2020-5-12 19:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47363483&amp;ptid=1901682" target="_blank">eilot 发表于 2020-5-10 02:44</a>
+
+師父是肉身上陣，你們都是開光武3式(改?)
+
+這已經不是集體退群就能解決問題... ...</blockquote>
+师傅作为降魔级别也不低的。不过这代从演出看感觉神山的战斗力比其他人高一截子
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 238#       发表于 2020-5-15 23:50
+
+
+
+
+看完今集後，大家都只有一套便服和一套戰服嗎
+
+早上敲門時克拉拉應門，就已經換好了衣服...
+
+
+
+
+
+
+
+-----
+
+####  百升飞上天  
+##### 239#       发表于 2020-5-16 01:18
+
+
+
+
+男主真是路人男主，樱女士有当妈的潜力，看好你哦
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 240#       发表于 2020-5-16 17:51
+
+
+
+
+这话各种欢乐呀<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  z692689995  
+##### 241#       发表于 2020-5-16 18:05
+
+
+
+
+还没看，这番是怎么回事豆瓣上只有5.4
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 242#       发表于 2020-5-16 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47435249&amp;ptid=1901682" target="_blank">eilot 发表于 2020-5-15 23:50</a>
+看完今集後，大家都只有一套便服和一套戰服嗎
+
+早上敲門時克拉拉應門，就已經換好了衣服... ...</blockquote>
+主要角色都是3d建模的...
+换套衣服就要做新建模....
+为了个不到10秒的镜头不可能的
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 243#       发表于 2020-5-16 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47391725&amp;ptid=1901682" target="_blank">plazum 发表于 2020-5-12 15:07</a>
+
+纯动画党，就当轻百合看了
+
+克拉拉真可爱，我老婆尤其是声音太可爱了 ...</blockquote>
+有神山这个理论上的主角在，还是没办法真当轻百合看的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 244#       发表于 2020-5-16 19:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47442100&amp;ptid=1901682" target="_blank">hypnossz86 发表于 2020-5-16 18:26</a>
+主要角色都是3d建模的...
+换套衣服就要做新建模....
+为了个不到10秒的镜头不可能的 ...</blockquote>
+讲道理前面也有好几处该换衣服的，尤其是库拉拉，模型造出来总归能用个三五分钟的
+还是抠
+
+嘛从游戏开始看得出就没啥成本的
+
+
+
+
+
+                                         
