@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 16:05** 
+> ## **本文件最后更新于2020-05-16 18:06** 
 
 
 
@@ -9497,4 +9497,336 @@ bilibili发了啥？
 
 
 
-                                
+
+
+-----
+
+####  若风之景  
+##### 6534#       发表于 2020-5-16 16:10
+
+
+
+
+TC来了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6535#       发表于 2020-5-16 16:14
+
+
+
+
+点进去就在夏娜
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6536#       发表于 2020-5-16 16:19
+
+
+
+
+你能不能让我好好听完一首歌
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6537#       发表于 2020-5-16 16:24
+
+
+
+
+这是在播啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6538#       发表于 2020-5-16 16:25
+
+
+
+
+为甚没有画面。。
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6539#       发表于 2020-5-16 16:26
+
+
+
+
+这是弹珠机？？还是啥？<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6540#       发表于 2020-5-16 16:29
+
+
+
+
+我怎么听到捕鱼达人的音效
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6541#       发表于 2020-5-16 16:37
+
+
+
+
+错过半小时了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6542#       发表于 2020-5-16 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">妹啊你这个TC播的也太提纯了……
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6543#       发表于 2020-5-16 16:41
+
+
+
+
+不纯谁看tc啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6544#       发表于 2020-5-16 16:43
+
+
+
+
+反正tc吸不到新粉也没啥收益，是出于兴趣而非工作播的(눈_눈)，提提纯很正常
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 6545#       发表于 2020-5-16 16:45
+
+
+
+
+
+不纯谁看tc啊
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6546#       发表于 2020-5-16 16:47
+
+
+
+
+入れ、入れ、入れ、入れ<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 6547#       发表于 2020-5-16 16:50
+
+
+
+
+接了个校对
+
+mixmuro这人纯度也太高了吧
+
+真的不是坛友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6548#       发表于 2020-5-16 16:51
+
+
+
+
+mix兄可是名人啊，在kimo程度上令人望尘莫及<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6549#       发表于 2020-5-16 16:56
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/add05318c8ed328e7bce82a156d77801/FD049C9EBD5DA8AE0CA85B1682FAEACD.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6550#       发表于 2020-5-16 17:03
+
+
+
+
+怎么突然开始黄兔子了，发生了什么
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6551#       发表于 2020-5-16 17:08
+
+
+
+[梦 想 与 梦 碎](https://b23.tv/BV1FK4y1t7RJ)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6552#       发表于 2020-5-16 17:24
+
+
+
+
+虚无的料理配信<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6553#       发表于 2020-5-16 17:26
+
+
+
+
+想起以前的火腿肠料理比赛了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                               
