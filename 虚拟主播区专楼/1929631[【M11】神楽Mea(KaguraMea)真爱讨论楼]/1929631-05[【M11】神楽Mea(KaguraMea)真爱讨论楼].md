@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 10:05** 
+> ## **本文件最后更新于2020-05-16 16:05** 
 
 
 
@@ -8629,4 +8629,872 @@ STM还有tc草
 
 
 
-                                 
+
+
+-----
+
+####  ryy3jk  
+##### 6482#       发表于 2020-5-16 10:10
+
+
+
+
+情弱装情强的交流障碍患者，这大概就是v8自称乐子人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6483#       发表于 2020-5-16 10:12
+
+
+
+
+v8这帮fw就这也想冲人，笑死个人了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6484#       发表于 2020-5-16 10:13
+
+
+
+
+先搁那自嗨吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">房管辛苦了
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 6485#       发表于 2020-5-16 10:13
+
+
+
+
+但看别人玩恐怖游戏就不可怕了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这段时间好多LPL职业选手玩港诡实录和拉队友来一起看的，被吓到的人应该可以凑两个战队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6486#       发表于 2020-5-16 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47437604&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-5-16 10:13</a>
+但看别人玩恐怖游戏就不可怕了吗
+这段时间好多LPL职业选手玩港诡实录和拉队友来一起看的，被吓到的 ...</blockquote>
+只要有人更怕，自己就不害怕。
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6487#       发表于 2020-5-16 11:29
+
+
+
+
+起来发现转播间已经不是我们的了。。。。她什么事都没干也能被开，原来以前古战场也算讲道理的了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6488#       发表于 2020-5-16 11:34
+
+
+
+
+还是别管了，闹得越大nt们越开心。放置到明天就行
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 6489#       发表于 2020-5-16 11:35
+
+
+
+
+转播间版聊的内容好像也没啥特别的。是我屏蔽等级开太高了？
+
+
+
+
+
+
+
+-----
+
+####  第二十三个马甲  
+##### 6490#       发表于 2020-5-16 11:36
+
+
+
+
+一段时间没来就到十一了？这么快……
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6491#       发表于 2020-5-16 11:37
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-16 11:39 编辑 
+
+没啥实质性伤害内容，有的话我早动手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+现在就是个普通q群，无所谓，有整涌来的再说
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6492#       发表于 2020-5-16 11:42
+
+
+
+
+我也看见了，有一说一还不如贴吧开的激烈，我看着反而跟开玩笑一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6493#       发表于 2020-5-16 11:53
+
+
+
+
+mea粉对这天都没啥反应，反而v8高潮了就很想笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6494#       发表于 2020-5-16 12:04
+
+
+
+
+我反对，楼里几天前就开始ptsd了，但是到了今天反而没动静了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6495#       发表于 2020-5-16 12:05
+
+
+
+
+有几个是真ptsd的啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 6496#       发表于 2020-5-16 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是一点感觉都没，忙着考试呢谁管你炎上一周年纪念
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6497#       发表于 2020-5-16 12:08
+
+
+
+
+ptsd归ptsd，作为粉巴不得无事发生
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6498#       发表于 2020-5-16 12:19
+
+
+
+
+ptsd又不是治不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6499#       发表于 2020-5-16 12:58
+
+
+
+
+今晚有雀魂联动。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6500#       发表于 2020-5-16 13:38
+
+
+
+
+今天没事发生就不好ptsd啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6501#       发表于 2020-5-16 13:49
+
+
+
+
+舞咩苔mc居然是2个钟头
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6502#       发表于 2020-5-16 13:53
+
+
+
+
+b动
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6503#       发表于 2020-5-16 13:53
+
+
+
+
+草，打字带回车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6504#       发表于 2020-5-16 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47439785&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-16 13:53</a>
+
+b动</blockquote>
+硬了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6505#       发表于 2020-5-16 14:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突击B限LOL
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6506#       发表于 2020-5-16 14:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这人怎么打字带回车的
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 6507#       发表于 2020-5-16 14:09
+
+
+
+
+来了，上网课去了<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6508#       发表于 2020-5-16 14:12
+
+
+
+
+苔姨啊苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6509#       发表于 2020-5-16 14:15
+
+
+
+
+看lovehouse竟然2小时吗，没另外计划后一个小时必然是折磨观众
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6510#       发表于 2020-5-16 14:30
+
+
+
+
+刚看了个弹幕
+神乐势不可挡，mea火力全开<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6511#       发表于 2020-5-16 14:33
+
+
+
+
+惊了，有跳脸sc的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6512#       发表于 2020-5-16 14:36
+
+
+
+
+万一成鬼屋企划还是挺好的，不看睡了也成，苔苔的水平真的不敢恭维。这直播间还是有零星搅局的啊，希望咩别受到影响
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6513#       发表于 2020-5-16 14:50
+
+
+
+
+血压血压血压血压
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6514#       发表于 2020-5-16 15:17
+
+
+
+
+今晚还有黄兔子的麻酱啊，这样就是一天三动了
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6515#       发表于 2020-5-16 15:30
+
+
+
+
+居然撑到大招结束了草
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6516#       发表于 2020-5-16 15:31
+
+
+
+
+皎月没鞋也跑这么快的吗
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 6517#       发表于 2020-5-16 15:32
+
+
+
+
+有人能说一下和苔姨联动恐怖游戏是几号几点吗？
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6518#       发表于 2020-5-16 15:32
+
+
+
+
+bilibili发了啥？
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6519#       发表于 2020-5-16 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47440626&amp;ptid=1929631" target="_blank">Rem-清曲 发表于 2020-5-16 15:32</a>
+有人能说一下和苔姨联动恐怖游戏是几号几点吗？</blockquote>
+没说日子吧，好像都说是正在挑日子
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rem-清曲| + 1|OK，感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6520#       发表于 2020-5-16 15:33
+
+
+
+
+520也有直播
+
+她被自己吓到了，想换日子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6521#       发表于 2020-5-16 15:35
+
+
+
+
+这批站拱火一流啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还特意去跟她们这些日本主播说520的谐音
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6522#       发表于 2020-5-16 15:35
+
+
+
+
+阿b联系人难道是旁敲侧击型事业民？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6523#       发表于 2020-5-16 15:36
+
+
+
+
+这么想大亏的520应该也是小破站安排的，那咱改成521不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6524#       发表于 2020-5-16 15:37
+
+
+
+ 本帖最后由 第三惑星 于 2020-5-16 15:39 编辑 
+
+跟木口同步的，一看就是安排来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+昨天不就说下周有b限，我还在想是不是阿b给她拐来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6525#       发表于 2020-5-16 15:38
+
+
+
+
+阿b估计是认为粉丝会在那天打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6526#       发表于 2020-5-16 15:38
+
+
+
+
+不也挺好么<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6527#       发表于 2020-5-16 15:41
+
+
+
+
+在阿b算半个企业势是这样的，有啥活动都能拉一下，能播有钱赚还不是美滋滋。就是她这网最近也太不好了吧，刚刚话都没说完就断了，延迟太大了
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 6528#       发表于 2020-5-16 15:42
+
+
+
+
+今天不是好像还提到没什么人上舰吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">520来一波
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 6529#       发表于 2020-5-16 15:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那也不能全挤那天啊
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  如月可由莉  
+##### 6530#       发表于 2020-5-16 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47440651&amp;ptid=1929631" target="_blank">甘栗No.007 发表于 2020-5-16 15:35</a>
+
+阿b联系人难道是旁敲侧击型事业民？</blockquote>
+这不只是事业民吧？应该都能算是在b站的P了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6531#       发表于 2020-5-16 15:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我都续到9月了 还上吗
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6532#       发表于 2020-5-16 15:51
+
+
+
+
+今晚除了黄兔子的麻将还播么
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6533#       发表于 2020-5-16 16:01
+
+
+
+
+没了大概，有的话要么是个断网事故上播要么就是tc吧
+
+
+
+
+
+                                
