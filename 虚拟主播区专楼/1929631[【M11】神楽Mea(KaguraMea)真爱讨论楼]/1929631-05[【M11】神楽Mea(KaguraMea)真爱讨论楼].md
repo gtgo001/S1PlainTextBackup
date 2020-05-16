@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 18:06** 
+> ## **本文件最后更新于2020-05-16 22:08** 
 
 
 
@@ -9829,4 +9829,1320 @@ mix兄可是名人啊，在kimo程度上令人望尘莫及<img src="https://stat
 
 
 
-                               
+
+
+-----
+
+####  2014720  
+##### 6554#       发表于 2020-5-16 20:04
+
+
+
+
+转播man呢
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6555#       发表于 2020-5-16 20:11
+
+
+
+
+mea快开，不然打不过的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6556#       发表于 2020-5-16 20:12
+
+
+
+
+苔苔种的舞元梁木太多，现在我居然会觉得这个尼哥还不错，绝了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6557#       发表于 2020-5-16 20:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">这联动有什么看点吗，对不懂麻将的人来说
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6558#       发表于 2020-5-16 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443267&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-16 20:12</a>
+这联动有什么看点吗，对不懂麻将的人来说</blockquote>
+黑叔叔声音很池面<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6559#       发表于 2020-5-16 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">这黑叔叔也是线上嚣张线下好人的设定
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6560#       发表于 2020-5-16 20:17
+
+
+
+
+这800同接怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+那边516又炸了一次？不能接受啊
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6561#       发表于 2020-5-16 20:17
+
+
+
+
+这个🐔🐔的声音听起来有点怪
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6562#       发表于 2020-5-16 20:18
+
+
+
+
+就硬摸，真的是看不懂麻将
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6563#       发表于 2020-5-16 20:18
+
+
+
+
+会读空气的咩姐是鉴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6564#       发表于 2020-5-16 20:22
+
+
+
+
+今天黄兔子的声音好小，司会的声音也好小，不过anmr的那个新人火鸡声音好大声
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6565#       发表于 2020-5-16 20:23
+
+
+
+
+因为开了四个台<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6566#       发表于 2020-5-16 20:23
+
+
+
+
+我听到的全是她的声音，有种粗版兰太郎的感觉
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6567#       发表于 2020-5-16 20:26
+
+
+
+
+请问mea再直播间吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6568#       发表于 2020-5-16 20:26
+
+
+
+
+我还挺喜欢kuku的，感觉很阳角啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6569#       发表于 2020-5-16 20:27
+
+
+
+
+感觉太激动了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6570#       发表于 2020-5-16 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这火鸡的声音也太抖了。mea就基本上全让火鸡主call了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6571#       发表于 2020-5-16 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">新人是不是都有这种表现欲啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">以前麻也是一个联动积极表现自我的人
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6572#       发表于 2020-5-16 20:29
+
+
+
+
+有吗，不是多人就自闭吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6573#       发表于 2020-5-16 20:30
+
+
+
+
+歪个楼，被扣鹅扣多了会怎么样啊，小博禹本体被扣到-100好像也没怎么样
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6574#       发表于 2020-5-16 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443496&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-16 20:30</a>
+歪个楼，被扣鹅扣多了会怎么样啊，小博禹本体被扣到-100好像也没怎么样</blockquote>
+不用歪楼了，你楼上就是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扣鹅多了，大概会标记一个巨魔吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6575#       发表于 2020-5-16 20:32
+
+
+
+
+kuku她一个人在那嗨就有点尬
+
+这同接我真的在掉血啊<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6576#       发表于 2020-5-16 20:32
+
+
+
+
+海洋法只对一个人有效，对于其他人（千里除外）负鹅越多只能说明那个人越傻逼
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6577#       发表于 2020-5-16 20:33
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-16 20:34 编辑 
+
+我知道他就是啊，所以顺便问一句<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。另外这扣鹅不是p用没有吗，如果说是用来标记nt的话小博禹的大名谁人不知。而且mk2也不见得被扣很多鹅啊
+
+syl 别老当数据厨啦，昨天2800不是很好嘛。今天本质输血直播。
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6578#       发表于 2020-5-16 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443521&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-16 20:32</a>
+
+kuku她一个人在那嗨就有点尬
+
+
+这同接我真的在掉血啊</blockquote>
+习惯就好，以后人气只会越来越低，这也算是她自己选择的道路<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6579#       发表于 2020-5-16 20:33
+
+
+
+
+今晚有雀魂大赛吧，而且有各种大物耐久，mea这边等于撞了高铁。而且基本是火鸡一个人的声音，有点尬
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6580#       发表于 2020-5-16 20:35
+
+
+
+
+yysy，这边有多少看见那个尼哥就不想看的，更别提本土了。
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 6581#       发表于 2020-5-16 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443521&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-16 20:32</a>
+
+kuku她一个人在那嗨就有点尬
+
+
+这同接我真的在掉血啊</blockquote>
+去瞄了眼  貌似是和雀魂1周年大感謝杯撞车了
+
+这个1周年比赛都开了好几个台,想看麻将的肯定这种比赛有吸引力. 更别说你们自己还开个4个台分流呢.
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6582#       发表于 2020-5-16 20:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443521&amp;ptid=1929631" target="_blank">2014720 发表于 2020-5-16 20:32</a>
+kuku她一个人在那嗨就有点尬
+
+这同接我真的在掉血啊</blockquote>
+别掉血了，数字高一回就兴奋，低一回掉血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比mea都yhm
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6583#       发表于 2020-5-16 20:37
+
+
+
+
+B站人气梦回18年，感觉她127之后就没直播人气这么低了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6584#       发表于 2020-5-16 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻怎么又Yygq了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6585#       发表于 2020-5-16 20:40
+
+
+
+
+b站还好吧，去年最拉的一次是b限直播15w人气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6586#       发表于 2020-5-16 20:40
+
+
+
+
+人气改版了，不打钱就很少。而且yysy今天节目效果不行，麻将还看不懂（比如我）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6587#       发表于 2020-5-16 20:42
+
+
+
+
+组长1800 咩830 尼哥760 鸡430，带带新人然后通通气小玩一把的感觉？顺带一提这鸡是nm真的吵，看的莫名烦躁
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 6588#       发表于 2020-5-16 20:42
+
+
+
+
+看不懂麻将才是好事，看懂了你看不下去的<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">听个声音就好
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6589#       发表于 2020-5-16 20:44
+
+
+
+
+兔子:哈哈哈哈哈哈哈哈哈哈哈哈
+Mea:eeeeeeeeeeeeeeee,无言
+鸡:balabalabala
+尼哥:这该这么打，对对对
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这印象了
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6590#       发表于 2020-5-16 20:45
+
+
+
+
+尼哥和她们不在一个次元的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6591#       发表于 2020-5-16 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443693&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-16 20:44</a>
+兔子:哈哈哈哈哈哈哈哈哈哈哈哈
+Mea:eeeeeeeeeeeeeeee,无言
+鸡:balabalabala</blockquote>
+有被笑到
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6592#       发表于 2020-5-16 20:47
+
+
+
+
+本来我以为鸡的定位是绿仙的，没想到还不如绿熊，虽然声音还不错，不过居然是这么YHM
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 6593#       发表于 2020-5-16 20:47
+
+
+
+
+這風見雞的聲線怎麼比你咩的丑女聲線還粗的
+
+真的聽不下去 耳朵被萌音慣壞了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6594#       发表于 2020-5-16 20:48
+
+
+
+
+阳角挺讨喜的，但要是太烦了......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6595#       发表于 2020-5-16 20:48
+
+
+
+
+最近日v圈日活都下降不少，估计是因为这几天集中开学了。
+
+多亏病名和echo在这之前发了。
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6596#       发表于 2020-5-16 20:49
+
+
+
+
+我这不爱听萌音的倒感觉还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是男人味太重了感觉有丶怪
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6597#       发表于 2020-5-16 20:49
+
+
+
+
+鸡我没怎么看过直播，光听声音我还以为高濑绅士呢。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6598#       发表于 2020-5-16 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为看不懂麻将所以只能听声了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6599#       发表于 2020-5-16 20:51
+
+
+
+
+话说打咩天使咩咩点名说让发，但是只有同好会剪了。是官组忘了还是在准备pv呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6600#       发表于 2020-5-16 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">主要是阳角声调往上抬，尼哥声调往下掉，就这两一直在说话，对比太明显了
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">再加上你麻根本不怎么找话题，都不怎么说话，怎么有效果
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6601#       发表于 2020-5-16 20:52
+
+
+
+
+要时间的好吧，别急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6602#       发表于 2020-5-16 20:52
+
+
+
+
+单纯是看麻将的人少吧，每次播麻将，转播这边就没多少人说话
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6603#       发表于 2020-5-16 20:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443653&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-16 20:40</a>
+人气改版了，不打钱就很少。而且yysy今天节目效果不行，麻将还看不懂（比如我） ...</blockquote>
+看开点，当什么数据厨，还不如去找点好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6604#       发表于 2020-5-16 20:54
+
+
+
+
+老年人麻酱，说不动了，只能和兔姨喝喝茶
+
+说真的以她的睡眠习惯我觉得她现在大概挺困的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6605#       发表于 2020-5-16 20:54
+
+
+
+
+我一边自己玩一边听的，咩姐不活跃是没啥好说的
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 6606#       发表于 2020-5-16 20:55
+
+
+
+
+算了麻将本来我也看不懂  玩单机去了
+
+她今天还有别的直播预定么?
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6607#       发表于 2020-5-16 20:56
+
+
+
+
+听惯了咩负责插科打诨活跃气氛的联动了，换个人不太习惯了，还有我怀疑v圈是不是只有一小撮人（包括我）不会麻将，都能看懂好羡慕啊，就我搁这听个响声图一乐呗
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6608#       发表于 2020-5-16 20:56
+
+
+
+
+没有了吧
+这次联动不太行，没什么看头就别看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6609#       发表于 2020-5-16 20:57
+
+
+
+
+白天我问人好像说是没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近各种联动好多，要记不齐了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6610#       发表于 2020-5-16 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">是不是快下了，其实挺可怜阳角的，毕竟你麻不知道为什么都不接话题，而她一直在维持联动能继续下去，不容易
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6611#       发表于 2020-5-16 20:58
+
+
+
+
+日麻要入门也不难，懂点规则就可以看了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6612#       发表于 2020-5-16 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗷，我懂了，你在影射meaqualol，好活
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6613#       发表于 2020-5-16 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉你麻今中午打完lol就有点困，不睡午觉的话这时间打瞌睡打到死都正常
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6614#       发表于 2020-5-16 21:00
+
+
+
+
+mea今天直播几个小时了来着？？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6615#       发表于 2020-5-16 21:01
+
+
+
+
+她不把圣诞聊天室关了我永远不会去看和倪哥有关的任何联动
+
+
+说到pv预言一首522有投稿好吧，最好还是高音曲那种的，官组不要让我失望啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6616#       发表于 2020-5-16 21:02
+
+
+
+ 本帖最后由 餅月ひまり 于 2020-5-16 21:05 编辑 
+
+发个表情表示自己还活着
+<img src="https://p.sda1.dev/0/f8b6a5c74a33448c56ee79e6147f17bc/IMG_C407009F2807DE169809EA2BE2E72AED.png" referrerpolicy="no-referrer">
+
+一般我犯困不爱回别人话时就会狂发表情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6617#       发表于 2020-5-16 21:03
+
+
+
+
+今天大概是播累了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6618#       发表于 2020-5-16 21:05
+
+
+
+
+影射个锤子，这是四人联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+522什么日子啊，我记不得了<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6619#       发表于 2020-5-16 21:07
+
+
+
+
+官组投了那首“听的到吗”的日子吧，然后23号咩404发动态复活，确实挺感动的当时
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6620#       发表于 2020-5-16 21:09
+
+
+
+
+现在归现在，搁当时至暗时刻第一缕光回想起来确实很感动好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 6621#       发表于 2020-5-16 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实，当时听起来很感动
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6622#       发表于 2020-5-16 21:27
+
+
+
+
+感动是建立在出事的基础上的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，不要感动换不要出事
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6623#       发表于 2020-5-16 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">突击lol
+         做饭tc
+         虚无联动
+         今天应该就这样了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6624#       发表于 2020-5-16 21:32
+
+
+
+
+和朋友打一晚上麻将没看联动，看了看你楼感觉也没啥必要补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 6625#       发表于 2020-5-16 21:35
+
+
+
+
+其实还行，就是吊人是间歇性活跃
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6626#       发表于 2020-5-16 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443952&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-16 21:01</a>
+她不把圣诞聊天室关了我永远不会去看和倪哥有关的任何联动
+
+
+说到pv预言一首522有投稿好吧，最好还是高音曲 ...</blockquote>
+那个还没关啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你麻在某种意义上，的确，怎么说呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很强
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6627#       发表于 2020-5-16 21:44
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-5-16 21:57 编辑 
+
+在偷偷恰糖？<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">感觉听到了糖纸的声音
+
+把我看困了还行<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6628#       发表于 2020-5-16 21:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">突然就
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6629#       发表于 2020-5-16 22:03
+
+
+
+
+她这牌打得真是符合她性格，换别的V不可能不追梦的。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6630#       发表于 2020-5-16 22:04
+
+
+
+
+才发现，荤段子把同接拉起来了？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6631#       发表于 2020-5-16 22:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你麻搞黄色倒是来精神了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6632#       发表于 2020-5-16 22:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么突然奇酷比奇酷比的说了这么半天啊 因为二饼像奇酷比吗
+
+
+
+
+
+                            

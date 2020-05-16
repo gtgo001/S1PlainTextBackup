@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-12 12:04** 
+> ## **本文件最后更新于2020-05-16 22:03** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_kJ058" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_XZ5Ow" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -28373,4 +28373,659 @@ PC version c9a92687； Mac version 0cfead62版本更新说明 (F1菜单右下角
 
 
 
-  
+
+
+-----
+
+####  聚散浮云  
+##### 1412#       发表于 2020-5-12 12:21
+
+
+
+
+爽，准备在mac上打二周目了
+
+
+
+
+
+
+
+-----
+
+####  Hchan  
+##### 1413#       发表于 2020-5-12 14:34
+
+
+
+
+原来马小褂也参与了翻译，目前很多名词的翻译问题我也比较认同他的观点。通关之后推荐去b站看下他的流程视频，非常有货，大到各种影射知识补充，小到配音声优的各种八卦都有
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 1414#       发表于 2020-5-12 18:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47389505&amp;ptid=1858008" target="_blank">电动犀牛 发表于 2020-5-12 11:43</a>
+
+大概是把旅馆的灯球换了</blockquote>
+飞旋褴褛失去了她的灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ynks  
+##### 1415#       发表于 2020-5-12 20:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47391459&amp;ptid=1858008" target="_blank">Hchan 发表于 2020-5-12 14:34</a>
+
+原来马小褂也参与了翻译，目前很多名词的翻译问题我也比较认同他的观点。通关之后推荐去b站看下他的流程视 ...</blockquote>
+没记错的话角色阵营图跟那张很拉人的游戏前后印象都是这位哥的创作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+人录播还给了这楼一个一闪而过的镜头。啊，熟悉的屎黄色，我怎能不认得？
+
+
+
+
+
+
+
+-----
+
+####  timepro  
+##### 1416#       发表于 2020-5-12 21:12
+
+
+
+
+芜湖，起飞<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Wqr_  
+##### 1417#       发表于 2020-5-12 22:32
+
+
+
+
+黑苹果的uhd630可以爽玩了
+之前实在跑不动退款了，看到优化的消息又买了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwlqxs  
+##### 1418#       发表于 2020-5-12 22:48
+
+
+
+
+神了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">，刚出中文那会下下来出了旅馆必闪退，天天盼着出主机，终于能玩了
+
+
+
+
+
+
+
+-----
+
+####  MOOMBA  
+##### 1419#       发表于 2020-5-13 08:50
+
+
+
+
+趁着这次史低也跟风入了一份
+
+一本严肃的电话警局 要钱要**要**之后 大叔终于崩溃 再也不当警察了
+
+从此在天桥下过上了向行人投粪的生活。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总觉得是哪里不对  再开了一轮自捏  从此摸领带简直必死 
+
+一晚上就再也没活着走出那个屋子<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+第一次玩这种类型的游戏  有个常规的攻略能先大概引导一下么。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1420#       发表于 2020-5-13 11:09
+
+
+
+
+英特纳雄耐尔的更新日志被删了，资本主义，资本主义
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 1421#         楼主| 发表于 2020-5-13 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47401464&amp;ptid=1858008" target="_blank">ESAKA!!!! 发表于 2020-5-13 11:09</a>
+
+英特纳雄耐尔的更新日志被删了，资本主义，资本主义</blockquote>
+？
+[https://steamcommunity.com/gid/1 ... 2209523289103349405](https://steamcommunity.com/gid/103582791458434291/announcements/detail/2209523289103349405)
+
+
+
+
+
+
+
+-----
+
+####  djinn  
+##### 1422#       发表于 2020-5-13 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47399824&amp;ptid=1858008" target="_blank">MOOMBA 发表于 2020-5-13 08:50</a>
+
+趁着这次史低也跟风入了一份
+
+一本严肃的电话警局 要钱要**要**之后 大叔终于崩溃 再也不当警察了
+
+从此在天 ...</blockquote>
+如果领带产生了心理阴影那不如直接下楼
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1423#       发表于 2020-5-13 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47401995&amp;ptid=1858008" target="_blank">pgain2004 发表于 2020-5-13 11:46</a>
+？
+
+https://steamcommunity.com/gid/103582791458434291/announcements/detail/2209523289103349405</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">。。。我这里更新日志看不到了，区域问题？
+
+
+
+
+
+
+
+-----
+
+####  MOOMBA  
+##### 1424#       发表于 2020-5-13 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47402313&amp;ptid=1858008" target="_blank">djinn 发表于 2020-5-13 12:10</a>
+
+如果领带产生了心理阴影那不如直接下楼</blockquote>
+又再死了几次。。。
+
+终于理解为什么初始3个人格都会保留一定的体格了。。。
+
+手痒捏了一个5智力5精神的自捏 
+
+风扇死 开灯死 楼下撞到老奶奶死<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+一血实在太脆弱了
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 1425#       发表于 2020-5-13 19:00
+
+
+
+
+士气有些地方会有点猝不及防，hp不作死一般不会出事。一周目推荐三选一，他显然是调整过的，太畸形和太水桶都会吃瘪
+
+
+
+
+
+
+
+-----
+
+####  Pelishere  
+##### 1426#       发表于 2020-5-13 19:09
+
+
+
+
+更新之后辣鸡独显轻薄本竟然可以900p60帧！
+
+
+
+
+
+
+
+-----
+
+####  junoxdd  
+##### 1427#       发表于 2020-5-15 00:21
+
+
+
+
+问下大家 优化后mac跑效果怎么样？
+
+
+
+
+
+
+
+-----
+
+####  cwlqxs  
+##### 1428#       发表于 2020-5-15 19:11
+
+
+
+
+2天打通了，意犹未尽，明明见到人能说话的都说话了，成就才解锁10个，思维才解锁不到一半，翻wiki去了
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 1429#       发表于 2020-5-15 22:00
+
+
+
+
+和朋友聊这作，认同了东三省挺像瑞瓦肖的看法。
+
+
+很好奇，如果有人能说动50岁的父辈做个review会是什么态度
+
+
+
+
+
+
+
+-----
+
+####  zongrumk2  
+##### 1430#       发表于 2020-5-15 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47433976&amp;ptid=1858008" target="_blank">Chia 发表于 2020-5-15 22:00</a>
+
+和朋友聊这作，认同了东三省挺像瑞瓦肖的看法。
+
+
+很好奇，如果有人能说动50岁的父辈做个review会是什么态度 ...</blockquote>
+除了东南还有四市，何处不是瑞瓦肖<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  勇者护手  
+##### 1431#       发表于 2020-5-16 05:48
+
+
+
+
+在教堂那段无限闪退 有朋友遇到类似情况的吗
+
+
+
+
+
+
+
+-----
+
+####  Alma_Armas  
+##### 1432#       发表于 2020-5-16 12:27
+
+
+
+
+惊了，集装箱里真的有人
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1433#       发表于 2020-5-16 19:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么我一个红色检定摇出6+6还是失败了
+
+然后拉到了8%，按理说6+5应该也能成功，结果摇出6+5也是失败
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 1434#       发表于 2020-5-16 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47442962&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 19:51</a>
+为什么我一个红色检定摇出6+6还是失败了
+
+然后拉到了8%，按理说6+5应该也能成功，结果摇出6+5也是失 ...</blockquote>
+你的思维阁里有那个红色检定必然失败的思维吧
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1435#       发表于 2020-5-16 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47442990&amp;ptid=1858008" target="_blank">陈玉礼 发表于 2020-5-16 19:53</a>
+
+你的思维阁里有那个红色检定必然失败的思维吧</blockquote>
+看了一圈，没看到哪个思维是有这个描述的
+
+这个检定失败后会给一个“又是一扇门”的思维，我怀疑是这个检定必须完成这个思维才能成功
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 1436#         楼主| 发表于 2020-5-16 20:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47442962&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 19:51</a>
+为什么我一个红色检定摇出6+6还是失败了
+
+然后拉到了8%，按理说6+5应该也能成功，结果摇出6+5也是失 ...</blockquote>
+有一些检定必然失败，例如撬某个废弃堡垒门
+
+
+
+
+
+
+
+-----
+
+####  GA_Frank  
+##### 1437#       发表于 2020-5-16 20:01
+
+
+
+<blockquote>粉色猛男 发表于 2020-5-16 19:55
+看了一圈，没看到哪个思维是有这个描述的
+
+这个检定失败后会给一个“又是一扇门”的思维，我怀疑是这个检 ...</blockquote>
+有些检定是必败的，比如这扇门，比如没XXX就去接近结局的XXX，比如在**战中尝试躲避第二发**。
+
+
+
+
+
+
+
+-----
+
+####  johnwick  
+##### 1438#       发表于 2020-5-16 20:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443022&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 19:55</a>
+ 看了一圈，没看到哪个思维是有这个描述的 这个检定失败后会给一个“又是一扇门”的思维，我怀疑是这个检 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个检定是必然失败的
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1439#       发表于 2020-5-16 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">气死了，必定失败好歹跟我说一声啊
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 1440#         楼主| 发表于 2020-5-16 20:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443498&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 20:30</a>
+
+气死了，必定失败好歹跟我说一声啊</blockquote>
+没记错的话，你如果用鼠标放到该选项上，必定失败的选项会有提示
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 1441#       发表于 2020-5-16 20:48
+
+
+
+
+佣兵审判是不是没有不死人的办法，几个选项全部判定成功也只是提高一**打爆假工贼头子的概率<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1442#       发表于 2020-5-16 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443498&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 20:30</a>
+
+气死了，必定失败好歹跟我说一声啊</blockquote>
+我记得没错的话，金会在旁边劝你门打不开，检定失败给的思维也会写着“世界上有些门打不开”大意这样的话。非硬性设定的文字描述部分算是给了很多暗示了
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1443#       发表于 2020-5-16 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443684&amp;ptid=1858008" target="_blank">pgain2004 发表于 2020-5-16 20:43</a>
+
+没记错的话，你如果用鼠标放到该选项上，必定失败的选项会有提示</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/16/210713t1d4e3f0ywerenwn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200516194608.jpg</strong> (41.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-16 21:07 上传
+
+
+
+
+
+
+很遗憾他没有
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1444#       发表于 2020-5-16 21:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443801&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-5-16 20:51</a>
+
+我记得没错的话，金会在旁边劝你门打不开，检定失败给的思维也会写着“世界上有些门打不开”大意这样的话 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">思维都是失败后才给，好歹检定前给我暗示啊
+
+
+金劝我的事多了去了，我一般都是不听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Hidewhite  
+##### 1445#       发表于 2020-5-16 21:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47444034&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 21:08</a>
+
+思维都是失败后才给，好歹检定前给我暗示啊
+
+
+金劝我的事多了去了，我一般都是不听的 ...</blockquote>
+你看上面截图 这台门名字就叫 门（打不开） 了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1446#       发表于 2020-5-16 21:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47444241&amp;ptid=1858008" target="_blank">Hidewhite 发表于 2020-5-16 21:26</a>
+
+你看上面截图 这台门名字就叫 门（打不开） 了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以说是明示了
+
+
+
+
+
+ 
