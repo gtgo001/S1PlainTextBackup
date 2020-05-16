@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 22:08** 
+> ## **本文件最后更新于2020-05-17 00:07** 
 
 
 
@@ -11145,4 +11145,1146 @@ mea今天直播几个小时了来着？？
 
 
 
-                            
+
+
+-----
+
+####  第三惑星  
+##### 6633#       发表于 2020-5-16 22:08
+
+
+
+
+这羊必被组长制裁
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6634#       发表于 2020-5-16 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">哪来的中二小鬼，追着奇酷比不放，还笑起来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6635#       发表于 2020-5-16 22:11
+
+
+
+
+这人真的是小屁孩，提到奇酷比才来劲
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6636#       发表于 2020-5-16 22:14
+
+
+
+
+不如说是其他地方的观众再流动吧（）
+
+
+都两个小时了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6637#       发表于 2020-5-16 22:15
+
+
+
+
+啊这，可她的奇酷比还是粉的，她说着说着一联想有丶嗯
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6638#       发表于 2020-5-16 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">奇酷比奇酷比奇酷比奇酷比奇酷比，十有八九不离它
+你麻这是想调戏尼哥<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不过你麻终于开心了
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6639#       发表于 2020-5-16 22:16
+
+
+
+
+开黄腔差评今天又快上30了。。。。
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6640#       发表于 2020-5-16 22:18
+
+
+
+
+差评不过百，等于没点踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，18年那会日常三位数差评呢
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6641#       发表于 2020-5-16 22:18
+
+
+
+
+。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+对数字也太敏感了吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6642#       发表于 2020-5-16 22:21
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-16 22:24 编辑 
+
+其他人的低评价还能看看，她的低评价毫无参考价值好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最近的差评之最是哪会来着？健身环暴露年龄那次？900+踩也是奇观了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 6643#       发表于 2020-5-16 22:23
+
+
+
+
+一带起节奏，在场的除了组长，不敢跟也不敢刹车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6644#       发表于 2020-5-16 22:23
+
+
+
+
+粉粉的奇酷比<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 6645#       发表于 2020-5-16 22:24
+
+
+
+
+她可是mea，那个以前在火上跳舞的女人，这点差评算什么2333
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6646#       发表于 2020-5-16 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不信 除非你给我看看
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6647#       发表于 2020-5-16 22:24
+
+
+
+
+在场的除了组长谁见过这场面啊，现在明白为啥你咩姐不吭声了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+对了，我健身环呢
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6648#       发表于 2020-5-16 22:25
+
+
+
+
+她说是就是啊，天狗真好骗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+大屁股也是，一点证据都没有<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6649#       发表于 2020-5-16 22:25
+
+
+
+
+来了来了，聊着聊着开始给一些对她身体浮想联翩的暗示，这点真的顶不住
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 6650#       发表于 2020-5-16 22:27
+
+
+
+
+一聊到奇酷比和欧派就来劲，这是哪里来的小鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6651#       发表于 2020-5-16 22:27
+
+
+
+
+像那种第一次知道奶头这个词就三句话不离的小学男生
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6652#       发表于 2020-5-16 22:27
+
+
+
+
+??等等健身环暴露18那次有900踩？霓虹人都喜欢姨吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6653#       发表于 2020-5-16 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47445233&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-16 22:27</a>
+??等等健身环暴露18那次有900踩？霓虹人都喜欢姨吗</blockquote>
+播健身环的时候直播间被加藤纯一冲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6654#       发表于 2020-5-16 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47445233&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-16 22:27</a>
+??等等健身环暴露18那次有900踩？霓虹人都喜欢姨吗</blockquote>
+那次实在是太假了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+诶，是纯酱的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6655#       发表于 2020-5-16 22:29
+
+
+
+<[img src="https://i.ibb.co/vhcw1Py/1233.png" referrerpolicy="no-referrer">
+
+<[img src="https://i.ibb.co/wskdFkL/456.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6656#       发表于 2020-5-16 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47445247&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-16 22:28</a>
+
+播健身环的时候直播间被加藤纯一冲了</blockquote>
+啊原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6657#       发表于 2020-5-16 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47445233&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-16 22:27</a>
+
+??等等健身环暴露18那次有900踩？霓虹人都喜欢姨吗</blockquote>
+被阿纯冲了而已，不要激动
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6658#       发表于 2020-5-16 22:30
+
+
+
+
+那次是被纯狗的人爆破了，那期健身环是录播里影响最严重的，顺便隔壁对刚刚的翻译：咩说自己的奇酷比是中间粉色的周围逐渐变浅 这样 果然全都是粉的是不可能的呢
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6659#       发表于 2020-5-16 22:32
+
+
+
+
+怎么关了你麻直播间又见你麻搞黄色了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">希望有你新麻照流出
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6660#       发表于 2020-5-16 22:32
+
+
+
+
+？欸会向周围变浅的吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6661#       发表于 2020-5-16 22:33
+
+
+
+
+yysy，30点踩真的不多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6662#       发表于 2020-5-16 22:33
+
+
+
+
+nogay啊朋友<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+麻酱已经没了，现在只有mea
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6663#       发表于 2020-5-16 22:37
+
+
+
+
+不知道有没有打印机开始工作了。。。。
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6664#       发表于 2020-5-16 22:38
+
+
+
+
+麻麻没了，但是继承麻麻记忆的中之人还在啊
+麻麻不过是中之人的载体，mea完全可以宣称自己是麻麻正统的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6665#       发表于 2020-5-16 22:39
+
+
+
+
+麻酱只是推不在了，tc不还有么，麻酱还在，只是少了部分回忆<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6666#       发表于 2020-5-16 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">求求粉色挑染粉色挑染
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">那样我还能当你麻的gachi
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6667#       发表于 2020-5-16 22:42
+
+
+
+
+没有粉色挑染只有粉色奇酷比了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6668#       发表于 2020-5-16 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">粉色奇酷比也是mea的，你麻就抱着tc溺死吧
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6669#       发表于 2020-5-16 22:45
+
+
+
+
+以后打码倒是方便了，直接筒子牌p上去就得了。
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6670#       发表于 2020-5-16 22:47
+
+
+
+
+别说麻了，我510ptsd了
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 6671#       发表于 2020-5-16 22:47
+
+
+
+
+淡粉色的奇酷比  我好了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">不行  没图我不信的 有种直播时吹牛倒是放张新麻图出来阿
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6672#       发表于 2020-5-16 22:50
+
+
+
+
+草往哪儿放放粉色奇酷比啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6673#       发表于 2020-5-16 22:53
+
+
+
+
+希望以后有楼友愿意花5块钱放麻的奇酷比
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6674#       发表于 2020-5-16 22:54
+
+
+
+
+说起来有没有粉丝QKB的女演员推荐一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6675#       发表于 2020-5-16 22:54
+
+
+
+
+突然想起来那个大亏哥皮套就是放mea奇酷比涩图死的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6676#       发表于 2020-5-16 22:54
+
+
+
+
+鱼板就是在暗示mea的奇酷比？设定对上了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6677#       发表于 2020-5-16 22:55
+
+
+
+
+不会的，我不可能让你们看见的<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6678#       发表于 2020-5-16 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">我只想带着滤镜看半张脸
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 6679#       发表于 2020-5-16 22:55
+
+
+
+
+就怕最后楼友放了张粉色的一饼。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6680#       发表于 2020-5-16 22:56
+
+
+
+
+一饼=钢板➕奇酷比
+完美
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6681#       发表于 2020-5-16 23:02
+
+
+
+
+**流出<img src="https://p.sda1.dev/0/0f68b53f6d3167f26ba6290d6ca9f1c3/IMG_F985F57B671BE674967E7B60D6A6D7CE.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6682#       发表于 2020-5-16 23:05
+
+
+
+
+Wow,鱼板味
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6683#       发表于 2020-5-16 23:08
+
+
+
+
+为啥不用后台的那张p<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 6684#       发表于 2020-5-16 23:14
+
+
+
+
+懂了，这就去买鲜虾鱼板面
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6685#       发表于 2020-5-16 23:34
+
+
+
+
+体面点，体面点
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6686#       发表于 2020-5-16 23:34
+
+
+
+<blockquote>纯良天狗 发表于 2020-5-16 23:02
+**流出</blockquote>
+太无聊了，[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117)  ，  一换一，也算为泥潭创收。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 草牛| + 1|我先换的，你不要抢头，柰子，换我就行.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6687#       发表于 2020-5-16 23:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">它要是下次再出来，我就来一换一吧
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華黑  
+##### 6688#       发表于 2020-5-16 23:41
+
+
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) ，申请一换一，看看这逼还有多少个小号，就那个
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6689#       发表于 2020-5-16 23:41
+
+
+
+
+草， 前仆后续的殉 道 者？敢死队？ 
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 6690#       发表于 2020-5-16 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别再搞个一换九
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6691#       发表于 2020-5-16 23:47
+
+
+
+
+太无聊了，又没新照片，只会复读车轱辘，连吵架都是战五渣，小博宇这种废物真没啥看头。
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6692#       发表于 2020-5-16 23:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47445714&amp;ptid=1929631" target="_blank">纯良天狗 发表于 2020-5-16 23:02</a>
+
+**流出</blockquote>
+@矢吹奈子
+
+我也来，多封一个月好吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影2号机  
+##### 6693#       发表于 2020-5-16 23:56
+
+
+
+
+龙魂绯影，堂堂复活，不知道小博禹你还有几个号呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6694#       发表于 2020-5-16 23:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6695#       发表于 2020-5-17 00:01
+
+
+
+
+不不不你们歇着点啊，小博禹再开小号你们不就没头可换了吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6696#       发表于 2020-5-17 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47446602&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-17 00:01</a>
+不不不你们歇着点啊，小博禹再开小号你们不就没头可换了吗(눈_눈)</blockquote>
+之前闲着没事注册的小号还有点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6697#       发表于 2020-5-17 00:04
+
+
+
+
+你们神经病啊，我不来了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+大家都是爱着小可爱的，不要互相厮杀<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|换个号当正常人吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6698#       发表于 2020-5-17 00:04
+
+
+
+
+镇压深渊的法兰不死队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望不会再有下次了，太伤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
