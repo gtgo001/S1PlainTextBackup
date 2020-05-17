@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-15 08:44** 
+> ## **本文件最后更新于2020-05-17 22:01** 
 
 
 
@@ -27073,7 +27073,7 @@ KTK女士是彻底的冻鳗婆罗门，对肥宅和偶像都没兴趣，因为�
 
 
 
-<img src="https://bkimg.cdn.bcebos.com/pic/e850352ac65c1038e2095964bc119313b07e8925?x-bce-process=image/watermark,g_7,image_d2F0ZXIvYmFpa2UyNzI=,xp_5,yp_5" height="1130" id="aimg_dIMr3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://bkimg.cdn.bcebos.com/pic/e850352ac65c1038e2095964bc119313b07e8925?x-bce-process=image/watermark,g_7,image_d2F0ZXIvYmFpa2UyNzI=,xp_5,yp_5" height="1130" id="aimg_Y8qlL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 
 前排左边第一个是谁啊？
@@ -28525,4 +28525,585 @@ SKE48运营公司Keyholder收购北川谦二担任董事长的公司「ノース
 
 
 
-    
+
+
+-----
+
+####  槛外空流  
+##### 17855#       发表于 2020-5-15 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47423971&amp;ptid=1102389" target="_blank">你猜你猜你猜 发表于 2020-5-15 07:38</a>
+我感觉也不太行……没有第一本的惊艳的感觉了</blockquote>
+我就是单纯觉得🐵没那会儿好看了
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  seedees3  
+##### 17856#       发表于 2020-5-15 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47430218&amp;ptid=1102389" target="_blank">槛外空流 发表于 2020-5-15 16:36</a>
+我就是单纯觉得🐵没那会儿好看了
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+異議あり！
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17857#       发表于 2020-5-15 16:41
+
+
+
+
+这么说咱们又转回京乐了？
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 17858#       发表于 2020-5-15 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47430295&amp;ptid=1102389" target="_blank">UnhappyTails 发表于 2020-5-15 16:41</a>
+这么说咱们又转回京乐了？</blockquote>
+这个不是京乐<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17859#       发表于 2020-5-15 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47430305&amp;ptid=1102389" target="_blank">sk此方 发表于 2020-5-15 16:41</a>
+这个不是京乐
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+哦哦看差了
+
+这么说来是换成撕开伊的东家了？对回签和团内有啥影响吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 17860#       发表于 2020-5-15 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47430335&amp;ptid=1102389" target="_blank">UnhappyTails 发表于 2020-5-15 16:43</a>
+哦哦看差了
+
+这么说来是换成撕开伊的东家了？对回签和团内有啥影响吗 ...</blockquote>
+没啥影响 其实还是那么一批人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  nsevit  
+##### 17861#       发表于 2020-5-15 17:13
+
+
+
+
+之前是不是生驹签了SKE的经纪公司？跟这事情有关系吗？
+
+
+
+
+
+
+
+-----
+
+####  橘皮刺客  
+##### 17862#       发表于 2020-5-15 17:32
+
+
+
+
+我也觉得🐵颜值下降了，看工事中感觉妆厚的可怕
+
+
+
+
+
+
+
+-----
+
+####  女权咏唱者  
+##### 17863#       发表于 2020-5-15 20:51
+
+
+
+
+SKE运营背靠国际资本JTRUST，后者还和雷曼兄弟一起搞过收购索尼的戏码，这种大鳄入局可能没影响吗
+
+踢汤浅斩奶宝手法雷厉风行，前车之鉴，乃木坂的强推之耻和不良资产危矣
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 17864#       发表于 2020-5-15 22:33
+
+
+
+
+补到第二弹记录片和废蛇退役了，平时乱成一团的cp，果然一到关键时刻就知道谁是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+四期目前还是厂妹和啊呀咩的颜值最戳我，三期ten瘦回来了！
+
+
+
+
+
+
+
+-----
+
+####  Muminim  
+##### 17865#       发表于 2020-5-16 19:23
+
+
+
+ 本帖最后由 Muminim 于 2020-5-16 19:29 编辑 
+
+四期真的很香
+
+<img src="https://img.saraba1st.com/forum/202005/16/192943l3o8vgvf37ve7t4y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>IMG_0289.jpeg</strong> (190.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-16 19:29 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/16/192943lddkg4f81i1jq6c4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>IMG_0295.jpeg</strong> (183.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-16 19:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Muminim  
+##### 17866#       发表于 2020-5-16 19:23
+
+
+
+ 本帖最后由 Muminim 于 2020-5-16 19:27 编辑 
+
+给大家回忆一下猴
+<img src="https://i.loli.net/2020/05/16/RajGBHEbtCOs7on.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2020/05/16/dowshCKO8clexpL.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2020/05/16/EP5KTXngqwJclG2.jpg" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2020/05/16/SNXVchiUEjtODYv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  橋白  
+##### 17867#       发表于 2020-5-16 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47442647&amp;ptid=1102389" target="_blank">Muminim 发表于 2020-5-16 19:23</a>
+
+给大家回忆一下猴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">看了上海电影节的热情花招，只能说泥猴到底自己不是那个type，热情花招里的猴真的很不错很不错
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 17868#       发表于 2020-5-16 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443988&amp;ptid=1102389" target="_blank">橋白 发表于 2020-5-16 21:04</a>
+
+看了上海电影节的热情花招，只能说泥猴到底自己不是那个type，热情花招里的猴真的很不错很不错 ...</blockquote>
+那也是导演挖掘的好
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 17869#       发表于 2020-5-16 22:34
+
+
+
+
+纯看脸的话，猴在我眼里排前三……
+
+
+第一是花花，第二是美月，第三就是猴...
+
+
+
+
+
+
+
+-----
+
+####  巨魔之王  
+##### 17870#       发表于 2020-5-17 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47443988&amp;ptid=1102389" target="_blank">橋白 发表于 2020-05-16 21:04:28</a>
+看了上海电影节的热情花招，只能说泥猴到底自己不是那个type，热情花招里的猴真的很不错很不错 ...</blockquote>在现场，🐒不错但电影真的不行
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cqc1021  
+##### 17871#       发表于 2020-5-17 12:44
+
+
+
+
+人民群众喜闻乐见的乃木坂46時間TV回来啦
+
+
+
+
+
+
+
+-----
+
+####  是这样  
+##### 17872#       发表于 2020-5-17 15:43
+
+
+
+
+abema还不如sr呢(指锁区)<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">就不能多搞两平台
+
+— from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 17873#       发表于 2020-5-17 16:28
+
+
+
+
+今天忙了一天杂事，发现你团竟然又要开46TV了。
+
+
+上次傻苹果啃理理杏那里我记忆挺深刻的，不知道这回有没有三期啃四期的镜头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你团自从蛇蛇毕业后百合浓度急剧下降，群众们想看新的修罗场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  prsfd  
+##### 17874#       发表于 2020-5-17 16:39
+
+
+
+
+都快在家闲的扣脚小半年了才想起搞46TV<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqc1021  
+##### 17875#       发表于 2020-5-17 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47452737&amp;ptid=1102389" target="_blank">麻花疼 发表于 2020-5-17 16:28</a>
+今天忙了一天杂事，发现你团竟然又要开46TV了。
+
+
+上次傻苹果啃理理杏那里我记忆挺深刻的，不知道这回有没有 ...</blockquote>
+新一代姬佬早川圣来
+
+—— 来自 samsung SM-A9080, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 17876#       发表于 2020-5-17 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47453140&amp;ptid=1102389" target="_blank">cqc1021 发表于 2020-5-17 17:08</a>
+
+新一代姬佬早川圣来
+
+
+—— 来自 samsung SM-A9080, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">请详细描述一下
+
+
+
+
+
+
+
+-----
+
+####  prsfd  
+##### 17877#       发表于 2020-5-17 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47453406&amp;ptid=1102389" target="_blank">麻花疼 发表于 2020-5-17 17:30</a>
+
+请详细描述一下</blockquote>
+要多详细<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+可以找坛友写个十块钱的
+
+
+
+
+
+
+
+-----
+
+####  Muminim  
+##### 17878#       发表于 2020-5-17 17:33
+
+
+
+<blockquote>巨魔之王 发表于 2020-5-17 02:52
+在现场，🐒不错但电影真的不行
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+这个电影很娱乐，我现场看的快被玛丽苏笑死了
+
+不过 u1s1，导演很很会拍，整体氛围营造的很好，搞得我想去台场玩
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 17879#       发表于 2020-5-17 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47453440&amp;ptid=1102389" target="_blank">prsfd 发表于 2020-5-17 17:32</a>
+
+要多详细
+
+可以找坛友写个十块钱的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最好能在综艺上看到的那种肉体接触
+
+
+
+
+
+
+
+-----
+
+####  麻花疼  
+##### 17880#       发表于 2020-5-17 19:53
+
+
+
+
+莲哥越来越漂亮了是怎么回事……明明笑起来那么狂放……
+
+
+
+
+
+
+
+-----
+
+####  橋白  
+##### 17881#       发表于 2020-5-17 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47455047&amp;ptid=1102389" target="_blank">麻花疼 发表于 2020-5-17 19:53</a>
+莲哥越来越漂亮了是怎么回事……明明笑起来那么狂放……</blockquote>
+你是指和猴不相上下的棒式p图吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqc1021  
+##### 17882#       发表于 2020-5-17 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47453406&amp;ptid=1102389" target="_blank">麻花疼 发表于 2020-5-17 17:30</a>
+请详细描述一下</blockquote>
+<img src="https://p.sda1.dev/0/01db3eb0769bb1121a15655f786d37ca/IMG_0CED39860FBEAAEA5C8C4EAB0123B0C4.jpeg" referrerpolicy="no-referrer">
+给你个眼神自己体会<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-A9080, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  poiuyt  
+##### 17883#       发表于 2020-5-17 20:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47453406&amp;ptid=1102389" target="_blank">麻花疼 发表于 2020-5-17 17:30</a>
+
+请详细描述一下</blockquote>
+四期电视剧 SAMUのこと 没看吗
+
+快去看
+
+
+还有 猿にあう 里的香菜互动
+
+
+
+
+
+   
