@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-17 20:06** 
+> ## **本文件最后更新于2020-05-18 00:06** 
 
 
 
@@ -13454,4 +13454,1998 @@ BV13b411m7AQ
 
 
 
-                        
+
+
+-----
+
+####  nightmare902015  
+##### 6762#       发表于 2020-5-17 20:13
+
+
+
+
+才发现黄兔子组建筑王最后一期熟肉烤出来了，又快要到夏天了
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6763#       发表于 2020-5-17 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47455205&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-5-17 20:13</a>
+才发现黄兔子组建筑王最后一期熟肉烤出来了，又快要到夏天了</blockquote>
+草，这是持续了一整年的烤肉啊
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6764#       发表于 2020-5-17 20:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47454582&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-17 19:07</a>
+说起来兔妈妈以前nico时代有露身体直播么</blockquote>
+这种说法好色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6765#       发表于 2020-5-17 21:05
+
+
+
+
+毒奶一下今晚<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6766#       发表于 2020-5-17 21:16
+
+
+
+
+楼友又打了一波蓄力炮。。。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6767#       发表于 2020-5-17 21:24
+
+
+
+
+兔姨＞凛子＞苔宝＞小麻
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6768#       发表于 2020-5-17 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你楼是真的能给泥潭创收
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6769#       发表于 2020-5-17 21:57
+
+
+
+
+?凛子居然在苔苔上面吗(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6770#       发表于 2020-5-17 22:04
+
+
+
+
+苔姨<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 6771#       发表于 2020-5-17 22:15
+
+
+
+
+尬虽然尬 但是同接是真的好看 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6772#       发表于 2020-5-17 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47456556&amp;ptid=1929631" target="_blank">hjcxiaowo 发表于 2020-5-17 22:15</a>
+尬虽然尬 但是同接是真的好看</blockquote>
+又不是mea的<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">懒得**，现在多少
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6773#       发表于 2020-5-17 22:27
+
+
+
+
+这是有稿子么？mea好能说啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6774#       发表于 2020-5-17 22:28
+
+
+
+
+感谢苔姨的台本
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6775#       发表于 2020-5-17 22:33
+
+
+
+
+突然反应麻隐退了当个售楼小姐也不错，这么会说声音还好听，当个销售冠军不也是美滋滋
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6776#       发表于 2020-5-17 22:34
+
+
+
+
+勾起了我的售楼部ptsd
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6777#       发表于 2020-5-17 22:39
+
+
+
+
+0群好像在讲人气的问题啊(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 6778#       发表于 2020-5-17 22:42
+
+
+
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6779#       发表于 2020-5-17 22:45
+
+
+
+
+呜呜呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6780#       发表于 2020-5-17 22:45
+
+
+
+
+人气公式改了嘛
+
+
+没打钱的就上不去
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6781#       发表于 2020-5-17 22:45
+
+
+
+
+死 村民 死
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6782#       发表于 2020-5-17 22:45
+
+
+
+
+没啥好谈的⑧，咩的热度就是降了，木口的热度和箱都起来了，这人气的数值还都调过，比也比不过啊，等亏皇把订阅一超，应该就再没啥讨论的必要了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6783#       发表于 2020-5-17 22:49
+
+
+
+
+我看了一眼mea不是没开播吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这一波车轱辘人气值是车的什么？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6784#       发表于 2020-5-17 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">你麻要是出生在2434中二死小孩的本土二创应该会有很多吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在你们还在对个人势的未来抱有希望这件事本身就很奇怪
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6785#       发表于 2020-5-17 22:50
+
+
+
+
+yysy，404是都不给抬，b站是都差不多抬，bwbml推荐位都一样的上，凭啥你个人都火了一年了还要接着热度比人家强啊，太看不起箱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6786#       发表于 2020-5-17 22:53
+
+
+
+
+所以b站才一直拱火啊，等企业势全面超越这个没有冲国特化的小个人势，利用价值就没了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6787#       发表于 2020-5-17 22:54
+
+
+
+
+韭菜矮了点还是能割的啊
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 6788#       发表于 2020-5-17 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457114&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-17 22:49</a>
+
+我看了一眼mea不是没开播吗这一波车轱辘人气值是车的什么？</blockquote>
+明面上用车轱辘踩咩的人气值，实际上踩苔苔的人气值
+
+坛友的温柔
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6789#       发表于 2020-5-17 22:56
+
+
+
+
+再没价值也得把bls交出来，不过都给了个免费3d了，以后b放不放弃她我无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6790#       发表于 2020-5-17 22:57
+
+
+
+
+苔苔本来就没什么人打钱啊，这还要踩?唉我本来好好的一个孩子给s1教育成了杞忧数字民，s1，你害人不欠啊(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6791#       发表于 2020-5-17 22:57
+
+
+
+
+木口最近已经砍了一轮倍率了，为什么觉得阿b会把宝押在企业身上，对阿b来说最优先的是自家的vr，剩下的管你个人企业都半斤八两，除非像张京华那圈人一样投诚当打手<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6792#       发表于 2020-5-17 23:00
+
+
+
+
+草，你咩姐这人气情况都持续大半年了，没必要现在感叹吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6793#       发表于 2020-5-17 23:00
+
+
+
+
+但是刚刚0群就在说企业势的倍率还是高得离谱啊(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6794#       发表于 2020-5-17 23:02
+
+
+
+
+企业势高得离谱（x）
+阿夸高得离谱（o）
+
+木口其他人几万人气值家常便饭，只有阿夸那里高得和捧杀一样，而且这还是小砍过一轮的
+
+人气值和任何打榜都没关系，阿夸也没什么版头推送资源，这个人气值高得真的有好处吗
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 6795#       发表于 2020-5-17 23:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又来了，大声念：事业民不得好死
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6796#       发表于 2020-5-17 23:03
+
+
+
+
+谁知道呢，但高总比不高好啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6797#       发表于 2020-5-17 23:03
+
+
+
+
+anmr是真的，，，早早入驻了绝对起飞，，，也许到时候就都是hinamea贴贴民的天下，我也不会成为女主播gachi死去活来了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">（又要车了，算了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6798#       发表于 2020-5-17 23:04
+
+
+
+
+懂了，这波是暗黑贴贴民引起事业民的不安<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6799#       发表于 2020-5-17 23:04
+
+
+
+
+别车轱辘人气了，看到人气低觉得难受的就打钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">保证缓解疼痛
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6800#       发表于 2020-5-17 23:05
+
+
+
+
+人是不能追一辈子的，她渐渐离开我们的视线不也挺好的么，更何况她也没啥大目标，玩腻了就退网了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6801#       发表于 2020-5-17 23:05
+
+
+
+
+肯定高啊，亏皇还有过低于80万的直播吗，有时在阿b看着咩被这些人压一头挺不爽的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6802#       发表于 2020-5-17 23:07
+
+
+
+
+啊真的是，我都快被你们种下大亏梁木了(눈_눈)本来她不跟咩联动我还是能快乐萌萌人的
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 6803#       发表于 2020-5-17 23:09
+
+
+
+
+如月b限都能上前排了，meapro还是可以的吧.<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6804#       发表于 2020-5-17 23:11
+
+
+
+
+所以你看人气值倍率那么高有什么用，除了引来一堆冠军粉招黑和被当成靶子
+
+
+mea现在这个倍率好歹是和其他人差不多的正常水准，不存在什么打压的
+
+
+当然你要坚持认为她马上就要糊了所有人都针对她太可怜了没你不行，那也不是不可以
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6805#       发表于 2020-5-17 23:12
+
+
+
+
+人气高那又如何呢，反正咩姐有口饭吃就行，比上不足比下有余，这些都无所谓的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6806#       发表于 2020-5-17 23:12
+
+
+
+
+她太可怜了没我照顾不行<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 6807#       发表于 2020-5-17 23:12
+
+
+
+
+直播人气这种东西就别强求了吧，还不如关注打钱是实打实的收益。当年第一次达到100万人气的时候mea还特意截的图，现在还有人惊叹破百万人气吗
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6808#       发表于 2020-5-17 23:13
+
+
+
+
+如月这次b限有话题性吧，要唱50首呢，小僵尸对直播挺上心能力也有，去企业可以干的更好吧，阿咩抽的这张卡是真的好
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6809#       发表于 2020-5-17 23:14
+
+
+
+
+如月唱50首歌，噱头确实很足，咩姐之前b限耐久歌回41首，人气也不错啊
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6810#       发表于 2020-5-17 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457461&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-17 23:13</a>
+
+如月这次b限有话题性吧，要唱50首呢，小僵尸对直播挺上心能力也有，去企业可以干的更好吧，阿咩抽的这张卡 ...</blockquote>
+市面上就2家企业，你是说她能进彩虹还是holo。只能说来晚了一年，如果去年就来她的人气不会再猫猫和高女士之下
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6811#       发表于 2020-5-17 23:18
+
+
+
+
+事实就是咩已经不能算t1了，至少从最前边已经下来了
+真是令人伤感啊，去年的冲国女王现在混的跟底边一样<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+其实现在相当好了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6812#       发表于 2020-5-17 23:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高女士和猫也只是最近这段时间起来的，去年一年不也基本上是半死不活
+
+syl，看来这联动还不如车轱辘有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6813#       发表于 2020-5-17 23:18
+
+
+
+
+可以进anmr（笑）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6814#       发表于 2020-5-17 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457499&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-17 23:16</a>
+市面上就2家企业，你是说她能进彩虹还是holo。只能说来晚了一年，如果去年就来她的人气不会再猫猫和高女 ...</blockquote>
+以如月的实力在这两之上不成问题的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6815#       发表于 2020-5-17 23:19
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-17 23:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">能把直播噱头写出来也是主播素养啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6816#       发表于 2020-5-17 23:20
+
+
+
+
+还是企业势飞太快了啊(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6817#       发表于 2020-5-17 23:20
+
+
+
+ 本帖最后由 Ky·Kiske 于 2020-5-17 23:22 编辑 
+
+睿国的人气就是给你看个舒适的，真正拼的还是这个
+
+
+<img src="https://img.saraba1st.com/forum/202005/17/231751ec14jawylzsu6ddk.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200517231653.png</strong> (206.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-17 23:17 上传
+
+
+
+
+
+
+
+而且睿国是有所谓睿国特化这种大杀器角色的，去年还在底边挣扎的花园serena算是一个受惠的典型
+
+
+我日，暴露ID了
+
+算了懒得管
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6818#       发表于 2020-5-17 23:21
+
+
+
+
+这联动我看一个小时就看不动了，你楼车轱辘确实有意思一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6819#       发表于 2020-5-17 23:22
+
+
+
+
+感觉冲国特化之后没那味儿了啊。yysy感觉咩就算过气了也不会特化冲国的。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6820#       发表于 2020-5-17 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457499&amp;ptid=1929631" target="_blank">cgz 发表于 2020-05-17 23:16:41</a>
+市面上就2家企业，你是说她能进彩虹还是holo。只能说来晚了一年，如果去年就来她的人气不会再猫猫和高女 ...</blockquote>就是想想说说而已，企业现在肯定进不了啊，感觉如月是真的不错，而且还能接住咩的梗，昨天对咩的那个回复挺惊喜的。顺带一提，现在这三是不是在虚无杂谈？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6821#       发表于 2020-5-17 23:24
+
+
+
+
+苔姨的联动还有能看的下去的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦对不起，歌回把苔姨部分静音还是能看的（这条匿名发）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6822#       发表于 2020-5-17 23:26
+
+
+
+
+我想看咩咩和holo的其他人联动啊，比如傻紫船长
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6823#       发表于 2020-5-17 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457600&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-17 23:24</a>
+苔姨的联动还有能看的下去的吗？哦对不起，歌回把苔姨部分静音还是能看的（这条匿名发） ...</blockquote>
+挺好看的啊。。我就觉得像舞苔。。怪了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6824#       发表于 2020-5-17 23:27
+
+
+
+
+我就说苔苔这个b怎么有信心2小时的，看完房必然是折磨
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6825#       发表于 2020-5-17 23:28
+
+
+
+
+她别说冲国特化，日本特化都不想搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 6826#       发表于 2020-5-17 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457575&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-17 23:22</a>
+
+感觉冲国特化之后没那味儿了啊。yysy感觉咩就算过气了也不会特化冲国的。</blockquote>
+本身就是一种选择，日V脱离404选择睿国舍弃的东西可以很少也可以很多
+
+花园猫就是404实际上没啥可以舍弃的，投入睿叔叔怀抱算得上找到定位，至于有没有内味了？
+
+
+mlgbd，说的好像管人很有味似的……
+
+
+反过来说，你咩现在在404的东西，她没可能舍弃掉，那几乎是她积攒到现在为止的点点人脉
+
+所以睿特化到她毕业前估计都不可能成的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6827#       发表于 2020-5-17 23:29
+
+
+
+
+王国民特化（指めあ王国
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6828#       发表于 2020-5-17 23:30
+
+
+
+
+啊这，这是20号之前唯一有确定时间可以听见咩声音的直播，不看感觉有丶亏，还有为啥这联动要两个小时啊，售房一结束感觉就开始虚无了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6829#       发表于 2020-5-17 23:30
+
+
+
+
+怎么苔宝这个转播唐突两个礼物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是你们拱的火？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6830#       发表于 2020-5-17 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457665&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-17 23:30</a>
+啊这，这是20号之前唯一有确定时间可以听见咩声音的直播，不看感觉有丶亏，还有为啥这联动要两个小时啊，售 ...</blockquote>
+是这样。。售房的时候还行。
+现在有点虚了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6831#       发表于 2020-5-17 23:31
+
+
+
+
+我不信她不播tc
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6832#       发表于 2020-5-17 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457628&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-17 23:26</a>
+
+我想看咩咩和holo的其他人联动啊，比如傻紫船长</blockquote>
+那只能等出道2周年和生日了，她想起来自己去拉联动
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6833#       发表于 2020-5-17 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457681&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-17 23:31</a>
+我不信她不播tc</blockquote>
+不要乱奶啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6834#       发表于 2020-5-17 23:32
+
+
+
+
+台本念完开始即兴发挥了，苔苔和舞元开始唧唧我我，没什么兴趣
+和木口联动不容易吧，可能是我有梁木，你咩姐现在和木口的人都是大联动，有一次和夏哥的，其他3人以下的基本都是2434anmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6835#       发表于 2020-5-17 23:32
+
+
+
+
+那我赌她必困
+
+
+替楼友的睡眠着想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6836#       发表于 2020-5-17 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457696&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-17 23:32</a>
+台本念完开始即兴发挥了，苔苔和舞元开始唧唧我我，没什么兴趣
+和木口联动不容易吧，可能是我有梁木，你咩 ...</blockquote>
+巧克：？？？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6837#       发表于 2020-5-17 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457702&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-17 23:32</a>
+巧克：？？？</blockquote>
+巧可老师对不起
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6838#       发表于 2020-5-17 23:34
+
+
+
+
+这就是舞苔吗，般配啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6839#       发表于 2020-5-17 23:34
+
+
+
+
+呀这怎么能忘六字母的特供贴贴呢😊，就是什么时候在404搞呢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6840#       发表于 2020-5-17 23:35
+
+
+
+
+底边和当世第一箱的大物联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？配钥匙吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6841#       发表于 2020-5-17 23:37
+
+
+
+
+不是你怎么能这么功利呢，这可是她们之间的美好感情啊 ，对不对啊大亏哥对不对啊（
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6842#       发表于 2020-5-17 23:37
+
+
+
+
+她可能确实在乎数字和面子的问题吧——比我们想象中更在乎（？）
+
+
+当然说成是慢慢聊得少了有障壁了也行
+
+
+单说木口的话，大家庭内部肯定互相聊的比外人多啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6843#       发表于 2020-5-17 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前p箱可以和holo联动，现在原p的人可以去提鞋吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6844#       发表于 2020-5-17 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457718&amp;ptid=1929631" target="_blank">古战场亡魂 发表于 2020-5-17 23:34</a>
+
+这就是舞苔吗，般配啊</blockquote>
+水友们把舞苔贴贴刷起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 6845#       发表于 2020-5-17 23:38
+
+
+
+
+有啥舍弃不舍弃的啊……
+我敢打包票泥潭车轱辘的内容的80%她考虑都没考虑过……
+本质上这是一个人生观价值观的比较复杂的问题……
+实际上我反正觉得解决起来难度也忒大了
+所以选择当全肯定民其实也是一种对自己的解脱
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6846#       发表于 2020-5-17 23:38
+
+
+
+
+mea给大亏提鞋的时候快来了，阿什么已经来了吗，那没事了（
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 6847#       发表于 2020-5-17 23:38
+
+
+
+
+苔苔这么狠嫁，莫非她发狠地拱火舞mea是项庄舞剑（）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6848#       发表于 2020-5-17 23:39
+
+
+
+
+木口我觉得除了巧克和马自立其他的还是不要想了，那位看起来情同手足的40万圣人至今都舍不得在404拉她一把，其他更没啥可能了，现在兔羊狗这个圈子挺好的，其他的就是希望能再看一次咩缪，这对是真的呜呜呜。这还要聊多久啊，今晚没盒限？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6849#       发表于 2020-5-17 23:40
+
+
+
+
+不过看了今天的熟肉她说自己不想被宅宅说才努力的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6850#       发表于 2020-5-17 23:41
+
+
+
+
+怎么又在半夜发疯
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6851#       发表于 2020-5-17 23:42
+
+
+
+
+圣人在忙着和同社加班贴贴呢(ಡωಡ) 。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6852#       发表于 2020-5-17 23:43
+
+
+
+
+怎么评价今天的舞mea联动同接暴跌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6853#       发表于 2020-5-17 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457819&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-17 23:42</a>
+圣人在忙着和同社加班贴贴呢(ಡωಡ) 。</blockquote>
+这不是拉不拉的问题，你一个top给社外底边喂饭是要被炎上的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6854#       发表于 2020-5-17 23:44
+
+
+
+
+没利用价值就不会再有拱火了，好事
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6855#       发表于 2020-5-17 23:44
+
+
+
+
+舞苔最高
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 6856#       发表于 2020-5-17 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457790&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-17 23:39</a>
+
+木口我觉得除了巧克和马自立其他的还是不要想了，那位看起来情同手足的40万圣人至今都舍不得在404拉她一把 ...</blockquote>
+咩缪正在吃烤肉，没兴趣给你播出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6857#       发表于 2020-5-17 23:45
+
+
+
+<blockquote>A2014720 发表于 2020-5-17 23:44
+这不是拉不拉的问题，你一个top给社外底边喂饭是要被炎上的</blockquote>
+虽然是事实，但是结合大亏的营业憨憨表现你这话就很有洗地的味道（(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6858#       发表于 2020-5-17 23:47
+
+
+
+
+暴跌是因为后面联动确实没啥意思啊，1小时打卡就差不多，现在没啥可聊的了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 6859#       发表于 2020-5-17 23:47
+
+
+
+
+啊这，我看前一小时有1万啊，现在在b看，掉了还行，五元和咩的气氛已经可以了，只要别嗯拱就行，这是又要开始拱圣诞了？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6860#       发表于 2020-5-17 23:48
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-17 23:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们怎么在这暗黑贴贴来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">只要不结婚，就随便拱吧
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 6861#       发表于 2020-5-17 23:48
+
+
+
+
+不是你都知道大陆吃6字母404不吃
+那还纠结啥呢？
+合着双赢不好一定得双输？
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 6862#       发表于 2020-5-17 23:49
+
+
+
+ 本帖最后由 yuanhang99 于 2020-5-17 23:52 编辑 
+
+海苔这是何苦要在B转播舞咩？没钱没热度还给天狗种梁木。不过今晚咩粉应该有不少点小弟关注了。不愧是组长，这也在你计算中吗？Syl 如月有可能转冲国特攻吗？毕竟**现在个人根本没发展空间，B站还能靠咩喂饭。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6863#       发表于 2020-5-17 23:50
+
+
+
+
+2月最后一次和粽子联动之后，在404还和哪个holo的非大型联动过吗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6864#       发表于 2020-5-17 23:51
+
+
+
+<blockquote>Cla0221 发表于 2020-5-17 23:50
+2月最后一次和粽子联动之后，在404还和哪个holo的非大型联动过吗</blockquote>
+巧克老师啊，打莱莱
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6865#       发表于 2020-5-17 23:51
+
+
+
+
+苔姨怎么就忘了自己说的一小时同接必定掉的定律呢
+
+
+不过阿咩造了那么久房子一个小时就给看完了也是内容消耗得快
+
+
+（我又想顺劈她不播游戏当然没内容了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 6866#       发表于 2020-5-17 23:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457830&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-17 23:43</a>
+怎么评价今天的舞mea联动同接暴跌看来再打几次麻将这个梗就要被用完就丢了 ...</blockquote>
+因为今天是舞苔啊。。。然后后半段没话题了尬聊。。犬山同学定一个小时刚好
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6867#       发表于 2020-5-17 23:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457925&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-17 23:50</a>
+
+2月最后一次和粽子联动之后，在404还和哪个holo的非大型联动过吗</blockquote>
+四期开始holo全面强化社内抱团了，涉外联动数量肉眼可见的减少了。更何况mea自己不去开联动，就等别人来联动你也不现实
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6868#       发表于 2020-5-17 23:53
+
+
+
+
+看了下上一页，你们暗黑贴贴人没自己的楼吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6869#       发表于 2020-5-17 23:58
+
+
+
+
+就这样吧，咩姐开始没把v当工作做丢了不少东西，现在认真点做反而事倍功半了
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6870#       发表于 2020-5-17 23:58
+
+
+
+
+怎么感觉mea困了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外这不是同接9700多么，刚才一万出头，也没暴跌啊
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 6871#       发表于 2020-5-17 23:59
+
+
+
+
+你们要求太高了吧，今天聊的比昨晚好多了
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6872#       发表于 2020-5-18 00:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457914&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-17 23:49</a>
+海苔这是何苦要在B转播舞咩？没钱没热度还给天狗种梁木。不过今晚咩粉应该有不少点小弟关注了。不愧是组长 ...</blockquote>
+如月也不用转，她现在那边挺好的，想侧重这边自然回来
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6873#       发表于 2020-5-18 00:02
+
+
+
+
+毕竟一开始直播势啥前景大家也都知道……
+
+
+当时确实是严选（存疑）的中之人在企业资源支持下做东西的状态
+
+
+谁能想到主播公会走到最后啊
+
+
+但她的“不正经”确实可以说给直播势的兴起添砖加瓦了吧——自己没吃到多少（多少算多？多少算少？）又是别的问题了
+
+说得梁木一点就是看别人后来者大树底下乘凉有点不平吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6874#       发表于 2020-5-18 00:03
+
+
+
+
+插播一下，如月koyori的画师在画咩姐。链接：[https://sketch.pixiv.net/@kuzumatiaoru/lives/5980672944822966495](https://sketch.pixiv.net/@kuzumatiaoru/lives/5980672944822966495)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6875#       发表于 2020-5-18 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47458037&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-18 00:02</a>
+毕竟一开始直播势啥前景大家也都知道……
+
+
+当时确实是严选（存疑）的中之人在企业资源支持下做东西的状态</blockquote>
+别人只觉得你败了圈子风气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6876#       发表于 2020-5-18 00:05
+
+
+
+
+参考视频的作者跑来打sc了还行
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 6877#       发表于 2020-5-18 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47457996&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-17 23:58</a>
+
+就这样吧，咩姐开始没把v当工作做丢了不少东西，现在认真点做反而事倍功半了 ...</blockquote>
+她要是认真了就该少去TC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，只能说她对现在的情况还是挺乐观的，最近也没发神经了
+
+
+
+
+
+                    
