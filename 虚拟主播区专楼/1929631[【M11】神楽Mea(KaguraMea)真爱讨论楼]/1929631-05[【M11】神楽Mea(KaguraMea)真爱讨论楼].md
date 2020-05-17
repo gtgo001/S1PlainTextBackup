@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-17 00:07** 
+> ## **本文件最后更新于2020-05-17 14:06** 
 
 
 
@@ -12039,10 +12039,11 @@ Wow,鱼板味
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|好评加鹅|
 | 草牛| + 1|我先换的，你不要抢头，柰子，换我就行.|
 
 
@@ -12065,6 +12066,25 @@ Wow,鱼板味
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12078,6 +12098,25 @@ Wow,鱼板味
 
 [@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) ，申请一换一，看看这逼还有多少个小号，就那个
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -12147,6 +12186,25 @@ Wow,鱼板味
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12171,10 +12229,13 @@ Wow,鱼板味
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|好评加鹅|
+| 呓亘| + 1||
+| 诡秘侍者| + 1||
 | 甘栗No.007| + 1|草|
 
 
@@ -12287,4 +12348,492 @@ Wow,鱼板味
 
 
 
-                          
+
+
+-----
+
+####  JY要塞  
+##### 6699#       发表于 2020-5-17 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗叔该给你楼发个奖状
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 6700#       发表于 2020-5-17 00:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6701#       发表于 2020-5-17 00:34
+
+
+
+
+太悲壮了，我都笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6702#       发表于 2020-5-17 00:45
+
+
+
+
+送钱小能手<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+我要是有那么多闲钱就好了，要买一台kindle多看点书，给麻酱打点钱
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 6703#       发表于 2020-5-17 00:47
+
+
+
+
+顺便说句meart相关的，新的污染tag的方式出现了（指大亏单人图毫无要素却打两个人的tag）有闲的可以去推特出下警x
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 6704#       发表于 2020-5-17 00:57
+
+
+
+
+不就两张
+13号的都去出警，太闲了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6705#       发表于 2020-5-17 01:00
+
+
+
+
+都是国人，提一下也行
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 6706#       发表于 2020-5-17 01:00
+
+
+
+
+毕竟看你们一换一忙得不亦乐乎，不如再找点正事来给各位老哥发泄一下x
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6707#       发表于 2020-5-17 01:09
+
+
+
+
+说到tag这个才是最让我诧异的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/62c1fc638508c514ab02756bfa1a01db/IMG_CD9FF0E966B1BAF7A02290476CB3D059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 6708#       发表于 2020-5-17 04:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47447357&amp;ptid=1929631" target="_blank">餅月ひまり 发表于 2020-5-17 01:09</a>
+说到tag这个才是最让我诧异的</blockquote>
+这是个蛇皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">应该是其他めあ的吧，毕竟推上名字带めあ的人还挺多的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6709#       发表于 2020-5-17 07:11
+
+
+
+
+这只是单纯蹭热度的。。。连陈情令的tag都有
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 6710#       发表于 2020-5-17 08:48
+
+
+
+ 本帖最后由 纯良天狗 于 2020-5-17 09:02 编辑 
+
+[来点大家喜欢的](https://bbs.saraba1st.com/2b/thread-1935450-0-1.html)<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+又发现了麻酱的一个优点：小麻喜欢无套，所以乌冬（天狗们）也不用谎称自己没有生育能力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6711#       发表于 2020-5-17 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47448596&amp;ptid=1929631" target="_blank">纯良天狗 发表于 2020-5-17 08:48</a>
+来点大家喜欢的
+又发现了麻酱的一个优点：小麻喜欢无套，所以乌冬（天狗们）也不用谎称自己 ...</blockquote>
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) ，申请一换一
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 6712#       发表于 2020-5-17 09:22
+
+
+
+
+你们死活不愿意加黑名单而要一换一的直接私信奈子好不好，本来我加了黑名单这人已经从我的s1里彻底消失了，你们还非要引用他提醒我这人又在楼里拉屎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  やト  
+##### 6713#       发表于 2020-5-17 09:25
+
+
+
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) ，申请一换一    小博禹 新小号    3个月换3个月吧，他继续申请小号，继续3个月换3个月。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6714#       发表于 2020-5-17 09:35
+
+
+
+
+太悲壮了呜呜呜，可惜我没有小号<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6715#       发表于 2020-5-17 10:35
+
+
+
+
+话说看到他的话然后內心毫无波动，是不是代表我快要脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6716#       发表于 2020-5-17 10:38
+
+
+
+
+我看v8的nt自我高潮也毫无波动啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且这当然不是对nt的容忍就是了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 6717#       发表于 2020-5-17 10:54
+
+
+
+
+mea今天起码两动啊，和组长的填词游戏，和犬山舞元的mc。
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6718#       发表于 2020-5-17 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47449440&amp;ptid=1929631" target="_blank">古战场亡魂 发表于 2020-5-17 10:54</a>
+mea今天起码两动啊，和组长的填词游戏，和犬山舞元的mc。</blockquote>
+填词游戏是啥时候开始来着
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6719#       发表于 2020-5-17 11:51
+
+
+
+<blockquote>餅月ひまり 发表于 2020-5-17 11:12
+填词游戏是啥时候开始来着</blockquote>
+晚上6点
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 6720#       发表于 2020-5-17 12:09
+
+
+
+
+字幕组怎么突然烤出个健身环啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+今天支持字幕组
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6721#       发表于 2020-5-17 12:09
+
+
+
+
+话说同好会新肉说的这个mix哥不是拆妮子吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6722#       发表于 2020-5-17 12:10
+
+
+
+
+mix是本土粉，很早就在的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6723#       发表于 2020-5-17 12:14
+
+
+
+
+他就是那个六号转推的老哥吗(눈_눈)。虽然kimo但是能打钱，算了。
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 6724#       发表于 2020-5-17 12:23
+
+
+
+
+主要是我看他之前**发言各种散装日语，感觉很拆妮子而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 6725#       发表于 2020-5-17 13:47
+
+
+
+
+mixi本土老发情民了，论浓度相比你楼所有人有过之而无不及<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                         
