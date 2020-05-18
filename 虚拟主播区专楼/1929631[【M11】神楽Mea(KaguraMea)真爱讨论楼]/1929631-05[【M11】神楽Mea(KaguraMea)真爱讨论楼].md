@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-18 02:04** 
+> ## **本文件最后更新于2020-05-18 12:05** 
 
 
 
@@ -16597,4 +16597,435 @@ yhm内心纤细啊，你看着不觉得难受的话她看到了可能会想很�
 
 
 
-                  
+
+
+-----
+
+####  无限舰制  
+##### 6946#       发表于 2020-5-18 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47458831&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-5-18 01:56</a>
+
+工作无能，直播无力。是挺心累的。说实话，去学兔妈妈上大学算了，好歹拿个文凭出来 ...</blockquote>
+不管上不上学，我个人的期望就是她能找到点一个人也能干，还有乐趣的事，而不是动不动要人陪打电话不安desu（）
+
+
+毕竟yhm性格也有麻烦的地方，不是所有人都能一直惯着，还是得学会自娱自乐啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6947#       发表于 2020-5-18 02:08
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-18 02:16 编辑 
+
+我推荐学数学
+
+
+
+-----------------
+
+入门书籍推荐（指面向本科生， 第一次接触该领域）
+
+-----------------
+
+数学分析： Understanding Analysis - Stephen Abbott 
+
+线性代数： Linear Algebra Done Right - Sheldon Jay
+
+代数：Contemporary abstract algebra - Joseph Gallian
+
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6948#       发表于 2020-5-18 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47458851&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-18 02:06</a>
+不管上不上学，我个人的期望就是她能找到点一个人也能干，还有乐趣的事，而不是动不动要人陪打电话不安de ...</blockquote>
+她也没那么yhm，不然516这种事她怕不是要纠结死，你看她反应是断了一周网跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就可以知道她其实是一只小巨魔了
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 6949#       发表于 2020-5-18 02:10
+
+
+
+
+突然好奇, 是不是因为净土坛v版要维持伟光正的净土氛围,所以杞忧/弱智/发情的内容全都由这里承载了?
+
+偶然还有小博鱼这样的nt来送马,虽然这种属于本地特色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+讲真 你楼事业杞忧车轱辘真是比她播爆还勤.
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 6950#       发表于 2020-5-18 02:12
+
+
+
+
+那就当我们死宅还是理解不了现充吧（不是）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+说实话本版发情内容倒不是很多，因为没有新麻图
+
+
+
+
+
+
+
+-----
+
+####  餅月ひまり  
+##### 6951#       发表于 2020-5-18 02:13
+
+
+
+ 本帖最后由 餅月ひまり 于 2020-5-18 02:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47458863&amp;ptid=1929631" target="_blank">deep24froz 发表于 2020-5-18 02:10</a>
+突然好奇, 是不是因为净土坛v版要维持伟光正的净土氛围,所以杞忧/弱智/发情的内容全都由这里承载了?
+
+偶然还 ...</blockquote>
+所以我建议每次杞忧就去给她打钱好吧
+既对她好也能给自己放放血，省的莫名其妙的怒发冲冠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想了想再编辑一下，打钱不用多，打个最低下限的就行，感受这种杞忧给自己和mea带来的压力才是重点啊
+
+syl因为nga人们知道这种杞忧毫无意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会吵起来然后被版规制裁啊，这边就没人管这些了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6952#       发表于 2020-5-18 02:45
+
+
+
+
+总之希望粉丝们在在意mea的精神健康之前也多在意自己的精神健康<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6953#       发表于 2020-5-18 02:54
+
+
+
+
+你们这一说我还真去看了一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果说月订阅增长的话
+
+mea: 14w8→16w 月增1w2
+
+海苔男:27w7→30w 月增2w3
+
+兔姨:13w8→15w2  月增1w4
+
+
+再来加入订阅接近的虹杏对比一下
+
+杏:フレア 12w7→15w 月增2w3
+
+虹:翔哥  15w4→16w5 月增1w1
+
+     牛姨   15w→15w9   月增9k
+
+
+结论:斗订阅不要带木口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 6954#       发表于 2020-5-18 02:56
+
+
+
+
+因为nga已经过了这个阶段了啊
+我不是说了么你楼越来越有以前nga病栋的感觉了
+只能说人类都在重复一样的错误
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6955#       发表于 2020-5-18 03:33
+
+
+
+ 本帖最后由 A2014720 于 2020-5-18 03:47 编辑 
+
+不是因为nga能聊的太少吗，一点发散和离题就隐藏删除线，气氛真的压抑，云p楼也进不去，难受
+
+你不发散的话，这楼估计能少八成<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6956#       发表于 2020-5-18 07:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没看，结果看你们repo好像还不错嘛
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 6957#       发表于 2020-5-18 10:07
+
+
+
+
+有一说一，去年M楼建起来，新来的流量一半以上全是nga来的，能不一样吗
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 6958#       发表于 2020-5-18 11:13
+
+
+
+
+话说现在饭盒一个月有多少w日元啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 6959#       发表于 2020-5-18 11:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本土还是涨得挺快的，国内。。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不安です
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6960#       发表于 2020-5-18 11:20
+
+
+
+
+那可以开始车官组了吗？毕竟视频势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 6961#       发表于 2020-5-18 11:26
+
+
+
+
+别车了别车了，挂件组本身目的哪里是给她涨粉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+比起这个这周应该有b限，期待她整点好活吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 6962#       发表于 2020-5-18 11:27
+
+
+
+
+最简单的不就是tc转播，涨粉提纯都是妥妥的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6963#       发表于 2020-5-18 11:33
+
+
+
+
+别车了，还没看出来涨粉现在主要靠mea播吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要能回回剪出播放量几十万播放的视频那你肯定就是能救mea的天降圣人了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6964#       发表于 2020-5-18 11:34
+
+
+
+
+又车官组，说到官组，我看最近熟肉staff里有fafa啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 6965#       发表于 2020-5-18 11:38
+
+
+
+
+停一下，想车隔壁楼有请，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要不安です了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6966#       发表于 2020-5-18 11:42
+
+
+
+
+所以今天有播吗？没播打游戏去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前几天150级自信满满进环印城被锤出翔，把游戏卸了，刚下回来重新开荒玩
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6967#       发表于 2020-5-18 11:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fafa进组了，我之前也想进，但是我被刷了，她水平高就留下了，是好事
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6968#       发表于 2020-5-18 12:05
+
+
+
+
+这周涨粉曲线这么怪不能怪官组好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+逢魔时刻 逢魔时刻
+
+
+
+
+
+                 
