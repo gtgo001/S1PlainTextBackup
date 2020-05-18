@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-18 12:05** 
+> ## **本文件最后更新于2020-05-18 14:07** 
 
 
 
@@ -17020,12 +17020,456 @@ mea: 14w8→16w 月增1w2
 
 
 
+ 本帖最后由 A2014720 于 2020-5-18 12:08 编辑 
 
 这周涨粉曲线这么怪不能怪官组好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 逢魔时刻 逢魔时刻
 
+ps:v8突然多了2w粉，祈忧民表示这两万阴兵看着吓人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
 
 
-                 
+
+
+
+-----
+
+####  时雨rain  
+##### 6969#       发表于 2020-5-18 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">人好多啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你版有2w人吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6970#       发表于 2020-5-18 12:12
+
+
+
+
+都在猜是版主的阴兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6971#       发表于 2020-5-18 13:08
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-18 13:10 编辑 
+
+你版要橄榄v8了么？别呀，哪有拆厕所的道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+syl，tc开转播，0群开轮播都可以，我想捞1819年的稿子想很久了
+
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 6972#       发表于 2020-5-18 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说可以就可以吗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6973#       发表于 2020-5-18 13:17
+
+
+
+
+tc不转轮播不开都是咩姐说的啊。。。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6974#       发表于 2020-5-18 13:18
+
+
+
+
+这两个都是她本人点名取缔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6975#       发表于 2020-5-18 13:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47462815&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-18 13:08</a>
+你版要橄榄v8了么？别呀，哪有拆厕所的道理 
+
+syl，tc开转播，0群开轮播都可以，我想捞1819年的稿子 ...</blockquote>
+别车了，你不会真觉得这点事对mea有什么用吧，到时候结果还不是发一堆动态掉粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6976#       发表于 2020-5-18 13:22
+
+
+
+
+不过现在直播间环境和以前不一样了，轮播可以申请恢复吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6977#       发表于 2020-5-18 13:29
+
+
+
+
+这事按她本人意思来就是了，我觉得轮播真的无所谓，倒是少同传更伤，也没办法了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 6978#       发表于 2020-5-18 13:30
+
+
+
+
+不要因陈守旧啊，时代变了，又不是什么会起大节奏的操作，至少应该试一下，不是吗？不然又得车官组了
+
+
+本流量民是不会停下来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6979#       发表于 2020-5-18 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463081&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-18 13:30</a>
+不要因陈守旧啊，时代变了，又不是什么会起大节奏的操作，至少应该试一下，不是吗？不然又得车官组了
+
+
+本流 ...</blockquote>
+你直播时去上个总督流量肯定上来了，有点异想天开就来吹牛逼谁不会吹啊，车字幕组去隔壁楼行不<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 6980#       发表于 2020-5-18 13:37
+
+
+
+
+希望转就自己去说，不过不建议直播说，她直播回应过这个很多回了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6981#       发表于 2020-5-18 13:37
+
+
+
+<blockquote>A2014720 发表于 2020-5-18 13:29
+这事按她本人意思来就是了，我觉得轮播真的无所谓，倒是少同传更伤，也没办法了 ...</blockquote>
+少同传啥意思，scpointer不是还在吗
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6982#       发表于 2020-5-18 13:40
+
+
+
+
+楼友发现了你楼就是吹逼的本质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6983#       发表于 2020-5-18 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463186&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-18 13:40</a>
+楼友发现了你楼就是吹逼的本质</blockquote>
+吹比是刚需，但吹着别人的逼还觉得是在为mea好就感觉很无语了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 6984#       发表于 2020-5-18 13:46
+
+
+
+
+她tc那些不是面向路人的，就算转播对涨粉也不见得有很大帮助就是了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 6985#       发表于 2020-5-18 13:47
+
+
+
+ 本帖最后由 A2014720 于 2020-5-18 13:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463155&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-18 13:37</a>
+少同传啥意思，scpointer不是还在吗</blockquote>
+体感同传最近在的次数偏少，这东西还是挺吸路人的，虽然这事拿来说就算了，能有就好
+
+最影响涨势的还是外部风评吧，不说天狗都是有点问题这种刻板印象，还有人拿v圈xz粉来扣我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 6986#       发表于 2020-5-18 13:56
+
+
+
+
+18年就被扣了粉圈的帽子，20年变成XZ粉也不奇怪啊
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 6987#       发表于 2020-5-18 14:00
+
+
+
+
+作为一个没有成建制的企业资本在后台做推手的个人，能成长出xz目前的10%那算她祖坟冒青烟了。
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 6988#       发表于 2020-5-18 14:02
+
+
+
+
+去年还是蔡徐坤粉呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">天狗从来不缺帽子
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6989#       发表于 2020-5-18 14:03
+
+
+
+
+去年不还是imea吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 6990#       发表于 2020-5-18 14:03
+
+
+
+
+难道不是每出名一个红人都要往这边扣个帽子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你咩姐已经被某些人融合成五五开孙笑川药水哥周淑怡小缘菠萝乔碧萝蔡徐坤肖战的奇美拉了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 6991#       发表于 2020-5-18 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463507&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-18 14:03</a>
+难道不是每出名一个红人都要往这边扣个帽子吗
+
+你咩姐已经被某些人融合成五五开孙笑川药水哥周淑怡小 ...</blockquote>
+据说负面流量也是流量，这么说忽然觉得你mea好厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6992#       发表于 2020-5-18 14:05
+
+
+
+
+哦，这么一看你咩姐排面还挺大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6993#       发表于 2020-5-18 14:05
+
+
+
+
+不就是扣粉圈帽子那套吗。。。就硬抹黑呗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6994#       发表于 2020-5-18 14:06
+
+
+
+<blockquote>龙魂绯影 发表于 2020-5-18 14:04
+据说负面流量也是流量，这么说忽然觉得你mea好厉害</blockquote>
+还漏了个小米粥
+
+
+
+
+
+                
