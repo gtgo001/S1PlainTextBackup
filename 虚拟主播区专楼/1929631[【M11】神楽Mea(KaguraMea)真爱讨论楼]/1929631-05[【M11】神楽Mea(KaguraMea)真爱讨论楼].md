@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-18 14:07** 
+> ## **本文件最后更新于2020-05-18 18:07** 
 
 
 
@@ -17472,4 +17472,507 @@ syl，tc开转播，0群开轮播都可以，我想捞1819年的稿子 ...</bloc
 
 
 
-                
+
+
+-----
+
+####  Leutnant某囧  
+##### 6995#       发表于 2020-5-18 14:07
+
+
+
+<blockquote>第三惑星 发表于 2020-5-18 14:05
+哦，这么一看你咩姐排面还挺大</blockquote>
+你的头像是咩姐和如月的合体吗？我小图看以为是如月放大看却发现是异色瞳
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6996#       发表于 2020-5-18 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463563&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-18 14:07</a>
+你的头像是咩姐和如月的合体吗？我小图看以为是如月放大看却发现是异色瞳 ...</blockquote>
+你这一说还挺像，我都没有想到<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+其实这是我老婆自拍
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 6997#       发表于 2020-5-18 14:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好像是scp哥是开学还是怎样最近没什么时间吧，以前基本每次都到的 不过指着一个同传man消耗确实也很难
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 6998#       发表于 2020-5-18 14:19
+
+
+
+<blockquote>第三惑星 发表于 2020-5-18 14:11
+你这一说还挺像，我都没有想到
+
+其实这是我老婆自拍</blockquote>
+啊，我认错了，问一下这是哪个角色
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 6999#       发表于 2020-5-18 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463691&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-18 14:19</a>
+啊，我认错了，问一下这是哪个角色</blockquote>
+阿咩mmd改模
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7000#       发表于 2020-5-18 14:31
+
+
+
+<blockquote>第三惑星 发表于 2020-5-18 14:24
+阿咩mmd改模</blockquote>
+草，我就说
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7001#       发表于 2020-5-18 14:33
+
+
+
+
+也许是我最近太yhm了，但看到昨天有人宣传如月，下面都有人说可惜沾点mea不看果然还是不爽啊，也不知道新粉受这影响有多少<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7002#       发表于 2020-5-18 14:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前还有说koyori和mea有啥关系的论调呢，没事非要在koyori这提你mea，问题是别人就提了一句koyori唱歌好听mea捡到宝了，这也有人说
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">所以么，想找角度恶心人总能找到角度的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7003#       发表于 2020-5-18 14:39
+
+
+
+
+和固守成见的人争论挺无趣的，一般路人稍微有点偏见那种还是可以争取的
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 7004#       发表于 2020-5-18 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463865&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-05-18 14:33:45</a>
+也许是我最近太yhm了，但看到昨天有人宣传如月，下面都有人说可惜沾点mea不看果然还是不爽啊，也不知道新粉 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么影响，这不已经5w了么
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 7005#       发表于 2020-5-18 14:42
+
+
+
+
+mea姐现在就一普通的小主播，惨到b站虚拟区第一都天天丢，为啥还在做巫妖王，真的太惨了.
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 7006#       发表于 2020-5-18 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463538&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-18 14:05</a>
+
+不就是扣粉圈帽子那套吗。。。就硬抹黑呗</blockquote>
+不算抹黑吧,只要大喊大叫,就是卢本伟,只要选个露露就是otto <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7007#       发表于 2020-5-18 14:47
+
+
+
+<blockquote>追风小星星 发表于 2020-5-18 14:44
+不算抹黑吧,只要大喊大叫,就是卢本伟,只要选个露露就是otto</blockquote>
+我指的是说天狗是二次元xzf的那些人
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7008#       发表于 2020-5-18 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47463865&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-18 14:33</a>
+
+也许是我最近太yhm了，但看到昨天有人宣传如月，下面都有人说可惜沾点mea不看果然还是不爽啊，也不知道新粉 ...</blockquote>
+去看v吧了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+承受不住就少去吧，本来没啥意思，就那点东西，见得多了。照去年净土坛的2.7和版规贴可差远了。
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 7009#       发表于 2020-5-18 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47464019&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-18 14:47</a>
+
+我指的是说天狗是二次元xzf的那些人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 二不起,二不起
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7010#       发表于 2020-5-18 14:55
+
+
+
+
+唉，说的二刺猿都是啥好东西似的，还分二刺猿xzf，二刺猿不都跟xzf一路货色
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7011#       发表于 2020-5-18 14:59
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-5-18 15:03 编辑 
+
+不是，别看了v8跑过来“今天mea又被叫成xxx”
+那就是个混乱无秩序，没事p人黑白图和说人感染新冠的地方<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么还带zqsg去看的
+用看这个楼犯弱智的心态去看，很多事情就能看的通了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 7012#       发表于 2020-5-18 15:06
+
+
+
+
+不过v8那些人确实有点带着恶意去废话，看得人不适很正常
+
+之前也分析过动机，可以给他们扣一个二刺猿狗粉丝的帽子，都不算诬告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7013#       发表于 2020-5-18 15:09
+
+
+
+
+大概是我被戳到痛处了吧，之前一直没啥感觉，看到那句就不行了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+ syl，这健身环播放量也太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7014#       发表于 2020-5-18 15:17
+
+
+
+
+就缩在粪坑里的一群five，唯一一个有点硬度的还只敢拿小号开，照去年那批彩虹和点那边的anti差远了。
+
+
+不过确实有点感慨，新人确实越来越多了，去年那个强度过来的咋可能现在因为个粪坑急。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7015#       发表于 2020-5-18 15:49
+
+
+
+
+发推，这是摸了？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7016#       发表于 2020-5-18 15:49
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-5-18 15:50 编辑 
+
+草，不过最近播的是多，之前还感觉她每回播的东西都能记清楚，现在都有种她天天播记不清的感觉了
+【TwitterTweet 神楽めあ 推特发布】
+内容：人生休憩
+媒体：[]
+链接：[]
+时间：2020-05-17 23:44:18 UTC
+网址：https://twitter.com/KaguraMea_VoV/status/1262287883970342914
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7017#       发表于 2020-5-18 15:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">休息挺好的，最近她联动挺多的
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">虽然挺想看她自己随便杂谈的
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 7018#       发表于 2020-5-18 17:44
+
+
+
+
+话说为什么你们都想让开轮播呢？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好像也没什么用处吧
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 7019#       发表于 2020-5-18 17:52
+
+
+
+
+确实没啥用，相比之下开转播更有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过她都判死刑了就别车了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7020#       发表于 2020-5-18 18:00
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-5-18 18:01 编辑 
+
+我天天在斗鱼挂着lorre的手动轮播听，一年多了贵宾也没涨过，那个24小时直播的v效果也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种小招式是不管用的啊，想那么多还不如指望她mea自己能播的更稳定点
+私心一下的话开了轮播还没法挂直播间防突击了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">每回去苔苔那待机都得先把轮播静音，等直播开了再打开声音
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 7021#       发表于 2020-5-18 18:00
+
+
+
+
+忙完发现她休息了，怎么还上升到人生了，别突然又放个**就好，莫名的慌。还有，v圈虚空上舰就是从她那次轮播开始的吧，没必要再被人抓个话柄黑，tc那是yhm含羞不让转啊，这点她不松口谁也没办法
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7022#       发表于 2020-5-18 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47466084&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-5-18 18:00</a>
+忙完发现她休息了，怎么还上升到人生了，别突然又放个**就好，莫名的慌。还有，v圈虚空上舰就是从她那次轮 ...</blockquote>
+那次不让开轮播单纯是她不乐意而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还真没看到多少拿虚空上舰的黑
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 7023#       发表于 2020-5-18 18:06
+
+
+
+
+那次不是蝙蝠妹组的弱智组长出来说你们虚空上舰败坏风气吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+               
