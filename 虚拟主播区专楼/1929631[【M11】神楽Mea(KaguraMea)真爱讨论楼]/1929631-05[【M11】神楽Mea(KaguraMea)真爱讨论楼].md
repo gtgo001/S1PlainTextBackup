@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-20 20:07** 
+> ## **本文件最后更新于2020-05-20 22:05** 
 
 
 
@@ -21785,4 +21785,4252 @@ syl，来点贴贴人复辟
 
 
 
-        
+
+
+-----
+
+####  JY要塞  
+##### 7243#       发表于 2020-5-20 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太麻了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7244#       发表于 2020-5-20 20:07
+
+
+
+
+她发现了
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 7245#       发表于 2020-5-20 20:07
+
+
+
+
+太麻了
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 7246#       发表于 2020-5-20 20:08
+
+
+
+
+麻了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7247#       发表于 2020-5-20 20:08
+
+
+
+
+好麻啊
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7248#       发表于 2020-5-20 20:08
+
+
+
+
+戳麻xp的颜色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7249#       发表于 2020-5-20 20:09
+
+
+
+
+草，明天b限播舰b
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7250#       发表于 2020-5-20 20:09
+
+
+
+
+船b？？？？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7251#       发表于 2020-5-20 20:09
+
+
+
+
+草，工商可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7252#       发表于 2020-5-20 20:10
+
+
+
+
+碧蓝航线？工商来了？
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 7253#       发表于 2020-5-20 20:10
+
+
+
+
+工商了工商了，呜呜呜好起来了
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 7254#       发表于 2020-5-20 20:10
+
+
+
+
+恰到饭了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 7255#       发表于 2020-5-20 20:10
+
+
+
+
+碧蓝工商草  已经是睿叔叔的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7256#       发表于 2020-5-20 20:10
+
+
+
+
+咩宝接到舰B工商了 👩感动哭了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 7257#       发表于 2020-5-20 20:10
+
+
+
+
+毕竟自己家的船
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7258#       发表于 2020-5-20 20:11
+
+
+
+
+碧蓝?方舟指令联动可能性上升了?
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 7259#       发表于 2020-5-20 20:11
+
+
+
+
+舰B不也就是造船<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 7260#       发表于 2020-5-20 20:11
+
+
+
+
+草，不能叫xp吧，只是喜欢这种颜色而已。
+
+xp和喜欢的颜色还是不同的，我就不喜欢pink，但是我觉得pink很色<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7261#       发表于 2020-5-20 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐牌面啊，可惜瓜游联动大概不太可能了（
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7262#       发表于 2020-5-20 20:12
+
+
+
+
+你咩姐想给自己送礼物还行，褥主播羊毛了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7263#       发表于 2020-5-20 20:12
+
+
+
+
+神乐mea想变粉色
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7264#       发表于 2020-5-20 20:12
+
+
+
+
+还想自己给自己送礼，是真的喜欢粉色啊
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7265#       发表于 2020-5-20 20:13
+
+
+
+
+睿叔叔怎么了
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 7266#       发表于 2020-5-20 20:14
+
+
+
+
+草，支付不了，b站还是不行，不支持海外支付？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7267#       发表于 2020-5-20 20:14
+
+
+
+
+不能给自己送礼草
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 7268#       发表于 2020-5-20 20:15
+
+
+
+
+所以有时候真的不能太在乎她愿不愿意，就像当年的字幕组她也是一口拒绝的，这种没坏处的活动直接强行安排比较好。要不然下次又要眼馋
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7269#       发表于 2020-5-20 20:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">睿叔叔赶紧安排一波主播自己给自己刷礼物的后台啊，哦已经有起飞币了，那没事了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7270#       发表于 2020-5-20 20:16
+
+
+
+
+没事，这次后悔下次就长记性了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7271#       发表于 2020-5-20 20:17
+
+
+
+
+不能变粉，咩咩叹气
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7272#       发表于 2020-5-20 20:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别刷英文了，咩咩怕
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7273#       发表于 2020-5-20 20:19
+
+
+
+
+英文不安です英文不安です英文不安です英文不安です英文不安です<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7274#       发表于 2020-5-20 20:19
+
+
+
+
+这个新提督结标点进去空间把我惊到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 7275#       发表于 2020-5-20 20:21
+
+
+
+
+话说今天打算做什么，杂谈？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7276#       发表于 2020-5-20 20:21
+
+
+
+
+草，这沟通延迟好高
+
+
+
+
+
+
+
+-----
+
+####  feyir  
+##### 7277#       发表于 2020-5-20 20:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，这个新提督在首页看到过，居然能在这里扯上关系
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7278#       发表于 2020-5-20 20:22
+
+
+
+
+艹又是个女粉，我酸了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7279#       发表于 2020-5-20 20:23
+
+
+
+
+结标记得是战吧的啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7280#       发表于 2020-5-20 20:24
+
+
+
+
+月色真美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7281#       发表于 2020-5-20 20:25
+
+
+
+
+这说的什么话，不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7282#       发表于 2020-5-20 20:26
+
+
+
+
+韩国味…<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7283#       发表于 2020-5-20 20:26
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-5-20 20:27 编辑 
+
+这还不如歪比歪比呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 7284#       发表于 2020-5-20 20:26
+
+
+
+
+不知道，今晚看起来是要杂谈了，但是也说了一开始根本想不到要做什么。虚无警告.jpg
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7285#       发表于 2020-5-20 20:27
+
+
+
+
+这中文有念经内味了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7286#       发表于 2020-5-20 20:27
+
+
+
+
+复读机拖时间，anti了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7287#       发表于 2020-5-20 20:27
+
+
+
+
+学韩文了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7288#       发表于 2020-5-20 20:28
+
+
+
+
+咩语翻译可还行
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 7289#       发表于 2020-5-20 20:28
+
+
+
+
+太虚无了（直球）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7290#       发表于 2020-5-20 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">直播间弱智浓度上升
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 7291#       发表于 2020-5-20 20:29
+
+
+
+
+真就复读啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7292#       发表于 2020-5-20 20:29
+
+
+
+
+该唱歌的啊，事业民anti了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 7293#       发表于 2020-5-20 20:29
+
+
+
+
+这就是传说中的学中文企划吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 7294#       发表于 2020-5-20 20:29
+
+
+
+
+她不会觉得自己很有意思吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7295#       发表于 2020-5-20 20:29
+
+
+
+
+草，我的中文这四个字学的好像
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7296#       发表于 2020-5-20 20:29
+
+
+
+
+10分钟后在打开直播间
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7297#       发表于 2020-5-20 20:29
+
+
+
+
+她当然觉得有意思了，你看翻译机都掏出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7298#       发表于 2020-5-20 20:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得还行
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7299#       发表于 2020-5-20 20:30
+
+
+
+
+法语，很奇妙吧
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7300#       发表于 2020-5-20 20:30
+
+
+
+
+草，上古时代的翻译机拿出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7301#       发表于 2020-5-20 20:30
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-20 20:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你麻要是认真学一次语言那就还是个可行的企划
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不行，太弱智了，退出5min保智商
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7302#       发表于 2020-5-20 20:30
+
+
+
+
+至少比B限看视频好吧
+
+
+顺劈一下高小姐
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 7303#       发表于 2020-5-20 20:31
+
+
+
+
+你咩又在说韩语  不要韩语 不要韩语<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 7304#       发表于 2020-5-20 20:31
+
+
+
+
+没啥区别，都是静音
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7305#       发表于 2020-5-20 20:31
+
+
+
+
+日本人眼里的中文发言是这样吗
+
+她还害羞了
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 7306#       发表于 2020-5-20 20:31
+
+
+
+
+我开始怀疑mea是在日朝鲜人了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7307#       发表于 2020-5-20 20:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7308#       发表于 2020-5-20 20:32
+
+
+
+
+不要韩国人不要韩国人不要韩国人
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 7309#       发表于 2020-5-20 20:32
+
+
+
+
+开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7310#       发表于 2020-5-20 20:32
+
+
+
+
+难道不是单纯她就想用那个调根本不好好学吗
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 7311#       发表于 2020-5-20 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47493149&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-20 20:30</a>
+
+至少比B限看视频好吧
+
+
+顺劈一下高小姐</blockquote>
+她要是真的愿意时不时看下粉丝做得二创，也不至于现在没人做她的二创了。不过我已经不是事业民了，所以没所谓
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7312#       发表于 2020-5-20 20:32
+
+
+
+
+烂活
+
+她不会以为她很懂财富密码吧？
+
+麻小姐是要高太尉化了吗？
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7313#       发表于 2020-5-20 20:32
+
+
+
+
+复刻了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7314#       发表于 2020-5-20 20:33
+
+
+
+
+咩姐这是在干啥。。。
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7315#       发表于 2020-5-20 20:33
+
+
+
+
+临时起意
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7316#       发表于 2020-5-20 20:33
+
+
+
+
+原来中文在霓虹人耳里听起来是这样的吗
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7317#       发表于 2020-5-20 20:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7318#       发表于 2020-5-20 20:33
+
+
+
+
+你是panda<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7319#       发表于 2020-5-20 20:34
+
+
+
+
+唱歌的时候请楼友说一下，先去逛会外野
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7320#       发表于 2020-5-20 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47493196&amp;ptid=1929631" target="_blank">pabier 发表于 2020-5-20 20:32</a>
+烂活
+
+她不会以为她很懂财富密码吧？
+
+麻小姐是要高太尉化了吗？</blockquote>
+你没看过18年的直播么？青椒肉丝，请给我钱都是这样来的啊
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7321#       发表于 2020-5-20 20:34
+
+
+
+
+老活重来……熊猫（？）还行
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7322#       发表于 2020-5-20 20:34
+
+
+
+
+那倒不至于
+
+
+想学别人整活整了烂活（×）
+
+想不出东西开始重复突然想到的一个灵感（√）
+
+估计今天还是被临时拉过来的吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7323#       发表于 2020-5-20 20:34
+
+
+
+
+我看照着念panda挺有意思啊
+
+虽然不知道为啥她要放日语发音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7324#       发表于 2020-5-20 20:35
+
+
+
+
+是不是有人急了急了急了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7325#       发表于 2020-5-20 20:35
+
+
+
+
+panda（胖了，迫真熊猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7326#       发表于 2020-5-20 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全员panda
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 7327#       发表于 2020-5-20 20:35
+
+
+
+
+成了，又多一个梗了
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 7328#       发表于 2020-5-20 20:35
+
+
+
+
+本来就是临时决定的b限，只要她自己觉得不尴尬就好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且按这弹幕互动密度，爱看这活的人还不少
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7329#       发表于 2020-5-20 20:36
+
+
+
+
+这是比喻不懂不要乱说（）
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7330#       发表于 2020-5-20 20:36
+
+
+
+<img src="https://p.sda1.dev/0/d94af3ac2efcf43c735a6dc88a01cc34/-142c722885ba5c5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7331#       发表于 2020-5-20 20:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你是panda，这不是挺好的吗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7332#       发表于 2020-5-20 20:37
+
+
+
+
+死宅当熊猫已经不错了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7333#       发表于 2020-5-20 20:37
+
+
+
+
+bsyl，你咩姐心意已决<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/20/203731sszz000pbnvupl8f.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200520203724.png</strong> (77.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-20 20:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7334#       发表于 2020-5-20 20:37
+
+
+
+
+什么鬼，死宅是panda
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7335#       发表于 2020-5-20 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47493232&amp;ptid=1929631" target="_blank">SNOWIMEA 发表于 2020-5-20 20:34</a>
+
+你没看过18年的直播么？青椒肉丝，请给我钱都是这样来的啊</blockquote>
+看过啊，之前学的也太烂了吧，就现在这个强行panda还行
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7336#       发表于 2020-5-20 20:38
+
+
+
+
+我是国宝了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7337#       发表于 2020-5-20 20:38
+
+
+
+
+承认坦克了哈哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7338#       发表于 2020-5-20 20:39
+
+
+
+
+暗示死宅应该是珍惜动物，应该对死宅过多的现象进行清理
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7339#       发表于 2020-5-20 20:39
+
+
+
+
+听起来是我很胖哒
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7340#       发表于 2020-5-20 20:39
+
+
+
+
+她终于承认自己很胖了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7341#       发表于 2020-5-20 20:39
+
+
+
+
+笑死我了
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 7342#       发表于 2020-5-20 20:39
+
+
+
+
+这不恨可爱吗，没觉得有什么问题啊
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7343#       发表于 2020-5-20 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">是坦克民的胜利
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7344#       发表于 2020-5-20 20:39
+
+
+
+
+虽然rz，不过debu实锤了不亏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7345#       发表于 2020-5-20 20:40
+
+
+
+
+嗨呀，杂谈，听不懂呀
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7346#       发表于 2020-5-20 20:40
+
+
+
+
+坦克民复活<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 7347#       发表于 2020-5-20 20:40
+
+
+
+
+虽然rz，但是接受设定以后意外的觉得还挺可爱的（
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7348#       发表于 2020-5-20 20:40
+
+
+
+
+自己说自己胖哒还行
+
+节目效果有了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7349#       发表于 2020-5-20 20:40
+
+
+
+
+她终于拿出了英语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说也不知道明天工商播哪个服
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7350#       发表于 2020-5-20 20:40
+
+
+
+
+可怜的咩被弹幕玩弄于👏之间
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7351#       发表于 2020-5-20 20:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">建议改成坦克楼，今天坦克民又胜利了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7352#       发表于 2020-5-20 20:41
+
+
+
+
+旧活新整<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还行
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 7353#       发表于 2020-5-20 20:41
+
+
+
+
+用的是women，不是girl。
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7354#       发表于 2020-5-20 20:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又视奸待机间版聊
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7355#       发表于 2020-5-20 20:42
+
+
+
+
+不是🐼楼吗
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 7356#       发表于 2020-5-20 20:42
+
+
+
+
+熊猫党今天成立了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+syl，谁来个“Just you know why”的沙雕二创<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7357#       发表于 2020-5-20 20:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">可爱，坦克
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7358#       发表于 2020-5-20 20:43
+
+
+
+
+别说了别说了，爱慕little girl了
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7359#       发表于 2020-5-20 20:43
+
+
+
+
+听说你是个可爱的小女孩.gif<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7360#       发表于 2020-5-20 20:44
+
+
+
+
+I'm a little girl
+
+草
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7361#       发表于 2020-5-20 20:44
+
+
+
+
+godmea
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7362#       发表于 2020-5-20 20:44
+
+
+
+
+little god<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7363#       发表于 2020-5-20 20:44
+
+
+
+
+变成萝莉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7364#       发表于 2020-5-20 20:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">meamea把设定忘拉
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 7365#       发表于 2020-5-20 20:45
+
+
+
+
+可爱的小女孩  韩国人   暗示刀哥套皮
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 7366#       发表于 2020-5-20 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/304.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7367#       发表于 2020-5-20 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">今晚限定用了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7368#       发表于 2020-5-20 20:45
+
+
+
+ 本帖最后由 十九号大侠 于 2020-5-20 20:46 编辑 
+
+刚刚那个是去厕所？为什么去厕所也要翻译
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7369#       发表于 2020-5-20 20:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7370#       发表于 2020-5-20 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7371#       发表于 2020-5-20 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7372#       发表于 2020-5-20 20:47
+
+
+
+
+这back念的什么玩意儿
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7373#       发表于 2020-5-20 20:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 7374#       发表于 2020-5-20 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">I B Back
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7375#       发表于 2020-5-20 20:48
+
+
+
+
+日语没有张嘴音么
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7376#       发表于 2020-5-20 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">怎么一直在bark的
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7377#       发表于 2020-5-20 20:48
+
+
+
+
+加拿大自爆兵
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7378#       发表于 2020-5-20 20:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7379#       发表于 2020-5-20 20:48
+
+
+
+
+等会厕所原来是这么叫的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7380#       发表于 2020-5-20 20:48
+
+
+
+
+真是丈育啊，日本宽松教育<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7381#       发表于 2020-5-20 20:48
+
+
+
+
+谢谢，有被笑到<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 7382#       发表于 2020-5-20 20:48
+
+
+
+
+不是看坛友发的我都不清楚她说的是back
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7383#       发表于 2020-5-20 20:48
+
+
+
+
+弱智换互动，一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+要不要安慰一下自己她就是个真弱智
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7384#       发表于 2020-5-20 20:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/007.png" referrerpolicy="no-referrer">
+
+back虽然口音不太准，但有种小凶（可爱）的感觉
+<img src="https://static.saraba1st.com/image/smiley/animal2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7385#       发表于 2020-5-20 20:49
+
+
+
+
+我将成为加拿大自爆兵
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7386#       发表于 2020-5-20 20:50
+
+
+
+
+唱了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7387#       发表于 2020-5-20 20:50
+
+
+
+
+突然就唱起来了
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7388#       发表于 2020-5-20 20:50
+
+
+
+
+突然唱歌<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7389#       发表于 2020-5-20 20:50
+
+
+
+
+终于转歌会了
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 7390#       发表于 2020-5-20 20:50
+
+
+
+
+跟阿三似的，讲着讲着就唱歌了（
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7391#       发表于 2020-5-20 20:50
+
+
+
+
+事业民 b back
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7392#       发表于 2020-5-20 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7393#       发表于 2020-5-20 20:51
+
+
+
+
+太降智了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+突然歌回<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7394#       发表于 2020-5-20 20:51
+
+
+
+
+这波有没有印度人内味，突然就唱起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 7395#       发表于 2020-5-20 20:51
+
+
+
+
+重新打开页面
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7396#       发表于 2020-5-20 20:51
+
+
+
+
+唱了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7397#       发表于 2020-5-20 20:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+这女人过于自由了
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 7398#       发表于 2020-5-20 20:51
+
+
+
+
+因为这歌bababa<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7399#       发表于 2020-5-20 20:52
+
+
+
+
+这弱智time不会是楼友教的吧？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7400#       发表于 2020-5-20 20:52
+
+
+
+
+bksn
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7401#       发表于 2020-5-20 20:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bababababake
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7402#       发表于 2020-5-20 20:53
+
+
+
+
+有个空耳是LV bag，笑死了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7403#       发表于 2020-5-20 20:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">该坦白了，其实我一直在幕后翻译你楼弱智time给她看
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7404#       发表于 2020-5-20 20:54
+
+
+
+
+唱歌中间不要加bug啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 7405#       发表于 2020-5-20 20:55
+
+
+
+
+她复读毛病是真的严重
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7406#       发表于 2020-5-20 20:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">bug中间连续唱歌还行
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7407#       发表于 2020-5-20 20:56
+
+
+
+
+今天这日子不唱首彗星蜜月说不过去啊（
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7408#       发表于 2020-5-20 20:57
+
+
+
+ 本帖最后由 离心 于 2020-5-20 20:59 编辑 
+
+今天看来是恋爱专属歌会了sylbuck连发真的有毒
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7409#       发表于 2020-5-20 20:58
+
+
+
+
+话说，我没看错的话，夏吹结束了，咩就转歌回了，感觉天狗被玩弄于猫爪之间
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7410#       发表于 2020-5-20 20:58
+
+
+
+
+脑子里没话是这样的（）毕竟好像最近日常生活的话题除了倾茶没啥好讲的
+
+
+弹幕又提供不了太多有效信息（20个字符发不了啥吧）
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7411#       发表于 2020-5-20 20:59
+
+
+
+
+果然来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7412#       发表于 2020-5-20 20:59
+
+
+
+
+又不是能一直降智的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过这人确实懂b限
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7413#       发表于 2020-5-20 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47493573&amp;ptid=1929631" target="_blank">鷹書たかしょ 发表于 2020-5-20 20:56</a>
+今天这日子不唱首彗星蜜月说不过去啊（</blockquote>
+来了
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7414#       发表于 2020-5-20 21:00
+
+
+
+<blockquote>鷹書たかしょ 发表于 2020-5-20 20:56
+今天这日子不唱首彗星蜜月说不过去啊（</blockquote>
+奶的好
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7415#       发表于 2020-5-20 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">来了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 7416#       发表于 2020-5-20 21:00
+
+
+
+
+意思是你咩播前也被狐皇用烟烫过?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7417#       发表于 2020-5-20 21:00
+
+
+
+
+难道不是正面硬刚老爱？
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7418#       发表于 2020-5-20 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">《位置》
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7419#       发表于 2020-5-20 21:03
+
+
+
+
+这歌懒散唱法感觉**的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7420#       发表于 2020-5-20 21:03
+
+
+
+
+王力宏真的来了
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7421#       发表于 2020-5-20 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">差点笑出声，真就刀哥俱乐部
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7422#       发表于 2020-5-20 21:03
+
+
+
+
+是你楼ptsd过的王力宏
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7423#       发表于 2020-5-20 21:03
+
+
+
+
+王力宏来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7424#       发表于 2020-5-20 21:03
+
+
+
+
+王力宏虽迟但到
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7425#       发表于 2020-5-20 21:03
+
+
+
+
+今晚够甜的啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7426#       发表于 2020-5-20 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">真的来了
+
+
+
+
+
+
+
+-----
+
+####  DDWarrior  
+##### 7427#       发表于 2020-5-20 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">今天这选曲......
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7428#       发表于 2020-5-20 21:04
+
+
+
+
+绊爱开了，咩姐再播一小时的话，能不能看到法兰西女王射杀始皇帝<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  闪刀姬  
+##### 7429#       发表于 2020-5-20 21:04
+
+
+
+
+可爱，想*
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7430#       发表于 2020-5-20 21:06
+
+
+
+
+奶声奶气的<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7431#       发表于 2020-5-20 21:07
+
+
+
+
+今天的主题是我爱你吗？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7432#       发表于 2020-5-20 21:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">等一个别人的女友
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7433#       发表于 2020-5-20 21:08
+
+
+
+
+到现在还念叨你那草莓牛奶呐
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7434#       发表于 2020-5-20 21:09
+
+
+
+
+还有两小时<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7435#       发表于 2020-5-20 21:10
+
+
+
+
+今晚播到11点？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+草，是日本时间啊
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 7436#       发表于 2020-5-20 21:10
+
+
+
+
+播到11点，在喝草莓牛奶（
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7437#       发表于 2020-5-20 21:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">因为正在喝的就是草莓牛奶，勃到东京11点
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7438#       发表于 2020-5-20 21:10
+
+
+
+
+只有一小时了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7439#       发表于 2020-5-20 21:10
+
+
+
+
+草，是东京11点啊
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 7440#       发表于 2020-5-20 21:12
+
+
+
+
+不愧是丈育<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7441#       发表于 2020-5-20 21:14
+
+
+
+ 本帖最后由 路人壬 于 2020-5-20 21:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">爱就是钱，钱就是爱
+
+
+所以爱小姐=钱小姐
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7442#       发表于 2020-5-20 21:15
+
+
+
+
+视爱情如粪土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 7443#       发表于 2020-5-20 21:15
+
+
+
+
+她这英语念的很像我这边的方言。。越听越出戏
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7444#       发表于 2020-5-20 21:16
+
+
+
+
+I love money
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7445#       发表于 2020-5-20 21:17
+
+
+
+
+说漏嘴了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7446#       发表于 2020-5-20 21:17
+
+
+
+
+十年哥…
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7447#       发表于 2020-5-20 21:17
+
+
+
+
+我是个缺爱的人
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7448#       发表于 2020-5-20 21:19
+
+
+
+
+为爱加班，福报说kana？
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7449#       发表于 2020-5-20 21:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">把自己都逗乐了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7450#       发表于 2020-5-20 21:20
+
+
+
+
+我在想，是不是因为日语形容词是由于动词分化的结果，导致每一次她总是用don't接上形容词(don't fat，don't 重い)
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  疾劲野风  
+##### 7451#       发表于 2020-5-20 21:20
+
+
+
+
+果然还是唱歌打钱多啊。。
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7452#       发表于 2020-5-20 21:20
+
+
+
+
+钱小姐xswl<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+成了中文名：钱自立
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7453#       发表于 2020-5-20 21:20
+
+
+
+
+我想要爱啊
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 7454#       发表于 2020-5-20 21:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">大爱无形 用钱表达就行了 
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7455#       发表于 2020-5-20 21:21
+
+
+
+
+刚才是在找歌吧，键盘噼里啪啦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7456#       发表于 2020-5-20 21:27
+
+
+
+
+mea也便乘了熊猫人
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7457#       发表于 2020-5-20 21:28
+
+
+
+
+熊猫党有吗
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 7458#       发表于 2020-5-20 21:28
+
+
+
+
+老爱也在panda<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7459#       发表于 2020-5-20 21:28
+
+
+
+
+你咩姐怎么变成pandaman
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7460#       发表于 2020-5-20 21:28
+
+
+
+
+还是聊不起来，日语浓度真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7461#       发表于 2020-5-20 21:28
+
+
+
+
+现在我们都是🐼人......
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7462#       发表于 2020-5-20 21:29
+
+
+
+
+omg u are pandaman human 是什么鬼
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7463#       发表于 2020-5-20 21:29
+
+
+
+
+弱智化，我笑了
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 7464#       发表于 2020-5-20 21:29
+
+
+
+
+pandaman people是smjb
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7465#       发表于 2020-5-20 21:29
+
+
+
+
+欧买尬，you are a 潘达满修门
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7466#       发表于 2020-5-20 21:30
+
+
+
+
+密码来了
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 7467#       发表于 2020-5-20 21:30
+
+
+
+
+今晚这是弱智time吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7468#       发表于 2020-5-20 21:30
+
+
+
+
+今晚太弱智了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7469#       发表于 2020-5-20 21:31
+
+
+
+
+为什么开始说神秘代码
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 7470#       发表于 2020-5-20 21:31
+
+
+
+
+太弱智了我要死了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 7471#       发表于 2020-5-20 21:31
+
+
+
+
+啥时候学会歪比巴卜了？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7472#       发表于 2020-5-20 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">歪比巴卜
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7473#       发表于 2020-5-20 21:31
+
+
+
+
+外币吧播开始了
+
+弱智化再放送
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7474#       发表于 2020-5-20 21:31
+
+
+
+
+我错了，歪比歪比太rz了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7475#       发表于 2020-5-20 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看来今天复读机坏了
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7476#       发表于 2020-5-20 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">脑子被如月吃掉的mea
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 7477#       发表于 2020-5-20 21:32
+
+
+
+
+还有半个小时，我看看她还能怎么混<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7478#       发表于 2020-5-20 21:32
+
+
+
+
+啥时候麻麻开一个清唱歌回啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7479#       发表于 2020-5-20 21:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">李在赣神魔
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 7480#       发表于 2020-5-20 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 来水时长呢?
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7481#       发表于 2020-5-20 21:33
+
+
+
+
+混 时 长
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 7482#       发表于 2020-5-20 21:33
+
+
+
+
+时隔一年 天狗没有任何长进 仍然随这吊人口胡 装蠢 弱智 发呆的时候疯狂打钱
+
+
+
+
+
+
+
+
+算了 我也去打一点
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 7483#       发表于 2020-5-20 21:34
+
+
+
+
+经典混时间<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 7484#       发表于 2020-5-20 21:34
+
+
+
+
+mea：不会真有人听不懂吧？不会吧不会吧不会吧
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 7485#       发表于 2020-5-20 21:34
+
+
+
+
+老爱在画熊猫，咩在边panda边歪比巴布
+
+
+四舍五入就是AIAIAI虚空联动了，我先灵能飞升一波<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7486#       发表于 2020-5-20 21:35
+
+
+
+
+天狗不背这锅
+
+
+B限弱智化专门挑这种时候反应激烈是国内环境的主要特征吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7487#       发表于 2020-5-20 21:36
+
+
+
+
+呜呜呜麻麻也搞rzrp了
+渐行渐远
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7488#       发表于 2020-5-20 21:36
+
+
+
+
+咩姐今天没准备，水点就水点吧，难得的solo
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7489#       发表于 2020-5-20 21:37
+
+
+
+
+是lol被人刷屏学会的，还是看爱丽丝b限学会的？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7490#       发表于 2020-5-20 21:37
+
+
+
+
+圆回来了，我还是没脱离她的手掌心
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7491#       发表于 2020-5-20 21:37
+
+
+
+
+二次元都喜欢nt.jpg
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 7492#       发表于 2020-5-20 21:37
+
+
+
+
+啊这，不是挺好，弱智的怪可爱的，这套路我吃了，官组收拾收拾剪剪应该能蹭上点啥热度⑧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7493#       发表于 2020-5-20 21:38
+
+
+
+
+lol吧。。。之前咩姐还让人别在聊天栏发
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7494#       发表于 2020-5-20 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|+2|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7495#       发表于 2020-5-20 21:42
+
+
+
+
+我更倾向于她在**可能也没太多可以聊的
+
+
+毕竟是个基本靠讲日常生活的选手
+
+
+
+
+
+
+
+-----
+
+####  若风之景  
+##### 7496#       发表于 2020-5-20 21:42
+
+
+
+
+新歌<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANE-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7497#       发表于 2020-5-20 21:45
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/6fa171a9f336a546c25b3b9fa41c0bc2/IMG_3F413CD62C76F8181193EF3D05B222FE.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7498#       发表于 2020-5-20 21:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可爱
+
+感觉今天的日子这氛围不发桃子好像没有很强的打钱欲望，打了100完事
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7499#       发表于 2020-5-20 21:46
+
+
+
+
+算可以啦<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">，看六月表现了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7500#       发表于 2020-5-20 21:48
+
+
+
+
+明天碧蓝航线多宣传一波好了，今儿个毫无欲望，再期盼一次ddd和bls并行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
