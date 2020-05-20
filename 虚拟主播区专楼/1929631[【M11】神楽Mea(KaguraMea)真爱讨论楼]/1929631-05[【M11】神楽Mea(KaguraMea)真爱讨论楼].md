@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-20 00:06** 
+> ## **本文件最后更新于2020-05-20 12:06** 
 
 
 
@@ -19542,4 +19542,738 @@ syl，然鹅最后的结果是并没有便乘共有财产<img src="https://stati
 
 
 
-            
+
+
+-----
+
+####  路人壬  
+##### 7112#       发表于 2020-5-20 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">共享咩阿计划跟这个差别还是蛮大的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7113#       发表于 2020-5-20 00:10
+
+
+
+[https://www.bilibili.com/blackbo ... d6f5267797a4d6b32.1](https://www.bilibili.com/blackboard/live/activity-CByCSEWSf.html?spm_id_from=888.12023.b_4d446d6f5267797a4d6b32.1)
+
+
+520活动页面出来了，辣个自由的旅人怕不是要玩突击<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7114#       发表于 2020-5-20 00:16
+
+
+
+
+这20号晚上从19点到23点安排的满满当当，中间甚至还有互相撞的，到底有没有阿咩b限感觉有点存疑了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7115#       发表于 2020-5-20 00:28
+
+
+
+
+这种噱头节日有什么过得必要吗？她就是鸽了我也会很开心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7116#       发表于 2020-5-20 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她214都播的不来劲，这520直接请假了也是有可能的
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7117#       发表于 2020-5-20 00:32
+
+
+
+
+物化女性，建议女👊🏻警告
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7118#       发表于 2020-5-20 00:32
+
+
+
+
+520晚上石油佬们不去陪女朋友，来你阿b这看虚拟人连播？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+单身穷逼宅宅榨不出几滴油水
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7119#       发表于 2020-5-20 00:33
+
+
+
+
+别问,没有计划就是计划(
+
+
+
+
+
+
+
+-----
+
+####  uuuuu7  
+##### 7120#       发表于 2020-5-20 00:36
+
+
+
+
+yysy，我爱你怎么看都是谐音成521比520更靠近吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">发明这节日的人怎么想的
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7121#       发表于 2020-5-20 00:40
+
+
+
+
+万恶的资本家管你这些，只是促进消费的噱头而已没差的
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 7122#       发表于 2020-5-20 00:42
+
+
+
+
+她可没有说死自己是520播，521也有可能。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7123#       发表于 2020-5-20 00:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">说不定这几天都不播
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7124#       发表于 2020-5-20 00:43
+
+
+
+
+然鹅这个公告写的是4天的直播安排，其中没有任何mea相关（
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 7125#       发表于 2020-5-20 00:43
+
+
+
+
+唯一确定的就是她说的这周有B限，后来另一场被猜到也只是惊讶观众为什么知道，但没有说就是520B限。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7126#       发表于 2020-5-20 00:47
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-20 00:49 编辑 
+
+几天也不可能就那几个，应该就是一部分吧，要我说这种b限随便搞搞得了，打打块或者osu啥的它不香么，谁去发发推说阿b也爱看osu的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7127#       发表于 2020-5-20 00:51
+
+
+
+
+阿b播osu可能也会撞上版权问题，之前不是有人说阿b也不让播的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，
+
+看了下剪辑（[https://b23.tv/v016O3](https://b23.tv/v016O3)），感觉她说的还是蛮斩钉截铁的，这波怕不是阿b没写在公告里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7128#       发表于 2020-5-20 00:54
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-20 01:00 编辑 
+
+mea在阿b吸金业务不力，已经不配在公告里有姓名了
+
+或者换一个：人生休憩的重量，够不够咕四天直播？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">算了太沙雕了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7129#       发表于 2020-5-20 00:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">阿b的要求她应该还是不敢随便咕，毕竟是工作，可能是没定下具体时间
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7130#       发表于 2020-5-20 00:59
+
+
+
+
+请回顾bls<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">全时段突击.JPG
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 7131#       发表于 2020-5-20 01:10
+
+
+
+
+这不打一波舞元的拳吗 也太物化了8<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人壬  
+##### 7132#       发表于 2020-5-20 01:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等着看麻将联动里她自己打不打拳吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 7133#       发表于 2020-5-20 01:42
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-20 02:02 编辑 
+
+yhm怎么会👊🏻，不被家暴就不错了 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7134#       发表于 2020-5-20 01:44
+
+
+
+
+明天应该就是没有吧,可能突击下?我觉得突击可能性也不大,对她也不是什么重要日子或者活动
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7135#       发表于 2020-5-20 04:04
+
+
+
+
+那天听她自己的意思应该是有的，等着就是了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7136#       发表于 2020-5-20 05:58
+
+
+
+
+管子16w了
+
+最近势头挺猛的,不播也能涨
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7137#       发表于 2020-5-20 07:45
+
+
+
+
+看了下nga，舞元在联动的时候说要把咩姐当赌注，气冷抖
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 7138#       发表于 2020-5-20 08:43
+
+
+
+
+确定是今天b限吗 你咩姐那天有明确说520b限吗
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7139#       发表于 2020-5-20 10:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚睿站各路装甲车撞得头破血流，甚至始皇帝都来了。而我们的法兰西领袖还处于播与不播的薛定谔状态
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7140#       发表于 2020-5-20 10:05
+
+
+
+
+没有吧，只说这周有b限。是不是520都是另一回事，看同传好像是阿b想要让她在520播，但她自己没说要不要在今天播
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7141#       发表于 2020-5-20 10:06
+
+
+
+
+今晚就避战吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太惨烈了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 7142#       发表于 2020-5-20 10:11
+
+
+
+
+昨天在哈弟那露了一下头，早上饭盒一万档，除此以外一动不动，俺寻思麻将开不开台都是未知数，b限那是奢望，可能真的给人生放假了⑧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7143#       发表于 2020-5-20 10:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本才解除紧急状态，她会不会选择出门疯几天
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 7144#       发表于 2020-5-20 10:20
+
+
+
+
+别吧……她要是出门的话那我血压又要高了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 7145#       发表于 2020-5-20 10:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">阿咩，治疗低血压滴神
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 7146#       发表于 2020-5-20 10:22
+
+
+
+
+你咩姐这么怂的人必不可能出门
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 7147#       发表于 2020-5-20 10:22
+
+
+
+
+为啥要出猜一只小野猫的行动
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7148#       发表于 2020-5-20 10:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说不定是别人邀她出去玩，她应该憋坏了
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7149#       发表于 2020-5-20 10:32
+
+
+
+
+今天没人P结婚证吗（
+
+
+观民政局排队人群有感
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7150#       发表于 2020-5-20 10:49
+
+
+
+
+不要出门不要出门不要出门<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7151#       发表于 2020-5-20 11:06
+
+
+
+
+只有咩姐没开台的麻将<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7152#       发表于 2020-5-20 11:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么又开始奇酷比了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7153#       发表于 2020-5-20 11:33
+
+
+
+
+hhhh大牌被mea断了。
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7154#       发表于 2020-5-20 11:51
+
+
+
+
+舞元最大的好处就是有个直播间。
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7155#       发表于 2020-5-20 11:59
+
+
+
+
+开心就好啊
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7156#       发表于 2020-5-20 12:04
+
+
+
+
+草，被雀魂发牌姬守护的女人。
+
+
+
+
+
+           
