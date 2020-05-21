@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-17 00:01** 
+> ## **本文件最后更新于2020-05-21 14:01** 
 
 
 
@@ -18921,7 +18921,7 @@ syl，那个小剧场挺好玩的
 
 
 151836ykl35zwk3mq3j3k1.jpg
-(30.99 KB, 下载次数: 0)
+(30.99 KB, 下载次数: 1)
 
 
 
@@ -19734,4 +19734,911 @@ mk2现在靠附体大法不好砍头挺麻烦的，得把他真身引出来
 
 
 
-             
+
+
+-----
+
+####  Unlimited290  
+##### 4084#       发表于 2020-5-17 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47446565&amp;ptid=1914314" target="_blank">2014720 发表于 2020-5-16 23:59</a>
+阿b这种究极数字厨早就黄金周就看出当年的最强卡组不行了，怎么可能是联动
+
+mk2现在靠附体大法不好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4085#       发表于 2020-5-17 14:24
+
+
+
+
+我来想剧情。日本解封之后阿b决定安排六字母线下b限吸血，但是两人不想线下。于是开视频尬演，大亏演技不好被抓包，六字母中国炎上，暗黑贴贴人增多。大亏404恰到安慰钱。两个人走平行线。这时候大亏b站订阅也超咩了，用不着引流。再过段时间又突击b限贴贴，互相道歉解释原因，再来一波向日葵。于是贴贴人获得重生，吸血谣言不攻自破，sc拉到满，六字母还是t0卡组，泥潭也有了kpi，阿b拿到了分成。受伤的只有咩咩。阿b，永远的神。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 4086#       发表于 2020-5-17 14:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看去年雀魂lol工商，再看看这日子安排B限，阿睿果然是立派功利人
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 4087#       发表于 2020-5-17 14:57
+
+
+
+
+还搁这线下呢，去年要是按原计划过夜了，夸估计要被黑3p黑到现在<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+总不能要求别人牺牲自己来给你输血吧
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 4088#       发表于 2020-5-17 15:00
+
+
+
+
+所有人都能幸福的世界又完成了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4089#       发表于 2020-5-17 15:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea能不能觉悟一点啊，一脚把夸皇给踹了。我就舒服了。
+
+
+
+
+
+
+
+-----
+
+####  纯良天狗  
+##### 4090#       发表于 2020-5-17 15:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47451847&amp;ptid=1914314" target="_blank">Unlimited290 发表于 2020-5-17 15:04</a>
+mea能不能觉悟一点啊，一脚把夸皇给踹了。我就舒服了。</blockquote>
+有被笑到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+别人早就一脚把你麻踹开了，自己爬回去舔的夸夸脚，天狗们到底有没有点自知之明
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4091#       发表于 2020-5-17 15:23
+
+
+
+
+虽然小博禹是个nt，但是我觉得他这句话说得没错(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 4092#       发表于 2020-5-18 15:22
+
+
+
+
+qs 阿咩自己舔大亏jio 又何谈踹开大亏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 4093#       发表于 2020-5-18 16:49
+
+
+
+
+谁踹谁我觉得应该有点b数，哪边比较舔不会有人看不出来吧，不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4094#       发表于 2020-5-18 16:58
+
+
+
+
+啊
+
+
+
+
+
+
+TIM图片20200518165716.jpg
+(15.6 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-18 16:57 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/18/165753ca0pl4hk4ai0irit.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4095#       发表于 2020-5-20 19:30
+
+
+
+
+东京湾核爆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+谁tm想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 4096#       发表于 2020-5-20 19:32
+
+
+
+
+发生啥了啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4097#       发表于 2020-5-20 19:33
+
+
+
+ 本帖最后由 A2014720 于 2020-5-20 19:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47492435&amp;ptid=1914314" target="_blank">龙魂绯影 发表于 2020-5-20 19:32</a>
+发生啥了啊</blockquote>
+夏吹有人刷东京湾核爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，笑出声
+
+<img src="https://p.sda1.dev/0/e66b325223025d4f9f8d85bc34fb0dc7/IMG_EEC5EF8DFC943ED393BED59D91E42B9B.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 4098#       发表于 2020-5-20 19:33
+
+
+
+
+草，怎么还有人觉得是你mea去舔的大亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说了是大亏来找她联动的有多少回来着
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 4099#       发表于 2020-5-20 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47492447&amp;ptid=1914314" target="_blank">A2014720 发表于 2020-5-20 19:33</a>
+夏吹有人刷东京湾核爆，笑出声</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这有啥联系啊
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4100#       发表于 2020-5-20 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47492460&amp;ptid=1914314" target="_blank">龙魂绯影 发表于 2020-5-20 19:34</a>
+这有啥联系啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许是本子核爆ptsd
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 4101#       发表于 2020-5-20 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47492468&amp;ptid=1914314" target="_blank">草牛 发表于 2020-5-20 19:34</a>
+也许是本子核爆ptsd</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么一想这梗对日本人还挺emmm的
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 4102#       发表于 2020-5-21 00:21
+
+
+
+
+这波520限定是好活烂活？梁木人和贴贴人各自评价一下？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4103#       发表于 2020-5-21 00:22
+
+
+
+
+真正的黑暗贴贴人 aqua
+mk2学着点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a772803314  
+##### 4104#       发表于 2020-5-21 00:23
+
+
+
+
+贴贴人表示至少部分黑屁不攻自破了，最后的害羞也是恰到好处，有些期待meaqua下次联动。
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 4105#       发表于 2020-5-21 00:24
+
+
+
+
+只能评价圣皇业务水平着实不错 敬业先锋
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 4106#       发表于 2020-5-21 00:25
+
+
+
+
+好活<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 4107#       发表于 2020-5-21 00:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要恰饭的嘛
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4108#       发表于 2020-5-21 11:55
+
+
+
+
+这表演生硬程度怕不是阿b的指标(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4109#       发表于 2020-5-21 11:59
+
+
+
+
+大亏在推特宣传b限了？
+
+
+按照我的不可靠印象， 她好像一般不宣传？ 这回有什么要特意宣传的理由吗？
+
+
+难道以后要开始都在推特宣传？（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 4110#       发表于 2020-5-21 12:03
+
+
+
+
+可能是因为昨天有贴贴吧。啊什么大亏每次b限都有贴贴啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4111#       发表于 2020-5-21 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定是木口中国炎上ptsd
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 4112#       发表于 2020-5-21 12:05
+
+
+
+
+翻页
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 4113#       发表于 2020-5-21 12:05
+
+
+
+
+真就云天狗，几乎每次b限推特都有宣传<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4114#       发表于 2020-5-21 12:08
+
+
+
+
+???  几乎都有宣传？？？
+
+
+那我要生梁木了
+
+
+为什么meaqua贴贴b限没宣传！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4115#       发表于 2020-5-21 12:09
+
+
+
+
+看repo很多跟过来的本土新粉都是第一次知道这个pv的存在，目的达到了
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 4116#       发表于 2020-5-21 12:18
+
+
+
+
+mea单台宣传个屁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 4117#       发表于 2020-5-21 12:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">什么目的?为下一次404的meaqua探路??
+
+
+
+
+
+
+
+-----
+
+####  TioPlato  
+##### 4118#       发表于 2020-5-21 12:22
+
+
+
+
+对对对，该准备吸咩咩油管的血了，圣皇真是太可恶了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4119#       发表于 2020-5-21 12:23
+
+
+
+
+目的就是捞一把当初参与做的pv呗，不都特意提是2019年6月28投稿的了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 4120#       发表于 2020-5-21 12:29
+
+
+
+
+吸血论祸害无穷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+阿夸可能不懂人心，但大亏真的懂市场<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 4121#       发表于 2020-5-21 12:32
+
+
+
+
+我要是阿咩，就赶紧抓住这个机会吸一波血<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 4122#       发表于 2020-5-21 12:39
+
+
+
+
+反正快到mea两周年了，拭目以待吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 4123#       发表于 2020-5-21 12:44
+
+
+
+
+捞去年的说明今年没有了啊，你们二刷一下得了
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 4124#       发表于 2020-5-21 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47500420&amp;ptid=1914314" target="_blank">暗心舞踏 发表于 2020-5-21 12:44</a>
+捞去年的说明今年没有了啊，你们二刷一下得了</blockquote>
+就不能是暗示今年的也在路上了吗
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 4125#       发表于 2020-5-21 12:50
+
+
+
+
+不过到现在还没有字幕组的大佬跑出来  “肉猪肉猪”“你们根本不懂他们私下有多真”，可能今年真的没有私联糖了<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影2号机  
+##### 4126#       发表于 2020-5-21 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47500513&amp;ptid=1914314" target="_blank">第四惑星 发表于 2020-5-21 12:50</a>
+不过到现在还没有字幕组的大佬跑出来  “肉猪肉猪”“你们根本不懂他们私下有多真”，可能今年真的没有私联 ...</blockquote>
+昨天看的有个第四惑星的号还在想是干嘛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来也是小博鱼啊@矢吹奈子
+奈子出来干活了，继续一换一
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 4127#       发表于 2020-5-21 12:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们要换就一换一啊别又整个多换一，不值当
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 4128#       发表于 2020-5-21 13:01
+
+
+
+
+感觉被欺凌了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不能你们说要换就换
+
+大家都是小麻的狗，为什么要互相咬呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 4129#       发表于 2020-5-21 13:02
+
+
+
+
+都是小麻的错，不仅贴贴拉垮，养  狗狗都养不好<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| U2FsdGVk|-1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 4130#       发表于 2020-5-21 13:06
+
+
+
+ 本帖最后由 Unlimited290 于 2020-5-21 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47496190&amp;ptid=1914314" target="_blank">A2014720 发表于 2020-5-21 00:22</a>
+真正的黑暗贴贴人 aqua
+mk2学着点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+臭女人出来演个戏就把你们骗到了你们行不行啊。你们该不会以为是真情实感吧。
+两个人别的不说，先在推特上互动一下再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小禹博  
+##### 4131#       发表于 2020-5-21 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47500634&amp;ptid=1914314" target="_blank">第四惑星 发表于 2020-5-21 13:01</a>
+
+感觉被欺凌了不能你们说要换就换
+
+
+大家都是小麻的狗，为什么要互相咬呢 ...</blockquote>
+你号真多啊，一天一个？
+
+小博禹，火车王
+[@矢吹奈子](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=503117) 
+
+青天大老爷，求求你让我换了他吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 4132#       发表于 2020-5-21 13:58
+
+
+
+
+404我就只记得一个俩人apex你麻问小凜胖次颜色那个剪辑最近播放暴增，其他有lzm元素的播放也在增加，可能五岁功利闻到气息了吧
+
+
+syl，看到贴吧又有人发牢骚我就知道又有特供贴贴了，小麻虽懂b限，但确实不如圣皇有手段，这波呀，是青梅煮酒论咩夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+            

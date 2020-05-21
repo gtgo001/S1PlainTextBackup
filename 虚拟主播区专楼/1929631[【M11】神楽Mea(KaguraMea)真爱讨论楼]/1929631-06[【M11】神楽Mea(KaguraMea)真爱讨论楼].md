@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-21 10:04** 
+> ## **本文件最后更新于2020-05-21 14:05** 
 
 
 
@@ -3788,4 +3788,595 @@ https://t.bilibili.com/391541626867893896?share_medium=android&amp;share_plat=an
 
 
 
-                                          
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7716#       发表于 2020-5-21 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47497226&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-5-21 03:05</a>
+
+只要所有号都封完了，v区就没有工作需要版主做了，版主摸鱼大成功</blockquote>
+版主不想管你们v豚间的破事，版主只想劈里噼里v圈占领大成功/（对奶子哥印象还好不说了）/安安静静和小伙伴舔机娘大腿，你们v豚天天这样逼逼来逼逼去的，烦死了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuandi0120| + 2|草|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7717#       发表于 2020-5-21 11:09
+
+
+
+
+mea在B站更新直播时间表了，这是心血来潮？
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7718#       发表于 2020-5-21 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47499339&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-21 11:09</a>
+
+mea在B站更新直播时间表了，这是心血来潮？</blockquote>
+就更新了一个雀魂联动，合理分析是工商需要
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 7719#       发表于 2020-5-21 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47498444&amp;ptid=1929631" target="_blank">HinataY 发表于 2020-5-21 09:40</a>
+这……怕不是苔苔搭的桥
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+苔苔把多少yhm都毁了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 7720#       发表于 2020-5-21 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">阿咩最近在b站怎么给我一种垫脚石的感觉，观豆虫有感
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7721#       发表于 2020-5-21 11:30
+
+
+
+
+你咩不一直都是垫脚石？404也好国服也好，多少人不是摸着麻酱过河？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7722#       发表于 2020-5-21 11:30
+
+
+
+
+你咩的时代早过去了,现在大伙都爱看散装睿化yhm<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  feyir  
+##### 7723#       发表于 2020-5-21 11:32
+
+
+
+
+不一直都是垫脚石吗，火就是这种也就你们下等人喜欢，她都能过xxx为什么不火，天龙人（指日本人）都不喜欢这种也就你们喜欢，不火就是过过气了，凉了，果然还是xxx好
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7724#       发表于 2020-5-21 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47499550&amp;ptid=1929631" target="_blank">十九号大侠 发表于 2020-5-21 11:27</a>
+
+阿咩最近在b站怎么给我一种垫脚石的感觉，观豆虫有感</blockquote>
+以前是时代背景原因机缘巧合当了冠军，现在时代变了，佛系佛系
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 7725#       发表于 2020-5-21 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47499579&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-21 11:30</a>
+你咩不一直都是垫脚石？404也好国服也好，多少人不是摸着麻酱过河？</blockquote>
+用麻酱的平板搭桥吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">太恶毒了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 7726#       发表于 2020-5-21 11:55
+
+
+
+
+前人栽树，后人乘凉。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7727#       发表于 2020-5-21 11:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/21/115709x52e9e7x22ei2xaa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EYTrNxpWsAAoYcJ.jpg</strong> (1000.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-21 11:57 上传
+
+
+
+
+
+
+[https://twitter.com/kuzumachixxx/status/1262392754455314442](https://twitter.com/kuzumachixxx/status/1262392754455314442)
+
+
+说来僵尸妈这张之前转过吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7728#       发表于 2020-5-21 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Flamingo又发了一遍
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7729#       发表于 2020-5-21 12:09
+
+
+
+
+万万没想到，暗示阿咩自制不行，点赞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7730#       发表于 2020-5-21 12:11
+
+
+
+
+不是又发一遍，是二创联合投稿<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7731#       发表于 2020-5-21 12:12
+
+
+
+
+flamingo那个pv咩姐摇头晃脑是挺可爱的，但和歌有点不符，这个pv做的挺好的，之前还看到作者在动态找后期
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7732#       发表于 2020-5-21 12:16
+
+
+
+
+又要开始鞭尸774了吗
+
+  
+
+mea+774，不行
+
+
+mea+有能后期，可以
+
+
+太anti了，我喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7733#       发表于 2020-5-21 12:17
+
+
+
+
+很神奇，pv里面没字幕，外面也没有。这是要反补**或者推特？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7734#       发表于 2020-5-21 12:22
+
+
+
+
+优质pv多多益善，反哺频道我看靠谱（
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 7735#       发表于 2020-5-21 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47499832&amp;ptid=1929631" target="_blank">雪代suzuno 发表于 2020-5-21 11:55</a>
+前人栽树，后人乘凉。
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+栽树人mea
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7736#       发表于 2020-5-21 12:25
+
+
+
+
+pv厉害啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7737#       发表于 2020-5-21 12:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">卡古拉没牙人称小井皇
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7738#       发表于 2020-5-21 12:34
+
+
+
+
+那得mea+一个有自己判断的后期mix才行
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7739#       发表于 2020-5-21 12:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这pv我好的不行
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7740#       发表于 2020-5-21 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47500086&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-21 12:16</a>
+
+又要开始鞭尸774了吗
+
+  
+
+mea+774，不行</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/21/124509zcspv8pj1s8przzu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200521-124428.jpg</strong> (17.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-21 12:45 上传
+
+
+
+
+
+友情提示
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 7741#       发表于 2020-5-21 12:57
+
+
+
+ 本帖最后由 Urystal 于 2020-5-21 13:22 编辑 
+
+草，这mix?<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+还没看呢，我还以为有人起个774的名字重新混的，那没事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7742#       发表于 2020-5-21 12:59
+
+
+
+
+因为整个音频部分是直接用的原来那个
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7743#       发表于 2020-5-21 12:59
+
+
+
+
+直接把原曲拿来用了而已，这有啥好奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 7744#       发表于 2020-5-21 13:01
+
+
+
+
+pv不错
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过我感觉被她最近萌音唱歌洗脑太多了，完全听不出来这个是mea唱的，还特地回去原投稿对比还是没听出来。。。
+
+然后发现原投稿点击和粉丝数差点一比一诶。。
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 7745#       发表于 2020-5-21 13:10
+
+
+
+
+不行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 7746#       发表于 2020-5-21 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47500720&amp;ptid=1929631" target="_blank">likemike 发表于 2020-5-21 13:10</a>
+不行
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+不许说不行，咩咩干什么都是最棒的<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         
