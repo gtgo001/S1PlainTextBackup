@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-21 20:04** 
+> ## **本文件最后更新于2020-05-21 22:08** 
 
 
 
@@ -6979,4 +6979,625 @@ https://twitter.com/SongjiangCC/status/1263422633330085888
 
 
 
-                                    
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7898#       发表于 2020-5-21 20:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47505216&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-21 19:52</a>
+
+看了一眼flamingo网页端推荐，咩姐本人的视频就几个，还不在前面，难得上了一次首页 ...</blockquote>
+这就很怪，印象中以前多是她自己的视频，睿国算法真的搞事情
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7899#       发表于 2020-5-21 20:08
+
+
+
+
+猫咕了bl，不知道咩还播不播
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 7900#       发表于 2020-5-21 20:10
+
+
+
+
+楼友们真有活力啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+小麻一个未成年yhm怎么就还不如你们这些老男人能折腾呢
+
+
+
+
+
+
+
+-----
+
+####  第四惑星  
+##### 7901#       发表于 2020-5-21 20:12
+
+
+
+
+哦<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">忘记楼友们都没有女朋友了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| h1001010|-1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7902#       发表于 2020-5-21 20:15
+
+
+
+
+今晚没了 
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7903#       发表于 2020-5-21 20:15
+
+
+
+
+貌似是日服那边在维护。。。明天正常播
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 7904#       发表于 2020-5-21 20:16
+
+
+
+
+发b博了，应该是改到明天了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7905#       发表于 2020-5-21 20:17
+
+
+
+
+延期，明天真的能播吗<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7906#       发表于 2020-5-21 20:19
+
+
+
+
+?嗯?明天不会猫猫大亏一起撞吧?
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7907#       发表于 2020-5-21 20:20
+
+
+
+
+应该不是开会的原因了吧（话说明天还要继续加大撞车力度吗）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7908#       发表于 2020-5-21 20:22
+
+
+
+
+管他谁播呢，撞tm的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+批站这怎么安排的，扣工资啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7909#       发表于 2020-5-21 20:22
+
+
+
+
+夸播的时间是19:00，serena不知道什么时候播，咩姐是21:00播，如果没提及让房管加大力度就好
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7910#       发表于 2020-5-21 20:23
+
+
+
+
+反正工商费该付的付了，SC什么的随意了，撞车效果下降（真的吗）是阿B工作人员自己挨骂
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7911#       发表于 2020-5-21 20:25
+
+
+
+
+不，是本来会在夸那刷的rz小鬼跑到咩姐这刷，明天如果官号能转播填字游戏最好再管管传话太监
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7912#       发表于 2020-5-21 20:25
+
+
+
+
+あと以前投稿したFLAMINGOのMVがリメイクされたものが公式チャンネルにアップされたので見てね！！！！！！！！！！！！！！！！！
+めあもちょっと前に翻訳組の方から報告もらって投稿されるのすっごい楽しみにしてた！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+制作してくれた方たちもお疲れ様でした！！！！
+めっちゃすごい！！！！！！！！！！！
+から見て！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7913#       发表于 2020-5-21 20:27
+
+
+
+
+看动态说是日服维护的原因？b限播日服舰b<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7914#       发表于 2020-5-21 20:28
+
+
+
+
+填字游戏是在如月频道，你咩这种签约的都没法转播，你觉得如月那里能转吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7915#       发表于 2020-5-21 20:29
+
+
+
+
+睿站会限制到什么时候啊，开完吗？那得十天吧(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7916#       发表于 2020-5-21 20:30
+
+
+
+
+填字游戏不能转播吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7917#       发表于 2020-5-21 20:31
+
+
+
+<blockquote>暗心舞踏 发表于 2020-5-21 20:28
+填字游戏是在如月频道，你咩这种签约的都没法转播，你觉得如月那里能转吗 ...</blockquote>
+如月是有签约的吧。。。有OFFICIAL，b站收益也能正常拿。不过这个形势转播是不大可能
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7918#       发表于 2020-5-21 20:32
+
+
+
+
+一般是头两天吧，而且这次两会好像缩时间了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+省一楼，猫猫之前说的是今天21点，延期大概也是明天21点，撞使劲撞<img src="https://static.saraba1st.com/image/smiley/animal2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7919#       发表于 2020-5-21 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47505716&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-21 20:31</a>
+如月是有签约的吧。。。有OFFICIAL，b站收益也能正常拿。不过这个形势转播是不大可能 ...</blockquote>
+official和签约是两码事，反正最近除了b限外都没得转播了
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 7920#       发表于 2020-5-21 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47505716&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-21 20:31</a>
+如月是有签约的吧。。。有OFFICIAL，b站收益也能正常拿。不过这个形势转播是不大可能 ...</blockquote>
+如月也有签约吗？好像看号上没有黄色的认证标志啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7921#       发表于 2020-5-21 20:35
+
+
+
+
+忘了好像啥认证好像只要粉丝够了再申请认证就能搞
+签约是另外一回事吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7922#       发表于 2020-5-21 20:36
+
+
+
+
+不清楚了，我是根据建号、b限频率推测的。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7923#       发表于 2020-5-21 20:40
+
+
+
+
+签约了会写明是b站签约主播吧<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7924#       发表于 2020-5-21 20:53
+
+
+
+
+看了下，holostar的b限在播啊，是b限就可以播吧，那和之前的一次一样啊
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 7925#       发表于 2020-5-21 20:59
+
+
+
+
+那明天应该没问题了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 7926#       发表于 2020-5-21 21:06
+
+
+
+
+犬山不是在转播么，都怂个P是字幕组的问题
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7927#       发表于 2020-5-21 21:10
+
+
+
+
+草，还真在转，这波是自我阉割吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 7928#       发表于 2020-5-21 21:10
+
+
+
+
+holostars的阿尔兰蒂斯在播b限
+
+
+犬山那开转播了还全体禁言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7929#       发表于 2020-5-21 21:13
+
+
+
+
+那咱还是不要转了，免得落人话柄
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 7930#       发表于 2020-5-21 21:15
+
+
+
+ 本帖最后由 草牛 于 2020-5-21 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定要开全体禁言，不开的后果就是，不是不能转播吗→为什么不能转播→两会→政治→被ban
+syl，不能转播会通知你咩姐的，转不转这个问题我觉得至少你咩姐的字幕组做不了主
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7931#       发表于 2020-5-21 21:15
+
+
+
+
+污妖王 污妖王<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7932#       发表于 2020-5-21 21:39
+
+
+
+
+是流星出来干活的时间了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7933#       发表于 2020-5-21 21:41
+
+
+
+
+话说今晚还有预订么
+
+
+
+
+
+                                   
