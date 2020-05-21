@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-21 18:08** 
+> ## **本文件最后更新于2020-05-21 20:04** 
 
 
 
@@ -4932,8 +4932,9 @@ mea已经过气了 555555
 
 
 
+ 本帖最后由 IrisL 于 2020-5-21 18:31 编辑 
 
-来点阴谋论，猫猫要证明谁才是睿国第一vtuber
+1
 
 
 
@@ -4979,8 +4980,9 @@ mea已经过气了 555555
 
 
 
+ 本帖最后由 IrisL 于 2020-5-21 18:31 编辑 
 
-什么？睿国第一vtuber不是我夸皇，猫猫吹jb
+2
 
 
 
@@ -5109,8 +5111,9 @@ mea已经过气了 555555
 
 
 
+ 本帖最后由 IrisL 于 2020-5-21 18:32 编辑 
 
-？v区都是谁在c看不出来吗？都是云人
+3
 
 
 
@@ -5147,4 +5150,1833 @@ mea已经过气了 555555
 
 
 
-                                        
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7794#       发表于 2020-5-21 18:09
+
+
+
+
+“诶小黄鸡你们想找花园猫做工商啊，你看这个价格怎么样？太贵了？要不这样吧，我这边加一个神乐mea，还是这个价，再加个两成，你看怎么样？对对对就是去年挺火的那个，好好好就这么定了。“
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7795#       发表于 2020-5-21 18:10
+
+
+
+ 本帖最后由 IrisL 于 2020-5-21 18:32 编辑 
+
+4
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7796#       发表于 2020-5-21 18:11
+
+
+
+
+春之猫帝？ <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7797#       发表于 2020-5-21 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47503786&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-21 18:02</a>
+你楼又开始弱智了这么爱念叨这些给自己洗脑，昨天猫猫收入倍杀你mea，夸皇互动人数倍杀你mea，不停 ...</blockquote>
+为什么会这样没点逼数吗？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7798#       发表于 2020-5-21 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47503910&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-21 18:11</a>
+为什么会这样没点逼数吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得原因就在于不好好看直播
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 7799#       发表于 2020-5-21 18:12
+
+
+
+
+yysy花园猫是真的让字幕组当p了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而且运气好配合的很不错
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7800#       发表于 2020-5-21 18:15
+
+
+
+ 本帖最后由 IrisL 于 2020-5-21 18:32 编辑 
+
+5
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 专业划水人员|-1|别弱智了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7801#       发表于 2020-5-21 18:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">应该不是我带起的节奏吧，我就随口一说没打算斗 算了算了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7802#       发表于 2020-5-21 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47503966&amp;ptid=1929631" target="_blank">IrisL 发表于 2020-5-21 18:15</a>
+？猫杂有脸叫睿国第一，我狗儿子第一个不服</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">anti别人自己开楼好吗，我心思mea楼不负责研究这个吧
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7803#       发表于 2020-5-21 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47503910&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-21 18:11</a>
+为什么会这样没点逼数吗？</blockquote>
+要不阁下姑且一说？愿闻其详<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 7804#       发表于 2020-5-21 18:20
+
+
+
+
+散装yhm风险也高，除非家搬过来.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+未来是国v的天下，👇就别菜鸡互啄了.
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7805#       发表于 2020-5-21 18:20
+
+
+
+
+无所谓的，咩姐没人看不就能吃鸡了吗，discord群在等着诸位
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7806#       发表于 2020-5-21 18:20
+
+
+
+<blockquote>IrisL 发表于 2020-5-21 18:15
+？猫杂有脸叫睿国第一，我狗儿子第一个不服</blockquote>
+要开人自己去v8,或者去开新楼啊。来专楼带啥节奏
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7807#       发表于 2020-5-21 18:21
+
+
+
+
+阁下的anti范围有点宽泛，在下实在当不起这顶高帽，请另请高人，在下先爬为敬
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 7808#       发表于 2020-5-21 18:22
+
+
+
+
+你楼日常踩咩(1/1)<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7809#       发表于 2020-5-21 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47503987&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-21 18:17</a>
+应该不是我带起的节奏吧，我就随口一说没打算斗 算了算了
+
+  -- 来自 有消息提醒的 Stage1官方 iOS ...</blockquote>
+楼里说话多的人我还是有数的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望大家不要嘴上说着为mea好实际上都想当冠军粉
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7810#       发表于 2020-5-21 18:23
+
+
+
+
+你楼人均yhm<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+不想当冠军粉的事业民不是好的云p人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7811#       发表于 2020-5-21 18:24
+
+
+
+
+你楼yhm到底是怎么活过来的，这也不是低谷的时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 7812#       发表于 2020-5-21 18:24
+
+
+
+
+你们要求好高啊，她在播，我在看，这还不够吗？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 7813#       发表于 2020-5-21 18:25
+
+
+
+
+要自省了，明明打算佛系看mea了。戾气有点大了。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7814#       发表于 2020-5-21 18:26
+
+
+
+
+她能恰到饭，挺开心一件事，贷款别家的事给自己找不痛快就没必要了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7815#       发表于 2020-5-21 18:28
+
+
+
+
+天天不要自己找人踩自己一脚，每日认爹的环节差不多该取消了吧
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7816#       发表于 2020-5-21 18:30
+
+
+
+<blockquote>IrisL 发表于 2020-5-21 18:28
+天天不要自己找人踩自己一脚，每日认爹的环节差不多该取消了吧</blockquote>
+不是你一直在搞事？
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7817#       发表于 2020-5-21 18:30
+
+
+
+
+我把你们的爹都找出来了？不开心吗😁
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7818#       发表于 2020-5-21 18:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，在你楼装弱智咋就出火气了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 7819#       发表于 2020-5-21 18:33
+
+
+
+ 本帖最后由 rosevalley46 于 2020-5-21 18:40 编辑 
+
+关注睿国事业的真的没必要推她了吧,我是看不出她有把重心往这边移的打算
+
+与其整天看衰她不如想着多打点钱给她
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7820#       发表于 2020-5-21 18:34
+
+
+
+
+他是在模仿抗吧发言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7821#       发表于 2020-5-21 18:37
+
+
+
+
+其实认清一个事实不就好了……这人从来都不是“主流风格”
+
+
+换句话说能当冠军才奇怪
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 7822#       发表于 2020-5-21 18:39
+
+
+
+
+带上其他v的弱智言论还是别说了，而且还在专楼！
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7823#       发表于 2020-5-21 18:39
+
+
+
+
+她现在的状态就是形单影只，打得过那些专业的有策划的才不符合资本规律
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 7824#       发表于 2020-5-21 18:41
+
+
+
+
+别造谣，冠军盾上有45个小麻姐姐的名字，小麻姐姐举盾都举腻了。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7825#       发表于 2020-5-21 18:43
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：最近沢山の方が私のことを知ってくれてフォロワーさんも増えたので自己紹介をさせてください✨
+でもこういうの久しぶりだから緊張しちゃって文面間違えちゃうかもしれないけど許してください😭
+まず最初は名前からだよね...？
+その前に私のことをフォローしてくれてありがとうございます🐵私の名前は神
+媒体：[]
+链接：[]
+时间：2020-05-21 09:41:22 UTC
+网址：https://twitter.com/KaguraMea_VoV/status/1263404509931290625
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7826#       发表于 2020-5-21 18:43
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-21 18:48 编辑 
+
+是时候造势帕里pro大家庭了，救救咩咩，救救麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+给井皇势力低头
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7827#       发表于 2020-5-21 18:43
+
+
+
+ 本帖最后由 A2014720 于 2020-5-21 18:47 编辑 
+
+这么想，不是咩姐不行了，而是池子大了，其他人都起来了，毕竟两手都要抓还是太难了，这样都能和特攻yhm打个差不多不错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+你咩也不是什么天选之人，她只是一个想要混日子的yhm啊
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7828#       发表于 2020-5-21 18:45
+
+
+
+
+困.jpg。。今晚可能有歌。。等到12点吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7829#       发表于 2020-5-21 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504358&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-21 18:45</a>
+困.jpg。。今晚可能有歌。。等到12点吧</blockquote>
+啥啊，发推么
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7830#       发表于 2020-5-21 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504379&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-21 18:46</a>
+啥啊，发推么</blockquote>
+我觉得可能会有
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7831#       发表于 2020-5-21 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504341&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-21 18:43</a>
+这么想，不是咩姐不行了，而是池子大了，其他人都起来了，毕竟两手都要抓还是太难了，这样都能和特攻yhm打 ...</blockquote>
+我说的就是没事没事拿着mea比的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">比不过就开始贷款安慰自己，资本啦运营啦背景啦，然后下回接着比
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弱智不弱智，看个主播还得比来比去，我看外面斗虫楼也不少啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 7832#       发表于 2020-5-21 18:49
+
+
+
+
+难道你们的弱智居然是zqsg， 幻灭了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7833#       发表于 2020-5-21 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504383&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-21 18:47</a>
+我觉得可能会有</blockquote>
+我还以为她预告了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 7834#       发表于 2020-5-21 18:49
+
+
+
+
+突然多了回复我还以为播了，要打出去打
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7835#       发表于 2020-5-21 18:49
+
+
+
+
+昨天不是说今天除了b限舰b外没什么别的安排了吗
+
+最近换季身体不太舒服来着
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7836#       发表于 2020-5-21 18:50
+
+
+
+
+我比较担心今晚十几分钟新池子造完船之后她想干嘛来混完一个小时时长
+
+
+直播推图吗
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7837#       发表于 2020-5-21 18:50
+
+
+
+ 本帖最后由 Unlimited290 于 2020-5-21 18:56 编辑 
+
+天天夸皇来吸血的时候你说没啥大不了的天天在M群repo夸皇恶心人。现在mea数据不行了，你跳出来说早干啥去了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙魂你个老Hape在这装你妈呢。M吧建楼还建个贴贴楼，搞个大家庭的图。就算猫猫不来吸你咩姐的血不是还有你这种傻逼搞温暖大家庭去输血吗？真把爷给恶心吐了。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7838#       发表于 2020-5-21 18:51
+
+
+
+
+病弱系yhm爱了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7839#       发表于 2020-5-21 18:52
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-5-21 18:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504434&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-21 18:50</a>
+我比较担心今晚十几分钟新池子造完船之后她想干嘛来混完一个小时时长
+
+
+直播推图吗 ...</blockquote>
+跟bcr一样吧，边吐槽边建呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就当杂谈了
+
+syl我是直接把原来mea楼的一楼复制过来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有意见？
+<img src="https://p.sda1.dev/0/1efb1c8a109e899ae5044f035d7716cd/IMG_20200521_185453.png" referrerpolicy="no-referrer">
+zsyl 想battle我现在也不会理啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搁这刷誓约道具呢，没空研究没用的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7840#       发表于 2020-5-21 18:52
+
+
+
+
+War，war never changes.
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7841#       发表于 2020-5-21 18:52
+
+
+
+
+10分钟造船，50分钟因为船位不够纠结拆什么船，1小时完美下播
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7842#       发表于 2020-5-21 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504445&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-5-21 18:50</a>
+
+天天夸皇来吸血的时候你觉得没啥大不了的。现在mea数据不行了，你跳出来说早干啥去了。龙魂你个老Ha ...</blockquote>
+外面版面这么大，开新贴开新贴
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7843#       发表于 2020-5-21 18:54
+
+
+
+
+那我就祈祷阿B能长点脑子让她播日服吧
+
+
+不然一万个说明看不懂玩都玩不下去
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 7844#       发表于 2020-5-21 18:54
+
+
+
+
+龙魂可以这么装我是没想到的，你该不会以为自己很秀吧
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7845#       发表于 2020-5-21 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504494&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-21 18:54</a>
+那我就祈祷阿B能长点脑子让她播日服吧
+
+
+不然一万个说明看不懂玩都玩不下去 ...</blockquote>
+。。pcr都是国服
+不过好歹是b站家的、可能是日服吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7846#       发表于 2020-5-21 18:57
+
+
+
+
+工商应该是国服吧，基本操作b站的pdf里应该有说明
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7847#       发表于 2020-5-21 18:57
+
+
+
+
+真的能播啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7848#       发表于 2020-5-21 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504505&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-21 18:55</a>
+
+。。pcr都是国服
+
+不过好歹是b站家的、可能是日服吧</blockquote>
+bcr进度都不一样（）
+
+
+这边国服日服同步的啊
+
+
+不过一般道理大概还是会让她播国服……希望血压别太高，虽然这游戏没啥让人血压升高的要素，但我很见不得yhm“搞不懂事情不安desu”的情景<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7849#       发表于 2020-5-21 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504534&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-5-21 18:57</a>
+工商应该是国服吧，基本操作b站的pdf里应该有说明</blockquote>
+难说。比较特殊的是都是阿b家的
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7850#       发表于 2020-5-21 18:58
+
+
+
+
+龙魂你这会这么守规矩了？不是你在M群和黑泥群repo夸皇直播的时候了那会多特立独行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爷心里门清着呢。你个狗比装啥大尾巴狼呢。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7851#       发表于 2020-5-21 18:59
+
+
+
+ 本帖最后由 第三惑星 于 2020-5-21 19:00 编辑 
+
+上次bcr进度都不一样不照样播的挺好吗，进度一样不是会更好播吗，担心啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，又是q群，q群害人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7852#       发表于 2020-5-21 19:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504561&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-21 18:59</a>
+上次bcr进度都不一样不照样播的挺好吗，进度一样不是会更好播吗，担心啥呢 ...</blockquote>
+就担心看不懂日文（
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7853#       发表于 2020-5-21 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要不要我再开一个你们的QQ群楼专门解决你们的群友问题啊
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7854#       发表于 2020-5-21 19:01
+
+
+
+
+讲道理以前你在M群和黑泥群犯二的时候我没喷你。但你今天这狗比二皮脸把我气到了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别给脸不要脸。
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 7855#       发表于 2020-5-21 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504330&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-21 18:43</a>
+
+【TwitterTweet 神楽めあ 推特发布】
+
+内容：最近沢山の方が私のことを知ってくれてフォロワーさんも増えた ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/21/185444y11n1zenxryi781z.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200521185437.png</strong> (609.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-21 18:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7856#       发表于 2020-5-21 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504054&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-21 18:22</a>
+
+楼里说话多的人我还是有数的希望大家不要嘴上说着为mea好实际上都想当冠军粉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">萌混过关
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7857#       发表于 2020-5-21 19:01
+
+
+
+
+对你mea姐来说进度是不是一样应该区别不大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都是新入坑的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 7858#       发表于 2020-5-21 19:01
+
+
+
+
+手游的本质就是抽卡。和中文日文有啥关系。赌博带来的喜悦语言根本无所谓的。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7859#       发表于 2020-5-21 19:01
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-21 19:04 编辑 
+
+我担心她看不懂油和金币是啥东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还想着推图拿钻石
+
+日系动物园一堆和谐名也蛮怪的，不过这大概是小事了……
+
+
+分分钟两三百发造出去铁定出货的游戏也没啥出货的喜悦感了吧（）
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 7860#       发表于 2020-5-21 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504603&amp;ptid=1929631" target="_blank">古战场亡魂 发表于 2020-5-21 19:01</a>
+手游的本质就是抽卡。和中文日文有啥关系。赌博带来的喜悦语言根本无所谓的。 ...</blockquote>
+这倒是。。抽卡游戏看的人多
+
+啥时候抽点雀魂皮肤
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7861#       发表于 2020-5-21 19:03
+
+
+
+
+就这样吧，现在越来越觉得she说的对了，咩姐不凉下去才是奇怪的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7862#       发表于 2020-5-21 19:03
+
+
+
+
+船名中文日文没区别，反正她一个都不认识
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 7863#       发表于 2020-5-21 19:04
+
+
+
+
+其实也没啥，有的人在群里一副臭不要脸的样子来论坛来就装理客中了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天他说mea那句我今天看不爽了。就这样吧
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7864#       发表于 2020-5-21 19:05
+
+
+
+
+又要搞凉不凉车轱辘吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 7865#       发表于 2020-5-21 19:05
+
+
+
+
+你们诽忧这么多，其实直接玩日服也没啥的吧，又不是bcr进度不一样<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7866#       发表于 2020-5-21 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504582&amp;ptid=1929631" target="_blank">JY要塞 发表于 2020-5-21 19:00</a>
+要不要我再开一个你们的QQ群楼专门解决你们的群友问题啊</blockquote>
+开了我也不会回的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7867#       发表于 2020-5-21 19:06
+
+
+
+
+我就是觉得玩日服好点啊，同样是新开号的话……至少能看懂说明播的时候可以干的事多一些，也不至于对着一堆中文强行杂谈品评
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7868#       发表于 2020-5-21 19:07
+
+
+
+
+你咩姐播手游看吐槽好吧，赌一个说船太色，然后直播扫黄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7869#       发表于 2020-5-21 19:07
+
+
+
+
+bcr那吐槽不是挺有意思的嘛，玩国服还能满足一些指示厨
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7870#       发表于 2020-5-21 19:08
+
+
+
+
+咩不是真的神啊，请大家允许咩宝能拉跨几次
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7871#       发表于 2020-5-21 19:08
+
+
+
+
+说起来以前玩舰b，很纠结的一个地方就是日本船中文名都是诡异的字，人们叫的时候还都按日本原名叫，每次看到人叫日本船或者发日本船的图我都得纠结好一会
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7872#       发表于 2020-5-21 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504689&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-21 19:08</a>
+说起来以前玩舰b，很纠结的一个地方就是日本船中文名都是诡异的字，人们叫的时候还都按日本原名叫，每次看 ...</blockquote>
+说明你不是舰c舰r玩家
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7873#       发表于 2020-5-21 19:10
+
+
+
+
+这和舰c有毛关系啊，要说也是wows<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过国服婚了才能改名的设定我的确挺不爽的
+
+
+syl，万一这人不会下语音怎么办（不过有弹幕指示大概没问题吧）
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7874#       发表于 2020-5-21 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504695&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-5-21 19:09</a>
+说明你不是舰c舰r玩家
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+舰c舰r看同学玩过，感觉像是个挂机收菜游戏，就没接触过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">舰b还是某一天突然迷上光辉立绘才入坑的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7875#       发表于 2020-5-21 19:12
+
+
+
+
+咩神下凡收了我的dt吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7876#       发表于 2020-5-21 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504741&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-21 19:12</a>
+
+咩神下凡收了我的dt吧</blockquote>
+好（消灭所有处男）
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7877#       发表于 2020-5-21 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47504741&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-21 19:12</a>
+咩神下凡收了我的dt吧</blockquote>
+你不是交过女朋友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7878#       发表于 2020-5-21 19:13
+
+
+
+
+竞争对手会大幅减少吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7879#       发表于 2020-5-21 19:17
+
+
+
+
+都是大一之前搞的，那时候自己说不碰未成年，然后…<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7880#       发表于 2020-5-21 19:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7881#       发表于 2020-5-21 19:18
+
+
+
+
+不 碰 未 成 年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 7882#       发表于 2020-5-21 19:18
+
+
+
+
+说什么你咩昨晚弱智 
+
+
+我看某些人弱智多了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 7883#       发表于 2020-5-21 19:18
+
+
+
+
+麻麻自称是神<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+尼采也自称是神
+尼采疯了
+麻麻也疯了(？)
+麻麻的拘束服fanart有吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 7884#       发表于 2020-5-21 19:19
+
+
+
+
+因为你咩是装弱智，有些人是真弱智啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7885#       发表于 2020-5-21 19:21
+
+
+
+
+反正她成年之前我肯定没机会了，所以没啥问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7886#       发表于 2020-5-21 19:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瓜游虽然出货良心无氪也能玩的挺舒服，但不知为何建船出货的愉悦度还不如捞船....至少我这么觉得（话说今晚还播吗）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">syl，事业民将来小心成为直升机家长啊，有这时间多学几句日语多发几条弹幕多打点零钱也比杞忧倒黑泥强
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7887#       发表于 2020-5-21 19:24
+
+
+
+
+感觉神乐组其实整的还挺好的
+https://twitter.com/SongjiangCC/status/1263422633330085888
+<img src="https://p.sda1.dev/0/53b730f0b08f13b84859775cdc458498/-59ea6973a2f5fe4d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7888#       发表于 2020-5-21 19:31
+
+
+
+
+不就是因为资源来的太容易数量又多吗……
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 7889#       发表于 2020-5-21 19:35
+
+
+
+
+往前看往前看，无论是过去的冠军还是过去别人的“吸血”老是真情实感的抱着在那里滚来滚去的出警搞到吹水不能吹水，玩笑不能开玩笑真的没意思，自我反省自我反省
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 7890#       发表于 2020-5-21 19:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">唉
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7891#       发表于 2020-5-21 19:37
+
+
+
+
+翻推特看到有人发这个，你mea姐当年的待机画面比手绘的还魔性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4a1e36907315ee8cd2178693b3e18a15/IMG_7D2DF46F5C91EDC4B7AF856AC48D4512.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 7892#       发表于 2020-5-21 19:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7893#       发表于 2020-5-21 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个经典表情上次做是什么时候了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 7894#       发表于 2020-5-21 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47505047&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-5-21 19:39</a>
+这个经典表情上次做是什么时候了</blockquote>
+喝水的时候会顺带做出来，特意做应该是很久之前了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7895#       发表于 2020-5-21 19:42
+
+
+
+
+现在做不出来了吧，以前没更新前眼球不会跟着脸动，现在不行了，侧脸只会显得憨
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 7896#       发表于 2020-5-21 19:43
+
+
+
+
+有点怀念以前那种手写封面了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7897#       发表于 2020-5-21 19:52
+
+
+
+
+看了一眼flamingo网页端推荐，咩姐本人的视频就几个，还不在前面，难得上了一次首页
+
+
+
+
+
+                                    
