@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-22 12:04** 
+> ## **本文件最后更新于2020-05-22 14:05** 
 
 
 
@@ -9245,4 +9245,427 @@ mea承受能力很强了,虽然会不安，但是基本扛得住。
 
 
 
-                                
+
+
+-----
+
+####  Arccueid  
+##### 8026#       发表于 2020-5-22 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513887&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-05-22 11:55:56</a>
+很多人小号了吧，发情几天王都活着的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的  v2.2.2.1 ...</blockquote>都缩起来了 不过至少看起来转型是很成功了 妈妈粉放心了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8027#       发表于 2020-5-22 12:09
+
+
+
+
+等会原来她发了很多条又删了吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">我只看到不安desu和打起精神那两条
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8028#       发表于 2020-5-22 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513940&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-22 11:59</a>
+毕竟套上皮干什么都会有趣3分，所谓的能力是吸引宅宅打钱的能力，不是唱歌好听，会弹琴就算有能力了。专 ...</blockquote>
+那有点遭，你咩姐虽然有吸引宅宅打钱的欲望，但不是很强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 8029#       发表于 2020-5-22 12:28
+
+
+
+
+中国不是日本。中国宅宅可没有夜里便利店打工，白天给主播、偶像打钱的喜欢。（其实主要是工资不高）
+能打钱的，基本还是有稳定工作，或者有家业可以继承的伪宅。 这类人可不是很吃媚宅那套，完全是看魂看故事看自己喜好，2、3次元其实没那么有所谓。最多有点xp
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8030#       发表于 2020-5-22 12:37
+
+
+
+
+说起来，70W粉的二创比赛啥的是不办了吗，上次50W整了个幺蛾子ptsd？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8031#       发表于 2020-5-22 12:42
+
+
+
+
+不都直接等着80万了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8032#       发表于 2020-5-22 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的等差数列呢（
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8033#       发表于 2020-5-22 12:53
+
+
+
+
+下次再搞搞不好是100w时了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 8034#       发表于 2020-5-22 13:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整出啥幺蛾子来还不是官组自己的问题？真拿自己当mea的P了哦。直接出来横加干涉连mea的意见都给否了。
+玩得那一套都是我在大学分团委玩见过的老招数了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两边两套说辞。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8035#       发表于 2020-5-22 13:04
+
+
+
+
+只想看3d。。。
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8036#       发表于 2020-5-22 13:20
+
+
+
+
+个人作为粉丝想看的排行榜（个人做梦向，并不是要摁着mea要她上）：
+
+1：DDD演唱会（假唱也行）
+
+2：新衣服新皮（图力在井皇以上的）
+
+3：和神乐组小两只慢慢变成老朋友的过程
+
+4：想出苔姨都喜欢拿来当梗的新车轱辘
+
+5：不同风格的新曲（其实最近她的萌萌唱法听太多有点点腻了）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8037#       发表于 2020-5-22 13:26
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-22 13:28 编辑 
+
+问题不就是“教育她也不是观众的职责”嘛
+
+
+于情于理都没法这么干，那她干什么我们不也只能接着，掉粉就掉粉咯（）
+
+
+说是主播没法选择观众，正经点讲除了恶心人，观众又能改变主播的什么呢
+
+
+她这个路线也不像是大家都会来夸的，但你又不能真的给少部分核心观众拉个discord几个人聊天诉苦，正向的精神反馈还得麻烦朋友
+
+要是说的勤了，人家就算不在乎，她自己又该担心这朋友处不处的下去了
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8038#       发表于 2020-5-22 13:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">话说你麻有说过群发芒毛照片的往事吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8039#       发表于 2020-5-22 13:30
+
+
+
+
+我也想看3d<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8040#       发表于 2020-5-22 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513558&amp;ptid=1929631" target="_blank">Arccueid 发表于 2020-5-22 11:34</a>
+有些感慨新老粉丝交替 大概是真的好起来了吧
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+只是大家的大号都和小博禹一换一了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8041#       发表于 2020-5-22 13:39
+
+
+
+ 本帖最后由 A2014720 于 2020-5-22 13:41 编辑 
+
+算了那边疫情怎么样了
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8042#       发表于 2020-5-22 13:42
+
+
+
+
+我做过她露爪弹钢琴直播的梦，梦里在各大论坛和粉丝群里转一圈发现大家全疯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8043#       发表于 2020-5-22 13:43
+
+
+
+
+东京大阪暂不解除？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8044#       发表于 2020-5-22 13:46
+
+
+
+
+想象了下
+
+
+啊 我疯了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 8045#       发表于 2020-5-22 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我不会疯的，所以放心露
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8046#       发表于 2020-5-22 14:00
+
+
+
+
+我在想她要赔多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8047#       发表于 2020-5-22 14:00
+
+
+
+
+露手弹钢琴，然后发现无名指上有戒指？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 我疯了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8048#       发表于 2020-5-22 14:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">38岁带俩娃的大龄妇女主播直播露个戒指怎么了怎么了？
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 8049#       发表于 2020-5-22 14:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过确实好久没关注疫情了，日赢了没有
+
+
+今天也是楼友团建的一天
+
+
+
+
+
+                               
