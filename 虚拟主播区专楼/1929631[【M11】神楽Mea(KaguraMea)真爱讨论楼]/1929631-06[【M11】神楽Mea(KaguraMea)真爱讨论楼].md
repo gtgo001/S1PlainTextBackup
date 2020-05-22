@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-22 14:05** 
+> ## **本文件最后更新于2020-05-22 20:04** 
 
 
 
@@ -9668,4 +9668,1095 @@ mea承受能力很强了,虽然会不安，但是基本扛得住。
 
 
 
-                               
+
+
+-----
+
+####  无限舰制  
+##### 8050#       发表于 2020-5-22 14:06
+
+
+
+
+麻爪还行
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8051#       发表于 2020-5-22 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">她不会弹钢琴，疯锤子
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我只想看她玩小钢珠，输了砸机子那种
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">随便伸伸爪子也行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过看照片你麻也不算太白
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">算了，有滤镜就行了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 8052#       发表于 2020-5-22 14:09
+
+
+
+
+她之前PCR的用户名是“神乐大小姐想让我表白”，也不知道她是漫画党还是动画党。如果是漫画党的话，是石弥党还是石燕党呢？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8053#       发表于 2020-5-22 14:17
+
+
+
+
+她不就一标准的二刺螈pxj吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8054#       发表于 2020-5-22 14:20
+
+
+
+
+咩姐云不至于，异世界厕纸都看了几本，比较火的漫画也会看吧
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 8055#       发表于 2020-5-22 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47515462&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-22 13:39</a>
+
+算了那边疫情怎么样了</blockquote>
+日本疫情讲究一个自欺欺人，看命，这么久了加起来还没广州检测的高三学生多
+
+
+<img src="https://img.saraba1st.com/forum/202005/22/142045uyivi5hghsxxlnij.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-d19565950cea51dbd03f48cd54335219.jpg</strong> (360.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-22 14:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8056#       发表于 2020-5-22 14:23
+
+
+
+
+草，最近你楼弱智time略多，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 8057#       发表于 2020-5-22 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47515926&amp;ptid=1929631" target="_blank">単推し人 发表于 2020-5-22 14:21</a>
+
+日本疫情讲究一个自欺欺人，看命，这么久了加起来还没广州检测的高三学生多
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这个图做的有点意思
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8058#       发表于 2020-5-22 14:47
+
+
+
+
+反正闲的没事那就继续弱智time<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8059#       发表于 2020-5-22 15:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">国内看anmr的在bfm毕业的时候就走了很多，留下的点订阅早点了，怎么可能还会涨粉的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8060#       发表于 2020-5-22 15:05
+
+
+
+
+bfm被搞走，anmr在国内插的梁木能维持到anmr完蛋
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8061#       发表于 2020-5-22 15:49
+
+
+
+
+霓虹政府是真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">，卡古拉没牙这运气也是真的惨
+
+anmr之前稻荷给我种了参天大树了<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8062#       发表于 2020-5-22 15:56
+
+
+
+
+?东京封到什么时候啊
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8063#       发表于 2020-5-22 16:40
+
+
+
+
+mea和gbr草
+<img src="https://p.sda1.dev/0/fbdd1c20a2de3c3025158d2882eb315d/IMG_B9532FC689E05399590DEFBA56D02B51.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8064#       发表于 2020-5-22 16:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">既不会相爱也不会相杀，对不上对不上
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8065#       发表于 2020-5-22 17:17
+
+
+
+
+我心目中的發狂藝三本柱就咩姐江哥粽姨
+
+不過你咩跟其他兩人連動時反而都相敬如賓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8066#       发表于 2020-5-22 17:30
+
+
+
+
+不带小肥妹玩吗，也是相敬如宾<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8067#       发表于 2020-5-22 18:01
+
+
+
+
+为什么刻意忽略辣个女人，她们没有那么相敬如宾<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8068#       发表于 2020-5-22 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47519020&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-22 18:01</a>
+为什么刻意忽略辣个女人，她们没有那么相敬如宾</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个女人有那么多栋楼可以说，不用在这惦记着
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8069#       发表于 2020-5-22 18:23
+
+
+
+
+相敬如宾可是用在夫妇身上的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 8070#       发表于 2020-5-22 18:29
+
+
+
+
+说到这个，船长怎么还不和mea联动，果然不自闭的阿姨路线，不需要mea嘛。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8071#       发表于 2020-5-22 18:34
+
+
+
+
+主要还是我觉得船长和mea就没那么熟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只是前世合作过的关系这样，就像mea和ayame差不多
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8072#       发表于 2020-5-22 18:36
+
+
+
+
+呜呜呜我真的想看船长阿咩联动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8073#       发表于 2020-5-22 18:41
+
+
+
+
+就是你麻不知道从哪（或者是经人介绍）找的付费画师而已，商业合作
+
+    
+
+今年生日还会找狗狗一起玩吗？ddd的时候找狗狗来玩也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8074#       发表于 2020-5-22 18:43
+
+
+
+
+为什么那么多人期待跟狗狗联动啊，我想看跟傻紫联动<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8075#       发表于 2020-5-22 18:46
+
+
+
+
+梦做大点傻紫和狗狗一起来！
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 8076#       发表于 2020-5-22 18:50
+
+
+
+
+商业合作船长就不会在前世直播间画mea玩了，也不会忽悠别人说阿丢了。 哎 都是xxx的锅
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8077#       发表于 2020-5-22 18:50
+
+
+
+
+至今无法明白为什么当时会大晚上的突然给ayame打电话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前世认识？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8078#       发表于 2020-5-22 18:55
+
+
+
+
+六字母有次联动pubg的时候咩还吃狗狗的醋来着，问阿夸对方是谁的时候感觉根本不认识狗狗的名字啊？（难道是只认得前世名字？）
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8079#       发表于 2020-5-22 18:58
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-22 18:55
+六字母有次联动pubg的时候咩还吃狗狗的醋来着，问阿夸对方是谁的时候感觉根本不认识狗狗的名字啊？（难道是 ...</blockquote>
+那段明顯是營業啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8080#       发表于 2020-5-22 18:59
+
+
+
+
+tm7.30了，咩姐你咋就事这么多呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8081#       发表于 2020-5-22 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这一切都是你麻表演性人格在作怪
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8082#       发表于 2020-5-22 19:00
+
+
+
+
+我觉得那时候（18年）还没开始营业呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。退一步说，吃醋是营业，不认识狗狗的反应是真的不像演的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8083#       发表于 2020-5-22 19:01
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8084#       发表于 2020-5-22 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47519807&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-22 18:59</a>
+tm7.30了，咩姐你咋就事这么多呢</blockquote>
+你忘记换算时间了www
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8085#       发表于 2020-5-22 19:05
+
+
+
+
+mea是不是刚睡醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8086#       发表于 2020-5-22 19:07
+
+
+
+ 本帖最后由 A2014720 于 2020-5-22 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47519852&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-5-22 19:04</a>
+你忘记换算时间了www</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">失了智
+
+上周调整的作息全没了？<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8087#       发表于 2020-5-22 19:11
+
+
+
+
+草，能直接找到mea的朋友来抓mea，这波怎么看
+<img src="https://p.sda1.dev/0/f1047811f61dee22af0fe1e7d8107f11/IMG_2871CA6449EDD0D8481CF6EC253463C3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8088#       发表于 2020-5-22 19:13
+
+
+
+
+说明mea的身家性命已经被如月掌握了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8089#       发表于 2020-5-22 19:14
+
+
+
+ 本帖最后由 A2014720 于 2020-5-22 19:15 编辑 
+
+这小弟挺靠谱的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这人脑子是完全没醒啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8090#       发表于 2020-5-22 19:15
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8091#       发表于 2020-5-22 19:15
+
+
+
+
+咩姐刚睡醒的时候直播效果真的不大行，但好几次联动都是刚睡醒的状态
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8092#       发表于 2020-5-22 19:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">Mea的朋友和如月有沟通方式的是谁呢，已知mea手机铃声已关，帮如月混音的人是混ぜ郎。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8093#       发表于 2020-5-22 19:20
+
+
+
+
+你们又要开始了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8094#       发表于 2020-5-22 19:24
+
+
+
+
+众所周知，mea只有一个朋友
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8095#       发表于 2020-5-22 19:26
+
+
+
+
+废话，mea的朋友是谁我还不知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+虽然阿咩刚睡醒，但这次联动比上次自然啊，互损挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8096#       发表于 2020-5-22 19:28
+
+
+
+
+没错就是我阿缪（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8097#       发表于 2020-5-22 19:29
+
+
+
+
+虽然情绪没那么高，但这样感觉还挺自然的，和舞元还有谁叔那个共同财产梗我感觉还有点怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自当代好青年的质疑.JPG
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8098#       发表于 2020-5-22 19:31
+
+
+
+
+如月这文字水平不行啊。。。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8099#       发表于 2020-5-22 19:33
+
+
+
+
+11区大学生水平再评价
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8100#       发表于 2020-5-22 19:36
+
+
+
+
+怎么突然要没了。。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8101#       发表于 2020-5-22 19:37
+
+
+
+
+神乐mea你个巨婴
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8102#       发表于 2020-5-22 19:39
+
+
+
+
+是我最喜欢的不仲
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8103#       发表于 2020-5-22 19:47
+
+
+
+
+mea已经疯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8104#       发表于 2020-5-22 19:48
+
+
+
+
+想给一拳<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8105#       发表于 2020-5-22 19:49
+
+
+
+
+妈个鸡，吵死了我服了
+
+神楽组长你这么喂饭会掉同接的，停一停<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8106#       发表于 2020-5-22 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么就欺负如月的，臭阿咩
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8107#       发表于 2020-5-22 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">你才是臭女人啊，meaaaaaaaaa
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8108#       发表于 2020-5-22 19:51
+
+
+
+
+乐了，这人小屁孩一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8109#       发表于 2020-5-22 19:51
+
+
+
+
+卡哇伊busu草
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8110#       发表于 2020-5-22 19:52
+
+
+
+
+不安desu的原因找到了
+
+
+
+
+
+
+
+-----
+
+####  以一持万  
+##### 8111#       发表于 2020-5-22 20:01
+
+
+
+
+小屁孩啊完全
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8112#       发表于 2020-5-22 20:02
+
+
+
+
+本来就是小屁孩嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8113#       发表于 2020-5-22 20:02
+
+
+
+
+观感
+Mea:丑女复读机
+如月:哄小孩
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8114#       发表于 2020-5-22 20:02
+
+
+
+
+但如月是比咩姐小的吧。。。
+
+
+
+
+
+                             
