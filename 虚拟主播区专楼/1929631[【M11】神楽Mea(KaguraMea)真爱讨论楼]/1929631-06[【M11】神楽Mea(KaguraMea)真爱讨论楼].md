@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-22 20:04** 
+> ## **本文件最后更新于2020-05-22 22:05** 
 
 
 
@@ -10759,4 +10759,1935 @@ Mea:丑女复读机
 
 
 
-                             
+
+
+-----
+
+####  Dualist彩  
+##### 8115#       发表于 2020-5-22 20:06
+
+
+
+
+按小绿推特年龄我记得比你麻小几个月？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8116#       发表于 2020-5-22 20:07
+
+
+
+
+欸？如月这么小的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8117#       发表于 2020-5-22 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">你麻作为一个以前就到处把下体给别人看的臭小孩，精神年龄比她肉体年龄小十岁都是可能的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8118#       发表于 2020-5-22 20:11
+
+
+
+
+（这说法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）她有点开放是真的啊......
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8119#       发表于 2020-5-22 20:11
+
+
+
+
+我不信，除非发给我看
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8120#       发表于 2020-5-22 20:12
+
+
+
+
+芒果毛已经演化成露阴癖了，这非常加速<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8121#       发表于 2020-5-22 20:15
+
+
+
+
+u1s1，mea给人发的是嘴唇照，不是x唇照<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">随便给人发x唇可以叫警察了吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8122#       发表于 2020-5-22 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47520759&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-22 20:15</a>
+u1s1，mea给人发的是嘴唇照，不是x唇照随便给人发x唇可以叫警察了吧</blockquote>
+我说的是麻，tc直播的时候说的话，当时给了我极大的震撼，直到今日<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 8123#       发表于 2020-5-22 20:20
+
+
+
+
+工商后应该会接波歌回吧。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8124#       发表于 2020-5-22 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47520826&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-22 20:20</a>
+我说的是麻，tc直播的时候说的话，当时给了我极大的震撼，直到今日 ...</blockquote>
+你看mea对她初放送手冲的态度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">成长.JPG
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8125#       发表于 2020-5-22 20:28
+
+
+
+
+？小麻tc时说啥了
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 8126#       发表于 2020-5-22 20:28
+
+
+
+
+V骚随便说说而已，又不是真的后悔。
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8127#       发表于 2020-5-22 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47520826&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-22 20:20</a>
+
+我说的是麻，tc直播的时候说的话，当时给了我极大的震撼，直到今日 ...</blockquote>
+？不是，认真的，她tc说的不是芒果毛照片吗，还认真讨论下体X唇照片的是smjb
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8128#       发表于 2020-5-22 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我记的mtr有一期大意是说她给她关系好的女人露过下体。不是mea谈论的事。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8129#       发表于 2020-5-22 20:40
+
+
+
+
+秀毛狂魔马自立，阿b有视频啊，我记得是那个石油佬烤的，就是烤黄绿紫新年会的那个
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8130#       发表于 2020-5-22 20:45
+
+
+
+
+哪个？给个链接啊老哥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我喜欢凑阿库娅  
+##### 8131#       发表于 2020-5-22 20:47
+
+
+
+[https://www.bilibili.com/video/BV124411Z7xk](https://www.bilibili.com/video/BV124411Z7xk)
+
+说的是这个吗？。。虽然只看开头会以为是秀芒果，不过看完了的应该可以明白爱小姐只是在秀毛吧
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8132#       发表于 2020-5-22 20:48
+
+
+
+
+https://b23.tv/XcBrzy
+是芒毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8133#       发表于 2020-5-22 20:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8134#       发表于 2020-5-22 20:52
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-22 20:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47521154&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-22 20:45</a>
+
+哪个？给个链接啊老哥</blockquote>
+BV1D4411S7A6
+
+BV124411Z7xk
+
+我是真的不知道哪个视频里面讲了露下体<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">如果有人知道的话能给个链接吗.jpg
+
+草，回看她这种糟糕事还是非常乐呵的
+
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8135#       发表于 2020-5-22 20:53
+
+
+
+
+害人不浅啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么人啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8136#       发表于 2020-5-22 20:54
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-22 20:55 编辑 
+
+草，露下体又是哪里出来的，虽然你们一提我悄悄有点印象，但实在想不起来到底有没有这种说法
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8137#       发表于 2020-5-22 20:55
+
+
+
+
+就一个露毛一个露唇，怎么还能合一起记的？
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8138#       发表于 2020-5-22 20:56
+
+
+
+
+草你们在瞎记些啥啊
+她拍芒毛给saya和yui，她拍她的嘴给犬山兔子
+你们能记合体是真的牛批
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8139#       发表于 2020-5-22 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草，你们这说露芒果毛不算露下体吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">时代变化太快了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 8140#       发表于 2020-5-22 20:57
+
+
+
+
+新司机？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8141#       发表于 2020-5-22 20:58
+
+
+
+
+毛当然是掉下来的毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，哪能连着身体一起拍啊
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8142#       发表于 2020-5-22 20:58
+
+
+
+
+区别大了去了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪有对着自己一窝森林拍的
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8143#       发表于 2020-5-22 20:59
+
+
+
+
+yhm可以把芒果毛做到巧克力里面送给男朋友，但是不能把下体做到巧克力里送给男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8144#       发表于 2020-5-22 21:01
+
+
+
+
+播了播了，不要再谈少儿不宜话题了，你们是在毒害m楼的未成年人
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8145#       发表于 2020-5-22 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小绿00/08/10，小紫98/08/30，你麻01/02/21，分明是你麻最小嘛
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8146#       发表于 2020-5-22 21:02
+
+
+
+
+因为即使那一段理解为“给女性友人发剃毛的那部分”，那和“到处给人发下体”这个表述的区别还是大多了。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8147#       发表于 2020-5-22 21:03
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8148#       发表于 2020-5-22 21:05
+
+
+
+
+自己掏了2w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8149#       发表于 2020-5-22 21:05
+
+
+
+ 本帖最后由 笋狐 于 2020-5-22 21:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这连初始号都不给个自氪2W抽也太坑了吧。草，最黄的那个皮肤被她拿来当封面了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8150#       发表于 2020-5-22 21:05
+
+
+
+
+木口的都有工商号，你咩得自己氪金，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8151#       发表于 2020-5-22 21:05
+
+
+
+
+扫黄了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8152#       发表于 2020-5-22 21:06
+
+
+
+ 本帖最后由 nightmare902015 于 2020-5-22 21:07 编辑 
+
+纯云，这游戏不是建船只能用魔方，捞船只有去出击，氪金能用来抽卡吗？
+
+
+可以，粉丝在讨论露下体，主播在讨论露乳tou，什V什粉
+
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 8153#       发表于 2020-5-22 21:06
+
+
+
+
+呜呜呜不愧是中国yua()
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8154#       发表于 2020-5-22 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我当初看上下文理解就是下体，不是拔下来的
+当然，我也没说是×唇。
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是看直播吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8155#       发表于 2020-5-22 21:08
+
+
+
+
+这工商怎么还得自己掏钱的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8156#       发表于 2020-5-22 21:08
+
+
+
+
+咋你咩姐每次工商都没给初始号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8157#       发表于 2020-5-22 21:09
+
+
+
+
+这笑的也太猥琐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 8158#       发表于 2020-5-22 21:09
+
+
+
+
+工商为啥要自己掏钱啊，我蒙在鼓里。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8159#       发表于 2020-5-22 21:09
+
+
+
+
+这tm都不够回本的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8160#       发表于 2020-5-22 21:09
+
+
+
+
+老色批了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 8161#       发表于 2020-5-22 21:10
+
+
+
+
+麻麻这种处男样子我挺喜欢的
+我是不是其实是bi<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 8162#       发表于 2020-5-22 21:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定是自己充钱然后找睿叔叔报销呢
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8163#       发表于 2020-5-22 21:11
+
+
+
+
+确实，自己掏钱也太亏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8164#       发表于 2020-5-22 21:11
+
+
+
+
+年轻人的第一款色批游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 8165#       发表于 2020-5-22 21:11
+
+
+
+
+不是   真有人信工商自己掏钱的嘛
+Syl  她刚说不喜欢贫乳  贬低自己的原因找到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8166#       发表于 2020-5-22 21:11
+
+
+
+
+我复习去了，结束了谁给我说下她喜欢哪些类型的角色，我猜八成对大胸女没兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8167#       发表于 2020-5-22 21:12
+
+
+
+
+我看他们斗鱼做手游工商都是这样的，就算是官方给的号，也要说“兄弟们这游戏太好玩了我一不小心自掏腰包氪了2000多”，算是变相宣传，基本手段吧。
+
+而且她一上来说自己氪了2w那种懵逼的语气。。。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8168#       发表于 2020-5-22 21:12
+
+
+
+
+咋就想井了
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8169#       发表于 2020-5-22 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47521470&amp;ptid=1929631" target="_blank">绘心炸裂 发表于 2020-5-22 21:11</a>
+不是   真有人信工商自己掏钱的嘛
+Syl  她刚说不喜欢贫乳  贬低自己的原因找到了 ...</blockquote>
+我记得她上个月才说过喜欢贫乳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 8170#       发表于 2020-5-22 21:13
+
+
+
+
+让阿b再给个号吧
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 8171#       发表于 2020-5-22 21:14
+
+
+
+
+出事啦
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8172#       发表于 2020-5-22 21:14
+
+
+
+
+不是，b限播日服真的是工商吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8173#       发表于 2020-5-22 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你抽卡的钱呢？？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8174#       发表于 2020-5-22 21:15
+
+
+
+
+因为进度同步再加上日服收入比国服高而且没和谐，去日服的也不少啊，总之影响不大
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 8175#       发表于 2020-5-22 21:15
+
+
+
+
+倒贴工商
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 8176#       发表于 2020-5-22 21:15
+
+
+
+
+官方大概也没想到她蠢成这样
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 8177#       发表于 2020-5-22 21:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">NMD看得我心好痛，十连包都不会买
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 8178#       发表于 2020-5-22 21:15
+
+
+
+
+太惨了，赔钱了……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8179#       发表于 2020-5-22 21:16
+
+
+
+
+国服日服进度同步的，只要舰b本身有热度国人自然是更多去玩国服
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 8180#       发表于 2020-5-22 21:16
+
+
+
+
+这官方效率还蛮高的嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 8181#       发表于 2020-5-22 21:17
+
+
+
+
+看出来了，从来没碰过这种手游。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8182#       发表于 2020-5-22 21:18
+
+
+
+
+看来网真的不好
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8183#       发表于 2020-5-22 21:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始了开始了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8184#       发表于 2020-5-22 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8185#       发表于 2020-5-22 21:31
+
+
+
+
+这什么水平啊
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 8186#       发表于 2020-5-22 21:31
+
+
+
+
+反正我不玩这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8187#       发表于 2020-5-22 21:32
+
+
+
+
+这卡池就毕业了，哎不愧是法国老乡
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8188#       发表于 2020-5-22 21:32
+
+
+
+
+好像还差圣女贞德没出
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 8189#       发表于 2020-5-22 21:33
+
+
+
+
+？？？？？真出了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 8190#       发表于 2020-5-22 21:33
+
+
+
+
+麻麻中了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8191#       发表于 2020-5-22 21:33
+
+
+
+
+不是？这？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8192#       发表于 2020-5-22 21:34
+
+
+
+
+官托？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8193#       发表于 2020-5-22 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，穿了，老乡见老乡，两眼泪汪汪
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 8194#       发表于 2020-5-22 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，突然不心疼了
+
+
+
+
+
+
+
+-----
+
+####  最爱面包超人  
+##### 8195#       发表于 2020-5-22 21:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8196#       发表于 2020-5-22 21:34
+
+
+
+
+不愧是法国人
+
+
+
+
+
+
+
+-----
+
+####  燃烧的石头  
+##### 8197#       发表于 2020-5-22 21:34
+
+
+
+
+强氪出奇迹，你不出说明氪的不够多
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8198#       发表于 2020-5-22 21:35
+
+
+
+
+今天乳法失败了
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8199#       发表于 2020-5-22 21:35
+
+
+
+
+低评价低评价
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 8200#       发表于 2020-5-22 21:36
+
+
+
+
+不愧是同国buff就是强
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8201#       发表于 2020-5-22 21:36
+
+
+
+
+法国女王实至名归
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8202#       发表于 2020-5-22 21:36
+
+
+
+
+这一手叫我拍案而起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8203#       发表于 2020-5-22 21:37
+
+
+
+
+这还有二十多分可怎么混啊，哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8204#       发表于 2020-5-22 21:42
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8205#       发表于 2020-5-22 21:42
+
+
+
+
+初次进入风俗店的DT<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8206#       发表于 2020-5-22 21:43
+
+
+
+
+不是，这碧蓝航线这么色的吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8207#       发表于 2020-5-22 21:47
+
+
+
+
+听说本来胸也是可以点的？<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8208#       发表于 2020-5-22 21:47
+
+
+
+
+你咩这痴汉笑我是真的服气 这能演出来吗？
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 8209#       发表于 2020-5-22 21:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47521871&amp;ptid=1929631" target="_blank">十九号大侠 发表于 2020-5-22 21:43</a>
+不是，这碧蓝航线这么色的吗</blockquote>
+就是这么<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8210#       发表于 2020-5-22 21:49
+
+
+
+
+日服有特殊触摸，国服和谐了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8211#       发表于 2020-5-22 21:49
+
+
+
+
+我的妈我好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8212#       发表于 2020-5-22 21:49
+
+
+
+
+点的位置很真实啊
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 8213#       发表于 2020-5-22 21:50
+
+
+
+
+成功的工商<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 8214#       发表于 2020-5-22 21:50
+
+
+
+
+碧蓝这ui看着好怪啊，直接看本子算了，省的玩游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8215#       发表于 2020-5-22 21:50
+
+
+
+
+老色批游戏了，天天和谐
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8216#       发表于 2020-5-22 21:51
+
+
+
+
+碧蓝作为军武游戏不太合格但是作为ghs游戏可是顶中顶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 8217#       发表于 2020-5-22 21:52
+
+
+
+
+这次工商还算成功吧，这游戏卖的就是皮肤，精髓全播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8218#       发表于 2020-5-22 21:53
+
+
+
+
+扫了一眼，好多大奶奶
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8219#       发表于 2020-5-22 21:56
+
+
+
+
+阿咩已经完全掌握这个游戏的玩法了
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8220#       发表于 2020-5-22 21:56
+
+
+
+
+就之前那套泳装，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都弃坑了还上线买了，没办法，太大太白了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8221#       发表于 2020-5-22 21:57
+
+
+
+
+灵魂吸食草
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8222#       发表于 2020-5-22 21:58
+
+
+
+
+md快笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太有节目效果了这
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8223#       发表于 2020-5-22 21:59
+
+
+
+
+整个皮肤鉴黄剪辑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8224#       发表于 2020-5-22 22:00
+
+
+
+
+大概就是怕未成年人把持不住国服才和谐的吧。。。
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 8225#       发表于 2020-5-22 22:01
+
+
+
+
+笑死我了，这bug，光辉好白好大，塞满了整个屏幕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 8226#       发表于 2020-5-22 22:01
+
+
+
+
+没有光辉急死了，哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8227#       发表于 2020-5-22 22:01
+
+
+
+
+你看这位未成年已经把持不住了
+
+
+
+
+
+
+
+-----
+
+####  绘心炸裂  
+##### 8228#       发表于 2020-5-22 22:01
+
+
+
+
+看个cg也能看出这么草的效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8229#       发表于 2020-5-22 22:01
+
+
+
+
+这尺度播出来真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 8230#       发表于 2020-5-22 22:02
+
+
+
+
+哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 8231#       发表于 2020-5-22 22:04
+
+
+
+
+艹这工商，做得太精彩了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8232#       发表于 2020-5-22 22:04
+
+
+
+
+预订了预订了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8233#       发表于 2020-5-22 22:04
+
+
+
+
+手游工商鬼才<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
