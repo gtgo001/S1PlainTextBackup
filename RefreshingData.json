@@ -6117,7 +6117,7 @@
     "title": "[骑砍2将在3月30日开启ea]",
     "lastedit": 1587578727,
     "category": "游戏区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1920985",
@@ -6865,9 +6865,9 @@
   },
   {
     "id": "1924531",
-    "totalpage": 1183,
+    "totalpage": 1184,
     "title": "[【V8】虚拟YouTuber综合讨论楼A.I.Channel分离2／3号，开设新频道]",
-    "lastedit": 1590170606,
+    "lastedit": 1590177760,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -8457,9 +8457,9 @@
   },
   {
     "id": "1934528",
-    "totalpage": 467,
+    "totalpage": 473,
     "title": "[【B5】VUP综合讨论专楼]",
-    "lastedit": 1590170931,
+    "lastedit": 1590177995,
     "category": "虚拟主播区专楼",
     "active": true
   },
