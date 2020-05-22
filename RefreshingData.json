@@ -505,9 +505,9 @@
   },
   {
     "id": "98922",
-    "totalpage": 1754,
+    "totalpage": 1755,
     "title": "[【one piece讨论专用帖】]",
-    "lastedit": 1589248849,
+    "lastedit": 1590114600,
     "category": "漫区专楼",
     "active": true
   },
@@ -2265,9 +2265,9 @@
   },
   {
     "id": "1485855",
-    "totalpage": 280,
+    "totalpage": 281,
     "title": "[《辉夜大小姐想让我告白》这漫画好棒]",
-    "lastedit": 1590062503,
+    "lastedit": 1590114704,
     "category": "漫区专楼",
     "active": true
   },
@@ -6669,7 +6669,7 @@
     "title": "[20.04『阿尔蒂／ARTE／アルテ』专楼]",
     "lastedit": 1587521487,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1551549",
@@ -6865,9 +6865,9 @@
   },
   {
     "id": "1924531",
-    "totalpage": 1161,
+    "totalpage": 1162,
     "title": "[【V8】虚拟YouTuber综合讨论楼A.I.Channel分离2／3号，开设新频道]",
-    "lastedit": 1590112977,
+    "lastedit": 1590114798,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -6941,7 +6941,7 @@
     "title": "[当代工人贵族一隅：在上海，每年有一百万小姑娘在野餐]",
     "lastedit": 1587521645,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1916603",
@@ -8097,9 +8097,9 @@
   },
   {
     "id": "1933932",
-    "totalpage": 133,
+    "totalpage": 134,
     "title": "[疫情专楼]",
-    "lastedit": 1590113260,
+    "lastedit": 1590115018,
     "category": "外野专楼",
     "active": true
   },
@@ -8457,9 +8457,9 @@
   },
   {
     "id": "1934528",
-    "totalpage": 403,
+    "totalpage": 404,
     "title": "[【B5】VUP综合讨论专楼]",
-    "lastedit": 1590113394,
+    "lastedit": 1590115080,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -8926,5 +8926,13 @@
     "lastedit": 1590027108,
     "category": "外野",
     "active": false
+  },
+  {
+    "id": "1936107",
+    "totalpage": 35,
+    "title": "[Vup冒菜／临时转型 S某事件临时讨论站]",
+    "lastedit": 1590115204,
+    "category": "虚拟主播区专楼",
+    "active": true
   }
 ]
