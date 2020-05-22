@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-22 08:04** 
+> ## **本文件最后更新于2020-05-22 12:04** 
 
 
 
@@ -7929,4 +7929,1320 @@ yhm真麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/015.png
 
 
 
-                                  
+
+
+-----
+
+####  第三惑星  
+##### 7952#       发表于 2020-5-22 08:09
+
+
+
+
+又刷屏又刷屏
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7953#       发表于 2020-5-22 08:25
+
+
+
+
+我被脑控力，唉，今晚有播的话sc夸夸她吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 7954#       发表于 2020-5-22 08:45
+
+
+
+ 本帖最后由 A2014720 于 2020-5-22 08:59 编辑 
+
+这个b啊<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">唉唉唉
+
+人的悲喜并不相通，我只知道她要掉粉
+
+syl明明楼友发病就要被痛批，她发病就有人护着，太残酷了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 7955#       发表于 2020-5-22 08:54
+
+
+
+
+掉吧掉吧，《通往discord群的第一步》
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7956#       发表于 2020-5-22 09:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">姐啊，吐苦水咱上个TC好不好，メンヘラ气场这么严重的推几连发，成功掉了一百多粉，大早上的低血压治好了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7957#       发表于 2020-5-22 09:05
+
+
+
+
+因为楼友发病很无聊
+她发病很可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 7958#       发表于 2020-5-22 09:14
+
+
+
+
+对咩姐来说这边几十万粉可能都没什么概念，掉一百粉无所谓吧
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7959#       发表于 2020-5-22 09:14
+
+
+
+
+粉丝数，有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+“正常波动”
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7960#       发表于 2020-5-22 09:17
+
+
+
+
+楼友发病的行为是贬低她
+她发病的行为是贬低自己
+高下立判
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 7961#       发表于 2020-5-22 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那她发病贬低楼友罢
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 7962#       发表于 2020-5-22 09:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">叹气
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7963#       发表于 2020-5-22 09:42
+
+
+
+
+会因为发动态多和吐苦水就取关的也大多是僵尸粉和一般通过吧，留着没啥用，甚至可能变成刷梗小鬼。就当清理一下，挺好的(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 7964#       发表于 2020-5-22 09:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">なんか、いいんじゃない
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7965#       发表于 2020-5-22 09:51
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-22 09:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">幸亏昨晚没看见
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">Yhm真麻烦，咱也不知道她烦什么，也不能真正帮她什么，看了也就只能毁了咱的心情
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">昨晚幸亏没看睡了个好觉
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7966#       发表于 2020-5-22 09:52
+
+
+
+
+不是我说你，不喜欢主播吐苦水取关了也很正常，你非说人家僵尸粉，这不是在安慰自己吗。我看nga说是看到了饭盒留言，又指责她搞区别对待
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7967#       发表于 2020-5-22 10:02
+
+
+
+
+?会因为吐苦水而取关的迟早也会因为别的什么小事比如刷屏而取关啊。说不定跟风点的关注，平时视频不看直播不看更别说打钱。那这跟僵尸粉有啥区别啊？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7968#       发表于 2020-5-22 10:08
+
+
+
+
+看了看官号播放量，平均10万不到，67万僵尸粉还挺绝望的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 7969#       发表于 2020-5-22 10:11
+
+
+
+
+前阵子还在B博提到快80w粉了，怎么就不在意b站粉丝数了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">只是没人告诉她把这当line用会掉粉
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 7970#       发表于 2020-5-22 10:17
+
+
+
+
+适当的透露出主播软弱的一面有助于养gachi
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 7971#       发表于 2020-5-22 10:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">请问有人试着告诉她信息刷屏容易导致取关的问题了吗？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7972#       发表于 2020-5-22 10:22
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-22 10:23 编辑 
+
+反正费劲涨粉丝数收入又不会跟着线性增长
+
+
+跟过来的阿B观众也不能说话让自己开心
+
+虽然做到现在这个状态如果还是经常性的不开心那确实只能说是自己的问题（）
+
+
+毕竟好像也不可能真的割舍掉啥跑去追寻真正的快乐，那剩下的事就只有和现状好好相处了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7973#       发表于 2020-5-22 10:31
+
+
+
+ 本帖最后由 yuanhang99 于 2020-5-22 10:34 编辑 
+
+一般观众应该不太喜欢这种胡乱撒黑泥的管人吧？喜欢樱花妹特有的不安的Gachi又被你mea杀的差不多了。如果只是想让自己开心那还是去做个TC主最适合她，但是很明显她还是想要更大的舞台的，所以才会时不时深夜发疯。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7974#       发表于 2020-5-22 10:33
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-22 10:40 编辑 
+
+真正的一般观众在“胡乱撒黑泥”之前可能会在她身上找到更多不讨人喜欢的地方，所以我觉得黑泥还算小事了……
+
+但现在更大的舞台又不是她自己说了算……
+
+
+不是，我也不觉得她真的完全是个追梦少女啊（）
+
+
+tc这种终归属于打钱麻烦各种意义上路子狭窄的平台，怎么可能完全退回去
+
+
+事实上与其说想在舞台上发光不如说是“只有这么干才能回报观众”的思路吧……
+
+
+我怎么觉得她根本诉求还是想被夸被哄着（）
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7975#       发表于 2020-5-22 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47512531&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-22 10:33</a>
+
+真正的一般观众在“胡乱撒黑泥”之前可能会在她身上找到更多不讨人喜欢的地方，所以我觉得黑泥还算小事了… ...</blockquote>
+还是有一般观众被工商，歌会吸引过来的。问题是她有没有认识到她两年前那套精神不安定RP已经不那么有效了。连着刷屏散布不安是真的要命。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7976#       发表于 2020-5-22 10:39
+
+
+
+
+不不，她也知道这么搞不对，要不怎么每次都发完再删<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 7977#       发表于 2020-5-22 10:40
+
+
+
+
+她发完病就删了
+所以才说楼友的发病真的很无聊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7978#       发表于 2020-5-22 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47512627&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-22 10:39</a>
+
+不不，她也知道这么搞不对，要不怎么每次都发完再删</blockquote>
+取关的可不会再加回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+你们老是说僵尸粉，问题这粉丝数可是实打实的成绩啊。你mea姐又没有P帮她策划提高粉丝活跃度，守着这些粉恰B站饭不好吗？毕竟收入。。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7979#       发表于 2020-5-22 10:43
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-22 10:47 编辑 
+
+那问题不就是掉的这些粉值多少收入了吗——根本不值多少收入啊
+
+希望麻麻的精神不要退化到时候变成润姨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+虽然有点像是黑，但我感觉她也该学着认真适应一下“好日子”了——不过谁知道别人有没有吐黑泥呢
+
+
+只能说“自己的抱怨被人看到”也是一种需求，不然自己记事本写了就好了，何必发出来
+
+
+大概接近“虽然打扰了别人而且自己也知道有问题，但还是想被用更好的态度对待”的这种单方面的期望吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 7980#       发表于 2020-5-22 10:44
+
+
+
+
+让你半夜不睡
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7981#       发表于 2020-5-22 10:45
+
+
+
+
+才醒，她说的不是最近都这样吗，我还是觉得应该是什么死宅邮箱里发了什么，在推上看到了什么，那个评论只是最后一根稻草吧。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7982#       发表于 2020-5-22 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47512678&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-22 10:43</a>
+
+那问题不就是掉的这些粉值多少收入了吗——根本不值多少收入啊</blockquote>
+就怕形成习惯，不过她都删了，应该已经发现了。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7983#       发表于 2020-5-22 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47512708&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-22 10:45</a>
+
+才醒，她说的不是最近都这样吗，我还是觉得应该是什么死宅邮箱里发了什么，在推上看到了什么，那个评论只是 ...</blockquote>
+我是看了VR的事突然有所感触。主播心态失衡想倒黑泥很正常，但倒错地方有时候真的能莫名其妙的炎上。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7984#       发表于 2020-5-22 10:49
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-22 10:51 编辑 
+
+主要还是从各种意义上现实都很绝望啊……你吐黑泥又不会真的有多少阿宅愿意对你态度软化一点
+
+
+或者说说白了你直球开口要钱都比让观众花心思哄你容易，真的（）
+
+大家宁可付出金钱可能都不愿意付出爱和精力了
+
+
+虽然如果真的认识到这一点变成冷无缺的话那肯定又会有不少人觉得没魅力了……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 7985#       发表于 2020-5-22 10:49
+
+
+
+
+只能说让所有人满意是不可能的，各种意义上
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 7986#       发表于 2020-5-22 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47512764&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-05-22 10:49:20</a>
+我是看了VR的事突然有所感触。主播心态失衡想倒黑泥很正常，但倒错地方有时候真的能莫名其妙的炎上。 ...</blockquote>我也是深有感触，不过是对于粉丝，我要为天狗正名。如果vjuan所有粉丝都和天狗一样，那么vjuan永远不会爆炸
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 7987#       发表于 2020-5-22 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47512764&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-22 10:49</a>
+我是看了VR的事突然有所感触。主播心态失衡想倒黑泥很正常，但倒错地方有时候真的能莫名其妙的炎上。 ...</blockquote>
+没事，你咩姐不是说还有个小号骂死宅吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7988#       发表于 2020-5-22 10:59
+
+
+
+ 本帖最后由 yuanhang99 于 2020-5-22 11:02 编辑 
+
+做不到让所有人满意让自己满意也可以。问题是小姑娘可能现在并不知道自己真正想要什么，接下来的路如何走。 不过看她迷茫然后做出自己选择，不断跌倒再爬起来才是追她的核心乐趣。
+
+只希望下一跤别把人摔没了就行。
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 7989#       发表于 2020-5-22 11:02
+
+
+
+
+这就是看其他姨所得不到的乐趣吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7990#       发表于 2020-5-22 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513005&amp;ptid=1929631" target="_blank">kenjjj 发表于 2020-5-22 11:02</a>
+
+这就是看其他姨所得不到的乐趣吗</blockquote>
+珍稀现在的啊咩，毕竟她有最好的兔姨当老师，最坏的苔姨当反面教材。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7991#       发表于 2020-5-22 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我到觉得等什么时候她能认认真真的办一系列像v骚，商谈之类的节目她才算真正的成长了。虽然你麻的杂谈力够高，但你从出道到现在除了杂谈唱歌就几乎没有专门属于自己的节目（请嘉宾商谈也就只有两期，节目特色也没有），企划力就没怎么展现过。
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">希望mea能成长到有自己独特的节目和想法
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 7992#       发表于 2020-5-22 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513123&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-22 11:09</a>
+
+珍稀现在的啊咩，毕竟她有最好的兔姨当老师，最坏的苔姨当反面教材。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也能顺劈苔姨？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7993#       发表于 2020-5-22 11:19
+
+
+
+
+企划力成不成长得又有啥关系啊，她歌新学了多少没看见吗。别以为练歌多容易吧。
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 7994#       发表于 2020-5-22 11:20
+
+
+
+
+呜呜呜，mea能成长到今天这样，都是自己一步步从anti厄介炎上中抗过来的，你咩姐不就是主播和粉丝一起成长的最好例子吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 7995#       发表于 2020-5-22 11:20
+
+
+
+
+所以其实应该有人告诉她大号刷太多不安容易掉粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 7996#       发表于 2020-5-22 11:26
+
+
+
+
+这么说在她不安的时候会以为“你的自己心情怎么样粉丝根本不想知道也不想安慰，你就准备直播不就行了，一天天甩个脸给谁看呢”，你觉得应该吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我是觉得不会措辞不会读空气就不要提意见，即使是和朋友相处的时候也是这样啊。
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 7997#       发表于 2020-5-22 11:28
+
+
+
+
+垫酱的成长<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  聪明墨菲特  
+##### 7998#       发表于 2020-5-22 11:30
+
+
+
+
+都是推特营业，都是团建，都能增加粉丝浓度，融不进粉丝群体的不是你咩姐的目标群体
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 7999#       发表于 2020-5-22 11:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">天天杂谈和唱歌几乎不就是个tc主
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">唱歌进步也没有好的混音帮她混，做pv，外人哪看得见她的进步。参加别人节目帮别人暖场，不就是你麻现在的情况吗。要涨粉吸观众企划力还是很重要的。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8000#       发表于 2020-5-22 11:31
+
+
+
+
+不是你们是不是都忘了人家只是个不到二十的小姑娘啊(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8001#       发表于 2020-5-22 11:32
+
+
+
+
+异议，组长企划力高不高？可惜在anmr
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8002#       发表于 2020-5-22 11:34
+
+
+
+
+没看组长订阅，是不是已经反超了
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 8003#       发表于 2020-5-22 11:34
+
+
+
+
+有些感慨新老粉丝交替 大概是真的好起来了吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8004#       发表于 2020-5-22 11:35
+
+
+
+
+沒組長現在anmr早涼了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8005#       发表于 2020-5-22 11:36
+
+
+
+<blockquote>Cla0221 发表于 2020-5-22 11:34
+没看组长订阅，是不是已经反超了</blockquote>
+咩姐超组长很久了，不过最近组长涨得也很快
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8006#       发表于 2020-5-22 11:36
+
+
+
+
+每项都去和强的人比，是要推个逢魔时王吗
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8007#       发表于 2020-5-22 11:38
+
+
+
+
+我看这只是垫子竞技想要出一个冠军。。。。
+都是垫脚石，何必呢
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8008#       发表于 2020-5-22 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513555&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-22 11:34</a>
+
+没看组长订阅，是不是已经反超了</blockquote>
+兔妈妈哭给你看啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，超了很久了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8009#       发表于 2020-5-22 11:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">是anmr里的组长难涨粉，不是组长难涨粉。
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">她的v骚挺好看的，每期都有明确的主题，并且本人能够很好的引导话题的发展
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你麻到那种程度可能要花个大几年
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8010#       发表于 2020-5-22 11:41
+
+
+
+
+大概是出于某些奇怪的竞争想法吧，对个人势主播来说咩姐做的已经很好了，而且能兼顾**b站。曾经的数据和名次无所谓的，该有的有了就好，咩姐自己找定位和动力更重要
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 8011#       发表于 2020-5-22 11:41
+
+
+
+ 本帖最后由 yuanhang99 于 2020-5-22 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513528&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-22 11:32</a>
+
+异议，组长企划力高不高？可惜在anmr</blockquote>
+组长明显是被ANMR拖累了吧？以她的能力，在木口至少也是个皇。连着两次毕业丑闻还要拉扯后辈，现在每次企划还是能涨1千左右粉。她问题是ANMR名声臭了，日常几乎没法吸粉。
+
+ANMR什么时候死啊？只靠吸组长血也不是事儿啊。
+
+
+她真要毕业转生估计SC，会员都不带变的。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8012#       发表于 2020-5-22 11:43
+
+
+
+
+稍微提提得了别没完了，不觉得现在这样和去年那楼越来越像了？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8013#       发表于 2020-5-22 11:44
+
+
+
+
+气运罢了，你圈从来都不是能者上位，anmr的组长难涨粉，个人势的mea就好涨粉吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8014#       发表于 2020-5-22 11:47
+
+
+
+
+你楼什v什粉又一力证
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 8015#       发表于 2020-5-22 11:49
+
+
+
+
+有时间云p不如打钱（被打飞）
+mea承受能力很强了,虽然会不安，但是基本扛得住。
+倒不如说，以前她难受是找谁说话求安慰的来着...
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 8016#       发表于 2020-5-22 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513707&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-22 11:44</a>
+
+气运罢了，你圈从来都不是能者上位，anmr的组长难涨粉，个人势的mea就好涨粉吗 ...</blockquote>
+气运是一部分，没有能力是无法持久的。Mea刚出道的时候可是被认为是天才直播者的。毕竟首播实在是太强了。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 8017#       发表于 2020-5-22 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513764&amp;ptid=1929631" target="_blank">雪代suzuno 发表于 2020-5-22 11:49</a>
+
+有时间云p不如打钱（被打飞）
+
+mea承受能力很强了,虽然会不安，但是基本扛得住。
+
+倒不如说，以前她难受是找 ...</blockquote>
+Miu，Aqua，海苔，黄兔子 （774）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8018#       发表于 2020-5-22 11:53
+
+
+
+
+那么这周的努力计划有吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+今晚两动明后有无消息<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8019#       发表于 2020-5-22 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513779&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-5-22 11:49</a>
+气运是一部分，没有能力是无法持久的。Mea刚出道的时候可是被认为是天才直播者的。毕竟首播实在是太强了 ...</blockquote>
+是吗，按我的标准，你圈想要靠能力持久，99%都不合格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8020#       发表于 2020-5-22 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513764&amp;ptid=1929631" target="_blank">雪代suzuno 发表于 2020-5-22 11:49</a>
+有时间云p不如打钱（被打飞）
+mea承受能力很强了,虽然会不安，但是基本扛得住。
+倒不如说，以前她难受是找 ...</blockquote>
+她在粉丝面前这种事也没少干
+
+边打死喷乱涂边喷某个中国粉丝，要多郁闷有多郁闷；咕咕了大姐联动以后深更半夜发推想隐退；有段时间推特老是发一些真假难辨又不好笑的作践自己的笑话<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8021#       发表于 2020-5-22 11:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513558&amp;ptid=1929631" target="_blank">Arccueid 发表于 2020-5-22 11:34</a>
+有些感慨新老粉丝交替 大概是真的好起来了吧
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+很多人小号了吧，发情几天王都活着的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8022#       发表于 2020-5-22 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">没有箱和资源只有歌力（不算顶尖）和杂谈力，怎么好涨粉
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但你麻如果能够利用好她出道早的人脉优势去办好节目拉人玩，不是挺好的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">所以办一节目才是你麻现在成长最好的方法
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8023#       发表于 2020-5-22 11:57
+
+
+
+
+那就是苔姨了，我还是挺认同看着小姑娘成长很有意思
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 8024#       发表于 2020-5-22 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513851&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-22 11:53</a>
+
+是吗，按我的标准，你圈想要靠能力持久，99%都不合格</blockquote>
+毕竟套上皮干什么都会有趣3分，所谓的能力是吸引宅宅打钱的能力，不是唱歌好听，会弹琴就算有能力了。专业的v管人多了，大都半死不活。本质魅宅的行业就这样。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8025#       发表于 2020-5-22 12:01
+
+
+
+
+比去年516好多了，别太丧也别太冠军粉
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                                
