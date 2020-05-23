@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-22 10:30** 
+> ## **本文件最后更新于2020-05-23 14:01** 
 
 
 
@@ -2273,4 +2273,572 @@ BbsImg_9951571866222_1590070546_s_169416_o_w_656_h_1024_14562.webp.jpg
 
 
 
-                                             
+
+
+-----
+
+####  caster  
+##### 52623#       发表于 2020-5-22 10:41
+
+
+
+
+阿普这攻击方式，没见过的被他阴一次很正常吧
+
+
+泡泡岛唯一【干翻】过黄猿的超新星。
+
+
+
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 52624#       发表于 2020-5-22 11:07
+
+
+
+
+五黄的常态下限有多烂早在PH岛就领教过了吧，所以说当初常态脸接卡二技能几个小时被黑的那么惨真是活该
+
+四档就不一样了几乎只会被硬实力碾压，当初明哥控常态路飞跟玩一样开了4档直接被挣开了
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52625#       发表于 2020-5-22 11:23
+
+
+
+
+尾田这套路我也有点烦了，索隆精于武装色被阴可以理解，因为他见闻色不足以预知，但是五黄你个FIVE跟卡二学的预知学到狗肚子里去了？
+
+
+
+
+
+
+
+-----
+
+####  团结奋进碇真嗣  
+##### 52626#       发表于 2020-5-22 12:03
+
+
+
+
+锦卫门衣服破损就会消失的设定呢
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 52627#       发表于 2020-5-22 12:51
+
+
+
+<blockquote>光明寺茉衣子 发表于 2020-5-22 11:23
+尾田这套路我也有点烦了，索隆精于武装色被阴可以理解，因为他见闻色不足以预知，但是五黄你个FIVE跟卡二学 ...</blockquote>
+阿普这个内部引爆就是克预知吧 你没搞清楚他的攻击手段就算预知到爆炸也不知道怎么躲
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 52628#       发表于 2020-5-22 12:56
+
+
+
+ 本帖最后由 Yeaha123 于 2020-5-22 13:00 编辑 
+
+表现阿普实力有必要把路飞变成白眼吗，实在太过了，就好像刚要展现热血沸腾的最终战，突然从头上被泼了盘冷水
+
+
+
+
+
+
+
+-----
+
+####  蓝雉  
+##### 52629#       发表于 2020-5-22 12:59
+
+
+
+
+音波攻击怎么躲啊
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 52630#       发表于 2020-5-22 13:00
+
+
+
+
+其实我本来是想洗的但看完全图感觉扯淡感反而上升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  晓寒  
+##### 52631#       发表于 2020-5-22 13:05
+
+
+
+
+不想看腾讯版的话现在去哪里看呢？
+
+
+
+
+
+
+
+-----
+
+####  yeluffy  
+##### 52632#       发表于 2020-5-22 14:57
+
+
+
+
+毕竟是2年前黄猿也中过的招式
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52633#       发表于 2020-5-22 15:34
+
+
+
+
+雷鸣八卦前一话凯多也被路飞三档打到白眼，怎么说？
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52634#       发表于 2020-5-22 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47513998&amp;ptid=98922" target="_blank">团结奋进碇真嗣 发表于 2020-5-22 12:03</a>
+
+锦卫门衣服破损就会消失的设定呢</blockquote>
+没看图透吗？伪装没了，变回之前的衣服了。
+
+
+
+
+
+
+
+-----
+
+####  永远的飞去来  
+##### 52635#       发表于 2020-5-22 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47514964&amp;ptid=98922" target="_blank">晓寒 发表于 2020-05-22 13:05:10</a>
+不想看腾讯版的话现在去哪里看呢？</blockquote>贴吧大汉化时代
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  永远的飞去来  
+##### 52636#       发表于 2020-5-22 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47514761&amp;ptid=98922" target="_blank">renkan119 发表于 2020-05-22 12:51:20</a>
+阿普这个内部引爆就是克预知吧 你没搞清楚他的攻击手段就算预知到爆炸也不知道怎么躲 ...</blockquote>卡二可是直接用见闻色预测到了四档会加强力量，顺便隔空吐槽了一下明哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52637#       发表于 2020-5-22 19:34
+
+
+
+
+基德能不能整点时髦的招数啊，老是这招好笨啊
+
+
+
+
+
+
+
+-----
+
+####  晓寒  
+##### 52638#       发表于 2020-5-22 20:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47517397&amp;ptid=98922" target="_blank">永远的飞去来 发表于 2020-5-22 16:20</a>
+
+贴吧大汉化时代
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+海贼吧搜不到看得下去的啊……搜到的尽是些扎眼睛还不如疼迅的……
+
+
+
+
+
+
+
+-----
+
+####  uponutopia  
+##### 52639#       发表于 2020-5-22 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47520767&amp;ptid=98922" target="_blank">晓寒 发表于 2020-5-22 20:15</a>
+
+海贼吧搜不到看得下去的啊……搜到的尽是些扎眼睛还不如疼迅的……</blockquote>
+为什么你会觉得民间汉化能比TX强的<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">黑TX喜闻乐见但不能失了基本的判断力吧 看英文版也是不错的选择
+
+
+
+
+
+
+
+-----
+
+####  晓寒  
+##### 52640#       发表于 2020-5-22 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47520956&amp;ptid=98922" target="_blank">uponutopia 发表于 2020-5-22 20:30</a>
+
+为什么你会觉得民间汉化能比TX强的黑TX喜闻乐见但不能失了基本的判断力吧 看英文版也是不错的选择 ...</blockquote>
+受不了人名翻译
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52641#       发表于 2020-5-22 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47520767&amp;ptid=98922" target="_blank">晓寒 发表于 2020-5-22 20:15</a>
+海贼吧搜不到看得下去的啊……搜到的尽是些扎眼睛还不如疼迅的……</blockquote>
+可是你周五看不到腾讯的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小黑鱼  
+##### 52642#       发表于 2020-5-22 21:27
+
+
+
+
+原来是晕眩几秒，不过还是够丢人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anubis_s08  
+##### 52643#       发表于 2020-5-22 22:36
+
+
+
+
+挨打正常，晕几秒过分了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 52644#       发表于 2020-5-23 09:30
+
+
+
+
+虽说是剧情需要，虽说只是晕了几秒，但还是有点替卡二不值<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我不是大叔  
+##### 52645#       发表于 2020-5-23 10:28
+
+
+
+
+看完，好像也没啥受不了的，路飞一路过来从来不是那种片叶不沾身的高人派头，被陌生招式揍两下也没啥意外的
+
+—— 来自 HUAWEI FRD-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  半月霜  
+##### 52646#       发表于 2020-5-23 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来凯多才是四皇之首
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52647#       发表于 2020-5-23 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47526618&amp;ptid=98922" target="_blank">半月霜 发表于 2020-05-23 10:48:32</a>
+看来凯多才是四皇之首</blockquote>明显是吧，手下要管理有管理有颜值有颜值，统一着装等级分明升职条件明确不搞空降，相比凯多其他海贼团不过是草台班子/孤儿院/富二代旅游团/追星后援会/海底观光组织罢了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 52648#       发表于 2020-5-23 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47526830&amp;ptid=98922" target="_blank">理六 发表于 2020-5-23 11:10</a>
+
+明显是吧，手下要管理有管理有颜值有颜值，统一着装等级分明升职条件明确不搞空降，相比凯多其他海贼团不过 ...</blockquote>
+还有个黑胡子团呢
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 52649#       发表于 2020-5-23 11:36
+
+
+
+
+凯多龙形态被路飞见面杀不一样打到翻白眼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+尾田估计就是习惯这么表现角色意外吃瘪
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52650#       发表于 2020-5-23 12:00
+
+
+
+
+跟罗杰白胡子一样强的御田在初见屏障的时候也吃瘪了这没什么吧。
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52651#       发表于 2020-5-23 12:01
+
+
+
+
+我觉得就算罗杰卡普直捣洛克斯贼巢的时候碰到阿普来一下也是一个晕一个被放血，哈哈
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52652#       发表于 2020-5-23 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47526830&amp;ptid=98922" target="_blank">理六 发表于 2020-5-23 11:10</a>
+
+明显是吧，手下要管理有管理有颜值有颜值，统一着装等级分明升职条件明确不搞空降，相比凯多其他海贼团不过 ...</blockquote>
+所以凯多才说超新星之流不过是海盗过家家罢了，和凯多团一比要勇没勇、要谋没谋，草帽团要不是仗着主角光环，和基德团下场有什么不同？
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 52653#       发表于 2020-5-23 12:40
+
+
+
+<blockquote>理六 发表于 2020-5-23 11:10
+明显是吧，手下要管理有管理有颜值有颜值，统一着装等级分明升职条件明确不搞空降，相比凯多其他海贼团不过 ...</blockquote>
+明星天团即将不敌草台班子，有内味了
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52654#       发表于 2020-5-23 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47527008&amp;ptid=98922" target="_blank">powerpyc 发表于 2020-05-23 11:30:35</a>
+还有个黑胡子团呢</blockquote>黑团比较像洛克斯团，大家都是为了自己的目标多，没有明确纪律和伙伴情
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52655#       发表于 2020-5-23 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47527460&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-05-23 12:05:55</a>
+所以凯多才说超新星之流不过是海盗过家家罢了，和凯多团一比要勇没勇、要谋没谋，草帽团要不是仗着主角光 ...</blockquote>草帽团好的一点是伙伴情深，异常团结，所有人都以五皇的目标为第一目标，拼尽全力
+这种草台班子放现代社会创业也能成功，就是五皇太莽了，擦屁股大师罗等人表示很心累
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                            
