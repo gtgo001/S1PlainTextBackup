@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-23 02:04** 
+> ## **本文件最后更新于2020-05-23 16:04** 
 
 
 
@@ -14103,4 +14103,555 @@ u1s1去年我还是萌萌贴贴人，自动被泥潭和岛带沟里就再也回�
 
 
 
-                      
+
+
+-----
+
+####  yuanhang99  
+##### 8318#       发表于 2020-5-23 02:20
+
+
+
+
+日本马上要发售三体2了，不来个B站同时视听我的三体蹭热度吗？你咩姐可能嫌麻烦，冲国特攻yhm可能会搞。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8319#       发表于 2020-5-23 02:24
+
+
+
+
+草,你指望你咩姐看这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8320#       发表于 2020-5-23 02:27
+
+
+
+
+犬鸣隧道这游戏的确不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吓人的地方也就几处jump scare，流程都在到处找各种道具，而且还老出bug。
+
+海苔男都把她自己打犬鸣隧道的档给删了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 8321#       发表于 2020-5-23 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47524642&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-5-23 02:24</a>
+
+草,你指望你咩姐看这个</blockquote>
+我觉得吸粉的效果应该是一等一的。不过狗妈，夸和猫猫感觉更有可能做这种企划。
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8322#       发表于 2020-5-23 02:36
+
+
+
+
+苔苔知道节目效果不行，自己都删直播档了的游戏还拿来和咩联动，真坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8323#       发表于 2020-5-23 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47524697&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-5-23 02:36</a>
+
+苔苔知道节目效果不行，自己都删直播档了的游戏还拿来和咩联动，真坏 ...</blockquote>
+不会真的有人是冲着游戏去的吧，不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+mea不就是节目效果吗
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8324#       发表于 2020-5-23 02:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47524704&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-23 02:38</a>
+
+不会真的有人是冲着游戏去的吧，不会吧不会吧
+
+mea不就是节目效果吗 ...</blockquote>
+就是这个意思啊，无聊到删档的游戏拿出来联动就是知道某人一定会成为节目效果，真坏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 8325#       发表于 2020-5-23 05:01
+
+
+
+
+看了看原来不止一个人有梁木啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只不过我是在nga被逼疯了之后转战的s1。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8326#       发表于 2020-5-23 06:04
+
+
+
+
+犬鸣隧道好烂的。。。
+来点带剧情的啊。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8327#       发表于 2020-5-23 06:52
+
+
+
+
+我也觉得犬鸣隧道烂...
+这种低质量的恐怖游戏之前咋这么多v播
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8328#       发表于 2020-5-23 08:46
+
+
+
+
+问就是抄作业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8329#       发表于 2020-5-23 09:35
+
+
+
+
+b站好像又有新的斗虫功能了，叫“起飞币”，貌似需要完成任务获得，可以拿到视频和直播推广。而且还是全站斗虫，不知道对vtuber这块有多少影响。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8330#       发表于 2020-5-23 09:58
+
+
+
+
+全站斗虫还是交给那些五百万起步的up主吧，跟我咩咩有什么关系(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8331#       发表于 2020-5-23 10:06
+
+
+
+
+我记得原来不是说耐久要那个便利店恐怖游戏吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8332#       发表于 2020-5-23 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">晚上的游戏联动完全可以关闭画面，听声音，就是所有节目效果
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8333#       发表于 2020-5-23 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47525973&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-5-23 09:35</a>
+b站好像又有新的斗虫功能了，叫“起飞币”，貌似需要完成任务获得，可以拿到视频和直播推广。而且还是全站 ...</blockquote>
+在哪看来着
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8334#       发表于 2020-5-23 10:47
+
+
+
+
+靠，半夜0点，神经病啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8335#       发表于 2020-5-23 10:49
+
+
+
+
+看不了，看不了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 8336#       发表于 2020-5-23 11:07
+
+
+
+
+刚登上steam就给我推送了个弹道射击游戏，既然她玩过猫咪战车是不是可以试试这个，不过没日文就是了
+
+<img src="https://img.saraba1st.com/forum/202005/23/110655rmdtezle61xe8aam.jpg" referrerpolicy="no-referrer">
+
+
+<strong>TIM截图20200523110555.jpg</strong> (72.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-23 11:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8337#       发表于 2020-5-23 11:07
+
+
+
+
+双休，勉强能熬<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8338#       发表于 2020-5-23 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47526532&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-23 10:40</a>
+在哪看来着</blockquote>
+https://www.bilibili.com/read/cv6144204
+从一篇专栏看的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8339#       发表于 2020-5-23 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47526788&amp;ptid=1929631" target="_blank">鷹書たかしょ 发表于 2020-5-23 11:07</a>
+刚登上steam就给我推送了个弹道射击游戏，既然她玩过猫咪战车是不是可以试试这个，不过没日文就是了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">她的丈育水平不会玩无日语游戏的
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 8340#       发表于 2020-5-23 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47526788&amp;ptid=1929631" target="_blank">鷹書たかしょ 发表于 2020-5-23 11:07</a>
+
+刚登上steam就给我推送了个弹道射击游戏，既然她玩过猫咪战车是不是可以试试这个，不过没日文就是了</blockquote>
+没日文她玩的明白吗。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 8341#       发表于 2020-5-23 14:14
+
+
+
+ 本帖最后由 呓亘 于 2020-5-23 14:15 编辑 
+
+你咩姐其实可以选一些像魔女之家 狂父这样的日式恐怖小游戏 再不济....玩第五人格总不会被吓到了吧
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8342#       发表于 2020-5-23 14:14
+
+
+
+
+她热门游戏都不知道去蹭，说冷门游戏有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8343#       发表于 2020-5-23 14:17
+
+
+
+
+魔女之家可以有的，感觉十一区知名度也有。节目效果也有。游戏也还行。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8344#       发表于 2020-5-23 14:26
+
+
+
+
+她的脑子和游戏力玩的来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8345#       发表于 2020-5-23 14:26
+
+
+
+ 本帖最后由 framita 于 2020-5-23 14:28 编辑 
+
+那个被猴子追杀跑迷宫的游戏咋样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我当初看国内主播播被吓到过
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8346#       发表于 2020-5-23 14:30
+
+
+
+
+那个垃圾游戏还是算了吧，通关时间长的要死，还老是jumpscare吓你，她敢玩就怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8347#       发表于 2020-5-23 14:31
+
+
+
+
+有一说一，按她的胆子最多就玩两关，时间不长的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8348#       发表于 2020-5-23 16:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讨论那么多，她就几乎不玩恐怖游戏
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8349#       发表于 2020-5-23 16:04
+
+
+
+
+把恐怖去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
