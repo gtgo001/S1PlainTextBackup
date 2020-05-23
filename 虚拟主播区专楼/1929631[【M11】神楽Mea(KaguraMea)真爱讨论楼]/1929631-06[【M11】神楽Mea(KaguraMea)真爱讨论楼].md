@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-23 16:04** 
+> ## **本文件最后更新于2020-05-23 22:08** 
 
 
 
@@ -14654,4 +14654,635 @@ https://www.bilibili.com/read/cv6144204
 
 
 
-                     
+
+
+-----
+
+####  Mr.shelter  
+##### 8350#       发表于 2020-5-23 16:16
+
+
+
+
+今天就0点一动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8351#       发表于 2020-5-23 16:25
+
+
+
+
+下周才恢复直播，这周没事的话应该不会加播了
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 8352#       发表于 2020-5-23 16:28
+
+
+
+
+期待下周的杂谈，该整点活了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8353#       发表于 2020-5-23 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">你麻那次棉花糖直播是不是不搞了，亏我还挺期待的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 8354#       发表于 2020-5-23 17:04
+
+
+
+
+估计她忘了...找时机提醒她一下吧……
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8355#       发表于 2020-5-23 18:42
+
+
+
+
+话说现在是不能转播吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 8356#       发表于 2020-5-23 18:44
+
+
+
+
+可能不是不搞了
+
+而是她现在的认知里那天并没有鸽，已经搞过了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8357#       发表于 2020-5-23 18:47
+
+
+
+
+不管忘了还是没收集到合适的棉花糖，总之以后想搞再搞就是了，没必要以补上的名义
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 8358#       发表于 2020-5-23 18:56
+
+
+
+
+没有有趣的棉花糖 算不算是观众的问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8359#       发表于 2020-5-23 19:06
+
+
+
+
+这个也没法解决啊.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8360#       发表于 2020-5-23 19:09
+
+
+
+
+15万纪念不是拿了棉花糖吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8361#       发表于 2020-5-23 19:28
+
+
+
+
+说不定会和传说中的看房直播一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在时隔的多年后用不同的形式播出来
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8362#       发表于 2020-5-23 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">那记得几年后@时雨rain来拉回几个月后退坑的我回来看她鸽了几年的棉花糖回
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8363#       发表于 2020-5-23 19:35
+
+
+
+
+新的熟肉效果不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8364#       发表于 2020-5-23 19:36
+
+
+
+
+不是并在15万了么？话说棉花糖回官组什么时候能烤啊，还是说已经d到对你咩没了热情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8365#       发表于 2020-5-23 19:45
+
+
+
+
+怎么还在顺劈官组啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 8366#       发表于 2020-5-23 19:49
+
+
+
+
+官组甚至没有激光贴贴麻将，热情溢出了好吗
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8367#       发表于 2020-5-23 19:50
+
+
+
+
+对哦lol也没有激光。就贴贴这方面好起来了。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8368#       发表于 2020-5-23 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烤贴贴肉为什么不去烤最潮最in的tmsk跑来烤meaqua干嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烤了还被人说不烤还被人说，人类真的很怪啊
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8369#       发表于 2020-5-23 19:56
+
+
+
+
+只要不烤肉就不會被車偏向烤肉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8370#       发表于 2020-5-23 20:15
+
+
+
+
+最近两天的投稿一个联合投的火烈鸟现在还在首页上，两个520b限熟肉切片出得也挺快的
+
+就此而论的话没什么好挑剔的吧，不要老是没事就顺劈啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cla0221| + 1|就是啊就是啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8371#       发表于 2020-5-23 21:06
+
+
+
+
+bsyl，今天看爱丽丝组的pvz新肉时才想起当时爱丽丝是用ddd在直播的。应该是有什么能够在家里使用ddd的设备？
+
+
+正式3d回后还可以在平时她在家里的直播中看见会动的麻的可能性微存？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8372#       发表于 2020-5-23 21:12
+
+
+
+
+家用3d捕捉应该是用iphone，不过木口和彩虹都是有自家的软件的，她不知道该怎么弄
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8373#       发表于 2020-5-23 21:12
+
+
+
+
+一来不知道这玩意儿多少钱，你咩姐有没有渠道搞到，二来她说不想被看见各种各样的小动作，三来现在3d披露都没个准儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8374#       发表于 2020-5-23 21:15
+
+
+
+
+iphone现在摄像头支持结构光和雷达测距，应该家用3d都是基于这个原理，对摇头，抬手之类的动作进行捕捉的。
+但是这女人连眼球捕捉都不开，指望她去升级模型几乎是不可能的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8375#       发表于 2020-5-23 21:18
+
+
+
+
+她现在这个皮性能挺高得，她都没怎么用
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8376#       发表于 2020-5-23 21:18
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-23 21:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话，比起家用3d我更想看新衣服
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不用井皇画的
+Syl<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不会真有人觉得井皇的live2d做的很好吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">有的话说一声我删了
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8377#       发表于 2020-5-23 21:20
+
+
+
+
+那阿律和大松鼠的3D怎么搞的……
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8378#       发表于 2020-5-23 21:21
+
+
+
+
+算比较用心得了，小技能很多，井皇画风不是特别行，但是设计方面还不错
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8379#       发表于 2020-5-23 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47533434&amp;ptid=1929631" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-23 21:20</a>
+
+那阿律和大松鼠的3D怎么搞的……</blockquote>
+好像就是阿律做的吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8380#       发表于 2020-5-23 21:22
+
+
+
+
+初配信提到的“生气的表情”到现在都没有出现<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8381#       发表于 2020-5-23 21:30
+
+
+
+
+新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8382#       发表于 2020-5-23 21:30
+
+
+
+
+等吧，等你咩变成姨就能看到了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8383#       发表于 2020-5-23 21:37
+
+
+
+
+那可能还不如她那天脑子一抽不套皮了可能性更大点（不是）
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8384#       发表于 2020-5-23 21:38
+
+
+
+
+家用3d目前看来还是有一定门槛的，但最主要还是心态问题
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8385#       发表于 2020-5-23 21:40
+
+
+
+
+她的驾驶技术当年算是一大看点,比不上葵皇这种顶级也是一流了
+
+现在反而用得少了,歌回的时候有时候感觉连捕捉都没了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8386#       发表于 2020-5-23 21:49
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-23 22:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那还是别披层皮了，早看mea不顺眼了
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">对不起，我还是爱着mea的
+
+
+
+
+
+                    
