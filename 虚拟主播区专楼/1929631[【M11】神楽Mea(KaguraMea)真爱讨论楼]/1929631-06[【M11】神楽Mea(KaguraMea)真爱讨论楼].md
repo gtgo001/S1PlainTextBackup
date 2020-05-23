@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-24 02:05** 
+> ## **本文件最后更新于2020-05-24 04:03** 
 
 
 
@@ -16788,4 +16788,455 @@ CN你juan的挖掘机群里有这么扭曲的吗？有无内鬼出来讲下
 
 
 
-                 
+
+
+-----
+
+####  A2014720  
+##### 8475#       发表于 2020-5-24 02:07
+
+
+
+
+至少有一次直播可以看了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8476#       发表于 2020-5-24 02:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过也是，如果咩姐中之人是宅圈公主那和现在大部分的v又有什么区别，几乎什么都没变
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">所以如果是假的我希望是真的，如果是真的那就是真的好，可以有新的麻图
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8477#       发表于 2020-5-24 02:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那你mea的粉丝分三六九等，一边平等对待一边精品优选的傻逼行为就坐实了，你愿意吗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8478#       发表于 2020-5-24 02:20
+
+
+
+
+感觉最远的距离就是完全理解不了“被人哄”的精神需求了
+
+
+大概是从小到大没怎么被肯定过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8479#       发表于 2020-5-24 02:20
+
+
+
+
+都怪这些迷惑人，她现在可能有点ptsd了，怕被说对粉丝不是一视同仁
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 8480#       发表于 2020-5-24 02:22
+
+
+
+
+下个礼拜直播看完再YY呗，她说得越多你们可以发散的才越多，现在搁这空气扯JB淡吗
+
+
+回去又看了遍，还是很不爽。我心目中的mea还是会因为“大人的说教和做法非常讨厌”而和井皇吵架并且直播时也拒绝道歉的人。而她现在却需要向苔苔倾诉并且听着正确的“大人的道理”来获取精神支持。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8481#       发表于 2020-5-24 02:23
+
+
+
+
+你们这研究方向也太奇怪了
+真么喜欢摁着你mea姐在说谎的方向发散是自己弱智，还是把你mea姐当弱智<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8482#       发表于 2020-5-24 02:24
+
+
+
+
+这种心态不是应该说明从小娇生惯养吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+若真是从小缺爱，这种程度只会一笑而过吧
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8483#       发表于 2020-5-24 02:27
+
+
+
+
+开挖掘机这种行为显然是新参行为，挖了还跳脸问一般是日本那边的习惯，说明最近你咩姐在本土好起来了，来了一波本土新粉，都是好事儿，不知道会不会复刻一波"日本人心眼小"（虽然现在估计是不敢的
+
+
+虽然前段时间确实有个头像名字都和mea一模一样的推特号一直在发东西（当然现在名字改了，不过没锁），还是蛮容易引起误会的
+
+
+
+顺手复盘一波510当天发生的事情
+
+1、自搜看到一堆黑屁
+
+2、不能对观众说的很伤心的事情
+
+3、某位老哥打mea的tag发推“不想再看到XX了，好想死”
+
+4、被人饭盒私信，拿着挖错的上锁推特问是不是本人，并表示自己很失望
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那一天的破事可真多
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8484#       发表于 2020-5-24 02:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然苔苔很多观点不太行，但好歹要分具体情况具体讨论，针对mea这个510发生的事情，苔苔说的这些还真没啥问题，而且也算不上什么“大人的说教”，换句话来说，苔苔说的这段话换了阿夸也一样能说的出来，你咩姐因为510而面临的问题不是什么牵扯到各种“大人的理由”而不得不屈服的事情，只是一些鸡毛蒜皮的观众跳脸的小事，只是因为这种事太莫名其妙了导致你咩姐自己钻了牛角尖而已
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8485#       发表于 2020-5-24 02:33
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-5-24 02:40 编辑 
+
+行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但我觉得其实可行性不高来着
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8486#       发表于 2020-5-24 02:36
+
+
+
+ 本帖最后由 路人子 于 2020-5-24 02:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这种心态跟娇生惯养可没什么关系，这种心态就是自己明明没有做错事，却被自己信赖的人数落一通的感觉差不多，只是一种很普遍的受了委屈的心态罢了
+
+
+（就像你跟你哥们开黑，你细节都做的非常好，结果你哥们因为大姨夫来了，过来碰面就是一句“你今天怎么这么鸡儿菜啊”，你反驳一句结果你哥们还跟你杠起来了，的感觉差不多
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8487#       发表于 2020-5-24 02:38
+
+
+
+ 本帖最后由 路人子 于 2020-5-24 02:54 编辑 
+
+顺便一提，你咩姐被推特干爆了这么多次，事到如今还在推特上开着上锁号进行活跃的可能性已经几乎为零了，不如说就算会活跃也估计没有继续选择推特这个平台，就算要活跃更大的可能性也是转入discord群，所以事到如今爆出来什么疑似推特已经可以基本确认是伪物了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然情强anti哥不吝赐教，在下还是很乐意能看到拆腻子情强anti哥打脸的
+
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8488#       发表于 2020-5-24 02:48
+
+
+
+ 本帖最后由 无限舰制 于 2020-5-24 02:53 编辑 
+
+我前面是在说我自己啊.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不太能理解做什么事一定要得到别人肯定才会去做的心态
+
+
+当然心态问题也不能强求，但像以前说的一样，总归最后要变成能无视一部分东西的强健心态才行
+
+
+——至于怎么保持活力与开放性，不要变成只是苔姨那种单方面训观众的状态，那就是另一回事了
+
+
+希望这份职业做到最后，依然能说出来，“虽然互相都给对方添了很多麻烦，但我还是爱着观众们”这样的话吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然要是说这种努力找别人优点，被挑刺了也不在乎的正面思考有点傻那我也无话可说
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8489#       发表于 2020-5-24 02:57
+
+
+
+ 本帖最后由 路人子 于 2020-5-24 03:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+而且你咩姐跟苔苔最本质的差别事到如今还看出不来吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8490#       发表于 2020-5-24 03:02
+
+
+
+
+这和那个龙夸对谈类似，心态上的事多半早就调整好了，直播里聊这么一出主要是说给观众听的
+
+就凭之前那次整蛊的演技，演得像真的一样问题不大
+
+真是从头哄到好的话怎么可能几分钟完事
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8491#       发表于 2020-5-24 03:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47536646&amp;ptid=1929631" target="_blank">路人子 发表于 2020-5-24 02:57</a>
+你咩姐可不是只向苔苔取经的，黄兔子那边你咩姐也没少咨询，所以担心你咩姐复刻成苔苔我觉得没什么 ...</blockquote>
+话说你觉得她俩区别是啥啊，我看她俩不少地方还蛮像的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我这水平也就隔云看雾了所以有点好奇
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8492#       发表于 2020-5-24 03:09
+
+
+
+ 本帖最后由 路人子 于 2020-5-24 03:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47536665&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-24 03:04</a>
+
+话说你觉得她俩区别是啥啊，我看她俩不少地方还蛮像的不过我这水平也就隔云看雾了所以有点好奇 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就拿刚刚的犬鸣隧道举例，你咩姐作为玩家，从头到尾被苔苔指示，苔苔也是爽了一把指示厨从头当到尾，你觉得如果这两个人互换一下位置，还会一样吗？这里就是差别
+
+
+简单来讲就是苔苔是S，而你咩姐是个M吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8493#       发表于 2020-5-24 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47536672&amp;ptid=1929631" target="_blank">路人子 发表于 2020-5-24 03:09</a>
+就拿刚刚的犬鸣隧道举例，你咩姐作为玩家，从头到尾被苔苔指示，苔苔也是爽了一把指示厨从头当到尾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这么一说好像懂了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8494#       发表于 2020-5-24 03:37
+
+
+
+
+反应型选手的形容还挺恰如其分的吧，M就…另说了
+
+总之是别人戳她一下反应就很大的类型，本人大概也有那么一点乐在其中
+
+不过坏处是不好把握分寸以及没外来刺激自己就是低潮状态容易抑郁（外加负面情绪反应也很大？）
+
+果然还是得变成内生动力的主动型选手会舒服一点吧（）
+
+因果交流电灯.jpg
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8495#       发表于 2020-5-24 03:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47536736&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-24 03:37</a>
+反应型选手的形容还挺恰如其分的吧，M就…另说了
+
+总之是别人戳她一下反应就很大的类型，本人大概也有那么 ...</blockquote>
+她这年纪的选手会不会想这么多都不一定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉她想直播内容时很多时候是凭她自己的习惯和喜好来的
+
+
+
+
+
+
+
+-----
+
+####  路人寅  
+##### 8496#       发表于 2020-5-24 04:01
+
+
+
+
+没外来刺激自己就是低潮状态容易抑郁还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定不是因为进入20年以来的冷水泼了太多造成的吗
+
+
+细数一下从1月起每个月都有各种各样的破事，砸了100万、交了一大笔税、怪文书、突然爆发的疫情、信姬毕业、饭盒跳脸等等等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然不是100%肯定，但至少可以说要是没这些破事，她的心情绝对会好不少好吧
+
+
+
+
+
+                
