@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-24 16:10** 
+> ## **本文件最后更新于2020-05-24 18:07** 
 
 
 
@@ -20003,4 +20003,1105 @@ mmd调的，或者另外找人跳了捕捉的
 
 
 
-          
+
+
+-----
+
+####  Sabishi_Jiku  
+##### 8688#       发表于 2020-5-24 16:13
+
+
+
+
+据说有人对3D舞蹈冲了，这算被骗炮吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8689#       发表于 2020-5-24 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">对假麻图涩才算骗炮，这顶多算戴套吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8690#       发表于 2020-5-24 16:16
+
+
+
+
+如果对象是皮套的话那没被骗
+
+如果对象是麻的话就被骗了
+
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8691#       发表于 2020-5-24 16:20
+
+
+
+ 本帖最后由 Cla0221 于 2020-5-24 16:22 编辑 
+
+不是，怎么说也不是替身吧，她的动作和说的话都很符合的啊，她也没明确说过那次就是别人的动捕或者是mmd调的。
+
+她还说过老多自己不会做的事了，可最后很多不还是整了，不玩只狼不玩马造，也还说过不会有3d啥的（这个只是去年前期有提过的印象吧，不确定）。
+
+我反正是觉得一开始发现没啥人回应她的时候那个停顿还是挺真实的，总不能是跳舞的时候直接换人吧，那不是更麻烦，她自己以前线下的时候也不可能就站桩吧，她健身环那时候玩的也不是很杂鱼很杂鱼，跳舞的体力肯定是有的。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8692#       发表于 2020-5-24 16:22
+
+
+
+
+所以你们应该抓个线下过的王国民来，就可以知道麻麻的跳舞功力了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 8693#       发表于 2020-5-24 16:33
+
+
+
+
+开场打招呼那段应该是本人，唱歌的那段肯定不是
+
+边唱边跳还不带喘的，都说是坦克了怎么可能做得到<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8694#       发表于 2020-5-24 16:34
+
+
+
+
+md，又看了两三遍，我有点动摇了，怎么有的地方那么像她自己做的有的地方又一点都不像啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+别吧别吧别吧别吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8695#       发表于 2020-5-24 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你不会真的对3d冲了吧，不会吧不会吧不会吧
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 8696#       发表于 2020-5-24 16:37
+
+
+
+
+哦，你冲啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+冲错又不丢人
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8697#       发表于 2020-5-24 16:38
+
+
+
+
+草，那么模糊是怎么冲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人寅  
+##### 8698#       发表于 2020-5-24 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正也不是第一次冲错人了，都是好事儿
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8699#       发表于 2020-5-24 16:39
+
+
+
+
+她49秒那一段之后的一小段杂谈那里，手一直是举着的，但是当时的语气并没有兴奋到那个程度，，，
+
+最好是mmd吧，希望是mmd吧，不要是动捕，不要是动捕[f:209]
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8700#       发表于 2020-5-24 16:40
+
+
+
+
+不是，模糊不模糊的，火腿肠视频里她的脚不是更模糊，别提那些动图里的动作还真的很可爱了。。。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8701#       发表于 2020-5-24 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">难道你认为她当时会跑去b站日本本社还是哪里的摄影棚来捕捉吗，这个可能性真的很小
+
+前面讲话部分是连线配音的可能性倒是不低，和后来的说法也比较相符
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8702#       发表于 2020-5-24 16:42
+
+
+
+
+至少是实时互动不是，往好处想，让说话对得上动作不容易，排练了好几次了，勤奋勤奋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8703#       发表于 2020-5-24 16:43
+
+
+
+
+首先，3D的皮肤/模型是mea；
+其次，负责灵魂的是mea；
+再者，说话的是mea；
+那么只有负责一些动作的不是mea<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+那么这算不算mea呢？搞清楚这事，才能理解是不是被骗了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 8704#       发表于 2020-5-24 16:46
+
+
+
+
+有赛博朋克内味了
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8705#       发表于 2020-5-24 16:46
+
+
+
+
+但是，这里引入另一个问题：
+只看皮冲，没问题
+对着声音冲，没问题。
+mea换了皮肤还能冲吗？可以
+mea不出声可以冲吗？没问题
+那么我认为对着bw时的mea冲就不算被骗<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+而且，如果mea本人帮你冲，那是实实在在的本人，正确。
+自己动手对着mea冲，目标还是mea，虽然动手的是自己，没问题。
+那么基于这个想法，冲的目标意识是mea，那就是没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8706#       发表于 2020-5-24 16:47
+
+
+
+
+假如神乐mea是一辆坦克，那起码当时车长炮手装填手通信员都是她本人，只有驾驶员不是，基本上当作她就行了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8707#       发表于 2020-5-24 16:47
+
+
+
+
+bml那次3d后来还在推特上挖出来编舞来着<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8708#       发表于 2020-5-24 16:50
+
+
+
+
+草忒修斯之船悖论(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8709#       发表于 2020-5-24 16:52
+
+
+
+
+不用搞清楚了，其实逗你们玩的，就那画质咋可能还能冲起来，不可能的好吧，我再怎么变态也不至于对着那么模糊的冲啊，又看不清，最起码火腿肠我还能看见脚趾。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总玩骗炮梗就没意思了，我摊牌了，我根本没对bml里的她冲过，也就不是被骗炮了，动作可爱倒是确实，而且吧我觉得bml这种的也不是没可能去b的霓虹本社去搞，但是不用考虑了，反正我没冲过。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8710#       发表于 2020-5-24 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47541490&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-5-24 16:52</a>
+
+不用搞清楚了，其实逗你们玩的，就那画质咋可能还能冲起来，不可能的好吧，我再怎么变态也不至于对着那么模 ...</blockquote>
+你不被信任是谁得锅，你得明白<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8711#       发表于 2020-5-24 16:56
+
+
+
+
+不会吧你们都对咩冲过吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人寅  
+##### 8712#       发表于 2020-5-24 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">私下里冲没冲谁知道呢
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8713#       发表于 2020-5-24 16:58
+
+
+
+<img src="https://p.sda1.dev/0/0a99d8c4a80afaceaced4ce3da18b9b1/IMG_B3F223038761BDFC7542F1E05B806E35.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8714#       发表于 2020-5-24 16:59
+
+
+
+[https://twitter.com/SongjiangCC/status/1264469918419841024](https://twitter.com/SongjiangCC/status/1264469918419841024)
+
+emmm
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 8715#       发表于 2020-5-24 17:00
+
+
+
+
+早上有事刚刚补了一下，这次没aoe，点草真爽，干得漂亮！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8716#       发表于 2020-5-24 17:07
+
+
+
+
+冲过怎么了，又不丢人，宅宅能对纸片人冲，mea是套皮纸片人，怎么就不能冲了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 8717#       发表于 2020-5-24 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47541404&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-5-24 16:47</a>
+
+bml那次3d后来还在推特上挖出来编舞来着</blockquote>
+我怎么印象中不是被挖而是她自己全fo上了 制作和编舞的全都
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8718#       发表于 2020-5-24 17:11
+
+
+
+
+这越看越像欲盖弥彰<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">冲过怎么了又不丢人。
+
+诚实一点，我用大亏冲过
+
+
+
+
+
+
+
+-----
+
+####  Urystal  
+##### 8719#       发表于 2020-5-24 17:13
+
+
+
+
+不会真的有人对咩啊冲过吧，那可挺令人ex的，✋✋✋✋✋✋.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8720#       发表于 2020-5-24 17:13
+
+
+
+
+那还是不一样的，大亏可以冲，冲mea总觉得怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而且没素材。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8721#       发表于 2020-5-24 17:15
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-24 17:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看隔壁彩虹sc真的惨不忍睹，五元sc还是垫底程度
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">怪不得你麻最近订阅增多，sc却不见长进，合着吸收的都是五元的白嫖粉
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">麻麻以后别和五元玩了好不好啊
+syl:<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">怎么有人对大亏冲的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8722#       发表于 2020-5-24 17:15
+
+
+
+
+大亏那身高真的感觉犯法的好吧
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8723#       发表于 2020-5-24 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47541630&amp;ptid=1929631" target="_blank">proxima 发表于 2020-5-24 17:11</a>
+
+这越看越像欲盖弥彰冲过怎么了又不丢人。
+
+诚实一点，我用大亏冲过</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8724#       发表于 2020-5-24 17:19
+
+
+
+
+我指的只是没对bml里的冲过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还有，不要在咩啊真爱楼里说自己冲其他人啊！！！<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8725#       发表于 2020-5-24 17:19
+
+
+
+
+停一停，停一停
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8726#       发表于 2020-5-24 17:19
+
+
+
+
+说实话夸的mmd能冲。。。所以我不黑夸了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8727#       发表于 2020-5-24 17:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在下常常因为不够hentai而感到和李们格格不入.jpg
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8728#       发表于 2020-5-24 17:21
+
+
+
+
+草你们冲夸跑M楼来说干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8729#       发表于 2020-5-24 17:22
+
+
+
+
+黑夸跑到m楼忏悔，你们怎么回事，我要化身舞咩连体人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8730#       发表于 2020-5-24 17:22
+
+
+
+
+因为是从冲咩话题转变来的啊(ಡωಡ) ，冲咩有什么素材吗
+
+
+
+
+
+
+
+-----
+
+####  路人寅  
+##### 8731#       发表于 2020-5-24 17:23
+
+
+
+
+单论mmd的话，还是那句话，对着mea的mmd冲不出来的完全是因为还没有大手子做色批模型（等哪天真的做出来了，估计会好不少人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8732#       发表于 2020-5-24 17:23
+
+
+
+ 本帖最后由 framita 于 2020-5-24 17:24 编辑 
+
+为什么你这么喜欢问为什么<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">十一栋M楼留着给你翻
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8733#       发表于 2020-5-24 17:24
+
+
+
+
+那舞蹈不就是最好的mmd吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8734#       发表于 2020-5-24 17:24
+
+
+
+
+纯度的降低了，不过木口和彩虹的vtuber优质r18创作是多，没什么好说的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8735#       发表于 2020-5-24 17:25
+
+
+
+
+yysy就算mmd再色我一想到这是mea就冲不起来(눈_눈)，这是不是说明我纯度不够?）
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8736#       发表于 2020-5-24 17:25
+
+
+
+
+木口的模型是官方给下载的，咩姐之前说过不会把模型给宅宅下的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8737#       发表于 2020-5-24 17:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">以前做mmr的时候专门跑去看大亏那3d回，那后脑勺太违和了，还有那断手断头的。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以后就再也没什么感觉了
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">mea那3d惊艳出场倒是让我心跳加速，呼吸困难，要充也是对着mea军服3d那场吧，期待
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8738#       发表于 2020-5-24 17:27
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-24 17:29 编辑 
+
+可惜mea说了不会公开模型
+
+
+质量一般的mmd模型又不精细渲染又不够涩动作又僵硬，还真没法拿来冲。那位毕竟是i站闻名多年的大佬了
+
+
+还是期待她多搞点3d配信吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8739#       发表于 2020-5-24 17:27
+
+
+
+
+讨论咩姐能不能冲真有之前看病栋的感觉了。。。nga化是真的。。。能不能冲挺主观的，几万个核心粉想法不同正常
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8740#       发表于 2020-5-24 17:29
+
+
+
+
+只能等大佬复刻一个咩了。。。真出了我带头冲锋
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8741#       发表于 2020-5-24 17:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">个人认为mea可能比较适合凌辱系
+syl，怎么还有人能对夸皇冲的，我看见夸皇都阳痿了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8742#       发表于 2020-5-24 17:35
+
+
+
+
+？？二号不是发了模型了吗，忘了哪栋楼了。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8743#       发表于 2020-5-24 17:35
+
+
+
+<blockquote>暗心舞踏 发表于 2020-5-24 17:27
+可惜mea说了不会公开模型
+
+
+质量一般的mmd模型又不精细渲染又不够涩动作又僵硬，还真没法拿来冲。那位毕竟是 ...</blockquote>
+之前日本友人做的咩姐那两个和犬山有关的r18mmd都很生草。二号做的两个动作可以（好像有个足的是直接套用），可惜渲染不行。
+
+题外话，当初第一次看的咩姐mmd是Conquerer，当时来看这个mmd模型的质量相当好，作为爱好者来说已经很好了，现在自然没法和公司公开的模型比
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8744#       发表于 2020-5-24 17:37
+
+
+
+<blockquote>Cla0221 发表于 2020-5-24 17:35
+？？二号不是发了模型了吗，忘了哪栋楼了。</blockquote>
+是公开了，用yoyal8的模型改的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8745#       发表于 2020-5-24 17:43
+
+
+
+ 本帖最后由 A2014720 于 2020-5-24 17:45 编辑 
+
+说起来隔壁好像已经练起来了大概在准备live?企业势能开展的话个人势应该也可以吧，可以说不远了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8746#       发表于 2020-5-24 17:48
+
+
+
+
+你这个不远是哪个不远，半年算吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8747#       发表于 2020-5-24 17:49
+
+
+
+
+企业势跟个人势哪能一样(눈_눈)，应该还有段时间吧
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8748#       发表于 2020-5-24 17:50
+
+
+
+
+日本说是要复工，但是还是怕咩姐出事。。。3d工作室是密闭空间，直播也不可能戴口罩
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 8749#       发表于 2020-5-24 17:52
+
+
+
+
+有没有知情人士透露，租3d工作室加匹配staff这些乱七八糟的东西，工作交接要多久啊
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 8750#       发表于 2020-5-24 17:52
+
+
+
+
+刚下飞机，发生了啥，你们怎么就想冲了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8751#       发表于 2020-5-24 17:53
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-24 17:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">bls总要在今年弄吧，不然今年这羊毛应该会难薅吧
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8752#       发表于 2020-5-24 17:54
+
+
+
+
+bls可以用草莓牛奶那个模型啊，都是批站的用起来反而更方便<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+        
