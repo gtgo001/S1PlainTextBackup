@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-24 04:03** 
+> ## **本文件最后更新于2020-05-24 12:06** 
 
 
 
@@ -17227,16 +17227,1647 @@ CN你juan的挖掘机群里有这么扭曲的吗？有无内鬼出来讲下
 
 
 
+ 本帖最后由 路人寅 于 2020-5-24 04:04 编辑 
 
 没外来刺激自己就是低潮状态容易抑郁还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定不是因为进入20年以来的冷水泼了太多造成的吗
 
 
 细数一下从1月起每个月都有各种各样的破事，砸了100万、交了一大笔税、怪文书、突然爆发的疫情、信姬毕业、饭盒跳脸等等等等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
-虽然不是100%肯定，但至少可以说要是没这些破事，她的心情绝对会好不少好吧
+虽然不是100%肯定，但至少可以说要是没这些破事（就算只保留交税），她的心情绝对会好不少好吧
 
 
 
 
 
-                
+
+
+-----
+
+####  yuanhang99  
+##### 8497#       发表于 2020-5-24 04:06
+
+
+
+
+也不怪别人mea虐，自己一点就着反应还有趣，不过估计有一大半是演出来的。
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8498#       发表于 2020-5-24 04:07
+
+
+
+ 本帖最后由 meatybobby 于 2020-5-24 04:13 编辑 
+
+今年這些事跟過去比都算小事了不過現在的V圈發展讓她壓力更大倒是可能的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8499#       发表于 2020-5-24 04:53
+
+
+
+
+早上好，她tc突了（
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 8500#       发表于 2020-5-24 04:55
+
+
+
+
+人看咩 就会死
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8501#       发表于 2020-5-24 05:04
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8502#       发表于 2020-5-24 05:05
+
+
+
+
+东京时间快6点的tc，嗯是健康的作息....
+
+
+个屁 太要命了，还好周末无所畏惧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8503#       发表于 2020-5-24 05:07
+
+
+
+
+刚在补之前的直播,正好又播了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8504#       发表于 2020-5-24 06:31
+
+
+
+
+好像说live什么的？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 8505#       发表于 2020-5-24 06:54
+
+
+
+ 本帖最后由 rosevalley46 于 2020-5-24 06:56 编辑 
+
+这段萌音有rp女主播内味了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">管子播的时候怎么没这么好活
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8506#       发表于 2020-5-24 07:30
+
+
+
+
+下了下了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">希望不要再来个午间突击
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8507#       发表于 2020-5-24 07:44
+
+
+
+
+不会了吧，一天两次tc很少吧。今天应该也是没有**单人的，按她来说。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8508#       发表于 2020-5-24 07:47
+
+
+
+ 本帖最后由 A2014720 于 2020-5-24 08:19 编辑 
+
+我刚醒就没了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8509#       发表于 2020-5-24 09:11
+
+
+
+
+快5点突击tc。。。咩姐真有你的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8510#       发表于 2020-5-24 09:12
+
+
+
+
+至少我觉得怪文书和饭盒跳脸应该属于以前就有类似事情发生的等级……
+
+
+何况她自己也说过没什么事的时候也会闲着心情不好胡思乱想——不如说“有原因的抑郁”只是一部分
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 8511#       发表于 2020-5-24 09:22
+
+
+
+
+b博动了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8512#       发表于 2020-5-24 09:23
+
+
+
+ 本帖最后由 A2014720 于 2020-5-24 09:24 编辑 
+
+别刷屏别刷屏，两条够了！停啊<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8513#       发表于 2020-5-24 09:23
+
+
+
+
+彻夜未眠神楽咩
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8514#       发表于 2020-5-24 09:32
+
+
+
+
+阿b给突吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8515#       发表于 2020-5-24 09:34
+
+
+
+
+你咩姐这运气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8516#       发表于 2020-5-24 09:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">赚了赚了，躲过了めあ懲役
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8517#       发表于 2020-5-24 10:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚晃一**
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8518#       发表于 2020-5-24 10:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">吃了就睡这人想不变胖都难
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">想必以后只有坦克民才能活下来吧
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8519#       发表于 2020-5-24 10:24
+
+
+
+
+推特掛人？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8520#       发表于 2020-5-24 10:29
+
+
+
+
+真要对线？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8521#       发表于 2020-5-24 10:32
+
+
+
+
+看她推特回了个锁号
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8522#       发表于 2020-5-24 10:32
+
+
+
+
+终究还是播了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8523#       发表于 2020-5-24 10:34
+
+
+
+
+惊了有人转吗(눈_눈)，我梯子糊的一比
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8524#       发表于 2020-5-24 10:34
+
+
+
+ 本帖最后由 A2014720 于 2020-5-24 10:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+开始了开始了，冲冲冲
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8525#       发表于 2020-5-24 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8526#       发表于 2020-5-24 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“hikarin到底tm的是谁啊”
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8527#       发表于 2020-5-24 10:37
+
+
+
+
+苔姨建议背后解决,兔姨建议当面对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8528#       发表于 2020-5-24 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47538037&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-24 10:34</a>
+
+惊了有人转吗(눈_눈)，我梯子糊的一比</blockquote>
+[https://www.douyu.com/4629](https://www.douyu.com/4629)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8529#       发表于 2020-5-24 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8530#       发表于 2020-5-24 10:40
+
+
+
+
+这推头图是她就有鬼了。。。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8531#       发表于 2020-5-24 10:41
+
+
+
+
+感谢(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8532#       发表于 2020-5-24 10:41
+
+
+
+
+挖错那人怎么想的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8533#       发表于 2020-5-24 10:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要钱的样子和她好像，你就是她
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8534#       发表于 2020-5-24 10:42
+
+
+
+
+你咩姐再入陆地剑仙境界，爽了
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 8535#       发表于 2020-5-24 10:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xswl，这什么人
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8536#       发表于 2020-5-24 10:44
+
+
+
+
+0202年度迷惑粉丝+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8537#       发表于 2020-5-24 10:45
+
+
+
+
+所以咩选择了变成兔姨的道路？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8538#       发表于 2020-5-24 10:45
+
+
+
+
+她的那脑壳是成不了兔姨的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8539#       发表于 2020-5-24 10:46
+
+
+
+
+路 线 选 择
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8540#       发表于 2020-5-24 10:46
+
+
+
+
+黄兔子路线好
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8541#       发表于 2020-5-24 10:47
+
+
+
+
+总觉得苔苔和兔姨的选项是反的，苔苔平常应该会选直接怼人才对
+
+本土新手挖掘机就这？也太迷惑了吧
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8542#       发表于 2020-5-24 10:48
+
+
+
+
+这种爱怼就怼咯
+
+
+主要太过弱智粉丝很难感同身受所以开就开了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8543#       发表于 2020-5-24 10:48
+
+
+
+
+啊哈哈哈哈哈哈哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8544#       发表于 2020-5-24 10:50
+
+
+
+ 本帖最后由 A2014720 于 2020-5-24 10:52 编辑 
+
+谢谢这位选手提供的节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2500同接，爽到了谢谢
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8545#       发表于 2020-5-24 10:50
+
+
+
+
+苔姨一般来说就算有人跳脸，一般不会在直播之类的地方当众说出来对线吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那兔姨呢？会在直播里放出来说明吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8546#       发表于 2020-5-24 10:52
+
+
+
+
+感觉兔姨是会当面怼的那种啊，参见绘畜牲
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8547#       发表于 2020-5-24 10:52
+
+
+
+
+这玩具铲好弱智,不行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8548#       发表于 2020-5-24 10:52
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8549#       发表于 2020-5-24 10:53
+
+
+
+
+吗的这是不是谁搞的rp小号钓鱼计划
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8550#       发表于 2020-5-24 10:53
+
+
+
+
+惊了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8551#       发表于 2020-5-24 10:53
+
+
+
+
+不行啊，这人远在我的想象之上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8552#       发表于 2020-5-24 10:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">受不了了笑死
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8553#       发表于 2020-5-24 10:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">为什么，就仅仅是这样，原以为，会是。。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8554#       发表于 2020-5-24 10:55
+
+
+
+
+魔怔不分国内外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8555#       发表于 2020-5-24 10:56
+
+
+
+
+兔姨來了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8556#       发表于 2020-5-24 10:59
+
+
+
+
+这人真是(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8557#       发表于 2020-5-24 11:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 8558#       发表于 2020-5-24 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">救救在火车上的人
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8559#       发表于 2020-5-24 11:05
+
+
+
+
+要3000了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">这份恩情我不会忘的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8560#       发表于 2020-5-24 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还骚扰过星川啊那人
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8561#       发表于 2020-5-24 11:09
+
+
+
+
+卫星啊卫星(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8562#       发表于 2020-5-24 11:16
+
+
+
+
+应该说不是挖掘机去骚扰，而是模仿号碰瓷吧（）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8563#       发表于 2020-5-24 11:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8564#       发表于 2020-5-24 11:18
+
+
+
+
+这个也许......我又想到某次联动问她是处吧她那可疑的沉默了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8565#       发表于 2020-5-24 11:18
+
+
+
+
+我信她一点都不松<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然怎么解释原因有不同的说法
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 8566#       发表于 2020-5-24 11:19
+
+
+
+
+有无国内魔怔壬出去和日本魔怔壬碰一碰，最好能相互毁灭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8567#       发表于 2020-5-24 11:20
+
+
+
+
+你确定不会撞出来个300人云P委员会？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 8568#       发表于 2020-5-24 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47538448&amp;ptid=1929631" target="_blank">kenjjj 发表于 2020-5-24 11:19</a>
+有无国内魔怔壬出去和日本魔怔壬碰一碰，最好能相互毁灭</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总不能派我去吧。
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8569#       发表于 2020-5-24 11:22
+
+
+
+
+mea的本土粉丝群体是什么样的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">从某种方面上讲，这次至少证明了她还是有本土粉丝的。
+看tc和推特回复时，感觉绝大多数ID都是中国粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8570#       发表于 2020-5-24 11:24
+
+
+
+
+大家都会发病的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8571#       发表于 2020-5-24 11:26
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-24 11:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">昨天不是还有本土粉丝打了个sc20000的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么就不相信她有本土粉了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8572#       发表于 2020-5-24 11:26
+
+
+
+
+老实说，看她现在怼的这么欢，但这可是经过这么久的调整、可能和兔苔双姨聊过好久、不敢或者不想在自己频道直播这么久才有的今天这次的挂人，这半个月来精神不好已经是确定的事实了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">提供素材归提供素材，还是希望少发生点这种弱智的事情
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kenjjj| + 1|好评加鹅|
+| 若风之景| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8573#       发表于 2020-5-24 11:29
+
+
+
+
+能顶着这debuff还能有最近这种直播效果，好啊
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8574#       发表于 2020-5-24 11:30
+
+
+
+
+我乐得不行。。。。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8575#       发表于 2020-5-24 11:32
+
+
+
+
+断罪直播是mea特色么？
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8576#       发表于 2020-5-24 11:35
+
+
+
+
+别特色。。。再多几个我怀疑她会疯。
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 8577#       发表于 2020-5-24 11:35
+
+
+
+
+这人还打了五万SC，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 8578#       发表于 2020-5-24 11:36
+
+
+
+
+艹，这波啊，效果飞起来了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8579#       发表于 2020-5-24 11:36
+
+
+
+
+五万不够，再来点(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8580#       发表于 2020-5-24 11:40
+
+
+
+
+好活好活
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8581#       发表于 2020-5-24 11:44
+
+
+
+
+完了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8582#       发表于 2020-5-24 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么反而还有人去信了啊
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 8583#       发表于 2020-5-24 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47538435&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-24 11:18</a>
+
+这个也许......我又想到某次联动问她是处吧她那可疑的沉默了(눈_눈)</blockquote>
+那个联动能指个路吗<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8584#       发表于 2020-5-24 11:53
+
+
+
+
+我也找不到了(눈_눈)，昨天躺床上还在回忆来着。不过至少是近一个月的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8585#       发表于 2020-5-24 11:53
+
+
+
+
+🦄多起来了，好事
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 8586#       发表于 2020-5-24 11:53
+
+
+
+
+这女人不睡的?
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 8587#       发表于 2020-5-24 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47538750&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-24 11:53</a>
+
+我也找不到了(눈_눈)，昨天躺床上还在回忆来着。不过至少是近一个月的</blockquote>
+了解，先谢谢了
+
+
+syl,你有罪，但是你的钱是没有罪的-----神楽mea
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8588#       发表于 2020-5-24 11:56
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-24 11:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么还有人这么在意是不是处的
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你们再这样小博禹又要出来进行荡妇羞辱了
+syl<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">姑且无罪了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8589#       发表于 2020-5-24 12:00
+
+
+
+<blockquote>pabier 发表于 2020-5-24 11:54
+了解，先谢谢了
+
+
+syl,你有罪，但是你的钱是没有罪的-----神楽mea</blockquote>
+翻了一下我的发言记录，应该是和犬山伊东他们杂谈的那一期
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8590#       发表于 2020-5-24 12:03
+
+
+
+
+老关注这种地方干嘛，她说是处你就会信，她说不是你就会死心？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8591#       发表于 2020-5-24 12:05
+
+
+
+
+？
+
+不是tm睡觉去了吗？年度大戏没赶上<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|今天是绝活啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 8592#       发表于 2020-5-24 12:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/24/120457vxqg0v40fseqplst.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20200524120438.jpg</strong> (38.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-24 12:04 上传
+
+
+
+
+
+有一说一她这个封面很有意思（永远也达不到的真实）
+
+
+
+
+
+             
