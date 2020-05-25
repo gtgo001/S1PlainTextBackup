@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-25 12:06** 
+> ## **本文件最后更新于2020-05-25 18:07** 
 
 
 
@@ -22874,4 +22874,562 @@ bfm那种她又说太大不喜欢。。。。</blockquote>
 
 
 
-     
+
+
+-----
+
+####  cgz  
+##### 8832#       发表于 2020-5-25 12:53
+
+
+
+
+看到隔壁企业势这种分钱合约，去年mea的纯收入应该是业界第一稳了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 8833#       发表于 2020-5-25 12:58
+
+
+
+
+交税第一名应该是稳了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8834#       发表于 2020-5-25 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47550919&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-25 12:53</a>
+
+看到隔壁企业势这种分钱合约，去年mea的纯收入应该是业界第一稳了</blockquote>
+不看隔壁，能透漏下么？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8835#       发表于 2020-5-25 12:59
+
+
+
+
+然后交了90%的税）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8836#       发表于 2020-5-25 12:59
+
+
+
+
+交完税后就不是第一了吧
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8837#       发表于 2020-5-25 13:00
+
+
+
+
+反正有一半明年能回来，交就交了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8838#       发表于 2020-5-25 13:11
+
+
+
+ 本帖最后由 专业划水人员 于 2020-5-25 13:18 编辑 
+
+明年也不会回来的，满足条件又要预交下一年了，除非结束高收入。
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 8839#       发表于 2020-5-25 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47551015&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-25 12:59</a>
+
+交完税后就不是第一了吧</blockquote>
+你这是在暗示企业势🍑税么<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|合理避税啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8840#       发表于 2020-5-25 13:31
+
+
+
+
+今年还会高收入？就现在这，《你麻只剩半年》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8841#       发表于 2020-5-25 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47550919&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-25 12:53</a>
+看到隔壁企业势这种分钱合约，去年mea的纯收入应该是业界第一稳了</blockquote>
+今年应该够呛了，毕竟诞生了杠樱这个怪物<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8842#       发表于 2020-5-25 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47551415&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-5-25 13:31</a>
+今年还会高收入？就现在这，《你麻只剩半年》</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">月入几百万的富婆被你说的跟揭不开锅似的
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8843#       发表于 2020-5-25 14:33
+
+
+
+
+这不是在斗虫吗，你要是觉得自己收入也能上去斗可以尽管上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辛红辣椒杨永信  
+##### 8844#       发表于 2020-5-25 17:06
+
+
+
+
+有什么好比的吗，个人势反正最终恰到的肯定多，肥婆麻吃多点喝多点肚子长个十来斤肉不美滋滋吗
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8845#       发表于 2020-5-25 17:13
+
+
+
+
+以她那年紀沒啥物欲賺這些也夠了
+
+又不是像企業勢還會被鞭策要賺更多的壓力
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8846#       发表于 2020-5-25 17:20
+
+
+
+
+开心最重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+“但是真的开心吗”
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 8847#       发表于 2020-5-25 17:22
+
+
+
+
+子非咩，安知咩之樂？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8848#       发表于 2020-5-25 17:22
+
+
+
+
+我猜还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 8849#       发表于 2020-5-25 17:26
+
+
+
+
+她现在能有这收入水平，又不用像企业势那么多条条框框，自由自在的直播
+
+我感觉还是开心的，人比人气死人<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8850#       发表于 2020-5-25 17:26
+
+
+
+
+我不开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非掏出穿模3D
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8851#       发表于 2020-5-25 17:35
+
+
+
+
+草，虹杏运营被人搞了开始有人见缝插针推荐mea了
+<img src="https://p.sda1.dev/0/903a0720a6ea158a03f09d7ad4c49b38/704345ef31559a41.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8852#       发表于 2020-5-25 17:38
+
+
+
+
+啊这。。。这就是事业民吗？不要用力过度风评被害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+     
+
+syl，等你咩租下东京蛋ddd唱跳的时候你们就知道错了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8853#       发表于 2020-5-25 17:42
+
+
+
+
+想了想也是（）
+
+
+毕竟如果站在一般观众的观点肯定是“yhm赚那么多还矫情个锤子”
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8854#       发表于 2020-5-25 17:43
+
+
+
+
+各种意义上都嗦不粗话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/be71f0688ba3c50fdb26fcd94c937f58/-233d2d8561da8294.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8855#       发表于 2020-5-25 17:46
+
+
+
+
+4万3
+都是些什么鬼tag<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8856#       发表于 2020-5-25 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">chinese moegirl
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8857#       发表于 2020-5-25 17:51
+
+
+
+
+我觉得那个“自治县”应该会更令人在意一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 8858#       发表于 2020-5-25 17:51
+
+
+
+
+这能涨鬼佬粉不？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8859#       发表于 2020-5-25 17:53
+
+
+
+
+明显不能，那边很早就有人在搬了，而且搬的是官组的熟肉，最起码要做成英文熟肉。
+
+英翻组最近还在运作吗，也去ph传一份吧）））<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8860#       发表于 2020-5-25 17:54
+
+
+
+
+这是很久之前的视频了吧，估计也涨不了几个粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过给人看的感觉还是生草
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8861#       发表于 2020-5-25 17:55
+
+
+
+
+太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8862#       发表于 2020-5-25 18:05
+
+
+
+
+这是很久以前的了啊，你楼还专门说过
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8863#       发表于 2020-5-25 18:06
+
+
+
+
+舰b工商这波英翻出口效果肯定好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
