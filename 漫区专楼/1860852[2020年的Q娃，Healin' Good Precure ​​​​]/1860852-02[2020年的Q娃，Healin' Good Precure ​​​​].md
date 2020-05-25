@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-04-27 20:00** 
+> ## **本文件最后更新于2020-05-25 10:01** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_jUZBn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_xMgmP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_wo6qR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_D53wD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -5649,7 +5649,7 @@ jc怎么做大友番了<img src="https://static.saraba1st.com/image/smiley/face2
 
 
 抓心一集的片尾，这人是谁？_看图王.png
-(725.73 KB, 下载次数: 0)
+(725.73 KB, 下载次数: 1)
 
 
 
@@ -8494,4 +8494,662 @@ q娃停了
 
 
 
-                                  
+
+
+-----
+
+####  lyflyflxf  
+##### 1952#       发表于 2020-4-27 22:18
+
+
+
+
+我只愿今年的主线不要支离破碎。今年的主角们都挺有趣的
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 1953#       发表于 2020-4-27 23:24
+
+
+
+
+阿光！拉拉！好想快点儿看到新剧场版！
+
+
+
+
+
+
+
+-----
+
+####  zero23333  
+##### 1954#       发表于 2020-4-29 22:37
+
+
+
+
+这类似抱Q主播干部性格的老鼠，这病毒附身，怕不是后期会病毒侵蚀暴走化。
+
+——然后被Q娃一拳搁倒再补上几棒。
+
+
+
+
+
+
+
+-----
+
+####  Sliurus  
+##### 1955#       发表于 2020-4-30 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47252690&amp;ptid=1860852" target="_blank">zero23333 发表于 2020-4-29 22:37</a>
+
+这类似抱Q主播干部性格的老鼠，这病毒附身，怕不是后期会病毒侵蚀暴走化。
+
+——然后被Q娃一拳搁倒再补上几 ...</blockquote>
+个人感觉老鼠是小丑那种吸引仇恨的担当，给三个人形干部的洗白留点余地
+
+
+
+
+
+
+
+-----
+
+####  Tomorrow_D  
+##### 1956#       发表于 2020-5-1 09:22
+
+
+
+
+重播第一周收视率并没有降，算是一个不错的消息了。
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 1957#       发表于 2020-5-4 10:53
+
+
+
+
+第二个没有q娃看的一周，想她<img src="https://static.saraba1st.com/image/smiley/goose2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1958#       发表于 2020-5-9 22:03
+
+
+
+
+虽然Q娃停了，上北老师还在继续画。祝今年的女人早日回归日常
+<img src="https://p.sda1.dev/0/ba347412f9fa35118af38036e7c3e2a8/2020-05-09_22-02-23.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 1959#       发表于 2020-5-10 13:42
+
+
+
+
+第三个没有q娃看的一周，想她<img src="https://static.saraba1st.com/image/smiley/goose2017/062.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1960#       发表于 2020-5-13 02:48
+
+
+
+
+我倒是网上找到了英译本的《魔法》和《食尚甜心》漫画在看。不得不说那个喂（jiē）药（wěn）画面够闪。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1961#       发表于 2020-5-13 02:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47360961&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-5-9 22:03</a>
+
+虽然Q娃停了，上北老师还在继续画。祝今年的女人早日回归日常</blockquote>
+喵托兰这是在说“Fuuuuuu……”么？
+
+
+
+
+
+
+
+-----
+
+####  yuu0  
+##### 1962#       发表于 2020-5-13 06:20
+
+
+
+
+不是每一部都有动物吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1963#       发表于 2020-5-13 06:55
+
+
+
+
+日本快解封了吧。是不是能复播了？
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1964#       发表于 2020-5-13 08:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47398979&amp;ptid=1860852" target="_blank">mchan 发表于 2020-5-13 02:49</a>
+喵托兰这是在说“Fuuuuuu……”么？</blockquote>
+我感觉是fuaaaaaa
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1965#       发表于 2020-5-13 09:04
+
+
+
+
+∠( ᐛ 」∠)＿我的，都是我的，我要看Q娃。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1966#       发表于 2020-5-13 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47399823&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-5-13 08:50</a>
+
+我感觉是fuaaaaaa</blockquote>
+按照日文假名是该这么转写，不过这读音感觉像是指代了某英语国骂。上北双子就连“diss”这种字都会直接用出来的。
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1967#       发表于 2020-5-13 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47401894&amp;ptid=1860852" target="_blank">mchan 发表于 2020-5-13 11:38</a>
+按照日文假名是该这么转写，不过这读音感觉像是指代了某英语国骂。上北双子就连“diss”这种字都会直接用 ...</blockquote>
+喵虎那眼睛都睁不开的样子，不太像在骂人吧
+
+
+
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 1968#       发表于 2020-5-14 01:31
+
+
+
+
+内裤老师13号这张千优真强啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  風駿  
+##### 1969#       发表于 2020-5-14 08:45
+
+
+
+
+结合图中样子这不就是在打哈欠吗想什么呢
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1970#       发表于 2020-5-15 03:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47404809&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-5-13 16:04</a>
+
+喵虎那眼睛都睁不开的样子，不太像在骂人吧</blockquote>
+这个字不一定是骂人，也可以用来表示如释重负、放弃了这样的情绪，特别是这种拉了长音的情形。
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1971#       发表于 2020-5-15 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上北老师每年都要逼死同人色图。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  hgcg-ix  
+##### 1972#       发表于 2020-5-16 11:18
+
+
+
+[https://www.weibo.com/tv/v/J2akpj3ul?fid=1034:4505163436589071](https://www.weibo.com/tv/v/J2akpj3ul?fid=1034:4505163436589071)
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 1973#       发表于 2020-5-17 10:03
+
+
+
+
+第四个没有q娃看的一周，想她<img src="https://static.saraba1st.com/image/smiley/goose2017/062.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1974#       发表于 2020-5-17 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">已经少了4集了吗。
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  粉儿alice  
+##### 1975#       发表于 2020-5-17 20:45
+
+
+
+<blockquote>ヒーリングっど♥プリキュア ボーカルアルバム ～Voice of life～
+
+＜収録内容＞
+
+
+
+M1「LOVE FOR ALL」
+
+
+
+歌：Machico　
+
+
+
+ 作詞・作曲：藤本記子　編曲：福富雅之
+
+
+
+M2「ワタシBlooming」
+
+
+
+歌：花寺のどか(CV：悠木碧)　ラビリン​(CV：加隈亜衣）
+
+
+
+　作詞：こだまさおり　作曲・編曲：Lantan　
+
+
+
+M3「ホッとスプリング」
+
+
+
+歌：沢泉ちゆ(CV：依田菜津)　ペギタン​（CV：武田華） 
+
+
+
+　作詞：こだまさおり　作曲・編曲：Lantan
+
+
+
+M4「カワイイ Be Ambitious!!」
+
+
+
+歌：平光ひなた(CV：河野ひより)　 ニャトラン​ （CV：金田アキ）　
+
+
+
+作詞：こだまさおり　作曲・編曲：Lantan
+
+
+
+M5「Good Good ハ～イ!!」
+
+
+
+歌：Machico with吉武千颯　
+
+
+
+作詞：大森祥子　作曲・編曲：坂東 邑真
+
+
+
+M6「かえりたい場所」
+
+
+
+歌：北川理恵・宮本佳那子　
+
+
+
+作詞：六ツ見純代　作曲：夢見クジラ　編曲：SHIKI
+
+
+
+M7「シェアして！プリキュア」
+
+
+
+歌：五條真由美　
+
+
+
+作詞：青木久美子　作曲・編曲：三好啓太
+
+
+
+ボーナストラック
+
+
+
+・「ふたごの目玉焼き、だ～れだ」
+
+
+
+歌：北川理恵
+
+
+
+作詞：こだまさおり　作曲・編曲：Lantan
+
+
+
+好評オンエア中「ヒーリングっど♥プリキュア」のキャラクターソング、イメージソング集「ボーカルアルバム」が遂に発売決定！！プリキュアの各キャラクターを表現した楽曲は勿論、オープニング歌手・北川理恵とプリキュアシリーズお馴染みの宮本佳那子のツインボーカル曲、エンディング歌手・Machicoに加え初代プリキュア主題歌歌手・五條真由美、吉武千颯も参加してのイメージソングを収録。
+
+メインキャスト声優＆プリキュアシンガーによる９月開催のライブ「ヒーリングっど♥プリキュアLIVE2020」披露予定楽曲を多数収録。「ヒーリングっど♥プリキュアLIVE2020 キュアTouch！ヒーリングっど♥MUSIC！」先行抽選応募券も封入。</blockquote>
+
+这次没有单人角色歌 都是和淫兽合唱 而且完全没有追加的份 往年只有组曲亚子没有上角色歌1和ed2
+
+那么看来今年女人预定追加比往年要晚 结果又加上疫情  追加戏份可能比百合亚子还少...
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 1976#       发表于 2020-5-22 17:54
+
+
+
+<img src="http://wx1.sinaimg.cn/large/69559a0aly1gf1ax8fy5aj20hs0dcdha.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1977#       发表于 2020-5-22 17:56
+
+
+
+
+常服ED舞，可惜只有十三秒<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 1978#       发表于 2020-5-24 16:45
+
+
+
+
+日本貌似明天全面复工
+
+应该能上新了吧
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1979#       发表于 2020-5-24 16:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">看到顶上来我还以为和隔壁甜梦猫一样好起来了，第五个没有妈q的周末，想她
+
+
+
+
+
+
+
+-----
+
+####  zero23333  
+##### 1980#       发表于 2020-5-24 20:56
+
+
+
+
+翻回历代的剧场版重看，还是感觉组曲开场是历代最高能的，一开局直接报警将中BOSS送进警局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 1981#       发表于 2020-5-25 06:32
+
+
+
+
+据说下周复播
+
+
+
+
+
+
+
+-----
+
+####  南风森琉璃  
+##### 1982#       发表于 2020-5-25 07:53
+
+
+
+
+nice，停了几周来着，想她们了
+
+
+
+
+
+
+
+-----
+
+####  真红眼教授  
+##### 1983#       发表于 2020-5-25 08:52
+
+
+
+
+那就是还有六年！
+
+
+
+
+
+
+
+-----
+
+####  leleq  
+##### 1984#       发表于 2020-5-25 09:01
+
+
+
+
+日向这纠结终于要结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                 
