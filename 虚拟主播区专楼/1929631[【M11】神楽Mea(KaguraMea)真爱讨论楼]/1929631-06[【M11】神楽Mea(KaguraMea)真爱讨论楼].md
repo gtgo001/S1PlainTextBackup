@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-25 18:07** 
+> ## **本文件最后更新于2020-05-25 20:08** 
 
 
 
@@ -23432,4 +23432,480 @@ syl，等你咩租下东京蛋ddd唱跳的时候你们就知道错了
 
 
 
-    
+
+
+-----
+
+####  Dualist彩  
+##### 8864#       发表于 2020-5-25 18:13
+
+
+
+
+思路广，建议英翻加404原视频反向投稿
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 8865#       发表于 2020-5-25 18:51
+
+
+
+
+喵的，我儿子又惹什么祸被挂黑屋了。
+不对，这号大概是mk2
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8866#       发表于 2020-5-25 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555243&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 18:51</a>
+喵的，我儿子又惹什么祸被挂黑屋了。
+不对，这号大概是mk2</blockquote>
+你想的没错
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 8867#       发表于 2020-5-25 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555243&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 18:51</a>
+喵的，我儿子又惹什么祸被挂黑屋了。
+不对，这号大概是mk2</blockquote>
+你儿子三天后就复活了。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8868#       发表于 2020-5-25 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555243&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 18:51</a>
+
+喵的，我儿子又惹什么祸被挂黑屋了。
+
+不对，这号大概是mk2</blockquote>
+千宝mua
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8869#       发表于 2020-5-25 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555243&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 18:51</a>
+
+喵的，我儿子又惹什么祸被挂黑屋了。
+
+不对，这号大概是mk2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">♥千里♥
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 8870#       发表于 2020-5-25 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555511&amp;ptid=1929631" target="_blank">睥睨寰宇荡红尘 发表于 2020-5-25 19:15</a>
+你儿子三天后就复活了。</blockquote>
+我关心他怎么进去，啥时候出来实在不关心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还有这好像不是我儿子，不能凭空多一个，麻烦。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JY要塞|-1|和谁的爱的结晶|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8871#       发表于 2020-5-25 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555537&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 19:17</a>
+
+我关心他怎么进去，啥时候出来实在不关心
+
+还有这好像不是我儿子，不能凭空多一个，麻烦。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8872#       发表于 2020-5-25 19:22
+
+
+
+
+才注意到和家主的图还没有换啊…
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 8873#       发表于 2020-5-25 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555554&amp;ptid=1929631" target="_blank">路人子 发表于 2020-5-25 19:19</a>
+
+mk2借了你儿子的号去和龙魂对喷嘴臭把自己弄进去了（具体参阅：https://bbs.saraba1st.com/2b/thre ...</blockquote>
+看到进去的理由是群内恩怨一看就知道是和龙魂绯影
+
+但是不知道是我儿子还是mk2把号喷进去的，
+
+毕竟俩人都像能干出这档子事的。
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 8874#       发表于 2020-5-25 19:24
+
+
+
+
+留着吧，也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8875#       发表于 2020-5-25 19:26
+
+
+
+
+这就是本楼唯一指定yhm
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8876#       发表于 2020-5-25 19:27
+
+
+
+
+怎么还有儿子的，这不是姨吗
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8877#       发表于 2020-5-25 19:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555621&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 19:24</a>
+
+看到进去的理由是群内恩怨一看就知道是和龙魂绯影
+
+但是不知道是我儿子还是mk2把号喷进去的，
+
+毕竟俩人都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自从5月4日b限之后（大概是5月5日）你儿子在这楼里留了最后一次言之后好像就把号给mk2去玩了，刚开始的时候还闹出过几个乌龙
+
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8878#       发表于 2020-5-25 19:31
+
+
+
+
+这么看mk2有点弱鸡诶，小博宇都几个号了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 8879#       发表于 2020-5-25 19:33
+
+
+
+ 本帖最后由 千里夜雨 于 2020-5-25 19:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555554&amp;ptid=1929631" target="_blank">路人子 发表于 2020-5-25 19:19</a>
+
+mk2借了你儿子的号去和龙魂对喷嘴臭把自己弄进去了（具体参阅：[https://bbs.saraba1st.com/2b/thre](https://bbs.saraba1st.com/2b/thre) ...</blockquote>
+抽了几页看看
+
+无聊得我连楼都不想爬完。<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+估计是重感冒太困了实在提不起劲。
+
+感觉翻来覆去就那点东西……
+
+无非拿出来说道的日期换成了我看不懂的谜语
+
+哎，就让mk2的去世当做留给我的未解之谜吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+啊，要获得一个儿子挺容易的
+
+只要对面先喊你儿子，你就会和他缔结一个互为儿子的关系
+
+这种东西叫做智能合约。
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8880#       发表于 2020-5-25 19:36
+
+
+
+ 本帖最后由 路人子 于 2020-5-25 19:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555717&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 19:33</a>
+
+抽了几页看看
+
+无聊得我连楼都不想爬完。
+
+估计是重感冒太困了实在提不起劲。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实没什么信息量，感冒了还是好好休息吧
+
+
+
+你们年轻人的儿子都是这么生出来的吗（
+
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 8881#       发表于 2020-5-25 19:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555717&amp;ptid=1929631" target="_blank">千里夜雨 发表于 2020-5-25 19:33</a>
+
+抽了几页看看
+
+无聊得我连楼都不想爬完。
+
+估计是重感冒太困了实在提不起劲。</blockquote>
+
+你居然还去翻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算是茶叶被泡了一年也该馊了，一点营养都没
+
+身体不行还来泥潭吸黑泥，想什么呢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8882#       发表于 2020-5-25 19:38
+
+
+
+
+千酱楼友需要你的开导<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8883#       发表于 2020-5-25 19:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">需要楼友开菊
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8884#       发表于 2020-5-25 19:42
+
+
+
+
+大家都好基动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 8885#       发表于 2020-5-25 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47555751&amp;ptid=1929631" target="_blank">framita 发表于 2020-5-25 19:37</a>
+你居然还去翻就算是茶叶被泡了一年也该馊了，一点营养都没
+
+身体不行还来泥潭吸黑泥，想什么呢 ...</blockquote>
+是看着挺不舒服的，就纯粹的看着烦
+滚去早点歇了接着学代码去
+
+btw
+我发了那个程序后写ddtv的大哥github上给我写了几段改进的代码，
+我充分意识到自己从网上拼凑着学出来的代码肯定是有问题的，
+该用的库都在反复造轮子。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8886#       发表于 2020-5-25 19:47
+
+
+
+
+呜呜呜mk2怎么进去了他还欠着我一篇futa文呢（啊什么三天后就出来了(눈_눈)，那没事了）
+
+
+
+
+
+   
