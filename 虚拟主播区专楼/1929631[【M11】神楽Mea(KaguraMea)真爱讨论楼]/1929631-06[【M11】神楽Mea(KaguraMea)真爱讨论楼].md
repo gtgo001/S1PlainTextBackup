@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-25 20:08** 
+> ## **本文件最后更新于2020-05-26 02:05** 
 
 
 
@@ -23908,4 +23908,585 @@ btw
 
 
 
-   
+
+
+-----
+
+####  A2014720  
+##### 8887#       发表于 2020-5-25 20:34
+
+
+
+
+动啊，为什么不动<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8888#       发表于 2020-5-25 20:35
+
+
+
+
+总有种这两天一动都没动的感觉
+
+艹，昨天播了可是睡觉错过了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8889#       发表于 2020-5-25 21:27
+
+
+
+
+才发现差一点就十万了，谁去点两下<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/3ad6ebdb8ff87399d4fe89f747bf323c/IMG_4ABF02394CB4C3F6BA5BDDFA1D080662.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8890#       发表于 2020-5-25 21:27
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8891#       发表于 2020-5-25 21:33
+
+
+
+
+这首b也才10w6，好起来了？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8892#       发表于 2020-5-25 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47557173&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-25 21:33</a>
+这首b也才10w6，好起来了？</blockquote>
+推特上时不时就能看到转这首歌的
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 8893#       发表于 2020-5-25 21:44
+
+
+
+
+刚点完，已经10万了，好起来了
+
+
+
+
+
+
+
+-----
+
+####  辛红辣椒杨永信  
+##### 8894#       发表于 2020-5-25 21:56
+
+
+
+ 本帖最后由 辛红辣椒杨永信 于 2020-5-25 21:59 编辑 
+
+对了，听说你楼龙魂先生别人黑屁庄司睿限装弱智唯唯诺诺，黑屁坛友的时候就重拳出击？不会吧不会吧，真有论坛氛围gachi啊，
+
+怎么不早点脱裤子对**呢，向世界证明一下粉丝之间是有真爱的啊不会真就高效学习绿帽谭lcc遗毒吧，流石龙魂带理客中先生了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8895#       发表于 2020-5-25 22:02
+
+
+
+
+求求别来m楼对线(ಥ_ಥ)，隔壁贴贴挂件楼挺好的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8896#       发表于 2020-5-25 22:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47557514&amp;ptid=1929631" target="_blank">辛红辣椒杨永信 发表于 2020-5-25 21:56</a>
+对了，听说你楼龙魂先生别人黑屁庄司睿限装弱智唯唯诺诺，黑屁坛友的时候就重拳出击？不会吧不会吧，真有论 ...</blockquote>
+虽然不知道你是从哪听来的，不过按照咱俩曾经的对话来看大概你只是想钓我鱼故意恶心人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你也不用回了我接下来也不会回你的
+
+
+
+
+
+
+
+-----
+
+####  辛红辣椒杨永信  
+##### 8897#       发表于 2020-5-25 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47557630&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-25 22:04</a>
+
+虽然不知道你是从哪听来的，不过按照咱俩曾经的对话来看大概你只是想钓我鱼故意恶心人所以你也不 ...</blockquote>
+不用哪里听来的，毕竟你什么性格我清楚得很，我有时候还是不懂一件事，你觉得别人PTSD的同时，能不能照照镜子看看自己什么样呢，用ptsd对抗ptsd？搁这儿刮骨疗毒呢？
+
+还有，我巴不得你少犯点病，毕竟我一个月没用你台球，不是你今天又在那里说45有妈，我的确懒得叼你和MK2打架
+
+可是45的确没妈啊，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8898#       发表于 2020-5-25 22:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">今天也是和平的一天
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8899#       发表于 2020-5-25 22:21
+
+
+
+
+不如去挂件楼，还能给那楼楼主弹几个提醒，何乐而不为呢？我期待着下一个120<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8900#       发表于 2020-5-25 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">v综靠楼内调侃找屁股赚kpi，天狗靠内战挂人寻历史赚kpi
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">双方都有光明的未来
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8901#       发表于 2020-5-25 22:38
+
+
+
+
+今天不动(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8902#       发表于 2020-5-25 22:40
+
+
+
+
+今天大概在处理积压的工作,大概
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8903#       发表于 2020-5-25 22:46
+
+
+
+
+今天大概在处理积压的奶茶，大概
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8904#       发表于 2020-5-25 22:50
+
+
+
+
+今天大概在处理积压的奶水，大概
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8905#       发表于 2020-5-25 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">闻到羊膻味了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8906#       发表于 2020-5-25 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47558221&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-25 22:50</a>
+
+今天大概在处理积压的奶水，大概</blockquote>
+我证明，一直在帮她处理，好累<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 8907#       发表于 2020-5-25 23:08
+
+
+
+
+这种症状持续多久了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8908#       发表于 2020-5-25 23:56
+
+
+
+
+话说framita桑怎么死了……
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8909#       发表于 2020-5-26 00:12
+
+
+
+
+一进楼翻了过去的楼层看到的b博预警吓一哆嗦，以为又要睡觉错过突击了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺便
+<img src="https://p.sda1.dev/0/1803f3ceba3f94d8c898f14e3677bd8f/IMG_FAFA3A0749115A1DB62FEB9B80BFCC71.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8910#       发表于 2020-5-26 00:15
+
+
+
+
+说好的加强单人内容<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">，睡了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 8911#       发表于 2020-5-26 00:16
+
+
+
+
+只有两人？观众参与型？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8912#       发表于 2020-5-26 00:20
+
+
+
+
+晚上一定会有的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 8913#       发表于 2020-5-26 00:28
+
+
+
+
+这是单纯的找人打麻将，别想多了嗷
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8914#       发表于 2020-5-26 00:29
+
+
+
+
+不要打麻酱 不要打麻酱<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8915#       发表于 2020-5-26 00:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">希望别麻将了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 8916#       发表于 2020-5-26 00:45
+
+
+
+
+感觉麻酱还挺有意思的。。。拼字游戏我看不懂
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8917#       发表于 2020-5-26 00:46
+
+
+
+
+我这种连麻将都不懂的就比较郁闷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能从她们说的话中来获取信息
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8918#       发表于 2020-5-26 01:41
+
+
+
+
+不懂麻将可以先去看看天才麻将少女然后自己玩两把雀魂人机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8919#       发表于 2020-5-26 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47559753&amp;ptid=1929631" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-26 01:41</a>
+不懂麻将可以先去看看天才麻将少女然后自己玩两把雀魂人机</blockquote>
+好主意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">正好最近想找点东西看
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8920#       发表于 2020-5-26 02:02
+
+
+
+
+天才麻将少女太萌豚了，还得斗牌传说跟天和街浪子
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 8921#       发表于 2020-5-26 02:04
+
+
+
+
+问就是白天抓人没空看
+
+前天飞机刚落地昨天就钻了一天的山路，还好庄司疼我，没再白天三连
+
+
+
+
+
+  
