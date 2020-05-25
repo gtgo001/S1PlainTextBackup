@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 22:03** 
+> ## **本文件最后更新于2020-05-25 12:02** 
 
 
 
@@ -29,7 +29,7 @@
 
 
 咳嗯。
-<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_XZ5Ow" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
+<img src="https://steamuserimages-a.akamaihd.net/ugc/764973959221792521/9B43877D6DBC90602B9D156D43DC8DC1681889FC/" height="960" id="aimg_VK59h" onclick="zoom(this, this.src, 0, 0, 0)" width="540"/)
 
 
 美术强，部分主要文本带语音。
@@ -29028,4 +29028,452 @@ https://steamcommunity.com/gid/103582791458434291/announcements/detail/220952328
 
 
 
- 
+
+
+-----
+
+####  sharp_star  
+##### 1447#       发表于 2020-5-18 09:57
+
+
+
+
+劳动阶级这是自动适应的么？为啥更新以后还是很卡
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1448#       发表于 2020-5-18 10:22
+
+
+
+
+玩了个开头 文本真的好晦涩啊
+
+
+
+
+
+
+
+-----
+
+####  Phoenix_0592  
+##### 1449#       发表于 2020-5-18 12:54
+
+
+
+
+Mac优化也太差了…一周目死八个小金也走了，一点也没有动力重新玩…
+
+
+
+
+
+
+
+-----
+
+####  风烛尘香  
+##### 1450#       发表于 2020-5-18 19:44
+
+
+
+
+那个好坏警官和荣誉值有什么关系？拿到了模范好警官的成就（获得金的信任），但荣誉值只有一点
+
+
+
+
+
+
+
+-----
+
+####  h1r0  
+##### 1451#       发表于 2020-5-18 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47444015&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-16 21:07</a>
+
+很遗憾他没有</blockquote>
+是检定失败之后，你在显示的对话[能工巧匠：失败]这里，一般检定只会显示你这次投出的点数，而这个门的检定除了显示点数外还附加"必然失败"四个字
+
+
+
+
+
+
+
+-----
+
+####  电风扇  
+##### 1452#       发表于 2020-5-18 21:12
+
+
+
+
+今天刚开始玩，开头让人觉得“这尼玛喝高了吧写出这种剧本来”，屏幕亮起来发现果然喝高了hhh
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 1453#       发表于 2020-5-18 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47460733&amp;ptid=1858008" target="_blank">robertjiong 发表于 2020-5-18 10:22</a>
+
+玩了个开头 文本真的好晦涩啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实主线故事挺直白的，除了主角晚上睡觉做梦的剧情我完全看不懂以外其他剧情都很好懂。这游戏很难阅读的地方主要在于和NPC闲谈经常会出现意识形态、政治倾向、个人思想相关的严肃话题
+
+
+
+
+
+
+
+-----
+
+####  妄想中毒  
+##### 1454#       发表于 2020-5-18 21:41
+
+
+
+
+话说接受工会主席的贿赂好像对结局没有任何影响啊，从岛上回来总结整个案子的时候提都没提这件事。另外工会主席给的第一个任务里提到的黄鼠狼到底是谁？
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1455#       发表于 2020-5-18 21:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47468155&amp;ptid=1858008" target="_blank">妄想中毒 发表于 2020-5-18 21:41</a>
+
+话说接受工会主席的贿赂好像对结局没有任何影响啊，从岛上回来总结整个案子的时候提都没提这件事。另外工会 ...</blockquote>
+应该是那个神秘学家的助手
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 1456#         楼主| 发表于 2020-5-18 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47468155&amp;ptid=1858008" target="_blank">妄想中毒 发表于 2020-5-18 21:41</a>
+
+话说接受工会主席的贿赂好像对结局没有任何影响啊，从岛上回来总结整个案子的时候提都没提这件事。另外工会 ...</blockquote>
+就去找竹节虫的学者的那个法·西·斯·主·义助手啊，他的家在案发点围墙后的一个地下室，接任务后问那个坐在楼梯上的人拿钥匙就能进去了
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 1457#         楼主| 发表于 2020-5-18 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47468155&amp;ptid=1858008" target="_blank">妄想中毒 发表于 2020-5-18 21:41</a>
+
+话说接受工会主席的贿赂好像对结局没有任何影响啊，从岛上回来总结整个案子的时候提都没提这件事。另外工会 ...</blockquote>
+这些通常影响你某些投骰的点数基础，投骰时上方会列出来
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 1458#       发表于 2020-5-21 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">怎么出时间了，时间走到2:00以后了，还是白天，npc快跑光了还不能睡觉
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 1459#       发表于 2020-5-21 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">草，从第四天让金把卡拉洁抓走之后的档就都不能睡觉了，有毒吧
+
+
+
+
+
+
+
+-----
+
+####  文化消费猪  
+##### 1460#       发表于 2020-5-24 12:04
+
+
+
+
+有说具体什么时候出ns版吗？再玩一遍
+
+
+
+
+
+
+
+-----
+
+####  サリシノハラ  
+##### 1461#       发表于 2020-5-24 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47538866&amp;ptid=1858008" target="_blank">文化消费猪 发表于 2020-5-24 12:04</a>
+
+有说具体什么时候出ns版吗？再玩一遍</blockquote>
+他家参加下月初的线上独立展，看看到时候讲不讲主机版计划吧
+
+
+
+
+
+
+
+-----
+
+####  Ty_cc  
+##### 1462#       发表于 2020-5-24 15:56
+
+
+
+ 本帖最后由 Ty_cc 于 2020-5-24 15:57 编辑 
+
+怎么偷偷摸摸背着金出去，去渔村那睡觉吗，能做什么事     <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">   算了，就要和金贴贴
+
+
+街灯不知道买了会有啥用
+
+
+一开始以为雨衣要在下雨时候穿，然后发现没效果
+
+
+全程没抽烟喝酒，最后金还夸我  <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+一开始敏捷第一栏那个，以为是和gun法有关的，点了很多，然后发现全程没怎么开gun <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1463#       发表于 2020-5-24 16:20
+
+
+
+
+ 那个猪猪女侠到底要怎么样才出来，周四白天接了任务，晚上9点我就蹲在那里了，通过看书刷时间，到了11点也没见到有人
+
+
+地点没有错，查过攻略了
+
+
+
+
+
+
+
+-----
+
+####  哈尔摩尼亚N  
+##### 1464#       发表于 2020-5-24 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47541109&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-5-24 16:20</a>
+那个猪猪女侠到底要怎么样才出来，周四白天接了任务，晚上9点我就蹲在那里了，通过看书刷时间，到了11点也 ...</blockquote>
+要刷新地图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">建议别原地等，准时过去
+
+
+
+
+
+
+
+-----
+
+####  粉色猛男  
+##### 1465#       发表于 2020-5-24 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47541141&amp;ptid=1858008" target="_blank">哈尔摩尼亚N 发表于 2020-5-24 16:23</a>
+
+要刷新地图建议别原地等，准时过去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">独挡进去就有了
+
+
+
+
+
+
+
+-----
+
+####  古代人皮克  
+##### 1466#       发表于 2020-5-24 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47540930&amp;ptid=1858008" target="_blank">Ty_cc 发表于 2020-5-24 15:56</a>
+怎么偷偷摸摸背着金出去，去渔村那睡觉吗，能做什么事        算了，就要和金贴贴
+
+
+街灯不知道买了 ...</blockquote>
+回房间之后别点床出门就可以偷偷跑了
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  fat  
+##### 1467#       发表于 2020-5-24 19:28
+
+
+
+
+为什么我进教堂后就经常偶发乱码……
+
+这个是bug，不是演出吧？
+
+我快被爱凡客弄疯了……
+
+<img src="http://wx2.sinaimg.cn/mw690/69730d63gy1gf3riwyqfxj20lc0ly1kl.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  聚散浮云  
+##### 1468#       发表于 2020-5-25 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47542888&amp;ptid=1858008" target="_blank">fat 发表于 2020-5-24 19:28</a>
+为什么我进教堂后就经常偶发乱码……
+
+这个是bug，不是演出吧？
+
+我快被爱凡客弄疯了……</blockquote>
+目测是bug，没遇到过
+
+
+
+
+
+
+
+-----
+
+####  modedd  
+##### 1469#       发表于 2020-5-25 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47541109&amp;ptid=1858008" target="_blank">粉色猛男 发表于 2020-05-24 16:20:47</a>
+那个猪猪女侠到底要怎么样才出来，周四白天接了任务，晚上9点我就蹲在那里了，通过看书刷时间，到了11点也 ...</blockquote>进出个建筑物刷新下地图
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kerorokun  
+##### 1470#       发表于 2020-5-25 09:57
+
+
+
+
+我觉得1年以内免费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  她的猫  
+##### 1471#       发表于 2020-5-25 11:43
+
+
+
+
+更新之后，实际效果也没有达到他说的比XX海沟还低的地步，玩起来电脑还是很热啊。
+
+
+
+
+
