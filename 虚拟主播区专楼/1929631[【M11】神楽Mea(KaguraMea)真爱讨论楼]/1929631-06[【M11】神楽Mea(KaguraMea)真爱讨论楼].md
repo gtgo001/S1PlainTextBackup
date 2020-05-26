@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-26 02:05** 
+> ## **本文件最后更新于2020-05-26 12:04** 
 
 
 
@@ -24489,4 +24489,811 @@ btw
 
 
 
-  
+
+
+-----
+
+####  nightmare902015  
+##### 8922#       发表于 2020-5-26 02:06
+
+
+
+
+我是之前照着麻将妹的发言，差不多这么学了下。
+但常说的牌效和策略之类的完全不懂，自己打了几把又去看了看各种攻略总结也体会不出乐趣。
+
+这种只能算了，就像她玩lol我是刀斯林，她工商舰b但我只认砍口垒，她播MC我实在只想打瞌睡。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 8923#       发表于 2020-5-26 06:39
+
+
+
+
+醒着
+【TwitterUser 神楽めあ 数据改变】
+键：location
+原值：軽率に推してください
+现值：人生夏休み
+
+时间：2020-05-25 20:13:24 UTC网址：https://twitter.com/KaguraMea_VoV
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8924#       发表于 2020-5-26 07:13
+
+
+
+
+看不懂麻将可能也是好事。每次我都能从弹幕的发言中感受到他们的血压升高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8925#       发表于 2020-5-26 08:02
+
+
+
+
+作息越来越诡异了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 8926#       发表于 2020-5-26 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47559889&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-5-26 02:06</a>
+我是之前照着麻将妹的发言，差不多这么学了下。
+但常说的牌效和策略之类的完全不懂，自己打了几把又去看了 ...</blockquote>
+这就是真爱么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8927#       发表于 2020-5-26 10:10
+
+
+
+
+最近每天早上都会掉粉<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+之前也没见过啊…
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8928#       发表于 2020-5-26 10:16
+
+
+
+ 本帖最后由 第三惑星 于 2020-5-26 10:18 编辑 
+
+以前有过啊，也是每天上午掉粉，特别准时，我当时还以为是批站清理僵尸粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 8929#       发表于 2020-5-26 10:20
+
+
+
+
+每天上午，大概是早上起来翻动态的那一批？
+每天早上官组会转几条fanart，可能这时候那些无感的粉丝就会看到自己还关注了这位vtuber，觉得不喜欢，就取关了呗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8930#       发表于 2020-5-26 10:34
+
+
+
+
+说真的，如果不是v圈内观众那还是挺容易因为刷屏取关的，一般而言的b站up基本上都不怎么发b博，更别提很多就做稳定周更或者出了成品视频才投稿的视频制作者了。
+
+对于我而言，她比较活跃的时候，基本上一半的b站动态都是她的动态，而转发动态和视频相比对于很早之前就顺手点了个关注的人更是毫无信息量可言，还有可能让自己不小心错过其他人的视频。
+
+不过顾此就要失彼，现在这样挺好的，没兴趣的也就没兴趣了呗，不强求。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8931#       发表于 2020-5-26 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和组长是杂谈？那挺好
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 8932#       发表于 2020-5-26 10:37
+
+
+
+
+确实，自从关注了vtuber，我的批站动态都没法看了，全是转发和各种辣鸡信息，非常理解那些取关的人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8933#       发表于 2020-5-26 10:40
+
+
+
+ 本帖最后由 Dualist彩 于 2020-5-26 10:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单推还会有这种烦恼吗？
+
+    
+
+签名竟然动了，麻酱的盛夏要到了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8934#       发表于 2020-5-26 10:42
+
+
+
+
+不会啊，我只是分析一下这个现象而已，因为我现在就经常漏了关注的其他人的视频看了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8935#       发表于 2020-5-26 10:47
+
+
+
+
+看了下曲线就最近显得很反常，其他几个vtb也没这情况…真就逢魔时刻呗
+
+syl新签名莫名联想到日本解禁…这个b啊<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8936#       发表于 2020-5-26 10:54
+
+
+
+
+那大概就是她国内已经从其他v那里吸不到人了，杏箱没联动，虹箱没啥人，anmr连入驻都没，只有靠自己向外扩圈了。
+
+其实我觉得真的没必要在意更没必要在这里说，真的就想说去斗虫楼就好了，反正基本也都有看，有想回答你的肯定会回答你的，，，
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8937#       发表于 2020-5-26 10:55
+
+
+
+
+她不掉粉我才觉得不正常好吧，毕竟是你圈唯一一个风评出圈的女人，一般路人随便被哪个所谓黑料aoe一波正好早上起来又看见动态顺手取关再正常不过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8938#       发表于 2020-5-26 10:58
+
+
+
+
+呜喵王不是说当就当的，所以现在看到那些沙雕视频我也不太会去看了，不给他们增加播放量，减少一些早年烂梗的宣传。但是这又一定程度上来说是削减她的热度，都没人看沙雕创作了那去做的人肯定越来越少了，两难<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8939#       发表于 2020-5-26 11:08
+
+
+
+
+风评这东西，真正黑得最多的那些人一开始就不会关注。不出现严重事件的情况下，路人散户取关最大的原因是觉得没意思了。
+mea现在没那么多暴言了，追求猎奇的人取关很正常
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8940#       发表于 2020-5-26 11:09
+
+
+
+
+wwwwwwww挖掘机对谈
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8941#       发表于 2020-5-26 11:12
+
+
+
+ 本帖最后由 A2014720 于 2020-5-26 11:13 编辑 
+
+新的车轱辘材料有了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这时间来放毒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8942#       发表于 2020-5-26 11:12
+
+
+
+
+听错咩的声音的失格粉丝和冲错麻照的clay到底哪个更丢人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8943#       发表于 2020-5-26 11:14
+
+
+
+
+。。犬山这阴沉的声音，好可怕
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8944#       发表于 2020-5-26 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47562521&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-26 11:12</a>
+
+听错咩的声音的失格粉丝和冲错麻照的clay到底哪个更丢人呢
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客 ...</blockquote>
+给劳资爪巴<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8945#       发表于 2020-5-26 11:16
+
+
+
+
+我要被这声音馋死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+然而还有两小时才能吃<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8946#       发表于 2020-5-26 11:16
+
+
+
+
+草，似曾相识
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8947#       发表于 2020-5-26 11:19
+
+
+
+
+上次苔苔中途加入后来变成啥样了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 8948#       发表于 2020-5-26 11:19
+
+
+
+
+海苔男怎么这么虚啊，魂都要飞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 8949#       发表于 2020-5-26 11:19
+
+
+
+
+这三个人，给我种看铁齿铜牙纪晓岚的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8950#       发表于 2020-5-26 11:21
+
+
+
+
+通宵干活完虚得不行
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8951#       发表于 2020-5-26 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打开转播劈头盖脸就被苔姨那没睡醒的低沉声线糊了满耳，真显老啊...
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 8952#       发表于 2020-5-26 11:30
+
+
+
+
+苔苔这声音<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8953#       发表于 2020-5-26 11:32
+
+
+
+
+看了隔壁现在是苔总了吗…
+这声线我觉得蛮舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8954#       发表于 2020-5-26 11:34
+
+
+
+
+苔总还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这声音听起来真稳重啊
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8955#       发表于 2020-5-26 11:37
+
+
+
+ 本帖最后由 A2014720 于 2020-5-26 11:42 编辑 
+
+卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们这早饭怎么越吃越多的
+五元没在路上吧，没有吧没有吧没有吧
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8956#       发表于 2020-5-26 11:38
+
+
+
+
+这mari怎么回事
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 8957#       发表于 2020-5-26 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不管听几次都觉得兔鞠这声线和狐桑真的像（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8958#       发表于 2020-5-26 11:38
+
+
+
+
+fbk来了（错乱
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 8959#       发表于 2020-5-26 11:42
+
+
+
+
+女子早茶会
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 8960#       发表于 2020-5-26 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47562929&amp;ptid=1929631" target="_blank">神光咩咩 发表于 2020-5-26 11:42</a>
+女子早茶会</blockquote>
+女子的早茶吃披萨么？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8961#       发表于 2020-5-26 11:43
+
+
+
+
+吃饭的时候说什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8962#       发表于 2020-5-26 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，怎么一进去就听见咩姐调戏大叔的
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 8963#       发表于 2020-5-26 11:46
+
+
+
+
+同接7300，好起来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8964#       发表于 2020-5-26 11:49
+
+
+
+
+这兔鞠就是五元的上位替代啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8965#       发表于 2020-5-26 11:53
+
+
+
+
+兔鞠永远滴神，舞元废垃不堪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+     
+
+syl，前面的话题，你麻没有暴言（×），字幕组不剪暴言（√），最近总顺劈字幕组总觉得有点过意不去，毕竟最近产确实还可以
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8966#       发表于 2020-5-26 11:58
+
+
+
+
+mari是美少女，舞元是男。。魅魔，不一样<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 8967#       发表于 2020-5-26 11:59
+
+
+
+
+说别人是发情期的人才是发情期
+
+
+
+
+
+ 
