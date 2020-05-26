@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-26 12:04** 
+> ## **本文件最后更新于2020-05-26 14:07** 
 
 
 
@@ -25296,4 +25296,567 @@ mari是美少女，舞元是男。。魅魔，不一样<img src="https://static.
 
 
 
- 
+
+
+-----
+
+####  A2014720  
+##### 8968#       发表于 2020-5-26 12:26
+
+
+
+
+我吐了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 8969#       发表于 2020-5-26 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人说兔鞠和fbk声音像了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8970#       发表于 2020-5-26 12:31
+
+
+
+
+草，说出口了
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8971#       发表于 2020-5-26 12:32
+
+
+
+
+说兔子大叔像fbk的事情被发现了！
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8972#       发表于 2020-5-26 12:32
+
+
+
+
+你们谁去说的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8973#       发表于 2020-5-26 12:36
+
+
+
+
+谁的黒屁发给苔姨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8974#       发表于 2020-5-26 12:37
+
+
+
+
+草，这里有内鬼
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8975#       发表于 2020-5-26 12:38
+
+
+
+
+bsyl
+
+
+我怀疑后来苔姨收敛了就是因为收到了骚扰<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8976#       发表于 2020-5-26 12:41
+
+
+
+
+说不定是苔苔看了s1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8977#       发表于 2020-5-26 12:41
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-26 12:57 编辑 
+
+pro哥， 是你吗， pro哥
+
+虽然被block了， 可是还是用小号给苔苔打小报告<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+嗯？ 我看nga同传是说有阴谋论说苔姨被你麻洗脑了？ 这里的黒屁不是该反过来吗？
+
+
+是其他人的黒屁还是同传错了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+我觉得同传错了
+
+
+new： 大概的确是同传错了， 是苔苔洗脑你咩的阴谋论 
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8978#       发表于 2020-5-26 12:50
+
+
+
+ 本帖最后由 proxima 于 2020-5-26 12:52 编辑 
+
+其实我也觉得兔鞠声音有点像白少主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便，海苔男那哪是没睡醒，她就没睡，等着外卖来了吃完睡觉能精神吗
+
+
+syl，虽然我的确被拉黑了也的确跟苔宝小号对线了，但是我没有当二五仔啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8979#       发表于 2020-5-26 13:14
+
+
+
+
+有东西，要来了
+<img src="https://p.sda1.dev/0/7a74d9c6128b86cb879175e61b9cfb48/IMG_8C762580A41F6720A65633CABEB33F9E.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 8980#       发表于 2020-5-26 13:17
+
+
+
+ 本帖最后由 时之虫 于 2020-5-26 13:25 编辑 
+
+来个菠菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我猜是live
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8981#       发表于 2020-5-26 13:20
+
+
+
+
+儿童节草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8982#       发表于 2020-5-26 13:22
+
+
+
+
+提前一周放肉猪,你咩真是个磨人的小妖精
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8983#       发表于 2020-5-26 13:22
+
+
+
+
+是什么是什么是什么是什么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 8984#       发表于 2020-5-26 13:24
+
+
+
+
+我猜是live发表，一是日本不过六一，二是标题用的神乐mea，有阿b官方那味了，如果是她自己或者字幕组起的名，感觉不会是这种
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 8985#       发表于 2020-5-26 13:25
+
+
+
+
+哪有小孩天天哭，哪有赌友天天输
+
+我猜又是阿b的活动，说不定还能看到阿b给的那个3d<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 8986#       发表于 2020-5-26 13:28
+
+
+
+
+艹，看了下又说苔苔转企业势是为了避税来着
+这样一想又感觉麻亏了一个亿啊
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 8987#       发表于 2020-5-26 13:30
+
+
+
+
+3d的可能性很小，无论哪边的摄影棚都不算安全（当然国内这边用替身进摄影棚的可能性大一点，但也大不到哪去），新衣服也不可能，卖谷子也不可能，把预期调到最低那估计就是发布一个“b限周”企划了吧（
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8988#       发表于 2020-5-26 13:30
+
+
+
+
+卫星落地卫星落地
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 8989#       发表于 2020-5-26 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47564268&amp;ptid=1929631" target="_blank">Cuppco 发表于 2020-5-26 13:28</a>
+艹，看了下又说苔苔转企业势是为了避税来着
+这样一想又感觉麻亏了一个亿啊 ...</blockquote>
+之前还可以这么说，现在是要公开招二期了，性质不一样
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8990#       发表于 2020-5-26 13:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">猜一个原创曲+3dlive+新live2d+军服3d公布
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 8991#       发表于 2020-5-26 13:42
+
+
+
+
+标题既然用的神乐mea，怎么想都是阿b策划的东西，不是live就是b限周吧，最次是别的什么活动，个人感觉live发表可能性大一点，提前个十几二十天公布下时间啥的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 8992#       发表于 2020-5-26 13:42
+
+
+
+
+这梦太大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 8993#       发表于 2020-5-26 13:43
+
+
+
+
+bls定档这个感觉还是靠点谱的，或者又是她还不知道的东西）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 8994#       发表于 2020-5-26 13:44
+
+
+
+
+3dlive给我搞起来啊阿b，我必再当一年pxj好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 8995#       发表于 2020-5-26 13:44
+
+
+
+
+神乐mea重大发表：六月一日b站限定直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 8996#       发表于 2020-5-26 13:45
+
+
+
+
+东京巨蛋好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8997#       发表于 2020-5-26 13:46
+
+
+
+
+东京奥运会
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 8998#       发表于 2020-5-26 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47564444&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-5-26 13:44</a>
+神乐mea重大发表：六月一日b站限定直播</blockquote>
+mea是杏人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 8999#       发表于 2020-5-26 13:49
+
+
+
+
+梦再大一点，这几天摸鱼是在阿b分社录live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 9000#       发表于 2020-5-26 13:59
+
+
+
+ 本帖最后由 千木唯 于 2020-5-26 14:01 编辑 
+
+别了，那边她也不敢去，去了我也不放心。分社和其他摄影棚也没什么区别不是睿站的就安全了。
+
+要说live的话也有可能是确定参加今年bml的线上live
+
+
+
+
+
