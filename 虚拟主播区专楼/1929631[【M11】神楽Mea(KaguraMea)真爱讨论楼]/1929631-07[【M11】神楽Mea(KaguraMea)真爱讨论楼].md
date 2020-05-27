@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-27 12:05** 
+> ## **本文件最后更新于2020-05-27 20:05** 
 
 
 
@@ -1609,4 +1609,854 @@ syl 一直觉得你咩对于把苔苔当垃圾场是心知肚明的，某种程�
 
 
 
-                                              
+
+
+-----
+
+####  时雨rain  
+##### 9095#       发表于 2020-5-27 13:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">所以她又过上了日夜颠倒的日子对吗
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 9096#       发表于 2020-5-27 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47576408&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-27 13:14</a>
+
+所以她又过上了日夜颠倒的日子对吗</blockquote>
+或许从一开始她其实就没日夜概念，住的地方没有床，墙面铺满隔音棉，把自己锁在房间里，困了就躺下，醒了就爬起来，吃着楼下24小时便利店的便当<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9097#       发表于 2020-5-27 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47577172&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-27 14:33</a>
+或许从一开始她其实就没日夜概念，住的地方没有床，墙面铺满隔音棉，把自己锁在房间里，困了就躺下，醒了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">你麻没到那么宅的地步吧，以前可是经常出去打工玩帕青哥的野猫
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9098#       发表于 2020-5-27 14:59
+
+
+
+ 本帖最后由 A2014720 于 2020-5-27 15:00 编辑 
+
+与社会脱节啊
+今天大概无了
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 9099#       发表于 2020-5-27 15:34
+
+
+
+
+《Room》
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9100#       发表于 2020-5-27 15:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说得像地缚灵一样啊，早上tc说过在家里都快憋出病了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9101#       发表于 2020-5-27 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47577172&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-27 14:33</a>
+
+或许从一开始她其实就没日夜概念，住的地方没有床，墙面铺满隔音棉，把自己锁在房间里，困了就躺下，醒了 ...</blockquote>
+仔细想想有、涩啊<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 9102#       发表于 2020-5-27 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47577172&amp;ptid=1929631" target="_blank">cgz 发表于 2020-5-27 14:33</a>
+
+或许从一开始她其实就没日夜概念，住的地方没有床，墙面铺满隔音棉，把自己锁在房间里，困了就躺下，醒了 ...</blockquote>
+这让我想起模拟人生4里那个段子
+
+被关在地下室的创作者
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9103#       发表于 2020-5-27 17:14
+
+
+
+
+Vtuberあるある(主に神楽めあの場合)
+
+
+・ウーバーイーツが彼氏
+
+
+・ごみ捨てが1週間に1回
+
+
+・頻繁に小さな虫と同棲してる
+
+
+・4月から9月までpc部屋は基本冷房つけっぱ
+
+(熱を持ちやすい機械がたくさんあるから外より基本暑い)
+
+
+・洗濯物はシーズンごとに実家へ郵送
+
+
+・飲み物の消費が1日で約２L～４L
+
+
+虽然没那么夸张但也挺可怕了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9104#       发表于 2020-5-27 17:17
+
+
+
+
+嗦不粗话
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 9105#       发表于 2020-5-27 17:20
+
+
+
+
+废人生活<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9106#       发表于 2020-5-27 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">w👆啊👇，这个已经不行了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9107#       发表于 2020-5-27 17:52
+
+
+
+
+换季寄衣服不是正常操作吗？？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9108#       发表于 2020-5-27 17:55
+
+
+
+
+她是不自己洗衣服，脏衣服堆一个季度一起寄回家
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 9109#       发表于 2020-5-27 17:56
+
+
+
+
+2到4L水还行，2到4L饮料会不会太多了？哦我每天也是4瓶无糖饮料起步的，那没事了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9110#       发表于 2020-5-27 17:56
+
+
+
+
+不会今天也无b限吧(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9111#       发表于 2020-5-27 17:57
+
+
+
+
+洗应该还是洗的，至于能洗得多干净就不好说了
+
+
+其实不出门的话，要在乎的主要是不要干别的吃东西然后搞得桌子地板身上全都脏了——但我觉得她做不到
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9112#       发表于 2020-5-27 17:59
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-27 18:09 编辑 
+
+虫子是真的吗
+
+如果是小虫的话大概不是蟑螂
+
+
+大概是蚊子， 螨虫，蚂蚁， 果蝇之类的吧
+
+
+在禁令期间说不定身上都生虫了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+被虫子寄居的麻酱你喜欢吗
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 9113#       发表于 2020-5-27 18:02
+
+
+
+
+应该是真的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9114#       发表于 2020-5-27 18:04
+
+
+
+
+虫与垃圾与温度
+
+画面感来了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9115#       发表于 2020-5-27 18:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">日本蟑螂是和南方蟑螂一样大的么
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 9116#       发表于 2020-5-27 18:13
+
+
+
+
+不会飞就没问题<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9117#       发表于 2020-5-27 18:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不要再说了，已经脑补到虫与少女不可描述的禁忌了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9118#       发表于 2020-5-27 18:24
+
+
+
+
+这有点那种监禁少女的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+774你不是人！<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9119#       发表于 2020-5-27 18:26
+
+
+
+
+没有虫子，麻酱跟大家开玩笑呢，昨天我刚刚打扫过，鄙人姓外名卖
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9120#       发表于 2020-5-27 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580040&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-5-27 18:26</a>
+
+没有虫子，麻酱跟大家开玩笑呢，昨天我刚刚打扫过，鄙人姓外名卖
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后你就是外宝了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9121#       发表于 2020-5-27 18:55
+
+
+
+
+苗床还行
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 9122#       发表于 2020-5-27 18:57
+
+
+
+
+咩 食 虫
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9123#       发表于 2020-5-27 18:58
+
+
+
+
+咩之梦
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 9124#       发表于 2020-5-27 19:00
+
+
+
+ 本帖最后由 小麻和狗狗 于 2020-5-27 19:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580392&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-27 18:58</a>
+咩之梦</blockquote>
+神乐咩间桐樱说？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">要论证的话估计又会被你们送进去
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">明明是你们自己先提的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9125#       发表于 2020-5-27 19:05
+
+
+
+
+你当你自己身上没虫子吗.jpg
+
+
+区别只是有的人身上的多了一点大了一点
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9126#       发表于 2020-5-27 19:07
+
+
+
+
+就我觉得一天2L到4L更可怕吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9127#       发表于 2020-5-27 19:07
+
+
+
+
+幻想设定里的虫子还行，现实中存在的还是算了吧（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9128#       发表于 2020-5-27 19:07
+
+
+
+
+来做寄生物生态交流吧.jpg
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9129#       发表于 2020-5-27 19:07
+
+
+
+
+不喝水纯喝饮料是这样的
+
+
+其实只要糖分不高那也还好
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9130#       发表于 2020-5-27 19:08
+
+
+
+
+茶饮料吧
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9131#       发表于 2020-5-27 19:08
+
+
+
+
+火星异种里的阿强
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9132#       发表于 2020-5-27 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580488&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-5-27 19:07</a>
+不喝水纯喝饮料是这样的
+
+
+其实只要糖分不高那也还好</blockquote>
+一天喝几升水我还能理解，喝几升饮料就超出我的认知了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9133#       发表于 2020-5-27 19:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">麻麻已经可以和那种存在战斗了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">好爱啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9134#       发表于 2020-5-27 19:10
+
+
+
+
+是魔法少女
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9135#       发表于 2020-5-27 19:10
+
+
+
+
+把无糖茶饮料当水喝问题不大
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9136#       发表于 2020-5-27 19:11
+
+
+
+
+是神（指萌音）
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9137#       发表于 2020-5-27 19:12
+
+
+
+
+之前碰到过一个接近40岁的女同事每天雷打不动非要喝2L可乐的，持续了一到两年，后来体检出问题才慢慢戒掉这个习惯（
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9138#       发表于 2020-5-27 19:13
+
+
+
+
+看日本动画，不是经常冰箱里有一大桶茶饮料，直接喝吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9139#       发表于 2020-5-27 19:43
+
+
+
+
+上次不是说的喝的いろはす吗，跟农夫山泉有什么区别嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也经常买一桶5l的农夫山泉回家啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9140#       发表于 2020-5-27 19:54
+
+
+
+
+主要是我想了想我在宿舍里打水的话5L的桶也不会两天喝完啊……
+
+
+不过多喝水没坏处
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 9141#       发表于 2020-5-27 19:57
+
+
+
+
+还好吧，这两天我也是一天两三升水，天气热又干，我还没开空调<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9142#       发表于 2020-5-27 20:01
+
+
+
+
+不过她这饮量有点大啊，一天两到四升<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+是汗液分泌旺盛吗，那还不洗澡，qs有味道了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                             
