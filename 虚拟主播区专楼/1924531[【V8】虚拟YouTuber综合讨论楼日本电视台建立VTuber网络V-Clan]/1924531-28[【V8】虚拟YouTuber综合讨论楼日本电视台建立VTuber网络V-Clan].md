@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-27 22:03** 
+> ## **本文件最后更新于2020-05-28 00:05** 
 
 
 
@@ -2739,7 +2739,7 @@ syl，杏是帝国，虹是共和国，这是联邦来了吗
 
 syl
 这个好像很有意思的样子
-<img src="https://p.sda1.dev/0/a9803622b0ca11d65b1136851d0ab1bf/IMG_20200527_180823.JPG" id="aimg_bT3a1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/a9803622b0ca11d65b1136851d0ab1bf/IMG_20200527_180823.JPG" id="aimg_jK7XY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4156,6 +4156,25 @@ syl，bili现在杏就是日薄西山了啊，全靠大亏撑着了
 
 这要看原话怎么说的了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MisForTunez| + 1|社筑 四月一日的线下会|
+
+
+
+查看全部评分
 
 
 
@@ -5951,10 +5970,11 @@ holo这边完全没话题
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|思路广|
 | 金魚佬| + 1|思路广|
 | 时雨rain| + 1|这几乎是aqua所有mc联动都要做的事.|
 | mmbk| + 1|欢乐多|
@@ -6051,6 +6071,25 @@ holo这边完全没话题
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 和葵皇一起看游戏还挺有趣的，找到看管人的初心了，真好阿，希望这样的时间永远停在这一刻
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|2000被净化了吗|
+
+
+
+查看全部评分
 
 
 
@@ -8503,4 +8542,2898 @@ sc记得常年百万吧，而且菜姐姐会员记得也蛮多的，2800？还�
 
 
 
-                                   
+
+
+-----
+
+####  opersuper  
+##### 40943#       发表于 2020-5-27 22:04
+
+
+
+
+苔宝和伊东life单挑画画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 40944#       发表于 2020-5-27 22:07
+
+
+
+
+这船长。。。。。太狗了。。。。。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 40945#       发表于 2020-5-27 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582602&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-5-27 21:50</a>
+
+如何评价天皇暗示ickr有逼人直播的行为以及给自己退路。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/27/220653l16zzu6ueuima4p0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D1A431F4-0677-40E8-86B6-CCDF681A33C5.jpeg</strong> (261.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-27 22:06 上传
+
+
+
+
+
+
+如何评价截图少截一句的行为
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 40946#       发表于 2020-5-27 22:08
+
+
+
+
+摸余这个同接，拿她没辙啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 40947#       发表于 2020-5-27 22:08
+
+
+
+
+说起来，对比一下的话，aza7.2万、roi5.6万，嗯......在直播频率和形式上，其实也还行了
+
+
+不过为啥我找对比都是找他俩......
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 40948#       发表于 2020-5-27 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 脑瘫净土宗太监虹人，刚刚葵皇神回避都没人repo，真的是垃圾太监虹人，
+
+
+活该冲国彩虹一个爆红的人没有
+
+
+活该！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|那你倒是自己repo啊！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 40949#       发表于 2020-5-27 22:10
+
+
+
+
+1岁有大もも而且又是游戏宅，很棒好吧。
+
+我觉得顺劈11岁的人里有一半是当年数虐期劈顺手了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 40950#       发表于 2020-5-27 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582835&amp;ptid=1924531" target="_blank">Izuru单推人 发表于 2020-5-27 22:08</a>
+
+说起来，对比一下的话，aza7.2万、roi5.6万，嗯......在直播频率和形式上，其实也还行了
+
+
+不过为啥我找对比 ...</blockquote>
+因为他们俩是国内最强男v啊，在收入上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 40951#       发表于 2020-5-27 22:10
+
+
+
+
+可是现在b站人气最高得是爱丽丝啊
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 40952#       发表于 2020-5-27 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582856&amp;ptid=1924531" target="_blank">掉头学姐 发表于 2020-5-27 22:10</a>
+
+可是现在b站人气最高得是爱丽丝啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 爱丽丝那个楼早该挪出太监综和讨论区了，
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 40953#       发表于 2020-5-27 22:13
+
+
+
+
+爱丽丝说实话人气没有那么高，口碑特别特别好是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 40954#       发表于 2020-5-27 22:16
+
+
+
+
+歌回压牡丹妹生日回还要说人气不高，yhm高贵哦
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 40955#       发表于 2020-5-27 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582912&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-27 22:16</a>
+
+歌回压牡丹妹生日回还要说人气不高，yhm高贵哦</blockquote>
+雪绘3.6万粉最高33万人气不容易了，别骂了别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 40956#       发表于 2020-5-27 22:18
+
+
+
+
+我觉得说爱丽丝人气不高是说b站调得倍率高吗？这是顺劈其它虹人b限？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 40957#       发表于 2020-5-27 22:18
+
+
+
+
+有栖天道酬勤耕耘的粉比跟风的箱推萌萌人可靠谱多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 40958#       发表于 2020-5-27 22:19
+
+
+
+
+爱丽丝就是mmr的唯一指定单推<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 40959#       发表于 2020-5-27 22:19
+
+
+
+
+摸余破万了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">懒狗的存在就是为了气死同行
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 40960#       发表于 2020-5-27 22:21
+
+
+
+
+爱丽丝现在舰队数才168，一个总督都没有，她收入对不起口碑都不是一天两天了，只能说mmr不打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 40961#       发表于 2020-5-27 22:21
+
+
+
+
+我知道为什么今晚上2000这么跳了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+配信者：本間ひまわり
+
+配信時間：2時間03分03秒
+
+瞬間最高視聴者数：4,511人
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 40962#       发表于 2020-5-27 22:21
+
+
+
+
+摸鱼上w，龙皇3400，兔子1w7
+
+今天的斗虫已经看不懂了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 40963#       发表于 2020-5-27 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582997&amp;ptid=1924531" target="_blank">aele 发表于 2020-5-27 22:21</a>
+
+摸鱼上w，龙皇3400，兔子1w7
+
+今天的斗虫已经看不懂了</blockquote>
+兔子马上2w了啊，正常水平
+
+龙宝那个直播间被隐藏了
+
+摸余就，脑控你懂的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 40964#       发表于 2020-5-27 22:23
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-27 22:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582990&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-27 22:21</a>
+
+爱丽丝现在舰队数才168，一个总督都没有，她收入对不起口碑都不是一天两天了，只能说mmr不打钱 ...</blockquote>
+holo这边也没剩几个有总督了吧，好吧，看来一下，一个都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 40965#       发表于 2020-5-27 22:23
+
+
+
+
+百鬼众这就是几年前网上抢小米新机的感觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 40966#       发表于 2020-5-27 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582995&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-27 22:21</a>
+
+我知道为什么今晚上2000这么跳了
+
+
+配信者：本間ひまわり</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 如果不是被隐藏，应该是可以过社线的，葵皇这么垃圾，我们都应该取关，让她掉下40w，让索尼开除她
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 40967#       发表于 2020-5-27 22:24
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-27 22:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">vup才是正道，vtb只是垫脚石（提高消费意识的
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 40968#       发表于 2020-5-27 22:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">夏哥歌回艰难破三千 怪不得播apex
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 40969#       发表于 2020-5-27 22:25
+
+
+
+
+摸余才是吊胃口的神。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 40970#       发表于 2020-5-27 22:26
+
+
+
+<img src="https://p.sda1.dev/0/ab9ff775ab6eb425b2a7e61e6ee9bf76/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 40971#       发表于 2020-5-27 22:26
+
+
+
+
+总督首月19800太后浪了，京帕圈目测8成sc都是几个石油佬带起的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 40972#       发表于 2020-5-27 22:27
+
+
+
+
+小肥妹也不容易，双皇压上，加上和摸余撞歌回，没什么办法的。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 40973#       发表于 2020-5-27 22:27
+
+
+
+
+管人话术《暗示》
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 40974#       发表于 2020-5-27 22:27
+
+
+
+
+《天皇学》<img src="https://static.saraba1st.com/image/smiley/face2017/203.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 40975#       发表于 2020-5-27 22:28
+
+
+
+
+【B限预定】mea在刚刚的直播中提到 可能会在5月25/27/29日的北京时间22点进行0~3次b限直播
+
+已经0/2了，咩酱这是想学习狗狗吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可是国内并不吃这一套的
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 40976#       发表于 2020-5-27 22:28
+
+
+
+
+狗狗这都跑调跑到近地轨道了，百鬼众也能听的下去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 40977#       发表于 2020-5-27 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说的好像爱丽丝那边打钱很少一样，这一看不是一个月也有十几万吗
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 40978#       发表于 2020-5-27 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583026&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-27 22:24</a>
+
+如果不是被隐藏，应该是可以过社线的，葵皇这么垃圾，我们都应该取关，让她掉下40w，让索尼开除 ...</blockquote>
+知道你眼泪往肚子里咽了，给你颁发一日葵熊证
+
+那么什么时候给我们葵上舰呢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 40979#       发表于 2020-5-27 22:29
+
+
+
+
+这才是懒狗该有的水平。她直播频率要和夸一样，起码也要和傻紫差不多水平。holo二期我一直觉得其实很强各种原因整成这样挺能说明运营废物的。
+
+
+
+
+
+
+
+-----
+
+####  long87755025  
+##### 40980#       发表于 2020-5-27 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583074&amp;ptid=1924531" target="_blank">小麻和狗狗 发表于 2020-5-27 22:28</a>
+
+【B限预定】mea在刚刚的直播中提到 可能会在5月25/27/29日的北京时间22点进行0~3次b限直播
+
+
+已经0/2了，咩 ...</blockquote>
+这0次是什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 40981#       发表于 2020-5-27 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583047&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-5-27 22:26</a></blockquote>
+昨天就想到这段必然被你楼瞎解读<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+这段话特意单放在お気持ち前面而不是放在后面的垃圾时间是蛮意味深的，以天皇的性格应该不会无的放矢
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 40982#       发表于 2020-5-27 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583078&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-5-27 22:28</a>
+
+说的好像爱丽丝那边打钱很少一样，这一看不是一个月也有十几万吗</blockquote>
+这个月上了10万，但是上个月才8万不到，跟京帕圈比很菜了，也比不过花丸这种超强散装yhm，怎么样都算不上最有人气
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 40983#       发表于 2020-5-27 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583083&amp;ptid=1924531" target="_blank">alcoholic1000 发表于 2020-5-27 22:28</a>
+
+知道你眼泪往肚子里咽了，给你颁发一日葵熊证
+
+那么什么时候给我们葵上舰呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 198上舰的钱，我可能少吃一顿涮肉，
+
+
+但这点钱会成为索索继续压榨葵皇批限的伏笔，
+
+
+为了早日让葵皇批站进出失败，我只能委屈自己让自己变肥了，
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 40984#       发表于 2020-5-27 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583098&amp;ptid=1924531" target="_blank">long87755025 发表于 2020-5-27 22:29</a>
+
+这0次是什么鬼</blockquote>
+mea被本土一个斯图卡恶心到了暂时不做单独放送<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 40985#       发表于 2020-5-27 22:32
+
+
+
+
+说来直播间被隐藏了怎么能看出来
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 40986#       发表于 2020-5-27 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583047&amp;ptid=1924531" target="_blank">noHentai 发表于 2020-5-27 22:26</a></blockquote>
+非常大的怪物是指白上吹雪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 掉头学姐| + 1|欢乐多，小心被烫|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 40987#       发表于 2020-5-27 22:33
+
+
+
+ 本帖最后由 ひびき 于 2020-5-27 22:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583033&amp;ptid=1924531" target="_blank">屑屑代沟尼亚 发表于 2020-5-27 22:25</a>
+
+夏哥歌回艰难破三千 怪不得播apex</blockquote>
+我真的不明白她粉丝群里怎么听歌回的这么少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+看看人家狗狗，歌回人数比平常直播还多
+
+
+syl 独角仙这首歌真的很难听，阿希你能不能别唱了
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 40988#       发表于 2020-5-27 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583107&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-27 22:30</a>
+昨天就想到这段必然被你楼瞎解读
+
+这段话特意单放在お気持ち前面而不是放在后面的垃圾时间是蛮意味 ...</blockquote>
+前面不也是垃圾时间，第一段お便り不就是兔擅长的自由杂谈，第二段互联网也没见多有意义
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 40989#       发表于 2020-5-27 22:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有散装yhm强
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">那么什么拖累了alice呢
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 40990#       发表于 2020-5-27 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583130&amp;ptid=1924531" target="_blank">aele 发表于 2020-5-27 22:32</a>
+说来直播间被隐藏了怎么能看出来</blockquote>
+隐藏本来就是订阅了却不显示在直播，一般观众根本不知道播了，除非你专门进频道。或者进直播了相关推荐显示一堆莫名其妙的视频也可以判断。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 40991#       发表于 2020-5-27 22:36
+
+
+
+
+彩虹衰退论II，写好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 40992#       发表于 2020-5-27 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583147&amp;ptid=1924531" target="_blank">时雨rain 发表于 2020-5-27 22:34</a>
+没有散装yhm强
+那么什么拖累了alice呢</blockquote>
+在七色太监的小窝里问这个，不是恶心太监吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">扣扣你给七色太监们一点点温暖吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 40993#       发表于 2020-5-27 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583147&amp;ptid=1924531" target="_blank">时雨rain 发表于 2020-5-27 22:34</a>
+没有散装yhm强
+那么什么拖累了alice呢</blockquote>
+脸皮（即答）
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 40994#       发表于 2020-5-27 22:36
+
+
+
+
+等彩虹爆炸了大概就是爱丽丝起飞之时吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 40995#       发表于 2020-5-27 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583147&amp;ptid=1924531" target="_blank">时雨rain 发表于 2020-5-27 22:34</a>
+
+没有散装yhm强
+
+那么什么拖累了alice呢</blockquote>
+那必然是尼基三基
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 40996#       发表于 2020-5-27 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那必然是彩虹籍贯拖累了陆士阿，
+
+
+陆士脱离彩虹，赚一波眼泪钱，
+
+
+月入50w不是梦
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 40997#       发表于 2020-5-27 22:37
+
+
+
+
+2000这也太毒唯了，净土坛没repo的多了去了，没人repo葵皇你就开始发疯了？谁叫你自己被口了没法发帖呢？你一粉丝就好好看你的直播，这数字和你一个人有关系吗？才4000你就开始叫唤了，虹好多人都还到不了4000呢，人家粉丝有像你这样乱攻击人？
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 40998#       发表于 2020-5-27 22:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那建议多去厄介让爱丽丝把自己推特和**介绍里的にじさんじ所属删了呢
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 40999#       发表于 2020-5-27 22:40
+
+
+
+ 本帖最后由 好德我基 于 2020-5-27 22:45 编辑 
+
+老爱和cytus联动
+[https://twitter.com/CytusRayark/status/1265643927933267971](https://twitter.com/CytusRayark/status/1265643927933267971)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 41000#       发表于 2020-5-27 22:40
+
+
+
+
+NoWorld 3月一鸣惊人，砍下44w，4月再接再厉26w，5月目前12w…付费人数从1891跌到500出头了，PXJ的喜好真就一阵风呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 41001#       发表于 2020-5-27 22:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583147&amp;ptid=1924531" target="_blank">时雨rain 发表于 2020-5-27 22:34</a>
+
+没有散装yhm强
+
+那么什么拖累了alice呢</blockquote>
+她不是比散装yhm还要散装，p站两大圈都不太沾边做二创都不带的
+
+2434所属在p站怕不是debuff<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 41002#       发表于 2020-5-27 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583133&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-5-27 22:33</a>
+
+我真的不明白她粉丝群里怎么听歌回的这么少
+
+看看人家狗狗，歌回人数比平常直播还多
+
+ ...</blockquote>
+云一下，懒狗歌回符合她的受众，阿希混沌营业来的受众不吃这套
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41003#       发表于 2020-5-27 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582990&amp;ptid=1924531" target="_blank">marysaluly 发表于 2020-5-27 22:21</a>
+
+爱丽丝现在舰队数才168，一个总督都没有，她收入对不起口碑都不是一天两天了，只能说mmr不打钱 ...</blockquote>
+每个月稳定10w rmb，不算低了，不能和猫猫以及高小姐比倒是
+
+
+这10w rmb 已经比她去年sc高的时候的404 sc高了，当时大概120w日元左右，今年她404的sc更低一些
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 41004#       发表于 2020-5-27 22:43
+
+
+
+
+2434来b站说一周一次b限的只有队员做到了，会不会是其他所有人为了凸显队员所做的自我牺牲？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41005#       发表于 2020-5-27 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 陆士脱离彩虹之后，加入冲国两大圈子，每天RP互动，不是香疯了。
+
+
+再把高小姐的P安排上，每天高强度和总督舰长互动，
+
+
+一个人秒杀vr+彩虹不是梦
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 41006#       发表于 2020-5-27 22:46
+
+
+
+
+所以vr为什么不找爱丽丝联动，是被拒绝了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41007#       发表于 2020-5-27 22:46
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-27 22:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">本来想说rp太深，p站喜欢撕皮的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼怎么老想顺劈2434的
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 41008#       发表于 2020-5-27 22:46
+
+
+
+
+那看来三才没吃隐藏
+
+我觉得绝体绝命2可以尽早耐久结束掉了....这剧情还有三分之二以上，这么一天一两小时能播到下个月，更别提面包狗几天前才播过
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41009#       发表于 2020-5-27 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583223&amp;ptid=1924531" target="_blank">金魚佬 发表于 2020-5-27 22:40</a>
+NoWorld 3月一鸣惊人，砍下44w，4月再接再厉26w，5月目前12w…付费人数从1891跌到500出头了，PXJ的喜好真就 ...</blockquote>
+这么一说我倒有点好奇狗妈在阿b现在实际有多少付费粉丝了，可以大概参考下然后发散出各种理论，好像要有b限了是吧。
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 41010#       发表于 2020-5-27 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583282&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-27 22:44</a>
+陆士脱离彩虹之后，加入冲国两大圈子，每天RP互动，不是香疯了。
+
+
+再把高小姐的P安排上，每天高强 ...</blockquote>
+你把主语换成任何一个声音好听的yhm主播不都能爆火，这不就是财富密码？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41011#       发表于 2020-5-27 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583292&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-27 22:46</a>
+
+所以vr为什么不找爱丽丝联动，是被拒绝了吗</blockquote>
+你应该问为啥爱丽丝今年就没在B限有过几个联动，全都是自己单干<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 41012#       发表于 2020-5-27 22:48
+
+
+
+
+Noworld实话说直播内容太单一，希望恢复两人组后还能起来一波
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41013#       发表于 2020-5-27 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583292&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-27 22:46</a>
+
+所以vr为什么不找爱丽丝联动，是被拒绝了吗</blockquote>
+联动过，阿菜、爱丽丝、010，还有一果还是谁来着？
+
+010联动太自闭，联动效果真不行
+
+还是应该让miki上
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 41014#       发表于 2020-5-27 22:49
+
+
+
+
+狗妈这频度和距离很难养gachi的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41015#       发表于 2020-5-27 22:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> miki：”性爱ziwei队来点”
+
+
+                  “你实际上是20代后半吧”
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41016#       发表于 2020-5-27 22:50
+
+
+
+
+爱丽丝当年也是会跑维阿服玩的，不过之前在维阿服碰到德比之后就光速下线了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41017#       发表于 2020-5-27 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583316&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-27 22:47</a>
+
+你把主语换成任何一个声音好听的yhm主播不都能爆火，这不就是财富密码？ ...</blockquote>
+有挺多来的，什么未来人之类，能火还是看水平和rp，太拉胯的真的不行
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41018#       发表于 2020-5-27 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583332&amp;ptid=1924531" target="_blank">バーチャルS1er 发表于 2020-5-27 22:49</a>
+狗妈这频度和距离很难养gachi的</blockquote>
+但基数大的吓人而且之前应该有不少跟风的，其实我一直觉得今年一月末和四月初阿b的V区观众是有两波变化的，所以想看看狗妈现在的数据。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 41019#       发表于 2020-5-27 22:53
+
+
+
+
+一发出货、要抽的卡全部集齐、被丈夫(齐藤）捉奸的郡道美玲抽卡视频（[https://www.youtube.com/watch?v=8inGH3Q-7sY](https://www.youtube.com/watch?v=8inGH3Q-7sY)），这回真的运气好得惊人，大家一起去点赞吧👍！
+
+结尾还附带了阿葵做的ed，谢谢谢谢。
+
+顺便附带一个真真真大暴死的gbr（[https://www.youtube.com/watch?v=X4sZHpYwVNk](https://www.youtube.com/watch?v=X4sZHpYwVNk)），如果我是gbr我会切换十个小号点踩。
+
+扭曲仙境害人啊。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 41020#       发表于 2020-5-27 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583330&amp;ptid=1924531" target="_blank">真田源次郎信繁 发表于 2020-5-27 22:48</a>
+
+联动过，阿菜、爱丽丝、010，还有一果还是谁来着？
+
+010联动太自闭，联动效果真不行
+
+还是应该让miki上 ...</blockquote>
+那肯定是阿菜毁掉了整场联动<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41021#       发表于 2020-5-27 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583367&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-27 22:52</a>
+
+但基数大的吓人而且之前应该有不少跟风的，其实我一直觉得今年一月末和四月初阿b的V区观众是有两波变化的 ...</blockquote>
+这四个月太疯狂了
+
+如果狗妈多播的话可能十倍杀高小姐，月入百万rmb已经财富自由了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 41022#       发表于 2020-5-27 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583302&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-27 22:46</a>
+
+这么一说我倒有点好奇狗妈在阿b现在实际有多少付费粉丝了，可以大概参考下然后发散出各种理论，好像要有b ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">数据太少无参考意义，5月应该只转播了一场？1.5小时，41w人气，900+付费，营收2.7w
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 41023#       发表于 2020-5-27 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583078&amp;ptid=1924531" target="_blank">暗心舞踏 发表于 2020-5-27 22:28</a>
+
+说的好像爱丽丝那边打钱很少一样，这一看不是一个月也有十几万吗</blockquote>
+这些换成日元也就200W，b站抽成还很高，到手估计就40W。作为现在的头部之一，有点少了
+
+看营收榜的打钱人数，明显比她多的也就咩夸夏
+
+关键还是爱丽丝这里没有总督这种石油佬
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41024#       发表于 2020-5-27 22:55
+
+
+
+
+miki在闭关准备期末呢，别打扰她了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41025#       发表于 2020-5-27 22:56
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-27 22:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583400&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-27 22:54</a>
+这些换成日元也就200W，b站抽成还很高，到手估计就40W。作为现在的头部之一，有点少了
+
+看营收榜的打钱人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">b站不是明码抽成50%吗，怎么你这抽的都没了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忘了，她是彩虹社的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 41026#       发表于 2020-5-27 22:56
+
+
+
+
+高小姐在你楼风评好像不咋地啊，不看特供，有没有人云我一下这是为什么(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41027#       发表于 2020-5-27 22:57
+
+
+
+
+爱丽丝这样还要被虹抽成在阿B的收益那确实挺生梁木的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 41028#       发表于 2020-5-27 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583316&amp;ptid=1924531" target="_blank">SiolC 发表于 2020-5-27 22:47</a>
+
+你把主语换成任何一个声音好听的yhm主播不都能爆火，这不就是财富密码？ ...</blockquote>
+不用声音好听，也不用yhm，冰糖已经证明了这个财富密码的强大<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 41029#       发表于 2020-5-27 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583416&amp;ptid=1924531" target="_blank">时雨rain 发表于 2020-5-27 22:56</a>
+
+b站不是明码抽成50%吗，怎么你这抽的都没了
+
+忘了，她是彩虹社的 ...</blockquote>
+b收50%，企业再抽一半就50W了。再算上税收换外汇损耗啥的，有40W不错了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 41030#       发表于 2020-5-27 22:59
+
+
+
+
+批站直播越发展只会越像斗鱼，想高收入只有靠固定金主，穷哥们球钱没有，批话贼多，口碑好木大木大。况且mmr人均经济没有独立，付费结构的畸形更明显，只有先掌握斗鱼那套凯子心理学的yhm才能起飞，看高太尉已经抢跑了<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mmbk| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41031#       发表于 2020-5-27 23:00
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-27 23:01 编辑 
+
+所以果子姐贵和冰糖今天的mc维阿服联动怎么无了，冰糖不想分享财富密码了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41032#       发表于 2020-5-27 23:00
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-27 23:01 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41033#       发表于 2020-5-27 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583418&amp;ptid=1924531" target="_blank">Mr.shelter 发表于 2020-5-27 22:56</a>
+高小姐在你楼风评好像不咋地啊，不看特供，有没有人云我一下这是为什么(ಡωಡ)  ...</blockquote>
+有次b限点开，直播间弹幕都在那讨论哪个石油佬，这大概就是我最受不了的直播<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zwj2www  
+##### 41034#       发表于 2020-5-27 23:03
+
+
+
+<blockquote>Izuru单推人 发表于 2020-5-27 22:01
+之前有人提到了stars的中国进出啊......很简单，没足够的字幕组成员支持啊......我现在还在自学日语，我知 ...</blockquote>
+天真其实也是够建组的，不知道具体什么情况
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41035#       发表于 2020-5-27 23:03
+
+
+
+
+高小姐那帮人里的石油佬存在感快赶上主播了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 41036#       发表于 2020-5-27 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">犬山哥这简直被公开处刑
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41037#       发表于 2020-5-27 23:04
+
+
+
+
+阿希这共鸣，，，，真的强<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">   
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41038#       发表于 2020-5-27 23:05
+
+
+
+
+其实不算抽成，爱丽丝这13w已经有星街404这么高了
+
+**这个月爱丽丝只有2w的SC了…………
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 41039#       发表于 2020-5-27 23:05
+
+
+
+
+本月的女王花园猫有人介绍一下吗，感觉相比经常被提起的高太尉就完全没人讨论过她
+
+她的业务水平在哪里比较突出？是京帕圈的核心人物吗？还是说这个月蹭到了hanser的热度收入高是特例？
+
+有点进去两次直播间好像都是在做经典动画片段配音，我认识有完全不看V的朋友在用她的表情包
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41040#       发表于 2020-5-27 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583521&amp;ptid=1924531" target="_blank">雅朵莉雀 发表于 2020-5-27 23:05</a>
+
+本月的女王花园猫有人介绍一下吗，感觉相比经常被提起的高太尉就完全没人讨论过她
+
+她的业务水平在哪里比较 ...</blockquote>
+直播就是单纯的可爱，有种宠物系女友感吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 41041#       发表于 2020-5-27 23:07
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gf7er8rzslj20ys0jlwi4.jpg" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 41042#       发表于 2020-5-27 23:08
+
+
+
+
+所以猫猫跟高小姐有啥区别啊(눈_눈)，好像打钱的石油佬都是一批人来着
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41043#       发表于 2020-5-27 23:10
+
+
+
+
+阿星会员多啊，大概4000个，挂机一个月都有200w日元了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 41044#       发表于 2020-5-27 23:10
+
+
+
+
+阿希这个怎么感觉是昨晚占卜的缘故马上就来一波清楚营业。。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41045#       发表于 2020-5-27 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583551&amp;ptid=1924531" target="_blank">Mr.shelter 发表于 2020-5-27 23:08</a>
+
+所以猫猫跟高小姐有啥区别啊(눈_눈)，好像打钱的石油佬都是一批人来着</blockquote>
+风评好？可能就是有石油佬加持的爱丽丝那种类型吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 41046#       发表于 2020-5-27 23:12
+
+
+
+[发隔壁楼会被封的东西](https://bbs.saraba1st.com/2b/thread-1938029-0-1.html)<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alialex|-1|这层不删了，你发这里也会被封的.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41047#       发表于 2020-5-27 23:12
+
+
+
+
+感觉小肥妹学了一点粽子，不知道是不是我之前小肥妹看得不多产生的错觉。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 41048#       发表于 2020-5-27 23:13
+
+
+
+
+明天心心和画师印尼妹联动兔子人
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 41049#       发表于 2020-5-27 23:13
+
+
+
+
+为什么看aki和choco完全没有那种有难同当有福不同享的感觉啊
+狐皇到底是什么时候开始用烟头来治箱的呢<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41050#       发表于 2020-5-27 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583585&amp;ptid=1924531" target="_blank">forzen 发表于 2020-5-27 23:10</a>
+
+阿希这个怎么感觉是昨晚占卜的缘故马上就来一波清楚营业。。</blockquote>
+她正常歌回就这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  缺点就是只知道唱一些清汤寡水的歌
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 41051#       发表于 2020-5-27 23:13
+
+
+
+ 本帖最后由 opersuper 于 2020-5-27 23:15 编辑 
+
+高小姐还有点活，花园小姐除了可爱女友力高以外太虚无了，是我欣赏不来的类型
+
+话说花园小姐前世和苔宝联动过了，双倍虚无<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">楼上不要辱爱，爱丽丝不管杂谈游戏实况还是唱歌吊打花园小姐还是稳的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41052#       发表于 2020-5-27 23:15
+
+
+
+
+高小姐都已经以虚无著称了，比高小姐还虚无的评价有点过分了啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 41053#       发表于 2020-5-27 23:15
+
+
+
+
+讲真啊，去斗鱼颜值区之类的地方逛一圈，真觉得现在那些VUP没得打啊，B站直播区真做大了，散装YHM还能靠国籍优势，VUP真的没戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41054#       发表于 2020-5-27 23:15
+
+
+
+
+虚无不是holo的传统吗？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41055#       发表于 2020-5-27 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">希小姐从粽子那知道了，强烈的反差萌是真的很养gachi的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 41056#       发表于 2020-5-27 23:16
+
+
+
+
+花园猫，或者说她的字幕组可能是第一个掌握了财富密码的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41057#       发表于 2020-5-27 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583657&amp;ptid=1924531" target="_blank">ktmoon 发表于 2020-5-27 23:15</a>
+
+讲真啊，去斗鱼颜值区之类的地方逛一圈，真觉得现在那些VUP没得打啊，B站直播区真做大了，散装YHM还能靠国 ...</blockquote>
+没事，颜值维阿是不会输的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41058#       发表于 2020-5-27 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583606&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-27 23:12</a>
+
+感觉小肥妹学了一点粽子，不知道是不是我之前小肥妹看得不多产生的错觉。 ...</blockquote>
+和评论互动多了一些  <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  但她原来也没少和评论互动所以不知道是不是和润姨学的
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 41059#       发表于 2020-5-27 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583657&amp;ptid=1924531" target="_blank">ktmoon 发表于 2020-5-27 23:15</a>
+讲真啊，去斗鱼颜值区之类的地方逛一圈，真觉得现在那些VUP没得打啊，B站直播区真做大了，散装YHM还能靠国 ...</blockquote>
+套皮方便吃二次元的饭<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">就像那堆二次元抽老婆手游一样
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 41060#       发表于 2020-5-27 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反差萌阿希也早就在做了啊夏哥祭妹又不是白叫的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41061#       发表于 2020-5-27 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583683&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-5-27 23:17</a>
+和评论互动多了一些    但她原来也没少和评论互动所以不知道是不是和润姨学的 ...</blockquote>
+我主要说说话的方式和营造气氛，当然我之前小肥妹看得不多没法说有没有变了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 41062#       发表于 2020-5-27 23:20
+
+
+
+
+夏哥tc可爱的
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 41063#       发表于 2020-5-27 23:21
+
+
+
+
+我还以为斗鱼也有vtb了，颜值区和二次元区头部都没看到呀？真人露脸完全比不上纸片人对我的吸引力
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 41064#       发表于 2020-5-27 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583690&amp;ptid=1924531" target="_blank">小麻和狗狗 发表于 2020-5-27 23:17</a>
+
+套皮方便吃二次元的饭就像那堆二次元抽老婆手游一样</blockquote>
+二次元手游好歹纸片人卡面好看，有胸有腿，你JUAN那些拉胯L2D怎么比？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41065#       发表于 2020-5-27 23:23
+
+
+
+
+管人观众个个都觉得真人露脸比不上二次元纸片人，但是到冲塔找露脸照片的时候一个比一个勤
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41066#       发表于 2020-5-27 23:23
+
+
+
+
+刚才小肥妹一阵“没有你们我就活不下去了。”的养gachi发言把我逗笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41067#       发表于 2020-5-27 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583657&amp;ptid=1924531" target="_blank">ktmoon 发表于 2020-5-27 23:15</a>
+
+讲真啊，去斗鱼颜值区之类的地方逛一圈，真觉得现在那些VUP没得打啊，B站直播区真做大了，散装YHM还能靠国 ...</blockquote>
+死肥宅和线虫根本是两类人
+
+隔着一个皮，弹幕还可以发情的，没隔着皮特别尴尬的……
+
+
+Vup的话，还是喜欢宅力强的，我就喜欢010或者一果这种聊动画，聊gal<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 41068#       发表于 2020-5-27 23:24
+
+
+
+
+昨晚我这点进了冰糖的直播间真的差点被脑控了···
+
+声音好听确实是可以为所欲为<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+逐渐可以理解百鬼众的感受了····
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41069#       发表于 2020-5-27 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583741&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-27 23:21</a>
+我还以为斗鱼也有vtb了，颜值区和二次元区头部都没看到呀？真人露脸完全比不上纸片人对我的吸引力 ...</blockquote>
+现在的V还是yhm统治下的小众环境，和404接近的直播风格在这个环境吃香。等到阿p真扩圈成功了，你见到的“二次元”就不是现在这爱好了。
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 41070#       发表于 2020-5-27 23:26
+
+
+
+
+肥妹多久之前就这么干了
+
+tc生活音扮女友养gachi，直播当艺人，那2k同接怕不是八成都是这么养出来的
+
+为啥歌回没人听，除了唱歌经常拉胯以外，偶尔还会歌回激寒自演扮可爱<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+tc台那状态很真实还能接受，歌回这真的难顶
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41071#       发表于 2020-5-27 23:27
+
+
+
+
+阿希歌回就知道唱清汤寡水的歌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  上次唱冰雪奇缘都是多久以前了
+
+
+
+妈蛋我最喜欢的娘役音域共鸣情感表达样样精通，是最优秀的娘役最优秀的演者，唯独因为天赋和年龄少了优秀的气息<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41072#       发表于 2020-5-27 23:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">希望等vup扩圈完毕，出一个中版纯一酱发出绘畜生破世发言
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41073#       发表于 2020-5-27 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583758&amp;ptid=1924531" target="_blank">crito 发表于 2020-5-27 23:23</a>
+
+管人观众个个都觉得真人露脸比不上二次元纸片人，但是到冲塔找露脸照片的时候一个比一个勤 ...</blockquote>
+这就和亲吻姐姐比劣质里 番强一个道理<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 41074#       发表于 2020-5-27 23:29
+
+
+
+
+只能说国内直播环境是这样的，比较讲参与感，不管是互动也好自嗨也好，单方面表演为主的直播不太容易火得长久
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 41075#       发表于 2020-5-27 23:29
+
+
+
+
+郡道美玲饭撒时间，带tag聊天，届到爽到⊂( ・ ̫・ )⊃三
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 41076#       发表于 2020-5-27 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">中版纯一大概是谁啊，fg？确实fg那边粉丝随随便便冲烂V豚
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41077#       发表于 2020-5-27 23:30
+
+
+
+ 本帖最后由 QWANG 于 2020-5-27 23:33 编辑 
+
+其实我觉得一般人养gachi或者底边想求变学学阿火比较好，而不是粽子。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 41078#       发表于 2020-5-27 23:30
+
+
+
+ 本帖最后由 crawarb 于 2020-5-27 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583777&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-27 23:24</a>
+
+现在的V还是yhm统治下的小众环境，和404接近的直播风格在这个环境吃香。等到阿p真扩圈成功了，你见到的“ ...</blockquote>
+感觉斗鱼“二次元区”也挺凉的，打开热度最高的直播间，弹幕流速一条/秒都不到
+
+然后基本所有主播都是全屏摄像头，要不杂谈要不跳舞啥的，感觉比V圈虚无多了
+
+syl, 《情商》是yyf著作，他怎么可能是中国纯一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 41079#       发表于 2020-5-27 23:34
+
+
+
+
+冰糖日语太尬了，她还老爱秀日语，不过不是跟风套皮而是从vtb诞生就关注着的老粉丝我这里还是加分
+
+话说她的塔有人冲了吗，在校学生是rp还是真的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41080#       发表于 2020-5-27 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在海鲜台谁看女主播的，以前就不爱看，看了弔人后更不爱看
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是男人好看
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 41081#       发表于 2020-5-27 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583911&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-27 23:34</a>
+冰糖日语太尬了，她还老爱秀日语，不过不是跟风套皮而是从vtb诞生就关注着的老粉丝我这里还是加分
+
+话说她的 ...</blockquote>
+冰糖以前就在学校宿舍开过直播，虽然没开摄影头。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| opersuper| + 1|有其他牡丹妹的音声的吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 41082#       发表于 2020-5-27 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583855&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-27 23:30</a>
+
+感觉斗鱼“二次元区”也挺凉的，打开热度最高的直播间，弹幕流速一条/秒都不到
+
+然后基本所有主播都是全屏 ...</blockquote>
+听说受众都是有钱老头，看来你被排除了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+syl还中版纯一呢，猪头干查房可比纯孝子组织度高多了。其实随便哪个散装yhm去斗鱼，直播间都能够被美丽的中国话淹没的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41083#       发表于 2020-5-27 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583855&amp;ptid=1924531" target="_blank">crawarb 发表于 2020-5-27 23:30</a>
+感觉斗鱼“二次元区”也挺凉的，打开热度最高的直播间，弹幕流速一条/秒都不到
+
+然后基本所有主播都是全屏 ...</blockquote>
+阿b扩圈完毕的完全体参考lex，再加点斗鱼女主播要素
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 41084#       发表于 2020-5-27 23:42
+
+
+
+
+为什么你们都这么有自信能扩圈成功……或者说扩扩扩扩到最后变成了一个已经存在的东西，那真的算扩圈吗
+
+
+另外，差异感（鄙视直球露脸女主播）的确也能促进消费和营造群体感
+
+
+石油佬也是需要一般观众来彰显存在感的
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 41085#       发表于 2020-5-27 23:43
+
+
+
+
+草，你们聊斗鱼二次元区害的我过去看了会，在菠萝赛东的鱼吧里看到了张peko表情包。
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 41086#       发表于 2020-5-27 23:44
+
+
+
+
+斗鱼二次元居然这么凉，真没想到，几年前还是超级大区，现在完全是死区了，没观众没礼物
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 41087#       发表于 2020-5-27 23:46
+
+
+
+
+苔宝最近越来越膨胀联动里都开始当着别人面训粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41088#       发表于 2020-5-27 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583911&amp;ptid=1924531" target="_blank">opersuper 发表于 2020-5-27 23:34</a>
+
+冰糖日语太尬了，她还老爱秀日语，不过不是跟风套皮而是从vtb诞生就关注着的老粉丝我这里还是加分
+
+话说她的 ...</blockquote>
+好久之前，她虽然三十多万粉丝，但是没几个人看直播，以至于很多人不知道她是女的
+
+那时候经常在宿舍不开声音直播，也难怪没人看
+
+
+没记错的话，狐狸和夏哥去的那个FES，日场的录像里，她作为观众被选上了吧，不过我还是不知道哪个是她<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 41089#       发表于 2020-5-27 23:48
+
+
+
+
+觉得真人露脸比不上二次元纸片人明显是没追过真人偶像，真人偶像钓起来比纸片人养gachi香多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41090#       发表于 2020-5-27 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584038&amp;ptid=1924531" target="_blank">真田源次郎信繁 发表于 2020-5-27 23:47</a>
+
+好久之前，她虽然三十多万粉丝，但是没几个人看直播，以至于很多人不知道她是女的
+
+那时候经常在宿舍不开 ...</blockquote>
+对阿希恋口上那个
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 41091#       发表于 2020-5-27 23:51
+
+
+
+<blockquote>ひびき 发表于 2020-5-27 23:27
+阿希歌回就知道唱清汤寡水的歌  上次唱冰雪奇缘都是多久以前了
+
+
+</blockquote>
+响老哥我真的我不懂你，除了某个黄尸sc紧接在我的红sc后面让我很恶心外，全程爽死www
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41092#       发表于 2020-5-27 23:52
+
+
+
+
+这种事没什么讨论意义的，现在风头一时无二的宫姐就明确喜欢不露脸直播，现在套皮主播正好随了她的意。她就没想着和那些开摄像头的竞争。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 41093#       发表于 2020-5-27 23:57
+
+
+
+
+说到养gachi这个事情，我想到元开闭现棒团小樱花，话术堪称东亚一绝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41094#       发表于 2020-5-27 23:58
+
+
+
+
+让我来看看狐皇是怎么给AMD 4900hs的强强电脑做工商的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41095#       发表于 2020-5-27 23:58
+
+
+
+
+阿b被海鲜台害的，做攻略的，手游的，男主播都尼玛有粉丝要露脸，这不是吃饱了撑的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 41096#       发表于 2020-5-27 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584049&amp;ptid=1924531" target="_blank">Devi_Lito 发表于 2020-5-27 23:48</a>
+
+觉得真人露脸比不上二次元纸片人明显是没追过真人偶像，真人偶像钓起来比纸片人养gachi香多了 ...</blockquote>
+那确实，上次去sr看底边管人就被SKE的一个小姑娘迷上了。可惜国内没那个氛围，在高中大学所知的只有一个人在看，还都是胖子<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41097#       发表于 2020-5-28 00:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">玩爆款游戏，不管吃不吃配置，拉满画质，观众看的开心，你也玩的尽兴
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 41098#       发表于 2020-5-28 00:02
+
+
+
+
+露脸可以看reaction，本身是一种直播buff，二次元live2d也是用来弥补这个的
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 41099#       发表于 2020-5-28 00:03
+
+
+
+
+狐皇应该做一个笋狐的图放在背板上的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
