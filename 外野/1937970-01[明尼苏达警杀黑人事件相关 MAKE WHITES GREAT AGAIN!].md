@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 08:09** 
+> ## **本文件最后更新于2020-05-28 10:11** 
 
 
 
@@ -4384,6 +4384,25 @@ Fargo Season 4 <img src="https://static.saraba1st.com/image/smiley/face2017/049.
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| newlyvisual| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4482,10 +4501,14 @@ We cannot think of being acceptable to others until we have first proven accepta
 
 
 
- 参与人数 4战斗力 -5
+ 参与人数 8战斗力 -10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Alufer|-1|操你妈弱智|
+| 醉鸽子|-1|欢乐多|
+| 正义大朋友|-1|一黑黑俩|
+| moekyo|-2||
 | Vincent_law|-1|思路广|
 | 传奇820|-1|全送你家去草你妈|
 | sssacpgdr|-2|emmm|
@@ -4915,7 +4938,7 @@ q群时常传的那张图我一直以为是调侃，没想到是真的
 
 
 Screenshot_2020-05-28-07-25-15-182_com.zhihu.android.jpg
-(593.63 KB, 下载次数: 0)
+(593.63 KB, 下载次数: 2)
 
 
 
@@ -4983,4 +5006,654 @@ Screenshot_2020-05-28-07-25-15-182_com.zhihu.android.jpg
 
 
 
-                                         
+
+
+-----
+
+####  flypig_zhy  
+##### 254#       发表于 2020-5-28 08:09
+
+
+
+<blockquote>felixcat 发表于 2020-5-28 08:04
+这个和之前在某个走廊被条子用AR指着叫他又趴下又要举手又要他移过来又要他不动，一直痛哭流涕然后还是被 ...</blockquote>
+那次为警察洗地的人不少
+
+
+
+
+
+
+
+-----
+
+####  梦回星海  
+##### 255#       发表于 2020-5-28 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583054&amp;ptid=1937970" target="_blank">###### 发表于 2020-05-27 22:26:39</a>
+西方国家从未民主过。民主是社会主义国家的口号和实行目标。西方国家讲的是自由 自有资本，他们口里的民 ...</blockquote>民主主义兵工厂这个说法。。。难道指的是美国给苏联做军火直销？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  蹲墙角  
+##### 256#       发表于 2020-5-28 08:38
+
+
+
+
+为这黑哥默哀 唉 光天化日之下居然被活活弄死
+
+
+
+
+
+
+
+-----
+
+####  nailuo1993  
+##### 257#       发表于 2020-5-28 08:42
+
+
+
+<blockquote>2517君改二 发表于 2020-5-28 01:03
+这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
+Punishment
+
+
+
+
+
+
+
+-----
+
+####  stepbystep  
+##### 258#       发表于 2020-5-28 08:51
+
+
+
+
+这种除了血腥复仇也没别得办法了，黑叔叔的亲戚有没有硬汉很关键
+
+
+
+
+
+
+
+-----
+
+####  coolffcat  
+##### 259#       发表于 2020-5-28 08:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579363&amp;ptid=1937970" target="_blank">大哀之君 发表于 2020-5-27 17:29</a>
+
+警察抓住一个黑人，无视他的哀求，用膝盖压脖子把他活活压死了。事后警局毅然决定开除涉事四人作为处置， ...</blockquote>
+病毒：不是很懂你们灵长类<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  coolffcat  
+##### 260#       发表于 2020-5-28 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579688&amp;ptid=1937970" target="_blank">酷暑难耐 发表于 2020-5-27 17:57</a>
+
+靠，看的真令人愤慨。黑人被压迫的够狠，难怪一点就炸。</blockquote>
+而且这次疫情本来对美国黑人的影响就大 死亡病例也多 都憋着口气 还来这么一出<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zitan  
+##### 261#       发表于 2020-5-28 09:01
+
+
+
+
+上4chan看了一下，/pol全是你哥打砸抢，/news全是杭康、新冠。太真实了🐶
+
+
+
+
+
+
+
+-----
+
+####  coolffcat  
+##### 262#       发表于 2020-5-28 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580166&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-27 18:39</a>
+
+另外帖子里那个更惨，叫他双脚叠起来双手举头顶爬过来，老哥当然做不到，直接给突突了……太惨了，这种真 ...</blockquote>
+警察把正常在家的打靶都不是事（什么还敢反抗，快起诉他）
+
+
+
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 263#       发表于 2020-5-28 09:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584683&amp;ptid=1937970" target="_blank">2517君改二 发表于 2020-5-28 01:03</a>
+
+这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
+碎月那个？
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 264#       发表于 2020-5-28 09:06
+
+
+
+<blockquote>梦回星海 发表于 2020-5-28 08:27
+民主主义兵工厂这个说法。。。难道指的是美国给苏联做军火直销？
+
+
+  -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
+你最好回去查查。那句话到底怎么说的
+
+
+
+
+
+
+
+-----
+
+####  coolffcat  
+##### 265#       发表于 2020-5-28 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583744&amp;ptid=1937970" target="_blank">sanxgh571 发表于 2020-5-27 23:21</a>
+
+马丁路德金气活了第二天又被暗杀</blockquote>
+不用暗杀 安排警察足矣 你就是蹲家里吃冰淇淋照样被闯进来的警察喂**
+
+
+
+
+
+
+
+-----
+
+####  梦回星海  
+##### 266#       发表于 2020-5-28 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586182&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:06</a>
+
+你最好回去查查。那句话到底怎么说的</blockquote>
+不如你告诉我这句话是怎么说的。
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 267#       发表于 2020-5-28 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586182&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:06</a>
+你最好回去查查。那句话到底怎么说的</blockquote>
+1940年，美国宣称“成为民主国家的兵工厂”，并对外援助军事物资．这个?
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 268#       发表于 2020-5-28 09:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586211&amp;ptid=1937970" target="_blank">梦回星海 发表于 2020-5-28 09:09</a>
+不如你告诉我这句话是怎么说的。</blockquote>
+罗斯福在1940年说的
+
+
+
+
+
+
+
+-----
+
+####  turnyyy  
+##### 269#       发表于 2020-5-28 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
+我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
+有的，黑豹党当年就有涉及到康米了，但是被干死了，康米这种有力的武器能把资本家吓死
+
+
+
+
+
+
+
+-----
+
+####  yario  
+##### 270#       发表于 2020-5-28 09:13
+
+
+
+
+作为詹黑 头一次这么支持LBJ 
+
+
+
+
+
+
+
+-----
+
+####  梁日浮  
+##### 271#       发表于 2020-5-28 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584683&amp;ptid=1937970" target="_blank">2517君改二 发表于 2020-5-28 01:03</a>
+
+这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
+求专辑名或者歌名或者地址，想去听听看。
+
+
+
+
+
+
+
+-----
+
+####  有妹是老婆  
+##### 272#       发表于 2020-5-28 09:15
+
+
+
+
+无法理解，“就算这样也比中国好”的内在逻辑是什么
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 273#       发表于 2020-5-28 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586212&amp;ptid=1937970" target="_blank">斯拉克自有妙计 发表于 2020-5-28 09:09</a>
+
+1940年，美国宣称“成为民主国家的兵工厂”，并对外援助军事物资．这个?</blockquote>
+对 是民主国家的兵工厂 不是民主主义兵工厂。民主国家是英国么？是德国么？还是USSR? 当然罗斯福生前死后被扣的共党帽子不计其数，美国50年代共和党上台各种倒车
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 274#       发表于 2020-5-28 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
+无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
+屁股长在脑子里的，甚至可能不是人类
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 275#       发表于 2020-5-28 09:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586277&amp;ptid=1937970" target="_blank">梁日浮 发表于 2020-5-28 09:14</a>
+
+求专辑名或者歌名或者地址，想去听听看。</blockquote>
+FLASHLIGHT
+
+
+
+
+
+
+
+-----
+
+####  梦回星海  
+##### 276#       发表于 2020-5-28 09:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586282&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:15</a>
+
+对 是民主国家的兵工厂 不是民主主义兵工厂。民主国家是英国么？是德国么？还是USSR? 当然罗斯福生前死后 ...</blockquote>
+不是，德先生这东西，你认为本意是啥？另外说这话的时候美国还没有开始援助苏联，这就是指英法等国。你可以说西方国家在冷战期间打出来的旗号是“自由世界”，但你说西方国家否认民主主义那可真是白马非马。当然，两方喷对面不是真民主倒是日常。
+
+
+
+
+
+
+
+-----
+
+####  醉鸽子  
+##### 277#       发表于 2020-5-28 09:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上街散步，然后纷纷感染新冠，都不用浪费花生米......
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 278#       发表于 2020-5-28 09:45
+
+
+
+
+这么杀一只狗都算虐待动物了，这警察绝对是个变态。
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 279#       发表于 2020-5-28 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586394&amp;ptid=1937970" target="_blank">梦回星海 发表于 2020-5-28 09:24</a>
+
+不是，德先生这东西，你认为本意是啥？另外说这话的时候美国还没有开始援助苏联，这就是指英法等国。你可 ...</blockquote>
+当时西方国家已经在实行代议民主共和制的政治制度 叫民主国家 但是并不是实行民主主义
+
+
+
+
+
+
+
+-----
+
+####  梦回星海  
+##### 280#       发表于 2020-5-28 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586645&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:46</a>
+
+当时西方国家已经在实行代议民主共和制的政治制度 叫民主国家 但是并不是实行民主主义 ...</blockquote>
+。。。你是不是分不清民主主义\民主制度和人民民主这两个概念？
+
+
+
+
+
+
+
+-----
+
+####  btnasi  
+##### 281#       发表于 2020-5-28 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
+
+无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
+中国不能杀黑人。美国可以随便杀。
+
+要我说就是比中国好。
+
+
+
+
+
+
+
+-----
+
+####  某Bill  
+##### 282#       发表于 2020-5-28 09:54
+
+
+
+
+在奥巴马时期都不少见这样的案子，川普时期没全境大规模爆发算不算这帮白人police“自我克制”？
+
+某乎上看到一张转载图 one country two systems 对比白人凶嫌和黑人普通嫌疑人，警方的不同待遇
+
+
+真讽刺啊
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 283#       发表于 2020-5-28 09:55
+
+
+
+ 本帖最后由 ###### 于 2020-5-28 09:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586683&amp;ptid=1937970" target="_blank">梦回星海 发表于 2020-5-28 09:50</a>
+
+。。。你是不是分不清民主主义\民主制度和人民民主这两个概念？</blockquote>
+西方国家玩概念 文字游戏 双重标准 打左灯往右转。是不能看他们怎么说，只能看他们怎么做。概念写的再好，实施的时候完全不按稿子来。
+
+
+
+
+
+
+
+-----
+
+####  起飞  
+##### 284#       发表于 2020-5-28 09:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579710&amp;ptid=1937970" target="_blank">大哀之君 发表于 2020-5-27 17:58</a>
+
+当事警察带着那顶白命贵帽子的照片旁边还有他得意洋洋写下的一行字
+
+“The blacker the berry, the sweeter  ...</blockquote>
+这话怎么理解？
+
+
+字面上是越黑的浆果，果汁越甜？
+
+
+
+
+
+
+
+-----
+
+####  Archlich³  
+##### 285#       发表于 2020-5-28 09:56
+
+
+
+ 本帖最后由 Archlich³ 于 2020-5-28 10:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
+
+我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
+
+对Malcolm X这一票人而言，找上伊斯兰的是因为需要一个作为“白人的宗教”的基督教的对立面的“黑人的宗教”。正好人家也提供这种语境，换了佛教、另一些黑人民族主义者采用的非洲老家的萨满教或者mao主义（暴力归暴力，但不是宗教）就没这种直接跟基督教对抗的感觉。然而这伊斯兰除了戒律外基本给改造得妈都不认识了，麦加真就成瓦坎达了……
+
+
+
+
+
+
+
+-----
+
+####  古留  
+##### 286#       发表于 2020-5-28 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
+
+无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
+“我又不是黑人，这种事情轮不到我头上”
+
+“国内各种阉割审查，话都不能讲，日子过得有啥意思？”
+
+“这里的牛奶有牛奶味道，不像国内都没有味道的。吃的东西也安全。”
+
+
+我可以给你列一百条……
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 287#       发表于 2020-5-28 10:04
+
+
+
+ 本帖最后由 ###### 于 2020-5-28 10:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586755&amp;ptid=1937970" target="_blank">Archlich³ 发表于 2020-5-28 09:56</a>
+
+对Malcolm X这一票人而言，找上伊斯兰的是因为需要一个作为“白人的宗教”的基督教的对立面的“黑人的宗 ...</blockquote>
+Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。黑豹党有革命纲领，然而明白点的领导要么流亡要么蹲监狱要么被突突，黑人整体文化低容易受荧惑，后期CIA和FBI拼命收买狗腿还往黑人运动里掺沙子。等这阵风浪过去以后，美国改弦更张玩口上政治正确实行对黑人养猪，还把黑人不文明行为鼓吹成黑人文化，就发展成现在这样。宗教这东西黑人哪有白皮玩的溜，黑人运动转向宗教找解决方案就是自寻死路
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 288#       发表于 2020-5-28 10:06
+
+
+
+
+单纯当种族歧视问题其实都是避重就轻
+
+
+执法机构集体选择性坏掉导致的类似事件都快年经了，说好的体制纠错能力强、体制xx比单纯的个人作恶更可怕呢？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 289#       发表于 2020-5-28 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586746&amp;ptid=1937970" target="_blank">起飞 发表于 2020-5-28 09:56</a>
+ 这话怎么理解？  字面上是越黑的浆果，果汁越甜？</blockquote>
+浆果要爆掉才会有汁水出来的，联想一下
+
+
+
+
+
+                                        

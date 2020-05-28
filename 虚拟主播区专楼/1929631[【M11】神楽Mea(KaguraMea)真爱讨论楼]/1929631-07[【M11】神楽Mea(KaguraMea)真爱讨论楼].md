@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 00:06** 
+> ## **本文件最后更新于2020-05-28 10:04** 
 
 
 
@@ -3229,4 +3229,456 @@ Vtuberあるある(主に神楽めあの場合)
 
 
 
-                                           
+
+
+-----
+
+####  呓亘  
+##### 9190#       发表于 2020-5-28 00:44
+
+
+
+
+越来越觉得6月1号的发表会是你麻联动了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9191#       发表于 2020-5-28 00:45
+
+
+
+
+小麻明天能播一下安抚一下我被科研摧残的心吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9192#       发表于 2020-5-28 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">戒断了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9193#       发表于 2020-5-28 00:58
+
+
+
+
+你麻要是肯播gal game一定效果爆表 可惜阿b不给播
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9194#       发表于 2020-5-28 00:58
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9195#       发表于 2020-5-28 01:32
+
+
+
+
+她肯不肯还两说呢
+
+
+阿B倒是报备了也能播……
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 9196#       发表于 2020-5-28 01:37
+
+
+
+
+在B做发表会 有无可能给B收编了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9197#       发表于 2020-5-28 01:46
+
+
+
+
+不如说从签约起就被收编了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9198#       发表于 2020-5-28 08:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像车过收编至少不是坏事的啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望今天有一播，不过估计不太乐观
+
+
+syl，v8不太去，听说最近要选吧主了，楼友知不知道有哪几位是自己人可以有机会上位的我去投个票
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9199#       发表于 2020-5-28 08:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585954&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-28 08:41</a>
+好像车过收编至少不是坏事的啊
+
+希望今天有一播，不过估计不太乐观</blockquote>
+我是打算投十月妄想曲，以前的时候在v8还挺舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉那批原来的吧务就挺好
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9200#       发表于 2020-5-28 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585977&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-5-28 08:45</a>
+
+我是打算投十月妄想曲，以前的时候在v8还挺舒服的感觉那批原来的吧务就挺好 ...</blockquote>
+好的，我再问一下<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+1.是天狗吗
+
+2.原来那批管理者不是最近被diss的挺惨吗，有机会上位吗？
+
+3.还有别的靠谱的人选么，多选几个可以吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9201#       发表于 2020-5-28 08:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586026&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-28 08:52</a>
+好的，我再问一下
+
+1.是天狗吗
+
+2.原来那批管理者不是最近被diss的挺惨吗，有机会上位吗？</blockquote>
+1.不是
+2.他们到处被人骂高压政策<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过我倒觉得还好，他们调整过一次之后我是觉得没什么问题了
+3.他实际上是一个mea粉吧务推荐的，听说是原吧务组一起决定的，里面的人还挺多元化的，所以我也就选他了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其他的候选人我就一点不认识了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9202#       发表于 2020-5-28 09:02
+
+
+
+
+醒一醒，v8两万阴兵又不是假的，不过现在没活了倒是真的，无聊的一批<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9203#       发表于 2020-5-28 09:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是啊，那就不符合我说的自己人的要求了啊……咋办
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 9204#       发表于 2020-5-28 09:13
+
+
+
+
+这楼还有觉得V吧原吧务很好的人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9205#       发表于 2020-5-28 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586257&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-5-28 09:12</a>
+不是啊，那就不符合我说的自己人的要求了啊……咋办</blockquote>
+主要还是我比较信任那个mea粉的小吧，感觉一直都挺靠谱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以就选他推荐的人了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9206#       发表于 2020-5-28 09:17
+
+
+
+
+没有谁看着太适合，先观望了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9207#       发表于 2020-5-28 09:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">原吧务，十有八九点生活，怎么不去小白吧拉人去，来天狗这拉票，我觉得不太行。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 9208#       发表于 2020-5-28 09:21
+
+
+
+
+警惕和平演变v8真爱讨论楼讨论楼
+syl，你们如果觉得别人选的不合适，就推一个自己觉得合适的人出来，能迅速解决话题，否则就没完没了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 9209#       发表于 2020-5-28 09:24
+
+
+
+
+就mea粉黑来说，十月这人倾向于mea黑。绊爱粉？算半个乐子人。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9210#       发表于 2020-5-28 09:25
+
+
+
+ 本帖最后由 掉头学姐 于 2020-5-28 09:27 编辑 
+
+为啥不投斧子哥，s1的v版也还行吧，而且咩宝现在也有点凉了，对斧子哥没多大价值了
+
+当然如果贴吧咩楼楼主竞选我愿意投，就怕又逼疯一个
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9211#       发表于 2020-5-28 09:27
+
+
+
+
+不是
+为啥要纠结于十月这人本身是mea粉mea黑，他当吧主大概率会各家粉丝都拉上来当吧务，吧务里会有mea粉，这不就得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9212#       发表于 2020-5-28 09:27
+
+
+
+
+如果是黑的话为什么那个小吧还在mea吧发帖支持十月。。。其实我的标准是像之前一样能给mea粉一个小吧就行
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9213#       发表于 2020-5-28 09:28
+
+
+
+ 本帖最后由 掉头学姐 于 2020-5-28 09:29 编辑 
+
+原来的贴吧后期还行吧，也不是不可以
+
+贴吧逛的少，有啥黑料说出来参考参考
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9214#       发表于 2020-5-28 09:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">选十月还不如选天狗呢，拉票期间什么目标空话都可以说
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">等拉票结束后，什么都可以不作数了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 9215#       发表于 2020-5-28 09:36
+
+
+
+
+天狗还有绅宝呀，目前支持度还不错.
+当然也可以投我，虽然没啥人支持.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在来看阴兵加v我50战术，府子哥赢定了，到时候不知道能不能混个小吧，毕竟现在吧宝mea黑浓度很高.<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          
