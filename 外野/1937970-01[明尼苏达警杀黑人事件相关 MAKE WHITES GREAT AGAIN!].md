@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 00:12** 
+> ## **本文件最后更新于2020-05-28 08:09** 
 
 
 
@@ -1793,10 +1793,11 @@ dream管屁用，真正让白皮收敛的是黑豹党。</blockquote>
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| chexk03|-2|思路广|
 | ysys| + 1|立党能转书记不行？|
 | 古留|-1|别他妈转书记的垃圾过来好不好？.|
 
@@ -3143,6 +3144,25 @@ https://www.zhihu.com/question/397662325/answer/1249551013</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| faithlifer| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3948,6 +3968,25 @@ https://v.youku.com/v_s ...</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 耶酥叼根烟|-1|所以三元里事件是云广州人编的咯？.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4196,4 +4235,752 @@ This is a true story.
 
 
 
-                                          
+
+
+-----
+
+####  月神的长弓  
+##### 218#       发表于 2020-5-28 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583827&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-27 23:28</a>
+
+这真是不把人当人。搞和平的“黑命贵”还要被嘲讽怎么警察不打别人只打黑人怎么不反思自己问题。这次也是反 ...</blockquote>
+黑豹党的前辈们在天上看着你————真以为资产阶级专政的铁拳是吃素的？
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 219#       发表于 2020-5-28 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584249&amp;ptid=1937970" target="_blank">RainbowSealife 发表于 2020-5-28 00:07</a>
+This is a true story.
+
+故事发生在2020年的明尼苏达州。</blockquote>
+Fargo Season 4 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ARCtrooper  
+##### 220#       发表于 2020-5-28 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584269&amp;ptid=1937970" target="_blank">月神的长弓 发表于 2020-5-28 00:10</a>
+
+如果你是一身白皮，别说指着警察鼻子骂，就是拿**干死几个条子，弃械投降照样能留条命 ...</blockquote>
+还可以扮成GIJOE持GUN进州政府大楼呼口号合影留念呢
+
+
+
+
+
+
+
+-----
+
+####  akari1864  
+##### 221#       发表于 2020-5-28 00:26
+
+
+
+<blockquote>骑兵突击步枪 发表于 2020-5-27 23:34
+说点题外话，虽然整天有人说黑人怎么怎么样，甚至有人理直气壮的说出“就是歧视你黑人，怎么着？”。但是看 ...</blockquote>
+黑人有连环杀人犯（记得看过一个南非的案子），但是美国这环境下，黑人成为悍匪都比成为连环杀人犯可能性高。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 222#       发表于 2020-5-28 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584062&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-27 23:49</a>
+
+法农和马尔科姆是真心想为黑人塑造一个主体，可惜先后殒命。美国黑人惨就惨在没有民族主体上了，各种运动 ...</blockquote>
+对 黑人最惨的就是没有文化主体
+
+
+这点比老墨都惨
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 223#       发表于 2020-5-28 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584055&amp;ptid=1937970" target="_blank">坑爹虎 发表于 2020-5-27 23:48</a>
+站着的维持秩序的光头像是亚裔？
+
+
+真是亚裔这下好，白黄联合欺负黑，你们所有人都欺负黑 ...</blockquote>
+推上已经很多人在指责这个亚裔了
+
+不过说真的这位亚裔老哥的形象长的简直刻板得不能再刻板了…
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 224#       发表于 2020-5-28 00:44
+
+
+
+
+另外这个黑人老哥上大学有工作平时还做义工…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yayoi801  
+##### 225#       发表于 2020-5-28 00:45
+
+
+
+
+爆发了大规模和平散步，然后催泪气和橡胶弹都被拿出来用以镇压了
+<img src="https://p.sda1.dev/0/704a66f0ee5ff76084a2d24a339faaeb/IMG_27D910CFCDC43F54861AE6CBE699F629.jpeg" referrerpolicy="no-referrer">
+然而之前那些带着武器抗议隔离和戴口罩的人，警察完全不敢动他们
+<img src="https://p.sda1.dev/0/3c7f84d8b6306b72bb66a8c1e57c361f/IMG_A854628419A836D33F65B5A7A1FA23AA.jpeg" referrerpolicy="no-referrer">
+这就是自由的美国
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 226#       发表于 2020-5-28 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583625&amp;ptid=1937970" target="_blank">巫师萨满 发表于 2020-5-27 23:13</a>
+
+可悲，现在的美国黑人都被教育成这样了吗?马丁路德金都要被气活了
+
+
+—— 来自 vivo NEX A, Android 9上的 S ...</blockquote>
+马丁路德jr就是个跪夫，真黑人领袖得看马尔科姆·X
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 227#       发表于 2020-5-28 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584638&amp;ptid=1937970" target="_blank">2517君改二 发表于 2020-5-28 00:58</a>
+
+马丁路德jr就是个跪夫，真黑人领袖得看马尔科姆·X</blockquote><blockquote>Whites can help us, but they can’t join us. There can be no black-white unity until there is first some black unity.
+
+We cannot think of being acceptable to others until we have first proven acceptable to ourselves.</blockquote>
+这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nekkihs  
+##### 228#       发表于 2020-5-28 01:05
+
+
+
+
+罰酒三杯 美帝警察公會橫的很
+
+
+
+
+
+
+
+-----
+
+####  wangchaofire  
+##### 229#       发表于 2020-5-28 01:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 看的我心情很糟糕。
+
+这黑人老哥真太惨了 
+
+
+
+
+
+
+
+-----
+
+####  abckuil678  
+##### 230#       发表于 2020-5-28 01:22
+
+
+
+
+还是建议世界各地的嗨人来广坎达当洋大人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Vincent_law|-1|思路广|
+| 传奇820|-1|全送你家去草你妈|
+| sssacpgdr|-2|emmm|
+| 亚瑟邓特|-1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  游蜓  
+##### 231#       发表于 2020-5-28 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580895&amp;ptid=1937970" target="_blank">東方仗助 发表于 2020-05-27 19:42:43</a>
+v2.2.2.1</blockquote>太悲哀了。。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪霜  
+##### 232#       发表于 2020-5-28 02:14
+
+
+
+
+每次发生这种事然后就是由那个警察局来调查自己人，最后基本无罪。这是真正意义上的“堂下何人因何事状告本官”
+
+
+
+
+
+
+
+-----
+
+####  死亡確認  
+##### 233#       发表于 2020-5-28 04:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584269&amp;ptid=1937970" target="_blank">月神的长弓 发表于 2020-5-28 00:10</a>
+如果你是一身白皮，别说指着警察鼻子骂，就是拿**干死几个条子，弃械投降照样能留条命 ...</blockquote>
+之前不是有个退伍军人杀了两个警察后直接原地投降被带走吗，人真的只打腿，而且只要终身监禁
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  蒼木冬史  
+##### 234#       发表于 2020-5-28 04:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583295&amp;ptid=1937970" target="_blank">丁兔 发表于 2020-5-27 22:46</a>
+光秒这个单位都太大了，光绕地球一圈都不用1秒啊</blockquote>
+用公里数字太大，不利于<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+再说光秒，有人不知道是距离单位正好<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI BND-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  姜子牙  
+##### 235#       发表于 2020-5-28 04:42
+
+
+
+
+美国现在需要的是约法三章， 第一条： 杀人偿命
+
+
+
+
+
+
+
+-----
+
+####  旋转吃草  
+##### 236#       发表于 2020-5-28 05:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579774&amp;ptid=1937970" target="_blank">東京地方検察庁 发表于 2020-5-27 18:04</a>
+安啦，现在人家西方世界的24h高强度重磅头条是火山又向人群发射催泪单惹，震惊！恐怖！颤栗！掩面！气抖冷 ...</blockquote>
+你这个就属于乱讲了，美国绝大部分新闻都是在讲国内甚至本地的事。不去特意找，基本看不到火山的新闻
+
+
+
+
+
+
+
+-----
+
+####  旋转吃草  
+##### 237#       发表于 2020-5-28 05:42
+
+
+
+ 本帖最后由 旋转吃草 于 2020-5-28 05:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579983&amp;ptid=1937970" target="_blank">東方仗助 发表于 2020-5-27 18:21</a>
+
+看来丑国黑人搞得黑命贵是有道理的。奥巴马那时候谁能意识到这国家潜伏了一半的种族主义纳粹。
+
+
+—— 来自  ...</blockquote>
+很多人知道，只不过一部分国内网民在完全没有美国生活经历的情况下，就听信某些右派宣传。一部分在美华人麻痹自己以为be more American（white）就能不被白人歧视 岁月静好，这些人就是本来就是倾向保守派，毕竟16年，华人是整个亚裔里第三支持ykw的，前两名是菲律宾和越南裔<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aeplantim  
+##### 238#       发表于 2020-5-28 05:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584537&amp;ptid=1937970" target="_blank">天下至贱 发表于 2020-5-28 00:42</a>
+
+推上已经很多人在指责这个亚裔了
+
+
+不过说真的这位亚裔老哥的形象长的简直刻板得不能再刻板了… ...</blockquote>
+这亚裔哥们放国内也是个“太君这边请”的造型，加上一身美帝cop的狗皮就更有那味了
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 239#       发表于 2020-5-28 05:59
+
+
+
+<blockquote>旋转吃草 发表于 2020-5-28 05:36
+你这个就属于乱讲了，美国绝大部分新闻都是在讲国内甚至本地的事。不去特意找，基本看不到火山的新闻 ...</blockquote>
+推特上HK黄尸超爱蹭热度，每个排名靠前的趋势都要出来跳，这一次也不例外。你可以去看一看
+
+
+
+
+
+
+
+-----
+
+####  旋转吃草  
+##### 240#       发表于 2020-5-28 06:04
+
+
+
+ 本帖最后由 旋转吃草 于 2020-5-28 06:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585360&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-28 05:59</a>
+
+推特上HK黄尸超爱蹭热度，每个排名靠前的趋势都要出来跳，这一次也不例外。你可以去看一看 ...</blockquote>
+这是两回事，白宫的ig还天天被俄语评论刷屏呢，但这不管人家新闻报道的事的，美国地区的twitter trends本身都找不到火山，新闻更是本身绝大多数篇幅都是报道本地的新闻。
+
+
+
+
+
+
+
+-----
+
+####  雨落飘零  
+##### 241#       发表于 2020-5-28 06:08
+
+
+
+
+当地人恐怕也就只能随便闹一闹，警察杀百姓在美国我真的没有听说过有什么惩罚的…美国人在这种时候各个都没种，不是号称不禁qiang就是为了在这些时候防一手吗，结果qiang只是鹅害鹅的工具，给你东西你也不中用啊
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 242#       发表于 2020-5-28 06:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585341&amp;ptid=1937970" target="_blank">旋转吃草 发表于 2020-5-28 05:36</a>
+你这个就属于乱讲了，美国绝大部分新闻都是在讲国内甚至本地的事。不去特意找，基本看不到火山的新闻 ...</blockquote>
+至少PBS每天都有在跟进报道的
+
+
+
+
+
+
+
+-----
+
+####  旋转吃草  
+##### 243#       发表于 2020-5-28 06:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585373&amp;ptid=1937970" target="_blank">烦死了 发表于 2020-5-28 06:10</a>
+
+至少PBS每天都有在跟进报道的</blockquote>
+这两天有报道很正常，白宫都发话了，nyt也有，但是你再看看篇幅，和那位说的24小事高强度头条轰炸是一回事吗
+
+
+
+
+
+
+
+-----
+
+####  onezeron  
+##### 244#       发表于 2020-5-28 06:18
+
+
+
+
+一直以来都有的两个感想：
+
+1. 你在美国当有色人种，过着一种次要的生活，那话是这么说来着吧
+
+2. 某港的反警暴我一直觉得特别扯淡。我见过的国家都是越发达警察约暴力，合理来讲应该是反对警察不够暴力。香港警察也不说和美国警察学一下
+
+
+
+
+
+
+
+-----
+
+####  Vincent_law  
+##### 245#       发表于 2020-5-28 06:38
+
+
+
+<blockquote>onezeron 发表于 2020-5-28 06:18
+一直以来都有的两个感想：
+
+1. 你在美国当有色人种，过着一种次要的生活，那话是这么说来着吧
+
+2. 某港的反警 ...</blockquote>
+第二条“国家”，可惜不是
+
+
+
+
+
+
+
+-----
+
+####  世界之旅  
+##### 246#       发表于 2020-5-28 06:46
+
+
+
+
+你到车里去
+
+可是我不能动啊
+
+你先到车里去我就让你动
+
+你不让我动，我怎么上车啊
+
+那你到车上就放开你了啊
+
+你不放开我，我怎么上车啊
+
+你先………
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 247#       发表于 2020-5-28 06:53
+
+
+
+<blockquote>世界之旅 发表于 2020-5-28 06:46
+你到车里去
+
+可是我不能动啊
+
+你先到车里去我就让你动
+</blockquote>
+q群时常传的那张图我一直以为是调侃，没想到是真的
+
+
+
+
+
+
+
+-----
+
+####  onezeron  
+##### 248#       发表于 2020-5-28 06:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583054&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-27 22:26</a>
+
+西方国家从未民主过。民主是社会主义国家的口号和实行目标。西方国家讲的是自由 自有资本，他们口里的民 ...</blockquote>
+这个功臣其实是小布什，从他那个时候，把民主这个词就抢过去了
+
+
+
+
+
+
+
+-----
+
+####  春哥亲自  
+##### 249#       发表于 2020-5-28 06:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584554&amp;ptid=1937970" target="_blank">yayoi801 发表于 2020-5-28 00:45</a>
+爆发了大规模和平散步，然后催泪气和橡胶弹都被拿出来用以镇压了
+
+然而之前那些带着武器抗议隔离和戴口罩的 ...</blockquote>
+因为他们真有gun
+
+
+
+
+
+
+
+-----
+
+####  v沈馒馒v  
+##### 250#       发表于 2020-5-28 07:04
+
+
+
+
+看了一眼时间
+
+不是旧闻
+
+几乎一模一样的事件一遍又一遍
+
+
+
+
+
+
+
+-----
+
+####  大哀之君  
+##### 251#       发表于 2020-5-28 07:32
+
+
+
+ 本帖最后由 大哀之君 于 2020-5-28 07:34 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/073404akem6n3hla66g65u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200528_073336.jpg</strong> (424.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 07:34 上传
+
+
+
+
+
+[https://www.zhihu.com/answer/1249445043](https://www.zhihu.com/answer/1249445043)
+
+
+
+
+
+
+Screenshot_2020-05-28-07-25-15-182_com.zhihu.android.jpg
+(593.63 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-28 07:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/073214tjq543353w75373q.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nominication47  
+##### 252#       发表于 2020-5-28 08:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583417&amp;ptid=1937970" target="_blank">骑兵突击步枪 发表于 2020-05-27 22:56:27</a>
+当年李开复还说民主国家允许民众上街，不会“捂盖子”，“有伤口就暴露出来，不会一直堵着最后化脓”，但 ...</blockquote>现实却是麻风病，的确在溃烂化脓，但并不会好，最后会发展成肢体脱落。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  felixcat  
+##### 253#       发表于 2020-5-28 08:04
+
+
+
+<blockquote>Promeus 发表于 2020-5-27 18:36
+——你马上给我到警车里去
+
+——你压着我脖子我动不了，我没法到警车里去
+
+——你他妈不到警车里去我就不松腿 ...</blockquote>
+这个和之前在某个走廊被条子用AR指着叫他又趴下又要举手又要他移过来又要他不动，一直痛哭流涕然后还是被AR乱铳打死的那个白人老兄一样……(눈_눈)
+
+
+
+
+
+                                         

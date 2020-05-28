@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 02:04** 
+> ## **本文件最后更新于2020-05-28 08:02** 
 
 
 
@@ -2739,7 +2739,7 @@ syl，杏是帝国，虹是共和国，这是联邦来了吗
 
 syl
 这个好像很有意思的样子
-<img src="https://p.sda1.dev/0/a9803622b0ca11d65b1136851d0ab1bf/IMG_20200527_180823.JPG" id="aimg_HzF30" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/a9803622b0ca11d65b1136851d0ab1bf/IMG_20200527_180823.JPG" id="aimg_Fn2fM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11763,10 +11763,11 @@ tc生活音扮女友养gachi，直播当艺人，那2k同接怕不是八成都�
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 面具13| + 1|欢乐多|
 | mmbk| + 1|欢乐多|
 | kanonsisya| + 1|我要把这画师🐎杀了|
 | Ascending| + 1|欢乐多|
@@ -12264,11 +12265,568 @@ nga裁信可是名扬两岸三地的。不仅裁楼有信者，还溢出到其�
 
 
 
+ 本帖最后由 QWANG 于 2020-5-28 02:05 编辑 
 
-狐皇59.9了，明天中午就能60了。
+狐皇59.9了，明天中午就能60了。syl
+
+NASA20倍杀兔皇。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/28/020522wkv27y02w7kwaas0.png" referrerpolicy="no-referrer">
+
+
+<strong>K1NM5X_2CKWN`Z}O~}L93]T.png</strong> (18.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 02:05 上传
 
 
 
 
 
-                            
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 41140#       发表于 2020-5-28 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584144&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-5-27 23:58</a>
+
+让我来看看狐皇是怎么给AMD 4900hs的强强电脑做工商的</blockquote>
+一上来就AMD yes并且批判了一波intel<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 41141#       发表于 2020-5-28 02:09
+
+
+
+ 本帖最后由 wsotaku 于 2020-5-28 02:12 编辑 
+<blockquote>MisForTunez 发表于 2020-5-28 01:23
+...
+
+正是因为以前次次都跟才会这样觉得
+
+只不过是明明tc台这么自然，歌回唱anisong的时候非得这么 ...</blockquote>
+今天夏哥对我这种认知厨太好了，爽到炸，今晚有好梦了，尬舔粉丝没体会到呢，中间冷处理某港nt的sc也加了好多好感
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 41142#       发表于 2020-5-28 02:11
+
+
+
+
+nga有人开斧子哥团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以可以，好活好活
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 41143#       发表于 2020-5-28 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584960&amp;ptid=1924531" target="_blank">stedckk 发表于 2020-5-28 01:56</a>
+有被笑到，真的有这样的人吗，没研究过nga裁信，我以为喜欢他言论的大部分不是anti就是乐子人。 ...</blockquote>
+我不敢说他们是否真的都相信裁裁在守护最好的vjuan，但是为裁裁洗地的信者溢出得到处都是。可能在v综还没多少人提到此事，但是k岛当时顺劈nga裁信还蛮多的。
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 41144#       发表于 2020-5-28 02:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584749&amp;ptid=1924531" target="_blank">好德我基 发表于 2020-5-28 01:17</a>
+
+花园猫很早很早就受到石油佬的眷顾了，翻唱学猫叫也是打开财富密码的源头，吸引了很多圈外人，之后开始滚 ...</blockquote>
+花园猫一直有石油佬照顾我是知道的
+
+不过从粉丝数增长来看，花园猫在去年8月10w的情况下，今年2月头才过15w
+
+而现在5月头已经破30w了，她这三个月增长的粉丝数抵了她在B活动以来一整年增长的粉丝数
+
+营收也是2月的时候配合她播爆开始连着往上跳（嘛只是相比1月的数据，再往前的我也不清楚
+
+所以我的看法是长期耕耘+财富密码让她打下了自己的基础，这波福报播爆才让她迎来一次整体的大爆发
+
+当然这波爆发除了播爆以外还有一些别的因素，就不展开了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 41145#       发表于 2020-5-28 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584922&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-28 01:47</a>
+
+草，我刚才点开nga倒是看到一个斧子哥gachi怒喷版务为什么删他贴
+
+真应该劝他来s1的，岂不是还能届到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是那个HOLO应对性骚扰废拉不堪，斧子英明神武的帖子么
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 41146#       发表于 2020-5-28 02:36
+
+
+
+
+我也眼里有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">，郡道会限密码是韩国相关，我看着愣了五秒......
+
+然后点进去发现她在边嘟嘟囔囔边吃沙拉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，说得好，我也觉得沙拉真的不行
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 41147#       发表于 2020-5-28 02:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585020&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-28 02:11</a>
+
+nga有人开斧子哥团了可以可以，好活好活</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">讲道理咱觉得那人明显坑斧子的，这会出这么个事，碰瓷味实在太重了。。。你说是真的都没人信。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 41148#       发表于 2020-5-28 02:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584848&amp;ptid=1924531" target="_blank">恶魔娘阿洛 发表于 2020-5-28 01:33</a>
+
+你这消息太晚了，狗子发推10秒内咱就转完NGA了</blockquote>
+我没事不上绿帽论坛，号都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 41149#       发表于 2020-5-28 02:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竟然有真的裁信，没被天狗扬了吗？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 41150#       发表于 2020-5-28 02:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585127&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-28 02:48</a>
+
+我没事不上绿帽论坛，号都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱说的是咱从推特转去NGA，不是NGA看来的啊。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 41151#       发表于 2020-5-28 02:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585135&amp;ptid=1924531" target="_blank">恶魔娘阿洛 发表于 2020-5-28 02:51</a>
+
+咱说的是咱从推特转去NGA，不是NGA看来的啊。</blockquote>
+我说的是我不上nga所以你几秒转了管我毛事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 41152#       发表于 2020-5-28 02:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585144&amp;ptid=1924531" target="_blank">kanonsisya 发表于 2020-5-28 02:54</a>
+
+我说的是我不上nga所以你几秒转了管我毛事啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是。。。尼玛算了感觉解释这个好蠢啊。。。。。
+
+
+反正明天晚上有东西看了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 41153#       发表于 2020-5-28 03:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585092&amp;ptid=1924531" target="_blank">rzrbtk 发表于 2020-5-28 02:36</a>
+
+我也眼里有梁木了，郡道会限密码是韩国相关，我看着愣了五秒......
+
+然后点进去发现她在边嘟嘟囔囔边 ...</blockquote>
+想太多了
+
+烤限自然是烤肉相关<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+这女人迟早胖到不能出门见人
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41154#       发表于 2020-5-28 03:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/035116jovwwrb5rw9ww3wj.png" referrerpolicy="no-referrer">
+
+
+<strong>2]1ZB`MI8H_EU~F]38VLGH6.png</strong> (18.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 03:51 上传
+
+
+
+
+
+NASA最强！NASA最强！
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 41155#       发表于 2020-5-28 03:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580149&amp;ptid=1924531" target="_blank">ひびき 发表于 2020-5-27 18:38</a>
+不是，每次出个门能看见十个起我老婆ID的
+
+
+但是我赞同他的观点，我一直坚持的观点就是yagoo最大的 ...</blockquote>
+啥？净土宗的响不是你啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 41156#       发表于 2020-5-28 04:15
+
+
+
+
+我现在都不知道响是哪个二次元老婆，叫响的也太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 41157#       发表于 2020-5-28 04:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582486&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-27 21:42</a>
+阿菜去木口的理由很充分阿：
+
+
+1、和mrr一样都是葵皇的好朋友</blockquote>
+可是yagoo不准liver讲故事啊，阿菜播着播着要是开始杏圈故事会估计yagoo直接给她配信切了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 41158#       发表于 2020-5-28 05:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">还好小波鱼的id都很好认能快速屏蔽
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41159#       发表于 2020-5-28 05:52
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-28 07:03 编辑 
+
+一觉醒来兔子还在播，这是想学狗子作息吸白皮吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+突然感觉好心机，狗子不播龙皇不播来填这两个人的档期，正好佐贺发布欧米白皮看完了旁边推荐一看，pekora正在直播。就是靠dq吸白皮听着有点蠢。
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 41160#       发表于 2020-5-28 05:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">前面有提到萝卜子的挂件那个耳朵颜色看起来更像驴
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  空き地卯木  
+##### 41161#       发表于 2020-5-28 06:16
+
+
+
+ 本帖最后由 空き地卯木 于 2020-5-28 06:20 编辑 
+
+爬楼看到8250又在日常车净土太监痰，看了眼repo葵皇的不少，还有8250最爱的葵西贴贴和韩国男友，开心吗？
+
+希望8250继续努力黑屁，有朝一日葵皇韩国进出时能打点奶粉钱
+
+啊，好像因为已经被很多不明真相的群众进出过了？
+
+
+
+
+
+
+Screenshot_20200528_061116.jpg
+(36.87 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-28 06:11 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/061138addo33v050cl0z5t.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41162#       发表于 2020-5-28 06:33
+
+
+
+
+诶，韩国人不是2k的发明吗
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 41163#       发表于 2020-5-28 06:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">韩国相关的事肯定得信朝鲜人的太阳啊
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 41164#       发表于 2020-5-28 07:24
+
+
+
+
+我居然看到兔皇过了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41165#       发表于 2020-5-28 07:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585552&amp;ptid=1924531" target="_blank">QWANG 发表于 2020-5-28 07:24</a>
+我居然看到兔皇过了。</blockquote>
+感觉最后嗓子都快不行了，太福报了…
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 41166#       发表于 2020-5-28 07:50
+
+
+
+
+昨天破事多没看成，才发现影山一万订阅了，还有昨晚的FGO宝具ASMR是啥？
+
+
+
+
+
+                           
