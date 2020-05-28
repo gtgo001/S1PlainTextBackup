@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 10:04** 
+> ## **本文件最后更新于2020-05-28 12:04** 
 
 
 
@@ -2739,7 +2739,7 @@ syl，杏是帝国，虹是共和国，这是联邦来了吗
 
 syl
 这个好像很有意思的样子
-<img src="https://p.sda1.dev/0/a9803622b0ca11d65b1136851d0ab1bf/IMG_20200527_180823.JPG" id="aimg_oc5Yx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/a9803622b0ca11d65b1136851d0ab1bf/IMG_20200527_180823.JPG" id="aimg_TeFiv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -11742,7 +11742,7 @@ tc生活音扮女友养gachi，直播当艺人，那2k同接怕不是八成都�
 <img src="https://img.saraba1st.com/forum/202005/28/005706xjbimjmfffidy77j.jpg" referrerpolicy="no-referrer">
 
 
-<strong>001525ecd0ckd75kbbzaek.jpg</strong> (1.07 MB, 下载次数: 0)
+<strong>001525ecd0ckd75kbbzaek.jpg</strong> (1.07 MB, 下载次数: 1)
 
 下载附件
 
@@ -11763,10 +11763,12 @@ tc生活音扮女友养gachi，直播当艺人，那2k同接怕不是八成都�
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|欢乐多|
+| naiveyan| + 1|欢乐多|
 | 面具13| + 1|欢乐多|
 | mmbk| + 1|欢乐多|
 | kanonsisya| + 1|我要把这画师🐎杀了|
@@ -11912,10 +11914,11 @@ tc生活音扮女友养gachi，直播当艺人，那2k同接怕不是八成都�
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|好评加鹅|
 | ポップコーン| + 1||
 | argaregeasr| + 1|好评加鹅|
 | kanonsisya| + 1|幸苦|
@@ -13349,6 +13352,25 @@ big god占卜暗示兔皇现在是人生巅峰，还要小心合作对象，控�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zz101896|-1|思路广|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13499,7 +13521,7 @@ big god占卜暗示兔皇现在是人生巅峰，还要小心合作对象，控�
 <img src="https://img.saraba1st.com/forum/202005/28/093950lsooq1jf0jjxr0dh.png" referrerpolicy="no-referrer">
 
 
-<strong>VFJDH))X8(_DW81U{]GS3KC.png</strong> (503.4 KB, 下载次数: 0)
+<strong>VFJDH))X8(_DW81U{]GS3KC.png</strong> (503.4 KB, 下载次数: 1)
 
 下载附件
 
@@ -13750,10 +13772,13 @@ holo的ark时代正式结束了</blockquote>
 
 
 
+ 本帖最后由 龙魂绯影 于 2020-5-28 10:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586761&amp;ptid=1924531" target="_blank">cgz 发表于 2020-5-28 09:57</a>
 这个事我猜想过大概就是mea127那次因为迟迟没法收益化，打算隐退或者带皮去别的地方当V，然后帕里就吓唬 ...</blockquote>
 还有牡丹和vgming的事迹啊
 我是觉得对他不是肉够不够吃，而是你不爆炸我帮你炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年都说阿裁喜欢恰奥利给，倒和v8挺像的
+
+我记得鸣神裁连刚联动的人都能反咬一口的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mea这种铁血yhm怎么敢跟他交好啊，找恶代官的可能性都比找鸣神裁大一点吧
 
 
 
@@ -13775,4 +13800,1770 @@ cytus联动老爱？这个可以有<img src="https://static.saraba1st.com/image/
 
 
 
-                          
+
+
+-----
+
+####  opersuper  
+##### 41214#       发表于 2020-5-28 10:08
+
+
+
+ 本帖最后由 opersuper 于 2020-5-28 10:25 编辑 
+
+为什么敲打吓阻兔皇和sio联动，工贼害怕革命的幽灵在内部传播么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yhm意识觉醒的步伐无法阻挡，矛盾会从最不干人事躺拿分成的运营开始依次爆发
+
+木口强箱推营业捆绑和滑跪熟练度的改良主义能续上吗，要是昏了头再招个56期就更精彩了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 41215#       发表于 2020-5-28 10:20
+
+
+
+
+咋还真有人觉得裁狗对mea不错的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别是被裁狗pua了吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 41216#       发表于 2020-5-28 10:21
+
+
+
+ 本帖最后由 colodes 于 2020-5-28 10:23 编辑 
+
+fbk：在展示了商品的链接后，商品网页的同接上升了上千
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 41217#       发表于 2020-5-28 10:26
+
+
+
+
+今天晚上八点，律可在B站播观众参与型雀魂
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41218#       发表于 2020-5-28 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41219#       发表于 2020-5-28 10:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585829&amp;ptid=1924531" target="_blank">cgz 发表于 2020-5-28 08:26</a>
+裁对P家的人都不错的，普遍还是认为他没害mea，mea自己不想养gachi</blockquote>
+嗨，裁狗还对P家人不错呢，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我都听不下去了。
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41220#       发表于 2020-5-28 10:31
+
+
+
+
+没有mea那事也有游戏部那事啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时不也骂裁狗骂得挺凶的
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41221#       发表于 2020-5-28 10:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 41222#       发表于 2020-5-28 10:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> ← 禁止此表情 😡
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41223#       发表于 2020-5-28 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587210&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 10:34</a>
+帮三字母喷裁呢，怎么天狗狂跳我。这届天狗不行。</blockquote>
+怎么搞的还需要你帮着喷一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒不如说跳的就是你这种过了这么久甚至换了个论坛还是nga那股太监味的感觉
+甚至连表情都是nga复刻的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41224#       发表于 2020-5-28 10:38
+
+
+
+
+能不能换个表情<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个扇子表情刷这么多我眼睛痛
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41225#       发表于 2020-5-28 10:38
+
+
+
+
+怎么本蔡也2k化了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41226#       发表于 2020-5-28 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587252&amp;ptid=1924531" target="_blank">crito 发表于 2020-5-28 10:38</a>
+怎么本蔡也2k化了</blockquote>
+幼年体2000是这样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41227#       发表于 2020-5-28 10:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我对三字母和天狗什么态度混过净土坛的都知道，还用想吗？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 41228#       发表于 2020-5-28 10:42
+
+
+
+[https://twitter.com/12hotagai/status/1265717524466810881?s=19](https://twitter.com/12hotagai/status/1265717524466810881?s=19)
+
+
+stars全家福
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 41229#       发表于 2020-5-28 10:42
+
+
+
+
+鸣神裁在国内风评下降的两大原因不就是惹了mea跟牡丹事件惹了zjh<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其他什么爆料vgaming这种你看有人关心吗
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 41230#       发表于 2020-5-28 10:43
+
+
+
+
+三三滑跪那会明明是裁信数量的又一个巅峰之一，后面发现这货肚子里的屎还不如三三自己滑跪时抖露的老底多就只知道放“我是正道之光求求你们憋打我了”的屁他裁信当然数量就下滑了，本蔡先生不要搞错因果关系了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41231#       发表于 2020-5-28 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587295&amp;ptid=1924531" target="_blank">proxima 发表于 2020-5-28 10:42</a>
+鸣神裁在国内风评下降的两大原因不就是惹了mea跟牡丹事件惹了zjh
+
+其他什么爆料vgaming这种你看有人 ...</blockquote>
+不存在的，你看前几楼，天狗不承认这点。<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 41232#       发表于 2020-5-28 10:47
+
+
+
+
+普遍认为裁裁是为了mea，裁裁和mea关系好还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+也不用多了解来龙去脉，你就吃瓜看一下当时mea的谢罪直播，裁裁假装知道真相不断逼mea自爆谢罪也不会得出这么个结论啊。虽然大家都不喜欢三字母我心想也应该不会有人觉得裁裁好吧。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41233#       发表于 2020-5-28 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">味太重了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">公公腔都出来了，这就是大公公的实力吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41234#       发表于 2020-5-28 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587302&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 10:43</a>
+不存在的，你看前几楼，天狗不承认这点。</blockquote>
+转来转去又变成天狗不承认了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么倒是记得516时开了个裁楼，裁信大量产出呢
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41235#       发表于 2020-5-28 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所以说天狗不行，说到三字母就要跳脚。连别人在喷裁狗的主题都忘了。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 41236#       发表于 2020-5-28 10:49
+
+
+
+
+凪白みと
+
+@lemon_mito
+
+フブキのラインスタンプを出してください
+
+
+凪白是换中之人还是被烟头烫怕了，父慈子孝又少一大乐子，该取关了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41237#       发表于 2020-5-28 10:50
+
+
+
+
+本菜终于在楼里跟除了2000之外的人吵了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 41238#       发表于 2020-5-28 10:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来骑脸到自己推头上自己也跟着黑是很行的表现吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 41239#       发表于 2020-5-28 10:51
+
+
+
+
+裁只是跟高女士关系不错而已，不等于跟整个帕里坡都关系不错。
+
+不会真有人把帕里坡当温暖大家庭的吧
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 41240#       发表于 2020-5-28 10:51
+
+
+
+
+草，我有点没看明白，究竟谁是天狗
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41241#       发表于 2020-5-28 10:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41242#       发表于 2020-5-28 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587372&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 10:49</a>
+所以说天狗不行，说到三字母就要跳脚。连别人在喷裁狗的主题都忘了。 ...</blockquote>
+原来这样就算不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个道德标准还蛮高的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41243#       发表于 2020-5-28 10:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我就是裁信怎么了？来喷阿，看到月之被阿裁怼成那样我心里都暗爽，
+
+
+看到太监囚人上下跳脚，我更爽了
+
+
+等阿裁黑到葵皇韩国人事件我再来当裁黑好吧！
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 41244#       发表于 2020-5-28 10:52
+
+
+
+
+把V综的舞台交给本菜和天狗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41245#       发表于 2020-5-28 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587399&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 10:51</a>
+一个群体是不是NT群体，不取决于群体里NT的比例，而取决于一个群体里的NT数量。V圈哪个群体最是NT群 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我懂了，事微**虹太监
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 41246#       发表于 2020-5-28 10:53
+
+
+
+ 本帖最后由 RE.AGE45.MKⅠ 于 2020-5-28 10:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587129&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 10:28</a>
+
+裁信不是一开始就是那样觉得的么？要不是最后和某三字母发生纠纷发现这人只是到处会咬人的狗，说不定裁信还能更多点。</blockquote>
+翻了一页就忘记自己在说什么了，记忆力有点差，我来帮你回忆一下
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 41247#       发表于 2020-5-28 10:53
+
+
+
+
+本蔡和2000谁是谁的上位替代
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41248#       发表于 2020-5-28 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587408&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-28 10:52</a>
+我就是裁信怎么了？来喷阿，看到月之被阿裁怼成那样我心里都暗爽，
+
+
+看到太监囚人上下跳脚，我更爽 ...</blockquote>
+阿道信一边去，把话筒留给我和天狗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41249#       发表于 2020-5-28 10:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 之前被我喷到退V综的那个猴信呢？
+
+
+猴信上下跳脚，还被猴子阉了下体的样子真是有够好笑得呢^^
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 41250#       发表于 2020-5-28 10:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">交啥呢，太监来来去去不就那几句，这里也想妇科当年净土坛？
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 41251#       发表于 2020-5-28 10:54
+
+
+
+
+两个不是一个种类 
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41252#       发表于 2020-5-28 10:54
+
+
+
+
+2k蔡贴贴！？！？！？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 41253#       发表于 2020-5-28 10:54
+
+
+
+
+CP哪有什么上位替代啊.jpg
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41254#       发表于 2020-5-28 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587417&amp;ptid=1924531" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-28 10:53</a>
+翻了一页就忘记自己在说什么了，记忆力有点差，我来帮你回忆一下</blockquote>
+裁信在惹了天狗之后少了很多呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41255#       发表于 2020-5-28 10:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 猴戏差不多就行了，太过了只能理解成猴戏入脑，自己也变成猴子了
+
+
+猴子猴孙追着猴大王屁股后面舔脚的样子，和当年脑瘫天狗有锤子区别？
+
+
+无非是你猴没被阿裁爆一手罢了，
+
+
+我倒是挺期待跟踪狂和阿裁联系，给你猴来波大活，
+
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41256#       发表于 2020-5-28 10:56
+
+
+
+
+我觉得2000比较上位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然现在的2000变成这样很奇怪，但一年前的2000还是很可爱的
+依稀记得我以前说mea要加入彩虹时怒喷我的2000
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41257#       发表于 2020-5-28 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587430&amp;ptid=1924531" target="_blank">暴走的包子 发表于 2020-5-28 10:53</a>
+交啥呢，太监来来去去不就那几句，这里也想妇科当年净土坛？
+
+—— 來自 samsung SM-N9750, Android ...</blockquote>
+哪几句？天狗是NT？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41258#       发表于 2020-5-28 10:57
+
+
+
+
+这太监味太浓了受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41259#       发表于 2020-5-28 10:57
+
+
+
+
+2000很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41260#       发表于 2020-5-28 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587479&amp;ptid=1924531" target="_blank">龙魂绯影 发表于 2020-5-28 10:56</a>
+我觉得2000比较上位虽然现在的2000变成这样很奇怪，但一年前的2000还是很可爱的
+依稀记得我以前说me ...</blockquote>
+冠军粉不应该支持三字母加入Holo么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41261#       发表于 2020-5-28 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587478&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-28 10:56</a>
+猴戏差不多就行了，太过了只能理解成猴戏入脑，自己也变成猴子了
+
+
+猴子猴孙追着猴大王屁股后面舔脚 ...</blockquote>
+快爆，我很着急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41262#       发表于 2020-5-28 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587496&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 10:58</a>
+冠军粉不应该支持三字母加入Holo么</blockquote>
+你为啥会把我当成冠军粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41263#       发表于 2020-5-28 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587416&amp;ptid=1924531" target="_blank">龙魂绯影 发表于 2020-5-28 10:53</a>
+我懂了，事微**虹太监</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是天狗NT的地方了，NT而不自知。真是可笑呢。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720|-1|被盗号了？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 41264#       发表于 2020-5-28 11:00
+
+
+
+
+阿裁和p家关系不错的还有一个原因是当初童话社骚操作时候的复数爆料人，去了巧可拉拉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41265#       发表于 2020-5-28 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587537&amp;ptid=1924531" target="_blank">龙魂绯影 发表于 2020-5-28 11:00</a>
+你为啥会把我当成冠军粉</blockquote>
+天狗本质冠军粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，谁火支持谁，差别不大。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41266#       发表于 2020-5-28 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587557&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 11:01</a>
+天狗本质冠军粉，谁火支持谁，差别不大。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我开始觉得咱俩不在一个世界线上了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 41267#       发表于 2020-5-28 11:02
+
+
+
+
+怎么变成这样的奇行种了……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 41268#       发表于 2020-5-28 11:03
+
+
+
+
+啊，今天下午小天使继续寒蝉，两点开始。
+
+挂在后台看lol好了。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41269#       发表于 2020-5-28 11:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 算了没劲，还是想想晚上怎么黑屁西西、阿笹加入木口的段子吧，
+
+
+与其浪费精气神逗猴信，
+
+
+不如顺劈aqua碳，看erer姐急了好玩，
+
+
+
+
+
+
+
+-----
+
+####  zz101896  
+##### 41270#       发表于 2020-5-28 11:04
+
+
+
+
+净土宗，你毁了多少人<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41271#       发表于 2020-5-28 11:05
+
+
+
+
+默默插播一下，狐皇apex居然同接过万了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 41272#       发表于 2020-5-28 11:05
+
+
+
+
+你们再这样22姐迟早变成巨魔(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 41273#       发表于 2020-5-28 11:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">呜，公公舌战众人，有点涩
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 41274#       发表于 2020-5-28 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587610&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-28 11:03</a>
+
+算了没劲，还是想想晚上怎么黑屁西西、阿笹加入木口的段子吧，
+
+
+与其浪费精气神逗猴信，</blockquote>
+谢谢，有被顺劈到。
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41275#       发表于 2020-5-28 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587584&amp;ptid=1924531" target="_blank">龙魂绯影 发表于 2020-5-28 11:02</a>
+我开始觉得咱俩不在一个世界线上了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天狗别来蹭正常人热度好么
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 41276#       发表于 2020-5-28 11:07
+
+
+
+
+意识到了，跟他打的前提就是先要把自己智商拉到nt的程度，也难怪这货跟天狗打时只能见到nt天狗了，打不过打不过，论nt经验没有他经验丰富<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 41277#       发表于 2020-5-28 11:07
+
+
+
+
+这楼里各粉一条心的情形，，，所以公公是小博禹的上位替代？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|确实是小博宇的感觉|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41278#       发表于 2020-5-28 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587667&amp;ptid=1924531" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-28 11:07</a>
+意识到了，跟他打的前提就是先要把自己智商拉到nt的程度，也难怪这货跟天狗打时只能见到nt天狗了，打不过打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41279#       发表于 2020-5-28 11:08
+
+
+
+
+太监和疯子还是有区别的，对症下药啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+疯子又不需要做手术装jj
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 41280#       发表于 2020-5-28 11:09
+
+
+
+
+这就是老牌老字号七色太监之一吗，新参长见识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 41281#       发表于 2020-5-28 11:09
+
+
+
+
+算了算了大家都觉得他nt就别理了吧(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41282#       发表于 2020-5-28 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587674&amp;ptid=1924531" target="_blank">1678334706 发表于 2020-5-28 11:07</a>
+这楼里各粉一条心的情形，，，所以公公是小博禹的上位替代？</blockquote>
+小博禹是一刺激他就立马变形给你看的缝合怪，这位是过了一年味也没怎么变的emmm<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41283#       发表于 2020-5-28 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587641&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-28 11:05</a>
+默默插播一下，狐皇apex居然同接过万了</blockquote>
+去年apex那阵感觉播apex同接普遍不高，也不知道为啥今年谁播谁高，这文艺复兴真的奇怪
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 41284#       发表于 2020-5-28 11:10
+
+
+
+
+说起来RE.AGE45.MKⅠ是mk2吗
+当年他俩是不是打过？
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41285#       发表于 2020-5-28 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 41286#       发表于 2020-5-28 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587732&amp;ptid=1924531" target="_blank">KKKt 发表于 2020-5-28 11:10</a>
+去年apex那阵感觉播apex同接普遍不高，也不知道为啥今年谁播谁高，这文艺复兴真的奇怪 ...</blockquote>
+可以论证欧美观众多了么？车**球那边喜欢的太多。
+还有就是疫情期间在家的很多
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 41287#       发表于 2020-5-28 11:11
+
+
+
+
+说明apex是历久弥新的好游戏，是时间沉淀后的芳香醇酒（呕）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1|日本酒限定……|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 41288#       发表于 2020-5-28 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 还行吧，这位也就是巅峰太监囚人一半水平，
+
+
+不如空派白、阿道_i十分之一，
+
+
+猴公公最多黑屁一下社外，
+
+
+上面两位爷可是社内都不放过的，
+
+
+你们感受下
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 41289#       发表于 2020-5-28 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587743&amp;ptid=1924531" target="_blank">poipanchao 发表于 2020-5-28 11:10</a>
+
+说起来RE.AGE45.MKⅠ是mk2吗
+
+当年他俩是不是打过？</blockquote>
+这位是那位age45吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像一换一，把号献祭了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41290#       发表于 2020-5-28 11:13
+
+
+
+
+说起来我在各种社交平台上都能见到名字带mk的人，这是什么流行元素啊
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 41291#       发表于 2020-5-28 11:13
+
+
+
+
+所以当年你们都在古战场战过的吗
+还挺贴的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41292#       发表于 2020-5-28 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587758&amp;ptid=1924531" target="_blank">激光2000 发表于 2020-5-28 11:11</a>
+还行吧，这位也就是巅峰太监囚人一半水平，
+
+
+不如空派白、阿道_i十分之一，</blockquote>
+草，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，你是在说自己么？
+顺便本王侯只黑屁天狗，毕竟NT群体。不怕人NT，只怕NT抱团。一群NT聚在了一起，就不觉得自己很NT，还会对路人指指点点，总觉得路人不NT就是NT的表现。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JY要塞|-1|你又是王侯了|
+| colodes| + 1|这段可以写成rap歌词|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 41293#       发表于 2020-5-28 11:15
+
+
+
+
+本菜阴阳实力有点逊厚.......
+
+我和天狗顶多算次要矛盾，比他这个主要矛盾的阴阳指数都高多了
+
+看来nga确实不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 41294#       发表于 2020-5-28 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586751&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-28 09:56</a>
+
+芙宝对龙皇怨念好深啊，是因为前几个月被miko的深夜ark伤到了吗</blockquote>
+哈？
+
+我是客观的陈述而已啊
+
+holo的ark确实结束了啊 你看上位势几个人还有谁在玩的
+
+miko自己也不播ark了 连boss战准备都不做了播其他游戏去了
+
+之前miko畜很爽啊我每场直播都看了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41295#       发表于 2020-5-28 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587806&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 11:14</a>
+草，，你是在说自己么？
+顺便本王侯只黑屁天狗，毕竟NT群体。不怕人NT，只怕NT抱团。一群NT聚在了 ...</blockquote>
+先不算你一直想努力复读的天狗nt，你这话对自己应该更受用吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41296#       发表于 2020-5-28 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587792&amp;ptid=1924531" target="_blank">crito 发表于 2020-5-28 11:13</a>
+说起来我在各种社交平台上都能见到名字带mk的人，这是什么流行元素啊</blockquote>
+型号的后缀，mk2就理解为2型，像高达就喜欢这么编号，还有就是钢铁侠的战甲
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 41297#       发表于 2020-5-28 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587833&amp;ptid=1924531" target="_blank">泡芙好吃 发表于 2020-5-28 11:15</a>
+哈？
+
+我是客观的陈述而已啊
+
+holo的ark确实结束了啊 你看上位势几个人还有谁在玩的</blockquote>
+我不信我不信！一定是我推和35鼓捣出集体妊娠伤害了独角兽王芙宝的心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+梁木，就这么结下了！<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 41298#       发表于 2020-5-28 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587847&amp;ptid=1924531" target="_blank">龙魂绯影 发表于 2020-5-28 11:16</a>
+先不算你一直想努力复读的天狗nt，你这话对自己应该更受用吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 41299#       发表于 2020-5-28 11:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587849&amp;ptid=1924531" target="_blank">bluebaby 发表于 2020-5-28 11:16</a>
+型号的后缀，mk2就理解为2型，像高达就喜欢这么编号，还有就是钢铁侠的战甲 ...</blockquote>
+还有“我是马格机型机器人.......开个玩笑”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41300#       发表于 2020-5-28 11:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">s1的屏蔽词也越来越多了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 41301#       发表于 2020-5-28 11:47
+
+
+
+
+刚才这破论坛维护了啥？敏感词系统更新？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 41302#       发表于 2020-5-28 11:47
+
+
+
+
+woc，狗叔3G，真的快<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41303#       发表于 2020-5-28 11:48
+
+
+
+
+突然高 潮说不nt还行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+虽然我没逛过太监楼，不过都是这样的吗，前两天看人发了阿道酸木口，今天猴子喷天狗。一直听2000耳闻，不过战斗力这么强的啊，长见识了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 41304#       发表于 2020-5-28 11:48
+
+
+
+
+刚好卡在狐皇庆贺时刻维护太anti了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 41305#       发表于 2020-5-28 11:49
+
+
+
+
+白少主玩着舟游打着gun就60w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还说了下个月就整bili的纪念直播，现在在准备
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 41306#       发表于 2020-5-28 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587792&amp;ptid=1924531" target="_blank">crito 发表于 2020-5-28 11:13</a>
+说起来我在各种社交平台上都能见到名字带mk的人，这是什么流行元素啊</blockquote>
+车也有mk2
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 41307#       发表于 2020-5-28 11:49
+
+
+
+
+少主60w突破直播中有多少SC
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 41308#       发表于 2020-5-28 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587872&amp;ptid=1924531" target="_blank">本蔡帅哥 发表于 2020-5-28 11:17</a>
+首先我不NT，顺便说的好像王侯很多一样。</blockquote>
+我也没指王侯单指你啊，倒不如说为啥你时候都要把找个群体跟自己绑一块，喷的时候就喷天狗，反过来要带上王侯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可你没意识到说的一直都是你吗
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 41309#       发表于 2020-5-28 11:52
+
+
+
+
+mk2大量增殖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 41310#       发表于 2020-5-28 11:53
+
+
+
+
+mk2那个小号好像也被塞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                       

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 10:11** 
+> ## **本文件最后更新于2020-05-28 12:11** 
 
 
 
@@ -1622,6 +1622,25 @@ cause he may also be son of bitch.
 
 我记得国内不少人说过美国警察没有保护公民生命财产安全的义务，那偶尔弄死一两个黑人确实不是啥问题
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Hetarre| + 1|好狠|
+
+
+
+查看全部评分
 
 
 
@@ -5610,11 +5629,11 @@ FLASHLIGHT
 
 
 
- 本帖最后由 ###### 于 2020-5-28 10:06 编辑 
+ 本帖最后由 ###### 于 2020-5-28 10:11 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586755&amp;ptid=1937970" target="_blank">Archlich³ 发表于 2020-5-28 09:56</a>
 
 对Malcolm X这一票人而言，找上伊斯兰的是因为需要一个作为“白人的宗教”的基督教的对立面的“黑人的宗 ...</blockquote>
-Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。黑豹党有革命纲领，然而明白点的领导要么流亡要么蹲监狱要么被突突，黑人整体文化低容易受荧惑，后期CIA和FBI拼命收买狗腿还往黑人运动里掺沙子。等这阵风浪过去以后，美国改弦更张玩口上政治正确实行对黑人养猪，还把黑人不文明行为鼓吹成黑人文化，就发展成现在这样。宗教这东西黑人哪有白皮玩的溜，黑人运动转向宗教找解决方案就是自寻死路
+Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。黑豹党有革命纲领，然而明白点的领导要么流亡要么蹲监狱要么被突突，黑人整体文化低容易受荧惑，后期CIA和FBI拼命收买狗腿还往黑人运动里掺沙子。等这阵风浪过去以后，美国改弦更张玩口上政治正确实行对黑人养猪，还把黑人不文明行为鼓吹成黑人文化，就发展成现在这样。宗教这东西黑人哪有白皮玩的溜，黑人运动转向宗教找解决方案就是自寻死路。美国宣传马丁路德金和马尔科姆X其实就是一种带歪，你看黑豹党都被黑出翔。黑豹党的领袖和主要成员以行动纲领有几个黑人知道？
 
 
 
@@ -5656,4 +5675,602 @@ Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。�
 
 
 
-                                        
+
+
+-----
+
+####  筱原重工  
+##### 290#       发表于 2020-5-28 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586852&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 10:04</a>
+
+Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。黑豹党有革命纲领，然而明白点的领导要么流亡要 ...</blockquote>
+给美国黑人找民族认同太不容易了，有个伊斯兰也只能凑活着用，还没多少人响应。法农要撕白面具，马尔科姆X不仅要撕白面具，还得撕掉那些底层不文明行为的黑面具，然后就被突突21**
+
+
+
+
+
+
+
+-----
+
+####  sfv  
+##### 291#       发表于 2020-5-28 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
+
+无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
+一头牛系列而已
+
+
+反正被压的又不是他们
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 292#       发表于 2020-5-28 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586767&amp;ptid=1937970" target="_blank">古留 发表于 2020-5-28 09:57</a>
+
+“我又不是黑人，这种事情轮不到我头上”
+
+“国内各种阉割审查，话都不能讲，日子过得有啥意思？”
+
+“这里 ...</blockquote>
+我再来列一条：这事放国内zf会让你看到?
+
+
+
+
+
+
+
+-----
+
+####  烽火连城  
+##### 293#       发表于 2020-5-28 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579482&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-27 17:40</a>
+上次抖音看到一个视频
+
+
+一个群众落水  警察把铳给周围群众看管 然后下水救人了</blockquote>
+军民鱼水情，警民一家亲，白皮的确很难理解
+
+不过这个行为还是不妥，还是要带着**好<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 294#       发表于 2020-5-28 10:21
+
+
+
+
+国家首脑随便放屁，警察随便杀平民，平民随便反政府，这是我对美国强大的一种表达。
+
+
+
+
+
+
+
+-----
+
+####  烽火连城  
+##### 295#       发表于 2020-5-28 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579651&amp;ptid=1937970" target="_blank">亚雷斯 发表于 2020-5-27 17:54</a>
+有前因么？黑人为啥遭到这种对待？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+表象：黑人精英离场飞升，社区堕落无序
+助攻：最高法判定警察无义务保护公民，警民军备竞赛矛盾螺旋
+内因：一切为资本服务
+
+
+
+
+
+
+
+-----
+
+####  hutuguug  
+##### 296#       发表于 2020-5-28 10:23
+
+
+
+
+黑人怎么学不会抱团，要用思想来武装自己啊。
+
+这种情况，一拥而上，来个几千人的暴动，美国岂不美滋滋。
+
+
+
+
+
+
+
+-----
+
+####  烽火连城  
+##### 297#       发表于 2020-5-28 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579817&amp;ptid=1937970" target="_blank">yanghuangu 发表于 2020-5-27 18:07</a>
+拜登的皮不够黑啊</blockquote>
+拜登想翻盘只能说他和奥黑有基情了
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 298#       发表于 2020-5-28 10:27
+
+
+
+ 本帖最后由 AlienFromEarth 于 2020-5-28 10:28 编辑 
+
+当时所谓平权实际上是带着对黑人组织社区的解构去的，所以黑人精英升级和白人精英一起，黑人普通人被放着不管，然后对这些受教育程度低的社区引入d，就这样黑人社区被成功的肢解了，黑人组织只有纯黑帮了。
+
+
+
+
+
+
+
+-----
+
+####  RainbowSealife  
+##### 299#       发表于 2020-5-28 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584319&amp;ptid=1937970" target="_blank">烦死了 发表于 2020-5-28 00:16</a>
+
+Fargo Season 4</blockquote>
+然而冰血暴第四季不在明尼苏达了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> <blockquote>The head of an African American crime syndicate goes to war with the Italian mafia in Kansas City, Missouri during the 1950s</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  Archlich³  
+##### 300#       发表于 2020-5-28 10:30
+
+
+
+ 本帖最后由 Archlich³ 于 2020-5-28 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586934&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 10:12</a>
+
+给美国黑人找民族认同太不容易了，有个伊斯兰也只能凑活着用，还没多少人响应。法农要撕白面具，马尔科姆 ...</blockquote>
+
+是这样的，首先“美国黑人”就复杂得很，直接在南方起家的，几百年间加勒比陆续过来的（说法语和西班牙语的，Malcolm X父辈就是格拉纳达来的），晚近非洲来的新移民（比如奥巴马他爸，然而肯尼亚人和尼日利亚人又是两码事），都尿不到一壶去。类比华裔就是一百年前潮汕猪仔后代、越南船民、东南亚各国独立后的娘娘答惹、神奇的加勒比华人（黄飞龙有人听过吗）、84年后的香港人、90年代过去的大陆人、10年代过去的大陆人……
+
+
+除了肤色外几乎没啥相同地方，撑死有点亲切感。要统一认同，就只能用古老的手段强行制造了。
+
+
+
+
+
+
+
+-----
+
+####  烽火连城  
+##### 301#       发表于 2020-5-28 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583728&amp;ptid=1937970" target="_blank">真田丸 发表于 2020-5-27 23:20</a>
+一股子是屎也只能吃了的感觉。</blockquote>
+虽然这是一坨屎
+但那坨屎里有毒
+
+
+
+
+
+
+
+-----
+
+####  Hetarre  
+##### 302#       发表于 2020-5-28 10:36
+
+
+
+ 本帖最后由 Hetarre 于 2020-5-28 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
+
+无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
+自信啊。。。这个很好理解的
+
+美国是全世界最好的国家
+
+你就把这个当成思想钢印就好了
+
+唯一需要讨论的是打了这个思想钢印的中国人多还是美国人多
+
+美国顶多也就三亿人有，中国说不定更多呢
+
+往上翻了翻
+
+说的是日本人啊，那可以更加确信.....
+
+日本人关于美国世界第一的思想钢印那是相当的牢固。。。。比美国人对自己又信仰多了
+
+
+
+
+
+
+
+-----
+
+####  skylard  
+##### 303#       发表于 2020-5-28 10:41
+
+
+
+
+黑人上街，感染新冠，黑人扑街！
+
+美利坚：种族灭绝没有的事，那是新冠病毒干得。
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 304#       发表于 2020-5-28 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586282&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:15</a>
+
+对 是民主国家的兵工厂 不是民主主义兵工厂。民主国家是英国么？是德国么？还是USSR? 当然罗斯福生前死后 ...</blockquote>
+哪来那么多自由发挥
+
+
+原话就是arsenal of democracy，democracy本来就有很多词义，你非要强行说是一个不是另一个不是搞笑
+
+
+
+
+
+
+
+-----
+
+####  大哀之君  
+##### 305#       发表于 2020-5-28 10:52
+
+
+
+
+开始扔火球了
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 306#       发表于 2020-5-28 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587161&amp;ptid=1937970" target="_blank">Archlich³ 发表于 2020-5-28 10:30</a>
+
+是这样的，首先“美国黑人”就复杂得很，直接在南方起家的，几百年间加勒比陆续过来的（说法语和西班牙语 ...</blockquote>
+是这样的，所以法农马尔科姆这帮人要重塑民族认同。法农简单点，非洲黑人好歹有个家，撕了白面具就算成功一半了；马尔科姆就麻烦了，美国黑人不仅有白人强加给他们的白面具，还有自己麻痹自己用的各色黑面具。两个人都希望借助暴力革命来重塑黑非洲和美国黑人，就像法革和长征一样。两个人也都早死，法农患病，马尔科姆直接就被突突了，黑人里出下一个法农马尔科姆不知道得等到什么时候
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 307#       发表于 2020-5-28 10:55
+
+
+
+
+争个啥劲，本来自由主义对民主（粹）有警惕，共和也称不上有多民主，后面一来罗斯福确实改了不少，二来但凡是个好听的词就都姓美这你们难道不懂么
+
+
+
+
+
+
+
+-----
+
+####  高达X魔王  
+##### 308#       发表于 2020-5-28 10:56
+
+
+
+
+缺德一下<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/28/105525hchjc22p82ie2zub.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200528_105425.png</strong> (311.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 10:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yario  
+##### 309#       发表于 2020-5-28 10:56
+
+
+
+
+星星之火可以燎原
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 310#       发表于 2020-5-28 11:05
+
+
+
+ 本帖最后由 ###### 于 2020-5-28 11:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587400&amp;ptid=1937970" target="_blank">εRemastered 发表于 2020-5-28 10:51</a>
+
+哪来那么多自由发挥
+
+
+原话就是arsenal of democracy，democracy本来就有很多词义，你非要强行说是一个不 ...</blockquote>
+换成别的词意？你换一下呗？是不是人家翻译都是瞎翻译没你牛批？
+
+
+
+
+
+
+
+-----
+
+####  orcher1945  
+##### 311#       发表于 2020-5-28 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47581112&amp;ptid=1937970" target="_blank">nianiania 发表于 2020-5-27 20:00</a>
+
+我不理解为啥我国不拿这些事做文章恶心下对面，要是我以后再有记者咕噜人权问题我就当面放这些视频
+
+
+——  ...</blockquote>
+你指望咱们那帮混吃等死的宣传部赵老爷能懂这个？人家天天指望孔子学院当宣传大旗呢。
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 312#       发表于 2020-5-28 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587439&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 10:54</a>
+
+是这样的，所以法农马尔科姆这帮人要重塑民族认同。法农简单点，非洲黑人好歹有个家，撕了白面具就算成功 ...</blockquote>
+马尔科姆最后被黑神棍枪杀，本就代表他那条路走不通。平权运动黑人解放运动真正的主力是黑豹党，共字写脖子上脑袋別裤腰带上才让美国佬真怕了，拼死镇压下去。
+
+
+
+
+
+
+
+-----
+
+####  xuanxiao  
+##### 313#       发表于 2020-5-28 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583888&amp;ptid=1937970" target="_blank">张绣 发表于 2020-5-27 23:33</a>
+去雅虎日本看了下这新闻的评论，偶尔有扯到中国的，一致认为“就算这样也比中国好” ...</blockquote>
+现在看到这样的内容，不仅不会生气，反而忍不住呵呵笑了！
+
+
+
+
+
+
+
+-----
+
+####  PrinzEugen  
+##### 314#       发表于 2020-5-28 11:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  orcher1945  
+##### 315#       发表于 2020-5-28 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587857&amp;ptid=1937970" target="_blank">xuanxiao 发表于 2020-5-28 11:17</a>
+
+现在看到这样的内容，不仅不会生气，反而忍不住呵呵笑了！</blockquote>
+反正枪和膝盖又没有压到他们脑门和脖子上<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  葛雷新  
+##### 316#       发表于 2020-5-28 11:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">期待魔法部那这个喷过去
+
+
+
+
+
+
+
+-----
+
+####  雷德幻像  
+##### 317#       发表于 2020-5-28 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587933&amp;ptid=1937970" target="_blank">orcher1945 发表于 2020-05-28 11:49:22</a>
+反正枪和膝盖又没有压到他们脑门和脖子上</blockquote>强奸几个Jk，抢劫几百万日元，飞机零件掉到幼儿园都没问题，何况才压一下脖子。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雷德幻像  
+##### 318#       发表于 2020-5-28 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586941&amp;ptid=1937970" target="_blank">nerugigannte 发表于 2020-05-28 10:12:49</a>
+我再来列一条：这事放国内zf会让你看到?</blockquote>以前城管的新闻不起很多吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 319#       发表于 2020-5-28 12:05
+
+
+
+
+好了
+
+
+
+
+
+
+
+-----
+
+####  恒温死神  
+##### 320#       发表于 2020-5-28 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587064&amp;ptid=1937970" target="_blank">hutuguug 发表于 2020-5-28 10:23</a>
+黑人怎么学不会抱团，要用思想来武装自己啊。
+
+这种情况，一拥而上，来个几千人的暴动，美国岂不美滋滋。 ...</blockquote>
+我觉得美国黑叔叔报团比我们强多了好吧
+
+——
+
+
+
+
+
+                                       
