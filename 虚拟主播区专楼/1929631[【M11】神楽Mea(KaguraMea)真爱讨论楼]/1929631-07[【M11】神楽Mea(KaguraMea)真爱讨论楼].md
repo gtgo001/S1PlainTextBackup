@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-27 20:05** 
+> ## **本文件最后更新于2020-05-28 00:06** 
 
 
 
@@ -2459,4 +2459,774 @@ Vtuberあるある(主に神楽めあの場合)
 
 
 
-                                             
+
+
+-----
+
+####  掉头学姐  
+##### 9143#       发表于 2020-5-27 20:07
+
+
+
+
+忘了她尿频吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9144#       发表于 2020-5-27 20:12
+
+
+
+
+其实麻酱每天在跑步机上跑5公里
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9145#       发表于 2020-5-27 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">那膀胱好弱啊。。。。。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9146#       发表于 2020-5-27 20:14
+
+
+
+
+日本各种垃圾不是有专门的回收日的吗，一个星期倒一次垃圾怎么做到的？？
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9147#       发表于 2020-5-27 20:20
+
+
+
+
+直播出门扔垃圾都多少次了，就当是rp吧（
+
+
+不过喝水这个其实也没什么大问题，疫情期间我窝在家里照样一天2-3L水，当然也许这跟我没事就撸铁有关（
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 9148#       发表于 2020-5-27 20:41
+
+
+
+
+每天两升没啥问题吧，咩姐有时候会练歌，多喝点水润喉咙
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9149#       发表于 2020-5-27 20:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一定是因为体重大所以喝水多，坦克民又胜利了
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 9150#       发表于 2020-5-27 20:49
+
+
+
+<blockquote>暗心舞踏 发表于 2020-5-27 19:10
+把无糖茶饮料当水喝问题不大</blockquote>
+会有肾结石<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 9151#       发表于 2020-5-27 20:49
+
+
+
+
+一个星期挑一天丢一种垃圾不就好了 又没说一个星期固定一天丢垃圾
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9152#       发表于 2020-5-27 20:52
+
+
+
+
+个个都声称自己是坦克民，到时候迫真坦克了怕不是都要脱粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9153#       发表于 2020-5-27 20:52
+
+
+
+
+去霓虹捡垃圾可以特到小麻吗？不过想想好像还不如送外卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9154#       发表于 2020-5-27 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">说实话小麻是狐皇那个体型我能接受
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9155#       发表于 2020-5-27 21:00
+
+
+
+
+那小粥那种呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9156#       发表于 2020-5-27 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47581868&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-27 21:00</a>
+那小粥那种呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">原来那么瘦，再胖也没胖的那么快吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9157#       发表于 2020-5-27 21:05
+
+
+
+
+几年了啊老哥(ಡωಡ) ，粉色坦克.jpg（我记得nga有图来着，非纯表）
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9158#       发表于 2020-5-27 21:09
+
+
+
+
+希望是不含糖饮料....含糖饮料当水喝好像会出健康问题...
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9159#       发表于 2020-5-27 21:14
+
+
+
+
+含糖？依据她的牙齿情况估计已经完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9160#       发表于 2020-5-27 21:18
+
+
+
+
+这就是零零后的肉体吗？年轻真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9161#       发表于 2020-5-27 21:30
+
+
+
+
+今天也是在藏肉猪吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 9162#       发表于 2020-5-27 21:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一天一瓶2L装可乐
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9163#       发表于 2020-5-27 21:49
+
+
+
+
+不用好像了
+
+
+糖尿病基本跑不掉
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9164#       发表于 2020-5-27 21:54
+
+
+
+
+糖尿病就胖不起来了。。。。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9165#       发表于 2020-5-27 21:58
+
+
+
+
+刚想说宁要坦克不要生病，想起来肥胖本身就会带来各种各样的并发症(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9166#       发表于 2020-5-27 22:01
+
+
+
+
+那天说的b限是全吹了吧，30号之前还会有播吗，感觉她还是在调整状态和准备肉猪？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9167#       发表于 2020-5-27 22:03
+
+
+
+
+还有29一次机会，要相信她<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9168#       发表于 2020-5-27 22:05
+
+
+
+
+爱丽丝都开始学中文月兔回旋了.........
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 9169#       发表于 2020-5-27 22:09
+
+
+
+ 本帖最后由 小麻和狗狗 于 2020-5-27 22:17 编辑 
+
+按咩两三年前的情况，不应该是担心太瘦对身体不好吗
+
+特别是这两年，咩咩一个未成年小菇凉一人在外漂泊孤苦伶仃，肯定都瘦成排骨了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">心疼
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 9170#       发表于 2020-5-27 22:11
+
+
+
+
+麻是骨架大的那种<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9171#       发表于 2020-5-27 22:15
+
+
+
+
+不会真成熊猫了吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9172#       发表于 2020-5-27 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">中文版月兔回旋谁填的词
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9173#       发表于 2020-5-27 22:35
+
+
+
+
+不要熊猫不要熊猫呜呜呜非坦克民哭了(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9174#       发表于 2020-5-27 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+还好有六月一号的肉猪
+等一个六月一号B限草莓果酱3D直播，这两天没直播都是在调试机体，这俩天说的b限是因为掩饰不住自己兴奋紧张的心情，想提前告诉我们；但最后内绪了。
+做一个这样的梦，万一实现了呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 9175#       发表于 2020-5-27 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583164&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-27 22:35</a>
+不要熊猫不要熊猫呜呜呜非坦克民哭了(ಥ_ಥ)</blockquote>
+熊猫也可以很苗条的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+已经在外野听老哥介绍过，熊猫交配时会咩咩叫<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9176#       发表于 2020-5-27 22:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是吗，那确实有点涩呢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9177#       发表于 2020-5-27 22:52
+
+
+
+
+草我兴奋了你还我的xp<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小麻和狗狗  
+##### 9178#       发表于 2020-5-27 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583370&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-27 22:52</a>
+草我兴奋了你还我的xp</blockquote>
+我号被你们弄进去了，不然还可以去翻翻视频<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 9179#       发表于 2020-5-27 23:20
+
+
+
+
+啊 真希望明天一睁眼就是6月1号
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9180#       发表于 2020-5-27 23:23
+
+
+
+
+我看隔壁倒是说30号会播来着
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9181#       发表于 2020-5-27 23:25
+
+
+
+
+你说的这个隔壁，它可靠吗？(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9182#       发表于 2020-5-27 23:28
+
+
+
+
+碧蓝工商最后说是252729<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+佛佛佛佛佛佛佛佛
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9183#       发表于 2020-5-27 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像是今天的tc说的
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 9184#       发表于 2020-5-27 23:32
+
+
+
+
+呜呜呜，我不信，除非30号播<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9185#       发表于 2020-5-27 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她那tc凌晨5点突击播，谁知道怎么想的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9186#       发表于 2020-5-27 23:37
+
+
+
+
+那个某个手游的鲜虾鱼板面有进展了吗
+别告诉我发表会是…<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 9187#       发表于 2020-5-27 23:40
+
+
+
+
+发表会是新一期手游试玩工商，联动角色漩涡鸣人
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9188#       发表于 2020-5-27 23:43
+
+
+
+
+（好吧是理解错了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9189#       发表于 2020-5-27 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">鱼板，不就是漩涡鸣人吗，怎么还以为是你麻的
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好怪哦
+
+
+
+
+
+                                           
