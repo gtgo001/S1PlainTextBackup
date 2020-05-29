@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 22:16** 
+> ## **本文件最后更新于2020-05-30 00:07** 
 
 
 
@@ -1454,10 +1454,11 @@ wait，给星姐狐狸叩头是咋样，恭喜486开启氪井之路？
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|我去这谁啊？！|
 | Ascending| + 1|好评加鹅|
 
 
@@ -1796,8 +1797,9 @@ HH的这个生放用的3D已经可以当live用了，大概在工作室就能直
 
 
 
+ 本帖最后由 北山玖公 于 2020-5-29 22:41 编辑 
 
-HH生放送的ED与平常不一样，按照以前的情况，大概这是2专的曲的demo了。
+HH生放送的ED与平常不一样，换成2专的其中一曲的demo了。
 
 
 
@@ -1982,4 +1984,650 @@ HH生放送的ED与平常不一样，按照以前的情况，大概这是2专的
 
 
 
-                                              
+
+
+-----
+
+####  渡鸦骑士  
+##### 1600#       发表于 2020-5-29 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607816&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-5-29 22:14</a>
+
+爱丽丝b限这形式第一次见，国内也顶多就是加个手柄键盘按键，没有这么pro的家用3D
+
+爱丽丝直播间 ...</blockquote>
+据我所知，爱丽丝用这套有好几个月了，只是不常用，这次用到音游上还蛮有创意的
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1601#       发表于 2020-5-29 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607837&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-29 22:15</a>
+
+在？为什么背对观众直播？</blockquote>
+右上角有可爱的正脸
+
+
+
+
+
+
+
+-----
+
+####  Ascending  
+##### 1602#       发表于 2020-5-29 22:20
+
+
+
+
+一股网吧的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1603#       发表于 2020-5-29 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607275&amp;ptid=1938145" target="_blank">SiolC 发表于 2020-5-29 21:21</a>
+
+不管skyi是不是阿裁所说的脱退希望者，至少现在尘埃落定，两人应该暂时都不会跑了
+
+
+既然接近点名的 ...</blockquote>
+裁狗罪该万死<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 1604#       发表于 2020-5-29 22:21
+
+
+
+
+彩虹家用3d一直都能做到这种啊，只是建模菜的太多了，不菜的那些拿出来用的次数也不少的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1605#       发表于 2020-5-29 22:21
+
+
+
+
+这周能去录音室录ag放送的话，星床合唱可以有吗？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1606#       发表于 2020-5-29 22:21
+
+
+
+
+今天贴爆了，我舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1607#       发表于 2020-5-29 22:21
+
+
+
+
+小肥妹想拉大胃王企划。<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1608#       发表于 2020-5-29 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607903&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-5-29 22:21</a>
+
+这周能去录音室录ag放送的话，星床合唱可以有吗？</blockquote>
+我记得大前天就录完了吧，应该还是远程的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1609#       发表于 2020-5-29 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607903&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-5-29 22:21</a>
+
+这周能去录音室录ag放送的话，星床合唱可以有吗？</blockquote>
+来不及了吧
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1610#       发表于 2020-5-29 22:27
+
+
+
+
+星床已经来不及了，下周的星剪刀还有可能
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 1611#       发表于 2020-5-29 22:30
+
+
+
+
+不是看到上面有人说，我还没发现右上角有正脸……
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1612#       发表于 2020-5-29 22:33
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-5-29 22:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607595&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-5-29 21:52</a>
+
+有熟mc的吗，能说一下VR服的这个虚无世界3怎么样</blockquote>
+怎么讲呢……原本mc在阿b和斗鱼都有一堆主玩modmc的主播的，现在就剩几个了，混的最好的是api，而且也不单单靠mc。而在404mc直播也大多只是杂谈的辅助材料。主播mc死路一条。
+
+至于虚无世界3，好玩吗？好玩，但是和ark比起来也没太多区别，ark的末路你们都看到了。
+
+虚无世界3这十几个世界每个boss打过去，也没暮色那些boss设计的好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 说到底，mc更适合做视频
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1613#       发表于 2020-5-29 22:36
+
+
+
+
+停了整整两个月，工作室收录应该没办法马上恢复
+
+看了一眼文化放送官网 还没提到恢复工作室收录的事情 基本还是远程收录
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 1614#       发表于 2020-5-29 22:41
+
+
+
+
+我记得ppm来B限的那个3D也挺厉害的，不过应该是在公司里的设备
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 1615#       发表于 2020-5-29 22:43
+
+
+
+
+贴贴杂谈是好文明！
+
+星姐这居然想让小天使唱火炎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+每次一杂谈小天使的品味就要被车然后观众开始刷抹布已经例行节目了悲··已经成了固有萌点了···
+
+
+上次广播有说之后还会有星床联动的··老亲友了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1616#       发表于 2020-5-29 23:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607729&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-29 22:03</a>
+
+刚出道？
+
+那个人前世就是FF废人
+
+一出道就被人挖出来FF账号是前世号改名字直接用的…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我管他前世是男是女是les哦，当V和玩FF14哪个是工作都没搞清楚，杏星卡池整体也就是这种水平，塞进一个律可才是反常。
+
+
+
+
+
+
+
+-----
+
+####  暗口崩子  
+##### 1617#       发表于 2020-5-29 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608155&amp;ptid=1938145" target="_blank">57042711 发表于 2020-5-29 22:43</a>
+
+贴贴杂谈是好文明！
+
+星姐这居然想让小天使唱火炎
+
+每次一杂谈小天使的品味就要被车然后观众开始刷抹 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可是小天使的品味确实没救了啊
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 1618#       发表于 2020-5-29 23:07
+
+
+
+
+怎么B限还撞车的……<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 1619#       发表于 2020-5-29 23:10
+
+
+
+
+小福怎么把家给烧了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1620#       发表于 2020-5-29 23:22
+
+
+
+
+唉，好久不看了大亏还是这么可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+就是你怎么又老看meaqua贴贴视频，拆你死这么好骗吗
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 1621#       发表于 2020-5-29 23:22
+
+
+
+ 本帖最后由 aele 于 2020-5-29 23:30 编辑 
+
+aki家也有猫？
+
+有照片么
+
+
+aki这麦真的有点.....
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 1622#       发表于 2020-5-29 23:23
+
+
+
+
+无情数字厨的铁血圣皇
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 1623#       发表于 2020-5-29 23:24
+
+
+
+
+爱丽丝这大宽屏...
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1624#       发表于 2020-5-29 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608567&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-29 23:22</a>
+
+唉，好久不看了大亏还是这么可爱
+
+就是你怎么又老看meaqua贴贴视频，拆你死这么好骗吗 ...</blockquote>
+不会有不是贴贴民的crew吧。
+
+
+不会吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1625#       发表于 2020-5-29 23:34
+
+
+
+
+七...七色？
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_F14uk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1626#       发表于 2020-5-29 23:35
+
+
+
+
+草，大亏说了我才知道投了首bili限定的歌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就是这选曲也太弱智了，简直白瞎了这pv<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你唱个学猫叫都比这强
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1627#       发表于 2020-5-29 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608731&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-29 23:34</a>
+
+七...七色？</blockquote>
+这本子的封面才更吸引我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 1628#       发表于 2020-5-29 23:39
+
+
+
+
+meaqua贴贴捏~
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 1629#       发表于 2020-5-29 23:39
+
+
+
+
+其实看视频要是能恰当的点评不地藏化还是不错的··之前看了个OTO的切片快笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1hT4y1g79E](https://www.bilibili.com/video/BV1hT4y1g79E)   果然还是姨最强了···
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 1630#       发表于 2020-5-29 23:42
+
+
+
+
+急需日南x天狼星<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1631#       发表于 2020-5-29 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站看视频，最尴尬的就是海苔男那次
+
+找了半天，自己全是客串的，xswl<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1632#       发表于 2020-5-29 23:46
+
+
+
+
+别吧学猫叫还是更nt一点(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1633#       发表于 2020-5-30 00:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，喂刀子合集
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1634#       发表于 2020-5-30 00:05
+
+
+
+
+b站转播解禁了
+
+
+
+
+
+
+
+-----
+
+####  Ascending  
+##### 1635#       发表于 2020-5-30 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608570&amp;ptid=1938145" target="_blank">aele 发表于 2020-5-29 23:22</a>
+
+aki家也有猫？
+
+有照片么</blockquote>
+如果没记错的话，似乎叫苹果和tora。照片不知道有没有，只是听她这么喊过。
+
+
+
+
+
+                                             
