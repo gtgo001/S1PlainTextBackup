@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 00:07** 
+> ## **本文件最后更新于2020-05-30 02:08** 
 
 
 
@@ -8634,10 +8634,11 @@ DC的路名中国改不了，可以把北京朝阳区安家楼路改下名字
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 万花谷杂役| + 1|好评加鹅|
 | 失业十年| + 1|涨知识|
 | 不垃圾屌丝| + 1|涨知识了|
 
@@ -10177,10 +10178,12 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育
 
 
 
- 参与人数 6战斗力 -7
+ 参与人数 8战斗力 -9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fygh33|-1|欢乐多|
+| 桥本有菜|-1||
 | 烂柯人|-1||
 | yayoi801|-1||
 | 柴烧咖啡|-2||
@@ -16081,6 +16084,25 @@ CNN现场采访的记者Omar Jimenez和他的摄影团队在直播镜头前被�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 骊歌三叠| + 1|这也太荒诞了|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -16334,6 +16356,25 @@ CNN现场采访的记者Omar Jimenez和他的摄影团 ...</blockquote>
 美国：emm....，倒是没尝过，话说这样会不会太变态了啊
 转自知乎
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| newlyvisual| + 1|好活|
+
+
+
+查看全部评分
 
 
 
@@ -18250,46 +18291,7 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 ####  Aisuti  
 ##### 902#       发表于 2020-5-29 23:00
 
-
-
- 本帖最后由 Aisuti 于 2020-5-30 00:07 编辑 
-
-·
-
-
-
-
-
-
-QQ图片20200529225807.jpg
-(307.95 KB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-5-29 22:59 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202005/29/225933lokqwxiwjnqo3cwq.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
+本帖为密码帖 ，请输入密码<strong>提交</strong>
 
 
 
@@ -18475,10 +18477,12 @@ QQ图片20200529225807.jpg
 
 
 
- 参与人数 17战斗力 +6
+ 参与人数 19战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 骊歌三叠|-1|这就是删除了同理心的new type吗，i了i了.|
+| czs13| + 2|思路广|
 | 高欢| + 1|好评加鹅|
 | nianiania| + 1|好评加鹅|
 | 永恒的王牌| + 1|好玩|
@@ -18793,4 +18797,368 @@ YKW今晚到底抽哪门子风
 
 
 
-                   
+
+
+-----
+
+####  luowei_nowe  
+##### 925#       发表于 2020-5-30 00:07
+
+
+
+<blockquote>HGCG 发表于 2020-5-29 23:08
+https://www.weibo.com/tv/v/J4cPlz2cm?fid=1034:4510026086154275</blockquote>
+黑人抬官
+
+
+
+
+
+
+
+-----
+
+####  hutuguug  
+##### 926#       发表于 2020-5-30 00:08
+
+
+
+ 本帖最后由 hutuguug 于 2020-5-30 00:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608564&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-29 23:22</a>
+
+话说美帝警察杀人是不是极少被判刑？</blockquote>
+看到网易新闻里说，这个杀人的chauvin有过十二次过度暴力，导致四人死亡，没有受到处分，08年一个黑人被他枪击，没死，今天那个黑人还接受了采访。。
+
+
+
+
+
+
+
+-----
+
+####  yario  
+##### 927#       发表于 2020-5-30 00:13
+
+
+
+
+有幸见证史上最菜美国总统崩溃吗？这次没有罗斯福了吧
+
+
+
+
+
+
+
+-----
+
+####  ごろ  
+##### 928#       发表于 2020-5-30 00:14
+
+
+
+
+本贴为密码贴
+
+
+
+
+
+
+
+-----
+
+####  烟囱烟囱  
+##### 929#       发表于 2020-5-30 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607249&amp;ptid=1937970" target="_blank">sdefrfg 发表于 2020-5-29 21:19</a>
+
+virgin HK police 人群里记者比**者多
+
+chad Minnesota police 当着镜头面逮捕记者</blockquote>
+字的话没填，你们自己丢进PS里填字吧
+
+
+
+
+
+
+816f40ad9de5ee36937004b6fbe1891.jpg
+(331.78 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-5-30 00:17 上传
+
+
+
+
+
+
+
+
+VVSC
+
+<img src="https://img.saraba1st.com/forum/202005/30/001722wkkevtpwsww76kww.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sdefrfg| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  不是摸鱼是捕鲸  
+##### 930#       发表于 2020-5-30 00:32
+
+
+
+
+你美民粹领导人真的不行，要是台上是休伊朗，估计早就解决了
+
+
+
+
+
+
+
+-----
+
+####  yzyz121  
+##### 931#       发表于 2020-5-30 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579577&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-27 17:48</a>
+
+看对话应该是之前拒上警车，这视频的感觉有点当年罗德尼·金那意思了，不知道最后是什么规模 ...</blockquote>
+这人被三四个警察压着怎么上车啊，最离谱的是人都昏迷了还让上车。
+
+
+
+
+
+
+
+-----
+
+####  tsounaiq  
+##### 932#       发表于 2020-5-30 00:35
+
+
+
+
+Minneapolis and St. Paul, Minn., Memphis, Tenn., Louisville, Ky., Denver, Colo., Los Angeles Calif., and Columbus, Ohio. 各州百花齐放了
+
+
+
+
+
+
+
+-----
+
+####  yzyz121  
+##### 933#       发表于 2020-5-30 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579808&amp;ptid=1937970" target="_blank">zs008007 发表于 2020-5-27 18:06</a>
+
+送到火山人的视频资料给他们啊
+
+
+压脖子制服国内也,用，但基本制服后就拷上了，神TM压5分钟还是满身 ...</blockquote>
+国内都是压背，压脖子容易造成损伤，国内舆论环境警察弄伤人吃不了兜着走。都是压着背，生怕把人弄伤。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 934#       发表于 2020-5-30 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609296&amp;ptid=1937970" target="_blank">不是摸鱼是捕鲸 发表于 2020-5-30 00:32</a>
+
+你美民粹领导人真的不行，要是台上是休伊朗，估计早就解决了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说真的 确实一蟹不如一蟹
+
+
+
+
+
+
+
+
+-----
+
+####  yzyz121  
+##### 935#       发表于 2020-5-30 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580308&amp;ptid=1937970" target="_blank">百合豚 发表于 2020-5-27 18:50</a>
+
+那么为什么袭警的老黑多？</blockquote>
+这问题就复杂了，因为很多老黑混帮派。至于为什么老黑老墨混帮派，这就是美国体制问题了。
+
+
+
+
+
+
+
+-----
+
+####  fsjrday  
+##### 936#       发表于 2020-5-30 00:45
+
+
+
+
+国内时间凌晨两点开以中国为主题的发布会，发个China预热呢这
+
+
+
+
+
+
+
+-----
+
+####  yzyz121  
+##### 937#       发表于 2020-5-30 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580470&amp;ptid=1937970" target="_blank">bl0ck 发表于 2020-5-27 19:06</a>
+
+立党老师为啥从一个前期爱说相声的粉红留学生，在老美工作以后快速蜕变成一个宣传1块炸鸡吃到饱，天天yygq ...</blockquote>
+据我观察，是因为华为。
+
+
+
+
+
+
+
+-----
+
+####  ronac  
+##### 938#       发表于 2020-5-30 01:35
+
+
+
+
+美国天涯的明尼阿波利斯版有人发了新闻，那个暴力战警被批捕了
+
+
+
+
+
+
+
+-----
+
+####  万花谷杂役  
+##### 939#       发表于 2020-5-30 01:49
+
+
+
+
+玛德视频看得真是气抖冷
+
+
+
+
+
+
+
+-----
+
+####  yizi1  
+##### 940#       发表于 2020-5-30 01:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609637&amp;ptid=1937970" target="_blank">ronac 发表于 2020-5-30 01:35</a>
+
+美国天涯的明尼阿波利斯版有人发了新闻，那个暴力战警被批捕了</blockquote>
+传统艺能啦，你看看之前那些被逮捕的警察最后是怎么处理的。
+
+
+
+
+
+
+
+-----
+
+####  Tienx  
+##### 941#       发表于 2020-5-30 01:53
+
+
+
+
+喷了，怎么突然这么多密码贴，隔壁贴提的技术实装了？
+
+
+
+
+
+
+
+-----
+
+####  iriyano  
+##### 942#       发表于 2020-5-30 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609709&amp;ptid=1937970" target="_blank">Tienx 发表于 2020-5-30 02:53</a>
+喷了，怎么突然这么多密码贴，隔壁贴提的技术实装了？</blockquote>
+老bug了所以版规禁止密码贴
+
+
+
+
+
+                  
