@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 10:42** 
+> ## **本文件最后更新于2020-05-29 12:08** 
 
 
 
@@ -8520,7 +8520,7 @@ ig功不可没，最成功的破坏者
 V圈后浪有点多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 昨天两个人摸了两小时的互画像
-<img src="https://pbs.twimg.com/media/EZCah7xUYAAQk7m?format=jpg&amp;name=medium" id="aimg_cjPPs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZCah7xUYAAQk7m?format=jpg&amp;name=medium" id="aimg_adojX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13198,7 +13198,7 @@ yyut不也搞过连弹几小时不上厕所来着，都靠纸尿裤
 <img src="https://img.saraba1st.com/forum/202005/28/230113vq9vt0sd3hnitc9c.png" referrerpolicy="no-referrer">
 
 
-<strong>EB]%[GN5}7AY358ZE)1IWQD.png</strong> (56.11 KB, 下载次数: 0)
+<strong>EB]%[GN5}7AY358ZE)1IWQD.png</strong> (56.11 KB, 下载次数: 1)
 
 下载附件
 
@@ -13582,7 +13582,7 @@ holo在4chan刷的那叫一个夸张
 
 
 小护士她妈画的敌社真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWDJv_wUYAAERAr?format=png&amp;name=small" height="500" id="aimg_r3C1V" onclick="zoom(this, this.src, 0, 0, 0)" width="461"/)
+<img src="https://pbs.twimg.com/media/EWDJv_wUYAAERAr?format=png&amp;name=small" height="500" id="aimg_wT89W" onclick="zoom(this, this.src, 0, 0, 0)" width="461"/)
 
 
 
@@ -16826,4 +16826,1160 @@ Im too old for that.......
 
 
 
-                    
+
+
+-----
+
+####  free  
+##### 886#       发表于 2020-5-29 10:42
+
+
+
+
+其实这样看的话，我倾向于是九重一开始就对继续搞V兴趣不大，当初从游戏部毕业的时候她也是去意最坚决的一个，没准这个四季侦探团也是被另外俩人拉着来做的......
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 887#       发表于 2020-5-29 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598983&amp;ptid=1938145" target="_blank">free 发表于 2020-5-29 10:42</a>
+
+其实这样看的话，我倾向于是九重一开始就对继续搞V兴趣不大，当初从游戏部毕业的时候她也是去意最坚决的一 ...</blockquote>
+九重来参加这企划我就挺意外了，她一直是最远离团体的那个，有主见也有行动能力
+
+倒是hntg从头到尾没掺和，现在应该挺尴尬的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 888#       发表于 2020-5-29 10:47
+
+
+
+ 本帖最后由 colodes 于 2020-5-29 10:50 编辑 
+
+怪不得/hlg/一直发这图 😂来源《超时空世纪2》(1993)
+
+<img src="https://img.saraba1st.com/forum/202005/29/104651b6s2ppvtqv1kwre1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1590715653456.jpg</strong> (19.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 10:46 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/104705od0vqx15jj44j4gy.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-29 104609.png</strong> (316.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 10:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 889#       发表于 2020-5-29 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598322&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-29 09:51</a>
+
+289:名無しさん＠お腹いっぱい。[sage] 2020/05/29(金) 03:23:34.37
+
+
+【悲報】道明寺や共通の敵を失った元 ...</blockquote>
+看了眼，九重和兔子**表里都还是互FO，看顺序也不是解除又重新fo的样子，微妙
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 890#       发表于 2020-5-29 10:59
+
+
+
+
+九重也不一定就是和她们有矛盾闹翻脸了，可能就单纯的对V没兴趣不想干了而已......
+
+
+省一楼，V吧吧主选举开始了，有兴趣的去给投个票吧
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 891#       发表于 2020-5-29 11:02
+
+
+
+
+也不算啥意外，游戏部事件从一开始就可以感觉到九重是演者方里最大的不安定因素<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 892#       发表于 2020-5-29 11:02
+
+
+
+
+九重不想干了挺明显的，解除互fo是假的，不过关系估计是出了问题，主要是tanaka发那个推，我当时看了就感觉不对劲
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 893#       发表于 2020-5-29 11:07
+
+
+
+ 本帖最后由 colodes 于 2020-5-29 11:11 编辑 
+
+4chan得jp串回复量变化，基本上代表了holo串的变化 (统计网址: [https://4stats.io/](https://4stats.io/))
+
+<img src="https://img.saraba1st.com/forum/202005/29/105817u2l1gv7blljwvg10.png" referrerpolicy="no-referrer">
+
+
+<strong>1590718965215.png</strong> (45.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 10:58 上传
+
+
+
+
+
+
+gen 4 debut：holo4期出现     split from /vy/ ：holo串从综合版分离
+
+
+现在的时刻每分钟回复量的差别，木口串是其他串回复速度的25倍
+
+<img src="https://img.saraba1st.com/forum/202005/29/110651evo1rmomnakih1ts.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dadedd.jpg</strong> (124.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 11:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 894#       发表于 2020-5-29 11:11
+
+
+
+
+VY是啥版？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 895#       发表于 2020-5-29 11:12
+
+
+
+ 本帖最后由 colodes 于 2020-5-29 11:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599396&amp;ptid=1938145" target="_blank">aele 发表于 2020-5-29 11:11</a>
+
+VY是啥版？</blockquote>
+/jp/版的Virtual Youtu\bers串，V综
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 896#       发表于 2020-5-29 11:14
+
+
+
+
+那么v什么时候过气，我好跳船<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 897#       发表于 2020-5-29 11:23
+
+
+
+<img src="https://s1.ax1x.com/2020/05/29/tmXDje.png" referrerpolicy="no-referrer">
+
+
+这是不是木口ARK的最后了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+话说彩虹ARK怎么不搞了？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 898#       发表于 2020-5-29 11:24
+
+
+
+ 本帖最后由 free 于 2020-5-29 11:27 编辑 
+
+看了下V吧大选，目前这位 绅士般的存在，选票遥遥领先其他人一个数量级，差不多就是他当选了吧，谁知道他什么来头。
+
+这个是他的竞选宣言，坚决反对公会。
+[https://www.bilibili.com/read/cv6195791](https://www.bilibili.com/read/cv6195791)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 899#       发表于 2020-5-29 11:26
+
+
+
+
+虹男跑去apex了，热度没了
+不过哈哥公主还在，看日后还算有点复兴机会
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 900#       发表于 2020-5-29 11:27
+
+
+
+
+下周杏又是一堆纪念回，都办的话月头KPI又冲一波。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 901#       发表于 2020-5-29 11:28
+
+
+
+
+肯定会开新图给aki和老师养老的，大规模活动应该是组织不起来了。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 902#       发表于 2020-5-29 11:28
+
+
+
+<blockquote>free 发表于 2020-5-29 11:24
+看了下V吧大选，目前这位 绅士般的存在，选票遥遥领先其他人一个数量级，差不多就是他当选了吧，谁知道他什 ...</blockquote>
+因为其他人不希望原吧务当选就全投他一个人了
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 903#       发表于 2020-5-29 11:29
+
+
+
+ 本帖最后由 格林卡罗尔 于 2020-5-29 11:31 编辑 
+
+第一名230+票，大概是v8现在这批人选出来的代表，总之看起来不像清洁工。第二原吧务70+。
+
+Syl九重到底想去干什么
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 904#       发表于 2020-5-29 11:29
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-29 11:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599632&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-5-29 11:28</a>
+因为其他人不希望原吧务当选就全投他一个人了</blockquote>
+可惜了，2000去竞选我肯定投他<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+靠，跑过去发现不能投票，这贴吧投票还有限制<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 905#       发表于 2020-5-29 11:30
+
+
+
+
+原吧务就算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正常讨论都能给你删了的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 906#       发表于 2020-5-29 11:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">斧子哥：开个价吧
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 907#       发表于 2020-5-29 11:38
+
+
+
+
+说好的v我70我投斧子哥呢，跑了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 908#       发表于 2020-5-29 11:41
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-5-29 11:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599626&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-29 11:28</a>
+
+肯定会开新图给aki和老师养老的，大规模活动应该是组织不起来了。</blockquote>
+不一定龙皇自己开服了
+
+如果只剩下几个人的话
+
+aki之前说过她去咨询过龙皇怎么自己建服
+
+她想搞一个能和观众一起玩的私服
+
+
+说到继续玩的动力的话 估计就剩下aki了
+
+miko昨天晚上杂谈聊到新地图的时候也感觉不是特别积极，特别是最近这一个月登录ark的时间几乎没几个小时 一共也没玩几次
+
+巧可也在慢慢脱坑ark转去其他游戏 最近也没那么废了基本只有直播的时候上线了
+
+龙皇就不用说了 就是个维护服务器的工具人……
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 909#       发表于 2020-5-29 11:42
+
+
+
+ 本帖最后由 包之沐白 于 2020-5-29 12:05 编辑 
+
+绅士是天狗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">斧子哥按兵不动
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 910#       发表于 2020-5-29 11:43
+
+
+
+
+不试试救一救ark吗，夸回归在拉个狐皇还是能试试的吧
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 911#       发表于 2020-5-29 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599858&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-29 11:43</a>
+
+不试试救一救ark吗，夸回归在拉个狐皇还是能试试的吧</blockquote>
+箱推可怕，不敢。哦还有芙宝会重拳出击。
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 912#       发表于 2020-5-29 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理斧子哥只要看谁当选然后买号就行了何必这么麻烦，实在不行把新当选的特出来后让他们内部闹矛盾不就是圣光炎魔复刻版
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 913#       发表于 2020-5-29 11:45
+
+
+
+
+当初龙夸会谈也没下文了，ark就让他沉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 914#       发表于 2020-5-29 11:46
+
+
+
+
+别救了，赶紧开发新的作业吧，一个游戏能提供的新鲜感就这么多
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 915#       发表于 2020-5-29 11:46
+
+
+
+
+绅士是理智天狗，之前有统计v8成分等不少好活
+府子哥打算晚上10点冲，v我70战术必胜<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 916#       发表于 2020-5-29 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599880&amp;ptid=1938145" target="_blank">Fakerの幻影 发表于 2020-5-29 11:45</a>
+当初龙夸会谈也没下文了，ark就让他沉了吧</blockquote>
+夸后来上线了的，结果打错代码把其他人的龙都ntr了就受挫不玩了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 917#       发表于 2020-5-29 11:48
+
+
+
+
+除非龙皇开新图同接2.5w+，否则废人们不会回归的🙏
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 918#       发表于 2020-5-29 11:48
+
+
+
+
+这伙人啥时候回去团建下mc，1.16会吗
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 919#       发表于 2020-5-29 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599858&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-29 11:43</a>
+
+不试试救一救ark吗，夸回归在拉个狐皇还是能试试的吧</blockquote>
+看到昨天晚上miko惨烈的ark同接了吗
+
+还有必要救吗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 920#       发表于 2020-5-29 11:49
+
+
+
+
+我都在b综跟斧子哥说过v我50我就投他，气抖冷，斧子哥无视坛友<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 921#       发表于 2020-5-29 11:49
+
+
+
+
+50不够了，不v我70我就不投你<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 922#       发表于 2020-5-29 11:50
+
+
+
+
+现在在回顾mc新服熟肉。什么游戏都是开荒的时候最好玩。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 923#       发表于 2020-5-29 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599866&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-29 11:44</a>
+
+箱推可怕，不敢。哦还有芙宝会重拳出击。</blockquote>
+夸皇后来是自己把自己搞死了
+
+你忘了上次在兔皇ark直播的时候夸皇本来想偷偷做复活准备的时候把龙皇给她的管理员指令输错了，差点捅了个大篓子 在那之后夸皇就再也没上线过了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 924#       发表于 2020-5-29 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599930&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-29 11:48</a>
+
+除非龙皇开新图同接2.5w+，否则废人们不会回归的🙏</blockquote>
+开图同接才2.5W？
+
+还不如兔皇自己solo普通游戏的同接
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 925#       发表于 2020-5-29 11:52
+
+
+
+
+你们要的也太多了，v我30我就投
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 926#       发表于 2020-5-29 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599974&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-29 11:50</a>
+
+夸皇后来是自己把自己搞死了
+
+你忘了上次在兔皇ark直播的时候夸皇本来想偷偷做复活准备的时候把龙皇给她的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你说得对，所以还有什么回去的必要吗？只留下不好回忆的垃圾畸变。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 927#       发表于 2020-5-29 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599968&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-5-29 11:50</a>
+
+现在在回顾mc新服熟肉。什么游戏都是开荒的时候最好玩。</blockquote>
+新鲜感很重要
+
+而且箱类游戏最讲究大家最想看的就是无计划的线上突发联动事件
+
+所以一旦箱游冷下来没人上线了的话箱推buff就荡然无存了
+
+
+
+
+
+
+
+-----
+
+####  plok201  
+##### 928#       发表于 2020-5-29 11:54
+
+
+
+
+别想了，真有心7日死哪会那么快凉，ark蹭个龙皇超人气，蹭完了就差不多了
+
+
+现在龙皇都快变龙酱了，不值得
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 929#       发表于 2020-5-29 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600017&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-29 11:53</a>
+
+你说得对，所以还有什么回去的必要吗？只留下不好回忆的垃圾畸变。 ...</blockquote>
+严格说的话现在的讨论方向是
+
+夸皇到底会不会参加下一个地图，下一个地图基本确定会开
+
+不只是夸皇，还有少主船长等等这些原废人 如果能回归的话或许ark还有救的机会
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 930#       发表于 2020-5-29 11:56
+
+
+
+
+木口ARK就算没有芙宝事件也就多续命两周、虹ARK才是当初同接这么好看、现在怎么萎的比holo还快
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 931#       发表于 2020-5-29 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600047&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-29 11:54</a>
+
+严格说的话现在的讨论方向是
+
+夸皇到底会不会参加下一个地图，下一个地图基本确定会开
+
+不只是夸皇，还有少 ...</blockquote>
+上位管人做事一大标准是同接，龙皇如果有本事把ark新图搞成同接能平a2w，废人们马上回来。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 932#       发表于 2020-5-29 11:57
+
+
+
+
+没有下个管人金游大家的订阅还是涨的好看，说明不是必需品
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 933#       发表于 2020-5-29 11:57
+
+
+
+
+开了干嘛，被箱推和毒唯nt粉追着anti吗
+想看的能不能滚去看别人去
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 934#       发表于 2020-5-29 11:57
+
+
+
+ 本帖最后由 某穆克拉 于 2020-5-29 12:01 编辑 
+
+小天使今天又多开了一窗歌回，好像是唱偶像曲？下午五点。<blockquote>【歌枠】ドルオタ天使のアイドル曲縛り歌枠♥モー娘。AKB48ラブライブ!</blockquote>怎么2点那窗也是歌回，不对劲。。
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 935#       发表于 2020-5-29 11:58
+
+
+
+
+等等…怎么说得畸变好像不是重新开荒一样
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 936#       发表于 2020-5-29 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599902&amp;ptid=1938145" target="_blank">h1001010 发表于 2020-5-29 11:46</a>
+绅士是理智天狗，之前有统计v8成分等不少好活
+府子哥打算晚上10点冲，v我70战术必胜 ...</blockquote>
+天兵天将可以准备改造V8了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 937#       发表于 2020-5-29 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593068&amp;ptid=1938145" target="_blank">SiolC 发表于 2020-05-28 18:49:46</a>
+倒不如说，阿花玩许多剧情向的游戏都有她特色的解读，只是游戏水平太菜导致新参很难完整看完
+
+
+ ...</blockquote>论sc她玩的不菜，甚至可以说神操作还挺多的，但sc本来的游戏性也就一点点……
+剧情把控方面其实在事前就做好大量准备工作的神田做的更为出色，阿花在老P那被吹的最多的就是大量不同视角的看法和细致入微的理解，像卡图解析方面什么都就不说了，就乱杀。前天感谢祭的时候很轻松得看透了「朝日对于获得第一名反而会更加不安的心理」，之后一直带入朝日的想法在玩。
+论游戏力她是菜，但不是没救，之前虽然有levi的帮助，但好歹也通了原版初代死魂曲，这玩样原版真的不是一般人能忍受的。我倒是觉得她一直对游戏的自信心不足，主流游戏塞尔达、老滚5之类的，背地里也是偷偷在玩的，但就怕被说太菜所以不敢拿出来播。
+个人一直挺希望她去玩一玩黑魂的，欧美和我国的魂学都过分刻板印象以及冷冰冰了，反而日本和韩国的魂学却会从常人角度出发，虽然不是那么严谨，却充满温情和浪漫。
+
+还有，我在你楼明明来的挺少的，咋就被和2000安排上了，你们都是2000gachi吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 938#       发表于 2020-5-29 12:02
+
+
+
+
+其实死就死在畸变这图上了吧，色彩诡异，不能飞行导致前期在点对点移动上需要浪费大量时间，生物花样性少了还奇形怪状的多喜欢当恐龙公园收集的也跑了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 939#       发表于 2020-5-29 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600119&amp;ptid=1938145" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-29 11:58</a>
+等等…怎么说得畸变好像不是重新开荒一样</blockquote>
+畸变开始那几天其实数据还行吧
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 940#       发表于 2020-5-29 12:05
+
+
+
+
+昨天晚上喝了点倒了，今天来还原一下事件经过。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+苔宝搞了箱内联动，惯例分成两场，第二场是会限→
+
+mishiro单推人觉得联动会限只在海苔男频道开是对自己推不公平回推直球怼→
+
+海苔男大受打击到不想上播，跟女儿商量之后还是决定开播→
+
+直播里哭诉自己为了女儿呕心沥血还引流却被女儿的粉丝怀疑，表明会员的钱都会作为活动基金不是为了自己享受。今后也会考虑在其他人的频道会限联动。
+
+
+
+海苔男迟早被其他人的毒唯搞崩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">温暖大家庭不是那么好当的
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 941#       发表于 2020-5-29 12:07
+
+
+
+
+云pro哥repo觉得海苔男说话艺术还不如狐皇，这么说只会把事情越闹越大。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 942#       发表于 2020-5-29 12:07
+
+
+
+
+海苔男也要搞yhm法宝了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 943#       发表于 2020-5-29 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600243&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-29 12:05</a>
+昨天晚上喝了点倒了，今天来还原一下事件经过。
+
+苔宝搞了箱内联动，惯例分成两场，第二场是会限→
+
+m ...</blockquote>
+苔苔好惨，得跟狐皇多学学
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 944#       发表于 2020-5-29 12:07
+
+
+
+
+什么叫还不如狐皇，这话就离谱。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 945#       发表于 2020-5-29 12:08
+
+
+
+
+建议学习少主天天灌输温暖大家庭概念，以后受委屈了，箱推必重拳出击橄榄毒唯。
+
+
+
+
+
+                  

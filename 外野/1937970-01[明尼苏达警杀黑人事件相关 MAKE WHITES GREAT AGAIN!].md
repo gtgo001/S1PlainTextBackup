@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 10:39** 
+> ## **本文件最后更新于2020-05-29 12:06** 
 
 
 
@@ -7159,10 +7159,11 @@ cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
 
 
 
- 参与人数 3战斗力 -3
+ 参与人数 4战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 愿闻其翔|-1|那你猜到会被扣分了吗？|
 | SICP|-1|好评加鹅|
 | hellgate22|-1|思路广|
 | atomhappy|-1|不要低估泥潭网友智商|
@@ -8589,10 +8590,11 @@ DC的路名中国改不了，可以把北京朝阳区安家楼路改下名字
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 失业十年| + 1|涨知识|
 | 不垃圾屌丝| + 1|涨知识了|
 
 
@@ -9235,10 +9237,11 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 5战斗力 -2
+ 参与人数 6战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| wjhzha| + 1|好评加鹅|
 | 烦死了|-1||
 | ごろ|-1||
 | 丁兔|-2|再臭一点|
@@ -9932,10 +9935,14 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 11战斗力 +11
+ 参与人数 15战斗力 +15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 雪夜霧語| + 1||
+| lurenasa| + 1||
+| 烦死了| + 1|好评加鹅|
+| 空枪| + 1|好评加鹅|
 | diyihaoshitu| + 1|好评加鹅|
 | wuzhino1| + 1|好评加鹅|
 | 醉鸽子| + 1||
@@ -11259,7 +11266,7 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquot
 
 
 6C73C9B6-09A9-4414-AA80-0AFD7129892A.jpeg
-(569.79 KB, 下载次数: 0)
+(569.79 KB, 下载次数: 1)
 
 
 
@@ -11305,4 +11312,1335 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquot
 
 
 
-                               
+
+
+-----
+
+####  wuzhino1  
+##### 570#       发表于 2020-5-29 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598719&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 10:22</a>
+
+没有厉害的对手就没有伟大的成就，厉害的对手最好自己来培养，这方面其实几大流氓操作都一样，不细说[f:0 ...</blockquote>
+也有玩脱的，近有昂山素季，远有卡加梅。
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 571#       发表于 2020-5-29 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国民警卫队算军队吗
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 572#       发表于 2020-5-29 10:46
+
+
+
+ 本帖最后由 rainknine 于 2020-5-29 11:04 编辑 
+
+对一个族群，社会中的单个个体A在舆论上歧视它攻击它，攻击一个抽象而遥远的概念，是第一重歧视。
+在实践中，这个个体A对身边的这个族群的切实具体的个体B的歧视与攻击，是第二重歧视。
+在社会结构上，社会需要这个族群去构成一个阶级，这个族群会被结构性地压迫，剥削这个族群带来的收益使社会的其他部分获益，这是第三重歧视。
+第一重可能会转换成第二重，但是转换率并不高，全中国被攻击得最严重的人之一孙笑川，线上孙狗线下孙哥，泥潭甚至有人包养。
+相关反例是校园欺凌，对某一特征的歧视很可能会发展成对有这个特征的人的排斥，对此我的倾向是转换率与受的基本为人教育负相关。
+第二重会自发地带来第三重吗？被清洗的犹太人或许是一个例子，但在现代社会中我的倾向是，第二重歧视可以维持第三重歧视。
+因为第三重歧视必然会产生大范围的延绵不断的第一重与第二重歧视，因为在第三重歧视存在的前提下，哪怕是使用不带感情 色彩的完全理性的统计学，也能得到被歧视的族群在各项指标上较差的统计结果，之前有ai法官袒护白人歧视黑人的例子，就来自于此。
+
+
+中国的种族歧视就算有也只在第一重，口上对黑人族群仇视言论，但是见到受难的具体的人的时候就依然不会丧失同理心，这一点泥潭如此，其他社区上我也见到如此。
+广受诟病的相互理解思想和zzzq运动则都在怼第一第二重。
+而美帝中的黑人则真的在第三重歧视中生活着。
+一方面，zzzq运动风行到令许多人反感，另一方面，在美黑人依然饱受歧视，两个直觉上相反的论断都是对的。
+如果说歧视问题是毛发的话，这就是单纯的勤剪头发的人也不会因此变成秃头，仅此而已。
+
+在这一层次上，黑豹们学习康米思想，用阶级视角分析美国黑人受歧视现状都是有意义的。
+能用相互理解来消除的东西，是不配与那些真正成为社会问题的种族歧视并论的。
+没有累年无数的人因此不公地死亡，没有走尽千万条路都活不下去的社会现状，是不会成为社会痼疾的。
+
+
+然而，看到楼里的某些极端种族主义言论还是得扣的，不因为别的，这种想法和会抱持这种想法的人都太蠢了。
+
+—— 来自 HUAWEI ARE-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| dpdwx| + 1|你真的觉得国人只在第一重吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 573#       发表于 2020-5-29 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598918&amp;ptid=1937970" target="_blank">斯拉克自有妙计 发表于 2020-5-29 10:38</a>
+
+这些不是传统黑帮吗，我看电影上干黑帮的都是意大利爱尔兰人</blockquote>
+传统黑帮组织度还挺高吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，完成原始积累后，还知道洗白登堂入室。
+
+黑人搞血帮也是一副松散的混混样
+
+
+
+
+
+
+
+-----
+
+####  zhy_2018  
+##### 574#       发表于 2020-5-29 10:56
+
+
+
+ 本帖最后由 zhy_2018 于 2020-5-29 10:57 编辑 
+
+美帝的尼哥们没有起来油型闹事？
+
+记得9几年的时候，也是死了个黑人，然后全城黑人打杂墙稍
+
+
+
+
+
+
+
+-----
+
+####  戏谑二次元  
+##### 575#       发表于 2020-5-29 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599021&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 10:45</a>
+国民警卫队算军队吗</blockquote>
+正正经经的军队
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 576#       发表于 2020-5-29 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599155&amp;ptid=1937970" target="_blank">zhy_2018 发表于 2020-5-29 10:56</a>
+
+美帝的尼哥们没有起来油型闹事？
+
+记得9几年的时候，也是死了个黑人，然后全城黑人打杂墙稍 ...</blockquote>
+看新闻啊，明尼阿波利斯市区都扌丁砸抢烧烧了一片街区了，全国各地都有散步甚至打砸警车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 577#       发表于 2020-5-29 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598896&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-29 10:36</a>
+
+速度真快</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">康米pla帮忙扫大街，free国民兵进去也是去帮忙扫大街吗
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 578#       发表于 2020-5-29 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599202&amp;ptid=1937970" target="_blank">dclara1 发表于 2020-5-29 11:00</a>
+
+看新闻啊，明尼阿波利斯市区都扌丁砸抢烧烧了一片街区了，全国各地都有散步甚至打砸警车 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">新冠：你们美国到底有没人还记得现在是疫情期间？（甚至没人记得这是疫情楼）
+
+
+
+
+
+
+
+-----
+
+####  jklzh  
+##### 579#       发表于 2020-5-29 11:06
+
+
+
+
+话说米国黑人问题只有矫枉过正和种族主义两个极端吗？
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 580#       发表于 2020-5-29 11:07
+
+
+
+ 本帖最后由 AlienFromEarth 于 2020-5-29 11:17 编辑 
+<blockquote>Lord_Voldemort 发表于 2020-5-29 10:54
+传统黑帮组织度还挺高吧，完成原始积累后，还知道洗白登堂入室。
+
+黑人搞血帮也是一副松散的混混样 ...</blockquote>
+
+传统黑帮之所以是传统，就是因为含有基层社区自治组织的元素。因为利益和社区绑定了，需要社区支持才能搞得起来，所以暴力之外名头和脸面得做点来拉人心才有大众支持，哪怕实际再不堪也得有套规矩和鬼扯的“道德信念”。山口组本来是鱼贩，黑手是意大利旧贵族，洪门谁都知道。而内部也要组织起来有套起码的秩序保障老人为首的利益从而让年轻人敢拼
+
+
+而d的泛滥导致这些暴力犯罪组织可以在脱离基层社区甚至急功近利的谋害自身所在社区的情况下快速积累财富，年轻人可以靠纯粹的暴利吸引而来，什么组织秩序更是不需要管了利益太高根本不用细水长流，大家都撕破脸去抢暴利，这种本身就黑透了的暴利也让黑帮端着自己那套哪怕是鬼扯的“道德”的样子都显得可笑
+
+
+而黑人本来基层社区就已经被拆散了（黑人没爹梗是这个情况导致的现象），山口组那样的历史没有，真正有信念有组织的都**死了，剩下的还被cia着重输入d来毒害腐化，so。。。
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 581#       发表于 2020-5-29 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599308&amp;ptid=1937970" target="_blank">jklzh 发表于 2020-5-29 11:06</a>
+
+话说米国黑人问题只有矫枉过正和种族主义两个极端吗？</blockquote>
+从来都只要将问题扫入台下，改变方法继续搞黑人
+
+
+
+
+
+
+
+-----
+
+####  martyr1  
+##### 582#       发表于 2020-5-29 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599296&amp;ptid=1937970" target="_blank">叶夜青 发表于 2020-5-29 11:05</a>
+
+新冠：你们美国到底有没人还记得现在是疫情期间？（甚至没人记得这是疫情楼） ...</blockquote>
+差点真的以为这是疫情楼
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 583#       发表于 2020-5-29 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599155&amp;ptid=1937970" target="_blank">zhy_2018 发表于 2020-5-29 10:56</a>
+
+美帝的尼哥们没有起来油型闹事？
+
+记得9几年的时候，也是死了个黑人，然后全城黑人打杂墙稍 ...</blockquote>
+就是因为dzqs，失去了正当性所以才每次都是一阵风。
+
+
+tg发动工农起义还要严防流氓无产者呢
+
+
+
+
+
+
+
+-----
+
+####  遗尿  
+##### 584#       发表于 2020-5-29 11:16
+
+
+
+
+笑死，看推特一个砸窗的白人被群众阻止，然后被人认出是警察，这些好玩了。
+
+
+
+
+
+
+
+-----
+
+####  坂上斗真  
+##### 585#       发表于 2020-5-29 11:17
+
+
+
+
+曾经有去那边工作的机会，所以研究过那边twin city的情况，当时看着还行啊，知乎上都说治安不错，老黑老墨少，就是冷，比东北还冷，要带貂过去。
+
+
+没想到这次闹成这样，看来美国条子这次这是**人怨了
+
+
+
+
+
+
+
+-----
+
+####  yangkaim4  
+##### 586#       发表于 2020-5-29 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
+
+我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
+黑豹**，学马列毛主义，被美匪剿灭了。
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 587#       发表于 2020-5-29 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599224&amp;ptid=1937970" target="_blank">鸟耶稣 发表于 2020-5-29 11:01</a>
+康米pla帮忙扫大街，free国民兵进去也是去帮忙扫大街吗</blockquote>
+不用骑兵突击原来战友不错了还扫大街?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古留  
+##### 588#       发表于 2020-5-29 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599021&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 10:45</a>
+
+国民警卫队算军队吗</blockquote>
+算民兵，职责对标武警而且只能出勤29天
+
+
+
+
+
+
+
+-----
+
+####  cd112332255  
+##### 589#       发表于 2020-5-29 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599472&amp;ptid=1937970" target="_blank">遗尿 发表于 2020-5-29 11:16</a>
+笑死，看推特一个砸窗的白人被群众阻止，然后被人认出是警察，这些好玩了。 ...</blockquote>
+所以这次这么快发展成暴力活动的程度，有一部分是为了污名化？<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+—— 来自 asus ASUS_Z01HDA, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 590#       发表于 2020-5-29 11:30
+
+
+
+<blockquote>叶夜青 发表于 2020-5-29 11:05
+新冠：你们美国到底有没人还记得现在是疫情期间？（甚至没人记得这是疫情楼） ...</blockquote>
+熊弟，这不是疫情楼😂
+
+
+
+
+
+
+
+-----
+
+####  欧金金  
+##### 591#       发表于 2020-5-29 11:31
+
+
+
+ 本帖最后由 欧金金 于 2020-5-29 11:35 编辑 
+
+<img src="http://wx3.sinaimg.cn/large/007TjXcVly1gf94n1sux6j30sg0jnkfe.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/007TjXcVly1gf94n4xqa3j30zk0npqky.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/007TjXcVly1gf94n3fodqj30zk0qohdt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/large/007TjXcVly1gf94n403yij30ku0kh4nt.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/007TjXcVly1gf94n1f2d7j30u40l8b1n.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 592#       发表于 2020-5-29 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598825&amp;ptid=1937970" target="_blank">wuzhino1 发表于 2020-5-29 10:29</a>
+
+也算是一个先进经验了，不知道其他非洲人民能再拥护出这么一个领导来么？
+
+再说非洲国与国之间的概念没东 ...</blockquote>
+非洲原先只有部落的概念吧  现在所谓的国家都是殖民地独立出来的  很多人老是把黑人归到一个族群里面 但其实黑人民族多如牛毛 差异性比中日韩高多了 光是尼日利亚就有250多个  要组织这些人太难了
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 593#       发表于 2020-5-29 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599021&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 10:45</a>
+
+国民警卫队算军队吗</blockquote>
+有M1A2和F-22的武装不是军队，那可能是农业公司
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 594#       发表于 2020-5-29 11:33
+
+
+
+
+Fair independent investigation
+
+Liberate all aressted protestors
+
+Over-country mourning for the victims
+
+Y
+
+Death penalty to the murderer
+
+
+bog岛已经开始整活了，现在只差一个y<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 595#       发表于 2020-5-29 11:34
+
+
+
+[https://twitter.com/AndrewMannix/status/12661779**75360768](https://twitter.com/AndrewMannix/status/12661779**75360768)
+
+
+Andy Mannix @AndrewMannix
+
+Folks: I've received some requests to delete photos here bc they show protesters' faces. That's a hard no. I appreciate where your heart's at. But us reporters are out there for the sole purpose of documenting these (public) events, not to erase them.
+
+
+明尼阿波利斯骚乱现场拍照的记者，拒绝删除拍到的Protester照片，也拒绝给照片中的人脸部打码。被指责是白右的狗腿子，评论炎上中
+
+
+看着很眼熟不是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 596#       发表于 2020-5-29 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599664&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-29 11:31</a></blockquote>
+最后一张简直是画出来的
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 597#       发表于 2020-5-29 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599664&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-29 11:31</a></blockquote>
+哇，最后一张很艺术啊
+
+
+
+
+
+
+
+-----
+
+####  sdefrfg  
+##### 598#       发表于 2020-5-29 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597859&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 09:15</a>
+
+真有人这种事是只有黑人资源不够的问题吗？
+
+
+根本不是，发生这种事的根本原因是美国本身的愚民+严重的贫富 ...</blockquote>
+说白了就是鹅害鹅那套啊，还是老牌资本主义国家玩的溜
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 599#       发表于 2020-5-29 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599035&amp;ptid=1937970" target="_blank">rainknine 发表于 2020-5-29 10:46</a>
+
+对一个族群，社会中的单个个体A在舆论上歧视它攻击它，攻击一个抽象而遥远的概念，是第一重歧视。
+
+在实践中 ...</blockquote>
+zzzq运动风行到令许多人反感，另一方面，在美黑人依然饱受歧视，两个直觉上相反的论断都是对的
+
+-------------------------------------------------------------------------------------------------------------
+
+完全不相反吧  就是因为普遍受到歧视却没办法解决 所以才会在舆论上搞zzzq来缓解部分社会压力
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 600#       发表于 2020-5-29 11:40
+
+
+
+<blockquote>临界点 发表于 2020-5-29 11:37
+zzzq运动风行到令许多人反感，另一方面，在美黑人依然饱受歧视，两个直觉上相反的论断都是对的
+
+--------- ...</blockquote>
+上层黑人利用了大多数黑人被歧视的现状，通过ZZZQ运动为自己牟利。
+
+换句话说——吃人血馒头。
+
+
+
+
+
+
+
+-----
+
+####  遗尿  
+##### 601#       发表于 2020-5-29 11:40
+
+
+
+
+保卫黑人商店<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200529113832.png
+(189.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-29 11:40 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/114000sfuh0kh54thqh4l2.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200529113846.png
+(35.67 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-29 11:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/113959u5brr41bhtn5vrrv.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  遗尿  
+##### 602#       发表于 2020-5-29 11:41
+
+
+
+
+保卫黑人商店<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QQ图片20200529113832.png
+(189.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-29 11:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/114139pnnz3woenryftrlu.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200529113846.png
+(35.67 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-29 11:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/114139fbj0jl0vzcylyrbj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  7776169  
+##### 603#       发表于 2020-5-29 11:43
+
+
+
+<blockquote>逐天 发表于 2020-5-29 10:08
+上层黑人精英被收买，下层黑人野爹乱舞自甘堕落，最惨的是两边心里都不把对面当成同胞
+
+其实美国也不是没救 ...</blockquote>
+说不定这毒是cia带来的呢
+
+
+
+
+
+
+
+-----
+
+####  令和忍者  
+##### 604#       发表于 2020-5-29 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599544&amp;ptid=1937970" target="_blank">古留 发表于 2020-5-29 11:21</a>
+
+算民兵，职责对标武警而且只能出勤29天</blockquote>
+国民警卫队你当是州长可以指挥的小三军就行了，正儿八经的正规军。
+
+
+
+
+
+
+
+-----
+
+####  hellgate22  
+##### 605#       发表于 2020-5-29 11:44
+
+
+
+
+《国会山报》当地时间5月28日报道，密西西比州佩特尔市（Petal）市长、哈尔·马克斯（Hal Marx），周二先是发推称：“为什么现在这个社会还有人想当警察？”
+
+接着，马克斯发表了一句惊人的言论：“如果你说自己不能呼吸了，那就说明你正在呼吸。”
+
+他还声称，自己没看到这件事有什么不合理的，“这个人很可能是死于嗑药或者心脏病。他因为拒捕而被警察压制，视频没拍到这部分。警察被冤枉了。”
+
+马克斯随后试图为自己的话辩解。周三他向《哈蒂斯堡美国人报》表示，他的意思是“没人知道弗洛伊德是怎么死的，也没人知道他被按倒在地前的情况。”
+
+他声称，人们过早地对警察做判断，“我不能说他们是否犯了罪，也不知道他们做的是对是错。”
+
+
+
+逻辑链条完美无瑕无懈可击，你还能说话就说明你在呼吸，既然能呼吸，那就不是警察压死他的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI MAX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  MASKA-1  
+##### 606#       发表于 2020-5-29 11:47
+
+
+
+
+能不能拍到一个米帝tankman<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 607#       发表于 2020-5-29 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599871&amp;ptid=1937970" target="_blank">hellgate22 发表于 2020-5-29 11:44</a>
+
+《国会山报》当地时间5月28日报道，密西西比州佩特尔市（Petal）市长、哈尔·马克斯（Hal Marx），周二先是 ...</blockquote>
+和警察的边把人压在地上、边叫人上车的操作一样嘛！
+
+
+黑人到底要怎么做才能让白人满意，泪不争气地流了下来，地狱空荡荡，恶魔在人间，这个社会充满了黑人的屠杀和压迫，黑人什么时候才能真正的站起来。
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 608#       发表于 2020-5-29 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599472&amp;ptid=1937970" target="_blank">遗尿 发表于 2020-5-29 11:16</a>
+
+笑死，看推特一个砸窗的白人被群众阻止，然后被人认出是警察，这些好玩了。 ...</blockquote>
+**，美国警察这微操牛逼（破音
+
+
+
+
+
+
+
+-----
+
+####  kurono  
+##### 609#       发表于 2020-5-29 11:51
+
+
+
+
+这种恬不知耻的畜生能当市长，可以可以
+
+
+
+
+
+
+
+-----
+
+####  sdefrfg  
+##### 610#       发表于 2020-5-29 11:52
+
+
+
+
+知乎上有个帖子
+[https://www.zhihu.com/question/62608420/answer/204140821](https://www.zhihu.com/question/62608420/answer/204140821)
+
+
+很多警察本身也是社会底层拿着很低的工资，却赋予了暴力夺取生命权的权力
+
+
+
+
+
+
+
+-----
+
+####  Vincent_law  
+##### 611#       发表于 2020-5-29 11:53
+
+
+
+
+#美国明尼阿波利斯市进入紧急状态# CNN现场画面,明尼阿波利斯警察局被烧了！记者说**现场没有警察在控制局面😳 警察的对策可能是损失几栋建筑物，但确保警员的安全。
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 612#       发表于 2020-5-29 11:53
+
+
+
+
+黑人真是扶不起的阿斗，原本是占据政治正确的上风，正好可以倒逼**惩治恶警，立法保护自身利益，现在**完全把中立群众推向他们的对立面，加深尼哥犯罪的刻板印象。就算是有上面说的白皮在里面煽风点火，黑皮自己也是无组织无纪律。
+
+
+
+
+
+
+
+-----
+
+####  nessaj  
+##### 613#       发表于 2020-5-29 11:53
+
+
+
+
+这种惹人厌的暴动只能是毫无意义的情绪发泄，
+
+不可能对黑人现状产生任何改善，反而只会进一步造成族群撕裂。
+
+真要想用暴力打破规则，至少先认准主次矛盾和分清敌我吧？
+
+超市和路人何辜，把潜在同情者变成厌恶者是什么zz操作。
+
+这时候要是有个人能组织起来先把那4个警察拉出来挂路灯，再阻止非理性暴力保护一下无辜商家和路人，
+
+然后再慢慢把控枪，限制警察执法手段，加强黑人学校和社区管理等问题一点点从本州推广到全国
+
+才有那么一点改变黑人现状的可能，不然这George Floyd就彻底白死了
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 614#       发表于 2020-5-29 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600020&amp;ptid=1937970" target="_blank">真田丸 发表于 2020-5-29 11:53</a>
+黑人真是扶不起的阿斗，原本是占据政治正确的上风，正好可以倒逼**惩治恶警，立法保护自身利益，现在**完全 ...</blockquote>
+楼里不都说了有组织有纲领的全**死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  海克托尔  
+##### 615#       发表于 2020-5-29 11:56
+
+
+
+<blockquote>7776169 发表于 2020-5-29 11:43
+说不定这毒是cia带来的呢</blockquote>
+自信点，把说不定去掉(*^ω^*)
+
+
+
+
+
+
+
+-----
+
+####  yark556  
+##### 616#       发表于 2020-5-29 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586708&amp;ptid=1937970" target="_blank">btnasi 发表于 2020-5-28 09:53</a>
+
+中国不能杀黑人。美国可以随便杀。
+
+要我说就是比中国好。</blockquote>
+老哥说得好，可惜死鱼不足没办法帮您回血
+
+
+
+
+
+
+
+-----
+
+####  kurono  
+##### 617#       发表于 2020-5-29 11:57
+
+
+
+
+大概率这个人是白死了
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 618#       发表于 2020-5-29 11:57
+
+
+
+<blockquote>nessaj 发表于 2020-5-29 11:53
+这种惹人厌的暴动只能是毫无意义的情绪发泄，
+
+不可能对黑人现状产生任何改善，反而只会进一步造成族群撕裂 ...</blockquote>
+要有组织纪律性首先要有组织……只有乌合之众啥也干不成。
+
+美国黑人成立过组织，还是马列毛主义的组织，但是被剿灭了。也印证了毛导师的“红色ZQ无法在帝国主义和其直接统治的殖民地存在”的观点。
+
+现在黑人的唯一指望就是非洲地区出现一个正儿八经的“瓦坎达”。
+
+
+
+
+
+
+
+-----
+
+####  遗尿  
+##### 619#       发表于 2020-5-29 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600019&amp;ptid=1937970" target="_blank">Vincent_law 发表于 2020-5-29 11:53</a>
+
+#美国明尼阿波利斯市进入紧急状态# CNN现场画面,明尼阿波利斯警察局被烧了！记者说**现场没有警察在控制局 ...</blockquote>
+存人失地,人地皆存,存地失人,人地皆失么？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 620#       发表于 2020-5-29 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596998&amp;ptid=1937970" target="_blank">雷诺4000 发表于 2020-5-29 06:18</a>
+你搁这体亏屁思啥呢？
+
+
+尼格在美国很惨跟我们有啥关系？难道是我们害的吗？</blockquote>
+你所谓享有一等人地位的不是你口中的“尼格”，而是所有外国人。这其中有白人，有黑人，有黄种人。
+把一个**的问题带到种族问题上，要不就是你不敢或者不愿说白人，所以只针对黑人，要不就是你故意带节奏。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 621#       发表于 2020-5-29 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600041&amp;ptid=1937970" target="_blank">sk此方 发表于 2020-5-29 11:54</a>
+
+楼里不都说了有组织有纲领的全**死了
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 S1Next- ...</blockquote>
+所以美帝严防死守康米思想，生怕尼哥学会了造他们的反。我只想感叹虽然大家都调侃我国是资本主义的最后堡垒，但实际从小教育线还是有在教习马列主义毛思想，导致很多我们觉得理所当然的道理，尼哥却不懂。
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 622#       发表于 2020-5-29 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600110&amp;ptid=1937970" target="_blank">Char_Aznable 发表于 2020-5-29 11:57</a>
+
+要有组织纪律性首先要有组织……只有乌合之众啥也干不成。
+
+美国黑人成立过组织，还是马列毛主义的组织， ...</blockquote>
+瓦坎达也没用吧。
+
+就像中国越强大，在美华人越被排挤
+
+
+
+
+
+
+
+-----
+
+####  ARCtrooper  
+##### 623#       发表于 2020-5-29 12:00
+
+
+
+[https://kstp.com/news/george-flo ... ay-28-2020/5743990/](https://kstp.com/news/george-floyd-fired-officer-overlapped-security-shifts-at-south-minneapolis-club-may-28-2020/5743990/)
+
+
+新剧本，两人曾在同一家俱乐部工作过，可能彼此认识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 624#       发表于 2020-5-29 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599755&amp;ptid=1937970" target="_blank">临界点 发表于 2020-5-29 11:37</a>
+zzzq运动风行到令许多人反感，另一方面，在美黑人依然饱受歧视，两个直觉上相反的论断都是对的
+
+--------- ...</blockquote>
+是这个道理，这两件事情是相合的。
+只是楼里有人指出泥潭有既嘲讽黑人特殊待遇又同情黑人处境的言论矛盾，我在试图解释这个矛盾。
+
+—— 来自 HUAWEI ARE-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  xwr  
+##### 625#       发表于 2020-5-29 12:02
+
+
+
+
+明尼苏达国民警卫队出动，空中由第148战斗机联队（F-16C）取得制空权，地面由步34师第1装甲旅级战斗队进驻，下辖2联兵营，1步兵营，1骑兵营，1炮兵营，1工兵营，1后勤营，同时可以得到步34师战斗航空旅的支援。
+
+
+
+
+
+
+
+-----
+
+####  sk此方  
+##### 626#       发表于 2020-5-29 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600196&amp;ptid=1937970" target="_blank">xwr 发表于 2020-5-29 12:02</a>
+明尼苏达国民警卫队出动，空中由第148战斗机联队（F-16C）取得制空权，地面由步34师第1装甲旅级战斗队进驻 ...</blockquote>
+这还要出动战斗机？？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  品味有问题  
+##### 627#       发表于 2020-5-29 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600167&amp;ptid=1937970" target="_blank">03e7 发表于 2020-5-29 12:00</a>
+
+瓦坎达也没用吧。
+
+就像中国越强大，在美华人越被排挤</blockquote>
+总比进淋浴房好吧。
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 628#       发表于 2020-5-29 12:03
+
+
+
+<blockquote>真田丸 发表于 2020-5-29 11:59
+所以美帝严防死守康米思想，生怕尼哥学会了造他们的反。我只想感叹虽然大家都调侃我国是资本主义的最后堡 ...</blockquote>
+屠龙术虽然是屠龙术，但是它是真的可以屠龙
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 629#       发表于 2020-5-29 12:04
+
+
+
+<blockquote>03e7 发表于 2020-5-29 12:00
+瓦坎达也没用吧。
+
+就像中国越强大，在美华人越被排挤</blockquote>
+黑人不是没有精英的
+
+就像那个说“和中国的冲突是美国历史上绝无仅有的巨大挑战，这甚至不是一个高加索人种的政权”的黑人女议员（还是官员来着？）
+
+当然这种人已经是完全吃人血馒头的黑奸了。但是有这么一个政权存在，可以促进这些人重新思考立场和身份认同。
+
+
+
+
+
+                             
