@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 08:47** 
+> ## **本文件最后更新于2020-05-29 10:39** 
 
 
 
@@ -2071,10 +2071,11 @@ tiktokdown看起来跟这事没关系，单纯出毛病了。
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Registry| + 1|美利坚得国不正|
 | konami521| + 1|好评加鹅|
 | kurono| + 1|好评加鹅|
 | leotard| + 1|有道理|
@@ -9234,10 +9235,11 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 4战斗力 -1
+ 参与人数 5战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 烦死了|-1||
 | ごろ|-1||
 | 丁兔|-2|再臭一点|
 | tuiskusuomaa| + 1|好评加鹅|
@@ -9288,6 +9290,25 @@ national guard上街，然后抓几个人，这一波浪就过去了
 到这帖称谓又变成黑人了 ...</blockquote>
 少在那玩你们的船货邪教，树稻草人了。阿美利坚能够起来自然是建立在黑人的奴隶制上，他们自身都知道没法回避。但是你想把情况倒班过来，也太搞笑了吧。恶心不恶心啊。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wuzhino1| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -9911,10 +9932,17 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 11战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| diyihaoshitu| + 1|好评加鹅|
+| wuzhino1| + 1|好评加鹅|
+| 醉鸽子| + 1||
+| 饭来张口| + 1|骂的好|
+| kumquat_cc| + 1||
+| adapter| + 1||
+| 斯拉克自有妙计| + 1|好评加鹅|
 | miao123177| + 1|加回来 有什么好扣的|
 | swl007007|-1||
 | 皇帝雅西加| + 2||
@@ -10089,10 +10117,11 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育
 
 
 
- 参与人数 5战斗力 -6
+ 参与人数 6战斗力 -7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 烂柯人|-1||
 | yayoi801|-1||
 | 柴烧咖啡|-2||
 | 洛拉斯|-1|扣分是因为你**|
@@ -10141,4 +10170,1139 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育
 
 
 
-                                 
+
+
+-----
+
+####  山下野人  
+##### 511#       发表于 2020-5-29 07:47
+
+
+
+
+我一直觉得美国黑人是最符合亡国灭种这个词的，中国没了估计华裔比黑人还惨
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 512#       发表于 2020-5-29 08:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597178&amp;ptid=1937970" target="_blank">fsjrday 发表于 2020-5-29 07:40</a>
+
+在美国protest贴看到有hk人骂了句黑鬼被hk人围攻，其中有今天看到的最好笑的笑话
+
+“香港精神不支持种族歧视 ...</blockquote>
+我最讨厌两种人，种族主义者和大陆人
+
+
+
+
+
+
+
+-----
+
+####  雷鹰  
+##### 513#       发表于 2020-5-29 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596349&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-29 00:50</a>
+
+做明星这种成功路就是万里挑一，NBA那些成功的球员，去挖一下青少年时期经历，惨不忍睹的有的是。
+
+NBA招 ...</blockquote>
+我觉得明星对一般人就没有参考价值，因为天分是必要条件，演艺运动这些路大多数普通人再努力也就是混个温饱，远不如一般的正经工作好。就像你说的，提高教育和社区改造这些方向入手普及意义更大
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 514#       发表于 2020-5-29 08:57
+
+
+
+
+【美国#明尼苏达州将出动国民警卫队#维持秩序】据美联社报道，明尼阿波利斯和圣保罗市自26日陷入大规模**和骚乱后，美国明尼苏达州州长蒂姆·沃尔兹28日签署行政令，宣布全州进入紧急状态，将出动州国民警卫队维持秩序。
+5月25日，美国明尼苏达州明尼阿波利斯市一名46岁非洲裔男子遭遇暴力执法，被警察跪压喉部7分钟后死亡。该男子生前曾哀求“我没法呼吸”，却被无视。事件的起因仅是因为警方怀疑该男子使用了20美元的假钞。
+悲剧引发美国舆论强烈**，明尼阿波利斯市及其临近的圣保罗市从26日开始爆发大规模**。愤怒的**人群烧毁了市中心的商场和其他商业设施。#美国部分**者焚烧美国国旗#（张梦旭）
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 515#       发表于 2020-5-29 08:58
+
+
+
+
+这贴是不是出翻页bug了
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 516#       发表于 2020-5-29 08:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597060&amp;ptid=1937970" target="_blank">xxxllz 发表于 2020-5-29 06:55</a>
+nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquote>
+其实白人运动员也有一些，但是确实黑人运动员挥霍，被经纪人坑破产其实是个普遍现象
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 517#       发表于 2020-5-29 09:02
+
+
+
+
+看批岛速报2这个串里有人扒出无间道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 518#       发表于 2020-5-29 09:03
+
+
+
+
+其实我有一点搞不懂，顶楼那种压后脖子的压法，被压得人肯定难受，但为什么会影响呼吸，气管不是应该在脖子前面吗
+
+
+
+
+
+
+
+-----
+
+####  foreversmiles  
+##### 519#       发表于 2020-5-29 09:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597713&amp;ptid=1937970" target="_blank">03e7 发表于 2020-5-29 09:03</a>
+
+其实我有一点搞不懂，顶楼那种压后脖子的压法，被压得人肯定难受，但为什么会影响呼吸，气管不是应该在脖子 ...</blockquote>
+三个警察压着，呼吸需要扩张胸腔，压迫胸腔无法扩张就无法呼吸了。
+
+
+
+
+
+
+
+-----
+
+####  GMJ  
+##### 520#       发表于 2020-5-29 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579482&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-27 17:40</a>
+
+上次抖音看到一个视频
+
+
+一个群众落水  警察把铳给周围群众看管 然后下水救人了</blockquote>
+这种东西是可以随便给群众看管的？
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 521#       发表于 2020-5-29 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597787&amp;ptid=1937970" target="_blank">GMJ 发表于 2020-5-29 09:09</a>
+这种东西是可以随便给群众看管的？</blockquote>
+当然不能，但这能体现出中国警民关系和善
+
+—— 来自 vivo NEX A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 522#       发表于 2020-5-29 09:15
+
+
+
+
+白皮自不用说，黄皮在这视频里的角色太经典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 523#       发表于 2020-5-29 09:15
+
+
+
+
+真有人这种事是只有黑人资源不够的问题吗？
+
+
+根本不是，发生这种事的根本原因是美国本身的愚民+严重的贫富差距造成的。
+
+
+但凡美国底层老百姓能够多受到一点良好的基础教育，而不是神学教育。这种以杀人为乐的行为也不会这么广泛的发生。不少白人青年也趁这次机会在打砸。
+
+
+严重的贫富差距导致美国底层下的黑人白人资源越来越有限，加上愚民政策以及天然的种族差异，底层的民众自然而然不会想着去干上面那些个资本精英，而是把仇恨的目光转移到了种族差异上。当然这种事正好是上面资本精英所乐意看到的。
+
+
+
+
+
+
+
+-----
+
+####  laotoutou  
+##### 524#       发表于 2020-5-29 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591937&amp;ptid=1937970" target="_blank">新的未读消息 发表于 2020-5-28 17:15</a>
+黑人是真的烂泥扶不上墙。这次的受害者是标准的完美受害者，在社交媒体上反对黑人拥抱暴力。本来是个很好的 ...</blockquote>
+白人也在里面抢
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 525#       发表于 2020-5-29 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597859&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 09:15</a>
+真有人这种事是只有黑人资源不够的问题吗？
+
+
+根本不是，发生这种事的根本原因是美国本身的愚民+严重的贫富 ...</blockquote>
+种族问题不能完全去套阶级矛盾，是更加动物性的排他行为，黑人历史上就是被征服者，不可能有对等地位
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 526#       发表于 2020-5-29 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597954&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 09:23</a>
+
+种族问题不能完全去套阶级矛盾，是更加动物性的排他行为，黑人历史上就是被征服者，不可能有对等地位 ...</blockquote>
+不要单纯看黑人问题。
+
+
+白人这边问题也比较大。如果白人这边普遍受到较为良好的教育，就算歧视行为一直存在，也不会沦落到虐待杀人这种违背人性的行为。
+
+
+问题就在于美国广大黑人白人，都得不到良好的教育。
+
+
+阶级矛盾通过种族矛盾化解，这正好是美国特有的维稳方式，不服不行
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 527#       发表于 2020-5-29 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598007&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 09:26</a>
+不要单纯看黑人问题。
+
+
+白人这边问题也比较大。如果白人这边普遍受到较为良好的教育，就算歧视行为一直存 ...</blockquote>
+受教育就不会杀人了？你这逻辑就很错误，事实是各阶层的白皮都在歧视黑皮黄皮，这很明显不单是阶级矛盾
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 528#       发表于 2020-5-29 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595972&amp;ptid=1937970" target="_blank">DarkSider 发表于 2020-5-29 00:11</a>
+我国不干涉他国内政</blockquote>
+对外的脸皮太薄了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 529#       发表于 2020-5-29 09:31
+
+
+
+
+另外这次的黄皮警察扮演了一个相当有意思的角色，在美的高等黄皮感受到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 530#       发表于 2020-5-29 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598044&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 09:29</a>
+
+受教育就不会杀人了？你这逻辑就很错误，事实是各阶层的白皮都在歧视黑皮黄皮，这很明显不单是阶级矛盾 ...</blockquote>
+受良好的教育，和受教育可不是一个概念。
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 531#       发表于 2020-5-29 09:42
+
+
+
+
+‘If You Say You Can’t Breathe, You’re Breathing’: Mississippi Mayor Defends Officers Involved in George Floyd’s Arrest
+[https://lawandcrime.com/high-pro ... orge-floyds-arrest/](https://lawandcrime.com/high-profile/if-you-say-you-cant-breathe-youre-breathing-mississippi-mayor-defends-officers-involved-in-george-floyds-arrest/)
+
+
+密西西比州一名白人市长为警察辩护：当你喊出“我不能呼吸了”的时候，你不是正在呼吸吗？
+
+
+你都能喊话求救了，还敢骗人说自己不能呼吸？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 532#       发表于 2020-5-29 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592792&amp;ptid=1937970" target="_blank">hellgate22 发表于 2020-5-28 18:25</a>
+
+难道您不知道能够组织起黑人的人都被美国**干掉了嘛？</blockquote>
+值得尊重的**死了……
+
+黑豹**的早期领导人真的可惜，或者说美国真的只适合曲线救国吧
+
+希望有真有能力的黑人潜伏下来吧
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 533#       发表于 2020-5-29 09:43
+
+
+
+<blockquote>longrider 发表于 2020-5-29 09:42
+‘If You Say You Can’t Breathe, You’re Breathing’: Mississippi Mayor Defends Officers Involved in ...</blockquote>
+艹，杠精当市长
+
+
+我们世界得low到什么地步
+
+
+
+
+
+
+
+-----
+
+####  pyd68tc  
+##### 534#       发表于 2020-5-29 09:43
+
+
+
+
+好，多搞，大搞，星星之火可以燎原
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 535#       发表于 2020-5-29 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598131&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 09:35</a>
+受良好的教育，和受教育可不是一个概念。</blockquote>
+别骗自己了，再怎么良好的教育也会杀人，不需要我举例吧？阶级矛盾不能完全解释这种仇恨就不要硬上。
+
+这事本质就是种族歧视，动物性的排它，白皮间的天然认同，对黑皮的歧视不需要理由，黑皮历史上就是美国贱民；黄皮的趋炎附势，觉得自己“本分”了；黑皮的事前天真顺从事后的无力骚乱。
+
+
+
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 536#       发表于 2020-5-29 09:45
+
+
+
+
+这就是前车之鉴啊，黑人比率高到一定程度就是这结果，中国防疫大成功多亏了单种族国家
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 537#       发表于 2020-5-29 09:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593111&amp;ptid=1937970" target="_blank">夜贼外卖 发表于 2020-5-28 18:53</a>
+
+曾经有过有组织有纪律的黑人组织啊，你猜猜这黑板上写的啥？</blockquote>
+马丁路德金也是被推出来摘果实的，不过个人素质太差后被清理了
+
+宣传机器真的很厉害啊
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 538#       发表于 2020-5-29 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598220&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 09:43</a>
+
+别骗自己了，再怎么良好的教育也会杀人，不需要我举例吧？阶级矛盾不能完全解释这种仇恨就不要硬上。
+
+
+这 ...</blockquote>
+给我举个例子吧，要通用那种的
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 539#       发表于 2020-5-29 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598202&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 09:42</a>
+‘If You Say You Can’t Breathe, You’re Breathing’: Mississippi Mayor Defends Officers Involved in ...</blockquote>
+密西西比我记得很保守的州吧
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 540#       发表于 2020-5-29 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598213&amp;ptid=1937970" target="_blank">AlienFromEarth 发表于 2020-5-29 09:43</a>
+艹，杠精当市长
+
+
+我们世界得low到什么地步</blockquote>
+都是念台词给自己的基本盘听，又坏又蠢
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 541#       发表于 2020-5-29 09:51
+
+
+
+
+黑皮没搞明白，种族问题上历史被征服者永远都是贱民，想要翻身只能反过来，这在当前环境下无异于痴人说梦。
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 542#       发表于 2020-5-29 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593358&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-28 19:19</a>
+
+有潜力的大国 埃塞和肯尼亚吗？ 南非似乎没指望的样子</blockquote>
+卢旺达也算经历血和火的重生了，他们的领导人也算有手腕，民族和解这一关算是过了。看后面怎么发展了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 543#       发表于 2020-5-29 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598248&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 09:46</a>
+给我举个例子吧，要通用那种的</blockquote>
+怎么个通用法？举点高学历杀人的例子？良好的教育就不会杀人，这话你自己信吗？
+
+
+
+
+
+
+
+-----
+
+####  别说了行不行  
+##### 544#       发表于 2020-5-29 09:57
+
+
+
+
+心疼，下辈子投胎山东和广州
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 545#       发表于 2020-5-29 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594540&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-28 22:22</a>
+
+泥潭小将们传统艺能，打奥巴马时代就黑鬼尼格天天挂嘴上，直接搜帖子标题都大把
+
+
+到这帖称谓又变成黑人了 ...</blockquote>
+美国黑人的存在政**窗口期也就是在奥巴马时期了，但是你看被挥霍过去了，看这次疫情能否团结这些黑人。黑人也要团结其他族群，老拿种族主义说事和拿些小恩小惠真的没出息的。
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 546#       发表于 2020-5-29 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595734&amp;ptid=1937970" target="_blank">DarkSider 发表于 2020-5-28 23:49</a>
+
+黑人哪来的精英</blockquote>
+这次死的算是黑人中的精英
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 547#       发表于 2020-5-29 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598410&amp;ptid=1937970" target="_blank">wuzhino1 发表于 2020-5-29 09:59</a>
+这次死的算是黑人中的精英</blockquote>
+不算吧，之前那个被女警枪毙普华永道四大的黑人算
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 548#       发表于 2020-5-29 10:02
+
+
+
+
+文化膜因是自动传播维持，不需要符合理性人的精确算计。种族主义的逻辑上把个案归为全体，哪怕**整体男女收入差距低于全国/其他族群，只要有一个**打老婆/穿罩袍的就会维持这种印象，甚至没有案例也可以虚构。
+
+那么什么样的**可以彻底逃避歧视呢？长得像欧洲白人的。
+
+这里涉及另外一个重要概念：种族的本质是长相分类，和人口普查局的定义，地理来源，文化习惯等没有关系，如果白人被**定义成某个范围的肤色，浅肤色东亚人仍然会因为脸型明显不同被轻易分辨出来。80年代美国人再怎么抽象概念上仇恨东欧人，付诸仇恨暴力犯罪都是无法操作的。
+
+黑皮在美国受歧视就是因为黑，历史上贱，没别的。
+
+
+
+
+
+
+
+-----
+
+####  xxxllz  
+##### 549#       发表于 2020-5-29 10:03
+
+
+
+
+缺乏教育带来的一个严重问题，就是认不清自己的利益所在，依靠非常本能朴素善恶观去判断，但这种善恶观也是被养猪教育灌输的
+
+
+
+黑人和底层缺乏的不只是高等教育，而是健全的基本教育，现在这种养猪教育能养出什么知道自己想要什么的人？
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 550#       发表于 2020-5-29 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598465&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 10:02</a>
+文化膜因是自动传播维持，不需要符合理性人的精确算计。种族主义的逻辑上把个案归为全体，哪怕**整体男女收 ...</blockquote>
+斯拉夫人长得不太一样
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 551#       发表于 2020-5-29 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598472&amp;ptid=1937970" target="_blank">斯拉克自有妙计 发表于 2020-5-29 10:03</a>
+斯拉夫人长得不太一样</blockquote>
+这要看和谁摆在一起了，亚裔黄皮仔细看还有不同呢
+
+
+
+
+
+
+
+-----
+
+####  逐天  
+##### 552#       发表于 2020-5-29 10:08
+
+
+
+
+上层黑人精英被收买，下层黑人野爹乱舞自甘堕落，最惨的是两边心里都不把对面当成同胞
+
+其实美国也不是没救过吧，我看资料有搞过社区融合，给黑人教育啥的，然后黑人一来毒品也来了，下水救人自己也淹死了…
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 553#       发表于 2020-5-29 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588649&amp;ptid=1937970" target="_blank">水表 发表于 2020-5-28 12:33</a>
+
+还是有很多人对美国种族问题的严重性严重缺乏认识，还觉得黑人运动矫枉过正、是在要特权。 ...</blockquote>
+黑人运动在奥巴马这个黄金时期就停留在要特权的阶段了，矫枉过正不是这么用的，没组织不团结把自己和其他被压迫的人群割裂开，然后利用特权压迫其他人群，然后还沾沾自喜自以为占得便宜，真的是幼稚
+
+
+当然为何这么幼稚是因为不幼稚的都被弄死了吧，所以对于现在美国黑人群体我只同情不尊重
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 554#       发表于 2020-5-29 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591488&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:40</a>
+
+意思是论坛多年来一片嘲讽黑命贵反白左的都是不存在的空气</blockquote>
+如果你不理解反对黑命贵和支持黑人革命之间的联系，那你这个二极管真的应该多读读书了
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 555#       发表于 2020-5-29 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598078&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 09:31</a>
+
+另外这次的黄皮警察扮演了一个相当有意思的角色，在美的高等黄皮感受到了吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">黄皮果然当了白人为非作歹的帮凶。
+
+
+
+底下评论：
+
+美国如果死了10万条狗，肯定早就闹翻天了。 香蕉人们果然有先见之明，一开始就奔着当美国狗去的，而不是当人。 佩服佩服。
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 556#       发表于 2020-5-29 10:15
+
+
+
+<blockquote>逐天 发表于 2020-5-29 10:08
+上层黑人精英被收买，下层黑人野爹乱舞自甘堕落，最惨的是两边心里都不把对面当成同胞
+
+其实美国也不是没救 ...</blockquote>
+据说黑人社区的d的后台老板是cia，so。。。。。。
+
+
+这一百年对黑人这个群体的拆分是全方位的，是精巧无比的，简直绝了，美国上层是什么怪物居然能设计出这么看着没啥但是精妙的手法
+
+
+
+
+
+
+
+-----
+
+####  jellyfis  
+##### 557#       发表于 2020-5-29 10:17
+
+
+
+
+在美国警察有杀人执照
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 558#       发表于 2020-5-29 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592530&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 18:02</a>
+
+民族矛盾是主要矛盾，阶级矛盾是次要矛盾，美国黑人只有重塑民族主体找**族认同，才能进行下一步比如进行 ...</blockquote>
+黑豹**还是成功的，只是反动势力太强大了，对强大到让人绝望，我觉得就算一共上层一起灵魂穿越黑人都没法在那时候解决这个问题
+
+
+我觉得阶级矛盾还是主要矛盾，美国JY层太聪明了用民族矛盾掩盖了阶级矛盾这点
+
+
+
+
+
+
+
+-----
+
+####  破罐子  
+##### 559#       发表于 2020-5-29 10:22
+
+
+
+
+昨天微博看到的，笑死我了。<img src="https://p.sda1.dev/0/e04a7868e71fca3bc9feb93d78ded876/IMG_1BC46148DFAA59C200121936554ECB7C.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 560#       发表于 2020-5-29 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598630&amp;ptid=1937970" target="_blank">AlienFromEarth 发表于 2020-5-29 10:15</a>
+据说黑人社区的d的后台老板是cia，so。。。。。。
+
+
+这一百年对黑人这个群体的拆分是全方位的，是精巧无比 ...</blockquote>
+没有厉害的对手就没有伟大的成就，厉害的对手最好自己来培养，这方面其实几大流氓操作都一样，不细说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鸟耶稣  
+##### 561#       发表于 2020-5-29 10:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">昨晚看杨世光讲这事笑死了
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 562#       发表于 2020-5-29 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598715&amp;ptid=1937970" target="_blank">破罐子 发表于 2020-5-29 10:22</a>
+
+昨天微博看到的，笑死我了。</blockquote>
+这算是欧美国家宣传香港暴乱的反噬
+
+还是香港暴乱学习了欧美的先进经验？
+
+亦或者是互相学习互相吸收呢？
+
+
+出口转内销我觉得应是这种模式
+
+
+
+
+
+
+
+-----
+
+####  雨落飘零  
+##### 563#       发表于 2020-5-29 10:27
+
+
+
+<blockquote>wuzhino1 发表于 2020-5-29 09:51
+卢旺达也算经历血和火的重生了，他们的领导人也算有手腕，民族和解这一关算是过了。看后面怎么发展了 ...</blockquote>
+卢旺达本身太小了，不足3万平方公里，人口不到一千万，倒不如说这么个小国还能出个卡加梅这个水准的领导，很让人意外。但是具体到“谁能举起黑人族群大旗”这个问题，卢旺达实在太小了，体量就决定了它没机会
+
+
+
+
+
+
+
+-----
+
+####  令和忍者  
+##### 564#       发表于 2020-5-29 10:27
+
+
+
+
+半资本半封建社会的愚民的悲哀。
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 565#       发表于 2020-5-29 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598794&amp;ptid=1937970" target="_blank">雨落飘零 发表于 2020-5-29 10:27</a>
+
+卢旺达本身太小了，不足3万平方公里，人口不到一千万，倒不如说这么个小国还能出个卡加梅这个水准的领导 ...</blockquote>
+也算是一个先进经验了，不知道其他非洲人民能再拥护出这么一个领导来么？
+
+再说非洲国与国之间的概念没东亚这么强烈吧，这次疫情真的是非洲国家解决这类问题的窗口期
+
+
+
+
+
+
+
+-----
+
+####  OZV522  
+##### 566#       发表于 2020-5-29 10:30
+
+
+
+
+闹不出什么新花样，国民警卫队一进城就都消停了
+
+这帮子闹事的就是想乘火打劫
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 567#       发表于 2020-5-29 10:34
+
+
+
+
+美国翻身相对成功的就是爱尔兰裔和意大利裔吧，不过人家有天主教、有家庭观念组织。下一个有希望的可能是老墨这些hispanic和阿三。
+
+可能等他们上去了，黑人还和无头苍蝇一样
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 568#       发表于 2020-5-29 10:36
+
+
+
+
+速度真快
+
+
+
+
+
+
+6C73C9B6-09A9-4414-AA80-0AFD7129892A.jpeg
+(569.79 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-29 10:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/103624l5gg5m2qymt5vceb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 569#       发表于 2020-5-29 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598874&amp;ptid=1937970" target="_blank">Lord_Voldemort 发表于 2020-5-29 10:34</a>
+美国翻身相对成功的就是爱尔兰裔和意大利裔吧，不过人家有天主教、有家庭观念组织。下一个有希望的可能是老 ...</blockquote>
+这些不是传统黑帮吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，我看电影上干黑帮的都是意大利爱尔兰人
+
+
+
+
+
+                               
