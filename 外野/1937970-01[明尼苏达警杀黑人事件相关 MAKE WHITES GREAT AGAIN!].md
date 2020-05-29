@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 12:06** 
+> ## **本文件最后更新于2020-05-29 14:12** 
 
 
 
@@ -1868,10 +1868,11 @@ dream管屁用，真正让白皮收敛的是黑豹党。</blockquote>
 
 
 
- 参与人数 3战斗力 +1
+ 参与人数 4战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| fxz822| + 1|xsl1099，鸡怎么你了？|
 | 尘世的忧伤| + 1|回血|
 | 亚瑟邓特| + 1|没必要|
 | xsl1099|-1|鸡怎么你了|
@@ -2071,10 +2072,11 @@ tiktokdown看起来跟这事没关系，单纯出毛病了。
 
 
 
- 参与人数 5战斗力 +5
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 秦一鸣| + 1|好评加鹅|
 | Registry| + 1|美利坚得国不正|
 | konami521| + 1|好评加鹅|
 | kurono| + 1|好评加鹅|
@@ -5583,10 +5585,11 @@ FLASHLIGHT
 
 
 
- 参与人数 3战斗力 -3
+ 参与人数 4战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 弧离的三型|-1|？？？？？|
 | vigilance|-1||
 | 荒南君|-1|只会口嗨的黄皮肥皂。|
 | 长弓破风|-1|你个亚裔在美国也属于可以随便杀的范畴.|
@@ -9237,10 +9240,12 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 6战斗力 -1
+ 参与人数 8战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 龙爪| + 1|确实|
+| Zuckerfrei|-1||
 | wjhzha| + 1|好评加鹅|
 | 烦死了|-1||
 | ごろ|-1||
@@ -9935,10 +9940,14 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 15战斗力 +15
+ 参与人数 19战斗力 +19
 
 |昵称|战斗力|理由|
 |----|---|---|
+| yst234| + 1|好评加鹅|
+| 黑白驳影| + 1|好评加鹅|
+| claymores| + 1|好评加鹅|
+| 菟原手兒奈| + 1||
 | 雪夜霧語| + 1||
 | lurenasa| + 1||
 | 烦死了| + 1|好评加鹅|
@@ -10809,6 +10818,25 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquot
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qx1995|-1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11390,10 +11418,11 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquot
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 西瓜田里的飞鱼| + 1|没有暴力机器的推波助澜很难到第二重的.|
 | dpdwx| + 1|你真的觉得国人只在第一重吗|
 
 
@@ -12643,4 +12672,532 @@ zzzq运动风行到令许多人反感，另一方面，在美黑人依然饱受�
 
 
 
-                             
+
+
+-----
+
+####  yangkaim4  
+##### 630#       发表于 2020-5-29 12:07
+
+
+
+
+美国黑人问题不是黑人的问题，根本原因是美匪帮政权实力太强大了
+
+
+
+
+
+
+
+-----
+
+####  发霉长毛等救济  
+##### 631#       发表于 2020-5-29 12:08
+
+
+
+
+马列主义的先进性的又一力证
+
+这么好的舆论优势能变成这个样子我佛了
+
+
+
+
+
+
+
+-----
+
+####  沉默之声  
+##### 632#       发表于 2020-5-29 12:10
+
+
+
+
+在wasp和黑墨之间，鸡蛋是谁还不明显？
+
+活该美国遭报应，这种种族主义源头国家确实该被黑墨治治
+
+
+
+
+
+
+
+-----
+
+####  梁日浮  
+##### 633#       发表于 2020-5-29 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600029&amp;ptid=1937970" target="_blank">nessaj 发表于 2020-5-29 11:53</a>
+这种惹人厌的暴动只能是毫无意义的情绪发泄，
+
+不可能对黑人现状产生任何改善，反而只会进一步造成族群撕裂 ...</blockquote>
+凡是能组织黑人团结黑人的人，都会光速被CIA抬走
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 634#       发表于 2020-5-29 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600169&amp;ptid=1937970" target="_blank">ARCtrooper 发表于 2020-5-29 12:00</a>
+
+https://kstp.com/news/george-floyd-fired-officer-overlapped-security-shifts-at-south-minneapolis-clu ...</blockquote>
+开始往私仇上带风向
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 635#       发表于 2020-5-29 12:16
+
+
+
+<blockquote>梁日浮 发表于 2020-5-29 12:10
+凡是能组织黑人团结黑人的人，都会光速被CIA抬走
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+反了，米帝国内是fbi
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 636#       发表于 2020-5-29 12:21
+
+
+
+<blockquote>沉默之声 发表于 2020-5-29 12:10
+在wasp和黑墨之间，鸡蛋是谁还不明显？
+
+活该美国遭报应，这种种族主义源头国家确实该被黑墨治治 ...</blockquote>
+是的，美国黑人问题不是黑人的问题而是美国的问题。
+
+是美国强大的“原罪”。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 沉默之声| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kingsin  
+##### 637#       发表于 2020-5-29 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587064&amp;ptid=1937970" target="_blank">hutuguug 发表于 2020-5-28 10:23</a>
+黑人怎么学不会抱团，要用思想来武装自己啊。
+
+这种情况，一拥而上，来个几千人的暴动，美国岂不美滋滋。 ...</blockquote>
+老说武装，黑鬼又买不起长的weapon，随便一支ar15系都要一千美刀以上，更没钱买消耗品来纯练习，美国有拥有weapon的自田但不包括穷鬼
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 638#       发表于 2020-5-29 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600169&amp;ptid=1937970" target="_blank">ARCtrooper 发表于 2020-5-29 12:00</a>
+https://kstp.com/news/george-floyd-fired-officer-overlapped-security-shifts-at-south-minneapolis-clu ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">害 公报私仇？
+
+
+
+
+
+
+
+-----
+
+####  沉默之声  
+##### 639#       发表于 2020-5-29 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599804&amp;ptid=1937970" target="_blank">Char_Aznable 发表于 2020-5-29 11:40</a>
+
+上层黑人利用了大多数黑人被歧视的现状，通过ZZZQ运动为自己牟利。
+
+换句话说——吃人血馒头。 ...</blockquote>
+美国本质上还是贵族共和国，不是出卖黑人利益的黑奸混不进顶层圈子
+
+但ZZZQ是武器的批判而不是人血馒头
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 640#       发表于 2020-5-29 12:26
+
+
+
+ 本帖最后由 AlienFromEarth 于 2020-5-29 12:36 编辑 
+
+降世神通科拉传奇第一部结尾之所以烂和之所以神都在这里了。烂是因为它用机械降神的各种方法将大义消解为私仇野心精神病（领导人其实就是对面的人一直在骗人啊，搞事的原因是私仇童年不幸啊，暴力不好啊神经病啊），同样的神也是神在在编剧为了不让阿蒙真的是英雄于是编出来机械降神的黑法简直是现实里黑法的陈列展览
+
+
+
+
+
+
+
+-----
+
+####  雷诺4000  
+##### 641#       发表于 2020-5-29 12:35
+
+
+
+ 本帖最后由 雷诺4000 于 2020-5-29 12:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600140&amp;ptid=1937970" target="_blank">风猫 发表于 2020-5-29 11:59</a>
+
+你所谓享有一等人地位的不是你口中的“尼格”，而是所有外国人。这其中有白人，有黑人，有黄种人。
+
+把一 ...</blockquote>
+废话，对于享有一等人特权的雪肤豚一样该**，这有什么疑问吗？这难道不是不言自明的默认选项吗？
+
+
+你的鹅已经说明了你带节奏的功力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 642#       发表于 2020-5-29 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598825&amp;ptid=1937970" target="_blank"> wuzhino1 发表于 2020-5-29 10:29</a> 引用:雨落飘零 发表于 2020-5-29 10:27 卢旺达本身太小了，不足3万平方公里，人口不到一千万，倒不如说这么个小国还能出个卡加梅这个水准的领导 ... 也算是一个先进经验了，不知道其他非洲人民能再拥护出这么一个领导来么？ 再说非洲国与国之间的概念没东亚这么强烈吧，这次疫情真的是非洲国家解决这类问题的窗口期 </blockquote>
+坦桑尼亚 肯尼亚 乌干达 布隆迪 卢旺达  
+
+
+五国现在一直在谈联合搞东非联邦  算一个机会了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  厄神之息  
+##### 643#       发表于 2020-5-29 12:42
+
+
+
+
+一贴看下来，正经东西没看见多少。一闪一闪亮晶晶，满天都是小星星倒是给我印象深刻，有08年贴吧内味了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  holyblood  
+##### 644#       发表于 2020-5-29 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598220&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 09:43</a>
+
+别骗自己了，再怎么良好的教育也会杀人，不需要我举例吧？阶级矛盾不能完全解释这种仇恨就不要硬上。
+
+
+这 ...</blockquote>
+单个的人当然受多高的教育都可能杀人。但受过教育可以降低人的犯罪率。
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 645#       发表于 2020-5-29 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600681&amp;ptid=1937970" target="_blank">雷诺4000 发表于 2020-5-29 12:35</a>
+废话，对于享有一等人特权的雪肤豚一样该**，这有什么疑问吗？这难道不是不言自明的默认选项吗？
+
+
+你的鹅 ...</blockquote>
+那就别带国内种族主义的节奏。有这精力去火山蛙蛙那儿挑动挑动社会矛盾种族对立不香吗？
+
+种族主义就是个粪坑，每个国家都避之不及。能说我杀你是因为我恨你就别说我杀你是因为你的肤色。你说是因为国籍都没事。
+
+前面说得对，我们没有种族问题的历史，所以我们完全可以不必趟这屎坑。就这样还使劲往身上抹屎，不是蠢就是坏。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 646#       发表于 2020-5-29 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600830&amp;ptid=1937970" target="_blank">holyblood 发表于 2020-5-29 12:45</a>
+
+单个的人当然受多高的教育都可能杀人。但受过教育可以降低人的犯罪率。 ...</blockquote>
+当然能降低，但种族歧视本质上不是阶级差距带来的教育问题
+
+
+
+
+
+
+
+-----
+
+####  弧离的三型  
+##### 647#       发表于 2020-5-29 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599021&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 10:45</a>
+国民警卫队算军队吗</blockquote>
+国民警卫队可是有正经的战机，大炮的存在啊
+
+
+
+
+
+
+
+-----
+
+####  东方定助  
+##### 648#       发表于 2020-5-29 12:56
+
+
+
+
+郁可唯
+
+I can’t stand back &amp; watch this happen to a great American City, Minneapolis. A total lack of leadership. Either the very weak Radical Left Mayor, Jacob Frey, get his act together and bring the City under control, or I will send in the National Guard &amp; get the job done right.....
+
+由 翻译自 英语
+
+我不能退缩，看着这种情况发生在伟大的美国城市明尼阿波利斯。完全缺乏领导能力。要么是非常软弱的激进左派市长雅各布·弗雷（Jacob Frey），将他的举动放到一起，使纽约市受到控制，要么我派遣国民警卫队，把工作做好。
+
+
+....These THUGS are dishonoring the memory of George Floyd, and I won’t let that happen. Just spoke to Governor Tim Walz and told him that the Military is with him all the way. Any difficulty and we will assume control but, when the looting starts, the shooting starts. Thank you!
+
+由 翻译自 英语 
+
+....这些暴徒正在羞辱乔治·弗洛伊德的记忆，我不会让这种事情发生。刚刚与州长蒂姆·沃尔兹（Tim Walz）交谈，并告诉他，军方一直陪在他身边。遇到任何困难，我们将控制一切，但是，当抢劫开始时，射击就开始了。谢谢！
+
+
+
+
+
+   
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 649#       发表于 2020-5-29 12:59
+
+
+
+ 本帖最后由 ###### 于 2020-5-29 13:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599672&amp;ptid=1937970" target="_blank">临界点 发表于 2020-5-29 11:31</a>
+
+非洲原先只有部落的概念吧  现在所谓的国家都是殖民地独立出来的  很多人老是把黑人归到一个族群里面 但 ...</blockquote>
+非洲被殖民前有不少封建国家的 东边埃塞尔俄比亚西边有桑海帝国马里帝国贝宁王国 中部刚果王国 南部祖鲁王国。 北方和沿海有绿化的桑给帝国 苏丹国。还有一些零散的沿海城邦。但是除了埃塞俄比亚全被西方殖民者系统性的抹杀掉了，存留的东西不多。非洲文明是被西方白人持续近千年的洗劫掠夺殖民给毁掉的。一个有着人类火种的地方怎么可能是黑暗大陆。
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 650#       发表于 2020-5-29 13:24
+
+
+
+
+看了一下日雅新闻，貌似首页完全没相关消息。
+
+写美国的都在写美中对立。
+
+要翻到国际版才有
+
+
+
+
+
+
+
+-----
+
+####  ARCtrooper  
+##### 651#       发表于 2020-5-29 13:38
+
+
+
+ 本帖最后由 ARCtrooper 于 2020-5-29 13:42 编辑 
+
+夜间暴乱中射杀了疑似抢劫犯的当铺业主被提走，而整个事件的始作俑者依然在家中等待调查。
+
+[https://twitter.com/BNONews/status/1266136952874696709](https://twitter.com/BNONews/status/1266136952874696709)
+
+
+地方检察官称不要急于下结论，尚有不支持刑事指控的证据
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 652#       发表于 2020-5-29 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599672&amp;ptid=1937970" target="_blank">临界点 发表于 2020-5-29 11:31</a>
+
+非洲原先只有部落的概念吧  现在所谓的国家都是殖民地独立出来的  很多人老是把黑人归到一个族群里面 但 ...</blockquote>
+既然是部落哪有民族概念？民族概念还不是被殖民者强加在头上的
+
+
+要说长相身材等殖民者划分法，广西汉族和东北汉族的差距那妥妥的得几个民族，按照方言再画出来几个民族？
+
+你一边说非洲是部落概念，一边说250多个民族。这不就是殖民者给你的想法么？
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 653#       发表于 2020-5-29 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600019&amp;ptid=1937970" target="_blank">Vincent_law 发表于 2020-5-29 11:53</a>
+
+#美国明尼阿波利斯市进入紧急状态# CNN现场画面,明尼阿波利斯警察局被烧了！记者说**现场没有警察在控制局 ...</blockquote>
+正好烧毁一些证据？非常棒，解决历史问题了？
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 654#       发表于 2020-5-29 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600020&amp;ptid=1937970" target="_blank">真田丸 发表于 2020-5-29 11:53</a>
+
+黑人真是扶不起的阿斗，原本是占据政治正确的上风，正好可以倒逼**惩治恶警，立法保护自身利益，现在**完全 ...</blockquote>
+有能力的不是被收买或者被暗杀了，你有点太苛责美国黑人了，反正在资本主义大本营搞革命真的不容易，有这个想法的去非洲领导黑人都比留美国安全多了
+
+
+当然最佳窗口期是在奥巴马的8年内，黑人就是用一些小恩小惠和对于其他少数族裔（和底层人民）的特权被糊弄过去了，是有点差
+
+
+不过我这种远距离看热闹的还是很有教育意义的，是一次非常好的爱国主义教育
+
+
+
+
+
+                            

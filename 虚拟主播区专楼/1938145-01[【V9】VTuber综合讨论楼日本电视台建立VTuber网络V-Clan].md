@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 12:08** 
+> ## **本文件最后更新于2020-05-29 14:14** 
 
 
 
@@ -8520,7 +8520,7 @@ ig功不可没，最成功的破坏者
 V圈后浪有点多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 昨天两个人摸了两小时的互画像
-<img src="https://pbs.twimg.com/media/EZCah7xUYAAQk7m?format=jpg&amp;name=medium" id="aimg_adojX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZCah7xUYAAQk7m?format=jpg&amp;name=medium" id="aimg_H3v2v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13582,7 +13582,7 @@ holo在4chan刷的那叫一个夸张
 
 
 小护士她妈画的敌社真好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EWDJv_wUYAAERAr?format=png&amp;name=small" height="500" id="aimg_wT89W" onclick="zoom(this, this.src, 0, 0, 0)" width="461"/)
+<img src="https://pbs.twimg.com/media/EWDJv_wUYAAERAr?format=png&amp;name=small" height="500" id="aimg_wRLeo" onclick="zoom(this, this.src, 0, 0, 0)" width="461"/)
 
 
 
@@ -16364,10 +16364,11 @@ ABE
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 好德我基| + 1|裁兔🔒了🔒了|
 | 与天争锋_LZ|-1|晦气|
 
 
@@ -17982,4 +17983,2150 @@ m ...</blockquote>
 
 
 
-                  
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 946#       发表于 2020-5-29 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600284&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-29 12:08</a>
+
+建议学习少主天天灌输温暖大家庭概念，以后受委屈了，箱推必重拳出击橄榄毒唯。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在有人能和狐狸比这个么。。。。。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 947#       发表于 2020-5-29 12:10
+
+
+
+
+箱箱都有本难念的经 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 948#       发表于 2020-5-29 12:12
+
+
+
+
+peko周末会冲一波嘛？
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 949#       发表于 2020-5-29 12:13
+
+
+
+
+Pro哥其实是苔anti吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">M楼都不少人拔梁木了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 950#       发表于 2020-5-29 12:13
+
+
+
+
+但是要注意小心反噬，洗 nao完成的箱推以箱为重，哪怕是少主也要被怼。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 951#       发表于 2020-5-29 12:13
+
+
+
+
+V吧吧主我还没去投票，今晚观望一下再投，看了下这个绅士般的存在在绿帽坛的拉票宣言，有点魔怔啊，不过反正对我来说，只要把爱讨论的发屎图的还有乐子人都塞了就是好的。
+[https://bbs.nga.cn/read.php?pid=425002681&amp;opt=128](https://bbs.nga.cn/read.php?pid=425002681&amp;opt=128)
+
+
+
+省一楼，新音羽拉拉这大早上连唱四小时歌回挺好的，有兴趣可以听听
+[https://youtu.be/iAmmCGHHFek](https://youtu.be/iAmmCGHHFek)
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 952#       发表于 2020-5-29 12:14
+
+
+
+ 本帖最后由 colodes 于 2020-5-29 12:15 编辑 
+
+椎名唯華👻（上午11:21 · 2020年5月29日）
+
+@yuika_siina
+
+おはしいな～👻
+
+
+14時→FF7⚔
+
+20時→APEX🔫おかゆあくあ
+
+
+夜ねむくなりそーだしお昼にFFやるよ( '꒳' )！
+
+よろしくお願いします！[https://twitter.com/yuika_siina/status/1266207889804255234](https://twitter.com/yuika_siina/status/1266207889804255234)
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 953#       发表于 2020-5-29 12:14
+
+
+
+
+看起来像是这是数字民的执念，可能是想要苔苔的数字
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 954#       发表于 2020-5-29 12:15
+
+
+
+
+V吧这新吧主我怎么看着像节奏大 师
+
+S1屏蔽词好怪
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 955#       发表于 2020-5-29 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600369&amp;ptid=1938145" target="_blank">free 发表于 2020-5-29 12:13</a>
+
+V吧吧主我还没去投票，今晚观望一下再投，看了下这个绅士般的存在在绿帽坛的拉票宣言，有点魔怔啊，不过反 ...</blockquote>
+非公开视频
+
+免费你是不是把人家会限放出来了?
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 956#       发表于 2020-5-29 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600066&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-5-29 11:56</a>
+
+木口ARK就算没有芙宝事件也就多续命两周、虹ARK才是当初同接这么好看、现在怎么萎的比holo还快 ...</blockquote>
+你别忘了在夸皇退坑之前就没什么人登录了
+
+三期生全员最后一次登录是建三期生房子的那次联动
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 957#       发表于 2020-5-29 12:18
+
+
+
+
+现在B站能做到想激光就激光的除了星组还有哪一家?
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 958#       发表于 2020-5-29 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600418&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-29 12:17</a>
+
+非公开视频
+
+免费你是不是把人家会限放出来了?</blockquote>
+非公开和会限有啥关系...就是自己唱完给隐藏了，再说uta部都没开油 管会员的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 959#       发表于 2020-5-29 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600083&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-29 11:56</a>
+
+上位管人做事一大标准是同接，龙皇如果有本事把ark新图搞成同接能平a2w，废人们马上回来。 ...</blockquote>
+做不到
+
+她自己平时ark同接都够呛
+
+ark大势已去了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 960#       发表于 2020-5-29 12:19
+
+
+
+ 本帖最后由 proxima 于 2020-5-29 12:22 编辑 
+
+海苔男要是能像白少主那么pro还会被人当姨文化代表吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想职业一点又做不到天天搁那露出menhera本质，到头来gachi也杀了又没有箱推粉两头不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+海苔男跟女儿关系再好也不影响底下信者打架的，苔宝这波再撑下去也只能打肿脸充debu了
+
+
+有点怪，怎么debu都是屏蔽词了，那little boy也是吗
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 961#       发表于 2020-5-29 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600418&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-29 12:17</a>
+
+非公开视频
+
+免费你是不是把人家会限放出来了?</blockquote>
+放心，会限不开会员直接不能看的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 962#       发表于 2020-5-29 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600441&amp;ptid=1938145" target="_blank">free 发表于 2020-5-29 12:18</a>
+
+非公开和会限有啥关系...就是自己唱完给隐藏了，再说uta部都没开油 管会员的 ...</blockquote>
+哦哦，我还以为是以前那种假会限。
+
+不过隐藏了还能走链接进还行。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 963#       发表于 2020-5-29 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600399&amp;ptid=1938145" target="_blank">格林卡罗尔 发表于 2020-5-29 12:15</a>
+V吧这新吧主我怎么看着像节奏大 师
+
+S1屏蔽词好怪</blockquote>
+你对V吧的投票结果难道有什么奇怪的期待吗，一帮天天带节奏的难道要选个杀节奏狗的来自杀吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 964#       发表于 2020-5-29 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600438&amp;ptid=1938145" target="_blank">SteinSlayer 发表于 2020-5-29 12:18</a>
+
+现在B站能做到想激光就激光的除了星组还有哪一家?</blockquote>
+各组想要激光的话可以从其他组借人。。
+
+不如说各组人员好多相通的？
+
+小天使gw的b限也是第二天就出了，歌回相比其他内容速度也有优势。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 965#       发表于 2020-5-29 12:22
+
+
+
+
+没什么要求，新吧主能把天天带vtb fhrh节 奏 的蠢货们给杀了就行
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 966#       发表于 2020-5-29 12:22
+
+
+
+
+海苔男抽多少很重要吧，少主搞箱推但她又不抽份子钱，海苔男是直接利益相关，会有点不同
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 967#       发表于 2020-5-29 12:23
+
+
+
+
+乐子人不投个圣光炎魔出来还能叫乐子人吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 968#       发表于 2020-5-29 12:26
+
+
+
+
+VR風俗サービス「X-Oasis」、クラウドファンディング開始　運営「性のイメージを一変できる価値ある」
+
+
+　有志エンジニアやバーチャルYou\tuber（VTuber）が参加するX-Oasis設立委員会は5月29日、VRを活用したバーチャル風俗店「X-Oasis」の設立に向けたクラウドファンディングを始めたと発表した。BOOTHでの出資額は5500円（税込）から。6月の営業開始を目指すという。
+
+[https://www.itmedia.co.jp/news/articles/2005/29/news088.html](https://www.itmedia.co.jp/news/articles/2005/29/news088.html)
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 969#       发表于 2020-5-29 12:27
+
+
+
+
+海苔男平时给人的市侩贪财印象实在太深刻了，唯粉可不会管你的贪财艺是不是演的。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 970#       发表于 2020-5-29 12:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600195&amp;ptid=1938145" target="_blank">yinoh 发表于 2020-5-29 12:02</a>
+
+其实死就死在畸变这图上了吧，色彩诡异，不能飞行导致前期在点对点移动上需要浪费大量时间，生物花样性少了 ...</blockquote>
+5ch的大部分意见也是集中在龙皇选错了最难的一张地图这个方面
+
+生存难度极大 开图前期即直接劝退大多数holo成员（润姨N次下线之后自己的恐龙各种原因全loss 差点直接退坑）
+
+地图绝大多数地方昏暗不堪没有风景感直播视觉效果极差 部分观众甚至不愿意看直播画面（只听v的声音）
+
+无飞行生物 地图移动及其麻烦而且路途充满风险（兔皇偷个岩龙蛋包括miko协助也没有一次成功的最后退坑）
+
+可以做的事情不多 而且普遍难度大 大多数人的游戏进度极度缓慢（全服最早进入中层定居的是miko，在这之后过了一整个月才陆续有其他人进驻中层地图）
+
+
+
+总的来说就是这张地图本身不怎么适合做直播
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 971#       发表于 2020-5-29 12:28
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-5-29 12:32 编辑 
+
+苔苔对不少联动对象带来了好处是不假，但她的话很多时候也不能说没有问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+好像不太对，编辑一下
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 972#       发表于 2020-5-29 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">海苔男给星街带来什么好处了？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 973#       发表于 2020-5-29 12:30
+
+
+
+
+暴露了星街的年龄
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 974#       发表于 2020-5-29 12:31
+
+
+
+ 本帖最后由 opersuper 于 2020-5-29 12:34 编辑 
+
+苔宝会限把云p指示民独角兽一起杀了，她是只想要全肯定啊话说平时市侩突发性メンヘラ算养gachi吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 975#       发表于 2020-5-29 12:31
+
+
+
+
+あっどりゃああああああああ
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/123126c2fnsiea994qssi8.png" referrerpolicy="no-referrer">
+
+
+<strong>iHDwDAl.png</strong> (828.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 12:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 976#       发表于 2020-5-29 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600603&amp;ptid=1938145" target="_blank">SteinSlayer 发表于 2020-5-29 12:29</a>
+海苔男给星街带来什么好处了？</blockquote>
+额<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">没看星街，不过我看的那一圈人和海苔男联动都算是buff来着
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 977#       发表于 2020-5-29 12:32
+
+
+
+
+彩虹第二次选的仙境这张图不错，holo验证过效果的，开局数字也不错，但是还是颓了
+
+只能说ark游戏机制导致的中间的各种重复劳动让liver还是观众都腻了吧
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 978#       发表于 2020-5-29 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600636&amp;ptid=1938145" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-29 12:32</a>
+
+彩虹第二次选的仙境这张图不错，holo验证过效果的，开局数字也不错，但是还是颓了
+
+只能说ark游戏机制导致的 ...</blockquote>
+颓了主要是参与第一张图的liver在等新人入驻，人没入驻他们不方便开茶番，但等待周期又实在拉得太长了
+
+就都去apex了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 979#       发表于 2020-5-29 12:35
+
+
+
+
+讲道理，狐皇完全没有露出功利贪财的迹象啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  说当大家庭掌舵人能给狐皇带来实际好处、狐皇控股论之类的还不是大家云的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 980#       发表于 2020-5-29 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600636&amp;ptid=1938145" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-29 12:32</a>
+彩虹第二次选的仙境这张图不错，holo验证过效果的，开局数字也不错，但是还是颓了
+
+只能说ark游戏机制导致的 ...</blockquote>
+的确重复劳动太多了，而且导致今天要播ark准备都要很久就很难播别的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 981#       发表于 2020-5-29 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600636&amp;ptid=1938145" target="_blank">RE.AGE45.MKⅠ 发表于 2020-5-29 12:32</a>
+
+彩虹第二次选的仙境这张图不错，holo验证过效果的，开局数字也不错，但是还是颓了
+
+只能说ark游戏机制导致的 ...</blockquote>
+仙境适合彩虹吗？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 982#       发表于 2020-5-29 12:36
+
+
+
+
+彩虹和holo对ark的玩法和感觉可以说是完全两个不同方向的
+
+同一个地图对两方来说可能优缺点完全不一样
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 983#       发表于 2020-5-29 12:37
+
+
+
+ 本帖最后由 proxima 于 2020-5-29 12:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600583&amp;ptid=1938145" target="_blank">龙魂绯影 发表于 2020-5-29 12:28</a>
+
+苔苔对联动对象都带来了好处是不假，但她的话很多时候也不能说没有问题啊 ...</blockquote>
+这倒不是联动对象怎么怎么的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是楼主看懂了，说白了是钱的问题。要不是为了钱毒唯粉也不会专门挑着会限这回事发难了。
+
+但是海苔男一方面是主播另一方面又是苔总，这回事说起来其实是运营对liver待遇好不好的问题，但是在毒唯眼里就变成了大亏吸血论一样的吸血了。那谁让海苔男平时要给自己造一个那样的人设，现在你来说我是好人就没有人信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过姑且看上去苔箱对liver的待遇还是可以的，至于抽成她只说了算是到手比较多的。不过海苔男运营的态度做生意的意思很明显，恐怕回头还要被人说无情的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+syl，苔宝姬友昨天才给星街贡献了张封面呢，怎么没好处了（
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 984#       发表于 2020-5-29 12:37
+
+
+
+
+都没意思了，虹ark换图前一天好几页ark讨论，换图后基本没人讨论了连带虹楼也颓了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 985#       发表于 2020-5-29 12:37
+
+
+
+
+其实，我记得仙境也被称为最适合pvp的图来着？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 986#       发表于 2020-5-29 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600284&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-29 12:08</a>
+
+建议学习少主天天灌输温暖大家庭概念，以后受委屈了，箱推必重拳出击橄榄毒唯。 ...</blockquote>
+可是不可能出现木口大联动开在狐皇会限这种事情啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 987#       发表于 2020-5-29 12:39
+
+
+
+
+根本原因是苔苔又要当V又要当老板啊，yagoo要敢开直播间不也要被人追着喷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 988#       发表于 2020-5-29 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600714&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-5-29 12:37</a>
+
+可是不可能出现木口大联动开在狐皇会限这种事情啊</blockquote>
+那让苔苔开个noripro频道吧。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 989#       发表于 2020-5-29 12:40
+
+
+
+
+虹其实第一次开图就该用仙境且不需要换图，现在前后两图内容重复性其实挺高，而且虹ark除了女挂男和同接高收入低这些问题之外，主要原因可能是因为ark爆发内乱的隐患越来越明显
+
+
+这美味的毒药不吃也罢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 990#       发表于 2020-5-29 12:40
+
+
+
+[https://twitter.com/NAMCOOo/status/1266214349309308928](https://twitter.com/NAMCOOo/status/1266214349309308928)
+
+海鼠老师又发了一遍mikoXark的同人图
+
+海鼠画的ark图里面miko的单图好象是最多的吧
+
+
+怎么说呢 就像是总结的感觉
+
+最后这张图感觉就像是完结了一样……
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 991#       发表于 2020-5-29 12:41
+
+
+
+ 本帖最后由 SiolC 于 2020-5-29 12:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600626&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-29 12:31</a>
+
+あっどりゃああああああああ</blockquote>
+历史记录的图标应该是个时钟
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/124436levyp15iixxixxfv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200529124420.png</strong> (879 Bytes, 下载次数: 0)
+
+下载附件
+
+2020-5-29 12:44 上传
+
+
+
+
+
+，放大镜只是搜索结果联想
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 992#       发表于 2020-5-29 12:43
+
+
+
+
+苔宝这招是网红百式之浮游炮啊，自己点一点放粉丝去按死目标又不用脏自己手，老熟练了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 993#       发表于 2020-5-29 12:45
+
+
+
+
+那箱推就是狐皇的浮游炮吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 994#       发表于 2020-5-29 12:46
+
+
+
+
+玩腻了呗 说到底arkpvp也是fps大战 干嘛不直接去玩最in的apex
+
+syl 黑黑千钻石后是打算继续往上冲吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 995#       发表于 2020-5-29 12:48
+
+
+
+ 本帖最后由 proxima 于 2020-5-29 12:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600800&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-5-29 12:43</a>
+
+苔宝这招是网红百式之浮游炮啊，自己点一点放粉丝去按死目标又不用脏自己手，老熟练了 ...</blockquote>
+问题是她没有浮游炮啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道真的会有“我要守护苔宝”的单推人吗
+
+会重拳出击的粉丝去年这会儿就被她直播挂出来杀光了，剩下的都是看个热闹的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+海苔男现在只能一个人碎碎念偷偷抱怨了。看了觉得真可怜.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 996#       发表于 2020-5-29 12:49
+
+
+
+
+问题狐皇真不是老板啊，搞箱推阿夸的sc给她抽成吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 997#       发表于 2020-5-29 12:49
+
+
+
+ 本帖最后由 colodes 于 2020-5-29 12:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600770&amp;ptid=1938145" target="_blank">SiolC 发表于 2020-5-29 12:41</a>
+
+历史记录的图标应该是个时钟，放大镜只是搜索结果联想</blockquote>
+没搜索过相关词汇的正常联想是这样的
+
+<img src="https://img.saraba1st.com/forum/202005/29/124722qv1huwcj2sisjvaj.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-29 124634.png</strong> (63.15 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-29 12:47 上传
+
+
+
+
+
+
+
+更不会出现にじさんじひよこ这种排在上位的奇怪的结果
+
+<img src="https://img.saraba1st.com/forum/202005/29/124932c9w4o62wcikd6y6a.png" referrerpolicy="no-referrer">
+
+
+<strong>pgKkpIL (2).png</strong> (79.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 12:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 998#       发表于 2020-5-29 12:50
+
+
+
+
+v8乐子人把投原吧务的都截图挂城墙了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 999#       发表于 2020-5-29 12:51
+
+
+
+
+[综合] 【V8】Vtuber吧综合讨论楼
+[https://bbs.saraba1st.com/2b/thread-1924529-1-1.html](https://bbs.saraba1st.com/2b/thread-1924529-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 1000#       发表于 2020-5-29 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600846&amp;ptid=1938145" target="_blank">帕克桑 发表于 2020-5-29 12:46</a>
+
+玩腻了呗 说到底arkpvp也是fps大战 干嘛不直接去玩最in的apex
+
+syl 黑黑千钻石后是打算继续往上冲吗 ...</blockquote>
+上钻都快一周了，叶师有表示要冲master<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 1001#       发表于 2020-5-29 12:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600860&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-29 12:48</a>
+
+问题是她没有浮游炮啊难道真的会有“我要守护苔宝”的单推人吗
+
+会重拳出击的粉丝去年这会儿就被她 ...</blockquote>
+只要有人帮她做推特和直播间警察就够了，重拳出击她不是恐吓anti在揭示板乱说话小心她花钱请律师警告信搞耐久官司吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1002#       发表于 2020-5-29 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600880&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-29 12:51</a>
+
+[综合] 【V8】Vtuber吧综合讨论楼
+
+https://bbs.saraba1st.com/2b/thread-1924529-1-1.html</blockquote>
+？？？？？？？？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1003#       发表于 2020-5-29 13:01
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-29 13:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600971&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-29 12:58</a>
+
+？？？？？？？？</blockquote>
+这是当时vt老哥为了让v综跳过v8直接进入v9开的楼啊，现在用来讨论v吧了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+syl，这是现在的票数最高的人写的竞选宣言[https://bbs.nga.cn/read.php?tid= ... #pid425002681Anchor](https://bbs.nga.cn/read.php?tid=21896626&amp;page=11#pid425002681Anchor)<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1004#       发表于 2020-5-29 13:03
+
+
+
+
+😂
+
+<img src="https://img.saraba1st.com/forum/202005/29/130315jdvpop2hvojbby3b.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-29 130258.png</strong> (50.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 13:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 1005#       发表于 2020-5-29 13:07
+
+
+
+
+救nm的ark，挂后台当bgm都要忍受拉翔的恶心音效，傻批游戏严重影响我看管人的热情
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1006#       发表于 2020-5-29 13:09
+
+
+
+ 本帖最后由 真田源次郎信繁 于 2020-5-29 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600687&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-5-29 12:35</a>
+
+讲道理，狐皇完全没有露出功利贪财的迹象啊  说当大家庭掌舵人能给狐皇带来实际好处、狐皇控股论之 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我觉得她应该不差钱不会出现这种“之前因为b站抽成阴阳怪气，钱到了欣喜若狂”的露骨表现吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1007#       发表于 2020-5-29 13:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">又不是吹白上桑视金钱如粪土，整天顺劈白上桑热爱权利，本来就是一个小人得志的市侩狐狸，发了笔小财还不能开心一下的吗
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1008#       发表于 2020-5-29 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601110&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-29 13:09</a>
+
+之前你楼车过，石先生倒了的时候阿b给holo打钱，大概是狐狸的五六十万块到账的时候，她突然表现得 ...</blockquote>
+草，别把管人当圣人了，换做你你不兴奋吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 1009#       发表于 2020-5-29 13:17
+
+
+
+
+有钱就来，没钱就跑，这是人之常情，算不上功利
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1010#       发表于 2020-5-29 13:17
+
+
+
+<blockquote>真田源次郎信繁 发表于 2020-5-29 13:09
+之前你楼车过，石先生倒了的时候阿b给holo打钱，大概是狐狸的五六十万块到账的时候，她突然表现得 ...</blockquote>
+以3个月才能到账的说法，当时钱真的拿到了吗
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1011#       发表于 2020-5-29 13:17
+
+
+
+
+被石头人把钱卡着本来就很气人啊，通畅了当然很爽，而且都是劳动所得，不是中的彩票
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 1012#       发表于 2020-5-29 13:19
+
+
+
+
+虹ark我个人觉得是第一张图太多人投注大量心血透支直播直接把热情燃尽了，打pvp之前那几十个人接力通宵准备了整整一周也太恐怖了，那段时间为了避免枯燥作业很多人全部都不直播了改成线下吃独食准备，看上去在播的人同接挺好看的其实也是牺牲了很多其他人的直播时间换来的，要打一次pvp就要准备这么久，是我我也不想打第二次了，其实仙境图一开始整的活还不错的，互动也有整活也有，最近反抗军的洞窟攻略也挺好看的（贝叔和公主今天晚上好像也要打洞窟），主要感觉还是pvp需要大量准备太耗精力了所以没人敢继续搞了，虹男这种ark主力还都跑去玩其他游戏了，只剩虹女也整不出活啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1013#       发表于 2020-5-29 13:26
+
+
+
+
+musica这收益化可算过了，不过反正看着也是个不差钱的老姐...明天收益化直播，发红莲华
+
+
+再推销下我弄的合集，昨天是不是有人问谁唱过first love来着
+[https://www.bilibili.com/video/BV1tf4y1U76z](https://www.bilibili.com/video/BV1tf4y1U76z)
+
+1.アイノカタチ
+
+2.マリーゴールド
+
+3.God knows
+
+4.逢いたくていま
+
+5.甲賀忍法帖
+
+6.First Love
+
+7.アゲハ蝶
+
+8.光の旋律
+
+9.アメイジング・グレイス
+
+10.愛燦燦
+
+11.バレンタイン・キッス
+
+12.Yes forever
+
+13.うちで踊ろう
+
+14.愛の星
+
+15.ダンシングヒーロー
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/132600rkb384b3k8k4cjbj.png" referrerpolicy="no-referrer">
+
+
+<strong>musica.png</strong> (262.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 13:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 1014#       发表于 2020-5-29 13:27
+
+
+
+
+狐皇这日子还不够安逸吗，每天除了发推、直播、肝手游就没别的事了，简直就是肥肥的理想生活，将来就算退休了也可以靠资历在cover混个闲差养老，身为一个三十代前半的也完全没看出想结婚的想法，这就是如风般的自由啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1015#       发表于 2020-5-29 13:30
+
+
+
+
+少主这就是人上人啊
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1016#       发表于 2020-5-29 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601290&amp;ptid=1938145" target="_blank">遍体精淋af 发表于 2020-5-29 13:27</a>
+
+狐皇这日子还不够安逸吗，每天除了发推、直播、肝手游就没别的事了，简直就是肥肥的理想生活，将来就算退休 ...</blockquote>
+这时候就要寄出狐皇老板娘论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这个猜想能解释目前几乎所有的状态
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1017#       发表于 2020-5-29 13:31
+
+
+
+
+狐皇天天琢磨着怎么找梗玩梗做小视频取悦欧美粉丝也挺麻烦的......
+
+
+省一楼，谱皇30万粉了，晚上7点这个裸春特番第二期，会介绍下新人teresa吗
+[https://youtu.be/kE8ke1WiIlU](https://youtu.be/kE8ke1WiIlU)
+
+KAMITSUBAKI STUDIO特別番組「花達と椿と君。vol.2」
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1018#       发表于 2020-5-29 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601317&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-29 13:30</a>
+
+这时候就要寄出狐皇老板娘论了
+
+这个猜想能解释目前几乎所有的状态 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不，咱深信狐狸是爱MIO的
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1019#       发表于 2020-5-29 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600243&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-29 12:05</a>
+昨天晚上喝了点倒了，今天来还原一下事件经过。
+
+苔宝搞了箱内联动，惯例分成两场，第二场是会限→
+
+m ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就凭她那个单人草台运营也想玩大家庭？
+
+杏有本事玩大家庭是因为士大夫有质和量，利香sekuhara事件前木口运营不但强而且不显，是非常职业非常优质的运营团队，要不是这个运营团队支撑，任谷乡指点江山，白姨天纵奇才，大家庭也是玩不起来的，杏仁怕不是都要变呆人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+苔苔本身就不是专业传媒/市场营销/pr出身，玩玩半路出家的熟人运营蛮好的，就这很多小箱还求不得呢。但要是她强行要玩什么正经的企业势运营，那就是作大死，非得把小野和白雪坑苦了不可。
+
+好好的做个掌握资产决定权的白姨蛮好的，人脉也用得上.......还能保证自己的曝光率，她要转成企划型运营，不仅支援女儿会变得困难起来，一旦炎上很容易造成女儿粉和自己粉的对立，简直是灾难
+
+不知道她是怎么想的？真觉得自己能吃租子搭平台了？苔啊苔，你怎么就学不会呢！<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1020#       发表于 2020-5-29 13:34
+
+
+
+
+bsyl
+pro哥喝多了肯定是担心苔苔好吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+真苔粉。好pro我爱！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1021#       发表于 2020-5-29 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601340&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-5-29 13:33</a>
+
+就凭她那个单人草台运营也想玩大家庭？
+
+
+杏有本事玩大家庭是因为士大夫有质和量， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想简单点的话，大概是个人和企业报税难易程度差了10条街这样？
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 1022#       发表于 2020-5-29 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597822&amp;ptid=1938145" target="_blank">podball 发表于 2020-5-29 09:12</a>
+
+不是，这佐贺事变的和声怎么回事，第一次听吓得我直接关掉了网页，还能这么拉跨的吗 ...</blockquote>
+估计是收录环境的问题吧··最近各种情况真的蛮多的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+SYL：狐狸今晚真的要开始玩那个鲨鱼游戏了··能不能在木口流行起来就看今天的效果了啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1023#       发表于 2020-5-29 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601370&amp;ptid=1938145" target="_blank">57042711 发表于 2020-5-29 13:36</a>
+
+估计是收录环境的问题吧··最近各种情况真的蛮多的
+
+
+SYL：狐狸今晚真的要开始玩那个鲨鱼游戏了· ...</blockquote>
+已经有人先玩了 效果非常好……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1024#       发表于 2020-5-29 13:37
+
+
+
+
+佐贺的收录早结束了吧，星街生日那次3d就放片段出来了。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1025#       发表于 2020-5-29 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601370&amp;ptid=1938145" target="_blank">57042711 发表于 2020-5-29 13:36</a>
+
+估计是收录环境的问题吧··最近各种情况真的蛮多的
+
+
+SYL：狐狸今晚真的要开始玩那个鲨鱼游戏了· ...</blockquote>
+那鲨鱼游戏真挺傻**有趣的，咱看完MIKO玩就下了一个
+
+
+一生之敌根本不是人类，是鳄鱼
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 1026#       发表于 2020-5-29 13:40
+
+
+
+
+一次性找齐fantasy全员肯定都是在家录得啊，而且收录环境设备质量还不一样，拉跨是正常的。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 1027#       发表于 2020-5-29 13:40
+
+
+
+
+holo的阿b运营（笑
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1028#       发表于 2020-5-29 13:45
+
+
+
+
+海苔男可能得雇个把管理的人，这种类似于社团性质的团体挺容易炸的
+
+这边还都是亲朋好友，闹大了朋友没得做就太惨了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 1029#       发表于 2020-5-29 13:48
+
+
+
+
+怎么还有吹杏staff的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+把杏staff送苔姨那里或者彩虹那里能多造几个兔皇、狗皇、船皇吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1030#       发表于 2020-5-29 13:49
+
+
+
+
+尾巴哥这吹得仿佛在阴阳怪气<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+纯好奇，尾巴哥讲讲这么说的依据呗
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1031#       发表于 2020-5-29 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601456&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-5-29 13:45</a>
+海苔男可能得雇个把管理的人，这种类似于社团性质的团体挺容易炸的
+
+这边还都是亲朋好友，闹大了朋友没得做 ...</blockquote>
+其实她就搞熟人箱也蛮好的
+
+偏偏又不甘寂寞要做成inc
+
+沐猴而冠也就算了，好像变了inc就是变了个让她感觉很nb的名字一样，搞出这种熟人箱才会出来的哭诉骚操作.......
+
+这倒霉bba怎么就能这么典型yhm，这么天真公主病啊，大奶奶，你都27啦！
+
+恨铁不成钢！
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 1032#       发表于 2020-5-29 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601340&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-5-29 13:33</a>
+
+就凭她那个单人草台运营也想玩大家庭？
+
+
+杏有本事玩大家庭是因为士大夫有质和量， ...</blockquote>
+成啦，你也是苔宝今天刚审判过的在安全地带对她指手画脚的后方p面了，我们苔信和你势不两立<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 1033#       发表于 2020-5-29 13:50
+
+
+
+ 本帖最后由 SteinSlayer 于 2020-5-29 13:57 编辑 
+
+欲当带资本家而不得的拜金女旗下领着几个靠钓gachi营业得偶像，不被劈就nm离谱。
+
+
+海苔男要是真想做下去就只能学yagoo没事跪一跪。
+
+
+
+
+
+
+
+-----
+
+####  786223096  
+##### 1034#       发表于 2020-5-29 13:51
+
+
+
+
+说的跟27岁很大似的……
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1035#       发表于 2020-5-29 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601510&amp;ptid=1938145" target="_blank">SiolC 发表于 2020-5-29 13:49</a>
+尾巴哥这吹得仿佛在阴阳怪气
+
+纯好奇，尾巴哥讲讲这么说的依据呗</blockquote>
+还真不是yygq
+
+你忘了当初你以为我铁血杏仁跟我血仇那会儿我是怎么吹杏的了？那些基本都是吹运营，三期没起飞前杏的liver有啥好吹的？六字母蹭的又多又好看？
+
+包括后来在《论谷乡》里我也说过，这篇论述里的“颂歌”是唱给整个杏的海外进出团队的，只不过我们知道的决策者只有谷乡一人罢了
+
+杏在企划，箱的构筑，liver的区分化发展，包括工商人脉，3d支持，官号引流，以及现在成为第一视频势官号里推出的holo小剧场，hololog，holo music等等
+
+简而言之，在构筑“生态”上，holo的团队还是相当成功的。利香那事儿固然是巨大丑闻，但那也只是个例，并不能掩盖其他杏运营团队的努力和天赋<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 水藻| + 1|尾巴哥你论营业的坑啥时候填？.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1036#       发表于 2020-5-29 13:59
+
+
+
+
+你杏staff以前还能吹吹至少没作过什么恶（当然这标准也挺低的），梅露给骚扰这事一出，不作恶也没法吹了。
+
+不过反正骚扰者也没给开除，梅露也继续不动弹，这事就揭过去了，杏人是挺好糊弄的。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1037#       发表于 2020-5-29 13:59
+
+
+
+
+挖着吃还是刮着吃 🙋‍♂️
+
+<img src="https://img.saraba1st.com/forum/202005/29/135908s9kxaxk3qhzhuhu7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>842284b9ly1gf99yzddi2j23k02o0npg.jpg</strong> (121.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 13:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1038#       发表于 2020-5-29 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601519&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-5-29 13:50</a>
+成啦，你也是苔宝今天刚审判过的在安全地带对她指手画脚的后方p面了，我们苔信和你势不两立 ...</blockquote>
+她要的是全肯定，但我这样非全肯定的噶吃（其实是嫩苔噶吃，老苔最多算留恋）却没有这么轻易被她洗掉，只有全肯定的粉群会让她一路走到黑，而很显然她在很多地方还有不足，而这些不足足矣让她的“一路”通向尴尬甚至悲伤的结局，那为什么不准我埋怨？
+
+等待机会合适，我还要到推上去说呢.......<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1039#       发表于 2020-5-29 14:00
+
+
+
+
+v吧字幕组的那帮人怎么还能拿到搬运授权的，还是96猫的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1Z54y1D7kj](https://www.bilibili.com/video/BV1Z54y1D7kj)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1040#       发表于 2020-5-29 14:00
+
+
+
+ 本帖最后由 star_platinum 于 2020-5-29 14:05 编辑 
+
+以后烤有96猫联动的肉他们难道也会参与进来吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1041#       发表于 2020-5-29 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601565&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-5-29 13:56</a>
+还真不是yygq
+
+你忘了当初你以为我铁血杏仁跟我血仇那会儿我是怎么吹杏的了？那些基本都是吹运营，三期没 ...</blockquote>
+那为啥是三期才起飞呢，三期以后换了批stf吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1042#       发表于 2020-5-29 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601590&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-29 13:59</a>
+挖着吃还是刮着吃 🙋‍♂️</blockquote>
+这是在养gachi吗
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1043#       发表于 2020-5-29 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601590&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-29 13:59</a>
+挖着吃还是刮着吃 🙋‍♂️</blockquote>
+挖着吃，先吃巧克力的，再吃草莓外面半边和香草外面半边，最后快化的时候吃混起来的草莓香菜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 1044#       发表于 2020-5-29 14:04
+
+
+
+
+幸运者偏差
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1045#       发表于 2020-5-29 14:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> co宝要变成肥肥了，不爱了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 1046#       发表于 2020-5-29 14:06
+
+
+
+
+提问：colo哥是不是在养gachi？
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 1047#       发表于 2020-5-29 14:08
+
+
+
+
+杏staff怎么不能吹啦，我做梦都想要虹的3d小剧……不是田角先把建模给我修一修吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1048#       发表于 2020-5-29 14:10
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-5-29 14:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601603&amp;ptid=1938145" target="_blank">Mika-S 发表于 2020-5-29 14:00</a>
+
+那为啥是三期才起飞呢，三期以后换了批stf吗</blockquote>
+
+因为无论是第一批成员的养成和先期投资，全肯定箱推的调 教还是箱文化和风格的形成都需要很长的时间，这个建议去看下《论箱推》。
+
+
+由于要计划将要贩卖的人际关系，可能发生的粉丝冲突和长远的各类需要铺垫的企划，箱推型的组合往往比联盟型的组合铺开慢，热度在初期也会非常低......
+
+
+所以箱推型的组合确实有点憋憋的感觉，杏就是vjuan1988
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 1049#       发表于 2020-5-29 14:14
+
+
+
+
+colo哥养gachi的巅峰还是某天不安です说可能退s1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1050#       发表于 2020-5-29 14:14
+
+
+
+
+招人也是staff的功劳，平均成材率杏什么水平不用说了吧…………
+
+
+
+
+
+               
