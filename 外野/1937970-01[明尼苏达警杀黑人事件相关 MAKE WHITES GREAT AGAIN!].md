@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 02:08** 
+> ## **本文件最后更新于2020-05-30 06:06** 
 
 
 
@@ -5588,10 +5588,12 @@ FLASHLIGHT
 
 
 
- 参与人数 4战斗力 -4
+ 参与人数 6战斗力 -7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| camelia_vie|-2|好评加鹅|
+| 痴呆青年欢乐多|-1||
 | 弧离的三型|-1|？？？？？|
 | vigilance|-1||
 | 荒南君|-1|只会口嗨的黄皮肥皂。|
@@ -7183,10 +7185,12 @@ cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
 
 
 
- 参与人数 5战斗力 -5
+ 参与人数 7战斗力 -8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| camelia_vie|-2|好评加鹅|
+| 痴呆青年欢乐多|-1|二极管？|
 | cpuisme|-1|看这个新闻你还能得出这个结论？.|
 | 愿闻其翔|-1|那你猜到会被扣分了吗？|
 | SICP|-1|好评加鹅|
@@ -9282,10 +9286,11 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 10战斗力 0
+ 参与人数 11战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| camelia_vie|-2|好评加鹅|
 | 西瓜田里的飞鱼|-2|帽子扣的欢|
 | lanslort| + 3||
 | 龙爪| + 1|确实|
@@ -10178,10 +10183,12 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育
 
 
 
- 参与人数 8战斗力 -9
+ 参与人数 10战斗力 -12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| camelia_vie|-2|好评加鹅|
+| 秦一鸣|-1||
 | fygh33|-1|欢乐多|
 | 桥本有菜|-1||
 | 烂柯人|-1||
@@ -10873,10 +10880,11 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquot
 
 
 
- 参与人数 3战斗力 -4
+ 参与人数 4战斗力 -6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| camelia_vie|-2|好评加鹅|
 | 愿闻其翔|-2||
 | 巫师萨满|-1|投胎**妈吗？|
 | qx1995|-1||
@@ -14083,10 +14091,11 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
- 参与人数 12战斗力 +13
+ 参与人数 13战斗力 +14
 
 |昵称|战斗力|理由|
 |----|---|---|
+| camelia_vie| + 1|好评加鹅|
 | osieu| + 1|好评加鹅|
 | 叉子| + 1|好评加鹅|
 | stick| + 1||
@@ -18477,10 +18486,14 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 
 
 
- 参与人数 19战斗力 +7
+ 参与人数 23战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| smlszh| + 1|皮球拍尼个|
+| spiritualis| + 1|好评加鹅|
+| leader01234|-1||
+| Ton|-2|魔怔了这是？|
 | 骊歌三叠|-1|这就是删除了同理心的new type吗，i了i了.|
 | czs13| + 2|思路广|
 | 高欢| + 1|好评加鹅|
@@ -18497,9 +18510,6 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 | lanslort|-3||
 | kumquat_cc| + 1||
 | 致远星总书记| + 1|欢乐多|
-| qsqsqs|-2||
-| 花枝鱿鱼面| + 1|好评加鹅|
-| 大空魔术| + 1|欢乐多|
 
 
 
@@ -19161,4 +19171,501 @@ Minneapolis and St. Paul, Minn., Memphis, Tenn., Louisville, Ky., Denver, Colo.,
 
 
 
-                  
+
+
+-----
+
+####  Dreki  
+##### 943#       发表于 2020-5-30 02:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607719&amp;ptid=1937970" target="_blank">钱君 发表于 2020-05-29 22:02:30</a>
+对太平洋对岸的行为不做评论，不过最近要小心火山有样学样吸引眼球。某些人现在绝对特别希望咱们能出点大 ...</blockquote>废青可没美国人那么武德充沛，现在hkp力度大了我倒是希望他们搞快点全都被抓进去。另外要学也是对岸学这边，不用担心这个
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 944#       发表于 2020-5-30 02:27
+
+
+
+<blockquote>yzyz121 发表于 2020-5-30 00:41
+国内都是压背，压脖子容易造成损伤，国内舆论环境警察弄伤人吃不了兜着走。都是压着背，生怕把人弄伤。 ...</blockquote>
+国内也有用一只脚踩住脖子的。当然跟用膝盖压脖子比还是更收发自如一些。
+
+
+
+
+
+
+
+-----
+
+####  套路设计师  
+##### 945#       发表于 2020-5-30 02:52
+
+
+
+
+这个警察被抓，fox的油管频道的这条新闻下关掉了点赞/踩数，并禁止评论
+
+
+
+
+
+
+
+-----
+
+####  silverashashash  
+##### 946#       发表于 2020-5-30 03:05
+
+
+
+
+警察被指控三级谋杀哎，闹事果然有用
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 947#       发表于 2020-5-30 03:09
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 03:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605565&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 18:51</a>
+地域歧视和用肤**分的种族歧视难道是相互排斥的概念？美国新旧**的问题去看美国种族简史</blockquote>
+那你承不承认对爱尔兰意大利人的歧视是种族歧视吧，别扯什么多少地域歧视成分，这两者分不开。如果你承认的话：
+1.对爱尔兰和意大利的歧视是种族歧视，
+2.种族歧视基于可明显分辨的长相
+这还不自相矛盾？
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 948#       发表于 2020-5-30 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605613&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-29 18:55</a>
+你搜David Caruso看发色就明白了，爱尔兰的血液让凯尔特人的特征也很顽强的，这个在WASP里叫红发，一眼就 ...</blockquote>
+是，爱尔兰红发是容易被认出来，对红发的歧视由来已久。但是爱尔兰人里面红发也只占一部分，更何况意大利人外观上可是很难区分的
+
+
+
+
+
+
+
+-----
+
+####  johan·liebert  
+##### 949#       发表于 2020-5-30 03:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609994&amp;ptid=1937970" target="_blank">silverashashash 发表于 2020-5-30 03:05</a>
+
+警察被指控三级谋杀哎，闹事果然有用</blockquote>
+但是推特上的民众都不满意，认为太轻了
+
+
+
+
+
+
+
+-----
+
+####  世界之旅  
+##### 950#       发表于 2020-5-30 03:23
+
+
+
+ 本帖最后由 世界之旅 于 2020-5-30 03:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609994&amp;ptid=1937970" target="_blank">silverashashash 发表于 2020-5-30 03:05</a>
+
+警察被指控三级谋杀哎，闹事果然有用</blockquote>
+被指控然后开庭后罪名不成立也是常有的
+
+
+
+
+
+
+
+-----
+
+####  套路设计师  
+##### 951#       发表于 2020-5-30 03:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610030&amp;ptid=1937970" target="_blank">johan·liebert 发表于 2020-5-30 03:19</a>
+
+但是推特上的民众都不满意，认为太轻了</blockquote>
+武大素球，缺一不可
+
+
+
+
+
+
+
+-----
+
+####  套路设计师  
+##### 952#       发表于 2020-5-30 03:29
+
+
+
+
+三级谋杀是什么？
+
+美国有三级谋杀吗？
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 953#       发表于 2020-5-30 03:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610012&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 03:09</a>
+那你承不承认对爱尔兰意大利人的歧视是种族歧视吧，别扯什么多少地域歧视成分，这两者分不开。如果你承认 ...</blockquote>
+你逻辑混乱了？爱尔兰和意大利人是什么人种？白皮间的鄙视圈可以用白人种族主义解释？
+
+—— 来自 Xiaomi MI NOTE Pro, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  世界之旅  
+##### 954#       发表于 2020-5-30 03:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610054&amp;ptid=1937970" target="_blank">套路设计师 发表于 2020-5-30 03:29</a>
+
+三级谋杀是什么？
+
+美国有三级谋杀吗？</blockquote>
+只听说过一级和二级 
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 955#       发表于 2020-5-30 03:54
+
+
+
+|<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去研究了一下，三级谋|杀这个罪|名很轻了，在MN这个罪|名大约可以等于故意伤害致死，或者说“无意造成任何人的死亡，通过对他人构成极其危险的行为并表现出堕|落的思想而造成另一人的死亡，而无视为了人类的生命”（机翻），最高25年，要我说这条子就是故意杀人必须让他上电|椅，不过MN不用电|椅，那至少也得给他众|筹一颗子|弹|
+
+
+
+
+
+
+
+-----
+
+####  符里宮亜  
+##### 956#       发表于 2020-5-30 03:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610054&amp;ptid=1937970" target="_blank">套路设计师 发表于 2020-5-30 03:29</a>
+
+三级谋杀是什么？
+
+美国有三级谋杀吗？</blockquote>
+Minnesota law originally defined third-degree murder solely as depraved-heart murder ("without intent to effect the death of any person, caus[ing] the death of another by perpetrating an act eminently dangerous to others and evincing a depraved mind, without regard for human life").
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 957#       发表于 2020-5-30 04:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610060&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 03:33</a>
+你逻辑混乱了？爱尔兰和意大利人是什么人种？白皮间的鄙视圈可以用白人种族主义解释？
+
+—— 来自 Xiaomi ...</blockquote>
+你到底知不知道爱尔兰人意大利人一度不属于白人啊？就这还要别人看种族史？
+
+
+
+
+
+
+
+-----
+
+####  wszweill  
+##### 958#       发表于 2020-5-30 04:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610100&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 14:54</a>
+
+|去研究了一下，三级谋|杀这个罪|名很轻了，在MN这个罪|名大约可以等于故意伤害致死，或者说“无意造 ...</blockquote>|
+按你的翻译是过失致人死亡吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  groovyoung  
+##### 959#       发表于 2020-5-30 04:05
+
+
+
+
+看了最近这么多新闻，感觉美国现在就tmd是一个shithole country无疑了。
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 960#       发表于 2020-5-30 04:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610117&amp;ptid=1937970" target="_blank">wszweill 发表于 2020-5-30 04:05</a>
+
+按你的翻译是过失致人死亡吧 我觉得能丢饭碗就不错了，别的就不用想太多 ...</blockquote>
+故意伤害致死，上面有人发了原文，你可以看一下，我自己懒得翻译所以就机翻了
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 961#       发表于 2020-5-30 04:17
+
+
+
+
+三级就三级吧 罪名成立的可能性还稍微大一些
+
+
+
+
+
+
+
+-----
+
+####  wszweill  
+##### 962#       发表于 2020-5-30 04:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610129&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 15:09</a>
+
+故意伤害致死，上面有人发了原文，你可以看一下，我自己懒得翻译所以就机翻了 ...</blockquote><blockquote>"<strong>without intent to effect the death of any person</strong>, caus[ing] the death of another by perpetrating an act eminently dangerous to others and evincing a <strong> depraved mind [\b], <strong>without regard for</strong> human life</strong></blockquote>
+标准的过失致人死亡。没有主观上的故意成分, 基于疏忽大意/盲目自信等等导致的过失
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 963#       发表于 2020-5-30 04:23
+
+
+
+
+害 运气真好 美国只有三个州有最轻的三级谋杀
+佛州 明州和滨州
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 964#       发表于 2020-5-30 04:25
+
+
+
+
+害 运气真好，刚好只有3个州有最轻的三级谋杀，这下给他用上了
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 965#       发表于 2020-5-30 04:37
+
+
+
+<blockquote>wszweill 发表于 2020-5-30 04:19
+标准的过失致人死亡。没有主观上的故意成分, 基于疏忽大意/盲目自信等等导致的过失 ...</blockquote>
+嗨，反正怎么说这定刑都太他妈的轻了
+
+
+
+
+
+
+
+-----
+
+####  Corruptwing  
+##### 966#       发表于 2020-5-30 05:15
+
+
+
+
+就这泥潭还有人天天扯黑人政治正确一等人，亚裔费拉不堪不配做人
+
+
+
+
+
+
+
+-----
+
+####  martinium  
+##### 967#       发表于 2020-5-30 05:18
+
+
+
+
+美国黑人真是没救了，和几年前一模一样，一阵群情激愤**之后群众就变金鱼，该怎么样还怎么样。
+黑人缺乏真正的领袖，有点见识到人都被白人资产阶级同化了，根本不会站出来。
+
+— from Google Pixel 2, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  20002000  
+##### 968#       发表于 2020-5-30 05:19
+
+
+
+
+黑人都做总统了 还想怎么样 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 奥巴马不是黑人真正的领袖么
+
+
+
+
+
+
+
+-----
+
+####  死亡確認  
+##### 969#       发表于 2020-5-30 05:21
+
+
+
+
+看到都闹成这样了，ykw还在高呼拆那的，我觉得他是不是不开心别人不关注他了……
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  20002000  
+##### 970#       发表于 2020-5-30 05:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610219&amp;ptid=1937970" target="_blank">死亡確認 发表于 2020-5-30 05:21</a>
+
+看到都闹成这样了，ykw还在高呼拆那的，我觉得他是不是不开心别人不关注他了……
+
+
+—— 来自 HUAWEI VOG-AL ...</blockquote>
+转移视线嘛 毕竟i take no responsibility
+
+
+
+
+
+                 

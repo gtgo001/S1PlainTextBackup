@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 00:07** 
+> ## **本文件最后更新于2020-05-30 06:06** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_F14uk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_A70QN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2630,4 +2630,344 @@ aki家也有猫？
 
 
 
-                                             
+
+
+-----
+
+####  SiolC  
+##### 1636#       发表于 2020-5-30 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609073&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-5-30 00:05</a>
+b站转播解禁了</blockquote>
+哪来的消息？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1637#       发表于 2020-5-30 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609122&amp;ptid=1938145" target="_blank">SiolC 发表于 2020-5-30 00:10</a>
+
+哪来的消息？</blockquote>
+现在在转了啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1638#       发表于 2020-5-30 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609122&amp;ptid=1938145" target="_blank">SiolC 发表于 2020-5-30 00:10</a>
+
+哪来的消息？</blockquote>
+holo团长的转播间已经开了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 1639#       发表于 2020-5-30 00:17
+
+
+
+
+学猫叫好上手又好听的歌怎么就nt了？第一个吃螃蟹的是mendako，但现在还有臣民吗
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 1640#       发表于 2020-5-30 00:19
+
+
+
+
+学猫叫实在是太土了，中文歌那么多学花丸多唱周董挺好的
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 1641#       发表于 2020-5-30 00:21
+
+
+
+
+ORICON 专辑实体、配信、综合周榜，2020/06/01付
+
+
+Rain Drops 1st Mini Album 「シナスタジア」
+
+次周实体排名14位，当周销量2,318枚，累计销量18,963枚。
+
+次周配信排名13位，当周销量489枚，累计销量2,912枚。
+
+综合排名20位，当周销量2,807枚，累计销量21,875枚。
+
+
+DUSTCELL 1st Full Album 「SUMMIT」首周配信排名3位，初动销量1,147枚。
+
+
+にじさんじ Original Album 「SMASH The PAINT!!」
+
+第10周实体排名80位，当周销量421枚，累计销量26,919枚。
+
+首周配信排名5位，初动1,051枚。
+
+综合累计销量27,970枚。
+
+
+petit fleurs 1st Album 「premiere fleurs」第5周实体排名133位，当周销量256枚，累计销量7,192枚。
+
+HIMEHINA 1st Album 「藍の華」第6周实体排名169位，当周销量206枚，累计销量14,953枚。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1642#       发表于 2020-5-30 00:26
+
+
+
+
+那你别说花丸那个学猫叫播放挺高的。难道不是说明观众还是吃这套的。
+
+再说大亏我觉得还挺适合学猫叫的（没有黑大亏的意思）
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 1643#       发表于 2020-5-30 00:26
+
+
+
+<blockquote>好德我基 发表于 2020-5-30 00:19
+学猫叫实在是太土了，中文歌那么多学花丸多唱周董挺好的</blockquote>
+你讲这个谁懂啊
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 1644#       发表于 2020-5-30 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609254&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-30 00:26</a>
+
+那你别说花丸那个学猫叫播放挺高的。难道不是说明观众还是吃这套的。
+
+再说大亏我觉得还挺适合学猫叫的（没 ...</blockquote>
+花丸那个说好不哭也挺高的啊，接地气也没必要整得太土嘛
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 1645#       发表于 2020-5-30 00:52
+
+
+
+
+感谢郡道美玲，今天写论文写到一半头痛继续不下去，想到她以前说自己写论文是用日语转谷鸽翻译再润色，就也试了这个方法，发现真的很好用。
+
+这就是V的意义吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1646#       发表于 2020-5-30 00:54
+
+
+
+
+草，狐狸招惹鳄鱼被啃死了
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 1647#       发表于 2020-5-30 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">https://twitter.com/Azkabanpeople?s=20 这瑟图画师后面还写着个囚人呢
+
+
+时雨妈今晚8点整テトリス凸待ち
+
+有那么一点好奇阿葵会不会来
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1648#       发表于 2020-5-30 02:12
+
+
+
+
+狗皇也40w了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 1649#       发表于 2020-5-30 02:20
+
+
+
+
+人就是懒，想了很久的东西就是提不起劲做，实际做下来也很快就是了。
+
+仅收录ORICON有统计的实体CD（有在Amazon、线下实体店等一般渠道发售的CD），若有缺漏直接回复我。
+
+
+VTuber ORICON 实体CD销量排行榜
+[https://docs.google.com/spreadsh ... kHVOE7iGzSqS-s86v5o](https://docs.google.com/spreadsheets/d/1tVGOS7nvAC93W8wrAyMrYUj_kHVOE7iGzSqS-s86v5o)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1650#       发表于 2020-5-30 02:33
+
+
+
+
+小肥妹2周年纪念APEX抽卡把我看笑了，双重财富密码啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 1651#       发表于 2020-5-30 04:09
+
+
+
+
+小福
+
+压缩过，非原图
+
+<img src="https://img.saraba1st.com/forum/202005/30/040750hu1kv7zp5nkz90uq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>arsp0.jpg</strong> (1.24 MB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 04:07 上传
+
+
+
+
+
+[https://www.pixiv.net/artworks/81895229](https://www.pixiv.net/artworks/81895229)
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 1652#       发表于 2020-5-30 04:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609445&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-5-30 00:52</a>
+感谢郡道美玲，今天写论文写到一半头痛继续不下去，想到她以前说自己写论文是用日语转谷鸽翻译再润色，就也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果你在美国或者大英读书的话不推荐这样做，查重依旧查得出，而且有可能会有抄袭嫌疑。
+
+
+
+
+
+                                            
