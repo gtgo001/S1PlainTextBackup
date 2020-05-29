@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 18:07** 
+> ## **本文件最后更新于2020-05-29 20:06** 
 
 
 
@@ -6522,6 +6522,25 @@ Fargo Season 4</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 恨讨论| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9261,10 +9280,11 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 9战斗力 +2
+ 参与人数 10战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 西瓜田里的飞鱼|-2|帽子扣的欢|
 | lanslort| + 3||
 | 龙爪| + 1|确实|
 | Zuckerfrei|-1||
@@ -9962,10 +9982,12 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 20战斗力 +20
+ 参与人数 22战斗力 +22
 
 |昵称|战斗力|理由|
 |----|---|---|
+| flashenix1| + 1||
+| 余海露| + 1|好评加鹅|
 | 文艺复兴| + 1|好评加鹅|
 | yst234| + 1|好评加鹅|
 | 黑白驳影| + 1|好评加鹅|
@@ -9984,8 +10006,6 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 | 斯拉克自有妙计| + 1|好评加鹅|
 | miao123177| + 1|加回来 有什么好扣的|
 | swl007007|-1||
-| 皇帝雅西加| + 2||
-| lysh_233| + 2||
 
 
 
@@ -11819,6 +11839,25 @@ tg发动工农起义还要严防流氓无产者呢
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stick| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13628,10 +13667,11 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| finallysqull01| + 1|艺术|
 | Neozero| + 1|签名档应景|
 
 
@@ -14020,10 +14060,12 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
- 参与人数 8战斗力 +9
+ 参与人数 10战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| stick| + 1||
+| 怜悯者的冷笑| + 1|好评加鹅|
 | 逍遥客7| + 1|好评加鹅|
 | 苏联笑话| + 1|好评加鹅|
 | genki| + 2|思路广|
@@ -15666,4 +15708,1282 @@ Fun fact: The Constitution gives Congress the right to censure the president but
 
 
 
-                        
+
+
+-----
+
+####  鱼肉丸子  
+##### 781#       发表于 2020-5-29 18:06
+
+
+
+[https://b23.tv/wHbjBh](https://b23.tv/wHbjBh)
+
+被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人
+
+该说警察目标选的有点太偏了么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cryindance  
+##### 782#       发表于 2020-5-29 18:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605012&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 17:59</a>
+据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。 ...</blockquote>
+b站观察者网发的视频就是全的
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 783#       发表于 2020-5-29 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605076&amp;ptid=1937970" target="_blank">bg54188 发表于 2020-5-29 18:04</a>
+有组织和无组织差距明显啊
+
+砸光烧光也影响不到白富阶层，好歹学学火山青年啊</blockquote>
+火山不也是俄亥俄?动了哪个大佬了？李黄瓜被吊路灯了？
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 784#       发表于 2020-5-29 18:09
+
+
+
+ 本帖最后由 vampiar 于 2020-5-29 18:16 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 785#       发表于 2020-5-29 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605012&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 17:59</a>
+
+据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。 ...</blockquote>
+是3个大汉压着这黑哥 活活压死 有两个被警车挡住了。
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 786#       发表于 2020-5-29 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605012&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 17:59</a>
+
+据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。 ...</blockquote>
+[https://www.bilibili.com/video/BV1Wg4y1i7Zp](https://www.bilibili.com/video/BV1Wg4y1i7Zp)
+
+
+应该是目前最完整的
+
+
+
+
+
+
+
+-----
+
+####  fore_long  
+##### 787#       发表于 2020-5-29 18:16
+
+
+
+
+不可思议，CNN记者在Minneapolis街头直播采访，然后被带上手铐抓走了⊙﹏⊙
+
+
+
+
+
+
+
+-----
+
+####  百合豚  
+##### 788#       发表于 2020-5-29 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605207&amp;ptid=1937970" target="_blank">fore_long 发表于 2020-5-29 18:16</a>
+
+不可思议，CNN记者在Minneapolis街头直播采访，然后被带上手铐抓走了⊙﹏⊙</blockquote>
+真是没想到米**是如此的恶劣
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 789#       发表于 2020-5-29 18:17
+
+
+
+
+说是至少7个**者在逛街的时候被铳打了？
+是在**那个睡觉被警察破门打死的黑人女性好像
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 790#       发表于 2020-5-29 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605102&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:06</a>
+https://b23.tv/wHbjBh
+
+被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人</blockquote>
+杀人的白人警察有个亚裔妻子，被害的黑人有个白**子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这一波全凑齐了可还行
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 余海露| + 1|╯﹏╰|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cube  
+##### 791#       发表于 2020-5-29 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605102&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:06</a>
+
+https://b23.tv/wHbjBh
+
+
+被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人</blockquote>
+一个努力工作养孩子、无过往不良记录、反对枪支毒品滥用的老好人成了“偏”，然后死在了维护社会秩序的警察手上。
+
+
+
+
+
+
+
+-----
+
+####  fore_long  
+##### 792#       发表于 2020-5-29 18:22
+
+
+
+<blockquote>百合豚 发表于 2020-5-29 18:17
+真是没想到米**是如此的恶劣</blockquote>
+现在CNN直播室全是蒙逼的状态……
+
+记者要求cop解释抓他的原因，警察不说。
+
+
+最新消息是警察叫他不要站在那里，记者没听。于是抓起来咯。
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 793#       发表于 2020-5-29 18:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605102&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:06</a>
+
+https://b23.tv/wHbjBh
+
+
+被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人</blockquote>
+[https://www.bilibili.com/video/BV1Jz411B7dK](https://www.bilibili.com/video/BV1Jz411B7dK)
+
+
+被害人之前还发过一段劝年轻黑人远离暴力的视频，太讽刺了。
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 794#       发表于 2020-5-29 18:24
+
+
+
+
+.@lmpd has confirmed 7 people were shot during tonight’s protest of the killing of Breonna Taylor. At least 1 is critical. Some arrests have been made. No further information is being released at this time.
+
+7个人逛街时被铳打了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  纸片有霞  
+##### 795#       发表于 2020-5-29 18:25
+
+
+
+
+表面上的自由之下才隐藏着巨大的压迫啊，只能说美帝社会环境几十年来其实没有改变
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 796#       发表于 2020-5-29 18:25
+
+
+
+ 本帖最后由 longrider 于 2020-5-29 18:27 编辑 
+
+[https://twitter.com/ChefCindi/status/1266312903038296064](https://twitter.com/ChefCindi/status/1266312903038296064)
+
+
+CNN现场采访的记者Omar Jimenez和他的摄影团队在直播镜头前被警察铐走了，原因是“拒绝服从警察让他们不要动的命令”。没有直接压上来还真是手下留情了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+<img src="http://n.sinaimg.cn/edu/c090d6b3/20200529/20200529182326.png" referrerpolicy="no-referrer">
+
+
+“长的这么黑，还戴口罩，一看就不知道是好人”
+
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 797#       发表于 2020-5-29 18:26
+
+
+
+ 本帖最后由 000000 于 2020-5-29 18:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596998&amp;ptid=1937970" target="_blank">雷诺4000 发表于 2020-5-29 06:18</a>
+
+你搁这体亏屁思啥呢？
+
+
+尼格在美国很惨跟我们有啥关系？难道是我们害的吗？</blockquote>
+答案你自己已经回答了
+
+
+黑人在美国很惨你应该至少感到共情和愤怒，因为那是一条生命
+
+
+你没欠别人也不应该去侮辱别人，外国人在国内享受特权，你该愤怒的是因为他长了白皮肤还是黑皮肤？还是你该愤怒给予他们特权，夺走你，你孩子未来权力的人？
+
+
+更何况任何一个对篮球充满热情，或者更深入喜欢AND1也不能该被你去说这是尼格拍皮球low逼活动
+
+
+正常的路不走，非要和种族粪坑同流合污，键政前至少先学会如何尊重别人吧。
+
+ps. 不过既然有这么多爱伪装爱国人士我也正好说了
+
+
+我不在乎这两个地方谁好谁坏，我是单纯瞧不起只会打尼格的你，就是你个没种的怂货而已，所以不用拉大旗作虎皮跟我这研究键政策略
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| leader01234| + 1||
+| 西瓜田里的飞鱼| + 1|关于特权说的没错|
+| 漫区专号| + 2|回血|
+| lcw123| + 1||
+| 巫师萨满|-1|围中救美|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  chexk03  
+##### 798#       发表于 2020-5-29 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605128&amp;ptid=1937970" target="_blank">cryindance 发表于 2020-5-29 18:08</a>
+b站观察者网发的视频就是全的
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+不是，原版6分多钟吧，知乎上有全的，观察者和大部分都是剪了的
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 799#       发表于 2020-5-29 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605302&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 18:25</a>
+https://twitter.com/ChefCindi/status/1266312903038296064
+
+
+CNN现场采访的记者Omar Jimenez和他的摄影团 ...</blockquote>
+这个太搞了 戏剧性太强 
+
+
+
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 800#       发表于 2020-5-29 18:35
+
+
+
+<blockquote>风猫 发表于 2020-5-29 19:24
+.@lmpd has confirmed 7 people were shot during tonight’s protest of the killing of Breonna Taylor.  ...</blockquote>
+其中一人被暴击是啥意思
+
+
+
+
+
+
+
+-----
+
+####  zuperer  
+##### 801#       发表于 2020-5-29 18:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605409&amp;ptid=1937970" target="_blank">skullgreymon 发表于 2020-5-29 18:35</a>
+其中一人被暴击是啥意思</blockquote>
+其中一人重伤。
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 802#       发表于 2020-5-29 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602411&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-29 15:06</a>
+那你解释一下当年对爱尔兰人和意大利人的歧视</blockquote>
+这有什么想不通的，你没见过地域歧视？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  你又开始了？  
+##### 803#       发表于 2020-5-29 18:44
+
+
+
+
+服了这迷惑的屏蔽词系统…白人 妻子 还行…
+
+
+
+
+
+
+
+-----
+
+####  Ty_cc  
+##### 804#       发表于 2020-5-29 18:45
+
+
+
+
+红r看相关讨论看哪个版，原来只逛Coronavirus版
+
+
+
+
+
+
+
+-----
+
+####  ukuli  
+##### 805#       发表于 2020-5-29 18:46
+
+
+
+
+日本：我国有一种令人自豪的传统技艺、流传百年
+
+美国：我们也是
+
+日本：我们会捕杀某种大型黑色生物
+
+美国：我们也是
+
+日本：在以前需要很多男人坐船，出海捕获它们，再用船运回来。
+
+美国：我们也是
+
+日本：猎物被捕后会呼吸困难，拼命挣扎。
+
+美国：我们也是
+
+日本：所以画面常常会显得残忍
+
+美国：我们也是
+
+日本：可是我们的大部分国民虽然嘴上反对，其实心里是喜欢的。
+
+美国：我们也是
+
+日本：你们如何杀掉猎物？
+
+美国：以前都是吊死，或者用火烧。现在一般用工具射杀，或者直接徒手杀死。
+
+日本：斯过一，真是相当令人敬佩的技艺。
+
+美国：你们呢？
+
+日本：我们是用工具射击，然后吊起来用机器肢解分尸。
+
+美国：666
+
+日本：老子最讨厌别的国家对我们这事指手画脚
+
+美国：我们倒是没听说过什么他国指责，一般都是我们指责别人。
+
+日本：有些令人讨厌的西方媒体时常报道这事。
+
+美国：说他们假新闻就行。
+
+日本：他们不了解我们，他们完全理解不了我们的习俗，这是一种文化的传承。
+
+美国：对对对
+
+日本：你们杀掉后一般怎么吃？
+
+美国：emm....，倒是没尝过，话说这样会不会太变态了啊
+转自知乎
+
+
+
+
+
+
+
+-----
+
+####  诸君何弃疗  
+##### 806#       发表于 2020-5-29 18:46
+
+
+
+
+说起来国内有什么关于黑豹党的书吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 807#       发表于 2020-5-29 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605055&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:02</a>
+话说涉案警察为啥还不抓起来  市长都呼吁抓一下了 哪怕做个样子也好
+
+这一波暴动经济损失可严重  当断则断 ...</blockquote>
+这涉及美国警察执法权的根本，不可能这么干的，不过我觉得平乱后应该还是会走下过场。
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 808#       发表于 2020-5-29 18:47
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-29 18:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605477&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 18:43</a>
+这有什么想不通的，你没见过地域歧视？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+你不是说要能从视觉上分辨才行吗？而且这并不是地域歧视，爱尔兰人和意大利人一度可不算是白人而被视为劣等种族的，这两个族裔跟其他白人的区分度并不高，更何况爱尔兰人肤色上还更"白"
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 809#       发表于 2020-5-29 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605477&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 18:43</a>
+
+这有什么想不通的，你没见过地域歧视？
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+其实也是文化膜因，当年意大利人肤色暗，头发黑，又叫半个黑人，爱尔兰人饥荒过去时还是红发，10个ginger6个irish
+
+
+后来就是混多了，看不出了
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 810#       发表于 2020-5-29 18:49
+
+
+
+
+爱尔兰人被歧视后 不一样推动排华法案歧视华人吗
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 811#       发表于 2020-5-29 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605302&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 18:25</a>
+https://twitter.com/ChefCindi/status/1266312903038296064
+
+
+CNN现场采访的记者Omar Jimenez和他的摄影团 ...</blockquote>
+没当街按死已经很克制了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 812#       发表于 2020-5-29 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605495&amp;ptid=1937970" target="_blank">Ty_cc 发表于 2020-5-29 18:45</a>
+
+红r看相关讨论看哪个版，原来只逛Coronavirus版</blockquote>
+/politics 和/news
+
+
+大家都在看CNN的直播
+[https://www.reddit.com/r/news/co ... z_and_4member_crew/](https://www.reddit.com/r/news/comments/gsqb1q/cnn_news_crew_of_omar_jimenez_and_4member_crew/)
+[https://www.reddit.com/r/politic ... sted_live_on_tv_in/](https://www.reddit.com/r/politics/comments/gsqfgt/black_cnn_correspondent_arrested_live_on_tv_in/)
+
+
+最骚的是记者的小蜜蜂和摄像机还开着，CNN一直在直播
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 813#       发表于 2020-5-29 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605517&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-29 18:47</a>
+你不是说要能从视觉上分辨才行吗？而且这并不是地域歧视，爱尔兰人和意大利人一度可不算是白人而被视为劣 ...</blockquote>
+地域歧视和用肤**分的种族歧视难道是相互排斥的概念？美国新旧**的问题去看美国种族简史
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  土旦克007  
+##### 814#       发表于 2020-5-29 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605233&amp;ptid=1937970" target="_blank">艾登皮尔斯 发表于 2020-5-29 18:18</a>
+
+杀人的白人警察有个亚裔妻子，被害的黑人有个白**子这一波全凑齐了可还行 ...</blockquote>
+然后涉事的四名警察，有个亚裔警察在外围放风警戒
+
+
+
+
+
+
+
+-----
+
+####  caine4u  
+##### 815#       发表于 2020-5-29 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604809&amp;ptid=1937970" target="_blank">晓黑雾 发表于 2020-5-29 17:44</a>
+
+中国：扫黄打黑
+
+美国：扫黄打黑
+
+在啊B看到的回复，笑死人了</blockquote>
+人才啊人才
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 816#       发表于 2020-5-29 18:55
+
+
+
+
+白皮歧视黄皮的时候也不会区分你日韩中，对黄皮的形象概括就是猴子
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 817#       发表于 2020-5-29 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605517&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-29 18:47</a>
+
+你不是说要能从视觉上分辨才行吗？而且这并不是地域歧视，爱尔兰人和意大利人一度可不算是白人而被视为劣 ...</blockquote>
+你搜David Caruso看发色就明白了，爱尔兰的血液让凯尔特人的特征也很顽强的，这个在WASP里叫红发，一眼就被认出了
+
+
+
+
+
+
+
+-----
+
+####  Dreki  
+##### 818#       发表于 2020-5-29 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605076&amp;ptid=1937970" target="_blank">bg54188 发表于 2020-05-29 18:04:02</a>
+有组织和无组织差距明显啊
+
+砸光烧光也影响不到白富阶层，好歹学学火山青年啊 v2.2.2.1 ...</blockquote>火山明面上也是去中心化的，背后的也是cia，而且也没伤到资本家
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 819#       发表于 2020-5-29 18:58
+
+
+
+
+扯凯尔特人就要扯到祖宗英国去了，本质上还是种族歧视，征服者怎么会正眼看奴隶
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 820#       发表于 2020-5-29 19:07
+
+
+
+
+感觉美国每天这种事情也不少啊，怎么这次闹得这么大呢?
+
+
+
+
+
+
+
+-----
+
+####  洛拉斯  
+##### 821#       发表于 2020-5-29 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605733&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 19:07</a>
+
+感觉美国每天这种事情也不少啊，怎么这次闹得这么大呢?</blockquote>
+你看了视频就知道了
+
+
+突破了做人的底线
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 822#       发表于 2020-5-29 19:09
+
+
+
+
+美国这种合法持枪国家，抗-议起来意料之外的和平嘛，我还以为会到处枪战<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cjcjason  
+##### 823#       发表于 2020-5-29 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605495&amp;ptid=1937970" target="_blank">Ty_cc 发表于 2020-5-29 18:45</a>
+ 红r看相关讨论看哪个版，原来只逛Coronavirus版</blockquote>
+就news版
+
+
+
+
+
+
+
+-----
+
+####  featherwit  
+##### 824#       发表于 2020-5-29 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597705&amp;ptid=1937970" target="_blank">fatimagg01 发表于 2020-5-29 09:02</a>
+
+看批岛速报2这个串里有人扒出无间道了</blockquote>
+有链接嘛大佬
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 825#       发表于 2020-5-29 19:11
+
+
+
+
+还是别扯什么组织纪律目标纲领啥的了，这次就是人们这段时间各种事积累起来的负面情绪被引爆了，群体情绪爆炸起来没什么理性可言
+
+
+— from Google Pixel 2 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 826#       发表于 2020-5-29 19:11
+
+
+
+
+还是别扯什么组织纪律目标纲领啥的了，这次就是人们这段时间各种事积累起来的负面情绪被引爆了，群体情绪爆炸起来没什么理性可言
+
+
+— from Google Pixel 2 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  沉默之声  
+##### 827#       发表于 2020-5-29 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605733&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 19:07</a>
+
+感觉美国每天这种事情也不少啊，怎么这次闹得这么大呢?</blockquote>
+2020这一切…感觉某位神灵醒了开始审判这个恶堕的世界<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqc1021  
+##### 828#       发表于 2020-5-29 19:15
+
+
+
+
+草，怎么推特上连五大素球都有了，内味儿太冲了。
+
+—— 来自 samsung SM-A9080, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ronac  
+##### 829#       发表于 2020-5-29 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605279&amp;ptid=1937970" target="_blank">真田丸 发表于 2020-5-29 18:23</a>
+
+https://www.bilibili.com/video/BV1Jz411B7dK
+
+
+被害人之前还发过一段劝年轻黑人远离暴力的视频，太讽刺 ...</blockquote>
+之前看到的一些信息（可能有误）
+
+这黑叔叔有正经学位，平时是做安保工作
+
+看身材就知道还是挺健壮的，不是没法还手的人
+
+之前发个人视频的初衷大概是工作的时候看见不少小青年寻衅滋事？“现在的孩子太张扬……觉得拿枪很酷，打打杀杀……你应该回家去踏踏实实过日子”
+
+某娱乐场所老板说杀人的警察和这黑叔叔同时期（到去年年底）在他家工作过（有些业余时间的警察会来干零活，内保和外保），老板觉得这两个人没准以前见过面
+
+
+
+
+
+
+
+-----
+
+####  洛拉斯  
+##### 830#       发表于 2020-5-29 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605815&amp;ptid=1937970" target="_blank">cqc1021 发表于 2020-5-29 19:15</a>
+
+草，怎么推特上连五大素球都有了，内味儿太冲了。
+
+
+—— 来自 samsung SM-A9080, Android 10上的 S1Next-鹅 ...</blockquote>
+我也看到了，特别讽刺
+
+
+全世界的喜剧作家都写不出如此搞笑的转折
+
+
+我们这个时候可不可以去复读cnn以前的报道
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 831#       发表于 2020-5-29 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605297&amp;ptid=1937970" target="_blank">纸片有霞 发表于 2020-5-29 18:25</a>
+
+表面上的自由之下才隐藏着巨大的压迫啊，只能说美帝社会环境几十年来其实没有改变 ...</blockquote>
+美国取消种族隔离才50年左右而已  只能说它的宣传舆论机器实在太厉害了
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 832#       发表于 2020-5-29 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605733&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 19:07</a>
+
+感觉美国每天这种事情也不少啊，怎么这次闹得这么大呢?</blockquote>
+所以这也不是第一次了啊  只是刚刚发生印象比较深而已
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 833#       发表于 2020-5-29 19:27
+
+
+
+
+怎么感觉美帝各种孽力回馈，前半局跳的飞起，后半局原地爆炸螺旋升天<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 834#       发表于 2020-5-29 19:27
+
+
+
+
+泥潭现在可以讨论了？
+
+
+
+
+
+
+
+-----
+
+####  banananananana  
+##### 835#       发表于 2020-5-29 19:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605185&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-29 18:14</a>
+
+https://www.bilibili.com/video/BV1Wg4y1i7Zp
+
+
+应该是目前最完整的</blockquote>
+完整版更让人难受<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  michaelakan  
+##### 836#       发表于 2020-5-29 19:45
+
+
+
+
+**，这完整版里面大概3分钟左右这人就基本没动静了…………然后几个JC叔叔没有一个上去检查一下的吗
+
+
+
+
+
+
+
+-----
+
+####  卢比扬卡大饭店  
+##### 837#       发表于 2020-5-29 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606142&amp;ptid=1937970" target="_blank">michaelakan 发表于 2020-5-29 19:45</a>
+**，这完整版里面大概3分钟左右这人就基本没动静了…………然后几个JC叔叔没有一个上去检查一下的吗 ...</blockquote>
+下手那么狠，不是冲着弄死他去的我都不信。
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 838#       发表于 2020-5-29 19:52
+
+
+
+
+CNN @CNN
+
+Minnesota Gov. Tim Walz has apologized for the arrest of a CNN reporter and camera crew and says he will have them released. “It was totally unacceptable.”
+[https://twitter.com/CNN/status/1266332090653724674](https://twitter.com/CNN/status/1266332090653724674)
+
+
+
+明州州长就逮捕CNN记者一事道歉，表示很快就会释放他们
+
+
+
+
+
+
+
+-----
+
+####  Linjiangzhu  
+##### 839#       发表于 2020-5-29 19:54
+
+
+
+ 本帖最后由 Linjiangzhu 于 2020-5-29 19:58 编辑 
+
+已经放人了
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/195700dzit9h1htmln3uhq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200529-045349.jpg</strong> (282.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 19:57 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 840#       发表于 2020-5-29 19:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606226&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 19:52</a>
+CNN @CNN
+
+Minnesota Gov. Tim Walz has apologized for the arrest of a CNN reporter and camera crew and ...</blockquote>
+丢人.gif <img src="https://static.saraba1st.com/image/smiley/carton2017/157.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+                      
