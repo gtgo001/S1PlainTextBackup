@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 20:06** 
+> ## **本文件最后更新于2020-05-29 22:11** 
 
 
 
@@ -4770,1844 +4770,6 @@ v2.2.2.1</blockquote>太悲哀了。。
 
 推特上HK黄尸超爱蹭热度，每个排名靠前的趋势都要出来跳，这一次也不例外。你可以去看一看 ...</blockquote>
 这是两回事，白宫的ig还天天被俄语评论刷屏呢，但这不管人家新闻报道的事的，美国地区的twitter trends本身都找不到火山，新闻更是本身绝大多数篇幅都是报道本地的新闻。
-
-
-
-
-
-
-
------
-
-####  雨落飘零  
-##### 241#       发表于 2020-5-28 06:08
-
-
-
-
-当地人恐怕也就只能随便闹一闹，警察杀百姓在美国我真的没有听说过有什么惩罚的…美国人在这种时候各个都没种，不是号称不禁qiang就是为了在这些时候防一手吗，结果qiang只是鹅害鹅的工具，给你东西你也不中用啊
-
-
-
-
-
-
-
------
-
-####  烦死了  
-##### 242#       发表于 2020-5-28 06:10
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585341&amp;ptid=1937970" target="_blank">旋转吃草 发表于 2020-5-28 05:36</a>
-你这个就属于乱讲了，美国绝大部分新闻都是在讲国内甚至本地的事。不去特意找，基本看不到火山的新闻 ...</blockquote>
-至少PBS每天都有在跟进报道的
-
-
-
-
-
-
-
------
-
-####  旋转吃草  
-##### 243#       发表于 2020-5-28 06:14
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47585373&amp;ptid=1937970" target="_blank">烦死了 发表于 2020-5-28 06:10</a>
-
-至少PBS每天都有在跟进报道的</blockquote>
-这两天有报道很正常，白宫都发话了，nyt也有，但是你再看看篇幅，和那位说的24小事高强度头条轰炸是一回事吗
-
-
-
-
-
-
-
------
-
-####  onezeron  
-##### 244#       发表于 2020-5-28 06:18
-
-
-
-
-一直以来都有的两个感想：
-
-1. 你在美国当有色人种，过着一种次要的生活，那话是这么说来着吧
-
-2. 某港的反警暴我一直觉得特别扯淡。我见过的国家都是越发达警察约暴力，合理来讲应该是反对警察不够暴力。香港警察也不说和美国警察学一下
-
-
-
-
-
-
-
------
-
-####  Vincent_law  
-##### 245#       发表于 2020-5-28 06:38
-
-
-
-<blockquote>onezeron 发表于 2020-5-28 06:18
-一直以来都有的两个感想：
-
-1. 你在美国当有色人种，过着一种次要的生活，那话是这么说来着吧
-
-2. 某港的反警 ...</blockquote>
-第二条“国家”，可惜不是
-
-
-
-
-
-
-
------
-
-####  世界之旅  
-##### 246#       发表于 2020-5-28 06:46
-
-
-
-
-你到车里去
-
-可是我不能动啊
-
-你先到车里去我就让你动
-
-你不让我动，我怎么上车啊
-
-那你到车上就放开你了啊
-
-你不放开我，我怎么上车啊
-
-你先………
-
-
-
-
-
-
-
------
-
-####  icecry  
-##### 247#       发表于 2020-5-28 06:53
-
-
-
-<blockquote>世界之旅 发表于 2020-5-28 06:46
-你到车里去
-
-可是我不能动啊
-
-你先到车里去我就让你动
-</blockquote>
-q群时常传的那张图我一直以为是调侃，没想到是真的
-
-
-
-
-
-
-
------
-
-####  onezeron  
-##### 248#       发表于 2020-5-28 06:56
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583054&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-27 22:26</a>
-
-西方国家从未民主过。民主是社会主义国家的口号和实行目标。西方国家讲的是自由 自有资本，他们口里的民 ...</blockquote>
-这个功臣其实是小布什，从他那个时候，把民主这个词就抢过去了
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| stmule| + 1|“they hate us for our freedom”|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  春哥亲自  
-##### 249#       发表于 2020-5-28 06:56
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584554&amp;ptid=1937970" target="_blank">yayoi801 发表于 2020-5-28 00:45</a>
-爆发了大规模和平散步，然后催泪气和橡胶弹都被拿出来用以镇压了
-
-然而之前那些带着武器抗议隔离和戴口罩的 ...</blockquote>
-因为他们真有gun
-
-
-
-
-
-
-
------
-
-####  v沈馒馒v  
-##### 250#       发表于 2020-5-28 07:04
-
-
-
-
-看了一眼时间
-
-不是旧闻
-
-几乎一模一样的事件一遍又一遍
-
-
-
-
-
-
-
------
-
-####  大哀之君  
-##### 251#       发表于 2020-5-28 07:32
-
-
-
- 本帖最后由 大哀之君 于 2020-5-28 07:34 编辑 
-
-
-<img src="https://img.saraba1st.com/forum/202005/28/073404akem6n3hla66g65u.jpg" referrerpolicy="no-referrer">
-
-
-<strong>IMG_20200528_073336.jpg</strong> (424.88 KB, 下载次数: 0)
-
-下载附件
-
-2020-5-28 07:34 上传
-
-
-
-
-
-[https://www.zhihu.com/answer/1249445043](https://www.zhihu.com/answer/1249445043)
-
-
-
-
-
-
-Screenshot_2020-05-28-07-25-15-182_com.zhihu.android.jpg
-(593.63 KB, 下载次数: 2)
-
-
-
-
-下载附件
-
-
-2020-5-28 07:32 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202005/28/073214tjq543353w75373q.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
-
-
------
-
-####  nominication47  
-##### 252#       发表于 2020-5-28 08:01
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583417&amp;ptid=1937970" target="_blank">骑兵突击步枪 发表于 2020-05-27 22:56:27</a>
-当年李开复还说民主国家允许民众上街，不会“捂盖子”，“有伤口就暴露出来，不会一直堵着最后化脓”，但 ...</blockquote>现实却是麻风病，的确在溃烂化脓，但并不会好，最后会发展成肢体脱落。
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  felixcat  
-##### 253#       发表于 2020-5-28 08:04
-
-
-
-<blockquote>Promeus 发表于 2020-5-27 18:36
-——你马上给我到警车里去
-
-——你压着我脖子我动不了，我没法到警车里去
-
-——你他妈不到警车里去我就不松腿 ...</blockquote>
-这个和之前在某个走廊被条子用AR指着叫他又趴下又要举手又要他移过来又要他不动，一直痛哭流涕然后还是被AR乱铳打死的那个白人老兄一样……(눈_눈)
-
-
-
-
-
-
-
------
-
-####  flypig_zhy  
-##### 254#       发表于 2020-5-28 08:09
-
-
-
-<blockquote>felixcat 发表于 2020-5-28 08:04
-这个和之前在某个走廊被条子用AR指着叫他又趴下又要举手又要他移过来又要他不动，一直痛哭流涕然后还是被 ...</blockquote>
-那次为警察洗地的人不少
-
-
-
-
-
-
-
------
-
-####  梦回星海  
-##### 255#       发表于 2020-5-28 08:27
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583054&amp;ptid=1937970" target="_blank">###### 发表于 2020-05-27 22:26:39</a>
-西方国家从未民主过。民主是社会主义国家的口号和实行目标。西方国家讲的是自由 自有资本，他们口里的民 ...</blockquote>民主主义兵工厂这个说法。。。难道指的是美国给苏联做军火直销？
-
-[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  蹲墙角  
-##### 256#       发表于 2020-5-28 08:38
-
-
-
-
-为这黑哥默哀 唉 光天化日之下居然被活活弄死
-
-
-
-
-
-
-
------
-
-####  nailuo1993  
-##### 257#       发表于 2020-5-28 08:42
-
-
-
-<blockquote>2517君改二 发表于 2020-5-28 01:03
-这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
-Punishment
-
-
-
-
-
-
-
------
-
-####  stepbystep  
-##### 258#       发表于 2020-5-28 08:51
-
-
-
-
-这种除了血腥复仇也没别得办法了，黑叔叔的亲戚有没有硬汉很关键
-
-
-
-
-
-
-
------
-
-####  coolffcat  
-##### 259#       发表于 2020-5-28 08:57
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579363&amp;ptid=1937970" target="_blank">大哀之君 发表于 2020-5-27 17:29</a>
-
-警察抓住一个黑人，无视他的哀求，用膝盖压脖子把他活活压死了。事后警局毅然决定开除涉事四人作为处置， ...</blockquote>
-病毒：不是很懂你们灵长类<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  coolffcat  
-##### 260#       发表于 2020-5-28 09:00
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579688&amp;ptid=1937970" target="_blank">酷暑难耐 发表于 2020-5-27 17:57</a>
-
-靠，看的真令人愤慨。黑人被压迫的够狠，难怪一点就炸。</blockquote>
-而且这次疫情本来对美国黑人的影响就大 死亡病例也多 都憋着口气 还来这么一出<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  zitan  
-##### 261#       发表于 2020-5-28 09:01
-
-
-
-
-上4chan看了一下，/pol全是你哥打砸抢，/news全是杭康、新冠。太真实了🐶
-
-
-
-
-
-
-
------
-
-####  coolffcat  
-##### 262#       发表于 2020-5-28 09:02
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47580166&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-27 18:39</a>
-
-另外帖子里那个更惨，叫他双脚叠起来双手举头顶爬过来，老哥当然做不到，直接给突突了……太惨了，这种真 ...</blockquote>
-警察把正常在家的打靶都不是事（什么还敢反抗，快起诉他）
-
-
-
-
-
-
-
------
-
-####  yanghuangu  
-##### 263#       发表于 2020-5-28 09:06
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584683&amp;ptid=1937970" target="_blank">2517君改二 发表于 2020-5-28 01:03</a>
-
-这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
-碎月那个？
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 264#       发表于 2020-5-28 09:06
-
-
-
-<blockquote>梦回星海 发表于 2020-5-28 08:27
-民主主义兵工厂这个说法。。。难道指的是美国给苏联做军火直销？
-
-
-  -- 来自 能搜索的 Stage1官方 Android ...</blockquote>
-你最好回去查查。那句话到底怎么说的
-
-
-
-
-
-
-
------
-
-####  coolffcat  
-##### 265#       发表于 2020-5-28 09:09
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583744&amp;ptid=1937970" target="_blank">sanxgh571 发表于 2020-5-27 23:21</a>
-
-马丁路德金气活了第二天又被暗杀</blockquote>
-不用暗杀 安排警察足矣 你就是蹲家里吃冰淇淋照样被闯进来的警察喂**
-
-
-
-
-
-
-
------
-
-####  梦回星海  
-##### 266#       发表于 2020-5-28 09:09
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586182&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:06</a>
-
-你最好回去查查。那句话到底怎么说的</blockquote>
-不如你告诉我这句话是怎么说的。
-
-
-
-
-
-
-
------
-
-####  斯拉克自有妙计  
-##### 267#       发表于 2020-5-28 09:09
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586182&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:06</a>
-你最好回去查查。那句话到底怎么说的</blockquote>
-1940年，美国宣称“成为民主国家的兵工厂”，并对外援助军事物资．这个?
-
-
-
-
-
-
-
------
-
-####  斯拉克自有妙计  
-##### 268#       发表于 2020-5-28 09:10
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586211&amp;ptid=1937970" target="_blank">梦回星海 发表于 2020-5-28 09:09</a>
-不如你告诉我这句话是怎么说的。</blockquote>
-罗斯福在1940年说的
-
-
-
-
-
-
-
------
-
-####  turnyyy  
-##### 269#       发表于 2020-5-28 09:12
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
-我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
-有的，黑豹党当年就有涉及到康米了，但是被干死了，康米这种有力的武器能把资本家吓死
-
-
-
-
-
-
-
------
-
-####  yario  
-##### 270#       发表于 2020-5-28 09:13
-
-
-
-
-作为詹黑 头一次这么支持LBJ 
-
-
-
-
-
-
-
------
-
-####  梁日浮  
-##### 271#       发表于 2020-5-28 09:14
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584683&amp;ptid=1937970" target="_blank">2517君改二 发表于 2020-5-28 01:03</a>
-
-这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
-求专辑名或者歌名或者地址，想去听听看。
-
-
-
-
-
-
-
------
-
-####  有妹是老婆  
-##### 272#       发表于 2020-5-28 09:15
-
-
-
-
-无法理解，“就算这样也比中国好”的内在逻辑是什么
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 273#       发表于 2020-5-28 09:15
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586212&amp;ptid=1937970" target="_blank">斯拉克自有妙计 发表于 2020-5-28 09:09</a>
-
-1940年，美国宣称“成为民主国家的兵工厂”，并对外援助军事物资．这个?</blockquote>
-对 是民主国家的兵工厂 不是民主主义兵工厂。民主国家是英国么？是德国么？还是USSR? 当然罗斯福生前死后被扣的共党帽子不计其数，美国50年代共和党上台各种倒车
-
-
-
-
-
-
-
------
-
-####  vampiar  
-##### 274#       发表于 2020-5-28 09:19
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
-无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
-屁股长在脑子里的，甚至可能不是人类
-
-
-
-
-
-
-
------
-
-####  筱原重工  
-##### 275#       发表于 2020-5-28 09:22
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586277&amp;ptid=1937970" target="_blank">梁日浮 发表于 2020-5-28 09:14</a>
-
-求专辑名或者歌名或者地址，想去听听看。</blockquote>
-FLASHLIGHT
-
-
-
-
-
-
-
------
-
-####  梦回星海  
-##### 276#       发表于 2020-5-28 09:24
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586282&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:15</a>
-
-对 是民主国家的兵工厂 不是民主主义兵工厂。民主国家是英国么？是德国么？还是USSR? 当然罗斯福生前死后 ...</blockquote>
-不是，德先生这东西，你认为本意是啥？另外说这话的时候美国还没有开始援助苏联，这就是指英法等国。你可以说西方国家在冷战期间打出来的旗号是“自由世界”，但你说西方国家否认民主主义那可真是白马非马。当然，两方喷对面不是真民主倒是日常。
-
-
-
-
-
-
-
------
-
-####  醉鸽子  
-##### 277#       发表于 2020-5-28 09:26
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上街散步，然后纷纷感染新冠，都不用浪费花生米......
-
-
-
-
-
-
-
------
-
-####  Lord_Voldemort  
-##### 278#       发表于 2020-5-28 09:45
-
-
-
-
-这么杀一只狗都算虐待动物了，这警察绝对是个变态。
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 279#       发表于 2020-5-28 09:46
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586394&amp;ptid=1937970" target="_blank">梦回星海 发表于 2020-5-28 09:24</a>
-
-不是，德先生这东西，你认为本意是啥？另外说这话的时候美国还没有开始援助苏联，这就是指英法等国。你可 ...</blockquote>
-当时西方国家已经在实行代议民主共和制的政治制度 叫民主国家 但是并不是实行民主主义
-
-
-
-
-
-
-
------
-
-####  梦回星海  
-##### 280#       发表于 2020-5-28 09:50
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586645&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:46</a>
-
-当时西方国家已经在实行代议民主共和制的政治制度 叫民主国家 但是并不是实行民主主义 ...</blockquote>
-。。。你是不是分不清民主主义\民主制度和人民民主这两个概念？
-
-
-
-
-
-
-
------
-
-####  btnasi  
-##### 281#       发表于 2020-5-28 09:53
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
-
-无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
-中国不能杀黑人。美国可以随便杀。
-
-要我说就是比中国好。
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 4战斗力 -4
-
-|昵称|战斗力|理由|
-|----|---|---|
-| 弧离的三型|-1|？？？？？|
-| vigilance|-1||
-| 荒南君|-1|只会口嗨的黄皮肥皂。|
-| 长弓破风|-1|你个亚裔在美国也属于可以随便杀的范畴.|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  某Bill  
-##### 282#       发表于 2020-5-28 09:54
-
-
-
-
-在奥巴马时期都不少见这样的案子，川普时期没全境大规模爆发算不算这帮白人police“自我克制”？
-
-某乎上看到一张转载图 one country two systems 对比白人凶嫌和黑人普通嫌疑人，警方的不同待遇
-
-
-真讽刺啊
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 283#       发表于 2020-5-28 09:55
-
-
-
- 本帖最后由 ###### 于 2020-5-28 09:56 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586683&amp;ptid=1937970" target="_blank">梦回星海 发表于 2020-5-28 09:50</a>
-
-。。。你是不是分不清民主主义\民主制度和人民民主这两个概念？</blockquote>
-西方国家玩概念 文字游戏 双重标准 打左灯往右转。是不能看他们怎么说，只能看他们怎么做。概念写的再好，实施的时候完全不按稿子来。
-
-
-
-
-
-
-
------
-
-####  起飞  
-##### 284#       发表于 2020-5-28 09:56
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579710&amp;ptid=1937970" target="_blank">大哀之君 发表于 2020-5-27 17:58</a>
-
-当事警察带着那顶白命贵帽子的照片旁边还有他得意洋洋写下的一行字
-
-“The blacker the berry, the sweeter  ...</blockquote>
-这话怎么理解？
-
-
-字面上是越黑的浆果，果汁越甜？
-
-
-
-
-
-
-
------
-
-####  Archlich³  
-##### 285#       发表于 2020-5-28 09:56
-
-
-
- 本帖最后由 Archlich³ 于 2020-5-28 10:00 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
-
-我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
-
-对Malcolm X这一票人而言，找上伊斯兰的是因为需要一个作为“白人的宗教”的基督教的对立面的“黑人的宗教”。正好人家也提供这种语境，换了佛教、另一些黑人民族主义者采用的非洲老家的萨满教或者mao主义（暴力归暴力，但不是宗教）就没这种直接跟基督教对抗的感觉。然而这伊斯兰除了戒律外基本给改造得妈都不认识了，麦加真就成瓦坎达了……
-
-
-
-
-
-
-
------
-
-####  古留  
-##### 286#       发表于 2020-5-28 09:57
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
-
-无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
-“我又不是黑人，这种事情轮不到我头上”
-
-“国内各种阉割审查，话都不能讲，日子过得有啥意思？”
-
-“这里的牛奶有牛奶味道，不像国内都没有味道的。吃的东西也安全。”
-
-
-我可以给你列一百条……
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 287#       发表于 2020-5-28 10:04
-
-
-
- 本帖最后由 ###### 于 2020-5-28 10:11 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586755&amp;ptid=1937970" target="_blank">Archlich³ 发表于 2020-5-28 09:56</a>
-
-对Malcolm X这一票人而言，找上伊斯兰的是因为需要一个作为“白人的宗教”的基督教的对立面的“黑人的宗 ...</blockquote>
-Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。黑豹党有革命纲领，然而明白点的领导要么流亡要么蹲监狱要么被突突，黑人整体文化低容易受荧惑，后期CIA和FBI拼命收买狗腿还往黑人运动里掺沙子。等这阵风浪过去以后，美国改弦更张玩口上政治正确实行对黑人养猪，还把黑人不文明行为鼓吹成黑人文化，就发展成现在这样。宗教这东西黑人哪有白皮玩的溜，黑人运动转向宗教找解决方案就是自寻死路。美国宣传马丁路德金和马尔科姆X其实就是一种带歪，你看黑豹党都被黑出翔。黑豹党的领袖和主要成员以行动纲领有几个黑人知道？
-
-
-
-
-
-
-
------
-
-####  毛利提督  
-##### 288#       发表于 2020-5-28 10:06
-
-
-
-
-单纯当种族歧视问题其实都是避重就轻
-
-
-执法机构集体选择性坏掉导致的类似事件都快年经了，说好的体制纠错能力强、体制xx比单纯的个人作恶更可怕呢？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  UmarIbnLaAhad  
-##### 289#       发表于 2020-5-28 10:09
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586746&amp;ptid=1937970" target="_blank">起飞 发表于 2020-5-28 09:56</a>
- 这话怎么理解？  字面上是越黑的浆果，果汁越甜？</blockquote>
-浆果要爆掉才会有汁水出来的，联想一下
-
-
-
-
-
-
-
------
-
-####  筱原重工  
-##### 290#       发表于 2020-5-28 10:12
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586852&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 10:04</a>
-
-Malcolm X这伙人其实也是极端主义从一个极端跑到另一个极。黑豹党有革命纲领，然而明白点的领导要么流亡要 ...</blockquote>
-给美国黑人找民族认同太不容易了，有个伊斯兰也只能凑活着用，还没多少人响应。法农要撕白面具，马尔科姆X不仅要撕白面具，还得撕掉那些底层不文明行为的黑面具，然后就被突突21**
-
-
-
-
-
-
-
------
-
-####  sfv  
-##### 291#       发表于 2020-5-28 10:12
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
-
-无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
-一头牛系列而已
-
-
-反正被压的又不是他们
-
-
-
-
-
-
-
------
-
-####  nerugigannte  
-##### 292#       发表于 2020-5-28 10:12
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586767&amp;ptid=1937970" target="_blank">古留 发表于 2020-5-28 09:57</a>
-
-“我又不是黑人，这种事情轮不到我头上”
-
-“国内各种阉割审查，话都不能讲，日子过得有啥意思？”
-
-“这里 ...</blockquote>
-我再来列一条：这事放国内zf会让你看到?
-
-
-
-
-
-
-
------
-
-####  烽火连城  
-##### 293#       发表于 2020-5-28 10:18
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579482&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-27 17:40</a>
-上次抖音看到一个视频
-
-
-一个群众落水  警察把铳给周围群众看管 然后下水救人了</blockquote>
-军民鱼水情，警民一家亲，白皮的确很难理解
-
-不过这个行为还是不妥，还是要带着**好<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  Char_Aznable  
-##### 294#       发表于 2020-5-28 10:21
-
-
-
-
-国家首脑随便放屁，警察随便杀平民，平民随便反政府，这是我对美国强大的一种表达。
-
-
-
-
-
-
-
------
-
-####  烽火连城  
-##### 295#       发表于 2020-5-28 10:22
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579651&amp;ptid=1937970" target="_blank">亚雷斯 发表于 2020-5-27 17:54</a>
-有前因么？黑人为啥遭到这种对待？
-
-  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
-表象：黑人精英离场飞升，社区堕落无序
-助攻：最高法判定警察无义务保护公民，警民军备竞赛矛盾螺旋
-内因：一切为资本服务
-
-
-
-
-
-
-
------
-
-####  hutuguug  
-##### 296#       发表于 2020-5-28 10:23
-
-
-
-
-黑人怎么学不会抱团，要用思想来武装自己啊。
-
-这种情况，一拥而上，来个几千人的暴动，美国岂不美滋滋。
-
-
-
-
-
-
-
------
-
-####  烽火连城  
-##### 297#       发表于 2020-5-28 10:24
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579817&amp;ptid=1937970" target="_blank">yanghuangu 发表于 2020-5-27 18:07</a>
-拜登的皮不够黑啊</blockquote>
-拜登想翻盘只能说他和奥黑有基情了
-
-
-
-
-
-
-
------
-
-####  AlienFromEarth  
-##### 298#       发表于 2020-5-28 10:27
-
-
-
- 本帖最后由 AlienFromEarth 于 2020-5-28 10:28 编辑 
-
-当时所谓平权实际上是带着对黑人组织社区的解构去的，所以黑人精英升级和白人精英一起，黑人普通人被放着不管，然后对这些受教育程度低的社区引入d，就这样黑人社区被成功的肢解了，黑人组织只有纯黑帮了。
-
-
-
-
-
-
-
------
-
-####  RainbowSealife  
-##### 299#       发表于 2020-5-28 10:30
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584319&amp;ptid=1937970" target="_blank">烦死了 发表于 2020-5-28 00:16</a>
-
-Fargo Season 4</blockquote>
-然而冰血暴第四季不在明尼苏达了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> <blockquote>The head of an African American crime syndicate goes to war with the Italian mafia in Kansas City, Missouri during the 1950s</blockquote>
-
-
-
-
-
-
-
------
-
-####  Archlich³  
-##### 300#       发表于 2020-5-28 10:30
-
-
-
- 本帖最后由 Archlich³ 于 2020-5-29 16:46 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586934&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 10:12</a>
-
-给美国黑人找民族认同太不容易了，有个**也只能凑活着用，还没多少人响应。法农要撕白面具，马尔科姆 ...</blockquote>
-是这样的，首先“美国黑人”就复杂得很，直接在南方起家的，几百年间加勒比陆续过来的（说法语和西班牙语的，Malcolm X父辈就是格拉纳达来的），晚近非洲来的新**（比如奥巴马他爸，然而肯尼亚人和尼日利亚人又是两码事），都尿不到一壶去。类比华裔就是一百年前潮汕猪仔后代、越南船民、东南亚各国独立后的娘娘答惹、神奇的加勒比华人（林飞龙有人听过吗）、84年后的香港人、90年代过去的大陆人、10年代过去的大陆人……
-
-
-除了肤色外几乎没啥相同地方，撑死有点亲切感。要统一认同，就只能用古老的手段强行制造了。
-
-
-
-
-
-
-
------
-
-####  烽火连城  
-##### 301#       发表于 2020-5-28 10:34
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583728&amp;ptid=1937970" target="_blank">真田丸 发表于 2020-5-27 23:20</a>
-一股子是屎也只能吃了的感觉。</blockquote>
-虽然这是一坨屎
-但那坨屎里有毒
-
-
-
-
-
-
-
------
-
-####  Hetarre  
-##### 302#       发表于 2020-5-28 10:36
-
-
-
- 本帖最后由 Hetarre 于 2020-5-28 10:45 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586280&amp;ptid=1937970" target="_blank">有妹是老婆 发表于 2020-5-28 09:15</a>
-
-无法理解，“就算这样也比中国好”的内在逻辑是什么</blockquote>
-自信啊。。。这个很好理解的
-
-美国是全世界最好的国家
-
-你就把这个当成思想钢印就好了
-
-唯一需要讨论的是打了这个思想钢印的中国人多还是美国人多
-
-美国顶多也就三亿人有，中国说不定更多呢
-
-往上翻了翻
-
-说的是日本人啊，那可以更加确信.....
-
-日本人关于美国世界第一的思想钢印那是相当的牢固。。。。比美国人对自己又信仰多了
-
-
-
-
-
-
-
------
-
-####  skylard  
-##### 303#       发表于 2020-5-28 10:41
-
-
-
-
-黑人上街，感染新冠，黑人扑街！
-
-美利坚：种族灭绝没有的事，那是新冠病毒干得。
-
-
-
-
-
-
-
------
-
-####  εRemastered  
-##### 304#       发表于 2020-5-28 10:51
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586282&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-28 09:15</a>
-
-对 是民主国家的兵工厂 不是民主主义兵工厂。民主国家是英国么？是德国么？还是USSR? 当然罗斯福生前死后 ...</blockquote>
-哪来那么多自由发挥
-
-
-原话就是arsenal of democracy，democracy本来就有很多词义，你非要强行说是一个不是另一个不是搞笑
-
-
-
-
-
-
-
------
-
-####  大哀之君  
-##### 305#       发表于 2020-5-28 10:52
-
-
-
-
-开始扔火球了
-
-
-
-
-
-
-
------
-
-####  筱原重工  
-##### 306#       发表于 2020-5-28 10:54
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587161&amp;ptid=1937970" target="_blank">Archlich³ 发表于 2020-5-28 10:30</a>
-
-是这样的，首先“美国黑人”就复杂得很，直接在南方起家的，几百年间加勒比陆续过来的（说法语和西班牙语 ...</blockquote>
-是这样的，所以法农马尔科姆这帮人要重塑民族认同。法农简单点，非洲黑人好歹有个家，撕了白面具就算成功一半了；马尔科姆就麻烦了，美国黑人不仅有白人强加给他们的白面具，还有自己麻痹自己用的各色黑面具。两个人都希望借助暴力革命来重塑黑非洲和美国黑人，就像法革和长征一样。两个人也都早死，法农患病，马尔科姆直接就被突突了，黑人里出下一个法农马尔科姆不知道得等到什么时候
-
-
-
-
-
-
-
------
-
-####  typeunknown  
-##### 307#       发表于 2020-5-28 10:55
-
-
-
-
-争个啥劲，本来自由主义对民主（粹）有警惕，共和也称不上有多民主，后面一来罗斯福确实改了不少，二来但凡是个好听的词就都姓美这你们难道不懂么
-
-
-
-
-
-
-
------
-
-####  高达X魔王  
-##### 308#       发表于 2020-5-28 10:56
-
-
-
-
-缺德一下<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
-
-<img src="https://img.saraba1st.com/forum/202005/28/105525hchjc22p82ie2zub.png" referrerpolicy="no-referrer">
-
-
-<strong>IMG_20200528_105425.png</strong> (311.79 KB, 下载次数: 0)
-
-下载附件
-
-2020-5-28 10:55 上传
-
-
-
-
-
-
-
-
-
-
-
-
------
-
-####  yario  
-##### 309#       发表于 2020-5-28 10:56
-
-
-
-
-星星之火可以燎原
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 310#       发表于 2020-5-28 11:05
-
-
-
- 本帖最后由 ###### 于 2020-5-28 11:11 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587400&amp;ptid=1937970" target="_blank">εRemastered 发表于 2020-5-28 10:51</a>
-
-哪来那么多自由发挥
-
-
-原话就是arsenal of democracy，democracy本来就有很多词义，你非要强行说是一个不 ...</blockquote>
-换成别的词意？你换一下呗？是不是人家翻译都是瞎翻译没你牛批？
-
-
-
-
-
-
-
------
-
-####  orcher1945  
-##### 311#       发表于 2020-5-28 11:14
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47581112&amp;ptid=1937970" target="_blank">nianiania 发表于 2020-5-27 20:00</a>
-
-我不理解为啥我国不拿这些事做文章恶心下对面，要是我以后再有记者咕噜人权问题我就当面放这些视频
-
-
-——  ...</blockquote>
-你指望咱们那帮混吃等死的宣传部赵老爷能懂这个？人家天天指望孔子学院当宣传大旗呢。
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 312#       发表于 2020-5-28 11:15
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587439&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 10:54</a>
-
-是这样的，所以法农马尔科姆这帮人要重塑民族认同。法农简单点，非洲黑人好歹有个家，撕了白面具就算成功 ...</blockquote>
-马尔科姆最后被黑神棍枪杀，本就代表他那条路走不通。平权运动黑人解放运动真正的主力是黑豹党，共字写脖子上脑袋別裤腰带上才让美国佬真怕了，拼死镇压下去。
-
-
-
-
-
-
-
------
-
-####  xuanxiao  
-##### 313#       发表于 2020-5-28 11:17
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583888&amp;ptid=1937970" target="_blank">张绣 发表于 2020-5-27 23:33</a>
-去雅虎日本看了下这新闻的评论，偶尔有扯到中国的，一致认为“就算这样也比中国好” ...</blockquote>
-现在看到这样的内容，不仅不会生气，反而忍不住呵呵笑了！
-
-
-
-
-
-
-
------
-
-####  PrinzEugen  
-##### 314#       发表于 2020-5-28 11:17
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  orcher1945  
-##### 315#       发表于 2020-5-28 11:49
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587857&amp;ptid=1937970" target="_blank">xuanxiao 发表于 2020-5-28 11:17</a>
-
-现在看到这样的内容，不仅不会生气，反而忍不住呵呵笑了！</blockquote>
-反正枪和膝盖又没有压到他们脑门和脖子上<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  葛雷新  
-##### 316#       发表于 2020-5-28 11:57
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">期待魔法部那这个喷过去
-
-
-
-
-
-
-
------
-
-####  雷德幻像  
-##### 317#       发表于 2020-5-28 11:57
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587933&amp;ptid=1937970" target="_blank">orcher1945 发表于 2020-05-28 11:49:22</a>
-反正枪和膝盖又没有压到他们脑门和脖子上</blockquote>强奸几个Jk，抢劫几百万日元，飞机零件掉到幼儿园都没问题，何况才压一下脖子。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  雷德幻像  
-##### 318#       发表于 2020-5-28 12:00
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586941&amp;ptid=1937970" target="_blank">nerugigannte 发表于 2020-05-28 10:12:49</a>
-我再来列一条：这事放国内zf会让你看到?</blockquote>以前城管的新闻不起很多吗
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  robertjiong  
-##### 319#       发表于 2020-5-28 12:05
-
-
-
-
-好了
-
-
-
-
-
-
-
------
-
-####  恒温死神  
-##### 320#       发表于 2020-5-28 12:09
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587064&amp;ptid=1937970" target="_blank">hutuguug 发表于 2020-5-28 10:23</a>
-黑人怎么学不会抱团，要用思想来武装自己啊。
-
-这种情况，一拥而上，来个几千人的暴动，美国岂不美滋滋。 ...</blockquote>
-我觉得美国黑叔叔报团比我们强多了好吧
-
-——
-
-
-
-
-
-
-
------
-
-####  zerona  
-##### 321#       发表于 2020-5-28 12:12
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587814&amp;ptid=1937970" target="_blank">orcher1945 发表于 2020-5-28 11:14</a>
-
-你指望咱们那帮混吃等死的宣传部赵老爷能懂这个？人家天天指望孔子学院当宣传大旗呢。 ...</blockquote>
-国内不是有针对美国的人权**吗？
-
-递手里，我猜黑白皮也不会去看的。
-
-
-
-
-
-
-
------
-
-####  εRemastered  
-##### 322#       发表于 2020-5-28 12:19
-
-
-
- 本帖最后由 εRemastered 于 2020-5-28 12:24 编辑 
-
-喷了
-这帖子
-
-
-代码
-
-大概是
-
-
-被诅咒了
-
-
-发不出来
-
-
-
-
-
-
-
-
-
------
-
-####  武男  
-##### 323#       发表于 2020-5-28 12:21
-
-
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又回到美苏大战了
-
-
-
-
-
-
-
------
-
-####  梅德韦杰娃  
-##### 324#       发表于 2020-5-28 12:22
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588441&amp;ptid=1937970" target="_blank">εRemastered 发表于 2020-5-28 12:19</a>
-
-《美国的本质》于歌.2012
-
-《资本的冒险》约翰
-
-《</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">马上本帖就要转型第二战场了
-
-
-
-
-
-
-
------
-
-####  cwdtc  
-##### 325#       发表于 2020-5-28 12:24
-
-
-
-
-老实说，以前TG说自己的人权比美国好五倍，我是觉得有点恬不知耻，现在看来是我图样图森破，五倍可能有点谦虚了
-
-
-
-
-
-
-
------
-
-####  εRemastered  
-##### 326#       发表于 2020-5-28 12:25
-
-
-
- 本帖最后由 εRemastered 于 2020-5-28 12:34 编辑 
-<blockquote>[url=forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587635&amp;ptid=1937970]######
-
-换成别的词意？你换一下呗？是不是人家翻译都是瞎翻译没你牛批？</blockquote>
-《美国的本质》于歌.2012
-
-《资本的冒险》约翰
-
-《美国外交政策及其如何影响了世界》
-
-《罗斯福与丘吉尔》
-
-
-够不够向你证明两种译法都有？
-
-
-更进一步就文本分析，“We
-
-
-从词源来说，英文源普遍认为这个用法出自1918年说的
-
-
-从动机来说，你觉得FDR在讲这段话的时候是想把美国的参战目的说得小一点限定在民主国家好呢，还是放大一点上升到整个“民主”好呢？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-喷了，真发不出来咋回事
-
-<img src="https://img.saraba1st.com/forum/202005/28/123107cepbwz6gcbk7zk7o.jpg" referrerpolicy="no-referrer">
-
-
-<strong>QQ截图20200528122817.jpg</strong> (89.43 KB, 下载次数: 0)
-
-下载附件
-
-2020-5-28 12:31 上传
-
-
-
-
-
-
-
-坛子里每次一提德先生就有ptsd和苏联孝子跳出来嚷嚷苏联才是真德谟克拉西欧美不许叫德谟克拉西，比较可笑。德谟克拉西无非就是某些人给自己贴的标签而已，你不能讨论历史但不许使用历史人物给自己贴的标签吧？讨论魏蜀吴称帝的时候你会跳出来嚷嚷刘彻才是真皇帝吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| 恨讨论| + 1|好评加鹅|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  ualiant  
-##### 327#       发表于 2020-5-28 12:30
-
-
-
-<blockquote>dclara1 发表于 2020-5-27 18:05
-邮局港剧这种行为还是不要提倡吧</blockquote>
-他想说明的是这行为背后反映的人民安全感吧。
-
-至于这事儿本身，那肯定有问题啊，带仓出门就是执行任务，那么就应该至少两人一组，要不是只去了一个人，要不就是没事带仓瞎转悠，哪边都有问题吧
-
-
-
-
-
-
-
------
-
-####  000000  
-##### 328#       发表于 2020-5-28 12:31
-
-
-
-<img src="https://pic2.zhimg.com/80/v2-b8baf828e0f5a6fc9ec65cf5a03d7acd_720w.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  水表  
-##### 329#       发表于 2020-5-28 12:33
-
-
-
-
-还是有很多人对美国种族问题的严重性严重缺乏认识，还觉得黑人运动矫枉过正、是在要特权。
-
-
-
-
-
-
-
------
-
-####  ualiant  
-##### 330#       发表于 2020-5-28 12:34
-
-
-
-<blockquote>洛拉斯 发表于 2020-5-27 19:06
-为啥我们不能在外交层面上要求美国关注黑人权益呢？
-
-
-cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
-有的啊，每次美帝发人权报告我们就相应发一个美国的
 
 
 
@@ -14060,10 +12222,11 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
- 参与人数 10战斗力 +11
+ 参与人数 11战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 叉子| + 1|好评加鹅|
 | stick| + 1||
 | 怜悯者的冷笑| + 1|好评加鹅|
 | 逍遥客7| + 1|好评加鹅|
@@ -15712,691 +13875,6 @@ Fun fact: The Constitution gives Congress the right to censure the president but
 
 -----
 
-####  鱼肉丸子  
-##### 781#       发表于 2020-5-29 18:06
-
-
-
-[https://b23.tv/wHbjBh](https://b23.tv/wHbjBh)
-
-被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人
-
-该说警察目标选的有点太偏了么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  cryindance  
-##### 782#       发表于 2020-5-29 18:08
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605012&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 17:59</a>
-据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。 ...</blockquote>
-b站观察者网发的视频就是全的
-
-—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  vampiar  
-##### 783#       发表于 2020-5-29 18:09
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605076&amp;ptid=1937970" target="_blank">bg54188 发表于 2020-5-29 18:04</a>
-有组织和无组织差距明显啊
-
-砸光烧光也影响不到白富阶层，好歹学学火山青年啊</blockquote>
-火山不也是俄亥俄?动了哪个大佬了？李黄瓜被吊路灯了？
-
-
-
-
-
-
-
------
-
-####  vampiar  
-##### 784#       发表于 2020-5-29 18:09
-
-
-
- 本帖最后由 vampiar 于 2020-5-29 18:16 编辑 
-
-风怒
-
-
-
-
-
-
-
------
-
-####  ######  
-##### 785#       发表于 2020-5-29 18:11
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605012&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 17:59</a>
-
-据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。 ...</blockquote>
-是3个大汉压着这黑哥 活活压死 有两个被警车挡住了。
-
-
-
-
-
-
-
------
-
-####  000000  
-##### 786#       发表于 2020-5-29 18:14
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605012&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 17:59</a>
-
-据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。 ...</blockquote>
-[https://www.bilibili.com/video/BV1Wg4y1i7Zp](https://www.bilibili.com/video/BV1Wg4y1i7Zp)
-
-
-应该是目前最完整的
-
-
-
-
-
-
-
------
-
-####  fore_long  
-##### 787#       发表于 2020-5-29 18:16
-
-
-
-
-不可思议，CNN记者在Minneapolis街头直播采访，然后被带上手铐抓走了⊙﹏⊙
-
-
-
-
-
-
-
------
-
-####  百合豚  
-##### 788#       发表于 2020-5-29 18:17
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605207&amp;ptid=1937970" target="_blank">fore_long 发表于 2020-5-29 18:16</a>
-
-不可思议，CNN记者在Minneapolis街头直播采访，然后被带上手铐抓走了⊙﹏⊙</blockquote>
-真是没想到米**是如此的恶劣
-
-
-
-
-
-
-
------
-
-####  风猫  
-##### 789#       发表于 2020-5-29 18:17
-
-
-
-
-说是至少7个**者在逛街的时候被铳打了？
-是在**那个睡觉被警察破门打死的黑人女性好像
-
-—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
-
-
------
-
-####  艾登皮尔斯  
-##### 790#       发表于 2020-5-29 18:18
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605102&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:06</a>
-https://b23.tv/wHbjBh
-
-被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人</blockquote>
-杀人的白人警察有个亚裔妻子，被害的黑人有个白**子<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这一波全凑齐了可还行
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| 余海露| + 1|╯﹏╰|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  cube  
-##### 791#       发表于 2020-5-29 18:20
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605102&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:06</a>
-
-https://b23.tv/wHbjBh
-
-
-被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人</blockquote>
-一个努力工作养孩子、无过往不良记录、反对枪支毒品滥用的老好人成了“偏”，然后死在了维护社会秩序的警察手上。
-
-
-
-
-
-
-
------
-
-####  fore_long  
-##### 792#       发表于 2020-5-29 18:22
-
-
-
-<blockquote>百合豚 发表于 2020-5-29 18:17
-真是没想到米**是如此的恶劣</blockquote>
-现在CNN直播室全是蒙逼的状态……
-
-记者要求cop解释抓他的原因，警察不说。
-
-
-最新消息是警察叫他不要站在那里，记者没听。于是抓起来咯。
-
-
-
-
-
-
-
------
-
-####  真田丸  
-##### 793#       发表于 2020-5-29 18:23
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605102&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:06</a>
-
-https://b23.tv/wHbjBh
-
-
-被害人有个白人未婚妻 各种资料看上去都是个过的比较正经的人</blockquote>
-[https://www.bilibili.com/video/BV1Jz411B7dK](https://www.bilibili.com/video/BV1Jz411B7dK)
-
-
-被害人之前还发过一段劝年轻黑人远离暴力的视频，太讽刺了。
-
-
-
-
-
-
-
------
-
-####  风猫  
-##### 794#       发表于 2020-5-29 18:24
-
-
-
-
-.@lmpd has confirmed 7 people were shot during tonight’s protest of the killing of Breonna Taylor. At least 1 is critical. Some arrests have been made. No further information is being released at this time.
-
-7个人逛街时被铳打了
-
-—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
-
-
-
-
-
-
-
------
-
-####  纸片有霞  
-##### 795#       发表于 2020-5-29 18:25
-
-
-
-
-表面上的自由之下才隐藏着巨大的压迫啊，只能说美帝社会环境几十年来其实没有改变
-
-
-
-
-
-
-
------
-
-####  longrider  
-##### 796#       发表于 2020-5-29 18:25
-
-
-
- 本帖最后由 longrider 于 2020-5-29 18:27 编辑 
-
-[https://twitter.com/ChefCindi/status/1266312903038296064](https://twitter.com/ChefCindi/status/1266312903038296064)
-
-
-CNN现场采访的记者Omar Jimenez和他的摄影团队在直播镜头前被警察铐走了，原因是“拒绝服从警察让他们不要动的命令”。没有直接压上来还真是手下留情了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-<img src="http://n.sinaimg.cn/edu/c090d6b3/20200529/20200529182326.png" referrerpolicy="no-referrer">
-
-
-“长的这么黑，还戴口罩，一看就不知道是好人”
-
-
-
-
-
-
-
-
------
-
-####  000000  
-##### 797#       发表于 2020-5-29 18:26
-
-
-
- 本帖最后由 000000 于 2020-5-29 18:33 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596998&amp;ptid=1937970" target="_blank">雷诺4000 发表于 2020-5-29 06:18</a>
-
-你搁这体亏屁思啥呢？
-
-
-尼格在美国很惨跟我们有啥关系？难道是我们害的吗？</blockquote>
-答案你自己已经回答了
-
-
-黑人在美国很惨你应该至少感到共情和愤怒，因为那是一条生命
-
-
-你没欠别人也不应该去侮辱别人，外国人在国内享受特权，你该愤怒的是因为他长了白皮肤还是黑皮肤？还是你该愤怒给予他们特权，夺走你，你孩子未来权力的人？
-
-
-更何况任何一个对篮球充满热情，或者更深入喜欢AND1也不能该被你去说这是尼格拍皮球low逼活动
-
-
-正常的路不走，非要和种族粪坑同流合污，键政前至少先学会如何尊重别人吧。
-
-ps. 不过既然有这么多爱伪装爱国人士我也正好说了
-
-
-我不在乎这两个地方谁好谁坏，我是单纯瞧不起只会打尼格的你，就是你个没种的怂货而已，所以不用拉大旗作虎皮跟我这研究键政策略
-
-
-
-
-﹍﹍﹍
-
-评分
-
-
-
-
-
- 参与人数 5战斗力 +4
-
-|昵称|战斗力|理由|
-|----|---|---|
-| leader01234| + 1||
-| 西瓜田里的飞鱼| + 1|关于特权说的没错|
-| 漫区专号| + 2|回血|
-| lcw123| + 1||
-| 巫师萨满|-1|围中救美|
-
-
-
-查看全部评分
-
-
-
-
-
-
------
-
-####  chexk03  
-##### 798#       发表于 2020-5-29 18:28
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605128&amp;ptid=1937970" target="_blank">cryindance 发表于 2020-5-29 18:08</a>
-b站观察者网发的视频就是全的
-
-—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
-不是，原版6分多钟吧，知乎上有全的，观察者和大部分都是剪了的
-
-
-
-
-
-
-
------
-
-####  鱼肉丸子  
-##### 799#       发表于 2020-5-29 18:28
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605302&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 18:25</a>
-https://twitter.com/ChefCindi/status/1266312903038296064
-
-
-CNN现场采访的记者Omar Jimenez和他的摄影团 ...</blockquote>
-这个太搞了 戏剧性太强 
-
-
-
-
-
-
-
------
-
-####  skullgreymon  
-##### 800#       发表于 2020-5-29 18:35
-
-
-
-<blockquote>风猫 发表于 2020-5-29 19:24
-.@lmpd has confirmed 7 people were shot during tonight’s protest of the killing of Breonna Taylor.  ...</blockquote>
-其中一人被暴击是啥意思
-
-
-
-
-
-
-
------
-
-####  zuperer  
-##### 801#       发表于 2020-5-29 18:37
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605409&amp;ptid=1937970" target="_blank">skullgreymon 发表于 2020-5-29 18:35</a>
-其中一人被暴击是啥意思</blockquote>
-其中一人重伤。
-
-
-
-
-
-
-
------
-
-####  ziyo  
-##### 802#       发表于 2020-5-29 18:43
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602411&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-29 15:06</a>
-那你解释一下当年对爱尔兰人和意大利人的歧视</blockquote>
-这有什么想不通的，你没见过地域歧视？
-
-—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  你又开始了？  
-##### 803#       发表于 2020-5-29 18:44
-
-
-
-
-服了这迷惑的屏蔽词系统…白人 妻子 还行…
-
-
-
-
-
-
-
------
-
-####  Ty_cc  
-##### 804#       发表于 2020-5-29 18:45
-
-
-
-
-红r看相关讨论看哪个版，原来只逛Coronavirus版
-
-
-
-
-
-
-
------
-
-####  ukuli  
-##### 805#       发表于 2020-5-29 18:46
-
-
-
-
-日本：我国有一种令人自豪的传统技艺、流传百年
-
-美国：我们也是
-
-日本：我们会捕杀某种大型黑色生物
-
-美国：我们也是
-
-日本：在以前需要很多男人坐船，出海捕获它们，再用船运回来。
-
-美国：我们也是
-
-日本：猎物被捕后会呼吸困难，拼命挣扎。
-
-美国：我们也是
-
-日本：所以画面常常会显得残忍
-
-美国：我们也是
-
-日本：可是我们的大部分国民虽然嘴上反对，其实心里是喜欢的。
-
-美国：我们也是
-
-日本：你们如何杀掉猎物？
-
-美国：以前都是吊死，或者用火烧。现在一般用工具射杀，或者直接徒手杀死。
-
-日本：斯过一，真是相当令人敬佩的技艺。
-
-美国：你们呢？
-
-日本：我们是用工具射击，然后吊起来用机器肢解分尸。
-
-美国：666
-
-日本：老子最讨厌别的国家对我们这事指手画脚
-
-美国：我们倒是没听说过什么他国指责，一般都是我们指责别人。
-
-日本：有些令人讨厌的西方媒体时常报道这事。
-
-美国：说他们假新闻就行。
-
-日本：他们不了解我们，他们完全理解不了我们的习俗，这是一种文化的传承。
-
-美国：对对对
-
-日本：你们杀掉后一般怎么吃？
-
-美国：emm....，倒是没尝过，话说这样会不会太变态了啊
-转自知乎
-
-
-
-
-
-
-
------
-
-####  诸君何弃疗  
-##### 806#       发表于 2020-5-29 18:46
-
-
-
-
-说起来国内有什么关于黑豹党的书吗
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
-
-
------
-
-####  伊可费斯  
-##### 807#       发表于 2020-5-29 18:46
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605055&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:02</a>
-话说涉案警察为啥还不抓起来  市长都呼吁抓一下了 哪怕做个样子也好
-
-这一波暴动经济损失可严重  当断则断 ...</blockquote>
-这涉及美国警察执法权的根本，不可能这么干的，不过我觉得平乱后应该还是会走下过场。
-
-
-
-
-
-
-
------
-
-####  ESAKA!!!!  
-##### 808#       发表于 2020-5-29 18:47
-
-
-
- 本帖最后由 ESAKA!!!! 于 2020-5-29 18:48 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605477&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 18:43</a>
-这有什么想不通的，你没见过地域歧视？
-
-—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
-你不是说要能从视觉上分辨才行吗？而且这并不是地域歧视，爱尔兰人和意大利人一度可不算是白人而被视为劣等种族的，这两个族裔跟其他白人的区分度并不高，更何况爱尔兰人肤色上还更"白"
-
-
-
-
-
-
-
------
-
-####  000000  
-##### 809#       发表于 2020-5-29 18:47
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605477&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 18:43</a>
-
-这有什么想不通的，你没见过地域歧视？
-
-
-—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2 ...</blockquote>
-其实也是文化膜因，当年意大利人肤色暗，头发黑，又叫半个黑人，爱尔兰人饥荒过去时还是红发，10个ginger6个irish
-
-
-后来就是混多了，看不出了
-
-
-
-
-
-
-
------
-
-####  悠然幻影  
-##### 810#       发表于 2020-5-29 18:49
-
-
-
-
-爱尔兰人被歧视后 不一样推动排华法案歧视华人吗
-
-
-
-
-
-
-
------
-
 ####  vampiar  
 ##### 811#       发表于 2020-5-29 18:49
 
@@ -16986,4 +14464,993 @@ Minnesota Gov. Tim Walz has apologized for the arrest of a CNN reporter and came
 
 
 
-                      
+
+
+-----
+
+####  blueflames001  
+##### 841#       发表于 2020-5-29 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605733&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-29 19:07</a>
+
+感觉美国每天这种事情也不少啊，怎么这次闹得这么大呢?</blockquote>
+以前警察再横也得有个借口，哪怕再蹩脚总有块遮羞布
+
+这次嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 842#       发表于 2020-5-29 20:02
+
+
+
+[https://twitter.com/CNN/status/1266338035605667842](https://twitter.com/CNN/status/1266338035605667842)
+
+
+放出来了，黑人记者讲述全过程
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 843#       发表于 2020-5-29 20:09
+
+
+
+[https://twitter.com/existentialfish/status/1266337731225018368](https://twitter.com/existentialfish/status/1266337731225018368)
+
+<img src="http://n.sinaimg.cn/edu/c090d6b3/20200529/EZLvO9tWAAAZcw4.jpg" referrerpolicy="no-referrer">
+
+
+CNN：我们的记者被抓了
+
+MSNBC：美国住院人数随着复工有上升趋势
+
+与此同时：
+
+FOX：Fajitas墨西哥菜真好吃
+
+
+有东京电视台内味儿了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kurono| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 844#       发表于 2020-5-29 20:13
+
+
+
+
+Reuters
+
+@Reuters
+
+Seven people were shot in Louisville, Kentucky, after protests over the killing of Breonna Taylor, a black woman fatally shot in her apartment in March, police said
+
+肯塔基州路易斯维尔市7人被枪杀，警方说，3月，一名黑人妇女布伦娜-泰勒在其公寓内被枪杀，引起**后，7人被枪杀。
+
+
+大开花啊
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 845#       发表于 2020-5-29 20:14
+
+
+
+
+肯塔基州路易斯维尔市7人被枪杀，警方说，3月，一名黑人妇女布伦娜-泰勒在其公寓内被枪杀，引起**后，7人被枪杀。
+
+
+
+
+
+
+
+-----
+
+####  ehero428  
+##### 846#       发表于 2020-5-29 20:18
+
+
+
+
+这次会不会搞个大的，敲响美帝丧钟啊<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 847#       发表于 2020-5-29 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-05-29 20:18:00</a>
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">每天都有美国大新闻看，太刺激了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yario  
+##### 848#       发表于 2020-5-29 20:21
+
+
+
+
+历史的车轮，加速吧
+
+
+
+
+
+
+
+-----
+
+####  ak123  
+##### 849#       发表于 2020-5-29 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-5-29 20:18</a>
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote>
+不会，最多米帝国完了，退回区域型国家罢了，灭亡米国的工作要老墨花个几十上百年完成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  临界点  
+##### 850#       发表于 2020-5-29 20:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-5-29 20:18</a>
+
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote>不会  老美应对这种事再熟练不过了   不过如果疫情这么一直发展就难说了
+
+【范神论】从民众骚乱到军队镇压，美国**为什么这么熟练？
+[https://www.bilibili.com/video/BV1wz4y197DE](https://www.bilibili.com/video/BV1wz4y197DE)
+#范神论##骚乱##暴动#
+从美国疫情扩散之后，美国各地就开始爆发一些**活动。而最近一名黑人在街头被警察活活“虐杀”的视频传开后，当地已经爆发了**烧的骚乱暴动，美国**甚至出动了军队准备镇压。那么，看上去这么严重的情况，美国上下有在担忧吗？范老师告诉你，没有的事！甚至在美国政治环境下，有时就是故意让你骚乱闹一闹，然后就出动军警镇压，因为这样就能把民众中间的“负面能量”释放掉。所以别看这两天**很凶猛，常规操作，**可能都不带担心的……
+
+
+
+
+
+
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 851#       发表于 2020-5-29 20:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-5-29 20:18</a>
+
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote>
+不会，没有一个强力领袖人物和正确的思想指导，燎不了。
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 852#       发表于 2020-5-29 20:42
+
+
+
+
+AFP news agency
+
+@AFP
+
+#BREAKING 500 National Guard troops deployed in Minneapolis after night of rioting
+
+
+第二阶段了
+
+
+
+
+
+
+
+-----
+
+####  真田丸  
+##### 853#       发表于 2020-5-29 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-5-29 20:18</a>
+
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote>
+不会，这是美帝日常，只不过这次恰好让人拍下来让你们看到黑哥哥死得这么惨而已，以前被随便枪杀的黑人多了去了，警察杀，白人平民父子杀，杀杀杀。
+
+黑人阶层不具备革命性，只会**，不配敲丧钟。
+
+
+
+
+
+
+
+-----
+
+####  小姜不辣  
+##### 854#       发表于 2020-5-29 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-5-29 20:18</a>
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote>
+你觉得很不得了的事，对于美国来说，只是日常而已<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nagbirdren  
+##### 855#       发表于 2020-5-29 20:50
+
+
+
+
+就等一个美国李自成了
+
+
+
+
+
+
+
+-----
+
+####  hyuy  
+##### 856#       发表于 2020-5-29 21:00
+
+
+
+
+黄种人可以 
+
+白种人可能可以  
+
+黑人肯定不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  银镜  
+##### 857#       发表于 2020-5-29 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599664&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-29 11:31</a></blockquote>
+暴力美学
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JadenZ  
+##### 858#       发表于 2020-5-29 21:03
+
+
+
+
+杀几个黑人有啥，我们的制度能纠错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 859#       发表于 2020-5-29 21:10
+
+
+
+ 本帖最后由 Char_Aznable 于 2020-5-29 21:11 编辑 
+
+话说回来，入关学而论，之前叫“新冠闯王”显然是不对的，新冠只能算各种明亡理由里的“小冰河期”。黑人和阿明哥里出个领袖才能叫闯王。
+
+躺在床上想了想，也不对，黑人和阿明哥充其量算土司，闯王需要被欠薪的联邦公务员出来揭竿而起才算闯王。
+
+
+
+
+
+
+
+-----
+
+####  致远星总书记  
+##### 860#         楼主| 发表于 2020-5-29 21:11
+
+
+
+ 本帖最后由 致远星总书记 于 2020-5-29 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+YKW：CHINA!
+
+
+
+
+
+
+T.png
+(136.17 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-29 21:17 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/211747v1f4xwxxxwtrhwx4.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wuliaozheX| + 1|KAG！[f:065]|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  月神的长弓  
+##### 861#       发表于 2020-5-29 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605236&amp;ptid=1937970" target="_blank">cube 发表于 2020-5-29 18:20</a>
+
+一个努力工作养孩子、无过往不良记录、反对枪支毒品滥用的老好人成了“偏”，然后死在了维护社会秩序的警 ...</blockquote>
+每个好好学习，好好工作，好好生活的佛系黑人，缘分到了，自然会被一个/一群从天而降的美国条子弄死
+
+
+
+
+
+
+
+-----
+
+####  坚果大爷  
+##### 862#       发表于 2020-5-29 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606925&amp;ptid=1937970" target="_blank">nagbirdren 发表于 2020-5-29 20:50</a>
+
+就等一个美国李自成了</blockquote>
+FBI第一时间定点清除
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 863#       发表于 2020-5-29 21:15
+
+
+
+
+这美国疫情还没结束吧，这么多人聚集真的没问题吗？
+
+
+到时候又聚众传播了
+
+
+
+
+
+
+
+-----
+
+####  sdefrfg  
+##### 864#       发表于 2020-5-29 21:19
+
+
+
+
+virgin HK police 人群里记者比**者多
+chad Minnesota police 当着镜头面逮捕记者
+
+谁去做成meme发推上搅屎啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G950F, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  western1031  
+##### 865#       发表于 2020-5-29 21:20
+
+
+
+<blockquote>7七麦 发表于 2020-5-29 19:27
+泥潭现在可以讨论了？</blockquote>
+不知道，搞不懂泥潭现在的**在哪里，早上发了条昨天美帝的军舰闯西沙然后被驱离的帖子，下午就飞了火星了，俺寻思那帖子爱讨论浓度怎么也比不上这栋楼吧…
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 866#       发表于 2020-5-29 21:20
+
+
+
+
+懂王之前说了一句，the shooting starts
+
+然后被翻出是当年著名的种族主义者的名言。。
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 867#       发表于 2020-5-29 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606461&amp;ptid=1937970" target="_blank">roy1996 发表于 2020-5-29 20:13</a>
+Reuters
+
+@Reuters
+
+Seven people were shot in Louisville, Kentucky, after protests over the killing of  ...</blockquote>
+被枪击。没有被枪杀。
+
+据说不是警察开的。
+
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  blueflames001  
+##### 868#       发表于 2020-5-29 21:21
+
+
+
+<blockquote>致远星总书记 发表于 2020-5-29 21:11
+YKW：CHINA!</blockquote>
+意料之中的
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 869#       发表于 2020-5-29 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607254&amp;ptid=1937970" target="_blank">western1031 发表于 2020-5-29 21:20</a>
+
+不知道，搞不懂泥潭现在的**在哪里，早上发了条昨天美帝的军舰闯西沙然后被驱离的帖子，下午就飞了火星了 ...</blockquote>
+牵涉国内了
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 870#       发表于 2020-5-29 21:25
+
+
+
+
+美帝越战那会儿才是最危险的吧 现在这些和当时的反战运动 民权运动比算不上什么吧 死十万人都没事 确实可怕的国家
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 871#       发表于 2020-5-29 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606511&amp;ptid=1937970" target="_blank">ehero428 发表于 2020-5-29 20:18</a>
+
+这次会不会搞个大的，敲响美帝丧钟啊</blockquote>
+不会 美国日常
+
+
+美国上层就怕黑人不闹  闹起来就可以消解正义性了
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 872#       发表于 2020-5-29 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607257&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-29 21:20</a>
+
+懂王之前说了一句，the shooting starts
+
+然后被翻出是当年著名的种族主义者的名言。。 ...</blockquote>
+按守望者电视剧的路数，现在去懂王家里搜搜，没准真能找出祖上3K**的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wjx1988124  
+##### 873#       发表于 2020-5-29 21:29
+
+
+
+
+这次主要有疫情加成，失业率高涨，大家无所事事，闹到啥程度难说
+
+
+
+
+
+
+
+-----
+
+####  ak123  
+##### 874#       发表于 2020-5-29 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607314&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-29 21:25</a>
+
+美帝越战那会儿才是最危险的吧 现在这些和当时的反战运动 民权运动比算不上什么吧 死十万人都没事 确实可怕 ...</blockquote>
+越战那么多年米国死的人还比不上新冠一个月多，经济冲击也没现在大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 875#       发表于 2020-5-29 21:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47606925&amp;ptid=1937970" target="_blank">nagbirdren 发表于 2020-5-29 20:50</a>
+就等一个美国李自成了</blockquote>
+查查最近usps有没有裁员<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 876#       发表于 2020-5-29 21:36
+
+
+
+
+CHINA!
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 877#       发表于 2020-5-29 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607177&amp;ptid=1937970" target="_blank">致远星总书记 发表于 2020-5-29 21:11</a>
+YKW：CHINA!</blockquote>
+哦诺咧！丘国库！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 878#       发表于 2020-5-29 21:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607177&amp;ptid=1937970" target="_blank">致远星总书记 发表于 2020-05-29 21:11:24</a>
+YKW：CHINA!</blockquote>神皇：CHINA!（妈妈！）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kurono  
+##### 879#       发表于 2020-5-29 21:39
+
+
+
+
+懂王这是身陷敌阵发出最后的灵魂呐喊吗
+
+还挺感人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 880#       发表于 2020-5-29 21:43
+
+
+
+
+这位发什么癫了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这事还能栽我们头上吗
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  宵待草  
+##### 881#       发表于 2020-5-29 21:54
+
+
+
+ 本帖最后由 宵待草 于 2020-5-29 21:57 编辑 
+
+[https://twitter.com/i/status/1266344732067868672](https://twitter.com/i/status/1266344732067868672)
+
+推上有人发了可能是逮捕时的画面（不知道是不是真的），看起来完全没拘捕，而且据说视频被删几次了
+
+
+
+
+
+
+
+-----
+
+####  FLY7  
+##### 882#       发表于 2020-5-29 21:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607503&amp;ptid=1937970" target="_blank">Lord_Voldemort 发表于 2020-05-29 21:43:19</a>
+这位发什么癫了 v2.2.2.1</blockquote>境外敌对势力
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 883#       发表于 2020-5-29 21:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607177&amp;ptid=1937970" target="_blank">致远星总书记 发表于 2020-5-29 21:11</a>
+
+YKW：CHINA!</blockquote>
+<img src="https://s1.ax1x.com/2020/05/29/tKefnH.jpg" referrerpolicy="no-referrer">
+
+
+想起来GOP当年这个了
+
+
+
+
+
+
+
+-----
+
+####  和我去改变世界  
+##### 884#       发表于 2020-5-29 21:58
+
+
+
+
+Chiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiinnnnnnnnnnnnnaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa！！！！！！！！！！！！！！！！！！！！！！！！！！
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+→<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  钱君  
+##### 885#       发表于 2020-5-29 22:02
+
+
+
+ 本帖最后由 钱君 于 2020-5-29 22:04 编辑 
+
+对太平洋对岸的行为不做评论，不过最近要小心火山有样学样吸引眼球。某些人现在绝对特别希望咱们能出点大新闻。
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 886#       发表于 2020-5-29 22:04
+
+
+
+
+不行了我要笑死了草。ykw这是真疯了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁tm能想到能在现实政治中见到喜剧里的情景
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 887#       发表于 2020-5-29 22:05
+
+
+
+
+我觉得可以开始把火山的各种暴力图片混入其中放推特上钓鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  迷你几何  
+##### 888#       发表于 2020-5-29 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607748&amp;ptid=1937970" target="_blank">风猫 发表于 2020-5-29 22:05</a>
+
+我觉得可以开始把火山的各种暴力图片混入其中放推特上钓鱼了
+
+
+—— 来自 HUAWEI HMA-AL00, Android  ...</blockquote>
+这个可以有
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 889#       发表于 2020-5-29 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607254&amp;ptid=1937970" target="_blank">western1031 发表于 2020-5-29 21:20</a>
+
+不知道，搞不懂泥潭现在的**在哪里，早上发了条昨天美帝的军舰闯西沙然后被驱离的帖子，下午就飞了火星了 ...</blockquote>
+有句古话叫 隔岸观火 说的就是现在这种情况
+
+
+
+
+
+                    
