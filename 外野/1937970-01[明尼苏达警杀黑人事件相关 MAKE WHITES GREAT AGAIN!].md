@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 14:12** 
+> ## **本文件最后更新于2020-05-29 16:07** 
 
 
 
@@ -4563,10 +4563,11 @@ We cannot think of being acceptable to others until we have first proven accepta
 
 
 
- 参与人数 13战斗力 -15
+ 参与人数 14战斗力 -14
 
 |昵称|战斗力|理由|
 |----|---|---|
+| wwwdnwcom| + 1|如果我是尼哥我也选择来中国|
 | Mr.Cheung|-1||
 | Tissuesea|-1|坟头蹦迪吗|
 | hellgate22|-1|想了想还是只能**了|
@@ -10826,10 +10827,12 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育</blockquot
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 3战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 愿闻其翔|-2||
+| 巫师萨满|-1|投胎**妈吗？|
 | qx1995|-1||
 
 
@@ -12810,10 +12813,11 @@ https://kstp.com/news/george-floyd-fired-officer-overlapped-security-shifts-at-s
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| kaoruxun| + 1||
 | 沉默之声| + 1|好评加鹅|
 
 
@@ -13200,4 +13204,825 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
-                            
+
+
+-----
+
+####  BoomerCE  
+##### 655#       发表于 2020-5-29 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601586&amp;ptid=1937970" target="_blank">wuzhino1 发表于 2020-5-29 13:59</a>
+
+正好烧毁一些证据？非常棒，解决历史问题了？</blockquote>
+一东不再是时间单位了？
+
+
+
+
+
+
+
+-----
+
+####  czs13  
+##### 656#       发表于 2020-5-29 14:13
+
+
+
+
+我觉得国内应该24小时滚动报道，让大伙舒服的吃瓜。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 657#       发表于 2020-5-29 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600019&amp;ptid=1937970" target="_blank">Vincent_law 发表于 2020-5-29 11:53</a>
+#美国明尼阿波利斯市进入紧急状态# CNN现场画面,明尼阿波利斯警察局被烧了！记者说**现场没有警察在控制局 ...</blockquote>
+确定不是让警察脱掉警服一起烧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 658#       发表于 2020-5-29 14:25
+
+
+
+
+烧的反正是纳税人的钱 以后再盖就是了 现在出警不是自己各种方面找死么 放着不管 让州国民警卫队来收拾。
+
+
+
+
+
+
+
+-----
+
+####  wxc060302  
+##### 659#       发表于 2020-5-29 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47599021&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-29 10:45</a>
+国民警卫队算军队吗</blockquote>
+国民警卫队连f22都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  三千珈蓝  
+##### 660#       发表于 2020-5-29 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601784&amp;ptid=1937970" target="_blank">巫师萨满 发表于 2020-5-29 14:21</a>
+
+确定不是让警察脱掉警服一起烧吗
+
+
+—— 来自 vivo NEX A, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+楼上就有发警察混进**队伍的消息的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙星丸  
+##### 661#       发表于 2020-5-29 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">赶紧死多点人啊。
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 662#       发表于 2020-5-29 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601863&amp;ptid=1937970" target="_blank">三千珈蓝 发表于 2020-5-29 14:28</a>
+楼上就有发警察混进**队伍的消息的</blockquote>
+把**群众营造成爆图，再合理镇压<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  火炎龙  
+##### 663#       发表于 2020-5-29 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588053&amp;ptid=1937970" target="_blank">葛雷新 发表于 2020-5-28 11:57</a>
+
+期待魔法部那这个喷过去</blockquote>
+今天看到张图：
+
+回应佩洛西称火山人示x为“美丽的风景线”
+
+       华春莹：“我们希望这样的‘美丽风景线’在美国越多越好”<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  葛雷新  
+##### 664#       发表于 2020-5-29 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601932&amp;ptid=1937970" target="_blank">火炎龙 发表于 2020-5-29 14:32</a>
+
+今天看到张图：
+
+回应佩洛西称火山人示x为“美丽的风景线”
+
+       华春莹：“我们希望这样的‘美丽风景线 ...</blockquote>
+报应来的真快
+
+
+
+
+
+
+
+-----
+
+####  不思者嗷呜  
+##### 665#       发表于 2020-5-29 14:35
+
+
+
+
+手握两种极端挑动社会情绪的操作手法像不像跳绳
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  七堂伽蓝  
+##### 666#       发表于 2020-5-29 14:35
+
+
+
+
+都没达到LA大暴动的级别，还不严峻
+
+
+
+
+
+
+
+-----
+
+####  BISSBISS  
+##### 667#       发表于 2020-5-29 14:52
+
+
+
+<blockquote>花枝鱿鱼面 发表于 2020-5-28 23:16
+书记发的帖还在第一页，前不久刚回过贴来着直接艾特他嘛
+
+
+—— 来自 HUAWEI VRD-W10, Android 10上 ...</blockquote>
+书记装死一流，你以为@他有用？在知乎直接拉黑你了事。
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 668#       发表于 2020-5-29 14:52
+
+
+
+
+似乎没发生族群间攻击 那其实问题不大啊 
+火山那破事 多少大陆人还有支持大陆的被打了 现在想想还气
+
+
+
+
+
+
+
+-----
+
+####  hanami990  
+##### 669#       发表于 2020-5-29 14:55
+
+
+
+[https://twitter.com/i/status/1265854643105488896](https://twitter.com/i/status/1265854643105488896)<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  欧金金  
+##### 670#       发表于 2020-5-29 14:57
+
+
+
+
+话说既然都已经da砸抢了，为什么不把那4个警察找出来吊路灯？
+
+
+
+
+
+
+
+-----
+
+####  last_regret  
+##### 671#       发表于 2020-5-29 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602260&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-29 14:57</a>
+话说既然都已经da砸抢了，为什么不把那4个警察找出来吊路灯？</blockquote>
+昨天的报道是有武装人员(应该是警察)守着
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  横戌点戍空心戊  
+##### 672#       发表于 2020-5-29 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602260&amp;ptid=1937970" target="_blank"> 欧金金 发表于 2020-5-29 14:57</a> 话说既然都已经da砸抢了，为什么不把那4个警察找出来吊路灯？ </blockquote>
+吊了轮到白人种族主义者出来？来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  last_regret  
+##### 673#       发表于 2020-5-29 14:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602189&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-29 14:52</a>
+似乎没发生族群间攻击 那其实问题不大啊 
+火山那破事 多少大陆人还有支持大陆的被打了 现在想想还气 ...</blockquote>
+就美国这事，不搞种族攻击还好，搞了就直接失去正当性了。而且参与者里有不少白人
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 674#       发表于 2020-5-29 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47598465&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-29 10:02</a>
+文化膜因是自动传播维持，不需要符合理性人的精确算计。种族主义的逻辑上把个案归为全体，哪怕**整体男女收 ...</blockquote>
+那你解释一下当年对爱尔兰人和意大利人的歧视
+
+
+
+
+
+
+
+-----
+
+####  shkillone1  
+##### 675#       发表于 2020-5-29 15:08
+
+
+
+
+美国人不懂戴张假记者证拿个摄像机把警察围起来，是因为美国警察真会开枪吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萤火虫@哥谭  
+##### 676#       发表于 2020-5-29 15:16
+
+
+
+ 本帖最后由 萤火虫@哥谭 于 2020-5-29 15:17 编辑 
+
+<img src="http://wx3.sinaimg.cn/mw690/005TjylPgy1gf9b97zzlsj30u011iafa.jpg" referrerpolicy="no-referrer">
+
+@[Vincent_law](https://bbs.saraba1st.com/2b/space-uid-529102.html) 这么爽爆的新闻不配图吗
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 677#       发表于 2020-5-29 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602422&amp;ptid=1937970" target="_blank">shkillone1 发表于 2020-5-29 15:08</a>
+美国人不懂戴张假记者证拿个摄像机把警察围起来，是因为美国警察真会开枪吗 ...</blockquote>
+14年密苏里州弗格森**，美国警察直接划出来记者禁区，进禁区的记者一律逮捕，第一天就一口气抓了3个
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 678#       发表于 2020-5-29 15:22
+
+
+
+
+之前闹的不是比这个更凶，以前看过一段视频，一个黑人退役的，干掉了N个CT。最后用遥控机器人炸弹炸死的。不知道还有人有印象有视频么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  coldhot3  
+##### 679#       发表于 2020-5-29 15:27
+
+
+
+<blockquote>fatimagg01 发表于 2020-5-29 15:22
+之前闹的不是比这个更凶，以前看过一段视频，一个黑人退役的，干掉了N个CT。最后用遥控机器人炸弹炸死的。 ...</blockquote>
+那个绕过柱子cqb击毙jc的吧，真是社会矛盾太大了，双方都意志坚定要杀对面
+
+
+
+
+
+
+
+-----
+
+####  80天拯救沃夫朗  
+##### 680#       发表于 2020-5-29 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47601902&amp;ptid=1937970" target="_blank">龙星丸 发表于 2020-5-28 22:31</a>
+赶紧死多点人啊。</blockquote>
+美国巴不得多死点底层人民和老人
+疫情没完没了其实有说明点问题
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 681#       发表于 2020-5-29 15:29
+
+
+
+<blockquote>半江瑟瑟半江红 发表于 2020-5-29 15:17
+14年密苏里州弗格森**，美国警察直接划出来记者禁区，进禁区的记者一律逮捕，第一天就一口气抓了3个 ...</blockquote>
+什么叫帝国主义啊（战术后仰）
+
+
+
+
+
+
+
+-----
+
+####  kraxia  
+##### 682#       发表于 2020-5-29 15:29
+
+
+
+
+那4个人，有武装人员守着，群众能不能直接扔鸡尾酒呢？
+
+我感觉如果米国要改制，系统性解决这类矛盾，只能规定 以后只允许黑人当警察。解决黑人就业，封白左的嘴，控制犯罪率，一石N鸟
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 683#       发表于 2020-5-29 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602716&amp;ptid=1937970" target="_blank">coldhot3 发表于 2020-5-29 15:27</a>
+
+那个绕过柱子cqb击毙jc的吧，真是社会矛盾太大了，双方都意志坚定要杀对面 ...</blockquote>
+对，他躲在柱子后面假意露出破绽，然后从另一边出来打了靠近的CT措手不及当场毙命。
+
+
+
+
+
+
+
+-----
+
+####  80天拯救沃夫朗  
+##### 684#       发表于 2020-5-29 15:30
+
+
+
+
+果然又演变成抢物资的暴动了；和1994年那场一模一样。你有武器他们反而不敢过去惹，不闻不问他们反而蹬鼻子上脸<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luoguliu  
+##### 685#       发表于 2020-5-29 15:31
+
+
+
+
+美国顶层特意把国内黑人养成这样到底图啥？
+
+
+
+
+
+
+
+-----
+
+####  Promeus  
+##### 686#       发表于 2020-5-29 15:33
+
+
+
+<blockquote>fatimagg01 发表于 2020-5-29 15:22
+之前闹的不是比这个更凶，以前看过一段视频，一个黑人退役的，干掉了N个CT。最后用遥控机器人炸弹炸死的。 ...</blockquote>
+一六年俩黑人老兵的复仇行动吧
+
+
+一个打死仨一个打死五个
+
+
+
+
+
+
+
+-----
+
+####  Promeus  
+##### 687#       发表于 2020-5-29 15:34
+
+
+
+<blockquote>wxc060302 发表于 2020-5-29 14:27
+国民警卫队连f22都有
+
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+没有，蹭空军的而已
+
+
+
+
+
+
+
+-----
+
+####  sauron.j  
+##### 688#       发表于 2020-5-29 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600497&amp;ptid=1937970" target="_blank">kingsin 发表于 2020-5-29 12:22</a>
+
+老说武装，黑鬼又买不起长的weapon，随便一支ar15系都要一千美刀以上，更没钱买消耗品来纯练习，美国有拥 ...</blockquote>
+黑人还是费拉太久了
+
+
+直接干掉gun店主洗劫店铺，在同一时间点多个城区同时行动，每20人配一名指导员负责一家店，划出根据地打造一个梁山是没问题的
+
+
+如果美国黑人真有这个组织能力和70%成员牺牲的勇气，那还能叫有点希望
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 689#       发表于 2020-5-29 15:37
+
+
+
+
+这个状态保持一个星期有希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Prototype  
+##### 690#       发表于 2020-5-29 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579624&amp;ptid=1937970" target="_blank">jyky 发表于 2020-05-27 17:52:25</a>
+有机会重现I have a dream吗</blockquote>上一个被人开黑枪，就是白皮给下一个立的威，骨气不够还真不会有一个了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  令和忍者  
+##### 691#       发表于 2020-5-29 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602539&amp;ptid=1937970" target="_blank">萤火虫@哥谭 发表于 2020-5-29 15:16</a>
+
+@Vincent_law</blockquote>
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 692#       发表于 2020-5-29 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602745&amp;ptid=1937970" target="_blank">kraxia 发表于 2020-5-29 15:29</a>
+那4个人，有武装人员守着，群众能不能直接扔鸡尾酒呢？
+
+我感觉如果米国要改制，系统性解决这类矛盾，只能规 ...</blockquote>
+这不就是宇智波当木叶警察的故事吗？
+
+
+
+
+
+
+
+-----
+
+####  enfuss  
+##### 693#       发表于 2020-5-29 15:46
+
+
+
+<img src="https://i.loli.net/2020/05/29/fiK4Y2M3d6tuLnb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hellgate22  
+##### 694#       发表于 2020-5-29 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602774&amp;ptid=1937970" target="_blank">luoguliu 发表于 2020-5-29 15:31</a>
+
+美国顶层特意把国内黑人养成这样到底图啥？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">不当猪养他们就要去找红色幽灵了，你说图啥？
+
+
+
+
+
+
+
+-----
+
+####  Realplayer  
+##### 695#       发表于 2020-5-29 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602539&amp;ptid=1937970" target="_blank">萤火虫@哥谭 发表于 2020-5-29 15:16</a>
+
+@Vincent_law</blockquote>
+
+
+-----
+
+####  hellgate22  
+##### 696#       发表于 2020-5-29 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602848&amp;ptid=1937970" target="_blank">不垃圾屌丝 发表于 2020-5-29 15:37</a>
+
+这个状态保持一个星期有希望吗
+
+
+—— 来自 Sony H8166, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">没戏，半职业军队已经进场弹压了
+
+
+
+
+
+
+
+-----
+
+####  全性保真  
+##### 697#       发表于 2020-5-29 15:52
+
+
+
+<blockquote>nessaj 发表于 2020-5-29 11:53
+这种惹人厌的暴动只能是毫无意义的情绪发泄，
+
+不可能对黑人现状产生任何改善，反而只会进一步造成族群撕裂 ...</blockquote>
+也许所有人都有资格看不起黑人，只有高华和香蕉们没这个资格，如果说黑人是没脑子的盲动，但他们至少能掀起风浪震惊美国，让白皮们不敢小看黑人的能量，甚至恐惧黑人的暴力。
+
+再看看高华和香蕉们，在中美冲突和新冠肆虐的现在，面对针对歧视他们就知道造中国的谣言，舔白皮的p眼还各种高高在上的阴阳怪气，给圆圆站台，念叨80国联军。
+
+黑人或许是笨的，没找到路的，但是他们的血是热的，心气是高的，手臂是有力量的。高华香蕉们就是一群**的，恶心到骨子里的蛆虫。
+
+
+
+
+
+
+
+-----
+
+####  品味有问题  
+##### 698#       发表于 2020-5-29 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602774&amp;ptid=1937970" target="_blank">luoguliu 发表于 2020-5-29 15:31</a>
+
+美国顶层特意把国内黑人养成这样到底图啥？</blockquote>
+不压着点等他们反攻倒算吗？
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 699#       发表于 2020-5-29 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602961&amp;ptid=1937970" target="_blank">enfuss 发表于 2020-5-29 15:46</a></blockquote>
+El pueblo unido jamás será vencido！
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 700#       发表于 2020-5-29 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603038&amp;ptid=1937970" target="_blank">全性保真 发表于 2020-5-29 15:52</a>
+
+也许所有人都有资格看不起黑人，只有高华和香蕉们没这个资格，如果说黑人是没脑子的盲动，但他们至少能掀 ...</blockquote>
+说的好，中国人民可以看不起黑人，但是高华更是废物
+
+
+
+
+
+                          
