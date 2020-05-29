@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-29 16:07** 
+> ## **本文件最后更新于2020-05-29 18:07** 
 
 
 
@@ -2072,10 +2072,11 @@ tiktokdown看起来跟这事没关系，单纯出毛病了。
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 7战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 余海露| + 1|昂撒立国之本|
 | 秦一鸣| + 1|好评加鹅|
 | Registry| + 1|美利坚得国不正|
 | konami521| + 1|好评加鹅|
@@ -5964,12 +5965,11 @@ Fargo Season 4</blockquote>
 
 
 
- 本帖最后由 Archlich³ 于 2020-5-28 10:36 编辑 
+ 本帖最后由 Archlich³ 于 2020-5-29 16:46 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586934&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 10:12</a>
 
-给美国黑人找民族认同太不容易了，有个伊斯兰也只能凑活着用，还没多少人响应。法农要撕白面具，马尔科姆 ...</blockquote>
-
-是这样的，首先“美国黑人”就复杂得很，直接在南方起家的，几百年间加勒比陆续过来的（说法语和西班牙语的，Malcolm X父辈就是格拉纳达来的），晚近非洲来的新移民（比如奥巴马他爸，然而肯尼亚人和尼日利亚人又是两码事），都尿不到一壶去。类比华裔就是一百年前潮汕猪仔后代、越南船民、东南亚各国独立后的娘娘答惹、神奇的加勒比华人（黄飞龙有人听过吗）、84年后的香港人、90年代过去的大陆人、10年代过去的大陆人……
+给美国黑人找民族认同太不容易了，有个**也只能凑活着用，还没多少人响应。法农要撕白面具，马尔科姆 ...</blockquote>
+是这样的，首先“美国黑人”就复杂得很，直接在南方起家的，几百年间加勒比陆续过来的（说法语和西班牙语的，Malcolm X父辈就是格拉纳达来的），晚近非洲来的新**（比如奥巴马他爸，然而肯尼亚人和尼日利亚人又是两码事），都尿不到一壶去。类比华裔就是一百年前潮汕猪仔后代、越南船民、东南亚各国独立后的娘娘答惹、神奇的加勒比华人（林飞龙有人听过吗）、84年后的香港人、90年代过去的大陆人、10年代过去的大陆人……
 
 
 除了肤色外几乎没啥相同地方，撑死有点亲切感。要统一认同，就只能用古老的手段强行制造了。
@@ -7163,10 +7163,11 @@ cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
 
 
 
- 参与人数 4战斗力 -4
+ 参与人数 5战斗力 -5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| cpuisme|-1|看这个新闻你还能得出这个结论？.|
 | 愿闻其翔|-1|那你猜到会被扣分了吗？|
 | SICP|-1|好评加鹅|
 | hellgate22|-1|思路广|
@@ -7234,6 +7235,25 @@ cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
 
 —— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 余海露| + 1|同期待|
+
+
+
+查看全部评分
 
 
 
@@ -9241,10 +9261,11 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 8战斗力 -1
+ 参与人数 9战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| lanslort| + 3||
 | 龙爪| + 1|确实|
 | Zuckerfrei|-1||
 | wjhzha| + 1|好评加鹅|
@@ -9941,10 +9962,11 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 19战斗力 +19
+ 参与人数 20战斗力 +20
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 文艺复兴| + 1|好评加鹅|
 | yst234| + 1|好评加鹅|
 | 黑白驳影| + 1|好评加鹅|
 | claymores| + 1|好评加鹅|
@@ -13598,6 +13620,25 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Neozero| + 1|签名档应景|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13971,6 +14012,32 @@ I can’t stand back &amp; watch this happen to a great American City, Minneapol
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 8战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 逍遥客7| + 1|好评加鹅|
+| 苏联笑话| + 1|好评加鹅|
+| genki| + 2|思路广|
+| ESAKA!!!!| + 1|好评加鹅|
+| cxc666| + 1|好评加鹅|
+| 卢比扬卡大饭店| + 1|思路广|
+| dpdwx| + 1|又在这瞎说什么大实话|
+| 飞霞精灵| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14025,4 +14092,1578 @@ El pueblo unido jamás será vencido！
 
 
 
-                          
+
+
+-----
+
+####  vampiar  
+##### 701#       发表于 2020-5-29 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602745&amp;ptid=1937970" target="_blank">kraxia 发表于 2020-5-29 15:29</a>
+那4个人，有武装人员守着，群众能不能直接扔鸡尾酒呢？
+
+我感觉如果米国要改制，系统性解决这类矛盾，只能规 ...</blockquote>
+好活支持！以后谁来当罗马皇帝先要问过黑叔近卫军手上的刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 702#       发表于 2020-5-29 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602839&amp;ptid=1937970" target="_blank">sauron.j 发表于 2020-5-29 15:37</a>
+黑人还是费拉太久了
+
+
+直接干掉gun店主洗劫店铺，在同一时间点多个城区同时行动，每20人配一名指导员负责 ...</blockquote>
+这么做铁浮屠马上来了，说不定还会有纸火鸢，你梁山这几杆烧火棍不是白给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sese199  
+##### 703#       发表于 2020-5-29 16:20
+
+
+
+
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？
+
+
+
+
+
+
+
+-----
+
+####  tillnight  
+##### 704#       发表于 2020-5-29 16:21
+
+
+
+ 本帖最后由 tillnight 于 2020-5-29 17:21 编辑 
+<blockquote>sese199 发表于 2020-5-29 16:20
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+
+因为这次是多角度石锤美警故意杀人。
+
+
+
+
+
+
+
+-----
+
+####  最爱大萌德  
+##### 705#       发表于 2020-5-29 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603297&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-29 16:10</a>
+
+这么做铁浮屠马上来了，说不定还会有纸火鸢，你梁山这几杆烧火棍不是白给 ...</blockquote>
+建议黑人同志站在大街上直面铁浮屠
+
+
+
+
+
+
+
+-----
+
+####  Promeus  
+##### 706#       发表于 2020-5-29 16:23
+
+
+
+<blockquote>sese199 发表于 2020-5-29 16:20
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+新冠怨气大
+
+
+这次被杀的黑叔叔从目前的证据来看没啥可以指责的（以前打死的往往有拒捕逃跑等不冷静行为）
+
+
+场景太惨，连我国网右看了都大部分受不了
+
+
+
+
+
+
+
+-----
+
+####  baesystems  
+##### 707#       发表于 2020-5-29 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+手段过于残忍，全程现场直播，还是集团作案，表现的对生命的漠视令人震惊。就算这么杀一头牲口都不应该。
+
+
+
+
+
+
+
+-----
+
+####  cryczp  
+##### 708#       发表于 2020-5-29 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579482&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-27 17:40</a>
+上次抖音看到一个视频
+
+
+一个群众落水  警察把铳给周围群众看管 然后下水救人了</blockquote>
+嗯，依靠群众、相信群众、从群众中来到群众中去。
+
+
+
+
+
+
+
+-----
+
+####  小姜不辣  
+##### 709#       发表于 2020-5-29 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602839&amp;ptid=1937970" target="_blank">sauron.j 发表于 2020-5-29 15:37</a>
+
+黑人还是费拉太久了
+
+
+直接干掉gun店主洗劫店铺，在同一时间点多个城区同时行动，每20人配一名指导员负责 ...</blockquote>
+有组织能力的黑人，无论是暴力还非暴力，早就都**掉了<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 710#       发表于 2020-5-29 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+已经跟恶意取乐式残杀差不多了…………
+
+那视频一个正常人看完都会直面意义上的气抖冷…………
+
+
+
+
+
+
+
+-----
+
+####  令和忍者  
+##### 711#       发表于 2020-5-29 16:28
+
+
+
+ 本帖最后由 令和忍者 于 2020-5-29 16:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+这次受害者没有反抗全程配合警察，然后配合挂了
+
+
+
+
+
+
+
+-----
+
+####  last_regret  
+##### 712#       发表于 2020-5-29 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+正因为之前发生了多次类似事件才有积怨啊。这次死的这位没啥污点，本身工作养家也反对暴力，算是比较规矩的人了，虐杀过程又太恶心连看客都受不了。加上之前疫情原因已经封锁了段时间所以一点就燃了
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Realplayer  
+##### 713#       发表于 2020-5-29 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603297&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-29 16:10</a>
+
+这么做铁浮屠马上来了，说不定还会有纸火鸢，你梁山这几杆烧火棍不是白给 ...</blockquote>
+国民自卫队不是因为ykw为了规避福利政策给收回去了？据说还搞得怨声载道
+
+再出动一遍？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  baesystems  
+##### 714#       发表于 2020-5-29 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602422&amp;ptid=1937970" target="_blank">shkillone1 发表于 2020-5-29 15:08</a>
+
+美国人不懂戴张假记者证拿个摄像机把警察围起来，是因为美国警察真会开枪吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+真开枪，昨天就看到有一个加拿大记者（其他记者先鸟兽散了）因为挡在警察前进路线上，直接打了一枪，估计是布袋弹。
+
+
+
+
+
+
+
+-----
+
+####  cryczp  
+##### 715#       发表于 2020-5-29 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+手段特别残忍呗，要是四个警察这么杀了一条狗，那早上审判席了......
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 716#       发表于 2020-5-29 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602811&amp;ptid=1937970" target="_blank">Promeus 发表于 2020-5-29 15:34</a>
+
+没有，蹭空军的而已</blockquote>
+德州警卫队有，当时有假设加州独立德州镇压的剧本提过
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 717#       发表于 2020-5-29 16:33
+
+
+
+ 本帖最后由 叶夜青 于 2020-5-29 16:35 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我国还是不够巨魔，
+
+
+要是是我是宣传部门的话，可能做一个 自由女神用膝盖压断黑人脖子的雕像，向全世界发布并评和平奖 ，巨魔值爆表。
+
+
+
+
+
+
+
+-----
+
+####  七堂伽蓝  
+##### 718#       发表于 2020-5-29 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+了解一下15年巴尔的摩大骚乱，和92年洛杉矶大暴动，这次程度都不算什么，当然这次的起因可能是最无辜的一次。
+
+
+
+
+
+
+
+-----
+
+####  迷你几何  
+##### 719#       发表于 2020-5-29 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603038&amp;ptid=1937970" target="_blank">全性保真 发表于 2020-5-29 15:52</a>
+
+也许所有人都有资格看不起黑人，只有高华和香蕉们没这个资格，如果说黑人是没脑子的盲动，但他们至少能掀 ...</blockquote>
+我感觉义和团也差不多是这个性质，至少向洋人证明了中国人是敢于反抗的，
+
+
+
+
+
+
+
+-----
+
+####  faust123  
+##### 720#       发表于 2020-5-29 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47600555&amp;ptid=1937970" target="_blank">AlienFromEarth 发表于 2020-5-29 12:26</a>
+
+降世神通科拉传奇第一部结尾之所以烂和之所以神都在这里了。烂是因为它用机械降神的各种方法将大义消解为私 ...</blockquote>
+听起来和权力游戏结局异曲同工
+
+
+
+
+
+
+
+-----
+
+####  ziyuan327  
+##### 721#       发表于 2020-5-29 16:37
+
+
+
+
+刚去草榴看了一眼，想看看技术讨论区那群人会有什么新的洗地姿势。
+
+结果前后翻了三页，只有一个相关帖，也仅仅5页的回复，关于香港和孟**的倒是一堆一堆的。
+
+草榴应该没有限制这个话题，我只能理解为，那些人似乎默默形成了某种默契，会本能的避开这类暴露美国本质的东西。
+
+
+
+
+
+
+
+-----
+
+####  全性保真  
+##### 722#       发表于 2020-5-29 16:40
+
+
+
+<blockquote>迷你几何 发表于 2020-5-29 16:36
+我感觉义和团也差不多是这个性质，至少向洋人证明了中国人是敢于反抗的， ...</blockquote>
+至少面对狼牙棒，义和团啥也没有至少还有天灵盖，满足肚子大明诗书高华是立刻没有膝盖了。
+
+
+
+
+
+
+
+-----
+
+####  ammk  
+##### 723#       发表于 2020-5-29 16:40
+
+
+
+ 本帖最后由 ammk 于 2020-5-29 17:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603727&amp;ptid=1937970" target="_blank">迷你几何 发表于 2020-5-29 16:36</a>
+
+我感觉义和团也差不多是这个性质，至少向洋人证明了中国人是敢于反抗的， ...</blockquote>
+义和团一大贡献就是，中国只能靠代-理人不能直接被殖民（这都什么屏蔽词）
+
+
+
+
+
+
+
+-----
+
+####  yangkaim4  
+##### 724#       发表于 2020-5-29 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602634&amp;ptid=1937970" target="_blank">fatimagg01 发表于 2020-5-29 15:22</a>
+
+之前闹的不是比这个更凶，以前看过一段视频，一个黑人退役的，干掉了N个CT。最后用遥控机器人炸弹炸死的。 ...</blockquote>
+记得，那哥们本来放话说要跑到墨西哥去，最后不知怎的没走被包围了。
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 725#       发表于 2020-5-29 16:45
+
+
+
+[https://twitter.com/realDonaldTrump/status/126623**0780744704](https://twitter.com/realDonaldTrump/status/126623**0780744704)
+
+
+YKW发推威胁将动用军队和国民警卫队shoot，被推特认为是宣扬暴力而屏蔽了
+
+
+他引用的“When the looting starts, the shooting starts”源自1967年镇压黑人运动的迈阿密市警长Walter Headley,
+
+
+
+
+
+
+
+-----
+
+####  萱时令  
+##### 726#       发表于 2020-5-29 16:47
+
+
+
+
+警察的最大错误就是之前没直接扣扳机<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 727#       发表于 2020-5-29 16:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602745&amp;ptid=1937970" target="_blank">kraxia 发表于 2020-5-29 15:29</a>
+
+那4个人，有武装人员守着，群众能不能直接扔鸡尾酒呢？
+
+我感觉如果米国要改制，系统性解决这类矛盾，只能规 ...</blockquote>
+D·W·格里菲斯在天堂狂喜乱舞 这就是一个国家的诞生啊
+
+
+
+
+
+
+
+-----
+
+####  克鲁特尼  
+##### 728#       发表于 2020-5-29 16:48
+
+
+
+
+网上看明尼苏达那边有种火烧莫斯科的感觉了，
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 729#       发表于 2020-5-29 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602774&amp;ptid=1937970" target="_blank">luoguliu 发表于 2020-5-29 15:31</a>
+
+美国顶层特意把国内黑人养成这样到底图啥？</blockquote>
+和红脖子 墨西哥佬 鹅害鹅呗 都是底层分而治之
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 730#       发表于 2020-5-29 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603865&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 16:45</a>
+https://twitter.com/realDonaldTrump/status/126623**0780744704
+
+
+YKW发推威胁将动用军队和国民警卫队shoo ...</blockquote>
+这话说出来是真的不想要黑人选票了吧？黑人票现在人数占比是不是被老墨压下去没那么重要了?
+
+
+
+
+
+
+
+-----
+
+####  野上由加奈  
+##### 731#       发表于 2020-5-29 16:51
+
+
+
+
+美帝上层都明白，黑叔叔都是游兵散勇，成不了气候，让他们发泄一下就完事了
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 732#       发表于 2020-5-29 16:51
+
+
+
+<blockquote>longrider 发表于 2020-5-29 16:45
+https://twitter.com/realDonaldTrump/status/126623**0780744704
+
+
+YKW发推威胁将动用军队和国民警卫队shoo ...</blockquote>
+快送川建国同志去非死不可。
+
+
+
+
+
+
+
+-----
+
+####  ronac  
+##### 733#       发表于 2020-5-29 16:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/29/163849l8dq00885u85q10g.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200529163800.png</strong> (231.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 16:38 上传
+
+
+
+
+
+
+悍马 大兵 柯尔特
+
+据说警卫队最大的实际行动是护卫消防车去救火，暂时没有其他大动作
+
+警卫队进场前能听见枪声，进场后就不怎么听得见了
+
+观众反映说有人在放火烧医院，也有一部分人进攻图书馆，开封菜、popeyes、金拱门的门店似乎都有损失（真的暴怒，把快乐餐都给点了）
+
+丹佛、凤凰城、LA这几个地方据说有人响应
+
+天亮之后大概能看见直升机进场制空
+
+留言里有大家拿人在拱火，“费拉不堪，你那也叫烧”
+
+另外城里很多战条子娘亲的涂鸦，撕  喷  拉  涂
+
+
+
+
+
+
+
+
+-----
+
+####  charlz  
+##### 734#       发表于 2020-5-29 16:54
+
+
+
+
+这个黑人是真的惨，唉
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 735#       发表于 2020-5-29 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603972&amp;ptid=1937970" target="_blank">ronac 发表于 2020-5-29 16:52</a>
+
+悍马 大兵 柯尔特
+
+据说警卫队最大的实际行动是护卫消防车去救火，暂时没有其他大动作
+
+警卫队进场前能听见 ...</blockquote>
+加/大/麻人好歹烧过白宫的意思？
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 736#       发表于 2020-5-29 16:57
+
+
+
+
+所以我觉得中国人批评义和团应该从其局限性出发 我记得历史课本也差不多这样的 然而网络上某些风评有逆民化的感觉
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 737#       发表于 2020-5-29 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603636&amp;ptid=1937970" target="_blank">cryczp 发表于 2020-5-29 16:30</a>
+
+手段特别残忍呗，要是四个警察这么杀了一条狗，那早上审判席了......</blockquote>
+因为警察可以口胡黑人会威胁他人身安全，狗不行
+
+
+
+
+
+
+
+-----
+
+####  ronac  
+##### 738#       发表于 2020-5-29 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604026&amp;ptid=1937970" target="_blank">###### 发表于 2020-5-29 16:56</a>
+
+加/大/麻人好歹烧过白宫的意思？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202005/29/165935kpwxuhwchz5w10w5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200529165932.png</strong> (272.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-29 16:59 上传
+
+
+
+
+
+
+我估计是这个意思<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+上一张大兵截图，镜头方向转一百八十度、大概几百米不到一公里的地方就有建筑物火光冲天
+
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 739#       发表于 2020-5-29 17:00
+
+
+
+
+义和团？
+
+温和中国人和极端中国人的区别
+
+
+站中国立场 我不会嘲笑他们
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 740#       发表于 2020-5-29 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603865&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 16:45</a>
+
+https://twitter.com/realDonaldTrump/status/126623**0780744704
+
+
+YKW发推威胁将动用军队和国民警卫队shoo ...</blockquote>
+配上美国准备禁止twitter，facebook自己屏蔽信息的新闻<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 741#       发表于 2020-5-29 17:07
+
+
+
+
+**签署总统令，将限制社交网络平台的权力
+
+
+总统令称少数在线平台正在限制美国的言论自由。**认为社交网络已经是 21 世纪的公共广场，而广场的拥有者 Twitter、Facebook、Instagram、** 正以前所未有的力量决定着公共事件的解读，通过审查、删除等方式决定人们能看到什么。
+
+根据总统令，美国将重新探讨《通信规范法》（Communications Decency Act）第 230 条的覆盖范围。该条例将在线平台区别于出版方，在线平台不对平台上的言论负责。但**认为美国科技公司正在滥用这些权力，有选择的根据自己的倾向打压政治言论。
+
+本月 26 日，**在 Twitter 上说，邮寄投票选举一定会造成大规模舞弊。Twitter 在他的推文下提供了事实核查链接，链接引述 CNN、《**》等媒体的报道澄清，称总统的说法没有依据。
+
+**的总统令签署后，Twitter 和 Facebook 均发表声明，称这将会限制在线言论空间。
+
+美国商务部将在司法部配合下提交对《通信规范法》的修改提案。联邦通讯委员会（FCC）将负责审核修改内容，该部门负责人 Ajit Pai 称事关重大，FCC 将仔细考虑商务部所提交的内容。
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 742#       发表于 2020-5-29 17:08
+
+
+
+
+风怒了，编辑一下
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 743#       发表于 2020-5-29 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604058&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-29 16:57</a>
+
+所以我觉得中国人批评义和团应该从其局限性出发 我记得历史课本也差不多这样的 然而网络上某些风评有逆民化 ...</blockquote>
+高华舔狗太多，已经把义和团抹黑太多了，从批判局限性变成抹黑为民族劣根性。
+
+再远点从清末有点西学的基础的革命**人和知识分子来看，结果也相当一大批人持负面意见。
+
+
+
+
+
+
+
+-----
+
+####  last_regret  
+##### 744#       发表于 2020-5-29 17:10
+
+
+
+
+非一日之寒<img src="https://p.sda1.dev/0/222edde7cc89665d4077427e61279487/IMG_D874441DEC255E810564F2570D31E135.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 745#       发表于 2020-5-29 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604228&amp;ptid=1937970" target="_blank">LilMemo 发表于 2020-5-29 17:07</a>
+
+**签署总统令，将限制社交网络平台的权力
+
+
+总统令称少数在线平台正在限制美国的言论自由。**认为社交网络已 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">支持神皇把Twitter、FACEBOOK、优土憋 全弄死，
+
+
+
+没有一个无辜的
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 746#       发表于 2020-5-29 17:11
+
+
+
+ 本帖最后由 AlienFromEarth 于 2020-5-29 17:13 编辑 
+<blockquote>LilMemo 发表于 2020-5-29 17:07
+**签署总统令，将限制社交网络平台的权力
+
+
+总统令称少数在线平台正在限制美国的言论自由。**认为社交网络已 ...</blockquote>
+
+这是在砍美国上层自己的手啊
+
+
+估计几年后如果还是他会被反过来因为这事而烦，或者就是其他人去烦了
+
+
+
+
+
+
+
+-----
+
+####  Realplayer  
+##### 747#       发表于 2020-5-29 17:11
+
+
+
+
+那个带头闹事的是不是条子派出去的内鬼？
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 748#       发表于 2020-5-29 17:18
+
+
+
+
+这次也过于残忍了吧, 一枪崩了都没这么多破事
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 749#       发表于 2020-5-29 17:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604108&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-29 17:00</a>
+
+义和团？
+
+温和中国人和极端中国人的区别</blockquote>
+只是怒其不争罢了，毕竟思想上居然还落后于几十年前的两广老兄弟们起家的太平天国。当然有很多人就喜欢瞎套，上次国庆月饼都有人套个乾隆月饼上去，丝毫不想想月饼上面的家伙能够搭载玩辐射副本的力量。
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 750#       发表于 2020-5-29 17:20
+
+
+
+
+与其**不如把当事人找出来吊着打
+
+搞这种暴动实在是令人难以赞同
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 751#       发表于 2020-5-29 17:22
+
+
+
+<blockquote>武男 发表于 2020-5-29 17:19
+只是怒其不争罢了，毕竟思想上居然还落后于几十年前的两广老兄弟们起家的太平天国。当然有很多人就喜欢瞎 ...</blockquote>
+很多人满脑子只有自己生活的“小体面”
+
+
+
+
+
+
+
+-----
+
+####  钢铁侠  
+##### 752#       发表于 2020-5-29 17:23
+
+
+
+
+总之没有振金盔甲肯定是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kingsin  
+##### 753#       发表于 2020-5-29 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604260&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-29 17:10</a>
+高华舔狗太多，已经把义和团抹黑太多了，从批判局限性变成抹黑为民族劣根性。
+
+再远点从清末有点西学的基 ...</blockquote>
+这就是要建立正确历史观的重要性，从历史长河的角度来看实质影响
+
+
+
+
+
+
+
+-----
+
+####  全性保真  
+##### 754#       发表于 2020-5-29 17:26
+
+
+
+<blockquote>鱼肉丸子 发表于 2020-5-29 17:20
+与其**不如把当事人找出来吊着打
+
+
+搞这种暴动实在是令人难以赞同</blockquote>
+有暴动就比没暴动好，总比高华香蕉么扑通一下跪下高呼MAGA强。
+
+
+
+
+
+
+
+-----
+
+####  伊可费斯  
+##### 755#       发表于 2020-5-29 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47602745&amp;ptid=1937970" target="_blank">kraxia 发表于 2020-5-29 15:29</a>
+那4个人，有武装人员守着，群众能不能直接扔鸡尾酒呢？
+
+我感觉如果米国要改制，系统性解决这类矛盾，只能规 ...</blockquote>
+有不少黑人警察啊，尤其黑命贵闹得凶那几年，巡逻基本是黑白配。
+
+
+
+
+
+
+
+-----
+
+####  iantsai  
+##### 756#       发表于 2020-5-29 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47586767&amp;ptid=1937970" target="_blank">古留 发表于 2020-5-28 09:57</a>
+
+“我又不是黑人，这种事情轮不到我头上”
+
+“国内各种**审查，话都不能讲，日子过得有啥意思？”
+
+“这里的牛奶有牛奶味道，不像国内都没有味道的。吃的东西也安全。”
+
+
+我可以给你列一百条……</blockquote>甜美的空气！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  余海露  
+##### 757#       发表于 2020-5-29 17:31
+
+
+
+
+一条人命＝20美元假币  且在大白天，由暴力机关执法者当街施刑   人权??  diversity??
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 758#       发表于 2020-5-29 17:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604260&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-29 17:10</a>
+
+高华舔狗太多，已经把义和团抹黑太多了，从批判局限性变成抹黑为民族劣根性。
+
+再远点从清末有点西学的基 ...</blockquote>
+义和团也不用翻案 斗争但不代表进步 各种**烧封建迷信绝不是什么值得提倡的和洗白。真正的觉醒在五四运动之后。和义和团有质的不同。
+
+
+
+
+
+
+
+-----
+
+####  lichuan325  
+##### 759#       发表于 2020-5-29 17:31
+
+
+
+
+尼哥起码能用命证明自己不好惹，高华相比之下真叫一个费拉不堪
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 760#       发表于 2020-5-29 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604609&amp;ptid=1937970" target="_blank">余海露 发表于 2020-5-29 17:31</a>
+
+一条人命＝20美元假币  且在大白天，由暴力机关执法者当街施刑   人权??  diversity?? ...</blockquote>
+是不是假币还有待验证，只是怀疑假币就把人弄死了
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 761#       发表于 2020-5-29 17:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604567&amp;ptid=1937970" target="_blank">伊可费斯 发表于 2020-5-29 17:28</a>
+有不少黑人警察啊，尤其黑命贵闹得凶那几年，巡逻基本是黑白配。</blockquote>
+瑞克莫蒂那集瑞克城就是……
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 762#       发表于 2020-5-29 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604474&amp;ptid=1937970" target="_blank">Char_Aznable 发表于 2020-5-29 17:22</a>
+
+很多人满脑子只有自己生活的“小体面”</blockquote>
+其实就是抖机灵，YYGQ一番，之后还有什么昭和，德二，之类的。也算一种进步吧，直接跳出来说你们都是吃三叉戟的命的已经很少了。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 763#       发表于 2020-5-29 17:36
+
+
+
+
+高华本质是觉得自己是荣誉白人了 住中产和富人区 又影响不到自己
+
+
+太鸡贼了要出事的
+
+
+
+
+
+
+
+-----
+
+####  38H735(f)  
+##### 764#       发表于 2020-5-29 17:36
+
+
+
+
+唐斗焕？
+
+
+
+
+
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 765#       发表于 2020-5-29 17:38
+
+
+
+
+这种国家也配谈人权，光天化日之下勒死一个人就单单炒掉完事了？上推热搜第一条，什么鬼？我们这边的新闻？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 766#       发表于 2020-5-29 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604690&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-29 17:36</a>
+
+高华本质是觉得自己是荣誉白人了 住中产和富人区 又影响不到自己
+
+
+太鸡贼了要出事的 ...</blockquote>
+高华本质还不如高黑
+
+
+高黑至少白人明面上不会怎么样，还有zzzq护身
+
+
+高华明面上都被白黑一起歧视
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 767#       发表于 2020-5-29 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+其实这几年警察杀黑人导致的节奏都挺大的
+比如14年弗格森
+但不得不说美国舆论控制能力就是强，这种事没一两年就能从互联网上淡化掉
+
+
+
+
+
+
+
+-----
+
+####  晓黑雾  
+##### 768#       发表于 2020-5-29 17:44
+
+
+
+
+中国：扫黄打黑
+
+美国：扫黄打黑
+
+在啊B看到的回复，笑死人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iantsai  
+##### 769#       发表于 2020-5-29 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47604809&amp;ptid=1937970" target="_blank">晓黑雾 发表于 2020-5-29 17:44</a>
+
+中国：扫黄打黑
+
+美国：扫黄打黑
+
+在啊B看到的回复，笑死人了</blockquote>
+红红火火恍恍惚惚~
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 770#       发表于 2020-5-29 17:49
+
+
+
+ 本帖最后由 robertjiong 于 2020-5-29 17:51 编辑 
+
+三小时前 俄亥俄州议会大厅被攻陷  不过没放火烧啊
+
+
+
+
+
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 771#       发表于 2020-5-29 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603463&amp;ptid=1937970" target="_blank">sese199 发表于 2020-5-29 16:20</a>
+
+我记得美国警察杀黑人这也不是第一次了，为啥这次搞这么大？</blockquote>
+你自己看
+[https://www.bilibili.com/video/BV1vv411z7JY?t=369](https://www.bilibili.com/video/BV1vv411z7JY?t=369)
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 772#       发表于 2020-5-29 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47603865&amp;ptid=1937970" target="_blank">longrider 发表于 2020-5-29 16:45</a>
+https://twitter.com/realDonaldTrump/status/126623**0780744704
+
+
+YKW发推威胁将动用军队和国民警卫队shoo ...</blockquote>
+这人是真的牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">....搁这火上浇油呢
+
+
+
+
+
+
+
+-----
+
+####  nashor  
+##### 773#       发表于 2020-5-29 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583910&amp;ptid=1937970" target="_blank">骑兵突击步枪 发表于 2020-05-27 23:34:52</a>
+说点题外话，虽然整天有人说黑人怎么怎么样，甚至有人理直气壮的说出“就是歧视你黑人，怎么着？”。但是 ...</blockquote>他们的智商和手法
+能连续作案？
+你看的链环杀手什么的，一般都是高智商为前提
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  coldhot3  
+##### 774#       发表于 2020-5-29 17:59
+
+
+
+<blockquote>舞鬼 发表于 2020-5-28 16:08
+本来是外国+外人的事，还以为自己能很严肃地看完
+
+但视频放到受害者被压得受不了叫了声妈妈的时候一下子心好 ...</blockquote>
+据说视频是剪掉了一半的，完全版里有个拿手机的路人去给这位黑叔求情，结果被美警拿枪威胁后退。
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 775#       发表于 2020-5-29 17:59
+
+
+
+
+明州州长和出事的市长都是民主**的吧。
+民主**如果强力镇压，只会得罪黑人；如果不镇压越闹越大，越来越混乱，也会把选民逼到共和**那边。白宫左右都不亏，拱火就完了。
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙星丸  
+##### 776#       发表于 2020-5-29 17:59
+
+
+
+<img src="http://pic2.52tgfc.com/day_200529/20200529_4551_d446da12da57fe813f8dxiHDheiNdGS7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 777#       发表于 2020-5-29 18:02
+
+
+
+
+话说涉案警察为啥还不抓起来  市长都呼吁抓一下了 哪怕做个样子也好
+
+这一波暴动经济损失可严重  当断则断啊
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 778#       发表于 2020-5-29 18:04
+
+
+
+
+Sarah Cooper
+
+Fun fact: The Constitution gives Congress the right to censure the president but when they don’t have the guts to do so, that responsibility will go to... *checks notes* ...Twitter
+[https://twitter.com/sarahcpr/status/1266301603893526530](https://twitter.com/sarahcpr/status/1266301603893526530)
+
+
+宪法赋予了美国国会监督审核大统领的权力，但是议员们都没种。所以这一权力就被交接给了……推特
+
+
+
+
+
+
+
+-----
+
+####  bg54188  
+##### 779#       发表于 2020-5-29 18:04
+
+
+
+
+有组织和无组织差距明显啊
+
+砸光烧光也影响不到白富阶层，好歹学学火山青年啊<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cube  
+##### 780#       发表于 2020-5-29 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47605055&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-29 18:02</a>
+
+话说涉案警察为啥还不抓起来  市长都呼吁抓一下了 哪怕做个样子也好
+
+
+这一波暴动经济损失可严重  当断则断 ...</blockquote>
+因为这就是美国警察的日常。
+
+
+如果当事警察是个华裔，早就被抓起来被控告二级谋杀了。
+
+
+
+
+
+                        
