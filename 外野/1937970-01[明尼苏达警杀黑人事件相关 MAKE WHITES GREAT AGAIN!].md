@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-28 12:11** 
+> ## **本文件最后更新于2020-05-29 08:47** 
 
 
 
@@ -869,6 +869,25 @@ cop.png
 越high越好</blockquote>
 反 美 势 力
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stmule| + 1|友邦惊诧|
+
+
+
+查看全部评分
 
 
 
@@ -2052,10 +2071,12 @@ tiktokdown看起来跟这事没关系，单纯出毛病了。
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| konami521| + 1|好评加鹅|
+| kurono| + 1|好评加鹅|
 | leotard| + 1|有道理|
 | 篠川流| + 1|好评加鹅|
 
@@ -3090,6 +3111,25 @@ https://www.zhihu.com/question/397662325/answer/1249551013</blockquote>
 
 这就是美国黑人的状况了。有炝被打死，无炝被压死，上街被击毙，在家也被击毙。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stmule| + 1|等死，死国可乎|
+
+
+
+查看全部评分
 
 
 
@@ -4520,10 +4560,15 @@ We cannot think of being acceptable to others until we have first proven accepta
 
 
 
- 参与人数 8战斗力 -10
+ 参与人数 13战斗力 -15
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mr.Cheung|-1||
+| Tissuesea|-1|坟头蹦迪吗|
+| hellgate22|-1|想了想还是只能**了|
+| stick|-1||
+| 长弓破风|-1|思路广|
 | Alufer|-1|操你妈弱智|
 | 醉鸽子|-1|欢乐多|
 | 正义大朋友|-1|一黑黑俩|
@@ -4881,6 +4926,25 @@ q群时常传的那张图我一直以为是调侃，没想到是真的
 西方国家从未民主过。民主是社会主义国家的口号和实行目标。西方国家讲的是自由 自有资本，他们口里的民 ...</blockquote>
 这个功臣其实是小布什，从他那个时候，把民主这个词就抢过去了
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stmule| + 1|“they hate us for our freedom”|
+
+
+
+查看全部评分
 
 
 
@@ -5508,6 +5572,27 @@ FLASHLIGHT
 
 要我说就是比中国好。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vigilance|-1||
+| 荒南君|-1|只会口嗨的黄皮肥皂。|
+| 长弓破风|-1|你个亚裔在美国也属于可以随便杀的范畴.|
+
+
+
+查看全部评分
 
 
 
@@ -6273,4 +6358,3787 @@ Fargo Season 4</blockquote>
 
 
 
-                                       
+
+
+-----
+
+####  zerona  
+##### 321#       发表于 2020-5-28 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587814&amp;ptid=1937970" target="_blank">orcher1945 发表于 2020-5-28 11:14</a>
+
+你指望咱们那帮混吃等死的宣传部赵老爷能懂这个？人家天天指望孔子学院当宣传大旗呢。 ...</blockquote>
+国内不是有针对美国的人权**吗？
+
+递手里，我猜黑白皮也不会去看的。
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 322#       发表于 2020-5-28 12:19
+
+
+
+ 本帖最后由 εRemastered 于 2020-5-28 12:24 编辑 
+
+喷了
+这帖子
+
+
+代码
+
+大概是
+
+
+被诅咒了
+
+
+发不出来
+
+
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 323#       发表于 2020-5-28 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">又回到美苏大战了
+
+
+
+
+
+
+
+-----
+
+####  梅德韦杰娃  
+##### 324#       发表于 2020-5-28 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588441&amp;ptid=1937970" target="_blank">εRemastered 发表于 2020-5-28 12:19</a>
+
+《美国的本质》于歌.2012
+
+《资本的冒险》约翰
+
+《</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">马上本帖就要转型第二战场了
+
+
+
+
+
+
+
+-----
+
+####  cwdtc  
+##### 325#       发表于 2020-5-28 12:24
+
+
+
+
+老实说，以前TG说自己的人权比美国好五倍，我是觉得有点恬不知耻，现在看来是我图样图森破，五倍可能有点谦虚了
+
+
+
+
+
+
+
+-----
+
+####  εRemastered  
+##### 326#       发表于 2020-5-28 12:25
+
+
+
+ 本帖最后由 εRemastered 于 2020-5-28 12:34 编辑 
+<blockquote>[url=forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587635&amp;ptid=1937970]######
+
+换成别的词意？你换一下呗？是不是人家翻译都是瞎翻译没你牛批？</blockquote>
+《美国的本质》于歌.2012
+
+《资本的冒险》约翰
+
+《美国外交政策及其如何影响了世界》
+
+《罗斯福与丘吉尔》
+
+
+够不够向你证明两种译法都有？
+
+
+更进一步就文本分析，“We
+
+
+从词源来说，英文源普遍认为这个用法出自1918年说的
+
+
+从动机来说，你觉得FDR在讲这段话的时候是想把美国的参战目的说得小一点限定在民主国家好呢，还是放大一点上升到整个“民主”好呢？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+喷了，真发不出来咋回事
+
+<img src="https://img.saraba1st.com/forum/202005/28/123107cepbwz6gcbk7zk7o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200528122817.jpg</strong> (89.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 12:31 上传
+
+
+
+
+
+
+
+坛子里每次一提德先生就有ptsd和苏联孝子跳出来嚷嚷苏联才是真德谟克拉西欧美不许叫德谟克拉西，比较可笑。德谟克拉西无非就是某些人给自己贴的标签而已，你不能讨论历史但不许使用历史人物给自己贴的标签吧？讨论魏蜀吴称帝的时候你会跳出来嚷嚷刘彻才是真皇帝吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 327#       发表于 2020-5-28 12:30
+
+
+
+<blockquote>dclara1 发表于 2020-5-27 18:05
+邮局港剧这种行为还是不要提倡吧</blockquote>
+他想说明的是这行为背后反映的人民安全感吧。
+
+至于这事儿本身，那肯定有问题啊，带仓出门就是执行任务，那么就应该至少两人一组，要不是只去了一个人，要不就是没事带仓瞎转悠，哪边都有问题吧
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 328#       发表于 2020-5-28 12:31
+
+
+
+<img src="https://pic2.zhimg.com/80/v2-b8baf828e0f5a6fc9ec65cf5a03d7acd_720w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水表  
+##### 329#       发表于 2020-5-28 12:33
+
+
+
+
+还是有很多人对美国种族问题的严重性严重缺乏认识，还觉得黑人运动矫枉过正、是在要特权。
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 330#       发表于 2020-5-28 12:34
+
+
+
+<blockquote>洛拉斯 发表于 2020-5-27 19:06
+为啥我们不能在外交层面上要求美国关注黑人权益呢？
+
+
+cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
+有的啊，每次美帝发人权报告我们就相应发一个美国的
+
+
+
+
+
+
+
+-----
+
+####  Nazbolism  
+##### 331#       发表于 2020-5-28 12:35
+
+
+
+
+尼哥又开始搬商店了，比物理上被压迫更残酷的是精神上的没有希望。
+
+
+
+
+
+
+
+-----
+
+####  戏谑二次元  
+##### 332#       发表于 2020-5-28 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588649&amp;ptid=1937970" target="_blank">水表 发表于 2020-5-28 12:33</a>
+还是有很多人对美国种族问题的严重性严重缺乏认识，还觉得黑人运动矫枉过正、是在要特权。 ...</blockquote>
+哦，不管支持不支持黑人运动，黑人不都一直在抢劫枪杀华人？
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 333#       发表于 2020-5-28 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588768&amp;ptid=1937970" target="_blank">戏谑二次元 发表于 2020-5-28 12:39</a>
+哦，不管支持不支持黑人运动，黑人不都一直在抢劫枪杀华人？</blockquote>
+经济地位 社会地位 受教育程度决定了黑人犯罪比如泛滥要根治还是真正的解放黑奴，在美国建立**主义政权
+
+
+
+
+
+
+
+-----
+
+####  就是爱小黑  
+##### 334#       发表于 2020-5-28 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47582174&amp;ptid=1937970" target="_blank">fan_55 发表于 2020-05-27 21:20:53</a>
+这人在知乎当众回答他是美国人，如果美国跟中国开战的话，他无条件服从美军命令（杀中国人），你还指望他 ...</blockquote>这种就是字面上的敌人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 335#       发表于 2020-5-28 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588649&amp;ptid=1937970" target="_blank">水表 发表于 2020-5-28 12:33</a>
+还是有很多人对美国种族问题的严重性严重缺乏认识，还觉得黑人运动矫枉过正、是在要特权。 ...</blockquote>
+受到不少种族主义媒体，西方白人话语权影响的错觉，直到2年前我也觉得是黑命贵，最近两年才看明白，这种形势下的压迫黑人居然活得下去
+
+
+
+
+
+
+
+-----
+
+####  kurono  
+##### 336#       发表于 2020-5-28 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+视频看的极其心塞
+
+
+
+
+
+
+
+-----
+
+####  Labborn  
+##### 337#       发表于 2020-5-28 13:05
+
+
+
+ 本帖最后由 Labborn 于 2020-5-28 13:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">非要说的话黑人就是超级打压劣化版的当年的犹太人——没有祖国，没有民族意识，甚至没有一个宗教（犹太人有），还比犹太人穷/没知识，有钱有知识的都不叫自己黑人，人人都嫌还自甘/被诱惑堕落。黑人内部唯一的相同点或许就是肤色和社会处境了。肤色和处境相同的当年帝国主义国家的工人在浪潮之下都没完全联合起来，黑人在这个共运低潮全世界右转的时候就更不要想了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 斯拉克自有妙计| + 1|这个类比很合理|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  foxlxr  
+##### 338#       发表于 2020-5-28 13:22
+
+
+
+
+只能说可怜之人必有可恨之处，N大爷一出事以后大概率跟着就是**，当年洛杉矶还被南棒教做人。没事也写点黑鬼念经要抢劫亚裔。让他们和美帝警察狗咬狗最好了。
+
+
+
+
+
+
+
+-----
+
+####  tillnight  
+##### 339#       发表于 2020-5-28 13:36
+
+
+
+<blockquote>saverok 发表于 2020-5-27 19:52
+拜登真是菜比 扶不起的阿斗</blockquote>
+拜登说错什么了？不投我你不是黑人！当然这话有点不够情商，但是也就是看你节奏往哪里带。比如在这个事件背景下，摆明的对立竞选人的铁杆支持者做这事。拜登:你们大选不选我你以后别说自己是黑人！
+
+这话有哪里有问题？
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 340#       发表于 2020-5-28 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588768&amp;ptid=1937970" target="_blank">戏谑二次元 发表于 2020-5-28 12:39</a>
+
+哦，不管支持不支持黑人运动，黑人不都一直在抢劫枪杀华人？</blockquote>
+只有黑人抢劫和杀人么？
+
+
+
+
+
+
+
+-----
+
+####  exgloris  
+##### 341#       发表于 2020-5-28 13:39
+
+
+
+
+美利坚拥有**的自由<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 342#       发表于 2020-5-28 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47589162&amp;ptid=1937970" target="_blank">Labborn 发表于 2020-5-28 13:05</a>
+非要说的话黑人就是超级打压劣化版的当年的犹太人——没有祖国，没有民族意识，甚至没有一个宗教（ ...</blockquote>
+我还记得被解放的姜戈里，奴隶主向黑人奴隶解释黑人自由民就是白皮穷鬼，这一百多年过去了，我看能救美国黑人的只有康米啦<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 343#       发表于 2020-5-28 13:53
+
+
+
+
+没有纲领，就只能把能量用在耗损最高收益最低的地方。
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 344#       发表于 2020-5-28 14:31
+
+
+
+
+反正没有改变社会的希望，当然是趁机捞点好处完事
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 345#       发表于 2020-5-28 15:18
+
+
+
+ 本帖最后由 ###### 于 2020-5-28 15:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47589710&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-28 13:50</a>
+
+我还记得被解放的姜戈里，奴隶主向黑人奴隶解释黑人自由民就是白皮穷鬼，这一百多年过去了，我看能救美国 ...</blockquote>
+几十年的敌视教育歪曲宣传反康米早就是米国社会共识了，谁敢投共，即使不被乱枪打死也要社会性死亡。米国现存的那些康米要么是学者型要么干脆你都不知道他是不是联邦调查局的卧底，严重缺乏组织和活动能力，有能力有想法的第一时间坐牢或者变蜂窝。
+
+
+
+
+
+
+
+-----
+
+####  希斯塔姆  
+##### 346#       发表于 2020-5-28 15:27
+
+
+
+
+要是能引发丑国全国性的大骚乱，那这位警察简直可以发个勋章了
+
+就算光天化日当街乱枪把这位黑大叔打死也比现在这种情况要好多了
+
+
+
+
+
+
+
+-----
+
+####  火流星  
+##### 347#       发表于 2020-5-28 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579338&amp;ptid=1937970" target="_blank">白龙 发表于 2020-5-27 17:27</a>
+
+对这勒死人的警察处理只是辞退？
+
+
+都不坐牢的？</blockquote>
+老白男警察丢饭碗就是顶天了，不过也有条子重判的，上次那个黄彼得就坐牢去了，，，<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zakufa782  
+##### 348#       发表于 2020-5-28 15:34
+
+
+
+ 本帖最后由 zakufa782 于 2020-5-28 15:36 编辑 
+<blockquote>vampiar 发表于 2020-5-28 13:50
+我还记得被解放的姜戈里，奴隶主向黑人奴隶解释黑人自由民就是白皮穷鬼，这一百多年过去了，我看能救美国 ...</blockquote>
+康米份子在30，40年代就曾是唯为数不多有意图支持黑人的团体，所以FBI抓人可以一次性反康又反黑别提多酸爽了
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 349#       发表于 2020-5-28 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588513&amp;ptid=1937970" target="_blank">cwdtc 发表于 2020-5-28 12:24</a>
+老实说，以前TG说自己的人权比美国好五倍，我是觉得有点恬不知耻，现在看来是我图样图森破，五倍可能有点谦 ...</blockquote>
+现在五倍那就是负数的五倍了
+
+
+
+
+
+
+
+-----
+
+####  yayoi801  
+##### 350#       发表于 2020-5-28 15:48
+
+
+
+
+看起来很多美国特色康米份子都在为搬连锁超市拍手叫好说这是财富再分配<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  iqbsh38  
+##### 351#       发表于 2020-5-28 15:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看HK黄尸向倪哥传授对抗警察的经验 我不得不怀疑内部打进去了我们的人去搅屎
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 352#       发表于 2020-5-28 15:52
+
+
+
+ 本帖最后由 ###### 于 2020-5-28 15:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47590547&amp;ptid=1937970" target="_blank">zakufa782 发表于 2020-5-28 15:34</a>
+
+康米份子在30，40年代就曾是唯为数不多有意图支持黑人的团体，所以FBI抓人可以一次性反康又反黑别提多酸爽 ...</blockquote>
+50-60年代才是反康米高/潮。抓人算友善的，一般找借口直接突突。杜鲁门时期还通过《塔夫脱一哈特莱法》直接把康米份子清除出工会，把米国康米的根都给掘了，米国工会力量从此掌握在米国右翼手中，实际上是美资本家控制社会底层的另一只隐形的手。
+
+
+
+
+
+
+
+-----
+
+####  南去  
+##### 353#       发表于 2020-5-28 15:53
+
+
+
+
+我对美国亚裔警官=五短身材大胖脸的刻板印象加深了。。
+
+
+
+
+
+
+
+-----
+
+####  yario  
+##### 354#       发表于 2020-5-28 15:53
+
+
+
+
+多米诺总是要倒的
+
+
+
+
+
+
+
+-----
+
+####  ごろ  
+##### 355#       发表于 2020-5-28 15:54
+
+
+
+
+可以，我开始相信孽力回馈了
+
+
+
+
+
+
+
+-----
+
+####  花枝鱿鱼面  
+##### 356#       发表于 2020-5-28 15:58
+
+
+
+
+美丽的风景线才过了多久来着，一语成谶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+美国zf处理这个该不会也拉夸吧
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  紫吹兰  
+##### 357#       发表于 2020-5-28 16:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47590522&amp;ptid=1937970" target="_blank">火流星 发表于 2020-5-28 15:32</a>
+
+老白男警察丢饭碗就是顶天了，不过也有条子重判的，上次那个黄彼得就坐牢去了，，， ...</blockquote>
+别逗，梁彼得根本没坐牢，他只是被判了社区劳动
+
+
+
+
+
+
+
+-----
+
+####  古留  
+##### 358#       发表于 2020-5-28 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588703&amp;ptid=1937970" target="_blank">Nazbolism 发表于 2020-5-28 12:35</a>
+
+尼哥又开始搬商店了，比物理上被压迫更残酷的是精神上的没有希望。</blockquote>
+这个制度完美地实现了群众斗群众
+
+真正的体制官老爷和1%根本不会被打击到
+
+
+
+
+
+
+
+-----
+
+####  舞鬼  
+##### 359#       发表于 2020-5-28 16:08
+
+
+
+
+本来是外国+外人的事，还以为自己能很严肃地看完
+
+但视频放到受害者被压得受不了叫了声妈妈的时候一下子心好像被揪了一下
+
+接着就很气愤+很难过地看完了视频
+
+
+当时围观群众（白人）如果只是在上去替受害者接触被压制痛苦并不妨碍公务的前提下帮他一把，会被jc直接射杀吗？
+
+应该也会吧……
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 360#       发表于 2020-5-28 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47590804&amp;ptid=1937970" target="_blank">南去 发表于 2020-5-28 15:53</a>
+
+我对美国亚裔警官=五短身材大胖脸的刻板印象加深了。。</blockquote>
+刻板印象 华裔神探陈查理
+
+
+
+
+
+
+
+-----
+
+####  penrynx2  
+##### 361#       发表于 2020-5-28 16:09
+
+
+
+
+我还以为这里会一片叫好声呢，毕竟是当年高呼白左毁掉美国，天天嘲讽黑命贵的论坛
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SICP|-1|好评加鹅|
+| hellgate22|-1|思路广|
+| atomhappy|-1|不要低估泥潭网友智商|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  orcher1945  
+##### 362#       发表于 2020-5-28 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591002&amp;ptid=1937970" target="_blank">舞鬼 发表于 2020-5-28 16:08</a>
+
+本来是外国+外人的事，还以为自己能很严肃地看完
+
+但视频放到受害者被压得受不了叫了声妈妈的时候一下子心好 ...</blockquote>
+以美国警察的尿性99%会开枪。
+
+
+
+
+
+
+
+-----
+
+####  拆骨羊肉2  
+##### 363#       发表于 2020-5-28 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591002&amp;ptid=1937970" target="_blank">舞鬼 发表于 2020-5-28 16:08</a>
+本来是外国+外人的事，还以为自己能很严肃地看完
+
+但视频放到受害者被压得受不了叫了声妈妈的时候一下子心好 ...</blockquote>
+热心群众上去，警察直接掏gun了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  東方仗助  
+##### 364#       发表于 2020-5-28 16:22
+
+
+
+
+我想听听崔娃这次会怎么发声。
+
+—— 来自 HUAWEI MHA-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 365#       发表于 2020-5-28 16:25
+
+
+
+
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实，把更多人推向对立面。没有理论和领袖的暴动，终究是一地鸡毛。希望美国精英黑人早日醒悟，救救自己，救救同胞。
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 366#       发表于 2020-5-28 16:28
+
+
+
+<blockquote>洗刷刷 发表于 2020-5-28 16:25
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实 ...</blockquote>
+精英黑人在上层爽，有这些普通黑人受难还可以给自己加资本，为啥要出来带头？
+
+
+黑人的悲剧**的内因就是黑人精英们对黑人的背叛，趁着所谓种族平等的名号把自己那份拿到和白人精英混一起就不管其他黑人了
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 367#       发表于 2020-5-28 16:30
+
+
+
+
+一些人还在吹美国杀黑人杀得光明正大，不像某些人偷偷摸摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 368#       发表于 2020-5-28 16:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591017&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:09</a>
+
+我还以为这里会一片叫好声呢，毕竟是当年高呼白左毁掉美国，天天嘲讽黑命贵的论坛 ...</blockquote>
+别在那树稻草人了，不树个稻草人不舒服是嘛
+
+
+
+
+
+
+
+-----
+
+####  penrynx2  
+##### 369#       发表于 2020-5-28 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591457&amp;ptid=1937970" target="_blank">武男 发表于 2020-5-28 16:37</a>
+
+别在那树稻草人了，不树个稻草人不舒服是嘛</blockquote>
+意思是论坛多年来一片嘲讽黑命贵反白左的都是不存在的空气
+
+
+
+
+
+
+
+-----
+
+####  古留  
+##### 370#       发表于 2020-5-28 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591266&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-28 16:25</a>
+
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实 ...</blockquote>
+暴动能发泄精力
+
+搞累了也就不会真正的搞事情闹革命了
+
+而且他们可以借机违反社交距离建议
+
+看着动静大，最后屁用都不管
+
+
+
+
+
+
+
+-----
+
+####  扎克远山  
+##### 371#       发表于 2020-5-28 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591002&amp;ptid=1937970" target="_blank">舞鬼 发表于 2020-5-28 16:08</a>
+
+本来是外国+外人的事，还以为自己能很严肃地看完
+
+但视频放到受害者被压得受不了叫了声妈妈的时候一下子心好 ...</blockquote>
+白皮的话，被直接打死的可能性不大，但被按倒铐上跑不了
+
+
+
+
+
+
+
+-----
+
+####  黑白驳影  
+##### 372#       发表于 2020-5-28 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47581921&amp;ptid=1937970" target="_blank">ansia 发表于 2020-5-27 21:03</a>
+
+几年前跟这个几乎一样的案子，美国警察把黑人按在地上勒死，我还以为是旧事重提呢
+
+https://v.youku.com/v_s ...</blockquote>
+模仿作案！
+
+
+
+
+
+
+
+-----
+
+####  unlimited_blade  
+##### 373#       发表于 2020-5-28 16:42
+
+
+
+
+黑人群体素质低也白人的锅呀，谁让他们祖宗把人家从非洲抓来奴役了几百年，按理说是还债
+
+
+
+
+
+
+
+-----
+
+####  长弓破风  
+##### 374#       发表于 2020-5-28 16:44
+
+
+
+<blockquote>洗刷刷 发表于 2020-5-28 16:25
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实 ...</blockquote>
+那些黑人精英吃自己下层同胞的人血馒头舒服得很，为什么要冒和整个国家机器对抗的危险去解救他们？
+
+
+
+
+
+
+
+-----
+
+####  hutuguug  
+##### 375#       发表于 2020-5-28 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47588259&amp;ptid=1937970" target="_blank">恒温死神 发表于 2020-5-28 12:09</a>
+
+我觉得美国黑叔叔报团比我们强多了好吧
+
+
+——</blockquote>
+感觉他们的抱团都是小集体，利益结合的那种。
+
+需要的是思想武器，主义结合的那种。
+
+
+
+
+
+
+
+-----
+
+####  小月亮李再含  
+##### 376#       发表于 2020-5-28 16:50
+
+
+
+
+黑命贵的理论本来就有问题，依靠白左的思想纲领来给黑人群体争利益，简直把人笑醒。路线上错了根本就是南辕北辙，不过谁叫白人掌握着话语权呢，全球行情稍差上台的就是郁可唯这种红脖子代言人。
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 377#       发表于 2020-5-28 16:52
+
+
+
+<blockquote>rxrx 发表于 2020-5-28 16:30
+一些人还在吹美国杀黑人杀得光明正大，不像某些人偷偷摸摸</blockquote>
+这是友军啊（确信
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 378#       发表于 2020-5-28 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591488&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:40</a>
+
+意思是论坛多年来一片嘲讽黑命贵反白左的都是不存在的空气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">少来这套船货邪教，论坛有说过要支持这种虐杀行为，不过是反感有人用这种ZZZQ在国内盈利罢了。我们会为这些事情感到愤怒，同样也对被虐杀的惨事感到愤怒。你这种人不树个稻草人当靶子都不会说话了，为了帮阿美利坚转移视线拿小号干这种勾当，贱不贱啊。
+
+
+
+
+
+
+
+-----
+
+####  掌界  
+##### 379#       发表于 2020-5-28 16:54
+
+
+
+ 本帖最后由 掌界 于 2020-5-28 19:00 编辑 
+
+[https://www.zhihu.com/question/397662325/answer/1249914226](https://www.zhihu.com/question/397662325/answer/1249914226)知乎上说这位是用了一张20美元假币，店家报警，他可以走的，但是留下来协助调查。然后警察来了就带到角落，并不让他上车。至于他本人是保安，人也温和友善是受欢迎的人。他没叫声后救护车来了也是慢吞吞，并不着急救人。而警察是MAGA大会前排，种族主义者。
+
+黑命贵口号以我以前的幼稚看法是字面意义理解，并不懂黑人到底多悲催。人人平等也许作为口号对美国社会还是奢侈了。至于黑命贵组织还是不喜欢。
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 380#       发表于 2020-5-28 16:57
+
+
+
+
+跟老美的警察比，火山的根本就是知书达理的绅士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sfv  
+##### 381#       发表于 2020-5-28 16:59
+
+
+
+
+建议和崔大使说说把驻美使馆路改名乔治弗洛伊德路<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  少年kafka  
+##### 382#       发表于 2020-5-28 17:00
+
+
+
+
+真是恶心不适
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 383#       发表于 2020-5-28 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591708&amp;ptid=1937970" target="_blank">rxrx 发表于 2020-5-28 16:57</a>
+
+跟老美的警察比，火山的根本就是知书达理的绅士</blockquote>
+不用代入，两者性质本身就不一样，这人也没干什么事情，就为20美刀，把命给赔上了。
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 384#       发表于 2020-5-28 17:03
+
+
+
+
+到底是假币还是空头支票？空头支票直接上警察本来就真够牛逼了。
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 385#       发表于 2020-5-28 17:04
+
+
+
+ 本帖最后由 叶夜青 于 2020-5-28 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591017&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:09</a>
+
+我还以为这里会一片叫好声呢，毕竟是当年高呼白左毁掉美国，天天嘲讽黑命贵的论坛 ...</blockquote>
+嘲讽美式政治正确是因为他们总是在打些虚空靶，比如总是抓着无辜的口头发言和文艺作品怼，来假装圣人和有所作为，实质是文字狱和言论压迫和上层的道德享受，和对创作自由的抹杀，以及忽悠愚民的选票生意。
+
+
+美式政治正确的本质是大资本家用来剥削吸血底层的吸血鬼面具。
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 386#       发表于 2020-5-28 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47590785&amp;ptid=1937970" target="_blank">iqbsh38 发表于 2020-5-28 15:52</a>
+
+看HK黄尸向倪哥传授对抗警察的经验 我不得不怀疑内部打进去了我们的人去搅屎 ...</blockquote>
+黄尸那套在美国警察面前简直是找死啊
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 387#       发表于 2020-5-28 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591735&amp;ptid=1937970" target="_blank">sfv 发表于 2020-5-28 16:59</a>
+
+建议和崔大使说说把驻美使馆路改名乔治弗洛伊德路</blockquote>
+DC的路名中国改不了，可以把北京朝阳区安家楼路改下名字
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 388#       发表于 2020-5-28 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591488&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:40</a>
+
+意思是论坛多年来一片嘲讽黑命贵反白左的都是不存在的空气</blockquote>
+黑命贵和白左某种意义上和这件事不是矛盾 反而是相似的
+
+
+拉拢黑人精英，言论上疯狂zzzq，实际操作上根本不当回事，一套组合拳
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 389#       发表于 2020-5-28 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591488&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:40</a>
+
+意思是论坛多年来一片嘲讽黑命贵反白左的都是不存在的空气</blockquote>
+反女拳等于支持家暴支持拐卖妇女吗？
+
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 390#       发表于 2020-5-28 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591759&amp;ptid=1937970" target="_blank">武男 发表于 2020-5-28 17:01</a>
+
+不用代入，两者性质本身就不一样，这人也没干什么事情，就为20美刀，把命给赔上了。 ...</blockquote>
+这人根本就老实过头所以被玩死了
+
+
+
+
+
+
+
+-----
+
+####  ads147147  
+##### 391#       发表于 2020-5-28 17:11
+
+
+
+
+就为了20刀。。。这。。
+当一个人被迫害到喊妈妈的时候，还没有同理心的人才是人类之癌。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  FMIC  
+##### 392#       发表于 2020-5-28 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591883&amp;ptid=1937970" target="_blank">rxrx 发表于 2020-5-28 17:09</a>
+
+这人根本就老实过头所以被玩死了</blockquote>
+不老实就不会死吗
+
+
+
+
+
+
+
+-----
+
+####  unlimited_blade  
+##### 393#       发表于 2020-5-28 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591900&amp;ptid=1937970" target="_blank">FMIC 发表于 2020-5-28 17:12</a>
+不老实就不会死吗</blockquote>
+也许挨一发能死得痛快点？而且也就变成真正意义上的执法过度了
+
+
+
+
+
+
+
+-----
+
+####  新的未读消息  
+##### 394#       发表于 2020-5-28 17:15
+
+
+
+
+黑人是真的烂泥扶不上墙。这次的受害者是标准的完美受害者，在社交媒体上反对黑人拥抱暴力。本来是个很好的倒逼改革的起点。
+
+
+结果黑人闹着闹着又开始抢超市抢便利店了，是真的没救了。
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 395#       发表于 2020-5-28 17:18
+
+
+
+
+没有一个有力的组织领导，黑人也难翻过来，反正最后又是**烧。
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 396#       发表于 2020-5-28 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591900&amp;ptid=1937970" target="_blank">FMIC 发表于 2020-5-28 17:12</a>
+
+不老实就不会死吗</blockquote>
+一发升天还是慢慢被搞死的分别
+
+
+
+
+
+
+
+-----
+
+####  unlimited_blade  
+##### 397#       发表于 2020-5-28 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591310&amp;ptid=1937970" target="_blank">AlienFromEarth 发表于 2020-5-28 16:28</a>
+精英黑人在上层爽，有这些普通黑人受难还可以给自己加资本，为啥要出来带头？
+
+
+黑人的悲剧**的内因就是黑 ...</blockquote>
+感觉就是伪装成种族问题的阶级矛盾，由于历史原因底层黑人多，被人故意带偏了，太极高手。
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 398#       发表于 2020-5-28 17:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来我记得火山那边有过暴动指南一类的东西，要不要翻译翻译发到推特上面
+
+
+
+
+
+
+
+-----
+
+####  哈桑  
+##### 399#       发表于 2020-5-28 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591017&amp;ptid=1937970" target="_blank">penrynx2 发表于 2020-5-28 16:09</a>
+我还以为这里会一片叫好声呢，毕竟是当年高呼白左毁掉美国，天天嘲讽黑命贵的论坛 ...</blockquote>
+当初是因为有人发的黑人借助肤色在美国作威作福以及白左各种无条件跪舔黑人的新闻，比如名校对黑人降分录取对亚裔分数线还提高了，这种事看了不嘲讽两句莫非还得夸？这次这事则是一个普通人在大庭广众之下被像杀鸡一样地杀死，死前还因为极端痛苦在喊妈妈，这种事不同情受害者还得赞美加害者？您这是为了巨魔连人性都不要了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 400#       发表于 2020-5-28 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591979&amp;ptid=1937970" target="_blank">unlimited_blade 发表于 2020-5-28 17:18</a>
+
+感觉就是伪装成种族问题的阶级矛盾，由于历史原因底层黑人多，被人故意带偏了，太极高手。 ...</blockquote>
+美国黑人最惨的是没有文化历史母国宗教可以依靠
+
+
+印度都有印度教+反殖民可以团结呢
+
+
+
+
+
+
+
+-----
+
+####  巴克队长  
+##### 401#       发表于 2020-5-28 17:25
+
+
+
+ 本帖最后由 巴克队长 于 2020-5-28 17:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591937&amp;ptid=1937970" target="_blank">新的未读消息 发表于 2020-5-28 17:15</a>
+
+黑人是真的烂泥扶不上墙。这次的受害者是标准的完美受害者，在社交媒体上反对黑人拥抱暴力。本来是个很好的 ...</blockquote>
+不要嘲笑美国黑人只会打砸搶烧，因为他们现在除了打砸搶烧其他什么都干不来。真正有能力带领他们出头的人，要么早早就被美国权贵弄死，要么就被收买。剩下的底层黑人在无组织、无纲领的情况下，除了打砸搶烧还能怎么样？
+
+
+讽刺的是美国权贵反而乐见黑人打砸搶烧鹅害鹅，反正损失的只不过是城市中产和小资产阶级的权益，对于真正的权贵阶层是毫发无损，同时还可以借机污名化黑人平权运动，权贵何乐不为呢。
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 402#       发表于 2020-5-28 17:29
+
+
+
+ 本帖最后由 筱原重工 于 2020-5-28 17:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591979&amp;ptid=1937970" target="_blank">unlimited_blade 发表于 2020-5-28 17:18</a>
+
+感觉就是伪装成种族问题的阶级矛盾，由于历史原因底层黑人多，被人故意带偏了，太极高手。 ...</blockquote>
+别跟国内某些左壬似的什么都阶级矛盾，这还是民族问题占大头，哪怕下**美帝突然达成了gczy了，只要美国黑人还没有民族主体，就一天不得安生我真是看不懂泥潭这新的屏蔽机制了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 403#       发表于 2020-5-28 17:34
+
+
+
+
+真的是不成气候 **烧无辜群众 那么正义性就没了
+
+
+
+
+
+
+
+-----
+
+####  yaoyiqun513  
+##### 404#       发表于 2020-5-28 17:34
+
+
+
+
+真的理解黑豹那个电影在美国大火的原因了，底层的黑人在美国完全没有希望，他们需要一个精神寄托。
+
+所以我支持美国黑人独立在美国建国，晚刊大佛爱娃!!!
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 405#       发表于 2020-5-28 17:35
+
+
+
+
+又开始掉书袋了 阶级矛盾不是万能灵药
+
+
+
+
+
+
+
+-----
+
+####  梁日浮  
+##### 406#       发表于 2020-5-28 17:38
+
+
+
+ 本帖最后由 梁日浮 于 2020-5-28 17:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592195&amp;ptid=1937970" target="_blank">yaoyiqun513 发表于 2020-5-28 17:34</a>
+
+真的理解黑豹那个电影在美国大火的原因了，底层的黑人在美国完全没有希望，他们需要一个精神寄托。
+
+所以我 ...</blockquote>
+但这个黑豹和原来真正的黑豹可是完全相反的东西。原来是个带康米性质的，具有进步意义，让黑人广泛联合、武装起来斗争以获得平等地位的符号，现在变成完全相反的封建、玄幻、自闭的虚幻符号。真才是真正的讽刺和洗头脑。
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 407#       发表于 2020-5-28 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579407&amp;ptid=1937970" target="_blank">ffs 发表于 2020-5-27 17:33</a>
+
+警察一边叫那个黑人进车里一边用膝盖压人家脖子，这是啥操作</blockquote>
+程序正义……
+
+如果没有路人录到这段，警察就可以说让他去，但是黑人没去做
+
+
+
+
+
+
+
+-----
+
+####  叶夜青  
+##### 408#       发表于 2020-5-28 17:43
+
+
+
+
+只有社会主义革命才能救美国黑人，否则他们永远只会被美式政治正确喂假糖，然后永远受更差的环境更差的教育最后被证明“你们黑人果然天生是罪犯”
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 409#       发表于 2020-5-28 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592233&amp;ptid=1937970" target="_blank">梁日浮 发表于 2020-5-28 17:38</a>
+
+但这个黑豹和原来真正的黑豹可是完全相反的东西。原来是个带康米性质的，具有进步意义，让黑人广泛联合、 ...</blockquote>
+美国黑人蛋疼就蛋疼在这里
+
+
+没有可以依靠的母国 文化 历史 宗教
+
+
+中东 印度他们再不行 有自己的东西
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 410#       发表于 2020-5-28 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579736&amp;ptid=1937970" target="_blank">fw3ii9 发表于 2020-5-27 18:00</a>
+
+推和微博的消息都是催泪瓦斯和震爆弹最接近的就是橡皮**，打靶是怎么来的 ...</blockquote>
+橡皮子弹就不是打靶了么？
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 411#       发表于 2020-5-28 17:52
+
+
+
+ 本帖最后由 毛利提督 于 2020-5-28 18:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592244&amp;ptid=1937970" target="_blank">wuzhino1 发表于 2020-5-28 17:39</a>
+
+程序正义……
+
+如果没有路人录到这段，警察就可以说让他去，但是黑人没去做 ...</blockquote>
+那个角度应该是正好记录仪拍不到真相，问就是我们程序完全正确黑人始终拒捕不听话
+
+后面两个一起压人的警察也是故意藏在警车后面，如果不是有多个角度视频证据肯定深藏功与名
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 412#       发表于 2020-5-28 17:53
+
+
+
+<blockquote>筱原重工 发表于 2020-5-28 17:29
+别跟国内某些左壬似的什么都阶级矛盾，这还是民族问题占大头，哪怕下**美帝突然达成了gczy了，只要美国黑 ...</blockquote>
+民族矛盾和阶级矛盾又不冲突，你美的种族矛盾本身就是阶级矛盾的外在表现形式，白人拿走了社会绝大多数资源，原住民印第安人被掠夺走土地还在自留地里大量过苦日子呢。黑人作为被奴役和隔离群体直到最近几十年才勉强成为国家公民，结果发现社会资源已经被占完了，白人又不肯给你再分配，60年代发动社会改革的黑人不是被杀就是被压，给你造几个成功典范来迷惑大众群体，多数人还是生活贫苦，难有良好的教育和家庭。
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 413#       发表于 2020-5-28 17:58
+
+
+
+
+美国的尼哥该团结起来对付他们敌人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 414#       发表于 2020-5-28 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592420&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-28 17:53</a>
+
+民族矛盾和阶级矛盾又不冲突，你美的种族矛盾本身就是阶级矛盾的外在表现形式，白人拿走了社会绝大多数资 ...</blockquote>
+民族矛盾是主要矛盾，阶级矛盾是次要矛盾，美国黑人只有重塑民族主体找**族认同，才能进行下一步比如进行阶级斗争。没有民族主体，只会重复上世纪的诸多错误与悲剧
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 415#       发表于 2020-5-28 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592530&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 18:02</a>
+
+民族矛盾是主要矛盾，阶级矛盾是次要矛盾，美国黑人只有重塑民族主体找**族认同，才能进行下一步比如进行 ...</blockquote>
+泥潭这敏感字系统真的很影响阅读
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 416#       发表于 2020-5-28 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592413&amp;ptid=1937970" target="_blank">毛利提督 发表于 2020-5-28 17:52</a>
+
+那个角度应该是正好记录仪拍不到真相，问就是我们程序完全正确黑人始终拘捕不听话
+
+后面两个一起压人的警察 ...</blockquote>
+所以手机，网络，社交平台真的是伟大的东西
+
+
+
+
+
+
+
+-----
+
+####  wuzhino1  
+##### 417#       发表于 2020-5-28 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47581110&amp;ptid=1937970" target="_blank">本间日阳 发表于 2020-5-27 20:00</a>
+
+假如在四年前的外野：</blockquote>
+现在我也不支持黑人，我理解黑人为何会骚乱，但是21世纪了还只会骚乱，没有组织。那也就博得同情而不是尊重。一个例子就是我是尊重黑豹**，当然也不是完全同意黑豹**的做法
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 418#       发表于 2020-5-28 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592591&amp;ptid=1937970" target="_blank">wuzhino1 发表于 2020-5-28 18:07</a>
+
+现在我也不支持黑人，我理解黑人为何会骚乱，但是21世纪了还只会骚乱，没有组织。那也就博得同情而不是尊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">原因很简单，一旦真的出了一个能领导到全美整个黑人群体的人物，或者即使只有苗头，fbi就动手了
+
+
+
+
+
+
+
+-----
+
+####  cjcjason  
+##### 419#       发表于 2020-5-28 18:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591937&amp;ptid=1937970" target="_blank">新的未读消息 发表于 2020-5-28 17:15</a>
+
+黑人是真的烂泥扶不上墙。这次的受害者是标准的完美受害者，在社交媒体上反对黑人拥抱暴力。本来是个很好的 ...</blockquote>
+我看新闻照片白人也不少在抢
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 420#       发表于 2020-5-28 18:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591671&amp;ptid=1937970" target="_blank">掌界 发表于 2020-5-28 16:54</a>
+知乎上说这位是用了一张20美元假币，店家报警，他可以走的，但是留下来协助调查。然后警察来了就带到角落， ...</blockquote>
+每次受害的都是这种老实尼哥，上回被警察喝醉酒有错房门打死的尼哥甚至是四大的员工
+
+
+
+
+
+
+
+-----
+
+####  hellgate22  
+##### 421#       发表于 2020-5-28 18:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592591&amp;ptid=1937970" target="_blank">wuzhino1 发表于 2020-5-28 18:07</a>
+
+现在我也不支持黑人，我理解黑人为何会骚乱，但是21世纪了还只会骚乱，没有组织。那也就博得同情而不是尊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">难道您不知道能够组织起黑人的人都被美国**干掉了嘛？
+
+
+
+
+
+
+
+-----
+
+####  帕拉斯雅典娜  
+##### 422#       发表于 2020-5-28 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592751&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-28 18:22</a>
+
+每次受害的都是这种老实尼哥，上回被警察喝醉酒有错房门打死的尼哥甚至是四大的员工 ...</blockquote>
+也算劣币淘汰良币
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 423#       发表于 2020-5-28 18:29
+
+
+
+
+也不用把**归于劣根性 2011英国骚乱很多都是白人小伙搞事 我国某年反日也是如此 去中心化的运动就是这样 什么牛鬼蛇神都有
+
+
+
+
+
+
+
+-----
+
+####  干将莫邪  
+##### 424#       发表于 2020-5-28 18:38
+
+
+
+
+非洲黑人这么多，也有自己的文化，希望也在他们，这么绝望干啥。黑人发展起来为什么要指望美国黑人？就像中国人还能指望美国华裔？
+
+
+
+
+
+
+
+-----
+
+####  天青月白  
+##### 425#       发表于 2020-5-28 18:40
+
+
+
+
+视频里抢的也有白人啊
+
+
+
+
+
+
+
+-----
+
+####  baesystems  
+##### 426#       发表于 2020-5-28 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592947&amp;ptid=1937970" target="_blank">干将莫邪 发表于 2020-5-28 18:38</a>
+
+非洲黑人这么多，也有自己的文化，希望也在他们，这么绝望干啥。黑人发展起来为什么要指望美国黑人？就像中 ...</blockquote>
+非洲大陆经过白人几百年的持续掠夺和侵略，本土文化遭受了毁灭性的打击，不经过个几百年是恢复不起来了。
+
+
+
+
+
+
+
+-----
+
+####  斩岛之刃  
+##### 427#       发表于 2020-5-28 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
+
+我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
+搜搜黑豹**
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 428#       发表于 2020-5-28 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592947&amp;ptid=1937970" target="_blank">干将莫邪 发表于 2020-5-28 18:38</a>
+非洲黑人这么多，也有自己的文化，希望也在他们，这么绝望干啥。黑人发展起来为什么要指望美国黑人？就像中 ...</blockquote>
+要说文化影响力 真的没法和美国黑人比啊 流行音乐是真的一大半要归功于黑人 爵士乐开始 大概除了美国乡村乐和黑人没关系 就算是现在刻板印象普遍认为的白人摇滚 起源也是黑人 
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 429#       发表于 2020-5-28 18:46
+
+
+
+<blockquote>天网 发表于 2020-5-27 23:42
+然后白那边也被刺激催生更多新纳粹和3k思潮。非我族类其心必异真是人性，我看丑国行至衰落期，到 ...</blockquote>
+**国家嘛，盛世还好，走下坡路的时候肯定会爆。
+
+我们这样的民族国家就不怕这个，我们不是种族主义，而是基于人性的排外情绪，问题其实不是看不起黑人，而是因为惯性对白皮看得太高
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 430#       发表于 2020-5-28 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592028&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-28 17:22</a>
+说起来我记得火山那边有过暴动指南一类的东西，要不要翻译翻译发到推特上面 ...</blockquote>
+你扔燃烧瓶，对面就突突了，你拉路障，对面装甲车机枪开道，简直就是送人头
+
+
+
+
+
+
+
+-----
+
+####  干将莫邪  
+##### 431#       发表于 2020-5-28 18:48
+
+
+
+
+文化影响力在民族贫弱阶段有什么用？泥潭调侃起来nba都是尼哥拍皮球。我倒觉得黑人最重要的是建设非洲的经济基础，其他都是虚的。
+
+
+
+
+
+
+
+-----
+
+####  遥仰苍穹  
+##### 432#       发表于 2020-5-28 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上似乎有洋人在鼓动美国老黑去清算亚裔伥鬼帮凶...........
+
+
+
+
+
+
+
+-----
+
+####  巴克队长  
+##### 433#       发表于 2020-5-28 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593039&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-28 18:47</a>
+
+你扔燃烧瓶，对面就突突了，你拉路障，对面装甲车机枪开道，简直就是送人头 ...</blockquote>
+根本轮不到你去扔，你还在商量怎么做燃烧瓶的时候，FBI就会冲到你家里把你突突了
+
+
+
+
+
+
+
+-----
+
+####  夜贼外卖  
+##### 434#       发表于 2020-5-28 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591963&amp;ptid=1937970" target="_blank">Lord_Voldemort 发表于 2020-5-28 17:18</a>
+
+没有一个有力的组织领导，黑人也难翻过来，反正最后又是**烧。</blockquote>
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/185151tc90bhz6icihcidf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>12.JPG</strong> (139.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 18:51 上传
+
+
+
+
+
+
+
+曾经有过有组织有纪律的黑人组织啊，你猜猜这黑板上写的啥？
+
+<img src="https://img.saraba1st.com/forum/202005/28/185219ugldar3hbrkdgmad.jpg" referrerpolicy="no-referrer">
+
+
+<strong>129303236.jpg</strong> (24.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 18:52 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/184416wa1sfmqvsumdp6qp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>129303301.jpg</strong> (58.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 18:44 上传
+
+
+
+
+
+
+
+不过经过government与社会的绞杀与默杀，如今提到黑人运动大家只记得马丁路德金了
+
+
+
+
+
+
+129303235.jpg
+(35.36 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-5-28 18:44 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/184401o30pep0q5g8kk3yg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 不垃圾屌丝| + 1|涨知识了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 435#       发表于 2020-5-28 18:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议出版美国人权周刊
+
+
+
+
+
+
+
+-----
+
+####  干将莫邪  
+##### 436#       发表于 2020-5-28 19:03
+
+
+
+
+非洲黑人需要有好的领导与思路，带领大家建设非洲。美国黑人怎么可能有出路，各种政治诉求在别人国家实现那就不太现实。非洲黑人建设好自己的大本营非洲是他们的最好出路。
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 437#       发表于 2020-5-28 19:06
+
+
+
+
+黄毛这种种族主义者还能连任么？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 438#       发表于 2020-5-28 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592530&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 18:02</a>
+
+民族矛盾是主要矛盾，阶级矛盾是次要矛盾，美国黑人只有重塑民族主体找**族认同，才能进行下一步比如进行 ...</blockquote>
+很难凝聚起来的，黑人自身在美国是少数族裔，黑人内部贫富差距也重，美国社会制造了一条让黑人“不用努力动脑子就能成功”的看似简单可行道路，当明星，走美国梦，直接撕裂了黑人内部团结的可能性。
+
+黑人有自我认同不太等于能进行都下一部阶级斗争的路。
+
+
+
+
+
+
+
+-----
+
+####  不垃圾屌丝  
+##### 439#       发表于 2020-5-28 19:09
+
+
+
+
+为了从黑人手中保护美国，美国**们当然要接着选郁可唯啊<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8166, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 440#       发表于 2020-5-28 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593111&amp;ptid=1937970" target="_blank">夜贼外卖 发表于 2020-5-28 18:53</a>
+曾经有过有组织有纪律的黑人组织啊，你猜猜这黑板上写的啥？</blockquote>
+所以我觉得美国本土的黑人翻不起来，少数黑人精英也不过是拿黑人当筹码，赚点资本。
+
+除非非洲大陆崛起一个黑人建立的大国，黑人才能洗掉整个种族的污名，有一个真正意义上的“精神祖国”。我们看瓦坎达很可笑，但站在黑人的角度，他们是真的很渴望。
+
+别说瓦坎达了，如果非洲现在崛起一个大国，硬刚打跑了“联合国军”，我看很多美国黑人也会跑。
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 441#       发表于 2020-5-28 19:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593316&amp;ptid=1937970" target="_blank">Lord_Voldemort 发表于 2020-5-28 19:14</a>
+所以我觉得美国本土的黑人翻不起来，少数黑人精英也不过是拿黑人当筹码，赚点资本。
+
+除非非洲大陆崛起一 ...</blockquote>
+有潜力的大国 埃塞和肯尼亚吗？ 南非似乎没指望的样子
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 442#       发表于 2020-5-28 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593258&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-28 19:07</a>
+
+很难凝聚起来的，黑人自身在美国是少数族裔，黑人内部贫富差距也重，美国社会制造了一条让黑人“不用努力 ...</blockquote>
+当初法农就宣传在暴力革命中重塑非洲黑人的民族主体，马尔科姆则是把美国黑人主体放在了暴力革命之前，两者路线差不多，都是宣言书宣传队播种机那一套，也基本上是唯一可行的方法了，当然被突突了之后到现在是一点机会也没有了。下一个破局点估计就只能是子宫武器了，黑人占美国多数的时候看看能不能洪水滔天
+
+
+
+
+
+
+
+-----
+
+####  烟囱烟囱  
+##### 443#       发表于 2020-5-28 19:23
+
+
+
+
+然而昨天推上一搜racist关联直接就是china racism
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 444#       发表于 2020-5-28 19:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591266&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-28 16:25</a>
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实 ...</blockquote>
+出来一个流亡一个，要不就暗杀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 445#       发表于 2020-5-28 19:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593388&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 19:22</a>
+当初法农就宣传在暴力革命中重塑非洲黑人的民族主体，马尔科姆则是把美国黑人主体放在了暴力革命之前，两 ...</blockquote>
+生不过拉美裔的
+
+
+
+
+
+
+
+-----
+
+####  斯拉克自有妙计  
+##### 446#       发表于 2020-5-28 19:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593439&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-28 19:27</a>
+生不过拉美裔的</blockquote>
+其实只有是亚非拉一个族裔站出来都行
+
+
+
+
+
+
+
+-----
+
+####  普罗茶  
+##### 447#       发表于 2020-5-28 19:38
+
+
+
+
+“日本不需要久世英雄这样的人物。”
+
+
+
+
+
+
+
+-----
+
+####  unlimited_blade  
+##### 448#       发表于 2020-5-28 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47592144&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 17:29</a>
+别跟国内某些左壬似的什么都阶级矛盾，这还是民族问题占大头，哪怕下**美帝突然达成了gczy了，只要美国黑 ...</blockquote>
+你说的有道理，具体每个个体应该是种族主义，根源是历史原因造成的阶级差异，互相促进。
+单纯只是种族主义问题的话，亚裔应该比黑人更惨才对，美国白左在那里圣母了那么多年也不至于会闹成这个样子。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 449#       发表于 2020-5-28 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593316&amp;ptid=1937970" target="_blank">Lord_Voldemort 发表于 2020-5-28 19:14</a>
+
+所以我觉得美国本土的黑人翻不起来，少数黑人精英也不过是拿黑人当筹码，赚点资本。
+
+
+除非非洲大陆崛起一 ...</blockquote>
+只有埃塞俄比亚了。。。
+
+
+
+埃塞崛起 是才能真正塑造出非洲黑人的民族性了
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 450#       发表于 2020-5-28 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593388&amp;ptid=1937970" target="_blank">筱原重工 发表于 2020-5-28 19:22</a>
+
+当初法农就宣传在暴力革命中重塑非洲黑人的民族主体，马尔科姆则是把美国黑人主体放在了暴力革命之前，两 ...</blockquote>
+没用 黑人占比一直是那么点没变过 生育率不行的  真正会生的是老墨
+
+
+
+
+
+
+
+-----
+
+####  REST  
+##### 451#       发表于 2020-5-28 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593111&amp;ptid=1937970" target="_blank">夜贼外卖 发表于 2020-5-28 18:53</a>
+
+曾经有过有组织有纪律的黑人组织啊，你猜猜这黑板上写的啥？</blockquote>
+革命黑人个个要牢记，三大纪律八项注意♪ <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  首领  
+##### 452#       发表于 2020-5-28 19:44
+
+
+
+
+别说组织了，人连稳定家庭都不会有。
+
+
+
+
+
+
+
+-----
+
+####  大哀之君  
+##### 453#       发表于 2020-5-28 19:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/195252srcf2qqqx0u3x0fr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>黑豹.jpg</strong> (45.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 19:52 上传
+
+
+
+
+
+
+1969年9月24日，黑豹领袖鲍比在律师没有到场的情况下要求自我辩护，法官的反应是命令法警用布条堵死鲍比的嘴
+
+
+在美国开展任何形式斗争之艰难，反动势力之强大之猖狂，外国人简直难以想象
+
+
+
+
+
+
+
+-----
+
+####  julia黑  
+##### 454#       发表于 2020-5-28 21:06
+
+
+
+
+黑豹**真的惨，这种有组织有纲领的团体被扼杀了现在的美国黑人除了上街游个行发泄一下什么都做不了。
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 455#       发表于 2020-5-28 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593358&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-28 19:19</a>
+
+有潜力的大国 埃塞和肯尼亚吗？ 南非似乎没指望的样子</blockquote>
+100年内能建成东非联邦，黑人就有希望。东非联邦的主体是肯尼亚坦桑尼亚和乌干达，还有卢旺达布隆迪。关键点是斯瓦西里语圈。至于埃塞历史包袱太重边上索马里也不是省油的灯，失去厄立特里亚变成内陆国发展上限不行。
+
+
+
+
+
+
+
+-----
+
+####  欧金金  
+##### 456#       发表于 2020-5-28 21:11
+
+
+
+
+话说这事将会怎么收场？现在已经发展到da砸抢了吧？
+
+
+
+
+
+
+
+-----
+
+####  zakufa782  
+##### 457#       发表于 2020-5-28 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593005&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-28 18:45</a>
+
+要说文化影响力 真的没法和美国黑人比啊 流行音乐是真的一大半要归功于黑人 爵士乐开始 大概除了美国乡村 ...</blockquote>
+乡村乐一样有南方黑人的贡献 谢谢
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 458#       发表于 2020-5-28 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594027&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-28 21:11</a>
+
+话说这事将会怎么收场？现在已经发展到da砸抢了吧？</blockquote>
+national guard上街，然后抓几个人，这一波浪就过去了
+
+
+
+
+
+
+
+-----
+
+####  Tissuesea  
+##### 459#       发表于 2020-5-28 21:23
+
+
+
+
+反奶一下，一周之后还是会有热度的。无辜的人被活活杀死，让我想起罪与罚那头被鞭打的马。。。
+
+
+—— 来自 HUAWEI AUM-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 460#       发表于 2020-5-28 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594027&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-28 21:11</a>
+
+话说这事将会怎么收场？现在已经发展到da砸抢了吧？</blockquote>
+拖时间就过去了
+
+
+
+
+
+
+
+
+-----
+
+####  花枝鱿鱼面  
+##### 461#       发表于 2020-5-28 21:32
+
+
+
+
+都关心黑人闹事就好了，这样就没人关心今天美国新冠又死多少了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  李白白  
+##### 462#       发表于 2020-5-28 21:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593059&amp;ptid=1937970" target="_blank">干将莫邪 发表于 2020-5-28 18:48</a>
+
+文化影响力在民族贫弱阶段有什么用？泥潭调侃起来nba都是尼哥拍皮球。我倒觉得黑人最重要的是建设非洲的经 ...</blockquote>
+尼格拍皮球这个说法我只在全网最不基德的论坛sg见过，在泥潭我还真没听人说过
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ishikawa_k| + 1|谢谢你，难受了一天终于笑出来了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nexus1  
+##### 463#       发表于 2020-5-28 22:11
+
+
+
+<blockquote>李白白 发表于 2020-5-28 21:33
+尼格拍皮球这个说法我只在全网最不基德的论坛sg见过，在泥潭我还真没听人说过 ...</blockquote>
+有的是，我今年就见过几次了
+
+
+
+
+
+
+
+-----
+
+####  neonhex  
+##### 464#       发表于 2020-5-28 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47583564&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-27 23:09</a>
+我对尼哥运动不太了解。为啥当年尼哥运动一直没有系统的理论指导呢？看那时候尼哥们简直病急乱投医，连绿 ...</blockquote>
+黑豹**啊，团结底层白人+武装建立根据地都提出来了……现在好莱坞这个黑豹完全就是出来抹黑的。
+
+—— 来自 Xiaomi Mi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 465#       发表于 2020-5-28 22:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/221838xrkcio7nz4n8ni4n.png" referrerpolicy="no-referrer">
+
+
+<strong>222.PNG</strong> (110.45 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-28 22:18 上传
+
+
+
+
+
+
+围魏救赵
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 466#       发表于 2020-5-28 22:22
+
+
+
+ 本帖最后由 000000 于 2020-5-28 22:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594301&amp;ptid=1937970" target="_blank">李白白 发表于 2020-5-28 21:33</a>
+
+尼格拍皮球这个说法我只在全网最不基德的论坛sg见过，在泥潭我还真没听人说过 ...</blockquote>
+泥潭小将们传统艺能，打奥巴马时代就黑鬼尼格天天挂嘴上，直接搜帖子标题都大把
+
+
+到这帖称谓又变成黑人了，知道黑豹点历史碎片各个摇身一变成种族问题专家
+
+
+臭不可闻
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ごろ|-1||
+| 丁兔|-2|再臭一点|
+| tuiskusuomaa| + 1|好评加鹅|
+| dpdwx| + 1|连种族共存都没经历过也敢讲没有种族歧视.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 467#       发表于 2020-5-28 22:29
+
+
+
+ 本帖最后由 dclara1 于 2020-5-28 22:34 编辑 
+
+昨晚好热闹，明尼阿波利斯扌丁石匝扌仓烧全齐活了，LA那边也有散步群众砸警车事件出现
+
+好起来了，希望再闹大点
+
+— from Google Pixel 2 XL, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 468#       发表于 2020-5-28 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594540&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-28 22:22</a>
+
+泥潭小将们传统艺能，打奥巴马时代就黑鬼尼格天天挂嘴上，直接搜帖子标题都大把
+
+
+到这帖称谓又变成黑人了 ...</blockquote>
+少在那玩你们的船货邪教，树稻草人了。阿美利坚能够起来自然是建立在黑人的奴隶制上，他们自身都知道没法回避。但是你想把情况倒班过来，也太搞笑了吧。恶心不恶心啊。
+
+
+
+
+
+
+
+-----
+
+####  inconolast  
+##### 469#       发表于 2020-5-28 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47593111&amp;ptid=1937970" target="_blank">夜贼外卖 发表于 2020-5-28 18:53</a>
+
+曾经有过有组织有纪律的黑人组织啊，你猜猜这黑板上写的啥？</blockquote>
+草，这八项注意第四条错了阿
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 470#       发表于 2020-5-28 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594027&amp;ptid=1937970" target="_blank">欧金金 发表于 2020-5-28 21:11</a>
+
+话说这事将会怎么收场？现在已经发展到da砸抢了吧？</blockquote>
+抢满3天 无事发生过
+
+
+
+
+
+
+
+-----
+
+####  Labborn  
+##### 471#       发表于 2020-5-28 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594489&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-28 22:18</a>
+围魏救赵</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这也太恶臭了，还好意思引用列宁的话，自裁罢
+
+
+
+
+
+
+
+-----
+
+####  ronac  
+##### 472#       发表于 2020-5-28 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594635&amp;ptid=1937970" target="_blank">dclara1 发表于 2020-5-28 22:29</a>
+
+昨晚好热闹，明尼阿波利斯扌丁石匝扌仓烧全齐活了，LA那边也有散步群众砸警车事件出现
+
+
+好起来了，希望再闹 ...</blockquote>
+看新闻报道说，好像有参与protest的被射杀了
+
+要永动机
+
+
+
+
+
+
+
+-----
+
+####  百合豚  
+##### 473#       发表于 2020-5-28 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595102&amp;ptid=1937970" target="_blank">Labborn 发表于 2020-5-28 23:08</a>
+
+这也太恶臭了，还好意思引用列宁的话，自裁罢</blockquote>
+这算什么，国内一堆自称佐壬的鉴证小鬼，天天跑北朝偷基层公务员的政治聊天，偷的同时还不忘嘲讽几句的那种，这事出了以后屁都不敢放一个
+
+
+
+
+
+
+
+-----
+
+####  花枝鱿鱼面  
+##### 474#       发表于 2020-5-28 23:16
+
+
+
+
+书记发的帖还在第一页，前不久刚回过贴来着<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">直接艾特他嘛
+
+—— 来自 HUAWEI VRD-W10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rockroxas  
+##### 475#       发表于 2020-5-28 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47587064&amp;ptid=1937970" target="_blank">hutuguug 发表于 2020-5-28 10:23</a>
+
+黑人怎么学不会抱团，要用思想来武装自己啊。
+
+这种情况，一拥而上，来个几千人的暴动，美国岂不美滋滋。 ...</blockquote>
+暴动已经按万算了吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.Cheung  
+##### 476#       发表于 2020-5-28 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591900&amp;ptid=1937970" target="_blank">FMIC 发表于 2020-5-28 17:12</a>
+
+不老实就不会死吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+这次这位据说是使用了疑似假钞，就这种破事儿他要是直接拍拍屁股走人了大几率什么事都没有，然而这位就老老实实地坐在店门口旁边等到警察来处理，最后在大庭广众之下丢了命
+
+
+
+
+
+
+
+-----
+
+####  唧唧歪歪八卦阵  
+##### 477#       发表于 2020-5-28 23:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/28/232857fzvv55vsv5fz1252.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200528232848.png</strong> (273.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-28 23:28 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  lais  
+##### 478#       发表于 2020-5-28 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595400&amp;ptid=1937970" target="_blank">Mr.Cheung 发表于 2020-05-28 23:27:05</a>
+这次这位据说是使用了疑似假钞，就这种破事儿他要是直接拍拍屁股走人了大几率什么事都没有，然而这位就 ...</blockquote>估计之前因为比较老实听话的原因，美国警察对他还算客气所以相信会正常处理？却没想到在恶意者脚下送了命
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  DarkSider  
+##### 479#       发表于 2020-5-28 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47591266&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-28 16:25</a>
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实 ...</blockquote>
+黑人哪来的精英
+
+
+
+
+
+
+
+-----
+
+####  ualiant  
+##### 480#       发表于 2020-5-28 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595734&amp;ptid=1937970" target="_blank">DarkSider 发表于 2020-5-28 23:49</a>
+
+黑人哪来的精英</blockquote>
+黑人怎么就没有精英了，经过同样的高级教育，黑人不会比白人差
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 481#       发表于 2020-5-29 00:03
+
+
+
+<img src="https://p.sda1.dev/0/6c67c6ae1774e285c199bed7ab608eb1/american dream.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/e6f1c7b832ced3f402662621efead462/american dream 02.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/3961dcb94d2ae1efb8777e2ffb877f0b/american dream 03.gif" referrerpolicy="no-referrer">
+
+太阳底下无新事，其实也有反思，只不过反思也给忘光了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  DarkSider  
+##### 482#       发表于 2020-5-29 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584046&amp;ptid=1937970" target="_blank">vimisbesteditor 发表于 2020-5-27 23:48</a>
+不趁机谴责下美国种族歧视？要求保证黑人权利么</blockquote>
+我国不干涉他国内政
+
+
+
+
+
+
+
+-----
+
+####  longcpu  
+##### 483#       发表于 2020-5-29 00:28
+
+
+
+
+果然开始抢劫超市了
+
+
+
+
+
+
+
+-----
+
+####  挂命贵  
+##### 484#       发表于 2020-5-29 00:29
+
+
+
+
+泥潭这马赛克系统是不是抽风了，感觉就是随机抽取一个词进行**
+
+
+
+
+
+
+
+-----
+
+####  人形玩偶  
+##### 485#       发表于 2020-5-29 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595850&amp;ptid=1937970" target="_blank">ualiant 发表于 2020-5-28 23:59</a>
+
+黑人怎么就没有精英了，经过同样的高级教育，黑人不会比白人差</blockquote>
+众所周知黑人精英认为自己和底层黑人不是同一个人种
+
+
+
+
+
+
+
+-----
+
+####  暗杀翻看是  
+##### 486#       发表于 2020-5-29 00:36
+
+
+
+<blockquote>武男 发表于 2020-5-28 22:33
+少在那玩你们的船货邪教，树稻草人了。阿美利坚能够起来自然是建立在黑人的奴隶制上，他们自身都知道没法 ...</blockquote>
+船货邪教是啥意思 什么东西的谐音吗？
+
+
+
+
+
+
+
+-----
+
+####  雷鹰  
+##### 487#       发表于 2020-5-29 00:43
+
+
+
+ 本帖最后由 雷鹰 于 2020-5-29 00:47 编辑 
+<blockquote>飞霞精灵 发表于 2020-5-28 19:07
+很难凝聚起来的，黑人自身在美国是少数族裔，黑人内部贫富差距也重，美国社会制造了一条让黑人“不用努力 ...</blockquote><blockquote>美国社会制造了一条让黑人“不用努力动脑子就能成功”的看似简单可行道路，当明星，走美国梦，直接撕裂了黑人内部团结的可能性。</blockquote>
+据说NBA就这么招人的，说小朋友你来打球吧超简单的，打好了能像乔丹科比那样名利双收... 最后能混出头的有几个不用我说
+
+认真说这条路其实更窄，甚至对绝大多数黑人来说都是死路。混得好的明星就那几个头牌，绝大多数连尾气都喝不上
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 488#       发表于 2020-5-29 00:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596245&amp;ptid=1937970" target="_blank">暗杀翻看是 发表于 2020-5-29 00:36</a>
+
+船货邪教是啥意思 什么东西的谐音吗？</blockquote>
+船货崇拜
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 489#       发表于 2020-5-29 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596296&amp;ptid=1937970" target="_blank">雷鹰 发表于 2020-5-29 00:43</a>
+
+据说NBA就这么招人的，说小朋友你来打球吧，打好了能像乔丹科比那样名利双收... 最后能混出头的有几个不 ...</blockquote>
+做明星这种成功路就是万里挑一，NBA那些成功的球员，去挖一下青少年时期经历，惨不忍睹的有的是。
+
+NBA招人还算正常了，有一套科学的选秀流程。但真是成功率太低。
+
+真要说改变黑人状况，从提高教育和社区改造这些方向入手其实具有更大的普及意义。
+
+但整个美国对黑人难有这么好心。
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 490#       发表于 2020-5-29 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596296&amp;ptid=1937970" target="_blank">雷鹰 发表于 2020-5-29 00:43</a>
+
+据说NBA就这么招人的，说小朋友你来打球吧，打好了能像乔丹科比那样名利双收... 最后能混出头的有几个不 ...</blockquote>
+做明星这种成功路就是万里挑一，NBA那些成功的球员，去挖一下青少年时期经历，惨不忍睹的有的是。
+
+NBA招人还算正常了，有一套科学的选秀流程。但真是成功率太低。
+
+真要说改变黑人状况，从提高教育和社区改造这些方向入手其实具有更大的普及意义。
+
+但整个美国对黑人难有这么好心。
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 491#       发表于 2020-5-29 01:09
+
+
+
+ 本帖最后由 悠然幻影 于 2020-5-29 01:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596369&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-29 01:04</a>
+
+做明星这种成功路就是万里挑一，NBA那些成功的球员，去挖一下青少年时期经历，惨不忍睹的有的是。
+
+NBA招 ...</blockquote>
+没用 收买了一部分黑人上层
+
+
+然后合法化 合理化黑人现在这些行为。当猪养了
+
+
+马尔科姆x这种路线不可能了
+
+
+
+
+
+
+
+-----
+
+####  悠然幻影  
+##### 492#       发表于 2020-5-29 01:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595850&amp;ptid=1937970" target="_blank">ualiant 发表于 2020-5-28 23:59</a>
+
+黑人怎么就没有精英了，经过同样的高级教育，黑人不会比白人差</blockquote>
+黑人精英基本被收买了
+
+
+黑皮白心了
+
+
+
+
+
+
+
+-----
+
+####  从零开始的ccc  
+##### 493#       发表于 2020-5-29 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595881&amp;ptid=1937970" target="_blank">stmule 发表于 2020-05-29 00:03:02</a></blockquote>今天还看了个笑话 蝙蝠侠之所以不遮全脸 是为了让警察知道他是个白人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  世界之旅  
+##### 494#       发表于 2020-5-29 01:20
+
+
+
+ 本帖最后由 世界之旅 于 2020-5-29 01:22 编辑 
+
+泥潭网友推崇的 @今日俄罗斯RT 在播放明尼阿波利斯的抗 议 者 打砸 抢烧的视频
+[https://www.weibo.com/6244553417/J430Rxp3O](https://www.weibo.com/6244553417/J430Rxp3O)
+
+这算不算俄罗斯还是跪久了站不起来了？
+
+
+
+
+
+
+
+-----
+
+####  lokomotiv  
+##### 495#       发表于 2020-5-29 01:49
+
+
+
+<img src="https://p.sda1.dev/0/3c1caefd3595789766636e3479f0cac2/mmexport1590688109218.jpg" referrerpolicy="no-referrer">这图不知道前面有没有人发过
+
+—— 来自 Xiaomi MI 8 SE, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  LacryCat  
+##### 496#       发表于 2020-5-29 02:05
+
+
+
+
+种族主义者在现代其实就是民科入脑。和相信上帝之风能吹散疫情的智障们确实是一丘之貉。
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 497#       发表于 2020-5-29 03:01
+
+
+
+
+你们怎么说的nba跟满大街拉着黑人小孩进行大逃杀淘汰似的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就是争取拿个奖学金混个文凭而已，毕业后找个别的工作，或者给小孩开训练营，去小学中学做教练助教之类的工作，即使成不了明星大富大贵，对于底层小孩来说也算个不错的路了。
+
+
+
+
+
+
+
+-----
+
+####  丁兔  
+##### 498#       发表于 2020-5-29 03:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47590522&amp;ptid=1937970" target="_blank">火流星 发表于 2020-5-28 15:32</a>
+
+老白男警察丢饭碗就是顶天了，不过也有条子重判的，上次那个黄彼得就坐牢去了，，， ...</blockquote>
+纽约华裔警察误杀黑人青年被控过失杀人罪---------是这个？人家叫梁彼得
+
+
+
+
+
+
+
+-----
+
+####  雷诺4000  
+##### 499#       发表于 2020-5-29 06:18
+
+
+
+<blockquote>000000 发表于 2020-5-28 22:22
+泥潭小将们传统艺能，打奥巴马时代就黑鬼尼格天天挂嘴上，直接搜帖子标题都大把
+
+
+到这帖称谓又变成黑人了 ...</blockquote>
+
+你搁这体亏屁思啥呢？
+
+
+尼格在美国很惨跟我们有啥关系？难道是我们害的吗？
+
+
+我们家祖上用黑奴了？我们欠他们啥么？
+
+
+尼格在美帝混得很惨，跟部分尼格在某朝享有一等人地位横行霸道超乎法律三个学伴等等有冲突么？
+
+
+尼格在美帝混得很惨，所以就不该反对他们在某朝的一等人特权？所以就该容忍跪族兰孩们无脑崇拜尼格拍皮球这种low逼活动？
+
+
+贱不贱啊？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| miao123177| + 1|加回来 有什么好扣的|
+| swl007007|-1||
+| 皇帝雅西加| + 2||
+| lysh_233| + 2||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  坚果大爷  
+##### 500#       发表于 2020-5-29 06:31
+
+
+
+<blockquote>Labborn 发表于 2020-5-28 13:05
+非要说的话黑人就是超级打压劣化版的当年的犹太人——没有祖国，没有民族意识，甚至没有一个宗教（ ...</blockquote>
+类比吉普赛人更合适
+
+
+
+
+
+
+
+-----
+
+####  坚果大爷  
+##### 501#       发表于 2020-5-29 06:35
+
+
+
+<blockquote>洗刷刷 发表于 2020-5-28 16:25
+推特有一条说的好，美国媒体反倒欢迎暴动，鼓励暴动。无意义的暴动只会消耗黑人的热情和愤怒，还能落人口实 ...</blockquote>
+什么思想领袖都顶不住子弹爆头，谁站出来谁吃暗杀
+
+
+
+
+
+
+
+-----
+
+####  pepase  
+##### 502#       发表于 2020-5-29 06:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47596224&amp;ptid=1937970" target="_blank">人形玩偶 发表于 2020-5-29 00:34</a>
+
+众所周知黑人精英认为自己和底层黑人不是同一个人种</blockquote>
+好像高华也认为。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Jiron.Amos  
+##### 503#       发表于 2020-5-29 06:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47594489&amp;ptid=1937970" target="_blank">悠然幻影 发表于 2020-5-28 22:18</a>
+围魏救赵</blockquote>
+书记这种体制内蛀虫这么跳，为什么还没被揪出来开除
+
+
+
+
+
+
+
+-----
+
+####  xxxllz  
+##### 504#       发表于 2020-5-29 06:55
+
+
+
+
+nba黑人退役破产也有六成。。。反正就不给黑人教育
+
+
+
+
+
+
+
+-----
+
+####  人形玩偶  
+##### 505#       发表于 2020-5-29 06:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47597031&amp;ptid=1937970" target="_blank">pepase 发表于 2020-5-29 06:38</a>
+
+好像高华也认为。。</blockquote>
+自信点
+
+好像删掉
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 506#       发表于 2020-5-29 07:05
+
+
+
+
+据说要出动国民警卫队了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 507#       发表于 2020-5-29 07:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47595972&amp;ptid=1937970" target="_blank">DarkSider 发表于 2020-5-29 00:11</a>
+我国不干涉他国内政</blockquote>
+被人干涉的时候放个反弹总可以吧
+
+
+
+
+
+
+
+-----
+
+####  btnasi  
+##### 508#       发表于 2020-5-29 07:28
+
+
+
+
+哇 调侃个黑人都能扣我的鹅...  什么黄皮肥皂都出来了。
+
+怕不是这群人的妈被黑鬼中出到爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 -6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yayoi801|-1||
+| 柴烧咖啡|-2||
+| 洛拉斯|-1|扣分是因为你**|
+| Tissuesea|-1|欢乐多|
+| 巫师萨满|-1|歡樂多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Surlert  
+##### 509#       发表于 2020-5-29 07:37
+
+
+
+
+籽油的水柜终于要上街了吗？
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  fsjrday  
+##### 510#       发表于 2020-5-29 07:40
+
+
+
+
+在美国protest贴看到有hk人骂了句黑鬼被hk人围攻，其中有今天看到的最好笑的笑话
+“香港精神不支持种族歧视”
+
+
+
+
+
+                                 
