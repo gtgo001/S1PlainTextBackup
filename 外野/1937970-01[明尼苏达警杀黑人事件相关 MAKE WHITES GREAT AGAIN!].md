@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 06:06** 
+> ## **本文件最后更新于2020-05-30 10:05** 
 
 
 
@@ -9989,10 +9989,11 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 23战斗力 +23
+ 参与人数 24战斗力 +24
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 人间失格| + 1|认真港道理|
 | lordvv| + 1|好评加鹅|
 | flashenix1| + 1||
 | 余海露| + 1|好评加鹅|
@@ -10012,7 +10013,6 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 | kumquat_cc| + 1||
 | adapter| + 1||
 | 斯拉克自有妙计| + 1|好评加鹅|
-| miao123177| + 1|加回来 有什么好扣的|
 
 
 
@@ -10183,10 +10183,11 @@ nba黑人退役破产也有六成。。。反正就不给黑人教育
 
 
 
- 参与人数 10战斗力 -12
+ 参与人数 11战斗力 -14
 
 |昵称|战斗力|理由|
 |----|---|---|
+| longlivedick|-2||
 | camelia_vie|-2|好评加鹅|
 | 秦一鸣|-1||
 | fygh33|-1|欢乐多|
@@ -12486,6 +12487,25 @@ QQ图片20200529113846.png
 要我说就是比中国好。</blockquote>
 老哥说得好，可惜死鱼不足没办法帮您回血
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| longlivedick|-2|我死鱼足|
+
+
+
+查看全部评分
 
 
 
@@ -18486,10 +18506,15 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 
 
 
- 参与人数 23战斗力 +6
+ 参与人数 28战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 花鸟三年| + 2|好评加鹅|
+| Nathan-_-|-2||
+| JimmyJoker|-2|思路广|
+| Лилия|-1|**|
+| nerugigannte| + 2|尼哥生来J8比我大，肌肉比我饱满，该死.|
 | smlszh| + 1|皮球拍尼个|
 | spiritualis| + 1|好评加鹅|
 | leader01234|-1||
@@ -18505,11 +18530,6 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 | 兮若| + 1|好评加鹅|
 | pyd68tc| + 1|思路广|
 | 不垃圾屌丝| + 1|欢乐多|
-| 搞不好是哈士奇| + 1||
-| ごろ| + 1|欢乐多|
-| lanslort|-3||
-| kumquat_cc| + 1||
-| 致远星总书记| + 1|欢乐多|
 
 
 
@@ -19668,4 +19688,1247 @@ Minnesota law originally defined third-degree murder solely as depraved-heart mu
 
 
 
-                 
+
+
+-----
+
+####  死亡確認  
+##### 971#       发表于 2020-5-30 06:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610221&amp;ptid=1937970" target="_blank">20002000 发表于 2020-5-30 05:25</a>
+转移视线嘛 毕竟i take no responsibility</blockquote>
+这个转移太蠢了吧。你说病毒疫情经济什么的喊中国就算了，现在他推特上可是只剩下china和repeat china这种单词了，感觉不像是要转移话题，更像是怕大家忘记china了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  世界之旅  
+##### 972#       发表于 2020-5-30 06:14
+
+
+
+<blockquote>死亡確認 发表于 2020-5-30 06:11
+这个转移太蠢了吧。你说病毒疫情经济什么的喊中国就算了，现在他推特上可是只剩下china和repeat china这 ...</blockquote>
+那可不就是转移话题嘛
+
+
+
+
+
+
+
+-----
+
+####  nvrennvren  
+##### 973#       发表于 2020-5-30 06:29
+
+
+
+
+在泥塘混了这么久，不是一致同意说美国警察随便杀人，一言不合就爆头吗？这都不叫事… 为什么这次有这种反应，警察还被起诉了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  新闻联播  
+##### 974#       发表于 2020-5-30 06:45
+
+
+
+<blockquote>nvrennvren 发表于 2020-5-30 06:29
+在泥塘混了这么久，不是一致同意说美国警察随便杀人，一言不合就爆头吗？这都不叫事… 为什么这次有这种反 ...</blockquote>
+因为这次黑叔叔非常配合，没有任何实质上的“一言不合”
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 975#       发表于 2020-5-30 06:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607177&amp;ptid=1937970" target="_blank">致远星总书记 发表于 2020-5-29 21:11</a>
+
+YKW：CHINA!</blockquote>
+有一个t字头的词没屏蔽
+
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 976#       发表于 2020-5-30 06:58
+
+
+
+ 本帖最后由 nerugigannte 于 2020-5-30 07:00 编辑 
+
+哎，可能新冠死10w和这次对美国来说真不是什么事把，再闹也动摇不了基本盘，看了眼美元现在竟然7.1了，道琼斯回25000了，资本主义低人权社会恐怖如斯。新老师最近都出来**了变异再收割波呗
+
+
+
+
+
+
+
+-----
+
+####  戴里克·伯格  
+##### 977#       发表于 2020-5-30 07:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610275&amp;ptid=1937970" target="_blank">死亡確認 发表于 2020-5-30 06:11</a>
+这个转移太蠢了吧。你说病毒疫情经济什么的喊中国就算了，现在他推特上可是只剩下china和repeat china这 ...</blockquote>
+你可能看了假的岩窟王推特，有个CHINA！的是真账号，有Repeat！China！的是假账号
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Лилия  
+##### 978#       发表于 2020-5-30 07:29
+
+
+
+
+ykw推特翻车好严重，以前只能看到带路**骂中国，现在下面全都是yygq的。之后xinhua news推特也疯狂整活，yygq
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 979#       发表于 2020-5-30 07:39
+
+
+
+
+老美连火山教美国人如何对抗警察都能算入中国账内，双重标准和**到这样令人佩服😄
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 980#       发表于 2020-5-30 07:47
+
+
+
+
+这种情景真的是让人想高唱国际歌
+
+
+
+
+
+
+
+-----
+
+####  叶子  
+##### 981#       发表于 2020-5-30 07:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610471&amp;ptid=1937970" target="_blank">rxrx 发表于 2020-5-30 07:39</a>
+老美连火山教美国人如何对抗警察都能算入中国账内，双重标准和**到这样令人佩服😄 ...</blockquote>
+老美这种教了徒弟反输出又不是第一次，911的可以说一半是CIA的培训成果。
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 982#       发表于 2020-5-30 07:48
+
+
+
+
+不是，我一直没明白，那几个警察把他压在那里是要干嘛？按道理就算对方抵抗，那制服完拷上了不是直接就能上车了？
+
+还是说为了保证他彻底丧失反抗能力？那不就是冲着压死去的吗？
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  iantsai  
+##### 983#       发表于 2020-5-30 07:49
+
+
+
+<blockquote>ronac 发表于 2020-5-29 16:52
+留言里有大家拿人在拱火，“费拉不堪，你那也叫烧” ...</blockquote>
+“弱鸡，知道你们白宫为什么是白的吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  小姜不辣  
+##### 984#       发表于 2020-5-30 07:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610513&amp;ptid=1937970" target="_blank">风猫 发表于 2020-5-30 07:48</a>
+不是，我一直没明白，那几个警察把他压在那里是要干嘛？按道理就算对方抵抗，那制服完拷上了不是直接就能上 ...</blockquote>
+那警察是种族主义者，就是为了施虐
+
+
+
+
+
+
+
+-----
+
+####  烤鱼饼  
+##### 985#       发表于 2020-5-30 07:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610513&amp;ptid=1937970" target="_blank">风猫 发表于 2020-5-30 07:48</a>
+
+不是，我一直没明白，那几个警察把他压在那里是要干嘛？按道理就算对方抵抗，那制服完拷上了不是直接就能上 ...</blockquote>
+就是冲着压死去的，不用打问号
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 986#       发表于 2020-5-30 08:09
+
+
+
+
+霉霉：After stoking the fires of white supremacy and racism your entire presidency, you have the nerve to feign moral superiority before threatening
+violence?'When the looting starts the shooting starts'??? We will vote you out in November.
+
+霉霉指责懂王煽动种族主义，号召把他选下台。
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 987#       发表于 2020-5-30 08:11
+
+
+
+
+泰勒丝发声怼ykw 并说要把ykw选下去
+
+题外话 我个人觉得这位女士几年前应该是偏保守的 很可能上届投的还是ykw 但是这几年慢慢偏蓝了
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 988#       发表于 2020-5-30 08:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610603&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-30 08:11</a>
+泰勒丝发声怼ykw 并说要把ykw选下去
+
+题外话 我个人觉得这位女士几年前应该是偏保守的 很可能上届投的还是yk ...</blockquote>
+她所在的田纳西州是红州。上一届她就发文说自己会支持民主**人竞选参议员。但是没有号召支持者投谁，只是鼓励支持者应该站出来去投票。这次是真的号召反懂王了。
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 989#       发表于 2020-5-30 08:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610640&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-30 08:17</a>
+她所在的田纳西州是红州。上一届她就发文说自己会支持民主**人竞选参议员。但是没有号召支持者投谁，只是 ...</blockquote>
+我没记错的话 那次已经是ykw上台后了吧 后来ykw还在她发表政治性宣言后还酸了她 
+
+
+
+
+
+
+
+-----
+
+####  iantsai  
+##### 990#       发表于 2020-5-30 08:21
+
+
+
+<blockquote>山本聪 发表于 2020-5-30 08:09
+霉霉：After stoking the fires of white supremacy and racism your entire presidency, you have the ner ...</blockquote>
+她的几千万粉丝本来就是蓝色为主的吧？
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 991#       发表于 2020-5-30 08:23
+
+
+
+
+拜登真是运气好，上星期还说错话，和黑叔大V主播对线。说黑叔如果在懂王和他之间不知道选谁，那他就不是黑人。
+被喷。。。
+
+
+现在事实证明拜登没说错。
+
+黑人大V表示自己会支持拜登<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 992#       发表于 2020-5-30 08:24
+
+
+
+
+翻了下92年LA暴乱，也是因为暴力执法被录像
+
+
+黑人抱头跪在地上，十来个警察围成一圈轮流上去用警棍打他头，打了几分钟
+
+
+都是几个**警察泄愤最终导致几十亿美元损失和巨大社会割裂，然后全体纳税人埋单，想想都觉得智障。但凡执法过程吃相好一点都不会暴乱成这样。
+
+
+要是拿这些损失的1/10用来提升警务队伍的纪律性和业务水平，这社会运行效率得提高多少。
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 993#       发表于 2020-5-30 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610660&amp;ptid=1937970" target="_blank">iantsai 发表于 2020-5-30 08:21</a>
+她的几千万粉丝本来就是蓝色为主的吧？</blockquote>
+现在是 red时代以前还真不好说 她以前是不发表政治性宣言 很多人觉得她偏保守
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 994#       发表于 2020-5-30 08:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610655&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-30 08:20</a>
+我没记错的话 那次已经是ykw上台后了吧 后来ykw还在她发表政治性宣言后还酸了她  ...</blockquote>
+不，16年的。不过共和**人还是当选了，就是和科顿联名提出禁止中国留学生来学理科的布莱克本。
+
+
+
+
+
+
+
+-----
+
+####  海克托尔  
+##### 995#       发表于 2020-5-30 08:30
+
+
+
+
+刚才央视新闻放的在自家被警察杀死的女子的男友打911求教的录音也挺震撼啊，只听声音就能感受到绝望和无助。
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 996#       发表于 2020-5-30 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610660&amp;ptid=1937970" target="_blank">iantsai 发表于 2020-5-30 08:21</a>
+她的几千万粉丝本来就是蓝色为主的吧？</blockquote>
+再蓝也没用，美国的年轻人不喜欢出来投票。
+例如佛州年轻人普遍支持禁枪。但是没几个有行动力出来投票。
+导致佛州现在是共和**极右的天下。一个比一个右。（古巴裔抱团行动力强）
+
+
+
+
+
+
+
+-----
+
+####  bl0ck  
+##### 997#       发表于 2020-5-30 08:49
+
+
+
+
+霉霉不是纳粹女神吗？。
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 998#       发表于 2020-5-30 08:50
+
+
+
+
+霉霉都反了……当年一直传说她是保守圣女来着
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 999#       发表于 2020-5-30 08:50
+
+
+
+<blockquote>bl0ck 发表于 2020-5-30 08:49
+霉霉不是纳粹女神吗？。</blockquote>
+一，她不是。
+
+二，假如她是，说明连纳粹都受不了川建国了。
+
+
+
+
+
+
+
+-----
+
+####  ronac  
+##### 1000#       发表于 2020-5-30 08:54
+
+
+
+
+说到发声这块，史蒂芬金的推特也是天天点艹一块完
+
+
+老金：妈个鸡，有《死亡禁区》那味儿了，是不是还要来个《The Stand》啊
+
+新冠酱：我看行
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 1001#       发表于 2020-5-30 08:56
+
+
+
+ 本帖最后由 风猫 于 2020-5-30 08:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610542&amp;ptid=1937970" target="_blank">烤鱼饼 发表于 2020-5-30 07:55</a>
+就是冲着压死去的，不用打问号</blockquote>
+我知道他实质上是冲着压死去的，但是难道不是在某种正常的执法流程下的过度执法，暴力执法吗？
+
+就看2014年那个黑人被锁喉的事情，我不知道真实情况是什么样的，光看视频觉得这属于执法的失误，但至少是在控制对方的过程中，整个过程可能就几十秒。
+这次这个是什么鬼，感觉就根本没有想过下一步的操作是什么，那如果这黑人不死，这群警察是打算一直压下去？
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  YaoMei  
+##### 1002#       发表于 2020-5-30 08:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610595&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-30 08:09</a>
+
+霉霉：After stoking the fires of white supremacy and racism your entire presidency, you have the ner ...</blockquote>
+这真是活久见了。
+
+霉霉在政治性问题上尽可能不明确表态是娱乐圈罕见的了。
+
+
+
+
+
+
+
+-----
+
+####  全性保真  
+##### 1003#       发表于 2020-5-30 09:00
+
+
+
+
+今后去美国且回国文科留学生是不是就比较尴尬了，cia特工的嫌疑洗不掉了啊。
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1004#       发表于 2020-5-30 09:00
+
+
+
+<blockquote>风猫 发表于 2020-5-30 08:56
+我知道他实质上是冲着压死去的，但是难道不是在某种正常的执法流程下的过度执法，暴力执法吗？
+
+
+就看2014 ...</blockquote>
+2014年被勒死的那个黑人非常壮，而且警察勒他的时间并没有长到夸张的程度，说是执法失误还有人信。
+
+这次摆明就是奔着一直压到死去的。
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 1005#       发表于 2020-5-30 09:01
+
+
+
+
+这事之后，郁可唯一张黑人选票也别想得了。不会真要成为老布什后首位未连任总统吧？
+
+
+
+
+
+
+
+-----
+
+####  噗哩噗  
+##### 1006#       发表于 2020-5-30 09:02
+
+
+
+
+霉霉我记得之前还说会尽量避免影响粉丝投票的，结果<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  全性保真  
+##### 1007#       发表于 2020-5-30 09:03
+
+
+
+<blockquote>洗刷刷 发表于 2020-5-30 09:01
+这事之后，郁可唯一张黑人选票也别想得了。不会真要成为老布什后首位未连任总统吧？ ...</blockquote>
+不可能的，暴乱的是蓝州，郁可唯必然大比分连任。
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1008#       发表于 2020-5-30 09:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610902&amp;ptid=1937970" target="_blank">全性保真 发表于 2020-5-30 09:00</a>
+今后去美国且回国文科留学生是不是就比较尴尬了，cia特工的嫌疑洗不掉了啊。 ...</blockquote>
+自己行的正就没什么好怕的，实在不行还可以学泥潭某位仁兄喊口号表忠心
+
+
+
+
+
+
+
+-----
+
+####  lurenasa  
+##### 1009#       发表于 2020-5-30 09:04
+
+
+
+
+看到微共有人说这事发生在美国起码不会删视频，要是tg早删了，不得不说我真没想到这个洗地方式，不愧是香蕉人<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1010#       发表于 2020-5-30 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610942&amp;ptid=1937970" target="_blank">lurenasa 发表于 2020-5-30 09:04</a>
+看到微共有人说这事发生在美国起码不会删视频，要是tg早删了，不得不说我真没想到这个洗地方式，不愧是香蕉 ...</blockquote>
+这与其说是洗地不如说是围魏救赵，他们的逻辑是tg这种事经常发生但是都被和谐了
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1011#       发表于 2020-5-30 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610926&amp;ptid=1937970" target="_blank">全性保真 发表于 2020-5-30 09:03</a>
+不可能的，暴乱的是蓝州，郁可唯必然大比分连任。</blockquote>
+主要争取的是摇摆州 那些中间派选民 出现这事后 很难说了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1012#       发表于 2020-5-30 09:10
+
+
+
+<blockquote>ESAKA!!!! 发表于 2020-5-30 09:07
+这与其说是洗地不如说是围魏救赵，他们的逻辑是tg这种事经常发生但是都被和谐了 ...</blockquote>
+这招以前还管用。今年美国防疫太拉胯，说明美国体制并没有他们吹得那么神，再怎么围也救不了赵。
+
+
+
+
+
+
+
+-----
+
+####  kaze_f  
+##### 1013#       发表于 2020-5-30 09:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  月神的长弓  
+##### 1014#       发表于 2020-5-30 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609994&amp;ptid=1937970" target="_blank">silverashashash 发表于 2020-5-30 03:05</a>
+
+警察被指控三级谋杀哎，闹事果然有用</blockquote>
+然后陪审团认定罪名不成立，无罪开释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+都是传统艺能了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 1015#       发表于 2020-5-30 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610906&amp;ptid=1937970" target="_blank">luowei_nowe 发表于 2020-5-30 09:00</a>
+2014年被勒死的那个黑人非常壮，而且警察勒他的时间并没有长到夸张的程度，说是执法失误还有人信。
+
+这次 ...</blockquote>
+所以如果没有下一步，这就不是一次执法。就是谋杀。
+过失致死怎么也说不通。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  dovahkiin  
+##### 1016#       发表于 2020-5-30 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47579412&amp;ptid=1937970" target="_blank">luowei_nowe 发表于 2020-5-27 17:33</a>
+
+跟你们说中国的人权比美国好五倍你们还不信。</blockquote>
+美國的人權是對 WASP 而言的，而美國白人佔 70% 以上，可以對標想一想美國剩下那 30% 對應的是中國哪個羣體
+
+
+不過近幾年調查發現美國新生代 WASP 只佔 50%，燈塔國顏色翻轉指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  极霸真空斩  
+##### 1017#       发表于 2020-5-30 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610942&amp;ptid=1937970" target="_blank">lurenasa 发表于 2020-05-30 09:04:55</a>
+看到微共有人说这事发生在美国起码不会删视频，要是tg早删了，不得不说我真没想到这个洗地方式，不愧是香蕉 ...</blockquote>天翼3g好快啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1018#       发表于 2020-5-30 09:15
+
+
+
+<blockquote>月神的长弓 发表于 2020-5-30 09:11
+然后陪审团认定罪名不成立，无罪开释
+
+
+都是传统艺能了</blockquote>
+1946年，北京，美国士兵**中国女学生——2020年，明尼苏达，白皮警察谋杀黑人
+
+传统艺能，传统艺能。
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1019#       发表于 2020-5-30 09:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610115&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 04:04</a>
+你到底知不知道爱尔兰人意大利人一度不属于白人啊？就这还要别人看种族史？ ...</blockquote>
+喷了，自己去查白色人种定义，算不算是你认定的？
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泣儿  
+##### 1020#       发表于 2020-5-30 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607719&amp;ptid=1937970" target="_blank">钱君 发表于 2020-5-29 22:02</a>
+对太平洋对岸的行为不做评论，不过最近要小心火山有样学样吸引眼球。某些人现在绝对特别希望咱们能出点大新 ...</blockquote>
+指望他们玩黑暗兵法 公子献头么
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  dovahkiin  
+##### 1021#       发表于 2020-5-30 09:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610834&amp;ptid=1937970" target="_blank">luowei_nowe 发表于 2020-5-30 08:50</a>
+
+一，她不是。
+
+二，假如她是，说明连纳粹都受不了川建国了。</blockquote>
+纳粹肯定受不了川建國，畢竟女婿種不對<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1022#       发表于 2020-5-30 09:24
+
+
+
+ 本帖最后由 roy1996 于 2020-5-30 09:25 编辑 
+
+Fernando Alfonso III
+
+@fernalfonso
+
+Phone died, biked home as chants of "** CNN" from protesters grew from across the street from the CNN Center, its Atlanta headquarters. Here's the last video I took.
+
+**者在其亚特兰大CNN总部对面的街道上高喊着“去他妈的CNN”。这是我拍的最后一段视频。
+<img src="https://s1.ax1x.com/2020/05/30/tKTT8U.png" referrerpolicy="no-referrer">
+
+大水冲了龙王庙？
+
+
+
+
+
+
+
+
+-----
+
+####  洛拉斯  
+##### 1023#       发表于 2020-5-30 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47607719&amp;ptid=1937970" target="_blank">钱君 发表于 2020-5-29 22:02</a>
+对太平洋对岸的行为不做评论，不过最近要小心火山有样学样吸引眼球。某些人现在绝对特别希望咱们能出点大新 ...</blockquote>
+现在学样那不是公子献头吗
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 1024#       发表于 2020-5-30 09:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610673&amp;ptid=1937970" target="_blank">dclara1 发表于 2020-5-30 08:24</a>
+
+翻了下92年LA暴乱，也是因为暴力执法被录像
+
+
+黑人抱头跪在地上，十来个警察围成一圈轮流上去用警棍打他头， ...</blockquote>
+其实还有差别，LA那次黑叔是先反抗，后被锤。而且黑叔其实没死。
+
+
+但是这次从目前的视频来看，没有反抗的证据。而且在已经被压制，求饶说不能呼吸的情况下，用膝盖这样压死对方，明显是故意了。
+
+
+
+
+
+
+
+-----
+
+####  ysasz  
+##### 1025#       发表于 2020-5-30 09:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">有个问题，这骚乱如果扩大到全国的话，是不是美利坚就会全民戴口罩，然后战胜新冠？
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1026#       发表于 2020-5-30 09:40
+
+
+
+
+**者涌入华府 白宫紧急封锁
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1027#       发表于 2020-5-30 09:42
+
+
+
+<blockquote>ysasz 发表于 2020-5-30 09:39
+有个问题，这骚乱如果扩大到全国的话，是不是美利坚就会全民戴口罩，然后战胜新冠？ ...</blockquote>
+火山蟑螂：把脸涂黑了就不需要戴口罩了。
+
+美国黑人：我们不需要把脸涂黑，也不需要戴口罩。
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 1028#       发表于 2020-5-30 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608470&amp;ptid=1937970" target="_blank">雷诺4000 发表于 2020-5-29 23:13</a>
+
+口桀口桀口桀口桀口桀口桀，你憋了一个白天，就憋出来这么点软弱无力的彩虹屁？尼格尼格尼格尼？
+
+
+回到正 ...</blockquote>
+这么一大段除了对你和你孩子感觉可怜，还真没其他感想了233
+
+
+
+
+
+
+
+-----
+
+####  Hetarre  
+##### 1029#       发表于 2020-5-30 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610300&amp;ptid=1937970" target="_blank">nvrennvren 发表于 2020-5-30 06:29</a>
+在泥塘混了这么久，不是一致同意说美国警察随便杀人，一言不合就爆头吗？这都不叫事… 为什么这次有这种反 ...</blockquote>
+被拍了啊……被录了视频嘛  而且是非常非常非常有冲击力的视频
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1030#       发表于 2020-5-30 09:55
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 09:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=476**38&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 09:16</a>
+
+喷了，自己去查白色人种定义，算不算是你认定的？
+
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next- ...</blockquote>
+喷了，你不会以为白色人种的定义是一成不变或者不是建构的吧，不会吧不会吧
+
+
+随便给你找两个相关文章，补充一下基础知识先吧
+闹了半天我在跟一个这种知识都没有的人讨论美国种族史
+[https://www.washingtonpost.com/n ... ans-jews-and-so-on/](https://www.washingtonpost.com/news/volokh-conspiracy/wp/2017/03/22/sorry-but-the-irish-were-always-white-and-so-were-the-italians-jews-and-so-on/)
+[https://www.jstor.org/stable/43485860?seq=1](https://www.jstor.org/stable/43485860?seq=1)
+
+
+
+
+
+
+
+-----
+
+####  beckuse  
+##### 1031#       发表于 2020-5-30 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610673&amp;ptid=1937970" target="_blank">dclara1 发表于 2020-5-30 08:24</a>
+
+翻了下92年LA暴乱，也是因为暴力执法被录像
+
+
+黑人抱头跪在地上，十来个警察围成一圈轮流上去用警棍打他头， ...</blockquote>
+92年的罗德尼金事件，更多的是媒体炒作，有人拍了段视频但并不是完整的过程，然后卖给了媒体。而且那个**的罗德尼金最后也没什么大碍
+
+
+
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 1032#       发表于 2020-5-30 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610100&amp;ptid=1937970" target="_blank">inconolast 发表于 2020-5-30 03:54</a>
+
+|去研究了一下，三级谋|杀这个罪|名很轻了，在MN这个罪|名大约可以等于故意伤害致死，或者说“无意造 ...</blockquote>|
+这条子进监狱，里面的黑叔大概会很照顾他的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 1033#       发表于 2020-5-30 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610118&amp;ptid=1937970" target="_blank">groovyoung 发表于 2020-5-30 04:05</a>
+
+看了最近这么多新闻，感觉美国现在就tmd是一个shithole country无疑了。</blockquote>
+最发达的资本主义国家
+
+
+资本主义的丑恶暴露的也最清楚
+
+
+
+
+
+
+
+-----
+
+####  The_Ether_  
+##### 1034#       发表于 2020-5-30 10:03
+
+
+
+
+警察估计被吓死了，丢的是烟花<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/30/100241rapjuq92uqql1tqj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-41771cd0d01e63b4.jpg</strong> (83.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:02 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/100212h5he4aab5ey9yfhy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5b4eac0268bc048d.jpg</strong> (102.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  忘却的记忆  
+##### 1035#       发表于 2020-5-30 10:05
+
+
+
+
+笑死
+
+
+怎么感觉美国本土3000chengguan就可平定…战斗力和4v一个等级
+
+
+这群警察和部队在干嘛
+
+
+
+
+
+               
