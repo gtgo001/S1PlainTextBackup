@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 10:05** 
+> ## **本文件最后更新于2020-05-30 12:06** 
 
 
 
@@ -7185,10 +7185,11 @@ cnn，fox怎么造谣的我们就原文奉还啊 ...</blockquote>
 
 
 
- 参与人数 7战斗力 -8
+ 参与人数 8战斗力 -9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| aimkiray|-1|思路广|
 | camelia_vie|-2|好评加鹅|
 | 痴呆青年欢乐多|-1|二极管？|
 | cpuisme|-1|看这个新闻你还能得出这个结论？.|
@@ -9286,10 +9287,11 @@ national guard上街，然后抓几个人，这一波浪就过去了
 
 
 
- 参与人数 11战斗力 -2
+ 参与人数 12战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| surge89|-2|思路广|
 | camelia_vie|-2|好评加鹅|
 | 西瓜田里的飞鱼|-2|帽子扣的欢|
 | lanslort| + 3||
@@ -9989,10 +9991,11 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 
 
 
- 参与人数 24战斗力 +24
+ 参与人数 25战斗力 +25
 
 |昵称|战斗力|理由|
 |----|---|---|
+| surge89| + 1|好评加鹅|
 | 人间失格| + 1|认真港道理|
 | lordvv| + 1|好评加鹅|
 | flashenix1| + 1||
@@ -10012,7 +10015,6 @@ ncaa几百个球队，每年能进nba的也就二轮60人，大部分人也就�
 | 饭来张口| + 1|骂的好|
 | kumquat_cc| + 1||
 | adapter| + 1||
-| 斯拉克自有妙计| + 1|好评加鹅|
 
 
 
@@ -17540,10 +17542,11 @@ T.png
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| CANKIL| + 1|cannot hide in north america！|
 | 暗杀翻看是| + 1|china!|
 | wuliaozheX| + 1|KAG！[f:065]|
 
@@ -18506,10 +18509,14 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 
 
 
- 参与人数 28战斗力 +5
+ 参与人数 32战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| surge89| + 2|欢乐多|
+| 薛帕德| + 2|好评加鹅|
+| imbawst|-2|思路广|
+| 挂命贵| + 1|尼哥尼哥尼哥尼~ahe颜|
 | 花鸟三年| + 2|好评加鹅|
 | Nathan-_-|-2||
 | JimmyJoker|-2|思路广|
@@ -18526,10 +18533,6 @@ YKW：The National Guard has arrived on the scene. They are in Minneapolis and f
 | 永恒的王牌| + 1|好玩|
 | 鱼肉丸子|-2|平衡|
 | 厄斯沃穆|-1||
-| yuandi0120| + 2|尼格拍皮球|
-| 兮若| + 1|好评加鹅|
-| pyd68tc| + 1|思路广|
-| 不垃圾屌丝| + 1|欢乐多|
 
 
 
@@ -20931,4 +20934,2075 @@ Phone died, biked home as chants of "** CNN" from protesters grew from across th
 
 
 
-               
+
+
+-----
+
+####  000000  
+##### 1036#       发表于 2020-5-30 10:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610705&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-30 08:30</a>
+
+再蓝也没用，美国的年轻人不喜欢出来投票。
+
+例如佛州年轻人普遍支持禁枪。但是没几个有行动力出来投票。
+
+ ...</blockquote>
+是的，纯拼投票率
+
+
+GOP当年就是搞定了没上过大学的白人女性群体出来投票，最后被川粉冠以沉默大多数
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1037#       发表于 2020-5-30 10:06
+
+
+
+<blockquote>yanghuangu 发表于 2020-5-30 10:01
+这条子进监狱，里面的黑叔大概会很照顾他的</blockquote>
+想多了，美国白皮警察杀黑人能进监狱？
+
+
+
+
+
+
+
+-----
+
+####  orcher1945  
+##### 1038#       发表于 2020-5-30 10:08
+
+
+
+
+   那个杀人警察的详细个人信息和住址啥的就没有黑客给公布一下么？我就是看热闹不嫌事大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1039#       发表于 2020-5-30 10:08
+
+
+
+
+ykw这还怎么翻盘啊
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 1040#       发表于 2020-5-30 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610819&amp;ptid=1937970" target="_blank">bl0ck 发表于 2020-5-30 08:49</a>
+
+霉霉不是纳粹女神吗？。</blockquote>
+她真不是。。
+
+纳粹女神是Ann Coulter
+
+不过她也反了。。。推上狂喷懂王光说不练（修墙）
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1041#       发表于 2020-5-30 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611442&amp;ptid=1937970" target="_blank">orcher1945 发表于 2020-5-30 10:08</a>
+那个杀人警察的详细个人信息和住址啥的就没有黑客给公布一下么？我就是看热闹不嫌事大 ...</blockquote>
+地址早有了吧 有视频 大批警察围着保护嫌疑人的房子 民众聚集谩骂走狗
+
+
+
+
+
+
+
+-----
+
+####  反面教材  
+##### 1042#       发表于 2020-5-30 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611417&amp;ptid=1937970" target="_blank">忘却的记忆 发表于 2020-5-30 10:05</a>
+笑死
+
+
+怎么感觉美国本土3000chengguan就可平定…战斗力和4v一个等级</blockquote>
+在保护富人区<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 1043#       发表于 2020-5-30 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611375&amp;ptid=1937970" target="_blank">beckuse 发表于 2020-5-30 10:00</a>
+
+92年的罗德尼金事件，更多的是媒体炒作，有人拍了段视频但并不是完整的过程，然后卖给了媒体。而且那个** ...</blockquote>
+无论怎么剪，剪出来的那两分钟片段太难看没得洗，警方队伍完全可以把活干漂亮点，不触发众怒
+
+
+这活可是值几十亿美元和后续几十条人命，和几十年没法修复的社会割裂导致的无数交易成本增加
+
+
+
+
+
+
+
+-----
+
+####  orcher1945  
+##### 1044#       发表于 2020-5-30 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611459&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-30 10:09</a>
+
+地址早有了吧 有视频 大批警察围着保护嫌疑人的房子 民众聚集谩骂走狗</blockquote>
+好的吧，很想知道这个警察现在在想啥。
+
+
+
+
+
+
+
+-----
+
+####  heemoon  
+##### 1045#       发表于 2020-5-30 10:11
+
+
+
+
+为什么要冲cnn，不应该是fox吗
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1046#       发表于 2020-5-30 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611332&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 09:55</a>
+喷了，你不会以为白色人种的定义是一成不变或者不是建构的吧，不会吧不会吧
+
+
+随便给你找两个相关文章，补 ...</blockquote>
+But these critics focused on perceived swarthiness precisely to try to persuade Americans that contrary to accepted norms, these groups were not in fact “white” and should be treated like non-whites
+
+你自己转这东西你看了吗？我不知道你在杠什么点
+
+
+
+
+
+
+
+-----
+
+####  TANA  
+##### 1047#       发表于 2020-5-30 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611472&amp;ptid=1937970" target="_blank">orcher1945 发表于 2020-5-30 10:10</a>
+好的吧，很想知道这个警察现在在想啥。</blockquote>
+肯定在想怎么还不把这群人拿机枪给全突突了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神之领域  
+##### 1048#       发表于 2020-5-30 10:13
+
+
+
+
+这个过不了一个星期就停止了吧，美帝都是控舆高手，渔村的那种充分显示了渔村人的政治和舆论把控太拉胯了
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1049#       发表于 2020-5-30 10:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611493&amp;ptid=1937970" target="_blank">神之领域 发表于 2020-5-30 10:13</a>
+这个过不了一个星期就停止了吧，美帝都是控舆高手，渔村的那种充分显示了渔村人的政治和舆论把控太拉胯了 ...</blockquote>
+跳开我本人的立场 我至今觉得火山蟑螂“不割席”是盘臭棋 不晓得他们怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 1050#       发表于 2020-5-30 10:15
+
+
+
+<blockquote>heemoon 发表于 2020-5-30 10:11
+为什么要冲cnn，不应该是fox吗</blockquote>
+我猜是因为CNN直接报道了他们打砸烧的画面吧。
+
+估计fox只是骂他们而已。
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1051#       发表于 2020-5-30 10:22
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611482&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:12</a>
+
+But these critics focused on perceived swarthiness precisely to try to persuade Americans that con ...</blockquote>
+我服了，给你转这篇文章的目的是给你提供反面意见，告诉你这个人不同意学术界的观点，也就是“ but I do know that I constantly see people assert, as a matter of “fact,” that Irish, Italian, Jewish and other “ethnic” white American were not considered to be “white” until sometime in the mid-to-late 20th century, vouching for the fact that this understanding of American history has spread widely.”
+
+有正面反面讨论才是discourse，关于Irish为什么一度不是white的在第二个链接以及How the Irish Became White
+
+这种书里面，你自己不会觉得看到discourse的一面就觉得自己抓住真理了吧？
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1052#       发表于 2020-5-30 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611482&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:12</a>
+
+But these critics focused on perceived swarthiness precisely to try to persuade Americans that con ...</blockquote>
+我服了，给你转这篇文章的目的是给你提供反面意见，告诉你这个人不同意学术界的观点，也就是“ but I do know that I constantly see people assert, as a matter of “fact,” that Irish, Italian, Jewish and other “ethnic” white American were not considered to be “white” until sometime in the mid-to-late 20th century, vouching for the fact that this understanding of American history has spread widely.”
+
+有正面反面讨论才是discourse，关于Irish为什么一度不是white的在第二个链接以及How the Irish Became White
+
+这种书里面，你自己不会觉得看到discourse的一面就觉得自己抓住真理了吧？
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 1053#       发表于 2020-5-30 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611420&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-30 10:06</a>
+
+是的，纯拼投票率
+
+
+GOP当年就是搞定了没上过大学的白人女性群体出来投票，最后被川粉冠以沉默大多数 ...</blockquote>
+路标在佛州支持率也就35%，禁枪问题上被中学生胬的话都说不清楚。
+
+然并卵，年轻人根本不投票。反而佛州极右茶**投票率很高，所以共和**出来的一个比一个右。
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 1054#       发表于 2020-5-30 10:25
+
+
+
+
+翻了下推特，好像是因为cnn报道说被杀黑人本身有潜在健康问题
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1055#       发表于 2020-5-30 10:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611482&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:12</a>
+
+But these critics focused on perceived swarthiness precisely to try to persuade Americans that con ...</blockquote>
+我服了，给你转这篇文章的目的是给你提供反面意见，告诉你这个人不同意学术界的观点，也就是“ but I do know that I constantly see people assert, as a matter of “fact,” that Irish, Italian, Jewish and other “ethnic” white American were not considered to be “white” until sometime in the mid-to-late 20th century, vouching for the fact that this understanding of American history has spread widely.”
+
+有正面反面讨论才是discourse，关于Irish为什么一度不是white的在第二个链接以及How the Irish Became White
+
+这种书里面，你自己不会觉得看到discourse的一面就觉得自己抓住真理了吧？
+
+
+
+
+
+
+
+-----
+
+####  巴特爱素子  
+##### 1056#       发表于 2020-5-30 10:26
+
+
+
+<blockquote>dovahkiin 发表于 2020-5-30 09:22
+纳粹肯定受不了川建國，畢竟女婿種不對</blockquote>
+当年在小胡子手下的犹太人可不少，封个荣誉雅利安人就完了
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 1057#       发表于 2020-5-30 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611511&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-30 10:15</a>
+
+跳开我本人的立场 我至今觉得火山蟑螂“不割席”是盘臭棋 不晓得他们怎么想的 ...</blockquote>
+林太撤回的时候，见好就收，皆大欢喜。
+
+
+现在
+
+手足被抓了几千个
+
+特别关税地位没了
+
+还被TG赏了国安法。
+
+
+
+
+
+
+
+-----
+
+####  小姜不辣  
+##### 1058#       发表于 2020-5-30 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611417&amp;ptid=1937970" target="_blank">忘却的记忆 发表于 2020-5-30 10:05</a>
+
+笑死
+
+
+怎么感觉美国本土3000chengguan就可平定…战斗力和4v一个等级</blockquote>
+这点事儿对美国来说就是日常消遣解闷儿的<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 1059#       发表于 2020-5-30 10:29
+
+
+
+
+二鬼子们现在都在微薄搞转发黑命贵的官煤，另外还在搞离婚，对这个就视而不见了
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1060#       发表于 2020-5-30 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611576&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 10:22</a>
+我服了，给你转这篇文章的目的是给你提供反面意见，告诉你这个人不同意学术界的观点，也就是“ but I do k ...</blockquote>
+激动得刷了三楼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，那么你在杠什么？历史上爱尔兰人意大利人被盎撒歧视这点也可以用白人种族主义来解释？这种歧视和对黑皮黄皮的歧视是一样？
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1061#       发表于 2020-5-30 10:30
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 10:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611639&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:29</a>
+激动得刷了三楼，那么你在杠什么？历史上爱尔兰人意大利人被盎撒歧视这点也可以用白人种族主义来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">都把他们视为non-white了还不一样？不管他们皮肤里面色素多少，他们被认知成了non-white，那对他们的歧视就是对non-white的歧视，在这一点上跟对黑黄这些non-white的歧视是一样的
+
+
+
+
+
+
+
+-----
+
+####  聪少  
+##### 1062#       发表于 2020-5-30 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611639&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:29</a>
+激动得刷了三楼，那么你在杠什么？历史上爱尔兰人意大利人被盎撒歧视这点也可以用白人种族主义来 ...</blockquote>
+这号不是一直活跃在这楼的杠精嘛。你里他干嘛。
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1063#       发表于 2020-5-30 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611655&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 10:30</a>
+都把他们视为non-white了还不一样？不管他们皮肤里面色素多少，他们被认知成了non-white，那对他 ...</blockquote>
+当然不一样，白人身份虽然可以构建，但是黑皮黄皮什么时候有这种希望？
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 1064#       发表于 2020-5-30 10:35
+
+
+
+
+美国皮尤研究中心（Pew Research Center）根据人口普查数据对18岁以上的美国选民族群进行了调查，并在5月7日公布了以上调查结果。
+
+
+调查显示，美国亚裔选民人数2000年到2020年这二十年中增长了139%，拉丁裔选民同期的增长率是121%，非洲裔增长33%，白人选民增长率只有7%。亚裔选民2020年能够参加投票的人数已经超过了11 00万，占全国18岁以上选民总数将近5%。
+
+
+另一个显著区别是亚裔选民的受教育程度超过其他主要族裔。亚裔选民50%拥有学士以上学位，超过白人选民（34%）、非洲裔选民（20%）或拉丁裔选民（18%）。
+
+
+亚裔选民的平均收入也是各选民族群中最高的。调查发现，亚裔选民的家庭中间年收入是10万5000美元，而白人选民、拉丁裔选民和非洲裔选民的中间年收入都不到8万美元。亚裔选民中，印度裔家庭的中间年收入是13万9000美元（最高），缅甸裔的家庭中间年收入是6万9000美元（最低）。
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1065#       发表于 2020-5-30 10:37
+
+
+
+<blockquote>ziyo 发表于 2020-5-30 10:29
+激动得刷了三楼，那么你在杠什么？历史上爱尔兰人意大利人被盎撒歧视这点也可以用白人种族主义来 ...</blockquote>
+可以解释啊，美国种族歧视主要基础是南方庄园主+清**，这批人移居美国非常早，开拓土地时候奴役了大量黑人奴隶，歧视也就是从这开始的。哪怕南北战争后废奴，大量的南方州仍旧推出了非常严格的隔离政策，一直到上世纪60年代才逐渐废除。新**是个排他性非常非常强的群体，对待黑人有歧视，对待以天主教为信仰的意大利人和爱尔兰人也非常歧视，尤其后者是后**到美国的，像是爱尔兰人因为19世纪本国大饥荒逃难到美国，没有土地这样的生产资源（早就让新**们占完了），只能从事修铁路一类底层工作，被歧视和差别待遇也是很明显的。
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 1066#       发表于 2020-5-30 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611672&amp;ptid=1937970" target="_blank">聪少 发表于 2020-5-30 10:33</a>
+
+这号不是一直活跃在这楼的杠精嘛。你里他干嘛。</blockquote>
+不仅仅是杠精，还是非常优越的“海外留学生”
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 1067#       发表于 2020-5-30 10:38
+
+
+
+
+现在都没看到推上有用臭港画面配上丑国新闻字的钓鱼。。。能整活的估计都被封号了
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1068#       发表于 2020-5-30 10:39
+
+
+
+
+这星号打得我要ptsd了。。新教，清教/徒
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1069#       发表于 2020-5-30 10:39
+
+
+
+
+这星号打得我要ptsd了。。新教，清教/徒
+
+
+
+
+
+
+
+-----
+
+####  AlienFromEarth  
+##### 1070#       发表于 2020-5-30 10:41
+
+
+
+ 本帖最后由 AlienFromEarth 于 2020-5-30 10:47 编辑 
+<blockquote>robertjiong 发表于 2020-5-30 10:15
+跳开我本人的立场 我至今觉得火山蟑螂“不割席”是盘臭棋 不晓得他们怎么想的 ...</blockquote>
+
+割席的话谁都会怕自己被割，就不敢去极端的“冲”了，而他们老板要的就是极端的冲来搞大，甚至boom什么的
+
+而且必须有个能作数的在前台的发言人作为刀才能切割，他们没一个人有胆子去当这个人来负全部责任，也不舍得有个人去作为他们的头子代表来在他们一堆小团体的上面，脑残的他们和他们背后的老板也根本不需要不希望有个哪怕只是有权妥协交易谈判的头领，就指望继续闹本身
+
+
+
+
+
+
+
+-----
+
+####  holyblood  
+##### 1071#       发表于 2020-5-30 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611014&amp;ptid=1937970" target="_blank">dovahkiin 发表于 2020-5-30 09:13</a>
+
+美國的人權是對 WASP 而言的，而美國白人佔 70% 以上，可以對標想一想美國剩下那 30% 對應的是中國哪個羣 ...</blockquote>
+这个要算上文化wasp，比如香蕉人，不能只看血统。这么看是不是又70%以上了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1072#       发表于 2020-5-30 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611707&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-30 10:37</a>
+可以解释啊，美国种族歧视主要基础是南方庄园主+清**，这批人移居美国非常早，开拓土地时候奴役了大量黑 ...</blockquote>
+对爱尔兰人意大利人的歧视不可能等同于对黑皮的歧视，这点黑皮白心和亚裔香蕉人最清楚，这些人努力到最后，发现融不进的最大问题就是一身皮
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zqh1234| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1073#       发表于 2020-5-30 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611682&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:33</a>
+当然不一样，白人身份虽然可以构建，但是黑皮黄皮什么时候有这种希望？ ...</blockquote>
+有没有希望是他们说了算的，white只是一个称呼，一个代号。如果爱尔兰人和犹太人这种色素量甚至比昂撒还少的族群，就说明他们的所谓white是完全不需要依赖皮肤色素量的。
+
+就拿黄种人来说，1790年的naturalization act仅限"自由且道德合规的白色人种"归化，但是20世纪早期很多东亚人作为白色人种归化。还有一点就是，在种族隔离时代的密西西比等州，华裔是可以进入仅限白人的中学和大学就读的。与此同时黑人只能上黑人学校。甚至很多华裔进入了密西西比以鼓吹种族隔离闻名的的"白人公民议会"。
+还有很多类似的证据可以说明，对"white"的定义只是一个取决于建构者的符号，皮肤色素只不过是一个没有决定性的因素而已
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1074#       发表于 2020-5-30 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611672&amp;ptid=1937970" target="_blank">聪少 发表于 2020-5-30 10:33</a>
+这号不是一直活跃在这楼的杠精嘛。你里他干嘛。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我杠nm的杠，不会说人话可以闭嘴
+
+
+
+
+
+
+
+-----
+
+####  Char_Aznable  
+##### 1075#       发表于 2020-5-30 10:49
+
+
+
+<blockquote>holyblood 发表于 2020-5-30 10:45
+这个要算上文化wasp，比如香蕉人，不能只看血统。这么看是不是又70%以上了 ...</blockquote>
+荣誉日耳曼嘛，无新事
+
+
+
+
+
+
+
+-----
+
+####  雷诺4000  
+##### 1076#       发表于 2020-5-30 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611264&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-30 09:46</a>
+
+这么一大段除了对你和你孩子感觉可怜，还真没其他感想了233</blockquote>
+所以今天你已经连彩虹屁都憋不出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">只剩诅咒+无能狂怒了
+
+
+那么祝你周末愉快吧
+
+
+PS：随手扒了一下扣鹅的ID，怎么一个二个全是小号
+
+imbawst  
+
+|统计信息 好友数 0 |回帖数 24 | 主题数 0 战斗力0 鹅|
+
+
+leader01234
+
+|统计信息 好友数 0 |回帖数 20 | 主题数 0 战斗力0 鹅|
+
+
+swl007007
+
+|统计信息 好友数 0 |回帖数 106 | 主题数 1 战斗力3 鹅|
+
+
+qsqsqs
+
+|统计信息 好友数 0 |回帖数 28 | 主题数 1 战斗力0 鹅|
+
+
+Nathan-_-
+
+|统计信息 好友数 0 |回帖数 297 | 主题数 0 战斗力27 鹅|
+
+
+你们连扣鹅都不敢上大号的嘛，丢不丢人啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+真以为我在乎鹅么，low到姥姥家了简直。我呢，真不在乎鹅，但是我就喜欢看你们疯狂开小号扣鹅，却仍然只能眼睁睁看着我战斗力增加的扭曲表情<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+PS2:回复 [@骊歌三叠](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=469357) 
+
+
+同理心是有限的，优先供应亲友，其次同胞。至于尼格、雪肤豚、高华那是轮不到的。
+
+估计你不明白这个道理，或者你其实明白只是在装糊涂罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+PS3：最后 念经驱邪
+
+
+尼格拍皮球<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| leader01234| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  terminator1990  
+##### 1077#       发表于 2020-5-30 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610896&amp;ptid=1937970" target="_blank">YaoMei 发表于 2020-5-30 08:59</a>
+
+这真是活久见了。
+
+霉霉在政治性问题上尽可能不明确表态是娱乐圈罕见的了。
+
+ ...</blockquote>
+VOTE HIM OUT应该成为民主**这次大选的竞选口号，宣传视频就是像星河战队开头那段一样每一个人出来露一下脸然后喊“I‘ll do my part, VOTE HIM OUT!”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1078#       发表于 2020-5-30 10:50
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 10:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611713&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-30 10:37</a>
+不仅仅是杠精，还是非常优越的“海外留学生”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">哦我又优越了，继续扣帽子，多来点，毕竟不敢摆事实讲证据只有这个在行了
+
+
+
+
+
+
+
+-----
+
+####  holyblood  
+##### 1079#       发表于 2020-5-30 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611214&amp;ptid=1937970" target="_blank">ysasz 发表于 2020-5-30 09:39</a>
+
+有个问题，这骚乱如果扩大到全国的话，是不是美利坚就会全民戴口罩，然后战胜新冠？ ...</blockquote>
+ykw 字奉孝？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1080#       发表于 2020-5-30 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611818&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 10:48</a>
+有没有希望是他们说了算的，white只是一个称呼，一个代号。如果爱尔兰人和犹太人这种色素量甚至比昂撒还 ...</blockquote>
+我看明白了，还在自我麻醉呢，不需要依赖肤色这种鬼话你最好早点认清
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 1081#       发表于 2020-5-30 10:52
+
+
+
+ 本帖最后由 typeunknown 于 2020-5-30 10:57 编辑 
+
+当初为了正当化蓄奴而不抵触教义，黑人可都不被当成人的，说着说着极端红脖自己都信了，谁说黑人是人谁就是渎神
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 1082#       发表于 2020-5-30 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611850&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 10:50</a>
+
+哦我又优越了，继续扣帽子，多来点，毕竟不敢摆事实讲证据只有这个在行了 ...</blockquote>
+谁闲着没事回复我说海外大学比中国大学确实优秀？
+
+
+拿个破文凭真以为你比国内土博牛逼了？
+
+
+牛逼在天天跟别人杠？牛逼在天天在网络上找优越感？牛逼在叫嚣着跟别人线下对线？
+
+
+这就是优秀的，高等的，骄傲的海外留学精英人才吗？i了i了！
+
+
+
+
+
+
+
+-----
+
+####  皇帝雅西加  
+##### 1083#       发表于 2020-5-30 10:54
+
+
+
+<blockquote>ziyo 发表于 2020-5-30 03:12
+But these critics focused on perceived swarthiness precisely to try to persuade Americans that con ...</blockquote>
+这哥们在美国，人家只是在努力说服自己高华可以成为荣誉白人
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1084#       发表于 2020-5-30 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611869&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:51</a>
+我看明白了，还在自我麻醉呢，不需要依赖肤色这种鬼话你最好早点认清</blockquote>
+啥自我麻醉啊？你不会觉得我想做高华当名誉白人吧？我只是想指出一个事实，那就是美国的种族理论几乎没什么科学性可言，他们的认知很大程度上是基于自己主观臆想而非客观事实的，哪怕是皮肤色素这种显而易见的客观事实。总而言之一句话就是，他们的理论都是狗臭屁
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 无责任死猫| + 2|好评加鹅|
+| Hush|-1||
+| ysys| + 2|有些人不会好好讲道理的，别杠了…….|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  holyblood  
+##### 1085#       发表于 2020-5-30 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611682&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:33</a>
+
+当然不一样，白人身份虽然可以构建，但是黑皮黄皮什么时候有这种希望？ ...</blockquote>
+黄皮在以前南非不是可以当二等公民么？美国要是这么学我觉得在美高华就可以瞑目了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 1086#       发表于 2020-5-30 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611869&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 10:51</a>
+
+我看明白了，还在自我麻醉呢，不需要依赖肤色这种鬼话你最好早点认清</blockquote>
+一个学文科的上分王，真把自己当成了美国人渴求的理工人才了，可悲可叹！
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 1087#       发表于 2020-5-30 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611889&amp;ptid=1937970" target="_blank">皇帝雅西加 发表于 2020-5-30 10:54</a>
+
+这哥们在美国，人家只是在努力说服自己高华可以成为荣誉白人</blockquote>
+我觉得他不是在说服别人，而是在说服自己吧。
+
+
+应该是在自我**，具体他什么情况，他心里面比谁都清楚，至少他晚上做梦的时候，梦魇会告诉他一切。
+
+
+
+
+
+
+
+-----
+
+####  蕾丝控  
+##### 1088#       发表于 2020-5-30 10:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/105849toayooh9zc1qi1z9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200530103910.png</strong> (263.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:58 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1089#       发表于 2020-5-30 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611906&amp;ptid=1937970" target="_blank">holyblood 发表于 2020-5-30 10:56</a>
+黄皮在以前南非不是可以当二等公民么？美国要是这么学我觉得在美高华就可以瞑目了 ...</blockquote>
+所以我前面说这次事件那个黄皮警察特别有意思，太经典了
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1090#       发表于 2020-5-30 11:00
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 11:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611888&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-30 10:54</a>
+
+谁闲着没事回复我说海外大学比中国大学确实优秀？
+
+
+拿个破文凭真以为你比国内土博牛逼了？</blockquote>
+首先我说的是海外top大学不是一般海外大学谢谢。其次海外top学校不比国内top优秀？如果海外top大学不如清北这种最top的学校，那由此可知清北的人都是傻子才去不如清北的海外大学，反过来可以推论清北的学生水平不容乐观，这难道不是自我矛盾？我一直认为国内吐蕃被严重低估和歧视了，但是你如果觉得国内top吐蕃作为一个整体比海外top吐蕃强一档甚至更多，我建议你还是吃点药比较好。
+
+
+意思是不准人上网找乐子？不准人冲浪？不然就“很low”？你是不是还觉得美少女不拉屎啊？
+
+
+哦还有线下对线的事，我要对线的人说“恨不得我这种留学生全 家 死 绝，不然他自己动手”，这种狗币话说出来了我还不能愤怒还不能约他对线揍他一顿？你要站在这种杂碎一边？
+
+
+
+
+
+
+
+-----
+
+####  dokomo  
+##### 1091#       发表于 2020-5-30 11:01
+
+
+
+
+那个苗族警官的本名很可能是“陶朝”，姓陶。
+
+
+苗族接受汉式姓名很早，陶也是一个苗族大姓，这批人是清朝才从我国迁徙到老挝越南的
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1092#       发表于 2020-5-30 11:01
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 11:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611889&amp;ptid=1937970" target="_blank">皇帝雅西加 发表于 2020-5-30 10:54</a>
+
+这哥们在美国，人家只是在努力说服自己高华可以成为荣誉白人</blockquote>
+荣誉白人个屁，白人low的要死，高华也low的要死，成为他们的一员我还不如找个楼跳下去。说实话我恨不得杀了联邦zf亲妈，我要是能回国明天就回国，你自己看看我回帖记录看看我一贯的立场再来说我是不是高华谢谢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Hush|-1||
+| 钢琴男| + 2|别激动|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1093#       发表于 2020-5-30 11:02
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 11:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611922&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-30 10:57</a>
+
+我觉得他不是在说服别人，而是在说服自己吧。
+
+
+应该是在自我**，具体他什么情况，他心里面比谁都清楚，至 ...</blockquote>
+具体什么情况？具体情况就是我马上要回国，我选择在国内发展，我可以问心无愧的说爱慕拆尼斯，不像你这种窝窝囊囊的小人设想别人怎么怎么梦魇！
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 脏水一盆| + 1|拉平|
+| Hush|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1094#       发表于 2020-5-30 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611910&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-30 10:56</a>
+
+一个学文科的上分王，真把自己当成了美国人渴求的理工人才了，可悲可叹！ ...</blockquote>
+我什么时候说自己是美国人渴求的理工人才了？我就是因为对美国文科学界失望才跳了船，能不能不要给别人嘴里塞话？药店碧莲好不好？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 脏水一盆| + 1|拉平|
+| Hush|-1|跳脚好难看|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  屠夫  
+##### 1095#       发表于 2020-5-30 11:04
+
+
+
+
+三级谋杀是啥？为啥我只查得到一级谋杀和二级谋杀罪
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1096#       发表于 2020-5-30 11:07
+
+
+
+ 本帖最后由 ziyo 于 2020-5-30 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611898&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 10:55</a>
+
+啥自我麻醉啊？你不会觉得我想做高华当名誉白人吧？我只是想指出一个事实，那就是美国的种族理论几乎没什 ...</blockquote>
+最近不是有部电影《绿皮书》吗，认真看认真学，一个爱尔兰裔混子加一个黑皮白心“我们当年也受歧视，后来好了，迟早你也可以”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是白皮给黑皮打的上等麻药
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1097#       发表于 2020-5-30 11:08
+
+
+
+<blockquote>ziyo 发表于 2020-5-30 10:47
+对爱尔兰人意大利人的歧视不可能等同于对黑皮的歧视，这点黑皮白心和亚裔香蕉人最清楚，这些人努力到最后 ...</blockquote>
+程度轻重也是个因素，爱尔兰裔和意大利裔不会遭遇严格的种族隔离措施。而且也不用频繁地在美国发表要求平等政宣口号。
+
+不过最**搞歧视的，还是那批新教盎撒白皮。
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1098#       发表于 2020-5-30 11:09
+
+
+
+<blockquote>屠夫 发表于 2020-5-30 11:04
+三级谋杀是啥？为啥我只查得到一级谋杀和二级谋杀罪</blockquote>
+只有个别州有，最轻度的了，正好明州就有。
+
+已经比过失死亡强不了多少了。酒驾致死都是二级谋杀。
+
+
+
+
+
+
+
+-----
+
+####  last_regret  
+##### 1099#       发表于 2020-5-30 11:11
+
+
+
+ 本帖最后由 last_regret 于 2020-5-30 11:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611987&amp;ptid=1937970" target="_blank">屠夫 发表于 2020-5-30 11:04</a>
+三级谋杀是啥？为啥我只查得到一级谋杀和二级谋杀罪</blockquote>
+查了下大概相当于故意伤害致死？
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1100#       发表于 2020-5-30 11:11
+
+
+
+
+zy对付蟑螂坚决不亲自下场，hk警察克制得甚至有点怂，那是相当机智理智了。看那边打死个人闹成这样，我们就是坚决不会给你抓到把柄的机会，废青所宣称的警暴只会存在于它们的妄想之中。
+
+
+
+
+
+
+
+-----
+
+####  vimisbesteditor  
+##### 1101#       发表于 2020-5-30 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611818&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 10:48</a>
+
+有没有希望是他们说了算的，white只是一个称呼，一个代号。如果爱尔兰人和犹太人这种色素量甚至比昂撒还 ...</blockquote>
+又学了一点知识！多谢
+
+
+这就拿到hupu上面去钓鱼
+
+
+
+
+
+
+
+-----
+
+####  atomhappy  
+##### 1102#       发表于 2020-5-30 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611611&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-30 10:26</a>
+
+林太撤回的时候，见好就收，皆大欢喜。
+
+
+现在</blockquote>
+去中心化的运动就这样，能闹起来但是不会收场
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 1103#       发表于 2020-5-30 11:16
+
+
+
+
+某个连着倒垃圾的能不能停一下  大家根本不想看你表演啊………
+
+
+
+
+
+
+
+-----
+
+####  vanmercury  
+##### 1104#       发表于 2020-5-30 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612065&amp;ptid=1937970" target="_blank">last_regret 发表于 2020-5-30 11:11</a>
+
+查了下大概相当于故意伤害致死？
+
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+明州把二级拆成二级和三级，都包含过失致死成分了……
+
+
+
+
+
+
+
+-----
+
+####  漫区专号  
+##### 1105#       发表于 2020-5-30 11:26
+
+
+
+
+去美国实地走走看看就知道美国的所谓民族大熔炉已经失败了，现在是各个“民族”各过各的。美国精英阶层拥抱新自由主义搞全球化已经赚的钵满，而经济发展的大头却没有惠及其他中下阶层（融合失去了动力）。全球化的上一轮经济大周期开始时中产阶层还持续增长，可到了现在中产阶层持续萎缩说明上一波经济发展的红利已经耗尽。1%的人占有社会绝大多数财富，剩下的99%毫无希望。所以这次底层的白人警察拿黑人出气。种族矛盾激化实际说明了如今的美国经济出了大问题（经济实际上在衰退）。
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1106#       发表于 2020-5-30 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611475&amp;ptid=1937970" target="_blank">heemoon 发表于 2020-5-30 10:11</a>
+为什么要冲cnn，不应该是fox吗</blockquote>
+cnn在亚特兰大，佐治亚首府，南方州黑人比较多
+
+
+
+
+
+
+
+-----
+
+####  ishikawa_k  
+##### 1107#       发表于 2020-5-30 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612225&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-30 11:26</a>
+cnn在亚特兰大，佐治亚首府，南方州黑人比较多</blockquote>
+weibo有人说他们和警察局在同一幢楼
+但是为什么装修他们就说不清了<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  夜贼外卖  
+##### 1108#       发表于 2020-5-30 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611933&amp;ptid=1937970" target="_blank">蕾丝控 发表于 2020-5-30 10:59</a></blockquote>
+太…损了…
+
+
+
+
+
+
+
+-----
+
+####  passgan  
+##### 1109#       发表于 2020-5-30 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612225&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-30 11:26</a>
+
+cnn在亚特兰大，佐治亚首府，南方州黑人比较多</blockquote>
+啊这,无差别攻击,有点蠢
+
+
+
+
+
+
+
+-----
+
+####  purplelake  
+##### 1110#       发表于 2020-5-30 11:34
+
+
+
+<blockquote>筱原重工 发表于 2020-5-28 19:22
+当初法农就宣传在暴力革命中重塑非洲黑人的民族主体，马尔科姆则是把美国黑人主体放在了暴力革命之前，两 ...</blockquote>
+会输给阿米哥。 拉丁裔，墨西哥人生起来，黑人比不过。
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1111#       发表于 2020-5-30 11:35
+
+
+
+
+cnn这个总部我去参观过，我只能说黑人兄弟们装修的好！白皮傲慢劲都溢出画面了！活该！
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1112#       发表于 2020-5-30 11:35
+
+
+
+
+我看推上的视频 冲在前面的白人数量挺多的 民众倒是挺自觉的淡化种族矛盾的 主要还是怼警察和ykw吧
+
+
+
+
+
+
+
+-----
+
+####  last_regret  
+##### 1113#       发表于 2020-5-30 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612180&amp;ptid=1937970" target="_blank">vanmercury 发表于 2020-5-30 11:22</a>
+明州把二级拆成二级和三级，都包含过失致死成分了……</blockquote>
+我看的是一级有预谋的故意杀人，二级故意杀人但无预谋，三级差不多是故意伤害致死
+
+—— 来自 HUAWEI JSN-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  聪少  
+##### 1114#       发表于 2020-5-30 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611922&amp;ptid=1937970" target="_blank">kumquat_cc 发表于 2020-5-30 10:57</a>
+
+我觉得他不是在说服别人，而是在说服自己吧。
+
+
+应该是在自我**，具体他什么情况，他心里面比谁都清楚，至 ...</blockquote>
+别理杠精你，你看你们理他一下，他杠了多少楼。
+
+
+
+
+
+
+
+-----
+
+####  蕾丝控  
+##### 1115#       发表于 2020-5-30 11:42
+
+
+
+
+尸检报告出了，死于基础性疾病和**物，警察是在施救。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1116#       发表于 2020-5-30 11:42
+
+
+
+
+现在传两人认识是想把矛盾从种族歧视引向个人恩怨吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遗尿  
+##### 1117#       发表于 2020-5-30 11:44
+
+
+
+
+现在推特那个瓦坎达趋势是怎么回事？
+
+
+
+
+
+
+
+-----
+
+####  mamc06  
+##### 1118#       发表于 2020-5-30 11:44
+
+
+
+
+施救也太草了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rhubarb  
+##### 1119#       发表于 2020-5-30 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612354&amp;ptid=1937970" target="_blank">蕾丝控 发表于 2020-5-30 11:42</a>
+
+尸检报告出了，死于基础性疾病和**物，警察是在施救。
+
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是把人当傻子
+
+
+
+
+
+
+
+-----
+
+####  古留  
+##### 1120#       发表于 2020-5-30 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612386&amp;ptid=1937970" target="_blank">rhubarb 发表于 2020-5-30 11:45</a>
+
+这是把人当傻子</blockquote>
+YKW把人当傻子的情况还少了吗
+
+人家这招管用
+
+
+
+
+
+
+
+-----
+
+####  vanmercury  
+##### 1121#       发表于 2020-5-30 11:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612307&amp;ptid=1937970" target="_blank">last_regret 发表于 2020-5-30 11:36</a>
+我看的是一级有预谋的故意杀人，二级故意杀人但无预谋，三级差不多是故意伤害致死
+
+—— 来自 HUAWEI JSN ...</blockquote>
+<img src="https://p.sda1.dev/0/2bd4f3e1b65e8f3089eefc80150b5e92/IMG_D87A8D441EE0D9935396E150547EC4F7.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1122#       发表于 2020-5-30 11:51
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 11:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612011&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 11:07</a>
+
+最近不是有部电影《绿皮书》吗，认真看认真学，一个爱尔兰裔混子加一个黑皮白心“我们当年也受歧视，后来 ...</blockquote>
+是，绿皮书这个吊东西确实是用心险恶的毒鸡汤，但是我刚才说种族建构理论的目的是说，只要社会经济条件足够了，“white”可以指代且只指代黑黄等饱受歧视的种族，反过来把传统意义上的白人踩在脚下
+
+
+
+
+
+
+
+-----
+
+####  Ty_cc  
+##### 1123#       发表于 2020-5-30 11:52
+
+
+
+
+cn n  发的内部现场直播有点劲 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  heemoon  
+##### 1124#       发表于 2020-5-30 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612372&amp;ptid=1937970" target="_blank">遗尿 发表于 2020-5-30 11:44</a>
+现在推特那个瓦坎达趋势是怎么回事？</blockquote>
+有个老兄电视上直接说THIS IS WAKANDA了，还好最后没双手交叉，希望是玩梗。。。
+
+
+
+
+
+
+
+-----
+
+####  dawntavern  
+##### 1125#       发表于 2020-5-30 11:52
+
+
+
+
+一激动看成cia总部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1126#       发表于 2020-5-30 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612319&amp;ptid=1937970" target="_blank">聪少 发表于 2020-5-30 11:38</a>
+
+别理杠精你，你看你们理他一下，他杠了多少楼。</blockquote>
+意思是指着你脸骂了都不能还嘴不能辩解，辩解了就是杠精，你连大号都不敢上装什么阴阳人呢？
+
+
+
+
+
+
+
+-----
+
+####  钱君  
+##### 1127#       发表于 2020-5-30 11:55
+
+
+
+<blockquote>dokomo 发表于 2020-5-30 11:01
+那个苗族警官的本名很可能是“陶朝”，姓陶。
+
+
+苗族接受汉式姓名很早，陶也是一个苗族大姓，这批人是清朝才 ...</blockquote>
+苗族？
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1128#       发表于 2020-5-30 11:56
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612122&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-30 11:16</a>
+
+某个连着倒垃圾的能不能停一下  大家根本不想看你表演啊………</blockquote>
+污染楼里环境实在抱歉，但是面对连续扣来的帽子我不可能唾面自干，屏蔽我吧
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1129#       发表于 2020-5-30 12:01
+
+
+
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 12:06 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/120027b5irasf52222r625.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题3.png</strong> (683.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 12:00 上传
+
+
+
+
+
+
+芝加哥市长：FK 岩窟王
+
+
+哦顺便一提，半小时前洛杉矶南部警笛大作，天上直升机在飞，我还听见了枪声，天知道发生了什么，估计是示 威者遭重了
+
+
+
+
+
+
+
+
+-----
+
+####  ziyo  
+##### 1130#       发表于 2020-5-30 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612452&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 11:51</a>
+
+是，绿皮书这个吊东西确实是用心险恶，但是我刚才说种族建构理论的目的是说，只要社会经济条件足够了，“ ...</blockquote>
+白皮说这种歧视是经济问题，你们黑皮黄皮可以通过自身努力变“白”，你看白皮不努力一样是垃圾，你就信了？别这么图样，这种洋葱结构只是看起来一坨，需要的时候，黑鬼永远是黑鬼，猴子也永远是猴子
+
+
+
+
+
+
+
+-----
+
+####  東方仗助  
+##### 1131#       发表于 2020-5-30 12:02
+
+
+
+
+说到苗族我想起了80年代的猎鹿人事件，一个老挝出身的苗族猎人万柴和一伙红脖子猎人在森林里起了冲突，万柴用20发子弹干掉5个红脖子猎人重伤4个。
+
+（咦，子弹现在可以打出来了）
+
+
+
+
+
+
+
+-----
+
+####  科技树  
+##### 1132#       发表于 2020-5-30 12:02
+
+
+
+
+专业尸检人员表示尸检结果活久见。
+<img src="https://i.loli.net/2020/05/30/kUAJFeySZOfsNoV.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  leader01234  
+##### 1133#       发表于 2020-5-30 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611832&amp;ptid=1937970" target="_blank">雷诺4000 发表于 2020-5-30 10:49</a>
+
+所以今天你已经连彩虹屁都憋不出来了吗只剩诅咒+无能狂怒了
+
+
+那么祝你周末愉快吧</blockquote>
+我不是小号，刚来s1没多久，这个号的注册时间就是来的时间。不喜欢说话所以大部分时间在潜水
+
+扣鹅是因为我确实无法接受在一个黑人被残忍杀害的新闻下面大声叫喊侮辱性的称呼。
+
+原来用扣鹅表达自己态度是要被调查统计信息的，害怕害怕，抱歉，是我的错，想必您一定是对自己出色的表演十分满意，我不该因为自己基本的道德常识妨碍了您沾沾自喜的好心情，我的。看给我们敢于种族歧视的大英雄**的，一边说自己不在乎那点鹅一边翻我这个潜水**的个人信息，甚至要诬赖我是小号，真是太可怜了。
+
+我这就去把鹅加回来，希望您的表演早日落幕，我一定会好好鼓掌的
+
+
+
+
+
+
+
+-----
+
+####  rose7134  
+##### 1134#       发表于 2020-5-30 12:03
+
+
+
+<blockquote>ESAKA!!!! 发表于 2020-5-30 11:51
+是，绿皮书这个吊东西确实是用心险恶的毒鸡汤，但是我刚才说种族建构理论的目的是说，只要社会经济条件足 ...</blockquote>
+啊怪不得绿皮书得奖，斯派克李各种抱怨，现在想想看，真的耐人寻味。
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1135#       发表于 2020-5-30 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612568&amp;ptid=1937970" target="_blank">ziyo 发表于 2020-5-30 12:01</a>
+
+白皮说这种歧视是经济问题，你们黑皮黄皮可以通过自身努力变“白”，你看白皮不努力一样是垃圾，你就信了 ...</blockquote>
+不是自身在白皮的规则下努力，而是通过推翻白皮的规则把他们踩在脚下。需要的时候，白人也可以是黑鬼，这才是美国黑人应该搞清楚的问题，而不是在现有的规则下斗争
+
+
+
+
+
+            

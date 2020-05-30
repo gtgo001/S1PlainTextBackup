@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 06:06** 
+> ## **本文件最后更新于2020-05-30 12:06** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_A70QN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_UbAM0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2902,6 +2902,26 @@ VTuber ORICON 实体CD销量排行榜
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 北山玖公| + 1|好评加鹅|
+| free| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -2970,4 +2990,1642 @@ VTuber ORICON 实体CD销量排行榜
 
 
 
-                                            
+
+
+-----
+
+####  Izuru单推人  
+##### 1653#       发表于 2020-5-30 07:24
+
+
+
+
+现在想想，stars一期先行组的话，FF废人、摸鱼伪娘、打工学生，草这就离谱......不过miyabi最近也没那么沉迷FF14就是了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 1654#       发表于 2020-5-30 07:47
+
+
+
+今天律可发新翻唱
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/074648j6przh5jpvmra3iv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200530_073822_com.google.android.**.jpg</strong> (773.65 KB, 下载次数: 1)
+
+下载附件
+
+2020-5-30 07:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1655#       发表于 2020-5-30 08:13
+
+
+
+ 本帖最后由 tiro_finale 于 2020-5-30 08:20 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/082042ggj737bf0kq9k603.gif" referrerpolicy="no-referrer">
+
+
+<strong>sorasora2.gif</strong> (1.51 MB, 下载次数: 1)
+
+下载附件
+
+2020-5-30 08:20 上传
+
+
+
+
+
+
+
+我出不去了，这个表情太魔性了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+看来不是模型太菜，还是捕捉和表情操作问题
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1656#       发表于 2020-5-30 08:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼宝。。。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1657#       发表于 2020-5-30 08:27
+
+
+
+
+起床吸狐。感觉狐皇这白毛狐狸的人设真的好，就是凪白画的菜l2d做的菜，尤其那个诸葛狐新模型，赶紧来新的换上。空妈的模型眼神一直很魔性。
+https://twitter.com/cha_chya_/status/1265988637423886341?s=20
+https://twitter.com/sukemyon_443/status/1265960398294970368?s=20<img src="https://p.sda1.dev/0/55fc69f196d003a8624bc2b4e61c103c/IMG_57B0775B892FCECB632F5AE8E5141C58.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1658#       发表于 2020-5-30 08:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">空妈的魔眼是指眼中能看到隐隐约约的食堂大妈吗
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1659#       发表于 2020-5-30 08:35
+
+
+
+
+空妈比较魔性的表情说的应该是这种
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/083517bvvjvvsbywactc4y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (163.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 08:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1660#       发表于 2020-5-30 08:48
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/084806dz2qh24ufm88x7zt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZDyeyrU4AEfdGq.jpg</strong> (120.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 08:48 上传
+
+
+
+
+
+
+早安彼方~
+
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1661#       发表于 2020-5-30 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610165&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-5-30 04:31</a>
+
+如果你在美国或者大英读书的话不推荐这样做，查重依旧查得出，而且有可能会有抄袭嫌疑。 ...</blockquote>
+他说的是用英文写头痛，用中文写再用谷歌吧。你怎么就想到查重那边去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 1662#       发表于 2020-5-30 08:53
+
+
+
+
+草，有完没完了，v8又做了个狗妈肖战的天气之子，评论区又撕了五百多楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 1663#       发表于 2020-5-30 08:54
+
+
+
+
+毕竟是舍弃了一切把灵魂卖给白毛狐狸签订契约的男人
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1664#       发表于 2020-5-30 09:03
+
+
+
+<img src="https://p.sda1.dev/0/fa24295c7395db84d72eefeae3d5e02b/EZLk_5mUMAYqgVl_format=jpg&amp;name=small.jpg" referrerpolicy="no-referrer">就是这种，不是标准的瞪大眼睛而是半眯眼的时候就特别魔性
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 1665#       发表于 2020-5-30 09:05
+
+
+
+
+倒不如说凪白的服装设计品味不错
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 1666#       发表于 2020-5-30 09:11
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-5-30 09:13 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/090834zjte11i19ph44x1h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>001.jpg</strong> (49.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:08 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/090835q3i6qj6hhbhz22br.jpg" referrerpolicy="no-referrer">
+
+
+<strong>006.jpg</strong> (50.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:08 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091109mhqf57qh4zfyq8yh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>736b9f13632762d0b88173f3adec08fa503dc643.jpg</strong> (54.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091109xhoys511nawyhykx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>69688d51f3deb48f27acb16bfd1f3a292ff578d4.jpg</strong> (30.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091301ij2633juvz88iajf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>39fcffc451da81cbec82f4805f66d016082431ad.jpg</strong> (26.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:13 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091302tcz9hu8z29jzmhel.jpg" referrerpolicy="no-referrer">
+
+
+<strong>383d0cdda3cc7cd91ca3276c3401213fb90e910f.jpg</strong> (45.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091110vaorw5wwpeqe6n5o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6641752c11dfa9ec8a0404a66fd0f703908fc1ef.jpg</strong> (149.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091110oz3mk9939y2t2nz3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5094762762d0f703c10d429005fa513d2797c543.jpg</strong> (75.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/091110t852mb88ae2e5b53.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f64bd0d3572c11dfe9d9ac966e2762d0f603c289.jpg</strong> (45 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:11 上传
+
+
+
+
+
+
+
+半眯眼啊，前年B吧看小魔仙的时候就是通过截图眯眼把女主角色定位改了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1667#       发表于 2020-5-30 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610993&amp;ptid=1938145" target="_blank">与天争锋_LZ 发表于 2020-5-30 09:11</a>
+半眯眼啊，前年B吧看小魔仙的时候就是通过截图眯眼把女主角色定位改了
+
+ ...</blockquote>
+大多数半眯眼要截啊，狐皇就被截了好多。但是空妈的不用截<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1668#       发表于 2020-5-30 09:40
+
+
+
+
+直播势，视频势车的也够久了，想车车歌势，打太子打出vsinger这个旗号出来以后各种**小小的歌势也占了这圈一席之地。但是说实话，如果直播势说套皮主播还能有点区分的话，歌势说实话，和以前那些只是发歌的唱见比起来区别真的没大到哪去，歌曲视频里的皮甚至更远了一层和翻唱pv里的曲绘一个性质。而业界很多人参加的大活动之类的也是这些歌势出现的多，每次都说是宣传的机会，每次都是这些人需要宣传。许多歌势的运营效果估计还不如彩虹的主流进出的效果丰富。免费老哥喜欢的高歌力的歌手看到彩虹那些人获得的资源岂不是要眼红的要死。
+
+而且回到歌势们的皮上来，她们大多的3d皮现场发挥都不太好，都3d了倒是动起来阿，就算跳不起来舞也要活跃现场气氛阿。就结果而言，吹她们歌力往往都是因为她们其他的方面实在不出彩，没有足够的控场能力，运营效果死板，个性也不鲜明。听你声线唱功就会喜欢上的，你参加再多的活动也不会变多。不过也是，要懂这些做一个会唱歌的直播势那不更开心嘛。HH的地位能和这些歌势做出区分，大概率也是和田中那超高的可动性分不开的。
+
+最后在把靶子立一下，黑青蛙biss。审美奇异，运营奇妙，azki人美声甜，性格又那么可爱，摊上了那么个皮不谈，毕竟之后还能靠发挥救……个锤子，连发挥的机会都没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1669#       发表于 2020-5-30 09:50
+
+
+
+
+V歌势相比真人歌手有什么优势这个从V1就开始车了吧。
+
+
+一个是3D模型做出的独特舞台MV表现力，比如楼上说的特别能跳的田中姬，还有AIAIAI那种现实和虚拟交互的MV。再一个是用歌表现自己的世界观设定，比如姬雏，波罗鬼，裸春一家子，cocotsuki都挺好的。
+
+
+要说你圈最能跳的话肯定是阿银啊，以前给初音当过跳舞动作捕捉的......
+
+
+azki人设看立绘还行，动起来真不行，而且选曲也不行，唱不来什么硬要上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1670#       发表于 2020-5-30 09:57
+
+
+
+ 本帖最后由 colodes 于 2020-5-30 09:59 编辑 
+
+左 タイガー
+
+右 手毬
+
+<img src="https://img.saraba1st.com/forum/202005/30/095716e2um052ea8n1fz08.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-30 095658.png</strong> (330.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 09:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1671#       发表于 2020-5-30 10:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1672#       发表于 2020-5-30 10:10
+
+
+
+
+歌势优势的话，虚拟演唱会算一个，跨越了空间限制，这里头能做的文章很多，比如Luna骑虾伯，再比如Count0双子的那段演出
+
+说到底还是现在技术不成熟，VR设备之类的普及率也很低
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1673#       发表于 2020-5-30 10:12
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-5-30 10:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611297&amp;ptid=1938145" target="_blank">free 发表于 2020-5-30 09:50</a>
+
+V歌势相比真人歌手有什么优势这个从V1就开始车了吧。
+
+
+一个是3D模型做出的独特舞台MV表现力，比如楼上说的 ...</blockquote>
+所以我想车就是很多歌势参加活动阿，唱歌阿根本就不怎么动阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这一年来给她们开的大型活动也不少了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便阿银怎么找，我去看看
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1674#       发表于 2020-5-30 10:15
+
+
+
+
+【パンチライン】休日のお昼はまったりパンツを見よう【Vtuber】 (5月30日 14:00)
+
+
+from. 楠栞桜 / Kusunoki Sio
+[https://youtu.be/-hBTBonUVLo](https://youtu.be/-hBTBonUVLo)
+
+<img src="https://img.saraba1st.com/forum/202005/30/101357u8kf8bgtf75hkpw5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault.jpg</strong> (156.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:13 上传
+
+
+
+
+
+
+
+サムネ
+
+<img src="https://img.saraba1st.com/forum/202005/30/101533j4aefkkvcf4ecau2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EYxPYWCUMAQ4KU5.jpg</strong> (71.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:15 上传
+
+
+
+
+
+[https://twitter.com/StBoostboost/status/1264472879975952385](https://twitter.com/StBoostboost/status/1264472879975952385)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1675#       发表于 2020-5-30 10:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">因为歌势基本都赚不了钱，除非背后有金主一直支持，不然都喝西北风去了，肯定得去干别的赚钱，自然没时间动了，看看太子现在都动得很少了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1676#       发表于 2020-5-30 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47609535&amp;ptid=1938145" target="_blank"> MisForTunez 发表于 2020-5-30 01:11</a> https://twitter.com/Azkabanpeople?s=20 这瑟图画师后面还写着个囚人呢  时雨妈今晚8点整テトリス凸待ち 有那么一点好奇阿葵会不会来 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/038.png" referrerpolicy="no-referrer"> 葵皇不可能来的，估计那阵儿她正在打游戏不到五千同接
+
+这人均忘恩负义不是一天两天了
+
+要不然怎么会身边人都开始疏远她来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1677#       发表于 2020-5-30 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611532&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-30 10:17</a>
+
+因为歌势基本都赚不了钱，除非背后有金主一直支持，不然都喝西北风去了，肯定得去干别的赚钱，自然 ...</blockquote>
+倒也不是动不动的问题，实际上这帮人平时也没什么主要活动，金主有活动了需要人捧场哗啦哗啦的一大批人过去了，也不宣传自己，那活该记不住嘛。
+
+这些活动还大多都是3d的，
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 1678#       发表于 2020-5-30 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611485&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-30 10:12</a>
+
+所以我想车就是很多歌势参加活动阿，唱歌阿根本就不怎么动阿
+
+这一年来给她们开的大型活动也不少了 ...</blockquote>
+銀河アリス/银河爱丽丝
+[https://twitter.com/alice_shinryaku](https://twitter.com/alice_shinryaku)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1679#       发表于 2020-5-30 10:25
+
+
+
+
+感觉自家唱歌还是挺容易翻车的，环境啊设备啊包括状态很难达标，像日南这种弄asmr都要特地找房子，唱歌还是要老老实实去录音房。
+
+
+
+
+
+
+
+-----
+
+####  FlinN  
+##### 1680#       发表于 2020-5-30 10:26
+
+
+
+
+真有能动如HH、加贺美社长的那都是可以本体开Live的水平。
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 1681#       发表于 2020-5-30 10:29
+
+
+
+
+利香这音声hso
+可惜只是r15
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1682#       发表于 2020-5-30 10:30
+
+
+
+
+我tm看到azki组现在做的那个字幕组图标都觉得比黑青蛙选的风格更适合azki<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1683#       发表于 2020-5-30 10:32
+
+
+
+
+别录音房了，自从炮王被挖，我现在觉得录音房=炮房来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1684#       发表于 2020-5-30 10:33
+
+
+
+
+azki那种属于典型的立绘看着挺好，动起来一泡污的，这个人设你们看难道不行吗，至于动起来什么样嘛，你们看看用这个模型的那些MV就知道了
+
+<img src="https://img.saraba1st.com/forum/202005/30/103321hwaep8wzzhwph4wh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Full_AZKi.jpg</strong> (362.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1685#       发表于 2020-5-30 10:33
+
+
+
+
+只要想象力够， 什么房都可以是炮房
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1686#       发表于 2020-5-30 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611592&amp;ptid=1938145" target="_blank">winda 发表于 2020-5-30 10:24</a>
+
+銀河アリス/银河爱丽丝
+
+https://twitter.com/alice_shinryaku</blockquote>
+阿银这模型有点憨阿，这么激烈动作的模型四肢感觉完全脱离了主干。
+
+还有这大袖子跳这种舞是那个鬼才想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 1687#       发表于 2020-5-30 10:44
+
+
+
+ 本帖最后由 tafouuwadf 于 2020-5-30 10:49 编辑 
+
+hh能有现在这地位主要是因为她们不仅仅是歌势吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那几个模型好也挺能跳的偶像团体人气也挺惨。。。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1688#       发表于 2020-5-30 10:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">2000每天都生活在绿色的想象之中，太可怜。。个鬼，可能2000真的是个绿帽奴。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1689#       发表于 2020-5-30 10:52
+
+
+
+ 本帖最后由 colodes 于 2020-5-30 11:15 编辑 
+
+直播中喝醉抽烟暴言还行・・・
+
+
+灰原あかね、泥酔しながら4時間酔っ払いトーク
+
+↓
+
+774「まだやってたの…テンション変だしもう寝てぇ…」
+
+↓
+
+灰原「うるせぇ！よし、ASMRやるわ、ｶﾁｶﾁ ｼｭﾎﾞｯ　ﾌｰｰ…」
+
+↓
+
+突如配信終了、アーカイブ非公開化
+
+<img src="https://img.saraba1st.com/forum/202005/30/105453aqbh36xk6blihxxb.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-30 105431.png</strong> (150.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:54 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/105909o2rg7srkk7kpwkpk.png" referrerpolicy="no-referrer">
+
+
+<strong>8CZnjny.png</strong> (491.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 10:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1690#       发表于 2020-5-30 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611440&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-30 10:07</a>
+
+tiger好凶，想看ジル，狗狗说是跟tiger一样是布偶猫，但是一直不给看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tiger这么喜欢闹得布偶也是少见了。长得奇特点可以理解
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1691#       发表于 2020-5-30 11:03
+
+
+
+
+うおおおおおおおおお
+
+<img src="https://img.saraba1st.com/forum/202005/30/110330o663ha3pjc6p2tgz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>yuem0yx.jpg</strong> (81.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 11:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1692#       发表于 2020-5-30 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611871&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-30 10:52</a>
+
+直播中喝醉抽烟还行・・・
+
+
+灰原あかね、泥酔しながら4時間酔っ払いトーク</blockquote>
+あにまーれ公式🍩黒猫ななし (上午10:26 · 2020年5月30日)
+
+@AniMare_cafe
+
+本日の あかね 16:00- の配信はお休みとなります。
+
+楽しみにしてくださっていた皆さま、申し訳ございません。
+
+
+#あにまーれ
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1693#       发表于 2020-5-30 11:14
+
+
+
+
+本来延期的各种live纷纷开始恢复举办了，好起来了，你虹的全国巡回live什么时候补办呢
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/111451ji0hhe0qvvf0uxah.png" referrerpolicy="no-referrer">
+
+
+<strong>好起来了.png</strong> (328.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 11:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1694#       发表于 2020-5-30 11:15
+
+
+
+<blockquote>宴だぁ！ホロライブ１期生の２周年記念カウントダウン放送【ホロライブ/白上フブキ】
+
+
+ホロライブ所属の白上フブキです(^・ω・^§)ﾉ🌽
+
+６月１日でホロライブ１期生デビュー２周年を迎えます
+
+２年間も活動してるのかぁ…という気持ちと
+
+これからの気持ちを一緒にお祝いしたいです
+
+
+やりたいこと
+
+■クッキングシュミレーターで皆へ手料理
+
+■応援してくれるみんなへ。
+
+■地獄の初配信鑑賞
+
+■カンパーイ！！！
+
+■今後の夢を改めて
+
+■歌ったり。
+
+
+用意するもの
+
+■好きな飲物</blockquote>
+
+[https://youtu.be/m05vKpU8_4A](https://youtu.be/m05vKpU8_4A)
+
+
+倒数到儿童节，梅露以外的四人都是儿童节活动开始的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1695#       发表于 2020-5-30 11:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47608377&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-5-29 23:04</a>
+
+我管他前世是男是女是les哦，当V和玩FF14哪个是工作都没搞清楚，杏星卡池整体也就是这种水平，塞 ...</blockquote>
+不如说他觉得当V就是玩玩FF的事情
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1696#       发表于 2020-5-30 11:23
+
+
+
+
+515:名無しさん＠お腹いっぱい。(2/2)[61.205.189.237] (2/2)[sage] 2020/05/30(土) 00:20:34.25
+[https://siocounter.web.app/](https://siocounter.web.app/)
+
+塩カウンターアップデート
+
+デフォルトで外貨を円に換算した方が見やすいと思うけど
+
+皆さんどう思いますか🙋
+
+後はランキング実装したら当初やりたかった機能は一通り終わり
+[http://egg.5ch.net/test/read.cgi/streaming/1590761490/](http://egg.5ch.net/test/read.cgi/streaming/1590761490/)
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 1697#       发表于 2020-5-30 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611871&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-30 10:52</a>
+
+直播中喝醉抽烟暴言还行・・・
+
+
+灰原あかね、泥酔しながら4時間酔っ払いトーク</blockquote>
+你们anmr怎么老是招到一些抽烟喝酒的坏女孩<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1698#       发表于 2020-5-30 11:23
+
+
+
+
+都赶着复工复产了，然而他们日本的防疫真没法安心。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1699#       发表于 2020-5-30 11:25
+
+
+
+
+アイドル部１ヶ月分の推移です
+
+<img src="https://img.saraba1st.com/forum/202005/30/112515axpo3y0qjyc3eec9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>WngbZ7a.jpg</strong> (636.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 11:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1700#       发表于 2020-5-30 11:26
+
+
+
+
+断言一下
+
+今晚撞车ark最终boss战的其他人以后再也不会回ark坑了
+
+<img src="https://img.saraba1st.com/forum/202005/30/112620jk0m7vmwwzkk5chw.png" referrerpolicy="no-referrer">
+
+
+<strong>2Vmhg3g.png</strong> (6.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 11:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1701#       发表于 2020-5-30 11:30
+
+
+
+
+13000，不能再多了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 1702#       发表于 2020-5-30 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612143&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-30 11:18</a>
+
+不如说他觉得当V就是玩玩FF的事情</blockquote>
+不过35p你怎么还去找stars的塔的，没恶意只是感觉有丶惊讶
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1703#       发表于 2020-5-30 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612272&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-5-30 11:32</a>
+不过35p你怎么还去找stars的塔的，没恶意只是感觉有丶惊讶</blockquote>
+想找anti素材呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要挖出啥不好的就闹一波带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1704#       发表于 2020-5-30 11:35
+
+
+
+
+梅露组的那位组长又在迷惑操作了，建了个新v的组，然后发了谜语，还手抖让梅露的官号转了，
+
+不就是想让人怀疑利香打算重新出道嘛，之前个人号的动态里还说自己推利香骂梅露<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1705#       发表于 2020-5-30 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612272&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-5-30 11:32</a>
+
+不过35p你怎么还去找stars的塔的，没恶意只是感觉有丶惊讶</blockquote>
+哈？
+
+star当初在5ch的holoanti楼讨论的啊 
+
+当时又没有star单独的讨论楼
+
+自然所有stars相关的内容包括塔什么的我都看得到啊
+
+倒不如说是被迫看到
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1706#       发表于 2020-5-30 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612285&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-30 11:34</a>
+
+想找anti素材呗
+
+要挖出啥不好的就闹一波带走</blockquote>
+喂喂喂
+
+我对男人没兴趣
+
+要不是他们在anti楼讨论我也不会知道啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1707#       发表于 2020-5-30 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612299&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-30 11:35</a>
+梅露组的那位组长又在迷惑操作了，建了个新v的组，然后发了谜语，还手抖让梅露的官号转了，
+
+不就是想让人怀 ...</blockquote>
+这套操作不错，我可不可以发散下之前梅露被跨国骚扰的事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1708#       发表于 2020-5-30 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612299&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-30 11:35</a>
+
+梅露组的那位组长又在迷惑操作了，建了个新v的组，然后发了谜语，还手抖让梅露的官号转了，
+
+不就是想让人怀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前在NGA发言说利香找他帮过忙那个？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1709#       发表于 2020-5-30 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612391&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-30 11:45</a>
+
+之前在NGA发言说利香找他帮过忙那个？</blockquote>
+是阿，好像还和兔组前组长关系不错，那可真不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 1710#       发表于 2020-5-30 11:48
+
+
+
+
+梅露毕业可能性不是0
+但是毕业之后不专注本体还要当V还在中国提前给人说建组的可能性感觉比前面还低。。。
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1711#       发表于 2020-5-30 11:49
+
+
+
+
+怎么最近业界一堆堆破事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1712#       发表于 2020-5-30 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">本体日本限定，V中国限定。双重财富密码。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 1713#       发表于 2020-5-30 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610165&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-5-30 04:31</a>
+如果你在美国或者大英读书的话不推荐这样做，查重依旧查得出，而且有可能会有抄袭嫌疑。 ...</blockquote>
+是硬要把论文写成英文的拆腻子<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1714#       发表于 2020-5-30 11:55
+
+
+
+
+我觉得闹最后他自己本体出道就tm搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1715#       发表于 2020-5-30 11:56
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-5-30 11:55
+我觉得闹最后他自己本体出道就tm搞笑了</blockquote>
+可他本来就有个皮啊，一个又一个字幕组组长走上了套皮出道的道路
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 1716#       发表于 2020-5-30 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612285&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-30 11:34</a>
+
+想找anti素材呗
+
+要挖出啥不好的就闹一波带走</blockquote>
+真就“我向来不惮以最坏的恶意，来揣测V综人”呗......嘛，这也算V综生存之道之一
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 1717#       发表于 2020-5-30 11:58
+
+
+
+
+b站有利香官号么，利香也要套皮了啊，过来打点打点不是很正常
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1718#       发表于 2020-5-30 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610620&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-5-30 08:13</a>
+我出不去了，这个表情太魔性了
+
+看来不是模型太菜，还是捕捉和表情操作问题
+
+ ...</blockquote>
+空妈的模型还是用的VIVE操纵的嘛？还是说她的模型也是用vicon的光学动捕了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+有无情强告诉我一下<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1719#       发表于 2020-5-30 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612505&amp;ptid=1938145" target="_blank">包之沐白 发表于 2020-5-30 11:56</a>
+
+可他本来就有个皮啊，一个又一个字幕组组长走上了套皮出道的道路</blockquote>
+他现在的账号有个剪影，应该和他之前的不是一个皮哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1720#       发表于 2020-5-30 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612515&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-5-30 11:56</a>
+真就“我向来不惮以最坏的恶意，来揣测V综人”呗......嘛，这也算V综生存之道之一 ...</blockquote>
+我就口嗨一下，芙宝已经辟谣了，黑宝不要被种梁木啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1721#       发表于 2020-5-30 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通吃カバーライバー两家还不够，还要套皮当散装yhm
+
+真就V圈吕布呗
+
+
+
+
+
+                                          
