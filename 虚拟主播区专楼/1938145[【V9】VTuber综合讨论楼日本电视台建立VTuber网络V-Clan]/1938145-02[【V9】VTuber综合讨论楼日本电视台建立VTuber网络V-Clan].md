@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 12:06** 
+> ## **本文件最后更新于2020-05-30 14:07** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_UbAM0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_uII4T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -4628,4 +4628,1624 @@ b站有利香官号么，利香也要套皮了啊，过来打点打点不是很�
 
 
 
-                                          
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1722#       发表于 2020-5-30 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612399&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-30 11:47</a>
+
+是阿，好像还和兔组前组长关系不错，那可真不错</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他之前出现在NGA的言论咱还转到过前代楼里
+
+当时咱就说过，这人一看就不是个省油的灯
+
+
+疯狂明示我有内幕但是我有底线不会说，然而一副非常想说的样子
+
+而且还在公告那楼和HOLO楼发了2次。简直了
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 1723#       发表于 2020-5-30 12:08
+
+
+
+
+天道酬勤啊，一个人吃三份饭<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1724#       发表于 2020-5-30 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612634&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-30 12:07</a>
+
+他之前出现在NGA的言论咱还转到过前代楼里
+
+当时咱就说过，这人一看就不是个省油的灯</blockquote>
+内鬼可不会这么兴致勃勃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+阴谋计划快成功的主谋才是最兴奋的嗨，
+
+就是搁着钓谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1725#       发表于 2020-5-30 12:11
+
+
+
+
+骚扰你的人还在公司里待着呢，另开个号播就被打成吕布，你杏还真是高贵
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1726#       发表于 2020-5-30 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">梅露能找他帮忙也算是信任他了，
+
+
+有点脑子的都知道应该把这事藏在心里永远不说出去，结果最后还是被人拿去消费了。
+
+
+也是惨
+
+
+不过也是，这可是【有VTB来找我帮忙了】，能忍住不说怕是不容易吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1727#       发表于 2020-5-30 12:14
+
+
+
+
+梅露都知道找律师，怎么一转到了国内就变成信任字幕组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我都不知道是聪明还是傻了
+
+
+所以这波到底能不能扬了木口
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1728#       发表于 2020-5-30 12:14
+
+
+
+
+笑死我了，跑去nga看热闹，梅露组长已经开始懂得都懂阶段了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1729#       发表于 2020-5-30 12:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">谁骚扰谁啊，免费就是只信自己想要信的东西，怎么现在不说“liver说的话你们也信”这种话了呢…ptsd治好了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1730#       发表于 2020-5-30 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612701&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-30 12:14</a>
+
+梅露都知道找律师，怎么一转到了国内就变成信任字幕组了
+
+我都不知道是聪明还是傻了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，大概你不知道，这人说梅露联系他了，让他们帮忙，他们发现骚扰梅璐的其中一个小号还登录过B站这样
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1731#       发表于 2020-5-30 12:16
+
+
+
+
+按照管圈的“合同一年”论，最近正好利香两年合同到期了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1732#       发表于 2020-5-30 12:17
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-5-30 12:18 编辑 
+
+嗨，猜梅露妈阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1733#       发表于 2020-5-30 12:18
+
+
+
+
+yagoo的公文都承认了是staff骚扰的梅露，你认识字吗？鸣神裁声称的骚扰者还任职另外俩人的P，yagoo为何不正面否认？
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 1734#       发表于 2020-5-30 12:18
+
+
+
+
+看好本部无动于衷
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1735#       发表于 2020-5-30 12:18
+
+
+
+
+之前梅露组组长来nga对过线
+
+梅露组可是一个看梅露的都没有，大概也就看利香的asmr吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这样还要拿罢 工威胁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+梅露真找梅露组去搞利香的号，那是真的蠢，可能也不了解情况<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1736#       发表于 2020-5-30 12:20
+
+
+
+
+cover是个**公司
+
+但是利香也不是啥白莲花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1737#       发表于 2020-5-30 12:20
+
+
+
+
+我现在就想知道，梅露组长看不看点啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1738#       发表于 2020-5-30 12:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612534&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 11:58</a>
+
+空妈的模型还是用的VIVE操纵的嘛？还是说她的模型也是用vicon的光学动捕了？
+
+有无情强告诉我一下[ ...</blockquote>
+光学捕捉不是部署很久了吗，还能多人的，但不记得有说是vicon
+
+现在都是家用，就iphone凑合下
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1739#       发表于 2020-5-30 12:23
+
+
+
+
+万恶之源botlive
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1740#       发表于 2020-5-30 12:23
+
+
+
+
+囸，我又上了你们的当，这不是都猜的梅露妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有staff骚扰是没错，不过这个还担任两个其他人的p难道不是跟彩虹有30个小废物准备跑路一样。彩虹也没否认有30个人跑路啊，这会儿怎么不信裁了
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1741#       发表于 2020-5-30 12:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点就是Vjuan贝尔肯吗
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1742#       发表于 2020-5-30 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612792&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-30 12:23</a>
+囸，我又上了你们的当，这不是都猜的梅露妈
+
+有staff骚扰是没错，不过这个还担任两个其他人的p难道不 ...</blockquote>
+一个是liver个人意愿相关，一个是公司内部安排，公司发pr哪个能说哪个不能说还是挺明显的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，杏用的是vicon是通过yagoo在彩虹导入vicon时的一条推推测的，那时候说的是“希望有一天彩虹的vicon工作室能和holo的还有A8的联动一下”
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1743#       发表于 2020-5-30 12:27
+
+
+
+
+信liver和信cover我寻思是一回事啊，但拜托以后别跳出来说哪些该信，哪些不该信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1744#       发表于 2020-5-30 12:30
+
+
+
+<blockquote>这事早有预料，直到3月中旬我还帮她处理了一起邮件骚扰和威胁(威胁是重点)相关的事情，并且是她的原邮箱被盗了
+
+不过她都能找到我这来了，算是说明她已经急病乱投医了，这事各位仁者见仁智者见智，要我证明这件事的话我再看能不能发图
+
+
+4月中旬开始的内容我不能说，明确指明了不希望被泄露出去，除非holo把梅露炸掉了，不然我也不会说的
+
+接触是有的，她还邀请我加入一个地方帮忙协商，我几天后看到问的时候说已经不需要了，此时她认知里我的身份是“holo在中国的翻译组的组长”
+
+
+↑他自己原话
+
+[明确指明了不希望泄露出去]</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">转nga
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 1745#       发表于 2020-5-30 12:31
+
+
+
+
+staff骚扰了梅露——公文承认了
+
+该staff没有滚蛋还担任另外两人的P——公文没否认
+
+
+那我推断此staff现在还在cover里面没问题吧，至于是不是还在担任另外俩人的P，反正yagoo没否认，对不对？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1746#       发表于 2020-5-30 12:31
+
+
+
+
+v圈越来越有饭圈那味了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1747#       发表于 2020-5-30 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612865&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-30 12:30</a>
+
+转nga</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">咱最后那句【然而还发到NGA来了，就很迷惑】
+
+
+你怎么没转<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 1748#       发表于 2020-5-30 12:32
+
+
+
+ 本帖最后由 RE.AGE45.MKⅠ 于 2020-5-30 12:34 编辑 
+
+代入holo ark残dang和ark入坑的人想了一下，liver要怎么样操作才可以让他们高兴：
+
+上策是在最终决战的时候，玩过ark的liver纷纷突然出现，不管是打败了最终boss也好还是杂鱼猝死也好，都保证梁木能够最大程度的根除，HOLOARK也能展现出同接上最后的余晖
+
+中策是不要开台直播，把404的舞台让给那些还在坚持ark的人，既然你没有开台撞，人家也不好说你什么了
+
+下策就是不管他直接开台撞上去，这就是给他们心中梁木的优质肥料，可以让这些人念叨到V圈爆炸为止
+
+
+然鹅ark团建就是个大家都看腻了的老活了，哪有自己开台直播拿着只属于自己的数字重要啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1749#       发表于 2020-5-30 12:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612890&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-30 12:32</a>
+
+咱最后那句【然而还发到NGA来了，就很迷惑】
+
+
+你怎么没转</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，你发的，最后一行隔太远没复 制上
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1750#       发表于 2020-5-30 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612900&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-30 12:33</a>
+
+草，你发的，最后一行隔太远没复 制上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">咱不管口癖还是ID都毫无隐藏，S1坛友观察力不行！
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1751#       发表于 2020-5-30 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612872&amp;ptid=1938145" target="_blank">free 发表于 2020-05-30 12:31:09</a>
+staff骚扰了梅露——公文承认了
+
+该staff没有滚蛋还担任另外两人的P——公文没否认
+
+
+那我推断此staff现在还 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">yagoo否认了你也可以信他还潜伏在holo里啊。你爱信啥信啥。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1752#       发表于 2020-5-30 12:38
+
+
+
+
+谁管他什么ark残**啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抱着理想溺死吧
+
+为了不撞ark就不播那不想看ark的人怎么办，还直播不直播了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+不播ark固然是因为数字不好看，可是数字不好看那不就是说明不想看ark的人比想看的人多吗
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1753#       发表于 2020-5-30 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612782&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-5-30 12:22</a>
+光学捕捉不是部署很久了吗，还能多人的，但不记得有说是vicon
+
+现在都是家用，就iphone凑合下 ...</blockquote>
+那个富士电视台的采访里就有的，虽然给摄像头打了码但是这系统界面就是vicon嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1754#       发表于 2020-5-30 12:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这坨屎已经风干了吧还往这边运，有没有刚拉的？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 1755#       发表于 2020-5-30 12:40
+
+
+
+
+为啥芙宝那么纠结于holo的ark，人不可能一直盯着一个游戏玩的吧，那么多新游戏要出看管人玩新游戏不挺好的么，比如那个马上要出的宝可梦dlc，云不同的游戏才是好体验啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1756#       发表于 2020-5-30 12:41
+
+
+
+
+看预定晚上好像是没有撞ark的，不过还有好多人没定直播时间，不知道龙酱还有这个面子没有了。
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/124010tdzmmsq6em4s66k7.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200530123954.png</strong> (719.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 12:40 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1757#       发表于 2020-5-30 12:42
+
+
+
+
+V的字幕组老是有事情，一方面是因为大学生居多、业余的草台班子，遇事越搞越乱；另一方面就是gachi多，容易失去理智，加上人上人心态，就属于高危群体了
+
+漫画抢坑都能撕到头破血流，能接触到V本身的这位组长，可能是要用自己的方式守护梅露利香吧
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 1758#       发表于 2020-5-30 12:42
+
+
+
+
+可能只是不想看gtav
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1759#       发表于 2020-5-30 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612977&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-5-30 12:40</a>
+
+为啥芙宝那么纠结于holo的ark，人不可能一直盯着一个游戏玩的吧，那么多新游戏要出看管人玩新游戏不挺好的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他应该是担心樱火龙没有新的日常游戏。。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1760#       发表于 2020-5-30 12:42
+
+
+
+
+两家的公告推下面有一堆要求公布梅露那个staff去向的，但没几个要求公布30个打算跑路的人名单的，我觉得这不算双标，而是大家都懂这两个事本质上有区别
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1761#       发表于 2020-5-30 12:43
+
+
+
+
+前面在读书，没太跟上楼友的节奏
+现在是说梅露找梅露组的人建一个利香官号吗？
+然后梅露组长又忍不住和其他人打了谜语？
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1762#       发表于 2020-5-30 12:46
+
+
+
+ 本帖最后由 恶魔娘阿洛 于 2020-5-30 12:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613016&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 12:43</a>
+
+前面在读书，没太跟上楼友的节奏
+
+现在是说梅露找梅露组的人建一个利香官号吗？
+
+然后梅露组长又忍不住和其他 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">REPO一下就是有人今天发了段谜语，说有个新V要来了，然后梅露官号跳出来转发他的话，转发上面就写了4个字，转发动态。。。。。。
+
+
+加上他@的前组长之前在NGA有一些迷惑言论，还被挖出来4月在喷梅露推利香
+
+
+就爆炸了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1763#       发表于 2020-5-30 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613016&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 12:43</a>
+前面在读书，没太跟上楼友的节奏
+现在是说梅露找梅露组的人建一个利香官号吗？
+然后梅露组长又忍不住和其他 ...</blockquote>
+不是，就只有说谜语环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+官组转了个anti梅露的号要给不知道谁当官号（疑似梅露妈）
+顺便说句，彩虹要能辟谣30个人有鬼了，就算真的虹也不会知道哪30个，编名单么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1764#       发表于 2020-5-30 12:47
+
+
+
+ 本帖最后由 恶魔娘阿洛 于 2020-5-30 12:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613059&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-30 12:47</a>
+
+不是，就只有说谜语环节
+
+官组转了个anti梅露的号要给不知道谁当官号（疑似梅露妈）
+
+顺便说句，彩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要@出来的前梅露组组长来了个懂的都懂然后就跑了。。。。。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1765#       发表于 2020-5-30 12:49
+
+
+
+
+那怎么又有那个从业员下场了，官组里面建了多少个小团体？<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1766#       发表于 2020-5-30 12:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">建议进行清除点人遗毒运动
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1767#       发表于 2020-5-30 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612534&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 11:58</a>
+
+空妈的模型还是用的VIVE操纵的嘛？还是说她的模型也是用vicon的光学动捕了？
+
+有无情强告诉我一下[ ...</blockquote>
+这MV是MMD做的嘛
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1768#       发表于 2020-5-30 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47612977&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-5-30 12:40</a>
+
+为啥芙宝那么纠结于holo的ark，人不可能一直盯着一个游戏玩的吧，那么多新游戏要出看管人玩新游戏不挺好的 ...</blockquote>
+我什么时候一直纠结了
+
+我上个月就说holoark结束了 早点转型就是了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1769#       发表于 2020-5-30 13:06
+
+
+
+
+芙宝这傲娇发言。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1770#       发表于 2020-5-30 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613002&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-30 12:42</a>
+
+他应该是担心樱火龙没有新的日常游戏。。。。。。。。</blockquote>
+笑死了，miko自己以前几万个坑还没填完
+
+手上还有堆积成山的PS4/2的新游戏没拆封没直播玩的
+
+最不愁的就是她没游戏玩
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1771#       发表于 2020-5-30 13:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613205&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-30 13:02</a>
+这MV是MMD做的嘛</blockquote>
+怪不得表情这么丰富<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1772#       发表于 2020-5-30 13:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613000&amp;ptid=1938145" target="_blank">aele 发表于 2020-5-30 12:42</a>
+
+可能只是不想看gtav</blockquote>
+她现在重新捡起来GTA，同接平均9K以上，订阅日增翻一倍
+
+我不想看也不可能不愿意她继续玩GTA啊
+
+现在播ARK只有debuff效果
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1773#       发表于 2020-5-30 13:11
+
+
+
+ 本帖最后由 Zaphikel 于 2020-5-30 13:14 编辑 
+
+对了，梅露找梅露组帮什么忙啊，我没搞懂。。<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+按照前面楼友说本体日本特攻，V中国特攻的话就是说梅露以后专职B限咯？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1774#       发表于 2020-5-30 13:14
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-5-30 13:15 编辑 
+
+因为利香组组长和原梅露组组长是同一个人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+holo里v可以直接和v组直接联络的可能就这么一个特例了，其他组都是需要运营传话的
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1775#       发表于 2020-5-30 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613301&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-5-30 13:14</a>
+因为利香组组长和原梅露组组长是同一个人
+
+holo里v可以直接和v组直接联络的可能就这么一个特例了， ...</blockquote>
+利香什么时候有组了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1776#       发表于 2020-5-30 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613301&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-5-30 13:14</a>
+因为利香组组长和原梅露组组长是同一个人
+
+holo里v可以直接和v组直接联络的可能就这么一个特例了， ...</blockquote>
+那三樱接了团长看起来至少不算坏事了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1777#       发表于 2020-5-30 13:24
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-30 13:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613282&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 13:11</a>
+对了，梅露找梅露组帮什么忙啊，我没搞懂。。
+
+按照前面楼友说本体日本特攻，V中国特攻的话就是说梅 ...</blockquote>
+楼友只是在安排梅露毕业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+关于梅露找字幕组帮忙可以去nga看，虽然这只让我觉得梅露组发的不少内容更莫名其妙了，早就知道真相然后diss梅露然后现在又跳出来替梅露声张正义<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+顺便来个最新消息<img src="https://p.sda1.dev/0/38ac2a6636f0635c59027e26165ac99d/IMG_C3267DD0463336DC25EFD9B3016E6D41.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1778#       发表于 2020-5-30 13:28
+
+
+
+ 本帖最后由 SiolC 于 2020-5-30 13:31 编辑 
+
+梅露妈あやみ发过推说剪影是她，散了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202005/30/133054z0q2qu4tg8q8rmqw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>15EA0169-FB5D-4F52-90DA-C85ECC93F3E6.jpeg</strong> (25.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 13:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ascending  
+##### 1779#       发表于 2020-5-30 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613308&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 13:15</a>
+
+利香什么时候有组了
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+大概说的是这个“利香翻訳組”
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1780#       发表于 2020-5-30 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613282&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-05-30 13:11:18</a>
+v2.2.2.1</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我是黑屁梅露毕业再转生套皮当散装yhm，不过有人说梅露组原组长准备的那个号是给梅露的画师妈妈的。那个画师跟梅露也是老熟人了，利香时期到现在都一直有合作的，最近入驻B站一直在花式发se图
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1781#       发表于 2020-5-30 13:34
+
+
+
+
+木口又一次逃过一劫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有一说一我看那个动态跟后来nga的发言真的很谜语。就算有正当理由明知道观众不喜欢谜语还不好好说话，难道是人↑人心态作祟？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 1782#       发表于 2020-5-30 13:35
+
+
+
+
+虽然他发疯他乱讲话，但这是必要的恶啊。建议封个V圈杯面，人上人the dark knight任劳任怨却在承受了一切罪名后被大众落井下石，我哭了。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1783#       发表于 2020-5-30 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613490&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-5-30 13:35</a>
+
+虽然他发疯他乱讲话，但这是必要的恶啊。建议封个V圈杯面，人上人the dark knight任劳任怨却在承受了一切罪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都承受了一切罪名了，怎么还能怪大众落井下石
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1784#       发表于 2020-5-30 13:40
+
+
+
+
+其实说到底字幕组模式本身就是很有隐患的。我认为迟早所有字幕组都会因为这样那样的原因做不下去
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1785#       发表于 2020-5-30 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613534&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-30 13:40</a>
+
+其实说到底字幕组模式本身就是很有隐患的。我认为迟早所有字幕组都会因为这样那样的原因做不下去 ...</blockquote>
+倒不如说到现在还能正常发展那是真的牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1786#       发表于 2020-5-30 13:43
+
+
+
+
+一批人死了就等新的人顶上，v圈这种体量的圈子，要么v学中文要么观众学日语，不然本地化终归不可能摆脱字幕组的形式
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1787#       发表于 2020-5-30 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">韭菜每年都长，带学生年年都有，还有什么维持不下去的
+
+白干活的人醒悟了就退了，新的韭菜也长起来了，唉？我是在说字幕组还是在说研究生？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1788#       发表于 2020-5-30 13:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/134711jma7a55jx7jhizf0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZPF57mU0AA21gy.jpg</strong> (348.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 13:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1789#       发表于 2020-5-30 13:48
+
+
+
+
+白姨是ちゃん，トワ是様🤔
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1790#       发表于 2020-5-30 13:49
+
+
+
+
+开始给towa喂饭了吗2333
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 1791#       发表于 2020-5-30 13:51
+
+
+
+狐皇为啥不用ん
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1792#       发表于 2020-5-30 13:51
+
+
+
+
+真就开始打麻将了
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1793#       发表于 2020-5-30 13:51
+
+
+
+
+真就开始打麻将了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1794#       发表于 2020-5-30 13:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 良禽择木而栖 蛋蛋抛弃彩虹真是明智的决定！
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 1795#       发表于 2020-5-30 13:53
+
+
+
+
+我觉得梅露这事不会一直拖着吧 究竟怎么解决啊 梅露又不播 本体号搞的飞起 不如毕业得了 反正杏的staff 估计是搞不定了 既然yagoo自己都承认staff骚扰了 梅露不如离职算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1796#       发表于 2020-5-30 13:53
+
+
+
+
+虹差不多混得脸熟了，在杏也得涨涨名气了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1797#       发表于 2020-5-30 13:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来新的v是梅露妈，早点说清楚不就好了，主要是以前的名声已经不好现在整下活就被容易被攻击，整不出好活还不如不整。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1798#       发表于 2020-5-30 13:54
+
+
+
+
+打麻将不好嘛，要求低气氛自然还能一次凑足四个人交流，业界这么好的联动效果的游戏也没几个吧。
+
+而且还有运气作为看点存在，除了懂麻将的血压会爆炸以外有什么难的？这次甚至还有sio保住麻将民的血压<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1799#       发表于 2020-5-30 13:54
+
+
+
+
+社内最近这么多apex结果找社外喂麻将饭，我怀疑之后还有别的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1800#       发表于 2020-5-30 13:55
+
+
+
+
+因为她不认识towa吧，其他两人都有过交流，这个喂饭操作也更明显了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1801#       发表于 2020-5-30 13:56
+
+
+
+
+打麻将在谁的直播间都一样，而只有sio的牌不会让懂麻将的人血压升高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+木口配人做嫁衣
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 1802#       发表于 2020-5-30 13:58
+
+
+
+
+裁爆料总得有线人 梅露这事基本一看就知道谁是内鬼了 梅露得到这结果 还有啥好在杏呆着呢 yagoo虽然公文了 但也没明确带走staff啊 梅露得到这公文也没播啊  这是打算拖到什么时候去
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1803#       发表于 2020-5-30 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613701&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-5-30 13:58</a>
+裁爆料总得有线人 梅露这事基本一看就知道谁是内鬼了 梅露得到这结果 还有啥好在杏呆着呢 yagoo虽然公文了  ...</blockquote>
+梅露这事谁是内鬼说来听听，我是真看不出…
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1804#       发表于 2020-5-30 14:02
+
+
+
+
+比麻将更好的联动游戏当然是uno啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也是四个人要求也低也存在运气要素，最关键的是就算哪里亮了点哪里也能看起来像是那么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不像麻将不会的人打的是真的头大
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 1805#       发表于 2020-5-30 14:06
+
+
+
+
+你们老是说喂饭这兰太郎是怎么混进来的
+
+
+
+
+
+                                       
