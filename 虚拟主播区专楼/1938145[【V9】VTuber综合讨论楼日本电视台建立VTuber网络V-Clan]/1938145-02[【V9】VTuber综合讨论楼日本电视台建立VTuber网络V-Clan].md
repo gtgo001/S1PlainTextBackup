@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 14:07** 
+> ## **本文件最后更新于2020-05-30 16:08** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_uII4T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_RNgej" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2910,10 +2910,11 @@ VTuber ORICON 实体CD销量排行榜
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|珍贵史料···|
 | 北山玖公| + 1|好评加鹅|
 | free| + 1|好评加鹅|
 
@@ -3051,7 +3052,7 @@ VTuber ORICON 实体CD销量排行榜
 <img src="https://img.saraba1st.com/forum/202005/30/082042ggj737bf0kq9k603.gif" referrerpolicy="no-referrer">
 
 
-<strong>sorasora2.gif</strong> (1.51 MB, 下载次数: 1)
+<strong>sorasora2.gif</strong> (1.51 MB, 下载次数: 3)
 
 下载附件
 
@@ -6248,4 +6249,1187 @@ v2.2.2.1</blockquote><img src="https://static.saraba1st.com/image/smiley/face201
 
 
 
-                                       
+
+
+-----
+
+####  渡鸦骑士  
+##### 1806#       发表于 2020-5-30 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613747&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-30 14:02</a>
+
+比麻将更好的联动游戏当然是uno啦
+
+也是四个人要求也低也存在运气要素，最关键的是就算哪里亮了点哪 ...</blockquote>
+但是uno高级房和低级房效果差距简直是天壤之别，狐狸和holo里面的玩只能玩低级房，然后大家杂谈聊天。
+
+但是和星和马自立玩就能欺负马自立创造节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1807#       发表于 2020-5-30 14:14
+
+
+
+
+兔皇那次是对手戏，所以只单挂一个观众位
+
+这次喂饭活动，只搞三个人的话，平衡感比较差，towa可能会很拘谨，我猜是少主和栞桜商量再找个谁，就想到和两人关系都很好的工具人兰太郎了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1808#       发表于 2020-5-30 14:15
+
+
+
+
+怎么还没开，好不容易周围没人能偷偷看片 😢
+
+<img src="https://img.saraba1st.com/forum/202005/30/141300ue23u213uc385nj2.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(23).png</strong> (202.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 14:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 1809#       发表于 2020-5-30 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613867&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-30 14:15</a>
+
+怎么还没开，好不容易周围没人能偷偷看片 😢</blockquote>
+回線不調のため、とりあえずツイキャスへ避難((((((((っ･ω･)っ
+[https://twitcasting.tv/sio_kusunoki](https://twitcasting.tv/sio_kusunoki)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 1810#       发表于 2020-5-30 14:21
+
+
+
+
+阿希这英语水平一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 1811#       发表于 2020-5-30 14:29
+
+
+
+
+梅露妈要出道了？好起来了，夸父什么时候出道么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1812#       发表于 2020-5-30 14:37
+
+
+
+
+ブイアパ公式
+
+@Vtuber_ApArt
+
+ブイアパ新住人の初配信日時をお知らせいたします！
+
+
+5/30（土）
+
+19:00- 不磨わっと [https://bit.ly/2ytiKTY](https://bit.ly/2ytiKTY)
+
+19:30- 小森めと [https://bit.ly/2ypyF5J](https://bit.ly/2ypyF5J)
+
+20:00- 不磨わっと/小森めと
+
+＊各チャンネルにて配信
+
+
+皆さま応援のほど
+
+何卒よろしくお願いいたします！
+
+#ブイアパ
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/143706jlau9hvv6ugg9v9g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EYwUbpuUYAAb4No.jpg</strong> (148.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 14:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 1813#       发表于 2020-5-30 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613726&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-30 14:00</a>
+
+梅露这事谁是内鬼说来听听，我是真看不出…</blockquote>
+谁获利，或者说谁有动机恶心yagoo，谁就是内鬼呗。。。换句话说，难不成虹那边的告密还能是staff给liver抱不平么。。。这不只有梅露自己和传说中还在担任经纪的另外两人么
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 1814#       发表于 2020-5-30 14:43
+
+
+
+
+凭啥要梅露自己辞职啊，你yagoo有本事开了梅露啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 1815#       发表于 2020-5-30 14:44
+
+
+
+
+还要再来画师出道吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+之前说过的那个什么时雨妈为首的画师联盟真的可以搞起来了?
+
+
+B站这rurudo字幕组都1.5粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1UQ4y1A7ZE](https://www.bilibili.com/video/BV1UQ4y1A7ZE) 这最近的麻将回烤肉真的能把人萌死··
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 1816#       发表于 2020-5-30 14:46
+
+
+
+
+那只能解释成，这人掌握足够让他留在COVER的商业机密了，开了他让别的公司挖角可以对COVER一击致命那种
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1817#       发表于 2020-5-30 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613270&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-30 13:10</a>
+
+她现在重新捡起来GTA，同接平均9K以上，订阅日增翻一倍
+
+我不想看也不可能不愿意她继续玩GTA啊
+
+现在播ARK ...</blockquote>
+鲨鱼游戏效果不错，可以先播完吧
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 1818#       发表于 2020-5-30 14:52
+
+
+
+
+トワ様也是爱称好不好<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 1819#       发表于 2020-5-30 14:54
+
+
+
+
+经纪人能有啥商业秘密，其实就是和yagoo有点关系加上证据虽然有了，但是罪状不够重报JC也是和稀泥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1820#       发表于 2020-5-30 14:56
+
+
+
+
+画师都有时雨妈那同接也不用做画师了，出道完全没问题
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1821#       发表于 2020-5-30 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614194&amp;ptid=1938145" target="_blank">Viden 发表于 2020-5-30 14:52</a>
+
+トワ様也是爱称好不好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">加トワ様的会员挺吓人的，感觉就是你参加一个大会，然后觉得不错
+
+
+在手机上点了个关注，突然你前后左右所有人都转头对着你
+
+
+然后拍着手说【welcome】
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1822#       发表于 2020-5-30 14:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614129&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-5-30 14:46</a>
+
+那只能解释成，这人掌握足够让他留在COVER的商业机密了，开了他让别的公司挖角可以对COVER一击致命那种 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">事实上这事就是那事你干的或者咱干的。。。放到日本警察那最后也是和稀泥结尾
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1823#       发表于 2020-5-30 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614223&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-30 14:56</a>
+画师都有时雨妈那同接也不用做画师了，出道完全没问题</blockquote>
+光看同接没用也要看sc啊，要是sc不够过日子还是要老老实实画画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl，梅露这事没啥开除的可能，警察没能处理的事，日本公司基本不可能开除的。至于还管着两个V我不是很信，毕竟holo其他人似乎工作没有受到影响。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1824#       发表于 2020-5-30 15:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">利香不是已经请律师了吗，yagoo等着收律师函吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1825#       发表于 2020-5-30 15:11
+
+
+
+
+梅露找中国官身都没有八百杆子打不到的编外志愿者伸冤......？
+
+这要是真的我要重新评估利香的智力了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 1826#       发表于 2020-5-30 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614362&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-5-30 15:11</a>
+
+利香不是已经请律师了吗，yagoo等着收律师函吧
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">   记得yagoo好像报销了律师费  要告估计也是他本身支持的告
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1827#       发表于 2020-5-30 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614362&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-5-30 15:11</a>
+利香不是已经请律师了吗，yagoo等着收律师函吧
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+但现在这律师拿的钱是cover出的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1828#       发表于 2020-5-30 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614366&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-5-30 15:11</a>
+
+梅露找中国官身都没有八百杆子打不到的编外志愿者伸冤......？
+
+
+这要是真的我要重新评估利香的智力了 ...</blockquote>
+好像是说犯人有国内的登录记录还是啥的，请这边字幕组帮忙查一下。
+
+虽然这样也挺迷惑的就是了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1829#       发表于 2020-5-30 15:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yagoo不是报销了律师费吗，要是梅露要告杏yagoo还出钱？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1830#       发表于 2020-5-30 15:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614366&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-5-30 15:11</a>
+
+梅露找中国官身都没有八百杆子打不到的编外志愿者伸冤......？
+
+
+这要是真的我要重新评估利香的智力了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">他说的言之凿凿咱姑且先信了，不过梅露这个思路是真的奇怪
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1831#       发表于 2020-5-30 15:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614390&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-30 15:14</a>
+好像是说犯人有国内的登录记录还是啥的，请这边字幕组帮忙查一下。
+
+虽然这样也挺迷惑的就是了。 ...</blockquote>
+是查到了购买记录，买的东西还是利香的不是梅露的<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 1832#       发表于 2020-5-30 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614390&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-30 15:14</a>
+好像是说犯人有国内的登录记录还是啥的，请这边字幕组帮忙查一下。
+
+虽然这样也挺迷惑的就是了。 ...</blockquote>
+.......？不是那个sekuhara的不是什么力八一早期员工，一手奠定了利香来杏嘛
+
+这还查什么？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1833#       发表于 2020-5-30 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614406&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-30 15:15</a>
+
+是查到了购买记录，买的东西还是利香的不是梅露的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱对这人有反感主要他自己都说了梅露明确表示不想泄露，他还跑NGA打谜语
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1834#       发表于 2020-5-30 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614416&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-5-30 15:16</a>
+
+.......？不是那个sekuhara的不是什么力八一早期员工，一手奠定了利香来杏嘛
+
+
+这还查什么？ ...</blockquote>
+你说的这部分证据为0啊。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1835#       发表于 2020-5-30 15:19
+
+
+
+ 本帖最后由 colodes 于 2020-5-30 15:20 编辑 
+
+别猜了，别猜了，你们猜这种信息不完全事件构建一套神必理论，不如猜猜这个数学问题吧
+
+<img src="https://img.saraba1st.com/forum/202005/30/151825k3x16mbxtgn3nn64.png" referrerpolicy="no-referrer">
+
+
+<strong>b0303dd4cc74a5bca7d754c9ef6da2feebde3ce6.png</strong> (8.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 15:18 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/151825weee27da2277mp2m.png" referrerpolicy="no-referrer">
+
+
+<strong>2ddab6ba33319402bb3d1a90b2d9f2bc7316cd35.png</strong> (2.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 15:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1836#       发表于 2020-5-30 15:21
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-5-30 15:22 编辑 
+
+。
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/152226baxcataxtla4xmax.gif" referrerpolicy="no-referrer">
+
+
+<strong>5qlbas4lrzbjf2biexbgb2gra.gif</strong> (281.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 15:22 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1837#       发表于 2020-5-30 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614448&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-30 15:19</a>
+
+别猜了，别猜了，你们猜这种信息不完全事件构建一套神必理论，不如猜猜这个数学问题吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">这是什么东西，哪里来的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1838#       发表于 2020-5-30 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614448&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-30 15:19</a>
+
+别猜了，别猜了，你们猜这种信息不完全事件构建一套神必理论，不如猜猜这个数学问题吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实不用猜了，那个剪影是梅露妈前几天放的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1839#       发表于 2020-5-30 15:26
+
+
+
+
+没想到彩虹这次入驻的最受欢迎的是阿胜，这就是正太加伪娘的魅力吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1840#       发表于 2020-5-30 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614479&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-30 15:22</a>
+
+这是什么东西，哪里来的</blockquote>
+那个某不知名搬运组发的啊
+
+首先这个加密后文本特征是单词由A-Z0-9.,-_?构成，不是常见的base64编码，看上去像code39但细节又不一样
+
+加密方式也不是普遍的那几个对称加密方式，无法确定加密方式那就有无数对应可能了，V综有学密码学的讲讲吗
+
+
+
+
+
+
+
+-----
+
+####  SiolC  
+##### 1841#       发表于 2020-5-30 15:30
+
+
+
+
+当然，梅露妈说的是“自分のV”而不是“自分”，只是自己画皮自己做l2d然后给别人用也是可能的<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1842#       发表于 2020-5-30 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614522&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-30 15:27</a>
+
+那个某不知名搬运组发的啊
+
+首先这个加密后文本特征是单词由A-Z0-9.,-_?构成，不是常见的base64编码，看上 ...</blockquote>
+应该是那种通常的多层加密吧 要一层一层解要不直接看不出来
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 1843#       发表于 2020-5-30 15:34
+
+
+
+
+那人不是自己给了解密答案吗，在自己个人号
+
+
+
+
+
+
+
+-----
+
+####  ariamoon  
+##### 1844#       发表于 2020-5-30 15:36
+
+
+
+ 本帖最后由 ariamoon 于 2020-5-30 15:56 编辑 
+
+推上大概是取消了已经看不见了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 1845#       发表于 2020-5-30 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614583&amp;ptid=1938145" target="_blank">超能力者stven 发表于 2020-5-30 15:34</a>
+
+那人不是自己给了解密答案吗，在自己个人号</blockquote>
+喷了，浪费我时间，这种不是摆明了除非提前知道方法，不然不可能逆向的吗...
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1846#       发表于 2020-5-30 15:41
+
+
+
+
+龙皇至今为止想要主导的holo大家庭环境和团建……
+
+<img src="https://img.saraba1st.com/forum/202005/30/154106lo6ybybrty4ryqbz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200530154034.png</strong> (3.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 15:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1847#       发表于 2020-5-30 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614599&amp;ptid=1938145" target="_blank">ariamoon 发表于 2020-5-30 15:36</a>
+
+郡道推上点赞了ykw关于中国和火山的发布会录像
+
+
+想干吗，另立人设？</blockquote>
+刚点的还是之前？没看到啊
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1848#       发表于 2020-5-30 15:42
+
+
+
+
+看样子今天下午开始ark服务器就很不稳定
+
+晚上泡汤可能性
+
+虽然泡汤了我也没意见就是了 反正晚上大撞车没人看
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1849#       发表于 2020-5-30 15:44
+
+
+
+
+芙宝一边说自己哪里纠结ark了，一边每页都在自己说个不停<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ariamoon  
+##### 1850#       发表于 2020-5-30 15:44
+
+
+
+ 本帖最后由 ariamoon 于 2020-5-30 15:54 编辑 
+
+推上大概是取消了已经看不见了
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1851#       发表于 2020-5-30 15:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614661&amp;ptid=1938145" target="_blank">ariamoon 发表于 2020-5-30 15:44</a>
+
+我又看了一遍她推，不见了，不知道是不是取消了
+
+
+贴图不会杀头吧……不行我就赶紧删了</blockquote>
+贴图会吧，还是删掉，反正她也删了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1852#       发表于 2020-5-30 15:48
+
+
+
+
+好起来了，今晚继续打UNO，上次咱还没看够呢，多来点
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1853#       发表于 2020-5-30 15:49
+
+
+
+
+可能35不开窗芙宝就不会唠叨个不停了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1854#       发表于 2020-5-30 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">删了吧，咱都不敢回复你那条
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1855#       发表于 2020-5-30 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614660&amp;ptid=1938145" target="_blank">Mika-S 发表于 2020-5-30 15:44</a>
+芙宝一边说自己哪里纠结ark了，一边每页都在自己说个不停</blockquote>
+讲道理，35要播ark了芙宝不扯ark难道来给大家复读撞了ark的在播啥吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ariamoon  
+##### 1856#       发表于 2020-5-30 15:51
+
+
+
+
+卧槽怎么删图快教教我
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1857#       发表于 2020-5-30 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614730&amp;ptid=1938145" target="_blank">ariamoon 发表于 2020-5-30 15:51</a>
+
+卧槽怎么删图快教教我</blockquote>
+再上传一张图，就能看到删除的地方了、
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1858#       发表于 2020-5-30 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614730&amp;ptid=1938145" target="_blank">ariamoon 发表于 2020-5-30 15:51</a>
+
+卧槽怎么删图快教教我</blockquote>
+pc版，删图的小图标
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1859#       发表于 2020-5-30 15:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614711&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-5-30 15:49</a>
+
+可能35不开窗芙宝就不会唠叨个不停了。</blockquote>
+但问题是目前为止4个人里最稳最有可能活到最后的就是miko了 其他人都死了关直播了最后观众去哪看
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1860#       发表于 2020-5-30 15:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614660&amp;ptid=1938145" target="_blank">Mika-S 发表于 2020-5-30 15:44</a>
+
+芙宝一边说自己哪里纠结ark了，一边每页都在自己说个不停</blockquote>
+感觉其他也没什么特别的话题好说了啊
+
+5ch今天早上为止也是一直在车ark的话题……
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1861#       发表于 2020-5-30 15:55
+
+
+
+ 本帖最后由 Zaphikel 于 2020-5-30 15:59 编辑 
+
+大天使APEX这个渔翁得利有点帅的哦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+单人偷了4个头
+
+
+syl辛辛苦苦搬的红甲被老八拿了，大草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 1862#       发表于 2020-5-30 16:00
+
+
+
+
+郡神是真的！是真的！<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1863#       发表于 2020-5-30 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614761&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-30 15:54</a>
+感觉其他也没什么特别的话题好说了啊
+
+5ch今天早上为止也是一直在车ark的话题…… ...</blockquote>
+没说不让你说啊，问题你又要说，又要立牌坊那就没意思了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说就说嘛怎么了
+
+
+
+
+
+                                     

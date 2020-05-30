@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 14:05** 
+> ## **本文件最后更新于2020-05-30 16:07** 
 
 
 
@@ -21729,6 +21729,25 @@ But these critics focused on perceived swarthiness precisely to try to persuade 
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 掌界|-2||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -21824,10 +21843,11 @@ PS3：最后 念经驱邪
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| lzz|-1||
 | leader01234| + 1|欢乐多|
 
 
@@ -21996,10 +22016,11 @@ But these critics focused on perceived swarthiness precisely to try to persuade 
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 掌界|-2|黑人受到的歧视是爱尔兰人不能比的，也无法.|
 | 无责任死猫| + 2|好评加鹅|
 | Hush|-1||
 | ysys| + 2|有些人不会好好讲道理的，别杠了…….|
@@ -22267,10 +22288,11 @@ But these critics focused on perceived swarthiness precisely to try to persuade 
 
 
 
- 参与人数 4战斗力 0
+ 参与人数 5战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 万花谷杂役| + 1|那个追着扣分的太可怜了吧|
 | 烷烃汽艇| + 1|拉平|
 | Tissuesea|-1|终于看清了|
 | 脏水一盆| + 1|拉平|
@@ -23880,6 +23902,25 @@ img-ddd7f444ecc74e19f64dfd62649f5a3d.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| water| + 1|没错|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -24350,16 +24391,468 @@ WDNMD，南洛杉矶刚才有一声爆炸声，比枪声还大，不知道是不
 
 
 
+ 本帖最后由 ESAKA!!!! 于 2020-5-30 14:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613731&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-30 14:01</a>
 亚裔可不是底层，亚裔收入在美国算高的。而且教育水平也高。
 
 属于夹心阶层。
 
  ...</blockquote>
-财富一线，名声二线，权力贱民，而且还自己不思进取苟且偷生
+准确的说是财富一线，名声二线，权力贱民，而且还自己不思进取苟且偷生
 
 
 
 
 
-          
+
+
+-----
+
+####  roy1996  
+##### 1201#       发表于 2020-5-30 14:06
+
+
+
+
+【#五角大楼让军警进入戒备状态#】美联社29日援引知情人士的话报道称，美国五角大楼已要求军警（Military Police）进入戒备状态，以随时准备调往受到暴力抗议影响的明尼阿波利斯市。 ​​​
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1202#       发表于 2020-5-30 14:07
+
+
+
+ 本帖最后由 roy1996 于 2020-5-30 14:11 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1203#       发表于 2020-5-30 14:09
+
+
+
+ 本帖最后由 roy1996 于 2020-5-30 14:11 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  mrock  
+##### 1204#       发表于 2020-5-30 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613721&amp;ptid=1937970" target="_blank">帕拉斯雅典娜 发表于 2020-5-30 13:59</a>
+
+转一个知乎带V的判断</blockquote>
+才注意到这警察姓沙文，沙文主义那个沙文
+
+
+
+
+
+
+
+-----
+
+####  martyr1  
+##### 1205#       发表于 2020-5-30 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613718&amp;ptid=1937970" target="_blank">饭来张口 发表于 2020-5-30 13:59</a>
+
+看你不知道你自己是弱智这件事，好心告诉你。
+
+
+人家逻辑很清晰，不是解释不了，是给弱智解释不了。 ...</blockquote>
+解释不了就滚 赶紧的
+
+我就问推断出一个底层片警是底层，为什么需要通过娶了亚裔来判断？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zyzy2|-1|脏话可不好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 1206#       发表于 2020-5-30 14:14
+
+
+
+
+见到fake news被装修，我可以开心一整天了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ryan831231  
+##### 1207#       发表于 2020-5-30 14:16
+
+
+
+
+损失的几十几百亿米元又如何？善后用的实物又没有一项是米国制造的，在电脑上改个数字印钞就能从中国源源不绝的进口有真实价值的物品。不打破米元霸权，永远是全世界，特别是制造大国，在为米国骚乱埋单。
+
+
+
+
+
+
+
+-----
+
+####  martyr1  
+##### 1208#       发表于 2020-5-30 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613761&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 14:04</a>
+
+准确的说是财富一线，名声二线，权力贱民，而且还自己不思进取苟且偷生 ...</blockquote>
+默多克，扎克伯格和Thomas Südhof都娶了亚裔，人家都是各个领域的顶层。底层白人就是底层，娶白人同样是底层。娶亚裔既不是底层的充分条件也不是必要条件。想暗搓搓的黑一下某些群体也就是了，说别人弱智的先学学什么叫逻辑。
+
+
+
+
+
+
+
+-----
+
+####  ESAKA!!!!  
+##### 1209#       发表于 2020-5-30 14:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613940&amp;ptid=1937970" target="_blank">martyr1 发表于 2020-5-30 14:23</a>
+默多克，扎克伯格和Thomas Südhof都娶了亚裔，人家都是各个领域的顶层。底层白人就是底层，娶白人同样是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">别激动，看准了再回复
+
+
+
+
+
+
+
+-----
+
+####  martyr1  
+##### 1210#       发表于 2020-5-30 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613949&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 14:25</a>
+
+别激动，看准了再回复</blockquote>
+接着你回复的那个多解释点，懒得找人对线，没有说你哈<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1211#       发表于 2020-5-30 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613312&amp;ptid=1937970" target="_blank">漫区专号 发表于 2020-5-30 13:16</a>
+
+问题这位黑人老哥在黑人里算混得不错的甚至有个白人未婚妻。我个人甚至推断这个白人可能真知道（认识）这 ...</blockquote>
+有没有认识，也不耽误这是个客观上的种族仇杀案。而且客观上是黑人作为少数群体再度遭到欺压。
+
+在警民这方面黑人真是长期受害者。
+
+不是种族主义成为美国社会问题宣泄口，是美国压根就没解决过种族主义的问题。
+
+以此衍生了无数矛盾，这件事成了一个标志性事件。
+
+
+
+
+
+
+
+-----
+
+####  羽桐れもん  
+##### 1212#       发表于 2020-5-30 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613312&amp;ptid=1937970" target="_blank">漫区专号 发表于 2020-5-30 13:16</a>
+问题这位黑人老哥在黑人里算混得不错的甚至有个白人未婚妻。我个人甚至推断这个白人可能真知道（认识）这 ...</blockquote>
+CNN说他俩曾是一个俱乐部的同事，不过一个管外一个管内，认不认识很难说
+那白警老婆是老挝人，2018年拿过大明州夫人选美冠军，应该也不至于妒忌个黑人能透白逼吧？吧？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  套路设计师  
+##### 1213#       发表于 2020-5-30 15:29
+
+
+
+
+那个亚裔警察是哪里人有消息吗
+
+
+
+
+
+
+
+-----
+
+####  vanmercury  
+##### 1214#       发表于 2020-5-30 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614543&amp;ptid=1937970" target="_blank">套路设计师 发表于 2020-5-30 15:29</a>
+
+那个亚裔警察是哪里人有消息吗</blockquote>
+好像是姓Thao，可能是越南裔？
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1215#       发表于 2020-5-30 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614572&amp;ptid=1937970" target="_blank">vanmercury 发表于 2020-5-30 15:32</a>
+好像是姓Thao，可能是越南裔？</blockquote>
+苗裔 越南或者老挝的吧
+
+
+
+
+
+
+
+-----
+
+####  fatimagg01  
+##### 1216#       发表于 2020-5-30 15:45
+
+
+
+
+微薄的二鬼子们开始反攻了，看来组织好了。
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1217#       发表于 2020-5-30 15:46
+
+
+
+
+#五角大楼采取罕见措施抑制抗议活动#【#美将派军事警察部队赴明尼苏达州#维护治安】日前，美国抗议活动不断蔓延，并引发暴力事件。当地时间5月29日晚，美国五角大楼采取了罕见的措施，命令陆军将几支现役美国军事警察部队部署到明尼苏达州明尼阿波利斯维护治安，以抑制暴力行为再次升级。 (央视记者许弢 许骁）
+
+
+
+
+
+
+
+-----
+
+####  徐虹昊  
+##### 1218#       发表于 2020-5-30 15:46
+
+
+
+
+“尸检没有发现任何支持创伤性窒息或窒息的诊断。弗洛伊德先生的健康状况包括冠状动脉疾病和高血压心脏病。弗洛伊德先生受到警察的约束，他的潜在健康状况，以及他身体系统中的任何潜在的醉酒因素，都可能导致他的死亡。“胡说八道到这个地步我是不得不服
+
+
+
+
+
+
+
+-----
+
+####  ######  
+##### 1219#       发表于 2020-5-30 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47613464&amp;ptid=1937970" target="_blank">martyr1 发表于 2020-5-30 13:33</a>
+
+那你给解释一下“白人警察娶了亚裔就是底层，白人富豪娶了亚裔就不是底层” 中娶了亚裔对你判断是不是底 ...</blockquote>
+取亚裔的底层多 准确说娶没自己国家发达地区异族的大部分是底层 就想现在的中国人找越南柬埔寨妻子一样。至于扎克伯格 默多克这种是极少数。
+
+
+
+
+
+
+
+-----
+
+####  zs008007  
+##### 1220#       发表于 2020-5-30 15:51
+
+
+
+ 本帖最后由 zs008007 于 2020-5-30 15:55 编辑 
+
+这些天闹下来，我对美国民间的  呛支  保有量感到疑惑，绝对没有之前报道的那么高，不然现在的 和~平~示~威  很难解释。说好的武德充沛呢，TM的倒是  警~军~民  打成一片加深友谊啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  萱时令  
+##### 1221#       发表于 2020-5-30 15:52
+
+
+
+
+好难啊 
+首先身体不能锻炼的太好 不然会被警察认为具有攻击性
+也不能太差 不然稍微被控制一下就死了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 1222#       发表于 2020-5-30 16:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614729&amp;ptid=1937970" target="_blank">zs008007 发表于 2020-5-30 15:51</a>
+
+这些天闹下来，我对美国民间的  呛支  保有量感到疑惑，绝对没有之前报道的那么高，不然现在的 和~平~示~威 ...</blockquote>
+买枪要按时训练 考证
+
+底层买不起 买得起的小手枪打不过
+
+
+
+
+
+
+
+-----
+
+####  vanmercury  
+##### 1223#       发表于 2020-5-30 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614618&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-30 15:39</a>
+
+苗裔 越南或者老挝的吧</blockquote>
+老挝王宝那批人
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 1224#       发表于 2020-5-30 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47610962&amp;ptid=1937970" target="_blank">ESAKA!!!! 发表于 2020-5-30 09:07</a>
+
+这与其说是洗地不如说是围魏救赵，他们的逻辑是tg这种事经常发生但是都被和谐了 ...</blockquote>
+碧蓝嘛，都知道怎么回事。。
+
+
+
+
+
+         
