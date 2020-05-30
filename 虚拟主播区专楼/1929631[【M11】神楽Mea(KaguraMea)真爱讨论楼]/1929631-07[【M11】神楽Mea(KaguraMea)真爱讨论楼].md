@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 18:04** 
+> ## **本文件最后更新于2020-05-30 22:06** 
 
 
 
@@ -8162,4 +8162,775 @@ syl好像没说有预订，就昨天有个可能突击的推
 
 
 
-                                 
+
+
+-----
+
+####  Mr.shelter  
+##### 9483#       发表于 2020-5-30 18:06
+
+
+
+
+所以mea是扶她<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9484#       发表于 2020-5-30 18:14
+
+
+
+ 本帖最后由 A2014720 于 2020-5-30 18:44 编辑 
+
+好耶！
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 9485#       发表于 2020-5-30 18:16
+
+
+
+
+10点歌回
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9486#       发表于 2020-5-30 18:19
+
+
+
+
+好奶(ಡωಡ) 。有歌听很开心可是嗓子真的没问题吗健康民血压拉满啊(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9487#       发表于 2020-5-30 18:21
+
+
+
+
+她应该有数,状态不好就不会唱歌了
+
+难得最近有个这么早预告的直播
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 9488#       发表于 2020-5-30 18:22
+
+
+
+
+今天有人造谣说mea要在油管solo直播，我澄清一下，这不是造谣
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9489#       发表于 2020-5-30 18:29
+
+
+
+
+10唱歌，めあああああああああああああああ!
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9490#       发表于 2020-5-30 18:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">めあめあ
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9491#       发表于 2020-5-30 18:36
+
+
+
+
+想死我家咩了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 9492#       发表于 2020-5-30 18:49
+
+
+
+
+mea要唱到六月一号么（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9493#       发表于 2020-5-30 18:50
+
+
+
+
+而且今天也恢复转播了，是天时人和!
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 9494#       发表于 2020-5-30 18:54
+
+
+
+
+想死我了，想死我了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">终于来了
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 9495#       发表于 2020-5-30 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">刚回来就看到好消息，mea动了动了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9496#       发表于 2020-5-30 19:38
+
+
+
+
+有预订了？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9497#       发表于 2020-5-30 19:43
+
+
+
+
+推也发了，直播间也开了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9498#       发表于 2020-5-30 19:43
+
+
+
+
+提了一句明天明天有预定，具体是啥还是一个字没提
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9499#       发表于 2020-5-30 20:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9500#       发表于 2020-5-30 20:19
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-30 20:21 编辑 
+
+刚刚在b站逛进羽衣直播间，发现和犬山打块，提了你咩一句。。。。。。<img src="https://p.sda1.dev/0/107aa472659acf3cd4c1b4e7b2422692/IMG_E6F567B328D12BBC83D57079D57AB066.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9501#       发表于 2020-5-30 20:21
+
+
+
+
+话说时雨妈妈跟mea关系怎么样啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9502#       发表于 2020-5-30 20:22
+
+
+
+
+有奶就是娘的关系
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9503#       发表于 2020-5-30 20:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想吃奶的关系
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9504#       发表于 2020-5-30 20:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47617411&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-30 20:21</a>
+话说时雨妈妈跟mea关系怎么样啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">路人以上，女儿以下
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9505#       发表于 2020-5-30 20:35
+
+
+
+
+懂了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9506#       发表于 2020-5-30 20:45
+
+
+
+
+这叫，乳娘
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9507#       发表于 2020-5-30 21:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">越来越觉得，koyori跟你麻亏了，你麻带不来人。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">她应该去应聘一个企业势
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9508#       发表于 2020-5-30 21:28
+
+
+
+
+等半年后彩虹holo都炸了你们就知道个人势的好了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9509#       发表于 2020-5-30 21:32
+
+
+
+
+说不定半路如月就反出神乐组带皮进企业了
+
+      
+
+出发前你麻语重心长的对如月说。。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9510#       发表于 2020-5-30 21:34
+
+
+
+
+也许说不定如月想的就是在小麻这里积累经验然后去虹杏呢？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9511#       发表于 2020-5-30 21:35
+
+
+
+ 本帖最后由 A2014720 于 2020-5-30 21:36 编辑 
+
+现在去杏不可能，哪怕去了彩虹不会比现在好多少吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，至于其他小箱…
+也许是如月真信了你咩姐说的个人势赚钱多<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9512#       发表于 2020-5-30 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47618244&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-5-30 21:21</a>
+
+越来越觉得，koyori跟你麻亏了，你麻带不来人。。。。
+
+她应该去应聘一个企业势 ...</blockquote>
+你可能对企业势有什么误解 多少人挤破头想去的大箱去不了 小箱其实和当个人势差不了多少
+
+koyori确实有素质 就连天天摸的noe我也觉得有点意思 就现状来说她们还真是当个个人势随便播播就挺好的了
+
+她们也没想要放弃之前自己经营的tc盘的样子
+
+
+何况**自己都难顾了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9513#       发表于 2020-5-30 21:36
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-30 21:40 编辑 
+
+又是洗 脑?
+
+苔姨洗 脑你麻
+你麻洗 脑如月
+苔姨传授技术说
+姨度上升了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9514#       发表于 2020-5-30 21:37
+
+
+
+
+。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9515#       发表于 2020-5-30 21:37
+
+
+
+
+你麻又不是傻逼，2020年个人势怎样她不比任何人都清楚？到时候落个埋怨何必呢
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9516#       发表于 2020-5-30 21:39
+
+
+
+
+她自己不是早都直播说过不推荐个人势了吗，这么担心别人跟她是不是亏了干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9517#       发表于 2020-5-30 21:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你麻拉如月可能是避税呢。。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">但如月做直播太认真了，企划也做的挺不错的，去彩虹说不定还能当皇呢。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">你麻是带恶人
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 9518#       发表于 2020-5-30 21:43
+
+
+
+
+这什么弱智发散<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9519#       发表于 2020-5-30 21:44
+
+
+
+
+人家也就图一乐，又没签合同，真要当事业搞直接转生跑路你拦得住？
+
+想得也太多了吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9520#       发表于 2020-5-30 21:51
+
+
+
+
+《如月从跟你麻入坑到毕业转生只用了十几楼》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 9521#       发表于 2020-5-30 21:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这发散过于弱智。小箱里有能力又怎么样，转生后去彩虹的也不是一个两个了，撇撇、纸木娟的先例摆在那边呢。2020年还要VTB出道，除了图一乐，就是去hololive。
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 9522#       发表于 2020-5-30 21:56
+
+
+
+
+虹看起来有意思的也有当底边的啊，虽然硬说的话数字更好看一点就是了，咩箱在某方面同时出道的那批人其实可以对标774Inc这种企业势了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9523#       发表于 2020-5-30 21:57
+
+
+
+
+好了好了先不要发散了，都要直播了，看mea不香吗？
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 9524#       发表于 2020-5-30 22:00
+
+
+
+
+这是几个选项挑一个的问题吗，如月想进企业势可以自己去应聘，难道还想通过你咩姐这个个人势进企业势吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9525#       发表于 2020-5-30 22:02
+
+
+
+
+开幕喉咙疼
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 9526#       发表于 2020-5-30 22:03
+
+
+
+
+你们怎么就把人家一个个安排成数字厨了
+
+
+随缘播播优先熟人不好吗
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 9527#       发表于 2020-5-30 22:04
+
+
+
+
+比起如月，更想知道mea姐有沒有給無收益化的八乙女發工資<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9528#       发表于 2020-5-30 22:04
+
+
+
+
+别车了，说不定人家进海苔箱了呢(ಡωಡ) 。开播听歌。
+
+
+
+
+
+                                
