@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 02:13** 
+> ## **本文件最后更新于2020-05-31 04:11** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_EUs98" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_rjK8e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18463,7 +18463,7 @@ crew好强大
 
 
 这个4年前的视频笑死我了，纯一直夸宫姨可爱，看到メイアン就笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_k3h39" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_m6SlZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20781,4 +20781,305 @@ v在历史中，v是历史的。狐狸早期一没思路就整mcRTA，还时不�
 
 
 
-              
+
+
+-----
+
+####  marysaluly  
+##### 2569#       发表于 2020-5-31 02:13
+
+
+
+
+前世这种东西哪是这么好割裂的，况且有很多管人根本不想割裂，巴不得给前世引流呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2570#       发表于 2020-5-31 02:15
+
+
+
+ 本帖最后由 stedckk 于 2020-5-31 02:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621283&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-31 02:04</a>
+
+阿，虽然有点杠的意思了，不过我的意思一直都是主播要努力让这些东西不会影响到现在职业的职业素养问题。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这个问题难道不是要看前世黑料到底有多黑和主播的职业素养高不高吗，前世能弄出大黑料的人一般职业素养都不怎么样。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 2571#       发表于 2020-5-31 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621324&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-31 02:12</a>
+
+说到神椿，有没有老哥概括概括的，感觉国内了解的实在是太少了</blockquote>
+V+人称小神椿<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2572#       发表于 2020-5-31 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621296&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-5-31 02:08</a>
+
+又到玲人话题了啊，当时毕业真的魔怔很久
+
+不过我严格来讲不算玲人，因为厨的主要是不死人，不是玲也 ...</blockquote>
+说实话，我觉得国内没多少真正的玲人，如果只是从不死人开始追的，真的会扭曲到玲人那个状态吗？
+
+当时毕业我也挺郁闷的，但感觉很多突然冒出来自称玲人的都是跟风罢了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">不过话说回来，我也不懂玲人到底该怎么定义。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2573#       发表于 2020-5-31 02:25
+
+
+
+
+翻了眼b站，一弦竟然在直播。可惜黑宝大概睡了。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 2574#       发表于 2020-5-31 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621101&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-5-31 01:34</a>
+
+11岁单推虽然估计没有，但是喜欢她的人其实也不少。每次我在劈到11岁都会有人来指正一下。
+
+相比之下，口 ...</blockquote>
+阿这，郡噶吃现在对ロア还恋恋不忘吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2575#       发表于 2020-5-31 02:28
+
+
+
+
+黑宝作息太健康了，当年大学里整个系里这么健康得一个手数的过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2576#       发表于 2020-5-31 02:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621352&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-31 02:15</a>
+
+你这个问题难道不是要看前世黑料到底有多黑和主播的职业素养高不高吗，前世能弄出大黑料的人一般职 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你看MRR这种其实没有黑料的也只是被2000当成日常粮食
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2577#       发表于 2020-5-31 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621324&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-31 02:12</a>
+
+说到神椿，有没有老哥概括概括的，感觉国内了解的实在是太少了</blockquote>
+说实话你要真想了解这些东西 老老实实从v1开始爬楼比较好 你想了解的东西太多太杂 不可能一两句话就概括出来
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2578#       发表于 2020-5-31 02:33
+
+
+
+
+bsyl mysk这哈姆太郎ガチ勢用阿宅语速扯了一小时哈姆太郎了，头晕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鬼正黑  
+##### 2579#       发表于 2020-5-31 02:39
+
+
+
+<blockquote>rzrbtk 发表于 2020-5-31 01:34
+11岁单推虽然估计没有，但是喜欢她的人其实也不少。每次我在劈到11岁都会有人来指正一下。
+
+相比之下，口 ...</blockquote>
+因为老哥你劈的内容都蛮有意思就没怎么想指正(没必要)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 2580#       发表于 2020-5-31 02:43
+
+
+
+
+其实还是那个问题，不是管人摆出专业态度就完了的。
+
+大亏白少主两大典型，舍弃前世不要更果断，那bili少了开箱.avi跟跳舞.avi吗。在互联网活动过的痕迹不是你自己想消除就能消除掉的。所以也就不存在什么不让前世影响的职业素养了。
+
+就算你是真正的素人没有前世，在直播中也很难不体现出来跟自身密切相关的东西。举个例子就是海苔男女儿白雪被海苔男背刺说是同级生所以大家都知道她跟海苔男一个年纪。从这层意义上真正做到消除过去的影响的人应该是把rp做的最好的人，只有角色本身的属性自然不会受到什么影响。比如你像爱丽丝也没很多人去考虑她前世的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2581#       发表于 2020-5-31 03:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/032610oqtfhfytf1aoyfra.png" referrerpolicy="no-referrer">
+
+
+<strong>1590866737(1).png</strong> (158.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 03:26 上传
+
+
+
+
+
+crew最强！crew最强！
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 2582#       发表于 2020-5-31 03:41
+
+
+
+
+crew配信同接近十倍杀夸宝订阅 夸宝什么时候才能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 2583#       发表于 2020-5-31 03:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47590921&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-28 16:02</a>
+其实最神秘的问题在于nga的版主到底是天狗还是虹人
+
+这个问题我到现在都没有想通 ...</blockquote>
+或许大概可能真的是个crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 2584#       发表于 2020-5-31 04:10
+
+
+
+
+肥希发的这个新的自撮り好他喵像卢本伟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">回不去了
+
+
+
+
+
+             
