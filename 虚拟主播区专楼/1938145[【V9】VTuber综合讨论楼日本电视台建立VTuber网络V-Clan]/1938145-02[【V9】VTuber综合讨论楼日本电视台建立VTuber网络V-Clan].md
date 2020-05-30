@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 16:08** 
+> ## **本文件最后更新于2020-05-30 18:11** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_RNgej" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_OPgLS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7432,4 +7432,757 @@ syl辛辛苦苦搬的红甲被老八拿了，大草<img src="https://static.sara
 
 
 
-                                     
+
+
+-----
+
+####  tiro_finale  
+##### 1864#       发表于 2020-5-30 16:11
+
+
+
+
+船长订阅增速有点跟不上夏哥了，之前被超了1000，现在才追平<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1865#       发表于 2020-5-30 16:19
+
+
+
+
+大天使克雷贝尔7发0中就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+大伙都挺猛的，怎么......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 1866#       发表于 2020-5-30 16:21
+
+
+
+
+群道和dwu关系怎么样，有没有噶吃来说说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1867#       发表于 2020-5-30 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614993&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 16:19</a>
+
+大天使克雷贝尔7发0中就离谱
+
+大伙都挺猛的，怎么......</blockquote>
+这枪害夸不浅啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1868#       发表于 2020-5-30 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47614775&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-5-30 15:55</a>
+
+大天使APEX这个渔翁得利有点帅的哦
+
+单人偷了4个头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚才回看了公主龙羊的APEX，吃鸡那局那个毒圈绝了。。。。。
+
+
+还有COCO那个贴身对着敌人背6枪獒犬全空简直了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1869#       发表于 2020-5-30 16:39
+
+
+
+ 本帖最后由 Zaphikel 于 2020-5-30 16:40 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/163905dzrrvvkwrtevurur.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200530163824.png</strong> (1.28 MB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 16:39 上传
+
+
+
+
+
+
+队友强得离谱了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+syl 大天使铂金了，能不能让我看到井皇排到大天使？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 1870#       发表于 2020-5-30 16:42
+
+
+
+
+带天使怕不是能按着井皇的头乱干？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1871#       发表于 2020-5-30 16:44
+
+
+
+
+之前井皇看一个做的特别好的mea和大亏的假面骑士二创，然后看到大亏他就那部分跳过，评论里说是因为井皇主动勾搭大亏被无视了，所以到底有没有这回事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1872#       发表于 2020-5-30 16:45
+
+
+
+
+阿夸怕不是都不知道谁是帕里。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1873#       发表于 2020-5-30 16:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剥削好姐妹的坏东西阿夸不可能不知道吧，难道meaqua是假的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1874#       发表于 2020-5-30 16:53
+
+
+
+
+真真假假谁又知道，但是热爱脑补的大家是停不下来的。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1875#       发表于 2020-5-30 16:55
+
+
+
+
+?那段有录播吗，或者那个二创给指下路?
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1876#       发表于 2020-5-30 17:06
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-30 17:08 编辑 
+
+不是， 朋友也不用知道对方的工作相关吧
+
+不如说有些朋友就是只有特定的共同话题， 
+
+
+我和一些朋友只会讨论学业，
+
+
+和另外一些朋友只会讨论游戏
+
+
+等等等等
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 1877#       发表于 2020-5-30 17:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615285&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-5-30 16:55</a>
+
+?那段有录播吗，或者那个二创给指下路?</blockquote>
+[https://www.bilibili.com/video/BV14b411v7gh](https://www.bilibili.com/video/BV14b411v7gh) 
+
+看的二创是这个，paryi的录播我记得有，但是找不到了……
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 1878#       发表于 2020-5-30 17:12
+
+
+
+ 本帖最后由 与天争锋_LZ 于 2020-5-30 17:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615387&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-30 17:08</a>
+https://www.bilibili.com/video/BV14b411v7gh 
+
+看的二创是这个，paryi的录播我记得有，但是找不到了…… ...</blockquote>
+BV1kb411b7gb
+11:30的吧
+开头阿夸的看的挺开心的
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1879#       发表于 2020-5-30 17:20
+
+
+
+
+感谢(づ ●─● )づ
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1880#       发表于 2020-5-30 17:21
+
+
+
+
+夸不负众望搞等待50W了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1881#       发表于 2020-5-30 17:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/30/172802msbispygsc2mmmb0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200530172716.png</strong> (183.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-30 17:28 上传
+
+
+
+
+
+
+这时间点也太怪了
+
+这赛季钻石是不是又要比大天使快一步嗷？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1882#       发表于 2020-5-30 17:29
+
+
+
+
+啊，这不是2k最喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 1883#       发表于 2020-5-30 17:29
+
+
+
+
+solo怎么跟开黑比速度，醒醒
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1884#       发表于 2020-5-30 17:34
+
+
+
+
+话说大亏五十万也太快了，感觉狐皇也才五十万没多久(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1885#       发表于 2020-5-30 17:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">车队上钻有什么好吹的 硬实力第一依然是我阿夸
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1886#       发表于 2020-5-30 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615663&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-5-30 17:34</a>
+话说大亏五十万也太快了，感觉狐皇也才五十万没多久(눈_눈)</blockquote>
+但其实狐皇已经60W了，狗子也40W了，前排都很快的
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1887#       发表于 2020-5-30 17:36
+
+
+
+ 本帖最后由 Zaphikel 于 2020-5-30 17:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615387&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-30 17:08</a>
+[https://www.bilibili.com/video/BV14b411v7gh](https://www.bilibili.com/video/BV14b411v7gh) 
+
+看的二创是这个，paryi的录播我记得有，但是找不到了…… ...</blockquote>
+paryi那里的版本 [https://www.bilibili.com/video/BV1kb411b7gb](https://www.bilibili.com/video/BV1kb411b7gb)
+
+在刺身君那里的版本 [https://www.bilibili.com/video/BV1bb41187rH](https://www.bilibili.com/video/BV1bb41187rH)
+
+
+syl评论区和弹幕也太会种梁木了，paryi老暗黑贴贴人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1888#       发表于 2020-5-30 17:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 彩虹真垃圾阿，太监也和往常一样，真垃圾阿
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1889#       发表于 2020-5-30 17:39
+
+
+
+
+祥林嫂2k开始了每日的车轱辘。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1890#       发表于 2020-5-30 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">下班第一件事就是车轱辘太监囚人、垃圾ichikara、恶心人猴掘、脑残彩色日报、玻璃心0人
+
+
+完成每日任务，心情都会变好，做梦都会笑
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1891#       发表于 2020-5-30 17:44
+
+
+
+
+如果不出意外今年有可能会出一个新的金盾?
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 1892#       发表于 2020-5-30 17:46
+
+
+
+
+彩虹字幕组都开始反抗了，好事好事，支持橄榄垃圾一汽卡拉
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1893#       发表于 2020-5-30 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615687&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-30 17:36</a>
+
+但其实狐皇已经60W了，狗子也40W了，前排都很快的</blockquote>
+前排 X
+
+holo前排 O
+
+
+不然你这话岂不是让快3个月才涨了4w粉的葵皇很尴尬么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1894#       发表于 2020-5-30 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615792&amp;ptid=1938145" target="_blank">yuandi0120 发表于 2020-5-30 17:46</a>
+
+前排 X
+
+holo前排 O</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer"> 说不定彩虹爆炸能看到葵皇三天掉4w粉
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1895#       发表于 2020-5-30 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615785&amp;ptid=1938145" target="_blank">daoyuan 发表于 2020-5-30 17:46</a>
+
+彩虹字幕组都开始反抗了，好事好事，支持橄榄垃圾一汽卡拉</blockquote>
+真正面刚啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1896#       发表于 2020-5-30 17:51
+
+
+
+
+新增粉到底哪儿来的？欧美粉吗？切入口是哪儿啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1897#       发表于 2020-5-30 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615724&amp;ptid=1938145" target="_blank">erer 发表于 2020-5-30 17:39</a>
+
+祥林嫂2k开始了每日的车轱辘。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">V综风景线
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1898#       发表于 2020-5-30 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">紫宝体調不良，晚上和萝卜的联动也鸽了
+
+恨不得我替她生病，还能请一星期病假
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1899#       发表于 2020-5-30 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615844&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-5-30 17:51</a>
+
+新增粉到底哪儿来的？欧美粉吗？切入口是哪儿啊</blockquote>
+狐狸狗子前段时间的对欧美特攻吧
+
+护理还好，狗子那SC真是什么币种都有
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1900#       发表于 2020-5-30 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615785&amp;ptid=1938145" target="_blank">daoyuan 发表于 2020-5-30 17:46</a>
+
+彩虹字幕组都开始反抗了，好事好事，支持橄榄垃圾一汽卡拉</blockquote>
+现在动态删了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1901#       发表于 2020-5-30 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47615785&amp;ptid=1938145" target="_blank">daoyuan 发表于 2020-5-30 17:46</a>
+
+彩虹字幕组都开始反抗了，好事好事，支持橄榄垃圾一汽卡拉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">详细在哪，没看到啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1902#       发表于 2020-5-30 18:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这MIKO又在玩什么傻DIO游戏
+
+
+还有哭腔真可爱
+
+草，35P第9名，这是哪位
+
+
+
+
+
+                                    
