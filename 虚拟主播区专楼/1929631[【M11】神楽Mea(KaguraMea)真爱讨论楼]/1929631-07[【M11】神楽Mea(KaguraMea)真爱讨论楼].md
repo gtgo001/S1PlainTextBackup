@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-30 22:06** 
+> ## **本文件最后更新于2020-05-31 00:05** 
 
 
 
@@ -8933,4 +8933,1128 @@ koyori确实有素质 就连天天摸的noe我也觉得有点意思 就现状来
 
 
 
-                                
+
+
+-----
+
+####  龙魂绯影  
+##### 9529#       发表于 2020-5-30 22:09
+
+
+
+
+戴口罩睡觉草
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9530#       发表于 2020-5-30 22:11
+
+
+
+
+这是新歌吧，感觉没印象
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 9531#       发表于 2020-5-30 22:11
+
+
+
+
+第一曲这一嗓子，醍醐灌顶
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9532#       发表于 2020-5-30 22:11
+
+
+
+
+居然是这首!惊了
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 9533#       发表于 2020-5-30 22:11
+
+
+
+
+这人都在看什么傻逼动画片
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9534#       发表于 2020-5-30 22:11
+
+
+
+
+,啊 喉咙<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 9535#       发表于 2020-5-30 22:12
+
+
+
+
+翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">好听但是要爱惜嗓子啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9536#       发表于 2020-5-30 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">声音有点哑，唱点不要喉咙的歌吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9537#       发表于 2020-5-30 22:12
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-30 22:14 编辑 
+
+那是故意唱的哑声吧。原曲就是声嘶力竭的那种<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9538#       发表于 2020-5-30 22:13
+
+
+
+
+这喉咙就憋唱了，听着就觉得痛<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9539#       发表于 2020-5-30 22:14
+
+
+
+
+听的我心疼了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9540#       发表于 2020-5-30 22:16
+
+
+
+
+等等我看nga说直播间被隐藏了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 9541#       发表于 2020-5-30 22:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47618907&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-5-30 22:16</a>
+等等我看nga说直播间被隐藏了</blockquote>
+弱智油管常规操作，坐
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9542#       发表于 2020-5-30 22:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">马f最后一集这段重看了好多遍
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9543#       发表于 2020-5-30 22:20
+
+
+
+
+这首好强<img src="https://static.saraba1st.com/image/smiley/face2017/175.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9544#       发表于 2020-5-30 22:21
+
+
+
+
+笑场了草
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9545#       发表于 2020-5-30 22:22
+
+
+
+
+咩宝不停的在进步阿
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9546#       发表于 2020-5-30 22:23
+
+
+
+
+嗓子不太行,但状态真不错
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9547#       发表于 2020-5-30 22:24
+
+
+
+
+**的声音当然可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 9548#       发表于 2020-5-30 22:24
+
+
+
+
+你楼就不能多讨论些正能量的东西吗
+比如说多夸夸这么棒的自己推的主播
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9549#       发表于 2020-5-30 22:25
+
+
+
+
+哈哈哈哈 你的**已经变成**了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 9550#       发表于 2020-5-30 22:26
+
+
+
+
+钢炼！！！i了i了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9551#       发表于 2020-5-30 22:26
+
+
+
+
+竟然是again，YUI的歌还有一首GLORIA和TOKYO很喜欢，不知道她听过没
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9552#       发表于 2020-5-30 22:28
+
+
+
+
+看隔壁好多刷钢炼的中间突然看到一句这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/dffe60595bbafb30a8b632b7f34527f3/IMG_20200530_222709.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 9553#       发表于 2020-5-30 22:28
+
+
+
+
+麻 麻已化为空中划过的两颗流星了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 9554#       发表于 2020-5-30 22:29
+
+
+
+
+黑人流泪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 9555#       发表于 2020-5-30 22:29
+
+
+
+
+爽到了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 9556#       发表于 2020-5-30 22:30
+
+
+
+
+干完活回来刚好错过钢炼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 9557#       发表于 2020-5-30 22:30
+
+
+
+
+竟然是钢炼<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9558#       发表于 2020-5-30 22:32
+
+
+
+
+淦这首前半我打蚊子没听到(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9559#       发表于 2020-5-30 22:32
+
+
+
+
+刚刚那两句好像，尤其是鼻音
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9560#       发表于 2020-5-30 22:33
+
+
+
+
+雷电招来<img src="https://static.saraba1st.com/image/smiley/face2017/228.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9561#       发表于 2020-5-30 22:44
+
+
+
+
+什么？ 行动被衣服妨碍了？ 穿着的吗？ 什么样的衣服会妨碍行动？ 没穿着的吗？ 把衣服扔在电脑附近？ 幻灭了
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 9562#       发表于 2020-5-30 22:46
+
+
+
+
+突然发现在斗虫网hiyoko上,还真的给她加了个Kaguragumi的所属,  你麻的"企业势"成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9563#       发表于 2020-5-30 22:46
+
+
+
+
+hiyoko见风就是雨
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9564#       发表于 2020-5-30 22:47
+
+
+
+
+感觉今天唱苦情歌一定很有感觉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9565#       发表于 2020-5-30 22:48
+
+
+
+ 本帖最后由 A2014720 于 2020-5-30 22:53 编辑 
+
+个人势头部变成企业底边？我不接受<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+感觉这人唱起来很有气场，这就是粉丝滤镜嘛<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9566#       发表于 2020-5-30 22:54
+
+
+
+
+不是说一个小时下吗？ 为什么骗我？ 你个坏女人
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 9567#       发表于 2020-5-30 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">女人不坏男人不爱
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9568#       发表于 2020-5-30 22:56
+
+
+
+
+草乃团的歌!!!
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9569#       发表于 2020-5-30 22:58
+
+
+
+
+是立派的爱都露了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9570#       发表于 2020-5-30 23:04
+
+
+
+
+居然唱这个了
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 9571#       发表于 2020-5-30 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 9572#       发表于 2020-5-30 23:09
+
+
+
+
+夜驱好啊
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 9573#       发表于 2020-5-30 23:09
+
+
+
+
+哦哦哦哦来了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9574#       发表于 2020-5-30 23:09
+
+
+
+ 本帖最后由 路人子 于 2020-5-30 23:10 编辑 
+
+卧槽，我一直想听的夜驱
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9575#       发表于 2020-5-30 23:10
+
+
+
+
+这人这声线居然是如此池面，让如月教了两手？
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9576#       发表于 2020-5-30 23:11
+
+
+
+
+这是第一次单人普通歌回上3千吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9577#       发表于 2020-5-30 23:11
+
+
+
+
+我好了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9578#       发表于 2020-5-30 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47619624&amp;ptid=1929631" target="_blank">Rem-清曲 发表于 2020-5-30 23:11</a>
+这是第一次单人普通歌回上3千吧</blockquote>
+上3000这两月以来都是常态了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 9579#       发表于 2020-5-30 23:14
+
+
+
+
+今天真的棒啊
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 9580#       发表于 2020-5-30 23:15
+
+
+
+
+状态来了，好起来了
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9581#       发表于 2020-5-30 23:15
+
+
+
+
+爱了爱了，御姐咩
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9582#       发表于 2020-5-30 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">你麻这声音可以发出一点池面味了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9583#       发表于 2020-5-30 23:16
+
+
+
+
+不过单人纯歌回第一次过3000是真的，这还被404gank了。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9584#       发表于 2020-5-30 23:19
+
+
+
+
+说来今天苔姨兔姨靠两大箱今天都过w了，希望以后能多继续抬一抬咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 9585#       发表于 2020-5-30 23:23
+
+
+
+ 本帖最后由 yuanhang99 于 2020-5-30 23:25 编辑 
+
+你咩自己办个活动拉点木口的人估计也能上万。上次拉个兔姨都上七千了。能拉到船皇估计1万5起。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9586#       发表于 2020-5-30 23:24
+
+
+
+
+明天早上又会重新痛的， 从我的经验来看
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 9587#       发表于 2020-5-30 23:26
+
+
+
+
+今天的歌都好对我胃口啊
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 9588#       发表于 2020-5-30 23:31
+
+
+
+
+强啊mea姐
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 9589#       发表于 2020-5-30 23:46
+
+
+
+
+突然想起来，马上就31号了。那么距离六月一号的肉猪通知也快了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 9590#       发表于 2020-5-30 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47619738&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-5-30 23:19</a>
+
+说来今天苔姨兔姨靠两大箱今天都过w了，希望以后能多继续抬一抬咩咩 ...</blockquote>
+讲道理苔姨兔姨拉的联动上w老常态了 不用大惊小怪 咩咩还是有时候能进她们大联动混脸熟的
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 9591#       发表于 2020-5-30 23:53
+
+
+
+
+别念了，太jb中二了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 9592#       发表于 2020-5-30 23:53
+
+
+
+
+这个发散我突然很服气潭友...
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9593#       发表于 2020-5-30 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47620073&amp;ptid=1929631" target="_blank">ashero 发表于 2020-5-30 23:49</a>
+讲道理苔姨兔姨拉的联动上w老常态了 不用大惊小怪 咩咩还是有时候能进她们大联动混脸熟的 ...</blockquote>
+就是想到企业势这么好的人脉和企划，也不知道咩姐以后会走她们的路还是另辟蹊径<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+都怪你咩姐唱歌，搞得我yhm化了<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9594#       发表于 2020-5-30 23:59
+
+
+
+
+我觉得不少新楼友啥时候都挺yhm的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9595#       发表于 2020-5-31 00:03
+
+
+
+
+你不困？！
+
+
+不， 我觉得你困
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 9596#       发表于 2020-5-31 00:03
+
+
+
+
+这干杯的弹幕不管什么时候我都想吐槽。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9597#       发表于 2020-5-31 00:04
+
+
+
+
+爽了，睡了
+
+
+
+
+
+                              
