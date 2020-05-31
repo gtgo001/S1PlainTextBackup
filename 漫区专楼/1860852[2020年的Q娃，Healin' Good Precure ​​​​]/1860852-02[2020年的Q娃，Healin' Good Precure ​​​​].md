@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-25 10:01** 
+> ## **本文件最后更新于2020-05-31 14:00** 
 
 
 
@@ -3370,7 +3370,7 @@ q娃消消乐很垃圾吗？</blockquote>又肝又难<img src="https://static.sa
 MKTN…… ​​​​
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gdagkpijrwj21400mi1ky.jpg" referrerpolicy="no-referrer">
 
-<img src="http://t.cn/A6Zc6oIF" id="aimg_xMgmP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="http://t.cn/A6Zc6oIF" id="aimg_BYm82" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 喝水
@@ -5156,7 +5156,7 @@ https://36kr.com/p/5308402
 
 
 
-<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_D53wD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EUz_shrU0AIJcKM?format=jpg&amp;name=large" id="aimg_B7GUM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 推特看到这个笑到ww
 https://twitter.com/dededeteiu/status/1246652373646229504?s=20
@@ -9152,4 +9152,491 @@ nice，停了几周来着，想她们了
 
 
 
-                                 
+
+
+-----
+
+####  lydia5989  
+##### 1985#       发表于 2020-5-25 11:49
+
+
+
+
+第五个没有q娃看的一周，想她<img src="https://static.saraba1st.com/image/smiley/goose2017/062.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 1986#       发表于 2020-5-25 11:57
+
+
+
+
+求治愈来两季呗
+
+反正又不是没先例<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1987#       发表于 2020-5-25 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47550071&amp;ptid=1860852" target="_blank">rar1536770 发表于 2020-5-25 11:57</a>
+
+求治愈来两季呗
+
+反正又不是没先例</blockquote>
+从现实疫情的发展时间看，两年真不算多
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1988#       发表于 2020-5-25 12:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47547224&amp;ptid=1860852" target="_blank">HGCG-闪 发表于 2020-5-25 06:32</a>
+
+据说下周复播</blockquote>
+朝日的节目单上的周日放第六集，还没更新啊
+
+
+
+
+
+
+
+-----
+
+####  雷之  
+##### 1989#       发表于 2020-5-25 16:24
+
+
+
+
+终于要来了吗
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  蓬莱妹红  
+##### 1990#       发表于 2020-5-25 16:46
+
+
+
+
+好想念她们啊
+
+
+
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1991#       发表于 2020-5-25 18:27
+
+
+
+<img src="https://p.sda1.dev/0/749582a77738f318f2a8adf13908b63f/2020-05-25_18-25-28.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 1992#       发表于 2020-5-25 19:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47550116&amp;ptid=1860852" target="_blank">lyflyflxf 发表于 2020-5-25 12:00</a>
+
+朝日的节目单上的周日放第六集，还没更新啊</blockquote>
+6月7日
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1993#       发表于 2020-5-26 09:14
+
+
+
+
+等得花都谢了
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1994#       发表于 2020-5-28 12:20
+
+
+
+<blockquote>HGCG-闪 发表于 2020-5-22 17:54
+</blockquote>
+怎么感觉这次又是抓心复刻？黄蓝对调。
+
+
+
+
+
+
+
+-----
+
+####  mchan  
+##### 1995#       发表于 2020-5-28 12:22
+
+
+
+<blockquote>rar1536770 发表于 2020-5-25 11:57
+求治愈来两季呗
+
+反正又不是没先例</blockquote>
+555
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1996#       发表于 2020-5-28 21:23
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa4des5j20v116h192.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74ly1gf6xa6gkhlj21ds0yutw1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa8m4zsj21dg0z6qra.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gf6xaarb9mj20w30vxapm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zglox4uj20u017dnd2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgmdlemj213a0u0ttr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zgml2d0j213t0u01f3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gf7zglxvp6j213l0u0ka3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgm52p2j213s0u0kd9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1997#       发表于 2020-5-28 21:25
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa4des5j20v116h192.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74ly1gf6xa6gkhlj21ds0yutw1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa8m4zsj21dg0z6qra.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gf6xaarb9mj20w30vxapm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zglox4uj20u017dnd2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgmdlemj213a0u0ttr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zgml2d0j213t0u01f3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gf7zglxvp6j213l0u0ka3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgm52p2j213s0u0kd9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1998#       发表于 2020-5-28 21:25
+
+
+
+
+test
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa4des5j20v116h192.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74ly1gf6xa6gkhlj21ds0yutw1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa8m4zsj21dg0z6qra.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gf6xaarb9mj20w30vxapm.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zglox4uj20u017dnd2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgmdlemj213a0u0ttr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zgml2d0j213t0u01f3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gf7zglxvp6j213l0u0ka3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgm52p2j213s0u0kd9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 1999#       发表于 2020-5-28 21:26
+
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa4des5j20v116h192.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/e7cbae74ly1gf6xa6gkhlj21ds0yutw1.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gf6xa8m4zsj21dg0z6qra.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74ly1gf6xaarb9mj20w30vxapm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2000#       发表于 2020-5-28 21:26
+
+
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zglox4uj20u017dnd2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgmdlemj213a0u0ttr.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gf7zgml2d0j213t0u01f3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gf7zglxvp6j213l0u0ka3.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gf7zgm52p2j213s0u0kd9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2001#       发表于 2020-5-28 23:04
+
+
+
+
+有实锤了吗
+
+
+
+
+
+
+
+-----
+
+####  reficul  
+##### 2002#       发表于 2020-5-28 23:09
+
+
+
+
+感动的再会
+
+
+
+
+
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2003#       发表于 2020-5-29 13:46
+
+
+
+
+这种情况下会砍集数吗？还是和原来一样，明年新的放送顺延？
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2004#       发表于 2020-5-30 18:47
+
+
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gfanywgkwej20gd06tjru.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gfanynuogmj20ka0grjss.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  达达葱2  
+##### 2005#       发表于 2020-5-31 00:03
+
+
+
+<blockquote>灼眼的夏娜酱 发表于 2020-5-29 13:46
+这种情况下会砍集数吗？还是和原来一样，明年新的放送顺延？</blockquote>
+肯定会砍的吧
+
+
+
+
+
+
+
+-----
+
+####  HGCG  
+##### 2006#       发表于 2020-5-31 00:04
+
+
+
+
+悲报：下周Q娃还是不复播 ​​​​
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gfax87cpqnj20lz093jve.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  三合一出现  
+##### 2007#       发表于 2020-5-31 09:56
+
+
+
+
+复播后要多少集能看出直接影响导致的问题？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  圆神最高  
+##### 2008#       发表于 2020-5-31 10:12
+
+
+
+
+惨，什么时候能看。。。
+
+
+
+
+
+
+
+-----
+
+####  rar1536770  
+##### 2009#       发表于 2020-5-31 10:13
+
+
+
+
+没有Q娃的第N周
+
+
+
+
+
+
+
+-----
+
+####  lydia5989  
+##### 2010#       发表于 2020-5-31 11:51
+
+
+
+
+第六个没有q娃看的一周，想她们<img src="https://static.saraba1st.com/image/smiley/goose2017/063.png" referrerpolicy="no-referrer"> 第七周也没得看
+
+
+
+
+
+
+
+-----
+
+####  loli公园巡游者  
+##### 2011#       发表于 2020-5-31 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 5G, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                                

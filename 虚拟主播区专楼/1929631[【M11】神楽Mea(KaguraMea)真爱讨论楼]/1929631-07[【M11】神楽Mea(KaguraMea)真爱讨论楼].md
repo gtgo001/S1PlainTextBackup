@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 02:05** 
+> ## **本文件最后更新于2020-05-31 14:03** 
 
 
 
@@ -10689,4 +10689,619 @@ yhm, 你好强大
 
 
 
-                            
+
+
+-----
+
+####  Mr.shelter  
+##### 9634#       发表于 2020-5-31 10:39
+
+
+
+
+saya那个视频有那味儿了(ಡωಡ) 。话说怎么bs剩下的人还不套皮出道呢？不说虹杏，现在还有海苔箱和咩pro可去(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9635#       发表于 2020-5-31 10:52
+
+
+
+
+不是生活所迫谁要当管人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9636#       发表于 2020-5-31 10:53
+
+
+
+
+人家想过正常人的生活不行吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9637#       发表于 2020-5-31 10:56
+
+
+
+ 本帖最后由 时雨rain 于 2020-5-31 10:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想当前年就当了
+syl<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">明天就能知道咩宝有什么惊喜了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 9638#       发表于 2020-5-31 11:03
+
+
+
+
+明天宣布跟我结婚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 9639#       发表于 2020-5-31 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">想看u18和yui出道啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9640#       发表于 2020-5-31 11:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1出道我当场起飞
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 9641#       发表于 2020-5-31 11:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">u18ra唱歌真的很好听，喜欢
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9642#       发表于 2020-5-31 11:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">又开始和平演变bs楼了，历史的重复
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9643#       发表于 2020-5-31 11:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">能不能爬去建bs真爱讨论楼啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 9644#       发表于 2020-5-31 11:45
+
+
+
+
+说真的，纯云的看完这视频才知道除了yui和u18r剩下俩人叫啥）<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 9645#       发表于 2020-5-31 11:46
+
+
+
+
+不少歌因为她唱了所以去听了，听了あとひとつ的原唱，对比了一下，果然声音还是带着未成熟的青涩感
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 9646#       发表于 2020-5-31 11:50
+
+
+
+
+有一说一，我心拍数是最近才听的原唱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜被咩洗  脑了已经
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9647#       发表于 2020-5-31 12:07
+
+
+
+
+1w6，起飞了起飞了
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 9648#       发表于 2020-5-31 12:28
+
+
+
+ 本帖最后由 静夜观星 于 2020-5-31 12:29 编辑 
+
+家有女友这OP也没多少管人能唱吧，而且还能唱出这种声嘶力竭的感觉，我觉得你咩姐这波完全可以吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 9649#       发表于 2020-5-31 13:04
+
+
+
+
+那个无断转载视频是人生翻的 他还有和saya的line记录 内鬼biss嗷 
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9650#       发表于 2020-5-31 13:05
+
+
+
+
+？和saya的line?
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 9651#       发表于 2020-5-31 13:08
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-31 13:05
+？和saya的line?</blockquote>
+又不是第一次了 除了被梅小姐耍了 msb也有联系方式 其他tc主播就不清楚了 那一伙人里面有个以太还和在tc播的jk私联
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9652#       发表于 2020-5-31 13:13
+
+
+
+
+草怎么做到的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9653#       发表于 2020-5-31 13:13
+
+
+
+
+2333
+
+他们是这样的
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 9654#       发表于 2020-5-31 13:15
+
+
+
+
+不会又是扣裙人吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9655#       发表于 2020-5-31 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给梅小姐耍了又是啥事，咋说话一句一个大霹雳....
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 9656#       发表于 2020-5-31 13:19
+
+
+
+
+不用想，小狼群出来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9657#       发表于 2020-5-31 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小狼群不是炸了吗
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 9658#       发表于 2020-5-31 13:30
+
+
+
+
+可能是穿了复活甲
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 9659#       发表于 2020-5-31 13:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9660#       发表于 2020-5-31 13:41
+
+
+
+
+害，经典老番啊，我说呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 9661#       发表于 2020-5-31 13:41
+
+
+
+ 本帖最后由 清珏 于 2020-5-31 13:50 编辑 
+
+以为没发出来 省一楼 编辑了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9662#       发表于 2020-5-31 13:44
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-5-31 13:58 编辑 
+
+编辑
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 9663#       发表于 2020-5-31 13:45
+
+
+
+
+你麻以前不是说个有个变态一直求着她接电话，虽然她不想理，但求多了她还是答应了的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+yhm还是挺好骗的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9664#       发表于 2020-5-31 13:48
+
+
+
+
+管人界的私生饭？
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 9665#       发表于 2020-5-31 13:48
+
+
+
+<blockquote>笋狐 发表于 2020-5-31 13:18
+给梅小姐耍了又是啥事，咋说话一句一个大霹雳....</blockquote>
+这事当初在净土也有楼 bfm转回前世那会儿 人生雨水那伙人抢先bfm组私信梅小姐 以为要到了授权 建了羊肉餐厅 结果梅小姐给的只是转载许可 回头就建了offcial。当时他们挺气急败坏的 不过还不死心 又去找了msb。 最近人生晒line记录 才知道又找了saya 贼喊捉贼
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 9666#       发表于 2020-5-31 13:48
+
+
+
+
+这什么心理呀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 9667#       发表于 2020-5-31 13:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">原来是之前抢授权那事，B动态没开起来好像不了了之来着....
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说来梅小姐从光速入驻后好像一次都没来过
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 9668#       发表于 2020-5-31 13:50
+
+
+
+
+这么说那些18年的老观众是不是也有小麻的line<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 9669#       发表于 2020-5-31 13:54
+
+
+
+<blockquote>Mr.shelter 发表于 2020-5-31 13:48
+这什么心理呀</blockquote>
+二鬼子啊 不完全推这个v 更多是为了在其他管人粉面前表示和这个v中之人/相关人熟的优越感 
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 9670#       发表于 2020-5-31 13:59
+
+
+
+
+要说私生也不至于 tc樱花妹的line和discord也不是那么难拿 观众私信其实挺正常。不是人生这次翻译视频 贼喊捉贼 我都懒得说的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 9671#       发表于 2020-5-31 14:03
+
+
+
+
+警惕和平演变生主太监讨论楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                           

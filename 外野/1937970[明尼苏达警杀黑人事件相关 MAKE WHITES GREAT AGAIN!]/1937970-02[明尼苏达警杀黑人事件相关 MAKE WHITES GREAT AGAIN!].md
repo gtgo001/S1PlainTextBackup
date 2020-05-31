@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 12:09** 
+> ## **本文件最后更新于2020-05-31 14:08** 
 
 
 
@@ -840,10 +840,13 @@ The agent provocateur that started the riots in Minneapolis turns out to be ...<
 
 
 
- 参与人数 17战斗力 -21
+ 参与人数 20战斗力 -27
 
 |昵称|战斗力|理由|
 |----|---|---|
+| featherwit|-2|割喉烧人IED|
+| wolftooth|-2|那个被烧伤的大爷还记得吗？|
+| 幻之妖精|-2||
 | yuwe0714|-1|啊这，打字把脑子打稀烂了吧|
 | DeepWhite|-2|给爹滚|
 | hellgate22|-1||
@@ -1589,6 +1592,26 @@ Derek Chauvin的老婆说要跟他离婚了 https://abcnews.go.com/US/wife-derek
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这属性加一起也太艹了.
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| chaowuiwangyan| + 2|平衡|
+| water|-2|就事论事，翻旧账过于卑鄙|
+
+
+
+查看全部评分
 
 
 
@@ -2920,10 +2943,11 @@ https://b23.tv/RNovt7</blockquote>
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 余海露| + 1|要恰饭的嘛|
 | faithlifer| + 1|好评加鹅|
 
 
@@ -3104,11 +3128,32 @@ Linda Tirado, a freelance photographer, activist and author, was shot in the lef
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+ 本帖最后由 zmw_831110 于 2020-5-31 12:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">重口注意
 [https://m.weibo.cn/5721376081/4510607750090344](https://m.weibo.cn/5721376081/4510607750090344)
 
 —— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| water| + 1|艹|
+
+
+
+查看全部评分
 
 
 
@@ -3434,4 +3479,2653 @@ https://m.weibo.cn/5721376081/4510607750090344
 
 
 
-                                            
+
+
+-----
+
+####  robertjiong  
+##### 1670#       发表于 2020-5-31 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623871&amp;ptid=1937970" target="_blank">vampiar 发表于 2020-5-31 11:57</a>
+来个汉末剧本，各州刺史军阀混战</blockquote>
+说起来b站上有一个会说中文 还对中国历史有点了解的美国人说 美国的州长本来就是类似汉末半独立的州牧 所以他说美国的州不会独立 因为美国的州本来就是独立的了 美国要是分裂就是美国的精神死了的时候才可能
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 1671#       发表于 2020-5-31 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623949&amp;ptid=1937970" target="_blank">巫师萨满 发表于 2020-5-31 12:04</a>
+
+这是抢东西还是司机碾人啊
+
+
+—— 来自 vivo NEX A, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+看起来是先抢东西然后司机一脚油门   这条街看起来空空荡荡 拦车的目的不难想象
+
+
+
+
+
+
+
+-----
+
+####  qi147iq  
+##### 1672#       发表于 2020-5-31 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+
+https://m.weibo.cn/5721376081/4510607750090344
+
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+S1天天喜欢说国内鹅害鹅，和把杀人执照，暴力执法许可下放到基层的USA比，国内这算个屁啊。
+
+
+
+
+
+
+
+-----
+
+####  新常态  
+##### 1673#       发表于 2020-5-31 12:13
+
+
+
+
+44d象棋：ykw之所以不管事是希望白宫被烧，翻修的时候好刷成金色的可能性微存？
+
+
+
+
+
+
+
+-----
+
+####  yukino1981  
+##### 1674#       发表于 2020-5-31 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623912&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-31 12:01</a>
+
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+不要骗我啊，太草了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  astrayl  
+##### 1675#       发表于 2020-5-31 12:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时间要选东8区4号啊，懂王
+
+
+
+
+
+
+
+-----
+
+####  克鲁特尼  
+##### 1676#       发表于 2020-5-31 12:14
+
+
+
+<blockquote>山本聪 发表于 2020-5-31 12:01
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+。。。这真不是段子？
+
+
+
+
+
+
+
+-----
+
+####  barry.allen  
+##### 1677#       发表于 2020-5-31 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623135&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-31 10:51</a>
+
+被直播镜头捕捉真是妙 老头估计就是出来晒太阳的 虽然不懂他为什么这个形势还出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能没想到盐湖城会出事。
+
+
+犹他州**大本营
+
+
+
+
+
+
+
+-----
+
+####  Biblia  
+##### 1678#       发表于 2020-5-31 12:16
+
+
+
+
+刘晓骞这小哥真的是上刀山下火海啊，牛逼牛逼
+
+
+
+
+
+
+
+-----
+
+####  GarwinA  
+##### 1679#       发表于 2020-5-31 12:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623721&amp;ptid=1937970" target="_blank">roy1996 发表于 2020-5-31 11:43</a>
+Linda Tirado, a freelance photographer, activist and author, was shot in the left eye Friday while c ...</blockquote>
+历史重演…
+
+
+
+
+
+
+
+-----
+
+####  哥哥不要  
+##### 1680#       发表于 2020-5-31 12:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">到时请务必出动水柜清场，做成动图对比去打那群天天拿水柜图曲解事实的港灿蛙蛙和白皮的脸
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  洛拉斯  
+##### 1681#       发表于 2020-5-31 12:19
+
+
+
+
+明州州长发表演讲说有外国势力参与了
+
+
+哈哈哈，外国cia
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 1682#       发表于 2020-5-31 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623990&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 12:09</a>
+
+说起来b站上有一个会说中文 还对中国历史有点了解的美国人说 美国的州长本来就是类似汉末半独立的州牧 所 ...</blockquote>
+严酷王还没到董先森的地步吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1683#       发表于 2020-5-31 12:21
+
+
+
+
+发现HK一废青Protester在明尼版向美国Rioters传授冒险经验的帖子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  挂命贵  
+##### 1684#       发表于 2020-5-31 12:21
+
+
+
+
+感觉美帝这样下去，会限制口罩出售了啊
+
+
+
+
+
+
+
+-----
+
+####  Joreder  
+##### 1685#       发表于 2020-5-31 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+
+https://m.weibo.cn/5721376081/4510607750090344
+
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+重口不标内野见<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 1686#       发表于 2020-5-31 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624125&amp;ptid=1937970" target="_blank">挂命贵 发表于 2020-5-31 12:21</a>
+
+感觉美帝这样下去，会限制口罩出售了啊</blockquote>
+这样不更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1687#       发表于 2020-5-31 12:24
+
+
+
+
+那么…就加油坚持到4号吧…
+
+
+
+
+
+
+
+-----
+
+####  叹希奇  
+##### 1688#       发表于 2020-5-31 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623135&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-31 10:51</a>
+
+被直播镜头捕捉真是妙 老头估计就是出来晒太阳的 虽然不懂他为什么这个形势还出来 ...</blockquote>
+还好是白人，大发慈悲的去扶了人家，要是黑人，就又可以压脖子啦。。
+
+
+
+
+
+
+
+-----
+
+####  掌界  
+##### 1689#       发表于 2020-5-31 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623944&amp;ptid=1937970" target="_blank">000000 发表于 2020-5-31 12:04</a>
+
+trevor老粉的话都知道，他在约翰内斯堡长大，人生偶像是德斯蒙德图图……
+
+
+所以对种族泥潭的解决理念是俄 ...</blockquote>
+查了一下，是宽恕的圣父
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 1690#       发表于 2020-5-31 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624122&amp;ptid=1937970" target="_blank">aabbaa1 发表于 2020-5-31 12:21</a>
+
+发现HK一废青Protester在明尼版向美国Rioters传授冒险经验的帖子</blockquote>
+废青是真的井蛙，关公面前耍大刀
+
+
+
+
+
+
+
+-----
+
+####  powerpyc  
+##### 1691#       发表于 2020-5-31 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624122&amp;ptid=1937970" target="_blank">aabbaa1 发表于 2020-5-31 12:21</a>
+
+发现HK一废青Protester在明尼版向美国Rioters传授冒险经验的帖子</blockquote>
+这个帖子在哪好好奇哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  ECly  
+##### 1692#       发表于 2020-5-31 12:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624105&amp;ptid=1937970" target="_blank">洛拉斯 发表于 2020-5-31 12:19</a>
+明州州长发表演讲说有外国势力参与了
+
+
+哈哈哈，外国cia</blockquote>
+确实，杭抗人有远程参与
+
+— from Xiaomi MI 8 Lite, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1693#       发表于 2020-5-31 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624211&amp;ptid=1937970" target="_blank">powerpyc 发表于 2020-5-31 12:28</a>
+
+这个帖子在哪好好奇哈哈哈</blockquote>
+[https://www.reddit.com/r/Minneap ... ntline_first_aider/](https://www.reddit.com/r/Minneapolis/comments/gst0y3/hi_minneapolis_ive_been_a_frontline_first_aider/)
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1694#       发表于 2020-5-31 12:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624204&amp;ptid=1937970" target="_blank">黑兽 发表于 2020-5-31 12:28</a>
+
+废青是真的井蛙，关公面前耍大刀</blockquote>
+人家是有备而来，专业的一批。
+ <blockquote>Body:
+
+- Team Wendy Exfil SAR Helmet with rail light and ballistic goggles attached
+
+- Knee pads
+
+- Gas mask pouch with MSA Millenium Gas Mask
+
+- Belt with small items holder, trauma shears, tourniquet, tape holder
+
+- Phone with Zello to communicate with my teammates
+
+- Bluetooth earpiece
+
+
+Trauma Kit:
+
+- Stethoscope
+
+- Pulse oximeter
+
+- BP cuff
+
+- Pupil dilator
+
+- Dextrose tablets
+
+- Energy bars
+
+- ARS Needle x1
+
+- Hyfin Compact Chest Seals x1
+
+- 6' Israeli bandage x3
+
+- H&amp;H Flat Fold Pressure Bandage x1
+
+- TMT tourniquet x1
+
+- NAR Compressed Gauze x3
+
+- Combat Gauze x3
+
+- OPA of 4 sizes
+
+- NPA size 28 x1
+
+- Bandaids of assorted sizes
+
+- SAM Splints x3
+
+- Arm sling x1
+
+- Finger splints x1
+
+
+Statpacks G3 Advanced Vest
+
+- Sudecon Decontamination Wipes x15
+
+- Assorted gauze
+
+- Ace bandage x5
+
+- Shit tonne of saline bullets
+
+- Chlorohexidine bullets
+
+- Burn dressings (waterjel)
+
+- Heatpacks
+
+- Mylar blankets
+
+- Shit tonne of ice packs
+
+- Nitrile gloves attached to the outside
+
+- EMR Cert in the card holder
+
+- Placards that identify me as a first aider</blockquote>
+
+
+
+
+
+
+
+
+-----
+
+####  处男鉴黄师  
+##### 1695#       发表于 2020-5-31 12:33
+
+
+
+<blockquote>Joreder 发表于 2020-5-31 12:23
+重口不标内野见</blockquote>
+艹，人都摩擦出火花了，但地面没有血迹，这是钢铁侠吗
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 1696#       发表于 2020-5-31 12:34
+
+
+
+ 本帖最后由 黑兽 于 2020-5-31 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624249&amp;ptid=1937970" target="_blank">aabbaa1 发表于 2020-5-31 12:32</a>
+
+人家是有备而来，专业的一批。</blockquote>
+CIA经费+中国制造业，两大强国伺候出来的，也算他自己的本事？
+
+
+划个购物单就想对抗美军这幼稚感也是惊人
+
+
+
+
+
+
+
+-----
+
+####  拉格朗日乘数法  
+##### 1697#       发表于 2020-5-31 12:34
+
+
+
+<img src="https://is2.4chan.org/pol/1590897960820.jpg" referrerpolicy="no-referrer">
+
+一持剑男子在保护商店时被示威者打成重伤。美国不是人人持枪吗，怎么现在一堆弓箭手战士职业冒出来了
+
+
+
+
+
+
+
+-----
+
+####  草海灭巨  
+##### 1698#       发表于 2020-5-31 12:34
+
+
+
+
+有生之年能看到美国之春了吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cd112332255  
+##### 1699#       发表于 2020-5-31 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624002&amp;ptid=1937970" target="_blank">qi147iq 发表于 2020-5-31 12:10</a>
+S1天天喜欢说国内鹅害鹅，和把杀人执照，暴力执法许可下放到基层的USA比，国内这算个屁啊。 ...</blockquote>
+我觉得没区别，一个是“阿瓦达索命”，一个是“钻心剜骨”，都是不可饶恕咒<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+—— 来自 asus ASUS_Z01HDA, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zuckerfrei|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  漫区专号  
+##### 1700#       发表于 2020-5-31 12:35
+
+
+
+
+瞄了一眼，现在美国社交网上在呼吁“美国之春”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  戏谑二次元  
+##### 1701#       发表于 2020-5-31 12:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624273&amp;ptid=1937970" target="_blank">漫区专号 发表于 2020-5-31 12:35</a>
+瞄了一眼，现在美国社交网上在呼吁“美国之春”</blockquote>
+这是啥，孽力回馈？
+
+
+
+
+
+
+
+-----
+
+####  盲目者  
+##### 1702#       发表于 2020-5-31 12:36
+
+
+
+
+孤烟暮蝉：芝加哥警察的马被抢了[笑cry]，笑到头掉 [http://t.cn/A62onLLK](http://t.cn/A62onLLK) 
+
+[https://video.h5.weibo.cn/1034:4510595785883667/4510595892211713](https://video.h5.weibo.cn/1034:4510595785883667/4510595892211713)
+
+抢🐴了
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 4790d| + 1|你🐴没了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1703#       发表于 2020-5-31 12:37
+
+
+
+
+两党都不可能愿意这种发生吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桑书记这种除外
+
+
+
+
+
+
+
+-----
+
+####  jiklp88  
+##### 1704#       发表于 2020-5-31 12:37
+
+
+
+<blockquote>cd112332255 发表于 2020-5-31 12:35
+我觉得没区别，一个是“阿瓦达索命”，一个是“钻心剜骨”，都是不可饶恕咒
+
+
+—— 来自 asus ASUS ...</blockquote>
+没区别可还行
+
+
+
+
+
+
+
+-----
+
+####  文艺复兴  
+##### 1705#       发表于 2020-5-31 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623990&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 12:09</a>
+
+说起来b站上有一个会说中文 还对中国历史有点了解的美国人说 美国的州长本来就是类似汉末半独立的州牧 所 ...</blockquote>
+那个up叫在下邦德老师
+
+
+
+
+
+
+
+-----
+
+####  qi147iq  
+##### 1706#       发表于 2020-5-31 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624271&amp;ptid=1937970" target="_blank">cd112332255 发表于 2020-5-31 12:35</a>
+
+我觉得没区别，一个是“阿瓦达索命”，一个是“钻心剜骨”，都是不可饶恕咒
+
+
+—— 来自 asus ASUS ...</blockquote>
+。你这是在阴间发的帖子？
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 1707#       发表于 2020-5-31 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+
+https://m.weibo.cn/5721376081/4510607750090344
+
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+草，这种场景只有大方里能看到啊…… 我真心希望这是卡车司机没看到人，但怎么看都像是故意的……
+
+
+
+
+
+
+
+-----
+
+####  空月の梦  
+##### 1708#       发表于 2020-5-31 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623912&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-31 12:01</a>
+
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+假消息吧，你玩这个梗不怕被封号？
+
+
+
+
+
+
+
+-----
+
+####  HughNoman  
+##### 1709#       发表于 2020-5-31 12:39
+
+
+
+<blockquote>aabbaa1 发表于 2020-5-31 12:21
+发现HK一废青Protester在明尼版向美国Rioters传授冒险经验的帖子</blockquote>
+有外国势力参与！！
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1710#       发表于 2020-5-31 12:39
+
+
+
+
+我比较好奇大芳会不会上这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 1711#       发表于 2020-5-31 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+https://m.weibo.cn/5721376081/4510607750090344
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+中间是不是某些limb飞出来了....<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ごろ  
+##### 1712#       发表于 2020-5-31 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+https://m.weibo.cn/5721376081/4510607750090344
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">中……中途好像掉了个零件啊
+没敢看完，标一下重口吧
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 1713#       发表于 2020-5-31 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624287&amp;ptid=1937970" target="_blank">盲目者 发表于 2020-5-31 12:36</a>
+孤烟暮蝉：芝加哥警察的马被抢了[笑cry]，笑到头掉 http://t.cn/A62onLLK 
+
+https://video.h5.weibo.cn/103 ...</blockquote>
+喊那一声给我笑傻了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">FREEDOM!
+
+—— 来自 vivo NEX A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  日了狗了  
+##### 1714#       发表于 2020-5-31 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624287&amp;ptid=1937970" target="_blank">盲目者 发表于 2020-5-31 12:36</a>
+
+孤烟暮蝉：芝加哥警察的马被抢了[笑cry]，笑到头掉 http://t.cn/A62onLLK 
+
+
+https://video.h5.weibo.cn/103 ...</blockquote>
+你妈哦不马没了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1715#       发表于 2020-5-31 12:41
+
+
+
+
+wocao看了一下日子，这几天会不会愈演愈烈呢？好期待呀。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1716#       发表于 2020-5-31 12:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/124331mwiku3v5013wc5wq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200531124318.jpg</strong> (11.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 12:43 上传
+
+
+
+
+
+
+
+WOCAOWOCAOWOCAO<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1717#       发表于 2020-5-31 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624265&amp;ptid=1937970" target="_blank">拉格朗日乘数法 发表于 2020-5-31 12:34</a>
+一持剑男子在保护商店时被示威者打成重伤。美国不是人人持枪吗，怎么现在一堆弓箭手战士职业冒出来了 ...</blockquote>
+比枪便宜……
+
+
+
+
+
+
+
+-----
+
+####  saynie  
+##### 1718#       发表于 2020-5-31 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624287&amp;ptid=1937970" target="_blank">盲目者 发表于 2020-5-31 12:36</a>
+
+孤烟暮蝉：芝加哥警察的马被抢了[笑cry]，笑到头掉 http://t.cn/A62onLLK 
+
+
+https://video.h5.weibo.cn/103 ...</blockquote>
+真人GTA+真人骑砍<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1719#       发表于 2020-5-31 12:45
+
+
+
+
+IS NOW DRIVING IT THROUGH THE STREETS<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  漫区专号  
+##### 1720#       发表于 2020-5-31 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624279&amp;ptid=1937970" target="_blank">戏谑二次元 发表于 2020-5-31 12:36</a>
+
+这是啥，孽力回馈？</blockquote>
+#AmericanSpring
+
+
+一个没有预料到的新标签<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sekai-R  
+##### 1721#       发表于 2020-5-31 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622926&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 10:26</a>
+
+盐湖城特警推到了一个拄着拐杖的老年人
+
+
+https://m.weibo.cn/5721376081/4510587340209989 ...</blockquote>
+想起之前拥枪派的一个说法铳能让老人女人小孩都有能力反抗暴徒，换个角度就是说街上站着的无论老弱病残只要有铳就能对警察产生威胁，这样警察为了自保所有可能拿枪的威胁都不会放过，现实版的黑暗森林<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  五块太贵不买了  
+##### 1722#       发表于 2020-5-31 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624345&amp;ptid=1937970" target="_blank">aabbaa1 发表于 2020-5-31 12:41</a>
+wocao看了一下日子，这几天会不会愈演愈烈呢？好期待呀。</blockquote>
+这也能想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，确实有点期待了，上面的新闻让看戏的要高兴了
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1723#       发表于 2020-5-31 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624391&amp;ptid=1937970" target="_blank">漫区专号 发表于 2020-5-31 12:45</a>
+
+#AmericanSpring
+
+
+一个没有预料到的新标签</blockquote>
+艹，今天就指着这个笑话活着了，真真孽力回馈来得这么快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  御坂MKII  
+##### 1724#       发表于 2020-5-31 12:49
+
+
+
+
+水箱这个好像是旧的 推上搜 tank stolen 可以找到
+
+—— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1725#       发表于 2020-5-31 12:53
+
+
+
+<blockquote>robertjiong 发表于 2020-5-31 12:37
+两党都不可能愿意这种发生吧桑书记这种除外</blockquote>
+桑德斯没坚持到现在跟懂王打对台可惜了 ヽ(°∀°)ﾉ
+
+
+
+
+
+
+
+-----
+
+####  Lord_Voldemort  
+##### 1726#       发表于 2020-5-31 12:55
+
+
+
+
+外国势力？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  tiktok就是你了，传播仇恨视频
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 1727#       发表于 2020-5-31 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624489&amp;ptid=1937970" target="_blank">Vneet 发表于 2020-5-31 12:53</a>
+
+桑德斯没坚持到现在跟懂王打对台可惜了 ヽ(°∀°)ﾉ</blockquote>
+算了吧 老工贼都阳痿了2次了 不能指望
+
+
+
+
+
+
+
+-----
+
+####  洗刷刷  
+##### 1728#       发表于 2020-5-31 12:58
+
+
+
+
+美国这次“ge命”的条件已经集齐了——一个昏庸的疯王，2300w失业人群，积压已久的社会矛盾，还有一次流血暴力事件作为导火索。现在只需要一个纲领，一个领袖。希望有人能在历史的选择人民的呼声下站出来，给美利坚再盖一铲土。历史的车轮真的是七缸涡轮增压级往前滚啊！
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1729#       发表于 2020-5-31 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624448&amp;ptid=1937970" target="_blank">御坂MKII 发表于 2020-5-31 12:49</a>
+
+水箱这个好像是旧的 推上搜 tank stolen 可以找到
+
+
+—— 来自 Xiaomi Mi 10 Pro, Android 10上的 S1Next-鹅 ...</blockquote>
+嗯，台湾傻事刚才辟谣了，18年的。
+
+
+
+
+
+
+
+-----
+
+####  gundammarkⅡ  
+##### 1730#       发表于 2020-5-31 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">这不是个好机会麼，民主自由的大国亲自示范如何平息这破事，为其他国家树立榜样
+
+
+
+
+
+
+
+-----
+
+####  aabbaa1  
+##### 1731#       发表于 2020-5-31 12:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624542&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-31 12:58</a>
+
+美国这次“ge命”的条件已经集齐了——一个昏庸的疯王，2300w失业人群，积压已久的社会矛盾，还有一次流血 ...</blockquote>
+边ge命边群体免疫<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ARCtrooper  
+##### 1732#       发表于 2020-5-31 13:00
+
+
+
+ 本帖最后由 ARCtrooper 于 2020-5-31 13:26 编辑 
+
+矛盾其实由来已久这种话虽然是废话，不过翻到一条老新闻觉得美国这执法机构也真是可以
+
+[https://www.twincities.com/2009/ ... stioned-in-lawsuit/](https://www.twincities.com/2009/01/10/ruben-rosario-cops-off-duty-club-questioned-in-lawsuit/)
+
+
+警察俱乐部网站张贴成员穿戴kkk 纳粹符号的照片。参与者包括Robert Kroll，现明尼阿波利斯警察工会主 席。而且这也不是他第一次表露种族主义倾向了。
+
+
+
+
+
+
+
+-----
+
+####  南条一间  
+##### 1733#       发表于 2020-5-31 13:00
+
+
+
+
+突然有一个做一个关于阶/级的视频上传到youtube上，帮黑人老哥们补充理论弹药的想法<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuan1992| + 1|做完来留个地址|
+| 秋月长风| + 1|支持|
+| МаксФёд| + 1|支持|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1734#       发表于 2020-5-31 13:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要进一步加速是不是只能靠新老师了，比如一个呼吸机一个白人一个黑人，让黑人签字自求多福，至于精英黑人，精英黑人当然感染不了啦
+
+
+
+
+
+
+
+-----
+
+####  葛雷新  
+##### 1735#       发表于 2020-5-31 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624542&amp;ptid=1937970" target="_blank">洗刷刷 发表于 2020-5-31 12:58</a>
+
+美国这次“ge命”的条件已经集齐了——一个昏庸的疯王，2300w失业人群，积压已久的社会矛盾，还有一次流血 ...</blockquote>
+是4000W失业群众了
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 1736#       发表于 2020-5-31 13:02
+
+
+
+
+郁可唯居然还在推特上拱火，说应该两天前就上国民警卫队……说真的推特应该赶紧把这老年痴呆的号塞了，他现在除了激化矛盾什么作用都没有
+
+
+
+
+
+
+
+-----
+
+####  barry.allen  
+##### 1737#       发表于 2020-5-31 13:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特已经有人歪到火山了
+
+
+“火山一年抓了9000人，某超级大国6天抓了3000人”
+
+
+
+
+
+
+
+-----
+
+####  克鲁特尼  
+##### 1738#       发表于 2020-5-31 13:06
+
+
+
+<blockquote>半江瑟瑟半江红 发表于 2020-5-31 13:02
+郁可唯居然还在推特上拱火，说应该两天前就上国民警卫队……说真的推特应该赶紧把这老年痴呆的号塞了，他现 ...</blockquote>
+妈诶，前几页那个段子会不会最后被郁可唯拱火拱成真的？
+
+
+
+
+
+
+
+-----
+
+####  飞霞精灵  
+##### 1739#       发表于 2020-5-31 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624605&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-31 13:02</a>
+
+郁可唯居然还在推特上拱火，说应该两天前就上国民警卫队……说真的推特应该赶紧把这老年痴呆的号塞了，他现 ...</blockquote>
+之前奥巴马那时候也有黑人被杀，他站出来说我和黑人站一块时候，国内还有人骂他太政确。
+
+现在一对比看看，真就境界和手段都有差距。
+
+
+
+
+
+
+
+-----
+
+####  cd112332255  
+##### 1740#       发表于 2020-5-31 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624308&amp;ptid=1937970" target="_blank">qi147iq 发表于 2020-5-31 12:37</a>
+。你这是在阴间发的帖子？</blockquote>
+我想表达的意思和对你的回复稍微有点误差。我想说的是上层对下层的压榨上来说没啥区别，鹅害鹅这种挑拨群众斗群众只是其中之一。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+你要理解一下“我想到了个很酷的点子，我一定要发出来”的心情吧<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+—— 来自 asus ASUS_Z01HDA, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| camelia_vie|-2|好评加鹅|
+| Zuckerfrei|-1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 1741#       发表于 2020-5-31 13:07
+
+
+
+ 本帖最后由 艾登皮尔斯 于 2020-5-31 13:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624605&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-31 13:02</a>
+郁可唯居然还在推特上拱火，说应该两天前就上国民警卫队……说真的推特应该赶紧把这老年痴呆的号塞了，他现 ...</blockquote>
+Ykw都已经要限制推特了还敢封号呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕是到时候把你全公司都扬了。
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1742#       发表于 2020-5-31 13:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624647&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-31 13:07</a>
+之前奥巴马那时候也有黑人被杀，他站出来说我和黑人站一块时候，国内还有人骂他太政确。
+
+现在一对比看看 ...</blockquote>
+基本盘不一样，油漏壶能上来，全靠白人低端人口
+
+
+
+
+
+
+
+-----
+
+####  艾登皮尔斯  
+##### 1743#       发表于 2020-5-31 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624647&amp;ptid=1937970" target="_blank">飞霞精灵 发表于 2020-5-31 13:07</a>
+之前奥巴马那时候也有黑人被杀，他站出来说我和黑人站一块时候，国内还有人骂他太政确。
+
+现在一对比看看 ...</blockquote>
+没有对比就没有差距
+
+
+
+
+
+
+
+-----
+
+####  约翰里德  
+##### 1744#       发表于 2020-5-31 13:10
+
+
+
+
+联邦政府原本就腐朽不堪，真要是内战了请大家支持我们CSA, thanks!
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 1745#       发表于 2020-5-31 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624581&amp;ptid=1937970" target="_blank">南条一间 发表于 2020-5-31 13:00</a>
+突然有一个做一个关于阶/级的视频上传到youtube上，帮黑人老哥们补充理论弹药的想法
+
+  -- 来自 能 ...</blockquote>
+限流警告⚠️<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  云梦泽岸  
+##### 1746#       发表于 2020-5-31 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624581&amp;ptid=1937970" target="_blank">南条一间 发表于 2020-5-31 13:00</a>
+
+突然有一个做一个关于阶/级的视频上传到youtube上，帮黑人老哥们补充理论弹药的想法
+
+
+  -- 来自 能 ...</blockquote>
+已经有港/粹们在推上积极传授“先进经验”了，从挑选个人装备到打造街垒一应俱全，静待太平洋两岸来个大串联。
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1747#       发表于 2020-5-31 13:15
+
+
+
+
+实时播报：【印第安纳波利斯抗议活动中3人中枪，1人死亡】据CNN报道，印第安纳波利斯警局局长兰德尔·泰勒在新闻发布会上说，周六晚上印第安纳波利斯市中心发生抗议活动，期间至少有三人中枪，一人死亡。该局长说，警方仍在调查事件，并建议市民避开该地区。他补充说，一名警官也受到轻伤。（中国日报网）
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1748#       发表于 2020-5-31 13:16
+
+
+
+<blockquote>saverok 发表于 2020-5-31 12:56
+算了吧 老工贼都阳痿了2次了 不能指望</blockquote>
+这老工贼固然不争气，不然坚持到现在的话，结合内忧外患，绝对会成了一个很具戏剧性的“领袖”（即使改变不了什么）。
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 1749#       发表于 2020-5-31 13:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624708&amp;ptid=1937970" target="_blank">云梦泽岸 发表于 2020-5-31 13:12</a>
+
+已经有港/粹们在推上积极传授“先进经验”了，从挑选个人装备到打造街垒一应俱全，静待太平洋两岸来个大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">变相等于是cia培养技术在自家搞
+
+
+伟大的无产阶级革命导师cia！
+
+
+
+
+
+
+
+-----
+
+####  zerona  
+##### 1750#       发表于 2020-5-31 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624309&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-31 12:38</a>
+
+草，这种场景只有大方里能看到啊…… 我真心希望这是卡车司机没看到人，但怎么看都像是故意的…… ...</blockquote>
+应该是看不到。但司机肯定是抱着不管不顾的态度踩油门的。
+
+
+
+
+
+
+
+-----
+
+####  海域生还者  
+##### 1751#       发表于 2020-5-31 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624708&amp;ptid=1937970" target="_blank">云梦泽岸 发表于 2020-5-31 13:12</a>
+已经有港/粹们在推上积极传授“先进经验”了，从挑选个人装备到打造街垒一应俱全，静待太平洋两岸来个大 ...</blockquote>
+本来就是CIA教的，只能说回归本国<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掌界  
+##### 1752#       发表于 2020-5-31 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624654&amp;ptid=1937970" target="_blank">cd112332255 发表于 2020-5-31 13:07</a>
+
+我想表达的意思和对你的回复稍微有点误差。我想说的是上层对下层的压榨上来说没啥区别，鹅害鹅这种挑拨群 ...</blockquote>
+压榨没区别国内就不会花钱在这次抗疫了
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 1753#       发表于 2020-5-31 13:20
+
+
+
+
+ 玩梗的会被塞抹布
+
+
+
+
+
+
+
+-----
+
+####  thisism  
+##### 1754#       发表于 2020-5-31 13:21
+
+
+
+
+先进个屁。都是cia的出口转内销。
+
+
+现在没啥好过于乐观。美国应该依然具有弹性。暴力机关没出成规模的内鬼不大可能踢一脚就塌了  看热闹倒是不错
+
+
+
+
+
+
+
+-----
+
+####  雨落飘零  
+##### 1755#       发表于 2020-5-31 13:22
+
+
+
+<blockquote>cd112332255 发表于 2020-5-31 13:07
+我想表达的意思和对你的回复稍微有点误差。我想说的是上层对下层的压榨上来说没啥区别，鹅害鹅这种挑拨群 ...</blockquote>
+如果疫情没发生，那可能还真是这样，在疫情中才能看出，决定性的不同。很多人开玩笑说我们这里是“资本主义最后的堡垒”，这话说得久了好像各个都不当它是玩笑啦？
+
+
+
+
+
+
+
+-----
+
+####  zerona  
+##### 1756#       发表于 2020-5-31 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624708&amp;ptid=1937970" target="_blank">云梦泽岸 发表于 2020-5-31 13:12</a>
+
+已经有港/粹们在推上积极传授“先进经验”了，从挑选个人装备到打造街垒一应俱全，静待太平洋两岸来个大 ...</blockquote>
+美帝又不吝上设备……
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1757#       发表于 2020-5-31 13:24
+
+
+
+<blockquote>飞霞精灵 发表于 2020-5-31 13:07
+之前奥巴马那时候也有黑人被杀，他站出来说我和黑人站一块时候，国内还有人骂他太政确。
+
+现在一对比看看 ...</blockquote>
+现在回过头来看，小树丛和奥黑奸只是坏，郁可唯是又疯又坏，成事不足，败事效果翻倍。
+
+
+
+
+
+
+
+-----
+
+####  韶光易碎  
+##### 1758#       发表于 2020-5-31 13:29
+
+
+
+ 本帖最后由 韶光易碎 于 2020-5-31 13:38 编辑 
+
+编辑掉
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 1759#       发表于 2020-5-31 13:30
+
+
+
+
+看完国内抗疫，还能说出压榨没区别这种话？
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 1760#       发表于 2020-5-31 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624581&amp;ptid=1937970" target="_blank">南条一间 发表于 2020-5-31 13:00</a>
+
+突然有一个做一个关于阶/级的视频上传到**上，帮黑人老哥们补充理论弹药的想法
+
+
+  -- 来自 能 ...</blockquote>
+中国人不需要掺和，只会让舆论复杂化
+
+
+
+
+
+
+
+-----
+
+####  中二骚年  
+##### 1761#       发表于 2020-5-31 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624332&amp;ptid=1937970" target="_blank">巫师萨满 发表于 2020-5-31 12:40</a>
+喊那一声给我笑傻了FREEDOM!
+
+—— 来自 vivo NEX A, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+骑兵就是要CHAAAAAAARGE!
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 1762#       发表于 2020-5-31 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624765&amp;ptid=1937970" target="_blank">海域生还者 发表于 2020-5-31 13:17</a>
+
+本来就是CIA教的，只能说回归本国</blockquote>
+教的那些小技俩也就火山能玩，搁美国早就全员吃蛋蛋了
+
+
+
+
+
+
+
+-----
+
+####  20002000  
+##### 1763#       发表于 2020-5-31 13:33
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/133324zwks9c0phkc8sssj.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200530223216.png</strong> (209.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:33 上传
+
+
+
+
+
+
+首页前几条沾满了
+
+
+
+
+
+
+
+-----
+
+####  congjasd  
+##### 1764#       发表于 2020-5-31 13:35
+
+
+
+
+这一天天的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuan1992  
+##### 1765#       发表于 2020-5-31 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622396&amp;ptid=1937970" target="_blank">zyzy2 发表于 2020-5-31 09:20</a>
+一共200个贴,能找出来这么多问题发言,楼上那位可真是宝藏啊.
+
+"gay"+"炼铜"+"仇女"+"重度anime宅"+"盗版游 ...</blockquote>
+标准的精神红脖子，全球极右是一家
+
+
+
+
+
+
+
+-----
+
+####  hanami990  
+##### 1766#       发表于 2020-5-31 13:38
+
+
+
+[https://twitter.com/oljitsu/status/1266889011844599812?s=21](https://twitter.com/oljitsu/status/1266889011844599812?s=21)<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 有点神奇| + 1|哈哈，蝙蝠侠来了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  云梦泽岸  
+##### 1767#       发表于 2020-5-31 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624918&amp;ptid=1937970" target="_blank">黑兽 发表于 2020-5-31 13:33</a>
+
+教的那些小技俩也就火山能玩，搁美国早就全员吃蛋蛋了</blockquote>
+国民警卫队目前还是很克制的，只用了漆弹向围观群众射击，街道基本被清空了。
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 1768#       发表于 2020-5-31 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624885&amp;ptid=1937970" target="_blank">韶光易碎 发表于 2020-5-31 13:29</a>
+编辑掉</blockquote>
+美利坚一位行为艺术大师香陨
+
+
+
+
+
+
+
+-----
+
+####  钢琴男  
+##### 1769#       发表于 2020-5-31 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624807&amp;ptid=1937970" target="_blank">thisism 发表于 2020-5-31 13:21</a>
+
+先进个屁。都是cia的出口转内销。
+
+
+现在没啥好过于乐观。美国应该依然具有弹性。暴力机关没出成规模的内鬼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">  问题来了，既然毒药是cia制造的，那么 cia研制这款毒药的时候有没有想好解药呢 
+
+
+
+
+
+
+
+-----
+
+####  saverok  
+##### 1770#       发表于 2020-5-31 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624605&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-31 13:02</a>
+
+郁可唯居然还在推特上拱火，说应该两天前就上国民警卫队……说真的推特应该赶紧把这老年痴呆的号塞了，他现 ...</blockquote>
+ykw真不怕人民的队伍真冲进白宫吊他路灯？
+
+
+
+
+
+
+
+-----
+
+####  黑兽  
+##### 1771#       发表于 2020-5-31 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624956&amp;ptid=1937970" target="_blank">云梦泽岸 发表于 2020-5-31 13:38</a>
+
+国民警卫队目前还是很克制的，只用了漆弹向围观群众射击，街道基本被清空了。 ...</blockquote>
+因为美国人比火山暴徒文明多了，像火山一样持利器冲击警察你看什么后果
+
+
+
+
+
+
+
+-----
+
+####  yuan1992  
+##### 1772#       发表于 2020-5-31 13:42
+
+
+
+ 本帖最后由 yuan1992 于 2020-5-31 13:48 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  longrider  
+##### 1773#       发表于 2020-5-31 13:42
+
+
+
+
+Michigan sheriff takes off helmet and drops baton. Marches with protestors
+[https://www.reddit.com/r/PublicF ... et_and_drops_baton/](https://www.reddit.com/r/PublicFreakout/comments/gtrcj3/michigan_sheriff_takes_off_helmet_and_drops_baton/)
+
+
+密歇根州弗林特的一名警长Chris Swanson放下武器脱掉制服，主动加入了**队伍
+
+
+
+
+
+
+
+
+-----
+
+####  barry.allen  
+##### 1774#       发表于 2020-5-31 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624971&amp;ptid=1937970" target="_blank">saverok 发表于 2020-5-31 13:39</a>
+
+ykw真不怕人民的队伍真冲进白宫吊他路灯？</blockquote>
+因为他真不怕，军队没事
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1775#       发表于 2020-5-31 13:44
+
+
+
+<blockquote>钢琴男 发表于 2020-5-31 13:39
+问题来了，既然毒药是cia制造的，那么 cia研制这款毒药的时候有没有想好解药呢  ...</blockquote>
+备有解药的毒药就不配叫做毒药了╮ (. ❛ ᴗ ❛.) ╭ 
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1776#       发表于 2020-5-31 13:45
+
+
+
+<blockquote>20002000 发表于 2020-5-31 13:33
+首页前几条沾满了</blockquote>
+天下苦美久矣，某国的乱是全球群众都喜闻乐见的。
+
+
+
+
+
+
+
+-----
+
+####  zmw_831110  
+##### 1777#       发表于 2020-5-31 13:45
+
+
+
+
+虽然人数不多
+[https://m.weibo.cn/2150758415/4510634253002812](https://m.weibo.cn/2150758415/4510634253002812)
+
+—— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| water| + 1|他们在喊啥？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yiraer  
+##### 1778#       发表于 2020-5-31 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624971&amp;ptid=1937970" target="_blank">saverok 发表于 2020-5-31 13:39</a>
+
+ykw真不怕人民的队伍真冲进白宫吊他路灯？</blockquote>
+人家说了，敢进来的就会面对最凶恶的狗。
+
+
+
+
+
+
+
+-----
+
+####  蓝鸥之魂  
+##### 1779#       发表于 2020-5-31 13:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623946&amp;ptid=1937970" target="_blank">rxrx 发表于 2020-5-31 12:04</a>
+反正就算美军真暴力镇压世界也是会视而不见，说不定还嫁祸给中国称是他们背后指挥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1780#       发表于 2020-5-31 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624965&amp;ptid=1937970" target="_blank">钢琴男 发表于 2020-5-31 13:39</a>
+
+问题来了，既然毒药是cia制造的，那么 cia研制这款毒药的时候有没有想好解药呢  ...</blockquote>
+谢尔曼将军、麦克阿瑟将军、巴顿将军表示：你说什么药？
+
+
+
+
+
+
+
+-----
+
+####  REST  
+##### 1781#       发表于 2020-5-31 13:48
+
+
+
+ 本帖最后由 REST 于 2020-5-31 13:50 编辑 
+
+老工贼还是算了
+
+
+
+
+
+
+
+-----
+
+####  风猫  
+##### 1782#       发表于 2020-5-31 13:49
+
+
+
+<img src="https://i.niupic.com/images/2020/05/31/8a46.jpg" referrerpolicy="no-referrer">
+
+已经有人发现不对劲了，他们一路和平逛街，都没见什么jc，突然就有一辆没人的旧警车出现在他们行进途中，还正好在加油站旁，然后突然冲出几个人对着车一顿砸，一个带着黑墨镜和黑口罩的白人女性直接上前浇汽油把车点了，整个过程不到十秒。然后jc和媒体瞬间就介入了。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  Corruptwing  
+##### 1783#       发表于 2020-5-31 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624265&amp;ptid=1937970" target="_blank">拉格朗日乘数法 发表于 2020-5-31 12:34</a>
+
+一持剑男子在保护商店时被示威者打成重伤。美国不是人人持枪吗，怎么现在一堆弓箭手战士职业冒出来了 ...</blockquote>
+第一无声，第二不需要登记，第三可以抛物线曲射，第四可以客制箭头
+
+
+
+
+
+
+
+-----
+
+####  cd112332255  
+##### 1784#       发表于 2020-5-31 13:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624820&amp;ptid=1937970" target="_blank">雨落飘零 发表于 2020-5-31 13:22</a>
+如果疫情没发生，那可能还真是这样，在疫情中才能看出，决定性的不同。很多人开玩笑说我们这里是“资本主 ...</blockquote>
+本来不打算辩解的，免得被人说是来搅浑水的，但既然已经被扣鹅了，我也巨魔一下吧。
+疫情最大的功臣不应该是医护人员和基层工作者吗？上层和资本家有5%的功劳吗？（上层有功劳的，我只认钟南山）
+至于你们说的政府花钱和组织调度……你们是不是比烂比多了？对社会资源进行合理调度不应该是政府的基本职能吗？
+另外，某些医护人员补贴还没到位或者被砍的事，隔壁楼有说。
+
+
+—— 来自 asus ASUS_Z01HDA, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 11战斗力 -14
+
+|昵称|战斗力|理由|
+|----|---|---|
+| vampiar|-2|你这节奏带的有模有样|
+| 西瓜田里的飞鱼|-1||
+| 人形玩偶|-2|欢乐多|
+| lisen5840|-1|好评加鹅|
+| L.L|-1|欢乐多|
+| sssacpgdr|-2||
+| 筱原重工|-1|又开始切割政府与人民|
+| water|-1|指挥下决心要负责的，小伙子当过领导再来讨.|
+| 你又开始了？|-1|？|
+| 挂命贵|-1|李兰娟王辰孙cl下令封城的**|
+| Zuckerfrei|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  4790d  
+##### 1785#       发表于 2020-5-31 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625110&amp;ptid=1937970" target="_blank">风猫 发表于 2020-5-31 13:49</a>
+
+已经有人发现不对劲了，他们一路和平逛街，都没见什么jc，突然就有一辆没人的旧警车出现在他们行进途中， ...</blockquote>
+专 业 团 队<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  机吉斯卡  
+##### 1786#       发表于 2020-5-31 13:52
+
+
+
+[https://m.weibo.cn/2200714280/4510586309025160](https://m.weibo.cn/2200714280/4510586309025160)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">辣个男人来了
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 1787#       发表于 2020-5-31 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625077&amp;ptid=1937970" target="_blank">yuandi0120 发表于 2020-5-31 13:47</a>
+
+谢尔曼将军、麦克阿瑟将军、巴顿将军表示：你说什么药？</blockquote>
+屑尔曼将军：我火焚亚特兰大半个月，我把整个乔治亚州变成地狱，不要把我跟只会躲在水柜后面的小鬼相提并论<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第五秋  
+##### 1788#       发表于 2020-5-31 13:54
+
+
+
+
+那个在马路上开M577装甲车的是18年一个喝醉把基地里的车开出来的兵哥哥
+
+
+
+
+
+
+
+-----
+
+####  belichick  
+##### 1789#       发表于 2020-5-31 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625110&amp;ptid=1937970" target="_blank">风猫 发表于 2020-5-31 13:49</a>
+
+已经有人发现不对劲了，他们一路和平逛街，都没见什么jc，突然就有一辆没人的旧警车出现在他们行进途中， ...</blockquote>
+手足和“装修队”来了
+
+
+
+
+
+
+
+-----
+
+####  管他三俗  
+##### 1790#       发表于 2020-5-31 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624581&amp;ptid=1937970" target="_blank">南条一间 发表于 2020-5-31 13:00</a>
+
+突然有一个做一个关于阶/级的视频上传到youtube上，帮黑人老哥们补充理论弹药的想法
+
+
+  -- 来自 能 ...</blockquote>
+我觉得中国这边还是不应该参与这个事 太容易被转移炮火了
+
+
+
+
+
+
+
+-----
+
+####  掌界  
+##### 1791#       发表于 2020-5-31 13:59
+
+
+
+ 本帖最后由 掌界 于 2020-5-31 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625115&amp;ptid=1937970" target="_blank">cd112332255 发表于 2020-5-31 13:50</a>
+
+本来不打算辩解的，免得被人说是来搅浑水的，但既然已经被扣鹅了，我也巨魔一下吧。
+
+疫情最大的功臣不应 ...</blockquote>
+中央负责不是天然的，是还有社会主义的初心，钟南山等人也是政府行使好职责的一种代表，所以不要来微观人士才有功劳，中央无关的老套。财政给不了医生很多时候正是缺陷，又不是不能说。很多时候这个世界不是完美的，不是比烂，是国内落后现实。而美国是资本的恶毒完美代表，你看懂吗，它有钱但没心。
+
+
+
+
+
+
+
+-----
+
+####  希望之花  
+##### 1792#       发表于 2020-5-31 14:00
+
+
+
+
+地球ol是要关服了吗活动一个接一个都不给长草的
+
+
+
+
+
+
+
+-----
+
+####  qi147iq  
+##### 1793#       发表于 2020-5-31 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625115&amp;ptid=1937970" target="_blank">cd112332255 发表于 2020-5-31 13:50</a>
+
+本来不打算辩解的，免得被人说是来搅浑水的，但既然已经被扣鹅了，我也巨魔一下吧。
+
+疫情最大的功臣不应 ...</blockquote>
+有些你生下来就存在的，视为理所当然的事情，其实远远没你想象中的那么寻常。少钻牛角尖，多看多想。
+
+
+
+
+
+
+
+-----
+
+####  余海露  
+##### 1794#       发表于 2020-5-31 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+重口注意
+https://m.weibo.cn/5721376081/4510607750090344</blockquote>
+资本之下，无人权。人是资本的人格化载体<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  featherwit  
+##### 1795#       发表于 2020-5-31 14:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622993&amp;ptid=1937970" target="_blank">western1031 发表于 2020-5-31 10:34</a>
+
+关于这一点，建议朋友去看一下小崔的评论，小崔正经起来还是有点东西的
+
+https://b23.tv/RNovt7</blockquote>
+昨天晚上2点半看了这个，感觉是有东西的，但是有些东西好像没说出来
+
+
+
+
+
+
+
+-----
+
+####  疼子  
+##### 1796#       发表于 2020-5-31 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625242&amp;ptid=1937970" target="_blank">featherwit 发表于 2020-5-31 14:00</a>
+昨天晚上2点半看了这个，感觉是有东西的，但是有些东西好像没说出来</blockquote>
+说明白了就要被突突了
+
+
+
+
+
+
+
+-----
+
+####  Gisary  
+##### 1797#       发表于 2020-5-31 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623855&amp;ptid=1937970" target="_blank">barry.allen 发表于 2020-5-31 11:56</a>
+
+wsj消息。美军在明尼苏达附近的军事基地集结。四小时即可完成部署。
+
+
+美军在国内部署的平均时间是4 ...</blockquote>
+话说，美军全球部署时间要求是24小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1798#       发表于 2020-5-31 14:05
+
+
+
+
+又来车轱辘切割政府和人民这套话术了啊 我国作为无限责任制大政府 无论是好是坏都是与体制政府人民完全连在一起的 就像沈逸说的那样 定体论就是一句废话
+
+
+
+
+
+
+
+-----
+
+####  featherwit  
+##### 1799#       发表于 2020-5-31 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625284&amp;ptid=1937970" target="_blank">疼子 发表于 2020-5-31 14:04</a>
+
+说明白了就要被突突了</blockquote>
+突突倒是不至于，bobby seale也活的好好的，不过我是不知道他是不是有其他方面包括制度改革的思考
+
+
+
+
+
+
+
+-----
+
+####  barry.allen  
+##### 1800#       发表于 2020-5-31 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625297&amp;ptid=1937970" target="_blank">Gisary 发表于 2020-5-31 14:05</a>
+
+话说，美军全球部署时间要求是24小时吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">美军在美国境内执行军事任务原则上是违法的，小树丛后盖了个北方指挥部专门干这事。
+
+
+文章也说了，如果要美军出动需要州长和五角大楼双重批准，反而比在境外执行任务慢点。
+
+
+
+
+
+                                        

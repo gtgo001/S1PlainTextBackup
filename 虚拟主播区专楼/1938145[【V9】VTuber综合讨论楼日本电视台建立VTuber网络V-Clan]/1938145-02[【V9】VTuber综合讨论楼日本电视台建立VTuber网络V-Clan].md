@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 12:11** 
+> ## **本文件最后更新于2020-05-31 14:10** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_eJ1t7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_ZOceO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17918,6 +17918,25 @@ syl，点进iofi频道看了一下，怎么还有两期直播德语课的，绝�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Devi_Lito| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18463,7 +18482,7 @@ crew好强大
 
 
 这个4年前的视频笑死我了，纯一直夸宫姨可爱，看到メイアン就笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_KZUaA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_jDe7w" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -20744,6 +20763,25 @@ v在历史中，v是历史的。狐狸早期一没思路就整mcRTA，还时不�
 
 当然想想还是很可惜，还想再多看点
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -23686,4 +23724,2159 @@ https://bbs.nga.cn/read.php?tid=21975272
 
 
 
-         
+
+
+-----
+
+####  crawarb  
+##### 2726#       发表于 2020-5-31 12:12
+
+
+
+<blockquote>Izuru单推人 发表于 2020-5-31 11:47
+话说你们说的playboard是个啥啊......</blockquote>
+https://playboard.co/en
+
+一个韩国人做的油管斗虫网站
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2727#       发表于 2020-5-31 12:13
+
+
+
+
+进一步说明女v唯一的出路就是百合营业？气抖冷<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2728#       发表于 2020-5-31 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623752&amp;ptid=1938145" target="_blank">zilch_ren 发表于 2020-5-31 11:46</a>
+太可怕，就连天天被劈的拉跨巧克到虹也是20名</blockquote>
+你就是想劈阿菜是吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2729#       发表于 2020-5-31 12:14
+
+
+
+ 本帖最后由 两只狗狗 于 2020-5-31 12:18 编辑 
+
+大福和gbr不都是彩虹顶端吗，怎么月sc是0呢<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+以前有猴爵哭诉打的sc猴哥一成都拿不到我还觉得是在卖惨，现在看来可能是真的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2730#       发表于 2020-5-31 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624032&amp;ptid=1938145" target="_blank">两只狗狗 发表于 2020-5-31 12:13</a>
+
+进一步说明女v唯一的出路就是百合营业？气抖冷</blockquote>
+那小护士对面的巴这待遇差也太大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2731#       发表于 2020-5-31 12:17
+
+
+
+<blockquote>あのん 发表于 2020-5-31 12:07
+35％是不可能的
+
+打sc的时候就得产生10%的消费税，苹果平台还得交20%的份子钱 ...</blockquote>
+苹果那30%不在统计的金额里，打钱时候额外扣的来着
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2732#       发表于 2020-5-31 12:17
+
+
+
+
+巧克怎么劈得到阿菜，你看看阿菜这个月的直播时长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，要劈也是用摸余劈阿菜
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 2733#       发表于 2020-5-31 12:17
+
+
+
+
+云啥呢，健屋这个月搞了次16、17w纪念，还有生日直播和初翻唱，再加上第一套新衣服
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2734#       发表于 2020-5-31 12:17
+
+
+
+
+いいねぇ、もっとやれ
+
+<img src="https://img.saraba1st.com/forum/202005/31/121642y3a48t1q1z5fzfb2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>jhijh.jpg</strong> (435.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 12:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 2735#       发表于 2020-5-31 12:19
+
+
+
+
+不玩管人金游的龙皇才是好龙皇<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2736#       发表于 2020-5-31 12:22
+
+
+
+
+传送门2才7777...我对你们说的龙皇欧美粉丝多这事儿产生了怀疑
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2737#       发表于 2020-5-31 12:22
+
+
+
+
+本家以前也是这么干的，高强度蹭热度、混脸熟，自力更生找饭吃挺好的，必经之路，必经之路<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 2738#       发表于 2020-5-31 12:23
+
+
+
+
+3000日元的保底工资有啥用啊？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2739#       发表于 2020-5-31 12:24
+
+
+
+
+传送门也有快8k了，下周改叫龙酱好了。
+
+顺便预测下朝闻可可的同接，明天复活回应该有2w7~3w，之后应该回到停播前水平高一点2w3左右，然后继续缓慢平稳下滑，如果没有好活或者新热点的话下周可能要跌破2w。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2740#       发表于 2020-5-31 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624049&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-31 12:14</a>
+那小护士对面的巴这待遇差也太大了吧</blockquote>
+巴也不差了，而且前几个月是巴更多一些。考虑到mrra，可能这确实是财富密码。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+syl
+阿喵喵老哥终于正式复活了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2741#       发表于 2020-5-31 12:25
+
+
+
+
+楽しそう
+
+<img src="https://img.saraba1st.com/forum/202005/31/122448stdcdc1vdpvtpptc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>fpbYequ.jpg</strong> (95.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 12:24 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/122448ejmpmzedd3yonpoi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>eACwI6n.jpg</strong> (34.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 12:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2742#       发表于 2020-5-31 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624137&amp;ptid=1938145" target="_blank">aele 发表于 2020-5-31 12:22</a>
+
+传送门2才7777...我对你们说的龙皇欧美粉丝多这事儿产生了怀疑</blockquote>
+传送门我记得虹的几位也玩过双人的阿，我当时看着还蛮好玩的，就是没看同接<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 2743#       发表于 2020-5-31 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624184&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-31 12:25</a>
+楽しそう</blockquote>
+建议开纪念回吸金<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2744#       发表于 2020-5-31 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624184&amp;ptid=1938145" target="_blank">colodes 发表于 2020-5-31 12:25</a>
+
+楽しそう</blockquote>
+colo哥方便简单讲讲这人干啥了吗，混这么惨，据说还算是实力派？
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 2745#       发表于 2020-5-31 12:29
+
+
+
+
+虽然我也很想杞忧一下虹人收入，但是看她们混吃等死这么开心，就觉得我真是皇帝不急太监急<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2746#       发表于 2020-5-31 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624194&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 12:26</a>
+
+colo哥方便简单讲讲这人干啥了吗，混这么惨，据说还算是实力派？</blockquote>
+别问我啊，我没看过他直播，只记得一个阴湿梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2747#       发表于 2020-5-31 12:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ASCC复活1.5w顶天，因为很多人已经忘记ASCC了
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2748#       发表于 2020-5-31 12:32
+
+
+
+
+苹果平台的1W2在playborad里统计1W吗
+
+统计成1W2的话那2000就是份子钱
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 2749#       发表于 2020-5-31 12:35
+
+
+
+
+传送门2怎么会是欧美人在看啊，欧美观众还有没玩过这游戏的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2750#       发表于 2020-5-31 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624091&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-5-31 12:17</a>
+
+云啥呢，健屋这个月搞了次16、17w纪念，还有生日直播和初翻唱，再加上第一套新衣服 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大号复活了啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2751#       发表于 2020-5-31 12:38
+
+
+
+
+健屋巴高收入，好！
+
+最好借此在虹社掀起百合的浪潮，让那两位看看，恁两位订阅总和比健屋巴高了快15万，怎么就收入不如人呢？
+
+快给我卖百合<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">！
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2752#       发表于 2020-5-31 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624194&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 12:26</a>
+
+colo哥方便简单讲讲这人干啥了吗，混这么惨，据说还算是实力派？</blockquote>
+彩虹的一个失败企划VOIZ出身，移籍后第一届马车拿了冠军火了一把
+
+阴湿事件：葛叶和力也未经他许可，在两人联动时候拿他开玩笑，他气得连发好几条推指责，说你们这样太阴湿了，后来两人给他道歉了，但他也被认为开不起玩笑、公开指责没情商，明明是引流上位势的好机会却搞成炎上，一直被叫阴湿男
+
+
+相关视频
+[https://www.nicovideo.jp/watch/sm35613261](https://www.nicovideo.jp/watch/sm35613261)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2753#       发表于 2020-5-31 12:43
+
+
+
+ 本帖最后由 winda 于 2020-5-31 12:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624194&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 12:26</a>
+
+colo哥方便简单讲讲这人干啥了吗，混这么惨，据说还算是实力派？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就是这回[https://youtu.be/2uyEWeW5uE0](https://youtu.be/2uyEWeW5uE0) 当时的虹学力实力派
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2754#       发表于 2020-5-31 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624372&amp;ptid=1938145" target="_blank">winda 发表于 2020-5-31 12:43</a>
+
+我对这位的印象除了星床hero手游组外
+
+就是这回https://youtu.be/2uyEWeW5uE0 当时的虹学力实力派 ...</blockquote>
+我倒是想问和这位的印象怎么和手游组扯上关系的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ともさね  
+##### 2755#       发表于 2020-5-31 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624274&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-5-31 12:35</a>
+
+传送门2怎么会是欧美人在看啊，欧美观众还有没玩过这游戏的吗</blockquote>
+玩过了也不至于就都不看啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2756#       发表于 2020-5-31 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624310&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-5-31 12:38</a>
+
+健屋巴高收入，好！
+
+最好借此在虹社掀起百合的浪潮，让那两位看看，恁两位订阅总和比健屋巴高了快15万，怎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">醒醒，mrra是没可能的了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2757#       发表于 2020-5-31 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624387&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-31 12:44</a>
+
+我倒是想问和这位的印象怎么和手游组扯上关系的</blockquote>
+Vあんスタ部啊，后面还搞了偶像梦幻祭的同时视听
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2758#       发表于 2020-5-31 12:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 只有我想看sakuyui去木口玩百合吗？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2759#       发表于 2020-5-31 12:56
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-31 12:58 编辑 
+
+想让百合营业的去搞bgcp
+
+想让搞bgcp的去百合营业
+
+这心情大概和想让良家失足和让失足从良有相通之处吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2760#       发表于 2020-5-31 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624445&amp;ptid=1938145" target="_blank">winda 发表于 2020-5-31 12:49</a>
+
+Vあんスタ部啊，后面还搞了偶像梦幻祭的同时视听</blockquote>
+哦……我就说为什么找不到她们一起玩的直播，原来在阿床和皆守的频道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 2761#       发表于 2020-5-31 13:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">阴帝发作还有一点是千岁引退前夕这个时间点自己被整个阴阳照
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 2762#       发表于 2020-5-31 13:09
+
+
+
+ 本帖最后由 AloissiolA 于 2020-5-31 13:10 编辑 
+
+苹果还真的有可能被统计进去，因为是会显示在SC数额上的。
+
+
+比方说1000日元不是正常的黄sc起步价嘛，在苹果上打就会显示1220日元，打出去也显示1220日元，但实际到油管手里的只有1000。
+
+
+从这个角度考虑，单纯是爬SC数据然后加总的算法iOS误差可能不小。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2763#       发表于 2020-5-31 13:12
+
+
+
+
+把这对换成那对确实好像也没啥区别(总质量方面)
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/131029zvzorlmoov0oo3v1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ikasumi-1.jpg</strong> (10.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:10 上传
+
+
+
+
+
+
+
+↓
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/130458spodasobz0nhhphz.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 130432.png</strong> (271.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2764#       发表于 2020-5-31 13:14
+
+
+
+<blockquote>AloissiolA 发表于 2020-5-31 13:09
+苹果还真的有可能被统计进去，因为是会显示在SC数额上的。
+
+
+比方说1000日元不是正常的黄sc起步价嘛，在苹果 ...</blockquote>
+谢谢科普，听人说抽成是分开的，还以为打出去不会显示，怪不得苹果打钱最低610円
+
+
+
+
+
+
+
+-----
+
+####  dddty  
+##### 2765#       发表于 2020-5-31 13:15
+
+
+
+
+成濑那个是被弄成半透明挂直播画面上把，还是后来观众发现的。
+
+事前也没打过招呼直接就在推特上炸了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2766#       发表于 2020-5-31 13:15
+
+
+
+
+おめでとう
+
+<img src="https://img.saraba1st.com/forum/202005/31/131520jqd5d83f2nc0qlkb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZUj8FOU4AEnPiD.jpg</strong> (63.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:15 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zaku11ku|-1|陰湿代|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 2767#       发表于 2020-5-31 13:17
+
+
+
+
+日本ios比例不低，按手游日服来算，国产手游以及fgo在日服基本是安卓:苹果=1:1，CY很多游戏是1:2，按这个比例，sc统计必然会更低…………
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2768#       发表于 2020-5-31 13:22
+
+
+
+ 本帖最后由 QWANG 于 2020-5-31 13:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624673&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-5-31 13:09</a>
+苹果还真的有可能被统计进去，因为是会显示在SC数额上的。
+
+
+比方说1000日元不是正常的黄sc起步价嘛，在苹果 ...</blockquote>
+小额苹果确实不少，到了红SC级别用苹果的就相当少了。以昨天阿火来说，前一个小时红的有30来万，1w2的是3条，当然1w5，1w6的可能也有苹果的，不过看不出来。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 2769#       发表于 2020-5-31 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624276&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-31 12:35</a>
+大号复活了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">总算可以给人扣鹅和加鹅了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2770#       发表于 2020-5-31 13:23
+
+
+
+
+おめでとう
+
+<img src="https://img.saraba1st.com/forum/202005/31/132319xxxxxri8tqqb8qhw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZUUEczU0AAGnR9.jpg</strong> (61.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:23 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2771#       发表于 2020-5-31 13:23
+
+
+
+
+1w2的红sc还是能见到不少的，应该是苹果打的吧。
+
+再往上感觉就都是整数了。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 2772#       发表于 2020-5-31 13:27
+
+
+
+
+毕竟苹果最坑就是在根本不会明说你打的这个sc其实有一部分到了苹果手里，单纯看显示就是打出去了1k2、1w2，不知道有这个抽成的人不在少数吧<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2773#       发表于 2020-5-31 13:30
+
+
+
+
+国产主播整天叫人不要IOS打赏，V这块挺少见的，即使是贪财人设，可能比例有限，不值得专门拎出来说
+
+我是不喜欢用手机看直播
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2774#       发表于 2020-5-31 13:30
+
+
+
+
+确实，2w4，3w6，4w8，6w的sc我从没见过，难道苹果最大一次打1w2？
+
+电脑上看直播打sc的还是很多的，算上大额的话苹果最多占总比1~2成吧
+
+反正playboard会限和待机间又统计不到，去掉苹果税之后的真实数字也不会比他统计的少就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 2775#       发表于 2020-5-31 13:34
+
+
+
+
+国内平台IOS抽30%，平台抽50%，100块本来到手50块你用IOS打钱一下就剩20块了
+
+这种抽法谁受得了，那肯定不能让人IOS打钱了呗
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2776#       发表于 2020-5-31 13:37
+
+
+
+
+一个最核心问题
+
+1，木口中层比彩虹中层游戏力更强吗？直播能力更强吗？
+
+直播能力可以说难分高下，和职业大主播比都是菜的一笔，游戏力木口更是菜鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+2，木口运营策划水平更高，提供了更多有价值的企划吗？
+
+很明显没有
+
+
+那为什么木口SC集体超过彩虹呢？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2777#       发表于 2020-5-31 13:38
+
+
+
+
+很简单，木口读sc了
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2778#       发表于 2020-5-31 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624427&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-31 12:47</a>
+醒醒，mrra是没可能的了</blockquote>
+她们俩复合的可能性和可操作性都比六字母高得多呀<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2779#       发表于 2020-5-31 13:39
+
+
+
+
+是偶像力，而且还是水准相当高的偶像力（
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 2780#       发表于 2020-5-31 13:40
+
+
+
+
+2k看到又要发疯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+【葵皇养gachi就这】
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2781#       发表于 2020-5-31 13:41
+
+
+
+
+苹果刚开始收这个抽成的时候，斗鱼小主播都是求观众别用IOS打钱的，按他们的说法就是完全拿不到
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2782#       发表于 2020-5-31 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624951&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-5-31 13:37</a>
+一个最核心问题
+
+1，木口中层比彩虹中层游戏力更强吗？直播能力更强吗？
+
+直播能力可以说难分高下，和职业大 ...</blockquote>
+木口运营开发海外市场就明显要强一点吧…
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2783#       发表于 2020-5-31 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624951&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-5-31 13:37</a>
+
+一个最核心问题
+
+1，木口中层比彩虹中层游戏力更强吗？直播能力更强吗？
+
+直播能力可以说难分高下，和职业大 ...</blockquote>
+1.不为失败找借口,只为成功找方法.
+
+2.尊严来自实力,实力来自拼搏!
+
+3.赢家总有一个计划,输家总有一个借口.
+
+4.努力不一定成功,放弃肯定失败.
+
+5.雄鹰可以飞得晚,但一定要飞得高.
+
+6.专注=效率
+
+7.人生需要时时提醒,责任需要时时敲打.
+
+8.要想壮志凌云,就须脚踏实地.
+
+9.只有今天的埋头,才有明天的出头.
+
+10.行动是通向成功的唯一途径.
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|思路广|
+| 雅朵莉雀| + 1|笑死|
+| Ascending| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2784#       发表于 2020-5-31 13:44
+
+
+
+
+废话，国内主播（大多数）还有工会抽成呢，小主播苹果-平台-工会，抽完到手能有5%~10%都不错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2785#       发表于 2020-5-31 13:44
+
+
+
+ 本帖最后由 colodes 于 2020-5-31 13:46 编辑 
+
+估算一下，按照[油管数据](https://variety.com/2019/digital/news/**-2-billion-users-tv-screen-watch-time-hours-1203204267/)，移动设备流量占总流量70%
+
+再结合按照[GlobalStats数据](https://gs.statcounter.com/os-market-share/mobile/japan)，iOS设备占日本移动市场的60%，可估计iOS设备看油管的用户大概是42%
+
+非iOS设备油管抽成是30%，iOS设备油管抽成是40%
+
+
+得出iOS设备矫正后的抽成后SC是总SC的65.8%
+
+简单和运营对半分可得32.9%
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2786#       发表于 2020-5-31 13:44
+
+
+
+
+在说NASA的那个直播。
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/134126boo61xjc31j166jx.png" referrerpolicy="no-referrer">
+
+
+<strong>郡道美玲🐽  @g9v9g_mirei    Twitter.png</strong> (91.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2787#       发表于 2020-5-31 13:46
+
+
+
+ 本帖最后由 あのん 于 2020-5-31 13:49 编辑 
+
+苹果上限1W2，而且是分几档定死的，大不了2434、3710、893这种谐音梗，其它设备上限5W
+
+不管用什么设备打SC，只要打日元打的时候就有10%的消费税
+
+1W日元消费税909日元，这是直接进鬼子政府的
+
+真和会社对半劈liver也就拿个统计总额的25%上下
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2788#       发表于 2020-5-31 13:46
+
+
+
+
+一般粉丝观众和パトロン的区别，你不伸手钱不会从天上掉下来，看看狐皇的日增和sc
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 2789#       发表于 2020-5-31 13:46
+
+
+
+
+那四舍五入郡道也是crew辣<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2790#       发表于 2020-5-31 13:47
+
+
+
+
+两天没上，贵楼整了些什么新活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2791#       发表于 2020-5-31 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625050&amp;ptid=1938145" target="_blank">あのん 发表于 2020-5-31 13:46</a>
+苹果上限1W2，其它设备上限5W
+
+不管用什么设备打SC，只要打日元打的时候就有10%的消费税
+
+1W日元消费税909日 ...</blockquote>
+那至少大额领域苹果占比确实不算高。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2792#       发表于 2020-5-31 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47624951&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-5-31 13:37</a>
+
+一个最核心问题
+
+1，木口中层比彩虹中层游戏力更强吗？直播能力更强吗？
+
+直播能力可以说难分高下，和职业大 ...</blockquote>
+运营不只是策划阿，企业形象的运营也是运营阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2793#       发表于 2020-5-31 13:50
+
+
+
+
+其实你虹大部分人都要读sc的，只是一般不会在结尾统一时间读，大部分看到有人打sc和加会员都会谢谢的，所以为什么杏sc比虹厉害很多我也没懂，至少我推在我打了四五次sc以后就把我名字记住了专门单独谢谢过，然而没卵用，同接数字好看的很结果一个月播150小时就赚50w的辛苦钱。我突然有点理解2000的感受了
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 2794#       发表于 2020-5-31 13:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/135119ryw9226224wr99cj.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获.PNG</strong> (23.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 13:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2795#       发表于 2020-5-31 13:51
+
+
+
+
+774啊774<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2796#       发表于 2020-5-31 13:52
+
+
+
+
+额
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 2797#       发表于 2020-5-31 13:52
+
+
+
+
+虹杏的live2d软件都是套着苹果官方APP的皮，不可能得罪苹果的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 2798#       发表于 2020-5-31 13:52
+
+
+
+
+真正的狼性企业
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2799#       发表于 2020-5-31 13:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 活该阿，垃圾彩虹必死，耽误我们主播
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2800#       发表于 2020-5-31 13:53
+
+
+
+
+彩虹在国内的发展，只能说是被七色太监们害了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 2801#       发表于 2020-5-31 13:54
+
+
+
+ 本帖最后由 真田源次郎信繁 于 2020-5-31 13:56 编辑 
+
+木口集体超过彩虹这都是轻描淡写了，明明是木口杂鱼aki拳打天皇脚踢葵皇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而且算上b站还有50w日元呢
+
+而葛皇还不如木口中位数
+
+天皇可能吃死工资不吃sc，葵皇可不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2802#       发表于 2020-5-31 13:54
+
+
+
+
+anmr太牛逼了，算式又更新了
+
+5-1-1+2+4-1-1=7
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 2803#       发表于 2020-5-31 13:54
+
+
+
+
+然而有几个头头故意不念整体印象就差了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2804#       发表于 2020-5-31 13:55
+
+
+
+
+打钱力度取决于粉丝的狂热度，研究打钱，要看主播用了什么手段让观众变成“理性的疯子”......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2805#       发表于 2020-5-31 13:56
+
+
+
+
+故意不念，某些人还天天到处吹，生怕别人不知道，毕竟顶端不需要这点钱，底部的饿死也活该
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2806#       发表于 2020-5-31 13:56
+
+
+
+
+还有个群体习惯的事儿，感觉从三期生那边流入的粉丝打钱频率和额度都高一些（
+
+一二期就没那么明显
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2807#       发表于 2020-5-31 13:56
+
+
+
+
+我还等着她唱歌，她就休止了 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2808#       发表于 2020-5-31 13:56
+
+
+
+
+刚刚刷微博看到真正的狼性企业员工业绩低是要被处罚的，从这一点看虹杏都算不上真正的狼性企业吧
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2809#       发表于 2020-5-31 13:57
+
+
+
+
+B站也不鼓励用户用苹果充钱<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2810#       发表于 2020-5-31 13:57
+
+
+
+
+游戏力和集金能力的相关关系可以说是最小的了吧，感觉甚至不如皮的吸睛程度。。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2811#       发表于 2020-5-31 13:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">杏的女友力高啊
+
+人是舍得给游戏大佬花钱呢还是舍得给老公老婆花钱
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2812#       发表于 2020-5-31 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625198&amp;ptid=1938145" target="_blank">crito 发表于 2020-5-31 13:56</a>
+
+刚刚刷微博看到真正的狼性企业员工业绩低是要被处罚的，从这一点看虹杏都算不上真正的狼性企业吧 ...</blockquote>
+虹不知道，但COVER如果有严厉的KPI考核，说句违背立场的话，stars活不到现在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2813#       发表于 2020-5-31 13:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625210&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 13:57</a>
+
+游戏力和集金能力的相关关系可以说是最小的了吧，感觉甚至不如皮的吸睛程度。。
+
+ ...</blockquote>
+这点还是得提阿夸，多少次耐久游戏达成目标啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 2814#       发表于 2020-5-31 14:00
+
+
+
+
+又是774又是774<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2815#       发表于 2020-5-31 14:00
+
+
+
+
+很多七色太监就和某些天狗一样，出于一些常人无法理解的变态心理，把一些正常人都知道应该藏起来的东西拿出去到处吹<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+家丑不可外扬都不懂
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2816#       发表于 2020-5-31 14:00
+
+
+
+
+1
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2817#       发表于 2020-5-31 14:00
+
+
+
+
+不过2000对葵皇的杞忧肯定没必要的，好歹是彩虹二姐，待遇不可能差的，社内给她的资源也多，不过底下其他人就不知道了，虽说**的多，但是虹19年以后招的人大部分都是全职主播了，这帮人能不能靠直播吃饭我还是蛮杞忧的
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 2818#       发表于 2020-5-31 14:01
+
+
+
+
+gbr不是彩虹一軍嗎，最近沒播？
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2819#       发表于 2020-5-31 14:03
+
+
+
+ 本帖最后由 Ketestrait 于 2020-5-31 14:04 编辑 
+
+培养粉丝习惯营造打钱氛围不是一朝一夕，就像阿火那天有人打SC然后随便说了一句，就有一大群人喊着”流れが来た”争先恐后打钱一样，养猪也是要精耕细作的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2820#       发表于 2020-5-31 14:04
+
+
+
+
+774的运营到底有什么黑料嘛，经常感觉没做什么v就毕业了一样。彩虹这种集体感不强的团体都没给人这种印象，太惨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2821#       发表于 2020-5-31 14:04
+
+
+
+
+现在anmr有7个，hnst是4个，vap加新人有6个
+
+我懂了，这波是修血，vap还要加一人，然后就是真正的7、7、4了
+シュガリリ可能对应i/n/c吧
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 2822#       发表于 2020-5-31 14:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后排提醒alo老哥扣小博禹鹅时说话别太冲
+别等下又被某位仇v版主搞了
+
+syl,gbr动森不开sc无授权
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2823#       发表于 2020-5-31 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625252&amp;ptid=1938145" target="_blank">不可不信邪 发表于 2020-5-31 14:01</a>
+
+gbr不是彩虹一軍嗎，最近沒播？
+
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+阿江这个月就在自己频道播了3次，还全是没开SC的动森抽村民。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2824#       发表于 2020-5-31 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">这位记得是不是疑似mary小姐和摸余熟人来着
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 2825#       发表于 2020-5-31 14:07
+
+
+
+
+总是说狼性企业狼性企业，可是狼群在狩猎时狼王要打头阵第一个冲，猎到的食物自己就分15%左右，剩下的要平均分，如果分配不均剩下的狼可以群起而攻之推翻狼王。
+
+我是没看出现在所谓的“狼性企业”和狼群到底有什么关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2826#       发表于 2020-5-31 14:07
+
+
+
+ 本帖最后由 两只狗狗 于 2020-5-31 14:08 编辑 
+
+顶部一个月0sc还能笑呵呵找借口的，某些人是真的强<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+上面还有虹人老哥不明白为什么自己推没有打钱氛围的，看看你周围的人，还不懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2827#       发表于 2020-5-31 14:07
+
+
+
+
+sc什么的随缘吧，也许这半年木口高，下半年就风水轮流转了呢。石油佬们都很随心所欲的。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2828#       发表于 2020-5-31 14:08
+
+
+
+
+喫煙喫茶やにまーれ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2829#       发表于 2020-5-31 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625285&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-5-31 14:04</a>
+
+现在anmr有7个，hnst是4个，vap加新人有6个
+
+我懂了，这波是修血，vap还要加一人，然后就是真正的7、7、4了
+
+ ...</blockquote>
+シュガリリ设定事务所就在hnst夜店楼下，算hnst的人吧
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 2830#       发表于 2020-5-31 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47619565&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-5-30 23:07</a>
+v综的各位有谁想挑战一下桃皇原创曲吗
+
+【原创角色曲】《Spade》~黑桃影2020生日纪念~♠_哔哩哔哩 ( ...</blockquote>
+核废料yamero
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2831#       发表于 2020-5-31 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625321&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-5-31 14:07</a>
+sc什么的随缘吧，也许这半年木口高，下半年就风水轮流转了呢。石油佬们都很随心所欲的。 ...</blockquote>
+一看就没熟读养gachi，sc这东西是要V慢慢引导培养的，可惜现在润gachi好像不在，不然给你分享下心路历程<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 2832#       发表于 2020-5-31 14:10
+
+
+
+
+SC好像去年下半年就是木口高了吧，虽然不像现在差距这么离谱
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 2833#       发表于 2020-5-31 14:10
+
+
+
+
+什么歌力杂谈力游戏力都是微不足道的因素，有几个人因为这个打钱啊，azki从5.1到5.5连开五天歌回，你看有人打钱吗，空妈弹唱你看有几个打钱的。
+
+
+偶像嘛，就是要凹人设，当握手女奴，你杏凹人设当然比他虹成功的多了，你圈现在除了消费人设和卖人际关系难道还能剩下啥别的吗，别逗我笑了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2834#       发表于 2020-5-31 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623669&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-5-31 11:38</a>
+
+playboard最近有点炸，不过只会少抓不会多抓的，实际水平更高一些就是了。夸和龙都少了至少50万。 ...</blockquote>
+但是抽风也有抽在好的地方
+
+有的频道从待机间就开始记录SC
+
+今天凌晨开播前3小时我打的5WSC虽然之后因为直播间bug被关闭了但是playboard记录进去了
+
+
+
+
+
+     
