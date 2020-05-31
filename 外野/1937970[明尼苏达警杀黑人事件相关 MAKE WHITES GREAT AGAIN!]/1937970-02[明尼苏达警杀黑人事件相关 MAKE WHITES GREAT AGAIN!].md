@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 10:07** 
+> ## **本文件最后更新于2020-05-31 12:09** 
 
 
 
@@ -362,6 +362,25 @@ ykw的推笑死我了 说示威背后有人捣鬼 翻译成中文就是有组织
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 迪米特里|-2|射了，谢谢|
+
+
+
+查看全部评分
 
 
 
@@ -821,10 +840,15 @@ The agent provocateur that started the riots in Minneapolis turns out to be ...<
 
 
 
- 参与人数 12战斗力 -14
+ 参与人数 17战斗力 -21
 
 |昵称|战斗力|理由|
 |----|---|---|
+| yuwe0714|-1|啊这，打字把脑子打稀烂了吧|
+| DeepWhite|-2|给爹滚|
+| hellgate22|-1||
+| waox|-2|火山给爷死|
+| 隔夜的哈劳斯|-1||
 | МаксФёд|-1||
 | Mozlynx|-1||
 | Ephi|-1||
@@ -2027,4 +2051,1387 @@ IMPORTANT REMINDER: If you are out patrolling the street, our response teams can
 
 
 
-                                              
+
+
+-----
+
+####  发光的球  
+##### 1604#       发表于 2020-5-31 10:17
+
+
+
+
+特别的一天，让我们来回顾一下历史
+[http://t.cn/A62oTfq7](http://t.cn/A62oTfq7)
+
+
+
+
+
+
+
+-----
+
+####  Rincewind  
+##### 1605#       发表于 2020-5-31 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47584683&amp;ptid=1937970" target="_blank">2517君改二 发表于 2020-5-28 01:03</a>
+这一段Malcolm X的电视演讲还是我听车万同人专辑才了解到的</blockquote>
+草，是masayoshi minoshima干的好事么
+我感觉他只是不听内容当采样用而已
+
+
+
+
+
+
+
+-----
+
+####  shimotsuki14  
+##### 1606#       发表于 2020-5-31 10:20
+
+
+
+
+看了几个视频，只能说真是民风彪悍。
+一群人顶着铁栏杆拦了一辆patrol car，第二辆来了两脚油门又把人直接顶散了，两边胆子都够大，够狠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  03e7  
+##### 1607#       发表于 2020-5-31 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622170&amp;ptid=1937970" target="_blank">heathgray 发表于 2020-5-31 08:43</a>
+
+养寇自重？</blockquote>
+混入革命队伍中的反动分子
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1608#       发表于 2020-5-31 10:26
+
+
+
+
+盐湖城特警推到了一个拄着拐杖的老年人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/5721376081/4510587340209989](https://m.weibo.cn/5721376081/4510587340209989)
+
+
+
+
+
+
+
+-----
+
+####  半江瑟瑟半江红  
+##### 1609#       发表于 2020-5-31 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622512&amp;ptid=1937970" target="_blank">世界之旅 发表于 2020-5-31 09:38</a>
+隔离都做不到还能做得到宵禁？</blockquote>
+昨天看央视记者采访，明市宵禁前警察上街扔催泪弹洗地，把人全都逼回家
+
+
+
+
+
+
+
+-----
+
+####  rainknine  
+##### 1610#       发表于 2020-5-31 10:29
+
+
+
+
+中心化会被定点打击，去中心化过不了多久就会自行解体，难啊
+
+—— 来自 HUAWEI ARE-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  世界之旅  
+##### 1611#       发表于 2020-5-31 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622944&amp;ptid=1937970" target="_blank">半江瑟瑟半江红 发表于 2020-5-31 10:28</a>
+
+昨天看央视记者采访，明市宵禁前警察上街扔催泪弹洗地，把人全都逼回家 ...</blockquote>
+建议白天也来一遍 战胜疫情有望
+
+
+
+
+
+
+
+-----
+
+####  wsklmm  
+##### 1612#       发表于 2020-5-31 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622113&amp;ptid=1937970" target="_blank">死亡之夜 发表于 2020-5-31 08:32</a>
+某大国某州在左左壬和黑人的带领下protester变thug（屁股坐好了）。hk废青一年了出格的行为也就砸玻璃，堵 ...</blockquote>
+怕你是失忆了
+
+
+
+
+
+
+
+-----
+
+####  洛拉斯  
+##### 1613#       发表于 2020-5-31 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622926&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 10:26</a>
+
+盐湖城特警推到了一个拄着拐杖的老年人
+
+
+https://m.weibo.cn/5721376081/4510587340209989 ...</blockquote>
+最后还是扶起来了，不过稍微剪辑下
+
+
+那效果棒棒哦
+
+
+
+
+
+
+
+-----
+
+####  醉鸽子  
+##### 1614#       发表于 2020-5-31 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622955&amp;ptid=1937970" target="_blank">rainknine 发表于 2020-5-31 10:29</a>
+
+中心化会被定点打击，去中心化过不了多久就会自行解体，难啊
+
+
+—— 来自 HUAWEI ARE-AL10, Android 9上的 S ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">闲着也是闲着
+
+
+
+
+
+
+
+-----
+
+####  western1031  
+##### 1615#       发表于 2020-5-31 10:34
+
+
+
+<blockquote>80天拯救沃夫朗 发表于 2020-5-31 00:17
+…这件事是以黑人被杀作为导火索引起的**，这个黑人确实很可怜但是后面那些人根本不是出于正义去为他讨公 ...</blockquote>
+关于这一点，建议朋友去看一下小崔的评论，小崔正经起来还是有点东西的
+
+https://b23.tv/RNovt7
+
+
+在这个时间点，脱离历史去讨论当下暴 动问题的对错都是不全面的，没错，孤立来看，打 砸 抢是错的，但是这是几百年来对黑人的系统性压迫造成的，我们不应该站在道德高地指责他们的不正确，因为这是他们知道的最有效的反抗方式
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 文艺复兴| + 1|小崔危险了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  naihs  
+##### 1616#       发表于 2020-5-31 10:35
+
+
+
+<blockquote>洛拉斯 发表于 2020-5-31 10:30
+最后还是扶起来了，不过稍微剪辑下
+
+
+那效果棒棒哦</blockquote>
+完全不用剪
+
+直接评论一句:幸好这位老人是白人，凭他的肤色唤醒了jc最后一点人性。如果他是一名黑人呢
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1617#       发表于 2020-5-31 10:36
+
+
+
+
+武德充沛的老白男射箭对抗示威者 被群众私了
+
+[https://m.weibo.cn/5721376081/4510588967860810](https://m.weibo.cn/5721376081/4510588967860810)
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1618#       发表于 2020-5-31 10:38
+
+
+
+
+NBC News
+
+@NBCNews
+
+Among the curfews in effect on Saturday night in the US: 
+
+
+• Minneapolis 
+
+• Chicago 
+
+• Los Angeles
+
+• Atlanta 
+
+• Denver
+
+• Philadelphia 
+
+• Pittsburgh
+
+• Seattle
+
+• Cleveland
+
+• Columbus
+
+• Portland
+
+• Miami
+
+• Milwaukee
+
+• Salt Lake City
+
+• Rochester
+
+在美国周六晚上生效的宵禁包括。
+
+
+- 明尼阿波利斯 
+
+- 芝加哥 
+
+- 洛杉矶
+
+- 亚特兰大 
+
+- 丹佛
+
+- 费城 
+
+- 匹兹堡
+
+- 西雅图
+
+- 克利夫兰
+
+- 哥伦布
+
+- 波特兰
+
+- 迈阿密
+
+- 密尔沃基
+
+- 盐湖城
+
+- 罗切斯特
+
+
+
+
+
+
+
+-----
+
+####  Imanmi  
+##### 1619#       发表于 2020-5-31 10:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622993&amp;ptid=1937970" target="_blank">western1031 发表于 2020-5-31 10:34</a>
+关于这一点，建议朋友去看一下小崔的评论，小崔正经起来还是有点东西的
+
+https://b23.tv/RNovt7</blockquote>
+小崔再多说一点他可能就要被突了，有组织有纪律有纲领的暴乱才能打痛人
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1620#       发表于 2020-5-31 10:40
+
+
+
+<blockquote>naihs 发表于 2020-5-31 10:35
+完全不用剪
+
+直接评论一句:幸好这位老人是白人，凭他的肤色唤醒了jc最后一点人性。如果他是一名黑人呢 ...</blockquote>
+明天去魔法部上班。
+
+
+
+
+
+
+
+-----
+
+####  欧金金  
+##### 1621#       发表于 2020-5-31 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47620772&amp;ptid=1937970" target="_blank">机动壮士 发表于 2020-5-31 00:53</a>
+
+可别提什么暴 那啥了。现在群众都开始组织工人纠察队了我去。
+
+而且今晚推上最弱智的大新闻是佐治亚州国民警 ...</blockquote>
+联邦已无可用之兵
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1622#       发表于 2020-5-31 10:42
+
+
+
+
+The National Guard has been activated in Washington D.C. to help protect the White House
+
+From CNN’s Greg Clary and Cat Gloria
+
+国民警卫队已在华盛顿特区启动，以帮助保护白宫。
+
+来自CNN的Greg Clary和Cat Gloria的报道
+
+The National Guard has been activated in Washington, D.C. to assist police handling protests around the White House, according to a statement from the DC National Guard on Facebook.
+
+The DC National Guard (DCNG) ultimately reports to the President but was activated at the direction of the Secretary of the Army, according to the statement.
+
+据华盛顿特区国民警卫队在脸书上发表的声明称，<strong>华盛顿特区国民警卫队已经启动，协助警方处理白宫周围的抗议活动</strong>。
+
+声明称，DC国民警卫队（DCNG）最终向总统报告，但在陆军部长的指示下被激活。
+
+“The DCNG is always ready to assist district and federal agencies to protect human life and property. The DCNG is especially trained and equipped for this U.S. Park Police support mission and we proudly accept it,” Major General William J. Walker said in the statement.
+
+"DCNG随时准备协助地区和联邦机构保护人的生命和财产安全。<strong>DCNG特别训练有素，装备精良，可以胜任这次美国公园警察的支援任务，我们很荣幸地接受了这一任务</strong>。"威廉-J-沃克少将在声明中说。
+
+There have been protests for the past two nights near the White House following the death of George Floyd.
+
+乔治-弗洛伊德去世后，白宫附近连续两晚发生了抗议活动。
+
+
+进京勤王了
+
+
+
+
+
+
+
+-----
+
+####  Damocles990609  
+##### 1623#       发表于 2020-5-31 10:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到我也能体验一次宵禁，美国人民加油啊
+
+
+
+
+
+
+
+-----
+
+####  掌界  
+##### 1624#       发表于 2020-5-31 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622993&amp;ptid=1937970" target="_blank">western1031 发表于 2020-5-31 10:34</a>
+
+关于这一点，建议朋友去看一下小崔的评论，小崔正经起来还是有点东西的
+
+https://b23.tv/RNovt7</blockquote>
+因为纲领斗争被搞没了，而且警察还混进去。反正黑人的命运改变只能等待美国倒下。
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 1625#       发表于 2020-5-31 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622926&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 10:26</a>
+盐湖城特警推到了一个拄着拐杖的老年人
+
+https://m.weibo.cn/5721376081/4510587340209989 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">被直播镜头捕捉真是妙 老头估计就是出来晒太阳的 虽然不懂他为什么这个形势还出来
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 1626#       发表于 2020-5-31 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623012&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 10:36</a>
+武德充沛的老白男射箭对抗示威者 被群众私了
+
+https://m.weibo.cn/5721376081/4510588967860810 ...</blockquote>
+"那你很勇噢"
+
+
+
+
+
+
+
+-----
+
+####  kumquat_cc  
+##### 1627#       发表于 2020-5-31 10:54
+
+
+
+
+美国媒体还想搞污名化那一套，真的可笑，教条主义。
+
+
+其他地方你搞个各种污名化当然没问题，毕竟看这种事情的人都是受到过良好教育的精英阶层，普通民众对这种事根本不关心，或者关心了又不会起什么效果。
+
+
+这回在美国本土出了一样的问题，美国底层，无论是黑人白人还是拉美人，这跟他们生活息息相关，美国媒体以为这群底层会对警察有同情？美国媒体真的不会认为播放这群人的bao乱会让底层对这些人谴责？
+
+
+美国媒体真的是想多了，他们越播放这个，底层人民越会进行效仿，再加上失业以及互联网的传播，美国媒体的行为就是煽风点火，在美国本土搞道德制高点是没有用的。
+
+
+有人说中心化，这次这种东西是不会有中心化的，但是互联网各种信息的**，会让这种无中心化的东西遍地开花，反复**广大 底层群众的神经，而且这种纯的宣泄暴力的思想在互联网的传播速度可比新冠块多了。
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1628#       发表于 2020-5-31 10:54
+
+
+
+
+以美帝为戒吧 我国警民关系军民关系一定不能变成这样 一旦发现害群之马 一定要立即处置切割
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1629#       发表于 2020-5-31 10:56
+
+
+
+<blockquote>roy1996 发表于 2020-5-31 10:42
+The National Guard has been activated in Washington D.C. to help protect the White House
+
+From CNN’s ...</blockquote>
+三路大军激战白宫
+
+蓬佩奥中枪
+
+黑人青年军官国仇家恨
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 1630#       发表于 2020-5-31 10:58
+
+
+
+
+等一个白房子响起gun声
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 1631#       发表于 2020-5-31 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622646&amp;ptid=1937970" target="_blank">roy1996 发表于 2020-5-31 09:59</a>
+Aircraft Spots
+
+@AircraftSpots
+
+(For the sole purpose of reporting)</blockquote>
+加特林蠢蠢欲动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dclara1  
+##### 1632#       发表于 2020-5-31 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623168&amp;ptid=1937970" target="_blank">鱼肉丸子 发表于 2020-5-31 10:54</a>
+
+"那你很勇噢"</blockquote>
+脆皮弓兵冲脸怪堆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1633#       发表于 2020-5-31 11:02
+
+
+
+
+Thousands of people held a rally in Toronto Saturday afternoon in response to the death of 29-year-old Regis Korchinski-Paquet.
+
+数千人周六下午在多伦多举行**，对29岁的雷吉斯-科钦斯基-帕奎的死亡事件作出回应。
+
+The protest, shared on social media under the hashtag #JusticeForRegis and organized by the group Not Another Black Life, began around 2 p.m. at Christie Pits park near Bloor Street West and Christie Street. The march was scheduled to finish at Queen’s Park, but protesters instead made their way to Toronto Police Headquarters.
+
+这场抗议活动在社交媒体上以#JusticeForRegis为标签，由Not Another Black Life组织组织，下午2点左右在Bloor Street West和Christie Street附近的Christie Pits公园开始抗议。**活动原定在皇后公园结束，但抗议者们反而前往多伦多警察总部。
+
+The rally was a response to Korchinski-Paquet’s death as well as the wider issues of anti-Black and anti-Indigenous racism.
+
+这次**是对Korchinski-Paquet之死<strong>以及更广泛的反黑人和反土著种族主义问题的回应</strong>。
+
+“If you are tired of reading all these posts and the news surrounding anti-Black racism, guess what, we are tired too — tired of being a walking target and dying every single day.”
+
+"如果你看腻了所有这些帖子和围绕反黑人种族主义的新闻，你猜怎么着，我们也累了----厌倦了每天当个走马观花的靶子，厌倦了每天都是死路一条。"
+
+
+
+
+
+
+
+-----
+
+####  巴特爱素子  
+##### 1634#       发表于 2020-5-31 11:06
+
+
+
+<blockquote>kumquat_cc 发表于 2020-5-31 10:54
+美国媒体还想搞污名化那一套，真的可笑，教条主义。
+
+
+其他地方你搞个各种污名化当然没问题，毕竟看这种事情 ...</blockquote>
+stand alone complex
+
+
+
+
+
+
+
+-----
+
+####  路西恩  
+##### 1635#       发表于 2020-5-31 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623031&amp;ptid=1937970" target="_blank">Imanmi 发表于 2020-05-31 10:39:40</a>
+小崔再多说一点他可能就要被突了，有组织有纪律有纲领的暴乱才能打痛人 ...</blockquote>这些人也需要党支部
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  烦死了  
+##### 1636#       发表于 2020-5-31 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623079&amp;ptid=1937970" target="_blank">Damocles990609 发表于 2020-5-31 10:43</a>
+没想到我也能体验一次宵禁，美国人民加油啊</blockquote>
+我是疫情宵禁刚解除又来这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 1637#       发表于 2020-5-31 11:12
+
+
+
+<blockquote>roy1996 发表于 2020-5-31 10:42
+The National Guard has been activated in Washington D.C. to help protect the White House
+
+From CNN’s ...</blockquote>
+只保护白宫不保护人民
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1638#       发表于 2020-5-31 11:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622396&amp;ptid=1937970" target="_blank">zyzy2 发表于 2020-5-31 09:20</a>
+一共200个贴,能找出来这么多问题发言,楼上那位可真是宝藏啊.
+
+"gay"+"炼铜"+"仇女"+"重度anime宅"+"盗版游 ...</blockquote>
+自恋……啊不，自炼肥皂
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1639#       发表于 2020-5-31 11:17
+
+
+
+
+美国空军四架C-130H于北京时间今天凌晨，完成向明尼阿波利斯输送全装部队的任务。
+
+
+空 输 部 队
+
+
+
+
+
+
+
+-----
+
+####  Tissuesea  
+##### 1640#       发表于 2020-5-31 11:21
+
+
+
+
+现在在you-tube上看直播，请问那个直播比较好一点，现在看的是ABC7
+
+—— 来自 HUAWEI AUM-AL20, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zyzy2  
+##### 1641#       发表于 2020-5-31 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622993&amp;ptid=1937970" target="_blank">western1031 发表于 2020-5-31 10:34</a>
+
+关于这一点，建议朋友去看一下小崔的评论，小崔正经起来还是有点东西的
+
+https://b23.tv/RNovt7</blockquote>
+不知道崔佛是经过这段时间的思考后刚刚踩在门槛上了,还是早就已经站在这道门前但不敢再往下想了.
+
+既然都已经说到现有的社会契约失效了,那之后的该向什么方向去求助最起码在中国人看来已经很明显了.
+
+
+
+
+
+
+
+-----
+
+####  嘤嘤嘤QAQ  
+##### 1642#       发表于 2020-5-31 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623507&amp;ptid=1937970" target="_blank">zyzy2 发表于 2020-5-31 11:24</a>
+不知道崔佛是经过这段时间的思考后刚刚踩在门槛上了,还是早就已经站在这道门前但不敢再往下想了.
+
+既然都 ...</blockquote>
+他是黑人精英，同情底层黑人但是他不会引导底层人民，或者说他无法引导，因为他早就与底层黑人割裂开了， 一旦他有组织黑人运动的倾向，他所在的利益群体会立即抛弃他
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| faithlifer| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1643#       发表于 2020-5-31 11:38
+
+
+
+
+油管那个很著名的黑人数码博主 没有刻板的黑人口音 看上去就是一副良好教育的精英样子 所以我好奇 底层黑人对他是否有疏远感 如果一个黑人“体面” 不唱跳rap篮球 是不是就不够“黑”了
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 1644#       发表于 2020-5-31 11:39
+
+
+
+
+怎么说，天道有轮回，苍天饶过谁
+
+
+
+
+
+
+
+-----
+
+####  roy1996  
+##### 1645#       发表于 2020-5-31 11:43
+
+
+
+
+Linda Tirado, a freelance photographer, activist and author, was shot in the left eye Friday while covering the street protests in Minneapolis.
+
+自由摄影师、活动家和作家Linda Tirado周五在报道明尼阿波利斯的街头抗议活动时，左眼被击中。
+<img src="https://s1.ax1x.com/2020/05/31/tl7rNR.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  帕拉斯雅典娜  
+##### 1646#       发表于 2020-5-31 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623721&amp;ptid=1937970" target="_blank">roy1996 发表于 2020-5-31 11:43</a>
+Linda Tirado, a freelance photographer, activist and author, was shot in the left eye Friday while c ...</blockquote>
+被什么击中？瞎了？
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ad5457  
+##### 1647#       发表于 2020-5-31 11:51
+
+
+
+
+要我说现在美国底层黑人需要马尔科姆这种领导者，现在各自为战被媒体污名化没有任何办法
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 1648#       发表于 2020-5-31 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623675&amp;ptid=1937970" target="_blank">robertjiong 发表于 2020-5-31 11:38</a>
+
+油管那个很著名的黑人数码博主 没有刻板的黑人口音 看上去就是一副良好教育的精英样子 所以我好奇 底层黑人 ...</blockquote>
+这就是美国黑人独特的“黑面具”了，唱跳rap篮球等一系列底层符号，在黑人的叛逆和白人的鼓动下，与美国黑人紧密地联系在一起，想甩也甩不掉。这么做有两个后果，一是美国黑人这种底层认同也把自己完全束缚在了底层中，二就是你说的如果有黑人想上进就必须背叛黑人群体转而融入白人社会。在这种独特的黑面具的阻隔下，美国黑人的有识之士大部分都与底层有很深的隔阂，少部分愿意下基层的也难逃被突突的命运
+
+
+
+
+
+
+
+-----
+
+####  robertjiong  
+##### 1649#       发表于 2020-5-31 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623721&amp;ptid=1937970" target="_blank">roy1996 发表于 2020-5-31 11:43</a>
+Linda Tirado, a freelance photographer, activist and author, was shot in the left eye Friday while c ...</blockquote>
+该还眼了
+
+
+
+
+
+
+
+-----
+
+####  猫屎盆子  
+##### 1650#       发表于 2020-5-31 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623805&amp;ptid=1937970" target="_blank">ad5457 发表于 2020-5-31 11:51</a>
+
+要我说现在美国底层黑人需要马尔科姆这种领导者，现在各自为战被媒体污名化没有任何办法
+
+
+  -- 来自 有消息 ...</blockquote>
+美国精英和高层那种傲慢和自以为是的“污名化”没有用的，只会激起底层更广泛的同情和愤怒
+
+
+
+
+
+
+
+-----
+
+####  ad5457  
+##### 1651#       发表于 2020-5-31 11:52
+
+
+
+
+顺便说句，美国精英黑人是我见过最恶心的团体，oj辛普森就是最典型的例子
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zmw_831110  
+##### 1652#       发表于 2020-5-31 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+[https://m.weibo.cn/5721376081/4510607750090344](https://m.weibo.cn/5721376081/4510607750090344)
+
+—— 来自 HMD Global Nokia 7 plus, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  luowei_nowe  
+##### 1653#       发表于 2020-5-31 11:54
+
+
+
+<blockquote>ad5457 发表于 2020-5-31 11:51
+要我说现在美国底层黑人需要马尔科姆这种领导者，现在各自为战被媒体污名化没有任何办法
+
+
+  -- 来自 有消息 ...</blockquote>
+CIA不是吃干饭的，分分钟给你搞死再栽赃给黑帮or毒贩。
+
+
+
+
+
+
+
+-----
+
+####  barry.allen  
+##### 1654#       发表于 2020-5-31 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+wsj消息。美军在明尼苏达附近的军事基地集结。四小时即可完成部署。
+
+
+美军在国内部署的平均时间是48小时。
+
+
+国民警卫队一群废物，最后还得美军出面
+
+U.S. Army Units Prepare for Possible Deployment to Minnesota
+
+At least two units are told to be ready to deploy within four hours if needed to quell violence as protests continue
+
+[https://www.wsj.com/articles/u-s ... nnesota-11590865269](https://www.wsj.com/articles/u-s-army-units-prepare-for-possible-deployment-to-minnesota-11590865269)
+
+
+
+
+
+
+
+-----
+
+####  franly  
+##### 1655#       发表于 2020-5-31 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不知道说什么好，美国，你的反义词是文明
+
+
+
+
+
+
+
+-----
+
+####  rhubarb  
+##### 1656#       发表于 2020-5-31 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+
+https://m.weibo.cn/5721376081/4510607750090344
+
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">卧槽？！
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1657#       发表于 2020-5-31 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623069&amp;ptid=1937970" target="_blank">roy1996 发表于 2020-5-31 10:42</a>
+The National Guard has been activated in Washington D.C. to help protect the White House
+
+From CNN’s ...</blockquote>
+来个汉末剧本，各州刺史军阀混战
+
+
+
+
+
+
+
+-----
+
+####  山本聪  
+##### 1658#       发表于 2020-5-31 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623855&amp;ptid=1937970" target="_blank">barry.allen 发表于 2020-5-31 11:56</a>
+wsj消息。美军在明尼苏达附近的军事基地集结。四小时即可完成部署。
+
+
+美军在国内部署的平均时间是4 ...</blockquote>
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职了。
+
+
+
+
+
+
+
+-----
+
+####  typeunknown  
+##### 1659#       发表于 2020-5-31 12:02
+
+
+
+
+这日子选的
+
+
+
+
+
+
+
+-----
+
+####  横戌点戍空心戊  
+##### 1660#       发表于 2020-5-31 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623919&amp;ptid=1937970" target="_blank"> typeunknown 发表于 2020-5-31 12:02</a> 这日子选的 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  火的意志  
+##### 1661#       发表于 2020-5-31 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623912&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-31 12:01</a>
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+4号？
+史诗级联动啊，牛逼
+
+
+
+
+
+
+
+-----
+
+####  000000  
+##### 1662#       发表于 2020-5-31 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623507&amp;ptid=1937970" target="_blank">zyzy2 发表于 2020-5-31 11:24</a>
+
+不知道崔佛是经过这段时间的思考后刚刚踩在门槛上了,还是早就已经站在这道门前但不敢再往下想了.
+
+既然都 ...</blockquote>
+trevor老粉的话都知道，他在约翰内斯堡长大，人生偶像是德斯蒙德图图……
+
+
+所以对种族泥潭的解决理念是俄中美都不能理解的那部分，德斯蒙德图图的理念在这个比较热闹的时刻他很难言说，虽然都是从SYSTEM入手，不过和组织黑人运动什么的沾不上边，说出来怕是会被很多人苛责
+
+
+
+
+
+
+
+-----
+
+####  rxrx  
+##### 1663#       发表于 2020-5-31 12:04
+
+
+
+
+反正就算美军真暴力镇压世界也是会视而不见，说不定还嫁祸给中国称是他们背后指挥
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 1664#       发表于 2020-5-31 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623840&amp;ptid=1937970" target="_blank">zmw_831110 发表于 2020-5-31 11:54</a>
+https://m.weibo.cn/5721376081/4510607750090344
+
+—— 来自 HMD Global Nokia 7 plus, Android 9 ...</blockquote>
+这是抢东西还是司机碾人啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  vampiar  
+##### 1665#       发表于 2020-5-31 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623912&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-31 12:01</a>
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+麻痹，这招太狠了，国家炼成阵，用整个国家来碰瓷你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  巫师萨满  
+##### 1666#       发表于 2020-5-31 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623912&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-31 12:01</a>
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+快点快点，让我们看看真正的水箱压人是什么样的<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX A, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  筱原重工  
+##### 1667#       发表于 2020-5-31 12:07
+
+
+
+
+史诗复刻，梦幻联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 1668#       发表于 2020-5-31 12:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623912&amp;ptid=1937970" target="_blank">山本聪 发表于 2020-5-31 12:01</a>
+
+据说最迟下个月4号清场。懂王已经在白宫战情室要求内阁成员表态。FBI的首席法律顾问因为不同意已经被免职 ...</blockquote>
+希望美国群众坚持到那一天<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 1669#       发表于 2020-5-31 12:08
+
+
+
+<blockquote>vampiar 发表于 2020-5-31 11:57
+来个汉末剧本，各州刺史军阀混战</blockquote>
+汉末想多了，现在像明末，还不知道有没有人起义
+
+
+
+
+
+                                            
