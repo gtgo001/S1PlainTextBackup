@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 04:11** 
+> ## **本文件最后更新于2020-05-31 10:09** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_rjK8e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_ep6BR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18463,7 +18463,7 @@ crew好强大
 
 
 这个4年前的视频笑死我了，纯一直夸宫姨可爱，看到メイアン就笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_m6SlZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_IQhkC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -21082,4 +21082,727 @@ crew配信同接近十倍杀夸宝订阅 夸宝什么时候才能站起来<img s
 
 
 
-             
+
+
+-----
+
+####  QWANG  
+##### 2585#       发表于 2020-5-31 04:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621632&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-31 04:10</a>
+肥希发的这个新的自撮り好他喵像卢本伟回不去了</blockquote>
+还不如当小肥妹呢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 2586#       发表于 2020-5-31 06:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47619489&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-5-30 23:00</a>
+三JK+露露+葵+未来人+叶子</blockquote>
+预示彩虹社要像绿绿一样如彗星般急上升坠毁，话说，这个组好奇怪，2000梁木暴涨
+
+syl
+3jk也不知道沉默的大多数个鬼，郁可唯是不是也算沉默的大多数<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 2587#       发表于 2020-5-31 06:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47619569&amp;ptid=1938145" target="_blank">wzjxq 发表于 2020-5-30 23:07</a>
+这就和n+和沙耶在国内名气一样，不过n+可能还言过了点，还有一个君彼算是比较有名的，接着排下来的phanto ...</blockquote>
+恶鬼村正在国内gal圈很有名啊，不如说特别有名
+
+phantom虽然在gal圈没那么有名，但在虚厨圈有名啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 2588#       发表于 2020-5-31 06:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47620261&amp;ptid=1938145" target="_blank">charzeta 发表于 2020-5-31 00:06</a>
+人家内部都打算冷处理了，裁狗又跳出来想搞事 你楼也顺势开始安排人毕业。
+还好小红帽在这里没有gachi粉?</blockquote>
+我算半个菜噶吃吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 2589#       发表于 2020-5-31 06:51
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-5-31 07:00 编辑 
+
+袈裟！呀！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2590#       发表于 2020-5-31 06:55
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-31 07:59 编辑 
+
+那来点团长<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这皮真的和舰B的天狼星很像，很色，今早团长要健身环
+https://twitter.com/o8q/status/1263803193495924736?s=20
+<img src="https://p.sda1.dev/0/c7615efc78e3ed1dcbf3859d75f6e5bc/IMG_AD012AE96C751C2FF33A7CB60807C565.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 2591#       发表于 2020-5-31 06:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621819&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-31 06:55</a>
+你米国待久了语文退化了啊，楼主说的上一个是ig是嘲笑他不点名的人，不是说被他点名的人… ...</blockquote>
+日，看来是nt了，刚起脑子不行编辑掉编辑掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 2592#       发表于 2020-5-31 07:24
+
+
+
+
+可是我看这个小肥妹迷离的眼神有点伊织萌的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 2593#       发表于 2020-5-31 07:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621090&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-5-31 01:32</a>
+说实话我入坑晚，真不知到雷速登是个什么情况</blockquote>
+雷速登口嗨给女人下药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，沾沾自喜。和某V私联过还摸过觉得倍有面子。被挖出来还十分头铁不肯删。入虹前只关注了傻葵弄的粉丝担忧。熊猫人推特一句“睡得好爽，应该被下药了吧。”表明她的态度。
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 2594#       发表于 2020-5-31 07:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面一朋友放的管人CD的O榜销量把我看笑了，Vtuber始皇帝最新单曲狂卖456张，谁看了不说一声惨
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2595#       发表于 2020-5-31 07:55
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-31 07:56 编辑 
+
+看你们昨晚聊狐火羊和anti的事，怎么说呢，狐皇不被anti找sc不高其实有道理的，她那副我不在乎的态度太强了，强到anti觉得踩她没用gachi觉得自己不被她在乎。
+羊是真的不该理anti的，你对sc有反应会去念就会有人打钱，你天天去给自己的fanart点赞回复就会有更多创作者来，V的反应本身就是一些人做一些事的原因。
+说起来这三的单人直播我都有看过但这个组合的联动我一次都没看，能弄到阿火的独角兽来给羊说星的事，是说明这三联动时的关系这么好的吗。
+https://twitter.com/rin7914/status/1266693573187010561?s=20
+https://twitter.com/hikawa21/status/1266697020636459008?s=20<img src="https://p.sda1.dev/0/0516bb00feecb30094125eee6395d6a9/IMG_C232E4F95638A03F20BB46B42C9440B2.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2596#       发表于 2020-5-31 08:08
+
+
+
+ 本帖最后由 opersuper 于 2020-5-31 08:12 编辑 
+
+fanart强反应sc弱反应是老牌企业势的做派，天皇狐皇比起实益更注重“牌面”，netキャバ嬢不做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2597#       发表于 2020-5-31 08:11
+
+
+
+
+海苔组就是白上桑和芙碳畜生羊三个，联动频度已经堪称日常了…而且昨天白上桑的踩也没少啊，就是不知道星那边有没有被踩，看踩数anti甚至比几个星的同接数还高。不过之前某次大概是宝可梦联动，踩数被一阵狂砍之后，anti对星点踩的热情就低落了很多<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2598#       发表于 2020-5-31 08:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羊出道第二天就开始说自己直播同接多少多少
+
+有事没事就反应个推上的お気持ち长文怪文书
+
+读个sc还得把颜色说出来，有事没事就哭哭哭
+
+都是很败路人缘容易被anti当玩具的行为
+
+我觉着单纯就是以前太不争气，菜的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2599#       发表于 2020-5-31 08:21
+
+
+
+<[img src="https://i.ibb.co/dQTSWTn/Screenshot-20200531-081934-bilibili.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 2600#       发表于 2020-5-31 08:23
+
+
+
+
+anti需要回应，这个思路就不对，真正不喜欢你的早就不看你了，anti的都是单纯拿你当乐子的，不停的回应anti就和跟贴吧乐子人好好讲道理一样，你长篇大论的写一堆人家一个字也不会看，他们要的就是单纯从点踩这个行为中得到乐子而已。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2601#       发表于 2020-5-31 08:24
+
+
+
+
+sc分颜色，有事没事挂推哭哭，这羊莫不是苔箱人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2602#       发表于 2020-5-31 08:30
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-5-31 08:53 编辑 
+
+你们懂什么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+说不定人家是在服务anti来保持anti的粘性呢
+
+
+这么做的同时还能吸引我这种精神慕残变成噶吃
+
+
+如果不这么做能在这里和5ch有现在这么高的讨论度？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+都说内卷内卷的， 这就是吸引维持新型观众的尝试啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+楼下下老哥说4期跟anti做持续斗争， 也许这是4期的商法呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2603#       发表于 2020-5-31 08:30
+
+
+
+
+批羊不应该提到最精彩的龙羊对谈里抱怨自己朝に歌番組伸びない吗，不过要说点踩数也远远比不上当时被称为holo尊师的小天使
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2604#       发表于 2020-5-31 08:35
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-31 08:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622021&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-5-31 08:11</a>
+海苔组就是白上桑和芙碳畜生羊三个，联动频度已经堪称日常了…而且昨天白上桑的踩也没少啊，就是不知道星那 ...</blockquote>
+狐皇那的踩应该是因为平时喜欢搞大家庭结果这时候就她一个去撞ark，羊的是每周定番且可以挂后台当战歌。
+
+syl，这么一看四期这五个真是整天在和anti作斗争，从mrr和towa开播至今了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2605#       发表于 2020-5-31 08:39
+
+
+
+
+不过这些anti都是时令性质的，一会玩这个一会玩那个，紫宝以前也没好到哪里去，现在不还是好好的
+
+反正羊多调整调整吧，心态锻炼好了就没事了，她情况不差的
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 2606#       发表于 2020-5-31 08:42
+
+
+
+
+楼里一谈到该如何对待anti的话题时，我脑中第一个想起的竟然是当年王者小弟的飙车场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2607#       发表于 2020-5-31 08:51
+
+
+
+
+吸引anti的直播方式不是斧子哥最喜欢的直播方式吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2608#       发表于 2020-5-31 08:54
+
+
+
+
+斧子哥除了anti还能吸引谁
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2609#       发表于 2020-5-31 08:55
+
+
+
+
+芙宝吹了很久的早安可可上位替代就要开播了，大家为了回头anti芙宝也要过来看啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2610#       发表于 2020-5-31 08:56
+
+
+
+
+yagoo赶紧套皮杏星出道吧，好给星anti和独角兽一个发泄渠道，说不定还能把星带着一起起飞。首播主题我都想好了，就直播开除梅露<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 2611#       发表于 2020-5-31 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622063&amp;ptid=1938145" target="_blank">魔法使い2019 发表于 2020-5-31 08:21</a></blockquote>
+精神慕残的建议去看mmr，yhm还可能是演的。但mmr一定是是真的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2612#       发表于 2020-5-31 09:17
+
+
+
+
+淦，我是知道一弦晚上十一点半要播的，可我真的顶不住，只能看录播<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">果然是打老游戏啊
+
+
+顺便，我一大早打开NGA舟版居然看见V综楼友求吹专三拔刀的帖子还在首页，老兄你如果没煌那你没理由不专拔刀，再说了又不是哪个本的敌人都是第七章那样双抗高的一批，你怕个啥
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2613#       发表于 2020-5-31 09:24
+
+
+
+
+仔细想想，如果2周年的时候梅露出现了，是不是意味着某些决定已经做了呢
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2614#       发表于 2020-5-31 09:29
+
+
+
+
+梅露是先发的，两周年早就过了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2615#       发表于 2020-5-31 09:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">之前都说梅露不会走，现在怎么感觉梅露走人的可能性很大。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2616#       发表于 2020-5-31 09:39
+
+
+
+ 本帖最后由 bluebaby 于 2020-5-31 09:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622482&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-5-31 09:32</a>
+之前都说梅露不会走，现在怎么感觉梅露走人的可能性很大。</blockquote>
+还是不走的可能性大吧，尤其cover报销费用以后…顶多以后梅露就摆那偶尔集体活动才出现。
+
+syl，miko这周末新闻制作是还行，芙宝今天可以小吹一把了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过还是没有早安可可刚出来那么惊艳。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2617#       发表于 2020-5-31 09:40
+
+
+
+
+梅露要走的话，把当时朱雀走的时候的文书稍微改一下不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2618#       发表于 2020-5-31 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47622517&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-31 09:39</a>
+
+还是不走的可能性大吧，尤其cover报销费用以后…顶多以后梅露就摆那偶尔集体活动才出现。
+
+
+syl，miko这周 ...</blockquote>
+miko重点是展现出了一个稳定的团队作品，这信心就大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2619#       发表于 2020-5-31 09:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2620#       发表于 2020-5-31 09:59
+
+
+
+
+走了是炸药，不走是根刺，梅露ナイスゥ
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2621#       发表于 2020-5-31 10:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">ark不行了，ascc也不行了，龙皇已经被吸干吸净了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2622#       发表于 2020-5-31 10:01
+
+
+
+
+ark总给我一种突然之间没了热度的感觉，转折点在哪里啊？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2623#       发表于 2020-5-31 10:06
+
+
+
+
+速报
+
+日南小学生时代外号“奔跑的奶牛”
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2624#       发表于 2020-5-31 10:07
+
+
+
+
+之前阿火还是被认为三期生里拖后腿的，现在已经可以被称为炎皇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 说明独角兽、百合豚、gachi恋确实有消费力啊
+
+
+都这样了，yagoo和狐皇还觉得把独角兽杀了置换成男女都看的粉丝是好事呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  也不相信自己凭啥比彩虹钱多
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2625#       发表于 2020-5-31 10:08
+
+
+
+
+我还是很难想象老板会允许员工同时签两家合同，报销费用某种意义上来说当作分手费也不是不行毕竟就这点来说是cover亏欠梅露的
+
+
+
+
+
+            
