@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-23 14:01** 
+> ## **本文件最后更新于2020-06-01 18:01** 
 
 
 
@@ -2841,4 +2841,624 @@ BbsImg_9951571866222_1590070546_s_169416_o_w_656_h_1024_14562.webp.jpg
 
 
 
-                                            
+
+
+-----
+
+####  athena_1982  
+##### 52656#       发表于 2020-5-23 15:30
+
+
+
+
+话说基德也颜艺化了……
+
+
+另外在知乎看到个有趣的观点感觉不错转过来了（作者ID:紫电青霜）
+
+这话标题是战斗音乐，其实根源就是基德跟阿普
+<img src="https://pic3.zhimg.com/80/v2-ab982c625b9f755da7d1e0fc71963ba1_720w.jpg" referrerpolicy="no-referrer">
+
+基德是重金属庞克少年，阿普是土味DJ小伙……<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52657#       发表于 2020-5-23 15:39
+
+
+
+ 本帖最后由 武男 于 2020-5-23 15:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47527400&amp;ptid=98922" target="_blank">少年包工头 发表于 2020-5-23 12:01</a>
+
+我觉得就算罗杰卡普直捣洛克斯贼巢的时候碰到阿普来一下也是一个晕一个被放血，哈哈 ...</blockquote>
+吐槽果实能力的，怎么忘了前面御田都怼不开屏障果实233。还有我觉得红狗蛮强的，也是因为连凯多都觉得油锅厉害，那么说他是最强攻击力倒是没错。
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52658#       发表于 2020-5-23 19:49
+
+
+
+
+卡彭完全被绑上了草帽的战车啊。老大的老婆受到了草帽团的恩义，手下头目的老婆是草帽团领航员的结义姐妹
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52659#       发表于 2020-5-23 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">海贼这么久了 有些能力就是无赖啊
+
+阿普这能力也不是真拿到什么巨大战果了 他本身也不是什么弱小角色
+
+打个先手的小优势不是正常的很 
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52660#       发表于 2020-5-23 20:50
+
+
+
+
+这话被吐槽太多主要是因为如果没有索隆，这路飞直接就挂了，眩晕几秒，那些杂兵再拿武器一桶乱扎，海贼王剧终。先不说三灾，甚至六子都没出面，这就栽在这儿了。话说阿普这能力修炼到极致的话暗杀是不是无敌了？管你什么自然系什么见闻色，附带霸气攻击直接一波带走。不过从这一话看好像弱点也很明显，就是前期要咏唱一会，放招CD比较长，而且不能近身，一近身直接吃瘪。
+
+
+
+
+
+
+
+-----
+
+####  sdnuluffy  
+##### 52661#       发表于 2020-5-23 20:55
+
+
+
+
+妈的，你们怎么都看到了啊，TX的怎么还没出。。。。
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52662#       发表于 2020-5-23 21:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47529458&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-05-23 15:30:26</a>
+话说基德也颜艺化了……
+
+
+另外在知乎看到个有趣的观点感觉不错转过来了（作者ID:紫电青霜）
+
+这话标题是战斗 ...</blockquote>玩摇滚的瞧不起说唱的吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52663#       发表于 2020-5-23 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47533130&amp;ptid=98922" target="_blank">sdnuluffy 发表于 2020-05-23 20:55:45</a>
+妈的，你们怎么都看到了啊，TX的怎么还没出。。。。</blockquote>贴吧有汉化
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52664#       发表于 2020-5-23 22:04
+
+
+
+ 本帖最后由 7七麦 于 2020-5-23 23:10 编辑 
+
+阴沟里翻船不多的是，白胡子拿海军铁板没办法，要是没有奥兹全军覆没，红发东海丢胳膊，大妈被两次推下船，黑胡子冲击波震动效果异常好
+能力者就是这样啊，砂糖就是这样，没情报就是吃亏
+
+
+
+
+
+
+
+-----
+
+####  7七麦  
+##### 52665#       发表于 2020-5-23 22:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47533073&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-5-23 20:50</a>
+这话被吐槽太多主要是因为如果没有索隆，这路飞直接就挂了，眩晕几秒，那些杂兵再拿武器一桶乱扎，海贼王剧 ...</blockquote>
+没有路飞爹帮忙草帽团进不了伟大航路
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52666#       发表于 2020-5-24 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47533472&amp;ptid=98922" target="_blank">理六 发表于 2020-5-23 21:23</a>
+
+玩摇滚的瞧不起说唱的吗
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+玩摇滚的怼天怼地，啥都看不起<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 52667#       发表于 2020-5-24 03:20
+
+
+
+
+海贼一开始就以果实能力解法为卖点的啊。时间久了都觉得不可接受了？以前段落猜敌人有什么能力，怎么去**，是很大的乐趣啊
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52668#       发表于 2020-5-24 04:14
+
+
+
+
+本質還是搞了個霸氣設定的鍋。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Freemasons  
+##### 52669#       发表于 2020-5-24 09:04
+
+
+
+
+个人最受不了的还是路飞无脑破坏计划，同样的桥段要用多少次<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52670#       发表于 2020-5-24 09:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47537501&amp;ptid=98922" target="_blank">Freemasons 发表于 2020-5-24 09:04</a>
+个人最受不了的还是路飞无脑破坏计划，同样的桥段要用多少次</blockquote>
+不，这次罗大仙已经以路飞大闹为前提布置计划，如果路飞安安静静入城反而是破坏计划了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一刀捅死大萌德  
+##### 52671#       发表于 2020-5-24 14:58
+
+
+
+
+路飞的塑造和御天一模一样，背负领导人的头衔，表现的确像个二傻，每次都无脑干，靠运气嬴。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  faust123  
+##### 52672#       发表于 2020-5-24 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47533073&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-05-23 20:50:52</a>
+这话被吐槽太多主要是因为如果没有索隆，这路飞直接就挂了，眩晕几秒，那些杂兵再拿武器一桶乱扎，海贼王剧 ...</blockquote>当初北斗神拳里吵架战斗力倒是也经常有南斗暗钟拳乱入的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 52673#       发表于 2020-5-24 19:11
+
+
+
+
+阿普这么牛逼
+
+
+
+
+
+
+
+-----
+
+####  LichEnd  
+##### 52674#       发表于 2020-5-24 19:21
+
+
+
+
+主要路飞都吃亏多少次了，还这么不长记性。
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 52675#       发表于 2020-5-24 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47542814&amp;ptid=98922" target="_blank">LichEnd 发表于 2020-5-24 19:21</a>
+
+主要路飞都吃亏多少次了，还这么不长记性。</blockquote>
+这次没法长记性
+
+阿普的攻击路飞不是不防，是不知道怎么防
+
+
+跟果实能力有关的战斗一直是这样，当年打凯撒不也被一波几乎灭团了
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52676#       发表于 2020-5-24 21:13
+
+
+
+
+阿普这个感觉可以论外，音波攻击看不见摸不着，前一秒还在那儿手舞足蹈后一秒指你一下直接炸了，能初见杀的概率很高的
+
+
+不过基德应该是见识过这家伙能力的，所以基德一出面阿普明显比之前慌
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52677#       发表于 2020-6-1 15:50
+
+
+
+
+981情报
+
+基德追问被打伤的阿普，关于他是凯多手下的事。
+
+Numbers成员hatcha（暂译为“八查”）登场。（他的笑声是【hachacha】）
+
+基拉说能听到阿普的声音的地方都是他的攻击范围。
+
+福兹福准备带着小弟一起去找凯多儿子大和。
+
+福兹福一边看着Queen，一边想着刚才Queen说的话，说道他也有想杀的人。
+
+锦卫门一行人觉得黑玛利亚守护的那边没人就从那里经过。晚些发现了有人试图躲起来，但是乔巴是躲在坦克里的没有躲成功。
+
+那个人就是大妈，大妈发现了乔巴。
+
+大妈的孩子们随着瀑布重新上去，但是又被人踢下去了，令人吃惊的是那个攻击是马尔科做的！
+
+除马尔科外，本话最后一格图里还出现了猫蝮蛇和以藏！
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52678#       发表于 2020-6-1 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">怎么周一就有情报
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52679#       发表于 2020-6-1 15:58
+
+
+
+
+以藏小菊终于要见面了吗，想看以藏小菊搂着山治君去洗澡<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  寒山寺  
+##### 52680#       发表于 2020-6-1 15:59
+
+
+
+
+大妈团真惨。
+
+
+
+
+
+
+
+-----
+
+####  Acatv  
+##### 52681#       发表于 2020-6-1 16:05
+
+
+
+
+马尔科：都是皇副，king踢得，我踢不得？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cwlqxs  
+##### 52682#       发表于 2020-6-1 16:19
+
+
+
+
+这个情报是不是机翻
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52683#       发表于 2020-6-1 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47638428&amp;ptid=98922" target="_blank">Acatv 发表于 2020-06-01 16:05:47</a>
+马尔科：都是皇副，king踢得，我踢不得？</blockquote>新的皇副标准出现了，不能一脚踢走大妈团的都没有皇副实力
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  8aa8aa8aa  
+##### 52684#       发表于 2020-6-1 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47543005&amp;ptid=98922" target="_blank">扭头就走 发表于 2020-5-24 19:47</a>
+这次没法长记性
+
+阿普的攻击路飞不是不防，是不知道怎么防</blockquote>
+别说路飞了，就算黑胡子，也差点被毒人一波灭团。包括糖果，和消极幽灵，银狐，罗，如果不清楚能力，本人战斗力又还可以的话，被初见杀的概率太高了
+
+
+
+
+
+
+
+-----
+
+####  Kyo.C  
+##### 52685#       发表于 2020-6-1 17:01
+
+
+
+
+当年在岛上围剿超新星的时候，面对阿普的攻击如果黄猿不是自然系就栽了?
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52686#       发表于 2020-6-1 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639091&amp;ptid=98922" target="_blank">Kyo.C 发表于 2020-6-1 17:01</a>
+当年在岛上围剿超新星的时候，面对阿普的攻击如果黄猿不是自然系就栽了?</blockquote>
+还有理论上柯拉松的静寂果实完全克制阿普。
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 52687#       发表于 2020-6-1 17:13
+
+
+
+
+一举成为皇副级别的路已经铺好了，就看山治你能不能抓住机会了，赶紧去爬瀑布<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52688#       发表于 2020-6-1 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639233&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2020-6-1 17:13</a>
+一举成为皇副级别的路已经铺好了，就看山治你能不能抓住机会了，赶紧去爬瀑布 ...</blockquote>
+然后发现迷路的索隆已经在上面了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这不是当年阿拉巴斯坦爬钟楼的再现么<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 52689#       发表于 2020-6-1 17:56
+
+
+
+
+没了库里的大妈团就是个时髦度垫背
+
+
+
+
+
+                                           
