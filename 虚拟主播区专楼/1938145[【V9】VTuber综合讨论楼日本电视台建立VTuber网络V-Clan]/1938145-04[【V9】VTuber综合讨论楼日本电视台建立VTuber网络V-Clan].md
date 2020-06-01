@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 00:10** 
+> ## **本文件最后更新于2020-06-02 02:11** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_As5Ix" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_E2482" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7535,6 +7535,25 @@ QQ截图20200601224031.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9526,6 +9545,25 @@ OPEN BETAのZIG
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|20包邮收私信|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10221,8 +10259,12 @@ syl白天 ...</blockquote>
 
 
 
+ 本帖最后由 KKKt 于 2020-6-2 00:10 编辑 
 
 编辑了那我也编辑了
+
+
+除了某两家还有活人吗<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
 
 
 
@@ -10244,4 +10286,647 @@ syl白天 ...</blockquote>
 
 
 
-                                
+
+
+-----
+
+####  bluebaby  
+##### 5034#       发表于 2020-6-2 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644478&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-2 00:05</a>
+其实我挺想知道假设liver全都带皮声称成了个人势，但还保持互相之间原有的关系。然后要3D就称自己是租用了 ...</blockquote>
+公司分钱就会有流水记录吧…以及工商广告合作等等都会有企业参与的记录。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 5035#       发表于 2020-6-2 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644478&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-2 00:05</a>
+ 其实我挺想知道假设liver全都带皮声称成了个人势，但还保持互相之间原有的关系。然后要3D就称自己是租用了 ...</blockquote>
+你这都不用任天堂出手，敢这样操作过不了一个星期这箱就炸的差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 5036#       发表于 2020-6-2 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644491&amp;ptid=1938145" target="_blank">18300625949 发表于 2020-6-2 00:07</a>
+
+花丸这歌力、企划力、用心程度在油管居然只是底边，404对于小箱真的太难了。幸好花丸在404没火起来…… ...</blockquote>
+3、400同接的底边<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 5037#       发表于 2020-6-2 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47638320&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-1 15:56</a>
+
+既然你觉得除去2000还会主动谈彩虹的虹人在多数情况下都是可以正常交流的，那把2000换了的意义是什么？
+
+
+ ...</blockquote>
+因为8250会让那些“少数情况”逐渐变为“多数情况”。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5038#       发表于 2020-6-2 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644478&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-2 00:05</a>
+
+其实我挺想知道假设liver全都带皮声称成了个人势，但还保持互相之间原有的关系。然后要3D就称自己是租用了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然个人势，那皮和频道全在liver手上了吧，带皮跳槽也可以了，这真是太好了
+
+资本家是傻子么
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5039#       发表于 2020-6-2 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644491&amp;ptid=1938145" target="_blank">18300625949 发表于 2020-6-2 00:07</a>
+
+花丸这歌力、企划力、用心程度在油管居然只是底边，404对于小箱真的太难了。幸好花丸在404没火起来…… ...</blockquote>
+国内直播不也一样么，不管是企业还是你自己的人脉本质都是提供给你曝光引流的机会，没这种机会就不要说会不会火这种话了，别人都看不到你，花丸在国内能被看到不也是有鹿乃的原因和yhm的加成么
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5040#       发表于 2020-6-2 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47644606&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-2 00:19</a>
+既然个人势，那皮和频道全在liver手上了吧，带皮跳槽也可以了，这真是太好了
+
+资本家是傻子么 ...</blockquote>
+只要把官号开除出大家庭就能解决问题了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5041#       发表于 2020-6-2 00:22
+
+
+
+
+花寄的重心不一直都在国内吗，油 管一周也就动一到两次，发的歌也很少，怎么可能火...
+
+
+
+
+
+
+
+-----
+
+####  57131928  
+##### 5042#       发表于 2020-6-2 00:23
+
+
+
+
+桃子这新b博
+
+有粽姨那味了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5043#       发表于 2020-6-2 00:24
+
+
+
+
+星街不打紧的，别说PPT更能练块力，她少打块多唱歌怕是自己收的也多观众也更开心好吧。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5044#       发表于 2020-6-2 00:25
+
+
+
+
+我特么笑死，怎么2020年了还有弱智以为nga的匿名有用肆意开团的草生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5045#       发表于 2020-6-2 00:25
+
+
+
+
+486上次播老任是啥来着...大空家打块？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5046#       发表于 2020-6-2 00:30
+
+
+
+<blockquote>18300625949 发表于 2020-6-2 00:07
+花丸这歌力、企划力、用心程度在油管居然只是底边，404对于小箱真的太难了。幸好花丸在404没火起来…… ...</blockquote>
+这和绝对天使的传说歌回不是差不多唱的还差点，区别就是在b站的成了，在404的ban了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5047#       发表于 2020-6-2 00:36
+
+
+
+
+お前任天堂かよ
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_DUtTP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5048#       发表于 2020-6-2 00:37
+
+
+
+
+苔总声称业界抽成最低<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（和大公司相比），并且二期生已经招到了两个人，不是转生但是是经验者
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 5049#       发表于 2020-6-2 00:37
+
+
+
+
+为什么总觉得3、400同接就算底边了啊，不过也有点道理，毕竟不是个人势。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5050#       发表于 2020-6-2 00:38
+
+
+
+
+转推文应该不违反什么著作权法... ...的吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5051#       发表于 2020-6-2 00:42
+
+
+
+
+发警告禁止使用就算了，画像使用料是不是学苔宝又学歪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 5052#       发表于 2020-6-2 00:43
+
+
+
+
+哪怕是企业势，底边别说三位数同接了，两位数再生的都大把大把的
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5053#       发表于 2020-6-2 00:45
+
+
+
+
+苔箱这么扩容下去怕不又是一个杏、我觉得虹杏高层应该强制liver停止给苔总喂饭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5054#       发表于 2020-6-2 00:47
+
+
+
+
+拉倒吧现在她一个人管都要滑跪了找几个staff之后虹杏的破事她一个都免不了好吧
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 5055#       发表于 2020-6-2 00:51
+
+
+
+
+没什么印象了，
+
+海莓之前说过中文的“我爱你”吗？
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 5056#       发表于 2020-6-2 00:52
+
+
+
+
+还别说，我以前一直都以为苔箱就是海苔男拿来搞笑造梗的，没想到现在还办的挺有声有色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5057#       发表于 2020-6-2 00:55
+
+
+
+
+你以为海苔男的《养gachi》是白学的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5058#       发表于 2020-6-2 00:56
+
+
+
+
+这不废话嘛，苔箱老板员工都是她自己，手下的主播也是自己P自己的吧
+
+角田牙膏要是不用养几十上百号人也不会抽那么多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5059#       发表于 2020-6-2 00:57
+
+
+
+
+苔箱就苔总一个staff吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5060#       发表于 2020-6-2 01:10
+
+
+
+ 本帖最后由 proxima 于 2020-6-2 01:12 编辑 
+
+只有一个经纪人，打算再招一个经纪人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">苔总周边的画都是找底下人画的，估计开的友情价吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+苔宝这会限不是结婚就是训粉，一点信息量都没有，还我会员钱好吗
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5061#       发表于 2020-6-2 01:12
+
+
+
+
+苔总办的有声有色的，说明虹杏招了很多吃干饭的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 5062#       发表于 2020-6-2 01:16
+
+
+
+
+每个公司和机构做大了之后都必然有吃干饭的，而每个朝代的灭亡都有部分原因是冗官<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5063#       发表于 2020-6-2 01:16
+
+
+
+
+两个员工成本是100个员工的几百分之一吧，可以自宅办公不用报销车费，餐费，办公楼租金，舒服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5064#       发表于 2020-6-2 01:16
+
+
+
+这就是迫不及待集金的虹人吗？
+
+我都想咲了^^🐼
+
+(爱猫人对猫毛过敏未免也太惨了）
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/011505q4qcv4cncowj2qf1.png" referrerpolicy="no-referrer">
+
+
+<strong>ワンワン！出勤初日で退職届出したくなっちゃった社会様の犬ですワ～～～ン♡ - YouTu.png</strong> (1.3 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 01:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5065#       发表于 2020-6-2 01:18
+
+
+
+
+回忆了一下，熊猫人抱怨运营、传言投诚木口原来是彩虹的苦肉计，等到今天借来任天堂东风火烧赤壁。田角，你好强大！
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5066#       发表于 2020-6-2 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645003&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-2 01:16</a>
+这就是迫不及待集金的虹人吗？</blockquote>
+
+
+-----
+
+####  proxima  
+##### 5067#       发表于 2020-6-2 01:25
+
+
+
+
+不过有一说一，苔宝这个箱一期生也就还是图一乐的成分比较多，都是亲友抱团。多半也是看到好像还阔以赚钱准备整二期生。
+
+不过会不会翻车可就看这个二期生了。我是不觉得事到如今还有人能够从虹杏嘴里抢肉吃，当然本身没什么成本翻车了就翻车了
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5068#       发表于 2020-6-2 01:41
+
+
+
+
+谁会是苔宝的夸夸？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5069#       发表于 2020-6-2 01:42
+
+
+
+
+苔宝一手《人脉》一手《脸皮》
+
+虹火蹭虹杏火蹭杏，就和90016的蹭皇一样，能吃不到饭吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5070#       发表于 2020-6-2 01:44
+
+
+
+
+
+6月2日 20:00
+
+【雀魂】rurudoマミーと一緒に初心者🔰麻雀🀄ﾂﾓ【#常闇トワ/#ホロライブ】
+
+
+
+
+
+                               

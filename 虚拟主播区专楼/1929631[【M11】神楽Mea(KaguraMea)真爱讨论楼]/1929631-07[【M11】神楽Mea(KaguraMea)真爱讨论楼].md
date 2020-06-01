@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 00:03** 
+> ## **本文件最后更新于2020-06-02 02:04** 
 
 
 
@@ -19484,12 +19484,75 @@ syl 记得去年麻和茄子还有联系的迹象，今年就不知道了，万�
 
 
 
+ 本帖最后由 A2014720 于 2020-6-2 00:14 编辑 
 
 今天还是期待值放的太高了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 整活是挺有意思的，但最近杂谈歌回吃的有点多了，想看看棉花糖，单人游戏之类（不要恐怖游戏）
+她手游整活明明可以的，不播感觉浪费了点
 
 
 
 
 
-            
+
+
+-----
+
+####  clvan_  
+##### 10139#       发表于 2020-6-2 00:17
+
+
+
+
+一直挺奇怪你麻明明是个00后，网上冲浪看的追的东西却是好多90后流行的内容，真就小小年纪就网瘾了？
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10140#       发表于 2020-6-2 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">烙呢，你麻可是14岁初配信的狠人
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10141#       发表于 2020-6-2 00:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">发弹幕被本人念到带几句话题的感觉是不错...这种唠嗑般的互动感灰常令人安心（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10142#       发表于 2020-6-2 01:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可恶，没蹲到，睡了
+
+
+
+
+
+           
