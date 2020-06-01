@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 02:11** 
+> ## **本文件最后更新于2020-06-02 04:08** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_E2482" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_iA8me" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10526,7 +10526,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_DUtTP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_eFqcG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10929,4 +10929,20 @@ syl白天 ...</blockquote>
 
 
 
-                               
+
+
+-----
+
+####  kanonsisya  
+##### 5071#       发表于 2020-6-2 02:58
+
+
+
+
+好久没看日南直播，这麦确实好，不亏是麦性恋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                              
