@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-01 18:12** 
+> ## **本文件最后更新于2020-06-01 20:13** 
 
 
 
@@ -2334,8 +2334,8 @@ SYL:我去这虹SC图太真实了···这相羽初叶油管的订阅和TOWA差�
  本帖最后由 alcoholic1000 于 2020-5-31 19:13 编辑 
 
 来点私服
-<img src="https://pbs.twimg.com/media/EMDE-OvU8AIhnwx?format=jpg&amp;name=large" id="aimg_yMRzE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/ELvHWG6UEAAJSwx?format=jpg&amp;name=large" height="1131" id="aimg_v9ULu" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EMDE-OvU8AIhnwx?format=jpg&amp;name=large" id="aimg_V4aJS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/ELvHWG6UEAAJSwx?format=jpg&amp;name=large" height="1131" id="aimg_kp9pf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 忘贴地址了
 [https://twitter.com/reoenl/status/1205776516094672899](https://twitter.com/reoenl/status/1205776516094672899)
@@ -27624,9 +27624,9 @@ holo香水和做，4800日元一瓶，有巧可老师，ayame 夏哥 团长和�
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏哥月薪那么高买5瓶怎么了，葵皇意思下就行了
+ 本帖最后由 暴走的包子 于 2020-6-1 18:12 编辑 
 
-香水男士用是能用，但没得试闻的话很可能撞雷
+风怒
 
 
 
@@ -27742,6 +27742,1451 @@ ascc这事儿早上看repo知道的，本来也没啥想法，coco玩擦边球�
 
 
 
+﹍﹍﹍
+
+评分
 
 
-  
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1|欢乐多|
+| mmbk| + 1|欢乐多|
+| QWANG| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4423#       发表于 2020-6-1 18:13
+
+
+
+
+肉松饼草
+
+开个淘宝店卖心心牌猪肉脯，团长牌牛肉粒？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 4424#       发表于 2020-6-1 18:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">卖香水的下一步就是社内爆红组合卖10w的显示器
+
+之后就是参演京都活动，被强塞
+
+再然后就是社内top无敌整活，和一个奔女孩合作并被top粉丝狂喷
+
+当然以上都不可能发生，
+
+因为是holo live嘛来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 4425#       发表于 2020-6-1 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639916&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-1 18:10</a>
+mrr会不会买啊，我比较期待这个，
+
+mrr到了夏哥家里做客，看到葵皇的香水，</blockquote>
+2000会不会写故事啊，香水这种东西还要看到？
+
+祭你身上怎么有那个女人的味道<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 4426#       发表于 2020-6-1 18:15
+
+
+
+
+不应该是心心牌牛肉粒？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 4427#       发表于 2020-6-1 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639961&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-1 18:14</a>
+卖香水的下一步就是社内爆红组合卖10w的显示器
+
+之后就是参演京都活动，被强塞</blockquote>
+这里五个可没有阿葵级的人物啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4428#       发表于 2020-6-1 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639931&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-1 18:11</a>
+
+现在赞踩是8735:197。以正常100:1来算大概有100个小天使gachi点踩？</blockquote>
+其实去认真看了下也还好，不是很容易联想到上吊什么的。
+
+当然不知道是不是有什么梗或者neta。
+
+总结：可以炎，没必要。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4429#       发表于 2020-6-1 18:16
+
+
+
+
+空妈早几个月就做过资生堂的工商了，你说空妈就有多少女性观众吗，其他人卖卖香水怎么了。
+
+
+2000的贷款黑屁是真的......有想象力，我这种来来回回只能黑脸圆的真是甘拜下风，这都怎么想出来的。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 4430#       发表于 2020-6-1 18:18
+
+
+
+
+看了眼隔壁楼，冲国5厕还是让贤给V8吧。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 4431#       发表于 2020-6-1 18:26
+
+
+
+
+何ですか丶それ<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/01/182601esj4643o67674y77.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200601_182114_com.google.android.youtube.jpg</strong> (844.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-1 18:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 4432#       发表于 2020-6-1 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639814&amp;ptid=1938145" target="_blank">屑屑代沟尼亚 发表于 2020-6-1 18:02</a>
+
+化身一下2000 当年彩虹香水夏哥买了五瓶阿葵的 
+
+阿葵这次能不能买一瓶回来意思意思 ...</blockquote>
+估计不会吧，也就星川会买了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 4433#       发表于 2020-6-1 18:28
+
+
+
+ 本帖最后由 colodes 于 2020-6-1 18:35 编辑 
+
+好的黑屁要有生活经验作支撑，像2k没有灵感的时候就会去旅行，大/大增加自己的眼见，而2k的天赋总能发现常人没办法察觉的东西，比如在韩国某乐园里看见常人没办法看到的随处开后/庭就给他提供了巨大素材
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 4434#       发表于 2020-6-1 18:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">朝鲜人为什么能去韩国旅行
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 4435#       发表于 2020-6-1 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640154&amp;ptid=1938145" target="_blank">KyotoAnimation 发表于 2020-6-1 18:28</a>
+朝鲜人为什么能去韩国旅行</blockquote>
+国事访问，谈判的时候去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4436#       发表于 2020-6-1 18:31
+
+
+
+
+朝鲜人可以偷渡啊
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 4437#       发表于 2020-6-1 18:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640172&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-1 18:30</a>
+
+国事访问，谈判的时候去的吧</blockquote>
+那2000可太后浪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 4438#       发表于 2020-6-1 18:32
+
+
+
+
+2000可是吃公家饭的朝鲜人啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 4439#       发表于 2020-6-1 18:34
+
+
+
+
+朝鲜后浪脱北，再跑到国内凭借自己的脱北身份谋取了一份公家闲职可能性微存
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 4440#       发表于 2020-6-1 18:34
+
+
+
+
+2000哥只是朝鲜族人，怎么就朝鲜人了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 4441#       发表于 2020-6-1 18:35
+
+
+
+
+论miko手上还有多少欧美游戏库存……
+
+避开任地狱是个好事
+
+
+
+
+
+
+
+-----
+
+####  zwj2www  
+##### 4442#       发表于 2020-6-1 18:36
+
+
+
+
+Blessing，六年前流行的歌，当年合唱过的唱见现在没几个还火的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这曲绘一看就是牛批熊，是要边stars御用画师了吗
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 4443#       发表于 2020-6-1 18:38
+
+
+
+
+你们再黑8250他就要查你们的税了哈<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 4444#       发表于 2020-6-1 18:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640221&amp;ptid=1938145" target="_blank">Rosefinch 发表于 2020-6-1 18:34</a>
+
+2000哥只是朝鲜族人，怎么就朝鲜人了。</blockquote>
+根据一滴血原则，只要你有一滴朝鲜人血统，你就是朝鲜人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 4445#       发表于 2020-6-1 18:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> ？怎么我下楼拿了份盒饭就变成北韩人了？？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 拿出黑屁我的一半劲头黑屁liver，V综就不会被mmr占领了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4446#       发表于 2020-6-1 18:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啊这，一打开直播间就看到傻紫卖队友
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 4447#       发表于 2020-6-1 18:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到傻紫连自己人都卖，正常不是该一起战死开始下一场吗？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4448#       发表于 2020-6-1 18:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计是习惯成自然吧，狗子还吐槽了下，打匹配确实没必要那么苟。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 4449#       发表于 2020-6-1 18:44
+
+
+
+ 本帖最后由 SteinSlayer 于 2020-6-1 18:46 编辑 
+
+《二期生为何无法抱团》
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4450#       发表于 2020-6-1 18:46
+
+
+
+
+看了一下，熊猫人的大乱斗开了sc，之前是不是都不开的？
+
+顺便阿b这边有转播。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 4451#       发表于 2020-6-1 18:47
+
+
+
+
+我总有种律可本体唱过blessing的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4452#       发表于 2020-6-1 18:52
+
+
+
+
+杏恐输，虹又赢
+
+支持任天堂法务部重拳出击橄榄木口，维护正版人人有责
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 4453#       发表于 2020-6-1 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640351&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-1 18:46</a>
+
+看了一下，熊猫人的大乱斗开了sc，之前是不是都不开的？
+
+顺便阿b这边有转播。 ...</blockquote>
+你虹跟任地狱官方签完协议了 以后随便打SC
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 4454#       发表于 2020-6-1 18:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640420&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-1 18:52</a>
+
+杏恐输，虹又赢
+
+支持任天堂法务部重拳出击橄榄木口，维护正版人人有责</blockquote>
+无授权违法配信集团hololive
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 4455#       发表于 2020-6-1 18:54
+
+
+
+
+那看来虹这边憋了一个月的sc是要打爆了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4456#       发表于 2020-6-1 18:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640422&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-1 18:52</a>
+
+你虹跟任地狱官方签完协议了 以后随便打SC</blockquote>
+这个我倒是知道，早上都讨论这么多页了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 4457#       发表于 2020-6-1 18:55
+
+
+
+
+社会タレント→“主流进出”→ネットキャバ嬢→带货女主播
+
+论vtuber理想的进化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4458#       发表于 2020-6-1 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿笹好起来了呀，好多红色sc，月底可以看看这个月sc有没有进步了
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 4459#       发表于 2020-6-1 18:56
+
+
+
+
+播人体堂不给开SC杏这边吃亏最大的夸，其他人都还好。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 4460#       发表于 2020-6-1 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640478&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-1 18:56</a>
+
+阿笹好起来了呀，好多红色sc，月底可以看看这个月sc有没有进步了</blockquote>
+那不是恭喜她可以随意播任系游戏的祝贺代吗？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 4461#       发表于 2020-6-1 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640478&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-1 18:56</a>
+阿笹好起来了呀，好多红色sc，月底可以看看这个月sc有没有进步了</blockquote>
+和上月怎么比，不算会限肯定更多的啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 4462#       发表于 2020-6-1 18:57
+
+
+
+ 本帖最后由 离魂仙 于 2020-6-1 18:59 编辑 
+
+Bilibili可不是指定平台<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">估计晚点葵组的100人耐久就不转播了
+
+笹已经三十多万了，打游戏更开心了😙
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 4463#       发表于 2020-6-1 18:57
+
+
+
+
+就木口的水平夸要自断一臂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 4464#       发表于 2020-6-1 18:58
+
+
+
+
+純、ホロにこないの？
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 4465#       发表于 2020-6-1 18:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">大乱斗和死喷这种还好。宝可梦动森真的有让人想打SC的欲望么，我一看就犯困
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 4466#       发表于 2020-6-1 19:00
+
+
+
+
+想啥呢，彩虹sc不行又不是因为之前任系游戏播的多没开sc的关系
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 4467#       发表于 2020-6-1 19:01
+
+
+
+
+任天堂也是大度，对索尼的合作伙伴也开绿灯了。
+
+
+本来我还以为任天堂会选择杏，然后在v圈重演主机大战呢。
+
+
+
+不过这么一来，微软就只剩点生活可选了啊<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">。
+
+
+软饭何时有站起来的一天啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4468#       发表于 2020-6-1 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640489&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-1 18:56</a>
+
+那不是恭喜她可以随意播任系游戏的祝贺代吗？</blockquote>
+是这样，所以才有待观察，看看以后对虹是不是能有很大的帮助，还是说变化不大。
+
+但对熊猫人来说肯定舒服了。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 4469#       发表于 2020-6-1 19:01
+
+
+
+
+比如钓鱼全图鉴的瞬间打钱？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 4470#       发表于 2020-6-1 19:01
+
+
+
+
+企业势是何等不便的东西
+
+还是个人势好
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4471#       发表于 2020-6-1 19:02
+
+
+
+
+不过这只是不让收益，播还是能播吧？大亏可以关sc带乱斗的，不要慌，不缺那点钱
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4472#       发表于 2020-6-1 19:03
+
+
+
+ 本帖最后由 stedckk 于 2020-6-1 19:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640499&amp;ptid=1938145" target="_blank">离魂仙 发表于 2020-6-1 18:57</a>
+
+Bilibili可不是指定平台估计晚点葵组的100人耐久就不转播了
+
+笹已经三十多万了，打游戏更开心了😙
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚说完阿b这边就cut了
+
+看来官号还是不给转播，阿b这边没有合作。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 4473#       发表于 2020-6-1 19:03
+
+
+
+
+很有可能播都不能播
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 4474#       发表于 2020-6-1 19:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我们木口人可以开一个交流场 
+
+粉丝在交流场打sc跟你任天堂有什么关系吗
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 4475#       发表于 2020-6-1 19:04
+
+
+
+
+空组有个人在v吧反串被踢了
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 4476#       发表于 2020-6-1 19:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/01/190630vrrbpnssojsjl51s.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200601190608.png</strong> (76.32 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-1 19:06 上传
+
+
+
+
+
+啊这
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4477#       发表于 2020-6-1 19:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，我只是在说阿笹，不要扯到整个虹身上。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 4478#       发表于 2020-6-1 19:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639885&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-1 18:08</a>
+
+ascc这事儿早上看repo知道的，本来也没啥想法，coco玩擦边球不是一天两天了。
+
+不过想了想还是觉得应该去点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你只是因为吊的是小天使吧。。。。。咱当天龙糖看的，点了赞
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 4479#       发表于 2020-6-1 19:07
+
+
+
+
+不太明白，阿夸播大乱斗也不能转吗，我怎么觉得看到播过？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 4480#       发表于 2020-6-1 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640612&amp;ptid=1938145" target="_blank">KyotoAnimation 发表于 2020-6-1 19:06</a>
+
+啊这</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 还有这种自肃，我立即举报笹木咲offical
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 4481#       发表于 2020-6-1 19:08
+
+
+
+ 本帖最后由 单推贝伦 于 2020-6-1 19:10 编辑 
+
+彩虹这也太
+到底是自肃过头还是版权拉跨的？
+
+真是怕啥，不还有b站在前面顶着
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4482#       发表于 2020-6-1 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640612&amp;ptid=1938145" target="_blank">KyotoAnimation 发表于 2020-6-1 19:06</a>
+
+啊这</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这个没办法，除非阿b跟任天堂合作，但是这个可能性极低。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 4483#       发表于 2020-6-1 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640624&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-1 19:07</a>
+
+不太明白，阿夸播大乱斗也不能转吗，我怎么觉得看到播过？
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1 ...</blockquote>
+按照具体规定是不能转的，不过没人管，那不就转呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 4484#       发表于 2020-6-1 19:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">签了约就更不能在非合作平台上播了，明知故犯罪加一等
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 4485#       发表于 2020-6-1 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640632&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-1 19:08</a>
+
+还有这种自肃，我立即举报笹木咲offical</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/01/191113uskcc29cs2psycko.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200601191103.png</strong> (81.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-1 19:11 上传
+
+
+
+
+
+放过任任女孩吧
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 4486#       发表于 2020-6-1 19:11
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gfd01kmsk0j20i90axgqa.jpg" referrerpolicy="no-referrer">
+
+
+2434尽欢颜
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 4487#       发表于 2020-6-1 19:11
+
+
+
+
+所以holo是为了夸能在b转播大乱斗才知法犯法的吗，感动了，pxj还不多打点钱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4488#       发表于 2020-6-1 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640593&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-1 19:04</a>
+
+空组有个人在v吧反串被踢了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">有吃瓜贴或者反串贴地址吗？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 4489#       发表于 2020-6-1 19:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大亏也不用搞夸周了，直接快进到投稿湊嫌刷新频道播放记录吧
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 4490#       发表于 2020-6-1 19:12
+
+
+
+
+彩虹有版权可是阿b没有啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4491#       发表于 2020-6-1 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640624&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-1 19:07</a>
+
+不太明白，阿夸播大乱斗也不能转吗，我怎么觉得看到播过？
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为hololive根本不管这些。
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 4492#       发表于 2020-6-1 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640676&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-1 19:11</a>
+
+有吃瓜贴或者反串贴地址吗？</blockquote>
+[https://tieba.baidu.com/p/6718934590](https://tieba.baidu.com/p/6718934590)
+
+这个吧？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 4493#       发表于 2020-6-1 19:13
+
+
+
+ 本帖最后由 AloissiolA 于 2020-6-1 19:14 编辑 
+
+问题就是你B压根不是人允许的可收益平台，B站又至今没有关收益功能。签约前就保守地不肯转（可能是正在谈），现在谈下来了肯定更不肯了，还是强调的，被任地狱判断违约不是损失更大？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个世界，吃亏的总是老实人
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4494#       发表于 2020-6-1 19:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640634&amp;ptid=1938145" target="_blank">单推贝伦 发表于 2020-6-1 19:08</a>
+
+彩虹这也太
+
+到底是自肃过头还是版权拉跨的？</blockquote>
+签了合同，还是注意点好，要是被人举报了还是挺麻烦的。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 4495#       发表于 2020-6-1 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47640667&amp;ptid=1938145" target="_blank">KyotoAnimation 发表于 2020-6-1 19:11</a>
+
+放过任任女孩吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+凭什么你笹木就能随便转？
+
+
+酸！酸！酸！
+
+
+才不是因为看到笹木收sc到手软才酸的呢！
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 4496#       发表于 2020-6-1 19:14
+
+
+
+
+任天堂的游戏开sc很重要么？也没有apex抽卡那种吧
+
+
+
+
+
+
+
+-----
+
+####  shanzihao  
+##### 4497#       发表于 2020-6-1 19:14
+
+
+
+
+任天堂的游戏开sc很重要么？也没有apex抽卡那种吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4498#       发表于 2020-6-1 19:14
+
+
+
+
+明天晚上7点（东八区）towa和rurudo联动麻将。
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 4499#       发表于 2020-6-1 19:14
+
+
+
+
+阿b什么时候收购Nico啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">到时候应该就能转播了
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 4500#       发表于 2020-6-1 19:15
+
+
+
+
+ark的时代到底会不会重演呢...话说ascc的天使做cm的人说是绑在腰部，像吊威亚来着，不过确实看起来有点不妥啊。
+
+
+
+
+
