@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-31 16:10** 
+> ## **本文件最后更新于2020-06-01 10:17** 
 
 
 
@@ -2453,7 +2453,7 @@ aki这麦真的有点.....
 
 
 七...七色？
-<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_x39Or" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/dc97fe80438d84aa10b4e532e77d43ec/IMG_20200529_233157.JPG" id="aimg_VtM4L" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18482,7 +18482,7 @@ crew好强大
 
 
 这个4年前的视频笑死我了，纯一直夸宫姨可爱，看到メイアン就笑出了声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_OxuL6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/0ace7c8de6b68b62a7196ddc399973fd/IMG_20200531_002156.JPG" id="aimg_P8P88" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -27718,8 +27718,10 @@ towa这是三拼套餐啊，就直接接在一起还行
 
 
 
+ 本帖最后由 colodes 于 2020-5-31 16:16 编辑 
 
 委员长说过买周边不如打SC(给liver的更多)
+[https://youtu.be/RgKRK_FGKZ4?t=1671](https://youtu.be/RgKRK_FGKZ4?t=1671)
 
 
 
@@ -27795,13 +27797,1520 @@ towa这是三拼套餐啊，就直接接在一起还行
 
 
 
+ 本帖最后由 proxima 于 2020-5-31 16:13 编辑 
 
 虹一般都是吹音声的吧，其实也没怎么吹谷子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 还拿苔宝说事，她说谷子好多都是图一乐不怎么赚钱，最赚钱的是抱枕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+拿音声周边工商来给sc遮羞这回事主要还是说虹杏liver，苔宝作为老板说她其实跟说yagoo收入差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+至少我是觉得工商收入liver本人大约拿不到多少，白少主那样捡台电脑不错了
 
 
 
 
-  
+
+
+
+-----
+
+####  alcoholic1000  
+##### 2930#       发表于 2020-5-31 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626400&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-31 16:10</a>
+
+虹一般都是吹音声的吧，其实也没怎么吹谷子
+
+还拿苔宝说事，她说谷子好多都是图一乐不怎么赚钱，最赚 ...</blockquote>
+虹谷子分两种，liver协助设计的有钱拿，官方牵头出的谷子liver一分钱都拿不到
+
+
+syl，你楼没有修女粉吗，劈成濑鸣这种事情怎么能没有修女粉出面
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2931#       发表于 2020-5-31 16:15
+
+
+
+ 本帖最后由 两只狗狗 于 2020-5-31 16:16 编辑 
+
+最赚的肯定是音色吧，0抽成无成本还不用过收益化
+又想起当初mea酱一边哭一边卖自己500日元的“啾”了，不知道现在还有没有办法再把她弄哭<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 2932#       发表于 2020-5-31 16:16
+
+
+
+
+自从彩虹那个抽成公告出来，你楼就再也没吹过音声了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2933#       发表于 2020-5-31 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626232&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-31 15:47</a>
+
+辱苔箱了啊看到红sc特别激动的明明只有小野，有事没事挂推哭哭的明明只有海苔男，不能混为一谈的 ...</blockquote>
+这不是她和kuma走彩虹路线，女儿们走木口路线吗，这手是人际变现强强缝合（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2934#       发表于 2020-5-31 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626362&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-31 16:04</a>
+
+话说为什么这些公司都说周边&gt;sc？一般逻辑sc这东西除了平台抽成可以说毫无成本，而同样价格的周边应该有很 ...</blockquote>
+周边主力一直是音声，抹布这种好像只有木口比较流行（而且抹布的成本是最低的，三五百日元的成本卖2.5k~5k
+
+
+syl 工商肯定是公司拿大头，主播拿出场费。给多少就不知道了，公司说了算<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2935#       发表于 2020-5-31 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47621969&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-31 07:55</a>
+
+看你们昨晚聊狐火羊和anti的事，怎么说呢，狐皇不被anti找sc不高其实有道理的，她那副我不在乎的态度太强了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草，忍鲨狐
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2936#       发表于 2020-5-31 16:19
+
+
+
+
+原来响老哥一直在给我面子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+还有响老哥你是真.大家庭信吧，狐皇拉几个男的就能拉低全社收入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 2937#       发表于 2020-5-31 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626452&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-5-31 16:17</a>
+
+这不是她和kuma走彩虹路线，女儿们走木口路线吗，这手是人际变现强强缝合（） ...</blockquote>
+所以说这不是犯了yagoo的把星和live放到一个篮子里的错误吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">木口那还是分开的两个团，这可是温暖大家庭一个箱
+
+你想想女儿独角兽现在能把海苔男怼哭，到时候有了男人该是什么惨状。
+
+海苔男是真的不适合当老板
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2938#       发表于 2020-5-31 16:20
+
+
+
+
+工商精确到人的，应该还是能拿一些的，纯给公司打工的话Liver积极性会很差，实际上接到工商高兴的还挺多的
+
+老爱那种自带团队，一起分工商钱的是真的没几毛
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2939#       发表于 2020-5-31 16:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 提硬收入，为什么不提sio
+
+
+她才是真真正正的你圈top1女王吧
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 2940#       发表于 2020-5-31 16:24
+
+
+
+
+这个女王5月sc多少的？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2941#       发表于 2020-5-31 16:26
+
+
+
+<blockquote>proxima 发表于 2020-5-31 16:20
+所以说这不是犯了yagoo的把星和live放到一个篮子里的错误吗木口那还是分开的两个团，这可是温暖大 ...</blockquote>
+kuma拖了那么久不是没道理的，苔宝理性上知道为了钱不能让小白脸出道，感性上就想和彩虹人一样和男友一起连麦秀恩爱。所以你看贪钱有主见的小野一直在拼命造势不让kuma出道，苔箱内部路线之争初露端倪（一转口胡）
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2942#       发表于 2020-5-31 16:27
+
+
+
+ 本帖最后由 colodes 于 2020-5-31 16:32 编辑 
+
+6847276
+
+<img src="https://img.saraba1st.com/forum/202005/31/162648tipiybisb88eyxos.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 162631.png</strong> (114.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2943#       发表于 2020-5-31 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626491&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-5-31 16:21</a>
+提硬收入，为什么不提sio
+
+
+她才是真真正正的你圈top1女王吧</blockquote>
+我觉得还是夸，毕竟中日两块市场的钱。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2944#       发表于 2020-5-31 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626521&amp;ptid=1938145" target="_blank">单推贝伦 发表于 2020-5-31 16:24</a>
+
+这个女王5月sc多少的？</blockquote>
+¥4,765,223
+
+playboard扒的。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2945#       发表于 2020-5-31 16:29
+
+
+
+
+等下我明白了，响老哥是夏哥gachi来着，我说的这套他不可能不懂，那狐皇这套在他眼里坑了的人只有夏哥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谜底解开了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2946#       发表于 2020-5-31 16:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47623085&amp;ptid=1938145" target="_blank">sion777 发表于 2020-5-31 10:45</a>
+
+独角兽甚至不希望推跟任何男人产生联系，回推都不行
+
+反正杀了扭曲粉丝，数据上还没下降，这就是偶像 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">羊是没有独角兽的啦。。。当然不会下降
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2947#       发表于 2020-5-31 16:30
+
+
+
+
+想知道她一个人能打爆点箱全体收入吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2948#       发表于 2020-5-31 16:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626546&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-5-31 16:27</a>
+
+我觉得还是夸，毕竟中日两块市场的钱。</blockquote>
+sio这个月nico限、工商拉满，
+
+
+不可能低于亏得
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 2949#       发表于 2020-5-31 16:32
+
+
+
+
+草，680w
+只看拿到手确实是管人第一了
+毕竟也没哪位能有1300w的sc流水
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2950#       发表于 2020-5-31 16:33
+
+
+
+
+Sio Counter还行，怎么和playboard数据差距这么大
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2951#       发表于 2020-5-31 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">Sio毕竟是在dotlive的尸体上开出的唯一的花啊，哪儿去找比点更好的培养基啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 2952#       发表于 2020-5-31 16:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626540&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-5-31 16:26</a>
+
+kuma拖了那么久不是没道理的，苔宝理性上知道为了钱不能让小白脸出道，感性上就想和彩虹人一样和男友一起 ...</blockquote>
+草，黑苔宝就算了不要黑小野好吗，本声豚独角兽要出警了。
+
+kuma出道拖无非是海苔男一向这么慢而已，她自己很清楚虹以外的男v根本火不了，kuma就是给她当cp营业挂件的，问题是海苔男可能杀独角兽杀习惯了对独角兽没什么概念吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她加的二期生还全是女的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正海苔男要是真那么头铁那就把女儿的独角兽也杀光啊，我看行
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2953#       发表于 2020-5-31 16:34
+
+
+
+
+playboard最近一直炸，有差距也正常。
+
+不知道colo哥那个有没有每天的，可以对比下。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2954#       发表于 2020-5-31 16:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃尸体，吃尸体.jpg
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2955#       发表于 2020-5-31 16:36
+
+
+
+
+看起来这业界内独角兽的打钱力度比非独角兽要高不少（
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2956#       发表于 2020-5-31 16:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/163757a3t5o6g65yohtya5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>15909142577557805731188434956299.jpg</strong> (561.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 2957#       发表于 2020-5-31 16:38
+
+
+
+
+与其说独角兽打钱多不如说gachi打钱多，独角兽只是gachi最过激的的形态之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2958#       发表于 2020-5-31 16:39
+
+
+
+
+差200w也差太多了吧  playboard什么鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2959#       发表于 2020-5-31 16:40
+
+
+
+
+话说你们的sc统计是从现在上数30天吗？这个月狐皇的月末台词回还没开来着，我记得这东西向来是大头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 2960#       发表于 2020-5-31 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就想知道sio现在会不会感谢樱桃
+
+她不但站着把钱挣了，还没人抽成
+
+这个钱拿到手里几个月就能比在.live那么长时间多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+塞翁失马.jpg
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2961#       发表于 2020-5-31 16:41
+
+
+
+
+这个工具把待机SC全都统计了进去比如下面这次直播playboard的数据是51820，sio count上是76620，start前的待机SC是23310
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/163903y43j3lqkkh3smhm3.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 163703.png</strong> (107.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:39 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/163904pgt5zg3y66tkwtt1.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 163747.png</strong> (10.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:39 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/164106qpcd5qxhq1x7v7v7.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 164051.png</strong> (48.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 2962#       发表于 2020-5-31 16:41
+
+
+
+
+等一下
+
+星川去杏
+↓
+和叶私联
+↓
+被发现
+↓
+杏箱震荡
+
+8250这波是曲线救虹？不愧是铁血虹人
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2963#       发表于 2020-5-31 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626568&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-31 16:29</a>
+
+羊是没有独角兽的啦。。。当然不会下降</blockquote>
+羊绝对有独角兽的，有的人是不知道魂的情报，有的是把皮魂分开。只要直播中不出现男声/不和男性1V1联动，皮的独角兽当然无所谓呀
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2964#       发表于 2020-5-31 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626568&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-31 16:29</a>
+
+羊是没有独角兽的啦。。。当然不会下降</blockquote>
+突然觉得羊好惨
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2965#       发表于 2020-5-31 16:44
+
+
+
+
+再举个曲线明显的例子
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/164327v6qyjbrzd6yh55dj.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 164257.png</strong> (23.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:43 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/164334ff473gcv33ww3fff.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 164230.png</strong> (10.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:43 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/31/164340q89j91lj61mo6218.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 164245.png</strong> (47.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 16:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2966#       发表于 2020-5-31 16:44
+
+
+
+ 本帖最后由 某穆克拉 于 2020-5-31 16:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626655&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-5-31 16:39</a>
+
+差200w也差太多了吧  playboard什么鬼</blockquote>
+看了下收录好像没问题，本月的视频都收进去了，不知道哪出了问题。
+
+sio好像也没开会员？就算是待机sc感觉也很离谱2333.
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2967#       发表于 2020-5-31 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626666&amp;ptid=1938145" target="_blank">真田源次郎信繁 发表于 2020-5-31 16:41</a>
+我就想知道sio现在会不会感谢樱桃
+
+她不但站着把钱挣了，还没人抽成
+
+这个钱拿到手里几个月就能比在.l ...</blockquote>
+估计半个月收入就爆打至少一年了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2968#       发表于 2020-5-31 16:45
+
+
+
+
+那要带sio玩还是用play board数据吧 不然别人数据也都不准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2969#       发表于 2020-5-31 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626692&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 16:44</a>
+
+看了下收录好像没问题，本月的视频都收进去了，不知道哪出了问题。
+
+sio好像也没开会员？ ...</blockquote>
+pb这个月炸了很多次，所以很多数据是后来补的录播。
+
+录播没有待机数据，而且会吞SC
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2970#       发表于 2020-5-31 16:46
+
+
+
+ 本帖最后由 QWANG 于 2020-5-31 17:00 编辑 
+
+阿夸就算了，海苔男连yagoo的收入都知道了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来yagoo也不可能拿所有抽成，yagoo的签名也不能卖钱，可能收入还不如liver呢。也不知道海苔男是在自黑还是什么。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2971#       发表于 2020-5-31 16:46
+
+
+
+
+直播这圈子不就是比谁更能钓石油佬么，一个石油佬顶一万个路人，除非真的是来玩的，想要挣钱肯定得想办法留住石油佬
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 2972#       发表于 2020-5-31 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626672&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-5-31 16:41</a>
+羊绝对有独角兽的，有的人是不知道魂的情报，有的是把皮魂分开。只要直播中不出现男声/不和男性1V1联动， ...</blockquote>
+s1有些人巨魔久了，知道点中之人信息就搞得自己多了不起一样，事实上中之人的事只要别自己主动公开讲，并不会有多大实质影响
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 2973#       发表于 2020-5-31 16:50
+
+
+
+
+其实美元部现在的sc还不错的，查了一下比虹很多中层都要好看了，只能说虹是真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 2974#       发表于 2020-5-31 16:50
+
+
+
+ 本帖最后由 proxima 于 2020-5-31 16:53 编辑 
+
+日本阿宅不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">bili总督遍地都是，404很少有一次打这么多的吧。主要还是超过5w就要开小号了也很麻烦
+
+因为打钱的人真的是少数中的少数啊。实际上只要有一定数量的稳定消费的客群就能有相当不错的收益了，虹看着大活动同接几万很好看，这几万里面的稳定消费客群也就千把几百吧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2975#       发表于 2020-5-31 16:51
+
+
+
+
+什么！？
+
+一个百人大箱比不过一个快死的就剩下几个拉胯的小破箱！？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2976#       发表于 2020-5-31 16:51
+
+
+
+
+一万夸张了，路人贡献一个会员500日元来算的话，石油佬差不多是一月50w，1000个路人吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2977#       发表于 2020-5-31 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626606&amp;ptid=1938145" target="_blank">proxima 发表于 2020-5-31 16:34</a>
+
+草，黑苔宝就算了不要黑小野好吗，本声豚独角兽要出警了。
+
+kuma出道拖无非是海苔男一向这么慢而已，她自 ...</blockquote>
+u1s1爱宫也是我vtb复健期新加的v里最喜欢的了，甚至给她上了舰（亏了b限太少），要是晩酌配信和バイノーラル这样的杂谈回多搞点我还能打打sc，游戏实况生化re打块大乱斗以后追不动了。不过她的吃相是真的蛮吓人，又是给红sc呼麦又是虚拟债务者又是豆芽食生活，一套组合拳打下来心里多少有点梁木了，现在还是かわいいから許す<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+但我mm恋皮r不关注前世的，脱了皮的一般萌音声优就算了
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2978#       发表于 2020-5-31 16:52
+
+
+
+ 本帖最后由 あのん 于 2020-5-31 16:53 编辑 
+
+booth周边包只要写了pixivFACTORY那就是pixiv自产的，生产发货贩卖一条龙服务
+
+拿木口的最近抹布T恤举例，单面单件1500日元，100件以上1150日元一件
+
+企业这种的不知道还有没有批发优惠
+
+booth再从利润里抽3.6%剩下的就是到手的钱
+
+看了看木口现在抹布是直接在booth进货，亚克力乱七八糟的都是自己找厂家生产的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2979#       发表于 2020-5-31 16:52
+
+
+
+
+即使按pb算，sio也比兔皇稍高一点。当然不知道兔皇这月有没有会限什么的。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2980#       发表于 2020-5-31 16:52
+
+
+
+ 本帖最后由 QWANG 于 2020-5-31 16:57 编辑 
+
+pro老哥怎么也学会口嗨了，什V什粉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚拟区哪来的遍地总督，就那几个人啊。要说阿B单论观众数量还真不比404差多少呢。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2981#       发表于 2020-5-31 16:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 虹的sc真的是纯笑料，大家聊不下去了，就开始顺劈垃圾虹的sc，都很开心
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2982#       发表于 2020-5-31 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47625385&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-5-31 14:13</a>
+
+难道SC多不是因为holo的SC至上文化吗
+
+读SC越多越详细返感想越多的SC也越多啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">说起这个每次小天使读SC老有人捣乱继续打SC让小天使不能下班
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2983#       发表于 2020-5-31 16:54
+
+
+
+
+阿喵喵把账号名上的“にじさんじ所属”给去掉了？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 2984#       发表于 2020-5-31 16:54
+
+
+
+
+把猫猫和高小姐（她有521之后不能播的debuff）换算进去，都能力压彩虹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，这可是没抽成的个人势啊
+
+我彩虹大好男儿，竟和帕里坡齐名<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+至于大好女儿，还不够齐名的…………
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2985#       发表于 2020-5-31 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626759&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 16:52</a>
+即使按pb算，sio也比兔皇稍高一点。当然不知道兔皇这月有没有会限什么的。
+
+ ...</blockquote>
+3次吧不过我只看了1次，那什么王者天下同时视听实在没兴趣，这年头holo的V还有不开会限的吗…
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2986#       发表于 2020-5-31 16:59
+
+
+
+
+2000 如何评价下面这个万字分析长文认为彩虹的内通者是葵这件事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://note.com/2434kakiokoshi/n/n297c49ae61c8](https://note.com/2434kakiokoshi/n/n297c49ae61c8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2987#       发表于 2020-5-31 16:59
+
+
+
+
+b给管人的总督几乎没几个吧？看了一圈稳定的只有环京帕女儿那三四个石油佬，一个无火，一个财布<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2988#       发表于 2020-5-31 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626771&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-31 16:53</a>
+
+说起这个每次小天使读SC老有人捣乱继续打SC让小天使不能下班</blockquote>
+好像就是因为有人开始在读sc的时候继续打，导致读sc阶段越来越长了，变成了现在的耐久<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+阿火和会长甚至参杂了杂谈和唱歌，读sc反而成为直播内容之一了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 2989#       发表于 2020-5-31 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626755&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-5-31 16:51</a>
+
+u1s1爱宫也是我vtb复健期新加的v里最喜欢的了，甚至给她上了舰（亏了b限太少），要是晩酌配信和バイノー ...</blockquote>
+这个真没办法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你想疫情影响多少声优跑来开直播开404频道的，日子不好过
+
+不过有一说一小野这个皮是挺可爱的，海苔男自己都说是她最高杰作了，改了好多次的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2990#       发表于 2020-5-31 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626771&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-5-31 16:53</a>
+
+说起这个每次小天使读SC老有人捣乱继续打SC让小天使不能下班</blockquote>
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gfbqljp2d3j20p90betjd.jpg" referrerpolicy="no-referrer">
+
+
+养噶吃势传统艺能<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2991#       发表于 2020-5-31 17:01
+
+
+
+
+顺便把这个通过opipi统计的数据(不计待机)也贴上来吧
+
+
+5/1～5/31 12:00上位陣スパチャ
+
+playboardが一部壊れてるのでぺこら学力テスト、ココ雑談、ココ箱おじ、あくあ50万、ころね風のクロノア、フレア雑談、かなた雑談、かなた歌枠はopipi.net/rankingの過去ログを基に計算
+
+
+\9,751,602 ココ
+
+\9,645,079 ぺこら
+
+\8,496,897 あくあ
+
+\6,541,818 るしあ
+
+\6,711,541 ころね
+
+\6,190,470 フレア
+
+\5,993,952 まつり
+
+\5,898,422 マリン
+
+\5,578,145 かなた
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|好评加鹅|
+| kanonsisya| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2992#       发表于 2020-5-31 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626757&amp;ptid=1938145" target="_blank">あのん 发表于 2020-5-31 16:52</a>
+
+booth周边包只要写了pixivFACTORY那就是pixiv自产的，生产发货贩卖一条龙服务
+
+拿木口的最近抹布T恤举例，单 ...</blockquote>
+数量大优惠价肯定有的呀，再说木口这种肯定和booth签合作协议的，1k1成本不可能的，最多7，800顶天
+
+
+我说的三到五百是pixiv方的成本
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2993#       发表于 2020-5-31 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626045&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-5-31 15:25</a>
+
+发个早安推就算今天播过了——某摸鱼天使</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小天使今天肯定不会播这事你都猜不出来天使推失格了啊
+
+
+渣男DD天使今天肯定各种冲一期纪念回直播间啊
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2994#       发表于 2020-5-31 17:02
+
+
+
+
+b站虚拟区总督很少的，几个专给京啪圈打，几个专给杏圈打都是那几个人，再延伸出恩泽兼任一些散装的，目测总共也不过10人左右，28法则完美体现。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2995#       发表于 2020-5-31 17:03
+
+
+
+
+反正往多了算是没什么问题的，如果有更高的有来源的数据可以当参照。毕竟只听过漏抓，没听过重复抓取的。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2996#       发表于 2020-5-31 17:03
+
+
+
+
+官方dissmiko
+
+草
+
+<img src="https://img.saraba1st.com/forum/202005/31/170335hq9qqffhj2qqlzfl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200531170314.png</strong> (361.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-31 17:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2997#       发表于 2020-5-31 17:04
+
+
+
+
+这图...上面的线还是我划的...
+
+真的有人监视这，加了权限也挡不住...
+
+<img src="https://img.saraba1st.com/forum/202005/31/170311aby9kkk2u2k2o0nn.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-05-31 170158.png</strong> (51.81 KB, 下载次数: 2)
+
+下载附件
+
+2020-5-31 17:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2998#       发表于 2020-5-31 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47626845&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-5-31 17:02</a>
+
+b站虚拟区总督很少的，几个专给京啪圈打，几个专给杏圈打都是那几个人，再延伸出恩泽兼任一些散装的，目测 ...</blockquote>
+杏现在没总督了啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2999#       发表于 2020-5-31 17:06
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-5-31 17:17 编辑 
+
+啊。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|哈恰玛|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 3000#       发表于 2020-5-31 17:06
+
+
+
+
+独角兽⊆偶像宅，前者占了后者很大一部分，而后者是不遗余力地上贡钱财的主力军
+
+点为什么sc高，和杏不是一个原因？
+
+
+
+
+
