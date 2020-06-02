@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 02:04** 
+> ## **本文件最后更新于2020-06-02 16:04** 
 
 
 
@@ -19555,4 +19555,546 @@ syl 记得去年麻和茄子还有联系的迹象，今年就不知道了，万�
 
 
 
-           
+
+
+-----
+
+####  Sanguine  
+##### 10143#       发表于 2020-6-2 02:22
+
+
+
+
+手游整活都得氪金，还是算了，孩子把氪金的钱用来改善改善伙食吧( ´_ゝ｀)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10144#       发表于 2020-6-2 06:11
+
+
+
+
+在补错过了的b限前半段，感觉自己对萌音的厌恶加深了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10145#       发表于 2020-6-2 07:23
+
+
+
+
+小麻，你毁了多少萌音爱好者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 10146#       发表于 2020-6-2 07:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645236&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-2 02:22</a>
+手游整活都得氪金，还是算了，孩子把氪金的钱用来改善改善伙食吧( ´_ゝ｀) ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明氪了的金天狗们打回来，相当于白嫖，不亏。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10147#       发表于 2020-6-2 09:00
+
+
+
+
+她那是个锤子萌音
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10148#       发表于 2020-6-2 09:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌音哪里不好了！但是昨天是变声器啊不对，是meu
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10149#       发表于 2020-6-2 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">她那是折磨
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">呜呜呜，会玩一点变声器的都不至于这样
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10150#       发表于 2020-6-2 10:16
+
+
+
+
+真萌音能社保好吧,忘了那天早上tc的萌音模仿了?<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10151#       发表于 2020-6-2 10:23
+
+
+
+
+yysy，那个“才不是”和“bengbeng”还有最后她变回正常装死宅那里太顶了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10152#       发表于 2020-6-2 11:21
+
+
+
+
+录十首歌<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">这是要干啥啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10153#       发表于 2020-6-2 11:25
+
+
+
+
+是不是又要开奶live了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10154#       发表于 2020-6-2 11:34
+
+
+
+
+是小麻上天播给👽听的歌曲
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10155#       发表于 2020-6-2 11:39
+
+
+
+
+live!live!
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 10156#       发表于 2020-6-2 11:39
+
+
+
+
+草，那个卫星不是已经打上去了，小麻本次是没机会了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10157#       发表于 2020-6-2 11:55
+
+
+
+
+啥录十首歌，，，监视器就没动过啊
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|昨天的tc|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 10158#       发表于 2020-6-2 12:00
+
+
+
+
+十首大概一个半小时。其他四组嘉宾合计应该有一个小时吧。bls送的live大概3个小时？
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10159#       发表于 2020-6-2 12:07
+
+
+
+
+反正就是肉猪中,dokidoki<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 10160#       发表于 2020-6-2 12:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">别奶了别奶了，昨天就是因为看了你们奶所以期待过高了（）
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 10161#       发表于 2020-6-2 12:20
+
+
+
+
+就是普通的翻唱吧 说要六月内完成就行 那应该是之后才知道的东西了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10162#       发表于 2020-6-2 12:28
+
+
+
+
+草莓饺子k十支舞可能性微存？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 10163#       发表于 2020-6-2 12:32
+
+
+
+
+普通翻唱视频要十首?那要发到明年去吧……
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10164#       发表于 2020-6-2 12:39
+
+
+
+
+阿咩有十年之约，不急
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10165#       发表于 2020-6-2 12:45
+
+
+
+
+说起来，苔总几个月前还是恨嫁老女人，怎么这突然就要结婚了（观mea整天追着苔总祝贺“新婚快乐”有感）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10166#       发表于 2020-6-2 12:47
+
+
+
+
+结婚了？ 恭喜恭喜， 早生贵子！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10167#       发表于 2020-6-2 12:49
+
+
+
+
+你咩真实杀人诛心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10168#       发表于 2020-6-2 12:51
+
+
+
+
+等小小苔追着你麻喊咩姨她就知道错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 10169#       发表于 2020-6-2 13:15
+
+
+
+
+小麻我是得不到了，苔姨也让我青春不再了。还是考虑一下追小小苔吧
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 10170#       发表于 2020-6-2 13:31
+
+
+
+
+说不定小小麻比小小苔还大呢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10171#       发表于 2020-6-2 15:08
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/150816ioc9c3pll9bo53h6.png" referrerpolicy="no-referrer">
+
+
+<strong>5a73cde3d7d4501e.png</strong> (37.91 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-2 15:08 上传
+
+
+
+
+ <blockquote>不知是不是因为最近开始看神乐娘的配信和动画了，梦到神乐酱用恋爱的语气打电话过来。耳朵很幸福。</blockquote>草
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 10172#       发表于 2020-6-2 15:17
+
+
+
+
+yysy，确实很幸福<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10173#       发表于 2020-6-2 15:24
+
+
+
+
+所以说tc养的gachi真的好恶心啊，什么我也是，那没事了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 10174#       发表于 2020-6-2 16:00
+
+
+
+
+tc的节奏是很舒服啊 每次累的时候看一些TC的熟肉 听听她的声音 就感觉浑身的疲惫都消失了
+
+
+
+
+
+          

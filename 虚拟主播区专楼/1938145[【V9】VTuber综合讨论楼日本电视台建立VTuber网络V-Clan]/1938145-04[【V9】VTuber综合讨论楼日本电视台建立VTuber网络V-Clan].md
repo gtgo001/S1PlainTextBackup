@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 14:10** 
+> ## **本文件最后更新于2020-06-02 16:12** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_l0Km6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_lg1xs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10527,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_wG5GK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_sUrCU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13840,7 +13840,7 @@ mildom是斗鱼开的？
 
 
 
-<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_X0lb8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_H3q31" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15701,4 +15701,1247 @@ CSGO+OW
 
 
 
-                      
+
+
+-----
+
+####  Ketestrait  
+##### 5324#       发表于 2020-6-2 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649570&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-2 13:52</a>
+
+狐皇转的，这啥梗
+
+スバル……泣くな……
+
+あんたに笑顔を持ってきた…(ラフメイカー) ...</blockquote>
+图是别人回的狐皇上一条おぎゃり待ち的推，狐皇的点评来自BUMP OF CHICKEN的老歌ラフメイカー的歌词“あんたに笑顔を持ってきた”
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5325#       发表于 2020-6-2 14:13
+
+
+
+
+虹趁着雀魂大会搞了一群公式认证雀士 而齁这里看了下，律可有，小肥妹和兔宝没有 虹又赢，齁又输
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5326#       发表于 2020-6-2 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649799&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-2 14:13</a>
+虹趁着雀魂大会搞了一群公式认证雀士 而齁这里看了下，律可有，小肥妹和兔宝没有 虹又赢，齁又输 ...</blockquote>
+确实，雀界在无杏小将<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5327#       发表于 2020-6-2 14:18
+
+
+
+
+hololive也太无能了吧
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 5328#       发表于 2020-6-2 14:18
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-2 14:20 编辑 
+
+之前看的时候即视感就很强
+
+本质csow吧大概<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过也有人说是cstf，tf我不了解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+好像后坐力和散布没csgo那么夸张似的？
+
+那就叫cfow吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5329#       发表于 2020-6-2 14:21
+
+
+
+
+恕我直言，甚至不如大冲锋好玩
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5330#       发表于 2020-6-2 14:23
+
+
+
+
+齁只有半年了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5331#       发表于 2020-6-2 14:24
+
+
+
+
+什么，还有半年？
+
+我以为三天就叫任天堂橄榄了呢。
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 5332#       发表于 2020-6-2 14:25
+
+
+
+
+剑盾dlc一波橄榄，肯定没半年的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5333#       发表于 2020-6-2 14:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">任任把杏橄榄了我今年买10张卡带每张舔一遍
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 5334#       发表于 2020-6-2 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649981&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-2 14:30</a>
+
+任任把杏橄榄了我今年买10张卡带每张舔一遍</blockquote>
+答应我，你舔的时候开个直播好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 5335#       发表于 2020-6-2 14:36
+
+
+
+
+原来11岁活了
+
+
+
+
+
+
+QQ截图20200602143608.png
+(310.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-2 14:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/143622xssxw7nlfn9nd9dw.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 5336#       发表于 2020-6-2 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649981&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-2 14:30</a>
+
+任任把杏橄榄了我今年买10张卡带每张舔一遍</blockquote>
+我也不是希望木口被橄榄，只是单纯地想看看舔卡带<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5337#       发表于 2020-6-2 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650060&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-2 14:37</a>
+我也不是希望木口被橄榄，只是单纯地想看看舔卡带</blockquote>
+舔卡带不好玩啊.......要不还是吃个switch吧.......想看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5338#       发表于 2020-6-2 14:44
+
+
+
+ 本帖最后由 colodes 于 2020-6-2 15:10 编辑 
+
+这个时候就感慨 果然还是加藤纯一最强，堂堂正正用模拟器玩盗版任天堂、卡普空、SE、万代等游戏，管人们费拉不堪
+
+
+ppsspp停止运行.jpg
+[https://www.nicovideo.jp/watch/sm32301203](https://www.nicovideo.jp/watch/sm32301203)
+
+<img src="https://img.saraba1st.com/forum/202006/02/150131brr48r5mc1m1ed97.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 145212.png</strong> (672.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 15:01 上传
+
+
+
+
+
+
+
+
+违法下载ROM3000本
+[https://www.nicovideo.jp/watch/sm31325129](https://www.nicovideo.jp/watch/sm31325129)
+
+<img src="https://img.saraba1st.com/forum/202006/02/150020l16pznhk3776pt6c.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 145928.png</strong> (127.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 15:00 上传
+
+
+
+
+
+
+
+
+游戏厂商「请不要违法配信和下载」
+
+加藤纯一「直接说，我这就是盗版」
+[https://www.nicovideo.jp/watch/sm31388432](https://www.nicovideo.jp/watch/sm31388432)
+
+<img src="https://img.saraba1st.com/forum/202006/02/150841pd4fssrm1majhs4m.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 150754.png</strong> (252.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 15:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 5339#       发表于 2020-6-2 14:54
+
+
+
+
+现在也就日本有人在乎是不是模拟器了吧？老美那边不是很正常的事么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">syl：说到模拟器就不由得想到有一集《东京相遇》打3ds竟然是一个摄像头对着屏幕，太蠢了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 5340#       发表于 2020-6-2 14:55
+
+
+
+
+影山的推特号，复活了！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5341#       发表于 2020-6-2 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我还挺喜欢死鱼眼的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 5342#       发表于 2020-6-2 15:01
+
+
+
+
+2434最强！2434最强！
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5343#       发表于 2020-6-2 15:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你楼今天怎么和一潭死水一样
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5344#       发表于 2020-6-2 15:04
+
+
+
+
+大白天的没有车的话题啊，昨天把能车的题材给用掉了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5345#       发表于 2020-6-2 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650425&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-2 15:04</a>
+
+大白天的没有车的话题啊，昨天把能车的题材给用掉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们明明在这竭泽而渔，特别是colo。不可取啊
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5346#       发表于 2020-6-2 15:08
+
+
+
+
+毕竟colo佬的信用度才是决定上钩的诱饵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 5347#       发表于 2020-6-2 15:10
+
+
+
+
+今天是拳头新游，当然没人车，垃圾游戏不行
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5348#       发表于 2020-6-2 15:10
+
+
+
+
+哦，对了有人听修女唱歌嘛，最近修女做每日小动画什么的，兢兢业业阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 5349#       发表于 2020-6-2 15:11
+
+
+
+
+不如隔壁b综的话题 刺激 不如讨论下s1娘？
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 5350#       发表于 2020-6-2 15:11
+
+
+
+
+劈下拳头的valorant吧，美术太垃圾了
+
+这帮人打apex烦了去打屁股不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5351#       发表于 2020-6-2 15:12
+
+
+
+
+V8不是在出010么，果然恶臭肥宅不分中日
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5352#       发表于 2020-6-2 15:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650521&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-2 15:11</a>
+
+劈下拳头的valorant吧，美术太垃圾了
+
+这帮人打apex烦了去打屁股不香吗</blockquote>
+守望不是被b综车了好几遍嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5353#       发表于 2020-6-2 15:12
+
+
+
+
+修女唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+修女唱术力口<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5354#       发表于 2020-6-2 15:12
+
+
+
+
+VALORANT这游戏热度能维持一个月吗
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 5355#       发表于 2020-6-2 15:13
+
+
+
+
+无论是ow 还是valorant 你管人打的菜 谁看啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 而且管人玩游戏 真的没有创造力 打的菜 也不整点新套路出来 
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5356#       发表于 2020-6-2 15:19
+
+
+
+
+只能谈游戏了吗？还不如自己玩游戏，别浪费时间在v综了。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5357#       发表于 2020-6-2 15:20
+
+
+
+
+可以猜大亏啥时候蝗valorant
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5358#       发表于 2020-6-2 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650629&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-2 15:19</a>
+
+只能谈游戏了吗？还不如自己玩游戏，别浪费时间在v综了。</blockquote>
+那二二玩游戏时能顺便开个直播吗，那我就不浪费时间在V综了
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5359#       发表于 2020-6-2 15:22
+
+
+
+
+2000今天下午肯定不会去看葵皇的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5360#       发表于 2020-6-2 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650666&amp;ptid=1938145" target="_blank">Fakerの幻影 发表于 2020-6-2 15:22</a>
+
+2000今天下午肯定不会去看葵皇的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 别闹，一年至个位数次葵西糖我不看？
+
+
+刚刚躲卫生间看了半个钟，
+
+
+葵西suki<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5361#       发表于 2020-6-2 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650629&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-2 15:19</a>
+只能谈游戏了吗？还不如自己玩游戏，别浪费时间在v综了。</blockquote>
+二二姐要出道了吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 5362#       发表于 2020-6-2 15:27
+
+
+
+
+你不是在隔壁看010被开吗，怎么变成看葵西了
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5363#       发表于 2020-6-2 15:28
+
+
+
+
+不是还有下午五点十人联动？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 5364#       发表于 2020-6-2 15:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">二二姐要养gachi了吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5365#       发表于 2020-6-2 15:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">erer要买ns吗？便宜卖来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5366#       发表于 2020-6-2 15:32
+
+
+
+
+二二姐要tc直播了吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 5367#       发表于 2020-6-2 15:32
+
+
+
+
+下午大好时光当然要打terraria<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5368#       发表于 2020-6-2 15:36
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/153521jtkxgmdi8ft2z88a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 153429.jpg</strong> (101.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 15:35 上传
+
+
+
+
+
+
+
+スバルのコメント欄「任天堂」とか「スパチャ」とか「許可」とかがNGになってるな
+
+打てないわ
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5369#       发表于 2020-6-2 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650829&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-2 15:36</a>
+
+スバルのコメント欄「任天堂」とか「スパチャ」とか「許可」とかがNGになってるな
+
+打てないわ</blockquote>
+感觉和贴吧没什么区别啊.....还以为5CH的YYGQ更强一点
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5370#       发表于 2020-6-2 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650829&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-2 15:36</a>
+
+スバルのコメント欄「任天堂」とか「スパチャ」とか「許可」とかがNGになってるな
+
+打てないわ</blockquote>
+2434最低
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5371#       发表于 2020-6-2 15:46
+
+
+
+
+草，看到一个解释mrr出逃的新说法
+
+mrr喜欢老游戏，老游戏版权确认很麻烦，所以在对版权关系很严格的クリーン企业いちから活动得很憋屈，所以跑到了法外狂徒ホロライブ以求自由地活动和开sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 5372#       发表于 2020-6-2 15:50
+
+
+
+
+拳头这个，大概像是2014,2015的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5373#       发表于 2020-6-2 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650989&amp;ptid=1938145" target="_blank">blattle 发表于 2020-6-2 15:50</a>
+
+拳头这个，大概像是2014,2015的游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">玩起来太二了。。。。。。技能完全是拖后腿的
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5374#       发表于 2020-6-2 15:52
+
+
+
+
+好耶！支持法外狂徒！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5375#       发表于 2020-6-2 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舔卡P站都不知道舔了几遍了还有人想看哦
+
+PS 舔卡我肯定飞到日本买新卡，二手卡有点害怕被舔过，连续舔十张碰到味道淡一点我要自杀好吗，而且也可能碰到无良二手商重新塑封冒充新卡卖<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5376#       发表于 2020-6-2 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47650942&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-2 15:46</a>
+
+草，看到一个解释mrr出逃的新说法
+
+
+mrr喜欢老游戏，老游戏版权确认很麻烦，所以在对版权关系很严格的クリー ...</blockquote>
+法网恢恢……
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5377#       发表于 2020-6-2 15:57
+
+
+
+
+于是mrr用她的游戏库换到了兔皇的内退
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5378#       发表于 2020-6-2 16:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 莉莉姆真的是好女人，每次葵皇玩小众垃圾游戏，她总会陪葵皇，希望莉莉姆早点3D，
+
+
+我想看元gamers 开一次小型live，
+
+
+那一定是充满了希望的live，
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5379#       发表于 2020-6-2 16:02
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/160208d9zjrwzrch28njn8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200602155818.png</strong> (25.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 16:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5380#       发表于 2020-6-2 16:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47651100&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-2 15:57</a>
+
+于是mrr用她的游戏库换到了兔皇的内退</blockquote>
+内退！！！？？？？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5381#       发表于 2020-6-2 16:08
+
+
+
+
+11区网络最爱词汇：民度<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5382#       发表于 2020-6-2 16:08
+
+
+
+
+民度低いな
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5383#       发表于 2020-6-2 16:08
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-2 16:04
+内退！！！？？？？</blockquote>
+内推……
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5384#       发表于 2020-6-2 16:09
+
+
+
+
+虹人绿绿说？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5385#       发表于 2020-6-2 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47651139&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-2 16:02</a></blockquote>
+ちょっと待って🤚
+
+
+
+
+
+你知道上一个全肯定粉丝的箱最后什么下场吗🤗
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5386#       发表于 2020-6-2 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47651224&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-2 16:09</a>
+
+ちょっと待って🤚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同样的内容昨天不是发过一次了么
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5387#       发表于 2020-6-2 16:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">486这待机所大概80%都是5CH巨魔吧，一半钓鱼，另外一半装作鱼上钩。。。。。。。。。
+
+
+
+
+
+                    
