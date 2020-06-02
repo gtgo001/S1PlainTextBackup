@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 04:08** 
+> ## **本文件最后更新于2020-06-02 10:10** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_iA8me" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_gJGlw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9553,10 +9553,11 @@ OPEN BETAのZIG
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|草  有被笑到···|
 | argaregeasr| + 1|20包邮收私信|
 
 
@@ -10526,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_eFqcG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_qP399" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10945,4 +10946,1679 @@ syl白天 ...</blockquote>
 
 
 
-                              
+
+
+-----
+
+####  空き地卯木  
+##### 5072#       发表于 2020-6-2 04:54
+
+
+
+ 本帖最后由 空き地卯木 于 2020-6-2 04:58 编辑 
+
+最近真是草台运营争霸赛，去年V圈这会连环爆炸出了虹唯一神论 今年杏刚刚准备登顶就和虹来了个对炸 阿菜之前爆的料还没任任这手来得猛 以前nijian黑屁niji都是高ping版权确认能不能看看holo 现在holoan黑屁holo就是快速非法集金 明年的红白歌会到底还能剩几个呢？ 
+
+
+
+
+
+
+Screenshot_20200602_045734.jpg
+(423.8 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-2 04:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/045833a4tp4r0dmtggv4tv.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 5073#       发表于 2020-6-2 05:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645339&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-06-02 02:58:00</a>
+好久没看日南直播，这麦确实好，不亏是麦性恋</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">asmr竞争激烈倒逼器材升级，日南不就因为这点跑路来v
+在你楼云来的说法
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5074#       发表于 2020-6-2 06:05
+
+
+
+
+苔箱有苔宝死命的喂饭，虹杏一期生哪有这么舒服的的环境。
+
+不过苔宝脑控观众的能力真的拉夸爱宫这么喂才1000多同接，当初直播流量和她差不多的白天王顺口提一句就有3000豆腐跑去给点箱兜底，你这连一个人都没捞动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 5075#       发表于 2020-6-2 06:05
+
+
+
+
+不过昨天4ID老哥恶意十足的发言倒突然让我想起来，“软饭”最起码也得是“饭”，得能吃的那种，可难道除了你楼经常说的主播业少得可怜的底薪外，还能分享收入不成？想想都不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等这边一个个月收入过三十万JPY然后集体放弃魂号的时候你们随便劈好吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 5076#       发表于 2020-6-2 06:09
+
+
+
+
+黑宝你变了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5077#       发表于 2020-6-2 06:11
+
+
+
+ 本帖最后由 opersuper 于 2020-6-2 06:32 编辑 
+
+但是生活节奏没变<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">asa黑宝
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 5078#       发表于 2020-6-2 06:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑宝起得真早
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|老兄你也起挺早的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 5079#       发表于 2020-6-2 06:26
+
+
+
+
+星川20w贺图
+
+<img src="https://img.saraba1st.com/forum/202006/02/062603j534f0i3ixu4mw8f.png" referrerpolicy="no-referrer">
+
+
+<strong>82029098_p0.png</strong> (1.41 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 06:26 上传
+
+
+
+
+
+[https://twitter.com/kasu1923/status/1267392417482731520](https://twitter.com/kasu1923/status/1267392417482731520)
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5080#       发表于 2020-6-2 06:55
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-2 07:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑宝也觉得liver/stars/cover炸掉无所谓了，以后楼里顺劈可以更自由了，这是好的。
+
+我先来，Yagoo与野男人爆出不伦丑闻爆炸，辞职谢罪后加入stars，阿希下场亲自喂饭，但掌握了权利已经被冲昏头脑的白上桑畏惧yagoo东山再起，hololive陷入不仲，杏仁陷入倒Ya派与护goo派的长期撕裂局面。苔苔趁势崛起成为Vjuan第一大箱，苔总天下第一！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 5081#       发表于 2020-6-2 07:15
+
+
+
+
+问下 任天堂现在这玩意影不影响B站直播？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5082#       发表于 2020-6-2 07:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645679&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-2 07:15</a>
+问下 任天堂现在这玩意影不影响B站直播？</blockquote>
+想在外面混就影响，虹就已经不转播任了。vup叼都不叼你任天堂好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5083#       发表于 2020-6-2 07:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内没有任天堂但是有腾讯啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5084#       发表于 2020-6-2 07:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">ASCC这就跌到2w以下了。。干脆一周一会算了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 5085#       发表于 2020-6-2 07:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645701&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-2 07:22</a>
+想在外面混就影响，虹就已经不转播任了。vup叼都不叼你任天堂好吧</blockquote>
+那vr和holocn会受影响吗？
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 5086#       发表于 2020-6-2 07:36
+
+
+
+
+水を得た魚のように
+
+最近知った知識をばらまいて
+
+すぐそれ違反とかいう人いるけど
+
+浅はかな知識で言葉は放っちゃいけないと思うのよね。
+
+ダメなことを本当にすると思う？
+
+その何気ない発言が
+
+風評被害を産むことを学んで欲しい。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 5087#       发表于 2020-6-2 07:42
+
+
+
+<img src="https://ftp.bmp.ovh/imgs/2020/06/16997a915de9091e.jpeg" referrerpolicy="no-referrer">
+
+大杂烩狂气山脉，不过同接和SC应该打不过5月的那次狂気山脈再び<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5088#       发表于 2020-6-2 07:43
+
+
+
+
+新的一天为更干净的业界努力
+
+これOK？OUT？
+
+<img src="https://img.saraba1st.com/forum/202006/02/073552cd5vdscsl3qdtnd3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 073309.jpg</strong> (107.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 07:35 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/074343v3y8y0rzvrtqqkc2.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 074320.png</strong> (82.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 07:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5089#       发表于 2020-6-2 07:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阶级敌人いちから
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5090#       发表于 2020-6-2 07:50
+
+
+
+
+以彩虹之名毁灭业界所有小箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5091#       发表于 2020-6-2 07:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645747&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-2 07:36</a>
+那vr和holocn会受影响吗？</blockquote>
+这你要去问vup有没有收到通知了啊。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5092#       发表于 2020-6-2 07:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645748&amp;ptid=1938145" target="_blank">fromsaitama 发表于 2020-6-2 07:36</a>
+
+水を得た魚のように
+
+最近知った知識をばらまいて
+
+すぐそれ違反とかいう人いるけど</blockquote>
+凛先辈？！
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5093#       发表于 2020-6-2 07:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ickr是要上市的公司，这就跟收到微软正版windows的勒索信一样，上市公司乖乖交钱，普通私人公司直接当废纸。虽然日本的整体版权环境和国内稍微不太一样。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5094#       发表于 2020-6-2 07:57
+
+
+
+
+虹这边是收到瓦罗兰工商了？刚开服这么多人在播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5095#       发表于 2020-6-2 07:58
+
+
+
+
+星街把昨天Tetris相关推文都删了
+
+hololive配信预定激减
+
+<img src="https://img.saraba1st.com/forum/202006/02/075727jgfifaf44w0jiqfa.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 075718.png</strong> (78.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 07:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5096#       发表于 2020-6-2 07:58
+
+
+
+
+现在不橄榄不代表等你以后做大了不连本带利的敲回来，长线大鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5097#       发表于 2020-6-2 08:00
+
+
+
+
+日南还好、asmr麦起码是KU100，最近还在装修专门的工作室，
+
+
+利香就比较随便了、众筹的名义开Ci-en会员换麦换摄像头，结果只换了摄像头还找借口说怕摔了麦、现在还是用着白3DIO<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5098#       发表于 2020-6-2 08:01
+
+
+
+
+大清早的表还没填上吧，本身播老任的不多，总台数应该没什么影响
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5099#       发表于 2020-6-2 08:03
+
+
+
+
+昨天除了狐狸的动森和星街取消的打块，并没有任系游戏。。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5100#       发表于 2020-6-2 08:10
+
+
+
+
+不过昨天确实不太正常就是了，比如兔皇突然不播dq拿出pubg，面包狗咕掉了夜班
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5101#       发表于 2020-6-2 08:11
+
+
+
+
+脑子里很不基德的浮现出了星街大清早去任天堂门口堵门的场景。
+话说ps5发布延期，索尼这是要完
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5102#       发表于 2020-6-2 08:14
+
+
+
+
+任天堂的版权还是有可能影响VR和杏CN的，而且CN的影响可能大于VR，VR虽然被彩虹拿去放进PPT里吹水，但实际是P站借鸡生蛋，合股的比例应该没有达到并表的条件，所以对合规性不会抓那么严格，但是CN应该要并到cover财报里的，所以如果cover以后要上市，CN也要被抓小辫子
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 5103#       发表于 2020-6-2 08:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47642805&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-1 21:54</a>
+
+话说任天堂法务部是第二强的法务部对吧，那第一是？迪士尼？</blockquote>
+毕竟在孤岛遇难时在地上画米老鼠就能得救呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5104#       发表于 2020-6-2 08:33
+
+
+
+
+ascc竟然萎的这么快，还以为能坚持个两天。。。
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 5105#       发表于 2020-6-2 08:49
+
+
+
+
+西西; ;
+
+
+
+
+
+
+EZd4aP0UYAEhvmK.jpeg
+(872.32 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-2 08:49 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/084932bmxbmmbq3xhmmgb3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 5106#       发表于 2020-6-2 08:51
+
+
+
+
+其他企业现在开始和老任谈肯定要拖个小半年。看杏昨天行动状态在这期间不是ns的不能播，
+
+
+是fc，sfc，N64，Wii，wiiu，ns的所有游戏往上追述37年哪怕第三方的游戏企业v也全都不能播？
+
+
+虹赢不赢不知道，反正老任是赢了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5107#       发表于 2020-6-2 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646140&amp;ptid=1938145" target="_blank">yinoh 发表于 2020-6-2 08:51</a>
+
+其他企业现在开始和老任谈肯定要拖个小半年。看杏昨天行动状态在这期间不是ns的不能播，
+
+
+是fc，sfc，N64， ...</blockquote>
+说个细节，葛叶凌晨说了宝可梦不敢开sc，因为是GF的游戏就算签了任天堂也不知道能不能开收益，以后感觉开收益这块的麻烦事会越来越多，毕竟很多游戏的版权问题很难追溯
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5108#       发表于 2020-6-2 09:01
+
+
+
+
+比起星街我更关心苔宝的憋尿打块还敢办下去吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5109#       发表于 2020-6-2 09:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646230&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-2 09:01</a>
+比起星街我更关心苔宝的憋尿打块还敢办下去吗</blockquote>
+换个俄罗斯方块游戏就完事了吧
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5110#       发表于 2020-6-2 09:04
+
+
+
+
+苔苔那是top，和任天堂没关系
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| opersuper| + 1|没事就好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5111#       发表于 2020-6-2 09:05
+
+
+
+
+海苔男一直都不是用的T99啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5112#       发表于 2020-6-2 09:05
+
+
+
+<blockquote>opersuper 发表于 2020-6-2 09:01
+比起星街我更关心苔宝的憋尿打块还敢办下去吗</blockquote>
+苔姨用top就行了啊
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 5113#       发表于 2020-6-2 09:05
+
+
+
+
+就99方块受影响吧。日本人还是脸皮薄，不开sc就播就是了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 5114#       发表于 2020-6-2 09:06
+
+
+
+ 本帖最后由 包之沐白 于 2020-6-2 09:07 编辑 
+
+本来就是用的top啊，要是99的话早就群殴了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5115#       发表于 2020-6-2 09:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星街：今晚的t99可以播吗？
+
+草台运营：静观其变，稍安勿躁。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5116#       发表于 2020-6-2 09:07
+
+
+
+
+怕事所以先一刀切吧，昨天估计是发了个内部公告，准备统一再确认下各类游戏的版权，一些偏门的拿不准就先暂停了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5117#       发表于 2020-6-2 09:08
+
+
+
+
+不如说几个人开房间为什么要用T99……挤进来一堆观众干嘛
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5118#       发表于 2020-6-2 09:10
+
+
+
+
+倒不如说cover以前都没考虑过版权问题的吗，这草台的有点惊人了…
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5119#       发表于 2020-6-2 09:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要我擅长道歉，粉丝就会原谅我。草台又怎么样？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5120#       发表于 2020-6-2 09:12
+
+
+
+[https://youtu.be/OsSYBejVSnM](https://youtu.be/OsSYBejVSnM)
+
+
+少主跑RAB那去了啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5121#       发表于 2020-6-2 09:17
+
+
+
+
+你们为什么会觉得力八一还没谈
+
+
+我觉得大概率是老任同步找了几家谈，只不过yagoo还没服软罢了......否则你们以为田角会去主动找任任送钱？
+
+
+不过以你juan的草台水准要是能在任任手底下走三个来回就算我输了，怕是一招都接不下来，奉劝谷乡赶紧投降交钱了事
+
+
+另，中国市场应该是默认法务不太好渗透的，要是强行交涉可能会影响到老任的中国进出，所以vr和杏cn肯定是没事的。
+
+
+换言之，昨天楼里说的逢任来批确实是没问题，八过外国观众肯定不高兴来批，那样的话也没意义了
+
+
+最后，你杏其实播什么游戏也谈不上灭顶之灾，但是每期都有那么几个任豚确实是不可不谈
+
+
+总而言之，但愿（任）天（堂）王降诏，早招安，心方足！<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5122#       发表于 2020-6-2 09:18
+
+
+
+
+等一下，TOP获取了Tetris的版权吗🙋‍♂️
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5123#       发表于 2020-6-2 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646337&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-2 09:12</a>
+https://youtu.be/OsSYBejVSnM
+
+
+少主跑RAB那去了啊</blockquote>
+这个好像昨天就有宣传<img src="https://p.sda1.dev/0/dab941abfbf66ae35fb895a13d71a659/IMG_785747CE5D1B18C98F579054A740C3CB.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/65443a2befcc8afd5240cf96107db7b7/EZZgfqHVcAAuzu7_format=jpg&amp;name=360x360.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 5124#       发表于 2020-6-2 09:19
+
+
+
+
+尾宝说的差不多，cover这家公司风格，风格有点奇怪，本质日企但是做事方式有点中国民营的意思，草台是草台了转弯一直都挺快，但是有便宜不占又是孙子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5125#       发表于 2020-6-2 09:20
+
+
+
+ 本帖最后由 oshinoshinobu 于 2020-6-2 09:21 编辑 
+
+好像记错了，编辑
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5126#       发表于 2020-6-2 09:20
+
+
+
+
+杏播捡树枝一开始也是关sc的
+
+紫宝开sc的时候我还吓的满头小汉，紫宝概要栏里写着运营说スパチャok
+
+现在就有两种观点了
+
+cover有能，当时谈好了捡树枝的规约
+
+cover心想任任反正不管事，开启了法外狂徒模式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5127#       发表于 2020-6-2 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646410&amp;ptid=1938145" target="_blank">yinoh 发表于 2020-6-2 09:19</a>
+
+尾宝说的差不多，cover这家公司风格，风格有点奇怪，本质日企但是做事方式有点中国民营的意思，草台是草台 ...</blockquote>
+那还蛮有亲切感的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5128#       发表于 2020-6-2 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645864&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-2 08:03</a>
+
+昨天除了狐狸的动森和星街取消的打块，并没有任系游戏。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你和楼主还特意解释一下。。。。。。COLO明显在巨魔啊。。。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5129#       发表于 2020-6-2 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我内心是觉得cover没这么脑残，应该是谈了的。但理智又告诉我看看石头人看看梅露。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5130#       发表于 2020-6-2 09:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646319&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-2 09:10</a>
+
+倒不如说cover以前都没考虑过版权问题的吗，这草台的有点惊人了…</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">整个业界之前基本都没怎么考虑过吧
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5131#       发表于 2020-6-2 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646415&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-2 09:20</a>
+
+好像记错了，编辑</blockquote>
+一方面来说我们又不是推运营，海外进出和liver支持吹一吹也就算了，法务交涉也要吹也太云p了......
+
+
+另一方面来说之前有没有交涉过也是说不好的，可能达成了口头协议或者临时协议，可能是针对捡树枝的特定条款，或者是老任单纯懒得管
+
+
+这个车下去，没有额外的情报，结果基本上就是田角太老实法无许可不可为，而谷乡法无禁止皆可为罢了，何况就算是有过比较模糊但没有执行下去的禁止规则，不遵守关我啥事儿啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">老任又不是我家的，vjuan的钱多半老任也看不上。地表第二法务都没管我们非要管，那可能比较适合明年入职沃尔特迪士尼inc
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 5132#       发表于 2020-6-2 09:26
+
+
+
+
+毕竟直播版权是个新东西，而且也就任对这玩意是负面态度<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，其他的求你还来不及呢（想想那些挂图奇的valorant）
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 5133#       发表于 2020-6-2 09:26
+
+
+
+
+如果cover在ickr有内鬼倒是有可能在谈，被打了个措手不及可能性也很高。老任风格就是那种家传手艺的作坊匠人大师，有水平但是食古不化，
+
+
+GREE去谈还有点可能，cover自己去谈有点难。老任最嚣张时候一个营业员去第三方谈业务，人家社长都要出门迎接的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5134#       发表于 2020-6-2 09:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646437&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-2 09:21</a>
+
+你和楼主还特意解释一下。。。。。。COLO明显在巨魔啊。。。</blockquote>
+这当然知道啊，但是架不住有人会当真，所以解释一句的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5135#       发表于 2020-6-2 09:27
+
+
+
+
+いちから这波任弹不知道会让多少看杏的mmr对彩虹心生梁木，争え、もっと争え<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 5136#       发表于 2020-6-2 09:28
+
+
+
+
+任弹我笑了，造新词真的有一手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5137#       发表于 2020-6-2 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646497&amp;ptid=1938145" target="_blank">yinoh 发表于 2020-6-2 09:26</a>
+
+如果cover在ickr有内鬼倒是有可能在谈，被打了个措手不及可能性也很高。老任风格就是那种家传手艺的作坊匠 ...</blockquote>
+不不不，这种事肯定是老任给你发律师函让你去谈啊，怎么可能是gree，悠悠爱慕爱慕和田角主动要求谈啊，抢着送钱？真就铁血任豚毁家纾难咯？
+
+
+老任大概率是觉得疫情期间油管主播这茬韭菜熟了，现在复工复产了抓紧时间薅上一刀罢了，估计主要的日本直播视频公司都收到了函，只不过因为谈下来的时间有先后，所以有的公司发声明表示取得了许可，剩下的没发罢了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5138#       发表于 2020-6-2 09:30
+
+
+
+
+蚊子再小也是肉，v⭕️去年在老任游戏上的流水比一些手游都要高了
+
+
+
+
+
+
+
+-----
+
+####  proto  
+##### 5139#       发表于 2020-6-2 09:31
+
+
+
+
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5140#       发表于 2020-6-2 09:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">任系有没有什么氪金点呢，没氪金不好集金，不好集金还要交（任）天堂税，谁还愿意播呢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 5141#       发表于 2020-6-2 09:42
+
+
+
+
+yhm直播apex我能理解，毕竟这算是一款伪fps游戏，而且吃鸡算是个看点。
+
+valorant会在管人直播里火起来吗？这个类CSGO游戏会有直播效果吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5142#       发表于 2020-6-2 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646390&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-2 09:18</a>
+
+等一下，TOP获取了Tetris的版权吗🙋‍♂️</blockquote>
+根据2012年俄罗斯方块版权所有方Tetris Holding, LLC诉讼 Xio Interactive, Inc案法院得出的结果
+[https://www.wired.com/images_blo ... Tetris-Holdings.pdf](https://www.wired.com/images_blogs/gamelife/2012/08/Tetris-Holdings.pdf)
+
+俄罗斯方块的场地尺寸、四面体形状、旋转和掉落方式都受版权法保护
+
+
+而Tetris Holding, LLC授权的公司只有Nintendo, THQ, Sega, Capcom, Atari, Jaleco, Crave Entertainment, Electronic Arts这几家
+
+
+那毫无疑问Tetris Online Poland这游戏是侵犯版权的，有不同意见吗
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5143#       发表于 2020-6-2 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47643236&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-1 22:24</a>
+我有一计公子献头的炎上商法   运气好能出圈传遍整个游戏圈，西至大油管主，东至上机核网和STN[f:06 ...</blockquote>
+好！就请响大佬堂堂出阵，举报腾讯和任天堂勾结阴谋染指最后一片无任的王道乐土，和日本的谷乡，美国的龙皇互为奥援，一朝发动，尽灭版权巨鳄人体堂，环游戏圈一个朗朗乾坤！
+
+哦对了，我之前住过南山区，在那旮旯蹲号子可能g有点多，到时候问问狱警能不能带杀虫剂进去，就说你保证不自杀
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 5144#       发表于 2020-6-2 09:48
+
+
+
+
+你让桀哥这种体量的来做在国内还能有点影响，让管人们弄八成连水花都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5145#       发表于 2020-6-2 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646637&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-2 09:42</a>
+
+根据2012年俄罗斯方块版权所有方Tetris Holding, LLC诉讼 Xio Interactive, Inc案法院得出的结果
+
+https:// ...</blockquote>
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 5146#       发表于 2020-6-2 09:51
+
+
+
+
+大版权时代，谁都别想好<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+说那么多，其实就看木口一个星期内能不能拿到权限就完事儿了。拿到了说明早就在谈，拿不到说明被打了个措手不及呗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5147#       发表于 2020-6-2 09:55
+
+
+
+
+刚看了少主和RAB的联动，第一个环节是这样的，播放少主的视频，如果谁笑了就要打1000円SC
+
+如图
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/095345j9d9f5zc982dd556.jpg" referrerpolicy="no-referrer">
+
+
+<strong>rab.jpg</strong> (154.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 09:53 上传
+
+
+
+
+
+
+
+这个视频是打T99，所以是使用老任的内容盈利了
+
+老任要不要来抽税啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5148#       发表于 2020-6-2 09:58
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-2 09:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646643&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-2 09:43</a>
+
+好！就请响大佬堂堂出阵，举报腾讯和任天堂勾结阴谋染指最后一片无任的王道乐土，和日本的谷乡，美国的龙 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">南山区只有看守所，监狱在坪山。不过应该都有很多甴曱就是了，民事案件至于闹到蹲号子，对象不是华为好吗
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 5149#       发表于 2020-6-2 09:59
+
+
+
+
+老任在这一块破事最多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5150#       发表于 2020-6-2 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646756&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-2 09:55</a>
+
+刚看了少主和RAB的联动，第一个环节是这样的，播放少主的视频，如果谁笑了就要打1000円SC
+
+如图</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">狐狸当即展示如何规避版权问题，5ch又要说狐狸是暗黑企业hololive头目了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 5151#       发表于 2020-6-2 10:01
+
+
+
+
+不要紧，top侵的又不是老任的权<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5152#       发表于 2020-6-2 10:04
+
+
+
+ 本帖最后由 QWANG 于 2020-6-2 10:06 编辑 
+
+通知一下百鬼众，摸余找上西西了。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5153#       发表于 2020-6-2 10:06
+
+
+
+
+大福频道怎么突然冒出个摸余。。。。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5154#       发表于 2020-6-2 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646636&amp;ptid=1938145" target="_blank">ErenJager 发表于 2020-6-2 09:42</a>
+
+yhm直播apex我能理解，毕竟这算是一款伪fps游戏，而且吃鸡算是个看点。
+
+valorant会在管人直播里火起来吗？ ...</blockquote>
+不会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看今天早上虹直播的数字算是debuff，唯一会玩的石油王没开台，其他人不是逛街就是干拉白给，同接都不好看
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5155#       发表于 2020-6-2 10:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 只有我在意今天葵皇的批限有没有了吗？
+
+
+
+
+
+                            
