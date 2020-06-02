@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 00:11** 
+> ## **本文件最后更新于2020-06-03 02:09** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_JQVbz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_kFk09" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10527,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_F2Y29" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_y310W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13840,7 +13840,7 @@ mildom是斗鱼开的？
 
 
 
-<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_tJUS2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_hxD4W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -25214,4 +25214,791 @@ dustcell的粉丝数离久远千岁也差不多了，这个月应该就能超过
 
 
 
-     
+
+
+-----
+
+####  asdhai  
+##### 5826#       发表于 2020-6-3 00:14
+
+
+
+
+夏哥现在撩妹是副业，apex是真爱了。夏色apex贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5827#       发表于 2020-6-3 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47656522&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-2 23:58</a>
+
+我看了半小时关了，因为感觉再看下去要被脑控了
+
+打雀的话，栞桜来喂个饭可好，隔壁あやスバ订阅都上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">紫宝不想让我们看手牌，不想播麻将
+
+这是在脑控养gachi，我中招了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5828#       发表于 2020-6-3 00:18
+
+
+
+[https://www.youtube.com/watch?v=TcYON8cYFik](https://www.youtube.com/watch?v=TcYON8cYFik)
+
+还真有玩迪斯科的管人，还是彩虹ID的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5829#       发表于 2020-6-3 00:29
+
+
+
+
+萝莉控的浓度升高了！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl，苔总把任天堂游戏的录像删了，跑路.jpg。坏起来了
+
+
+zsyl，500同接其实无所谓，要是这500个人都是愿意打钱的那足够肥希吃饭了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5830#       发表于 2020-6-3 00:32
+
+
+
+
+也就是说这群人借v的人气把自己中身的粉丝养起来了就准备跑了？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5831#       发表于 2020-6-3 00:35
+
+
+
+
+老农棒球把某只棒球爱好者给钓出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+maimotokanon.png
+(140.78 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-3 00:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/003313gbikkbbggw3du6jb.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5832#       发表于 2020-6-3 00:36
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gfef1p2zmxj20jx0b540o.jpg" referrerpolicy="no-referrer">
+
+
+美大センス
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5833#       发表于 2020-6-3 00:37
+
+
+
+
+推特废人反应快
+
+
+
+
+
+
+shsion.png
+(72.81 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-3 00:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/003710uoabavobzvlbtlan.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5834#       发表于 2020-6-3 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47656852&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-3 00:32</a>
+
+也就是说这群人借v的人气把自己中身的粉丝养起来了就准备跑了？</blockquote>
+总是要留点后路嘛，而且魂号不用被公司抽成。魂号能播表示yagoo管得不严，这点挺好的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5835#       发表于 2020-6-3 00:39
+
+
+
+
+舞元是不是，“吃”遍了虹、杏、点、个人势，音声响彻整个V圈
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5836#       发表于 2020-6-3 00:40
+
+
+
+
+没有肉体的直播有啥意思、等啥时候小肥希开nico福利会限再叫我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5837#       发表于 2020-6-3 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47656894&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-3 00:38</a>
+
+总是要留点后路嘛，而且魂号不用被公司抽成。魂号能播表示yagoo管得不严，这点挺好的 ...</blockquote>
+要是人人都这么留个后路那感觉是挺可怕的
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 5838#       发表于 2020-6-3 00:47
+
+
+
+
+什么才叫真正的欧美进出啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/e1e8023f390c0d8b8a29bafcbe5979d1/IMG_524A974FB56EFF62D50C81D07432E000.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5839#       发表于 2020-6-3 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47656978&amp;ptid=1938145" target="_blank">中野六小龄童 发表于 2020-6-3 00:47</a>
+什么才叫真正的欧美进出啊</blockquote>
+早就关注了啊，你不知道？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 中野六小龄童| + 1|是我云了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5840#       发表于 2020-6-3 00:48
+
+
+
+
+肥希能学学日南事业线健身环吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  a37356205  
+##### 5841#       发表于 2020-6-3 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47656522&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-2 23:58</a>
+
+我看了半小时关了，因为感觉再看下去要被脑控了
+
+打雀的话，栞桜来喂个饭可好，隔壁あやスバ订阅都上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没想到有被紫宝熬死的一天，快两个小时了
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5842#       发表于 2020-6-3 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47656960&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-3 00:44</a>
+
+要是人人都这么留个后路那感觉是挺可怕的</blockquote>
+魂号只能提纯，基本没有吸新人的作用。而且魂号占用直播时间，影响皮号发育，损失也不小。
+
+至少杏顶层都没有开魂号的想法，或者说因为没开魂号才能成为顶层？
+
+龙宝数字下降和魂号应该也有影响?每周三日晚得播魂号, 皮号还要发推说身体很累要休息，不知道皮这边的观众会不会不爽
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5843#       发表于 2020-6-3 01:04
+
+
+
+
+在工作上做出点成绩和声誉然后接私活不是很正的事情么，说明杏这帮人职业规划还是有的。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5844#       发表于 2020-6-3 01:10
+
+
+
+
+璐娜在一群怪物在播的情况下还有2200同接，好起来了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5845#       发表于 2020-6-3 01:11
+
+
+
+
+看到一位朋友的粉丝符号是郡道+口了+11岁......试问，这是一种怎样的精神？
+
+我看到他，惊异程度不亚于某次我看到一位热爱百合的网友跟明显理解错mrra关系一心tmsk的陌生网友解释郡道的性取向。
+
+太强了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5846#       发表于 2020-6-3 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657156&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-3 01:11</a>
+
+看到一位朋友的粉丝符号是郡道+口了+11岁......试问，这是一种怎样的精神？
+
+我看到他，惊异程度不亚于某次 ...</blockquote>
+三缺一玲，你应该问她是不是前玲人堂成员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 5847#       发表于 2020-6-3 01:25
+
+
+
+
+6月4日 17:00
+[https://www.youtube.com/watch?v=sZqbzOiNf68](https://www.youtube.com/watch?v=sZqbzOiNf68)
+
+【国際UNO】国境を越えて今！バトルが始まる！！！！【ホロライブ/ロボ子さん】
+
+▪みこち
+[https://www.youtube.com/channel/UC-hM6YJuNYVAmUWxeIr9FeA](https://www.youtube.com/channel/UC-hM6YJuNYVAmUWxeIr9FeA)
+
+▪ムーナ
+[https://www.youtube.com/channel/UCP0BspO_AMEe3aQqqpo89Dg](https://www.youtube.com/channel/UCP0BspO_AMEe3aQqqpo89Dg)
+
+▪リス
+[https://www.youtube.com/channel/UCOyYb1c43VlX9rc_lT6NKQw](https://www.youtube.com/channel/UCOyYb1c43VlX9rc_lT6NKQw)
+
+<img src="https://img.saraba1st.com/forum/202006/03/012530mnn6gpfclnzdpfnn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault (1).jpg</strong> (203.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 01:25 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5848#       发表于 2020-6-3 01:26
+
+
+
+
+mrr两三个月前就稳定2k露奈特了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5849#       发表于 2020-6-3 01:26
+
+
+
+
+啊松鼠动了，刚在nga还聊松鼠为啥不联动的话题。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5850#       发表于 2020-6-3 01:29
+
+
+
+
+四月公主同接还经常1k+，甚至还有不过千的时候（也可能是三月，记不太清了）好起来也就是上个月，官号+七大豆+船长连着喂了几口饭，还有apex联动什么的。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5851#       发表于 2020-6-3 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657243&amp;ptid=1938145" target="_blank">NBXX 发表于 2020-6-3 01:25</a>
+
+6月4日 17:00
+
+https://www.youtube.com/watch?v=sZqbzOiNf68
+
+【国際UNO】国境を越えて今！バトルが始まる！ ...</blockquote>
+为什么35是老模型
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5852#       发表于 2020-6-3 01:33
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-3 01:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657191&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-3 01:17</a>
+
+三缺一玲，你应该问她是不是前玲人堂成员</blockquote>
+倒不是每个对久远还有念想的都是玲人，白濑玲时期的粉这么自称倒还好（不如说这个时期的粉大部分早已放弃理解她了，更多人在拐着弯损她），喜欢久远千岁的人说自己是滚煮人得了，看一些粉丝整天”白濑玲“”白濑玲“装熟真的蛮搞笑的。
+
+省一楼，如果有朋友开了郡道会员可以去听听今晚一小时之后的t台，别吸了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">。再省一楼，本来快睡了，模糊中听错了听到一声”米阿内“，吓醒了，韩国文化害人啊
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 5853#       发表于 2020-6-3 01:35
+
+
+
+<blockquote>proxima 发表于 2020-6-3 00:29
+萝莉控的浓度升高了！
+
+
+syl，苔总把任天堂游戏的录像删了，跑路.jpg。坏起来了
+</blockquote>
+小号也靠apex抽卡大集金集个鬼啊，小号不好好给粉丝福利干嘛呢，以前的她还没这么沉迷apex的唉
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5854#       发表于 2020-6-3 01:37
+
+
+
+
+连会限都能鸽，阿菜你好强大。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5855#       发表于 2020-6-3 01:40
+
+
+
+
+关于魂号，团长梅露那种大物号舍不得断掉可以理解，但是龙宝那个kson相对于v号，还有夏哥这个新建的油管号，对事业是没有任何作用的，甚至还有分神和观众反感的副作用。
+
+号从来不是后路，核心粉才是真正的后路。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5856#       发表于 2020-6-3 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657316&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-3 01:40</a>
+
+关于魂号，团长梅露那种大物号舍不得断掉可以理解，但是龙宝那个kson相对于v号，还有夏哥这个新建的油管号 ...</blockquote>
+日南算大物kson为啥不算，明明sc是日南6倍+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nico收入就不清楚了，日南有nico会限肯定会员这块是比较多的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5857#       发表于 2020-6-3 01:50
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-3 01:46
+日南算大物kson为啥不算，明明sc是日南6倍+nico收入就不清楚了，日南有nico会限肯定会员这块是比 ...</blockquote>
+kson连个银盾都没有还是算了吧。。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 5858#       发表于 2020-6-3 01:53
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-3 01:40
+关于魂号，团长梅露那种大物号舍不得断掉可以理解，但是龙宝那个kson相对于v号，还有夏哥这个新建的油管号 ...</blockquote>
+很在理但这建议提都不能提就是了唉，本质上她魂播不播都没问题，fansa多点才能留住gachi，整天学别人杀gachi干嘛呢
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5859#       发表于 2020-6-3 01:55
+
+
+
+
+订阅对她们来说又不能直接关联到收入，日南30万订阅为啥sc被爆6倍啊，都是些点了订阅白嫖看赖子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5860#       发表于 2020-6-3 01:55
+
+
+
+
+分神这种也要看活动频度的嘛，套皮主播好多本来就挺摸的。至于观众反感这个问题，会追到魂号去的观众还要为了这种事情反感那不是铁血v粉了，这种观众也当不了后路啊。
+
+v的事业归事业，不过这事业也有一半是yagoo的啊。
+
+接受不了离开的那只能当粉丝提纯了
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 5861#       发表于 2020-6-3 01:57
+
+
+
+
+要是楼友有naizi，我也看啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5862#       发表于 2020-6-3 02:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657401&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-3 01:55</a>
+
+订阅对她们来说又不能直接关联到收入，日南30万订阅为啥sc被爆6倍啊，都是些点了订阅白嫖看赖子的 ...</blockquote>
+爬起来看了眼，五月日南51w，kson17w，这不是被三倍杀了吗，何况日南还有nico会限什么的。。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5863#       发表于 2020-6-3 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657407&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-3 01:55</a>
+
+分神这种也要看活动频度的嘛，套皮主播好多本来就挺摸的。至于观众反感这个问题，会追到魂号去的观众还要为 ...</blockquote>
+观众反感这个主要是前面有人提到的v号的观众，能追到魂号的肯定算是比较核心的那部分粉丝了。
+
+
+
+
+
+    
