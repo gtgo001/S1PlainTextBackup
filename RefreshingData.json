@@ -497,9 +497,9 @@
   },
   {
     "id": "1794543",
-    "totalpage": 269,
+    "totalpage": 270,
     "title": "[漫画《电锯人》专楼]",
-    "lastedit": 1591020078,
+    "lastedit": 1591099248,
     "category": "漫区专楼",
     "active": true
   },
@@ -2633,9 +2633,9 @@
   },
   {
     "id": "1477016",
-    "totalpage": 146,
+    "totalpage": 147,
     "title": "[一拳超人.假面要杀人，因三弟子返场没杀成，未遂还是中止]",
-    "lastedit": 1589018542,
+    "lastedit": 1591099359,
     "category": "漫区专楼",
     "active": true
   },
@@ -3569,9 +3569,9 @@
   },
   {
     "id": "1800312",
-    "totalpage": 438,
+    "totalpage": 439,
     "title": "[【集合啦！动物森友会】6月是结婚月活动！]",
-    "lastedit": 1591020182,
+    "lastedit": 1591099412,
     "category": "游戏区专楼",
     "active": true
   },
@@ -6649,9 +6649,9 @@
   },
   {
     "id": "1860270",
-    "totalpage": 50,
+    "totalpage": 51,
     "title": "[20.04『辉夜大小姐想让我告白？～天才们的恋爱头脑战～』]",
-    "lastedit": 1590861861,
+    "lastedit": 1591099522,
     "category": "漫区专楼",
     "active": true
   },
@@ -7305,9 +7305,9 @@
   },
   {
     "id": "1929631",
-    "totalpage": 340,
+    "totalpage": 341,
     "title": "[【M11】神楽Mea(KaguraMea)真爱讨论楼]",
-    "lastedit": 1591085060,
+    "lastedit": 1591099590,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -9349,7 +9349,7 @@
     "title": "[明尼苏达警杀黑人事件相关 专楼合并]",
     "lastedit": 1591085441,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1937738",
@@ -9441,25 +9441,25 @@
   },
   {
     "id": "1938145",
-    "totalpage": 180,
+    "totalpage": 186,
     "title": "[【V9】VTuber综合讨论楼日本电视台建立VTuber网络V-Clan]",
-    "lastedit": 1591085498,
+    "lastedit": 1591099950,
     "category": "虚拟主播区专楼",
     "active": true
   },
   {
     "id": "1938145",
-    "totalpage": 180,
+    "totalpage": 186,
     "title": "[【V9】VTuber综合讨论楼日本电视台建立VTuber网络V-Clan]",
-    "lastedit": 1591085539,
+    "lastedit": 1591099998,
     "category": "虚拟主播区专楼",
     "active": true
   },
   {
     "id": "1938285",
-    "totalpage": 155,
+    "totalpage": 162,
     "title": "[【B6】VUP综合讨论专楼]",
-    "lastedit": 1591085612,
+    "lastedit": 1591100015,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -9521,17 +9521,17 @@
   },
   {
     "id": "1938979",
-    "totalpage": 6,
+    "totalpage": 7,
     "title": "[新入职员工遭qj]",
-    "lastedit": 1591071164,
+    "lastedit": 1591100036,
     "category": "外野",
     "active": true
   },
   {
     "id": "1939060",
-    "totalpage": 8,
+    "totalpage": 9,
     "title": "[一个北方人嗷的一声就崩溃了]",
-    "lastedit": 1591078315,
+    "lastedit": 1591100049,
     "category": "外野",
     "active": true
   },
@@ -9561,9 +9561,9 @@
   },
   {
     "id": "1938976",
-    "totalpage": 6,
+    "totalpage": 7,
     "title": "[“你把这个游戏停掉，就什么事也没有了”]",
-    "lastedit": 1591071220,
+    "lastedit": 1591100062,
     "category": "外野",
     "active": true
   },
@@ -9585,9 +9585,25 @@
   },
   {
     "id": "1938906",
-    "totalpage": 2,
+    "totalpage": 3,
     "title": "[2020年6月网文推荐汇总帖]",
-    "lastedit": 1591071246,
+    "lastedit": 1591100069,
+    "category": "外野专楼",
+    "active": true
+  },
+  {
+    "id": "1939204",
+    "totalpage": 8,
+    "title": "[美国风景区 #2综合楼]",
+    "lastedit": 1591100079,
+    "category": "外野专楼",
+    "active": true
+  },
+  {
+    "id": "1939205",
+    "totalpage": 3,
+    "title": "[疫情综合楼]",
+    "lastedit": 1591100084,
     "category": "外野专楼",
     "active": true
   }

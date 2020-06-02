@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 16:04** 
+> ## **本文件最后更新于2020-06-02 20:06** 
 
 
 
@@ -20097,4 +20097,701 @@ tc的节奏是很舒服啊 每次累的时候看一些TC的熟肉 听听她的�
 
 
 
-          
+
+
+-----
+
+####  第三惑星  
+##### 10175#       发表于 2020-6-2 16:13
+
+
+
+
+这是病，得治
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10176#       发表于 2020-6-2 16:17
+
+
+
+
+好，gachi越多越好。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10177#       发表于 2020-6-2 16:21
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-2 16:22 编辑 
+
+才发现原来晚上还有麻酱联动
+<img src="https://p.sda1.dev/0/f5cac9eb88ef544d2fb9ee33853772b6/IMG_2C32C4E430DC50C3B17DFB83F038664F.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10178#       发表于 2020-6-2 16:22
+
+
+
+
+已经变成咩咩的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10179#       发表于 2020-6-2 16:25
+
+
+
+
+又是麻酱， 又是麻酱， 不过能吸到观众的话也好
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10180#       发表于 2020-6-2 16:37
+
+
+
+
+小麻能给毒唯赏一个点tc嘛<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10181#       发表于 2020-6-2 17:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">赏给你也没钱打了，多休息休息好了，一会又是联动又是露脸的（可能）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10182#       发表于 2020-6-2 17:21
+
+
+
+
+又是引流的一天<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10183#       发表于 2020-6-2 17:26
+
+
+
+
+你咩也是老牌个人势大物了好吧，虽然是没什么用的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10184#       发表于 2020-6-2 17:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">又是麻酱又是麻酱又是麻酱
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10185#       发表于 2020-6-2 17:53
+
+
+
+
+呜呜呜什么时候再来个大物引流一下咩咩(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10186#       发表于 2020-6-2 17:59
+
+
+
+
+现在出道，一个月后成为大物虚拟人，反手过来引流咩咩，相信自己，你可以做到
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10187#       发表于 2020-6-2 17:59
+
+
+
+
+楼友就不能发挥主观能动性成为大物吗
+
+
+做学术的发（有意义的）论文
+
+
+做生意的发大财
+
+
+之类的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10188#       发表于 2020-6-2 18:01
+
+
+
+
+与其期望自己出道成为大物，还不如期待虹杏突然爆炸呢(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10189#       发表于 2020-6-2 18:03
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-2 18:06 编辑 
+
+u1s1，现在不就是苔苔和兔姨高强度找各路人来喂饭么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要吃着碗里的看着锅里的啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10190#       发表于 2020-6-2 18:13
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-2 18:25 编辑 
+
+咩咩去年还会自己找人主办人狼游戏，今年估计是没有希望看到了<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+仔细想想上半年高强度联动的舞咩确实都靠兔子苔苔拱火，不过人是麻自己挑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl，咩的tc不可能助眠的，熟肉都是她好好说事情的片段，真去听里面各种凌晨怪叫，能吵醒人的那种
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10191#       发表于 2020-6-2 18:14
+
+
+
+
+经过苔姨兔姨的二手转化率我觉得不高<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+想看她自己搞大型企划<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10192#       发表于 2020-6-2 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">企划力她要是有就好了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10193#       发表于 2020-6-2 18:16
+
+
+
+
+不是刚说了8月2号有准备活动的<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10194#       发表于 2020-6-2 18:24
+
+
+
+
+你麻搞过的联动企划也不是没有，楼友喜欢看哪个啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10195#       发表于 2020-6-2 18:27
+
+
+
+
+我要看咖啡厅！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+还有拱火舞苔<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10196#       发表于 2020-6-2 18:28
+
+
+
+
+最近新粉几乎都是兔姨苔苔那边来的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么还二手转化率低的，真当不在你mea姐直播间就不算你mea姐观众了么
+
+至于企划什么的。要知道你mea姐现在就是联动工具人+solo型主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在别人的大型企划里看见她比看到她自己办的概率大多了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10197#       发表于 2020-6-2 18:28
+
+
+
+
+苔苔都有kuma了，舞元已经是过去的男人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10198#       发表于 2020-6-2 18:30
+
+
+
+
+本苔gachi哭了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 10199#       发表于 2020-6-2 18:36
+
+
+
+
+我想看转生炎兽粉蝙蝠
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10200#       发表于 2020-6-2 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47653003&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-2 18:28</a>
+最近新粉几乎都是兔姨苔苔那边来的好吧怎么还二手转化率低的，真当不在你mea姐直播间就不算你mea姐 ...</blockquote>
+两大箱→兔姨苔姨→mea×
+两大箱→mea√
+
+其实我就是想看她跟不熟的人联动<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">，知道不可能我先爬了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10201#       发表于 2020-6-2 18:43
+
+
+
+
+我其实倾向于认为mea只是觉得企划准备太麻烦。
+
+你像兔姨经常整的v骚跟学力测试这种前期准备很费时间的。海苔男虽然很少搞大型联动，但是平时联动的准备也不少。像mea拉过的雪山人狼啊合唱啊啥的其实也挺麻烦的。
+
+有时候可能不想那么麻烦就随便聊聊天打打麻将了。
+
+
+syl，说到舞元，海苔男自己说cp营业也只举了伊东life跟翔哥的例子，可能她默认还是想拱火舞mea罢。
+
+不过这人真的有毒，整了时雨妈模仿大赛不带舞元，理由是有不想看到和男人联动的参演者。这不是mea可以随便卖的意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10202#       发表于 2020-6-2 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47653123&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-2 18:39</a>
+两大箱→兔姨苔姨→mea×
+两大箱→mea√</blockquote>
+没有兔姨苔苔，很多两大箱的人就几乎不会和她联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说白了还是看你mea姐心情
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 10203#       发表于 2020-6-2 18:44
+
+
+
+
+和虹杏熟人有企划也不一定有时间,和苔兔两个顶级p联动轮不到她来企划
+
+要不和uge整个联动吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10204#       发表于 2020-6-2 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能mea线下聊男人比较多吧，苔苔觉得五咩
+cp挺适合的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10205#       发表于 2020-6-2 18:52
+
+
+
+
+有小女生内味了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10206#       发表于 2020-6-2 18:57
+
+
+
+
+现成的大物有啊，隔壁不刚过50万么？我咖啡厅第二季呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10207#       发表于 2020-6-2 18:57
+
+
+
+
+兔姨也是自己只对绿仙这种不算男v的发情，还是很在乎自己的gachi的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10208#       发表于 2020-6-2 18:58
+
+
+
+
+刚说苔苔和兔姨这就看到了fanart
+<img src="https://p.sda1.dev/0/f1b871cef4cbd872d9acd77ded547418/BFCC5668E69DE04AF9F36C20B9DF7EFF.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10209#       发表于 2020-6-2 19:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">苔姨兔姨爱惜羽毛，可怜了麻酱
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10210#       发表于 2020-6-2 19:13
+
+
+
+
+“和舞元营业你就能和企业搭线”
+
+“那么代价呢”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 10211#       发表于 2020-6-2 19:31
+
+
+
+
+代价是clay发疯？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10212#       发表于 2020-6-2 19:37
+
+
+
+
+よわいな
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10213#       发表于 2020-6-2 19:46
+
+
+
+<img src="https://p.sda1.dev/0/c73cf01c32aa0329bfa4f08303e12b31/IMG_1652521A4A071DEBC61C09E41B8F74E5.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10214#       发表于 2020-6-2 19:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">又是女粉cos
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10215#       发表于 2020-6-2 19:54
+
+
+
+
+苔苔罪大恶极，怪不得奇酷比那么黑，新婚快乐必被阿咩刷的到处都是嗷
+
+
+
+
+
+         
