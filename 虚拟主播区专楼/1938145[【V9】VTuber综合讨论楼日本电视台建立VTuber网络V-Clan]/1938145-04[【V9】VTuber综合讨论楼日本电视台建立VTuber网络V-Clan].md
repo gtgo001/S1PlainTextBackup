@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 12:12** 
+> ## **本文件最后更新于2020-06-02 14:10** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_jmFj4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_l0Km6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10527,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_hONCM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_wG5GK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13840,7 +13840,7 @@ mildom是斗鱼开的？
 
 
 
-<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_LFZ1a" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_X0lb8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -14546,4 +14546,1159 @@ syl 花寄的那谁开sc播t99播了3小时也没被人体堂锤爆嘛[f: ...</b
 
 
 
-                        
+
+
+-----
+
+####  金魚佬  
+##### 5262#       发表于 2020-6-2 12:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应援团一般是发表情包，灌水，甚至有在群里发“早安”的。。。大概和qq群差不多吧
+
+
+
+
+
+
+
+-----
+
+####  Dante0960  
+##### 5263#       发表于 2020-6-2 12:14
+
+
+
+
+Gamers
+
+
+
+
+
+
+-7c3cd02ff90c9d85.jpg
+(69.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-2 12:14 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/02/121414poc75ffu55ueff6w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cheatdeath3| + 1|简单绝品的妈妈的饭|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5264#       发表于 2020-6-2 12:14
+
+
+
+
+说起来小天使哥是不是很久没发早安彼方了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5265#       发表于 2020-6-2 12:15
+
+
+
+
+那也不是，前有直播绘图的画师，后有直播敲代码的码农，就是无聊点罢了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 5266#       发表于 2020-6-2 12:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了半小时帕里打valorant 
+
+弹幕打架比游戏有意思
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 5267#       发表于 2020-6-2 12:19
+
+
+
+
+缝合怪联动一堆人说韩语把阿葵逗笑了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5268#       发表于 2020-6-2 12:20
+
+
+
+
+感觉还是有空子可以钻啊，比如holo发个公告说播任系游戏公司不抽成，是不是就行了
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5269#       发表于 2020-6-2 12:21
+
+
+
+
+不抽成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那全社要变成任任人了
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5270#       发表于 2020-6-2 12:22
+
+
+
+ 本帖最后由 Fakerの幻影 于 2020-6-2 12:23 编辑 
+
+瓦洛兰特能成为下一个管人金游吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是觉得挺好玩的
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 5271#       发表于 2020-6-2 12:24
+
+
+
+
+谷乡tm的是资本家不是慈善家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 5272#       发表于 2020-6-2 12:26
+
+
+
+
+我觉得管人的fps水平不足以让这游戏成为金游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 5273#       发表于 2020-6-2 12:28
+
+
+
+
+看有没有排位分区呗，只要有鱼塘菜鸡也是能玩的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5274#       发表于 2020-6-2 12:28
+
+
+
+
+csgo和r6怎么在管人圈凉的这游戏就会怎么凉的<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 5275#       发表于 2020-6-2 12:29
+
+
+
+
+成为金游首先是看火不火啊。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那无敌的拳头十年磨一剑，这波必🔥
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 5276#       发表于 2020-6-2 12:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼塘1换1顶天了 我觉得不行
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5277#       发表于 2020-6-2 12:30
+
+
+
+
+其实都不好说，APEX一年前就有了，但现在倒成了金游，现在不是不代表以后不行。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5278#       发表于 2020-6-2 12:30
+
+
+
+
+霓虹的fps慢冲国一挡，moba慢欧美一挡
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5279#       发表于 2020-6-2 12:31
+
+
+
+
+我看下一个管人金游是《craftopia》，可以说是游戏史上最强的终极缝合怪了，管人想要的节目效果都可以玩出来
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5280#       发表于 2020-6-2 12:32
+
+
+
+
+羊毛出在羊身上啊，不过是变通一下做做样子，收钱的名号多得很
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5281#       发表于 2020-6-2 12:35
+
+
+
+
+别中韩欧美了，霓虹fps/moba都被东南亚诸猴吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5282#       发表于 2020-6-2 12:35
+
+
+
+
+APEX本身就是主播最爱的吃鸡模式，而且花样多对新人友好、菜鸡也容易吃鸡、不如说之前没有一口气成为管人金游有点怪
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5283#       发表于 2020-6-2 12:36
+
+
+
+
+Apex是因为外挂泛滥加卖挂语音吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 5284#       发表于 2020-6-2 12:38
+
+
+
+
+之前打apex甚至能每一把都碰到卖挂的语音，咋可能火起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5285#       发表于 2020-6-2 12:38
+
+
+
+
+可能是因为去年pubg还没死透，太君还没适应第一人称
+
+遥想两年前看twitch上日本职业队主播打pubg tpp，职业队员打普通排位嗷，一个个都是老阴逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5286#       发表于 2020-6-2 12:40
+
+
+
+
+APEX成为管人金游的的前置条件是成为11区金游，所以没有一口气成为管人金游的原因就是日本环境慢世界一拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5287#       发表于 2020-6-2 12:40
+
+
+
+ 本帖最后由 colodes 于 2020-6-2 12:44 编辑 
+
+雀魂仅供个人使用直播
+
+<img src="https://img.saraba1st.com/forum/202006/02/124037uu228pr3zzp4rguu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>bAsJ5En.jpg</strong> (134.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 12:40 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5288#       发表于 2020-6-2 12:45
+
+
+
+
+holo是个人势不要紧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5289#       发表于 2020-6-2 12:45
+
+
+
+
+然而apex在世界其他地区都凉了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5290#       发表于 2020-6-2 12:45
+
+
+
+
+ロベルすげぇええええ！
+
+<img src="https://img.saraba1st.com/forum/202006/02/124511g6762n85hy6w5zhr.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-02 124458.png</strong> (164.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 12:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5291#       发表于 2020-6-2 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47648015&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-2 11:35</a>
+
+各路x 只有任天堂卡普空等日企</blockquote>
+其实经常拿版权干管人的是唱片公司。虹杏live各种没回放一次性回放单曲消音还不是因为唱的都是别人的歌。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5292#       发表于 2020-6-2 12:53
+
+
+
+
+杏男好起来了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5293#       发表于 2020-6-2 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47648845&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-2 12:40</a>
+
+雀魂仅供个人使用直播</blockquote>
+又骗不懂日语的mmr，太巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5294#       发表于 2020-6-2 12:54
+
+
+
+
+col老哥看只发一张图没人反应转头就加上一句fake translation<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5295#       发表于 2020-6-2 12:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47648979&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-2 12:53</a>
+
+又骗不懂日语的mmr，太巨魔了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">COLO这是骗视X这里的贴吧生物呢吧。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 5296#       发表于 2020-6-2 12:56
+
+
+
+
+基德基德，估计已经有视奸你楼的人把雀魂这个转发到q群了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5297#       发表于 2020-6-2 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47648996&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-2 12:54</a>
+
+col老哥看只发一张图没人反应转头就加上一句fake translation</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钓不到鱼也不要这样嘛
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5298#       发表于 2020-6-2 12:56
+
+
+
+
+说起来写歌你不找大手子真的没啥成本，一次新曲披露感想收的SC能接着买好几首，你虹好歹有张RD你杏真是不知道在干什么。
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 5299#       发表于 2020-6-2 12:57
+
+
+
+
+Colo老钓鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5300#       发表于 2020-6-2 13:01
+
+
+
+
+别的不说，原创曲到底是用来干什么的，星街深有体会，你以为原创曲是卖碟骗钱的？不，原创曲本质私人专享免费音乐素材<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 5301#       发表于 2020-6-2 13:02
+
+
+
+
+你们都点破了就没有鱼上钩了啊
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5302#       发表于 2020-6-2 13:02
+
+
+
+
+那我也来钓
+
+昨天没看待机间是这个原因吗？
+
+<img src="https://img.saraba1st.com/forum/202006/02/130215mf4f4ndwwsd3n21e.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200602125929.png</strong> (7.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-2 13:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5303#       发表于 2020-6-2 13:02
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-2 13:04 编辑 
+
+风怒
+
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 5304#       发表于 2020-6-2 13:02
+
+
+
+
+不要以中国效率去评价日本的企业的效率，中国市场各方面都还在开拓·发展期，企业都属于先上车后补票，慢了只能喝洗脚水。
+
+
+日本已经过了这个时期三十年了，昭和再也不会回来了
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 5305#       发表于 2020-6-2 13:03
+
+
+
+
+虹原创曲蛮多的，除了出道组和两张拼盘专之外liver自己找人写歌发的也不少，之前看歌单好像超过100了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5306#       发表于 2020-6-2 13:22
+
+
+
+
+FAMS
+syl凪白确实应该好好乳一乳了，这几张表情我都见过好几次了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5307#       发表于 2020-6-2 13:26
+
+
+
+
+486:名無しさん＠お腹いっぱい。[sage] 2020/06/02(火) 14:21:12.36
+
+鳴神のリーク「30人以上のライバーが辞めようとしてる」
+
+↑
+
+ちょうど1、2週間前くらいにリークされてる
+
+
+東京+30人
+
+
+
+あっ…
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 5308#       发表于 2020-6-2 13:27
+
+
+
+
+凪白现在的画的狐狸图这么多了
+惊了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5309#       发表于 2020-6-2 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47645551&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-2 06:05</a>
+
+苔箱有苔宝死命的喂饭，虹杏一期生哪有这么舒服的的环境。
+
+不过苔宝脑控观众的能力真的拉夸爱宫这么喂才100 ...</blockquote>
+小白直播那看的都是铁血豆腐，海苔男直播看的都是铁血杏人还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这能一样吗。
+
+会看海苔男自己直播的人都没有3k拿头引流。倒不如就是因为看女儿的人不看海苔男才会打起来的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5310#       发表于 2020-6-2 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649271&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-2 13:22</a>
+
+FAMS
+
+syl凪白确实应该好好乳一乳了，这几张表情我都见过好几次了</blockquote>
+草，这死了一般的眼神，和鸭鸭狗狗的原立绘对比明显<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+凪白什么时候能意识到高光画正常点就不会那么死气沉沉的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5311#       发表于 2020-6-2 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649379&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-2 13:34</a>
+
+草，这死了一般的眼神，和鸭鸭狗狗的原立绘对比明显
+
+凪白什么时候能意识到高光画正常点就不会那么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">486顶级美瞳被画成了死鱼眼
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5312#       发表于 2020-6-2 13:42
+
+
+
+
+哪怕换对玻璃球上去也比凪白画的眼有灵性
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5313#       发表于 2020-6-2 13:43
+
+
+
+
+486这款意外的比白狐狸更适合mito桑
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5314#       发表于 2020-6-2 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649013&amp;ptid=1938145" target="_blank">SteinSlayer 发表于 2020-6-2 12:56</a>
+说起来写歌你不找大手子真的没啥成本，一次新曲披露感想收的SC能接着买好几首，你虹好歹有张RD你杏真是不知 ...</blockquote>
+纠正一点，rd一砖シナスタジア不是彩虹唯一一张原创砖。之前就有和DMM music合作的music mix up、找了各路大手音乐人的Smash the Paint，德龙一单MARBLE，花江一砖première fleurs，都是基本由原创曲组成。
+
+liver个人约的原创曲也不少，近的就有lize的生日纪念曲，撇撇的周年纪念曲，メリッサ自己写的两首等
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5315#       发表于 2020-6-2 13:52
+
+
+
+
+狐皇转的，这啥梗
+スバル……泣くな……
+あんたに笑顔を持ってきた…(ラフメイカー)<img src="https://p.sda1.dev/0/8184940075f47b4a76bee0035f8120a6/IMG_BCD68AD2855ECA86BE0324749B6E1BCE.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5316#       发表于 2020-6-2 14:02
+
+
+
+
+草，只要有鸭鸭的时候草就生了出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5317#       发表于 2020-6-2 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649464&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-2 13:42</a>
+
+哪怕换对玻璃球上去也比凪白画的眼有灵性</blockquote>
+说的好，凪白的眼睛一直都是平面的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 5318#       发表于 2020-6-2 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646965&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-2 10:16</a>
+1、能打正作
+
+2、主神钦点</blockquote>
+说得好啊！而且这波还不是神子显灵这种一些教派承认一些教派不承认的，而是货真价实的直播圣灵显灵，拿着啤酒让马琳坐下，一起说说心里话
+
+哪怕是东方的无许可ooc囧斯兰教派都要认的，别说本土的那些大小支教了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 5319#       发表于 2020-6-2 14:05
+
+
+
+
+看了几眼，拳头这个fps本质就是csgo变种吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5320#       发表于 2020-6-2 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649702&amp;ptid=1938145" target="_blank">icecry 发表于 2020-6-2 14:05</a>
+
+看了几眼，拳头这个fps本质就是csgo变种吧</blockquote>
+差不多，本质还是传统fps。
+
+多了点花里胡哨的东西。
+
+
+
+
+
+
+
+-----
+
+####  asclepiusz  
+##### 5321#       发表于 2020-6-2 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47649702&amp;ptid=1938145" target="_blank">icecry 发表于 2020-6-2 14:05</a>
+
+看了几眼，拳头这个fps本质就是csgo变种吧</blockquote>
+CSGO+OW
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 5322#       发表于 2020-6-2 14:08
+
+
+
+
+拳头搞这个fps 难道是文艺复兴吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">  要说这10几年前 出这种类型的 我倒能理解 这都0202年了 还搞这样的 也是挺少见的
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 5323#       发表于 2020-6-2 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拳头这个是用来取代喜爱福的啊，不然为啥配置要求那么低
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                      
