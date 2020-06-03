@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 20:03** 
+> ## **本文件最后更新于2020-06-04 00:06** 
 
 
 
@@ -23110,4 +23110,1067 @@ noe6月14有棉花糖b限，可以去问问怎么被mea拐过来的</blockquote>
 
 
 
-    
+
+
+-----
+
+####  魔法使い2019  
+##### 10353#       发表于 2020-6-3 20:03
+
+
+
+
+爱讨论
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10354#       发表于 2020-6-3 20:13
+
+
+
+
+VNR不就好了……
+
+
+不过看管看久了听力方面好像的确优化不少
+
+
+最近打生肉能理解的部分变多了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10355#       发表于 2020-6-3 20:15
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-3 20:37 编辑 
+
+textractor比较稳定
+
+也没那么多繁琐， 不一定有用的功能
+
+
+我有极简主义倾向， 经常不用ide写代码的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10356#       发表于 2020-6-3 20:18
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-6-3 20:22 编辑 
+
+虽然我不清楚不过还是先编辑了再说(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 10357#       发表于 2020-6-3 20:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47666782&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-3 20:18</a>
+不是说清楚点，到底咋了，怎么都开始谜语了(#ﾟДﾟ)</blockquote>
+不要爱讨论啊（
+去v综问吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10358#       发表于 2020-6-3 20:22
+
+
+
+
+听你咩说话听多了，别的语速不快又没生僻表达的v我大概意思都听不懂了，就很神奇，而且啃文字生肉也没什么实质的进步
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 10359#       发表于 2020-6-3 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47666601&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-3 20:02</a>
+
+话说各组最近停播又是咋回事儿(눈_눈)?</blockquote>
+打开手机动动手指看看日期，大概就是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10360#       发表于 2020-6-3 20:27
+
+
+
+
+今天会有播吗，明明最近几天直播没断过却总感觉她一个星期没播过了，话说她亲戚是不是该来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10361#       发表于 2020-6-3 20:30
+
+
+
+
+她亲戚已经来了吧
+
+十首歌十首歌十首歌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10362#       发表于 2020-6-3 20:31
+
+
+
+
+反向学日语草
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10363#       发表于 2020-6-3 20:32
+
+
+
+
+对了，那个挂人应该是不出了，暂时没计划
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10364#       发表于 2020-6-3 20:32
+
+
+
+
+好可惜<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10365#       发表于 2020-6-3 20:37
+
+
+
+
+啊这，那稍微多个嘴，官组不考虑一下联合投稿？我看隔壁说好像有人还拿这事造谣，反正都翻译出来了，让更多人看见不是更好？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10366#       发表于 2020-6-3 20:43
+
+
+
+
+联合也太怪了，哪有造谣啊，那人只是对fk人的行为做个总结而已，又不是针对你咩说的，说实话，这事儿也就是把你麻给整烦了也才有这一出，你看她不说这么多人有人提么？
+
+         
+
+当然了，流量民还是希望官组能转个动态？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10367#       发表于 2020-6-3 20:46
+
+
+
+
+官组同好会贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10368#       发表于 2020-6-3 20:51
+
+
+
+
+那没事了，我就多嘴说说，整个这么长的肉也不容易也希望能有更多人看，而且还是最近她直播中比较有看点的一次，虽然有些争议性
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10369#       发表于 2020-6-3 20:55
+
+
+
+
+食大便了，阿咩怼人都有争议了，生气<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10370#       发表于 2020-6-3 20:56
+
+
+
+
+还是那个问题，没校对咋转……
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10371#       发表于 2020-6-3 20:57
+
+
+
+
+“受苦受难的小麻才是我爱的小麻，当你麻没了争议，你麻也就不是你麻了”
+
+“小麻很累了，小麻只想安静地活在网上，不要再让她受伤了”
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10372#       发表于 2020-6-3 21:04
+
+
+
+
+有什么争议性。。。还是那句话，那事她哪有半点错
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10373#       发表于 2020-6-3 21:11
+
+
+
+
+你麻这波当然是正义执行，只是在评论区是肯定会有争议性讨论的，至于哪个方面的就不得而知了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10374#       发表于 2020-6-3 21:13
+
+
+
+
+啊这，说错了话我这就爬，我也知道咩做的很对，就是突然想起来上次挂240搞得有人不看咩了才带了这么句话，要是惹到带哥们了我陪个不是，还是还是安心等直播吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10375#       发表于 2020-6-3 21:18
+
+
+
+
+不是，我也知道评论区会有争议，肯定又是直播挂粉不好巴拉巴拉那一堆偶像营业理论，我不喜欢这个才说食大便了，没指责你的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10376#       发表于 2020-6-3 21:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10377#       发表于 2020-6-3 21:23
+
+
+
+
+めんどくせー
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10378#       发表于 2020-6-3 21:24
+
+
+
+
+bsyl,老实说虚拟管人行业到底该不该直接上同于偶像营业<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10379#       发表于 2020-6-3 21:31
+
+
+
+
+管人半点偶像活动都没有就别碰瓷了，套皮偶像都算不上好吧，至于虚拟偶像蹭我初音未来的还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10380#       发表于 2020-6-3 21:41
+
+
+
+
+那你圈整天念叨斗来斗去的偶像营业是个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 10381#       发表于 2020-6-3 21:45
+
+
+
+
+当然是dd自比偶像厨的自我满足啊
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10382#       发表于 2020-6-3 21:45
+
+
+
+
+当然是满足宅宅欲望的营业方式啊，还能是啥<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10383#       发表于 2020-6-3 21:46
+
+
+
+
+分“偶像势”和“搞笑艺人势”吧，但这两个集合有重合的部分，相当于两个相交的圆
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10384#       发表于 2020-6-3 21:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">众所周知偶像大多擅长唱、跳、Rap，浅而易懂地换算成曾经台上的麻酱大概就是杂鱼气短、debu体力和极道弹舌
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10385#       发表于 2020-6-3 22:01
+
+
+
+
+新推，今天摸，明天播
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10386#       发表于 2020-6-3 22:01
+
+
+
+
+看来在忙什么
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10387#       发表于 2020-6-3 22:01
+
+
+
+ 本帖最后由 A2014720 于 2020-6-3 22:06 编辑 
+
+卖艺和卖人设<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+这种不写时间的感觉鸽的概率极大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10388#       发表于 2020-6-3 22:02
+
+
+
+
+有预告就很舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10389#       发表于 2020-6-3 22:04
+
+
+
+
+到底对偶像多看不起才会觉得她是偶像营业？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+看看那些沙雕段子，看看那些不停蹭流量的cp，这就是**裸的剑走偏锋系网红营业啊。
+等她开个网店就可以实锤了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10390#       发表于 2020-6-3 22:05
+
+
+
+
+呜呜呜等到ddd你们就看到前地下偶像的风采了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 10391#       发表于 2020-6-3 22:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人觉得你咩姐内心某处还是希望观众把她当偶像来看的（指草莓饺子和菠萝果酱）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10392#       发表于 2020-6-3 22:11
+
+
+
+
+她当年也是打拼过的啊<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10393#       发表于 2020-6-3 22:12
+
+
+
+
+我来给流量民长下刀子了
+
+今天这辉夜作者白送的热度也就是在推特上回了两句就完事了，流量民会气的呕出十几两血吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10394#       发表于 2020-6-3 22:14
+
+
+
+
+osu？APEX？
+【YoutubeChat 森永みうYTB 直播评论】
+用户：神楽めあ / KaguraMea
+内容：osuやれ
+类型：message
+时间：2020-06-03 14:02:48 UTC
+网址：https://www.youtube.com/watch?v=1lllGZ1VUlc
+【YoutubeChat 森永みうYTB 直播评论】
+用户：神楽めあ / KaguraMea
+内容：じゃあアペックス配信しろ
+类型：message
+时间：2020-06-03 14:04:00 UTC
+网址：https://www.youtube.com/watch?v=1lllGZ1VUlc
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10395#       发表于 2020-6-3 22:15
+
+
+
+ 本帖最后由 A2014720 于 2020-6-3 22:17 编辑 
+
+草还要怎样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+apex联动希望她提前能练一练，虽然<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10396#       发表于 2020-6-3 22:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">流量钝感型网红
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10397#       发表于 2020-6-3 22:20
+
+
+
+
+要打赌吗，我赌她联动前发现apex要更新
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10398#       发表于 2020-6-3 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47668051&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-6-3 22:20</a>
+
+要打赌吗，我赌她联动前发现apex要更新</blockquote>
+你这就离谱了，一年没玩，客户端都要重新下载了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10399#       发表于 2020-6-3 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47668100&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-3 22:25</a>
+你这就离谱了，一年没玩，客户端都要重新下载了</blockquote>
+之前已经下好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10400#       发表于 2020-6-3 22:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">菜正好可以甩锅给星川，“又死了啦，都是你害的”
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10401#       发表于 2020-6-3 22:33
+
+
+
+
+我记得咩说过她以前玩过bo4吧，那什么时候时候能去玩玩战区呢，apex的ttk太长了看着着急，管人真的就来来回回那几个游戏呗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10402#       发表于 2020-6-3 22:34
+
+
+
+
+话说星川apex力咋样
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10403#       发表于 2020-6-3 22:39
+
+
+
+
+才发现还发了饭盒，内容还重复了，强烈反对把免费内容做成dlc<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10404#       发表于 2020-6-3 22:41
+
+
+
+ 本帖最后由 路人子 于 2020-6-3 22:42 编辑 
+
+管人不来来回回几个游戏等着被版权方橄榄吗（）只知道星川跟叶最近玩apex玩的挺多的，技术怎样没看过
+
+syl，饭盒dlc里还是有那么几个字的新内容8<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10405#       发表于 2020-6-3 22:50
+
+
+
+
+说osu没动静，那就是apex了吧，下星期联动了怎么样也该练练手
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10406#       发表于 2020-6-3 22:54
+
+
+
+
+虽然但是，并没有在apex
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10407#       发表于 2020-6-3 22:55
+
+
+
+
+她播apex好像很卡吧。不过联动不用开台。
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 10408#       发表于 2020-6-3 22:58
+
+
+
+
+等咩宝ddd回真来唱跳rap篮球你们就知错.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10409#       发表于 2020-6-3 23:16
+
+
+
+
+那等一个跳两分钟debu喘十分钟好吧(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10410#       发表于 2020-6-3 23:20
+
+
+
+
+在？看看健身环
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10411#       发表于 2020-6-3 23:22
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-3 23:25 编辑 
+
+所以说你们还是对流量民有误解啊，之前我为流量民正名的贴已经说了，我要的是“势”，当然要顺势而行才好，像赤坂这种唐突的互动哪来的所谓“势”，硬要恰这种热度的那只是肤浅的数字厨事业民而已，关我流量民什么事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> <blockquote>我要为流量民正名，流量民不等同于事业民，事业民本质是积极向的数字厨，具象化的各种数字提升会对其造成直接影响，而流量民更多的则偏向更加虚无的所谓热度，无所谓正面负面，再虚幻一点的说法就是所谓的“势”，和斗虫还是很大区别的</blockquote>
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10412#       发表于 2020-6-3 23:23
+
+
+
+
+感觉neet里她体力不算差的，灵不灵活先不提，耐力好像不是特别差
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10413#       发表于 2020-6-3 23:31
+
+
+
+
+健康民血/书建议重启健身环（）
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 10414#       发表于 2020-6-3 23:35
+
+
+
+
+从健身环上来看，比起一些管人的运动能力强多了。我觉得这女人更令人担心的是她的作息混乱这一点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">无法让人怎想明白她到底是什么时候起，什么时候睡。再加上混乱的吃饭和动不动就疼上天还不准时的大姨妈
+锻炼少就算了，求求你生活作息规律点啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 10415#       发表于 2020-6-3 23:43
+
+
+
+
+你咩比你楼绝大多数人都年轻，与其担心她的作息，不如想想自己的作息能跟上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  
