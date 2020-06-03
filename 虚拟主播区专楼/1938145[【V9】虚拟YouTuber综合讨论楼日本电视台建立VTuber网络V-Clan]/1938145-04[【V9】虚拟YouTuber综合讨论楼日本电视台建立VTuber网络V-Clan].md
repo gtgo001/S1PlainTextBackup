@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 02:09** 
+> ## **本文件最后更新于2020-06-03 08:11** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_kFk09" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_A0qOO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10527,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_y310W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_E84X6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13840,7 +13840,7 @@ mildom是斗鱼开的？
 
 
 
-<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_hxD4W" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_LfBnB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26001,4 +26001,570 @@ v的事业归事业，不过这事业也有一半是yagoo的啊。
 
 
 
-    
+
+
+-----
+
+####  kanonsisya  
+##### 5864#       发表于 2020-6-3 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657438&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-3 02:01</a>
+
+爬起来看了眼，五月日南51w，kson17w，这不是被三倍杀了吗，何况日南还有nico会限什么的。。。 ...</blockquote>
+那是日南5月sc解禁回，去掉那回算平均kson爆3倍，6倍我是看了眼总量
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5865#       发表于 2020-6-3 02:10
+
+
+
+
+喷了，看到以前关注的一个AGA画师，为了画管人色图把自己推特彻底删光，伪装成只发色图还不会被任何观众提及的幽灵BOT了
+
+这一切值得么.jpg
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5866#       发表于 2020-6-3 02:18
+
+
+
+
+看了下kson五月就播了4次，coco这边月播150（+63）小时，重心移到皮号来了？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5867#       发表于 2020-6-3 02:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657521&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-3 02:18</a>
+
+看了下kson五月就播了4次，coco这边月播150（+63）小时，重心移到皮号来了？</blockquote>
+套皮之后，kson一个月就播个四五次了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5868#       发表于 2020-6-3 02:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657521&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-3 02:18</a>
+
+看了下kson五月就播了4次，coco这边月播150（+63）小时，重心移到皮号来了？</blockquote>
+重心本来就一直在皮啊，魂号每周就播2~3小时。每个月还有20多天（5月少点）平均每天要花5~6小时做ascc呢往上一加每个月200多小时。你看楼里云了几句引流就以为别人本体播爆了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5869#       发表于 2020-6-3 02:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657531&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-3 02:21</a>
+
+套皮之后，kson一个月就播个四五次了。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/03/022644snqv55vgmzqzugsn.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获.PNG</strong> (2.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 02:26 上传
+
+
+
+
+
+
+看了下确实是处于减少的趋势
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5870#       发表于 2020-6-3 02:45
+
+
+
+
+有一说一，真的有魂比皮播的多的吗。那一定是干不下去了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 5871#       发表于 2020-6-3 02:45
+
+
+
+ 本帖最后由 kangkangsama 于 2020-6-3 02:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657284&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-3 01:33</a>
+
+倒不是每个对久远还有念想的都是玲人，白濑玲时期的粉这么自称倒还好（不如说这个时期的粉大部分早已放弃 ...</blockquote>
+阿0现在过得开心就好 游戏也照播 打不了放个会动的千岁立绘在旁边<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+虹当时也提供不了什么音乐上的帮助下 歌要找翻唱的pv要找小夜画得找熟人
+
+
+syl 阿玲不是也是有韩国人要素吗，韩语说的比阿葵强多了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+zsyl 到现在我最心水的郡道cp还是老不死
+
+
+zzsyl 反正不是看她打一晚上麻将就是听她聊一晚上男人 
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5872#       发表于 2020-6-3 02:46
+
+
+
+<blockquote>proxima 发表于 2020-6-3 02:45
+有一说一，真的有魂比皮播的多的吗。那一定是干不下去了</blockquote>
+梅露（
+
+基德基德
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5873#       发表于 2020-6-3 02:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657631&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-3 02:46</a>
+
+梅露（
+
+基德基德</blockquote>
+虽然楼里都不说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但是应该没有人觉得梅露还会干下去
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5874#       发表于 2020-6-3 03:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657645&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-3 02:51</a>
+
+虽然楼里都不说但是应该没有人觉得梅露还会干下去</blockquote>
+不会真有人觉得利香会白白放弃一个银盾账号和大箱一期生身份吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 5875#       发表于 2020-6-3 03:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657645&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-3 02:51</a>
+
+虽然楼里都不说但是应该没有人觉得梅露还会干下去</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">但是梅露除了不在自己直播间播之外，联动一直有参加，holo小剧场都出场了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5876#       发表于 2020-6-3 06:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">0收益的账号干嘛当宝贝啊。哦，还有停机保号费呢，yagoo给她的。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5877#       发表于 2020-6-3 07:05
+
+
+
+ 本帖最后由 colodes 于 2020-6-3 07:07 编辑 
+
+宮助さぁ...
+[https://youtu.be/3JwByqklFDM?t=257](https://youtu.be/3JwByqklFDM?t=257)
+
+「え？裁判になる？じゃあ検索引っかからないようにウールトラマンって書いとこう。ドラえもんの時も大丈夫だったし大丈夫でしょ。このゲームの動画がYouTube上がってたのも確認したし。とりあえず冒険しようよ、消されたらその時はその時でさ」
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/070529ndq7kdb5z5533uus.jpg" referrerpolicy="no-referrer">
+
+
+<strong>unnamed.jpg</strong> (31.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 07:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5878#       发表于 2020-6-3 07:06
+
+
+
+
+小肥妹食杀龙皇这剧情你们以前有没有想过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5879#       发表于 2020-6-3 07:16
+
+
+
+
+狗皇：此视频仅供爱好者研究攻略技巧，本频道仅提供展示，如侵犯到您的权益，请联系我删除，我始终在为维护版权和作品推广做努力
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5880#       发表于 2020-6-3 07:23
+
+
+
+
+木口赶快赔款解散吧 
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5881#       发表于 2020-6-3 07:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">支持取缔版权小偷有组织侵权犯罪者集体木口！
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5882#       发表于 2020-6-3 07:46
+
+
+
+
+違法配信闇組織ホロライブに正義の鉄槌を！
+
+syl天龙准备同居，kson的直播里面能不能看见小天使啊
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5883#       发表于 2020-6-3 07:47
+
+
+
+
+谨慎看待天龙同居，同居挺检验相性的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5884#       发表于 2020-6-3 07:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">小天使在kson直播里路过镜头就会有观众打红色sc吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5885#       发表于 2020-6-3 07:53
+
+
+
+
+虽然龙皇麻薬を吸う、自殺シーンを晒す
+
+但她是木口里最遵纪守法的好女孩
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 5886#       发表于 2020-6-3 07:54
+
+
+
+
+同居不代表要同房吧。。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5887#       发表于 2020-6-3 07:55
+
+
+
+
+天龙同居不可怕，可怕的是哪天kson直播里听到星街的声音:你为什么那么熟练<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 5888#       发表于 2020-6-3 07:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">反正ppt的后宫之争尘埃落定了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 5889#       发表于 2020-6-3 07:59
+
+
+
+
+龙皇那个影响直播环境的暴躁老爹其实是因为龙皇粉丝大涨而心态失衡的男友，现在冷战龙皇搬出去住还要找个小姐妹自证清白。 这样的可能性微存。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5890#       发表于 2020-6-3 08:01
+
+
+
+
+なぁ、マクドナルドの許可取った？
+
+<img src="https://img.saraba1st.com/forum/202006/03/075909eckgucyyc395k6gc.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-03 075832.png</strong> (604.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 07:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5891#       发表于 2020-6-3 08:04
+
+
+
+
+是我太甜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5892#       发表于 2020-6-3 08:06
+
+
+
+
+总觉得最近colodes老哥巨魔度急速上升了，是我的错觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前还觉得挺纯良的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5893#       发表于 2020-6-3 08:07
+
+
+
+
+colo哥压不住了，害怕。
+
+
+
+
+
+   
