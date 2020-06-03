@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 00:12** 
+> ## **本文件最后更新于2020-06-04 02:10** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_W2Wzm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_itDW4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7282,7 +7282,7 @@ E7联动绊爱..
 
 
 好清纯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_pd79N" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_aJyF7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Seic_Oh/status/1268124992304107520](https://twitter.com/Seic_Oh/status/1268124992304107520)
 
 
@@ -10474,10 +10474,11 @@ holo穷只能先靠非法收入和非法数字过日子啊，总比没有收入�
 
 
 
- 参与人数 5战斗力 +6
+ 参与人数 6战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 攻心为上木之本| + 1|好评加鹅|
 | InvisibleP| + 1|欢乐多|
 | argaregeasr| + 1|欢乐多|
 | Suny08| + 1|欢乐多|
@@ -13097,10 +13098,11 @@ syl</blockquote>
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 金魚佬| + 1|很好，但房间会有蟑螂的|
 | argaregeasr| + 1|思路广|
 | 魔法使い2019| + 1|233|
 | 兔耳僵尸| + 1|多写点XD|
@@ -13179,7 +13181,7 @@ noripro家那边的这两天已经把任地狱相关的所有视频清除干净�
 <img src="https://img.saraba1st.com/forum/202006/03/214716m6uss6xwc3dwuxlx.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-06-03 214221.png</strong> (1.84 MB, 下载次数: 1)
+<strong>批注 2020-06-03 214221.png</strong> (1.84 MB, 下载次数: 2)
 
 下载附件
 
@@ -14139,10 +14141,11 @@ QQ截图20200603221741.png
 
 
 
- 参与人数 12战斗力 +13
+ 参与人数 13战斗力 +14
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Medling| + 1|好评加鹅|
 | InvisibleP| + 1|思路广|
 | minamichisei| + 1|欢乐多|
 | argaregeasr| + 1|欢乐多|
@@ -17012,6 +17015,25 @@ BSYL：熊猫人歌回卫星上天，看来能播任任她是真的很开心。<
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17102,4 +17124,608 @@ BSYL：熊猫人歌回卫星上天，看来能播任任她是真的很开心。<
 
 
 
-                    
+
+
+-----
+
+####  掉头学姐  
+##### 6896#       发表于 2020-6-4 00:13
+
+
+
+
+怎么这么多百合豚，真是给跪了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6897#       发表于 2020-6-4 00:13
+
+
+
+
+星街一边apex一边maroon 5，英语特攻选选歌sense也是一级棒。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6898#       发表于 2020-6-4 00:17
+
+
+
+
+silent majority
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6899#       发表于 2020-6-4 00:18
+
+
+
+
+阿龙是真的会赚钱，能想到的赚钱数据没一项弱的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都已经超过养gachi的范围了。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6900#       发表于 2020-6-4 00:19
+
+
+
+
+养gachi 👉 宗教
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 6901#       发表于 2020-6-4 00:21
+
+
+
+
+我只能说阿龙很懂观众，知道怎么让观众掏钱
+
+草，为啥感觉有点巨魔化了，阿龙是我唯一主推啊，v综让人变成魔鬼
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 6902#       发表于 2020-6-4 00:26
+
+
+
+
+只要打几万日元就好像自己买了房一样快乐，太赚了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6903#       发表于 2020-6-4 00:26
+
+
+
+
+然后龙宝摸掉了今天的ascc，下午的安排倒是很满。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6904#       发表于 2020-6-4 00:27
+
+
+
+
+你们老要粽子开养gachi班，我看叫阿龙开脑控班更有用一点，不过那就真成非法组织了。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6905#       发表于 2020-6-4 00:30
+
+
+
+
+粽子已经不如小天使能养gachi了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6906#       发表于 2020-6-4 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669257&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 00:30</a>
+
+粽子已经不如小天使能养gachi了。</blockquote>
+有阿龙的悉心指导，这已经是必然发生的事了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zpbzpb123123  
+##### 6907#       发表于 2020-6-4 00:32
+
+
+
+
+【#にじさんじSEEDs1期生出身】Paintër【2周年記念/歌ってみた】
+[https://www.youtube.com/watch?v=bay4TC0iQZ0&amp;feature=youtu.be](https://www.youtube.com/watch?v=bay4TC0iQZ0&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 6908#       发表于 2020-6-4 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669063&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-4 00:06</a>
+
+不能播任任：
+
+会限骂运营，消极怠工，传言要跑路
+
+能播任任：</blockquote>
+想想PST时代就是专精任任
+
+熊猫人也是不能播任到毕业
+
+怕不真是任性恋了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6909#       发表于 2020-6-4 00:34
+
+
+
+
+龙宝那套小天使还没学会，现在应该还在凭天赋作战的程度。搞错待机间这一出，要是天龙角色互换的话应该就收不到这笔钱了（笑）
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6910#       发表于 2020-6-4 00:35
+
+
+
+
+版权大棒加四期同居密码，本三期信杞忧了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6911#       发表于 2020-6-4 00:37
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/003655hhjshszin40nkho0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-a8dlZfT3cSsg-k5.jpg</strong> (154.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 00:36 上传
+
+
+
+
+
+
+隔壁看到张不错的图，转一下。手机不知道质量怎么样，不行就白天再改了。
+[https://twitter.com/Itumade3/status/1268103778269462528](https://twitter.com/Itumade3/status/1268103778269462528)
+
+
+
+
+
+
+
+-----
+
+####  usodakedo  
+##### 6912#       发表于 2020-6-4 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47666396&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-06-03 19:41:12</a>
+所以阿道_O和地上最强的搬运O和空OO究竟追求的是什么？
+
+
+让月之忙着参加各种活动——不行，累到自己忘记生 ...</blockquote>我觉得2000你平时口嗨一下我、空派白还有一些以前和你对过线的就算了，连没和你说过话的也要跟着一起喷，就像以前不知道你是不是磕了药突然喷NGA那位和你毫无交集的雪城gachi，还只敢在这口嗨，稍微积点口德吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6913#       发表于 2020-6-4 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669291&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-4 00:35</a>
+
+版权大棒加四期同居密码，本三期信杞忧了</blockquote>
+三期信可以抄同居作业啊
+
+
+该杞忧的是多次背刺百合豚，杀自己gachi杀的飞起的狐皇  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ascending  
+##### 6914#       发表于 2020-6-4 00:51
+
+
+
+
+没事，她有死者苏生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6915#       发表于 2020-6-4 00:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/005221up9a88997o0kuqq8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-iz1qZkT3cSsg-ga.jpg</strong> (202.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 00:52 上传
+
+
+
+
+
+
+
+是不是有什么世界观不一样的人混进去了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6916#       发表于 2020-6-4 00:55
+
+
+
+
+该睡了，明天有大人碳，还有mc地下城，美好的一天。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6917#       发表于 2020-6-4 00:58
+
+
+
+<blockquote>ひびき 发表于 2020-6-4 00:43
+三期信可以抄同居作业啊
+
+
+该杞忧的是多次背刺百合豚，杀自己gachi杀的飞起的狐皇   ...</blockquote>
+狐狸毕竟梦女子形象已深入人心，虽然fbumio还挺真但是也只有亲友感了。
+
+
+说起百合想起只看直播来说其实船长是蕾丝度最高的，经常提以前自己上学时喜欢过的女人，但是船长本身和别人联动贴贴感很低，相性好更多也是损友感。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6918#       发表于 2020-6-4 01:00
+
+
+
+
+三期要吸引白河豚还是靠银火，其他人都不行的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6919#       发表于 2020-6-4 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669438&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-4 01:00</a>
+
+三期要吸引白河豚还是靠银火，其他人都不行的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">说起来要不是摸余那么摸。。。。摸余486本来也是T1的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6920#       发表于 2020-6-4 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669510&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-4 01:14</a>
+
+说起来要不是摸余那么摸。。。。摸余486本来也是T1的</blockquote>
+这俩都不一定想营业啊。关系好是一回事，贴贴营业是另一回事。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6921#       发表于 2020-6-4 01:26
+
+
+
+
+这璐娜怎么还在弹琴。。。。。不早就15W了么！
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 6922#       发表于 2020-6-4 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669291&amp;ptid=1938145" target="_blank">空集 发表于 2020-06-04 00:35:19</a>
+版权大棒加四期同居密码，本三期信杞忧了</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三期有什么好鸡油的，粽子不是游戏势，旱涝包收，银火早就同居过了，船长人脉广，东方是唯一神钦点更不怕版权，就说peko也能找miko这T0卡组
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6923#       发表于 2020-6-4 01:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">贴贴怎么能没有猫狗呢
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6924#       发表于 2020-6-4 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669569&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-4 01:27</a>
+
+贴贴怎么能没有猫狗呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">其实猫狗咱最喜欢看的是486过来NTR的部分。比如上次阿汤哥生日那个
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6925#       发表于 2020-6-4 01:31
+
+
+
+
+猫狗一直有夏吹批判点之一的年龄差太大的情况，不过倒没体现出代沟问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6926#       发表于 2020-6-4 01:31
+
+
+
+
+仔细想想你还推荐过486fubumio三角....你只是喜欢看486抢人吧
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6927#       发表于 2020-6-4 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669585&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-4 01:31</a>
+
+仔细想想你还推荐过486fubumio三角....你只是喜欢看486抢人吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那会咱说的可是爸妈和孩子，不算
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6928#       发表于 2020-6-4 01:46
+
+
+
+
+大家cp搞起来，银火船粽pekomiko，营业也可以真的更可以，让看不起独角兽和百合豚的狐皇玩蛋去吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                   
