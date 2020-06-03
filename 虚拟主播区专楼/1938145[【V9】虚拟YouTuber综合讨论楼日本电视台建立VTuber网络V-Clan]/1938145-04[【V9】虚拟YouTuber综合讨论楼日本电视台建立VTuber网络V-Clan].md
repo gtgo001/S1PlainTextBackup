@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 08:11** 
+> ## **本文件最后更新于2020-06-03 10:09** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_A0qOO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_a3eAc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10527,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_E84X6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_Jz03Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13840,7 +13840,7 @@ mildom是斗鱼开的？
 
 
 
-<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_LfBnB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_Cee8e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26567,4 +26567,1023 @@ colo哥压不住了，害怕。
 
 
 
-   
+
+
+-----
+
+####  bluebaby  
+##### 5894#       发表于 2020-6-3 08:14
+
+
+
+
+龙皇要有男友应该是个抖m，龙皇下播后拿鞭子抽两下解压的那种，不会这么嚣张的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5895#       发表于 2020-6-3 08:15
+
+
+
+
+みんな大好きのクリーン企業も終わりだ😭
+
+<img src="https://img.saraba1st.com/forum/202006/03/081308h2npe6oz2yp2etz6.png" referrerpolicy="no-referrer">
+
+
+<strong>75eqCMF.png</strong> (542.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 08:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 5896#       发表于 2020-6-3 08:16
+
+
+
+
+别的不知道也不在意，但昨天colod老哥故意把店长和虹男的数字放一起我就感觉不对劲了
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 5897#       发表于 2020-6-3 08:24
+
+
+
+
+colo有當年日語哥的內味了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5898#       发表于 2020-6-3 08:27
+
+
+
+
+你楼把人逼成巨魔
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5899#       发表于 2020-6-3 08:28
+
+
+
+
+瓦罗兰特这第二天数字就已经和lol的数字一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道这帮虹男会顶着这debuff玩多久
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 5900#       发表于 2020-6-3 08:30
+
+
+
+
+我相信colo老哥在用無斷轉載的方式yygq任天堂，本意是想守护Vjuan<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5901#       发表于 2020-6-3 08:34
+
+
+
+
+草
+
+<img src="https://img.saraba1st.com/forum/202006/03/082850zo9i9io29zlcmrzm.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-03 082724.png</strong> (38.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 08:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/083331wb1zkse0sz19149z.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-03 082936.png</strong> (382.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 08:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5902#       发表于 2020-6-3 08:34
+
+
+
+
+yysy，金鱼佬每次用蕉哥哥的头像yygq的时候总觉得有点带感
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5903#       发表于 2020-6-3 08:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47658467&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-3 08:34</a>
+草</blockquote>
+这两图看不懂，打棒球的为什么扯上了广告收益的事
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5904#       发表于 2020-6-3 08:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47658527&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-3 08:41</a>
+这两图看不懂，打棒球的为什么扯上了广告收益的事</blockquote>
+捏造来骗回复的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bluebaby| + 1|这么生草的吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 5905#       发表于 2020-6-3 08:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">宫姨投票辐射 3 4跟新维加斯新维加斯目前领先
+
+真正的神
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 5906#       发表于 2020-6-3 08:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">瓦蓝洛特观感差APEX不少，有没有十年拳头信来告诉我有啥好看的。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5907#       发表于 2020-6-3 08:55
+
+
+
+ 本帖最后由 stedckk 于 2020-6-3 08:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">天龙真的要同居了？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是colod老哥养gachi的成果吗？怎么这么多人觉得他纯良的，只要见证过colod在v综初出茅庐的人应该不会有这种感觉吧？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5908#       发表于 2020-6-3 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47658659&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-3 08:55</a>
+天龙真的要同居了？</blockquote>
+这要是整活我就点踩
+<img src="https://p.sda1.dev/0/a01fd1c488c239bcf04df3fa7b76a757/IMG_04683BF6BF8F858D6B7C1BDEB4E6963C.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 5909#       发表于 2020-6-3 08:59
+
+
+
+
+twitch上拳头新fps当初挂直播能拿测试资格，所以机器人冲了一波虚高的人气，后来一波暴跌到原来的五分之一。现在这波明显是在日本的推广期，严重不看好后续。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 5910#       发表于 2020-6-3 09:02
+
+
+
+
+V能改变营业风格楼友也可以
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5911#       发表于 2020-6-3 09:06
+
+
+
+
+我家紫宝参加了瓦罗兰β测试，号是怎么来的呢<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+あっ<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 5912#       发表于 2020-6-3 09:07
+
+
+
+
+我记得当初还有人问cold老哥为什么变纯良了，这就是人类的健忘吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5913#       发表于 2020-6-3 09:13
+
+
+
+
+小天使这边拿出这个话题杂谈的话应该是有一定进展了，纯整活可能性不大。
+
+不过要处理的麻烦事还挺多，尤其是小天使还养了宠物，希望不是一时冲动，能处理好各种。
+
+看看晚上怎么说了。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5914#       发表于 2020-6-3 09:17
+
+
+
+
+我对colo哥的认知就是把5ch的p图转过来，让楼友发散批判。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5915#       发表于 2020-6-3 09:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏被任天堂暴击，colod老哥对杏的巨魔度就上升，回想一下colod老哥在v综出现的时候刚好是四期生出道，他那段时期一直在黑屁小天使。
+
+所以colod老哥其实是铁血杏仁吗？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5916#       发表于 2020-6-3 09:18
+
+
+
+
+クリーン、安心、安全に推しを応援できる箱
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5917#       发表于 2020-6-3 09:20
+
+
+
+
+草，你楼的铁血x人是不是都用黑来守护啊，只要我主动去黑她别人就不会黑她了的套路既视感极重
+
+巨魔gachi也忒扭曲了吧
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5918#       发表于 2020-6-3 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47658862&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-3 09:17</a>
+
+我对colo哥的认知就是把5ch的p图转过来，让楼友发散批判。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/03/092039vv00a0bf5r9bx092.png" referrerpolicy="no-referrer">
+
+
+<strong>IAQ@G_OV@RJ`WPM4KYJ_I]1.png</strong> (43.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 09:20 上传
+
+
+
+
+
+
+
+给二二姐一张colod老哥初期发言图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5919#       发表于 2020-6-3 09:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47658930&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-3 09:21</a>
+
+给二二姐一张colod老哥初期发言图</blockquote>
+v综，你把人变成什么样了！.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5920#       发表于 2020-6-3 09:24
+
+
+
+
+狗皇掏出辐射了
+
+米国核爆准备中
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5921#       发表于 2020-6-3 09:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657281&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-3 01:32</a>
+
+为什么35是老模型</blockquote>
+……有一大部分成员手上没有miko的新立绘
+
+按道理说应该是多少给了立绘图了 但是为什么不用 或者说忘了 或者说不在意 或者说手上没有但是不好意思要
+
+主要是本人自己也不在意旧立绘新立绘 就这么凑合了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5922#       发表于 2020-6-3 09:25
+
+
+
+
+你截图里的Tio倒是个crew，至于colo哥藏得太深了，我无法认知。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 5923#       发表于 2020-6-3 09:29
+
+
+
+
+黑屁杏的杏人不就成2000上位替代了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5924#       发表于 2020-6-3 09:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别吧，colod老哥可没有人人喊打，拿他跟2000比较不合适。
+
+其实colod老哥更加多的是冷无缺，他的黑屁不会让人有很大的不适感，有时候看了反而想笑。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5925#       发表于 2020-6-3 09:33
+
+
+
+ 本帖最后由 stedckk 于 2020-6-3 09:36 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5926#       发表于 2020-6-3 09:34
+
+
+
+
+也可能是下位替代
+
+因为可能没有ex
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5927#       发表于 2020-6-3 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659063&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-3 09:33</a>
+别吧，colod老哥可没有人人喊打，拿他跟2000比较不合适。
+
+其实colod老哥更加多的是冷无缺，他的黑屁 ...</blockquote>
+你又风怒，又保存colo初期发言，你就是被养的gachi吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5928#       发表于 2020-6-3 09:35
+
+
+
+
+有ex就可以做上位替代了吗？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5929#       发表于 2020-6-3 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659073&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-3 09:35</a>
+
+你又风怒，又保存colo初期发言，你就是被养的gachi吗
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Nex ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我不是我没有，刚截的图啊已经删掉了，colod老哥gachi请认准尾宝。
+
+
+
+
+
+
+
+-----
+
+####  manwomans  
+##### 5930#       发表于 2020-6-3 09:38
+
+
+
+
+喷了，狗皇要玩辐射，爱了爱了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5931#       发表于 2020-6-3 09:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 我在colo上面吗？
+
+
+这种说法还挺se的，<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5932#       发表于 2020-6-3 09:40
+
+
+
+
+2000发情期。
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 5933#       发表于 2020-6-3 09:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">考虑到新维加斯在日本玩家中的口碑是三作里最低，宫姐这海外视听者比例高的吓人啊
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 5934#       发表于 2020-6-3 09:44
+
+
+
+
+2000colo贴贴？！
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5935#       发表于 2020-6-3 09:45
+
+
+
+
+坏起来了，gay综回来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5936#       发表于 2020-6-3 09:45
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-3 09:47 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/094443l00ps0c33ggfeg93.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获.PNG</strong> (16.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 09:44 上传
+
+
+
+
+
+
+很快就能看到管人金油是管人不行还是管人观众不行了
+
+看好管人观众
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5937#       发表于 2020-6-3 09:47
+
+
+
+
+2000的黑屁不是更好笑吗
+
+韩国我看一次笑一次
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 5938#       发表于 2020-6-3 09:49
+
+
+
+
+日本玩家的口味捉摸不透，辐射4一个半成品能比维加斯口碑好就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 5939#       发表于 2020-6-3 09:51
+
+
+
+
+不是因为辐射4有二次元种族mod？还是日本人就喜欢家园系统
+
+syl，colo拯救了v综浓度，他弄个假新闻，就会有人出来辟谣加repo
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 5940#       发表于 2020-6-3 09:54
+
+
+
+
+国内照样一大堆辐射四拥趸呢，跟别人说辐射四不行各种论坛，b站，微博都会有人跳出来说“我觉得还可以”呢。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5941#       发表于 2020-6-3 09:56
+
+
+
+
+偶尔插一条假新闻陪养楼友自我思考能力的colo老哥是鉴
+
+
+
+
+
+
+
+-----
+
+####  manwomans  
+##### 5942#       发表于 2020-6-3 09:59
+
+
+
+
+也就还行而已，打枪的底子不错，算是能玩了。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5943#       发表于 2020-6-3 10:00
+
+
+
+
+葵皇整了个马车女子赛的直播间，居然没有sasaki
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 5944#       发表于 2020-6-3 10:01
+
+
+
+
+新维加斯mod也不少啊，不如说应该比4多，当然日本人可能主机平台居多mod都不会整……
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5945#       发表于 2020-6-3 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659291&amp;ptid=1938145" target="_blank">y78348877 发表于 2020-6-3 09:49</a>
+
+日本玩家的口味捉摸不透，辐射4一个半成品能比维加斯口碑好就离谱</blockquote>
+半成品和赶工作大概半斤八两吧
+
+狗皇顶着低同接赶路的样子也许会很狼狈
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 5946#       发表于 2020-6-3 10:06
+
+
+
+[https://youtu.be/VXTZN-06nzo](https://youtu.be/VXTZN-06nzo)
+
+这是今天stars官号发布的一二期生的Blessing合唱的链接，晚七时发布
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5947#       发表于 2020-6-3 10:09
+
+
+
+
+原来v8死了，太好了。
+
+
+
+
+
+ 
