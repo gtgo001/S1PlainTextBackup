@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 18:03** 
+> ## **本文件最后更新于2020-06-03 20:03** 
 
 
 
@@ -23039,4 +23039,75 @@ noe6月14有棉花糖b限，可以去问问怎么被mea拐过来的</blockquote>
 
 
 
-     
+
+
+-----
+
+####  Kayz996  
+##### 10349#       发表于 2020-6-3 18:41
+
+
+
+
+挺好的，有买漫画的欲望了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Oshino57  
+##### 10350#       发表于 2020-6-3 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664181&amp;ptid=1929631" target="_blank">Kayz996 发表于 2020-6-3 16:08</a>
+
+辉夜好看吗，听别人说像旋风管家一样
+
+阿麻要是看过旋风管家就好了</blockquote>
+原作者的构成力和A1的演出完成度都超高，不看亏（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10351#       发表于 2020-6-3 20:02
+
+
+
+
+日语学习相关（？？）：
+可以用textractor + clipboard grabber之类的工具来看视觉小说（visual novel） /galgame 等等
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10352#       发表于 2020-6-3 20:02
+
+
+
+
+话说各组最近停播又是咋回事儿(눈_눈)?
+
+
+
+
+
+    

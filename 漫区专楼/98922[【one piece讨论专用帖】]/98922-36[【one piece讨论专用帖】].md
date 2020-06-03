@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-01 18:01** 
+> ## **本文件最后更新于2020-06-03 20:00** 
 
 
 
@@ -3461,4 +3461,442 @@ Numbers成员hatcha（暂译为“八查”）登场。（他的笑声是【hach
 
 
 
-                                           
+
+
+-----
+
+####  六次方  
+##### 52690#       发表于 2020-6-2 01:07
+
+
+
+
+大妈团这么久还在上瀑布，漂流很好玩吧
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52691#       发表于 2020-6-2 01:44
+
+
+
+
+小马哥来了，不知道还有没有更多援军
+
+
+话说别是阿猫和以藏去帮忙了，小马哥就在这里守尸吧
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52692#       发表于 2020-6-2 03:31
+
+
+
+
+不是，这边的情报看上去也太搞笑了吧
+
+
+
+
+
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 52693#       发表于 2020-6-2 08:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639233&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2020-6-1 17:13</a>
+一举成为皇副级别的路已经铺好了，就看山治你能不能抓住机会了，赶紧去爬瀑布 ...</blockquote>
+原来区区月步是给山治一个机会踢大妈下瀑布<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jokirin  
+##### 52694#       发表于 2020-6-2 09:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大妈团翻船会不会从此成为介绍新人物出场的固定节目：
+
+正义天降！海军驾临和之国：黄猿一脚将大妈团踢下瀑布
+
+最凶四皇！黑胡子堂堂登场：拉斐特一脚将大妈团踢下瀑布
+
+红发赶到！为了曾经的约定：耶稣布一弹弓将大妈团射下瀑布
+
+月球援军！雷电的第11人：艾尼路从月球一发轨道炮将大妈团射下瀑布
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Tomorrow_D| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 52695#       发表于 2020-6-2 09:21
+
+
+
+
+大妈和乔巴这对，让我想起死神小学生m20的酒厂库拉索和少年侦探团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  暗影翔  
+##### 52696#       发表于 2020-6-2 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646292&amp;ptid=98922" target="_blank">jokirin 发表于 2020-6-2 09:07</a>
+大妈团翻船会不会从此成为介绍新人物出场的固定节目：
+
+正义天降！海军驾临和之国：黄猿一脚将大妈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬厉害，被刷过一次的大妈团就是战斗力标杆。那下一个标杆就是凯多团了
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52697#       发表于 2020-6-2 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646292&amp;ptid=98922" target="_blank">jokirin 发表于 2020-06-02 09:07:38</a>
+大妈团翻船会不会从此成为介绍新人物出场的固定节目：
+
+正义天降！海军驾临和之国：黄猿一脚将大妈团踢下瀑 ...</blockquote>皇 副 执 照 考 试
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  拉菲尔神父  
+##### 52698#       发表于 2020-6-2 10:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皇副守门员过于生草
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 52699#       发表于 2020-6-2 10:32
+
+
+
+ 本帖最后由 高数 于 2020-6-2 10:35 编辑 
+
+大妈团突然间变成了标杆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52700#       发表于 2020-6-3 06:18
+
+
+
+<blockquote>Kyo.C 发表于 2020-6-1 17:01
+当年在岛上围剿超新星的时候，面对阿普的攻击如果黄猿不是自然系就栽了?</blockquote>
+大将级别的人只要拉近距离不是摁着阿普揍么，，又不能藏一辈子，不过不知道通过电话虫传声有没有攻击效果
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52701#       发表于 2020-6-3 06:50
+
+
+
+<blockquote>jokirin 发表于 2020-6-2 09:07
+大妈团翻船会不会从此成为介绍新人物出场的固定节目：
+
+正义天降！海军驾临和之国：黄猿一脚将大妈 ...</blockquote>
+闪电11人：飞舞的大妈团
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 52702#       发表于 2020-6-3 07:14
+
+
+
+
+黄猿那次明显是仗着自己自然系对面又不懂霸气看阿普有什么花样而已，认真起来阿普连出招的时间都没有，其他大将同理
+
+
+
+
+
+
+
+-----
+
+####  龙手马弗  
+##### 52703#       发表于 2020-6-3 07:15
+
+
+
+
+大妈团没有大妈没有卡二……原来这么谐的吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 52704#       发表于 2020-6-3 09:20
+
+
+
+
+我本来都下定决心正式漫画出之前不看情报的，但是泥潭op专楼实在是太搞笑了啊喂！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52705#       发表于 2020-6-3 11:00
+
+
+
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=f3a1f16bf2dde711e7d243fe97eecef4/70d7be003af33a87cf934174d15c10385143b5d4.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=a2f69183f01190ef01fb92d7fe1a9df7/13ee32f33a87e95012e9b20207385343f9f2b4d4.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=6a01a13c9235e5dd902ca5d746c7a7f5/933ddd39b6003af31f449d0e222ac65c1238b6d4.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=23fd1357de3d70cf4cfaaa05c8ddd1ba/0abffbdeb48f8c54c82d84412d292df5e2fe7fd4.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=880bd3d8de177f3e1034fc0540ce3bb9/6bf59516fdfaaf51aa1dc0d19b5494eef21f7ad4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  hmhk  
+##### 52706#       发表于 2020-6-3 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47639112&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-06-01 17:03:49</a>
+还有理论上柯拉松的静寂果实完全克制阿普。</blockquote>这么彻底完克的真不多
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52707#       发表于 2020-6-3 12:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47661074&amp;ptid=98922" target="_blank">hmhk 发表于 2020-6-3 11:56</a>
+
+这么彻底完克的真不多
+
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
+但寂静果实也没有任何攻击力（没看出来），某种意义上白板打白板（不过可以给暗杀提高成功率)
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 52708#       发表于 2020-6-3 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47646292&amp;ptid=98922" target="_blank">jokirin 发表于 2020-6-2 09:07</a>
+
+大妈团翻船会不会从此成为介绍新人物出场的固定节目：
+
+正义天降！海军驾临和之国：黄猿一脚将大妈 ...</blockquote>
+one piece就在我身后！最后的敌人：伊姆一出场就把大妈团跟瀑布都踢下去了。
+
+
+
+
+
+
+
+-----
+
+####  hmhk  
+##### 52709#       发表于 2020-6-3 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47661683&amp;ptid=98922" target="_blank">灰狼 发表于 2020-06-03 12:37:13</a>
+但寂静果实也没有任何攻击力（没看出来），某种意义上白板打白板（不过可以给暗杀提高成功率)
+
+ ...</blockquote>睡觉安逸啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52710#       发表于 2020-6-3 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47661683&amp;ptid=98922" target="_blank">灰狼 发表于 2020-06-03 12:37:13</a>
+但寂静果实也没有任何攻击力（没看出来），某种意义上白板打白板（不过可以给暗杀提高成功率)
+
+ ...</blockquote>柯拉松說了，放屁沒聲音……
+真的就除了暗殺、拷問以外好像派不上啥用場。除非開發一下說靜音的極致能力是停止振動……
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  队长是我别开枪  
+##### 52711#       发表于 2020-6-3 14:55
+
+
+
+
+漫画除了贴吧，哪里还有白嫖？
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52712#       发表于 2020-6-3 18:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47662413&amp;ptid=98922" target="_blank">天宮奏 发表于 2020-6-3 13:34</a>
+柯拉松說了，放屁沒聲音……
+真的就除了暗殺、拷問以外好像派不上啥用場。除非開發一下說靜音的極致能力是 ...</blockquote>
+停止振动，那连地震果实也一起克了。<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                          
