@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 08:04** 
+> ## **本文件最后更新于2020-06-03 18:03** 
 
 
 
@@ -22143,4 +22143,900 @@ syl，咩自己屑营业开始就有意在异性cp营业，兔苔也有可能就
 
 
 
-      
+
+
+-----
+
+####  シオン诗音  
+##### 10298#       发表于 2020-6-3 09:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天没来，楼里聊的太发散了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10299#       发表于 2020-6-3 10:48
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-3 11:10 编辑 
+
+最近黄色车车开的有丶多,还是想听她骂我这样的otaku<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+syl,感觉联动前后突击可能会播什么的也好久没看到了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10300#       发表于 2020-6-3 11:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10301#       发表于 2020-6-3 12:24
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-3 12:51 编辑 
+
+同好会踢馆了呀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+       
+
+“官组，我给你一星期时间，这活一周整不出来就不要整了，官组赶不上的时效性我同好会来赶，官组烤不出来的肉我来烤，先斩后奏，海盗特许，这，就是同好会”
+
+就是苦了我等流量民<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10302#       发表于 2020-6-3 12:24
+
+
+
+ 本帖最后由 A2014720 于 2020-6-3 12:43 编辑 
+
+公审熟肉居然是同好会发出来了
+
+这是官组和海盗商量的结果吗，我个人更希望官组出这一回的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10303#       发表于 2020-6-3 13:04
+
+
+
+
+之前艾特拟态虫的推特不也没复刻，保守也许不一定是好事但至少在一定程度内不是坏事（0202年都快过了一半了怎么害有流量民的？mea自己平时的一大堆不考虑流量的做法还没把流量民全杀光🐎？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10304#       发表于 2020-6-3 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">流量民也是事业民，也该死
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10305#       发表于 2020-6-3 13:30
+
+
+
+
+虽然都说要摘掉冲国女王的帽子，但大家实际上都很想继续做冲国女王的粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10306#       发表于 2020-6-3 13:30
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10307#       发表于 2020-6-3 13:39
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-3 13:44 编辑 
+
+之前睡着错过了一直没补，还挺纳闷这样的直播会怎么神回的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回看了这反应是挺有意思，有最早那会看的18年熟肉内味了
+
+还有话说5ch和2ch的区别是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但看了v才知道5ch和2ch，感觉这俩找起来好像也区别不大啊
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 10308#       发表于 2020-6-3 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47662471&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-3 13:39</a>
+之前睡着错过了一直没补，还挺纳闷这样的直播会怎么神回的这回看了这反应是挺有意思，有最早那会看 ...</blockquote>
+17年改名的
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10309#       发表于 2020-6-3 14:14
+
+
+
+
+咩今年这么努力，偶尔忍不住做事业民也正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">主要是觉得官组发能让更多人看到给更多人提个醒罢
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 10310#       发表于 2020-6-3 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47662084&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-3 13:04</a>
+之前艾特拟态虫的推特不也没复刻，保守也许不一定是好事但至少在一定程度内不是坏事（0202年都快过了一半了 ...</blockquote>
+说到底还是双标，mea做错了都无视，只会meameasuki，粉丝做了点事就吹毛求疵盯着人喷
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 10311#       发表于 2020-6-3 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47662957&amp;ptid=1929631" target="_blank">两只狗狗 发表于 2020-6-3 14:24</a>
+说到底还是双标，mea做错了都无视，只会meameasuki，粉丝做了点事就吹毛求疵盯着人喷 ...</blockquote>
+恕我直言，就我看到的s1楼友，有一个算一个，都比mea傻。
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10312#       发表于 2020-6-3 14:30
+
+
+
+
+小博🐟你还是乱趴吧，理克中不太适合你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10313#       发表于 2020-6-3 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47662760&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-6-3 14:08</a>
+17年改名的
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+原来只是改名吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10314#       发表于 2020-6-3 14:53
+
+
+
+ 本帖最后由 路人子 于 2020-6-3 14:57 编辑 
+
+之前因为管理层纠 纷导致的改名，当时也是闹的沸沸扬扬<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+syl，今天mea被辉夜作者找上门了不知道会不会直播聊一聊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10315#       发表于 2020-6-3 14:56
+
+
+
+
+召唤pro哥，昨天苔苔又说了咩什么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10316#       发表于 2020-6-3 15:07
+
+
+
+
+唉，私心还是有点不想让这回的肉烤出来的，太容易被断章取义带节奏<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">可能也是我想多了（指没这回熟肉也天天被带节奏）
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  两只狗狗  
+##### 10317#       发表于 2020-6-3 15:38
+
+
+
+
+看了下隔壁，有点理解咩咩了，夸夸昨晚练了舞蹈，就累到不想直播，咩咩天天晚上这么辛苦，不想直播才正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不能对咩咩太苛刻<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10318#       发表于 2020-6-3 15:54
+
+
+
+
+我要为流量民正名，流量民不等同于事业民，事业民本质是积极向的数字厨，具象化的各种数字提升会对其造成直接影响，而流量民更多的则偏向更加虚无的所谓热度，无所谓正面负面，再虚幻一点的说法就是所谓的“势”，和斗虫还是很大区别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 10319#       发表于 2020-6-3 16:04
+
+
+
+
+辉夜动画没看，这两天出差倒是在看漫画
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 10320#       发表于 2020-6-3 16:08
+
+
+
+
+辉夜好看吗，听别人说像旋风管家一样
+阿麻要是看过旋风管家就好了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10321#       发表于 2020-6-3 16:10
+
+
+
+
+官组之前那个和露娜约会的烤肉，里面咩的ID不也是玩了这个梗么，被原作者找上门也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10322#       发表于 2020-6-3 16:11
+
+
+
+
+好看，很好看。之前我还说她云，现在看来说不定真的看过
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10323#       发表于 2020-6-3 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">咦这次没人一换一也进去了，好起来了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10324#       发表于 2020-6-3 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664181&amp;ptid=1929631" target="_blank">Kayz996 发表于 2020-6-3 16:08</a>
+辉夜好看吗，听别人说像旋风管家一样
+阿麻要是看过旋风管家就好了</blockquote>
+个人来说比旋风管家好多了，情节搞笑都很有新意，不像管家就是常规搞笑
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10325#       发表于 2020-6-3 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664273&amp;ptid=1929631" target="_blank">physi1202 发表于 2020-6-3 16:15</a>
+咦这次没人一换一也进去了，好起来了</blockquote>
+我还以为大家都屏蔽了呢，就我一个人看表演
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10326#       发表于 2020-6-3 16:21
+
+
+
+
+有人被【瞎举报】了啊
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 10327#       发表于 2020-6-3 16:24
+
+
+
+
+烈士老哥<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10328#       发表于 2020-6-3 16:28
+
+
+
+
+怪起来了，我之前也点过举报，怎么没有瞎举报进去（看来点的不够多，以后多点点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+syl，流量民实在是懒得车轱辘了，就拿今天这白送的辉夜作者热度来说，非要你咩姐立刻开一个直播“我竟然被辉夜作者找上门啦麻吉？！！！”猛蹭一手热度流量民才安心吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10329#       发表于 2020-6-3 16:30
+
+
+
+
+辉夜好看的，可以补一下，体会一下yhm的少女心（真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10330#       发表于 2020-6-3 16:35
+
+
+
+
+少女心没感受到，只感受到了沙雕心
+
+
+辉夜第一季看了前六话觉得差点味儿就没接着看了（也许等第二季播完了会回头补一补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10331#       发表于 2020-6-3 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664514&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-3 16:35</a>
+少女心没感受到，只感受到了沙雕心
+
+
+辉夜第一季看了前六话觉得差点味儿就没接着看了（也许等第二季播完了会 ...</blockquote>
+渐入佳境
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10332#       发表于 2020-6-3 16:42
+
+
+
+
+老实说看隔壁VR的瓜，想到以前mea说的粉丝骚扰。大概吧VR的骚扰X10就是mea平时能收到的私信了，想想看她居然没有疯还坚强的活着，其实有点佩服。个人势真不是人干的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10333#       发表于 2020-6-3 16:45
+
+
+
+
+官组之前已经烤了一个和苔姨的深夜贪心，我以为这次公审也会是官组烤<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+syl，关于吃黑泥，额…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10334#       发表于 2020-6-3 16:56
+
+
+
+
+好吧据称官组已经有人剪了但还没烤出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+到底是国内主播被骚扰的多还是国外被骚扰的多这个大概没办法评价，不过他们都比台下的观众受到的骚扰多是真的就是
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 10335#       发表于 2020-6-3 16:56
+
+
+
+
+你咩姐不是说现在黑泥是有人代吃的么
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10336#       发表于 2020-6-3 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就算有人代吃了，她自己跑上去瞅一眼不也算是自己也吃了么
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10337#       发表于 2020-6-3 17:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47663323&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-6-3 14:56</a>
+
+召唤pro哥，昨天苔苔又说了咩什么
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+啊？海苔男昨天没有开tc啊，有说什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+如果是翔哥联动的话，mea只是负责给了个想抱（意味深）的话玩什么play的梗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10338#       发表于 2020-6-3 17:30
+
+
+
+
+noe6月14有棉花糖b限，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以去问问怎么被mea拐过来的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10339#       发表于 2020-6-3 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664964&amp;ptid=1929631" target="_blank">proxima 发表于 2020-6-3 17:14</a>
+啊？海苔男昨天没有开tc啊，有说什么吗
+
+如果是翔哥联动的话，mea只是负责给了个想抱（意味深）的 ...</blockquote>
+谢谢pro哥
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10340#       发表于 2020-6-3 17:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">小紫当然是被小绿勾引来的
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10341#       发表于 2020-6-3 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665139&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-3 17:30</a>
+
+noe6月14有棉花糖b限，可以去问问怎么被mea拐过来的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了吧，这俩是真不熟
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10342#       发表于 2020-6-3 17:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665273&amp;ptid=1929631" target="_blank">JY要塞 发表于 2020-6-3 17:44</a>
+算了吧，这俩是真不熟</blockquote>
+正因为不熟才适合问啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟的话不就一句话带过了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10343#       发表于 2020-6-3 17:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">问就是咩咩被小绿胁迫了
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">拿着咩咩不可告人的秘密威胁她做这做那
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">咩咩好惨
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10344#       发表于 2020-6-3 17:53
+
+
+
+
+拒绝挂件行为
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10345#       发表于 2020-6-3 17:57
+
+
+
+
+女人动了,今晚会不会播<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10346#       发表于 2020-6-3 17:58
+
+
+
+
+她蹭了，她蹭了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+下一步就是主流进出<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10347#       发表于 2020-6-3 18:01
+
+
+
+
+下一步，vtuber神乐mea引退，漫画家卡古拉妹啊出道
+《神乐大小姐想要告白》绝赞预售中
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10348#       发表于 2020-6-3 18:02
+
+
+
+
+这是把苔苔的路倒过来走吗（
+
+
+
+
+
+     

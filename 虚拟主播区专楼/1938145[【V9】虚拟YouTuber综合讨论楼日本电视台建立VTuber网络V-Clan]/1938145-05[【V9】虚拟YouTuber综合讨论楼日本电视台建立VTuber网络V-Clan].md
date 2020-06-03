@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 16:10** 
+> ## **本文件最后更新于2020-06-03 18:08** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_UEfsf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_CP2hV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -1795,6 +1795,25 @@ yagoo应该已经安排肥希去健身了，瘦20斤微整一下不是吊打？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|受到了惊吓|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -2011,7 +2030,7 @@ yagoo应该已经安排肥希去健身了，瘦20斤微整一下不是吊打？
 <img src="https://img.saraba1st.com/forum/202006/03/123735evlb04z0yabsv2xv.jpg" referrerpolicy="no-referrer">
 
 
-<strong>xTK1iSc.jpg</strong> (143.29 KB, 下载次数: 1)
+<strong>xTK1iSc.jpg</strong> (143.29 KB, 下载次数: 2)
 
 下载附件
 
@@ -2165,9 +2184,9 @@ yagoo应该已经安排肥希去健身了，瘦20斤微整一下不是吊打？
 
 
 
+ 本帖最后由 SuntoryNomu 于 2020-6-3 16:36 编辑 
 
 bsyl，洗洗眼吧
-
 
 <img src="https://img.saraba1st.com/forum/202006/03/124339wgrr7rgggrhrrri7.jpg" referrerpolicy="no-referrer">
 
@@ -2199,6 +2218,7 @@ bsyl，洗洗眼吧
 
 
 [https://twitter.com/zonumoto/status/1267578816718704641](https://twitter.com/zonumoto/status/1267578816718704641)
+
 
 
 
@@ -3186,6 +3206,25 @@ anitubeで好きなアニメ見て
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -3261,10 +3300,11 @@ slee直播的时候问了西西是谁会被开除虹籍吗？</blockquote>
 
 
 
- 参与人数 2战斗力 0
+ 参与人数 3战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1|思路广|
 | colodes| + 1|好好想想底线啊，底线|
 | star_platinum|-1|基德基德|
 
@@ -4109,10 +4149,11 @@ slee这选人好tm怪啊，感觉颜值也就比一般人高那么一点<img src
 
 
 
- 参与人数 2战斗力 +3
+ 参与人数 3战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|欢乐多|
 | 激光2000| + 2||
 | 北山玖公| + 1|欢乐多|
 
@@ -5235,6 +5276,7 @@ LOL，based<img src="https://static.saraba1st.com/image/smiley/face2017/065.png"
 
 
 
+ 本帖最后由 UnhappyTails 于 2020-6-3 16:12 编辑 
 
 说到底slee到底是个什么玩意儿。
 
@@ -5245,16 +5287,17 @@ LOL，based<img src="https://static.saraba1st.com/image/smiley/face2017/065.png"
 如果是主播团队，那就拿出主播的样子来，上油管找找大物生主，让田角出面去拉人来引流，好好想想办法搞几个优质neta，找准直播路线。
 
 
-田角就是想主流进出想疯了心，觉得套皮这行干不长久，所以想破头也要搞真人，可是搞真人不是简单难度啊，搞真人比起套皮更加地狱啊。凭ickr和田角的水准，阅历和人脉，到底凭什么有自信觉得自己能在油管上搞什么偶像企划？你到底是觉得sr是假的还是uumm是假的？油管主怎么搞线下握手会怎么开live怎么搞团番怎么宣曲怎么发歌怎么搞粉丝经济附加值田角真的考虑过嘛？你是准备拿油管百万点击怒草圈榜百万销量吧。
+田角就是想主流进出想疯了心，觉得套皮这行干不长久，所以想破头也要搞真人，可是搞真人不是简单难度啊，搞真人比起套皮更加地狱啊。凭ickr和田角的水准，阅历和人脉，到底凭什么有自信觉得自己能在油管上搞什么偶像企划？你到底是觉得sr是假的还是uumm是假的？做一个只剩nogiobi的乃团还用得着你？油管主怎么搞线下握手会怎么开live怎么搞团番怎么宣曲怎么发歌怎么搞粉丝经济附加值田角真的考虑过嘛？你是准备拿油管百万点击怒草圈榜百万销量吧。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+何况2434本身就不是偶像企划，更和你juan的偶像企划箱分庭抗礼，现在你一个团队领袖直接拿虹人打的钱去搞三次元的偶像企划，一次性把虹人的观众性，宅属性和对自由配信的偏好都得罪了。真应了那句话虹人不转anti就不错了，还来给你做天使用户？你当天使都和凛子小姐营业的那么样吗？
 
 
-何况2434本身就不是偶像企划，更和你juan的偶像企划箱分庭抗礼，现在你一个团队领袖直接拿虹人打的钱去搞三次元的偶像企划，一次性把虹人的主播观众性，绘畜生宅属性都得罪了，真应了那句话虹人不转anti就不错了，还来给你做天使用户？你当天使都和凛子小姐营业的那么样吗？
-
-
-定位模糊，品牌影响力无用武之地，行业竞争激烈，而田角就准备拿着三四月拿到的那笔钱把这炉灶开起来了咯？
+定位模糊，品牌影响力无用武之地，行业竞争激烈，而田角就准备拿着三四月拿到的那笔钱把这炉灶开起来了咯？我都懒得再说一遍竞品和纯的上位替代有多少，我求求你先把运营和箱给建好了，别到时候成了日本vr了。
 
 
 那我就静候slee和司隶校尉iwa的佳音了，只是可怜了妹子。
+
+对了，还可怜了索爹便宜卖给他的曲库里的歌。
 
 
 syl
@@ -5264,5 +5307,1734 @@ syl
 
 
 
+﹍﹍﹍
 
-                                        
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuandi0120| + 2|1鹅我的 1鹅本蔡的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 6280#       发表于 2020-6-3 16:13
+
+
+
+
+这是vtb版啊，你居然为了几个不套皮的写作文？？<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 6281#       发表于 2020-6-3 16:14
+
+
+
+
+太长不看
+
+
+lagusa陛下降临他忠诚的召唤师峡谷
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6282#       发表于 2020-6-3 16:16
+
+
+
+
+玩综艺武士道不是吊着他田角锤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 6283#       发表于 2020-6-3 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664159&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-3 16:07</a>
+说到底slee到底是个什么玩意儿。
+
+
+如果是偶像那就应该拿出偶像的样子来，线上的也要搞点有偶像气息的宣言， ...</blockquote>
+推荐转SLEE专楼，过个三个月顶起来看看尾巴哥说对了多少
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6284#       发表于 2020-6-3 16:19
+
+
+
+
+这是田角的一小步，却是套皮主播的一大步<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+ichikara走向大众，就从今天开始！
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 6285#       发表于 2020-6-3 16:19
+
+
+
+ 本帖最后由 cckuku 于 2020-6-3 16:21 编辑 
+
+害，我觉得你楼喷那么狠的主要原因就是:人都tm长的不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+田角要能找四个青春靓丽美少女来，我立刻叛变vtb<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 6286#       发表于 2020-6-3 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664322&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-3 16:19</a>
+
+这是田角的一小步，却是套皮主播的一大步
+
+ichikara走向大众，就从今天开始！ ...</blockquote>
+你再读一下你第一行的后半句
+
+什么主播？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 6287#       发表于 2020-6-3 16:22
+
+
+
+
+美少女还用得着来slee这个草台班子企划？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 6288#       发表于 2020-6-3 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664114&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-3 16:04</a>
+
+葛皇rnb</blockquote>
+45踩就这？
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6289#       发表于 2020-6-3 16:22
+
+
+
+
+照你们这么说，地下偶像都没有美女了？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6290#       发表于 2020-6-3 16:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 你们真的要求太高了，
+
+
+这几个妹子狗妈、鲨皇、一果滤镜拉满，也是美少女
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 6291#       发表于 2020-6-3 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664369&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-3 16:22</a>
+
+照你们这么说，地下偶像都没有美女了？
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+那凛子小姐<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 6292#       发表于 2020-6-3 16:24
+
+
+
+
+フワちゃん（[https://www.youtube.com/channel/UC1B51m7HSWGpm_qDDgoIeqA/videos](https://www.youtube.com/channel/UC1B51m7HSWGpm_qDDgoIeqA/videos)），油管60万订阅大物，上了挺多综艺番组，不走偶像路线，做一些生活类小视频。
+
+走这个路线的话，颜需要的就不多，但是受众就基本上蹭不到虹这边的了。而且还得豁得出去...
+
+说这位主要是觉得和左二那位长得有点像。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6293#       发表于 2020-6-3 16:24
+
+
+
+
+奶油也算地下偶像吧
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6294#       发表于 2020-6-3 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这还套皮主播，妖怪套画皮？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6295#       发表于 2020-6-3 16:26
+
+
+
+
+怎么套皮女主播这么多地下爱抖露的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6296#       发表于 2020-6-3 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们对阿夸有什么奇怪的期待吗？就我看了塔露出部分，除了很白以外貌似没别的了，哦还有肉很软。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6297#       发表于 2020-6-3 16:28
+
+
+
+
+你们觉得左二可爱还是凛子可爱<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 6298#       发表于 2020-6-3 16:28
+
+
+
+
+我对阿夸没什么期待，但是我看2000这几天的发言，感觉他对erer姐贵有非常大的期待<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6299#       发表于 2020-6-3 16:29
+
+
+
+
+有凛子小姐塔吗？我还没康过，让我也康康
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 6300#       发表于 2020-6-3 16:29
+
+
+
+
+没正脸，别想了。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6301#       发表于 2020-6-3 16:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664433&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-3 16:28</a>
+
+我对阿夸没什么期待，但是我看2000这几天的发言，感觉他对erer姐贵有非常大的期待 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer"> 我这几天，每天都在大战囚人太监，哪有时间干别的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6302#       发表于 2020-6-3 16:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凛子小姐露脸怕是能杀一批crew，b站萌萌人好多都觉得meaqua是美少女谈恋爱。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6303#       发表于 2020-6-3 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664340&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-3 16:20</a>
+
+你再读一下你第一行的后半句
+
+什么主播？</blockquote>
+草，套皮主播打习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+其实田角这个slee要说的话跟虹是两个系统的，这得算是新开辟的事业。跟虹最大的关系也就天皇选的人吧。
+
+就是youtuber也好偶像也好，哪怕网络综艺，市场开发的都比套皮主播先进多了。田角这看着像是登月，可是登上去之后全是人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+还有个问题，如果slee跟新规事业部没关系，那iwaiwa干嘛去了？
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6304#       发表于 2020-6-3 16:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首先她们既不是美少女也没有在谈恋爱，六字母害人啊
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6305#       发表于 2020-6-3 16:33
+
+
+
+ 本帖最后由 掉头学姐 于 2020-6-3 16:35 编辑 
+
+说到这个，咩又说了一个朋友很不基德的事，很容易引发联想，可惜mk2不在了，没人拿出来顺劈了
+
+感兴趣的大家可以看咩昨天和兔组长的麻将联动哦
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6306#       发表于 2020-6-3 16:33
+
+
+
+
+从凛子被舔狗希舔的程度看，盲猜一个打平奶油妹没问题的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6307#       发表于 2020-6-3 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">不要顺劈不要顺劈不要顺劈
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 6308#       发表于 2020-6-3 16:34
+
+
+
+
+这个和贾跃亭造车比哪个更牛逼
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6309#       发表于 2020-6-3 16:35
+
+
+
+
+可是肥希前年还在狂舔debuki呢，我觉得那肥希舔不舔作为判断一个中之人的颜值标准不是那么靠谱
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6310#       发表于 2020-6-3 16:35
+
+
+
+
+不管怎么说，我相信りんこ比左二好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6311#       发表于 2020-6-3 16:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer"> 凛子姐应该是右一的威力加强版
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6312#       发表于 2020-6-3 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家可以去找下嗣永桃子来幻想下凛子的颜值。至于是高配低配还是标准配我就不知道了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6313#       发表于 2020-6-3 16:37
+
+
+
+<blockquote>erer 发表于 2020-6-3 16:37
+大家可以去找下嗣永桃子来幻想下凛子的颜值。至于是高配低配还是标准配我就不知道了。 ...</blockquote>
+看了眼百科，这不是水子哥吗。。。。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6314#       发表于 2020-6-3 16:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 凛子会不会和敦子一样可爱
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 6315#       发表于 2020-6-3 16:39
+
+
+
+
+m楼现在都不脑补颜值了，你楼可不可以稍微停一停。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6316#       发表于 2020-6-3 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664537&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-3 16:37</a>
+
+看了眼百科，这不是水子哥吗。。。。</blockquote>
+水子哥是什么鬼？草，我只知道jacklove。
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 6317#       发表于 2020-6-3 16:39
+
+
+
+
+狐皇都被黑屁yagoo夫人
+
+怎麼月之就沒人黑屁田角夫人 明明年齡更近的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6318#       发表于 2020-6-3 16:40
+
+
+
+<blockquote>erer 发表于 2020-6-3 16:39
+水子哥是什么鬼？草，我只知道jacklove。</blockquote>
+就jkl啊。。阿水，水子哥。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6319#       发表于 2020-6-3 16:40
+
+
+
+ 本帖最后由 erer 于 2020-6-3 16:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">....阿夸中之人水子哥？！算了，不碰瓷lol了，阿夸不配。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6320#       发表于 2020-6-3 16:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/164115f111fi1it1fiaxbt.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200603164020.png</strong> (93.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 16:41 上传
+
+
+
+
+
+
+
+如何评价星川不安养gachi，被葵皇泼冷水，
+
+
+葵皇破坏星川养gachi计划，
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 6321#       发表于 2020-6-3 16:41
+
+
+
+ 本帖最后由 AloissiolA 于 2020-6-3 16:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664464&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-3 16:31</a>
+
+草，套皮主播打习惯了
+
+其实田角这个slee要说的话跟虹是两个系统的，这得算是新开辟的事业。跟虹最 ...</blockquote>
+iwa干的还是SLEE相关啊，他个人推现在还是写着アイドル事業立ち上げ。
+
+<img src="https://img.saraba1st.com/forum/202006/03/165140ax686elezzfo8l4l.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200603164934.png</strong> (149.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 16:51 上传
+
+
+
+
+
+
+噢，他现在直接就是SLEE事业部部长了（
+
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6322#       发表于 2020-6-3 16:42
+
+
+
+
+那有没有凛子小姐切片，我们可以给各个五官进行打分评选，最后计算加权平均分，这样应该就能得出凛子小姐的颜值分了
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 6323#       发表于 2020-6-3 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664516&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-3 16:35</a>
+
+可是肥希前年还在狂舔debuki呢，我觉得那肥希舔不舔作为判断一个中之人的颜值标准不是那么靠谱 ...</blockquote>
+肥妹最近的美颜视频美到过分了，已经超过出道的标准好多了………………
+
+就是她魂号还是播游戏好无聊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 6324#       发表于 2020-6-3 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664585&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-3 16:42</a>
+那有没有凛子小姐切片，我们可以给各个五官进行打分评选，最后计算加权平均分，这样应该就能得出凛子小姐的 ...</blockquote>
+除了下巴像城之内也没别的露出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 6325#       发表于 2020-6-3 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664585&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-3 16:42</a>
+
+那有没有凛子小姐切片，我们可以给各个五官进行打分评选，最后计算加权平均分，这样应该就能得出凛子小姐的 ...</blockquote>
+就是不露脸啊，较小身材肯定很多人喜欢，阿逼都有视频
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 6326#       发表于 2020-6-3 16:46
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-3 16:48 编辑 
+
+说到Ringo。。
+
+
+水一楼,管人无关
+
+之前正好看见打块游戏打折就入了
+
+虽然立刻发现这游戏并不适合我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+但是立绘香死了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+游戏里的りんこ，可以当壁纸
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/164107tjpn4g3p4o4735pr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Puyo Puyo Tetris-Ringo.jpg</strong> (497.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 16:41 上传
+
+
+
+
+
+
+
+
+syl，视奸泥楼之前我一直把りんこ小姐读作林檎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 6327#       发表于 2020-6-3 16:47
+
+
+
+
+今天v综劈的有点虚无啊，连凛子小姐的颜这么飘渺的东西都拿出来了，不过2000可能是因为木口云的比虹还厉害就感觉没那味
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 6328#       发表于 2020-6-3 16:48
+
+
+
+ 本帖最后由 cyz542 于 2020-6-3 16:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">人家事务所扩展业务，准备吸另一个世界的粉，关你们管豚什么事
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 6329#       发表于 2020-6-3 16:49
+
+
+
+
+等我slee四个人年内都金盾了你们虚拟管人都要来倒贴<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6330#       发表于 2020-6-3 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664663&amp;ptid=1938145" target="_blank">cherryrain 发表于 2020-6-3 16:49</a>
+
+等我slee四个人年内都金盾了你们虚拟管人都要来倒贴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer"> 把全公司的钱砸进这四个女人，肯定能金盾
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6331#       发表于 2020-6-3 16:52
+
+
+
+
+不脑补颜值可以脑补体重
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6332#       发表于 2020-6-3 16:53
+
+
+
+
+等slee成功了，你们心爱的vtuber一个个转生颜出主播，看看你们喜欢的中之人有多美<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 6333#       发表于 2020-6-3 16:53
+
+
+
+
+りんこ和りんご是不同的！
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/165328ntofyj2n2oqfcfy9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EWQQnZqWkAAUJos.jpg</strong> (47.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 16:53 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|暴露了我N114514日语的事实[f:138].|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6334#       发表于 2020-6-3 16:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好，露脸决定去留。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6335#       发表于 2020-6-3 16:55
+
+
+
+
+slee这四位，年内加起来能超狐狸或者委员长，就算是成功了吧。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6336#       发表于 2020-6-3 16:55
+
+
+
+
+我想pro哥应该是这楼里唯一对中之人颜值没啥想法的人了
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 6337#       发表于 2020-6-3 16:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664708&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-3 16:53</a>
+
+等slee成功了，你们心爱的vtuber一个个转生颜出主播，看看你们喜欢的中之人有多美
+
+
+—— 来自 HUAWE ...</blockquote>
+怕不是不能有福同享哦
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 6338#       发表于 2020-6-3 16:56
+
+
+
+ 本帖最后由 opersuper 于 2020-6-3 17:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664490&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-3 16:33</a>
+
+说到这个，咩又说了一个朋友很不基德的事，很容易引发联想，可惜mk2不在了，没人拿出来顺劈了
+
+
+感兴趣的大 ...</blockquote>
+是指女性debu朋友吗，不要发散到肥希啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+比起这个她逼着伊东life要他说喜欢闹到冷场和黄兔子被现实生活和anmr的事弄得精神恍惚还比较有意思。话说haneru上次和苔宝联动也说压力大的不行，虹杏大事件的遮掩下anmr有没可能突然爆破
+
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 6339#       发表于 2020-6-3 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664695&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-3 16:51</a>
+
+把全公司的钱砸进这四个女人，肯定能金盾</blockquote>
+不过还是希望ickr留点钱能给二姐买点粉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 6340#       发表于 2020-6-3 16:58
+
+
+
+
+泥楼毒奶功力有点强的，我现在很害怕<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6341#       发表于 2020-6-3 16:59
+
+
+
+
+话说slee和2434不是平行企划吗，田角是不是要重新从上头骗取经费啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6342#       发表于 2020-6-3 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要去纯的直播间刷SLEE最强
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 6343#       发表于 2020-6-3 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664623&amp;ptid=1938145" target="_blank">ryy3jk 发表于 2020-6-3 16:45</a>
+
+除了下巴像城之内也没别的露出来啊</blockquote>
+求个！！！！！
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6344#       发表于 2020-6-3 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 想多了，这四个人8月之前，订阅之和能超10w就烧香去吧
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 6345#       发表于 2020-6-3 17:04
+
+
+
+
+来个小肥妹PS近照啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 6346#       发表于 2020-6-3 17:06
+
+
+
+<blockquote>激光2000 发表于 2020-6-3 17:00
+想多了，这四个人8月之前，订阅之和能超10w就烧香去吧</blockquote>
+大胆点，这个月有人能上万的可能性？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6347#       发表于 2020-6-3 17:06
+
+
+
+
+鸣海这也太菜了吧，辣眼睛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 6348#       发表于 2020-6-3 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664114&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-3 16:04</a>
+
+葛皇rnb</blockquote>
+一步步探下来日本LOL圈子好像也没啥找上门的举动，不会被烧那也就没理由不播了
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 6349#       发表于 2020-6-3 17:08
+
+
+
+
+啊，中音老师。。没能把大川老师奶出来
+
+
+
+
+
+
+TIM图片20200603170632.jpg
+(1.07 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-3 17:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/170718em3ge455353qb594.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6350#       发表于 2020-6-3 17:09
+
+
+
+
+看towa玩VALORANT。。。。。这游戏好SB啊。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 6351#       发表于 2020-6-3 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664838&amp;ptid=1938145" target="_blank">不可不信邪 发表于 2020-6-3 17:04</a>
+
+来个小肥妹PS近照啊</blockquote>
+去推特搜吧，我应承不转的，也同时也想多些人关注她
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6352#       发表于 2020-6-3 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664907&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-3 17:09</a>
+
+看towa玩VALORANT。。。。。这游戏好SB啊。。。。。。。</blockquote>
+这游戏虽然不怎么样但鸣海实在太菜了，放cs里大概白银1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 6353#       发表于 2020-6-3 17:14
+
+
+
+
+寝坊王萝卜子
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6354#       发表于 2020-6-3 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664747&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-3 16:56</a>
+是指女性debu朋友吗，不要发散到肥希啊
+
+比起这个她逼着伊东life要他说喜欢闹到冷场和黄兔子被现实 ...</blockquote>
+mk2应该不会劈希的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 6355#       发表于 2020-6-3 17:22
+
+
+
+
+龙皇应该是收到反馈修改声线了，更接近地声，听起来舒服多了。
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 6356#       发表于 2020-6-3 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664708&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-3 16:53</a>
+等slee成功了，你们心爱的vtuber一个个转生颜出主播，看看你们喜欢的中之人有多美
+
+—— 来自 HUAWE ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我期待的不行
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 6357#       发表于 2020-6-3 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665065&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-3 17:23</a>
+我期待的不行</blockquote>
+毕竟江良和阿夸都是人见人夸的美女，咩就不行了，倒贴都没人要，等颜出时代来临，马上就菠萝菠萝哒
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 6358#       发表于 2020-6-3 17:31
+
+
+
+
+海苔男：明明是我先的！真人出道也好，撕皮露脸也好！<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6359#       发表于 2020-6-3 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47664708&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-3 16:53</a>
+
+等slee成功了，你们心爱的vtuber一个个转生颜出主播，看看你们喜欢的中之人有多美
+
+
+—— 来自 HUAWE ...</blockquote>
+你讲这个话题我就没法参与讨论了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 6360#       发表于 2020-6-3 17:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665181&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-3 17:35</a>
+
+你讲这个话题我就没法参与讨论了</blockquote>
+这四位和海苔男比怎么样，pro哥你凭良心讲。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 6361#       发表于 2020-6-3 17:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/173708es76abzh69qy7h14.png" referrerpolicy="no-referrer">
+
+
+<strong>2434-2.0Brushup.png</strong> (623.49 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-3 17:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 6362#       发表于 2020-6-3 17:38
+
+
+
+
+说到澡子哥退役，我突然想到，你版kpi是三四六字母，唯独没有五字母，我看怕不是在暗示……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6363#       发表于 2020-6-3 17:40
+
+
+
+
+Ayame是五个字母<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6364#       发表于 2020-6-3 17:43
+
+
+
+
+五字母不是井皇吗？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 6365#       发表于 2020-6-3 17:44
+
+
+
+
+所以五字母在你楼也不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 6366#       发表于 2020-6-3 17:46
+
+
+
+
+楼上提到的五字母一个摸爆，一个基本证明了就是不行的代名词，不更加论证我的说法吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6367#       发表于 2020-6-3 17:51
+
+
+
+
+有人称赞过凛子好看吗(눈_눈)?saya也只是说她声音可爱
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6368#       发表于 2020-6-3 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665342&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-3 17:51</a>
+
+有人称赞过凛子好看吗(눈_눈)?saya也只是说她声音可爱</blockquote>
+参加过线下的粉丝吧（（
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6369#       发表于 2020-6-3 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665201&amp;ptid=1938145" target="_blank">SteinSlayer 发表于 2020-6-3 17:36</a>
+
+这四位和海苔男比怎么样，pro哥你凭良心讲。</blockquote>
+送命题？
+
+都觉得左二是偏综艺路线的，海苔男也觉得自己不是偶像是脱口秀艺人，我觉得苔宝比她好看
+
+
+
+
+
+                                     
