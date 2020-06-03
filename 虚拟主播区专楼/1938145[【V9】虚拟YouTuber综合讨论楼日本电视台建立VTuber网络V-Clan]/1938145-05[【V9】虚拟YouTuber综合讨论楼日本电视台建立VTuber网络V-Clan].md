@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 02:10** 
+> ## **本文件最后更新于2020-06-04 04:08** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_itDW4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_Sb502" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7282,7 +7282,7 @@ E7联动绊爱..
 
 
 好清纯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_aJyF7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_V5Q1Z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Seic_Oh/status/1268124992304107520](https://twitter.com/Seic_Oh/status/1268124992304107520)
 
 
@@ -16207,7 +16207,7 @@ syl，百合同居营业算什么，等回头苔宝给带伙儿整一个bg同居
 <img src="https://img.saraba1st.com/forum/202006/03/233634azcrq2cwtgfrvkvf.gif" referrerpolicy="no-referrer">
 
 
-<strong>8976.gif</strong> (797.67 KB, 下载次数: 0)
+<strong>8976.gif</strong> (797.67 KB, 下载次数: 1)
 
 下载附件
 
@@ -17728,4 +17728,142 @@ silent majority
 
 
 
-                   
+
+
+-----
+
+####  winda  
+##### 6929#       发表于 2020-6-4 02:11
+
+
+
+
+
+之前说过的mochipro阿B进出来了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6930#       发表于 2020-6-4 02:11
+
+
+
+
+浓度太高要窒息啦，黑宝救我<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 6931#       发表于 2020-6-4 02:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669642&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 01:46</a>
+
+大家cp搞起来，银火船粽pekomiko，营业也可以真的更可以，让看不起独角兽和百合豚的狐皇玩蛋去吧
+
+
+  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">正常点行不，狐皇现在有碍着同事养独角兽和玩百合营业么，河水不犯进水不知道你有什么这么值得恨的。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6932#       发表于 2020-6-4 02:41
+
+
+
+
+怎么时雨妈打的DDLC都吓成这样的
+
+她真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 6933#       发表于 2020-6-4 03:09
+
+
+
+
+我肥妹社内没cp呢……不要说star的男人呀
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6934#       发表于 2020-6-4 03:13
+
+
+
+
+夏哥谁都能呼吸，不需要cp。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 6935#       发表于 2020-6-4 03:16
+
+
+
+
+为啥这么希望推有cp阿，这一分钱分两份打了，亏<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 6936#       发表于 2020-6-4 03:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669846&amp;ptid=1938145" target="_blank">daoyuan 发表于 2020-6-4 03:16</a>
+
+为啥这么希望推有cp阿，这一分钱分两份打了，亏</blockquote>
+这就是CP矛盾之一啦，两边收入差距比较大的时候，A方唯粉认为B方就是来吸血的，B方唯粉认为A方发达了不顾前情
+
+
+
+
+
+                  
