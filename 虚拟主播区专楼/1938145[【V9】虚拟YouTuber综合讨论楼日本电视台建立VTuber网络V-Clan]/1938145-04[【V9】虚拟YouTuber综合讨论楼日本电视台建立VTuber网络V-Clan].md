@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 10:09** 
+> ## **本文件最后更新于2020-06-03 12:10** 
 
 
 
@@ -1469,7 +1469,7 @@ Akari这个还是上次老姐带饭的阵容，应该是早就定好的
 
 狐皇的原创曲被暮色大师收录了？
 [https://twitter.com/MuseDashtheGame/status/1267394776296419334](https://twitter.com/MuseDashtheGame/status/1267394776296419334)
-<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_a3eAc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZawKVuVcAAxubG?format=jpg&amp;name=4096x4096" id="aimg_G1aXH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -10527,7 +10527,7 @@ syl白天 ...</blockquote>
 
 
 お前任天堂かよ
-<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_Jz03Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/d505455315e2f2d5ca565291c598157f/IMG_20200602_003350.JPG" id="aimg_OwA7y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -13840,7 +13840,7 @@ mildom是斗鱼开的？
 
 
 
-<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_Cee8e" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/15e976f0e490210eb71b8c1debc97d66/IMG_20200602_111212.JPG" id="aimg_y4Iq2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -27586,4 +27586,994 @@ syl，colo拯救了v综浓度，他弄个假新闻，就会有人出来辟谣加
 
 
 
- 
+
+
+-----
+
+####  poipanchao  
+##### 5948#       发表于 2020-6-3 10:09
+
+
+
+
+卑鄙的本间
+那个女子马车赛谁能跑得赢她
+太心机了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5949#       发表于 2020-6-3 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659537&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-3 10:09</a>
+
+原来v8死了，太好了。</blockquote>
+v吧不一定死透了，我只希望维阿能加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5950#       发表于 2020-6-3 10:11
+
+
+
+
+我玩辐射老滚都是要控制台提移速的，宫姨应该不会这么干
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5951#       发表于 2020-6-3 10:13
+
+
+
+
+还有终端的填字游戏，丈育狗子怕不是要用unlock
+
+然后tcl tgm一股脑用上
+
+怎么想都不够婆，感觉要遭重
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5952#       发表于 2020-6-3 10:14
+
+
+
+
+一些虹：
+
+&gt;inui要和犬山联动对谈了，这个组合有点怪呃。inui好像是只要是狗都可以联动的类型。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 太好了，早点和垃圾彩虹隔离是好事
+
+&gt;郡道和sio的互动，隔离没成诶......2000哥在cp方面真的很会奶，你能祝福一下mrra吗？我愿意加鹅感谢。郡道这个作息真的太不健康了，难道她就是那种只用睡四个小时的类型？
+
+&gt;口了也要搞子垢了，就在郡道搞了的一天后。如果是那种侦探私生声优粉，这个可以当作她们同居的证据了吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">。
+
+&gt;seed二周年贺图（[https://twitter.com/jinusi822](https://twitter.com/jinusi822)），现在还记得人设出来以后在囚人群讨论的内容......人来人往啊...怎么还不抽女人卡...
+
+<img src="https://img.saraba1st.com/forum/202006/03/101123ewwotoczzwyv2x1v.png" referrerpolicy="no-referrer">
+
+
+<strong>郡sio.png</strong> (100.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 10:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/101124czqpazkbqtasobi9.png" referrerpolicy="no-referrer">
+
+
+<strong>夢月ロアタロス🌖6月ボイス発売中  @yuzuki_roa    Twitter.png</strong> (73.74 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 10:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/101122eatnjm8ix1218512.jpg" referrerpolicy="no-referrer">
+
+
+<strong>seed.jpg</strong> (265.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 10:11 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 5953#       发表于 2020-6-3 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">什么 居然没有1和2的吗···好想看狗子表演进地下掩体市的N种方式啊！
+
+看来这次播完看来就能知道她观众的真实成分了··
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 5954#       发表于 2020-6-3 10:20
+
+
+
+
+@jinusi822的这套seeds的图太好看了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5955#       发表于 2020-6-3 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47657625&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-3 02:45</a>
+
+阿0现在过得开心就好 游戏也照播 打不了放个会动的千岁立绘在旁边
+
+虹当时也提供不了什么音乐上的帮 ...</blockquote>
+放立绘这个太那啥了吧，EMA难道是久远千岁代餐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+韩国要素这个，要的不是堂堂正正搞说韩语，是那种突然漏一句，让人突然发觉”这人也韩国！？“的感觉啊。
+
+CP，唉，CP。19组打头这4位，可以随意组合，你又怎能想到，当初我还喜欢过郡道久远，把恐怖游戏联动看了巨多遍......
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5956#       发表于 2020-6-3 10:34
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/03/103429hex1d5g1dgtrtg2k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200603103409.jpg</strong> (239.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 10:34 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 5957#       发表于 2020-6-3 10:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这就是疯掉的玲人吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 5958#       发表于 2020-6-3 10:40
+
+
+
+ 本帖最后由 y78348877 于 2020-6-3 10:45 编辑 
+
+仔细看了一遍，竟然没有钢4吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5959#       发表于 2020-6-3 10:41
+
+
+
+
+等楼上一个编辑
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5960#       发表于 2020-6-3 10:41
+
+
+
+
+2017-10-16 11:21:35发的公告
+
+2020年还能再水一次
+
+像极了贴吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5961#       发表于 2020-6-3 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659935&amp;ptid=1938145" target="_blank">y78348877 发表于 2020-6-3 10:40</a>
+
+仔细看了一遍，竟然没有钢4吗</blockquote>
+HOI应该是指全系列都进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5962#       发表于 2020-6-3 10:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一眼就看到了舰c。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5963#       发表于 2020-6-3 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659435&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-3 10:00</a>
+
+葵皇整了个马车女子赛的直播间，居然没有sasaki</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼宝为什么要钓2000
+
+
+
+
+
+
+
+-----
+
+####  攻心为上木之本  
+##### 5964#       发表于 2020-6-3 10:43
+
+
+
+ 本帖最后由 攻心为上木之本 于 2020-6-3 10:44 编辑 
+
+mkt姐贵是第一个蹭这个热度的管人么<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5127f9f7b84db7661669d26cdd675420/IMG_F91245B0C39B776845A28E498CF87ADF.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5965#       发表于 2020-6-3 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659974&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-3 10:42</a>
+
+楼宝为什么要钓2000</blockquote>
+不能因为一件事情2000可能感兴趣，就避而不谈吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+我就是很想看sasaki出场啊
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5966#       发表于 2020-6-3 10:47
+
+
+
+
+这一阵几个大型游戏电影宣发都停掉了，虹杏这么喜欢欧米进出，不蹭一波热度么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5967#       发表于 2020-6-3 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我还说没有葛叶呢
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5968#       发表于 2020-6-3 10:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">文明为啥不给播？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5969#       发表于 2020-6-3 10:48
+
+
+
+
+带上葛叶和熊猫就赢不了啊
+为了保险起见连大福尊妈都没叫
+突出一个稳
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5970#       发表于 2020-6-3 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47660063&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-3 10:48</a>
+
+带上葛叶和熊猫就赢不了啊
+
+为了保险起见连大福尊妈都没叫
+
+突出一个稳</blockquote>
+不是有尊妈吗
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 5971#       发表于 2020-6-3 10:50
+
+
+
+
+文明能播啊，魔法师就播过
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5972#       发表于 2020-6-3 10:50
+
+
+
+
+看了一下阿希是不是杏第一个玩valorant的人啊，带妹又走在了前面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 5973#       发表于 2020-6-3 10:51
+
+
+
+
+超管要怎么知道你在播坦克世界亚服还是国服，也有可能是打了mod的国服啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5974#       发表于 2020-6-3 10:52
+
+
+
+<blockquote>Suny08 发表于 2020-6-3 10:50
+看了一下阿希是不是杏第一个玩valorant的人啊，带妹又走在了前面</blockquote>
+towa是第一个，和葵皇同时间拿到的第一批测试资格。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5975#       发表于 2020-6-3 10:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47660080&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-3 10:49</a>
+不是有尊妈吗</blockquote>
+啊（
+昨晚看的直播间今儿全凭印象在吹逼了
+云了☁️了
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5976#       发表于 2020-6-3 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47660116&amp;ptid=1938145" target="_blank">cgz 发表于 2020-6-3 10:51</a>
+
+超管要怎么知道你在播坦克世界亚服还是国服，也有可能是打了mod的国服啊</blockquote>
+我还认不出你这个垃圾怀旧服么.jpg
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 5977#       发表于 2020-6-3 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47659721&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-3 10:24</a>
+
+放立绘这个太那啥了吧，EMA难道是久远千岁代餐。
+
+韩国要素这个，要的不是堂堂正正搞说韩语，是那 ...</blockquote>
+你要是吃的下去roa明治那我是真服你<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5978#       发表于 2020-6-3 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">懒狗昨天也有玩valorant啊，虽然是在西西的直播间自己没开播。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5979#       发表于 2020-6-3 11:00
+
+
+
+
+瓦蓝兰还是看高玩玩比较有意思吧。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5980#       发表于 2020-6-3 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47660287&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-3 11:00</a>
+
+瓦蓝兰还是看高玩玩比较有意思吧。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> aqua碳一枪枪正中我心中的红心♥
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5981#       发表于 2020-6-3 11:06
+
+
+
+
+这2000不对劲，怎么各种讨好二二姐的🤔
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 5982#       发表于 2020-6-3 11:07
+
+
+
+
+先把这赛季钻石三上了再说
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5983#       发表于 2020-6-3 11:07
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-3 11:08 编辑 
+
+今天的watame日语教学
+
+<img src="https://img.saraba1st.com/forum/202006/03/110720t2e9pt1ppwp15b7f.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200603110210.png</strong> (5.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-3 11:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 5984#       发表于 2020-6-3 11:07
+
+
+
+ 本帖最后由 marysaluly 于 2020-6-3 11:09 编辑 
+
+<img src="https://pbs.twimg.com/media/EZjlIcTUMAEfbjv?format=jpg&amp;name=900x900" id="aimg_a3cV2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+评价一下slee
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5985#       发表于 2020-6-3 11:08
+
+
+
+
+2000又要被crew给记上小本本了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+那句话怎么说来着？什么不是不报时候未到什么的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5986#       发表于 2020-6-3 11:09
+
+
+
+
+虹的slee出了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 5987#       发表于 2020-6-3 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">有说什么时候开播吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5988#       发表于 2020-6-3 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47660211&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-3 10:56</a>
+你要是吃的下去roa明治那我是真服你</blockquote>
+虽然确实撞号了，还相互抢了cp，但是，这也有这的磕法，学名是出轨百合还是啥的.....百合可以包容一切<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5989#       发表于 2020-6-3 11:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 期待期待！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5990#       发表于 2020-6-3 11:14
+
+
+
+
+左一不错，左三一般，剩下两个emmmmm
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5991#       发表于 2020-6-3 11:15
+
+
+
+
+小天使新翻唱这周末要投稿了！！！
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5992#       发表于 2020-6-3 11:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 期待首播内容
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5993#       发表于 2020-6-3 11:16
+
+
+
+
+「对容颜自信」嗯，果然是画像传错了吗
+<img src="https://p.sda1.dev/0/8ccfab1d3a5eedb873ef4bf98cdf23fe/IMG_20200603_111411.JPG" id="aimg_B6TGQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5994#       发表于 2020-6-3 11:17
+
+
+
+
+colo哥不要啊，刚吃的饭。。。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5995#       发表于 2020-6-3 11:18
+
+
+
+
+1. 就这？
+
+2. 官网把slee和新规事业分开了，这么说来iwaiwa确实被摘了顶戴流放宁古塔了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5996#       发表于 2020-6-3 11:20
+
+
+
+
+夏色祭倾力推荐，即将完结的巨作『100日後に捕まるまつり』
+https://twitter.com/tounyu_udon/status/1267957513485316096?s=20<img src="https://p.sda1.dev/0/565891aa55e6a31c5eda5e903c32d403/IMG_1BBD9155AFA138D993BE34231E528B7C.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5997#       发表于 2020-6-3 11:20
+
+
+
+
+田角这服装品味真的一言难尽
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5998#       发表于 2020-6-3 11:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这不是jk组选的呢？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5999#       发表于 2020-6-3 11:23
+
+
+
+
+中间两位的服装品味一个土、一个怪土<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 6000#       发表于 2020-6-3 11:24
+
+
+
+
+现在可以好好批判一下田角的xp了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
