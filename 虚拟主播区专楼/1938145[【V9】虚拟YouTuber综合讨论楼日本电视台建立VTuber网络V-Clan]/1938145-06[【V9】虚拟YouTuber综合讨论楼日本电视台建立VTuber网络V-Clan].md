@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-05 02:09** 
+> ## **本文件最后更新于2020-06-05 06:08** 
 
 
 
@@ -3704,10 +3704,11 @@ kora，不是DT有那么值得炫耀嘛<img src="https://static.saraba1st.com/im
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 榊城翼| + 1|好评加鹅|
 | soraku| + 1|欢乐多|
 
 
@@ -5070,7 +5071,7 @@ holo做了啥事要挨任地狱的铁拳了？</blockquote>
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47677833&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-4 18:53</a>
 怎么开始考虑holo一定会吃任天堂一拳了这事了。被任天堂打一拳holo可有的疼了…… ...</blockquote>
-虹信都等着呢，就怕结果是这样。。。<img src="https://p.sda1.dev/0/b60d0e4c6e3630a888442d97cc5b4096/1591268215980.JPG" id="aimg_KrPHC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+虹信都等着呢，就怕结果是这样。。。<img src="https://p.sda1.dev/0/b60d0e4c6e3630a888442d97cc5b4096/1591268215980.JPG" id="aimg_k4rZ4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -15079,7 +15080,7 @@ wtm播MC上万棒，龙宝只剩3000同接，想起之前的龙羊对谈，真�
 
 
 这游戏又跳票了，6月底变成9月末。
-<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=LOADED&amp;custom1=bbs.saraba1st.com&amp;custom2=%2F2b%2Fforum.php&amp;custom3=s3.amazonaws.com&amp;t=1591291617176" id="aimg_aF7lp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=BEFORE_OPTOUT_REQ&amp;t=1591291617176" id="aimg_qxo34" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=FINISHED&amp;custom1=bbs.saraba1st.com&amp;t=1591291617177" id="aimg_UWQ4S" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=OPTOUT_RESPONSE_OK&amp;t=1591291617675" id="aimg_cDBZJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=cd1d2&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_INJECT&amp;t=1591291617678" id="aimg_jeRSs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=90f06&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_INJECT&amp;t=1591291617679" id="aimg_wCr2H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=cd1d2&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_LOADED&amp;t=1591291617683" id="aimg_I37lL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=90f06&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_LOADED&amp;t=1591291618058" id="aimg_U5LT8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)可惜不能联机，成不了管人团建新游。
+<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=LOADED&amp;custom1=bbs.saraba1st.com&amp;custom2=%2F2b%2Fforum.php&amp;custom3=s3.amazonaws.com&amp;t=1591291617176" id="aimg_oAgSm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=BEFORE_OPTOUT_REQ&amp;t=1591291617176" id="aimg_JuZ72" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=FINISHED&amp;custom1=bbs.saraba1st.com&amp;t=1591291617177" id="aimg_lUU96" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=OPTOUT_RESPONSE_OK&amp;t=1591291617675" id="aimg_Gnbh8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=cd1d2&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_INJECT&amp;t=1591291617678" id="aimg_k1IDs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=90f06&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_INJECT&amp;t=1591291617679" id="aimg_R9CkL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=cd1d2&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_LOADED&amp;t=1591291617683" id="aimg_Rs07o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://petercontry.net/metric/?mid=90f06&amp;wid=52190&amp;sid=&amp;tid=7537&amp;rid=MNTZ_LOADED&amp;t=1591291618058" id="aimg_lI7i5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)可惜不能联机，成不了管人团建新游。
 
 <img src="https://img.saraba1st.com/forum/202006/05/012712u7jzv6vm7fm6mgsm.png" referrerpolicy="no-referrer">
 
@@ -15239,4 +15240,393 @@ debi、葵就够了，江、委似乎也有来往
 
 
 
-                      
+
+
+-----
+
+####  本蔡帅哥  
+##### 8322#       发表于 2020-6-5 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47681970&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-5 02:00</a>
+露露在虹里也简单
+
+debi、葵就够了，江、委似乎也有来往
+
+这人际关系一点都不费脑子（明明跟王女合作广播但是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和江关系好有啥用？增加非工作之余的好友么？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 8323#       发表于 2020-6-5 02:17
+
+
+
+ 本帖最后由 wsotaku 于 2020-6-5 02:18 编辑 
+<blockquote>ひびき 发表于 2020-6-5 01:48
+单恋中的单身狗对阿希这种状态有共情不奇怪，大叔这种娃都有的还有反应就很怪 ...</blockquote>
+当爹的男人就不能懂怨妇了吗www
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8324#       发表于 2020-6-5 02:20
+
+
+
+
+有没有最近的阿希repo 根本没时间看
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8325#       发表于 2020-6-5 02:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680642&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-4 23:31</a>
+
+紫宝天天这个点播我早晚要疯
+
+我要脱坑，我要脱坑</blockquote>
+？我这刚下播呢
+
+我还意犹未尽
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8326#       发表于 2020-6-5 02:30
+
+
+
+
+每次看35打cod都看的我血压飙升
+
+不知道芙宝是怎么意犹未尽的
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 8327#       发表于 2020-6-5 02:30
+
+
+
+
+你菜这个啊，运营侧的问题一句话附图总结就是：
+
+“我相信ickr，你们如果信我就也信ickr”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f0e7495a226091590f4e192c828c5381/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8328#       发表于 2020-6-5 02:31
+
+
+
+ 本帖最后由 QWANG 于 2020-6-5 02:34 编辑 
+
+阿龙已经不拘泥于这种数据了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8329#       发表于 2020-6-5 02:36
+
+
+
+
+这WTM最近咋回事，天天晚上播爆
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8330#       发表于 2020-6-5 02:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47682082&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-5 02:36</a>
+这WTM最近咋回事，天天晚上播爆</blockquote>
+本来就是守夜四天王之一，最近深夜MC数据又好，自然就播爆了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8331#       发表于 2020-6-5 02:47
+
+
+
+
+玩了三小时mc地下城，结果失手把钻石镐给分解了（
+
+作为刷子游戏感觉还行，不过直播效果应该不行。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8332#       发表于 2020-6-5 02:49
+
+
+
+
+VALORANT在虹才流行了三天，就已经见到了：
+
+
+社长社噗小福油、黑黑葵西莉（莉莉姆）
+
+社长社翔柴油、麦白雪叶学莉（夕阳莉莉）
+
+黑黑哈油、黑黑谢林蜂、黑黑乾歌
+
+黑黑噗蜂MAO
+
+
+等多种（甚至看起来不是很熟的）开黑组合
+
+syl，这丑游戏什么时候给黑黑油噗打钱
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8333#       发表于 2020-6-5 02:50
+
+
+
+<blockquote>中野六小龄童 发表于 2020-6-5 02:20
+有没有最近的阿希repo 根本没时间看</blockquote>
+打gun 给星喂饭 上本体号打gun 没了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8334#       发表于 2020-6-5 02:50
+
+
+
+
+qs, 35这cod实在太菜了，不过肯定比天宝厉害多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl mc真难看<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8335#       发表于 2020-6-5 02:54
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-5 02:50
+qs, 35这cod实在太菜了，不过肯定比天宝厉害多了
+
+
+syl mc真难看</blockquote>
+天降苦力帕它不香吗
+
+mc地下城感觉小天使赶紧播完一圈剧情就得了，真上瘾无脑刷绝对是灾难级别的。。
+
+当然要是能把oshio妈搞来一起刷，看一天也是可以的。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8336#       发表于 2020-6-5 02:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47682125&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-5 02:54</a>
+
+天降苦力帕它不香吗
+
+mc地下城感觉小天使赶紧播完一圈剧情就得了，真上瘾无脑刷绝对是灾难级别的。。
+
+当然 ...</blockquote>
+天宝mc都是挂后台听个响，我自己都没玩过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这刷子版mc能多人一起下本刷的吗？那还有点意思
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8337#       发表于 2020-6-5 03:01
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-5 02:58
+天宝mc都是挂后台听个响，我自己都没玩过
+
+
+这刷子版mc能多人一起下本刷的吗？那还有点意思 ...</blockquote>
+支持联机，本地或者网络都可以。
+
+不过目前体感是不能作为主要直播内容的，当成杂谈的背景还可以。
+
+话又说回来，小天使单刷的话，大概就顾不上杂谈了233。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 8338#       发表于 2020-6-5 04:43
+
+
+
+
+半夜四点もぐもぐ的少主<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">真就不打算嫁人了不在乎体重了呗
+
+
+
+
+
+
+
+-----
+
+####  sylali  
+##### 8339#       发表于 2020-6-5 05:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680332&amp;ptid=1938145" target="_blank">Vneet 发表于 2020-6-4 22:55</a>
+
+所以这对CP大概也已经过时了…</blockquote>
+クソ眼鏡这次大概都没有被告知回归的事情...（猜测）。名取さな也没被告知。这也是很有那个人行动风格的事情了。
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 8340#       发表于 2020-6-5 05:20
+
+
+
+
+虹人们好歹还希望彩虹能剩半年，我们杏仁都巴不得木口明天就被任弹一拳打烂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8341#       发表于 2020-6-5 05:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47682294&amp;ptid=1938145" target="_blank">LunarCorona_VOV 发表于 2020-6-5 05:20</a>
+
+虹人们好歹还希望彩虹能剩半年，我们杏仁都巴不得木口明天就被任弹一拳打烂的这波说句杏又赢没有毛 ...</blockquote>
+漏屁股的号就不要来黑屁了，有点蠢<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
