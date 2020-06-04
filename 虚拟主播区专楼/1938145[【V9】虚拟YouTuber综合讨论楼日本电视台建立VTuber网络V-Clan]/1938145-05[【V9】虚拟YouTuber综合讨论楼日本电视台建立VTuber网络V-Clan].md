@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 16:13** 
+> ## **本文件最后更新于2020-06-04 18:13** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_CPySM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_JJZkt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7282,7 +7282,7 @@ E7联动绊爱..
 
 
 好清纯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_wn0RT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_nd2n0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Seic_Oh/status/1268124992304107520](https://twitter.com/Seic_Oh/status/1268124992304107520)
 
 
@@ -25241,7 +25241,7 @@ https://weibo.cn/comment/J51LJtbbC?rl=1&amp;vt=1#cmtfrm
 
 
 735bcd72ly1gffvce5akij20yi1e5e1r.jpg
-(80.12 KB, 下载次数: 4)
+(80.12 KB, 下载次数: 5)
 
 
 
@@ -27687,10 +27687,16 @@ Artia 微博私人号与粉丝人上人「Himmel_Kazami」私联
 
 
 
- 参与人数 3战斗力 +4
+ 参与人数 9战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|欢乐多|
+| pliee| + 1|colo强大|
+| あのん| + 1|個通はまずいですよ|
+| soraku| + 1|得劲|
+| hm05flash| + 1|好评加鹅|
+| 泡芙好吃| + 1|SC|
 | plllllum| + 1|强大|
 | 激光2000| + 2||
 | kanonsisya| + 1|先赞后看|
@@ -28029,6 +28035,462 @@ uno这个连麦质量好差，，
 
 
 官号互关没问题，光明正大，小号互关我觉得有点..
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7475#       发表于 2020-6-4 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675993&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-4 16:11</a>
+那再说个，Artia15-16年表示有男朋友，而且我并没有看见分手的迹象</blockquote>
+有的，这个之前铲群已经铲到了，四年前就分了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 7476#       发表于 2020-6-4 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675648&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 15:35</a>
+
+图来了图来了</blockquote>
+这技能怎么这么大家庭啊，不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7477#       发表于 2020-6-4 16:14
+
+
+
+
+那么是先入holocn再互关，还是之前就认识呢？
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7478#       发表于 2020-6-4 16:14
+
+
+
+
+我记得之前谁说过四年前就分手了
+
+是不是在colo哥的眼里，网友的底裤都是露得干干净净的？<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7479#       发表于 2020-6-4 16:15
+
+
+
+
+难道说人上人能通过一样的思考回路并得知阿提亚的微博小号？
+
+
+还是说因为阿提亚小号关注了人上人，让人上人察觉到，反而互关？
+
+
+这怎么都说不通吧，
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7480#       发表于 2020-6-4 16:16
+
+
+
+
+除了私下里交流的我想不到其他可能
+
+
+
+
+
+
+
+-----
+
+####  plllllum  
+##### 7481#       发表于 2020-6-4 16:16
+
+
+
+
+这是artia第一次被挖到照片吗？看VT的反应不像初见啊
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7482#       发表于 2020-6-4 16:17
+
+
+
+
+这不就互相届到了的程度嘛没什么<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+colo就是冲国v眷掘屎第一人，好评！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 7483#       发表于 2020-6-4 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">vt或者vi哥知道不是很正常，吧主狂热粉
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7484#       发表于 2020-6-4 16:18
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-6-4 16:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47676047&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-4 16:16</a>
+
+除了私下里交流的我想不到其他可能</blockquote>
+就是私联过啊，还跟瑶山百灵也联系上了......瑶山百灵是她自己说的，第一次遇到
+
+大概因为人上人是男的所以没说，但这确实和一般粉丝私联不太一样......
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7485#       发表于 2020-6-4 16:18
+
+
+
+
+好吧，散了散了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7486#       发表于 2020-6-4 16:20
+
+
+
+
+你们不该先研究研究那张自pai有没有p吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7487#       发表于 2020-6-4 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> colo哥这波输了，等于把铲群做的事情再放送，colo哥输了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 7488#       发表于 2020-6-4 16:22
+
+
+
+
+colo哥不仅落雷预告和鸣神一样，就连落完雷被发现只是静电都和鸣神一样<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7489#       发表于 2020-6-4 16:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啥人上人，不懂？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7490#       发表于 2020-6-4 16:23
+
+
+
+
+不会全楼就我一个不在那个铲群吧 😢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雅朵莉雀| + 1|不安可爱|
+| 激光2000| + 2|从不加群|
+| plllllum| + 1|还有我|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 7491#       发表于 2020-6-4 16:23
+
+
+
+
+害，原来就这，artia和人上人认识倒也不算是什么奇怪的事情
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7492#       发表于 2020-6-4 16:23
+
+
+
+
+铲群没挖出照片和小号吧 colo哥还是赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 7493#       发表于 2020-6-4 16:23
+
+
+
+
+Colo开始不安<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7494#       发表于 2020-6-4 16:23
+
+
+
+
+不会吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7495#       发表于 2020-6-4 16:23
+
+
+
+
+主要是你楼没有真独角兽，私连没人care，这个应该发V8和批站。
+
+
+
+
+
+
+
+-----
+
+####  天野爱音  
+##### 7496#       发表于 2020-6-4 16:23
+
+
+
+
+私下认识也算私联吗？真把管人当偶像了？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7497#       发表于 2020-6-4 16:24
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-4 16:26 编辑 
+
+主要人上人这个在这拱火在这没效果，要去vr那拱火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+震惊，holocn核心被曝与vranti私联<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 7498#       发表于 2020-6-4 16:25
+
+
+
+
+himmel就是之前被开那个VR运营来着？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7499#       发表于 2020-6-4 16:25
+
+
+
+
+问题还是出在重大发表的预告吧，无言投下的话还算好活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7500#       发表于 2020-6-4 16:25
+
+
+
+
+私联=约过，呸，破鞋live<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
