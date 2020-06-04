@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 22:08** 
+> ## **本文件最后更新于2020-06-05 00:09** 
 
 
 
@@ -565,10 +565,11 @@ V吧不是已经没了吗</blockquote>
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|好评加鹅|
 | Viden| + 1|感谢情报，记得是2小时特番|
 
 
@@ -692,7 +693,7 @@ V吧不是已经没了吗</blockquote>
 <img src="https://img.saraba1st.com/forum/202006/04/164347ur2neexgzegdx537.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Screenshot_20200604_164010_com.twitter.android.jpg</strong> (787.03 KB, 下载次数: 0)
+<strong>Screenshot_20200604_164010_com.twitter.android.jpg</strong> (787.03 KB, 下载次数: 1)
 
 下载附件
 
@@ -5069,7 +5070,7 @@ holo做了啥事要挨任地狱的铁拳了？</blockquote>
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47677833&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-4 18:53</a>
 怎么开始考虑holo一定会吃任天堂一拳了这事了。被任天堂打一拳holo可有的疼了…… ...</blockquote>
-虹信都等着呢，就怕结果是这样。。。<img src="https://p.sda1.dev/0/b60d0e4c6e3630a888442d97cc5b4096/1591268215980.JPG" id="aimg_G99Qp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+虹信都等着呢，就怕结果是这样。。。<img src="https://p.sda1.dev/0/b60d0e4c6e3630a888442d97cc5b4096/1591268215980.JPG" id="aimg_QX5o9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -6348,7 +6349,7 @@ sc那边更恐怖啊
 <img src="https://img.saraba1st.com/forum/202006/04/194116o8jrtxtntmumzxii.gif" referrerpolicy="no-referrer">
 
 
-<strong>89766.gif</strong> (337.46 KB, 下载次数: 0)
+<strong>89766.gif</strong> (337.46 KB, 下载次数: 1)
 
 下载附件
 
@@ -11646,4 +11647,2506 @@ liver播屎你也要看嘛？</blockquote>
 
 
 
-                             
+
+
+-----
+
+####  erer  
+##### 8130#       发表于 2020-6-4 22:08
+
+
+
+
+😨😨😨
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8131#       发表于 2020-6-4 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679779&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-4 22:04</a>
+狐狸带towa出去联动效果好像还不错。</blockquote>
+虽然因为看不懂麻将没看，但我可以想象到towa被疯狂针对然后嚎叫的场景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人的戏路基本就是兔夸的变种，甚至可怜到没有跳脸环节最多有垂死挣扎两下的部分。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8132#       发表于 2020-6-4 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 葵皇看了hiyoko，发现播老游戏热门
+
+
+然后去了中古店，随便挑了一个看起来粪的游戏
+
+
+回来准备播，数字大爆，开心快乐
+
+
+结果完全无视了自己根本没接触过这类中古游戏的事实，
+
+
+现在同接1700，难道不是恶果？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8133#       发表于 2020-6-4 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679819&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 22:09</a>
+葵皇看了hiyoko，发现播老游戏热门
+
+
+然后去了中古店，随便挑了一个看起来粪的游戏</blockquote>
+直播间被隐藏定期
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8134#       发表于 2020-6-4 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679793&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-4 22:06</a>
+
+不止这件事儿！阿葵新浴衣发布的时候所有人都在夸好看，只有你上蹿下跳说好丑，说觉得像ji女
+
+那件 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">小学生喜欢说自己喜欢的女生“丑女”不是很正常吗？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8135#       发表于 2020-6-4 22:12
+
+
+
+ 本帖最后由 ひびき 于 2020-6-4 22:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679798&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-4 22:07</a>
+
+任弹当然是奔着钱去的，你杏现在就是待宰的羔羊</blockquote>
+让任弹飞一会儿
+
+
+先宫皇新维加斯打头阵，效果好的话龙皇老头滚动条+mod接上，再然后夸皇抄抄作业，最后大家都抄抄作业，就可以和任魔王说拜拜了
+
+
+剑盾dlc17号发售对吧，我估摸着着13天内cover应该谈不下来版权，那就17号之后的同接定胜负，要是木口一军能压过彩虹就说明任天堂不过如此<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 8136#       发表于 2020-6-4 22:12
+
+
+
+
+所以葵皇什么时候跟人百合同居啊，很急很关键<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8137#       发表于 2020-6-4 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679841&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 22:12</a>
+
+小学生喜欢说自己喜欢的女生“丑女”不是很正常吗？</blockquote>
+但不会说喜欢的女生像ji女<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8138#       发表于 2020-6-4 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679841&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 22:12</a>
+
+小学生喜欢说自己喜欢的女生“丑女”不是很正常吗？</blockquote>
+nmd你说的不是丑女是ji女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当时还是mmr的我就这样被你毁了！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 8139#       发表于 2020-6-4 22:13
+
+
+
+
+水上大闯关？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 8140#       发表于 2020-6-4 22:14
+
+
+
+
+2000哥是事业民，在替啊葵担心呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8141#       发表于 2020-6-4 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679828&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-4 22:10</a>
+
+直播间被隐藏定期</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer"> 那也改变不了月底同解榜，最低1700的事实阿，
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8142#       发表于 2020-6-4 22:16
+
+
+
+ 本帖最后由 winda 于 2020-6-4 22:18 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这回联动互动实在有点少，4个人还没兔sio两个人热闹
+
+syl狐皇也不开台，知道数字会被sio打得很难看吧
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8143#       发表于 2020-6-4 22:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679846&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 22:12</a>
+让任弹飞一会儿
+
+
+先宫皇新维加斯打头阵，效果好的话龙皇老头滚动条+mod接上，再然后夸皇抄抄作业，最后大 ...</blockquote>
+剑盾真的不能代表任游，holo之前播剑盾就大多不怎么好看…
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8144#       发表于 2020-6-4 22:19
+
+
+
+
+停了几个小时的电回来，看这样子COVER要破产清算了？唉，总归要屈服于现实......看来stars的梦终归于一场梦罢了，回去守着meiro的号过活了......顶不住了，睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8145#       发表于 2020-6-4 22:20
+
+
+
+
+所以有人知道人体堂这个合同是怎么签吗？是定期交保护费还是播任系游戏的SC抽成？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8146#       发表于 2020-6-4 22:20
+
+
+
+ 本帖最后由 opersuper 于 2020-6-4 22:24 编辑 
+
+直播作息，gachi了gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">话说苔宝上次会限吹她有名箱的分成都知道，联动一下她划胖收入比夸皇高的事
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8147#       发表于 2020-6-4 22:20
+
+
+
+
+热门游戏刚刚发售的时候不是debuff吗，一怕剧透二是开荒没时间
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8148#       发表于 2020-6-4 22:21
+
+
+
+
+草，我就是喜欢这样不知所云的黑宝 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8149#       发表于 2020-6-4 22:21
+
+
+
+
+星粉迷惑发言+1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8150#       发表于 2020-6-4 22:22
+
+
+
+
+黑宝被楼里的车轱辘骗了，这不是还挺纯良的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8151#       发表于 2020-6-4 22:22
+
+
+
+
+colo哥展现了对黑宝的喜爱，尾宝输了。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8152#       发表于 2020-6-4 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679859&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-4 22:13</a>
+
+nmd你说的不是丑女是ji女
+
+当时还是mmr的我就这样被你毁了！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer"> 可能是我时代剧看多了，
+
+
+这么华丽的振袖在时代剧里都是那啥，
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 8153#       发表于 2020-6-4 22:22
+
+
+
+
+黑宝才10点半就要睡觉了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8154#       发表于 2020-6-4 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679949&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-4 22:22</a>
+黑宝被楼里的车轱辘骗了，这不是还挺纯良的吗</blockquote>
+这波百分百是你被黑宝骗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  头上一板砖  
+##### 8155#       发表于 2020-6-4 22:23
+
+
+
+
+上班之后没时间看直播这才意识到，忽略2000说什么的话，还是很好的油管葵推送bot嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8156#       发表于 2020-6-4 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679953&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 22:22</a>
+
+colo哥展现了对黑宝的喜爱，尾宝输了。</blockquote>
+二二姐看bl吗？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8157#       发表于 2020-6-4 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679970&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-4 22:23</a>
+
+二二姐看bl吗？</blockquote>
+不看。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8158#       发表于 2020-6-4 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679968&amp;ptid=1938145" target="_blank">头上一板砖 发表于 2020-6-4 22:23</a>
+
+上班之后没时间看直播这才意识到，忽略2000说什么的话，还是很好的油管葵推送bot嘛 ...</blockquote>
+但是纯云的话容易被2000种下梁木而不自知
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8159#       发表于 2020-6-4 22:25
+
+
+
+
+二二姐老百合豚了，可惜炒六字母股失败了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8160#       发表于 2020-6-4 22:25
+
+
+
+
+翻译一下：
+
+
+（和基友大战）几个小时回来，看这样子COVER要破产清算了？唉，总归要屈服于现实......看来stars的梦终归于一场梦罢了，回去守着meiro的号（当おかず）了......（体力消耗）顶不住了，睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8161#       发表于 2020-6-4 22:25
+
+
+
+
+不是，看你楼转的推，这架势不就是COVER要破产清算的节奏吗......嘛，至少让izuru能完成那个合唱的想法啊......
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8162#       发表于 2020-6-4 22:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 问题是这游戏一些neta，都是老梗，隔壁木口看过这些综艺的都很少，
+
+
+没看过这些综艺，get不到neta挺无聊的
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 8163#       发表于 2020-6-4 22:25
+
+
+
+
+草，看你们在这里车轱辘我差点以为杏已经因为老任的铁拳爆炸了，正在大难临头各自飞呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8164#       发表于 2020-6-4 22:26
+
+
+
+
+我云的aqua梁木被v综种成大森林了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8165#       发表于 2020-6-4 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑宝是在偷偷暗喜杏星人均有小号，比杏生活那几个没后路的强多了吧
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 8166#       发表于 2020-6-4 22:26
+
+
+
+
+ん？木口也只剩半年了？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8167#       发表于 2020-6-4 22:26
+
+
+
+
+黑宝也完全是star爆炸也无所谓的心态吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8168#       发表于 2020-6-4 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679803&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-4 22:07</a>
+
+对哦大亏什么时候才能有新衣服呢？这咩没有新衣服，夸没有新衣服，是六字母贴贴 ...</blockquote>
+根据你刚才的言行，相信你是一个残存的隐蔽六字母连体人，现在你已经被规模上百人的毒唯天狗神秘组织列入清算名单了，你就等着清算的到来吧<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 8169#       发表于 2020-6-4 22:27
+
+
+
+
+黑宝不用担心，木口炸了的话星会去虹，会过的更好
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8170#       发表于 2020-6-4 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679989&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-4 22:25</a>
+
+翻译一下：
+
+
+（和基友大战）几个小时回来，看这样子COVER要破产清算了？唉，总归要屈服于现实......看来sta ...</blockquote>
+别闹，家停电是真的，而且引出一堆破事，业主要联合要打爆市长热线那种了......
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8171#       发表于 2020-6-4 22:29
+
+
+
+
+holo准备卖liver吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8172#       发表于 2020-6-4 22:29
+
+
+
+
+为何就不能是点箱男子部呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8173#       发表于 2020-6-4 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holo要倒闭了，乐得直拍大腿。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8174#       发表于 2020-6-4 22:30
+
+
+
+
+点箱男子部？去当ピーマン吗
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8175#       发表于 2020-6-4 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新的青椒君要出了么
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8176#       发表于 2020-6-4 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680040&amp;ptid=1938145" target="_blank">魔法使い2019 发表于 2020-6-4 22:29</a>
+holo准备卖liver吧</blockquote>
+holo真要炸了润姨去彩虹做成就吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 8177#       发表于 2020-6-4 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种羞耻play很少有机会见到。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8178#       发表于 2020-6-4 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 只有我希望彩虹炸了吗？
+
+
+阿笹每天愉快播任任，结果突然一天被告知，任任挖了个大坑，里面是阴阳合同，
+
+
+阿笹受了几百万sc不仅全部追回，还要赔偿10倍，
+
+
+田角突然破产，整个ichikara笼罩在毁灭的阴霾
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8179#       发表于 2020-6-4 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47677560&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-4 18:26</a>
+
+郡道播的如此勤快十分让本人羡慕她的粉丝</blockquote>
+这，不知道怎么说，过几个月可能得江粉郡粉一起抱头痛哭了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">......
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 8180#       发表于 2020-6-4 22:33
+
+
+
+ 本帖最后由 null0304 于 2020-6-4 22:37 编辑 
+
+为什么戴上耳机还能听见空调的嗡嗡声呢……原来是因为耳机里一点声音都没有传出来啊，已经快要到日替线了，她的待机间却还是没有出现，也没有一点深夜突击的样子……
+
+惆怅的点开了这里，诶？Cover要爆炸了吗…？这就是她一整天没有直播的原因吗……原来她也在为这件事情而担心着啊，在这个时刻是不是和我一样一个人吹着制冷不好的空调、盖着薄薄的毯子，对着发着光的手机屏幕担心的看着信息呢……
+
+Discord里Staff回复她的疑问了吗……？
+
+有和社里的大家好好告别吗……？
+
+以后的夜里还会出现吗……？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|不安です……|
+| yuandi0120| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8181#       发表于 2020-6-4 22:33
+
+
+
+
+梅球王还没毕业呢，就快进到瓜分木口了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8182#       发表于 2020-6-4 22:34
+
+
+
+
+你楼这是开始反向赛马了吗，
+
+那我买虹先没
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8183#       发表于 2020-6-4 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680081&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-4 22:34</a>
+
+你楼这是开始反向赛马了吗，
+
+那我买虹先没</blockquote>
+我也买
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8184#       发表于 2020-6-4 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679252&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-4 21:20</a>
+
+她还是有一起去玩的朋友的（像是那个声音超可爱的幼驯染）</blockquote>
+肯定有，如果她想拉上11岁也肯定能成，就是不知道她会不会想自己一个人玩儿......
+
+云了，幼驯染是什么时候的事？我好像听说她一起和一个现实中认识的人连过线？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8185#       发表于 2020-6-4 22:34
+
+
+
+
+别逗了我可是暗黑贴贴人啊老哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。话说22姐看tmsk吗？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8186#       发表于 2020-6-4 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680069&amp;ptid=1938145" target="_blank">null0304 发表于 2020-6-4 22:33</a>
+为什么戴上耳机还能听见空调的嗡嗡声呢……呜呜呜没有写完就发出去了</blockquote>
+对自己好一点，买个贵点耳机，或者买个贵点的空调，不要学你的推空调钱都省<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8187#       发表于 2020-6-4 22:36
+
+
+
+
+说起来我记得北欧那边的资本主义国家安装空调很贵来着，所以他们大都没空调。啊为什么我要说这个？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8188#       发表于 2020-6-4 22:37
+
+
+
+
+你楼养gachi陷阱有点多
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8189#       发表于 2020-6-4 22:38
+
+
+
+ 本帖最后由 oshinoshinobu 于 2020-6-4 22:45 编辑 
+
+原来如此
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 8190#       发表于 2020-6-4 22:38
+
+
+
+
+明女士又要会限了，爆料点内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8191#       发表于 2020-6-4 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 彩虹先没+1
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8192#       发表于 2020-6-4 22:38
+
+
+
+
+现在的房子不都是搞中央空调的么，
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 8193#       发表于 2020-6-4 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680091&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 22:35</a>
+
+对自己好一点，买个贵点耳机，或者买个贵点的空调，不要学你的推空调钱都省 ...</blockquote>
+我…再也不用移动版了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+以为是换行然后直接发送了 事故现场
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8194#       发表于 2020-6-4 22:39
+
+
+
+
+erer姐暗示自己是住在北欧的后浪。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8195#       发表于 2020-6-4 22:40
+
+
+
+
+说到养gachi，空妈今天直播居然吃巧克力，还有打巧克力钱SC的，这种算养gachi了吧，不知道那些打钱的知道了空妈脸这么圆，还会不会继续给她打钱买巧克力吃，真是脸越吃越圆<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8196#       发表于 2020-6-4 22:40
+
+
+
+
+北欧一般人为什么要装空调啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8197#       发表于 2020-6-4 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680138&amp;ptid=1938145" target="_blank">null0304 发表于 2020-6-4 22:38</a>
+
+我…再也不用移动版了
+
+以为是换行然后直接发送了 事故现场</blockquote>
+手机网页版吗？
+
+点一下旁边的相机图标可以进入类“高级编辑”模式，回车可以换行。
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 8198#       发表于 2020-6-4 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680063&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-4 22:32</a>
+这，不知道怎么说，过几个月可能得江粉郡粉一起抱头痛哭了......</blockquote>
+江信在推一个毕业见习生呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 8199#       发表于 2020-6-4 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680154&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-4 22:40</a>
+
+手机网页版吗？
+
+点一下旁边的相机图标可以进入类“高级编辑”模式，回车可以换行。 ...</blockquote>
+编辑好了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">谢谢谢谢！！
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8200#       发表于 2020-6-4 22:44
+
+
+
+
+手机s1还是强烈推荐鹅球啦
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8201#       发表于 2020-6-4 22:45
+
+
+
+
+傻紫就非要说歌回，明明是杂谈唱歌
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8202#       发表于 2020-6-4 22:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 狐狸还没回葵皇当初祝福二周年的推，进入黑暗模式了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8203#       发表于 2020-6-4 22:46
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-6-4 22:49 编辑 
+
+刚下课刷推就发现叶师也开里垢号了，这波，这波是山雨欲来风满楼<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+syl，超慎重的人居然用了自己拍摄的照片做头像，果然是要养gachi为跑路做准备了吗
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/224913zyg22j83md69azlz.png" referrerpolicy="no-referrer">
+
+
+<strong>398.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 22:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8204#       发表于 2020-6-4 22:46
+
+
+
+ 本帖最后由 winda 于 2020-6-4 22:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">忽然脑补了一出杏生活爆炸后宫助截胡纯一联动，剩下110凄凄惨惨戚戚的戏
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8205#       发表于 2020-6-4 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680228&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-4 22:46</a>
+刚下课刷推就发现叶师也开里垢号了，这波，这波是山雨欲来风满楼</blockquote>
+然而只是用来回棉花糖专用，和阿千一样
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8206#       发表于 2020-6-4 22:48
+
+
+
+
+但北欧国家税率偏高，想必另一半会很伤心吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 8207#       发表于 2020-6-4 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680138&amp;ptid=1938145" target="_blank">null0304 发表于 2020-6-4 22:38</a>
+我…再也不用移动版了
+
+以为是换行然后直接发送了 事故现场</blockquote>
+https://github.com/ykrank/S1-Next
+
+鹅球，相当于手机客户端，很好用
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8208#       发表于 2020-6-4 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680193&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-4 22:43</a>
+
+江信在推一个毕业见习生呢</blockquote>
+郡推在推那位毕业见习生的好伙伴呢<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 8209#       发表于 2020-6-4 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680086&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-4 22:34</a>
+
+肯定有，如果她想拉上11岁也肯定能成，就是不知道她会不会想自己一个人玩儿......
+
+云了，幼驯染是什么时 ...</blockquote>
+幼驯染有在会限里出过声，两次（均删档）
+
+贼他妈可爱，哪怕在虹也是往前数的可爱声音，比郡道这种bba声音好多了（郡道声音甚至没有她妈可爱）
+
+
+出国多半是一个人
+
+
+去国内玩一般倒是和人一起蛮多的
+
+去年和至少10个女liver一起出去玩过
+
+虽然一起旅游的只有11岁（箱根温泉和东京）
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8210#       发表于 2020-6-4 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680229&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-4 22:46</a>
+忽然脑补了一出杏生活爆炸后宫助截胡纯一联动，剩下110凄凄惨惨戚戚的戏 ...</blockquote>
+这个敏感词我笑到了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+纯桑就老老实实当送饭大叔吧，干的好还能推荐给cocolive送饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8211#       发表于 2020-6-4 22:51
+
+
+
+ 本帖最后由 Vneet 于 2020-6-4 22:53 编辑 
+
+说CP怎么能忘了历史悠久的药袋眼镜，还是BGCP关于这对的八卦还挺有趣的，甚至有一丝不是在营业的错觉。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8212#       发表于 2020-6-4 22:51
+
+
+
+
+110凄凄惨惨戚戚的话我推荐可以去找我家小凛哦。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8213#       发表于 2020-6-4 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680245&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-4 22:47</a>
+
+然而只是用来回棉花糖专用，和阿千一样</blockquote>
+「サブ垢気軽にツイートできていいなぁ」
+
+
+回棉花糖专用号是个很好的开账号的理由，但一旦开了功能大概也会不局限于此了
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 8214#       发表于 2020-6-4 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680282&amp;ptid=1938145" target="_blank">Vneet 发表于 2020-6-4 22:51</a>
+
+说CP怎么能忘了历史悠久的药袋眼镜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">不要啊，这次世界恒常性クソ眼鏡一点互动都没有的…
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8215#       发表于 2020-6-4 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680282&amp;ptid=1938145" target="_blank">Vneet 发表于 2020-6-4 22:51</a>
+
+说CP怎么能忘了历史悠久的药袋眼镜</blockquote>
+这对比游戏部还晚吧
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8216#       发表于 2020-6-4 22:55
+
+
+
+<blockquote>null0304 发表于 2020-6-4 22:52
+不要啊，这次世界恒常性クソ眼鏡一点互动都没有的…</blockquote>
+所以这对CP大概也已经过时了…
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8217#       发表于 2020-6-4 22:55
+
+
+
+
+说起来，叶师和葛叶不是说彩虹有段时间差点要爆炸吗，如果要毕业了希望能把这事儿详细讲讲<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 8218#       发表于 2020-6-4 22:56
+
+
+
+
+vup，年轻人的第一对bgcp是光一果吗
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8219#       发表于 2020-6-4 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680255&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-4 22:48</a>
+
+幼驯染有在会限里出过声，两次（均删档）
+
+贼他妈可爱，哪怕在虹也是往前数的可爱声音，比郡道这种bba声音 ...</blockquote>
+不如郡道妈笑死。
+
+就是郡道妈那个让我怀疑她本名了，明明老是说那种本名不是郡道美玲那种meta话，结果说不定真是美玲...
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8220#       发表于 2020-6-4 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680345&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-4 22:56</a>
+
+vup，年轻人的第一对bgcp是光一果吗</blockquote>
+看看隔壁B综现在的模样，你就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8221#       发表于 2020-6-4 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前两天大法的WH1000-XM3降噪耳机在淘宝1399还可以12期免息。
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不止北欧，前几年欧洲特别是中欧每年都有热死人的新闻，但是德国法国还是很少有家庭装空调的，一般只有大商超和火车/公交上能蹭空调，主要是他们只有1～2个月很热，一般是8月和9月，白昼时间长，太阳又很毒。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 8222#       发表于 2020-6-4 22:58
+
+
+
+
+其实我很喜欢看阿叶阴阳怪气一些迷惑棉花糖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是个老巨魔了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 8223#       发表于 2020-6-4 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680338&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-4 22:55</a>
+
+说起来，叶师和葛叶不是说彩虹有段时间差点要爆炸吗，如果要毕业了希望能把这事儿详细讲讲 ...</blockquote>
+就上次怼鞭挞运营怼虹那次呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8224#       发表于 2020-6-4 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680286&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 22:51</a>
+110凄凄惨惨戚戚的话我推荐可以去找我家小凛哦。</blockquote>
+又车回同居了，百合豚站起来了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+towa有没有机会混进天龙的出租屋，傻紫哪天能出来和夸同居，pekomiko怎么安排作息，银火到底是不是真的，486家能住几个人，小肥妹要选mrr还是狐皇。就算holo炸了，只要聚在一起贴贴，大家还是会来看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8225#       发表于 2020-6-4 23:01
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-6-4 23:03 编辑 
+
+想多了，都炸箱了那肯定是各回各家<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，tc的去tc，nico的回nico。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8226#       发表于 2020-6-4 23:02
+
+
+
+
+播报一下，郡道要玩一个叫《女生风格4：明星造型师》的游戏（[https://www.youtube.com/watch?v=NZHwwxWnKOM](https://www.youtube.com/watch?v=NZHwwxWnKOM)），有点像暖暖，借此机会可以看看郡道的时尚品位，如果将来要出衬衫不会被惊到。
+
+对于这个游戏，以下是我的心声：
+
+我寻思你也没人家古参粪游精通那味道，
+
+
+学别人玩垃圾游戏，
+
+
+结果就这？活该，
+
+
+建议明天konami（好像是任天堂）找上门
+
+
+垃圾垃圾垃圾
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8227#       发表于 2020-6-4 23:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">苔箱原来不是企业啊，草台ofthe草台
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8228#       发表于 2020-6-4 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680395&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-4 23:01</a>
+想多了，都炸箱了那肯定是各回各家，tc的去tc，nico的回nico。</blockquote>
+难得我编出了这么感人的台词不要这么泼我冷水好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+傻子才去nicot台，就算不想混404那也是来阿b当精英散装yhm<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 8229#       发表于 2020-6-4 23:06
+
+
+
+
+鉴于你楼吹死婊活的特点，我有点相信这是杏综了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8230#       发表于 2020-6-4 23:06
+
+
+
+
+2000定型文 开始了？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8231#       发表于 2020-6-4 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尝过了vtb的甜头后，这些yhm怎么可能回去nico和tc受苦啊。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 8232#       发表于 2020-6-4 23:10
+
+
+
+
+那敢情好啊，除了夏吹外都来抱我咩咩的大腿嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8233#       发表于 2020-6-4 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">内啥 小肥妹猫毛过敏 养猫那几个都不行
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8234#       发表于 2020-6-4 23:12
+
+
+
+
+【速报】阿菜，对运营展开了抱怨
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8235#       发表于 2020-6-4 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680448&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 23:09</a>
+
+尝过了vtb的甜头后，这些yhm怎么可能回去nico和tc受苦啊。</blockquote>
+梅丽小姐。。。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8236#       发表于 2020-6-4 23:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680483&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-4 23:12</a>
+
+【速报】阿菜，对运营展开了抱怨</blockquote>
+内容呢？而且她不是摸好久最近才歌回了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8237#       发表于 2020-6-4 23:19
+
+
+
+
+？
+
+
+
+
+
+
+Untitled.png
+(789.61 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-6-4 23:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/231909eevddv6630v60ze0.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8238#       发表于 2020-6-4 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680543&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-4 23:19</a>
+
+？</blockquote>
+不愧是你们俩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8239#       发表于 2020-6-4 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47678820&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-4 20:40</a>
+
+杂谈1w5同接。今晚都这么闲的吗？</blockquote>
+486杂谈还是一直都挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8240#       发表于 2020-6-4 23:31
+
+
+
+
+抱怨了啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我怎么云的11岁摸了好久了
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8241#       发表于 2020-6-4 23:31
+
+
+
+
+紫宝天天这个点播我早晚要疯
+
+我要脱坑，我要脱坑<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8242#       发表于 2020-6-4 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47678972&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-4 20:55</a>
+
+店里mea的宣传。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">没有486的扭蛋草
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8243#       发表于 2020-6-4 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">吃完晚饭突然犯困，一睁眼4小时过去了，发现自己把今晚上V综最巨魔的部分睡过去了，感觉赚了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8244#       发表于 2020-6-4 23:41
+
+
+
+
+鬼水怪谈这片一点都不恐怖啊。。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 8245#       发表于 2020-6-4 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680254&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-4 22:48</a>
+郡推在推那位毕业见习生的好伙伴呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 8246#       发表于 2020-6-4 23:45
+
+
+
+
+害怕···一段时间没看居然都开始安排HOLO爆炸了吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+今天彩虹又是一批2.0。所以说星姐的新衣服什么的有在做吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">新模型跟着就是新歌···
+[https://youtu.be/rumx2dpdu08](https://youtu.be/rumx2dpdu08) 【相羽ういは/健屋花那】ハッピーシンセサイザ歌ってみた   
+
+
+<img src="https://s1.ax1x.com/2020/06/04/tDFXdA.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 8247#       发表于 2020-6-4 23:45
+
+
+
+
+一手情报，明这个月3D
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8248#       发表于 2020-6-4 23:45
+
+
+
+ 本帖最后由 AloissiolA 于 2020-6-4 23:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680540&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-4 23:18</a>
+
+内容呢？而且她不是摸好久最近才歌回了</blockquote>
+掐头去尾式repo：有段时间和运营矛盾，压力很大，想过跑路，但因为rd的活动，再加上运营最近展示出痛改前非的决心，所以不会毕业，至少rd在她就在
+
+
+更加重要的是她的3D定了，<strong>6月19北京晚八点</strong>
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 8249#       发表于 2020-6-4 23:49
+
+
+
+
+在无力支付任天堂的巨额赔偿后，cover破产了。
+
+随着舞台消失，vliver们四处奔散。终于，在不同的地方，她们找到了新的归宿。
+
+在十年后的一个普通的星期天。
+
+一个紫色头发的主妇在案板上切着洋葱，准备着孩子们的午餐。
+
+她的孩子们受了她的影响，也非常喜欢任天堂的游戏，此时客厅的高清电视上在播放着孩子们期待的新一代大乱斗的特别节目。
+
+“妈妈妈妈，你快过来看”她的孩子兴奋的叫了起来“原来游戏人物的动作，是这样演出来的。”
+
+她看向了客厅的电视，只见一个精干瘦小的青年，穿着动捕捉服，在在电视上做着各种帅气而敏捷的动作。
+
+但是她的注意力被其他东西吸引了，这个动捕捉服虽然比她见过的要先进得多，但背景的这个房间有一种让她说不出的熟悉的味道，她的眼神徘徊着，终于在高清电视画面映射出的可以看出细小灰尘的精致画面中的一个不起眼角落中，她看到了一个发黄了的小小的蓝色三角形标志。
+
+她想起这是什么地方了，在这个房间里，曾经存在着她们的梦想，她们的汗水，她们的努力，以及跟她们共同登上更大舞台的那个共同的约定。
+
+等她察觉到了的时候，泪水已经顺着脸颊滴落在了案板上。
+
+“妈妈你怎么哭了？”
+
+
+“没事，妈妈只是被洋葱熏到了而已。”
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  横寺阳人  
+##### 8250#       发表于 2020-6-4 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47680783&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-4 23:45</a>
+
+一手情报，明这个月3D</blockquote>
+大家都复工就排上了阿菜，所以能过万么……
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8251#       发表于 2020-6-4 23:49
+
+
+
+
+痛改前非还行啊，杏那时也重启3D了，20号就是小肥妹了。
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 8252#       发表于 2020-6-4 23:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下班回来是赶紧tlou还是看看菜姐姐3D呢
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8253#       发表于 2020-6-4 23:50
+
+
+
+
+有没有大佬扒一扒ickr为什么这就机械降神了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8254#       发表于 2020-6-4 23:52
+
+
+
+
+看样子动捕房都是六月下旬正式开机阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 8255#       发表于 2020-6-4 23:53
+
+
+
+
+可怕
+3D要全面恢复了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8256#       发表于 2020-6-4 23:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">MIO你之前不就验证过和486一起玩层层恐惧会变得不恐怖么
+
+
+这次看恐怖片还叫486，这都快变成喜剧片了！！
+
+
+
+
+
+
+
+-----
+
+####  横寺阳人  
+##### 8257#       发表于 2020-6-4 23:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">铁混子阿菜真的想过跑路么，摸成这样子还能压力大……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上过O榜第一估计已经回不去了吧，在RD混着也挺开心得。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8258#       发表于 2020-6-4 23:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">所以rd解散你就跑路么？真有你的啊来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8259#       发表于 2020-6-5 00:00
+
+
+
+
+就是因为又懒又摸才会压力大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，估计是kpi不够被马内甲说了吧
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8260#       发表于 2020-6-5 00:00
+
+
+
+
+都说是掐头去尾了，真的关心阿菜自己进会员仔细听，确实挺容易积攒压力的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8261#       发表于 2020-6-5 00:01
+
+
+
+
+所以看前几个月哪些人一转摸鱼的，就是那1/30？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8262#       发表于 2020-6-5 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">就这？
+
+
+散了散了。阿菜连向运营开炮都很菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8263#       发表于 2020-6-5 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47678878&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-4 20:45</a>
+作为hololive观众你不会下盗版？！</blockquote>
+hhhhhh
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8264#       发表于 2020-6-5 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">为什么葵皇就没有分享负能量呢？
+
+没有负能量我们怎么活啊
+
+我需要葵皇暗能量来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8265#       发表于 2020-6-5 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">其实说得蛮重的，但为了菜女士的收入我建议楼友入会员。不过她要把这个档非公开一段时间避免流出，假如流出了还会删档，现在进大概率也听不到
+
+
+
+
+
+                        
