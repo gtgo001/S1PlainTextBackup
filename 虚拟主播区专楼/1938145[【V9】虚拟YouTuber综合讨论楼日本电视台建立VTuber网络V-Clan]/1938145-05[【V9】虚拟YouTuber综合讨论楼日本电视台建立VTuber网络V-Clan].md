@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 04:08** 
+> ## **本文件最后更新于2020-06-04 10:08** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_Sb502" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_Q5AXG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7282,7 +7282,7 @@ E7联动绊爱..
 
 
 好清纯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_V5Q1Z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_g6CCG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Seic_Oh/status/1268124992304107520](https://twitter.com/Seic_Oh/status/1268124992304107520)
 
 
@@ -17866,4 +17866,1600 @@ silent majority
 
 
 
-                  
+
+
+-----
+
+####  Izuru单推人  
+##### 6937#       发表于 2020-6-4 05:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669761&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-4 02:27</a>
+
+正常点行不，狐皇现在有碍着同事养独角兽和玩百合营业么，河水不犯进水不知道你有什么这么值得恨 ...</blockquote>
+响老哥是铁血祭丝，懂了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他自然懂得井水不犯河水的道理，但那是二三四期的事，在他眼中夏哥应该站在二三四期那些养独角兽的那边，而不是和狐皇一起找男人
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6938#       发表于 2020-6-4 05:59
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-4 06:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">找男人也看找谁啊
+
+27jk，好看。
+
+祭律，不好看。
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">而且白上桑的sc不是已经完蛋了吗
+
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 6939#       发表于 2020-6-4 06:49
+
+
+
+
+独角兽+白河豚？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6940#       发表于 2020-6-4 06:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670003&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-4 05:59</a>
+
+找男人也看找谁啊
+
+27jk，好看。
+
+祭律，不好看。</blockquote>
+一个月百五十万JPY怎么看也不算完蛋吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就只看名次指标呗
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 6941#       发表于 2020-6-4 07:05
+
+
+
+
+B限同居有被笑到，为什么觉得夸皇真能做得出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6942#       发表于 2020-6-4 07:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670089&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-4 06:58</a>
+
+一个月百五十万JPY怎么看也不算完蛋吧真就只看名次指标呗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无良企业要搞末位淘汰肯定也是拿同公司比较。
+
+杏这底子和钱包敞开的客群你再找个能比的？而且同社里给白上桑的资源可不比别的liver少，演唱会上都戴皇冠了，原来KPI不及格啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 6943#       发表于 2020-6-4 07:18
+
+
+
+
+真贴贴起来了不怕毒唯吗？你们不会不知道饭圈毒唯能对自家以外的人做出什么吗？
+不过也应该不怕，她们只要时不时更换贴贴营业对象就行了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6944#       发表于 2020-6-4 07:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670132&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-4 07:16</a>
+
+无良企业要搞末位淘汰肯定也是拿同公司比较。
+
+杏这底子和钱包敞开的客群你再找个能比的？而且同社 ...</blockquote>
+等一下，关键指标考核不是要定一个线的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6945#       发表于 2020-6-4 07:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670132&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-4 07:16</a>
+无良企业要搞末位淘汰肯定也是拿同公司比较。
+
+杏这底子和钱包敞开的客群你再找个能比的？而且同社 ...</blockquote>
+把社内第一订阅工商大户末位淘汰不是无良企业是无脑企业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 6946#       发表于 2020-6-4 07:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670132&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-06-04 07:16:51</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这还不及格，那几个金发底边早开了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6947#       发表于 2020-6-4 07:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670146&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-4 07:21</a>
+
+等一下，关键指标考核不是要定一个线的吗你怎么晓得他们的线在哪儿的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">现在KPI考核都是综合计量表不是简单划线。
+
+打个比方，一个部门里你跑的单子没比别人多，但借口商务应酬多所以报销也比别人多，你觉得老板会让你继续努力多应酬，还是假装关心你让你歇一歇放个假<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6948#       发表于 2020-6-4 07:30
+
+
+
+
+狼性企业.jpg
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6949#       发表于 2020-6-4 07:30
+
+
+
+
+我能理解成商务应酬是暗示狐皇跑外面吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 6950#       发表于 2020-6-4 07:36
+
+
+
+
+整个一期生客群的打钱力度都不如三四期啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6951#       发表于 2020-6-4 07:47
+
+
+
+ 本帖最后由 ひびき 于 2020-6-4 07:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669761&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-06-04 02:27:16</a>
+
+正常点行不，狐皇现在有碍着同事养独角兽和玩百合营业么，河水不犯进水不知道你有什么这么值得恨的。 ...</blockquote>
+狐皇拉自己的（前）贴贴营业对象去养男人约等于在自己之前的cp受众头上拉屎<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 
+
+
+而且带的是夏吹不是真贴贴的fbkmio，相当于拉两道
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 6952#       发表于 2020-6-4 07:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670163&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-06-04 07:27:39</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是狐皇跑得单子是最多的啊，特别公司老板的友情单也接，跟那几个风光无限的新入社员直接暴言不接老板单
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 6953#       发表于 2020-6-4 07:49
+
+
+
+
+大家不能开发点不带阿葵的辱8250方式吗
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6954#       发表于 2020-6-4 07:49
+
+
+
+
+狼性企业的田角有要天皇刷SC吗，JK组的SC加起来127w而且一大半是天皇的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6955#       发表于 2020-6-4 07:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670232&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 07:47</a>
+狐皇拉自己的（前）贴贴营业对象去养男人约等于在自己之前的cp受众头上拉屎 
+
+
+而且带的是夏吹不是 ...</blockquote>
+老实说我觉得小肥妹和星联动应该真是自愿的，搞不好还是主动找上狐皇的…
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6956#       发表于 2020-6-4 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670235&amp;ptid=1938145" target="_blank">飞姆托 发表于 2020-6-4 07:48</a>
+
+但是狐皇跑得单子是最多的啊，特别公司老板的友情单也接，跟那几个风光无限的新入社员直接暴言不接 ...</blockquote>
+他理解的跑单是让观众打SC啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜这些出去喝酒的活在他眼里是0价值的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6957#       发表于 2020-6-4 07:58
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-4 08:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们会觉得那些手游工商特别是舰B联动都要算白上桑的业绩，这一点就是她能屹立不倒的资本啊，玩印象控制比兔组或2000高上不知多少个石先生。
+
+木口团队的成绩就是白上桑的成绩，耳关即国家<img src="https://static.saraba1st.com/image/smiley/animal2017/013.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6958#       发表于 2020-6-4 08:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">響老哥也直球说去给Stars引流是在百合豚/独角兽/gachi恋头上拉屎了，Stars借由夏色吹雪直接引流带来的营收增加和惹到了百合豚/独角兽/gachi恋导致的营收减少究竟哪边比较大呢？
+反正总体上升期这些蠢操作能靠后辈努力补回来。Yagoo塞过来的老板单是不是毒单，接不到的二三四期信也不关心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+另外不是一期生客群不行，杏中国进出最风光的时候祭的SC也是收的比白上桑高的。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6959#       发表于 2020-6-4 08:16
+
+
+
+
+夏色吹雪这种一个拿订阅一个拿SC的营业CP算不算win-win呢，不对，两人还合力给Stars引流，三赢！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6960#       发表于 2020-6-4 08:16
+
+
+
+ 本帖最后由 colodes 于 2020-6-4 08:49 编辑 
+
+编辑。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6961#       发表于 2020-6-4 08:24
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-4 08:32 编辑 
+
+可小肥妹本来也不是不和男V联动啊，我还觉得找律可不比找别的安全点吗…
+至于狐狸自己爱杀gachi那是她的事，她不和星联动也会去杀gachi，至少我对她的怨气基本不来自星<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+想了想，应该说我觉得不是和星联动导致了夏吹现在的路线，而是夏吹选了现在的路线才去找星联动。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 6962#       发表于 2020-6-4 08:31
+
+
+
+
+那该讨论一下小肥妹酒后打社筑电话和化身黛灰界限推有没有杀独角兽了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6963#       发表于 2020-6-4 08:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670386&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-06-04 08:16:14</a>
+夏色吹雪这种一个拿订阅一个拿SC的营业CP算不算win-win呢，不对，两人还合力给Stars引流，三赢！ ...</blockquote>404那边夏哥的sc不是因为夏吹，狐皇的订阅也不是因为夏吹，给星引流也没引成
+
+真靠夏吹吃到的好处只有b这边的知名度和几次工商
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 6964#       发表于 2020-6-4 08:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670106&amp;ptid=1938145" target="_blank">LunarCorona_VOV 发表于 2020-6-4 07:05</a>
+
+B限同居有被笑到，为什么觉得夸皇真能做得出来</blockquote>
+不是做的出来 而是早就用过的招了 不过没什么必要了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6965#       发表于 2020-6-4 08:42
+
+
+
+
+再加一个。游戏部一代目大舅子毕业的时候阿希还哭了呢，啊，抱歉忘记哭是养gachi的一环了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 6966#       发表于 2020-6-4 08:42
+
+
+
+
+star早期在冲国进出是夏组帮忙的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6967#       发表于 2020-6-4 08:45
+
+
+
+
+明明夏吹前两天才两周年apex开箱对决过<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6968#       发表于 2020-6-4 08:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670613&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 08:45</a>
+
+明明夏吹前两天才两周年apex开箱对决过</blockquote>
+这对决两个人分别玩抽卡钱也不会少啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  倒不如说凸显了现在营业虚无到了什么程度
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6969#       发表于 2020-6-4 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670637&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 08:47</a>
+这对决两个人分别玩抽卡钱也不会少啊  倒不如说凸显了现在营业虚无到了什么程度 ...</blockquote>
+对决还是有效果的吧，至少我觉得比单人开箱有意思多了
+虽然两周年来这个是有点…
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6970#       发表于 2020-6-4 08:50
+
+
+
+
+夏哥想分享财富密码给好姐妹。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6971#       发表于 2020-6-4 08:53
+
+
+
+
+抽卡对决在夏哥台最高刷到1w5，明明是喜闻乐见的好活
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6972#       发表于 2020-6-4 08:54
+
+
+
+ 本帖最后由 ひびき 于 2020-6-4 09:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670647&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 08:48</a>
+
+对决还是有效果的吧，至少我觉得比单人开箱有意思多了
+
+虽然两周年来这个是有点… ...</blockquote>
+阿希自己抽1.9万同接10万sc，和狐皇一起抽1.4万同接2万sc<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+syl，阿希五月sc基本全部集中在抽卡，这财富密码失效了估计就跌回前几个月的200万-了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6973#       发表于 2020-6-4 08:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670715&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 08:54</a>
+阿希自己抽1.7万同接10万sc，和狐皇一起抽1.4万同接2万sc</blockquote>
+用过不止次效果当然要打折扣
+syl，今日订阅激战区<img src="https://p.sda1.dev/0/4a39041737c7e2a9de02ae1a4edc29e3/IMG_20200604_085435.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 6974#       发表于 2020-6-4 08:57
+
+
+
+
+我发现好像无论世界上哪个地方的人都喜欢看抽卡→人类本质上就喜欢赌博<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6975#       发表于 2020-6-4 08:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670727&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 08:55</a>
+
+用过不止次效果当然要打折扣
+
+syl，今日订阅激战区</blockquote>
+你是不是很久没刷新了...前三个都已经再+1000了
+
+
+兔皇今天把龙屠了，前五的顺位就是严格的一期-二期-Gamers-三期-四期的系列序了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6976#       发表于 2020-6-4 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47666821&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-3 20:20</a>
+如果夸宝实在想播任系，可以来b站做散装yhm。</blockquote>
+放肆，怎么可以叫我k神散装，我k神一个人就是整个环境！一人成军<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6977#       发表于 2020-6-4 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670750&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-4 08:57</a>
+你是不是很久没刷新了...前三个都已经再+1000了
+
+
+兔皇今天把龙屠了，前五的顺位就是严格的一期-二期-Game ...</blockquote>
+昨天睡觉前截的…这就又加了1000吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6978#       发表于 2020-6-4 08:59
+
+
+
+
+这同时冲击40w太壮观了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6979#       发表于 2020-6-4 09:00
+
+
+
+
+昨天看了一个外国大胡子看holo摇的视频，他说多亏自己受到的教育否则就要冲动打钱了，但是摸着自己的胡子说没人会指责你给男人打SC。木口要打破“欧美白嫖”的窘境看来要靠Stars了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我期待着律可英翻组帮助建立夏色祭英翻组的那一天能到来<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6980#       发表于 2020-6-4 09:02
+
+
+
+
+超时空回复挺尴尬的😅
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6981#       发表于 2020-6-4 09:04
+
+
+
+
+喵宫昨天联动日增破千<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6982#       发表于 2020-6-4 09:04
+
+
+
+ 本帖最后由 ひびき 于 2020-6-4 09:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670797&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-4 09:00</a>
+
+昨天看了一个外国大胡子看holo摇的视频，他说多亏自己受到的教育否则就要冲动打钱了，但是摸着自己的胡子说 ...</blockquote>
+夏色祭英翻组早就有了啊，而且还分进口转出口的和洋人的，不然你以为几个月前姓夏的还有那几个金发收益化怎么回来的？那是洋大人翻译告洋状要回来的好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6983#       发表于 2020-6-4 09:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47667091&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-3 20:44</a>
+不准歧视英文，小心把你屋子给掀了
+
+EOP Lives Matter!</blockquote>
+&lt;ソンナコトナイヨ&gt;（只有利托老哥看得懂的梗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+EOP本来就是世界宅juan的铁达利特，他们自我矮化都完成了，卑微的一笔，何况欧美人看得下去男人多半一方面是因为对日本文化和新鲜的偶像箱商法的无脑全肯定，另一方面单纯是因为欧美对于性的看法远不如咱们这么分明，yy脑的男友粉独角兽也极端稀少的缘故吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟在现实生活中白男甚至黑男的求偶危机感远低于咱们啊
+
+不过由于欧美的第一批v粉里十个有九个是肥妹痴（还有一个是主推亏哥或者白银哈特的杏箱粉）所以杏星在各论坛讨论度最高的毫无疑问是rikka，也算是先生一桩意外之喜了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6984#       发表于 2020-6-4 09:07
+
+
+
+
+杏箱倒霉，winda老哥又兴奋起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">关键是他还不是幸灾乐祸，而是明显的ptsd发作，一边“太像了太像了”一边把存着的阿普兰德大灾变的屎拿出来边品边哭
+
+点生活我**！你把多少人的生活都他妈毁了！<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">（本気
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6985#       发表于 2020-6-4 09:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47667270&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-3 21:01</a>
+劈运营不是你楼政治正确吗，谁不想看第三、第四、第五份お詫び挂在cover官网上 ...</blockquote>
+主要是之前ai老哥你比较韬晦所以楼里以为你是虹信存粮了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+八过这次你久违开劈我也有声音好吧，之前你yygq啊杏还蛮有风格的，最近劈得有点直球，观赏性略微下降嗷<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6986#       发表于 2020-6-4 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47670831&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-06-04 09:04:56</a></blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我还以为是散兵游勇。夏组把事做绝，Stars要如何报恩啊。不要太过分了，夏组！
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6987#       发表于 2020-6-4 09:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47667597&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-3 21:34</a>
+HOLO母性最强的是谁来着</blockquote>
+是羊姐！但是wtm同居的结果是不但找了个妈妈还找了个爸爸，那我估计女友粉erer现场螺旋升天
+
+（其实是三才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6988#       发表于 2020-6-4 09:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47667719&amp;ptid=1938145" target="_blank">null0304 发表于 2020-6-3 21:46</a>
+就不能是那种，在堆满amazon纸箱的小屋里，屋子里残存着便利店便当里的红姜气味，两个人并排躺在床上无言打 ...</blockquote>
+杏星老姐也太懂了，其实你再就业前就是neet吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 6989#       发表于 2020-6-4 09:20
+
+
+
+
+建议虹人以联动名义出售任播权，实际操作时买方单开台只放个纸片或标题写个联动对象，连人都不用到
+自己播任比起原来还会要被任任多抽一层水，这卖任播权就是无本买卖
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6990#       发表于 2020-6-4 09:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47668466&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-3 23:03</a>
+可是yindi和yinjing是同源器官，磨豆腐和击剑本质上是一样的</blockquote>
+但是击剑不是真的拿剑互击啊，主要还是以同性之身模拟两性行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6991#       发表于 2020-6-4 09:22
+
+
+
+
+很好，这楼stars的gachi、中立和anti都有了，再加上CN和ID在这里的讨论度也不低，足够当讨论度了，我再次提请楼主将“Hololive”改成“HoloP”<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 6992#       发表于 2020-6-4 09:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 建议囚人太监以联动名义出售月之播放权，
+
+
+实际操作就是花钱加入月之无敌整活百物语愚人节活动，
+
+
+挂个立绘——50w
+
+
+语音连麦——100w
+
+
+我想了很久，之所以囚人太监不满意月之无敌整活百物语愚人节有人蹭热度，就是因为没有收入，没有钱，
+
+
+建议把广告环节加入到月之无敌整活百物语愚人节里面
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 6993#       发表于 2020-6-4 09:25
+
+
+
+
+黑宝在圣经后怎么越来越巨魔了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|倒不如说我本来就这样，在你楼一般很收敛罢.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6994#       发表于 2020-6-4 09:27
+
+
+
+
+黑宝的恶堕，没一个人是无辜的，但这才是正常人啊，纯良老没意思了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6995#       发表于 2020-6-4 09:28
+
+
+
+
+给黑宝一个好消息，不管是国人夏组还是洋人夏组都支持和星联动  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6996#       发表于 2020-6-4 09:31
+
+
+
+
+所以此楼可以是live star cn id 就是不能是2434<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6997#       发表于 2020-6-4 09:31
+
+
+
+
+狐狸的每天早上猛男捡树枝变成了猛男送快递了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6998#       发表于 2020-6-4 09:32
+
+
+
+
+黑宝这么在意holoP这个名头吗，反正不是标题，我改下是无所谓啦，niji也是nijiP来着的
+
+顺便把点哥哥也加了吧，点哥哥现在好起来了，御三家的座位还是可以坐一坐的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6999#       发表于 2020-6-4 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671048&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 09:28</a>
+
+给黑宝一个好消息，不管是国人夏组还是洋人夏组都支持和星联动    至少他们表现出来是这样的 [f:048 ...</blockquote>
+国人夏组我知道，我又不是没关注stars组长的个人号，他是夏组的后期，国内最早的stars相关剪辑就是他做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">洋人我就不知道了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7000#       发表于 2020-6-4 09:33
+
+
+
+
+尾宝高强度对线
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7001#       发表于 2020-6-4 09:36
+
+
+
+ 本帖最后由 opersuper 于 2020-6-4 09:38 编辑 
+
+点没有领军人物又自闭没讨论度，最多车一车运营又有什么神奇操作。有没有人科普一下点四个人进出的新平台是什么地方
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7002#       发表于 2020-6-4 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671092&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-4 09:32</a>
+
+黑宝这么在意holoP这个名头吗，反正不是标题，我改下是无所谓啦，niji也是nijiP来着的
+
+顺便把点哥哥也加了 ...</blockquote>
+其实我对木口P根本没什么认同感就是了，但我怎么想有啥用，官方文书这么写也没办法
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7003#       发表于 2020-6-4 09:40
+
+
+
+
+对holo没有认同感，却抱怨有难不同当，真的巨魔起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7004#       发表于 2020-6-4 09:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 黑宝也有囚人太监味了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7005#       发表于 2020-6-4 09:44
+
+
+
+
+傲娇，挺可爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7006#       发表于 2020-6-4 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671193&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-4 09:40</a>
+
+对holo没有认同感，却抱怨有难不同当，真的巨魔起来了</blockquote>
+还是那句话，官方文书是那样，又有什么办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都不知道我啥时候认同现实，啥时候认同自己，所以才表现地摇摆不定
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7007#       发表于 2020-6-4 09:47
+
+
+
+ 本帖最后由 colodes 于 2020-6-4 09:52 编辑 
+
+Youtube快报
+
+PewDiePie回到Youtube直播，这是昨天的SC
+
+<img src="https://img.saraba1st.com/forum/202006/04/094359okwmeewwmr0mwdnm.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-04 094258.png</strong> (103.05 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 09:43 上传
+
+
+
+
+
+
+
+这是pekora昨天的SC
+
+<img src="https://img.saraba1st.com/forum/202006/04/094405muan3cgxu4w4ofum.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-04 094349.png</strong> (94.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 09:44 上传
+
+
+
+
+
+
+
+V界最高记录的coco
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/095110nczqzqse3sj0qdod.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-04 095038.png</strong> (105.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 09:51 上传
+
+
+
+
+
+
+
+pewdiepie普通拳 ≈ pekora认真拳*10 &gt; coco全力一击*2  格付け完了
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 7008#       发表于 2020-6-4 09:53
+
+
+
+<blockquote>opersuper 发表于 2020-6-4 09:36
+点没有领军人物又自闭没讨论度，最多车一车运营又有什么神奇操作。有没有人科普一下点四个人进出的新平台是 ...</blockquote>
+斗鱼日本版，另外，白姨还没食杀小白呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7009#       发表于 2020-6-4 09:53
+
+
+
+
+话说早上，薰钓鱼的时候，狐皇在他直播间打了12000JPY的SC？
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7010#       发表于 2020-6-4 09:54
+
+
+
+
+holocn都有人反攻twitch了，效果甚至还不错，建议搬回v综<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 7011#       发表于 2020-6-4 09:55
+
+
+
+
+白上フブキ＠ﾄﾞｯｶｰｰｰﾝﾅｲｽｼｮｯﾄｫｫ@shirakamifubuki
+
+返信先: @kiryucoco
+
+新MAPからっARK復帰するっ！！また遊ぼう！！！！会長！！！！！！！(^・ω・^§)ﾉ
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|お前さぁ|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 7012#       发表于 2020-6-4 09:58
+
+
+
+
+然后玩个两把又不玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7013#       发表于 2020-6-4 10:00
+
+
+
+
+狗皇决定什么时候播辐射了吗？有点好奇数字。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7014#       发表于 2020-6-4 10:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671429&amp;ptid=1938145" target="_blank">yuanhang99 发表于 2020-6-4 10:00</a>
+
+狗皇决定什么时候播辐射了吗？有点好奇数字。</blockquote>
+&gt;2w证明之前大家播管人金游是管人不行
+
+&lt;2w证明之前大家播管人金游是管人观众不行
+
+&gt;3w证明之前大家播管人金游是因为大家都是废物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7015#       发表于 2020-6-4 10:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那彩虹都是垃圾five了，嘻嘻，没事的
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7016#       发表于 2020-6-4 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671365&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-4 09:55</a>
+白上フブキ＠ﾄﾞｯｶｰｰｰﾝﾅｲｽｼｮｯﾄｫｫ@shirakamifubuki
+
+返信先: @kiryucoco
+
+新MAPからっARK復帰 ...</blockquote>
+这就是死者复生吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 7017#       发表于 2020-6-4 10:05
+
+
+
+
+游戏好不好玩和直播好不好看没有必然联系啊，播辐射感觉没什么看点
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7018#       发表于 2020-6-4 10:06
+
+
+
+
+没办法，少主死都不想玩MC的样子solo末影龙除外，那不是只好退守ARK了
+
+
+
+
+
+                
