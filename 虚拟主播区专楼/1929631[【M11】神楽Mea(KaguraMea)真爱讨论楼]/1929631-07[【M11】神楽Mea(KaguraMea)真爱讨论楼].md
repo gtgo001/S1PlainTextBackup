@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 12:05** 
+> ## **本文件最后更新于2020-06-04 16:05** 
 
 
 
@@ -24472,7 +24472,7 @@ syl，饭盒dlc里还是有那么几个字的新内容8<img src="https://static.
 
 
 16735745-361F-45B5-9152-9FF9222B5238.png
-(40.07 KB, 下载次数: 1)
+(40.07 KB, 下载次数: 2)
 
 
 
@@ -24659,4 +24659,833 @@ syl，饭盒dlc里还是有那么几个字的新内容8<img src="https://static.
 
 
 
- 
+
+
+-----
+
+####  ryy3jk  
+##### 10442#       发表于 2020-6-4 12:11
+
+
+
+
+她只是作息不规律，不是睡眠不足，其实没什么好担心的，才19岁的年轻人，而且她体型也挺结实（
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 10443#       发表于 2020-6-4 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672100&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-4 10:52</a>
+
+久美子是真的久美子是真的久美子是真的久美子是真的久美子是真的久美子是真的久美子是真的久美子是真的 ...</blockquote>
+那夸怕不是捡来的。天天熬夜和红牛熬夜玩24h耐久是报了多少人身保险？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10444#       发表于 2020-6-4 12:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47673188&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-6-4 12:14</a>
+
+那夸怕不是捡来的。天天熬夜和红牛熬夜玩24h耐久是报了多少人身保险？</blockquote>
+还 不 给 装 空 调
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10445#       发表于 2020-6-4 12:18
+
+
+
+
+什么v什么妈<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10446#       发表于 2020-6-4 12:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">M楼什么时候改a楼的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10447#       发表于 2020-6-4 12:34
+
+
+
+
+啥时候16.9w了…7月有望20w?
+数字民爽死了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 10448#       发表于 2020-6-4 12:34
+
+
+
+
+这不是谈作息不小心歪到A上了吗？隔壁王侯已经被逼的要求mea出山揪出江良了。有点好奇你咩迷上扭曲仙境会是什么样子。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10449#       发表于 2020-6-4 12:36
+
+
+
+
+月增三万对你mea姐不现实啊，不过今年20万是稳了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 10450#       发表于 2020-6-4 12:46
+
+
+
+
+反观b站今年百万有希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10451#       发表于 2020-6-4 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47673630&amp;ptid=1929631" target="_blank">Kayz996 发表于 2020-6-4 12:46</a>
+反观b站今年百万有希望吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+基本够呛，得平均一天1000+才行，慢慢磨了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 10452#       发表于 2020-6-4 12:54
+
+
+
+
+B站能过80万就偷着乐吧，停留在77万多久了，掉粉进行时。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10453#       发表于 2020-6-4 12:54
+
+
+
+
+就这日增200的速度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我觉得b以后就是国v的天下了，现在挺不错的，多播点lol就好
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10454#       发表于 2020-6-4 12:57
+
+
+
+
+看了下b站日增榜，狗妈都只能日增1000的时代，想保持日增1000那只能建议转型舟游up主了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10455#       发表于 2020-6-4 12:57
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-4 13:03 编辑 
+
+不知道下回她再心血来潮高强度b限LOL是啥时候<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忽然感觉还挺有意思的
+
+syl现在手游圈水也挺深的，前段时间看到个帖子，有人特别zqsg的怒喷小狐狸蝗完舰b甩脸不认人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10456#       发表于 2020-6-4 12:59
+
+
+
+
+我幻想过咩当b的手游推广工具人的，感觉挺不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10457#       发表于 2020-6-4 13:01
+
+
+
+
+不过咩联动吸粉挺厉害的，继续下去今年404粉丝可能真能做到前列。b也别太着急，毕竟现在都上班上学了谁有空追直播（）
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10458#       发表于 2020-6-4 13:05
+
+
+
+
+疫情后我忙得连楼gachi都当不了了，事业民也要考虑历史的进程啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10459#       发表于 2020-6-4 13:11
+
+
+
+
+情弱问下还有新秀的无其他要素加成的个人势吗？你麻第一个人势指日可待？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 10460#       发表于 2020-6-4 13:12
+
+
+
+
+有一说一狐狸瓜油那事确实有点理亏。狐狸自己立真·瓜油粉丝人设蹭热度，蹭完了转头开始高强度明日方舟。瓜油玩家对狐狸有梁木也挺正常的。
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10461#       发表于 2020-6-4 13:13
+
+
+
+
+涨粉从来都是靠视频和推广，跟直播没啥关系。官组把她前年有趣的视频拿出来烤了，然后粉丝平时在外面多用mea的沙雕图，比她直播涨粉要快许多
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10462#       发表于 2020-6-4 13:20
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-4 13:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674003&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-4 13:13</a>
+涨粉从来都是靠视频和推广，跟直播没啥关系。官组把她前年有趣的视频拿出来烤了，然后粉丝平时在外面多用me ...</blockquote>
+你这也太去中心化了，咱俩看法正好相反<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不指望她播的更稳定点，我觉得这些都没啥用
+
+syl你mea姐头上的个人势不少啊，犬山名取，还有前面说到的虚拟bba，虽说不要妄自菲薄但也别把世界想的太小啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+zsyl主要是一般人真不会想到舰b和方舟有那种冲突吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10463#       发表于 2020-6-4 13:26
+
+
+
+
+不要为了反去中心化而否决非中心的行为，况且剪辑又不是虚空二创，两手都要抓，两手都要硬
+
+      
+
+syl，所以我才说是没有其他要素的个人势啊，名取下不就是你麻了，名取现在感觉又摸
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10464#       发表于 2020-6-4 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674154&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-6-4 13:26</a>
+不要为了反去中心化而否决非中心的行为，况且剪辑又不是虚空二创，两手都要抓，两手都要硬
+
+      
+
+syl，所 ...</blockquote>
+刚想回点啥又感觉这挺去中心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你要有兴趣咱可以去隔壁字幕组楼/贴贴楼/anti楼啥的聊
+
+不算名取也还有虚拟bba啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然没看过但也是二十多万订阅五六千同接的个人势，就是在这边没啥讨论度而已
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 10465#       发表于 2020-6-4 13:30
+
+
+
+
+我是觉得你咩姐无论做什么都阻止不了下坡路。当年在中国火起来是黑天鹅事件，早期市场空虚红利一直吃到现在。现在就算3d爆款估计也救不了，毕竟你咩姐并不是一个喜欢去争取的性子。如果没有之前的捐款，说不定真和她说的一样早就结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。
+
+真要追她就佛性点看吧。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10466#       发表于 2020-6-4 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674203&amp;ptid=1929631" target="_blank">yuanhang99 发表于 2020-6-4 13:30</a>
+我是觉得你咩姐无论做什么都阻止不了下坡路。当年在中国火起来是黑天鹅事件，早期市场空虚红利一直吃到现在 ...</blockquote>
+事业民发病我记得在上个月还是上上个月就被预测到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">疫情那俩月b站的vtb数字都高歌猛进，这段时间疫情差不多过了，各家数字都低了，普通的波动而已，事业民就不要发病了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10467#       发表于 2020-6-4 13:38
+
+
+
+
+事业民发病说明活粉多起来了，是好事，偷偷告诉你们，去年有一天，你咩姐日增是0，是0啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10468#       发表于 2020-6-4 13:46
+
+
+
+
+事业民建议看看这种东西。
+[https://www.bilibili.com/video/BV1Mp4y1Q7wS?from=search&amp;seid=17029191409619896185](https://www.bilibili.com/video/BV1Mp4y1Q7wS?from=search&amp;seid=17029191409619896185)
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10469#       发表于 2020-6-4 13:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么时候肉体厨才能多起来呢
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10470#       发表于 2020-6-4 13:59
+
+
+
+
+那该来点麻爪了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10471#       发表于 2020-6-4 14:03
+
+
+
+
+我感觉最近挺好的，就是希望赶快网络换运营
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 10472#       发表于 2020-6-4 14:03
+
+
+
+
+咩姐现在日子过得不错，本土数据不断向好，国内基本盘能维持住，因为疫情没掉的3d、bls、周边没法急，没有明确的努力目标正常啊
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 10473#       发表于 2020-6-4 14:25
+
+
+
+
+她的网络是啥时候变差的啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+应该是没换过网络吧，真就是疫情期间日本待家里上网人多的问题吗？
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 10474#       发表于 2020-6-4 14:31
+
+
+
+
+我觉得可能是因为太多人用网络了，我家网2.3月份的时候也不太好<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10475#       发表于 2020-6-4 14:43
+
+
+
+
+去年4月份30w粉到12月前期50w粉用了8个月，而且现在木口那边的人基本上和这边没交集都自己消化了，事业民想要百万等下个寒假吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（可能都不一定
+
+实在不行还能做404事业民不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+年内20w应该是没跑了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10476#       发表于 2020-6-4 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事业民是看虹杏看多了吧，晚上8点自己去翻下hiyoko同接三位数甚至两位数个位数的微图吧有多少个，你麻已经算前列的了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10477#       发表于 2020-6-4 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人往高处走也没错嘛，虽然怎么走都得她自己走，那句话怎么说的来着……你们只关心你咩走的有多高，不关心她走的有多累，呜呜呜（ry
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10478#       发表于 2020-6-4 15:09
+
+
+
+
+累了就让我帮你放松放松吧，用我认为的方法<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10479#       发表于 2020-6-4 15:13
+
+
+
+
+你楼还不如过去的弱智有趣， 楼噶吃脱粉了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 10480#       发表于 2020-6-4 15:16
+
+
+
+
+https://b23.tv/PfRovM 可爱
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10481#       发表于 2020-6-4 15:16
+
+
+
+
+各种各样的不安otaku.jpg
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10482#       发表于 2020-6-4 15:18
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-4 15:20 编辑 
+
+上个月联动的时候mc都卡得没玩成，再然后打雀魂都容易掉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，网络真的烂。不知道本子那边解禁了能不能及时修复
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10483#       发表于 2020-6-4 15:21
+
+
+
+
+流量民何时才能不被污名化为事业民呜呜呜，这冰冷的咩楼只有麻图才能有些许温度，有亡国民能来几张新麻图么
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 10484#       发表于 2020-6-4 15:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自己动手丰衣足食
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10485#       发表于 2020-6-4 15:35
+
+
+
+
+看提到肉体厨，忽然就想着去b站一搜……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f1a2e05c5cef0fcf9c0a218a390a7095/IMG_C63621D26F83CD91B7695F4B08DED381.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10486#       发表于 2020-6-4 15:42
+
+
+
+
+谁人不知火腿肠<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10487#       发表于 2020-6-4 15:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">想看新麻图
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">想看大象腿
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10488#       发表于 2020-6-4 15:45
+
+
+
+
+麻是谁，不认识，有推特吗
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 10489#       发表于 2020-6-4 15:49
+
+
+
+
+火腿肠从爱尔兰到契丹无人不识无人不晓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+

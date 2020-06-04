@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 14:09** 
+> ## **本文件最后更新于2020-06-04 16:13** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_Ie42c" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_CPySM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7282,7 +7282,7 @@ E7联动绊爱..
 
 
 好清纯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_obFmM" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_wn0RT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Seic_Oh/status/1268124992304107520](https://twitter.com/Seic_Oh/status/1268124992304107520)
 
 
@@ -25241,7 +25241,7 @@ https://weibo.cn/comment/J51LJtbbC?rl=1&amp;vt=1#cmtfrm
 
 
 735bcd72ly1gffvce5akij20yi1e5e1r.jpg
-(80.12 KB, 下载次数: 3)
+(80.12 KB, 下载次数: 4)
 
 
 
@@ -26192,4 +26192,1845 @@ bcr狂暴牛害人
 
 
 
-    
+
+
+-----
+
+####  UnhappyTails  
+##### 7380#       发表于 2020-6-4 14:10
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-4 14:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674630&amp;ptid=1938145" target="_blank">null0304 发表于 2020-6-4 14:08</a>
+
+是日语粉（断断续续看到三个提到这个的，其中一个英文ID）
+
+*在做其他事情可能有看漏的可能性 ...</blockquote>
+
+那看来真是推特商法好起来了，好迷啊，这是什么天选之人的剧本
+
+
+syl
+
+莎莎会不会火起来啊，好想看到莎莎直播间来的欧美和立本粉哦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7381#       发表于 2020-6-4 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674655&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:10</a>
+那看来真是推特商法好起来了，好迷啊，这是什么天选之人的剧本
+
+
+syl</blockquote>
+holo已经这么强了吗，扩圈都扩到这种地步了，好羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 7382#       发表于 2020-6-4 14:15
+
+
+
+
+22姐要压不住了
+
+都记下了，到时候都会有的好吧
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 7383#       发表于 2020-6-4 14:18
+
+
+
+
+可是朵根本没有运营twi啊，同期比起来真的是天差地别<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 7384#       发表于 2020-6-4 14:19
+
+
+
+
+对了，做一回伸手党，国内同人音声资源比较丰富的资源站是啥，之前看你们车利香正常活动的时候一直会发那个看起来像资源站的网站
+
+
+那个不是的话别的也可以<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太难找了只能去批站找资源
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7385#       发表于 2020-6-4 14:19
+
+
+
+
+不要慌，劈杏扩圈这块你永远可以信任夜王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7386#       发表于 2020-6-4 14:19
+
+
+
+
+南+呗 最全的
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 7387#       发表于 2020-6-4 14:20
+
+
+
+
+同人音声资源可以去南+论坛啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 7388#       发表于 2020-6-4 14:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674747&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:19</a>
+
+对了，做一回伸手党，国内同人音声资源比较丰富的资源站是啥，之前看你们车利香正常活动的时候一直会发那个 ...</blockquote>
+南+
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7389#       发表于 2020-6-4 14:21
+
+
+
+
+夜王不是维阿的人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睡前消息  
+##### 7390#       发表于 2020-6-4 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674747&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:19</a>
+
+对了，做一回伸手党，国内同人音声资源比较丰富的资源站是啥，之前看你们车利香正常活动的时候一直会发那个 ...</blockquote>
+www丨south-plus丨net
+
+金币靠签到基本够用
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 7391#       发表于 2020-6-4 14:22
+
+
+
+ 本帖最后由 NBXX 于 2020-6-4 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674747&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:19</a>
+
+对了，做一回伸手党，国内同人音声资源比较丰富的资源站是啥，之前看你们车利香正常活动的时候一直会发那个 ...</blockquote>
+和楼上重复发言，编辑
+
+————————————
+
+顺便借楼问一下 新人魔王マグロナ、南国バカンス～とまりとおとまり～
+
+这部兔鞠和金枪鱼的片有资源吗，上次在南+没求到。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7392#       发表于 2020-6-4 14:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊，有一说一，确实。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 7393#       发表于 2020-6-4 14:23
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-4 14:24 编辑 
+
+谢谢诸位，今天鹅上限了，之后再找机会加<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+syl
+
+这个南加和之前的魂加还有北加到底啥关系啊，站长还是那个澄空创始人吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7394#       发表于 2020-6-4 14:25
+
+
+
+
+米国留学生都要用南＋的吗，这个世界还能不能好了
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 7395#       发表于 2020-6-4 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674809&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:23</a>
+
+谢谢诸位，今天鹅上限了，之后再找机会加
+
+syl
+
+这个南加和之前的魂加还有北加到底啥关系啊，站长还是 ...</blockquote>
+同一个站，只是被墙的次数太多了，有时候站长就索性换个名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 7396#       发表于 2020-6-4 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674858&amp;ptid=1938145" target="_blank">yuandi0120 发表于 2020-6-4 14:27</a>
+
+同一个站，只是被墙的次数太多了，有时候站长就索性换个名字</blockquote>
+其实我也算是魂+老用户了，只是毛站裂开以后的的时候实在是绅士之庭的ui更人性化，就去那边了，不过一直不知道魂+的音声这么丰富<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 7397#       发表于 2020-6-4 14:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674826&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 14:25</a>
+
+米国留学生都要用南＋的吗，这个世界还能不能好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7398#       发表于 2020-6-4 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674888&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:29</a>
+
+你还别说，去那之前我不会用代理，我开始用魂+反而是从出国以后才开始的 ...</blockquote>
+hellven|net 
+
+
+这个是棒子毛站，主要使用mega盘
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 7399#       发表于 2020-6-4 14:38
+
+
+
+
+郡道在推上问hk和上海的迪斯尼哪个好玩，打算年后去，果不其然下面一水的推荐hk，然后还有人贴出了月之的上海游记......我看她必去hk了。
+
+日本迪斯尼不应该吊打东亚一片吗？怎么会想去别的地方啊......内容不同嘛？
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7400#       发表于 2020-6-4 14:40
+
+
+
+
+HK和上海那个都一般，相对USS和USJ来说。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7401#       发表于 2020-6-4 14:42
+
+
+
+ 本帖最后由 ひびき 于 2020-6-4 14:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47674655&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-4 14:10</a>
+
+那看来真是推特商法好起来了，好迷啊，这是什么天选之人的剧本
+
+
+syl</blockquote>
+不会，欧美木口粉都是达利特中的达利特，蘑菇人这口婆罗门太硬了，吃不下<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+虽说muv在某vn评分站上排名第一。。。。。。然鹅已经和绝大多数欧美观众无交集
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 7402#       发表于 2020-6-4 14:43
+
+
+
+
+就日本那样……落地隔离的，还来什么上海哦
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 7403#       发表于 2020-6-4 14:43
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 7404#       发表于 2020-6-4 14:43
+
+
+
+
+其实挺看人的，US的迪士尼去过两个有名的，排场虽然大但是总感觉太子供了，过山车一点感觉没有。亚洲倒是能兼顾刺激和子供
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7405#       发表于 2020-6-4 14:45
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-4 14:48 编辑 
+
+迪士尼，差评
+环球影城，好评
+syl，芙宝早上吹完35的ark操作35现在就表演憨憨操作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7406#       发表于 2020-6-4 14:48
+
+
+
+
+不是推上的HK人比较多嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 7407#       发表于 2020-6-4 14:54
+
+
+
+
+万一被当成“大陆人”那就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7408#       发表于 2020-6-4 14:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">在推上问哪个迪士尼有趣也是神奇操作。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7409#       发表于 2020-6-4 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不是不能理解成故意的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 7410#       发表于 2020-6-4 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7411#       发表于 2020-6-4 14:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">香港迪士尼不是只有三个区吗？最近扩过了？上海听说挺大的。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7412#       发表于 2020-6-4 14:58
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-4 15:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只听说东京迪士尼（坐标千叶）和东京成田国际机场（坐标千叶）是分手圣地，郡道应该也不是一个人去海外旅行。
+
+另外香港海洋公园不都快倒闭了吗，以前可是吹说吊打迪士尼的主题公园，现在香港那个环境迪士尼还能好？
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7413#       发表于 2020-6-4 14:59
+
+
+
+
+我是军就蹭Bilibili，公费旅游不爽吗？
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 7414#       发表于 2020-6-4 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">有一说一日本人大概的确不知道内地要进行特殊操作才能看推看管
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7415#       发表于 2020-6-4 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675232&amp;ptid=1938145" target="_blank">ヒトニナル 发表于 2020-6-4 14:59</a>
+有一说一日本人大概的确不知道内地要进行特殊操作才能看推看管</blockquote>
+不是，今天你们在这讨论这话题是什么居心<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jkovkk  
+##### 7416#       发表于 2020-6-4 15:03
+
+
+
+
+说得好像你们就会推荐上海迪士尼一样<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7417#       发表于 2020-6-4 15:04
+
+
+
+
+都出国了，去奥兰多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7418#       发表于 2020-6-4 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 今年就别想着海外旅游了，
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7419#       发表于 2020-6-4 15:06
+
+
+
+
+打住打住，怎么在往爱讨论的方向上发展<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7420#       发表于 2020-6-4 15:06
+
+
+
+<blockquote>絶対に笑ってはいけないホロライブ！？最強コンビの戦い！</blockquote>
+今天的大人碳，两小时后在心心频道。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7421#       发表于 2020-6-4 15:08
+
+
+
+
+香港人草生，holo敢搞个holohk吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7422#       发表于 2020-6-4 15:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer"> 眠带佐狂喜乱舞？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7423#       发表于 2020-6-4 15:10
+
+
+
+
+诸位钓鱼不成，打算炸了这v9？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7424#       发表于 2020-6-4 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675348&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 15:09</a>
+眠带佐狂喜乱舞？</blockquote>
+眠大佐明面上已经改邪归正了，都跟安堂联动过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7425#       发表于 2020-6-4 15:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675080&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 14:45</a>
+
+迪士尼，差评
+
+环球影城，好评
+
+syl，芙宝早上吹完35的ark操作35现在就表演憨憨操作 ...</blockquote>
+计算内
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 7426#       发表于 2020-6-4 15:11
+
+
+
+
+holohk用什么语直播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 7427#       发表于 2020-6-4 15:13
+
+
+
+
+怎么一有闲时间就看见在这个日子说这种话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7428#       发表于 2020-6-4 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675385&amp;ptid=1938145" target="_blank">黑漆漆的漆漆 发表于 2020-6-4 15:11</a>
+
+holohk用什么语直播</blockquote>
+不存在
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7429#       发表于 2020-6-4 15:16
+
+
+
+
+火山狗改不了吃屎的，pxj就缺少些警惕双面人的教育<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 7430#       发表于 2020-6-4 15:18
+
+
+
+
+不是现在去啦，郡道说大概年后，那时应该各种事都没了。我组织下语言推荐个上海吧，hk那个真的挺普通的。
+顺便一说，郡道自己一个去海外旅游倒不是什么奇事，上次埃及也是一个人去的，我倒是希望她跟别人一起去能安全点儿。
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7431#       发表于 2020-6-4 15:19
+
+
+
+
+政治方面还是少展开吧
+
+即使不考虑政治问题也搞不了的，虎妮三万都不到，二次三次台北暴毙，台湾这种人口更多、有K岛基础都搞不起来，HK洗洗睡
+
+佐久间现在都表忠心跑阿B来了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7432#       发表于 2020-6-4 15:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer"> 希望郡道能带着葵皇阿菜三个人旅游，
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 7433#       发表于 2020-6-4 15:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想楼主，再看看日期好吗朋友们
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7434#       发表于 2020-6-4 15:21
+
+
+
+
+讨论政治，不好。
+妈火山人，好。<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7435#       发表于 2020-6-4 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675481&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 15:19</a>
+希望郡道能带着葵皇阿菜三个人旅游，</blockquote>
+那你准备去上海迪士尼特定她们三位吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7436#       发表于 2020-6-4 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有阿菜去迪士尼我就不困了。
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 7437#       发表于 2020-6-4 15:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼宝还是JK，你们这样是会影响人家档案的
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7438#       发表于 2020-6-4 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675450&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-4 15:16</a>
+
+火山狗改不了吃屎的，pxj就缺少些警惕双面人的教育
+
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 S1 ...</blockquote>
+眠带佐宣誓忠诚之后也多多少粉丝，不过是让死忠粉看了之后能心安理得地推罢了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 7439#       发表于 2020-6-4 15:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行了吧点到为止，别到时候泥潭整个炸了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7440#       发表于 2020-6-4 15:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/152440owwygd3c333s53yw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200604_152308.jpg</strong> (106.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 15:24 上传
+
+
+
+
+
+这个是不是yygq葵皇鸽b限啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7441#       发表于 2020-6-4 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675563&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-4 15:27</a>
+这个是不是yygq葵皇鸽b限啊</blockquote>
+《向日葵的约定》yygq的难道不是六字母吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7442#       发表于 2020-6-4 15:29
+
+
+
+
+印尼2.8亿，印度13.6亿
+
+韩国五千万，加上一些情绪问题目标受众更窄，彩虹KR玩不太转，和这个市场不够大也是很有关系的
+
+YAGOO估计不会想尝试HOLO KR了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7443#       发表于 2020-6-4 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675563&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-4 15:27</a>
+
+这个是不是yygq葵皇鸽b限啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 说不定是暗示516事件呢？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7444#       发表于 2020-6-4 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675500&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-4 15:21</a>
+
+那你准备去上海迪士尼特定她们三位吗
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer"> 好好的五天假期，我还打算去看下次葵皇的线下live呢
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7445#       发表于 2020-6-4 15:32
+
+
+
+
+韩国人去日本要办签证吗？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7446#       发表于 2020-6-4 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675576&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-4 15:28</a>
+《向日葵的约定》yygq的难道不是六字母吗
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next ...</blockquote>
+图来了图来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7447#       发表于 2020-6-4 15:38
+
+
+
+[https://www.youtube.com/watch?v=KV7tgRigsSQ](https://www.youtube.com/watch?v=KV7tgRigsSQ)
+
+
+栞桜这直播间时间设错了吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7448#       发表于 2020-6-4 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675688&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-4 15:38</a>
+
+https://www.youtube.com/watch?v=KV7tgRigsSQ
+
+
+栞桜这直播间时间设错了吧</blockquote>
+我记得是今天晚上来着。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7449#       发表于 2020-6-4 15:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 棒子是真的不太行，我是真的讨厌这个国家
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7450#       发表于 2020-6-4 15:57
+
+
+
+
+草，这次不是上错号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，erer姐的发言时间不像尾巴哥那样明显是美国时间啊，该验证一下有没有在小话痨播的时候发言过了
+
+
+
+
+
+
+IMG_20200604_153354.jpg
+(181.4 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-4 15:56 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/155613ne43uy3tc2nvbvee.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  单推贝伦  
+##### 7451#       发表于 2020-6-4 15:59
+
+
+
+
+这几年都很少接触棒子相关了，这楼就天天能看到讨论的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7452#       发表于 2020-6-4 16:00
+
+
+
+
+4人怎么都打不过aplhaboss
+
+夸皇 该你出场了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7453#       发表于 2020-6-4 16:02
+
+
+
+
+2k恨国精中，虚拟伏拉夫<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7454#       发表于 2020-6-4 16:03
+
+
+
+Artia 微博私人号与粉丝人上人「Himmel_Kazami」私联
+
+一、证明「沧蓝色的旋律」是 Artia 私号
+
+
+证明一
+
+3/7我在V综对还未出道的Artia进行过报导? 其中的油管账号头像是
+
+<img src="https://img.saraba1st.com/forum/202006/04/154657a4kbhtx42pofhbbo.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-04 154501.png</strong> (58.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 15:46 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/154605jedeixiztcexwrr2.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-04 153936.png</strong> (27.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 15:46 上传
+
+
+
+
+
+
+
+而「沧蓝色的旋律」的微博头像同样是
+
+<img src="https://img.saraba1st.com/forum/202006/04/154900a7ntewern3xamb3n.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-04 154831.png</strong> (90.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 15:49 上传
+
+
+
+
+
+
+
+证明二
+
+最新的推特号@imhungrynsad发的一张打码的脸书图片，通过技术手段可提取到文字并特定到账号，再通过脸书账号的真实姓名与发的微博图片链接，锁定到两个微博账户，其中一个既是「沧蓝色的旋律」，此部分涉及个人隐私，所以并不展示。
+
+
+二、Himmel_Kazami 与 Artia 小号私联证据
+
+
+1.微博互相关注状态
+
+<img src="https://img.saraba1st.com/forum/202006/04/155809szmv7qqaaqb9op7x.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-04-15-56-12 (2).png</strong> (210.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 15:58 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/155808updfipgrrffizp3n.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-04-15-56-32 (2).png</strong> (237.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 15:58 上传
+
+
+
+
+
+
+
+2.点赞人上人的诡辩博文
+
+<img src="https://img.saraba1st.com/forum/202006/04/160045hbbucz9kvvu0uykt.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-04-15-30-32 (2).png</strong> (300.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 16:00 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/160151zqhfjuhw5nghdgf5.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2020-06-04-15-30-25 (2).png</strong> (218.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 16:01 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| plllllum| + 1|强大|
+| 激光2000| + 2||
+| kanonsisya| + 1|先赞后看|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7455#       发表于 2020-6-4 16:04
+
+
+
+
+来了来了 吃瓜 不过artia本来就是人上人粉丝吧 这个都知道的8
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 7456#       发表于 2020-6-4 16:05
+
+
+
+
+，，，
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7457#       发表于 2020-6-4 16:05
+
+
+
+
+其实我是被你们逼的找了算是雷?的东西.... 另，微博上有artia照片
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7458#       发表于 2020-6-4 16:05
+
+
+
+
+就这？
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7459#       发表于 2020-6-4 16:06
+
+
+
+
+行8 其实勉强算是了 虽然确实有点就这
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7460#       发表于 2020-6-4 16:06
+
+
+
+
+不太行，空炮了，这波真不如阿裁<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7461#       发表于 2020-6-4 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675940&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 16:06</a>
+行8 其实勉强算是了 虽然确实有点就这</blockquote>
+快vt哥发下照片，加油<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7462#       发表于 2020-6-4 16:08
+
+
+
+
+开头看到和人上人私联一惊，看完索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7463#       发表于 2020-6-4 16:08
+
+
+
+
+木口式发表
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7464#       发表于 2020-6-4 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675947&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-4 16:07</a>
+快vt哥发下照片，加油
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+自己去微博看不就行了……没啥特点，跟蘑菇人五五开
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7465#       发表于 2020-6-4 16:08
+
+
+
+
+我永远支持colo哥，就算是小瓜也是生产者
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7466#       发表于 2020-6-4 16:08
+
+
+
+
+互关比较可疑，尤其是这种私号，建议去阿提亚微博对其内容进行存档
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7467#       发表于 2020-6-4 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47675966&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 16:08</a>
+互关比较可疑，尤其是这种私号，建议去阿提亚微博对其内容进行存档</blockquote>
+官号都互关了，首播放的bgm也是人上人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7468#       发表于 2020-6-4 16:10
+
+
+
+
+连化妆都不会的游戏宅，亲切感up<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7469#       发表于 2020-6-4 16:10
+
+
+
+
+这脸也太宅了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7470#       发表于 2020-6-4 16:10
+
+
+
+
+小号私联还不可疑？
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7471#       发表于 2020-6-4 16:11
+
+
+
+
+那再说个，Artia15-16年表示有男朋友，而且我并没有看见分手的迹象
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7472#       发表于 2020-6-4 16:11
+
+
+
+
+男朋友这种算私生活还是算了吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7473#       发表于 2020-6-4 16:12
+
+
+
+
+uno这个连麦质量好差，，
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7474#       发表于 2020-6-4 16:12
+
+
+
+
+官号互关没问题，光明正大，小号互关我觉得有点..
+
+
+
+
+
