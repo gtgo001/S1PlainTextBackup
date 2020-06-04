@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-04 10:08** 
+> ## **本文件最后更新于2020-06-04 12:11** 
 
 
 
@@ -97,7 +97,7 @@
 
 那，你们敢点开这个动画吗，说实话我有点怕
 
-<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_Q5AXG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/77d9e887dc1812adfcbe8bede234f7b2/IMG_20200603_112525.JPG" id="aimg_JgEiC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -7282,7 +7282,7 @@ E7联动绊爱..
 
 
 好清纯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_g6CCG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZlI5wGU0AAeUhv?format=jpg&amp;name=large" height="1204" id="aimg_KIVx8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Seic_Oh/status/1268124992304107520](https://twitter.com/Seic_Oh/status/1268124992304107520)
 
 
@@ -19462,4 +19462,4105 @@ holocn都有人反攻twitch了，效果甚至还不错，建议搬回v综<img sr
 
 
 
-                
+
+
+-----
+
+####  激光2000  
+##### 7019#       发表于 2020-6-4 10:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 拳头搞得那个裁缝fps终于凉了，又能看新game了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7020#       发表于 2020-6-4 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671456&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 10:02</a>
+
+&gt;2w证明之前大家播管人金游是管人不行
+
+3w证明之前大家播管人金游是因为大家都是废物 ...</blockquote>
+你只是想证明管人是废物吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7021#       发表于 2020-6-4 10:12
+
+
+
+
+管人的游戏力还需要车吗 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 就是管人不行 不是游戏不行 只能玩一些大众化的 大家都懂一点的游戏 看着妹子叫了 实属不行
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7022#       发表于 2020-6-4 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 他要证明的是，除了狗皇，都是five
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7023#       发表于 2020-6-4 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人不行，那我们这些看管人是什么心态？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 7024#       发表于 2020-6-4 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671594&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 10:13</a>
+管人不行，那我们这些看管人是什么心态？</blockquote>
+慕残<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7025#       发表于 2020-6-4 10:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671583&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 10:12</a>
+
+他要证明的是，除了狗皇，都是five</blockquote>
+不是还有&lt;3w和&lt;2w的可能吗，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就这么钦定宫皇压注黑曜石一定稳赢了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 7026#       发表于 2020-6-4 10:15
+
+
+
+
+人类不行
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7027#       发表于 2020-6-4 10:15
+
+
+
+
+游戏力到底是个什么jb东西？直播玩速通无伤还是什么东西？
+
+rta竞速一个场景连播1000次真的有人爱看？
+
+
+所谓强弱不都是配菜，核心技术不还是吹逼+做节目效果的能力？真有人看mc是看挖矿的？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7028#       发表于 2020-6-4 10:16
+
+
+
+
+虽然说过好几次了，不过咱还是要再说一次，486打过传说之下屠杀线，咱自认打不过衫斯，被衫斯虐到妈都不认识
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7029#       发表于 2020-6-4 10:16
+
+
+
+
+但是狗皇玩游戏好菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">只是因为管人都喜欢蝗虫才显得她特立独行。现在看到MC/APEX就想吐。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 7030#       发表于 2020-6-4 10:17
+
+
+
+
+シャニマスはランティス(バンナム)の曲の自動広告がyoutubeに付き広告収益がバンナムに入るようになっている
+
+↓
+
+ホロメンは曲の部分を意図的にカットして収益化することで自分達に収益が流れるようにしている
+
+
+草，liver真的这么做了？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7031#       发表于 2020-6-4 10:17
+
+
+
+ 本帖最后由 ひびき 于 2020-6-4 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671495&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-4 10:05</a>
+
+游戏好不好玩和直播好不好看没有必然联系啊，播辐射感觉没什么看点</blockquote>
+看宫皇做不做功课了，毕竟新维加斯是个网状叙事到第一关帮新手村抵御外敌都能联合外敌把新手村屠了的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 还有些剧情需要出生加点就选好
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7032#       发表于 2020-6-4 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671611&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-4 10:15</a>
+
+不是还有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 已知peko mgs 3w+
+
+           岛哥哥＜黑岛
+
+           如果宫皇＜3w
+
+            那么宫皇 ？peko
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 7033#       发表于 2020-6-4 10:19
+
+
+
+
+主播播游戏只要播得有趣有节目效果就行了，游戏技术水平是次要的
+
+游戏打得再好，没有节目效果也留不住观众，斗鱼时期的1988不就是典型？光有技术没节目效果，结果就是观众越来越少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7034#       发表于 2020-6-4 10:20
+
+
+
+ 本帖最后由 yuanhang99 于 2020-6-4 10:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671623&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 10:15</a>
+
+游戏力到底是个什么jb东西？直播玩速通无伤还是什么东西？
+
+rta竞速一个场景连播1000次真的有人爱看？</blockquote>
+不是速通但是至少要玩的流畅吧？虽然你们都不待见夸宝但是把她不胡乱战吼的时候还是能看的。宫助玩合金弹头真的菜的让人做噩梦，不过声音有趣我还是忍了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7035#       发表于 2020-6-4 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671661&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 10:18</a>
+
+已知peko mgs 3w+
+
+           岛哥哥＜黑岛
+
+           如果宫皇＜3w</blockquote>
+岛哥哥＜黑岛
+
+但是这是日本主场啊，还是岛哥哥&gt;=黑岛吧
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7036#       发表于 2020-6-4 10:20
+
+
+
+ 本帖最后由 1678334706 于 2020-6-4 10:23 编辑 
+
+大多数管人的游戏力 就是练节目效果都做不出来啊 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 跟别讲游戏技术了 啊夸算是有点技术了吧 但是看apex那一个角色+2-3把固定枪 冲钻石  是真的无聊了
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 7037#       发表于 2020-6-4 10:24
+
+
+
+
+没有要你什么游戏都玩到骨灰级高玩
+
+但是连基本的游戏机制和原理都不愿意去了解
+
+就自己乱玩 就硬莽 演技还不行节目效果一般般
+
+让真正玩了这个游戏的玩家看得血压升高还觉得尬
+
+可能也只能取悦那些没玩过的只是来看人而不是看游戏的观众吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7038#       发表于 2020-6-4 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671690&amp;ptid=1938145" target="_blank">yuanhang99 发表于 2020-6-4 10:20</a>
+
+不是速通但是至少要玩的流畅吧？虽然你们都不待见夸宝但是把她不胡乱战吼的时候还是能看的。 ...</blockquote>
+桃皇一关能卡一年，整个直播间的人跟着看gif都能看一晚上，流不流畅真的重要吗？就硬靠跟弹幕互动都能聊几个小时
+
+任何游戏本质都是杂谈，游戏只是杂谈话题素材，游戏打得再好，不会说话还是白搭；游戏打得再烂，只要会聊一样有人看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7039#       发表于 2020-6-4 10:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671697&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-4 10:20</a>
+
+大多数管人的游戏力 就是练节目效果都做不出来啊  跟别讲游戏技术了 啊夸算是有点技术了吧 但是看ap ...</blockquote>
+游戏力和游戏效果结合的我只能想到猴皇闭眼打节奏天国了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7040#       发表于 2020-6-4 10:27
+
+
+
+
+你能MC，ARK搞出节目效果，没问题，可以说你在主播的定位上有点能力
+
+
+但你别的游戏呢？就搞不出来效果了？
+
+
+那不是菜是什么
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7041#       发表于 2020-6-4 10:27
+
+
+
+
+用mc来举例的话，比起建设奇观，还是看邻里战争有趣。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7042#       发表于 2020-6-4 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671747&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 10:24</a>
+
+桃皇一关能卡一年，整个直播间的人跟着看gif都能看一晚上，流不流畅真的重要吗？就硬靠跟弹幕互动都能聊几 ...</blockquote>
+那是因为你看的是人，桃皇播不播游戏和这些人看不看有关系吗？卡成这样还玩个毛，直接杂谈不好吗？我国V看的不多，黑桃因为声音关系基本靠云，说错了抱歉。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7043#       发表于 2020-6-4 10:31
+
+
+
+
+兔皇游戏力一般，但她能成功，一个原因就是有去试着理解游戏
+
+打RPG会看剧情并共情，打受苦游戏卡关会适当听下指示厨，打个MC能很有耐心地抄作业
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7044#       发表于 2020-6-4 10:32
+
+
+
+
+看剧情就是试着理解游戏吗？
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 7045#       发表于 2020-6-4 10:33
+
+
+
+
+拿MC来举例的话 有些vtuber出道到现在玩了多久了还是不知道按shift+左键就可以将物品从背包移到使用栏和存入/取出箱子，还在用鼠标拖动
+
+还不知道Ctrl+Q可以丢弃整组物品，Q可以丢弃1个物品，还在用鼠标拖动
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7046#       发表于 2020-6-4 10:33
+
+
+
+
+RPG看剧情 当然是在理解游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7047#       发表于 2020-6-4 10:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+剧情类游戏虽然可以和观众交流，但时长太长，不适合一天播两三个小时。
+
+
+竞技类又没法充分和观众交流，虽然时长扁平快，但一直输效果更差。
+
+
+所以管人金游必须满足：1、单元剧形式；2、前后不能有太多联系；3、适度的对抗性；4、戏剧性的效果。
+
+
+
+
+     
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7048#       发表于 2020-6-4 10:33
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-4 10:35 编辑 
+
+说实话大家也没要求专精或者深度玩家啥的，一般都做不到
+
+
+但是思路的开放性（邪道或者整活玩法）至少该有吧
+
+
+很遗憾的是，很多时候管人做到邪道/弄出节目效果不是因为对游戏机制有理解，使用了制作者没预料到的思路或者自己想去开发
+
+
+就是单纯的菜到走流程都走不了……
+
+然后在游戏的范围选择上揪着几个播的现象很严重
+
+
+当然不能光从游戏力一项去diss某个管人的整体形象，但分领域的低评价也是合适的吧
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7049#       发表于 2020-6-4 10:34
+
+
+
+
+剧情向的游戏的话，去理解剧情当然就是理解游戏了吧。去理解制作者想要传达的用意。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7050#       发表于 2020-6-4 10:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> peko播黑魂有在理解剧情吗？
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7051#       发表于 2020-6-4 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671857&amp;ptid=1938145" target="_blank">无限舰制 发表于 2020-6-4 10:33</a>
+
+说实话大家也没要求专精或者深度玩家啥的，一般都做不到
+
+
+但是思路的开放性（邪道或者整活玩法）至少该有吧 ...</blockquote>
+权限不够 手动＋ <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7052#       发表于 2020-6-4 10:36
+
+
+
+
+区别是主播想吸引gachi还是一般通过吧。全肯定厨再脑死也会看，一般通过容忍力就没那么高了。就算MC邻里战争大部分时间也是要写剧本做准备的啊。
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7053#       发表于 2020-6-4 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671815&amp;ptid=1938145" target="_blank">yuanhang99 发表于 2020-6-4 10:29</a>
+
+那是因为你看的是人，桃皇播不播游戏和这些人看不看有关系吗？卡成这样还玩个毛，直接杂谈不好吗？我国V ...</blockquote>
+看管人不看人难道看游戏？那才是在搞笑好吗
+
+
+那么多恐怖游戏，有哪个管人做出了穿胖次的狐狸哪怕十分之一的好看程度吗？
+
+
+那么多蝗mc的，有谁自己建东西是抄管人作业的吗？
+
+
+你倒是说出一个播游戏拿得出手的管人啊？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7054#       发表于 2020-6-4 10:36
+
+
+
+ 本帖最后由 asdhai 于 2020-6-4 10:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671845&amp;ptid=1938145" target="_blank">kokonotree 发表于 2020-6-4 10:33</a>
+
+拿MC来举例的话 有些vtuber出道到现在玩了多久了还是不知道按shift+左键就可以将物品从背包移到使用栏和存 ...</blockquote>
+原来你们还要关心这种问题的吗...
+
+也罢，我也是玩啥啥菜的，我的意见没说服力就是了。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7055#       发表于 2020-6-4 10:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们要求好高啊。我只要优点盖过缺点就行了。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7056#       发表于 2020-6-4 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671857&amp;ptid=1938145" target="_blank">无限舰制 发表于 2020-6-4 10:33</a>
+
+说实话大家也没要求专精或者深度玩家啥的，一般都做不到
+
+
+但是思路的开放性（邪道或者整活玩法）至少该有吧 ...</blockquote>
+按你描述不就是王老菊套皮吗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7057#       发表于 2020-6-4 10:38
+
+
+
+
+(有意识)违法配信集团，啊—啊、尾張屋根、尾張屋根
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7058#       发表于 2020-6-4 10:39
+
+
+
+
+那你也不能说大家整体水平低，不靠这个吃饭就躺泥地里打滚吧
+
+
+简单来说很多时候方法错误，跳过教程，卡关、情绪暴躁、弃坑一气呵成，观众和本人谁都不爽还没收入
+
+
+——而这仅仅是事先云一下攻略就能解决的事情，而很多人这都不肯做
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7059#       发表于 2020-6-4 10:40
+
+
+
+ 本帖最后由 yuanhang99 于 2020-6-4 10:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671891&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 10:36</a>
+
+看管人不看人难道看游戏？那才是在搞笑好吗
+
+
+那么多恐怖游戏，有哪个管人做出了穿胖次的狐狸哪怕十分之一 ...</blockquote>
+就是因为没有我才主看杂谈啊<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">毕竟游戏主播那么多没必要耗在V上。看狗皇因为很多老游戏我真没见过。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7060#       发表于 2020-6-4 10:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你指望管人们真的天天下播就研究游戏？
+
+
+这么说吧，鳖几个礼拜，是可以摸索出玩法阿，
+
+
+但你鳖这么久，观众都被peko抢走了，你怎么办？
+
+
+大环境就这样，抓到一个游戏赶紧播完，效果不好就放弃，哪有那么多时间研究，
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7061#       发表于 2020-6-4 10:41
+
+
+
+
+我觉得车管人游戏力 主要是最近管人金游看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7062#       发表于 2020-6-4 10:41
+
+
+
+
+今天yagoo跪在京都十条某办公园区门口了吗？没有我明天再问一次。
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 7063#       发表于 2020-6-4 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671895&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-4 10:36</a>
+
+原来你们还要关心这种问题的吗...</blockquote>
+你想象一下玩宝可梦各种逆属性打（不是为了节目效果）
+
+技能输出为主的游戏全程平A不放技能刮痧（也不是为了节目效果）
+
+很轻松就可以获得的物品用错误的方法一直拿不到，然后还卖惨（可能是为了效果，也可能是蠢）
+
+
+这些细节路人和云玩家无所谓，玩过的人真的受不住的
+
+如果要做效果，大可以一开始就说是这种縛りプレー
+
+明明没想縛り硬是玩成了縛り我觉得不行
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7064#       发表于 2020-6-4 10:42
+
+
+
+
+学习我只看一个人不就不会吐了？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7065#       发表于 2020-6-4 10:43
+
+
+
+
+看了攻略，全程不吃鳖，有人看吗？不还是没人看，
+
+
+装作初见，结果尬演
+
+
+和完全初见，至少不是尬演
+
+
+很明显大部分观众有自己的选择
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7066#       发表于 2020-6-4 10:43
+
+
+
+ 本帖最后由 1678334706 于 2020-6-4 10:44 编辑 
+
+就是看夸打apex看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> syl 我实在不理解为什么管人要追求初见呢 事先预习下游戏也是很有必要的啊
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7067#       发表于 2020-6-4 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671972&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 10:42</a>
+
+学习我只看一个人不就不会吐了？</blockquote>
+如果夸宝能封印战吼和傻笑我可以
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7068#       发表于 2020-6-4 10:44
+
+
+
+
+所谓游戏主播，好歹拿出点这种视频出来好吧，不然说个jb游戏，都是本质杂谈卖萌而已
+<img src="https://p.sda1.dev/0/2eabf5cd82395d574fa3616851b43f7f/IMG_096F8EB557521131FEEB92DEB2DCDB00.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/4aebd4e985225da8261a78d7ec206ee3/IMG_6E17B56D000DC56ECB508546ED860A75.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7069#       发表于 2020-6-4 10:44
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-4 10:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671913&amp;ptid=1938145" target="_blank">yuanhang99 发表于 2020-6-4 10:38</a>
+
+按你描述不就是王老菊套皮吗？</blockquote>
+我的确看老菊看得比较多啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+视频势游戏观众.jpg
+
+
+主要我没怎么追过游戏直播，不好评价跟着别人走流程的游戏体验
+
+不过这种走流程可能更需要背景文化预先做功课，不然就是特定主题整活，比如禁装备这样自我设限通流程（对于剧情体验比重低，操作重要的游戏）
+
+
+邪道整活一般还是策略经营类方便些……
+
+
+竞技类scboy这种能吹逼干人的老逼又不能作为参考，何况他们解说的比重占得比较大，也学不来……
+
+
+其实最后只是觉得“哎呀我真的不玩游戏的，但别人都播，观众也想看，那我就勉为其难地播一下吧”
+
+这种态度我就感想微妙
+
+你要说看管人一边很菜地打着游戏（说不定还在卡关），嘴里谈着和游戏主题完全无关的话题，一边推进游戏主线流程
+
+那不就单纯是我开了个游戏流程的视频，然后挂了个管人杂谈直播吗，感觉就很怪
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7070#       发表于 2020-6-4 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么容易吐嘛？我倒是觉得看不厌，甚至还开始去搜apex剧情背景故事了。不过毕竟我是一个游戏玩七年的人。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7071#       发表于 2020-6-4 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671895&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-4 10:36</a>
+
+原来你们还要关心这种问题的吗...
+
+也罢，我也是玩啥啥菜的，我的意见没说服力就是了。
+
+ ...</blockquote>
+应该是不经意注意吧......像上次楼里有位老兄给我推荐的一个打terraria的vtuber，不管是挖水箭魔法书，还是打世界吞噬者撒尖钉球，都很熟悉，是个技术还可以的老玩家了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">三万的订阅，玩个在日本毫无基础的游戏，播出1000多同接，我认为还是很厉害了
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 7072#       发表于 2020-6-4 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671284&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-4 09:47</a>
+
+Youtube快报
+
+PewDiePie回到Youtube直播，这是昨天的SC</blockquote>
+卧槽这打钱力度··昨天我在星姐直播间都看到有广告BOT在宣传这个老外，这就是真正的浮游炮吗！
+
+最后还是三才过来解决了广告哥···老STAFF了。
+
+
+SYL：狐狸这昨天晒了寂静岭4和幻想传说···这是感受到了狗子要祭出辐射的压力然后终于决定要做回GAMER了吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+        
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7073#       发表于 2020-6-4 10:48
+
+
+
+
+欧美YY的龙皇玩老滚5倒是可以有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7074#       发表于 2020-6-4 10:48
+
+
+
+
+说到邪道，我又想了那个从指示厨的喝声中开辟出天选之路的银憨憨了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7075#       发表于 2020-6-4 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 我寻思你们口中说的游戏大神，直播不也一样没人看嘛，
+
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 7076#       发表于 2020-6-4 10:49
+
+
+
+
+其实holo里播MC让我觉得最舒服的是白姨，然而她除了RTA末影龙基本不播MC
+
+那专业的岩浆应对，血压平稳
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7077#       发表于 2020-6-4 10:49
+
+
+
+
+对于演技不行的liver（大部分）来说，剧情向游戏还是别看攻略的好，哪怕在真卡关的时候问聊天室观众呢。
+
+还有楼上提到的各种小技巧，别说初见的liver，好多玩了几年游戏的不知道某些小技巧不也正常，少前每次开活动都有各种各样的火星贴，这就受不住也太奇怪了，真受不住请打sc提醒主播。
+
+其实对于v来说，最重要的游戏力是剧情理解能力和情绪反应能力，前者是后者的前提，后者是前者的表现，大部分观众其实是来看这两点的。当然也有来看v受苦杂谈或者单纯想看游戏流程的。对于后者我建议你还是去找录好的实况看比较有益身心健康。。。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7078#       发表于 2020-6-4 10:49
+
+
+
+
+说起来，终于快等到CNC1重制版正式发售了，这半个月等一个评价，再决定买不买......岩石壁画都来了，希望二代也能重制吧.......
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7079#       发表于 2020-6-4 10:50
+
+
+
+
+咋还跟一般游戏主播比起来了，那死在沙滩上的猫宫和游戏部可太冤了
+
+顺便管人出攻略当然有，阿叉不就是，但阿叉人都没了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7080#       发表于 2020-6-4 10:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 至少aqua不会开直播全体禁言，怒骂观众对不对？
+
+
+还是说硬核游戏主播观众都喜欢被骂、被禁言阿
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7081#       发表于 2020-6-4 10:50
+
+
+
+
+不要求管人最高难度 但是普通难度 连通关都做不到 攻略怕是一眼都不看 蝗完一个游戏蝗下一个 那还不如不打<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 不过反过头来想一想 果然只有特定的游戏才是管人金油啊 
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7082#       发表于 2020-6-4 10:50
+
+
+
+
+说到apex，其实职业选手也是一个角色玩到底的。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7083#       发表于 2020-6-4 10:50
+
+
+
+
+只要买的是正版游戏，你管别人怎么玩哦，血压拉高了还偏要看不就是抖m吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7084#       发表于 2020-6-4 10:51
+
+
+
+
+你们都上了vi哥的当在走极端了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不能达到攻略组水平＝打游戏都是在卖萌。拿桃皇举例子就等于把套皮主播的能力全都打到跟桃皇一个水准了好嘛。
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7085#       发表于 2020-6-4 10:52
+
+
+
+
+只能说大家都是二极管
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7086#       发表于 2020-6-4 10:52
+
+
+
+
+桃皇到底是什么玩意？我光是不小心听到她声音就有点不适了，怎么能这么做作音的。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7087#       发表于 2020-6-4 10:52
+
+
+
+
+专业打游戏那是游戏主播干的事，套皮主播本职就是卖萌啊，想啥呢
+
+
+（只不过是有些血压太炸裂的让人觉得连卖萌都做不好而已
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7088#       发表于 2020-6-4 10:53
+
+
+
+
+然而剧情理解能力和情绪反应能力可能有的人都做不到？
+
+
+就那种置身事外走流程的感觉
+
+
+“啊，这个杀了，去下一个地图吧”
+
+“嗯嗯嗯，哦哦哦”
+
+
+当然这种情况可能也没那么频繁吧（）
+
+
+我又想顺劈宽松世代看到文字就头疼跳过的毛病了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7089#       发表于 2020-6-4 10:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> VT老哥眼里，除了阿提亚都是粪，劈他就认准阿提亚劈就完事了，
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7090#       发表于 2020-6-4 10:54
+
+
+
+
+桃皇操作力我记得还可以的，但是好像容易脑死？
+
+我认同大部分管人是没有专业游戏主播的职业素养的，但是你们也不是来看专业游戏主播的不是吗？
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7091#       发表于 2020-6-4 10:56
+
+
+
+
+对啊 所以要求很低啊 难道能够正常的推进游戏流程 简单了解游戏剧情 并且运用游戏里的游戏机制 是一件要求很高的事吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 当然能够打通关就好了 不过这个对管人要求有点高了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7092#       发表于 2020-6-4 10:56
+
+
+
+
+我的意见就是管人比游戏力就是五十步笑百步，别假惺惺搞得自己好像真的在看游戏了好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+老老实实承认自己是萌豚不好吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7093#       发表于 2020-6-4 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672113&amp;ptid=1938145" target="_blank">无限舰制 发表于 2020-6-4 10:53</a>
+
+然而剧情理解能力和情绪反应能力可能有的人都做不到？
+
+
+就那种置身事外走流程的感觉</blockquote>
+肯定有完全不理剧情或者没法理解剧情内容的v啦，很正常。
+
+不过说不定人家竞技游戏打得好，或者能高难游戏速通呢。
+
+只能说v还是要根据自身能力选择游戏，观众也要有选择的看v直播。
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7094#       发表于 2020-6-4 10:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就不一样了，我是来找BGM的。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7095#       发表于 2020-6-4 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672115&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 10:53</a>
+
+VT老哥眼里，除了阿提亚都是粪，劈他就认准阿提亚劈就完事了，</blockquote>
+阿提亚之前看到说是高配夸宝，是游戏力，社交力还是营业能力高配？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7096#       发表于 2020-6-4 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你指望这些不少汉字都认不全的管人去了解历史，做出相关剧情评价，有自己看法？
+
+
+玩个三国相关，讲讲三国？
+
+
+玩个mgs，讲讲big boss？
+
+
+玩个魂系列，给你讲个来龙去脉？
+
+
+玩个生化奇兵，讲讲大老爹？
+
+
+不好意思，真的做不到，
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7097#       发表于 2020-6-4 10:58
+
+
+
+
+为什么套皮主播都要蹭热门游戏的热度不就是因为喜欢看游戏直播的云玩家很多吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要不是菜到影响游戏流程，很多人还是会愿意云完的。而且就算是云过很多次的游戏，再看一次也不等于实质主播杂谈啊。比如最弱智的管人金游夜勤事件，看的人不就等着看比父母更熟悉的先辈。本质是reaction艺
+
+
+再说反面例子，吧主上分ow就没有白给apex有意思。因为ow是真的不行（
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7098#       发表于 2020-6-4 10:59
+
+
+
+
+ow不行+1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7099#       发表于 2020-6-4 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672160&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-4 10:56</a>
+
+肯定有完全不理剧情或者没法理解剧情内容的v啦，很正常。
+
+不过说不定人家竞技游戏打得好，或者能高难游戏 ...</blockquote>
+后两种能做到当然也可以
+
+
+不如说你游戏力不行也不是什么不得了的缺点，啥游戏都不玩也不是没人权
+
+
+我自己的观点是本人不感兴趣，观众看得血压高，那还不如不播
+
+
+但实际情况是一般路人会专门来看菜也菜不出笑果的直播，然后疯狂指示厨，结果同接有了钱可能也有了
+
+
+另一个严重的问题是部分人游戏知识也就平时排两把LOL吃鸡的等级（现充.jpg）
+
+结果自己都不知道自己适合什么游戏，也缺乏视野和品味，结果就不管类型硬上……
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 7100#       发表于 2020-6-4 11:00
+
+
+
+
+这车的比看白姨空岛看蘑菇还虚无<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7101#       发表于 2020-6-4 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672175&amp;ptid=1938145" target="_blank">yuanhang99 发表于 2020-6-4 10:58</a>
+
+阿提亚之前看到说是高配夸宝，是游戏力，社交力还是营业能力高配？</blockquote>
+阿媂娅是射击游戏顶配（ow美服500强），其他游戏目前玩的不多；营业暂时没有；社交力和情商还不错，不过这方面不太清楚大亏是什么水平；另外比大亏多一个yygq和钓鱼。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7102#       发表于 2020-6-4 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672155&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 10:56</a>
+
+我的意见就是管人比游戏力就是五十步笑百步，别假惺惺搞得自己好像真的在看游戏了好不好
+
+老老实实承 ...</blockquote>
+就是因为菜到连想做萌豚看完都办不到所以才抱怨的不是吗？毕竟超过一小时的管人游戏直播我是坚持不下来。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7103#       发表于 2020-6-4 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672220&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-4 11:01</a>
+
+阿媂娅是射击游戏顶配（ow美服500强），其他游戏目前玩的不多；营业暂时没有；社交力和情商还不错，不过 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 喜欢刀叉吃米饭，不知道算不算特色
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7104#       发表于 2020-6-4 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672154&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-4 10:56</a>
+
+对啊 所以要求很低啊 难道能够正常的推进游戏流程 简单了解游戏剧情 并且运用游戏里的游戏机制 是一件要求 ...</blockquote>
+就是这个问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">正因为有的管人连这个都做不到，所以才会出现游戏力的讨论。
+
+老顺劈夸宝打黑魂erer姐又要急了，就说苔宝这种连gta5教程关都过不去的，能说她跟其他管人是一个水平的菜吗？我都觉得是在辱其他管人了。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 7105#       发表于 2020-6-4 11:03
+
+
+
+
+我就是萌豚
+
+我恨不得紫宝一天播36小时的杂谈
+
+没话说光播呼吸音也行
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7106#       发表于 2020-6-4 11:04
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-6-4 11:06 编辑 
+
+ow不行就是因为长时间高强度对抗，大多数人一播ow连话都没空说了，全是自闭脑死打枪
+
+
+阿媂娅的优势就在于本身水平高，有功夫分心一直说话，甚至跟弹幕互动，所以比别人的ow行一点
+
+
+另外输了以后也不会发脾气骂队友
+
+ow500强也不是没有别的，光国v我认识的就有四个，也不是每个都好看的
+
+
+但是同样是fps，吃鸡类的游戏（包括apex）明显空闲时间多得多
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7107#       发表于 2020-6-4 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672265&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 11:04</a>
+
+ow不行就是因为长时间高强度对抗，大多数人一播ow连话都没空说了，全是自闭脑死打枪
+
+
+阿媂娅的优势就在于本 ...</blockquote>
+确实 所以ow是真的不行<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7108#       发表于 2020-6-4 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 只有月之是无敌整活企划王吗？
+
+
+无敌百物语愚人节超混沌3D欧洲企划，
+
+
+我宣布月之是所有管人的上位替代
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7109#       发表于 2020-6-4 11:06
+
+
+
+
+因操作原因无限卡关retry是不行的，谁来都不行，每次retry毫无长进就更不行了
+
+兔皇贵有自知之明，只狼不玩了，基本也不用期待她开坑魂了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7110#       发表于 2020-6-4 11:06
+
+
+
+
+想做萌豚而不得——指在轻百合喝茶片里硬要插入主线剧情和宏大设定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当然如果有得选的话，我当然要看美少女打怪拯救世界
+
+
+可是如同以前车过的一样，又萌又强的还没出生或者不够知名（这里并不仅仅指竞技和操作水平，也包括了“GAMER的自觉性”这种东西）
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7111#       发表于 2020-6-4 11:07
+
+
+
+
+yysy 我这个萌豚对于轻百合片的画面还有动作要求还是不低的 毕竟你不能指望我看着gif和ppt 萌起来打钱 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7112#       发表于 2020-6-4 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672220&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-4 11:01</a>
+
+阿媂娅是射击游戏顶配（ow美服500强），其他游戏目前玩的不多；营业暂时没有；社交力和情商还不错，不过 ...</blockquote>
+大亏社交力和营业力是满的。你看到的社恐和自闭都是演出来的。营业力毕竟是之前Holo的杠把子。游戏力的话天赋估计是没有的，纯粹靠肌肉和脊椎反应打游戏。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7113#       发表于 2020-6-4 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">喜欢看游戏的话可以看C酱<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">自从她套了个金发双马尾的live2d后就经常把她的fanart看成哈恰玛
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7114#       发表于 2020-6-4 11:08
+
+
+
+
+少主为了能播有数字的游戏 主动向龙皇……
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7115#       发表于 2020-6-4 11:09
+
+
+
+
+什么游戏力リアクション，怎么有数字怎么播。桃皇脑死耐久订阅猴楼cn第一，阿夸怪叫傻笑sc收爆，不看数字难道看乐子人指示厨的意见
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7116#       发表于 2020-6-4 11:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 仔细一看，我一个虹人和你们杏生活讨论的这么激烈干嘛。溜了溜了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7117#       发表于 2020-6-4 11:11
+
+
+
+
+可是月之游戏不行啊，现在这个时代只有播游戏的v才能拿到高同接高订阅和sc
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7118#       发表于 2020-6-4 11:11
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-4 11:14 编辑 
+
+宫姨兔皇数字也不差啊，怎么没人学得来呢（）
+
+话说桃皇的例子是不是不太合适，她第一难道不是因为杏CN其他人不太行（一期）或者后发暂时追不上吗
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7119#       发表于 2020-6-4 11:12
+
+
+
+
+所以你反着看S1讨论就好啦。毕竟毒奶，跟者S1建议走的V都死了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7120#       发表于 2020-6-4 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671955&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-4 10:41</a>
+你指望管人们真的天天下播就研究游戏？
+
+
+这么说吧，鳖几个礼拜，是可以摸索出玩法阿，</blockquote>
+2000你要云去云葵皇的直播好吗，兔子的直播不少是挺明显的有准备有排练的，哪怕是mc和ark这种可以脑死播的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7121#       发表于 2020-6-4 11:13
+
+
+
+
+さあ、Let's 冒険するぞ
+
+<img src="https://img.saraba1st.com/forum/202006/04/111016iv8pva0sk0lqaplp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2roWqiS.jpg</strong> (46.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-4 11:10 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7122#       发表于 2020-6-4 11:13
+
+
+
+
+不能，s1娘不是还在么
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 7123#       发表于 2020-6-4 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672370&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 11:12</a>
+
+2000你要云去云葵皇的直播好吗，兔子的直播不少是挺明显的有准备有排练的，哪怕是mc和ark这种可以脑死播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer"> 有排练、有准备在我看来是扣分项，所以我不看peko
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7124#       发表于 2020-6-4 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672382&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-4 11:13</a>
+
+不能，s1娘不是还在么</blockquote>
+这不刚死了个S2吗？毕竟B站MMR比泥潭婆罗门好伺候多了。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7125#       发表于 2020-6-4 11:16
+
+
+
+
+我看486播尼尔的时候对剧情还是相当上心，鸭之直觉经常预料到剧情走向。操作上也没严重卡关过，该听指示厨的时候还是会听（除了一直不开自动收集<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7126#       发表于 2020-6-4 11:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为什么大家都能毫无顾忌的吹自己的推，而我不敢😨难道是因为这里以前对阿夸的恶意太多害我有了阴影。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7127#       发表于 2020-6-4 11:18
+
+
+
+
+b站有一点好，狗牌和上舰把观众等级给分出来了，白嫖乐子人屁话的权重**降低<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7128#       发表于 2020-6-4 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672330&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-4 11:09</a>
+
+什么游戏力リアクション，怎么有数字怎么播。桃皇脑死耐久订阅猴楼cn第一，阿夸怪叫傻笑sc收爆，不看数字难 ...</blockquote>
+桃皇不仅是订阅第一，营收人气也全都是国v顶端，这个月还是B站虚拟区日历封面，要在版头挂一整个月
+
+[https://www.bilibili.com/video/BV1pp4y1X7uE](https://www.bilibili.com/video/BV1pp4y1X7uE)
+
+推荐一下桃皇原创曲好吧，听完你们就知道为什么桃皇能称皇了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7129#       发表于 2020-6-4 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672472&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 11:19</a>
+
+桃皇不仅是订阅第一，营收人气也全都是国v顶端，这个月还是B站虚拟区日历封面，要在版头挂一整个月
+
+
+http ...</blockquote>
+基德基德，别再推荐桃皇原创曲了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7130#       发表于 2020-6-4 11:20
+
+
+
+
+原创曲亚美咯，vt哥你连v综都不放过吗。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7131#       发表于 2020-6-4 11:23
+
+
+
+
+不准再发那首歌，再发我就，，，我就和artia同归于尽
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7132#       发表于 2020-6-4 11:24
+
+
+
+
+马看都耐久完了几分钟的金曲怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 7133#       发表于 2020-6-4 11:26
+
+
+
+
+怎么又车回游戏力来了，又到只能靠自己比XX游戏打得好来找优越感的时间了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就像猛汉TA一线以下皆菜逼，都是菜逼有啥好看不起别人的；只有菜逼还喷游戏不行的和菜逼还吹游戏力上天的是真不行，属于不自知<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 7134#       发表于 2020-6-4 11:26
+
+
+
+
+额，这什么组合
+
+
+
+
+
+
+TIM截图20200604112511.png
+(80.21 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-4 11:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/04/112622at5pq9uhhshz05pj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7135#       发表于 2020-6-4 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672452&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 11:18</a>
+
+为什么大家都能毫无顾忌的吹自己的推，而我不敢😨难道是因为这里以前对阿夸的恶意太多害我有了阴影 ...</blockquote>
+你为什么不能吹
+
+你推厉害的地方多了
+
+holo单人史上最多次数的休止、复归和谢罪集金直播
+
+towa谢罪回除外的holo最高单视频内点踩数
+
+游戏实况回放视频删除量最多的人
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7136#       发表于 2020-6-4 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672472&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-4 11:19</a>
+
+桃皇不仅是订阅第一，营收人气也全都是国v顶端，这个月还是B站虚拟区日历封面，要在版头挂一整个月
+
+
+http ...</blockquote>
+你这么黑桃皇小心holocn的律师函。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">听了第一句就右上角了，♠永远的神。
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 7137#       发表于 2020-6-4 11:29
+
+
+
+
+怎么还有把游戏力和竞技水平画等号的……
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7138#       发表于 2020-6-4 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672588&amp;ptid=1938145" target="_blank">yuanhang99 发表于 2020-6-4 11:28</a>
+
+你这么黑桃皇小心holocn的律师函。听了第一句就右上角了，♠永远的神。 ...</blockquote>
+holocn有寄过律师函吗<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7139#       发表于 2020-6-4 11:30
+
+
+
+
+老实说你们再怎么车桃皇短期内她营收holocn相对较好应该不会变的，这人是整个holocn最yhm的一个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 7140#       发表于 2020-6-4 11:30
+
+
+
+
+游戏力的话，龙皇作为ark老玩家怎么会这么菜，但凡龙皇表现像样点holoark也不会每次大活动都翻车
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7141#       发表于 2020-6-4 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672452&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 11:18</a>
+为什么大家都能毫无顾忌的吹自己的推，而我不敢😨难道是因为这里以前对阿夸的恶意太多害我有了阴影 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的推不直播，牛逼不？
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7142#       发表于 2020-6-4 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671939&amp;ptid=1938145" target="_blank">无限舰制 发表于 2020-6-4 10:39</a>
+那你也不能说大家整体水平低，不靠这个吃饭就躺泥地里打滚吧
+
+
+简单来说很多时候方法错误，跳过教程，卡关、 ...</blockquote>
+这不是翔哥吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 7143#       发表于 2020-6-4 11:31
+
+
+
+
+我觉得竞技游戏力保底至少是国家级别区域大赛四强（照顾孙哥面子不从三强）起步开始车比较好.....
+
+单机金游游戏力就别车了，不都是看直播效果的么
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7144#       发表于 2020-6-4 11:31
+
+
+
+
+我要是自爆了，holocn应该会给我律师函
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7145#       发表于 2020-6-4 11:31
+
+
+
+
+说起来桃皇我又想劈冰糖了，新皮搞了个萝莉出来。只能说PXJ重金属冶炼专精<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7146#       发表于 2020-6-4 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672608&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-4 11:30</a>
+
+holocn有寄过律师函吗</blockquote>
+就是没寄过才有威慑力啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">不过现在法务部应该正在给任天堂写投降书，没时间。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7147#       发表于 2020-6-4 11:34
+
+
+
+
+芙宝的恶意溢出来了，我只能扎小人了。连删除游戏实况都能拿来bb。而休止，搬家跟身内不幸你也要恶意吗？
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 7148#       发表于 2020-6-4 11:35
+
+
+
+
+又开始车游戏力，看样子今天的v juan也很和平
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7149#       发表于 2020-6-4 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672614&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-4 11:30</a>
+
+游戏力的话，龙皇作为ark老玩家怎么会这么菜，但凡龙皇表现像样点holoark也不会每次大活动都翻车 ...</blockquote>
+姬play啊
+
+龙皇ark的游戏技能在5ch的评判是比miko还差的
+
+miko是着实地一步一步从0玩出来的游戏技能 加上畸变的历练之后基本上可以认为是holo内ark非mod下PS最强的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7150#       发表于 2020-6-4 11:36
+
+
+
+
+游戏力有盗版游戏库重要吗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7151#       发表于 2020-6-4 11:36
+
+
+
+
+不愧是毒唯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">只能祝你永远不换推了。不然脱坑回踩有的受了。
+
+
+
+
+
+
+
+-----
+
+####  qq845629713  
+##### 7152#       发表于 2020-6-4 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 来安慰erer姐贵了，
+
+
+aqua碳还有唯一指定冲国进出，年轻人的第一对百合cp
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7153#       发表于 2020-6-4 11:37
+
+
+
+
+今早要搞无限制顺劈大乱斗了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+龙皇游戏力真不行，然后呢？
+昨晚和小天使两个游戏废物不还是把所有人安排的明明白白？
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 7154#       发表于 2020-6-4 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672064&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-4 10:50</a>
+
+咋还跟一般游戏主播比起来了，那死在沙滩上的猫宫和游戏部可太冤了
+
+顺便管人出攻略当然有，阿叉不就是，但 ...</blockquote>
+但猫宫确实通过游戏力吸了很多人啊
+
+假设她真有那水平，随便直播玩几个fps都有人舔吧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7155#       发表于 2020-6-4 11:37
+
+
+
+
+草同时视听
+
+这周的情况真是糟糕 加上ark延期到下周
+
+这周可能是holo历史上游戏实况直播次数最少的一周……
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7156#       发表于 2020-6-4 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672427&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-4 11:16</a>
+
+我看486播尼尔的时候对剧情还是相当上心，鸭之直觉经常预料到剧情走向。操作上也没严重卡关过，该听指示厨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">咱可是亲身被屠杀线虐放弃了得人
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 7157#       发表于 2020-6-4 11:39
+
+
+
+
+阿夸不用crew吹
+
+
+其他人就把她吹上天了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7158#       发表于 2020-6-4 11:39
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-4 11:41 编辑 
+
+，眼花了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7159#       发表于 2020-6-4 11:40
+
+
+
+ 本帖最后由 掉头学姐 于 2020-6-4 11:41 编辑 
+
+以后会有和歌力并列的游戏力
+
+彩虹露露第一，holo阿夸第一，holocn阿蒂亚第一
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7160#       发表于 2020-6-4 11:40
+
+
+
+
+鲨鱼这游戏挺好的啊 随便播都是万棒以上
+
+holo其他人跟着一起播啊 还能随便混过去一星期
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7161#       发表于 2020-6-4 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672733&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-4 11:39</a>
+大乱斗是任地狱游戏……</blockquote>
+芙宝你困了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7162#       发表于 2020-6-4 11:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672711&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-4 11:37</a>
+
+但猫宫确实通过游戏力吸了很多人啊
+
+假设她真有那水平，随便直播玩几个fps都有人舔吧 ...</blockquote>
+猫宫和游戏部就是告诉大家美少女和超高游戏力很难兼得吧
+
+大家总想着两个属性集成在一个人身上，而且不买缝合魔术的账，一定要真正的高玩美少女
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7163#       发表于 2020-6-4 11:40
+
+
+
+
+没事，别人吹上天，还不是能被你们贬下地。粉丝行为偶像买单都懂的。
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 7164#       发表于 2020-6-4 11:41
+
+
+
+
+可以可以 holo全体一转歌回 杂谈 要么自行开发其他的新游戏 拼硬实力的时代到来啦（不要apex 不要apex）
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7165#       发表于 2020-6-4 11:41
+
+
+
+
+夸宝天天被劈不是因为外有六字母内有大家庭粉吗？自己问心无愧怕什么？不过毕业复活次数是有点多了哈。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7166#       发表于 2020-6-4 11:41
+
+
+
+<blockquote>erer 发表于 2020-6-4 11:18
+为什么大家都能毫无顾忌的吹自己的推，而我不敢😨难道是因为这里以前对阿夸的恶意太多害我有了阴影 ...</blockquote>
+你推能不能喂多点饭啊，我还是那句能力越大责任越大，其他几个皇哪怕兔皇都很乐意喂饭好不好
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7167#       发表于 2020-6-4 11:42
+
+
+
+
+大夸哥能不炼铜了吗，多多联动啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7168#       发表于 2020-6-4 11:42
+
+
+
+ 本帖最后由 erer 于 2020-6-4 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672764&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:41</a>
+
+你推能不能喂多点饭啊，我还是那句能力越大责任越大，其他几个皇哪怕兔皇都很乐意喂饭好不好 ...</blockquote>
+我推喜欢给喜欢的人喂饭，包括小学生大脸猫，这么喜欢喂饭，为什么不直接去乞讨啊？草看错人了！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7169#       发表于 2020-6-4 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672756&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-4 11:41</a>
+
+可以可以 holo全体一转歌回 杂谈 要么自行开发其他的新游戏 拼硬实力的时代到来啦（不要apex 不要apex） ...</blockquote>
+全员apex抽卡啊
+
+像夏哥一样单场直播狂捞百万SC 又有数字 大家又爱看
+
+非常看好
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7170#       发表于 2020-6-4 11:43
+
+
+
+
+啊啊，信者的丑态，啊啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7171#       发表于 2020-6-4 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672733&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-4 11:39</a>
+，眼花了</blockquote>
+带上大乱斗就是任天堂还讲不讲道理了？？？
+哦，任天堂的法务部啊，对不起，S1的5块钱分2块给任天堂行不行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7172#       发表于 2020-6-4 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672764&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:41</a>
+
+你推能不能喂多点饭啊，我还是那句能力越大责任越大，其他几个皇哪怕兔皇都很乐意喂饭好不好 ...</blockquote>
+兔皇喂饭了？
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7173#       发表于 2020-6-4 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672739&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-4 11:40</a>
+
+以后会有和歌力并列的游戏力
+
+
+彩虹露露第一，holo阿夸第一，holocn阿蒂亚第一</blockquote>
+咋就阿媂娅第一了，蘑菇人szb也是gm，天霜杯冠名主办，15年牌龄，咋就不行了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7174#       发表于 2020-6-4 11:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672769&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-4 11:42</a>
+我推喜欢给喜欢的人喂饭，包括小学生大脸猫，这么喜欢喂饭，为什么不直接去乞讨啊？草看错人了！ ...</blockquote>
+人家不是夏哥推吗，er宝你也疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7175#       发表于 2020-6-4 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">急红了眼，人都看错了。跑了跑了。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7176#       发表于 2020-6-4 11:44
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-4 11:43
+兔皇喂饭了？</blockquote>
+喂了，联动多多了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7177#       发表于 2020-6-4 11:44
+
+
+
+
+诶我也想看大亏跟夏哥联动(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7178#       发表于 2020-6-4 11:46
+
+
+
+
+anti串露屁股要不得啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7179#       发表于 2020-6-4 11:46
+
+
+
+<blockquote>Mika-S 发表于 2020-6-4 11:43
+人家不是夏哥推吗，er宝你也疯了</blockquote>
+没怼错吧，就是我说的要喂饭，又想夸风评好又不喂饭哪有这等好事儿嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7180#       发表于 2020-6-4 11:49
+
+
+
+
+anti串露屁股要不得啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 7181#       发表于 2020-6-4 11:51
+
+
+
+ 本帖最后由 Mika-S 于 2020-6-4 11:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672820&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:46</a>
+没怼错吧，就是我说的要喂饭，又想夸风评好又不喂饭哪有这等好事儿嘻嘻 ...</blockquote>
+我是说她一开始把你当成35p了
+
+不过我也不懂理直气壮拿别人不喂饭怼的，联动就必须等于有一方给另一方喂饭我是觉得挺傻笔的，联动难道不是要么关系好要么追求能出节目效果么，很明显她夸跟你小肥妹两边都沾不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7182#       发表于 2020-6-4 11:51
+
+
+
+
+大家听我说句话！！！
+
+
+「holo(cn)可能会面临崩坏，今晚我大雷将落」😈
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7183#       发表于 2020-6-4 11:51
+
+
+
+
+毕竟和你小肥妹联动又没数字又没话题。你夸不喜欢和风评不好的管人联动的<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">。
+
+Syl 夸宝最近和她最喜欢的苔姨联动了吗？
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 7184#       发表于 2020-6-4 11:52
+
+
+
+
+虽然35P是个弱智，但是aqua自己送的弹药就别怪人家用来劈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 7185#       发表于 2020-6-4 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672739&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-4 11:40</a>
+
+以后会有和歌力并列的游戏力
+
+
+彩虹露露第一，holo阿夸第一，holocn阿蒂亚第一</blockquote>
+瞎jb吹不可取，先不说女人里是不是，彩虹那么多男人你当空气呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+去年年底彩虹某些成员搞的年度颁奖里就有游戏力奖，当时评论栏也是一大片的刷露皇；然后MC两人就说露皇更多的是能熬耐久和永不放弃的精神，并不是游戏玩得有多好<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7186#       发表于 2020-6-4 11:52
+
+
+
+
+阿希姿态太舔狗了，夸皇产生抗拒心理也是正常的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7187#       发表于 2020-6-4 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672851&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-4 11:51</a>
+大家听我说句话！！！</blockquote>
+又有瓜吃了？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7188#       发表于 2020-6-4 11:53
+
+
+
+
+colo哥要做cn阿裁吗，套个皮出道吧，VUP这方面还比较空白
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7189#       发表于 2020-6-4 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672803&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:44</a>
+
+喂了，联动多多了</blockquote>
+得了吧 就那点程度的联动也跟夸皇差不多
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 7190#       发表于 2020-6-4 11:54
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-6-4 11:55 编辑 
+
+colo哥gkd，想看
+
+别像下划线一样憋到一半没了好吧
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7191#       发表于 2020-6-4 11:54
+
+
+
+
+合格的信者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不应该跳劈自己的推么？太了解了可跳劈的地方太多了。
+
+所以我说8250是我的信者没人反对吧？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7192#       发表于 2020-6-4 11:55
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-4 11:54
+得了吧 就那点程度的联动也跟夸皇差不多</blockquote>
+功利度低多了
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 7193#       发表于 2020-6-4 11:55
+
+
+
+
+信者大战真的太弱智了，怎么我每次点进来都是这些玩意<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7194#       发表于 2020-6-4 11:56
+
+
+
+
+我可以跳劈我的推，但你不行✋-护犊子。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7195#       发表于 2020-6-4 11:56
+
+
+
+
+这栋楼是毒唯的乐园吗？不知道这栋楼里的楼友上天堂能不能得到72个毒唯环绕
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7196#       发表于 2020-6-4 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672892&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-4 11:54</a>
+合格的信者难道不应该跳劈自己的推么？太了解了可跳劈的地方太多了。
+
+所以我说8250是我的信者没人 ...</blockquote>
+不信，尾宝肯定比你了解多了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7197#       发表于 2020-6-4 11:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了阿洛哥给我指路的那个，原来一年前486还说过想跟mio一起玩edf（看向mio昨晚的录播
+
+
+
+
+
+
+
+-----
+
+####  睡前消息  
+##### 7198#       发表于 2020-6-4 11:56
+
+
+
+
+风评和喂饭又没啥关系，狐狸喂饭算多的了吧，也没见你楼少黑。
+
+哦狐狸现在SC底边，是被喂饭的那个，那没事了。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7199#       发表于 2020-6-4 11:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672908&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:55</a>
+
+功利度低多了</blockquote>
+又功利毛线，最近跟小学生联动西西大脸猫联动到底在功利什么？不跟你推联动就是功利嘛？不要为你推鸣不平了。
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 7200#       发表于 2020-6-4 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672820&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:46</a>
+
+没怼错吧，就是我说的要喂饭，又想夸风评好又不喂饭哪有这等好事儿嘻嘻 ...</blockquote>
+大叔这话说的有点有福同享那味了，不可取。阿希又不是乞丐，怎么就追着要喂饭了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7201#       发表于 2020-6-4 11:58
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-4 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672880&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-4 11:53</a>
+colo哥要做cn阿裁吗，套个皮出道吧，VUP这方面还比较空白</blockquote>
+这方面v吧的某些人有心干这个，可是到不了阿裁的水平，挖黑料都不会，只会p图造谣了，更别提他们知道了某些大家早就知道的东西就在那沾沾自喜的炫耀<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 7202#       发表于 2020-6-4 11:58
+
+
+
+
+平常erer都能一笑而过的，今天这个问题这么急，就是因为在她自己内心也有相信这个的倾向<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 7203#       发表于 2020-6-4 11:58
+
+
+
+
+论游戏力怎么不带已经打通一堆知名怀旧粪游的社畜
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7204#       发表于 2020-6-4 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672908&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:55</a>
+
+功利度低多了</blockquote>
+哈？
+
+都说是喂饭了还有什么功利不功利的
+
+真功利就肥水不留外人田 屁饭都不喂
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7205#       发表于 2020-6-4 11:58
+
+
+
+<blockquote>yuanhang99 发表于 2020-6-4 11:51
+毕竟和你小肥妹联动又没数字又没话题。你夸不喜欢和风评不好的管人联动的。
+
+Syl 夸宝最近和她最喜欢 ...</blockquote>
+你怎么这么云，你看看这个月我希的订阅增速和sc，这叫没数字？话题度就更不说了，她啥时候不是话题之一了？反而我还嫌我希太过于数字了呢，都这么努力还不赏下脸，整个圈子就你夸好不好？你们不是要风评好吗，喂饭就是涨风评怎么又不要了呢笑死我噜
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7206#       发表于 2020-6-4 11:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好羡慕你们的推竟然会开直播
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7207#       发表于 2020-6-4 11:59
+
+
+
+
+脑壳痛，反击就是心里有愧，不反击就是默认。妈妈救我！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7208#       发表于 2020-6-4 11:59
+
+
+
+
+喂饭怎么也要狐狸船长给mrr喂饭那种程度才能算吧，一次半次的联动算什么喂饭。。。。
+
+再说了，夏哥怎么说也是holo中层了，真的有喂饭的必要吗。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7209#       发表于 2020-6-4 12:00
+
+
+
+
+这鱼线缠的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7210#       发表于 2020-6-4 12:00
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7211#       发表于 2020-6-4 12:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">槽，说到底你就是看不惯你希舔阿夸，阿夸不回应啊。那没法子啊。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 7212#       发表于 2020-6-4 12:00
+
+
+
+
+兔皇联动营业做得过关，不过她那个尽量维持自己频道没别人的习惯有够病态
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7213#       发表于 2020-6-4 12:01
+
+
+
+
+都怪35p，本🐟又上钩了。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7214#       发表于 2020-6-4 12:01
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-4 11:59
+喂饭怎么也要狐狸船长给mrr喂饭那种程度才能算吧，一次半次的联动算什么喂饭。。。。
+
+再说了，夏哥怎么说也 ...</blockquote>
+在我希心里对比夸她就一个要饭的好不好！何况提出夸风评在你楼不好的又不是我，自己找不爽怪谁呢嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7215#       发表于 2020-6-4 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672968&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 11:58</a>
+
+你怎么这么云，你看看这个月我希的订阅增速和sc，这叫没数字？话题度就更不说了，她啥时候不是话题之一了 ...</blockquote>
+你希刚翻身夸就迫不及待的蹭上去，你是觉得夸身上的V圈吸血鬼的名头还不够响，holo第一功利人的帽子不够大？<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7216#       发表于 2020-6-4 12:03
+
+
+
+ 本帖最后由 erer 于 2020-6-4 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47673001&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 12:01</a>
+
+在我希心里对比夸她就一个要饭的好不好！何况提出夸风评在你楼不好的又不是我，自己找不爽怪谁呢嘻嘻 ...</blockquote>
+冷静冷静，护犊子到此为止。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7217#       发表于 2020-6-4 12:03
+
+
+
+<blockquote>yuanhang99 发表于 2020-6-4 12:02
+你希刚翻身夸就迫不及待的蹭上去，你是觉得夸身上的V圈吸血鬼的名头还不够响，holo第一功利人的帽子不够 ...</blockquote>
+可这样我风评就好了呀，要是夸赏次脸，我就帮你楼crew说话，就这么简单，我管个屁公理
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7218#       发表于 2020-6-4 12:03
+
+
+
+
+草V圈吸血鬼
+
+那兔皇算什么
+
+卫纯吸血鬼吗
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7219#       发表于 2020-6-4 12:03
+
+
+
+
+也不能怪夸皇，毕竟舔狗不得house这是普世准则<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7220#       发表于 2020-6-4 12:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">夏哥自己都没急，你帮她急什么？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7221#       发表于 2020-6-4 12:04
+
+
+
+
+今天收获：祭丝的精神确实都不太正常，希望夏哥多养gachi把这群人圈好了别放出来。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 7222#       发表于 2020-6-4 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不敢说话 我该帮哪边
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7223#       发表于 2020-6-4 12:06
+
+
+
+<blockquote>ひびき 发表于 2020-6-4 12:03
+也不能怪夸皇，毕竟舔狗不得house这是普世准则</blockquote>
+问题为了数字（为了可能的让夸正脸看她一眼），她都变成apex gamer了，喜欢唱歌跳舞讲笑话的她不见了，叔我心中的痛苦向谁说呀555
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 7224#       发表于 2020-6-4 12:07
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-4 12:04
+今天收获：祭丝的精神确实都不太正常，希望夏哥多养gachi把这群人圈好了别放出来。
+
+ ...</blockquote>
+淦，不就是最近全社都很功利她也功利导致我没被养吗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7225#       发表于 2020-6-4 12:07
+
+
+
+
+不是，你为什么非要把夏哥塑造成阿夸的终极舔狗啊，明明夏哥对谁都呼吸来着。
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 7226#       发表于 2020-6-4 12:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">游戏力我投社一票
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|+1|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7227#       发表于 2020-6-4 12:08
+
+
+
+
+吃个饭回来怎么都打成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+芙宝这拱火水平真的到家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+是holoark又出问题受刺激了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7228#       发表于 2020-6-4 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">粉丝不是应该更急了吗？
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 7229#       发表于 2020-6-4 12:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">希望colo老哥晚上不会变成谜语人
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 7230#       发表于 2020-6-4 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">夏gachi应该来m楼学习下
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 7231#       发表于 2020-6-4 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47673095&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-4 12:08</a>
+
+吃个饭回来怎么都打成这样了
+
+芙宝这拱火水平真的到家
+
+是holoark又出问题受刺激了吗 ...</blockquote>
+水晶岛延期了
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 7232#       发表于 2020-6-4 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47673023&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 12:03</a>
+
+可这样我风评就好了呀，要是夸赏次脸，我就帮你楼crew说话，就这么简单，我管个屁公理 ...</blockquote>
+Gachi粉这么卑微的吗？我觉得可能是你希的黄暴人设和夸宝RP想要的婴儿白莲花不合适才没什么联动吧？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7233#       发表于 2020-6-4 12:10
+
+
+
+
+希望colo哥不要搞holo式发表
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 7234#       发表于 2020-6-4 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">要不佐藤小姐邀请下动森懒猴？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 7235#       发表于 2020-6-4 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明是ark已成35专武，看一群小废物回来抢饭吃不自在
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 7236#       发表于 2020-6-4 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47673057&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-4 12:06</a>
+
+问题为了数字（为了可能的让夸正脸看她一眼），她都变成apex gamer了，喜欢唱歌跳舞讲笑话的她不见了，叔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打apex为了舔夸这种二创你真把自己绕进去了怎么行啊
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 7237#       发表于 2020-6-4 12:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47672851&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-4 11:51</a>
+
+大家听我说句话！！！</blockquote>
+？？？消息来源可靠吗.jpg
+
+
+
+
+
+        
