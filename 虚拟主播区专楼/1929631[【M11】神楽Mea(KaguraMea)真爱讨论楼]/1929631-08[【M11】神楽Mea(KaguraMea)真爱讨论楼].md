@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 18:02** 
+> ## **本文件最后更新于2020-06-06 20:02** 
 
 
 
@@ -7797,4 +7797,889 @@ D6C82246-835C-44F2-8EBA-9E66D34908E3.jpeg
 
 
 
-                                  
+
+
+-----
+
+####  nightmare902015  
+##### 10957#       发表于 2020-6-6 18:04
+
+
+
+
+草，宿管阿姨774大酒店是两月来我觉得最有意思的发散，有几分神韵
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10958#       发表于 2020-6-6 18:05
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-6 18:12 编辑 
+
+草，午觉醒来已经出现774击剑部了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">楼里774贴贴，不，击剑去吧
+syl，想想你麻在516的情况下还能继续藏肉猪就觉得此人情绪调节真的一流<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10959#       发表于 2020-6-6 18:16
+
+
+
+
+情弱问一下，516你麻藏了什么肉猪，放假一星期？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10960#       发表于 2020-6-6 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699890&amp;ptid=1929631" target="_blank">第三惑星 发表于 2020-6-6 18:16</a>
+情弱问一下，516你麻藏了什么肉猪，放假一星期？</blockquote>
+就是不知道才是肉猪啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猜来猜去都觉得她516没说实话，嘛不过到底有没有说实话还是只有楼里774清楚了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10961#       发表于 2020-6-6 18:22
+
+
+
+
+她自己说了不是什么都说了啊
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10962#       发表于 2020-6-6 18:24
+
+
+
+
+好吧，其实我也藏了肉猪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10963#       发表于 2020-6-6 18:24
+
+
+
+
+这不就是我前面说的吗，你不拿到台面上来不影响工作，那不就没问题了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得这个地方还是做的挺好的吧。剩下不需要说的东西和神乐mea无关呗，也不是每个人都愿意把私生活的事情带到工作里来的吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10964#       发表于 2020-6-6 18:24
+
+
+
+
+怎么就没说实话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10965#       发表于 2020-6-6 18:25
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-6 18:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看日期，516你们不追忆，今天来车，ping有点高啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">况且人类只会想去相信自己想相信的，不想相信的怎么说都没用
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10966#       发表于 2020-6-6 18:27
+
+
+
+
+吃完饭发现还在车516<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+486把以前楼的权限放开，让想车的自己去翻旧楼好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">研究这东西压根没新意啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10967#       发表于 2020-6-6 18:27
+
+
+
+
+谈到个人势的火抗属性，情不自禁掏出516举例吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+咩不播只能在楼里发发病的样子
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10968#       发表于 2020-6-6 18:29
+
+
+
+
+她那天也没说自己是处女吧？都回避了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10969#       发表于 2020-6-6 18:29
+
+
+
+
+她也没说自己不是处男吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10970#       发表于 2020-6-6 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699971&amp;ptid=1929631" target="_blank">proxima 发表于 2020-6-6 18:24</a>
+这不就是我前面说的吗，你不拿到台面上来不影响工作，那不就没问题了吗我觉得这个地方还是做的挺好 ...</blockquote>
+对呀，那时候还做的挺好的，结果后面失了智，又是前男友，又是五元的
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 10971#       发表于 2020-6-6 18:31
+
+
+
+
+小博鱼警告
+
+
+翻个身继续睡觉
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10972#       发表于 2020-6-6 18:31
+
+
+
+
+她也没说不是我老婆吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10973#       发表于 2020-6-6 18:32
+
+
+
+
+她也没否认在xxxx吧，她心里肯定有我
+你们天狗是真的牛批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10974#       发表于 2020-6-6 18:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太nt了，当个v还要有处女要求的
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">按照你juan平均水平，线下乱爬不是业余爱好吗，到你麻这就规定起处女道德底线了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10975#       发表于 2020-6-6 18:36
+
+
+
+
+不是， 你认不出那个人是谁吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10976#       发表于 2020-6-6 18:38
+
+
+
+
+怎么还跟小博禹较劲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10977#       发表于 2020-6-6 18:38
+
+
+
+
+🦄的血在我们每个人体内流淌
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10978#       发表于 2020-6-6 18:39
+
+
+
+
+我就是个听歌的，这点真不重要。
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10979#       发表于 2020-6-6 18:40
+
+
+
+
+我姑且还是觉得这样对大家都好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+爬了爬了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10980#       发表于 2020-6-6 18:42
+
+
+
+
+没认出，那么多号太辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10981#       发表于 2020-6-6 18:42
+
+
+
+
+其实咩酱自己也有意无意的在各种小的细节上作处女暗示的，她也知道这样比较好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+虽然因为蠢，偶尔会不小心暴露出些她自己也知道不该说的东西，但至少咩自己也不知道哪些是不应该说的，所以楼友们真的没有必要
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10982#       发表于 2020-6-6 18:43
+
+
+
+
+认出来了啊，只是她真的没否认过她是我老婆<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10983#       发表于 2020-6-6 18:47
+
+
+
+
+虽然不清楚你们怎么突然聊起这个
+
+我5.16当天喊过"mea774贴贴"，第二天我就发现这和那些脑补安排你mea姐和aqua结婚的人有什么区别。
+
+是不是以后mea和774不在一起了我也要幻灭脱粉啊。
+
+
+总之别把自己脑补当真就是了。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10984#       发表于 2020-6-6 18:47
+
+
+
+
+这一刻，我觉得vtuber是真的巴恰露，凭着直播中透漏的一点不知道是不是演出来的信息就能被人安排的明明白白，我又对虚拟人充满信心了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10985#       发表于 2020-6-6 18:54
+
+
+
+
+车这些还不如车下前两天的mea兔鞠伊东因幡联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看这几个剪辑好像口味还蛮重的
+<img src="https://p.sda1.dev/0/697326b135a712d291d84b67dee456f5/IMG_585A4F463BA04A8FF752A07E77AF5D1E.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10986#       发表于 2020-6-6 18:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10987#       发表于 2020-6-6 18:58
+
+
+
+
+咩联动聊的话题都挺重口的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">全是神回，奈何不会日语听不懂
+
+
+
+
+
+
+
+-----
+
+####  JustW  
+##### 10988#       发表于 2020-6-6 18:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久没爬楼，点进来一看，吓得我看了一眼日期，这五月份不是已经过去了吗
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 10989#       发表于 2020-6-6 19:07
+
+
+
+
+所以没播在车轱辘啊，那么这周还能看到她单人直播吗，按她说的下周会有很多联动，不会又是五月那种感觉吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10990#       发表于 2020-6-6 19:13
+
+
+
+
+啊啊啊动一动啊咩咩(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 10991#       发表于 2020-6-6 19:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一天没爬楼，点到最后一页就是小博鱼，晦气
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10992#       发表于 2020-6-6 19:16
+
+
+
+
+话说你们一个个都妄想自己是mea的男朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10993#       发表于 2020-6-6 19:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700619&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-6-6 19:14</a>
+一天没爬楼，点到最后一页就是小博鱼，晦气</blockquote>
+送他个举报就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10994#       发表于 2020-6-6 19:18
+
+
+
+
+小博鱼自称不看直播，但是对最新最in的直播内容都异常了解，是不是傲娇啊
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10995#       发表于 2020-6-6 19:18
+
+
+
+
+没看过真人偶像，不过看隔壁彩虹那个的第一个人长相还蛮对胃口的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 10996#       发表于 2020-6-6 19:23
+
+
+
+
+我感觉小博🐟确实不看直播，说话挺云的。估计偶尔点几个剪辑然后进楼发言。
+
+而且他也不是mea的anti。估计被坛友围殴后心理不满想恶心坛友回去的那种类型。就是坛anti的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+也没见他在其他地方撒泼打滚
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10997#       发表于 2020-6-6 19:28
+
+
+
+ 本帖最后由 路人子 于 2020-6-6 19:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果他从最开始就像现在这么假装理客中（虽然基本都是靠论坛云出来的结论然后加上自己的脑补）的话，那他那个大号上的-200鹅是不可能被扣出来的
+
+
+syl，咩姐最近状态挺好的，几个档补起来都挺有意思，没事的还是建议去补档吧
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10998#       发表于 2020-6-6 19:28
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-6 19:44 编辑 
+
+坛anti也是为坛盈利做贡献，m楼的诸位都是让他交下一个五块钱的动力啊
+去一换一楼里看了眼，还挺逗的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10999#       发表于 2020-6-6 19:31
+
+
+
+
+小博禹不会是女粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+扭曲的女粉第一次见
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11000#       发表于 2020-6-6 19:31
+
+
+
+
+一般人哪有你们这么多时间，我要有那么多看mea和野男人联动的时间，不如多看几把shy爹的卢锡安<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11001#       发表于 2020-6-6 19:31
+
+
+
+
+话说官组又出新熟肉了(ಡωಡ) ，最近好起来了呀
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11002#       发表于 2020-6-6 19:33
+
+
+
+
+bsyl(눈_눈)还是别理小博禹 给他举报放置了吧。这种人就是有互动了才到处乱跳，全拉黑没人看他他就消停了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11003#       发表于 2020-6-6 19:37
+
+
+
+
+我也没否定他就是弱智rp理中客啊。
+
+这人不就是个小巨魔，还比萨尔之流的还差远了。
+
+本质就是泥潭自由度比较高或者说(下限比隔壁低点)才能让这类人在楼里活这么久。
+
+本身就是那种踩着泥潭底线说话的人，激起民愤后还觉得自己受委屈，气不过来继续来楼里弱智。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+和2K没多大区别吧。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11004#       发表于 2020-6-6 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700934&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-6-6 19:37</a>
+我也没否定他就是弱智rp理中客啊。
+
+这人不就是个小巨魔，还比萨尔之流的还差远了。
+
+本质就是泥潭自由度比较 ...</blockquote>
+研究小博禹去隔壁一换一那楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能顺便问下能不能直接处理了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11005#       发表于 2020-6-6 19:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700973&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-6 19:40</a>
+
+研究小博禹去隔壁一换一那楼吧还能顺便问下能不能直接处理了</blockquote>
+说得对<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 11006#       发表于 2020-6-6 19:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别，2000怪文书还能看，小博鱼除了天天车轱辘下三路还会啥，跟yyr有啥区别
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11007#       发表于 2020-6-6 19:54
+
+
+
+
+都要9点了，动啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11008#       发表于 2020-6-6 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701069&amp;ptid=1929631" target="_blank">暴走的包子 发表于 2020-6-6 19:47</a>
+
+别，2000怪文书还能看，小博鱼除了天天车轱辘下三路还会啥，跟yyr有啥区别 ...</blockquote>
+确实有点乳2K了，我主要是想说他们俩的发言出发点都是为了恶心坛友，anti行为某种程度上是种附属？但不否定他们发言确实恶心和有点激起民愤了。
+
+不回了，之后去隔壁楼聊也行
+
+
+
+
+
+                                 

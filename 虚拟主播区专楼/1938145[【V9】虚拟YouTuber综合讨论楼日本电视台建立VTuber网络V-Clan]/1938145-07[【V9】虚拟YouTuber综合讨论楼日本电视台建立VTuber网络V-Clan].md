@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 18:08** 
+> ## **本文件最后更新于2020-06-06 20:09** 
 
 
 
@@ -15187,10 +15187,11 @@ crew们跟我冲爆holo 大家一起转生凛人
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 蒹葭公子| + 1|欢乐多|
 | InvisibleP| + 1|思路广|
 | YODOboi| + 1|欢乐多|
 | mmbk| + 1|欢乐多|
@@ -16109,7 +16110,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_Z009S" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_vJ3J1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -18131,17 +18132,2521 @@ S1に入って後悔した事はないです。
 
 
 
+ 本帖最后由 墨玄i 于 2020-6-6 18:32 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47694090&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-6 02:55</a>
 全肯定民只能养出废物，比如御伽原江良，不爽的时候就要喷。我已经推特跳脸几次了。 ...</blockquote>
 本蔡这就是你说的推上跳脸吗
 本蔡你好亚撒西<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
-<img src="https://p.sda1.dev/0/1b5d05ff8fe686a8fc9a2e3a748016e0/IMG_74E7FC13171FF4368F0336A43B0DB832.jpeg" referrerpolicy="no-referrer">
 
-<img src="https://p.sda1.dev/0/436c92168f5b3b2e6ac45f4548bc727d/IMG_F666FEF9261D3AA7ED188A964C08FE23.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/c2bb05b6feac4372d2bcaca24f7a5d33/IMG_EE8C095B5C20462D7366E2E962D2AF6C.jpeg" referrerpolicy="no-referrer">
 
-
-
+<img src="https://p.sda1.dev/0/94db9634d9759fb65f581ed149476e3a/IMG_96421E104296BC0AEC3C346A668661FA.jpeg" referrerpolicy="no-referrer">
 
 
-                   
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 10战斗力 +10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stedckk| + 1|欢乐多|
+| mmbk| + 1|欢乐多|
+| anwen76| + 1|欢乐多|
+| UnhappyTails| + 1|配信して（乞い|
+| colodes| + 1||
+| Ascending| + 1|欢乐多|
+| あのん| + 1|欢乐多|
+| 泡芙好吃| + 1|欢乐多|
+| A2014720| + 1|欢乐多|
+| 魔法使い2019| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9929#       发表于 2020-6-6 18:09
+
+
+
+ 本帖最后由 colodes 于 2020-6-6 18:11 编辑 
+
+配信しろ!
+
+👇
+
+おやすみ~
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9930#       发表于 2020-6-6 18:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 9931#       发表于 2020-6-6 18:11
+
+
+
+
+不要特管人粉丝不要特管人粉丝
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9932#       发表于 2020-6-6 18:14
+
+
+
+
+草草草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要这样，给人留点面子
+
+你们要是看了我推特要人设崩坏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 9933#       发表于 2020-6-6 18:14
+
+
+
+
+这样只会被人讨厌而已
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9934#       发表于 2020-6-6 18:15
+
+
+
+
+不要再破坏楼友的虚拟感了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 9935#       发表于 2020-6-6 18:15
+
+
+
+
+handsomeC，这取名有点水平，原谅我不基德的笑了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9936#       发表于 2020-6-6 18:16
+
+
+
+
+看来推特跳脸指定战神还是芙宝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9937#       发表于 2020-6-6 18:17
+
+
+
+
+突然就好奇2000在推上是不是跪舔月撇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9938#       发表于 2020-6-6 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699808&amp;ptid=1938145" target="_blank">墨玄i 发表于 2020-6-6 18:07</a>
+本蔡这就是你说的推上跳脸吗
+本蔡你好亚撒西</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你用大号跳脸的吗？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9939#       发表于 2020-6-6 18:18
+
+
+
+
+题外话
+
+
+接着活墓碑是狗子粉丝这事，咱跑去找了活墓碑的作品，然后因为咱还喜欢小马
+
+
+于是找到了这首[https://www.bilibili.com/video/B ... 4704058483996208739](https://www.bilibili.com/video/BV1Ms411278E?from=search&amp;seid=4704058483996208739)
+
+
+真好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 9940#       发表于 2020-6-6 18:18
+
+
+
+
+太典型了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9941#       发表于 2020-6-6 18:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+你楼：哎这个好像是帅哥，他不是最近说跳脸吗？看看历史回复！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我了，就这？赶快发一回复嘲笑他。
+真实的帅哥：我要跳脸的同时以免被屏蔽，下一次再跳脸麻烦，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我决定开个小号嘲笑江。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9942#       发表于 2020-6-6 18:25
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-6 18:27 编辑 
+
+不知道为什么有mk2的感觉
+
+也许是因为喜欢用 &gt;<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9943#       发表于 2020-6-6 18:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699902&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-6 18:17</a>
+我肯定开了小号啊你用大号跳脸的吗？</blockquote>
+我错辣，帅哥，就知道你不会让江信失望😭
+一定要重拳出击啊👊
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9944#       发表于 2020-6-6 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700012&amp;ptid=1938145" target="_blank">墨玄i 发表于 2020-6-6 18:27</a>
+我错辣，帅哥，就知道你不会让江信失望😭
+一定要重拳出击啊👊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去发。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9945#       发表于 2020-6-6 18:28
+
+
+
+
+你楼连开大号提意见（跳脸）的想法都不敢有，还好意思说爱她/他
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9946#       发表于 2020-6-6 18:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特屏蔽做的太好了，黑一遍就进黑屋了，没法玩。
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9947#       发表于 2020-6-6 18:30
+
+
+
+
+我何德何能啊，还是快快去请2k老仙吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9948#       发表于 2020-6-6 18:30
+
+
+
+
+ねぇ、絵文字を使うな
+
+<img src="https://img.saraba1st.com/forum/202006/06/182741rvl3jozakooji3if.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ddxx.jpg</strong> (120.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 18:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 9949#       发表于 2020-6-6 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700044&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 18:30</a>
+ねぇ、絵文字を使うな</blockquote>
+醉了，好恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9950#       发表于 2020-6-6 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 9951#       发表于 2020-6-6 18:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699871&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 18:14</a>
+草草草不要这样，给人留点面子
+
+你们要是看了我推特要人设崩坏的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你总是说你被拉黑，好歹把被拉黑的原话让大伙儿看下吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9952#       发表于 2020-6-6 18:32
+
+
+
+
+pro哥营业不易， 放过他吧
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 9953#       发表于 2020-6-6 18:32
+
+
+
+
+多说两句啊，他就快急到闭麦了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9954#       发表于 2020-6-6 18:33
+
+
+
+
+好奇Pro哥被拉黑后开了几个小号去关注苔苔
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9955#       发表于 2020-6-6 18:33
+
+
+
+ 本帖最后由 墨玄i 于 2020-6-6 18:37 编辑 
+
+我还是打个码吧，等下2k看到又要跳脸了
+想了想好像也没错，最近感觉自己太卑微了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+(不过这emoji真的.....
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 9956#       发表于 2020-6-6 18:34
+
+
+
+
+小号跳脸大号安慰，等等，这不就是标准的雇小流氓英雄救美套路么，这个本蔡良心**的坏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9957#       发表于 2020-6-6 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">楼友来点嘲讽的话，我开小号去喷她。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 9958#       发表于 2020-6-6 18:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700101&amp;ptid=1938145" target="_blank">yuandi0120 发表于 2020-6-6 18:34</a>
+
+小号跳脸大号安慰，等等，这不就是标准的雇小流氓英雄救美套路么，这个本蔡良心**的坏啊 ...</blockquote>
+想起打越新作里那个偶像宅  开复数不同立场小号和自己大号互动以引起推的注意 <img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 9959#       发表于 2020-6-6 18:38
+
+
+
+
+如果真有小号去喷的话，这不是常见的黑粉营业维持自家爱豆热度的操作吗<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9960#       发表于 2020-6-6 18:39
+
+
+
+
+还是多体谅吧，我一想到自己的推如果变得像江良一样，眼泪都快要下来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">。
+
+到时候我可能都不是🥜本蔡而是🥜小博禹了
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9961#       发表于 2020-6-6 18:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们可总有黑法，快集思广益给我点黑她的话啊
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 9962#       发表于 2020-6-6 18:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能当个正常的管人粉丝，不要这么恶心
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9963#       发表于 2020-6-6 18:41
+
+
+
+
+ハンサムさんって語彙力ちょっとヤバいよね
+
+荒らしとかできないじゃないですかね、JK
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 9964#       发表于 2020-6-6 18:41
+
+
+
+
+什么叫正常的管人粉丝
+
+只会 すき かわいい 草 えらい おめでとう?
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 9965#       发表于 2020-6-6 18:42
+
+
+
+
+还有kksk
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9966#       发表于 2020-6-6 18:42
+
+
+
+
+想想我的推要是不播，可能我就要每天发怪文书了。
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9967#       发表于 2020-6-6 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700172&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-6 18:41</a>
+ハンサムさんって語彙力ちょっとヤバいよね
+
+荒らしとかできないじゃないですかね、JK ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又不是看不懂handsome
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9968#       发表于 2020-6-6 18:43
+
+
+
+
+楼友太巨魔了，我为我的纯粮惭愧不已
+
+さらなる高みへ<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9969#       发表于 2020-6-6 18:44
+
+
+
+
+楼友都是数码宝贝吗，怎么还有各种进化方向的（
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9970#       发表于 2020-6-6 18:45
+
+
+
+
+这不是日语不行吗？来点怪文书啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9971#       发表于 2020-6-6 18:46
+
+
+
+ 本帖最后由 colodes 于 2020-6-6 18:54 编辑 
+
+にじさんじのイブラヒム
+
+偽トロキャプチャー使って3DS配信
+
+そっちも黙認ベース使ってんじゃん
+
+
+664 名無しさん＠お腹いっぱい。 sage 2020/06/06(土) 18:11:51.99 ID:Uj+9NRg600606
+
+えぇ…
+
+
+【 イナズマイレブン1 】驚異の侵略者クズ/カス第１話【にじさんじ/イブラヒム】
+[http://www.youtube.com/watch?v=2aMVZ889n6o](http://www.youtube.com/watch?v=2aMVZ889n6o) (動画)
+<img src="http://i.ytimg.com/vi/2aMVZ889n6o/maxresdefault.jpg" referrerpolicy="no-referrer">
+
+
+721:名無しさん＠お腹いっぱい。[sage] 2020/06/06(土) 19:04:27.58
+
+[https://youtu.be/tFhKKsl91fY?t=673](https://youtu.be/tFhKKsl91fY?t=673) (動画)
+
+「この画面の感じ直撮りか、いや直撮りではない。偽トロキャプチャーだよ」
+
+「偽トロは何とか手配した。あえてね」
+
+
+
+
+イブラヒムは他人の偽トロ確定
+
+自作ならセーフって理論も通用しないぞ
+
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9972#       发表于 2020-6-6 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">别再取类似的名字了不都说过了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次就是因为类似的事才弄得被特到
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9973#       发表于 2020-6-6 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700175&amp;ptid=1938145" target="_blank">魔法使い2019 发表于 2020-6-6 18:41</a>
+
+什么叫正常的管人粉丝
+
+
+只会 すき かわいい 草 えらい おめでとう?</blockquote>
+你忘了こんにちは和お疲れ様でした<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9974#       发表于 2020-6-6 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700244&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 18:46</a>
+
+にじさんじのイブラヒム
+
+偽トロキャプチャー使って3DS配信
+
+そっちも黙認ベース使ってんじゃん</blockquote>
+あーあ
+
+はじまった
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9975#       发表于 2020-6-6 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700063&amp;ptid=1938145" target="_blank">framita 发表于 2020-6-6 18:31</a>
+
+你总是说你被拉黑，好歹把被拉黑的原话让大伙儿看下吧</blockquote>
+我怎么会知道是因为什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过没有说清楚是我不好，海苔男把我给ミュート了不是ブロック了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">她怎么会做留下把柄的事情
+
+不过一定要说的话过了很久了现在可能解掉了
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9976#       发表于 2020-6-6 18:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700254&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-6 18:47</a>
+别再取类似的名字了不都说过了吗
+每次就是因为类似的事才弄得被特到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特了咋了？你楼楼友都这么畏畏缩缩的么？倒是来点怪文书才是真的。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9977#       发表于 2020-6-6 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700175&amp;ptid=1938145" target="_blank">魔法使い2019 发表于 2020-6-6 18:41</a>
+
+什么叫正常的管人粉丝
+
+
+只会 すき かわいい 草 えらい おめでとう?</blockquote>
+熟练推的打招呼和告别定型语，24小时视奸推的推五分钟之内点赞扩散，视推的需要写长文回复。
+
+直播时一心二用一边听直播一边用#tag刷趋势热度
+
+没事去揭示板发自演贴换小号顶带热度，熟练直播中打红sc拱火的技巧和时机。
+
+推发谷子和event购入/到场并拍照发推、转发etc
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9978#       发表于 2020-6-6 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9979#       发表于 2020-6-6 18:51
+
+
+
+
+不想被人看到萌萌人的样子，这可是羞耻play啊。
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 9980#       发表于 2020-6-6 18:51
+
+
+
+
+gbr现在都没人看的，想写怪文书也写不出来啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9981#       发表于 2020-6-6 18:52
+
+
+
+
+これ全部許可取ったってすごくない？
+
+本当に許可取ったの？
+
+
+デジモン
+[https://youtu.be/2S8khNnQFEo](https://youtu.be/2S8khNnQFEo) (動画)
+
+仮面ライダー
+[https://youtu.be/4oGj-th4pw4](https://youtu.be/4oGj-th4pw4) (動画)
+
+遊戯王
+[https://youtu.be/8gVY3zRcm-E](https://youtu.be/8gVY3zRcm-E) (動画)
+
+ハリポタ
+[https://youtu.be/6EY_d7JhIR4](https://youtu.be/6EY_d7JhIR4) (動画)
+
+ゾイド
+[https://youtu.be/lg3ujCcESds](https://youtu.be/lg3ujCcESds) (動画)
+
+ゲッター
+[https://youtu.be/btS-vZNA2PA](https://youtu.be/btS-vZNA2PA) (動画)
+
+ガンダムいっぱい
+[https://youtu.be/e9fzgxxm69A](https://youtu.be/e9fzgxxm69A) (動画)
+[https://youtu.be/pfN1KkUvd6s](https://youtu.be/pfN1KkUvd6s) (動画)
+[https://youtu.be/GxaFjPbJ8u4](https://youtu.be/GxaFjPbJ8u4) (動画)
+[https://youtu.be/0rC-CQFM780](https://youtu.be/0rC-CQFM780) (動画)
+[https://youtu.be/97Gv0_Xksno](https://youtu.be/97Gv0_Xksno) (動画)
+[https://youtu.be/3OOL9G1F9nM](https://youtu.be/3OOL9G1F9nM) (動画)
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 9982#       发表于 2020-6-6 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来楼友都只敢躲在屏幕背后黑屁吗？
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 9983#       发表于 2020-6-6 18:53
+
+
+
+
+cold老哥现在不应该在散步吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9984#       发表于 2020-6-6 18:56
+
+
+
+
+跑步回家了
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 9985#       发表于 2020-6-6 18:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9986#       发表于 2020-6-6 18:58
+
+
+
+ 本帖最后由 colodes 于 2020-6-6 19:00 编辑 
+
+この業界をぶっ壊すぞ
+
+任天堂のガイドラインに偽トロを使用した配信は禁止って明言されてた
+
+<img src="https://img.saraba1st.com/forum/202006/06/190036behhshb8w488dzs4.png" referrerpolicy="no-referrer">
+
+
+<strong>CWoNHMb.png</strong> (14.05 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 19:00 上传
+
+
+
+
+
+
+
+偽トロ棒出しとくか
+
+こいつらが確定で偽トロ使ってたVな
+
+にじさんじ
+
+ひまわり
+
+アレ
+
+笹木
+
+リゼ
+
+ロア
+
+嘘松
+
+めありー
+
+油
+
+りりむ
+
+いちご
+
+コウ
+
+勝
+
+女将
+
+
+ホロライブ
+
+あくあ
+
+ぺこら
+
+マリン
+
+るしあ
+
+ミオ
+
+ロボ子
+
+ホロスタ
+
+
+アイドル部
+
+北上双葉
+
+花京院ちえり
+
+
+あにまーれ
+
+はねる
+
+
+個人
+
+ぽんぽこ
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9987#       发表于 2020-6-6 18:59
+
+
+
+
+说起来今天在NGA复习了下发帖的代码，发现aqua居然是一个颜色的代码<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我试试S1能不能用
+
+测试
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9988#       发表于 2020-6-6 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700407&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-6 18:59</a>
+说起来今天在NGA复习了下发帖的代码，发现aqua居然是一个颜色的代码我试试S1能不能用
+
+
+测试 ...</blockquote>
+问下，nga的代码和s1的是一样的吗
+
+还是说论坛的代码都差不多
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9989#       发表于 2020-6-6 19:02
+
+
+
+
+偽トロ是啥，模拟器？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9990#       发表于 2020-6-6 19:03
+
+
+
+
+ちょっと待って
+
+偽トロ棒使うなら不正競争防止法改正までの配信はセーフじゃね？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9991#       发表于 2020-6-6 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700451&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 19:02</a>
+
+偽トロ是啥，模拟器？</blockquote>
+改造游戏机能够输出画面到电脑上显示，而不用直摄
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 9992#       发表于 2020-6-6 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700451&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 19:02</a>
+偽トロ是啥，模拟器？</blockquote>
+录3DS画面的外挂硬件
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9993#       发表于 2020-6-6 19:04
+
+
+
+
+watama哭了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9994#       发表于 2020-6-6 19:04
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-6-6 19:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700448&amp;ptid=1938145" target="_blank">墨玄i 发表于 2020-6-6 19:02</a>
+
+问下，nga的代码和s1的是一样的吗</blockquote>
+我也不懂啊，一窍不通......只知道S1不支持[collapse][/collapse]，删除线是s，但颜色好像都是[color=颜色名]
+
+
+-----
+
+####  泡芙好吃  
+##### 9995#       发表于 2020-6-6 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699889&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-6 18:16</a>
+
+看来推特跳脸指定战神还是芙宝啊</blockquote>
+你说错了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 9996#       发表于 2020-6-6 19:05
+
+
+
+
+彩虹新入驻的几个已经能搞出B限联动了吗？是不是有人跟他们说B站很好赚？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9997#       发表于 2020-6-6 19:05
+
+
+
+
+被一个玩的挺好的朋友推荐了夏色祭 心情有点复杂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 9998#       发表于 2020-6-6 19:06
+
+
+
+
+v综的日语浓度回来了，但是变味了（悲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9999#       发表于 2020-6-6 19:08
+
+
+
+
+很久没看羊的直播了看了一眼还是那种虚无至极的感觉
+
+为什么生日直播都能有这种虚无的氛围
+
+果然是不哭不行啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10000#       发表于 2020-6-6 19:08
+
+
+
+
+s1用的是discuz！的代码吧
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 10001#       发表于 2020-6-6 19:10
+
+
+
+
+补了下48早安，486说懒狗很久没联系她，结果突然主动找她说梦到486去到很远的地方了，于是486的魂就被钩回去了。。486你也是个立派的绫人了啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+话说回来，486觉得一般来说关系好的话会因为害羞很难这么直白的说这种事，那么反过来说，懒狗对486其实是<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10002#       发表于 2020-6-6 19:11
+
+
+
+
+偽トロ不就是自己改机子么？这种行为老美都弄无数次了难道日本不行？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10003#       发表于 2020-6-6 19:12
+
+
+
+
+草
+
+又输了
+
+miko的永远赢不了的世界线收束理论
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 10004#       发表于 2020-6-6 19:13
+
+
+
+
+不用这个怎么播3ds啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10005#       发表于 2020-6-6 19:13
+
+
+
+
+梅露给羊送了庆生视频啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10006#       发表于 2020-6-6 19:14
+
+
+
+
+MIKO这什么鬼BGM。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10007#       发表于 2020-6-6 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700603&amp;ptid=1938145" target="_blank">mmbk 发表于 2020-6-6 19:13</a>
+
+不用这个怎么播3ds啊</blockquote>
+拿个webcam直接怼屏幕，至少东京相遇里是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 10008#       发表于 2020-6-6 19:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">楼友不肯帮我想怪文书，哭了哭了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10009#       发表于 2020-6-6 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700622&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-6 19:14</a>
+
+MIKO这什么鬼BGM。。。。。。</blockquote>
+一直如此啊
+
+每次有人生日的时候就配这个茶番BGM
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10010#       发表于 2020-6-6 19:16
+
+
+
+
+改机子应该是没问题，毕竟这机子是你自己买的，那买完了怎么改就是自己的事情了，就像自己玩破解没问题，但是卖破解机犯法这样的
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10011#       发表于 2020-6-6 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700481&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-6 19:04</a>
+
+watama哭了</blockquote>
+是watame呀，不要讲粗话<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1|啊不好意思每次要打都手滑打错了没看出来.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10012#       发表于 2020-6-6 19:18
+
+
+
+ 本帖最后由 墨玄i 于 2020-6-6 19:20 编辑 
+
+无用的知识get√
+https://zh.wik ipedia.org/wiki/Discuz%21?wprov=sfla1
+看了下用discuz的版面
+和s1和差不多
+
+<img src="https://p.sda1.dev/0/90f9460b949550869241ba9804b4061b/IMG_6462CFA52D2E00809497EFDA4C193EF3.jpeg" referrerpolicy="no-referrer">
+
+YouTube都可以打全了wiki pedia还是屏蔽词
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10013#       发表于 2020-6-6 19:20
+
+
+
+
+Nintendo Switch使用条款
+
+(5) 您不得不当地改造本游戏机本体、周边机器或本软件等，亦不得使用任何未经任天堂许可的本游戏机的周边机器或软件等；
+[https://www.nintendoswitch.com.cn/policy/device.html](https://www.nintendoswitch.com.cn/policy/device.html)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10014#       发表于 2020-6-6 19:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700540&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-6 19:08</a>
+
+s1用的是discuz！的代码吧</blockquote>
+PC网页版页面左下角……
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 10015#       发表于 2020-6-6 19:23
+
+
+
+
+为啥你们每次repo羊的时候都是在哭
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1|因为，真的在哭啊……|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 10016#       发表于 2020-6-6 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700632&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-6 19:15</a>
+
+楼友不肯帮我想怪文书，哭了哭了 ...</blockquote>
+你樓連王侯都可以跟七色太監搞混了 你以為真的有幾個看江良的
+
+連雲的都沒幾個怎麼想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 去找七色太監想怪文書吧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10017#       发表于 2020-6-6 19:26
+
+
+
+
+就算看猴子我也不想帮你想怪文书啊。。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10018#       发表于 2020-6-6 19:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">不正競争防止法的话ゲーム機器の改造代行是违法行为，但自改拿来直播算么
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10019#       发表于 2020-6-6 19:28
+
+
+
+
+进去就抓到粽子，不过她这好敷衍啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10020#       发表于 2020-6-6 19:31
+
+
+
+
+本蔡哥哥平时的发言就已经很怪了，还需要什么怪文书啊？像小小雪空一样写两篇日记就好了啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10021#       发表于 2020-6-6 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700812&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-6 19:28</a>
+
+进去就抓到粽子，不过她这好敷衍啊。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看看大脸猫那个整活
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 10022#       发表于 2020-6-6 19:32
+
+
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gfisqvlofwj20aq0bngml.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 10023#       发表于 2020-6-6 19:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 猴戏有什么好看的，
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">葵皇和韩国人一起吃烤肉，
+
+
+我也和别人一起吃韩国烤肉，我和葵皇贴贴
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 10024#       发表于 2020-6-6 19:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有翻译费
+
+
+
+
+
+
+
+-----
+
+####  锡哒哒  
+##### 10025#       发表于 2020-6-6 19:35
+
+
+
+
+本蔡帅哥是什么麻烦女友吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10026#       发表于 2020-6-6 19:35
+
+
+
+
+海苔男又自称个人势了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 10027#       发表于 2020-6-6 19:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700889&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-6 19:33</a>
+猴戏有什么好看的，
+
+
+葵皇和韩国人一起吃烤肉，</blockquote>
+你和韩国烤肉一起吃韩国人么？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10028#       发表于 2020-6-6 19:38
+
+
+
+ 本帖最后由 墨玄i 于 2020-6-6 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47619565&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-5-30 23:07</a>
+v综的各位有谁想挑战一下桃皇原创曲吗
+
+【原创角色曲】《Spade》~黑桃影2020生日纪念~♠_哔哩哔哩 ( ...</blockquote>
+超时空对话
+来点阴间的活<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+v8翻唱大赛
+https://live.bilibili.com/21195828?share_source=copy_link
+(斧子哥不买s1买v吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+是因为v吧更像粪坑吗
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10029#       发表于 2020-6-6 19:38
+
+
+
+
+holo成员好无聊啊
+
+生日祝福视频的梗子都能全撞在一起
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10030#       发表于 2020-6-6 19:38
+
+
+
+
+小虎都敢出杀人书了你们还在聊版权？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我以为昨天yagoo一波滑跪这个话题就过去了呢
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10031#       发表于 2020-6-6 19:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700945&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-6 19:38</a>
+
+holo成员好无聊啊
+
+生日祝福视频的梗子都能全撞在一起</blockquote>
+你刚说完COCO就来了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10032#       发表于 2020-6-6 19:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/194114dqxt1gp1zvl3bii2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6w2DYWQ.jpg</strong> (566.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 19:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 10033#       发表于 2020-6-6 19:41
+
+
+
+
+我推怎么把以前的**都删了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10034#       发表于 2020-6-6 19:43
+
+
+
+
+【速报】羊哭了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10035#       发表于 2020-6-6 19:44
+
+
+
+
+她撩妹子一向可以的（指PPT）
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10036#       发表于 2020-6-6 19:45
+
+
+
+
+今天拿到一血的居然是天宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10037#       发表于 2020-6-6 19:45
+
+
+
+
+AKIZ这皮简直公开处刑。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10038#       发表于 2020-6-6 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701037&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-6 19:45</a>
+
+今天拿到一血的居然是天宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她渣男一向可以的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10039#       发表于 2020-6-6 19:49
+
+
+
+
+4次猜拳
+
+3次画图
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10040#       发表于 2020-6-6 19:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700603&amp;ptid=1938145" target="_blank">mmbk 发表于 2020-6-6 19:13</a>
+不用这个怎么播3ds啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">那当然是模拟器啦，比如wii或wii u上的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10041#       发表于 2020-6-6 19:51
+
+
+
+
+时雨啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10042#       发表于 2020-6-6 19:51
+
+
+
+
+话说时雨妈和WTM说话真的好像
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 10043#       发表于 2020-6-6 19:52
+
+
+
+
+好无聊，来点版权浓度
+有没有<strong>清白合法</strong>的51合1联动可以看啊
+sio这一个人玩有什么意思
+
+昨晚瞥见小秦在联机，很欢乐是没错
+但违法直播我忍不了直接吐了，虽然没人打钱就是了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10044#       发表于 2020-6-6 19:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701133&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-6 19:51</a>
+
+话说时雨妈和WTM说话真的好像</blockquote>
+出道初配信的时候所有人第一印象就是『时雨！？』
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10045#       发表于 2020-6-6 19:54
+
+
+
+
+アプランはホロよりも仲良し女の子達がゲームでキャッキャ感が強かった分打ち切り前に突然バトル路線になった漫画レベルの演者同士の殴り合いに幻滅して滅んだみたいなもんだからホロとは完全に別物よ
+
+ホロもホロで権利関係とか生々しいことで問題になっててそれはそれで胃が痛いけども
+
+
+これはドル豚の末路😥
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10046#       发表于 2020-6-6 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701164&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-6 19:53</a>
+
+出道初配信的时候所有人第一印象就是『时雨！？』</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有时雨和WTM的多人生肉一定很难烤吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10047#       发表于 2020-6-6 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701142&amp;ptid=1938145" target="_blank">离魂仙 发表于 2020-6-6 19:52</a>
+
+好无聊，来点版权浓度
+
+有没有清白合法的51合1联动可以看啊
+
+sio这一个人玩有什么意思</blockquote>
+[https://www.youtube.com/watch?v=I_uy0lfezes](https://www.youtube.com/watch?v=I_uy0lfezes)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10048#       发表于 2020-6-6 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701185&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-6 19:55</a>
+
+有时雨和WTM的多人生肉一定很难烤吧</blockquote>
+我猜犬山组要把时雨模仿赛的熟肉鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 10049#       发表于 2020-6-6 19:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer"> 一想到我晚上被臭男人宰了五百多，
+
+
+葵宝反而和某人lovelove烤肉，
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10050#       发表于 2020-6-6 20:00
+
+
+
+<blockquote>离魂仙 发表于 2020-6-6 19:52
+好无聊，来点版权浓度
+
+有没有清白合法的51合1联动可以看啊
+
+sio这一个人玩有什么意思</blockquote>
+从韦天视角看。众所周知，任天堂在中国重拳出击靠tx，但tx橄榄直播权只针对cc的王者荣耀，小秦在cc，属于tx不认可的平台，但天哥在b站被tx投资了，肯定是认可的。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10051#       发表于 2020-6-6 20:00
+
+
+
+
+酷くねぇ？
+
+<img src="https://img.saraba1st.com/forum/202006/06/200016gmrueqqrttldj5cr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-06 195834.jpg</strong> (104.78 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 20:00 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1|谁？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10052#       发表于 2020-6-6 20:01
+
+
+
+
+原创曲最少要到10月份才能发布吧
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10053#       发表于 2020-6-6 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701241&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 20:00</a>
+
+酷くねぇ？</blockquote>
+不求同年同月同日生，但求有福同享有难同当？
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10054#       发表于 2020-6-6 20:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701142&amp;ptid=1938145" target="_blank">离魂仙 发表于 2020-6-6 19:52</a>
+
+好无聊，来点版权浓度
+
+有没有清白合法的51合1联动可以看啊
+
+sio这一个人玩有什么意思</blockquote>
+清白合法的那不就只有虹了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这两天挺多人播的，感觉之后会有大联动或者比赛也有可能
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10055#       发表于 2020-6-6 20:07
+
+
+
+
+kson这个月要过庆祝两次生日吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/06/200555zz0r8auzkkaa4uho.png" referrerpolicy="no-referrer">
+
+
+<strong>e381999fa87e95254db642dad771732e-1024x562.png</strong> (296.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 20:05 上传
+
+
+
+
+
+
+
+
+
+
+              
