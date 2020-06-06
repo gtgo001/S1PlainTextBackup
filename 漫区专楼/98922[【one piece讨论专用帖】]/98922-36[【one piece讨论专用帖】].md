@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-03 20:00** 
+> ## **本文件最后更新于2020-06-06 14:24** 
 
 
 
@@ -632,22 +632,16 @@
 
 
 
-<img src="https://img.saraba1st.com/forum/202005/03/092948uppgkcsbhllv34z5.jpg" referrerpolicy="no-referrer">
-
-
-<strong>f30942a7d933c89581682512c61373f082020076 (1).jpg</strong> (110.68 KB, 下载次数: 0)
-
-下载附件
-
-2020-5-3 09:29 上传
-
-
-
-
-
 
 
 这张图是哪一话里的～～～<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+<strong>本帖子中包含更多资源</strong>
+您所在的用户组无法下载或查看附件
+
+x
+
 
 
 
@@ -2050,63 +2044,10 @@ B漫这分页看得真难受</blockquote>
 海上第七个皇帝诞生了
 
 
+<strong>本帖子中包含更多资源</strong>
+您所在的用户组无法下载或查看附件
 
-
-
-
-BbsImg_9951571866222_1590070542_s_161646_o_w_669_h_1019_50862.webp.jpg
-(509.47 KB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-5-22 09:23 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202005/22/092337owqnjhvwr7gvuhnu.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-BbsImg_9951571866222_1590070546_s_169416_o_w_656_h_1024_14562.webp.jpg
-(508.42 KB, 下载次数: 0)
-
-
-
-
-下载附件
-
-
-2020-5-22 09:23 上传
-
-
-
-
-
-
-
-
-
-<img src="https://img.saraba1st.com/forum/202005/22/092342dixoodz7kkooz1co.jpg" referrerpolicy="no-referrer">
-
-
-
-
+x
 
 
 
@@ -3899,4 +3840,548 @@ one piece就在我身后！最后的敌人：伊姆一出场就把大妈团跟�
 
 
 
-                                          
+
+
+-----
+
+####  sandrock  
+##### 52713#       发表于 2020-6-3 20:34
+
+
+
+
+还是贴吧版海贼王带劲
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52714#       发表于 2020-6-4 05:45
+
+
+
+ 本帖最后由 灰狼 于 2020-6-4 07:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47665580&amp;ptid=98922" target="_blank">zuga 发表于 2020-6-3 18:18</a>
+
+停止振动，那连地震果实也一起克了。</blockquote>
+这说下去就没边了
+
+
+电磁波也是振动，光也是一种波。。。
+
+
+胡扯下去怕不是成了弱化版的一方通行
+
+
+（然而依然是攻击白板）
+
+
+
+
+
+
+
+-----
+
+####  zuga  
+##### 52715#       发表于 2020-6-4 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47669986&amp;ptid=98922" target="_blank">灰狼 发表于 2020-6-4 05:45</a>
+
+这说下去就没边了
+
+
+电磁波也是振动，光也是一种波。。。</blockquote>
+攻击还真不好说是不是白板，比如心脏和脉搏的搏动算不算振动，这给你停了….无敌了无敌了
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52716#       发表于 2020-6-4 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47671314&amp;ptid=98922" target="_blank">zuga 发表于 2020-6-4 09:51</a>
+
+攻击还真不好说是不是白板，比如心脏和脉搏的搏动算不算振动，这给你停了….无敌了无敌了 ...</blockquote>
+别想太多，隔音果实就只能隔音，不是停止振动，op的果实本来就不遵循物理，说是干什么的，就是干这个的
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 52717#       发表于 2020-6-4 21:09
+
+
+
+
+大妈团真的变成笑话了，被马尔科踢下去居然是真的
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52718#       发表于 2020-6-4 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679120&amp;ptid=98922" target="_blank">刹那の劍 发表于 2020-6-4 21:09</a>
+大妈团真的变成笑话了，被马尔科踢下去居然是真的</blockquote>
+情报当然真的了，小马哥还用了招数的，“凤凰印”。
+
+
+
+
+
+
+
+-----
+
+####  hie  
+##### 52719#       发表于 2020-6-4 21:15
+
+
+
+
+路飞3个人捂着耳朵逃跑好有趣
+
+
+
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 52720#       发表于 2020-6-4 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679176&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-6-4 21:14</a>
+
+情报当然真的了，小马哥还用了招数的，“凤凰印”。</blockquote>
+情报图没出来前看到贴吧自制的图还以为是假情报
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52721#       发表于 2020-6-4 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679299&amp;ptid=98922" target="_blank">刹那の劍 发表于 2020-6-4 21:24</a>
+情报图没出来前看到贴吧自制的图还以为是假情报</blockquote>
+文字情报周一就出了。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52722#       发表于 2020-6-4 22:20
+
+
+
+<blockquote>刹那の劍 发表于 2020-6-4 21:09
+大妈团真的变成笑话了，被马尔科踢下去居然是真的</blockquote>
+说到这个,贴吧有人说
+
+
+“说好的区区月步呢，怎么没一个会月步的出来还手呢
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 52723#       发表于 2020-6-4 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47679931&amp;ptid=98922" target="_blank">灰狼 发表于 2020-6-4 22:20</a>
+
+说到这个,贴吧有人说
+
+
+“说好的区区月步呢，怎么没一个会月步的出来还手呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我都会飞了还要啥月步2333333333333。
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52724#       发表于 2020-6-5 01:33
+
+
+
+
+马尔科说了”等你们再爬上来的时候时代可能已经变了”
+
+
+大妈团酱油确定?
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 52725#       发表于 2020-6-5 08:17
+
+
+
+
+感觉照这样发展下去，大妈最后的结局应该是被打成永久幼年形态，修女灵魂消失，之后卡哥接管整个海贼团退出四皇之列
+
+好想看世界会议那边的事情啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52726#       发表于 2020-6-5 08:22
+
+
+
+<blockquote>刹那の劍 发表于 2020-6-4 21:09
+大妈团真的变成笑话了，被马尔科踢下去居然是真的</blockquote>
+马尔科好歹是皇副，king都踢过一次了
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52727#       发表于 2020-6-5 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47682760&amp;ptid=98922" target="_blank">Keynes 发表于 2020-6-5 08:17</a>
+
+感觉照这样发展下去，大妈最后的结局应该是被打成永久幼年形态，修女灵魂消失，之后卡哥接管整个海贼团退出 ...</blockquote>
+真的卡二接管那我觉得就是投奔路飞预订了
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52728#       发表于 2020-6-5 10:18
+
+
+
+
+讲道理从伟大航路前半段开始，草帽团的船没少出现翻船的情况，但都靠团员一一化解了，这大妈团还不如初期的草帽团呢，2333333
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52729#       发表于 2020-6-5 13:59
+
+
+
+
+大妈团就乖乖在那等着当梗，别再蹦跶了，太丢人了
+
+
+
+
+
+
+
+-----
+
+####  mashav  
+##### 52730#       发表于 2020-6-5 14:43
+
+
+
+
+英化版出了
+
+大妈和乔巴的对视太好笑啦
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52731#       发表于 2020-6-5 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47686893&amp;ptid=98922" target="_blank">mashav 发表于 2020-6-5 14:43</a>
+
+英化版出了
+
+大妈和乔巴的对视太好笑啦</blockquote>
+看那个眼神大妈可能又回到懵逼状态了
+
+
+
+
+
+
+
+-----
+
+####  亚瑟姆·明日野  
+##### 52732#       发表于 2020-6-6 00:18
+
+
+
+
+卧槽233,想捡起来！想捡起来！我喜欢的小马哥又上线了！！
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 52733#       发表于 2020-6-6 01:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47693339&amp;ptid=98922" target="_blank">亚瑟姆·明日野 发表于 2020-6-6 00:18</a>
+
+卧槽233,想捡起来！想捡起来！我喜欢的小马哥又上线了！！</blockquote>
+那就捡呗。你不也跟凤梨头一样失踪一段时间了。
+
+
+
+
+
+
+
+-----
+
+####  亚瑟姆·明日野  
+##### 52734#       发表于 2020-6-6 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47693823&amp;ptid=98922" target="_blank">moeful 发表于 2020-6-6 01:38</a>
+
+那就捡呗。你不也跟凤梨头一样失踪一段时间了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是和之国字太多了,之前尝试补过一下又因为字太多放弃了（。
+
+看看找天还是捡起来好了。
+
+
+
+
+
+
+
+-----
+
+####  moeful  
+##### 52735#       发表于 2020-6-6 01:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47693869&amp;ptid=98922" target="_blank">亚瑟姆·明日野 发表于 2020-6-6 01:48</a>
+
+主要是和之国字太多了,之前尝试补过一下又因为字太多放弃了（。
+
+看看找天还是捡起来好了。 ...</blockquote>
+反正也不会有银魂和DN多，速读就行了。
+
+
+
+
+
+
+
+-----
+
+####  少年包工头  
+##### 52736#       发表于 2020-6-6 06:26
+
+
+
+<blockquote>亚瑟姆·明日野 发表于 2020-6-6 00:18
+卧槽233,想捡起来！想捡起来！我喜欢的小马哥又上线了！！</blockquote>
+“马尔科出手了
+
+自从那次战斗后的第一次”
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 52737#       发表于 2020-6-6 06:41
+
+
+
+
+静静果实本来应该就是完克震震，因为声波是机械波，能停声波就能停地震波
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 52738#       发表于 2020-6-6 06:59
+
+
+
+
+原来捂耳朵不是搞笑是真的有用吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yth329  
+##### 52739#       发表于 2020-6-6 07:31
+
+
+
+
+以藏+小马哥，巨大战力提升啊
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52740#       发表于 2020-6-6 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47694350&amp;ptid=98922" target="_blank">少年包工头 发表于 2020-6-6 06:26</a>
+“马尔科出手了
+
+自从那次战斗后的第一次”</blockquote>
+白二那么随意残杀残团他都不愿意出手选择躲<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">那傻逼看来是白胡子的亲儿子
+
+
+
+
+
+
+
+-----
+
+####  贾坤赫加尔  
+##### 52741#       发表于 2020-6-6 10:17
+
+
+
+
+不看这一话都忘了小马哥好歹也是皇副级别
+
+还是吃了初登场的亏，起点的舞台就太高了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  六次方  
+##### 52742#       发表于 2020-6-6 13:24
+
+
+
+
+以藏参战的话9个武士齐了，勘十郎要凉凉
+
+
+
+
+
+                                         

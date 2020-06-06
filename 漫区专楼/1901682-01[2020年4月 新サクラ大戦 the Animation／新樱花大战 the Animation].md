@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-05-16 20:03** 
+> ## **本文件最后更新于2020-06-06 14:31** 
 
 
 
@@ -26,7 +26,7 @@
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-
+[OP ED](https://www.bilibili.com/video/av91939542)
 
 
 
@@ -194,7 +194,7 @@
  本帖最后由 Toby_dak 于 2020-1-29 21:43 编辑 
 
 新PV
-
+[https://www.bilibili.com/video/av85619461](https://www.bilibili.com/video/av85619461)
 
 
 
@@ -576,7 +576,7 @@ https://t.co/3wcr9H6W13
 
 
 
-
+[https://www.bilibili.com/video/av200083513](https://www.bilibili.com/video/av200083513)
 
 这三个终于露面了……
 
@@ -2907,32 +2907,13 @@ TVA和游戏过场动画都是三次元负责的，游戏本身的建模和动�
 衣服肯定换了啊……
 
 
-<img src="https://img.saraba1st.com/forum/202004/12/004236atpf12xghdytyc7x.jpg" referrerpolicy="no-referrer">
-
-
-<strong>swa02_Moment.jpg</strong> (1.21 MB, 下载次数: 0)
-
-下载附件
-
-2020-4-12 00:42 上传
 
 
 
+<strong>本帖子中包含更多资源</strong>
+您所在的用户组无法下载或查看附件
 
-
-<img src="https://img.saraba1st.com/forum/202004/12/004237sn536phzbniinzp1.jpg" referrerpolicy="no-referrer">
-
-
-<strong>1586530233828.jpg</strong> (113.68 KB, 下载次数: 0)
-
-下载附件
-
-2020-4-12 00:42 上传
-
-
-
-
-
+x
 
 
 
@@ -4627,4 +4608,622 @@ B站不知道啥时候买了樱战1动画的版权 可端上来的翻译那叫�
 
 
 
-                                         
+
+
+-----
+
+####  plazum  
+##### 245#       发表于 2020-5-16 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47442476&amp;ptid=1901682" target="_blank">aptx8285144 发表于 2020-5-16 19:08</a>
+
+有神山这个理论上的主角在，还是没办法真当轻百合看的</blockquote>
+但是他又不怎么出现<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 246#       发表于 2020-5-16 21:02
+
+
+
+
+神山露了一面又走了
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 247#       发表于 2020-5-18 17:06
+
+
+
+
+第8話：波乱万丈！華撃団大戦
+
+
+「勝ったほうがクラーラを引き取る」カミンスキーの挑戦を受け、帝国華撃団と莫斯科華撃団による模擬戦闘が幕を開けた。クラーラを守るべく果敢に戦うさくらたち花組。勝敗の行方は！？
+
+
+シナリオ：鈴木貴昭　 絵コンテ：セトウケンジ　 演出：後藤康徳
+
+<img src="https://files.catbox.moe/hpc86e.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/2puu9v.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/uwxa7h.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/b84m7z.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/q9tjh0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/3cawl7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 248#       发表于 2020-5-18 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47465514&amp;ptid=1901682" target="_blank">xingenge 发表于 2020-5-18 17:06</a>
+
+第8話：波乱万丈！華撃団大戦
+
+
+「勝ったほうがクラーラを引き取る」カミンスキーの挑戦を受け、帝国華撃団 ...</blockquote>
+希望克拉拉没事<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 249#       发表于 2020-5-18 20:39
+
+
+
+
+帝國出擊的隊員6人都是有樣子，其他地區的第3人都是大眾臉...
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 250#       发表于 2020-5-22 17:07
+
+
+
+
+第３巻
+
+【発売日】2020年7月15日（水）
+
+
+【価格】
+
+Blu-ray特装版：￥7,000（本体）+税
+
+DVD特装版：￥6,000（本体）+税
+
+Blu-ray通常版：￥5,000（本体）+税
+
+
+【収録話数】第七話～第九話
+
+
+【特装版特典（Blu-ray、DVD共通）】
+
+描き下ろしアウターケース
+
+特製ブックレット
+
+第七話オーディオコメンタリー（予定）
+
+<img src="https://files.catbox.moe/cnh7s5.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 251#         楼主| 发表于 2020-5-22 21:26
+
+
+
+
+居然有其他三击的镜头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 252#       发表于 2020-5-22 22:39
+
+
+
+
+看来新樱战动画就是在致敬天鹅湖了
+
+
+库拉拉=奥杰塔
+
+蕾拉=黑天鹅
+
+卡宾斯基=洛特巴尔？
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 253#       发表于 2020-5-23 12:08
+
+
+
+
+卡明斯基这货汇集姐妹的翅膀力量是想征服世界还是只想称霸一方或者是其他什么野心吗
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 254#       发表于 2020-5-23 21:13
+
+
+
+
+这话台词最多的怕不是小町.....
+
+
+
+
+
+
+
+-----
+
+####  百升飞上天  
+##### 255#       发表于 2020-5-23 21:53
+
+
+
+
+姐姐和妈妈之间大战，
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 256#       发表于 2020-5-25 17:06
+
+
+
+
+第9話：驚天動地！クラーラの真実
+
+
+さくらたち花組はクラーラがレイラの妹であること、そして降魔の力を持つことに動揺を隠せないでいた。行方不明のクラーラ、そして姿を隠した莫斯科華撃団……花組に不安な思いが満ちる中、欧州の神山から通信が入る。
+
+
+シナリオ：砂山蔵澄　 絵コンテ：高橋丈夫　 演出：のがみかずお
+
+<img src="https://files.catbox.moe/nnblmn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/7kcz4i.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/6i50rn.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/cd03up.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ig55tx.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/v6leaw.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 257#         楼主| 发表于 2020-5-29 23:31
+
+
+
+
+忙着打PCR会战，忘记看了……
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 258#       发表于 2020-5-30 00:17
+
+
+
+
+师傅收养了那么多降魔和人类的萝莉小正太，这莫名看着像当后宫gal主角<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，神山是一开始就知道克拉拉的身份吗从他报告里好像是这样
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 259#       发表于 2020-5-30 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/034.png" referrerpolicy="no-referrer">这下有意思了 这个共存的理念接下去还会运用在后续游戏的设计上么
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 260#       发表于 2020-5-30 01:12
+
+
+
+
+師父這個坑終於來了
+
+那問題來了
+
+現在的人型降魔是那裡來的?
+
+
+
+
+
+
+
+-----
+
+####  鱼肉丸子  
+##### 261#       发表于 2020-5-30 01:22
+
+
+
+
+泽城美雪这肉体拆机。。。。sakura这一声声师匠。。。。 这M细胞设定。。。。  
+
+
+跟看G高达似的
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 262#       发表于 2020-5-30 04:34
+
+
+
+<blockquote>鱼肉丸子 发表于 2020-5-30 01:11
+这下有意思了 这个共存的理念接下去还会运用在后续游戏的设计上么</blockquote>
+很有可能
+
+
+而且做个大胆猜测 人形降魔本质很可能就是一直以来暗线里提到的反魂之术
+
+
+其实降魔可控一直以来都有人在研究 比如2代京极的机甲化降魔 还有活动**里米国某公司的无人机
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 263#       发表于 2020-5-30 04:43
+
+
+
+
+顺便吐槽一下动画版开始就埋了三式光武的伏笔怎么还有一大堆人在弹幕里喊试做樱武的（可怜的多灾多难的无限）
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 264#       发表于 2020-5-30 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">话说莫斯科还真的事实全灭了啊.....
+
+游戏的op里面华击团大赛站队的时候明明还有几个陌生脸孔的可爱妹子.....
+
+就这么直接没了吗.......
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 265#       发表于 2020-6-1 17:08
+
+
+
+
+第10話：帝都壊滅？ツングースカの怒り
+
+
+空中要塞セバスト―ポリの再来で混乱を極める帝都。その強力な一撃を受けたさくらの機体は修復不能となり、さくらは戦う力を失ってしまう。一方その頃クラーラは、見覚えのある部屋で目を覚ました。
+
+
+シナリオ：砂山蔵澄　 絵コンテ：坂田純一　 演出：浅利藤彰
+
+<img src="https://files.catbox.moe/9dhmv0.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/4fki9y.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/mndga7.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/wda5ga.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/tplu0m.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/g1v2uh.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 266#       发表于 2020-6-2 17:44
+
+
+
+<img src="https://files.catbox.moe/tplu0m.jpg" referrerpolicy="no-referrer">
+
+
+老娘自己一人A上去，你們負責殿後
+
+(其實應該是相反才對)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aptx8285144| + 1|笑出声|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 267#       发表于 2020-6-2 18:56
+
+
+
+ 本帖最后由 aptx8285144 于 2020-6-2 18:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47652479&amp;ptid=1901682" target="_blank">eilot 发表于 2020-6-2 17:44</a>
+
+老娘自己一人A上去，你們負責殿後
+
+(其實應該是相反才對)</blockquote>
+话说泽城和佐仓这声线对手戏，有时候出戏到测量者里唐之杜志恩对霜月美佳说：你虽然现在是课长了，但我更是三朝元老<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+当然台词本身是自己编的（
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 268#       发表于 2020-6-5 22:55
+
+
+
+
+光武居然这么快就退场了233333
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 269#       发表于 2020-6-5 23:11
+
+
+
+
+这弹射装置就是加农炮手枪的效果加纽约弹射装置的外形
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 270#       发表于 2020-6-6 00:10
+
+
+
+
+组长制作得那些设备的钱哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+师傅一人去破坏通古斯，莫名觉得一丝不安的感觉，话说蕾拉也是惨，这种被控制和xi nao差别也不大，顺便剧情黑了一把欧洲<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 271#       发表于 2020-6-6 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47692693&amp;ptid=1901682" target="_blank">无动于衷 发表于 2020-6-5 23:11</a>
+
+这弹射装置就是加农炮手枪的效果加纽约弹射装置的外形</blockquote>
+想起3社合作機戰，用手槍射出眾作品角色後，之後才吐槽他們如何降落，街霸的KEN用疾風迅雷腳來減速...
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 272#       发表于 2020-6-6 00:21
+
+
+
+ 本帖最后由 eilot 于 2020-6-6 00:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47653298&amp;ptid=1901682" target="_blank">aptx8285144 发表于 2020-6-2 18:56</a>
+
+话说泽城和佐仓这声线对手戏，有时候出戏到测量者里唐之杜志恩对霜月美佳说：你虽然现在是课长了，但我更 ...</blockquote>
+慘了，真是給我說中了，師父對徒弟說我去破壞大炮，你們負擔殿後...
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 273#       发表于 2020-6-6 04:36
+
+
+
+
+蕾拉下集领便当吗……
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 274#       发表于 2020-6-6 06:21
+
+
+
+ 本帖最后由 无动于衷 于 2020-6-6 06:33 编辑 
+<blockquote>aptx8285144 发表于 2020-6-6 00:10
+组长制作得那些设备的钱哪来的，司令都不知道，我记得副官兼财务管理还是比较严格的（第二话），莫 ...</blockquote>
+秘书可是号称帝剧第一巨魔 游戏里小町那些稀奇古怪的周边都是她批的 甚至还帮着司马订瑟琴杂志（虽然后者没得逞）
+
+
+
+
+
+                                        
