@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 20:02** 
+> ## **本文件最后更新于2020-06-06 22:04** 
 
 
 
@@ -8682,4 +8682,979 @@ bsyl(눈_눈)还是别理小博禹 给他举报放置了吧。这种人就是有
 
 
 
-                                 
+
+
+-----
+
+####  时雨rain  
+##### 11009#       发表于 2020-6-6 20:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你麻要是能播，谁愿意在你这玩弱智rp啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">鬼知道她最近是干嘛去啦，日夜颠倒，真要播也没这个精神去追她直播
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">活该在404是个小主播
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11010#       发表于 2020-6-6 20:10
+
+
+
+
+不追tc她就是一个正常播的主播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11011#       发表于 2020-6-6 20:18
+
+
+
+
+有理，tc那种满满生活感的虚无聊天就让噶吃去追吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11012#       发表于 2020-6-6 20:25
+
+
+
+
+隔壁修炼后也开始疯起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没你咩姐看我看noe，没有黑暗佐仓绫音我看黑暗早见沙织
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 11013#       发表于 2020-6-6 20:27
+
+
+
+
+想天天沉溺于小麻的虚无tc直播中<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11014#       发表于 2020-6-6 20:28
+
+
+
+
+可惜我觉得noe声音不像早见(눈_눈)，因为说话方式和发声方式太不一样了          syl咩咩不播夸夸也不播，是六字母贴贴(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  kerfars  
+##### 11015#       发表于 2020-6-6 20:36
+
+
+
+ 本帖最后由 kerfars 于 2020-6-6 20:38 编辑 
+
+其实我一直觉得noe像高桥未奈/美，
+
+
+嗯？这都要屏蔽吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11016#       发表于 2020-6-6 20:38
+
+
+
+
+我当时对这俩后辈的印象是声音一个比一个姨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11017#       发表于 2020-6-6 20:41
+
+
+
+
+koyori还好吧，不算姨
+
+mea本身就是能驾驭多风格的选手吧，追不来选自己喜欢的看就是了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11018#       发表于 2020-6-6 20:49
+
+
+
+
+话说现在咩咩直播还是会故意错开小弟吗？
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 11019#       发表于 2020-6-6 20:50
+
+
+
+
+我對V圈有聲線越幼年齡越姨的刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11020#       发表于 2020-6-6 20:50
+
+
+
+
+暗黑佐仓还得星川啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11021#       发表于 2020-6-6 20:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701825&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-6 20:49</a>
+话说现在咩咩直播还是会故意错开小弟吗？</blockquote>
+都撞过好几回了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11022#       发表于 2020-6-6 20:52
+
+
+
+
+那撞的时候小弟同接多少啊
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 11023#       发表于 2020-6-6 20:53
+
+
+
+
+想着是开个帖，但觉得可能专楼问比较方便？
+
+大概去年10月开始没咋看mea了，想先问一下这几个月里有趣的事都有啥，然后这段时间里有什么熟肉值得一补吗？
+
+
+之前黑屏直播纪念日好好问被小博禹恶心了，这次想再好好问一下（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11024#       发表于 2020-6-6 20:57
+
+
+
+
+10月开始，，，那也太久了，主要看你想看整活还是脑控吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11025#       发表于 2020-6-6 20:58
+
+
+
+
+稍等....我翻下萌娘百科回忆一下...
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11026#       发表于 2020-6-6 21:00
+
+
+
+
+最近的话 两个工商回都很棒 和miu的联动的节奏也很舒服 歌力见长
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 11027#       发表于 2020-6-6 21:04
+
+
+
+
+noe胆子真的挺大的，疯狂吐槽配合声线硬把我整笑了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11028#       发表于 2020-6-6 21:06
+
+
+
+
+最近的话歌回都很好听，推荐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喷光的维奇厄埃  
+##### 11029#       发表于 2020-6-6 21:09
+
+
+
+ 本帖最后由 喷光的维奇厄埃 于 2020-6-6 21:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701860&amp;ptid=1929631" target="_blank">HKGC296 发表于 2020-6-6 20:53</a>
+
+想着是开个帖，但觉得可能专楼问比较方便？
+
+大概去年10月开始没咋看mea了，想先问一下这几个月里有趣的事都 ...</blockquote>
+我觉得最有趣的是12月的bml，当时b站up轮流上台好多人都在奶mea要挂墙拉跨，降低期望，结果mea反手掏了个3d出来，论坛大地震<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">配合当时的专楼看奇效
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11030#       发表于 2020-6-6 21:14
+
+
+
+ 本帖最后由 thisisaspider 于 2020-6-6 21:17 编辑 
+
+也不必汇总吧，楼友把自己推荐的说出来就好
+
+几个处刑怪文书挺有节目效果的。（就看你心大不大。有些人确实看得难受。）工商不想看这么多就推荐PCR和犬山的联动
+
+和兔妈妈的联动可以看剪辑，直播氛围很舒服。和MIU的OSU很有生活感。
+
+深夜UNO GHS开车算是一类神回。有能力建议找个轻松的时间看完全熟。
+
+歌回可以听听同好会的合集，然后最近复刻了完整版echo可以给歌迷一剂强心剂。
+
+还有两首原创曲和几个PV(meaqua也有，Monster那个翻唱也不错)都适合看一看。或许有你喜欢的。
+
+我就这些了。
+
+
+再补充下元旦在亲戚家直播那个效果印象还挺深刻的。
+
+
+
+
+
+
+
+
+-----
+
+####  HKGC296  
+##### 11031#       发表于 2020-6-6 21:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701998&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-6 21:06</a>
+
+最近的话歌回都很好听，推荐。还有组长的v骚联动。（再往前去翻翻萌百吧）不过是从去年十月 ...</blockquote>
+组长V骚可以啊，这就去补，歌回挂几个后台听听吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11032#       发表于 2020-6-6 21:17
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-6 21:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702111&amp;ptid=1929631" target="_blank">HKGC296 发表于 2020-6-6 21:15</a>
+组长V骚可以啊，这就去补，歌回挂几个后台听听吧</blockquote>
+看前面说歌忽然想起她还在b站整了个meaqua中文翻唱[https://b23.tv/BV1EJ411W7Gg/p1](https://b23.tv/BV1EJ411W7Gg/p1)
+忘了中文翻唱还有个星之回响了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://b23.tv/BV1KJ411C7qF](https://b23.tv/BV1KJ411C7qF)
+
+[前面的bml3d](https://b23.tv/ep316534)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11033#       发表于 2020-6-6 21:20
+
+
+
+
+这个中文唱得很锤子，图个乐就好，主要是原本也很听懂，她们已经很努力的模仿了。然后PV不错。
+
+但想听中文可以看看和VR的星之回响
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11034#       发表于 2020-6-6 21:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702111&amp;ptid=1929631" target="_blank">HKGC296 发表于 2020-6-6 21:15</a>
+组长V骚可以啊，这就去补，歌回挂几个后台听听吧</blockquote>
+谨慎观看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+https://b23.tv/t8yqBt
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11035#       发表于 2020-6-6 21:21
+
+
+
+ 本帖最后由 路人子 于 2020-6-6 21:23 编辑 
+
+直接根据几个号上的“最多播放”来看吧
+
+官号：[https://space.bilibili.com/349991143/video?tid=0&amp;page=1&amp;keyword=&amp;order=pubdate](https://space.bilibili.com/349991143/video?tid=0&amp;page=1&amp;keyword=&amp;order=pubdate)
+
+同好会：[https://space.bilibili.com/479729029/video](https://space.bilibili.com/479729029/video)
+
+日报组：[https://space.bilibili.com/412628370/video](https://space.bilibili.com/412628370/video)
+
+
+顺手发几个比较活跃的海盗：
+
+fafa：[https://space.bilibili.com/6461593/video](https://space.bilibili.com/6461593/video)
+
+ReinH-L：[https://space.bilibili.com/2476714/video](https://space.bilibili.com/2476714/video)
+
+seven70：[https://space.bilibili.com/3208744/video](https://space.bilibili.com/3208744/video)
+
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11036#       发表于 2020-6-6 21:24
+
+
+
+
+歌回可以直接听同好会上的串烧，挺爽的
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11037#       发表于 2020-6-6 21:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702208&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-6 21:21</a>
+
+直接根据几个号上的“最多播放”来看吧
+
+官号：https://space.bilibili.com/349991143/video?tid=0&amp;page=1&amp;k ...</blockquote>
+这安利法太暴力了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11038#       发表于 2020-6-6 21:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702256&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-6-6 21:24</a>
+
+这安利法太暴力了</blockquote>
+每个人喜好不一样，所以直接扔合集然后凭兴趣找标题（和点击量）进去看是最普世的办法（大概
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11039#       发表于 2020-6-6 21:35
+
+
+
+
+10月开始必定先听歌啊，歌力提升肉眼可见，然后爬tag时间排序只看剪辑熟肉就就完事了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11040#       发表于 2020-6-6 21:42
+
+
+
+
+突
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11041#       发表于 2020-6-6 21:43
+
+
+
+
+【YoutubeLive 神楽めあYTB 直播等待】
+标题：【歌枠/アーカイブなし】ちょっと時間短めですがきいてくらさい。リクエストどうぞ！【神楽めあ】
+时间：-2分-35秒
+网址：https://www.youtube.com/watch?v=fsmVgoPEYlo
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11042#       发表于 2020-6-6 21:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11043#       发表于 2020-6-6 21:45
+
+
+
+
+油管待机间开了还行，突击唱歌
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11044#       发表于 2020-6-6 21:46
+
+
+
+
+比较重大的事情以及一些有意思的片段（个人向，部分摘自萌娘百科：[https://zh.moegirl.org/%E7%A5%9E%E4%B9%90Mea/%E5%8E%86%E7%A8%8B](https://zh.moegirl.org/%E7%A5%9E%E4%B9%90Mea/%E5%8E%86%E7%A8%8B)）：
+
+11月23日        20点，于Youtube和Bilibili发布第一首原创曲《すとろべりぃ♡こんふぃちゅ～る》（Strawberry♡Confiture，中译：草莓果酱）
+
+12月7日 19点参加广州BML并演唱原创曲，首次使用了3D形象直播（强烈建议回顾下当时各大论坛的反应，反正我看到你咩姐是以3D形象登场时，整个人都疯狂了）
+
+12月12日 健身环大冒险 年龄暴露（18岁）
+
+12月20日        LINE私人二维码放出，二维码搓澡【神回】
+
+12月26日 BLS b限 歌会 【强列推荐相关熟肉片段：被100个小电视吓到的神乐mea】
+
+12月28日 以 极大优势获得BLS冠军 在处理了240之后（投票公审） 就BLS的感想在b博发了一段zqsg长文表达了感谢
+
+1月1日 在有熊孩子的亲戚家进行元旦直播，由于使用了之前的便宜设备，开头动画和声线回归了之前的版本
+
+1月8日 BLS2019颁奖典礼，以预录影片方式出席。事后主持人评价：“很萌很舒服的声音呢。
+
+1月24日 在哔哩哔哩2020拜年祭中的《星之回响》与鹿乃、花丸晴琉、琉绮、泠鸢yousa、白上吹雪、夏色祭和物述有栖一起登场。[390]
+
+根据导演动态，mea是第一个完成并提交的。
+
+2月13日 情人节前夕唱《我成为别人的女朋友了》【官组烤了，特别emoi】
+
+2月14日        
+
+17点40分，YTB突击，情人节无许可连麦对谈。“独自过情人节无法忍受！！！所以要打突击电话！！！！”[403]
+
+突击连麦对象：
+
+虚拟大猩猩：科普人类情人节。
+
+Fairys（鹦鹉哥）
+
+星川Sara：mea在不愿意透露姓名的s桑面前迫害了星川；约了等下在星川直播时出场。
+
+绿仙：揭底mea有提前联络，打算一起建个ark服务器然后再加入彩虹社的ark服务器。
+
+跳脸犬山哥。（犬山哥在看直播，喜欢绿仙）
+
+愈月巧可：祝贺巧克老师生日。巧克老师封印了某个姿势（M字开腿），不会在线上做，但是可以在线下做给mea看。mea：一起玩吧，线下除外！
+
+舞元启介：开幕营业声线。舞元推销经营不善的田地来对抗mea，但最终还是以公司电话遁落荒而逃。
+
+犬山玉姬：真突击联络。犬山哥约舞元（可能还有时雨妈妈）白色情人节线下联动勾引mea一起（mea不敢）；谈起租借男友，妄想舞元作为租借男友的企划；有工商找了犬山哥和mea，但是mea不接，最后变成了犬山哥和yyut。
+
+2月18日        杂谈中突然表示军服女仆装3D已完成。【语气简直就像说：“我去刷个牙一样”】并直播刷牙
+
+2月22日        20点接力Animare新人出道直播（迫真），20点30分结束。23点25分，在Vに国境はいらない（V春晚）「唱吧！世界友好春节直播！2020~在虚拟，我们都在一起！～」出场，27分连麦，37分结束。
+
+3月10日        19点，YTB重大告知直播，19点48分结束。“【重大发表】神乐Mea....。你到底怎么了啊...。【神乐めあ】” 封面为昨日推特附图的神秘人物的蒙眼立绘。关于神秘立绘，前面遮遮掩掩掏出amu碳姆作为直播立绘，回忆过去，各种暗示是新衣服，要求把贺祝SC先留着，甚至放出seaside处刑曲，屏幕下方都出现神秘立绘的头顶（Live2D），吊足胃口后，并 不 是 新 衣 服 也 不 是 新 形 象。是一个将出道的个人势vtb的立绘，其名字是：如月こより（KisaragiKoyori）（实质为引流直播）深夜fanbox发表小作文，要求大家不要在无关的情况下刷名字、拉cp。
+
+3月17日 16点14分，在织田信姬的隐退宣告推特下回复“おはよう！！！！！！！！！！（早上好！！！！！！！！！！）”。（18年12月7日，信姬对mea说早上好，陪mea）
+
+3月18日 【想救救听众们】一个拥有丰富恋爱经验的女人向听众推荐男女朋友【神乐めあ】（实则为亲友vtuber推荐回）
+
+3月19日 16点15分，YTB突击杂谈，17点30分结束。“【#我想救救神乐mea】大概不留档” (节目效果爆表)
+
+16点23分，发表推特『Mea？我可是很喜欢Mea哦？我爱你。和我交往看看？』，征集观众告白语音，并挨个鉴赏、评价迫害。
+
+对帅哥音花痴，其间发现了一位国人粉丝语音，觉得很有意思，请他再念了一段蜡笔小新的台词，并在直播结束后转推了该粉丝的语音。
+
+3月22日 70w粉丝b限 无情的高质量连唱机器，多首曲子首次歌唱 + 真情实感时间
+
+3月30日 收益化回收 [约17点40分，YTB频道暂停会员及SC功能。22点50分，发布推特[480]“お　わ　っ　た（完 蛋 了）”，确定YTB收益化回收，原因是：内容重复。血压真爆炸了
+
+更新签名为：“被剥夺收益化的女人在此！”]
+
+4月5日 神乐组再填一员 新人：八乙女noe
+
+4月11日 收益化回归
+
+4月13日 作为背景板出现在江苏省消保委《未成年人游戏充值、直播打赏调查报告》中，随后在江苏电视台新闻眼相关节目中以同样方式出现(3m05s处)。【躺枪】
+
+4月19日 19点，B限国服公主连结工商，20点结束。“完全不懂中文的我竟然会玩公主连结国服？”(超神回！！！如果喜欢mea早期风格的话，强烈推荐！！)
+
+4月26日 11点09分，发布推特，今日18点将公开YTB15万人纪念及包含着感谢之情的翻唱《Pretender》，感谢大家的支持
+
+4月30日 在织田信姬的隐退直播中，展示了mea的来信，表达了对信姬的不舍、期待归来之情。
+
+5月2日 直播中突然轻描淡写的说顺便告知一下，明天19点公开第二首原创曲。
+
+5月3日 20点，于YouTube与BiliBili公开第二首原创曲《あまのじゃく》。
+
+5月4日 21点，B限歌 (超棒的歌回！！！)
+
+5月5日 21点37分，TC突击，osu。森永Miu出现，mea和她osu对战。最后败了，50分时紧急下播准备联动。
+
+22点，在甲贺流忍者Ponpoko频道进行“谁先发出污声即退场”的联动
+
+mea第一次选择了可乐一口闷的挑战，说话时疯狂打嗝（直到结束后好久还在打嗝）甩锅[御伽原江良]，避免被黄牌警告。
+
+第二次选择death voice（死亡金属吼）挑战，挑战中又打嗝了，直接被红牌罚下场结束。是第二位被淘汰的，第一位是御伽原江良。随后立绘消失。
+
+5月20日 b限 panda梗由此产生
+
+5月22日 21点，B限碧蓝航线工商(超神回！！生动形象地展示了什么叫做处男逛窑子)
+
+6月1日 20点，B限歌回，22点结束。“【B站限定】お歌の发表会！！！！！！！” 开幕蹦出个meu，说话会绷不住而露出mea的声线。用meu的声线唱歌。歌唱途中迫真姐姐回来，meu跑了。mea疑惑直播怎么开了，卖萌，发现大家更喜欢meu生气地放出ed。（然后光速回来）
+
+6月3日 6点30分，与《辉夜大小姐想让我告白》的作者赤坂明推特互动，被问“难道是神乐大小姐想让我告白的作者神乐Mea老师吗？”
+
+预告：8月7日-9日，在BilibiliWorld2020上海活动中出场，具体安排未定。
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|好评加鹅，看了后想找个时间回顾了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11045#       发表于 2020-6-6 21:47
+
+
+
+
+草 怎么就突了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11046#       发表于 2020-6-6 21:48
+
+
+
+
+沉迷漫画还行，“都是漫画的错，你去骂漫画啊”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11047#       发表于 2020-6-6 21:49
+
+
+
+
+二次元毒害青少年
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11048#       发表于 2020-6-6 21:49
+
+
+
+
+好短啊今天<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11049#       发表于 2020-6-6 21:51
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-6 21:55 编辑 
+
+呜呜呜终于有咩看了啊啊啊啊啊啊
+是新歌啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+syl，萌百有超全文字合集，可以去里面找找
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11050#       发表于 2020-6-6 21:51
+
+
+
+
+感谢咩姐赏饭<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11051#       发表于 2020-6-6 21:52
+
+
+
+
+呜呜呜她播了她心里有我(⁄ ⁄•⁄ω⁄•⁄ ⁄)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11052#       发表于 2020-6-6 21:54
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-6 21:58 编辑 
+
+卧槽蓝二乘超时空届到了？听说在会限练了？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11053#       发表于 2020-6-6 21:54
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-6 21:58 编辑 
+
+啊gachi了
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">拉胯
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11054#       发表于 2020-6-6 21:56
+
+
+
+
+啊高音有点飘，不过好听(⁄ ⁄•⁄ω⁄•⁄ ⁄)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11055#       发表于 2020-6-6 21:56
+
+
+
+
+gachi了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11056#       发表于 2020-6-6 22:01
+
+
+
+<blockquote>草 这两天看漫画看到都没发现17w了 没什么特别的打算17w人 是漫画的错不是我的错！ 昨天洗澡了</blockquote>
+
+事业民的悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               

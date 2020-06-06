@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 18:11** 
+> ## **本文件最后更新于2020-06-06 22:13** 
 
 
 
@@ -36,7 +36,7 @@
 
 
 0A8D54A2-B3ED-4B4E-9E3B-20899E12B0A9.jpeg
-(72.37 KB, 下载次数: 4)
+(72.37 KB, 下载次数: 5)
 
 
 
@@ -2871,4 +2871,482 @@ Nobody love hina more than me
 
 
 
-                                            
+
+
+-----
+
+####  jyyyjgy  
+##### 157#       发表于 2020-6-6 18:12
+
+
+
+
+现在只能算1.5飞吧，来个双飞我就信全都要。
+
+
+
+
+
+
+
+-----
+
+####  空气先生  
+##### 158#       发表于 2020-6-6 18:27
+
+
+
+
+还真的不如五等分和学不来，真正的突破了伦理的粪作
+
+
+
+
+
+
+
+-----
+
+####  维斯瓦军团  
+##### 159#       发表于 2020-6-6 18:44
+
+
+
+
+妹妹妈妈生姐姐，姐姐妈妈生妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirishin  
+##### 160#       发表于 2020-6-6 18:45
+
+
+
+
+姐党这都能开心？不懂你们搞党争的人什么心理
+
+
+
+
+
+
+
+-----
+
+####  lyz1196  
+##### 161#       发表于 2020-6-6 18:56
+
+
+
+
+你永远赢不了一个死去的人×
+
+你永远赢不了一个从鬼门关回来的人√
+
+
+
+
+
+
+
+-----
+
+####  TheCyrodiil  
+##### 162#       发表于 2020-6-6 18:58
+
+
+
+
+有党争的醍醐味了，醍醐味就是喂屎啊
+
+
+
+
+
+
+
+-----
+
+####  花礫  
+##### 163#       发表于 2020-6-6 19:53
+
+
+
+
+姐党只要能恶心妹党就行了，虽然姐党自己看这结局也挺恶心的
+
+
+
+
+
+
+
+-----
+
+####  江戶川柯南  
+##### 164#       发表于 2020-6-6 19:58
+
+
+
+ 本帖最后由 江戶川柯南 于 2020-6-6 20:01 编辑 
+
+谁能想到当初的未来场景剧透
+
+
+是“啥？和（有证书）的妻子青春的甜蜜回忆吗？”
+
+
+“我回来了”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+     ↑
+
+非有证书的妻子，乃同居室友
+
+
+
+
+
+
+
+-----
+
+####  ynqsqz  
+##### 165#       发表于 2020-6-6 20:10
+
+
+
+<blockquote>xingenge 发表于 2020-6-6 15:35
+数年後、結婚式の会場(累の勤め先)で累と雅が陽菜回復後の思い出話
+
+
+半年で話せるようになりリハビリ3年で ...</blockquote>
+有人翻译一下吗……
+
+
+
+
+
+
+
+-----
+
+####  KOPKOM  
+##### 166#       发表于 2020-6-6 20:22
+
+
+
+
+话说带球输党 争，之前有先例吗？
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 167#       发表于 2020-6-6 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701355&amp;ptid=1938678" target="_blank">ynqsqz 发表于 2020-6-6 20:10</a>
+
+有人翻译一下吗……</blockquote>
+转个贴吧的
+
+
+数年后，在婚礼会场（瑠衣的工作的地方），瑠衣和雅聊起了阳菜恢复后的回忆。
+
+
+过了半年可以说话、3年就可以走路了。
+
+
+
+不是因为事故才不和瑠衣结婚，而是因为MASTER的话和看到戒指（所以现在心里只有阳菜）、如果阳菜不喜欢我（夏生）的话可以拒绝。阳菜：那样说太狡猾了…… 接受了求婚
+
+
+看着穿婚纱的阳菜，瑠衣看哭了. 阳菜和瑠衣谈话（会觉得我代替了瑠衣吗之类的话……不知道咋翻）让瑠衣微微有些生气
+
+
+4人同居持续了几年，夏生以虚构的他们为原型的小说《家有女友》出版了。
+
+（此处4人同居应该是为了照顾阳菜吧，因为阳菜过了3年才能走路，后面有提到分居什么的，最后应该是结婚了就搬走了）
+
+
+袋子特典：
+
+丹尼尔避孕套事件的一晚
+
+阳菜、作为分居的惯例，瑠衣和晴香空出了一周家庭时间
+
+枕头谈话（床上谈话那种）上说着柔软的事情
+
+
+
+
+
+
+
+-----
+
+####  真红の剑圣  
+##### 168#       发表于 2020-6-6 20:33
+
+
+
+
+流屎景确实可以呀，骚操作一套套的，天天想着折腾读者的吧
+
+
+
+
+
+
+
+-----
+
+####  yjmy705  
+##### 169#       发表于 2020-6-6 20:41
+
+
+
+
+牛逼
+
+
+
+
+
+
+
+-----
+
+####  五块太贵不买了  
+##### 170#       发表于 2020-6-6 20:43
+
+
+
+
+来，大郎，改吃屎了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  斜阳中的落叶  
+##### 171#       发表于 2020-6-6 20:48
+
+
+
+
+连孩子都有了还能翻盘???
+真就是硬实力冠军呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不会真的有人对大妈有期待吧，不会吧不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 172#       发表于 2020-6-6 21:16
+
+
+
+
+<img src="https://files.catbox.moe/jdzw9m.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/tkyx37.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/we29o4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KOPKOM  
+##### 173#       发表于 2020-6-6 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702150&amp;ptid=1938678" target="_blank">xingenge 发表于 2020-6-6 21:16</a></blockquote>
+完 全 胜 利
+
+
+
+
+
+
+
+-----
+
+####  firedrop  
+##### 174#       发表于 2020-6-6 21:25
+
+
+
+
+team  hina！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  胧楼  
+##### 175#       发表于 2020-6-6 21:31
+
+
+
+
+恶心的我不知道说啥好。60# 黑名单一辈子
+
+
+
+
+
+
+
+-----
+
+####  kamarus  
+##### 176#       发表于 2020-6-6 21:42
+
+
+
+
+xswl<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兮嘉  
+##### 177#       发表于 2020-6-6 21:58
+
+
+
+
+我不知道该说什么好了，算不上选变站，但男主这样心安理得就和姐姐结婚了真是看不懂
+
+以前调侃他是下身也知道他并无太严重过错，不如说被分手得令人郁闷
+现在和妹妹孩子都生了，分别前又互表忠心了一次，结果突然决定和姐姐结婚了
+你和她是最初分手后一直还有私情呢还是在照顾植物人姐姐的三年旧情复燃了？
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 178#       发表于 2020-6-6 21:59
+
+
+
+
+太JBNB了60#<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  阿姆罗二世  
+##### 179#       发表于 2020-6-6 22:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702633&amp;ptid=1938678" target="_blank">兮嘉 发表于 2020-06-06 21:58:28</a>
+我不知道该说什么好了，算不上选变站，但男主这样心安理得就和姐姐结婚了真是看不懂
+
+以前调侃他是下身也知 ...</blockquote>当然是被60#向脑子里灌了💩<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">真就一个纯工具人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  JWJking  
+##### 180#       发表于 2020-6-6 22:03
+
+
+
+
+叹为观止，大妈真有你的
+
+
+
+
+
+
+
+-----
+
+####  a85982313  
+##### 181#       发表于 2020-6-6 22:09
+
+
+
+
+不是，下身反正不是第一次被大妈灌翔把自己说的话当屁放了，但姐姐是个什么心态，才能在知道自己妹妹已经怀孕生小孩了，而且自己没出车祸前这两已经订婚了的情况下接受下身的求婚的啊？这么婊吗
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 182#       发表于 2020-6-6 22:10
+
+
+
+
+60#，了不起！
+
+
+
+
+
+                                           
