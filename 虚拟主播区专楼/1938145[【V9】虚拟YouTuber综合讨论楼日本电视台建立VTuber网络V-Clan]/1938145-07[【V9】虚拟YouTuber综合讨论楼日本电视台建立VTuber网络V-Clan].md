@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 02:09** 
+> ## **本文件最后更新于2020-06-07 04:08** 
 
 
 
@@ -16110,7 +16110,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_EX0J3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_y0UWa" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -20921,7 +20921,7 @@ goddog korone，用c套代替观众的手指到来了
 51合一可以掀桌，多人对战会很有节目效果。可以请爱表演爱玩吃瘪艺和发狂艺的某些管人秀起来。
 
 可惜不是每个管人都能合法直播这游戏。
-<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_CJWv0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_cmT00" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -27019,4 +27019,900 @@ V综一个望夫石WINDA哥，一个一边猛恰🍋一边装硬汉的pro哥，�
 
 
 
-    
+
+
+-----
+
+####  ひびき  
+##### 10374#       发表于 2020-6-7 02:09
+
+
+
+ 本帖最后由 ひびき 于 2020-6-7 02:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705271&amp;ptid=1938145" target="_blank"> proxima 发表于 2020-6-7 01:53</a> 这就不能不顺劈一波苔宝了，军神都要倒了苔宝还在想cp营业，大有yagoo开设木口星，49年入国军之势 她自己不要说独角兽，真粉都没几个倒是无所吊谓，箱里其他人的独角兽不给她冲烂了才怪 嘛，反正海苔男也只会气的要死，大骂这届观众不行，律师函完事 </blockquote>
+你苔对肥希说的那是人话吗？
+
+
+“我的观众被我教育的很好，不会给我提指指点点的意见因为知道我不喜欢”“爱指挥的大叔还挺多的，不会给主播带来很大压力吗？马自立你粉丝里不会有这种人吧”
+
+
+
+那是她妈的受不了的都脱粉了好吗，一个靠与观众互动赚钱的职业完全不听观众意见你是来当大爷的吗，还把这玩意教育给完全相信你的人
+
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10375#       发表于 2020-6-7 02:12
+
+
+
+
+既然都在韩国人，那我也来点repo
+
+叶师今晚上杂谈配信：KR是什么国家，完全不知道呢，哎KR是哪个国家？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10376#       发表于 2020-6-7 02:12
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-7 02:13 编辑 
+
+服务业（指观众服务主播）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl感谢V宗让我看见棒子就想乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10377#       发表于 2020-6-7 02:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705374&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-7 02:12</a>
+既然都在韩国人，那我也来点repo
+
+叶师今晚上杂谈配信：KR是什么国家，完全不知道呢，哎KR是哪个国家？
+
+[f:0 ...</blockquote>
+叶师又不是yhm<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10378#       发表于 2020-6-7 02:14
+
+
+
+
+上playboard随手翻了几个vtb的数据。Views/Subscribers这一指标大多都是20-30%。夏哥只有17，狗子有50，而pekora高达54
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10379#       发表于 2020-6-7 02:19
+
+
+
+
+海苔男这种钻到钱眼里的人还要向别人兜售成功学实在是太不基德了，现在搞得喜欢找海苔男诉苦的liver都有点那个。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10380#       发表于 2020-6-7 02:19
+
+
+
+<blockquote>ひびき 发表于 2020-6-7 02:09
+你苔对肥希说的那是人话吗？
+
+
+“我的观众被我教育的很好，不会给我提指指点点的意见因为知道我不喜欢”“ ...</blockquote>
+从大力减少大号播apex来看她没有彻底被苔姨**，小号也播apex可能是她真的apex中毒了但反而说明**程度不特别高；star男人的事我的确很怕，但我还是先不打算激化，旁敲侧击求证，要是发现3D要拉男人来伴奏我是很有意见了，到时再想想还有啥办法吧唉
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 10381#       发表于 2020-6-7 02:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">今天中午约了一个好棒子吃饭，我要跟他安利aqua了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10382#       发表于 2020-6-7 02:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705356&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 02:08</a>
+
+看了下是上次马与鹿的mix吧，能完善下总是好的，虽然我这耳朵听不太出差别就是了。
+
+ ...</blockquote>
+毕竟不是专业的，做的音源应该比较简陋。不过能cover拿手兽行细道还是很舒服的，天宝特别适合唱男声部<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10383#       发表于 2020-6-7 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705427&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-7 02:20</a>
+
+毕竟不是专业的，做的音源应该比较简陋。不过能cover拿手兽行细道还是很舒服的，天宝特别适合唱男声部[f: ...</blockquote>
+苹果阿姨和宫本浩次小天使能学到几成啊……
+
+上次星街生日唱目抜き通り这俩人还没给处刑够吗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10384#       发表于 2020-6-7 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705423&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-7 02:20</a>
+今天中午约了一个好棒子吃饭，我要跟他安利aqua了</blockquote>
+男的女的？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 10385#       发表于 2020-6-7 02:25
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-7 01:39
+夜深了，我来骂骂一些郡神粉吧。
+
+都这么久没联动，两位多多少少也在冷处理，怎么还这么能联想呢？郡道从一 ...</blockquote>
+他们既不喜欢神田也不喜欢郡道（神田粉这方面对他们的怒意更高）
+
+
+贴贴人是这样的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10386#       发表于 2020-6-7 02:25
+
+
+
+
+jpop一堆好听的糖水歌不唱一定要人均苹果，苹果那风尘味儿你管人能学得来也该被烧到毕业了。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 10387#       发表于 2020-6-7 02:27
+
+
+
+
+苹果那个风尘味儿已婚梦追翔可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他唱过有一两首苹果我还挺喜欢的（管人限定）
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 10388#       发表于 2020-6-7 02:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705443&amp;ptid=1938145" target="_blank"> star_platinum 发表于 2020-6-7 02:24</a> 引用:激光2000 发表于 2020-6-7 02:20 今天中午约了一个好棒子吃饭，我要跟他安利aqua了 男的女的？  —— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2.1 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我要是有棒妹可以约，我还会深夜两点刷s1？
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10389#       发表于 2020-6-7 02:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">又见证到一个cp的末路
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次都有人说他们是真的贴
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">结果一路看下来有哪对大火cp是真的
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">不知道在退圈之前能不能看到tmsk的陌路
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10390#       发表于 2020-6-7 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705442&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 02:24</a>
+
+苹果阿姨和宫本浩次小天使能学到几成啊……
+
+上次星街生日唱目抜き通り这俩人还没给处刑够吗 ...</blockquote>
+今天重新听了下歌回唱的版本，男声部分我比较喜欢。
+
+也去听了下原唱版本，小天使的歌回版本和原唱版本的区别还是挺大的，不像是一个路子。
+
+虽然说肯定跟原唱完全比不了，不过带上粉丝滤镜还是可以好好发情的嘛。
+[https://youtu.be/41teAahm2aU?t=2240](https://youtu.be/41teAahm2aU?t=2240)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 10391#       发表于 2020-6-7 02:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">还在这凑cp呢，
+
+建议管人粉丝组cp，
+
+线下约饭看v，快乐交流多好来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10392#       发表于 2020-6-7 02:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705364&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 02:09</a>
+
+你苔对肥希说的那是人话吗？
+
+
+“我的观众被我教育的很好，不会给我提指指点点的意见因为知道我不喜欢”“ ...</blockquote>
+海苔男本来就是不会听人意见的类型啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最喜欢说的话是你行你上，不能对别人的人生负责有什么资格发言。倒是反过来她能对别的管人的人生负责吗。
+
+海苔男所谓的观众都是来看个热闹的，那当然不会有那个闲心去对她指指点点了。连个人直播都不播的人，来看直播的所谓观众真的是冲着她来的能叫她的观众？
+
+她自己要怎么做是无所谓，当老板可就不是一个人的问题了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10393#       发表于 2020-6-7 02:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705442&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 02:24</a>
+
+苹果阿姨和宫本浩次小天使能学到几成啊……
+
+上次星街生日唱目抜き通り这俩人还没给处刑够吗 ...</blockquote>
+苹果那个味儿学不到1成，是真的不行。宫本还好，虽然她自己也说很多音发不出学不像，不过大概能有两三成吧。
+
+还有就是你拿管人和这些t1歌手比是不是过分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我拿k宝出来太子上星期翻的也比不到1成，aki翻唱最难之一的i believe大概还原出0.01%？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10394#       发表于 2020-6-7 02:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705477&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-7 02:32</a>
+
+苹果那个味儿学不到1成，是真的不行。宫本还好，虽然她自己也说很多音发不出学不像，不过大概能有两三成 ...</blockquote>
+女声部分是真的学不来，今天听歌回感觉就是学了两下就放弃了，希望这次能有自己的演绎。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10395#       发表于 2020-6-7 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705470&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 02:30</a>
+
+今天重新听了下歌回唱的版本，男声部分我比较喜欢。
+
+也去听了下原唱版本，小天使的歌回版本和原唱版本的 ...</blockquote>
+虽然那天主要是现场调音的锅（其实我90%确定当时压根没这人），我甚至可以确定这俩唱歌的时候都没有耳返，但是这歌和声其实对管人来说挺难的，硬来肯定只有车祸一个结果。
+
+
+至于獣ゆく細道非常要求声线和情感表达，她虹那版出了chima和力一这俩社内T0都拉到地下十八层，小天使我实在不看好。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 10396#       发表于 2020-6-7 02:43
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-7 02:46 编辑 
+<blockquote>激光2000 发表于 2020-6-7 02:27
+我要是有棒妹可以约，我还会深夜两点刷s1？</blockquote>
+也可以是激动得睡不着，毕竟那可是梦寐不忘的韩国人。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10397#       发表于 2020-6-7 02:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705477&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-7 02:32</a>
+
+苹果那个味儿学不到1成，是真的不行。宫本还好，虽然她自己也说很多音发不出学不像，不过大概能有两三成 ...</blockquote>
+宫本那神经病疯狗唱法真的学的像嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+还是那句话，索尼前一姐的歌什么瞳をとじて啊popstar啊，ayaka唱了都说好，你管人就是头铁不唱咯。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10398#       发表于 2020-6-7 02:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705472&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-7 02:31</a>
+
+海苔男本来就是不会听人意见的类型啊最喜欢说的话是你行你上，不能对别人的人生负责有什么资格发 ...</blockquote>
+赶紧干她想干的事情被箱内独角兽橄榄，给yagoo做做榜样
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10399#       发表于 2020-6-7 02:46
+
+
+
+
+硬学苹果跟硬唱术力口差不多，都是和自己和观众过不去<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10400#       发表于 2020-6-7 02:46
+
+
+
+
+BSYL：
+
+
+不管哪家贴贴连体婴最好祈祷自己磕得CP 不 是 真 的。
+
+因为如果贴贴不是真的，那分手也不是真的，到时候还能演一出分手快乐祝你快乐。
+
+要是真的那闹掰了恨不得杀了对方的🐎到时候贴贴人准备怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10401#       发表于 2020-6-7 02:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705510&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 02:44</a>
+
+宫本那神经病疯狗唱法真的学的像嘛
+
+
+还是那句话，索尼前一姐的歌什么瞳をとじて啊popstar啊，ayak ...</blockquote>
+宫本部疯狗度和情感发挥好的话两成没问题的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10402#       发表于 2020-6-7 02:54
+
+
+
+
+椎名林檎被管界翻唱最多的歌还是丸之内吧，像大葵、绿仙翻唱的都还行。
+
+
+也不是说原唱段位太高就不敢唱了，这个还是和个人喜好有关的，V界还有就喜欢唱misia、吉田美和的呢，不也......挺好的。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10403#       发表于 2020-6-7 02:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705512&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 02:45</a>
+
+赶紧干她想干的事情被箱内独角兽橄榄，给yagoo做做榜样</blockquote>
+那苔箱没准比木口好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟苔宝不会抓着其他人给男人喂饭。
+
+
+
+syl，我不听我不听，meaqua是真的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10404#       发表于 2020-6-7 02:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705502&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 02:42</a>
+
+虽然那天主要是现场调音的锅（其实我90%确定当时压根没这人），我甚至可以确定这俩唱歌的时候都没有耳返 ...</blockquote>
+去听了下彩虹那版的，怎么说呢，男声部比较单薄？确实没有发疯那味儿，太平淡了。
+
+单论这一点我觉得还不如小天使歌回的版本。。
+
+大部分管人观众（比如我）能感受个音色音调和感情就不错了，细节不存在的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10405#       发表于 2020-6-7 02:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705554&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 02:55</a>
+
+去听了下彩虹那版的，怎么说呢，男声部比较单薄？确实没有发疯那味儿，太平淡了。
+
+单论这一点我觉得还不 ...</blockquote>
+就是声线差太远，力一唱布施明就行唱宫本就拉，这玩意老天给的有就有没有就没有，没法硬扭的。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10406#       发表于 2020-6-7 03:09
+
+
+
+
+看了一会儿35，这doom打得比她的cod好多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10407#       发表于 2020-6-7 03:16
+
+
+
+
+我算是明白为啥小肥妹那么舔狗，同事们也不跟肥希贴了
+
+
+看到张夏露fanart就这个时点给mrr打电话妈的谁受得了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10408#       发表于 2020-6-7 03:21
+
+
+
+
+她们这个点没睡也还可以接受吧，我甚至不能确定小天使是睡了还是在恰独食。艹，刚说完去刷了下推特，就看见一个42分钟前的弹丸论破独食。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10409#       发表于 2020-6-7 03:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705606&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 03:21</a>
+
+她们这个点没睡也还可以接受吧，我甚至不能确定小天使是睡了还是在恰独食。艹，刚说完去刷了下推特，就看见 ...</blockquote>
+她在打中二论破啊，看推特<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|发完贴才去刷推是我的错。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 10410#       发表于 2020-6-7 03:23
+
+
+
+
+你juan学苹果最像的是lita那首歌舞伎町女王，有一成内维尔了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10411#       发表于 2020-6-7 03:25
+
+
+
+
+你juan丸之内最有内维尔的版本肯定是坏女人那版，不接受反驳。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10412#       发表于 2020-6-7 03:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705611&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 03:25</a>
+
+你juan丸之内最有内维尔的版本肯定是坏女人那版，不接受反驳。</blockquote>
+坏女人是谁啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10413#       发表于 2020-6-7 03:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705598&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 03:16</a>
+
+我算是明白为啥小肥妹那么舔狗，同事们也不跟肥希贴了
+
+
+看到张夏露fanart就这个时点给mrr打电话妈的谁受得 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">找了一圈没看到，啥时候的事啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10414#       发表于 2020-6-7 03:35
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-7 03:34
+找了一圈没看到，啥时候的事啊</blockquote>
+看推特，就第一条啊。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10415#       发表于 2020-6-7 03:38
+
+
+
+
+坏女人是说久远千岁，虽然我不能理解因为人家去了裸春就转anti的人......
+
+丸之内合集，2P就是千岁的，不过我还是觉得P4绿仙和P8大葵也不错，这个好像还是楼友做的。
+[https://www.bilibili.com/video/BV1JE411E74v](https://www.bilibili.com/video/BV1JE411E74v)
+
+
+
+省一楼，粉丝给角卷做的生贺PV<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1nK411p7PT](https://www.bilibili.com/video/BV1nK411p7PT)
+
+【角卷绵芽生贺PV】ファンサ（Fan Service）
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10416#       发表于 2020-6-7 03:42
+
+
+
+
+原来如此，我只知道叫玲人不死人，不知道还叫坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 10417#       发表于 2020-6-7 03:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705155&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-7 01:35</a>
+根据hltv的数据，2020线下比赛的枪械出场率里，4把武器占69%，7把武器占82%。加上553的大改，4把又会变3 ...</blockquote>
+比赛那不是用的优势最大的枪，平时匹配用什么的都有好吗，再加上社区服，拳s用头来比多样性
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10418#       发表于 2020-6-7 03:56
+
+
+
+ 本帖最后由 crito 于 2020-6-7 03:58 编辑 
+
+不要0人不要0人，要韩国人<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  
