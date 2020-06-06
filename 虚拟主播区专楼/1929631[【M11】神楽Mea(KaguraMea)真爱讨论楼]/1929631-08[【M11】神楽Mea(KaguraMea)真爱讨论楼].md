@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 22:04** 
+> ## **本文件最后更新于2020-06-07 00:04** 
 
 
 
@@ -9445,10 +9445,11 @@ mea第一次选择了可乐一口闷的挑战，说话时疯狂打嗝（直到�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 诡秘侍者| + 1|好评加鹅|
 | thisisaspider| + 1|好评加鹅，看了后想找个时间回顾了.|
 
 
@@ -9657,4 +9658,754 @@ gachi了
 
 
 
-                               
+
+
+-----
+
+####  Mr.shelter  
+##### 11057#       发表于 2020-6-6 22:05
+
+
+
+
+啊今天高音状态不行啊(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11058#       发表于 2020-6-6 22:07
+
+
+
+
+饱吹饿唱，吃饱了气提不上来力
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11059#       发表于 2020-6-6 22:11
+
+
+
+
+出现了，摸鱼预告
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11060#       发表于 2020-6-6 22:12
+
+
+
+
+啊啊啊啊😱预感到了，坏时代，来临了(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11061#       发表于 2020-6-6 22:18
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-6 22:23 编辑 
+
+孩子想摸就摸吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">开心就好
+
+感觉她六月份之后情绪真的很好啊，五月病终于过去了吗噢噢噢
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11062#       发表于 2020-6-6 22:20
+
+
+
+
+一堆企业势都把3D定在6月下旬了，她也确实有可能去摄像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11063#       发表于 2020-6-6 22:20
+
+
+
+
+月初就散播不安，没有咩咩的日子我该怎么过啊
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11064#       发表于 2020-6-6 22:20
+
+
+
+
+看nga的同传说的是 6月末有4 5天不能播 有要紧事
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11065#       发表于 2020-6-6 22:23
+
+
+
+
+忙,忙点好啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不过月末也有一堆考试,多谢咩姐不杀之恩<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11066#       发表于 2020-6-6 22:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">阿咩还是爱我的
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11067#       发表于 2020-6-6 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">啊夜驱，刚刚还在循环她的这首来着，啊，啊啊，啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 11068#       发表于 2020-6-6 22:47
+
+
+
+
+刚睡醒，起飞
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11069#       发表于 2020-6-6 22:48
+
+
+
+
+这首听着不错，这歌叫啥名啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11070#       发表于 2020-6-6 22:48
+
+
+
+
+好听，爱了(⁄ ⁄•⁄ω⁄•⁄ ⁄)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11071#       发表于 2020-6-6 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703344&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-6 22:48</a>
+
+这首听着不错，这歌叫啥名啊</blockquote>
+夜に駆ける
+
+向夜晚飞奔而去
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11072#       发表于 2020-6-6 22:55
+
+
+
+
+怎么安利起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11073#       发表于 2020-6-6 23:02
+
+
+
+
+草，续上了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11074#       发表于 2020-6-6 23:07
+
+
+
+<blockquote>【我最近有个在看的vtb想像大家推荐】
+
+【是个mc的实况视频】
+
+【最近只在看mc实况了】
+
+【好像是叫..的三个人的实况组】
+
+【看着还是很有意思的】
+
+【怎么个有趣法？emmm虽然我会看可能会吓哭小孩的】
+
+【不过这三个人不会吓哭小孩】
+
+【大概就是加各种限制玩mc吧】
+
+【也没玩什么热门的游戏所以我也不太懂】
+
+【是很帅气的声音吗?emmmmm也不能这么说】
+
+【从这个视角来看的话，也不是那样的人】
+
+【但从温馨有趣来看还是可以的，不是那种爆笑类型的视频】</blockquote>
+这说的谁啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11075#       发表于 2020-6-6 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703602&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-6 23:07</a>
+这说的谁啊</blockquote>
+<img src="https://p.sda1.dev/0/f55902cffbd11cff45bdbcb2e9bcf40d/IMG_016554B2B36389309D12599FF5F0D321.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 11076#       发表于 2020-6-6 23:09
+
+
+
+
+这家有女友op没那味
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11077#       发表于 2020-6-6 23:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不行啊，怎么唱出一股奶味
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11078#       发表于 2020-6-6 23:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703633&amp;ptid=1929631" target="_blank">诡秘侍者 发表于 2020-6-6 23:09</a>
+
+这家有女友op没那味</blockquote>
+今天拉胯了 前两次唱发挥可以的
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 11079#       发表于 2020-6-6 23:11
+
+
+
+
+这种奶味也挺棒的，我炼了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11080#       发表于 2020-6-6 23:12
+
+
+
+
+这后半来劲啊
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 11081#       发表于 2020-6-6 23:13
+
+
+
+
+她唱歌一直都是用自己的声线来唱的，又不会刻意模仿，所以有时候的确有些歌听着非常奶
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11082#       发表于 2020-6-6 23:15
+
+
+
+
+这么奶太可爱了(⁄ ⁄•⁄ω⁄•⁄ ⁄)gachi了gachi了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11083#       发表于 2020-6-6 23:17
+
+
+
+
+她今天特意用这么奶的声线唱的吧
+
+等个姨妈期的歌回唱这首歌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 11084#       发表于 2020-6-6 23:18
+
+
+
+
+她的again也带着奶味，小女生没办法
+
+—— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 11085#       发表于 2020-6-6 23:19
+
+
+
+
+写期末作业，错过了，只听了个尾<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+她真好
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11086#       发表于 2020-6-6 23:19
+
+
+
+
+本老男人就是喜欢小女生<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11087#       发表于 2020-6-6 23:20
+
+
+
+
+等姨化之后你们肯定又想这奶味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11088#       发表于 2020-6-6 23:23
+
+
+
+ 本帖最后由 路人子 于 2020-6-6 23:26 编辑 
+
+一会可能播，总感觉这个可能性应该有三成（
+
+
+↓说了开完会考虑播
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11089#       发表于 2020-6-6 23:24
+
+
+
+
+不是说要找如月么，还有空播？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11090#       发表于 2020-6-6 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能播＝不播，常识
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11091#       发表于 2020-6-6 23:26
+
+
+
+
+开完会可能突击
+反正我不等了，今晚咩能量补充完毕，开心睡觉_(: 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11092#       发表于 2020-6-6 23:27
+
+
+
+
+溜了溜了，明早起来看同传
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11093#       发表于 2020-6-6 23:27
+
+
+
+
+熬到2点决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11094#       发表于 2020-6-6 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703832&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-6 23:25</a>
+可能播＝不播，常识</blockquote>
+这就要看xx酱服务得到不到位了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 11095#       发表于 2020-6-6 23:29
+
+
+
+
+カワキヲアメク 这歌还是太难了。不过今天她很开心啊。有好事吧。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11096#       发表于 2020-6-6 23:30
+
+
+
+
+被献祭了，沉迷刀塔，没听到歌回
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 11097#       发表于 2020-6-6 23:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">睿站直播间好像只有我打SC了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 11098#       发表于 2020-6-6 23:37
+
+
+
+
+错楼
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11099#       发表于 2020-6-6 23:37
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-6-6 23:39 编辑 
+
+不止一个打了吧(ಡωಡ) 
+
+草错楼老哥吓我一跳，我以为自己错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11100#       发表于 2020-6-6 23:41
+
+
+
+
+不止，三四个都打了sc，3050100价格不等（
+
+
+
+
+
+                              

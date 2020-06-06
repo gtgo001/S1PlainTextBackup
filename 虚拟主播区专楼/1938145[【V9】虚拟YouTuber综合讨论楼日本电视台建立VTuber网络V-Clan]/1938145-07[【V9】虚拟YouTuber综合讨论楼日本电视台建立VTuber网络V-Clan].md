@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 22:11** 
+> ## **本文件最后更新于2020-06-07 00:11** 
 
 
 
@@ -16110,7 +16110,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_M099n" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_eclY1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -20921,7 +20921,7 @@ goddog korone，用c套代替观众的手指到来了
 51合一可以掀桌，多人对战会很有节目效果。可以请爱表演爱玩吃瘪艺和发狂艺的某些管人秀起来。
 
 可惜不是每个管人都能合法直播这游戏。
-<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_u77v8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_opgqQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -22422,4 +22422,2480 @@ bilibili还有运营给holo成员直播内容白名单啊（但是船长没看�
 
 
 
-            
+
+
+-----
+
+####  渡鸦骑士  
+##### 10138#       发表于 2020-6-6 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702716&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-6 22:04</a>
+
+不说我都快忘了有b限这东西了
+
+话说龙皇的初b限还没安排好吗，反正就是棉花糖加两首歌最多来个学中文 ...</blockquote>
+会长不用学……她学过，只是已经不太熟练了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10139#       发表于 2020-6-6 22:12
+
+
+
+
+龙皇中英双语B限能开启一波财富密码吗？
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10140#       发表于 2020-6-6 22:13
+
+
+
+ 本帖最后由 Devi_Lito 于 2020-6-6 22:18 编辑 
+
+《サイマジョ》听第一段的时候还在找露露在哪，听到“どこかの国の大統領”那句之后满脑子只有岩窟王了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，《サイマジョ》这歌真是晦气，C和护法全毕业了，并且都和运营闹翻的样子。。
+
+
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10141#       发表于 2020-6-6 22:14
+
+
+
+
+学中文看视频来一波
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10142#       发表于 2020-6-6 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702807&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-6 22:11</a>
+会长不用学……她学过，只是已经不太熟练了</blockquote>
+正是因为学过中文，才要b限学中文，而不是你好谢谢我爱你三连。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10143#       发表于 2020-6-6 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702867&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-6 22:14</a>
+
+正是因为学过中文，才要b限学中文，而不是你好谢谢我爱你三连。</blockquote>
+我觉得那就是 ** 小** 娘希匹 国骂三联了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10144#       发表于 2020-6-6 22:21
+
+
+
+
+一个日本公司的米国佬主播来中国的bilibili学中文，这种听着就能捡钱甚至有可能扩圈的东西运营到现在都没安排好吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10145#       发表于 2020-6-6 22:22
+
+
+
+
+财
+
+
+富
+
+
+密
+
+
+码
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/222232mxx4crir2rj2zpwr.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20200606222224.png</strong> (1.31 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 22:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10146#       发表于 2020-6-6 22:23
+
+
+
+<blockquote>bluebaby 发表于 2020-6-6 22:21
+一个日本公司的米国佬主播来中国的bilibili学中文，这种听着就能捡钱甚至有可能扩圈的东西运营到现在都没安 ...</blockquote>
+“你staff管不了我coco！”
+
+大概是因为这个？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 10147#       发表于 2020-6-6 22:23
+
+
+
+ 本帖最后由 バーチャルS1er 于 2020-6-6 22:24 编辑 
+
+不是常驻有什么用么，要稳定人气至少得一周三次吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+哈酱吗这么扩圈现在也没多少舰长了
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10148#       发表于 2020-6-6 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702969&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-6 22:21</a>
+
+一个日本公司的米国佬主播来中国的bilibili学中文，这种听着就能捡钱甚至有可能扩圈的东西运营到现在都没安 ...</blockquote>
+你猴楼来福管不到我[呲牙][呲牙]
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 10149#       发表于 2020-6-6 22:26
+
+
+
+
+我不熟偶像，那歌也是最近因为ykw才知道的，但是结合最近事件来看这歌投的时机还真是各种微妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10150#       发表于 2020-6-6 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702988&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-6 22:22</a>
+
+财
+
+
+富</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瞄了眼同接就这？
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10151#       发表于 2020-6-6 22:27
+
+
+
+
+美国妹不是财富密码，龙组日更早安可可，现在粉丝数四期才排第三
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10152#       发表于 2020-6-6 22:28
+
+
+
+
+对啊为啥心心没啥舰长呢，b播的也不算少吧(눈_눈)?
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10153#       发表于 2020-6-6 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703049&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-6 22:27</a>
+
+美国妹不是财富密码，龙组日更早安可可，现在粉丝数四期才排第三</blockquote>
+ascc都在论坛第一时间云完了，还有什么看的必要吗2333
+
+还不如去烤点杂谈切片。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10154#       发表于 2020-6-6 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47701958&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-6 21:02</a>
+
+太紫又要上夜班，弄得あのん老哥苦不堪言。</blockquote>
+看见预告的瞬间就去睡觉了，刚爬起来
+
+周六夜班无所谓，平时偶尔开夜车权当看欧冠，也能扛得住
+
+我就怕天天和mysk一样熬死我<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10155#       发表于 2020-6-6 22:30
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/223025kir344tz3q9hesfp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>15914537921633147472381456070854.jpg</strong> (1.01 MB, 下载次数: 1)
+
+下载附件
+
+2020-6-6 22:30 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 面具13| + 1||
+| colodes| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10156#       发表于 2020-6-6 22:31
+
+
+
+
+模拟人生4啊，总感觉龙皇的所谓眼光独到的金游落后斗鱼两年啊。哪天掏出环世界、中土世界、乞丐模拟器啥的也不稀奇啊。
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 10157#       发表于 2020-6-6 22:31
+
+
+
+
+葵皇这pv做的是真的越来越好了
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10158#       发表于 2020-6-6 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703115&amp;ptid=1938145" target="_blank">古战场亡魂 发表于 2020-6-6 22:31</a>
+
+模拟人生4啊，总感觉龙皇的所谓眼光独到的金游落后斗鱼两年啊。哪天掏出环世界、中土世界、乞丐模拟器啥的 ...</blockquote>
+可是日本那帮人的游戏品味那是落后快一个世代了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 10159#       发表于 2020-6-6 22:36
+
+
+
+
+说明国内观众和日本观众的喜好区别很大啊，环世界那几个节目效果真的好还有趣，在日本那边就不一定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 10160#       发表于 2020-6-6 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703071&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-6 22:28</a>
+
+对啊为啥心心没啥舰长呢，b播的也不算少吧(눈_눈)?</blockquote>
+可能都知道她是巨浪了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10161#       发表于 2020-6-6 22:38
+
+
+
+ 本帖最后由 QWANG 于 2020-6-6 22:40 编辑 
+
+船长刚说过想过开个杏成员环世界，还可以在里面贴贴营业。不过可能死人和被绑架，还有各种怪癖可能风评被害觉得不大好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10162#       发表于 2020-6-6 22:38
+
+
+
+
+因为舰长太tm贵了。是404会员的将近5倍。
+
+它b大概脑子不清醒，这舰长价位要是降到五分之一，加的人绝壁超过五倍。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10163#       发表于 2020-6-6 22:38
+
+
+
+
+捏了30分钟还在捏，是不是嫌贴贴人钱打少了，适可而止💪
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10164#       发表于 2020-6-6 22:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703074&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 22:28</a>
+
+ascc都在论坛第一时间云完了，还有什么看的必要吗2333
+
+还不如去烤点杂谈切片。 ...</blockquote>
+NGA木口楼流量也就几百，b站粉丝主体也不是看直播的，是看视频的，一般来说烤得那么多，涨粉应该比较快的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10165#       发表于 2020-6-6 22:42
+
+
+
+<blockquote>crawarb 发表于 2020-6-6 22:38
+NGA木口楼流量也就几百，b站粉丝主体也不是看直播的，是看视频的，一般来说烤得那么多，涨粉应该比较快的 ...</blockquote>
+我是觉得ascc吸新粉的能力没那么强，会看（哪怕是偶尔看）ascc的那部分应该早就点了关注了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10166#       发表于 2020-6-6 22:42
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-6 22:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703071&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-6 22:28</a>
+对啊为啥心心没啥舰长呢，b播的也不算少吧(눈_눈)?</blockquote>
+b限播的多有用吗，看看巧克和aki。
+syl，看早安可可这个节目的前提就是杏仁，带不来啥新观众，国内holo的精彩片段剪辑估计是吸新观众最多的，还有就是歌曲投稿，小天使和星街的特明显。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10167#       发表于 2020-6-6 22:42
+
+
+
+
+为什么只要有白少主的直播怎么看都感觉yygq
+
+海苔男建议白少主月末台词回整个妈妈台词回，感觉在暗示姨。
+
+说自己画的少主特别可爱，感觉在暗示凪白不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10168#       发表于 2020-6-6 22:43
+
+
+
+<blockquote>IDIDIDID 发表于 2020-6-6 22:38
+捏了30分钟还在捏，是不是嫌贴贴人钱打少了，适可而止💪</blockquote>
+好像在捏羊了，同接倒是有涨。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10169#       发表于 2020-6-6 22:45
+
+
+
+
+贴贴豚也不是永动机啊，信用卡也是会燃尽的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10170#       发表于 2020-6-6 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703276&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 22:43</a>
+
+好像在捏羊了，同接倒是有涨。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">想起上午peko花了40分钟捏了个妖怪出来
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 10171#       发表于 2020-6-6 22:47
+
+
+
+
+视频就是靠流量了、就是不知道如果木口那种心安理得卖高价抹布的来国内带货会不会被直接冲死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10172#       发表于 2020-6-6 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703271&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 22:42</a>
+
+为什么只要有白少主的直播怎么看都感觉yygq
+
+海苔男建议白少主月末台词回整个妈妈台词回，感觉在暗示姨。
+
+说 ...</blockquote>
+这不是你苔在yygq吗关狐皇什么事<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10173#       发表于 2020-6-6 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703182&amp;ptid=1938145" target="_blank">2517君改二 发表于 2020-6-6 22:36</a>
+
+可是日本那帮人的游戏品味那是落后快一个世代了</blockquote>
+也没啥区别，有啥玩啥呗，只是管人顶层的是守旧主义，根本不敢轻易尝试新游戏。也有可能有市场的关系。很多游戏只有英文，国内汉化组还是给力，有些补丁挺快的。全战三国目前11国语言了，韩文、土耳其语都有了，没日文，乐死我了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10174#       发表于 2020-6-6 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703271&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 22:42</a>
+
+为什么只要有白少主的直播怎么看都感觉yygq
+
+海苔男建议白少主月末台词回整个妈妈台词回，感觉在暗示姨。
+
+说 ...</blockquote>
+可是凪白确实不行阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10175#       发表于 2020-6-6 22:50
+
+
+
+
+海苔男画谁不都是一张脸吗，比风日强在哪里。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10176#       发表于 2020-6-6 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703374&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-6 22:50</a>
+
+海苔男画谁不都是一张脸吗，比风日强在哪里。</blockquote>
+强在眼睛至少画的像人眼睛，而不是平板玻璃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10177#       发表于 2020-6-6 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703322&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-6 22:47</a>
+视频就是靠流量了、就是不知道如果木口那种心安理得卖高价抹布的来国内带货会不会被直接冲死 ...</blockquote>
+国内市场已经被手游调叫好了，300+的抹布少氪一单能买两件<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10178#       发表于 2020-6-6 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703380&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-6 22:50</a>
+
+强在眼睛至少画的像人眼睛，而不是平板玻璃</blockquote>
+性冷淡，性冷淡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10179#       发表于 2020-6-6 22:51
+
+
+
+
+紫宝直播间还没动静<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我怀疑睡过头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也就是说我和紫宝刚才实质上一起睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 10180#       发表于 2020-6-6 22:57
+
+
+
+
+不来个一起喘气搬桌子哪来那么多不请自来的贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 10181#       发表于 2020-6-6 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703384&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-6 22:51</a>
+
+国内市场已经被手游调叫好了，300+的抹布少氪一单能买两件</blockquote>
+那可算了吧，挺大一部分手游玩家是那种平时不买打折的东西都嫌贵，省吃俭用去氪金的那种，他们会买几百块的衣服？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10182#       发表于 2020-6-6 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702713&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-6 22:04</a>
+
+已婚并且育有小孩的大叔在这一点上十分有发言权</blockquote>
+但是你闻女人的和自己的感受区别很大，内心有种莫名的悸动，到底是纯粹性癖作用还是真的有费洛蒙加成我暂且蒙在鼓里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10183#       发表于 2020-6-6 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703497&amp;ptid=1938145" target="_blank">y78348877 发表于 2020-6-6 22:58</a>
+
+那可算了吧，挺大一部分手游玩家是那种平时不买打折的东西都嫌贵，省吃俭用去氪金的那种，他们会买几百块 ...</blockquote>
+国内不少手游周边比氪金赚钱的阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10184#       发表于 2020-6-6 23:01
+
+
+
+
+想起了这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/b731fcc63381e33ba7b3f2b280af8e88/IMG_1D42D5C72485B52576F32E71386F3DD3.jpeg" referrerpolicy="no-referrer">
+带货卖周边会不会被搞啊，还是整个yagoo妈妈亲手做的私房肉感觉比较稳
+
+
+
+
+
+
+
+-----
+
+####  proto  
+##### 10185#       发表于 2020-6-6 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703271&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 22:42</a>
+
+为什么只要有白少主的直播怎么看都感觉yygq
+
+海苔男建议白少主月末台词回整个妈妈台词回，感觉在暗示姨。
+
+说 ...</blockquote>
+去年底白少主新衣发布时苔宝就表示新皮套不行了。小肥妹还帮忙打圆场。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10186#       发表于 2020-6-6 23:02
+
+
+
+
+卖周边和带货又不一样，你们好怪啊。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10187#       发表于 2020-6-6 23:03
+
+
+
+
+不懂就问，周边和带货有什么区别？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10188#       发表于 2020-6-6 23:03
+
+
+
+
+紫宝延迟半小时开播，刚睡醒。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10189#       发表于 2020-6-6 23:04
+
+
+
+
+果然还是贴贴同接财富密码强啊
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10190#       发表于 2020-6-6 23:04
+
+
+
+
+葛叶这新发型真的好有哈韩味啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 10191#       发表于 2020-6-6 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703374&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-6 22:50</a>
+海苔男画谁不都是一张脸吗，比风日强在哪里。</blockquote>
+我觉得现在这一个小时随手画的都比那谁好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 10192#       发表于 2020-6-6 23:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大家等了半天欧美金游崛起，没想到却是拉上天使搞同居战
+
+这波财富密码不知道能用多久
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10193#       发表于 2020-6-6 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702462&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-6 21:43</a>
+
+为什么阿希和男人联动还要这么卖力地作践自己…而白上桑你就这么看着 ...</blockquote>
+当年我还不是阿希gachi的时候还在净土宗资瓷过两人和star联动然而现在我太后悔了，我当时真的蠢过只猪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+本来是想着27JK我看着很舒服所以能接受star然而真的不行，不管你们怎么客观分析律可跟夏哥没啥可能，但是画面上我就是酸死了……然而前段时间柴卡继续和夏哥黄段子互怼我也依然看的很舒服为什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+只希望她任何3D live都不要拉star男人一起表演，不然我还是伤心到只能退坑的<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10194#       发表于 2020-6-6 23:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/230711le0yfhhbkndiw0f8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200607000659.png</strong> (699.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 23:07 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/230717z77llx5v2i307yx5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200606210606.png</strong> (82.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 23:07 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10195#       发表于 2020-6-6 23:09
+
+
+
+<blockquote>wsotaku 发表于 2020-6-6 23:06
+当年我还不是阿希gachi的时候还在净土宗资瓷过两人和star联动然而现在我太后悔了，我当时真的蠢过只猪[f:1 ...</blockquote>
+可能是因为律可和你差不多大所以嫉妒了？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10196#       发表于 2020-6-6 23:11
+
+
+
+ 本帖最后由 wsotaku 于 2020-6-6 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703634&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 23:09</a>
+
+可能是因为律可和你差不多大所以嫉妒了？</blockquote>
+年龄真没想过，但画面上、嗓音上和性格上都很让我酸……明明如果是社畜的话我甚至都想他收了阿希的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10197#       发表于 2020-6-6 23:17
+
+
+
+
+我不基德，我觉得优十只要想，找比阿肥好的女人手拿把纂<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10198#       发表于 2020-6-6 23:18
+
+
+
+
+所以说yagoo第一大脑瘫决策是不重新开企划重新开公司硬要挂木口这个名
+
+
+第二大脑瘫决策就是选的皮严重降低live这边观众的接受度，直到三期出伪娘脑子才转过来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10199#       发表于 2020-6-6 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703595&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-6 23:06</a>
+当年我还不是阿希gachi的时候还在净土宗资瓷过两人和star联动然而现在我太后悔了，我当时真的蠢过只猪[f:1 ...</blockquote>
+还是叔坦诚，不像隔壁的小伙子<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|5块钱代|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10200#       发表于 2020-6-6 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703721&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-6 23:17</a>
+
+我不基德，我觉得优十只要想，找比阿肥好的女人手拿把纂</blockquote>
+是的啊，这么说的话，先生和黑宝一样？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10201#       发表于 2020-6-6 23:22
+
+
+
+
+那位又来了？怎么5块钱这么多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10202#       发表于 2020-6-6 23:22
+
+
+
+
+所以说yagoo最大的错误不就是以为田角的什么作业都能抄吗。海苔男就完全不留情的，明说除了虹的男v都火不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在yagoo学聪明了，slee这不是就不跟了吗
+
+
+
+syl，海苔男这个白少主柰子偷偷加料不说还增加了北半球的露出度，太私货了草
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10203#       发表于 2020-6-6 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703756&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:20</a>
+
+是的啊，这么说的话，先生和黑宝一样？</blockquote>
+可能他比较基德，不想让自己落到钢兵蛇足那帮人一个风评吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10204#       发表于 2020-6-6 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703727&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:18</a>
+
+所以说yagoo第一大脑瘫决策是不重新开企划重新开公司硬要挂木口这个名
+
+
+第二大脑瘫决策就是选的皮严重降低l ...</blockquote>
+现在还有个七月的3D要找伴奏，我怎么都只能想到找律可了，真是太可怕了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+后面有歌回继续小额sc刺探，如果真的提了3D不限定找hololive的女孩子联动（我会在sc说猜是女孩子），我可以提早做好计划了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10205#       发表于 2020-6-6 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703787&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 23:22</a>
+
+所以说yagoo最大的错误不就是以为田角的什么作业都能抄吗。海苔男就完全不留情的，明说除了虹的男v都火不了 ...</blockquote>
+这线稿看着还行阿，感觉比某白的还好丶
+
+
+这么说苔姨的画看着不行是上色的问题？高配ZUN？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10206#       发表于 2020-6-6 23:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703802&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-6 23:23</a>
+
+现在还有个七月的3D要找伴奏，我怎么都只能想到找律可了，真是太可怕了
+
+后面有歌回继续小额sc刺探 ...</blockquote>
+叔想开一点，万一是yyut呢
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10207#       发表于 2020-6-6 23:26
+
+
+
+
+不过木口里能达到伴奏水平而不是整活的，是不是只有空妈了？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10208#       发表于 2020-6-6 23:27
+
+
+
+
+YYUT你杏配吗？
+
+如果是真的那阿肥起码在yagoo家门口跪了三天三夜。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10209#       发表于 2020-6-6 23:27
+
+
+
+ 本帖最后由 ひびき 于 2020-6-6 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703825&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 23:25</a>
+
+叔想开一点，万一是yyut呢</blockquote>
+我盲猜一下，不管是yyut乃至是优十真人给叔的反感都不会比律可大
+
+
+
+可见yagoo给木口星的皮找的是多脑瘫
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10210#       发表于 2020-6-6 23:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703825&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-6 23:25</a>
+
+叔想开一点，万一是yyut呢</blockquote>
+YYUT我是真爽死了……但是有可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 10211#       发表于 2020-6-6 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703824&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:25</a>
+这线稿看着还行阿，感觉比某白的还好丶
+
+
+这么说苔姨的画看着不行是上色的问题？高配ZUN？ ...</blockquote>
+不行的说法哪里来的?随便举几个之前的星街、夏哥，甚至幼儿园联动的peko不都既保留自己的画风有很还原角色吗
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10212#       发表于 2020-6-6 23:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703824&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:25</a>
+
+这线稿看着还行阿，感觉比某白的还好丶
+
+
+这么说苔姨的画看着不行是上色的问题？高配ZUN？ ...</blockquote>
+我是觉得海苔男的画不就普通萌系画师的画，没什么特点也没什么很大的问题吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10213#       发表于 2020-6-6 23:30
+
+
+
+
+说苔姨不行也只是说作为知名漫画家相对不行吧，v圈还是很行的。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10214#       发表于 2020-6-6 23:31
+
+
+
+
+高小姐怎么又配得上yyut了啊，还不是脸皮厚点，苔姨当个中间人拐来伴奏又何妨，劳务费比照高小姐那次百万人气回给就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 10215#       发表于 2020-6-6 23:32
+
+
+
+
+这深夜たこ焼き看饿了…
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10216#       发表于 2020-6-6 23:33
+
+
+
+
+阿肥早年说过想和yyut联动被运营拦了，这不是她脸皮厚不厚的问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10217#       发表于 2020-6-6 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703880&amp;ptid=1938145" target="_blank">HinataY 发表于 2020-6-6 23:29</a>
+
+不行的说法哪里来的?随便举几个之前的星街、夏哥，甚至幼儿园联动的peko不都既保留自己的画风有很还原角 ...</blockquote>
+不是，同样是皮，你把狐皇的原皮和tamaki拿出来比十个有九个路人都会说狐皇更好看
+
+
+
+但是看线稿感觉反而苔姨画的好点，拿现在这张和屏幕左边的狐皇比的话？
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 10218#       发表于 2020-6-6 23:36
+
+
+
+
+呜哇...
+
+
+
+
+
+
+QQ截图20200606233533.png
+(13.35 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-6 23:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/233558iot22o3kwe2yok27.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10219#       发表于 2020-6-6 23:36
+
+
+
+
+美颜滤镜的储备，还足够吗？！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10220#       发表于 2020-6-6 23:37
+
+
+
+
+感觉大叔又要发疯了。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10221#       发表于 2020-6-6 23:37
+
+
+
+
+《退路》
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10222#       发表于 2020-6-6 23:37
+
+
+
+
+这女人前半生是没碰过fps吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">   
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10223#       发表于 2020-6-6 23:37
+
+
+
+
+我在想，这海苔男这次联动是不是在和狐狸学习管理经验啊
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10224#       发表于 2020-6-6 23:38
+
+
+
+
+只会打枪的离我家紫宝远点
+
+现在紫宝也有往打枪机器那方向转变🥜😈
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10225#       发表于 2020-6-6 23:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/233841gkqqu199oxk1qv6q.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200607003822.png</strong> (783.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 23:38 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/233842skeahaaaaqcxrq8r.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200606210606.png</strong> (82.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 23:38 上传
+
+
+
+
+
+
+
+喔，这感觉还挺不错的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10226#       发表于 2020-6-6 23:39
+
+
+
+
+一个问题，模拟人生人物是有一定自动行动的，如果龙皇捏的同社没控制好和陌生npc上了床养了孩子，龙皇会不会被炎上？？毕竟我已经在其他主播那边看过安排人物吵架吵着吵着直接滚床单的了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|思路广|
+| Ascending| + 1|思路广|
+| star_platinum| + 1|欢乐多|
+| 墨玄i| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10227#       发表于 2020-6-6 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704003&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-6 23:38</a>
+
+只会打枪的离我家紫宝远点
+
+现在紫宝也有往打枪机器那方向转变🥜😈</blockquote>
+MD 姓夏的多久没碰你家紫宝了
+
+
+最近带着你家打枪的明明是夸皇好么
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10228#       发表于 2020-6-6 23:42
+
+
+
+
+那我就劈夸夸🥜😈
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10229#       发表于 2020-6-6 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703958&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:35</a>
+
+不是，同样是皮，你把狐皇的原皮和tamaki拿出来比十个有九个路人都会说狐皇更好看</blockquote>
+狐皇的原皮有尾巴哥称为“魔性”的内涵，没有可比性
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 10230#       发表于 2020-6-6 23:43
+
+
+
+
+别批了，夸夸都摸了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10231#       发表于 2020-6-6 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704003&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-6 23:38</a>
+
+只会打枪的离我家紫宝远点
+
+现在紫宝也有往打枪机器那方向转变🥜😈</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/06/234336pithesyenuehhye0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-b12dKvT1kSae-al.jpg</strong> (30.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 23:43 上传
+
+
+
+
+
+
+
+无言投下
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10232#       发表于 2020-6-6 23:45
+
+
+
+
+世界未解之谜，狐皇为什么封印了原皮，只用买菜大妈皮<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10233#       发表于 2020-6-6 23:45
+
+
+
+
+还好小天使够白给，至少直播不会沉迷打枪。
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 10234#       发表于 2020-6-6 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703958&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:35</a>
+不是，同样是皮，你把狐皇的原皮和tamaki拿出来比十个有九个路人都会说狐皇更好看</blockquote>
+按苔苔的话，犬山就是往朴素的画，其他女儿都比犬山强<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 10235#       发表于 2020-6-6 23:45
+
+
+
+
+可是律可不是跟社长一个妈吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 10236#       发表于 2020-6-6 23:46
+
+
+
+
+之前有几次直播重新掏出过原皮，至于为什么一般还是用新皮，可能是如果一直用原皮相当于直接承认新皮就是个失败品太不给所有相关人面子么。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10237#       发表于 2020-6-6 23:46
+
+
+
+
+我记得SIM4可以魔改联机的，就是不知道日本IT废物运营会不会弄了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10238#       发表于 2020-6-6 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704003&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-6 23:38</a>
+
+只会打枪的离我家紫宝远点
+
+现在紫宝也有往打枪机器那方向转变🥜😈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫宝等下不是要打瓦罗兰吗。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10239#       发表于 2020-6-6 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704105&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-6 23:46</a>
+
+之前有几次直播重新掏出过原皮，至于为什么一般还是用新皮，可能是如果一直用原皮相当于直接承认新皮就是个 ...</blockquote>
+别人有新皮的也没这么完全用新皮阿，狐皇几乎就是有意识的不用新皮
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10240#       发表于 2020-6-6 23:48
+
+
+
+
+不打瓦罗兰我还不会🥜😈
+
+
+でも好きなことだけやればいい
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 10241#       发表于 2020-6-6 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704083&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-6 23:45</a>
+
+世界未解之谜，狐皇为什么封印了原皮，只用买菜大妈皮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能也是为了杀gachi吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10242#       发表于 2020-6-6 23:48
+
+
+
+
+劈，都可以劈，谁让大亏是你楼指定顺劈对象呢(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10243#       发表于 2020-6-6 23:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704105&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-6 23:46</a>
+
+之前有几次直播重新掏出过原皮，至于为什么一般还是用新皮，可能是如果一直用原皮相当于直接承认新皮就是个 ...</blockquote>
+新皮的表情很丰富啊
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 10244#       发表于 2020-6-6 23:50
+
+
+
+
+我倒是觉得狐狸新皮更有感觉。。虽然比原皮简约，但我觉得气质上更好。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10245#       发表于 2020-6-6 23:50
+
+
+
+
+大亏肉猪的到底是不是solo live
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10246#       发表于 2020-6-6 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704136&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-6 23:49</a>
+
+新皮的表情很丰富啊</blockquote>
+你说的丰富是指死鱼眼和面瘫表情的种类比较丰富吗？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10247#       发表于 2020-6-6 23:51
+
+
+
+
+今天没有夸能量 要死了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10248#       发表于 2020-6-6 23:54
+
+
+
+
+slee后两位首播分别是明晚8点和后晚6点，明晚就是大家觉得颜值很有特色的那位......
+[https://www.youtube.com/watch?v=xy611N0JS7I](https://www.youtube.com/watch?v=xy611N0JS7I)
+[https://www.youtube.com/watch?v=eEA6wmjqV9I](https://www.youtube.com/watch?v=eEA6wmjqV9I)
+
+
+
+
+省一楼，明天王你这个是
+
+<img src="https://img.saraba1st.com/forum/202006/06/235342tt4m5gzxgfaimfig.png" referrerpolicy="no-referrer">
+
+
+<strong>maia.png</strong> (13.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 23:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10249#       发表于 2020-6-6 23:56
+
+
+
+
+免费竟然坚持关注slee啊，真了不起（笑，所以今天那位有才艺展示吗？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10250#       发表于 2020-6-6 23:57
+
+
+
+ 本帖最后由 proxima 于 2020-6-7 00:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704090&amp;ptid=1938145" target="_blank">HinataY 发表于 2020-6-6 23:45</a>
+
+按苔苔的话，犬山就是往朴素的画，其他女儿都比犬山强
+
+
+—— 来自 OnePlus GM1910, Android 10上 ...</blockquote>
+海苔男最早的皮成稿太早了，也不是为了vtb出道画的。
+
+不过旗袍皮还是挺色的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10251#       发表于 2020-6-6 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704235&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 23:56</a>
+
+免费竟然坚持关注slee啊，真了不起（笑，所以今天那位有才艺展示吗？</blockquote>
+没有，还是和第一位一样絮絮叨叨自我介绍...
+
+
+其实我主要想看会不会和本家V这边联动搞点有意思的节目，不过目前出来的两位都完全没提到过和V这边联动的想法
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10252#       发表于 2020-6-6 23:58
+
+
+
+
+深夜无端发散，军神是真的不行，神田太拉了，和下巴师生背德营业不香吗？
+
+或者干脆倒贴社长，🔥一波<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10253#       发表于 2020-6-6 23:59
+
+
+
+
+狐皇心中那套大码家居服就是比要原皮好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">气死gachi
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10254#       发表于 2020-6-6 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703997&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-6 23:37</a>
+
+我在想，这海苔男这次联动是不是在和狐狸学习管理经验啊</blockquote>
+交流杀gachi经验还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10255#       发表于 2020-6-7 00:01
+
+
+
+<blockquote>free 发表于 2020-6-6 23:57
+没有，还是和第一位一样絮絮叨叨自我介绍...
+
+
+其实我主要想看会不会和本家V这边联动搞点有意思的节目，不 ...</blockquote>
+如果不贴本社v的话我就真的搞不懂田角为啥搞这个企划了，充满了草台和拉垮的气息。。
+
+总不能真就星球大战骗cover下水吧。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10256#       发表于 2020-6-7 00:02
+
+
+
+
+紫宝这枪法好强啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10257#       发表于 2020-6-7 00:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704303&amp;ptid=1938145" target="_blank">fromsaitama 发表于 2020-6-7 00:02</a>
+
+紫宝这枪法好强啊</blockquote>
+她枪法一直可以的，就是团队作战意识不行。。。每次看到敌人就泥给陆打油
+
+
+惯性卖队友。。。。。上次带猫狗打APEX也是习惯性就把猫狗给卖了233
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10258#       发表于 2020-6-7 00:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏TTK太短了，都是打着玩的V圈里火不起来的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10259#       发表于 2020-6-7 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704295&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 00:01</a>
+
+如果不贴本社v的话我就真的搞不懂田角为啥搞这个企划了，充满了草台和拉垮的气息。。
+
+总不能真就星球大战 ...</blockquote>
+第一位同接500上下，今天这位我看同接始终就没超过200，不知明后两位怎么样。
+
+不过想一想，怎么也比杏星开局强多了，而且还连做皮发手机的钱都省了是不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10260#       发表于 2020-6-7 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704353&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-7 00:06</a>
+
+这游戏TTK太短了，都是打着玩的V圈里火不起来的</blockquote>
+重点是毫无手感，打击感和SHIT一样。。。。。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 10261#       发表于 2020-6-7 00:09
+
+
+
+ 本帖最后由 aele 于 2020-6-7 00:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">wait一下，你们是真心觉得狐皇的皮好而不是yygq？
+
+mito的皮唯一的好处就是那种“纯白感”了，皮本身不会传递多少感情或者说设定，全看机师发挥
+
+也就是狐狸足够天才才开的动。
+
+
+要论绘画力，和原皮一个模子里出来的江风都被白毛航线里其他白毛摁在地上多少年了（
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10262#       发表于 2020-6-7 00:10
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-6 23:37
+感觉大叔又要发疯了。</blockquote>
+男人和apex之间还是让她选apex吧唉
+
+
+
+
+
+       
