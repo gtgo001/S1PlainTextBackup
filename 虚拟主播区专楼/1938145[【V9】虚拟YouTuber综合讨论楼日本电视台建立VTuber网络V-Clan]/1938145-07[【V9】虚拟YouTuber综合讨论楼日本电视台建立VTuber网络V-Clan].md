@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 00:11** 
+> ## **本文件最后更新于2020-06-07 02:09** 
 
 
 
@@ -16110,7 +16110,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_eclY1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_EX0J3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -20921,7 +20921,7 @@ goddog korone，用c套代替观众的手指到来了
 51合一可以掀桌，多人对战会很有节目效果。可以请爱表演爱玩吃瘪艺和发狂艺的某些管人秀起来。
 
 可惜不是每个管人都能合法直播这游戏。
-<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_opgqQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_CJWv0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -24898,4 +24898,2125 @@ mito的皮唯一的好处就是那种“纯白感”了，皮本身不会传递�
 
 
 
-       
+
+
+-----
+
+####  某穆克拉  
+##### 10263#       发表于 2020-6-7 00:11
+
+
+
+<blockquote>free 发表于 2020-6-7 00:07
+第一位同接500上下，今天这位我看同接始终就没超过200，不知明后两位怎么样。
+
+不过想一想，怎么也比杏星 ...</blockquote>
+这个数据好像是不如star的，我记得之前说star最开始的首播有800同接，虽然最低的也就200。
+
+slee目前的问题是我这种路人完全不知道发展前途是什么，甚至不知道直播内容和形式，感觉就是企划快到死线了赶紧拉几个人来播一下继续混着。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10264#       发表于 2020-6-7 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704386&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-7 00:09</a>
+
+wait一下，你们是真心觉得狐皇的皮好而不是yygq？
+
+mito的皮唯一的好处就是那种“纯白感”了，皮本身 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">咱站新皮，新皮其实能搞出很多不错的演出效果，细处表情也比较多样
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10265#       发表于 2020-6-7 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703839&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 23:26</a>
+
+不过木口里能达到伴奏水平而不是整活的，是不是只有空妈了？</blockquote>
+[https://www.youtube.com/watch?v=olqY8A-lSFw](https://www.youtube.com/watch?v=olqY8A-lSFw)
+
+mrr吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10266#       发表于 2020-6-7 00:14
+
+
+
+
+valorant这游戏看起来的僵硬感梦回cs1.5时代<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 10267#       发表于 2020-6-7 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704386&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-7 00:09</a>
+
+wait一下，你们是真心觉得狐皇的皮好而不是yygq？
+
+mito的皮唯一的好处就是那种“纯白感”了，皮本身 ...</blockquote>
+人和人感觉不一样，少主这皮虽然我已经忘了第一眼什么感觉，但是肯定是觉得好看……
+
+新皮和原皮都不差
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10268#       发表于 2020-6-7 00:15
+
+
+
+<blockquote>winda 发表于 2020-6-7 00:13
+https://www.youtube.com/watch?v=olqY8A-lSFw
+
+mrr吧</blockquote>
+mrr最近在弹琴我知道，不过好像她考级没有很高吧，看隔壁repo好像还在买乐谱学习考级的阶段。不过夏哥如果只是想来个温暖大家庭的话，水平就不那么重要了。狐狸吹竖笛都可以233。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10269#       发表于 2020-6-7 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看着就有种还在打白房的既视感
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 10270#       发表于 2020-6-7 00:15
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-7 00:15
+mrr最近在弹琴我知道，不过好像她考级没有很高吧，看隔壁repo好像还在买乐谱学习考级的阶段。不过夏哥如 ...</blockquote>
+就怕是男人啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10271#       发表于 2020-6-7 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704448&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 00:15</a>
+
+mrr最近在弹琴我知道，不过好像她考级没有很高吧，看隔壁repo好像还在买乐谱学习考级的阶段。不过夏哥如 ...</blockquote>
+貌似是电子琴6级，入门过关水平，不过直播做效果也没多大要求<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+boss正经音大毕业生，搞的伴奏麻将回效果反倒一般
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10272#       发表于 2020-6-7 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">虽然跟伴奏没啥关系 但是应该也沾点边
+
+
+
+
+
+
+QQ截图20200607001712.jpg
+(7.31 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 00:18 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/001804gie6ifppfofl3z3l.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10273#       发表于 2020-6-7 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实拳头这个玩起来意外的还行，就是太容易无聊了，模式少枪也少，人物技能基本就是把烟雷什么的抽出来，大招还有点意思但也就那样，完成度不够
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10274#       发表于 2020-6-7 00:21
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-7 00:38 编辑 
+
+一色老师（[https://twitter.com/issikiiiiiii](https://twitter.com/issikiiiiiii)）的郡道，好喜欢这套衣服，很适合打麻。
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/002048ikzx8jqp772jxjgi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ1zld5U0AQj2Xh.jpg</strong> (201.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 00:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10275#       发表于 2020-6-7 00:23
+
+
+
+
+如果人体堂能把你杏逼得多搞点综艺内容也好。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10276#       发表于 2020-6-7 00:23
+
+
+
+
+刚才的完成图
+
+白少主这只画了q版角色搞出一副众星捧月的感觉来仿佛主题是白少主一样了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，画工好坏的问题还是交给专业人士去分析，单说设计的话白少主这个原皮还是很有特点的吧，海苔男那原皮就一随手画的肯定比不了的
+
+
+
+
+
+
+20200607_001824.jpg
+(212.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 00:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/002056i30qp179ytby1y9z.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 10277#       发表于 2020-6-7 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704488&amp;ptid=1938145" target="_blank">屑屑代沟尼亚 发表于 2020-6-7 00:18</a>
+
+虽然跟伴奏没啥关系 但是应该也沾点边</blockquote>
+就是486前两天杂谈里公开日常日程表里的舞蹈课和声乐课吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10278#       发表于 2020-6-7 00:24
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-7 00:12
+咱站新皮，新皮其实能搞出很多不错的演出效果，细处表情也比较多样 ...</blockquote>
+只要凪白画眼睛正常点，那就真的没问题
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10279#       发表于 2020-6-7 00:26
+
+
+
+
+这是看各位姨就那样了，准备要培养几个小年轻往偶像方向走一走吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10280#       发表于 2020-6-7 00:30
+
+
+
+
+巧可副频道突击ark，真～打游戏顺便直播。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10281#       发表于 2020-6-7 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么狗屁偶像，一点儿前途都没有，姨们早就想清楚了，也就小年轻会相信什么偶像梦了。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10282#       发表于 2020-6-7 00:32
+
+
+
+
+贼海上steam怎么虹杏不蝗一下啊，我都玩了一天了
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 10283#       发表于 2020-6-7 00:34
+
+
+
+
+平板无高光死鱼眼，铲子脸由于发型变薄了被强化，鼻子位置奇怪。
+
+凪白的几个缺点在狐皇新皮是被放大了的，整体看着确实难受的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10284#       发表于 2020-6-7 00:35
+
+
+
+
+当不成偶像，运动一下也好，大家也不想自己的推变成狐狸那样吧233
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10285#       发表于 2020-6-7 00:37
+
+
+
+
+aque这会还在飞行棋呢，管人该蝗起来了。哦你杏不能蝗这个啊？那没事了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10286#       发表于 2020-6-7 00:37
+
+
+
+
+还真是，小年轻都去歌舞live了。姨们大了，跳不动了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10287#       发表于 2020-6-7 00:38
+
+
+
+
+狐皇皮好显然是对比同期来说，就一期生5个皮摆在一起你们说哪个皮最好
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10288#       发表于 2020-6-7 00:41
+
+
+
+
+梅露最好。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10289#       发表于 2020-6-7 00:42
+
+
+
+
+一期生那肯定是心心
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 10290#       发表于 2020-6-7 00:42
+
+
+
+<blockquote>暴走的包子 发表于 2020-6-7 00:20
+其实拳头这个玩起来意外的还行，就是太容易无聊了，模式少枪也少，人物技能基本就是把烟雷什么的抽 ...</blockquote>
+这么说cs岂不是世界上最无聊的游戏
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10291#       发表于 2020-6-7 00:42
+
+
+
+
+怂恿小年轻去花时间准备live，阿姨们趁机占领直播高地，这就是姨的智慧吗
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10292#       发表于 2020-6-7 00:44
+
+
+
+
+话说，白少主自己说初版人设肚脐上面的地方是没有扣起来全敞开的，但是yagoo说本人会害羞所以改掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">少主yagoo关系者说
+
+而且海苔男打yagoo主意的时候白少主拼命阻止，面对苔宝的“yagooを渡したくないの？”的疑问支支吾吾了半天说了句不想看到yagoo不伦
+
+我怀疑……<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 10293#       发表于 2020-6-7 00:45
+
+
+
+
+live2D制作相关（多图）
+[https://twitter.com/taniya001/status/1269289840136171520](https://twitter.com/taniya001/status/1269289840136171520) <blockquote>Live2Dアバターにおける、便利なパーツ分けTips画像を作りました！
+
+昨今VTuberの絵仕事も多いと思うけど、専業絵描きには全然分からない部分だと思うので。
+
+
+これを全部守れという意図ではなく、あくまで『最終的にこうやって処理されるよ』という参考画像です！
+
+知識共有、されてほしい……！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/07/004433skjg265j5tyj1kut.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ1p6IhUcAAyPpV.jpg</strong> (1.11 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 00:44 上传
+
+
+
+
+ <blockquote>画像一枚では読みにくい人のために、拡大画像も用意しました！
+
+
+あとはぼくに頼む場合の個人的なこだわり補足事項（追加画像）！
+
+要約すると『ラフがあれ形状再現できるよ』って書いてます！　よかったら参考にしてね！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/07/004435khfs19fs4p1skz14.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ1sb0AUcAQ4mbq.jpg</strong> (343.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 00:44 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/004436us9ddhhlmyz9lmkj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ1scQgUwAA_YLB.jpg</strong> (391.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 00:44 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/004437s73f7ckd4pp73cni.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ1scjqVcAAjGAU.jpg</strong> (206.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 00:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10294#       发表于 2020-6-7 00:45
+
+
+
+
+yagoo夫人说不是V3的时候就开是车了么
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10295#       发表于 2020-6-7 00:47
+
+
+
+<blockquote>oshinoshinobu 发表于 2020-6-7 00:32
+贼海上steam怎么虹杏不蝗一下啊，我都玩了一天了</blockquote>
+谢告知 这就去买
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10296#       发表于 2020-6-7 00:48
+
+
+
+
+反正平常也是死宅只会氪金玩游戏，不如在自己公司玩票的项目上试试水没想到效果出奇的好，也不是不能想象这种剧情
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10297#       发表于 2020-6-7 00:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704668&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 00:38</a>
+
+狐皇皮好显然是对比同期来说，就一期生5个皮摆在一起你们说哪个皮最好</blockquote>
+那不得是梅露吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过白少主iwara的作品还蛮多的。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10298#       发表于 2020-6-7 00:50
+
+
+
+
+听润姨虚无杂谈好像错过了船火的乐趣内容，看来得补录像了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10299#       发表于 2020-6-7 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704668&amp;ptid=1938145" target="_blank"> free 发表于 2020-6-7 00:38</a> 狐皇皮好显然是对比同期来说，就一期生5个皮摆在一起你们说哪个皮最好 </blockquote>
+好看的话梅露好看，色的话心心的吊眼最色，但是狐皇的皮无疑是最具有meme潜力的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 10300#       发表于 2020-6-7 00:52
+
+
+
+
+但听说yagoo是有家室的人。狐狸不仅事业要上位，爱情也要上位，不愧是姨文化的佼佼者。
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10301#       发表于 2020-6-7 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704709&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-7 00:42</a>
+
+这么说cs岂不是世界上最无聊的游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是跟csgo比啊，虽然csgo经济好的时候也是只用那几把，但valorant的问题是只有那几把，csgo好歹经济不好的时候还有不少枪能用，valorant现在就1.5个模式，地图还相对小，玩多了就无聊了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10302#       发表于 2020-6-7 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704488&amp;ptid=1938145" target="_blank"> 屑屑代沟尼亚 发表于 2020-6-7 00:18</a> 虽然跟伴奏没啥关系 但是应该也沾点边 附件： </blockquote>
+小学生阿希486也就算了
+
+夸皇练个啥，打游戏赚钱不香么
+而且夸皇那个气息<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">唱首雪之华跟快断了气似的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10303#       发表于 2020-6-7 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704824&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 00:54</a>
+
+小学生阿希486也就算了
+
+
+夸皇练个啥，打游戏赚钱不香么</blockquote>
+别劈了，别劈了，孩子都暂时休息了，等回来再劈吧。而且小学生486唱歌也没比夸好吧。就...就很一般。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10304#       发表于 2020-6-7 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704804&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-7 00:52</a>
+
+但听说yagoo是有家室的人。狐狸不仅事业要上位，爱情也要上位，不愧是姨文化的佼佼者。 ...</blockquote>
+说不定狐狸就是yagoo的家室<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10305#       发表于 2020-6-7 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704842&amp;ptid=1938145" target="_blank">fromsaitama 发表于 2020-6-7 00:55</a>
+
+说不定狐狸就是yagoo的家室</blockquote>
+yagoo女儿都十多岁了，别瞎安排了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10306#       发表于 2020-6-7 00:57
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/005613tci3zfc66o3ioohl.png" referrerpolicy="no-referrer">
+
+
+<strong>1591462550(1).png</strong> (220.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 00:56 上传
+
+
+
+
+
+wtm三连击厉害啊，看阿龙的组合拳能拉出多少了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10307#       发表于 2020-6-7 00:57
+
+
+
+
+yagoo年轻时对jk狐犯下了错，生米煮成熟饭，十几年社畜生涯退下来后还要实现她母仪天下的梦……
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10308#       发表于 2020-6-7 00:57
+
+
+
+
+Yagoo夫人的手腕咋样，看到小三不会撕逼吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10309#       发表于 2020-6-7 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704838&amp;ptid=1938145" target="_blank"> erer 发表于 2020-6-7 00:55</a> 引用:ひびき 发表于 2020-6-7 00:54 小学生阿希486也就算了  夸皇练个啥，打游戏赚钱不香么 别劈了，别劈了，孩子都暂时休息了，等回来再劈吧。 </blockquote>
+这一定是狐皇的阳谋，用偶像训练为名把夸皇脱离赚钱的舒适区拖进跳唱的深渊，卑鄙程度堪比劝cs本科生读研环材化生
+
+二二姐务必劝夸皇不要被蒙骗了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10310#       发表于 2020-6-7 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704852&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-7 00:56</a>
+
+yagoo女儿都十多岁了，别瞎安排了。</blockquote>
+紫宝刚好十几岁，家族企业实锤了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10311#       发表于 2020-6-7 01:01
+
+
+
+
+嚯，wtm这波厉害的，好像比小天使生日还高不少。不过小天使那个月纪念回连发榨的比较彻底。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10312#       发表于 2020-6-7 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704907&amp;ptid=1938145" target="_blank">fromsaitama 发表于 2020-6-7 01:00</a>
+
+紫宝刚好十几岁，家族企业实锤了</blockquote>
+あのん老哥说太紫的母亲是未成年就生子了，你是要害yagoo啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 10313#       发表于 2020-6-7 01:02
+
+
+
+
+shiori的妈妈这声音是不是欧巴巴了？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 10314#       发表于 2020-6-7 01:02
+
+
+
+
+对上了对上了
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10315#       发表于 2020-6-7 01:04
+
+
+
+
+对 上 了
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10316#       发表于 2020-6-7 01:04
+
+
+
+
+重复了草
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10317#       发表于 2020-6-7 01:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">狐皇是yagoo夫人，紫宝是yagoo女儿，那怪不得是太紫了
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10318#       发表于 2020-6-7 01:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非法企业头子肯定也是法外狂徒 对上了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10319#       发表于 2020-6-7 01:07
+
+
+
+
+晕了 继《gay浓度》《狐学》你楼又多了一个新的二创《家族企业》
+
+syl 想吃mrr亲手做的章鱼烧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10320#       发表于 2020-6-7 01:08
+
+
+
+
+那暴露出来yagoo不是完蛋了，企划也得遭殃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10321#       发表于 2020-6-7 01:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704723&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-7 00:44</a>
+
+话说，白少主自己说初版人设肚脐上面的地方是没有扣起来全敞开的，但是yagoo说本人会害羞所以改掉了 ...</blockquote>
+草，我要那段切片<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10322#       发表于 2020-6-7 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704936&amp;ptid=1938145" target="_blank"> 暗心舞踏 发表于 2020-6-7 01:04</a> 狐皇是yagoo夫人，紫宝是yagoo女儿，那怪不得是太紫了 </blockquote>
+二创也要讲基本法啊，一个广岛县的一个爱知县的怎么都和yagoo工作轨迹对不上啊来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10323#       发表于 2020-6-7 01:11
+
+
+
+
+为了拯救废宅老婆和即将步老婆后尘不愿意念书又不出门的女儿，yagoo毅然决然卖掉原来的公司开始二次元创业
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10324#       发表于 2020-6-7 01:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么，holo又可以倒闭了？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10325#       发表于 2020-6-7 01:12
+
+
+
+
+那大亏不断吃瘪也说得通了，和老板夫人闹矛盾，和老板女儿抢风头，活该没新衣服嗷。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10326#       发表于 2020-6-7 01:13
+
+
+
+[https://bbs.nga.cn/read.php?tid=22056063&amp;page=4](https://bbs.nga.cn/read.php?tid=22056063&amp;page=4)
+
+crew和大家庭居然还没打完，这贴也没锁<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">都是以前欠的债啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10327#       发表于 2020-6-7 01:14
+
+
+
+<blockquote>IDIDIDID 发表于 2020-6-7 01:12
+那大亏不断吃瘪也说得通了，和老板夫人闹矛盾，和老板女儿抢风头，活该没新衣服嗷。 ...</blockquote>
+难道不是岳父为难女婿吗？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10328#       发表于 2020-6-7 01:14
+
+
+
+
+黑屁也要遵照基本法，yagoo是76年还是74年来着，都奔五了，狐皇顶天了也就三十二三岁吧.......
+
+而且他杏一开始就是个卖动捕app的，关偶像啥关系，偶像营业方便恰烂钱罢了。
+
+你们还不如说yagoo在招到空妈后觉醒了脸圆的性癖，从此每一期生里一定要有几个脸特别圆的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10329#       发表于 2020-6-7 01:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">气死了，刚在nga对线，还没打完，帖子就锁了。 不愉快です。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10330#       发表于 2020-6-7 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704989&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 01:14</a>
+
+难道不是岳父为难女婿吗？</blockquote>
+也行吧，那段时间女婿和外面白毛野女人搞不清楚，是该治一治。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 10331#       发表于 2020-6-7 01:15
+
+
+
+
+在s1被无限顺劈，隔壁又被运营粉大家庭重拳出击，夸夸到底做错了什么
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10332#       发表于 2020-6-7 01:15
+
+
+
+
+虽然我就是黑屁，但是奔五又没到五十，四十后半和三十前半结婚还是挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10333#       发表于 2020-6-7 01:16
+
+
+
+
+哎，都是些可怜孩子，被脑瘫crew伤过吧，可能骗钱又骗感情。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10334#       发表于 2020-6-7 01:18
+
+
+
+
+跑去nga对线好蠢
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 10335#       发表于 2020-6-7 01:19
+
+
+
+
+一个星姐+夏哥推连谁说了什么话都不管，见到一群crew在和人对线，在那撒泼说我不管你们说了什么你们crew全是nt然后被禁言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这波感觉是大家庭粉和crew的一次小规 模 冲 突<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 10336#       发表于 2020-6-7 01:19
+
+
+
+
+这51合1里有一半是智力游戏，三枝不破脑筋蛮快的啊
+
+我宣布虹男秒杀秦韦天好吗，虽然本来也不用我来宣布
+
+
+希望没脑子的部分女管人自觉点，挑那些趣味游戏来联动图一乐，不要折磨观众的血压
+
+当然，前提是能播这个游戏的<strong>清白合法</strong>的管人
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 10337#       发表于 2020-6-7 01:19
+
+
+
+
+看那人被塞了口球，crew终于站起来了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10338#       发表于 2020-6-7 01:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我就在这里面对线。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10339#       发表于 2020-6-7 01:21
+
+
+
+
+大天使不管怎么说，杏苦难行军中华大回环的军功章有一份，我都不知道这个要怎么劈。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10340#       发表于 2020-6-7 01:21
+
+
+
+
+新参大家庭粉不行啊，啥都想翻案，翻案就算了还想倒打一耙顺劈阿夸
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10341#       发表于 2020-6-7 01:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga那里的holo运营孝子太多了，这次刚好有个跳出来，超想干爆他，可惜锁定了。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 10342#       发表于 2020-6-7 01:24
+
+
+
+
+啊，虹浓度出现的不是时候
+
+温达，就是你守护了cover？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10343#       发表于 2020-6-7 01:25
+
+
+
+
+怎么没有新参crew出来反攻倒算的 我去隔壁开个头打响crew站起来的第一枪好了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10344#       发表于 2020-6-7 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704954&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-7 01:08</a>
+
+草，我要那段切片</blockquote>
+切片就没有，只能看看录像了
+[https://youtu.be/PWrG1oF9c4Q](https://youtu.be/PWrG1oF9c4Q)
+
+20:30跟1:48:47
+
+
+不过这算是实锤白少主跟梅露一样是内定的吧。梅露如果是经纪人内推的，白少主是yagoo关系者也不奇怪嘛。倒是一期生另外三个也是内定的吗？感觉不像啊
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 10345#       发表于 2020-6-7 01:26
+
+
+
+
+哪有什么运营粉，就是找个角度黑夸宝
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 10346#       发表于 2020-6-7 01:26
+
+
+
+
+翻了翻erer姐在nga的发言历史，以前是多么纯良啊，虽然现在也不怎么巨魔，但总觉得少了点纯真<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 10347#       发表于 2020-6-7 01:26
+
+
+
+ 本帖最后由 nevp 于 2020-6-7 01:28 编辑 
+
+毕竟只有夸在阿b倍率高，吸干了holo的中国盘
+
+推宫皇兔皇这些不靠中国盘的哪有这么多事
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10348#       发表于 2020-6-7 01:27
+
+
+
+
+借地问下古神快乐砖有出处视频吗
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10349#       发表于 2020-6-7 01:27
+
+
+
+
+草泥潭crew不是在刚建版就反攻了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看当时把千宝吓的
+另外净土坛稍微闹就会被锁，只是快慢问题，不用担心
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10350#       发表于 2020-6-7 01:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">夸周那事本身就是一笔糊涂账，更别说那个网站icon证明没去VTBland活动后影响跨度一下变长太多
+
+说到底都気持ち配信了就别打谜语了，sio全挑明狠了点但分锅清楚了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10351#       发表于 2020-6-7 01:28
+
+
+
+ 本帖最后由 asdhai 于 2020-6-7 01:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705088&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-7 01:26</a>
+
+切片就没有，只能看看录像了
+[https://youtu.be/PWrG1oF9c4Q](https://youtu.be/PWrG1oF9c4Q)
+
+20:30跟1:48:47</blockquote>
+谢啦
+
+一期那会儿估计还真是联络本里招的人。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10352#       发表于 2020-6-7 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705100&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-7 01:27</a>
+夸周那事本身就是一笔糊涂账，更别说那个网站icon证明没去VTBland活动后影响跨度一下变长太多
+
+说到 ...</blockquote>
+你觉得哪边好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10353#       发表于 2020-6-7 01:29
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-7 01:35 编辑 
+
+话说阿葵这次的mv中文字幕也是字幕组发给她然后她自己加进mv里吗？怎么到现在B站都还没传视频<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10354#       发表于 2020-6-7 01:30
+
+
+
+
+是winda老哥热爱的VTBland话题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10355#       发表于 2020-6-7 01:30
+
+
+
+
+erer姐你要被特定了
+
+
+syl, wtm突然爆收这么多？之前一个月也就300Wsc吧？ 一下收了430W，是我我也会感动哭的呀。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|上月pb统计400w。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10356#       发表于 2020-6-7 01:31
+
+
+
+
+为啥没看到平时关注的V们去玩A way out啊。这个不管是节目效果还是假装贴贴都是一流的啊
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10357#       发表于 2020-6-7 01:31
+
+
+
+
+都说了我是普通的管人观众，有什么好特定的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10358#       发表于 2020-6-7 01:33
+
+
+
+
+睡前来点小天使浓度：
+
+新加了两个会限表情，是狐狸给画的那个形象的变种
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/013124ylssht4tla9tzjal.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200607013108.png</strong> (3.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 01:31 上传
+
+
+
+
+
+
+今天下午直播好像提到了打算和心心联机mc地下城，我还是只能谨慎不看好联机效果。
+
+<strong>最后，明天JST 19:00</strong> <blockquote>獣ゆく細道／天音かなた(Cover)</blockquote>[https://www.youtube.com/watch?v=-BI2YFYWnjc](https://www.youtube.com/watch?v=-BI2YFYWnjc)
+
+敬请期待，这次的音源也是小天使自己做的哦~
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 10359#       发表于 2020-6-7 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704819&amp;ptid=1938145" target="_blank">暴走的包子 发表于 2020-6-7 00:53</a>
+
+我是跟csgo比啊，虽然csgo经济好的时候也是只用那几把，但valorant的问题是只有那几把，csgo好歹经 ...</blockquote>
+根据hltv的数据，2020线下比赛的枪械出场率里，4把武器占69%，7把武器占82%。加上553的大改，4把又会变3把，7把又会变6把。val虽然是简化了一点，但自从短枪大改后csgo的"多样性"也好不到哪去，况且val还有酷炫的技能和杀马特模型。下次可以吹csgo硬核，但它又是个脚爬梯子的游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10360#       发表于 2020-6-7 01:39
+
+
+
+
+夜深了，我来骂骂一些郡神粉吧。
+
+都这么久没联动，两位多多少少也在冷处理，怎么还这么能联想呢？郡道从一开始就在做的事，硬要说是受到神田影响，跟神田一起成长。真的喜欢郡道吗，还是把郡道当成乙女游戏女主角，用她做媒介舔你们神田哥啊？
+
+本人试着用她们说郡神好磕的逻辑来夸郡神：神田说话不过脑子不懂怎么做直播心气高傲玻璃心靠人带低同接低收入低订阅，刚好郡美玲有能有趣高收入，郡神好配哦！！
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10361#       发表于 2020-6-7 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705106&amp;ptid=1938145" target="_blank">framita 发表于 2020-6-7 01:29</a>
+
+你觉得哪边好点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大亏垃了啊，夸周那事最后结果就是自由心证，撇不干净的
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 10362#       发表于 2020-6-7 01:40
+
+
+
+
+这种游戏管人那种0交流不报点的打法真的能坚持下去吗？APEX这种对内交流方式做的不错的游戏成为管人金游是有它的道理的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10363#       发表于 2020-6-7 01:42
+
+
+
+
+winda老哥老祥林嫂了，只要有机会能把杏和点作类比就不会放过，然后自顾自地感慨一番。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10364#       发表于 2020-6-7 01:50
+
+
+
+
+a way out要一边配合一边RP的呀兄弟！除了个别虹男之外，特别是杏仁哪里有配合的嘛！
+
+玩不好到时候浮游炮乱飞，更别说结尾杀好兄弟了，🔥了怎么负责嘛
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 10365#       发表于 2020-6-7 01:50
+
+
+
+
+快了快了，在排队solo live了（👿低语）
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10366#       发表于 2020-6-7 01:53
+
+
+
+
+这就不能不顺劈一波苔宝了，军神都要倒了苔宝还在想cp营业，大有yagoo开设木口星，49年入国军之势<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+她自己不要说独角兽，真粉都没几个倒是无所吊谓，箱里其他人的独角兽不给她冲烂了才怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+嘛，反正海苔男也只会气的要死，大骂这届观众不行，律师函完事
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 10367#       发表于 2020-6-7 02:02
+
+
+
+
+军神也倒了，不知道隔壁维阿gyg还能撑多久<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10368#       发表于 2020-6-7 02:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705271&amp;ptid=1938145" target="_blank"> proxima 发表于 2020-6-7 01:53</a> 这就不能不顺劈一波苔宝了，军神都要倒了苔宝还在想cp营业，大有yagoo开设木口星，49年入国军之势 她自己不要说独角兽，真粉都没几个倒是无所吊谓，箱里其他人的独角兽不给她冲烂了才怪 嘛，反正海苔男也只会气的要死，大骂这届观众不行，律师函完事 </blockquote>
+你苔真的有毒，蒙骗肥希去教育观众那话我看着都糟心来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10369#       发表于 2020-6-7 02:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705318&amp;ptid=1938145" target="_blank">Mika-S 发表于 2020-6-7 02:02</a>
+军神也倒了，不知道隔壁维阿gyg还能撑多久</blockquote>
+快了快了，已经有人在今晚果子哥的动态里劈版主联动划水了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10370#       发表于 2020-6-7 02:05
+
+
+
+
+紫宝怎么也在韩国话题
+
+该死的2000，你把多少管人，都毁了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10371#       发表于 2020-6-7 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705136&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 01:33</a>
+
+睡前来点小天使浓度：
+
+新加了两个会限表情，是狐狸给画的那个形象的变种
+
+今天下午直播好像提到了打算和心心 ...</blockquote>
+还是找了个稍微专业点的做音源修改，不然估计不堪入耳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10372#       发表于 2020-6-7 02:07
+
+
+
+
+V综一个望夫石WINDA哥，一个一边猛恰🍋一边装硬汉的pro哥，说实话这种多来点比什么2000mk2小波与好多了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10373#       发表于 2020-6-7 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705343&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-7 02:06</a>
+
+还是找了个稍微专业点的做音源修改，不然估计不堪入耳</blockquote>
+看了下是上次马与鹿的mix吧，能完善下总是好的，虽然我这耳朵听不太出差别就是了。
+
+
+
+
+
+    

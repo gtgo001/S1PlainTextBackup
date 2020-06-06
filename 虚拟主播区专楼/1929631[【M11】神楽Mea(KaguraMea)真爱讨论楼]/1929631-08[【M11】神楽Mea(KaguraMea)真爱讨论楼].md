@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 00:04** 
+> ## **本文件最后更新于2020-06-07 02:02** 
 
 
 
@@ -10408,4 +10408,524 @@ gachi了
 
 
 
-                              
+
+
+-----
+
+####  路人子  
+##### 11101#       发表于 2020-6-7 00:17
+
+
+
+
+新推，要来力
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11102#       发表于 2020-6-7 00:24
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-7 00:31 编辑 
+
+哦豁，来吧来吧反正周末
+
+草，真来啊，直播间都开了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11103#       发表于 2020-6-7 00:26
+
+
+
+
+草，我还在打方舟指令，我是不是被套路了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11104#       发表于 2020-6-7 00:34
+
+
+
+
+杂谈
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11105#       发表于 2020-6-7 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">草，bl真有人看啊，记得你楼也有一个看的，是不是你楼的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11106#       发表于 2020-6-7 00:50
+
+
+
+
+确实在推特上看到有人发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11107#       发表于 2020-6-7 00:52
+
+
+
+
+深夜杂谈就是谈xp才好啊，咩姐真懂<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 11108#       发表于 2020-6-7 00:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又是深夜聊bl
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 11109#       发表于 2020-6-7 00:55
+
+
+
+
+挂背景，这α，β，Ω的，整的我以为你在聊物理<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11110#       发表于 2020-6-7 00:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">苔苔和组长你们为什么要躲，放她大半夜搁这聊abo
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11111#       发表于 2020-6-7 00:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">懂什么，我不懂，这bl懂了感觉回不来了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11112#       发表于 2020-6-7 00:59
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-7 01:02 编辑 
+
+好像是o喜欢b但是不能和b在一起，结果边哭边h<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+这算bl里的ntr吗？
+
+
+草，原来看bl漫画的就是那个写neet经历博客的人
+
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 11113#       发表于 2020-6-7 00:59
+
+
+
+
+我听着怎么这么像ntr<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11114#       发表于 2020-6-7 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">甚至还用了药，你喜欢的人可能正在被草说不定还用了药原来说的是BL的剧情吗
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11115#       发表于 2020-6-7 01:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">怎么还想改别人性取向的
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 11116#       发表于 2020-6-7 01:04
+
+
+
+ 本帖最后由 Kayz996 于 2020-6-7 01:07 编辑 
+
+幕后人士=Α
+管人粉丝=Β
+管人=Ω？
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+和观众解释BL是怎么做*的还是太草了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11117#       发表于 2020-6-7 01:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 11118#       发表于 2020-6-7 01:14
+
+
+
+ 本帖最后由 Kayz996 于 2020-6-7 01:16 编辑 
+
+草，对吸血鬼类型的无条件喜欢
+我出发了.jpg
+
+【不过现在也喜欢冲田】
+【如果可以的话想3p（指薄樱鬼的冲田和斋藤？）】
+【等一下 有点kimo】
+【呼 冷静一下吧】
+【啊 多谢】
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  a982902854  
+##### 11119#       发表于 2020-6-7 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">“できれば、３ｐがしたい”
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11120#       发表于 2020-6-7 01:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有点怪，刷新了我对你麻的认知
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11121#       发表于 2020-6-7 01:20
+
+
+
+
+问题来了，为啥她不喜欢刀男人
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11122#       发表于 2020-6-7 01:21
+
+
+
+
+半夜聊abo聊到faq的咩你也会喜欢吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+不过讲真abo世界观还是有意思的，虽然我也get不到bl的点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11123#       发表于 2020-6-7 01:32
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/53fae8e11116fd8b3a4f5813c59f67b6/IMG_E08A49792C1EFD2FF850A1A333542AF5.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11124#       发表于 2020-6-7 01:33
+
+
+
+
+草，是那个kimo爱选手权的剪辑
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11125#       发表于 2020-6-7 01:37
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-7 01:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+硬了听得拳头硬了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11126#       发表于 2020-6-7 01:38
+
+
+
+
+麻了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11127#       发表于 2020-6-7 01:41
+
+
+
+
+黄兔子：刀来！
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11128#       发表于 2020-6-7 01:43
+
+
+
+
+一学海苔男，姨味就出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11129#       发表于 2020-6-7 01:44
+
+
+
+
+困得要死被苔吓醒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Launce  
+##### 11130#       发表于 2020-6-7 01:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">突然冒出的英语众。纯度太高了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11131#       发表于 2020-6-7 01:57
+
+
+
+
+b转播怎么还没关…
+
+
+
+
+
+                            
