@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 15:35** 
+> ## **本文件最后更新于2020-06-06 18:02** 
 
 
 
@@ -6769,4 +6769,1032 @@ v8都有大家庭，裁狗怎么不能有粉了
 
 
 
-                                    
+
+
+-----
+
+####  时雨rain  
+##### 10899#       发表于 2020-6-6 15:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">推上那个学你麻声音发给兔鞠的mea推被兔鞠关注了
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10900#       发表于 2020-6-6 15:47
+
+
+
+
+犯法是要害怕的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总不能天天想着怎么犯罪罢。
+
+
+抛开🦄的心情不提，同居并不是什么有错的事情嘛，那管人还有已婚的呢。苔宝有男朋友也没人去炎上她啊。当然麻年纪还小，你说和男人同居可能不太合适。不过我觉得真有男朋友也不是什么问题吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10901#       发表于 2020-6-6 15:50
+
+
+
+
+这要看你怎么定义同居了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 10902#       发表于 2020-6-6 15:51
+
+
+
+
+确实没什么错，年龄也够大了，我还指望有人跟她同居管管她的生活习惯，男女都行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只是事实性还是描述清楚点好
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10903#       发表于 2020-6-6 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47698610&amp;ptid=1929631" target="_blank">proxima 发表于 2020-6-6 15:47</a>
+犯法是要害怕的啊总不能天天想着怎么犯罪罢。
+
+
+抛开🦄的心情不提，同居并不是什么有错的事情嘛，那 ...</blockquote>
+见过好几回说苔宝有男朋友了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是怎么被挖出来的啊
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10904#       发表于 2020-6-6 15:58
+
+
+
+
+就事论事嘛。
+
+假设774不是男朋友，那就算是找朋友合租，很常见没什么奇怪的。
+
+假设774是男朋友，可能有人会觉得麻还未成年离家跟男朋友同居不好云云，那也可以理解。不过我的观点是只要不拿到台面上来影响工作，那就没所谓。虽然774建号天天跟麻打情骂俏甚至乐一给画了皮打算出道，但是实际上也没有人当他是男朋友，包括跟夸线下也没有受到任何影响，那按我的判断来看是没什么问题的。
+
+🦄接受不了那也不是不能理解，这只能算个体差异了。我要是🦄那我也不会是苔宝粉了，我对这种其实是无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10905#       发表于 2020-6-6 16:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上次还见到pro说苔宝在tc提到明年结婚呢，不知道对方是谁啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10906#       发表于 2020-6-6 16:11
+
+
+
+
+当年那事她自己也没说清楚就算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+犬山哥结婚我就打钱给她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 10907#       发表于 2020-6-6 16:13
+
+
+
+
+不知道为什么我也特别好奇苔苔的男友，要是知道了请告诉我，谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10908#       发表于 2020-6-6 16:14
+
+
+
+
+海苔男是说了明年公布结婚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她又不是傻子，老公还能是天上掉下来的吗。现在不明说难道不是因为没有必要。对方多半也不会是什么一般会社员，可能也不想公开太多吧
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10909#       发表于 2020-6-6 16:22
+
+
+
+
+说起来当时跟mea、774一起被封号的几位有没有考据过。一开始被封以为是大量国人关注，后来想想看那也轮不到mea被封。但既然774和mea一起被封，又跟国人关注无关的话，那也许就是因为IP的关系了。有没有可能性当时被封的人里其实也有一起同居的人，甚至被封的号里其实有774的大号，单独同居父母肯定不会放心，但一伙人一起同居，其中还有别的适龄的女的，男方又是熟人的话也就能放心了。而且一直让774做mix，做mix无非两种人：专业mix或者是自己因为喜欢唱歌所以有做mix的经验，有没有可能774是个nico男唱见，被封的人里有什么nico的唱见么。516肯定有地方撒谎了，她的各种表现来看，她把自己隐私看得非常重
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10910#       发表于 2020-6-6 16:26
+
+
+
+
+草,774的屋里到底能住多少人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10911#       发表于 2020-6-6 16:27
+
+
+
+
+也许楼友也住在里面吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10912#       发表于 2020-6-6 16:27
+
+
+
+
+又车回774了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些东西在mea自肃那一周车了不知道多少遍了，我来直接说下结论吧
+
+其实我就是774，mea是在和我同居<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10913#       发表于 2020-6-6 16:27
+
+
+
+
+你楼果然有新粉，你咩姐516当天大伙都在找被封的推特有哪些，现在去找已经不是一手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10914#       发表于 2020-6-6 16:28
+
+
+
+
+明明每天在楼里都看到几个承认自己是774的。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10915#       发表于 2020-6-6 16:29
+
+
+
+
+516那天我在学校自闭刷题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10916#       发表于 2020-6-6 16:31
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-6 16:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">516我可取关你麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">774和你麻应该关系挺好的，朋友以上没问题吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10917#       发表于 2020-6-6 16:33
+
+
+
+
+这什么鬼
+<img src="https://p.sda1.dev/0/875938b4f06b542b280c4db0a47b304e/IMG_8F399457A4C0C8BAD276F79336481BAD.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10918#       发表于 2020-6-6 16:33
+
+
+
+
+是的，那天推特被封的都是住在那个屋子里的，我可以作证因为我的推特也被封了而且我当时就住在里面天天24小时多人运动<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说，这话题车轱辘起来不仅没劲而且弱智
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10919#       发表于 2020-6-6 16:34
+
+
+
+
+都是骗银滴，其实我当时假装退坑就是怕自己被挖出来，过了几天就悄悄回来了，懂得都懂。<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10920#       发表于 2020-6-6 16:36
+
+
+
+
+你们几个774出去打一架！谁赢了我信谁
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10921#       发表于 2020-6-6 16:37
+
+
+
+
+这么多774,哪个负责做饭哪个负责洗衣哪个负责给咩宝买东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10922#       发表于 2020-6-6 16:37
+
+
+
+
+就774那弱智调音在我眼里和szl一样我现实中碰见了必给一拳<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 10923#       发表于 2020-6-6 16:39
+
+
+
+
+草，那次封的1500多人全在774屋里吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 10924#       发表于 2020-6-6 16:40
+
+
+
+
+774大酒店<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10925#       发表于 2020-6-6 16:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">你楼和咩朋友以上的有这么多啊。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">发个麻照，我认你做774
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10926#       发表于 2020-6-6 16:43
+
+
+
+
+朋友以上，恋人未满。
+
+mea和774们的逆后宫恋爱喜剧在写了吗？插画找时雨妈好不好？
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10927#       发表于 2020-6-6 16:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">774的意思本来就是不特指的某人啊，人人都是774
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10928#       发表于 2020-6-6 16:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">好好好好好
+
+
+syl，补了下之前会限之后的tc麻将，有点疯婆子辉夜月内味了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1z7411A7pj?p=2](https://www.bilibili.com/video/BV1z7411A7pj?p=2)
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 10929#       发表于 2020-6-6 16:49
+
+
+
+
+其实我的意思是也许从一开始就是像樱花庄那种也有可能是打魔中魔王租的那种，这两种都是用一个宽带上网的。而且别忘了她的愿望单里放过50份牛肉，包括这次50份寿司，一开始一直想不通为什么她要这么大的量，但如果一开始就有可以分的人的话，那答案不是挺明显的么。不管是50份牛肉还是50份寿司，一个冰箱肯定是放不下的，感觉她跟很多人一起住这一点还是蛮明显的。
+
+其实她开愿望单那时不就已经想到过了么，她买的东西根本可能一个一人住的房间塞得下（这个房间参考阿律）。那必然住的地方非常大，大到根本不是一个人在住。但她已经明确说过没住家里，而且家里白天没人，那一定是跟人同居了
+
+上面只是我的猜想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10930#       发表于 2020-6-6 16:52
+
+
+
+
+50份牛肉一次性全清了吗，50个寿司你看见她买回家了吗？
+
+不过我看见了，有很多她不吃全让我清理了，臭女人。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 10931#       发表于 2020-6-6 16:53
+
+
+
+
+不要774不要774<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10932#       发表于 2020-6-6 16:53
+
+
+
+
+和50个人同居<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">，带我一个好吗
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 10933#       发表于 2020-6-6 16:53
+
+
+
+
+让我想起病栋推理你咩姐是有钱大小姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10934#       发表于 2020-6-6 16:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在疫情期间多屯点吃的也说得过去8，至于牛肉，她之前也说过会往家里寄（放在胖次上面的）菜的，所以到头来也没法证明什么
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10935#       发表于 2020-6-6 16:54
+
+
+
+
+50个人这不是樱花庄，这是大学宿舍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mea是男生宿舍舍管阿姨，懂了
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 10936#       发表于 2020-6-6 16:56
+
+
+
+
+以前说适合她的懒人工作是当包租婆，结果居然还有宿管这一手
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10937#       发表于 2020-6-6 16:56
+
+
+
+
+mea不喜欢三次元🤺的原因找到了，因为她当宿管阿姨整天看着宿舍里的男同🤺
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 10938#       发表于 2020-6-6 16:58
+
+
+
+
+草，想到新剧情了，感谢m楼，去忙了。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 10939#       发表于 2020-6-6 16:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">，这是怎么了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10940#       发表于 2020-6-6 17:01
+
+
+
+
+以前是我出发了，现在是不好意思，其实我就是774
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10941#       发表于 2020-6-6 17:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">最后你麻竟然是宿管阿姨
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">咩姨你把多少人的yhm憧憬给毁了啊
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 10942#       发表于 2020-6-6 17:03
+
+
+
+ 本帖最后由 千木唯 于 2020-6-6 17:06 编辑 
+
+你楼越来越弱智了，
+记得咩提过的天狗公寓吗，那玩意麻酱时期就搞了，核心粉享受住一个公寓的福利，每月也不多也就30w。mix774就是老王国民中一个锤子调音。
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 10943#       发表于 2020-6-6 17:03
+
+
+
+
+50人的击剑部？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 10944#       发表于 2020-6-6 17:05
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-6 17:08 编辑 
+
+你们怎么不说咩老鸨伙同774开的风俗店啊，表面人畜无害的小麻屏幕后竟是无恶不作，逼良为娼的黑社会大小姐，正好对应上怕犯罪和爸爸活朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10945#       发表于 2020-6-6 17:06
+
+
+
+
+你咩不喜欢真人🤺
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 10946#       发表于 2020-6-6 17:09
+
+
+
+
+但是774喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 10947#       发表于 2020-6-6 17:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/170648dzwunlermdoeuuuf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>9C2E7DE5-A42B-4228-9C50-806B46DCA4E6.jpeg</strong> (204.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 17:06 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/170901sjjde1jjcjrbbdkl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>91F2A626-CDA7-4483-92BF-702AF40EF09F.jpeg</strong> (338.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 17:09 上传
+
+
+
+
+
+
+无言投下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10948#       发表于 2020-6-6 17:11
+
+
+
+
+这是你麻推荐的bl漫画
+
+
+
+
+
+
+D6C82246-835C-44F2-8EBA-9E66D34908E3.jpeg
+(428.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-6 17:11 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/171100bbrf80m6snz7qmb0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 10949#       发表于 2020-6-6 17:12
+
+
+
+
+774house草
+
+
+另外调音弱智是你麻的锅（因为后来不管换不换人她调音都那样）
+
+
+甲方弱智没得救
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 10950#       发表于 2020-6-6 17:13
+
+
+
+
+不说了，该去补BL漫了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10951#       发表于 2020-6-6 17:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">W↑a↓，bl漫画真的不行啊，做不了你麻的漫友同好了。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10952#       发表于 2020-6-6 17:35
+
+
+
+
+舍管阿姨草，有内味了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10953#       发表于 2020-6-6 17:45
+
+
+
+
+卡古拉魅娅强制姨化
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 10954#       发表于 2020-6-6 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">BL漫画我真的不能，至少不应该
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10955#       发表于 2020-6-6 17:52
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-6 17:54 编辑 
+
+楼友们也只能靠弱智来麻痹自己了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+而且JK当男生宿舍宿管本子剧情不是更多吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 10956#       发表于 2020-6-6 17:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                  

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 15:44** 
+> ## **本文件最后更新于2020-06-06 18:08** 
 
 
 
@@ -15187,10 +15187,11 @@ crew们跟我冲爆holo 大家一起转生凛人
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| InvisibleP| + 1|思路广|
 | YODOboi| + 1|欢乐多|
 | mmbk| + 1|欢乐多|
 | Suny08| + 1|欢乐多|
@@ -16108,7 +16109,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_WDkll" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_Z009S" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -17261,4 +17262,886 @@ pc版接手柄玩fps的我倒是前段时间刚见识到，还是apex s4 pc端�
 
 
 
-                    
+
+
+-----
+
+####  渡鸦骑士  
+##### 9887#       发表于 2020-6-6 15:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47698546&amp;ptid=1938145" target="_blank">ヒトニナル 发表于 2020-6-6 15:39</a>
+
+我这个nico老害也没什么96猫的料能说啊又不是蛇足钢兵那种能津津乐道的人物，安静听歌吧老兄 ...</blockquote>
+那不就完事了嘛，我去阿b直接找介绍完事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 9888#       发表于 2020-6-6 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47697390&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 13:24</a>
+
+許可とった？</blockquote>
+这个是大金刚吗···首先老任要把贝赛橄榄了先！
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9889#       发表于 2020-6-6 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47697390&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 13:24</a>
+
+許可とった？</blockquote>
+colo哥怎么换皮了，大冲击<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9890#       发表于 2020-6-6 16:03
+
+
+
+
+1st单曲好听
+
+有阿心的风格
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9891#       发表于 2020-6-6 16:07
+
+
+
+
+不过马内甲这个原创曲制作阶段时间管理能力太差了点
+
+拖了这么久 还要7月份才能出
+
+要是再拖一个月怕是要跟别人的新原创曲撞了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9892#       发表于 2020-6-6 16:15
+
+
+
+ 本帖最后由 colodes 于 2020-6-6 16:19 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/161359fbrk1fccnck2npbr.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-06 161339.png</strong> (85.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 16:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/161940h9tv3twyuqza9cv3.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-06 161928.png</strong> (633.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 16:19 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/161743pug2uvwg9w5jh52t.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-06 161729.png</strong> (653.26 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 16:17 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 9893#       发表于 2020-6-6 16:21
+
+
+
+
+狗皇明天doom2016
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9894#       发表于 2020-6-6 16:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/162846pjj4nsqln141dlm3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZzS6yyU0AEp3Dd.jpg</strong> (535.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 16:28 上传
+
+
+
+
+
+
+发图净化楼友
+
+
+
+
+
+
+
+-----
+
+####  秋月艾莉  
+##### 9895#       发表于 2020-6-6 16:34
+
+
+
+
+这个SLEE有点意味不明，不搞点什么特别的概念和噱头，现在当偶像开摸手也未必能从肥秋系的盘那里撕点肉渣下来吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9896#       发表于 2020-6-6 16:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47698698&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-6 15:57</a>
+colo哥怎么换皮了，大冲击</blockquote>
+S1に入って後悔した事はないです。
+
+むしろ感謝してます。
+
+今回の件は正直不安でしたが、クリアになるよう動いているように感じます。
+うまく言えないんだけど、これから、再スタートと思ってうちもがんばりたいです。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9897#       发表于 2020-6-6 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47698968&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 16:35</a>
+
+S1に入って後悔した事はないです。
+
+
+むしろ感謝してます。</blockquote>
+I know little japanese. I will support you still.
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 9898#       发表于 2020-6-6 16:46
+
+
+
+
+谁介绍一下animare的mimi？随便翻翻到，结果一看是animare，但是看她播了挺长时间了，去年动物园不只有四个人吗
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 9899#       发表于 2020-6-6 16:47
+
+
+
+
+anmr前段时间抽卡扩编了啊
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9900#       发表于 2020-6-6 16:48
+
+
+
+ 本帖最后由 proxima 于 2020-6-6 16:49 编辑 
+
+那个是别的团跳槽到anmr的吧原本的团就是粽爹那个倒了的团
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9901#       发表于 2020-6-6 16:49
+
+
+
+
+草
+
+DOOM大撞车
+
+miko是被兔皇抢了fallout火了吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9902#       发表于 2020-6-6 16:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699064&amp;ptid=1938145" target="_blank">KKKt 发表于 2020-6-6 16:46</a>
+
+谁介绍一下animare的mimi？随便翻翻到，结果一看是animare，但是看她播了挺长时间了，去年动物园不只有四个 ...</blockquote>
+原PLIVYou成员，解散后加入あにまーれ
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 9903#       发表于 2020-6-6 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699096&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 16:49</a>
+原PLIVYou成员，解散后加入あにまーれ</blockquote>
+原来如此。还挺可爱的，原本的皮比封面动物园的皮好看
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9904#       发表于 2020-6-6 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699088&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-6 16:49</a>
+
+草
+
+DOOM大撞车
+
+miko是被兔皇抢了fallout火了吧</blockquote>
+兔皇狙击，miko撞车
+
+只有狗皇心里苦233
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 9905#       发表于 2020-6-6 16:57
+
+
+
+
+774团如果肯学holo找不同的有一定名气的画师，而不是这种质量一般的内制、人气也不会这么低了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9906#       发表于 2020-6-6 16:57
+
+
+
+
+粽爹比anmr的画师强应该问题不大，就是运营水平跟774应该也五五菜
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9907#       发表于 2020-6-6 17:00
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-6 17:01 编辑 
+
+
+
+
+泡芙哥这个逻辑有点奇怪
+
+最近miko好像也没说要播辐射吧
+
+没记错最早提要播辐射的也是狗子
+
+然后被兔子今天截胡了
+
+然后狗子一小时前说明天播doom2016
+
+35就开了个今天的直播间
+
+合着你们针对狗子呢
+
+啊，写完才发现，是pekomiko糖（
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 9908#       发表于 2020-6-6 17:01
+
+
+
+
+很多管人缺的是一个开始的动力，怎么说呢，jumpstart？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9909#       发表于 2020-6-6 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699167&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-6 16:56</a>
+
+兔皇狙击，miko撞车
+
+只有狗皇心里苦233</blockquote>
+但是确实说真的
+
+本来这两个游戏都是狗皇予定的……
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9910#       发表于 2020-6-6 17:04
+
+
+
+
+anmr后面几个皮真是普通啊，一点没有趣味性
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9911#       发表于 2020-6-6 17:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699201&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 17:00</a>
+
+泡芙哥这个逻辑有点奇怪
+
+最近miko好像也没说要播辐射吧
+
+没记错最早提要播辐射的也是狗子</blockquote>
+[https://www.youtube.com/watch?v=pPGbYmWr90Q](https://www.youtube.com/watch?v=pPGbYmWr90Q)
+
+答案都在这里
+
+
+syl，兔皇对欧美游戏相性不行
+
+同接掉得太好看
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9912#       发表于 2020-6-6 17:05
+
+
+
+
+感觉换个主语也挺适合V界
+
+<img src="https://img.saraba1st.com/forum/202006/06/170200hpwp3m3qzm4vtty9.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-06 170053.png</strong> (116.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 17:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9913#       发表于 2020-6-6 17:05
+
+
+
+
+昨天486说的令人困扰的事情里，就有和同事撞这条，例子是和狗皇撞ib
+
+然后评论栏迅速回忆到狗皇和mio撞绝体绝命都市
+
+这波是有计划地围剿爱撞人的狗皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 9914#       发表于 2020-6-6 17:07
+
+
+
+
+阴湿486<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9915#       发表于 2020-6-6 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699255&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-6 17:05</a>
+
+昨天486说的令人困扰的事情里，就有和同事撞这条，例子是和狗皇撞ib
+
+然后评论栏迅速回忆到狗皇和mio撞绝体 ...</blockquote>
+みっころね不仲说实锤……
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9916#       发表于 2020-6-6 17:09
+
+
+
+
+三才后面播2了吗，我就记得狗子本来打算播2，然后给三才的1让了一段时间。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9917#       发表于 2020-6-6 17:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer"> 真难阿，看葵皇玩完游戏，接着拿着大家给的sc去吃韩国烤肉了，
+
+
+今天发了N多消费卷，打电话约饭，一个个都有约，
+
+
+去nmd生活，取关了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9918#       发表于 2020-6-6 17:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/06/171047j8eeefvwejevddmg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZzozbIX0AIWYUJ.jpg</strong> (262.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-6 17:10 上传
+
+
+
+
+
+[https://twitter.com/NeoCa_/status/1269145408749494272](https://twitter.com/NeoCa_/status/1269145408749494272)
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9919#       发表于 2020-6-6 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699290&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-6 17:09</a>
+
+三才后面播2了吗，我就记得狗子本来打算播2，然后给三才的1让了一段时间。 ...</blockquote>
+播了
+
+太长了，5月下旬几乎都是在播这个，估计会是长期战
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9920#       发表于 2020-6-6 17:12
+
+
+
+
+郡道玩51合1（[https://www.youtube.com/watch?v=lZZCJLFxb5s](https://www.youtube.com/watch?v=lZZCJLFxb5s)），现在在玩21点，这人明明穿得像美女荷官但是牌技和牌品巨差无比，真能叫啊...
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 9921#       发表于 2020-6-6 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47699311&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-6 17:12</a>
+
+郡道玩51合1（https://www.youtube.com/watch?v=lZZCJLFxb5s），现在在玩21点，这人明明穿得像美女荷官但是 ...</blockquote>
+性感荷官只会发牌，不会打牌啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 9922#       发表于 2020-6-6 17:29
+
+
+
+
+郡道不是说自己直播都是全 裸的吗，哪来的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 9923#       发表于 2020-6-6 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47698968&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-6 16:35</a>
+
+S1に入って後悔した事はないです。
+
+
+むしろ感謝してます。</blockquote>
+しっかりと見直して
+
+どっしりと進めるように
+
+何に対しても黙認ベースの気持ちを忘れずにいて欲しいですね！
+
+
+スレも個人もそれは同じ
+
+がんばローゼ！！！
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9924#       发表于 2020-6-6 17:37
+
+
+
+
+你们好怪啊，还有最后的ローゼ没改过来就更怪了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9925#       发表于 2020-6-6 17:40
+
+
+
+
+靠，为什么今天你们疯的这么厉害，这今天明明屁事没有直播还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+想了想好像夸要休，原来这里真的都crew吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 9926#       发表于 2020-6-6 17:45
+
+
+
+ 本帖最后由 winda 于 2020-6-6 17:49 编辑 
+
+一点原型要素都不留就没意思了啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">又没水を得た魚のように那么有特点
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 9927#       发表于 2020-6-6 17:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么宫姨要doom2016，yysy，我这个不看木口的都去点个关注了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 9928#       发表于 2020-6-6 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47694090&amp;ptid=1938145" target="_blank">本蔡帅哥 发表于 2020-6-6 02:55</a>
+全肯定民只能养出废物，比如御伽原江良，不爽的时候就要喷。我已经推特跳脸几次了。 ...</blockquote>
+本蔡这就是你说的推上跳脸吗
+本蔡你好亚撒西<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/1b5d05ff8fe686a8fc9a2e3a748016e0/IMG_74E7FC13171FF4368F0336A43B0DB832.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/436c92168f5b3b2e6ac45f4548bc727d/IMG_F666FEF9261D3AA7ED188A964C08FE23.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
