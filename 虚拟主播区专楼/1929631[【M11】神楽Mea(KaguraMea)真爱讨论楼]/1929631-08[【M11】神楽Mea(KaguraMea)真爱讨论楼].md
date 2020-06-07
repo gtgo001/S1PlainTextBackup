@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 14:03** 
+> ## **本文件最后更新于2020-06-07 16:03** 
 
 
 
@@ -12438,4 +12438,1404 @@ syl，这做的不是挺不错吗，表扬一下吧<img src="https://static.sara
 
 
 
-                          
+
+
+-----
+
+####  兔耳僵尸  
+##### 11221#       发表于 2020-6-7 14:03
+
+
+
+
+对二创要求那么高干啥，又不是约稿，不如说作品就应该反映创作者内心的想法。
+你看除了meaqua作品，mea自己请人做的pv有私货吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11222#       发表于 2020-6-7 14:03
+
+
+
+
+塞私货塞到私货影响主题了当然可以喷。不塞私货还要嘲人家脑里是遗毒就没意思了，火烈鸟那你不说估计一堆人不记得有什么船锚
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11223#       发表于 2020-6-7 14:04
+
+
+
+
+管人入脑，无药可救<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11224#       发表于 2020-6-7 14:04
+
+
+
+
+可以上升到二创行为讨论了，二创=去中心化=自我感动推自己，不二创=大环境下你咩还有半年，麻酱好难，还是和我结婚吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11225#       发表于 2020-6-7 14:04
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 14:01
+那你倒是说是塞个新衣服贫乳巨乳，和塞一个船锚有什么区别啊</blockquote>
+凭你这句批话就没什么好聊下去的了，能这么理直气壮的把其他v的元素和咩姐的本人元素对等，无语
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11226#       发表于 2020-6-7 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709216&amp;ptid=1929631" target="_blank">clvan_ 发表于 2020-6-7 14:01</a>
+先让人闭嘴的是谁呢？我接受的了觉得没问题的人，接受不了发句牢骚就开始当孝子追着护的，看你这反应多大 ...</blockquote>
+孝子脑子都扣上了可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发句牢骚就把mea二创打成遗毒，反驳了就是孝子？
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11227#       发表于 2020-6-7 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">我就说了怎么了 你们要怎么审判我？反应那么激烈的吗
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11228#       发表于 2020-6-7 14:06
+
+
+
+
+还有你咩姐不在意是对的，就应该不在意<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11229#       发表于 2020-6-7 14:07
+
+
+
+<blockquote>暗心舞踏 发表于 2020-6-7 14:03
+塞私货塞到私货影响主题了当然可以喷。不塞私货还要嘲人家脑里是遗毒就没意思了，火烈鸟那你不说估计一堆人 ...</blockquote>
+han那个夸pv里的私货可没影响到主题，有人刷咩她就抱怨。咩这边单人pv塞了几次私货了？抱怨到现在才好转，还理直气壮起来了？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11230#       发表于 2020-6-7 14:08
+
+
+
+
+那你要咩咩咋说嘛，打击别人创作的热情：“我不希望我的视频里出现其他人的要素哦”。大凡有点情商都不会做吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11231#       发表于 2020-6-7 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709281&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:07</a>
+han那个夸pv里的私货可没影响到主题，有人刷咩她就抱怨。咩这边单人pv塞了几次私货了？抱怨到现在才好转 ...</blockquote>
+这次有没有？你车啥呢？能和龙魂私聊你们那个群的恩怨吗？要不盖个mea自由讨论吧竞选吧主？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11232#       发表于 2020-6-7 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709251&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:04</a>
+凭你这句批话就没什么好聊下去的了，能这么理直气壮的把其他v的元素和咩姐的本人元素对等，无语 ...</blockquote>
+那你倒是说是有什么区别啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我是一直觉得除去中之人外，v就是一个梗的集合，巨乳贫乳各种衣服，鱼板船锚玉米灯笼，都是梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">塞个船锚算塞私货那塞其他的也跑不了，你还不如直球一点说你不喜欢鱼板船锚这个梗，省的打着为你mea姐好的幌子看着犯恶心
+
+syl所以我就是单纯的喷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11233#       发表于 2020-6-7 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是做mv不投到官号上，管他带不带私货
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像这种mv我都是只听歌的，对我来说只是个音频文件投稿
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11234#       发表于 2020-6-7 14:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709253&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 14:05</a>
+
+孝子脑子都扣上了可还行发句牢骚就把mea二创打成遗毒，反驳了就是孝子？ ...</blockquote>
+偷换概念玩的真六，说的是塞私货而不是二创，您看您就因为一句牢骚反应多大还不是孝子吗？
+
+爱护您就继续护着呗，加油继续出警，你可以的
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11235#       发表于 2020-6-7 14:11
+
+
+
+
+看懂了，原来是和龙魂的私人恩怨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11236#       发表于 2020-6-7 14:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么说吧 说遗毒的也是我嘲讽的也是我 我就是嘲了我就是发现了“彩蛋”了 你们想把我怎么着？ 我又不跳她脸发怪文书 也不会去找作者开团 就是生活不如意在论坛抱怨几句都要被人揍的吗
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11237#       发表于 2020-6-7 14:12
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:09
+这次有没有？你车啥呢？能和龙魂私聊你们那个群的恩怨吗？要不盖个mea自由讨论吧竞选吧主？ ...</blockquote>
+我针对的是他说联合投稿塞私货没问题这点，如果你也觉得私货没问题那我也喷你。这次pv我很满意，我也提到现在改善了不是吗？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11238#       发表于 2020-6-7 14:13
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 14:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709308&amp;ptid=1929631" target="_blank">clvan_ 发表于 2020-6-7 14:10</a>
+偷换概念玩的真六，说的是塞私货而不是二创，您看您就因为一句牢骚反应多大还不是孝子吗？
+
+爱护您就继续 ...</blockquote>
+我反应的俩，一个是莫名其妙车起浮夸，一个是把二创打成遗毒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着这就成孝子了
+
+syl这怎么还开始“我就这样你怎么着”了，我也一样的啊
+
+zsyl这几个人我没跟他们加过群
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 11239#       发表于 2020-6-7 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼那几个不知道什么群里的弱智怎么每次都跳出来
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11240#       发表于 2020-6-7 14:15
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 14:09
+那你倒是说是有什么区别啊
+
+我是一直觉得除去中之人外，v就是一个梗的集合，巨乳贫乳各种衣服，鱼 ...</blockquote>
+咩姐自己做的pv只有单人要素，官号上的pv不应该像咩姐看齐？自己私下做二创爱玩什么梗玩什么梗，官号严格要求不行？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11241#       发表于 2020-6-7 14:16
+
+
+
+
+所以说群是真的恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11242#       发表于 2020-6-7 14:16
+
+
+
+
+希望黑暗贴贴人们不要打着为mea好的幌子把mea都没觉得有问题的pv打成遗毒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不喜欢meaqua大可以大声说出来，但打着为mea好的旗号就让我很恶心了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11243#       发表于 2020-6-7 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709326&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:12</a>
+我针对的是他说联合投稿塞私货没问题这点，如果你也觉得私货没问题那我也喷你。这次pv我很满意，我也提到 ...</blockquote>
+那你车你妈呢？直接楼里说这次做的特别好就完事了。翻什么旧账？车了几页了？没几个人出来是不是又龙魂黑泥群repo夸安排上了？哪次你们达成共识了？反而恶心楼友，有人钓鱼就跟着上了有病吧？
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 11244#       发表于 2020-6-7 14:17
+
+
+
+ 本帖最后由 睥睨寰宇荡红尘 于 2020-6-7 14:20 编辑 
+
+不是，你们没发现每次龙魂都是为了二创出来跳脚的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后建议建个二创楼，这么爱二创不如去楼里杀个天翻地覆？
+Syl觉得二创有什么伟大效果的好像只有龙魂你一个。我觉得吐槽遗毒的人最多只能算吃大餐突然飞出只苍蝇来有点恶心罢了。
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11245#       发表于 2020-6-7 14:18
+
+
+
+
+对啊，你们和龙魂大杀四方可以换个楼，你们吵架吵的太虚无了，不好看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11246#       发表于 2020-6-7 14:18
+
+
+
+
+打着为mea好的旗号这个旗号好像只有你
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11247#       发表于 2020-6-7 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709361&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:15</a>
+咩姐自己做的pv只有单人要素，官号上的pv不应该像咩姐看齐？自己私下做二创爱玩什么梗玩什么梗，官号严格 ...</blockquote>
+官号的二创联合投稿在挺久之前宣布了，具体细节有点记不清了，但我记得不止一次说，做的好的二创都可以去联合投稿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这生生把二创的路掐窄了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11248#       发表于 2020-6-7 14:19
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 14:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709409&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 14:18</a>
+打着为mea好的旗号这个旗号好像只有你</blockquote>
+可我不会去把这种二创打成遗毒，然后美名其曰减少私货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11249#       发表于 2020-6-7 14:20
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:16
+那你车你妈呢？直接楼里说这次做的特别好就完事了。翻什么旧账？车了几页了？没几个人出来是不是又龙魂黑 ...</blockquote>
+龙魂先说的私货没问题，我自然要喷他，他这么说一次我喷一次，觉得烦s1有app可以屏蔽用户
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11250#       发表于 2020-6-7 14:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709419&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 14:19</a>
+
+可我不会去把这种二创打成遗毒</blockquote>
+那我爱打成遗毒你跳什么呢？
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 11251#       发表于 2020-6-7 14:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709326&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-06-07 14:12:50</a>
+我针对的是他说联合投稿塞私货没问题这点，如果你也觉得私货没问题那我也喷你。这次pv我很满意，我也提到 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">满意了批话还这么多，喜欢当遗毒人
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11252#       发表于 2020-6-7 14:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709431&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 14:20</a>
+那我爱打成遗毒你跳什么呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是喷你啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11253#       发表于 2020-6-7 14:22
+
+
+
+<blockquote>M829A4 发表于 2020-6-7 14:20
+满意了批话还这么多，喜欢当遗毒人
+
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+我喷的是龙魂说私货没问题这句批话，你觉得是遗毒人那就是遗毒人吧
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11254#       发表于 2020-6-7 14:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那完事了 龙魂也就一个理中客而已 我无所谓 
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11255#       发表于 2020-6-7 14:23
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 14:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709426&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:20</a>
+龙魂先说的私货没问题，我自然要喷他，他这么说一次我喷一次，觉得烦s1有app可以屏蔽用户 ...</blockquote>
+别tm拿私货当幌子了，你不喜欢meaqua直球点说我也懒得跟你杠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你觉得私货有问题，可mea自己都是发了觉得好的东西，那我自然一样觉得没问题
+你还不如说你不喜欢meaqua，看了不舒服呢
+
+你如此的觉得我说塞私货没问题是批话，敢问你这个塞私货=有问题的想法是从何而来
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 11256#       发表于 2020-6-7 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709451&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-06-07 14:22:08</a>
+我喷的是龙魂说私货没问题这句批话，你觉得是遗毒人那就是遗毒人吧</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你去和他一换一啊，逼逼逼逼好几页哪次有结果了，你们能不能手拉手一起滚啊
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11257#       发表于 2020-6-7 14:24
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 14:18
+官号的二创联合投稿在挺久之前宣布了，具体细节有点记不清了，但我记得不止一次说，做的好的二创都可以去 ...</blockquote>
+确实，别的组联合投稿都没啥私货，有私货造成不想要的结果组员还能喷，到咩姐这就不行了？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11258#       发表于 2020-6-7 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709426&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:20</a>
+龙魂先说的私货没问题，我自然要喷他，他这么说一次我喷一次，觉得烦s1有app可以屏蔽用户 ...</blockquote>
+谁他妈先提的私货？这次有没有？你们群和龙魂私人恩怨别跟泼妇骂街似的在楼里说吗？不行就中山公园。在这恶心人干嘛？一看提示几十条还他妈以为播了结果楼里说pv，看了眼挺好的回来翻翻结果是他妈贷款的。有病吧？在大庭广众排泄自己贷款的恶意跟v吧有啥区别？我不看v吧了v吧能别去评论区拉屎吗？我屏蔽你了然后一堆人随棍子上跟没屏蔽有啥区别？我屏蔽了全楼？
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11259#       发表于 2020-6-7 14:25
+
+
+
+
+这么爱为贴贴二创吵架建议左转贴贴人之家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐意看的自然有人回去看。不用在这里大声声张咖喱里面加💩有什么不对。
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11260#       发表于 2020-6-7 14:26
+
+
+
+
+所以说啊，有些人根本就不关心meamea，只关心连体，在他们眼里mea酱的处女还不如官组pv里偷偷藏的一点私货重要<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11261#       发表于 2020-6-7 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709476&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:24</a>
+确实，别的组联合投稿都没啥私货，有私货造成不想要的结果组员还能喷，到咩姐这就不行了？ ...</blockquote>
+别没啥私货了，光我能现想出来的例子有信姬引退时那个pv，里面有mea她们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你就反反复复的拿着han说事？全天下就mea组有私货？
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 11262#       发表于 2020-6-7 14:27
+
+
+
+
+我还以为播了，一个二创刷的比直播的时候楼还多
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 11263#       发表于 2020-6-7 14:29
+
+
+
+
+还以为播了，原来又是在车轱辘，那没事了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11264#       发表于 2020-6-7 14:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">暗黑贴贴人真可怕
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">贴贴ptsd人只能在墙角下瑟瑟发抖
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11265#       发表于 2020-6-7 14:30
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 14:27
+别没啥私货了，光我能现想出来的例子有信姬引退时那个pv，里面有mea她们你就反反复复的拿着han说 ...</blockquote>
+信姬隐退的pv是犬山和信姬自己安排的，又开始混为一谈了？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11266#       发表于 2020-6-7 14:30
+
+
+
+
+直播的时候都认认真真看呢，哪像现在这么有空闲得无聊来对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11267#       发表于 2020-6-7 14:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709414&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 14:18</a>
+官号的二创联合投稿在挺久之前宣布了，具体细节有点记不清了，但我记得不止一次说，做的好的二创都可以去 ...</blockquote>
+你这说法也不对，mea自己约的pv是她的原创作品，未经许可使用他人形象当然是不可以的。官组投稿的属于二创，而且现在官组直接投稿的二创里也不会出现其他人的形象了，在b站v圈里算是严格的了。
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11268#       发表于 2020-6-7 14:31
+
+
+
+ 本帖最后由 Unlimited290 于 2020-6-7 14:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709517&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 14:27</a>
+别没啥私货了，光我能现想出来的例子有信姬引退时那个pv，里面有mea她们你就反反复复的拿着han说 ...</blockquote>
+han在面对夸皇单人二创一帮人喊meaqua的时候反应和楼里这群人的人反应一样啊，建议您快去把han批到批臭，不然我只是觉得你在双标而已，连理客中都算不上。
+SYL二创组当初把夸皇放到大背景画成夸皇是mea的偶像那个真是把爷恶心吐了。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11269#       发表于 2020-6-7 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709551&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:30</a>
+信姬隐退的pv是犬山和信姬自己安排的，又开始混为一谈了？</blockquote>
+好吧那是我当成字幕组做的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可我觉得你这个别组联合投稿都没啥私货，就mea组有私货的说法更诡异一点
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 11270#       发表于 2020-6-7 14:33
+
+
+
+
+这个unlimited号现在还是mk2在用吗？
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11271#       发表于 2020-6-7 14:34
+
+
+
+
+吵架嘛，就是这样。我看大街上吵架的能互相逼逼个把小时，这还是面对面说话，宅宅在论坛吵架得刷多少楼
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11272#       发表于 2020-6-7 14:34
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:24
+谁他妈先提的私货？这次有没有？你们群和龙魂私人恩怨别跟泼妇骂街似的在楼里说吗？不行就中山公园。在这 ...</blockquote>
+这次没私货，我自然不针对这次pv，也没贷款恶意。我也提到了现状改善，龙魂和我杠私货的问题，我就要和他刚到底。咩姐早上没睡播了这么久tc，我觉得不大可能播，晚上还有可能
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11273#       发表于 2020-6-7 14:34
+
+
+
+
+外面贴贴，暗黑贴贴，挂件楼一应俱全，却偏偏要选择来真爱楼吵。大抵就和V8那群人明明可以自己建吧，却死命要占着V吧8个流量最大的地盘拉shit一个道理
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11274#       发表于 2020-6-7 14:35
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 14:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709557&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-7 14:30</a>
+你这说法也不对，mea自己约的pv是她的原创作品，未经许可使用他人形象当然是不可以的。官组投稿的属于二 ...</blockquote>
+没出现其他人的形象，出现个船锚就算塞私货，就要喷了，我觉得是管的太严格了
+
+↑很明显是mk2啊，复制个贴吧镇楼图他恶心，群里发图有meaqua图他恶心，好像我自己存在本身他也恶心，他这么容易恶心我也是蛮不容易的
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 11275#       发表于 2020-6-7 14:37
+
+
+
+
+你们张嘴闭嘴群啊群啊什么的，不能把群里的东西封死在群里面吗？？
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11276#       发表于 2020-6-7 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709596&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:34</a>
+这次没私货，我自然不针对这次pv，也没贷款恶意。我也提到了现状改善，龙魂和我杠私货的问题，我就要和他 ...</blockquote>
+那你能私聊吗？公开拉屎这么有意思？你是v吧哪个宝？精髓学的这么准？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11277#       发表于 2020-6-7 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709596&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:34</a>
+这次没私货，我自然不针对这次pv，也没贷款恶意。我也提到了现状改善，龙魂和我杠私货的问题，我就要和他 ...</blockquote>
+正好有人顶起来了，那就来这楼聊
+[https://bbs.saraba1st.com/2b/thread-1932768-7-1.html](https://bbs.saraba1st.com/2b/thread-1932768-7-1.html)
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 11278#       发表于 2020-6-7 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709605&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 14:35</a>
+没出现其他人的形象，出现个船锚就算塞私货，就要喷了，我觉得是管的太严格了
+
+↑很明显是mk2啊，复制个 ...</blockquote>
+当着楼里一群把船锚都要当💩一样看待的人，你非要跳出来说往饭菜里加点💩没什么问题。你这不就是在楼里恶心人吗？
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 11279#       发表于 2020-6-7 14:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，少来这拉屎
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11280#       发表于 2020-6-7 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709207&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 14:01</a>
+那你倒是说是塞个新衣服贫乳巨乳，和塞一个船锚有什么区别啊</blockquote>
+啊这，大概真的没区别吧<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11281#       发表于 2020-6-7 14:44
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:38
+那你能私聊吗？公开拉屎这么有意思？你是v吧哪个宝？精髓学的这么准？</blockquote>
+也许这就是楼gachi吧，要楼的氛围去nga不好吗？nga消息还比这边快不少。有问题必须提出，龙魂能在楼里随便讲歪理就不能有人出来反驳？贴吧早就不用了，除了知道几个知名人物对v吧没啥认识
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11282#       发表于 2020-6-7 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709722&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:44</a>
+也许这就是楼gachi吧，要楼的氛围去nga不好吗？nga消息还比这边快不少。有问题必须提出，龙魂能在楼里随 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">另外怎么改成了我讲歪理了，前面塞个船锚就打成遗毒的我也觉得是歪理啊
+另外来隔壁啊，在隔壁找你了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11283#       发表于 2020-6-7 14:47
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:38
+那你能私聊吗？公开拉屎这么有意思？你是v吧哪个宝？精髓学的这么准？</blockquote>
+s1私聊功能不好用，之前私聊过有时候会看不到消息（不管是私聊方还是自己这边）。车轱辘也到此为止，我发完就等咩姐晚上播了。我的意见始终是私货不行，han塞的那么一点私货都能造成影响，咩这作为曾经的重灾区必须注意。
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11284#       发表于 2020-6-7 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709722&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:44</a>
+也许这就是楼gachi吧，要楼的氛围去nga不好吗？nga消息还比这边快不少。有问题必须提出，龙魂能在楼里随 ...</blockquote>
+滚吧。楼里拉屎的不让说还给人扣楼gachi的名？还真是v吧给粉丝扣舔狗帽子那味了。不和我心意的就都扣帽子呗？这次啥事没有你俩私人恩怨翻出来公共场合吵。我宣布现在说我的都是龙魂某囧连体人gachi。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11285#       发表于 2020-6-7 14:49
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 14:46
+另外怎么改成了我讲歪理了，前面塞个船锚就打成遗毒的我也觉得是歪理啊
+
+另外来隔壁啊，在隔壁找你 ...</blockquote>
+用歪理反驳歪理还有道理了？喷了你这么多次还是这样，没什么继续聊的必要了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11286#       发表于 2020-6-7 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709761&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:47</a>
+s1私聊功能不好用，之前私聊过有时候会看不到消息（不管是私聊方还是自己这边）。车轱辘也到此为止，我发 ...</blockquote>
+我就问你这次有没有？没有你贷款个jb呢？你们内个群自己留个qq号呗？非要论坛脱裤子对枪？然后打完了可以去隔壁楼或者mea自由讨论吧整个聊天记录repo
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11287#       发表于 2020-6-7 14:51
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:48
+滚吧。楼里拉屎的不让说还给人扣楼gachi的名？还真是v吧给粉丝扣舔狗帽子那味了。不和我心意的就都扣帽子 ...</blockquote>
+先给人扣个v吧帽子反手又说人扣帽子，真的有意思。针对歪理的反驳也能说是拉屎吗，那我不做了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11288#       发表于 2020-6-7 14:52
+
+
+
+
+晚上真的会播吗，不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11289#       发表于 2020-6-7 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709791&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 14:51</a>
+先给人扣个v吧帽子反手又说人扣帽子，真的有意思。针对歪理的反驳也能说是拉屎吗，那我不做了 ...</blockquote>
+不是，你这么有兴趣为你所谓的“反驳歪理”出头，那来隔壁z楼啊，我既有看法也有对你的问题，正好想问一问
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11290#       发表于 2020-6-7 14:54
+
+
+
+<blockquote>zhicai618 发表于 2020-6-7 14:50
+我就问你这次有没有？没有你贷款个jb呢？你们内个群自己留个qq号呗？非要论坛脱裤子对枪？然后打完了可以 ...</blockquote>
+这次没有私货我不是一直承认的？哪有贷款？你的意思是这人公开论坛说歪理我只能用私信反驳？别双标啊？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11291#       发表于 2020-6-7 14:55
+
+
+
+<blockquote>Mr.shelter 发表于 2020-6-7 14:52
+晚上真的会播吗，不安</blockquote>
+不清楚，可能会爆睡
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11292#       发表于 2020-6-7 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709806&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-7 14:52</a>
+晚上真的会播吗，不安</blockquote>
+我觉得倒是有可能。这个月中应该是联动拉满
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11293#       发表于 2020-6-7 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11294#       发表于 2020-6-7 15:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说起来，你麻要是朝活是做饭而不是打麻将多好啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我也不至于看了一眼就关了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11295#       发表于 2020-6-7 15:01
+
+
+
+
+前面一部分不是吃完了杂谈吗，雀魂当个作业bg
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11296#       发表于 2020-6-7 15:01
+
+
+
+
+你麻朝活是吃饭
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 11297#       发表于 2020-6-7 15:02
+
+
+
+
+为什么又和龙魂吵起来的。这个rz只会那老一套吵，不腻吗。
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11298#       发表于 2020-6-7 15:02
+
+
+
+
+挺好的，真的要吵别出这个论坛，别给我增加工作量。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11299#       发表于 2020-6-7 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709885&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-7 15:00</a>
+说起来，你麻要是朝活是做饭而不是打麻将多好啊
+我也不至于看了一眼就关了 ...</blockquote>
+是吃饭啊。。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 11300#       发表于 2020-6-7 15:03
+
+
+
+
+总有人喜欢在楼里拉屎……家里没厕所么？没家，那没事了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11301#       发表于 2020-6-7 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">原谅我这个昨晚熬夜看她直播早上没赶上她吃饭的可怜人吧
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11302#       发表于 2020-6-7 15:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">和平的一天
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                       

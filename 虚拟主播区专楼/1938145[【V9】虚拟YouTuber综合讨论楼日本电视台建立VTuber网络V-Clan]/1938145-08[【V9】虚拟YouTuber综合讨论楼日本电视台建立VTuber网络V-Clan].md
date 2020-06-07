@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 14:08** 
+> ## **本文件最后更新于2020-06-07 16:08** 
 
 
 
@@ -975,10 +975,11 @@ youtube：[https://www.youtube.com/channel/UCPEjpHZ75EroKFablo1nIWw/](https://ww
 
 
 
- 参与人数 8战斗力 +9
+ 参与人数 9战斗力 +10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Medling| + 1|好评加鹅|
 | argaregeasr| + 1|好评加鹅|
 | mmbk| + 1|牛批|
 | 2517君改二| + 1|趁着人家联动去特定，你好强大.|
@@ -3495,4 +3496,2368 @@ hololive都是处女， 你们不知道吗
 
 
 
-                                           
+
+
+-----
+
+####  金魚佬  
+##### 10686#       发表于 2020-6-7 14:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这相当于是问生物牛耕田厉害还是机械牛耕田厉害
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10687#       发表于 2020-6-7 14:10
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-7 14:15 编辑 
+
+这违和感爆表了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/07/141457zdpinppe5ytjstgu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200607141402.png</strong> (213.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 14:14 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10688#       发表于 2020-6-7 14:11
+
+
+
+
+鬼佬哪见过这种场面，可不热闹吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10689#       发表于 2020-6-7 14:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709312&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-7 14:11</a>
+
+鬼佬哪见过这种场面，可不热闹吗</blockquote>
+鬼佬没见过露脸的女主播打游戏嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10690#       发表于 2020-6-7 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有灵能牛吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10691#       发表于 2020-6-7 14:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709333&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-7 14:13</a>
+鬼佬没见过露脸的女主播打游戏嘛</blockquote>
+之前看的卡通女孩变成真人了，多有意思，第一次冲塔的刺激感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10692#       发表于 2020-6-7 14:16
+
+
+
+
+这滤镜怪好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10693#       发表于 2020-6-7 14:16
+
+
+
+
+想想那些以前只看过 hololive moment 的鬼佬看到这么刺激的东西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10694#       发表于 2020-6-7 14:17
+
+
+
+ 本帖最后由 墨玄i 于 2020-6-7 14:18 编辑 
+
+鬼佬mmr再评价
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10695#       发表于 2020-6-7 14:18
+
+
+
+
+阿肥这一看怎么又肥了，说好的减肥呢？
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 10696#       发表于 2020-6-7 14:18
+
+
+
+
+我去下载apex了。这真的是我第一个因为看别人玩了之后才去玩的游戏
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10697#       发表于 2020-6-7 14:18
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-7 14:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709390&amp;ptid=1938145" target="_blank">墨玄i 发表于 2020-6-7 14:17</a>
+编辑</blockquote>
+懒，改了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+kson同接平时多少啊，小肥妹多播播能不能打赢。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10698#       发表于 2020-6-7 14:20
+
+
+
+
+阿希，年轻鬼佬的第一次冲塔
+
+
+谁去做个阿希问题言论集的英文切片扔油管上去
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 10699#       发表于 2020-6-7 14:22
+
+
+
+
+夏哥可爱
+
+羡慕能和夏哥单独出去玩的郡道
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10700#       发表于 2020-6-7 14:22
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-7 14:24 编辑 
+
+女性与儿童权利的践踏者
+
+要被👊的
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10701#       发表于 2020-6-7 14:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你楼明明也看得起劲 还好意思说人家鬼佬
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 10702#       发表于 2020-6-7 14:25
+
+
+
+[https://www.youtube.com/watch?v=HNkd9KYdORo](https://www.youtube.com/watch?v=HNkd9KYdORo)
+
+
+【まったり雑談】06/07 スバルの陽キャの歴史のぞいてく？？【ホロライブ/大空スバル】
+
+
+486的阳角成长史
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 10703#       发表于 2020-6-7 14:25
+
+
+
+
+世界人民大团结<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10704#       发表于 2020-6-7 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709472&amp;ptid=1938145" target="_blank"> 屑屑代沟尼亚 发表于 2020-6-7 14:23</a> 你楼明明也看得起劲 还好意思说人家鬼佬 </blockquote>
+我就关了，没意思，又不是歌回还会做小表情手动双马尾来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10705#       发表于 2020-6-7 14:26
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-7 14:28 编辑 
+
+关了， 脸的画面不够清晰
+
+谁要看游戏， 都是看🌸妹
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10706#       发表于 2020-6-7 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709412&amp;ptid=1938145" target="_blank"> bluebaby 发表于 2020-6-7 14:18</a>  本帖最后由 bluebaby 于 2020-6-7 14:23 编辑  引用:墨玄i 发表于 2020-6-7 14:17 编辑 懒，改了 kson同接平时多少啊，小肥妹多播播能不能打赢。 </blockquote>
+打不赢，kson贝姐颜值还会英语怎么打得过来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 10707#       发表于 2020-6-7 14:28
+
+
+
+
+夏哥脸也圆圆的，想捏
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 10708#       发表于 2020-6-7 14:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">肉体厨落泪
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10709#       发表于 2020-6-7 14:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">免费这是坦诚了！？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10710#       发表于 2020-6-7 14:30
+
+
+
+
+不太清楚这种东西，
+
+滤镜会改变脸型吗?
+
+想了想， 其实无所谓， 反正也只能隔着屏幕看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10711#       发表于 2020-6-7 14:30
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10712#       发表于 2020-6-7 14:30
+
+
+
+
+就这也别安排优十了，先生一把年纪了老腰不一定吃得消<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10713#       发表于 2020-6-7 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709384&amp;ptid=1938145" target="_blank">2517君改二 发表于 2020-6-7 14:16</a>
+想想那些以前只看过 hololive moment 的鬼佬看到这么刺激的东西</blockquote>
+说到hololive moment，都银盾了而且有超越holo部分人订阅的趋势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10714#       发表于 2020-6-7 14:33
+
+
+
+
+嗯夏哥脸很圆吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，yysy希小姐还是长得很yhm的，kson就有点混血感了，尤其是鼻子这里。鬼老说不好，宅宅可能不一锭感冒啊。
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 10715#       发表于 2020-6-7 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709568&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 14:32</a>
+
+说到hololive moment，都银盾了而且有超越holo部分人订阅的趋势</blockquote>
+hlm也是国内字幕组作的，组长是无敌飞雪
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 10716#       发表于 2020-6-7 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709528&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 14:28</a>
+
+夏哥脸也圆圆的，想捏</blockquote>
+许久不看你楼，怎么免费都直球圆脸控了？
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 10717#       发表于 2020-6-7 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709590&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-7 14:34</a>
+hlm也是国内字幕组作的，组长是无敌飞雪</blockquote>
+又是字幕组打白工？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10718#       发表于 2020-6-7 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709613&amp;ptid=1938145" target="_blank">保罗赫伯特 发表于 2020-6-7 14:35</a>
+
+又是字幕组打白工？</blockquote>
+那倒不是，holoment有油管的收益化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10719#       发表于 2020-6-7 14:38
+
+
+
+
+葵皇这个欅坂46居然上了首页推荐<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 10720#       发表于 2020-6-7 14:38
+
+
+
+
+幼儿园的时候觉得赚钱是成为大人的标志，于是自己折了一口袋折纸到邻居挨家挨户敲门去卖，天生阳角恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+弟弟光速告密回家后被老妈铁拳制裁
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 10721#       发表于 2020-6-7 14:39
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-7 14:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709555&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 14:30</a>
+
+就这也别安排优十了，先生一把年纪了老腰不一定吃得消</blockquote>
+老牛吃嫩草不是挺普遍的嘛，打桩祭多动点不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，兔皇的f4已经播第二集了，宫皇的fnv什么时候上路啊。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10722#       发表于 2020-6-7 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709555&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 14:30</a>
+
+就这也别安排优十了，先生一把年纪了老腰不一定吃得消</blockquote>
+管人都躲着肥希的原因找到了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10723#       发表于 2020-6-7 14:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木口偶像也就图一乐.jpg
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10724#       发表于 2020-6-7 14:40
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-7 14:41 编辑 
+
+呜呜呜， 如果在美利坚的话这种孩子明明会成为巴菲特<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+竟然被制裁了， 定体问， 我陷思
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10725#       发表于 2020-6-7 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709671&amp;ptid=1938145" target="_blank">魔法使い2019 发表于 2020-6-7 14:40</a>
+
+呜呜呜， 如果在美利坚的话这种孩子明明会成为巴菲特</blockquote>
+巴菲特我记得不是他家有钱嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10726#       发表于 2020-6-7 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709668&amp;ptid=1938145" target="_blank"> proxima 发表于 2020-6-7 14:39</a> 引用:IDIDIDID 发表于 2020-6-7 14:30 就这也别安排优十了，先生一把年纪了老腰不一定吃得消 管人都躲着肥希的原因找到了？ </blockquote>
+那女人们躲着是因为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 10727#       发表于 2020-6-7 14:43
+
+
+
+
+这是无敌飞雪的介绍
+
+
+
+
+
+
+1591512111937.png
+(42.31 KB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-6-7 14:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/144304bhl4tisszp1t1g1i.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10728#       发表于 2020-6-7 14:43
+
+
+
+
+狐皇也在apex，能不能排到啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+好想看佐藤希击杀白上吹雪评论高潮然后小肥妹问这人谁啊很有名吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10729#       发表于 2020-6-7 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709709&amp;ptid=1938145" target="_blank"> bluebaby 发表于 2020-6-7 14:43</a> 狐皇也在apex，能不能排到啊 好想看佐藤希击杀白上吹雪评论高潮然后小肥妹问这人谁啊很有名吗 </blockquote>
+阿希这是新号，应该排不到吧来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10730#       发表于 2020-6-7 14:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摸脸的时候手看着肉挺多的
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10731#       发表于 2020-6-7 14:45
+
+
+
+
+想看个狙击到的直球まつり大好き
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10732#       发表于 2020-6-7 14:45
+
+
+
+
+如果夏哥自己说的是真的见面就要上手那女人躲着不是很正常。
+
+
+说实话她这种见面自来熟拉满的原生家庭肯定有问题，不是特别放纵就是特别冷漠。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10733#       发表于 2020-6-7 14:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">炸鱼号kd高 说不定就排到了呢
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10734#       发表于 2020-6-7 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707874&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-7 12:11</a>
+
+哇哇哇居然有人玩感质空间，爱了爱了，给坛友推荐，剧情音乐画风都上佳的百合作！！（图源百度）
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">这部不是超老的作品了么
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10735#       发表于 2020-6-7 14:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">肚子叫好评
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10736#       发表于 2020-6-7 14:51
+
+
+
+
+阿希这真是炸鱼啊。。乱杀
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 10737#       发表于 2020-6-7 14:53
+
+
+
+
+晕了 阿希这个号都开始训粉了
+
+<img src="https://p.sda1.dev/0/5df4eeb6fdf1120986835d98b3d28fbf/IMG_E7EFBA4F46F698944EE96DDA9F3B59DF.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10738#       发表于 2020-6-7 14:54
+
+
+
+
+说明驯粉是自然反应，不是有意识地养噶吃
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10739#       发表于 2020-6-7 14:56
+
+
+
+
+虽然不一定是海苔男教的，但你可以出来给リスナー磕个头吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10740#       发表于 2020-6-7 14:59
+
+
+
+
+瞄了一眼阿希，这就是青铜局吗？都一人灭3个满队了，对手疯狂人体描边<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10741#       发表于 2020-6-7 15:01
+
+
+
+
+这个也算训粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10742#       发表于 2020-6-7 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709878&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-7 14:59</a>
+
+瞄了一眼阿希，这就是青铜局吗？都一人灭3个满队了，对手疯狂人体描边 ...</blockquote>
+APEX这游戏，有没有配件，或者在不在移动，枪口和弹道飘的程度不是一个级别。。。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10743#       发表于 2020-6-7 15:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">说句很不S1V综的话，心心和阿夸是该歇了
+
+
+这两个嗓子都崩的听不下去了，其实兔子也应该歇一下
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10744#       发表于 2020-6-7 15:06
+
+
+
+
+队友拉胯。拿了金喷子一枪没开
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10745#       发表于 2020-6-7 15:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次是联动 可以开始猜是谁了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 10746#       发表于 2020-6-7 15:08
+
+
+
+
+初中时代被女生头目带头孤立却毫不在意主动邀玩轻松化解的486，也曾因为烦恼自己不会读空气一度休学在家（时间长达一星期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10747#       发表于 2020-6-7 15:08
+
+
+
+
+莉香kson佐藤希联动，能不能砍5000同接？
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 10748#       发表于 2020-6-7 15:08
+
+
+
+
+苔姨？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10749#       发表于 2020-6-7 15:08
+
+
+
+
+kson单人就能砍5000，剩下两个属于挂件
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 10750#       发表于 2020-6-7 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709976&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 15:08</a>
+
+莉香kson佐藤希联动，能不能砍5000同接？</blockquote>
+可以
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10751#       发表于 2020-6-7 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709976&amp;ptid=1938145" target="_blank"> IDIDIDID 发表于 2020-6-7 15:08</a> 莉香kson佐藤希联动，能不能砍5000同接？ </blockquote>
+kson自己solo都够了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 10752#       发表于 2020-6-7 15:11
+
+
+
+
+9号kson不直播，别想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10753#       发表于 2020-6-7 15:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709000&amp;ptid=1938145" target="_blank">cherryrain 发表于 2020-6-7 13:45</a>
+怎么还有繁体字问“夏哥是处吗”</blockquote>
+天下🦄是一家
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10754#       发表于 2020-6-7 15:12
+
+
+
+
+9号播啊
+
+两天一动，是不是也被马内甲骚扰了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10755#       发表于 2020-6-7 15:14
+
+
+
+
+那被那个manager管理的两人的身份看来已经明了了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10756#       发表于 2020-6-7 15:14
+
+
+
+
+那这两天休息的是不是都被马内甲骚扰了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10757#       发表于 2020-6-7 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709975&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-7 15:08</a>
+
+初中时代被女生头目带头孤立却毫不在意主动邀玩轻松化解的486，也曾因为烦恼自己不会读空气一度休学在家（ ...</blockquote>
+只是想翘课吧喂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10758#       发表于 2020-6-7 15:17
+
+
+
+
+您们别吓我...
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10759#       发表于 2020-6-7 15:18
+
+
+
+
+不播就是被骚扰，那隔壁那个基本不在正常时间播的未成年<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10760#       发表于 2020-6-7 15:20
+
+
+
+
+哦，忘了咩咩家里有男人，所以天狗们才这么放心的吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10761#       发表于 2020-6-7 15:22
+
+
+
+
+害怕，我家夸夸不会被恶臭马内甲得手了吧，长得好看也有错了😭
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10762#       发表于 2020-6-7 15:23
+
+
+
+
+那夸苦练健身环是准备警察和运营不顶用的时候自己解决马内甲吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 10763#       发表于 2020-6-7 15:23
+
+
+
+
+网易那个mc公告。你楼几楼讨论的给个坐标呗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10764#       发表于 2020-6-7 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710130&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 15:23</a>
+
+那夸苦练健身环是准备警察和运营不顶用的时候自己解决马内甲吗</blockquote>
+那光练健身环没用，建议还是专门找个教练学习些防身技巧吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 10765#       发表于 2020-6-7 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709555&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 14:30</a>
+就这也别安排优十了，先生一把年纪了老腰不一定吃得消</blockquote>
+先生还是有在锻炼的，而且cn进出的精力要求不比伺候你希小姐高多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 10766#       发表于 2020-6-7 15:25
+
+
+
+
+一进来就有故事会看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10767#       发表于 2020-6-7 15:27
+
+
+
+
+嫌弃，编故事也这么恶毒。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10768#       发表于 2020-6-7 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710098&amp;ptid=1938145" target="_blank">meameasuki 发表于 2020-6-7 15:20</a>
+哦，忘了咩咩家里有男人，所以天狗们才这么放心的吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">咩咩家有50个774呢，别操心了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10769#       发表于 2020-6-7 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710131&amp;ptid=1938145" target="_blank">zhicai618 发表于 2020-6-7 15:23</a>
+网易那个mc公告。你楼几楼讨论的给个坐标呗</blockquote>
+网易的mc应该B综会讨论吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10770#       发表于 2020-6-7 15:30
+
+
+
+
+现在杏真是阿姨的天下，就没几个小年轻在稳定直播。也差不多要放五期了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10771#       发表于 2020-6-7 15:31
+
+
+
+
+vup他们玩的也不是网易服吧。。
+
+syl，今天的as35，miko给小天使打电话有说是什么事儿吗，小天使睡到刚才才醒233
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10772#       发表于 2020-6-7 15:31
+
+
+
+
+50个774还行，活学活用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10773#       发表于 2020-6-7 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710199&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 15:31</a>
+vup他们玩的也不是网易服吧。。
+
+syl，今天的as35，miko给小天使打电话有说是什么事儿吗，小天使睡到刚才才 ...</blockquote>
+今天早上的没看，但是打电话的话应该是as35的固定栏目，上次是打给coco的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10774#       发表于 2020-6-7 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710192&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-7 15:30</a>
+
+现在杏真是阿姨的天下，就没几个小年轻在稳定直播。也差不多要放五期了吧。 ...</blockquote>
+本来想说四期生都在老老实实直播，又一想已经被安排了2个姨，那没事了。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 10775#       发表于 2020-6-7 15:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">马内甲和人体堂内外夹攻，holo半年都撑不住了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10776#       发表于 2020-6-7 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710131&amp;ptid=1938145" target="_blank">zhicai618 发表于 2020-6-7 15:23</a>
+网易那个mc公告。你楼几楼讨论的给个坐标呗</blockquote>
+好像不只是mc的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/6c1247dd7b4e89b314fc726b707fd8c2/IMG_C7293E7F5C0F1FD11F74DBB1622BF666.jpeg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 10777#       发表于 2020-6-7 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710176&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-7 15:29</a>
+咩咩家有50个774呢，别操心了</blockquote>
+不应该是364个774排班吗，闰年还能有一个值两天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 10778#       发表于 2020-6-7 15:34
+
+
+
+
+那么五期的平均年龄会不会更上一层呢<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 10779#       发表于 2020-6-7 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710180&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 15:29</a>
+网易的mc应该B综会讨论吧</blockquote>
+不知道跟国际服的有没有关系。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10780#       发表于 2020-6-7 15:35
+
+
+
+
+网易的游戏，真的有直播的必要吗。
+
+去掉几个有外服的，剩下的是什么臭鱼烂虾。。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10781#       发表于 2020-6-7 15:36
+
+
+
+
+网易这是抢着想先凉吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 人家企鹅家大业大也只敢封杀特定平台，网易这就想封杀全体主播？
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10782#       发表于 2020-6-7 15:36
+
+
+
+
+天狗可以再恶心一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">难怪咩咩这么讨厌你们<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10783#       发表于 2020-6-7 15:36
+
+
+
+
+那第五人格可以去世了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10784#       发表于 2020-6-7 15:37
+
+
+
+
+网易除了炉石，还有什么直播有人看吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10785#       发表于 2020-6-7 15:38
+
+
+
+
+想了想网易好像是无所谓，现在应该指望ps5，万一热卖重现索索荣光呢
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10786#       发表于 2020-6-7 15:39
+
+
+
+
+这一代应该期待的难道不是xbox吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10787#       发表于 2020-6-7 15:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710199&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 15:31</a>
+
+vup他们玩的也不是网易服吧。。
+
+syl，今天的as35，miko给小天使打电话有说是什么事儿吗，小天使睡到刚才才 ...</blockquote>
+那个你有认真看过这两起asamiko吗……
+
+打电话是asamiko特色环节morningcall挑战啊，打电话的人都是前一天就提前告知了
+
+第一次call的是龙皇，醒了，在被窝里面接了
+
+今天这次就是没醒 算挑战失败而已 没什么特别的意思
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 10788#       发表于 2020-6-7 15:40
+
+
+
+
+条款摆在那不一定要马上执行啊，先养肥再割
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10789#       发表于 2020-6-7 15:41
+
+
+
+ 本帖最后由 aibot343 于 2020-6-7 15:47 编辑 
+
+b综偷的图，不管什么版本和服务器的mc网易都要管。syl为什么明明同一个论坛信息都有时间差啊，隔壁都高兴不用再看ow了。
+
+zsyl，支持tx重拳出击，禁止cc播任天堂游戏，拳头游戏甚至所有虚幻引擎制作的游戏。
+
+
+
+
+
+
+
+122432vadlgru7aaul9ku0.jpg
+(24.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 15:40 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/154017avv2mlvvakavbaba.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10790#       发表于 2020-6-7 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710300&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-7 15:40</a>
+
+那个你有认真看过这两起asamiko吗……
+
+打电话是asamiko特色环节morningcall挑战啊，打电话的人都是前一天 ...</blockquote>
+没看啊，看了我就不问了。。。
+
+谢谢解答。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 10791#       发表于 2020-6-7 15:42
+
+
+
+
+之前没注意，原来都是nozomi，嘛希望希望，希与望一样。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 10792#       发表于 2020-6-7 15:44
+
+
+
+
+这么说管人来B也不能播MC了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10793#       发表于 2020-6-7 15:44
+
+
+
+
+不得不说还是英文小鬼武德，我管你主播是不是不安，警察会不会出警，反正我就是发英文，持久不断的白嫖+发英文评论让星街都开始练maroon5来服务了。
+
+
+中文观众什么时候才能站起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10794#       发表于 2020-6-7 15:44
+
+
+
+
+网易你好大官威啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+司马丁磊养猪厂
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10795#       发表于 2020-6-7 15:45
+
+
+
+
+上面那个回答，首先要微软声明MC未经允许不得用于直播，网易才有管辖权吧。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10796#       发表于 2020-6-7 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710333&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-7 15:44</a>
+
+这么说管人来B也不能播MC了</blockquote>
+可以啊，网易只管得到国服，管人播国际服就行了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10797#       发表于 2020-6-7 15:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710333&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-7 15:44</a>
+这么说管人来B也不能播MC了</blockquote>
+逛mc国服没了字幕组是不是要爆破网易了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10798#       发表于 2020-6-7 15:46
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 15:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710304&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-7 15:40</a>
+条款摆在那不一定要马上执行啊，先养肥再割</blockquote>
+应该是那什么之剑，拿出来播估计不会管，但万一惹到网易人就提刀来砍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该这个样子吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是那个，一时忘了叫啥了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 10799#       发表于 2020-6-7 15:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710305&amp;ptid=1938145" target="_blank">aibot343 发表于 2020-6-7 15:41</a>
+b综偷的图，不管什么版本和服务器的mc网易都要管。syl为什么明明同一个论坛信息都有时间差啊，隔壁都高兴不 ...</blockquote>
+谢谢。我想问的就是这个
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10800#       发表于 2020-6-7 15:48
+
+
+
+
+CN服也不是网易mc上的啊 管的到？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10801#       发表于 2020-6-7 15:49
+
+
+
+
+你是不是想说达摩克利斯之剑
+
+syl,你网易管不了我，#呲牙
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10802#       发表于 2020-6-7 15:50
+
+
+
+
+网易mc和国际服mc都不是一个东西吧，这管的到？
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10803#       发表于 2020-6-7 15:52
+
+
+
+ 本帖最后由 aibot343 于 2020-6-7 15:53 编辑 
+
+怎么还有人觉得游戏版本能避开啊，windows商店mc地下城首发都没中文，网易获得的是大陆地区的mc管辖权。只要在大陆平台播，网易就能管到，封不了游戏端，可以直接找平台管理方下架直播、视频，梦幻西游做过一次了，这次有可能扩散到旗下全部游戏而已。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10804#       发表于 2020-6-7 15:52
+
+
+
+
+按前面发的那图mc国际版在国内的直播出现网易也能管。
+不过网易这二道搞这套不就是求骂么…
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10805#       发表于 2020-6-7 15:53
+
+
+
+
+网易就没有脸这东西，能怕你套皮主播粉丝骂两句？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 10806#       发表于 2020-6-7 15:54
+
+
+
+
+网易还会怕主播痴骂两句吗，什么场面没见过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10807#       发表于 2020-6-7 15:55
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-7 15:57 编辑 
+
+不是，管辖权是管辖权，如果微软就没规定mc不能用于直播，网易凭啥管国际服，梦幻西游是因为全部权利都在网易手里，不一样的。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10808#       发表于 2020-6-7 15:55
+
+
+
+
+说起来国际服的mc的版本一直是领先网易好几个版本的，玩最新版本的话应该就管不到了吧
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 10809#       发表于 2020-6-7 15:55
+
+
+
+
+网易的脸皮是你们几个套皮主播粉丝骂的穿的？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10810#       发表于 2020-6-7 15:55
+
+
+
+
+最先骂的肯定不会是套皮主播粉丝啊，人家那帮天天播mc的肯定是最先头疼的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10811#       发表于 2020-6-7 15:56
+
+
+
+
+反正就是看过几天能不能播呗，也就这样。
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10812#       发表于 2020-6-7 15:56
+
+
+
+
+版权流氓，版权时代的悲哀
+希望网易出事🙏
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10813#       发表于 2020-6-7 15:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">网易真禁也轮不到套皮主播当主力骂 不慌
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 10814#       发表于 2020-6-7 16:00
+
+
+
+
+希望网易先禁ow。我会<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10815#       发表于 2020-6-7 16:00
+
+
+
+ 本帖最后由 aibot343 于 2020-6-7 16:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710427&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 15:55</a>
+
+不是，管辖权是管辖权，如果微软就没规定mc不能用于直播，网易凭啥管国际服，梦幻西游是因为全部权利都在网 ...</blockquote>
+网易要是管不到啥发公告啊，难道指望微软帮主播打官司？而且网易管的不是国际服，是大陆平台上的mc直播。
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 10816#       发表于 2020-6-7 16:01
+
+
+
+
+要不禁了第五人格。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10817#       发表于 2020-6-7 16:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710473&amp;ptid=1938145" target="_blank">aibot343 发表于 2020-6-7 16:00</a>
+
+网易要是管不到啥发公告啊，难道指望微软帮主播打官司？</blockquote>
+网易发的公告是网易服的啊，那个截图是mc中文wiki说的，网易还没发不给播国际服的公告呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10818#       发表于 2020-6-7 16:03
+
+
+
+
+转播他也管得了？好大的官威啊！<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10819#       发表于 2020-6-7 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47710496&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-7 16:02</a>
+
+网易发的公告是网易服的啊，那个截图是mc中文wiki说的，网易还没发不给播国际服的公告呢 ...</blockquote>
+网易管不了国际服就像网游限版号纯单机不受影响一样。网易真流氓起来会给你留下这漏洞吗，还是我国法院会保护根本不存在的外服游戏。
+
+
+
+
+
+
+
+-----
+
+####  long87755025  
+##### 10820#       发表于 2020-6-7 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709997&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-06-07 15:10:04</a>
+kson自己solo都够了</blockquote>kson在油管都是单人直播吗？有试过真人联动过吗？<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+                                       
