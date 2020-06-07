@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 04:08** 
+> ## **本文件最后更新于2020-06-07 10:10** 
 
 
 
@@ -16110,7 +16110,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_y0UWa" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_EJ8nN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -20921,7 +20921,7 @@ goddog korone，用c套代替观众的手指到来了
 51合一可以掀桌，多人对战会很有节目效果。可以请爱表演爱玩吃瘪艺和发狂艺的某些管人秀起来。
 
 可惜不是每个管人都能合法直播这游戏。
-<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_cmT00" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_S66UH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -27915,4 +27915,526 @@ syl，我不听我不听，meaqua是真的
 
 
 
-  
+
+
+-----
+
+####  kanonsisya  
+##### 10419#       发表于 2020-6-7 04:14
+
+
+
+[https://www.twitch.tv/hanryang1125](https://www.twitch.tv/hanryang1125)
+
+韩国人来了来了，随便搜到的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10420#       发表于 2020-6-7 04:29
+
+
+
+
+miko还在播？不知道是沉迷了还是打算等30w
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 10421#       发表于 2020-6-7 05:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705690&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 04:29</a>
+
+miko还在播？不知道是沉迷了还是打算等30w</blockquote>
+播到早上接早安MIKO吧，也不是第一次了
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 10422#       发表于 2020-6-7 06:13
+
+
+
+
+好久没回来了，电竞三字母都退役了，管人三字母还在吗
+
+另：之前类比水子哥=水子姐，看来杏就是TES了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 10423#       发表于 2020-6-7 06:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705798&amp;ptid=1938145" target="_blank">Igarashi 发表于 2020-6-7 06:13</a>
+好久没回来了，电竞三字母都退役了，管人三字母还在吗
+
+另：之前类比水子哥=水子姐，看来杏就是TES了 ...</blockquote>
+🛀🏻狗退役，电竞juan放鞭炮
+不过三小姐还在呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 10424#       发表于 2020-6-7 06:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705798&amp;ptid=1938145" target="_blank">Igarashi 发表于 2020-6-7 06:13</a>
+好久没回来了，电竞三字母都退役了，管人三字母还在吗
+
+另：之前类比水子哥=水子姐，看来杏就是TES了 ...</blockquote>
+宁来啦，v圈水子哥已经退一步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 10425#       发表于 2020-6-7 06:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705627&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 03:38</a>
+坏女人是说久远千岁，虽然我不能理解因为人家去了裸春就转anti的人......
+
+丸之内合集，2P就是千岁的，不过 ...</blockquote>
+补个盐天使版本
+https://b23.tv/Y16Xrj
+7:43开始
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 10426#       发表于 2020-6-7 07:33
+
+
+
+
+大清早就看见爱丽丝在直播装机<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 10427#       发表于 2020-6-7 07:47
+
+
+
+ 本帖最后由 敖轩 于 2020-6-7 07:48 编辑 
+
+她要是不说话闷头装，应该不要半个小时。
+
+但做节目嘛，感觉要2个小时，先把观众的血压拉起来。
+
+
+ syl，我错了，45分钟了，主板还没安上去。这把要4个小时。
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10428#       发表于 2020-6-7 07:50
+
+
+
+
+你哪来的自信半小时能装完…昨天cpu内存硬盘散热装了3小时
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  敖轩  
+##### 10429#       发表于 2020-6-7 07:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705985&amp;ptid=1938145" target="_blank">黑耀星尘 发表于 2020-6-7 07:50</a>
+
+你哪来的自信半小时能装完…昨天cpu内存硬盘散热装了3小时
+
+
+—— 来自 samsung SM-G9750, Android 10上的 S ...</blockquote>
+等于说她这个节目还是分两天播放的。
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10430#       发表于 2020-6-7 07:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705994&amp;ptid=1938145" target="_blank">敖轩 发表于 2020-6-7 07:54</a>
+等于说她这个节目还是分两天播放的。</blockquote>
+我看不是耐久的话今天也装不完<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10431#       发表于 2020-6-7 08:02
+
+
+
+
+元欅坂46・長沢菜々香「IT社長と半同棲＆スシローデート直後に彼氏宅からYouTube配信、オタクから投げ銭搾取」
+
+
+わため？！
+
+
+
+
+
+
+
+-----
+
+####  NeTlk  
+##### 10432#       发表于 2020-6-7 08:20
+
+
+
+ 本帖最后由 NeTlk 于 2020-6-7 08:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705627&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 03:38</a>
+坏女人是说久远千岁，虽然我不能理解因为人家去了裸春就转anti的人......
+
+丸之内合集，2P就是千岁的，不过 ...</blockquote>
+补一个鷹森ツヅル的版本
+[https://www.bilibili.com/video/BV14E41117Bf](https://www.bilibili.com/video/BV14E41117Bf)
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10433#       发表于 2020-6-7 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705690&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 04:29</a>
+
+miko还在播？不知道是沉迷了还是打算等30w</blockquote>
+……单纯杀上瘾了
+
+以前有asamiko需要准备的时候都是3点以前下播的 今天及其例外
+
+
+观众催下播催了2小时就是不下
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 10434#       发表于 2020-6-7 08:46
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gfjfowz2zqj20jw0b9myc.jpg" referrerpolicy="no-referrer">
+
+
+サメ原
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 10435#       发表于 2020-6-7 09:16
+
+
+
+
+湊あくあ　別の場所に旅立つ
+[https://www.nicovideo.jp/watch/sm36985984](https://www.nicovideo.jp/watch/sm36985984)
+
+虽然弹幕老三篇了，音乐响起来还是不厚道的笑了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 10436#       发表于 2020-6-7 09:40
+
+
+
+
+最近没有紫洋葱APEX下饭了，白洋葱APEX能多来点么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10437#       发表于 2020-6-7 09:43
+
+
+
+
+ロロ
+
+@L0L0_0707
+
+みなさんおはようございます！
+
+今日も素敵な一日になりますように⚡︎
+
+[https://twitter.com/L0L0_0707/status/1269406729768284160](https://twitter.com/L0L0_0707/status/1269406729768284160)
+
+<img src="https://img.saraba1st.com/forum/202006/07/094238apji5ivddvd0ij77.gif" referrerpolicy="no-referrer">
+
+
+<strong>897668.gif</strong> (1.86 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 09:42 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 10438#       发表于 2020-6-7 09:43
+
+
+
+
+鳴神 裁
+
+@narukami_sabaki
+
+【募】Vtuber界で過去に流行った言葉を教えて下さい！
+
+「配信style～」「陰湿すぎるよ...」から、
+
+「黙認ベース」「ユニコーン」等ライバーの発言ではない物まで
+
+（ここで教えるの気が引ける場合はDMで！）
+
+
+ある程度まとまったらリスト化して流行語大賞作ります
+
+
+
+虹杏越对立你裁就越如鱼得水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10439#       发表于 2020-6-7 09:50
+
+
+
+
+我怀疑我是管人的丸之内听太多了，结果标准完全变了。
+
+不过苹果女王的那种戏虐的情绪散发的真好阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10440#       发表于 2020-6-7 09:55
+
+
+
+
+看了会爱丽丝装机，我发现昨天打sc说换主板然后被出警钱不够多打点sc的，你们根本没必要讨论钱的问题，这电脑的配置预算突出一个自由…<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+她这个机箱我jd找了一下最相似的是309，13kg，1700，但是309只有黑色。又去日亚上找了下，发现她买的应该是307，日亚上4w日元，比309轻一点11kg。颜值胜过一切，主板显卡硬盘电源都可以缩，机箱是不可能缩的！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 10441#       发表于 2020-6-7 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706526&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-7 09:43</a>
+鳴神 裁
+
+@narukami_sabaki
+
+【募】Vtuber界で過去に流行った言葉を教えて下さい！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐子人只求乐子，不求真相。中国日本都这样，反正有个乐子笑就行了，不需要思考，管他是不是真相。
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10442#       发表于 2020-6-7 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706623&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-7 09:55</a>
+
+看了会爱丽丝装机，我发现昨天打sc说换主板然后被出警钱不够多打点sc的，你们根本没必要讨论钱的问题，这电 ...</blockquote>
+爱丽丝自己说的就是为了好看可爱才特意选的这个机箱 日亚上2500rmb吧看了下led效果是挺好玩的
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10443#       发表于 2020-6-7 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706665&amp;ptid=1938145" target="_blank">黑耀星尘 发表于 2020-6-7 09:59</a>
+
+爱丽丝自己说的就是为了好看可爱才特意选的这个机箱 日亚上2500rmb吧看了下led效果是挺好玩的 ...</blockquote>
+然儿这个机箱的颜值不主要靠上半部的360水冷排吗，她用的风冷还是RGB党一生之敌的猫头鹰啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10444#       发表于 2020-6-7 10:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706665&amp;ptid=1938145" target="_blank">黑耀星尘 发表于 2020-6-7 09:59</a>
+爱丽丝自己说的就是为了好看可爱才特意选的这个机箱 日亚上2500rmb吧看了下led效果是挺好玩的 ...</blockquote>
+我主要是吐槽前面的直男装机思路。真要说2500，图吧垃圾佬够给你整个网吧了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
