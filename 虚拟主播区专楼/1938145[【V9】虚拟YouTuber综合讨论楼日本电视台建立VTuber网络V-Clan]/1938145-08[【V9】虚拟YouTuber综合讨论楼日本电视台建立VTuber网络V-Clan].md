@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 02:09** 
+> ## **本文件最后更新于2020-06-08 04:08** 
 
 
 
@@ -10792,10 +10792,11 @@ syl，小天使这新翻唱真的还好啊，我这循环了十 ...</blockquote>
 
 
 
- 参与人数 1战斗力 -2
+ 参与人数 2战斗力 -1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| YODOboi| + 1|这就是真人偶像主播吗^^_|
 | KyotoAnimation|-2|我受不了了|
 
 
@@ -16526,4 +16527,390 @@ winda老哥激动了  “眼熟”</blockquote>
 
 
 
-                     
+
+
+-----
+
+####  ひびき  
+##### 11360#       发表于 2020-6-8 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716473&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-8 02:03</a>
+
+有些人炸之前觉得自己是加州德州，炸完了发现自己原来是乌克兰</blockquote>
+别人不说，宫姨这种已经爬起过来一次的，说不能再爬起来一次可能性实在太低<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+syl，阿希不会真是bs古参吧，不会吧不会吧
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11361#       发表于 2020-6-8 02:16
+
+
+
+
+说到发歌，天音今天这首歌没写PV制作是谁，大概就是自己做的吧，看来是比较急着发没空找人专门做了？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11362#       发表于 2020-6-8 02:33
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-8 02:39 编辑 
+<blockquote>free 发表于 2020-6-8 02:16
+说到发歌，天音今天这首歌没写PV制作是谁，大概就是自己做的吧，看来是比较急着发没空找人专门做了？ ...</blockquote>
+这次不算有pv吧233，那几个特效估计是自己做的了。
+
+这歌的卫星好久了，本来五月中旬就该发了，不知道是哪一环节拖到现在。看了下卫星是4.27，20w/出道4个月纪念的时候上天的，那时候曲绘已经有了，放了一角但是完成度挺高的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11363#       发表于 2020-6-8 02:35
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-8 02:03
+二月发歌那个应该是去年还没出道时在推上放的卫星，忙起来就鸽了
+
+偶尔tc服务一下古参也没毛病吧 ...</blockquote>
+打了盘星际仔细想想也没啥，晚上估计是被芙宝扰乱了心智。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11364#       发表于 2020-6-8 02:41
+
+
+
+[https://www.youtube.com/watch?v=2VjdgF0I_oQ](https://www.youtube.com/watch?v=2VjdgF0I_oQ)
+
+Terima Kasih. Sampai Jumpa Lagi.
+
+
+虽然听不懂印尼语，不过Maya Putri居然动了，之前已经8个月没动静，有人说已经实质毕业了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11365#       发表于 2020-6-8 02:43
+
+
+
+
+估计是自己做的，有次杂谈里说找运营做要6月底才能发（其实就是自己懒没有早点堵门），然后就自己学着弄点特效糊弄一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 日本twitch一个fps大主播直播中昏迷，虽然过会儿就醒过来了，但也上了趋势前三。一看上月直播时间，346小时。真·福报
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11366#       发表于 2020-6-8 02:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716600&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 02:35</a>
+
+打了盘星际仔细想想也没啥，晚上估计是被芙宝扰乱了心智。</blockquote>
+芙宝下午到底发了啥，我没看到
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11367#       发表于 2020-6-8 02:45
+
+
+
+
+可以找endolu亲友价啊又不是没合作过<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11368#       发表于 2020-6-8 02:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716626&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-8 02:44</a>
+
+芙宝下午到底发了啥，我没看到</blockquote>
+就魂推截图，不过最近木口怪事儿多，cn也出事儿就被扰乱了心智。
+
+小天使今天还回心心想一起出去旅游，不过估计就是开玩笑那种。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11369#       发表于 2020-6-8 02:48
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-8 02:44
+芙宝下午到底发了啥，我没看到</blockquote>
+无知是福
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11370#       发表于 2020-6-8 02:48
+
+
+
+
+咋回事，点进去一看肥希在脑补男朋友？苔化严重啊这
+
+
+syl，木口这些姨这么多年网络活动的经验了，只是木口炸了而已怎么会回归虚无，倒是不套皮了的可能性比较大。毕竟杏炸了说明套皮主播已经没有未来了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11371#       发表于 2020-6-8 02:51
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/025105qmddfdd5jmf0zdbv.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200608025052.png</strong> (13.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 02:51 上传
+
+
+
+
+
+
+来点mmr元素
+
+母爱逐渐变质
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11372#       发表于 2020-6-8 02:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716633&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 02:46</a>
+
+就魂推截图，不过最近木口怪事儿多，cn也出事儿就被扰乱了心智。
+
+小天使今天还回心心想一起出去旅游，不 ...</blockquote>
+一起旅游挺好的，可以抄天皇作业来点游记repo<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl e神马上地上波出道演唱会，最近肯定没那么多时间了。而且天宝最近又答应龙宝同居了哪还有脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11373#       发表于 2020-6-8 02:54
+
+
+
+
+有的时候急着发歌就不管那么多，自己凑合做个简单PV就上了，常暗那首三合一，空妈那首さよならのかわりに、花束を不都是自己做的。
+
+
+V界做一个比较像样的MV要多少钱，我觉得可以参考下这位有栖永真，人家明码标价把价格置顶的，给V界不少人都做过。
+[https://twitter.com/alice_eishin](https://twitter.com/alice_eishin)
+
+
+做一首高质量的3-5万日元，人民币两三千吧，其实也不算很贵，做的成品质量比如下面这首everything，不管唱还是MV的制作在V界算是很高水准的了。
+[https://www.youtube.com/watch?v=NDrtQpqiAq0](https://www.youtube.com/watch?v=NDrtQpqiAq0)
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/025344nbdennvz6bjv7fn6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (307.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 02:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11374#       发表于 2020-6-8 02:56
+
+
+
+
+这肥希怎么疯狂造纯情碧池人设<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">养gachi新方
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11375#       发表于 2020-6-8 02:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716643&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-8 02:48</a>
+
+无知是福</blockquote>
+越来越好奇了，有没有存了的老哥来个私信，没关系我再乔的碧落也能顶住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11376#       发表于 2020-6-8 03:07
+
+
+
+
+为什么要存那种东西（
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11377#       发表于 2020-6-8 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716681&amp;ptid=1938145" target="_blank"> kanonsisya 发表于 2020-6-8 02:59</a> 引用:crawarb 发表于 2020-6-8 02:48 无知是福 越来越好奇了，有没有存了的老哥来个私信，没关系我再乔的碧落也能顶住 </blockquote>
+一个超debu的狐皇fanart，比真实狐皇还胖三倍你想象下来自: iPhone客户端
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|所噶，不过fa没意思，我想看真实bbw.|
+
+
+
+查看全部评分
+
+
+
+
+                    
