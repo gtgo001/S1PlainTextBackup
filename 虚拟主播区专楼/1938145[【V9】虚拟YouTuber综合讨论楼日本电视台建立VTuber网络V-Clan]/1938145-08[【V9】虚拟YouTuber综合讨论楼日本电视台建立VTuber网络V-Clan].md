@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 18:07** 
+> ## **本文件最后更新于2020-06-07 20:08** 
 
 
 
@@ -789,7 +789,7 @@ all党毒唯多好啊，这个没人恰那个，但只给一个人花钱，cp崩
 
 
 e824b899a9014c08dc9274cd097b02087bf4f429.jpg
-(275.57 KB, 下载次数: 0)
+(275.57 KB, 下载次数: 1)
 
 
 
@@ -885,7 +885,7 @@ e824b899a9014c08dc9274cd097b02087bf4f429.jpg
 <img src="https://img.saraba1st.com/forum/202006/07/115734rqe5y5yokyzwloo8.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-06-07 115322.png</strong> (323.46 KB, 下载次数: 0)
+<strong>批注 2020-06-07 115322.png</strong> (323.46 KB, 下载次数: 1)
 
 下载附件
 
@@ -899,7 +899,7 @@ e824b899a9014c08dc9274cd097b02087bf4f429.jpg
 <img src="https://img.saraba1st.com/forum/202006/07/115858s9vqey84qtlbbf4q.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EV72xouWoAAD6SC (2).jpg</strong> (45.11 KB, 下载次数: 0)
+<strong>EV72xouWoAAD6SC (2).jpg</strong> (45.11 KB, 下载次数: 1)
 
 下载附件
 
@@ -914,7 +914,7 @@ e824b899a9014c08dc9274cd097b02087bf4f429.jpg
 <img src="https://img.saraba1st.com/forum/202006/07/121153v4zv764o2af2rsnj.png" referrerpolicy="no-referrer">
 
 
-<strong>批注 2020-06-07 121140.png</strong> (659.06 KB, 下载次数: 0)
+<strong>批注 2020-06-07 121140.png</strong> (659.06 KB, 下载次数: 1)
 
 下载附件
 
@@ -1378,7 +1378,7 @@ colo哥来点黑桃影好吗
 
 
 1-1F92616464C02.jpg
-(1.09 MB, 下载次数: 0)
+(1.09 MB, 下载次数: 1)
 
 
 
@@ -4228,7 +4228,7 @@ syl，兔皇的f4已经播第二集了，宫皇的fnv什么时候上路啊。
 
 
 1591512111937.png
-(42.31 KB, 下载次数: 9)
+(42.31 KB, 下载次数: 12)
 
 
 
@@ -6488,10 +6488,11 @@ zsyl,towaHK人存疑
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|好评加鹅|
 | bluebaby| + 1|好评加鹅|
 | 魔法使い2019| + 1|❤❤❤|
 
@@ -6613,6 +6614,25 @@ zsyl,towaHK人存疑
 
 梅露回来送大家庭最后一程而已。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -6833,10 +6853,11 @@ syl，就不能是yagoo内忧外患之际下定决心把犯人开了。心心想
 
 
 
- 参与人数 4战斗力 -4
+ 参与人数 5战斗力 -5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1|思路广|
 | 金魚佬|-1|别人还未成年呢|
 | 恶魔娘阿洛|-1|也太V8了|
 | 某穆克拉|-1|下三路没必要|
@@ -7421,6 +7442,25 @@ https://www.youtube.com/watch?v=-BI2YFYWnjc
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -7439,4 +7479,2072 @@ https://www.youtube.com/watch?v=-BI2YFYWnjc
 
 
 
-                                    
+
+
+-----
+
+####  opersuper  
+##### 10906#       发表于 2020-6-7 18:12
+
+
+
+
+狐皇快到Meru复活推下贴一个死者苏生啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10907#       发表于 2020-6-7 18:14
+
+
+
+
+如果限于欅内的话，有neru的曲都挺适合露露去唱的，个人想听等一百年（[https://www.bilibili.com/video/B ... 5558439193689869321](https://www.bilibili.com/video/BV1bx411i77U?from=search&amp;seid=15558439193689869321)），或者组三个人唱浴室旅行（[https://www.bilibili.com/video/B ... 333.788.videocard.3](https://www.bilibili.com/video/BV1RW411g7dr/?spm_id_from=333.788.videocard.3)），反正也没法唱得比原唱还虚了。
+
+如果葵还要像这样组大团的话，三单的二人季节其实是最合适的了，欅里最阳光的主打曲。二单也不是不行，但原版有平手朗诵，谁上谁被处刑，四单.....四单撇开难度，真的太不吉利咯...
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10908#       发表于 2020-6-7 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711548&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 18:03</a>
+
+听了第一句吓得直接关了，有请天gachi鱼头哥评论</blockquote>
+这个问题可能要等我粉丝滤镜摘了再说。。
+
+没那么不堪吧，我觉得一般通过听完应该是没问题的。。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10909#       发表于 2020-6-7 18:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711463&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-7 17:54</a>
+
+辐射4属实不行，兔皇还是赶紧换mgs5吧。</blockquote>
+版权许可申请中……
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10910#       发表于 2020-6-7 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711653&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 18:14</a>
+
+这个问题可能要等我粉丝滤镜摘了再说。。
+
+没那么不堪吧，我觉得一般通过听完应该是没问题的。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">并非什么乐感很好的咱觉得听起来没啥问题吧
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10911#       发表于 2020-6-7 18:26
+
+
+
+
+为什么小天使要挑这首歌翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这首歌感觉适合亚人和meilisha
+syl:久违的上了管才发现meari半个月发了两首歌？勤快起来了呢阿喵喵<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10912#       发表于 2020-6-7 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711790&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-7 18:26</a>
+
+为什么小天使要挑这首歌翻唱这首歌感觉适合亚人和meilisha
+
+syl:久违的上了管才发现meari半个月发了 ...</blockquote>
+说到阿喵喵，在梅露的推下面也看到她了呢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 10913#       发表于 2020-6-7 18:29
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-7 18:14
+如果限于欅内的话，有neru的曲都挺适合露露去唱的，个人想听等一百年（https://www.bilibili.com/video/BV1 ...</blockquote>
+这些还是偏欢快可爱类型的吧，想听露唱変わらないもの 这种调调的，1周年歌回最后三首就很棒很适合
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10914#       发表于 2020-6-7 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711790&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-7 18:26</a>
+
+为什么小天使要挑这首歌翻唱这首歌感觉适合亚人和meilisha
+
+syl:久违的上了管才发现meari半个月发了 ...</blockquote>
+所有这种问题都可以用四个字回答：
+
+孩子喜欢
+
+又不是什么糟糕的东西，也没什么好阻止的。
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 10915#       发表于 2020-6-7 18:34
+
+
+
+
+老本行了，按捺不住
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10916#       发表于 2020-6-7 18:37
+
+
+
+ 本帖最后由 QWANG 于 2020-6-7 18:40 编辑 
+
+粽子说500的SC可以买4瓶可乐了。不过应该只是字面上的意义。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 10917#       发表于 2020-6-7 18:37
+
+
+
+ 本帖最后由 QWANG 于 2020-6-7 18:43 编辑 
+
+她倒是能和魔女相互理解。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10918#       发表于 2020-6-7 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711874&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-7 18:37</a>
+
+粽子说500的SC可以买4瓶可乐了。不过应该只是字面上的意义。</blockquote>
+上日亚看了下，500ml的91一瓶，250l的70一罐。
+
+应该就是字面意义了。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 10919#       发表于 2020-6-7 18:42
+
+
+
+
+日亚这么便宜？售货机应该要两三百円吧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10920#       发表于 2020-6-7 18:43
+
+
+
+
+草
+
+今天悲惨的asamiko 电话也没打通 最后ending问候视频也没有
+
+一个是小天使 一个是mio
+
+不仲说成立
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10921#       发表于 2020-6-7 18:46
+
+
+
+
+芙宝也要清算了吗
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10922#       发表于 2020-6-7 18:46
+
+
+
+
+换MGSV也没用，辐射4只不过是沙盒乞丐版的神秘海域而已，龙酱神海3都不准备拿出来了，要是兔皇播更沙盒的MGSV肯定也是初动巅峰，其实播一下原爆点和MGSV第一章差不多就够了。而且之前35也播过MGSV，效果可以问芙宝<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 10923#       发表于 2020-6-7 18:46
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-7 18:48 编辑 
+
+连击
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10924#       发表于 2020-6-7 18:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是走下坡路的兔皇呐。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10925#       发表于 2020-6-7 18:50
+
+
+
+
+谁没走过下坡路？！ 就算大亏也...!
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10926#       发表于 2020-6-7 18:51
+
+
+
+
+erer姐你别笑，大亏不也打过mgs5<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+管人打沙盒游戏也就打打mc了，其他没人看的
+
+
+
+
+
+
+
+-----
+
+####  黑耀星尘  
+##### 10927#       发表于 2020-6-7 18:51
+
+
+
+
+大亏不也播过MGSV也就打了一次
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10928#       发表于 2020-6-7 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47711806&amp;ptid=1938145" target="_blank">icecry 发表于 2020-6-7 18:29</a>
+
+这些还是偏欢快可爱类型的吧，想听露唱変わらないもの 这种调调的，1周年歌回最后三首就很棒很适合 ...</blockquote>
+露有一个很好就是她虽然声音薄但不容易破，所以选曲宽挺多，但是这种在欅里就不是很多了，所以没法说两句.....我个人还是比较喜欢ponponpon这种电音，很衬她声音。
+
+说到这里，不得不提一些声音又薄又容易破的，欅坂nobody（[https://www.bilibili.com/video/B ... 6504890996428898581](https://www.bilibili.com/video/BV1Wt411n7xD?from=search&amp;seid=16504890996428898581)）2分30秒开始真的是灾难。
+
+希望管人们选曲时都能有自知之明。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10929#       发表于 2020-6-7 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欢迎去v8查我的言论。哦我说的是s1的v8。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10930#       发表于 2020-6-7 18:53
+
+
+
+
+不愧是夸的上位替代，连走下坡路都跟大亏一摸一样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10931#       发表于 2020-6-7 18:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花无百日红而已，正常的历史发展没问题的，反正兔皇还是同接女王。syl此holo危机存亡关头，只有姨们在守社稷，小年轻们都开始另寻出路了，着实心寒。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 10932#       发表于 2020-6-7 18:55
+
+
+
+
+原来带天使最近不播是去另寻出路了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10933#       发表于 2020-6-7 18:56
+
+
+
+
+是在放年假。万一真跑路，还不晓得要去哪里找。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10934#       发表于 2020-6-7 18:57
+
+
+
+
+另寻出路，指苦练健身环准备当健身教练
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10935#       发表于 2020-6-7 18:57
+
+
+
+
+另外的出路是啥?彩虹还是苔箱(ಡωಡ) ，难道是anmr?
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 10936#       发表于 2020-6-7 18:58
+
+
+
+<img src="https://i.loli.net/2020/06/07/jq9cpWZzuIAsCif.jpg" referrerpolicy="no-referrer">
+
+
+真的是你
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 10937#       发表于 2020-6-7 18:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/185827rojbqqqb9z9dsgq2.png" referrerpolicy="no-referrer">
+
+
+<strong>不积德.png</strong> (192.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 18:58 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10938#       发表于 2020-6-7 18:59
+
+
+
+
+就不能是地下偶像凛子，堂堂复活？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10939#       发表于 2020-6-7 19:02
+
+
+
+
+有了套皮这么方便的手段，为什么还要冒着不小心露脸的危险做凛子。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10940#       发表于 2020-6-7 19:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712079&amp;ptid=1938145" target="_blank"> erer 发表于 2020-6-7 19:02</a> 有了套皮这么方便的手段，为什么还要冒着不小心露脸的危险做凛子。 </blockquote>
+二二姐一定相当羡慕凛子的古参粉丝可以一睹真颜来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10941#       发表于 2020-6-7 19:05
+
+
+
+
+想看脸可以试试现在给超电投简历
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10942#       发表于 2020-6-7 19:06
+
+
+
+
+一些郡道：
+
+&gt;之前一些棉花糖真的把她烦到了，本来说关闭一个月，现在想想棉花糖真的垃圾，不玩了。
+
+&gt;公布了观看视频的男女比。以前都是男性多，大概92%（也太多），现在因为那个扭曲仙境的视频，竟然！女性多于男性了！没想到这游戏这么受妹子欢迎...
+
+&gt;转了成濑鸣的直播，可能这位朋友想转型了，换了个超阳角的金发
+
+&gt;614，也就是郡道的生日，那天和sio玩51合1，每人选五个自己觉得胜算大的游戏对决。我猜郡道会完败。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10943#       发表于 2020-6-7 19:10
+
+
+
+
+狗子doom好像gg了，看着好像要变成apex
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10944#       发表于 2020-6-7 19:12
+
+
+
+
+采集卡白给了，选择去和汤哥贴贴。
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 10945#       发表于 2020-6-7 19:12
+
+
+
+
+阴湿哥要进化了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 10946#       发表于 2020-6-7 19:13
+
+
+
+
+cover走了另一个极端了么，现在不是所有游戏都在确认版权吧
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10947#       发表于 2020-6-7 19:14
+
+
+
+
+成濑鸣，变成阳角后能超越木口星吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10948#       发表于 2020-6-7 19:14
+
+
+
+
+设备问题而已，别想太多，35昨天还播了doom。
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 10949#       发表于 2020-6-7 19:15
+
+
+
+
+阴帝旧皮，同接破5k，说一句吊打star不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 10950#       发表于 2020-6-7 19:16
+
+
+
+ 本帖最后由 mmbk 于 2020-6-7 19:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712050&amp;ptid=1938145" target="_blank">耻照 发表于 2020-6-7 18:58</a>
+真的是你</blockquote>
+不是，这是几个意思？都不rp了呗，头真的铁
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 10951#       发表于 2020-6-7 19:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712123&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-7 19:06</a>
+一些郡道：
+
+&gt;之前一些棉花糖真的把她烦到了，本来说关闭一个月，现在想想棉花糖真的垃圾，不玩了。
+
+&gt;公布了 ...</blockquote>
+不是换皮，这个皮是成濑VOIz时期的皮，VOIZ解散之后他才换了现在这个丑炸了的皮
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 10952#       发表于 2020-6-7 19:18
+
+
+
+
+不知不觉6月份了，也差不多快到管人闹合同的时间了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10953#       发表于 2020-6-7 19:19
+
+
+
+
+啊 我要过度解读了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10954#       发表于 2020-6-7 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712216&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-7 19:17</a>
+
+不是换皮，这个皮是成濑VOIz时期的皮，VOIZ解散之后他才换了现在这个丑炸了的皮 ...</blockquote>
+还以为是新皮...好像这个皮在他整合之后从来没见过，是心理上不想用还是大人的原因啊？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10955#       发表于 2020-6-7 19:22
+
+
+
+
+可惜无良企业不让皮直接归V，不然每年看管人转会肯定很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10956#       发表于 2020-6-7 19:22
+
+
+
+
+你们一说我看了一眼，这是什么高光时刻<img src="http://ww1.sinaimg.cn/large/62565dcbly1gfjy2yoz3nj20bu0jd0va.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 10957#       发表于 2020-6-7 19:24
+
+
+
+
+啊，又到了安排谷乡滑跪大亏的季节了吗。我悄悄看了下大亏最近都几天除了推特上练健身环外管已经几天没更新了。上次应该是7月底？这还差一个月呀。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10958#       发表于 2020-6-7 19:24
+
+
+
+
+卧槽我第一次看到这个皮，不是比现在这个好tm一万倍吗？<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10959#       发表于 2020-6-7 19:26
+
+
+
+
+安排？之前那次滑跪原因不就是合同问题吗
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10960#       发表于 2020-6-7 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712278&amp;ptid=1938145" target="_blank">2517君改二 发表于 2020-6-7 19:22</a>
+
+你们一说我看了一眼，这是什么高光时刻</blockquote>
+voiz两周年纪念加上换旧皮，只能说管人要火皮真的是很重要的一部分
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10961#       发表于 2020-6-7 19:26
+
+
+
+
+阿这
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 10962#       发表于 2020-6-7 19:27
+
+
+
+<img src="https://s1.ax1x.com/2020/06/07/t2zkN9.png" referrerpolicy="no-referrer">
+
+我去这凪白你这浓眉大眼的在这个节骨眼上也要背叛HOLO了吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">  no more 韩国人！
+
+
+SYL:今晚这星姐这开清唱估计会有一些平时唱不了的歌？期待···
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10963#       发表于 2020-6-7 19:27
+
+
+
+
+没想到是挑染组参加大赛
+
+
+
+
+
+
+apex_js2.png
+(453.55 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 19:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/192732wdhoh8ddn08n4fz9.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+apex_js.png
+(303.01 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 19:27 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/192731y5ifild9ro6uweaf.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10964#       发表于 2020-6-7 19:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712330&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-7 19:27</a>
+
+没想到是挑染组参加大赛</blockquote>
+他们三个估计只能全程划水了吧，技术不行的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 10965#       发表于 2020-6-7 19:29
+
+
+
+
+凪白这...看得懂韩语?
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 10966#       发表于 2020-6-7 19:31
+
+
+
+
+这是他画的吧，看不看的懂转发一下就行了。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10967#       发表于 2020-6-7 19:33
+
+
+
+
+凪白韩国人说
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10968#       发表于 2020-6-7 19:33
+
+
+
+ 本帖最后由 winda 于 2020-6-7 19:38 编辑 
+
+小魔王的皮，tql<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+emma_august.png
+(1.3 MB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 19:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/193759gmmrp6id9dc5lt5g.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10969#       发表于 2020-6-7 19:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712330&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-7 19:27</a>
+
+没想到是挑染组参加大赛</blockquote>
+黛灰有钻石的水平，大概是两白金一钻石的这配置吧，不过放到人均猎杀的比赛里肯定是不够看的
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 10970#       发表于 2020-6-7 19:34
+
+
+
+ 本帖最后由 ヒトニナル 于 2020-6-7 19:36 编辑 
+
+凪白这个皮已经车过了，楼友有点情弱
+
+
+syl 成濑鸣这个我没见过皮有点顶，当初出道就一直用这个皮现在再差都不可能在3w晃荡啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 10971#       发表于 2020-6-7 19:37
+
+
+
+
+这魔王估计还是救不回来了，彻底底边了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10972#       发表于 2020-6-7 19:37
+
+
+
+
+kson的游戏力只有半亏，太拉了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10973#       发表于 2020-6-7 19:37
+
+
+
+
+已经8000同接了，还好2000不在，不然看到成濑鸣能压着葵皇打估计又要疯了，可能这就是虹男吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10974#       发表于 2020-6-7 19:39
+
+
+
+
+小魔王有和风衣装了，naraka来个泳装好不好<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 10975#       发表于 2020-6-7 19:41
+
+
+
+
+V综和SG区别也太大了，至少我在SG绝对不敢暴露自己粉籍
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 10976#       发表于 2020-6-7 19:42
+
+
+
+
+这数字可千万不能让黑宝看到了。<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 10977#       发表于 2020-6-7 19:45
+
+
+
+
+要一万了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宫宝兔丁  
+##### 10978#       发表于 2020-6-7 19:46
+
+
+
+
+我喜欢这个金毛皮所以一直在看
+
+
+
+
+
+
+1591530328753.jpg
+(43.37 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 19:45 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/194547t5x9cxd86m8ttz9n.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10979#       发表于 2020-6-7 19:46
+
+
+
+
+我滴妈成濑破万了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10980#       发表于 2020-6-7 19:46
+
+
+
+
+破万还行 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10981#       发表于 2020-6-7 19:47
+
+
+
+
+今天的SC是几个月工资啊
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 10982#       发表于 2020-6-7 19:47
+
+
+
+
+”杏星和虹的成濑鸣相比怎么样？“
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 10983#       发表于 2020-6-7 19:48
+
+
+
+
+支持成濑橄榄葛叶和剑持，职场霸凌许せない <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10984#       发表于 2020-6-7 19:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">又是个黄发
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 10985#       发表于 2020-6-7 19:50
+
+
+
+
+这是卧薪尝胆<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+杏星输的透彻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10986#       发表于 2020-6-7 19:51
+
+
+
+
+郡道老师出没
+
+
+
+
+
+
+郡道.png
+(790.64 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 19:51 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/195100lrfyp1l7b1b5g0ro.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10987#       发表于 2020-6-7 19:52
+
+
+
+
+虹垫底都有1w同接，holo是什么叻色，秒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 10988#       发表于 2020-6-7 19:52
+
+
+
+
+彩虹换个皮就起飞的例子还挺多的，记得以前樱凛月公主好像也是换皮起飞的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 10989#       发表于 2020-6-7 19:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">我滴妈 木口的确要完了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10990#       发表于 2020-6-7 19:54
+
+
+
+
+哈~~~~~~~~~~~~~寂~~~~~~~~~~~~~~~~~~~~灭~~~~~~~~~~~~~~~~~~~~
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 10991#       发表于 2020-6-7 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">首播效应吧，这种喂饭都要吐出来的我是不信起得来
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10992#       发表于 2020-6-7 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹崛起了，起码比杏多活几天嗷
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 10993#       发表于 2020-6-7 19:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712516&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-6-7 19:47</a>
+
+”杏星和虹的成濑鸣相比怎么样？“</blockquote>
+黑宝名言+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+讲道理，杏星上杏cm的时候也有万棒，不算输
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10994#       发表于 2020-6-7 19:56
+
+
+
+
+转友坛截图
+
+<img src="https://img.saraba1st.com/forum/202006/07/195626do4xzlxzm9mtj7a9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-h2znZ1eT3cShx-j6.jpg.medium.jpg</strong> (73 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 19:56 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 10995#       发表于 2020-6-7 19:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该问下黑宝上次star新衣发布接力的同接了
+
+有福同不同享不知道，播不了老任有难同当应该没差了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 10996#       发表于 2020-6-7 19:56
+
+
+
+
+黑宝下次可以问问春崎和伏见吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10997#       发表于 2020-6-7 19:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712597&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-7 19:55</a>
+
+黑宝名言+1
+
+讲道理，杏星上杏cm的时候也有万棒，不算输</blockquote>
+黑宝看到又要哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 10998#       发表于 2020-6-7 19:57
+
+
+
+
+那么保险的话都能吃瘪，
+
+看来要继续顺劈黑宝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 10999#       发表于 2020-6-7 19:57
+
+
+
+
+你杏的画师一个一个出道，甚至连女儿还没出道的自己就先出道了
+[https://twitter.com/taniya001/status/1269581563101982720](https://twitter.com/taniya001/status/1269581563101982720)
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 11000#       发表于 2020-6-7 19:57
+
+
+
+
+我和本军和砍二万？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 11001#       发表于 2020-6-7 19:58
+
+
+
+
+world wide联动大概是和印尼的。之前486突击联动过。
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 11002#       发表于 2020-6-7 19:58
+
+
+
+[https://www.bilibili.com/video/BV1BA411v7ug](https://www.bilibili.com/video/BV1BA411v7ug)
+
+草，乳神田了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/07/195841n04qzpep71bfqppp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图-198453687.jpg</strong> (89.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 19:58 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 11003#       发表于 2020-6-7 19:59
+
+
+
+
+虹男竞争现在不比虹女小的，特别是彩虹扩圈缓慢开始内卷，三小只到现在还在底边捞不起来呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11004#       发表于 2020-6-7 19:59
+
+
+
+<blockquote>如果认为比成濑鸣好，我就起誓以后不再说任何疯话了</blockquote>
+黑宝又要讲疯话了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 11005#       发表于 2020-6-7 20:00
+
+
+
+
+我看了下概要栏，这皮就今天这么用一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后继续用那个拉跨到马里亚纳海沟的粉挑染皮依然是救不回来的啊兄
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11006#       发表于 2020-6-7 20:02
+
+
+
+
+好了， 大局已定！
+
+
+holo已是四面杏歌之境！
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 11007#       发表于 2020-6-7 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712277&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 19:22</a>
+
+可惜无良企业不让皮直接归V，不然每年看管人转会肯定很有意思</blockquote>
+那么是有一个统一的管人联盟像NBA那样有趣，还是像欧洲足球那样有乐子呢
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11008#       发表于 2020-6-7 20:02
+
+
+
+
+行，想看我说疯话还不容易<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 11009#       发表于 2020-6-7 20:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712661&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-7 20:02</a>
+
+行，想看我说疯话还不容易</blockquote>
+你说疯话才能有名言啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11010#       发表于 2020-6-7 20:04
+
+
+
+
+bsyl，我家还在停电，一弦的B限看不成了手机也没电了，姑且先转一下冬臣给律可的贺图
+
+<img src="https://img.saraba1st.com/forum/202006/07/200444rn22xktxna00k1aa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1591531223299.jpg</strong> (99.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 20:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Igarashi  
+##### 11011#       发表于 2020-6-7 20:04
+
+
+
+
+我落后版本太多了，谁来给我补课一下梅露和夸分别咋了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 11012#       发表于 2020-6-7 20:05
+
+
+
+
+这不是ig老哥吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11013#       发表于 2020-6-7 20:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712680&amp;ptid=1938145" target="_blank">Igarashi 发表于 2020-6-7 20:04</a>
+
+我落后版本太多了，谁来给我补课一下梅露和夸分别咋了</blockquote>
+梅露可以去b站看声明，官组转发翻译了。
+
+大亏休年假去了。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11014#       发表于 2020-6-7 20:07
+
+
+
+
+梅露现在没什么变化，把cover那封说明看完就行了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11015#       发表于 2020-6-7 20:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看cover名人堂，把握最“杏”动向
+
+
+
+
+
+                                

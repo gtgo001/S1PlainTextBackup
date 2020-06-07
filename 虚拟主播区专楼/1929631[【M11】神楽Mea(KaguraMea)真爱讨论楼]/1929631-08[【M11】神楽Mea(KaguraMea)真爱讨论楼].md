@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 16:03** 
+> ## **本文件最后更新于2020-06-07 20:02** 
 
 
 
@@ -13838,4 +13838,512 @@ s1私聊功能不好用，之前私聊过有时候会看不到消息（不管是
 
 
 
-                       
+
+
+-----
+
+####  GRMeA104  
+##### 11303#       发表于 2020-6-7 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 11304#       发表于 2020-6-7 17:25
+
+
+
+
+还是昨天讨论击剑部有趣
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11305#       发表于 2020-6-7 17:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不知道你们听完新歌之后推送的是啥，我的是恋爱循环，然后又听了几遍，真可爱啊……吃晚饭去了，晚上目测不会播了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11306#       发表于 2020-6-7 17:43
+
+
+
+
+车，都可以车，献祭暗黑贴贴人换个这个月的限定贴贴配信可以吗？算了算时间也快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 11307#       发表于 2020-6-7 17:46
+
+
+
+
+怎么黑暗贴贴人能当这么长时间的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我有大半年没关心这事了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11308#       发表于 2020-6-7 17:56
+
+
+
+
+那一般的暗黑贴贴人没用，要献祭mk2才行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11309#       发表于 2020-6-7 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">虽然暗黑贴贴人不是什么好东西，但是贴贴人也不是什么。。。。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11310#       发表于 2020-6-7 18:31
+
+
+
+
+总感觉这几个怕不是也要整出个什么组来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/39927432c18df40ff085545847445bb1/37f19cbb028b883.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11311#       发表于 2020-6-7 18:38
+
+
+
+
+咩加的组还不够多吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">再来个麻将组
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 11312#       发表于 2020-6-7 18:39
+
+
+
+
+ハメたま＋α
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11313#       发表于 2020-6-7 18:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/230.gif" referrerpolicy="no-referrer">麻将组早点没吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11314#       发表于 2020-6-7 19:05
+
+
+
+
+如月妈画了好几回fanart了<img src="https://p.sda1.dev/0/9a62ea46d0f5dfe1494b4cacb55b23ed/IMG_8089E311CDCE20859EB7EEC043672DA4.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/ef9e285969ff8b4c5a7ae95c07740707/99B15699298C4003494CFBDA3385AE9C.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11315#       发表于 2020-6-7 19:11
+
+
+
+
+看不懂麻将，每回麻将联动都有点头大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11316#       发表于 2020-6-7 19:12
+
+
+
+
+麻将我都直接挂着听个响<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">球球你打王者荣耀吧，起码我能看懂
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11317#       发表于 2020-6-7 19:17
+
+
+
+ 本帖最后由 pei23333 于 2020-6-7 19:23 编辑 
+
+如月妈这图是要拿下神乐组的推特头图？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11318#       发表于 2020-6-7 19:18
+
+
+
+
+我觉得做不到
+
+3人演绎出来的的关系没到那程度
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 11319#       发表于 2020-6-7 19:20
+
+
+
+
+視線的傳遞過程還原度蠻高的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11320#       发表于 2020-6-7 19:21
+
+
+
+
+但是要换单人的话还不如换这个呢(눈_눈)，顺水推舟还体现pro力和宣传
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11321#       发表于 2020-6-7 19:21
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-7 19:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">说到底你麻如果是狐皇早就能够构建一定的箱关系
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">现在还是没有一个小箱的样子
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你麻最年长，却最矮，有点杂鱼的意思了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11322#       发表于 2020-6-7 19:23
+
+
+
+
+自由点挺好
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11323#       发表于 2020-6-7 19:26
+
+
+
+
+啊这图，我已经脑补一部gal了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11324#       发表于 2020-6-7 19:27
+
+
+
+
+,,,,,,你不说我还
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11325#       发表于 2020-6-7 19:28
+
+
+
+
+小紫暗恋小绿，但是小绿却被年轻的前辈所蛊惑......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11326#       发表于 2020-6-7 19:29
+
+
+
+
+这构图挺一家三口的，mea放很多构图里都挺一家三口而且是安定的女儿役
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11327#       发表于 2020-6-7 19:32
+
+
+
+
+其实比起换神乐组头图，我感觉她换个苔苔+黄兔子的可能性还大一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当然可能性最大的是不换或者换个单人的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11328#       发表于 2020-6-7 19:36
+
+
+
+
+就这样吧，这个挺好的，留个念想<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11329#       发表于 2020-6-7 19:43
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 19:12
+麻将我都直接挂着听个响球球你打王者荣耀吧，起码我能看懂</blockquote>
+彩虹貌似有接王者荣耀的工商，也许可以期待lol手游版
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11330#       发表于 2020-6-7 19:43
+
+
+
+
+草，每回看到苔苔在的头图那太折磨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11331#       发表于 2020-6-7 19:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这视线方向，扭曲怪大欢喜（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11332#       发表于 2020-6-7 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">人家是相爱，哪轮得到你麻
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11333#       发表于 2020-6-7 19:52
+
+
+
+
+风怒
+
+
+
+
+
+                      
