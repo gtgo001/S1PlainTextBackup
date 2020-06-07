@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 10:10** 
+> ## **本文件最后更新于2020-06-07 12:09** 
 
 
 
@@ -16110,7 +16110,7 @@ aki.png
 
 
 
-<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_EJ8nN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZxdO2eUYAAe983?format=jpg&amp;name=medium" height="450" id="aimg_aGcC8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 是我眼里有了梁木还是怎样，好韩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -20921,7 +20921,7 @@ goddog korone，用c套代替观众的手指到来了
 51合一可以掀桌，多人对战会很有节目效果。可以请爱表演爱玩吃瘪艺和发狂艺的某些管人秀起来。
 
 可惜不是每个管人都能合法直播这游戏。
-<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_S66UH" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://img3.chouti.com/CHOUTI_200526_929AC26607D44CC78B90DA2AA4DF5A91.gif?imageView2/1/q" id="aimg_gK487" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -28437,4 +28437,1037 @@ miko还在播？不知道是沉迷了还是打算等30w</blockquote>
 
 
 
- 
+
+
+-----
+
+####  黑耀星尘  
+##### 10445#       发表于 2020-6-7 10:23
+
+
+
+
+要是能整个实时画面装机直播就好了。可惜
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 10446#       发表于 2020-6-7 10:25
+
+
+
+
+实时装机容易被特定 不过我觉得像黄兔子一样 带个手套 应该问题不大吧 不过这样装机 很麻烦吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10447#       发表于 2020-6-7 10:27
+
+
+
+
+家有女友给爷整吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10448#       发表于 2020-6-7 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47705446&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-7 02:25</a>
+他们既不喜欢神田也不喜欢郡道（神田粉这方面对他们的怒意更高）
+
+
+贴贴人是这样的 ...</blockquote>
+我都开始怀念以前看到的铁血神田推了，好想找他一起痛骂郡神粉.......
+而且贴贴人也不是这么贴的吧，我自认也是贴贴人，我对郡道的相方可说不出那么过分的话<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10449#       发表于 2020-6-7 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706025&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-7 08:02</a>
+元欅坂46・長沢菜々香「IT社長と半同棲＆スシローデート直後に彼氏宅からYouTube配信、オタクから投げ銭搾 ...</blockquote>
+はあ？
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 10450#       发表于 2020-6-7 10:31
+
+
+
+ 本帖最后由 帕克桑 于 2020-6-7 10:34 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/103348dz3nm040v3gms4gl.png" referrerpolicy="no-referrer">
+
+
+<strong>X_~_2AGAT~5ICS_4D189D}2.png</strong> (102.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 10:33 上传
+
+
+
+
+
+
+比上次新衣服多了个读sc环节涨了100w 这财富密码还是实在<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10451#       发表于 2020-6-7 10:32
+
+
+
+
+【速报】今天的おめでとうbot
+
+<img src="https://img.saraba1st.com/forum/202006/07/103209qrnnhhajbb1k4b9u.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200607103116.png</strong> (18.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 10:32 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10452#       发表于 2020-6-7 10:36
+
+
+
+
+好像有朋友误会了，郡神还没完蛋呢，昨天郡道才转了神田的新衣装预告。
+两位的关系往最坏里想，用mrra来打比方，也就到郡道说出味增偶像论之前，要拆还有点距离。
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 10453#       发表于 2020-6-7 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">芝麻信用还没死啊
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10454#       发表于 2020-6-7 10:49
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-7 10:52 编辑 
+
+六字母都还没死，军神怎么会死
+
+不如说只要还有利益，就不会完全死掉，反而是mrra这种真心为了对方好的才会在还有利益未挖掘完的情况主动彻底断了往来
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10455#       发表于 2020-6-7 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706885&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-7 10:25</a>
+
+实时装机容易被特定 不过我觉得像黄兔子一样 带个手套 应该问题不大吧 不过这样装机 很麻烦吧 ...</blockquote>
+……戴手套没法装机的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10456#       发表于 2020-6-7 10:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">照你们这理论不闹到mrra那种程度就不算闹掰
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那确实挺难的
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 10457#       发表于 2020-6-7 10:52
+
+
+
+
+六字母真的还没死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 10458#       发表于 2020-6-7 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707092&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-7 10:51</a>
+
+……戴手套没法装机的</blockquote>
+你是真的智障
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10459#       发表于 2020-6-7 10:53
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-7 10:55 编辑 
+
+看下国内的粉群状况，大概只有s1是真心觉得六字母死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+看下咩组每天转的fan art，都是些什么臭鱼烂虾
+
+
+
+
+
+
+
+-----
+
+####  鬼正黑  
+##### 10460#       发表于 2020-6-7 10:54
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-7 10:29
+我都开始怀念以前看到的铁血神田推了，好想找他一起痛骂郡神粉.......
+
+而且贴贴人也不是这么贴的吧，我自 ...</blockquote>
+那种不是典型的不把CP中的一方当人看的类型吗？(
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10461#       发表于 2020-6-7 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707104&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-7 10:52</a>
+
+照你们这理论不闹到mrra那种程度就不算闹掰
+
+那确实挺难的</blockquote>
+您觉得mrra闹掰到那种程度啊？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10462#       发表于 2020-6-7 11:00
+
+
+
+
+怎么还跟小博禹较劲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外别s1别复读六字母死了就信以为真啊。营业完了俩v也没闹掰啊，要把粉丝和v是不一样的，是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10463#       发表于 2020-6-7 11:05
+
+
+
+
+那期待一个六字母步mrra后尘好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10464#       发表于 2020-6-7 11:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又车六字母啊。小博🐟的kpi指标这么好混的吗？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10465#       发表于 2020-6-7 11:07
+
+
+
+
+只是讨论军神顺劈六字母而已。顺便xby一早被屏蔽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10466#       发表于 2020-6-7 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707233&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-7 11:05</a>
+
+那期待一个六字母步mrra后尘好吧</blockquote>
+您给讲讲mrra的后尘是怎样的嘞？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10467#       发表于 2020-6-7 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707139&amp;ptid=1938145" target="_blank">鬼正黑 发表于 2020-6-7 10:54</a>
+
+那种不是典型的不把CP中的一方当人看的类型吗？(</blockquote>
+所以看着来气啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10468#       发表于 2020-6-7 11:10
+
+
+
+
+那您看军神跟mrra您选哪一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鬼正黑  
+##### 10469#       发表于 2020-6-7 11:11
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-7 11:07
+您给讲讲mrra的后尘是怎样的嘞？</blockquote>
+老兄真没必要问这些，别人怎么想就怎么想吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10470#       发表于 2020-6-7 11:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707144&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-7 10:55</a>
+您觉得mrra闹掰到那种程度啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">闹掰到郡道自称av**配不上roa，Roa为了这件事玩了一次哭播，roa粉丝还去炎了一波郡道，你说够不够，还是说两人现在依旧是朋友
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">qs,一时贴贴营业，一辈子都在贴贴
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 10471#       发表于 2020-6-7 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707256&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-7 11:07</a>
+只是讨论军神顺劈六字母而已。顺便xby一早被屏蔽了</blockquote>
+所以说黑暗贴贴人就弱智啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一边表达自己对推多喜欢喜欢，一边巴不得自己推和人闹得明面上
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 10472#       发表于 2020-6-7 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707302&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-7 11:12</a>
+闹掰到郡道自称av**配不上roa，Roa为了这件事玩了一次哭播，roa粉丝还去炎了一波郡道，你说够不够 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10473#       发表于 2020-6-7 11:14
+
+
+
+
+说实话，看女人撕逼确实比贴贴萌豚营业要有趣
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10474#       发表于 2020-6-7 11:16
+
+
+
+
+所以你们应该支持狐夸，什么马车打哭，什么幼女rp相互恶心，什么推特yygq，精彩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10475#       发表于 2020-6-7 11:17
+
+
+
+
+女人撕逼女人也爱看阿，还专门出了女尊电视剧让男人宫斗呢
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10476#       发表于 2020-6-7 11:17
+
+
+
+
+那可以期待一波阿夸这次休息回来，少主的第八次复活推。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10477#       发表于 2020-6-7 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707302&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-7 11:12</a>
+
+闹掰到郡道自称av**配不上roa，Roa为了这件事玩了一次哭播，roa粉丝还去炎了一波郡道，你说够不够 ...</blockquote>
+确实不够，要我说闹掰好歹到GNZ左佳那种互相阴阳怪气的程度，而且你这看着就蛮云，郡道这套说法对别的联动对象也有，roa哭的那次说的是自己还是喜欢郡道，后续两人也对mrra有过一些回应。
+
+我可从没说过两人仍然是朋友，营业同事变成不营业同事算闹掰了吗？
+
+还以为您能讲出点郡道被roa打掉门牙之类的郡虐内容，我想多了哈。
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 10478#       发表于 2020-6-7 11:18
+
+
+
+
+mrra现在还有联动过吗，不是单独联动，大联动里同时出场就行
+
+我记得roa主持的喷喷比赛郡道都没有参加吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 10479#       发表于 2020-6-7 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707349&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 11:16</a>
+
+所以你们应该支持狐夸，什么马车打哭，什么幼女rp相互恶心，什么推特yygq，精彩
+
+ ...</blockquote>
+可是夸完全干不过狐皇阿，这种没意思
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10480#       发表于 2020-6-7 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707294&amp;ptid=1938145" target="_blank">鬼正黑 发表于 2020-6-7 11:11</a>
+
+老兄真没必要问这些，别人怎么想就怎么想吧</blockquote>
+我倒没有想改变别人想法的意思，只是以为能收获点新料。
+
+失望了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10481#       发表于 2020-6-7 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707360&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-7 11:17</a>
+那可以期待一波阿夸这次休息回来，少主的第八次复活推。</blockquote>
+夸这次好歹是为了live排练，这也yygq下过分了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+话说夸这个健身环是不是给狐看的啊，你个老女人在胡吃烂喝的时候我在为了梦想努力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10482#       发表于 2020-6-7 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707383&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 11:19</a>
+
+夸这次好歹是为了live排练，这也yygq下过分了
+
+话说夸这个健身环是不是给狐看的啊，你胡吃烂喝的时 ...</blockquote>
+如果阿夸有这么会阴阳怪气，我就不会把她当傻子看了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10483#       发表于 2020-6-7 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707278&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-7 11:10</a>
+
+那您看军神跟mrra您选哪一个</blockquote>
+我都可以啊，郡道喜欢谁就跟谁联动呗。
+
+所以呢？mrra后尘是什么？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10484#       发表于 2020-6-7 11:21
+
+
+
+
+要我说就得梅露夸，一个是天使营业的社内红人，另一个是陷入绯闻风波的摸鱼达人，针尖对麦芒
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 10485#       发表于 2020-6-7 11:21
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-6-7 11:22 编辑 
+
+单纯点，就是变成坦克怕了要减肥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl楼上不是说了吗，我觉得到这份上就算是明面上掰了，您觉得还行那也行吧，我老师看的不多，每个人看法也不一样，见笑了。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10486#       发表于 2020-6-7 11:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">为了防止装散热的时候滴血认亲我一直都是戴手套装机
+
+雅浚g3还送了双手套，怎么就不能装机了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10487#       发表于 2020-6-7 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707361&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-7 11:17</a>
+确实不够，要我说闹掰好歹到GNZ左佳那种互相阴阳怪气的程度，而且你这看着就蛮云，郡道这套说法对别的联 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">场面话谁不说，真就靠场面话维持关系呗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要的闹掰是互扯头皮，互抡拳头，那希望下次有闹掰的v来一次真人线下拳击，打到对方认错，败者线上道歉吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">希望我家咩能赢
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10488#       发表于 2020-6-7 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707399&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-7 11:21</a>
+
+要我说就得梅露夸，一个是天使营业的社内红人，另一个是陷入绯闻风波的摸鱼达人，针尖对麦芒 ...</blockquote>
+不人气的梅露还是歇歇吧，我们看撕逼也只看上位。
+
+
+
+
+
+
+
+-----
+
+####  Devi_Lito  
+##### 10489#       发表于 2020-6-7 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706920&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-7 10:29</a>
+
+はあ？</blockquote>
+775在ins上都承认了：在团认识，毕业交往，计划8月份结婚
+
+
+基本上是misa的复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10490#       发表于 2020-6-7 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707417&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-7 11:22</a>
+
+场面话谁不说，真就靠场面话维持关系呗
+
+你要的闹掰是互扯头皮，互抡拳头，那希望下次有闹 ...</blockquote>
+是啊，您以为闹掰这种东西是怎样呢？就是原本稳固的关系被毁坏啊。
+
+反正V说出来的东西都可以当成场面话，那您说的就是不知哪云了的脑补咯？
+
+这样好吧，哪天您屈尊看了次郡道roa的直播，发现她们互殴了，发到楼里，我必加鹅感谢好吧
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10491#       发表于 2020-6-7 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707401&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-7 11:21</a>
+
+单纯点，就是变成坦克怕了要减肥
+
+syl楼上不是说了吗，我觉得到这份上就算是明面上掰了，您觉得还行 ...</blockquote>
+翻译：我也不知道mrra怎样，但是看着挺好劈就说了，云了
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 10492#       发表于 2020-6-7 11:33
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-7 11:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707302&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-7 11:12</a>
+闹掰到郡道自称av**配不上roa，Roa为了这件事玩了一次哭播，roa粉丝还去炎了一波郡道，你说够不够 ...</blockquote>
+那也比两个婊|子还互相拿着对方当财富密码，赚钱工具好吧
+
+毕竟不论怎样，meamea都是夸在bilibili最好的朋友呢，虽然meamea把夸夸当成盈利挂件，有事没事就要蹭夸夸一下，但夸夸还不计前嫌，也不在意meamea是不是处女，还愿意提一meamea，肯定要比mrra真呢<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 10493#       发表于 2020-6-7 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707480&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-7 11:28</a>
+
+是啊，您以为闹掰这种东西是怎样呢？就是原本稳固的关系被毁坏啊。
+
+反正V说出来的东西都可以当成场面话， ...</blockquote>
+你的意思是本来就只是逢场作戏的营业关系，根本没关系可闹掰吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10494#       发表于 2020-6-7 11:33
+
+
+
+
+梅露这种真hololive反抗军为什么要和夸撕，那肯定要和拿了一期生C位，被传为半个运营的狐皇撕啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10495#       发表于 2020-6-7 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707529&amp;ptid=1938145" target="_blank">marysaluly 发表于 2020-6-7 11:33</a>
+
+你的意思是本来就只是逢场作戏的营业关系，根本没关系可闹掰吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 10496#       发表于 2020-6-7 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">营业关系怎么就不是关系了？你这样，我们磕小偶像cp的就不开心了，多少对运营指定cp躺枪了。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10497#       发表于 2020-6-7 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707480&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-7 11:28</a>
+是啊，您以为闹掰这种东西是怎样呢？就是原本稳固的关系被毁坏啊。
+
+反正V说出来的东西都可以当成场面话， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">郡道roa?
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">梦里会有
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10498#       发表于 2020-6-7 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707552&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-7 11:35</a>
+
+营业关系怎么就不是关系了？你这样，我们磕小偶像cp的就不开心了，多少对运营指定cp躺枪了。 ...</blockquote>
+这些说mrra闹掰的就是在说她们脑补出来的背后关系啊，这两位营业关系也没闹掰嗷
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10499#       发表于 2020-6-7 11:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">劈，都可以劈
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 10500#       发表于 2020-6-7 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707527&amp;ptid=1938145" target="_blank">meameasuki 发表于 2020-6-7 11:33</a>
+那也比两个婊|子还互相拿着对方当财富密码，赚钱工具好吧
+
+毕竟不论怎样，meamea都是夸在bilibili最好的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Meaqua就是那什么百合什么的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Meaqua最强
+
+
+
+
+
