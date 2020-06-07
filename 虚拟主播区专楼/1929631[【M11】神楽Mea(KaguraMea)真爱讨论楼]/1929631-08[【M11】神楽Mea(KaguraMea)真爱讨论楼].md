@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 20:02** 
+> ## **本文件最后更新于2020-06-07 22:02** 
 
 
 
@@ -14346,4 +14346,152 @@ s1私聊功能不好用，之前私聊过有时候会看不到消息（不管是
 
 
 
-                      
+
+
+-----
+
+####  龙魂绯影  
+##### 11334#       发表于 2020-6-7 20:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712476&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 19:43</a>
+
+彩虹貌似有接王者荣耀的工商，也许可以期待lol手游版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">lol手游总感觉很难火起来的样子
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11335#       发表于 2020-6-7 20:22
+
+
+
+
+呜呜呜没动，会不会再来突击呢(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11336#       发表于 2020-6-7 20:23
+
+
+
+
+点了几个赞,没准在看tiktok<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11337#       发表于 2020-6-7 20:24
+
+
+
+
+点赞了也算动了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11338#       发表于 2020-6-7 20:39
+
+
+
+
+【TwitterTweet 神楽めあ 推特发布】
+内容：【こんなVtuberはやだ！】
+
+①風呂は週３回しかはいらない
+
+②生ゴミから虫を産んでる
+
+③笑い方が異様に汚い
+
+④かわいい！って思ったらやっぱり汚い
+
+⑤足が臭い、お風呂入っても臭い
+
+⑥オタク=ATM
+
+⑦沸点がとても低い
+媒体：[]
+链接：[]
+时间：2020-06-07 12:35:55 UTC
+网址：https://twitter.com/KaguraMea_VoV/status/1269609028746768384
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11339#       发表于 2020-6-7 20:39
+
+
+
+
+发推了，今天没了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11340#       发表于 2020-6-7 20:45
+
+
+
+
+又来段子<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11341#       发表于 2020-6-7 20:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这就是卡古拉没牙吗
+
+
+
+
+
+                     
