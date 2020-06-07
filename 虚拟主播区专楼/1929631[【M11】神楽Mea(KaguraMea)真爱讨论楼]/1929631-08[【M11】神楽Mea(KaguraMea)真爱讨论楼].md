@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 02:02** 
+> ## **本文件最后更新于2020-06-07 14:03** 
 
 
 
@@ -10928,4 +10928,1514 @@ b转播怎么还没关…
 
 
 
-                            
+
+
+-----
+
+####  Sanguine  
+##### 11132#       发表于 2020-6-7 02:03
+
+
+
+
+2点准时关闭，转播间有定时关的功能吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11133#       发表于 2020-6-7 08:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说咩组居然还开组会。要让小紫介绍一下T台又有多少初见桑吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11134#       发表于 2020-6-7 08:34
+
+
+
+
+草<img src="https://p.sda1.dev/0/9c95d5e9e70d06cda45436ee484f110d/1BE6E6232E993C76ED4C6C098FE6E336.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11135#       发表于 2020-6-7 08:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47704999&amp;ptid=1929631" target="_blank">Kayz996 发表于 2020-6-7 01:14</a>
+草，对吸血鬼类型的无条件喜欢
+我出发了.jpg</blockquote>
+这个3指的是三个男人还是<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11136#       发表于 2020-6-7 08:56
+
+
+
+
+估计是你咩看如月那么顶，给她开小灶了吧，顺便征求下如月正宫的意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11137#       发表于 2020-6-7 09:02
+
+
+
+
+【TwitcastLive 神楽めあ 直播开始】
+标题：ごはんたべる
+时间：2020-06-07 00:59:49 UTC
+网址：https://twitcasting.tv/KaguraMea_VoV
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11138#       发表于 2020-6-7 09:03
+
+
+
+
+肯定没睡了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11139#       发表于 2020-6-7 09:04
+
+
+
+
+她睡没睡我不知道，反正我刚醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11140#       发表于 2020-6-7 09:04
+
+
+
+
+这就是传说中的早安直播吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11141#       发表于 2020-6-7 09:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">睡着的时候有她，醒了还有，四舍五入等于？
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 11142#       发表于 2020-6-7 09:37
+
+
+
+
+这人想搞三暗刻也不看看牌的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11143#       发表于 2020-6-7 09:38
+
+
+
+
+呜呜呜看不懂麻将<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，要不要为了小麻去学一下呢
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11144#       发表于 2020-6-7 10:26
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-7 10:38 编辑 
+
+云了60大妈的垃圾结局，不知道可不可以带入六字母呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+家有女友meaqua版，最后的结局是圣母咩咩有了孩子，而天使夸夸得到了男人。不同的是，两个女主都是处女哒<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+想着多年以后，夸夸穿着婚纱走进了婚姻的殿堂，而咩咩（处女）带着和夸夸老公的孩子幸福地看着她们，感动
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫|-1|英雄何在|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11145#       发表于 2020-6-7 10:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">好，圣母在上
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 11146#       发表于 2020-6-7 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706496&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-7 09:38</a>
+
+呜呜呜看不懂麻将，要不要为了小麻去学一下呢</blockquote>
+相信我，看不懂比较幸福<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 11147#       发表于 2020-6-7 11:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706889&amp;ptid=1929631" target="_blank">meameasuki 发表于 2020-6-7 10:26</a>
+
+云了60大妈的垃圾结局，不知道可不可以带入六字母呢
+
+
+家有女友meaqua版，最后的结局是圣母咩咩有了 ...</blockquote>
+MEA可是铁血女拳师，带入不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11148#       发表于 2020-6-7 11:12
+
+
+
+
+早上醒的时候挂着tc睡了回笼觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11149#       发表于 2020-6-7 12:05
+
+
+
+[https://b23.tv/BV1G54y1B7Ue](https://b23.tv/BV1G54y1B7Ue)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11150#       发表于 2020-6-7 12:13
+
+
+
+
+看之前先问一句这个制作组是会制作单人的pv而不是有它参与的都会夹带私货是吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，好像之前万圣节就出过事儿。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11151#       发表于 2020-6-7 12:16
+
+
+
+
+目前还没看见好像没有私货，虽然是那个制作委员会搞得，不过这次弄的顶，苦情歌女王是这样的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11152#       发表于 2020-6-7 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47707887&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-7 12:13</a>
+看之前先问一句这个制作组是会制作单人的pv而不是有它参与的都会夹带私货是吗，好像之前万圣节就出 ...</blockquote>
+自己看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11153#       发表于 2020-6-7 12:20
+
+
+
+
+所以说我在看之前先问一句避免踩雷啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ryy3jk  
+##### 11154#       发表于 2020-6-7 12:23
+
+
+
+
+做得还挺用心的，但是我感觉没bls结束后那次好听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11155#       发表于 2020-6-7 12:25
+
+
+
+
+bls结束后那次有氛围加成。。。和单独调出来的会有区别
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11156#       发表于 2020-6-7 12:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是听惯清唱了吗，现在混不混都无所谓了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 11157#       发表于 2020-6-7 12:42
+
+
+
+
+看了看是一图流没有私货的，歌也蛮好听的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11158#       发表于 2020-6-7 12:46
+
+
+
+
+这脸画得有点像大福<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11159#       发表于 2020-6-7 12:48
+
+
+
+
+咩咩还是适合苦情歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，那么墨鱼肠苦情咩咩有没有在路上呢？
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11160#       发表于 2020-6-7 12:48
+
+
+
+
+刘海画长了吧，遮眼睛了，所以像大福
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11161#       发表于 2020-6-7 12:59
+
+
+
+
+主要脸好像也圆了一点
+
+
+蓝莓大福.jpg
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11162#       发表于 2020-6-7 13:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次是没有私货 但是他们也能根据歌自己脑补 两全其美了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11163#       发表于 2020-6-7 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">懂了，meaqua连体人发泄不满到mea头上，故意画成大福，意图复辟福夸，真的是带恶人，建议冲了他们
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11164#       发表于 2020-6-7 13:07
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708486&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 13:02</a>
+这次是没有私货 但是他们也能根据歌自己脑补 两全其美了</blockquote>
+你🔥星贷款错了，现在已经是黑暗贴贴人自己脑补她俩扯头发的阶段了，评论栏连刷贴贴的都没有
+↑像大福就能联想到浮夸，到底谁是连体人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11165#       发表于 2020-6-7 13:07
+
+
+
+
+呜呜呜，是这首，这首的歌词是真的戳<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11166#       发表于 2020-6-7 13:14
+
+
+
+
+话说今天还有可能动吗？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11167#       发表于 2020-6-7 13:16
+
+
+
+
+看来骂人是真的有用，好好说都是被说二创私货喜闻乐见你算老几
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11168#       发表于 2020-6-7 13:20
+
+
+
+
+有没有私货的都做过，你就是散户操盘手？
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11169#       发表于 2020-6-7 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">火烈鸟的pv的还有船锚呢 只能说遗毒太深难以清除 很多路人还是mmr的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11170#       发表于 2020-6-7 13:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708709&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 13:22</a>
+火烈鸟的pv的还有船锚呢 只能说遗毒太深难以清除 很多路人还是mmr的</blockquote>
+mea自己都发着做的挺好，到你这成了遗毒还行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11171#       发表于 2020-6-7 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708737&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 13:25</a>
+
+mea自己都发着做的挺好，到你这成了遗毒还行</blockquote>
+做得确实挺好 然后在个不起眼的地方塞个船锚嘛<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 11172#       发表于 2020-6-7 13:27
+
+
+
+
+当个路人mmr不好吗，至少有最简单的快乐
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11173#       发表于 2020-6-7 13:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">我是福夸连体人，福夸真的贴啊，我超喜欢看的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道nga喜欢看福夸的在大福爆出有男友的还喜欢看福夸吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">算了，都不用知道了他们只是需要一个挂件，就像盐水一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">当然作为福gachi夸夸也只是个挂件啦
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11174#       发表于 2020-6-7 13:27
+
+
+
+
+所以被骂过了就明着不放，在犄角旮旯里面塞才令人更恶心。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11175#       发表于 2020-6-7 13:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708751&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 13:26</a>
+做得确实挺好 然后在个不起眼的地方塞个船锚嘛</blockquote>
+塞个船锚就成了遗毒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议你去骑mea脸告诉她你的pv被污染了啊
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11176#       发表于 2020-6-7 13:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708770&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-7 13:27</a>
+我是福夸连体人，福夸真的贴啊，我超喜欢看的
+不知道nga喜欢看福夸的在大福爆出有男友的还喜 ...</blockquote>
+我觉得你应该建一个浮夸贴贴人之家来表达你对浮夸的爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11177#       发表于 2020-6-7 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708775&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 13:28</a>
+
+塞个船锚就成了遗毒了建议你去骑mea脸告诉她你的pv被污染了啊</blockquote>
+她没意见我有什么好说的 反正他们也就只能这样了 就是觉得挺乐的
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11178#       发表于 2020-6-7 13:30
+
+
+
+
+我突然想到，假如小博宇是个相貌意外不错的女性，然后用小博宇这个ID在推上发cosplay法兰西女仆捧着个船锚被点赞，该怎么应对比较合适。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11179#       发表于 2020-6-7 13:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708798&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 13:30</a>
+她没意见我有什么好说的 反正他们也就只能这样了 就是觉得挺乐的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以建议不要随便给你mea姐的二创打成遗毒
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11180#       发表于 2020-6-7 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708802&amp;ptid=1929631" target="_blank">深渊萃取 发表于 2020-6-7 13:30</a>
+
+我突然想到，假如小博宇是个相貌意外不错的女性，然后用小博宇这个ID在推上发cosplay法兰西女仆捧着个船锚 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不是挺好的 毕竟就算现在也是三天两头点赞二创图
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11181#       发表于 2020-6-7 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">这不是在讽刺暗黑贴贴人吗
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 11182#       发表于 2020-6-7 13:33
+
+
+
+
+好！福咩貼貼<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11183#       发表于 2020-6-7 13:35
+
+
+
+
+所以这次的音源是扒得哪次，为啥还有笑场的，bls那次？（收钱收笑的）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11184#       发表于 2020-6-7 13:36
+
+
+
+
+咩姐本人不介意所以塞私货才肆无忌惮啊，她有足够的单人图做封面就行了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11185#       发表于 2020-6-7 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">smjb，像大福就不能是咩码和椎太的铝儿吗，无要素都能唐突顺劈，暗黑贴贴人太魔怔了（
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11186#       发表于 2020-6-7 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708878&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 13:36</a>
+咩姐本人不介意所以塞私货才肆无忌惮啊，她有足够的单人图做封面就行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以mea自己都不介意的事有人逼着她介意，这是哪边的问题
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11187#       发表于 2020-6-7 13:39
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-7 13:43 编辑 
+
+塞个船锚就受不了了？那个火烈鸟手书的作者本来是打算把夸画进去的，后来想想算了。
+人家克制了还要嘲，建议以后加大力度政审，脑里有遗毒残留的直接打成画奴阶层，画十张没私货的fanart假释重新争取人权
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 11188#       发表于 2020-6-7 13:39
+
+
+
+
+咩西毕竟太冷门，就算是我这种扭曲怪也不怎么扭得起来
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11189#       发表于 2020-6-7 13:40
+
+
+
+
+没人要你咩介意，
+
+是楼友自己介意。
+
+龙魂你小心别成为暗黑暗黑贴贴人啊
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11190#       发表于 2020-6-7 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708918&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-7 13:39</a>
+塞个船锚就受不了了？那个火烈鸟手书的作者本来是打算把夸画进去的，后来想想算了。
+人家克制了还要嘲，建 ...</blockquote>
+反meaqua反的魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到前一页画的像大福我就在想会不会有人变成暗黑连体婴车一波meaqua了，殊不知自己早就变成了当年自己反的那帮人
+
+↑自己介意还要跳来跳去，这可不就是想逼着你咩介意么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11191#       发表于 2020-6-7 13:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我跳她脸上和她说了还是有人把这楼内容翻译发给她了？ 不能聊那算了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11192#       发表于 2020-6-7 13:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">唐突暗黑也是弱智的一环啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我喜欢看
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11193#       发表于 2020-6-7 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47708979&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 13:43</a>
+我跳她脸上和她说了还是有人把这楼内容翻译发给她了？ 不能聊那算了 ...</blockquote>
+二创塞个船锚就开始往遗毒方向宣传了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后就是出现个平时自称多爱mea多喜欢mea，但搞meaqua的话mea也得爬的人我估计也有可能，说不定现在已经有了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11194#       发表于 2020-6-7 13:47
+
+
+
+
+和官号联合投稿的要求少点私货还过分了？二创组在和咩官号的联合投稿里动了多少次手脚了，han在一个夸的pv看到刷咩的人多就受不了，帮着别人双标，不知道说什么好
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11195#       发表于 2020-6-7 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709031&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 13:47</a>
+和官号联合投稿的要求少点私货还过分了？二创组在和咩官号的联合投稿里动了多少次手脚了，han在一个夸的pv ...</blockquote>
+说白了mea都没意见就别去粉丝里拱火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种厄介我见的够多了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11196#       发表于 2020-6-7 13:49
+
+
+
+
+呜呜呜我想看咩咩和傻紫联动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11197#       发表于 2020-6-7 13:49
+
+
+
+
+别跳了别跳了，这波毒唯都没开起来怎么暗黑贴贴人先带头冲锋的
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11198#       发表于 2020-6-7 13:49
+
+
+
+
+你们真无聊，有也车没有也车，没别的事了吗？这破玩意吵了不下五次了，每次还他妈都复读放送的，能你们拉个小群玩吗？
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11199#       发表于 2020-6-7 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709022&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 13:47</a>
+
+二创塞个船锚就开始往遗毒方向宣传了以后就是出现个平时自称多爱mea多喜欢mea，但搞meaqua的话mea ...</blockquote>
+为什么不看呢？首先得有 有了我自然看 舞元惩役太郎兔鞠那些联动我都看 还怕这个？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11200#       发表于 2020-6-7 13:49
+
+
+
+
+这不是因为政审力度加大做的妥协之策吗？想加虚空制糖可以不发官号啊是不是，做个无私货版本投官号，自己的号再做个贴贴加强版PV，完美。如果能既恶心到单推人，贴贴又大满足，官组号上还有贴贴小鬼弹幕指路贴贴PV，除了单推人不会受伤的世界，建议立即实行。
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11201#       发表于 2020-6-7 13:51
+
+
+
+
+我寻思凭空塞个船锚就是什么正常的行为了？火烈鸟这歌有关系？恶心看不惯一没跳你咩脸上让她骂二没跳作者脸上骂，动画漫画游戏骂的了，一个二创就金贵了，护的这么勤？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11202#       发表于 2020-6-7 13:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709066&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-7 13:49</a>
+为什么不看呢？首先得有 有了我自然看 舞元惩役太郎兔鞠那些联动我都看 还怕这个？ ...</blockquote>
+没说你，不看是轻的，隔壁都有巴不得meaqua跟mrra一样闹到明面上的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以我估计我说的mea也得爬的阶段也快到了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11203#       发表于 2020-6-7 13:53
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-7 13:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709076&amp;ptid=1929631" target="_blank">clvan_ 发表于 2020-6-7 13:51</a>
+我寻思凭空塞个船锚就是什么正常的行为了？火烈鸟这歌有关系？恶心看不惯一没跳你咩脸上让她骂二没跳作者脸 ...</blockquote>
+我看的挺好的生生打成遗毒还不能说了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我推的二创因为这种理由被喷我还不能喷回来了？
+生生塞个船锚不对，按这个说法扩大一下，是不是生生塞个mea没有新衣服不对，生生塞个巨乳贫乳不对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议以后官号二创通通用mea原始立绘啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11204#       发表于 2020-6-7 13:53
+
+
+
+
+当然可以骂，现在就该冲了那个脑里有遗毒的作者，让他滚出mea圈
+这次没塞不代表下次不塞，这次塞了小的不代表下次不塞个大的
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11205#       发表于 2020-6-7 13:53
+
+
+
+<blockquote>clvan_ 发表于 2020-6-7 13:51
+我寻思凭空塞个船锚就是什么正常的行为了？火烈鸟这歌有关系？恶心看不惯一没跳你咩脸上让她骂二没跳作者脸 ...</blockquote>
+从18年塞私货到现在，有人习惯成自然，就觉得没问题了。私货本来就是得寸进尺的行为，现在被洗白成这样，真的厉害
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11206#       发表于 2020-6-7 13:55
+
+
+
+
+塞个大的？塞什么，塞哪儿？洋葱放嘴里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11207#       发表于 2020-6-7 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709121&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 13:53</a>
+从18年塞私货到现在，有人习惯成自然，就觉得没问题了。私货本来就是得寸进尺的行为，现在被洗白成这样， ...</blockquote>
+不是习惯成自然，而是mea都不管就有人跑出来定性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11208#       发表于 2020-6-7 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709110&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 13:53</a>
+
+我看的挺好的生生打成遗毒还不能说了？我推的二创因为这种理由被喷我还不能喷回来了？ ...</blockquote>
+这不就说你吗，二创多金贵啊，连句牢骚都不让发，护的可比你咩勤快多了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11209#       发表于 2020-6-7 13:57
+
+
+
+<blockquote>暗心舞踏 发表于 2020-6-7 13:53
+当然可以骂，现在就该冲了那个脑里有遗毒的作者，让他滚出mea圈
+
+这次没塞不代表下次不塞，这次塞了小的不代 ...</blockquote>
+塞私货就别联合投稿啊，han自己看到夸的pv塞私货后的影响b博吐槽，就不能想想咩这边？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11210#       发表于 2020-6-7 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709153&amp;ptid=1929631" target="_blank">clvan_ 发表于 2020-6-7 13:56</a>
+这不就说你吗，二创多金贵啊，连句牢骚都不让发，护的可比你咩勤快多了 ...</blockquote>
+敢随地发牢骚就要有被人反过来的准备啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接受不了觉得没问题的人？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11211#       发表于 2020-6-7 13:58
+
+
+
+<blockquote>龙魂绯影 发表于 2020-6-7 13:53
+我看的挺好的生生打成遗毒还不能说了？我推的二创因为这种理由被喷我还不能喷回来了？
+
+生生塞个船 ...</blockquote>
+开始转进了？又开始把咩姐单人的东西和别的v的东西混合起来聊了？
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11212#       发表于 2020-6-7 13:59
+
+
+
+
+啊这，比宿管阿姨看击剑还没趣（溜了去补录播了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 11213#       发表于 2020-6-7 13:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">算了 本质就是个人小主播没什么人二创 有就不错了 兔鞠的色图都要比咩多
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11214#       发表于 2020-6-7 13:59
+
+
+
+
+你们怎么还带头冲锋起来了？这谁呀，建议先查成分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11215#       发表于 2020-6-7 13:59
+
+
+
+
+靠，龙魂你这样说那塞个三字母都行，你别越描越黑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl，这做的不是挺不错吗，表扬一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11216#       发表于 2020-6-7 14:00
+
+
+
+
+看明白了。你们还真是无聊。
+不喜欢一些人希望他们赶紧走的能不能别整的跟正义使者似的无中生有，贷款黑啤？
+跟v8没事出来车轱辘不出事还造谣贷款有啥区别？能大声说出来我就不喜欢某些人所以我就在黑么？别带上mea也别整的跟希望mea好一样，恶心。
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11217#       发表于 2020-6-7 14:01
+
+
+
+<blockquote>ashero 发表于 2020-6-7 13:59
+算了 本质就是个人小主播没什么人二创 有就不错了 兔鞠的色图都要比咩多 ...</blockquote>
+是这个道理，昨天深夜杂谈还用18年的图做封面
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11218#       发表于 2020-6-7 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709188&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-7 13:58</a>
+开始转进了？又开始把咩姐单人的东西和别的v的东西混合起来聊了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你倒是说是塞个新衣服贫乳巨乳，和塞一个船锚有什么区别啊
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 11219#       发表于 2020-6-7 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709177&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-7 13:57</a>
+
+敢随地发牢骚就要有被人反过来的准备啊接受不了觉得没问题的人？</blockquote>
+先让人闭嘴的是谁呢？我接受的了觉得没问题的人，接受不了发句牢骚就开始当孝子追着护的，看你这反应多大
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11220#       发表于 2020-6-7 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47709193&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-6-7 13:59</a>
+你们怎么还带头冲锋起来了？这谁呀，建议先查成分</blockquote>
+没啥好查成分的，就几个傻逼闻见有人开字幕组就正义使者淋头了。没有就翻旧账贷款。可以称宝竞选v吧了
+
+
+
+
+
+                          
