@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 22:08** 
+> ## **本文件最后更新于2020-06-08 00:10** 
 
 
 
@@ -10009,10 +10009,11 @@ bsyl，我家还在停电，一弦的B限看不成了手机也没电了，姑且
 
 
 
- 参与人数 8战斗力 +8
+ 参与人数 9战斗力 +9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 中野六小龄童| + 1|欢乐多|
 | Ascending| + 1|欢乐多|
 | InvisibleP| + 1|欢乐多|
 | y78348877| + 1|金句频出|
@@ -10779,6 +10780,25 @@ syl，小天使这新翻唱真的还好啊，我这循环了十 ...</blockquote>
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| KyotoAnimation|-2|我受不了了|
+
+
+
+查看全部评分
 
 
 
@@ -12141,4 +12161,2874 @@ syl:是我太久没看管了么？龙皇这口音感觉变了好多
 
 
 
-                            
+
+
+-----
+
+####  掉头学姐  
+##### 11140#       发表于 2020-6-7 22:08
+
+
+
+
+阿喵喵有段时间在楼里比较火阿，现在都没人提了，哼，男人
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11141#       发表于 2020-6-7 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713745&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-7 21:55</a>
+
+别怕，二二姐，今天q群里有个哥们想冲塔，我发了图，他已经成功从单推列表中去掉了狐皇，加上了龙皇，变成 ...</blockquote>
+好多潜在gachi还没成长为英雄，就被你们这种坏人打倒了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+多少可怜的萌萌人，去冲塔最后腐化掉了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11142#       发表于 2020-6-7 22:09
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-7 22:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713168&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-7 20:54</a>
+
+其实绿的唱功总体也是那样
+
+真要说挑做能打出来管人不一定不行
+
+就SM这次来看只能说yab修音不给力</blockquote>
+绿团里我喜欢的都是跳舞专长，唱得那叫一个不行。绿团整体唱歌水平的也就那样吧，唱得好的今泉没了，nobody的高音都没人上了，主要是歌好词好。如果久远来的话，我想听她唱二单、避雷针和黑羊，在我看来她很适合这种“在世界中心呼唤爱的中二野兽”的歌啊。
+
+省一楼，听了天音的翻唱，感觉挺好啊（我完全不懂声乐），女声部分有味的，有些地方的爆发很漂亮，男声就有点用力了，特别是开头（我懂4ID为什么听个开头就退了），咬字感觉要卡住了，但是45秒和一分半这些合唱部分配合的不错。不知道是唱功问题还是改编，原唱有一些地方会有频繁细小的转音（比如说一分后），翻唱的时候就没有那么小，感觉是硬凹出来的......但总体还是好听的，订阅了。
+
+再省一楼，去找了梅丽莎inui和久远的翻唱听，发现她们都在歌会唱过丸之内，大家也来听听看。
+
+梅丽莎版（[https://www.bilibili.com/video/B ... 0258417389898857995](https://www.bilibili.com/video/BV1i64y1M73t?from=search&amp;seid=10258417389898857995)），音色最有原唱味，但是感觉音准普通，偶尔的错拍感觉是故意为之，不知道她有没有爵士类翻唱，感觉会很有趣。
+
+inui版（[https://www.bilibili.com/video/BV1La（防屏蔽）4y1x7UL?p=83](https://www.bilibili.com/video/BV1L**1x7UL?p=83)），只唱了一半，四平八稳，感觉是三位里声音最有力的，没唱完，但最难的转音部分能唱得上去。
+
+久远千岁版（[https://www.bilibili.com/video/B ... 333.788.videocard.0](https://www.bilibili.com/video/BV1Y4411E7zT/?spm_id_from=333.788.videocard.0)），23分钟，有感情加分没法评价，强。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11143#       发表于 2020-6-7 22:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713888&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-7 22:08</a>
+阿喵喵有段时间在楼里比较火阿，现在都没人提了，哼，男人</blockquote>
+被小天使上位替代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11144#       发表于 2020-6-7 22:09
+
+
+
+
+すいせい：そらちゃん（
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11145#       发表于 2020-6-7 22:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713862&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-7 22:06</a>
+
+阿喵喵就一直没火过，哪有过气不过气的说法
+
+syl:是我太久没看管了么？龙皇这口音感觉变了好多 ...</blockquote>
+变了不少，最近也很多人提到。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11146#       发表于 2020-6-7 22:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713900&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-7 22:09</a>
+
+被小天使上位替代了</blockquote>
+这又是什么神奇的上位替代。。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11147#       发表于 2020-6-7 22:14
+
+
+
+
+龙宝声音变她自己都吐槽好几次了，她又不会掐萌音，最后肯定是怎么舒服怎么来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11148#       发表于 2020-6-7 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713889&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-7 22:08</a>
+
+好多潜在gachi还没成长为英雄，就被你们这种坏人打倒了
+
+多少可怜的萌萌人，去冲塔最后腐化掉了[f: ...</blockquote>
+白上吹雪又毁灭了一个小男孩那个图最近传的到处都是，狐皇在中国会不会遭遇滑铁卢
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11149#       发表于 2020-6-7 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">二二姐肯定喜欢大家庭爆炸啦，反正大家庭炸了又伤不到solo惯的人。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 11150#       发表于 2020-6-7 22:15
+
+
+
+
+獣ゆく細道 这歌感觉不好听啊，去听了原唱也觉得不好听，欣赏不来。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11151#       发表于 2020-6-7 22:15
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-7 22:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713936&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 22:13</a>
+这又是什么神奇的上位替代。。。</blockquote>
+尾宝的理论啊，小天使是阿喵喵的V综推盾上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl，因为中之人相貌而改变对V评价的人最初就不该看V，直接看真人主播完事了…就像看动画嫌CV不好看一样奇妙
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11152#       发表于 2020-6-7 22:16
+
+
+
+
+我是不会换掉啊喵喵头像的！<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 11153#       发表于 2020-6-7 22:18
+
+
+
+
+阿喵喵什么时候唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11154#       发表于 2020-6-7 22:19
+
+
+
+ 本帖最后由 crawarb 于 2020-6-7 22:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713954&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-7 22:15</a>
+
+白上吹雪又毁灭了一个小男孩那个图最近传的到处都是，狐皇在中国会不会遭遇滑铁卢 ...</blockquote>
+漫展那些图都传一年了，该杀的都杀得差不多了，留下的应该都是铁血
+
+syl, 楼里的阿喵喵头像除了AL哥怎么都是百鬼众
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11155#       发表于 2020-6-7 22:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713727&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-7 21:53</a>
+
+我觉得yagoo不是好人，从石头人事件那里看出来的。至于阿夸要做什么势，我都可以，只要她别跑路消 ...</blockquote>
+白少主是好人吗？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11156#       发表于 2020-6-7 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713727&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-7 21:53</a>
+
+我觉得yagoo不是好人，从石头人事件那里看出来的。至于阿夸要做什么势，我都可以，只要她别跑路消 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">二二姐能说下木口的好人吗？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11157#       发表于 2020-6-7 22:20
+
+
+
+
+S1给了你们错觉，真正关注中之人，整天去收集这些信息的大概连V圈观众的1%都占不到，只是喊得响......
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11158#       发表于 2020-6-7 22:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714008&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-7 22:19</a>
+
+漫展那些图都传一年了，该杀的都杀得差不多了，留下的应该都是铁血</blockquote>
+不，剩下的大部分是懒得去搜图的人，路人点个关注就好了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11159#       发表于 2020-6-7 22:21
+
+
+
+
+你们怎么总想着挑唆crew和大家庭啊，最近夸都已经完美融入了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11160#       发表于 2020-6-7 22:23
+
+
+
+
+气息依然拉跨
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 11161#       发表于 2020-6-7 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你是指大家一起休年假么
+
+
+差不多到一二期续签合同的日子了吧
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 11162#       发表于 2020-6-7 22:24
+
+
+
+
+楼里除了alo老哥还有几位阿喵喵推啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11163#       发表于 2020-6-7 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713758&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-7 21:57</a>
+
+兔皇其实只能算播的时间长点，真要搞初见通关耐久就是这样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这个记录不是已经被狗子破了么
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11164#       发表于 2020-6-7 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714029&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 22:20</a>
+S1给了你们错觉，真正关注中之人，整天去收集这些信息的大概连V圈观众的1%都占不到，只是喊得响...... ...</blockquote>
+按阿希今天的同接算可能也没那么少，至少核心观众里比例挺高的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11165#       发表于 2020-6-7 22:24
+
+
+
+[https://youtu.be/wcafnePfZR4](https://youtu.be/wcafnePfZR4)
+
+VRoid Studioでかわいいお洋服を作ろう！
+
+饼叽直播用vroid做新衣服，有兴趣的可以来看看
+
+
+
+省一楼
+[https://youtu.be/v6kxNhlDhBg](https://youtu.be/v6kxNhlDhBg)
+
+【オリジナル】てあらいうがいの歌【名取さな/健屋花那】
+
+song by：名取さな&amp;健屋花那
+
+music：弦月藤士郎
+
+lyrics：弦月藤士郎&amp;健屋花那
+
+illust：春日部つくし
+
+movie：てる
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11166#       发表于 2020-6-7 22:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">二二姐说自己不能代表crew，不过视奸的人可不这么想
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11167#       发表于 2020-6-7 22:26
+
+
+
+
+v能融入不代表粉也能融合啊，更别说大家庭（粉）经常受到各种各样的攻击了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11168#       发表于 2020-6-7 22:28
+
+
+
+
+肥希你别磨皮磨那么厉害我们还能做朋友<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+瘦下脸就得了，还非要漂那么白都没人样了
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 11169#       发表于 2020-6-7 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小男孩们心智还是不坚定
+
+当声优看呗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11170#       发表于 2020-6-7 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714081&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-7 22:25</a>
+
+二二姐说自己不能代表crew，不过视奸的人可不这么想</blockquote>
+那视奸的人挺没脑子的。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11171#       发表于 2020-6-7 22:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">现在点开每个木口liver的频道看下，木口孤狼已经换人了啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11172#       发表于 2020-6-7 22:29
+
+
+
+<img src="https://i0.hdslb.com/bfs/album/dd74f0396da7b73b9596bcde40e2be4684257bec.png@518w_1e_1c.png" referrerpolicy="no-referrer">积德，积德.jpg
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11173#       发表于 2020-6-7 22:30
+
+
+
+
+啊，狐狸，好胖.jpg
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11174#       发表于 2020-6-7 22:31
+
+
+
+
+这首歌降调就输了啊姐
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11175#       发表于 2020-6-7 22:31
+
+
+
+<img src="https://i0.hdslb.com/bfs/album/a48ec7f15a32f23d979b26358b50e887df7f4e80.jpg@518w_1e_1c.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11176#       发表于 2020-6-7 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714070&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-7 22:24</a>
+
+这个记录不是已经被狗子破了么</blockquote>
+大米耐久最长是万恶之源QWOP马拉松，不过有中场休息4小时，不好说<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+QWOP.png
+(828.43 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-7 22:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/223118aoml74lrzx7f2off.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11177#       发表于 2020-6-7 22:33
+
+
+
+[https://www.bilibili.com/video/BV1Kf4y1m7gg](https://www.bilibili.com/video/BV1Kf4y1m7gg)
+
+エーテル - 20200606 nico歌回
+
+P1I dreamed a dream
+
+P2我亲爱的爸爸
+
+P3风中奇缘
+
+P4祝观众生日快乐
+
+nico真是好，想唱啥唱啥，虽然都是观众点的
+
+
+
+欢迎关注本人的B站，不定期更新我们家大葵、奏mimi，还有エーテル，musica等强者的歌回选段空妈不算，是用来作对照的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11178#       发表于 2020-6-7 22:34
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-7 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714140&amp;ptid=1938145" target="_blank">soraku 发表于 2020-6-7 22:30</a>
+
+啊，狐狸，好胖.jpg</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/07/224454p553szm5m55sr53k.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200607224322.png</strong> (37.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 22:44 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 6战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 时雨rain| + 1|好，头一次给你楼人加鹅|
+| 好德我基| + 1|欢乐多|
+| star_platinum| + 1|欢乐多|
+| ひびき|-1|积德|
+| asdhai|-1|我觉得这个不行。|
+| erer|-1|卧槽，恁不基德。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11179#       发表于 2020-6-7 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714118&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-7 22:28</a>
+
+那视奸的人挺没脑子的。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">v圈屁股大战还还要讲道理的吗？你平时在楼里劈人也不用讲道理的吧？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 11180#       发表于 2020-6-7 22:36
+
+
+
+
+我可能是个坦性恋，我上不了天上人间了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 11181#       发表于 2020-6-7 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我的天内
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11182#       发表于 2020-6-7 22:37
+
+
+
+
+恶心。。。
+
+我宁可看2000发疯
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11183#       发表于 2020-6-7 22:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11184#       发表于 2020-6-7 22:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">来S1第一次有想扣鹅的冲动
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11185#       发表于 2020-6-7 22:39
+
+
+
+
+这张图我第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">
+
+芙宝平时呆的群不健康，不是一个杏人会呆的群
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11186#       发表于 2020-6-7 22:39
+
+
+
+
+芙宝好过分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+来点洗洗眼
+<img src="https://p.sda1.dev/0/4038359b6b11c8941245e74ae89903ce/IMG_8DD95519CA195B2E0D3661AB9FAC71E0.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/20d92f859741754514425733ab0aa2b1/IMG_C2DA507B1B037CD24829FD9F4320F2B9.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 11187#       发表于 2020-6-7 22:39
+
+
+
+
+原来这一周姐街直接返乡了吗··难怪可以唱爆了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+星姐：既然是清唱那就可以唱ES的歌了呢！
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11188#       发表于 2020-6-7 22:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们杏人玩的开心呢，关我什么事？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11189#       发表于 2020-6-7 22:40
+
+
+
+
+这不是挺写实吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11190#       发表于 2020-6-7 22:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/223941i7i8uj3c8c54xxy5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ5AOwvUEAE-Udd.jpg</strong> (184.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 22:39 上传
+
+
+
+
+
+
+发张kanata&amp;kabaya净化下版面。。。。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11191#       发表于 2020-6-7 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714256&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-7 22:39</a>
+
+你们杏人玩的开心呢，关我什么事？</blockquote>
+2000不是crew了吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11192#       发表于 2020-6-7 22:40
+
+，
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714176&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 22:33</a>
+[https://www.bilibili.com/video/BV1Kf4y1m7gg](https://www.bilibili.com/video/BV1Kf4y1m7gg)
+
+エーテル - 20200606 nico歌回
+
+P1I dreamed a dream</blockquote>
+免费老哥听过96猫的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 11193#       发表于 2020-6-7 22:40
+
+
+
+
+写实就有点过分了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">基德基德
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11194#       发表于 2020-6-7 22:41
+
+
+
+
+一清唱就凸显气息拉跨，你杏能不能请个体能教练啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11195#       发表于 2020-6-7 22:41
+
+
+
+
+真就大凶豺龙啊？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11196#       发表于 2020-6-7 22:41
+
+
+
+
+谁发下那张狐皇的腿照<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11197#       发表于 2020-6-7 22:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714290&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 22:41</a>
+
+一清唱就凸显气息拉跨，你杏能不能请个体能教练啊</blockquote>
+你在期望这个瘦竹竿，挑食怪能有什么气息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 11198#       发表于 2020-6-7 22:42
+
+
+
+
+找了找作者，还有夸、三马鹿和狱卒的
+
+445kg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 11199#       发表于 2020-6-7 22:43
+
+
+
+
+别发了别发了，当声优看不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11200#       发表于 2020-6-7 22:44
+
+
+
+
+喜欢纤瘦美少女的我希望您高抬贵手，适可而止。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11201#       发表于 2020-6-7 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714277&amp;ptid=1938145" target="_blank">掉头学姐 发表于 2020-6-7 22:40</a>
+
+2000不是crew了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer"> 得不到erer的承认的crew籍，又有什么意义，
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11202#       发表于 2020-6-7 22:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">芙宝果然是有病的吧。。。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11203#       发表于 2020-6-7 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714312&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-7 22:42</a>
+
+你在期望这个瘦竹竿，挑食怪能有什么气息</blockquote>
+业务能力不行该劈就要劈，水树奈奈当魔鬼筋肉人也不是要去打擂台啊。
+
+
+
+
+
+
+
+-----
+
+####  long87755025  
+##### 11204#       发表于 2020-6-7 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714304&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 22:41</a>
+
+谁发下那张狐皇的腿照</blockquote>
+<img src="http://imgsrc.baidu.com/forum/pic/item/4474ab13b31bb051aaefad51397adab44bede081.jpg" referrerpolicy="no-referrer">
+
+这个算吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 耻照| + 1|The instrument of doom|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11205#       发表于 2020-6-7 22:45
+
+
+
+
+来张美少女洗洗眼睛(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 11206#       发表于 2020-6-7 22:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11207#       发表于 2020-6-7 22:47
+
+
+
+
+来张美少女洗洗眼睛
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/224741ewfy4fpx19j4japw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>85637_bbb7f7663eec9a39ded70a4cc5f7ccce.jpeg</strong> (120.94 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-7 22:47 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ポップコーン| + 1||
+| icecry| + 1|我露这张美爆|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11208#       发表于 2020-6-7 22:48
+
+
+
+
+补发一张色图表示歉意
+
+（miko已经拿来作为推特banner图）
+
+<img src="https://img.saraba1st.com/forum/202006/07/224720hq81qb8krkrroyxk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZz9DNSUcAEEpm1.jpg</strong> (775.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 22:47 上传
+
+
+
+
+
+
+[https://twitter.com/Nyan_McQ/status/1269168579682938881/photo/1](https://twitter.com/Nyan_McQ/status/1269168579682938881/photo/1)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11209#       发表于 2020-6-7 22:48
+
+
+
+
+气息和身材、体力有啥关系  <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11210#       发表于 2020-6-7 22:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/224817a4649dkvrskhxhgc.png" referrerpolicy="no-referrer">
+
+
+<strong>(NH9RRBG1PEUJK2D5NG95PV.png</strong> (164.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 22:48 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">我狐皇也是有瘦的时候的好吗，虽然现在不知道怎么样
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|我刚刚也去找了这张|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11211#       发表于 2020-6-7 22:49
+
+
+
+
+和身材倒是的确没关系，和体力关系大了去了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11212#       发表于 2020-6-7 22:51
+
+
+
+
+说到底还是这家伙挑食，不长肉，体力也增加不上去罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11213#       发表于 2020-6-7 22:51
+
+
+
+
+星街气息拉跨我这个音痴都能听出来，想更进一步还是需要训练啊。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11214#       发表于 2020-6-7 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714425&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 22:49</a>
+
+和身材倒是的确没关系，和体力关系大了去了。</blockquote>
+和膈肌肋间肌力量当然有关系，上面这不说的77的肱二头肌么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11215#       发表于 2020-6-7 22:56
+
+
+
+
+唉，这东西一半靠练一半靠天生的，我最喜欢的top娘役，歌、舞、演简直完美，就是气息不行，总不能说音校首席不肯练也不能说宝冢的老师不会教吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11216#       发表于 2020-6-7 22:57
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-6-7 22:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714472&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 22:52</a>
+
+和膈肌肋间肌力量当然有关系，上面这不说的77的肱二头肌么</blockquote>
+啊，关于语言符号意义能指的滑动。
+
+
+总之不许摸那帮搞笑艺人都能做到蹦一个小时根本没事人一样，也不知道你杏请的声乐老师教不教这帮人什么叫腹式呼吸。
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 11217#       发表于 2020-6-7 22:58
+
+
+
+
+毫无疑问，ickr在最近一两个月完成了一次高层、中层以及部门变动。
+
+上图为官网5月21日的版本，下图为现在的版本。
+
+
+其中值得一提的，石橋潤 卸任 国内VTuber事業本部 マネジメント部 部長，并从名单中消失，合理猜测为离职或降板。
+
+取而代之的是女性穴竃小百合，新晋中层，18年入社后即负责经纪人相关事务，以前从事银行系 系统会社的维护工作，大学主攻心理学。
+
+髙木彬光，2020年入社，新晋中层，就任 国内VTuber事業本部 YouTube戦略部 部長。
+
+浜口真人，2019年入社，此次晋升高层，升任 執行役員 及 コーポレート本部 本部長。
+
+
+如此一来，倒是侧面印证了阿菜会限里说的“最近看到运营有痛改前非的决心”。
+<img src="https://p.sda1.dev/0/099673d3f7e9cd91bc8c76b0ed4099dd/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7340dcfee8dd8401b0b13aa8237bc537/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11218#       发表于 2020-6-7 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714547&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 22:57</a>
+
+啊，关于语言符号意义能指的滑动。
+
+
+总之不许摸那帮搞笑艺人都能做到蹦一个小时根本没事人一样，也不知道 ...</blockquote>
+醒醒，哪来的声乐老师。
+
+团长那个是自己找的。
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 11219#       发表于 2020-6-7 22:59
+
+
+
+<blockquote>IDIDIDID 发表于 2020-6-7 22:47
+来张美少女洗洗眼睛</blockquote>
+谁?没认出来
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 11220#       发表于 2020-6-7 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714116&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 22:28</a>
+
+肥希你别磨皮磨那么厉害我们还能做朋友
+
+
+瘦下脸就得了，还非要漂那么白都没人样了 ...</blockquote>
+响老哥你和她交流音乐剧到底是啥回事儿不讲清楚吗<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11221#       发表于 2020-6-7 22:59
+
+
+
+
+yagoo！，你的那份呢！！！<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 11222#       发表于 2020-6-7 23:00
+
+
+
+<blockquote>ksline114 发表于 2020-6-7 22:59
+谁?没认出来</blockquote>
+露露
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11223#       发表于 2020-6-7 23:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还不如黑宝的175/60的肉体
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11224#       发表于 2020-6-7 23:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还不如黑宝的175/60的肉体
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 11225#       发表于 2020-6-7 23:00
+
+
+
+
+瘦竹竿？是有图了吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11226#       发表于 2020-6-7 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714560&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 22:58</a>
+
+醒醒，哪来的声乐老师。
+
+团长那个是自己找的。</blockquote>
+我忘了是阿肥还是哪个杏仁说本社有给找声乐舞蹈老师了。
+
+
+
+
+
+
+
+-----
+
+####  ksline114  
+##### 11227#       发表于 2020-6-7 23:01
+
+
+
+<blockquote>icecry 发表于 2020-6-7 23:00
+露露</blockquote>
+?脸型怎么变了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11228#       发表于 2020-6-7 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714547&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 22:57</a>
+
+啊，关于语言符号意义能指的滑动。
+
+
+总之不许摸那帮搞笑艺人都能做到蹦一个小时根本没事人一样，也不知道 ...</blockquote>
+我觉得应该找肥希的管乐老师教这群v吹管乐<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+说不定事半功倍
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11229#       发表于 2020-6-7 23:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714571&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-7 22:59</a>
+响老哥你和她交流音乐剧到底是啥回事儿不讲清楚吗</blockquote>
+他说的是一位vup不是阿希
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11230#       发表于 2020-6-7 23:03
+
+
+
+
+在喝奶茶的当然是白O吹O了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11231#       发表于 2020-6-7 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714571&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-7 22:59</a>
+
+响老哥你和她交流音乐剧到底是啥回事儿不讲清楚吗</blockquote>
+我哪是和小肥妹交流啊，你看她那不是勾搭妹子就是打枪内样像是会看音乐剧的吗？我估摸着她这辈子就止步于小时候妈自立带她看的四季和宝冢了
+
+
+
+是隔壁大扑棱蛾子在直播间放法扎，就评论区聊了两句
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11232#       发表于 2020-6-7 23:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714626&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 23:02</a>
+
+我觉得应该找肥希的管乐老师教这群v吹管乐
+
+
+说不定事半功倍</blockquote>
+你是觉得她们有耐心削簧片还是有毅力吹个满嘴血啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且练管乐毁脸型，不过练长号大号的女生大部分都是坦克，啊那说不定可以。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 11233#       发表于 2020-6-7 23:06
+
+
+
+
+大扑棱蛾子是花洛栗栗子，唱歌很好听
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11234#       发表于 2020-6-7 23:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714547&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 22:57</a>
+
+啊，关于语言符号意义能指的滑动。
+
+
+总之不许摸那帮搞笑艺人都能做到蹦一个小时根本没事人一样，也不知道 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">腹式呼吸不是最基础的吗？
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 11235#       发表于 2020-6-7 23:07
+
+
+
+ 本帖最后由 57042711 于 2020-6-7 23:47 编辑 
+
+一拳打死一头牛.JPG···看你们这我只能想到那张图了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+星姐这居然不知道Walküre出新歌了··果然Walküre已经过气了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+[https://music.163.com/album?id=90110715&amp;userid=31736268](https://music.163.com/album?id=90110715&amp;userid=31736268) 
+
+啥时候holo也能整出这种水平的偶想曲就好了··
+
+<img src="http://imgsrc.baidu.com/forum/pic/item/18c6b6eef01f3a29705e962a9725bc315e607cd6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11236#       发表于 2020-6-7 23:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714676&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 23:05</a>
+
+你是觉得她们有耐心削簧片还是有毅力吹个满嘴血啊
+
+而且练管乐毁脸型，不过练长号大号的女生大部分 ...</blockquote>
+别劈小肥妹了，在减了，在减了。jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11237#       发表于 2020-6-7 23:09
+
+
+
+
+郡道25点有直播，这么算来今天一天都没播......
+
+我要昏了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11238#       发表于 2020-6-7 23:10
+
+
+
+
+管乐的话，竖笛算吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+胸腹式呼吸应该很多人都会，但是练得少，还不练相关肌肉，气息支持不够也正常。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11239#       发表于 2020-6-7 23:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/231203k7v67vd634byvvfu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200607231100.png</strong> (19.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 23:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11240#       发表于 2020-6-7 23:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714703&amp;ptid=1938145" target="_blank">57042711 发表于 2020-6-7 23:07</a>
+
+一拳打死一头牛.JPG···看你们这我只能想到那张图了
+
+
+星姐这居然不知道Walküre出新歌了··果然W ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马裤螺丝的歌，你这要求好像有点高。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11241#       发表于 2020-6-7 23:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hololive真的要亡了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11242#       发表于 2020-6-7 23:14
+
+
+
+
+你们以为利香回来了就安全了吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11243#       发表于 2020-6-7 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714689&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-7 23:06</a>
+
+腹式呼吸不是最基础的吗？</blockquote>
+你杏我听过的那几个里，高音不掐脖子的：
+
+空妈 X
+
+azki X
+
+星街 X
+
+Mio X
+
+阿肥 O
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 11244#       发表于 2020-6-7 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714731&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 23:09</a>
+
+别劈小肥妹了，在减了，在减了。jpg</blockquote>
+这次美颜的看着还行吧不是太非人，真人应该也不会是真的很胖吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11245#       发表于 2020-6-7 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714826&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 23:15</a>
+
+你杏我听过的那几个里，高音不掐脖子的：
+
+空妈 X
+
+azki X</blockquote>
+[https://www.bilibili.com/video/BV1Sg4y187zp](https://www.bilibili.com/video/BV1Sg4y187zp)  你去看看这个就懂了
+
+
+泡澡时吐泡泡的祭妹
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11246#       发表于 2020-6-7 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714826&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 23:15</a>
+
+你杏我听过的那几个里，高音不掐脖子的：
+
+空妈 X
+
+azki X</blockquote>
+说起来也怪，空妈不是音大出身的吗，这么喜欢强行扯高音（可能是因为术曲不是人唱的关系）
+
+感觉你说的这几个除了空妈和小肥妹，其他都是野路子选手吧。。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11247#       发表于 2020-6-7 23:21
+
+
+
+
+你杏大多数人的水准，还是先从视唱练起吧，先清唱把CDEFGAB唱准了再说......
+
+另外每人买个节拍器以后练歌开着节拍器清唱，一帮人连每个鼓点都敲在拍子上四四拍到底的歌节奏都对不准
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 11248#       发表于 2020-6-7 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714883&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-7 23:20</a>
+
+说起来也怪，空妈不是音大出身的吗，这么喜欢强行扯高音（可能是因为术曲不是人唱的关系）
+
+感觉你说的这 ...</blockquote>
+还来比唱歌有啥意义啊，一个个都转型游戏选手甚至带男人了，唱歌能吃饭<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11249#       发表于 2020-6-7 23:23
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-6-7 23:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714883&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-7 23:20</a>
+
+说起来也怪，空妈不是音大出身的吗，这么喜欢强行扯高音（可能是因为术曲不是人唱的关系）
+
+感觉你说的这 ...</blockquote>
+这事情你问免费，空妈和大葵的差距大概是北大青鸟和北大的区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11250#       发表于 2020-6-7 23:25
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-6-7 23:28 编辑 
+
+卧槽刚才打错一个字想改突然泥潭抽了，这个字不改掉你楼能劈好几页。<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+SYL：今天清唱歌回在批站看的，一个普通转播看到一栋大楼一个小电视N个小礼物直接冲进分区榜了，《学猫叫》《勾指起誓》yagoo该安排上了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11251#       发表于 2020-6-7 23:27
+
+
+
+ 本帖最后由 ひびき 于 2020-6-7 23:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714954&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-7 23:25</a>
+
+卧槽刚才打错一个字想改突然泥潭抽了，这个字不改掉你楼能劈好几页。 ...</blockquote>
+咋了，不改也没啥问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 而且空妈这个也就算北大成人本科吧，和北大青鸟这种野鸡还是差得远了吧
+
+
+
+
+
+
+
+-----
+
+####  long87755025  
+##### 11252#       发表于 2020-6-7 23:28
+
+
+
+ 本帖最后由 long87755025 于 2020-6-7 23:30 编辑 
+
+话说holocn朵莉丝这边啥情况？怎么哭起来了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11253#       发表于 2020-6-7 23:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">白上桑多吃多喝都是福气呀
+<img src="https://p.sda1.dev/0/229c39ff6fab52663d040696fad2a9fe/IMG_D8FA0F50B4103DF061DA20C90963A44B.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/550257b10ca6d8de65002caea34420c2/IMG_283C3AA9D1868F5033D9B194F8F808A4.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11254#       发表于 2020-6-7 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714995&amp;ptid=1938145" target="_blank">long87755025 发表于 2020-6-7 23:28</a>
+
+话说holocn朵莉丝这边啥情况？怎么哭起来了</blockquote>
+喝多了，zqsg起来了。
+
+顺便隔壁b综聊过了。
+
+
+
+
+
+
+
+-----
+
+####  long87755025  
+##### 11255#       发表于 2020-6-7 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715014&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-7 23:29</a>
+
+白上桑多吃多喝都是福气呀</blockquote>
+这汉堡我好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  long87755025  
+##### 11256#       发表于 2020-6-7 23:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715035&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-7 23:31</a>
+
+喝多了，zqsg起来了。
+
+顺便隔壁b综聊过了。</blockquote>
+这，有点危险啊，别说着说着漏了，然后就。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 11257#       发表于 2020-6-7 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杏liver都忙着游戏直播呢，哪有时间练歌练气息，虽然最近好像有几位小年轻在练歌练舞。
+
+说实话，杏从开始过了这么久我就没见过有谁歌力进步明显的，不退步都算不错了。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 11258#       发表于 2020-6-7 23:35
+
+
+
+ 本帖最后由 中野六小龄童 于 2020-6-7 23:36 编辑 
+
+有的时候还是想看作为夏色祭的阿希 因为那会的笑声大概是发自内心的 真人出镜后感觉克制了不少？或许是要在镜头前保持端庄吧
+
+syl今日撤硕rta68s 看来直播前水喝多了
+
+zsyl联动男人疯了的祭丝只有大叔一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11259#       发表于 2020-6-7 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714983&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-7 23:27</a>
+
+咋了，不改也没啥问题啊 而且空妈这个也就算北大成人本科吧，和北大青鸟这种野鸡还是差得远了吧 ...</blockquote>
+正常唱歌是北大成人本科
+
+唱太阳系disco乙女解剖就是北大青鸟，她假声比星街更吓人。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11260#       发表于 2020-6-7 23:36
+
+
+
+
+淦啊，我今天上亚马逊一看，几个月前给hero寄的米面的居然还没发货<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 这什么狗屎商家
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 11261#       发表于 2020-6-7 23:36
+
+
+
+ 本帖最后由 57042711 于 2020-6-7 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714595&amp;ptid=1938145" target="_blank">超能力者stven 发表于 2020-6-7 23:00</a>
+
+瘦竹竿？是有图了吗</blockquote>
+估计只是推测吧··目前不是有体重和大概的身高嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+今天居然播了1个多小时了··B站直播间都有人发熬不住的弹幕了，看来需要去狗子直播间锻炼耐力呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 11262#       发表于 2020-6-7 23:36
+
+
+
+
+白富婆再不瘦下来，就只能嫁给纸片人了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11263#       发表于 2020-6-7 23:37
+
+
+
+
+切去flare那边听了一耳朵，我错了すいすい我不黑你了<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11264#       发表于 2020-6-7 23:40
+
+
+
+
+能不能不要把空妈这个水准当成音大学生的平均水平，虽然他昭和音大也不是以声乐出名的，不过这学校最出名的歌手，吉冈圣惠姐姐和空妈一样是短大出来的，所以不是学校不行，主要就是空妈傻.......
+
+不过正经的说，空妈从真声到混声到头声的转换还是可以的，不管多高反正都能鬼叫上去不破音，主要就是太难听。
+
+至于空妈唱什么好听点，生日会上大葵的贺信直接点名说了空酱的奇异恩典好，我听了好多遍，你看空妈这傻呵呵的听劝吗。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11265#       发表于 2020-6-7 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715135&amp;ptid=1938145" target="_blank">free 发表于 2020-6-7 23:40</a>
+
+能不能不要把空妈这个水准当成音大学生的平均水平，虽然他昭和音大也不是以声乐出名的，不过这学校最出名的 ...</blockquote>
+明明是在音大学过意大利语歌剧的
+
+
+真的是脑袋急需修理<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11266#       发表于 2020-6-7 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">只要Vtuber还在直播玩游戏就不可能出现满足你们各种要求而又饿不死的
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11267#       发表于 2020-6-7 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715207&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-7 23:45</a>
+
+只要Vtuber还在直播玩游戏就不可能出现满足你们各种要求而又饿不死的</blockquote>
+所以啊，宫皇站了出来鉴别管人玩金游是管人不行还是管人观众不行
+
+
+我也希望木口出个人来鉴别管人唱金曲是管人不行还是管人观众不行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11268#       发表于 2020-6-7 23:48
+
+
+
+
+并不需要音大出身嗷，随便哪个声优事务所配套的声乐训练给你杏整上半年都足够打遍V圈99%的人了，可惜这么干的结果就是直播间被福报的同行冲了，彩虹这一年殷鉴不远。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11269#       发表于 2020-6-7 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715089&amp;ptid=1938145" target="_blank">57042711 发表于 2020-6-7 23:36</a>
+
+估计只是推测吧··目前不是有体重和大概的身高嘛
+
+今天居然播了1个多小时了··B站直播间都有人发 ...</blockquote>
+夸皇和狐皇一样天天垃圾食品，体重怕是忽悠人的
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 11270#       发表于 2020-6-7 23:51
+
+
+
+
+有些管人不但接受了训练，还主动自己去报了班，结果到现在还是跑调<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11271#       发表于 2020-6-7 23:54
+
+
+
+
+所以本来拜年祭里不止那个合唱，连那个冰原竞速战也有阿夸出演的，结果被holo否了
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">有点惨，我记得阿夸看了往届拜年祭的口袋竞技场后说也想参加的
+
+
+
+
+
+
+
+TIM图片20200607235135.png
+(52.59 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-7 23:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/235253zpira668ss6nljn6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 11272#       发表于 2020-6-7 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">阿喵喵是天使，但是她直播我是真看不下去
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11273#       发表于 2020-6-7 23:58
+
+
+
+
+crew冲烂holo运营吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11274#       发表于 2020-6-7 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715309&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-7 23:54</a>
+
+所以本来拜年祭里不止那个合唱，连那个冰原竞速战也有阿夸出演的，结果被holo否了
+
+有点惨，我记得阿 ...</blockquote>
+那确实有点可惜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11275#       发表于 2020-6-8 00:00
+
+
+
+
+erer又要🥜😈了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 11276#       发表于 2020-6-8 00:01
+
+
+
+
+可能价格没谈拢
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11277#       发表于 2020-6-8 00:01
+
+
+
+
+没事，大家庭粉一定会说是阿夸自己拒绝的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+holo运营不粘锅<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11278#       发表于 2020-6-8 00:01
+
+
+
+
+秋后算账<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 11279#       发表于 2020-6-8 00:05
+
+
+
+
+冰原竞速战从结果论来说要战死的，提案真通过了的世界线会发生什么想不到好吧（
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 11280#       发表于 2020-6-8 00:07
+
+
+
+
+大天使阿夸有复活甲的啊 怎么还怕死的
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 11281#       发表于 2020-6-8 00:07
+
+
+
+ 本帖最后由 57042711 于 2020-6-8 00:08 编辑 
+
+草··星姐这直接唱到手机没电只剩一个麦在唱了··<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+最后这王冠的歌还不错···
+
+
+SYL:我去这个东西怎么这时候爆出来的··果然HOLO最大牌的还是阿夸吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11282#       发表于 2020-6-8 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这个up说“取消了”是原来已经答应好了但是被holo中途强行中止了吗？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11283#       发表于 2020-6-8 00:08
+
+
+
+
+狐皇不应该同意这个么  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有人免费送凑阿夸便当吃，岂能不同意
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11284#       发表于 2020-6-8 00:09
+
+
+
+
+我觉得真去唱歌也不至于饿死这么夸张
+
+
+就是看着别人收入飞涨不知道心理作何感受，真能撑得下来，这么有爱的何必当管人呢
+
+
+那么看不起二次元别套皮了呗（）
+
+
+当然二次元也不是完全就和“好的音乐素养”对立了，但很显然你的竞争对手太多了
+
+
+
+
+
+                       
