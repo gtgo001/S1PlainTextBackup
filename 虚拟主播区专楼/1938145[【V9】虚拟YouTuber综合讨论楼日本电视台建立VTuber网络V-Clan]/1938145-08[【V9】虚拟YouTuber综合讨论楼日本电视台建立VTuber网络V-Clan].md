@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 00:10** 
+> ## **本文件最后更新于2020-06-08 02:09** 
 
 
 
@@ -10009,10 +10009,11 @@ bsyl，我家还在停电，一弦的B限看不成了手机也没电了，姑且
 
 
 
- 参与人数 9战斗力 +9
+ 参与人数 10战斗力 +11
 
 |昵称|战斗力|理由|
 |----|---|---|
+| yuandi0120| + 2|欢乐多|
 | 中野六小龄童| + 1|欢乐多|
 | Ascending| + 1|欢乐多|
 | InvisibleP| + 1|欢乐多|
@@ -10472,10 +10473,11 @@ syl，帕里之前不是说mana是他去校门口 ...</blockquote>
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|润姨可爱|
 | Ascending| + 1|好评加鹅|
 
 
@@ -11928,6 +11930,25 @@ miko昨天今天播爆 阿心呢？
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12927,10 +12948,11 @@ nico真是好，想唱啥唱啥，虽然都是观众点的
 
 
 
- 参与人数 6战斗力 0
+ 参与人数 7战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|欢乐多|
 | 时雨rain| + 1|好，头一次给你楼人加鹅|
 | 好德我基| + 1|欢乐多|
 | star_platinum| + 1|欢乐多|
@@ -13734,6 +13756,25 @@ P1I dreamed a dream</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14439,6 +14480,25 @@ SYL：今天清唱歌回在批站看的，一个普通转播看到一栋大楼�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|少喝点奶茶吧！|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14775,7 +14835,7 @@ zsyl联动男人疯了的祭丝只有大叔一个<img src="https://static.saraba
 
 
 TIM图片20200607235135.png
-(52.59 KB, 下载次数: 0)
+(52.59 KB, 下载次数: 1)
 
 
 
@@ -14999,8 +15059,9 @@ SYL:我去这个东西怎么这时候爆出来的··果然HOLO最大牌的还�
 
 
 
+ 本帖最后由 ひびき 于 2020-6-8 00:11 编辑 
 
-狐皇不应该同意这个么  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有人免费送凑阿夸便当吃，岂能不同意
+狐皇不应该说服运营同意这个么  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 有人免费送凑阿夸便当吃，岂能不同意
 
 
 
@@ -15031,4 +15092,1438 @@ SYL:我去这个东西怎么这时候爆出来的··果然HOLO最大牌的还�
 
 
 
-                       
+
+
+-----
+
+####  anwen76  
+##### 11285#       发表于 2020-6-8 00:11
+
+
+
+
+本质上就是用阿夸的模型做节目，又不是本人来，到时后又被这个SX的导演像去年碧蓝航线角色被别人打的满脸是血退场的话，crew还不知道冲谁呢？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 11286#       发表于 2020-6-8 00:12
+
+
+
+
+下了apex试了试，不适合我这种pubg专门玩一枪不开吃鸡的玩家
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11287#       发表于 2020-6-8 00:12
+
+
+
+
+都已经有人设图了，中途紧急打断的可能性更大
+
+木口这是因为当初挑事，现在就要把大亏资源全橄榄，给你小鞋穿<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11288#       发表于 2020-6-8 00:12
+
+
+
+
+这么看你杏的运营是真的垃圾，这事儿阿夸知道吗？不知道的话中国crew飞鸽传信搞快点，**换运营我兹磁。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 11289#       发表于 2020-6-8 00:13
+
+
+
+
+winda老哥激动了  “眼熟”
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11290#       发表于 2020-6-8 00:14
+
+
+
+
+拜年祭那节目本质不就是MMD吗，我觉得粉丝还不至于看了个自己推挨打的MMD就跳起来吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|大概觉得自己推被yygq就会跳起来了.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 11291#       发表于 2020-6-8 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47714739&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-7 23:09</a>
+
+郡道25点有直播，这么算来今天一天都没播......
+
+我要昏了</blockquote>
+你看她预定表
+
+教课的图标那里是个兔子....
+
+
+顺带她6月16天都是联动
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11292#       发表于 2020-6-8 00:15
+
+
+
+
+不要继续把阿夸往蛋蛋的路上逼了hololive<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11293#       发表于 2020-6-8 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715555&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-8 00:13</a>
+
+winda老哥激动了  “眼熟”</blockquote>
+是阿普兰德早动手灭口了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+步露雷舞已经展现了它的仁慈🤗
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 11294#       发表于 2020-6-8 00:16
+
+
+
+
+懂了，考略到凑阿夸只狼玩的多，制作组擅长玩梗，那个死字原本应该在谁身上已经很明显了。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11295#       发表于 2020-6-8 00:18
+
+
+
+ 本帖最后由 面具13 于 2020-6-8 00:21 编辑 
+
+当时拜年祭小组里有几个crew，我猜有些东西的准备应该是抱着肯定没问题的想法先做了（毕竟没什么成本的曝光正常来说都想要），后面才去问的cover吧，运营把合唱和冰原否了后，组力那几个crew好像还拉着领头的人问为什么来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+照楼上的思路，导致碧蓝和拜年祭之间的争端的罪魁祸首找到了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11296#       发表于 2020-6-8 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715309&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-7 23:54</a>
+
+所以本来拜年祭里不止那个合唱，连那个冰原竞速战也有阿夸出演的，结果被holo否了
+
+有点惨，我记得阿 ...</blockquote>
+不然你夸怎么有大亏的称号<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11297#       发表于 2020-6-8 00:18
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 00:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的罢 工主题有了。该给老娘的工商不通知，于是和运营产生了新的路线分歧。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11298#       发表于 2020-6-8 00:19
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 00:24 编辑 
+
+抽风
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11299#       发表于 2020-6-8 00:19
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 00:24 编辑 
+
+抽风了x2
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11300#       发表于 2020-6-8 00:19
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 00:24 编辑 
+
+抽风了x3
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11301#       发表于 2020-6-8 00:19
+
+
+
+
+话说夸皇的游戏实况水平出了holo以后还能像蛋蛋的雀力一样吃得开吗
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 11302#       发表于 2020-6-8 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715560&amp;ptid=1938145" target="_blank">free 发表于 2020-06-08 00:14:52</a>
+拜年祭那节目本质不就是MMD吗，我觉得粉丝还不至于看了个自己推挨打的MMD就跳起来吧 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">冰原竞速都被炎上到撤下来，作者也不得不道歉了，这还不严重吗
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11303#       发表于 2020-6-8 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715560&amp;ptid=1938145" target="_blank">free 发表于 2020-6-8 00:14</a>
+
+拜年祭那节目本质不就是MMD吗，我觉得粉丝还不至于看了个自己推挨打的MMD就跳起来吧 ...</blockquote>
+去年BLHX的玩家还真就因为这个打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11304#       发表于 2020-6-8 00:21
+
+
+
+
+过年给人贴死字儿那个？我觉得大亏不去是好事儿。
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11305#       发表于 2020-6-8 00:21
+
+
+
+
+能不能风声水起不说，离开了杏花大家庭沙雕偶像梦大概就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 11306#       发表于 2020-6-8 00:21
+
+
+
+
+贖罪を歌いました ／ rei sirose
+
+10,000,423次观看 • 2018年11月4日
+[https://www.youtube.com/watch?v=j1ArobXFdyQ](https://www.youtube.com/watch?v=j1ArobXFdyQ)
+
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 11307#       发表于 2020-6-8 00:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">炎上也是炎上作者跟运营 
+
+关我阿夸什么事 曝光度恰饱饱还不是爽到
+
+亏大了亏大了 crew这能忍？今晚就冲了cover！
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11308#       发表于 2020-6-8 00:23
+
+
+
+
+如果阿夸穿着只狼衣服，来个“死”字特效+希望之花，我觉得crew不会怎么闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11309#       发表于 2020-6-8 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715669&amp;ptid=1938145" target="_blank">thisisaspider 发表于 2020-6-8 00:21</a>
+
+能不能风声水起不说，离开了杏花大家庭沙雕偶像梦大概就没了</blockquote>
+离开holo那偶像梦就“失忆”了啊，你看sio还会把3DLive挂在嘴边吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 11310#       发表于 2020-6-8 00:26
+
+
+
+<blockquote>57042711 发表于 2020-6-7 23:36
+估计只是推测吧··目前不是有体重和大概的身高嘛
+
+今天居然播了1个多小时了··B站直播间都有人发 ...</blockquote>
+身高和体重是多少？感觉没什么印象或者是我漏看了
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 11311#       发表于 2020-6-8 00:26
+
+
+
+
+现在还是3w6的评论，这就是道歉，死字贴脑门爱谁谁
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 11312#       发表于 2020-6-8 00:28
+
+
+
+
+夸的游戏力说实话把虹女拉上都还算可以的，就是不像sio有专武可能吃点亏
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11313#       发表于 2020-6-8 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715717&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-8 00:26</a>
+
+离开holo那偶像梦就“失忆”了啊，你看sio还会把3DLive挂在嘴边吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">偶像部当年吹最狠的目标叫“动画化”
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 11314#       发表于 2020-6-8 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715736&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-06-08 00:28:20</a>
+夸的游戏力说实话把虹女拉上都还算可以的，就是不像sio有专武可能吃点亏</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">大乱斗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11315#       发表于 2020-6-8 00:29
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-8 00:32 编辑 
+
+反正我是属于觉得他们玩家B事多的一派<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过这种“官方跨界联动”本来从同人创作衍生而来，却被摆到拜年祭这个大舞台上，出现类似的事也可想而知
+
+
+同样的内容，一个个人二创和这种场合意义完全不同
+
+以后拜年祭再这么搞迟早要出同样的问题
+
+
+你当为什么春晚节目一个赛一个无聊，排场倒是越来越大啊，看的人多了嘛，全身敏感点那就只能啥都不沾了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 11316#       发表于 2020-6-8 00:29
+
+
+
+<blockquote>opersuper 发表于 2020-6-8 00:19
+话说夸皇的游戏实况水平出了holo以后还能像蛋蛋的雀力一样吃得开吗</blockquote>
+蛋蛋吃的开感觉一是麻将雀力管界独树一帜，二是人脉吃的开
+
+
+这种差异化竞争力我觉得holo也只有日南有了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11317#       发表于 2020-6-8 00:31
+
+
+
+
+事实上大亏学熊猫人可能性都比学蛋蛋大，winda老哥不要太激动。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11318#       发表于 2020-6-8 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715576&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-8 00:15</a>
+
+你看她预定表
+
+教课的图标那里是个兔子....</blockquote>
+真的是月之啊我的天，她这哪里来的路子，上上次有视频，上次同时试听，难道这两位私下有什么交集吗.......不过月之对联动都挺宽容的，说不定是郡道胆子大，一问发现月之刚好有空，就搞上了。这，强啊。虽然这么想不太好，但是现在看到她联动多就会觉得她其实不是很想播，刚好有人约了才上，看到秘密第一反应是害怕......
+
+啊！！！！不该这样的！好恶！
+
+
+补张图，有没有见多识广的朋友说一下11号联动的那个竹子emoji是谁的标识啊？
+
+<img src="https://img.saraba1st.com/forum/202006/08/003108k85gnwljxojnoicw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>预定.jpg</strong> (424.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 00:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11319#       发表于 2020-6-8 00:32
+
+
+
+
+话说白洋葱是咋了，怎么突然停播了，难道是之前人上人的事？
+
+还是去收拾colo佬了？
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11320#       发表于 2020-6-8 00:34
+
+
+
+
+阿媂娅买到票了吧，不是复航了嘛，机票降价了。回来得隔离什么的，肯定播不了。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11321#       发表于 2020-6-8 00:35
+
+
+
+
+竹子是笹木来自: iPhone客户端
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|爽到！|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11322#       发表于 2020-6-8 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715807&amp;ptid=1938145" target="_blank">面具13 发表于 2020-6-8 00:34</a>
+
+阿媂娅买到票了吧，不是复航了嘛，机票降价了。回来得隔离什么的，肯定播不了。 ...</blockquote>
+不止，可以去b综看看，估计还有很复杂的原因<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11323#       发表于 2020-6-8 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715807&amp;ptid=1938145" target="_blank">面具13 发表于 2020-6-8 00:34</a>
+
+阿媂娅买到票了吧，不是复航了嘛，机票降价了。回来得隔离什么的，肯定播不了。 ...</blockquote>
+要回国了吗？什么时候说的？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11324#       发表于 2020-6-8 00:36
+
+
+
+
+大亏不是对位虹男的吗，怎么还和女人比的
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 11325#       发表于 2020-6-8 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715720&amp;ptid=1938145" target="_blank">超能力者stven 发表于 2020-6-8 00:26</a>
+
+身高和体重是多少？感觉没什么印象或者是我漏看了</blockquote>
+之前有一次HITMAN直播的时候突然就说自己现在有42KG来着··身高我这也不清楚··
+
+这个只有她本人自己说的··可信度其实也就那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11326#       发表于 2020-6-8 00:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">要和男人比游戏力那是搞男女混箱的虹要考虑的事情，木口生活和星又不是回回开游戏大会都要抱团，和女人比就够了
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 11327#       发表于 2020-6-8 00:40
+
+
+
+
+说到底还是时势造英雄，雀魂加天凤强推蛋蛋。而且本身以受害者的姿态退出点生活，没有负面舆论和压力。
+
+雀魂进场的时机也很合适。之前也就天凤和世嘉麻将吧，虹杏在雀魂推广前麻将播的也不多。
+
+目前能把原本的团体搞崩、观众金主带走还发展的越来越好的也就仅此一人吧。
+
+点生活把成员当成偶像运营怎么就没签个竞业协议加违约金。
+
+还是这行业起步太晚，资本没把网收牢。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11328#       发表于 2020-6-8 00:43
+
+
+
+ 本帖最后由 winda 于 2020-6-8 00:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715885&amp;ptid=1938145" target="_blank">古战场亡魂 发表于 2020-6-8 00:40</a>
+
+说到底还是时势造英雄，雀魂加天凤强推蛋蛋。而且本身以受害者的姿态退出点生活，没有负面舆论和压力。
+
+雀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">合理猜测角田和竹书房保出来的，一个直接出道比赛造势，另一个直接帮忙雇律师，和悠星搭上关系是后来的事了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 11329#       发表于 2020-6-8 00:45
+
+
+
+<blockquote>oshinoshinobu 发表于 2020-6-8 00:36
+大亏不是对位虹男的吗，怎么还和女人比的</blockquote>
+有一说一虹男虹女游戏力差距并不大啊，虽然社内比赛虹男拿的冠军多但是决赛的男女人数一直挺平等的，虹男也是因为黑黑不破社ex这几个人太突出了而已，虹女的平均水平还是挺高的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11330#       发表于 2020-6-8 00:56
+
+
+
+
+郡道51合1（[https://www.youtube.com/watch?v=MAkfpvG-Oyo&amp;feature=youtu.be](https://www.youtube.com/watch?v=MAkfpvG-Oyo&amp;feature=youtu.be)）
+
+自称上次除了桌上冰球所有游戏都玩得挺好（并没有），现在强化训练一下，结果被零封，还怪投SC的分散注意力，现在第二局又输了，又怪观众。
+
+
+
+
+
+
+
+-----
+
+####  57131928  
+##### 11331#       发表于 2020-6-8 00:57
+
+
+
+
+看了一下，老师同接都起来了，《木口底边稳中向好》
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11332#       发表于 2020-6-8 00:58
+
+
+
+
+箱的关键作用就是流量和贩卖人际关系，离开箱当个人势主要还是看流量和人际关系能不能带走。
+
+
+拿sio来说，首先毕业这个事闹的够大，满世界都知道，流量就有了，而且这件事里站在了道义的一边，像我这种不看麻将的路人知道转生了也过去点个关注。再说点本来不轻易对外联动，出来当个人势想和谁联动就和谁联动，反而是解放了她的人际关系。所以用sio来论证没了箱单干一样能很好，属于特例意义不大。
+
+
+现在虹杏几乎就是90%的V界，其他像犬山哥这种都要拉虹杏的关系，你个人势跑出来单干，还能吃到箱的流量吗，原来箱里的就算私下还是朋友，能说联动就随便联动吗。姬森这起码是从虹转到杏，而且人家在杏也有夏哥这种新朋友。现在个人势脱离箱之后我是不看好。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 11333#       发表于 2020-6-8 01:13
+
+
+
+
+主要杏这通讯簿招人 三四期 gamers这些也没多少外部人脉了，假设炸箱我爱看的三期和gamers除了团长可以回去做日南其他人大部分不要说转生怕是直接网络消失了（不太信猫狗船粽会再转生次）
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11334#       发表于 2020-6-8 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716168&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-8 01:13</a>
+
+主要杏这通讯簿招人 三四期 gamers这些也没多少外部人脉了，假设炸箱我爱看的三期和gamers除了团长可以回去 ...</blockquote>
+粽为什么不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 11335#       发表于 2020-6-8 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716173&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-8 01:14</a>
+
+粽为什么不会</blockquote>
+确实 粽子肯定不会网络消失毕竟现在也有t台 但是2020重新回底边在高度内卷化业界换皮养gachi 想想感觉好艰辛 不过润姨可能真能做到吧...
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 11336#       发表于 2020-6-8 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716173&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-8 01:14</a>
+
+粽为什么不会</blockquote>
+风怒了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11337#       发表于 2020-6-8 01:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">炸完也可以订制高仿皮，和一起出走的抱团建小箱阿 → 中身部
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11338#       发表于 2020-6-8 01:23
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-8 01:28 编辑 
+
+半夜为什么要车这么无聊的问题。。
+
+不如帮我想想小天使魂推突然动了是什么意思。。
+
+希望只是想用本音唱歌了，而不是被龙皇忽悠了什么。
+
+嘤嘤嘤前几天才劈了一阵双开的，今天就要被打脸了。啊，顺带一说好像发现她的真实生日和我是同一天。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11339#       发表于 2020-6-8 01:26
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-8 01:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716035&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-8 00:56</a>
+
+郡道51合1（[https://www.youtube.com/watch?v=MAkfpvG-Oyo&amp;feature=youtu.be](https://www.youtube.com/watch?v=MAkfpvG-Oyo&amp;feature=youtu.be)）
+
+自称上次除了桌上冰球所有游 ...</blockquote>
+22分的时候发出了非常难得的好听的声音，原来她做得到啊！在途中忘记现在自己是live2D还模仿了动作，想看家用3D。（613会不会就是这个啊）
+
+在第三轮被打傻了，对手不知为何一直压制他，得了一分就开始狂自夸。
+
+非常多的砸手柄声，郡虐爽到。
+
+得分了会猴叫嘲讽（郡道江良贴贴？），但实质效果听着比较像小熊O尼。
+
+因为老是输，就怪观众打SC吸引注意力，观众打得更欢了。
+
+有一次超常发挥双赛点，结果一激动退出游戏了，然后输了，好像看到了玩音游时的我。
+精彩时刻！36分时打的很烂，在赢了她之后她的对手CPU（是AI）做出了标准的篮球赛场嘲讽挑衅动作，会被裁判举黄牌程度的标准，在郡虐面前觉醒人性的人工智能，郡道被气到发疯了。
+
+在本次耐久开始的40分钟后，终于赢了三局，发出来不像是人的喜悦的叫声。
+
+遭不住睡了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11340#       发表于 2020-6-8 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716255&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 01:23</a>
+
+半夜为什么要车这么无聊的问题。。
+
+不如帮我想想小天使魂推突然动了是什么意思。。
+
+希望只是想用本音唱歌了 ...</blockquote>
+她原推不本来就隔半个月一个月就蠕动一下么
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11341#       发表于 2020-6-8 01:30
+
+
+
+
+玩了会游戏看到你们在编排粽子，还从头养gachi，感觉好辛酸。不安です<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11342#       发表于 2020-6-8 01:34
+
+
+
+ 本帖最后由 QWANG 于 2020-6-8 01:38 编辑 
+
+其实阿船的话，可以去投靠海苔男的苔箱嘛，其他杏人也不是不能去阿苔那，海苔男应该还是欢迎的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11343#       发表于 2020-6-8 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716293&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-8 01:30</a>
+
+她原推不本来就隔半个月一个月就蠕动一下么</blockquote>
+这次主要是提到了打算重新活动。
+
+不过刚翻了一下推，一月那阵也提到了原本计划2月末发歌，但是耽误了。
+
+这样一想也没什么了，就当做是大家都知道的秘密好了。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 11344#       发表于 2020-6-8 01:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">想要炸杏箱，紧盯龙夸动向是不是就行了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11345#       发表于 2020-6-8 01:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">能听到郡郡气急败坏的声音
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么多人在考虑后事了，木口真是一碰就碎啊
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 11346#       发表于 2020-6-8 01:38
+
+
+
+ 本帖最后由 null0304 于 2020-6-8 01:39 编辑 
+
+フブキ+ロベル的笑声，魔性+魔性，对于深夜来说超规格的吓人啊……不过棉花糖的质量这样还能聊的这么起劲，两位的杂谈力碰撞是真的很pro
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 11347#       发表于 2020-6-8 01:40
+
+
+
+
+木口炸了486能做啥呢，其他箱有企划人员的坑吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11348#       发表于 2020-6-8 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716317&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-8 01:34</a>
+
+其实阿船的话，可以去投靠海苔男的苔箱嘛，其他杏人也不是不能去阿苔那，海苔男应该还是欢迎的。特 ...</blockquote>
+木口人际关系这么错综复杂，真炸了还进苔箱给苔姨恰烂钱？ 自己抱团不就好了，这群姨哪个不比苔姨pro，又不是小肥妹那种傻年轻
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 11349#       发表于 2020-6-8 01:45
+
+
+
+
+杏在你楼一天炸三次
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11350#       发表于 2020-6-8 01:46
+
+
+
+
+是四次<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/bf78e8ee7a6fca8fdd0347beb394dea4/IMG_DB18CA374BA091DC94FCBE901686D669.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11351#       发表于 2020-6-8 01:46
+
+
+
+
+点炸了那是USSR解体，给人吃尸体的
+
+
+杏炸了那是加州德州独立，个个拿出来都相当于世界前十经济体+前十军事力量还有核武的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11352#       发表于 2020-6-8 01:50
+
+
+
+
+隔壁看到说夏哥t台突击
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 11353#       发表于 2020-6-8 01:53
+
+
+
+
+气抖冷，为什么姨就不放假
+船长说的去看耳鼻喉科计划已经搁置了一个月了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11354#       发表于 2020-6-8 01:57
+
+
+
+ 本帖最后由 ひびき 于 2020-6-8 01:58 编辑 
+
+自爆自己是爱知县名古屋的，却推了东京的偶像组合
+
+
+
+（虽然她老家现在还有谁不知道的吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11355#       发表于 2020-6-8 01:59
+
+
+
+
+老家这信息没什么意义啊，现在又不住老家。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 11356#       发表于 2020-6-8 01:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">三才还要搞两周的企划呢，每天2小时游戏直播都搞不定的体力搞这个....
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11357#       发表于 2020-6-8 02:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716272&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-8 01:26</a>
+
+22分的时候发出了非常难得的好听的声音，原来她做得到啊！在途中忘记现在自己是live2D还模仿了动作，想看 ...</blockquote>
+忘记刷明日方舟了，我也耐久。
+
+郡道玩了一个像竞速空当接龙的游戏，玩得超好，虽然跟AI比会慢一点，但反应速度真的很快，不符合年龄啊...
+
+每次玩完都会提一嘴自己和sio的决斗约定，现在我觉得她说不定能赢诶。
+
+郡道在玩一个完全不理解规则的游戏，不知道为什么赢也不知道为什么输，我在语言方面无法理解规则，该像黑宝学习日语了。
+
+日本人不用睡觉吗，那边现在都3点了还近3000同接。
+
+我是真遭不住了，歇了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11358#       发表于 2020-6-8 02:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716325&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 01:35</a>
+
+这次主要是提到了打算重新活动。
+
+不过刚翻了一下推，一月那阵也提到了原本计划2月末发歌，但是耽误了。
+
+ ...</blockquote>
+二月发歌那个应该是去年还没出道时在推上放的卫星，忙起来就鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+偶尔tc服务一下古参也没毛病吧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11359#       发表于 2020-6-8 02:03
+
+
+
+
+有些人炸之前觉得自己是加州德州，炸完了发现自己原来是乌克兰<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                     
