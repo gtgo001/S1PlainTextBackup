@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 18:04** 
+> ## **本文件最后更新于2020-06-08 20:04** 
 
 
 
@@ -15763,4 +15763,692 @@ zjh能在直播说哪个v真人像谁吗，想太多了<img src="https://static.
 
 
 
-                   
+
+
+-----
+
+####  GRMeA104  
+##### 11409#       发表于 2020-6-8 18:04
+
+
+
+
+有哪位在阿B日本分部的工作人员赏张麻照看看吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11410#       发表于 2020-6-8 18:04
+
+
+
+
+他说的到底是
+镜华像mea
+镜华像麻酱
+xcw像mea
+xcw像麻酱
+中的哪个？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 11411#       发表于 2020-6-8 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">肯定是说镜华像mea啊，xcw和麻像怕不是想多了
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11412#       发表于 2020-6-8 18:04
+
+
+
+
+他说的到底是
+镜华像mea
+镜华像麻酱
+xcw像mea
+xcw像麻酱
+中的哪个？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11413#       发表于 2020-6-8 18:05
+
+
+
+
+都是双马尾角色当然是指皮，双麻尾根本不合适好吧
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11414#       发表于 2020-6-8 18:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，能不能不要玩游戏黑话，镜华就镜华，不要小仓唯
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11415#       发表于 2020-6-8 18:08
+
+
+
+
+你们就是想看麻照想魔怔了，不要擅自歪解啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11416#       发表于 2020-6-8 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47723874&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-8 18:05</a>
+都是双马尾角色当然是指皮，双麻尾根本不合适好吧</blockquote>
+双麻尾又是什么黑话<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11417#       发表于 2020-6-8 18:12
+
+
+
+ 本帖最后由 掉头学姐 于 2020-6-8 18:31 编辑 
+
+镜华是双马尾
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11418#       发表于 2020-6-8 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47723866&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-8 18:04</a>
+有哪位在阿B日本分部的工作人员赏张麻照看看吗</blockquote>
+黄金周的时候怕不是已经玩腻了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+说不定会爆出让麻酱职业生涯终结的照片<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11419#       发表于 2020-6-8 18:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">已经默认斧子哥见过麻酱了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">麻体型应该比xcw大一号吧
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11420#       发表于 2020-6-8 18:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47723982&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-8 18:15</a>
+已经默认斧子哥见过麻酱了吗
+麻体型应该比xcw大一号吧</blockquote>
+都是脑补啊，也不知道他们说的是皮还是口hi
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11421#       发表于 2020-6-8 18:17
+
+
+
+
+何止大一号，装个xcw都没问题吧
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 11422#       发表于 2020-6-8 18:17
+
+
+
+
+斧子哥是谁
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11423#       发表于 2020-6-8 18:18
+
+
+
+
+小仓唯到底有多小
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 11424#       发表于 2020-6-8 18:18
+
+
+
+
+斧子哥一句话只能信一个字
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11425#       发表于 2020-6-8 18:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47724012&amp;ptid=1929631" target="_blank">神光咩咩 发表于 2020-6-8 18:17</a>
+斧子哥是谁</blockquote>
+孙狗经纪人乐府
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11426#       发表于 2020-6-8 18:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">麻应该比一般的yhm体型大，又喜欢穿暗色调的衣服
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果声音池面一点应该可以钓很多妹子
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">不过阿咩还是喜欢男的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11427#       发表于 2020-6-8 18:25
+
+
+
+
+其实不是直播里说的……discord吹比（）
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11428#       发表于 2020-6-8 18:26
+
+
+
+
+版主的原话不是“和皮一模一样”吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么就传成小仓唯了
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11429#       发表于 2020-6-8 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47724134&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-8 18:26</a>
+版主的原话不是“和皮一模一样”吗怎么就传成小仓唯了</blockquote>
+那应该记混了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11430#       发表于 2020-6-8 18:36
+
+
+
+
+搜了搜小仓唯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">才一米五，怎么感觉网上的日本女人动不动一米五几，这真的科学吗
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11431#       发表于 2020-6-8 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47724246&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-8 18:36</a>
+搜了搜小仓唯才一米五，怎么感觉网上的日本女人动不动一米五几，这真的科学吗 ...</blockquote>
+日本女人都很矮啊，看yellow片，170的不都是长女了吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11432#       发表于 2020-6-8 18:47
+
+
+
+
+zjh那口嗨，能信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是个双马尾就是mea？
+
+镜华是8岁幼女，能跟mea一样吗
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11433#       发表于 2020-6-8 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47724290&amp;ptid=1929631" target="_blank">掉头学姐 发表于 2020-6-8 18:39</a>
+日本女人都很矮啊，看yellow片，170的不都是长女了吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Nex ...</blockquote>
+150这级别也太矮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11434#       发表于 2020-6-8 18:57
+
+
+
+
+我不管，mea就是幼女
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11435#       发表于 2020-6-8 19:03
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-8 19:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">最近脑子坏了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 11436#       发表于 2020-6-8 19:05
+
+
+
+
+mea是那种。如果有机会见面能聊天的话，你会立刻猜到这个钢板妹子是mea。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 11437#       发表于 2020-6-8 19:19
+
+
+
+
+我也相信mea肯定是一眼就能被发现的类型
+
+我会立刻从人群里找出那辆我中意的坦克<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 11438#       发表于 2020-6-8 19:29
+
+
+
+
+感觉小博🐟这人还真缠上你楼了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+实在不行楼主把权限拉到40吧。把小博宇隔离一到半个月他也会冷静下找个新家了
+
+至于权限不够的人应该也有自己的群了吧。没必要留在这看小博🐟。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11439#       发表于 2020-6-8 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">去年去玩的时候没能碰到，今年想去去不了了，明年再去找麻
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 11440#       发表于 2020-6-8 19:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太弱智了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 11441#       发表于 2020-6-8 19:38
+
+
+
+
+别啊，拉到40不行啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11442#       发表于 2020-6-8 19:47
+
+
+
+
+拉到40岂不是很对不起你楼献祭了的诸多壮士
+
+
+打生打死结果投降了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11443#       发表于 2020-6-8 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11444#       发表于 2020-6-8 19:49
+
+
+
+
+第一回一换一是5.12，过两天大号就出来了，到时候再拉不急
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11445#       发表于 2020-6-8 19:52
+
+
+
+
+拉吧，少看s1
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11446#       发表于 2020-6-8 19:55
+
+
+
+
+楼gachi受不了，不要窗帘不要窗帘<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+         
+
+小博禹又赢了，小博禹总是赢
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 11447#       发表于 2020-6-8 20:01
+
+
+
+
+不建议拉，你们拉黑行不行
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11448#       发表于 2020-6-8 20:02
+
+
+
+
+今天会播吗，或者有盒限和沙雕推的消息吗，总之能动一下吗阿咩
+
+
+
+
+
+                  
