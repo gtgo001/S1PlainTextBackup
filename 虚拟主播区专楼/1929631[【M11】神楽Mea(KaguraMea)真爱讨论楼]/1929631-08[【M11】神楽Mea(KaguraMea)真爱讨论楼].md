@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-07 22:02** 
+> ## **本文件最后更新于2020-06-08 10:03** 
 
 
 
@@ -14494,4 +14494,579 @@ s1私聊功能不好用，之前私聊过有时候会看不到消息（不管是
 
 
 
-                     
+
+
+-----
+
+####  Mr.shelter  
+##### 11342#       发表于 2020-6-7 22:51
+
+
+
+
+话说最近404涨粉好快(#ﾟДﾟ)，来的都是鬼佬吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11343#       发表于 2020-6-7 22:59
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-7 23:06 编辑 
+
+推特段子也车轱辘了， 不出门就是这样
+
+建议学我
+
+虽然不出门，
+
+但是关心国际时事(屏幕政治家，
+
+摄取新的知识(自学，
+
+探索科学技术的边界(科研。
+
+还有水论坛
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11344#       发表于 2020-6-7 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">官组都不愿意翻译这推吗，怎么现在都不发出来
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 11345#       发表于 2020-6-7 23:33
+
+
+
+<blockquote>魔法使い2019 发表于 2020-6-7 22:59
+推特段子也车轱辘了， 不出门就是这样
+
+
+建议学我</blockquote>
+然后爱讨论
+
+被睿站ban了
+
+
+十年后在dmm的片子中听到了似曾相识的声音，一打开发现女主演技太差，又平，不好用，关掉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11346#       发表于 2020-6-7 23:36
+
+
+
+<blockquote>时雨rain 发表于 2020-6-7 23:25
+官组都不愿意翻译这推吗，怎么现在都不发出来</blockquote>
+今天fanart没转，开播也没有提醒，只有中午的定时投稿，不知道为什么
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11347#       发表于 2020-6-7 23:45
+
+
+
+
+呜呜呜 麻酱不要爱讨论啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11348#       发表于 2020-6-7 23:58
+
+
+
+
+貌似异地登录锁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+鬼知道是不是某个yhm视察弄得<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11349#       发表于 2020-6-8 00:07
+
+
+
+
+异地登陆锁了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前几次视察也没出过这事啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11350#       发表于 2020-6-8 00:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计是半夜不睡觉乱逛锁的吧
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11351#       发表于 2020-6-8 00:14
+
+
+
+
+近两天的话可以理解
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11352#       发表于 2020-6-8 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715051&amp;ptid=1929631" target="_blank">rubinliu 发表于 2020-6-7 23:33</a>
+然后爱讨论
+
+被睿站ban了</blockquote>
+不要关掉啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11353#       发表于 2020-6-8 00:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">工作要紧…睡觉了，必不会突击
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 11354#       发表于 2020-6-8 00:25
+
+
+
+
+呜呜呜，mea连年度大会员都没了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11355#       发表于 2020-6-8 00:27
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-8 00:34 编辑 
+
+不对啊，前几个月没过一次，怎么现在又没了，这是怎么算的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+似乎是常见bug，无事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11356#       发表于 2020-6-8 00:32
+
+
+
+
+乱算的
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11357#       发表于 2020-6-8 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712269&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-7 19:21</a>
+
+说到底你麻如果是狐皇早就能够构建一定的箱关系
+
+现在还是没有一个小箱的样子
+
+你麻最 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这简直歪得离谱。已经石锤你麻01，粽子00，小紫98。从和小紫的对比来看，粽子身高大概和洋葱一个级别，反正99%比你麻矮。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11358#       发表于 2020-6-8 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716194&amp;ptid=1929631" target="_blank">llconforever 发表于 2020-6-8 01:16</a>
+你这简直歪得离谱。已经石锤你麻01，粽子00，小紫98。从和小紫的对比来看，粽子身高大概和洋葱一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我说的是v的辈份和立绘高矮
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">怎么动不动就提中之人的
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 11359#       发表于 2020-6-8 01:50
+
+
+
+
+小紫98哪来的，我记得她19年成人，99的才对。choma不是02的吗，比麻小1。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 11360#       发表于 2020-6-8 01:57
+
+
+
+
+醒了，新推，爆睡鸽了盒限，改日。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11361#       发表于 2020-6-8 02:05
+
+
+
+
+半夜惊醒的卡古拉魅娅
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11362#       发表于 2020-6-8 02:44
+
+
+
+
+原来麻在神乐组里年龄最小<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">难怪其他两个又像带小孩一样对麻了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11363#       发表于 2020-6-8 03:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47715051&amp;ptid=1929631" target="_blank">rubinliu 发表于 2020-6-7 23:33</a>
+
+然后爱讨论
+
+被睿站ban了</blockquote>
+十年后都快三十了，哪还有人看，十个月后吧（
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11364#       发表于 2020-6-8 03:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716399&amp;ptid=1929631" target="_blank">千木唯 发表于 2020-6-8 01:50</a>
+
+小紫98哪来的，我记得她19年成人，99的才对。choma不是02的吗，比麻小1。 ...</blockquote>
+小紫推直接发过出生的年月日。小绿18年18岁，19年19岁，都有过生日配信
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11365#       发表于 2020-6-8 03:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716266&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-8 01:26</a>
+
+我说的是v的辈份和立绘高矮
+
+怎么动不动就提中之人的</blockquote>
+可是粽子立绘也就150啊，你咩157呢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11366#       发表于 2020-6-8 03:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你麻终于又是yhm了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11367#       发表于 2020-6-8 07:06
+
+
+
+
+粽子00？不是说粽子快30了，10年前还上过某偶像节目么
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 11368#       发表于 2020-6-8 07:08
+
+
+
+
+ 说的如月吧，僵尸又叫粽子
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11369#       发表于 2020-6-8 07:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，你楼之前不是管她叫小绿的么
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11370#       发表于 2020-6-8 07:22
+
+
+
+<img src="https://p.sda1.dev/0/00687136e7afac25340ddd6b16ad6ea4/B96015AF61BB4EF61B732053BAD57BE116649344.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11371#       发表于 2020-6-8 08:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">葛坊老师画的图害人
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">那张图是mea坐着其他人站着的吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11372#       发表于 2020-6-8 08:25
+
+
+
+
+你麻天天和如月打电话聊line，如月天天在推上晒互动
+
+        
+
+小紫天天都看在眼里，有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11373#       发表于 2020-6-8 08:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">还以为tc突击了呢，还好
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 11374#       发表于 2020-6-8 09:34
+
+
+
+
+一般杆姐妹关系也不会这么好吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">私底下小麻小绿会扯头发掐鼻子吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    

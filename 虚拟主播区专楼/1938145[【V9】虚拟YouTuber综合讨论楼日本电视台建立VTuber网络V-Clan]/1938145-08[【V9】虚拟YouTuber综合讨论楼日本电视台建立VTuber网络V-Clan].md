@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 04:08** 
+> ## **本文件最后更新于2020-06-08 10:09** 
 
 
 
@@ -16913,4 +16913,1322 @@ V界做一个比较像样的MV要多少钱，我觉得可以参考下这位有�
 
 
 
-                    
+
+
+-----
+
+####  中野六小龄童  
+##### 11378#       发表于 2020-6-8 04:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47716703&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-8 03:10</a>
+一个超debu的狐皇fanart，比真实狐皇还胖三倍你想象下</blockquote>
+老哥给个链接 超期待的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11379#       发表于 2020-6-8 07:18
+
+
+
+
+holocn也分不安休止部和通常运营部了，这波划成分还是有点意思
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11380#       发表于 2020-6-8 08:02
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 08:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">被VT骗去VR综翻白洋葱相关信息的我太蠢了，而且停播这事儿根本就没讨论起来，有信息量的内容都是VT自己发的。包括停播的zqsg和卖电脑。感兴趣的点他的发言记录就行了，找起来比B综快。
+
+应该是退学了，准备彻底卡其脱离肽。这期间应该是各种东西（房子，水电，网络，学校，银行卡，签证等等）都要办理注销，行李要打包，还得想办法订机票，回国后隔离，然后看父母脸色可能还要从家里搬出来/找房子自己住，然后又是找符合直播条件的房子（比如单身公寓），再签租房合同押金大出血，搬家买设备…总之回到祖国整体是件好事。
+
+没怎么挖过她的情报，不知道是在美读本科还是研究生，反正不适合留学的怎么都不适合，越早回来越好。不过要真的跟家里人闹掰的话，她这个状态就可能要很长时间来心理复健了。另外考虑到一个人的生活成本，而且跟父母闹掰，其实也不用待在老家，反正哪里有网络都能直播，最好去次一线城市，推荐成都，南京也不错，北方城市大概青岛？当然别跟父母闹是最好的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11381#       发表于 2020-6-8 08:02
+
+
+
+
+其实holo本社休息的原因大部分还是上个月太福报了吧，像船长兔子狐皇这种其实也该休个一周
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 11382#       发表于 2020-6-8 08:23
+
+
+
+
+建议v综里的holocn信者过去演变vr综，不断循环的虚无发散太弱智了，还不如看粉丝大战<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 11383#       发表于 2020-6-8 08:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717206&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-8 08:02</a>
+
+被VT骗去VR综翻白洋葱相关信息的我太蠢了，而且停播这事儿根本就没讨论起来，有信息量的内容都是VT ...</blockquote>
+退学是哪里来的消息？她只说了电脑不好搬所以卖了，没说过要退学吧，现在美国大学下学期大部分都确定是网课了回国根本不影响的一样可以上课拿学分
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11384#       发表于 2020-6-8 08:30
+
+
+
+ 本帖最后由 opersuper 于 2020-6-8 08:40 编辑 
+
+v综视频势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真关心的早过去了，这里不都是用来顺劈猴楼来补的工具
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11385#       发表于 2020-6-8 08:42
+
+
+
+
+早安可可2.0有点虚无。cm果然还是灵魂啊，虽然我能理解搞cm太花精力了但感觉单靠南部式英语教学走不长久...
+
+不管怎么说，只要她还愿意去改变，感觉就有希望
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11386#       发表于 2020-6-8 08:45
+
+
+
+ 本帖最后由 winda 于 2020-6-8 08:46 编辑 
+
+まとめるとこんな感じだけどほんとに凄いわ凄くないけど
+
+昨日の今日でこれは・・・
+
+・ぺこらがSteamのゲームを収益化、スパチャオンにする
+
+・Steamには収益化可能リストがあるがぺこらのやってたMORDHAUはリストになかった
+
+・許可取ったのだとしたら概要欄に
+
+　その許諾の記載があるはずなのにない
+
+・権利元Triternionはスロベニアの会社→英語かスロベ　ニア語で問い合わせしなければいけない
+
+・日本語対応してないのに何故か日本語化されてる→非公式のmodを入れてた
+
+[https://mordhau.com/legal/tos/](https://mordhau.com/legal/tos/)
+[https://store.steampowered.com/curator/32793483/?l=japanese](https://store.steampowered.com/curator/32793483/?l=japanese)
+
+
+ここまで来ると箱潰す気でもあるんかと思う
+
+塩と絡んだから箱を崩壊させたくなったんか？
+
+ぺこら。。。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11387#       发表于 2020-6-8 08:46
+
+
+
+
+不想看虚空发散就把我屏蔽了呗，我去VR综发还怕打扰您看粉丝大战呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11388#       发表于 2020-6-8 08:47
+
+
+
+
+WFLE出了个新V VESPERBELL，看样是个二人歌势组合，KMNZ也转发了，昨晚一口气发了四首，两首solo两首合唱。
+
+人设挺好的，不过好像还没3D？四首歌都是2D曲绘做的，歌力有点一般......有兴趣的可以听听
+[https://www.youtube.com/channel/UCPd0Z22gF43dUidPYEQO5-w](https://www.youtube.com/channel/UCPd0Z22gF43dUidPYEQO5-w)
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 11389#       发表于 2020-6-8 08:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">11号更新了ark复活能坚持到一个月吗
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11390#       发表于 2020-6-8 08:48
+
+
+
+
+既然要虚空发散 为什么不发的更彻底一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11391#       发表于 2020-6-8 08:48
+
+
+
+ 本帖最后由 1678334706 于 2020-6-8 08:57 编辑 
+
+风怒 编辑
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11392#       发表于 2020-6-8 08:48
+
+
+
+
+（f）删除、掩盖或更改任何服务所附带的版权、专利、商标或其他所有权声明。未经ZeniMax授权代表书面许可，禁止商业使用或享用服务（包括但不限于电子竞技和多人游戏竞赛）。
+[https://bethesda.net/zh-CN/document/terms-of-service](https://bethesda.net/zh-CN/document/terms-of-service)
+
+虽然B社规矩挺松，不过这种也够纠结一会了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11393#       发表于 2020-6-8 08:53
+
+
+
+
+话说ark有版权问题吗
+
+现在有公开声明可以进行直播的大游戏公司有哪些
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 11394#       发表于 2020-6-8 08:54
+
+
+
+
+楼太多爬不完，求个总结我们杏社怎么又炸了四次了。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11395#       发表于 2020-6-8 08:54
+
+
+
+ 本帖最后由 winda 于 2020-6-8 08:56 编辑 
+
+[https://note.com/ppoch/n/naae50b29fe8d](https://note.com/ppoch/n/naae50b29fe8d)
+
+にじさんじ衰退論「ホロライブは最強で最悪のライバル？」
+
+最強で最悪<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11396#       发表于 2020-6-8 08:59
+
+
+
+
+电脑太重了不好搬所以卖掉了，但是为什么要搬，搬到哪里去，不搬回来吗？这个时候在美国内部搬家大概只可能是被房东赶了吧…所以我猜测是退学了，回国内一劳永逸且再也不回去美国了。
+当然，来一个地方就配台电脑，用几个月等走的时候卖掉，这种后浪的生活方式我只有羡慕的份儿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11397#       发表于 2020-6-8 09:00
+
+
+
+
+好烦，为什么湊阿夸是休止部的，下次我一定选个乖宝宝来饭了。
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11398#       发表于 2020-6-8 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717523&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-8 08:54</a>
+
+楼太多爬不完，求个总结我们杏社怎么又炸了四次了。</blockquote>
+没露和版权问题吧
+
+梅露现在已经表明要回来直播的意向了，版权问题在yagoo滑跪之后有缓解一点（真的只有一点），不过还是有许多恶意踩
+
+现在v界人人自危了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11399#       发表于 2020-6-8 09:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">二二姐下次饭请认准任天堂唯一认证Vjuan清白合法的2434，木口只有坏姨姨，没有乖宝宝的
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 11400#       发表于 2020-6-8 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717469&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-8 08:46</a>
+不想看虚空发散就把我屏蔽了呗，我去VR综发还怕打扰您看粉丝大战呢</blockquote>
+你可能误解了我的意思，我是说vr综虚无发散，没有说你。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|我的我的，算我误伤吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 11401#       发表于 2020-6-8 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712658&amp;ptid=1938145" target="_blank">魔法使い2019 发表于 2020-6-7 20:02</a>
+
+好了， 大局已定！
+
+
+holo已是四面杏歌之境！</blockquote>
+四面唱sss吗
+
+
+勘弁してくれよ
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 11402#       发表于 2020-6-8 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717527&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-8 08:54</a>
+
+https://note.com/ppoch/n/naae50b29fe8d
+
+にじさんじ衰退論「ホロライブは最強で最悪のライバル？」
+
+最強で ...</blockquote>
+这不一看就是虹的粉丝写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11403#       发表于 2020-6-8 09:11
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 09:20 编辑 
+
+楼上点痴哥发的（f）条款算是格式条款了，基本上所有的游戏里都有。本来 游戏视频/直播 就是灰色地带，清白合法的只有官方发布会和官方的比赛，对了，还有新闻和游戏媒体比如IGN的评测。
+任天堂唯一认证2434应该是合法的，但是清不清白就不好说了，因为游戏内容（包括素材和音乐等）的版权授权给了发行方，一般也仅限游戏内使用，且是否包含转授权都需要具体分析<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+说个具体点的例子，大乱斗里很多非任系的角色，2434的liver播的时候最好注意不要在画面里露出来，如果实在不行要记得打马赛克哦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11404#       发表于 2020-6-8 09:12
+
+
+
+
+美国都这样了......不想死真是砸锅卖铁也得逃回国内，不管怎么样人回来最主要的，有啥东西带不走也顾不上了，正常的
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11405#       发表于 2020-6-8 09:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">带不走也没必要卖吧 估计她是不回去了 
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11406#       发表于 2020-6-8 09:21
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-6-8 09:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717320&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-6-8 08:23</a>
+退学是哪里来的消息？她只说了电脑不好搬所以卖了，没说过要退学吧，现在美国大学下学期大部分都确定是网 ...</blockquote>
+退学是之前就说的消息了，前段时间有说在找学校。
+你们时间不太巧，昨天晚上刚把私推清空。
+
+另外阿媂娅不是后浪，大概剧情我截个图吧，这是之前她自己写的童话的翻译版
+
+<img src="https://p.sda1.dev/0/f8ea4d196266c35cbbb829080a4297d7/IMG_6613B4CBCCD00112D5DA79A67CECEDB1.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11407#       发表于 2020-6-8 09:23
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717797&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-8 09:21</a>
+退学是之前就说的消息了，前段时间有说在找学校。
+你们时间不太巧，昨天晚上刚把私推清空。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">跟前男友借钱肉偿之类的剧情就饶了我吧，早上在VR综把本独角兽看吐了。
+女子高尔夫，后面不想看了…我长这么大也就wii上玩过高尔夫，至今还没进过高尔夫球场，00后能去高尔夫球场挥杆还不算后浪？
+你这个二次加工版有没有原文的截图，中世纪私自翻译圣经可是会被烧死<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11408#       发表于 2020-6-8 09:25
+
+
+
+
+vr这是完全被妖魔化了啊，哪有什么只收后浪。
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11409#       发表于 2020-6-8 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717797&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-8 09:21</a>
+
+退学是之前就说的消息了，前段时间有说在找学校。
+
+你们时间不太巧，昨天晚上刚把私推清空。</blockquote>
+？？？？？？？
+
+这也太nm曲折了吧
+
+这真不是编的？
+
+怪不得这么负能量...
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 11410#       发表于 2020-6-8 09:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比灵大一岁的灵又是谁啊？前文也没有出现啊。
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11411#       发表于 2020-6-8 09:26
+
+
+
+
+所以 被退学是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11412#       发表于 2020-6-8 09:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717854&amp;ptid=1938145" target="_blank">榊城翼 发表于 2020-6-8 09:26</a>
+比灵大一岁的灵又是谁啊？前文也没有出现啊。
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版  ...</blockquote>
+前男友，代称暗
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 榊城翼| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11413#       发表于 2020-6-8 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717872&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-8 09:28</a>
+
+前男友，代称暗</blockquote>
+原文是在b博还是微博啊，能否发来看看？
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11414#       发表于 2020-6-8 09:29
+
+
+
+
+这个holocn就连卖惨都要踩一脚vr把我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  废都刽子手  
+##### 11415#       发表于 2020-6-8 09:31
+
+
+
+
+事实上这种履历的简历看完了就扔了再正常不过了..
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11416#       发表于 2020-6-8 09:32
+
+
+
+ 本帖最后由 VivillonTundra 于 2020-6-8 09:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717885&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-8 09:29</a>
+原文是在b博还是微博啊，能否发来看看？</blockquote>
+原文就是colo哥挖出来以后，在那个号上发的
+<img src="https://p.sda1.dev/0/0f8f5172256337a1f97fe44e57355e15/IMG_160321D68B0E8F992E3DF04B095F398C.jpeg" referrerpolicy="no-referrer">
+
+还有昨晚发公告说停止活动前的微博
+<img src="https://p.sda1.dev/0/41f189def6620dd8f6c7a72365972c55/IMG_7CE30BBD5008B7C265E7F0FB0933D9C1.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11417#       发表于 2020-6-8 09:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 维阿，你tm究竟要害多少人才满足
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11418#       发表于 2020-6-8 09:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">VR运营对OW有梁木吧，之前不让Ruki播OW，然后把OW北美500强（辅助）的简历扔进垃圾桶了
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11419#       发表于 2020-6-8 09:40
+
+
+
+
+这波能劈到VR 我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11420#       发表于 2020-6-8 09:40
+
+
+
+
+holo人均苦宝宝，彩虹人均后浪，怪不得彩虹观众都没动力打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11421#       发表于 2020-6-8 09:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717922&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-8 09:32</a>
+
+原文就是colo哥挖出来以后，在那个号上发的</blockquote>
+？
+
+这个高尔夫是怎么翻译过来的
+
+话说这是真的不说人话啊，看得我脑阔疼
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 11422#       发表于 2020-6-8 09:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">反正回国肯定饿不死总比在自由国耗着好，trump说不定哪天嗷的一声就疯了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11423#       发表于 2020-6-8 09:43
+
+
+
+
+holocn是算在这边讨论？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11424#       发表于 2020-6-8 09:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你怎么不说是射击，比高尔夫还靠点谱，不过射击应该不用去美国训练，但是射击对眼睛要求还是挺高的，近视眼就很难了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11425#       发表于 2020-6-8 09:44
+
+
+
+
+弥宝也是后浪吗，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11426#       发表于 2020-6-8 09:45
+
+
+
+
+高尔夫问题也很大好吧 一个平民家庭 出一个高尔夫运动员 我怎么想都感觉很假啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11427#       发表于 2020-6-8 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718010&amp;ptid=1938145" target="_blank">kirakira~ 发表于 2020-6-8 09:40</a>
+
+？
+
+这个高尔夫是怎么翻译过来的
+
+话说这是真的不说人话啊，看得我脑阔疼 ...</blockquote>
+这是再之前特出来的，因为真名都已经出来了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11428#       发表于 2020-6-8 09:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11429#       发表于 2020-6-8 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718046&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-8 09:44</a>
+
+你怎么不说是射击，比高尔夫还靠点谱，不过射击应该不用去美国训练，但是射击对眼睛要求还是挺高的 ...</blockquote>
+国家射击队近视眼还是挺多的吧，新闻上说的
+
+
+
+不过为啥猜是高尔夫啊，国内接触到这个运动还走向竞技实在太罕见了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11430#       发表于 2020-6-8 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718038&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-8 09:43</a>
+
+holocn是算在这边讨论？</blockquote>
+两边都可以，主要是在隔壁
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11431#       发表于 2020-6-8 09:49
+
+
+
+
+前面说特到了名字，应该是有相关新闻吧。或者FB上有些私人的相关情报。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 11432#       发表于 2020-6-8 09:49
+
+
+
+
+晕了 holo没一个正常人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11433#       发表于 2020-6-8 09:50
+
+
+
+ 本帖最后由 面具13 于 2020-6-8 09:51 编辑 
+
+原文里的虚拟角斗场如果指的是fps，那现实角斗场不应该就是射击比赛吗？射击比赛可以矫正视力，其实近视眼选手挺多的。
+
+如果真是高尔夫，那这童话水平不行。
+
+
+
+
+
+
+
+-----
+
+####  废都刽子手  
+##### 11434#       发表于 2020-6-8 09:50
+
+
+
+
+中国国家高尔夫球队是一支主要由14-18岁业余运动员组成的队伍。主要这个b综早就车过了
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 11435#       发表于 2020-6-8 09:54
+
+
+
+
+怎么一大早车b综早就车完的东西
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11436#       发表于 2020-6-8 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718057&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-8 09:45</a>
+高尔夫问题也很大好吧 一个平民家庭 出一个高尔夫运动员 我怎么想都感觉很假啊 ...</blockquote>
+已经被删号的推特
+吃的国家饭，伤退以后就没了，后来日子都挺苦的
+
+<img src="https://p.sda1.dev/0/6e3c8a946282ccd3934e0d9e2a457ee0/IMG_403520C5081170DE980858919038BE78.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/ba09a8a17cff00b9d54a6b4a5fe0b4e2/IMG_D293630CD063B425103A92C5EDED8ED6.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11437#       发表于 2020-6-8 09:54
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-8 09:56 编辑 
+
+14-18岁…通过高尔夫去美国读大学的一些后浪的水平和竞技状态都要碾压这种“国家队”吧。刚才搜了一下百度，奥运会上中国队拿过奖牌的。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不刷B综抱歉哦，主要是默认V综民也会逛B综这个架设不成立，所以再车一遍不算车<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11438#       发表于 2020-6-8 09:57
+
+
+
+
+从义务教育阶段开始受训的运动员，一般很难兼顾学习，伤退如果不是有点积蓄的家庭，健康生活和饮食都难以为继，能有出路总是好的
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11439#       发表于 2020-6-8 09:58
+
+
+
+
+holo入社标准：后浪
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 11440#       发表于 2020-6-8 09:58
+
+
+
+
+普通家庭哪有机会接触高尔夫，家里有点钱的吧
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 11441#       发表于 2020-6-8 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">国v为什么不在隔壁谈，话说holo是不是一直维持着本心“给现实里的灰姑凉提供虚拟的水晶鞋”和隔壁功利的彩虹本社与vr有着天壤之别啊，我的杏信仰又深了一层。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11442#       发表于 2020-6-8 10:03
+
+
+
+
+b综再放送？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11443#       发表于 2020-6-8 10:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/100404pxfhfhbz74x7b755.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-1rpoXcZ3hT3cSzk-k0.png.medium.jpg</strong> (55.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 10:04 上传
+
+
+
+
+
+
+
+这同时视听的片子选的好啊，咱正好还没看
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11444#       发表于 2020-6-8 10:05
+
+
+
+
+世上不得志的灰姑娘可太多了，总不能光holo捡得到适合直播的吧。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 11445#       发表于 2020-6-8 10:06
+
+
+
+
+但是杏本社更后浪啊……
+感觉虹杏和vr，cn的人员构成，刚好是对调的
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11446#       发表于 2020-6-8 10:08
+
+
+
+
+木口本社除了哈恰玛谁后浪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11447#       发表于 2020-6-8 10:08
+
+
+
+
+究竟哪边更后浪啊，后浪的定义也过于宽泛了点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                  
