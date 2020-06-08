@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 10:09** 
+> ## **本文件最后更新于2020-06-08 12:08** 
 
 
 
@@ -14190,7 +14190,7 @@ yagoo！，你的那份呢！！！<img src="https://static.saraba1st.com/image/
 <img src="https://img.saraba1st.com/forum/202006/07/231203k7v67vd634byvvfu.png" referrerpolicy="no-referrer">
 
 
-<strong>QQ截图20200607231100.png</strong> (19.51 KB, 下载次数: 0)
+<strong>QQ截图20200607231100.png</strong> (19.51 KB, 下载次数: 2)
 
 下载附件
 
@@ -18231,4 +18231,2207 @@ b综再放送？
 
 
 
-                  
+
+
+-----
+
+####  cckuku  
+##### 11448#       发表于 2020-6-8 10:09
+
+
+
+
+维持本心给灰姑娘提供水晶鞋:指社内成员几乎全是经验者
+功利的彩虹社:指社内订阅前三都是素人
+我真的有点忍不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说彩虹功利就算了，怎么还能给holo安个不忘初心人设的？
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11449#       发表于 2020-6-8 10:09
+
+
+
+
+我百度也搜了 但找不到一个符合岁数的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 百度搜了半年 没找到一个符合的 因为搜到的都是现役
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11450#       发表于 2020-6-8 10:10
+
+
+
+
+不要光拿哈恰玛拉高平均值啊.jpg
+
+
+
+
+
+
+
+-----
+
+####  Rosefinch  
+##### 11451#       发表于 2020-6-8 10:10
+
+
+
+
+为什么你们都默认vr都是后浪啊，vr也就留学生多，总不能留学生都是后浪吧，吧主也是留学生啊，后浪气息最浓的pax都没了，反过来还有myy这样真的惨的呢。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11452#       发表于 2020-6-8 10:11
+
+
+
+
+葵皇是素人？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 11453#       发表于 2020-6-8 10:11
+
+
+
+
+我记得楼友不是提过486还满行的
+其他人印象中也没啥苦哈哈
+
+虹这边打工厂妹，底边生主啥的也不少
+不过脑子过了一下后期的liver，倒是有明显的家境提升感
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11454#       发表于 2020-6-8 10:11
+
+
+
+
+holo好像没有几个素人的吧，嗯而且营业方向基本都和前世大相径庭的
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 11455#       发表于 2020-6-8 10:11
+
+
+
+
+Myy和版主也算后浪吗<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  naiveyan  
+##### 11456#       发表于 2020-6-8 10:11
+
+
+
+[https://bbs.saraba1st.com/2b/thread-1940211-1-1.html](https://bbs.saraba1st.com/2b/thread-1940211-1-1.html)
+
+外野看到，这个是彩虹社接过工商的游戏吧，不知道未成年小孩偷来的父母的钱吃起来香不香
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11457#       发表于 2020-6-8 10:11
+
+
+
+
+所以同样是留学生的尾宝算后浪吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11458#       发表于 2020-6-8 10:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 我是不觉得日南kson、mrr算不算灰姑娘，需不需要水晶鞋
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11459#       发表于 2020-6-8 10:12
+
+
+
+
+“给现实里的灰姑凉提供虚拟的水晶鞋”<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11460#       发表于 2020-6-8 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718357&amp;ptid=1938145" target="_blank">naiveyan 发表于 2020-6-8 10:11</a>
+https://bbs.saraba1st.com/2b/thread-1940211-1-1.html
+
+外野看到，这个是彩虹社接过工商的游戏吧，不知 ...</blockquote>
+拿这钱的是腾讯吧，日服跟国服有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 11461#       发表于 2020-6-8 10:13
+
+
+
+
+这就是霸恰鲁的香气吗<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  废都刽子手  
+##### 11462#       发表于 2020-6-8 10:13
+
+
+
+
+v综也有这样的存粮了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 11463#       发表于 2020-6-8 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718326&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-8 10:09</a>
+
+维持本心给灰姑娘提供水晶鞋:指社内成员几乎全是经验者
+
+功利的彩虹社:指社内订阅前三都是素人
+
+我真的有点忍 ...</blockquote>
+因为楼里的长期的宣传导致vjuan的“灰姑娘”们都和gbr画上了等号
+
+
+说到底，灰姑娘这个特质和素不素人关系没有那么大，只是gbr这头凤凰导致了大家对素人中诞生的灰姑娘产生了先入为主的信任罢了。
+
+
+不过杏显然也不都是给灰姑娘提供水晶鞋。不谈mysk和球王这种n生前浪，kson，莫露喵这些也都不是无名小卒。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11464#       发表于 2020-6-8 10:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">？做过这个工商的人都是吃人血馒头的走资派！
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11465#       发表于 2020-6-8 10:14
+
+
+
+
+祝福吧，新的v综名言诞生了！
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11466#       发表于 2020-6-8 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718387&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-8 10:13</a>
+ 因为楼里的长期的宣传导致vjuan的“灰姑娘”们都和gbr画上了等号  说到底，灰姑娘这个特质和素不素人关系 ...</blockquote>
+我本来都在背书准备考试的，又被钓了，我的我的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 11467#       发表于 2020-6-8 10:16
+
+
+
+ 本帖最后由 ひびき 于 2020-6-8 10:17 编辑 
+
+星街这种社招没人要的算灰姑娘？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11468#       发表于 2020-6-8 10:16
+
+
+
+
+在v综想做纯良，自己的推必须没人黑。不然迟早🥜😈。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 11469#       发表于 2020-6-8 10:17
+
+
+
+ 本帖最后由 poipanchao 于 2020-6-8 10:19 编辑 
+
+一定要说的话
+感觉最有一般意义上灰姑娘感的
+是葵皇
+
+syl，葵那点直播经历，跟水友玩游戏开个直播玩玩差不多了
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11470#       发表于 2020-6-8 10:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 葵皇算不算素人，这个问题是个伪命题，
+
+
+她当v之前的确直播过，
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11471#       发表于 2020-6-8 10:18
+
+
+
+
+我就想着昨天的预告表怎么没写614的生日企划，结果是郡道忘了.....
+
+就算是设定，这也是很重要的设定，别忘掉啊！而且还要集金的吧，结果现在还没想好要干什么，预案是麻将耐久......
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11472#       发表于 2020-6-8 10:18
+
+
+
+
+人穷又没人气，播了没人打钱，又没有爆点不能从红海杀出重围的灰姑娘多了，没有那么多水晶鞋的
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 11473#       发表于 2020-6-8 10:18
+
+
+
+
+应该是不主动暴露自己的推，或者是干脆就没有推，那在v综就无敌了，再怎么顺劈也劈不到你头上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11474#       发表于 2020-6-8 10:19
+
+
+
+
+等等 我好像搜到了 所以白洋葱姓W？
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 11475#       发表于 2020-6-8 10:20
+
+
+
+
+灰姑娘塑造来说蓝发女路人早就把大圣挤到不知道哪个旮旯去了，更不要说大圣因为跟着运营的主流进出路线存在感直接对折
+
+
+另外素人≠灰姑娘=追梦人
+
+
+富二代留学生≠后浪v=体验生活式自我满足
+
+
+才对吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11476#       发表于 2020-6-8 10:20
+
+
+
+
+不是姓zhao就没事
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11477#       发表于 2020-6-8 10:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你杏有没有灰姑娘不知道，，
+
+
+倒是有不少豌豆公主，
+
+
+在20层被褥下面放了一颗豌豆，都能让灰姑娘睡不好觉
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11478#       发表于 2020-6-8 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718465&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-8 10:19</a>
+
+等等 我好像搜到了 所以白洋葱姓W？</blockquote>
+错了
+
+这话题移步铲楼或者铲群吧
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11479#       发表于 2020-6-8 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718498&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-8 10:22</a>
+
+错了
+
+这话题移步铲楼或者铲群吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  废都刽子手  
+##### 11480#       发表于 2020-6-8 10:23
+
+
+
+ 本帖最后由 废都刽子手 于 2020-6-8 10:24 编辑 
+
+忽然替斧子哥不值，我乐府给了那么多底边vup/没人要的二手货皮，让她们直播，怎么就不算虚拟仙女教母了，结果连在净土宗说话的权利都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+6e01a6ae82e999b6.jpg
+(33.15 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-8 10:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/101909tt0xfzqgq4zncxt9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 11481#       发表于 2020-6-8 10:23
+
+
+
+
+纯正灰姑娘明明是天皇啊，实名上网，家庭背景有多苦都清楚了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 11482#       发表于 2020-6-8 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718518&amp;ptid=1938145" target="_blank">废都刽子手 发表于 2020-6-8 10:23</a>
+
+忽然替斧子哥不值，我乐府给了那么多底边vup/没人要的二手货皮，让她们直播，怎么就不算虚拟仙女教母了，结 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+5861affea3cacc044a693a5333183d8874e31626.jpg
+(281.94 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-8 10:24 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/102451q9ppqj9garnwnyy9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11483#       发表于 2020-6-8 10:25
+
+
+
+
+能把2000钓上的就是好钓<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11484#       发表于 2020-6-8 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 我说aqua碳是豌豆公主没问题吧，
+
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 11485#       发表于 2020-6-8 10:26
+
+
+
+
+要说的话四天王里爱明白也都是灰姑娘，三个都是事务所冷板凳，剩下个网红那个倒也微妙<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11486#       发表于 2020-6-8 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718420&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 10:16</a>
+
+在v综想做纯良，自己的推必须没人黑。不然迟早🥜😈。</blockquote>
+在v综久了之后不是会变成黑自己的推让别人黑不了的巨魔吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11487#       发表于 2020-6-8 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718433&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-8 10:17</a>
+
+一定要说的话
+
+感觉最有一般意义上灰姑娘感的
+
+是葵皇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/250.png" referrerpolicy="no-referrer"> 不是男朋友吗？改成水友，你是独角兽葵熊吧！？
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11488#       发表于 2020-6-8 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718536&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-8 10:24</a></blockquote>
+草，笑吐了
+
+这是入魔了吧
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 11489#       发表于 2020-6-8 10:28
+
+
+
+
+虹19年招的人确实看起来挺后浪的，不过seeds和无印的追梦人还是挺多的，阿花这人生经历其实也可以拿来卖惨啊，只不过她从来不提就是了。说实话杏也有一堆nico大物，两边都是半斤八两罢了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11490#       发表于 2020-6-8 10:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718557&amp;ptid=1938145" target="_blank">kirakira~ 发表于 2020-6-8 10:26</a>
+
+在v综久了之后不是会变成黑自己的推让别人黑不了的巨魔吗</blockquote>
+那是激光2000，一个发疯的韩国人。
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 11491#       发表于 2020-6-8 10:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">至今自己的推之一也没鞋穿，甚至还有地方zf背书结果油管账号被盗的草台班子staff，啊，一想到以前还有几百人现在只有几十人同接，真不知道舞鹤怎么坚持下来的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11492#       发表于 2020-6-8 10:29
+
+
+
+
+她这不是也没提高尔夫吗
+说不定是打篮球呢，结果受伤手抬不起来不能投篮了，还和爸爸有矛盾…啊，是你吗，朋也<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+另外留学生群体除了苦哈哈学门小语种跑去欧陆国家念免费公立的之外都能算进后浪里吧，不是有个二世祖同学比你富你就不算后浪了，要跟大多数比较啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+灰姑娘，噗呲，太好了，V综又有新产出了！现在灰姑娘是不是演到被任巫婆喂版权毒苹果的那幕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11493#       发表于 2020-6-8 10:31
+
+
+
+
+指正，灰姑娘没吃毒苹果，吃毒苹果的是白雪公主
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 11494#       发表于 2020-6-8 10:31
+
+
+
+
+本蔡来说说阿江最近到底在干嘛？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11495#       发表于 2020-6-8 10:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 我仔细想了一下，白雪公主那套，跟你杏、你虹人设几乎都能对的上，
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11496#       发表于 2020-6-8 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718595&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-8 10:29</a>
+
+她这不是也没提高尔夫吗
+
+说不定是打篮球呢，结果受伤手抬不起来不能投篮了，还和爸爸有矛盾…啊，是你吗， ...</blockquote>
+日，和大部分比那v综楼友岂不是全员后浪，能上网还有时间看vtb，而且s1也算是少数派平台了...总觉得不能这么比
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11497#       发表于 2020-6-8 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718557&amp;ptid=1938145" target="_blank">kirakira~ 发表于 2020-6-8 10:26</a>
+
+在v综久了之后不是会变成黑自己的推让别人黑不了的巨魔吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/08/103449p48m6shuvv4gtsmm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608113304.jpg</strong> (20.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 10:34 上传
+
+
+
+
+
+
+
+咱作为一个HOLO箱推在这里不也还是很纯良么
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11498#       发表于 2020-6-8 10:36
+
+
+
+
+别吧，看看虚拟小姑娘寻个开心，戒烟了烟钱买个会员入个fanbox也能算后浪？
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 11499#       发表于 2020-6-8 10:37
+
+
+
+
+后浪不后浪的，起码哈恰玛在直播时候是人设做足的，该犯傻就犯傻该逗比就逗比日常说话接地气拼学问就是个半文盲
+
+
+回来比比你vup的后浪平常怎么说话们？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 11500#       发表于 2020-6-8 10:40
+
+
+
+
+后浪气息最浓的pax女士，直播的时候也是很到位的
+要不怎么了脑控那么大一片
+这也间接导致直播时公开贴御水的时候
+满地的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 11501#       发表于 2020-6-8 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718691&amp;ptid=1938145" target="_blank">yinoh 发表于 2020-6-8 10:37</a>
+
+后浪不后浪的，起码哈恰玛在直播时候是人设做足的，该犯傻就犯傻该逗比就逗比日常说话接地气拼学问就是个半 ...</blockquote>
+限定vr吧，其他社没这样的好吧，都很接地气的
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11502#       发表于 2020-6-8 10:44
+
+
+
+
+说后浪，我倒觉得龙宝听起来有点后浪的气息
+
+不过如果照她说的龙爹是上班族的话也挺怪的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11503#       发表于 2020-6-8 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">派系是可以无限细分的，所以后浪中的前中后也可以继续无限细分。
+
+我套白雪公主的剧情是因为我有 朱莉版电影灰姑娘的ptsd，不太敢回忆灰姑娘的剧情，但反正是迪士尼的商业童话，大差不差。另外推荐百合豚都去补一补朱莉（饰演邪恶皇后）版的灰姑娘…啊，好像是 睡美人。瞧我这ptsd又犯了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11504#       发表于 2020-6-8 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718785&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-8 10:44</a>
+
+派系是可以无限细分的，所以后浪中的前中后也可以继续无限细分。
+
+
+我套白雪公主的剧情是因为我有 朱 ...</blockquote>
+沉睡魔咒？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11505#       发表于 2020-6-8 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718778&amp;ptid=1938145" target="_blank">kirakira~ 发表于 2020-6-8 10:44</a>
+
+说后浪，我倒觉得龙宝听起来有点后浪的气息
+
+不过如果照她说的龙爹是上班族的话也挺怪的 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/08/104630st0tveeeratweiet.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608113421.jpg</strong> (25.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 10:46 上传
+
+
+
+
+
+
+
+所谓【后浪的气息】到底是什么啊
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 11506#       发表于 2020-6-8 10:46
+
+
+
+ 本帖最后由 空派白 于 2020-6-8 10:49 编辑 
+
+斧子哥这个聊天记录要是真情实感而不是为了摆脱不喜欢的大小姐的话也太好笑了
+
+我愿称你虚拟大禹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11507#       发表于 2020-6-8 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718785&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-8 10:44</a>
+
+派系是可以无限细分的，所以后浪中的前中后也可以继续无限细分。
+
+
+我套白雪公主的剧情是因为我有 朱 ...</blockquote>
+第二部不是崩了吗，你想害河豚？
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 11508#       发表于 2020-6-8 10:47
+
+
+
+
+ 虚拟神农氏吧
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11509#       发表于 2020-6-8 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718814&amp;ptid=1938145" target="_blank">kirakira~ 发表于 2020-6-8 10:46</a>
+沉睡魔咒？</blockquote>
+对对对！
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11510#       发表于 2020-6-8 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718829&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 10:47</a>
+第二部不是崩了吗，你想害河豚？</blockquote>
+什么？还有2？…而且第一部没崩？<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11511#       发表于 2020-6-8 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718829&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 10:47</a>
+
+第二部不是崩了吗，你想害河豚？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/08/105031ap8lw9fjfh5yfl77.jpg" referrerpolicy="no-referrer">
+
+
+<strong>u=1522734685,660378872&amp;amp;fm=26&amp;amp;gp=0.jpg</strong> (35.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 10:50 上传
+
+
+
+
+
+
+
+等等，沉睡魔咒1确实百合浓度很高（没看过2）。但仔细想想本质其实应该算母女百合吧？
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 11512#       发表于 2020-6-8 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718744&amp;ptid=1938145" target="_blank">VivillonTundra 发表于 2020-6-8 10:41</a>
+
+限定vr吧，其他社没这样的好吧，都很接地气的</blockquote>
+太直球VR还是怕啊，v吧前车之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11513#       发表于 2020-6-8 10:52
+
+
+
+
+养成play，然后第二部小女主为了男的捅妈了。虽然我没入这个坑，但是我首页一圈骂娘的，哈哈哈。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 11514#       发表于 2020-6-8 10:53
+
+
+
+
+长期没看v的情弱问一下，心心被特定了？啥背景的？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11515#       发表于 2020-6-8 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718905&amp;ptid=1938145" target="_blank">肚子疼了 发表于 2020-6-8 10:53</a>
+
+长期没看v的情弱问一下，心心被特定了？啥背景的？</blockquote>
+没啥背景，家里是做留学生意的，规模跟cover本社差不多？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11516#       发表于 2020-6-8 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718902&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 10:52</a>
+养成play，然后第二部小女主为了男的捅妈了。虽然我没入这个坑，但是我首页一圈骂娘的，哈哈哈。 ...</blockquote>
+这不是比第一部的母女不伦好太多了吗，而且竟然有人看了1还能入坑，那只能说拍出这么粪的2完全是咎由自取<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 11517#       发表于 2020-6-8 10:56
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-8 10:54
+没啥背景，家里是做留学生意的，规模跟cover本社差不多？</blockquote>
+几个月前不是说她是高中生在读么，真的假的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11518#       发表于 2020-6-8 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718902&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 10:52</a>
+
+养成play，然后第二部小女主为了男的捅妈了。虽然我没入这个坑，但是我首页一圈骂娘的，哈哈哈。 ...</blockquote>
+什么，第二部剧情这么弱智的么
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11519#       发表于 2020-6-8 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718951&amp;ptid=1938145" target="_blank">肚子疼了 发表于 2020-6-8 10:56</a>
+
+几个月前不是说她是高中生在读么，真的假的</blockquote>
+在澳洲留学是真的啊，那个学校的阶段好像介于高中和大学之间？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11520#       发表于 2020-6-8 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718965&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-8 10:56</a>
+
+什么，第二部剧情这么弱智的么</blockquote>
+没看，但看那些人骂娘的内容是这样的。
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 11521#       发表于 2020-6-8 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718978&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 10:57</a>
+
+在澳洲留学是真的啊，那个学校的阶段好像介于高中和大学之间？</blockquote>
+是预科么
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11522#       发表于 2020-6-8 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719002&amp;ptid=1938145" target="_blank">肚子疼了 发表于 2020-6-8 10:59</a>
+
+是预科么</blockquote>
+不清楚，楼里老哥特到的，你大概找找那段时间的楼层就能看到了。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|谢谢解答|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11523#       发表于 2020-6-8 11:03
+
+
+
+今天是周一，该发天星糖了（不是
+
+<img src="https://img.saraba1st.com/forum/202006/08/110149yy4qenntgleqttqf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200608110136.png</strong> (33.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 11:01 上传
+
+
+
+
+
+
+跟我读，健康民死路一条。
+
+<img src="https://img.saraba1st.com/forum/202006/08/110229hsppqsndkq73k1rr.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200608110218.png</strong> (46.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 11:02 上传
+
+
+
+
+
+
+不知道是discard拉跨联动还是能搞到夏色律可那个合唱软件。
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 11524#       发表于 2020-6-8 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你们明显就是百合眼看人姬
+
+第一部的立意明明就是母爱跟恋爱没有高下之分嘛
+
+
+虽然我当时去看沉睡魔咒也是冲着母女搞起来去的（
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11525#       发表于 2020-6-8 11:05
+
+
+
+ 本帖最后由 恶魔娘阿洛 于 2020-6-8 11:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719069&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 11:03</a>
+
+今天是周一，该发天星糖了（不是
+
+跟我读，健康民死路一条。</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/110640tjfgzz58m78488y8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-c9siK1iT3cSiw-an.jpg.medium.jpg</strong> (44 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 11:06 上传
+
+
+
+
+
+
+这游戏真的不好玩！
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 11526#       发表于 2020-6-8 11:07
+
+
+
+
+下播后这么能聊联动为啥那么生硬，我有梁木了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11527#       发表于 2020-6-8 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719117&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-8 11:07</a>
+
+下播后这么能聊联动为啥那么生硬，我有梁木了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/08/110800tka8xatmt8ra93ww.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608113335.jpg</strong> (14.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 11:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11528#       发表于 2020-6-8 11:08
+
+
+
+
+“这就是Pro啊。”
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11529#       发表于 2020-6-8 11:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">联动的时候天音大概被可可酱用gun抵着脑袋呢
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11530#       发表于 2020-6-8 11:10
+
+
+
+
+说起来，看COCO玩模拟人生咱也想玩了，咱要做一个V综HOUSE，把楼友都做进去
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11531#       发表于 2020-6-8 11:13
+
+
+
+
+下播能聊的东西直播又不一定能聊，还要小心别把老底露出来。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 11532#       发表于 2020-6-8 11:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719173&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-8 11:10</a>
+
+说起来，看COCO玩模拟人生咱也想玩了，咱要做一个V综HOUSE，把楼友都做进去</blockquote>
+yamero，我已经看到各种各样的cp了<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11533#       发表于 2020-6-8 11:14
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-8 11:10
+说起来，看COCO玩模拟人生咱也想玩了，咱要做一个V综HOUSE，把楼友都做进去</blockquote>
+建议弄几个性转换，别全搞男酮了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11534#       发表于 2020-6-8 11:15
+
+
+
+
+看了下小天使的日程表，如果没搞错的话，心心11号就回来复播了应该。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11535#       发表于 2020-6-8 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719215&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-8 11:14</a>
+
+建议弄几个性转换，别全搞男酮了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/08/111612v6f0x2d5x02xl070.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608113010.png</strong> (143.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 11:16 上传
+
+
+
+
+
+
+
+好！！性别岂是如此不便之物！先把2000和本蔡做成女的
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 11536#       发表于 2020-6-8 11:16
+
+
+
+
+怕不是帮楼友找对象，这样大家就可以在v综进行贴贴营业了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11537#       发表于 2020-6-8 11:18
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-8 11:16
+好！！性别岂是如此不便之物！先把2000和本蔡做成女的</blockquote>
+你是不是在骂虹信七色太监？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11538#       发表于 2020-6-8 11:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719278&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-8 11:18</a>
+
+你是不是在骂虹信七色太监？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">咱一般按头像来的。到时候咱捏人也尽量按头像捏
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11539#       发表于 2020-6-8 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719318&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-8 11:21</a>
+
+咱一般按头像来的。到时候咱捏人也尽量按头像捏</blockquote>
+那默认头像没人权咯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11540#       发表于 2020-6-8 11:22
+
+
+
+
+鱼头哥：？？？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11541#       发表于 2020-6-8 11:23
+
+
+
+<blockquote>erer 发表于 2020-6-8 11:22
+鱼头哥：？？？</blockquote>
+没关系，你们可以在厨房看到我。
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 11542#       发表于 2020-6-8 11:25
+
+
+
+
+有以前贴吧的吧友模拟人生内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11543#       发表于 2020-6-8 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719361&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 11:23</a>
+
+没关系，你们可以在厨房看到我。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">咱玩老滚自己排序弄了290个MOD，咱觉得模拟人生4这种也有大量MOD的游戏有个鱼头人物也不是啥怪事，咱可以找找
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|别，还是让我呆厨房吧|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11544#       发表于 2020-6-8 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719252&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-8 11:16</a>
+
+好！！性别岂是如此不便之物！先把2000和本蔡做成女的</blockquote>
+霸琦浓度急上升啊
+
+刚才说的后浪气息主要是根据阿龙她本人口述无误的话，首先父母是被包办的婚姻（一股旧时代贵族味），父亲曾经因为一个小失误亏了300万？之后财务就交给妈妈管了。然后是很宠女儿，听阿龙说她妹变成碧池是被宠坏了，让她想独立生活也是因为担心被宠坏，如果家庭情况一般大概不会这样吧。现在还在工作，大女儿都已经出社会一段时间了现在还在工作总觉得不像是普通salary man的工作。阿龙本人读过两次大学，虽然第二次读的时候是自己打工来的钱，但是龙爹说是想全付的，感觉还是很贵的大学... 然后再来是大学读完之后直接去当家里蹲，虽然她说是打工挣来的钱+neet不花钱，但是总感觉家底不殷实干不出来....
+
+
+虽然只是个人发散而已
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11545#       发表于 2020-6-8 11:31
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-8 11:34 编辑 
+
+多聊vtb，哪怕不是真心的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+粽子时间表给的信息不错
+顺便来点不错的推图https://twitter.com/ceramic06/status/1269598338959044609?s=20<img src="https://p.sda1.dev/0/48d23249ac9d49db1c4781ffdc172f60/IMG_16B4090D88D5B9BC1ED1E300AA992FE9.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11546#       发表于 2020-6-8 11:47
+
+
+
+
+看了一上午AgitΩ就没看你楼，怎么又车些奇怪的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">嘛，也早适应了
+
+
+syl，今天就是miyabi初配信一周年的日子了，好像会有投稿
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 11547#       发表于 2020-6-8 11:54
+
+
+
+
+才发现iwaiwa的介绍更新了，实锤“新规事业”就是slee，也基本实锤这就是流放宁古塔了。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 11548#       发表于 2020-6-8 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来日文版的cod6re没英文语音的么，这谢菲尔德的cv听着跟个娘炮似的。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11549#       发表于 2020-6-8 11:56
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-8 11:57 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/115558z5bvxikj9v14xtnn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>15915885305528068968357910632524.jpg</strong> (608.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 11:55 上传
+
+
+
+
+
+
+NSFW的推特：
+[https://twitter.com/NLO74593630](https://twitter.com/NLO74593630)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11550#       发表于 2020-6-8 11:58
+
+
+
+
+除了周末的大联动没什么信息吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这都能日播，我还挺想知道没任作业她能播些什么的。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 11551#       发表于 2020-6-8 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47719786&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 11:56</a>
+
+NSFW的推特：
+
+https://twitter.com/NLO74593630</blockquote>
+ 一看到这个画师的画风脑子里就已经脑补出糟糕的画面了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 11552#       发表于 2020-6-8 12:02
+
+
+
+[https://www.pixiv.net/users/31647763/artworks](https://www.pixiv.net/users/31647763/artworks)
+
+
+BOT哥的P站
+
+木口，你把人逼成了鬼！
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 11553#       发表于 2020-6-8 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">怎么还有后浪的··说真的前几天刚开始看VR就碰见后浪那事真的太惨了。
+
+
+星姐小天使这一大清早就开始贴贴真的好敬业啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 11554#       发表于 2020-6-8 12:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718443&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-8 10:18</a>
+
+我就想着昨天的预告表怎么没写614的生日企划，结果是郡道忘了.....
+
+就算是设定，这也是很重要的设定，别忘 ...</blockquote>
+昨天录播推荐补一下
+
+她玩兔棋整活，玩着玩着被指示厨气到随机选一个指示厨给扳手完全按照指示厨的路子走。结果没一个能打的最后还是靠往上的攻略表格走的，笑死了。
+
+
+
+
+
+              
