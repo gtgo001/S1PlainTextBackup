@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-09 00:11** 
+> ## **本文件最后更新于2020-06-09 02:08** 
 
 
 
@@ -1492,6 +1492,25 @@ https://www.bilibili.com/video/BV1KZ4y1H76N  B站这边露露的剪辑MAN真�
 
 v综唯一指定食品？<img src="https://p.sda1.dev/0/eea39b4a3e736c17738bf89c699c80f5/IMG_A92B9E4AA52347C898971D5033F69E16.jpeg" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|欢乐多|
+
+
+
+查看全部评分
 
 
 
@@ -5462,4 +5481,2189 @@ teresa我也挺喜欢firstlove的，不过说实话这位人设太像真人了�
 
 
 
-                                        
+
+
+-----
+
+####  wsotaku  
+##### 12288#       发表于 2020-6-9 00:12
+
+
+
+<blockquote>ひびき 发表于 2020-6-9 00:06
+**敢不敢给夏吹12switch也是塞上男人？**敢不敢给黑上松彦联动也塞上男人？ ...</blockquote>
+推上说吧，别在楼里生闷气，已经不是这个时候了，只要语气客气，多少能听一下，不能取消联动也尝试减少一下频率吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12289#       发表于 2020-6-9 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47727763&amp;ptid=1938145" target="_blank"> ひびき 发表于 2020-6-8 23:51</a>  艹泥马，莫露喵你个上辈子欠男人艹的贱 货，连给男人喂饭都要先拿夏吹试试水看效果，夏吹党真是上辈子日了你亲妈 附件： </blockquote>
+拿百合营业cp去给男人喂饭是第一重喂屎，找的还是cp里面“营业味重”的一方、“工具”的一方，“败犬”的一方是第二重喂屎
+
+这么大喜事你莫露喵怎么不找青梅竹马的那位、默契度满点那位、和你真贴贴那位，要找你叫妹妹那位、你说她妈更可爱那位、213晚上直接劈的那位？啊？！来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 12290#       发表于 2020-6-9 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47727751&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-8 23:50</a>
+
+有一个，看记录是个老虹箱推了，看海夜叉神的那种，而且感觉是个女粉。
+
+syl:nga虹楼的女粉浓度高到我窒息 ...</blockquote>
+已经快变成虹男楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 12291#       发表于 2020-6-9 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">贴贴营业cnm，你把多少人的脑子都毁了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 12292#       发表于 2020-6-9 00:17
+
+
+
+
+对啊，不找自己家的gamers找夏哥。夏吹真是好用啊。还不如让肥希本体打apex
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12293#       发表于 2020-6-9 00:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">啊，祭丝好可怕啊
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12294#       发表于 2020-6-9 00:18
+
+
+
+
+看到狐狸高强度男人联动，感觉接近狐狸就会被直接拉去和星联动
+
+到时百鬼众原地爆炸
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12295#       发表于 2020-6-9 00:18
+
+
+
+
+这是真疯了<img src="https://static.saraba1st.com/image/smiley/face2017/237.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12296#       发表于 2020-6-9 00:18
+
+
+
+
+到底是CP让人🥜😈还是gachi让人🥜😈
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 12297#       发表于 2020-6-9 00:19
+
+
+
+
+嘴上基德 放过狐皇好不好 玉米人要生气了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 12298#       发表于 2020-6-9 00:19
+
+
+
+
+跟cp有个🔨关系。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 12299#       发表于 2020-6-9 00:19
+
+
+
+
+怨念大建议别看多点踩、杏主播和杏主播经纪人都是数字为王的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12300#       发表于 2020-6-9 00:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12301#       发表于 2020-6-9 00:20
+
+
+
+
+我日语弱，狐狸那条推提到star了吗？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12302#       发表于 2020-6-9 00:22
+
+
+
+
+噶吃噶吃，毁了多少人的生活
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 12303#       发表于 2020-6-9 00:22
+
+
+
+
+管人使人暴力
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 12304#       发表于 2020-6-9 00:23
+
+
+
+
+狐皇自己作为姨字辈带着年轻女孩子去跟star联动断人财路就够缺德了
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 12305#       发表于 2020-6-9 00:23
+
+
+
+
+白上フブキを許すな也销号跑路了，是不是收到律师函了
+
+祭丝老哥可以注册一个顶上
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12306#       发表于 2020-6-9 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728041&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-9 00:20</a>
+
+我日语弱，狐狸那条推提到star了吗？</blockquote>
+提倒是没提到，但是狐狸最近的四人联动都是啥大家也是看得见的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12307#       发表于 2020-6-9 00:25
+
+
+
+
+快整点白上吹雪小黄文安排上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12308#       发表于 2020-6-9 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728041&amp;ptid=1938145" target="_blank"> 某穆克拉 发表于 2020-6-9 00:20</a> 我日语弱，狐狸那条推提到star了吗？ </blockquote>
+去她推看上文就知道了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 12309#       发表于 2020-6-9 00:25
+
+
+
+
+白上フブキ＠ﾄﾞｯｶｰｰｰﾝﾅｲｽｼｮｯﾄｫｫ
+
+@shirakamifubuki·1時間
+
+まつりちゃんもオウガさんもシエンさんもうますぎた……(^・ω・^§)ﾉ
+
+
+白上フブキ＠ﾄﾞｯｶｰｰｰﾝﾅｲｽｼｮｯﾄｫｫ
+
+@shirakamifubuki·51分
+
+もし、４人でコラボする機会あったらコラボ名
+
+厨二四天王になるのかな(^・ω・^§)ﾉ
+
+
+连狐学都算不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 12310#       发表于 2020-6-9 00:26
+
+
+
+
+虽然我也不喜欢夏哥工具人化，但是有一说一，夏哥工具人化早在去年就有趋势了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12311#       发表于 2020-6-9 00:26
+
+
+
+
+明天黑宝起来又该血压高了
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 12312#       发表于 2020-6-9 00:26
+
+
+
+
+最近木口星和扭曲仙境的浓度太高了，她播apex和鲨鱼的画质又差到不行，已经让我产生能不能换魂这种离谱的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 12313#       发表于 2020-6-9 00:27
+
+
+
+
+黑宝有问题找狐狸啊
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 12314#       发表于 2020-6-9 00:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/002745tlgf7b4l74bm8hma.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ_937SUEAAV-43.jpg</strong> (886.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 00:27 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/002806xhauxae7hh96e3ee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ_94grU8AIDbEM.jpg</strong> (787.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 00:28 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/002815bd1yfymkm26km6c6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ_-XUZUEAAs3nK.jpg</strong> (591.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 00:28 上传
+
+
+
+
+
+
+@昆布わかめ
+
+[https://twitter.com/aconbwakame/status/1270014287935705089](https://twitter.com/aconbwakame/status/1270014287935705089)
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|好绿我铯|
+| 时雨rain| + 1|爱了爱了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12315#       发表于 2020-6-9 00:29
+
+
+
+
+啊这，现在祭丝偷渡日本还来得及吗？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 12316#       发表于 2020-6-9 00:30
+
+
+
+
+让马自立成为Holocn第一外援?
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12317#       发表于 2020-6-9 00:32
+
+
+
+
+V综gachi度越来越高，好起来了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12318#       发表于 2020-6-9 00:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">白上桑看来对自己的身材还是没什么自信，必须要拉上阿希到时候推屁股才有机会开开荤啊
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12319#       发表于 2020-6-9 00:36
+
+
+
+
+我要把ひびき屏蔽了，脑子不正常。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12320#       发表于 2020-6-9 00:37
+
+
+
+
+狐皇是真的不基德<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12321#       发表于 2020-6-9 00:38
+
+
+
+
+有本事去狐皇推特骂，在这里骂算什么男人。
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12322#       发表于 2020-6-9 00:38
+
+
+
+
+他急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 12323#       发表于 2020-6-9 00:38
+
+
+
+
+ドルヲタ无能狂怒气急败坏破口大骂见得多了，见怪不怪<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12324#       发表于 2020-6-9 00:39
+
+
+
+
+不过有句讲句，这企划甚至都没破万，真的有编排下次的必要么。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12325#       发表于 2020-6-9 00:44
+
+
+
+
+正常思维么，就是狐狸玩嗨了想继续，找几个能听懂的一块。夏gachi思路呢，就是强行拉着夏哥給star喂饭。实际怎么样要等2期做出来才知道了，keke。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 12326#       发表于 2020-6-9 00:44
+
+
+
+
+话说回来…狐狸的企划…在我印象里好像没什么出彩的？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12327#       发表于 2020-6-9 00:44
+
+
+
+
+占星师宣布本周为管人粉发疯周<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12328#       发表于 2020-6-9 00:45
+
+
+
+
+真的没意思，建议祭丝组织一波冲了狐皇推特好吧，最好把夏吹搞散，在这里骂只会污染别人的眼睛。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12329#       发表于 2020-6-9 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728231&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-9 00:44</a>
+
+占星师宣布本周为管人粉发疯周</blockquote>
+木口gachi粉限定吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 12330#       发表于 2020-6-9 00:46
+
+
+
+
+holo小年轻又摸一个，感觉有问题，怕不是跟运营有关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 12331#       发表于 2020-6-9 00:46
+
+
+
+
+你们管人gachi能不能专门开一楼疯人院发疯，在楼里撒泼也太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12332#       发表于 2020-6-9 00:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">一个二个开始摸我也怀疑是不是要对抗运营
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12333#       发表于 2020-6-9 00:49
+
+
+
+
+我就不一样了，如果哪天我疯了肯定是找几个不顺眼的楼友直接开🐎，塞了就塞了。骂管人真的没兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12334#       发表于 2020-6-9 00:50
+
+
+
+
+#VTB滚出漫区
+
+#弥人滚出V综
+
+#gachi粉滚出V综
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12335#       发表于 2020-6-9 00:50
+
+
+
+
+现在木口摸了几个？大亏心心紫宝梅露？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12336#       发表于 2020-6-9 00:50
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gfld6r5cjtj20me04ytb4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12337#       发表于 2020-6-9 00:51
+
+
+
+
+如果真是live什么的要停播，给个像样的理由不好么，怎么也别让观者瞎担心啊
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12338#       发表于 2020-6-9 00:51
+
+
+
+
+倒不至于...心心那边有天使的预定联动，夸好像有犬山哥那边的联动？就怕联动完了也不播那就是mel第二咯
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 12339#       发表于 2020-6-9 00:51
+
+
+
+ 本帖最后由 あのん 于 2020-6-9 01:05 编辑 
+
+唐突ちょっとの間、精神修行の旅に出ます
+
+唐突しばらく配信はお休み、一人旅に出ます
+
+ソロ配信も6月はたくさんやりたいねぇ→しばらく配信不定期気味になっちゃうかもしれん
+
+兔皇今天音信全无
+
+阿希油管始动
+
+一个个让心灵去旅行都是抽利群的大哥吗
+
+
+和运营没关系我隔着电脑屏幕磕三个响头顺带给官方频道打个红sc
+
+
+哦对了，紫咲シオン是谁？
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12340#       发表于 2020-6-9 00:52
+
+
+
+
+认真地说，冲狐狸没啥用啊，狐狸不该早被冲惯了么，想冲那还是得冲夏哥才有用
+
+
+至于一个个摸，我倒觉得没啥对不对抗的，除了特别累的和梅露，剩下的不就是既没法玩游戏也想不出什么好企划索性给自己放个假么。。毕竟holo只有一个486（mio水准还是差486一截，而且听说她自己想的企划很多都是让486直接喊停的）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12341#       发表于 2020-6-9 00:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能马内甲供应不足，一对多惹的小年轻不满意吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望幕后工作者能合理安排活动，为大家呈上有趣的直播
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12342#       发表于 2020-6-9 00:53
+
+
+
+
+每天播爆很累的，对身体、精神、灵感都是比较大的消耗，不以耐久游戏为卖点的直播势像星街这个直播节奏就算可以了，你杏有些人的福报看着都累，歇几天就歇几天呗。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12343#       发表于 2020-6-9 00:54
+
+
+
+ 本帖最后由 opersuper 于 2020-6-9 01:02 编辑 
+
+山雨欲来风满楼，这个集体摸鱼人体堂禁播不至于影响那么大。娱乐发散一下轻的是马内甲问题超乎外界想象的深刻，重的是和任任谈不拢要走法律程序了。当然拿到分成集体去苔宝介绍的牛郎店放松一下的可能性也是有的。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12344#       发表于 2020-6-9 00:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发现紫宝步伐每次都紧跟大天使，上年大天使休息完之后紫宝也搞了个休息，这次也。。。
+
+盐水是真的。
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12345#       发表于 2020-6-9 00:55
+
+
+
+
+休息很正常，可一群人同时休息就..
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12346#       发表于 2020-6-9 00:57
+
+
+
+
+犬山那个模仿时雨妈的企划订时间了吗？心心倒是周三就有一回联动了我记得，犬山哥的憋O方块。miko就摸一天，新企划也做了。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12347#       发表于 2020-6-9 00:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一群人同时休息联系最近的事除了版权问题还能是啥么（心心梅露例外），而这事情也不是ba gong就能解决的，不如索性跳槽？那我倒也不介意看
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12348#       发表于 2020-6-9 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我也觉得偶尔休息放放假挺好的，但是很多单推和毒唯不这么想。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12349#       发表于 2020-6-9 00:59
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gfldfhqtt4j209703jt8t.jpg" referrerpolicy="no-referrer">
+
+
+Chinese, no
+
+English, yes!
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12350#       发表于 2020-6-9 00:59
+
+
+
+
+等等，这样不明归期的不是只有大亏梅露了吗，紫宝也只是说不固定没说直接放假。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12351#       发表于 2020-6-9 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728284&amp;ptid=1938145" target="_blank">forzen 发表于 2020-6-9 00:52</a>
+
+认真地说，冲狐狸没啥用啊，狐狸不该早被冲惯了么，想冲那还是得冲夏哥才有用
+
+
+至于一个个摸，我倒觉得没啥 ...</blockquote>
+反了反了，是486的地狱企划经常被mio摁下来
+
+三才太佛了，一般是找个人来双打效果好些。
+
+486是大企划有点子但控不住场，所以才是俩人经常合作
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 12352#       发表于 2020-6-9 01:01
+
+
+
+
+星街：摸一周。星咏者：哦
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 12353#       发表于 2020-6-9 01:01
+
+
+
+
+不是被马内甲骗了么，之前动森刚开的时候杏SC还是关的，然后过了一段时间就突然开了，观众还以为通过申请了呢、那时候主播是知情的还是被马内甲忽悠了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12354#       发表于 2020-6-9 01:02
+
+
+
+<blockquote>stedckk 发表于 2020-6-9 00:59
+其实我也觉得偶尔休息放放假挺好的，但是很多单推和毒唯不这么想。</blockquote>
+我的话，只要小天使保持联络，偶尔摸鱼倒是无所谓，尤其是之前疯狂耐久之后巴不得她摸两天。能发个推晒下独食就好。
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12355#       发表于 2020-6-9 01:03
+
+
+
+
+结果是杏的liver准备出逃
+
+田角客厅滑跪
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12356#       发表于 2020-6-9 01:03
+
+
+
+
+休息无所谓，这群福报怪也该休息了，不过音信全无还不明原因，怎么让人不生梁木？
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12357#       发表于 2020-6-9 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728349&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-9 01:02</a>
+
+我的话，只要小天使保持联络，偶尔摸鱼倒是无所谓，尤其是之前疯狂耐久之后巴不得她摸两天。能发个推晒下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">推特联络确实是需要的，就算只有个早安推也好
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 12358#       发表于 2020-6-9 01:04
+
+
+
+
+让你们也体会一下，百鬼众的感受<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 12359#       发表于 2020-6-9 01:05
+
+
+
+
+狗狗摸都是常态了，兔子出道以来就没几天不播也不发推解释的...
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12360#       发表于 2020-6-9 01:05
+
+
+
+
+兔子一天没动这剧情我是不是上个月看过。。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12361#       发表于 2020-6-9 01:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一波我是觉得真的跟被骗开了sc多少有点关系诶，看看yagoo怎么处理了。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12362#       发表于 2020-6-9 01:06
+
+
+
+
+我还是那个想法，被忽悠就被忽悠呗，到手的流量和sc又不会飞走，真要跑步进入大版权时代那这直播业还是老老实实倒退回个人势吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12363#       发表于 2020-6-9 01:06
+
+
+
+ 本帖最后由 opersuper 于 2020-6-9 01:10 编辑 
+
+点把人员管理的雷踩了，木口把版权意识的雷踩了 彩虹再把企业运营的雷踩了V圈企业才能真正成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 12364#       发表于 2020-6-9 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728282&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-9 00:51</a>
+
+唐突ちょっとの間、精神修行の旅に出ます
+
+唐突しばらく配信はお休み、一人旅に出ます
+
+ソロ配信も6月はたく ...</blockquote>
+紫宝最近不是有播么，老哥你怎么也疯了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12365#       发表于 2020-6-9 01:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">白上桑什么时候也休息一下吧。给祭丝一条活路。
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12366#       发表于 2020-6-9 01:08
+
+
+
+
+傻狗之前频繁复活，加不知道自己明天能不能播，其实都蛮怪的
+
+不过懒可以解释这一切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12367#       发表于 2020-6-9 01:08
+
+
+
+
+紫宝刚才发推说配信不固定，老哥就疯特了。害人啊。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12368#       发表于 2020-6-9 01:08
+
+
+
+
+兔皇估计这波收到的冲击最大，虽然她不是很依赖任天堂，但是不妨碍anti拿起版权大棒疯狂打击。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 12369#       发表于 2020-6-9 01:10
+
+
+
+
+兔皇不妨拉上纯粉橄榄anti
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12370#       发表于 2020-6-9 01:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫人起码可以说懒狗要上学（骗自己）
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12371#       发表于 2020-6-9 01:11
+
+
+
+
+消失几天也没啥吧，你们gachi浓度也太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我放假旅游公司邮箱都屏蔽的
+
+
+syl 版权大棒砸的最狠的是狗皇啊，上千踩就她了吧
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 12372#       发表于 2020-6-9 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百鬼组起码可以监控apex和lol假装是在看直播
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 12373#       发表于 2020-6-9 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728409&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-9 01:10</a>
+
+绫人起码可以说懒狗要上学（骗自己）</blockquote>
+唯一合理的解释（除了凌晨4点游戏）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12374#       发表于 2020-6-9 01:16
+
+
+
+
+社群里就是会放大情绪，但是负面情绪的放大倍率远超正面情绪，大概人的喜乐无法共通，但悲痛却往往一致。而且夜间的情绪波动比白天要大，zqsg和发疯也多在晚上<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12375#       发表于 2020-6-9 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728415&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-9 01:11</a>
+
+消失几天也没啥吧，你们gachi浓度也太高了
+
+我放假旅游公司邮箱都屏蔽的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是狗皇见惯大场面了，抗打击能力强。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 12376#       发表于 2020-6-9 01:17
+
+
+
+
+如果看过直播统计表就知道木口自3月疫情炸响以来，除了个别人，人均直播时间涨了30个百分点。摆明冲kpi呢。现在解禁了，同接数直落，还不放个假吗。
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 12377#       发表于 2020-6-9 01:18
+
+
+
+
+紫宝昨天不播也发了推还放了卫星，之前还有早上突击，看得出来还是挺替爸爸粉着想的
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 12378#       发表于 2020-6-9 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728415&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-9 01:11</a>
+
+消失几天也没啥吧，你们gachi浓度也太高了
+
+我放假旅游公司邮箱都屏蔽的</blockquote>
+其实486的日程那次杂谈也有1200踩了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12379#       发表于 2020-6-9 01:20
+
+
+
+
+木口彩虹福报都是假的。这里我又要提昨天直播中昏迷的日本fps主播了，5月直播346小时平均每天11个多小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12380#       发表于 2020-6-9 01:21
+
+
+
+
+通了一部一直在打一直没好好打的ギャルゲー，对自己的日语能力再一次感到绝望后，感觉还是v综温暖......
+
+明明有最好的v综给我慰藉，为什么要去玩ギャルゲー呢......<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+操你们在非正剧的文本里能不能不要这么文绉绉的，就算是正经人也不用每天跟个尼采似的吧，老哥这是黄油啊，没人汉化的那种，你一句话套十几个文法一大堆八百年不用的汉字欺负谁没念过书呢！<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+还是管人好，普遍跟我日语水平差不多，有的比我还次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12381#       发表于 2020-6-9 01:21
+
+
+
+
+每天11个小时也太难顶了，不过斗鱼游戏区头部主播一天也至少五六个小时吧。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12382#       发表于 2020-6-9 01:22
+
+
+
+
+这群人倒不是身体撑不住，主要是要掐萌音，嗓子受不了。还有就是作息混乱导致生病。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12383#       发表于 2020-6-9 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728468&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-9 01:19</a>
+
+其实486的日程那次杂谈也有1200踩了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我觉得有点奇怪，486虽然有玩游戏但也不算热度很高吧，怎么那天那么多踩的，不过486应该影响不大吧。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 12384#       发表于 2020-6-9 01:22
+
+
+
+
+t台聊到了月下樱除了自己好像都比较会FPS，不知道该怎么办......
+
+郡道有时候真的会想得太细，不要这样说自己啊......
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 12385#       发表于 2020-6-9 01:23
+
+
+
+
+所以说管人真的很怪，忙的要死结果也就一天播那么一点时间，为了准备狗屎live甚至把直播鸽了，也许这就是yhm脑回路吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12386#       发表于 2020-6-9 01:25
+
+
+
+<blockquote>stedckk 发表于 2020-6-9 01:22
+我觉得有点奇怪，486虽然有玩游戏但也不算热度很高吧，怎么那天那么多踩的，不过486应该影响不大 ...</blockquote>
+根据楼友的repo，是把版权相关词设成禁词了，聊天室发不出去那种，才引的anti。那天计划是播尖下巴来着。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12387#       发表于 2020-6-9 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728468&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-9 01:19</a>
+
+其实486的日程那次杂谈也有1200踩了。</blockquote>
+486那边的踩和版权大棒没关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 12388#       发表于 2020-6-9 01:25
+
+
+
+
+平常就不说了，这帮人オフパコ一大早起来都要掐嗓子是真滴福报～
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 12389#       发表于 2020-6-9 01:25
+
+
+
+
+原来你们这么zqsg啊，我还以为是年中压力大导致的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12390#       发表于 2020-6-9 01:25
+
+
+
+
+这么多人摸了不就是木口现在深陷版权危机吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不能播游戏的这段时间里面与其虚无杂谈吊着不如休息几天给自己放放假咯
+
+
+
+syl，团长还在壶……壶男害人的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12391#       发表于 2020-6-9 01:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">确实，嗓子问题还有作息问题我也觉得挺严重的，但是不福报怎么挣大钱，这个可恶的vjuan把多少人搞疯了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12392#       发表于 2020-6-9 01:26
+
+
+
+
+486是撞了第一波攻击，自然力度大，不过任弹对她影响不大就是了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12393#       发表于 2020-6-9 01:27
+
+
+
+<blockquote>proxima 发表于 2020-6-9 01:25
+这么多人摸了不就是木口现在深陷版权危机吗
+
+不能播游戏的这段时间里面与其虚无杂谈吊着不如休息几天 ...</blockquote>
+这么多：指大亏梅露摸余？
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 12394#       发表于 2020-6-9 01:27
+
+
+
+
+版权冲击跟我阿夸紫宝apex上分没直接关系，肯定是不满啦<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 12395#       发表于 2020-6-9 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728485&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-9 01:22</a>
+
+我觉得有点奇怪，486虽然有玩游戏但也不算热度很高吧，怎么那天那么多踩的，不过486应该影响不大 ...</blockquote>
+那天直播486提了一句“会社炎上被卷了进去。生草”，被5厕们认为是不尊重公司，语重心长要教导她社会规则。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12396#       发表于 2020-6-9 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728526&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-9 01:28</a>
+
+那天直播486提了一句“会社炎上被卷了进去。生草”，被5厕们认为是不尊重公司，语重心长要教导她社会规则 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">这帮精神股东真是够了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12397#       发表于 2020-6-9 01:31
+
+
+
+
+只是不能播任天堂的何必整个摸了，摸了的这几个平常也是播别的比较多啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12398#       发表于 2020-6-9 01:32
+
+
+
+
+5厕社畜奴性那么强？…
+运营“默许”主要还是信任丧失的问题，所以还是换人吧，失信之后再想建立信任可太难了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12399#       发表于 2020-6-9 01:33
+
+
+
+
+狗皇播个水世界都能千踩，其他人避避风头也还正常。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 12400#       发表于 2020-6-9 01:34
+
+
+
+
+壶男真的太难顶了，老鼠台看cod去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 12401#       发表于 2020-6-9 01:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不禁想起之前夸皇大乱斗炎上事件跟职业选手突发对战也是先问过经纪人得到允许才干的，加上梅露事件，还有龙皇也换过经纪人
+
+怕不是现在摸的闹着要换经纪人（懒狗除外）
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12402#       发表于 2020-6-9 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47728545&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-9 01:31</a>
+这帮精神股东真是够了</blockquote>
+是这帮有血就会蜂拥而至的蚊虫真是够了......
+
+虽说这波力八一和liver都不亏，但面子确实是丢了不少，感觉之后海贼企业的帽子也是决然摘不掉的，虽说谈不上什么大亏，但liver和观众骂两句还是使得
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12403#       发表于 2020-6-9 01:39
+
+
+
+
+虹运营都“痛改前非”了，杏运营什么时候能别那么废。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 12404#       发表于 2020-6-9 01:42
+
+
+
+
+都集体卖过肉了还在意什么名声，又当又立？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 12405#       发表于 2020-6-9 01:43
+
+
+
+
+休，都可以休
+
+<img src="https://img.saraba1st.com/forum/202006/09/014347bpgguxfqccqgqpvv.png" referrerpolicy="no-referrer">
+
+
+<strong>休息.png</strong> (13.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 01:43 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12406#       发表于 2020-6-9 01:46
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-9 01:48 编辑 
+
+卖肉是主动放弃自己的名声讨好观众，侵权是牺牲他人的权益使自己获益，不能混为一谈。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是贱己和害人的区别。
+凪白是不是把白上桑90w纪念的皮画好了才休息的？<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12407#       发表于 2020-6-9 01:47
+
+
+
+
+草，阿火来了，银火是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 12408#       发表于 2020-6-9 01:48
+
+
+
+
+魔王这是救起来了？花牌还有两千同接<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 12409#       发表于 2020-6-9 01:48
+
+
+
+
+ノエフレはガチ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12410#       发表于 2020-6-9 01:52
+
+
+
+
+不知道团长今天又逼疯多少gachi
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 12411#       发表于 2020-6-9 01:55
+
+
+
+
+刷了下推看到律可18号要重大发表，提前这么久就在倒计时，大概率还是新衣服吧，感觉不太可能是3d化
+
+
+
+
+
+                                    
