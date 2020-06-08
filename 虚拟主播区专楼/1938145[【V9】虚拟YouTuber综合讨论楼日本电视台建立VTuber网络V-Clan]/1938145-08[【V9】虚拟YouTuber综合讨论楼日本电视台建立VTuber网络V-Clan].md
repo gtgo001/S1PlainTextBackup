@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 14:12** 
+> ## **本文件最后更新于2020-06-08 16:09** 
 
 
 
@@ -21059,4 +21059,1674 @@ crew们已经先一步觉醒了，再看看利香的遭遇，大家庭粉们怎�
 
 
 
-             
+
+
+-----
+
+####  opersuper  
+##### 11585#       发表于 2020-6-8 14:12
+
+
+
+
+清君侧，诛crew。
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 11586#       发表于 2020-6-8 14:13
+
+
+
+
+？？？ 不应该是尊皇讨奸？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11587#       发表于 2020-6-8 14:14
+
+
+
+
+啊，我被诛了。<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 11588#       发表于 2020-6-8 14:16
+
+
+
+
+akukin找大脸猫和团长联动得几次还挺有意思的，后面没下文了除了疫情之外严重怀疑是被运营截胡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 11589#       发表于 2020-6-8 14:17
+
+
+
+
+什么时候清算crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 11590#       发表于 2020-6-8 14:21
+
+
+
+
+佐贺这就要百万了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11591#       发表于 2020-6-8 14:22
+
+
+
+
+不管楼里怎么说杏
+
+
+咱这个箱推杏仁都不受影响，因为
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/142135ig2ewoxsgw23o2wj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608113304.jpg</strong> (20.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 14:21 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 11592#       发表于 2020-6-8 14:25
+
+
+
+[https://bbs.nga.cn/read.php?tid=22089526](https://bbs.nga.cn/read.php?tid=22089526)
+
+隔壁这事要不要车一车<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11593#       发表于 2020-6-8 14:34
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-8 14:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721311&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-8 14:22</a>
+不管楼里怎么说杏
+
+
+咱这个箱推杏仁都不受影响，因为</blockquote>
+讲道理holo的运营只有技术和骗工商方面没啥问题，其他奇奇怪怪的毛病多了去了，尤其喜欢给V瞎安排路线和贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+也就是V⭕垃圾运营太多显得holo没那么坑。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11594#       发表于 2020-6-8 14:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721348&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-8 14:25</a>
+
+https://bbs.nga.cn/read.php?tid=22089526
+
+隔壁这事要不要车一车</blockquote>
+I'm anxious<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 11595#       发表于 2020-6-8 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721445&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-8 14:36</a>
+
+I'm anxious</blockquote>
+不安です的英语版？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11596#       发表于 2020-6-8 14:51
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-8 14:52 编辑 
+
+I am feeling a bit uneasy, can you stop that?
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11597#       发表于 2020-6-8 14:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">才发现大川老师本子封底用的葵皇，真是被人宠着的孩子，
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 11598#       发表于 2020-6-8 14:55
+
+
+
+
+哭了，什么时候才能不转NGA落后半个月的帖
+
+<img src="https://img.saraba1st.com/forum/202006/08/145255jqlwl226gp88nali.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-08 145230.png</strong> (154.63 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-8 14:52 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 激光2000| + 2|colo哥新头像很可爱，喜欢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11599#       发表于 2020-6-8 14:58
+
+
+
+
+那来点应该没有过期的nga看到的上周holosc数据。
+wtm:独角兽是什么垃圾，不要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/598fd8b9bd25df7b4d79f2a8b8e39407/2098584719.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11600#       发表于 2020-6-8 15:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">湊阿夸25w，夸宝过气惹。皆切贴贴。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11601#       发表于 2020-6-8 15:02
+
+
+
+
+? 一周?<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11602#       发表于 2020-6-8 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我能不能打葵皇几拳让她哭，骗钱阿
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11603#       发表于 2020-6-8 15:03
+
+
+
+
+羊生日3动，当天收了400w来着。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11604#       发表于 2020-6-8 15:04
+
+
+
+
+有生日会，还分前夜正式跟日后谈的，这就是holo功利人。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11605#       发表于 2020-6-8 15:06
+
+
+
+
+aki居然能跻身前排
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 11606#       发表于 2020-6-8 15:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/150641f2ko40mctmeeot6t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608160633.jpg</strong> (124.48 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-8 15:06 上传
+
+
+
+
+
+
+
+尼玛咱还得别处找个1.62版本下去。。。。。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 11607#       发表于 2020-6-8 15:07
+
+
+
+
+WTM拿了钱去和自己男人开房也别和星联动好吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11608#       发表于 2020-6-8 15:08
+
+
+
+
+好难过，我的功利女人不爱我这个钱包了，我被抛弃了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11609#       发表于 2020-6-8 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721737&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 15:08</a>
+好难过，我的功利女人不爱我这个钱包了，我被抛弃了。</blockquote>
+不要急，等复活200Wsc应该还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11610#       发表于 2020-6-8 15:11
+
+
+
+
+pb这数据总感觉不太对，夏哥狐狸两周年抽卡就收了这么点？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11611#       发表于 2020-6-8 15:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 好心疼葵皇，昨天耐久9小时应该是相冲45w订阅的，可就差2000，
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 11612#       发表于 2020-6-8 15:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721348&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-8 14:25</a>
+https://bbs.nga.cn/read.php?tid=22089526
+
+隔壁这事要不要车一车</blockquote>
+hey, cut that shit, I said<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11613#       发表于 2020-6-8 15:13
+
+
+
+
+差2k耐久冲个锤子，2000别发疯了。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 11614#       发表于 2020-6-8 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721635&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-8 14:58</a>
+那来点应该没有过期的nga看到的上周holosc数据。
+wtm:独角兽是什么垃圾，不要的
+ ...</blockquote>
+wtm怎么突然好起来了，因为お気持ち的长文嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11615#       发表于 2020-6-8 15:16
+
+
+
+
+这个本来应该在3月就办的活动终于重开了
+
+[https://twitter.com/VILLS0321/status/1269841936174551041](https://twitter.com/VILLS0321/status/1269841936174551041)
+
+【朗報】
+
+「VILLS」がオンラインイベントで開催決定！！
+
+
+㊗開催日：7月19日(日) 17時30分〜
+
+㊗チケット販売：6月13日(土) 19時00分〜（原則、定員なし）
+
+
+詳細はコチラ！
+[https://v-ills.com](https://v-ills.com)
+
+
+ステージ出演者は３月の開催予定時と同じ！
+
+久しぶりの大型VTuberイベント楽しみましょう！
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/151632soyyuuzgy0ppggya.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vills.jpg</strong> (660.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 15:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 11616#       发表于 2020-6-8 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721798&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-8 15:14</a>
+
+wtm怎么突然好起来了，因为お気持ち的长文嘛</blockquote>
+原来就是三四百万的选手了。前几天生日会榨了三次这么多也不奇怪。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11617#       发表于 2020-6-8 15:17
+
+
+
+
+想了下
+哭
+贴贴同居
+养gachi
+贴贴同居
+养gachi
+
+粽子要不要找兔子同居，搬家当晚两人一起痛哭终于有个好窝了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11618#       发表于 2020-6-8 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721798&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-8 15:14</a>
+
+wtm怎么突然好起来了，因为お気持ち的长文嘛</blockquote>
+前面不是说过了，生日回啊，三动收了400w。
+
+不过跟最近的事件肯定也有关系就是了。
+
+之前的数据也有一个月400w左右。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 11619#       发表于 2020-6-8 15:18
+
+
+
+
+WTM这个一菜三吃还是NB的，一天割三次韮菜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 11620#       发表于 2020-6-8 15:18
+
+
+
+
+今天7点成濑鸣生日直播<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+syl:阿喵喵今天久违的要玩mc了，mc果然是阿喵喵心中的白月光<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11621#       发表于 2020-6-8 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721827&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-8 15:17</a>
+
+想了下
+
+哭
+
+贴贴同居</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer"> 六子母在批站俩人边哭边养gachi，
+
+
+期待的兄弟刷一波期待
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 11622#       发表于 2020-6-8 15:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721831&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 15:17</a>
+前面不是说过了，生日回啊，三动收了400w。
+
+不过跟最近的事件肯定也有关系就是了。
+
+之前的数据也有一个月 ...</blockquote>
+对哦毕竟前夜就开始开台
+
+那你楼对四期还听温暖的，不愧是找到了唯一指定巨魔cold做靠山
+
+这要是123期怕不是正义的骗钱大棒就来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 11623#       发表于 2020-6-8 15:19
+
+
+
+
+一想到むっくん会被羊拿着我们的钱养
+
+我又有点嫉妒了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 11624#       发表于 2020-6-8 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721831&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-8 15:17</a>
+前面不是说过了，生日回啊，三动收了400w。
+
+不过跟最近的事件肯定也有关系就是了。
+
+之前的数据也有一个月 ...</blockquote>
+不过最近感觉wtm确实不错，该说本来能力就到了，虽然吃相有点急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11625#       发表于 2020-6-8 15:21
+
+
+
+
+话说龙这个月也生日，而且现在sc就已经是第二了
+
+新的养gachi标准出现了？
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 11626#       发表于 2020-6-8 15:21
+
+
+
+
+刚在b站阿笹视频下看到2000的评论，点进去一看关注列表果然没有关注葵皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11627#       发表于 2020-6-8 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721851&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-8 15:19</a>
+
+对哦毕竟前夜就开始开台
+
+
+那你楼对四期还听温暖的，不愧是找到了唯一指定巨魔cold做靠山</blockquote>
+萝卜小天使也是前夜就开台，不知道是不是木口传统。
+
+不过羊前夜祭那台开了五个小时比较罕见，后日谈好像也就羊搞了。
+
+四期生在v综还没到树大招风的程度，调侃两句也就过去了。
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 11628#       发表于 2020-6-8 15:25
+
+
+
+
+话说免费佬车过天哥新翻唱了吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11629#       发表于 2020-6-8 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47721876&amp;ptid=1938145" target="_blank">cherryrain 发表于 2020-6-8 15:21</a>
+
+刚在b站阿笹视频下看到2000的评论，点进去一看关注列表果然没有关注葵皇不过倒是关注了小熊猫[f:066 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer"> 我被官组拉黑了，没法关注
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11630#       发表于 2020-6-8 15:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大亏生日是哪天来着？
+
+
+大亏生日前天——《重大发表，期待了一年的日子终于即将到来》
+
+
+大亏生日前一小时——《期待？！等待？！和你共同度过的生日之夜！》
+
+
+大亏生日后一小时——《为你唱响的生日歌回，dokidoki》
+
+
+大亏生日当天上午——《激动人心的只狼RTA，在叮叮当当中度过！？》
+
+
+大亏生日当天下午——《贴贴，在哔哩哔哩和最喜欢的人一起度过甜蜜下午！！！》
+
+
+大亏生日当天晚上——《感动，谢谢大家，最喜欢你们了的生日回顾，※重大发表（指生日音声）》
+
+
+大亏生日当天结束前一小时——《明年生日再回，哽咽...》
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|虽然不基德但是思路广|
+| JoelBirch|-1|smjb|
+| free|-1|脑瘫|
+| cckuku| + 1|很好笑|
+| erer|-1|傻逼|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11631#       发表于 2020-6-8 15:28
+
+
+
+
+为什么要问我，搞得好像我是啥歌力权威一样，这首我觉得一般......没啥循环的欲望
+
+
+
+
+省一楼，后天三得利的歌回
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/152844pttsrptzxxsuy5xh.png" referrerpolicy="no-referrer">
+
+
+<strong>三得利.png</strong> (27.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 15:28 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 11632#       发表于 2020-6-8 15:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/152927di60fit5bo9v69f6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ-KZF3VcAIrTg4.jpg</strong> (90.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 15:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11633#       发表于 2020-6-8 15:30
+
+
+
+
+不过上周最离谱的应该还是龙皇，无纪念回砍下370w。
+
+2次杂谈+2次歌回+同居贴贴，恐怖如斯。
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 11634#       发表于 2020-6-8 15:34
+
+
+
+
+该给两千再来次负76鹅体验下crew的恐怖了。反正也没人为他出头
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11635#       发表于 2020-6-8 15:34
+
+
+
+
+龙宝读sc环节就是认知厨的天堂，打钱的手根本停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11636#       发表于 2020-6-8 15:35
+
+
+
+<blockquote>激光2000 发表于 2020-6-8 15:27
+大亏生日是哪天来着？
+
+
+大亏生日前天——《重大发表，期待了一年的日子终于即将到来》
+</blockquote>
+能让她今晚就来这样播吗？反正天天生日
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11637#       发表于 2020-6-8 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47722042&amp;ptid=1938145" target="_blank">zilch_ren 发表于 2020-6-8 15:34</a>
+
+该给两千再来次负76鹅体验下crew的恐怖了。反正也没人为他出头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 我作为一个crew，希望aqua碳能和别人一样高收入罢了，
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11638#       发表于 2020-6-8 15:37
+
+
+
+
+8鹅法还有用吗？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 11639#       发表于 2020-6-8 15:37
+
+
+
+
+是crew就跟着免费把2k冲了<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 11640#       发表于 2020-6-8 15:40
+
+
+
+
+说到生日集金，最大的问题我觉得还是现在大部分都是设定的，一想到这个生日和中之人其实毫无关系，都没有打钱的欲望，早期的像老爱起码真的就设为阿望的生日，空妈也是本人生日。
+
+不过表世界的萌萌人反正也不关心中之人如何，高高兴兴打钱就好，不过对我来说看着一帮人欢天喜地的庆祝这个设定的“生日”，总觉得怪怪的......
+
+
+月底又是老爱生日了，去年生日就是搞了和爱哥同台闹得全世界都不满意，今年不知道要请谁呢。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11641#       发表于 2020-6-8 15:40
+
+
+
+
+冲冲冲，最好冲到2k再也不敢提起阿夸。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 11642#       发表于 2020-6-8 15:45
+
+
+
+
+演的像生日，那就是生日了。看看紫宝，生日就是12月8日，毫无疑问。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 11643#       发表于 2020-6-8 15:45
+
+
+
+
+去年的anmr24小时真的挺不错的，可惜现在物是人非了。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 11644#       发表于 2020-6-8 15:45
+
+
+
+
+yysy，2k哥刚刚说的直播企划我家夸夸是真的会做的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11645#       发表于 2020-6-8 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47722114&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-8 15:40</a>
+
+冲冲冲，最好冲到2k再也不敢提起阿夸。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer"> 难道aqua生日回简单播一下，你就开心了吗，
+
+
+我希望给aqua开一个华丽的趴体
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11646#       发表于 2020-6-8 15:46
+
+
+
+
+讲道理2000这种程度的黑屁应该扣不到多少，主要吃了夸这两天休息crew暴躁的亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11647#       发表于 2020-6-8 15:47
+
+
+
+ 本帖最后由 erer 于 2020-6-8 15:48 编辑 
+
+这坏女人我盼着她的周年音声，盼着她的生日音声，结果全都没有。为什么有钱不赚啊，我还想要她的签名明信片啊。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11648#       发表于 2020-6-8 15:49
+
+
+
+<blockquote>erer 发表于 2020-6-8 15:47
+这坏女人我盼着她的周年音声，盼着她的生日音声，结果全都没有。为什么有钱不赚啊，我还想要她的签名明信片 ...</blockquote>
+生日音声有呀，我上次也忘了，又买了一遍…
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 11649#       发表于 2020-6-8 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">推卍组就是自取灭亡
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11650#       发表于 2020-6-8 15:50
+
+
+
+
+往好了想，说不定学隔壁希小姐颜出开路做好脱离大家庭的准备，现在正在积极减肥和学习化妆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11651#       发表于 2020-6-8 15:50
+
+
+
+
+holo总的来说是一期比一期能赚钱，等五期出来不敢想象是什么场景<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11652#       发表于 2020-6-8 15:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47722221&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-8 15:49</a>
+
+生日音声有呀，我上次也忘了，又买了一遍…</blockquote>
+阿我想起来了，有个1k日元的我买了。不过我当时期待的是有周边。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11653#       发表于 2020-6-8 15:54
+
+
+
+
+润姨的差不了几天，我就当是了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 11654#       发表于 2020-6-8 15:54
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/155357mpuulzqx4aa7g333.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ-WURsU4AAZRWK.jpg</strong> (103.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 15:53 上传
+
+
+
+
+
+
+
+
+
+有新衣服了啊
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 11655#       发表于 2020-6-8 15:55
+
+
+
+<blockquote>bluebaby 发表于 2020-6-8 15:50
+holo总的来说是一期比一期能赚钱，等五期出来不敢想象是什么场景</blockquote>
+四期有两个没跟上，总体应该没三期多吧？四期有天龙羊小团体，整个四期信数量较少。三期信蛮多的，内部也没有3人以上的小团体？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11656#       发表于 2020-6-8 15:55
+
+
+
+
+草草草，湊阿夸你快毕业吧。什么鬼holo。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11657#       发表于 2020-6-8 15:56
+
+
+
+
+免费哥这话不讲道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+海苔男生日sc 35w，玉姬生日sc 100w，真的有人关心中之人生日吗？
+
+那我再补充一点，noripro的生日都是设定成跟中之人同一天，免费哥你可以来打钱吗？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 11658#       发表于 2020-6-8 15:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 我的葵皇出道马上三年了，今年8月10号才过第一次生日，
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11659#       发表于 2020-6-8 15:58
+
+
+
+
+草猫都有新衣服了大亏没有，这到底是......
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 11660#       发表于 2020-6-8 15:58
+
+
+
+ 本帖最后由 opersuper 于 2020-6-8 16:00 编辑 
+
+sio现在的快活样就是勾小年轻动歪心思的毒药，不把箱拆了不知道谁在裸泳啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 11661#       发表于 2020-6-8 15:58
+
+
+
+
+当你的推自己都把生日忘了的时候，基本上可以认为这个生日只是设定了。
+
+郡道5点开杂谈。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 11662#       发表于 2020-6-8 15:58
+
+
+
+
+爬了半天楼，holo是不是要爆炸了啊，可以把阿夸吐出来先吗？或者凛小姐给个准信儿转生地址好吗？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 11663#       发表于 2020-6-8 15:59
+
+
+
+
+主要阿龙太强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 11664#       发表于 2020-6-8 16:01
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-8 16:07 编辑 
+
+四期的同接订阅都不如三期，这种情况下说吸金能力超过三期应该没有问题。
+
+syl，说不定夸复活回公布live和3D新衣服，你们要有梦想。
+
+zsyl，别的不谈光这个同居贴贴，在骗钱的创造力上龙皇就比整个V⭕高了一头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 11665#       发表于 2020-6-8 16:04
+
+
+
+
+别闹，四期生还是打不过三期生的，也就阿龙太亮眼了给了大家错觉。
+
+天龙羊虽然线下很贴（自称），但是直播互动不算多，要说四期生没有箱力其实也说得过去，除了现在天龙搞了一波贴贴营业，其他互动真的少得可怜。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 11666#       发表于 2020-6-8 16:06
+
+
+
+
+其实算上和服其实就几个月没新衣服罢
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 11667#       发表于 2020-6-8 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47722431&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-8 16:06</a>
+
+其实算上和服其实就几个月没新衣服罢</blockquote>
+不，阿夸本来就比同期少一件。这才是我生气的点。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 11668#       发表于 2020-6-8 16:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47722431&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-8 16:06</a>
+其实算上和服其实就几个月没新衣服罢</blockquote>
+和服之前本来就少一件啊
+
+
+
+
+
+           
