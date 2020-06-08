@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-08 22:06** 
+> ## **本文件最后更新于2020-06-09 00:04** 
 
 
 
@@ -16755,7 +16755,7 @@ syl，看到镜华了，确实像咩
 
 
 6E9763E9-70A4-4A62-B21D-A6E1C0FFC6FF.jpeg
-(71.15 KB, 下载次数: 0)
+(71.15 KB, 下载次数: 1)
 
 
 
@@ -16833,7 +16833,7 @@ syl，看到镜华了，确实像咩
 
 
 23F82766-FDC7-40F6-BD18-2F338761EC6F.jpeg
-(39.52 KB, 下载次数: 0)
+(39.52 KB, 下载次数: 1)
 
 
 
@@ -16922,8 +16922,11 @@ syl，看到镜华了，确实像咩
 
 
 
+ 本帖最后由 GRMeA104 于 2020-6-8 22:08 编辑 
 
 发情民在关心今天的盒限是不是又睡过了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+动了动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 
@@ -16948,4 +16951,1572 @@ syl，看到镜华了，确实像咩
 
 
 
-                 
+
+
+-----
+
+####  时雨rain  
+##### 11473#       发表于 2020-6-8 22:08
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-8 22:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻 麻
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11474#       发表于 2020-6-8 22:10
+
+
+
+
+【FanboxPost 神楽めあ 社区帖子】
+标题：ゲーム特典①
+内容：
+类型：article
+档位：3000
+时间：2020-06-08 14:07:24 UTC
+网址：https://mea.fanbox.cc/posts/1119264
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11475#       发表于 2020-6-8 22:10
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-8 22:12 编辑 
+
+动了动了，开播
+虽然盒限与我无关<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+别发情，真的要噶吃了啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11476#       发表于 2020-6-8 22:17
+
+
+
+
+这盒限也太快了草
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11477#       发表于 2020-6-8 22:17
+
+
+
+
+动了好啊，说的就是这套衣服，那会好多的图就靠这件衣服认出她的，坦克民天天说坦克她自己又在neet营业搞的我都快忘了她也曾是个元气jk啊，老图重看再一想真的顶不住了，好想看她3d啊，
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11478#       发表于 2020-6-8 22:19
+
+
+
+
+元气小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11479#       发表于 2020-6-8 22:19
+
+
+
+
+配合tc或其他可爱片段食用风味更佳
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11480#       发表于 2020-6-8 22:26
+
+
+
+
+yysy，肉手真的很舒服啊（指摸起来
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11481#       发表于 2020-6-8 22:27
+
+
+
+
+？你摸谁的手 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11482#       发表于 2020-6-8 22:27
+
+
+
+
+左手摸右手
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 11483#       发表于 2020-6-8 22:31
+
+
+
+
+别麻了别麻了 麻号都销了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+那些老王国民真成亡国民了
+
+
+syl  我还挺喜欢她和u18r在m记线下时穿黑色卫衣的那张照片
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11484#       发表于 2020-6-8 22:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">肉体厨好可怕
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 11485#       发表于 2020-6-8 22:33
+
+
+
+
+早就变成钢坦克了，看这种几年前的麻图有意义？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11486#       发表于 2020-6-8 22:34
+
+
+
+
+等等，秃顶的那张吗(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11487#       发表于 2020-6-8 22:36
+
+
+
+
+肉手黑卫衣水母头都直戳我的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11488#       发表于 2020-6-8 22:37
+
+
+
+
+黑色卫衣来了
+
+syl 直播说过，之前的衣服都还穿的上呢，坦克只是rp好吧
+
+
+
+
+
+
+763BE10D-3418-4C56-9642-9F135DFB4B0A.jpeg
+(44.19 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-8 22:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/223604c16d8cqjk6pmmekd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11489#       发表于 2020-6-8 22:38
+
+
+
+
+说不定之前也坦呢
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11490#       发表于 2020-6-8 22:38
+
+
+
+
+bsyl,黑卫衣这穿法贼像我以前暗恋的母人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11491#       发表于 2020-6-8 22:39
+
+
+
+
+今天是发情民怀旧日<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">麻图多多益善
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11492#       发表于 2020-6-8 22:41
+
+
+
+
+穿的松垮垮和紧绷绷能一样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，昨日v综胖狐狸图mea限定版.jpg
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11493#       发表于 2020-6-8 22:44
+
+
+
+
+这黑卫衣过了一年还在穿的感觉？话说这是不是时间离的最近的麻图
+
+
+
+
+
+
+Screenshot_20190805-173338_Gallery.jpg
+(467.63 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-8 22:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/224238d3zgq2ydz92o8qg7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11494#       发表于 2020-6-8 22:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/224359ztiozh7oh5ikfoft.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200608224248.jpg</strong> (146.37 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 22:43 上传
+
+
+
+
+
+
+图转群
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11495#       发表于 2020-6-8 22:48
+
+
+
+
+这人大概确实很喜欢这种穿衣风格，连雀魂里都氪金搞了一套这种衣服（也许她钟情的是那个帽子
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/224506r191acs9vadcdvs2.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (670.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 22:45 上传
+
+
+
+
+
+
+
+
+
+（顺便一提这个画面的下一秒就被mixi兄贵占满了，突然草生
+
+
+<img src="https://img.saraba1st.com/forum/202006/08/224548qoydvdhb265d2dbs.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (650.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-8 22:45 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11496#       发表于 2020-6-8 22:49
+
+
+
+
+诶上面那张居然没看过(#ﾟДﾟ)，这女人真喜欢染发梢啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11497#       发表于 2020-6-8 22:51
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-8 22:53 编辑 
+
+这不止染发梢啊，已经全染了黑发再长出来而已。估计现在在家关半年已经全黑了
+
+麻咩本体是帽子
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11498#       发表于 2020-6-8 22:51
+
+
+
+
+bsyl，最近的麻图应该是那个19年生日的8
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11499#       发表于 2020-6-8 23:01
+
+
+
+
+为了忘却那个女人，
+
+
+我决定用二刺螈麻醉自己，
+
+我去找纸片人了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11500#       发表于 2020-6-8 23:02
+
+
+
+
+赤坂老师找你咩做替身使者联系苔苔19号三人绘画联动,排面啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11501#       发表于 2020-6-8 23:02
+
+
+
+
+啊那她戴帽子是不是为了掩饰自己秃顶的事实(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11502#       发表于 2020-6-8 23:03
+
+
+
+
+三人?谁谁谁？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11503#       发表于 2020-6-8 23:03
+
+
+
+
+卧槽，苔姨这口饭有点撑啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11504#       发表于 2020-6-8 23:04
+
+
+
+
+太nb了。。。还是赤坂提的联动
+
+话说赤坂推上列了一堆喜欢的v结果联动是跟咩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11505#       发表于 2020-6-8 23:05
+
+
+
+
+大口吃饭，你咩姐也是漫画家了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11506#       发表于 2020-6-8 23:06
+
+
+
+
+真的要变成漫画家了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11507#       发表于 2020-6-8 23:06
+
+
+
+
+bsyl,25号还有个犬咩联动,企划大概跟上次苔粽联动差不多的,不过没上面那个吸引我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11508#       发表于 2020-6-8 23:06
+
+
+
+
+具体的联动形式没搞明白（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11509#       发表于 2020-6-8 23:08
+
+
+
+
+看nga是说你咩负责说话，赤坂负责画画？虽然我没懂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11510#       发表于 2020-6-8 23:08
+
+
+
+ 本帖最后由 第三惑星 于 2020-6-8 23:10 编辑 
+
+看了看nga，好像是赤坂画画，mea装作是自己画的，所以mea应该是解说役。你咩姐解说一直可以的
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11511#       发表于 2020-6-8 23:10
+
+
+
+
+15、19、25，这个月苔苔又抓了mea三次联动
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11512#       发表于 2020-6-8 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">🌿，赤坂不找他最爱的猴子和委员长联动找你麻和犬山联动干嘛
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11513#       发表于 2020-6-8 23:12
+
+
+
+
+因为都是漫画家啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+那么什么时候赤坂能搭桥让咩跟兔头联动一场，莫名想看这俩联动效果（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11514#       发表于 2020-6-8 23:13
+
+
+
+
+害，真届到还得看同行，苔苔当然是首选，而苔苔又沉迷你麻，虽然怎么想怎么怪，但又似乎很有道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11515#       发表于 2020-6-8 23:13
+
+
+
+
+草，你看赤坂当初回的那句<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也是个生草的手子啊，当然是怎么好玩怎么来
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11516#       发表于 2020-6-8 23:14
+
+
+
+
+这也太远了，赤坂搭桥不如德龙搭桥
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11517#       发表于 2020-6-8 23:14
+
+
+
+
+喂饭吃起来，吃起来(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11518#       发表于 2020-6-8 23:15
+
+
+
+
+不如说看赤坂列的那些人，可不就是好这口吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 11519#       发表于 2020-6-8 23:16
+
+
+
+
+这波联动可以的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+到时候看看节目效果如何<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11520#       发表于 2020-6-8 23:17
+
+
+
+
+所以后可以在新连载里看到麻客串了？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11521#       发表于 2020-6-8 23:18
+
+
+
+
+woc！！！真.双厨狂喜！！！
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11522#       发表于 2020-6-8 23:18
+
+
+
+
+要是好的话，我就在联动后的1小时内不说苔姨是大龄剩女了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11523#       发表于 2020-6-8 23:19
+
+
+
+
+要是好的话，我就在联动结束后下次苔苔瞎鸡儿拱火前不说苔姨是大龄剩女了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11524#       发表于 2020-6-8 23:19
+
+
+
+
+#苔苔不是大龄剩女
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11525#       发表于 2020-6-8 23:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔苔本来就不是大龄剩女啊，人家明年就能定婚的，现在怎么说都是有男朋友的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11526#       发表于 2020-6-8 23:25
+
+
+
+
+真能在漫画里出场的话大赚啊咩咩(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11527#       发表于 2020-6-8 23:26
+
+
+
+
+草，怎么漫画出场都安排上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真出场了再说啊，现在期待也太早了吧
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 11528#       发表于 2020-6-8 23:26
+
+
+
+
+赤坂不是有一个关于偶像还是直播主之类的新合作连载吗，虽然没看到底是什么剧情
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 11529#       发表于 2020-6-8 23:29
+
+
+
+
+就那个粉丝转世成为偶像的孩子的那个吗？
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11530#       发表于 2020-6-8 23:30
+
+
+
+
+兔妈妈那边14号也有个联动,你麻是不是变成数字厨这个月要冲击20w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11531#       发表于 2020-6-8 23:34
+
+
+
+
+你咩又不是木口的，20w就别做梦了8
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 11532#       发表于 2020-6-8 23:35
+
+
+
+
+#苔苔今天17岁
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11533#       发表于 2020-6-8 23:35
+
+
+
+
+港真光跟苔苔兔姨联动不至于涨粉很多吧，这一圈能吃的都吃了。最近这速度应该是英文海盗带来的。说起来你麻有海盗向404逆向输出英肉吗？隔壁夏哥好像是有的。(#ﾟДﾟ)佐藤希，永远的神
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11534#       发表于 2020-6-8 23:35
+
+
+
+
+咱还是先冲18w吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11535#       发表于 2020-6-8 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47727578&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-8 23:35</a>
+
+港真光跟苔苔兔姨联动不至于涨粉很多吧，这一圈能吃的都吃了。最近这速度应该是英文海盗带来的。说起来你麻 ...</blockquote>
+有啊，都好几个月了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11536#       发表于 2020-6-8 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">以她现在这个状态昼夜颠倒，能在tc播绝不会在404播，能在半夜播绝不在白天播，能不播绝不播。
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">这像是数字厨做的事吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不会冲20w的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11537#       发表于 2020-6-8 23:38
+
+
+
+
+最近明显效果好的有歌回，苔苔兔姨联动，杂谈也反响也比之前好了不少，另外能看到不少推木口的新粉
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11538#       发表于 2020-6-8 23:39
+
+
+
+
+抓到赤坂老师是苔苔联动中唯一能让我眼前一亮克服苔ptsd的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+本来这个月期末了准备只挂着单人回了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11539#       发表于 2020-6-8 23:39
+
+
+
+
+mea一直有国人英翻海盗组在油管投稿，holo那边银盾了的hololive moments也有含mea的英翻肉
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11540#       发表于 2020-6-8 23:40
+
+
+
+
+我最近基本只看单人的，
+
+而且还看有没有时间
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11541#       发表于 2020-6-8 23:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47727624&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-8 23:39</a>
+mea一直有国人英翻海盗组在油管投稿，holo那边银盾了的hololive moments也有含mea的英翻肉 ...</blockquote>
+为什么holo的英翻有含咩，联动吗<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11542#       发表于 2020-6-8 23:42
+
+
+
+
+等等holomoments有咩肉，(#ﾟДﾟ)?
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11543#       发表于 2020-6-8 23:43
+
+
+
+
+就是联动啊，马自立mea联动这种，见过好几回
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11544#       发表于 2020-6-8 23:44
+
+
+
+
+影之一期生海外进出
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11545#       发表于 2020-6-8 23:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47727655&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-8 23:42</a>
+
+为什么holo的英翻有含咩，联动吗</blockquote>
+因为是国内字幕组在做英翻，有一些和holo联动的，还有一些国内的沙雕整活视频
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+
+
+
+
+
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11546#       发表于 2020-6-8 23:45
+
+
+
+
+木口v和咩姐联动的有几个投稿，咩自己这边也有英翻的海盗组和悠羽千葵
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11547#       发表于 2020-6-8 23:47
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-8 23:49 编辑 
+
+建议数字人还是别带期望早早死心，以免将来被气死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+--------
+
+她骚操作一直可以，比如有可能之后这个月就没有单人直播了
+
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11548#       发表于 2020-6-8 23:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那些推holo的鬼佬肯定犯嘀咕，这个明明不是社内却总在各成员的联动中出现的熟面孔究竟是谁
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11549#       发表于 2020-6-8 23:49
+
+
+
+
+我想起一月还是2月她突然宣布下个月不播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当场聚众发病.JPG，虽然实际来看还是正常的播了一个月
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11550#       发表于 2020-6-8 23:50
+
+
+
+
+tc不可能没有吧,我不信这女人这个月连tc都不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+到时候还是开点单人回赏饭吧好姐姐<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11551#       发表于 2020-6-8 23:51
+
+
+
+
+不安です<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11552#       发表于 2020-6-8 23:52
+
+
+
+
+单人直播油管唱唱歌然后tc打发下时间就完事了，我已经摸清她的行动规律了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11553#       发表于 2020-6-8 23:54
+
+
+
+
+明面废物neet每天睡12个小时，私下却不知道养了多少肉猪
+不说了，想吃肉<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11554#       发表于 2020-6-8 23:54
+
+
+
+
+是个联动就忙的一笔，单人直播被压榨不可避啊，不过想想ddd和bls和手游联动，忙点好呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11555#       发表于 2020-6-8 23:54
+
+
+
+
+想吃羊肉<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11556#       发表于 2020-6-8 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">14号还有组长的anmrleader联动
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11557#       发表于 2020-6-8 23:55
+
+
+
+
+tc8小时虚无直播其实也没啥,肝大作业长时间挂后台也还合适<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+就是发疯鬼叫可能比较惊吓
+
+
+
+
+
+              
