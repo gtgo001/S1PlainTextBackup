@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-10 02:07** 
+> ## **本文件最后更新于2020-06-10 06:06** 
 
 
 
@@ -65,7 +65,7 @@ mc不能播是个什么事？</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741569&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-9 23:00</a>
 
 芙宝赶紧给35出些企划的主意吧，比如拉个联动拯救没游戏可播的木口众生 ...</blockquote>
-<img src="https://pbs.twimg.com/media/EaExAa2VAAUe6xZ?format=jpg&amp;name=large" id="aimg_ob66G" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaExAa2VAAUe6xZ?format=jpg&amp;name=large" id="aimg_pGFfT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -3092,10 +3092,11 @@ bsyl：这其实也是套皮主播的必然，毕竟以前兔头玩欧洲游戏�
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| kanonsisya| + 1|欢乐多|
 | 2517君改二| + 1|考虑名言频发建议选天才|
 | asdhai| + 1|草|
 | QWANG| + 1|不擅调情还行。|
@@ -3447,4 +3448,511 @@ iwa都住院了，slee没爹没妈肯定没资源当然没人看，也是惨。
 
 
 
-                                            
+
+
+-----
+
+####  wsotaku  
+##### 13666#       发表于 2020-6-10 02:08
+
+
+
+<blockquote>2517君改二 发表于 2020-6-10 02:00
+怎么马自立又昏睡直播了</blockquote>
+昨天不被白姨拉去搞那个准备带star的企划，今天也就不需要把这个昨天没播的补回来了。最后可爱是很可爱，但是我宁愿她按部就班来。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 13667#       发表于 2020-6-10 02:12
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/021135cu7dho7uqu1rff4q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200610024724.jpg</strong> (37.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-10 02:11 上传
+
+
+
+
+
+
+
+大  草  原
+
+
+这个系统自动生成的保存图片莫名的生草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1|喷了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13668#       发表于 2020-6-10 02:15
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-10 02:51 编辑 
+
+小天使组这个新切片搞得我血压又不好了。。。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13669#       发表于 2020-6-10 02:20
+
+
+
+
+啊好像是说收录回来睡到刚才。。
+
+syl：
+
+
+
+
+
+
+-zue37Q5-ekiZoT3cSu0-nt.jpg
+(59.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-10 02:20 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/022007knjjcq1gnm6vpjfm.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 13670#       发表于 2020-6-10 02:26
+
+
+
+
+草
+
+
+
+
+
+
+338431BF-BDE9-491C-9B49-42F33E01614E.jpeg
+(22.8 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-10 02:26 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/022616vrznkh5zollockng.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 13671#       发表于 2020-6-10 02:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/022845u1v6wcckw8bwu1ck.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200610032831.jpg</strong> (40.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-10 02:28 上传
+
+
+
+
+
+
+
+光顾了捏好看点，特点没怎么反映出来，明天再完善吧，顺便请留言对该角色的建议！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 13672#       发表于 2020-6-10 03:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47743252&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-10 02:29</a>
+
+光顾了捏好看点，特点没怎么反映出来，明天再完善吧，顺便请留言对该角色的建议！ ...</blockquote>
+既然是tirofinale那当然应该是金发了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13673#       发表于 2020-6-10 03:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47743252&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-10 02:29</a>
+
+光顾了捏好看点，特点没怎么反映出来，明天再完善吧，顺便请留言对该角色的建议！ ...</blockquote>
+楼主头像是太紫啊，你是要捏一个吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 13674#       发表于 2020-6-10 03:15
+
+
+
+
+不会真有人喜欢十万家族吧，不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">是龙社太真了还是葛葵太刺激了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 13675#       发表于 2020-6-10 03:24
+
+
+
+
+紫宝动了紫宝动了
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 13676#       发表于 2020-6-10 03:28
+
+
+
+
+阿，我不该半夜看考拉的，太tm无畏了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 13677#       发表于 2020-6-10 03:59
+
+
+
+
+我看了一眼，pekora好像把最后说以后播什么游戏相关的那一小段切掉了，不知道是怕有不良影响、还是存在错误（比如MC实际能播？）。
+
+
+顺便一提，Mojang关于MC直播相关的条款 <blockquote>If you comply with and follow the Essential Requirements (in the Brand and Asset Usage Guidelines) and Naming Guidelines, YOU MAY create, use, and distribute videos and streams of you playing or using Minecraft for any lawful reason, and YOU MAY make money from them by adding or permitting advertising in them, so long as:
+
+
+all video downloads are free to view (i.e. there is no pay wall or other charge to view the videos);
+
+all streams are made free to view within 24 hours;
+
+you add your own unique content to the video or stream, such as audio commentary or footage of you making cool stuff;
+
+you don’t create and use videos or streams whose purpose is to advertise or promote other products or services;
+
+you don’t sell physical copies of videos or streams, i.e., DVDs, etc.;
+
+you don’t broadcast or distribute videos or streams via television. To help you understand this, the amount of unique content you add must be enough to make it reasonable for you to make money through advertising (and we reserve our right to decide on that).
+
+This means that you can upload your own unique content to sites such as YouTube and make money from advertising around the video but you cannot distribute those videos on iTunes and charge for the content.</blockquote>
+看上去唯一可能有问题的是会限MC直播，不过除非有人刻意举报否则也不会有什么问题。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13678#       发表于 2020-6-10 04:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47743217&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-10 02:15</a>
+
+小天使组这个新切片搞得我血压又不好了。。。。</blockquote>
+什么切片？夜明けと蛍？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13679#       发表于 2020-6-10 04:21
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-10 04:15
+什么切片？夜明けと蛍？</blockquote>
+陶瓷工厂那个时空之轮的，医生叫她多喝水结果自称完全不喝。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13680#       发表于 2020-6-10 04:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47743405&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-10 04:21</a>
+
+陶瓷工厂那个时空之轮的，医生叫她多喝水结果自称完全不喝。</blockquote>
+不爱喝水是有点僵硬，不过也不算太严重吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13681#       发表于 2020-6-10 04:46
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-10 04:28
+不爱喝水是有点僵硬，不过也不算太严重吧</blockquote>
+我这种离不开水的人看了有点担心就是了，毕竟医嘱还是应该听下的。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13682#       发表于 2020-6-10 05:15
+
+
+
+
+おはようございます......这啥啊这？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 13683#       发表于 2020-6-10 05:15
+
+
+
+
+草，星街加入同居是什么鬼
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13684#       发表于 2020-6-10 05:19
+
+
+
+
+怪不得昨天sim里安排了，我翅膀党已经上天了<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 13685#       发表于 2020-6-10 05:47
+
+
+
+
+小天使有两个翅膀好像挺合理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小孩子才做选择，我全都要.jpg
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13686#       发表于 2020-6-10 05:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47742873&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-10 01:09</a>
+
+草草草，为什么受伤的总是祭丝大半夜的我差点笑出声
+
+这波梁子啊，是结下了
+
+ ...</blockquote>
+昨晚一听苔宝又是男朋友又是独角兽有车轱辘的趋势就关机昏睡了，Pro哥怎么勾人去补录播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 13687#       发表于 2020-6-10 06:02
+
+
+
+
+朝鲜族欧巴追网络虚拟偶像，门当户对
+
+
+
+
+
+                                           
