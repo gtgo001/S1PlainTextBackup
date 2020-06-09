@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-09 16:11** 
+> ## **本文件最后更新于2020-06-09 18:09** 
 
 
 
@@ -19215,7 +19215,7 @@ syl，当 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">Miko也要玩模拟人生了，蝗起来蝗起来。
 
 另外，白上桑要整阴间直播了
-<img src="https://pbs.twimg.com/media/EaDgQRSUEAAieCk?format=png&amp;name=360x360" id="aimg_CxjcV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaDgQRSUEAAieCk?format=png&amp;name=360x360" id="aimg_ENCSQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19318,8 +19318,8 @@ syl，当 ...</blockquote>
 
 
 虹浓度
-<img src="https://pbs.twimg.com/media/EZ7pWOtUEAA_K4W?format=jpg&amp;name=large" id="aimg_zx6tZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EZubunmUYAI-tY0?format=jpg&amp;name=large" height="1446" id="aimg_N2bfh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZ7pWOtUEAA_K4W?format=jpg&amp;name=large" id="aimg_zf4qQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZubunmUYAI-tY0?format=jpg&amp;name=large" height="1446" id="aimg_B41KG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Cheee5e/status/1269708719186522112](https://twitter.com/Cheee5e/status/1269708719186522112)
 [https://twitter.com/lq_saku/status/1268778952425795584](https://twitter.com/lq_saku/status/1268778952425795584)
 
@@ -20088,4 +20088,2735 @@ syl 上次兔皇抽出的建议是宝剑十....并不是吉利的卡
 
 
 
-              
+
+
+-----
+
+####  バーチャルS1er  
+##### 13069#       发表于 2020-6-9 16:12
+
+
+
+
+天开司都能这么吃香、你V圈观众真有这么多版权意识很严的人么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13070#       发表于 2020-6-9 16:13
+
+
+
+<blockquote>他のメンバーも続々と権利許諾の文面追加してるんで同じように記載したほうがいいのでは？</blockquote>
+白上桑那个什么都还没有的待机间就有人发这种评论了，我都怀疑已经有人做了bot<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 13071#       发表于 2020-6-9 16:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736765&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-9 16:13</a>
+
+白上桑那个什么都还没有的待机间就有人发这种评论了，我都怀疑已经有人做了bot ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">咱怎么觉得狐狸就是故意弄这个来钓鱼的。。。而且真钓到了
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 13072#       发表于 2020-6-9 16:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我对楼友脑补的叶夸倒是没意见，不过微博和净土坛一定会很热闹
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13073#       发表于 2020-6-9 16:15
+
+
+
+
+翻了翻3jk的图看见了这个，一年多了
+
+《我们都有美好的未来》
+<img src="https://pbs.twimg.com/media/D3DYhDRU8AEkRHJ?format=jpg&amp;name=large" id="aimg_QXGOu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+[https://twitter.com/youcapriccio/status/1112654202755411969](https://twitter.com/youcapriccio/status/1112654202755411969)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13074#       发表于 2020-6-9 16:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/161535hxdsx2d5otxdl76z.png" referrerpolicy="no-referrer">
+
+
+<strong>1591690518(1).png</strong> (21.1 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-9 16:15 上传
+
+
+
+
+
+看得我都害怕。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13075#       发表于 2020-6-9 16:16
+
+
+
+
+哈哥……
+
+SYL：
+
+阿肥联动哈寂灭，你楼肥gachi会有意见吗？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 13076#       发表于 2020-6-9 16:17
+
+
+
+
+当然你杏被这么顺劈除了虹的原因外，你杏最近老是莫名奇妙的强调权利、法律追究让人引起的反弹应该不小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 13077#       发表于 2020-6-9 16:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736755&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-9 16:12</a>
+
+天开司都能这么吃香、你V圈观众真有这么多版权意识很严的人么</blockquote>
+微糖开司都是从死地复活的人了，放过他可好<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13078#       发表于 2020-6-9 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736809&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 16:15</a>
+
+看得我都害怕。</blockquote>
+怕啥
+
+少主做这种怪奇企划又不是第一次了
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13079#       发表于 2020-6-9 16:20
+
+
+
+
+【カバー採用情報】
+
+「海外展開担当者（北米・中国等）」ポジション募集中Sparkles
+
+
+下記より詳細を確認頂き、プロフィールを記載の上、ぜひご応募ください！
+[https://wantedly.com/projects/285067](https://wantedly.com/projects/285067)
+
+
+貴方の経験を「#ホロライブプロダクション」で活かしてみませんか？
+
+
+
+杏中国3个无能运营要换掉了？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13080#       发表于 2020-6-9 16:20
+
+
+
+
+主要结合情势和最近楼里对狐皇的怨念，看起来就很yygq。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13081#       发表于 2020-6-9 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">霓虹壬版权意识这么强，你说播任系游戏的时候没想到版权问题，我是没想到的
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">说到底，还是白嫖意识在作怪
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13082#       发表于 2020-6-9 16:22
+
+
+
+
+木口国内运营最需要的职位大概是公关吧
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 13083#       发表于 2020-6-9 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736878&amp;ptid=1938145" target="_blank">时雨rain 发表于 2020-6-9 16:20</a>
+霓虹壬版权意识这么强，你说播任系游戏的时候没想到版权问题，我是没想到的
+说到底，还是白 ...</blockquote>
+想到了，问cover，答：大丈夫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 13084#       发表于 2020-6-9 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736850&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-9 16:18</a>
+
+微糖开司都是从死地复活的人了，放过他可好</blockquote>
+本来一开始就是恶劣的蹭原著人气，微糖一开始说官方生气了就不搞了我还有点好感的，
+
+
+结果后面被官方禁了之后、反而搞出个天开司擦边球可把我恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13085#       发表于 2020-6-9 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736905&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-9 16:22</a>
+
+木口国内运营最需要的职位大概是公关吧</blockquote>
+yagoo……
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 13086#       发表于 2020-6-9 16:23
+
+
+
+
+来张知性狐
+
+<img src="https://img.saraba1st.com/forum/202006/09/162209ge3d65kjrhpkljjp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EZ39ETUVcAYy7Cm.jpeg</strong> (373.06 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-9 16:22 上传
+
+
+
+
+
+
+[https://mobile.twitter.com/tumeki_kou/status/1269449647493222403](https://mobile.twitter.com/tumeki_kou/status/1269449647493222403)
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13087#       发表于 2020-6-9 16:23
+
+
+
+
+懂了，前几天狐皇的死者苏生是要用在这里昂
+
+
+
+
+
+
+
+-----
+
+####  zealotaalbania  
+##### 13088#       发表于 2020-6-9 16:23
+
+
+
+
+楼里就不要脑补了，据我观察一枪一星联动微博女粉基本一致好评，箱外叶和一之濑丽姐的cp也是饱受好评，叶的女粉对bgcp没有梁木，真正有梁木的是独角兽那边，发生在叶身上的独角兽暴击的也只有修女那次
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13089#       发表于 2020-6-9 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736872&amp;ptid=1938145" target="_blank">SteinSlayer 发表于 2020-6-9 16:20</a>
+
+【カバー採用情報】
+
+「海外展開担当者（北米・中国等）」ポジション募集中Sparkles</blockquote>
+追加？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 13090#       发表于 2020-6-9 16:27
+
+
+
+
+狐皇这是要整啥活，你楼狐学家能否解读一下
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 13091#       发表于 2020-6-9 16:29
+
+
+
+
+这波是整活拯救运营，主要看效果，效果不好就是yygq运营，好就是拯救运营风评
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13092#       发表于 2020-6-9 16:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47736965&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-9 16:27</a>
+狐皇这是要整啥活，你楼狐学家能否解读一下</blockquote>
+我相信运营，大家如果相信我，后面不记得了什么绕口令<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 13093#       发表于 2020-6-9 16:33
+
+
+
+
+我加速了下，直播内容是直播烟头烫yagoo屁股，我悟了
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13094#       发表于 2020-6-9 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737010&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-9 16:31</a>
+
+我相信运营，大家如果相信我，后面不记得了什么绕口令</blockquote>
+狐皇：希望你们相信这个相信着holo的我
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 13095#       发表于 2020-6-9 16:34
+
+
+
+
+狐皇：就算不相信我
+
+也要相信cover
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13096#       发表于 2020-6-9 16:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">狐皇宣布hololive本质兴趣社团，cover公司做的仅仅是支援工作
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">从此holo不再是企业势，v圈多了36位以十万为单位的个人势巨物。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13097#       发表于 2020-6-9 16:34
+
+
+
+
+狐狸就算这么整活也没用的，杏里直播飞运营🐎的人太多了，这帮人里哪个gachi不比狐狸多。
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 13098#       发表于 2020-6-9 16:35
+
+
+
+
+草，难道是精准抄兔头作业？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">如果是的话也太快了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13099#       发表于 2020-6-9 16:37
+
+
+
+
+holo解体
+
+牢不可破的温暖大家庭
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 13100#       发表于 2020-6-9 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">狐皇动了，这么说来龙皇变酱后好久没对anti出击了，倒是道歉出的比较多
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13101#       发表于 2020-6-9 16:38
+
+
+
+
+「私のことは嫌いでも、hololiveは嫌いにならないで下さい！」
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13102#       发表于 2020-6-9 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白上桑那么爱惜自己羽毛的人，怎么可能帮运营背锅
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 13103#       发表于 2020-6-9 16:39
+
+
+
+
+用nico劈杏闪耀色彩的一条弹幕：神田以下いるってマジ？
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 13104#       发表于 2020-6-9 16:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holo解体不也挺好的，以后就用独立vtuber联合体的形式存在就好了，就是不知道谁是俄罗斯，谁是乌克兰
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 13105#       发表于 2020-6-9 16:41
+
+
+
+
+转发小新闻：夏哥2号推宣布绝食3天<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13106#       发表于 2020-6-9 16:41
+
+
+
+
+？？？
+
+纳尼？
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 13107#       发表于 2020-6-9 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737141&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-9 16:41</a>
+
+转发小新闻：夏哥2号推宣布绝食3天</blockquote>
+圣雄马自立<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13108#       发表于 2020-6-9 16:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼夏gachi要发疯了，躲三天再来V综。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13109#       发表于 2020-6-9 16:43
+
+
+
+
+为什么holo总是搞这些奇奇怪怪的企划
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 13110#       发表于 2020-6-9 16:43
+
+
+
+
+迷惑行为？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 13111#       发表于 2020-6-9 16:44
+
+
+
+
+虚拟绝食<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 13112#       发表于 2020-6-9 16:44
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/164420yhknk0nwrj1hqqnq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-afkuK2iT1kShs-12i.jpg</strong> (90.4 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-9 16:44 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13113#       发表于 2020-6-9 16:44
+
+
+
+
+一定是佐藤希指使的，祭丝快跟我冲了辣个女人
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13114#       发表于 2020-6-9 16:44
+
+
+
+
+挑战极限企划？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 13115#       发表于 2020-6-9 16:44
+
+
+
+
+为了避免V综发疯，来点认真的，夏哥那只是看了企鹅高速公路后在口胡，不要在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 13116#       发表于 2020-6-9 16:45
+
+
+
+
+又不是没见过先例，喝白粥也算绝食。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13117#       发表于 2020-6-9 16:45
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-9 16:46 编辑 
+
+小肥妹这个比今天楼里瞎编的什么东西都好笑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+非暴力不合作抵抗，这是要独立了啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 13118#       发表于 2020-6-9 16:48
+
+
+
+
+梁木一下
+
+狐皇坟墓→苏联解体→独立vtuber联合体建立
+
+马自立绝食→非暴力不合作→半殖民vtuber（指魂）独立
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13119#       发表于 2020-6-9 16:50
+
+
+
+
+希希想要片里搞绝食实验的男主周围那样的全肯定环境
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 13120#       发表于 2020-6-9 16:50
+
+
+
+
+用绝食来抗议白姨把自己当作工具人的行为，不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13121#       发表于 2020-6-9 16:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 13122#       发表于 2020-6-9 16:51
+
+
+
+
+企鹅高速公路这片b站有
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 13123#       发表于 2020-6-9 16:53
+
+
+
+
+郡道为了晚上月下樱现在先练习apex，结果变成了和狮子神的突击联动
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13124#       发表于 2020-6-9 16:54
+
+
+
+
+holo离死亡又近了一步
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 13125#       发表于 2020-6-9 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">黑宝去看看企鹅公路也许就能燃起对大姐姐的爱了
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 13126#       发表于 2020-6-9 16:55
+
+
+
+
+小肥妹这就当是减肥吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 13127#       发表于 2020-6-9 16:56
+
+
+
+
+sims会变成新的金游吗
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 13128#       发表于 2020-6-9 16:56
+
+
+
+
+绝食减肥有个鸡儿用，恢复饮食后大概率反弹得比之前更重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13129#       发表于 2020-6-9 16:57
+
+
+
+
+肯定是你们黑屁肥希胖了的原因
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13130#       发表于 2020-6-9 16:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737335&amp;ptid=1938145" target="_blank">kirakira~ 发表于 2020-6-9 16:56</a>
+
+sims会变成新的金游吗</blockquote>
+不太行
+
+这也是传统欧美游戏 能不能玩出效果看人
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13131#       发表于 2020-6-9 17:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">吃虫企划堂堂复活！
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 13132#       发表于 2020-6-9 17:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">她真以为绝食能减多少吗
+而且绝食完之后的那天肯定热量超标
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13133#       发表于 2020-6-9 17:01
+
+
+
+
+话说下午佐藤希播的时候点进去看了下都不颜出了，可能真的被人说胖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 13134#       发表于 2020-6-9 17:03
+
+
+
+
+绝食有一种效果叫营养不良的肥胖。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13135#       发表于 2020-6-9 17:03
+
+
+
+
+我去，龙宝第四个进simholo house的居然是星宝，boom<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 13136#       发表于 2020-6-9 17:03
+
+
+
+
+sims这个屑游没暴毙真是绝了，14年我入了首发结果过了3年狗EA才把基本的故事模式给补齐，
+尼玛2 3代自带的基础功能都要靠扩展包来补，吃相比猪还难看
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 13137#       发表于 2020-6-9 17:04
+
+
+
+
+阿希是刚起床没时间化妆 就不开画面 她联动对象倒是开了 鼻尖创口贴还是挺色的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13138#       发表于 2020-6-9 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737434&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-9 17:03</a>
+
+我去，龙宝第四个进simholo house的居然是星宝，boom</blockquote>
+好活2333
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 13139#       发表于 2020-6-9 17:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">她这节食吃一餐都得半夜TC喊饿 绝食三天要叫救护车好吧
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 13140#       发表于 2020-6-9 17:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 纸片人绝食企划还行，我信了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13141#       发表于 2020-6-9 17:09
+
+
+
+
+这个绝食应该会喝水的吧，肥希应该不会憨到这地步吧
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13142#       发表于 2020-6-9 17:10
+
+
+
+
+讲真，绝食还不如吃虫，蛋白质是牛肉的六倍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13143#       发表于 2020-6-9 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737512&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-9 17:09</a>
+这个绝食应该会喝水的吧，肥希应该不会憨到这地步吧</blockquote>
+那有办法了，珍珠奶茶管饱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13144#       发表于 2020-6-9 17:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">推上先po一张冰箱清空的照片，不然第一天都撑不过去就破戒了
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13145#       发表于 2020-6-9 17:14
+
+
+
+
+说实话绝食这事儿真是太适合肥希这脑子了，你绝食还不如去找神田联动取取经。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13146#       发表于 2020-6-9 17:15
+
+
+
+
+冰箱清空也可以叫外卖啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13147#       发表于 2020-6-9 17:16
+
+
+
+
+这么久了你楼肥妹痴还没出来，这个kpi不行，没有男人吸引力大。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 13148#       发表于 2020-6-9 17:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+Screenshot_2020-06-09-17-15-08-555_tv.danmaku.bili.png
+(1.6 MB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-6-9 17:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/171616jc8zzqnwt00wtcqc.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 13149#       发表于 2020-6-9 17:19
+
+
+
+
+男人相关可以有无数种现实联想；希小姐这个绝食三天生企鹅出来，肥妹痴老哥：我又卜是傻 bi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13150#       发表于 2020-6-9 17:20
+
+
+
+
+12号团长审判阿火
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13151#       发表于 2020-6-9 17:21
+
+
+
+
+说起来，明天夏哥和阿兰还要打拳头那个FPS吧......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13152#       发表于 2020-6-9 17:23
+
+
+
+
+郡道APEX练习，还有狮子神和黑客助战（[https://www.youtube.com/watch?v=5Ahc6maBhl8](https://www.youtube.com/watch?v=5Ahc6maBhl8)）。
+
+黛灰这种冷面笑匠角色挺好玩的，语气平淡地逗郡道，故意跟狮子神反着说，结果被郡道一句“我比较想温柔地对待女生”给识破了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 13153#       发表于 2020-6-9 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47733236&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-9 12:36</a>
+但是夸皇不会和男人联动，甚至几乎不做crew讨厌的事情，播游戏都是数字高（换而言之，crew喜欢看的）[f:1 ...</blockquote>
+所以就是在籍且珍惜，翻脸不认人的节奏？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13154#       发表于 2020-6-9 17:23
+
+
+
+
+都能发散，比如说这个企划是肥希马内甲想的，这样子又可以顺劈holo运营了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13155#       发表于 2020-6-9 17:24
+
+
+
+
+审判不多拉点人吗，<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">怎么播片也该有的吧。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 13156#       发表于 2020-6-9 17:24
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gfm5wo1760j21hc0u0wmq.jpg" referrerpolicy="no-referrer">
+
+
+あっ…（察し
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13157#       发表于 2020-6-9 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737732&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-9 17:23</a>
+都能发散，比如说这个企划是肥希马内甲想的，这样子又可以顺劈holo运营了</blockquote>
+换个人大家也许会觉得是运营xjb想的，但这是小肥妹所以大家心里都清楚
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 13158#       发表于 2020-6-9 17:26
+
+
+
+
+终于轮到审判阿火了，但问题是，原告不会全都变成被告证人么（
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13159#       发表于 2020-6-9 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737732&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-9 17:23</a>
+
+都能发散，比如说这个企划是肥希马内甲想的，这样子又可以顺劈holo运营了</blockquote>
+别人做蠢事都可以发散运营，阿肥做蠢事观众都骗不了自己的。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 13160#       发表于 2020-6-9 17:26
+
+
+
+
+阿希的apex同接怎么掉回去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 13161#       发表于 2020-6-9 17:26
+
+
+
+<blockquote>SteinSlayer 发表于 2020-6-9 17:26
+别人做蠢事都可以发散运营，阿肥做蠢事观众都骗不了自己的。</blockquote>
+但是可以发散狐狸。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13162#       发表于 2020-6-9 17:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737781&amp;ptid=1938145" target="_blank"> 某穆克拉 发表于 2020-6-9 17:26</a> 引用:SteinSlayer 发表于 2020-6-9 17:26 别人做蠢事都可以发散运营，阿肥做蠢事观众都骗不了自己的。 但是可以发散狐狸。 </blockquote>
+发散不了，狐皇前几天还说自己是大胃王呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13163#       发表于 2020-6-9 17:29
+
+
+
+ 本帖最后由 QWANG 于 2020-6-9 17:31 编辑 
+
+APEX也不行了，哈弟小千这种还能打打，其他人和一般游戏直播也差不多，不算差，能混时间就是了。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 13164#       发表于 2020-6-9 17:30
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-9 17:23
+郡道APEX练习，还有狮子神和黑客助战（https://www.youtube.com/watch?v=5Ahc6maBhl8）。
+
+黛灰这种冷面笑匠 ...</blockquote>
+短暂时间破万了
+
+这就是apex的力量吗
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 13165#       发表于 2020-6-9 17:30
+
+
+
+
+关于节食减肥，如果严格控制每日摄入能量，一般来说收益是要比高强度运动要大的
+
+但是关键是要坚持<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+从健康的角度来看，一周减重不应超过1kg，假设减去的都是脂肪，1kg脂肪=7700kcal
+
+一天要减去1100kcal的能量
+
+阿希21岁，所在人群推荐每日能量摄入量为1800kcal，每天不应低于1200kcal，最低不能低于1000kcal
+
+假设啊希目前按照每日最低能量摄入量进食，降低至1200kcal后还需要通过运动消耗500kcal的能量才能达到最快的减重效率
+
+大概就是每天还要游泳一个小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13166#       发表于 2020-6-9 17:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737409&amp;ptid=1938145" target="_blank"> framita 发表于 2020-6-9 17:01</a> 她真以为绝食能减多少吗 而且绝食完之后的那天肯定热量超标 </blockquote>
+她说这么说的都是没减过肥的云debu
+
+她这种真从那么胖减下来的才有发言权<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 13167#       发表于 2020-6-9 17:32
+
+
+
+
+以阿肥每天的运动量和基代，一天1800肯定超了，关键还是运动。
+
+说白了就是不可能。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13168#       发表于 2020-6-9 17:33
+
+
+
+
+笑死，郡道被人打了，愣了一会儿，掉了一半血的时候问：“这是敌人吗？”，然后被打死了。
+
+还好我不是APEX玩家，不然急死了。我看比较弱的管人（郡道）玩游戏的技巧：她玩我就不玩，我玩就不要看她播，之前播GTA把我给气飞了，现在想想还好郡道不爱打3A，不如我大部分游戏可能都得延后半个月等她打完再开。
+
+现在终于一杀了，了不起！
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13169#       发表于 2020-6-9 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737846&amp;ptid=1938145" target="_blank"> Zaphikel 发表于 2020-6-9 17:30</a> 关于节食减肥，如果严格控制每日摄入能量，一般来说收益是要比高强度运动要大的 但是关键是要坚持 从健康的角度来看，一周减重不应超过1kg，假设减去的都是脂肪，1kg脂肪=7700kcal 一天要减去1100kcal的能量 阿希21岁，所在人群推荐每日能量摄入量为1800kcal，每天不应低于1200kcal，最低不能低于1000kcal 假设啊希目前按照每日最低能量摄入量进食，降低至1200kcal </blockquote>
+她节食的时候一天摄入700-900kcal吧，自己汇报的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 13170#       发表于 2020-6-9 17:34
+
+
+
+
+有人知道夜霧是哪个城市的吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13171#       发表于 2020-6-9 17:36
+
+
+
+
+colo老哥不鸣则已一鸣惊人啊。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+syl
+作为粽gachi，看她打游戏就图一乐，垃圾操作也内心毫无波动，就是有时迷路会有点气人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13172#       发表于 2020-6-9 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737835&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-9 17:30</a>
+
+短暂时间破万了
+
+这就是apex的力量吗</blockquote>
+饭点、狮子神黛灰和APEX吧，这高同接但是少低评价还有点意外，感恩善良的日本观众
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 13173#       发表于 2020-6-9 17:37
+
+
+
+
+问城市？这是又找到线索了在对信息？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13174#       发表于 2020-6-9 17:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/173744zssuw4ihurzssryf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>RJPaZVs.jpg</strong> (91.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 17:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13175#       发表于 2020-6-9 17:37
+
+
+
+
+基德基德不然早晚被挖出学校单位真名<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 13176#       发表于 2020-6-9 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737897&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-9 17:33</a>
+
+她节食的时候一天摄入700-900kcal吧，自己汇报的</blockquote>
+那这么减是要出毛病的啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 13177#       发表于 2020-6-9 17:40
+
+
+
+
+夏哥这怎么可能是staff出的主意，要是爆出杏的staff怂恿旗下liver绝食减肥，你杏才真的炸了好吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 13178#       发表于 2020-6-9 17:40
+
+
+
+
+会长这么一捏……不就是瘦竹竿嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 13179#       发表于 2020-6-9 17:41
+
+
+
+<img src="https://p.sda1.dev/0/b0dae0f8c1ecaa14b25d5991ec9c9374/-424ee724f2817a69.png" referrerpolicy="no-referrer">
+https://twitter.com/yoshikawa_tweet/status/1269939458662469632
+仿佛已经看到船长之后几天的爆播抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0d5dba259a322d5dd901a25ae53b5d4f/IMG_77CF44A168AED7B226C2BEFCFA65C7D9.jpeg" referrerpolicy="no-referrer">
+https://twitter.com/oekakizuki_turi/status/1269824756443787264
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 13180#       发表于 2020-6-9 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夜霧这种底边谁有兴趣啊，不过VT应该知道
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13181#       发表于 2020-6-9 17:43
+
+
+
+
+夜雾以前谁说是上海的来着，不过我没看过她直播不知道
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 13182#       发表于 2020-6-9 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737913&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-9 17:34</a>
+
+有人知道夜霧是哪个城市的吗</blockquote>
+夜雾好像是上海的吧
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13183#       发表于 2020-6-9 17:44
+
+
+
+
+colo哥又有新消息了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 13184#       发表于 2020-6-9 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737954&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 17:37</a></blockquote>
+啊这......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 13185#       发表于 2020-6-9 17:46
+
+
+
+
+苔姨今天又拉大物对谈了啊，真是迷一般的人脉
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 13186#       发表于 2020-6-9 17:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">holoCN运营在看吗？现在联系colo哥封口还来得及
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 泡芙好吃| + 1|已经太迟了。|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 13187#       发表于 2020-6-9 17:48
+
+
+
+
+holocn一共4个运营，没维阿的运营那么闲。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13188#       发表于 2020-6-9 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47737994&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-9 17:40</a>
+
+会长这么一捏……不就是瘦竹竿嘛</blockquote>
+本人透露的情报来说，160出头42公斤，不就是竹竿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 13189#       发表于 2020-6-9 17:50
+
+
+
+ 本帖最后由 Zaphikel 于 2020-6-9 17:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738093&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-9 17:48</a>
+
+本人透露的情报来说，160出头42公斤，不就是竹竿吗</blockquote>
+这也太轻了吧！<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+对于女生来说，体脂率太低是有问题的，雌性激素的合成会减少，第二性征的维持就出现问题，还可能就会表现得男人化
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 13190#       发表于 2020-6-9 17:51
+
+
+
+
+老师这个表情…不知为何被可爱到了
+
+难道看tc回数太多被潜移默化脑控了吗
+
+
+
+
+
+
+189FA433-4DF0-46E2-B43B-1589A3155B03.jpeg
+(37.85 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-9 17:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/175021v9wryz9ecjzod71w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 13191#       发表于 2020-6-9 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738134&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-9 17:50</a>
+
+这也太轻了吧！
+
+160 55kg是标准</blockquote>
+所以八成是成长期挑食导致的偏瘦，胸部两个脂肪团完全没有发育<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 13192#       发表于 2020-6-9 17:55
+
+
+
+
+等下，巴和小护士官宣了？？
+？？？？
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 13193#       发表于 2020-6-9 17:56
+
+
+
+
+14日大联动名单<img src="https://p.sda1.dev/0/2915ace5150d69c26c587974eb171eb5/IMG_684CC61194D9D9B697F3B512640EC560.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13194#       发表于 2020-6-9 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738134&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-9 17:50</a>
+
+这也太轻了吧！160 55kg是标准
+
+
+对于女生来说，体脂率太低是有问题的，雌性激素的合成会减 ...</blockquote>
+160 55kg是狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+一般160的女生差不多 45~50吧
+
+
+
+
+
+
+
+-----
+
+####  podball  
+##### 13195#       发表于 2020-6-9 17:57
+
+
+
+
+不是改组合名吗，怎么就官宣了
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 13196#       发表于 2020-6-9 17:57
+
+
+
+
+colo,永远滴神
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13197#       发表于 2020-6-9 17:57
+
+
+
+
+这个体重可以石锤是平板了吧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13198#       发表于 2020-6-9 17:58
+
+
+
+
+兔皇动了
+
+结束
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13199#       发表于 2020-6-9 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738208&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-9 17:56</a>
+
+160 55kg是狐皇
+
+
+一般160的女生差不多 45~50吧</blockquote>
+狐皇怎么可能才110 起码120吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 13200#       发表于 2020-6-9 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738227&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-9 17:57</a>
+
+这个体重可以石锤是平板了吧</blockquote>
+就是不知道泳装的时候会上调多少<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13201#       发表于 2020-6-9 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738239&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-9 17:58</a>
+
+狐皇怎么可能才110 起码120吧</blockquote>
+那我也不晓得，毕竟没抱过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 13202#       发表于 2020-6-9 18:01
+
+
+
+
+大概是这个，有没有百合懂哥说下是不是营业
+
+
+
+
+
+
+3b6078987e0a6a91.png
+(28.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-9 18:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/180059evt93jkj03ijxvxd.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  莉蒂亚丝  
+##### 13203#       发表于 2020-6-9 18:01
+
+
+
+ 本帖最后由 莉蒂亚丝 于 2020-6-9 18:07 编辑 
+
+编辑了syl，马琳和安洁这个联动切片确实有效果啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13204#       发表于 2020-6-9 18:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738143&amp;ptid=1938145" target="_blank">null0304 发表于 2020-6-9 17:51</a>
+
+老师这个表情…不知为何被可爱到了
+
+难道看tc回数太多被潜移默化脑控了吗</blockquote>
+她大概打APEX的时候真是这个表情，真的真的很不擅长FPS<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">。
+
+大家都ぐんぐんどんどんすきになる！
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 13205#       发表于 2020-6-9 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738239&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-9 17:58</a>
+
+狐皇怎么可能才110 起码120吧</blockquote>
+话说小肥妹好像在哪说过自己喜欢一部叫《デブとラブと》的漫画
+
+
+然后昨天我去查了一下，好像讲的是一个肥妹自杀未遂后失忆了。然后变得特别正面和池面男邂逅的故事
+
+
+实在是乐死我了，我都不知道该从哪开始吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 13206#       发表于 2020-6-9 18:02
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-9 18:03 编辑 
+
+风怒编辑
+
+一切主播的说漏嘴都当放屁处理
+
+
+百合看个新鲜就是了，真百合结婚以后也是琐碎家常和正常婚姻没区别，不存在仙境里的小仙女西皮
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 13207#       发表于 2020-6-9 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738262&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-9 18:01</a>
+大概是这个，有没有百合懂哥说下是不是营业</blockquote>
+あと昨日の消えたキャスについて色んな憶測が飛び交ってるみたいだけどキャス中も2mはちゃんと守ってたしそれは誤解しないで欲しい。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 13208#       发表于 2020-6-9 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738208&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-9 17:56</a>
+
+160 55kg是狐皇
+
+
+一般160的女生差不多 45~50吧</blockquote>
+那狐皇也不debu啊<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+BMI21.5，成人标准范围18.5-23.9
+
+用标准体重公式计算的也是标准的刚刚好啊<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 13209#       发表于 2020-6-9 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738262&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-9 18:01</a>
+
+大概是这个，有没有百合懂哥说下是不是营业</blockquote>
+信则灵不信则不灵
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13210#       发表于 2020-6-9 18:04
+
+
+
+
+用你们的眼睛看看狐皇真的不debu吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13211#       发表于 2020-6-9 18:05
+
+
+
+
+我信了，tmsk贴贴(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 13212#       发表于 2020-6-9 18:06
+
+
+
+
+我觉得楼友都应该学习一下郡道gachi
+这段时间信者大战纷纷给别人种梁木
+反而对本来有点点梁木的老师有大改观，多了很多了解
+楼友真的应该学习一个
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 13213#       发表于 2020-6-9 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738262&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-9 18:01</a>
+
+大概是这个，有没有百合懂哥说下是不是营业</blockquote>
+有一个就是，基本上所有看她们的人都知道她们真的是一对儿，但是她们从来没有放在台面上正经讲过。
+
+这回T台就是说漏嘴了，只是再再再次侧面说明了她们是情侣。
+
+但是，没有官宣。
+
+这样也好吧，我个人是希望她们正式公布然后以后长长久久啦。但根据我对女同的理解，如果真的官宣了，不管最后分没分手，大概率会闹出点事。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 13214#       发表于 2020-6-9 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47738288&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-9 18:02</a>
+
+那狐皇也不debu啊
+
+BMI21.5，成人标准范围18.5-23.9
+
+用标准体重公式计算的也是标准的刚刚好啊[f:22 ...</blockquote>
+这是健康标准不是选美标准，别搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 13215#       发表于 2020-6-9 18:07
+
+
+
+
+colo哥又说了什么，怎么没看到
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 13216#       发表于 2020-6-9 18:08
+
+
+
+
+她们两个这种程度已经无所谓真假了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+         
