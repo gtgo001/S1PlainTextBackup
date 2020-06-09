@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-09 22:10** 
+> ## **本文件最后更新于2020-06-10 00:09** 
 
 
 
@@ -19215,7 +19215,7 @@ syl，当 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">Miko也要玩模拟人生了，蝗起来蝗起来。
 
 另外，白上桑要整阴间直播了
-<img src="https://pbs.twimg.com/media/EaDgQRSUEAAieCk?format=png&amp;name=360x360" id="aimg_RZ2Nr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaDgQRSUEAAieCk?format=png&amp;name=360x360" id="aimg_tGKMg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19318,8 +19318,8 @@ syl，当 ...</blockquote>
 
 
 虹浓度
-<img src="https://pbs.twimg.com/media/EZ7pWOtUEAA_K4W?format=jpg&amp;name=large" id="aimg_Bddy7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EZubunmUYAI-tY0?format=jpg&amp;name=large" height="1446" id="aimg_jOR6g" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EZ7pWOtUEAA_K4W?format=jpg&amp;name=large" id="aimg_gs2ni" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZubunmUYAI-tY0?format=jpg&amp;name=large" height="1446" id="aimg_m4LHy" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/Cheee5e/status/1269708719186522112](https://twitter.com/Cheee5e/status/1269708719186522112)
 [https://twitter.com/lq_saku/status/1268778952425795584](https://twitter.com/lq_saku/status/1268778952425795584)
 
@@ -20166,7 +20166,7 @@ syl 上次兔皇抽出的建议是宝剑十....并不是吉利的卡
 翻了翻3jk的图看见了这个，一年多了
 
 《我们都有美好的未来》
-<img src="https://pbs.twimg.com/media/D3DYhDRU8AEkRHJ?format=jpg&amp;name=large" id="aimg_y9hm1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/D3DYhDRU8AEkRHJ?format=jpg&amp;name=large" id="aimg_LwsMG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/youcapriccio/status/1112654202755411969](https://twitter.com/youcapriccio/status/1112654202755411969)
 
@@ -26778,6 +26778,25 @@ gamers一直都是个笑话<img src="https://static.saraba1st.com/image/smiley/f
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr|-1|标记一下小博鱼|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -27539,8 +27558,10 @@ pekora还是会打麻将的，弃牌顺序问题不大，还懂得弃胡
 
 
 
+ 本帖最后由 ひびき 于 2020-6-9 22:11 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740608&amp;ptid=1938145" target="_blank"> 古战场亡魂 发表于 2020-6-9 21:37</a> 小众游戏和独立游戏爱好者、跑团达人的少主被同社的金游粉丝开除gamers籍是真的没想到。好吧，原来又是秽土转生，我上钩了。  </blockquote>
-狐皇数百场coc玩家到现在还没在社内跑出过哪怕一次有效果的团，连一次非日系风格的我团都没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+狐皇数百场coc玩家到现在还没在社内跑出过哪怕一次有效果的团，连一次非日系风格的团都没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
 
 她要是当kp带阿希跟木口星跑奈亚拉托提普的面具我就停止anti她一个月来自: iPhone客户端
 
@@ -27548,4 +27569,843 @@ pekora还是会打麻将的，弃牌顺序问题不大，还懂得弃胡
 
 
 
- 
+
+
+-----
+
+####  空集  
+##### 13456#       发表于 2020-6-9 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740725&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-9 21:46</a>
+
+只是经常觉得有更好的选择，比如说狐皇玩脑叶的slot换成最近火的monster train多好 ...</blockquote>
+怪物火车确实好玩 我刚刚还一边看管一边玩 。主要这种roguelite 还可以当日常玩的 
+
+
+但是果然还是 《11区游戏孤岛》 《游戏力》
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13457#       发表于 2020-6-9 22:11
+
+
+
+
+响老哥居然还是可以妥协的。<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13458#       发表于 2020-6-9 22:14
+
+
+
+
+草一周年直播误BAN
+
+过于惨烈
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 13459#       发表于 2020-6-9 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740725&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-9 21:46</a>
+
+只是经常觉得有更好的选择，比如说狐皇玩脑叶的slot换成最近火的monster train多好 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/09/221814dp3ntvx34veq3q54.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20200609221734781.jpg</strong> (8.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 22:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 13460#       发表于 2020-6-9 22:22
+
+
+
+<blockquote>古战场亡魂 发表于 2020-6-9 22:18
+</blockquote>
+这...
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13461#       发表于 2020-6-9 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741023&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 22:11</a>
+
+响老哥居然还是可以妥协的。</blockquote>
+因为跑团没人看，不能拿来当扶星工具，只能是自己确实想跑<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+而昨天那种夏吹先联动，一结束荒咬和影山跟着发推，然后狐皇放四人联动卫星的行为，实在是工具感到家了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13462#       发表于 2020-6-9 22:25
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-9 22:30 编辑 
+
+MC暂时也不能播了看起来
+
+这要是不能播了真的是只有……
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 13463#       发表于 2020-6-9 22:26
+
+
+
+
+难不成是出口转内销 网易那边确实说了不能播
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 13464#       发表于 2020-6-9 22:26
+
+
+
+
+怕不是网易那边的二手屎<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13465#       发表于 2020-6-9 22:27
+
+
+
+
+芙宝的ARK魂又要被勾起来了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别到时发现不能播的信息是从网易那传出来的。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 13466#       发表于 2020-6-9 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741182&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 22:27</a>
+
+芙宝的ARK魂又要被勾起来了。
+
+别到时发现不能播的信息是从网易那传出来的。 ...</blockquote>
+不用到时，百分之百是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 13467#       发表于 2020-6-9 22:28
+
+
+
+
+应该是WY的那玩意儿出口了吧。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13468#       发表于 2020-6-9 22:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741182&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 22:27</a>
+
+芙宝的ARK魂又要被勾起来了。
+
+别到时发现不能播的信息是从网易那传出来的。 ...</blockquote>
+兔皇的直播
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13469#       发表于 2020-6-9 22:29
+
+
+
+ 本帖最后由 ひびき 于 2020-6-9 22:32 编辑 
+
+顺便一说狐皇那种地下偶像、大肌霸妹和死宅游戏开发员的日系团都几百场了还没跑腻味吗    能把混沌元素官方模组安排上吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">  
+
+
+还有，狐皇还没更新到七版规则书呢（明明还做过七版规则书工商
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 13470#       发表于 2020-6-9 22:29
+
+
+
+ 本帖最后由 JoelBirch 于 2020-6-9 22:30 编辑 
+
+平心而论，其实早年间那帮混游戏论坛的资深二次元宅的游戏品味普遍还是不错的，这个群体最大的问题是优越感十足且不说人话，平均水平没有80年代老玩具高但也甩00新生代一大截；
+
+不过说起狗子，我是真的很想看她直播，完全是时间没办法，虽说游戏总是怪了点，但我还蛮喜欢猎这些奇的，对我来说都是知识，她播这些也算正儿八经的Gamer（指勇于品屎）
+
+syl，什么？MC？拿网易的剑斩微软的官？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 13471#       发表于 2020-6-9 22:33
+
+
+
+
+狗子是非常方便中国进出的，直接来b站播以撒就行了，不过她播那老鼠游戏都有2万同接，也不用考虑什么中国进出了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13472#       发表于 2020-6-9 22:33
+
+
+
+
+网易是美国政府还能长臂管辖？？？？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13473#       发表于 2020-6-9 22:36
+
+
+
+
+考虑到阿裁之前还把贴吧的料发出来，这种可能性不是没有。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 13474#       发表于 2020-6-9 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741013&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-9 22:10</a>
+
+狐皇数百场coc玩家到现在还没在社内跑出过哪怕一次有效果的团，连一次非日系风格的团都没有
+
+
+她要 ...</blockquote>
+okfams不是跑过克苏鲁的团吗
+
+
+
+
+
+
+
+-----
+
+####  zwj2www  
+##### 13475#       发表于 2020-6-9 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740617&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-9 21:37</a>
+说起来，回去又翻了几遍meiro的那些翻唱，原来他还是有和别人合唱过的......好像叫しぐ？
+
+
+不过啊，他作为i ...</blockquote>
+希望他什么时候再翻点syudou的歌，我挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 13476#       发表于 2020-6-9 22:37
+
+
+
+
+不过网易这波禁播感觉不是为了钱和版权这点小事，我怀疑是隔壁《率土之滨》的冲突愈演愈烈有大氪打算借直播的途径对线，所以网易抢先一步卡死所有游戏的直播的缘故<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 13477#       发表于 2020-6-9 22:37
+
+
+
+
+木口社内跑团效果不行那肯定不是kp的问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 13478#       发表于 2020-6-9 22:39
+
+
+
+
+那网易还蛮弱智的，不愧是中国第一土
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 13479#       发表于 2020-6-9 22:40
+
+
+
+[https://youtu.be/MQEwbg-YZnY?t=4771](https://youtu.be/MQEwbg-YZnY?t=4771)
+
+FO4估计没了，MC有困难😯
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 13480#       发表于 2020-6-9 22:43
+
+
+
+
+楼友可能不知道，但是网易是有自己的直播平台的（
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 13481#       发表于 2020-6-9 22:43
+
+
+
+
+确实是兔皇那边说的（
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 13482#       发表于 2020-6-9 22:46
+
+
+
+
+你不是想说CC吧，但是它真能管到海外？MC不是微软说了算？就算限制平台也该是微软指定的Mixer，总不是想靠名头镇住别人吧，有无懂哥普普法
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13483#       发表于 2020-6-9 22:48
+
+
+
+
+holo玩球了
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/224746nzixfdf5b080g51c.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200609224627.png</strong> (7.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 22:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13484#       发表于 2020-6-9 22:48
+
+
+
+
+那还挺奇妙的，不过如果真到了不能播MC的地步那杏运营不知道是怎么做事的。
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 13485#       发表于 2020-6-9 22:49
+
+
+
+
+集体模拟人生不就是了，反正这玩意也杀时间。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 13486#       发表于 2020-6-9 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741286&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-9 22:36</a>
+
+okfams不是跑过克苏鲁的团吗</blockquote>
+我只记得FAMS跑过一次毒汤一次铭刻在手腕上的死，都是日系团
+
+
+
+顺便一说后者真是从模组魔改开始放海
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13487#       发表于 2020-6-9 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741433&amp;ptid=1938145" target="_blank">古战场亡魂 发表于 2020-6-9 22:49</a>
+
+集体模拟人生不就是了，反正这玩意也杀时间。</blockquote>
+这垃圾捏人游戏还不如ARK呢
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 13488#       发表于 2020-6-9 22:50
+
+
+
+
+😲兔皇FO4应该可以却被运营给按掉了
+
+昨天兔皇不会上洛搞事去了吧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13489#       发表于 2020-6-9 22:51
+
+
+
+
+现在更大的问题来了
+
+ARK新地图可能没有办法如期发布 要是再次延期的话……
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 13490#       发表于 2020-6-9 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741319&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 22:39</a>
+
+那网易还蛮弱智的，不愧是中国第一土</blockquote>
+率土之滨那事闹得非常大，运营直接直播跳脸所有玩家，包括超重氪，直接喷我是你爹，我设计游戏就是要赚你们钱的，你们别搞事
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13491#       发表于 2020-6-9 22:54
+
+
+
+
+芙宝真是铁血ARK魂，不管怎么说杏人还没到少个水时间游戏就干不下去的地步。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13492#       发表于 2020-6-9 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741447&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-9 22:50</a>
+
+😲兔皇FO4应该可以却被运营给按掉了
+
+昨天兔皇不会上洛搞事去了吧</blockquote>
+最伤的还是狗子
+
+现在狗子的所有游戏都要事前申请许可了 屁都不能播
+
+你看今天晚上就只能唱歌了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13493#       发表于 2020-6-9 22:54
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-9 22:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741489&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 22:54</a>
+
+芙宝真是铁血ARK魂，不管怎么说杏人还没到少个水时间游戏就干不下去的地步。 ...</blockquote>
+最近休止的人不少吧
+
+怎么说
+
+
+
+但是客观的说ARK也是垃圾游戏，我并不多捧，但是现在特殊时期除了ARK是真没什么更好的能作为箱向的清白版权游戏了
+
+特别是ARK官方还在支持holo的情况下
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 13494#       发表于 2020-6-9 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">不是，咱们能不随便拿个5CH发的玩意过来就直接写小说么。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 13495#       发表于 2020-6-9 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741498&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 22:54</a>
+最近休止的人不少吧
+
+怎么说</blockquote>
+芙宝你还不如说配信频率降低，休止难道和ARK延期有关？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 13496#       发表于 2020-6-9 22:56
+
+
+
+
+休止难道不是因为福报太多调整一下吗
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 13497#       发表于 2020-6-9 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741476&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-9 22:52</a>
+率土之滨那事闹得非常大，运营直接直播跳脸所有玩家，包括超重氪，直接喷我是你爹，我设计游戏就是要赚你 ...</blockquote>
+这样啊，不关注国内的破事儿，上次正面喷网易还是去年TGA；不过一个运营真的能让网易这么刚？正常流程不都是赶紧发放补偿大家当无事发生，国内手游运营这种东西，开掉也不可惜，再挖一个就完事儿了（算了想起暴雪的张栋了，网易好像真的护犊子），怎么会整成这样？
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 13498#       发表于 2020-6-9 22:57
+
+
+
+
+夏哥又带妹吃鸡了。。真是专业户。。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 13499#       发表于 2020-6-9 22:59
+
+
+
+
+mc不能播是个什么事？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 13500#       发表于 2020-6-9 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741521&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 22:56</a>
+
+芙宝你还不如说配信频率降低，休止难道和ARK延期有关？</blockquote>
+我可没扯ARK
+
+我的意思是说现在的情况是受到了版权事件的影响 大家直播的热情肯定多少有降低
+
+
+
+
+
