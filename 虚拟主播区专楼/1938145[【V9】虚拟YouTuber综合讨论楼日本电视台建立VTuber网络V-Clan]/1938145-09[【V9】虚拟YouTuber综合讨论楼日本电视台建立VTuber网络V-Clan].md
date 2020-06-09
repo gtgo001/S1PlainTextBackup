@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-09 10:08** 
+> ## **本文件最后更新于2020-06-09 12:08** 
 
 
 
@@ -8562,6 +8562,25 @@ https://twitter.com/tpa425/status/1269948008344375296?s=20
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|mk2来整点活|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9959,13 +9978,3468 @@ miko这周火力全开
 
 
 
+ 本帖最后由 泡芙好吃 于 2020-6-9 10:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730595&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-9 09:58</a>
 
 芙宝吹miko牛皮真的不上税。</blockquote>
 谁播得多谁活跃我吹谁咯
 
+每次箱一出事第一件事是想着赶紧自保跑路避风头等回来还能再白赚一个复归buff的人我是觉得真的不配被吹。
 
 
 
 
-                                
+
+
+
+-----
+
+####  erer  
+##### 12532#       发表于 2020-6-9 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730704&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 10:07</a>
+
+谁播得多谁活跃我吹谁咯</blockquote>
+要点脸，明明只吹你家miko。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12533#       发表于 2020-6-9 10:09
+
+
+
+
+啊，那芙宝不吹吹巧克吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12534#       发表于 2020-6-9 10:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730709&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-9 10:08</a>
+
+要点脸，明明只吹你家miko。</blockquote>
+你今天没事的话去把我以前专楼发言都翻一遍
+
+看看我吹过几个人
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12535#       发表于 2020-6-9 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730722&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-9 10:09</a>
+
+啊，那芙宝不吹吹巧克吗？</blockquote>
+直播内容过于单调半年以上只播DBD和ARK做的企划内容也不足够吸引人要不是龙皇这次拉了一把是真的救不回来
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12536#       发表于 2020-6-9 10:11
+
+
+
+
+谁这么关注你啊，脱坑回踩的人看多了影响心情。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12537#       发表于 2020-6-9 10:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730740&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-9 10:11</a>
+
+谁这么关注你啊，脱坑回踩的人看多了影响心情。</blockquote>
+不正视自己推不够努力的事实还无端找借口把锅丢给别人这就是你们crew吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 12538#       发表于 2020-6-9 10:14
+
+
+
+
+芙宝怎么突然开始刷KPI了。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12539#       发表于 2020-6-9 10:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730776&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 10:13</a>
+
+不正视自己推不够努力的事实还无端找借口把锅丢给别人这就是你们crew吗</blockquote>
+还不够努力，不给箱做苦力就是不够努力咯。你又不是箱推，何必拿holo箱来做盾膈应人，既然不爱了就离开啊，干嘛老是做挑货。syl这信者大战太虚无了，不再回你了。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12540#       发表于 2020-6-9 10:17
+
+
+
+
+杏二期没有leader型是事实，卍组也僵硬是事实，但先富带动后富是不是责任？
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 12541#       发表于 2020-6-9 10:18
+
+
+
+
+杏人内战又开始了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12542#       发表于 2020-6-9 10:19
+
+
+
+
+芙宝就硬钓，你是喜欢erer姐的小学生吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，夏gachi可能还有救，夏吹党那可真的没得救了。不过肥希现在左手白姨右手苔姨，双倍的姨power加持，我觉得还是为了精神健康早日脱坑的好。
+
+隔壁m楼一个苔姨就整疯了一群了，肥希这可是双倍啊双倍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 12543#       发表于 2020-6-9 10:20
+
+
+
+
+夏吹，不好看!
+
+
+二二芙宝，好看！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+感谢楼友，让我重新找回笑容
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12544#       发表于 2020-6-9 10:20
+
+
+
+
+噗酱在玩gta5，gta5也不能开sc的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+小熊猫换了新衣装后好像再也没用过原皮了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12545#       发表于 2020-6-9 10:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">杏仁内战（crew一挑多
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 12546#       发表于 2020-6-9 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730842&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:17</a>
+
+杏二期没有leader型是事实，卍组也僵硬是事实，但先富带动后富是不是责任？ ...</blockquote>
+先富 ☞hololive
+
+后富 ☞holostar
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">嗯？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12547#       发表于 2020-6-9 10:21
+
+
+
+
+hololive，你害了多少管人西皮厨
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 12548#       发表于 2020-6-9 10:22
+
+
+
+
+如今还有夏吹党吗，别开玩笑了。之前协会里说是坚定的夏吹党那人都转单推了。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 12549#       发表于 2020-6-9 10:22
+
+
+
+
+还是等木口们真的关系破裂了再来战吧，不然也太虚无了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12550#       发表于 2020-6-9 10:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730842&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:17</a>
+
+杏二期没有leader型是事实，卍组也僵硬是事实，但先富带动后富是不是责任？ ...</blockquote>
+不管怎么说二期leader现在实质就是夸皇了 但是你要说带二期这个事情的话实际上夸皇能做的已经都做了 这两个月多少联动都是跟二期生做的 其他人不努力拉胯带不动怪不得夸皇
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12551#       发表于 2020-6-9 10:23
+
+
+
+
+先富带后富还行，什么逻辑，早年间被说欺负傻紫，现在盐水好起来了不车了，看看二期配置，摸余老师486哪个能带？箱推请自动屏蔽一二期吧，何必呢
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12552#       发表于 2020-6-9 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730872&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-9 10:19</a>
+
+芙宝就硬钓，你是喜欢erer姐的小学生吗
+
+
+syl，夏gachi可能还有救，夏吹党那可真的没得救了。不过肥 ...</blockquote>
+讲真，到现在这个程度夏gachi还是赶紧直接就地转成希妹gachi来得好，至少希妹这个身份不太好直接去跟其他男性当面联动
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12553#       发表于 2020-6-9 10:24
+
+
+
+
+墙倒众人推，holo到头了，内卷随之而来的就是资源分配的矛盾和信者大战了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12554#       发表于 2020-6-9 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我们虹人内战过了，请杏人内战先交保护费
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12555#       发表于 2020-6-9 10:26
+
+
+
+
+带二期 ×     带太紫 √
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12556#       发表于 2020-6-9 10:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期就是一盘散沙，带不动啊。二期到现在没有过一次全员联动你敢信？每个人的步调都不一致，也不努力维修加深联系，根本无法产生羁绊啊。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12557#       发表于 2020-6-9 10:27
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-9 10:22
+不管怎么说二期leader现在实质就是夸皇了 但是你要说带二期这个事情的话实际上夸皇能做的已经都做了 这两 ...</blockquote>
+这俩月呢，二期从出道开始就一句散兵游勇的样，这两个月做的不错，但二期都多久了。我觉得她可能就不适合带人这活。
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 12558#       发表于 2020-6-9 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">翻了几页发现是2000守护了V综没有变成杏综
+
+谢谢你 2000
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 12559#       发表于 2020-6-9 10:28
+
+
+
+ 本帖最后由 opersuper 于 2020-6-9 10:32 编辑 
+
+♨️大家庭特有的家族内纷。 ps我也想弄点点箱KPI但是我不看楼里又云不到就很无奈
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 12560#       发表于 2020-6-9 10:29
+
+
+
+
+看独角兽哀嚎总是格外愉悦
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 12561#       发表于 2020-6-9 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730929&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 10:23</a>
+
+先富带后富还行，什么逻辑，早年间被说欺负傻紫，现在盐水好起来了不车了，看看二期配置，摸余老师486哪个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">486确实能带
+
+至少486能在带人的前提拉上别人一起喂饭，而且还经常想一些不错的企划，就算箱推不去贡献同接也能刷个脸熟
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12562#       发表于 2020-6-9 10:31
+
+
+
+
+但是486真的能凝结自我主义的二期嘛？都两年了，别想着二期绊了，大家各自美丽不好吗？只怪当时年纪轻，不知道团建的好。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12563#       发表于 2020-6-9 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731006&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:27</a>
+
+这俩月呢，二期从出道开始就一句散兵游勇的样，这两个月做的不错，但二期都多久了。我觉得她可能就不适合 ...</blockquote>
+二期风格差别太大确实谁都不太适合带就是了
+
+反正各自努力就是了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12564#       发表于 2020-6-9 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731013&amp;ptid=1938145" target="_blank">空派白 发表于 2020-6-9 10:28</a>
+
+翻了几页发现是2000守护了V综没有变成杏综
+
+谢谢你 2000</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 你是傲娇吗?不是屏蔽我了吗
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12565#       发表于 2020-6-9 10:34
+
+
+
+ 本帖最后由 离心 于 2020-6-9 10:35 编辑 
+
+yysy，夸本来就不适合leder位，与其期待夸皇带2期生联动活动，还不如期待486带二期生联动，后者可能性还大一点
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12566#       发表于 2020-6-9 10:34
+
+
+
+ 本帖最后由 JoelBirch 于 2020-6-9 10:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731034&amp;ptid=1938145" target="_blank">MisForTunez 发表于 2020-6-9 10:30</a>
+486确实能带
+
+至少486能在带人的前提拉上别人一起喂饭，而且还经常想一些不错的企划，就算箱推不去 ...</blockquote>
+想想二期各自的粉丝成分都是怎么养成的叭，强扭的瓜不甜，三四期都是什么人二期都是什么人，三四期什么开局二期什么开局，偶尔联动可以，带人，阿夸游戏民第一个麻，说句难听的holo赔得起吗？
+
+syl，二期联动观感真的会好吗？质疑，这个话题好废啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12567#       发表于 2020-6-9 10:37
+
+
+
+
+ayasuba和盐水都有美好的未来，唯独老师只能和渔夫军团为伴
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12568#       发表于 2020-6-9 10:37
+
+
+
+
+不过盐水确实卓有成效，双方都有益处，但这是因为这2位脑回路很类似，傻乐呵。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是想象不到阿夸带老师这样傻乐呵的样子。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12569#       发表于 2020-6-9 10:38
+
+
+
+
+你楼这两天金句频出啊。
+从昨天的“给现实灰姑娘穿上虚拟的水晶鞋”到今天的“holo赔的起吗？”
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 12570#       发表于 2020-6-9 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731080&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-9 10:33</a>
+
+你是傲娇吗?不是屏蔽我了吗</blockquote>
+其他人也会回复你啊这个没法屏蔽<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 12571#       发表于 2020-6-9 10:38
+
+
+
+
+女团二期啊......我想起了那个小剧场里的“五等分的二期生”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 12572#       发表于 2020-6-9 10:39
+
+
+
+ 本帖最后由 noHentai 于 2020-6-9 10:41 编辑 
+
+虹人爬，杏综不好吗，守护杏综从我做起<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 12573#       发表于 2020-6-9 10:39
+
+
+
+
+二期你夸也就喊得动一个傻紫了、不过如果486、巧可、凌总去了三四期估计也是那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12574#       发表于 2020-6-9 10:39
+
+
+
+
+请问这位空派白就是去告御状的本人还是帆船人？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 12575#       发表于 2020-6-9 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731171&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:39</a>
+
+请问这位空派白就是去告御状的本人还是帆船人？</blockquote>
+本人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 12576#       发表于 2020-6-9 10:41
+
+
+
+
+你楼虹浓度还真靠2000维持的，2000黑化也要自己孤身一人奋斗。对了还有郡道gachi哥
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12577#       发表于 2020-6-9 10:41
+
+
+
+
+点播一曲乃木坂的自我主义送给holo二期的各位。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12578#       发表于 2020-6-9 10:41
+
+
+
+<blockquote>star_platinum 发表于 2020-6-9 10:40
+本人</blockquote>
+谢谢解惑    
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12579#       发表于 2020-6-9 10:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730929&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 10:23</a>
+
+先富带后富还行，什么逻辑，早年间被说欺负傻紫，现在盐水好起来了不车了，看看二期配置，摸余老师486哪个 ...</blockquote>
+巧可战力外另说
+
+现在486靠着跟mio的超强企划组合现在已经在箱内打出自己的名气了 这才是最理想的内容实力派 也不用担心播游戏还要纠结什么版权收益权的问题 完全不用靠播游戏平时整整杂谈小企划就能过得很滋润了稳的一笔
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12580#       发表于 2020-6-9 10:43
+
+
+
+
+木口赶紧翻翻那本上半彩虹下半点生活拼出来的企划书，把箱推作卖点结果搞团建综艺是最拉胯的。
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 12581#       发表于 2020-6-9 10:43
+
+
+
+ 本帖最后由 空派白 于 2020-6-9 10:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">连观众ID都要反串黑的话那你圈也是真的药/丸了
+
+自我主义还是送给楼友吧 别把同期这种事看得太重<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12582#       发表于 2020-6-9 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731204&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:41</a>
+
+谢谢解惑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer"> 现在他最喜欢做的事情就是汉化木口的本子，
+
+
+他换自己的方式守护木口了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12583#       发表于 2020-6-9 10:44
+
+
+
+
+观众id帆船黑不是有吗，之前那个万年二位<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12584#       发表于 2020-6-9 10:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731207&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 10:42</a>
+巧可战力外另说
+
+现在486靠着跟mio的超强企划组合现在已经在箱内打出自己的名气了 这才是最理想的内容实力 ...</blockquote>
+我不是说486素质不好，我蛮爱看她切片的，问题是二期箱内没人能跟她啊，不然为啥一直和mio她们走得近，只能说二期真的是各有各的精彩，挺好的，没必要搁一起
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12585#       发表于 2020-6-9 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什v什粉，夸独粉也独
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过夸本来就没那能力带人，强扭瓜不甜。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12586#       发表于 2020-6-9 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们忘了一个人扮演一个区的牛伯伯了么
+
+你楼现在还没出现高仿ID真的很纯良
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12587#       发表于 2020-6-9 10:45
+
+
+
+<blockquote>激光2000 发表于 2020-6-9 10:44
+现在他最喜欢做的事情就是汉化木口的本子，
+
+
+他换自己的方式守护木口了 ...</blockquote>
+他不是虹人吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|信谁不好信2000的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 12588#       发表于 2020-6-9 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">芙宝：打游戏的都是废物
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12589#       发表于 2020-6-9 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731236&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 10:44</a>
+
+我不是说486素质不好，问题是二期箱内没人能跟她啊，不然为啥一直和mio她们走得近，只能说二期真的是各有 ...</blockquote>
+阿夸还是跟着486处过一阵子的
+
+
+
+
+
+
+
+-----
+
+####  MisForTunez  
+##### 12590#       发表于 2020-6-9 10:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731104&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 10:34</a>
+
+想想二期各自的粉丝成分都是怎么养成的叭，强扭的瓜不甜，三四期都是什么人二期都是什么人，三四期什么开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也没说要换粉啊 只是单纯的说喂饭罢了
+
+说起来还挺好笑，以前团建企划最频繁的还是巧可呢
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12591#       发表于 2020-6-9 10:46
+
+
+
+
+没必要，只能说没必要
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 12592#       发表于 2020-6-9 10:47
+
+
+
+
+486的问题不是阴角跟不上她的思必得么
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12593#       发表于 2020-6-9 10:47
+
+
+
+
+巧可桑的企划太无聊了，不晓得还有人记得她搞得声剧部嘛，剧本真是有够尬的。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12594#       发表于 2020-6-9 10:48
+
+
+
+
+巧克就算箱内身体测定同接也不太行的样子？印象中和天音的身体测定没破万同接。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12595#       发表于 2020-6-9 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731254&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-9 10:45</a>
+
+芙宝：打游戏的都是废物</blockquote>
+打游戏当然好 打得有效果观众都爱看要不然兔皇5W大棒哪来的
+
+问题是现在版权问题这么严你一不小心一群anti抢着去给版权方举报 那你不得克制一点想想整点其他内容
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 12596#       发表于 2020-6-9 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731250&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:45</a>
+
+他不是虹人吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer"> 所以才会汉化木口的HUANG色小本本阿
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12597#       发表于 2020-6-9 10:51
+
+
+
+
+传播亵渎偶像团体杏生活的小黄本， 罪该万死！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12598#       发表于 2020-6-9 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731255&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-9 10:45</a>
+
+阿夸还是跟着486处过一阵子的</blockquote>
+极阴chara和极阳chara是很难正常相处的
+
+<img src="https://img.saraba1st.com/forum/202006/09/105150ma309zpjhpp5hj4h.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200609105138.png</strong> (12.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 10:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12599#       发表于 2020-6-9 10:52
+
+
+
+<blockquote>激光2000 发表于 2020-6-9 10:49
+所以才会汉化木口的HUANG色小本本阿</blockquote>
+汉化黄本能有啥意思，算是打击独角兽？黄本多不就证明热度高吗？如日中天的阿委还抱怨自己的黄本扶她怎么这么多。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12600#       发表于 2020-6-9 10:52
+
+
+
+
+游戏界内管版权能到不能播地步的大厂只有老任，而老任管这么严的原因是它自己的商业定位和模式关系以及一点落后观念，其他厂这么搞要么是小作坊蹭，不会有大碍；要么是嫌自己死得不够快，担心这个属实没必要嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12601#       发表于 2020-6-9 10:53
+
+
+
+
+那该问问巧可dbd洗掉多少粉了，隔壁小护士电台上三笨蛋也一样不行。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12602#       发表于 2020-6-9 10:53
+
+
+
+
+那该问问巧可dbd洗掉多少粉了，隔壁小护士电台上三笨蛋也一样不行。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12603#       发表于 2020-6-9 10:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到空派白就有点好笑
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">以前翻本还用我家啊咩的名字
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">谢谢你让我家啊咩多出能够翻本子的技能嗷
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12604#       发表于 2020-6-9 10:54
+
+
+
+
+高强度企划哪那么好车出来，指望企划救木口还不如多找几个律师和杂兵staff去满世界上门对接许可来的现实
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12605#       发表于 2020-6-9 10:54
+
+
+
+
+农场主大战偷电贼打野看着确实蛮无聊的，有V搞过粉丝参加型吗？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12606#       发表于 2020-6-9 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731360&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 10:51</a>
+
+极阴chara和极阳chara是很难正常相处的</blockquote>
+当时不还说486是中央空调给阴角治疗社障，线下也玩得挺开心的，怎么就变成难以相处了，又翻案了？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12607#       发表于 2020-6-9 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731299&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 10:48</a>
+
+巧克就算箱内身体测定同接也不太行的样子？印象中和天音的身体测定没破万同接。 ...</blockquote>
+是啊 老牌子身体测定现在基本是没什么人看了
+
+所以又开了一个新企划 同接还行
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 12608#       发表于 2020-6-9 10:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731395&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-9 10:53</a>
+
+那该问问巧可dbd洗掉多少粉了，隔壁小护士电台上三笨蛋也一样不行。</blockquote>
+小护士同接不行但是订阅行啊，除了三马鹿和星川ars以外的19组最快订阅增速，抱歉有百合cp就是可以为所欲为的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12609#       发表于 2020-6-9 10:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731426&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-9 10:55</a>
+当时不还说486是中央空调给阴角治疗社障，线下也玩得挺开心的，怎么就变成难以相处了，又翻案了？ ...</blockquote>
+只能说都是有极限的，玩一阵子觉得挺好但长期继续下去就无力也很正常吧
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 12610#       发表于 2020-6-9 10:58
+
+
+
+
+金发组最大的问题是
+
+
+没有「才能」
+
+
+匿名希望桑还少半根舌头
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12611#       发表于 2020-6-9 10:59
+
+
+
+ 本帖最后由 poipanchao 于 2020-6-9 11:00 编辑 
+
+彩虹不行
+hololive最强！
+
+只有2000的v综还不如杏综呢
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12612#       发表于 2020-6-9 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731477&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-9 10:58</a>
+
+金发组最大的问题是
+
+
+没有「才能」</blockquote>
+『H』就是最大的才能
+
+等会
+
+阿心……阿心最近才能歪了
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 12613#       发表于 2020-6-9 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731429&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-6-9 10:55</a>
+
+小护士同接不行但是订阅行啊，除了三马鹿和星川ars以外的19组最快订阅增速，抱歉有百合cp就是可以为所欲 ...</blockquote>
+我露这么没存在感的吗<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|我的我的，忘了江露了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 12614#       发表于 2020-6-9 11:01
+
+
+
+
+欧美游戏一般没什么版权问题，youtuber行业那么多年都播下来了，只是大部分yhm欧美游戏品味都不太行
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12615#       发表于 2020-6-9 11:03
+
+
+
+
+真想搞好联动有什么难的，比如点照着综艺节目抄就是了，杏这里拉胯，只能说骨子里还是那个哪边都抄一点拼出来的山寨货。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12616#       发表于 2020-6-9 11:03
+
+
+
+ 本帖最后由 JoelBirch 于 2020-6-9 11:06 编辑 
+
+日厂除了老任也没人追着搞，一线厂的销售大头都在欧美，小厂子巴不得你播，近期的唯一限制也就是SE不让播FF7最后一章，这个真不是事儿
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12617#       发表于 2020-6-9 11:04
+
+
+
+<blockquote>Suny08 发表于 2020-6-9 10:55
+小护士同接不行但是订阅行啊，除了三马鹿和星川ars以外的19组最快订阅增速，抱歉有百合cp就是可以为所欲 ...</blockquote>
+巧可的订阅靠asmr也当了好久上位啊
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 12618#       发表于 2020-6-9 11:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">杏搞企划本来就不咋滴，印象最深的也就是mio的占卜
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12619#       发表于 2020-6-9 11:05
+
+
+
+
+winda哥骂杏骂得好狠啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12620#       发表于 2020-6-9 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731494&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 10:59</a>
+
+『H』就是最大的才能
+
+等会
+
+阿心……阿心最近才能歪了</blockquote>
+自爆是全体企划屋的末路（
+
+
+隔壁的企划屋是不是也有被炎上后自闭了好一阵子的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12621#       发表于 2020-6-9 11:06
+
+
+
+
+点老哥怎么好像比虹还讨厌杏……
+话说有没有人能帮忙回想下
+船兔这俩，是不是不太抄作业
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12622#       发表于 2020-6-9 11:07
+
+
+
+
+骂得好，就该骂，holo he pei
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12623#       发表于 2020-6-9 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731620&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-9 11:06</a>
+
+点老哥怎么好像比虹还讨厌杏……
+
+话说有没有人能帮忙回想下
+
+船兔这俩，是不是不太抄作业</blockquote>
+纯：『？』
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12624#       发表于 2020-6-9 11:09
+
+
+
+
+白组很多以前就看不起杏啊，虹还算是个对手，杏类似现在的点，随手劈一劈做日常
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12625#       发表于 2020-6-9 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731652&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:08</a>
+纯：『？』</blockquote>
+纯的作业是啥
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 12626#       发表于 2020-6-9 11:10
+
+
+
+<blockquote>poipanchao 发表于 2020-6-9 11:09
+纯的作业是啥
+
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+dq5
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12627#       发表于 2020-6-9 11:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">Vtuber本来就是媚宅产物，更别说这些套着live2d皮的劣质品。
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">根就歪，果子还劣，大家都烂何必比更烂
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12628#       发表于 2020-6-9 11:11
+
+
+
+
+虹当年还算称得上"对手"，杏那时没了asmr直播安排空虚的样子，vliver性都存疑
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12629#       发表于 2020-6-9 11:11
+
+
+
+
+点这边出来的除了靠高水准麻将异军突起，其他人还有出现过吗？
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 12630#       发表于 2020-6-9 11:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我记得虹今年搞过猜谜王来着？杏能不能抄一个6w同接出来
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12631#       发表于 2020-6-9 11:12
+
+
+
+
+要说看不上是正常的
+
+就点箱原来那么硬的粉丝群 要不是点爆了到现在估计还压制着holo
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12632#       发表于 2020-6-9 11:13
+
+
+
+
+虽然很不爽，但是v圈毛玉意外的多
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12633#       发表于 2020-6-9 11:15
+
+
+
+
+话说回来reality要倒了 怕是今年夏天没有什么主办方能再办得出来去年夏天那个规模的fes了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12634#       发表于 2020-6-9 11:16
+
+
+
+
+点不就是吃白海豚剩饭的箱吗，日常接力整过什么好活有资格说别人虚无？哦，有超女V<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12635#       发表于 2020-6-9 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731767&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-9 11:16</a>
+
+点不就是吃白海豚剩饭的箱吗，日常接力整过什么好活有资格说别人虚无？哦，有超女V ...</blockquote>
+超V地上波就够吹几年了
+
+你holo你虹有吗 什么时候能有
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 12636#       发表于 2020-6-9 11:18
+
+
+
+<blockquote>admentus 发表于 2020-6-9 11:01
+欧美游戏一般没什么版权问题，youtuber行业那么多年都播下来了，只是大部分yhm欧美游戏品味都不太行 ...</blockquote>
+没人看的游戏一定不是好游戏
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 12637#       发表于 2020-6-9 11:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是 原本点也就稳定7-8k的同接 想到现在还压制杏是不是有点做梦
+
+胜在稳定和封闭而已
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12638#       发表于 2020-6-9 11:18
+
+
+
+
+今天本来是soramiko的MC联动直播纪念日
+
+结果因为空妈今天要排练冲掉了
+
+不知道什么时候才能排得出来时间播了 估计接下来两边都要忙了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12639#       发表于 2020-6-9 11:18
+
+
+
+
+也不稀罕什么大型fes了吧，以后都是自己箱内玩了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 12640#       发表于 2020-6-9 11:20
+
+
+
+ 本帖最后由 tiro_finale 于 2020-6-9 11:21 编辑 
+
+点还是有几个好活的，现在挺喜欢看白组忆苦思甜，祖上曾经阔过
+
+其实我反而想说说这家的老大，是当年唯一一个GET不到的大物
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12641#       发表于 2020-6-9 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731784&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:17</a>
+超V地上波就够吹几年了
+
+你holo你虹有吗 什么时候能有</blockquote>
+没有没有，失敬失敬，主流是不可能主流的，又请不动小峠英二，就骗骗死宅的钱才维持得了生活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12642#       发表于 2020-6-9 11:24
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-9 11:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731814&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-9 11:18</a>
+
+也不稀罕什么大型fes了吧，以后都是自己箱内玩了</blockquote>
+主要是挺怀念的
+
+当时做得最成功的把整个v圈情绪引燃的就是那个三大箱联动的甲子园决赛了 各种神级逆转剧情
+
+你要说今年各自箱内办类似的企划当然可以 但是重现去年那种盛况是不可能了
+
+
+啊 其实还有一个好企划 建筑王
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12643#       发表于 2020-6-9 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">木口天天万棒起飞，应该早就是主流了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">独角兽喜欢
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12644#       发表于 2020-6-9 11:25
+
+
+
+
+其实当年大物里我最get不到的是月月<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 12645#       发表于 2020-6-9 11:25
+
+
+
+
+说到地上波，我一直没搞懂，地上波到底是电视还是广播，据我了解大部分都是电视来着？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 12646#       发表于 2020-6-9 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那现在v圈最高同接是在谁家，我觉得与其地上波还不如同接捏在手里实在
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 12647#       发表于 2020-6-9 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731934&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:24</a>
+主要是挺怀念的
+
+当时做得最成功的把整个v圈情绪引燃的就是那个三大箱联动的甲子园决赛了 各种神级逆转剧情 ...</blockquote>
+Stars有建筑王，我看到还以为是在yygq
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12648#       发表于 2020-6-9 11:27
+
+
+
+
+单人非纪念是兔皇5w吧，多人联动还是虹的。
+
+（管人限定）
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12649#       发表于 2020-6-9 11:28
+
+
+
+
+v圈这么点体量就开始闭关锁国，聪明的人都在给自己本体引流找退路了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12650#       发表于 2020-6-9 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731953&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-9 11:25</a>
+说到地上波，我一直没搞懂，地上波到底是电视还是广播，据我了解大部分都是电视来着？ ...</blockquote>
+是无线电视台
+
+与此相对还有卫星放送和有线放送
+
+虽然现在已经不分了，但地上波基本被用来代指几个大放送局下面的大电视台
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 12651#       发表于 2020-6-9 11:29
+
+
+
+
+不要指望管人的游戏鉴赏能力 和 玩游戏的整活能力 这话题 我都记得v综至少车了2次以上了 大多数管人的游戏力水平（不单指技术）都非常的菜 甚至没有到一半单机游戏玩家水平 所以离开了这些管人金游后 管人的直播有趣程度极限下降  ）
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12652#       发表于 2020-6-9 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731976&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-9 11:27</a>
+Stars有建筑王，我看到还以为是在yygq</blockquote>
+结果女团这边好像完全没人宣传RT过star的建筑王企划
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12653#       发表于 2020-6-9 11:30
+
+
+
+
+行吧，你不顺劈我编辑。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 12654#       发表于 2020-6-9 11:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 地上波不还是本土主流进出的路线，那我还说点就算不炸到现在估计海外市场也没啥作为
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12655#       发表于 2020-6-9 11:31
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/113049bcd0grvdfzg4btqq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ52rHrUEAgbljM.jpg</strong> (330.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 11:30 上传
+
+
+
+
+
+
+妹啊要不咱换只熊？
+
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12656#       发表于 2020-6-9 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732056&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-9 11:30</a>
+行吧，你不顺劈我编辑。</blockquote>
+二二姐理解错了，是指游戏多样性，就是主流主机游戏主播那种，不是哪个角色玩得好这样
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12657#       发表于 2020-6-9 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732061&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-9 11:31</a>
+
+地上波不还是本土主流进出的路线，那我还说点就算不炸到现在估计海外市场也没啥作为 ...</blockquote>
+那个，点在中国有活动……
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 12658#       发表于 2020-6-9 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732056&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-9 11:30</a>
+
+然而职业玩家也基本上一个角色到底的啊。还指望她多个角色全能吗？</blockquote>
+职业水平高啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12659#       发表于 2020-6-9 11:32
+
+
+
+
+大概是未来的管人金游？
+
+
+
+
+
+
+IMG_20200609_112757.jpg
+(106.88 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-9 11:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/113101ylluml71ewunl11z.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 12660#       发表于 2020-6-9 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731784&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:17</a>
+
+超V地上波就够吹几年了
+
+你holo你虹有吗 什么时候能有</blockquote>
+[https://s.mxtv.jp/special19_20/detail.php?id=1109817](https://s.mxtv.jp/special19_20/detail.php?id=1109817)
+
+你还是多劈点大亏吧
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 12661#       发表于 2020-6-9 11:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">唐突车管人游戏力也是无聊，建议往前翻翻
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 12662#       发表于 2020-6-9 11:34
+
+
+
+
+宫姨什么时候能拿fnv来打你楼的脸<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 12663#       发表于 2020-6-9 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732083&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:32</a>
+
+那个，点在中国有活动……</blockquote>
+点在中国的进出成功度真不是车烂的话题么......  
+
+欧美方面更不说了。 
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12664#       发表于 2020-6-9 11:34
+
+
+
+
+上面提到单一角色冲分这个话题，其实真冲分都是那几个功利角色冲，卡牌游戏冲分也是一两套功利卡组上分。
+
+但是职业主播日常直播是要打各种角色各种卡组的，以提供新鲜感给观众。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12665#       发表于 2020-6-9 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732090&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-9 11:32</a>
+
+大概是未来的管人金游？</blockquote>
+垃圾游戏
+
+发行即暴死
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12666#       发表于 2020-6-9 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732087&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-9 11:32</a>
+
+职业水平高啊</blockquote>
+但不是职业的也很多一个角色玩到底的啊，你点开b站玩apex的，大部分就是一个恶灵用到底，包括隔壁彩虹的千寻，我不觉得这是个问题。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12667#       发表于 2020-6-9 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732091&amp;ptid=1938145" target="_blank">zaku11ku 发表于 2020-6-9 11:32</a>
+
+https://s.mxtv.jp/special19_20/detail.php?id=1109817
+
+你还是多劈点大亏吧</blockquote>
+彩虹牛逼！
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12668#       发表于 2020-6-9 11:36
+
+
+
+<blockquote>空集 发表于 2020-6-9 11:34
+点在中国的进出成功度真不是车烂的话题么......  
+
+欧美方面更不说了。</blockquote>
+那可以拿pdp看小白mc来
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 12669#       发表于 2020-6-9 11:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 12670#       发表于 2020-6-9 11:39
+
+
+
+<blockquote>erer 发表于 2020-6-9 11:35
+但不是职业的也很多一个角色玩到底的啊，你点开b站玩apex的，大部分就是一个恶灵用到底，包括隔壁彩虹的 ...</blockquote>
+小千搞过全角色吃鸡耐久了，她拿侵蚀补位的水准还在的，大亏debu和密客水平差恶灵一个等级
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 12671#       发表于 2020-6-9 11:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/114016mx7z217iepyi7s3m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200609124000.jpg</strong> (62.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 11:40 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/114016xrr22a6ez56m72va.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200609124004.jpg</strong> (73.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 11:40 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/114016zlutror09eirfcco.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200609123957.jpg</strong> (337.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 11:40 上传
+
+
+
+
+
+
+
+发点好图<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 12672#       发表于 2020-6-9 11:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731999&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-9 11:28</a>
+v圈这么点体量就开始闭关锁国，聪明的人都在给自己本体引流找退路了 ...</blockquote>
+那把自己本体炸了的算不算是短视啊。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12673#       发表于 2020-6-9 11:41
+
+
+
+
+大多数管人哪有那个精力精研游戏啊，都到那程度了还混这个圈子是傻吗？更何况这受众也不对啊，霓虹哪来的竞技氛围，上限很低啊，我指望阿夸多播点3A的要求都满足不了，害搁这单一游戏精通呢，算了叭
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 12674#       发表于 2020-6-9 11:43
+
+
+
+
+日本游戏圈本来就和全世界的游戏圈子天然隔离开了，指望日本的管人和管人观众对于欧美游戏有什么品味是不是搞错了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12675#       发表于 2020-6-9 11:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732204&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 11:41</a>
+
+大多数管人哪有那个精力精研游戏啊，都到那程度了还混这个圈子是傻吗？更何况这受众也不对啊，霓虹哪来的竞 ...</blockquote>
+夸皇重温尼亚你看吗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12676#       发表于 2020-6-9 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么你们对欧美游戏又有多少品味，要是真听了你们的话去播游戏，怕不是同接刷刷掉。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12677#       发表于 2020-6-9 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732242&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:44</a>
+夸皇重温尼亚你看吗</blockquote>
+整点新活儿，听她三句话不离去年几个游戏耳朵都磨出茧了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 12678#       发表于 2020-6-9 11:46
+
+
+
+
+本来想跟着抱怨两句，但想到祭丝啊百鬼众啊就觉得我也没啥好抱怨的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+来点船皇新图吧。水龙敬这大腿算抱上了吗。
+https://twitter.com/mizuryu/status/1270038480165277696?s=20
+https://twitter.com/hinausi/status/1269637833737699328?s=20
+https://twitter.com/amane_soraaa/status/1269239826093445123?s=20<img src="https://p.sda1.dev/0/890943ebe0f3386c29a4022226c87510/IMG_1ED266F86DF1D9A59E52CA5A3B792D6A.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 12679#       发表于 2020-6-9 11:47
+
+
+
+
+不过最近确实没啥热门大作<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 12680#       发表于 2020-6-9 11:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本这代的游戏品味早被扭蛋手游糟蹋了，指望管人观众能看懂复杂点的主机游戏？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12681#       发表于 2020-6-9 11:47
+
+
+
+
+现在新粉可以倍杀当初看阿夸尼尔的人吧。所以观众倒是没问题，我担心的是阿夸的演技，毕竟初见感动不需要演，但看过一次还要有同样的感动是不可能的，她的演技也撑不起非初见。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12682#       发表于 2020-6-9 11:47
+
+
+
+ 本帖最后由 JoelBirch 于 2020-6-9 11:50 编辑 
+
+不至于啊，主机新游第一时间播不会差的啊，这对品味也没啥要求，瞅一眼媒体评分的事儿，不要因为这半年特殊原因主机疲软就小看大作的流量啊
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 12683#       发表于 2020-6-9 11:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸皇没给你们播瓦罗兰我已经觉得她品味不错了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12684#       发表于 2020-6-9 11:48
+
+
+
+
+啊瓦洛兰不行，那是真的不行(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12685#       发表于 2020-6-9 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732300&amp;ptid=1938145" target="_blank">屑屑代沟尼亚 发表于 2020-6-9 11:47</a>
+夸皇没给你们播瓦罗兰我已经觉得她品味不错了</blockquote>
+确实，听到她说这游戏我才去了解了，还好，太烂了，即使是夸也看不上
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12686#       发表于 2020-6-9 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是因为瓦罗兰没得热度。我夸宝就是这么势利。
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 12687#       发表于 2020-6-9 11:49
+
+
+
+
+最近要发售大作有个tlou2，你们摸着良心说想看管人播这个吗…
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12688#       发表于 2020-6-9 11:49
+
+
+
+
+啊，去看了一眼，夸推动了。
+
+
+
+
+
+
+
+-----
+
+####  辻君  
+##### 12689#       发表于 2020-6-9 11:49
+
+
+
+
+下周就有2020年的goty tlou2了，下一款金游问题不大
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 12690#       发表于 2020-6-9 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732265&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-6-9 11:46</a>
+
+整点新活儿，听她三句话不离去年几个游戏耳朵都磨出茧了</blockquote>
+所以我才说夸皇现在不行了啊……
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 12691#       发表于 2020-6-9 11:50
+
+
+
+
+最后生还者延期了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 12692#       发表于 2020-6-9 11:50
+
+
+
+
+游戏力 游戏力
+
+v圈游戏力是说昨晚黄金时间全体被不在黄金时间的宫姨用500日元51个评价的老鼠模拟器吊着打的游戏力么
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12693#       发表于 2020-6-9 11:50
+
+
+
+
+湊阿夸2020轨迹复刻2019，目前复刻到活动休止，不过更抽象了，使用了去修行的烂借口。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12694#       发表于 2020-6-9 11:51
+
+
+
+
+啊？肥妹痴在你楼正式成为第三个ling人团体吗，玲人绫人，想法子给肥妹痴也安排一个呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12695#       发表于 2020-6-9 11:52
+
+
+
+
+最近的高分作品，我自己看管人玩FF7re播起来就挺……单调的，这游戏非hard又难吃瘪造节目效果，舔美少女和对演出初见哦哦哦也不可能撑到通关。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 12696#       发表于 2020-6-9 11:52
+
+
+
+
+yysy，游戏力和同接多少，sc高低并没有什么逻辑关系
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12697#       发表于 2020-6-9 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732350&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-9 11:49</a>
+所以我才说夸皇现在不行了啊……</blockquote>
+那你不粉了放得开，我一个游戏民当然还是希望她能整新东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 12698#       发表于 2020-6-9 11:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/09/115126e443218olo1cqlnn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200609115047.png</strong> (738.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-9 11:51 上传
+
+
+
+
+
+
+你们摸着柰子说瓦罗兰没热度
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过仅限热本的话倒是没错
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 12699#       发表于 2020-6-9 11:53
+
+
+
+
+最近当然有热门大作了，只不过违法企业是不能播的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12700#       发表于 2020-6-9 11:53
+
+
+
+
+对哦
+
+
+[https://b23.tv/BV1ux411T7Zs](https://b23.tv/BV1ux411T7Zs)
+
+那叫rin人吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 12701#       发表于 2020-6-9 11:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿夸要是实在整不出新游戏，不如内卷养噶吃吧，我愿意被养。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12702#       发表于 2020-6-9 11:53
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-9 11:52
+最近的高分作品，我自己看管人玩FF7re播起来就挺……单调的，这游戏非hard又难吃瘪造节目效果，舔美少女和 ...</blockquote>
+也可能因为我自己害怕剧透刚发售就请假光速打了一遍。
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12703#       发表于 2020-6-9 11:54
+
+
+
+ 本帖最后由 JoelBirch 于 2020-6-9 11:56 编辑 
+
+TLOU2如果播，我肯定会看的，实体盘要延迟几天，而且这游戏一代在国内是禁播的，小秦最近无数次暗示可能播不了了
+
+syl，而且，而且夸是播过一代的，说起来播这个也算是有理由，填坑啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 12704#       发表于 2020-6-9 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732421&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-9 11:53</a>
+阿夸要是实在整不出新游戏，不如内卷养噶吃吧，我愿意被养。</blockquote>
+你迟早变成女版阿叔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 12705#       发表于 2020-6-9 11:55
+
+
+
+
+这个地上波阿……，星街本月17号那个地上波live不是更带感，虽然还带了点的咩咩咩
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12706#       发表于 2020-6-9 11:55
+
+
+
+
+话说大亏玩过魔女之家吗？
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 12707#       发表于 2020-6-9 11:55
+
+
+
+
+tlou2这个游戏的风向我先打个问号<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，说实话感觉会暴死，真的追的上1代的水准吗。露露说超级期待2，但是我觉得这个lgbt题材emmmm
+sly叶师只玩弹跳小子这个脑瘫角色真的势力吗<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">他自己都觉得菜，可能这就是传家宝的力量。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 12708#       发表于 2020-6-9 11:59
+
+
+
+
+叶简直是自己给自己加难度，当年的机器人多6
+好像是逆反心理，就跟喜欢赫姆洛克一样，大家都说菜我就要用
+白给小子是真的白给
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12709#       发表于 2020-6-9 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732465&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-9 11:55</a>
+
+话说大亏玩过魔女之家吗？</blockquote>
+搜了下没有，恐怖游戏+解密游戏，估计是不感兴趣吧。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12710#       发表于 2020-6-9 12:00
+
+
+
+
+那可惜了。我超想看大亏玩魔女之家和史丹利的寓言的。游戏也有一定知名度
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 12711#       发表于 2020-6-9 12:00
+
+
+
+
+管人的游戏品味其实很微妙
+
+还是要看有没有直播效果
+
+阿龙之前玩传送门同接底，不过我在想玩双人会不会好一点
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 12712#       发表于 2020-6-9 12:01
+
+
+
+
+居然有人想让一个五岁弱智去玩解密游戏，太残忍了吧
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 12713#       发表于 2020-6-9 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732437&amp;ptid=1938145" target="_blank">JoelBirch 发表于 2020-06-09 11:54:18</a>
+TLOU2如果播，我肯定会看的，实体盘要延迟几天，而且这游戏一代在国内是禁播的，小秦最近无数次暗示可能 ...</blockquote>只要播的够快，禁播就追不上.....误会啊
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 12714#       发表于 2020-6-9 12:01
+
+
+
+
+tlou2怎么就今年goty了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看不起2077吗？
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12715#       发表于 2020-6-9 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732551&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-9 12:00</a>
+那可惜了。我超想看大亏玩魔女之家和史丹利的寓言的。游戏也有一定知名度 ...</blockquote>
+草，这个就算了叭，史丹利这种近乎于游戏界批判与自我批判的东西与游戏本身已经没关系了，随便找个有阅历杂谈力强的都比她好
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 12716#       发表于 2020-6-9 12:03
+
+
+
+
+你倒不如说阿龙现在玩啥同接高
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12717#       发表于 2020-6-9 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732569&amp;ptid=1938145" target="_blank">cckuku 发表于 2020-6-9 12:01</a>
+tlou2怎么就今年goty了看不起2077吗？</blockquote>
+2077开放世界，拉胯的机会比TLOU2大多了，TGA现在不待见开放世界，而且蠢驴不会创新
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 12718#       发表于 2020-6-9 12:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732590&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-9 12:03</a>
+
+你倒不如说阿龙现在玩啥同接高</blockquote>
+模拟人生（笑
+
+
+
+
+
+
+
+-----
+
+####  JoelBirch  
+##### 12719#       发表于 2020-6-9 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732568&amp;ptid=1938145" target="_blank">blattle 发表于 2020-6-9 12:01</a>
+只要播的够快，禁播就追不上.....误会啊
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+DOOM GUY有话说，生化3靠着流程短才躲过一劫
+
+而且TLOU2和LGBT实际没啥关系，这个设定一直都有，虽然剧情拉胯预定但是从目前整体试玩评测还是靠谱的，过两天解锁就知道是骡子是马了
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 12720#       发表于 2020-6-9 12:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732590&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-9 12:03</a>
+
+你倒不如说阿龙现在玩啥同接高</blockquote>
+事实证明除了像宫皇那样的天才外，大部分管人粉都是想看管人贴贴和受苦中的这两个选一个
+
+
+小岛秀夫可能可以除外
+
+
+
+
+
+                          
