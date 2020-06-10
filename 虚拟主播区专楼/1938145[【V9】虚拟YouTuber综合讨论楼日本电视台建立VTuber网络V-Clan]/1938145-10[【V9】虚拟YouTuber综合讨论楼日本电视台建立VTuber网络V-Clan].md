@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 00:10** 
+> ## **本文件最后更新于2020-06-11 02:07** 
 
 
 
@@ -65,7 +65,7 @@ mc不能播是个什么事？</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47741569&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-9 23:00</a>
 
 芙宝赶紧给35出些企划的主意吧，比如拉个联动拯救没游戏可播的木口众生 ...</blockquote>
-<img src="https://pbs.twimg.com/media/EaExAa2VAAUe6xZ?format=jpg&amp;name=large" id="aimg_LXJXw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaExAa2VAAUe6xZ?format=jpg&amp;name=large" id="aimg_PTbf7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -9812,8 +9812,8 @@ Kira的一周年纪念直播被ban了三次，笑死
 
 
 可爱，新衣装喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaHpmCgVAAAfl17?format=jpg&amp;name=4096x4096" id="aimg_WeJZ1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/EZ6MmC3U8AAlZVb?format=png&amp;name=900x900" height="1135" id="aimg_P06VS" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EaHpmCgVAAAfl17?format=jpg&amp;name=4096x4096" id="aimg_Vf069" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EZ6MmC3U8AAlZVb?format=png&amp;name=900x900" height="1135" id="aimg_U77TN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/_ShinH/status/1270553433158774784](https://twitter.com/_ShinH/status/1270553433158774784)
 [https://twitter.com/shiratamacaron/status/1269607449712930816](https://twitter.com/shiratamacaron/status/1269607449712930816)
 
@@ -20492,7 +20492,7 @@ mrr那个年龄到底还是没定啊
 
 炼熊猫 （✔）
 笹木咲３周年記念衣装
-<img src="https://pbs.twimg.com/media/EaFfJQ6VAAEJISz?format=jpg&amp;name=large" height="1131" id="aimg_D16np" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EaFfJQ6VAAEJISz?format=jpg&amp;name=large" height="1131" id="aimg_vF01x" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/lq_saku/status/1270401187360075776](https://twitter.com/lq_saku/status/1270401187360075776)
 
 
@@ -28827,6 +28827,149 @@ T台炸 那会人少
 说真的，如果我的推被人避讳成这样我心态早爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 黑宝真是仙人。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14993#       发表于 2020-6-11 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756651&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-11 00:09</a>
+说真的，如果我的推被人避讳成这样我心态早爆炸了
+
+黑宝真是仙人。</blockquote>
+额，其实黑宝的推一弦跟这次管人粉丝发疯中没啥关系吧，一弦不怎么跟夏色吹雪联动的
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 14994#       发表于 2020-6-11 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756651&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-11 00:09</a>
+说真的，如果我的推被人避讳成这样我心态早爆炸了
+
+黑宝真是仙人。</blockquote>
+不过老实说黑宝的心头好一弦并不会和女团联动。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 14995#       发表于 2020-6-11 00:13
+
+
+
+<blockquote>wsotaku 发表于 2020-6-11 00:05
+你也喜欢看star的话就继续看吧……</blockquote>
+star是什么？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 14996#       发表于 2020-6-11 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756694&amp;ptid=1938145" target="_blank">逃离学校 发表于 2020-6-11 00:13</a>
+
+star是什么？</blockquote>
+holo男团，目前是夏吹的主要喂饭对象。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 14997#       发表于 2020-6-11 00:15
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-11 00:16 编辑 
+
+但夏吹的演技确实不错，无论是整活还是卖萌，不然怎么能吸引这么多的一般通过
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 14998#       发表于 2020-6-11 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756694&amp;ptid=1938145" target="_blank">逃离学校 发表于 2020-6-11 00:13</a>
+star是什么？</blockquote>
+holostars,是hololive的并行企划，里面全是男v
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 14999#       发表于 2020-6-11 00:24
+
+
+
+
+船皇被隐藏也能1w3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 15000#       发表于 2020-6-11 00:27
+
+
+
+
+v综杏生活浓度太高，只能等杏星粉多起来顺劈才能少一点
 
 
 
