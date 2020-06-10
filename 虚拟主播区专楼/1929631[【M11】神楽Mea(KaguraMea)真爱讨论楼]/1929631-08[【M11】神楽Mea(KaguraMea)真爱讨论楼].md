@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-10 04:02** 
+> ## **本文件最后更新于2020-06-10 10:02** 
 
 
 
@@ -20999,4 +20999,525 @@ syl，今天不会是深夜播吧<img src="https://static.saraba1st.com/image/sm
 
 
 
-         
+
+
+-----
+
+####  路人子  
+##### 11705#       发表于 2020-6-10 05:34
+
+
+
+
+原来摸了，也行吧，马上一大堆安排就都来了，歇会也是好的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11706#       发表于 2020-6-10 07:45
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-10 07:51 编辑 
+
+深夜突击（大雾）
+久违的早上突击，起床了起床了
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 11707#       发表于 2020-6-10 07:50
+
+
+
+
+晨勃
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11708#       发表于 2020-6-10 07:52
+
+
+
+
+啊，早上是晚上，晚上是早上
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11709#       发表于 2020-6-10 07:55
+
+
+
+
+和白雪要干嘛。
+
+
+
+
+
+
+
+-----
+
+####  nopan咩咩  
+##### 11710#       发表于 2020-6-10 08:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">咩咩快乐完以后还记得我们，感动
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11711#       发表于 2020-6-10 08:04
+
+
+
+
+哪来的憨批。
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11712#       发表于 2020-6-10 08:15
+
+
+
+
+不要不要不要在论坛喷咩咩。要喷去404喷啊，我最喜欢咩虐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11713#       发表于 2020-6-10 08:39
+
+
+
+
+这鸽王，有说她昨晚干啥去了吗
+
+
+
+
+
+
+
+-----
+
+####  nopan咩咩  
+##### 11714#       发表于 2020-6-10 08:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744067&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-10 08:39</a>
+这鸽王，有说她昨晚干啥去了吗</blockquote>
+想知道就去问呀<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">加油勇士
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11715#       发表于 2020-6-10 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47744067&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-10 08:39</a>
+这鸽王，有说她昨晚干啥去了吗</blockquote>
+口腔溃疡w
+
+
+
+
+
+
+
+-----
+
+####  nopan咩咩  
+##### 11716#       发表于 2020-6-10 08:53
+
+
+
+
+所以昨晚一直用强烈的口腔刺激来治疗口腔溃疡，然后今早治好了都不休息一下就来给我们直播<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">咩咩为什么这么好
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11717#       发表于 2020-6-10 08:59
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-10 09:02 编辑 
+
+列你麻讨厌的观众
+指示厨
+恶心死宅
+指责其配信时间的（里面有我）
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 11718#       发表于 2020-6-10 09:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">中间有一段杂谈的语气，和船长的味道也太像了点
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11719#       发表于 2020-6-10 09:10
+
+
+
+
+咩姐早上播无所谓，但是预告晚上要播早上补。。。今天3点睡8点起，感觉要猝死了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11720#       发表于 2020-6-10 09:15
+
+
+
+
+五小时精致睡眠，够了够了（
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 11721#       发表于 2020-6-10 09:17
+
+
+
+
+只能看，不能听
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11722#       发表于 2020-6-10 09:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">早上开会，耳机都挂不了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11723#       发表于 2020-6-10 09:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+不行了受不住了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11724#       发表于 2020-6-10 09:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">挂上耳机听咩聊天了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl楼上的老哥是不是没屏蔽小博鱼 屏蔽掉好了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11725#       发表于 2020-6-10 09:33
+
+
+
+
+他是听snp听吐了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11726#       发表于 2020-6-10 09:40
+
+
+
+
+瓦洛兰？
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11727#       发表于 2020-6-10 09:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那还好，现在话题这么怪我还是听得下去
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11728#       发表于 2020-6-10 09:50
+
+
+
+ 本帖最后由 A2014720 于 2020-6-10 09:53 编辑 
+
+要的就是个氛围
+
+在，看看收益化？
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11729#       发表于 2020-6-10 09:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这dt样想当AO导演是不是搞错了什么。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，你又来，甚至把自己也加进去了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11730#       发表于 2020-6-10 09:55
+
+
+
+
+大早上听不下去了，静音跳车，这聊的什么玩意<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 11731#       发表于 2020-6-10 09:56
+
+
+
+
+又欠揍了（
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11732#       发表于 2020-6-10 09:57
+
+
+
+
+联动前这么嚣张不怕到时被人重拳出击<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11733#       发表于 2020-6-10 09:57
+
+
+
+
+不是 美乐蒂是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11734#       发表于 2020-6-10 09:58
+
+
+
+
+这档还能留吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11735#       发表于 2020-6-10 10:00
+
+
+
+
+虚拟罗志祥
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 11736#       发表于 2020-6-10 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐脑补的这个和ptr组长美乐蒂的4Pfanart有在画了吗（
+
+
+
+
+
+        
