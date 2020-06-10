@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 02:07** 
+> ## **本文件最后更新于2020-06-11 04:05** 
 
 
 
@@ -924,4 +924,326 @@ kemt减少营业后，我有个从18年开始推kemt的朋友id已经改成其�
 
 
 
-                                                
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15048#       发表于 2020-6-11 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757488&amp;ptid=1938145" target="_blank">KyotoAnimation 发表于 2020-6-11 02:07</a>
+
+2020年怎么还有车夏吹的，杏仁为了增加杏浓度已经无所不用其极了吗
+
+我还以为莫鲁喵为你鼓掌.gif出来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">给GALGAME的女孩配音的CV长啥样会影响你对游戏里角色的感想么
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15049#       发表于 2020-6-11 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757488&amp;ptid=1938145" target="_blank">KyotoAnimation 发表于 2020-6-11 02:07</a>
+
+2020年怎么还有车夏吹的，杏仁为了增加杏浓度已经无所不用其极了吗
+
+我还以为莫鲁喵为你鼓掌.gif出来 ...</blockquote>
+鼓掌怎么了怎么了？<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+我小肥希是那种只看脸的人吗？
+
+啊……搞不好真是
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 15050#       发表于 2020-6-11 02:17
+
+
+
+
+长相（和体重）是连最v的白姨都不能逃避的最现实的问题
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15051#       发表于 2020-6-11 02:29
+
+
+
+
+ascc摸鱼一天，不知道是不是因为龙宝和小天使约了4k日元的午饭，还有最土穿戴对决夏季篇。
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 15052#       发表于 2020-6-11 02:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点进来看到夏色吹雪 我谔谔
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 15053#       发表于 2020-6-11 02:44
+
+
+
+
+肥妹又在叫祭丝不要用大号关注她干，淦又得建小号了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15054#       发表于 2020-6-11 02:47
+
+
+
+
+等下这个逻辑没搞懂，是夏色祭叫祭丝不要用大号关注夏色祭还是佐藤希叫祭丝不要用大号关注佐藤希？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 15055#       发表于 2020-6-11 02:48
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-11 02:47
+等下这个逻辑没搞懂，是夏色祭叫祭丝不要用大号关注夏色祭还是佐藤希叫祭丝不要用大号关注佐藤希？ ...</blockquote>
+当然后者啦，前者怎么可能
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 15056#       发表于 2020-6-11 02:50
+
+
+
+
+大号（关注了夏色祭的号）
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 15057#       发表于 2020-6-11 02:51
+
+
+
+<blockquote>辉耀还差3800 发表于 2020-6-11 02:50
+大号（关注了夏色祭的号）</blockquote>
+准确是ID带有夏色祭粉丝特征的号，比如matsari呀红灯笼呀好烦
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15058#       发表于 2020-6-11 02:59
+
+
+
+
+今天35玩壶芙宝是不是没出来。据说明天35要耐久壶，希望壶没事。
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 15059#       发表于 2020-6-11 03:04
+
+
+
+
+试了一下youtube小号直接共用大号Google账号的信用卡，大号上了会员小号就上不了会员了同时也看不到会员内容了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15060#       发表于 2020-6-11 03:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757541&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-11 02:29</a>
+
+ascc摸鱼一天，不知道是不是因为龙宝和小天使约了4k日元的午饭，还有最土穿戴对决夏季篇。 ...</blockquote>
+之前就说了，没什么好玩的梗就鸽，现在每星期差不多都鸽一天，实质上四休三<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15061#       发表于 2020-6-11 03:12
+
+
+
+
+bsyl 还好不是祭丝，这也太麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15062#       发表于 2020-6-11 03:34
+
+
+
+
+亚美咯
+
+
+
+
+
+
+-zue37Q5-d153KjT1kSak-4k.png
+(20.08 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-11 03:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/033444pq7h3eahcye43jgy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15063#       发表于 2020-6-11 03:38
+
+
+
+
+小肥希这真的是越来越飘了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+要我说她这就是傻，任性，治不好的。接受不了真的建议算了算了。
+
+我最近感觉有一点能够理解郡gachi的心情，我觉得你们都该这样.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 15064#       发表于 2020-6-11 03:52
+
+
+
+
+还是推姨安稳（白姨论外）
+
+
+
+
+
+                                               
