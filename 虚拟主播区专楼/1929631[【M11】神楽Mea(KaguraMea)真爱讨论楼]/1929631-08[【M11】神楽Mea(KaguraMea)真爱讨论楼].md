@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-10 12:04** 
+> ## **本文件最后更新于2020-06-10 22:03** 
 
 
 
@@ -22037,4 +22037,917 @@ soga 多谢回答
 
 
 
-       
+
+
+-----
+
+####  A2014720  
+##### 11767#       发表于 2020-6-10 12:11
+
+
+
+
+隔壁看到如月noeb站都小闪电了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+mea排面再评价
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 11768#       发表于 2020-6-10 12:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">意思是小紫b站收益化比404还快？
+
+
+
+
+
+
+
+-----
+
+####  sunisover2000  
+##### 11769#       发表于 2020-6-10 12:32
+
+
+
+
+小紫404太摸了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11770#       发表于 2020-6-10 12:35
+
+
+
+
+下了下了，晚上可能有（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11771#       发表于 2020-6-10 12:37
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-10 12:38 编辑 
+
+[可能有]和[没有]的用法在她那里可能是对调的
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11772#       发表于 2020-6-10 12:42
+
+
+
+
+参考之前那个千层饼jk语，其实有很多都是对调的（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11773#       发表于 2020-6-10 12:47
+
+
+
+
+N e w s p e a k
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11774#       发表于 2020-6-10 13:21
+
+
+
+
+不懂jk
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11775#       发表于 2020-6-10 13:26
+
+
+
+
+老女人还想当jk<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 11776#       发表于 2020-6-10 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47747032&amp;ptid=1929631" target="_blank">llconforever 发表于 2020-6-10 12:30</a>
+
+意思是小紫b站收益化比404还快？</blockquote>
+mea姐也是吧
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11777#       发表于 2020-6-10 13:42
+
+
+
+
+千层饼jk小麻，熟读并背诵，悟了就不用熬夜等直播了
+
+
+
+
+
+
+yhm.jpg
+(450.44 KB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-6-10 13:42 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/10/134225mnln7izsn4ln5f06.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 11778#       发表于 2020-6-10 13:48
+
+
+
+
+还没播的小闪电
+
+这场面我真没见过
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 11779#       发表于 2020-6-10 14:49
+
+
+
+
+小麻真的好无情啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+等了一晚上昏睡过去，现在在补录播
+小麻是无情的生物
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11780#       发表于 2020-6-10 15:14
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/760dd8bd14badc43557369c49d248f02/IMG_B7BA5F215DEFBD6A46AC4BFA15A1344F.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/adaebdd2982b97ef8d8c93f2bd09e86a/IMG_1A2BA88F3F4038A7442AA322BA2ADFC4.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11781#       发表于 2020-6-10 16:11
+
+
+
+
+原来还有和白雪的联动
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11782#       发表于 2020-6-10 19:47
+
+
+
+
+虽说是和深雪的联动，但我还是想看她跟白雪巴的联动(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11783#       发表于 2020-6-10 19:50
+
+
+
+
+补了下录像，早上杂谈居然都有英文同传了，有点厉害（不过与之而来的就是英文版聊和英文sc
+
+
+下面这个就是一个englisher发了“mea你怎么看待海外观众”的英文sc但mea没理之后谷歌翻译成日文再发送的时候mea的一段反应（englisher: she doesn't give a f lol
+[https://www.bilibili.com/video/BV1z7411A7pj?p=2](https://www.bilibili.com/video/BV1z7411A7pj?p=2)
+
+72:16
+
+
+不知道英翻组会不会看到这一段，剪出来的话应该可以防止类verbae事件发生（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11784#       发表于 2020-6-10 19:51
+
+
+
+
+她对sc的反应好像一直不大来着?还是对特定内容有反应?
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11785#       发表于 2020-6-10 19:59
+
+
+
+
+回去看了眼录像，这大长段英文发两三条就霸屏了，你咩的弹幕姬急需改进字体格式<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+sc一般都是说一句お金ありがとう吧，或者挑キモ言论出来公开处刑的，倒是对线评论不管是不是sc都能反应极快
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11786#       发表于 2020-6-10 20:01
+
+
+
+
+话说看repo今天晚上是不是还有一动啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11787#       发表于 2020-6-10 20:02
+
+
+
+
+不晓得有无鬼佬石油王救救你咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+         
+
+syl，补了如月的阿萨姆人这也太顶了，我已经不敢想象小麻做这个东西是什么腥风血雨了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11788#       发表于 2020-6-10 20:03
+
+
+
+ 本帖最后由 路人子 于 2020-6-10 20:16 编辑 
+
+晚上是“也许”有
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">丢人听错了，mea和阿夸出去玩没说具体时间，无法判断是不是这两天的事
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11789#       发表于 2020-6-10 20:05
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-10 20:19 编辑 
+
+所以这两天偷着乐大概是养肉猪的快乐吧，五月病总算过去了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11790#       发表于 2020-6-10 20:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好，aqua酱最可爱了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11791#       发表于 2020-6-10 20:06
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-10 20:20 编辑 
+
+不是这几天吧，直播时候说的不是两年前吗...
+
+之后说了没看那漫画看到完结，自己看到了10多卷，还是两年前的balabala的
+
+总之应该不是这几天，除非她是时间管理大师
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11792#       发表于 2020-6-10 20:07
+
+
+
+
+哈啥玩意儿?给咖啡厅积攒素材吗?呜呜呜我的犬山兔姨兔鞠伊东女仆咖啡厅(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 11793#       发表于 2020-6-10 20:08
+
+
+
+
+贴贴！贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11794#       发表于 2020-6-10 20:08
+
+
+
+
+只是有这么回事没说时间吧，这几天不太可能
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11795#       发表于 2020-6-10 20:11
+
+
+
+
+确实，但愿是假的(ಥ_ಥ)。咩咩不要乱跑啊，日本还很危险
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 11796#       发表于 2020-6-10 20:12
+
+
+
+
+这几天出门？别吓我
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11797#       发表于 2020-6-10 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实没说具体时间，编辑了编辑了，散了散了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11798#       发表于 2020-6-10 20:15
+
+
+
+
+听说大亏不是一声不吭在憋复活甲么？说不定俩人正在小麻家恰火锅呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+        
+
+等一个限定线下歌回联动好吧，我又是贴贴人力
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 11799#       发表于 2020-6-10 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看了一眼，方舟指令五月份的流水不知道有没有100w人民币，真的是凉的不行
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 11800#       发表于 2020-6-10 20:24
+
+
+
+
+有贴贴的消息？十年暗黑贴贴人不请自来，有无懂哥指个路让我也重温一下六字母光明的未来
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 11801#       发表于 2020-6-10 20:26
+
+
+
+ 本帖最后由 59268416 于 2020-6-10 20:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753699&amp;ptid=1929631" target="_blank">上坂蓮華 发表于 2020-6-10 20:22</a>
+
+看了一眼，方舟指令五月份的流水不知道有没有100w人民币，真的是凉的不行 ...</blockquote>
+国内只有不到50w人民币<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">，加上国外差不多100w。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11802#       发表于 2020-6-10 20:29
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-10 20:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753144&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-10 19:50</a>
+补了下录像，早上杂谈居然都有英文同传了，有点厉害（不过与之而来的就是英文版聊和英文sc
+
+
+下面这个就是一 ...</blockquote>
+刚搜推特就看到这么一个，不过看了下好像和你说的不是同一段
+[https://twitter.com/DB_Den1203/status/1270689817202851840](https://twitter.com/DB_Den1203/status/1270689817202851840)
+
+草，看错了，好像意思都不一样，不过和外国人互动这么多的吗
+<img src="https://p.sda1.dev/0/a9fbc225e498fe93a908223a3fd71854/IMG_5E96E9176C86FF69E425C6DB4FEF96DD.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11803#       发表于 2020-6-10 20:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753805&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-10 20:29</a>
+
+刚搜推特就看到这么一个，不过看了下好像和你说的不是同一段
+
+https://twitter.com/DB_Den1203/status/127 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没错，我发的是这一段话题的开始，差不多7分钟，推特上的这一段是其中的一部分
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11804#       发表于 2020-6-10 20:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753882&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-10 20:33</a>
+没错，我发的是这一段话题的开始，差不多7分钟，推特上的这一段是其中的一部分
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个see her reaction太草了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 11805#       发表于 2020-6-10 20:37
+
+
+
+
+探头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11806#       发表于 2020-6-10 20:38
+
+
+
+
+另外有刚才看绿熊的吗，看监控器冒出这么两句评论，是mea出现过吗
+<img src="https://p.sda1.dev/0/f1beefc989c2cdb7299f2d331a4b4c3f/30e465893cb65b82.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 11807#       发表于 2020-6-10 20:44
+
+
+
+
+估计是绿熊提到建筑王了呗
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11808#       发表于 2020-6-10 20:46
+
+
+
+ 本帖最后由 路人子 于 2020-6-10 20:48 编辑 
+
+别探头了，无事发生（）
+
+
+自己传谣自己辟，下面是mea说的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+想去网咖啊
+
+在网咖第一次读的漫画叫《P和JK》
+
+《P和JK》最初是在网咖读的，觉得很有趣啊
+
+是第一次去网咖的时候吗？还是第二次的时候来着？记不太清了
+
+朋友一起去的时候推荐的
+
+我问“哪个漫画好看”
+
+“看看《P和JK》”（模仿朋友说话）
+
+然后就看了《P和JK》
+
+诶？我果然模仿的很像吗？
+
+“mea酱，去看《P和JK》，《P和JK》挺好的”（模仿朋友说话）
+
+[https://www.bilibili.com/video/BV1z7411A7pj](https://www.bilibili.com/video/BV1z7411A7pj)
+
+101:15
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11809#       发表于 2020-6-10 20:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47753962&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-10 20:38</a>
+另外有刚才看绿熊的吗，看监控器冒出这么两句评论，是mea出现过吗</blockquote>
+相关事情可能是早上突击兰熊出现在咩评论区了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11810#       发表于 2020-6-10 21:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47754102&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-10 20:46</a>
+别探头了，无事发生（）
+
+
+自己传谣自己辟，下面是mea说的</blockquote>
+其实我更在意的是去网咖看漫画，去书店看漫画我还能理解，去网咖看漫画是什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl绿熊那评论说的好像mea去mc了一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 11811#       发表于 2020-6-10 21:14
+
+
+
+
+日本的网咖和漫咖有一定融合吧
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 11812#       发表于 2020-6-10 21:17
+
+
+
+
+日本网咖就是一个单间，可以坐可以躺，有饮料有零食有空调嘛，B站上可以搜一下看看。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11813#       发表于 2020-6-10 21:19
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-10 21:21 编辑 
+
+环境好，有吃有喝甚至有淋浴，可以当临时住宿点用的
+她不是不喜欢朋友来家里直接坐床上么，估计想都能躺着看漫画吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11814#       发表于 2020-6-10 21:27
+
+
+
+
+看来是我对网咖的理解太狭隘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11815#       发表于 2020-6-10 21:55
+
+
+
+
+呜呜呜今天晚上难道还是咕咕咕吗(ಥ_ಥ)
+
+
+
+
+
+      
