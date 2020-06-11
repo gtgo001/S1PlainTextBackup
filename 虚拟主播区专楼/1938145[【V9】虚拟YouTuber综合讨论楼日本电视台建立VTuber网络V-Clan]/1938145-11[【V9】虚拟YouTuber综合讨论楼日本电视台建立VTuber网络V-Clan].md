@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 00:08** 
+> ## **本文件最后更新于2020-06-12 02:08** 
 
 
 
@@ -18835,7 +18835,7 @@ SAN一下掉了多少。。。？</blockquote>临时疯狂 5以上
 
 
 
-<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_U6WDL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_SpepW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 那个人要播了
 
@@ -23414,4 +23414,4750 @@ v综车狐狸不是随便车的吗，怎么会车不到。</blockquote>
 
 
 
-          
+
+
+-----
+
+####  yuandi0120  
+##### 16182#       发表于 2020-6-12 00:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770186&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-12 00:07</a>
+
+什么能烦到老狐狸  我觉得是龙皇的holohouse做大实质上取代hololive的那天她想加入却被告之加入后就 ...</blockquote>
+不，是加入后就不准喝奶茶了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16183#       发表于 2020-6-12 00:09
+
+
+
+
+大概是查出二型糖尿病吧
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 16184#       发表于 2020-6-12 00:09
+
+
+
+
+真正影响狐狸的怕不是订阅被狗皇食杀
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 16185#       发表于 2020-6-12 00:10
+
+
+
+
+好开
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16186#       发表于 2020-6-12 00:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">v综最近2000化严重，先是来了个本菜，然后又有个金鱼佬，接着是祭gachi，管人观众的末路都是2000吗？
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16187#       发表于 2020-6-12 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770188&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 00:07</a>
+
+你们去推特下面把马自立烦到毕业老狐狸大概会比较苦恼吧，快去，别在这发疯了。 ...</blockquote>
+你认真的吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+真有这天白姨也不会在乎的呀，你看来你不懂她铁石心肠哦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 16188#       发表于 2020-6-12 00:12
+
+
+
+
+还有一种末路是0人（不特指）
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 16189#       发表于 2020-6-12 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770206&amp;ptid=1938145" target="_blank">nevp 发表于 2020-6-12 00:09</a>
+
+真正影响狐狸的怕不是订阅被狗皇食杀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">订阅这种起起伏伏狐皇都看多了，你看她国区第一百万被夺了和管子四十万超兔皇被反复赛跑都和没事人一样，要我说肯定是不能播扭曲仙境啦！
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16190#       发表于 2020-6-12 00:12
+
+
+
+
+建议向油管举报狐狸买粉。
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 16191#       发表于 2020-6-12 00:14
+
+
+
+
+金鱼佬来的不是比本菜早吗
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16192#       发表于 2020-6-12 00:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们自我臆想太多了，谁也猜不透屏幕里的女人的，更何况你连她的真实表情都看不到。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16193#       发表于 2020-6-12 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770258&amp;ptid=1938145" target="_blank">榊城翼 发表于 2020-6-12 00:14</a>
+
+金鱼佬来的不是比本菜早吗
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">他是来得早，但以前没那么疯的，现在万物转狐皇，太弱智了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16194#       发表于 2020-6-12 00:15
+
+
+
+
+金鱼佬至少不会发疯，或者说疯的没那么难看。有智商的巨魔总比没脑子的自怨自艾复读机强太多了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16195#       发表于 2020-6-12 00:15
+
+
+
+
+还有楼宝与其抱怨你楼对🌽人不友好不如发几个SC让🌽人改一下饮食习惯，我看她推上晒得那堆吃的精神上都要得糖尿病了。
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 16196#       发表于 2020-6-12 00:16
+
+
+
+
+holo公告b博下又是群魔乱舞
+我本来以为这次滑跪这么快有帮助呢。。。
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16197#       发表于 2020-6-12 00:16
+
+
+
+ 本帖最后由 ひびき 于 2020-6-12 00:17 编辑 
+
+算了，为了让希浓度不至于太高，以后发病了就车车狐皇和龙皇的路线之争  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+syl，我之前的两大预判，龙皇一定能拿出下一件王财，木口大别墅一定会执行，居然都实现了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16198#       发表于 2020-6-12 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770240&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-12 00:12</a>
+
+订阅这种起起伏伏狐皇都看多了，你看她国区第一百万被夺了和管子四十万超兔皇被反复赛跑都和没事 ...</blockquote>
+你确定狐皇对国区第一百万被夺了没有梁木？我看她眼里森林都快长出来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16199#       发表于 2020-6-12 00:17
+
+
+
+<blockquote>与天争锋_LZ 发表于 2020-6-12 00:16
+holo公告b博下又是群魔乱舞
+
+我本来以为这次滑跪这么快有帮助呢。。。
+</blockquote>
+流程还是要走的，不过总比被其他人先发出来好。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 16200#       发表于 2020-6-12 00:17
+
+
+
+<blockquote>空虚澄璃色 发表于 2020-6-12 00:12
+订阅这种起起伏伏狐皇都看多了，你看她国区第一百万被夺了和管子四十万超兔皇被反复赛跑都和没事 ...</blockquote>
+国区她根本不放心上，食杀兔头赛跑板上钉钉的事，为什么要急。
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 16201#       发表于 2020-6-12 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770240&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-12 00:12</a>
+
+订阅这种起起伏伏狐皇都看多了，你看她国区第一百万被夺了和管子四十万超兔皇被反复赛跑都和没事 ...</blockquote>
+阿B这边暂且不提，油管狐狸同接SC被同社后辈爆了，唯一还能拿出手的也就是订阅了，这要再被超了大家庭粉怕不是该替狐狸抱怨了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16202#       发表于 2020-6-12 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770275&amp;ptid=1938145" target="_blank">与天争锋_LZ 发表于 2020-6-12 00:16</a>
+
+holo公告b博下又是群魔乱舞
+
+我本来以为这次滑跪这么快有帮助呢。。。</blockquote>
+别忘了隔壁有个粪坑啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16203#       发表于 2020-6-12 00:19
+
+
+
+
+“回到大家庭”
+
+
+
+
+
+
+mel.png
+(41.81 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 00:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/001906etzh5z85fh5zw385.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 16204#       发表于 2020-6-12 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770297&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-12 00:17</a>
+别忘了隔壁有个粪坑啊</blockquote>
+隔壁推上可是没发，应该是holocn运营发的
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16205#       发表于 2020-6-12 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770294&amp;ptid=1938145" target="_blank">nevp 发表于 2020-6-12 00:17</a>
+
+阿B这边暂且不提，油管狐狸同接SC被同社后辈爆了，唯一还能拿出手的也就是订阅了，这要再被超了大家庭粉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">除了主推狐皇的真有人会为这种事抱怨吗，就算是箱推也有主推的，狐皇现在有多少核心粉看sc不就懂了
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 16206#       发表于 2020-6-12 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770240&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-12 00:12</a>
+
+订阅这种起起伏伏狐皇都看多了，你看她国区第一百万被夺了和管子四十万超兔皇被反复赛跑都和没事 ...</blockquote>
+真的吗，当初吃油管炮卡10万的时候，白上桑那股隐隐的怨气都快透过屏幕了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16207#       发表于 2020-6-12 00:21
+
+
+
+<blockquote>连清人 发表于 2020-6-12 00:19
+隔壁推上可是没发，应该是holocn运营发的
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.2 ...</blockquote>
+问答是在巧可频道吧，看了下删档了好像，也可能是去处理了。
+
+
+
+
+
+
+
+-----
+
+####  puppenspieler  
+##### 16208#       发表于 2020-6-12 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770000&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-06-11 23:52:40</a>
+15里拉才15块多RMB，确实省，这个是对标500日元档的？</blockquote>具体价格我自己没换过区不太清楚，不过因为去年里拉大贬值的关系里拉一下就实惠了很多。我本来以为油管15里拉相当于300日元差不多了不过你这么说可能更离谱一点……
+顺便本来的里拉兑人民币应该要1:1.25左右……
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|1新土耳其里拉=1.0338人民币|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16209#       发表于 2020-6-12 00:21
+
+
+
+ 本帖最后由 ひびき 于 2020-6-12 00:23 编辑 
+
+龙皇ark给大家庭带来的是实实在在的同接暴涨，holohouse带来的是实实在在的金源，就这样人家才那点订阅呢
+
+
+狐皇同等水平的贡献也只有碧蓝联动了吧，可是联动是木口跟悠星谈的，狐皇起的作用不会是决定性的，而且联动表情做的不到位还让碧蓝玩家长了梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  puppenspieler  
+##### 16210#       发表于 2020-6-12 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47769987&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-06-11 23:51:07</a>
+我只有靠菲律宾梯子打比索最便宜，哪里搞得到土耳其梯子呀</blockquote>啊，我也只是提一句，我自己并没有土鸡的梯子（
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 16211#       发表于 2020-6-12 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770333&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 00:21</a>
+问答是在巧可频道吧，看了下删档了好像，也可能是去处理了。</blockquote>
+我看了hololive跟cover的推，道歉推文没发。
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16212#       发表于 2020-6-12 00:23
+
+
+
+
+ARK什么时候啊、ARK、我也快要疯了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 16213#       发表于 2020-6-12 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770328&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-12 00:20</a>
+
+除了主推狐皇的真有人会为这种事抱怨吗，就算是箱推也有主推的，狐皇现在有多少核心粉看sc不就懂 ...</blockquote>
+草，下意识把狐皇粉等同于大家庭粉了，是我有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16214#       发表于 2020-6-12 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770350&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-12 00:22</a>
+
+我看了hololive跟cover的推，道歉推文没发。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+别的不说，你在推上说藏是中国的怕不是立马封号哦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16215#       发表于 2020-6-12 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770350&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-12 00:22</a>
+
+我看了hololive跟cover的推，道歉推文没发。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+发了就是被5厕再反过来炎一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16216#       发表于 2020-6-12 00:23
+
+
+
+[https://www.nicovideo.jp/watch/sm37016396](https://www.nicovideo.jp/watch/sm37016396)
+
+クイズちょこオネア「チベットは国」→bilibiliで炎上
+
+流石にかわいそう
+
+謝り疲れてそう
+
+
+bilibiliの謝罪ページ
+[https://t.bilibili.com/399642579432058924](https://t.bilibili.com/399642579432058924)
+
+
+【元配信】
+
+【#ちょこオネア】第６回ちょこオネア今回のゲストはスバおかコンビ！無事クリアすることができるのか？！
+[https://www.youtube.com/watch?v=gKBgf5FQlC4&amp;feature=youtu.be](https://www.youtube.com/watch?v=gKBgf5FQlC4&amp;feature=youtu.be)
+
+
+
+最近视频制作效率真的挺高啊
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16217#       发表于 2020-6-12 00:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770344&amp;ptid=1938145" target="_blank">puppenspieler 发表于 2020-6-12 00:22</a>
+
+啊，我也只是提一句，我自己并没有土鸡的梯子（
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端 ...</blockquote>
+妖，咁讲来做乜<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16218#       发表于 2020-6-12 00:24
+
+
+
+[https://jp.ign.com/ark-survival- ... l-evolvedepic-games](https://jp.ign.com/ark-survival-evolved/44143/news/ark-survival-evolvedepic-games)
+ <blockquote>先述したように、本作はYouTubeなどでの配信でも大人気のゲームだ。配信技研によると、2020年4月のライブ配信視聴時間ランキングにおいて本作は2位になっている。3月にはVTuberグループの「にじさんじ」による配信が人気になっていた。本作ではトライブと呼ばれるクランやギルドのようなグループを作ることができ、トライブ間で行われるゲーム内戦争が話題になったのだ。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16219#       发表于 2020-6-12 00:25
+
+
+
+
+最近是真的感觉到累了
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16220#       发表于 2020-6-12 00:25
+
+
+
+[https://jp.ign.com/ark-survival- ... l-evolvedepic-games](https://jp.ign.com/ark-survival-evolved/44143/news/ark-survival-evolvedepic-games)
+ <blockquote>先述したように、本作はYouTubeなどでの配信でも大人気のゲームだ。配信技研によると、2020年4月のライブ配信視聴時間ランキングにおいて本作は2位になっている。3月にはVTuberグループの「にじさんじ」による配信が人気になっていた。本作ではトライブと呼ばれるクランやギルドのようなグループを作ることができ、トライブ間で行われるゲーム内戦争が話題になったのだ。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 16221#       发表于 2020-6-12 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770363&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-12 00:23</a>
+别的不说，你在推上说藏是中国的怕不是立马封号哦</blockquote>
+国内的道歉也没明说的
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16222#       发表于 2020-6-12 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770378&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-12 00:25</a>
+
+最近是真的感觉到累了</blockquote>
+是阿，爆料又车不起来，就一些小鬼跳另一些小鬼罢了，有什么意思嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16223#       发表于 2020-6-12 00:26
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-12 00:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770364&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-12 00:23</a>
+
+发了就是被5厕再反过来炎一遍</blockquote>
+反正这不正好给v吧个理由吗，他们不管怎么样都会去冲的。不管你怎么发，发了啥，顺便你回这人是把v吧屎搬回来的人，什么成分我暂且先保留意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 16224#       发表于 2020-6-12 00:26
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-12 00:34 编辑 
+<blockquote>连清人 发表于 2020-6-12 00:22
+我看了hololive跟cover的推，道歉推文没发。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+什么时候cover成中资企业就会发了，删个视频好歹表明了态度。真要贯彻战狼之道，不如去推维啊。
+
+
+
+
+
+
+
+-----
+
+####  puppenspieler  
+##### 16225#       发表于 2020-6-12 00:26
+
+
+
+
+没发推太可惜了，我在内心深处还在期待着前些日子化身版权斗士的5ch民能够为了holoan大业屈尊扮演中日友好桥梁，展现最多面的演技<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+虽然就算发了推这种可能性也一丝一毫都没有。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16226#       发表于 2020-6-12 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770350&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-12 00:22</a>
+
+我看了hololive跟cover的推，道歉推文没发。
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种事想想都知道不会在推上发的。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16227#       发表于 2020-6-12 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770387&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-12 00:25</a>
+
+国内的道歉也没明说的
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+我反正对推特的运营倾向不抱希望<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16228#       发表于 2020-6-12 00:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两幅面孔才是资本家的生存之道啊。
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 16229#       发表于 2020-6-12 00:29
+
+
+
+
+APEX抱路人大腿一枪没开拿了两次第一，我怎么感觉我屏幕上的画面和阿希直播的画面差别有点大啊
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16230#       发表于 2020-6-12 00:29
+
+
+
+
+郡道今天下午（已经是昨天了）突然开的恋爱相谈直播（[https://www.youtube.com/watch?v=KEa8U_0Gad8&amp;t=1242s](https://www.youtube.com/watch?v=KEa8U_0Gad8&amp;t=1242s)），开播前不久才紧急开棉花糖，结果开始播的时候已经收到三百多个了，结果播了两个半小时没播完。这场背景音乐是那种摇滚乐，然后郡道的评论也超级激烈。不知大家有没有看到一个漫画叫《骂倒少女》，差不多是这种程度了，感觉差评比都微妙地上升了一点...
+
+
+说几个有趣的：
+
+有个人说自己三十好几跟女朋友交往一年，不知道怎么对女友下手，郡道说这个年纪还不知怎么对女友下手的不如去世了，女朋友好可怜青春被浪费了·，这人肯定不喜欢他女友不如分手，好恶，为了这个女朋友这个男的下地狱吧（玩笑）；
+
+有个男的说自己跟女朋友去旅游，没出手，现在有点后悔，不知道当时的正解是什么....郡道就说这种”后悔当时没下手“的心态就很恶；
+
+有个百合妹子说自己跟喜欢的妹子一起睡觉还膝枕，但是感觉对方是无意识的举动所以很是动摇，害怕被说恶心，郡道惊了说这都膝枕了还不是女同？非常温柔地建议去告白（郡道对女生好宽容啊...)；
+
+有个妹子投稿了一篇超超超长的修罗场恋爱相谈，总结就是男花心又浪，女的又比较舔，郡道也相应说了一堆，说恋爱的时候不能完全崇拜对方，line什么的等对方发才好（我觉得是借口，这人line堆了几百条不回）；
+
+郡道王子糖，”要怎么才能和春崎交往呢？“”不知道hhh，每次直播的时候留言吧？“
+
+20岁男性每天不和对象打电话就会心慌，被郡道说是男性menhera，郡道都惊到无言了，说这人是不是童年有什么问题，这是要去医院的程度啊...（听到郡道骂menhera真的很好笑，跟口了怒骂嫌弃女友不负责任的人一样好笑<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">为什么呢？因为我是阴湿（略））
+
+一位女朋友大概比较不好看的男性，上网搜索”丑女巨乳“图片被发现了被耍了，不知道怎么解释才好，难得被郡道同情的男人；
+
+有个男的，女朋友开始玩cosplay之后和别的男人单独摄影，有时还喝醉了送回来，现在来问怎么样才能用最过分的方法甩了女朋友，郡道说你这人性格才最过分，恶心；
+
+说自己是处女的投稿郡道全都不信，每次都回复：”啊，是童贞吧？“
+
+有一位女生说现在高中，还喜欢小学时喜欢的对象，郡道说那人说不定已经把你忘了，不如自己幻想一个恋爱对象算了；
+
+前阵子还在以前喝酒、一直喜欢的女生要结婚了，在想着要不要至少把心意说出来...郡道就说还好没有讲，对于即将要幸福的人，把自己的想法说出来给别人造成困扰，真的是不太好
+
+还有一个男性说不想结婚，但因为是家里的长男所以会被要求这些，，郡道说自己也同感，明明不想恋爱不想结婚，但又不能直接地说出来，感觉是这个直播里最沉重的一个了；
+
+有个学生说自己喜欢上了老师，郡道超生气，痛喷和学生交换line的老师真的是屑，喜欢这种萝莉控老师是不好的，这种垃圾不值得，这种老师去世算了；
+
+1：52：45 念到一位V噶吃的投稿，诉说了自己对推的巨大爱意（主要是性欲），偶尔会觉得有点羞耻。郡道：<strong>”难顶，说真的很恶心。这可不是恋爱相谈啊，喜欢上V就认为是恋爱的阿宅真的不太行，这可不是恋爱啊，在那里可没有人类啊？</strong>就算爱上了V，恋爱经验也不会增加。但是她（这个形象）就在那里，产生性欲也不是什么怪事，觉得有色心很羞耻证明你还年轻啊。“（这算是杀噶吃吗）
+
+感觉后面耐心渐渐被消磨掉了，暴言频出...
+
+有很多条被郡道统一回复恶心，例：女生借我耳机是不是喜欢我啊？因为是童贞很羞耻所以去嫖了对女朋友说不出口（郡道语：风俗不算SOX，忘了吧）；介意女朋友奇酷比颜色（<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）；经常跟女朋友”lovelovechuchu“；胡乱地分析出女朋友在疏远自己又硬不沟通；明明只是为女方回家垫了一万円就觉得已经两情相悦了；想太多打算NTR的老哥（有人问判断异性喜欢自己的标准，郡道：”不知道，我又没喜欢异性不懂，同性也不喜欢就是了。“哈？）；
+
+
+还有超多扭曲仙境梦女（也有一位生理性别是男性）投稿，感觉病得比郡道还深，郡道明明看出来了还全部都认真给回复，真的好爱这个游戏。这人高强度发扭曲仙境相关可能真的吸到女粉了。
+
+而且这个投稿人年龄，感觉混入了大量非郡道粉，大学生好多啊，这个直播，对青少年的坏影响，不可计量。
+
+这么一看真的是长文repo，好恶。不过我个人是很喜欢郡道聊点这种恋爱相关话题啦，以前的也许能成委员会也是，郡道给一些建议和判断的时候能多多少少感觉到她本人的一些恋爱标准，太缩了不行，想太多不行，没有计划不行，要求巨多巨高，说放弃就放弃甚至到了薄情的程度，虽然这也是我觉得她非常有魅力的地方。
+
+还是贵一点的女人比较好啊。
+
+顺便郡道今天发型好看。
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 离魂仙| + 1|鼓励分|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16231#       发表于 2020-6-12 00:30
+
+
+
+
+有人把这件事丢holoan了啊，都ガイガイ（车）了三四串了的样子
+
+
+不过绝大多数都是网右跳脚，特别适合文明观猴
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 16232#       发表于 2020-6-12 00:31
+
+
+
+<blockquote>AloissiolA 发表于 2020-6-12 00:25
+https://jp.ign.com/ark-survival-evolved/44143/news/ark-survival-evolvedepic-games</blockquote>
+Ickr这是把ign都买了？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16233#       发表于 2020-6-12 00:31
+
+
+
+
+直播时倒没人提，发了公告holoan就人均历史地理学家了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16234#       发表于 2020-6-12 00:31
+
+
+
+
+感谢郡gachi老哥的repo，挺有趣的。净化v综空气。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 16235#       发表于 2020-6-12 00:32
+
+
+
+
+那holoan是支持我国领土完整还是支持holo？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16236#       发表于 2020-6-12 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47765617&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-11 18:09</a>
+
+https://twitcasting.tv/kanadeizuru/movie/620899187
+
+17：30 
+
+イヅル「騒動があったじゃん？被害者面する ...</blockquote>
+[https://www.nicovideo.jp/watch/sm37014477](https://www.nicovideo.jp/watch/sm37014477)
+
+n剪辑版
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16237#       发表于 2020-6-12 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770455&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-12 00:32</a>
+
+那holoan是支持我国领土完整还是支持holo？</blockquote>
+支持砍死A酱
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 16238#       发表于 2020-6-12 00:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lga一副道貌岸然地填热度也挺神奇的，原本维持在发了公告但大家其实都不知道什么事的情况才是最好的，就算云不了v还云不了论坛么
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16239#       发表于 2020-6-12 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770455&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-12 00:32</a>
+
+那holoan是支持我国领土完整还是支持holo？</blockquote>
+都叫网右了还能支持哪边
+
+
+人都巴不得**死
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 16240#       发表于 2020-6-12 00:38
+
+
+
+
+说起来我因为前两天看夏哥和郡道的历史教学联动感觉还不错产生了兴趣，郡推老哥能推荐一些她比较有特色的神回嘛？
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16241#       发表于 2020-6-12 00:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">各种迹象表明holo到头了，该分析下还剩几天爆炸
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16242#       发表于 2020-6-12 00:39
+
+
+
+
+纯新人，刚开始看v，感觉peko播游戏的节目效果好强啊，听不懂都笑的不行
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16243#       发表于 2020-6-12 00:40
+
+
+
+
+你楼说楼里没有野兔子，现在野兔子来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 16244#       发表于 2020-6-12 00:41
+
+
+
+
+真有纯新人刚开始看V就来V综么。  求求饶了兔皇吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 16245#       发表于 2020-6-12 00:41
+
+
+
+
+还是那句老话，看游戏建议看国内男主播，看萌萌哒那没事了
+我也喜欢萌萌哒
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 16246#       发表于 2020-6-12 00:42
+
+
+
+
+还是郡gachi的repo好看
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16247#       发表于 2020-6-12 00:43
+
+
+
+
+yysy，我最早也是兔皇视频入坑的。对mmr吸引力很大。（虽然我现在也是mmr
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16248#       发表于 2020-6-12 00:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">今天有sio 3D消息当会存粮，现在又要激起我劈兔子的欲望了么
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16249#       发表于 2020-6-12 00:43
+
+
+
+ 本帖最后由 aele 于 2020-6-12 00:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">你楼还有萌萌人？
+
+三才的杂谈目前状况安定(
+
+胸针可能有机会受注？
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 16250#       发表于 2020-6-12 00:44
+
+
+
+
+不要原教旨
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16251#       发表于 2020-6-12 00:45
+
+
+
+
+所以兔皇怎么点了？不是还和栞樱联动还不开台了吗
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16252#       发表于 2020-6-12 00:45
+
+
+
+
+你们真的不把v版当s1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16253#       发表于 2020-6-12 00:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770501&amp;ptid=1938145" target="_blank">辉耀还差3800 发表于 2020-6-12 00:38</a>
+
+说起来我因为前两天看夏哥和郡道的历史教学联动感觉还不错产生了兴趣，郡推老哥能推荐一些她比较有特色的神 ...</blockquote>
+全部（
+
+
+神回这个很看个人啦，如果是觉得教学视频不错那就把那些先看一遍如何？然后可以看看字幕组的翻译作，语言门槛低而且都是一些挑选过的片段，如果还想看可以上郡道推特，她会转发一些剪辑视频，你看看哪个觉得好笑就去看原视频这样？
+
+近期的话，我觉得51合1耐久和郡道舞元天开司猫猫麻将联动不错，抛开我郡虐的爱好不说，一个是看郡道和指示厨高强度互动嘲讽，一个是看郡道等被猫猫耍得团团转这样。
+
+当然！还有明天的月之郡道历史教学联动!
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16254#       发表于 2020-6-12 00:47
+
+
+
+
+管人萌新，但泥潭老用户了，知道各位巨魔什么尿性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 贵楼各种黑屁看着还挺有意思的，满足八卦心理
+
+yysy肥宅八卦起来比起豆瓣鹅组什么的不遑多让
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16255#       发表于 2020-6-12 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不清楚兔皇怎么点了，但我觉得winda对每一个杏生活liver都自带仇恨。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16256#       发表于 2020-6-12 00:49
+
+
+
+ 本帖最后由 winda 于 2020-6-12 00:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770580&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-12 00:45</a>
+
+所以兔皇怎么点了？不是还和栞樱联动还不开台了吗</blockquote>
+兔子不开台，sio也不开sc
+
+疑似参加过猫部的面试
+
+↑
+
+都是虚的，谁叫inori去当兔组组长还不消停，反正我劈兔子又不狠
+
+另外只要是杏头部我都想劈的，暴力狂船皇和剃毛大师龙皇还想再宣传😋
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16257#       发表于 2020-6-12 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770596&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:47</a>
+管人萌新，但泥潭老用户了，知道各位巨魔什么尿性 贵楼各种黑屁看着还挺有意思的，满足八卦心理
+
+yy ...</blockquote>
+建议看看夏色吹雪 又萌又可爱还有节目效果 而且还是大长篇 各种熟肉分量十足<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 16258#       发表于 2020-6-12 00:52
+
+
+
+
+基德基德 夏吹入坑死路一条
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16259#       发表于 2020-6-12 00:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点人真可怕，自己家爆了还要转移仇恨。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16260#       发表于 2020-6-12 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770616&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 00:49</a>
+
+兔子不开台，sio也不开sc
+
+疑似参加过猫部的面试
+
+↑</blockquote>
+那位不是出色的卧底吗，一下子把兔皇的b站盘炸没了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16261#       发表于 2020-6-12 00:53
+
+
+
+
+夏吹--夏噶吃---被希小姐逼疯
+
+
+夏吹---玉米人--被狐皇气死
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16262#       发表于 2020-6-12 00:53
+
+
+
+
+其实我也支持hololive炸了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 16263#       发表于 2020-6-12 00:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 点人就是想杏死随手劈的  不需要问为什么了  
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 16264#       发表于 2020-6-12 00:53
+
+
+
+ 本帖最后由 辉耀还差3800 于 2020-6-12 00:55 编辑 
+
+呔，不管什么cp入脑不会有不死路一条的吧
+
+SYL，感谢郡推老哥，我去高强度补一下
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16265#       发表于 2020-6-12 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770641&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-12 00:52</a>
+
+那位不是出色的卧底吗，一下子把兔皇的b站盘炸没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">虽然他操作蠢了点，但他对兔子的爱是真的
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16266#       发表于 2020-6-12 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770626&amp;ptid=1938145" target="_blank">中野六小龄童 发表于 2020-6-12 00:50</a>
+建议看看夏色吹雪 又萌又可爱还有节目效果 而且还是大长篇 各种熟肉分量十足 ...</blockquote>
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺无聊的也没啥其他特长
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16267#       发表于 2020-6-12 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770596&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:47</a>
+
+管人萌新，但泥潭老用户了，知道各位巨魔什么尿性 贵楼各种黑屁看着还挺有意思的，满足八卦心理
+
+
+yy ...</blockquote>
+建议看点生活的夜樱玉，很可爱还是麻将高手<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16268#       发表于 2020-6-12 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770664&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:55</a>
+
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺 ...</blockquote>
+恭喜你获得本楼呼吸权
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 16269#       发表于 2020-6-12 00:56
+
+
+
+
+这真的不是来钓crew的吗
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 16270#       发表于 2020-6-12 00:56
+
+
+
+
+提升点gay综浓度。
+
+能来看简单快乐的男人吗？喜欢看长的像女的男性也有的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 16271#       发表于 2020-6-12 00:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16272#       发表于 2020-6-12 00:57
+
+
+
+
+你们基德，不如去看最潮最in的tmsk。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16273#       发表于 2020-6-12 00:57
+
+
+
+
+他觉得无聊有什么问题吗？一千个人眼里有一千个哈姆雷特呐。希望新来的觉得无聊就不要车阿夸了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16274#       发表于 2020-6-12 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770647&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-12 00:53</a>
+
+其实我也支持hololive炸了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">炸了夸皇能复播吗？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16275#       发表于 2020-6-12 00:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">专业，上来就直捣本楼指定kpi
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16276#       发表于 2020-6-12 00:57
+
+
+
+
+夸今天是不是放复活卫星了？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16277#       发表于 2020-6-12 00:57
+
+
+
+
+事到如今，上位替代学说已经引不起流量了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16278#       发表于 2020-6-12 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770689&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 00:57</a>
+
+夸今天是不是放复活卫星了？</blockquote>
+🈚️
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16279#       发表于 2020-6-12 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770689&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 00:57</a>
+
+夸今天是不是放复活卫星了？ </blockquote>
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 16280#       发表于 2020-6-12 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770664&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:55</a>
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺 ...</blockquote>
+说话注意点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16281#       发表于 2020-6-12 00:58
+
+
+
+
+这就是野兔子？crew在前面和点人把头，躲后面捅刀子
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 16282#       发表于 2020-6-12 00:58
+
+
+
+
+等夸皇的九转神功大成就把你们杀了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16283#       发表于 2020-6-12 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770424&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 00:29</a>
+
+郡道今天下午（已经是昨天了）突然开的恋爱相谈直播（https://www.youtube.com/watch?v=KEa8U_0Gad8&amp;t=1242 ...</blockquote>
+在听她讲对手游男人的种种幻想的时候，我觉得我想明白为什么我对郡道跟各种男人联动没什么意见了。
+
+我根本没法想象她跟男人正常SOX的画面，如果真的硬去想，在我脑中只会出现那种GB画面，也就是第四爱，具体来说就是（恶心反白）郡道穿着杰宝把男人爆了...
+
+郡道美玲では抜けない
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 16284#       发表于 2020-6-12 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770664&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:55</a>
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺 ...</blockquote>
+出道早而已，现在已经基本被兔子上位替代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16285#       发表于 2020-6-12 00:59
+
+
+
+
+确实，兔皇最强！
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 16286#       发表于 2020-6-12 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">winda哥winda哥，刚刚我看到卷羊在画点的牛奶羊，是不是她们要联动一波了啊，这个消息能不能让你对我们杏杏感观好点。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16287#       发表于 2020-6-12 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明天化身郡道gachi怒喷月之蹭我家郡道的无敌整活教历史了
+
+恶心太监囚人是团长的使命来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16288#       发表于 2020-6-12 00:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">从发言就看得出来老巨魔了，可怜的二二姐又被钓了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16289#       发表于 2020-6-12 01:00
+
+
+
+ 本帖最后由 中野六小龄童 于 2020-6-12 01:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770664&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:55</a>
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺 ...</blockquote>
+既然是野兔子 那就来丶大家都爱的pekomiko吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+如果不喜欢aqua的话 来丶meaqua如何 跟夏色吹雪一样熟肉二创都很多哦<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16290#       发表于 2020-6-12 01:01
+
+
+
+
+行行行，我被钓了。syl在v综能得出阿夸人气高的结论也是不容易。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16291#       发表于 2020-6-12 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770706&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 00:58</a>
+
+在听她讲对手游男人的种种幻想的时候，我觉得我想明白为什么我对郡道跟各种男人联动没什么意见了。
+
+我根 ...</blockquote>
+也就是说只要夏gachi也学会你的这种想象就自然会对夏哥联动star没有梁木了吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+不过黑宝眼里会长森林就是了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 16292#       发表于 2020-6-12 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770703&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-12 00:58</a>
+
+这就是野兔子？crew在前面和点人把头，躲后面捅刀子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 16293#       发表于 2020-6-12 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770664&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:55</a>
+
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺 ...</blockquote>
+喜欢听歌吗，给你推荐个唱歌好听的V我们家富士葵<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=k6B-isLbj18](https://www.youtube.com/watch?v=k6B-isLbj18)
+[https://bbs.saraba1st.com/2b/thread-1915766-1-1.html](https://bbs.saraba1st.com/2b/thread-1915766-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16294#       发表于 2020-6-12 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">2000半夜也要拯救虹浓度
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16295#       发表于 2020-6-12 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770714&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-12 00:59</a>
+winda哥winda哥，刚刚我看到卷羊在画点的牛奶羊，是不是她们要联动一波了啊，这个消息能不能让你对 ...</blockquote>
+winda老哥看起来是蛋蛋派的，你这提咩咩咩看起来只会有反效果。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16296#       发表于 2020-6-12 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么突然冒出野兔子劈夸皇，有意思
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 16297#       发表于 2020-6-12 01:02
+
+
+
+
+视奸过v粽的跟净土坛追来只会复读发疯的确实不一样哈
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 16298#       发表于 2020-6-12 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770742&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-12 01:02</a>
+winda老哥看起来是蛋蛋派的，你这提咩咩咩看起来只会有反效果。</blockquote>
+就是看不惯holo吃了阿点的尸体德不配位吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16299#       发表于 2020-6-12 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770742&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-12 01:02</a>
+
+winda老哥看起来是蛋蛋派的，你这提咩咩咩看起来只会有反效果。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那为什么他不劈点要劈杏，什么逻辑？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16300#       发表于 2020-6-12 01:04
+
+
+
+
+啊
+
+48mio紧急联动
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16301#       发表于 2020-6-12 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770737&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-12 01:01</a>
+
+所以一开始我就觉得大事不好，最后肯定又顺劈到兔子身上</blockquote>
+别紧张，peko我也一直看的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16302#       发表于 2020-6-12 01:04
+
+
+
+
+其实我记得当年Kizuna Ai刚出现那会我就在油管订阅了，但没感觉有太大吸引力，后来因为各种忙就没关注过管人，中间感觉有一阵b站铺天盖地的Fubuki不过也没点进去看过。最近听朋友提起管人又去看了看，现在比较喜欢星街彗星，Coco，Peko。
+
+以上可以作为一个一般路过萌萌人的案例供你楼分析分析<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16303#       发表于 2020-6-12 01:04
+
+
+
+
+我作为crew也不知道阿夸人气为什么这么高，但作为老事业民当初看的时候觉得她进前50还是没问题的，能挤进前10是超出我预期的。大概看管的mmr对各个方面的要求都不高，阿夸这个程度就能满足了吧。
+
+
+syl，两个小时了，miko又回家了。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 16304#       发表于 2020-6-12 01:05
+
+
+
+ 本帖最后由 空集 于 2020-6-12 01:06 编辑 
+
+我本来都单纯挂着mio妈的深夜杂谈当背景音了，居然突击联动 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+报：摸余也来了 
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16305#       发表于 2020-6-12 01:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">ayame也来了，刚开始居然没意识到mio在直播
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16306#       发表于 2020-6-12 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770754&amp;ptid=1938145" target="_blank">Mika-S 发表于 2020-6-12 01:03</a>
+
+就是看不惯holo吃了阿点的尸体德不配位吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">懂了，但是点就算不爆炸就配坐上杏现在的位置吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16307#       发表于 2020-6-12 01:06
+
+
+
+
+龙之还乡草死，芙宝你在看吗？syl，既然看星街和龙宝的话，可以顺便给小天使一个关注吗，拜托了。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16308#       发表于 2020-6-12 01:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770757&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-12 01:04</a>
+
+啊
+
+48mio紧急联动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懒狗也出现了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 16309#       发表于 2020-6-12 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770664&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 00:55</a>
+
+你楼近期的贴我粗略翻过，这两位我不粉也不黑纯路人
+
+我不太理解的是为啥Aqua人气这么高，感觉她播游戏挺 ...</blockquote>
+大亏够萌，来得又早又勤，而且是当时唯二游戏力还看得过去的，另一个是摸余（萝卜子论外）。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16310#       发表于 2020-6-12 01:08
+
+
+
+
+能带上个虹人吗，哪怕不是真心的
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16311#       发表于 2020-6-12 01:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">点怎么不配了，点有主流进出，如果不炸未必不能达到杏现在的高度
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16312#       发表于 2020-6-12 01:10
+
+
+
+
+还是holo问题那事，我刚在b站看到有人说这次问题是征集的，我这翻不了墙，有人能去确认一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16313#       发表于 2020-6-12 01:10
+
+
+
+
+主流进出那不是跟虹争地盘嘛，非法游戏配信这块还是要给杏拿下哦。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16314#       发表于 2020-6-12 01:11
+
+
+
+
+我觉得你们还是不要揣测winda老哥 让他一个人感慨比较好。。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16315#       发表于 2020-6-12 01:11
+
+
+
+<blockquote>pabier 发表于 2020-6-12 01:10
+还是holo问题那事，我刚在b站看到有人说这次问题是征集的，我这翻不了墙，有人能去确认一下吗 ...</blockquote>
+nga有推特征集的图，应该就是从推特里选的题。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pabier| + 1|好的，谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16316#       发表于 2020-6-12 01:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是99%新人观众都是木口粉啊
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 16317#       发表于 2020-6-12 01:13
+
+
+
+
+winda叔叔挺可怜的，看看外面的点楼就他一个人在唱独角戏，实在是令人感动流泪
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16318#       发表于 2020-6-12 01:13
+
+
+
+<blockquote>SuntoryNomu 发表于 2020-6-12 01:12
+是不是99%新人观众都是木口粉啊</blockquote>
+国内有新人说不是，你自己信嘛？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16319#       发表于 2020-6-12 01:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770714&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-12 00:59</a>
+
+winda哥winda哥，刚刚我看到卷羊在画点的牛奶羊，是不是她们要联动一波了啊，这个消息能不能让你对 ...</blockquote>
+小羊还画了明天sio要联动的明治酱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16320#       发表于 2020-6-12 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770839&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-12 01:13</a>
+国内有新人说不是，你自己信嘛？</blockquote>
+那木口的统治力还不至于这么强，还是有人不是的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16321#       发表于 2020-6-12 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770755&amp;ptid=1938145" target="_blank">stedckk 发表于 2020-6-12 01:04</a>
+
+那为什么他不劈点要劈杏，什么逻辑？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我给三笨蛋以外还是留脸面的，早几楼的时候我劈appland还少吗？
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16322#       发表于 2020-6-12 01:14
+
+
+
+
+这也没法，新人看管人主要还是去holiholi看的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16323#       发表于 2020-6-12 01:15
+
+
+
+<blockquote>star_platinum 发表于 2020-6-12 01:14
+那木口的统治力还不至于这么强，还是有人不是的
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的  ...</blockquote>
+对啊，关键还是做出99%这个论断的人信不信嘛
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 16324#       发表于 2020-6-12 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770742&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-12 01:02</a>
+
+winda老哥看起来是蛋蛋派的，你这提咩咩咩看起来只会有反效果。</blockquote>
+メリーミルク和めめめ是两个人
+
+
+更别说前者是就算两人走了都要把生日绘私底下传过去的良心
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16325#       发表于 2020-6-12 01:16
+
+
+
+
+隔壁KPI都比这里高了，99%的新人都是看VUP的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16326#       发表于 2020-6-12 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770863&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-12 01:16</a>
+隔壁KPI都比这里高了，99%的新人都是看VUP的吧</blockquote>
+那是维阿往s1引流的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16327#       发表于 2020-6-12 01:17
+
+
+
+<img src="https://s1.ax1x.com/2020/06/12/tqqpVI.jpg" referrerpolicy="no-referrer">
+
+
+绫总代表V的总意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16328#       发表于 2020-6-12 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770858&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-12 01:15</a>
+メリーミルク和めめめ是两个人
+
+
+更别说前者是就算两人走了都要把生日绘私底下传过去的良心 ...</blockquote>
+啊，我云了，看到羊我一时没反应过来。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16329#       发表于 2020-6-12 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770863&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-12 01:16</a>
+
+隔壁KPI都比这里高了，99%的新人都是看VUP的吧</blockquote>
+我刚来的时候还是V综是你版KPI顶梁柱，还没半年时代就变了吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16330#       发表于 2020-6-12 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770809&amp;ptid=1938145" target="_blank">pabier 发表于 2020-6-12 01:10</a>
+
+还是holo问题那事，我刚在b站看到有人说这次问题是征集的，我这翻不了墙，有人能去确认一下吗 ...</blockquote>
+而且提供问题的人非常明显是故意的，大抵是4v火山网右三选一吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16331#       发表于 2020-6-12 01:18
+
+
+
+
+顺便兔皇联动关sc也挺厉害的，sio收益化解禁后除了兔皇那回就只有sio台开天X楠给yostar做事关了
+
+就算是pro来联动也是说好的大家一起分钱 <blockquote>※この放送で頂いたスーパーチャットは、
+手数料等を除いた金額を三等分させて プロにもお渡しさせて頂きます！</blockquote>
+所以兔皇是真的厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+cc.png
+(89.7 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/011557qp1ynqapqatfn1y1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+aa.png
+(91.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/011557mzvd5wpw5yvdajvp.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+DD.png
+(78.7 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:15 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/011556x2as2ccebzd2eiza.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16332#       发表于 2020-6-12 01:18
+
+
+
+
+泥潭婆罗门习性一脉相承的，我懂
+
+管人领域我就是一个霹雳霹雳首陀罗萌萌人，不看holo看啥嘛
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 16333#       发表于 2020-6-12 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770715&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-12 00:59</a>
+
+明天化身郡道gachi怒喷月之蹭我家郡道的无敌整活教历史了
+
+
+恶心太监囚人是团长的使命 ...</blockquote>
+我觉得有些更危险的东西值得担心......不知道转不转播...
+
+月之这个迪士尼脱fen已经在本子上有一笔了，再来遭不住啊
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16334#       发表于 2020-6-12 01:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770875&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-12 01:17</a>
+
+绫总代表V的总意</blockquote>
+绫总急需仅限互fo回复功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16335#       发表于 2020-6-12 01:20
+
+
+
+
+bsyl,[https://nijisanji.booth.pm/items/2106559](https://nijisanji.booth.pm/items/2106559)
+
+<img src="https://img.saraba1st.com/forum/202006/12/011852jpi9acoprtb97br9.png" referrerpolicy="no-referrer">
+
+
+<strong>0612011528.png</strong> (775.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 01:18 上传
+
+
+
+
+
+
+
+
+
+
+
+syl,
+
+でびるる
+
+<img src="https://img.saraba1st.com/forum/202006/12/011949w78abbun8uukjanp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaOGIRMVAAAPqZv.jpg</strong> (156.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 01:19 上传
+
+
+
+
+
+[https://twitter.com/kuhotaka/status/1271007091197542404](https://twitter.com/kuhotaka/status/1271007091197542404)
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16336#       发表于 2020-6-12 01:21
+
+
+
+
+霹雳霹雳现在最in最火的不是维阿？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16337#       发表于 2020-6-12 01:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770738&amp;ptid=1938145" target="_blank">free 发表于 2020-6-12 01:01</a>
+喜欢听歌吗，给你推荐个唱歌好听的V我们家富士葵
+
+https://www.youtube.com/watch?v=k6B-is ...</blockquote>
+这位感觉和Ai有点像，以出成品视频为主？
+我可能还是更喜欢主播类型的，感觉更真情实感一点
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16338#       发表于 2020-6-12 01:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770902&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-12 01:21</a>
+霹雳霹雳现在最in最火的不是维阿？</blockquote>
+你是指黑历史出圈度？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16339#       发表于 2020-6-12 01:23
+
+
+
+
+戳到免费痛处了，你不会是故意的吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16340#       发表于 2020-6-12 01:23
+
+
+
+
+散装yhm在这里的讨论太低了吧，现在杏也就在前排占两三个位置的水平，哪来的新人都是杏人的说法。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16341#       发表于 2020-6-12 01:24
+
+
+
+
+好活👌
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 16342#       发表于 2020-6-12 01:24
+
+
+
+
+怎么关sc就那么大怨念...
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 16343#       发表于 2020-6-12 01:24
+
+
+
+
+你楼虹人呢，快给新的mmr推荐点虹v啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16344#       发表于 2020-6-12 01:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 16345#       发表于 2020-6-12 01:24
+
+
+
+
+你楼这位新参这恰到好处的拱火能力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16346#       发表于 2020-6-12 01:24
+
+
+
+
+这视奸起码视奸了好几个月吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 16347#       发表于 2020-6-12 01:25
+
+
+
+
+老巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16348#       发表于 2020-6-12 01:25
+
+
+
+
+面包狗也来了
+
+软软的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16349#       发表于 2020-6-12 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770920&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-12 01:23</a>
+
+你是指黑历史出圈度？
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+现在打开霹雳霹雳虚拟主播区，七海Nana7mi牢牢占据人气头位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16350#       发表于 2020-6-12 01:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又多了个人，狗皇也来了，大脸猫要睡觉没有来
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16351#       发表于 2020-6-12 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770927&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-12 01:24</a>
+
+怎么关sc就那么大怨念...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">杏头部总有一个要被劈的，另一个挺想劈的是加速杏箱点箱化的龙皇
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16352#       发表于 2020-6-12 01:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费老哥受到的双重打击，刚劈完夸皇又来劈视频势
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16353#       发表于 2020-6-12 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770950&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 01:26</a>
+杏头部总有一个要被劈的，另一个挺想劈的是加速杏箱点箱化的龙皇</blockquote>
+阿龙哪里点箱化了？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 16354#       发表于 2020-6-12 01:28
+
+
+
+<blockquote>winda 发表于 2020-6-12 01:26
+杏头部总有一个要被劈的，另一个挺想劈的是加速杏箱点箱化的龙皇</blockquote>
+版权炮一下来都没游戏播了，最近数据也不好，求求你们放过野兔子吧...
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16355#       发表于 2020-6-12 01:28
+
+
+
+
+插播一条消息
+
+aki喝醉了在直播睡觉
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16356#       发表于 2020-6-12 01:29
+
+
+
+
+我不知道为什么感觉winda老哥其实是个意见搬运工。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16357#       发表于 2020-6-12 01:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770964&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-12 01:27</a>
+
+阿龙哪里点箱化了？</blockquote>
+独角兽宣言以及培养全肯定的各种“正论”回
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16358#       发表于 2020-6-12 01:31
+
+
+
+<blockquote>aele 发表于 2020-6-12 01:28
+插播一条消息
+
+aki喝醉了在直播睡觉</blockquote>
+提到aki就想到人妻，想到人妻就想到我老婆，想到我老婆就想到生二孩导致得不到老婆的疼爱，所以我变成了gachi……造化弄人
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16359#       发表于 2020-6-12 01:32
+
+
+
+
+towa联系还行，跑她家吗
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16360#       发表于 2020-6-12 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770994&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-12 01:31</a>
+提到aki就想到人妻，想到人妻就想到我老婆，想到我老婆就想到生二孩导致得不到老婆的疼爱，所以我变成了g ...</blockquote>
+每一位巨魔都有一段感人至深的故事<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 16361#       发表于 2020-6-12 01:33
+
+
+
+
+心里估计了一下，我自从一月以来看管时长起码增加了300%，主要是把以前看球的时间全挪过来了。刚刚app推送才意识到下周联赛差不多就全恢复了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16362#       发表于 2020-6-12 01:33
+
+
+
+
+联系manager把直播断掉
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16363#       发表于 2020-6-12 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770875&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-12 01:17</a>
+绫总代表V的总意</blockquote>
+经常看到有人发リオン拿着镰刀的那张图
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16364#       发表于 2020-6-12 01:34
+
+
+
+
+有一说一…某种意义上我觉得S1比nga对新人友好多了，历史可得，大家全是巨魔。新人视奸习惯。nga那边感觉新人很容易吃到潜规则啊
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16365#       发表于 2020-6-12 01:35
+
+
+
+
+比如今天这个弱智，在V8吃瓜而不得，想在nga做伸手党要生肉。诶丢人丢姥姥家了
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16366#       发表于 2020-6-12 01:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">这直播睡觉是不是财富密码，AKI一睡着数据就疯涨
+
+sly隔壁突击聊天没人管，还要4期生羊去通知运营叫醒人
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16367#       发表于 2020-6-12 01:35
+
+
+
+
+草，好久不看bili，mmr还是这么乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+没想到真的有被海苔男小号骗到的人
+
+
+
+
+
+
+IMG_20200612_013255.jpg
+(112.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/013434rhwyww0qqqchxrwy.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16368#       发表于 2020-6-12 01:36
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-12 01:34
+有一说一…某种意义上我觉得S1比nga对新人友好多了，历史可得，大家全是巨魔。新人视奸习惯。nga那边感觉新 ...</blockquote>
+真小人肯定比伪君子好呀，真君子这社会几乎没有的算啦
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16369#       发表于 2020-6-12 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770891&amp;ptid=1938145" target="_blank"> rzrbtk 发表于 2020-6-12 01:18</a> 引用:激光2000 发表于 2020-6-12 00:59 明天化身郡道gachi怒喷月之蹭我家郡道的无敌整活教历史了  恶心太监囚人是团长的使命 ... 我觉得有些更危险的东西值得担心......不知道转不转播... 月之这个迪士尼脱fen已经在本子上有一笔了，再来遭不住啊 </blockquote>
+没事，月之再犯一次RH的话，神仙也救不了了
+
+尤其是木口刚出事的现在
+
+郡道比较聪明，到时候装不知道就行了
+
+FH、RH都是月之的错
+
+和郡道没关系
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 16370#       发表于 2020-6-12 01:36
+
+
+
+
+来净化下你楼
+
+
+
+
+
+
+EaPyKSdU0AYBf8X.jpeg
+(37.32 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/013614cg1k12aff2hk9kzg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| necroa| + 1|好评加鹅|
+| winda| + 1|心平气和，心平气和|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16371#       发表于 2020-6-12 01:36
+
+
+
+
+作为非本土观众，任天堂游戏除了t99其他的没任何感觉。。我看pekora最近玩mordhau笑得不行
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 16372#       发表于 2020-6-12 01:36
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-12 01:34
+有一说一…某种意义上我觉得S1比nga对新人友好多了，历史可得，大家全是巨魔。新人视奸习惯。nga那边感觉新 ...</blockquote>
+只要点进v版看一眼这些标题就知道这是个什么地方了啊
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16373#       发表于 2020-6-12 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771038&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-12 01:36</a>
+
+真小人肯定比伪君子好呀，真君子这社会几乎没有的算啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">我感觉你搞反了，S1明明是伪君子多各种gachi反串anti比如2000，贴吧才是真小人，直接直球传谣开团
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16374#       发表于 2020-6-12 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771033&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-12 01:35</a>
+草，好久不看bili，mmr还是这么乐
+
+
+没想到真的有被海苔男小号骗到的人</blockquote>
+无论是女强人还是yhm都是好微妙的评价啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16375#       发表于 2020-6-12 01:37
+
+
+
+
+S1有一点好就是黑屁浓度有可能直接把一般通过/MMR→独角兽/GACHI/白河豚→幻灭/巨魔这个流程里去掉gachi这个阶段直接幻灭/巨魔，节约了新人大量的时间和金钱。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16376#       发表于 2020-6-12 01:38
+
+
+
+<blockquote>proxima 发表于 2020-6-12 01:35
+草，好久不看bili，mmr还是这么乐
+
+
+没想到真的有被海苔男小号骗到的人
+</blockquote>
+苔姨语录多发点，这样怼人可以准备充足；
+
+苔姨语录嚣张又很容易破解，很好玩
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 16377#       发表于 2020-6-12 01:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771042&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-12 01:36</a>
+来净化下你楼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16378#       发表于 2020-6-12 01:38
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-12 01:37
+S1有一点好就是黑屁浓度有可能直接把一般通过/MMR→独角兽/GACHI/白河豚→幻灭/巨魔这个流程里去掉gachi这 ...</blockquote>
+这个不会的，啊可能是你楼以前真的没人黑她导致我中招了，淦哦！
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16379#       发表于 2020-6-12 01:38
+
+
+
+
+你楼不是只有发过疯的噶吃和正在发疯的噶吃么
+
+都是噶吃自然不用做惺惺君子态
+
+
+syl 486：说我可爱说我可爱aaaa
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16380#       发表于 2020-6-12 01:39
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-12 01:37
+S1有一点好就是黑屁浓度有可能直接把一般通过/MMR→独角兽/GACHI/白河豚→幻灭/巨魔这个流程里去掉gachi这 ...</blockquote>
+顺便还能把真gachi筛出来，不至于自认为gachi然后被自己巨魔逼疯
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16381#       发表于 2020-6-12 01:39
+
+
+
+
+￼<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">想看月之评价昭和时期的11区，
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 16382#       发表于 2020-6-12 01:40
+
+
+
+<img src="https://p.sda1.dev/0/b6ba9950e99bd40f2fcb1213b1da5f44/微信图片_20200612013818.png" referrerpolicy="no-referrer">
+
+苏姐原服装的3d化，感觉拉远了没之前那个简服好看
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16383#       发表于 2020-6-12 01:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771066&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-12 01:38</a>
+
+你楼不是只有发过疯的噶吃和正在发疯的噶吃么
+
+都是噶吃自然不用做惺惺君子态</blockquote>
+我一直都觉得s1才是纯良最多的地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指都是掉进管人坑里出不来的信者。
+
+而且v综这样各家信者搅成一团的状态还蛮有趣的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 16384#       发表于 2020-6-12 01:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">这世界上最美好的事情大概就是看主播犯原则性错误之后
+
+她的粉丝怎么洗地了吧
+
+去年月之迪O尼脱粪事件
+
+楼里的囚人洗地可把我看乐了
+
+这事我一直藏着当杀手锏
+
+版权问题在原则性错误面前都不是事来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16385#       发表于 2020-6-12 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771080&amp;ptid=1938145" target="_blank">Alphawalker 发表于 2020-6-12 01:40</a>
+
+苏姐原服装的3d化，感觉拉远了没之前那个简服好看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">V综居然有看sephira的
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 16386#       发表于 2020-6-12 01:43
+
+
+
+
+晕了 V综不是只有crew和天狗？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16387#       发表于 2020-6-12 01:43
+
+
+
+
+宫姨「寂寞啊」
+感情状况判明
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16388#       发表于 2020-6-12 01:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771093&amp;ptid=1938145" target="_blank">中野六小龄童 发表于 2020-6-12 01:43</a>
+
+晕了 V综不是只有crew和天狗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你是看不起铁血虹人激光2000
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16389#       发表于 2020-6-12 01:44
+
+
+
+<blockquote>colodes 发表于 2020-6-12 01:43
+宫姨「寂寞啊」
+
+感情状况判明</blockquote>
+养gachi，养gachi。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 16390#       发表于 2020-6-12 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770424&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 00:29</a>
+
+郡道今天下午（已经是昨天了）突然开的恋爱相谈直播（https://www.youtube.com/watch?v=KEa8U_0Gad8&amp;t=1242 ...</blockquote>
+推特的repo基本表示是这些棉花糖大部分的确真的很恶心。老师能这么快刀斩乱麻反而很爽。这次直播还蛮体现她的特点的。恋爱（性）经验丰富的同时实际从来动不了真感情（无论男女）非常寡淡，作为老师又有着相对比较不错的道德素质（高道德不意味对他人温柔）。在这个运营都社会人失格的圈子里算是少的靠谱社会人（想起nico点爆炸时候的评论视频就是说为什么蛋蛋的行为还是有点独断专行了就是周围没有可以商谈的可靠的大人，唯一可以依靠的只有未满20的花音/猫乃木）。
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 16391#       发表于 2020-6-12 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771091&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-12 01:43</a>
+
+V综居然有看sephira的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼另外几个露露厨也会偶尔看看苏姐的
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16392#       发表于 2020-6-12 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771066&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-12 01:38</a>
+
+你楼不是只有发过疯的噶吃和正在发疯的噶吃么
+
+都是噶吃自然不用做惺惺君子态</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这不就是惺惺君子态么，真小人的难道不是直接去404红SC带节奏，要么怪文书怪棉花糖在V前面发疯，也就伪君子才躲在V综发疯，V前一套V后一套
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16393#       发表于 2020-6-12 01:47
+
+
+
+
+宫姐实在不像是结婚了人。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这话题都车好几次了。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16394#       发表于 2020-6-12 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771069&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-12 01:39</a>
+
+顺便还能把真gachi筛出来，不至于自认为gachi然后被自己巨魔逼疯</blockquote>
+确实，经过苦难洗礼的信仰才更加坚定
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16395#       发表于 2020-6-12 01:48
+
+
+
+
+苏浓度，来
+[https://webpon.net/shop/SU/plan/SS](https://webpon.net/shop/SU/plan/SS)
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/014429han1pp1fh1ypnbdp.png" referrerpolicy="no-referrer">
+
+
+<strong>0612014033.png</strong> (567.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 01:44 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/014429b4cc0wz4cco7elo2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaPkItYVcAM1Ic.jpg</strong> (691.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 01:44 上传
+
+
+
+
+
+
+
+
+syl，看见个新投稿的るる18图
+
+pid 82255149
+
+
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16396#       发表于 2020-6-12 01:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771114&amp;ptid=1938145" target="_blank">飞姆托 发表于 2020-6-12 01:46</a>
+这不就是惺惺君子态么，真小人的难道不是直接去404红SC带节奏，要么怪文书怪棉花糖在V前面发疯，也 ...</blockquote>
+那不去带节奏，不来你楼发疯，安安心心看管人过日子的mmr是不是真君子了呢<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16397#       发表于 2020-6-12 01:50
+
+
+
+
+新参虹人有啊，楼里就有个新参露露推，不过和很多纯血虹人一样，对杏的阵营区别意识很浓
+
+新参点人我是真没见过。散装樱花妹推比较偏向B综，不过B综全是VR，估计展不开
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16398#       发表于 2020-6-12 01:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771125&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-12 01:49</a>
+
+那不去带节奏，不来你楼发疯，安安心心看管人过日子的mmr是不是真君子了呢
+
+
+—— 来自 HUAWEI TAS ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">君子之交淡如水
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16399#       发表于 2020-6-12 01:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对楼友真诚就完了，V这事都是各家自家事谁管得了啊
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16400#       发表于 2020-6-12 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771089&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-12 01:42</a>
+
+我一直都觉得s1才是纯良最多的地方指都是掉进管人坑里出不来的信者。
+
+而且v综这样各家信者搅成一 ...</blockquote>
+这个评价可能更适合b综
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16401#       发表于 2020-6-12 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770765&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 01:04</a>
+
+其实我记得当年Kizuna Ai刚出现那会我就在油管订阅了，但没感觉有太大吸引力，后来因为各种忙就没关注过管 ...</blockquote>
+跟我差不多一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+17年看了始皇帝觉得不如真人主播真人ytber
+
+18年朋友推荐我葵皇和熊猫人，没空也没兴趣
+
+19年底陆陆续续看了点夏色吹雪，meaqua，狗妈，一般般
+
+疫情才开始认真看猴楼三四期最后追了天龙星，我也是mmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16402#       发表于 2020-6-12 01:53
+
+
+
+<blockquote>aele 发表于 2020-6-12 01:51
+对楼友真诚就完了，V这事都是各家自家事谁管得了啊</blockquote>
+你TM想笑死我。
+
+真要有人上钩了，你们会真诚的说，对不起，这是我们瞎扯的，让你误会了很抱歉。
+
+不，你们只会真诚的嘲笑他
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16403#       发表于 2020-6-12 01:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770793&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-12 01:07</a>
+大亏够萌，来得又早又勤，而且是当时唯二游戏力还看得过去的，另一个是摸余（萝卜子论外）。 ...</blockquote>
+感谢解答。摸余是指？
+另外我记得最早有个打fps很强的管人叫猫宫的，后来不打了？（本人fps玩家，看这些管人打fps实在辣眼睛看不下去
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16404#       发表于 2020-6-12 01:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771134&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-12 01:51</a>
+
+对楼友真诚就完了，V这事都是各家自家事谁管得了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你的说是发假消息钓鱼的co老兄，还是到处种梁木的35p，还是自称是葵熊的2000，还是不要暴露自己推的暗黑森林法则呢
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16405#       发表于 2020-6-12 01:56
+
+
+
+
+这位新参真不是钓鱼吗？明天兔皇就要和你说的那位猫宫联动了啊？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16406#       发表于 2020-6-12 01:56
+
+
+
+<blockquote>Mafise 发表于 2020-6-12 01:55
+感谢解答。摸余是指？
+
+另外我记得最早有个打fps很强的管人叫猫宫的，后来不打了？（本人fps玩家，看这些 ...</blockquote>
+摸鱼是百鬼绫目，holo二期生，外号还有狗狗。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 16407#       发表于 2020-6-12 01:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770891&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 01:18</a>
+
+我觉得有些更危险的东西值得担心......不知道转不转播...
+
+月之这个迪士尼脱fen已经在本子上有一笔了，再 ...</blockquote>
+江户中期无所谓，她要继续搞下去（讲到近代的话）才容易踩雷，按正常教科书走（对意识形态避而不谈）至少不会出什么大事。
+
+转播这事，反正最近上面态度比较模糊，我们应该是会转的。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16408#       发表于 2020-6-12 01:58
+
+
+
+
+猫宫是代打吧我记得，代打怎么了，我大绿卜也做过代打！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 16409#       发表于 2020-6-12 01:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771154&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 01:55</a>
+
+感谢解答。摸余是指？
+
+另外我记得最早有个打fps很强的管人叫猫宫的，后来不打了？（本人fps玩家，看这些 ...</blockquote>
+摸鱼是杏二期百鬼
+
+猫宫的企业倒了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16410#       发表于 2020-6-12 02:00
+
+
+
+
+猫宫现在见（杏）人就“我是hololive的”
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16411#       发表于 2020-6-12 02:00
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-12 01:58
+猫宫是代打吧我记得，代打怎么了，我大绿卜也做过代打！</blockquote>
+喵宫这事其实也很典型的。视频势积累的人设精致而脆弱。考虑到各种操作空间实在过于可惜
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16412#       发表于 2020-6-12 02:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猫宫代打我记得没有实锤啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16413#       发表于 2020-6-12 02:02
+
+
+
+
+3小时快到了，miko又回家了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+睡了，看醒来后miko在不在家
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16414#       发表于 2020-6-12 02:03
+
+
+
+
+隔壁复制的：有SC希望三才能和木口星一起玩人狼，三才说木口星不能随便联动要问过马内甲才行
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 16415#       发表于 2020-6-12 02:03
+
+
+
+
+V圈「默认的常识」
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16416#       发表于 2020-6-12 02:03
+
+
+
+
+是代打吗。。
+其实看萌萌美少女打枪打的和那帮twitch老爷们一样好也挺违和的，打的菜又高血压，挺矛盾的
+希望管人尽量播fps以外的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16417#       发表于 2020-6-12 02:03
+
+
+
+
+55开吃鸡开挂也没实锤啊，这种基本意思到了十有八九就是真的，毕竟要100%实锤太难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16418#       发表于 2020-6-12 02:04
+
+
+
+
+完了，祭丝又要疯了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16419#       发表于 2020-6-12 02:05
+
+
+
+<blockquote>Mafise 发表于 2020-6-12 02:03
+是代打吗。。
+
+其实看萌萌美少女打枪打的和那帮twitch老爷们一样好也挺违和的，打的菜又高血压，挺矛盾的
+
+希 ...</blockquote>
+打枪最好的liver最近因为私事长时间休息了。有兴趣可以去b站搜阿媂娅。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 16420#       发表于 2020-6-12 02:05
+
+
+
+
+没准是狐皇的烟头烫到希小姐马内甲身上了才答应的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 16421#       发表于 2020-6-12 02:05
+
+
+
+
+就是最近APEX金游化+任弹+瓦罗兰组合拳弄得现在fps浓度高。
+syl
+这消息是让人化身恶魔啊，说明是经纪人的授意。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16422#       发表于 2020-6-12 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771202&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 02:05</a>
+打枪最好的liver最近因为私事长时间休息了。有兴趣可以去b站搜阿媂娅。</blockquote>
+FPS最该看的难道不是井皇吗？想看枪那位新人可以去B站搜帕里，血压绝对很舒适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16423#       发表于 2020-6-12 02:06
+
+
+
+
+祭丝可以考虑加入crew的对运营重👊出击的队伍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16424#       发表于 2020-6-12 02:07
+
+
+
+<blockquote>star_platinum 发表于 2020-6-12 02:06
+FPS最该看得难道不是井皇吗？想看枪那位新人可以去B站搜帕里
+
+
+—— 来自 Xiaomi Redmi Note 7, An ...</blockquote>
+默认女v了，算我的。
+
+
+
+
+
+  

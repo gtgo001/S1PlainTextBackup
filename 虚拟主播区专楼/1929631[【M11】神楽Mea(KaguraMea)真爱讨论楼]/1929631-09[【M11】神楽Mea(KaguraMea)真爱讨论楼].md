@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 00:03** 
+> ## **本文件最后更新于2020-06-12 02:02** 
 
 
 
@@ -715,4 +715,1007 @@ syl这丫头把什么东西念成金金了<img src="https://static.saraba1st.com
 
 
 
-                                                
+
+
+-----
+
+####  シオン诗音  
+##### 12043#       发表于 2020-6-12 00:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">跟人道歉吧，别闹大了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 12044#       发表于 2020-6-12 00:05
+
+
+
+
+已经交涉完了，待会会单独发动态的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+这波是投稿太着急，时效性的弊端<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12045#       发表于 2020-6-12 00:07
+
+
+
+
+着急投稿也许可以尝试手写封面（）
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 12046#       发表于 2020-6-12 00:27
+
+
+
+
+手写麻味图片<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+算是文物伪造了，最重要的是，不是麻的手写麻味图片
+鸡皮疙瘩起来了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12047#       发表于 2020-6-12 00:30
+
+
+
+
+想起来以前日报有专门的小麻封面模仿员<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12048#       发表于 2020-6-12 00:31
+
+
+
+
+你麻不是tcosu有次写了手签名吗,那玩意能用吗<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12049#       发表于 2020-6-12 00:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl 新版的灰青希望有人剪出来，对比着听听应该别有感慨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 12050#       发表于 2020-6-12 00:31
+
+
+
+
+同好会犯了弱智错误。已经道歉取得谅解了，之后会谨慎的。
+
+
+不过无限这群人是真nt
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 12051#       发表于 2020-6-12 00:32
+
+
+
+
+已经是nt到我觉得可怜的程度了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 12052#       发表于 2020-6-12 00:35
+
+
+
+
+脑瘫还是缩在脑瘫小圈子里吧，非要出来跳<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12053#       发表于 2020-6-12 00:40
+
+
+
+
+无限有什么瓜吗？
+
+新参就知道他好像是个连体人<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 12054#       发表于 2020-6-12 00:42
+
+
+
+
+那啥 停一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要车轱辘ptsd了
+解决了就行
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12055#       发表于 2020-6-12 00:43
+
+
+
+
+喵喵喵
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12056#       发表于 2020-6-12 00:43
+
+
+
+
+想起来几天前我在的一贴贴群里突然有一新加群的骂了句“无限傻逼”就溜溜球了，看了个人资料写满了crew爬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 12057#       发表于 2020-6-12 00:43
+
+
+
+
+法兰西二刺猿除了今天这个熟肉，上次发熟肉都是5月21号了，俺寻思烤个肉都这么鸡掰的组就算要到授权了又有个鸡儿用？怎么有脸蹦出来嘲讽同好会的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12058#       发表于 2020-6-12 00:44
+
+
+
+
+停停兄弟们。要不出去盖个粉丝楼吧。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12059#       发表于 2020-6-12 00:44
+
+
+
+
+私人矛盾去隔壁字幕组楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不我可以陪你们几个再车一波
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 12060#       发表于 2020-6-12 00:45
+
+
+
+
+你楼有多少个分支啦
+可以考虑做个家谱，你楼我记得是M10开始分家的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12061#       发表于 2020-6-12 00:46
+
+
+
+
+愿世间少点脑瘫，阿门🙏（睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 12062#       发表于 2020-6-12 00:50
+
+
+
+
+呜呜呜，龙魂难道舔了无限的牛子吗。啥味道能分享一下吗无限去年弱智翻译的时候怎么没人喷呢呜呜呜。他道歉了吗。一年了呜呜呜，我是翻译我也想带节奏嗷
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12063#       发表于 2020-6-12 00:52
+
+
+
+
+我感觉这两拨人能一直互相怼到管圈自然消亡
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12064#       发表于 2020-6-12 00:53
+
+
+
+
+呜呜呜，求求你们不要再打辣
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12065#       发表于 2020-6-12 00:55
+
+
+
+
+滑跪道歉已经出来了，别车了别车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12066#       发表于 2020-6-12 00:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770662&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-12 00:55</a>
+滑跪道歉已经出来了，别车了别车了</blockquote>
+滑轨道歉哪有在mea楼解决私人恩怨重要啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12067#       发表于 2020-6-12 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770666&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-12 00:55</a>
+滑轨道歉哪有在mea楼解决私人恩怨重要啊</blockquote>
+你们不是有个群吗，群里解决吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12068#       发表于 2020-6-12 00:59
+
+
+
+
+还有3小时就是索尼播片了，什么时候能看到咩宝再一次正常地播些3a或者优秀独立游戏呢，明明咩宝的游戏力完全不比兔子狗子她们差呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 12069#       发表于 2020-6-12 01:00
+
+
+
+
+能把木口那破事和同好会放一块说，我感觉这人脑回路挺难理解的，同好会仇恨值有什么高？
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 12070#       发表于 2020-6-12 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770666&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-12 00:55</a>
+
+滑轨道歉哪有在mea楼解决私人恩怨重要啊</blockquote>
+哦，你又知道了，毕竟他无限能骂的，能咒的
+
+我不能骂他了？qnmd
+
+
+
+
+
+
+QQ图片20200612005950.jpg
+(152.93 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/010031ohqgtgz8ghkgvetg.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200612005955.png
+(6.68 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/010031fi92ii662ci79zb8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+QQ图片20200612005958.jpg
+(42.05 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-12 01:00 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/010030hbzseuuqm6urqe6e.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 12071#       发表于 2020-6-12 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770627&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-6-12 00:50</a>
+呜呜呜，龙魂难道舔了无限的牛子吗。啥味道能分享一下吗无限去年弱智翻译的时候怎么没人喷呢呜呜呜。他道歉 ...</blockquote>
+你不就是无限吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12072#       发表于 2020-6-12 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770708&amp;ptid=1929631" target="_blank">ylssb10438 发表于 2020-6-12 00:59</a>
+还有3小时就是索尼播片了，什么时候能看到咩宝再一次正常地播些3a或者优秀独立游戏呢，明明咩宝的游戏力完 ...</blockquote>
+说就是不喜欢。没法和弹幕聊天。我看了这么久一直在思考日本人真的喜欢那些游戏么？不都是任天堂社交小游戏。mea喜欢lo和pubg我都觉得神奇，换成马车毫无违和感
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 12073#       发表于 2020-6-12 01:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770729&amp;ptid=1929631" target="_blank">睥睨寰宇荡红尘 发表于 2020-6-12 01:01</a>
+
+你不就是无限吗？</blockquote>
+爬，老子艺名et，我这个名字是无限制290，不是nmd无限
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12074#       发表于 2020-6-12 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770708&amp;ptid=1929631" target="_blank">ylssb10438 发表于 2020-6-12 00:59</a>
+还有3小时就是索尼播片了，什么时候能看到咩宝再一次正常地播些3a或者优秀独立游戏呢，明明咩宝的游戏力完 ...</blockquote>
+mea游戏力还算能用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但游戏品味还是小学生级的啊
+一个没接触过单机的人要喜欢上大作单机真的随缘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可遇不可求的
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 12075#       发表于 2020-6-12 01:04
+
+
+
+
+这不是很好理解吗？就盯着别人，一旦犯错马上跳出来踩，抬高自己的小团体，确实很难看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 12076#       发表于 2020-6-12 01:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770752&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-12 01:03</a>
+
+mea游戏力还算能用但游戏品味还是小学生级的啊
+
+一个没接触过单机的人要喜欢上大作单机真的随缘[f: ...</blockquote>
+搁这里聊游戏呢？不是要维护楼氛围？和孙红雷聊天这么开心？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12077#       发表于 2020-6-12 01:04
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 01:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770724&amp;ptid=1929631" target="_blank">Unlimited290 发表于 2020-6-12 01:00</a>
+哦，你又知道了，毕竟他无限能骂的，能咒的
+
+我不能骂他了？qnmd</blockquote>
+是啊，你去他动态骂，去他转发骂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干活没干好被人落井下石了，来mea楼找认同吗
+syl我啥时候说要维护楼气氛了，这所谓的“维护楼气氛”不是和“理客中”一样，都是你扣我的帽子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+zsyl你也别在这楼钓我对线了，这楼就是我就同好会这事回你的最后一楼，同好会干活有毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他落井下石是弱智啊，可你打架打到mea楼来，不管哪边来这解决私人恩怨我都当弱智好吧
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12078#       发表于 2020-6-12 01:05
+
+
+
+
+她之前说她喜欢和风所以才玩的只狼
+syl下次征集游戏时去推荐一下仁王之类的？希望她能突破一下自己偶尔播播这种大作（蹭蹭游戏热度）
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12079#       发表于 2020-6-12 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770732&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-6-12 01:01</a>
+
+说就是不喜欢。没法和弹幕聊天。我看了这么久一直在思考日本人真的喜欢那些游戏么？不都是任天堂社交小游 ...</blockquote>
+说实话真没必要强行聊天啊，她玩lol之类的游戏也没咋聊天啊，劣势了还经常自闭，玩些罐头沙盒赶路阶段不就可以聊天了吗，不聊天单纯吐槽剧情聊聊游戏里的内容也很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12080#       发表于 2020-6-12 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770752&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-12 01:03</a>
+mea游戏力还算能用但游戏品味还是小学生级的啊
+一个没接触过单机的人要喜欢上大作单机真的随缘[f: ...</blockquote>
+放屁。。游戏品味是啥婆罗门的玩意？能让人高兴的就是好游戏啊，其他的说法都是滑圈子玩优越感的。所谓的3a作品不比mea喜欢玩的lol高贵。
+
+
+
+
+
+
+
+-----
+
+####  keroko  
+##### 12081#       发表于 2020-6-12 01:06
+
+
+
+
+聊游戏的滚出去开楼啊，Mea楼聊尼玛游戏？
+
+
+
+
+
+
+
+-----
+
+####  Unlimited290  
+##### 12082#       发表于 2020-6-12 01:06
+
+
+
+ 本帖最后由 Unlimited290 于 2020-6-12 01:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770767&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-12 01:04</a>
+
+是啊，你去他动态骂，去他转发骂啊干活没干好被人落井下石了，来mea楼找认同吗 ...</blockquote>
+我找NM认同呢，皮套那比我骂了你还想如何，人作者也去找了
+
+道歉也发了，所以关她无限这死废物屁事了？
+
+他无限一次失误搁哪里he六字母壬YYGQ不给爷喷了？不如你给我你的睿站号我马上去喷？杏花自己碰赵丹批事他直接咒死？是不是还要同好会给他虚空造六字母糖啊，我去他妈的B
+
+风见个死人就不能圆润点，死彻底点，嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12083#       发表于 2020-6-12 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770774&amp;ptid=1929631" target="_blank">ylssb10438 发表于 2020-6-12 01:05</a>
+说实话真没必要强行聊天啊，她玩lol之类的游戏也没咋聊天啊，劣势了还经常自闭，玩些罐头沙盒赶路阶段不 ...</blockquote>
+播游戏就是不想和观众交流—mea（大意）
+我倒是觉得这样挺好的。。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12084#       发表于 2020-6-12 01:09
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 01:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770777&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-6-12 01:05</a>
+放屁。。游戏品味是啥婆罗门的玩意？能让人高兴的就是好游戏啊，其他的说法都是滑圈子玩优越感的。所谓的 ...</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的意思不是说品味高低之差啊，倒不如说我现在还挺喜欢王者荣耀的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的意思是对她这种游戏阅历，不有意去关注单机游戏的话，可能她都不会注意到那些单机大作啊，3A啦这种东西的存在
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12085#       发表于 2020-6-12 01:09
+
+
+
+
+lol+osu游戏主播
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12086#       发表于 2020-6-12 01:11
+
+
+
+
+咩姐玩osu当作业背景音正好，就是偶尔怪叫很断思路。。。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12087#       发表于 2020-6-12 01:16
+
+
+
+
+她不是还安利过养猪小游戏还玩得上瘾。。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12088#       发表于 2020-6-12 01:16
+
+
+
+
+日本有过QQ农场之类的东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12089#       发表于 2020-6-12 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770804&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-12 01:09</a>
+
+草我的意思不是说品味高低之差啊，倒不如说我现在还挺喜欢王者荣耀的
+
+我的意思是对她这种 ...</blockquote>
+就是没有主动去找游戏玩的冲动，基本上现在玩的游戏都或多或少是因为受别人影响，她本质上应该是把游戏当成社交工具
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12090#       发表于 2020-6-12 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770862&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-12 01:16</a>
+她不是还安利过养猪小游戏还玩得上瘾。。</blockquote>
+反正我看的最开心的是和犬山抽卡对决。。开心到不行可惜就一期。这个比单独抽卡有意思多了。但是挺考验酋长主播抗压能力的
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 12091#       发表于 2020-6-12 01:22
+
+
+
+
+算了
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 12092#       发表于 2020-6-12 01:24
+
+
+
+
+什么时候再播火柴人就好了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12093#       发表于 2020-6-12 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770934&amp;ptid=1929631" target="_blank">诡秘侍者 发表于 2020-6-12 01:24</a>
+什么时候再播火柴人就好了</blockquote>
+我记得是一直玩的。。估计也有一方面怕对粉丝不公平？
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 12094#       发表于 2020-6-12 01:26
+
+
+
+
+沒辦法，mea姊是玩金字塔頂端的遊戲—Tetris的上流玩家
+
+九成九的遊戲在俄羅斯方塊面前都會黯然失色
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12095#       发表于 2020-6-12 01:29
+
+
+
+
+其实我一直有点期待mea玩她传说中的铁拳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                              
