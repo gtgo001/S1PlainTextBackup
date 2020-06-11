@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 04:05** 
+> ## **本文件最后更新于2020-06-11 08:05** 
 
 
 
@@ -1181,7 +1181,7 @@ bsyl 还好不是祭丝，这也太麻烦了<img src="https://static.saraba1st.c
 
 
 -zue37Q5-d153KjT1kSak-4k.png
-(20.08 KB, 下载次数: 0)
+(20.08 KB, 下载次数: 1)
 
 
 
@@ -1246,4 +1246,457 @@ bsyl 还好不是祭丝，这也太麻烦了<img src="https://static.saraba1st.c
 
 
 
-                                               
+
+
+-----
+
+####  某穆克拉  
+##### 15065#       发表于 2020-6-11 04:05
+
+
+
+
+苔姨......
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 15066#       发表于 2020-6-11 05:15
+
+
+
+
+今晚老鼠台cod 27w观众。apex，不好看！cod，好看！<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15067#       发表于 2020-6-11 06:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47756651&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-11 00:09</a>
+
+说真的，如果我的推被人避讳成这样我心态早爆炸了
+
+黑宝真是仙人。</blockquote>
+楼下说的没错，我可不是什么圣人，只是因为不是主推所以还能勉强抗压<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+再说了，真抗不了就溜呗，是作业不气人了还是假面骑士不好看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15068#       发表于 2020-6-11 06:18
+
+
+
+
+说起来，早起翻推特就看见Astel好像暂休了？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15069#       发表于 2020-6-11 06:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夏吹入坑怎么都是单推夏，没有吹单推吗？啊，除了某个早就疯了的有名粉丝，我还挺少见到现在还主推白上桑的，而且体感对白上桑的好感度，okas粉&gt;mio粉&gt;其他&gt;星咏者&gt;祭丝&gt;crew=free&gt;黑宝。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15070#       发表于 2020-6-11 06:36
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-11 06:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757832&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 06:27</a>
+夏吹入坑怎么都是单推夏，没有吹单推吗？啊，除了某个早就疯了的有名粉丝，我还挺少见到现在还主推 ...</blockquote>
+狐皇的单推要么给她杀了要么被她改造成箱推了啊，见不到不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+你们之前说的狐狸去谁直播间踩就飙升，指不定就是那人直播间里被狐皇杀过一次的在踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15071#       发表于 2020-6-11 06:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757853&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 06:36</a>
+狐皇的单推要么给她杀了要么被她改造成箱推了啊，见不到不是很正常
+你们之前说的狐狸去谁直播间踩 ...</blockquote>
+白上桑自己播还是有6000-8000的稳定观众，不被撞甚至可能上万，怎么会没有狐gachi。我不能接受<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15072#       发表于 2020-6-11 06:50
+
+
+
+
+说起狐皇，既然白名单有Yostar嘛合作伙伴怎么可能不给许可，那这两天又要看她播舟混日子了呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">记得她播舟不抽卡同接相当低来着？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15073#       发表于 2020-6-11 06:53
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-11 06:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757881&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-11 06:50</a>
+说起狐皇，既然白名单有Yostar嘛合作伙伴怎么可能不给许可，那这两天又要看她播舟混日子了呗 ...</blockquote>
+yostar那可不是什么白名单，是大赦天下，是个人不违规就能播。狐狸玩粥不是很多人说操作气人拉血压么，她最近那个鲨鱼游戏混的已经很爽了，其他时候就找星联动和杂谈。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15074#       发表于 2020-6-11 06:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757885&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 06:53</a>
+
+yostar那可不是什么白名单，是大赦天下，是个人不违规就能播。狐狸玩粥不是很多人说操作气人拉血压么，她 ...</blockquote>
+原来直接是全部随便啊......狐皇玩舟操作确实挺气人的，她看起来是那种会找攻略的人，不会找拿头过CB-EX8怎么就啥也没学到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15075#       发表于 2020-6-11 07:14
+
+
+
+
+白上桑玩手游就是玩个抽卡和舔，花钱之外再花时间就不划算了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 15076#       发表于 2020-6-11 07:24
+
+
+
+
+我卡都抽了还浪费时间打游戏做什么.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15077#       发表于 2020-6-11 07:27
+
+
+
+
+狐狸播的一些游戏挺有趣的，单论游戏狗皇下位吧
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15078#       发表于 2020-6-11 07:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ヒトニナル  
+##### 15079#       发表于 2020-6-11 07:41
+
+
+
+
+那要看你有没有把ふぇありす算进女v里
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15080#       发表于 2020-6-11 07:41
+
+
+
+
+白上桑的体重到底是多少啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15081#       发表于 2020-6-11 07:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758036&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 07:39</a>
+单论体重，女V里有能超越白上桑的吗？没有就白上最上位</blockquote>
+胖≠重，肌肉密度远大于脂肪，所以最重的应该是又高又肌肉发达的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15082#       发表于 2020-6-11 07:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">白上小姐姐天天吃，应该是怎么都吃不胖的类型吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 15083#       发表于 2020-6-11 07:45
+
+
+
+
+小粥就比狐皇强一个量级吧
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 15084#       发表于 2020-6-11 07:46
+
+
+
+<blockquote>金魚佬 发表于 2020-6-11 07:39
+单论体重，女V里有能超越白上桑的吗？没有就白上最上位</blockquote>
+信姬能否一战？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 15085#       发表于 2020-6-11 07:46
+
+
+
+
+天天看V综黑狐姨肉体对狐皇的好感日渐增长，杏仁脑控呀没咯<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15086#       发表于 2020-6-11 07:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758064&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-11 07:46</a>
+天天看V综黑狐姨肉体对狐皇的好感日渐增长，杏仁脑控呀没咯</blockquote>
+我们只是希望更多的小年轻不要上狐皇的当，以免到时候被狐皇伤的心如死水<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+像你这种坦克驾驶员我们救不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15087#       发表于 2020-6-11 07:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758062&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-11 07:46</a>
+信姬能否一战？</blockquote>
+毕业了还不放过？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 15088#       发表于 2020-6-11 08:02
+
+
+
+
+我就是2020年还活着的狐推啊，狐皇杂谈力一直没下降你看昨天排水沟聊天活多好，天天车游戏力现在有几个套皮姐姐握有speedrun记录哦。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15089#       发表于 2020-6-11 08:02
+
+
+
+
+不知道算不算偏见，好像胖子比较容易发出高音调，那么反过来比较声音的尖锐程度是不是就可以比较体重的大小了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 15090#       发表于 2020-6-11 08:02
+
+
+
+
+有一说一，狐皇不发情的时候的直播还是很pro的
+啊这周除了鲨鱼都是在发情和乱动星啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 15091#       发表于 2020-6-11 08:03
+
+
+
+
+白姨手起刀落全杀光
+
+要么被转化成一般粉丝要么转推，难道不省心吗
+
+
+
+
+
+                                              
