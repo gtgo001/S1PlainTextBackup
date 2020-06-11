@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 16:03** 
+> ## **本文件最后更新于2020-06-11 20:05** 
 
 
 
@@ -24286,4 +24286,863 @@ mea感觉适合玩不带超能力的fps。。</blockquote>
 
 
 
-   
+
+
+-----
+
+####  cgz  
+##### 11894#       发表于 2020-6-11 16:57
+
+
+
+
+艹，在咩楼吹咩居然被扣鹅，还被说尬黑<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11895#       发表于 2020-6-11 17:02
+
+
+
+
+6点<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11896#       发表于 2020-6-11 17:03
+
+
+
+[https://www.youtube.com/watch?v=nFpdCJ7XyZU&amp;feature=youtu.be](https://www.youtube.com/watch?v=nFpdCJ7XyZU&amp;feature=youtu.be)
+
+待机间
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11897#       发表于 2020-6-11 17:06
+
+
+
+
+到家就有歌听，爽到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 11898#       发表于 2020-6-11 17:18
+
+
+
+
+星川和咩打完apex 还玩了黑白棋 恰独食不播就太可恶了.jpg
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 11899#       发表于 2020-6-11 17:18
+
+
+
+ 本帖最后由 清珏 于 2020-6-11 17:20 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/171957oysdewu6dupze4yw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>80EDF1B9-8ACE-464F-830A-5C41FBC87A2D.jpeg</strong> (356.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 17:19 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11900#       发表于 2020-6-11 17:26
+
+
+
+
+下播了还和星川玩了黑白棋还行（是哪个wuyi游戏kana？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11901#       发表于 2020-6-11 18:00
+
+
+
+
+要恰饭去了，悲💔<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 11902#       发表于 2020-6-11 18:02
+
+
+
+
+突了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11903#       发表于 2020-6-11 18:03
+
+
+
+
+酸了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11904#       发表于 2020-6-11 18:08
+
+
+
+
+酸死了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11905#       发表于 2020-6-11 18:11
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-11 18:17 编辑 
+
+这人一周不关电脑， 幻灭了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11906#       发表于 2020-6-11 18:17
+
+
+
+
+要播123小时还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11907#       发表于 2020-6-11 18:18
+
+
+
+ 本帖最后由 路人子 于 2020-6-11 18:26 编辑 
+
+电脑卡了重开一下
+
+（她也不知道是网卡还是电脑卡总之重开了一下
+
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 11908#       发表于 2020-6-11 18:23
+
+
+
+
+她这破网
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11909#       发表于 2020-6-11 18:24
+
+
+
+
+给我把网换了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 11910#       发表于 2020-6-11 18:32
+
+
+
+
+同居的朋友不要下片了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 11911#       发表于 2020-6-11 18:39
+
+
+
+
+这个滤镜是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11912#       发表于 2020-6-11 18:40
+
+
+
+
+为什么在贴吧也看到有人说滤镜的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这和平时有什么不同吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11913#       发表于 2020-6-11 18:41
+
+
+
+
+鬼佬浓度令人不安<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 11914#       发表于 2020-6-11 18:43
+
+
+
+
+B站转播和油管不一样啊，B站转播画面明显亮的多
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 11915#       发表于 2020-6-11 18:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是嗓子不好么，唱的有点哑，声音太尖锐了点
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11916#       发表于 2020-6-11 18:47
+
+
+
+
+因为口腔溃疡吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11917#       发表于 2020-6-11 18:47
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-11 18:50 编辑 
+
+看了一会404<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼佬一直在研究singing mea和normal mea之间的反差
+<img src="https://p.sda1.dev/0/df9cfa084b253dd788c0bfb6d6057ea2/-198075f3fdf4bddc.png" referrerpolicy="no-referrer">
+
+syl然后现在mea就开始芒果金果了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这波啊，应该叫组合拳
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11918#       发表于 2020-6-11 18:51
+
+
+
+
+这人靠着osu学歌的吗。。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11919#       发表于 2020-6-11 18:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">草，满嘴胡言
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11920#       发表于 2020-6-11 18:53
+
+
+
+
+日本人彻底疯了.JPG
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 11921#       发表于 2020-6-11 18:53
+
+
+
+
+草，给我整笑了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11922#       发表于 2020-6-11 18:57
+
+
+
+
+孩子唱得很开心，下次还来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 11923#       发表于 2020-6-11 19:05
+
+
+
+
+孩子这么喜欢挑战一人多役的歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 11924#       发表于 2020-6-11 19:08
+
+
+
+
+是翻车歌回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 11925#       发表于 2020-6-11 19:10
+
+
+
+
+拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11926#       发表于 2020-6-11 19:11
+
+
+
+
+草，这啥bgm
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11927#       发表于 2020-6-11 19:13
+
+
+
+
+mea再评价
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11928#       发表于 2020-6-11 19:13
+
+
+
+
+她开心就好<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11929#       发表于 2020-6-11 19:21
+
+
+
+
+命嫌好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11930#       发表于 2020-6-11 19:22
+
+
+
+
+这波是欲扬先抑啊
+
+好听
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11931#       发表于 2020-6-11 19:23
+
+
+
+
+这个完成度可以啊，好好好
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11932#       发表于 2020-6-11 19:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大爆笑场
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 11933#       发表于 2020-6-11 19:30
+
+
+
+
+这笑得也太开心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 11934#       发表于 2020-6-11 19:31
+
+
+
+
+最近是有什么高兴的事吗？看她笑的这么开心
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 11935#       发表于 2020-6-11 19:32
+
+
+
+
+她开场播的时候，边唱边自己乐呵乐呵半天了啊。。。虽然不知道乐呵什么
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11936#       发表于 2020-6-11 19:33
+
+
+
+
+被歌词的谐音黄段子逗笑了好像<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪来的小学生
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11937#       发表于 2020-6-11 19:34
+
+
+
+
+看隔壁holo开始准备3d直播了，估计她也有希望播3d了吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 11938#       发表于 2020-6-11 19:50
+
+
+
+
+这标题我要打人了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11939#       发表于 2020-6-11 19:51
+
+
+
+
+草白雪不要学苔苔啊魂淡(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 11940#       发表于 2020-6-11 19:58
+
+
+
+
+这个称呼她们要用多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11941#       发表于 2020-6-11 19:59
+
+
+
+
+冲国女王有什么不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11942#       发表于 2020-6-11 20:01
+
+
+
+
+尬，苔箱想都这么叫吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 11943#       发表于 2020-6-11 20:03
+
+
+
+
+空有名号没有对等收益，不大行。。。
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 11944#       发表于 2020-6-11 20:04
+
+
+
+
+现在咩不能算是中国女王了吧
+
+这样的叫法给我一种消费咩在中国的人气的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11945#       发表于 2020-6-11 20:04
+
+
+
+
+难道不是白雪问苔苔怎么写封面呀，苔苔说哎呀那当然是写你冲国女皇啊多有排面多吸睛啊。受伤的只有天狗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
