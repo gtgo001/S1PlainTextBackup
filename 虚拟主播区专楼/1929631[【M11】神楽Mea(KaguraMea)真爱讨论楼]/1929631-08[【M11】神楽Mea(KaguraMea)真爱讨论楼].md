@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 20:05** 
+> ## **本文件最后更新于2020-06-11 22:03** 
 
 
 
@@ -25145,4 +25145,955 @@ mea再评价
 
 
 
- 
+
+
+-----
+
+####  掉头学姐  
+##### 11946#       发表于 2020-6-11 20:06
+
+
+
+
+咩不在意的话我们只能接受了，等辉夜联动完hxd一起去杨了苔苔
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11947#       发表于 2020-6-11 20:06
+
+
+
+
+早不是了(눈_눈)，收益没有太尉和猫猫多，订阅没有狐狸狗妈，还迟早被大亏食杀。安安静静放咩咩做一个个人势小主播不好吗不好吗？
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11948#       发表于 2020-6-11 20:06
+
+
+
+
+要灵活运用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小麻还萌音之神，黄哥还电竞教父呢
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 11949#       发表于 2020-6-11 20:07
+
+
+
+
+历史地位你懂吗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11950#       发表于 2020-6-11 20:07
+
+
+
+
+什么时候苔苔给你了不能消费周围的东西造势的错觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+希望苔苔ptsd不要发展成苔箱ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11951#       发表于 2020-6-11 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">带人，时大变了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 11952#       发表于 2020-6-11 20:10
+
+
+
+ 本帖最后由 pabier 于 2020-6-11 20:15 编辑 
+
+海苔男<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+NoriPro<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+syl原来如此编辑了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11953#       发表于 2020-6-11 20:11
+
+
+
+
+说白了就是吹牛逼罢了，吹的人不在意，受用的人不在意，不也就那么回事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f280027946c853a33f97067777b09651/IMG_7BBC65C6D04C729C9FF348E1C3B866E4.jpeg" referrerpolicy="no-referrer">
+
+不过我倒是挺好奇她俩能聊啥的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想不出她俩的交集
+
+syl不是说到椎名苹果说了两声西西么，跟西西没啥关系吧
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11954#       发表于 2020-6-11 20:14
+
+
+
+
+草
+<img src="https://p.sda1.dev/0/68c41920ef4ddc33b4b95c1d0df9aaf7/874B9C484E44017B94D026A8C9669764.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11955#       发表于 2020-6-11 20:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47767084&amp;ptid=1929631" target="_blank">龙魂绯影 发表于 2020-6-11 20:14</a>
+草</blockquote>
+你这发的什么玩意.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11956#       发表于 2020-6-11 20:16
+
+
+
+[https://b23.tv/BV1ov411z7h6](https://b23.tv/BV1ov411z7h6)
+还没下播就剪了草
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11957#       发表于 2020-6-11 20:30
+
+
+
+
+轱辘轱辘，切了
+
+
+syl，苔苔这烂梗头子属实不行，之前说的“在赤坂联动后的1小时内不说苔姨是大龄剩女了”时间缩短为“15分钟内”
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 11958#       发表于 2020-6-11 20:31
+
+
+
+
+苔姨不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11959#       发表于 2020-6-11 20:37
+
+
+
+
+什么,还有人能忍15min<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11960#       发表于 2020-6-11 20:44
+
+
+
+
+这位居然又开了个小号上会员可还行
+
+<img src="https://img.saraba1st.com/forum/202006/11/204432n2jbojzhrjjhn8go.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (9.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 20:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 11961#       发表于 2020-6-11 20:45
+
+
+
+
+要被雷普力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11962#       发表于 2020-6-11 20:48
+
+
+
+
+快，楼友快开个3号机欧尼七七
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 11963#       发表于 2020-6-11 20:49
+
+
+
+
+咩害怕到声音抖起来，我好兴奋啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11964#       发表于 2020-6-11 20:50
+
+
+
+
+鬼父军团<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11965#       发表于 2020-6-11 20:51
+
+
+
+
+别吓咩啊不然她晚上睡不着又要突击力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 11966#       发表于 2020-6-11 20:59
+
+
+
+
+喜欢这种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 11967#       发表于 2020-6-11 20:59
+
+
+
+
+这丫头是真的适合苦情歌
+
+就是<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11968#       发表于 2020-6-11 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 11969#       发表于 2020-6-11 21:00
+
+
+
+
+我可以<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11970#       发表于 2020-6-11 21:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈欠都出来了草生
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11971#       发表于 2020-6-11 21:00
+
+
+
+
+草，鬼父3号开始了
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 11972#       发表于 2020-6-11 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+唱的好听就好
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11973#       发表于 2020-6-11 21:02
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-11 21:05 编辑 
+
+草，换个头像吧
+三号还真换了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 11974#       发表于 2020-6-11 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 11975#       发表于 2020-6-11 21:03
+
+
+
+
+上完会员就给人推荐sl和fanbox<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11976#       发表于 2020-6-11 21:03
+
+
+
+
+她直播间好像又被404藏了？话说这个会员是谁啊？太草了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 11977#       发表于 2020-6-11 21:06
+
+
+
+
+这真是一个人吗？有可能是看风向改名搞着玩的其他观众?
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11978#       发表于 2020-6-11 21:11
+
+
+
+
+草，已经播了三个多小时了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 11979#       发表于 2020-6-11 21:11
+
+
+
+
+咩b站转播间好像有人刷gd的东西<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11980#       发表于 2020-6-11 21:12
+
+
+
+
+举报了房管也及时处理了，应该。。没什么事吧
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 11981#       发表于 2020-6-11 21:12
+
+
+
+
+要么狂摸,要么播爆
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11982#       发表于 2020-6-11 21:13
+
+
+
+
+这能有啥事，国内转播没有就行
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 11983#       发表于 2020-6-11 21:14
+
+
+
+
+这种nt给他愉悦送走就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11984#       发表于 2020-6-11 21:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">感觉你麻要在悲伤的情绪才能唱这歌，要不然一直想笑
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 11985#       发表于 2020-6-11 21:16
+
+
+
+
+在听着看了一眼，发现有人在发啥等房管，还以为是什么呢，往前看了看发现了个真就嗯冲的，逗乐我了。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11986#       发表于 2020-6-11 21:17
+
+
+
+
+“mea适合唱被摔的歌”
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 11987#       发表于 2020-6-11 21:19
+
+
+
+
+→“这女人真的适合被甩”（）
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 11988#       发表于 2020-6-11 21:23
+
+
+
+
+吃饭呢，我在背景音里都听了些什么<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 11989#       发表于 2020-6-11 21:23
+
+
+
+
+这奶声奶气的一声咩草死我了，真想把她吊起来抽几鞭子
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 11990#       发表于 2020-6-11 21:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">挂后台听的我要死了
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 11991#       发表于 2020-6-11 21:25
+
+
+
+
+抽鞭子已经不属于咩虐范围了吧，害怕<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 11992#       发表于 2020-6-11 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47767277&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-11 20:30</a>
+
+轱辘轱辘，切了
+
+
+syl，苔苔这烂梗头子属实不行，之前说的“在赤坂联动后的1小时内不说苔姨是大龄剩女了”时 ...</blockquote>
+海苔男不仅是一个烂梗玩到死，你不喜欢她玩烂梗她让你爱看看不看滚不说，观众玩烂梗玩多了她又觉得烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 11993#       发表于 2020-6-11 21:27
+
+
+
+
+阿咩这边鬼佬浓度好高，惊了。
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11994#       发表于 2020-6-11 21:28
+
+
+
+
+不要抽鞭子,身上会留印子的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 11995#       发表于 2020-6-11 21:29
+
+
+
+
+没事，阿咩衣服露出度低，看不出来
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 11996#       发表于 2020-6-11 21:33
+
+
+
+
+说不定穿这么严实就是为了掩盖藏不住的鞭子印<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 11997#       发表于 2020-6-11 21:35
+
+
+
+有人分析一下一个鬼佬石油王的概率是多少吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+W`WBH67V)%AWK}}{H]Q1R%J.png
+(9.66 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-11 21:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/213359wtiofffais6fl9ff.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 11998#       发表于 2020-6-11 21:38
+
+
+
+
+不是吧，昨天才奶过，今天就有鬼佬石油王了吗？我不信<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 11999#       发表于 2020-6-11 21:42
+
+
+
+
+感觉是国人吧，不会日语打英语这种的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12000#       发表于 2020-6-11 21:49
+
+
+
+
+今天好持 久啊(#ﾟДﾟ)，就是翻的有点多(ಡωಡ) 。syl油管17.3了，怎么最近这么猛的
+
+
+
+
+
