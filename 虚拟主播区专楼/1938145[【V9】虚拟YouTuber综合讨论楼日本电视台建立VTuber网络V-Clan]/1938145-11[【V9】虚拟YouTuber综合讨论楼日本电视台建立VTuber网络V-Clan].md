@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 02:08** 
+> ## **本文件最后更新于2020-06-12 04:07** 
 
 
 
@@ -18835,7 +18835,7 @@ SAN一下掉了多少。。。？</blockquote>临时疯狂 5以上
 
 
 
-<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_SpepW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_vitIE" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 那个人要播了
 
@@ -19762,10 +19762,11 @@ syl，江的健身环还有五分钟就开了
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|欢乐多|
 | crawarb| + 1|bad onion|
 
 
@@ -20217,10 +20218,11 @@ GM最强，然后mysk
 
 
 
- 参与人数 1战斗力 -2
+ 参与人数 2战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1|多长长脸|
 | zaku11ku|-2|看你挺开心的，多开心开心|
 
 
@@ -24420,10 +24422,12 @@ APEX抱路人大腿一枪没开拿了两次第一，我怎么感觉我屏幕上�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|好评加鹅|
+| 蛋炒蜂窝煤| + 1|大概是最近v综最有价值的一层了.|
 | 离魂仙| + 1|鼓励分|
 
 
@@ -27080,7 +27084,7 @@ FH、RH都是月之的错
 
 
 EaPyKSdU0AYBf8X.jpeg
-(37.32 KB, 下载次数: 0)
+(37.32 KB, 下载次数: 2)
 
 
 
@@ -28160,4 +28164,835 @@ FPS最该看得难道不是井皇吗？想看枪那位新人可以去B站搜帕�
 
 
 
-  
+
+
+-----
+
+####  kanonsisya  
+##### 16425#       发表于 2020-6-12 02:08
+
+
+
+
+喜欢看打枪还是看老鼠台吧 简单男孩他不香吗？cod wz不香吗？何必看费拉不堪的管人玩着沙雕apex和缝合怪valorant<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16426#       发表于 2020-6-12 02:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771197&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 03:03</a>
+
+是代打吗。。
+
+其实看萌萌美少女打枪打的和那帮twitch老爷们一样好也挺违和的，打的菜又高血压，挺矛盾的
+
+希 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">怪不得老哥喜欢看兔皇打游戏啊，因为兔皇现在几乎不玩fps，都是玩有剧情的大作，不知老哥是否🈶️补过兔皇一战成名的mgs系列呢
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 16427#       发表于 2020-6-12 02:09
+
+
+
+ 本帖最后由 kbtit 于 2020-6-12 03:10 编辑 
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  冬瓜饭  
+##### 16428#       发表于 2020-6-12 02:09
+
+
+
+
+说道打枪，为啥不来看看Uge打枪呢呢，刚才Apex决赛圈共5队，独狼吃鸡呢
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16429#       发表于 2020-6-12 02:10
+
+
+
+
+好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+井皇的FPS的实力在V综得到承认了，一直以来的repo没有全部木大（虽然可能和我没有关系就是了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">）
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16430#       发表于 2020-6-12 02:10
+
+
+
+
+老哥们理解错了啊，我的意思是不喜欢看管人打fps。。。
+另外当然只看美少女，谁要看臭男人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16431#       发表于 2020-6-12 02:10
+
+
+
+
+巧可b站直播间给封了，不过封多久不知道。最近好像有b限应该是白给了。
+
+希望是保护性封禁。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16432#       发表于 2020-6-12 02:10
+
+
+
+
+猫宫代打这经典车轱辘了，就是放以前也是当做常识的，只在游戏部和老爱代打问题上有的吵
+
+她要是全自己打的那可是当下的唯一神了，就算杏想收人都看不上的
+
+猫宫真正讲不清的还是那个二役的问题，一开始都当是真的，但后来有反面论据，随着茜换人现在也死无对证了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16433#       发表于 2020-6-12 02:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771230&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-12 02:10</a>
+好起来了
+井皇的FPS的实力在V综得到承认了，一直以来的repo没有全部木大（虽然可能和我没有关系就是 ...</blockquote>
+井皇的fps实力自从管人圈APEX浪潮之后就没人否认过吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 16434#       发表于 2020-6-12 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771230&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-12 02:10</a>
+
+好起来了
+
+井皇的FPS的实力在V综得到承认了，一直以来的repo没有全部木大（虽然可能和我没有关系就是 ...</blockquote>
+说了半天，井皇到底有没有哈弟厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 16435#       发表于 2020-6-12 02:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771222&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-12 02:08</a>
+怪不得老哥喜欢看兔皇打游戏啊，因为兔皇现在几乎不玩fps，都是玩有剧情的大作，不知老哥是否🈶️ ...</blockquote>
+可以的，谢谢推荐，到时候去补一补
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16436#       发表于 2020-6-12 02:12
+
+
+
+
+sephira是少数玩横板过关和玩壶不会大喊大叫到破音的管人，受挫了轻轻笑一下就继续，这点我很喜欢，还有mee的声线过于合我胃口
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16437#       发表于 2020-6-12 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771239&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-12 02:12</a>
+说了半天，井皇到底有没有哈弟厉害啊</blockquote>
+没有，但他确实是B站知名管人里fps最厉害的了，这点应该没人否认<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16438#       发表于 2020-6-12 02:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/021343fm4bm6dy6974fbbv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaI43jcUMAARWGE.jpg</strong> (200.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 02:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/021344jow8w0bjeucc4o0s.png" referrerpolicy="no-referrer">
+
+
+<strong>0612021230.png</strong> (389.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 02:13 上传
+
+
+
+
+
+[https://twitter.com/syu_feena/status/1270640580951805952](https://twitter.com/syu_feena/status/1270640580951805952)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16439#       发表于 2020-6-12 02:15
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-12 02:12
+sephira是少数玩横板过关和玩壶不会大喊大叫到破音的管人，受挫了轻轻笑一下就继续，这点我很喜欢，还有mee ...</blockquote>
+那我觉得WTM也有这样的潜质(扶额苦笑
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 16440#       发表于 2020-6-12 02:16
+
+
+
+ 本帖最后由 wsotaku 于 2020-6-12 02:18 编辑 
+
+还经纪人呢，不是肥妹主动去当炮灰哪会这样嘻嘻；mio妈也是托辞而已，也是个姨谁不懂社交辞令呀
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16441#       发表于 2020-6-12 02:17
+
+
+
+
+35这加起来有五六个小时了吧，还在门口啊。
+
+感觉应该适可而止了。。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 16442#       发表于 2020-6-12 02:17
+
+
+
+ 本帖最后由 aele 于 2020-6-12 02:25 编辑 
+
+数字挺好的，好像上w了
+
+
+壶男虽然是坨屎，但里面有金子，你说要不要吧
+
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 16443#       发表于 2020-6-12 02:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771239&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-12 02:12</a>
+说了半天，井皇到底有没有哈弟厉害啊</blockquote>
+没看过哈弟，但是听楼友们的描述应该是不如哈弟的吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+我觉得游戏力只是一部分，井皇玩APEX是真的在玩游戏，是那种很游刃有余的，不是在竞技或者是被游戏折磨（这里又想再劈一下那个女人啊，还是基德吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 16444#       发表于 2020-6-12 02:22
+
+
+
+ 本帖最后由 面具13 于 2020-6-12 02:29 编辑 
+
+miko要搞ps5发布会同步视听（一边玩壶男一边看）。算了我也熬一熬看发布会吧。
+
+miko表示玩吐了
+
+miko这回家的尖叫让我彻底不困了
+
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 16445#       发表于 2020-6-12 02:24
+
+
+
+
+miko上次看索尼的ssd发布会就睡着了，这次希望发布会爆点多一些吧，起码别让人趴在电脑前睡着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16446#       发表于 2020-6-12 02:25
+
+
+
+
+直播间封禁没标注时间的默认是无期限<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+等等看后续处理吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16447#       发表于 2020-6-12 02:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771232&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 02:10</a>
+
+巧可b站直播间给封了，不过封多久不知道。最近好像有b限应该是白给了。
+
+希望是保护性封禁。 ...</blockquote>
+珍珠奶茶一样的
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16448#       发表于 2020-6-12 02:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771253&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-12 02:15</a>
+
+那我觉得WTM也有这样的潜质(扶额苦笑</blockquote>
+watame只看过一点点，音色不是非常喜欢的那种，硬要说的话，比较喜欢能让我有安心感的，比如sephira和宗谷ichika
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16449#       发表于 2020-6-12 02:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771288&amp;ptid=1938145" target="_blank">y78348877 发表于 2020-6-12 02:24</a>
+
+miko上次看索尼的ssd发布会就睡着了，这次希望发布会爆点多一些吧，起码别让人趴在电脑前睡着 ...</blockquote>
+反正今天holo睡着的直播也不是第一个了
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 16450#       发表于 2020-6-12 02:29
+
+
+
+
+即便只有一点点人气，也会成为很辛苦的工作就是了。
+<img src="https://p.sda1.dev/0/ad20553249ec09ee8132c5593371cdcf/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/21457542624c774929b20dde25a873bb/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f55d9796cb2b7cb8b707c54975d81ac4/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2ca535831fc62d2ceabb0926ea4308e7/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16451#       发表于 2020-6-12 02:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771289&amp;ptid=1938145" target="_blank">SuntoryNomu 发表于 2020-6-12 02:25</a>
+
+直播间封禁没标注时间的默认是无期限
+
+等等看后续处理吧</blockquote>
+夸皇珍珠奶茶就一周出来了
+
+没屁事
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16452#       发表于 2020-6-12 02:30
+
+
+
+
+这次反应得快是不是说明hololive中国运营不再是三个人负责了？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 16453#       发表于 2020-6-12 02:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771265&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-12 02:17</a>
+
+数字挺好的，好像上w了
+
+
+壶男虽然是坨屎，但里面有金子，你说要不要吧</blockquote>
+miko『壶里装的都是尿』
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16454#       发表于 2020-6-12 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771265&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-12 02:17</a>
+
+数字挺好的，好像上w了
+
+
+壶男虽然是坨屎，但里面有金子，你说要不要吧</blockquote>
+不要啊，又不是只有这一坨金子。。syl，四期生好像和aki关系都不错。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16455#       发表于 2020-6-12 02:34
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-12 02:29
+watame只看过一点点，音色不是非常喜欢的那种，硬要说的话，比较喜欢能让我有安心感的，比如sephira和宗 ...</blockquote>
+我去听了以后，反而开始怀疑自己对安心感的定义了，感觉音色差距也不是很大啊(扶额)
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 16456#       发表于 2020-6-12 02:34
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-12 02:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771306&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-12 02:30</a>
+
+夸皇珍珠奶茶就一周出来了
+
+没屁事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也是
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">顺带看了眼👆👆👆直播间还封着呢
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16457#       发表于 2020-6-12 02:34
+
+
+
+
+哈弟是前ow职业选手，井皇拿头去比。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16458#       发表于 2020-6-12 02:35
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-12 02:30
+这次反应得快是不是说明hololive中国运营不再是三个人负责了？</blockquote>
+毕竟cover本社新发了海外运营**，打算好好建设了吧
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16459#       发表于 2020-6-12 02:36
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-12 02:34
+我去听了以后，反而开始怀疑自己对安心感的定义了，感觉音色差距也不是很大啊(扶额) ...</blockquote>
+这纯粹是我个人的感觉，不可能套在每个人身上都一样
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16460#       发表于 2020-6-12 02:37
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-12 02:35
+毕竟cover本社新发了海外运营**，打算好好建设了吧</blockquote>
+大概是吃了兔组的亏
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16461#       发表于 2020-6-12 02:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771139&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-12 01:52</a>
+
+这个评价可能更适合b综</blockquote>
+b综哪来各家信者，不就只有维阿吗
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16462#       发表于 2020-6-12 02:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/024143v65ua6hogga00sw5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mito.jpg</strong> (123.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 02:41 上传
+
+
+
+
+
+
+[https://twitter.com/lemon_mito/status/1271112385680441346](https://twitter.com/lemon_mito/status/1271112385680441346)
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 16463#       发表于 2020-6-12 02:51
+
+
+
+ 本帖最后由 qesto 于 2020-6-12 03:04 编辑 
+
+看了下永久封禁应该是有注明的，巧可的应该就是保护性封禁了
+
+<img src="https://img.saraba1st.com/forum/202006/12/025058p120soses2atsyay.png" referrerpolicy="no-referrer">
+
+
+<strong>660Z.png</strong> (63.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 02:50 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 16464#       发表于 2020-6-12 02:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771338&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-12 02:38</a>
+
+b综哪来各家信者，不就只有维阿吗</blockquote>
+本来就是v的信者，难道你觉得v综有运营信？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16465#       发表于 2020-6-12 03:49
+
+
+
+ 本帖最后由 A2014720 于 2020-6-12 03:52 编辑 
+
+看到了
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 16466#       发表于 2020-6-12 04:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771234&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-12 02:10</a>
+猫宫代打这经典车轱辘了，就是放以前也是当做常识的，只在游戏部和老爱代打问题上有的吵
+
+她要是全自己打的 ...</blockquote>
+啥时候换的，都没个消息的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+悄梭梭换的还是明牌换的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
