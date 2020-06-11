@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 04:07** 
+> ## **本文件最后更新于2020-06-12 06:07** 
 
 
 
@@ -18835,7 +18835,7 @@ SAN一下掉了多少。。。？</blockquote>临时疯狂 5以上
 
 
 
-<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_vitIE" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_w1bQ4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 那个人要播了
 
@@ -24422,10 +24422,11 @@ APEX抱路人大腿一枪没开拿了两次第一，我怎么感觉我屏幕上�
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 金魚佬| + 1|郡道：分手，下一题|
 | argaregeasr| + 1|好评加鹅|
 | 蛋炒蜂窝煤| + 1|大概是最近v综最有价值的一层了.|
 | 离魂仙| + 1|鼓励分|
@@ -28995,4 +28996,134 @@ b综哪来各家信者，不就只有维阿吗</blockquote>
 
 
 
- 
+
+
+-----
+
+####  talse  
+##### 16467#       发表于 2020-6-12 04:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771189&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-12 02:02</a>
+
+猫宫代打我记得没有实锤啊</blockquote>
+猫宫又不是绝对不直播，一个靠超高FPS水平火的油罐主播一次都没直播过FPS，已经没实锤不实锤的必要了吧
+
+
+
+
+
+
+
+-----
+
+####  KKKt  
+##### 16468#       发表于 2020-6-12 04:37
+
+
+
+ 本帖最后由 KKKt 于 2020-6-12 04:39 编辑 
+
+打枪好的有uge，花芽姐妹
+
+问题是你们看吗
+
+
+Syl，ps5发布会在日本深夜5点六国（不含中国）合砍 接近40w同接，封个玉皇大帝不过分吧
+
+
+跟上次nasa比咋样我忘了。不过我记得都比懂王牛逼
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16469#       发表于 2020-6-12 04:44
+
+
+
+ 本帖最后由 crawarb 于 2020-6-12 04:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771816&amp;ptid=1938145" target="_blank">KKKt 发表于 2020-6-12 04:37</a>
+
+打枪好的有uge，花芽姐妹
+
+问题是你们看吗</blockquote>
+你看错了，有个英语频道同接200W了,其他的加起来60W.上次spaceX那个频道是400W
+
+<img src="https://img.saraba1st.com/forum/202006/12/044716w1du872b188m7ctd.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获.PNG</strong> (189.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 04:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 16470#       发表于 2020-6-12 04:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771816&amp;ptid=1938145" target="_blank">KKKt 发表于 2020-6-12 04:37</a>
+
+打枪好的有uge，花芽姐妹
+
+问题是你们看吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">我怀疑你在看不起一之瀬！
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16471#       发表于 2020-6-12 05:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">德不配位，这也太拉胯了
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 16472#       发表于 2020-6-12 05:31
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-12 01:43
+V综居然有看sephira的</blockquote>
+不奇怪吧，像我订阅就3个人，露露，神城，苏
+
+
+
+
+
