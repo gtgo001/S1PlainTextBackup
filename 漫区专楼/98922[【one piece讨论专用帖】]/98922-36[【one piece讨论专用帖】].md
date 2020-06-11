@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 14:24** 
+> ## **本文件最后更新于2020-06-11 12:01** 
 
 
 
@@ -632,16 +632,22 @@
 
 
 
+<img src="https://img.saraba1st.com/forum/202005/03/092948uppgkcsbhllv34z5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f30942a7d933c89581682512c61373f082020076 (1).jpg</strong> (110.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-5-3 09:29 上传
+
+
+
+
+
 
 
 这张图是哪一话里的～～～<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
-
-
-<strong>本帖子中包含更多资源</strong>
-您所在的用户组无法下载或查看附件
-
-x
-
 
 
 
@@ -2044,10 +2050,63 @@ B漫这分页看得真难受</blockquote>
 海上第七个皇帝诞生了
 
 
-<strong>本帖子中包含更多资源</strong>
-您所在的用户组无法下载或查看附件
 
-x
+
+
+
+BbsImg_9951571866222_1590070542_s_161646_o_w_669_h_1019_50862.webp.jpg
+(509.47 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-22 09:23 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/22/092337owqnjhvwr7gvuhnu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+BbsImg_9951571866222_1590070546_s_169416_o_w_656_h_1024_14562.webp.jpg
+(508.42 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-5-22 09:23 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202005/22/092342dixoodz7kkooz1co.jpg" referrerpolicy="no-referrer">
+
+
+
+
 
 
 
@@ -4384,4 +4443,1132 @@ one piece就在我身后！最后的敌人：伊姆一出场就把大妈团跟�
 
 
 
-                                         
+
+
+-----
+
+####  athena_1982  
+##### 52743#       发表于 2020-6-6 15:08
+
+
+
+
+乔巴跟大妈还真是有缘<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  大小白帝  
+##### 52744#       发表于 2020-6-6 19:07
+
+
+
+<blockquote>贾坤赫加尔 发表于 2020-6-6 10:17
+不看这一话都忘了小马哥好歹也是皇副级别
+
+还是吃了初登场的亏，起点的舞台就太高了 ...</blockquote>
+小马初登场还吃亏呢，一皇战三将皇副平大将这话现在还有人喊呢
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 52745#       发表于 2020-6-6 19:15
+
+
+
+<blockquote>24k纯帅 发表于 2020-6-6 06:41
+静静果实本来应该就是完克震震，因为声波是机械波，能停声波就能停地震波 ...</blockquote>
+不直接震对方 震大海大地 用海啸地裂攻击就可以了吧
+
+
+
+
+
+
+
+-----
+
+####  贾坤赫加尔  
+##### 52746#       发表于 2020-6-6 19:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700529&amp;ptid=98922" target="_blank">大小白帝 发表于 2020-6-6 19:07</a>
+
+小马初登场还吃亏呢，一皇战三将皇副平大将这话现在还有人喊呢</blockquote>
+接了一发aoe的时髦值早就让被一个中将海楼石突击导致半场掉线的吃瘪值抵消了
+
+不过非要说的话也是沾了掉线的便宜，你看三队队长有人喊皇副平大将么
+
+
+
+
+
+
+
+-----
+
+####  穆  
+##### 52747#       发表于 2020-6-6 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700736&amp;ptid=98922" target="_blank">贾坤赫加尔 发表于 2020-6-6 19:22</a>
+
+接了一发aoe的时髦值早就让被一个中将海楼石突击导致半场掉线的吃瘪值抵消了
+
+不过非要说的话也是沾了掉线 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+掉线（X）
+
+升级（O）
+
+现在回想一下 顶上之战还是画的太快了 
+
+
+
+
+
+
+
+-----
+
+####  梁皇无忌  
+##### 52748#       发表于 2020-6-6 22:28
+
+
+
+
+所以大妈团的真核心是卡二？
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 52749#       发表于 2020-6-7 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47694366&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-6-6 06:41</a>
+
+静静果实本来应该就是完克震震，因为声波是机械波，能停声波就能停地震波 ...</blockquote>
+克拉松是尾田留给黑胡子的伏笔吧
+
+
+用罗插入到草帽，牵出克拉松，最终战前引出克拉松果实继承者（和罗这边的故事完美搭上续上结局），用静静果实防止黑胡子大招aoe（但也因此尽了全力），一来让草帽和黑胡子安心单挑；二来只是防止aoe实际单挑能力没下降，草帽也不算多打少胜。
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52750#       发表于 2020-6-7 02:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就口嗨了一句靜靜果實剋振動，怎麼就連黑鬍子都安排了……要是柯拉真有剋白鬍能力，那他真的是死太早了……
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52751#       发表于 2020-6-7 09:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700736&amp;ptid=98922" target="_blank">贾坤赫加尔 发表于 2020-6-6 19:22</a>
+
+接了一发aoe的时髦值早就让被一个中将海楼石突击导致半场掉线的吃瘪值抵消了
+
+不过非要说的话也是沾了掉线 ...</blockquote>
+他还踹飞了青鸡让青鸡吐血了
+
+
+
+
+
+
+
+-----
+
+####  沈经文  
+##### 52752#       发表于 2020-6-7 14:14
+
+
+
+
+小马哥战斗方面纯血包啊，组织能力就更不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过出场早硬刚大将蛮加分的，卡二就感觉离大将还有段距离。
+
+
+
+
+
+
+
+-----
+
+####  大小白帝  
+##### 52753#       发表于 2020-6-7 19:43
+
+
+
+<blockquote>沈经文 发表于 2020-6-7 14:14
+小马哥战斗方面纯血包啊，组织能力就更不行了不过出场早硬刚大将蛮加分的，卡二就感觉离大将还有段 ...</blockquote>
+把卡二请出来踢飞大妈船可破
+
+
+
+
+
+
+
+-----
+
+####  zero12  
+##### 52754#       发表于 2020-6-7 19:52
+
+
+
+
+小马被卡普锤了丢人吧？
+
+
+
+
+
+
+
+-----
+
+####  zero12  
+##### 52755#       发表于 2020-6-7 19:52
+
+
+
+
+小马被卡普锤了不丢人吧？
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52756#       发表于 2020-6-7 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47706308&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-6-7 09:06</a>
+
+他还踹飞了青鸡让青鸡吐血了</blockquote>
+让阿鸡吐血的不是钻石嘛，不过钻石后面被阿鸡给彻底打得退出战场，还残了。鸡哥的任务算是完成了。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52757#       发表于 2020-6-7 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700736&amp;ptid=98922" target="_blank">贾坤赫加尔 发表于 2020-6-6 19:22</a>
+
+接了一发aoe的时髦值早就让被一个中将海楼石突击导致半场掉线的吃瘪值抵消了
+
+不过非要说的话也是沾了掉线 ...</blockquote>
+小马哥最惨不是这个，是后面带着花剑和一大堆队长围殴残血狗哥，还打不动人家。相比下被卡普一拳锤飞都不刷大的问题。
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52758#       发表于 2020-6-7 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712646&amp;ptid=98922" target="_blank">武男 发表于 2020-6-7 20:00</a>
+
+让阿鸡吐血的不是钻石嘛，不过钻石后面被阿鸡给彻底打得退出战场，还残了。鸡哥的任务算是完成了。 ...</blockquote>
+他踢吐血了
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52759#       发表于 2020-6-7 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712659&amp;ptid=98922" target="_blank">武男 发表于 2020-6-7 20:02</a>
+
+小马哥最惨不是这个，是后面带着花剑和一大堆队长围殴残血狗哥，还打不动人家。相比下被卡普一拳锤飞都不 ...</blockquote>
+这个确实，当时赤犬已经被白胡子重伤了，记得还有个画面，有个队长被赤犬烧了，其他队长束手无策。 
+
+
+
+
+
+
+
+-----
+
+####  terry666  
+##### 52760#       发表于 2020-6-7 22:15
+
+
+
+
+目前感觉三将星和三灾就差了一个档次 将星除了卡二另外俩就是草包 虽然三灾这边杰克和奎因也没啥逼格 但人家凯多还有一堆凌空六子这样的次级战力 大妈这边给人的感觉就像一群乱七八糟的乌合之众 长得丑还没啥战力表现
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52761#       发表于 2020-6-7 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713968&amp;ptid=98922" target="_blank">terry666 发表于 2020-6-7 22:15</a>
+
+目前感觉三将星和三灾就差了一个档次 将星除了卡二另外俩就是草包 虽然三灾这边杰克和奎因也没啥逼格 但人 ...</blockquote>
+杰克有藤虎当垫脚石，虽然可能是藤虎不知道他是鱼人，不过去惹了藤虎跟战国还能活下来，还打沉了船。但是前面罗也打沉过，估计还是信息不对等的问题，要是知道他是鱼人，大概率就会找海楼石捆着他了。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52762#       发表于 2020-6-7 22:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713869&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2020-6-7 22:06</a>
+
+这个确实，当时赤犬已经被白胡子重伤了，记得还有个画面，有个队长被赤犬烧了，其他队长束手无策。  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小马哥那时候带着白团精锐战斗力居然不说帮艾斯复仇，那里就显得有些气弱了，但没想到真的搞不定残血红狗，还被狗哥反杀。顶上如果不是战国要看着卡普发疯，感觉白团确实难打。卡普和战国围殴白胡子，三大将去收割，也难怪白胡子确实是抱着同归于尽的心态来打。
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 52763#       发表于 2020-6-7 22:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47713968&amp;ptid=98922" target="_blank">terry666 发表于 2020-6-7 22:15</a>
+
+目前感觉三将星和三灾就差了一个档次 将星除了卡二另外俩就是草包 虽然三灾这边杰克和奎因也没啥逼格 但人 ...</blockquote>
+大妈家颜值高的妹子不少，像这位只看外形就比划水姬好不少<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/07/223945if3ggq3g0048zx14.jpg" referrerpolicy="no-referrer">
+
+
+<strong>234f43f34f43f43f44f.jpg</strong> (162.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-7 22:39 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52764#       发表于 2020-6-7 22:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47712937&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-6-7 20:29</a>
+
+他踢吐血了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是阿鸡和白胡子僵持的时候也被钻石打伤过，不过后面钻石一分心就被他打得再起不能了。留点血在海贼倒是不算什么。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52765#       发表于 2020-6-7 22:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47695492&amp;ptid=98922" target="_blank">贾坤赫加尔 发表于 2020-6-6 10:17</a>
+
+不看这一话都忘了小马哥好歹也是皇副级别
+
+还是吃了初登场的亏，起点的舞台就太高了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">让小马哥吃瘪的人都不是好惹的啊，猴子能压制体力不足的雷利，处决前大将。狗哥这个现任海军元帅也是如此。卡普就更不用说了，金狮子都被卡普和战国活捉，挨打一拳不是很正常嘛。
+
+
+
+
+
+
+
+-----
+
+####  獭祭  
+##### 52766#       发表于 2020-6-7 22:54
+
+
+
+
+现在腾讯不让看了，能看的只能去贴吧么？
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 52767#       发表于 2020-6-7 23:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47698315&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-6-6 15:08</a>
+
+乔巴跟大妈还真是有缘</blockquote>
+我一直有种感觉，凯多以前在洛克斯海贼团里是不是类似乔巴那种团队宠物定位
+
+
+
+
+
+
+
+-----
+
+####  309465205  
+##### 52768#       发表于 2020-6-8 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47703073&amp;ptid=98922" target="_blank">梁皇无忌 发表于 2020-6-6 22:28</a>
+
+所以大妈团的真核心是卡二？
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+本来就是啊,大妈团的主力不都认为大妈是个疯子,卡二才是亲哥
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52769#       发表于 2020-6-8 08:54
+
+
+
+
+三大将之所以是最高战力，除了个人强悍的实力以外，他们的果实放眼整个海贼王也是TOP一列的。
+
+青鸡：冰伤害不高，我们都知道，但是冰控制强啊，尤其克制近战。强如白胡子都被抓间隙冻成了冰块，要不是果实破冰，当时就交代了。
+
+黄猿：光是什么概念只能说随你想象，想象力有多强，这果实就有多强。
+
+赤犬：钦定的果实杀伤力第一，在赤犬面前可能根本没有防御这个概念，他大概打人是真伤
+
+面对这三兄弟，吃瘪是正常的，不吃瘪那都是四皇一级的神仙了，皇副之流对上这几兄弟是肯定打不过的
+
+
+
+
+
+
+
+-----
+
+####  令和忍者  
+##### 52770#       发表于 2020-6-8 09:53
+
+
+
+ 本帖最后由 令和忍者 于 2020-6-8 09:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47700736&amp;ptid=98922" target="_blank">贾坤赫加尔 发表于 2020-6-6 19:22</a>
+
+接了一发aoe的时髦值早就让被一个中将海楼石突击导致半场掉线的吃瘪值抵消了
+
+不过非要说的话也是沾了掉线 ...</blockquote>
+皇副平大将是被后面赤犬一人硬刚白胡子全体队长弄得说不过去了。
+
+
+或者说正是因为赤犬搞了这么猛一手（后面一人吓退黑胡子全团也有些影响），才引出了之后那么多年一直持续到现在的将皇实力之争。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52771#       发表于 2020-6-8 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47718148&amp;ptid=98922" target="_blank">令和忍者 发表于 2020-6-8 09:53</a>
+
+皇副平大将是被后面赤犬一人硬刚白胡子全体队长弄得说不过去了。
+
+
+或者说正是因为赤犬搞了这么猛一手（后 ...</blockquote>
+还是残血模式都拿不下，当然前大将们也不是没有战功，前大将们抓过洛克斯，抓过金狮子，抓过红伯爵。这些都是四皇的水平吧，主要争论在于能不能把原三大将代换过去，还有新大将藤虎有没有原三大将的战斗力。
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52772#       发表于 2020-6-8 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717529&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-6-8 08:54</a>
+
+三大将之所以是最高战力，除了个人强悍的实力以外，他们的果实放眼整个海贼王也是TOP一列的。
+
+青鸡：冰伤害 ...</blockquote>
+狗哥这个本来还以为是图鉴上说而已，没想到连凯多都觉得油锅厉害，那么我觉得岩浆说是最高攻击力可能没啥问题。
+
+
+
+
+
+
+
+-----
+
+####  zxzx7753  
+##### 52773#       发表于 2020-6-8 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47717529&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-6-8 08:54</a>
+
+三大将之所以是最高战力，除了个人强悍的实力以外，他们的果实放眼整个海贼王也是TOP一列的。
+
+青鸡：冰伤害 ...</blockquote>
+贝克曼“不许动黄猿”<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52774#       发表于 2020-6-8 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47725695&amp;ptid=98922" target="_blank">zxzx7753 发表于 2020-6-8 20:47</a>
+
+贝克曼“不许动黄猿”</blockquote>
+然后黄猿马上溜了，贝克曼连一枪也没打出去
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52775#       发表于 2020-6-9 10:20
+
+
+
+
+黑玛利亚没有去找大和，选择留下
+堪十郎和桃之助找到了凯多和大蛇，他们正在喝酒。堪十郎汇报了计划失败的事，但是凯多他们还不知道武士们已经登岛了
+猫蝮蛇在跟罗潜水艇上的赤鞘武士通话
+传次郎vs佐佐木
+乌索普+乔巴vs大妈，但其实是准备逃跑
+路飞等人遇到乌尔提和佩吉万
+完，下周不休刊
+
+982情报 转的咪西
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  偷笑同党  
+##### 52776#       发表于 2020-6-9 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730887&amp;ptid=98922" target="_blank">理六 发表于 2020-6-9 10:20</a>
+
+黑玛利亚没有去找大和，选择留下
+
+堪十郎和桃之助找到了凯多和大蛇，他们正在喝酒。堪十郎汇报了计划失败的 ...</blockquote>
+据情报说传次郎用狂死郎的身份忽悠了佐佐木，没有出现战斗过程，佐佐木就被控制（抓住）了
+
+
+
+
+
+
+
+-----
+
+####  mashav  
+##### 52777#       发表于 2020-6-9 10:30
+
+
+
+
+连着两周不休刊了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52778#       发表于 2020-6-9 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730983&amp;ptid=98922" target="_blank">偷笑同党 发表于 2020-06-09 10:26:51</a>
+据情报说传次郎用狂死郎的身份忽悠了佐佐木，没有出现战斗过程，佐佐木就被控制（抓住）了 ...</blockquote>这种不走信息量的战斗应该都没过程了，之前罗霍也没过程，wt现在一心赶剧情……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 52779#       发表于 2020-6-9 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47730887&amp;ptid=98922" target="_blank"> 理六 发表于 2020-6-9 10:20</a> 黑玛利亚没有去找大和，选择留下 堪十郎和桃之助找到了凯多和大蛇，他们正在喝酒。堪十郎汇报了计划失败的事，但是凯多他们还不知道武士们已经登岛了 猫蝮蛇在跟罗潜水艇上的赤鞘武士通话 传次郎vs佐佐木 乌索普 乔巴vs大妈，但其实是准备逃跑 路飞等人遇到乌尔提和佩吉万 完，下周不休刊  982情报 转的咪西    -- 来自 有消息提醒的 Stage1官方 Android客户端 </blockquote>
+弱小三人组两强对峙大妈，这局稳得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 52780#       发表于 2020-6-9 10:36
+
+
+
+
+说起来这个和之国篇也算大型银魂鞭尸现场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+漫画家能力的差距实在太大了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52781#       发表于 2020-6-9 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731082&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2020-06-09 10:33:38</a>
+弱小三人组两强对峙大妈，这局稳得不行</blockquote>说实话，乌索普打架比船上任何一个人都令人放心
+不如奶奶他打完大妈赏金会涨到多少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52782#       发表于 2020-6-9 10:59
+
+
+
+
+大妈:按f进入坦克
+
+
+
+
+
+
+
+-----
+
+####  龙手马弗  
+##### 52783#       发表于 2020-6-9 11:26
+
+
+
+
+除非你把卡普算作前大将，否则前大将们真没打过洛克斯。
+
+说来说去，都怪卡普不升职，把中将的水平和大将的水平都搞乱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  摸鱼先锋  
+##### 52784#       发表于 2020-6-9 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731127&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2020-6-9 10:36</a>
+ 说起来这个和之国篇也算大型银魂鞭尸现场了 漫画家能力的差距实在太大了 ...</blockquote>
+能烂过银之魂篇的漫画篇章也很难找吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 52785#       发表于 2020-6-9 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47732216&amp;ptid=98922" target="_blank"> 摸鱼先锋 发表于 2020-6-9 11:42</a> 引用:古畑任三郎2015 发表于 2020-6-9 10:36  说起来这个和之国篇也算大型银魂鞭尸现场了 漫画家能力的差距实在太大了 ... 能烂过银之魂篇的漫画篇章也很难找吧 </blockquote>
+很好的对比对象，都是长篇漫画中间的一个篇章，主题都是武士复国，都是大量人气魅力角色
+然后就没有然后了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  烤鱼饼  
+##### 52786#       发表于 2020-6-9 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731137&amp;ptid=98922" target="_blank">理六 发表于 2020-6-9 10:37</a>
+
+说实话，乌索普打架比船上任何一个人都令人放心
+
+不如奶奶他打完大妈赏金会涨到多少</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">按照五皇在大妈篇的涨幅，给个5E甚至10E也不是不可能
+
+
+
+
+
+
+
+-----
+
+####  ohi  
+##### 52787#       发表于 2020-6-9 20:57
+
+
+
+
+别呀，我这周才看完，你们就开始讨论下周的内容了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52788#       发表于 2020-6-9 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47731966&amp;ptid=98922" target="_blank">龙手马弗 发表于 2020-6-9 11:26</a>
+
+除非你把卡普算作前大将，否则前大将们真没打过洛克斯。
+
+
+说来说去，都怪卡普不升职，把中将的水平和大将的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">金狮子是战国和他一起抓的吧，红伯爵是打完前任海军元帅以后被他补刀的，洛克斯那有罗杰和他一起打
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52789#       发表于 2020-6-9 21:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740256&amp;ptid=98922" target="_blank">武男 发表于 2020-6-9 21:06</a>
+金狮子是战国和他一起抓的吧，红伯爵是打完前任海军元帅以后被他补刀的，洛克斯那有罗杰和他一起 ...</blockquote>
+洛克斯那个全明星阵容其实加个罗杰战国也不会影响他的强大，如果洛克斯大妈白胡子金狮子皇将级，凯多和约翰船长这些当作是七武海，卡普战国罗杰雷利这个阵容看起来还是不大够看.那些人虽然不团结但是打算颠覆世界了肯定也不至于内讧
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52790#       发表于 2020-6-9 21:13
+
+
+
+ 本帖最后由 武男 于 2020-6-9 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740317&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2020-6-9 21:11</a>
+
+洛克斯那个全明星阵容其实加个罗杰战国也不会影响他的强大，如果洛克斯大妈白胡子金狮子皇将级，凯多和约 ...</blockquote>
+你要这么算的话，那时候估计泽法，空，战国海军全体都过去围殴了。。不然我觉得就算罗杰和战国，卡普联手都很难。我倾向于那时候大妈，白胡子，金狮子他们还只是将星的水平。然后合理一点。
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52791#       发表于 2020-6-9 21:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740336&amp;ptid=98922" target="_blank">武男 发表于 2020-6-9 21:13</a>
+你要这么算的话，那时候估计泽法，空，战国海军全体都过去围殴了。。不然我觉得就算罗杰和战国，卡普联手 ...</blockquote>
+那是天龙人被抓引起的遭遇战估计，卡普明显不想提及的不是和罗杰合作而是保护天龙人，这估计也是他身为d之一族家里全是叛逆还能混的好好的原因.跟他一起参战的恐怕不是空骨泽法，而是五老星
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52792#       发表于 2020-6-9 22:13
+
+
+
+ 本帖最后由 武男 于 2020-6-9 22:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47740489&amp;ptid=98922" target="_blank">绝赞販売中 发表于 2020-6-9 21:27</a>
+
+那是天龙人被抓引起的遭遇战估计，卡普明显不想提及的不是和罗杰合作而是保护天龙人，这估计也是他身为d ...</blockquote>
+也是，说不定五老星那时候也参战了。你说的这个也有可能性，那看看后面吧。翻了下，狗哥的生命卡里面写了给了白胡子致命伤还有跟他正面对决。对比下其他人，狗哥出手确实残暴，非死即伤，战绩和对人的震撼来说确实算是最高端的攻击力了。
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 52793#       发表于 2020-6-9 23:26
+
+
+
+
+飞六胞的两个小姐姐都还可爱，想<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 52794#       发表于 2020-6-9 23:39
+
+
+
+<blockquote>理六 发表于 2020-6-9 10:30
+这种不走信息量的战斗应该都没过程了，之前罗霍也没过程，wt现在一心赶剧情……
+
+
+  -- 来自 有消息提醒的 S ...</blockquote>
+除了打凯多都甭想好好看打架了，两年后开始没多久尾田就说了身体状况负担不了大量战斗画面了，助手负责画的战斗部分动感表现力不好，现在就折中成大部分一个定格走过场了，后边能再好好画两三场大战就满足了
+
+
+
+
+
+
+
+-----
+
+####  寒山寺  
+##### 52795#       发表于 2020-6-10 09:41
+
+
+
+
+希望主角团能有一对一的战斗。因为整个主角团一对一都是司法岛的事了。
+
+
+
+
+
+
+
+-----
+
+####  斯卡蕾特  
+##### 52796#       发表于 2020-6-10 10:06
+
+
+
+
+乌尔提越来越可爱了，I了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+唯一可惜的是个扶弟魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  梦魇  
+##### 52797#       发表于 2020-6-10 16:07
+
+
+
+
+小马哥来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qwxbtgb  
+##### 52798#       发表于 2020-6-10 16:10
+
+
+
+<blockquote>寒山寺 发表于 2020-6-10 09:41
+希望主角团能有一对一的战斗。因为整个主角团一对一都是司法岛的事了。</blockquote>
+打黑胡子的时候吧
+
+
+
+
+
+
+
+-----
+
+####  gs2-d2up  
+##### 52799#       发表于 2020-6-11 08:40
+
+
+
+
+981话里有一个叫八茶的Numbers出场，看着有点疯。在Queen说生死不论、只要抓住入侵者就能当上飞六胞的前提下，百兽团的小喽啰们却让八茶住手说就算他杀了路飞也当不上飞六胞。
+所以Numbers是凯多团内因为不明原因暴走的一批人的统称吗？剧情跨度太大实在想不起来前面哪里有具体介绍过Numbers了。
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52800#       发表于 2020-6-11 08:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758383&amp;ptid=98922" target="_blank">gs2-d2up 发表于 2020-6-11 08:40</a>
+
+981话里有一个叫八茶的Numbers出场，看着有点疯。在Queen说生死不论、只要抓住入侵者就能当上飞六胞的前提 ...</blockquote>
+没介绍过
+
+
+
+
+
+
+
+-----
+
+####  Keynes  
+##### 52801#       发表于 2020-6-11 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758383&amp;ptid=98922" target="_blank">gs2-d2up 发表于 2020-6-11 08:40</a>
+
+981话里有一个叫八茶的Numbers出场，看着有点疯。在Queen说生死不论、只要抓住入侵者就能当上飞六胞的前提 ...</blockquote>
+没具体介绍过，只在之前某一画的结尾给了一个剪影图和几句喽罗的评论
+
+
+
+
+
+
+
+-----
+
+####  戴立克  
+##### 52802#       发表于 2020-6-11 10:09
+
+
+
+
+是不是我哪里理解错了
+
+大妈能进入坦克还能在里面和别人追逐战
+
+这是塔迪斯吧
+
+
+
+
+
+                                       
