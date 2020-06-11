@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 14:07** 
+> ## **本文件最后更新于2020-06-11 16:08** 
 
 
 
@@ -4102,10 +4102,12 @@ syl，另外日本人和海外观众是真的不吃夏吹啊，两次3D联动的
 
 
 
- 参与人数 3战斗力 -3
+ 参与人数 5战斗力 -5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| InvisibleP|-1|不基德|
+| hitman1217|-1||
 | ヒトニナル|-1||
 | AloissiolA|-1|过分了|
 | 璎酪|-1||
@@ -5977,10 +5979,11 @@ syl，个人觉得粉丝互相攻击无所谓
 
 
 
- 参与人数 3战斗力 0
+ 参与人数 4战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| InvisibleP| + 1|老姐基德|
 | YODOboi| + 1|底线底线|
 | yuandi0120|-2|陪小博禹说话|
 | Mika-S| + 1|草|
@@ -6391,10 +6394,11 @@ syl，个人觉得粉丝互相攻击无所谓
 
 
 
- 参与人数 3战斗力 0
+ 参与人数 4战斗力 +1
 
 |昵称|战斗力|理由|
 |----|---|---|
+| hitman1217| + 1||
 | stedckk| + 1|回血下，以后别理二千和小博禹了.|
 | 2L模仿47哥| + 1||
 | yuandi0120|-2|思路广|
@@ -6999,10 +7003,11 @@ holotools不给用了
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| kanonsisya| + 1|要得韩国人ptsd了|
 | oshinoshinobu| + 1|欢乐多|
 
 
@@ -7772,6 +7777,25 @@ ark免费了对hololive的影响？
 
 修女为啥不能骂？自己菜的一逼，粉丝到处出警，还“不准吃桃”，笑死我了。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000|-1|加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -9107,7 +9131,7 @@ colo哥都可以开个铲子教程楼了，发动人民战争的汪羊大海，�
 
 
 EZ_8q8MVAAAMuKg.jpg
-(116.48 KB, 下载次数: 0)
+(116.48 KB, 下载次数: 1)
 
 
 
@@ -9134,6 +9158,25 @@ EZ_8q8MVAAAMuKg.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9146,7 +9189,7 @@ EZ_8q8MVAAAMuKg.jpg
 
 
 
-桃皇擅长高音吗，之前被楼友**到至今不敢去听桃皇唱歌
+桃皇擅长高音吗，之前被楼友吓到到至今不敢去听桃皇唱歌
 
 
 
@@ -9161,14 +9204,2107 @@ EZ_8q8MVAAAMuKg.jpg
 
 
 
+ 本帖最后由 bluebaby 于 2020-6-11 14:09 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762414&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-11 14:06</a>
 挖出是美少女桃皇人气暴涨，挖出是坦克救盗影团于水火
 
 横竖是大shan人啊</blockquote>
 挖出是姨V综高呼不可战胜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，我觉得桃皇发出被吓一跳的声音时有点像狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 
 
 
-                                  
+
+
+-----
+
+####  Zaphikel  
+##### 15465#       发表于 2020-6-11 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762418&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-11 14:06</a>
+来个大胃王</blockquote>
+这不是pcr里百地希留耶的cg图嘛
+不过某种意义上这也是猫呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 15466#       发表于 2020-6-11 14:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762433&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-11 14:07</a>
+
+桃皇擅长高音吗，之前被楼友吓到到至今不敢去听桃皇唱歌</blockquote>
+她不是擅不擅长高音的问题，就是那种很特别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15467#       发表于 2020-6-11 14:09
+
+
+
+ 本帖最后由 保罗赫伯特 于 2020-6-11 14:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762433&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-11 14:07</a>
+
+桃皇擅长高音吗，之前被楼友吓到到至今不敢去听桃皇唱歌</blockquote>
+嗯掐萌音，声音特别尖细。要听的话不是原创曲的歌都还一般，原创曲是古神级别的，形容一下的话像婴儿哭闹，或是深夜里的猫叫（本来写词和编曲也挺烂）
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 15468#       发表于 2020-6-11 14:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762252&amp;ptid=1938145" target="_blank">jkovkk 发表于 2020-6-11 13:53</a>
+inui前段时间杂谈夜钓联动会限开箱轮着来6月中还有会限新歌，粉丝们乐呵着呢。
+
+最近估计也又有其他正事要 ...</blockquote>
+啊，是会限吗，我以为是公开歌投稿...
+哥是inui粉的话，不觉得inui最近歇的有点多嘛。前阵子心灵之旅，现在又...之前都没有这样的。
+我就是被久远搞怕啦！inui不要走<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15469#       发表于 2020-6-11 14:13
+
+
+
+<blockquote>保罗赫伯特 发表于 2020-6-11 14:09
+嗯掐萌音，声音特别尖细。要听的话不是原创曲的都还一般，原创曲是古神级别的（本来写词和编曲也挺烂） ...</blockquote>
+草，突然觉得有可以去尝试一下价值了，
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15470#       发表于 2020-6-11 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762499&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-11 14:13</a>
+
+草，突然觉得有可以去尝试一下价值了，</blockquote>
+祝好运<img src="https://static.saraba1st.com/image/smiley/face2017/237.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15471#       发表于 2020-6-11 14:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762483&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-11 14:12</a>
+
+啊，是会限吗，我以为是公开歌投稿...
+
+哥是inui粉的话，不觉得inui最近歇的有点多嘛。前阵子心灵之旅，现 ...</blockquote>
+inui阿，单纯是那种兴趣使然的啦，不知道播什么吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 15472#       发表于 2020-6-11 14:16
+
+
+
+
+pcr有什么好玩的，master整天pcr，偶尔点开看感觉好无聊
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15473#       发表于 2020-6-11 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762510&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-11 14:14</a>
+
+祝好运</blockquote>
+听完了<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15474#       发表于 2020-6-11 14:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+336a0f92b0c653a2.png
+(112.33 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-11 14:19 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/141915eut4yud1by5h319j.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 15475#       发表于 2020-6-11 14:20
+
+
+
+
+又一个不听老人言的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15476#       发表于 2020-6-11 14:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762566&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-11 14:18</a>
+
+听完了san值没了</blockquote>
+人类总是重复同样的错误.jpg
+
+
+
+
+
+
+
+-----
+
+####  jkovkk  
+##### 15477#       发表于 2020-6-11 14:23
+
+
+
+ 本帖最后由 jkovkk 于 2020-6-11 14:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762483&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-11 14:12</a>
+
+啊，是会限吗，我以为是公开歌投稿...
+
+哥是inui粉的话，不觉得inui最近歇的有点多嘛。前阵子心灵之旅，现 ...</blockquote>
+还好吧，主要她歇的时候大部分时间都泡在推上。除了之前心灵之旅是真的摸了在那边无所事事的放假以外，不泡推不直播基本上是在录新歌之类的或者有其他事情。再加上她摸鱼基本上会给个回来的时间，比如心灵之旅的时候给的日期是14号，最近摸了给的时间是13号，床粉心里基本上还是很安定的。最近的话甚至おにべろす都联动重开了，最近一个月里还联动了一堆人(犬山芙莲狗狗还有马上的小护士电台)，还有三笨蛋新衣服的征集。新衣服出来之前应该是不会突然走掉的，那就至少有个小半年的时间了。
+
+
+公开歌和会限好像都会有的样子
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|感谢情报|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15478#       发表于 2020-6-11 14:23
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-11 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762592&amp;ptid=1938145" target="_blank">暗心舞踏 发表于 2020-6-11 14:20</a></blockquote>
+有被笑到，哪里看到的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">尤其这个妙蛙种子头像好过分
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15479#       发表于 2020-6-11 14:23
+
+
+
+
+TOWA好像要升级硬件了，求求你换个麦吧
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15480#       发表于 2020-6-11 14:24
+
+
+
+
+能发出如此尖细的高音，脂肪量绝对不会少吧<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15481#       发表于 2020-6-11 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762609&amp;ptid=1938145" target="_blank">保罗赫伯特 发表于 2020-6-11 14:21</a>
+
+人类总是重复同样的错误.jpg</blockquote>
+咱也去试试
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15482#       发表于 2020-6-11 14:29
+
+
+
+
+好奇心，你害了多少人<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 15483#       发表于 2020-6-11 14:30
+
+
+
+
+为什么人总要和自己过不去
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15484#       发表于 2020-6-11 14:30
+
+
+
+
+星床啥时候合唱歌会，许愿。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15485#       发表于 2020-6-11 14:30
+
+
+
+
+怎么一个个排队咬钩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 15486#       发表于 2020-6-11 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+无知是福
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15487#       发表于 2020-6-11 14:32
+
+
+
+
+V综已经把桃皇安排成克苏鲁了。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 15488#       发表于 2020-6-11 14:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">愿者上钩，
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15489#       发表于 2020-6-11 14:32
+
+
+
+
+你楼repo出的桃皇
+
+奶音→35
+养gachi→粽子
+耐久游戏→夸
+贴贴王财→龙皇
+可能的体重→狐皇
+也可能是美少女→阿希
+古神歌声→486
+妈妈是狗妈→懒狗
+
+我只能说生而为王好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 15490#       发表于 2020-6-11 14:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">上图圆键帽下图圆角方键帽，歪了吧
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15491#       发表于 2020-6-11 14:33
+
+
+
+
+像是家里上幼儿园的小孩唱的。。。。。。
+
+虽然确实烂的要命，不过还没到掉SAN的程度啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+比起这个，请把编曲填词的拉出去斩了好吧。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+还有她这个根本不能算高音吧。不是掐着嗓子就算高音啊喂！
+
+
+
+
+
+
+
+-----
+
+####  美竹兰  
+##### 15492#       发表于 2020-6-11 14:34
+
+
+
+
+是我瞎了吗，这键盘一个方的一个圆的哪里对得上了？画圈叠图特定法？
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15493#       发表于 2020-6-11 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762765&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 14:32</a>
+
+你楼repo出的桃皇
+
+
+奶音→35</blockquote>
+乳35了，小心芙宝杀了你，倒不如说你乳了你提的所有人<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 15494#       发表于 2020-6-11 14:34
+
+
+
+
+推荐一个spade的二创
+https://b23.tv/vGnPLR
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 15495#       发表于 2020-6-11 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762765&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 14:32</a>
+
+你楼repo出的桃皇
+
+
+奶音→35</blockquote>
+486唱歌可不是古神<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15496#       发表于 2020-6-11 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762765&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 14:32</a>
+
+你楼repo出的桃皇
+
+
+奶音→35</blockquote>
+崇煌桃王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15497#       发表于 2020-6-11 14:35
+
+
+
+
+声音这条应该更接近兔皇要素吧，都是经典萌音但会引发部分人不适
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 15498#       发表于 2020-6-11 14:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/143358pp39bfsyop9uxzxs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>003407fzarval6cuvj66js.jpg</strong> (18.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 14:33 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+从各种repo来看这曲子在我心目中可能已经是和崂山圣水一样连一丁点印象都不能存于记忆里的等级了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 15499#       发表于 2020-6-11 14:36
+
+
+
+
+声音接近35倒没错，35说话也有日本人抱怨听不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 15500#       发表于 2020-6-11 14:37
+
+
+
+
+那桃皇还蛮强了，本社v的要素一个都不少，不过好像听说前几天掉粉了？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15501#       发表于 2020-6-11 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762765&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 14:32</a>
+
+你楼repo出的桃皇
+
+
+奶音→35</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/11/143616fuaxhfhauruqa0vv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>54c97cf0f736afc358cf654bbd19ebc4b6451266.jpg</strong> (8.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 14:36 上传
+
+
+
+
+
+
+
+咱要杀了你！！
+
+哪有这么顺劈35和486的？！
+
+
+咱要你立刻加入V综HOUSE，安排你和2000贴贴！！
+
+咱这就给你们建个双人房
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15502#       发表于 2020-6-11 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762800&amp;ptid=1938145" target="_blank">保罗赫伯特 发表于 2020-6-11 14:35</a>
+
+崇煌桃王</blockquote>
+为什么一说这个就崇皇，帝皇剑和平成魂没面子的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 15503#       发表于 2020-6-11 14:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762805&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-11 14:35</a>
+
+声音这条应该更接近兔皇要素吧，都是经典萌音但会引发部分人不适</blockquote>
+？？？？
+
+ 桃皇这模糊不轻的幼儿音要提不也应该类比MRR么，没觉得和兔皇哪里类似 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+syl  各路信者纷纷避嫌桃皇 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15504#       发表于 2020-6-11 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762829&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-11 14:37</a>
+
+为什么一说这个就崇皇，帝皇剑和平成魂没面子的吗</blockquote>
+因为祖宗牌位套太让人印象深刻了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 15505#       发表于 2020-6-11 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762786&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-11 14:34</a>
+
+乳35了，小心芙宝杀了你，倒不如说你乳了你提的所有人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他不谈，妈妈是狗妈这个是真的
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15506#       发表于 2020-6-11 14:39
+
+
+
+ 本帖最后由 保罗赫伯特 于 2020-6-11 14:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762829&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-11 14:37</a>
+
+为什么一说这个就崇皇，帝皇剑和平成魂没面子的吗</blockquote>
+其实我更喜欢神主牌（帝王剑也很帅），但是崇煌名气比较大，变身音效也很洗 脑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15507#       发表于 2020-6-11 14:40
+
+
+
+
+因为崇皇菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以当然要提崇皇
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15508#       发表于 2020-6-11 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762837&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-11 14:37</a>
+
+？？？？
+
+ 桃皇这模糊不轻的幼儿音要提不也应该类比MRR么，没觉得和兔皇哪里类似 
+
+syl  各路信者纷 ...</blockquote>
+《桃嫌》要来了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15509#       发表于 2020-6-11 14:41
+
+
+
+
+不是，听不懂的奶音也不是我说的，古神也不是我说的，我就把楼里repo下来的桃皇总结一下好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15510#       发表于 2020-6-11 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762837&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-11 14:37</a>
+
+？？？？
+
+ 桃皇这模糊不轻的幼儿音要提不也应该类比MRR么，没觉得和兔皇哪里类似 
+
+syl  各路信者纷 ...</blockquote>
+不是说声线像，而是说萌音反而成为一定程度的debuff，这一点很像
+
+抱怨mrr声音难受的还是不多，说她口齿不清居多；抱怨兔皇声音不好接受的遇到好几次了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 15511#       发表于 2020-6-11 14:48
+
+
+
+
+这话就不对了，兔皇数字摆在那，大家总归要点进去看一眼
+
+luna在V综连名字都没有了，纯成用来劈2434的刀更惨把（
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15512#       发表于 2020-6-11 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762934&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-11 14:48</a>
+
+这话就不对了，兔皇数字摆在那，大家总归要点进去看一眼
+
+luna在V综连名字都没有了，纯成用来劈2434的刀更惨 ...</blockquote>
+ 你这回的谁啊。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15513#       发表于 2020-6-11 14:49
+
+
+
+
+モルルーナ的奶音与其说是特色不如说已经是阻止新参尝试的壁垒了，我认为她就用卡农酱的地声放送数字会比现在好很多，毕竟游戏力在杏不算差了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15514#       发表于 2020-6-11 14:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762879&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-11 14:41</a>
+
+不是说声线像，而是说萌音反而成为一定程度的debuff，这一点很像
+
+抱怨mrr声音难受的还是不多，说她口齿不 ...</blockquote>
+说到口齿不清直接出名到海外粉丝群的不是miko么
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 15515#       发表于 2020-6-11 14:50
+
+
+
+
+拿两个明显不是同一款的键盘当证据特人是否意味着colo已跌落神坛？
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15516#       发表于 2020-6-11 14:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762948&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-11 14:49</a>
+
+モルルーナ的奶音与其说是特色不如说已经是阻止新参尝试的壁垒了，我认为她就用卡农酱的地声放送数字会比现 ...</blockquote>
+璐娜现在逐渐不错了，同接也3-4000了，订阅也快15.5W了
+
+
+倒是谁来救救隔壁TOWA
+
+
+
+
+
+
+
+-----
+
+####  因为你不会  
+##### 15517#       发表于 2020-6-11 14:52
+
+
+
+
+桃皇初配信说话我还听得懂，后来就再也听不懂了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15518#       发表于 2020-6-11 14:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762967&amp;ptid=1938145" target="_blank">lovcavil 发表于 2020-6-11 14:50</a>
+
+拿两个明显不是同一款的键盘当证据特人是否意味着colo已跌落神坛？
+
+
+—— 来自 vivo NEX S, Android 9上的  ...</blockquote>
+你竟然敢质疑colo兄？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15519#       发表于 2020-6-11 14:52
+
+
+
+
+梁木、种起来了
+
+<img src="https://img.saraba1st.com/forum/202006/11/145239k1xii7b1th6vvr5r.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-11 145213.png</strong> (13.95 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-11 14:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15520#       发表于 2020-6-11 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762978&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-11 14:51</a>
+
+璐娜现在逐渐不错了，同接也3-4000了，订阅也快15.5W了
+
+
+倒是谁来救救隔壁TOWA ...</blockquote>
+towa这个说不清是社内别人避她还是她自闭了，而且她的英文全肯定民氛围太能让日本阿宅不安desu了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15521#       发表于 2020-6-11 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762988&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-11 14:52</a>
+梁木、种起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/43d0fb354d0e1f67240a862ecb678e7c/143358pp39bfsyop9uxzxs.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15522#       发表于 2020-6-11 14:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763004&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-11 14:54</a>
+
+towa这个说不清是社内别人避她还是她自闭了，而且她的英文全肯定民氛围太能让日本阿宅不安desu了。 ...</blockquote>
+就是自闭，狐狸带去和sio联动了下也没啥问题，昨天还和sio一起打apex了，一个半小时2鸡，氛围也不错。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 15523#       发表于 2020-6-11 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762988&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-11 14:52</a>
+梁木、种起来了</blockquote>
+草，这也叫梁木吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 15524#       发表于 2020-6-11 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762978&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-11 14:51</a>
+
+璐娜现在逐渐不错了，同接也3-4000了，订阅也快15.5W了
+
+
+倒是谁来救救隔壁TOWA ...</blockquote>
+towa的数据也差不多了吧，已经要超过aki了。倒是aki到底问题在哪里，一期生这个订阅。
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 15525#       发表于 2020-6-11 14:56
+
+
+
+<img src="https://p.sda1.dev/0/8c510f1ffbb01197b07e8a51c679b7b4/IMG_CB5D6F16C8CF3D139523A3D273956660.jpeg" referrerpolicy="no-referrer">
+[越剧vtuber震撼我](https://bbs.saraba1st.com/2b/thread-1940878-1-1.html)
+
+
+这是什么动捕设备啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15526#       发表于 2020-6-11 14:56
+
+
+
+
+不安です😖💧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15527#       发表于 2020-6-11 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763046&amp;ptid=1938145" target="_blank">离魂仙 发表于 2020-6-11 14:56</a>
+越剧vtuber震撼我
+
+
+这是什么动捕设备啊</blockquote>
+中之人直接暴露警告⚠️
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 15528#       发表于 2020-6-11 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763045&amp;ptid=1938145" target="_blank">asdhai 发表于 2020-6-11 14:56</a>
+
+towa的数据也差不多了吧，已经要超过aki了。倒是aki到底问题在哪里，一期生这个订阅。 ...</blockquote>
+ark起飞那个月住院了，好像之前也错过一波起飞时间。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15529#       发表于 2020-6-11 14:59
+
+
+
+
+aki会做饭啊
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15530#       发表于 2020-6-11 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763046&amp;ptid=1938145" target="_blank">离魂仙 发表于 2020-6-11 14:56</a>
+
+越剧vtuber震撼我
+
+
+这是什么动捕设备啊</blockquote>
+看着像这个，国内的惯性动捕厂
+[https://www.noitom.com.cn/perception-neuron-pro.html](https://www.noitom.com.cn/perception-neuron-pro.html)
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 15531#       发表于 2020-6-11 15:04
+
+
+
+
+就没起飞过吧。前面对她的印象除了订阅垃圾以外就是圣诞asmr打电话视频骗了76万sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 15532#       发表于 2020-6-11 15:06
+
+
+
+
+郡道在做恋爱相谈直播，基本上每个人都会被喷恶心<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">年纪大不敢出手恶心，年纪小有想法也恶心...我也.....这个嘲笑观众恋心的坏女人！
+大家要是有想聊的也可以去她的棉花糖那里投稿嗷，大概率会被读到。(https://youtu.be/KEa8U_0Gad8)
+
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 15533#       发表于 2020-6-11 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762828&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-11 14:37</a>
+
+咱要杀了你！！
+
+哪有这么顺劈35和486的？！</blockquote>
+太狠力
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 15534#       发表于 2020-6-11 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763053&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-11 14:57</a>
+中之人直接暴露警告⚠️
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+她还曾视频脸部捕捉的受害者 直播意外露脸，还解释了那个角度谁看上去都没法看，看我断了推流就当无事发生再继续播。应该是早晚要走到台前的人，不太在意这茬
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15535#       发表于 2020-6-11 15:08
+
+
+
+ 本帖最后由 colodes 于 2020-6-11 15:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763088&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-11 15:00</a>
+
+看着像这个，国内的惯性动捕厂
+[https://www.noitom.com.cn/perception-neuron-pro.html](https://www.noitom.com.cn/perception-neuron-pro.html)</blockquote>
+注意花纹，特定完毕
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/150714csdcg6l6de6pql4d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>IMG_CB5D6F16C8CF3D139523A3D273956660 (2).jpeg</strong> (32.66 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-11 15:07 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/151342chjzuvxl2vcoahff.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-11 151331.png</strong> (34.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 15:13 上传
+
+
+
+
+
+
+
+报价
+
+<img src="https://img.saraba1st.com/forum/202006/11/151316olaaaa3la1wnxagm.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-11 151301.png</strong> (175.71 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 15:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  离魂仙  
+##### 15536#       发表于 2020-6-11 15:13
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/622734bdly1gfodc4kryjj205n0acjrr.jpg" referrerpolicy="no-referrer">
+
+绑带还蛮色的，开始脑补
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 15537#       发表于 2020-6-11 15:17
+
+
+
+
+狐皇穿这个是不是要延长带
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 15538#       发表于 2020-6-11 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763228&amp;ptid=1938145" target="_blank">离魂仙 发表于 2020-6-11 15:13</a>
+
+绑带还蛮色的，开始脑补</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 想着VTB如果穿这套，有点se
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 15539#       发表于 2020-6-11 15:17
+
+
+
+
+原来你们开live都要穿这种东西
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15540#       发表于 2020-6-11 15:19
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-11 15:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">夜小姐这个键盘我也有一个，不过是黑色的
+
+不对呀，colo这下面的键盘键帽是圆角方形的，上面的键盘是圆形的…
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15541#       发表于 2020-6-11 15:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">虹粉内战把我看傻了。虽然2000是不是虹粉是个问题
+
+
+我觉得夏吹有一点好比fbmio好，之前记得有说黑白双飞的，想了一下感觉不能接受。但是夏吹双飞就加倍的可以<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15542#       发表于 2020-6-11 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763178&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-11 15:08</a>
+
+注意花纹，特定完毕</blockquote>
+好像没有中间那个绿色的圈啊？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 1|看原图另一个绑定物|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 15543#       发表于 2020-6-11 15:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/152203rwrxts7vbsahswj3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200611152145.png</strong> (116.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 15:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15544#       发表于 2020-6-11 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762337&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-11 14:00</a>
+那简单，cn招童工的下场是啥不用我说了吧</blockquote>
+童工也不是完全禁止，16岁以上的可以工作，但是禁止进行重体力劳动和从事危险工作<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+16岁以下那等着P站也一起被扬了吧…
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15545#       发表于 2020-6-11 15:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763371&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 15:26</a>
+
+童工也不是完全禁止，16岁以上的可以工作，但是禁止进行重体力劳动和从事危险工作
+
+16岁以下那等着 ...</blockquote>
+18岁以下搞直播都会被扬了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15546#       发表于 2020-6-11 15:29
+
+
+
+
+那之前斧子哥的那个v直播怎么没把p站给杨了
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 15547#       发表于 2020-6-11 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47761709&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-11 13:01</a>
+
+单一的，没有经过自己思考的，被引导而得来的CP关系，就是又强力又脆弱啊。
+
+以后楼里有人提出异议，她们 ...</blockquote>
+反正mrra也好军神也好都过去了 已然无敌
+
+讲道理我们当时组长特地要剪出来的T台聊女友和mc聊女同圈她们没什么反应吗
+
+这些比mrra真多了 mrra她可是重复很多次没那个意思的
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 15548#       发表于 2020-6-11 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47762948&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-11 14:49</a>
+
+モルルーナ的奶音与其说是特色不如说已经是阻止新参尝试的壁垒了，我认为她就用卡农酱的地声放送数字会比现 ...</blockquote>
+可是这个设定已经太过入脑而出名了，如果现在毁弃人设怕是yagoo都不能答应
+
+
+最多也就只能循序渐进，慢慢地改善，而且还有上限
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15549#       发表于 2020-6-11 15:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763404&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-11 15:29</a>
+
+那之前斧子哥的那个v直播怎么没把p站给杨了</blockquote>
+嗯......斧子哥牛逼？
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 15550#       发表于 2020-6-11 15:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763293&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-11 15:19</a>
+虹粉内战把我看傻了。虽然2000是不是虹粉是个问题
+
+
+我觉得夏吹有一点好比fbmio好，之前记得有说黑白 ...</blockquote>
+你指真人还是皮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15551#       发表于 2020-6-11 15:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763385&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-11 15:27</a>
+18岁以下搞直播都会被扬了吧</blockquote>
+并不会…甚至微博福利姬都有18岁以下的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+最近不是还有个钟美美的小网红吗，只不过她是发视频，除了文艺、体育这两类有豁免之外，其他企业碰就是死，因为16岁以下大概率还在义务教育阶段。自己瞎玩没什么问题，而且B站上自己玩直播的高中生还挺多的，但是和企业签约就不行。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15552#       发表于 2020-6-11 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763548&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 15:41</a>
+
+并不会…甚至微博福利姬都有18岁以下的
+
+最近不是还有个钟美美的小网红吗，只不过她是发视 ...</blockquote>
+桃皇不肯定是跟企业签约的吗，反正她不可能会是童工的，招进来holo难道不怕被扬了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15553#       发表于 2020-6-11 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763404&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-11 15:29</a>
+那之前斧子哥的那个v直播怎么没把p站给杨了</blockquote>
+那个没到16岁？
+wow，awesome！
+提示：打黑举报有奖，深圳的标准是2000-10万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15554#       发表于 2020-6-11 15:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763595&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 15:45</a>
+
+那个没到16岁？
+
+wow，awesome！
+
+提示：打黑举报有奖，深圳的标准是2000-10万 ...</blockquote>
+好像现在是14岁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15555#       发表于 2020-6-11 15:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763603&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-11 15:45</a>
+好像现在是14岁</blockquote>
+在网络直播中向观众讨要具有货币价值的礼物，可以举报强迫组织残疾人、儿童乞讨罪<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 15556#       发表于 2020-6-11 15:50
+
+
+
+<blockquote>金魚佬 发表于 2020-6-11 15:49
+在网络直播中向观众讨要具有货币价值的礼物，可以举报强迫组织残疾人、儿童乞讨罪 ...</blockquote>
+那孩子说自己是自愿的，想要追梦来着
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 15557#       发表于 2020-6-11 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47763646&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 15:49</a>
+在网络直播中向观众讨要具有货币价值的礼物，可以举报强迫组织残疾人、儿童乞讨罪 ...</blockquote>
+乐府说尤莉艾露早就不在魔女了
+但是艾露6月5号的新置顶挂着魔女
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15558#       发表于 2020-6-11 15:52
+
+
+
+
+斧子哥那个没签约吧，以前好像说是白给个皮鼓励追梦（祸害全家）
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15559#       发表于 2020-6-11 15:57
+
+
+
+
+自愿和没签约根本就不是大问题，现实里组织农村小孩儿乞讨的哪个签约了，而且有些小孩儿也说自己是自愿的。只要斧子哥给过她一笔钱，或者收过她一笔钱，这事儿就八九不离十了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asclepiusz  
+##### 15560#       发表于 2020-6-11 16:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">14岁？自愿有个锤子用？
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15561#       发表于 2020-6-11 16:04
+
+
+
+
+当管人原来是做鸡么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 15562#       发表于 2020-6-11 16:04
+
+
+
+ 本帖最后由 NBXX 于 2020-6-11 16:07 编辑 
+
+[https://prtimes.jp/main/html/rd/p/000000260.000030268.html](https://prtimes.jp/main/html/rd/p/000000260.000030268.html)
+
+【🎉お知らせ🎉】
+
+「#ホロライブ」所属VTuber「#猫又おかゆ」の新衣装お披露目配信が、6月12日（金）に配信決定✨
+
+
+■配信日　：2020年6月12日（金）
+
+■配信時間：21時より開始予定
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/160608k8aaa86tioaazlui.png" referrerpolicy="no-referrer">
+
+
+<strong>main.png</strong> (828.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 16:06 上传
+
+
+
+
+
+
+
+
+
+
+
+
+d30268-260-937050-5.png
+(5.17 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-11 16:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/160746ia2eeqs2cms2eqcz.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 15563#       发表于 2020-6-11 16:05
+
+
+
+
+斧子哥这件事估计早就被nga的那帮人举报过了吧，不还活的好好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15564#       发表于 2020-6-11 16:05
+
+
+
+
+狐皇这个转推好灵性，让人遐想连篇<img src="https://p.sda1.dev/0/caf38fcfa559ee51879ef20e557300e8/IMG_EE9A3D32673B9E5CAE1469B3B19EA7AE.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 15565#       发表于 2020-6-11 16:06
+
+
+
+
+NGA自己都在网暴14岁呢，建议先封NGA再抓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                               
