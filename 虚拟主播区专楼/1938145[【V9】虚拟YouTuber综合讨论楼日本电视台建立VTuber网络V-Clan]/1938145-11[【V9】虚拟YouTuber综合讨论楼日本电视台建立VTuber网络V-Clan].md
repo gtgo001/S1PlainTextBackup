@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-11 08:05** 
+> ## **本文件最后更新于2020-06-11 10:05** 
 
 
 
@@ -1673,9 +1673,11 @@ yostar那可不是什么白名单，是大赦天下，是个人不违规就能�
 
 
 
+ 本帖最后由 aele 于 2020-6-11 09:21 编辑 
 
 有一说一，狐皇不发情的时候的直播还是很pro的
-啊这周除了鲨鱼都是在发情和乱动星啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+啊这周除了鲨鱼都是在发情和联动星啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 
 
@@ -1699,4 +1701,1216 @@ yostar那可不是什么白名单，是大赦天下，是个人不违规就能�
 
 
 
-                                              
+
+
+-----
+
+####  金魚佬  
+##### 15092#       发表于 2020-6-11 08:11
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-11 08:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758148&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-11 08:02</a>
+我就是2020年还活着的狐推啊，狐皇杂谈力一直没下降你看昨天排水沟聊天活多好，天天车游戏力现在有几个套皮 ...</blockquote>
+我说的是单推或主推的人，白上桑对箱推来说只是木口箱的指定公用工具人，是主推的Top盾（祭丝除外），最喜欢说的就是“针对XXX有什么意思/算什么本事，直接去找狐狸啊”和“这事先看看少主怎么说”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过这也是白上桑欺世盗名的代价<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15093#       发表于 2020-6-11 08:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758198&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-11 08:11</a>
+我说的是单推或主推的人，白上桑对箱推来说只是木口箱的指定公用工具人，是主推的Top盾（祭丝除外），最 ...</blockquote>
+也不算欺世盗名吧，至少半年前你还能看见狐皇到处监控直播帮人灭火（最后一次是towa后面好像就不干了），工商也干的多，转发别人的消息一直很勤快，现在她把心思放到杏星去了而已。
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 15094#       发表于 2020-6-11 08:24
+
+
+
+
+扶分贝当然从低的开始啊，至于中层肯定饿不死为什么要管）
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 15095#       发表于 2020-6-11 08:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758279&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-11 08:24</a>
+
+扶分贝当然从低的开始啊，至于中层肯定饿不死为什么要管）</blockquote>
+狐皇太资方工具人了，龙皇才要站出来做劳方意见领袖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15096#       发表于 2020-6-11 08:40
+
+
+
+
+这都能上升到劳资冲突，不愧是你楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15097#       发表于 2020-6-11 08:42
+
+
+
+
+ark叫停好像真的是弱智操作了，看净土坛贴出来的，ark15年就声明了随便播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/ca78e74a96b00deae9c0c74801833365/-315511440.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15098#       发表于 2020-6-11 08:45
+
+
+
+
+可能只是借个理由结束这个龙财吧
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 15099#       发表于 2020-6-11 08:46
+
+
+
+
+这是资方对劳方的压迫！
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 15100#       发表于 2020-6-11 08:46
+
+
+
+
+才注意到holo在b的官号转了啊火的3d发表，怎么感觉相比holo在推上的官号，以前b站官号都不怎么转这些的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 15101#       发表于 2020-6-11 08:47
+
+
+
+<img src="https://p.sda1.dev/0/57158e185e724c57cc7008637ff8c65a/1270877085951651840_light.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15102#       发表于 2020-6-11 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758250&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 08:20</a>
+也不算欺世盗名吧，至少半年前你还能看见狐皇到处监控直播帮人灭火（最后一次是towa后面好像就不干了）， ...</blockquote>
+我想说的就是白上桑自己主播的事情干的不怎么样，还爱掺合运营的事，最后两边都没什么实绩，但却混了个“少主”之名。
+相比可可酱做新闻，同样是抢运营的活，她干的事情就费效比高得多，而且比运营声音大，有舆论的指挥权，运营的苦劳和其他liver的功劳也统统要给她这个“少主”交功名税，吸全箱的血，吐出来一点儿给别人竟然还要对她感恩。
+她已经和木口成功绑定了，木口没炸，她的订阅就会一直是Top，但她真正的水平在木口充其量也只是T1.5。也不用假设她走其它路线的平行世界，临时不同往日，她现在的buff已经是最强了，而且还会更强（指订阅）。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 15103#       发表于 2020-6-11 08:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一早起来怎么还在车狐皇
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 15104#       发表于 2020-6-11 08:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟狐皇在泥潭没有GACHI 随便车 
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15105#       发表于 2020-6-11 08:57
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-11 08:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758494&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-11 08:50</a>
+一早起来怎么还在车狐皇</blockquote>
+都赖夸不播，只能车狐皇了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+话说傻紫虽然预告了，但真就一动不动啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+这几天万组播的最多的是懒狗你敢信<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+什么gachi不gachi，祭丝crew也说不上少，该车不还是车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 15106#       发表于 2020-6-11 09:06
+
+
+
+
+绫总如风般自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 15107#       发表于 2020-6-11 09:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758569&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 09:57</a>
+
+都赖夸不播，只能车狐皇了
+
+话说傻紫虽然预告了，但真就一动不动啊
+
+这几天万组播的最多的是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">お嬢今天还有联动好像
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 15108#       发表于 2020-6-11 09:11
+
+
+
+
+友坛的战舰世界版，自制mod给船上贰刺螈涂装，见得最多的就是狐狸的。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 15109#       发表于 2020-6-11 09:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">狐皇其实如果不铁头喂饭星我对这种她这种定位还挺认可的，而且狐皇虽然确实真正水平可能只是T1.5但是反过来说杂谈力和游戏力，游戏选择也还是够用，如果不撞车有时我也会看看鲨鱼这种，估计虽然SC少但是同接并不低的原因可能就在于此吧。。
+
+ 至于铁头喂饭星和玩扭曲仙境我不予评价<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15110#       发表于 2020-6-11 09:20
+
+
+
+
+笑死人了，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 15111#       发表于 2020-6-11 09:22
+
+
+
+
+刚刚打邦碰到个id就叫kbtit的
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 15112#       发表于 2020-6-11 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">抽到了黑贞就嫌弃开荒期的白贞，你们也太真实了吧，再怎么说狐皇也是撑住草创期的中坚力量，抛开历史谈贡献真就吃饱不用前九碗咯？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 15113#       发表于 2020-6-11 09:33
+
+
+
+
+整天搞团建的人被标记为吸血还行，升米恩斗米仇
+
+
+
+
+
+
+
+-----
+
+####  null0304  
+##### 15114#       发表于 2020-6-11 09:35
+
+
+
+
+迷迷糊糊看ロベル朝活
+
+然后看见配信简介栏小心翼翼的写了这么一行一下子笑清醒了
+
+
+
+
+
+
+D9332BC9-FBE3-4BFD-BCFB-1C737563F76F.jpeg
+(9.98 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-11 09:35 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/093509fporocjuopgkczpc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15115#       发表于 2020-6-11 09:36
+
+
+
+
+而且彩虹现在似乎也有扩圈的意思了呢，隔壁虹楼里说到虹观众中的英语浓度也增加了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+虹慢一步也能吃到海外了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 15116#       发表于 2020-6-11 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758976&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-11 09:36</a>
+
+而且彩虹现在似乎也有扩圈的意思了呢，隔壁虹楼里说到虹观众中的英语浓度也增加了。
+
+虹慢一步也能吃 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer"> 净土宗太监的说法有什么相信的必要吗？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15117#       发表于 2020-6-11 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758989&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-11 09:37</a>
+
+净土宗太监的说法有什么相信的必要吗？</blockquote>
+作为最大的太监，你说的很对<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15118#       发表于 2020-6-11 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758976&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-11 09:36</a>
+而且彩虹现在似乎也有扩圈的意思了呢，隔壁虹楼里说到虹观众中的英语浓度也增加了。
+
+虹慢一步也能吃 ...</blockquote>
+讲道理海外虹弄的不比杏晚吧…之前还说yagoo抄id作业，就是效果不行
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15119#       发表于 2020-6-11 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759011&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 09:39</a>
+
+讲道理海外虹弄的不比杏晚吧…之前还说yagoo抄id作业，就是效果不行</blockquote>
+倒不是说海外分部，而是本社的海外粉的比例上来了。
+
+这更像是英语圈的生态起来以后，英语观众能关注到更多的主播了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15120#       发表于 2020-6-11 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759011&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 09:39</a>
+
+讲道理海外虹弄的不比杏晚吧…之前还说yagoo抄id作业，就是效果不行</blockquote>
+其实holo id发展的比cn一期生强多了，这三又特别会整活，和本社交流也不低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 15121#       发表于 2020-6-11 09:42
+
+
+
+
+本醋昆布就不服了，你们见过几个做到一姐还要亲自下场干架的？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 15122#       发表于 2020-6-11 09:43
+
+
+
+ 本帖最后由 空派白 于 2020-6-11 09:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不是 你们车夏吹就车夏吹 说mrra我也没意见
+
+顺劈kemt不是瞎扯淡 现在还有个樋口p樋口的sc卫星呢
+
+
+sly至于海外进出虹无印早就有海外市场了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+虹一直有一批海外观众的 18年凛 19年虾丸 而且最近哪有什么海外进出动作
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15123#       发表于 2020-6-11 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757623&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-11 02:59</a>
+
+今天35玩壶芙宝是不是没出来。据说明天35要耐久壶，希望壶没事。</blockquote>
+昨天在同一个地方来回卡了一个多小时，人称锁龙崖
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15124#       发表于 2020-6-11 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759054&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-11 09:42</a>
+其实holo id发展的比cn一期生强多了，这三又特别会整活，和本社交流也不低 ...</blockquote>
+holocn都不在404当然交集少，何况还有语言问题。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15125#       发表于 2020-6-11 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759072&amp;ptid=1938145" target="_blank">空派白 发表于 2020-6-11 09:43</a>
+
+不是 你们车夏吹就车夏吹 说mrra我也没意见
+
+顺劈kemt不是瞎扯淡 现在还有个樋口p樋口的sc卫星呢</blockquote>
+详细说说呗，毕竟情弱，难免有错，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15126#       发表于 2020-6-11 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47757808&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-11 06:05</a>
+
+楼下说的没错，我可不是什么圣人，只是因为不是主推所以还能勉强抗压
+
+
+再说了，真抗不了就溜呗， ...</blockquote>
+假面骑士不好看了.jpg
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15127#       发表于 2020-6-11 09:46
+
+
+
+
+车点别的话题吧……关于昨天的独角兽问题
+
+
+怎么没个男版爱丽丝呢，要黑也黑不动的那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过纯自闭路线的确可能避免很多争议
+
+
+不过爱丽丝也不是凭着“拒绝联动”来避免被车的吧（思考）
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15128#       发表于 2020-6-11 09:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">来了来了，白上桑就是“九碗”，其他人是几碗？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 15129#       发表于 2020-6-11 09:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 人家杏ID不比你虹id过的好100倍
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 15130#       发表于 2020-6-11 09:49
+
+
+
+
+2019年上半年就有人跟我说狐狸拉着全社吸大亏血了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15131#       发表于 2020-6-11 09:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759109&amp;ptid=1938145" target="_blank">无限舰制 发表于 2020-6-11 09:46</a>
+车点别的话题吧……关于昨天的独角兽问题
+
+
+怎么没个男版爱丽丝呢，要黑也黑不动的那种</blockquote>
+按黑宝的说法不就是一弦吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15132#       发表于 2020-6-11 09:50
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-6-11 09:51 编辑 
+
+去hiyoko看了看，id分部完美复刻本部，杏平均碾压，虹一超多强<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15133#       发表于 2020-6-11 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758250&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 08:20</a>
+
+也不算欺世盗名吧，至少半年前你还能看见狐皇到处监控直播帮人灭火（最后一次是towa后面好像就不干了）， ...</blockquote>
+TOWA后面也没了啊，就一个羊，而羊她不能出来，出来就火上浇油
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15134#       发表于 2020-6-11 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759077&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 09:44</a>
+
+holocn都不在404当然交集少，何况还有语言问题。</blockquote>
+我倒不是车cn交流少。
+
+而是说id的主观能动性和能力都很强，语言能力保证了交流的能力，整活的能力保证了直播效果。
+
+相比之下cn一期恐怕只有civia综合素质有这个水平，然而civia日语渣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 15135#       发表于 2020-6-11 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759234&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-11 09:54</a>
+
+我倒不是车cn交流少。
+
+而是说id的主观能动性和能力都很强，语言能力保证了交流的能力，整活的能力保证了 ...</blockquote>
+国内跟404本来就是被隔离开的两个市场啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15136#       发表于 2020-6-11 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759092&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-11 09:44</a>
+
+假面骑士不好看了.jpg</blockquote>
+确实，近五年也就EA质量在线，就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">嘛我还有不少没补，至少black、rx还有旧十年前几个质量确实在线，W和OOO也是
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 15137#       发表于 2020-6-11 09:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759089&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-11 09:44</a>
+
+详细说说呗，毕竟情弱，难免有错，</blockquote>
+虹由于一部分人的直播时间（…）因素 在播一部分热度游戏的时候本来就是有一定的英文观众比例的
+
+最明显的就是MC 凛应该是早期英文观众比例比较高的 因为整地把本时区观众都熬死了
+
+虾丸MC也明显吸引到了一批英文观众
+
+除了MC最有名的应该是凛那个Country Roads被pewdiepie引流的事情
+
+
+APEX和瓦罗兰最近也是国外看的人还算多的游戏 英语观众数量增加不算很奇怪
+
+
+syl 假面骑士确实不好看了（ 黑宝看战队吗
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15138#       发表于 2020-6-11 09:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758666&amp;ptid=1938145" target="_blank">Fakerの幻影 发表于 2020-6-11 09:06</a>
+
+绫总如风般自由</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他人你们还能黑有内情，你看狗狗就没这个问题，自己神社开台，不摇铃都不出来见人
+
+
+简直太懒了！
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15139#       发表于 2020-6-11 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758792&amp;ptid=1938145" target="_blank">空集 发表于 2020-6-11 09:19</a>
+
+狐皇其实如果不铁头喂饭星我对这种她这种定位还挺认可的，而且狐皇虽然确实真正水平可能只是T1.5但 ...</blockquote>
+不是，你被金鱼的的话绕进去了。。。他后半截一转COCO去了。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15140#       发表于 2020-6-11 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759162&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 09:50</a>
+
+按黑宝的说法不就是一弦吗</blockquote>
+这有什么关联吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15141#       发表于 2020-6-11 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47758946&amp;ptid=1938145" target="_blank">tiro_finale 发表于 2020-6-11 09:33</a>
+
+整天搞团建的人被标记为吸血还行，升米恩斗米仇</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你怎么也被金鱼绕进去了。。。他后半截不是说狐狸了。。。。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 15142#       发表于 2020-6-11 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759251&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-11 09:55</a>
+
+国内跟404本来就是被隔离开的两个市场啊</blockquote>
+所以我就没有要车这方面的意思阿<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+而且同期交流不是交流嘛！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15143#       发表于 2020-6-11 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759054&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-11 09:42</a>
+
+其实holo id发展的比cn一期生强多了，这三又特别会整活，和本社交流也不低 ...</blockquote>
+是，ID三人组又会玩又会整活，还个个都住在推特上
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 15144#       发表于 2020-6-11 09:59
+
+
+
+
+虹的英语浓度一直很高啊，上个管时不时有英剪推动。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 15145#       发表于 2020-6-11 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 我不管，我不管，月之英语区观众最多！都是月之无敌百物语愚人节超级整活引流来的英语观众，
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空虚澄璃色|-1|无理黑虹，下次建议用月之美兔教你打越战钓.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 15146#       发表于 2020-6-11 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759154&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-11 09:49</a>
+2019年上半年就有人跟我说狐狸拉着全社吸大亏血了</blockquote>
+V综吸血链理论
+咩←夸←大家庭←狐皇←杏星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+建议yagoo塞咩点钱杏星直接找咩联动，杜绝中间商赚差价<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+讲真狐皇这订阅弄箱推说吸血太扯了。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15147#       发表于 2020-6-11 10:01
+
+
+
+
+彩虹无论国内还是欧美都只吸引了一帮小圈子，现在欧美国内扩圈从来都不是彩虹做的，搞得现在彩虹欧美浓度上升是早期虹人起作用似的，还不是蹭杏的汤喝
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 15148#       发表于 2020-6-11 10:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不过现在狐小将也的确少了很多。看来狐小将也难逃白上桑的屠刀，毕竟要保持人设一直做“少主营业”，人设塌了就不好Stars起飞了之后吸Stars的血了，现在还在先期投资的阶段。今天又听到了“米”啊“恩”啊“仇”什么的，白上桑割自己的肉分予她人食，女菩萨在世哦。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 15149#       发表于 2020-6-11 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759327&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-11 11:00</a>
+
+V综吸血链理论
+
+咩←夸←大家庭←狐皇←杏星
+
+建议yagoo塞咩点钱杏星直接找咩联动，杜绝中间商赚差 ...</blockquote>
+かぐらめあ创世神说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 15150#       发表于 2020-6-11 10:03
+
+
+
+
+今日份的stars团建，预定晚九点
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/100308ugozod3o6domo14o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200611_095957_com.google.android.youtube.jpg</strong> (921.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 10:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15151#       发表于 2020-6-11 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47759357&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-11 10:03</a>
+かぐらめあ创世神说</blockquote>
+国内点创世神算cp就是meaqua，夏吹，算个人也是这4个
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 15152#       发表于 2020-6-11 10:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/100417xgf290f2d15t88z9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-a854ZeT3cSrs-k1.jpg.medium.jpg</strong> (59.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 10:04 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/100416eky0d8y2yt2uk02y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200611110328.jpg</strong> (3.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 10:04 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/11/100506twl2ss5o0z2slbq2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200608113430.jpg</strong> (29.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-11 10:05 上传
+
+
+
+
+
+
+
+
+
+
+                                            
