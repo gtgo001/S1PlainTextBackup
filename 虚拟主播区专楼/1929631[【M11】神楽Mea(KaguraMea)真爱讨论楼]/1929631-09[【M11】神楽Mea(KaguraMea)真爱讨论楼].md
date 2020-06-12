@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 18:05** 
+> ## **本文件最后更新于2020-06-12 22:12** 
 
 
 
@@ -4917,11 +4917,750 @@ Saya出道跟你咩姐能把观众整爆炸<img src="https://static.saraba1st.co
 
 
 
+ 本帖最后由 Mr.shelter 于 2020-6-12 18:06 编辑 
 
-saya声线喜欢不来。说起来苔苔那儿还没出到的
-
-
-
+saya声线喜欢不来。还是u18r可爱。说起来苔苔那儿还没出道的那个女v的声音很戳我。所以她什么时候出道呀。
 
 
-                                        
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12281#       发表于 2020-6-12 18:31
+
+
+
+
+你是说中之人是画师的那个吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12282#       发表于 2020-6-12 18:35
+
+
+
+
+好像是吧 ，不太记得了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12283#       发表于 2020-6-12 19:05
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 19:16 编辑 
+
+说起来方舟指令有日服吗，会同步联动吗，看到有日本人来下了个国服的方舟指令<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+↓那就不知道会不会同步联动了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12284#       发表于 2020-6-12 19:14
+
+
+
+
+有日服和韩服
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12285#       发表于 2020-6-12 19:24
+
+
+
+
+草，原来转微博的联动也有抽to签<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12286#       发表于 2020-6-12 20:02
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12287#       发表于 2020-6-12 20:05
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 20:06 编辑 
+
+我还以为是10点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12288#       发表于 2020-6-12 20:05
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 20:06 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12289#       发表于 2020-6-12 20:07
+
+
+
+
+不行
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/200720ksv56o6o76qm87am.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200612200555.png</strong> (105.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 20:07 上传
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12290#       发表于 2020-6-12 20:07
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-12 20:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看起来白雪还没那么苔味,挂后台办事了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12291#       发表于 2020-6-12 20:12
+
+
+
+
+打开， 看到苔风脸， 关闭
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12292#       发表于 2020-6-12 20:14
+
+
+
+
+这两人挺熟？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12293#       发表于 2020-6-12 20:21
+
+
+
+
+谁不在黑谁的优良传统不能丢
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12294#       发表于 2020-6-12 20:21
+
+
+
+
+没事,这两人在黑屁苔苔
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12295#       发表于 2020-6-12 20:22
+
+
+
+
+熟不熟感觉也就那样吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过有事苔苔干，没事干苔苔太草了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12296#       发表于 2020-6-12 20:26
+
+
+
+
+嗯嗯嗯嗯嗯嗯
+
+这b在偷偷玩手机吧<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12297#       发表于 2020-6-12 20:31
+
+
+
+
+我已经开始想象你麻线下被苔苔和她身边的一帮姨围观的场景了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12298#       发表于 2020-6-12 20:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">线上装前辈，线下乖宝宝
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12299#       发表于 2020-6-12 20:35
+
+
+
+
+Mea fam<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12300#       发表于 2020-6-12 20:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">素巴拉西，我也事Mea fam
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 12301#       发表于 2020-6-12 20:37
+
+
+
+
+有一说一一开始的确是MeaFam来着……
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12302#       发表于 2020-6-12 20:38
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12303#       发表于 2020-6-12 20:41
+
+
+
+ 本帖最后由 路人子 于 2020-6-12 21:10 编辑 
+
+没记错应该是初放送里起的名（结果几乎没有任何存在感
+
+
+啊，去翻了一下确实是“めあ仕い”
+
+<img src="https://img.saraba1st.com/forum/202006/12/205553nsg6eb64bkpnxbgn.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (795.08 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-12 20:55 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Freeze_Jizhe  
+##### 12304#       发表于 2020-6-12 20:44
+
+、
+
+
+ 本帖最后由 Freeze_Jizhe 于 2020-6-12 21:06 编辑 
+
+你记错了，初放送还遵循女仆角色，起的是「めあ使い」，直译大概是「役使Mea的」人，就是主人
+
+啊、是「仕い」，Mea侍奉的人，太久没用了记错了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12305#       发表于 2020-6-12 20:46
+
+
+
+
+“还是想和粉丝交流”
+呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12306#       发表于 2020-6-12 20:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那最初的粉丝牌是“MeaFam”是有什么梗吗？
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 12307#       发表于 2020-6-12 20:54
+
+
+
+
+我猜是因为＃凛fam
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12308#       发表于 2020-6-12 20:57
+
+
+
+
+草死宅大失败(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12309#       发表于 2020-6-12 21:01
+
+
+
+
+聊的这些有丶意思
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12310#       发表于 2020-6-12 21:04
+
+
+
+
+秀理解:要你喜欢的不是mea而是麻v酱v，大伙是有机会的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12311#       发表于 2020-6-12 21:04
+
+
+
+
+溜了溜了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12312#       发表于 2020-6-12 21:06
+
+
+
+
+可本皮性恋就是喜欢mea啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12313#       发表于 2020-6-12 21:13
+
+
+
+
+喜欢长发咩咩(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12314#       发表于 2020-6-12 21:16
+
+
+
+
+被实名认证挡了草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 12315#       发表于 2020-6-12 21:18
+
+
+
+
+咩好像好久没理发了，头发长度应该快赶上立绘了吧
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 12316#       发表于 2020-6-12 21:20
+
+
+
+
+这图？“今天要做什么游戏的实况好呢？”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">谁设计的台词
+
+
+LOL OSU 麻将，有什么好挑的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12317#       发表于 2020-6-12 21:20
+
+
+
+
+赶上立绘太离谱了,多半就是水母头长到肩胛骨那块了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12318#       发表于 2020-6-12 21:22
+
+
+
+
+啊啊啊啊别说了我好想看ddd小麻啊啊啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12319#       发表于 2020-6-12 21:28
+
+
+
+
+很久没有新麻图了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12320#       发表于 2020-6-12 21:30
+
+
+
+
+她自己会剪吧，最起码刘海应该能理理
+好像有次说她自己剪剪的一塌糊，之后去理发店，人家老板还以为她被人欺负了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12321#       发表于 2020-6-12 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782794&amp;ptid=1929631" target="_blank">llconforever 发表于 2020-6-12 21:18</a>
+
+咩好像好久没理发了，头发长度应该快赶上立绘了吧</blockquote>
+你们天狗连这都知道？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12322#       发表于 2020-6-12 21:56
+
+
+
+
+咩宝的小狗叫声konkon，快要把我这个怪大叔融化了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                       
