@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 06:07** 
+> ## **本文件最后更新于2020-06-12 10:08** 
 
 
 
@@ -18835,7 +18835,7 @@ SAN一下掉了多少。。。？</blockquote>临时疯狂 5以上
 
 
 
-<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_w1bQ4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EaMW5HqUwAEjGc4?format=jpg&amp;name=medium" height="450" id="aimg_UVT80" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 那个人要播了
 
@@ -29122,6 +29122,615 @@ Syl，ps5发布会在日本深夜5点六国（不含中国）合砍 接近40w同
 <blockquote>深渊萃取 发表于 2020-6-12 01:43
 V综居然有看sephira的</blockquote>
 不奇怪吧，像我订阅就3个人，露露，神城，苏
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16473#       发表于 2020-6-12 06:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨天痛陈白上桑涛涛罪状的确有2000那味儿了，不过我早就疯了，也不是现在才疯。
+另外mio收的Stars联动希望的SC有点ky吧，这种投给夏色吹雪不就好了吗，mio外联才有几次？哦，Stars也是HoloP所以算内联，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl Sony至少预告了2个管人金游，恶魂和生化8，其他的的确不太行。嗯，有版权许可的话。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 16474#       发表于 2020-6-12 06:35
+
+
+
+
+没有任任了，可不可以拿索索的卡通画风游戏代替<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16475#       发表于 2020-6-12 06:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47772624&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-12 06:09</a>
+
+昨天痛陈白上桑涛涛罪状的确有2000那味儿了，不过我早就疯了，也不是现在才疯。
+
+另外mio收的Stars联 ...</blockquote>
+我猜多半是因为stars咋晚也有人狼联动才有人去发的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16476#       发表于 2020-6-12 06:51
+
+
+
+
+恶魂p站会允许转播吗？我记得魂系列都被禁了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16477#       发表于 2020-6-12 06:53
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-12 06:55 编辑 
+
+一大早起来爬昨晚的楼我好气啊，这楼里起码有三个我能认出来的野兔子（虽然有些很少讲话），你们还天天说V综没有野兔子，然后来了个新野兔子劈了下夸就立马被你们确认了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16478#       发表于 2020-6-12 07:16
+
+
+
+
+nmd，同时视听还要找个不免费的
+
+本法外狂徒杏仁能不能下个海贼版一起看
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16479#       发表于 2020-6-12 07:18
+
+
+
+<blockquote>bluebaby 发表于 2020-6-12 06:53
+一大早起来爬昨晚的楼我好气啊，这楼里起码有三个我能认出来的野兔子（虽然有些很少讲话），你们还天天说V ...</blockquote>
+那是先被确认然后劈的夸，不要什么锅都往crew甩呀
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 16480#       发表于 2020-6-12 07:21
+
+
+
+
+不知道露露会不会再玩一遍恶魂
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16481#       发表于 2020-6-12 07:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47772907&amp;ptid=1938145" target="_blank">crawarb 发表于 2020-6-12 07:18</a>
+那是先被确认然后劈的夸，不要什么锅都往crew甩呀</blockquote>
+不是crew锅不锅，大家对兔子和野兔子的认知定型于上位替代理论让我觉得很悲哀<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 16482#       发表于 2020-6-12 07:36
+
+
+
+<blockquote>bluebaby 发表于 2020-6-12 07:30
+不是crew锅不锅，大家对兔子和野兔子的认知定型于上位替代理论让我觉得很悲哀 ...</blockquote>
+平时多repo试试？现在没有兔子专楼，想认知野兔子也蛮难的
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 16483#       发表于 2020-6-12 07:42
+
+
+
+
+兔子上位替代，野兔子又不是上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16484#       发表于 2020-6-12 08:47
+
+
+
+
+今早看到的图质量都好高
+https://twitter.com/Racchi123/status/1270087708820385800?s=20
+https://twitter.com/saku2621/status/1271021439475265537?s=20
+https://twitter.com/z3_cut/status/1270575763327037440?s=20<img src="https://p.sda1.dev/0/74709d4c4e0e62c7a5ca29817327eb81/IMG_0AC815E25F72E9D69B9AD44F302316A5.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 16485#       发表于 2020-6-12 08:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47772624&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-12 06:09</a>
+
+昨天痛陈白上桑涛涛罪状的确有2000那味儿了，不过我早就疯了，也不是现在才疯。
+
+另外mio收的Stars联 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好奇你为啥会疯了，怎么演变的，能自叙一下吗？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|跟希gachi一样呗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 16486#       发表于 2020-6-12 08:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770318&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 00:19</a>
+
+“回到大家庭”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这样钓鱼只能钓到不明真相的群众啊
+
+
+梅露正常的时候也是本体播爆啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 16487#       发表于 2020-6-12 09:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770395&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-12 00:26</a>
+
+什么时候cover成中资企业就会发了，删个视频好歹表明了态度。真要贯彻战狼之道，不如去推维啊。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你为什么要回粪坑搬运工啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16488#       发表于 2020-6-12 09:11
+
+
+
+
+小天使今天原定计划后移给心心回归让路。
+
+jst 19:00作业用歌回（我再信你一次）
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16489#       发表于 2020-6-12 09:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771543&amp;ptid=1938145" target="_blank">Kanoya 发表于 2020-6-12 04:06</a>
+
+啥时候换的，都没个消息的
+
+
+悄梭梭换的还是明牌换的啊</blockquote>
+复归的时候就换了吧，这个怎么明牌，本身就是推测的东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空派白  
+##### 16490#       发表于 2020-6-12 09:23
+
+
+
+ 本帖最后由 空派白 于 2020-6-12 09:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47771197&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-12 02:03</a>
+
+是代打吗。。
+
+其实看萌萌美少女打枪打的和那帮twitch老爷们一样好也挺违和的，打的菜又高血压，挺矛盾的
+
+希 ...</blockquote>
+如果追求水平相对比较高的女性FPS管人的话：
+
+杏戸ゆげ：
+[https://space.bilibili.com/160085](https://space.bilibili.com/160085?from=search&amp;seid=7337771240633103794)
+
+勇気ちひろ：
+[https://space.bilibili.com/3726678](https://space.bilibili.com/3726678)
+
+花芽なずな、花芽すみれ：
+[https://space.bilibili.com/264319276](https://space.bilibili.com/264319276)
+
+一ノ瀬うるは：
+[https://space.bilibili.com/424595836](https://space.bilibili.com/424595836)
+
+
+
+如果男性也可以的话：
+
+渋谷ハル：
+[https://space.bilibili.com/8207867](https://space.bilibili.com/8207867)
+
+（不过这个组好像很久没动过了）
+
+叶：
+[https://space.bilibili.com/434563934](https://space.bilibili.com/434563934)
+
+白雪レイド：
+[https://space.bilibili.com/481311214](https://space.bilibili.com/481311214)
+
+
+实际上我不算FPS玩家 只是推荐的基本上也只是通过我推认识的范围内的几个印象里水平比较好的
+
+印象里大歌猩和乾好像apex排位也挺高但是没看过
+
+
+为了方便查看给的都是B站 如果想看油管自己搜就是了
+
+
+
+不是 s1这个回复的换行怎么乱七八糟的 强迫症选手难受很久了
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 16491#       发表于 2020-6-12 09:23
+
+
+
+
+咱12点看着MIKO打壶睡过去了。。。。然后半夜5点20被MIKO穿墙入耳的吼声尼玛吵醒了。。。。
+
+
+睡眼惺忪一看屏幕。。。。PS5什么的同时视听。。。MIKO你在干什么啊
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 16492#       发表于 2020-6-12 09:23
+
+
+
+
+一般人对技术要求哪有那么高、你亏APEX能上砖就已经比这游戏百分之97的人强了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16493#       发表于 2020-6-12 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47773976&amp;ptid=1938145" target="_blank">空派白 发表于 2020-6-12 09:23</a>
+
+如果追求水平相对比较高的女性FPS管人的话：
+
+杏戸ゆげ：
+
+https://space.bilibili.com/160085</blockquote>
+编辑之后的新换行是不可信的，点高级模式里的纯文本模式，才能看见实际输出的换行
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空派白| + 1|谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 16494#       发表于 2020-6-12 09:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47772402&amp;ptid=1938145" target="_blank">icecry 发表于 2020-6-12 05:31</a>
+
+不奇怪吧，像我订阅就3个人，露露，神城，苏</blockquote>
+奇怪倒是不奇怪，没想到会有repo
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 16495#       发表于 2020-6-12 09:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">对V的一切猜测都是遵从疑罪从有和举证责任倒置的，猫宫那么喜欢萝卜子，但是和萝卜子联动玩过fps吗？
+另外我因为不是fps粉（老年人枪法），她一开始打枪的视频就看了头几个，发现他总是在玩fps就放置了，玩其他游戏的视频才会去看。以前还有猫饼cp，现在各奔前程了。话说谁知道Akari现在是什么情况？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 16496#       发表于 2020-6-12 09:29
+
+
+
+<blockquote>bluebaby 发表于 2020-6-12 08:47
+今早看到的图质量都好高
+
+https://twitter.com/Racchi123/status/1270087708820385800?s=20
+
+https://twitter ...</blockquote>
+手动加鹅
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 16497#       发表于 2020-6-12 09:34
+
+
+
+ 本帖最后由 蛋炒蜂窝煤 于 2020-6-12 09:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47770891&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 01:18</a>
+
+我觉得有些更危险的东西值得担心......不知道转不转播...
+
+月之这个迪士尼脱fen已经在本子上有一笔了，再 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你这是被种梁木了啊，这个打成反hua就是矫枉过正或者说有人带节奏，这时候就应该来个苏联笑话
+
+
+“这人干过什么？”
+
+“反hua。”
+
+“他说了什么？”
+
+“他说有人在迪士尼拉shi。”
+
+
+
+
+
+
+
+
+
+-----
+
+####  一杯茶  
+##### 16498#       发表于 2020-6-12 09:40
+
+
+
+
+不知道电竞主播圈子对代打怎么看待的，vtb的话，能看成单纯的“人设”或者“虚拟”吗？
+syl，这事车轱辘都老早以前了，看一次觉得猫宫可惜一次，个人还比较喜欢她懒洋洋的声音来着
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 16499#       发表于 2020-6-12 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47774014&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-12 09:26</a>
+
+奇怪倒是不奇怪，没想到会有repo</blockquote>
+毕竟3d公布特殊，虽然之前也搞过3d了。平时两姐的直播太普通了没啥repo的必要，不过比起苏我还是更喜欢神城<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 16500#       发表于 2020-6-12 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47774182&amp;ptid=1938145" target="_blank">一杯茶 发表于 2020-6-12 09:40</a>
+
+不知道电竞主播圈子对代打怎么看待的，vtb的话，能看成单纯的“人设”或者“虚拟”吗？
+
+syl，这事车轱辘都 ...</blockquote>
+真人圈早就给橄榄了吧
 
 
 
