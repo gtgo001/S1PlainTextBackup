@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 02:02** 
+> ## **本文件最后更新于2020-06-12 12:06** 
 
 
 
@@ -1718,4 +1718,644 @@ lol+osu游戏主播
 
 
 
-                                              
+
+
+-----
+
+####  nightmare902015  
+##### 12096#       发表于 2020-6-12 02:11
+
+
+
+
+铁拳，俄罗斯方块，一听就是上古骨灰级硬核玩家了。
+
+mea一定还藏了一手RTS天赋，你有机会摸到她电脑会发现里面有CNC三部曲和沙丘2
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12097#       发表于 2020-6-12 05:20
+
+
+
+
+她这人私下玩的到底是什么
+
+好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 12098#       发表于 2020-6-12 05:32
+
+
+
+
+玩的当然是ps5偷跑独占4399
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12099#       发表于 2020-6-12 05:43
+
+
+
+
+不太懂这两波人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+同好会都是觉得夸抛弃了咩咩的夸黑，酒厂都是觉得木口逼夸抛弃了咩咩的木口黑？
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12100#       发表于 2020-6-12 05:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47772326&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-12 05:20</a>
+她这人私下玩的到底是什么
+
+好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好奇好 ...</blockquote>
+我倒是知道她私底下玩什么<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12101#       发表于 2020-6-12 06:33
+
+
+
+
+太弱智了，原来同好会和官组势力如此不合呀，不仲猜的到，如此深的梁木我也是没想到的，小团体把人变成鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 12102#       发表于 2020-6-12 06:34
+
+
+
+
+别接小博宇的话啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 12103#       发表于 2020-6-12 07:28
+
+
+
+
+怎么还没人出来换
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12104#       发表于 2020-6-12 07:40
+
+
+
+
+如果官组某些小团体能日更一个咩姐单人的熟肉那没有同好会区别也不大，可惜那些人做不到
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12105#       发表于 2020-6-12 07:46
+
+
+
+<blockquote>Dualist彩 发表于 2020-6-12 06:33
+太弱智了，原来同好会和官组势力如此不合呀，不仲猜的到，如此深的梁木我也是没想到的，小团体把人变成鬼[f ...</blockquote>
+某些人不合而已，fafa和hl69早进官组了
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 12106#       发表于 2020-6-12 07:46
+
+
+
+<blockquote>Dualist彩 发表于 2020-6-12 06:33
+太弱智了，原来同好会和官组势力如此不合呀，不仲猜的到，如此深的梁木我也是没想到的，小团体把人变成鬼[f ...</blockquote>
+yysy，酒厂也不算官组势力啊（小并感）大伙儿都是海盗呢
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12107#       发表于 2020-6-12 07:48
+
+
+
+
+酒厂只是个大家都知道他们是弱智的弱智聚集地<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12108#       发表于 2020-6-12 07:56
+
+
+
+
+酒厂据他们自己所说是除了贴贴什么也不要的畸形组织，还有小博🐠这个自嗨的sb应该很好认吧别再满足他的猎奇心理了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12109#       发表于 2020-6-12 08:39
+
+
+
+
+回顾nga同传有个疑问，昨天咩姐和星川下黑白棋到底是赢了四把还是输了四把，“这人只赢了六子八子”里这人指星川，但前面又说赢了才结束。。。
+
+
+
+
+
+
+Screenshot_20200612_083628.jpg
+(44.26 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 08:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/083637exf0wxfwszzv7y4z.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12110#       发表于 2020-6-12 08:53
+
+
+
+
+应该是前5把咩赢了4把，后面一直继续玩，星川玩到战绩为正的才放她走吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12111#       发表于 2020-6-12 08:55
+
+
+
+
+没留意原文，可能说的每盘被吃到只剩几颗棋？
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 12112#       发表于 2020-6-12 09:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47773093&amp;ptid=1929631" target="_blank">IrisL 发表于 2020-6-12 07:56</a>
+酒厂据他们自己所说是除了贴贴什么也不要的畸形组织，还有小博🐠这个自嗨的sb应该很好认吧别再满足他的猎奇 ...</blockquote>
+那他们不是马上就要因为没活干而解散了么，不过可以转型二创组就是了。
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12113#       发表于 2020-6-12 09:12
+
+
+
+
+酒厂二创组贴贴(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12114#       发表于 2020-6-12 09:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">真好，贴贴捏
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12115#       发表于 2020-6-12 09:37
+
+
+
+
+怎么又车轱辘回游戏力了……
+
+
+要我说至少把初见文字说明跳过的习惯改一改吧（当然也不是每个游戏都要这样）
+
+
+不过硬要说的话我可能也没那么喜欢看人打游戏，但至少单机走流程比竞技类看着重复性少多了……
+
+
+不过这种事大概在她身上没指望了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12116#       发表于 2020-6-12 09:37
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 09:48 编辑 
+
+只要能贴贴，就算小博禹也是可以交流的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑暗贴贴人就是这么弱智的人啊
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12117#       发表于 2020-6-12 09:55
+
+
+
+
+我怀疑这人根本就没有独自一人玩个新游戏的能力<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12118#       发表于 2020-6-12 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">没看到有人理他啊，总之这个b人就别接话了吧，我视奸了一年多前段时间就弄了这么个号没法换，就脑内屏蔽一下
+
+syl [https://www.bilibili.com/video/BV1Mg4y167Zv/](https://www.bilibili.com/video/BV1Mg4y167Zv/) 没看到昨晚的剪辑，倒是突然翻到了前面几次唱的混剪，还行吧……  再次坐等昨天晚上的，顺便命嫌也想要<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12119#       发表于 2020-6-12 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47774394&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-6-12 09:56</a>
+没看到有人理他啊，总之这个b人就别接话了吧，我视奸了一年多前段时间就弄了这么个号没法换，就脑内 ...</blockquote>
+[https://b23.tv/BV1ov411z7h6](https://b23.tv/BV1ov411z7h6)
+命嫌有剪出来的，这人没下播就剪了好几段出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12120#       发表于 2020-6-12 10:03
+
+
+
+
+毕竟咩咩之前的游戏都是有人手把手教的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+都怪乌冬不玩新游戏<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">天狗们一起去冲了他
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12121#       发表于 2020-6-12 10:06
+
+
+
+
+游戏主播没那么简单的，要练也要写剧本。
+要么就播对抗性游戏把气氛拉满
+
+
+
+
+
+
+
+-----
+
+####  HinataY  
+##### 12122#       发表于 2020-6-12 10:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47774537&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-6-12 10:06</a>
+游戏主播没那么简单的，要练也要写剧本。
+要么就播对抗性游戏把气氛拉满</blockquote>
+还是看经验和灵性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 12123#       发表于 2020-6-12 10:35
+
+
+
+
+ 秦先生年轻的时候是技术主播啊，积累了粉丝基础啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12124#       发表于 2020-6-12 11:19
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-12 11:27 编辑 
+
+人家不看教程是因为见得多了啊（）
+
+其实对V来说游戏也不用太苛求节目效果的编排吧
+
+
+本人有反应就行了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12125#       发表于 2020-6-12 11:44
+
+
+
+
+话说周报是什么组织啊，海贼团?那为什么不跟同好会合一下啊
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 12126#       发表于 2020-6-12 11:52
+
+
+
+
+周报是什么，专栏？
+说的是日报吧，日报是环mea的，性质不一样。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12127#       发表于 2020-6-12 11:54
+
+
+
+
+周报那人不是被同好会吃了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日报以前是做日报的，现在就是单纯的烤肉组织而已
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12128#       发表于 2020-6-12 11:56
+
+
+
+
+https://space.bilibili.com/412628370?share_medium=android&amp;share_source=copy_link&amp;bbid=XYB98C2B0467F96D595A237E35B840E2EA455&amp;ts=1591934096196
+
+这个是日报，反正对我来说有有趣产出就行，不在乎塞私活
+
+反正日报现在产出量是被同好会官组吊打
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12129#       发表于 2020-6-12 11:59
+
+
+
+ 本帖最后由 A2014720 于 2020-6-12 12:01 编辑 
+
+日报封面是狂犬哥搞的吗？
+我看翻译校队各种人都有，好奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12130#       发表于 2020-6-12 12:01
+
+
+
+
+日报分活的人就在泥潭啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然现在只是视奸不怎么说话了
+
+
+
+
+
+                                             
