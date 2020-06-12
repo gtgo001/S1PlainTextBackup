@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 18:09** 
+> ## **本文件最后更新于2020-06-12 20:10** 
 
 
 
@@ -7723,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_gHxiw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_cCin2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -11067,6 +11067,25 @@ ARK官方许可RTA草
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| colodes| + 2||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11349,7 +11368,7 @@ b站直播区现在做得比斗鱼虎牙还大，难免没人眼红想把b毁了
 
 
 津田弁護士.png
-(40.79 KB, 下载次数: 0)
+(40.79 KB, 下载次数: 1)
 
 
 
@@ -11599,7 +11618,7 @@ ARK游戏好像最近要免费了来着，也是时候了<img src="https://stati
 
 
 
-这次虹杏立场正好相反
+这次虹杏liver立场和上次正好相反
 
 杏这边十几个小fw跪在院子外面等龙皇喂饭
 
@@ -11609,4 +11628,1805 @@ ARK游戏好像最近要免费了来着，也是时候了<img src="https://stati
 
 
 
-                             
+
+
+-----
+
+####  激光2000  
+##### 17116#       发表于 2020-6-12 18:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">我在地铁上脑补了mrr说服笹木和西西加入木口失败
+
+自己被抛弃，然后和她贴贴的狐狸、啊希又去舔五期升，
+
+愤懑之下，觉醒了轮回眼，
+
+开小号大爆之前葵皇等人的中身、黑历史
+
+最后被木口开除的她走上了绝望，
+
+弥留之际，葵皇出现并说服了她，
+
+mrr回归彩虹！来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17117#       发表于 2020-6-12 18:12
+
+
+
+
+龙皇：看房子，没空。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17118#       发表于 2020-6-12 18:14
+
+
+
+
+cocolive first
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17119#       发表于 2020-6-12 18:14
+
+
+
+
+彩虹ark？打得过职业选手插队的大乱斗十胜耐久企划吗？
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 17120#       发表于 2020-6-12 18:17
+
+
+
+
+说服谁都不会说服西西的
+日照权怎么想都是真的
+我记得出道得时候还去翻了录播
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17121#       发表于 2020-6-12 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780935&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-12 18:14</a>
+
+彩虹ark？打得过职业选手插队的大乱斗十胜耐久企划吗？</blockquote>
+你是说点踩么，五五开吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 17122#       发表于 2020-6-12 18:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780898&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-12 18:11</a>
+我在地铁上脑补了mrr说服笹木和西西加入木口失败
+
+自己被抛弃，然后和她贴贴的狐狸、啊希又去舔五期 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都写的什么jb，打回去重写。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 17123#       发表于 2020-6-12 18:21
+
+
+
+<blockquote>激光2000 发表于 2020-6-12 18:11
+我在地铁上脑补了mrr说服笹木和西西加入木口失败
+
+
+自己被抛弃，然后和她贴贴的狐狸、啊希又去舔五期 ...</blockquote>
+说服熊猫人和西西去木口上mrr不如上宫姨。当年好歹是和宫姨一起直播和恶心阿宅聊天的关系。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17124#       发表于 2020-6-12 18:23
+
+
+
+ 本帖最后由 winda 于 2020-6-12 18:29 编辑 
+
+[https://youtu.be/Fo00jdsT3TU](https://youtu.be/Fo00jdsT3TU)
+
+
+
+
+
+
+嘶.png
+(68.13 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-12 18:23 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/182323jdmaj7n77j8jhlm0.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+emmm.png
+(788.38 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-12 18:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/182935i7yuze037sy59u77.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17125#       发表于 2020-6-12 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780989&amp;ptid=1938145" target="_blank">cherryrain 发表于 2020-6-12 18:20</a>
+
+你是说点踩么，五五开吧</blockquote>
+？？？可是有职业选手的那次跟十胜的那次又不是同一次。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17126#       发表于 2020-6-12 18:27
+
+
+
+<blockquote>winda 发表于 2020-6-12 18:23
+https://youtu.be/Fo00jdsT3TU</blockquote>
+WTF!?
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17127#       发表于 2020-6-12 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781050&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-12 18:26</a>
+
+？？？可是有职业选手的那次跟十胜的那次又不是同一次。</blockquote>
+啊，2000说的不是预测以后的事么?
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17128#       发表于 2020-6-12 18:30
+
+
+
+
+今晚要群魔乱舞了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 17129#       发表于 2020-6-12 18:36
+
+
+
+
+怎么是个纸板<img src="https://p.sda1.dev/0/655d8c5e322e79a7e9e050ef328a8f8e/IMG_2C6544493C2DB2F20684F83764BB5E91.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17130#       发表于 2020-6-12 18:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">记得艾琳家有段时间和谁联动谁出事，有V圈祥瑞的绰号
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17131#       发表于 2020-6-12 18:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781080&amp;ptid=1938145" target="_blank">cherryrain 发表于 2020-6-12 18:29</a>
+啊，2000说的不是预测以后的事么?</blockquote>
+之后啥啊，許可取った？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17132#       发表于 2020-6-12 18:37
+
+
+
+
+郡道确实有一手<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17133#       发表于 2020-6-12 18:38
+
+
+
+ 本帖最后由 あのん 于 2020-6-12 18:40 编辑 
+
+怎么没人repo哈恰玛
+
+哈恰玛提自己十个优点，第二个“我年轻”<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+藤〇二小姐：出道的时候被设定成留学傲娇大小姐，下功夫研究傲娇角色到底是什么，自我催眠我是傲娇我是傲娇
+
+虽然我留学家里还有点臭钱，但我真不是大小姐啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17134#       发表于 2020-6-12 18:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781151&amp;ptid=1938145" target="_blank">あのん 发表于 2020-6-12 18:38</a>
+
+怎么没人repo哈恰玛
+
+哈恰玛提自己十个优点，第二个“我年轻”</blockquote>
+确实啊，你推优势也在这里
+
+
+你杏年下势虽然基本人均阿斗，但是老阿姨们就要混不下去了，她们的路还长着呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17135#       发表于 2020-6-12 18:41
+
+
+
+<blockquote>あのん 发表于 2020-6-12 18:38
+怎么没人repo哈恰玛
+
+哈恰玛提自己十个优点，第二个“我年轻”
+
+</blockquote>
+详细希望本体出处
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17136#       发表于 2020-6-12 18:41
+
+
+
+
+ARK官方推特转推
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 17137#       发表于 2020-6-12 18:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781139&amp;ptid=1938145" target="_blank">UnhappyTails 发表于 2020-6-12 18:37</a>
+
+郡道确实有一手</blockquote>
+？？？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17138#       发表于 2020-6-12 18:44
+
+
+
+
+艾琳联过一次老爱小白和空妈，开头像模像样几分钟后面开始粪游工商，我差点没把鼠标扔出去
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17139#       发表于 2020-6-12 18:47
+
+
+
+
+杏又赢
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17140#       发表于 2020-6-12 18:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781130&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 18:36</a>
+记得艾琳家有段时间和谁联动谁出事，有V圈祥瑞的绰号</blockquote>
+就是那张很经典的p图对吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17141#       发表于 2020-6-12 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> ark官方这一块，彩虹输的底裤都没了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17142#       发表于 2020-6-12 18:50
+
+
+
+
+与艾琳在联动视频搭上的话的确是个胸罩，不过可以庆幸兔子只搭上去了一块纸板。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17143#       发表于 2020-6-12 18:51
+
+
+
+
+22点杏开台太多了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">任弹以来少见的撞车。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17144#       发表于 2020-6-12 18:52
+
+
+
+
+我点进ARK官网就看见左上角斗大一排字”Vtuberコミュニティでも人気沸騰中”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17145#       发表于 2020-6-12 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781294&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-12 18:51</a>
+22点杏开台太多了吧。任弹以来少见的撞车。</blockquote>
+因为前面的时间在让吧
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17146#       发表于 2020-6-12 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781132&amp;ptid=1938145" target="_blank">Mika-S 发表于 2020-6-12 18:36</a>
+
+之后啥啊，許可取った？</blockquote>
+别急啊，再给牙膏一点时间，6个月，啊不是，半年，半年就好，就当是新年礼物了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17147#       发表于 2020-6-12 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780598&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-12 17:45</a>
+
+md！为什么我的税金要养5:30下班的虹人公务员，有没有杏仁公务员或豆腐公务员 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">杏仁公务员在此
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17148#       发表于 2020-6-12 18:57
+
+
+
+
+啊...今年没有AIParty了
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/185715dn156dd55100zhzf.png" referrerpolicy="no-referrer">
+
+
+<strong>ai.png</strong> (33.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 18:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 17149#       发表于 2020-6-12 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781301&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-12 18:52</a>
+
+我点进ARK官网就看见左上角斗大一排字”Vtuberコミュニティでも人気沸騰中” ...</blockquote>
+所以说不明白holoan那帮版权警察兴奋啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，任天堂这种公司全世界本来也不多见，大多数游戏公司真是巴不得多点曝光机会的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17150#       发表于 2020-6-12 18:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781305&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-12 18:52</a>
+杏仁公务员在此</blockquote>
+太好了，这样我交税就好，不用直接打钱了。现在只希望杏星粉里不要有公务员<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17151#       发表于 2020-6-12 19:00
+
+
+
+
+郡道月之历史联动来了！（[https://www.youtube.com/watch?v=ig-sgK42P9c](https://www.youtube.com/watch?v=ig-sgK42P9c)），直播间人数比平时多了快1000，不愧是高人气。
+
+看点：
+
+1、郡道
+
+2、月之
+
+3、我恶堕成2000（可能性大概是2%）
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17152#       发表于 2020-6-12 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781398&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 19:00</a>
+
+郡道月之历史联动来了！（https://www.youtube.com/watch?v=ig-sgK42P9c），直播间人数比平时多了快1000， ...</blockquote>
+楼里这几天已经增加了1.5个2000了好吧
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17153#       发表于 2020-6-12 19:02
+
+
+
+
+哈恰玛「绝对不会引退」😭
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 17154#       发表于 2020-6-12 19:02
+
+
+
+
+去看首播同接瞬间五万的魔力鸟了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17155#       发表于 2020-6-12 19:04
+
+
+
+
+毕竟今天8,9点都要让，10点确实撞得猛。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17156#       发表于 2020-6-12 19:05
+
+
+
+
+以前也就拿来当个笑话说
+
+
+这2天咱有点认真考虑狐狸视X V综楼的可能性了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17157#       发表于 2020-6-12 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781301&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-12 18:52</a>
+
+我点进ARK官网就看见左上角斗大一排字”Vtuberコミュニティでも人気沸騰中” ...</blockquote>
+我记得当时ARK官方还在推上关注了35吧？<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17158#       发表于 2020-6-12 19:10
+
+
+
+
+【歌枠コラボ】お久しぶりのお歌コラボﾀﾞゾウ♪【#レヴィらん/にじさんじ】
+
+[https://www.youtube.com/watch?v=ueqOHI7Qb4s](https://www.youtube.com/watch?v=ueqOHI7Qb4s)
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17159#       发表于 2020-6-12 19:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 彩虹ark没届到官方，真的是垃圾阿，是不是无许可配信阿
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17160#       发表于 2020-6-12 19:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780898&amp;ptid=1938145" target="_blank">激光2000 发表于 2020-6-12 18:11</a>
+
+我在地铁上脑补了mrr说服笹木和西西加入木口失败
+
+
+自己被抛弃，然后和她贴贴的狐狸、啊希又去舔五期 ...</blockquote>
+如何评价我在家里面脑补了你在地铁上脑补这些时的路人视角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  喜闻乐见  
+##### 17161#       发表于 2020-6-12 19:12
+
+
+
+
+拉满
+
+6月13日23時～24時
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gfppv53g4hj20iw0annb6.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17162#       发表于 2020-6-12 19:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781520&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-12 19:11</a>
+
+如何评价我在家里面脑补了你在地铁上脑补这些时的路人视角</blockquote>
+2000的gachi恋？<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17163#       发表于 2020-6-12 19:14
+
+
+
+
+miko和龙皇方的直播间SC全部关闭
+
+喂喂喂喂喂
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17164#       发表于 2020-6-12 19:15
+
+
+
+
+COCO上来就死了。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17165#       发表于 2020-6-12 19:17
+
+
+
+
+はい、ホロARKオワタ
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17166#       发表于 2020-6-12 19:17
+
+
+
+
+为毛要关SC啊。。。。。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17167#       发表于 2020-6-12 19:18
+
+
+
+
+啊这
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17168#       发表于 2020-6-12 19:18
+
+
+
+
+情报：团长凌晨4点出门训练X 吃牛肉饭√
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17169#       发表于 2020-6-12 19:19
+
+
+
+
+嗯？我点开龙皇直播间看了一眼SC不是开着的么
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17170#       发表于 2020-6-12 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781592&amp;ptid=1938145" target="_blank">Ketestrait 发表于 2020-6-12 19:19</a>
+
+嗯？我点开龙皇直播间看了一眼SC不是开着的么</blockquote>
+那个是待机的时候打的，现在是关着的
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 17171#       发表于 2020-6-12 19:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781428&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-12 19:02</a>
+
+哈恰玛「绝对不会引退」😭</blockquote>
+「如果我不播了，就当我死了」<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17172#       发表于 2020-6-12 19:21
+
+
+
+
+恰哈玛边被狐皇烫着烟头边说道
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17173#       发表于 2020-6-12 19:32
+
+
+
+
+话说烟头这梗到底怎么来的啊
+
+
+
+
+
+
+
+-----
+
+####  秘封赛高！  
+##### 17174#       发表于 2020-6-12 19:34
+
+
+
+
+小白今天这鸡吃的...
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17175#       发表于 2020-6-12 19:35
+
+
+
+
+她队友运一直可以的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 17176#       发表于 2020-6-12 19:35
+
+
+
+[https://www.youtube.com/watch?v=AlUOv6fSGV0](https://www.youtube.com/watch?v=AlUOv6fSGV0)
+
+【ぬんぬんと覚える】青空のシンフォニー【コール練習動画※ShortVersion】
+
+
+这种歌还能往里边塞打call呢，这就是偶像梦做傻了的典型，弱智吧
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 17177#       发表于 2020-6-12 19:35
+
+
+
+
+和苔姨某次联动时自我暴露的醒脾
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17178#       发表于 2020-6-12 19:35
+
+
+
+
+咱觉得MIKO八成会住到樱花林去了
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 17179#       发表于 2020-6-12 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781730&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-12 19:32</a>
+话说烟头这梗到底怎么来的啊</blockquote>
+狐狸和犬山的联动的时候说了自己的性癖有烫烟头
+然后V综创造的老谋深算狐形象结合了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 17180#       发表于 2020-6-12 19:40
+
+
+
+
+鸟叔虎扑同接5w8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 17181#       发表于 2020-6-12 19:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781428&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-12 19:02</a>
+
+哈恰玛「绝对不会引退」😭</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17182#       发表于 2020-6-12 19:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781810&amp;ptid=1938145" target="_blank">y78348877 发表于 2020-6-12 19:40</a>
+鸟叔虎扑同接5w8</blockquote>
+你知不知道这楼曼联球迷多<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17183#       发表于 2020-6-12 19:42
+
+
+
+
+木鸟同接也就一兔多
+
+凭什么他年薪那么高
+
+穆里尼奥年薪高该如何问责
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17184#       发表于 2020-6-12 19:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781755&amp;ptid=1938145" target="_blank">free 发表于 2020-6-12 19:35</a>
+
+https://www.youtube.com/watch?v=AlUOv6fSGV0
+
+【ぬんぬんと覚える】青空のシンフォニー【コール練習動画※ ...</blockquote>
+我寻思这不是标准AメローBメローサビ偶像曲。。？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17185#       发表于 2020-6-12 19:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781758&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-12 19:35</a>
+
+咱觉得MIKO八成会住到樱花林去了</blockquote>
+不是八成
+
+她在之前预览地图宣传CM的时候看到樱花区就说过了
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 17186#       发表于 2020-6-12 19:46
+
+
+
+
+levi和走姐的这个联动确实顶···这两人唱歌真的好有力啊。
+
+这唱过MACROSS 7的歌的人真的不一般<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+之前联动合唱的那个Preserved Roses也不错···
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 17187#       发表于 2020-6-12 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781829&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-12 19:42</a>
+
+你知不知道这楼曼联球迷多</blockquote>
+艹，想起来那天晚上楼里曼联球迷集体抒发情绪那天了，不过我个埃弗顿球迷倒是无所谓啦，当年看意甲也是对穆鸟有过好感的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17188#       发表于 2020-6-12 19:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> <blockquote>一揆（いっき），日文词汇。本意是指同心协力，团结一致。后来泛指百姓、土著、当地势力人士等等非政府组织因某些目标而集结之团体，也通称百姓起兵反抗统治者的行为。古代日本较为有名的一揆众暴乱是本愿寺发起的一向一揆。</blockquote><blockquote>老师在给月之上课
+
+然后在讲解一揆
+
+“就跟社长发现下面的各种暴动、反抗、串联，紧急发了声明一个道理”</blockquote><blockquote>老師：什麼時候人們會想要改革呢？
+
+委員長：欸？liver們的薪水變動的時候</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17189#       发表于 2020-6-12 19:48
+
+
+
+
+ARK的SC关了也太迷了
+
+虹都没关
+
+我准备好的ログインボーナス不能打了草
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17190#       发表于 2020-6-12 19:48
+
+
+
+
+要说这次历史直播乳了哪里，我觉得是青森，哪有这种特产.....
+
+讲到新田开发的时候飘过一个”新发田“的评论，这个，民度还需加强啊。
+
+微妙，每次月之在评论政策的时候，忍不住想叫她天皇是为何
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17191#       发表于 2020-6-12 19:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781845&amp;ptid=1938145" target="_blank">泡芙好吃 发表于 2020-6-12 19:44</a>
+
+不是八成
+
+她在之前预览地图宣传CM的时候看到樱花区就说过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">樱花林害兽一堆的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17192#       发表于 2020-6-12 19:52
+
+
+
+
+裁判终于到正片了。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17193#       发表于 2020-6-12 19:53
+
+
+
+
+狼和团长审阿火对狐狸说我爱你233
+
+艹太奸诈了开局把狼拖下水
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17194#       发表于 2020-6-12 19:54
+
+
+
+
+W修羅場
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17195#       发表于 2020-6-12 19:55
+
+
+
+
+ココ一揆
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17196#       发表于 2020-6-12 19:55
+
+
+
+
+二代目正在审判，小天使现在慌不慌，她现在在看这直播的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17197#       发表于 2020-6-12 19:56
+
+
+
+
+哦，马造2国内没了
+[https://bbs.saraba1st.com/2b/thread-1941324-1-1.html](https://bbs.saraba1st.com/2b/thread-1941324-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 17198#       发表于 2020-6-12 19:57
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-12 19:48
+要说这次历史直播乳了哪里，我觉得是青森，哪有这种特产.....
+
+讲到新田开发的时候飘过一个”新发田“的评论 ...</blockquote>
+没办法，5ch都在蛮认真的看着呢。
+
+
+syl
+
+乳了那个田沼，推上还有些人推他的
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17199#       发表于 2020-6-12 19:58
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gfpr7rzel6j20jy0b97d4.jpg" referrerpolicy="no-referrer">
+
+
+被告人自辩充满了渣男气息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17200#       发表于 2020-6-12 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781980&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 19:56</a>
+哦，马造2国内没了
+
+https://bbs.saraba1st.com/2b/thread-1941324-1-1.html</blockquote>
+下一个大概率就是大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算动森带来的影响吗
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17201#       发表于 2020-6-12 20:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782004&amp;ptid=1938145" target="_blank">framita 发表于 2020-6-12 19:59</a>
+
+下一个大概率就是大乱斗这算动森带来的影响吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也太魔幻了，干脆把PS也禁了吧
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17202#       发表于 2020-6-12 20:01
+
+
+
+ 本帖最后由 aele 于 2020-6-12 20:06 编辑 
+
+宣传完了光速下播，顺手给小粥引流
+
+
+直接2w了还行
+
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 17203#       发表于 2020-6-12 20:02
+
+
+
+
+我去这是不是有点魔幻啊···总觉的回到了中世纪，真的害怕<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+难怪明日方舟到现在都没开个人简介···真  防患于未然
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17204#       发表于 2020-6-12 20:03
+
+
+
+
+难道不是马造自定义的原因吗？大乱斗能整什么活？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17205#       发表于 2020-6-12 20:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/200415c5nmn7da4d2kkz7y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200612210358.jpg</strong> (110.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 20:04 上传
+
+
+
+
+
+
+
+草，这什么BUG，卡翅膀模型上被一起带走了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17206#       发表于 2020-6-12 20:06
+
+
+
+
+自分仕置令.....出这道题的郡道和想歪了的月之都很糟糕....
+
+说早了，郡道更糟糕，这人还想着风俗啊救命，虽然月之心系新田飞地，但果然还小啊....
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 17207#       发表于 2020-6-12 20:06
+
+
+
+
+https://b23.tv/a0Bjrx
+来听听一弦的歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17208#       发表于 2020-6-12 20:06
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-12 20:08 编辑 
+
+果然会有葵吗？
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17209#       发表于 2020-6-12 20:07
+
+
+
+
+黑宝二号？
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 17210#       发表于 2020-6-12 20:07
+
+
+
+
+2000 历史课最后一次嘉宾是阿葵哦
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17211#       发表于 2020-6-12 20:09
+
+
+
+
+这波是hololive审判<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                          
