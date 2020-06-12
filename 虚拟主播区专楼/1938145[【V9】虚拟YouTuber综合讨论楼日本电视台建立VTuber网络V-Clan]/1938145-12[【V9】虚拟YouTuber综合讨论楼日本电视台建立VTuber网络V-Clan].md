@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 00:07** 
+> ## **本文件最后更新于2020-06-13 02:06** 
 
 
 
@@ -7723,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_N5Vb8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_rFXnM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -15563,7 +15563,7 @@ syl,那个鲨鱼更新了
 <img src="https://img.saraba1st.com/forum/202006/12/212907s6zd1vssb4hq8bhh.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EaTbsi9U4AM-zS_.jpg</strong> (307.27 KB, 下载次数: 0)
+<strong>EaTbsi9U4AM-zS_.jpg</strong> (307.27 KB, 下载次数: 4)
 
 下载附件
 
@@ -16638,7 +16638,7 @@ sly 风怒是服务器响应速度太慢了，希望v综搞点kpi多创点收
 <img src="https://img.saraba1st.com/forum/202006/12/221231giv99im9y6m2ymqk.jpg" referrerpolicy="no-referrer">
 
 
-<strong>15919711096832257814874656321372.jpg</strong> (777.29 KB, 下载次数: 0)
+<strong>15919711096832257814874656321372.jpg</strong> (777.29 KB, 下载次数: 4)
 
 下载附件
 
@@ -17614,7 +17614,7 @@ QQ图片20200612225232.jpg
 
 
 
-<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_nLDLx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_JqL8m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18013,7 +18013,7 @@ TIM截图20200613000058.png
 
 
 千这新衣服我觉得没有这个好看
-<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_RLAp9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_zpDTl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -19267,4 +19267,1439 @@ emmm.png
 
 
 
-                
+
+
+-----
+
+####  cheatdeath3  
+##### 17518#       发表于 2020-6-13 00:08
+
+
+
+
+兔存
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17519#       发表于 2020-6-13 00:08
+
+
+
+
+不是联动一次就叫cp啊，你们好怪啊。。
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 17520#       发表于 2020-6-13 00:09
+
+
+
+
+如果holo能收kanna就好了，猫宫算了算了
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 17521#       发表于 2020-6-13 00:09
+
+
+
+
+但是管人联系确实是discord多，看po的聊天截图也看得出来，能交换line我都默认关系不错了
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 17522#       发表于 2020-6-13 00:09
+
+
+
+
+YAGOO的终极目标是让别家IP来用他的平台，说不准猫宫成他招安的第一块招牌呢？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17523#       发表于 2020-6-13 00:09
+
+
+
+<blockquote>winda 发表于 2020-6-12 23:44
+https://youtu.be/XTCgqLLaEFQ?t=3076
+
+naraka的枪法真的有点强，这把开局乱战没子弹没甲还能打到第二位
+
+ ...</blockquote>
+她是🌈唯一一个会连续直线和转弯兔子跳的人，身法算是虹最强的了，枪法站着不动的时候很枪很强，毕竟是ow打了几千小时dva的人，就是动起来控枪差一点，算硬实力能在虹进前三的，她身法看起来太舒服了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17524#       发表于 2020-6-13 00:09
+
+
+
+
+兔夸，要兔夸<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+两个人循环吃瘪跳脸互相迫害互秀智商<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17525#       发表于 2020-6-13 00:11
+
+
+
+
+你们老说联动谁开台的问题，我觉得一般来说是谁组织谁邀请就谁开台的默认规则，但兔皇并不会组织联动，所以她那里联动开台就额外少。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17526#       发表于 2020-6-13 00:13
+
+
+
+<blockquote>QWANG 发表于 2020-6-13 00:11
+你们老说联动谁开台的问题，我觉得一般来说是谁组织谁邀请就谁开台的默认规则，但兔皇并不会组织联动，所以 ...</blockquote>
+话说和喵宫联动几次都是在兔子台吧。
+
+商业联动石锤了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17527#       发表于 2020-6-13 00:13
+
+
+
+
+一个感觉，（很远的）未来会有郡道船长的联动。
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/001340k1lxf5a5ys5175a7.png" referrerpolicy="no-referrer">
+
+
+<strong>郡道美玲🐽20時から授業配信！  @g9v9g_mirei  的推文回复   Twitter.png</strong> (117.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 00:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17528#       发表于 2020-6-13 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784645&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-13 00:13</a>
+
+一个感觉，（很远的）未来会有郡道船长的联动。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">好评 
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17529#       发表于 2020-6-13 00:14
+
+
+
+
+下班回家正好看星宝，今天要补的节目有点多。看楼友repo兔猫可以忽略了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17530#       发表于 2020-6-13 00:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实我想看郡道和towa联动，当初小恶魔出道的时候还在推上说声音像呢
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 17531#       发表于 2020-6-13 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">驴火还行，大韩民国河间说
+
+syl,夜见
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/001951tdtsoteiycy66o6s.png" referrerpolicy="no-referrer">
+
+
+<strong>82268373_p0.png</strong> (1.46 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 00:19 上传
+
+
+
+
+
+[https://www.pixiv.net/artworks/82268373](https://www.pixiv.net/artworks/82268373)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17532#       发表于 2020-6-13 00:22
+
+
+
+ 本帖最后由 AloissiolA 于 2020-6-13 00:23 编辑 
+
+line就是微信啊，类比微信，微信很多人的账号都有真实个人信息的，普通网友会让人加自己微信？
+
+discord更像QQ，大家可以隔着皮说话，line就不一定了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17533#       发表于 2020-6-13 00:22
+
+
+
+
+嗓子开了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17534#       发表于 2020-6-13 00:24
+
+
+
+ 本帖最后由 proxima 于 2020-6-13 00:26 编辑 
+
+难道你们没有试过甲方公司的人拿微信给你发文件吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且line不是也可以建小号嘛，整个工作专用号不奇怪罢
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17535#       发表于 2020-6-13 00:24
+
+
+
+
+这微信也是工作微信吧，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过line应该是更亲近一点的交流手段。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17536#       发表于 2020-6-13 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784666&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-13 00:17</a>
+
+其实我想看郡道和towa联动，当初小恶魔出道的时候还在推上说声音像呢 ...</blockquote>
+这个倒是感觉没什么迹象....
+
+郡道自己，包括在每一次的直播栏介绍下方，说过很多次不要在无关的直播里提到她，声音很像设定很像外观很像这种最好也少说，因为感觉之后出道的被说的那个女孩也太可怜了.....
+
+倒不是说这俩个性格不合什么的，就单纯觉得郡道会稍微避一下嫌。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17537#       发表于 2020-6-13 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784698&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-13 00:22</a>
+
+嗓子开了。</blockquote>
+确实，之前还见有人说木口没人进步，不是没听星宝就是聋了
+
+最近5，6月份总体来说比3月和去年的进步多了，可能是3Dlive拉跨之后痛定思痛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17538#       发表于 2020-6-13 00:41
+
+
+
+ 本帖最后由 QWANG 于 2020-6-13 00:42 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 17539#       发表于 2020-6-13 00:41
+
+
+
+
+才补了今晚郡道的历史课，下期终于轮到阿葵了啊。地狱绘图预感。。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17540#       发表于 2020-6-13 00:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/003339jnhrbu6r88hfjq6j.png" referrerpolicy="no-referrer">
+
+
+<strong>1591979594(1).png</strong> (77.15 KB, 下载次数: )
+
+下载附件
+
+2020-6-13 00:33 上传
+
+
+
+
+
+高强度联动换粉和上位让路还是很有效的，中层吃饱饱。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17541#       发表于 2020-6-13 00:43
+
+
+
+
+木口据我观察，如果是喂饭联动，一般还是被喂的那边开台
+
+大型整活联动一般是谁召集谁准备在谁的台开咯.....当然只要参与方愿意，怎么着都行，比如大脸猫审判就是在小粥那开的台
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17542#       发表于 2020-6-13 00:47
+
+
+
+
+二爱三爱换推特头像了，看来真的是从3D退化回2D，不知道该说啥好
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17543#       发表于 2020-6-13 00:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">好听
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 17544#       发表于 2020-6-13 00:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784839&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-13 00:47</a>
+二爱三爱换推特头像了，看来真的是从3D退化回2D，不知道该说啥好</blockquote>
+激励机制，有业绩就换3d，这波是狼性企业经验引入，下一步要做好团队建设了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17545#       发表于 2020-6-13 00:53
+
+
+
+
+提前下班
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17546#       发表于 2020-6-13 00:56
+
+
+
+
+小羊恐怖游戏食杀coco杂谈。
+
+未曾设想的道路
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17547#       发表于 2020-6-13 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784882&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 00:56</a>
+
+小羊恐怖游戏食杀coco杂谈。
+
+未曾设想的道路</blockquote>
+COCO杂谈不一直都上不了1W么
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17548#       发表于 2020-6-13 00:57
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-13 00:56
+小羊恐怖游戏食杀coco杂谈。
+
+未曾设想的道路</blockquote>
+毕竟这羊意外的温柔啊
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17549#       发表于 2020-6-13 00:58
+
+
+
+<blockquote>IDIDIDID 发表于 2020-6-13 00:51
+好听</blockquote>
+4ID佬被净化了呢
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17550#       发表于 2020-6-13 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784882&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 00:56</a>
+
+小羊恐怖游戏食杀coco杂谈。
+
+未曾设想的道路</blockquote>
+阿龙才不怕这个，阿龙的杂谈和歌回收钱超强，光靠这两样月SC过千万我都不惊讶。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17551#       发表于 2020-6-13 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784888&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-13 00:57</a>
+
+毕竟这羊意外的温柔啊</blockquote>
+小羊虽然很屑，但温柔感性没得讲。。。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17552#       发表于 2020-6-13 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784890&amp;ptid=1938145" target="_blank">渡鸦骑士 发表于 2020-6-13 00:58</a>
+
+4ID佬被净化了呢</blockquote>
+我本来就不是巨魔阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 17553#       发表于 2020-6-13 00:59
+
+
+
+
+狗皇多做几个耐久有望趁着休止食杀阿库娅<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17554#       发表于 2020-6-13 00:59
+
+
+
+
+486这段时间整的企划都相当不错啊，游戏荒反而把486这个优势显出来了
+
+
+486一直对摸余不离不弃
+
+
+摸余你倒是动啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17555#       发表于 2020-6-13 01:01
+
+
+
+
+龙宝一日五动，打出的最高输出在别人频道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可见龙宝其实是能打辅助的粽子上位互换
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 17556#       发表于 2020-6-13 01:02
+
+
+
+
+摸余这周不是动了很多次吗？绫人这发病间隔也忒短了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17557#       发表于 2020-6-13 01:02
+
+
+
+
+怎么又开始给粽gachi种梁木了，粽gachi老哥那么存粮饶了他吧。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17558#       发表于 2020-6-13 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784900&amp;ptid=1938145" target="_blank">中野六小龄童 发表于 2020-6-13 00:59</a>
+
+狗皇多做几个耐久有望趁着休止食杀阿库娅</blockquote>
+狗皇耐久和阿夸何时回归都是虚无缥缈的东西，你拿这两个比较真是难以判断。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17559#       发表于 2020-6-13 01:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784919&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-13 01:02</a>
+
+摸余这周不是动了很多次吗？绫人这发病间隔也忒短了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">咱不是绫人啊，咱是楼里罕见的杏仁
+
+
+而且还是非巨魔杏仁
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17560#       发表于 2020-6-13 01:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我戒绫的原因就是觉得她配不上别人的善意
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17561#       发表于 2020-6-13 01:08
+
+
+
+
+“真当自己大小姐？“<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 17562#       发表于 2020-6-13 01:10
+
+
+
+
+这个星期好好再播了别锤了别锤了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17563#       发表于 2020-6-13 01:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784909&amp;ptid=1938145" target="_blank">proxima 发表于 2020-6-13 01:01</a>
+
+龙宝一日五动，打出的最高输出在别人频道
+
+可见龙宝其实是能打辅助的粽子上位互换 ...</blockquote>
+论吸金，阿龙就是直播虚拟管人界的top啊，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都第一了在这方面还不是任何人的上位替代？
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 17564#       发表于 2020-6-13 01:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">作为杏仁觉得百鬼和啊夸休假都是挺正常的，为什么要要求年轻的女孩子有着长时间的不健康作息啊）
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17565#       发表于 2020-6-13 01:12
+
+
+
+
+龙皇ark被35超
+
+同时段台被羊超.....
+
+怪起来了
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17566#       发表于 2020-6-13 01:13
+
+
+
+
+都是卷出来的
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17567#       发表于 2020-6-13 01:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784963&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-13 01:11</a>
+
+作为杏仁觉得百鬼和啊夸休假都是挺正常的，为什么要要求年轻的女孩子有着长时间的不健康作息啊） ...</blockquote>
+那马自立怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再说懒狗这种在校大学生不就是最浪的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17568#       发表于 2020-6-13 01:15
+
+
+
+
+宫皇被逼的不能玩老游戏都只能apex了怎么还觉得能食杀大亏。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17569#       发表于 2020-6-13 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784958&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-13 01:10</a>
+
+论吸金，阿龙就是直播虚拟管人界的top啊，都第一了在这方面还不是任何人的上位替代？ ...</blockquote>
+本月到目前为止，粽子600w，应该还是领跑sc榜。
+
+打赢了贴贴卡组的龙宝和小天使。
+
+粽子，养gachi的神！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17570#       发表于 2020-6-13 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784963&amp;ptid=1938145" target="_blank">空虚澄璃色 发表于 2020-6-13 01:11</a>
+
+作为杏仁觉得百鬼和啊夸休假都是挺正常的，为什么要要求年轻的女孩子有着长时间的不健康作息啊） ...</blockquote>
+这个行业的top还想着有常识人的作息时间吗。。
+
+能保证6-8小时睡眠就可以了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17571#       发表于 2020-6-13 01:18
+
+
+
+
+不过阿夸挂机十来天了，订阅增速倒没慢下来，全自动涨粉机器，真是轻松的休假。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17572#       发表于 2020-6-13 01:19
+
+
+
+
+游戏主播凌晨睡下午起是常态啊，正常作息挺少的
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17573#       发表于 2020-6-13 01:20
+
+
+
+
+懒狗也不是什么top，懒也不是什么问题，问题是懒起来就是六亲不认，以至我觉得她大体上根本不屑于搭理对她好的人(大概开黑除外就是了)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17574#       发表于 2020-6-13 01:21
+
+
+
+ 本帖最后由 proxima 于 2020-6-13 01:23 编辑 
+
+其实拿苔宝之前跟天开司联动的时候提出的理论来说。管人为了争取晚上黄金档都是晚上直播的，自然作息时间就错开了。上夜班的人哪来什么作息正常
+
+当然还有一层理论是龙皇反其道而行之，早安可可开辟新领域。
+
+龙皇，yyds
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17575#       发表于 2020-6-13 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784992&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 01:16</a>
+
+本月到目前为止，粽子600w，应该还是领跑sc榜。
+
+打赢了贴贴卡组的龙宝和小天使。
+
+粽子，养gachi的神！ ...</blockquote>
+同居卡组全是开在天宝频道的啊，实质喂饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+龙宝下周还有个生日，少是少不了的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17576#       发表于 2020-6-13 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785031&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-13 01:24</a>
+
+同居卡组全是开在天宝频道的啊，实质喂饭
+
+龙宝下周还有个生日，少是少不了的 ...</blockquote>
+喂完小天使也拉了，算上待机间那次没算到的到现在也就400w不到。
+
+龙宝590w比粽子差一点。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17577#       发表于 2020-6-13 01:25
+
+
+
+
+SC这个东西，选房子一波，搬家一波，买家什一波，三人天天搬桌子一波又一波，本社姐妹来了一波一波又一波。到时候阿粽就知道住的远的错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17578#       发表于 2020-6-13 01:25
+
+
+
+ 本帖最后由 QWANG 于 2020-6-13 01:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784992&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 01:16</a>
+
+本月到目前为止，粽子600w，应该还是领跑sc榜。
+
+打赢了贴贴卡组的龙宝和小天使。
+
+粽子，养gachi的神！ ...</blockquote>
+阿龙也600w啊，而且我看阿龙漏记很多。阿龙还有生日和40w两张牌没打，胜券在握啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过也只有福报粽有希望动摇阿龙的统治，但这不可能存在，也没什么意义。
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 17579#       发表于 2020-6-13 01:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/012828pq3eeoyn60o0ny76.png" referrerpolicy="no-referrer">
+
+
+<strong>分层.png</strong> (76.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 01:28 上传
+
+
+
+
+
+龙酱这个位置站的确实巧妙
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17580#       发表于 2020-6-13 01:30
+
+
+
+
+这个月还没过去一半呢。这杏的sc是真的越来越看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17581#       发表于 2020-6-13 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785039&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 01:25</a>
+
+喂完小天使也拉了，算上待机间那次没算到的到现在也就400w不到。
+
+龙宝590w比粽子差一点。 ...</blockquote>
+那次漏100多万确实伤，不过天宝本来也没有龙宝和粽子的吸金能力啦，四月都是靠着生日纪念回连发才到头部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 17582#       发表于 2020-6-13 01:32
+
+
+
+
+谢谢，虹人感觉有被内涵到🙏
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17583#       发表于 2020-6-13 01:33
+
+
+
+
+有啥看不懂的，龙粽都是没事儿也能800w一个月的主
+
+这个月一个搞同居财富密码一个开纪念回，肯定吃饱饱啊
+
+不过一想阿龙手里还有俩打纪念会能用就......很可怕
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17584#       发表于 2020-6-13 01:36
+
+
+
+<blockquote>面具13 发表于 2020-6-13 01:30
+这个月还没过去一半呢。这杏的sc是真的越来越看不懂了</blockquote>
+最新sc表来个
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17585#       发表于 2020-6-13 01:39
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-13 01:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785094&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-13 01:36</a>
+
+最新sc表来个</blockquote>
+自己pb扒的几个，这周还没结束呢，表一般都是周一出。
+
+给你看看夏哥的。
+
+<img src="https://img.saraba1st.com/forum/202006/13/013900gd4fdvmj4nhv1ndx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200613013820.png</strong> (12.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 01:39 上传
+
+
+
+
+
+
+
+顺便一说，狐狸71w。
+
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17586#       发表于 2020-6-13 01:44
+
+
+
+
+坏透了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17587#       发表于 2020-6-13 01:49
+
+
+
+
+这个月还有阿火，不知道憋了仨月的粉丝能不能大爆射打破龙皇收益回的记录。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17588#       发表于 2020-6-13 01:51
+
+
+
+
+你对阿火有什么不切实际的期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17589#       发表于 2020-6-13 01:57
+
+
+
+
+4ID老哥说的是同接吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">（试图圆回来
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17590#       发表于 2020-6-13 01:58
+
+
+
+
+这月到现在阿火220w，感觉总sc要爆龙宝都比较困难。。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 17591#       发表于 2020-6-13 01:59
+
+
+
+
+杏仁要是刷出单回一千万能被虹人点人看得起一点吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17592#       发表于 2020-6-13 02:02
+
+
+
+
+单回千万？那要是银火婚礼才行吧。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17593#       发表于 2020-6-13 02:06
+
+
+
+
+虹人有主流销量冠军
+
+点人有不被企业抽成实质收入第一的麻将女王
+
+只能恰🦄烂钱的杏人还是靠边站吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+             
