@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 12:06** 
+> ## **本文件最后更新于2020-06-12 14:03** 
 
 
 
@@ -2176,6 +2176,25 @@ syl [https://www.bilibili.com/video/BV1Mg4y167Zv/](https://www.bilibili.com/vide
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| meatybobby|-1|去看其他箱愛跟男人玩的更符合你性癖 別看.|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -2358,4 +2377,498 @@ https://space.bilibili.com/412628370?share_medium=android&amp;share_source=copy_
 
 
 
-                                             
+
+
+-----
+
+####  Dualist彩  
+##### 12131#       发表于 2020-6-12 12:49
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-12 12:50 编辑 
+
+超时空
+
+          
+
+害酒厂海盗呢，名义上是海盗，里面的人呢？不会真有人觉得在官组眼里同好会和酒厂是一个地位的海盗吧，不过他酒厂人巴不得同好会死我倒是挺想了解下为啥的
+
+             
+
+可怜的fafa和hl不会在官组被摧残了吧，小团体害人啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12132#       发表于 2020-6-12 12:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776746&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-6-12 12:49</a>
+超时空
+
+          
+
+害酒厂海盗呢，名义上是海盗，里面的人呢？不会真有人觉得同好会和酒厂是一个地位的海盗 ...</blockquote>
+又开始车了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么爱跟小博禹贴贴的吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12133#       发表于 2020-6-12 12:51
+
+
+
+
+小博禹虽然nt但确实蛮符合我xp的，不过我这不也没扯小博禹啊，怎么就和他贴贴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12134#       发表于 2020-6-12 12:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776779&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-6-12 12:51</a>
+小博禹虽然nt但确实蛮符合我xp的，不过我这不也没扯小博禹啊，怎么就和他贴贴了 ...</blockquote>
+今早我看就是你开始跟他交流起来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔了半天又开始超时空了，一唱一和倒挺有贴贴味的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12135#       发表于 2020-6-12 12:54
+
+
+
+
+去字幕组楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 12136#       发表于 2020-6-12 13:08
+
+
+
+
+有些好奇，每次她的盒限人数能打一把战地还是一把恰鸡啊，能做一个和她一起战地的梦吗
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12137#       发表于 2020-6-12 13:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776977&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-12 13:08</a>
+有些好奇，每次她的盒限人数能打一把战地还是一把恰鸡啊，能做一个和她一起战地的梦吗
+
+  -- 来自 能搜索的 ...</blockquote>
+一开始是想弄盒限pubg的，但记得效果不怎么理想，很麻烦，就弄成mc了
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12138#       发表于 2020-6-12 13:11
+
+
+
+ 本帖最后由 PekoPekoPeko 于 2020-6-12 13:13 编辑 
+
+之前盒限pubg楼里都在骂小麻傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+心疼<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+为死宅费心费力不值得，小麻还是快乐乱趴趴吧<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| meatybobby|-1|去隔壁陪祭絲發瘋不好嗎|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12139#       发表于 2020-6-12 13:12
+
+
+
+
+办过pubg，但人数很难凑齐，于是就没继续办了，这种几十个g的人游戏并不是每个人都愿意装的
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12140#       发表于 2020-6-12 13:15
+
+
+
+
+来了来了，b限lol
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12141#       发表于 2020-6-12 13:17
+
+
+
+
+草，好久没有的b限LOL<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然看不懂但甚至还有点小怀念
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 12142#       发表于 2020-6-12 13:18
+
+
+
+
+也是，恰鸡互动机会太少情况不理想，但战地不就可以选个职业去嗯舔？所以好奇每次mc会有多少人，人数够的开个行动模式不也挺好。当然只是想想，没有任何云p的意思，笨b弄不来mc只能干瞪眼
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12143#       发表于 2020-6-12 13:21
+
+
+
+
+来了来了
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12144#       发表于 2020-6-12 13:23
+
+
+
+
+草LOL！LOL！LOL！看起来萝莉萝莉萝莉一样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12145#       发表于 2020-6-12 13:33
+
+
+
+
+不要韩国人不要韩国人<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 12146#       发表于 2020-6-12 13:33
+
+
+
+
+mea看v综¿
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12147#       发表于 2020-6-12 13:33
+
+
+
+
+她还记得好想你和青椒肉丝还行
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 12148#       发表于 2020-6-12 13:36
+
+
+
+
+我爱你小笼包<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12149#       发表于 2020-6-12 13:39
+
+
+
+
+听她说的今晚想吃小笼包了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12150#       发表于 2020-6-12 13:41
+
+
+
+
+补刀好了一点，是错觉吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12151#       发表于 2020-6-12 13:43
+
+
+
+
+打的像个正常人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12152#       发表于 2020-6-12 13:43
+
+
+
+
+练出来了.JPG
+
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 12153#       发表于 2020-6-12 13:51
+
+
+
+
+卖油翁
+
+
+
+
+
+
+
+-----
+
+####  czkt615477  
+##### 12154#       发表于 2020-6-12 13:51
+
+
+
+
+LOL带杂谈效果意外的好？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12155#       发表于 2020-6-12 13:52
+
+
+
+
+这话题挑的可以啊
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12156#       发表于 2020-6-12 13:52
+
+
+
+
+那是这局压力不大
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12157#       发表于 2020-6-12 13:53
+
+
+
+
+话题确实不错啊，没疫情的话现在高考完还没一星期吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12158#       发表于 2020-6-12 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">后悔中午没有吃饭了
+
+
+
+
+
+                                            
