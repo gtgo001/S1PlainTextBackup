@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 16:04** 
+> ## **本文件最后更新于2020-06-12 18:05** 
 
 
 
@@ -4084,4 +4084,844 @@ syl最近怎么感觉评论区直播间阴阳怪气的有点多</blockquote>
 
 
 
-                                          
+
+
+-----
+
+####  Mr.shelter  
+##### 12232#       发表于 2020-6-12 16:05
+
+
+
+
+这波联动有多少钱拿啊(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12233#       发表于 2020-6-12 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779180&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-6-12 16:02</a>
+哥哥们有没有傻瓜式教程...怎么花最少的钱抽到mea之类的....</blockquote>
+应该是淘宝买石头号吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12234#       发表于 2020-6-12 16:10
+
+
+
+
+应该不会有多少钱吧
+
+相比于💰， 估计流量比较有意义
+
+虽然这个游戏的流量)
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12235#       发表于 2020-6-12 16:12
+
+
+
+<blockquote>Mr.shelter 发表于 2020-6-12 16:05
+这波联动有多少钱拿啊(눈_눈)</blockquote>
+这游戏月流水可能还没你咩姐收入高，别指望拿多少钱了
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 12236#       发表于 2020-6-12 16:15
+
+
+
+
+看你楼这反应，怎么感觉是你麻反过来被蹭人气了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12237#       发表于 2020-6-12 16:17
+
+
+
+
+holo第一次进游戏也是进的方舟指令，夏吹夸三个角色。
+所以说，按照这个节奏，是不是可以指望之后碧蓝航线也给mea喂口饭。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 12238#       发表于 2020-6-12 16:18
+
+
+
+
+有梦是好事
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 12239#       发表于 2020-6-12 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779383&amp;ptid=1929631" target="_blank">鷹書たかしょ 发表于 2020-6-12 16:15</a>
+
+看你楼这反应，怎么感觉是你麻反过来被蹭人气了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">B站有二次元手游流水统计，方舟指令嘛，看了就懂了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12240#       发表于 2020-6-12 16:20
+
+
+
+
+不过，给holo联动还可以说是公司之间战略合作。 给mea联动，那就真是养自家女儿了...
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12241#       发表于 2020-6-12 16:21
+
+
+
+
+说是人气什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得更接近厨力放出
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12242#       发表于 2020-6-12 16:22
+
+
+
+
+给mea联动怎么了，我44娘没有牌面的吗
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12243#       发表于 2020-6-12 16:24
+
+
+
+
+。。。能不能别看数字啊，能玩到她的角色了还可以触摸她不是就很好了吗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12244#       发表于 2020-6-12 16:25
+
+
+
+
+那得悠星出个厨子才行
+
+反正蓝卫兵B事多（确信）
+
+虽然不见得像狐皇那样被劈，指不定什么地方惹着人家了呢
+
+不过本来概率也不大，无稽之谈了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12245#       发表于 2020-6-12 16:25
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 16:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779541&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-12 16:24</a>
+。。。能不能别看数字啊，能玩到她的角色了还可以触摸她不是就很好了吗</blockquote>
+云p是这样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+↑主要是指上来这就要研究mea得多少钱的那个
+↓没加群，懒得陪你们群的人解决矛盾好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 12246#       发表于 2020-6-12 16:28
+
+
+
+
+这算个球的云p，又不是不让联动
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12247#       发表于 2020-6-12 16:29
+
+
+
+
+这游戏联动对象基本都是出于制作方的兴趣，不也挺好吗
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12248#       发表于 2020-6-12 16:31
+
+
+
+
+龙魂能不能别**了，要装群里的大伙陪你装，我们会像爱儿子那样😘的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12249#       发表于 2020-6-12 16:34
+
+
+
+
+主要是联动游戏这种的，与其说给她带来了什么（流量还是收入什么的），不如说看的是给粉丝带来了什么吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12250#       发表于 2020-6-12 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779680&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-12 16:34</a>
+主要是联动游戏这种的，与其说给她带来了什么（流量还是收入什么的），不如说看的是给粉丝带来了什么吧[f:0 ...</blockquote>
+其实可以当成个有本人参与的大型二创啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真计较她和游戏的得失我觉得是着眼点太奇怪了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12251#       发表于 2020-6-12 16:40
+
+
+
+
+真计较，等b站给不给喂饭再说吧，什么明日方舟、碧蓝航线、公主链接家具一类搞起来就知道想做啥了。梦里什么都有，但是你mea一个小小个人势，哪里能吃到这么多饭啊
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12252#       发表于 2020-6-12 16:41
+
+
+
+
+我去做梦了， 晚安
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12253#       发表于 2020-6-12 16:41
+
+
+
+
+哪儿发散那么多，纯粹好奇问一句罢了。我又不玩手游(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12254#       发表于 2020-6-12 16:43
+
+
+
+
+（虽然问了些人，去年某联动因为管理层和策划爱好其实想带mea，但是当时不好谈，没签约没企业还有一堆现实问题）
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12255#       发表于 2020-6-12 16:44
+
+
+
+
+人企业势都打包的，个人势单独联动很感谢了
+方舟指令这波是真的用爱联动<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+其他热门手游梦里想想就好
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12256#       发表于 2020-6-12 16:44
+
+
+
+
+记得去年没签约错过了不少东西，那会参加的最大的类似工商的活动应该是跟bilibili战队打LOL吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12257#       发表于 2020-6-12 16:46
+
+
+
+
+最热的时候错过好多，现在不热了。。。
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12258#       发表于 2020-6-12 16:49
+
+
+
+ 本帖最后由 龙魂绯影 于 2020-6-12 16:51 编辑 
+
+厚积薄发嘛，18年积攒的19年爆发了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在嘛，起码比去年安稳多了
+或者说这也是mea的成长？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 12259#       发表于 2020-6-12 16:52
+
+
+
+
+去年是因为啥原因坚决不签来着？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12260#       发表于 2020-6-12 16:52
+
+
+
+
+回到本该有的位置.jpg
+
+
+再让她做这做那她该不安了
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 12261#       发表于 2020-6-12 16:52
+
+
+
+
+碰运气呗，以前国内市场空白，现在嘛，不好说
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12262#       发表于 2020-6-12 16:53
+
+
+
+
+mea老倒霉蛋了，好几次可能数字角度比现在更高的机会都被各种神奇的事情耽误了。
+不过说不定也是好事？成长的会快得多，抗压能力也会涨得快。 19岁都能做组长了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12263#       发表于 2020-6-12 16:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47779909&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-6-12 16:52</a>
+去年是因为啥原因坚决不签来着？</blockquote>
+不知道啊，唯一听到的n手消息说是因为帕里拖的，再深问就是只能去问mea当初的对接人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12264#       发表于 2020-6-12 16:54
+
+
+
+
+这白雪有点像。。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12265#       发表于 2020-6-12 16:54
+
+
+
+
+这也是咩宝美妙的地方，19岁小姑娘的奋斗史啊，近距离观察啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12266#       发表于 2020-6-12 16:56
+
+
+
+
+现在的咩宝跟去年刚认识时真是变了不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴躁小嫚儿被社会磨平了棱角.JPG
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12267#       发表于 2020-6-12 16:56
+
+
+
+
+你麻20岁到来的日子就是我去寻找更年轻的灵魂的日子
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12268#       发表于 2020-6-12 16:59
+
+
+
+
+对哦有时真的忘了她才19来着(눈_눈)，年轻真好啊
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12269#       发表于 2020-6-12 17:03
+
+
+
+
+水友都去找年轻灵魂的时候，十人discord群就是我的了
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12270#       发表于 2020-6-12 17:08
+
+
+
+ 本帖最后由 路人子 于 2020-6-12 17:11 编辑 
+
+@Cla0221  这新肉片源是没字幕的
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12271#       发表于 2020-6-12 17:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47780141&amp;ptid=1929631" target="_blank">路人子 发表于 2020-6-12 17:08</a>
+@Cla0221  这新肉片源是没字幕的</blockquote>
+发新肉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+好吧看到了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12272#       发表于 2020-6-12 17:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻灵魂年龄不是快脱离中二的男子初中生吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">要相信她的灵魂至少比她的肉体少5岁啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">当然喜欢的是年轻的肉体就当我没说
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">本来就是过期jk，20岁以后应该可以算是姨了吧
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12273#       发表于 2020-6-12 17:26
+
+
+
+
+就算真的变成姨，mea内心的那个jk（jc）魂也是不会消失的！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12274#       发表于 2020-6-12 17:27
+
+
+
+
+u18r快套皮出道吧，这才是年轻的肉体<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12275#       发表于 2020-6-12 17:34
+
+
+
+
+这么说也建议saya出道，b限指名删除无许可视频(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12276#       发表于 2020-6-12 17:36
+
+
+
+
+重建虚拟bs？ 太累了算了吧，别为难麻酱了。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 12277#       发表于 2020-6-12 17:37
+
+
+
+
+这游戏，更新出错中断要去目录下自己删掉更新文件重下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 12278#       发表于 2020-6-12 17:54
+
+
+
+
+Saya出道跟你咩姐能把观众整爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+前两天saya开了个3分钟asmr的直播，进去就“我这轻声轻语说话你们真的睡得着？不可能吧”然后就开始在那轻声念三分钟倒计时，到第三分钟时突然放了首巨tm吵的欧美歌，说了句“生气啦？”然后掐直播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我想给她一锤子
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12279#       发表于 2020-6-12 17:56
+
+
+
+
+啊? 这么强? 就算是姨我也❤了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12280#       发表于 2020-6-12 18:04
+
+
+
+
+saya声线喜欢不来。说起来苔苔那儿还没出到的
+
+
+
+
+
+                                        
