@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 02:06** 
+> ## **本文件最后更新于2020-06-13 04:06** 
 
 
 
@@ -7723,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_rFXnM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_P2K00" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -17614,7 +17614,7 @@ QQ图片20200612225232.jpg
 
 
 
-<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_JqL8m" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_FBSo6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18013,7 +18013,7 @@ TIM截图20200613000058.png
 
 
 千这新衣服我觉得没有这个好看
-<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_zpDTl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_V2ct8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -20702,4 +20702,611 @@ SC这个东西，选房子一波，搬家一波，买家什一波，三人天天
 
 
 
-             
+
+
+-----
+
+####  sion777  
+##### 17594#       发表于 2020-6-13 02:07
+
+
+
+
+怎么这里还有人劈懒狗的，摇了她吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17595#       发表于 2020-6-13 02:08
+
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gfq1wx839bj20gl0exq4o.jpg" referrerpolicy="no-referrer">
+
+
+又到了分派乐色手游工商的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 17596#       发表于 2020-6-13 02:13
+
+
+
+
+龙族幻想起码比之前那个贪玩蓝月一样的玩意强多了，在对面好像口碑还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17597#       发表于 2020-6-13 02:13
+
+
+
+ 本帖最后由 QWANG 于 2020-6-13 02:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785094&amp;ptid=1938145" target="_blank">wsotaku 发表于 2020-6-13 01:36</a>
+
+最新sc表来个</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/13/021303lgf4z0lj4ge6gdn0.png" referrerpolicy="no-referrer">
+
+
+<strong>1591985560(1).png</strong> (15.38 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 02:13 上传
+
+
+
+
+
+截止今天2点。
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/021617ivvp1710xs1k6vzo.png" referrerpolicy="no-referrer">
+
+
+<strong>1591985763(1).png</strong> (1.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 02:16 上传
+
+
+
+
+
+附带三四期军备竞赛。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17598#       发表于 2020-6-13 02:18
+
+
+
+
+狗子被gank得这么惨<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+本来寂静岭估计都播完了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17599#       发表于 2020-6-13 02:20
+
+
+
+
+你们润gachi一个月打多少钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，每次看都觉得离谱
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17600#       发表于 2020-6-13 02:22
+
+
+
+ 本帖最后由 QWANG 于 2020-6-13 02:32 编辑 
+
+我只是普通人，一般开播和下播打点小钱，整十万和发表级以上的纪念打红。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">她单人回也不算多，级别以上纪念一个月最多也就2次，平均每月一次吧。每个月在2000RMB内吧。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17601#       发表于 2020-6-13 02:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785286&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-13 02:20</a>
+
+你们润gachi一个月打多少钱啊，每次看都觉得离谱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脑控粽岂是浪的虚名，顺便说下粽子刚30W订阅多点
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17602#       发表于 2020-6-13 02:28
+
+
+
+
+脑控最厉害还是摸余，我一共看过她十来次就做梦梦到过她的声音了，天宝看了几百小时没梦到过一次
+
+奈何她实在太摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17603#       发表于 2020-6-13 02:30
+
+
+
+
+木口一期生已经不行了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白少主只能作为木口的精神象征继续为星出力了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17604#       发表于 2020-6-13 02:34
+
+
+
+
+二期生也不行了啊，这前面的全是三四期生
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17605#       发表于 2020-6-13 02:34
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-13 02:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785293&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-13 02:22</a>
+我只是普通人，一般开播和下播打点小钱，整十万和发表级以上的纪念打红。她单人回也不算多，级别以 ...</blockquote>
+前面扯了半天最后一个月2000，这就是究极脑控的威力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，二期2个摸了，2个一直在联动怎么让人打钱
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17606#       发表于 2020-6-13 02:36
+
+
+
+
+夏色まつり居酒屋燈籠NatsuiroMatsuri
+
+@natsuiromatsuri
+
+20日配信したらしばらく配信できなくなります。
+
+事情はまた配信で話します。
+
+
+よろしくお願い致しますm(*_ _)m
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17607#       发表于 2020-6-13 02:38
+
+
+
+
+2000看起来很多了，更恐怖的是这样的人至少200个才有600W<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+syl, 说的是月打2000RMB，不是楼里的2000
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17608#       发表于 2020-6-13 02:44
+
+
+
+
+我反正觉得看套皮主播挺省钱的，打钱欲望没那么高，四个月才花了四千多
+
+玩手游大概一个月3~5k，老婆都夸我省钱，虽然同时也骂我饭圈傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17609#       发表于 2020-6-13 02:45
+
+
+
+
+holo这个月sc又是破纪录的趋势啊。后面火3D，龙生日，可能有四期某人的3D，马自立有个3D回，夸复活回，还有一大群人的X0万纪念。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17610#       发表于 2020-6-13 02:47
+
+
+
+ 本帖最后由 QWANG 于 2020-6-13 03:39 编辑 
+
+倒不至于200个，粽子那每天打小钱的不少，上个月的SC人数是1297。日常打红SC的有好几个，只要播了就打红，基本不管什么内容，这些人能占到30%左右的总量吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剩下的1200多人供起剩余的，大概人均4000多日元吧。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 17611#       发表于 2020-6-13 02:47
+
+
+
+
+v综说好的杏一天爆炸三次呢
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17612#       发表于 2020-6-13 02:47
+
+
+
+
+白天炸过了，晚上当然要好好修，不然第二天炸什么。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17613#       发表于 2020-6-13 02:49
+
+
+
+
+白天没直播看大家情绪不稳定炸一炸本社应该理解，晚上有药了就好了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17614#       发表于 2020-6-13 02:50
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-13 02:52 编辑 
+
+今天的wwh，三才主持，龙宝加入替换三才。人员是三才，蘑菇人，龙宝，486，lofi（ID画师）。
+
+之前的消息错了一半可还行。我紫菜去了。
+
+
+
+
+
+
+-zue37Q5-247iZqT3cSu0-gi.jpg.medium.jpg
+(61.73 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-13 02:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/025055pccmim5ejomo57mu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17615#       发表于 2020-6-13 02:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785380&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 02:50</a>
+
+今天的wwh，龙宝替换三才。人员是蘑菇人，龙宝，486，lofi（ID画师）。
+
+之前的消息错了一半可还行。我紫菜 ...</blockquote>
+喂，三才不是在左下角么
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17616#       发表于 2020-6-13 02:53
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-13 02:52
+喂，三才不是在左下角么</blockquote>
+刚打完星际，理解理解。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17617#       发表于 2020-6-13 02:56
+
+
+
+ 本帖最后由 aele 于 2020-6-13 03:02 编辑 
+
+熟悉的三才字体
+
+倒是左上角那个吐槽点颇多的WWHlogo是怎么回事（
+
+三才这三更半夜在推上发什么怪文书呢。。
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 17618#       发表于 2020-6-13 02:57
+
+
+
+
+有点小期待广式日语了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17619#       发表于 2020-6-13 02:58
+
+
+
+
+卧槽龙宝怎么还在，不用做ascc就是可以为所欲为。。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17620#       发表于 2020-6-13 02:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785401&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 02:58</a>
+
+卧槽龙宝怎么还在，不用做ascc就是可以为所欲为。。。</blockquote>
+你以为龙宝的sc是怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17621#       发表于 2020-6-13 03:02
+
+
+
+
+艹啊郡道在会限公放一些诗子姐姐会喜欢的东西，吓醒了一刚
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 17622#       发表于 2020-6-13 03:05
+
+
+
+
+让冲国图书馆管理员给这群人好好上一课
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17623#       发表于 2020-6-13 03:23
+
+
+
+ 本帖最后由 QWANG 于 2020-6-13 03:26 编辑 
+
+算了一下这个月已经给粽子打了22600。可怕的脑控力，我得克制一下。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">syl
+
+兔皇39.9了，中午起来可以冲了，不知道播不播。
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17624#       发表于 2020-6-13 04:01
+
+
+
+<blockquote>QWANG 发表于 2020-6-13 03:23
+算了一下这个月已经给粽子打了22600。可怕的脑控力，我得克制一下。syl
+
+兔皇39.9了，中午起来可以冲 ...</blockquote>
+后浪.jpg
+
+
+
+
+
+            
