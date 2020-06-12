@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-02 12:12** 
+> ## **本文件最后更新于2020-06-13 00:08** 
 
 
 
@@ -1631,7 +1631,7 @@ srds，确实比糊创好看，听说河苟到了后边 也是不容易
 
 
 
-WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_bde5V" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_P0qdq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2060,4 +2060,331 @@ WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_bde5V" l
 
 
 
-                                              
+
+
+-----
+
+####  imba419  
+##### 107#       发表于 2020-6-5 21:23
+
+
+
+
+这节目凉了……
+
+
+
+
+
+
+
+-----
+
+####  天門  
+##### 108#         楼主| 发表于 2020-6-5 21:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47691464&amp;ptid=1938520" target="_blank">imba419 发表于 2020-6-5 21:23</a>
+
+这节目凉了……</blockquote>
+肯定凉的啦...
+
+
+
+
+
+
+
+-----
+
+####  msfan  
+##### 109#       发表于 2020-6-5 22:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">盘尼西林太好笑了，唱了个撩骚歌，结果输的底裤都没了。
+
+
+
+
+
+
+
+-----
+
+####  msfan  
+##### 110#       发表于 2020-6-5 22:30
+
+
+
+ 本帖最后由 msfan 于 2020-6-5 23:08 编辑 
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  温和派缪斯林  
+##### 111#       发表于 2020-6-7 01:34
+
+
+
+
+后期是放弃修音了吗，口型都对不上，直接拿预录的顶上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  油执的岚人  
+##### 112#       发表于 2020-6-12 19:55
+
+
+
+
+笑死了，直播录制的时候炒团半个团都没声音，今天播了想看看修成什么样，杨超越一开口果然是全是电
+
+
+
+
+
+
+
+-----
+
+####  夜光铃  
+##### 113#       发表于 2020-6-12 20:00
+
+
+
+
+炒解散杨超越也解脱了吧，再也不用跑这类舞台了
+
+
+
+
+
+
+
+-----
+
+####  kina  
+##### 114#       发表于 2020-6-12 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782019&amp;ptid=1938520" target="_blank">夜光铃 发表于 2020-6-12 20:00</a>
+炒解散杨超越也解脱了吧，再也不用跑这类舞台了</blockquote>
+决赛还有可能参加，挖机为了捧亲儿子不做人
+
+
+
+
+
+
+
+-----
+
+####  偶像101  
+##### 115#       发表于 2020-6-12 21:25
+
+
+
+
+火少这次的打歌服也太丑了，那个造型师小白还没换掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  半驼废  
+##### 116#       发表于 2020-6-12 21:30
+
+
+
+
+盘这次这歌怎么回事，这歌怎么这么马赛克？
+
+
+
+
+
+
+
+-----
+
+####  msfan  
+##### 117#       发表于 2020-6-12 21:56
+
+
+
+ 本帖最后由 msfan 于 2020-6-12 22:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">壶除了C，剩下的rap担加一起能比yamy强吗？这个比分，反正火少也要解散了，就给壶抬轿子呗？
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 118#       发表于 2020-6-12 22:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47781967&amp;ptid=1938520" target="_blank">油执的岚人 发表于 2020-6-12 19:55</a>
+
+笑死了，直播录制的时候炒团半个团都没声音，今天播了想看看修成什么样，杨超越一开口果然是全是电 ...</blockquote>
+都谁有声音啊？
+
+
+
+
+
+
+
+-----
+
+####  lucifer5455  
+##### 119#       发表于 2020-6-12 22:58
+
+
+
+<blockquote>油执的岚人 发表于 2020-6-12 19:55
+笑死了，直播录制的时候炒团半个团都没声音，今天播了想看看修成什么样，杨超越一开口果然是全是电 ...</blockquote>
+杨超越唱歌烂不假，但很明显，你对杨超越的假音有误解。
+
+无修音源在呢，2分50秒张紫宁破音了，李紫婷跟在后面也有失误。你非要说这都没修，只给杨超越修成电音，那确实没办法。
+
+https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=60218446646&amp;puid=&amp;client=a8f9eea963c972a4
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 120#       发表于 2020-6-12 23:05
+
+
+
+ 本帖最后由 本异末同 于 2020-6-12 23:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783934&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 22:58</a>
+
+杨超越唱歌烂不假，但很明显，你对杨超越的假音有误解。
+
+无修音源在呢，2分50秒张紫宁破音了，李紫婷跟在 ...</blockquote>
+感谢，微博上看到好多太阳星在说无修版，一直没找到。顺便问一下，有其他团的无修音版吗？尤其是壶的。
+
+
+
+
+
+
+
+-----
+
+####  lucifer5455  
+##### 121#       发表于 2020-6-12 23:10
+
+
+
+<blockquote>本异末同 发表于 2020-6-12 23:05
+感谢，微博上看到好多太阳星在说无修版，一直没找到。</blockquote>
+感觉就是一段舞蹈以后紫宁的气跟不上，导致声音劈了，后面跟着的紫婷也就跟着飘了，这俩站那vocal是不错的，但跳完了唱确实还是不稳，红色开水壶也是差不多这么来的。
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 122#       发表于 2020-6-12 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784079&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 23:10</a>
+
+感觉就是一段舞蹈以后紫宁的气跟不上，导致声音劈了，后面跟着的紫婷也就跟着飘了，这俩站那vocal是不错 ...</blockquote>
+对照视频版看了一下，一大段剧烈的舞蹈动作之后回来立马唱歌，有些刺了也很正常啊，那些粉丝拿这个拼命骂自己的团完全不理解是什么想法。
+
+
+
+
+
+
+
+-----
+
+####  lucifer5455  
+##### 123#       发表于 2020-6-12 23:20
+
+
+
+<blockquote>本异末同 发表于 2020-6-12 23:12
+对照视频版看了一下，一大段剧烈的舞蹈动作之后回来立马唱歌，有些刺了也很正常啊，那些粉丝拿这个拼命骂 ...</blockquote>
+所以你也要明白，为什么是这俩唱这段。因为这俩算是vocal组里最稳的，然而劈了就是劈了。剩下粉圈嘲人那点小心思不必深究。
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 124#       发表于 2020-6-12 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784196&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 23:20</a>
+
+所以你也要明白，为什么是这俩唱这段。因为这俩算是vocal组里最稳的，然而劈了就是劈了。剩下粉圈嘲人那 ...</blockquote>
+你说得好有道理，之前我还没往这方面想，就硬捧亲儿子呗。
+
+
+
+
+
+
+
+-----
+
+####  lucifer5455  
+##### 125#       发表于 2020-6-12 23:27
+
+
+
+<blockquote>本异末同 发表于 2020-6-12 23:22
+你说得好有道理，之前我还没往这方面想，就硬捧亲儿子呗。</blockquote>
+懒得说，那个是叫夏之光的吧，最起码2次很明显的失误。但3：0？好吧，早淘汰挺好。
+
+
+
+
+
+                                             

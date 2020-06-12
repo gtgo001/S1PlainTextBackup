@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 22:19** 
+> ## **本文件最后更新于2020-06-13 00:07** 
 
 
 
@@ -7723,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_kq1Qg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_N5Vb8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -16787,4 +16787,2484 @@ QQ截图20200612221801.png
 
 
 
-                    
+
+
+-----
+
+####  admentus  
+##### 17387#       发表于 2020-6-12 22:20
+
+
+
+
+兔子和猫宫聊了一刻钟还是那几个老话题，总感觉私下没那么熟啊...
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17388#       发表于 2020-6-12 22:20
+
+
+
+
+夫妻对拜啊（）
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17389#       发表于 2020-6-12 22:20
+
+
+
+
+阿龙这时候倒颇有皇者风范，海苔男的对谈第一次破2w？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17390#       发表于 2020-6-12 22:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">见面还是加入木口卡组，虚无
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17391#       发表于 2020-6-12 22:24
+
+
+
+ 本帖最后由 opersuper 于 2020-6-12 22:26 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 17392#       发表于 2020-6-12 22:24
+
+
+
+ 本帖最后由 kangkangsama 于 2020-6-12 22:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47782992&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-12 21:33</a>
+
+现在就没什么火都没有，也没有任何提的必要，我觉得今年内这两位根本不会互相提起对方（过了今年郡道应该 ...</blockquote>
+雨宫太阳（男人）
+
+真真正正的打块之神 
+
+几百年前就有了老师的扳手
+
+好早就约过联动
+
+syl
+
+实际老师和星街也不是没有联动过....
+
+当时第一次和星川联动的时候因为夏哥的关系一起和星川星街一起玩某个捉迷藏游戏
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17393#       发表于 2020-6-12 22:26
+
+
+
+
+脱毛合作来了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17394#       发表于 2020-6-12 22:28
+
+
+
+
+厕所rta再添一人
+
+
+
+
+
+
+
+-----
+
+####  触手姬  
+##### 17395#       发表于 2020-6-12 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783519&amp;ptid=1938145" target="_blank">cyz542 发表于 2020-6-12 22:19</a>
+
+点也可以播任任啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">从来都不是不给播,单纯是不能开收益
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17396#       发表于 2020-6-12 22:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783570&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-12 22:24</a>
+
+付钱敞开双腿（）龙宝脱毛变联动专武了吗，太恶心了</blockquote>
+海苔男毛也很浓密啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能够互相理解了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17397#       发表于 2020-6-12 22:33
+
+
+
+
+holo live
+
+杏  生活
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17398#       发表于 2020-6-12 22:34
+
+
+
+
+小孩哭声还行
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17399#       发表于 2020-6-12 22:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">龙宝家里有婴儿哭声，怎么还有迷之女声混入
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17400#       发表于 2020-6-12 22:34
+
+
+
+
+草，不是猫吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17401#       发表于 2020-6-12 22:35
+
+
+
+
+今天来亲戚了吧好像是，下午歌回也有乱入。
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17402#       发表于 2020-6-12 22:35
+
+
+
+
+chima这个也是风一般的自由<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+アーカイブ消します
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17403#       发表于 2020-6-12 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783571&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-12 22:24</a>
+雨宫太阳（男人）
+
+真真正正的打块之神 
+
+几百年前就有了老师的扳手</blockquote>
+惊了.....这是哪来的路子....
+这就是高社交力liver吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17404#       发表于 2020-6-12 22:37
+
+
+
+
+巧克，被屏蔽的神，我到她频道来看的时候没一次不被隐藏的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17405#       发表于 2020-6-12 22:39
+
+
+
+<img src="https://s1.ax1x.com/2020/06/12/tX2SxI.png" referrerpolicy="no-referrer">
+
+
+希望田角救救海外组
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17406#       发表于 2020-6-12 22:39
+
+
+
+
+苔苔要复制hololive house了吗 
+
+
+
+
+
+
+
+-----
+
+####  嵐ステリ  
+##### 17407#       发表于 2020-6-12 22:41
+
+
+
+
+彩虹除了niji world还有喂饭么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17408#       发表于 2020-6-12 22:41
+
+
+
+<blockquote>猫島かおる 发表于 2020-6-12 22:39
+希望田角救救海外组</blockquote>
+不如先换个游戏。
+
+不过holoID这三个能力都挺强的，松鼠放在本社应该是小天使级别的。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17409#       发表于 2020-6-12 22:42
+
+
+
+
+苔苔不会搞house的，肯出钱也是noripro别莊<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17410#       发表于 2020-6-12 22:43
+
+
+
+
+海苔男又是妈又是男朋友的，搞了宿舍就给员工住吗，是什么大善人
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17411#       发表于 2020-6-12 22:43
+
+
+
+
+holoID的三个战斗力都挺强的，好像最厉害的是松鼠来着？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17412#       发表于 2020-6-12 22:46
+
+
+
+ 本帖最后由 opersuper 于 2020-6-12 22:48 编辑 
+
+没需要啊，不cp营业的同居企划有什么必要　
+
+苔宝ノリが悪いね、のりだけに<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17413#       发表于 2020-6-12 22:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783798&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-12 22:46</a>
+
+没需要啊，不cp营业的同居企划有什么必要</blockquote>
+实名支持苔宝跟kuma同居可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17414#       发表于 2020-6-12 22:47
+
+
+
+
+松鼠都6万多sub了，niji海外的除了一开始还行后来增长就越来越慢，同接也越来越低
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17415#       发表于 2020-6-12 22:48
+
+
+
+
+我记得网上活跃的印度人不少啊，印度人是不吃彩虹或者V管人这套吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17416#       发表于 2020-6-12 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783829&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-12 22:48</a>
+
+我记得网上活跃的印度人不少啊，印度人是不吃彩虹或者V管人这套吗？ ...</blockquote>
+哦彩虹是印度吗？杏是印尼
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17417#       发表于 2020-6-12 22:50
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/225014fsyj2asy2mdoio3l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200612234959.jpg</strong> (18.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 22:50 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17418#       发表于 2020-6-12 22:50
+
+
+
+
+我也不懂为什么要搞印度，东南亚一直受东亚文化影响大，而且印尼本身也算是东南亚最大市场，这还能理解。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17419#       发表于 2020-6-12 22:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔宝在真的サブカルgirl面前太无力了，污物营业大失败
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17420#       发表于 2020-6-12 22:52
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-12 22:50
+</blockquote>
+梁木已经种下了…………
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17421#       发表于 2020-6-12 22:52
+
+
+
+
+草，MIKO这直播读条，太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17422#       发表于 2020-6-12 22:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783849&amp;ptid=1938145" target="_blank">猫島かおる 发表于 2020-6-12 22:50</a>
+我也不懂为什么要搞印度，东南亚一直受东亚文化影响大，而且印尼本身也算是东南亚最大市场，这还能理解。 ...</blockquote>
+你这说得和彩虹没id一样，id头牌hana都快90k sub了
+
+只是id状况有点像本部的严重版，hana一人独走，日本欧美本土粉全部吃饱，就是压根流不下去，第二的zea才26k
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17423#       发表于 2020-6-12 22:53
+
+
+
+ 本帖最后由 winda 于 2020-6-12 22:55 编辑 
+
+大米的dq概要栏应该都改这样了
+
+
+
+
+
+
+dq3.png
+(70.61 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 22:52 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/225255xgpgl9jpvjhhhbpj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17424#       发表于 2020-6-12 22:53
+
+
+
+
+说来船长那边的企划落地了么
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17425#       发表于 2020-6-12 22:53
+
+
+
+ 本帖最后由 admentus 于 2020-6-12 22:55 编辑 
+
+C:\Users\Administrator\Desktop
+
+
+
+
+
+
+QQ图片20200612225232.jpg
+(180.23 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 22:54 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/225441i4h5lltftfrhrfgc.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17426#       发表于 2020-6-12 22:53
+
+
+
+
+彩虹不也有印尼么，第一好像也8w多订阅了吧，同接倒是没有holo印尼的高
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17427#       发表于 2020-6-12 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783869&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-12 22:53</a>
+
+你这说得和彩虹没id一样，id头牌hana都快90k sub了
+
+
+只是id状况有点像本部的严重版，hana一人独走，日本 ...</blockquote>
+我知道有印尼啊，但是我搞不懂为什么会有印度
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17428#       发表于 2020-6-12 22:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783884&amp;ptid=1938145" target="_blank">cherryrain 发表于 2020-6-12 22:53</a>
+
+彩虹不也有印尼么，第一好像也8w多订阅了吧，同接倒是没有holo印尼的高</blockquote>
+彩虹那个。。。。比本部贫富差距还厉害。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17429#       发表于 2020-6-12 22:56
+
+
+
+
+不好意思问一下，刚用爱撕衣没多久，电脑怎么发图片来着？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17430#       发表于 2020-6-12 22:56
+
+
+
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_nLDLx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17431#       发表于 2020-6-12 22:57
+
+
+
+ 本帖最后由 opersuper 于 2020-6-12 22:58 编辑 
+
+誰でも抱ける　あながち間違っていない<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意外的龙夏糖
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17432#       发表于 2020-6-12 22:57
+
+
+
+
+说起来，小松鼠今天说自己在学韩语，而且已经考了一个（不算高）的证了。
+[@激光2000](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=484171) 请发散。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17433#       发表于 2020-6-12 22:57
+
+
+
+
+兔皇杂谈被进不去游戏的miko打翻
+
+
+该如何说，ARKlive复兴？
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17434#       发表于 2020-6-12 22:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783910&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-12 22:56</a>
+
+不好意思问一下，刚用爱撕衣没多久，电脑怎么发图片来着？</blockquote>
+要上传到另外的图床上，然后插入url。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17435#       发表于 2020-6-12 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783926&amp;ptid=1938145" target="_blank">猫島かおる 发表于 2020-6-12 22:57</a>
+
+要上传到另外的图床上，然后插入url。</blockquote>
+谢谢
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17436#       发表于 2020-6-12 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783910&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-12 22:56</a>
+
+不好意思问一下，刚用爱撕衣没多久，电脑怎么发图片来着？</blockquote>
+高级模式，图片，上传附件，插入。
+
+或者用其他网站的图床。
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/225911fc9gv4vs9343eavq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200612225900.png</strong> (35.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 22:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17437#       发表于 2020-6-12 22:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783910&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-12 22:56</a>
+
+不好意思问一下，刚用爱撕衣没多久，电脑怎么发图片来着？</blockquote>
+[https://s1.ax1x.com/](https://s1.ax1x.com/)
+
+有图床，或者直接上传图片
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17438#       发表于 2020-6-12 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783898&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-12 22:55</a>
+
+彩虹那个。。。。比本部贫富差距还厉害。。。。。。</blockquote>
+好像是因为印尼第一的那个hana日语不错，早期吸引了不少日本的观众？之前在nico上看到有个专门给她做剪辑的
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17439#       发表于 2020-6-12 23:02
+
+
+
+ 本帖最后由 空集 于 2020-6-12 23:04 编辑 
+
+原来如此  我刚刚也不会上传图片把楼层卡死了   
+[https://twitter.com/vinhnyu/status/1270209002639626242/photo/1](https://twitter.com/vinhnyu/status/1270209002639626242/photo/1)   附上一张赤发组，我真还是蛮喜欢这个组合的联动感觉的（想起以前船长和走姐联动感觉也很好）
+
+
+syl    感觉一个是ark民应该毕竟还是不少，二是今天这个猫宫联动确实同接拉跨，节目本身我也没什么动力看，可以理解<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17440#       发表于 2020-6-12 23:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783890&amp;ptid=1938145" target="_blank">猫島かおる 发表于 2020-6-12 22:54</a>
+我知道有印尼啊，但是我搞不懂为什么会有印度</blockquote>
+单纯看人口数拍脑袋定的吧，怎么说也是人口第二大国
+
+他们仨效果不咋地主要还是曝光度不行，noor明明日语还行英语也不错可是不和本土联动，不知道之前刷在叶杂谈和叶聊了半天能不能凑成。其他两个连日语都不会只能靠英语和id或kr联动
+
+印度也没其他管人可以当数据参考就是了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17441#       发表于 2020-6-12 23:04
+
+
+
+
+这次联动2w5是不是苔宝对谈的最高同接？
+
+苔宝好废物啊老开刹车龙宝都没法好好杂谈。钻到钱眼里的无聊女人也就这程度了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17442#       发表于 2020-6-12 23:05
+
+
+
+
+兔子和猫宫今天这杂谈只能说真没啥看点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就不会安排个apex联动吗
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 17443#       发表于 2020-6-12 23:05
+
+
+
+
+海外订阅暂且不说，Hana的风格加上日语水平，大概比彩虹本社相当部分的底边还吸引日本本土订阅，似乎也就游戏选择上像海外势……
+
+N站甚至有稳定的Hana剪辑产出，而且基本都能上彩虹tag人气首页。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17444#       发表于 2020-6-12 23:06
+
+
+
+
+apex太缺德了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17445#       发表于 2020-6-12 23:06
+
+
+
+
+点点点
+
+<img src="https://img.saraba1st.com/forum/202006/12/230543lmai668m4zi3a7it.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-12 230530.png</strong> (4.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 23:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17446#       发表于 2020-6-12 23:07
+
+
+
+
+突然想到ma桑是不是失业（无业）很久了，虽然时不时还说在收录个啥，不过我觉得还是快回家继承大别野吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+TIM截图20200613000058.png
+(232.37 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 23:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/230134h1oelrr1zgs2kowh.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17447#       发表于 2020-6-12 23:07
+
+
+
+
+安排apex羞辱猫宫吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17448#       发表于 2020-6-12 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784028&amp;ptid=1938145" target="_blank">noHentai 发表于 2020-6-12 23:05</a>
+海外订阅暂且不说，Hana的风格加上日语水平，大概比彩虹本社相当部分的底边还吸引日本本土订阅，似乎也就游 ...</blockquote>
+日本是一部分，hana最多的还是本土和欧美粉，她直播基本上都是英语为主，日语和印尼语为辅。之前的Doom直播给她拉了一大票欧美达利特粉。
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 17449#       发表于 2020-6-12 23:08
+
+
+
+
+千这新衣服我觉得没有这个好看
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_RLAp9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17450#       发表于 2020-6-12 23:08
+
+
+
+
+  猫狗组这边开台2分钟就超了兔子和猫宫的数据 
+
+不过猫狗这制服联动确实香多了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17451#       发表于 2020-6-12 23:09
+
+
+
+
+マッさん现在再去maid咖啡还有人愿意让她做店员吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17452#       发表于 2020-6-12 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784008&amp;ptid=1938145" target="_blank">opersuper 发表于 2020-6-12 23:04</a>
+
+这次联动2w5是不是苔宝对谈的最高同接？
+
+苔宝好废物啊老开刹车龙宝都没法好好杂谈。钻到钱眼里的无聊女人也 ...</blockquote>
+海苔男那苔姨有约就第一印象/性癖/结婚几个卡组，能让她用到关服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+如何看待龙皇联动同接大于早安可可和ark新章<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+木口ark已经亡了吗
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17453#       发表于 2020-6-12 23:10
+
+
+
+
+和猫宫合作等于慢性自杀吧
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17454#       发表于 2020-6-12 23:11
+
+
+
+ 本帖最后由 猫島かおる 于 2020-6-12 23:13 编辑 
+
+但是miko还没玩游戏都15k同接了
+
+
+sly 我懂了，不玩游戏的等游戏杂谈比玩游戏同接可能还高。确实ark过气了
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17455#       发表于 2020-6-12 23:11
+
+
+
+
+要是能搞好关系交个朋友也就算了，这看起来私下关系也不怎么好...
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17456#       发表于 2020-6-12 23:12
+
+
+
+
+到底为什么木口一定得给猫宫喂饭啊
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17457#       发表于 2020-6-12 23:13
+
+
+
+
+根据以上repo，我可以得出：ark不行、龙皇也不行、35行、苔姨超行的结论吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17458#       发表于 2020-6-12 23:13
+
+
+
+
+看了下彩虹KR的一个在播的，在用日语直播，同接看上去也算还行吧
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/231214vz226utxtddkgtpb.png" referrerpolicy="no-referrer">
+
+
+<strong>11111.PNG</strong> (544.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 23:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17459#       发表于 2020-6-12 23:13
+
+
+
+
+朋友费给的足呗，要不就是真的要加入了。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17460#       发表于 2020-6-12 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784116&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-12 23:13</a>
+根据以上repo，我可以得出：ark不行、龙皇也不行、35行、苔姨超行的结论吗？ ...</blockquote>
+龙皇ark1W7，35读条1W5，这个结论没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17461#       发表于 2020-6-12 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784116&amp;ptid=1938145" target="_blank">バーチャルS1er 发表于 2020-6-12 23:13</a>
+
+根据以上repo，我可以得出：ark不行、龙皇也不行、35行、苔姨超行的结论吗？ ...</blockquote>
+犬山哥行，苔姨不行。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17462#       发表于 2020-6-12 23:16
+
+
+
+
+猫宫专武BAN了还是个真联动社障直播又虚无的招来干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17463#       发表于 2020-6-12 23:16
+
+
+
+
+加入然后和萝卜子联动杂谈打枪？
+
+
+你就是地球最大杏黑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17464#       发表于 2020-6-12 23:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">Niji KR也可以边播任天堂边开SC吗
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 17465#       发表于 2020-6-12 23:18
+
+
+
+
+楼里奶猫狗出来受死<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+直播间为什么杂谈都会被隐藏呀
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17466#       发表于 2020-6-12 23:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784172&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-12 23:18</a>
+Niji KR也可以边播任天堂边开SC吗</blockquote>
+签约的是にじさんじプロジェクト，包括id，in、kr和vr
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17467#       发表于 2020-6-12 23:20
+
+
+
+ 本帖最后由 空集 于 2020-6-12 23:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 真招来全社流行apex 唯独以FPS出名的猫宫不打场面也太娱乐了 
+
+syl  是我奶的 我的锅  
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17468#       发表于 2020-6-12 23:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784023&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-12 23:05</a>
+
+兔子和猫宫今天这杂谈只能说真没啥看点就不会安排个apex联动吗</blockquote>
+打什么apex，pubg不是更好么？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17469#       发表于 2020-6-12 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784183&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-12 23:19</a>
+
+签约的是にじさんじプロジェクト，包括id，in、kr和vr</blockquote>
+但是维阿在B站，B站不在许可平台内<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 17470#       发表于 2020-6-12 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/197.png" referrerpolicy="no-referrer">来点劲爆的，上次和棒子吃饭给他看了kr，他说某个人声音很像他一个同学来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17471#       发表于 2020-6-12 23:22
+
+
+
+ 本帖最后由 AloissiolA 于 2020-6-12 23:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784198&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-12 23:21</a>
+
+但是维阿在B站，B站不在许可平台内</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这怪B站，不怪vr，理论上说vr可以在油管打任任开sc
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17472#       发表于 2020-6-12 23:22
+
+
+
+
+你任天堂管不到我维阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17473#       发表于 2020-6-12 23:22
+
+
+
+
+vr的人可以去外面播，没毛病。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17474#       发表于 2020-6-12 23:23
+
+
+
+
+搞清楚点，治不了维阿还治不了你本社吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 17475#       发表于 2020-6-12 23:24
+
+
+
+
+Aki这b限还行
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 17476#       发表于 2020-6-12 23:24
+
+
+
+
+岳府说魔女公司可以播，应该给他举报了，让岳府别嚣张
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17477#       发表于 2020-6-12 23:25
+
+
+
+
+你本社也管不到我维阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17478#       发表于 2020-6-12 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784208&amp;ptid=1938145" target="_blank">AloissiolA 发表于 2020-6-12 23:22</a>
+
+这怪B站，不怪vr，理论上说vr可以在油管打任任开sc</blockquote>
+我记得维阿合同只允许liver在b站播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cherryrain  
+##### 17479#       发表于 2020-6-12 23:27
+
+
+
+
+听了一会这位kr的直播，感觉韩语有点好听<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17480#       发表于 2020-6-12 23:27
+
+
+
+
+安装时间越来越长笑死
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 17481#       发表于 2020-6-12 23:28
+
+
+
+
+8250又在打什么空屁
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17482#       发表于 2020-6-12 23:29
+
+
+
+
+跑去aki那看了眼，这关于同事的题目答错了不是很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17483#       发表于 2020-6-12 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784275&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-12 23:29</a>
+
+跑去aki那看了眼，这关于同事的题目答错了不是很尴尬</blockquote>
+不是贴贴对象的话其实不算尴尬。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17484#       发表于 2020-6-12 23:35
+
+
+
+
+aki的贴贴对象是谁？等等，是说木口的aki吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17485#       发表于 2020-6-12 23:38
+
+
+
+
+喵宫联动应该是木口提供技术支持的要求，想把喵宫这几十万粉盘活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，结果反过来让喵宫开始涨粉了也太奇妙了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17486#       发表于 2020-6-12 23:38
+
+
+
+
+にじ的aki还活着呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17487#       发表于 2020-6-12 23:40
+
+
+
+
+杏现在够难了，你们现在还要安排猫宫进杏是怕杏死得不够快啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17488#       发表于 2020-6-12 23:41
+
+
+
+
+所以猫宫到底啥事，代打之外还有吗？
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17489#       发表于 2020-6-12 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是看今天的同接榜并不觉得难啊，表面的繁荣kana？
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 17490#       发表于 2020-6-12 23:42
+
+
+
+
+《虚拟韩国主播能吃到电子火炉火吗》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17491#       发表于 2020-6-12 23:42
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-12 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784387&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-12 23:41</a>
+可是看今天的同接榜并不觉得难啊，表面的繁荣kana？</blockquote>
+同接都是靠压榨老年人mio和地主女儿486换来的
+
+syl，想夸了，天天车轱辘夏吹腻了，被顺劈的神你怎么还不回来<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17492#       发表于 2020-6-12 23:43
+
+
+
+
+阿火开待机间了，可以看待机水平了。<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17493#       发表于 2020-6-12 23:43
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-6-12 23:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784386&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-12 23:41</a>
+
+所以猫宫到底啥事，代打之外还有吗？</blockquote>
+喵宫直播到现在了问题基本都保留出来了，
+
+是真的自闭，联动混熟了话也不多。期望她像直播势一样主动整活恐怕很难。她的团队算是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17494#       发表于 2020-6-12 23:44
+
+
+
+[https://youtu.be/XTCgqLLaEFQ?t=3076](https://youtu.be/XTCgqLLaEFQ?t=3076)
+
+naraka的枪法真的有点强，这把开局乱战没子弹没甲还能打到第二位
+
+
+
+
+
+
+naraka apex.png
+(619.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-12 23:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/234344o41evh7vp5p4e7vf.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17495#       发表于 2020-6-12 23:47
+
+
+
+
+猫宫这企划老早就被卖了开始苟延残喘没人理了，然后和兔皇联动一下你们就又开始虐猫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17496#       发表于 2020-6-12 23:47
+
+
+
+
+对以直播为主的杏来说，收了猫宫就是多一底边，除了订阅好看别的价值很少，但是现在杏又不缺猫宫的订阅涨声势，毕竟狐皇都要食杀四天王了。然后还要承担猫宫的团队，除非有技术方面的需求，我是看不出收猫宫的意义。<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17497#       发表于 2020-6-12 23:49
+
+
+
+ 本帖最后由 winda 于 2020-6-12 23:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">兔子现在这乱七八糟的社外联动，看起来是个人都想从V圈第一兔的兔煲里分口汤吃
+
+
+
+
+
+
+emmm.png
+(788.38 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-12 23:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/235017tm51dic6b3c6u3z6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 17498#       发表于 2020-6-12 23:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/234750n7nsj8j30r0kt7km.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200612234529.png</strong> (148.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 23:47 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/234750gclmq8jr4b47z2jk.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200612234504.png</strong> (332.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 23:47 上传
+
+
+
+
+
+黄油工商真的没问题吗
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17499#       发表于 2020-6-12 23:50
+
+
+
+
+与其说猫宫有啥问题，不如说猫宫还有啥本事吧。。真当yagoo是搞慈善的么
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17500#       发表于 2020-6-12 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784449&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 23:49</a>
+兔子现在这乱七八糟的社外联动，看起来是个人都想从V圈第一兔的兔煲里分口汤吃 ...</blockquote>
+我倒觉得是兔皇自己的问题，虽然不能说她社恐，但主动邀请社内联动估计是做不到的。而其他人邀请，连三期的粽子和阿火都说兔皇看起来很忙不敢邀请，那别的人就更不敢了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">社外就没什么顾忌了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17501#       发表于 2020-6-12 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能yagoo想抄2434 network的作业呢
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17502#       发表于 2020-6-12 23:53
+
+
+
+
+兔子这几个社外联动看着也不像自己找的，大概率是运营分配的吧。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17503#       发表于 2020-6-12 23:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是兔皇想保自己频道的KDI不轻易联动吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17504#       发表于 2020-6-12 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2434现在倒是有任任许可权给搞了皮包公司避税的个人势一个新机会
+
+木口现在开这个能拉到人么，水平低的看不上，水平高的没事为啥过来接受版权检查洗礼
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17505#       发表于 2020-6-12 23:55
+
+
+
+
+真社恐爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17506#       发表于 2020-6-12 23:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">也没那么夸张 之前阿火打喷喷兔子还中途加进去突击联动过 会好起来的  
+
+不主动是真的 这个之前深夜兔田酒吧读棉花糖的时候也说过自己是那种被邀请一起玩也会玩的很好很开心 但就是不喜欢主动邀请的个性  还有就是三期提过很多次的 就是兔子要不要尝试一次凸待兔子也是说绝对不要这样     
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 17507#       发表于 2020-6-12 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784471&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-12 23:51</a>
+可能yagoo想抄2434 network的作业呢</blockquote>
+死掉的作业有什么好抄的，我们抄slee好不好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">yagoo来个露脐偶像团
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17508#       发表于 2020-6-12 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784393&amp;ptid=1938145" target="_blank">SuntoryNomu 发表于 2020-6-12 23:42</a>
+
+《虚拟韩国主播能吃到电子火炉火吗》</blockquote>
+看成了驴火<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17509#       发表于 2020-6-12 23:58
+
+
+
+
+其实就是两个P一起喝酒吹屁然后一拍脑袋、联动、企划来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17510#       发表于 2020-6-13 00:00
+
+
+
+
+说是义务联动的话
+
+兔皇有猫宫line账号这个怎么解释
+
+一般v来往的话很少到line这个程度吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17511#       发表于 2020-6-13 00:01
+
+
+
+
+兔子猫宫今晚这个联动真的不好看，我想看pekomiko和兔粽了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17512#       发表于 2020-6-13 00:01
+
+
+
+
+也许是猫宫皮性恋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17513#       发表于 2020-6-13 00:03
+
+
+
+
+魂性恋也很可<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 17514#       发表于 2020-6-13 00:03
+
+
+
+
+星街开了，是她偶像翻唱过的曲子。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17515#       发表于 2020-6-13 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本人业务往来都是加line的，discord没听说过呢
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17516#       发表于 2020-6-13 00:06
+
+
+
+
+想看兔葵...不知道这俩什么时候有机会正式联动一次
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 17517#       发表于 2020-6-13 00:07
+
+
+
+
+感觉兔葵商业互吹味有点重、想个新CP：兔鬼、兔心怎么样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                

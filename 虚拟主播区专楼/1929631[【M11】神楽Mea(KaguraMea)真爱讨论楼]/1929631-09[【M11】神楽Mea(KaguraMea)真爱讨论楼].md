@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 22:12** 
+> ## **本文件最后更新于2020-06-13 00:02** 
 
 
 
@@ -5522,8 +5522,11 @@ Mea fam<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" ref
 
 
 
+ 本帖最后由 龙魂绯影 于 2020-6-12 22:17 编辑 
 
 被实名认证挡了草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+他进去了草，日本人怎么过的实名认证
 
 
 
@@ -5663,4 +5666,220 @@ LOL OSU 麻将，有什么好挑的
 
 
 
-                                       
+
+
+-----
+
+####  笋狐  
+##### 12323#       发表于 2020-6-12 22:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒，konkon那是狐狸叫，这波是鱼板玉米贴贴（不
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">syl，淘宝上带大亏哥夏哥的初始号好像还有，但是没有带玉米人的，不高兴
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12324#       发表于 2020-6-12 22:15
+
+
+
+
+因为玉米人要肝，脚本号自然是没空给你搞的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 12325#       发表于 2020-6-12 22:17
+
+
+
+
+狐狸似乎要刷本获得
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12326#       发表于 2020-6-12 22:18
+
+
+
+
+稍微说一下，方舟指令这游戏升星需要的素材又多又杂，几乎大部分素材都需要准备挺多个，如果真想把你咩姐抽出来肝到满的话越早开号准备越好，不然完全不如之后云视频（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12327#       发表于 2020-6-12 23:08
+
+
+
+
+等等那个鬼父本人好像在隔壁出现了，似乎是tw人?不是天狗只是觉得咩反应可爱所以课了一波。（这就是有钱人么(#ﾟДﾟ)）
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 12328#       发表于 2020-6-12 23:15
+
+
+
+
+谁还不是从觉得可爱开始的呢
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12329#       发表于 2020-6-12 23:15
+
+
+
+
+好像在群里确实有人看到是国人，不过在哪个隔壁呀没看到，v综？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，晚上应该无了吧，睡觉，估计后面有一波工商b限希望多拉点新观众（
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12330#       发表于 2020-6-12 23:17
+
+
+
+
+在nga。对方用的是繁体而且说话用词还蛮湾湾的来着
+
+
+
+
+
+
+
+-----
+
+####  feyir  
+##### 12331#       发表于 2020-6-12 23:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那用词法我觉得真不像大陆人
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12332#       发表于 2020-6-12 23:23
+
+
+
+
+你咩还有个军服女仆的特殊皮肤来着,是不是可以奶一下啥风格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12333#       发表于 2020-6-12 23:32
+
+
+
+
+啊？鬼父？那个id经常在小野跟白雪那里打红sc，大概是木口粉罢
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12334#       发表于 2020-6-12 23:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那是个推苔箱的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是苔苔引流啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">谢谢苔苔
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12335#       发表于 2020-6-12 23:42
+
+
+
+
+谢苔奶奶赏饭
+
+
+
+
+
+                                      
