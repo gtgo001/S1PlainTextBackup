@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-12 14:03** 
+> ## **本文件最后更新于2020-06-12 16:04** 
 
 
 
@@ -2871,4 +2871,1217 @@ LOL带杂谈效果意外的好？
 
 
 
-                                            
+
+
+-----
+
+####  林照人  
+##### 12159#       发表于 2020-6-12 14:06
+
+
+
+
+饿了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12160#       发表于 2020-6-12 14:06
+
+
+
+
+b限的弹幕日语浓度惊人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12161#       发表于 2020-6-12 14:10
+
+
+
+
+正常吧，b限谁不想届到呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+我好像届到了一次<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12162#       发表于 2020-6-12 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lol完成了逃生
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12163#       发表于 2020-6-12 14:15
+
+
+
+
+mea虐反应真的有趣<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+好像欺负她<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12164#       发表于 2020-6-12 14:15
+
+
+
+
+有些日本人，游戏打着打着就疯了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 12165#       发表于 2020-6-12 14:16
+
+
+
+
+裸金身，这把没咩事了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12166#       发表于 2020-6-12 14:17
+
+
+
+
+这样的萌音还勉强能用
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12167#       发表于 2020-6-12 14:21
+
+
+
+
+躺赢还行
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12168#       发表于 2020-6-12 14:22
+
+
+
+
+钓鱼上手的mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12169#       发表于 2020-6-12 14:22
+
+
+
+
+mea就是个饵
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12170#       发表于 2020-6-12 14:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡古拉没牙再启动
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12171#       发表于 2020-6-12 14:30
+
+
+
+
+想起桀哥“再吃两口”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12172#       发表于 2020-6-12 14:31
+
+
+
+
+方舟指令联动来了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12173#       发表于 2020-6-12 14:32
+
+
+
+
+没想到吧 卡池是我mea和meu哒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 12174#       发表于 2020-6-12 14:32
+
+
+
+ 本帖最后由 第三惑星 于 2020-6-12 14:34 编辑 
+
+清楚正统爱抖露
+
+是mea和meu，mea有草莓果酱，meu有neetime，爱了
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 12175#       发表于 2020-6-12 14:33
+
+
+
+ 本帖最后由 时之虫 于 2020-6-12 14:41 编辑 
+
+联动官宣https://b23.tv/SdQC0U
+这质量看着可以，i了i了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+乳#？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12176#       发表于 2020-6-12 14:34
+
+
+
+[https://b23.tv/BV1ci4y1x7cH](https://b23.tv/BV1ci4y1x7cH)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12177#       发表于 2020-6-12 14:34
+
+
+
+
+清楚的正统<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12178#       发表于 2020-6-12 14:35
+
+
+
+
+清楚的正统偶像神楽Mea将于6月18日正式登陆方舟指令
+
+我现在只有30抽<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12179#       发表于 2020-6-12 14:35
+
+
+
+
+不错不错
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 12180#       发表于 2020-6-12 14:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">羊党赢了
+
+
+
+
+
+
+
+-----
+
+####  昨夜雨  
+##### 12181#       发表于 2020-6-12 14:38
+
+
+
+
+这奶妈纯恶心人的，就闲着没事跑中路奶一口
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12182#       发表于 2020-6-12 14:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说起来乐一这皮算是正式公式化了吧，压力马斯内
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12183#       发表于 2020-6-12 14:40
+
+
+
+
+早就公式化了啊
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 12184#       发表于 2020-6-12 14:40
+
+
+
+
+算上meu居然有4套衣服<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 12185#       发表于 2020-6-12 14:42
+
+
+
+
+等等，这不是要婚两个，我的肝
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12186#       发表于 2020-6-12 14:43
+
+
+
+
+先婚meu<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12187#       发表于 2020-6-12 14:44
+
+
+
+
+先婚mea，meu小姨子不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12188#       发表于 2020-6-12 14:44
+
+
+
+
+狗党支持率创新高
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12189#       发表于 2020-6-12 14:45
+
+
+
+
+大型重婚惨案
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 12190#       发表于 2020-6-12 14:45
+
+
+
+
+感觉自己攒的只够抽一个的（悲
+
+
+
+
+
+
+
+-----
+
+####  Sabishi_Jiku  
+##### 12191#       发表于 2020-6-12 14:47
+
+
+
+
+hxd们，你们玩吗？
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 12192#       发表于 2020-6-12 14:48
+
+
+
+ 本帖最后由 nightmare902015 于 2020-6-12 14:50 编辑 
+
+学猫叫也太像尿尿的发音了
+
+
+手游就等你们返点gif返点语音mp3好了。。。
+
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 12193#       发表于 2020-6-12 14:49
+
+
+
+
+准备买个自抽号抽抽，应该玩不久
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12194#       发表于 2020-6-12 14:50
+
+
+
+
+不懂就问，创了个新号什么都没有，是不是tb个石头号比较好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 12195#       发表于 2020-6-12 14:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">反正最后也是弃坑，不想下回来
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  第三惑星  
+##### 12196#       发表于 2020-6-12 14:52
+
+
+
+
+买个自抽号呗，我上星期买的，现在3000多水晶100多劵
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 12197#       发表于 2020-6-12 14:55
+
+
+
+
+继续玩舰b和舟游了，抱着mea有朝一日能和这俩联动的梦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12198#       发表于 2020-6-12 14:55
+
+
+
+
+死也不碰手游!<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12199#       发表于 2020-6-12 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（贪心）有没有好哥哥出个教程怎么白嫖石头啊，买了石头号之后每天登陆就可以领还是每天要肝地图，完全没玩过这种类型的游戏，上一个手游还是lovelive……
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12200#       发表于 2020-6-12 14:58
+
+
+
+
+谁<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 12201#       发表于 2020-6-12 14:59
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/12/145920r4feyymerrjij49c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D045EB62-1879-4F3F-8D29-6CF3AE51B71B.jpeg</strong> (225.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-12 14:59 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 12202#       发表于 2020-6-12 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47778186&amp;ptid=1929631" target="_blank">yuandi0120 发表于 2020-6-12 14:55</a>
+
+继续玩舰b和舟游了，抱着mea有朝一日能和这俩联动的梦</blockquote>
+方舟就算了，没可能的。舰B你就把恶毒当mea看就好了
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 12203#       发表于 2020-6-12 15:00
+
+
+
+
+2人物2皮肤 还有一个特殊皮肤 军服女仆
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12204#       发表于 2020-6-12 15:00
+
+
+
+
+方舟指令动态转发
+
+特别奖：抽选一名御灵士赠送神楽Mea to签一张
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12205#       发表于 2020-6-12 15:02
+
+
+
+
+如果我中了to签会给你们看看的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12206#       发表于 2020-6-12 15:04
+
+
+
+
+TB绑了邮箱的初始号几块钱，没绑的20多，买一个抽就完事了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12207#       发表于 2020-6-12 15:04
+
+
+
+
+到时候应该可以从转发数看咩gachi数<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12208#       发表于 2020-6-12 15:07
+
+
+
+
+tc
+
+
+
+
+
+
+
+-----
+
+####  Sabishi_Jiku  
+##### 12209#       发表于 2020-6-12 15:08
+
+
+
+ 本帖最后由 Sabishi_Jiku 于 2020-6-12 15:16 编辑 
+
+初始号不能绑自己b站号，是没有灵魂的rbq罢了
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 12210#       发表于 2020-6-12 15:09
+
+
+
+
+meu的中文名是啥
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12211#       发表于 2020-6-12 15:10
+
+
+
+
+这tc封面什么鬼草
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 12212#       发表于 2020-6-12 15:10
+
+
+
+
+保底是不是只需要750?
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12213#       发表于 2020-6-12 15:12
+
+
+
+
+抽完就卸载，难道还真的玩下去吗
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12214#       发表于 2020-6-12 15:12
+
+
+
+
+连mea都没有正式冲文名，meu更没有啊，不过咪呜还挺可爱的，就是太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12215#       发表于 2020-6-12 15:13
+
+
+
+
+500钻十连，150发保底，2.5%出率，两个池纯氪金一般一单到两单解决
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12216#       发表于 2020-6-12 15:14
+
+
+
+
+方舟指令，下载！
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12217#       发表于 2020-6-12 15:14
+
+
+
+
+方舟指令，下载！
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12218#       发表于 2020-6-12 15:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看起来成本不高……
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12219#       发表于 2020-6-12 15:17
+
+
+
+
+还行，去试试了
+
+syl最近怎么感觉评论区直播间阴阳怪气的有点多<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 12220#       发表于 2020-6-12 15:18
+
+
+
+
+按照限定池2.5%的出率来说，只要不是太黑，40发就够了。现在我攒了21，做每日任务有一张，签到和每周任务应该还有几张，推到6-4已经不好继续了，应该到时候再氪一点就够了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+就当给mea加点人气，方便以后还能有手游看上这女人联动工商
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12221#       发表于 2020-6-12 15:18
+
+
+
+
+tc在osu上玩自己的歌<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12222#       发表于 2020-6-12 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47778505&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-12 15:17</a>
+
+还行，去试试了
+
+
+syl最近怎么感觉评论区直播间阴阳怪气的有点多</blockquote>
+不是最近了，最近你觉得多了可能是因为我没啥时间所以杀的少
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12223#       发表于 2020-6-12 15:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47778594&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-12 15:24</a>
+不是最近了，最近你觉得多了可能是因为我没啥时间所以杀的少</blockquote>
+流星，默默的英雄<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12224#       发表于 2020-6-12 15:31
+
+
+
+
+#clay鲨疯了
+
+#clay天道酬勤
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12225#       发表于 2020-6-12 15:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前弄了个初始号试了试，感觉这游戏各方面还可以，就是不好玩
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12226#       发表于 2020-6-12 15:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47778699&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-6-12 15:32</a>
+之前弄了个初始号试了试，感觉这游戏各方面还可以，就是不好玩</blockquote>
+说明你理解了这个游戏的本质，玩的人大部分都是这个评价，什么都好就是不好玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 12227#       发表于 2020-6-12 15:36
+
+
+
+
+不应该说抽卡手游大都这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">驱动力主要是靠对角色的厨力
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12228#       发表于 2020-6-12 15:41
+
+
+
+
+因为没有什么大IP当靠背，没啥大宣传，外加本身就这素质
+
+大多数手游都是这样的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12229#       发表于 2020-6-12 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47778594&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-12 15:24</a>
+不是最近了，最近你觉得多了可能是因为我没啥时间所以杀的少</blockquote>
+点举报up主看不见嘛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，辣鸡p站
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 12230#       发表于 2020-6-12 15:59
+
+
+
+
+两角色三皮肤，这联动给面子啊。
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12231#       发表于 2020-6-12 16:02
+
+
+
+
+哥哥们有没有傻瓜式教程...怎么花最少的钱抽到mea之类的....
+
+
+
+
+
+                                          
