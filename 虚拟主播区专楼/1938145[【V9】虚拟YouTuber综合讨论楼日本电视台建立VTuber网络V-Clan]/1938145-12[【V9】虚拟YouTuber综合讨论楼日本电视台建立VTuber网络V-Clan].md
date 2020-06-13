@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 16:08** 
+> ## **本文件最后更新于2020-06-13 18:09** 
 
 
 
@@ -3834,537 +3834,6 @@ https://www.nicovideo.jp/watch/sm36116292     19年点是怎么把自己作�
 
 -----
 
-####  渡鸦骑士  
-##### 16711#       发表于 2020-6-12 12:19
-
-
-
-
-我居然在此之前完全没看过sio在点箱的皮
-
-太奇妙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  bluebaby  
-##### 16712#       发表于 2020-6-12 12:19
-
-
-
-
-点怎么死的对观众没有借鉴意义，有借鉴意义的是点人怎么疯的，虹杏爆炸时观众怎么避免变成这样<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  渡鸦骑士  
-##### 16713#       发表于 2020-6-12 12:19
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776348&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-12 12:17</a>
-
-没有可以在B大量繁殖的meme算是点和虹在国内不如杏的原因么。</blockquote>
-毕竟互联网时代了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  crito  
-##### 16714#       发表于 2020-6-12 12:20
-
-
-
-
-点的爆炸是一种必然吧，毕竟根本原因是不仲
-
-
-
-
-
-
-
------
-
-####  yuandi0120  
-##### 16715#       发表于 2020-6-12 12:24
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776348&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-12 12:17</a>
-没有可以在B大量繁殖的meme算是点和虹在国内不如杏的原因么。</blockquote>
-人民喜闻乐见，你不喜欢，你算老几<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-啊，这里的人民指除了日本之外的全世界人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  marysaluly  
-##### 16716#       发表于 2020-6-12 12:25
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776314&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 12:14</a>
-
-https://www.nicovideo.jp/watch/sm36116292     19年点是怎么把自己作死的看着也差不多了 ...</blockquote>
-这么看点的主流资源确实很多，虹现在好像还是差了点
-
-
-
-
-
-
-
------
-
-####  opersuper  
-##### 16717#       发表于 2020-6-12 12:27
-
-
-
-
-当年可太怀念了，我还给点箱100多个游戏旧ID里选十二宫投过票呢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-点箱从小白开始立绘总是摆脱不了那种落后时代土土的感觉，没有年轻人喜欢的最新最new感
-
-
-
-
-
-
-
------
-
-####  PekoPekoPeko  
-##### 16718#       发表于 2020-6-12 12:31
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776364&amp;ptid=1938145" target="_blank">Fakerの幻影 发表于 2020-6-12 12:18</a>
-想回到过去的还有六字母贴贴人啊</blockquote>
-真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">回到咩咩还是处女的时候
-
-
-
-
-
-
-
------
-
-####  蛋炒蜂窝煤  
-##### 16719#       发表于 2020-6-12 12:31
-
-
-
-
-提一下，怎么没人来排满人啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  龙魂绯影  
-##### 16720#       发表于 2020-6-12 12:32
-
-
-
-
-当年我还是在大亏那边白上锤雪的mmr<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  opersuper  
-##### 16721#       发表于 2020-6-12 12:35
-
-
-
-<blockquote>marysaluly 发表于 2020-6-12 12:25
-这么看点的主流资源确实很多，虹现在好像还是差了点</blockquote>
-点公司资源多，和真草台holo彩虹全靠自己的还是多点
-
-
-
-
-
-
-
------
-
-####  间隙白垢  
-##### 16722#       发表于 2020-6-12 12:35
-
-
-
-
-比较火的几个meme里，贴贴和嘶哈嘶哈最早是虹这边传出来的，awsl出处很难考但也不是杏。虹不是没有可以在B站火起来的梗。说到底梗有没有火的潜质无关紧要，如何做到让大量圈外人复读meme以及到处刷屏才称得上财富密码
-
-
-
-
-
-
-
------
-
-####  tiro_finale  
-##### 16723#       发表于 2020-6-12 12:35
-
-
-
-
-满人是外星人，现在已经回到他们的星球了，没几个人记得了吧
-
-
-
-
-
-
-
------
-
-####  winda  
-##### 16724#       发表于 2020-6-12 12:35
-
-
-
-
-满人在v8草创阶段就在akari吧圈地自萌了，观察难度有点高
-
-
-
-
-
-
-
------
-
-####  cheatdeath3  
-##### 16725#       发表于 2020-6-12 12:36
-
-
-
-
-狐+awsl=小鬼，狐+姨=v综，这是什么自绝于人民的体现吗？
-
-
-
-
-
-
-
------
-
-####  bluebaby  
-##### 16726#       发表于 2020-6-12 12:39
-
-
-
- 本帖最后由 bluebaby 于 2020-6-12 12:41 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776581&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-12 12:36</a>
-狐+awsl=小鬼，狐+姨=v综，这是什么自绝于人民的体现吗？</blockquote>
-那你现在来发一个是小狐狸awsl给大家看看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  掉头学姐  
-##### 16727#       发表于 2020-6-12 12:39
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776565&amp;ptid=1938145" target="_blank">间隙白垢 发表于 2020-6-12 12:35</a>
-比较火的几个meme里，贴贴和嘶哈嘶哈最早是虹这边传出来的，awsl出处很难考但也不是杏。虹不是没有可以在B ...</blockquote>
-那怎么说理解理解才是唯一自创，大夸哥yyds
-
-—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  y78348877  
-##### 16728#       发表于 2020-6-12 12:40
-
-
-
-
-都是管人观众，有什么分高下的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  stmule  
-##### 16729#       发表于 2020-6-12 12:41
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47775052&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-12 10:43</a>
-
-庙小妖风大
-
-当年国内主机界打的你死我活的关键还不是没钱，现在生活水平上来了，人手多平台的。就剩那些l ...</blockquote>
-说实话，零系列巫女那作来个复刻，我立马买switch<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-不然就算买个机顶盒也不会考虑2019年的720p<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  死体残留  
-##### 16730#       发表于 2020-6-12 12:41
-
-
-
-
-这个月算不算holo历史上最黑暗的一月<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
-
-—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
-
-
-
-
-
-
-
------
-
-####  crito  
-##### 16731#       发表于 2020-6-12 12:41
-
-
-
-
-虹传出圈外的meme也不少吧，见到过好好的“草”不打，非要打成“笹”的奇行种
-
-
-
-
-
-
-
------
-
-####  Izuru单推人  
-##### 16732#       发表于 2020-6-12 12:42
-
-
-
-
-这么说起来，我看V看的晚，对18年根本毫无认识，毕竟从19年初看的嘛，而且也是看杏开始的，后来开始从NGA的杏楼接触国内V圈的各讨论区，大概是去年九月吧，那边杏楼又车起stars的事，想了想就去B站找找有没有搬运看看那时我连墙都不会翻，当时为数不多的剪辑几乎80%是一弦相关的，怎么说呢，就像之前说过的一样，“这个人完全过着我向往的生活啊......”，也只是这样......再后来，stars建官号、年末NGA与贴吧大混战，从我发帖质问那些说stars是牛郎的人知不知道“牛郎”是什么的时候，我就是现在你们看见的我了
-
-
-
-
-
-
-
------
-
-####  erer  
-##### 16733#       发表于 2020-6-12 12:42
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776644&amp;ptid=1938145" target="_blank">死体残留 发表于 2020-6-12 12:41</a>
-
-这个月算不算holo历史上最黑暗的一月
-
-
-—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
-有什么黑暗的，钱又没少赚。
-
-
-
-
-
-
-
------
-
-####  bluebaby  
-##### 16734#       发表于 2020-6-12 12:43
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776644&amp;ptid=1938145" target="_blank">死体残留 发表于 2020-6-12 12:41</a>
-这个月算不算holo历史上最黑暗的一月
-
-—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
-不要急，说不定周末开始就是holo史上最光辉的一个月了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  あのん  
-##### 16735#       发表于 2020-6-12 12:44
-
-
-
-
-大家都是弱智管人观众
-
-何必分个高下呢<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  winda  
-##### 16736#       发表于 2020-6-12 12:45
-
-
-
-
-建筑王+油管炮时代更惨吧
-
-
-
-
-
-
-
------
-
-####  star_platinum  
-##### 16737#       发表于 2020-6-12 12:45
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776649&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-12 12:41</a>
-虹传出圈外的meme也不少吧，见到过好好的“草”不打，非要打成“笹”的奇行种 ...</blockquote>
-那基本只能在任任女孩的直播间里看到吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
-
-
------
-
-####  tiro_finale  
-##### 16738#       发表于 2020-6-12 12:45
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776644&amp;ptid=1938145" target="_blank">死体残留 发表于 2020-6-12 12:41</a>
-
-这个月算不算holo历史上最黑暗的一月
-
-
-—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
-连19年2月的边都沾不上，这点无聊的事情甚至不如今年初收益化连续剥夺
-
-
-
-
-
-
-
------
-
-####  Ketestrait  
-##### 16739#       发表于 2020-6-12 12:45
-
-
-
-
-观众有三种，一种是只看不发言的，一种是看谁就针对谁发言的，最后一种是不分场合大喇叭的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
------
-
-####  crito  
-##### 16740#       发表于 2020-6-12 12:46
-
-
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776706&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-12 12:45</a>
-
-那基本只能在任任女孩的直播间里看到吧
-
-
-—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next- ...</blockquote>
-我在小秦直播见看到的，其他v那也见到过，不过较少
-
-
-
-
-
-
-
------
-
 ####  wsotaku  
 ##### 16741#       发表于 2020-6-12 12:47
 
@@ -7723,7 +7192,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_klHHz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_BXqIK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -17614,7 +17083,7 @@ QQ图片20200612225232.jpg
 
 
 
-<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_xHwZi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_l8iQm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18013,7 +17482,7 @@ TIM截图20200613000058.png
 
 
 千这新衣服我觉得没有这个好看
-<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_qgGZT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_iSQZp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -25512,4 +24981,1534 @@ rgb不是很直男吗
 
 
 
-    
+
+
+-----
+
+####  forzen  
+##### 17857#       发表于 2020-6-13 16:23
+
+
+
+
+我中午看了一段还觉得towa情绪有点不稳定，居然这就一起去恰独食么。。不过我觉得sio打apex水平也还行的，那天还跟大脸猫一起居然吃了三次鸡。。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17858#       发表于 2020-6-13 16:24
+
+
+
+
+蛋蛋fps基础还不错的吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17859#       发表于 2020-6-13 16:30
+
+
+
+
+ARK这新地图太完美了吧
+
+反正miko自己玩数字都这么好看 别人别来了 来一个我喷一个
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17860#       发表于 2020-6-13 16:34
+
+
+
+
+都不知道该说芙宝蠢还是芙宝毒唯还是芙宝巨魔了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17861#       发表于 2020-6-13 16:34
+
+
+
+
+芙宝真实重度arkgachi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 17862#       发表于 2020-6-13 16:35
+
+
+
+
+芙宝真的疯了
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17863#       发表于 2020-6-13 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">35有这种毒唯也是挺悲哀的
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17864#       发表于 2020-6-13 16:38
+
+
+
+ 本帖最后由 あのん 于 2020-6-13 16:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">hololive黑名单共享
+
+芙宝想清楚再用大号喷
+
+syl建议把2434一起拉上
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 17865#       发表于 2020-6-13 16:39
+
+
+
+
+芙宝号挺多的
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 17866#       发表于 2020-6-13 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790002&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 16:34</a>
+
+都不知道该说芙宝蠢还是芙宝毒唯还是芙宝巨魔了</blockquote>
+毒唯蠢巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17867#       发表于 2020-6-13 16:40
+
+
+
+
+这就是数字厨吧，建议推纯酱
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17868#       发表于 2020-6-13 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790055&amp;ptid=1938145" target="_blank">Suny08 发表于 2020-6-13 16:40</a>
+
+这就是数字厨吧，建议推纯酱</blockquote>
+说实话 纯的数字最近也不怎么……
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 17869#       发表于 2020-6-13 16:43
+
+
+
+
+为什么管miko叫35呀
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17870#       发表于 2020-6-13 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790079&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-13 16:43</a>
+
+为什么管miko叫35呀
+
+
+— from samsung SM-G970F, Android 10 of S1 Next Goose v2.2.2.1</blockquote>
+日语谐音
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17871#       发表于 2020-6-13 16:46
+
+
+
+
+真数字厨不是应该去追peko吗？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17872#       发表于 2020-6-13 16:48
+
+
+
+
+魔怔人才能理解魔怔人
+
+本魔怔人觉着芙宝有一种35是我亲手养大的心理在作祟
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 17873#       发表于 2020-6-13 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790084&amp;ptid=1938145" target="_blank">forzen 发表于 2020-6-13 16:44</a>
+日语谐音</blockquote>
+soga，那樱火龙又是什么梗？
+
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17874#       发表于 2020-6-13 16:50
+
+
+
+
+玩ark这hp游戏的我也想喷啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17875#       发表于 2020-6-13 16:51
+
+
+
+<blockquote>crito 发表于 2020-6-13 16:46
+真数字厨不是应该去追peko吗？</blockquote>
+说实话 peko的数字最近也不怎么……版权制裁最伤的一批
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 17876#       发表于 2020-6-13 16:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790144&amp;ptid=1938145" target="_blank">Mafise 发表于 2020-6-13 16:50</a>
+
+soga，那樱火龙又是什么梗？</blockquote>
+好像是因为颜色像mh的樱火龙，然后又有纵火烧屋的逸事
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 17877#       发表于 2020-6-13 16:51
+
+
+
+
+你们能陪35p这傻逼聊那么多楼也是脾气好
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17878#       发表于 2020-6-13 16:51
+
+
+
+ 本帖最后由 泡芙好吃 于 2020-6-13 16:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790111&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-13 16:46</a>
+
+真数字厨不是应该去追peko吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/13/165255r00exx7q8x78ede8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200613165242.png</strong> (665.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 16:52 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/165152s466b6gnlj95455c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IhJcCpn.jpg</strong> (64.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 16:51 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17879#       发表于 2020-6-13 16:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790111&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-13 16:46</a>
+真数字厨不是应该去追peko吗？</blockquote>
+peko昨晚已经被35ark读条橄榄了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+芙宝其实就是恨夸这种玩起ark进度推的飞快的把新鲜的都先播了一遍，至今都记恨着畸变那只螃蟹<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+顺便一提芙宝几个月前还在说miko离开了ark还剩什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 17880#       发表于 2020-6-13 16:54
+
+
+
+
+西沢5㍉
+
+@wanwangomigomi
+[https://twitter.com/wanwangomigomi/status/1271676443815108608](https://twitter.com/wanwangomigomi/status/1271676443815108608)
+
+<img src="https://img.saraba1st.com/forum/202006/13/165417pgq7ohfxrz1yeyg1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200613_164406.jpg</strong> (113.57 KB, 下载次数: 2)
+
+下载附件
+
+2020-6-13 16:54 上传
+
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17881#       发表于 2020-6-13 16:54
+
+
+
+
+草原来他是真的恨螃蟹吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我还以为螃蟹只是个借口呢
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17882#       发表于 2020-6-13 16:56
+
+
+
+
+芙宝几时正常过，可能18年的时候还算正常吧，上次翻V2看到的芙宝就还挺正常的
+
+自从被特定后就放飞自我了，像IG的完全反面，IG是什么都不信而钓鱼，芙宝是信仰太强烈而钓鱼，向南向北而行，因地球是圆的而殊途同归
+
+IG对自己写的是根本不信的，不过芙宝有时候看起来像是相信自己写的胡话，就有点微妙
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17883#       发表于 2020-6-13 16:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那又怎么样，兔皇上个月已经正式v圈封神了，平均27000的中位同接谁能做到
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17884#       发表于 2020-6-13 16:58
+
+
+
+
+樱火龙这个梗是从角龙来的。契机是很久以前的beat Master耐久。而且35知道了之后还把自己头像换成樱火龙过
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17885#       发表于 2020-6-13 17:00
+
+
+
+
+ark性恋吗
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17886#       发表于 2020-6-13 17:01
+
+
+
+
+那不如猜一下peko玩ark的数字会是多少，我猜一个2.5w
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17887#       发表于 2020-6-13 17:09
+
+
+
+<img src="https://pbs.twimg.com/media/EaYEvy3UcAAvkG6?format=jpg&amp;name=large" id="aimg_B6KdG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+[https://twitter.com/Kukie_nyan/status/1271709871247777792](https://twitter.com/Kukie_nyan/status/1271709871247777792)
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17888#       发表于 2020-6-13 17:12
+
+
+
+
+这是啥，又要搞了吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17889#       发表于 2020-6-13 17:13
+
+
+
+
+看起来英文老哥们并不讨厌和杏星的联动，他们会是理想的祭丝吗？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17890#       发表于 2020-6-13 17:14
+
+
+
+<blockquote>QWANG 发表于 2020-6-13 17:13
+看起来英文老哥们并不讨厌和杏星的联动，他们会是理想的祭丝吗？</blockquote>
+打钱也足够多起来了吗
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 17891#       发表于 2020-6-13 17:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">外面转了一圈，刚谁说纯数字不行的？人家打个apex还有近5w同接呢
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17892#       发表于 2020-6-13 17:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790159&amp;ptid=1938145" target="_blank">SteinSlayer 发表于 2020-6-13 16:51</a>
+
+你们能陪35p这傻逼聊那么多楼也是脾气好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要AOE无辜的35P啊。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17893#       发表于 2020-6-13 17:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790363&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-13 17:16</a>
+
+不要AOE无辜的35P啊。。。。。。。</blockquote>
+35p特指芙宝。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17894#       发表于 2020-6-13 17:19
+
+
+
+
+不管在哪每次用35p代称芙宝就会出现这种情况<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17895#       发表于 2020-6-13 17:20
+
+
+
+
+话说这楼里就没有第二个35p吗？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17896#       发表于 2020-6-13 17:20
+
+
+
+
+那只能说芙宝存在感太强，别的35P太弱了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17897#       发表于 2020-6-13 17:21
+
+
+
+
+有4000多人看露娜打麻将啊
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 17898#       发表于 2020-6-13 17:23
+
+
+
+
+毒唯的末路 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17899#       发表于 2020-6-13 17:25
+
+
+
+
+日本吃鸡比赛，趋势第五，才8k人看，点进去发现主持和解说在吃kfc工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17900#       发表于 2020-6-13 17:25
+
+
+
+
+都怪芙宝以前取名叫35p<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17901#       发表于 2020-6-13 17:25
+
+
+
+
+啊，我发现喝完可乐不能立马午睡，不然一直有嗝堵在胃里，醒来后会变得超级难受这件事
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 17902#       发表于 2020-6-13 17:26
+
+
+
+
+colo老哥又养噶吃
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 17903#       发表于 2020-6-13 17:26
+
+
+
+
+colo不要养gachi不要养gachi
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17904#       发表于 2020-6-13 17:29
+
+
+
+
+小天使明天ark新地图
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17905#       发表于 2020-6-13 17:31
+
+
+
+ 本帖最后由 Vneet 于 2020-6-13 17:33 编辑 
+
+holo世界狂野联动开始了（在486房间）
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17906#       发表于 2020-6-13 17:32
+
+
+
+
+保护我方小天使，不许芙宝喷
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17907#       发表于 2020-6-13 17:34
+
+
+
+
+来点狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+https://twitter.com/rimomoh2o/status/1271623597459562496?s=19<img src="https://p.sda1.dev/0/f908695f3d2f53ccedabb38857199aaf/IMG_DECB66915D22ED8A5889020C7989FE3B.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17908#       发表于 2020-6-13 17:35
+
+
+
+
+想截图芙宝言论，等ark新图新鲜劲过了再放出来看看。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17909#       发表于 2020-6-13 17:37
+
+
+
+
+等等486是日本代表，那会长会叫美国代表吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17910#       发表于 2020-6-13 17:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790526&amp;ptid=1938145" target="_blank">面具13 发表于 2020-6-13 17:37</a>
+
+等等486是日本代表，那会长会叫美国代表吗？</blockquote>
+疑似美国出身的coco酱
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17911#       发表于 2020-6-13 17:39
+
+
+
+
+艹，奇怪的人出现了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17912#       发表于 2020-6-13 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790516&amp;ptid=1938145" target="_blank">erer 发表于 2020-6-13 17:35</a>
+想截图芙宝言论，等ark新图新鲜劲过了再放出来看看。</blockquote>
+芙宝会无视这些东西然后继续发表言论。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 17913#       发表于 2020-6-13 17:39
+
+
+
+
+是米国人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 17914#       发表于 2020-6-13 17:42
+
+
+
+
+holo的ark已经回不来了，过去的繁荣其实不是ark的内容带来的，而是ark提供了一个虚拟异世界
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17915#       发表于 2020-6-13 17:43
+
+
+
+
+女人哪有打牌好玩
+
+
+名言扩散
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 17916#       发表于 2020-6-13 17:44
+
+
+
+
+所谓塑料日语真是对比出来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 17917#       发表于 2020-6-13 17:45
+
+
+
+
+龙皇这个黄毛皮也太色了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 17918#       发表于 2020-6-13 17:45
+
+
+
+
+v综真纯良有几何<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 17919#       发表于 2020-6-13 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790576&amp;ptid=1938145" target="_blank">stygian 发表于 2020-6-13 17:43</a>
+女人哪有打牌好玩
+
+
+名言扩散</blockquote>
+蘑菇人说了这句话？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17920#       发表于 2020-6-13 17:47
+
+
+
+
+蘑菇人日语好强啊。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17921#       发表于 2020-6-13 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790503&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-13 17:34</a>
+
+来点狐皇
+
+https://twitter.com/rimomoh2o/status/1271623597459562496?s=19</blockquote>
+袜子上的高光乍一看还以为是……
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17922#       发表于 2020-6-13 17:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790615&amp;ptid=1938145" target="_blank">保罗赫伯特 发表于 2020-6-13 17:47</a>
+
+蘑菇人说了这句话？</blockquote>
+"女よりカードゲーム"
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 17923#       发表于 2020-6-13 17:51
+
+
+
+
+5ch「ドブボじゃねーか！」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17924#       发表于 2020-6-13 17:52
+
+
+
+
+怎么感觉介绍完了就要结束了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17925#       发表于 2020-6-13 17:53
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-13 17:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790670&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-13 17:52</a>
+
+怎么感觉介绍完了就要结束了。</blockquote>
+估计还能剩30分钟活动吧mio：这个是人吗？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17926#       发表于 2020-6-13 17:57
+
+
+
+
+啊，没有杏星，🥜😈了。
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 17927#       发表于 2020-6-13 17:58
+
+
+
+
+黑宝要🥜😈惹（话说sbr继续说书估计就真没时间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 17928#       发表于 2020-6-13 17:59
+
+
+
+
+蘑菇人自闭了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17929#       发表于 2020-6-13 18:01
+
+
+
+
+蘑菇人有插过一句话的，很努力了。
+
+
+coco对hololive的印象：先看的心心，只知道脚臭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17930#       发表于 2020-6-13 18:01
+
+
+
+
+谷乡名言出现了
+
+好歹也是社长呼び捨て草
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17931#       发表于 2020-6-13 18:01
+
+
+
+
+直播事故<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菜的真实
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17932#       发表于 2020-6-13 18:01
+
+
+
+ 本帖最后由 winda 于 2020-6-13 18:07 编辑 
+
+学乖了
+
+
+
+
+
+
+PfcwS7d.jpg
+(159.43 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-13 18:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/180652tgx6khg6m7zqsgm9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17933#       发表于 2020-6-13 18:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790765&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-13 18:01</a>
+学乖了</blockquote>
+你先说清楚这图哪来的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 17934#       发表于 2020-6-13 18:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要被橄榄惹
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17935#       发表于 2020-6-13 18:05
+
+
+
+ 本帖最后由 面具13 于 2020-6-13 18:08 编辑 
+
+我觉得蘑菇人刚才想说hololive都是芸能人但是忘词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在寿司店吃生鸡蛋的蘑菇人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17936#       发表于 2020-6-13 18:05
+
+
+
+
+这节目挺应景的，毕 业 典 礼
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 17937#       发表于 2020-6-13 18:06
+
+
+
+
+警 惕 爱 讨 论
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17938#       发表于 2020-6-13 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790765&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-13 18:01</a>
+
+学乖了</blockquote>
+这是想钓鱼吗<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 17939#       发表于 2020-6-13 18:08
+
+
+
+
+来点夏吹，狐之大，浴缸塞不下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/13/180719n57p5r7tdunj7kr6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EaXoEd0UwAAB88u.jpeg</strong> (54.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 18:07 上传
+
+
+
+
+
+
+
+[https://mobile.twitter.com/sushi ... 1271677636834549761](https://mobile.twitter.com/sushi_kankan/status/1271677636834549761)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 17940#       发表于 2020-6-13 18:08
+
+
+
+
+草，我受不了了海苔男了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">又想要流量想要热度，只知道搞噱头，又要抱怨小鬼多了民度差。
+
+这女人的脑子里面都是花田吗？这跟高女士有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+  
