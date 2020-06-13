@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 18:09** 
+> ## **本文件最后更新于2020-06-13 20:07** 
 
 
 
@@ -3834,6 +3834,537 @@ https://www.nicovideo.jp/watch/sm36116292     19年点是怎么把自己作�
 
 -----
 
+####  渡鸦骑士  
+##### 16711#       发表于 2020-6-12 12:19
+
+
+
+
+我居然在此之前完全没看过sio在点箱的皮
+
+太奇妙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16712#       发表于 2020-6-12 12:19
+
+
+
+
+点怎么死的对观众没有借鉴意义，有借鉴意义的是点人怎么疯的，虹杏爆炸时观众怎么避免变成这样<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 16713#       发表于 2020-6-12 12:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776348&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-12 12:17</a>
+
+没有可以在B大量繁殖的meme算是点和虹在国内不如杏的原因么。</blockquote>
+毕竟互联网时代了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16714#       发表于 2020-6-12 12:20
+
+
+
+
+点的爆炸是一种必然吧，毕竟根本原因是不仲
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 16715#       发表于 2020-6-12 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776348&amp;ptid=1938145" target="_blank">深渊萃取 发表于 2020-6-12 12:17</a>
+没有可以在B大量繁殖的meme算是点和虹在国内不如杏的原因么。</blockquote>
+人民喜闻乐见，你不喜欢，你算老几<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+啊，这里的人民指除了日本之外的全世界人<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 16716#       发表于 2020-6-12 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776314&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 12:14</a>
+
+https://www.nicovideo.jp/watch/sm36116292     19年点是怎么把自己作死的看着也差不多了 ...</blockquote>
+这么看点的主流资源确实很多，虹现在好像还是差了点
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 16717#       发表于 2020-6-12 12:27
+
+
+
+
+当年可太怀念了，我还给点箱100多个游戏旧ID里选十二宫投过票呢。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+点箱从小白开始立绘总是摆脱不了那种落后时代土土的感觉，没有年轻人喜欢的最新最new感
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 16718#       发表于 2020-6-12 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776364&amp;ptid=1938145" target="_blank">Fakerの幻影 发表于 2020-6-12 12:18</a>
+想回到过去的还有六字母贴贴人啊</blockquote>
+真好啊真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">回到咩咩还是处女的时候
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 16719#       发表于 2020-6-12 12:31
+
+
+
+
+提一下，怎么没人来排满人啊<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙魂绯影  
+##### 16720#       发表于 2020-6-12 12:32
+
+
+
+
+当年我还是在大亏那边白上锤雪的mmr<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 16721#       发表于 2020-6-12 12:35
+
+
+
+<blockquote>marysaluly 发表于 2020-6-12 12:25
+这么看点的主流资源确实很多，虹现在好像还是差了点</blockquote>
+点公司资源多，和真草台holo彩虹全靠自己的还是多点
+
+
+
+
+
+
+
+-----
+
+####  间隙白垢  
+##### 16722#       发表于 2020-6-12 12:35
+
+
+
+
+比较火的几个meme里，贴贴和嘶哈嘶哈最早是虹这边传出来的，awsl出处很难考但也不是杏。虹不是没有可以在B站火起来的梗。说到底梗有没有火的潜质无关紧要，如何做到让大量圈外人复读meme以及到处刷屏才称得上财富密码
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16723#       发表于 2020-6-12 12:35
+
+
+
+
+满人是外星人，现在已经回到他们的星球了，没几个人记得了吧
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16724#       发表于 2020-6-12 12:35
+
+
+
+
+满人在v8草创阶段就在akari吧圈地自萌了，观察难度有点高
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 16725#       发表于 2020-6-12 12:36
+
+
+
+
+狐+awsl=小鬼，狐+姨=v综，这是什么自绝于人民的体现吗？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16726#       发表于 2020-6-12 12:39
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-12 12:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776581&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-12 12:36</a>
+狐+awsl=小鬼，狐+姨=v综，这是什么自绝于人民的体现吗？</blockquote>
+那你现在来发一个是小狐狸awsl给大家看看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 16727#       发表于 2020-6-12 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776565&amp;ptid=1938145" target="_blank">间隙白垢 发表于 2020-6-12 12:35</a>
+比较火的几个meme里，贴贴和嘶哈嘶哈最早是虹这边传出来的，awsl出处很难考但也不是杏。虹不是没有可以在B ...</blockquote>
+那怎么说理解理解才是唯一自创，大夸哥yyds
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 16728#       发表于 2020-6-12 12:40
+
+
+
+
+都是管人观众，有什么分高下的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stmule  
+##### 16729#       发表于 2020-6-12 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47775052&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-12 10:43</a>
+
+庙小妖风大
+
+当年国内主机界打的你死我活的关键还不是没钱，现在生活水平上来了，人手多平台的。就剩那些l ...</blockquote>
+说实话，零系列巫女那作来个复刻，我立马买switch<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不然就算买个机顶盒也不会考虑2019年的720p<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 16730#       发表于 2020-6-12 12:41
+
+
+
+
+这个月算不算holo历史上最黑暗的一月<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16731#       发表于 2020-6-12 12:41
+
+
+
+
+虹传出圈外的meme也不少吧，见到过好好的“草”不打，非要打成“笹”的奇行种
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 16732#       发表于 2020-6-12 12:42
+
+
+
+
+这么说起来，我看V看的晚，对18年根本毫无认识，毕竟从19年初看的嘛，而且也是看杏开始的，后来开始从NGA的杏楼接触国内V圈的各讨论区，大概是去年九月吧，那边杏楼又车起stars的事，想了想就去B站找找有没有搬运看看那时我连墙都不会翻，当时为数不多的剪辑几乎80%是一弦相关的，怎么说呢，就像之前说过的一样，“这个人完全过着我向往的生活啊......”，也只是这样......再后来，stars建官号、年末NGA与贴吧大混战，从我发帖质问那些说stars是牛郎的人知不知道“牛郎”是什么的时候，我就是现在你们看见的我了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 16733#       发表于 2020-6-12 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776644&amp;ptid=1938145" target="_blank">死体残留 发表于 2020-6-12 12:41</a>
+
+这个月算不算holo历史上最黑暗的一月
+
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+有什么黑暗的，钱又没少赚。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 16734#       发表于 2020-6-12 12:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776644&amp;ptid=1938145" target="_blank">死体残留 发表于 2020-6-12 12:41</a>
+这个月算不算holo历史上最黑暗的一月
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+不要急，说不定周末开始就是holo史上最光辉的一个月了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 16735#       发表于 2020-6-12 12:44
+
+
+
+
+大家都是弱智管人观众
+
+何必分个高下呢<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 16736#       发表于 2020-6-12 12:45
+
+
+
+
+建筑王+油管炮时代更惨吧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 16737#       发表于 2020-6-12 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776649&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-12 12:41</a>
+虹传出圈外的meme也不少吧，见到过好好的“草”不打，非要打成“笹”的奇行种 ...</blockquote>
+那基本只能在任任女孩的直播间里看到吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 16738#       发表于 2020-6-12 12:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776644&amp;ptid=1938145" target="_blank">死体残留 发表于 2020-6-12 12:41</a>
+
+这个月算不算holo历史上最黑暗的一月
+
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+连19年2月的边都沾不上，这点无聊的事情甚至不如今年初收益化连续剥夺
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 16739#       发表于 2020-6-12 12:45
+
+
+
+
+观众有三种，一种是只看不发言的，一种是看谁就针对谁发言的，最后一种是不分场合大喇叭的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 16740#       发表于 2020-6-12 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47776706&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-12 12:45</a>
+
+那基本只能在任任女孩的直播间里看到吧
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next- ...</blockquote>
+我在小秦直播见看到的，其他v那也见到过，不过较少
+
+
+
+
+
+
+
+-----
+
 ####  wsotaku  
 ##### 16741#       发表于 2020-6-12 12:47
 
@@ -7192,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_BXqIK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_E1h2h" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -17083,7 +17614,7 @@ QQ图片20200612225232.jpg
 
 
 
-<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_l8iQm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_nf2OW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17482,7 +18013,7 @@ TIM截图20200613000058.png
 
 
 千这新衣服我觉得没有这个好看
-<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_iSQZp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_DX7z2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -22991,8 +23522,9 @@ sc就简单了，就是楼里天天轮的养gachi<img src="https://static.saraba
 
 
 
+ 本帖最后由 winda 于 2020-6-13 18:33 编辑 
 
-sio下周valorant联动，预订人员有兰熊，一之濑丽，萝卜子，towa，没有naraka
+sio下周valorant联动，预订人员有兰熊，一之濑丽，萝卜子，towa，没有naraka[https://youtu.be/_EfTrkMF9EI?t=463](https://youtu.be/_EfTrkMF9EI?t=463)
 
 
 
@@ -25568,7 +26100,7 @@ ark性恋吗
 
 
 
-<img src="https://pbs.twimg.com/media/EaYEvy3UcAAvkG6?format=jpg&amp;name=large" id="aimg_B6KdG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaYEvy3UcAAvkG6?format=jpg&amp;name=large" id="aimg_DnH0v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 [https://twitter.com/Kukie_nyan/status/1271709871247777792](https://twitter.com/Kukie_nyan/status/1271709871247777792)
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
@@ -26320,7 +26852,7 @@ coco对hololive的印象：先看的心心，只知道脚臭<img src="https://st
 
 
 
- 本帖最后由 winda 于 2020-6-13 18:07 编辑 
+ 本帖最后由 winda 于 2020-6-13 18:10 编辑 
 
 学乖了
 
@@ -26330,7 +26862,7 @@ coco对hololive的印象：先看的心心，只知道脚臭<img src="https://st
 
 
 PfcwS7d.jpg
-(159.43 KB, 下载次数: 0)
+(93.02 KB, 下载次数: 0)
 
 
 
@@ -26338,7 +26870,7 @@ PfcwS7d.jpg
 下载附件
 
 
-2020-6-13 18:06 上传
+2020-6-13 18:10 上传
 
 
 
@@ -26348,7 +26880,7 @@ PfcwS7d.jpg
 
 
 
-<img src="https://img.saraba1st.com/forum/202006/13/180652tgx6khg6m7zqsgm9.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202006/13/181034qr0nylrryyql2q00.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -26511,4 +27043,1135 @@ PfcwS7d.jpg
 
 
 
-  
+
+
+-----
+
+####  LCCCCCC  
+##### 17941#       发表于 2020-6-13 18:12
+
+
+
+
+四国直播懒得看，有无实时repo啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17942#       发表于 2020-6-13 18:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790871&amp;ptid=1938145" target="_blank">LCCCCCC 发表于 2020-6-13 18:12</a>
+
+四国直播懒得看，有无实时repo啊
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+各地自我介绍半小时，然后介绍入社前对holo的印象。之后开始介绍自家的吃的和标志性建筑。
+
+明天大概除了mio妈四人因左脚出家门毕业。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17943#       发表于 2020-6-13 18:14
+
+
+
+
+自我介绍后是每个人介绍推荐的食物和观光景点环节
+
+蘑菇人现在正在介绍虾饺和紫禁城
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17944#       发表于 2020-6-13 18:15
+
+
+
+
+观光听成结婚，是蘑菇人日语太塑料还是486耳朵不好使<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 17945#       发表于 2020-6-13 18:17
+
+
+
+
+跟外国人用非母语交流，确实会很紧张的，容易语调变形，发音不准。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17946#       发表于 2020-6-13 18:18
+
+
+
+ 本帖最后由 面具13 于 2020-6-13 18:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790899&amp;ptid=1938145" target="_blank">stygian 发表于 2020-6-13 18:15</a>
+
+观光听成结婚，是蘑菇人日语太塑料还是486耳朵不好使</blockquote>
+塑料日语，把かんこう（観光）念成かんこん（冠婚）
+
+
+coco介绍了美国红灯区？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 17947#       发表于 2020-6-13 18:20
+
+
+
+
+评论里好多猴子怎么让人看得下去
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 17948#       发表于 2020-6-13 18:22
+
+
+
+
+这个holoid的live2d做的不错啊
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17949#       发表于 2020-6-13 18:23
+
+
+
+
+可傲天真是多功能战车，进能和俩日本人同居，退能搞美国文化分享
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17950#       发表于 2020-6-13 18:23
+
+
+
+
+放错图片了？
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17951#       发表于 2020-6-13 18:23
+
+
+
+
+婆罗浮屠，建成立刻获得三个传教士（
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17952#       发表于 2020-6-13 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790716&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-13 17:57</a>
+
+啊，没有杏星，🥜😈了。</blockquote>
+你们怎么V综B综两边都这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17953#       发表于 2020-6-13 18:24
+
+
+
+
+あっ
+
+<img src="https://img.saraba1st.com/forum/202006/13/182443hbns7vnsn7k9wk7v.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-13 182431.png</strong> (80.86 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-13 18:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 17954#       发表于 2020-6-13 18:28
+
+
+
+ 本帖最后由 winda 于 2020-6-13 18:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790977&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-13 18:23</a>
+
+放错图片了？</blockquote>
+把带屏蔽词的部分裁掉了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17955#       发表于 2020-6-13 18:35
+
+
+
+
+印尼汉堡应该会很贵吧
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17956#       发表于 2020-6-13 18:41
+
+
+
+
+？？？？400日元27人民币，m记和k记都没这么便宜吧。。。。还是说这人把社畜时期吃的中午特价套餐算上去了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17957#       发表于 2020-6-13 18:43
+
+
+
+
+讲道理M记这种东西全球都差不太多吧，好像就听说非洲那很贵
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17958#       发表于 2020-6-13 18:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791147&amp;ptid=1938145" target="_blank">stygian 发表于 2020-6-13 18:41</a>
+
+？？？？400日元27人民币，m记和k记都没这么便宜吧。。。。还是说这人把社畜时期吃的中午特价套餐算上去了 ...</blockquote>
+好像就是金拱门那个不素之霸？
+
+单点和套餐还差不少的。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17959#       发表于 2020-6-13 18:43
+
+
+
+
+？单汉堡不是就这个价吗？而且也可以是汉堡王的啊
+
+
+
+
+
+
+
+-----
+
+####  zylwz  
+##### 17960#       发表于 2020-6-13 18:45
+
+
+
+
+中套餐23 大套餐27 非常精准
+
+
+
+
+
+
+Screenshot_20200613_184448_com.eg.android.AlipayGphone.jpg
+(45 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-13 18:45 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/184505xbbjnjzczmma1cjf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17961#       发表于 2020-6-13 18:46
+
+
+
+
+halal halal<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 17962#       发表于 2020-6-13 18:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791147&amp;ptid=1938145" target="_blank">stygian 发表于 2020-6-13 18:41</a>
+
+？？？？400日元27人民币，m记和k记都没这么便宜吧。。。。还是说这人把社畜时期吃的中午特价套餐算上去了 ...</blockquote>
+不素之霸套餐  只要23  
+
+我上班天天吃 
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 17963#       发表于 2020-6-13 18:49
+
+
+
+
+不素之霸套餐是M记的良心
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17964#       发表于 2020-6-13 18:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">印度麦当劳肯德基都没牛肉的，只有鸡肉给你吃
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17965#       发表于 2020-6-13 18:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/184921sxzc2shp2vhoho4c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200613184859.jpg</strong> (136.57 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 18:49 上传
+
+
+
+
+
+
+我去为啥我这34.5。。。。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17966#       发表于 2020-6-13 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791230&amp;ptid=1938145" target="_blank">stygian 发表于 2020-6-13 18:49</a>
+我去为啥我这34.5。。。。</blockquote>
+麦乐送跟餐厅肯定不一样价啊…以前饿了么/美团上还是餐厅价，最近变成和麦乐送一样了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17967#       发表于 2020-6-13 18:51
+
+
+
+
+阿火这的人不能克制下吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17968#       发表于 2020-6-13 18:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，这蘑菇人夹带私货。。。。。。全世界公开自己贴贴视频
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17969#       发表于 2020-6-13 18:52
+
+
+
+
+蘑菇人这是催hololive moments干活么。。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17970#       发表于 2020-6-13 18:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791223&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-13 18:49</a>
+
+印度麦当劳肯德基都没牛肉的，只有鸡肉给你吃</blockquote>
+还有素汉堡和羊肉
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17971#       发表于 2020-6-13 18:52
+
+
+
+
+有没有火圣的说法
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 17972#       发表于 2020-6-13 18:54
+
+
+
+
+估计今天v综页数就要被超了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 17973#       发表于 2020-6-13 18:55
+
+
+
+
+你们想给我范特西四核一躺不动之躺阿火封圣的人都是别有用心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 17974#       发表于 2020-6-13 18:55
+
+
+
+
+五分钟后就是值得纪念的SKB部初案件，是DMM黄油工商，开在安洁频道，让我们为她的收益化祈祷。（[https://www.youtube.com/watch?v=ZxqhW3ve1Nc](https://www.youtube.com/watch?v=ZxqhW3ve1Nc)）
+
+大家如果提前点进去可以看看封面图，不觉得女主有点像诗子姐姐吗，不要啊...
+
+完事以后今天九点郡道要开生日麻将耐久，在非友人局耐九莲宝灯，应该不会像上次一样六分钟下播了，限期是二十六小时，也就是说今天到明天，如果大家有闲又不知道看哪个管人，可以点去她的直播看看嗷（[https://www.youtube.com/watch?v=BZhTVuI0NHY](https://www.youtube.com/watch?v=BZhTVuI0NHY)）
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 17975#       发表于 2020-6-13 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791288&amp;ptid=1938145" target="_blank">oshinoshinobu 发表于 2020-6-13 18:54</a>
+
+估计今天v综页数就要被超了啊</blockquote>
+被啥超，B综和V综的页数一直是在拉锯战啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">互相超过好几次了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17976#       发表于 2020-6-13 18:56
+
+
+
+
+阿火这待机间妥妥100w以上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 17977#       发表于 2020-6-13 18:57
+
+
+
+
+今天下午有楼友一番喜欢的一枪一星
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17978#       发表于 2020-6-13 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791306&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-6-13 18:56</a>
+
+阿火这待机间妥妥100w以上了吧</blockquote>
+今天pb的数据：¥1,004,395
+
+应该就是这个待机间的了吧
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 17979#       发表于 2020-6-13 18:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791302&amp;ptid=1938145" target="_blank">star_platinum 发表于 2020-6-13 18:56</a>
+
+被啥超，B综和V综的页数一直是在拉锯战啊互相超过好几次了</blockquote>
+这边开楼早12小时，页数一样就已经输了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17980#       发表于 2020-6-13 18:59
+
+
+
+
+V综B综现在的KPI能力差不多吧，哪边事情多点，就刷起来页数了，倒是M楼已经完全不行了，VB双子星时代
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17981#       发表于 2020-6-13 18:59
+
+
+
+
+1w7待机，5w稳吧。开播前2w。
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17982#       发表于 2020-6-13 19:00
+
+
+
+
+M楼熟面孔都被小博宇换进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 17983#       发表于 2020-6-13 19:01
+
+
+
+ 本帖最后由 Viden 于 2020-6-13 19:05 编辑 
+
+我记得有人说看推特点赞人数就能推测个大概。
+
+星街是6211
+
+船长是6616
+
+而阿火现在是8952
+
+
+难不成8w？
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 17984#       发表于 2020-6-13 19:01
+
+
+
+
+呜呜呜m楼只是个过气小小个人势的讨论楼，怎么比得了vb的kpi<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17985#       发表于 2020-6-13 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791309&amp;ptid=1938145" target="_blank">alcoholic1000 发表于 2020-6-13 18:57</a>
+今天下午有楼友一番喜欢的一枪一星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17986#       发表于 2020-6-13 19:01
+
+
+
+
+wwh下班，阿火准备接棒。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17987#       发表于 2020-6-13 19:04
+
+
+
+
+吓人吓人，已经4w。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17988#       发表于 2020-6-13 19:04
+
+
+
+
+四万了，这火圣稳了吧
+
+四核一躺阵容能把一躺给拉到圣，更说明四核之勇武啊
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17989#       发表于 2020-6-13 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791341&amp;ptid=1938145" target="_blank">framita 发表于 2020-6-13 19:00</a>
+
+M楼熟面孔都被小博宇换进去了</blockquote>
+你们怎么知道那几个小博禹哪些是真的小博禹，哪些是假的小博禹呢？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17990#       发表于 2020-6-13 19:05
+
+
+
+
+火圣除了嗓音没啥太大缺点，基本能力还是不拉胯的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17991#       发表于 2020-6-13 19:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47791384&amp;ptid=1938145" target="_blank">Zaphikel 发表于 2020-6-13 19:05</a>
+
+你们怎么知道那几个小博禹哪些是真的小博禹，哪些是假的小博禹呢？ ...</blockquote>
+
+是的都是我的小号，你猜对了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 17992#       发表于 2020-6-13 19:07
+
+
+
+
+holo解散算了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17993#       发表于 2020-6-13 19:07
+
+
+
+
+不过只有大概40分钟的涨势。看天了。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17994#       发表于 2020-6-13 19:07
+
+
+
+ 本帖最后由 framita 于 2020-6-13 19:08 编辑 
+
+你是咋冒出这结论的
+
+不过确实
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 17995#       发表于 2020-6-13 19:07
+
+
+
+
+3D就这？也太拉跨了把
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 17996#       发表于 2020-6-13 19:08
+
+
+
+
+童田明治 ほえー
+
+@warabeda_meiji
+
+
+というわけで１９日に３Dお披露目できることになりました～～やっとだー！うれしい！！！
+
+
+にじさんじでは初のライブメインのお披露目になります！！１１さいらしい曲歌うから楽しみにしてて
+
+
+来赌赌能不能达到星街3D的一半效果
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 墨玄i| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 17997#       发表于 2020-6-13 19:08
+
+
+
+
+被疫情拖延了快三个月的3D.
+
+这大长腿过分了…
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17998#       发表于 2020-6-13 19:09
+
+
+
+
+7分钟五万五，火圣最强火圣最强
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 17999#       发表于 2020-6-13 19:09
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/190906j22t23ku32xsg0u0.png" referrerpolicy="no-referrer">
+
+
+<strong>0809.png</strong> (29.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 19:09 上传
+
+
+
+
+
+
+
+反观被强迫做垃圾网游工商的露皇<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 18000#       发表于 2020-6-13 19:10
+
+
+
+
+果然是奇迹的三期生啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
