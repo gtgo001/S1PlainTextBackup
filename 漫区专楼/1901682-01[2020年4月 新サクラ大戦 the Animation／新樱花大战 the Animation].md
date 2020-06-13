@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-06 14:31** 
+> ## **本文件最后更新于2020-06-13 22:03** 
 
 
 
@@ -26,7 +26,7 @@
 ----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.33)
 
 
-[OP ED](https://www.bilibili.com/video/av91939542)
+
 
 
 
@@ -194,7 +194,7 @@
  本帖最后由 Toby_dak 于 2020-1-29 21:43 编辑 
 
 新PV
-[https://www.bilibili.com/video/av85619461](https://www.bilibili.com/video/av85619461)
+
 
 
 
@@ -576,7 +576,7 @@ https://t.co/3wcr9H6W13
 
 
 
-[https://www.bilibili.com/video/av200083513](https://www.bilibili.com/video/av200083513)
+
 
 这三个终于露面了……
 
@@ -2907,13 +2907,32 @@ TVA和游戏过场动画都是三次元负责的，游戏本身的建模和动�
 衣服肯定换了啊……
 
 
+<img src="https://img.saraba1st.com/forum/202004/12/004236atpf12xghdytyc7x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>swa02_Moment.jpg</strong> (1.21 MB, 下载次数: 0)
+
+下载附件
+
+2020-4-12 00:42 上传
 
 
 
-<strong>本帖子中包含更多资源</strong>
-您所在的用户组无法下载或查看附件
 
-x
+
+<img src="https://img.saraba1st.com/forum/202004/12/004237sn536phzbniinzp1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1586530233828.jpg</strong> (113.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-4-12 00:42 上传
+
+
+
+
+
 
 
 
@@ -5226,4 +5245,534 @@ Blu-ray通常版：￥5,000（本体）+税
 
 
 
-                                        
+
+
+-----
+
+####  hypnossz86  
+##### 275#       发表于 2020-6-6 20:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">姐姐是不是要挂了啊.......
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 276#         楼主| 发表于 2020-6-6 21:21
+
+
+
+
+为什么你们觉得蕾拉要挂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  ACG正常爱好者  
+##### 277#       发表于 2020-6-6 21:24
+
+
+
+
+我猜最后一集，主角团被吊打，然后男主角空降救场，然后围攻BOSS。
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 278#       发表于 2020-6-6 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702207&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-6-6 21:21</a>
+
+为什么你们觉得蕾拉要挂
+
+
+----发送自 Sony G8342,Android 9</blockquote>
+标题杀，预告最后一个画面上疑似有血。
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 279#       发表于 2020-6-6 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说这卡巴斯基口口声声要建立新世界
+
+却一点自己的理念也没有，只是单纯想做神么.....
+
+
+
+
+
+
+
+-----
+
+####  PRDY  
+##### 280#       发表于 2020-6-6 21:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47693274&amp;ptid=1901682" target="_blank">aptx8285144 发表于 2020-6-6 00:10</a>
+
+组长制作得那些设备的钱哪来的，司令都不知道，我记得副官兼财务管理还是比较严格的（第二话），莫 ...</blockquote>
+我看八成是趁着幻庵事件抄了华击团联盟的小金库，另外月组的觉醒剂馒头销路应该也不错。
+
+
+
+
+
+
+
+-----
+
+####  alerbe  
+##### 281#       发表于 2020-6-6 21:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702320&amp;ptid=1901682" target="_blank">hypnossz86 发表于 2020-6-6 21:30</a>
+
+话说这卡巴斯基口口声声要建立新世界
+
+却一点自己的理念也没有，只是单纯想做神么..... ...</blockquote>
+他只是想爽一爽而已
+
+
+
+
+
+
+
+-----
+
+####  ACG正常爱好者  
+##### 282#       发表于 2020-6-6 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702320&amp;ptid=1901682" target="_blank">hypnossz86 发表于 2020-6-6 21:30</a>
+
+话说这卡巴斯基口口声声要建立新世界
+
+却一点自己的理念也没有，只是单纯想做神么..... ...</blockquote>
+封建开国皇帝有几个不是为了私欲，不过历史是胜利者书写的。
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 283#       发表于 2020-6-6 21:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47702207&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-6-6 21:21</a>
+为什么你们觉得蕾拉要挂
+
+
+----发送自 Sony G8342,Android 9</blockquote>
+这话专门提了一嘴降魔人降魔化的设定，肯定不是没用的啦
+
+
+
+
+
+
+
+-----
+
+####  金色先锋  
+##### 284#       发表于 2020-6-6 23:04
+
+
+
+
+完全是魔炮ss展开了……
+
+后面又是四大华击团联合打怪了吧
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 285#       发表于 2020-6-8 17:23
+
+
+
+
+第11話：悲恋幻想！レイラの想い
+
+
+クラーラを救う決意で「桜武」を起動させたさくらは、セバストーポリ内を突き進み、遂にカミンスキーの待つ中心部にたどり着く。花組、レイラ、白秋、そしてその奥には謎の装置に入れられたクラーラ。すべての役者が揃い、最後の決戦が始まる。
+
+
+シナリオ：砂山蔵澄　 絵コンテ：今義和　 演出：橋本直人
+
+<img src="https://files.catbox.moe/b1rbyq.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/xh8hsz.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/ccsfbo.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/vyf8m2.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/dbhbv8.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/45y2uf.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 286#         楼主| 发表于 2020-6-12 21:44
+
+
+
+
+真是复刻活动写真啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony G8342,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 287#       发表于 2020-6-12 22:12
+
+
+
+
+看来2代可以炼铜了
+
+
+
+
+
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 288#       发表于 2020-6-12 22:37
+
+
+
+
+蕾拉这是没救了啊，就不能姐妹打包进帝剧么可恶
+
+
+
+
+
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 289#       发表于 2020-6-12 22:37
+
+
+
+ 本帖最后由 哒哒哒ver1.01 于 2020-6-12 22:41 编辑 
+
+编辑掉，手机都激动到风怒了
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 290#       发表于 2020-6-12 22:53
+
+
+
+
+卡宾斯基简直是反派中的一股清流（反论）
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 291#       发表于 2020-6-12 23:05
+
+
+
+
+世嘉是得罪了小野学吗，这集糊弄疯了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 292#       发表于 2020-6-13 00:18
+
+
+
+ 本帖最后由 aptx8285144 于 2020-6-13 00:20 编辑 
+
+蕾拉这是在关键的时间点遇到了错误的人呀，这么看其实共存之路确实是曲折的，实际上哪怕是普通人类在青春期或者成长期都可能会遇人不肖何况是这种特殊身份呢，话说樱小队到了这个级别对决真得战斗力上太吃力了，神山不在，要是没有师傅的话估计完全是be <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 293#       发表于 2020-6-13 00:45
+
+
+
+
+下集克拉拉確定入隊了，看來之前說收藏中兩部機體其中一部就是她開
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 294#       发表于 2020-6-13 00:49
+
+
+
+
+其實師父收養的混血兒，是基因改造還是天生的，克拉拉姊妹確定是基因改造，其他的是降魔已經混在人類社會和異性XX得出的被遺棄兒童嗎?
+
+還是2代.3代提及的基因改造的殘留物的下代?
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 295#       发表于 2020-6-13 04:47
+
+
+
+<blockquote>eilot 发表于 2020-6-13 00:49
+其實師父收養的混血兒，是基因改造還是天生的，克拉拉姊妹確定是基因改造，其他的是降魔已經混在人類社會和 ...</blockquote>
+不一定 
+
+
+只不过以前致力于降魔基因植入人体的一直都是反派干的事
+
+
+
+
+
+
+
+-----
+
+####  炮轰行星拳  
+##### 296#       发表于 2020-6-13 16:55
+
+
+
+
+这部动画算不算正史还不好说
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 297#       发表于 2020-6-13 18:29
+
+
+
+
+SANZIGEN这次制作的动作还是非常流畅，音乐和人设也不错，剧本完整程度也很好，最后看收尾了
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 298#       发表于 2020-6-13 19:45
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/194346jmmkgj9f8sjuggxs.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200613194221.png</strong> (252.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 19:43 上传
+
+
+
+
+
+知名粘土人1360号的樱小姐,什么时候出个克拉拉呀<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  王留美  
+##### 299#       发表于 2020-6-13 20:47
+
+
+
+
+这次的剧本节奏感觉给游戏很合适
+改个DLC吧
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 300#       发表于 2020-6-13 20:54
+
+
+
+
+所以卡巴斯基濒死的时候遇到的那个陨石和那个人形是啥?
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 301#       发表于 2020-6-13 21:13
+
+
+
+<blockquote>hypnossz86 发表于 2020-6-13 20:54
+所以卡巴斯基濒死的时候遇到的那个陨石和那个人形是啥?</blockquote>
+我倒回去从第6话第7分钟卡明斯基看到白秋的反应，卡明斯基估计的人形是蛋包饭师傅233，而现在他又认为这不过是“冒牌的神”
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 302#       发表于 2020-6-13 21:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792684&amp;ptid=1901682" target="_blank">hypnossz86 发表于 2020-6-13 20:54</a>
+
+所以卡巴斯基濒死的时候遇到的那个陨石和那个人形是啥?</blockquote>
+他认为人形是师傅，陨石没人知道是啥。
+
+
+
+
+
+
+
+-----
+
+####  hypnossz86  
+##### 303#       发表于 2020-6-13 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那么从陨石里面走出来的师傅居然没有神力？
+
+看来师傅这坑还是要留到游戏的续作填了吧........
+
+
+
+
+
+                                       
