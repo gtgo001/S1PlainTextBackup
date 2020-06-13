@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 14:10** 
+> ## **本文件最后更新于2020-06-13 16:08** 
 
 
 
@@ -7723,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_OOxRN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_klHHz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -17614,7 +17614,7 @@ QQ图片20200612225232.jpg
 
 
 
-<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_ru5mD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_xHwZi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18013,7 +18013,7 @@ TIM截图20200613000058.png
 
 
 千这新衣服我觉得没有这个好看
-<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_HZeke" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_qgGZT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -24609,14 +24609,18 @@ mmm的话，夏哥遇到真t会被吃干抹净的
 
 
 
+ 本帖最后由 cheatdeath3 于 2020-6-13 14:28 编辑 
 
-静见 阿兰 奏手 律可
+镜见 阿兰 奏手 律可
 
 沙发 沙发 沙发 沙发
 
-         夏哥 狐皇 
+       夏哥 狐皇 
 
-         starhouse
+       starhouse
+
+
+感谢批评指正
 
 
 
@@ -24831,4 +24835,681 @@ https://twitter.com/sushi_kankan/status/1271677636834549761?s=19
 
 
 
-      
+
+
+-----
+
+####  Izuru单推人  
+##### 17818#       发表于 2020-6-13 14:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788844&amp;ptid=1938145" target="_blank">stars 发表于 2020-6-13 14:03</a>
+
+先不说把镜见Kira的名字打错了，阿兰在b站的粉丝名已经有了，一弦的字幕组定了，上次推特问答他表示无所谓 ...</blockquote>
+呃......是一弦哪天的推特？我去找找，可能漏掉了......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过这么说起来他在哪边都这样啊，另一边对转载好像也是没什么禁忌的
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17819#       发表于 2020-6-13 14:13
+
+
+
+
+这肥妹又是打枪了，算了只要不联动星就忍了，其他老gachi不满就让他们发牢骚吧
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17820#       发表于 2020-6-13 14:13
+
+
+
+
+爱丽丝这怎么用的570碳板啊..........风扇都猫扇拉满了加点钱unity不好么
+
+
+
+
+
+
+
+-----
+
+####  talse  
+##### 17821#       发表于 2020-6-13 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47784417&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-12 23:44</a>
+
+https://youtu.be/XTCgqLLaEFQ?t=3076
+
+naraka的枪法真的有点强，这把开局乱战没子弹没甲还能打到第二位
+
+ ...</blockquote>
+操作也很好，流畅度非常赞，看起来舒服，而且还是兔子跳玩家，虽然现在兔子跳被砍得差不多了
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17822#       发表于 2020-6-13 14:14
+
+
+
+
+后面做个同接repo吧w
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17823#       发表于 2020-6-13 14:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788948&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-13 14:13</a>
+
+爱丽丝这怎么用的570碳板啊..........风扇都猫扇拉满了加点钱unity不好么</blockquote>
+你这吐槽火星了多少天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17824#       发表于 2020-6-13 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这不今天在播么......大玻璃侧透没装rgb条装了个U15......妹啊你这是直男魂拉满了么
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 17825#       发表于 2020-6-13 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788929&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-06-13 14:11:44</a>
+呃......是一弦哪天的推特？我去找找，可能漏掉了......不过这么说起来他在哪边都这样啊，另一边对转载好 ...</blockquote>他只要不能播就会在推特上回复，问他什么都会回答的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17826#       发表于 2020-6-13 14:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788929&amp;ptid=1938145" target="_blank">Izuru单推人 发表于 2020-6-13 14:11</a>
+
+呃......是一弦哪天的推特？我去找找，可能漏掉了......不过这么说起来他在哪边都这样啊，另一边 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要给你上一个单推人耻辱烙印
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17827#       发表于 2020-6-13 14:26
+
+
+
+
+阿希排位吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 17828#       发表于 2020-6-13 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">氪金的时候想起来我信用卡后四位都是7216
+
+我能不能自称祭丝了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17829#       发表于 2020-6-13 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我上次都吐槽过爱丽丝那个4w日元的机箱了。机箱前面板上已经有rgb了，直男魂？不存在的哦…
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17830#       发表于 2020-6-13 14:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789066&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-13 14:28</a>
+
+我上次都吐槽过爱丽丝那个4w日元的机箱了。机箱前面板上已经有rgb了，直男魂？不存在的哦… ...</blockquote>
+rgb不是很直男吗
+
+
+粉色系和盈通女装大佬那种才是非直男吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+不过爱丽丝选猫头鹰确实相当直男
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17831#       发表于 2020-6-13 14:32
+
+
+
+
+狐狸什么时候直播危机合约阿，忍不住看她吃瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 17832#       发表于 2020-6-13 14:33
+
+
+
+
+真正的直男混 应该是黑色方砖机箱
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17833#       发表于 2020-6-13 14:33
+
+
+
+
+要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/6b1b29ac7b0effef41085d9c47c29349/IMG_20200613_143241.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17834#       发表于 2020-6-13 14:34
+
+
+
+
+兔子要开直播间等40万了
+
+
+
+
+
+
+
+-----
+
+####  wsotaku  
+##### 17835#       发表于 2020-6-13 14:36
+
+
+
+<blockquote>ひびき 发表于 2020-6-13 14:26
+阿希排位吃鸡了</blockquote>
+还是三千多，打回原形了嘻嘻
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17836#       发表于 2020-6-13 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789033&amp;ptid=1938145" target="_blank">stars 发表于 2020-6-13 14:24</a>
+
+他只要不能播就会在推特上回复，问他什么都会回答的
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+哦哦，是推特的问答时间啊......好像近期的话，在老任禁播前和禁播后都搞过一次，我去找找
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17837#       发表于 2020-6-13 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789044&amp;ptid=1938145" target="_blank">恶魔娘阿洛 发表于 2020-6-13 14:26</a>
+
+要给你上一个单推人耻辱烙印</blockquote>
+大学生备考莫得时间，丢人力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 17838#       发表于 2020-6-13 14:43
+
+
+
+
+阿希也是铂金了呢，终于看见你的背影了吗りんこ小姐<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+啊希打游戏的态度挺好的，愿意和队友交流是好事<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17839#       发表于 2020-6-13 14:50
+
+
+
+
+你们野兔子就不能取关下逗逗她嘛
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17840#       发表于 2020-6-13 14:55
+
+
+
+
+兔子这明显是有百来个取关了的，但是holo现在增速本身就高，兔子这缺100不到的突击没有操作空间的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 17841#       发表于 2020-6-13 14:56
+
+
+
+
+小千砖3排位2连吃鸡了
+
+
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17842#       发表于 2020-6-13 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789236&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-13 14:55</a>
+
+兔子这明显是有百来个取关了的，但是holo现在增速本身就高，兔子这缺100不到的突击没有操作空间的啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">当初MIKO20W的时候就有人这么逗MIKO。。。。。当时应该是有3-400人一起
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 17843#       发表于 2020-6-13 15:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">小千的双麻花太可爱了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 17844#       发表于 2020-6-13 15:02
+
+
+
+
+好像说今晚阿火3d后有留宿？没准会有三期生百合回
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17845#       发表于 2020-6-13 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789293&amp;ptid=1938145" target="_blank">admentus 发表于 2020-6-13 15:02</a>
+好像说今晚阿火3d后有留宿？没准会有三期生百合回</blockquote>
+印象中是去团长那
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 17846#       发表于 2020-6-13 15:05
+
+
+
+
+呜呜呜，反正应该也没粽子什么事，爱留宿留宿吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  theloved  
+##### 17847#       发表于 2020-6-13 15:06
+
+
+
+
+说起狐狸底边，我突然想起来炉石传说最火的时候斗鱼主播囚徒了，在直播炉石略见疲势的时候跟着王思聪跑到熊猫当上管理层，接着人生就大起大落落落。王思聪有自己的平台，听说yagoo也有自己的平台，囚徒放弃前台热度转到幕后，狐狸也有种种迹象放弃自己的主播热度转为管理层，之后......
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 17848#       发表于 2020-6-13 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789318&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-13 15:04</a>
+
+印象中是去团长那</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚审判完，还能去哪啊
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17849#       发表于 2020-6-13 15:09
+
+
+
+
+管理层好啊，尤其是holo的，准备好滑轨公文就可以躺着拿分红了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 17850#       发表于 2020-6-13 15:09
+
+
+
+
+思路广
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 17851#       发表于 2020-6-13 15:10
+
+
+
+
+感觉我身边的重度游戏玩家宅男里没见过几个喜欢机箱rgb浓度高的，lu玩家的rgb浓度倒是普遍不低
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17852#       发表于 2020-6-13 15:13
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/151251wdfhxh77jxqjh60o.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200613151219.png</strong> (17.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 15:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17853#       发表于 2020-6-13 15:14
+
+
+
+
+囚徒那段时间是去蹭侣行的热度了吧，应该算是不看好炉石所以转项目了。
+
+
+
+
+
+
+
+-----
+
+####  莉蒂亚丝  
+##### 17854#       发表于 2020-6-13 15:25
+
+
+
+
+怎么都聊起囚徒了，我还以为我进的是V综
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 17855#       发表于 2020-6-13 15:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">🌿，聊起炉石主播可还行
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 17856#       发表于 2020-6-13 16:03
+
+
+
+
+杏没几个在播，小天使装游戏没弄好（估计是ark）。
+
+只能等wwh了。towa和sio打完apex之后又去ow独食了。
+
+
+
+
+
+    
