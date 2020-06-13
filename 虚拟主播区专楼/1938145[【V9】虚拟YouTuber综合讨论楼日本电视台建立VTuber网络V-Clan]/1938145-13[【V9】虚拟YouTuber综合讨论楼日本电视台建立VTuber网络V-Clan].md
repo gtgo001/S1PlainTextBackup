@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 00:09** 
+> ## **本文件最后更新于2020-06-14 02:08** 
 
 
 
@@ -9983,7 +9983,7 @@ syl接下来是泳装<img src="https://p.sda1.dev/0/fbf31ebfd5030ebca3a2de9876ff
 <img src="https://img.saraba1st.com/forum/202006/14/000513tv58bbardx45z2rv.png" referrerpolicy="no-referrer">
 
 
-<strong>n5.png</strong> (1.56 MB, 下载次数: 0)
+<strong>n5.png</strong> (1.56 MB, 下载次数: 2)
 
 下载附件
 
@@ -9993,6 +9993,25 @@ syl接下来是泳装<img src="https://p.sda1.dev/0/fbf31ebfd5030ebca3a2de9876ff
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -10069,4 +10088,1719 @@ https://www.youtube.com/watch?v=dE12VggNGyE&amp;feature=youtu.be
 
 
 
-                               
+
+
+-----
+
+####  QWANG  
+##### 18545#       发表于 2020-6-14 00:10
+
+
+
+
+不是说404把广告，SC和会员收益放一起的吗，这应该是总的。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 18546#       发表于 2020-6-14 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795141&amp;ptid=1938145" target="_blank">tglals 发表于 2020-6-14 00:05</a>
+
+这个有人发了吗</blockquote>
+收益上升9%意味着上上个月也有450w？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18547#       发表于 2020-6-14 00:12
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-14 00:15 编辑 
+
+一个月的还是一个季度的？不是说油管3个月一结算还是咋？如果是过去28天的话，v的收入比sc要高非常多啊。。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18548#       发表于 2020-6-14 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795200&amp;ptid=1938145" target="_blank">好德我基 发表于 2020-6-14 00:11</a>
+
+收益上升9%意味着上上个月也有450w？</blockquote>
+这个是和昨天的“过去28”天相比吧   <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 18549#       发表于 2020-6-14 00:12
+
+
+
+
+V吧搞的“V萌”，第一轮100进25的结果，也许一定程度代表了这些V在国内的（正面）人气？
+[https://tieba.baidu.com/p/6746825276?pid=132786245074](https://tieba.baidu.com/p/6746825276?pid=132786245074)
+
+红色晋级，黄色复活赛，现在正在搞第二轮
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/001211idldyk6i9evpy56y.png" referrerpolicy="no-referrer">
+
+
+<strong>V萌.png</strong> (46.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 00:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18550#       发表于 2020-6-14 00:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 那再生的广告收益真的可以忽略不计了
+
+你虹头部主播没sc究竟怎么活下来还真的是问题
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18551#       发表于 2020-6-14 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795224&amp;ptid=1938145" target="_blank">free 发表于 2020-6-14 00:12</a>
+
+V吧搞的“V萌”，第一轮100进25的结果，也许一定程度代表了这些V在国内的（正面）人气？
+
+https://tieba.bai ...</blockquote>
+v吧还能代表国内的正面人气吗，你在开啥玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 18552#       发表于 2020-6-14 00:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">V吧人气管人天天挨开 算了吧
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 18553#       发表于 2020-6-14 00:16
+
+
+
+
+bili两代版头高女士跟桃皇这么靠后，这是代表的v8国吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18554#       发表于 2020-6-14 00:17
+
+
+
+
+v吧要是能管用的话，他们所谓的“吧主”的营收就不会只有那个数，还能再高点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 18555#       发表于 2020-6-14 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795147&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-14 00:05</a>
+
+诶,狮子神也来了,都是最近有联系的啊...
+
+这么看来神田应该不会来吧.....口了必然不会来 ...</blockquote>
+上次你说神田炎上后（好像是ARK那次）
+
+军舰就没了
+
+所以解散就是这个原因？有点莫名吧？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18556#       发表于 2020-6-14 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795215&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-14 00:12</a>
+
+一个月的还是一个季度的？不是说油管3个月一结算还是咋？如果是过去28天的话，v的收入比sc要高非常多啊。。 ...</blockquote>
+油管1月1算，批力批力给海外结算是3月一次，给国内是一月一次
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 18557#       发表于 2020-6-14 00:18
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-14 00:25 编辑 
+
+木口=狐家+三期+杏屋，夏哥不待舒适区，难道去杏屋M腿脱毛？
+
+“夏某之命即为狐皇之命，夏某之躯即为狐皇之躯。但凭驱使，绝无二心。”
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18558#       发表于 2020-6-14 00:18
+
+
+
+
+这只能算是v吧信者分布普查吧，看来v吧喜欢开holo运营的原因找到了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 18559#       发表于 2020-6-14 00:19
+
+
+
+
+小肥希上个月不止500w吧？啊不过这个是过去28天……5月底和6月初
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18560#       发表于 2020-6-14 00:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795215&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-14 00:12</a>
+
+一个月的还是一个季度的？不是说油管3个月一结算还是咋？如果是过去28天的话，v的收入比sc要高非常多啊。。 ...</blockquote>
+阿希五月sc有766万呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  第一次开apex财富密码刚好是在27天前，反倒说明广告收入非常低
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 18561#       发表于 2020-6-14 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795264&amp;ptid=1938145" target="_blank">poipanchao 发表于 2020-6-14 00:17</a>
+
+上次你说神田炎上后（好像是ARK那次）
+
+军舰就没了
+
+所以解散就是这个原因？有点莫名吧？ ...</blockquote>
+没有解散啦，就是这一个月两人没联动了而已，之前还转了新衣装预告。
+
+军舰频度会少还蛮正常吧，我记得当时V6还是V7的时候我好像就提过差不多热度改下去了.....
+
+倒不是两人关系变差了，就是，跟V最后都会毕业一样，一对CP的营业最终也会慢慢变少的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18562#       发表于 2020-6-14 00:24
+
+
+
+
+广告收入疫情原因被切了50%以上啊，是很低的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+会员和sc硬一点
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18563#       发表于 2020-6-14 00:25
+
+
+
+ 本帖最后由 ひびき 于 2020-6-14 00:26 编辑 
+
+广告收入=507万-（766万*70%-五月初sc*70）-六月初sc*70%-会员收入
+
+             =-36万+（五月初sc-六月初sc）*70%-会员收入
+
+
+
+可想而知相当相当低
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 18564#       发表于 2020-6-14 00:25
+
+
+
+
+这确定不是V8屁股自爆会吗？公然猥亵，建议报警
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 18565#       发表于 2020-6-14 00:25
+
+
+
+
+以直播势管人的体量来说广告收入可以忽略不计这个不是早就知道的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18566#       发表于 2020-6-14 00:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795298&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-14 00:20</a>
+
+阿希五月sc有766万呢  第一次开apex财富密码刚好是在27天前，反倒说明广告收入非常低 ...</blockquote>
+哦对，忘了上个月有抽卡buff了。
+
+不过拉了一下今天往前28天的数据，sc是588w，油管抽30%的话是411w。
+
+如果套5月sc的话就是766*0.7=536，低于图中数据，所以估计是前者。
+
+那差额就是其他收益了大概。
+
+顺便附一张网上找到的视频收益图，知乎找的。
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/002539r1x3wgjkt7jigir3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200614001846.png</strong> (99.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 00:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 18567#       发表于 2020-6-14 00:26
+
+
+
+
+这个票数不看分组没啥意义啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18568#       发表于 2020-6-14 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795350&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-14 00:26</a>
+
+哦对，忘了上个月有抽卡buff了。
+
+不过拉了一下今天往前28天的数据，sc是588w，油管抽30%的话是411w。
+
+如 ...</blockquote>
+可惜没截到会员数有多少<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+反正507万-411万-会员费怎么想都是少的可怜
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 18569#       发表于 2020-6-14 00:29
+
+
+
+
+哦哦哦！安洁和尊也来了！SKB部四缺一！
+
+顺便安洁的收益化还是安全的绿色，感谢404！
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18570#       发表于 2020-6-14 00:30
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-14 00:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795381&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-14 00:28</a>
+
+可惜没截到会员数有多少  谁有阿希发言会员数的数据？
+
+反正507万-411万-会员费怎么想都是少 ...</blockquote>
+会员发言人数1694，系数取0.7的话有2420会员，会费取500日元的话有121w，实际并没有这么多，可能跟续会员的时间有关。哦会费也要抽30%，那到账户就是84.7w
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 18571#       发表于 2020-6-14 00:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会员她提过第二档的比较多 应该还多一点
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18572#       发表于 2020-6-14 00:32
+
+
+
+ 本帖最后由 ひびき 于 2020-6-14 00:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795276&amp;ptid=1938145" target="_blank">cheatdeath3 发表于 2020-6-14 00:18</a>
+
+木口=狐家+三期+杏屋，夏哥不待舒适区，难道去杏屋M腿脱毛？
+
+“夏某之命即为狐皇之命，夏某之躯即为狐皇之 ...</blockquote>
+阿希说过自己毛都脱干净了，还要求祭丝人人脱毛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18573#       发表于 2020-6-14 00:32
+
+
+
+
+小肥妹发言会员1694，去抽成差不多80w日元吧，加上去还剩十几二十万日元吧，其实不少了，但在500w面前显得就少了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 18574#       发表于 2020-6-14 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795391&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-14 00:29</a>
+
+哦哦哦！安洁和尊也来了！SKB部四缺一！
+
+顺便安洁的收益化还是安全的绿色，感谢404！ ...</blockquote>
+郡道要求的生日礼物是niji3D手冲动画，尊居然答应了，说之后就拍...
+
+好羡慕好羡慕好羡慕好羡慕！
+
+安洁一直在害羞，真清楚啊...
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18575#       发表于 2020-6-14 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795423&amp;ptid=1938145" target="_blank">屑屑代沟尼亚 发表于 2020-6-14 00:32</a>
+
+会员她提过第二档的比较多 应该还多一点</blockquote>
+不是还有一堆换低价区货币的选手嘛，姑且按全部一档算了。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18576#       发表于 2020-6-14 00:34
+
+
+
+
+小肥妹这个月数据就没这么好看了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+不过有3Dlive+40万纪念，应该也不会太低
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18577#       发表于 2020-6-14 00:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 懂了，这是欺负虹liver没sc，故意嘲笑垃圾虹liver
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|辛苦了这都能劈|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 18578#       发表于 2020-6-14 00:37
+
+
+
+
+怎么直播断了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18579#       发表于 2020-6-14 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795496&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-14 00:37</a>
+
+怎么直播断了</blockquote>
+垃圾回线吧，之前看评论区也在画圈。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 18580#       发表于 2020-6-14 00:38
+
+
+
+
+回线不太行 油管转圈  重新开一个
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18581#       发表于 2020-6-14 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795496&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-14 00:37</a>
+
+怎么直播断了</blockquote>
+ぐるぐる　枠取り直し
+
+
+
+
+
+
+
+-----
+
+####  Dante0960  
+##### 18582#       发表于 2020-6-14 00:41
+
+
+
+
+Fbk
+
+
+
+
+
+
+IMG_20200614_004059.jpg
+(52.04 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-14 00:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/004154u4rvdkyr5pz0v22a.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 中野六小龄童| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 18583#       发表于 2020-6-14 00:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795439&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-14 00:32</a>
+
+郡道要求的生日礼物是niji3D手冲动画，尊居然答应了，说之后就拍...
+
+好羡慕好羡慕好羡慕好羡慕！
+
+安洁一 ...</blockquote>
+我第一次在虹听到天宫唱歌居然是郡道生日耐久
+
+
+syl我个人在坏女人走了之后觉得就属天宫唱歌最好听了
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 18584#       发表于 2020-6-14 00:47
+
+
+
+ 本帖最后由 中野六小龄童 于 2020-6-14 00:50 编辑 
+
+mrr的电子琴虽然弹得一般 但是蛮有意思的
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18585#       发表于 2020-6-14 00:49
+
+
+
+
+靠，电子琴or合成器又不是钢琴<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 18586#       发表于 2020-6-14 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795541&amp;ptid=1938145" target="_blank">kangkangsama 发表于 2020-6-14 00:42</a>
+我第一次在虹听到天宫唱歌居然是郡道生日耐久
+
+
+syl我个人在坏女人走了之后觉得就属天宫唱歌最好听了 ...</blockquote>
+好高的评价！
+我虽然推郡道，但是说实话这种时候真的很羡慕她.....我也想跟萌音yhm贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 18587#       发表于 2020-6-14 00:52
+
+
+
+
+来丶管人粉相关
+https://b23.tv/pxCofu
+
+<img src="https://p.sda1.dev/0/3c5373e139d8ee29543bf09b8ff52cbd/IMG_9536C720C52CBF4A3656ECF6AB778270.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18588#       发表于 2020-6-14 00:52
+
+
+
+
+怎么感觉她这音源不太行啊，刺耳程度都赶上zun号了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 18589#       发表于 2020-6-14 00:56
+
+
+
+ 本帖最后由 墨玄i 于 2020-6-14 00:59 编辑 
+
+めありー这个号更勤了?
+看来真的很喜欢橙星
+https://youtu.be/BHlvrcGInfg
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18590#       发表于 2020-6-14 00:57
+
+
+
+
+三期来个fantasyhouse（假设能说动润姨）能对抗天龙星吗？
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 18591#       发表于 2020-6-14 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795603&amp;ptid=1938145" target="_blank">rzrbtk 发表于 2020-6-14 00:50</a>
+
+好高的评价！
+
+我虽然推郡道，但是说实话这种时候真的很羡慕她.....我也想跟萌音yhm贴贴</blockquote>
+不过她唱歌都在自己本号（めありー）基本不以天宫名义唱歌
+
+可以去听听的 和坏女人一样都是很有张力和技巧的那种
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 18592#       发表于 2020-6-14 01:00
+
+
+
+
+电子琴不是钢琴yyut就有话说了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18593#       发表于 2020-6-14 01:02
+
+
+
+<blockquote>IDIDIDID 发表于 2020-6-14 00:57
+三期来个fantasyhouse（假设能说动润姨）能对抗天龙星吗？</blockquote>
+银火同居就够了，不用麻烦粽子。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18594#       发表于 2020-6-14 01:02
+
+
+
+ 本帖最后由 QWANG 于 2020-6-14 01:04 编辑 
+
+差时段突击+少个人，不然可能4w。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 18595#       发表于 2020-6-14 01:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795662&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-14 00:57</a>
+
+三期来个fantasyhouse（假设能说动润姨）能对抗天龙星吗？</blockquote>
+人数就不一样，三期生好歹也是2皇3中坚，龙皇再找2人来对线吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 18596#       发表于 2020-6-14 01:04
+
+
+
+
+二期hololive house
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18597#       发表于 2020-6-14 01:10
+
+
+
+
+pekopeko这个半地声好好听<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18598#       发表于 2020-6-14 01:10
+
+
+
+
+这比同居还进一步吧，都共居一室了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18599#       发表于 2020-6-14 01:11
+
+
+
+
+银火如胶似漆亲密无间，不似天星可进外人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18600#       发表于 2020-6-14 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795775&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-14 01:10</a>
+
+这比同居还进一步吧，都共居一室了。</blockquote>
+这次是联动啊，又不是长住
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18601#       发表于 2020-6-14 01:12
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-6-14 01:14 编辑 
+
+龙皇要被fantasy十倍杀力！小天使星街救救！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18602#       发表于 2020-6-14 01:13
+
+
+
+
+不说二期，就一期house：一个在南半球一个有家室一个不玩了，还有俩吊死在星那儿，惨惨惨惨惨。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18603#       发表于 2020-6-14 01:16
+
+
+
+<blockquote>IDIDIDID 发表于 2020-6-14 01:12
+龙皇要被fantasy十倍杀力！小天使星街救救！</blockquote>
+龙宝念了一个小时sc了，放过她吧。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18604#       发表于 2020-6-14 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795796&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-14 01:13</a>
+
+不说二期，就一期house：一个在南半球一个有家室一个不玩了，还有俩吊死在星那儿，惨惨惨惨惨。 ...</blockquote>
+吊死那两就算不在星那儿也住不到一块去<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+狐皇在阿希家跟狐皇在mio家的安定感对比一下就明白了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18605#       发表于 2020-6-14 01:18
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-14 01:30 编辑 
+<blockquote>IDIDIDID 发表于 2020-6-14 01:12
+龙皇要被fantasy十倍杀力！小天使星街救救！</blockquote>
+bsyl，小天使估计投敌了，大概率在看3期生贴贴。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 18606#       发表于 2020-6-14 01:21
+
+
+
+
+龙皇始终孤掌难鸣，独自一人对抗三期不是长久之计
+
+看盐水二人如今在家处处受制生活不易，将此二人诱入木口豪斯，进可偶像营业，退可三角打蟑螂
+
+如此日入千金不在话下
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18607#       发表于 2020-6-14 01:22
+
+
+
+
+紫宝这岁数小天使一个把持不住就得去吃猪排饭顺便送hololive上天放烟花了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18608#       发表于 2020-6-14 01:25
+
+
+
+
+太紫18又不是14，自由恋爱嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18609#       发表于 2020-6-14 01:25
+
+
+
+
+不要随便编排小天使啊，要花生👿了，随便动手动脚的那是夏哥，没记得有人说小天使喜欢身体接触的。再说了，紫宝不是和龙宝cp吗，编排龙宝去。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18610#       发表于 2020-6-14 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795872&amp;ptid=1938145" target="_blank">IDIDIDID 发表于 2020-6-14 01:22</a>
+
+紫宝这岁数小天使一个把持不住就得去吃猪排饭顺便送hololive上天放烟花了。 ...</blockquote>
+这是彼方碳，又不是某个橙色炼金术士
+
+
+再说紫宝不是快成年了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 18611#       发表于 2020-6-14 01:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795866&amp;ptid=1938145" target="_blank">aele 发表于 2020-6-14 01:21</a>
+
+龙皇始终孤掌难鸣，独自一人对抗三期不是长久之计
+
+看盐水二人如今在家处处受制生活不易，将此二人诱入木口 ...</blockquote>
+让大天使加入hololive house不是让她放弃来自毒唯crew的钱嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过，她要是真的可以加入，我举双手双脚赞成<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18612#       发表于 2020-6-14 01:29
+
+
+
+
+阿姨们放得开啊，直接ghs。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 18613#       发表于 2020-6-14 01:29
+
+
+
+
+银火俩人贴贴怎么可能有天星龙紫夸的大乱斗好看嘛
+
+这几个人关系要住一起想想就<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18614#       发表于 2020-6-14 01:30
+
+
+
+
+那咋办嘛天龙星里就她是T役<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+要不然白雪巴&amp;咩咩咩夜袭holohouse？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 18615#       发表于 2020-6-14 01:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么晚怎么人越看越多，
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 18616#       发表于 2020-6-14 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795943&amp;ptid=1938145" target="_blank">kbtit 发表于 2020-6-14 01:32</a>
+
+这么晚怎么人越看越多，</blockquote>
+欧美观众吧，那天我看大天使耐久上钻的时候也是这样的，半夜同接比白天高1w<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 18617#       发表于 2020-6-14 01:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看了下，好像还上趋势了
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 18618#       发表于 2020-6-14 01:37
+
+
+
+ 本帖最后由 qesto 于 2020-6-14 01:40 编辑 
+
+如果住进holohouse感觉会夜袭他人的排行榜
+
+S 马自立
+
+
+A 彼方碳  团长（阿火限定）
+
+
+B 船长   星街  小粥
+
+
+C 阿库碳  百鬼 
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18619#       发表于 2020-6-14 01:38
+
+
+
+
+不管什么版本抱团推泉都是yyds，大天使你真的不考虑一下吗？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18620#       发表于 2020-6-14 01:42
+
+
+
+
+啊，既熬夜又早起，我要死了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 18621#       发表于 2020-6-14 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47796017&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-14 01:42</a>
+
+啊，既熬夜又早起，我要死了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">没有粽子，粽gachi你不要慌
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 18622#       发表于 2020-6-14 01:46
+
+
+
+
+朋友画的三马鹿偶像服
+
+<img src="https://img.saraba1st.com/forum/202006/14/014646j098537gzx7xx9rx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaaKACwUwAAd30P.jpg</strong> (18.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 01:46 上传
+
+
+
+
+
+[https://twitter.com/ljeIzgXgBNr6pEC/status/1271856030662590465](https://twitter.com/ljeIzgXgBNr6pEC/status/1271856030662590465)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+| yoteru_| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 18623#       发表于 2020-6-14 01:47
+
+
+
+
+https://m.bilibili.com/video/av413569904
+
+SC阶段谈论自己唱歌能力的小天使，之前楼里老哥提到的一些问题她自己也有发现，也有苦恼。
+
+不过一个人去ktv唱五个小时也太强了吧。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 18624#       发表于 2020-6-14 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47796039&amp;ptid=1938145" target="_blank">飞姆托 发表于 2020-6-14 01:46</a>
+
+没有粽子，粽gachi你不要慌</blockquote>
+我当然要看的了。<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18625#       发表于 2020-6-14 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47795986&amp;ptid=1938145" target="_blank">qesto 发表于 2020-6-14 01:37</a>
+
+如果住进holohouse感觉会夜袭他人的排行榜
+
+S 马自立</blockquote>
+阿希嘴上牛逼，实际菜的一比，不然hero在家那几天怎么被摁着摩擦的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[https://www.bilibili.com/video/BV1Zb411W7VQ](https://www.bilibili.com/video/BV1Zb411W7VQ)
+
+
+30分15秒
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 18626#       发表于 2020-6-14 01:51
+
+
+
+
+兔子今晚好软啊好软啊，要是能多在个人直播里这样养养gachi该多好
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/014907wm2hxh0ul2u0uyhh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaZn7-VU0AIrWO_.jpg</strong> (124.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 01:49 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 18627#       发表于 2020-6-14 01:52
+
+
+
+
+郡道这胡了九莲之后再高速大四喜果然还是有点困难，再看二十分钟，还没胡到就睡了....
+
+这同接比我想得要多，4千多人，欧美时间啊这是...
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 18628#       发表于 2020-6-14 01:58
+
+
+
+
+游戏区任弹联动 [https://bbs.saraba1st.com/2b/thread-1941539-1-1.html](https://bbs.saraba1st.com/2b/thread-1941539-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18629#       发表于 2020-6-14 01:59
+
+
+
+
+兔宝今天真的软，要被脑控了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 18630#       发表于 2020-6-14 02:05
+
+
+
+
+同居配信**恐怖，我啥都没干就听了一小时了。
+
+
+
+
+
+                             
