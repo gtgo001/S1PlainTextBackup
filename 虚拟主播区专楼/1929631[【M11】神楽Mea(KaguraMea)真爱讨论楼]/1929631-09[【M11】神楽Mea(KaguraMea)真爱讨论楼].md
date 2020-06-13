@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 00:02** 
+> ## **本文件最后更新于2020-06-13 14:04** 
 
 
 
@@ -5882,4 +5882,514 @@ syl，晚上应该无了吧，睡觉，估计后面有一波工商b限希望多�
 
 
 
-                                      
+
+
+-----
+
+####  rosevalley46  
+##### 12336#       发表于 2020-6-13 00:03
+
+
+
+
+苔苔一天一个辈分
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12337#       发表于 2020-6-13 00:13
+
+
+
+
+这个方舟指令。。打了一晚上怎么感觉像是个挂机游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12338#       发表于 2020-6-13 00:26
+
+
+
+
+挺好的，你看出来了，那么现在你该找个脚本了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12339#       发表于 2020-6-13 09:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我买了个号现在200券3500钻，请问是不是稳了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12340#       发表于 2020-6-13 10:22
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-13 10:28 编辑 
+
+再稳也是买的别人的号,有苦主味<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+↓难道不是房东被你借尸还魂了吗)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12341#       发表于 2020-6-13 10:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买个二手房给新来的住这咋还苦主了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12342#       发表于 2020-6-13 10:28
+
+
+
+
+你懂啥，这叫夺舍play
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12343#       发表于 2020-6-13 10:34
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-13 10:42 编辑 
+
+明明你是黄毛
+
+只要转换思考角度就好了
+
+
+你可以想象， 如果这是某小说/动漫之类的的东西的话，
+
+
+本来主角要和女主角相遇， 相爱， 一起制造属于他们的回忆...
+
+
+可是， 你附身到这一切还没发生的时间点， 取代了主角...
+
+
+是不是很黄毛
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12344#       发表于 2020-6-13 10:41
+
+
+
+
+好耶，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">ntr爱好者狂喜
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12345#       发表于 2020-6-13 10:45
+
+
+
+
+淦哦你们也太怪了，这也能性癖发散
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12346#       发表于 2020-6-13 10:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，玩这类手游从来都是把玩家本身当成摄像机的表示不能李姐（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12347#       发表于 2020-6-13 10:55
+
+
+
+
+获取了本来属于别人的摄像机的使用权
+
+
+还是黄毛？ 
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12348#       发表于 2020-6-13 10:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47787025&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-6-13 10:55</a>
+
+获取了本来属于别人的摄像机的使用权
+
+
+还是黄毛？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我觉得李会被闲鱼用户们实名点踩
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12349#       发表于 2020-6-13 11:04
+
+
+
+
+会不会在直播中抽自己呢
+
+syl纯爱战神表示你们太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绿茶与猫  
+##### 12350#       发表于 2020-6-13 11:08
+
+
+
+
+共享老婆，你的也是我的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12351#       发表于 2020-6-13 11:08
+
+
+
+
+可以啊，顺便今天会不会动呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12352#       发表于 2020-6-13 11:14
+
+
+
+
+你楼弱智程度恢复平均水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+再发散一下，在国内你游戏账号是没有所有权的只有使用权。你购买的也只是使用权，本质和前号主没什么区别。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12353#       发表于 2020-6-13 11:15
+
+
+
+
+公交车？ 
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 12354#       发表于 2020-6-13 11:16
+
+
+
+
+麻酱她父母也只给了乌冬使用权啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">所有权大概还要花挺多钱的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12355#       发表于 2020-6-13 11:17
+
+
+
+
+好耶，我也喜欢涩涩的碧池<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12356#       发表于 2020-6-13 11:33
+
+
+
+
+让我们来猎杀那些陷入黑暗中的🐮吧
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12357#       发表于 2020-6-13 11:33
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12358#       发表于 2020-6-13 11:37
+
+
+
+
+只有我和小麻的纯爱，不接受反驳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12359#       发表于 2020-6-13 11:50
+
+
+
+
+都是🐮，臭男人guna，我要看小麻和美少女磨豆腐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12360#       发表于 2020-6-13 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">小麻喜欢男人喜欢bl，唯独对百合无感
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">磨豆腐民什么时候站起来
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12361#       发表于 2020-6-13 12:21
+
+
+
+<img src="https://i0.hdslb.com/bfs/album/f639b7dae50f21c0596ca9a7ab83f166a48fa4f2.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 12362#       发表于 2020-6-13 12:29
+
+
+
+
+老梗还不少
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12363#       发表于 2020-6-13 12:39
+
+
+
+
+厨力放出？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12364#       发表于 2020-6-13 12:42
+
+
+
+
+草要素溢出
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12365#       发表于 2020-6-13 13:42
+
+
+
+
+老粉丝了，真的是用爱联动啊……
+
+
+
+
+
+                                     
