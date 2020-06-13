@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 04:06** 
+> ## **本文件最后更新于2020-06-13 10:07** 
 
 
 
@@ -7723,7 +7723,7 @@ yysy，现在这局面不是互扔赵丹引起的，而是holo单方面的事故
 
 
 图不错，三马鹿真好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_P2K00" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaSIj9gUMAMCKqT?format=jpg&amp;name=medium" id="aimg_AhJDW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://nijisanji.booth.pm/items/2136208](https://nijisanji.booth.pm/items/2136208)
 
 
@@ -17614,7 +17614,7 @@ QQ图片20200612225232.jpg
 
 
 
-<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_FBSo6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/vinhnyu/status/1270209002639626242/photo/1" id="aimg_Y77WD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18013,7 +18013,7 @@ TIM截图20200613000058.png
 
 
 千这新衣服我觉得没有这个好看
-<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_V2ct8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/DlgBfsmUUAEUbHJ?format=jpg&amp;name=medium" id="aimg_akq0z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 syl，我刚想去截哈哥关注里的好妹妹论证一下千哈不是真的，就发现他关注了4000多人根本翻不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -21280,9 +21280,9 @@ v综说好的杏一天爆炸三次呢
 
 
 
- 本帖最后由 QWANG 于 2020-6-13 03:26 编辑 
+ 本帖最后由 QWANG 于 2020-6-13 04:28 编辑 
 
-算了一下这个月已经给粽子打了22600。可怕的脑控力，我得克制一下。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">syl
+算了一下这个月已经给粽子打了22600日元。可怕的脑控力，我得克制一下。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">syl
 
 兔皇39.9了，中午起来可以冲了，不知道播不播。
 
@@ -21309,4 +21309,677 @@ v综说好的杏一天爆炸三次呢
 
 
 
-            
+
+
+-----
+
+####  proxima  
+##### 17625#       发表于 2020-6-13 05:14
+
+
+
+
+一个月打2000其实也不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才三个红sc呢
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17626#       发表于 2020-6-13 05:20
+
+
+
+
+石油王应该是一个月2w+软妹币吧<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 17627#       发表于 2020-6-13 06:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">有钱真好
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17628#       发表于 2020-6-13 07:13
+
+
+
+
+社内sc倒数第二的凑阿夸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 17629#       发表于 2020-6-13 07:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785588&amp;ptid=1938145" target="_blank">kanonsisya 发表于 2020-06-13 05:20:29</a>
+石油王应该是一个月2w+软妹币吧</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石油王光单一个总督就2W了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17630#       发表于 2020-6-13 07:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">和2000有仇建议每个月打2000，石油佬可以每天打2000
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 17631#       发表于 2020-6-13 07:47
+
+
+
+
+好奇蘑菇人的日语好到什么程度<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 17632#       发表于 2020-6-13 07:47
+
+
+
+
+四期居然比三期都多了吗？？
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 17633#       发表于 2020-6-13 07:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785380&amp;ptid=1938145" target="_blank">某穆克拉 发表于 2020-6-13 02:50</a>
+今天的wwh，三才主持，龙宝加入替换三才。人员是三才，蘑菇人，龙宝，486，lofi（ID画师）。
+
+之前的消息错 ...</blockquote>
+龙皇是USA代表？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17634#       发表于 2020-6-13 08:16
+
+
+
+
+holohouse财富密码不就是四期核心龙皇开发的，而且开在天音台，wtm月初生日一鱼三吃…应该说4期吸金强度下3期还能不被甩开才强好吧。
+另外蘑菇人日语还行，交流起来不成问题，有次直播的时候和她同一个画师的日本个人势在凸待，她打了电话过去聊了挺久的。就是不知道高速神言和几个人同时叽里呱啦地狱绘图她还能不能应付。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17635#       发表于 2020-6-13 08:17
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-6-13 08:50 编辑 
+
+不过说些管人无关的......有没有懂哥解释一下，怎么很多钢琴曲改用小调就会一股毛子味......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17636#       发表于 2020-6-13 08:19
+
+
+
+ 本帖最后由 opersuper 于 2020-6-13 08:20 编辑 
+
+石油王还是b站石油王，高小姐那块总督用红sc和主播聊天的，我觉得他们把路人打sc的欲望都打没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17637#       发表于 2020-6-13 08:23
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17638#       发表于 2020-6-13 08:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785925&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-13 08:16</a>
+holohouse财富密码不就是四期核心龙皇开发的，而且开在天音台，wtm月初生日一鱼三吃…应该说4期吸金强度下3 ...</blockquote>
+3期不被甩开强✘
+towa应该给龙皇谢罪✔
+体感四期抱团最大的推动者就是龙皇，而四期没抱团起来最大的原因是towa。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17639#       发表于 2020-6-13 08:30
+
+
+
+ 本帖最后由 ひびき 于 2020-6-13 08:32 编辑 
+
+夏色まつり居酒屋灯笼NatsuiroMatsuri
+
+@natsuiromatsuri
+
+20日配信したらしばらく配信できなくなります。
+
+事情はまた配信で話します。
+
+
+よろしくお願い致しますm(*_ _)m
+
+
+
+
+夏色まつり居酒屋灯笼NatsuiroMatsuri
+
+@natsuiromatsuri
+
+あ、まつりが配信休むのは他の子とかは全く関係ないから憶測はしなくて大丈夫！！！！！！！！！ちゃんと話すから待っててねー
+
+
+
+阅读理解<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">  20号后休，和其他人无关，会说理由噔噔咚
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 17640#       发表于 2020-6-13 08:32
+
+
+
+
+真当共趣/苏粉群体很大啊
+
+
+键政圈都是B事多不打钱的（暴言）
+
+
+纯粹作为“俄罗斯文化的自然延伸”又不一定有哪个人感兴趣还刚好来当散装yhm
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17641#       发表于 2020-6-13 08:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪个网站看多了才会觉得苏粉多啊
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 17642#       发表于 2020-6-13 08:44
+
+
+
+
+还真别说 以前p站科技区 日粉 美分 苏粉 精日 德牧 恨国党 五毛 左壬 等等各大派系都认为p站是其他的派系的大本营 唯独自己势单力薄<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17643#       发表于 2020-6-13 08:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786056&amp;ptid=1938145" target="_blank">1678334706 发表于 2020-6-13 08:44</a>
+还真别说 以前p站科技区 日粉 美分 苏粉 精日 德牧 恨国党 五毛 左壬 等等各大派系都认为p站是其他的派系的 ...</blockquote>
+p站番剧和影视区外我都当没有。
+话说管人在p站是哪个区啊，从来没有注意过。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 17644#       发表于 2020-6-13 08:48
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-6-13 08:52 编辑 
+
+怎么扯上这个了.......DangerDanger，我只是单纯说歌啊......嘛我可能表述有误，不该用苏联修饰应该只用毛子的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 17645#       发表于 2020-6-13 08:49
+
+
+
+<blockquote>bluebaby 发表于 2020-6-13 08:48
+p站番剧和影视区外我都当没有。
+
+话说管人在p站是哪个区啊，从来没有注意过。 ...</blockquote>
+动画区
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17646#       发表于 2020-6-13 08:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785727&amp;ptid=1938145" target="_blank">飞姆托 发表于 2020-6-13 07:14</a>
+
+石油王光单一个总督就2W了
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+我说404石油王，国内的规格外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+404月贡100万日币以上的我是没见过，几十万的就算顶部了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 17647#       发表于 2020-6-13 08:57
+
+
+
+
+蘑菇人的日语属于比较典型的acg日语，不是正经路子出身，一般的交流不会有什么大问题。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 17648#       发表于 2020-6-13 09:15
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/091508zdgh3cc2cwhch2bp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaWV4UVU8AAt5d_.jpg</strong> (96.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 09:15 上传
+
+
+
+
+
+
+[https://twitter.com/issikiiiiiii/status/1271587300246347778](https://twitter.com/issikiiiiiii/status/1271587300246347778)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 17649#       发表于 2020-6-13 09:15
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/091550ihhr75i5msworfzw.png" referrerpolicy="no-referrer">
+
+
+<strong>vUzK5Rw (1).png</strong> (86.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 09:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17650#       发表于 2020-6-13 09:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786226&amp;ptid=1938145" target="_blank">colodes 发表于 2020-6-13 09:15</a></blockquote>
+龙皇这福报，钱赚的多应该啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 17651#       发表于 2020-6-13 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786246&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-13 09:19</a>
+
+龙皇这福报，钱赚的多应该啊</blockquote>
+少耐多播，其实某种意义上比耐久更费劲吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 17652#       发表于 2020-6-13 09:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你们忘了有10次左右的早安coco了么
+
+去掉这一部分其实和其他几个福报怪的量差不多
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 17653#       发表于 2020-6-13 09:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785966&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-13 08:25</a>
+3期不被甩开强✘
+towa应该给龙皇谢罪✔
+体感四期抱团最大的推动者就是龙皇，而四期没抱团起来最大的原因 ...</blockquote>
+为什么一定要抱团，你直接开除towa不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17654#       发表于 2020-6-13 09:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786309&amp;ptid=1938145" target="_blank"> aele 发表于 2020-6-13 09:27</a> 你们忘了有10次左右的早安coco了么 去掉这一部分其实和其他几个福报怪的量差不多 </blockquote>
+早安coco比直播消耗精力大多了啊
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 17655#       发表于 2020-6-13 09:49
+
+
+
+
+粽子就solo6次sc这么高?<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 17656#       发表于 2020-6-13 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786449&amp;ptid=1938145" target="_blank">sisyphus_ 发表于 2020-6-13 09:49</a>
+
+粽子就solo6次sc这么高?
+
+
+—— 来自 Xiaomi MIX 2S, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+30w纪念300多万sc 然后平均solo一次50w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 17657#       发表于 2020-6-13 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786354&amp;ptid=1938145" target="_blank">金魚佬 发表于 2020-6-13 09:33</a>
+为什么一定要抱团，你直接开除towa不就好了</blockquote>
+四期开始是有在抱团的操作的啊，最初一副四期每个人都会常驻早安可可的样子，我一度以为早安可可会变成四期共同作业。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 17658#       发表于 2020-6-13 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47786503&amp;ptid=1938145" target="_blank"> bluebaby 发表于 2020-6-13 09:57</a> 引用:金魚佬 发表于 2020-6-13 09:33 为什么一定要抱团，你直接开除towa不就好了 四期开始是有在抱团的操作的啊，最初一副四期每个人都会常驻早安可可的样子，我一度以为早安可可会变成四期共同作业。 </blockquote>
+男人，又是男人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">成了阻碍通向财富的道路来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 17659#       发表于 2020-6-13 09:58
+
+
+
+
+狐皇要同接没同接要sc没sc，这烟头还能烫多久<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 17660#       发表于 2020-6-13 10:00
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-13 10:02 编辑 
+
+烫到订阅被狗皇食杀
+
+syl，宫姨的fnv大概是拿不出来了吧
+
+
+
+
+
+           
