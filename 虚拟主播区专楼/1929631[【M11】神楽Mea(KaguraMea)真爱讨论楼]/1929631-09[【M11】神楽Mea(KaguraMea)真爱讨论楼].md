@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 14:04** 
+> ## **本文件最后更新于2020-06-14 00:05** 
 
 
 
@@ -6392,4 +6392,494 @@ syl纯爱战神表示你们太怪了<img src="https://static.saraba1st.com/image
 
 
 
-                                     
+
+
+-----
+
+####  シオン诗音  
+##### 12366#       发表于 2020-6-13 15:29
+
+
+
+
+草 柏青哥还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12367#       发表于 2020-6-13 18:35
+
+
+
+
+隔壁看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12368#       发表于 2020-6-13 18:47
+
+
+
+
+啊这
+
+甘拜下风
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12369#       发表于 2020-6-13 18:54
+
+
+
+
+《纯度》
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12370#       发表于 2020-6-13 19:13
+
+
+
+
+神楽Mea之掰弯核心粉计划
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12371#       发表于 2020-6-13 19:19
+
+
+
+
+这就是吊人洗gachi的方法吗，anti了anti了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">。今天到底播不播啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12372#       发表于 2020-6-13 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你们gachi都这么拼的吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12373#       发表于 2020-6-13 20:22
+
+
+
+
+今天就休息吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12374#       发表于 2020-6-13 21:24
+
+
+
+
+隔壁大亏有live了，那么咩咩的2nd live有在路上吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">（我知道梦里什么都有呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12375#       发表于 2020-6-13 21:31
+
+
+
+
+木口预定的个人live很多啊，没有才奇怪吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12376#       发表于 2020-6-13 21:34
+
+
+
+
+2nd有的话不晓得可不可以国服也来一手，霓虹没空也不敢去啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+            
+
+不过期待这个还不如等ddd和bls好吧
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12377#       发表于 2020-6-13 21:41
+
+
+
+
+不是有bls吗？
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12378#       发表于 2020-6-13 21:45
+
+
+
+
+不是还有我吗？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12379#       发表于 2020-6-13 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">这个月月末有事不播，可能有惊喜，等着吧
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 12380#       发表于 2020-6-13 21:59
+
+
+
+
+想她这样的个人势还得等企业轮完才了轮得到她
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12381#       发表于 2020-6-13 22:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/13/221855w6q9m9d9mmy9edel.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200613221831.png</strong> (151.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-13 22:18 上传
+
+
+
+
+
+有点怪
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12382#       发表于 2020-6-13 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12383#       发表于 2020-6-13 22:30
+
+
+
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12384#       发表于 2020-6-13 22:47
+
+
+
+
+这图也没错啊，你咩今次也挤入手游人物行列了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12385#       发表于 2020-6-13 22:54
+
+
+
+
+翻动态的时候真的笑到了，一堆手游卡面钻出个立绘
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12386#       发表于 2020-6-13 22:57
+
+
+
+
+和暖暖战双放一起还挺排面的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12387#       发表于 2020-6-13 23:00
+
+
+
+
+你咩最近在阿b牌面略大，这算是在给bls造势吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12388#       发表于 2020-6-13 23:02
+
+
+
+
+阿b就不能养女儿了吗！毕竟mea从各种角度对b来说都是个特殊的存在了。
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12389#       发表于 2020-6-13 23:04
+
+
+
+
+特殊的存在（曾经）
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12390#       发表于 2020-6-13 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793629&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-13 21:59</a>
+
+想她这样的个人势还得等企业轮完才了轮得到她</blockquote>
+mea 3d也不会是用木口的棚啊，哪来什么轮不轮的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也不存在不和木口撞车的说法罢，大概撞不撞车都没什么影响
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12391#       发表于 2020-6-13 23:10
+
+
+
+
+就现在这鬼样子我还是希望她能少出门就少出门（悲
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12392#       发表于 2020-6-13 23:27
+
+
+
+
+这疫情真的算了吧
+
+17.4w你咩姐不当百位守门员了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12393#       发表于 2020-6-13 23:31
+
+
+
+
+可为什么是原立绘不是游戏立绘啊，真不会出戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12394#       发表于 2020-6-13 23:35
+
+
+
+
+游戏立绘得等618啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在用l2d凑合一下吧
+
+
+
+
+
+                                    
