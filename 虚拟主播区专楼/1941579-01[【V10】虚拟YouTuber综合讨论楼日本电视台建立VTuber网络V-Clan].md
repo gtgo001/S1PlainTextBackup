@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 00:10** 
+> ## **本文件最后更新于2020-06-15 02:09** 
 
 
 
@@ -2396,7 +2396,7 @@ Arkダウンロード始めたら待機時間やばい事になり始めたぞ
 
  本帖最后由 alcoholic1000 于 2020-6-14 14:54 编辑 
 
-<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_chvhV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_opA5n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_wU225" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_VHOIs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 原作者又把这张图转了出来，可惜已经少人了
 [https://twitter.com/amadori_vtb/ ... 99310123008/photo/1](https://twitter.com/amadori_vtb/status/1198612199310123008/photo/1)
@@ -14739,4 +14739,530 @@ thx<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referre
 
 
 
-                        
+
+
+-----
+
+####  alcoholic1000  
+##### 760#       发表于 2020-6-15 00:18
+
+
+
+
+刚才叶师和白雪apex排到个 cn miko 35p，光速白给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  浮雨  
+##### 761#       发表于 2020-6-15 00:24
+
+
+
+ 本帖最后由 浮雨 于 2020-6-15 00:41 编辑 
+
+35好像要出新衣服了，应该云错了吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 762#       发表于 2020-6-15 00:25
+
+
+
+
+真的吗，芙宝该出来发言了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 763#       发表于 2020-6-15 00:27
+
+
+
+
+狐皇新衣服发型是双马尾，有差分
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 764#       发表于 2020-6-15 00:29
+
+
+
+
+装嫩？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 765#       发表于 2020-6-15 00:32
+
+
+
+
+想想凪白的水平，嫩不起来的
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 766#       发表于 2020-6-15 00:34
+
+
+
+
+这个双马尾还是散发型双马尾
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 767#       发表于 2020-6-15 00:36
+
+
+
+
+散发加上面的马尾还是低一些的....不过飒白的水平
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 768#       发表于 2020-6-15 00:41
+
+
+
+<blockquote>aele 发表于 2020-6-15 00:36
+散发加上面的马尾还是低一些的....不过飒白的水平</blockquote>
+只要求他好好画眼睛，就像那几张其他姿态的狐狸
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 769#       发表于 2020-6-15 00:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑煞人,老妪何惺惺然作处子态
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 770#       发表于 2020-6-15 00:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想还挺可爱的如果不对男纸片人发情的话
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 771#       发表于 2020-6-15 00:44
+
+
+
+
+谱皇今晚的live [@tiro_finale](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=222535) 
+
+链接：[https://pan.baidu.com/s/1vkjCM-TKEF_K6-Lxi0rxkg](https://pan.baidu.com/s/1vkjCM-TKEF_K6-Lxi0rxkg) 
+
+提取码：b1zz
+
+跳了听了几首，最后和理芽一起的原创曲挺好的
+
+
+15:03開始 花譜トーク①
+
+
+17:12さよならミッドナイト
+
+23:02少女レイ
+
+26:52猛独が襲う
+
+30:56美しく、闇
+
+35:11    花譜トーク②
+
+37:46回る空うさぎ
+
+40:51雨き声残響
+
+43:47イヤホンと蝉時雨
+
+50:48死んでしまったのだろうか
+
+54:03忘れたいことばっかだ
+
+58:41LAZY
+
+1:04:41五月雨
+
+1:10:02死神
+
+1:14:01ミッドナイト清純異性交遊
+
+1:20:23プラスティック?ラブ
+
+1:25:00ダンスが僕の恋人
+
+1:28:53宙ぶらりん
+
+1:33:19電話をするよ
+
+1:39:10明けない夜のリリィ
+
+1:44:15あなたの夜が明けるまで
+
+
+1:52:08前半終了
+
+2:02:06後半開始
+
+
+2:02:33Fall in loveに恋してる
+
+2:05:56銀河
+
+2:10:22the MILACLE
+
+2:14:26ビームが撃てたらいいのに
+
+2:20:12愛にできることはまだあるかい
+
+2:26:47おやすみ泣き声、さよなら歌姫
+
+2:30:49ロックンロールは鳴り止まないっ
+
+2:34:22今夜が終わらない
+
+2:42:31命に嫌わている
+
+2:51:51魔法 feat花譜?理芽
+
+2:57:16空洞&amp;エンドロール
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 772#       发表于 2020-6-15 00:51
+
+
+
+
+结果valorant这游戏就维持了半个月不到，大家又去打apex了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 773#       发表于 2020-6-15 00:55
+
+
+
+
+能火半个月已经是借了拳头的势了，nga狂吹那些人已经看不到了。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 774#       发表于 2020-6-15 00:59
+
+
+
+
+valorant自己玩真的满上瘾的，没天梯+有技能，娱乐性比较高。刚枪比较硬核，记得楼里有人吐槽OW和APEX打枪是泼水，那么这款游戏适合你（不过多打几发的分布完全看不懂）。反正免费的，各位无聊可以去蝗几天
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 775#       发表于 2020-6-15 01:08
+
+
+
+
+一点进去就看到miko在喷火（笑
+
+
+
+
+
+
+
+-----
+
+####  榊城翼  
+##### 776#       发表于 2020-6-15 01:12
+
+
+
+<img src="https://p.sda1.dev/0/775af40caaea4a0e22dfea199966a039/-3ebc574437947f1e.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 777#       发表于 2020-6-15 01:13
+
+
+
+
+人生可比是海上的波浪~有时起~有时落~~<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/15/011254xigqeqqafqi9699m.png" referrerpolicy="no-referrer">
+
+
+<strong>tme.png</strong> (209.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 01:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/011258bsng7gol447l4ja5.png" referrerpolicy="no-referrer">
+
+
+<strong>gnkn.png</strong> (93.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 01:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 778#       发表于 2020-6-15 01:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804003&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-14 20:12</a>
+
+房子有点不够了，现在有2个方案，一个是免费去和还没捏的COLO和erer住一起，另一个是和小博鱼住一起 ...</blockquote>
+才看见这个回复，你准备给我捏成什么样啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 779#       发表于 2020-6-15 01:34
+
+
+
+
+（管人斗虫相关）瑞典猴子玩最in的缝合游戏也不过这1 peko&gt;1 pewd，木口实在是太厉害了
+
+
+
+
+
+
+}8_O5ZF05TRQHIX1}3E~7AY.png
+(21.91 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-15 01:31 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/013118gu0r5z7uubuzt0jr.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 780#       发表于 2020-6-15 01:50
+
+
+
+
+点赞比同接还高，只能说直播效果确实不太好吧
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 781#       发表于 2020-6-15 02:02
+
+
+
+
+瑞典猴子不行
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/020215wywonnc38yvlyl3r.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(24).png</strong> (121.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 02:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 782#       发表于 2020-6-15 02:04
+
+
+
+
+与其说猴子不行不如说是锤子的缝合怪不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                       

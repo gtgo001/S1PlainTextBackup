@@ -5749,7 +5749,7 @@
     "title": "[《十三机兵防卫圈》全事件详表+考察（更新问题考察-上）]",
     "lastedit": 1589558565,
     "category": "游戏区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1823913",
@@ -7685,7 +7685,7 @@
     "title": "[用HEVC批量压缩漫画图片 HEIC 并行化更新]",
     "lastedit": 1589558875,
     "category": "漫区",
-    "active": true
+    "active": false
   },
   {
     "id": "1926401",
@@ -8181,7 +8181,7 @@
     "title": "[鉴于坛内关于蜂巢快递柜问题，本快递员想倒点垃圾]",
     "lastedit": 1589558983,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1341662",
@@ -9457,9 +9457,9 @@
   },
   {
     "id": "1938285",
-    "totalpage": 668,
+    "totalpage": 671,
     "title": "[【B6】VUP综合讨论专楼]",
-    "lastedit": 1592150769,
+    "lastedit": 1592157928,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -10249,9 +10249,9 @@
   },
   {
     "id": "1940719",
-    "totalpage": 13,
+    "totalpage": 14,
     "title": "[Atlus的《女神异闻录4黄金版》将于6月13日登陆steam]",
-    "lastedit": 1592129541,
+    "lastedit": 1592158076,
     "category": "游戏区专楼",
     "active": true
   },
@@ -10449,9 +10449,9 @@
   },
   {
     "id": "1941579",
-    "totalpage": 26,
+    "totalpage": 27,
     "title": "[【V10】虚拟YouTuber综合讨论楼日本电视台建立VTuber网络V-Clan]",
-    "lastedit": 1592151039,
+    "lastedit": 1592158144,
     "category": "虚拟主播区专楼",
     "active": true
   }
