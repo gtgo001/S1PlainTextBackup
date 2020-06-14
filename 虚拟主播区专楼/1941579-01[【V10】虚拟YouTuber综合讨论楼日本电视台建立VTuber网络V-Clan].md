@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 22:11** 
+> ## **本文件最后更新于2020-06-15 00:10** 
 
 
 
@@ -2396,7 +2396,7 @@ Arkダウンロード始めたら待機時間やばい事になり始めたぞ
 
  本帖最后由 alcoholic1000 于 2020-6-14 14:54 编辑 
 
-<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_QAP2Z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_xJMF2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_chvhV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_opA5n" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 原作者又把这张图转了出来，可惜已经少人了
 [https://twitter.com/amadori_vtb/ ... 99310123008/photo/1](https://twitter.com/amadori_vtb/status/1198612199310123008/photo/1)
@@ -13966,4 +13966,777 @@ zsyl，最近仔细听了azki，专辑一半scrambles来做剩下一半交给别
 
 
 
-                          
+
+
+-----
+
+####  bluebaby  
+##### 721#       发表于 2020-6-14 22:13
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-14 22:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805710&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-14 22:01</a>
+怎么个种法</blockquote>
+大体上就是整到她团长号说的话我都不是很信了…此外日南看了几次就让我觉得银火营业她用力过猛，怀疑这人真的不大对劲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 722#       发表于 2020-6-14 22:14
+
+
+
+<blockquote>bluebaby 发表于 2020-6-14 22:13
+大体上就是整到她团长号说的话我都不是很信了…此外日南看了几次就让我觉得银火营业她用力过猛 ...</blockquote>
+银火用力过猛这个不需要看日南也看得出吧233。
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 723#       发表于 2020-6-14 22:15
+
+
+
+
+刚车了歌力，我以为那个先端恐惧症又是哪个音乐人，没听说搜了下<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|不好意思，音乐首陀罗没有参与到车歌力活动.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 724#       发表于 2020-6-14 22:16
+
+
+
+
+ばぶ美？！
+
+<img src="https://img.saraba1st.com/forum/202006/14/221627fpkfza5173sf6v0d.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-14 221428.png</strong> (284.64 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 22:16 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 725#       发表于 2020-6-14 22:18
+
+
+
+
+我很可爱，请给我钱（
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/221813k1sxkj9vwtvboffj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaefnnyUMAArcJd.jpg</strong> (106.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 22:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 726#       发表于 2020-6-14 22:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805810&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-14 22:08</a>
+
+星街明天的行程好像有点奇怪，有星咏者可以去确认下。</blockquote>
+推上没看到，咋了。
+
+
+
+
+
+
+
+-----
+
+####  moerisa  
+##### 727#       发表于 2020-6-14 22:19
+
+
+
+ 本帖最后由 moerisa 于 2020-6-14 23:57 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/214412zrhbubh4090421er.png" referrerpolicy="no-referrer">
+
+
+<strong>？.png</strong> (970.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 21:44 上传
+
+
+
+
+
+不懂歌力，不过我觉得这就是一般路人的心声吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就听个响谁管你气息什么的
+
+谁知道怎么把多上传的附件去掉啊……<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 728#       发表于 2020-6-14 22:25
+
+
+
+
+mkt又买麦克风了？KU120是什么神必型号
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 729#       发表于 2020-6-14 22:26
+
+
+
+
+一直想吐槽老外耳机这图片，虽然平时不喜欢森海，但这5.9万美金的家伙是真的没听过，指不定就真能做到听管人都能流泪呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 730#       发表于 2020-6-14 22:27
+
+
+
+
+真有想听唱歌剧的，可以听听这个，清唱 我亲爱的爸爸，エーテル在nico搞歌回没事就要来两段的......
+
+音乐院校出来的一般都得有点美声底子，美声唱法就是发源于意大利嘛，chima，空妈，歌回都挺爱唱意大利语歌的，不过V界喜欢听这些的大概不多
+[https://www.bilibili.com/video/BV1Kf4y1m7gg?p=2](https://www.bilibili.com/video/BV1Kf4y1m7gg?p=2)
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 731#       发表于 2020-6-14 22:28
+
+
+
+
+看影廊觉得一点不恐怖，兔子过关以后突然一声大叫吓到我了
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 732#       发表于 2020-6-14 22:28
+
+
+
+
+星街明天北京时间19点的ytb直播间已经做好了。3D单人卡拉OK。
+然后20点半的b站应该是两动，就是不知道加起来一共多长时间。
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 733#       发表于 2020-6-14 22:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806055&amp;ptid=1941579" target="_blank">free 发表于 2020-6-14 22:27</a>
+
+真有想听唱歌剧的，可以听听这个，清唱 我亲爱的爸爸，エーテル在nico搞歌回没事就要来两段的......
+
+音乐院 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">free车了这么久，有录刚才花谱的歌回吗，有几首想自己剪剪来听
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 734#       发表于 2020-6-14 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806073&amp;ptid=1941579" target="_blank">admentus 发表于 2020-6-14 22:28</a>
+看影廊觉得一点不恐怖，兔子过关以后突然一声大叫吓到我了</blockquote>
+本来就不恐怖，就第一次那张脸冲你脸上可能吓一跳
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 735#       发表于 2020-6-14 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805458&amp;ptid=1941579" target="_blank">winda 发表于 2020-6-14 21:46</a>
+
+大米的note和后续转视频势一段时间的操作还是偏tama的，不过明面上基本都是避而不谈 ...</blockquote>
+话说刚才心血来潮去看了一下樱桃
+
+这声线是不是变了好多
+
+上次嗓子崩了影响这么大？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 736#       发表于 2020-6-14 22:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806103&amp;ptid=1941579" target="_blank">Alphawalker 发表于 2020-6-14 22:30</a>
+
+free车了这么久，有录刚才花谱的歌回吗，有几首想自己剪剪来听</blockquote>
+我看没删档啊，你自己去看
+[https://www.youtube.com/watch?v=xsM_7yL0kXg](https://www.youtube.com/watch?v=xsM_7yL0kXg)
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 737#       发表于 2020-6-14 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806140&amp;ptid=1941579" target="_blank">free 发表于 2020-6-14 22:33</a>
+
+我看没删档啊，你自己去看
+
+https://www.youtube.com/watch?v=xsM_7yL0kXg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">今晚要坐班，公司搞不了，刚才不是有人说要删档吗，所以想问问
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 738#       发表于 2020-6-14 22:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806164&amp;ptid=1941579" target="_blank">Alphawalker 发表于 2020-6-14 22:35</a>
+
+今晚要坐班，公司搞不了，刚才不是有人说要删档吗，所以想问问</blockquote>
+明天12点删
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 739#       发表于 2020-6-14 22:39
+
+
+
+
+正在下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 740#       发表于 2020-6-14 22:46
+
+
+
+
+润姨两边的风格越来越接近了，有些事都两边一起说，完全不避讳了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 741#       发表于 2020-6-14 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806076&amp;ptid=1941579" target="_blank">Viden 发表于 2020-6-14 22:28</a>
+
+星街明天北京时间19点的ytb直播间已经做好了。3D单人卡拉OK。
+
+然后20点半的b站应该是两动，就是不知道加起 ...</blockquote>
+明日又是公务员赚别人一个月收入的一天<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 742#       发表于 2020-6-14 22:48
+
+
+
+
+太草了，486的香肠游戏广告弹出来是船长代言的东方游戏。精 准 投 放
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 743#       发表于 2020-6-14 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805946&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-14 22:18</a>
+我很可爱，请给我钱（</blockquote>
+伊织萌啊
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 744#       发表于 2020-6-14 22:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806198&amp;ptid=1941579" target="_blank">2517君改二 发表于 2020-6-14 22:39</a>
+
+正在下不知为何youtube-dl下下来的是360p（不过好像也没什么关系）</blockquote>
+youtubedl当然要自己指定视频音频格式啊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 745#       发表于 2020-6-14 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806342&amp;ptid=1941579" target="_blank">保罗赫伯特 发表于 2020-6-14 22:50</a>
+
+伊织萌啊</blockquote>
+yes
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 746#       发表于 2020-6-14 22:52
+
+
+
+
+其实诸位，关于四期的3d，最恐怖的事情是，让天音自己来设计自己的3d<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 747#       发表于 2020-6-14 22:52
+
+
+
+ 本帖最后由 winda 于 2020-6-14 22:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806118&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-14 22:31</a>
+
+话说刚才心血来潮去看了一下樱桃
+
+这声线是不是变了好多
+
+上次嗓子崩了影响这么大？ ...</blockquote>
+到合作DBD那回嗓子都是沙的，原来声线估计回不来了
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 748#       发表于 2020-6-14 22:57
+
+
+
+ 本帖最后由 57042711 于 2020-6-14 22:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806103&amp;ptid=1941579" target="_blank">Alphawalker 发表于 2020-6-14 22:30</a>
+
+free车了这么久，有录刚才花谱的歌回吗，有几首想自己剪剪来听</blockquote>
+[https://www.bilibili.com/video/BV1vi4y1x7qB](https://www.bilibili.com/video/BV1vi4y1x7qB)   B站阿赫已经传了···
+
+看简介也是只放到明天···
+
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 749#       发表于 2020-6-14 23:02
+
+
+
+ 本帖最后由 Viden 于 2020-6-14 23:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806314&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-14 22:48</a>
+明日又是公务员赚别人一个月收入的一天</blockquote>
+这一波，b站不敢猜，看节目效果，时长和重大发表什么的。
+ytb那边估计也就比复活歌回强一些。卡拉OK就说明没有舞蹈动作什么的。
+不敢奶不敢奶。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+重大发表说不定就只是参加BML而已。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 750#       发表于 2020-6-14 23:03
+
+
+
+
+她一般一个月就200W左右，明天打的好就算完成任务了。
+
+
+
+
+
+
+
+-----
+
+####  不想当咸鱼  
+##### 751#       发表于 2020-6-14 23:23
+
+
+
+
+这也太光速白给了
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 752#       发表于 2020-6-14 23:26
+
+
+
+
+原创曲发布时间+新衣装，有信心
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 753#       发表于 2020-6-14 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805957&amp;ptid=1941579" target="_blank">moerisa 发表于 2020-6-14 22:19</a>
+
+不懂歌力，不过我觉得这就是一般路人的心声吧就听个响谁管你气息什么的
+
+谁知道怎么把多上传的附件去 ...</blockquote>
+再传一张图，然后在新出来的那个栏目把不要的图删掉
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 754#       发表于 2020-6-14 23:40
+
+
+
+
+太子这个两周年周边，居然有亲笔签名的八音盒，要25000<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+说今后投稿频率会提高，算好起来了吗。
+
+新开了个yunistaff的推，乙女丸再见了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+[https://yunionwave.com/contents/325106](https://yunionwave.com/contents/325106)
+[https://twitter.com/YuNiStaff](https://twitter.com/YuNiStaff)
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 755#       发表于 2020-6-14 23:49
+
+
+
+ 本帖最后由 57042711 于 2020-6-14 23:52 编辑 
+
+果然holo还是需要专业的录音室吗……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">星姐居然是真的B站两动…害    怕
+昨天啊火3D啊P这边打钱都一片红的明天应该问题不大吧，箱力还是有的…
+
+
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 756#       发表于 2020-6-14 23:52
+
+
+
+
+高小姐复活回2万7多，超过应该不难吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 757#       发表于 2020-6-14 23:53
+
+
+
+<blockquote>57042711 发表于 2020-6-14 23:49
+星姐居然是真的B站两动吗…害    怕
+
+昨天啊火3D啊P这边打钱都一片红的明天应该问题不大吧，箱力还是 ...</blockquote>
+上次aki3D也是两动，但是中间没有半小时休息。内容重复度也不…大?大家还是蛮开心的
+
+
+
+
+
+
+
+-----
+
+####  moerisa  
+##### 758#       发表于 2020-6-14 23:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806797&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-14 23:35</a>
+
+再传一张图，然后在新出来的那个栏目把不要的图删掉</blockquote>
+thx<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 759#       发表于 2020-6-15 00:09
+
+
+
+
+看完摸余那边的联动了，那个黑洞笑死咱了
+
+
+
+
+
+                        

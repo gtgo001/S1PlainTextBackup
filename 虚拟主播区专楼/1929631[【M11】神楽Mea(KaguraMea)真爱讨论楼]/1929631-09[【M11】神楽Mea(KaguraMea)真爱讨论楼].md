@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 22:02** 
+> ## **本文件最后更新于2020-06-15 00:02** 
 
 
 
@@ -8977,6 +8977,25 @@ syl日南粉丝也冲过吗？怎么南+一 ...</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|华生你发现了盲点|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9066,4 +9085,621 @@ syl日南粉丝也冲过吗？怎么南+一 ...</blockquote>
 
 
 
-                                
+
+
+-----
+
+####  rosevalley46  
+##### 12518#       发表于 2020-6-14 22:06
+
+
+
+
+你麻可以学mega整一身熊本熊的衣服套上然后开asmr
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12519#       发表于 2020-6-14 22:08
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-14 22:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805541&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-14 21:51</a>
+话说凛子最近那个石油是谁挖的啊</blockquote>
+我错了，不是天使梓。看起来像小号
+[https://b23.tv/BV1CV411C7nt](https://b23.tv/BV1CV411C7nt)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12520#       发表于 2020-6-14 22:10
+
+
+
+
+塔吧看到好几张开摄像头的咩直播截图。然而现在流出的视频并不如凛子多。怎么回事(눈_눈)。顺便这吊人做asmr自己会害羞所以还是别想了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12521#       发表于 2020-6-14 22:12
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-14 22:14 编辑 
+
+要播了，22：15
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12522#       发表于 2020-6-14 22:14
+
+
+
+[https://www.youtube.com/watch?v=OljjJdyJojY&amp;feature=youtu.be](https://www.youtube.com/watch?v=OljjJdyJojY&amp;feature=youtu.be)
+
+突
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12523#       发表于 2020-6-14 22:15
+
+
+
+
+突突突
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12524#       发表于 2020-6-14 22:16
+
+
+
+
+真突了啊，准时
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12525#       发表于 2020-6-14 22:17
+
+
+
+
+待机
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12526#       发表于 2020-6-14 22:18
+
+
+
+
+感谢祭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12527#       发表于 2020-6-14 22:22
+
+
+
+
+草，17w感谢吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12528#       发表于 2020-6-14 22:22
+
+
+
+
+啊这，官组没醒(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12529#       发表于 2020-6-14 22:23
+
+
+
+
+这比爱丽丝还舔啊<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+联动真的安排上了？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12530#       发表于 2020-6-14 22:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一打开就在谈论ptr
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她真的那么喜欢ptr吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12531#       发表于 2020-6-14 22:25
+
+
+
+
+ptr毕竟按她的标准是完全粉色的声音
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12532#       发表于 2020-6-14 22:25
+
+
+
+
+肯定是兔姨一阵吹桃箱，你麻上了头想抱大腿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12533#       发表于 2020-6-14 22:26
+
+
+
+
+复刻一个失智sc问她爱丽丝可爱还是ptr可爱看看(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12534#       发表于 2020-6-14 22:28
+
+
+
+
+这人就是个皮性恋,皮好看就舔
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12535#       发表于 2020-6-14 22:29
+
+
+
+
+那我寻思爱丽丝和ptr的皮也......还是她喜欢这种风格啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12536#       发表于 2020-6-14 22:32
+
+
+
+ 本帖最后由 A2014720 于 2020-6-14 22:34 编辑 
+
+yhm的…不，你咩姐的品味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+开局18个踩，好久不见了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12537#       发表于 2020-6-14 22:34
+
+
+
+
+爱丽丝与其说是皮性恋不如说是恋物癖了，她喜欢的是衣服。。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12538#       发表于 2020-6-14 22:35
+
+
+
+
+恋物癖不是这么用的......为啥踩多起来了？话说她是不在意踩数量的吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12539#       发表于 2020-6-14 22:37
+
+
+
+
+不是，18个踩算多吗，你清醒一点
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12540#       发表于 2020-6-14 22:39
+
+
+
+
+修辞手法而已   syl hso
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12541#       发表于 2020-6-14 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806035&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-14 22:25</a>
+ptr毕竟按她的标准是完全粉色的声音</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那次声音颜色直播提了ptr吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">完全粉色的不是bfm吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且你麻喜欢的还不是完全粉色的声音
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12542#       发表于 2020-6-14 22:55
+
+
+
+
+这都在讲啥啊咩咩(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12543#       发表于 2020-6-14 22:58
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-14 23:00 编辑 
+
+好像不是
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12544#       发表于 2020-6-14 22:59
+
+
+
+
+啊这虚空总督
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12545#       发表于 2020-6-14 23:03
+
+
+
+
+天天奇酷比奇酷比，你是没有吗，打游戏去了，妈的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12546#       发表于 2020-6-14 23:05
+
+
+
+<img src="https://files.yande.re/sample/096ba5b1c3f30a2fd3dde893bd619398/yande.re%20293729%20sample%20ame_koi%20coffee-kizoku%20isshi_mizuki%20noesis%20see_through%20seifuku%20wet%20wet_clothes.jpg" referrerpolicy="no-referrer">配图来了
+
+
+我去看论文了， 渐行渐远中
+
+
+什么？ 楼上的云错了内容？ 
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12547#       发表于 2020-6-14 23:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806246&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-14 22:43</a>
+
+那次声音颜色直播提了ptr吗
+
+完全粉色的不是bfm吗
+
+而且你麻喜欢的还不是完全粉色的 ...</blockquote>
+没提啊，只是按她那个分类方式ptr不就是粉色系么
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12548#       发表于 2020-6-14 23:31
+
+
+
+
+奇酷比说不定因为no bra给磨掉了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12549#       发表于 2020-6-14 23:31
+
+
+
+
+这就要溜了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12550#       发表于 2020-6-14 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">行了，该睡了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12551#       发表于 2020-6-14 23:35
+
+
+
+
+所以说两周年真就淡如水啊，你看看人家anmr
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12552#       发表于 2020-6-14 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47806760&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-6-14 23:31</a>
+
+奇酷比说不定因为no bra给磨掉了</blockquote>
+no bra的话会容易变黑罢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12553#       发表于 2020-6-14 23:38
+
+
+
+
+tc继续
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12554#       发表于 2020-6-14 23:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">服了刚想补anmrleader的
+
+
+
+
+
+                               
