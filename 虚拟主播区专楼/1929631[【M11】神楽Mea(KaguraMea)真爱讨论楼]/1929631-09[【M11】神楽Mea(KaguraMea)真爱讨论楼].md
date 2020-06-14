@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 00:05** 
+> ## **本文件最后更新于2020-06-14 18:04** 
 
 
 
@@ -6882,4 +6882,749 @@ mea 3d也不会是用木口的棚啊，哪来什么轮不轮的<img src="https:/
 
 
 
-                                    
+
+
+-----
+
+####  rosevalley46  
+##### 12395#       发表于 2020-6-14 01:30
+
+
+
+ 本帖最后由 rosevalley46 于 2020-6-14 01:56 编辑 
+
+找了下发现有的,那没事了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12396#       发表于 2020-6-14 04:34
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-14 04:37 编辑 
+
+打了两天游戏没怎么看楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发现小博禹又开始了，干脆直接拉个窗帘得了
+
+顺便，cv草生
+
+<img src="https://img.saraba1st.com/forum/202006/14/043733tddkscqz0cwy6smw.png" referrerpolicy="no-referrer">
+
+
+<strong>-91f029295504771.png</strong> (43.42 KB, 下载次数: 2)
+
+下载附件
+
+2020-6-14 04:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12397#       发表于 2020-6-14 09:32
+
+
+
+
+mea处男小鬼的人设愈发成熟了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12398#       发表于 2020-6-14 09:46
+
+
+
+
+草这什么鬼(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 12399#       发表于 2020-6-14 12:15
+
+
+
+
+这CV好像也没啥问题，艺名嘛
+
+—— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 12400#       发表于 2020-6-14 13:15
+
+
+
+ 本帖最后由 RE.AGE45.MKⅠ 于 2020-6-14 13:23 编辑 
+
+开车信息还留着啊，暂时拉一下窗帘
+
+处理了啊，窗帘取消了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alialex  
+##### 12401#       发表于 2020-6-14 13:20
+
+
+
+
+禁言+删楼了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 12402#       发表于 2020-6-14 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">发生了什么
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12403#       发表于 2020-6-14 13:35
+
+
+
+
+?发生了啥？(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12404#       发表于 2020-6-14 13:37
+
+
+
+
+s1不能爱讨论加传播黄色的，xby自作孽进去了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12405#       发表于 2020-6-14 13:43
+
+
+
+
+小博鱼也要缩写吗。。。进去是好事，希望他别再注册了，浪费这么多5块还不如吃点好的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12406#       发表于 2020-6-14 14:11
+
+
+
+ 本帖最后由 呓亘 于 2020-6-14 14:12 编辑 
+
+对了，前几天你咩姐和白雪联动时，貌似有一段表明自己在乎粉丝的发言，那一段有熟肉吗？想看
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12407#       发表于 2020-6-14 14:18
+
+
+
+
+暂时没有吧，但应该是会有人烤的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12408#       发表于 2020-6-14 14:52
+
+
+
+
+回复了苔苔还行（明天就要跟苔苔玩恐怖游戏了啊
+
+
+
+
+
+
+
+-----
+
+####  小麻的狗狗  
+##### 12409#       发表于 2020-6-14 14:54
+
+
+
+ 本帖最后由 小麻的狗狗 于 2020-6-14 14:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47800192&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-14 13:35</a>
+?发生了啥？(#ﾟДﾟ)</blockquote>
+好心人给楼友们发好看的被恶心的45举报了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+明明也发了处女版的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">45到底是恶心不是处女的咩咩还是恶心处女咩咩啊？
+难道不论麻酱是不是处女你都觉得恶心吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alialex  
+##### 12410#       发表于 2020-6-14 16:30
+
+
+
+
+好看的可还行
+
+在楼里发车的给爷死<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RE.AGE45.MKⅠ| + 1|好评加鹅|
+| weiweiEX| + 1|好评加鹅|
+| 时雨rain| + 1|好，省了一个号|
+| 路人庚| + 1|辛苦了|
+| aisakahammer| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12411#       发表于 2020-6-14 16:51
+
+
+
+ 本帖最后由 路人庚 于 2020-6-14 16:53 编辑 
+
+要来了
+
+【#あにまーれ感謝祭】はねる、リーダーやめるってよ。あにまーれリーダー決定戦！【因幡はねる / あにまーれ】
+
+[https://www.youtube.com/watch?v=Ilf_Lvt7SRs](https://www.youtube.com/watch?v=Ilf_Lvt7SRs)
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12412#       发表于 2020-6-14 17:01
+
+
+
+
+漩涡设计的鱼蛋糕神楽めあ/KaguraMea漩涡设计的鱼蛋糕
+
+@KaguraMea_VoV
+
+·
+
+10分钟
+
+出るよ～～～～～！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+引用推文
+
+
+因幡はねる黄心兔脸あにまーれ黄心
+
+@Haneru_Inaba
+
+ · 22分钟
+
+#あにまーれ感謝祭
+
+18時からは、
+
+はねるリーダー卒業！？あにまーれリーダー決定戦！
+[https://youtube.com/watch?v=Ilf_Lvt7SRs](https://youtube.com/watch?v=Ilf_Lvt7SRs)
+
+ゲストは周防パトラ＆神楽めあ
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12413#       发表于 2020-6-14 17:03
+
+
+
+
+小博宇自作孽了，好啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12414#       发表于 2020-6-14 17:11
+
+
+
+
+刚才ptr一开口说话我幻听成mea了，萌音害人
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12415#       发表于 2020-6-14 17:12
+
+
+
+
+草，怎么是苔苔啊
+
+
+
+
+
+
+
+-----
+
+####  是siva鸭  
+##### 12416#       发表于 2020-6-14 17:14
+
+
+
+
+,:,,hx
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12417#       发表于 2020-6-14 17:17
+
+
+
+
+这问题。。不看anmr的还真不知道
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12418#       发表于 2020-6-14 17:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全错了可还行，有点真实
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12419#       发表于 2020-6-14 17:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">就这还是anmr编外人员呢
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12420#       发表于 2020-6-14 17:24
+
+
+
+
+这一分题原来回答是或否就行了啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12421#       发表于 2020-6-14 17:27
+
+
+
+ 本帖最后由 路人庚 于 2020-6-14 17:28 编辑 
+
+草，这兰熊的anmr线下团建问题mea蒙对了还行
+
+
+噗全员正确可还行，这大概算是常识了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大伙都不爱海胆
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12422#       发表于 2020-6-14 17:34
+
+
+
+
+要么全灭要么全对行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别等会咩真的分最高
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12423#       发表于 2020-6-14 17:39
+
+
+
+
+ptr:这个咩肯定喜欢我啦
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12424#       发表于 2020-6-14 17:39
+
+
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12425#       发表于 2020-6-14 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了mea惨败预定，这聊天流还行
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12426#       发表于 2020-6-14 17:41
+
+
+
+
+草，没了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12427#       发表于 2020-6-14 17:42
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12428#       发表于 2020-6-14 17:43
+
+
+
+
+草这......kimo
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12429#       发表于 2020-6-14 17:46
+
+
+
+
+读信环节原来没有照片展示啊，啧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12430#       发表于 2020-6-14 17:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">善恶终有报
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12431#       发表于 2020-6-14 17:50
+
+
+
+
+吵死了(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12432#       发表于 2020-6-14 17:54
+
+
+
+
+大人的世界（指暗箱内定）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12433#       发表于 2020-6-14 18:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12434#       发表于 2020-6-14 18:03
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-14 18:04 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12435#       发表于 2020-6-14 18:04
+
+
+
+
+这么舔能舔出联动嘛<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+如果可以再大力点好吧
+
+
+
+
+
+                                   
