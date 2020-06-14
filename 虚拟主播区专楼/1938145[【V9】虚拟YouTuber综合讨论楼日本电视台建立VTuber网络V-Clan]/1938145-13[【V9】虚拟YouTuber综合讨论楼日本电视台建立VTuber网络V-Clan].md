@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 10:08** 
+> ## **本文件最后更新于2020-06-14 12:09** 
 
 
 
@@ -12392,6 +12392,25 @@ syl 龙宝电话本是nico生啊
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 57042711| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13235,6 +13254,25 @@ anmr这个猜价格企划真的棒，你们这些车轱辘能不能也稍微往�
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuandi0120|-2|陪小博禹说话|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -13377,4 +13415,1155 @@ anmr这个猜价格企划真的棒，你们这些车轱辘能不能也稍微往�
 
 
 
-                          
+
+
+-----
+
+####  あのん  
+##### 18710#       发表于 2020-6-14 10:09
+
+
+
+
+大家以前都是すこん部
+
+帮她涨粉有什么错呢
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18711#       发表于 2020-6-14 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797751&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-14 10:03</a>
+别回小博禹啊(눈_눈)。劈夏吹跟劈六字母本质也没啥区别吧，夏吹热度还赶不上六字母，何来接替一说 ...</blockquote>
+反正这里已经不劈meaqua改劈夏吹了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，狐皇怎么想未来的只是个人感受，就不写出来给自己添堵了。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18712#       发表于 2020-6-14 10:10
+
+
+
+
+吃水莫忘挖井人，夏吹作为国内第一对贴贴cp现在变成了这样，怎么想都是大家庭粉的错
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18713#       发表于 2020-6-14 10:12
+
+
+
+
+怎么甩锅大家庭粉，明明是营业中寻求真实的nc过激贴贴人的错吧
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 18714#       发表于 2020-6-14 10:12
+
+
+
+
+嗨，夏吹现在至少还有互动，六字母呢？现在也看开了，她们想干啥就干啥吧。
+
+
+
+
+
+
+
+-----
+
+####  水藻  
+##### 18715#       发表于 2020-6-14 10:13
+
+
+
+
+真想劈动狐狸得来点重磅实锤，比如骚扰梅露的其实是狐狸男友，狐狸还在一旁帮手助纣为虐，所以梅露才长时间敢怒不敢言这样。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 18716#       发表于 2020-6-14 10:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">一点进来就是贴贴
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这是第几次了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多看点bl，你们可能就不在乎了吧
+
+
+
+
+
+
+
+-----
+
+####  连清人  
+##### 18717#       发表于 2020-6-14 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797836&amp;ptid=1938145" target="_blank">离心 发表于 2020-6-14 10:12</a>
+
+嗨，夏吹现在至少还有互动，六字母呢？现在也看开了，她们想干啥就干啥吧。 ...</blockquote>
+互动指夏吹星联动吗，还不如彻底没了。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 18718#       发表于 2020-6-14 10:15
+
+
+
+
+月供B限也不能叫没互动啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 18719#       发表于 2020-6-14 10:27
+
+
+
+
+思路广。那我点一个鸣神裁狐皇一伙，目的是搞垮木口彩虹再自己以受害人身份会同彩虹前段一起pro出道好吧
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 18720#       发表于 2020-6-14 10:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">月供也没了啊，不然为啥暗黑贴贴人越来越多
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18721#       发表于 2020-6-14 10:33
+
+
+
+ 本帖最后由 opersuper 于 2020-6-14 10:35 编辑 
+
+看夏吹白送星男人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+「私についていけない方はついて来なくっていい」
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 18722#       发表于 2020-6-14 10:33
+
+
+
+
+楼里响老哥不爽不就是因为变成带货工具了吗
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18723#       发表于 2020-6-14 10:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797857&amp;ptid=1938145" target="_blank">连清人 发表于 2020-6-14 10:14</a>
+互动指夏吹星联动吗，还不如彻底没了。</blockquote>
+yysy，meaqua774也在推特上互动过的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18724#       发表于 2020-6-14 10:36
+
+
+
+
+现在的女人直播也就老三样：唱歌、卖萌、贴贴，男人的直播还能多点花样呢
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 18725#       发表于 2020-6-14 10:38
+
+
+
+
+男人虽然花样多，但同接少
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18726#       发表于 2020-6-14 10:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊，劈夏吹真的成kpi了，可喜可贺
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18727#       发表于 2020-6-14 10:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除非王老菊套皮，否则我是不会主动去看男V的
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18728#       发表于 2020-6-14 10:44
+
+
+
+<blockquote>金魚佬 发表于 2020-6-14 10:43
+除非王老菊套皮，否则我是不会主动去看男V的</blockquote>
+王老菊的下位替代小秦看不看？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 18729#       发表于 2020-6-14 10:47
+
+
+
+
+老菊现在在搞独立游戏去了，视频都少了……秦先生＋1。不过老菊的下位替代是什么鬼?
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 18730#       发表于 2020-6-14 10:47
+
+
+
+
+那夏色吹雪贴贴楼可以提上日程了吗(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 18731#       发表于 2020-6-14 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">为什么阿火3d隔天就烤出来了可阿火审判还没熟肉
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18732#       发表于 2020-6-14 11:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798271&amp;ptid=1938145" target="_blank">forzen 发表于 2020-6-14 10:59</a>
+为什么阿火3d隔天就烤出来了可阿火审判还没熟肉</blockquote>
+审判应该是归团长的组吧
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18733#       发表于 2020-6-14 11:03
+
+
+
+<blockquote>离心 发表于 2020-6-14 10:47
+老菊现在在搞独立游戏去了，视频都少了……秦先生＋1。不过老菊的下位替代是什么鬼? ...</blockquote>
+小秦的订阅同接还有收入都要比老菊少，按照v综的观点就是下位了
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 18734#       发表于 2020-6-14 11:07
+
+
+
+
+确实 我们主播圈比的实力 不是资历
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18735#       发表于 2020-6-14 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狗头人是狗V还是男V可能需要讨论一下
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 18736#       发表于 2020-6-14 11:12
+
+
+
+
+管人游戏力（整活方面）能有老菊的一半我就满足了……
+
+
+这是个很好的“有过很多游戏经验因此可以不看说明上手瞎莽，通关也有节目效果”和“真的啥都不知道直接莽上去了的”区别案例
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 18737#       发表于 2020-6-14 11:14
+
+
+
+
+不要车轱辘游戏力 不要车轱辘游戏力<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18738#       发表于 2020-6-14 11:14
+
+
+
+
+小秦可以八美肉出道和夸夸百合吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 18739#       发表于 2020-6-14 11:25
+
+
+
+
+放过狐皇中之人啊 狐皇中之人没被挖出来gachi会不会翻个倍？
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18740#       发表于 2020-6-14 11:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 别逗了，你老菊自己直播效果也是垃圾的一比，只不过视频出的还行而已，直播做的烂的视频势罢了，
+
+和黑桐谷歌一个路数，直播巨婴，被弹幕支配，
+
+直播间全体禁言次数大概和阿天手冲次数一样多，
+
+他无非是直播做不下去，才去搞所谓独立游戏的，
+
+
+阿秦早期视频势，但他直播做的好阿，这点就无敌了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18741#       发表于 2020-6-14 11:25
+
+
+
+
+养gachi太累了，人老了对自己好一点
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18742#       发表于 2020-6-14 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 早期视频抄袭水王的风格就不说了，一个经典缝合怪罢了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 18743#       发表于 2020-6-14 11:26
+
+
+
+
+真的，视频效果和直播效果完全是两方面的才能，
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18744#       发表于 2020-6-14 11:26
+
+
+
+
+反正我看V不是为了游戏是为了下面这种东西
+https://twitter.com/idol__picture/status/1271781575282159622?s=19
+<img src="https://p.sda1.dev/0/63972cef492a942e92183bd3c81654ac/IMG_CF55830AABD9A603CB43B79032672E70.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mmbk| + 1|确实|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 18745#       发表于 2020-6-14 11:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">莫非狐皇.....
+[https://youtu.be/O9XwgUWtJ2k?t=172](https://youtu.be/O9XwgUWtJ2k?t=172)
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 18746#       发表于 2020-6-14 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798431&amp;ptid=1938145" target="_blank">无限舰制 发表于 2020-6-14 11:12</a>
+
+管人游戏力（整活方面）能有老菊的一半我就满足了……
+
+
+这是个很好的“有过很多游戏经验因此可以不看说明上 ...</blockquote>
+这个总结不错，举例来说就是佩克拉的马造吃瘪和超级小桀的马造吃瘪是不一样的，超级小桀吃瘪也是基于理解和操作都到位的基础上真的打不过，佩克拉吃瘪是真的啥都不会，所以耐看程度差别很大
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 18747#       发表于 2020-6-14 11:31
+
+
+
+
+关键词：王老菊、saber酱
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18748#       发表于 2020-6-14 11:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 直播势也要和游戏圈直播势来比较吧，
+
+
+peko上位替代是不是女流阿，
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 18749#       发表于 2020-6-14 11:39
+
+
+
+
+我停下来想了30秒佩克拉是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18750#       发表于 2020-6-14 11:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">王老菊不套皮我也是看视频的啊，怎么现在套皮=直播势了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 18751#       发表于 2020-6-14 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798605&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-14 11:27</a>
+
+莫非狐皇.....
+
+https://youtu.be/O9XwgUWtJ2k?t=172</blockquote>
+基德
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 18752#       发表于 2020-6-14 11:42
+
+
+
+ 本帖最后由 aibot343 于 2020-6-14 11:44 编辑 
+
+女流明明是脑子比较好的狗皇上位替代。peko上位给个周淑怡吧。
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 18753#       发表于 2020-6-14 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798634&amp;ptid=1938145" target="_blank">dsylolicon 发表于 2020-6-14 11:30</a>
+这个总结不错，举例来说就是佩克拉的马造吃瘪和超级小桀的马造吃瘪是不一样的，超级小桀吃瘪也是基于理解 ...</blockquote>
+ddj操作到位可就算了，国内外马造主播打工操作比他强的可不少。看他吃瘪一方面是运气一方面就是下饭操作，以至于直播下饭到得看别人洗眼
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 18754#       发表于 2020-6-14 11:43
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18755#       发表于 2020-6-14 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798605&amp;ptid=1938145" target="_blank">winda 发表于 2020-6-14 11:27</a>
+
+莫非狐皇.....
+
+https://youtu.be/O9XwgUWtJ2k?t=172</blockquote>
+基德基德<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 18756#       发表于 2020-6-14 11:47
+
+
+
+
+女流风格不一样吧 那个有皮套的c酱倒是操作可以。 syl 有段时间看光一，重新提起打doto的兴趣，但后面嫌太菜看另一个天梯四十名的去了。彩笔我是绝对无法忍受的，以前克蕾雅就是在我胃里种水稻才取关的:(
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 18757#       发表于 2020-6-14 11:49
+
+
+
+<blockquote>YODOboi 发表于 2020-6-14 11:47
+女流风格不一样吧 那个有皮套的c酱倒是操作可以。 syl 有段时间看光一，重新提起打doto的兴趣，但后面嫌太 ...</blockquote>
+一万五以下都一样
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18758#       发表于 2020-6-14 11:50
+
+
+
+
+dota不应该直接看比赛吗…
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18759#       发表于 2020-6-14 11:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 天梯有什么看点吗？局局都是菠菜，好看就怪了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18760#       发表于 2020-6-14 11:50
+
+
+
+
+别车主播，别车主播<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18761#       发表于 2020-6-14 11:51
+
+
+
+
+女流凭什么上位替代peko<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">七色太监真是让人笑掉大牙
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18762#       发表于 2020-6-14 11:52
+
+
+
+
+女流最多算个miko的上位替代吧，连夸都不如<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18763#       发表于 2020-6-14 11:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么一看某些人眼中的三字母和冯金批倒是有几分相似
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 18764#       发表于 2020-6-14 11:57
+
+
+
+
+昨晚看完三期后睡觉梦里一直梦见他们早上搞了起床音配信但是我睡过头了...醒来一看只有楼友车主播
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18765#       发表于 2020-6-14 11:57
+
+
+
+
+七色太监别吹冯提莫了好吧？fen来b站后，都被夸打烂了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18766#       发表于 2020-6-14 11:59
+
+
+
+
+那么我家夸夸酱就是冯提莫的上位替代了吗？
+
+
+
+
+
+
+
+-----
+
+####  帕克桑  
+##### 18767#       发表于 2020-6-14 11:59
+
+
+
+ 本帖最后由 帕克桑 于 2020-6-14 12:03 编辑 
+
+云乐 编辑<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 18768#       发表于 2020-6-14 12:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798949&amp;ptid=1938145" target="_blank">帕克桑 发表于 2020-6-14 11:59</a>
+
+2000天天车七色太监 现在这称号新参用来劈他了</blockquote>
+新参个屁，那人是小博禹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18769#       发表于 2020-6-14 12:01
+
+
+
+
+新参吗…<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 18770#       发表于 2020-6-14 12:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 新参还行，给大家介绍一下，这位是新参天狗，最喜欢咩咩了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18771#       发表于 2020-6-14 12:04
+
+
+
+
+支持天狗虹人一换一<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Yinacona  
+##### 18772#       发表于 2020-6-14 12:04
+
+
+
+
+去看了阿火3d熟肉，发现昨天holo的staff事故是不是有点多，开始转场跳没有可以说节目效果就算了。最后一首教室モノクローム直播时樱花特效之后还在原地不动当时直呼5毛特效就这就这。今天去看熟肉发现这段多了转场地，和炸鸡第二季小天使唱这首的一段一样花瓣然后转场到大草原（
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18773#       发表于 2020-6-14 12:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47794432&amp;ptid=1938145" target="_blank">QWANG 发表于 2020-6-13 23:05</a>
+今天祭丝确实没怎么发疯。</blockquote>
+突然明白了，夸应该是只喜欢乃子比她小的，所以小肥妹才怎么都舔不到<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+祭看来只有去做个瘦胸手术才能得到夸的爱
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18774#       发表于 2020-6-14 12:05
+
+
+
+
+上次不是定性了小博禹是铁血crew吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 18775#       发表于 2020-6-14 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">有4700+人看老师建厂，这就是时间段的优势么
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 18776#       发表于 2020-6-14 12:07
+
+
+
+
+我怎么不记得一弦你会打麻将？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/120651etcdwc82s222c8mn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200614_115533_com.google.android.youtube.jpg</strong> (709.24 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 12:06 上传
+
+
+
+
+
+
+
+
+
+
+                        
