@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 04:06** 
+> ## **本文件最后更新于2020-06-14 10:08** 
 
 
 
@@ -6907,6 +6907,25 @@ KPI打不赢b综怎么办，把b综的话题抢过来<img src="https://static.sa
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 攻心为上木之本| + 1|思路广|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12485,4 +12504,877 @@ syl，0202年了害车歌力贬偶像，你major口水歌还真不如偶像曲�
 
 
 
-                           
+
+
+-----
+
+####  深渊萃取  
+##### 18669#       发表于 2020-6-14 04:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">SIO我点了关注没看几次，看过的人也看过给我推荐了八重泽
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 18670#       发表于 2020-6-14 05:00
+
+
+
+
+免费也不是真的突然又想深入车这话题，只是看到彩菜就要针对彩菜相关发一下疯做他的日课，别搭他话了。散了散了。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 18671#       发表于 2020-6-14 05:01
+
+
+
+
+都车到真人偶像歌力了不如车一车实力歌手歌力呗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 18672#       发表于 2020-6-14 05:28
+
+
+
+
+不如车一下楼友歌力
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 18673#       发表于 2020-6-14 05:36
+
+
+
+
+尾一其随
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18674#       发表于 2020-6-14 06:45
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-14 06:47 编辑 
+
+昨晚果然还是有三期夜间杂谈的啊而且时间不短，预估了下时间直接睡了果然是正确的选择。
+https://twitter.com/kutar22/status/1271755253474451458?s=19
+https://twitter.com/NAMCOOo/status/1271839320266043393?s=19
+<img src="https://p.sda1.dev/0/eb51dfc91ada52dc877f3474ee07cebe/IMG_8A19F24B762E06687B406593F3472988.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/46c372826063751b12e4b2e7630e1d58/IMG_3DD351223423BFACD5AE6F8306766BC0.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 18675#       发表于 2020-6-14 07:04
+
+
+
+
+不是，谁给我解释解释为啥贵楼楼友这么喜欢宫斗剧戏码，太怪了，我以为死宅不好这口呢
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18676#       发表于 2020-6-14 07:40
+
+
+
+ 本帖最后由 opersuper 于 2020-6-14 07:54 编辑 
+
+KPI偶像圈子车不仲是传统艺能为什么是传统艺能，因为yhm酷爱搞小团体人前人后的一套。
+
+
+
+V圈爱看贴贴和仲良し那么多，实际会来当主播的yhm阴角为主，木口必然有不少数字逼出来的营业车一车不是很正常。
+
+彩虹这种小团体加关系不好的老死不相往来还稍微真实点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 18677#       发表于 2020-6-14 07:45
+
+
+
+
+又卡页了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我把V10先存个草稿，这页翻页的时候再测试下，不行再换吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18678#       发表于 2020-6-14 07:56
+
+
+
+
+其实这楼宫斗编的也不算多，基本都是为了安排狐皇欺凌别人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 18679#       发表于 2020-6-14 07:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不知火3D熟肉出了，这也太快了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 18680#       发表于 2020-6-14 07:58
+
+
+
+
+然而狐狸是最没理由欺凌的，所以你会发现，实际上车狐狸是为了给狐狸养gachi<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18681#       发表于 2020-6-14 08:02
+
+
+
+
+不过狐皇关联的社内力关系虚空车确实是v综特有的虚无talk吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">V综养gachi学说
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 18682#       发表于 2020-6-14 08:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">因为白上桑是少主啊，所以她“吾心吾行澄如明镜，所作所为皆为正义”，其他人则大多是为了自己的小确幸。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这就引出了公利和私利的冲突，就如人与天对抗，有人屈服，有人蛰伏伺机，而有人偏要逆天而行。这是勇气的赞歌，是人类史的重演。所以需要编排，需要记录，或者捏成自己喜欢的故事，然后享用。
+
+
+
+
+
+
+
+-----
+
+####  Porsche  
+##### 18683#       发表于 2020-6-14 08:39
+
+
+
+
+anmr这个猜价格企划真的棒，你们这些车轱辘能不能也稍微往前滚一滚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 18684#       发表于 2020-6-14 08:49
+
+
+
+
+我上次就提出猜想了，楼里的人除了我都是棋手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+而楼友最想见的场面是：在国际象棋的棋盘前，一个人拿起棋子，落棋后，“Checkmate.悪いけど、私の勝ちだ”，棋盘另一边的人苦笑一声，叹了口气。这时败者的电话响了，败者接了电话后脸色愈发难看，而胜者的脸上露出了一丝不易察觉的诡异的笑。就是这样，对吧？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18685#       发表于 2020-6-14 08:53
+
+
+
+
+不知道为什么总感觉黑宝描述的有点gaygay的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 18686#       发表于 2020-6-14 09:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797257&amp;ptid=1938145" target="_blank">crito 发表于 2020-6-14 08:53</a>
+
+不知道为什么总感觉黑宝描述的有点gaygay的</blockquote>
+你带着gay眼镜，看什么都是gay<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 18687#       发表于 2020-6-14 09:13
+
+
+
+ 本帖最后由 winda 于 2020-6-14 09:18 编辑 
+
+●●●●●の闇
+
+<img src="https://img.saraba1st.com/forum/202006/14/091134dzjivjkznu2kviga.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dotlive1.jpg</strong> (16.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:11 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091135i3jdedm3e3ikizmj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dotlive2.jpg</strong> (20.15 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:11 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091750ed03l6cg11p0u3qh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>dotlive3.jpg</strong> (20.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:17 上传
+
+
+
+
+
+
+
+にじさんじの闇
+
+<img src="https://img.saraba1st.com/forum/202006/14/091242ollnqjny7xj3411z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>nijisanji.jpg</strong> (14.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091243bmuznzyz3anubi4i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>nijisanji1.jpg</strong> (29.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091243yn00p6920xthpmph.jpg" referrerpolicy="no-referrer">
+
+
+<strong>nijisanji2.jpg</strong> (46.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091243oumadr1z1n4rtpm4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>nijisanji3.jpg</strong> (11.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:12 上传
+
+
+
+
+
+
+あにまあれの闇
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091207ll6d3sebtz81dz31.jpg" referrerpolicy="no-referrer">
+
+
+<strong>anmr1.jpg</strong> (13.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:12 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/091208ieep8eoozwxck1x3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>anmr2.jpg</strong> (113.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:12 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 18688#       发表于 2020-6-14 09:34
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/093401art5grtlctlhdg56.jpg" referrerpolicy="no-referrer">
+
+
+<strong>XQlwhtM.jpg</strong> (63.39 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:34 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/093401a4w8q8u30w3nl34g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>xQjNh7a.jpg</strong> (89.53 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 09:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18689#       发表于 2020-6-14 09:39
+
+
+
+
+为什么喜欢车狐狸，原因很多很复杂。
+首先狐狸是很多杏仁第一个认知的holoV，杏仁甚至很多一般通过或多或少都看过狐狸直播，这就有了被车的人数基础。
+其次夏吹在国内毫无疑问还是属于热门CP的，两个单拎出来也有一定的人气，meaqua逐渐式微的今天夏吹接过kpi大旗理所当然。而夏吹延伸出的问题也和meaqua一样或者更甚，毕竟夏吹前世不是有福同享有难同当的小偶像，加上中之人年龄差距大和mio的存在，又让工具营业感成倍增加，最后导致贴贴营业的反噬。
+然后就是杏星，就算不是专门来看百合的，你突然往播了好久的魔法少女动画里塞几个魔法少年，也肯定会有人受不了，积极联动的狐狸就是个大靶子。
+与此相关的另一个就是箱内关系，狐狸现在毫无疑问是holo箱内头牌，又一直被认为代表运营意志。去年狐狸的箱推操作大体没毛病，但现在一二期支离破碎，很多人直播变的断断续续，okfams都让船长去代班了，aki和巧克是龙皇拉的，这种情况下狐狸高强度的星互动就显得更加与其他杏女脱轨。
+而狐狸自己的直播，现在真的和以前不一样了，不是我眼里有梁木，说好听叫展现自我，在一定程度上改变了对白上吹雪这张皮的塑造。当然这不全是她的问题，也和她现在的《位置》有关，社内劳苦功高的大前辈和整日卖萌的小狐狸形象的确原本就是割裂的，顺便现在这张老年人皮也要背点锅。
+剩下的什么功利论啦yygq啦胖狐狸啦，都称不上原因而是结果，车这些真的也就是车一车发散一下。
+最后不得不说个人对她的怨念有一部分来自于我觉得我和她眼中的未来不是同一个，那种强烈的要被丢弃的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 18690#       发表于 2020-6-14 09:40
+
+
+
+
+你又不是🌽人，你跟🦊有个毛线的未来？
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 18691#       发表于 2020-6-14 09:45
+
+
+
+
+郡道历时11小时终于大四喜耐久成功 等晚上被sio虐了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 18692#       发表于 2020-6-14 09:47
+
+
+
+
+狐皇阿b和404的订阅全社第一又不是假的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 18693#       发表于 2020-6-14 09:50
+
+
+
+
+用夏吹接替meaqua是不是搞错了什么(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 18694#       发表于 2020-6-14 09:51
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-14 09:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797559&amp;ptid=1938145" target="_blank">erer 发表于 2020-06-14 09:40:47</a>
+你又不是🌽人，你跟🦊有个毛线的未来？</blockquote>🦊要肯多养养gachi大家都可以是🌽人
+我前面xjb写了这么多能不能不盯着我的小怨念<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 18695#       发表于 2020-6-14 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797644&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-14 09:51</a>
+
+🦊要肯多养养gachi大家都可以是🌽人
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+你看她会吗？少做梦。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18696#       发表于 2020-6-14 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797640&amp;ptid=1938145" target="_blank">Mr.shelter 发表于 2020-6-14 09:50</a>
+
+用夏吹接替meaqua是不是搞错了什么(눈_눈)</blockquote>
+夏吹接替meaqua X
+
+
+劈夏吹接替劈meaqua √
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18697#       发表于 2020-6-14 09:53
+
+
+
+
+才不想和中年萌音坦克有什么未来呢<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  PekoPekoPeko  
+##### 18698#       发表于 2020-6-14 09:55
+
+
+
+
+其实小狐狸中之人劣势太大，小肥妹要是有野心的话完全可以食杀🌽的，可惜肥妹脑子真的不好
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 18699#       发表于 2020-6-14 09:56
+
+
+
+
+中之人木口优势最大的towa正在直播，能看下ma
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 18700#       发表于 2020-6-14 09:57
+
+
+
+
+然后中之人劣势这么大的肥狐狸坐上了直播管人界的第一把交椅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18701#       发表于 2020-6-14 09:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797683&amp;ptid=1938145" target="_blank">PekoPekoPeko 发表于 2020-6-14 09:55</a>
+
+其实小狐狸中之人劣势太大，小肥妹要是有野心的话完全可以食杀🌽的，可惜肥妹脑子真的不好 ...</blockquote>
+这不是毫无用处的废话，只要脑子“够好”，谁谁谁都能可以食杀谁谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 18702#       发表于 2020-6-14 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797541&amp;ptid=1938145" target="_blank">bluebaby 发表于 2020-6-14 09:39</a>
+为什么喜欢车狐狸，原因很多很复杂。
+首先狐狸是很多杏仁第一个认知的holoV，杏仁甚至很多一般通过或多或少 ...</blockquote>
+真情实感好评
+想问一下眼中的未来是指？
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18703#       发表于 2020-6-14 10:01
+
+
+
+
+铁血crew别出警啦，今日不同往昔箱推的时代能有几个从一而终的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18704#       发表于 2020-6-14 10:01
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 18705#       发表于 2020-6-14 10:02
+
+
+
+
+狐皇眼中的未来就是hololive和holostars都属于holoproduction，可以名正言顺的互相联动甚至live同台的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 18706#       发表于 2020-6-14 10:03
+
+
+
+
+别回小博禹啊(눈_눈)。劈夏吹跟劈六字母本质也没啥区别吧，夏吹热度还赶不上六字母，何来接替一说
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 18707#       发表于 2020-6-14 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">综合热度来说一直都是夏吹高吧，六字母在404有过热度么，当然说不定把以前的高强度营业拿到现在人气会很高
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 18708#       发表于 2020-6-14 10:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47797746&amp;ptid=1938145" target="_blank">ひびき 发表于 2020-6-14 10:02</a>
+
+狐皇眼中的未来就是hololive和holostars都属于holoproduction，可以名正言顺的互相联动甚至live同台的未来[ ...</blockquote>
+啥时候玩一手互换avatar，把噶吃彻底逼疯吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+岂曰无衣，与子同袍<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  水藻  
+##### 18709#       发表于 2020-6-14 10:07
+
+
+
+
+都说了劈狐狸实质帮她涨粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                          
