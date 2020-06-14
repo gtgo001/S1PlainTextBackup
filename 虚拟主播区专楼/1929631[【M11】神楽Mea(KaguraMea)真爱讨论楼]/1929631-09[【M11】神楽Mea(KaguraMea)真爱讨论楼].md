@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-14 18:04** 
+> ## **本文件最后更新于2020-06-14 22:02** 
 
 
 
@@ -7627,4 +7627,1443 @@ ptr:这个咩肯定喜欢我啦
 
 
 
-                                   
+
+
+-----
+
+####  路人庚  
+##### 12436#       发表于 2020-6-14 18:04
+
+
+
+
+新推，果然还是要等anmr那边完了之后才可能会播
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12437#       发表于 2020-6-14 18:09
+
+
+
+
+至少10点以后了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12438#       发表于 2020-6-14 18:13
+
+
+
+
+胆子大一点，今夜无咩<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12439#       发表于 2020-6-14 18:41
+
+
+
+
+话说ptr主要播啥啊，没看过来着。syl吊人我再信你一次(#ﾟДﾟ)别鸽啊求求
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12440#       发表于 2020-6-14 19:01
+
+
+
+
+看今年的anmr周年总感觉有丶心酸<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12441#       发表于 2020-6-14 19:18
+
+
+
+
+对ptr的印象是奥术魔刃和合金装备
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 12442#       发表于 2020-6-14 19:36
+
+
+
+
+ptr跟你咩段位差太多 貼不起來的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+她又想認一個媽了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12443#       发表于 2020-6-14 19:49
+
+
+
+
+ptr很姨吗(눈_눈)?
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12444#       发表于 2020-6-14 19:53
+
+
+
+
+论年龄确实是姨了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12445#       发表于 2020-6-14 19:56
+
+
+
+
+转了一下noe的b限推
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12446#       发表于 2020-6-14 20:18
+
+
+
+
+【TwitterTweet 神楽めあ 推特回复】
+
+内容：@g9v9g_mirei ぽめ！！！！！！！！！！！
+
+媒体：[]
+
+链接：[]
+
+时间：2020-06-14 12:07:28 UTC
+
+网址：[https://twitter.com/KaguraMea_VoV/status/1272138586075226118](https://twitter.com/KaguraMea_VoV/status/1272138586075226118)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12447#       发表于 2020-6-14 20:18
+
+
+
+
+刚开始对如月和八乙女毫无感觉甚至还有点儿梁木，现在感觉倒也觉得有点意思，你麻眼光意外的还不错
+
+                 
+
+话说苔苔都要结婚了，ptr和兔姨她们这帮就不渴望男人么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12448#       发表于 2020-6-14 20:22
+
+
+
+ 本帖最后由 A2014720 于 2020-6-14 20:29 编辑 
+
+不要🦄真的好吗
+
+syl咩姐什么时候拐一个游戏特攻啊
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 12449#       发表于 2020-6-14 20:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804082&amp;ptid=1929631" target="_blank">Dualist彩 发表于 2020-6-14 20:18</a>
+
+刚开始对如月和八乙女毫无感觉甚至还有点儿梁木，现在感觉倒也觉得有点意思，你麻眼光意外的还不错
+
+        ...</blockquote>
+你知道ptr前世是怎麼被炎上引退的嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12450#       发表于 2020-6-14 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804195&amp;ptid=1929631" target="_blank">meatybobby 发表于 2020-6-14 20:26</a>
+
+你知道ptr前世是怎麼被炎上引退的嗎</blockquote>
+愿问其祥
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12451#       发表于 2020-6-14 20:29
+
+
+
+
+我倒是完全不了解，求详情(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 12452#       发表于 2020-6-14 20:34
+
+
+
+[https://bbs.saraba1st.com/2b/thread-1917876-1-1.html](https://bbs.saraba1st.com/2b/thread-1917876-1-1.html)
+
+內文的mmbk就是ptr前世
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12453#       发表于 2020-6-14 20:38
+
+
+
+
+小紫棉花糖半小时读完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12454#       发表于 2020-6-14 20:43
+
+
+
+
+这人挺直的啊
+
+
+
+
+
+
+
+-----
+
+####  hjcxiaowo  
+##### 12455#       发表于 2020-6-14 20:45
+
+
+
+
+什么时候有歌回啊 她不是说招的人都会唱歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12456#       发表于 2020-6-14 20:47
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-14 20:56 编辑 
+
+mea前辈有点可怕<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">一点点熟起来挺好玩的，不过棉花糖也读的太快了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12457#       发表于 2020-6-14 20:49
+
+
+
+
+看了看发言的人牌子等级跟上舰的人名，这波全是引流(눈_눈)，而且小紫初配信人气没有小绿高啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12458#       发表于 2020-6-14 20:49
+
+
+
+
+地主家也没余粮啊
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12459#       发表于 2020-6-14 20:50
+
+
+
+
+你咩可怕？ 
+
+
+谢谢， 有被笑到
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12460#       发表于 2020-6-14 20:53
+
+
+
+
+看以后吧，现在箱或者说组刚刚开始不都这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+syl小绿是有头发meaqua贴贴色和僵尸绿粽子设定的加成的啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12461#       发表于 2020-6-14 20:53
+
+
+
+
+那个舰长怕是真的石油佬(눈_눈)打钱多而且周边的人都打了。syl我突然记起有财酱是日本人的这个说法，真的吗？
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12462#       发表于 2020-6-14 20:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804195&amp;ptid=1929631" target="_blank">meatybobby 发表于 2020-6-14 20:26</a>
+
+你知道ptr前世是怎麼被炎上引退的嗎</blockquote>
+我当然知道，不过这些都过去了，环境也不一样了，没啥参考价值
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12463#       发表于 2020-6-14 20:55
+
+
+
+
+是noe也有事业民了，还是mea pro箱推人啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+多看直播,把有趣的部分剪出来,慢慢养粉等个机会起飞才是正常路线
+
+不是每个主播都是你咩姐"杂谈初配信?不用剪全熟"的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 12464#       发表于 2020-6-14 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47804240&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-14 20:29</a>
+
+我倒是完全不了解，求详情(ಡωಡ)</blockquote>
+就是你咩上位互换。不管是玩SNP还是不洗澡，精神不安定都是她玩剩下的。连粉丝性质都和天狗相似。区别就是事业心很重，为了上位什么都做得出来，对同行没少下黑手。
+
+
+Syl,咩的离异带2孩子的灵感不知道是不是来自mkt对mmbk的黑屁。毕竟她当时实际年龄18岁<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12465#       发表于 2020-6-14 20:59
+
+
+
+
+那段没仔细听，但说的不是小紫看到的咩和观众看到的差不多吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+感觉小紫和咩的关系没小绿的近啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12466#       发表于 2020-6-14 20:59
+
+
+
+
+我就问两句咋就事业心上头了呢(눈_눈)?好奇而已。另外感谢解答。倒是没想到mkt年纪这么大。现在音声也做大了，不知道对直播asmr有没有影响
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12467#       发表于 2020-6-14 21:01
+
+
+
+
+天狗武德还没mkt信那么充沛吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12468#       发表于 2020-6-14 21:02
+
+
+
+
+这感觉也没啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，mtk信都干过啥啊
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12469#       发表于 2020-6-14 21:03
+
+
+
+
+天狗老鸵鸟有个锤子战斗力，这么快就忘了v圈达利特的身份了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12470#       发表于 2020-6-14 21:05
+
+
+
+
+你麻什么时候能成为能下黑手的恨人呢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12471#       发表于 2020-6-14 21:06
+
+
+
+
+好，第一个先冲了隔壁木口，就从爆大亏的照片开始吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12472#       发表于 2020-6-14 21:06
+
+
+
+
+我坦白，你麻已经对我下黑手了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12473#       发表于 2020-6-14 21:06
+
+
+
+
+mkt信当时跟着mkt乱来冲了不少nico生吧，而且好像还出征南+
+
+当然这是我云的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12474#       发表于 2020-6-14 21:08
+
+
+
+
+出征南加是真的nb，震惊我(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12475#       发表于 2020-6-14 21:11
+
+
+
+
+【mea先辈的私下吗】
+
+【没啥差别哦】
+
+【所以虽然喜欢Mea前辈】
+
+【偶尔】
+
+【觉得可怕】
+
+【果然】
+
+【偶尔打游戏的时候】
+
+【稍微有点可怕】
+
+【但Noe喜欢Mea前辈】
+
+【这也是一种爱的表现】
+
+【信任她跟着她走】
+
+【很平淡的对话】
+
+【和大家知道的mea没啥差别】
+
+【刚才还在】
+
+【就这种感觉】
+
+【和大家知道的mea前辈没啥差别】
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩打游戏很可怕吗
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 12476#       发表于 2020-6-14 21:13
+
+
+
+
+mea：noe你不跟着我走的话，就只能跟着提莫走了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12477#       发表于 2020-6-14 21:14
+
+
+
+
+打游戏嘛，懂得都懂
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12478#       发表于 2020-6-14 21:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可怕【指lol被虐后的战争咆哮】
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12479#       发表于 2020-6-14 21:15
+
+
+
+ 本帖最后由 惑星 于 2020-6-14 21:16 编辑 
+
+如月:mea平时很正常，一打游戏就狂暴（大意）
+
+现在知道在神乐组谁被排外了吧（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12480#       发表于 2020-6-14 21:15
+
+
+
+
+我懂了，你麻其实是心机女，这个展开我觉得可以
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12481#       发表于 2020-6-14 21:19
+
+
+
+
+绿紫这描述不是一回事吗，已经串供过了吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12482#       发表于 2020-6-14 21:21
+
+
+
+
+草你们居然挖坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是你们比较心机好吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12483#       发表于 2020-6-14 21:21
+
+
+
+
+特地强调神乐组是一家人不是黑道组织，实际上组长早已威逼组员串好口供<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12484#       发表于 2020-6-14 21:21
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-14 21:25 编辑 
+
+下次建议从如月嘴里套小紫，小紫那儿套如月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道有人用脚本扒过小绿的推图没，删之前的那些
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12485#       发表于 2020-6-14 21:22
+
+
+
+
+日南粉丝还冲过南+呢
+
+
+syl，要当mkt第二，我觉得胸实在是不行
+
+
+请拿巨乳照片打我脸
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12486#       发表于 2020-6-14 21:26
+
+
+
+
+小绿发际线堪忧来着(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12487#       发表于 2020-6-14 21:26
+
+
+
+ 本帖最后由 pabier 于 2020-6-14 21:31 编辑 
+
+一个平时很污的女生打游戏无能狂怒叫起来，实际上想想还是挺牙百的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl日南粉丝也冲过吗？怎么南+一股rbq的感觉，谁都可以冲
+
+zsyl应该还是有机会的，你咩虽然以前是钢板但女大十八变不是？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12488#       发表于 2020-6-14 21:27
+
+
+
+
+前有钢板深入人心，后面巨乳照片发出来你信吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12489#       发表于 2020-6-14 21:28
+
+
+
+
+我信，发我一张吧，我巨乳控
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12490#       发表于 2020-6-14 21:28
+
+
+
+
+saya的粉丝怎么还不冲阿b呢
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 12491#       发表于 2020-6-14 21:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805124&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-6-14 21:22</a>
+
+日南粉丝还冲过南+呢
+
+
+syl，要当mkt第二，我觉得胸实在是不行</blockquote>
+早期直播风格上来说，都是用同样手段积累最初的粉丝盘子。当然你mkt姐早转型了。而且人家看不上V，毕竟有肉体本钱。
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 12492#       发表于 2020-6-14 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805175&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-14 21:26</a>
+
+一个平时很污的女生打游戏无能狂怒叫起来，实际上想想还是挺牙百的
+
+syl日南粉丝也冲过吗？怎么南+一 ...</blockquote>
+有个毛用，越冲非法盗摄，下载越多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12493#       发表于 2020-6-14 21:32
+
+
+
+
+saya可以喊上bs残余四人一起冲了麻凜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12494#       发表于 2020-6-14 21:33
+
+
+
+
+抵抗的越剧烈，被冲的越多<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12495#       发表于 2020-6-14 21:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805175&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-14 21:26</a>
+
+一个平时很污的女生打游戏无能狂怒叫起来，实际上想想还是挺牙百的
+
+syl日南粉丝也冲过吗？怎么南+一 ...</blockquote>
+以前冲过，不过现在会限录像照发不误
+
+
+不过nico其他人就没这行动力了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12496#       发表于 2020-6-14 21:36
+
+
+
+
+真冲的话麻凛照片gkd(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12497#       发表于 2020-6-14 21:37
+
+
+
+
+原来日南也冲过吗，我之前只知道mkt冲南+，南+有段时间只能用“那个女人”来代指mkt传资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在确实都回来了，之前看了mkt的裸足asmr，确实挺色的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 12498#       发表于 2020-6-14 21:44
+
+
+
+
+所以咩将来也是有可能为了生计开ASMR的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真人出镜就不要想啦
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12499#       发表于 2020-6-14 21:46
+
+
+
+
+有一说一凛子新出土的那个小红帽录像我还蛮喜欢的，所以小麻tc开色相头的录像真的没人有吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12500#       发表于 2020-6-14 21:47
+
+
+
+
+阿咩可以露火腿肠对着人头麦底座asmr吗，一定能火
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12501#       发表于 2020-6-14 21:48
+
+
+
+
+如果有转黑亡国民的话也许会放录像出来
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12502#       发表于 2020-6-14 21:48
+
+
+
+
+当初的火腿肠现在怕不是变双汇王中王了(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12503#       发表于 2020-6-14 21:49
+
+
+
+
+那应该早就有了，但是去哪了呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12504#       发表于 2020-6-14 21:50
+
+
+
+
+看隔壁nga上说ptr在mea身上看到了mkt的影子。这就是预言v圈的未来吗？那还蛮刺激的www
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12505#       发表于 2020-6-14 21:51
+
+
+
+
+话说凛子最近那个石油是谁挖的啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12506#       发表于 2020-6-14 21:52
+
+
+
+
+怎么可能，以前mkt厉害是因为同行没有能打的，现在有企业提供的支持和宣传，咩姐凭啥和人斗，守好一亩三分地不错了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12507#       发表于 2020-6-14 21:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这样比喻大家都会是败者
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mea比不上mkt的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平板怎么比
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12508#       发表于 2020-6-14 21:56
+
+
+
+
+也是，想的有点多了，mea就是一个单纯的dt处男……
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12509#       发表于 2020-6-14 21:56
+
+
+
+
+所以noe说你咩很可怕呀，虽然用打游戏时才可怕这种说法糊弄了过去
+
+铁血无情麻suki
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12510#       发表于 2020-6-14 21:58
+
+
+
+
+快进到爆noe黑料
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12511#       发表于 2020-6-14 21:58
+
+
+
+
+大腿夹麦gkd
+
+
+这评价有其他角色评价阿米驴那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12512#       发表于 2020-6-14 21:59
+
+
+
+
+所以这说法有出处吗？ptr在直播里谈mkt？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12513#       发表于 2020-6-14 21:59
+
+
+
+
+不是评价斯卡蒂的?
+
+
+
+
+
+
+
+-----
+
+####  yuanhang99  
+##### 12514#       发表于 2020-6-14 22:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47805664&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-6-14 21:58</a>
+
+大腿夹麦gkd
+
+
+这评价有其他角色评价阿米驴那味儿了</blockquote>
+大腿夹麦去学利香吧，毕竟胸部短板<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12515#       发表于 2020-6-14 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">《从八乙女noe疑似含沙射影黑屁卡古拉咩啊城府深看神乐组权力变更》
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 12516#       发表于 2020-6-14 22:01
+
+
+
+
+草，我两句分开说的啊
+
+
+后半句当然是指“很可怕”的评价对应魔王.jpg
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12517#       发表于 2020-6-14 22:02
+
+
+
+
+胸无大志无清楚无，简称麻三无
+
+
+
+
+
+                                
