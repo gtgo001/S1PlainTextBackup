@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 18:04** 
+> ## **本文件最后更新于2020-06-15 22:06** 
 
 
 
@@ -10030,4 +10030,731 @@ mea录像下面这评论草，不留档出名了么
 
 
 
-                              
+
+
+-----
+
+####  路人庚  
+##### 12574#       发表于 2020-6-15 18:04
+
+
+
+
+麻将好，希望mea能开台（刚刚学会了日麻，终于能吃新鲜的升压药了
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12575#       发表于 2020-6-15 18:06
+
+
+
+
+double freeze
+
+
+
+
+
+
+2077bf8cb7c45dfb.jpg
+(37.67 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-15 18:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/180626djai0j8n8iyjqsja.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12576#       发表于 2020-6-15 18:11
+
+
+
+
+骚动的绵羊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12577#       发表于 2020-6-15 18:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看起来是个拐
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">不过自古拐里出挂壁
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强度民狂喜
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12578#       发表于 2020-6-15 18:13
+
+
+
+
+看起来挺牌面的，如果有aoe技能就是万能主攻手了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12579#       发表于 2020-6-15 18:16
+
+
+
+
+骚羊不确定性很强啊
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12580#       发表于 2020-6-15 18:16
+
+
+
+
+可以和上期白雪公主配合光速叠buff
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12581#       发表于 2020-6-15 18:22
+
+
+
+
+设计师老羊党了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12582#       发表于 2020-6-15 18:26
+
+
+
+
+羊党站起来了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12583#       发表于 2020-6-15 18:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为不是火系就是暗系，居然是水系，这个不爱洗澡的家伙为什么会是水系啊
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 12584#       发表于 2020-6-15 18:32
+
+
+
+
+冰融化了是水
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12585#       发表于 2020-6-15 18:46
+
+
+
+
+咩是水，夸也是水，是******贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12586#       发表于 2020-6-15 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47807539&amp;ptid=1929631" target="_blank">M829A4 发表于 2020-6-15 01:13</a>
+
+闪电十一人是这种漫画吗
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+闪电十一人不是homo漫画吗<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+syl，警惕和平演变手游讨论楼
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12587#       发表于 2020-6-15 19:41
+
+
+
+
+前两天上去玩了玩发现系统有点小复杂，就转头先去玩别的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等mea活动再来看看
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12588#       发表于 2020-6-15 19:44
+
+
+
+
+啊 我是弱智
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12589#       发表于 2020-6-15 19:55
+
+
+
+
+睡梦中梦见了十首歌<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Jo鸽  
+##### 12590#       发表于 2020-6-15 20:04
+
+
+
+
+播了 歌会 术力口
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12591#       发表于 2020-6-15 20:04
+
+
+
+
+不是梦，要唱了
+[https://www.youtube.com/watch?v=rUkAY4ADk1I&amp;feature=youtu.be](https://www.youtube.com/watch?v=rUkAY4ADk1I&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12592#       发表于 2020-6-15 20:07
+
+
+
+
+好！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12593#       发表于 2020-6-15 20:07
+
+
+
+
+草有事看不了，nmd我要anti了混蛋(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12594#       发表于 2020-6-15 20:07
+
+
+
+
+突
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12595#       发表于 2020-6-15 20:08
+
+
+
+
+好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12596#       发表于 2020-6-15 20:11
+
+
+
+
+啊，咩感受到我的思念了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12597#       发表于 2020-6-15 20:12
+
+
+
+
+安定的傍晚起床，不知道跟苔苔完了之后会不会有tc（）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12598#       发表于 2020-6-15 20:21
+
+
+
+
+幽灵法则<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12599#       发表于 2020-6-15 20:22
+
+
+
+
+是接下来要和苔姨参加的恐怖游戏太紧张了要先播会吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">gachi了
+
+
+syl转nga  方舟指令相关
+
+刷图已经确定是T0级辅助，如果有aoe就可能是T1级别输出
+
+打boss至少是T1级别输出
+
+补一下刷图搭配建议方面：以老玩家的角度看，随便两个带aoe技能的人都能和mea搭，效果都不会差。当然另两个人越强越好。
+
+脑补一下mea，aqua，meu能不能组队:如果meu有aoe技能那一定可以组，但是应该不是mea配队最强的配法(不像hololive队基本上就是三人最强配法了)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12600#       发表于 2020-6-15 20:43
+
+
+
+ 本帖最后由 A2014720 于 2020-6-15 21:00 编辑 
+
+才注意到关sc了
+
+鬼佬浓度又上来了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12601#       发表于 2020-6-15 21:08
+
+
+
+
+今天怎么想起来关sc了？是要留一次档么？
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 12602#       发表于 2020-6-15 21:17
+
+
+
+
+每听一次芭蕾舞者都要吐槽一次那首合唱苔苔唱得实在太姨了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12603#       发表于 2020-6-15 21:24
+
+
+
+
+那首要是能重混一下其实挺好听的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12604#       发表于 2020-6-15 21:26
+
+
+
+
+苔苔和人合唱都一股伴唱感，正常
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12605#       发表于 2020-6-15 21:30
+
+
+
+
+困个🔨，联动别想逃
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12606#       发表于 2020-6-15 21:35
+
+
+
+
+妹啊，你瞎叫什么呢w
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12607#       发表于 2020-6-15 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">为什么要这样摧残自己的嗓子
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12608#       发表于 2020-6-15 21:43
+
+
+
+
+年龄大了，回不去16岁了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 12609#       发表于 2020-6-15 21:48
+
+
+
+
+16岁？哨戒班吗，哨戒班是14岁唱的啊
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12610#       发表于 2020-6-15 21:49
+
+
+
+
+这叫的，想给她来两拳<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12611#       发表于 2020-6-15 21:50
+
+
+
+
+待会苔浓度就要上升了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12612#       发表于 2020-6-15 22:01
+
+
+
+ 本帖最后由 Ky·Kiske 于 2020-6-15 22:05 编辑 
+
+完美错过
+
+怎么又是这种廉价小品恐怖游戏。。。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12613#       发表于 2020-6-15 22:06
+
+
+
+
+???
+
+
+
+
+
+
+72ad096a-681c-4721-a7dc-5b18362ab891.jpg
+(28.64 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-15 22:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/220609u2zfq25wqe2xxd6d.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+                             
