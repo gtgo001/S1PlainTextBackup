@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 00:11** 
+> ## **本文件最后更新于2020-06-16 02:11** 
 
 
 
@@ -4666,10 +4666,11 @@ star已经不够满足狐皇了，狐皇的攻略对象是时候该转向虹男�
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| alcoholic1000|-1|思路广|
 | 2L模仿47哥|-1|好评加鹅|
 
 
@@ -5028,10 +5029,11 @@ QQ图片20200615231308.jpg
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| sisyphus_| + 1|欢乐多|
 | Zaphikel| + 1|卧槽！i了i了|
 
 
@@ -6236,4 +6238,702 @@ mmbk最强！mmbk最强！
 
 
 
-                                       
+
+
+-----
+
+####  好德我基  
+##### 1822#       发表于 2020-6-16 00:14
+
+
+
+
+ptr的奥术本来就有这么多人听啊，可以和mkt掰掰手腕的
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 1823#       发表于 2020-6-16 00:17
+
+
+
+
+我看vtb确实有点看腻了，现在对V失去热情，连v综都懒得刷了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+以前V综十几页未读我都能兴致勃勃补看的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 1824#       发表于 2020-6-16 00:17
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/001717llz5h1khjivlojw5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200616001710.png</strong> (49.08 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 00:17 上传
+
+
+
+
+
+
+藤木小姐也跟白姨学起来了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1825#       发表于 2020-6-16 00:18
+
+
+
+
+动画和dota都能看腻，虚拟管人看腻有什么稀奇的吗
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1826#       发表于 2020-6-16 00:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真有不腻的吗，我看了一星期就腻了，现在全靠V综云，至少新鲜感多多了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  p35535  
+##### 1827#       发表于 2020-6-16 00:28
+
+
+
+
+确实，v综比管人有意思多了，有各种真情实感怪文书，还有发狂艺，不像管人全是演的。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 1828#       发表于 2020-6-16 00:30
+
+
+
+
+原来管人观众还是管人的上位替代么
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1829#       发表于 2020-6-16 00:30
+
+
+
+
+格差社会
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/003048b2sjbud20s22odtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EZ_YBOtUcAA4fun.jpg</strong> (164.23 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 00:30 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1830#       发表于 2020-6-16 00:31
+
+
+
+
+看你楼祭丝发疯有感，朋友圈里一个老哥以前天天对夏哥发情画fanart，现在已经是立派的星咏者和野兔子了，管人无情管人粉更无情啊
+
+
+
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 1831#       发表于 2020-6-16 00:31
+
+
+
+
+凑阿夸联动也推迟了啊，看来又到了合同谈判期。今年来的时间有点早啊。
+
+不过时代变了啊。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 1832#       发表于 2020-6-16 00:32
+
+
+
+<img src="https://s1.ax1x.com/2020/06/16/NPab5D.png" referrerpolicy="no-referrer">
+
+
+はあちゃま少喝点假酒
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1833#       发表于 2020-6-16 00:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/003230sgxim9olsrlozq98.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616013218.jpg</strong> (38.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 00:32 上传
+
+
+
+
+
+
+
+跟狐狸学坏了
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 1834#       发表于 2020-6-16 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820294&amp;ptid=1941579" target="_blank">nevp 发表于 2020-6-16 00:31</a>
+
+看你楼祭丝发疯有感，朋友圈里一个老哥以前天天对夏哥发情画fanart，现在已经是立派的星咏者和野兔子了，管 ...</blockquote>
+说不定也是被斩杀的独角兽呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 1835#       发表于 2020-6-16 00:36
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-16 00:38 编辑 
+
+观隔壁楼疯狂劈倪哥有感，其实小肥妹还算好，毕竟没开个和律可的圣诞节约会直播间挂个一年恶心祭丝<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+感觉祭丝老哥阿叔可以学习下隔壁天狗，他们反正就是疯狂双标，无视咩做的事，死命追着倪哥骂，你们也可以无视祭做的事情，疯狂辱骂律可呀，把自己的不爽全部转化为对星的辱骂和恨意，就可以像隔壁的天狗们一样叫着meamea快乐的活下来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1836#       发表于 2020-6-16 00:39
+
+
+
+
+马自立确实胡闹粉丝发疯也就算了，大天使突出一个铁石心肠执行力强，对自己要的东西和规划比谁都清楚，crew当不成怪物家长自己发疯能怪谁。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 1837#       发表于 2020-6-16 00:46
+
+
+
+
+铁石心肠执行力强，最后还是输给了大家庭粉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1838#       发表于 2020-6-16 00:47
+
+
+
+
+执行力确实强，说不播绝对一动不动，说白了发疯不就因为她不播吗，绫总摸余绫人也疯，梅露不播字幕组都疯了，说白了还是管人粉丝太闲
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 1839#       发表于 2020-6-16 00:51
+
+
+
+
+还是差一手养gachi，这时候里垢随便说两句，粉丝不就都被干住了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 1840#       发表于 2020-6-16 00:54
+
+
+
+
+楼里的11岁粉丝呢？听什么ptr，去听11岁用黑3dio念绕口令啊！
+
+（[https://www.youtube.com/watch?v=ODgQRFzhn98](https://www.youtube.com/watch?v=ODgQRFzhn98)）
+
+
+郡道体调不良，好寂寞的夜晚...
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1841#       发表于 2020-6-16 00:55
+
+
+
+
+不播的时候夸夸相信crew不会因为这点肉猪跑掉，但crew反过来不相信主播。
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 1842#       发表于 2020-6-16 00:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">之前阿夸除了点赞一张碧蓝航线火奴**图以外直接渺无音信的休息直接让我从crew毕业···
+
+          那段时间是真的能让人有感受到毕业的感觉··从播爆到突然就没得看杀伤力真的MAX。
+
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 1843#       发表于 2020-6-16 00:58
+
+
+
+
+就当夏窗或者冬歇期嘛
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1844#       发表于 2020-6-16 00:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820530&amp;ptid=1941579" target="_blank">辉耀还差3800 发表于 2020-6-16 00:58</a>
+就当夏窗或者冬歇期嘛</blockquote>
+暗示转会？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 1845#       发表于 2020-6-16 01:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年还能闹下罢训，今年大亏这种极致利己主义者不会看不清吧，应该是真的忙，当然是忙live还是忙别的就不好说了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 1846#       发表于 2020-6-16 01:03
+
+
+
+
+不是不想听，菜姐姐的滴答滴答秒针音要了老命了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kesoi  
+##### 1847#       发表于 2020-6-16 01:13
+
+
+
+
+忙到推特敷衍都懒得敷衍，该说不愧是你吗
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1848#       发表于 2020-6-16 01:15
+
+
+
+
+又来了一个anti,crew命苦<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1849#       发表于 2020-6-16 01:15
+
+
+
+
+已经有进步了，上次就只有点个赞，这次好歹还有日记看，证明推还没被运营回收
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1850#       发表于 2020-6-16 01:22
+
+
+
+
+说实在的，你看天狗祭丝抱怨苔宝，你见过crew抱怨苔宝吗？
+
+
+因为大亏比苔宝懂多了。哪像肥希看着就觉得傻。大家年纪都差不多，怎么差距就这么大呢？
+
+
+
+syl，管人是装的，管人观众就不是装的吗。你看2000不是在rp？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1851#       发表于 2020-6-16 01:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">你这不是在说夸夸心机比苔苔重吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 1852#       发表于 2020-6-16 01:30
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-16 01:32 编辑 
+
+为什么夸宝这么精明而她的同事和朋友却...<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+是家庭吗？ 是家庭吧？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+总不会是因为教育吧？ <img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+也许是基因？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1853#       发表于 2020-6-16 01:32
+
+
+
+
+有些事你不得不承认是生来就有的一些区别<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1854#       发表于 2020-6-16 01:35
+
+
+
+
+咱觉得萝卜子要是好好养噶吃肯定很强，她那个声音听着就感觉要被脑控了
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1855#       发表于 2020-6-16 01:37
+
+
+
+
+早期的时候海苔男和阿夸聊天好像还是被劝导的那一方，说阿夸鼓励她一定能伸びる
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 1856#       发表于 2020-6-16 01:53
+
+
+
+
+当年的木口还是三四线小箱，说大亏跟海苔男都是在泥里打滚也没差。大亏那与其说是鼓励不如说是口嗨吧。就跟拉拉第一话的果皇一样。
+
+当时大亏还跟海苔男说拿她照片当手机桌面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在嘛……就是海苔男狂吹大亏了。前几天tc还在说没想到亏能到前十。
+
+
+其实我是苔夸暗黑贴贴人<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1857#       发表于 2020-6-16 01:57
+
+
+
+ 本帖最后由 睥睨寰宇荡红尘 于 2020-6-16 02:07 编辑 
+
+怎么遍地都在车夸皇，还是mk2碎碎念了一万次的东西，都要看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+夸皇爱财，取之有道，crew愿意打钱不是一个愿意打一个愿意挨吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这是大家双向选择选择出来的啊。别嫌弃大亏无情啊，这波不是正在双向选择吗，活下来的才是好crew
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 1858#       发表于 2020-6-16 02:08
+
+
+
+
+兔子的影廊总算打完了，灵魂的渊业那关真的难到恶心，两天花了五个多小时才过去，搞得我现在满脑子都是香香桑摇铃铛的声音
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1859#       发表于 2020-6-16 02:09
+
+
+
+
+mk2多多rp吧，这力度还行，我小黑屋已经挤满了你的小号，不想再加了<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                      

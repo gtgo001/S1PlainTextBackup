@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 00:04** 
+> ## **本文件最后更新于2020-06-16 02:03** 
 
 
 
@@ -11577,10 +11577,12 @@ yysy啊，赤坂老师漫画吹爆好吧
 
 
 
- 参与人数 9战斗力 -10
+ 参与人数 11战斗力 -13
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Sanguine|-1|心疼老哥|
+| 上坂蓮華|-2|那可太聪明了|
 | ColdAir|-1|请认准唯一指定好朋友|
 | pabier|-1|欢乐多|
 | 时雨rain|-1|麻喜欢乱∠和爸爸活?这可不能乱说.|
@@ -12697,4 +12699,668 @@ syl翻了翻是这个月11号的杂谈吧，用了中国女王的那个，如果
 
 
 
-                         
+
+
+-----
+
+####  时雨rain  
+##### 12725#       发表于 2020-6-16 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">按你楼说的，尼哥那时应该退了，无感
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不过你麻那挂的直播间我也不想去，如果背景是个绿仙我天天去那发早安
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12726#       发表于 2020-6-16 00:06
+
+
+
+
+对苔梁木还是别轻易减的好，因为你咩姐跟白雪棉花糖回聊到后面基本就是你咩姐自己随意发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">白雪则是肉眼可见的紧张，喷麦都喷了不少次（当然喷麦可能是个人特色，毕竟我不怎么熟白雪
+
+
+其实大概也没啥骑虎难下的，你咩姐就没怂过
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12727#       发表于 2020-6-16 00:07
+
+
+
+
+她那次演技确实吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+才6月唉，下半年都有啥还不好说
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12728#       发表于 2020-6-16 00:07
+
+
+
+
+对苔梁木为什么要砍,这一串恐怖游戏我都可以倒点黑泥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12729#       发表于 2020-6-16 00:07
+
+
+
+
+怎么突然骑虎难下了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你mea姐又不是没拒绝过各种人的联动，无非是看想不想而已
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mea刚开直播时是怎么说的啊，要我感觉mea对这尼哥就没啥感觉，整活了就玩玩，不整活就是空气人罢了
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 12730#       发表于 2020-6-16 00:08
+
+
+
+
+保持无视就好，去年开的聊天直播间最后也没开台啊，就当没有那个预定直播间就完事了。
+至于那货为啥也开个直播间，管不着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也不想理会
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12731#       发表于 2020-6-16 00:09
+
+
+
+
+这只是个板栗人，只能希望他-300w了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12732#       发表于 2020-6-16 00:10
+
+
+
+
+而且是和彩虹运营商量了不是和你咩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还能说啥呢
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12733#       发表于 2020-6-16 00:12
+
+
+
+
+那没啥说的，那个彩虹运营也得死
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12734#       发表于 2020-6-16 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">行，彩虹提前一天爆炸
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12735#       发表于 2020-6-16 00:19
+
+
+
+
+为什么要和运营商量挂这个我想不通<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 12736#       发表于 2020-6-16 00:24
+
+
+
+
+这尼哥是真的不行。可能是这楼里除了小博鱼分身以外最让人不适的人了。
+彩虹真的有给个人担当的运营吗？想想就不适。
+
+还是想想联动吧，赤坂不能张嘴整活是真的遗憾，这人搞直播肯定相当有乐子。不过台本一定是苔苔写吗，论剧情设计和趣味，赤坂不是吊打虚无一物海苔男？
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12737#       发表于 2020-6-16 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">因为挂这个需要向运营负责但不需要向mea负责啊，真是方便呢
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12738#       发表于 2020-6-16 00:26
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-16 00:32 编辑 
+
+？？？
+你麻自己挂念着和倪哥的圣诞节，硬着要恶心粉丝也不愿意关<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">天狗真就看不见呗
+反正找个靶子打就行了，可惜你麻一想着今年圣诞节可以享用倪哥的**，就快乐得完全不想考虑粉丝们呢
+
+看你楼久了，真心觉得自己的三观都要被颠覆了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12739#       发表于 2020-6-16 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820025&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-6-16 00:08</a>
+保持无视就好，去年开的聊天直播间最后也没开台啊，就当没有那个预定直播间就完事了。
+至于那货为啥也开个 ...</blockquote>
+你看着不觉得恶心吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12740#       发表于 2020-6-16 00:31
+
+
+
+
+还有人一换一吗，这个是老号了吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|别理他了，找个机会举报掉|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12741#       发表于 2020-6-16 00:33
+
+
+
+
+一换一制度已经不再执行了，专楼巨魔建议举报or屏蔽
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12742#       发表于 2020-6-16 00:34
+
+
+
+
+不是举报根本不管来着吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12743#       发表于 2020-6-16 00:35
+
+
+
+
+直接举报啊，他出来巨魔一回我就举报一回，挺长一段时间了我也没被封<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几天他不就专楼拉屎送进去过么
+
+或者你楼直接拉个二三十权限
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12744#       发表于 2020-6-16 00:36
+
+
+
+
+yysy我是觉得拉个权限完事，这哪还有新人来啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12745#       发表于 2020-6-16 00:36
+
+
+
+
+这东西大概是个机器人吧，学巨魔给学坏了
+
+没tc了，没了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12746#       发表于 2020-6-16 00:36
+
+
+
+
+自从路人子在外面发了那个贴之后，举报就稍微有点用了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 12747#       发表于 2020-6-16 00:37
+
+
+
+
+拉个30权限呗
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12748#       发表于 2020-6-16 00:37
+
+
+
+
+拉个权限就好 感觉小博🐟差不多进入IG退坑前的状态了 切断了他和楼的联系大概就能复归常人了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12749#       发表于 2020-6-16 00:38
+
+
+
+
+举报一换一我反正觉得都不行，没有拉权限来的实在
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12750#       发表于 2020-6-16 00:40
+
+
+
+
+谁记得age45的新id是啥？
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 12751#       发表于 2020-6-16 00:47
+
+
+
+
+12400楼 414页有
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12752#       发表于 2020-6-16 00:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47799908&amp;ptid=1929631" target="_blank">RE.AGE45.MKⅠ 发表于 2020-6-14 13:15</a>
+
+开车信息还留着啊，暂时拉一下窗帘
+
+处理了啊，窗帘取消了</blockquote>
+鉴于小勃鱼各种换id跑到专楼进行巨魔行为，多数用户表示希望将m楼权限拉到30左右以防止巨魔发言。如果你觉得可行就暂时拉一段时间权限吧。
+
+
+我个人因为早就把小勃鱼屏蔽了所以一直无感，也并不反对拉权限的做法。
+
+
+
+
+
+
+
+-----
+
+####  流年似水ale  
+##### 12753#       发表于 2020-6-16 01:00
+
+
+
+ 本帖最后由 流年似水ale 于 2020-6-16 01:26 编辑 
+
+好好的人咋就疯了呢
+
+我试试一换一去
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12754#       发表于 2020-6-16 01:03
+
+
+
+
+好个锤子，小弱智来你楼的第一句话就是想看打架，一开始就有毛病
+
+
+
+
+
+
+
+-----
+
+####  RE.AGE45.MKⅠ  
+##### 12755#       发表于 2020-6-16 01:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820367&amp;ptid=1929631" target="_blank">thisisaspider 发表于 2020-6-16 00:37</a>
+
+拉个权限就好 感觉小博🐟差不多进入IG退坑前的状态了 切断了他和楼的联系大概就能复归常人了 ...</blockquote>
+那就拉到那一天为止吧
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12756#       发表于 2020-6-16 01:08
+
+
+
+
+草，小弱智叫的还有点萌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能持之以恒弱智两个多月，不知道拉权限后他还能埋伏多久
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 12757#       发表于 2020-6-16 01:13
+
+
+
+
+总觉着小弱智会掏出个120权限号继续恶心你们，自从他确认自己和版主在恶心v版用户方面是同一战线后他干出啥事来我都不奇怪
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 12758#       发表于 2020-6-16 01:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正我已经默认他是版主亲爹了，为了kpi可以到处拉屎没人管
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 12759#       发表于 2020-6-16 01:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">然而鹅版app好像没法拉黑
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12760#       发表于 2020-6-16 01:23
+
+
+
+
+小nt不次学到一个新词就会来楼里和我们分享吗🙃，这么好的一个宝宝你们怎么能撕破他的遮羞布，气抖冷
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12761#       发表于 2020-6-16 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820686&amp;ptid=1929631" target="_blank">llconforever 发表于 2020-6-16 01:23</a>
+然而鹅版app好像没法拉黑</blockquote>
+鹅版长按头像
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12762#       发表于 2020-6-16 01:44
+
+
+
+
+气冷抖，苔宝也拉mea整蛊啊，怎么就针对倪哥。
+
+哦，早就已经在喷苔宝了，那没事了
+
+
+
+
+
+                        
