@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 16:12** 
+> ## **本文件最后更新于2020-06-15 18:15** 
 
 
 
@@ -2396,7 +2396,7 @@ Arkダウンロード始めたら待機時間やばい事になり始めたぞ
 
  本帖最后由 alcoholic1000 于 2020-6-14 14:54 编辑 
 
-<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_V8hp1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_DtauJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_uRWor" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_JFP01" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 原作者又把这张图转了出来，可惜已经少人了
 [https://twitter.com/amadori_vtb/ ... 99310123008/photo/1](https://twitter.com/amadori_vtb/status/1198612199310123008/photo/1)
@@ -20450,7 +20450,7 @@ holo在b早就没有以前的势头了，很正常<img src="https://static.sarab
 黛 灰(まゆずみ かい)@にじさんじ
 
 @mayuzumi_X【悲報】いちからの更衣室、怖い。
-<img src="https://pbs.twimg.com/media/EaiVIVsUwAAWcVb?format=jpg&amp;name=large" id="aimg_C3Ugq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EaiVIVsUwAAWcVb?format=jpg&amp;name=large" id="aimg_xdi1X" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
@@ -20787,4 +20787,2275 @@ yagoo藏的牛终于要拿出来了吗。
 
 
 
-              
+
+
+-----
+
+####  bluebaby  
+##### 1081#       发表于 2020-6-15 16:12
+
+
+
+
+看了眼双马尾粽子，sc爆表了要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不知道其他几个新衣服发表要隔多久，来得及的话阿火都有可能这个月千万sc<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+话说夸live没有新衣服的话我建议crew去炎一炎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1082#       发表于 2020-6-15 16:12
+
+
+
+
+请问crew可以开始发疯了吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1083#       发表于 2020-6-15 16:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">双马尾好像不错的样子诶
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1084#       发表于 2020-6-15 16:14
+
+
+
+
+腿不错，裙子下方感觉结构有点复杂，好几层的样子
+
+
+省一楼，crew先别疯，说不定是event上公布
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 1085#       发表于 2020-6-15 16:15
+
+
+
+
+发图啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1086#       发表于 2020-6-15 16:15
+
+
+
+
+没事，四期信和crew一起疯。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1087#       发表于 2020-6-15 16:16
+
+
+
+
+cover真是傻狗公司
+
+fantasy这种箱中箱找个周六日搞接力不香吗
+
+就想着让韭菜钱包缓缓劲
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1088#       发表于 2020-6-15 16:16
+
+
+
+
+手机比较糊，前面网页里也有。
+
+
+
+
+
+
+-zue37Q5-jje7KlToS7h-f3.png
+(26.52 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-15 16:16 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/161628zqd0tdmdcwumpoc7.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1089#       发表于 2020-6-15 16:16
+
+
+
+
+双马尾，先好为敬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1090#       发表于 2020-6-15 16:17
+
+
+
+
+夸哥你好惨啊！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 1091#       发表于 2020-6-15 16:18
+
+
+
+
+草我都开始有梁木了，大亏的新衣服呢吐出来啊混蛋<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1092#       发表于 2020-6-15 16:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谢谢holo运营又来给我心上捅一刀。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1093#       发表于 2020-6-15 16:18
+
+
+
+
+四期还没满一周年呢，疯啥疯
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1094#       发表于 2020-6-15 16:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">狐狸也快有新衣服了
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1095#       发表于 2020-6-15 16:20
+
+
+
+
+那么问题来了，是四期先有新衣服呢还是夸先有新衣服呢
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 1096#       发表于 2020-6-15 16:20
+
+
+
+
+一定是holo的衣服要自己出钱，守财奴阿夸不愿掏钱才没有新衣服的！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 1097#       发表于 2020-6-15 16:20
+
+
+
+
+就一个剪影 你们就疯了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1098#       发表于 2020-6-15 16:20
+
+
+
+
+疯，都可以疯
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1099#       发表于 2020-6-15 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47813810&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-15 16:02</a>
+
+鸟的两个号怎么都死了，自尽的吗</blockquote>
+可能是看走廊那个毕业up讨论楼里的内容不爽吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1100#       发表于 2020-6-15 16:21
+
+
+
+
+我记得前两天润gachi还说这个月打钱有点多要克制一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天就要真香了
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 1101#       发表于 2020-6-15 16:22
+
+
+
+
+三期全员新皮，我们夸夸没有的吗？
+
+本精神crew要🥜😈了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1102#       发表于 2020-6-15 16:22
+
+
+
+
+是夸皇这种有个牛逼又勤快的爹但就是没新皮惨，还是小肥妹这种有个不靠谱的爹新皮难看惨  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1103#       发表于 2020-6-15 16:24
+
+
+
+
+当然是35这种连爹都确定不了的惨了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1104#       发表于 2020-6-15 16:25
+
+
+
+
+夸父之前是没空，那个手游关服后看起来是闲下来了，摸鱼频率高了不少，新衣服大概在安排了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1105#       发表于 2020-6-15 16:25
+
+
+
+
+该开始车v和画师不仲论了
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1106#       发表于 2020-6-15 16:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814080&amp;ptid=1941579" target="_blank">面具13 发表于 2020-6-15 16:20</a>
+一定是holo的衣服要自己出钱，守财奴阿夸不愿掏钱才没有新衣服的！</blockquote>
+这个可能性其实也不是没有，当然不一定是因为守财奴也有可能是因为懒，嘴上说说就算了，谁知道crew是真想要新衣服啊，带天使心中暗道不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1107#       发表于 2020-6-15 16:25
+
+
+
+
+夸父勤奋是都去卖了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1108#       发表于 2020-6-15 16:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">22姐都梁木丛生了 感觉还是夸夸惨
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 1109#       发表于 2020-6-15 16:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1110#       发表于 2020-6-15 16:26
+
+
+
+
+童话组的爹炸了，凪白被狐皇烫改了
+
+不仲车起来没意思了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1111#       发表于 2020-6-15 16:26
+
+
+
+
+但是粽爸和夸父是一起卖的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那说不定夸的也真的在路上了呢
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1112#       发表于 2020-6-15 16:26
+
+
+
+
+看这剪影我都能感觉到润gachi要被榨干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 双重意义上
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 1113#       发表于 2020-6-15 16:26
+
+
+
+
+部分crew和部分贴贴人在橄榄holo上要达成一致了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 1114#       发表于 2020-6-15 16:27
+
+
+
+
+本木口前浪推确实有点感概，一二期的新装3D当初没有现在这样的热度和收益
+
+
+
+
+
+
+
+-----
+
+####  滑稽Captain  
+##### 1115#       发表于 2020-6-15 16:27
+
+
+
+
+V综杏星浓度又down了，遗憾
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 1116#       发表于 2020-6-15 16:29
+
+
+
+
+3期新衣服出来你楼讨论度高的反而是没有新衣服的人，这也不能怪crew有梁木吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1117#       发表于 2020-6-15 16:32
+
+
+
+
+towa今天摸了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1118#       发表于 2020-6-15 16:33
+
+
+
+
+看起来粽子这个新衣服是在为三期新衣服打头阵的样子，期待一个三期全体双马尾
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1119#       发表于 2020-6-15 16:34
+
+
+
+
+可peko本来就是双马尾啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1120#       发表于 2020-6-15 16:35
+
+
+
+
+艹，这一说不会是兔子和粽子互换改成双团子吧
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 1121#       发表于 2020-6-15 16:36
+
+
+
+
+兔子感觉有可能是散发
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1122#       发表于 2020-6-15 16:36
+
+
+
+
+想看双马尾紫宝<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1123#       发表于 2020-6-15 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814286&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-15 16:35</a>
+
+艹，这一说不会是兔子和粽子互换改成双团子吧</blockquote>
+兔子正月不就是丸子头嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1124#       发表于 2020-6-15 16:36
+
+
+
+
+兔皇正月已经团过了，别团了
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1125#       发表于 2020-6-15 16:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一个出道快2年的人一件新衣服都没有，crew对运营有梁木并不奇怪，虽然自从六字母完蛋以后我不怎么看夸皇了，但我猜测可能是去年和运营闹矛盾之后，运营滑轨后的报复吧
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1126#       发表于 2020-6-15 16:37
+
+
+
+
+peko是双马尾辫，也许新衣服会吧辫子解开
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1127#       发表于 2020-6-15 16:37
+
+
+
+
+散发好，看过几张fanart
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 1128#       发表于 2020-6-15 16:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814297&amp;ptid=1941579" target="_blank">admentus 发表于 2020-6-15 16:36</a>
+
+兔子感觉有可能是散发</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1129#       发表于 2020-6-15 16:38
+
+
+
+
+兔皇单马尾来一个，秋梨膏！
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1130#       发表于 2020-6-15 16:39
+
+
+
+
+我想象了一下，兔子单马尾比散发好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 1131#       发表于 2020-6-15 16:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814267&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-15 16:34</a>
+可peko本来就是双马尾啊</blockquote>
+马尾是松的
+<img src="https://p.sda1.dev/0/0337888d0a5f780ed6cf50e4f0d2e928/IMG_F35DAD23C4FDEB2144909065E2969E94.png" referrerpolicy="no-referrer">
+peko那是麻花辫啊
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 1132#       发表于 2020-6-15 16:40
+
+
+
+
+Aqua和运营有过什么矛盾？
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1133#       发表于 2020-6-15 16:40
+
+
+
+
+我倒觉得会是偏马尾，加散发，凸显兔子的母性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 1134#       发表于 2020-6-15 16:40
+
+
+
+
+看不出来楼里野兔子这么多
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1135#       发表于 2020-6-15 16:41
+
+
+
+
+母性马尾让我想到了某个危险发型，还是别了吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1136#       发表于 2020-6-15 16:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814353&amp;ptid=1941579" target="_blank">crito 发表于 2020-6-15 16:41</a>
+
+母性马尾让我想到了某个危险发型，还是别了吧</blockquote>
+所以加了散发阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 1137#       发表于 2020-6-15 16:43
+
+
+
+
+年功序列，指年龄<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1138#       发表于 2020-6-15 16:43
+
+
+
+
+粽子这次还能再换个绿色吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1139#       发表于 2020-6-15 16:43
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/164201io8h7hxox7bnghza.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eae5UCDUcAA6yAi.jpg</strong> (1.47 MB, 下载次数: 1)
+
+下载附件
+
+2020-6-15 16:42 上传
+
+
+
+
+
+
+ichikara首家線上51合一上線啦，性⭐感⭐荷⭐官⭐⭐在⭐線⭐發⭐牌
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1140#       发表于 2020-6-15 16:44
+
+
+
+
+楼友们，就一个剪影啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但脑子里想想确实香的不行<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1141#       发表于 2020-6-15 16:44
+
+
+
+
+我觉得船长该散发，最好配个水手服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 1142#       发表于 2020-6-15 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814392&amp;ptid=1941579" target="_blank">激光2000 发表于 2020-6-15 16:43</a>
+ichikara首家線上51合一上線啦，性⭐感⭐荷⭐官⭐⭐在⭐線⭐發⭐牌</blockquote>
+2000你终于回来啦，图不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1143#       发表于 2020-6-15 16:44
+
+
+
+
+散发和单马尾都可以的，我更倾向于散发，因为之前看过那个散发的效果图，很人妻味
+
+比起这个更想把兔耳拆了，兔耳不太行；哪天出个木口动物们的纯人类化模式吧
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 1144#       发表于 2020-6-15 16:45
+
+
+
+
+别说，抛开什么危险发型的梗，其实配个那种母性马尾的兔子想想还挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 1145#       发表于 2020-6-15 16:46
+
+
+
+<blockquote>tiro_finale 发表于 2020-6-15 16:44
+散发和单马尾都可以的，我更倾向于散发，因为之前看过那个散发的效果图，很人妻味
+
+比起这个更想把兔耳拆了 ...</blockquote>
+变成类似anmr店长的垂耳兔版本呗
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1146#       发表于 2020-6-15 16:46
+
+
+
+
+说起来有点下流
+
+我最喜欢兔皇的一点就是有点下垂的小ちち，希望新皮可以保持
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 1147#       发表于 2020-6-15 16:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814201&amp;ptid=1941579" target="_blank">滑稽Captain 发表于 2020-6-15 16:27</a>
+
+V综杏星浓度又down了，遗憾</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/15/164608fp8mwuuthx6w8ul8.png" referrerpolicy="no-referrer">
+
+
+<strong>64510.png</strong> (27.72 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-15 16:46 上传
+
+
+
+
+
+
+
+您点的杏星浓度<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 1148#       发表于 2020-6-15 16:47
+
+
+
+
+没注意过新虹男
+
+新虹男这么拉跨的吗
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 1149#       发表于 2020-6-15 16:50
+
+
+
+
+给钱就仲，没钱仲不仲？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1150#       发表于 2020-6-15 16:50
+
+
+
+
+个人喜欢折耳兔，如果是单马尾折耳兔就更棒了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 1151#       发表于 2020-6-15 16:50
+
+
+
+
+大亏有个人live,三期生有新衣服，她们都有美好的未来<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1152#       发表于 2020-6-15 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">Stars也是在一周年之前就有新衣服了，说明yagoo眼里男人都比你夸重要
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 1153#       发表于 2020-6-15 16:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/165112k5dm3tp328mbdlxy.png" referrerpolicy="no-referrer">
+
+
+<strong>ru1.png</strong> (98.11 KB, 下载次数: 2)
+
+下载附件
+
+2020-6-15 16:51 上传
+
+
+
+
+
+
+。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1154#       发表于 2020-6-15 16:52
+
+
+
+
+你们说完杏星我就看到了这个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/b8bfc6f42b25c21e18e92ef98535d578/IMG_20200615_165112.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 1155#       发表于 2020-6-15 16:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/165316uqrmsrsqlh4494zp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200615165304.jpg</strong> (44.54 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-15 16:53 上传
+
+
+
+
+
+
+好充实的一周，可惜享受不到了
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1156#       发表于 2020-6-15 16:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你有梁木了 虽然我第一反应也是...
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1157#       发表于 2020-6-15 17:02
+
+
+
+
+咱能把这憨批圆脸换掉吗？仔细一想变成憨憨脸后就没怎么看过粽子了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1158#       发表于 2020-6-15 17:02
+
+
+
+
+睡了一觉，虽然可以想见，不过官方剧透了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 1159#       发表于 2020-6-15 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814454&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-15 16:47</a>
+
+没注意过新虹男
+
+新虹男这么拉跨的吗</blockquote>
+除了haru同接都不太行，但弦月是虹的mix工具人，景玩喷喷和复古游戏的时候同接还是能上千的，杂谈可能都是核心女粉在看吧，毕竟除了头部以外虹的同接主要还是靠游戏民撑起来的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1160#       发表于 2020-6-15 17:03
+
+
+
+
+粽gachi还是pro
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 1161#       发表于 2020-6-15 17:03
+
+
+
+ 本帖最后由 opersuper 于 2020-6-15 17:04 编辑 
+
+我佐藤希最喜欢对朝我指手画脚的人说不<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 一动不动阿库娅
+
+
+
+
+
+
+
+-----
+
+####  mumulyn  
+##### 1162#       发表于 2020-6-15 17:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">钱的问题而已，说好听点叫新衣服，其实就是几个切片而已，哪来的阿猫阿狗都可以画，
+
+和原皮样式区别不大的甚至蒙皮权重都不用重新调
+
+
+你夸哥八成是坚持要原设，甚至要求重画人设，谷乡不肯出这个钱
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 1163#       发表于 2020-6-15 17:05
+
+
+
+<img src="https://p.sda1.dev/0/abe029c5d69f8c605b7a7a69cbd85f89/-1451379413.jpg" referrerpolicy="no-referrer">
+
+不是针对哪个角色，我觉得散发永远不亏
+
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1164#       发表于 2020-6-15 17:10
+
+
+
+
+实际上我觉得兔子这散发蛮怪的，远没有原皮发型和丸子头好看<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+或许是我看兔子头上少了两只耳朵不适应<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1165#       发表于 2020-6-15 17:12
+
+
+
+
+讲真不是很激动，五期到底在哪里啊yagoo
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1166#       发表于 2020-6-15 17:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814050&amp;ptid=1941579" target="_blank">erer 发表于 2020-6-15 16:18</a>
+
+谢谢holo运营又来给我心上捅一刀。</blockquote>
+？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1167#       发表于 2020-6-15 17:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关于我的签名都是不可能实现的愿望这件事，到底是哪里出了问题？
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 1168#       发表于 2020-6-15 17:14
+
+
+
+
+兔神散发是好看，但没有那个味了，当然就是想被养gachi的话那没问题
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 1169#       发表于 2020-6-15 17:14
+
+
+
+
+我连愿望都不敢列
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 1170#       发表于 2020-6-15 17:17
+
+
+
+
+夏哥除了正月那套有过新衣服吗
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1171#       发表于 2020-6-15 17:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814929&amp;ptid=1941579" target="_blank">兔耳僵尸 发表于 2020-6-15 17:17</a>
+夏哥除了正月那套有过新衣服吗
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">夏哥一开始就有一套睡衣不是吗
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 1172#       发表于 2020-6-15 17:19
+
+
+
+
+船长也是双马尾啊
+<img src="https://p.sda1.dev/0/0bbac30d2bbc698937424cfc2961d04e/IMG_3BABC79D68B7853C216486CCCF69C219.jpeg" referrerpolicy="no-referrer">
+
+感觉散发应该比较适合船长的成熟大姐姐(?)人设
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1173#       发表于 2020-6-15 17:19
+
+
+
+ 本帖最后由 ひびき 于 2020-6-15 17:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814929&amp;ptid=1941579" target="_blank"> 兔耳僵尸 发表于 2020-6-15 17:17</a> 夏哥除了正月那套有过新衣服吗  —— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 </blockquote>
+室内服啊，她让投票哪个衣服最好室内服排名第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 1174#       发表于 2020-6-15 17:19
+
+
+
+
+2000是开会开了一整天吗
+
+有没有啥猛料
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1175#       发表于 2020-6-15 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814945&amp;ptid=1941579" target="_blank"> 时雨rain 发表于 2020-6-15 17:18</a> 引用:兔耳僵尸 发表于 2020-6-15 17:17 夏哥除了正月那套有过新衣服吗  —— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ... 夏哥一开始就有一套睡衣不是吗 </blockquote>
+那是出道几个月的时候有的来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1176#       发表于 2020-6-15 17:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814929&amp;ptid=1941579" target="_blank">兔耳僵尸 发表于 2020-6-15 17:17</a>
+
+夏哥除了正月那套有过新衣服吗
+
+
+—— 来自 vivo V1824A, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+皆村凪白一丘之貉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你楼劈画技最多也是劈凪白井皇皆村，三人对新衣服的态度也是差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+建议三人组队，进出噼哩噼哩，可成就一番功名<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 1177#       发表于 2020-6-15 17:20
+
+
+
+
+虽然没什么人关心不过，梅露好像也还没衣服吧（正月除外）
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1178#       发表于 2020-6-15 17:20
+
+
+
+
+夏哥甚至有萝莉形态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1179#       发表于 2020-6-15 17:21
+
+
+
+
+梅露更新3d模型的时候附赠过一套新衣服
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 1180#       发表于 2020-6-15 17:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814978&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-15 17:20</a>
+那是出道几个月的时候有的</blockquote>
+。。。。。。。。。我的意思不是出道有两套
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1181#       发表于 2020-6-15 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814982&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-15 17:20</a>
+
+皆村凪白一丘之貉
+
+你楼劈画技最多也是劈凪白井皇皆村，三人对新衣服的态度也是差不多的
+
+建 ...</blockquote>
+和井皇并排凪白皆村感觉受到冒犯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 1182#       发表于 2020-6-15 17:22
+
+
+
+
+救命，已经没办法用总会有的安慰自己了。难道要恶堕了嘛？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1183#       发表于 2020-6-15 17:22
+
+
+
+
+皆村画的那套新衣服比凪白早了一年都不止
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 1184#       发表于 2020-6-15 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814975&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-15 17:19</a>
+
+2000是开会开了一整天吗
+
+有没有啥猛料</blockquote>
+不要爱讨论
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1185#       发表于 2020-6-15 17:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">夏哥二周年倒计时时直球向皆村喊过要新衣服了 在路上了在路上了
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1186#       发表于 2020-6-15 17:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47815042&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-15 17:23</a>
+
+夏哥二周年倒计时时直球向皆村喊过要新衣服了 在路上了在路上了</blockquote>
+不要不要，皆村拉胯可能性太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 1187#       发表于 2020-6-15 17:24
+
+
+
+<blockquote>erer 发表于 2020-6-15 17:22
+救命，已经没办法用总会有的安慰自己了。难道要恶堕了嘛？</blockquote>
+化身👿又不是救不回来，👿被大天使的光辉感召光堕重回纯良，何等美谈。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 1188#       发表于 2020-6-15 17:25
+
+
+
+
+新衣服再多又有什么用呢。
+
+0202年了，鸭鸭吊带服每次都有人来问这胸哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 1189#       发表于 2020-6-15 17:28
+
+
+
+
+祭丝还有拒绝的选项吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+erer姐真的要恶堕了啊，总觉得有点涩
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 1190#       发表于 2020-6-15 17:29
+
+
+
+
+暂时化身👿不打紧，夸皇一个live直接净化掉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1191#       发表于 2020-6-15 17:33
+
+
+
+
+要我说就是阿夸太喜欢肉猪才会让erer姐这种crew🥜😈。
+
+当年星街刚进innk被黑🐸各种挤兑的时候直接就在直播里把话说开了，粉丝自然知道情况倒底是什么样，要飞谁的🐎，大家心态都很健康。
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1192#       发表于 2020-6-15 17:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">22姐彻底沉浸在顺劈的快感里忘记了最初推夸的快乐 hso
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 1193#       发表于 2020-6-15 17:35
+
+
+
+
+这种情况下一般会加入顺劈阿夸的行列，在违心的嘲弄中加深gachi度<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 1194#       发表于 2020-6-15 17:38
+
+
+
+
+本质上是夸没播的原因，播了之后erer姐就净化了
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 1195#       发表于 2020-6-15 17:39
+
+
+
+
+Erer也要变成凛人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1196#       发表于 2020-6-15 17:40
+
+
+
+
+所以后天holo有什么重要预定吗？从上周六开始就有每天塞个重要预定的倾向。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1197#       发表于 2020-6-15 17:41
+
+
+
+<blockquote>bluebaby 发表于 2020-6-15 17:40
+所以后天holo有什么重要预定吗？从上周六开始就有每天塞个重要预定的倾向。 ...</blockquote>
+继续三期新衣服呗，可以发到周六。
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 1198#       发表于 2020-6-15 17:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47815288&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-15 17:40</a>
+
+所以后天holo有什么重要预定吗？从上周六开始就有每天塞个重要预定的倾向。 ...</blockquote>
+星街地上波算吗
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1199#       发表于 2020-6-15 17:43
+
+
+
+
+今年新泳装3D还会有吗？这关系到四期3D的时间和3单的时间。
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 1200#       发表于 2020-6-15 17:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说不定下个月就能看到三期生的泳装3d了
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1201#       发表于 2020-6-15 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814961&amp;ptid=1941579" target="_blank">sisyphus_ 发表于 2020-6-15 17:19</a>
+
+船长也是双马尾啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个年轻了十岁吧。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 1202#       发表于 2020-6-15 17:48
+
+
+
+
+星姐是不是误以为受了蛙的挤兑这事现在真难说，AZKi也一年多没新衣服了，可能就yagoo单纯不想给innk投钱
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 1203#       发表于 2020-6-15 17:50
+
+
+
+
+当初做弟弟箱的时候都全面铺3D了，现在资源更多，三期没理由不出泳装，四期肯定赶不上
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 1204#       发表于 2020-6-15 17:52
+
+
+
+
+泳装不是不能做，三期和猫狗阿星一起人数也差不多了，就是可能会拖四期3D进度。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1205#       发表于 2020-6-15 17:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47815431&amp;ptid=1941579" target="_blank"> tiro_finale 发表于 2020-6-15 17:50</a> 当初做弟弟箱的时候都全面铺3D了，现在资源更多，三期没理由不出泳装，四期肯定赶不上 </blockquote>
+讲道理，四期起码新衣服给安排上，星男人都有新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1206#       发表于 2020-6-15 18:02
+
+
+
+
+手游约立绘，也会顺带约一到两套衣服吧，总感觉是yagoo藏牛不知道藏了多少。。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1207#       发表于 2020-6-15 18:07
+
+
+
+
+感觉上会四期一个，泳装一个轮流发布<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1208#       发表于 2020-6-15 18:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47814314&amp;ptid=1941579" target="_blank">kbtit 发表于 2020-6-15 16:37</a>
+
+一个出道快2年的人一件新衣服都没有，crew对运营有梁木并不奇怪，虽然自从六字母完蛋以后我不怎么看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">阿夸新年衣服不是好看的一比么
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 1209#       发表于 2020-6-15 18:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47815698&amp;ptid=1941579" target="_blank"> 恶魔娘阿洛 发表于 2020-6-15 18:12</a> 引用:kbtit 发表于 2020-6-15 16:37 一个出道快2年的人一件新衣服都没有，crew对运营有梁木并不奇怪，虽然自从六字母完蛋以后我不怎么看 ... 阿夸新年衣服不是好看的一比么 </blockquote>
+幽幽子觉得很赞👍来自: iPhone客户端
+
+
+
+
+
+         

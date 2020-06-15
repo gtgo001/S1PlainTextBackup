@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 00:02** 
+> ## **本文件最后更新于2020-06-15 18:04** 
 
 
 
@@ -9702,4 +9702,332 @@ tc继续
 
 
 
-                               
+
+
+-----
+
+####  路人庚  
+##### 12555#       发表于 2020-6-15 00:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这沙雕段子xswl
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12556#       发表于 2020-6-15 00:53
+
+
+
+
+管子杂谈也就是工作需要,真图乐还得是tc讲段子<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12557#       发表于 2020-6-15 00:54
+
+
+
+ 本帖最后由 A2014720 于 2020-6-15 00:55 编辑 
+
+郡道这推特回复啥意思
+
+管子上她讲段子总感觉用力过猛
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 12558#       发表于 2020-6-15 00:57
+
+
+
+
+中二妄想大爆料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 12559#       发表于 2020-6-15 00:59
+
+
+
+
+我的错觉吗，怎么感觉聊的声线都变了，聊的眉飞色舞的，可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12560#       发表于 2020-6-15 01:02
+
+
+
+
+聊得像个兴奋小女生<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12561#       发表于 2020-6-15 01:10
+
+
+
+
+这人最近看来确实是漫画看多了（
+
+
+
+
+
+
+
+-----
+
+####  M829A4  
+##### 12562#       发表于 2020-6-15 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闪电十一人是这种漫画吗
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12563#       发表于 2020-6-15 01:14
+
+
+
+
+疫情原因没法出门，聊天素材全靠av和动漫了，还有bl<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12564#       发表于 2020-6-15 01:27
+
+
+
+
+其实没疫情的时候素材也主要靠脑补,老neet加懒
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12565#       发表于 2020-6-15 01:27
+
+
+
+
+あまぃろてんち
+
+检索
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12566#       发表于 2020-6-15 01:54
+
+
+
+
+河马听了直呼内行
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12567#       发表于 2020-6-15 01:57
+
+
+
+
+魔禁厨在哭啊（）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12568#       发表于 2020-6-15 03:04
+
+
+
+
+mea录像下面这评论草，不留档出名了么
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/030413ob6yc6fg6o1fy66c.png" referrerpolicy="no-referrer">
+
+
+<strong>514ef86d2a75559e.png</strong> (5.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 03:04 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 12569#       发表于 2020-6-15 13:52
+
+
+
+[www.bilibili.com/video/BV1Xk4y1z7nA](http://www.bilibili.com/video/BV1Xk4y1z7nA)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12570#       发表于 2020-6-15 14:01
+
+
+
+
+这羊真懂啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12571#       发表于 2020-6-15 17:24
+
+
+
+
+今天又是恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12572#       发表于 2020-6-15 17:35
+
+
+
+
+明天中午又是老年人麻将<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+恐怖游戏不是取决于苔苔拱火能力吗（
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12573#       发表于 2020-6-15 17:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+麻         将         组
+
+
+
+
+
+                              
