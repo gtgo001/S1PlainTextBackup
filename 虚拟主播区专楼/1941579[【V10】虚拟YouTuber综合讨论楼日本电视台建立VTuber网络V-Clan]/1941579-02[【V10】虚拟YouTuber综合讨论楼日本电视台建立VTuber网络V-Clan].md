@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 02:11** 
+> ## **本文件最后更新于2020-06-16 04:08** 
 
 
 
@@ -4469,6 +4469,25 @@ SLEE开珍珠奶茶</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -4666,10 +4685,11 @@ star已经不够满足狐皇了，狐皇的攻略对象是时候该转向虹男�
 
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1|好评加鹅|
 | alcoholic1000|-1|思路广|
 | 2L模仿47哥|-1|好评加鹅|
 
@@ -4801,6 +4821,25 @@ star已经不够满足狐皇了，狐皇的攻略对象是时候该转向虹男�
 
 再这样下去，我要写狐夸段子了。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|多来点多来点|
+
+
+
+查看全部评分
 
 
 
@@ -5029,10 +5068,11 @@ QQ图片20200615231308.jpg
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|欢乐多|
 | sisyphus_| + 1|欢乐多|
 | Zaphikel| + 1|卧槽！i了i了|
 
@@ -5114,6 +5154,25 @@ QQ图片20200615231308.jpg
 
 
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|2000最近是病的不轻|
+
+
+
+查看全部评分
 
 
 
@@ -6893,10 +6952,10 @@ syl，管人是装的，管人观众就不是装的吗。你看2000不是在rp�
 
 
 
- 本帖最后由 睥睨寰宇荡红尘 于 2020-6-16 02:07 编辑 
+ 本帖最后由 睥睨寰宇荡红尘 于 2020-6-16 02:16 编辑 
 
 怎么遍地都在车夸皇，还是mk2碎碎念了一万次的东西，都要看吐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-夸皇爱财，取之有道，crew愿意打钱不是一个愿意打一个愿意挨吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这是大家双向选择选择出来的啊。别嫌弃大亏无情啊，这波不是正在双向选择吗，活下来的才是好crew
+夸皇爱财，取之有道，crew愿意打钱不是一个愿意打一个愿意挨吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这是大家双向选择选择出来的啊。别嫌弃大亏无情啊，因为某些事不看夸了观众不也是无情吗？这波不是正在双向选择吗，活下来的才是好crew
 
 —— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
@@ -6936,4 +6995,359 @@ mk2多多rp吧，这力度还行，我小黑屋已经挤满了你的小号，不
 
 
 
-                                      
+
+
+-----
+
+####  超能力者stven  
+##### 1860#       发表于 2020-6-16 02:18
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-16 01:35
+咱觉得萝卜子要是好好养噶吃肯定很强，她那个声音听着就感觉要被脑控了</blockquote>
+无印是天然劣势，
+
+说这话芙宝或许另有高见
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1861#       发表于 2020-6-16 02:21
+
+
+
+
+这ID不就是mk2嘛，布袋戏要素<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 1862#       发表于 2020-6-16 02:22
+
+
+
+
+巧克这同接怎么开播一小时左右才越播越多
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1863#       发表于 2020-6-16 02:23
+
+
+
+
+peko刚刚下了
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 1864#       发表于 2020-6-16 02:42
+
+
+
+
+v吧转的，不针对crew，单纯觉得这思维和2000如出一辙实在是太稀有了
+
+
+
+
+
+
+2F7120FA6A7C2245AAA72767168891A9.jpg
+(65.53 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-16 02:37 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/023748wene7x4wmfs6ufdu.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+627364D735B3C492CA67AF2DD85E507D.jpg
+(99.15 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-16 02:38 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/023808nmzhb7bbl3x5j357.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1865#       发表于 2020-6-16 02:51
+
+
+
+
+2000的怪文书小短文比这个长篇累牍的玩意有意思至少5倍吧
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1866#       发表于 2020-6-16 02:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820993&amp;ptid=1941579" target="_blank">oshinoshinobu 发表于 2020-6-16 02:42</a>
+v吧转的，不针对crew，单纯觉得这思维和2000如出一辙实在是太稀有了</blockquote>
+我怀疑这才是真正的2000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1867#       发表于 2020-6-16 02:58
+
+
+
+
+吹牛不打草稿
+
+不过crew人多，不怕没人支持<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 1868#       发表于 2020-6-16 03:04
+
+
+
+
+请v综各位大佬分析一下这堆屎的成分？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Aluminium  
+##### 1869#       发表于 2020-6-16 03:08
+
+
+
+
+来回车运营真有够无聊的
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 1870#       发表于 2020-6-16 03:10
+
+
+
+
+我觉得以夸哥的路线而言，自己独立出来不是更好吗，唯一的损失可能是同接要降一下。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 1871#       发表于 2020-6-16 03:22
+
+
+
+
+两坨屎还得分哪个更臭啊？楼友不会有2k的粉吧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 1872#       发表于 2020-6-16 03:25
+
+
+
+
+再怎么样2000的作文也比这个有意思多了，说三期生最像国内女主播这个是先射箭后画靶子
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1873#       发表于 2020-6-16 03:26
+
+
+
+
+两边都是这位楼友发的吧，那边没人咬勾，这边钓了个mk2。mk2历史地位最低的一天
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 1874#       发表于 2020-6-16 03:32
+
+
+
+
+独立出来好不好对她而言我不知道<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+但是对我而言，我喜欢看的是
+盐水的夸、狐夸的夸、卐组的夸
+“hololive反抗军”的夸
+被小粥欺负的夸
+丰州演唱会上和空妈狐皇共同演出的夸
+和35互换的夸
+在MC里做陷阱安排同事的夸
+在木口服玩ark的夸……
+是我只看到表面上东西了吗，我觉得hololive的凑阿库娅在hololive里过的还是很好很开心的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1875#       发表于 2020-6-16 03:47
+
+
+
+
+推荐没直播看的楼友，与其看贴吧自降智商，不如看好看又刺激的cod好吧
+[https://www.twitch.tv/directory/ ... %20Modern%20Warfare](https://www.twitch.tv/directory/game/Call%20of%20Duty%3A%20Modern%20Warfare)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 1876#       发表于 2020-6-16 03:59
+
+
+
+
+bsyl 抄宝zqsg，有点kimo
+
+
+
+
+
+                                     
