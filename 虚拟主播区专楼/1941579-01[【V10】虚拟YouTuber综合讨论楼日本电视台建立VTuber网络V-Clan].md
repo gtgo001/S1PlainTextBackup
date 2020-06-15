@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 02:09** 
+> ## **本文件最后更新于2020-06-15 08:08** 
 
 
 
@@ -2396,7 +2396,7 @@ Arkダウンロード始めたら待機時間やばい事になり始めたぞ
 
  本帖最后由 alcoholic1000 于 2020-6-14 14:54 编辑 
 
-<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_wU225" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_VHOIs" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_h79nM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_PQuZ4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 原作者又把这张图转了出来，可惜已经少人了
 [https://twitter.com/amadori_vtb/ ... 99310123008/photo/1](https://twitter.com/amadori_vtb/status/1198612199310123008/photo/1)
@@ -15009,6 +15009,25 @@ thx<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referre
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -15265,4 +15284,742 @@ valorant自己玩真的满上瘾的，没天梯+有技能，娱乐性比较高�
 
 
 
-                       
+
+
+-----
+
+####  kanonsisya  
+##### 783#       发表于 2020-6-15 02:12
+
+
+
+
+拳头缝合怪确实不行，但这不妨碍瑞典猴子不行
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 784#       发表于 2020-6-15 02:17
+
+
+
+
+电子竞技观众都看了快20年的cs了
+
+
+拳头你出个魔法CS就打算攻城略地么
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 785#       发表于 2020-6-15 02:18
+
+
+
+
+刷新了下兔宝竟然还在，5小时耐久了。
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 786#       发表于 2020-6-15 02:20
+
+
+
+
+她还越玩精神越好了...
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 787#       发表于 2020-6-15 02:37
+
+
+
+
+都掉到四万了，他最早还是传csgo视频的，这转化率有点低啊。
+
+由此见得已婚的带up→带主播计划迟早**
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 788#       发表于 2020-6-15 03:06
+
+
+
+
+兔宝1w6,miko8k，巧可2k3。
+
+周一不用上班的吗
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 789#       发表于 2020-6-15 03:18
+
+
+
+
+空妈的live烤完了。。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 790#       发表于 2020-6-15 03:24
+
+
+
+
+阿菜这别披露又是首尾两首歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+刚刚把11岁看成11首歌了,让我做做梦吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 791#       发表于 2020-6-15 03:26
+
+
+
+
+MIKO这染色完彻底变成鸽子了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 792#       发表于 2020-6-15 03:28
+
+
+
+
+live好烤啊，而且这才43分钟
+
+
+syl 兔宝直播间有2个英文同传,速度很快
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 793#       发表于 2020-6-15 03:44
+
+
+
+
+空妈这次的选曲，虽然大部分都是鬼叫，不过如果是线下live有观众给打call，音响搞好点或者有乐队现场伴奏，应该就还可以......不过线上还搞这么烂的音响就有问题了
+
+
+这么喜欢炫耀安全裤，傻呵呵的
+
+<img src="https://img.saraba1st.com/forum/202006/15/034406n9r8rqc9k8gqg454.png" referrerpolicy="no-referrer">
+
+
+<strong>安全裤.png</strong> (498.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 03:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 794#       发表于 2020-6-15 03:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47807208&amp;ptid=1941579" target="_blank">Nonamesky 发表于 2020-6-15 00:27</a>
+狐皇新衣服发型是双马尾，有差分</blockquote>
+是像我头像这个吗？<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 795#       发表于 2020-6-15 03:56
+
+
+
+
+深夜，免费总是能透出真心。比如上次说脸圆圆的很可爱
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 796#       发表于 2020-6-15 03:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47807980&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-15 03:56</a>
+
+深夜，免费总是能透出真心。比如上次说脸圆圆的很可爱</blockquote>
+是月亮的阴影守护了免费么，夜晚，你好温柔
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 797#       发表于 2020-6-15 03:59
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-15 04:01 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/035854zhkxsi5b1xss5uzk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EafwkJhUcAAVDeI.jpg</strong> (1.35 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 03:58 上传
+
+
+
+
+
+
+新的日程表
+
+健康民的血——
+
+啊我也没睡啊，那没事了。
+
+顺便问下周六25w人的企划是啥。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 798#       发表于 2020-6-15 04:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47807993&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-15 03:59</a>
+
+新的日程表
+
+健康民的血——
+
+啊我也没睡啊，那没事了。</blockquote>
+整蛊，上一次是模仿coco结果0人上当（公主假装上当
+
+
+syl 明天居然撞星宝3d
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 799#       发表于 2020-6-15 04:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808003&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-15 04:04</a>
+
+整蛊，上一次是模仿coco结果0人上当（公主假装上当
+
+
+syl 明天居然撞星宝3d ...</blockquote>
+不知道有什么新活儿，不过到最后都是一转辱天就是了233
+
+用谷歌生草机看了下，明天星街那个3d好像不是live啊，单人卡拉ok，我瞎了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 800#       发表于 2020-6-15 04:25
+
+
+
+ 本帖最后由 kanonsisya 于 2020-6-15 04:27 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/042404lq4kv9k8tms8wbsw.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(26).png</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-15 04:24 上传
+
+
+
+
+
+啊，这。。绿绿算不算🦄我暂且蒙古
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 801#       发表于 2020-6-15 04:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808049&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-15 04:25</a>
+
+啊，这。。绿绿算不算🦄我暂且蒙古</blockquote>
+ID这几个受众基本上是日本人和鬼佬就是了，之前看直播，评论区基本是英语。。
+
+不过不知道是谁找上谁的，按照之前的说法lofi好像和star玩的还行。
+
+看了下小松鼠的推，粉丝情绪稳定。
+
+小松鼠6w6关注是不是四人最高了？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 802#       发表于 2020-6-15 04:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808056&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-15 04:33</a>
+
+ID这几个受众基本上是日本人和鬼佬就是了，之前看直播，评论区基本是英语。。
+
+不过不知道是谁找上谁的， ...</blockquote>
+我扫了一眼推，印尼语浓度还是很高的，大概印尼管人粉是什叶派🦄，只要不线下银啪就没关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 803#       发表于 2020-6-15 05:01
+
+
+
+
+MIO也要休两天，17号回归。
+
+总觉得之前提到过？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 804#       发表于 2020-6-15 05:21
+
+
+
+
+兔宝竟然8小时耐久耻辱下播了，这影廊不知道还要玩多久。
+
+龙宝今天ascc没过2w，还是宝。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 805#       发表于 2020-6-15 05:56
+
+
+
+
+ascc同接1w7上下已经是日常了
+开发不出新观众群，那就只能这样了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 806#       发表于 2020-6-15 06:59
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-15 05:01
+MIO也要休两天，17号回归。
+
+总觉得之前提到过？</blockquote>
+上上周发时间表时候放过风的，这两天摸了回血
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 807#       发表于 2020-6-15 07:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808073&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-15 04:47</a>
+
+我扫了一眼推，印尼语浓度还是很高的，大概印尼管人粉是什叶派🦄，只要不线下银啪就没关系 ...</blockquote>
+那逊尼派独角兽又是如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 808#       发表于 2020-6-15 07:12
+
+
+
+
+阿希JST21点爱逗风歌回，希gachi还活着吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 809#       发表于 2020-6-15 07:15
+
+
+
+
+狐皇好久没开歌回了吧....
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 810#       发表于 2020-6-15 07:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808243&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-15 07:10</a>
+
+那逊尼派独角兽又是如何</blockquote>
+和男人同窗联动就要阿拉胡阿克巴？<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 811#       发表于 2020-6-15 07:27
+
+
+
+<blockquote>中野六小龄童 发表于 2020-6-15 07:15
+狐皇好久没开歌回了吧....</blockquote>
+两周以前的半小时歌回，最近一次。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 中野六小龄童| + 1|多谢指路|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 812#       发表于 2020-6-15 07:36
+
+
+
+
+holo id三个人收益化了没？收入多少？我记得她们用streamlab的？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 813#       发表于 2020-6-15 07:37
+
+
+
+<blockquote>crawarb 发表于 2020-6-15 07:36
+holo id三个人收益化了没？收入多少？我记得她们用streamlab的？</blockquote>
+都过了，五月末最后一个人开的收益。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 814#       发表于 2020-6-15 07:38
+
+
+
+
+五月ID的sc，松鼠 30w，lofi 23w，moona 7w好像。pb之前看的。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 815#       发表于 2020-6-15 07:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808268&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-15 07:19</a>
+
+和男人同窗联动就要阿拉胡阿克巴？</blockquote>
+草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 816#       发表于 2020-6-15 07:52
+
+
+
+
+原来不止我一个觉得粽子像服务员小妹
+话说小肥妹这么刺激的点赞都没人转发吗
+https://twitter.com/abara/status/1272209331019067392?s=19
+https://twitter.com/aoiro_0w0/status/1272163117716258817?s=19
+<img src="https://p.sda1.dev/0/a7b7971680e8acffa853f91de7cfffac/IMG_EA414AE50D389639B280A745CD524318.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 817#       发表于 2020-6-15 07:57
+
+
+
+
+宫皇粉和35p究竟是怎么每天熬夜看耐久还能活到现在的
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 818#       发表于 2020-6-15 08:02
+
+
+
+
+只熬到3点的话还有救，再晚的合理怀疑都是西语英语越共
+
+
+
+
+
+                      
