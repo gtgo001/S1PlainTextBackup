@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 22:06** 
+> ## **本文件最后更新于2020-06-16 00:04** 
 
 
 
@@ -10728,7 +10728,7 @@ syl转nga  方舟指令相关
 
 
 72ad096a-681c-4721-a7dc-5b18362ab891.jpg
-(28.64 KB, 下载次数: 0)
+(28.64 KB, 下载次数: 1)
 
 
 
@@ -10757,4 +10757,1944 @@ syl转nga  方舟指令相关
 
 
 
-                             
+
+
+-----
+
+####  惑星  
+##### 12614#       发表于 2020-6-15 22:08
+
+
+
+
+我接受不了！我接受不了！幻灭了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12615#       发表于 2020-6-15 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这人玩这个是干嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这是要凑对吗
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12616#       发表于 2020-6-15 22:09
+
+
+
+
+天狗们第二喜欢的cp要来了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12617#       发表于 2020-6-15 22:10
+
+
+
+
+变声器草
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12618#       发表于 2020-6-15 22:10
+
+
+
+
+来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12619#       发表于 2020-6-15 22:10
+
+
+
+
+这人声音我觉得挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12620#       发表于 2020-6-15 22:11
+
+
+
+
+田中犬山贴贴！田中犬山贴贴！田中犬山贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 12621#       发表于 2020-6-15 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818531&amp;ptid=1929631" target="_blank">离心 发表于 2020-6-15 22:06</a>
+???</blockquote>
+是尼哥麻
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12622#       发表于 2020-6-15 22:23
+
+
+
+
+这惨叫已经完全融入游戏了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12623#       发表于 2020-6-15 22:23
+
+
+
+
+咩虐真是令人兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12624#       发表于 2020-6-15 22:27
+
+
+
+
+md3000…
+是我不懂恐怖游戏
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12625#       发表于 2020-6-15 22:30
+
+
+
+
+最后是谁再叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12626#       发表于 2020-6-15 22:31
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-15 22:33 编辑 
+
+刚叫得好色<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+一定是夸夸趁咩咩不备，突然戳了咩咩的**，所以咩咩才忍不住叫出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12627#       发表于 2020-6-15 22:31
+
+
+
+
+最后的鬼叫是谁的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12628#       发表于 2020-6-15 22:32
+
+
+
+
+草，回头杀真的吓老子一跳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12629#       发表于 2020-6-15 22:33
+
+
+
+
+这个鬼好抽象阿，一点也不可怕
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12630#       发表于 2020-6-15 22:33
+
+
+
+
+草，这就结束了吗
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 12631#       发表于 2020-6-15 22:34
+
+
+
+
+能不能整点阳间的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12632#       发表于 2020-6-15 22:34
+
+
+
+
+给我吓了一跳，我也飞了。这波是我和咩咩贴贴(⁄ ⁄•⁄ω⁄•⁄ ⁄)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12633#       发表于 2020-6-15 22:36
+
+
+
+
+这鬼还长了个般若脸……
+
+
+提了下隔壁，隔壁又咋了，玩失踪？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12634#       发表于 2020-6-15 22:36
+
+
+
+
+阳间游戏她又不喜欢在直播中玩啊……
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 12635#       发表于 2020-6-15 22:37
+
+
+
+
+苔苔要能提起mea新衣服的兴趣也是大功一件<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12636#       发表于 2020-6-15 22:38
+
+
+
+
+bsyl，隔壁?指aqua?她休假去了，八成在搞个人live去了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12637#       发表于 2020-6-15 22:38
+
+
+
+
+这波是新衣服卫星坠毁
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12638#       发表于 2020-6-15 22:38
+
+
+
+
+苔苔也太懂了吧，提完新衣服提3d
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12639#       发表于 2020-6-15 22:39
+
+
+
+
+没新衣服（这个次要），关于游戏版权运营又各种空头支票，出事让liver自己承担。之前又被炎上，估计有点情绪吧。不过可能确实是有个人live在准备。这种时候就觉得不用看运营脸色的咩咩还是比较自由的(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12640#       发表于 2020-6-15 22:39
+
+
+
+
+果然是3D有希望搞了啊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12641#       发表于 2020-6-15 22:41
+
+
+
+
+真的没事吧。。。为了看咩姐的3d我诚心希望日本能快点解决疫情
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12642#       发表于 2020-6-15 22:41
+
+
+
+
+咩咩，会动的咩咩(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12643#       发表于 2020-6-15 22:42
+
+
+
+
+除了火腿肠外，楼友还有没有私藏的会动的麻啊……
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12644#       发表于 2020-6-15 22:43
+
+
+
+
+东京最近又危险了，还是怂着好<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12645#       发表于 2020-6-15 22:43
+
+
+
+
+赤坂你tm还真是为了联动休刊啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12646#       发表于 2020-6-15 22:44
+
+
+
+
+要是你咩的新衣服苔姨来做那可真是个折磨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12647#       发表于 2020-6-15 22:44
+
+
+
+
+赤坂最近疯起来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12648#       发表于 2020-6-15 22:45
+
+
+
+
+赤坂哥哥没疯啊，最新话我吹爆好吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12649#       发表于 2020-6-15 22:45
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12650#       发表于 2020-6-15 22:45
+
+
+
+ 本帖最后由 呓亘 于 2020-6-15 22:46 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12651#       发表于 2020-6-15 22:46
+
+
+
+
+yysy啊，赤坂老师漫画吹爆好吧
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12652#       发表于 2020-6-15 22:47
+
+
+
+
+那个漫画我一直都没看过……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12653#       发表于 2020-6-15 22:48
+
+
+
+
+梦做大点，让赤坂来画新衣服。或者时雨妈妈，加入486家(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 12654#       发表于 2020-6-15 22:48
+
+
+
+
+日本管人的3D，算了吧，你楼这么奶我期望一定得再放低一点
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12655#       发表于 2020-6-15 22:50
+
+
+
+
+那真是梦了……
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 12656#       发表于 2020-6-15 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">momo老湿的画也挺不错的啊，会做饭还是人妻，而且好像是有打算也批皮出道
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12657#       发表于 2020-6-15 22:53
+
+
+
+
+啊港真咩咩动起来就算是火柴人我也硬看好吧(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12658#       发表于 2020-6-15 22:54
+
+
+
+
+关于19号联动我有点祈忧病发作，怕她讲太多黄段子搞的路人观感不好被炎上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真火柴人那就是艺术好吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12659#       发表于 2020-6-15 22:54
+
+
+
+
+啊啊你在讲什么      syl相信苔苔的剧本吧这次真的求求苔苔了(ಥ_ಥ)
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 12660#       发表于 2020-6-15 22:55
+
+
+
+
+她的朋友里打脐钉的...
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12661#       发表于 2020-6-15 22:56
+
+
+
+
+怕不是那个碧池风俗业朋友......话说谁整理一下她提到了哪些怪朋友啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12662#       发表于 2020-6-15 22:57
+
+
+
+
+脐钉，u18r，是你吗
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 12663#       发表于 2020-6-15 22:59
+
+
+
+
+她不是早说过么，她说的朋友其实就是自己，她说的自己其实都是朋友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开玩笑的
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 -10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ColdAir|-1|请认准唯一指定好朋友|
+| pabier|-1|欢乐多|
+| 时雨rain|-1|麻喜欢乱∠和爸爸活?这可不能乱说.|
+| ashero|-2|思路广|
+| Cla0221|-1|sb|
+| GRMeA104|-1||
+| A2014720|-1|你也是小博宇|
+| IrisL|-1|嘻嘻，你可真聪明|
+| Rem-清曲|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12664#       发表于 2020-6-15 22:59
+
+
+
+
+她的朋友真是多元啊……
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12665#       发表于 2020-6-15 23:01
+
+
+
+
+我记得有做爸爸活的（xb同一人），有坐断男友肋骨的，有拿了她家钥匙的，有脐钉的......欢迎补充
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12666#       发表于 2020-6-15 23:01
+
+
+
+ 本帖最后由 meameasuki 于 2020-6-15 23:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819150&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-15 22:59</a>
+她不是早说过么，她说的朋友其实就是自己，她说的自己其实都是朋友由此可见跟774同居的其实是她朋友 ...</blockquote>
+对呀对呀，其实我也是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+不过这种玩笑开不起的，毕竟咩咩处女是这里的政治正确
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12667#       发表于 2020-6-15 23:04
+
+
+
+
+下了草
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12668#       发表于 2020-6-15 23:04
+
+
+
+
+下了下了，这精神还好得很啊，奶一口tc
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12669#       发表于 2020-6-15 23:05
+
+
+
+
+唔啊别呀小祖宗
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12670#       发表于 2020-6-15 23:07
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-15 23:12 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12671#       发表于 2020-6-15 23:08
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-15 23:12 编辑 
+
+苔苔必有台本的这种大型联动,不如杞忧台本下还是飚黄段子的她<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl,看这架势今年是要玩完这家公司的怪作啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12672#       发表于 2020-6-15 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">飙就飙了呗，跟赤坂联动当然不可能怕这个
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12673#       发表于 2020-6-15 23:09
+
+
+
+
+这有啥好杞忧的，彪就彪呗谁怕谁）
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 12674#       发表于 2020-6-15 23:11
+
+
+
+
+辉夜漫画里黄段子也不少啊，怕啥
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12675#       发表于 2020-6-15 23:15
+
+
+
+
+赤坂受得了，不慌
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12676#       发表于 2020-6-15 23:16
+
+
+
+
+确实，怎么她联动我还这么紧张的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12677#       发表于 2020-6-15 23:17
+
+
+
+
+刚准备睡看眼群就看见那sb尼哥，真tm囬气<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12678#       发表于 2020-6-15 23:18
+
+
+
+
+17.5了，看看赤坂一波能不能上18
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12679#       发表于 2020-6-15 23:18
+
+
+
+
+不如杞忧一下转尼哥推
+睡了，梦里看3d和新衣服
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12680#       发表于 2020-6-15 23:20
+
+
+
+
+飙就飙呗，有节目效果就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不飙也行，希望这次和大物联动能让她上点心<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12681#       发表于 2020-6-15 23:21
+
+
+
+
+有啥可杞忧的，就是觉得恶心而已<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+我好像好久没在网络上对除了咩anti以外的人反应这么大了
+
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12682#       发表于 2020-6-15 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819376&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-15 23:17</a>
+刚准备睡看眼群就看见那sb尼哥，真tm囬气</blockquote>
+只敢躲在这里偷偷骂倪哥也太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，明明知道问题出在谁身上。
+明早起来说不定还要晒小麻和他的深夜甜蜜聊天记录呢
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cla0221|-1|你🐎sl，🙂|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  meameasuki  
+##### 12683#       发表于 2020-6-15 23:22
+
+
+
+
+还有六个月就在通宵商量圣诞节和平安夜要做什么呢，真是贴贴呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12684#       发表于 2020-6-15 23:25
+
+
+
+
+建议多看几遍白雪联动回，基本可以解决这一页90%的问题和怨气（）
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12685#       发表于 2020-6-15 23:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12686#       发表于 2020-6-15 23:27
+
+
+
+
+我的梁木不是因为圣诞节预定直播啊，只是这人不行而已，最起码现在我对五元没好感但不至于看了就恶心
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12687#       发表于 2020-6-15 23:27
+
+
+
+
+。。。有人科普一下尼各干了什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl今晚恐怖游戏联动后面我有事离开了，开楼里的repo感觉自己亏了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+咩虐失落
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12688#       发表于 2020-6-15 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819500&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-15 23:27</a>
+。。。有人科普一下尼各干了什么吗
+
+syl今晚恐怖游戏联动后面我有事离开了，开楼里的repo感觉自己亏 ...</blockquote>
+中间有一段吓飞了。能听见挪凳子和鼠标的声音。笑死了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12689#       发表于 2020-6-15 23:29
+
+
+
+
+说的是尼哥搞的那个不小心爆出中之人信息的直播吧，可能有点缺德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12690#       发表于 2020-6-15 23:29
+
+
+
+
+救救clay,虽然我也搞不懂倪哥想干什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+你咩被吓飞那一段我还有点心疼,是什么表现<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12691#       发表于 2020-6-15 23:29
+
+
+
+
+那个倪哥我到觉得倒没什么，就是像一个nt，让人想给他一拳
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12692#       发表于 2020-6-15 23:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819509&amp;ptid=1929631" target="_blank">zhicai618 发表于 2020-6-15 23:27</a>
+
+中间有一段吓飞了。能听见挪凳子和鼠标的声音。笑死了</blockquote>
+别搞了别搞了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+我已经很后悔实时错过咩这么可爱反应的场景了
+
+等到时候补录播吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12693#       发表于 2020-6-15 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/e7eded9478a629e6ba4f95c4a92c1b2d/IMG_981CAE1E3CFCEE1C354B0ABF489789E0.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12694#       发表于 2020-6-15 23:31
+
+
+
+
+尼哥这个freechat是他跟虹社运营商量后挂起来的，mea在和苔苔开联动前才发现这么个东西（联动开始后的2分钟就在聊这个，都表示惊了个呆
+
+
+不过要说尼哥有啥地方不太行的话也就是之前那次故意暴露已婚者的企划了8，当然其本人在虹社内部的各种ky操作不关你咩姐啥事就是（不过目前几个月在阿咩这都没什么瓜葛，在阿咩这说到底也就算是个空气人了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12695#       发表于 2020-6-15 23:31
+
+
+
+ 本帖最后由 pabier 于 2020-6-15 23:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819525&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-15 23:29</a>
+
+救救clay,虽然我也搞不懂倪哥想干什么
+
+
+你咩被吓飞那一段我还有点心疼,是什么表现 ...</blockquote>
+小女生被吓到了感到心痛想去安慰她这是正常表现啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+坏掉的是我这种咩虐啊
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12696#       发表于 2020-6-15 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819525&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-15 23:29</a>
+救救clay,虽然我也搞不懂倪哥想干什么
+
+
+你咩被吓飞那一段我还有点心疼,是什么表现 ...</blockquote>
+心疼是有点心疼。但是还是挺有意思的。再来点
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12697#       发表于 2020-6-15 23:33
+
+
+
+
+因为挺早有人跟我说过他都干过啥sb事，所以本来就恶感。然后那个给他引流会员直播的活是真的彻底恶心到我了，最后还整个其实一开始拜托sara没答应来这边说只能拜托咩，真的tmd恶心到炸。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12698#       发表于 2020-6-15 23:34
+
+
+
+
+啊那这是有点(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12699#       发表于 2020-6-15 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经是空气人了，而且你咩姐也在白雪联动里提到过这点（所以多去看看白雪联动里你咩姐的回答，解决90%的问题
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12700#       发表于 2020-6-15 23:37
+
+
+
+
+bsyl，直接贴一下链接好了：[https://www.youtube.com/watch?v=ufwuJ4N-mmc](https://www.youtube.com/watch?v=ufwuJ4N-mmc)
+
+没看过的建议都去补一补（基本算是解密篇级别的一回
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12701#       发表于 2020-6-15 23:39
+
+
+
+
+同社吸不了血，去吸一个萍水相逢的无所属前辈的血，说实话当时我可想不到mea会答应这种完全自私的请求
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12702#       发表于 2020-6-15 23:39
+
+
+
+
+大概说下吧，我很久不看联动了，把橄榄网卡的梯换了之后暂时还没弄新梯
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12703#       发表于 2020-6-15 23:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你咩姐老好人了，有什么难以理解的吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12704#       发表于 2020-6-15 23:43
+
+
+
+
+你咩姐有什么血可吸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过那波引流没头没脑的，剩下的印象只有倪哥的哭嚎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12705#       发表于 2020-6-15 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为mea就没打算跟他好，所以当然随便玩了，就跟舞元一样
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 12706#       发表于 2020-6-15 23:44
+
+
+
+
+グウェル在你咩这里也只是被抽象成一个聊天对不上电波的人而已，感觉不会进一步发展关系<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12707#       发表于 2020-6-15 23:45
+
+
+
+
+那这和我觉得他的那次令我恶心有啥关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12708#       发表于 2020-6-15 23:45
+
+
+
+
+根本没计较那么多吧，大概就是被拜托了就当帮个忙
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12709#       发表于 2020-6-15 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说得你麻是渣女一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好像也没错
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12710#       发表于 2020-6-15 23:45
+
+
+
+
+就尼哥这点来说你咩姐在白雪联动回里就直接表示了“都是已婚者了还去参加相亲联动属实不行”这个意思
+
+
+当然白雪联动回里面不止提到了尼哥，还有朋友故事等等一大堆内容，因为让我觉得“对上了！对上了！”的东西有点多，所以还是自己去看看最好
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12711#       发表于 2020-6-15 23:45
+
+
+
+
+之前好像不是也有人一直骚扰她要她回信，她最终回了吗
+
+感觉自己好想变成介厄<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">但介厄又太傻逼了
+
+syl  。。。听不懂日语，有烤肉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|答应我不要变。顺便是厄介不是介厄.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12712#       发表于 2020-6-15 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819712&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-15 23:43</a>
+你咩姐有什么血可吸的
+不过那波引流没头没脑的，剩下的印象只有倪哥的哭嚎 ...</blockquote>
+mea刚开始有意思，然后不小心暴露来了跟真事似的。司会那表演太夸张了，有点浪费mea给创造的机会。感觉还行吧
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 12713#       发表于 2020-6-15 23:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819747&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-15 23:45</a>
+就尼哥这点来说你咩姐在白雪联动回里就直接表示了“都是已婚者了还去参加相亲联动属实不行”这个意思
+
+
+当然 ...</blockquote>
+看来白雪联动评价不错？可以去补了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+双人联动杂谈尬聊回太多了
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12714#       发表于 2020-6-15 23:51
+
+
+
+
+让关系没那么好的人帮自己做嫁衣，能做出这种事的人多多少少有点问题的（指脑部损伤）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12715#       发表于 2020-6-15 23:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819796&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-6-15 23:50</a>
+
+看来白雪联动评价不错？可以去补了
+
+双人联动杂谈尬聊回太多了</blockquote>
+前半场面话棉花糖可以跳，后半部分咩姐开始解密（差不多从中间开始慢慢看吧
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12716#       发表于 2020-6-15 23:52
+
+
+
+
+原来是厄介吗？我一直以为是介厄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl变不变厄介这东西我也不能保证，我也可能嗷的一声就疯掉了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+但在咩安定下来的现在，大概最多也就自己热情消退默默退圈吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12717#       发表于 2020-6-15 23:53
+
+
+
+
+那等熟肉去看看吧，不过尼哥拜托她整的活可以说比她整过的任何活都危险，作为vtuber这个职业而言。我不信她知道自己在被当作备选方案时会答应他的这个台本。
+
+不过都是猜了，就不多提了，希望尼哥在早日看清v圈没有前途后隐退。🙏
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12718#       发表于 2020-6-15 23:54
+
+
+
+
+希望尼哥在早日看清v圈没有前途后隐退。🙏
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12719#       发表于 2020-6-15 23:56
+
+
+
+
+基德基德
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 12720#       发表于 2020-6-15 23:59
+
+
+
+
+那次闹剧实在观感不好<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+讲实在的浪费了一次不错的棉花糖回，用来给那人引出“事故”，换来的是什么？作为mea的粉丝，我收获了什么？本来乐乐呵呵的看直播，突然血压升高，盯着弹幕和nga楼刷，只见一群人喊着出事了，一脸蒙蔽。弄清楚之后难受要命，想着好不容易安顿几个月，又要被炎上了。然后得知是场闹剧。
+tmd我专门翻过去去他的油管频道点的踩<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+那次也是我唯一一次甚至想骂这女人一顿<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">脑子不好啊，啥烂活都敢接，溜了一圈粉丝对你有啥好处。
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12721#       发表于 2020-6-15 23:59
+
+
+
+
+在b站只搜到【【生肉】自分がネタだと気付いた神楽めあちゃん【神楽めあ白雪みしろコラボ】】时长2分钟
+
+还是苔苔的那位日本gachi传的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl翻了翻是这个月11号的杂谈吧，用了中国女王的那个，如果真的像路人说的那样的话，对苔梁木—1<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12722#       发表于 2020-6-16 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47819907&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-6-15 23:59</a>
+那次闹剧实在观感不好
+讲实在的浪费了一次不错的棉花糖回，用来给那人引出“事故”，换来的是什么？ ...</blockquote>
+有道理（
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 12723#       发表于 2020-6-16 00:01
+
+
+
+
+啊这，该让这个尼哥无法呼吸了，现在双方都开台了，那这个圣诞节直播搞还是不搞啊。感觉她刚开始是觉得有趣开了个台，现在了解了有点骑虎难下的感觉了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12724#       发表于 2020-6-16 00:03
+
+
+
+
+这有什么骑虎难下的
+
+一没契约二没说好，老娘开个镇宅预告好玩**的学个屁，还想当真？
+
+
+
+
+
+                         
