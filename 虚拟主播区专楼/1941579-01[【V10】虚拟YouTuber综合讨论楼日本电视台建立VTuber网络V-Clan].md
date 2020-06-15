@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-15 08:08** 
+> ## **本文件最后更新于2020-06-15 12:12** 
 
 
 
@@ -2396,7 +2396,7 @@ Arkダウンロード始めたら待機時間やばい事になり始めたぞ
 
  本帖最后由 alcoholic1000 于 2020-6-14 14:54 编辑 
 
-<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_h79nM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_PQuZ4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EKJTcGSUcAYWwwq?format=jpg&amp;name=4096x4096" id="aimg_dAWe1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)<img src="https://pbs.twimg.com/media/EQZ5o59UUAIYkNH?format=jpg&amp;name=4096x4096" id="aimg_R4nC7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 原作者又把这张图转了出来，可惜已经少人了
 [https://twitter.com/amadori_vtb/ ... 99310123008/photo/1](https://twitter.com/amadori_vtb/status/1198612199310123008/photo/1)
@@ -15017,10 +15017,12 @@ thx<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referre
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|好评加鹅|
+| ErenJager| + 1|好评加鹅|
 | argaregeasr| + 1|好评加鹅|
 
 
@@ -16022,4 +16024,1071 @@ https://twitter.com/aoiro_0w0/status/1272163117716258817?s=19
 
 
 
-                      
+
+
+-----
+
+####  bluebaby  
+##### 819#       发表于 2020-6-15 08:08
+
+
+
+
+不是说有些专门的夜班观众吗，我有个同学夜班要一小时弄一次，晚上就看直播…
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 820#       发表于 2020-6-15 08:14
+
+
+
+
+还有这wtm也是基本后半夜播。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 821#       发表于 2020-6-15 08:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大概观众都是便利店上夜班的吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 822#       发表于 2020-6-15 08:18
+
+
+
+
+日本便利店上夜班的好多都是印度人，印象好深，日语英语都好难交流…
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 823#       发表于 2020-6-15 08:32
+
+
+
+
+韩国人之后又要印度人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 824#       发表于 2020-6-15 08:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808578&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-15 08:32</a>
+
+韩国人之后又要印度人了吗</blockquote>
+至少不是黑人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 825#       发表于 2020-6-15 08:40
+
+
+
+
+yhm里应该没有谁找倪哥的吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 826#       发表于 2020-6-15 08:43
+
+
+
+
+肯定有性豪yhm就好黑叔叔的大宝贝这一口啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 827#       发表于 2020-6-15 09:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">黑人NTR系列…
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 828#       发表于 2020-6-15 09:20
+
+
+
+
+艹，v综怎么也能转进黑人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 829#       发表于 2020-6-15 09:29
+
+
+
+
+想起某部cos dwu的黑人片...
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 830#       发表于 2020-6-15 09:42
+
+
+
+<img src="https://i.loli.net/2020/06/15/1yG7JSdm5TrXkYE.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 831#       发表于 2020-6-15 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808049&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-15 04:25</a>
+
+啊，这。。绿绿算不算🦄我暂且蒙古</blockquote>
+他们几个在推特上一直玩的挺好的，联动倒是不奇怪
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 832#       发表于 2020-6-15 09:53
+
+
+
+
+啊，35从畸变传过来的老鼠真被小天使弄死了，而且35自述有BUG回不去畸变了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 833#       发表于 2020-6-15 09:54
+
+
+
+
+话说ID三人组的L2D都做的挺不错的
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 834#       发表于 2020-6-15 10:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">芙宝又要🥜👿了吗
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 835#       发表于 2020-6-15 10:28
+
+
+
+
+月之美兔b站是不是没有官方号，翻了下彩虹社的关注也没找到
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 836#       发表于 2020-6-15 10:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47809588&amp;ptid=1941579" target="_blank">逃离学校 发表于 2020-6-15 10:28</a>
+月之美兔b站是不是没有官方号，翻了下彩虹社的关注也没找到</blockquote>
+没入驻
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 837#       发表于 2020-6-15 10:34
+
+
+
+
+上午也没什么可车的......这么说起来，一弦要征集在B站活动半年和4w粉的棉花糖，不过好像和初配信一周年正好是同一天啊
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 838#       发表于 2020-6-15 10:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47809588&amp;ptid=1941579" target="_blank">逃离学校 发表于 2020-6-15 10:28</a>
+
+月之美兔b站是不是没有官方号，翻了下彩虹社的关注也没找到</blockquote>
+一般用的组号是“委员长杂鱼搬运”，有时“久远的须臾之间”会在B转播，有时会在斗鱼转
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 839#       发表于 2020-6-15 10:38
+
+
+
+
+狐狸这高强度回推，在我眼里怎么感觉像是在养gachi
+
+是我被你楼影响了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 840#       发表于 2020-6-15 10:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47809695&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-15 10:38</a>
+
+狐狸这高强度回推，在我眼里怎么感觉像是在养gachi
+
+是我被你楼影响了嘛 ...</blockquote>
+是的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 841#       发表于 2020-6-15 10:43
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-15 10:47 编辑 
+
+说明狐皇又要公布个什么消息了，推特狂动下一步就是公开新重大发表<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，跑去看了眼狐皇这是想当布里塔尼亚皇帝了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+不会是新衣服有眼睛冒红光的表情吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 842#       发表于 2020-6-15 10:44
+
+
+
+<blockquote>asdqass 发表于 2020-6-15 10:38
+一般用的组号是“委员长杂鱼搬运”，有时“久远的须臾之间”会在B转播，有时会在斗鱼转 ...</blockquote>
+谢谢告知
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 843#       发表于 2020-6-15 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去年就被白姨转推翻过牌子,u1s1还是有点小激动的
+
+莫非那时候我被当gachi养了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 844#       发表于 2020-6-15 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47809584&amp;ptid=1941579" target="_blank">Fakerの幻影 发表于 2020-6-15 10:28</a>
+
+芙宝又要🥜👿了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不至于吧，这事也不能怪PPT。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 845#       发表于 2020-6-15 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47809799&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-15 10:48</a>
+
+不至于吧，这事也不能怪PPT。</blockquote>
+毒唯之心不可猜，不过天哥粉丝跟芙宝没过节，芙宝不至于天天发疯。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 846#       发表于 2020-6-15 10:53
+
+
+
+
+这能👿，强度也太高了
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 847#       发表于 2020-6-15 10:54
+
+
+
+
+作为5ch真爱的芙宝，只要这件事在5ch没发酵，芙宝不会给半点反应的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 848#       发表于 2020-6-15 10:58
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-15 11:01 编辑 
+
+三丽鸥乐园有没有去过的，说不定能逮到小肥妹
+<img src="https://p.sda1.dev/0/9dd294e31a07efd8ce0f5824220baeca/IMG_F7DF1156A4BEC6065A87BE65D7FBD794.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/0/a67afdb2ac821580992b09aea4bf9c59/IMG_20200615_105542.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 849#       发表于 2020-6-15 11:07
+
+
+
+
+虹浓度，不知道作者允不允许转载所以只发链接好了，是粉丝投稿的三笨蛋打歌服<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+https://b23.tv/ZK9JfT
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 850#       发表于 2020-6-15 11:07
+
+
+
+
+麻烦回复一下方便手机观看
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 851#       发表于 2020-6-15 11:08
+
+
+
+<blockquote>UnhappyTails 发表于 2020-6-15 11:07
+麻烦回复一下方便手机观看</blockquote>
+尾宝好久不见
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 852#       发表于 2020-6-15 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她是年卡 逮起来也太难了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 853#       发表于 2020-6-15 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810038&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-15 11:08</a>
+尾宝好久不见</blockquote>
+最近实在事多，不太有时间看vtb<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 854#       发表于 2020-6-15 11:10
+
+
+
+
+V综夏gachi都开始发疯了，起码V综没有人会去吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 855#       发表于 2020-6-15 11:10
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-15 11:13 编辑 
+
+感觉没直播的时候看推特也是变相的节目，润gachi可以开始了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你们不要再说狐皇养gachi，粽子这才是专业的
+
+syl，就等小肥妹哪天休息去逮啊
+<img src="https://p.sda1.dev/0/7758bc5260b44b6595bfab063207ee57/IMG_D9682BE1EC4D7F562B214A90135AD1C1.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 856#       发表于 2020-6-15 11:12
+
+
+
+
+在v综待久了，感觉这些yhm就连呼吸都在养噶吃了
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 857#       发表于 2020-6-15 11:15
+
+
+
+
+呼吸声确实蛮养gachi的
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 858#       发表于 2020-6-15 11:16
+
+
+
+ 本帖最后由 colodes 于 2020-6-15 11:19 编辑 
+
+更进一步还有咀嚼声、哈欠声、心跳声、肠鸣音... 最高的境界是屁声
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 859#       发表于 2020-6-15 11:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以等她约苔苔去玩的时候去逮 上次她们说才逛了一半
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 860#       发表于 2020-6-15 11:17
+
+
+
+
+那也太怪了。。不过小天使翻资料的声音确实挺养gachi的。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 861#       发表于 2020-6-15 11:18
+
+
+
+ 本帖最后由 crito 于 2020-6-15 11:20 编辑 
+
+忘了在哪里见过了，有个屁声asmr的资源（貌似是南加
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 862#       发表于 2020-6-15 11:19
+
+
+
+
+紫宝擤鼻涕的声音把我养成了gachi
+
+谢谢你阿希
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 863#       发表于 2020-6-15 11:20
+
+
+
+
+还有呕吐音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 864#       发表于 2020-6-15 11:22
+
+
+
+
+v综好可怕<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 865#       发表于 2020-6-15 11:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">润姨到底身体什么毛病？现在yhm体质也太弱了吧
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 866#       发表于 2020-6-15 11:25
+
+
+
+
+自从给狐皇编排烫人烟头的事儿之后，你楼的癖好越来越怪了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 867#       发表于 2020-6-15 11:26
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-15 11:29 编辑 
+
+小天使时间表调整，瞄了眼今天改时间了，好像还加了场会限。
+syl，感觉夏吹这些个推是不是要来一次黑历史故事大赏直播了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 868#       发表于 2020-6-15 11:31
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-15 11:36 编辑 
+
+歌回改到国内10点，原来7点是星街阿火小天使三连撞，8点还有夏哥歌回。会限是17号23点。
+
+
+
+
+
+
+
+-----
+
+####  千祀蛮巧  
+##### 869#       发表于 2020-6-15 11:35
+
+
+
+<blockquote>屑屑代沟尼亚 发表于 2020-6-15 11:17
+你可以等她约苔苔去玩的时候去逮 上次她们说才逛了一半</blockquote>
+结果跟作为挡箭牌的小野去三丽鸥或者迪☆尼，在童话国中通过大莱莱找回对人类雌性的渴望→男人爬爬爬。。。的梦
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 870#       发表于 2020-6-15 11:48
+
+
+
+
+黑历史的神
+
+
+
+
+
+
+-zue37Q5-8gu4KwT1kSch-99.png
+(36.61 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-15 11:48 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/15/114840pqwmhxwe8g0bibzy.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 871#       发表于 2020-6-15 11:50
+
+
+
+
+今天晚九点狐皇又要用舟游混时长了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 872#       发表于 2020-6-15 11:51
+
+
+
+
+都病了好几天了，直播中都控制不住咳嗽，明天还要播呢，去个医院都要被贴出来，你们真是😈。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 873#       发表于 2020-6-15 11:51
+
+
+
+
+糖質はあちゃま
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 874#       发表于 2020-6-15 11:54
+
+
+
+
+从屑狐狸一地推文里找出来了....9点舟游危机合约，看丫吃瘪了哈哈
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 875#       发表于 2020-6-15 11:55
+
+
+
+
+红刀哥永远滴神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想看一带一路
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 876#       发表于 2020-6-15 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810198&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-15 11:19</a>
+
+紫宝擤鼻涕的声音把我养成了gachi
+
+谢谢你阿希</blockquote>
+你这个xp我倒还真实第一次见。喷嚏民这么多，没几个迷恋撮鼻涕的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 877#       发表于 2020-6-15 12:08
+
+
+
+
+小野酷爱钱💰，有女人白请去玩成功率还是蛮大的，AA就算了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 878#       发表于 2020-6-15 12:08
+
+
+
+ 本帖最后由 opersuper 于 2020-6-15 12:11 编辑 
+
+小野同接从1000掉到500台了，是被巧克的联动毒了吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 879#       发表于 2020-6-15 12:08
+
+
+
+
+狐皇的box真的能打危机合约吗……看了看box杰哥和小羊好像都没练，怕不是要被暴打
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 880#       发表于 2020-6-15 12:11
+
+
+
+
+我去这些奇怪的ASMR音是什么鬼啊··· 
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日服那个危机合约宣传PV真的好懂的··红刀哥C位！
+
+狐狸这个队伍等级都蛮高了··只要不瞎搞应该是乱杀的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+SYL：看B站动态律可也要打APEX了啊···真的没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
