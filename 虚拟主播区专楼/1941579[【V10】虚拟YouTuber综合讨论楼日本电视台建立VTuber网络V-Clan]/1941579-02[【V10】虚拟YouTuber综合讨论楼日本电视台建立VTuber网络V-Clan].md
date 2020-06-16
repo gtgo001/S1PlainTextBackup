@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 16:12** 
+> ## **本文件最后更新于2020-06-16 18:12** 
 
 
 
@@ -13767,6 +13767,25 @@ holo山头派系应该事指亲狐派或者亲龙派这样的吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14106,6 +14125,25 @@ holo山头派系应该事指亲狐派或者亲龙派这样的吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -14367,6 +14405,25 @@ holohouse这事，yagoo如果只当成是社员过家家，迟早要后悔
 
 当然坦率说这个提议本身确实有点说法，星好像是那个大叔好像好几次封面是播车万
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|那大叔菜的1b，过个eazy都吃力|
+
+
+
+查看全部评分
 
 
 
@@ -15334,4 +15391,1974 @@ syl</blockquote>
 
 
 
-                       
+
+
+-----
+
+####  cockmore  
+##### 2300#       发表于 2020-6-16 16:14
+
+
+
+
+cover搞不定老任对crew们未必不是好事。
+
+希望夸宝回来之后能多播点其他游戏。<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2301#       发表于 2020-6-16 16:15
+
+
+
+
+主要是就目前来看，holo的白名单里游戏也不多，不只是老任一家。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 2302#       发表于 2020-6-16 16:15
+
+
+
+<blockquote>AloissiolA 发表于 2020-6-16 16:08
+にじアン眼里嘘松就是大罪人啊，主要是メンタル很强，被打了马上还手的类型，再加上自我展示欲强，对5ch ...</blockquote>
+虹庵不快感no.1的女人
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2303#       发表于 2020-6-16 16:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">倒是cover搞定了几个游戏啊
+
+木口都快成第一个被anti噎死的箱了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2304#       发表于 2020-6-16 16:17
+
+
+
+[https://www.tanocstore.net/shopdetail/000000002523/](https://www.tanocstore.net/shopdetail/000000002523/)
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2305#       发表于 2020-6-16 16:18
+
+
+
+
+cover现在这样子真是想想就气 现在还有运营份的真是难以理解
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2306#       发表于 2020-6-16 16:19
+
+
+
+
+口了当年也是一段时间内的虹安之姬
+直到6月
+老师被讨厌也正常
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2307#       发表于 2020-6-16 16:20
+
+
+
+[https://www.youtube.com/watch?v=kWybYlFvRng](https://www.youtube.com/watch?v=kWybYlFvRng)
+
+【続報】#幻想郷ホロイズム【宝鐘マリン、幻想郷に出航～！】
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 2308#       发表于 2020-6-16 16:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有没有人清楚以前nico那堆破事的，rurudo以前nico萌声主时期搞得是鲍鲍换包包的？
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2309#       发表于 2020-6-16 16:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827621&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-16 16:20</a>
+
+https://www.youtube.com/watch?v=kWybYlFvRng
+
+【続報】#幻想郷ホロイズム【宝鐘マリン、幻想郷に出航～！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">草，大卡车还是免费素材
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 2310#       发表于 2020-6-16 16:23
+
+
+
+
+cover本身就是小作坊，虹能搞定老任和背后注资方sme肯定有关系。
+
+cover未来也很可能引进资本认爹求生，有个好爹什么都好办。
+
+但是资本入场未必带来好的结果，虹社被鸣神裁爆料的内部矛盾不一定是真的，但资本入场带来的冲击肯定是有的。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2311#       发表于 2020-6-16 16:26
+
+
+
+
+为什么海报是和紫妈站一起<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 2312#       发表于 2020-6-16 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827691&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-16 16:26</a>
+
+为什么海报是和紫妈站一起</blockquote>
+别问，问就是十七歳のシナジー
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2313#       发表于 2020-6-16 16:28
+
+
+
+
+我也想说，这个船长和紫妈同框恶意满满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/cda0dfcd47095bc2ce18a3c0980ee2fb/IMG_FD56A8326351EB08871D2D0B49F153EC.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/60efe631c5b1df424f5f74044f26cd8f/IMG_650520E3B10255E02D768F1D48244527.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2314#       发表于 2020-6-16 16:30
+
+
+
+
+对照爹就是资本的点和找了个资本爹的虹的近况，木口不找资本不是正确的吗
+
+你要资本，你就会得到资本的全部<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2315#       发表于 2020-6-16 16:31
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gfu7ovxxkmj20aa0aodll.jpg" referrerpolicy="no-referrer">
+
+
+这就是最強の吸血鬼姫吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+| Mr.shelter| + 1|思路广|
+| jhouo8989| + 2|太恶毒了|
+| yuandi0120| + 2|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2316#       发表于 2020-6-16 16:32
+
+
+
+ 本帖最后由 opersuper 于 2020-6-16 16:37 编辑 
+
+威震天不用心心太可恶了
+
+粽子怎么不用芳香，底边角色无人权啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 2317#       发表于 2020-6-16 16:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827746&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-16 16:31</a>
+
+这就是最強の吸血鬼姫吗</blockquote>
+草，盲生你发现了华点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2318#       发表于 2020-6-16 16:34
+
+
+
+
+和紫一起站那张海报是之前深夜画画杂谈船长自己画的。木口人物对应车万人物虽然之前就已经有揭示但是配合zun绘更草了，比如与其让白上扮演黑白不如扮演幽幽子契合的多（）
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2319#       发表于 2020-6-16 16:34
+
+
+
+ 本帖最后由 空集 于 2020-6-16 16:35 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2320#       发表于 2020-6-16 16:34
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2321#       发表于 2020-6-16 16:36
+
+
+
+
+恶政隐， 举报了
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 2322#       发表于 2020-6-16 16:37
+
+
+
+
+紫妈同框海报是船长自己画的啊。。
+
+
+不知道这个限定版有没可能上淘宝animate代理店，上一个找代购买的船长本子因为禁运拖到10月了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2323#       发表于 2020-6-16 16:39
+
+
+
+编辑
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2324#       发表于 2020-6-16 16:39
+
+
+
+
+夏色⑨倒是很符合智商
+
+
+miko铃仙peko帝感觉35p又要🥜😈了
+
+
+黑白那么爽朗的性格哪里和狐皇符合了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2325#       发表于 2020-6-16 16:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827824&amp;ptid=1941579" target="_blank">sisyphus_ 发表于 2020-6-16 16:37</a>
+紫妈同框海报是船长自己画的啊。。
+
+
+不知道这个限定版有没可能上淘宝animate代理店，上一个找代购买的船长 ...</blockquote>
+cd应该有点难，所以大概率要等物流恢复了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sisyphus_| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2326#       发表于 2020-6-16 16:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+元gamers雪山人狼pv
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2327#       发表于 2020-6-16 16:40
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-16 16:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827846&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-16 16:39</a>
+夏色⑨倒是很符合智商
+
+
+miko铃仙peko帝感觉35p又要🥜😈了</blockquote>
+你二设看多了
+我指狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl
+<img src="https://p.sda1.dev/0/12b877abbbd050327c4eda5f1292526b/IMG_20200616_164233.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 2328#       发表于 2020-6-16 16:41
+
+
+
+ 本帖最后由 路人子 于 2020-6-16 17:08 编辑 
+
+*车万豆知识科普：在车万的原作设定中，蕾米莉亚的种族不是吸血鬼，而是恶魔。有许多人在这一点上会产生混淆。
+
+↑科普有误，在正作设定中蕾米莉亚的种族确实已明确注明是“吸血鬼”，而她的称号是“恶魔”。
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2329#       发表于 2020-6-16 16:43
+
+
+
+
+把anmr的漫画小动画补了一大圈，还挺有趣的啊，剧本保持了一定质量，一般1-5w的播放，偶尔还能有10w+播放的热门回
+
+不过整了两个月还没到2w订阅，不知道算不算失败...
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 2330#       发表于 2020-6-16 16:44
+
+
+
+
+第一次看🐰皇就感觉有呢么丶像因幡帝
+
+啊，现在改名叫因幡天为了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+有丶好奇国内东方展子会不会把船皇整进来
+
+
+不发散了最近事多。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2331#       发表于 2020-6-16 16:45
+
+
+
+
+纯东方小白，恶魔吸不吸血啊？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 2332#       发表于 2020-6-16 16:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827871&amp;ptid=1941579" target="_blank">路人子 发表于 2020-6-16 16:41</a>
+
+*车万豆知识科普：在车万的原作设定中，蕾米莉亚的种族不是吸血鬼，而是恶魔。有许多人在这一点上会产生混 ...</blockquote>
+什么粉什么v crew🥜😈 夸皇就也🥜😈
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2333#       发表于 2020-6-16 16:46
+
+
+
+ 本帖最后由 ひびき 于 2020-6-16 16:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827871&amp;ptid=1941579" target="_blank">路人子 发表于 2020-6-16 16:41</a>
+
+*车万豆知识科普：在车万的原作设定中，蕾米莉亚的种族不是吸血鬼，而是恶魔。有许多人在这一点上会产生混 ...</blockquote>
+瞎扯
+
+
+○永遠に紅い幼き月
+
+レミリア·スカーレット
+
+
+能力：運命を操る程度の能力
+
+
+
+最終ボスです。５００年程お嬢様をしています。
+
+
+ゲーム中は匂わせてるだけで何にも語ってないですが、<strong>ヴァンパイア</strong>
+
+です。霧を発生させて幻想郷を覆い隠したのも日光を遮断するためで
+
+す。すでに５００年以上生きているのに、性格はわがままな幼い少女
+
+そのものです。
+
+
+
+○紅い悪魔
+
+レミリア·スカーレット
+
+
+種族：<strong>吸血鬼</strong>
+
+住処：紅魔館
+
+能力：運命を操る程度の能力
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2334#       发表于 2020-6-16 16:47
+
+
+
+
+👿和👿之间有生殖隔离吗？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2335#       发表于 2020-6-16 16:49
+
+
+
+ 本帖最后由 Ketestrait 于 2020-6-16 16:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827871&amp;ptid=1941579" target="_blank">路人子 发表于 2020-6-16 16:41</a>
+
+*车万豆知识科普：在车万的原作设定中，蕾米莉亚的种族不是吸血鬼，而是恶魔。有许多人在这一点上会产生混 ...</blockquote>
+我赶紧拿起手里的求闻史记翻了一下
+
+“来幻想乡之前就被人们叫做红色恶魔，原因是经常被溢出的血染红衣服”
+
+“外貌与思维都很年幼，实际上却已经活了500年以上，有着与吸血鬼相符的惊人身体能力”
+
+
+恶魔才是外号啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+除非ZUN不具有东方的释经权<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 2336#       发表于 2020-6-16 16:51
+
+
+
+
+美咲厨迅速找了一圈人，毫无波动
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2337#       发表于 2020-6-16 16:51
+
+
+
+
+从身材上，夸皇倒是挺蕾米莉亚的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+syl，抱头蹲防和土下座也有异曲同工之妙
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 2338#       发表于 2020-6-16 16:51
+
+
+
+
+抱头蹲防.jpg。五百年的威严警告。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2339#       发表于 2020-6-16 16:53
+
+
+
+
+没有pad长，毫无波动。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2340#       发表于 2020-6-16 16:56
+
+
+
+
+阿火是紫发老太太吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2341#       发表于 2020-6-16 16:58
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-16 17:00 编辑 
+
+阿火就给我强烈的纯凑cp凑上去的感觉，当然35也有点…其他的相似处还是挺明显的。
+
+
+
+
+
+
+
+-----
+
+####  soraku  
+##### 2342#       发表于 2020-6-16 16:59
+
+
+
+<img src="https://p.sda1.dev/0/d703af2121112f98b7b0ba88a242c350/IMG_5D0A47BDC8BD140752E079C8E67673F7.jpeg" referrerpolicy="no-referrer">
+蝙蝠妹最近肉眼可见的坦啊，高P都挡不住的肥肉<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2343#       发表于 2020-6-16 17:00
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-16 17:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828154&amp;ptid=1941579" target="_blank">soraku 发表于 2020-6-16 16:59</a>
+
+蝙蝠妹最近肉眼可见的坦啊，高P都挡不住的肥肉</blockquote>
+脱粉了
+
+
+syl 可以拍一下肚腩的照片吗
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2344#       发表于 2020-6-16 17:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827780&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-16 16:34</a>
+
+和紫一起站那张海报是之前深夜画画杂谈船长自己画的。木口人物对应车万人物虽然之前就已经有揭示但是配合zu ...</blockquote>
+幽幽子让团长来纯粹是乳量问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2345#       发表于 2020-6-16 17:03
+
+
+
+
+这楼里居然有这么多东方人，我就想知道有几个人玩过原作(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  路人子  
+##### 2346#       发表于 2020-6-16 17:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827991&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-16 16:49</a>
+
+我赶紧拿起手里的求闻史记翻了一下
+
+“来幻想乡之前就被人们叫做红色恶魔，原因是经常被溢出的血染红衣服” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">本来想反驳一下说“当年其实也有小范围讨论并最终认定求闻史纪实际是以阿求为主视角写出的自我认知”的，但在仔细查阅了正作设定集（附带文档）之后发现蕾米莉亚的种族确实是<strong>吸血鬼</strong>，而且其称号是紅い<strong>悪魔</strong>。
+
+证据确凿，是在下输了。
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2347#       发表于 2020-6-16 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828204&amp;ptid=1941579" target="_blank">Mr.shelter 发表于 2020-6-16 17:03</a>
+
+这楼里居然有这么多东方人，我就想知道有几个人玩过原作(ಡωಡ)</blockquote>
+【东方人就像越共，平时一个都找不到，一提相关就不知道从哪冒出来了】
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 2348#       发表于 2020-6-16 17:08
+
+
+
+
+阿葵的任任游戏直播可以在组号转了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2349#       发表于 2020-6-16 17:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828176&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-16 17:01</a>
+
+幽幽子让团长来纯粹是乳量问题吧</blockquote>
+还有特能吃这个二设吧<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+
+阿火百分之一千是为了凑CP给套进紫妈去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2350#       发表于 2020-6-16 17:10
+
+
+
+<blockquote>soraku 发表于 2020-6-16 16:59
+蝙蝠妹最近肉眼可见的坦啊，高P都挡不住的肥肉</blockquote>
+脸好圆，感觉会是免费喜欢的类型
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2351#       发表于 2020-6-16 17:11
+
+
+
+
+失语狐的十分壶几乎没有进展就暴毙了， 不过苟到了万棒
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2352#       发表于 2020-6-16 17:11
+
+
+
+
+看了眼towa这个排班就一起发了
+<img src="https://p.sda1.dev/0/fa7a51fd5bf7a4f273b3449321ae2c52/IMG_D36667E15EBA78A1947110E53CE2C704.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2353#       发表于 2020-6-16 17:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828307&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-16 17:09</a>
+
+还有特能吃这个二设吧
+
+阿火百分之一千是为了凑CP给套进紫妈去的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实也可以套妖梦的。。。。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2354#       发表于 2020-6-16 17:13
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-16 17:31 编辑 
+
+小天使一会cst18：00玩事故物件，新作业确认。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2355#       发表于 2020-6-16 17:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/171416xsc7x033eev479zh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616181403.jpg</strong> (28.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 17:14 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然敢试图欺负超级阳角的松鼠
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2356#       发表于 2020-6-16 17:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828286&amp;ptid=1941579" target="_blank">黑之和 发表于 2020-6-16 17:08</a>
+
+阿葵的任任游戏直播可以在组号转了</blockquote>
+彩虹组现在渐渐开始全面在B站转播了啊，方便了不少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千祀蛮巧  
+##### 2357#       发表于 2020-6-16 17:18
+
+
+
+<blockquote>恶魔娘阿洛 发表于 2020-6-16 17:12
+其实也可以套妖梦的。。。。。</blockquote>
+那也太违和了。。。至少套紫都是金毛
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 2358#       发表于 2020-6-16 17:20
+
+
+
+
+那么谁套烈海王呢（错乱）
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 2359#       发表于 2020-6-16 17:21
+
+
+
+
+我去这holo套东方真的能把人笑死<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+阿夸怎么就成蕾米莉亚了…
+船长这个东方先知身份真的太给力了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 2360#       发表于 2020-6-16 17:21
+
+
+
+
+可惜dmca大棒不能像油管那样打啊B，要不然anti人有的乐了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2361#       发表于 2020-6-16 17:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828451&amp;ptid=1941579" target="_blank">与天争锋_LZ 发表于 2020-6-16 17:20</a>
+
+那么谁套烈海王呢（错乱）
+
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/16/172338h9pwqwq4zuipqqwi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4bed2e738bd4b31ceffa32d490d6277f9f2ff89f.jpg</strong> (11.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 17:23 上传
+
+
+
+
+
+
+
+答案是谁都可以，因为烈一向是无所谓的
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 2362#       发表于 2020-6-16 17:24
+
+
+
+
+STG只能通H的渣，风险投资当年被人控血吊着打的渣
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2363#       发表于 2020-6-16 17:26
+
+
+
+ 本帖最后由 ひびき 于 2020-6-16 17:28 编辑 
+
+通H还渣，我还只能通E呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+老实说东方通E都给练练，能超过木口大部分人的游戏耐心了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2364#       发表于 2020-6-16 17:29
+
+
+
+[https://www.youtube.com/watch?v=e8ZCIJZDLiQ](https://www.youtube.com/watch?v=e8ZCIJZDLiQ)
+
+
+古のオタクはどっちだ！？白上フブキVSリアルアキバボーイズ
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 2365#       发表于 2020-6-16 17:31
+
+
+
+
+杏要吃饭的啊，哪有这么多时间练没啥人看的stg，又不是我十几年前上大学时除了打游戏没事干了
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 2366#       发表于 2020-6-16 17:33
+
+
+
+
+烈海王=烈小龙
+
+木口的龙，不用我多说了罢
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2367#       发表于 2020-6-16 17:34
+
+
+
+
+走了一位叔，又来一位叔，你不会也是祭推吧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 2368#       发表于 2020-6-16 17:36
+
+
+
+
+那个。。魔理沙有个外号叫魔胖子
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 2369#       发表于 2020-6-16 17:38
+
+
+
+
+好像没有恋恋。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2370#       发表于 2020-6-16 17:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828602&amp;ptid=1941579" target="_blank">辉耀还差3800 发表于 2020-6-16 17:31</a>
+
+杏要吃饭的啊，哪有这么多时间练没啥人看的stg，又不是我十几年前上大学时除了打游戏没事干了 ...</blockquote>
+十几年前上大学......也是三十代前半的叔辈人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2371#       发表于 2020-6-16 17:40
+
+
+
+ 本帖最后由 colodes 于 2020-6-16 17:43 编辑 
+
+wsotaku叔的上位替代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+V综也在养蛊吗
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 2372#       发表于 2020-6-16 17:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">我虽然也有老婆有娃也给阿希打钱但我不是独角兽啊，gachi度不如w叔的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2373#       发表于 2020-6-16 17:44
+
+
+
+
+马自立自己都没上位替代，祭丝就有上位替代了，好过分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2374#       发表于 2020-6-16 17:44
+
+
+
+
+好像是已经化身巨魔的祭丝，至少不用看到发疯转化阶段了。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2375#       发表于 2020-6-16 17:44
+
+
+
+
+船皇带萝卜打yyc的直播还蛮好看的，日本观众叔浓度不会低吧
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2376#       发表于 2020-6-16 17:45
+
+
+
+
+魔胖子草，我都忘了这茬了。
+
+
+syl   之前也车过就是互动前提下播stg确实要求比较高，所以确实一般也没法图管人播飞机.....船长一般播n但是实力远不止n
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2377#       发表于 2020-6-16 17:47
+
+
+
+
+这个白上 VS RAB的题目还挺有意思的，就是一堆老宅题中间插一个鬼灭之刃特别神秘<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+追加问题来个女性向有点赖，宅男反应肯定要慢一拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2378#       发表于 2020-6-16 17:48
+
+
+
+
+感觉龙宝观众叔浓度应该不低，不然哪儿来那么多钱。
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 2379#       发表于 2020-6-16 17:49
+
+
+
+
+只要心态不叔，就算30岁了又怎么样，男人至死是少年<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2380#       发表于 2020-6-16 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828777&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-16 17:48</a>
+感觉龙宝观众叔浓度应该不低，不然哪儿来那么多钱。</blockquote>
+那按照这个理论，润gachi人均老大爷吗
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 2381#       发表于 2020-6-16 17:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">黑宝要变黑叔了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2382#       发表于 2020-6-16 17:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我看的不多，但是第一次看到博士玩游戏居然能吊着别人打还是觉得好震惊
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2383#       发表于 2020-6-16 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828792&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-16 17:50</a>
+
+那按照这个理论，润gachi人均老大爷吗</blockquote>
+不知道你楼润gachi多大
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 2384#       发表于 2020-6-16 17:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828792&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-16 17:50</a>
+那按照这个理论，润gachi人均老大爷吗</blockquote>
+考虑润姨的年龄，应该八九不离十
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2385#       发表于 2020-6-16 17:54
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/175405lfbx1sq1g73pzps5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ean94fYUMAIA3GM.jpg</strong> (109.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 17:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2386#       发表于 2020-6-16 17:55
+
+
+
+ 本帖最后由 tiro_finale 于 2020-6-16 17:58 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/175738u6axt7m78at6pcj6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eai20jJU4AAERg4.jpg</strong> (26.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 17:57 上传
+
+
+
+
+
+
+[https://twitter.com/okarinxx/status/1272467914193465346](https://twitter.com/okarinxx/status/1272467914193465346)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2387#       发表于 2020-6-16 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828832&amp;ptid=1941579" target="_blank">forzen 发表于 2020-6-16 17:52</a>
+
+虽然我看的不多，但是第一次看到博士玩游戏居然能吊着别人打还是觉得好震惊 ...</blockquote>
+她玩需要动脑子的游戏都很强，其实就是操作不太行，51合集确实很适合她
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2388#       发表于 2020-6-16 17:58
+
+
+
+ 本帖最后由 QWANG 于 2020-6-16 17:59 编辑 
+
+什么啊，fandead还是挺年轻的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，学生不少，有不少上学和打工缺席的，明说就是高中生什么的，还有第一次领工资的，不算年纪大吧。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2389#       发表于 2020-6-16 18:00
+
+
+
+
+总结狐皇和魔理沙的共同点
+
+魔理沙有爱丽丝和帕秋还有灵梦三个主流cp，狐皇也有马自立三才和yagoo三个主流CP。
+
+魔爱有寿命梗，夏吹有年龄梗。
+
+魔理沙一堆后宫百合cp却喜欢男人，白上吹雪也喜欢男人。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2390#       发表于 2020-6-16 18:01
+
+
+
+
+管人无关：东映又注册新商标了，看来新来打的消息该有了......说起来夏哥是不是在直播时玩过射击升华器？还是01驱动器？忘了......
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2391#       发表于 2020-6-16 18:03
+
+
+
+
+已经不对新来打抱有希望了，在被时王和01的连续喂💩后我是不可能追新来打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 2392#       发表于 2020-6-16 18:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828920&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-16 18:00</a>
+总结狐皇和魔理沙的共同点
+
+魔理沙有爱丽丝和帕秋还有灵梦三个主流cp，狐皇也有马自立三才和yagoo三个主流CP ...</blockquote>
+我幻想乡之王这么没牌面的吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2393#       发表于 2020-6-16 18:04
+
+
+
+
+还有胖，不过很灵活，移速快，能跳舞（虽然现在主角组一样胖了）
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2394#       发表于 2020-6-16 18:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/180605rvt8x7l4zc4cro38.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200616180547.png</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 18:06 上传
+
+
+
+
+
+
+罕见的换了表情（并维持一场直播）
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 2395#       发表于 2020-6-16 18:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828927&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-16 18:01</a>
+
+管人无关：东映又注册新商标了，看来新来打的消息该有了......说起来夏哥是不是在直播时玩过射击升华器？还 ...</blockquote>
+黑宝火星了吧，yysy，假面骑士saber听起来还挺有意思的，会是blade复刻吗
+
+
+但是我不会再期待了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 2396#       发表于 2020-6-16 18:06
+
+
+
+
+那yagoo必定乡长(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2397#       发表于 2020-6-16 18:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828849&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-16 17:54</a></blockquote>
+这比赛完全算是官方给新人做宣传了，能打的虹女几乎全没参加，估计是拿来救新人虹男的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2398#       发表于 2020-6-16 18:07
+
+
+
+
+感觉最近每次点进心心的频道就是疯狂的气息扑面而来
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2399#       发表于 2020-6-16 18:07
+
+
+
+ 本帖最后由 opersuper 于 2020-6-16 18:09 编辑 
+<blockquote>掉头学姐 发表于 2020-6-16 18:04
+我幻想乡之王这么没牌面的吗
+
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+官方糖有什么和二设盾推抢位置的必要性吗（天下无敌）
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2400#       发表于 2020-6-16 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828980&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-16 18:06</a>
+
+黑宝火星了吧，yysy，假面骑士saber听起来还挺有意思的，会是blade复刻吗
+
+
+但是我不会再期待了 ...</blockquote>
+这作应该是假面50年纪念作吧，30年的纪念作是AgitΩ是神作,40年是fourze还凑合，这次50年奶一下不拉胯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    

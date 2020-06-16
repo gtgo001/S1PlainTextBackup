@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 14:03** 
+> ## **本文件最后更新于2020-06-16 18:03** 
 
 
 
@@ -14581,4 +14581,262 @@ mea：哦
 
 
 
-                      
+
+
+-----
+
+####  路人庚  
+##### 12829#       发表于 2020-6-16 14:08
+
+
+
+
+运气就是一阵风.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12830#       发表于 2020-6-16 14:16
+
+
+
+ 本帖最后由 路人庚 于 2020-6-16 14:17 编辑 
+
+只和断幺九的mea居然把舞元飞了草，mea还拿了第一
+
+#舞元飛翔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12831#       发表于 2020-6-16 14:18
+
+
+
+
+推上看到这么一句草
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/141758rawboddijhoz5bok.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200616141749.png</strong> (81.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 14:17 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12832#       发表于 2020-6-16 14:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">兔鞠有点可爱
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12833#       发表于 2020-6-16 14:31
+
+
+
+
+三巡立直一发，这狗兔子
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 12834#       发表于 2020-6-16 14:36
+
+
+
+
+mea不是透露过录了10几首歌了嘛，bls应该快了吧。
+记忆中mea是自己有录音棚的存在
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12835#       发表于 2020-6-16 14:40
+
+
+
+
+mea房间做过简单隔音，还有一个非常好的麦克风而已（这也大概算是简易录音棚了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12836#       发表于 2020-6-16 14:47
+
+
+
+
+当你想立直的时候遇到三个吃碰杠怪.jpg
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12837#       发表于 2020-6-16 14:56
+
+
+
+
+。。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这什么惩罚
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12838#       发表于 2020-6-16 14:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12839#       发表于 2020-6-16 14:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">学会日麻之后感觉麻将真有趣啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12840#       发表于 2020-6-16 17:51
+
+
+
+
+啊那我现在还看不懂，hxd就咩咩的水平而言我是看得懂好呢还是看不懂好呢(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12841#       发表于 2020-6-16 17:53
+
+
+
+
+棋牌活动中心回我都当bgm用,看不看得懂无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12842#       发表于 2020-6-16 17:57
+
+
+
+
+看懂了之后笑点和血压都会增加（看自己取舍8
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12843#       发表于 2020-6-16 18:00
+
+
+
+
+我只会qq上的那个麻将
+
+
+
+
+
+                     
