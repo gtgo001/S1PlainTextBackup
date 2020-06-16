@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 16:00** 
+> ## **本文件最后更新于2020-06-16 10:00** 
 
 
 
@@ -6129,4 +6129,548 @@ one piece就在我身后！最后的敌人：伊姆一出场就把大妈团跟�
 
 
 
-                                      
+
+
+-----
+
+####  理六  
+##### 52834#       发表于 2020-6-13 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47789723&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2020-06-13 15:58:24</a>
+现在看来桃之助简直OP世界第一传奇人物啊，一两岁时在白胡子和海贼王船上旅行，八岁时家族覆灭穿越时空成立 ...</blockquote>日式杰克苏
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52835#       发表于 2020-6-13 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788379&amp;ptid=98922" target="_blank">icewolf01 发表于 2020-06-13 13:14:04</a>
+暴躁老姐有点可爱，可千万别跟泥潭网友说的一样配给路飞当单相思，太白瞎了 ...</blockquote>单恋没意思，想看欢喜冤家吵来吵去
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  白金口袋  
+##### 52836#       发表于 2020-6-13 18:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47788379&amp;ptid=98922" target="_blank">icewolf01 发表于 2020-6-12 23:14</a>
+
+暴躁老姐有点可爱，可千万别跟泥潭网友说的一样配给路飞当单相思，太白瞎了 ...</blockquote>
+旁边还有弟弟在呢，努力阻止姐姐白给吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52837#       发表于 2020-6-13 18:07
+
+
+
+
+贝吉塔说得对，搞笑人物是无敌的，所以大妈拿弱小二人组没办法。
+
+
+
+
+
+
+
+-----
+
+####  renkan119  
+##### 52838#       发表于 2020-6-13 18:21
+
+
+
+<blockquote>yth329 发表于 2020-6-13 01:27
+这桃之助的比例怎么像袖珍人一样</blockquote>
+桃之助是正常身高 是其他人太高了 都是3米打底
+
+
+
+
+
+
+
+-----
+
+####  hkguty  
+##### 52839#       发表于 2020-6-13 18:27
+
+
+
+
+感觉在很久之前就有预感凯多海贼团这边WT应该会创造一个比较讨喜的女角色，三灾后面公布的时候全是男的当时还感觉有点失望，没想到还有飞六胞这梗
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52840#       发表于 2020-6-13 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47790712&amp;ptid=98922" target="_blank">理六 发表于 2020-6-13 17:57</a>
+
+单恋没意思，想看欢喜冤家吵来吵去
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这位朋友你是在说路飞吗
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52841#       发表于 2020-6-13 19:39
+
+
+
+
+目前為止op能和路飛互相看不順眼一句一句懟的，也就黑鬍子吧。黑鬍子路飛歡喜冤家說。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  流连成双  
+##### 52842#       发表于 2020-6-13 22:14
+
+
+
+
+扉页笑死，戚风抱着卡彭跑可还行
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52843#       发表于 2020-6-13 22:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47785463&amp;ptid=98922" target="_blank">羲和 发表于 2020-6-13 03:34</a>
+猫狗这个情况剧情上倒是好解决，来一个发了誓在佐乌等20年不离开就好了，他俩怎么从凯多手里跑掉的也还没 ...</blockquote>
+我觉得他说的情况不是指不知道御田死了，凯多在和之国这个大家都知道，御田也说了不要雷利去帮忙，这是他自己的选择，这漫画是尊重本人意愿的.就是他死了白团罗团都不会说什么.但是在和之国做人体试验，摧残国民这才是马尔科他们不知道的.这俩团更像海侠，或者说有这个借口他们才好理直气壮报仇
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52844#       发表于 2020-6-13 22:29
+
+
+
+
+卡彭丢人，你的坦克形态呢？ <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52845#       发表于 2020-6-15 19:47
+
+
+
+
+第1次更新，简易情报翻译 by【TalkOP汉化】norman 搜集：TalkOP海道-海贼王论坛情报员，来自国外网站公开资讯内容。
+- 乌尔缇的果实是龙龙果实 厚头龙型态 
+- 乌尔缇使用了某个头部招式（head-stitching ）
+- 大和戴上了般若面具登场
+- 大和在等著路飞，之后与路飞一起逃跑
+- 下周休刊
+
+大和真就之前猜测的那样会二五
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 52846#       发表于 2020-6-15 19:58
+
+
+
+
+又跑了？
+
+
+希望是边跑边直播嘴臭对骂<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52847#       发表于 2020-6-15 20:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47816993&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2020-06-15 19:58:27</a>
+又跑了？
+
+
+希望是边跑边直播嘴臭对骂</blockquote>和路飞一起跑的是凯多儿子不是嘴臭老姐啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52848#       发表于 2020-6-15 20:23
+
+
+
+
+这剧情、、、、怕什么来什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千叶铁矢  
+##### 52849#       发表于 2020-6-15 20:33
+
+
+
+
+周一就有消息？
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 52850#       发表于 2020-6-15 20:36
+
+
+
+
+美女变恐龙会不会扣人气
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 52851#       发表于 2020-6-15 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47817026&amp;ptid=98922" target="_blank">理六 发表于 2020-6-15 20:01</a>
+
+和路飞一起跑的是凯多儿子不是嘴臭老姐啊
+
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+我的意思是希望暴躁老姐带着弟弟追上去啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  caster  
+##### 52852#       发表于 2020-6-15 21:09
+
+
+
+
+现在情报这么快的？
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52853#       发表于 2020-6-15 22:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47817839&amp;ptid=98922" target="_blank">caster 发表于 2020-6-15 21:09</a>
+
+现在情报这么快的？</blockquote>
+看了下是韩国人发的情报，偷跑日漫生肉这块韩国人胆子大得很。
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 52854#       发表于 2020-6-16 00:27
+
+
+
+
+大和怎么有种微妙地串戏到隔壁的blue的感觉
+
+
+
+
+
+
+
+-----
+
+####  satanas  
+##### 52855#       发表于 2020-6-16 00:50
+
+
+
+
+传次郎为啥不把捉到那个6子杀了 感觉这里是有文章的
+
+凯多一如之前的塑造 惯例的外表傻大粗 但偶尔又会露出略有所思的或者没把说话讲得很难听 和他刚出场那些旁白描述感觉还是有点距离 不知道以后会不会讲讲
+
+
+
+
+
+
+
+-----
+
+####  hkguty  
+##### 52856#       发表于 2020-6-16 02:03
+
+
+
+
+老姐逐渐祢豆子化
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52857#       发表于 2020-6-16 02:31
+
+
+
+
+这大和别是路飞二号迷弟吧....<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52858#       发表于 2020-6-16 04:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820956&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-6-16 02:31</a>
+
+这大和别是路飞二号迷弟吧....</blockquote>
+我宁可信他是御田的迷弟。。。
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52859#       发表于 2020-6-16 05:29
+
+
+
+
+第2次更新，补充情报翻译 by【TalkOP汉化】韩文组 搜集：TalkOP海道-海贼王论坛情报员，来自国外网站公开资讯内容。
+-扉页故事，罗拉和戚风与庞德相遇。
+- 佩罗斯佩罗向鬼岛接近中（通过果实能力），不认同海贼同盟。
+- 普罗米修斯追击娜美，宙斯担心遇到大妈会被杀掉。
+- 索隆、基德分别与给赋者们战斗。
+- 大和的自称是“僕boku”（意思就是“我”，但日语中有不同的语气）。
+- 路飞vs乌尔缇，互相撞头大战（乌尔缇喊着招式）。
+- 乌尔缇恶魔果实公开，厚头龙能力，战斗继续中。
+- 带般若面具的大和登场向乌尔缇释放招式，乌尔缇倒地，周围部下不知所措。
+- 带着路飞被部下们追击的大和。
+- 大和：你是草帽路飞吧？一直在等你，我叫大和，是凯多的儿子。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LostWater  
+##### 52860#       发表于 2020-6-16 05:38
+
+
+
+
+凯多儿子也是25仔？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 52861#       发表于 2020-6-16 07:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820465&amp;ptid=98922" target="_blank">satanas 发表于 2020-6-16 00:50</a>
+ 传次郎为啥不把捉到那个6子杀了 感觉这里是有文章的 凯多一如之前的塑造 惯例的外表傻大粗 但偶尔又会露出 ...</blockquote>
+只是因为海贼王的正派做不出这事
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52862#       发表于 2020-6-16 07:09
+
+
+
+
+boku，應該是個年輕人(切嗣：是嗎)
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52863#       发表于 2020-6-16 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821193&amp;ptid=98922" target="_blank">理六 发表于 2020-6-16 05:29</a>
+第2次更新，补充情报翻译 by【TalkOP汉化】韩文组 搜集：TalkOP海道-海贼王论坛情报员，来自国外网站公开资 ...</blockquote>
+庞德没死！！！果然尾田不会玩虐。
+但是这样欧文的实力很让人怀疑了。
+
+
+
+
+
+                                     

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 02:03** 
+> ## **本文件最后更新于2020-06-16 10:05** 
 
 
 
@@ -13363,4 +13363,356 @@ yysy我是觉得拉个权限完事，这哪还有新人来啊
 
 
 
-                        
+
+
+-----
+
+####  Cuppco  
+##### 12763#       发表于 2020-6-16 02:36
+
+
+
+
+不是
+能拉窗帘就拉啊
+上次啥破原因来着拉个窗帘导致我给泥潭充了好几十块钱了诶
+不拉窗帘浪费了啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12764#       发表于 2020-6-16 07:08
+
+
+
+
+诶还真拉权限了！好是好但m楼还是有新人的啊(눈_눈)，以及那些烈士的大号放出来没
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 12765#       发表于 2020-6-16 07:19
+
+
+
+
+   该出来的都出来了，上个月其实就可以拉的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12766#       发表于 2020-6-16 07:38
+
+
+
+
+这里好歹是mea专楼，不是随便让一些人随意排泄的地方，拉权限是好的，等那rz自己离开吧。
+
+
+
+
+
+
+
+-----
+
+####  ColdAir  
+##### 12767#       发表于 2020-6-16 08:32
+
+
+
+
+苔苔过了封宝的年纪了吧
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 12768#       发表于 2020-6-16 08:35
+
+
+
+
+走V综的路
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12769#       发表于 2020-6-16 08:47
+
+
+
+
+草，mea做了不少立绘素材啊，mari怎么也有一份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12770#       发表于 2020-6-16 09:22
+
+
+
+
+又不开台？那就不看了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 12771#       发表于 2020-6-16 09:27
+
+
+
+
+m楼真的有新人吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+哦想起来确实，从去年三四月以来楼里的熟面孔已经换过几拨儿了
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 12772#       发表于 2020-6-16 09:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我承认我是新人
+
+
+
+
+
+
+
+-----
+
+####  GeraltzRivii  
+##### 12773#       发表于 2020-6-16 09:34
+
+
+
+
+有没有懂哥来介绍下小博🐟咋了，记得以前还算个正常人啊。
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12774#       发表于 2020-6-16 09:39
+
+
+
+
+阿咩为什么不能有新人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我就是新参啊
+
+syl  xby原来还有正常时期吗
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12775#       发表于 2020-6-16 09:40
+
+
+
+
+就是，为什么不能有新人
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 12776#       发表于 2020-6-16 09:41
+
+
+
+
+就像问ig，mk2为什么疯了一样，有必要吗，还不如打盘游戏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12777#       发表于 2020-6-16 09:45
+
+
+
+
+说真的，我这种新参连ig是谁都不知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只知道游戏俱乐部的ig
+
+对mk2也只知道好像他在nga发过病导致出了什么事这种程度
+
+syl虽然是没必要的好奇心，但有情强来科普一下他们怎么嗷的一声疯掉的吗？
+
+也好让新参吸取教训啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12778#       发表于 2020-6-16 09:45
+
+
+
+
+还好我平时锲而不舍的登录+签到，赶上了拉窗帘<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12779#       发表于 2020-6-16 09:49
+
+
+
+
+18号联动还是能有一些新人的吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+管人粉丝相关的东西接触多了自然就疯了，“多看管人，少看论坛”<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 12780#       发表于 2020-6-16 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47822281&amp;ptid=1929631" target="_blank">GeraltzRivii 发表于 2020-6-16 09:34</a>
+
+有没有懂哥来介绍下小博🐟咋了，记得以前还算个正常人啊。</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1937846-1-2.html](https://bbs.saraba1st.com/2b/thread-1937846-1-2.html)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 12781#       发表于 2020-6-16 09:53
+
+
+
+
+有新人是好事（指M楼
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12782#       发表于 2020-6-16 09:53
+
+
+
+
+之前看到nga就有一个因为游戏联动加入的新参<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl  但水论坛是真的快乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在基本也就只看咩  杏的几位  几个国v 其他的在s1看v综和b综的管人观众吹水发散黑屁
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12783#       发表于 2020-6-16 10:02
+
+
+
+
+看水贴可太有意思了
+
+
+
+
+
+                       
