@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 18:03** 
+> ## **本文件最后更新于2020-06-16 22:04** 
 
 
 
@@ -14839,4 +14839,1475 @@ mea房间做过简单隔音，还有一个非常好的麦克风而已（这也�
 
 
 
-                     
+
+
+-----
+
+####  weiweiEX  
+##### 12844#       发表于 2020-6-16 18:29
+
+
+
+
+草
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/182923vyviofb7vvvckoa2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-boetZdT3cSlo-r7.jpg.medium.jpg</strong> (61.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 18:29 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/182936bbz9eardbqgqb11q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-iu1rZcT3cSom-mv.jpg.medium.jpg</strong> (51.46 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 18:29 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12845#       发表于 2020-6-16 18:37
+
+
+
+
+这联动功夫下足了啊<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 12846#       发表于 2020-6-16 18:39
+
+
+
+
+可以可以，诚意满满
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12847#       发表于 2020-6-16 19:13
+
+
+
+
+二周年b限表情包活动有麻将脸就离谱www
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12848#       发表于 2020-6-16 19:17
+
+
+
+
+希望这次大家开开心心，不要再有什么风波了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12849#       发表于 2020-6-16 19:18
+
+
+
+
+怪文书，我要写怪文书
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 12850#       发表于 2020-6-16 19:24
+
+
+
+
+各种zqsg或者怪文书可以写起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12851#       发表于 2020-6-16 19:32
+
+
+
+
+怪文书写起来，好久没真情实感了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12852#       发表于 2020-6-16 19:37
+
+
+
+
+都忘记是看她什么视频入的坑了，就自然而然的点了关注然后就喜欢上了她，想看她究竟能走多久……难受，怪文书写不了了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12853#       发表于 2020-6-16 20:04
+
+
+
+
+呜呜呜写不了小作文
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12854#       发表于 2020-6-16 20:05
+
+
+
+
+啊建议去隔壁日记楼抄点(ಡωಡ) （）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12855#       发表于 2020-6-16 20:05
+
+
+
+
+没有文采
+
+没有zqsg
+
+麻将脸的确挺多人用
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12856#       发表于 2020-6-16 20:05
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-16 20:06 编辑 
+
+泥潭在官组还是有点面子的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+syl，创作沙雕表情包不需要zqsg，楼友们快上
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12857#       发表于 2020-6-16 20:09
+
+
+
+
+两周年了？
+好，好，好
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12858#       发表于 2020-6-16 20:19
+
+
+
+
+我都没想到过能到两年
+
+18年年末入坑的时候我以为她可能到明年这时候就已经跑路了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12859#       发表于 2020-6-16 20:31
+
+
+
+
+啊，看了文章发现不能写怪文书，我写给自己看吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12860#       发表于 2020-6-16 20:46
+
+
+
+
+今晚无了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 12861#       发表于 2020-6-16 20:59
+
+
+
+
+咋又跟星街起冲突了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12862#       发表于 2020-6-16 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830733&amp;ptid=1929631" target="_blank">十九号大侠 发表于 2020-6-16 20:59</a>
+
+咋又跟星街起冲突了</blockquote>
+没起冲突啊，V8在拱火罢了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12863#       发表于 2020-6-16 21:01
+
+
+
+ 本帖最后由 惑星 于 2020-6-16 21:03 编辑 
+
+啥冲突，发生了啥
+悲观，乐观，我.jpg
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12864#       发表于 2020-6-16 21:03
+
+
+
+
+和星姐有啥关系，不都在说b站吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12865#       发表于 2020-6-16 21:04
+
+
+
+
+v8又想找乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这动态都发了一天了现在才来带，乐子人真的憨<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12866#       发表于 2020-6-16 21:04
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 12867#       发表于 2020-6-16 21:05
+
+
+
+
+前一个奖励还没发就开始斗下一个虫也太弱智了233
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12868#       发表于 2020-6-16 21:06
+
+
+
+
+主要在怼b站的bls奖励没兑现吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 12869#       发表于 2020-6-16 21:08
+
+
+
+
+你阿b哪怕说一下因为疫情原因live推迟，粉丝们有怨言也会憋着，nm一句话都不放就开下一个割韭菜活动，不明摆着搞人吗？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12870#       发表于 2020-6-16 21:08
+
+
+
+
+大概就是mea粉怼bls相关，然后V8找着乐子就蹦了出来，有人跑来弱智复读，还有人想拱火mea粉星街粉打架
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12871#       发表于 2020-6-16 21:18
+
+
+
+
+这活让v8背也挺好的，污妖王承受世间之恶，起码跟mmr对上了不用煞费苦心的解释可以直接甩锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12872#       发表于 2020-6-16 21:18
+
+
+
+
+还有莫名其妙的冠军粉混在其中，这种人和乐子人没区别的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12873#       发表于 2020-6-16 21:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">昨天苔苔好不容易问了新衣服。。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">态度有点暧昧。。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这两周年问答可不可以表达自己很期待她的新衣服啊
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12874#       发表于 2020-6-16 21:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47831016&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-16 21:24</a>
+昨天苔苔好不容易问了新衣服。。。。。。
+态度有点暧昧。。。。。。
+这两周年问答可 ...</blockquote>
+也行吧，一周年新衣服，生日3d。
+mea就喜欢n合一。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12875#       发表于 2020-6-16 21:25
+
+
+
+
+昨天是不是说觉得想新衣服太麻烦就不打算搞了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12876#       发表于 2020-6-16 21:26
+
+
+
+
+是说了，觉得新衣服太麻烦所以不想搞，不过也没说死，都可以做梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12877#       发表于 2020-6-16 21:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12878#       发表于 2020-6-16 21:30
+
+
+
+
+这人啊，明着捡钱的事都不干，气死我了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12879#       发表于 2020-6-16 21:31
+
+
+
+
+为啥会觉得麻烦啊。。。momo老师的曲绘和新衣服也差不多吧，少一个测试l2d的环节
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12880#       发表于 2020-6-16 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">她自己也要给意见，还要怕新衣服不怎么样。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">说实话，就是怕麻烦。。。。。懒
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12881#       发表于 2020-6-16 21:34
+
+
+
+
+哎，转两段nga同传，避免重复信息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/16/213438syou4s6fsxf6o6q6.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616213259.png</strong> (72.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 21:34 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/213438s3z5kisi1nd0n5yk.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616213319.png</strong> (105.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 21:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12882#       发表于 2020-6-16 21:35
+
+
+
+
+皮gachi受不了，没新衣服就没吧，不过把她催烦了说不定她会解锁这皮的新功能也说不定
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12883#       发表于 2020-6-16 21:37
+
+
+
+
+新衣服弄起来总感觉很微妙<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+找#吧,没啥关系要价高而且#还不间断抽风画,看ars那新衣服成啥样了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不找#吧,谁知道换个画风对现在的粉丝群体会有啥影响<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12884#       发表于 2020-6-16 21:38
+
+
+
+
+别找#了，今年找明年能不能出来都是个问题
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12885#       发表于 2020-6-16 21:39
+
+
+
+
+我还蛮想让她把原创曲的皮做成新衣服的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12886#       发表于 2020-6-16 21:41
+
+
+
+
+井皇的皮除了咩的我现在还没看顺眼的，可能是我滤镜太重，总觉得其他的都没她的l2d动起来自然
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12887#       发表于 2020-6-16 21:41
+
+
+
+
+就是不想搞啊 怎么会是太麻烦
+
+这种东西基本上和买画一样 只要设定沟通完后面基本全自动 
+
+对企业势来说可能是实力的证明之一(毕竟不是你想搞就能搞) 但对个人势来说真的就是只是有钱就能搞的东西
+
+属于毫无达成感的活动内容 可能是最后发布出来收点钱会比较开心吧 (当然趁着大家有热情时收割一下是比较好的策略)
+
+非要说的话除了回馈粉丝以外毫无意义 但讲道理她最近翻唱和原创曲已经够回馈粉丝了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12888#       发表于 2020-6-16 21:41
+
+
+
+
+怎么可能去找井皇,再送10%出去么?
+
+找天野喜孝这种大宗师画个画都没这么黑吧
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 12889#       发表于 2020-6-16 21:42
+
+
+
+
+讲道理还是原创曲难点。。我还挺开心的。
+不过有了一就想有二
+有没有苦情曲啊
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 12890#       发表于 2020-6-16 21:43
+
+
+
+
+她对现在的形象挺满意的吧，也不是懒不懒的问题，应该就是不太愿意换
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12891#       发表于 2020-6-16 21:43
+
+
+
+
+P妈那边不是说今年约稿排满么，要插队要加钱。顺便我觉的现在的咩粉没几个非P妈皮不看的，只要不是当初某个妹妹那种画风大转变都可以接受吧
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 12892#       发表于 2020-6-16 21:43
+
+
+
+ 本帖最后由 jhouo8989 于 2020-6-16 21:44 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12893#       发表于 2020-6-16 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47831166&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-16 21:37</a>
+新衣服弄起来总感觉很微妙
+
+找#吧,没啥关系要价高而且#还不间断抽风画,看ars那新衣服成啥样了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">真当#画得皮好呢。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">现在live2d比他做的好的比比皆是
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">还有ars那头上插着两浮游炮不是他最新杰作吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">真让他做还不得帮你麻两油条换成麻花
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12894#       发表于 2020-6-16 21:44
+
+
+
+
+白毛异色瞳法国女仆深入人心,换新衣服了我写文又要揣摩一遍设定了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 12895#       发表于 2020-6-16 21:45
+
+
+
+
+换画师这种事情，你丢手游里怕不是撕个腥风血雨，尤其是人气角色的画师如果不在供稿。换的画师还要委屈自己去接近原画风，多次以后一点一点换成自己的风格。
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 12896#       发表于 2020-6-16 21:45
+
+
+
+
+找井还不如不换。草莓饺子当初不就是猜是皮吗，能动起来的话应该不差
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12897#       发表于 2020-6-16 21:46
+
+
+
+
+去推特反应反应就行了，干着急也不行<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12898#       发表于 2020-6-16 21:46
+
+
+
+
+#这么臭的技术还留恋他干什么
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12899#       发表于 2020-6-16 21:46
+
+
+
+
+no#
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 12900#       发表于 2020-6-16 21:46
+
+
+
+
+bsyl 这人直播观可能真和其他liver不同
+
+她比较想和观众产生共感讨厌观众自我感动，当你们为新衣服高兴时她可能真的无法理解，因为对她来说只是买了张画而已<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+这也是为什么她翻唱的热情比做这种高多了，毕竟她觉得自己努力然后努力得到表扬了。
+
+以上都是个人妄想<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12901#       发表于 2020-6-16 21:47
+
+
+
+
+原PP和现CCLL做新皮的也没人找P妈做吧，哦，大松鼠的那个清凉版是P妈做的，还是因为初版的质量太.....
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12902#       发表于 2020-6-16 21:49
+
+
+
+
+“**，我买了张画你们就给我打钱，神经病啊”
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12903#       发表于 2020-6-16 21:49
+
+
+
+
+不会真的有人觉得#皇行吧？难道还有不是#皇画风就不看了的。
+
+天狗还是#孝子啊？
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 12904#       发表于 2020-6-16 21:51
+
+
+
+
+别井了，感觉要犯恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12905#       发表于 2020-6-16 21:51
+
+
+
+
+忘了昨天是不是有说过本来想把草莓饺子做成皮的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12906#       发表于 2020-6-16 21:51
+
+
+
+
+草，我说怎么突然车回皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+让她凭空搞个新衣服来估计不可能了，不过原创曲做个皮，看她反应我觉得还是有希望的，草莓饺子的反响也不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以拱拱
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12907#       发表于 2020-6-16 21:52
+
+
+
+
+还说还有谁两年没新皮的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，突然想知道
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 12908#       发表于 2020-6-16 21:52
+
+
+
+
+上一个井孝子在m楼被8个还是几个天狗换掉了。现在可能是时代不一样了，又能冒出这种我也是没想到
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 12909#       发表于 2020-6-16 21:53
+
+
+
+
+p家老大、老二、老三的皮还行，后面那堆嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12910#       发表于 2020-6-16 21:53
+
+
+
+
+草,怎么就成#孝子了,本意还是想顺劈一波阿#的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+本质被两韩国妹妹换皮惨剧弄ptsd了,个人势毕竟没多大容错空间<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 12911#       发表于 2020-6-16 21:54
+
+
+
+
+个人势没有资本家在身后逼你帮他挣钱，思想上确实可能会有些不同的地方
+
+但我还是想不出新皮会有多麻烦
+
+那个已经被我忘记名字的萌音组合出来的似乎都很执着死穿一件衣服
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12912#       发表于 2020-6-16 21:55
+
+
+
+
+D的少，回答不了这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+但你咩这种早该有但还没有的应该真的少
+
+syl  md是这丫头扣还是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+话说咩有运营这种东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这锅可以甩运营头上吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12913#       发表于 2020-6-16 21:56
+
+
+
+
+草， 
+
+
+说不定是这样
+
+
+@大亏
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 12914#       发表于 2020-6-16 21:56
+
+
+
+
+她不整新衣服单纯是她自己不想搞而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼是怎么突然跳转到＃话题的
+
+真想要新衣服不如去拱拱草莓饺子的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12915#       发表于 2020-6-16 21:57
+
+
+
+
+扣还能连着两首原创曲吗，只能解释成个人爱好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12916#       发表于 2020-6-16 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">P家大姐皮不是别人帮井皇才画得还行吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">想要井皇皮的看看最新的artia
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">被人吐槽眼距大像蜥蜴
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">又劈了井皇基德基德
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12917#       发表于 2020-6-16 21:58
+
+
+
+
+其实我觉得草莓饺子不好看(눈_눈)，想要pretender里那种散发咩咩
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12918#       发表于 2020-6-16 21:59
+
+
+
+
+夸有一件新年衣装和泳装了吧
+
+我想看水着咩啊<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12919#       发表于 2020-6-16 21:59
+
+
+
+
+散发有女友/人妻味了,这人必不会搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 12920#       发表于 2020-6-16 22:00
+
+
+
+
+散发少女味太重，不够憨了，不合适，也必然不可能
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 12921#       发表于 2020-6-16 22:00
+
+
+
+ 本帖最后由 rosevalley46 于 2020-6-16 22:01 编辑 
+
+＃的皮看着还行很大一部分也是因为大姐和二姐都算是技师里很靠谱的
+
+你看大小姐早期
+
+另外草莓果酱3d确实漂亮,2d差点
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12922#       发表于 2020-6-16 22:01
+
+
+
+
+这人不会搞那种露出度高的衣服
+那就弄个乳胶。。<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 12923#       发表于 2020-6-16 22:01
+
+
+
+
+别， 
+
+
+要噶吃了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 12924#       发表于 2020-6-16 22:01
+
+
+
+
+其实新服装换画师换画风都不罕见，不算什么大事。关键是找的人不能拉胯
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12925#       发表于 2020-6-16 22:03
+
+
+
+
+私心还是想换套常服,尤其是蓝夹克和黑卫衣<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12926#       发表于 2020-6-16 22:03
+
+
+
+
+说实话这两种风格都爱<img src="https://p.sda1.dev/0/3022d095b300933f9c3fa130fab6ccc3/IMG_FAD3E73930AA1F2305C29BC7FB823D16.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+                   
