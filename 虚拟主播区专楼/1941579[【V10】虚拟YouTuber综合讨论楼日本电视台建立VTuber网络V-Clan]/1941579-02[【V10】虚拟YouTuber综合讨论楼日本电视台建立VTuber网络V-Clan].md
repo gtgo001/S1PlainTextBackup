@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-17 00:14** 
+> ## **本文件最后更新于2020-06-17 02:11** 
 
 
 
@@ -18376,7 +18376,7 @@ cover啊
 
  本帖最后由 alcoholic1000 于 2020-6-16 19:54 编辑 
 
-【閲覧注意】ヲタクの汚部屋が汚すぎて発狂ｗｗｗｗｗ【三枝明那 / 星川サラ / にじさんじ】<img src="https://pbs.twimg.com/media/EaTE_UfVcAAsdSB?format=jpg&amp;name=medium" id="aimg_QKNH2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+【閲覧注意】ヲタクの汚部屋が汚すぎて発狂ｗｗｗｗｗ【三枝明那 / 星川サラ / にじさんじ】<img src="https://pbs.twimg.com/media/EaTE_UfVcAAsdSB?format=jpg&amp;name=medium" id="aimg_Nm9la" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 过万了，这直白的抄作业<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
@@ -23189,7 +23189,7 @@ ark民今天是不是狂欢阿<img src="https://static.saraba1st.com/image/smile
 
 
 
-<img src="https://pbs.twimg.com/media/Eao34UxXgAAK_q2?format=jpg&amp;name=large" id="aimg_yVh88" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eao34UxXgAAK_q2?format=jpg&amp;name=large" id="aimg_qG8a8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 [https://twitter.com/kakage0904/status/1272891537165295627/photo/1](https://twitter.com/kakage0904/status/1272891537165295627/photo/1)
 
 
@@ -24261,10 +24261,11 @@ azki到底是和黑青蛙怎么绑定的，学星街跳船不是完事了。
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|好评加鹅|
 | Suny08| + 1|好评加鹅|
 
 
@@ -24740,7 +24741,7 @@ zsly 狙击的人还挺多的
 
 
 
- 本帖最后由 猫島かおる 于 2020-6-17 00:13 编辑 
+ 本帖最后由 猫島かおる 于 2020-6-17 00:21 编辑 
 
 まいもとけいすけ和あみゃみゃたいよう打得有来有回的，あみゃみゃ直呼つらい
 
@@ -24813,4 +24814,740 @@ AZKi的新歌评论区英语浓度还是很高的，只不过不开播也没参�
 
 
 
-       
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 2789#       发表于 2020-6-17 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832548&amp;ptid=1941579" target="_blank">中野六小龄童 发表于 2020-6-16 23:44</a>
+
+阿希怎么没后路了？响老哥也在疯了的边缘？
+
+
+真想挽回gachi无非断两个月star联系同时天天tc两天一歌回三天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">天天TC我立马跑路 每晚一两点来个V4谁顶得住
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2790#       发表于 2020-6-17 00:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832701&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-06-17 00:01:28</a>
+对我说的就是yagoo和狐皇</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们怎么回事，虹不是从来不靠sc，要拿谷子说话
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 2791#       发表于 2020-6-17 00:15
+
+
+
+
+狐皇天天萌音营业放送还不够养gachi？
+
+至少我每天不听着她录播睡不好觉
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 2792#       发表于 2020-6-17 00:15
+
+
+
+ 本帖最后由 Viden 于 2020-6-17 00:17 编辑 
+
+什么鬼，刚才雨宫和郡道那组第二呀。。
+雨宫+50%，对手+100%
+顺着郡道说想组队拿第一，开了第二局。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 2793#       发表于 2020-6-17 00:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832585&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-16 23:49</a>
+
+无数次把神的名字幻听成阿喵喵，然后还在评论栏看到了好多次郡“神”贴贴....
+
+好！支持！ ...</blockquote>
+去年就互相认识当时还有人怀疑俩人老乡
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2794#       发表于 2020-6-17 00:20
+
+
+
+
+雨宫很早就说过是郡推了吧，第一个管人v联动是郡道挺正常的
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 2795#       发表于 2020-6-17 00:25
+
+
+
+ 本帖最后由 Viden 于 2020-6-17 00:27 编辑 
+
+雨宫是瑠璃姐的打块师父，之前也联动过。
+还有游戏部风见凉来着。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|情弱我的|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2796#       发表于 2020-6-17 00:26
+
+
+
+
+现在的流程：
+1、开局
+2、两个都被狙
+3、郡道被狙爆，雨宫carry
+4、郡道观战，开始雨宫全肯定
+5、赢了！
+
+郡神贴贴！！
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2797#       发表于 2020-6-17 00:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可惜恶德无许可非法配信集团hololive所属星街彗星没机会联动偶像了。
+
+
+
+
+
+
+
+-----
+
+####  zwj2www  
+##### 2798#       发表于 2020-6-17 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832440&amp;ptid=1941579" target="_blank">YODOboi 发表于 2020-6-16 23:34</a>
+roki确实是阿猫阿狗都能唱的而且确实差不多能唱过了，免费提的那两个剪辑也确实挺辣的
+
+管人里不知道有没 ...</blockquote>
+黑泽翻唱这首的时候还不是vup，不过她现在也挺不v的，颜出视频还放在投稿列表里
+而且今年年初就签了大公司了，应该也是来玩玩的……
+
+
+
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 2799#       发表于 2020-6-17 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832178&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-06-16 23:06:02</a>
+INNK的运营···</blockquote>找囧仙帮她引入b站都比holo运营靠谱多了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 2800#       发表于 2020-6-17 00:30
+
+
+
+
+星街和雨宫联动可能不会有。。
+之前雨宫发推说经常有人说雨宫太阳和星街彗星名字很像。
+星街都没有反应。估计是太珍惜羽毛了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2801#       发表于 2020-6-17 00:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832828&amp;ptid=1941579" target="_blank">kangkangsama 发表于 2020-6-17 00:16</a>
+
+去年就互相认识当时还有人怀疑俩人老乡</blockquote>
+这就是没被特出来才会有的种种猜测啊，各方面都可以脑补......
+
+不过这两位搭上确实有点奇妙哈，不过总归还是郡神(读作阿喵喵）贴贴！
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 2802#       发表于 2020-6-17 00:32
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-17 00:34 编辑 
+<blockquote>crawarb 发表于 2020-6-17 00:09
+这两句话没啥关系吧，就我自己逛4chan的经验，里面发情的很多的，大多是喜欢纸片人的海外二次元圈子的。 ...</blockquote>
+两次成功的进出会让liver更加重视运营的意见，比如带男人。当然也可以是狐皇自己想钓凯子。第一句是我想说的，第二句顺劈下狐皇罢了。
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 2803#       发表于 2020-6-17 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832948&amp;ptid=1941579" target="_blank">Viden 发表于 2020-6-17 00:30</a>
+
+星街和雨宫联动可能不会有。。
+
+之前雨宫发推说经常有人说雨宫太阳和星街彗星名字很像。
+
+星街都没有反应。估 ...</blockquote>
+hxd我想知道你的头像出处，谢谢！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 2804#       发表于 2020-6-17 00:36
+
+
+
+ 本帖最后由 Viden 于 2020-6-17 00:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832974&amp;ptid=1941579" target="_blank">RedBaby 发表于 2020-6-17 00:33</a>
+hxd我想知道你的头像出处，谢谢！</blockquote>
+[https://picrew.me/](https://picrew.me/)
+
+没有出处<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+头像生成网站
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RedBaby| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 2805#       发表于 2020-6-17 00:44
+
+
+
+<blockquote>cheatdeath3 发表于 2020-6-17 00:32
+两次成功的进出会让liver更加重视运营的意见，比如带男人。当然也可以是狐皇自己想钓凯子。第一句是我想说 ...</blockquote>
+我是认为星男能起来的，但是星男起来主力绝对是女粉，到时候狐狸不被清算就不错了…
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2806#       发表于 2020-6-17 00:49
+
+
+
+
+35尝试开起sc越念越多密码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2807#       发表于 2020-6-17 00:49
+
+
+
+
+你楼现在对杏星的恶意好像快要接近那时候的净土宗了吧，黑宝能继续待下去也是不容易<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2808#       发表于 2020-6-17 00:49
+
+
+
+
+如果以后郡道还要跟阿喵喵神（男）联动打块的话，以后肯定还会再开Tetris直播，好想狙郡道，好想在她类似不前十不下播的耐久直播里狙她啊！
+
+果然还是得买NS<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">...
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 2809#       发表于 2020-6-17 00:50
+
+
+
+
+管人圈子哪来那么多女粉让杏星起来，虹男自己的女粉都不够分呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2810#       发表于 2020-6-17 00:56
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/005612au2uwdgsw5prs5jd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-blksZcT3cSsg-r0.jpg</strong> (119.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-17 00:56 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/005612zsjryhwksssgq3gk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-c5a3ZbT3cSsg-q0.jpg</strong> (111.75 KB, 下载次数: 2)
+
+下载附件
+
+2020-6-17 00:56 上传
+
+
+
+
+
+
+
+狗妈画的【某今天导致一些CREW严重犯病的粽子】
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2811#       发表于 2020-6-17 01:01
+
+
+
+ 本帖最后由 poipanchao 于 2020-6-17 01:03 编辑 
+
+一之濑（跟叶经常吵架的那个）那个箱人设都很好看啊，很戳XP
+
+查了下再生也不错，比点还多
+
+看起来还挺健康发展的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 2812#       发表于 2020-6-17 01:03
+
+
+
+
+七七小姐最近画的挺好的，脖子也不奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 2813#       发表于 2020-6-17 01:05
+
+
+
+
+现在还有能清算狐狸的管人粉丝群体？黑黑女粉一起上能打穿狐狸的脂肪吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2814#       发表于 2020-6-17 01:06
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-17 01:13 编辑 
+
+郡道突然的睡前喷喷，还战力分析了一波（[https://www.youtube.com/watch?v=zJAzVjL6cu4&amp;feature=youtu.be](https://www.youtube.com/watch?v=zJAzVjL6cu4&amp;feature=youtu.be)），到底搭档是谁呢...
+
+听着是fumi、naraka、社长，感觉社长比较强，有A来着....现在最强的还是S+任任女孩吧。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 2815#       发表于 2020-6-17 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821035&amp;ptid=1941579" target="_blank">fromsaitama 发表于 2020-6-16 03:04</a>
+
+请v综各位大佬分析一下这堆屎的成分？</blockquote>
+破案了，是个点人
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2816#       发表于 2020-6-17 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832817&amp;ptid=1941579" target="_blank">中野六小龄童 发表于 2020-6-17 00:15</a>
+
+狐皇天天萌音营业放送还不够养gachi？
+
+
+至少我每天不听着她录播睡不好觉</blockquote>
+原来V综是有真的狐gachi的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2817#       发表于 2020-6-17 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833191&amp;ptid=1941579" target="_blank">oshinoshinobu 发表于 2020-6-17 01:15</a>
+破案了，是个点人</blockquote>
+什么，现在的v吧还有点人这种生物吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2818#       发表于 2020-6-17 01:20
+
+
+
+
+https://twitter.com/haru_7kaa/status/1272918690355220480
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">竟然有人马上就做出来了个logo，好可怕
+<img src="https://p.sda1.dev/0/a0f018005630c61255291f39b7251a86/IMG_6EE99B41F25EAF5AC1366A6927D5AEE0.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 2819#       发表于 2020-6-17 01:21
+
+
+
+
+艺术设计真是一门玄妙的学科
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 2820#       发表于 2020-6-17 01:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47832948&amp;ptid=1941579" target="_blank">Viden 发表于 2020-06-17 00:30:41</a>
+星街和雨宫联动可能不会有。。
+之前雨宫发推说经常有人说雨宫太阳和星街彗星名字很像。
+星街都没有反应。估 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥要反应，楼里不都车烂了联动男人没前途吗？
+
+还是要学阿夸来个联动炎上。职业选手行，观众不行
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 2821#       发表于 2020-6-17 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47833147&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-17 01:06</a>
+
+郡道突然的睡前喷喷，还战力分析了一波（https://www.youtube.com/watch?v=zJAzVjL6cu4&amp;feature=youtu.be） ...</blockquote>
+就是这三个
+
+最强的话牛姨熊猫人柴卡西西公主新的两个男V都是接近S或以上的
+
+不破有职业水准、
+
+
+郡道1代是S以上，2代没怎么认真打过排位
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2822#       发表于 2020-6-17 01:29
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-17 01:06
+郡道突然的睡前喷喷，还战力分析了一波（https://www.youtube.com/watch?v=zJAzVjL6cu4&amp;feature=youtu.be） ...</blockquote>
+社长是初心者，naraka挺强的，任任女孩是x段，x段还有一个不破，公主虾ars柴卡牛姨景弦月这几个是s段s+浮动，还有郡道阿喵喵莉莉这一大帮子a段的，主要还是看s段这几个大腿和不破怎么分
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 2823#       发表于 2020-6-17 01:46
+
+
+
+
+说起来船长说过live2D2.0已经准备好了，可能要等新衣装一起放吧，这分开放出也没什么意义。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2824#       发表于 2020-6-17 01:59
+
+
+
+
+miko太狡猾了
+
+去年夏天钢琴直播是通常直播 今年直接改成会限
+
+可惜了大多数人看不到了
+
+
+
+
+
+     
