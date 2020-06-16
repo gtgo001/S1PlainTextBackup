@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 10:05** 
+> ## **本文件最后更新于2020-06-16 14:03** 
 
 
 
@@ -13715,4 +13715,870 @@ syl  但水论坛是真的快乐啊<img src="https://static.saraba1st.com/imag
 
 
 
-                       
+
+
+-----
+
+####  深渊萃取  
+##### 12784#       发表于 2020-6-16 10:16
+
+
+
+
+mk2我还一度以为是インサイド mk2
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12785#       发表于 2020-6-16 10:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">拉了窗帘，好欸
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 12786#       发表于 2020-6-16 10:37
+
+
+
+
+你楼竟然有新人，是好事
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 12787#       发表于 2020-6-16 10:51
+
+
+
+
+泡积分就是为了看铲楼<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12788#       发表于 2020-6-16 10:53
+
+
+
+
+泡积分想看以前m楼的历史记录<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12789#       发表于 2020-6-16 11:07
+
+
+
+
+可爱，想
+
+
+
+
+
+
+-59379b41f7726e87.jpg
+(34.58 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-6-16 11:07 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/110713glo3v90kgkggk0w7.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12790#       发表于 2020-6-16 11:09
+
+
+
+
+meu的梗还是少啊，都要从姐姐那边挪来用
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 12791#       发表于 2020-6-16 11:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，是aoe哒
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 12792#       发表于 2020-6-16 11:15
+
+
+
+
+再来个爱小姐就完美了，天赋：露脸的都是碧池，技能1：蛋包饭，技能2：火腿肠
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12793#       发表于 2020-6-16 11:26
+
+
+
+
+指望爱小姐还不如指望田中庄司（再次性转版）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 12794#       发表于 2020-6-16 11:42
+
+
+
+
+草可以有(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12795#       发表于 2020-6-16 11:52
+
+
+
+
+庄司哥再性转，如蜜传如蜜？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12796#       发表于 2020-6-16 11:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/115639ib05ac04nt7n7tnc.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616115359.png</strong> (304.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 11:56 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/115833hvbrpesri0br7g77.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616115818.png</strong> (62.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 11:58 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/115707ss6d5cm707ped6ev.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616115616.png</strong> (4.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 11:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12797#       发表于 2020-6-16 11:58
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-16 12:00 编辑 
+
+田中庄司的梗也不多啊，而且方舟指令没男人的，性转转回咩么
+syl新参在这里，还叫过咩的黑称尴了个大尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  百鬼绫目  
+##### 12798#       发表于 2020-6-16 12:01
+
+
+
+
+其实三套曲绘早就够了，军服草莓天邪鬼，把梗均分一下就行
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12799#       发表于 2020-6-16 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德，我神乐meu的招牌电音唐老鸭哪去了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 12800#       发表于 2020-6-16 12:04
+
+
+
+
+所以是庄司的再次性转啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">短发英气咩就不错
+
+或者也可以这样
+
+初态是变声器（最近那个ur初态是本书）
+
+一破是变身器人
+
+二破是变身器机械庄司
+
+最终戴着庄司面具露出一半脸坏笑的咩<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12801#       发表于 2020-6-16 12:08
+
+
+
+
+一个角色只有一套技能啊，其他的是皮肤
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 12802#       发表于 2020-6-16 12:11
+
+
+
+
+这游戏有天邪鬼这个角色的）
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12803#       发表于 2020-6-16 12:20
+
+
+
+
+那个boss版天邪鬼被meu乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 12804#       发表于 2020-6-16 12:21
+
+
+
+
+哇靠那个天邪鬼超烦，不能叠buff的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12805#       发表于 2020-6-16 12:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起个事，去年meu在404疯狂开车那个档好像睿站上连剪辑都没看到，官组有录播吗
+
+
+
+
+
+
+
+-----
+
+####  静夜观星  
+##### 12806#       发表于 2020-6-16 12:41
+
+
+
+
+才发现签名换了
+这个签名就很想让人接“只要继续前进就好了”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+不要停下来啊，咩咩！
+
+—— 来自 blackshark SKR-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12807#       发表于 2020-6-16 12:42
+
+
+
+<blockquote>笋狐 发表于 2020-6-16 12:31
+想起个事，去年meu在404疯狂开车那个档好像睿站上连剪辑都没看到，官组有录播吗 ...</blockquote>
+有，旧生肉合集19.10.04
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|多磨|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12808#       发表于 2020-6-16 12:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就不开台可还行
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12809#       发表于 2020-6-16 12:57
+
+
+
+
+咩姐怎么好几次不开台。。。防指示厨吗
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12810#       发表于 2020-6-16 12:59
+
+
+
+
+好像是网络不好，怕联动时候掉线了影响别人
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12811#       发表于 2020-6-16 13:00
+
+
+
+
+说明她真的只是想和人打打麻将玩，慈善义演
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 12812#       发表于 2020-6-16 13:01
+
+
+
+
+估计才醒懒得开吧，阿b的bls还没消息呢，又开始画新饼了？
+
+
+
+
+
+
+QQ图片20200616125649.png
+(73.34 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-16 12:58 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/125844sitnxkffi1wxxida.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12813#       发表于 2020-6-16 13:01
+
+
+
+
+图一乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+md气死我了，睡了<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 12814#       发表于 2020-6-16 13:01
+
+
+
+<blockquote>kolu33 发表于 2020-6-16 12:59
+好像是网络不好，怕联动时候掉线了影响别人</blockquote>
+应该是这样，但如果要换网咩姐会有一段时间播不了吧，纠结。。。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 12815#       发表于 2020-6-16 13:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825020&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-16 13:01</a>
+估计才醒懒得开吧，阿b的bls还没消息呢，又开始画新饼了？</blockquote>
+又来斗虫吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 12816#       发表于 2020-6-16 13:06
+
+
+
+
+越来越像斗鱼了，韭菜割起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 12817#       发表于 2020-6-16 13:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">先把上回的落实了再说吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">况且你咩的性格会喜欢别人给她出（没有麻味的）原创曲吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 12818#       发表于 2020-6-16 13:09
+
+
+
+
+可不，今年bml都安排上了还没有bls奖品兑现的兆头，反正兑现前不打算当阿b的韭菜
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 12819#       发表于 2020-6-16 13:15
+
+
+
+
+这不是安抚你们来了吗？拖，都可以拖，就霓虹这b样我觉得我还可以等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 12820#       发表于 2020-6-16 13:15
+
+
+
+
+去年说的那么好还不把bls安排上，还搁这噶韭菜，阿b的马难逃一杀<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 12821#       发表于 2020-6-16 13:19
+
+
+
+
+上次BLS的奖励还没兑现就想我们掏钱继续打？这原创曲谁爱要谁去争吧
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12822#       发表于 2020-6-16 13:20
+
+
+
+
+就这啊，这都能噶韭菜不是把人当nt吗（似乎还不少）
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 12823#       发表于 2020-6-16 13:21
+
+
+
+ 本帖最后由 IrisL 于 2020-6-16 13:23 编辑 
+
+说真的你能拿到这种斗虫冠军会缺原创曲的钱吗
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12824#       发表于 2020-6-16 13:22
+
+
+
+
+原来阿咩只会打断幺九吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 12825#       发表于 2020-6-16 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825310&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-16 13:22</a>
+
+原来阿咩只会打断幺九吗</blockquote>
+她还会七对子
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12826#       发表于 2020-6-16 13:27
+
+
+
+
+众人：哇，mea居然做了三色同顺，真是稀奇啊！
+
+mea：哦
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来mea的麻将实力是这样的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 12827#       发表于 2020-6-16 13:40
+
+
+
+
+今天能听到咩咩的声音，满足了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 12828#       发表于 2020-6-16 13:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">xswl，你咩姐好惨
+
+
+
+
+
+                      

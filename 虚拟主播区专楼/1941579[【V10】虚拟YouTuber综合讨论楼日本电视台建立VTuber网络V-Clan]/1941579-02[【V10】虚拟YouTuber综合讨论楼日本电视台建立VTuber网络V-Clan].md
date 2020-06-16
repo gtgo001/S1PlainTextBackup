@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 12:10** 
+> ## **本文件最后更新于2020-06-16 14:11** 
 
 
 
@@ -8931,6 +8931,25 @@ USA有可能，A酱都说要去海外了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| InvisibleP| + 1|一般这种孤儿我会引导她冲塔|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -10537,4 +10556,1659 @@ syl
 
 
 
-                               
+
+
+-----
+
+####  oshinoshinobu  
+##### 2046#       发表于 2020-6-16 12:16
+
+
+
+
+多井隆晴实力又强说话又好听，建议推一推<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2047#       发表于 2020-6-16 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47823971&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-16 11:40</a>
+九莲宝灯真的有点那个....郡道接连体调不良热水器坏了车子出问题裙子被咖啡馆的水溅到了，门牙又又又被打了 ...</blockquote>
+口了的一个口头禅不就是要打人门牙，肯定是她干的
+说明mrra没有亡<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2048#       发表于 2020-6-16 12:40
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-16 12:44 编辑 
+
+阿b又开始画饼了，端午直播活动vtb分区冠军有原创曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+补图<img src="https://p.sda1.dev/0/14a298d8325ff7881ea2085639e93286/IMG_8AB52FBBD36FD640AEDBF44F23C87463.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 2049#       发表于 2020-6-16 12:41
+
+
+
+
+去年mea的live还没信呢，<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 2050#       发表于 2020-6-16 12:46
+
+
+
+ 本帖最后由 离心 于 2020-6-16 12:47 编辑 
+
+bls没出我信阿b你个鬼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 2051#       发表于 2020-6-16 12:48
+
+
+
+
+是疫情，都是疫情的错
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2052#       发表于 2020-6-16 12:49
+
+
+
+
+应该会捧冰糖吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2053#       发表于 2020-6-16 12:50
+
+
+
+
+三小姐BLS的live呢三小姐BLS的live呢三小姐BLS的live呢三小姐BLS的live呢三小姐BLS的live呢三小姐BLS的live呢三小姐BLS的live呢三小姐BLS的live呢
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2054#       发表于 2020-6-16 12:52
+
+
+
+
+bt也太无聊了随便捧哪个b站出名日v都比她强
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2055#       发表于 2020-6-16 12:54
+
+
+
+
+话说大人气的日v里还有谁没有原创曲的
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 2056#       发表于 2020-6-16 12:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">那就桃皇吧，杀死比赛（物理）
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2057#       发表于 2020-6-16 12:55
+
+
+
+
+大天使（
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2058#       发表于 2020-6-16 12:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824931&amp;ptid=1941579" target="_blank"> crito 发表于 2020-6-16 12:54</a> 话说大人气的日v里还有谁没有原创曲的 </blockquote>
+非歌系没原创曲的多了去了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2059#       发表于 2020-6-16 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824297&amp;ptid=1941579" target="_blank">kangkangsama 发表于 2020-6-16 12:03</a>
+
+这俩喊了快一年的联动总算成了。
+
+
+syl</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">这真的不会尴尬吗
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2060#       发表于 2020-6-16 13:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">又可以斗b站虫了吗，这次会不会是高小姐
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 2061#       发表于 2020-6-16 13:01
+
+
+
+
+强烈建议将桃皇捧至第一
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 2062#       发表于 2020-6-16 13:01
+
+
+
+
+你啊b先把咩的演唱会办了先再说吧
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2063#       发表于 2020-6-16 13:03
+
+
+
+
+该炎上睿站了，把其他四个V的粉丝也带上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 2064#       发表于 2020-6-16 13:03
+
+
+
+
+先把mea的办了，还邀请前五呢，去年管人粉斗虫的钱都打水漂了？支持把b站冲了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2065#       发表于 2020-6-16 13:04
+
+
+
+
+热评第一就是bls演唱会，我心满意足的点了个赞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+话说原创曲也没说找谁做，不会阿b到时候自己内部找个人写歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2066#       发表于 2020-6-16 13:05
+
+
+
+
+星姐才是真的B站女王
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2067#       发表于 2020-6-16 13:06
+
+
+
+
+我支持找人👆人陈先生写！
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2068#       发表于 2020-6-16 13:06
+
+
+
+
+现在的榜一还是星街
+
+
+
+
+
+
+批注 2020-06-16 130641.png
+(923.74 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-16 13:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/130653ztwu93wqfu2qqeql.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 2069#       发表于 2020-6-16 13:06
+
+
+
+
+星姐在b站怎么火的，根本看不懂...
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2070#       发表于 2020-6-16 13:07
+
+
+
+
+你至少得学showroom把作曲家写上吧
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 2071#       发表于 2020-6-16 13:07
+
+
+
+ 本帖最后由 Nonamesky 于 2020-6-16 13:08 编辑 
+
+原创曲质量不重要能听就行，重要的是到时候B站给这曲子的宣传
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2072#       发表于 2020-6-16 13:07
+
+
+
+
+常闇トワ left the game4 minutes ago
+
+Server responded to query4 minutes ago
+
+常闇トワ joined the game
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2073#       发表于 2020-6-16 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825091&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-16 13:06</a>
+
+我支持找人👆人陈先生写！</blockquote>
+人上人估计在跟阿娣娅你侬我侬呢，怕不是没时间<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2074#       发表于 2020-6-16 13:08
+
+
+
+
+草，这积分，差距有点远啊
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 2075#       发表于 2020-6-16 13:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">芙宝给大家讲讲miko约原创曲要多少钱 总不会比阿B抽的多吧
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 2076#       发表于 2020-6-16 13:08
+
+
+
+
+又是斗虫，建议星街给自己打钱
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2077#       发表于 2020-6-16 13:13
+
+
+
+
+斗虫活动好啊，不知道今年虾皇会不会再冲一冲
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2078#       发表于 2020-6-16 13:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825118&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-16 13:08</a>
+
+芙宝给大家讲讲miko约原创曲要多少钱 总不会比阿B抽的多吧</blockquote>
+星姐这首歌肯定是逸站自己发注的
+
+星姐不用花钱吧 只要唱就好了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2079#       发表于 2020-6-16 13:14
+
+
+
+
+想看阿媞娅和人上人的怪文书<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 2080#       发表于 2020-6-16 13:16
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-16 13:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">评论底下叼民真多
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭真会屏蔽
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2081#       发表于 2020-6-16 13:17
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-16 13:19 编辑 
+
+B站活动一如既往的麻烦，就不能直接按营收值算积分吗，这什么倍率什么任务换算下来真的麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 2082#       发表于 2020-6-16 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825204&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-16 13:14</a>
+
+星姐这首歌肯定是逸站自己发注的
+
+星姐不用花钱吧 只要唱就好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不还有首冠军定制吗 活动期间冲榜一的钱拿去众筹能弄两首出来了吧？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2083#       发表于 2020-6-16 13:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825121&amp;ptid=1941579" target="_blank">cheatdeath3 发表于 2020-6-16 13:08</a>
+
+又是斗虫，建议星街给自己打钱</blockquote>
+要打钱也是cover去操作……
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2084#       发表于 2020-6-16 13:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824297&amp;ptid=1941579" target="_blank">kangkangsama 发表于 2020-6-16 12:03</a>
+
+这俩喊了快一年的联动总算成了。
+
+
+syl</blockquote>
+两手（sio/.Live）都要抓，两手都要硬<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">。不过点好像对联动蛮严格的，应该不会跟郡道有实质联动，点粉应该也还好
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 2085#       发表于 2020-6-16 13:18
+
+
+
+
+上一个饼没圆还敢出下一个，真当互联网养金鱼啊？
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 2086#       发表于 2020-6-16 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818280&amp;ptid=1941579" target="_blank">pabier 发表于 2020-6-15 21:47</a>
+律可3D和律可2D出席肥希3D不冲突吧
+
+大家都可以有美好的未来
+
+syl律可是不是已婚了？楼里云来的好像奔 ...</blockquote>
+先生没婚来着
+大号日常在阿B播，只不过大号的gachi不看管人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 2087#       发表于 2020-6-16 13:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824584&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-16 12:25</a>
+
+口了的一个口头禅不就是要打人门牙，肯定是她干的
+
+说明mrra没有亡</blockquote>
+说真的哈，如果mrra能互殴一波把郡道门牙打掉，说不定mrra真能活...
+
+可惜没有！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2088#       发表于 2020-6-16 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825241&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-16 13:17</a>
+
+这不还有首冠军定制吗 活动期间冲榜一的钱拿去众筹能弄两首出来了吧？ ...</blockquote>
+光昨天追加的上舰的份的钱都不知道够做多少首了草
+
+不过如果不算MV/MMD制作的话
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2089#       发表于 2020-6-16 13:27
+
+
+
+ 本帖最后由 opersuper 于 2020-6-16 13:28 编辑 
+
+B站作曲有背书成本啊，比外包制作还是有用点野鸡曲子万万千，你B给V做单曲星街就是第一人
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2090#       发表于 2020-6-16 13:27
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-16 13:20
+光昨天追加的上舰的份的钱都不知道够做多少首了草
+
+不过如果不算MV/MMD制作的话 ...</blockquote>
+不懂作曲，一首原创曲要多少钱啊？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2091#       发表于 2020-6-16 13:31
+
+
+
+
+反正你b的信誉已经在bls到现在还没兑现的情况下降到最低了，别指望这波能割多少韭菜吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2092#       发表于 2020-6-16 13:33
+
+
+
+
+而且实际情况可能阿b的作曲会比较野鸡…
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 2093#       发表于 2020-6-16 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825446&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-16 13:33</a>
+而且实际情况可能阿b的作曲会比较野鸡…</blockquote>
+如果能请来人上人当场滑跪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2094#       发表于 2020-6-16 13:34
+
+
+
+
+bls给了什么承诺啊，啊B的活动一直没有太关注
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2095#       发表于 2020-6-16 13:34
+
+
+
+<blockquote>bluebaby 发表于 2020-6-16 13:33
+而且实际情况可能阿b的作曲会比较野鸡…</blockquote>
+阿星只要行动力强就可以给b提要求嘛，我觉得不会差了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2096#       发表于 2020-6-16 13:35
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-16 13:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825468&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-16 13:34</a>
+
+bls给了什么承诺啊，啊B的活动一直没有太关注
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+第一名个人演唱会和加大宣传力度，前五可以作为嘉宾出席演唱会，而现状你也看到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zaphikel| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2097#       发表于 2020-6-16 13:37
+
+
+
+
+估计照样打起来，这种东西不就跟手游冲榜一样，争一口气的，奖励不过是说服自己的理由
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2098#       发表于 2020-6-16 13:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825474&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-16 13:35</a>
+第一名个人演唱会和加大宣传力度，前五可以作为嘉宾出席演唱会，而现状你也看到了 ...</blockquote>
+哦？最近mea做的这些工商意思是和bls有关咯？
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2099#       发表于 2020-6-16 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825503&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-16 13:37</a>
+哦？最近mea做的这些工商意思是和bls有关咯？
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 S1Next-鹅版  ...</blockquote>
+工商归工商，你怎么这么能脑补<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zaphikel| + 1|云的，mea看的很少|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2100#       发表于 2020-6-16 13:39
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-16 13:40 编辑 
+
+星街都未必对这活动上心，去年狐皇就没上心，上心的小肥妹gg了，holo最后也就一个夸，星街真要原创曲根本犯不着来找b。何况去年的到现在都没兑现，傻了吧唧的才来帮b割韭菜。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2101#       发表于 2020-6-16 13:39
+
+
+
+
+要是那些工商能算宣传的话我都想把阿b的马杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2102#       发表于 2020-6-16 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825499&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-16 13:37</a>
+
+估计照样打起来，这种东西不就跟手游冲榜一样，争一口气的，奖励不过是说服自己的理由 ...</blockquote>
+可是这活动开到现在了，压根没v在意，也没粉丝打起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2103#       发表于 2020-6-16 13:41
+
+
+
+
+星街上不上心不重要，主要看holo运营还上不上心，想不想保b站有个牌面吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 2104#       发表于 2020-6-16 13:41
+
+
+
+
+这原创曲多半只能发在b站，对于没有特别大在b站发展欲望的人真没什么吸引力，希望星圣夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 2105#       发表于 2020-6-16 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825261&amp;ptid=1941579" target="_blank">InvisibleP 发表于 2020-6-16 13:19</a>
+先生没婚来着
+大号日常在阿B播，只不过大号的gachi不看管人</blockquote>
+想多了。律可组能成可是吃了先生大号不少粉丝
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 2106#       发表于 2020-6-16 13:45
+
+
+
+
+去年还知道画个live的饼 今年就一个原创曲 星街个人势时就有两首 这玩意吸引力有这么大吗
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2107#       发表于 2020-6-16 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825534&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-16 13:40</a>
+
+可是这活动开到现在了，压根没v在意，也没粉丝打起来</blockquote>
+感觉还没开始大规模宣传吧，虚拟主播区都找不到活动入口
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2108#       发表于 2020-6-16 13:46
+
+
+
+
+去年号称live，holo运营都没干嘛，今年一首鬼知道行不行的原创曲，放养星街混混看就得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2109#       发表于 2020-6-16 13:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825596&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-16 13:45</a>
+去年还知道画个live的饼 今年就一个原创曲 星街个人势时就有两首 这玩意吸引力有这么大吗 ...</blockquote>
+得看词曲的吧，要是作曲作词都是大物，能不吸引人吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2110#       发表于 2020-6-16 13:48
+
+
+
+
+距离活动结束也就剩九天了，估计是压根没打算宣传吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 2111#       发表于 2020-6-16 13:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">能把方文山周杰伦请出来写歌还有点吸引力，这作曲是谁都不知道就画饼，谁稀罕啊。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2112#       发表于 2020-6-16 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825550&amp;ptid=1941579" target="_blank">暗心舞踏 发表于 2020-6-16 13:41</a>
+
+这原创曲多半只能发在b站，对于没有特别大在b站发展欲望的人真没什么吸引力，希望星圣夺冠 ...</blockquote>
+去年的饼还没做好呢
+
+
+
+
+
+
+
+-----
+
+####  proto  
+##### 2113#       发表于 2020-6-16 13:49
+
+
+
+
+替虾皇不值<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 2114#       发表于 2020-6-16 13:50
+
+
+
+
+看了下分区，现在星街1亿5千万第一，第二不认识才5千万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 2115#       发表于 2020-6-16 13:50
+
+
+
+
+等来个层层转包、最后包下作曲的是个不要钱的管人粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ひびき| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2116#       发表于 2020-6-16 13:50
+
+
+
+
+不宣传也挺好，星街捡一送一，白嫖两首<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2117#       发表于 2020-6-16 13:50
+
+
+
+
+这玩意上舰长还不算积分，送礼物才给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2118#       发表于 2020-6-16 13:51
+
+
+
+
+B站连开空头支票都要通缩的吗，资本对vtb的前景没那么看好了？
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2119#       发表于 2020-6-16 13:51
+
+
+
+
+说不定是阿b百万up主呢
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2120#       发表于 2020-6-16 13:51
+
+
+
+
+看了看这活动蛮复杂的，现在像是小组赛？除非星姐高频率来。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2121#       发表于 2020-6-16 13:52
+
+
+
+
+bsyl，不过虚拟主播分区确实也没啥对手就是了
+
+
+
+
+
+
+
+-----
+
+####  废都刽子手  
+##### 2122#       发表于 2020-6-16 13:52
+
+
+
+
+支持盗影团让桃皇拿第一
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2123#       发表于 2020-6-16 13:52
+
+
+
+
+最近入驻啊B的大物有点多，讲不好原创曲真能搞出点什么名堂<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2124#       发表于 2020-6-16 13:54
+
+
+
+
+支持没有原创曲的v取得冠军
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2125#       发表于 2020-6-16 13:54
+
+
+
+
+太脑残了，一首原创曲? 你b把自己当成什么了？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+说句不好听的日本音乐工业完爆你b一个位面，人家随手白嫖的原创曲讲不好都比你b找人做的好，你b又不讲明白找谁作曲
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 2126#       发表于 2020-6-16 13:54
+
+
+
+
+如果真能把咕噜弄进star……
+文艺复兴起来可比暗黑贴贴人撕逼还厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2127#       发表于 2020-6-16 13:57
+
+
+
+
+桃皇现在分数还不如vvd的bell，上位替代学又成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 2128#       发表于 2020-6-16 13:57
+
+
+
+
+礼物有分sc有分，看直播5分钟倒一个专属道具也有分
+
+开舰长没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2129#       发表于 2020-6-16 13:57
+
+
+
+
+咕噜碳进杏星你们这是要黑宝死
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2130#       发表于 2020-6-16 13:58
+
+
+
+
+这玩意就只搞个半个月，没有bls那接近两个月的时长，星街基本是已经赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 2131#       发表于 2020-6-16 13:59
+
+
+
+
+咕噜碳还行，那我脑补一个红婷婷star进出好吧
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 2132#       发表于 2020-6-16 14:02
+
+
+
+
+不懂就瞎说，星街在b站大火，是因为定位是“虚拟偶像”，比“虚拟主播”高一级吧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2133#       发表于 2020-6-16 14:04
+
+
+
+
+鲨皇看起来没有冲这个活动的欲望，维阿给她承诺的演唱会也跟bls承诺的一样到现在都还没影，原创曲对她来说也没啥用，榜二是个打碟的，他要原创曲干啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2134#       发表于 2020-6-16 14:11
+
+
+
+
+这歌版权怎么算？如果不能拿去自己用出专辑什么的谁要这玩意啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2135#       发表于 2020-6-16 14:11
+
+
+
+
+等等，这么一说原创曲这奖励几乎就是为星街量身定制的，再加上昨天这个3Db限应该说毫无预兆，以及之后BML，这波是资本家之间的暗箱操作啊<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 2136#       发表于 2020-6-16 14:11
+
+
+
+
+鲨皇自己都有原创曲好伐，可以证明原创曲这种东西根本就不值钱，除非你找大手来搞 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                            
