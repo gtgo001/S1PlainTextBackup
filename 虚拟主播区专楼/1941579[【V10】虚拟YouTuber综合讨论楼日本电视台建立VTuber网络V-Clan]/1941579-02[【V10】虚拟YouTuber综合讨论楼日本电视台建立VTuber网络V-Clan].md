@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 04:08** 
+> ## **本文件最后更新于2020-06-16 08:08** 
 
 
 
@@ -7350,4 +7350,315 @@ bsyl 抄宝zqsg，有点kimo
 
 
 
-                                     
+
+
+-----
+
+####  stedckk  
+##### 1877#       发表于 2020-6-16 04:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/044136ymmnyyn1hcnpbq39.png" referrerpolicy="no-referrer">
+
+
+<strong>I{Z(NKVQ9IPUB$UP42WL`6B.png</strong> (19.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 04:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/044136q1kt148c31lrl2ch.png" referrerpolicy="no-referrer">
+
+
+<strong>8DZKB)UL2%2E~7@593JT{K5.png</strong> (14.33 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 04:41 上传
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">敢怒不敢言？至少冲国的crew已经冲了起来
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1878#       发表于 2020-6-16 04:46
+
+
+
+
+彬彬有礼的6个赞，直球骂的1个赞，都不太行。巧可那事5000评论都没啥后续呢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 1879#       发表于 2020-6-16 04:46
+
+
+
+
+yysy，2000的屁股挺翘的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 1880#       发表于 2020-6-16 05:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821159&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-16 04:46</a>
+
+彬彬有礼的6个赞，直球骂的1个赞，都不太行。巧可那事5000评论都没啥后续呢 ...</blockquote>
+巧可老师那个事在推上有很大反应吗？如果是说b站动态那个道歉，我觉得应该就这样吧，也不太可能在推上发什么道歉声明。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 1881#       发表于 2020-6-16 05:35
+
+
+
+<blockquote>stedckk 发表于 2020-6-16 05:01
+巧可老师那个事在推上有很大反应吗？如果是说b站动态那个道歉，我觉得应该就这样吧，也不太可能在推上发 ...</blockquote>
+推上热度不知道，妖魔鬼怪大战连主战场都没有。木口这个b站动态9300评论了，然后巧可直播间封着，没后续的话解禁那天还会有波节奏的
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 1882#       发表于 2020-6-16 06:12
+
+
+
+<blockquote>JY要塞 发表于 2020-6-16 04:46
+yysy，2000的屁股挺翘的</blockquote>
+好。。。hso<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 1883#       发表于 2020-6-16 06:48
+
+
+
+
+35游戏bug回不去畸变，小天使代替出战。
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1884#       发表于 2020-6-16 07:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821199&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-06-16 05:35:21</a>
+推上热度不知道，妖魔鬼怪大战连主战场都没有。木口这个b站动态9300评论了，然后巧可直播间封着，没后续 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">算了吧，这些人我怕巧克都没关注，直播都不知道
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 1885#       发表于 2020-6-16 07:22
+
+
+
+
+早上逛nga和s1有感，crew真的蛮倒霉的，因为粽子新衣服疯了的crew其实没几个，但遍地都是装成发疯crew的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 1886#       发表于 2020-6-16 07:28
+
+
+
+
+  夸皇要是播了，就去看直播了，谁还愿意在大街上装傻被人笑
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 1887#       发表于 2020-6-16 07:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">crew有药吃了，可以停2天再疯了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 1888#       发表于 2020-6-16 07:46
+
+
+
+
+真难啊，兔皇不理b小将要被喷，夸哥在b站给中国crew发福利也要被喷
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 1889#       发表于 2020-6-16 07:46
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-16 08:00 编辑 
+
+crew有写给夸的怪文书，阿希，优十和白上桑也可以有！
+
+阿希应该是真的很喜欢优十吧，我也不是说男女之情，就真的私下里可能比观众看到的打了更多的交道。记得阿希蛮早前发推说遇到录音器材的问题，问了很多人都没解决，但优十和她一起努力解决了。有人喜欢这种真实的关系，也有liver喜欢去表现这种人际关系，只是在此前的业界这种关系多是两位女性liver，舞48，27jk算是比较稀有而又知名的例子吧，非cp而更像搭档，但现在夏色律可是在向cp还是搭档发展呢？
+
+阿希联动的星liver并非只有夏色律可，但无论是哪一组联动组合在观众的认可度上都难以超越27jk。这可能是星liver和社筑粉丝体量上的差距，也可能只是节目效果的原因。或许需要一次夏色律可的梦幻俱乐部联动回来证明，如果版权允许的话。
+
+姑且夏色律可是真贴贴，夏色和星其他大概营业居多。如果真贴贴不宜放在节目中，以免物是人非换来后患无穷。而V和V因为现实的原因产生的联系就不能放到舞台之上显然有些荒谬。liver告诉观众说“看，我们关系很好”，这是liver的自由。而就营业而言，营业的终点往往是：
+1. 双方中有一方找到了其他替代的营业关系（mikorone变成mikopeko）；
+2. 现实中因为关系降温（夏色〇姨）；
+3. 其他主观原因导致的一方将关系营业撤出了舞台。
+
+对真实关系来说1，2基本上可以忽略，大部分是3，例子是youtube上的meaqua，fubumio。有着各种各样的考量。那么夏色律可会因为1,2,3中的哪个结束吗？目前来看都不会，节目效果差和gachi发疯anti都不能阻止阿希，因为她喜欢优十明显更甚于她的观众，或者这也算一种洗粉方式。接受或者离开，这就是夏gachi如今面对的问题。
+
+P.S. 至于为星男硬灌流量的白上桑，如果她不是单纯觉得和男人玩比和女人玩有意思而已，作为直播势订阅的Top，5000会员旱涝保收，乘着holo的东风连四天王也成为狩猎的对象的她，还有什么需要去追求的吗？没有了，她已是山顶之人。而唯一能成为她的目标的，似乎在另一座山峰。现在只是在下山，她会不会挑战V界的神，答案可能只在她自己心里。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|2  3  调整下排版|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1890#       发表于 2020-6-16 08:02
+
+
+
+
+nga那个关于修女b限的楼我看着也没什么节奏阿，怎么锁的这么快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 1891#       发表于 2020-6-16 08:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47818411&amp;ptid=1941579" target="_blank">zwj2www 发表于 2020-06-15 21:56:35</a>
+律可没严重的黑料而且也没多少人关心罢了，泡过的女生不一定少，微博上还有人车他私联 ...</blockquote>那个不如去看看画师的b站动态，人家好好解释了完全是工作，那时候应该在负责歌曲曲绘
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                    
