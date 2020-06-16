@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 14:11** 
+> ## **本文件最后更新于2020-06-16 16:12** 
 
 
 
@@ -9774,10 +9774,11 @@ https://twitter.com/mizuki_fua/status/1272544957962706945<img src="https://stati
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 提挈天地| + 1|好评加鹅|
 | star_platinum| + 1|好评加鹅|
 
 
@@ -12211,4 +12212,3126 @@ bsyl，不过虚拟主播分区确实也没啥对手就是了
 
 
 
-                            
+
+
+-----
+
+####  Alphawalker  
+##### 2137#       发表于 2020-6-16 14:12
+
+
+
+<img src="https://p.sda1.dev/0/cd12b3552eb83096b82f9de587acfe38/微信图片_20200616141151.png" referrerpolicy="no-referrer">
+
+🤺
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2138#       发表于 2020-6-16 14:13
+
+
+
+
+看来holo不是没有运营，也不是运营不给力，holo只是把运营的重心放到了星姐身上了呀
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2139#       发表于 2020-6-16 14:14
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-16 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825924&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-16 14:11</a>
+等等，这么一说原创曲这奖励几乎就是为星街量身定制的，再加上昨天这个3Db限应该说毫无预兆，以及之后BML， ...</blockquote>
+想把星街这第一抢下来也不是多难的事情，反正她估计也就来一天，这活动还剩12天，时间长的很，关键看有没有人想冲榜了，鲨皇和那个第二是绝对有机会的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2140#       发表于 2020-6-16 14:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825937&amp;ptid=1941579" target="_blank">Alphawalker 发表于 2020-6-16 14:12</a>
+
+🤺</blockquote>
+好剑我击 
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2141#       发表于 2020-6-16 14:15
+
+
+
+
+运营这么重视星街可不可以给一件新衣服啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2142#       发表于 2020-6-16 14:16
+
+
+
+
+星街不过是把别人直播的时间拿来堵运营门了而已
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 2143#       发表于 2020-6-16 14:17
+
+
+
+
+记得奖励原创曲一周前就听到风声了，现在算啊b正式发公告吗。而且知道原创曲的v粉丝也没参加的欲望，怕是b站真的准备顺手送给星姐的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2144#       发表于 2020-6-16 14:18
+
+
+
+
+那到时候出岔子没送成功反而送给别人了就搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2145#       发表于 2020-6-16 14:19
+
+
+
+
+哈哥从阴湿メガネ进化的那么好看了吗
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2146#       发表于 2020-6-16 14:20
+
+
+
+
+原创曲啊
+
+作曲：Himmel_Kazami
+
+MIX：らずのん
+
+谁快编排个作词
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2147#       发表于 2020-6-16 14:20
+
+
+
+
+粽情狂欢和分区冠军赛是会继承积分吗，没看懂这赛制
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2148#       发表于 2020-6-16 14:21
+
+
+
+
+堵门理论好像很有道理诶，夸夸小身板堵不住门待遇就差，反观<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2149#       发表于 2020-6-16 14:22
+
+
+
+
+螳臂当车警告
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 2150#       发表于 2020-6-16 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825937&amp;ptid=1941579" target="_blank">Alphawalker 发表于 2020-6-16 14:12</a>
+🤺</blockquote>
+哈哥这也太受了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2151#       发表于 2020-6-16 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826044&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-16 14:20</a>
+
+原创曲啊
+
+作曲：Himmel_Kazami
+
+MIX：らずのん</blockquote>
+作词：miki弥希
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2152#       发表于 2020-6-16 14:25
+
+
+
+
+弥宝在闭关呢，还没出来，弥人们都戒断了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2153#       发表于 2020-6-16 14:27
+
+
+
+
+杏什么时候才能搞掂任任，想看她们玩51游戏大全
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2154#       发表于 2020-6-16 14:28
+
+
+
+
+永远别搞定了，不能玩任任之后最近几个企划回都挺好玩的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2155#       发表于 2020-6-16 14:29
+
+
+
+
+那运营要给486mio开工资才行，哦顺便把mio笑伤的医药费结一下。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2156#       发表于 2020-6-16 14:33
+
+
+
+
+51游戏大全感觉不是很有意思，至少在任游里属于我不喜欢的那类…
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 2157#       发表于 2020-6-16 14:35
+
+
+
+
+我们游戏民难道不配拥有幸福吗？🥺
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 2158#       发表于 2020-6-16 14:36
+
+
+
+
+这种游戏肯定得有一起吹b的朋友才好玩啊，不然没意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2159#       发表于 2020-6-16 14:36
+
+
+
+
+不过之前多葛本社那次51同接爆炸，不知道是哪方加成多。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2160#       发表于 2020-6-16 14:36
+
+
+
+
+聚会游戏都这样，本质看人际互动的。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2161#       发表于 2020-6-16 14:37
+
+
+
+<blockquote>asdhai 发表于 2020-6-16 14:36
+不过之前多葛本社那次51同接爆炸，不知道是哪方加成多。</blockquote>
+camp重组，也可以。
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2162#       发表于 2020-6-16 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826245&amp;ptid=1941579" target="_blank">erer 发表于 2020-6-16 14:35</a>
+我们游戏民难道不配拥有幸福吗？🥺</blockquote>
+可以去看任天堂允许有幸福的彩虹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 2163#       发表于 2020-6-16 14:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826276&amp;ptid=1941579" target="_blank">Mika-S 发表于 2020-6-16 14:38</a>
+
+可以去看任天堂允许有幸福的彩虹啊</blockquote>
+我又不看彩虹。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2164#       发表于 2020-6-16 14:39
+
+
+
+
+虹也不是没有夸的上位替代，erer可以尝试一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2165#       发表于 2020-6-16 14:39
+
+
+
+
+木口的抠门劲头还从此封印任系的可能性比较高
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2166#       发表于 2020-6-16 14:40
+
+
+
+
+彩虹的aqua是说猴子还是露露来着。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2167#       发表于 2020-6-16 14:40
+
+
+
+ 本帖最后由 crito 于 2020-6-16 14:41 编辑 
+
+为什么木口不能像之前那个企业一样把收益全放给liver呢
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2168#       发表于 2020-6-16 14:41
+
+
+
+
+玩任系的紫宝闪耀着神圣的光辉
+
+封印任系我将要🥜😈
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 2169#       发表于 2020-6-16 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826293&amp;ptid=1941579" target="_blank">erer 发表于 2020-6-16 14:38</a>
+我又不看彩虹。</blockquote>
+那没办法，木口不允许你们游戏民有幸福，你又要看木口，怪不得别人吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2170#       发表于 2020-6-16 14:42
+
+
+
+
+二二姐之前不还讲有的时候会看看葛叶的吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 2171#       发表于 2020-6-16 14:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对，会看几秒钟。现在没有阿夸的日子，我选择看日剧卖房子的女人。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2172#       发表于 2020-6-16 14:43
+
+
+
+
+CAMP现在都有光明的未来，挺可惜的；OKFAMS如今也很难凑齐人
+
+现在T1组合只有范特西、星天龙了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 2173#       发表于 2020-6-16 14:43
+
+
+
+
+虹的夸的上位替代是谁？有点想看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl之前看c酱播51感觉节目效果不错啊
+
+飞行棋互杀，高尔夫相互抄作业失败之类的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 2174#       发表于 2020-6-16 14:44
+
+
+
+
+就木口连mc都不能玩的处理速度，明年大概就能玩上任天堂了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2175#       发表于 2020-6-16 14:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826348&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-16 14:43</a>
+
+CAMP现在都有光明的未来，挺可惜的；OKFAMS如今也很难凑齐人
+
+现在T1组合只有范特西、星天龙了 ...</blockquote>
+camp是指哪个组合？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2176#       发表于 2020-6-16 14:45
+
+
+
+
+OKFAMS凑不齐现在主要是在F身上，之前在A身上
+
+あやすばおかころ玩傻吊游戏那天三才说中午除了狐狸偶然都待在OKFAMS频道里吹逼
+
+我就有一种丧失感
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 2177#       发表于 2020-6-16 14:45
+
+
+
+
+51game首先有初见buff，虹玩这游戏初见看得人都挺多的，还有就是51个游戏可以看liver的游戏力，虽然很多运气成分比较大但是挺多游戏都有策略性的。另外就是任系一贯的和观众对打或者联动单挑都很好看，我自己买了这游戏都没看liver玩有意思，毕竟聚会游戏还是人多才有趣，要不是版权估计接下来半年都是整个v圈的金游
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2178#       发表于 2020-6-16 14:46
+
+
+
+
+你楼指定虹的夸上位替代不是露露吗，不是我说的有问题别找我
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pabier| + 1|打搅了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2179#       发表于 2020-6-16 14:46
+
+
+
+
+OKFAMS 凑齐有点难 但是子集感觉还是挺多见的 
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">  狐狸能不能别和星玩了多回来OKFAMS吧  
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2180#       发表于 2020-6-16 14:46
+
+
+
+
+郡道sio玩51那回就挺有效果的，玩黑杰克的寿星运太强了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2181#       发表于 2020-6-16 14:46
+
+
+
+<blockquote>asdhai 发表于 2020-6-16 14:44
+camp是指哪个组合？</blockquote>
+仙境早期成型的组合c：可可 a：大亏 m：船长 p：兔子
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 2182#       发表于 2020-6-16 14:46
+
+
+
+
+我连你们钦定的阿夸上位替代兔皇都不看，怎么还可能去看别的野鸡榜排的上位替代。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2183#       发表于 2020-6-16 14:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826367&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-16 14:44</a>
+
+camp是指哪个组合？</blockquote>
+C=桐生可可
+
+A=凑阿库娅
+
+M=宝钟玛琳
+
+P=兔田佩克拉
+
+
+源自ARK，当时机缘巧合四个人凑到一起去抓风神，之后以此命名风神，并作为组合联动过
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asdhai| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2184#       发表于 2020-6-16 14:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826370&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-16 14:45</a>
+
+OKFAMS凑不齐现在主要是在F身上，之前在A身上
+
+あやすばおかころ玩傻吊游戏那天三才说中午除了狐狸偶然都待 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 2185#       发表于 2020-6-16 14:50
+
+
+
+
+那么带男人是福还是难
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2186#       发表于 2020-6-16 14:50
+
+
+
+
+屑狐狸啊屑狐狸
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2187#       发表于 2020-6-16 14:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 有点想看aqua和西西联动玩51合1，
+
+
+然后西西收到的sc必须全给aqua，因为人气都是蹭我家aqua的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2188#       发表于 2020-6-16 14:51
+
+
+
+
+自己推不播的时候就要多看看其他管人，就当为你推回来直播做练习，你的推肯定也不希望她不在时你这么寂寞，反正看别人只是玩玩而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2189#       发表于 2020-6-16 14:51
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/145030lbfdvfdwhbwlwnvv.png" referrerpolicy="no-referrer">
+
+
+<strong>おうぺん.png</strong> (782.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 14:50 上传
+
+
+
+
+
+
+ってかそのTシャツデカくね？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2190#       发表于 2020-6-16 14:52
+
+
+
+
+杏仁比起大家庭更喜欢虹这样小团体山头林立的情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2191#       发表于 2020-6-16 14:54
+
+
+
+
+小肥妹嘴上说女孩子sukisuki特别是ホロライブの女可愛いやつ多すぎて無理啥的，但是和okfams的联动几乎为0反而是整天和男人联动，有梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2192#       发表于 2020-6-16 14:54
+
+
+
+
+大亏不得不拥抱了大家庭，crew最后也不得不拥抱了大家庭，大家庭，你好强大。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2193#       发表于 2020-6-16 14:54
+
+
+
+
+大家庭里未必没有小山头。你横竖看一下，现在的hololive哪里有点大家庭的样子？这刺头就跟打地鼠一样，越打越多。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2194#       发表于 2020-6-16 14:55
+
+
+
+<blockquote>opersuper 发表于 2020-6-16 14:52
+杏仁比起大家庭更喜欢虹这样小团体山头林立的情况吗</blockquote>
+吃不到箱力或者觉得运营亏待自己的推，肯定就会觉得去特么的大家庭了。
+
+感觉是可以理解的
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2195#       发表于 2020-6-16 14:56
+
+
+
+
+女团内部连边境墙都有了，就差在墙上修火力点了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2196#       发表于 2020-6-16 14:56
+
+
+
+
+组合和山头又不是一回事，没听说过ド葛本社算个派系的
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2197#       发表于 2020-6-16 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826507&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-16 14:56</a>
+女团内部连边境墙都有了，就差在墙上修火力点了</blockquote>
+黑宝，给大家庭粉留条活路吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2198#       发表于 2020-6-16 14:57
+
+
+
+
+龙皇小天使和阿星现在算不算逆大家庭搞小团体，我都不敢确定
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2199#       发表于 2020-6-16 14:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">木口和虹的小山头不一样
+
+木口的小山头大概是女生宿舍里四个小姑娘五个群
+
+虹的小山头直接就不是一个宿舍了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2200#       发表于 2020-6-16 14:58
+
+
+
+
+holo山头派系应该事指亲狐派或者亲龙派这样的吧
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2201#       发表于 2020-6-16 14:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826525&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-16 14:57</a>
+
+龙皇小天使和阿星现在算不算逆大家庭搞小团体，我都不敢确定</blockquote>
+不就是她们带头修边境墙吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天悬星河  
+##### 2202#       发表于 2020-6-16 14:58
+
+
+
+
+狐皇沉迷男色不理朝政
+建议早日船太子登基
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2203#       发表于 2020-6-16 14:58
+
+
+
+
+感觉这幸亏没出五期，要是多整个几期的世界线，真不知道holo会咋样
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2204#       发表于 2020-6-16 14:58
+
+
+
+
+小天使疯狂蹭大联动也算是搞小山头吗，黑屁也要讲道理啊
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2205#       发表于 2020-6-16 14:59
+
+
+
+
+建议感受下葵皇和mahimahi的同时凸待，什么才是真正的格差社会
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2206#       发表于 2020-6-16 14:59
+
+
+
+
+那我还是想看五期的，测量总箱力的最好办法就是看新人首播前能攒多少粉了。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2207#       发表于 2020-6-16 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826528&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-16 14:57</a>
+木口和虹的小山头不一样
+
+木口的小山头大概是女生宿舍里四个小姑娘五个群
+
+虹的小山头直接就不是一个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 2208#       发表于 2020-6-16 15:00
+
+
+
+
+●内无派，千奇百怪。点崩了，holo可没崩。一二期派系虽多但可以一狐蔽之。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2209#       发表于 2020-6-16 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826525&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-16 14:57</a>
+
+龙皇小天使和阿星现在算不算逆大家庭搞小团体，我都不敢确定</blockquote>
+搞小团体的不是龙皇小天使和阿星，是出卖live朝贡star的狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+龙皇小天使和阿星为了防止被卖而早日建墙
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2210#       发表于 2020-6-16 15:01
+
+
+
+
+黑宝，抹黑杏女并不会让杏男收获热度的道理怎么就是不懂呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2211#       发表于 2020-6-16 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826562&amp;ptid=1941579" target="_blank">睥睨寰宇荡红尘 发表于 2020-6-16 15:00</a>
+
+现在的确是四个小姑娘了
+
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+你捂着你自己的蛋子说
+
+这里面是四个<strong>小姑娘</strong>吗
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2212#       发表于 2020-6-16 15:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826568&amp;ptid=1941579" target="_blank">cheatdeath3 发表于 2020-6-16 15:00</a>
+●内无派，千奇百怪。点崩了，holo可没崩。一二期派系虽多但可以一狐蔽之。 ...</blockquote>
+狐皇自己都要被okmams踢了还说啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2213#       发表于 2020-6-16 15:02
+
+
+
+
+说起来，版权之后的杏生活多人企划是不是还没有离开过mio。。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2214#       发表于 2020-6-16 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 葵皇那个不是逆凸吗？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2215#       发表于 2020-6-16 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826538&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-16 14:58</a>
+
+不就是她们带头修边境墙吗</blockquote>
+明明是狐皇整天满口的holopro想要拆墙
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2216#       发表于 2020-6-16 15:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">486单独搞了一个吧
+
+剩下三才都参与了，木口里面能当MC的另一个在扶男人
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2217#       发表于 2020-6-16 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826575&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-16 15:01</a>
+
+黑宝，抹黑杏女并不会让杏男收获热度的道理怎么就是不懂呢</blockquote>
+可我记得之前说过我支持修墙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">修墙怎么看对两边都好
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 2218#       发表于 2020-6-16 15:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826581&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-16 15:02</a>
+你捂着你自己的蛋子说
+
+这里面是四个小姑娘吗</blockquote>
+好吧，三个小姑娘和宿管阿姨？
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 2219#       发表于 2020-6-16 15:04
+
+
+
+<blockquote>ひびき 发表于 2020-6-16 14:54
+小肥妹嘴上说女孩子sukisuki特别是ホロライブの女可愛いやつ多すぎて無理啥的，但是和okfams的联动几乎为0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">人家现在说的是holapro好き 
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 2220#       发表于 2020-6-16 15:04
+
+
+
+
+鉴于之前楼里车龙皇，我觉得等以后真把星扶起来了，你们就知道狐皇的厉害了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2221#       发表于 2020-6-16 15:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/150419sxf0xs8mbd9mmbab.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200616150250.jpg</strong> (93.66 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-16 15:04 上传
+
+
+
+
+
+
+
+“我要向世界播放这段希望的录像！”
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2222#       发表于 2020-6-16 15:05
+
+
+
+
+翻了下少主的推，过去几小时的转推包含了OKFAMS每个人，2周年目标的时候有说想多弄弄OKFAMS，希望能实现吧
+
+前两天读信就有玩男人玩得有点多的自觉，也不可能天天挂机木口星的
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2223#       发表于 2020-6-16 15:05
+
+
+
+
+486单独搞了个啥来着，她那些单人棉花糖变种不算。。
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 2224#       发表于 2020-6-16 15:06
+
+
+
+
+去年夏天的时候串里经常有人拿露露和夸比的
+还写了很多很搞的怪文书
+好像是因为当时两人都在玩fs的游戏
+再后来就是宫助和露露了
+
+—— 来自 HUAWEI COL-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2225#       发表于 2020-6-16 15:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826628&amp;ptid=1941579" target="_blank">forzen 发表于 2020-6-16 15:05</a>
+
+486单独搞了个啥来着，她那些单人棉花糖变种不算。。</blockquote>
+百元店吧，素材明显是486自己搞得
+
+虽然也有mio就是了ww
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2226#       发表于 2020-6-16 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">三才会限里提过各有一个企划是单独搞的
+
+486单独搞的百均，但是三才也被拉上参加了
+
+得，是100%
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2227#       发表于 2020-6-16 15:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那我觉得还是多发mio一份工资吧，敢情全社就这么一个人能干。好吧A酱有时也会干
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2228#       发表于 2020-6-16 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826604&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-16 15:03</a>
+
+明明是狐皇整天满口的holopro想要拆墙</blockquote>
+这话说得，现在想想，制造一个“stars属于木口P”的强宣称真的需要拉整个女团下水吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看之前的待机间不就知道了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2229#       发表于 2020-6-16 15:09
+
+
+
+
+顺便一提，绯句王应该是从5月中就开始准备了，5月14的杂谈里mio放风说要准备联动
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2230#       发表于 2020-6-16 15:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826622&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-16 15:04</a>
+
+鉴于之前楼里车龙皇，我觉得等以后真把星扶起来了，你们就知道狐皇的厉害了 ...</blockquote>
+扶起来如何，上限也就是彩虹，可是彩虹sc不如木口<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">  所以说狐皇费尽心思牺牲掉木口养独角兽和gachi的关键，到头来努力的上限也不如没有男人的木口
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 2231#       发表于 2020-6-16 15:12
+
+
+
+
+我还记得mio说过不想参加大联动因为人际太累呢。。结果这些个联动一个都少不了mio，这不发补贴还有天理么
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 2232#       发表于 2020-6-16 15:12
+
+
+
+
+木口就这么夺走葵皇的心头肉，葵皇下一次见到白上桑的时候一定会气得和白上打起来吧。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2233#       发表于 2020-6-16 15:14
+
+
+
+ 本帖最后由 ひびき 于 2020-6-16 15:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826669&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-16 15:08</a>
+
+这话说得，现在想想，制造一个“stars属于木口P”的强宣称真的需要拉整个女团下水吗？日本不知道 ...</blockquote>
+狐皇拉上了夏哥在鬼佬那里制造了这种强宣称这种行为本事就已经是拉整个女团下水了，你不会以为这种行为对其他女团成员没有影响吧
+
+
+
+
+龙皇另立炉灶成立不可攻破的holohouse，取代被狐皇宣称附庸于holopro的hololive<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我看好
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 2234#       发表于 2020-6-16 15:14
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-16 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826726&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-16 15:12</a>
+
+木口就这么夺走葵皇的心头肉，葵皇下一次见到白上桑的时候一定会气得和白上打起来吧。 ...</blockquote>
+两坦相遇重者胜？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2000你认为狐皇和葵皇谁重？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2235#       发表于 2020-6-16 15:15
+
+
+
+
+建议你们先划清成分，哪些是狐派哪些是船派哪些是龙派<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2236#       发表于 2020-6-16 15:17
+
+
+
+
+工资是写在合同上的，不过业绩高的话说不定holo会发最佳员工奖呢
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2237#       发表于 2020-6-16 15:17
+
+
+
+
+从海外的holoid到日本本土的杏星，一幅横贯holo的铁幕已经降落下来。在这条线的后面，坐落着hololive的都城。大亏、百鬼、傻紫、miko、三期、龙皇、小天使和星街——所有这些饱经沧桑的vtb及其粉丝无一不处在百合豚的势力范围之内，不仅以这种或那种形式屈服于百合豚的势力影响，而且还受到独角兽日益增强的高压控制。只有fbk，放射着它不朽的光辉，在夏色祭、小肥妹、佐藤希三人每一个粉的眼下，自由地决定它的前途。
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 2238#       发表于 2020-6-16 15:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824983&amp;ptid=1941579" target="_blank">stedckk 发表于 2020-6-16 12:58</a>
+
+这真的不会尴尬吗</blockquote>
+郡道这个对v圈不怎么熟的认识sio第一天就po自己买了蛋蛋写的麻将入门，再尴尬也比不过那一次了。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2239#       发表于 2020-6-16 15:18
+
+
+
+
+最难划分的就是紫宝
+
+唉，紫宝在龙皇变龙酱之后就不再参与紫龙组了
+
+这种クソガキ活该底边，能不能让最近知道紫宝的25万人解除登录别再看她了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 2240#       发表于 2020-6-16 15:18
+
+
+
+
+葵皇这么老实，当然是一把鼻涕一把泪问白上怎么才能和mrr见一面
+然后见到mrr后一拳秒杀，正义执行
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2241#       发表于 2020-6-16 15:20
+
+
+
+<blockquote>超能力者stven 发表于 2020-6-16 15:04
+鉴于之前楼里车龙皇，我觉得等以后真把星扶起来了，你们就知道狐皇的厉害了 ...</blockquote>
+知道厉害了——指化身👿
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2242#       发表于 2020-6-16 15:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 不知道葵皇删没删mrr的dis好友，不知道葵皇加了几个社内人的line，
+
+
+葵皇有没有一丝可能加了葛叶的line呢？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2243#       发表于 2020-6-16 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826744&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-16 15:14</a>
+
+狐皇拉上了夏哥在鬼佬那里制造了这种强宣称这种行为本事就已经是拉整个女团下水了，你不会以为这种行为对 ...</blockquote>
+难道还有鬼佬跑去二三四期生那里被狐皇当刀使吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 2244#       发表于 2020-6-16 15:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826798&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-16 15:17</a>
+
+从海外的holoid到日本本土的杏星，一幅横贯holo的铁幕已经降落下来。在这条线的后面，坐落着hololive的都城 ...</blockquote>
+啊这，建议狐皇找好老歪脖子树<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 2245#       发表于 2020-6-16 15:23
+
+
+
+
+龙酱不知道六月过了之后还是不是龙酱
+
+yysy，就算我是龙子，最近asacoco还是感觉有些无聊了，建议3.0赶紧安排上
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2246#       发表于 2020-6-16 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826872&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-16 15:21</a>
+
+难道还有鬼佬跑去二三四期生那里被狐皇当刀使吗</blockquote>
+“holo是有男人的箱（类似彩虹），而不是独角兽和百合豚的乐园”
+
+
+狐皇让这些鬼佬产生了这种认知就是对养gachi和百合豚的女团成员最大的侵害
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2247#       发表于 2020-6-16 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826802&amp;ptid=1941579" target="_blank">kangkangsama 发表于 2020-6-16 15:17</a>
+
+郡道这个对v圈不怎么熟的认识sio第一天就po自己买了蛋蛋写的麻将入门，再尴尬也比不过那一次了。
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也是
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2248#       发表于 2020-6-16 15:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826755&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-16 15:14</a>
+
+两坦相遇重者胜？2000你认为狐皇和葵皇谁重？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer"> 棒子的K2大概55吨，10式坦克50吨，
+
+
+葵皇——win！
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 2249#       发表于 2020-6-16 15:25
+
+
+
+
+要我说，看阿夸看习惯的人去看露露，会有种味道太淡的感觉，主要是露露直播游戏总体上的情绪波动太小；反过来喜欢看露露的可能会觉得阿夸直播太吵闹。pekora又有人声音挺不习惯，综合来说阿夸不播crew闲的慌其实可以去看面包狗。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuezhi| + 1|我看了，我聋了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 2250#       发表于 2020-6-16 15:26
+
+
+
+
+这么说让老外开启批判独角兽热潮的towa才是恶首啊
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 2251#       发表于 2020-6-16 15:26
+
+
+
+
+会长有自己想法也有付诸实施的行动力，真的感觉她未来会脱离杏社自立门户
+
+holohouse这事，yagoo如果只当成是社员过家家，迟早要后悔
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2252#       发表于 2020-6-16 15:28
+
+
+
+ 本帖最后由 ひびき 于 2020-6-16 15:29 编辑 
+
+试想如果你是个19年初入坑的中国人，你对彩虹和木口的认知是啥，肯定是彩虹男女都有，木口只有女性对吧，这种认知会对你的选择和投入产生多大影响不用我说了吧
+
+
+而如果你是个20年年中入坑的鬼佬，你对彩虹和木口（pro）的认知是啥，彩虹男女都有，木口也男女都有，木口的leader还整天和男人联动，这种认知不会对你的选择和投入产生影响吗，被狐皇这个meme入口影响了，你会注意到二三四期生有一堆人完全不和星联动甚至完全不和男人联动吗
+
+
+狐皇只拉了自己和小肥妹，对其他女团成员没影响，是所谓“理中客路人”最大的谎言
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2253#       发表于 2020-6-16 15:29
+
+
+
+<blockquote>Izuru单推人 发表于 2020-6-16 15:21
+难道还有鬼佬跑去二三四期生那里被狐皇当刀使吗</blockquote>
+说起来上次还确实在船长直播间看到一不知啥国籍的人反复刷问船长能不能和杏星联动打车万的
+
+
+当然坦率说这个提议本身确实有点说法，星好像是那个大叔好像好几次封面是播车万
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2254#       发表于 2020-6-16 15:29
+
+
+
+ 本帖最后由 colodes 于 2020-6-16 15:35 编辑 
+
+切账号发推好快啊，还有之前说的20号后休止？
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/152437js8h8ztshzis3sfb.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-16 152424.png</strong> (69.12 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-16 15:24 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/152753o65bq7327k6y52z2.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-16 152719.png</strong> (34.69 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-16 15:27 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/153507qphyqs78aoyttt8t.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-16 153443.png</strong> (463.95 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-16 15:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 2255#       发表于 2020-6-16 15:29
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-16 15:31 编辑 
+
+鬼佬的认知影响不到东亚地区观众的认知吧
+
+如果英文圈本来就没多少独角兽，
+
+
+就算英文圈的人形成了holo对独角兽没有那么友好的印象的话也没大碍？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2256#       发表于 2020-6-16 15:30
+
+
+
+
+问题来了，鬼佬真的有很多独角兽吗？再进一步，昨天夏哥9个踩，独角兽又在哪呢。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2257#       发表于 2020-6-16 15:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826938&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-16 15:26</a>
+会长有自己想法也有付诸实施的行动力，真的感觉她未来会脱离杏社自立门户
+
+holohouse这事，yagoo如果只当成 ...</blockquote>
+这不大可能吧，脱离holo是和钱过不去吗…顶多是再弄出个三期一样的箱中箱，这种yagoo可乐着呢
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2258#       发表于 2020-6-16 15:31
+
+
+
+
+今天几个踩呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2259#       发表于 2020-6-16 15:33
+
+
+
+
+直接按照三期那个路线走肯定是最完美的，可惜四期平衡性太差了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 2260#       发表于 2020-6-16 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826983&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-16 15:29</a>
+
+说起来上次还确实在船长直播间看到一不知啥国籍的人反复刷问船长能不能和杏星联动打车万的
+
+
+当然坦率说这 ...</blockquote>
+你说阿兰啊，他播了好久的车万了，好像从二月中旬接工商后开始的？先后直播过地灵殿、风神录、永夜抄等好几部了
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 2261#       发表于 2020-6-16 15:34
+
+
+
+
+怎么还有铁幕的…这就开始安排内部阵营了嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+现在确实很期待五期生了…holo现在这么强势应该能吸引到更厉害的人来加入。
+如果不是通信录摇人就好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 2262#       发表于 2020-6-16 15:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞个木口版本的10w家族，不比你垃圾工商家族强多了，
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2263#       发表于 2020-6-16 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827008&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-16 15:31</a>
+
+今天几个踩呢</blockquote>
+昨天歌回36，前一天apex18，音游26？，在前一档apex38，和男人联动瓦罗兰特108，今天待机间65.
+
+就这？
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 2264#       发表于 2020-6-16 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825251&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-16 13:18</a>
+
+两手（sio/.Live）都要抓，两手都要硬。不过点好像对联动蛮严格的，应该不会跟郡道有实质联动，点 ...</blockquote>
+八重沢的话的确还好。
+
+
+syl
+
+看多了虹庵基本对她敌对态度（最近开始夸她能力和人脉但是依旧讨厌她）
+
+看点庵真的温差太大，都快夸她夸成什么样了（什么能让sio撒娇成那样的除了郡道只有花音了）
+
+各种我都不敢吹到这种程度的话。
+
+
+y1s1，sio真的给她引了很多流，当然她最近也比较走大众路线不那么筛选观众了。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2265#       发表于 2020-6-16 15:36
+
+
+
+
+虽然厄介粉丝不是很多，但是他们的声音一定是最大的
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2266#       发表于 2020-6-16 15:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827057&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-16 15:34</a>
+
+昨天歌回36，前一天apex18，音游26？，在前一档apex38，和男人联动瓦罗兰特108，今天待机间65.
+
+就这？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对，这基本就是祭丝残余独角兽的数量了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2267#       发表于 2020-6-16 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826131&amp;ptid=1941579" target="_blank">stedckk 发表于 2020-6-16 14:27</a>
+
+杏什么时候才能搞掂任任，想看她们玩51游戏大全</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">讲真。。。。不能玩猛男捡树枝后她们搞出来那几个企划一个比一个好。。。
+
+
+摸余48猫狗玩超级鸡马也是笑死咱，任天堂去死啦
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 2268#       发表于 2020-6-16 15:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/16/153754ogs7p1ofgsfpzs2l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>SHu3fdg.jpg</strong> (174.03 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-16 15:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2269#       发表于 2020-6-16 15:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47826348&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-16 14:43</a>
+
+CAMP现在都有光明的未来，挺可惜的；OKFAMS如今也很难凑齐人
+
+现在T1组合只有范特西、星天龙了 ...</blockquote>
+很难凑齐人 X
+
+
+很难抓到摸余 O
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 2270#       发表于 2020-6-16 15:41
+
+
+
+
+okas有趣是因为那四人在一起本身有趣，okfams凑一起聊天都很有趣
+
+
+和超级鸡马关系不大就是啦
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 2271#       发表于 2020-6-16 15:42
+
+
+
+
+木口再搞和三期一样的路线，不就是搞三期的上位替代，问题是真能找出四五个平均水平强过三期生的yhm吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 2272#       发表于 2020-6-16 15:42
+
+
+
+<blockquote>kangkangsama 发表于 2020-6-16 15:36
+八重沢的话的确还好。
+
+
+syl
+</blockquote>
+油管推荐Sio相关会推荐八重沢，可能到现在还有相当的观众重合度？
+
+我记得有看重合度的网站。
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 2273#       发表于 2020-6-16 15:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827091&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-16 15:37</a>
+
+讲真。。。。不能玩猛男捡树枝后她们搞出来那几个企划一个比一个好。。。
+
+
+摸余48猫狗玩超级鸡马 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">捡树枝是挺无聊的，但我觉得51应该能有不错的节目效果。
+
+没有任任我估计她们又要回归ark了，ark不爱的。
+
+
+
+
+
+
+
+-----
+
+####  带型橘猫  
+##### 2274#       发表于 2020-6-16 15:46
+
+
+
+
+草，今天回来看到v9又虚无了
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 2275#       发表于 2020-6-16 15:48
+
+
+
+
+比起铁幕来，真的不更像神圣holo帝国吗
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 2276#       发表于 2020-6-16 15:49
+
+
+
+
+木口上周高同接联动一览（同接，时段位次，策划者，时段对手）：
+
+周一：无。
+
+周二：百鬼神社（2w3，1位，mio48，无），mio48恐怖游戏（1w8，2位，mio48，船长东方1w9）。
+
+周三：占卜馆（1w5，2位，mio，莉洁51游戏1w8），mio48恐怖游戏2（1w2，2位，mio48，阿露丝2w2/35壶男1w2）。
+
+周四：樱语教室（2w1，1位，35，傻葵1w5），阿火粽子喝酒杂谈（1w3，2位，阿火？，月之1w4），词语人狼（3w7，1位，mio48，彩虹运动联动？3w3）。
+
+周五：审判阿火（2w2，1位，mio，可可ark1w7），百元店（3w9，1位，486，柴卡频道某个删档直播1w9），猫狗新装杂谈（1w5，2位，猫狗，35ark1w7）。
+
+周六：四国联动（2w8，1位，mio48，无），双六（3w5，2位，35，多葛本社5w3），三期夜谈（3w3，1位，团长，狗子恐怖游戏1w5）。
+
+周日：俳句王（4w4，1位，mio，花谱1w7），OKAS沙雕小游戏（2w8，1位-2位，懒狗，空妈live2w2/兔子影廊2w9）.
+
+
+与社外的联动没记，看下还有没有遗漏的。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2277#       发表于 2020-6-16 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827165&amp;ptid=1941579" target="_blank">stedckk 发表于 2020-6-16 15:43</a>
+
+捡树枝是挺无聊的，但我觉得51应该能有不错的节目效果。
+
+没有任任我估计她们又要回归ark了，ark不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喔对了，之前看MIO和48玩红斗篷WTM全程笑爆
+
+
+尼玛486你赶紧修正完把录像放出来啊，话说你那个SBSBSB的超级直男ID有什么剪辑的必要么（半恼）
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 2278#       发表于 2020-6-16 15:50
+
+
+
+
+龙皇昨天直播还在努力推ark。ark在杏内突然退潮有点奇怪，阿夸和狐狸算是有明确原因的，但其他人好像有默契一样也突然都不上线了。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 2279#       发表于 2020-6-16 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827264&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-16 15:49</a>
+
+木口上周高同接联动一览（同接，时段位次，策划者，时段对手）：
+
+周一：无。
+
+周二：百鬼神社（2w3，1位，mi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱又想起来狗子在起点放的那个黑洞了，笑死
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 2280#       发表于 2020-6-16 15:53
+
+
+
+ 本帖最后由 ひびき 于 2020-6-16 15:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827264&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-16 15:49</a>
+
+木口上周高同接联动一览（同接，时段位次，策划者，时段对手）：
+
+周一：无。
+
+周二：百鬼神社（2w3，1位，mi ...</blockquote>
+三才，永远滴神！<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+作为狐皇的至亲好友都知道和星保持距离，安心组织女团联动，智商完爆了蠢希八十条街
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2281#       发表于 2020-6-16 15:53
+
+
+
+
+对游戏突然失去兴趣也是可以理解的，何况ark数字也就那样了，没必要强迫自己玩下去。到最后除了boss战4人之外，boss战结束到水晶岛开这段时间最后一个登录畸变的是小天使，不过也是个吃独食不播的主儿。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2282#       发表于 2020-6-16 15:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827310&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-16 15:53</a>
+
+对游戏突然失去兴趣也是可以理解的，何况ark数字也就那样了，没必要强迫自己玩下去。到最后除了boss战4人之 ...</blockquote>
+ARK的SC恢复了之后你再看看谁又唐突参战了
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 2283#       发表于 2020-6-16 15:55
+
+
+
+
+紫宝boss战打酱油被攻击了，档也藏了
+
+根据MC不自由事件的经验还得缓几个月才会soloARK
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 2284#       发表于 2020-6-16 15:56
+
+
+
+<blockquote>Izuru单推人 发表于 2020-6-16 15:34
+你说阿兰啊，他播了好久的车万了，好像从二月中旬接工商后开始的？先后直播过地灵殿、风神录、永夜抄等好 ...</blockquote>
+是  杏女这边只有毫无游戏力的萝卜子联动船长玩了次，阿兰也不存在为了联动到船长只是单纯播了不少车万这点这点还是让我有点好感的
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 2285#       发表于 2020-6-16 15:56
+
+
+
+
+SC不开是搞哪出？
+
+争取独家直播权吗？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 2286#       发表于 2020-6-16 15:57
+
+
+
+
+那么上周holo的最佳员工事哪位呢
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2287#       发表于 2020-6-16 15:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827091&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-16 15:37</a>
+
+讲真。。。。不能玩猛男捡树枝后她们搞出来那几个企划一个比一个好。。。
+
+
+摸余48猫狗玩超级鸡马 ...</blockquote>
+姑且澄清一下
+
+三才在企划集中周之前杂谈提到过 因为游戏不能玩 她们把以前就想好了准备做的企划全部拿出来做了 不是说游戏不能玩之后才想出来的企划
+
+
+miko的双六也是，在后面的杂谈提到过这个企划实际上在年初的时候就想搞了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 2288#       发表于 2020-6-16 15:59
+
+
+
+
+想要sc还用的着专门去玩ark，你当holo那群yhm是弱智？
+
+弱智抄作业也知道想要sc应该学龙宝多搞杂谈读sc整活。。
+
+说的好像aki巧可播ark的sc很高一样。
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 2289#       发表于 2020-6-16 15:59
+
+
+
+
+ark如果要播感觉还是要好好组织一下，像真人秀一样的准备好角色、规则甚至剧本。放任主播各自发挥的结果是播的东西同质化太多了，然后就是内容竞争，阿夸这种特别突出的就成了靶子。多人游戏中真正有趣的liver之间的互动反而没有突出。
+
+但是看杏社运营那能力基本没指望能组织好这种大型剧集，会长也不可能再有时间和精力去弄。
+
+ark看来是没可能填上老任缺口的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2290#       发表于 2020-6-16 15:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827379&amp;ptid=1941579" target="_blank">crito 发表于 2020-6-16 15:57</a>
+那么上周holo的最佳员工事哪位呢</blockquote>
+是懒狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2291#       发表于 2020-6-16 16:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827354&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-16 15:56</a>
+
+SC不开是搞哪出？
+
+争取独家直播权吗？？</blockquote>
+简单的说就是
+
+cover运营脑子有病
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2292#       发表于 2020-6-16 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827395&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-16 15:59</a>
+
+想要sc还用的着专门去玩ark，你当holo那群yhm是弱智？
+
+弱智抄作业也知道想要sc应该学龙宝多搞杂谈读sc整活 ...</blockquote>
+杂谈力是真的不是一时半会能提升起来的不是谁都向龙皇一样在国外呆过满肚子的话题neta每天都不重样的
+
+每天其他事都不用做闲到去高强度读几个小时SC也不是谁都能随便做到的
+
+现在姑且不玩ark情况下还有其他能开SC的游戏能播当然ark不是最优先
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 2293#       发表于 2020-6-16 16:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827408&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-16 16:00</a>
+简单的说就是
+
+cover运营脑子有病</blockquote>
+你怎么知道半年后ark不会变成只有holo取得了授权能播的游戏呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 2294#       发表于 2020-6-16 16:06
+
+
+
+
+运营估计用群发给各个游戏官方发了封直播许可邮件，说不准邮箱也没选对，然后只要没回复就不敢跟liver打包票，根本就没去做调查看是否早就允许收益直播的事情。反正怎么轻松怎么来，就算少收点钱，只要不出问题，他运营工资也不会少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 2295#       发表于 2020-6-16 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827459&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-16 16:05</a>
+
+你怎么知道半年后ark不会变成只有holo取得了授权能播的游戏呢</blockquote>
+ark官方早就在多重场合反复提到过支持任何人在404播ark想怎么播怎么播
+
+虹也是到目前为止SC都开着的 只有cover脑子有病
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 2296#       发表于 2020-6-16 16:07
+
+
+
+
+欧美厂商还会临幸hololive不成？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 2297#       发表于 2020-6-16 16:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47827070&amp;ptid=1941579" target="_blank">kangkangsama 发表于 2020-6-16 15:36</a>
+八重沢的话的确还好。
+
+
+syl</blockquote>
+にじアン眼里嘘松就是大罪人啊，主要是メンタル很强，被打了马上还手的类型，再加上自我展示欲强，对5ch肥肥来说简直如临大敌。
+
+当然也有以前にじアン里头ロア信不少的原因。
+
+ドルアン没啥虹串过去的人，对她没什么梁木
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2298#       发表于 2020-6-16 16:10
+
+
+
+
+一刀切+懒政，cover运营从政说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  RedBaby  
+##### 2299#       发表于 2020-6-16 16:10
+
+
+
+
+无论是liver还是观众都不到新年初那会儿holoark刚开始的那种探索恐龙世界的新鲜劲儿了，这是游戏本身已经过气了的问题，当时的船长还是ark首当先锋的第一废人呢。不如失忆再去回顾一遍仙境熔岩洞boss战更好
+
+现在除了游戏少了点其他直播也挺好的
+
+
+
+
+
+                       
