@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-18 00:10** 
+> ## **本文件最后更新于2020-06-18 02:09** 
 
 
 
@@ -10962,7 +10962,7 @@ cp粉其实把两边都是当工具人的
 
 
 
-<img src="https://pbs.twimg.com/media/Eas_3AeXQAcGfXi?format=jpg&amp;name=large" id="aimg_aXYba" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eas_3AeXQAcGfXi?format=jpg&amp;name=large" id="aimg_Rlp8x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -13125,8 +13125,8 @@ cover杂鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 
 
-<img src="https://pbs.twimg.com/media/EatJyVUUEAAaN4A?format=jpg&amp;name=medium" id="aimg_DytEF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)【
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f3c6.svg" height="27" id="aimg_D7tL7" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://pbs.twimg.com/media/EatJyVUUEAAaN4A?format=jpg&amp;name=medium" id="aimg_t0B09" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)【
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f3c6.svg" height="27" id="aimg_Aw9qu" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 にじさんじスプラトゥーン大会 最新情報！(6/17 現在)】
 
@@ -20884,7 +20884,7 @@ Helltaker
 
 
 -4be3a5643410efbf.gif
-(5.8 KB, 下载次数: 3)
+(5.8 KB, 下载次数: 5)
 
 
 
@@ -21236,10 +21236,11 @@ Helltaker
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|润姨可爱|
 | kanonsisya| + 1|射射兄弟|
 
 
@@ -21386,6 +21387,25 @@ IMG_20200617_235228.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|你不吃饭了？|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -21460,4 +21480,1017 @@ coco竟然会收一拳
 
 
 
-             
+
+
+-----
+
+####  kirakira~  
+##### 4107#       发表于 2020-6-18 00:11
+
+
+
+
+2000应该只是间歇性正常，可能开完会特别累吧，等一下就会开始发病了
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 4108#       发表于 2020-6-18 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845007&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-18 00:08</a>
+
+coco竟然会收一拳</blockquote>
+《论韭菜的可持续发展》
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 4109#       发表于 2020-6-18 00:16
+
+
+
+
+你们是不是对梦追翔有太多误解，主持能力强但他本人就是个家里蹲阴角
+
+还不如期盼绿仙这种能搞大企划捞底边的人才<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4110#       发表于 2020-6-18 00:17
+
+
+
+
+粽子明天回ark，下午三点直播。大家还是挺给龙宝面子的。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 4111#       发表于 2020-6-18 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47844999&amp;ptid=1941579" target="_blank"> rzrbtk 发表于 2020-6-18 00:08</a> 引用:激光2000 发表于 2020-6-17 23:59 好哥哥，下周郡道历史课是哪天？ 6.24好像。 咋？专门为葵空出饭局？我要感动落泪了，果然2000你被Gamers情净化了嘛。 啥时候轮到我啊？ </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/197.png" referrerpolicy="no-referrer">只是希望不要重复百物语那种悲剧，如果葵皇哪句话没过脑子，造成空气恶，希望你不要像当年的囚人一样伤害她
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 4112#       发表于 2020-6-18 00:26
+
+
+
+
+草，sc又开了，这一手欲擒故纵高啊
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4113#       发表于 2020-6-18 00:26
+
+
+
+[https://www.youtube.com/watch?v=T2knHeLZQ9U](https://www.youtube.com/watch?v=T2knHeLZQ9U)
+
+岩永开了直播聊自己的病情
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4114#       发表于 2020-6-18 00:28
+
+
+
+
+看了下V吧搞的那个V萌，半决赛是老爱胜阿媂娅，爱丽丝胜鹿乃，现在在决赛投票老爱VS爱丽丝，这个......
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4115#       发表于 2020-6-18 00:28
+
+
+
+
+龙宝养噶吃的能力不谈了好吧，虽然我在听天宝谢sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 4116#       发表于 2020-6-18 00:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845072&amp;ptid=1941579" target="_blank">激光2000 发表于 2020-6-18 00:17</a>
+
+只是希望不要重复百物语那种悲剧，如果葵皇哪句话没过脑子，造成空气恶，希望你不要像当年的囚人 ...</blockquote>
+"ickr把葵强塞进郡道无敌整活历史教学最终回，结果拉跨了，葵快去给我抄写日本史！“这样？
+
+不会啦，郡道跟葵关系还不错，上回历史课最后说到的时候还开玩笑说不知道葵基础如何，她应该也有打算的，最近几节课也是讲百姓生活比较多，我觉得也就还好。就算真的有什么事，郡道说过要炎就炎她，粉丝不会乱发病的。
+
+你真的担心就写个棉花糖给葵嘛，我是不懂历史给不了什么建议啦...
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 4117#       发表于 2020-6-18 00:32
+
+
+
+
+阿龙，赚钱的神。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 4118#       发表于 2020-6-18 00:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845128&amp;ptid=1941579" target="_blank">free 发表于 2020-6-18 00:28</a>
+
+看了下V吧搞的那个V萌，半决赛是老爱胜阿媂娅，爱丽丝胜鹿乃，现在在决赛投票老爱VS爱丽丝，这个...... ...</blockquote>
+额，远古cp复兴？
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 4119#       发表于 2020-6-18 00:36
+
+
+
+ 本帖最后由 中野六小龄童 于 2020-6-18 00:39 编辑 
+
+看了mrr一个小时的musedash 整个人都要噗噗噗了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4120#       发表于 2020-6-18 00:38
+
+
+
+
+mmr可还行，大家都是mmr。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 4121#       发表于 2020-6-18 00:44
+
+
+
+ 本帖最后由 QWANG 于 2020-6-18 01:07 编辑 
+
+基德，不迫害润姨了。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 4122#       发表于 2020-6-18 00:44
+
+
+
+
+看了看摸余的valorant
+
+最后一回合经典一枪不开躺赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+瞄头打说明梦想有了，可是技术还要锻炼<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 4123#       发表于 2020-6-18 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845115&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-18 00:26</a>
+
+草，sc又开了，这一手欲擒故纵高啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可是弹幕80%强烈要求的。顺应民意啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 4124#       发表于 2020-6-18 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845238&amp;ptid=1941579" target="_blank"> 恶魔娘阿洛 发表于 2020-6-18 00:44</a> 引用:kirakira~ 发表于 2020-6-18 00:26 草，sc又开了，这一手欲擒故纵高啊 这可是弹幕80%强烈要求的。顺应民意啊 </blockquote>
+学会自我收割的韭菜实在太强啦来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 4125#       发表于 2020-6-18 00:47
+
+
+
+
+有一说一，阿龙的吸金能力又上了一阶
+
+sc本身是相当单方面的付出，因此要保证相对高额的sc就需要赋予sc意义，让人感觉打sc很值。
+
+现在阿龙基本必念sc，sc艺从原本伴唱rockbye变成机关枪式吐槽增加了观赏性
+
+再加上她现在甚至开始记名字了，更夸张了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 4126#       发表于 2020-6-18 00:47
+
+
+
+
+夏哥20号3dlive
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 4127#       发表于 2020-6-18 00:49
+
+
+
+
+所以这部gachi**是哪个姨传的？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4128#       发表于 2020-6-18 00:51
+
+
+
+
+龙宝这是开宗立派第一人了，况且姨没这么多精力的。
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 4129#       发表于 2020-6-18 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845256&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-18 00:47</a>
+夏哥20号3dlive</blockquote>
+是二人联动回吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 4130#       发表于 2020-6-18 00:51
+
+
+
+
+龙皇那是宗教，跟你们这些小打小闹的养gachi不一样的
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 4131#       发表于 2020-6-18 00:52
+
+
+
+ 本帖最后由 Zaphikel 于 2020-6-18 00:55 编辑 
+
+没想到摸余玩FPS反应挺快的，刚刚三杀了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+换弹癌有点严重了，机枪换弹癌是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 4132#       发表于 2020-6-18 00:53
+
+
+
+
+造神运动好啊，就喜欢看这种粉丝了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 4133#       发表于 2020-6-18 00:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845284&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-18 00:51</a>
+龙皇那是宗教，跟你们这些小打小闹的养gachi不一样的</blockquote>
+宗教还行，有点箱内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 4134#       发表于 2020-6-18 00:58
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-18 01:03 编辑 
+
+喷喷练习，郡道是醉酒大叔，社长是妈妈，naraka是强强坏小鬼（不是在暗示口了），fumi是安静美女（感觉说了不到十句话）
+
+忘不了！她们打到某个图的时候我立刻就想到当年mrra好像也打过，甚至还想起当时在聊什么话题....啊！！！！
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 4135#       发表于 2020-6-18 01:01
+
+
+
+
+抬抬抬，抬奶奶个腿儿啊，自己去投棉花糖做运营出主意出道星四期带飞杏星啊，看在同事的面子上推上随便瞎聊两句回观众SC也不把话说死，但实际真要卖个人情什么时候能还？杏女可是真有头牛的<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 4136#       发表于 2020-6-18 01:07
+
+
+
+
+郡道看上去有s段的实力啊，能把不破这种子队打赢，naraka再多背背地图也挺猛的，这一组感觉应该不会一轮游
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4137#       发表于 2020-6-18 01:09
+
+
+
+
+其实吧，个人觉得杏星这个三期生抽的真不错了。至少看起来比前面的直播要更有活力一点，主动一点?
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4138#       发表于 2020-6-18 01:11
+
+
+
+
+其实仔细想想，杏星早期其实和Holo早期的问题是一样的。不知道自己应该是一个什么样的箱。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4139#       发表于 2020-6-18 01:13
+
+
+
+
+所以整体上直播都很虚无，不知道干什么。这一点唯有箱里有目的性的人多了，才能整体上整合起来。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4140#       发表于 2020-6-18 01:15
+
+
+
+
+一段话分三楼说，贴吧混经验吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4141#       发表于 2020-6-18 01:15
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-18 01:15
+一段话分三楼说，贴吧混经验吗</blockquote>
+手机换个行就发出去了，我也很绝望啊
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 4142#       发表于 2020-6-18 01:16
+
+
+
+
+自食其力不行？非要隔壁工位的女同事来喂饭才有企划？V界窃格瓦拉喽。企划是不可能企划的了，这辈子都不可能企划的，造梗又不会造，只有靠女同事喂饭才维持得了生活。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 4143#       发表于 2020-6-18 01:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845422&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-18 01:15</a>
+
+手机换个行就发出去了，我也很绝望啊</blockquote>
+点那个摄像头发可以换行
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4144#       发表于 2020-6-18 01:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">啊，这恶意，还好黑宝已经睡了
+
+话说小肥妹20号3d live不会真的请杏星吧。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4145#       发表于 2020-6-18 01:18
+
+
+
+
+嘛，企划也就是这样，看看隔壁绿仙，企划力多强，现在都有点躲着大家的意思了。虹有一阵子liver喊出这就是nijisanji的时候虹还是一个很清晰的箱，现在人多了，反而一大堆人都不知道干什么了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4146#       发表于 2020-6-18 01:19
+
+
+
+<blockquote>stedckk 发表于 2020-6-18 01:18
+啊，这恶意，还好黑宝已经睡了
+
+话说小肥妹20号3d live不会真的请杏星吧。 ...</blockquote>
+实际上…星街早就说了20号有惊喜(
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4147#       发表于 2020-6-18 01:19
+
+
+
+<blockquote>stedckk 发表于 2020-6-18 01:18
+啊，这恶意，还好黑宝已经睡了
+
+话说小肥妹20号3d live不会真的请杏星吧。 ...</blockquote>
+请别人是七月那次，不是现在这次。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4148#       发表于 2020-6-18 01:20
+
+
+
+
+那照这样讲，虹是一个什么样的箱，难道自己就很清楚吗
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4149#       发表于 2020-6-18 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845434&amp;ptid=1941579" target="_blank">stedckk 发表于 2020-6-18 01:18</a>
+
+啊，这恶意，还好黑宝已经睡了
+
+话说小肥妹20号3d live不会真的请杏星吧。 ...</blockquote>
+20号应该是星宝，之前星宝提过20号有特殊预定
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 4150#       发表于 2020-6-18 01:21
+
+
+
+<blockquote>free 发表于 2020-6-18 01:20
+那照这样讲，虹是一个什么样的箱，难道自己就很清楚吗</blockquote>
+所以说，现在不清楚了啊。
+
+被冲淡了。个人风格也好，企业文化也好，加了这么多新人，新人也半梦半醒的
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4151#       发表于 2020-6-18 01:22
+
+
+
+
+居然要请星姐，这倒是没想到。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4152#       发表于 2020-6-18 01:25
+
+
+
+ 本帖最后由 free 于 2020-6-18 01:29 编辑 
+
+发点大葵的美图
+[https://twitter.com/mae_mukitarou/status/1273299027937726464](https://twitter.com/mae_mukitarou/status/1273299027937726464)
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/012510n3h3ym7ff7mqr3lk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>aoi.jpg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 01:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 4153#       发表于 2020-6-18 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845383&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-18 01:07</a>
+
+郡道看上去有s段的实力啊，能把不破这种子队打赢，naraka再多背背地图也挺猛的，这一组感觉应该不会一轮游 ...</blockquote>
+郡道1代S的
+
+2玩的少也不喜欢2的新东西（老害）
+
+而且也一直在关注职业喷喷选手圈
+
+
+之前她搞过喷喷XXX杀活动结果打到一半カラマリ的くろす来带她打上去了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4154#       发表于 2020-6-18 01:35
+
+
+
+
+虚拟管人界有人设比大葵更村姑的吗。空妈真人傻气，大葵皮傻气，再加上夸皇5岁傻子rp。看来免费是真的喜欢傻姑娘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 4155#       发表于 2020-6-18 01:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">黑宝只要自己的一弦哥哥不被劈就能睡的香甜了。反正一弦也不赏脸给夏吹。另外他睡醒了最好能把星男人做过的无敌企划糊到我脸上来。
+我感觉最奇怪的还是有些人已经把白上和星的联动当做理所当然，甚至连企划都要白上送上门，星的观众，白上的观众，甚至liver看上去都逐渐适应了这种舒适的环境，毕竟一切都在变好，同接在慢慢增长，节目效果也越来越好，只要白上多付出一点，就会皆大欢喜。最后yagoo四期再一发入魂抽个地才接替白上就够了。或者白上移籍杏星吧，Stars也不用挂一个没什么特别意义的男性箱名头，直接变成混合箱，yagoo还能继续往Stars里塞女人，虹的作业也抄的更完整了。V综也不用劈杏的男人们怎么这么难了，至少和虹在男女问题上能拉平了（Stars限定）。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4156#       发表于 2020-6-18 01:41
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/014130hiurkyxvktyyytry.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-9bufZgT3cSk3-sg.jpg</strong> (154.59 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 01:41 上传
+
+
+
+
+
+
+好！
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4157#       发表于 2020-6-18 01:43
+
+
+
+
+没画天某的裤子，不然给你土出渣来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4158#       发表于 2020-6-18 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845508&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-18 01:35</a>
+
+虚拟管人界有人设比大葵更村姑的吗。空妈真人傻气，大葵皮傻气，再加上夸皇5岁傻子rp。看来免费是真的喜欢 ...</blockquote>
+我们家大葵这个叫朴实无华，怎么能叫傻，空妈才叫连人傻到皮<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+大葵这版模型很多地方都是自己的设计，算是我最喜欢的V皮排前三的，多可爱！！！
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 4159#       发表于 2020-6-18 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845552&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-18 01:43</a>
+
+没画天某的裤子，不然给你土出渣来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4160#       发表于 2020-6-18 01:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845575&amp;ptid=1941579" target="_blank">free 发表于 2020-6-18 01:47</a>
+
+我们家大葵这个叫朴实无华，怎么能叫傻，空妈才叫连人傻到皮
+
+
+大葵这版模型很多地 ...</blockquote>
+y1s1，光看皮大葵比空妈傻5倍吧，村姑界的王者。空妈也朴实无华啊就动画里高中生路人的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 4161#       发表于 2020-6-18 02:01
+
+
+
+
+怪不得免费老哥要针对狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+syl狐皇下个月真是想定点打击爱丽丝的话。。。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 4162#       发表于 2020-6-18 02:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845396&amp;ptid=1941579" target="_blank"> 渡鸦骑士 发表于 2020-6-18 01:11</a> 其实仔细想想，杏星早期其实和Holo早期的问题是一样的。不知道自己应该是一个什么样的箱。 </blockquote>
+讲道理这个比hololive的定位好找多了
+能吸引观众的女性二刺猿形象属性参差不齐
+但能短平快吸引男女观众的二刺猿形象特别集中，男观众就彩加、朝日娘那种伪娘，女观众就帅哥卖腐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别说少年漫主角那种纯靠实力得到观众欣赏的，有那游戏/歌/杂谈水平的不会当v来自: iPhone客户端
+
+
+
+
+
+           

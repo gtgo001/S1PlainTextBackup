@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 18:14** 
+> ## **本文件最后更新于2020-06-18 02:10** 
 
 
 
@@ -1793,4 +1793,495 @@ tga颁奖的时候linus也出镜了，算是有点排面吧，不过机器还没
 
 
 
-                                              
+
+
+-----
+
+####  不可不信邪  
+##### 95#       发表于 2020-6-16 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47828147&amp;ptid=1941762" target="_blank">defer 发表于 2020-6-16 16:59</a>
+原片第52分钟，“我们目标是刚刚那段演示在下一代主机上跑到60帧，但当前只能跑到30帧，这也是ue5还没放 ...</blockquote>
+引擎编辑器内部浏览项目资源无论是10帧还是100帧，和在同样环境下打包好运行输出帧数如何不一定有比例关系，因为编辑器预览环境下的实时渲染和最终渲染用的着色器、特效甚至输出分辨率往往是不一样的
+
+到现在为止UE5那个DEMO只放了PS5版本的视频，是1440p30fps渲染的，其它任何平台这个DEMO跑得如何是没有任何实证的只有口头说法。退一步讲即使一台2080显卡的笔记本能跑40帧PS5只能跑30帧那也没什么丢人的，去查查顶级笔记本什么价格。
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 96#       发表于 2020-6-16 19:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47829112&amp;ptid=1941762" target="_blank">不可不信邪 发表于 2020-6-16 18:24</a>
+引擎编辑器内部浏览项目资源无论是10帧还是100帧，和在同样环境下打包好运行输出帧数如何不一定有比例关 ...</blockquote>
+喷了，笔记本2080弱的一比，而且跟谁比价格不行跟最智商税的游戏本比价格
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 97#       发表于 2020-6-16 20:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47829745&amp;ptid=1941762" target="_blank">UmarIbnLaAhad 发表于 2020-6-16 19:28</a>
+喷了，笔记本2080弱的一比，而且跟谁比价格不行跟最智商税的游戏本比价格 ...</blockquote>
+所以说要怎么比呢，本来就499刀599刀的玩意还要跨级别打赢才算数？淘宝一个499刀的整机只能买1660ti谢谢
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 98#       发表于 2020-6-16 20:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830101&amp;ptid=1941762" target="_blank">不可不信邪 发表于 2020-6-16 20:05</a>
+所以说要怎么比呢，本来就499刀599刀的玩意还要跨级别打赢才算数？淘宝一个499刀的整机只能买1660ti谢谢
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">你想说什么？笔记本2080差不多桌面2070水准，拿ps5跟2070pc比差不多了，毕竟主机往往大规模生产成本低加用料究极缩水成本低
+但是2080笔记本一台奔着一万五去了，比台式对应性能多了多少钱没数吗？跟它一比就没有性价比不高的东西了
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 99#       发表于 2020-6-16 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830243&amp;ptid=1941762" target="_blank">UmarIbnLaAhad 发表于 2020-6-16 20:18</a>
+你想说什么？笔记本2080差不多桌面2070水准，拿ps5跟2070pc比差不多了，毕竟主机往往大规模生产成 ...</blockquote>
+说多无谓，你觉得游戏本不算数，到时候价格出来同价位pc比较下就行了，现在谁都是口说无凭除非有人把pc版demo拿出来，生产成本如何和玩家也没半毛钱关系
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  xxyyhhjj  
+##### 100#       发表于 2020-6-16 22:31
+
+
+
+ 本帖最后由 xxyyhhjj 于 2020-6-16 22:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830420&amp;ptid=1941762" target="_blank">不可不信邪 发表于 2020-6-16 20:30</a>
+说多无谓，你觉得游戏本不算数，到时候价格出来同价位pc比较下就行了，现在谁都是口说无凭除非有人把pc版 ...</blockquote>
+你非移动端应该跟非移动端比吧，找台2070的主机比比价格？也贵不了多少还能生产力。
+
+—— 来自 blackshark SKR-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  defer  
+##### 101#       发表于 2020-6-17 07:58
+
+
+
+ 本帖最后由 defer 于 2020-6-17 08:02 编辑 
+
+喷了，你们被搅混水的带沟里去了吧，问题不是跑动那个demo是不是必须要ps5的ssd吗，关2080卖多少钱p事。
+
+
+当前PC/AT的存储设备io方式对游戏来说是不是瓶颈？ —— 是，旗舰nvme和sata过不了盲测可以证明。
+
+ps5的设计会不会提升该项性能？ —— 很可能是，至少网课里讲的内容来看，最少优化掉了两层抽象，再加上专用硬件，提高肯定是会有提高的，能不能提高到可感知的程度还无法验证。
+
+epic这个demo是不是如epic所言，一定要ps5的储存设计才能跑动？ —— 很可能不是，至少宣发和工程师口径不统一。
+
+
+epic现在洗不清的就是最后一点，把b站视频删了在那装死。至于一个数码主播的观点，根本无足轻重。
+
+
+
+
+
+
+
+
+-----
+
+####  darkfall  
+##### 102#       发表于 2020-6-17 08:20
+
+
+
+
+普通SSD肯定能跑啊，就是效率问题罢了。PS5特殊的地方在于RAD的Kraken那块，传统上你从硬盘读取贴图，再上传到GPU内存给他用，PS5那边从SSD读取到硬件解压模块再直接到GPU内存就能用了，跳过了两步。RAD今天已经把格式公开了。压到BCn再走LZ进一步压缩，大量减少体积。如果用LZ压缩在PC上会再多出一步LZ解压，就变成了硬盘 - CPU内存 - 占用CPU解压 - 上传GPU，而PS5可以走Kraken直接读，没有CPU占用，效率自然高了不少
+
+
+
+
+
+
+
+-----
+
+####  神之游侠  
+##### 103#       发表于 2020-6-17 10:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47815375&amp;ptid=1941762" target="_blank">MixRadio 发表于 2020-6-15 17:46</a>
+
+这个linus不也就一个youtuber，又不是搞linux的那位，有什么了不起的？要论技术我感觉他不如他集团里的一 ...</blockquote>
+因为A不如B所以A不牛逼，这什么逻辑？泥潭玩硬件的有几个能行的
+
+不喜欢就说不喜欢呗。62楼更逗，不黑他就是舔，一定要两个极端是吧。
+
+
+
+
+
+
+
+-----
+
+####  Benighted  
+##### 104#       发表于 2020-6-17 11:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正都快出了，到时候是驴子是马遛遛就清楚了。不知道现在有什么好争的
+
+
+
+
+
+
+
+-----
+
+####  LilMemo  
+##### 105#       发表于 2020-6-17 14:11
+
+
+
+
+以为是linux+1
+
+
+
+
+
+
+
+-----
+
+####  ace8848  
+##### 106#       发表于 2020-6-17 14:14
+
+
+
+<blockquote>神之游侠 发表于 2020-6-17 10:39
+因为A不如B所以A不牛逼，这什么逻辑？泥潭玩硬件的有几个能行的
+
+不喜欢就说不喜欢呗。62楼更逗，不黑他就 ...</blockquote>
+不黑他确实不能算舔，而45楼也确实像在舔。
+
+
+
+
+
+
+
+-----
+
+####  Scythe  
+##### 107#       发表于 2020-6-17 14:44
+
+
+
+<blockquote>darkfall 发表于 2020-6-17 08:20
+普通SSD肯定能跑啊，就是效率问题罢了。PS5特殊的地方在于RAD的Kraken那块，传统上你从硬盘读取贴图，再上 ...</blockquote>
+你解释的很好了，现在的问题主要是2个
+
+
+1，游戏效能有提升吗，幅度多大
+
+2，什么场景需要这种模式，瑞奇与叮当那个更多的感觉是炫技
+
+
+
+
+
+
+
+-----
+
+####  elsd  
+##### 108#       发表于 2020-6-17 14:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47808440&amp;ptid=1941762" target="_blank">roamer 发表于 2020-6-15 08:05</a>
+
+破解无盗版？那可太乌托邦了。</blockquote>
+破解当然不可能无盗版，但是这里只是说美国的法律只要不分发售卖盗版就允许破解的存在，破解在这种情况下是合法的。至于盗版，那是玩家自己破解后自己整的，与破解的组织无关。包括pokemmo这种付费网游就是利用这点，让玩家自己找pokemon的rom，从而让被吹上天的任天堂法务部门无可奈何，一点动作都没有，而其他真正自己修改玩的马里奥非商业同人粉却收到律师函。
+
+
+
+
+
+
+
+-----
+
+####  elsd  
+##### 109#       发表于 2020-6-17 14:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47810992&amp;ptid=1941762" target="_blank">艾登皮尔斯 发表于 2020-6-15 12:18</a>
+
+Linux之父怎么可能道歉，就这点破事怕是被他喷的资格都没</blockquote>
+这个自媒体linus就经常让懂行的人与linus torvalds搞混
+
+
+
+
+
+
+
+-----
+
+####  Duncan_Spurs  
+##### 110#       发表于 2020-6-17 15:32
+
+
+
+
+我佛了，老莱你潭精英都瞧不上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  asion617  
+##### 111#       发表于 2020-6-17 15:40
+
+
+
+
+linux的那个linus想也不会去做什么数码评测体验视频吧，这都可以搞混楼上的几位也太“懂行”了
+
+
+
+
+
+
+
+-----
+
+####  404489039  
+##### 112#       发表于 2020-6-17 15:49
+
+
+
+
+看标题都不可能联想到Linux之父了，
+测评的老莱还不如华强北的水平<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  血狂毘沙门  
+##### 113#       发表于 2020-6-17 15:57
+
+
+
+
+索尼狂吹ssd想找回场子这事 万一最后出来ps5的ssd并没比xsx强多少 那是不是很尴尬..
+
+
+
+
+
+
+
+-----
+
+####  manysun  
+##### 114#       发表于 2020-6-17 18:08
+
+
+
+
+以前看到新闻“linus都说一加好用” 导致我对一加有好感
+我以为是linus torvalds说的 其实是这个linus？
+卧槽 那我岂不是一直搞混了
+
+
+
+
+
+
+
+-----
+
+####  Totokei  
+##### 115#       发表于 2020-6-17 18:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">别的不说，白嫖王这个视频从生肉开始在我常去的论坛都能看见有人在发帖，统计了下至少我能搜到的分别是A9两个，nga一个，S1两个，TG两个
+
+
+到底你们有多喜欢白嫖王还是因为别的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 116#       发表于 2020-6-17 18:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47839319&amp;ptid=1941762" target="_blank">血狂毘沙门 发表于 2020-6-17 15:57</a>
+
+索尼狂吹ssd想找回场子这事 万一最后出来ps5的ssd并没比xsx强多少 那是不是很尴尬.. ...</blockquote>
+其实本就不可能强多少……这是多年品牌技术营销的红利
+
+不过还是微软太菜了，这个宣发水平就算宣传期对上任天堂估计都是输<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Tackstone  
+##### 117#       发表于 2020-6-17 18:49
+
+
+
+
+还是那句话，pc上低端ssd和高端ssd在使用上的差距是微乎其微的。这也注定了同是ssd的情况下，在90%的应用场景中ssd不会成为短板。反正下个世代pc上是铁定不会出现SATA玩不了的游戏的。
+
+
+
+
+
+
+
+-----
+
+####  zbdyg  
+##### 118#       发表于 2020-6-17 18:53
+
+
+
+
+快点卖吧，光一个ssd都能战斗现在，老猴王了
+
+
+
+
+
+
+
+-----
+
+####  wulilio  
+##### 119#       发表于 2020-6-18 00:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">厉害，一个ssd都能宣传这么狠
+
+
+
+
+
+
+
+-----
+
+####  万里小路さん  
+##### 120#       发表于 2020-6-18 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47816501&amp;ptid=1941762" target="_blank">hotsmile 发表于 2020-06-15 19:19:00</a>
+就是说索尼不是SSD的速度有多叼，而是SSD上索尼研发的主控芯片很吊，微软啊，PC啊，你们的SSD没有这块主控 ...</blockquote>比傲腾900p快吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  LamdaHT  
+##### 121#       发表于 2020-6-18 01:43
+
+
+
+
+居然还在吵，孝心可鉴日月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                             
