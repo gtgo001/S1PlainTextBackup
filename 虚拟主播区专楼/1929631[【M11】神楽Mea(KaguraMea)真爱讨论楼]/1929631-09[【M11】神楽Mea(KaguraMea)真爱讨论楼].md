@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-17 16:05** 
+> ## **本文件最后更新于2020-06-17 18:03** 
 
 
 
@@ -19041,4 +19041,511 @@ zsyl   兄啊，我宿舍都是垃 ...</blockquote>
 
 
 
-             
+
+
+-----
+
+####  GRMeA104  
+##### 13087#       发表于 2020-6-17 16:11
+
+
+
+
+这又要开始车轱辘了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13088#       发表于 2020-6-17 16:33
+
+
+
+
+版本记得更新一下，请不要再抱着4个月前的版本玩单机了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13089#       发表于 2020-6-17 16:33
+
+
+
+
+gachi爆炸的场面， suki<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13090#       发表于 2020-6-17 16:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别suki了，粉丝内耗这种事还是越少越好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13091#       发表于 2020-6-17 17:02
+
+
+
+
+这两个月挺舒服的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 13092#       发表于 2020-6-17 17:06
+
+
+
+
+有没有mea联动v一览表？现在联动组长或苔苔次数有超过兰太郎吗
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13093#       发表于 2020-6-17 17:09
+
+
+
+
+是时候求波兰腿图了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13094#       发表于 2020-6-17 17:10
+
+
+
+
+这三人都有个群的，建议改名“神乐咩保护协会”(ಡωಡ) 。syl我调查一下真特出脸来，用别的管人对比，楼友退坑的极限在哪里。至少我是西西或者大脸猫吧(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13095#       发表于 2020-6-17 17:14
+
+
+
+
+咩没有ena漂亮我就退坑<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13096#       发表于 2020-6-17 17:16
+
+
+
+
+佐藤小姐，蝙蝠妹<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13097#       发表于 2020-6-17 17:22
+
+
+
+
+讲真，虽然对夏哥的直播不怎么感冒，但希小姐实在是太符合我的审美了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13098#       发表于 2020-6-17 17:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840344&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-17 17:16</a>
+佐藤小姐，蝙蝠妹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">你这两人感觉标准都不同。。。。。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13099#       发表于 2020-6-17 17:26
+
+
+
+
+太子和望那种程度吧
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13100#       发表于 2020-6-17 17:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840453&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-17 17:25</a>
+你这两人感觉标准都不同。。。。。</blockquote>
+不是大胸吗，我觉得可以退坑了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13101#       发表于 2020-6-17 17:27
+
+
+
+
+你指的是加过滤镜的佐藤小姐吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13102#       发表于 2020-6-17 17:29
+
+
+
+
+梅莉的新照片感觉疫情不能出门导致滤镜都救不过来了。。。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 13103#       发表于 2020-6-17 17:30
+
+
+
+
+小黑屋最新一个人是不是有点面熟
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 13104#       发表于 2020-6-17 17:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦坦坦，都可以坦
+
+
+不过我脑补的麻还是那种精神状态有点不太好，瘦瘦的，真人出镜就胆子小小menhera的感觉
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13105#       发表于 2020-6-17 17:34
+
+
+
+
+谁要看不加滤镜的👩啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，白发异色瞳看久了看别的都索然无味，唯有坦度带来的肉感才是真实
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 13106#       发表于 2020-6-17 17:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840525&amp;ptid=1929631" target="_blank">Rem-清曲 发表于 2020-6-17 17:30</a>
+
+小黑屋最新一个人是不是有点面熟</blockquote>
+M1楼主啊，反正当时就是个钓鱼的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13107#       发表于 2020-6-17 17:35
+
+
+
+
+舌怪诶，哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13108#       发表于 2020-6-17 17:44
+
+
+
+
+所以这位奇人当初都干了啥啊
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13109#       发表于 2020-6-17 17:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840681&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-17 17:44</a>
+所以这位奇人当初都干了啥啊</blockquote>
+记不太清了，开了m1钓鱼楼，s1一群v粉打架，咩粉胜利，把钓鱼楼变真m楼，受不了每天咩粉聊天产生的信息提示，把楼拉倒120权限，然后被版主降权限加封禁
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13110#       发表于 2020-6-17 17:52
+
+
+
+
+嗯?现在楼头跳转的m1就是他的楼，所以那个本来是anti楼，然后被天狗抢下来了?是隔壁日记楼提到的那个anti楼吗？
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13111#       发表于 2020-6-17 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840792&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-17 17:52</a>
+嗯?现在楼头跳转的m1就是他的楼，所以那个本来是anti楼，然后被天狗抢下来了?是隔壁日记楼提到的那个anti楼 ...</blockquote>
+那就不清楚了，那个anti楼不是指a岛的串吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13112#       发表于 2020-6-17 17:54
+
+
+
+ 本帖最后由 A2014720 于 2020-6-17 17:56 编辑 
+
+tm的，贴贴楼没了，anti楼也没了
+
+m11真的很平静<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13113#       发表于 2020-6-17 17:56
+
+
+
+
+我晕了(#ﾟДﾟ)。日记楼说原本有个anti楼，后来狂犬天天写日记加上天狗抢楼，原楼主就把楼120了，然后才开了日记楼。那个楼主好像还在日记楼解释了。syl 隔壁夸楼也有人说本来是天狗建的，所以s1初期天狗到底抢了多少楼啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13114#       发表于 2020-6-17 17:58
+
+
+
+
+以前的贴贴楼好歹还有历程什么的，比较像样。现在这个mk2开的就真的是暗黑贴贴楼了，纯度很高(ಥ_ಥ)。说到底我就不应该在贴贴楼讨论futa，呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13115#       发表于 2020-6-17 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47840844&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-17 17:56</a>
+我晕了(#ﾟДﾟ)。日记楼说原本有个anti楼，后来狂犬天天写日记加上天狗抢楼，原楼主就把楼120了，然后才开 ...</blockquote>
+原来没v版的，最近才开的v版，你说的那些是刚开v版的巨魔狂欢建楼，一开始v版在漫曲，只有m楼和v综
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13116#       发表于 2020-6-17 18:00
+
+
+
+
+啊只有这两楼还行(눈_눈)，你咩姐也有这么有牌面的时候啊。不过这下算是知道一点当初大逃杀的端头了
+
+
+
+
+
+            
