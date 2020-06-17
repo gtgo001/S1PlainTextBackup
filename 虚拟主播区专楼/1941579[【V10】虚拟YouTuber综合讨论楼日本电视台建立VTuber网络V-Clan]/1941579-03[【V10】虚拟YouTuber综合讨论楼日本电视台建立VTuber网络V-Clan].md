@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-18 02:09** 
+> ## **本文件最后更新于2020-06-18 06:08** 
 
 
 
@@ -10962,7 +10962,7 @@ cp粉其实把两边都是当工具人的
 
 
 
-<img src="https://pbs.twimg.com/media/Eas_3AeXQAcGfXi?format=jpg&amp;name=large" id="aimg_Rlp8x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eas_3AeXQAcGfXi?format=jpg&amp;name=large" id="aimg_t8286" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -13125,8 +13125,8 @@ cover杂鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 
 
-<img src="https://pbs.twimg.com/media/EatJyVUUEAAaN4A?format=jpg&amp;name=medium" id="aimg_t0B09" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)【
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f3c6.svg" height="27" id="aimg_Aw9qu" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://pbs.twimg.com/media/EatJyVUUEAAaN4A?format=jpg&amp;name=medium" id="aimg_dqO9X" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)【
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f3c6.svg" height="27" id="aimg_rtW2X" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 にじさんじスプラトゥーン大会 最新情報！(6/17 現在)】
 
@@ -22493,4 +22493,182 @@ syl狐皇下个月真是想定点打击爱丽丝的话。。。<img src="https:/
 
 
 
-           
+
+
+-----
+
+####  ひびき  
+##### 4163#       发表于 2020-6-18 02:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845508&amp;ptid=1941579" target="_blank"> kanonsisya 发表于 2020-6-18 01:35</a> 虚拟管人界有人设比大葵更村姑的吗。空妈真人傻气，大葵皮傻气，再加上夸皇5岁傻子rp。看来免费是真的喜欢傻姑娘 </blockquote>
+大葵第二套皮挺好看的，应该说融入了一些民俗特色
+
+大葵第一套皮才是真的朴实无华24K纯傻，罕见的皮比真人丑的典型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 4164#       发表于 2020-6-18 02:19
+
+
+
+
+绿宝现在手上企划做完也就无了，虽然他想做的东西一堆但企划主催想转型可太难了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+虽然有时在想他不做企划了，不玩大作竞技类游戏，不电台不棉花糖，就杂谈唱歌能干啥（）
+做企划也是大家的背景版<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">太难了，我都提不起兴致烤
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4165#       发表于 2020-6-18 02:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47845655&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-18 02:13</a>
+
+大葵第二套皮挺好看的，应该说融入了一些民俗特色
+
+
+大葵第一套皮才是真的朴实无华24K纯傻，罕见的皮比真 ...</blockquote>
+看了最近的视频，确实第二套好点了，我之前应该看的都是第一套，有被傻到
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4166#       发表于 2020-6-18 02:29
+
+
+
+
+大葵初代皮其实是动起来不行，光看立绘还没那么烂.......换皮众筹的2000万不光是做皮还更新了设备的。
+
+17年那些普遍都挺土的，小白最开始的白毛衣，马叔的蓝西装，还有yua这些不土吗，硬要说也就明天王比较潮。
+
+至于和空妈初代皮哪个更土，咱们还是别斗这个了，斗点好的比如唱歌好不好<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/022916bhy1t97c7l5c7we5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>多人29.jpg</strong> (524.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 02:29 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4167#       发表于 2020-6-18 02:35
+
+
+
+
+别拿fa当人设啊，滤镜都十层了。她第一套皮是真的丑，救不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 4168#       发表于 2020-6-18 03:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">气冷抖，V综充满对小肥妹的迫害，小肥妹怎么才满意，无印里，萝卜子被狐皇抢了少主牌面宁愿跟towa联动APEX也不找小肥妹，星姐爱惜羽毛把小肥妹当透明
+
+一期就不提了，跟心心路线重叠是从来不一起出现，aki人妻要避嫌，梅露没了二期里都把人给拉黑了，3期国中国直接拦外面了，4期就不用说了，代表龙宝直接把马自立拒之门外丢垃圾桶。就算社外也是自己舔着找苔姨还被忽悠，找星川被反杀，不然无人联动只能孤独直播。
+
+
+一个从乡下来到大城市的自卑傻土妹被大家庭排挤只能演丑角结果还要被观众指指点点，结果不就只能苦苦找star的同事联动，感受一下大家庭的温暖，这有错吗，这有错吗
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 4169#       发表于 2020-6-18 03:45
+
+
+
+
+啊？mrr可喜欢和阿希玩了（
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4170#       发表于 2020-6-18 04:09
+
+
+
+
+上面还说夏哥20号3D回要请星街了，怎么又成星街不和夏哥玩了？一期生心心狐皇，二期生傻紫，这和夏哥都不错的吧，还可以和空妈玩，捏空妈的圆脸不好吗。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 4171#       发表于 2020-6-18 05:28
+
+
+
+
+瘪给马自立捏悲情人设了，人家夏哥SC300w没事泡泡星男人，只要扭曲gachi不给她添堵过得神仙日子好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+          
