@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-17 18:03** 
+> ## **本文件最后更新于2020-06-17 22:05** 
 
 
 
@@ -19548,4 +19548,898 @@ m11真的很平静<img src="https://static.saraba1st.com/image/smiley/face2017/0
 
 
 
-            
+
+
+-----
+
+####  A2014720  
+##### 13117#       发表于 2020-6-17 18:03
+
+
+
+
+过去的就让它过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我现在只关心晚上会不会动
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13118#       发表于 2020-6-17 18:28
+
+
+
+
+羊呢？发个沙雕推也好啊。昨天几点改的头图，现在还在睡？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 13119#       发表于 2020-6-17 18:33
+
+
+
+
+肥希跟梅丽桑这不还是坦性恋吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 13120#       发表于 2020-6-17 18:35
+
+
+
+
+梅丽桑p不住脸上的肥肉，像30岁的阿姨一样……
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13121#       发表于 2020-6-17 18:48
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-17 18:50 编辑 
+
+曾几何时， 梅莉还是你楼肉体厨的宠儿， 竟然也有今天<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13122#       发表于 2020-6-17 18:49
+
+
+
+
+要的不是坦是肉感啊，是肉啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13123#       发表于 2020-6-17 18:52
+
+
+
+
+梅露也是坦克？有照片吗
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 13124#       发表于 2020-6-17 18:56
+
+
+
+
+V综今天看有人发了，不是梅露是梅莉
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13125#       发表于 2020-6-17 18:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">楼友是无情的，咩咩还是别露麻出来了，楼友会嫌弃的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13126#       发表于 2020-6-17 18:56
+
+
+
+
+梅露草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+               
+
+梅小姐大，坦一点不明显，放心
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13127#       发表于 2020-6-17 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47841535&amp;ptid=1929631" target="_blank">十九号大侠 发表于 2020-6-17 18:52</a>
+梅露也是坦克？有照片吗</blockquote>
+v10， 2342楼
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13128#       发表于 2020-6-17 18:57
+
+
+
+
+困扰我10年的问题，梅球王究竟是指梅利还是梅露
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 13129#       发表于 2020-6-17 19:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅球王这词最开始是梅露3d的时候用的
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13130#       发表于 2020-6-17 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47841588&amp;ptid=1929631" target="_blank">魔法使い2019 发表于 2020-6-17 18:56</a>
+
+v10， 2342楼</blockquote>
+幻灭了
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 13131#       发表于 2020-6-17 19:02
+
+
+
+
+后来得知中之人不球，就被梅丽桑霸占了。
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13132#       发表于 2020-6-17 19:08
+
+
+
+
+我还想了半天梅露是谁
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13133#       发表于 2020-6-17 19:54
+
+
+
+
+别吧，小麻要长的跟梅丽一样我就谢天谢地了(ಥ_ಥ)，至少能看而且是美少女的模子
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 13134#       发表于 2020-6-17 20:09
+
+
+
+
+坦度
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13135#       发表于 2020-6-17 20:19
+
+
+
+
+虽然我喜欢坦一点的 但我坚信小麻是不坦的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13136#       发表于 2020-6-17 20:19
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13137#       发表于 2020-6-17 20:22
+
+
+
+
+翻v8帖子看到有人说这回的bml，mea也上了？没看到其他地方有人提，不知道是不是真的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 13138#       发表于 2020-6-17 20:26
+
+
+
+ 本帖最后由 离心 于 2020-6-17 20:34 编辑 
+
+情报有误编辑了
+
+
+
+
+
+
+S00617-202757.jpg
+(223.2 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-17 20:29 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/17/202932nsmhr6humaium6a9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13139#       发表于 2020-6-17 20:30
+
+
+
+
+那个是bw不是bml啊，bml我看全在捧星皇，没有咩的消息啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13140#       发表于 2020-6-17 20:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这回还会有一个位置吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">应该无了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13141#       发表于 2020-6-17 20:34
+
+
+
+
+上了也没啥爆点，算了算了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13142#       发表于 2020-6-17 20:34
+
+
+
+
+去年宣布bml是哪天来着
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13143#       发表于 2020-6-17 20:36
+
+
+
+
+应该没了，毕竟要捧更赚钱的新贵啊，镇站之宝的名号也没了，当然不排除那个带屏幕上突然放第二首原创曲的可能就是了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 13144#       发表于 2020-6-17 20:36
+
+
+
+
+bml也不可能年年上吧，bml一年两次，去年也是下半年上的，还有机会，3d翻身<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13145#       发表于 2020-6-17 20:38
+
+
+
+
+bml是7.25？
+咱们还是好好过两周年吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 13146#       发表于 2020-6-17 20:39
+
+
+
+
+阿b要是又送一个天邪鬼的ddd给mea我当p小将好吧(∩_∩)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13147#       发表于 2020-6-17 20:43
+
+
+
+
+没头的东西没法空盼着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忽然看到有人说上了bml就想找一找
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13148#       发表于 2020-6-17 20:44
+
+
+
+
+别天天指望阿p赏饭啊，虽然我也是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不有bw了吗，还有bls<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，她自己还有ddd，有的要看的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13149#       发表于 2020-6-17 20:46
+
+
+
+
+咩要是也3Db限演唱会（即使咩之前3D过了），还真不好说谁更赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别整得跟她彻底凉了似的啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13150#       发表于 2020-6-17 20:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">彻底凉了还不至于
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">也就是在途中吧
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13151#       发表于 2020-6-17 20:51
+
+
+
+
+担心外部条件还不如担心她自身精神状态，去年那时候就算516之后也没有现在这样，tc播的比油管还多的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13152#       发表于 2020-6-17 20:51
+
+
+
+
+那3D演唱会呢,我要看会动的羊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13153#       发表于 2020-6-17 20:52
+
+
+
+
+我主要是想着她赶紧把3D整出来然后我就能来剪个中国功夫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当初学pr的目的也是这个
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13154#       发表于 2020-6-17 20:53
+
+
+
+
+等三d吧。说起来人一个二线小个人势，同接订阅被隔壁企业势食杀，p给的待遇资源，联动和活动邀请够多了（虽然是在噶咱韭菜），还是别横向对比了。看她自己发展起来不好吗？
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13155#       发表于 2020-6-17 20:56
+
+
+
+
+她这ddd公布的太早，一群人开始存钱，结果现在花也不是不花也不是
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13156#       发表于 2020-6-17 20:56
+
+
+
+
+你确定吗，首先516之后到6月末才开始第一次tc，其次那时候她可以说是基本上全泡在游戏里了，六月中旬算还行，但是除此以外的8月初之前真的是一堆一堆的游戏。
+
+现在也没什么素材可以杂谈，无非就是想聊聊天不想再高强度游戏了才多tc。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13157#       发表于 2020-6-17 20:56
+
+
+
+
+反正能走到这一步已经很牛逼了，我无所谓
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13158#       发表于 2020-6-17 20:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还打算看她以后不当v能干啥呢，我没什么所谓
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13159#       发表于 2020-6-17 21:01
+
+
+
+
+你咩咩好歹曾经是v收入第一，冲国女皇，影响v圈的人物啊，老跟这些对比那不是给自己找不痛快嘛(눈_눈)，向前看吧。     syl存钱啊，ddd打个红的，算算剩下多少二周年打掉不就行了。话说你们现在要打钱是b还是404还是那啥忘了名字的不抽成软件啊
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13160#       发表于 2020-6-17 21:01
+
+
+
+
+可能是个人体感原因吧。至于杂谈，看组长海盗组那最新的熟肉，除了素材原因，她个人精神状态也不好
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13161#       发表于 2020-6-17 21:02
+
+
+
+
+我看到时候自己是有pc梯子还是ios梯子））
+
+不过周年我估计我没什么钱打了，要还分期，，，
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13162#       发表于 2020-6-17 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47843191&amp;ptid=1929631" target="_blank">kolu33 发表于 2020-6-17 21:01</a>
+
+可能是个人体感原因吧。至于杂谈，看组长海盗组那最新的熟肉，除了素材原因，她个人精神状态也不好 ...</blockquote>
+不，光一条不能出去的话就已经很糟心了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+更别提她有多少进度被关在家里了，关在家就算了，网还垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+真要是我只能被关在家里网还连开麻将游戏都卡的话我肯定早就当场骂街了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13163#       发表于 2020-6-17 21:05
+
+
+
+
+纪念还得走sc吧，她不是说喜欢直播间有颜色嘛，虽然亏但她看着开心
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 13164#       发表于 2020-6-17 21:10
+
+
+
+
+这次的bml真的不必太在意，睿叔叔在造⭐神，给⭐这么大的排场，其他v一般是谁上谁倒霉。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13165#       发表于 2020-6-17 21:12
+
+
+
+<blockquote>神楽めあ氏がBLについて熱く語ってる個人的神回</blockquote>
+、草
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 13166#       发表于 2020-6-17 21:14
+
+
+
+
+主要还是网的问题影响她现在情绪吧
+
+她其实对直播相关的设备啊条件之类的非常在乎的,很在意自己的直播效果
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13167#       发表于 2020-6-17 21:14
+
+
+
+
+说真的，真正大头还是那些真人出镜的，哪怕是去年ddd那次主角也不是她啊。v圈毕竟还是小圈，holo对比阿b这种已经上市的庞然大物也就一个社团的而已
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13168#       发表于 2020-6-17 21:58
+
+
+
+
+b还是有点在意的吧，营收都第一了。你b其它不会，蹭热度噶韭菜超强。
+
+
+
+
+
+           
