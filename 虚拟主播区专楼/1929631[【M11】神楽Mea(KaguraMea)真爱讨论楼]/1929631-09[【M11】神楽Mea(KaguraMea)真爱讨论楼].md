@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-17 08:02** 
+> ## **本文件最后更新于2020-06-17 16:05** 
 
 
 
@@ -17995,4 +17995,1050 @@ yysy萌木八成是和猴或者阿菜那边的问题……和爱丽丝一样跟�
 
 
 
-               
+
+
+-----
+
+####  黒長直姫  
+##### 13026#       发表于 2020-6-17 09:25
+
+
+
+
+一想到终有一天...
+
+
+就又犯病了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13027#       发表于 2020-6-17 09:43
+
+
+
+
+憋嗦了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+至少还有一年不是
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13028#       发表于 2020-6-17 09:44
+
+
+
+
+终有一天，她也会变成姨。
+不过看看ptr，船长等，变成姨不是一样可以卖萌吗，没差。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 13029#       发表于 2020-6-17 10:03
+
+
+
+
+月兔啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13030#       发表于 2020-6-17 10:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">姨更会卖萌。。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好多了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13031#       发表于 2020-6-17 10:17
+
+
+
+
+你麻心理年龄一直是小屁孩，再过几年说不定更有jk样了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不慌好吧
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13032#       发表于 2020-6-17 10:17
+
+
+
+
+突发奇想，阿咩用过几次财富密码？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13033#       发表于 2020-6-17 10:17
+
+
+
+
+哪种财富密码啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13034#       发表于 2020-6-17 10:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">比较直球
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 13035#       发表于 2020-6-17 10:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指亲亏我全这种直球吗？
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 13036#       发表于 2020-6-17 10:25
+
+
+
+
+如果是指讲中文企划这种的话，她一次也没有吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13037#       发表于 2020-6-17 10:31
+
+
+
+
+啊这，单人头图毒唯狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13038#       发表于 2020-6-17 10:34
+
+
+
+
+讲中文那种不是讲过几次了吗？虽然听上去全部是意义不明的韩国语
+
+以及之前她想嘲讽观众肥宅，结果变成了熊猫<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13039#       发表于 2020-6-17 10:44
+
+
+
+
+玩了下咩联动的手游，感觉这游戏就是普通的刷子游戏？每天做完日常，挂自动和远征，就没啥事了，到现在也就攒了几十抽，不知道能不能抽到
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 13040#       发表于 2020-6-17 10:59
+
+
+
+
+玩了一小时玩不下去了，我要失去咩咩了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13041#       发表于 2020-6-17 11:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">游戏模式问题，这个没办法。
+
+
+syl，攻略说打殿堂换狼打钥匙门刷泡泡，这究极难度殿堂有啥平民阵容么（打困难都很困难的萌新如是说）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13042#       发表于 2020-6-17 11:06
+
+
+
+
+建议tb上搞个资源号抽一抽就好，150抽保底好像，感觉这游戏内容太杂了，什么都有但什么都玩不进去。万一还有一次抽卡b限呢，话说她这不播这几天能干啥啊，出也出不去，难道要换网？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13043#       发表于 2020-6-17 11:07
+
+
+
+
+她第一次说网不行是什么时候，可能是预约的时间要到了吧
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 13044#       发表于 2020-6-17 11:09
+
+
+
+
+但是不肝没法结婚，好像也搞不到meu啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13045#       发表于 2020-6-17 11:15
+
+
+
+
+可以买好感礼包直接喂到能婚
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 13046#       发表于 2020-6-17 11:18
+
+
+
+
+她说的有预订工作，可能是去录歌吧，说了这个月要录10首歌呢
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13047#       发表于 2020-6-17 11:18
+
+
+
+
+第一次说网不行好像是二三月份的时候（）<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+syl  我昨天把夸婚了，发现这游戏联动角色好像没有结婚台词
+
+结婚演出也是就走个流程
+
+你愿意吗  我愿意
+
+那你愿意吗  我愿意
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 13048#       发表于 2020-6-17 11:21
+
+
+
+
+都是能花钱解决的，买68的引擎可以直接拿meu的。再花钱买礼包可以直接满好感
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13049#       发表于 2020-6-17 11:25
+
+
+
+
+务必把她那烂网给换了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+祈忧：休息的时候不会被特定吧，毕竟可能要出门，啊啊啊啊口瓦伊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 13050#       发表于 2020-6-17 11:26
+
+
+
+
+她现在网络还好了，最近卡都是油管傻逼。之前她也说换网可能要等2.3个月，就先不换了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13051#       发表于 2020-6-17 11:38
+
+
+
+
+特定不要，但是有麻图可以(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 13052#       发表于 2020-6-17 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47836300&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-17 11:38</a>
+特定不要，但是有麻图可以(눈_눈)</blockquote>
+“M楼好麻”
+
+指M楼诸君天天喊着要麻要麻，但是有人真特定到麻的时候却陷入恐慌的行为<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13053#       发表于 2020-6-17 11:52
+
+
+
+
+如果特定到麻，是空妈那种，我就退坑了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13054#       发表于 2020-6-17 11:55
+
+
+
+
+不想被特却想要新麻图是不是想的太好了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+等到麻肉身出了，我们这边会不会有人去日本骚扰她<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13055#       发表于 2020-6-17 11:56
+
+
+
+
+空妈年轻时候还是可以的
+
+我怀疑楼上是想帮咩脑控我们<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13056#       发表于 2020-6-17 11:56
+
+
+
+
+如果特出来是坦克我就退坑了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 13057#       发表于 2020-6-17 11:57
+
+
+
+
+必将是坦克民的胜利
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 13058#       发表于 2020-6-17 11:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前说的是等两三个月才能换网，算算时间合约期差不多也到了，差不多可以换了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13059#       发表于 2020-6-17 11:59
+
+
+
+
+对麻的印象停留在后台半脸和浴衣那几张就好了，不要对现在抱有幻想了，就她现在这生活习惯，不是个轻坦也得是个轮突
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13060#       发表于 2020-6-17 12:02
+
+
+
+
+胖点不好吗，实用角度也需要稍微胖点
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13061#       发表于 2020-6-17 12:04
+
+
+
+
+不是坦克的话我就退坑了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13062#       发表于 2020-6-17 12:06
+
+
+
+
+微胖麻为什么不行,安产型实战利器啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13063#       发表于 2020-6-17 12:06
+
+
+
+
+发育期都没过的麻能有多坦<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13064#       发表于 2020-6-17 12:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">麻真难，不管怎样都得有人不满
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 13065#       发表于 2020-6-17 12:08
+
+
+
+
+胸不大的话……那我就揉大点吧
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13066#       发表于 2020-6-17 12:28
+
+
+
+
+不是吸大点么？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13067#       发表于 2020-6-17 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/238.png" referrerpolicy="no-referrer">填了表，不知道会不会选中呢
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 13068#       发表于 2020-6-17 12:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦不坦不说，一个礼拜不扔垃圾，味道肯定大
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13069#       发表于 2020-6-17 12:47
+
+
+
+
+也有人就好味大这一口的
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 13070#       发表于 2020-6-17 12:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">体味和垃圾味还是不一样的吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13071#       发表于 2020-6-17 12:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以闻头皮，这种应该不是怪癖吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13072#       发表于 2020-6-17 12:55
+
+
+
+
+喷喷除臭剂就好了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13073#       发表于 2020-6-17 13:02
+
+
+
+
+发育期还没完全过，就算不锻炼要胖也胖不到哪里去吧，最多轻坦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+syl   她这生活习惯真的有问题<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+想了想会不会是她怂，疫情期间连倒个垃圾都不敢。
+
+在想想这绝对是懒啊！<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13074#       发表于 2020-6-17 13:21
+
+
+
+
+你楼新人这发散起来怎么一股老病栋味儿，到底是不是真新人啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13075#       发表于 2020-6-17 13:31
+
+
+
+
+可以是新人，也可以是新号，还可以是视奸已久的新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+垃圾放一个星期很奇怪吗，我大学宿舍封装好一点都是一星期一倒的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13076#       发表于 2020-6-17 13:35
+
+
+
+
+新人有老病栋味儿×
+
+老病栋就是有那味儿的新人聚集而成的√<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  清珏  
+##### 13077#       发表于 2020-6-17 13:43
+
+
+
+
+日本垃圾就是一周扔一次 分天归类 
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13078#       发表于 2020-6-17 14:11
+
+
+
+
+那好吧，那垃圾就是在家放一周？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">厨余垃圾怎么处理的
+
+syl  是真新人desu
+
+zsyl   兄啊，我宿舍都是垃圾桶满了就倒，4个垃圾桶不间断工作<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 13079#       发表于 2020-6-17 15:05
+
+
+
+ 本帖最后由 黒長直姫 于 2020-6-17 15:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47835863&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-06-17 11:01:33</a>
+
+游戏模式问题，这个没办法。
+
+
+syl，攻略说打殿堂换狼打钥匙门刷泡泡，这究极难度殿堂有啥平民阵容么（打困 ...</blockquote>
+打两次普通的就可以招光狼了 要打困难最好的方法是等级属性碾压 3个90+级的克制属性带回血就能打了
+
+
+看错了是困难 困难随便3个80级的有克制属性的招式就可以了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13080#       发表于 2020-6-17 15:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47837904&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-17 14:11</a>
+
+那好吧，那垃圾就是在家放一周？厨余垃圾怎么处理的
+
+syl  是真新人desu
+
+zsyl   兄啊，我宿舍都是垃 ...</blockquote>
+你这熟练的发散技巧，让我想起了老gachi，课代表，冷串串，714那帮子人了。那些人好像不是退坑就是疯了。714现在好像成为s1的游戏区名人了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13081#       发表于 2020-6-17 15:34
+
+
+
+
+说明这是新一轮的循环
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13082#       发表于 2020-6-17 15:38
+
+
+
+
+有新人总是好的
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13083#       发表于 2020-6-17 15:39
+
+
+
+
+这是一场新的轮回<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+新的又有些相似的人入场
+
+老的又有些不同的人退场
+
+希望我不会和他们一样发疯退坑把
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13084#       发表于 2020-6-17 15:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">说明，已经不远了，就在舞咩合唱曲和deepkiss内天
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13085#       发表于 2020-6-17 15:43
+
+
+
+
+有了舞苔后我对舞咩的梁木全没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实全是兔鞠的功劳，谢谢兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13086#       发表于 2020-6-17 15:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">当mea拿到惩罚并来一波龙宫闹海整活
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不是你知道错了，就是我知道错了
+
+
+
+
+
+             
