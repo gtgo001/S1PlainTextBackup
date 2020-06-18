@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-19 02:08** 
+> ## **本文件最后更新于2020-06-19 06:07** 
 
 
 
@@ -1214,9 +1214,9 @@ gyg有点太real了
 
 
 啊。
-<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_u4DL9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_DK848" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_IY9vd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_NE6gy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_GmOZB" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_rFjjj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2468,7 +2468,7 @@ UNO倒确实很有价值。<img src="https://static.saraba1st.com/image/smiley/f
  本帖最后由 alcoholic1000 于 2020-6-18 16:59 编辑 
 
 免费的致歉声明
-<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_qOKOo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_HN4pC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 第一条：まだまだ至らない点多いかとは思いますが、今回頂いた意見から反省を行って、改めてライバーとして頑張って参りますので、温かく見守っていただけますと幸いです。今後ともよろしくお願いいたします！
 
@@ -8520,18 +8520,18 @@ syl，船长直播说傻紫病了 ...</blockquote>
 
 
 我以为你们顺劈呢，原来真的有啊
-<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_Kemu8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_S1767" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
 重大発表＆3万人記念枠見にきてくれてありがとーーーー！！！！！！
-<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_OVScA" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_LFPnp" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 みんなの応援のおかげで新しい姿をもらえることになりました！
 
  お披露目配信まであと3日！！最高のステージにするから絶対見に来てねーーー
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_e1122" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_dFiHA" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 
@@ -14460,8 +14460,11 @@ emma那身我也挺喜欢，但简练也不一定是设计的唯一解。
 
 
 
+ 本帖最后由 crawarb 于 2020-6-19 02:22 编辑 
 
 为啥虹杏没有VTB直播美末2，老鼠台一堆播的呀，这也关版权的事吗??
+
+编辑，好屎呀，不播好，播了也不想看
 
 
 
@@ -14540,4 +14543,449 @@ emma那身我也挺喜欢，但简练也不一定是设计的唯一解。
 
 
 
-                         
+
+
+-----
+
+####  kanonsisya  
+##### 5229#       发表于 2020-6-19 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857840&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-19 02:00</a>
+
+我怎么感觉你们讨论这个有点顺劈润润，呜呜呜，放过她吧，她已经很不容易了。 ...</blockquote>
+已经从润姨变成润润了，下一步是小甜甜还是小粽粽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 免费这逻辑滑坡简直了，谁说过大家都必须要偶像服不能有奇装异服上台表演了？脑容量小记不住服装细节多看点猩猩啊开裆裤啊缓缓不就完事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5230#       发表于 2020-6-19 02:11
+
+
+
+
+批偶像服，本质还是回到3d怎么用这个话题上。
+
+如果3d只用来开live，那全员偶像服是很合理的，但3d还可以有别的用法，看看能不能开发出来。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5231#       发表于 2020-6-19 02:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857876&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-19 02:10</a>
+已经从润姨变成润润了，下一步是小甜甜还是小粽粽啊
+
+
+syl 免费这逻辑滑坡简直了，谁说过大家都必 ...</blockquote>
+润润是替代粽子用的称呼啊，要用润姨的时候我还是会用润姨的。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5232#       发表于 2020-6-19 02:36
+
+
+
+
+狗皇三小时原地踏步，阴间游戏害人不浅，还好她结束了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5233#       发表于 2020-6-19 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855719&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-18 21:49</a>
+
+总结大概率会发生的事件
+
+6月20日 まつり2周年live律可上去合唱并宣传自己的3D披露
+
+6月21日 律可3D披露，ま ...</blockquote>
+怎么说的好像要造小小希一样
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5234#       发表于 2020-6-19 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855719&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-18 21:49</a>
+
+总结大概率会发生的事件
+
+6月20日 まつり2周年live律可上去合唱并宣传自己的3D披露
+
+6月21日 律可3D披露，ま ...</blockquote>
+怎么说的好像要造小小希一样
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5235#       发表于 2020-6-19 02:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47855719&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-18 21:49</a>
+
+总结大概率会发生的事件
+
+6月20日 まつり2周年live律可上去合唱并宣传自己的3D披露
+
+6月21日 律可3D披露，ま ...</blockquote>
+怎么说的好像要造小小希一样
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5236#       发表于 2020-6-19 02:48
+
+
+
+
+那你也不用重复3次啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5237#       发表于 2020-6-19 02:50
+
+
+
+
+三胞胎？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5238#       发表于 2020-6-19 02:51
+
+
+
+
+杀人还要诛心？
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 5239#       发表于 2020-6-19 03:08
+
+
+
+
+偶像live encore穿tee上台家常便饭
+
+
+况且免费你前面还在劈舞台效果不彳亍这里又来个不要太细节太华丽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 5240#       发表于 2020-6-19 03:10
+
+
+
+
+免费老哥对V的理解也许对现在的观众来说还太早了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 5241#       发表于 2020-6-19 03:12
+
+
+
+
+从他喜欢车管人歌力就能看出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5242#       发表于 2020-6-19 03:23
+
+
+
+
+免费是拿大葵和emma凑mimi几个人的优点往其他v身上套，套不中的，不行x
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5243#       发表于 2020-6-19 03:30
+
+
+
+ 本帖最后由 free 于 2020-6-19 03:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47858053&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-19 03:23</a>
+
+免费是拿大葵和emma凑mimi几个人的优点往其他v身上套，套不中的，不行x</blockquote>
+能不能别这么编排我，除了大葵外我第二喜欢的歌势是绿仙，还没到emma和mimi，其次是蓝莓和musica
+
+
+人设上简单不等于土，细节多也未必等于好，mimi的紫裙子，店长的羽绒服蓝秋裤那种才叫土。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 5244#       发表于 2020-6-19 03:55
+
+
+
+
+居然挂着狗皇的壶男睡着了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5245#       发表于 2020-6-19 04:10
+
+
+
+
+简洁当然不等于土，但也不等于高雅
+
+繁杂当然不等于美，但也不等于累赘
+
+外行评论说两句个人喜不喜欢就完了，少不懂装懂分析个jb分析<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 5246#       发表于 2020-6-19 04:27
+
+
+
+
+说到底，那就是思想不够v，还得向思想进步的同志学习，从头到脚地把思想v起来，摒弃浮夸偶像等糟粕，尽快适应具有现代主义特征的v思想，v理论。包括但不限于认真提升音乐鉴赏水平，抵制泛滥的鬼哭狼嚎，追求拥有高尚高雅的品味；提升视觉美学鉴赏水平，批判服装的无脑浮夸风。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 5247#       发表于 2020-6-19 04:32
+
+
+
+
+日韩idol的打歌服，还是棒子的更好看，啥时候给整个小短裙小吊带看看阿<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 5248#       发表于 2020-6-19 04:36
+
+
+
+
+今天羊歌贞德专场，但是为啥不唱最卖名曲月光花。。。
+
+
+
+
+
+
+
+-----
+
+####  stygian  
+##### 5249#       发表于 2020-6-19 05:07
+
+
+
+
+吧主上ascc了草
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5250#       发表于 2020-6-19 05:10
+
+
+
+
+放了一段ow集锦，怎么解读<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我估计龙宝都不知道白洋葱停播了
+
+草 联动卫星？
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 5251#       发表于 2020-6-19 05:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">都说了很多次了，不要在楼里暴露自己的推，这祭gachi英文叔已经几天没来了吧，怕不是退管带孩子去了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5252#       发表于 2020-6-19 05:27
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/052646nljebrve7j7nver3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>tbnp.jpg</strong> (836.9 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 05:26 上传
+
+
+
+
+
+[https://twitter.com/norioo_/status/1273581290923585557](https://twitter.com/norioo_/status/1273581290923585557)
+
+
+《排面》
+
+
+
+
+
+                        
