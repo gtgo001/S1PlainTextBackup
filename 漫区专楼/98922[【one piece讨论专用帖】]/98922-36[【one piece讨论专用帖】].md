@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-16 10:00** 
+> ## **本文件最后更新于2020-06-18 18:01** 
 
 
 
@@ -6673,4 +6673,578 @@ boku，應該是個年輕人(切嗣：是嗎)
 
 
 
-                                     
+
+
+-----
+
+####  saturnus  
+##### 52864#       发表于 2020-6-16 11:14
+
+
+
+
+这皇大和是个带孝子么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  klzxs  
+##### 52865#       发表于 2020-6-16 12:02
+
+
+
+
+不管什么情况能放倒和路飞过招的对手 这凯多儿子还挺强的
+
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 52866#       发表于 2020-6-16 12:14
+
+
+
+
+要父慈子孝了吗
+
+大和从小生活在和之国，自幼接受力士文化的熏陶，变成了一个精日也说不定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52867#       发表于 2020-6-16 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821915&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-6-16 08:58</a>
+ 庞德没死！！！果然尾田不会玩虐。 但是这样欧文的实力很让人怀疑了。</blockquote>
+有啥好奇怪的...艾尼路当年也没真电死个人...
+
+
+
+
+
+
+
+-----
+
+####  sandrock  
+##### 52868#       发表于 2020-6-16 13:07
+
+
+
+
+传次郎一格画面秒杀6子之一 果然是九侠最强（）
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52869#       发表于 2020-6-16 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47821328&amp;ptid=98922" target="_blank">天宮奏 发表于 2020-06-16 07:09:10</a>
+boku，應該是個年輕人(切嗣：是嗎)</blockquote>海贼里的男角色都是自称俺，自称boku的目前只有卡文迪许和大和，合计猜测大和应该很儒雅<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52870#       发表于 2020-6-16 13:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47824899&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-6-16 12:51</a>
+有啥好奇怪的...艾尼路当年也没真电死个人...</blockquote>
+气氛不一样，大妈篇死了人的，指佩特罗。如果后面证明佩特罗也没死那实在太强行了。
+
+
+
+
+
+
+
+-----
+
+####  陈玉礼  
+##### 52871#       发表于 2020-6-16 13:49
+
+
+
+
+有阿拉巴斯坦那只隼前车之鉴佩德罗的死是一直没啥实感
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 52872#       发表于 2020-6-16 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820465&amp;ptid=98922" target="_blank">satanas 发表于 2020-6-16 00:50</a>
+传次郎为啥不把捉到那个6子杀了 感觉这里是有文章的
+
+凯多一如之前的塑造 惯例的外表傻大粗 但偶尔又会露出 ...</blockquote>
+他刻意说了一句你不了解和之国的历史。飞六胞都是凯多捞来的船长，本质上也就是个打工的（而且还有德雷克这种卧底），和20年前的惨案也无关，自然没必要杀吧
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52873#       发表于 2020-6-16 15:36
+
+
+
+
+第3次更新，补充情报翻译 by【TalkOP汉化】
+大和的身材是偏瘦的，然后身高是巨大型的虽然没有比凯多大.他的手臂长度跟路飞身高差不多（情报师：大约5米？）。
+有桃之助被绑在十字架上面的镜头。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  azbhg1  
+##### 52874#       发表于 2020-6-16 19:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825382&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-6-16 13:27</a>
+
+气氛不一样，大妈篇死了人的，指佩特罗。如果后面证明佩特罗也没死那实在太强行了。 ...</blockquote>
+豹子的死到现在好像也没啥石锤吧....
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52875#       发表于 2020-6-16 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47829476&amp;ptid=98922" target="_blank">azbhg1 发表于 2020-6-16 19:02</a>
+
+豹子的死到现在好像也没啥石锤吧....</blockquote>
+主要是连续自爆了两回，这还不死，以后一直自爆攻击算了。
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 52876#       发表于 2020-6-16 20:36
+
+
+
+
+感觉大和的妈有点故事, 搞不好是个和之国女人<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52877#       发表于 2020-6-16 20:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830497&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-6-16 20:36</a>
+
+感觉大和的妈有点故事, 搞不好是个和之国女人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">会不会是时夫人，一个想法，不然感觉这个有点唐突等待。。
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 52878#       发表于 2020-6-16 21:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830612&amp;ptid=98922" target="_blank">武男 发表于 2020-6-16 20:47</a>
+
+会不会是时夫人，一个想法，不然感觉这个有点唐突等待。。</blockquote>
+我觉得按照尾田的尿性来说, 和之国这篇应该要把文化符号走一遍, 
+
+盲猜大和妈是一个女阴阳师, 恶鬼现世和不死之身大概也是这女人的功劳<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zxzx7753  
+##### 52879#       发表于 2020-6-16 21:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47829508&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-6-16 19:05</a>
+
+主要是连续自爆了两回，这还不死，以后一直自爆攻击算了。</blockquote>
+阿巴拉斯坦那么大的炸弹都没炸死鸟人<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  龙手马弗  
+##### 52880#       发表于 2020-6-16 21:36
+
+
+
+
+大和不会也是路飞迷弟吧？
+
+等等，好像在二十年前，大蛇两个手下的果实能力：变脸和屏障，最后统统变成了路飞迷弟……
+
+以下为猜想
+
+大和：你就是路飞？我一直很崇拜你！
+
+凯多：这五皇连我一记雷鸣八卦都撑不住，你（大和）是看上了他的哪一点？
+
+路飞：是啊！你看上了我哪一点？
+
+大和：当然是路飞大人的泡妞能力了！路飞大人您是如何在女帝娜美罗宾白星之间脚踩四条船还不翻的？教教我好吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  武男  
+##### 52881#       发表于 2020-6-16 21:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830769&amp;ptid=98922" target="_blank">24k纯帅 发表于 2020-6-16 21:02</a>
+
+我觉得按照尾田的尿性来说, 和之国这篇应该要把文化符号走一遍, 
+
+盲猜大和妈是一个女阴阳师, 恶鬼现世和 ...</blockquote>
+这个太量产了吧，感觉起码得跟手术果实一样拿命换吧
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52882#       发表于 2020-6-16 23:25
+
+
+
+
+乌尔缇这脖子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你们还喊她老婆不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52883#       发表于 2020-6-16 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47830820&amp;ptid=98922" target="_blank">zxzx7753 发表于 2020-6-16 21:06</a>
+阿巴拉斯坦那么大的炸弹都没炸死鸟人</blockquote>
+那也没连续炸两回。
+
+
+
+
+
+
+
+-----
+
+####  金鱼师父  
+##### 52884#       发表于 2020-6-16 23:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47825190&amp;ptid=98922" target="_blank">理六 发表于 2020-6-16 13:13</a>
+
+海贼里的男角色都是自称俺，自称boku的目前只有卡文迪许和大和，合计猜测大和应该很儒雅
+
+
+  -- 来自 ...</blockquote>
+像孙笑川那样儒雅？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52885#       发表于 2020-6-17 05:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47831141&amp;ptid=98922" target="_blank">龙手马弗 发表于 2020-6-16 21:36</a>
+
+大和不会也是路飞迷弟吧？
+
+
+等等，好像在二十年前，大蛇两个手下的果实能力：变脸和屏障，最后统统变成了路 ...</blockquote>
+可以把娜美和罗宾换成薇薇和蕾贝卡
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52886#       发表于 2020-6-17 06:07
+
+
+
+
+大和那个衣服背后的装饰，感觉他是御田脑残粉的几率还挺高的
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52887#       发表于 2020-6-17 13:17
+
+
+
+
+庞德也没死的话，估计啥时候贝克慕斯也要出来了（当然海贼王人太多了也是个问题，想想看也许写成小说会好一点）。说起来庞德是被小人族救得，别回头一合计小人族和贝基一起去帮路飞的忙了吧
+
+
+佩德罗我还是倾向于他死了，虽然让他诈尸最后跟着贝克慕斯一起出现也是海贼王的保留项目了
+
+
+
+
+
+
+
+-----
+
+####  寒山寺  
+##### 52888#       发表于 2020-6-17 16:20
+
+
+
+
+大和应该是见到御田的，御田死的时候应该已经好几岁了。大概率是御田的仰慕者，然后成为带孝子。
+
+
+
+
+
+
+
+-----
+
+####  古畑任三郎2015  
+##### 52889#       发表于 2020-6-17 22:35
+
+
+
+
+现在人太多头不够分了
+
+大概率都要多打一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+凯多团心里苦啊，说好的最强海贼联盟
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52890#       发表于 2020-6-17 22:41
+
+
+
+
+乌尔堤是恐龙快打第五关的BOSS吧……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+这大和怎么感觉跟捷德一样……
+
+
+
+
+
+
+
+-----
+
+####  LichEnd  
+##### 52891#       发表于 2020-6-18 06:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47829508&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-6-16 19:05</a>
+
+主要是连续自爆了两回，这还不死，以后一直自爆攻击算了。</blockquote>
+八成没死。
+
+沙拉巴斯坦鸟人直接抓着炸弹上天了最后都没死。
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 52892#       发表于 2020-6-18 12:41
+
+
+
+
+雷鸣八卦警告他又来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  流连成双  
+##### 52893#       发表于 2020-6-18 16:34
+
+
+
+
+桃之助那个绑法看起来是要磔刑？
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 52894#       发表于 2020-6-18 16:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47852291&amp;ptid=98922" target="_blank">流连成双 发表于 2020-6-18 16:34</a>
+
+桃之助那个绑法看起来是要磔刑？</blockquote>
+是磔刑，前一话大蛇就说了
+
+然而贴吧某个民间汉化半个字都没提到这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                    
