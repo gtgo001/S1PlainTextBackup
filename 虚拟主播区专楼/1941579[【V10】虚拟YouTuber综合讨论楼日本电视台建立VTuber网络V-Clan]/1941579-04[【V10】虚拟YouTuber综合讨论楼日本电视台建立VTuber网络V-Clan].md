@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-19 00:09** 
+> ## **本文件最后更新于2020-06-19 02:08** 
 
 
 
@@ -1214,9 +1214,9 @@ gyg有点太real了
 
 
 啊。
-<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_k7Ooz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_p0N55" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_DQe28" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_u4DL9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_DK848" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_IY9vd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2468,7 +2468,7 @@ UNO倒确实很有价值。<img src="https://static.saraba1st.com/image/smiley/f
  本帖最后由 alcoholic1000 于 2020-6-18 16:59 编辑 
 
 免费的致歉声明
-<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_J0s1H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_qOKOo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 第一条：まだまだ至らない点多いかとは思いますが、今回頂いた意見から反省を行って、改めてライバーとして頑張って参りますので、温かく見守っていただけますと幸いです。今後ともよろしくお願いいたします！
 
@@ -6555,7 +6555,7 @@ u1s1，推白姨的确省心
 
 
 QQ截图20200618204021.png
-(890.39 KB, 下载次数: 1)
+(890.39 KB, 下载次数: 2)
 
 
 
@@ -7506,7 +7506,7 @@ holo婚介所<img src="https://static.saraba1st.com/image/smiley/face2017/076.pn
 
 
 QQ截图20200618205515.png
-(621.19 KB, 下载次数: 0)
+(621.19 KB, 下载次数: 1)
 
 
 
@@ -8520,18 +8520,18 @@ syl，船长直播说傻紫病了 ...</blockquote>
 
 
 我以为你们顺劈呢，原来真的有啊
-<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_ULYTq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_Kemu8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
 重大発表＆3万人記念枠見にきてくれてありがとーーーー！！！！！！
-<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_N766I" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_OVScA" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 みんなの応援のおかげで新しい姿をもらえることになりました！
 
  お披露目配信まであと3日！！最高のステージにするから絶対見に来てねーーー
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_FxZVZ" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_e1122" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 
@@ -10785,8 +10785,9 @@ syl，上次石油王反响大本 ...</blockquote>
 
 
 
+ 本帖最后由 crawarb 于 2020-6-19 00:38 编辑 
 
-3D的模型师是外包的还是cover自己的？如果是自己的那就是一个需要排队的资源，现在四期生**队了，该去炎的也应该是四期信。四期信没意见就可以<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+3D的模型师是外包的还是cover自己的？如果是自己的那就是一个需要排队的资源，现在四期生被 插队了，该去炎的也应该是四期信。四期信没意见就可以<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 
@@ -11239,6 +11240,25 @@ Azki
 
 ときのそら / さくらみこ(旧)
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -13518,4 +13538,1006 @@ QQ截图20200619000135.png
 
 
 
-                           
+
+
+-----
+
+####  激光2000  
+##### 5184#       发表于 2020-6-19 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857136&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-19 00:06</a>
+
+记忆这把刺入胸口的利刃，随着时间的流逝，更深的陷入他的身躯。混杂着诅咒的血不断的喷涌而出。
+
+2000所 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 什么鸡儿，没那味儿。
+
+
+我要是倒下，也是倒在打倒黄金十二太监囚人的路上，
+
+
+拯救被黄金十二太监黑屁的葵皇，
+
+
+“至少、至少我还有生命！”
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5185#       发表于 2020-6-19 00:10
+
+
+
+
+holo的3d再差也有加速 兜着底（呕）
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5186#       发表于 2020-6-19 00:10
+
+
+
+
+读完昨天的了，到今天了。
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 5187#       发表于 2020-6-19 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857104&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-19 00:03</a>
+狐皇可以客串stars小剧场演这个吗 我想看</blockquote>
+这片子最后结局喂shit，一个都不要
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 5188#       发表于 2020-6-19 00:12
+
+
+
+ 本帖最后由 Viden 于 2020-6-19 00:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47856921&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-18 23:43</a>
+毕竟这套衣服星街是有去堵门的，偶像服感觉大部分都是赶工，质量挺一般的 ...</blockquote>
+做3D模型没说堵门呀。
+堵门那一次是第三首原创曲的MV，本来MV都完成了。她想着没有3D不甘心，就堵门补拍，MV也重做了。
+SYL
+星街的3D模型没话说，人设细节就多，心疼一下模型师八剑。
+zsyl
+偶像服3D，好像粽子的下半身有点大象腿。。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5189#       发表于 2020-6-19 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857176&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-19 00:10</a>
+
+holo的3d再差也有加速 兜着底（呕）</blockquote>
+加速是品味不行
+
+本职的模型制作实力是不差的
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5190#       发表于 2020-6-19 00:13
+
+
+
+
+天皇让路了，我菜牌面啊。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 5191#       发表于 2020-6-19 00:14
+
+
+
+
+miko这英语歌能唱出来也真是有勇气。。我听着都全身脱力了。 。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5192#       发表于 2020-6-19 00:16
+
+
+
+
+樱语大师跟你闹呢。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5193#       发表于 2020-6-19 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857204&amp;ptid=1941579" target="_blank">Viden 发表于 2020-6-19 00:12</a>
+
+做3D模型没说堵门呀。
+
+堵门那一次是第三首原创曲的MV，本来MV都完成了。她想着没有3D不甘心，就堵门补拍 ...</blockquote>
+他说的新L2D吧，手岛爹自己说星街打回去改了很多遍又自己加了很多东西，算是虚拟堵门了。
+
+
+SYL：
+
+该读要读的，学星街不读SC完事了那一个月只能收200W。
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5194#       发表于 2020-6-19 00:19
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-19 00:13
+加速是品味不行
+
+本职的模型制作实力是不差的</blockquote>
+那个钢盔头，细节太差了吧，整个就是一块…大衣还穿摸
+
+虽然大衣可以甩锅给焦茶，设计的不友好
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5195#       发表于 2020-6-19 00:19
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-19 00:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857156&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-19 00:08</a>
+
+王子算是彩虹最强毛笔使用者了，上届比赛公主队能进决赛要不是王子一直绕后骚扰公主的精英枪根本不可能有 ...</blockquote>
+朋友可以评价一个吗，王子队跟不破队相比水水平如何啊？
+
+省一楼，郡道：“杀了神田，好爽！”
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5196#       发表于 2020-6-19 00:19
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gfwwhd1inkj207l08fq3y.jpg" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=bLSH2uYVFA4](https://www.youtube.com/watch?v=bLSH2uYVFA4)
+
+
+凛姨开了
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5197#       发表于 2020-6-19 00:20
+
+
+
+
+【悲報】はあちゃま、来年まで日本出禁。
+
+※Google earthとかゲームではないです。
+
+
+そんな悲しいお知らせで終わらせたくない。
+
+みんなに、会いに行きたい。
+
+
+その為に、はあちゃまは動き出した。
+
+
+日本帰国のため、日本にいるみんなに会う為、
+
+海を泳いでも絶対にたどり着いて見せる！！！！！
+
+
+これは日本帰国に全力を注ぎすぎてしまった
+
+
+1人のアイドルの物語。
+
+
+第一話「はあちゃま、帰国」
+
+※第一話にして完結※
+
+
+解説：オーストラリア留学中のはあちゃま。現状日本には帰国できるが、そうすると日本からオーストラリアに戻ることが不可能なため(オーストラリアに戻れないと学校卒業も不可能)現状日本に帰国できない。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5198#       发表于 2020-6-19 00:21
+
+
+
+
+说不定白皮达利特就好这口，根正苗红的大姨子和南部龙皇打不过半路出家的狗子和35
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5199#       发表于 2020-6-19 00:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857266&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-19 00:19</a>
+
+https://www.youtube.com/watch?v=bLSH2uYVFA4
+
+
+凛姨开了</blockquote>
+这么重磅的玩意不上皮号播是因为许可问题？
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5200#       发表于 2020-6-19 00:21
+
+
+
+
+星街不读是对的，她自己说了要主流进出，时间自然不能都花在这上面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5201#       发表于 2020-6-19 00:22
+
+
+
+
+估计白皮和国内差不多，不是yhm没内味。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 5202#       发表于 2020-6-19 00:25
+
+
+
+ 本帖最后由 Viden 于 2020-6-19 00:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857254&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-19 00:18</a>
+他说的新L2D吧，手岛爹自己说星街打回去改了很多遍又自己加了很多东西，算是虚拟堵门了。
+
+
+SYL：</blockquote>哦哦。
+
+就记得她有一次T99耐久念过sc。（貌似还是故意耐久不让老姐吃饭）
+
+
+
+
+
+
+
+-----
+
+####  秋月孝三  
+##### 5203#       发表于 2020-6-19 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857260&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-19 00:19</a>
+
+朋友可以评价一个吗，王子队跟不破队相比水水平如何啊？
+
+省一楼，郡道：“杀了神田，好爽！”
+
+ ...</blockquote>
+讲真，打爆伞确实很爽，出了一口恶气的感觉
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5204#       发表于 2020-6-19 00:27
+
+
+
+
+阿星和这群想着怎么赚钱的姨们还是不一样的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 5205#       发表于 2020-6-19 00:27
+
+
+
+[https://youtu.be/2NV0yZLlnL0](https://youtu.be/2NV0yZLlnL0)
+
+
+家暴语音
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 5206#       发表于 2020-6-19 00:33
+
+
+
+ 本帖最后由 包之沐白 于 2020-6-19 00:36 编辑 
+
+那就是我摸了没看到
+
+
+咋还有播最后生还者用生还者难度开荒的，禁播了都播不完<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5207#       发表于 2020-6-19 00:35
+
+
+
+ 本帖最后由 QWANG 于 2020-6-19 00:43 编辑 
+
+读完了。新衣装1200条读了2个多小时。
+
+昨天395条读了22分钟。今天430条读25分钟。比昨天和今天的份读的速度慢的都是在拖时长。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5208#       发表于 2020-6-19 00:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857278&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-19 00:21</a>
+
+星街不读是对的，她自己说了要主流进出，时间自然不能都花在这上面</blockquote>
+星姐每个月开live的时候固定会有一笔SC所以不用担心
+
+但是其他人都不读SC的话估计holo的SC总量能掉一半
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5209#       发表于 2020-6-19 00:45
+
+
+
+
+azki这两版模型的败笔都在发型上，初版那俩不会动的大双马尾，现在这个高坚果一样的头发...单看人设图其实还行的
+
+空妈要新衣服不如想法和东京电视台说说，把一花姐那身弄来改改吧，挺符合圆脸不人气声优的气质的
+
+全员偶像服和空妈的升级版和星街的都挺无感的，尤其是全员偶像服太难看了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5210#       发表于 2020-6-19 00:49
+
+
+
+
+偶像服的原案图看上去还行 为什么3D化之后就感觉差很多了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5211#       发表于 2020-6-19 00:51
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-19 00:19
+朋友可以评价一个吗，王子队跟不破队相比水水平如何啊？
+
+省一楼，郡道：“杀了神田，好爽！”
+
+ ...</blockquote>
+不破队的巴姐和eli是俩atm，王子队最菜的elu都不算是atm，爱圆王子双近战神田机枪这组合也挺合理的，这至少是个四强队……不过赛制是涂地bo1，随机性挺大的
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5212#       发表于 2020-6-19 00:51
+
+
+
+<blockquote>free 发表于 2020-6-19 00:45
+azki这两版模型的败笔都在发型上，初版那俩不会动的大双马尾，现在这个高坚果一样的头发...单看人设图其实 ...</blockquote>
+焦茶画的AZKi的第二套人设是挺帅气的，但还是和她性格和歌曲风格都不搭。建模的话，我和免费想法已经差不多，毁在头发上了。
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 5213#       发表于 2020-6-19 00:52
+
+
+
+
+想看可可联动大姨子
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5214#       发表于 2020-6-19 00:52
+
+
+
+<blockquote>泡芙好吃 发表于 2020-6-19 00:49
+偶像服的原案图看上去还行 为什么3D化之后就感觉差很多了</blockquote>
+说明不是七海的锅？（笑）
+
+确实感觉偶像服上的小细节还算是不少的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5215#       发表于 2020-6-19 01:03
+
+
+
+
+其实我觉得人设也不是细节越多越华丽就越好，按我自己的审美这些3D歌势里最喜欢的就emma，因为虽然设计简单但是有让人记住的点。
+
+
+你杏这全员偶像服现在回想一下，除了找不到一双对称的袜子之外实在啥特点都想不起来，不说你杏，业界最高水准3D之一的GEMS也是都有常服和偶像服两套的，谁还能想起来她们的偶像服啥样？一提起水科葵还是马上想到那身猫耳常服。
+
+
+星街还有空妈那身升级版是一个道理，细节太多了反而记不住，星街的现在回想一下，最大的特征好像是就俩手指头......
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5216#       发表于 2020-6-19 01:13
+
+
+
+
+双叶杏这么多年了我还记得她平时穿的働いたら負けT，但完全不记得舞台上的偶像服什么样子
+
+所以她应该穿大码T上舞台唱歌跳舞？
+
+太智障了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 5217#       发表于 2020-6-19 01:14
+
+
+
+
+リゼるる。
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/011211xaz2a2f2on9co0pn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EayZBohU0AEkD_h.jpg</strong> (104.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 01:12 上传
+
+
+
+
+
+
+[https://twitter.com/tadokoro_t/status/1273561848768458752](https://twitter.com/tadokoro_t/status/1273561848768458752)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 5218#       发表于 2020-6-19 01:18
+
+
+
+<blockquote>free 发表于 2020-6-19 01:03
+其实我觉得人设也不是细节越多越华丽就越好，按我自己的审美这些3D歌势里最喜欢的就emma，因为虽然设计简单 ...</blockquote>
+宝石社那是看的人少。如果偶像服次次刷脸，观众肯定会留下印象。holo的那一套，细节不算繁多，但能看出来花了些小心思的。七海也算经常和holo的v互动，这身衣服不是敷衍了事的。
+
+emma那身我也挺喜欢，但简练也不一定是设计的唯一解。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5219#       发表于 2020-6-19 01:18
+
+
+
+
+偶像服就是强调那个整齐划一的效果，三巨头合唱那段我觉得三个人的都还挺好看的
+
+空妈那个LIVE服装不是很行，还不如偶像服，平时默认的最好看
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 5220#       发表于 2020-6-19 01:22
+
+
+
+
+今天就可以开抽了。
+[https://webpon.net/shop/SU/plan/SS](https://webpon.net/shop/SU/plan/SS)
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/012013uxi6el1c01i61m3g.png" referrerpolicy="no-referrer">
+
+
+<strong>061911789535.PNG</strong> (482.69 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 01:20 上传
+
+
+
+
+
+
+[https://twitter.com/SephiraSu/status/1273591009927036929](https://twitter.com/SephiraSu/status/1273591009927036929)
+
+
+奖品实拍图：
+
+<img src="https://img.saraba1st.com/forum/202006/19/012003u2yoit43yxaxk4mc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eay0NmYUcAM39f5.jpg</strong> (325.88 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 01:20 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/012006q90dnuq9058jilqq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eay0OgtUMAICE8Z.jpg</strong> (423.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 01:20 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/012007s7397lov4dzv9r04.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eay0PoqU8AAgyHX.jpg</strong> (615.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 01:20 上传
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/012007jrykt9zwt9dzhy5y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eay0RHdUMAASui-.jpg</strong> (236.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 01:20 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Viden  
+##### 5221#       发表于 2020-6-19 01:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857581&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 01:03</a>
+其实我觉得人设也不是细节越多越华丽就越好，按我自己的审美这些3D歌势里最喜欢的就emma，因为虽然设计简单 ...</blockquote>
+星街最大的特征怎么也不会是两手指头吧。
+以前以为你只是爱劈星街歌力，没想到连这个你也劈。
+是因为星街的脸不够圆么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5222#       发表于 2020-6-19 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857634&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-19 01:13</a>
+
+双叶杏这么多年了我还记得她平时穿的働いたら負けT，但完全不记得舞台上的偶像服什么样子
+
+所以她应该穿大码 ...</blockquote>
+你自己不都说了，“这么多年还记得”“完全不记得”，那起码说明这两套的设计上是自有高低的。
+
+
+虽然现实中的偶像不能穿大码T上台唱歌，但是这是V，大猩猩都可以光着屁股上超会议唱歌呢，V的人设就不必完全对齐三次元偶像。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5223#       发表于 2020-6-19 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857510&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-19 00:51</a>
+
+不破队的巴姐和eli是俩atm，王子队最菜的elu都不算是atm，爱圆王子双近战神田机枪这组合也挺合理的，这至 ...</blockquote>
+确实，看到现在感觉真的水平好高，而且感觉王子有在换武器让分，不过就算到时候遇到也是四强赛了，打强强选手磨合下挺好。
+
+省一楼，本人在钓鱼中同时得到了快感和罪恶感，业障重啊！（不是在说楼友）
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5224#       发表于 2020-6-19 01:34
+
+
+
+
+为啥虹杏没有VTB直播美末2，老鼠台一堆播的呀，这也关版权的事吗??
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 5225#       发表于 2020-6-19 01:35
+
+
+
+
+固定下来的人设会让人非常容易产生联想（也就是喜闻乐见的刷烂梗），要是有个什么逼格够、印象深的logo或标志物，宣传起来也方便很多吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5226#       发表于 2020-6-19 01:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857708&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 01:29</a>
+
+你自己不都说了，“这么多年还记得”“完全不记得”，那起码说明这两套的设计上是自有高低的。
+
+
+虽然现实 ...</blockquote>
+有什么高低，一个平时只要出现大部分时间都穿着，另一个大概只穿了一两次，不是噶吃能记得才有鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后双叶杏和三次元有什么关系我暂时蒙古，照你这么说imas ll什么的也不应该设计偶像服，就应该一人穿一套什么猩猩皮，什么三点式，什么光头大背头走起来，反正二次元，能让人记住就行了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5227#       发表于 2020-6-19 01:56
+
+
+
+
+奇装异服舞台上玩各种花样的视觉系不多着去了，说个跟V稍微沾边的，就四月一日客串出场的金爆乐队，上红白最后唱嗨了脱的就剩个兜裆布......
+
+当然不是说都得跟这四个精神病那么玩，不过V的人设如果全照着偶像团体看齐，都是一堆美少女穿着珠光宝气整齐划一华丽丽的偶像衣服上台唱歌跳舞那也挺没意思的。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5228#       发表于 2020-6-19 02:00
+
+
+
+
+我怎么感觉你们讨论这个有点顺劈润润，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                         
