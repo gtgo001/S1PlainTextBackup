@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-18 14:10** 
+> ## **本文件最后更新于2020-06-18 16:11** 
 
 
 
@@ -10962,7 +10962,7 @@ cp粉其实把两边都是当工具人的
 
 
 
-<img src="https://pbs.twimg.com/media/Eas_3AeXQAcGfXi?format=jpg&amp;name=large" id="aimg_vswS7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eas_3AeXQAcGfXi?format=jpg&amp;name=large" id="aimg_hp8KT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -13125,8 +13125,8 @@ cover杂鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 
 
 
-<img src="https://pbs.twimg.com/media/EatJyVUUEAAaN4A?format=jpg&amp;name=medium" id="aimg_AFnJK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)【
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f3c6.svg" height="27" id="aimg_VbQPi" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://pbs.twimg.com/media/EatJyVUUEAAaN4A?format=jpg&amp;name=medium" id="aimg_G0Ej0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)【
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f3c6.svg" height="27" id="aimg_Er3v3" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 にじさんじスプラトゥーン大会 最新情報！(6/17 現在)】
 
@@ -26852,10 +26852,11 @@ bw现场
 
 
 
- 参与人数 3战斗力 +1
+ 参与人数 4战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|思路广|
 | 落雪无痕| + 1|思路广|
 | colodes| + 1|好思路|
 | InvisibleP|-1|过于直球，爬|
@@ -28333,4 +28334,652 @@ syl 上次祭丝大叔不是说他觉得27JK就没啥问题， ...</blockquote>
 
 
 
- 
+
+
+-----
+
+####  2517君改二  
+##### 4465#       发表于 2020-6-18 14:10
+
+
+
+
+听弟的姐唱歌还挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 4466#       发表于 2020-6-18 14:15
+
+
+
+
+怎么说呢，以前木口小箱的时候到处不分男女联动蹭热度，等挣够抽三四期生的钱后就开始搜刮独角兽的钱包了，这就是yagoo的资本之道吗。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 4467#       发表于 2020-6-18 14:17
+
+
+
+
+牙膏倒是巴不得三四期流量大户去扶star，但你看有人理他吗？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 4468#       发表于 2020-6-18 14:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850512&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-18 14:15</a>
+
+怎么说呢，以前木口小箱的时候到处不分男女联动蹭热度，等挣够抽三四期生的钱后就开始搜刮独角兽的钱包了， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">yagoo好难啊，最开始说大家不要联动
+
+
+结果有人想联动，没办法改口说好吧自愿联动，然后把郭自己背了
+
+
+yagoo，你好温柔
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 4469#       发表于 2020-6-18 14:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少我已经饱受冒菜文化的摧残，早就不是处女厨了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 4470#       发表于 2020-6-18 14:20
+
+
+
+
+一切的关键不是五月也不是十二月，而是九月，九月的时候狐皇主动在推下回复阿兰，夏哥找上了朱雀，构成了第一次交流，还是女性先去联系男性，而官推是在这一切“之后”才发的，没人知道那时发生了什么，但必须知道......
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 4471#       发表于 2020-6-18 14:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> yagoo好难yagoo背锅又是啥迷惑言论。。。  说不联动不就是为了灭火   
+
+然后又来个自愿联动温水煮青蛙 
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 4472#       发表于 2020-6-18 14:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850530&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-18 14:17</a>
+
+牙膏倒是巴不得三四期流量大户去扶star，但你看有人理他吗？</blockquote>
+为啥就不是yagoo授意三四期刻意养独角兽捞钱，让老员工们去干老本行呢
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4473#       发表于 2020-6-18 14:22
+
+
+
+
+不如说要特意去声明男女两边联不联动这件事就怎么都是错了，你说不会联动也不好，改成自愿更不好。那react也是分成男女两个箱呢，人家都不操心这种事。
+
+而且杏星出来的时间是gamers之后三期生之前，那会还没有三四期呢，无印和一期的主力都不在乎联动了，你再特意去声明个不联动......
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 4474#       发表于 2020-6-18 14:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然是车轱辘的话题了，但牙垢毕竟是个商人，心里早就巴不得女团给star引流了，但又要收割独角兽的钱，怎么办呢，只能慢慢地温水煮青蛙呗
+
+
+
+
+
+
+
+-----
+
+####  保罗赫伯特  
+##### 4475#       发表于 2020-6-18 14:25
+
+
+
+
+yagoo好难？怎么还有人同情资本家的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 4476#       发表于 2020-6-18 14:26
+
+
+
+
+加藤纯一的twitch聊天栏太地狱了wwww
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 4477#       发表于 2020-6-18 14:27
+
+
+
+
+当初的不联动声明大概能在管人运营迷惑行为榜上挂名。其他有那家运营发布过类似声明的吗？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 4478#       发表于 2020-6-18 14:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850620&amp;ptid=1941579" target="_blank">保罗赫伯特 发表于 2020-6-18 14:25</a>
+
+yagoo好难？怎么还有人同情资本家的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实咱就想吐槽一下，说了自愿后和星联动的也只有狐狸和马自立
+
+
+所以怎么都觉得应该确实是自愿的，但是祭丝天天劈狐狸。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 4479#       发表于 2020-6-18 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850620&amp;ptid=1941579" target="_blank">保罗赫伯特 发表于 2020-6-18 14:25</a>
+
+yagoo好难？怎么还有人同情资本家的</blockquote>
+那句明显是在说反话讽刺。
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 4480#       发表于 2020-6-18 14:28
+
+
+
+
+我没觉得谷乡有多难，我觉得祭gachi比较难。自己的推疯狂和男人联动不说，还要在v综被你们一直劈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 4481#       发表于 2020-6-18 14:29
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-6-18 14:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850570&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-18 14:21</a>
+
+yagoo好难yagoo背锅又是啥迷惑言论。。。  说不联动不就是为了灭火   
+
+然后又来个自 ...</blockquote>
+那就是十二月的蠢操作了，但还是那一点，九月是在“之后”发的推，而不是“之前”，这说不通的
+
+
+十二月是真的蠢，那一套直接给stars在国内发展的路添堵，只能说幸亏是一弦初B限，要不然情况更糟
+
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 4482#       发表于 2020-6-18 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yagoo搞个男箱就是首席背锅位好吧。还不如一开始就搞个有男有女的混箱，搞男性箱还挂个holo前戳就是铁脑瘫
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 4483#       发表于 2020-6-18 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850647&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-18 14:27</a>
+
+其实咱就想吐槽一下，说了自愿后和星联动的也只有狐狸和马自立
+
+
+所以怎么都觉得应该确实是自愿的 ...</blockquote>
+咱也想吐槽一下，不配提起名字的老师和萝卜子真惨
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 4484#       发表于 2020-6-18 14:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">祭丝发疯也不是因为和星联动啊 原先和律可时不时联动一下的频率就不错 
+
+uno 大富豪 深夜四人杂谈 罗贝尔酒吧 和阿兰瓦罗兰 和律可人类一败涂地 
+
+全挤在前段时间才把祭丝逼疯了啊 
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 4485#       发表于 2020-6-18 14:32
+
+
+
+<blockquote>asdhai 发表于 2020-6-18 14:27
+当初的不联动声明大概能在管人运营迷惑行为榜上挂名。其他有那家运营发布过类似声明的吗？ ...</blockquote>
+苔宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 4486#       发表于 2020-6-18 14:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850692&amp;ptid=1941579" target="_blank">free 发表于 2020-6-18 14:31</a>
+
+咱也想吐槽一下，不配提起名字的老师和萝卜子真惨</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老师萝卜比较好玩的是反而声明出来之后没联动（记得是）了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 4487#       发表于 2020-6-18 14:33
+
+
+
+
+祭丝连续发疯才搞到反复顺劈的，以前联动这么多也没怎么劈
+
+反正现在多了个爱好就是顺劈祭gachi
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 4488#       发表于 2020-6-18 14:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850662&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-18 14:29</a>
+
+那就是十二月的蠢操作了，但还是那一点，九月是在“之后”发的推，而不是“之前”，这说不通的 ...</blockquote>
+要分析大概还是狐狸作为半个运营先试水么 。。嘛 这样揣测也没啥意思了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 4489#       发表于 2020-6-18 14:34
+
+
+
+
+老师前段时间还和星打dbd了吧？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 4490#       发表于 2020-6-18 14:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850642&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-18 14:27</a>
+
+当初的不联动声明大概能在管人运营迷惑行为榜上挂名。其他有那家运营发布过类似声明的吗？ ...</blockquote>
+当年宣布seeds和一二期分开运营不给联动的彩虹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 4491#       发表于 2020-6-18 14:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星的3d应该在路上了，其实我挺佩服牙垢大锅饭的，真就人人都有3d人人都有新衣服，
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 4492#       发表于 2020-6-18 14:37
+
+
+
+
+对， 人人都有新衣服， 真的太温暖了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 4493#       发表于 2020-6-18 14:38
+
+
+
+
+既然彩虹能吃书，木口吃个书也没啥大不了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 4494#       发表于 2020-6-18 14:38
+
+
+
+
+基德基德
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 4495#       发表于 2020-6-18 14:38
+
+
+
+
+是人人都有哦，哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 4496#       发表于 2020-6-18 14:38
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-18 14:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850763&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-18 14:38</a>
+
+既然彩虹能吃书，木口吃个书也没啥大不了的</blockquote>
+彩虹是被凛先辈带人怼吃书的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人怼yagoo不给联动吧
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 4497#       发表于 2020-6-18 14:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不要再提新衣服刺激芙宝了 基德基德
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 4498#       发表于 2020-6-18 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850587&amp;ptid=1941579" target="_blank">free 发表于 2020-6-18 14:22</a>
+
+不如说要特意去声明男女两边联不联动这件事就怎么都是错了，你说不会联动也不好，改成自愿更不好。那react ...</blockquote>
+无印和一期的主力不在乎联动不代表一二期生没独角兽啊，人家一看你带了holo的名就发难，yagoo才怂的
+
+
+
+然后又再改回来温水煮青蛙
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 4499#       发表于 2020-6-18 14:40
+
+
+
+
+@DUSTCELL
+
+
+【カラオケ配信】
+
+DAMで本日から楽曲の配信がスタートしました。7/7にはMV付きでの配信も始まります
+
+
+＜第1弾＞
+
+・CULT
+
+・アネモネ
+
+・Heaven and Hell
+
+・LAZY
+
+・STIGMA
+
+
+音源配信：6/18（木）
+
+映像配信：7/7（火）
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 4500#       发表于 2020-6-18 14:41
+
+
+
+
+新衣服和3D是最基本的、人人都能享有的、体现公司平等权利的、员工和公司都能负担得起的基本服务<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+

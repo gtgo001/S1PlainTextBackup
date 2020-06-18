@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-18 12:04** 
+> ## **本文件最后更新于2020-06-18 16:04** 
 
 
 
@@ -19914,7 +19914,7 @@ v10， 2342楼</blockquote>
 
 
 S00617-202757.jpg
-(223.2 KB, 下载次数: 0)
+(223.2 KB, 下载次数: 1)
 
 
 
@@ -21026,4 +21026,1422 @@ b还是有点在意的吧，营收都第一了。你b其它不会，蹭热度噶
 
 
 
-         
+
+
+-----
+
+####  离心  
+##### 13202#       发表于 2020-6-18 12:08
+
+
+
+
+看样子真的从#皇那买断皮了?
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13203#       发表于 2020-6-18 12:08
+
+
+
+ 本帖最后由 A2014720 于 2020-6-18 12:24 编辑 
+
+还行<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 13204#       发表于 2020-6-18 12:11
+
+
+
+ 本帖最后由 ashero 于 2020-6-18 12:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47848975&amp;ptid=1929631" target="_blank">离心 发表于 2020-6-18 12:08</a>
+
+看样子真的从#皇那买断皮了?</blockquote>
+买断不是老早的事情 但是直接原皮放游戏我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13205#       发表于 2020-6-18 12:33
+
+
+
+
+上次holo那个联动有啥剧情不，记得pv里好像有联动专属的敌人
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13206#       发表于 2020-6-18 12:36
+
+
+
+
+有剧情不过我全跳了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13207#       发表于 2020-6-18 12:47
+
+
+
+
+用电脑模拟器玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 我手机内存下到一半就炸了。。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13208#       发表于 2020-6-18 12:48
+
+
+
+ 本帖最后由 惑星 于 2020-6-18 12:50 编辑 
+
+更完了诶，可以玩了
+
+草，第一发十连抽到了，对不起各位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/18/125044u54hp4j94b578okz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200618125032.jpg</strong> (897.79 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 12:50 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 诡秘侍者| + 1|好评加鹅|
+| aisakahammer| + 2|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 13209#       发表于 2020-6-18 12:53
+
+
+
+
+¿？
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13210#       发表于 2020-6-18 12:53
+
+
+
+
+这个台词好多啊，联动都这样的吗，第二次就出了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13211#       发表于 2020-6-18 13:01
+
+
+
+
+特殊皮肤有live2d效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13212#       发表于 2020-6-18 13:02
+
+
+
+
+这语音草
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13213#       发表于 2020-6-18 13:02
+
+
+
+
+md海豹滚啊<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13214#       发表于 2020-6-18 13:05
+
+
+
+ 本帖最后由 笋狐 于 2020-6-18 13:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行，20抽。话说这萌音一听草就疯长
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突破语音迷迭迷迭狗绣锦撒吗....
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 13215#       发表于 2020-6-18 13:06
+
+
+
+
+1000万🙄
+
+
+
+
+
+
+6ebb1db3ccd651e0.jpg
+(40.65 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-18 13:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/130609nh4mr4hmh0snguh4.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13216#       发表于 2020-6-18 13:08
+
+
+
+
+看你们说要攒150连，我还以为抽不到了，结果20连就抽到了，挺好出的
+
+40连出了两个
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13217#       发表于 2020-6-18 13:11
+
+
+
+
+皮肤的台词草
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 13218#       发表于 2020-6-18 13:12
+
+
+
+
+wdnmd，歪了8个<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">吃井才出的
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13219#       发表于 2020-6-18 13:15
+
+
+
+
+吐了。。。。
+
+wtm保底
+
+咩不爱我<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+syl   但最后两咩，应该。。。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13220#       发表于 2020-6-18 13:18
+
+
+
+
+也是第一发10连就抽到了（还好还好
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13221#       发表于 2020-6-18 13:23
+
+
+
+
+点取关还有剧情草
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13222#       发表于 2020-6-18 13:26
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/132613f3os33xp37tevz4o.png" referrerpolicy="no-referrer">
+
+
+<strong>-47c85dcbcd56621e.png</strong> (527.94 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 13:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13223#       发表于 2020-6-18 13:27
+
+
+
+
+两发入魂，害，这游戏挺良心的还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13224#       发表于 2020-6-18 13:27
+
+
+
+
+这联动诚意倒是挺高的，那个mea频道笑死我了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13225#       发表于 2020-6-18 13:36
+
+
+
+
+草
+
+<img src="https://img.saraba1st.com/forum/202006/18/133651hmwfzk39k13wtcf3.png" referrerpolicy="no-referrer">
+
+
+<strong>230fdd05556a65ae.png</strong> (147.65 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 13:36 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13226#       发表于 2020-6-18 13:39
+
+
+
+
+这就是魔性动画吗
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/133906oxo4fg0gfnkgx0m0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>76O~7911RC8_3L~G8R9L`2L.jpg</strong> (253.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 13:39 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 13227#       发表于 2020-6-18 13:40
+
+
+
+
+一定是因为之前黑屁她熊猫，结果直接150吃保底了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">把给她3d攒的预算花了一点
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 愛繋璃まつり| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13228#       发表于 2020-6-18 14:04
+
+
+
+
+我逐渐理解一切.jpg
+
+<img src="https://img.saraba1st.com/forum/202006/18/140338n7vwv3t1t5nv72bu.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (78.83 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 14:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Launce  
+##### 13229#       发表于 2020-6-18 14:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一个十连出了2个，接着被活动图吊打了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13230#       发表于 2020-6-18 14:22
+
+
+
+
+突破进化满之后整到60级去推图发现mea的二次冻结伤害真的高（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13231#       发表于 2020-6-18 14:29
+
+
+
+
+草，meu的声音好憨啊
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13232#       发表于 2020-6-18 14:35
+
+
+
+ 本帖最后由 pabier 于 2020-6-18 15:01 编辑 
+
+时精屋打的是meu<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+syl   困难时精屋打的时mea
+
+咩虐狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13233#       发表于 2020-6-18 14:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850591&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-18 14:22</a>
+
+突破进化满之后整到60级去推图发现mea的二次冻结伤害真的高（</blockquote>
+话说这些点技能的材料是在哪刷的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在能刷么
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13234#       发表于 2020-6-18 14:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47850813&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-18 14:42</a>
+话说这些点技能的材料是在哪刷的啊现在能刷么</blockquote>
+活动图就能刷啊，家是lv2，都市后面都是lv3
+
+syl，meu技能太草了，飞盘子飘红sc
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13235#       发表于 2020-6-18 14:48
+
+
+
+
+游戏剧情太良心了，不玩血亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+边看边笑
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 13236#       发表于 2020-6-18 14:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">方舟指令真好玩（
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13237#       发表于 2020-6-18 14:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/145759rmnj30jakxxfxze3.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200618145732.png</strong> (348.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 14:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sakilin2013  
+##### 13238#       发表于 2020-6-18 14:58
+
+
+
+
+活动做得不错，先抽到手，回家慢慢玩了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13239#       发表于 2020-6-18 14:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送盘子给mea，被mea骂了一天，主角的心情上升了（确实会上升
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13240#       发表于 2020-6-18 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47851023&amp;ptid=1929631" target="_blank">记莫更寂寞 发表于 2020-6-18 14:58</a></blockquote>
+草
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13241#       发表于 2020-6-18 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47851023&amp;ptid=1929631" target="_blank">记莫更寂寞 发表于 2020-6-18 14:58</a></blockquote>
+然后立马赠送豆芽菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13242#       发表于 2020-6-18 15:00
+
+
+
+
+真的做的很用心了，有了那个家具以后还能一直进直播间，挺好
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13243#       发表于 2020-6-18 15:01
+
+
+
+
+送礼物的界面，立绘会左右摇摆，神髓有了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13244#       发表于 2020-6-18 15:11
+
+
+
+
+来点gachi内容
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/151100yzd7yynzoodk2o2c.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200618150945.png</strong> (129.66 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:11 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  仓鼠吃火锅  
+##### 13245#       发表于 2020-6-18 15:16
+
+
+
+
+有s1方舟群吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13246#       发表于 2020-6-18 15:20
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/151925hw7c65sqjr6v1zaj.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (44.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:19 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13247#       发表于 2020-6-18 15:21
+
+
+
+
+这游戏内live2d能不能拿到直播用啊,灵动的一批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 13248#       发表于 2020-6-18 15:22
+
+
+
+
+这👀就离谱，卡姿兰大眼睛？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13249#       发表于 2020-6-18 15:24
+
+
+
+
+草
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/152425r61kc606cmrb041i.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200618_152309.png</strong> (710.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:24 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13250#       发表于 2020-6-18 15:26
+
+
+
+
+看贴吧发现居然还有生日
+
+<img src="https://img.saraba1st.com/forum/202006/18/152602h4llzffjbwvjwdlj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>B8B06C56FFEBFF7C0C767FB1491EE2D1.jpg</strong> (26.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:26 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13251#       发表于 2020-6-18 15:28
+
+
+
+
+好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13252#       发表于 2020-6-18 15:31
+
+
+
+
+这联动真上心，我要氪金了<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13253#       发表于 2020-6-18 15:33
+
+
+
+
+话说怎么改待机的角色啊，就是这里这个
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/153318he37y5qse3sk37hf.png" referrerpolicy="no-referrer">
+
+
+<strong>67ac5d61299ea4d1.png</strong> (1.85 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:33 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13254#       发表于 2020-6-18 15:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47851473&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-18 15:33</a>
+
+话说怎么改待机的角色啊，就是这里这个</blockquote>
+左上角，第二页
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13255#       发表于 2020-6-18 15:35
+
+
+
+
+左上角玩家设定的右下角第二页的左边
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13256#       发表于 2020-6-18 15:38
+
+
+
+
+另外这游戏给玩家福利也太好了吧，活动图点一下剩下都能自己挂机过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13257#       发表于 2020-6-18 15:40
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/154032mottxmmfxizai98c.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200618154022.png</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:40 上传
+
+
+
+
+
+
+电 锯 人
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13258#       发表于 2020-6-18 15:43
+
+
+
+
+我流下了感动的眼泪
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13259#       发表于 2020-6-18 15:44
+
+
+
+
+换完待机忽然被输出了一波<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总感觉会吓到人
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/154441h3h6cdxx3axc6kcg.png" referrerpolicy="no-referrer">
+
+
+<strong>-15fe2ee8d89c8a17.png</strong> (808.76 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13260#       发表于 2020-6-18 15:45
+
+
+
+
+原来冲68块钱再肝1万体力就送meu，不冲68的话要肝3万体力（然而并没有准备冲钱
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13261#       发表于 2020-6-18 15:46
+
+，
+
+
+ 本帖最后由 weiweiEX 于 2020-6-18 15:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47851640&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-18 15:45</a>
+
+原来冲68块钱再肝1万体力就送meu，不冲68的话要肝3万体力（然而并没有准备冲钱 ...</blockquote>
+冲68就直接送了啊，不用肝体力
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13262#       发表于 2020-6-18 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47851656&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-18 15:46</a>
+
+冲68就直接送了啊，不用肝体力</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧，没留意，这可真是充话费送的meu（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13263#       发表于 2020-6-18 15:53
+
+
+
+
+中文的草
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/155340yeqzvfnvef5jufmp.png" referrerpolicy="no-referrer">
+
+
+<strong>-2b8a76ea9ec6439c.png</strong> (744.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:53 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13264#       发表于 2020-6-18 15:58
+
+
+
+
+草
+
+<img src="https://img.saraba1st.com/forum/202006/18/155842lugmfbsmyxgjg6ix.png" referrerpolicy="no-referrer">
+
+
+<strong>346f75bfca1928c5.png</strong> (159.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 15:58 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13265#       发表于 2020-6-18 16:01
+
+
+
+
+方舟指令真好玩，已经氪爆了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+45发下去，我咩呢<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13266#       发表于 2020-6-18 16:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47851853&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-18 16:01</a>
+
+方舟指令真好玩，已经氪爆了
+
+45发下去，我咩呢</blockquote>
+抽不到也可以活动刷体力刷出来
+
+
+
+
+
+       
