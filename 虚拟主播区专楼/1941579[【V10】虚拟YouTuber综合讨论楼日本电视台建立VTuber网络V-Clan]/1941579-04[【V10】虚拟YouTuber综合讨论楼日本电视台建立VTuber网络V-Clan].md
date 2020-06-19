@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-19 18:10** 
+> ## **本文件最后更新于2020-06-19 20:10** 
 
 
 
@@ -1214,9 +1214,9 @@ gyg有点太real了
 
 
 啊。
-<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_dkTAR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_It7P7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_casGc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_urjaN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_Nz14T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_TweqN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2468,7 +2468,7 @@ UNO倒确实很有价值。<img src="https://static.saraba1st.com/image/smiley/f
  本帖最后由 alcoholic1000 于 2020-6-18 16:59 编辑 
 
 免费的致歉声明
-<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_CZXym" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_F4XuA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 第一条：まだまだ至らない点多いかとは思いますが、今回頂いた意見から反省を行って、改めてライバーとして頑張って参りますので、温かく見守っていただけますと幸いです。今後ともよろしくお願いいたします！
 
@@ -8520,18 +8520,18 @@ syl，船长直播说傻紫病了 ...</blockquote>
 
 
 我以为你们顺劈呢，原来真的有啊
-<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_b4wOo" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_zs7c2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
 重大発表＆3万人記念枠見にきてくれてありがとーーーー！！！！！！
-<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_iRhpN" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_BXW0N" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 みんなの応援のおかげで新しい姿をもらえることになりました！
 
  お披露目配信まであと3日！！最高のステージにするから絶対見に来てねーーー
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_oMbXX" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_HWdWJ" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 
@@ -17885,7 +17885,7 @@ CY系就算了，傻子才会现在再下场。
 
 md，又是star又是star又是star又是star又是star<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
-<img src="https://pbs.twimg.com/media/Ea002amU8AA4vHK?format=jpg&amp;name=large" id="aimg_nH77g" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea002amU8AA4vHK?format=jpg&amp;name=large" id="aimg_Zd50o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -19270,10 +19270,11 @@ syl，星街收入不和同社比要和谁比？不过星街这sc又不低还有
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 2L模仿47哥|-1|欢乐多|
 | argaregeasr|-1|思路广|
 
 
@@ -21885,6 +21886,25 @@ HOLO算是把读SC带到新高度了，甚至每周都有几次专门读SC的直
 波佬竟然来s1了，最近产出有点快啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这里虽然基本不会劈露露，但还是需要点抗压天赋
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ポップコーン| + 1|之前有看过一段时间的v综，不过很少参与发.|
+
+
+
+查看全部评分
 
 
 
@@ -26735,4 +26755,1352 @@ AA.gif
 
 
 
-    
+
+
+-----
+
+####  帕克桑  
+##### 5871#       发表于 2020-6-19 18:11
+
+
+
+
+不带龙妈玩<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 5872#       发表于 2020-6-19 18:16
+
+
+
+
+okayu，钓クソガキ滴神
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5873#       发表于 2020-6-19 18:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47865978&amp;ptid=1941579" target="_blank">帕克桑 发表于 2020-6-19 18:11</a>
+不带龙妈玩</blockquote>
+龙妈当天有喷喷大会
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5874#       发表于 2020-6-19 18:32
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/183238qnke7oivn77nvu7g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ea3iTaGU0AI9026.jpg</strong> (108.28 KB, 下载次数: 2)
+
+下载附件
+
+2020-6-19 18:32 上传
+
+
+
+
+
+
+[https://twitter.com/Parsley_F/status/1273924566457282560](https://twitter.com/Parsley_F/status/1273924566457282560)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 5875#       发表于 2020-6-19 18:32
+
+
+
+
+谷歌这翻译就离谱，不基德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+熟肉链接https://b23.tv/yCzrl6
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5876#       发表于 2020-6-19 18:34
+
+
+
+<blockquote>黑之和 发表于 2020-6-19 18:32
+谷歌这翻译就离谱，不基德
+
+熟肉链接https://b23.tv/yCzrl6</blockquote>
+聊天消息应景
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 5877#       发表于 2020-6-19 18:35
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-6-19 18:37 编辑 
+
+10w家族工商是真多啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">syl
+<img src="https://pbs.twimg.com/media/Ea1zlTVUwAAeFtI?format=jpg&amp;name=small" id="aimg_z121x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+【参加チーム】
+
+　浅井企画ゲーム部
+
+　くろのわちー
+
+　チーム歌い手
+
+　チームグレープカンパニー
+
+　チームゲーム実況者
+
+　チーム松竹芸能
+
+　チームスターダストプロモーション
+
+　チームストリーマー
+
+　チームホリプロコム
+
+　チームG-Star Gaming＆ふ～ど
+
+　チームKiii
+
+　チームLegion
+
+　チームUUUM
+
+　チームVtuber
+
+　よしもとゲーミング
+
+　AKB48チーム8
+
+
+有虹黑黑千，除此之外还有另一支vtb队伍，大概是李子和哈弟这些半职业？
+[https://panora.tokyo/archives/7318](https://panora.tokyo/archives/7318)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5878#       发表于 2020-6-19 18:38
+
+
+
+
+草，船宝你想干什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5879#       发表于 2020-6-19 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866236&amp;ptid=1941579" target="_blank">alcoholic1000 发表于 2020-6-19 18:35</a>
+10w家族工商是真多啊syl
+
+
+【参加チーム】</blockquote>
+如果rage还记得自己2018年是怎么办活动的，这个vtuber队还是有点可能请大牌的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5880#       发表于 2020-6-19 18:40
+
+
+
+ 本帖最后由 opersuper 于 2020-6-19 18:42 编辑 
+
+祭丝念願的线下3D联动要来了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">小小希happybirthday
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5881#       发表于 2020-6-19 18:40
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-19 18:42 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/184033i6h0lmi1hh11hy0s.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619184015.png</strong> (9.42 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 18:40 上传
+
+
+
+
+
+
+小天使清楚保护协会激怒！
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/184158heulcq4l1bjb4qnb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619184135.png</strong> (4.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 18:41 上传
+
+
+
+
+
+
+一提到胸就跳出来的妈妈
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 5882#       发表于 2020-6-19 18:41
+
+
+
+
+野良猫真是直播界奇才啊...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5883#       发表于 2020-6-19 18:42
+
+
+
+
+昨天才发布的恐怖游戏，空妈今天就要急着播，真是玩恐怖游戏比唱歌还上心，就这样还当偶像呢，傻了吧唧的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 5884#       发表于 2020-6-19 18:44
+
+
+
+
+免费到底多喜欢傻姑娘啊？根本停不下来。
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 5885#       发表于 2020-6-19 18:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866293&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-19 18:40</a>
+祭丝念願的线下3D联动要来了小小希happybirthday</blockquote>
+来点情报？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5886#       发表于 2020-6-19 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866324&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 19:42</a>
+
+昨天才发布的恐怖游戏，空妈今天就要急着播，真是玩恐怖游戏比唱歌还上心，就这样还当偶像呢，傻了吧唧的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看你倒是挺急的
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 5887#       发表于 2020-6-19 18:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866324&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 18:42</a>
+昨天才发布的恐怖游戏，空妈今天就要急着播，真是玩恐怖游戏比唱歌还上心，就这样还当偶像呢，傻了吧唧的 ...</blockquote>
+#免费老哥嘴硬王
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 5888#       发表于 2020-6-19 18:45
+
+
+
+
+视频后半真白：bilibili不是好像有过被说抄袭niconico的时期吗（看到高达种命首第一集“52亿”）感觉已经说不出来这话了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太草生了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5889#       发表于 2020-6-19 18:46
+
+
+
+ 本帖最后由 opersuper 于 2020-6-19 18:50 编辑 
+
+免费为了让空妈的动向repo令更多楼友感兴趣不惜化身影之诗，太噶吃了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 5890#       发表于 2020-6-19 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866358&amp;ptid=1941579" target="_blank">黑之和 发表于 2020-6-19 18:45</a>
+视频后半真白：bilibili不是好像有过被说抄袭niconico的时期吗（看到高达种命首第一集“52亿”）感觉已经说 ...</blockquote>
+那个时代不是大搬运工时代吗，直接贴链接转载的那种<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 5891#       发表于 2020-6-19 18:55
+
+
+
+
+免费哥说空妈傻都好长时间了。
+
+
+来听小护士怪叫
+[https://www.youtube.com/watch?v=4PMRtCYIVV8](https://www.youtube.com/watch?v=4PMRtCYIVV8)
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 5892#       发表于 2020-6-19 18:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866427&amp;ptid=1941579" target="_blank">InvisibleP 发表于 2020-6-19 18:51</a>
+那个时代不是大搬运工时代吗，直接贴链接转载的那种
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 ...</blockquote>
+我记得那时候都是直接简介贴nico链接
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5893#       发表于 2020-6-19 18:57
+
+
+
+
+免费哥大概的确是空妈真爱粉吧。
+
+
+syl，486突击播城市天际线。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5894#       发表于 2020-6-19 19:01
+
+
+
+
+艹，习惯性的读sc，然后发现并没有。
+
+骗了一波会员和虚空sc
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5895#       发表于 2020-6-19 19:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866543&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-19 19:01</a>
+
+艹，习惯性的读sc，然后发现并没有。
+
+骗了一波会员和虚空sc</blockquote>
+赚了十几个会员，还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noHentai  
+##### 5896#       发表于 2020-6-19 19:04
+
+
+
+
+ORICON 2020年上半年Album销量TOP100，集齐期间：2019/12/23付～2020/06/15付（2019/12/09～2020/06/07）
+
+
+NIJISANJI Original Album 「SMASH The PAINT!!」排名42位，半年榜累计销量27,503枚。
+
+Rain Drops 1st Mini Album 「シナスタジア」排名81位，半年榜累计销量20,287枚。
+<img src="https://p.sda1.dev/0/da14fd385d35da7cb615a440edd3b3f6/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5bb75968d6a029e474a2e59c6e521f5f/image.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5897#       发表于 2020-6-19 19:05
+
+
+
+
+以前以为空妈爱玩恐怖游戏是人设，后来特定出来一翻以前的博客，玩个青鬼长篇大论的写老长一篇感想，看来真的是恐怖游戏沉迷者，就这样也别当偶像了，专门当恐怖游戏主播吧，反正人也傻，玩啥都吓不着<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+省一楼，ガッチマン下周和老爱联动，真是有面子
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5898#       发表于 2020-6-19 19:08
+
+
+
+[https://www.bilibili.com/video/BV1zf4y1y7tK/](https://www.bilibili.com/video/BV1zf4y1y7tK/)
+
+Virtual to LIVE - covered by VirtuaReal
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 5899#       发表于 2020-6-19 19:09
+
+
+
+
+免费哥每段话都要提句空妈傻，这是有多喜欢傻姑娘啊
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5900#       发表于 2020-6-19 19:11
+
+
+
+
+居然还在这楼里也发一遍vtl吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5901#       发表于 2020-6-19 19:12
+
+
+
+
+免费的喜好是乡下傻妞，指不定还是个隐藏祭丝呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 5902#       发表于 2020-6-19 19:15
+
+
+
+
+因为前两天提到了所以来点黛灰浓度
+
+今晚九点半搞人格矫正企划  [https://youtu.be/vqQckamEUtc](https://youtu.be/vqQckamEUtc)
+
+“我是最近直播频率下降也不搞引人注目的企划了，你们不是老看我不爽说我这不好那不好吗，那我就直播改给你们看啊”
+
+类似怼厄介粉和anti的企划以前也做过，基本评价都不错
+
+评论出现指示厨就极巨化的宝可梦
+[https://b23.tv/WCYyDF](https://b23.tv/WCYyDF)
+
+为了断绝凸待0人作业连锁的花钱买凸待
+[https://b23.tv/yViDHp](https://b23.tv/yViDHp)
+
+杞忧一切的MC
+[https://b23.tv/UBDMct](https://b23.tv/UBDMct)
+
+
+另外明天播不连语音的观众参加型雪山人狼
+[https://youtu.be/yyPPdPDFY4U](https://youtu.be/yyPPdPDFY4U)
+
+觉得他当年雪山人狼就是靠欺负萌新出风头的人也可以去看看，不好看可以回来给我扣鹅
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5903#       发表于 2020-6-19 19:17
+
+
+
+
+开幕一坨翔草
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5904#       发表于 2020-6-19 19:20
+
+
+
+
+太忙了30w纪念也忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+房子还没找到合适的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5905#       发表于 2020-6-19 19:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866718&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-19 19:17</a>
+
+开幕一坨翔草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">486咳嗽的时候到底是不是地声啊
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5906#       发表于 2020-6-19 19:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866796&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-19 19:24</a>
+
+486咳嗽的时候到底是不是地声啊</blockquote>
+大概也许是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5907#       发表于 2020-6-19 19:28
+
+
+
+
+鸭皇地声去吃辣面回听不就好了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5908#       发表于 2020-6-19 19:29
+
+
+
+
+喂，屑市长，只剩800多元了啊
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5909#       发表于 2020-6-19 19:31
+
+
+
+
+天际线这个游戏我还沉迷过一阵时间，后来电脑带不动了就放掉了。
+
+把钱花光算是新手比较常见的问题了，稍微找点资料看看就不太会这样。
+
+后面的问题一般是跨区开发和交通堵塞。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5910#       发表于 2020-6-19 19:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866834&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-19 19:28</a>
+
+鸭皇地声去吃辣面回听不就好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">拉面回似乎也不是完全地声，那个声音她玩MC用过
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5911#       发表于 2020-6-19 19:33
+
+
+
+
+草，在本社边上建垃圾堆放地，YAGOO激怒
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5912#       发表于 2020-6-19 19:36
+
+
+
+
+饭团也是一坨翔啊草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5913#       发表于 2020-6-19 19:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/193846ietn6ed9ee4bh6vl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200619203826.jpg</strong> (71.54 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 19:38 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">快30%税，屑市长，你紫菜吧!
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5914#       发表于 2020-6-19 19:39
+
+
+
+
+税收 9%--&gt;27%
+
+久 等 了
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 5915#       发表于 2020-6-19 19:39
+
+
+
+
+问下colo哥id叫啥，有点事想跟他请教下
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 5916#       发表于 2020-6-19 19:41
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-19 17:40
+郡道播喷喷练习，跟师匠连上了聊天，有个人评论了句“神田来了啊”（其实不是很像），大概过1秒就被撤销了 ...</blockquote>
+郡道貌似不会出席阿菜3D披露 但是有让大家去看
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5917#       发表于 2020-6-19 19:47
+
+
+
+
+阿菜今晚都说要live为主了，大概率没有嘉宾环节了，毕竟那是没有自定流程的披露用来水时间的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5918#       发表于 2020-6-19 19:50
+
+
+
+
+我才发现明治的频道童田明治四个大字……后面还有平假名注音……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5919#       发表于 2020-6-19 19:52
+
+
+
+
+486这迟早变成哥谭市
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5920#       发表于 2020-6-19 19:55
+
+
+
+
+已经承认是大便了草
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5921#       发表于 2020-6-19 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47866993&amp;ptid=1941579" target="_blank">kangkangsama 发表于 2020-6-19 19:41</a>
+
+郡道貌似不会出席阿菜3D披露 但是有让大家去看</blockquote>
+那把3D放自己日程表了是...姐妹情深啊...
+
+大家也去支持一下11岁的有料之女，要夸要劈最好还是看过再说，听歌听爽了还可以投个SC赞助她今晚回归古战场。
+
+链接[https://www.youtube.com/watch?v=lZBGSVoX9Ec](https://www.youtube.com/watch?v=lZBGSVoX9Ec)
+
+
+
+
+
+
+
+-----
+
+####  frankenstein0  
+##### 5922#       发表于 2020-6-19 20:00
+
+
+
+
+星酱的千人舰长盾到了，打算让yagoo来拍<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5923#       发表于 2020-6-19 20:00
+
+
+
+
+阿菜这待机按照杏式推移4w水平啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 5924#       发表于 2020-6-19 20:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867216&amp;ptid=1941579" target="_blank">frankenstein0 发表于 2020-6-19 20:00</a>
+星酱的千人舰长盾到了，打算让yagoo来拍</blockquote>
+没想到是yagoo出镜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5925#       发表于 2020-6-19 20:02
+
+
+
+
+刚过万，有点难，童田加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5926#       发表于 2020-6-19 20:03
+
+
+
+
+居然没爆破下播
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 5927#       发表于 2020-6-19 20:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">菜姐姐
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5928#       发表于 2020-6-19 20:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">紫宝的音质不对劲
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 5929#       发表于 2020-6-19 20:04
+
+
+
+
+4期生那个剪影合图，无论是2D新衣服还是3D，接下来都是她们的时间了。
+
+如果是3D，我觉得最早也要月底开始，一周一个人吧。龙皇是大杀器，我不认为会是她打头阵，留到第二第三个可能更好。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5930#       发表于 2020-6-19 20:05
+
+
+
+
+这两条飘带向前飘是什么弱智设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 5931#       发表于 2020-6-19 20:06
+
+
+
+
+小红帽这3D看起来挺好看。
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 5932#       发表于 2020-6-19 20:06
+
+
+
+
+小红帽这开场还不错，场景比之前露露，床的好多了（就是唱得不行
+
+
+
+
+
+
+
+-----
+
+####  稀勢のささ  
+##### 5933#       发表于 2020-6-19 20:07
+
+
+
+
+比live时候的3D看着舒服点 但唱的有点菜
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5934#       发表于 2020-6-19 20:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867265&amp;ptid=1941579" target="_blank">Vneet 发表于 2020-6-19 20:04</a>
+
+4期生那个剪影合图，无论是2D新衣服还是3D，接下来都是她们的时间了。
+
+如果是3D，我觉得最早也要月底开始， ...</blockquote>
+同期里订阅最高的首发是传统，一期狐狸二期aqua三期诺艾尔，这次通稿的角色介绍顺序也是龙排第一，如果龙不首发，唯一的理由就是龙自己要求后发了
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 5935#       发表于 2020-6-19 20:09
+
+
+
+
+阿菜是有多喜欢京阿尼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5936#       发表于 2020-6-19 20:09
+
+
+
+
+这捕捉还不稳定阿，还有那种捕捉颤抖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 5937#       发表于 2020-6-19 20:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2w2了，人数还在上涨！
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5938#       发表于 2020-6-19 20:09
+
+
+
+
+阿汤哥和傻紫居然都是用L2D，大脸猫电脑升级了么
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5939#       发表于 2020-6-19 20:10
+
+
+
+
+很可爱！很可爱！很可爱！
+
+耳朵在动！脸很幼！大もも！！！
+
+虽然唱的是一贯的水平，串场的时候还有点词穷紧张了。
+
+但是！很可爱！很可爱！很可爱！
+
+
+
+
+
+  
