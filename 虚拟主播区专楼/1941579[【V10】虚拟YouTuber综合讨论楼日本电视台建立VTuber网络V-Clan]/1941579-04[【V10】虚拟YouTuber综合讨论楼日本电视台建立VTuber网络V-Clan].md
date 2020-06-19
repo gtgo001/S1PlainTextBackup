@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-19 20:10** 
+> ## **本文件最后更新于2020-06-20 00:13** 
 
 
 
@@ -1214,9 +1214,9 @@ gyg有点太real了
 
 
 啊。
-<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_urjaN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_Nz14T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_TweqN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_aMTMm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_Q78BW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_BeBBD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2468,7 +2468,7 @@ UNO倒确实很有价值。<img src="https://static.saraba1st.com/image/smiley/f
  本帖最后由 alcoholic1000 于 2020-6-18 16:59 编辑 
 
 免费的致歉声明
-<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_F4XuA" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_e8m7b" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 第一条：まだまだ至らない点多いかとは思いますが、今回頂いた意見から反省を行って、改めてライバーとして頑張って参りますので、温かく見守っていただけますと幸いです。今後ともよろしくお願いいたします！
 
@@ -8520,18 +8520,18 @@ syl，船长直播说傻紫病了 ...</blockquote>
 
 
 我以为你们顺劈呢，原来真的有啊
-<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_zs7c2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_p9zAN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
 重大発表＆3万人記念枠見にきてくれてありがとーーーー！！！！！！
-<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_BXW0N" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_ADqZa" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 みんなの応援のおかげで新しい姿をもらえることになりました！
 
  お披露目配信まであと3日！！最高のステージにするから絶対見に来てねーーー
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_HWdWJ" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_Q2Zhi" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 
@@ -17885,7 +17885,7 @@ CY系就算了，傻子才会现在再下场。
 
 md，又是star又是star又是star又是star又是star<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
-<img src="https://pbs.twimg.com/media/Ea002amU8AA4vHK?format=jpg&amp;name=large" id="aimg_Zd50o" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea002amU8AA4vHK?format=jpg&amp;name=large" id="aimg_uGzc6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -26901,7 +26901,7 @@ okayu，钓クソガキ滴神
  本帖最后由 alcoholic1000 于 2020-6-19 18:37 编辑 
 
 10w家族工商是真多啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">syl
-<img src="https://pbs.twimg.com/media/Ea1zlTVUwAAeFtI?format=jpg&amp;name=small" id="aimg_z121x" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea1zlTVUwAAeFtI?format=jpg&amp;name=small" id="aimg_TNT01" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 【参加チーム】
 
@@ -28103,4 +28103,1128 @@ Virtual to LIVE - covered by VirtuaReal
 
 
 
-  
+
+
+-----
+
+####  某穆克拉  
+##### 5940#       发表于 2020-6-19 20:10
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-19 20:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867331&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-19 20:09</a>
+
+阿汤哥和傻紫居然都是用L2D，大脸猫电脑升级了么</blockquote>
+holo疫情期间做了多人同屏可动吧，应该对硬件要求不那么高了。
+
+时雨妈和小天使的兔子旅行开始了，不过也差不多到头了。
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 5941#       发表于 2020-6-19 20:10
+
+
+
+
+这模型的乳袋真是太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5942#       发表于 2020-6-19 20:12
+
+
+
+
+天皇给你让路你就打出2w5？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5943#       发表于 2020-6-19 20:13
+
+
+
+
+这高音没上去可太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 5944#       发表于 2020-6-19 20:13
+
+
+
+
+这两条带子可太出戏了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5945#       发表于 2020-6-19 20:13
+
+
+
+
+真好啊真好啊，我觉得和sasaki是差不多水平了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5946#       发表于 2020-6-19 20:14
+
+
+
+
+这假声转的，让我想到蘑菇人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5947#       发表于 2020-6-19 20:14
+
+
+
+ 本帖最后由 aele 于 2020-6-19 20:15 编辑 
+
+同屏双l2d很早就有了
+
+只有少数情况才会开
+
+疫情期间才升级多人同屏，我记得还是星那边的联动最先开的？
+
+
+
+
+syl   阿菜这3d挺可爱啊，但是你们不是说大莱莱么，怎么穿模了。。。
+
+
+
+
+
+
+
+
+-----
+
+####  Aluminium  
+##### 5948#       发表于 2020-6-19 20:14
+
+
+
+
+辫子和飘带疯狂穿模有点受不了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 5949#       发表于 2020-6-19 20:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点图啊，在外面看不了
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5950#       发表于 2020-6-19 20:15
+
+
+
+
+这唱到断气卡壳<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5951#       发表于 2020-6-19 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867378&amp;ptid=1941579" target="_blank">暴走的包子 发表于 2020-6-19 20:14</a>
+
+来点图啊，在外面看不了
+
+
+—— 來自 samsung SM-N9750, Android 10上的 S1Next-鵝版 v2.2.2.1 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/19/201553c65xc6l2c5jbvax2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619201535.png</strong> (1.06 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 20:15 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/201554ln00bgi2nb9g5zog.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619201539.png</strong> (648.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 20:15 上传
+
+
+
+
+
+
+随便截的
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5952#       发表于 2020-6-19 20:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 没有连麦环节的话，我就继续加班干活了，不看了，不好意思啊
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5953#       发表于 2020-6-19 20:16
+
+
+
+
+但同接太惨了吧，真就2w5上不去了啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 5954#       发表于 2020-6-19 20:17
+
+
+
+
+这唱的，该这么低同接。
+
+但是心为什么会这么痛<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5955#       发表于 2020-6-19 20:17
+
+
+
+
+食杀了兔皇+5W，四舍五入算个10W好不好
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5956#       发表于 2020-6-19 20:18
+
+
+
+
+没有重量感的穿模胸部 草，
+
+有一说一我觉得舞台效果要背锅，至少来点灯光效果阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5957#       发表于 2020-6-19 20:18
+
+
+
+
+阿菜还做做动作。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5958#       发表于 2020-6-19 20:18
+
+
+
+
+其实还是在涨的，我估计半小时到3w应该还有戏。
+
+
+
+
+
+
+
+-----
+
+####  Aluminium  
+##### 5959#       发表于 2020-6-19 20:18
+
+
+
+
+奈子大的都穿模了...
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 5960#       发表于 2020-6-19 20:18
+
+
+
+ 本帖最后由 Alphawalker 于 2020-6-19 20:29 编辑 
+
+阿菜啊，别唱了
+
+
+syl
+
+dustcell新曲 记岔了，是碟曲
+[https://youtu.be/M1bffwKAcHU](https://youtu.be/M1bffwKAcHU)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5961#       发表于 2020-6-19 20:19
+
+
+
+
+唱的太菜了，等连麦环节吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 5962#       发表于 2020-6-19 20:19
+
+
+
+
+狗狗的时候上live啊
+
+啊菜也太啊菜了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 5963#       发表于 2020-6-19 20:20
+
+
+
+
+等等，我以为阿床那长袖子大袍子穿模也就算了，
+
+明治这么短的裙子也能穿模的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5964#       发表于 2020-6-19 20:22
+
+
+
+
+这穿模过场图。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5965#       发表于 2020-6-19 20:22
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/202227dd6ti16k99jgkd66.png" referrerpolicy="no-referrer">
+
+
+<strong>2210.png</strong> (18.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 20:22 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">阿菜！对这相信你的84人道歉！
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5966#       发表于 2020-6-19 20:23
+
+
+
+
+喂这飘带不是可以在后面飘么
+
+
+
+
+
+
+
+-----
+
+####  qw945  
+##### 5967#       发表于 2020-6-19 20:24
+
+
+
+
+阿菜这就到极限了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不太行啊，外援快来
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5968#       发表于 2020-6-19 20:24
+
+
+
+
+菜和床歌力差距有数字这么大么
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5969#       发表于 2020-6-19 20:25
+
+
+
+
+2w8，还在涨！
+
+加油啊，至少到3w啊，我这个杏仁都在看了！
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5970#       发表于 2020-6-19 20:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867500&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-19 20:24</a>
+
+菜和床歌力差距有数字这么大么</blockquote>
+听起来有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 5971#       发表于 2020-6-19 20:25
+
+
+
+ 本帖最后由 NBXX 于 2020-6-19 20:58 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/202525e2b7igb1ibtybg8f.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619212507.png</strong> (871.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 20:25 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/202521ij3g3mmwgdj9z38e.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619212502.png</strong> (902.14 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 20:25 上传
+
+
+
+
+
+唱歌结束的这里，还有那几个过场挺适合做gif的
+
+——————————————————————————————————————
+
+<img src="https://imgkr.cn-bj.ufileos.com/5864d4d6-2701-43a8-ba1a-9b8a57ad87a9.gif" referrerpolicy="no-referrer">
+<img src="https://imgkr.cn-bj.ufileos.com/bb9ea858-3493-423c-888c-6fed9cec084f.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5972#       发表于 2020-6-19 20:26
+
+
+
+
+什么鬼视角。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5973#       发表于 2020-6-19 20:26
+
+
+
+
+卖肉还行，真的要这么拼吗<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5974#       发表于 2020-6-19 20:26
+
+
+
+
+没事阿菜你还有最后一招，趴下露灯笼裤。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 5975#       发表于 2020-6-19 20:27
+
+
+
+
+主要是11岁勇气可嘉...那两首走姐说不定都不敢直接3D现场唱，当然床唱得确实比11岁好。
+
+随便劈一下dustcell，就这？不考虑出个狂兽再救救销量吗？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5976#       发表于 2020-6-19 20:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">咱觉得等会2000就要出来说输给了木口纸片人了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5977#       发表于 2020-6-19 20:28
+
+
+
+
+兔子先生（们）开始了门口短短的遛弯。
+
+果然小天使的游戏回都是杂谈回，哪怕是联动也不例外。
+
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 5978#       发表于 2020-6-19 20:28
+
+
+
+
+怕是还要输给杏星3D哦<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 5979#       发表于 2020-6-19 20:29
+
+
+
+
+阿菜这么菜我是没想到。我心想再怎么5万应该还是有
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5980#       发表于 2020-6-19 20:29
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/202904s0dqdn2gpz3nr4fp.png" referrerpolicy="no-referrer">
+
+
+<strong>000.png</strong> (1016.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 20:29 上传
+
+
+
+
+
+
+截到张不错的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5981#       发表于 2020-6-19 20:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867518&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-19 20:26</a>
+
+没事阿菜你还有最后一招，趴下露灯笼裤。</blockquote>
+艹，奶中了。
+
+虽然是坐下来的。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5982#       发表于 2020-6-19 20:30
+
+
+
+
+明治这3d质量还行啊，就是那胸完全没真实感。灯笼裤有什么看的必要（暴言）
+
+
+
+
+
+
+
+-----
+
+####  Badwoman  
+##### 5983#       发表于 2020-6-19 20:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好久没看 绿帽坛的彩虹斗虫楼怎么都没人讲话了
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 5984#       发表于 2020-6-19 20:31
+
+
+
+
+灯笼裤做的正好有什么用 莱莱做的好一点啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 5985#       发表于 2020-6-19 20:31
+
+
+
+
+好了好了可以了，已经够尬了，这个环节该过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nocode  
+##### 5986#       发表于 2020-6-19 20:31
+
+
+
+
+这么大却不能摇，不是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+一动起来这俩的刚体感就爆棚了，差评<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5987#       发表于 2020-6-19 20:31
+
+
+
+
+啊虹的3D是只有半小时吗？怎么人数开始掉了。。
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 5988#       发表于 2020-6-19 20:32
+
+
+
+
+是不是因为不像roa一样有人指导，感觉只有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">的感觉
+
+
+
+
+
+
+
+-----
+
+####  落雪无痕  
+##### 5989#       发表于 2020-6-19 20:32
+
+
+
+
+这环节好虚无。。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5990#       发表于 2020-6-19 20:32
+
+
+
+
+看你们虐菜让我感觉阿菜好可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5991#       发表于 2020-6-19 20:32
+
+
+
+
+这嘴闭不上啊。。。。。。。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 5992#       发表于 2020-6-19 20:33
+
+
+
+
+不能摇还有什么价值<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5993#       发表于 2020-6-19 20:33
+
+
+
+
+不是，是标准流程，现在在凹造型配台词部分，觉得没意思的人跑路很正常啊，芙蕾雅那次也上上下下的
+
+之后应该有亲友出击，希望gibara能拯救世界
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5994#       发表于 2020-6-19 20:33
+
+
+
+
+有出过能摇的3d模型么，谁的啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5995#       发表于 2020-6-19 20:33
+
+
+
+
+同接往下掉了。。。。没注意，咱看到峰值29600，有上30000么
+
+
+这胸怎么不会摇啊。。。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 5996#       发表于 2020-6-19 20:34
+
+
+
+
+可别吹星，星超过5千我都意外。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 5997#       发表于 2020-6-19 20:35
+
+
+
+
+不是，你们不是说阿菜是歌力守门员吗？这么守的？来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 5998#       发表于 2020-6-19 20:35
+
+
+
+
+这个太硬了 根本不会动啊 不用摇的太过分 稍微动一动 才是真的好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 要的就是那种软sq的感觉
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5999#       发表于 2020-6-19 20:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 出来抽根烟看了下，**还不如龙妈的那个欧派，太失望了，
+
+
+阿菜实在不行来批站限定3D一波吧，把批站热门舞蹈从头到尾跳一遍，
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 6000#       发表于 2020-6-19 20:35
+
+
+
+
+486又要多个爹了嘛
+
+
+
+
+
