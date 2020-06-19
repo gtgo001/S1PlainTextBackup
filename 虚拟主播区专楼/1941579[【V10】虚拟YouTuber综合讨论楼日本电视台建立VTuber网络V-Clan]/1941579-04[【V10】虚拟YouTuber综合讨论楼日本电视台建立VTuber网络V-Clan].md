@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-19 12:09** 
+> ## **本文件最后更新于2020-06-19 14:08** 
 
 
 
@@ -1214,9 +1214,9 @@ gyg有点太real了
 
 
 啊。
-<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_g5FqZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_VzsEF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_A9PTP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/425ed0077496c5dbe9ae053fd635ffc1/IMG_20200618_150409.JPG" id="aimg_gP7Le" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/ea4893c2977e0a0e8168bc9efd0a6cc2/IMG_20200618_150726.JPG" id="aimg_GPKqt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/9520751c40666ed6c870b86e17040e1c/IMG_20200618_154313.JPG" id="aimg_bAYIc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2468,7 +2468,7 @@ UNO倒确实很有价值。<img src="https://static.saraba1st.com/image/smiley/f
  本帖最后由 alcoholic1000 于 2020-6-18 16:59 编辑 
 
 免费的致歉声明
-<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_Et4g1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Eaw6gbhU4AAMvql?format=jpg&amp;name=small" id="aimg_XgDdc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 第一条：まだまだ至らない点多いかとは思いますが、今回頂いた意見から反省を行って、改めてライバーとして頑張って参りますので、温かく見守っていただけますと幸いです。今後ともよろしくお願いいたします！
 
@@ -8520,18 +8520,18 @@ syl，船长直播说傻紫病了 ...</blockquote>
 
 
 我以为你们顺劈呢，原来真的有啊
-<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_o5TT4" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EazADYUVcAAubVt?format=jpg&amp;name=medium" id="aimg_i9Lxq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
 重大発表＆3万人記念枠見にきてくれてありがとーーーー！！！！！！
-<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_E2UgE" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/2728.svg" height="27" id="aimg_i8T4i" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 みんなの応援のおかげで新しい姿をもらえることになりました！
 
  お披露目配信まであと3日！！最高のステージにするから絶対見に来てねーーー
-<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_eDJVj" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f64c.svg" height="27" id="aimg_p5zso" onclick="zoom(this, this.src, 0, 0, 0)" width="27"/)
 
 
 
@@ -13938,7 +13938,7 @@ https://www.youtube.com/watch?v=bLSH2uYVFA4
 
 
 
- 本帖最后由 Viden 于 2020-6-19 00:26 编辑 
+ 本帖最后由 Viden 于 2020-6-19 13:34 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47857254&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-19 00:18</a>
 他说的新L2D吧，手岛爹自己说星街打回去改了很多遍又自己加了很多东西，算是虚拟堵门了。
 
@@ -13946,6 +13946,7 @@ https://www.youtube.com/watch?v=bLSH2uYVFA4
 SYL：</blockquote>哦哦。
 
 就记得她有一次T99耐久念过sc。（貌似还是故意耐久不让老姐吃饭）
+翻了一下，以前也只是偶尔念。
 
 
 
@@ -14872,6 +14873,25 @@ syl 免费这逻辑滑坡简直了，谁说过大家都必 ...</blockquote>
 
 外行评论说两句个人喜不喜欢就完了，少不懂装懂分析个jb分析<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| YODOboi| + 1||
+
+
+
+查看全部评分
 
 
 
@@ -17172,6 +17192,25 @@ twitch上游戏主播一般会感谢donate吧
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|sub也会谢|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17846,7 +17885,7 @@ CY系就算了，傻子才会现在再下场。
 
 md，又是star又是star又是star又是star又是star<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
-<img src="https://pbs.twimg.com/media/Ea002amU8AA4vHK?format=jpg&amp;name=large" id="aimg_r2S43" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea002amU8AA4vHK?format=jpg&amp;name=large" id="aimg_h6wiW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18423,11 +18462,11 @@ nico那边显示方式不一样，是来场数什么的，不好比较吧
 
 
 
- 本帖最后由 猫島かおる 于 2020-6-19 12:08 编辑 
+ 本帖最后由 猫島かおる 于 2020-6-19 12:11 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861219&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-19 12:03</a>
 
 怎么我挂着梯子这楼里的图片反而更容易刷出来啊，图床到底在哪儿的</blockquote>
-不同人用的图床是不一样的吧。我一般用s1唯一指定图床路过。我翻了前几页，有人用流量图床，用新浪，用s1服务器的。
+不同人用的图床是不一样的吧。我一般用s1唯一指定图床路过。我翻了前几页，有人用流浪图床，用新浪，用s1服务器的。
 
 
 
@@ -18519,4 +18558,2548 @@ Nico的广告最恶心海外代理了，不开全局就会卡在广告那一步�
 
 
 
-                  
+
+
+-----
+
+####  渡鸦骑士  
+##### 5436#       发表于 2020-6-19 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861252&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-19 12:05</a>
+
+没用过图床，一直是用的附件上传模式。syl，隔壁星楼在杞忧星街收入问题，有你楼那味儿了。 ...</blockquote>
+就那一位罢了，那位看起来有点奇妙，明明对星街理解有点问题，还一个劲的担心……
+
+还是个明显的数字厨，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5437#       发表于 2020-6-19 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你们太乐观了，4w最多
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5438#       发表于 2020-6-19 12:11
+
+
+
+ 本帖最后由 tiro_finale 于 2020-6-19 12:12 编辑 
+
+虹最近数据还不错，ド葛本社硬实力上5w，万棒、两万棒也不少
+不过3D联动拉胯了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5439#       发表于 2020-6-19 12:12
+
+
+
+
+作为木口今年上半年的主推产品，星街要是还赚不到钱，yagoo怕是要清洗一遍staff了
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 5440#       发表于 2020-6-19 12:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而是星街堵staff的门不是staff堵星街的门啊，你们对staff也太不友好了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5441#       发表于 2020-6-19 12:17
+
+
+
+
+阿菜应该比不过多葛本社，毕竟按现在的同接来看社皇和葛皇是虹现在最强的两个虹男
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5442#       发表于 2020-6-19 12:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Vtuber達との戦いが始まる，怎么感觉少人
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5443#       发表于 2020-6-19 12:20
+
+
+
+
+这图你们发了三遍了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+少人随意，主要是kerin爬
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5444#       发表于 2020-6-19 12:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是觉得少人才发的，而且感觉挺迷惑的
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 5445#       发表于 2020-6-19 12:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47860966&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-19 11:45</a>
+我没疯，定向顺劈而已，祭丝要是能正常些，我也会像以前一样把想到的不基德的话、在发出去前删掉的
+
+
+被alo ...</blockquote>
+？什么时候的事情
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5446#       发表于 2020-6-19 12:24
+
+
+
+
+星街确实没有单纯靠直播挣大钱的本事，她自己也知道。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5447#       发表于 2020-6-19 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861474&amp;ptid=1941579" target="_blank">AloissiolA 发表于 2020-6-19 12:21</a>
+
+？什么时候的事情</blockquote>
+夸张了一下，就玩梗被你说阴湿那次，已经改过自新了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  宫宝兔丁  
+##### 5448#       发表于 2020-6-19 12:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861474&amp;ptid=1941579" target="_blank">AloissiolA 发表于 2020-6-19 12:21</a>
+
+？什么时候的事情</blockquote>
+你这个号放出来到刚刚我每次看到你都在想签名是什么歌，终于想起来了
+
+邀请大家一起来听Alo哥的签名档
+
+【オリジナルMV】haze / メリッサ・キンレンカ
+[https://www.youtube.com/watch?v=hhXeNNxovSE](https://www.youtube.com/watch?v=hhXeNNxovSE)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5449#       发表于 2020-6-19 12:32
+
+
+
+
+既然线上握手券，那看看谁的握手券比较便宜。
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/123233q666c606aj6brkvm.png" referrerpolicy="no-referrer">
+
+
+<strong>1592541045(1).png</strong> (23.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 12:32 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 5450#       发表于 2020-6-19 12:33
+
+
+
+
+说来木口彩虹和文化放送搞得这类电台番组，是电台那边给管人出场费，还是管人这边出钱买时段？
+
+阿B那边的BW BSL之类的活动呢
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5451#       发表于 2020-6-19 12:34
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/123433fododpuiowdio8is.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-19 123343.png</strong> (96.92 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 12:34 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5452#       发表于 2020-6-19 12:35
+
+
+
+
+cover？？？
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5453#       发表于 2020-6-19 12:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861645&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-19 12:34</a></blockquote>
+这个light up app也是v的事务所吗
+
+cover为啥还谈不好啊，不想交罚金？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5454#       发表于 2020-6-19 12:43
+
+
+
+
+星街还不算赚了大钱需要杞忧，真是有先赚一个小目标内味了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5455#       发表于 2020-6-19 12:43
+
+
+
+ 本帖最后由 opersuper 于 2020-6-19 12:45 编辑 
+
+yagoo也是白嫖党啊，这不是国内白嫖着B站那么多字幕组呢，点这种放着几年的海盗组不要强行另开官方的操作太傻冒了
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 5456#       发表于 2020-6-19 12:44
+
+
+
+
+要不说cover废物啊
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 5457#       发表于 2020-6-19 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47860396&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 11:02</a>
+nico为什么这么辣鸡说来可太长了，转个外野讨论nico的帖看看，反正今年居然扭亏为盈了，都不知怎么做到的 ...</blockquote>
+因为疫情大家在家看视频多了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 5458#       发表于 2020-6-19 12:44
+
+
+
+
+阿夸打钱多的很多企划经常都不读sc直接下播，所以从观众出发其实成本比这个更高一点点。
+
+
+syl，cover运营，best运营！为主播不被老任剥削而努力的运营，酷毙了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5459#       发表于 2020-6-19 12:45
+
+
+
+
+10个yagoo乘上10个田角也five不过川上量升啊。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5460#       发表于 2020-6-19 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47859474&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-19 09:52</a>
+
+スパチャ動物園的遗毒如此深远
+
+苔姨你好强大</blockquote>
+读sc也要苔宝背锅吗，气冷抖，苔宝什么时候才能站起来
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5461#       发表于 2020-6-19 12:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861740&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 12:43</a>
+
+星街还不算赚了大钱需要杞忧，真是有先赚一个小目标内味了</blockquote>
+nga跟同社比挺离谱的
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5462#       发表于 2020-6-19 12:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是杏星这套3d价格不菲吧
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5463#       发表于 2020-6-19 12:48
+
+
+
+
+个人觉得读sc是tc主播感谢礼物带来的遗毒
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 5464#       发表于 2020-6-19 12:49
+
+
+
+
+但是有一说一，龙宝sc吐槽挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 5465#       发表于 2020-6-19 12:51
+
+
+
+
+这哪里来的18线小箱都谈妥了，yagoo还不快点把屁股给老任献出来<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5466#       发表于 2020-6-19 12:53
+
+
+
+
+还遗毒呢，有的没SC分红企业势，遇到SC都要当场给反应的，也就某虹某些人自认高贵一些、还有某点以前也想着故作高贵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5467#       发表于 2020-6-19 12:53
+
+
+
+
+读sc这种大家都开心的事也是遗毒吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，星街收入不和同社比要和谁比？不过星街这sc又不低还有b站收入，以后还会作为holo各种上镜活动的排面有个p的收入问题
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5468#       发表于 2020-6-19 12:53
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-19 12:55 编辑 
+
+风怒，不爱赚钱也别嫌弃别人赚钱
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5469#       发表于 2020-6-19 12:55
+
+
+
+
+18线小箱能有多少油水、和木口这种大肥鱼可不同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5470#       发表于 2020-6-19 12:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥老车读不读sc的问题，别人给我钱我感谢人家这不是天经地义的事情？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5471#       发表于 2020-6-19 12:57
+
+
+
+
+我觉得yagoo再看两个月没任任播也不影响收入估计这事儿就摸了，谁还不是个守财奴呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5472#       发表于 2020-6-19 12:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer"> 倒不如说月之的钱哪里来的，非常可疑，我怀疑田角骗风投，和月之俩人职务侵占
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5473#       发表于 2020-6-19 12:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861906&amp;ptid=1941579" target="_blank">kbtit 发表于 2020-6-19 12:56</a>
+
+为啥老车读不读sc的问题，别人给我钱我感谢人家这不是天经地义的事情？ ...</blockquote>
+可能有的人认为主播是人上人吧，而人下人给打的钱人上人不需要给反应才是最好的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5474#       发表于 2020-6-19 12:59
+
+
+
+
+还遗毒呢，要不要反过来车“读SC是职业素养，不读的不PRO”
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5475#       发表于 2020-6-19 13:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861951&amp;ptid=1941579" target="_blank">バーチャルS1er 发表于 2020-6-19 12:58</a>
+
+可能有的人认为主播是人上人吧，而人下人给打的钱人上人不需要给反应才是最好的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer"> 太监给皇帝上贡，难道还要皇帝谢你一番不成吗？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5476#       发表于 2020-6-19 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47861966&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-19 12:59</a>
+
+还遗毒呢，要不要反过来车“读SC是职业素养，不读的不PRO”</blockquote>
+那你别说，苔宝就是这么鼓吹的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+事实是除了杏的某些数钱到手软的人，其他人根本连念sc倒逼直播本身的机会都没有。
+
+谁不想被打钱打到不能下播呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 5477#       发表于 2020-6-19 13:02
+
+
+
+
+之前还说买方市场，今天主播就成皇帝了
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5478#       发表于 2020-6-19 13:02
+
+
+
+
+那读sc是tc主播感谢礼物而延伸过来的高尚品质，比国内老板大气高了不知道多少层次
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5479#       发表于 2020-6-19 13:02
+
+
+
+
+19年SC女王当时也没读过SC啊 怎么了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5480#       发表于 2020-6-19 13:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把主播当皇帝这个头，是不是点人开创的，还是虹人开创的
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5481#       发表于 2020-6-19 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862035&amp;ptid=1941579" target="_blank">激光2000 发表于 2020-6-19 13:05</a>
+
+把主播当皇帝这个头，是不是点人开创的，还是虹人开创的</blockquote>
+那上供的钱呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 5482#       发表于 2020-6-19 13:08
+
+
+
+
+V综不是定过性了么，虚拟握手券。现实握手券搞得虚拟当然也搞得，当然，这既谈不上什么天经地义也谈不上什么天下大忌
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5483#       发表于 2020-6-19 13:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862057&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-19 13:07</a>
+
+那上供的钱呢就这？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">“ 彩虹日报卖周边的钱都给月之打sc了，”
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5484#       发表于 2020-6-19 13:10
+
+
+
+
+去打SC本身就代表了对这次直播的认可了才会去打，好比买票看一场演出，演出的节目效果本身就是票价，难道还必须演出结束后所有staff上台挨个读“感谢观众A买票看我们演出”“感谢观众B买票看我们演出”？
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 5485#       发表于 2020-6-19 13:16
+
+
+
+
+早期真人管人感谢sc更多还是基于“广告费是票价，sc是额外的表达观众对主播支持的行为”的基础上的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5486#       发表于 2020-6-19 13:16
+
+
+
+
+图文无关
+
+<img src="https://img.saraba1st.com/forum/202006/19/131420ob4911ncb46q9ykd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>v.jpg</strong> (123.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 13:14 上传
+
+
+
+
+
+
+
+
+挨个谢当然不是必要的，都是自发行为，但我不觉得说句谢谢就损了自己的品格（舔石油王是另一回事），不如说是比较礼貌的行为，长期坚持这么做是需要一点毅力的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5487#       发表于 2020-6-19 13:17
+
+
+
+
+现在念sc最多的那批，平时的直播时长也没砍掉吧，直播内容也没很差吧，直播时候也没说不理普通留言吧，乐意加个班读sc而已。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5488#       发表于 2020-6-19 13:18
+
+
+
+
+那就是一些为了“届到”才打SC的不良粉丝导致了业界形成这种风气
+
+这届观众不行
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5489#       发表于 2020-6-19 13:18
+
+
+
+
+把sc（尤其是杏头部）等同于直播门票的认知根本不符合打钱韭菜的思路。有这种认识的观众一般也不太会打钱。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5490#       发表于 2020-6-19 13:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看狗子就没怎么来过B站但是风评还相当好就是情商高的操作造成的啊
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 5491#       发表于 2020-6-19 13:19
+
+
+
+
+yyf现在联动中有飞机礼物还要专门yy闭麦谢谢xxx的飞机呢，杏这边至少联动不会念sc吧
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 5492#       发表于 2020-6-19 13:21
+
+
+
+
+https://live.bilibili.com/21320551
+
+oto两天B限就把mojito学会了 rap毫无压力 tql
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5493#       发表于 2020-6-19 13:21
+
+
+
+
+其实我现在都不怎么敢在润润那打一时兴起的小额SC了。<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 5494#       发表于 2020-6-19 13:21
+
+
+
+
+刚看到lightup和任谈妥了，看到yagoo真的不行
+
+
+刚才算了下光sc这一项holo都有7亿多，另外算会员、周边、工商还有赚大头的音声，holo这几年下来赚的钱应该有十多亿吧。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 5495#       发表于 2020-6-19 13:22
+
+
+
+
+所以到底是谁带起的这股风气，搞得其他人不读的话还有点不好意思，兔子，是你吗！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5496#       发表于 2020-6-19 13:23
+
+
+
+
+这几年（指两年）
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5497#       发表于 2020-6-19 13:25
+
+
+
+
+作为观众来讲看管人就是不需要成本都是白嫖啊，比如人型MV下边那么长一串staff名单，这是V界最高质量的原创曲和MV之一，费了几十号staff几个月折腾出来的，我花4分钟就看完了还不要钱。
+
+所以花钱买蓝之华专辑买票看live转播，是因为专辑和live的质量是值得的，难道要姬雏俩人上台专门来念“感谢free哥哥买票看我们live买蓝之华”，不念我就不买了？
+
+对于直播势也是一个意思，你觉得不好看就不打SC，本来就是白看节目后付费，打SC本身就表示了对节目的认可。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5498#       发表于 2020-6-19 13:28
+
+
+
+ 本帖最后由 あのん 于 2020-6-19 13:34 编辑 
+
+免费老哥这就是在偷换概念
+
+我打SC是为了让我的钱变成推し的血和肉，变成器材和游戏，开房的时候买套也行
+
+和节目质量没有半毛钱关系
+
+狗屁节目效果，我都看管人了还在意节目效果？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5499#       发表于 2020-6-19 13:29
+
+
+
+
+免费你这样强行类比挺怪的，那我举个例子吧
+
+龙之前的生日直播，本质是线上生日会，发SC基本都是祝生日快乐，别人参加生日会祝你生日快乐，回一句感谢不是很正常吗
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5500#       发表于 2020-6-19 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862288&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 13:25</a>
+
+作为观众来讲看管人就是不需要成本都是白嫖啊，比如人型MV下边那么长一串staff名单，这是V界最高质量的原创 ...</blockquote>
+但是现在打sc最狠的那些人都不是这个思路吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5501#       发表于 2020-6-19 13:32
+
+
+
+
+按照免费的思路，歌势和游戏职业哥应该拿到最高的sc，其次是企划势。实际上嘛。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5502#       发表于 2020-6-19 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862354&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-19 13:29</a>
+
+免费你这样强行类比挺怪的，那我举个例子吧
+
+龙之前的生日直播，本质是线上生日会，发SC基本都是祝生日快乐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咱觉得这事要分场景，整活企划和节目性直播的SC肯定是【好看，白嫖太不够意思了，我给钱！】
+
+
+类似生日或者X万凸待感谢下没毛病，不过这有点不好划分，因为也有在这种情况下搞整活企划
+
+
+导致节目效果爆表的类型存在
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 5503#       发表于 2020-6-19 13:33
+
+
+
+
+可打钱的并不那么想啊
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5504#       发表于 2020-6-19 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">   把直播势类比节目感觉还不如去类比主播，反正套皮主播了，我看国内主播打个礼物都要在直播里说下感谢，读SC是在正常做完节目后才读一下，不想看这部分的观众直接关了就行了，对比起来体验已经是加强的。
+
+当然要说不好就是对主播嗓子不好，SC大户SC太多了读的时间比直播时间长了还读不完，还有个一种问题就是有空读SC为啥不用这些时间接着播，这个比较无解，那种杂谈力强的把SC变成杂谈SC倒是还好点。
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 5505#       发表于 2020-6-19 13:33
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5506#       发表于 2020-6-19 13:34
+
+
+
+
+以后可能就能在视频里打SC了 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/133351kqyfpfvd2d8yd0ep.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-19 133339.png</strong> (125.16 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 13:33 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5507#       发表于 2020-6-19 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862416&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-19 13:33</a>
+
+把直播势类比节目感觉还不如去类比主播，反正套皮主播了，我看国内主播打个礼物都要在直播里说下 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">实际上不少人都是一读SC同接掉的稀里哗啦
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5508#       发表于 2020-6-19 13:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862354&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-19 13:29</a>
+
+免费你这样强行类比挺怪的，那我举个例子吧
+
+龙之前的生日直播，本质是线上生日会，发SC基本都是祝生日快乐 ...</blockquote>
+那我明天也油管直播生日会，有人给我打钱吗，打钱的本质还是对节目的认可。龙皇天天费那么大劲做早安可可，所有的观众都是白嫖看的，你可以理解成早安可可的票价打在这里了，无非是生日会有个集中收的由头，人家天天做节目给你看，观众如觉得好看打SC当感谢不也很正常吗。
+
+本来都是先看后付费，打SC行为本身就是节目票价了，觉得节目不好看当然可以不打。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5509#       发表于 2020-6-19 13:34
+
+
+
+
+免费就是个智障罢了，这言论比昨天的衣服越简洁越好更弱智<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5510#       发表于 2020-6-19 13:34
+
+
+
+
+现在不少打钱的思路不就是上供或者为了届到吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 5511#       发表于 2020-6-19 13:35
+
+
+
+
+SC不是什么节目票，是直播互动。说完了。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5512#       发表于 2020-6-19 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862410&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-19 13:33</a>
+
+咱觉得这事要分场景，整活企划和节目性直播的SC肯定是【好看，白嫖太不够意思了，我给钱！】
+
+
+类 ...</blockquote>
+是，我只是举个极端例子，因为免费的例子就很极端
+
+所以谢和不谢都可以，想谢就谢，不想谢也随便，只是想论证谢这个动作是合理、也不丢人的
+
+
+拿谢SC说事不如说说ghs什么的，那我是真没啥好反驳的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 5513#       发表于 2020-6-19 13:36
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/133612qtkljz5kufmv77am.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-c5knK2sT1kShs-124.jpg</strong> (100.49 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 13:36 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 5514#       发表于 2020-6-19 13:36
+
+
+
+
+那有的anti为什么要打sc厄介呢
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 5515#       发表于 2020-6-19 13:36
+
+
+
+
+推歌势的提了裤子说话就是硬气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 5516#       发表于 2020-6-19 13:37
+
+
+
+
+免费老哥过生日不是很想打钱
+
+黑宝过生日的话真想打一下，我喜欢黑宝
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5517#       发表于 2020-6-19 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862201&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-19 13:18</a>
+
+那就是一些为了“届到”才打SC的不良粉丝导致了业界形成这种风气
+
+这届观众不行 ...</blockquote>
+这届观众没事就打一些长文zqsg工毛SC不行
+
+要说就都打无言SC
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5518#       发表于 2020-6-19 13:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑宝生日当天我肯定不顺劈star
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 5519#       发表于 2020-6-19 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862435&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-19 13:34</a>
+
+实际上不少人都是一读SC同接掉的稀里哗啦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掉同接是必然的，除非搞SC杂谈才能相对维持的多一点（比如船长很多时候SC杂谈也还是能1W多人的） 这个更说明了把SC阶段全都放在最后让大部分不想看读SC环节的观众能够之前享受单纯的直播，然后播完进SC环节也能走人也不损失啥。  
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5520#       发表于 2020-6-19 13:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862487&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-19 13:38</a>
+
+这届观众没事就打一些长文zqsg工毛SC不行
+
+要说就都打无言SC</blockquote>
+建议油管取消留言功能再取消每日上限，换成飞机火箭跑车大楼
+
+老板断气，老板身体欠肛！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 5521#       发表于 2020-6-19 13:41
+
+
+
+
+火箭伟大，remove sc
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5522#       发表于 2020-6-19 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862227&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-19 13:19</a>
+
+yyf现在联动中有飞机礼物还要专门yy闭麦谢谢xxx的飞机呢，杏这边至少联动不会念sc吧 ...</blockquote>
+话说回来倒是有联动中特地闭麦骂观众的
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 5523#       发表于 2020-6-19 13:42
+
+
+
+
+SC全称super chat，本来就是届到主播用的，只不过现在很大一部分是当礼物用了。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5524#       发表于 2020-6-19 13:42
+
+
+
+
+现在润润打卡40w。我还想过润润以后打卡100w的话会不会读SC太麻烦了。之后想想这想法太无语了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5525#       发表于 2020-6-19 13:43
+
+
+
+
+超级聊天=届到主播？
+
+主播无视也不是很正常 
+
+说白了打SC是一个自我表现欲强的一种行为而已
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 5526#       发表于 2020-6-19 13:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862542&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-19 13:42</a>
+
+现在润润打卡40w。我还想过润润以后打卡100w的话会不会读SC太麻烦了。之后想想这想法太无语了。 ...</blockquote>
+以后润姨不用想直播内容了 开播10分钟等SC来开始念就行了 这直播内容就完成了
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5527#       发表于 2020-6-19 13:46
+
+
+
+
+跟届到有啥关系，说得好像人家真记得你还是你能私联上啊，上面有个说的挺好“这节目好看，白嫖太不好意思了我掏钱”就这个心态。
+
+就像各种街头卖艺弹唱选手我也扔过钱的，最多的一次扔了50，不过我早忘了那弹唱小哥长啥样了他更不可能记得我......
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 5528#       发表于 2020-6-19 13:48
+
+
+
+
+超级留言到底是说给主播还是说给其他观众看的，不知道，不过阿B复刻的醒目留言倒是很直白<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/134751oeeqdpgp3y3v6m4r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>B.jpg</strong> (50.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 13:47 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5529#       发表于 2020-6-19 13:49
+
+
+
+
+油管直播当然是免费内容啊，没有人会把sc当门票钱的。要是大家都这么想那苔宝就不会因为500块钱会员钱被人怼哭了。
+
+至于sc是对节目效果的认可这话我也听过，苔宝没有gachi打钱拿来骗自己的，免费老哥也要骗自己歌势粉就是硬气吗。
+
+
+sc当然是用来互动的，读sc掉同接那自然就是因为掉的人既不想互动也不想打钱了。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5530#       发表于 2020-6-19 13:49
+
+
+
+
+苔宝那种SC集合了专门开深夜枠读的操作倒是好文明,毕竟业界没几个appland没钱真要卷铺盖的
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 5531#       发表于 2020-6-19 13:49
+
+
+
+
+怎么就不记得了 你天天去扔50看人家小哥记得你吗
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5532#       发表于 2020-6-19 13:49
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/134909lbnzdoc7addklcir.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200619134835.jpg</strong> (32.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 13:49 上传
+
+
+
+
+
+
+
+《继承者》
+
+
+
+
+
+
+
+-----
+
+####  本蔡帅哥  
+##### 5533#       发表于 2020-6-19 13:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862588&amp;ptid=1941579" target="_blank">free 发表于 2020-6-19 13:46</a>
+跟届到有啥关系，说得好像人家真记得你还是你能私联上啊，上面有个说的挺好“这节目好看，白嫖太不好意思了 ...</blockquote>
+免费老哥你现在给我一个50块钱红包我肯定记得你，谢谢🙏<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 5534#       发表于 2020-6-19 13:50
+
+
+
+ 本帖最后由 バーチャルS1er 于 2020-6-19 13:51 编辑 
+
+SC、礼物，主播可以没反应啊，但是会打钱的观众大部分也是长手长脚的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  NBXX  
+##### 5535#       发表于 2020-6-19 13:50
+
+
+
+<blockquote>相羽 ういは 🍮💎@6月マンスリーボイス発売中！
+
+@AibaUiha
+
+下心いっぱいのみんなへ</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/19/135045e9d8tax8lz05y1d8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ea2hsQUUEAIKB9F.jpg</strong> (127.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 13:50 上传
+
+
+
+
+
+[https://twitter.com/AibaUiha/status/1273852059926716418](https://twitter.com/AibaUiha/status/1273852059926716418)
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5536#       发表于 2020-6-19 13:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862647&amp;ptid=1941579" target="_blank">NBXX 发表于 2020-6-19 13:50</a>
+
+https://twitter.com/AibaUiha/status/1273852059926716418</blockquote>
+怎么看起来好像没穿的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 5537#       发表于 2020-6-19 13:52
+
+
+
+
+有钱不赚王八蛋。免费你的想法真的很莫名其妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5538#       发表于 2020-6-19 13:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 注：墙上的是笹木的制服，不是葵皇的
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 5539#       发表于 2020-6-19 13:53
+
+
+
+ 本帖最后由 qesto 于 2020-6-19 13:59 编辑 
+
+
+对于认知厨来说，还真就能记得，有某个字幕组成员，天天推特发言，场场打SC，名字都念熟了，某次B限最后还能点名道谢，这对于一般天狗来说爽到天了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 5540#       发表于 2020-6-19 13:54
+
+
+
+
+调动人消费积极性的事情，还有什么对与错<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 5541#       发表于 2020-6-19 13:54
+
+
+
+
+认知厨建议推狗子，🎣观众/字幕组方面yyds
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5542#       发表于 2020-6-19 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862668&amp;ptid=1941579" target="_blank">2517君改二 发表于 2020-6-19 13:52</a>
+
+有钱不赚王八蛋。免费你的想法真的很莫名其妙</blockquote>
+免费视频势世代过来的，人家都是企业背书合同工看不起你们念sc的个体户不是很正常
+
+毕竟啥都输光了体面还是要的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5543#       发表于 2020-6-19 13:55
+
+
+
+
+智障和正常人思维方式是不一样的
+
+如果人人都是看节目还行打个几百日币完事的话业界早就和视频势一起完蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 5544#       发表于 2020-6-19 13:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862495&amp;ptid=1941579" target="_blank">kbtit 发表于 2020-6-19 13:38</a>
+
+黑宝生日当天我肯定不顺劈star</blockquote>
+一月一日，说到做到<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| opersuper| + 1|好光棍啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5545#       发表于 2020-6-19 13:55
+
+
+
+
+今天看同接情况，罗贝尔的早上节目1100，似乎第一次破千了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5546#       发表于 2020-6-19 13:55
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-19 14:01 编辑 
+
+真正的认知厨建议去b综发言，基本都能被主播看到，不光能被看到，说不定某些经典的发言还能被发到主播群里，说不定黑宝昨晚的名言就被版主不基德截图发到了liver群里<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5547#       发表于 2020-6-19 13:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我借楼问一下。是不是只有囚人不希望月之念sc，不希望她收sc，每天专心整活
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 5548#       发表于 2020-6-19 13:56
+
+
+
+
+润润还没动静，不安です<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，虽然今天也差不多要休息了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5549#       发表于 2020-6-19 13:56
+
+
+
+
+想了一下，你们就是想顺劈润润只会养gachi读sc，没有“节目效果”。润gachi气死了
+
+
+
+syl，海苔男也不是专门深夜开个直播读sc，主要是除了那种时候没有单人直播了。有时候抽卡十分钟出了也一转读sc。倒是白雪会月底开个专门的读sc杂谈
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 5550#       发表于 2020-6-19 13:57
+
+
+
+
+个人还比较赞同免费老哥的，又不是人人都是认知厨，主播整活或者ghs打的各种代不就是对节目效果的认同吗。。虽然本mmr写不出长文的塑料日语sc一直届不到还是有点小酸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5551#       发表于 2020-6-19 13:57
+
+
+
+ 本帖最后由 opersuper 于 2020-6-19 13:59 编辑 
+
+我希望除了我的推以外都不念sc专心整活，毕竟我是去看活而不是看她的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 5552#       发表于 2020-6-19 13:58
+
+
+
+ 本帖最后由 Suny08 于 2020-6-19 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862673&amp;ptid=1941579" target="_blank">激光2000 发表于 2020-6-19 13:53</a>
+
+注：墙上的是笹木的制服，不是葵皇的</blockquote>
+按天皇之前做表情包的性格，虹女的衣服肯定会全部做完的，拿这个劈阿笹没必要，你要真劈的话可以劈小护士，天皇做的第一件虹女衣服是她
+
+syl，今天我也看一下hiyoko发现星的同接已经比好几个虹女都还要高了，黑宝是不是客厅滑跪了
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 5553#       发表于 2020-6-19 13:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月撇累了，月撇不想整活，2000求求你放过她吧
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5554#       发表于 2020-6-19 14:00
+
+
+
+
+念sc不都是节目完了放了一遍ending以后加时间念的吗，和看活有什么冲突？
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 5555#       发表于 2020-6-19 14:01
+
+
+
+
+油管钻石盾以上有直播势吗，hajime hikakin靠开直播读SC赚钱吗？我看他们也没完蛋不是，顶多说V界几个视频势过于费拉不堪，不过人家姬雏也好好的不是。
+
+直播势本来就对标的街头卖艺，围观鼓掌=撑同接捧人场，扔钱=打SC捧钱场，头一次听说给街头卖艺扔钱是为了“届到”的。
+
+我扔50块钱那小哥是在城市另一头，去朋友家玩的时候遇到的，以后就没去过了我哪知道他是不是一直在那弹唱......
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 5556#       发表于 2020-6-19 14:01
+
+
+
+
+按照免费的说法所有有安可的演唱会都是不够格的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 5557#       发表于 2020-6-19 14:02
+
+
+
+
+有即时念的啊，特别是作业配信这种半杂谈，刚好可以用来填充时间
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 5558#       发表于 2020-6-19 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862795&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-19 14:00</a>
+
+念sc不都是节目完了放了一遍ending以后加时间念的吗，和看活有什么冲突？</blockquote>
+潜移默化，你不会以为光读读SC就有韭菜源源不断的给你割吧
+
+
+
+
+
+
+
+-----
+
+####  ポップコーン  
+##### 5559#       发表于 2020-6-19 14:02
+
+
+
+
+主要还是观众心态的问题
+
+专门设置一个读sc的环节会暗示观众「只要你发sc，就能获得主播的关注」
+
+所以观众发sc的目的也就会从「表达对作者提供内容的认可」变成「付费购买主播对自己的关注」
+
+久而久之，这些观众就会产生「主播读sc是主播职业素养的体现」的观念，进而去拿这一观念要求其他所有的主播
+
+自己发的sc没有被主播读到就气急败坏，觉得是主播不够Pro，不尊重自己<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+
+syl. 经常有人说铃原露露不读评论不读sc，但如果仔细看就能知道，她每次直播都会读很多评论，杂谈回读的就更多了
+
+刚出道那会儿她担心打游戏时读sc会影响游戏进程，所以想每期都做一个专门的ed名单来感谢打sc的观众
+
+只不过她视频编辑技术太差，做了一次就放弃了，之后也再没有提过<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5560#       发表于 2020-6-19 14:03
+
+
+
+
+sc这东西不就是观众爱打就打，不爱打就不打。主播爱念就念，不爱念就不念么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">。给你们整得好像是有什么深仇大恨一样2333
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5561#       发表于 2020-6-19 14:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">葵皇不知道是不是和某某学的，现在也开始念sc了，不过没什么效果，
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 5562#       发表于 2020-6-19 14:04
+
+
+
+
+那当然是有人拿这个说主播pro不pro啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 5563#       发表于 2020-6-19 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862830&amp;ptid=1941579" target="_blank">ポップコーン 发表于 2020-6-19 14:02</a>
+
+主要还是观众心态的问题
+
+专门设置一个读sc的环节会暗示观众「只要你发sc，就能获得主播的关注」
+
+所以观众发 ...</blockquote>
+你这头像，人生不如一行什么什么佬？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5564#       发表于 2020-6-19 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862824&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-19 14:02</a>
+
+潜移默化，你不会以为光读读SC就有韭菜源源不断的给你割吧</blockquote>
+没懂你的意思？说光念sc就完了的是芙宝啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 5565#       发表于 2020-6-19 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862860&amp;ptid=1941579" target="_blank">mmbk 发表于 2020-6-19 14:04</a>
+那当然是有人拿这个说主播pro不pro啊</blockquote>
+今天这开头是念sc被批遗毒好吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 5566#       发表于 2020-6-19 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862839&amp;ptid=1941579" target="_blank"> yuandi0120 发表于 2020-6-19 14:03</a> sc这东西不就是观众爱打就打，不爱打就不打。主播爱念就念，不爱念就不念么。给你们整得好像是有什么深仇大恨一样2333  —— 来自 HUAWEI VOG-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1 </blockquote>
+虽然我没注意，但应该是大葵不念sc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 5567#       发表于 2020-6-19 14:05
+
+
+
+
+读不懂吗，免费的意思是你们套皮主播都是街头卖艺，下等人，我们视频势歌势上等人不屑这些的
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 5568#       发表于 2020-6-19 14:06
+
+
+
+
+免费为啥这么钻牛角尖？非要分个黑白。
+
+打sc，一万个人有一万个理由。读不读sc哪有什么标准答案。
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 5569#       发表于 2020-6-19 14:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前10w家族还有人打sc的，不知道是不是四个人分，
+
+
+这种完全届不到、不会被认知的节目，还有人打sc
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 5570#       发表于 2020-6-19 14:08
+
+
+
+
+确实，虚拟管人界的视频势都是垃圾，歌势除了能赚到钱的虹杏HH谱皇之类以外也都是垃圾
+
+就你虚拟管人的费拉视频势也配和hikakin之类的真人管人比？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 5571#       发表于 2020-6-19 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862878&amp;ptid=1941579" target="_blank"> proxima 发表于 2020-6-19 14:05</a> 读不懂吗，免费的意思是你们套皮主播都是街头卖艺，下等人，我们视频势歌势上等人不屑这些的 </blockquote>
+要是贵子姐姐念下免费名字，免费怕是能high到明年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 5572#       发表于 2020-6-19 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47862898&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-19 14:06</a>
+免费为啥这么钻牛角尖？非要分个黑白。
+
+打sc，一万个人有一万个理由。读不读sc哪有什么标准答案。 ...</blockquote>
+想通过证明自己推的牛逼来证明自己牛逼吧，倒确实是很常见的心理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+              
