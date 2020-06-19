@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 00:13** 
+> ## **本文件最后更新于2020-06-20 02:08** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_ef0W1" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_siV8D" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -4567,4 +4567,891 @@ holo的成员买设备之前都会咨询社内的比较精通电子设备的运�
 
 
 
-                                          
+
+
+-----
+
+####  泡芙好吃  
+##### 6240#       发表于 2020-6-20 00:14
+
+
+
+
+纯粹这台机子买来就是为了ark的
+
+miko原本用了1年多的笔记本跑 去年年底有点钱了才换的新台式机电脑
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6241#       发表于 2020-6-20 00:14
+
+
+
+
+这方面我是不太清楚近几年又不玩游戏就用用商务本，不过云下来好像是amd🐂🍺一点
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 6242#       发表于 2020-6-20 00:16
+
+
+
+
+我说同接怎么突然涨了3000+
+
+原来是那边联动结束了……
+
+这小霸王画质1W+人看也亏看得下去
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6243#       发表于 2020-6-20 00:16
+
+
+
+
+amd同样的价格核多，对于直播推流肯定好一些的
+
+不过木口那帮C盘战士你给县城撕裂者怕不是也没用
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6244#       发表于 2020-6-20 00:16
+
+
+
+
+35之前那台台式机和小天使的差不多吧我记得，显卡cpu好像都是一代的，不过ark效果差不少来着，miko的3D要吃辣么多资源吗？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 6245#       发表于 2020-6-20 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870246&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-20 00:16</a>
+
+35之前那台台式机和小天使的差不多吧我记得，显卡cpu好像都是一代的，不过ark效果差不少来着，miko的3D要吃 ...</blockquote>
+是的 要吃非常多
+
+小天使前天ark出来的画质就马上有不少人拿来吐槽miko了
+
+这肯定不是简单的调调ark显示设置就能解决的问题
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 6246#       发表于 2020-6-20 00:19
+
+
+
+
+哦还有，之前仙境的时候画质没那么差
+
+因为地图的差别
+
+新地图好像要加载的东西更多 给显卡的负荷更大
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6247#       发表于 2020-6-20 00:22
+
+
+
+
+这就是你木口不会做人
+
+
+与其白嫖几台对vtuber没卵用的幻14，不如把幻14工商完就还回去要打人硕的教教怎么直播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6248#       发表于 2020-6-20 00:27
+
+
+
+
+教了又不学，学了又不会。小天使自称首播前每天六七个小时学obs，还是拿集显播了快半年的mc。删user，cd放光驱，c盘战士这些又不是常人能教的了的。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6249#       发表于 2020-6-20 00:28
+
+
+
+
+yhm，永远滴神。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 6250#       发表于 2020-6-20 00:32
+
+
+
+
+单机性能是有极限的，樱花妹什么时候能领悟双机推流的大招
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 6251#       发表于 2020-6-20 00:33
+
+
+
+
+这是萌点（确信）
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6252#       发表于 2020-6-20 00:34
+
+
+
+
+在学了在学了，学到a...，啊学错了。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 6253#       发表于 2020-6-20 00:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870406&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-20 00:32</a>
+
+单机性能是有极限的，樱花妹什么时候能领悟双机推流的大招</blockquote>
+这不就刚有人买了新PC准备组2PC直播么
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 6254#       发表于 2020-6-20 00:37
+
+
+
+
+哈哥戴vr头盔搞不做完1k个仰卧起坐不下播，做到极限都做不满隔天从一开始
+
+这个做完可以一拳一个にじアン了吧
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6255#       发表于 2020-6-20 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870246&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-20 00:16</a>
+
+35之前那台台式机和小天使的差不多吧我记得，显卡cpu好像都是一代的，不过ark效果差不少来着，miko的3D要吃 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以才说MIKO的3D拉胯啊，又不是那么强，资源占用又高的一比
+
+像极了垃圾软件
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 6256#       发表于 2020-6-20 00:38
+
+
+
+
+原来哈哥真的是筋肉男！？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 6257#       发表于 2020-6-20 00:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870444&amp;ptid=1941579" target="_blank">AloissiolA 发表于 2020-6-20 00:37</a>
+
+哈哥戴vr头盔搞不做完1k个仰卧起坐不下播，做到极限都做不满隔天从一开始
+
+
+这个做完可以一拳一个にじアン了 ...</blockquote>
+一拳一个楼友应该没多大问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6258#       发表于 2020-6-20 00:39
+
+
+
+
+那能不能先给2000一拳。不过还是注意点运动量比较好。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 6259#       发表于 2020-6-20 00:40
+
+
+
+
+半小时，200个完成，中途还有不小心数丢了的，姿势看vr视角也挺标准，还带转体
+
+やっぱ王よ
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 6260#       发表于 2020-6-20 00:41
+
+
+
+
+哈哥一拳几个软弱不堪的死宅vtb呢？<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 6261#       发表于 2020-6-20 00:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870460&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-20 00:39</a>
+一拳一个楼友应该没多大问题</blockquote>
+先给2000尝尝滋味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 6262#       发表于 2020-6-20 00:42
+
+
+
+<img src="http://tva2.sinaimg.cn/large/7c16af6bly1gfy2qxrrchj20xf0ivn0s.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6263#       发表于 2020-6-20 00:43
+
+
+
+
+我三大项加起来好歹也400kg了，应该打不动我。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 6264#       发表于 2020-6-20 00:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870454&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-20 00:38</a>
+
+所以才说MIKO的3D拉胯啊，又不是那么强，资源占用又高的一比
+
+像极了垃圾软件 ...</blockquote>
+别抱怨了
+
+有就不错了
+
+
+真要抱怨发邮件去给cover
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 6265#       发表于 2020-6-20 00:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47869965&amp;ptid=1941579" target="_blank">alcoholic1000 发表于 2020-6-19 23:47</a>
+
+好团我色</blockquote>
+好麻薯，但不够大<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 6266#       发表于 2020-6-20 00:51
+
+
+
+ 本帖最后由 alcoholic1000 于 2020-6-20 00:56 编辑 
+
+哈哥真是筋肉派啊，哈哥是那种爱改装车爱健身的死现充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl，320了
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 6267#       发表于 2020-6-20 00:56
+
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gfy35q6rbkj20y60lbn0b.jpg" referrerpolicy="no-referrer">
+
+
+樱花妹和樱花妹游戏主播是不一样的，看看人家茶々茶的自配三PC六屏三条光纤宽带推流直播环境<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6268#       发表于 2020-6-20 00:57
+
+
+
+
+好！我躲在2k和4id后面稳得一批
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6269#       发表于 2020-6-20 00:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870600&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-20 00:56</a>
+樱花妹和樱花妹游戏主播是不一样的，看看人家茶々茶的自配三PC六屏三条光纤宽带推流直播环境 ...</blockquote>
+我一直好奇这看得过来嘛。。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6270#       发表于 2020-6-20 00:59
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-6-20 01:07 编辑 
+
+仰卧起坐是对普通人没有什么卵用的一个动作，不推荐做嗷。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 6271#       发表于 2020-6-20 01:02
+
+
+
+
+普通人：指能一口气做100个的人
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6272#       发表于 2020-6-20 01:03
+
+
+
+ 本帖最后由 colodes 于 2020-6-20 01:10 编辑 
+
+3D初お披露目(hiyoko)
+
+
+アン 67117  2020/02/10 にじ
+
+フレ 65256  2020/06/13 ホロ
+船長 60162  2020/02/15 ホロ
+
+リゼ 59978  2020/01/22 にじ
+社築 57458  2020/02/17 にじ
+
+戌亥 57453  2020/03/02 にじ
+
+星街 56161  2020/03/01 ホロ
+
+アレ 52123  2020/01/08 にじ
+
+るる 47134  2020/03/27 にじ
+
+ロア 45669  2020/03/19 にじ
+
+郡道 45663  2020/02/20 にじ
+
+明治 30415  2020/06/20 にじ
+
+竜胆 30119  2019/09/30 にじ
+
+葛葉 29495  2019/11/26 にじ
+
+鷹宮 28257  2019/12/01 にじ
+
+団長 25029  2019/11/17 ホロ
+
+兎田 24834  2019/12/14 ホロ
+
+ベル 24645  2019/12/23 にじ       
+
+椎名 22926  2019/08/09 にじ
+
+シス 21775  2019/07/25 にじ
+
+勇気 21356  2019/08/27 にじ 
+
+ひま 21329  2019/04/25 にじ
+
+笹木 19968  2019/06/17 にじ
+
+いち 19307  2019/09/05 にじ
+
+叶　 18501  2019/11/11 にじ
+
+剣持 18482  2018/10/15 にじ
+
+潤羽 17531  2019/11/30 ホロ
+
+物述 16866  2018/10/13 にじ
+
+詩子 16202  2019/04/23 にじ  
+
+猫又 15095  2019/10/04 ホロ
+
+緑仙 15027  2019/11/22 にじ *
+
+ドラ 14858  2019/12/13 にじ
+
+昴    14063  2019/05/05 ホロ
+
+戌神 12956  2019/09/14 ホロ
+
+湊    12373  2019/04/07 ホロ
+
+でろ 12310  2018/09/28 にじ
+
+癒月 12065  2019/05/25 ホロ
+
+静凛 11400  2018/09/28 にじ
+
+ミオ 11204  2019/06/16 ホロ
+
+百鬼 10708  2019/05/17 ホロ
+
+白上   9819  2018/10/17 ホロ
+
+塩ん   9344  2019/05/12 ホロ
+
+祭      8430  2019/04/15 ホロ
+
+赤井   6671  2019/04/17 ホロ
+
+アキ   4952  2019/06/29 ホロ
+
+メル   4282  2019/04/02 ホロ
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|湊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 6273#       发表于 2020-6-20 01:03
+
+
+
+
+哈哥的仰卧起坐到400了，我敬你真是个汉子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 6274#       发表于 2020-6-20 01:05
+
+
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gfy3ei22pdj20xa0ipacr.jpg" referrerpolicy="no-referrer">
+
+
+力こそパワー！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 6275#       发表于 2020-6-20 01:07
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-20 01:09 编辑 
+
+郡道深夜喷喷！（[https://www.youtube.com/watch?v=ddTwFjGx8IQ&amp;feature=youtu.be](https://www.youtube.com/watch?v=ddTwFjGx8IQ&amp;feature=youtu.be)）
+
+好久没看她一个人玩喷喷了，感觉不错！
+
+省一楼，我没法做五个以上俯卧撑，如果是仰卧起坐那就100个，感觉哈哥可以拳爆我...
+
+再省，好想去立本，郡道提到的小吃在某宝要不很贵要不根本买不到，羡慕！再省，郡道口了3D只差六个人，好久没看她们距离这么近啦，好开心<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">~
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 6276#       发表于 2020-6-20 01:07
+
+
+
+
+打错了，仰卧起坐。
+
+
+虽然阿宅我也不推荐俯卧撑就是了。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6277#       发表于 2020-6-20 01:29
+
+
+
+
+啊，银火率先打出同居卡组
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 6278#       发表于 2020-6-20 01:39
+
+
+
+
+播什么吊东西能用三个电脑六块屏幕，自我满足也有个度好吧
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6279#       发表于 2020-6-20 01:48
+
+
+
+
+DCS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 6280#       发表于 2020-6-20 01:49
+
+
+
+
+我要有钱我也整这么多
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6281#       发表于 2020-6-20 02:01
+
+
+
+
+有钱整点啥不好，这么多屏幕又看不过来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 6282#       发表于 2020-6-20 02:05
+
+
+
+
+我怀疑她们obs设置里的编码器还选的cpu，现在用老黄新显卡编码帧数基本不掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  l⑨th_Knight  
+##### 6283#       发表于 2020-6-20 02:05
+
+
+
+ 本帖最后由 l⑨th_Knight 于 2020-6-20 02:07 编辑 
+
+编辑
+
+
+
+
+
+                                        
