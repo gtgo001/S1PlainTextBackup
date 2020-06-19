@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-18 22:05** 
+> ## **本文件最后更新于2020-06-19 10:02** 
 
 
 
@@ -23641,4 +23641,401 @@ mea头上顶6个6真是太草了
 
 
 
-     
+
+
+-----
+
+####  A2014720  
+##### 13330#       发表于 2020-6-18 22:08
+
+
+
+
+上次和holo联动的剧情咋样，这次不管怎样是挺上心的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 13331#       发表于 2020-6-18 22:27
+
+
+
+
+幻视
+
+
+<img src="https://img.saraba1st.com/forum/202006/18/222713ko8z8eebcp7fl90o.jpg" referrerpolicy="no-referrer">
+
+
+<strong>82213314_p0.jpg</strong> (1.4 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-18 22:27 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13332#       发表于 2020-6-18 22:27
+
+
+
+
+草这也太像了(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 13333#       发表于 2020-6-18 22:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47854070&amp;ptid=1929631" target="_blank">onlv星骸 发表于 2020-6-18 19:07</a>
+
+5块钱买了初始号然后第一发就出了。。 是必出的吗</blockquote>
+初始号超容易出，我出了20+个UR之后好像变回正常概率了，
+
+今天mea差点过100连无了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 13334#       发表于 2020-6-18 22:30
+
+
+
+
+联动的节目效果应该不用担心,另外两个都是老油子了
+
+我在做梦赤坂能不能给麻整个高质量的fanart<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 13335#       发表于 2020-6-18 22:47
+
+
+
+
+居然连使用说明书这梗都有。迷之感动
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13336#       发表于 2020-6-18 23:00
+
+
+
+
+一下用了59张扫荡卷刷mea活动图，我的背包上限是165，我背包里现在装了425个誓灵，现在游戏的扫荡都这么猛的么
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13337#       发表于 2020-6-18 23:02
+
+
+
+
+其实这主页做的就很超出预期了，最主要的还是剧情，各种没太多人知道的梗和话也都知道。
+
+说实话本来对游戏联动里ch对她的角色塑造没抱什么希望的，可这真的太惊喜了。不说了，接着玩换装了。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13338#       发表于 2020-6-18 23:06
+
+
+
+
+是真爱了(ಥ_ಥ)，自己人自己人
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13339#       发表于 2020-6-18 23:12
+
+
+
+
+原来奇迹暖暖才是这联动的精华所在啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上当了
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 13340#       发表于 2020-6-18 23:14
+
+
+
+ 本帖最后由 qigeer 于 2020-6-18 23:20 编辑 
+
+需要抽几个mea才可以?
+这游戏爆率多少啊 20抽四个ur?
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 13341#       发表于 2020-6-18 23:22
+
+
+
+
+说起来这次联动日服好像不上线的样子？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13342#       发表于 2020-6-18 23:26
+
+
+
+
+抽几个看你的想法，突破可以用金喵，只抽一个也可以，我就抽了一个
+我听说这游戏国服联动日服基本都不同步，是正常情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13343#       发表于 2020-6-19 00:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区别对待居然正常吗？怪不得本土老哥要跑国服来玩
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13344#       发表于 2020-6-19 00:10
+
+
+
+
+日服好像开得挺晚的，大概还是上古版本吧，版权问题估计不太好复刻联动，可以理解
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13345#       发表于 2020-6-19 00:13
+
+
+
+
+日本那边不同步联动好像才是正常，之前玩aga，日服和台服的联动，各联动各的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13346#       发表于 2020-6-19 03:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这个点发推,不愧是你
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13347#       发表于 2020-6-19 03:28
+
+
+
+
+这时候推限草
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13348#       发表于 2020-6-19 03:55
+
+
+
+
+深 夜 福 利
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13349#       发表于 2020-6-19 07:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 13350#       发表于 2020-6-19 08:36
+
+
+
+ 本帖最后由 SNOWIMEA 于 2020-6-19 09:08 编辑 
+
+咩这个角色是不是有点强啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+sly记者出货了？<img src="https://p.sda1.dev/0/63802e0a809fc43788bd0804b30c8c87/1ab63c5d1c50939.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13351#       发表于 2020-6-19 09:31
+
+
+
+
+怎么把早上的早安推删了，意思是要联动前全时段突击？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13352#       发表于 2020-6-19 09:32
+
+
+
+
+推限（不留档）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
