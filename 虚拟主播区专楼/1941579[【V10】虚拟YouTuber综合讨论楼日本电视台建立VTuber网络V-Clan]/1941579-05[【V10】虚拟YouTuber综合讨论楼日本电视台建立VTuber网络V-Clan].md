@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 00:10** 
+> ## **本文件最后更新于2020-06-21 02:10** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_KGGfF" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_guP5x" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -12109,7 +12109,7 @@ mrr.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_JSHmc" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_Yzu7r" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
 
 
@@ -17516,7 +17516,7 @@ yostar.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_I6EcK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_hsxqJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 虾皇喷喷意识我记得还是挺好的
 
@@ -19663,7 +19663,7 @@ sio同接2.9，星祭2.9，按泥潭老哥的算法，这是倍杀了吧
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_bkHaS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_lAYNi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 明天有军神王子对打和三小只同期对打
 
@@ -24910,18 +24910,37 @@ SYL 井皇还打了SC
 
 
 
+ 本帖最后由 qesto 于 2020-6-21 00:31 编辑 
 
-虽然老哥们大概都已经看过正面了，哈恰吗的推特小视频不慎反**出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-<img src="https://img.saraba1st.com/forum/202006/20/234958htjpz5pz7jlr1phu.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-<strong>IAB1Dzu.jpg</strong> (45.87 KB, 下载次数: 1)
+
+
+
+
+
+
+IAB1Dzu.jpg
+(45.87 KB, 下载次数: 1)
+
+
+
 
 下载附件
 
+
 2020-6-20 23:49 上传
 
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/234958htjpz5pz7jlr1phu.jpg" referrerpolicy="no-referrer">
 
 
 
@@ -25039,12 +25058,15 @@ SYL 井皇还打了SC
 
 
 
- 本帖最后由 SuntoryNomu 于 2020-6-21 00:06 编辑 
+ 本帖最后由 SuntoryNomu 于 2020-6-21 01:03 编辑 
 
 也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
-以下内容需要积分高于 3000 才可浏览
 
-虽然没什么技术含量，积分还是弄高点吧<img src="https://s1.ax1x.com/2020/06/20/N1ms9f.jpg" referrerpolicy="no-referrer">
+虽然没什么技术含量，积分还是弄高点吧<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+以下内容需要积分高于 5000 才可浏览
+<img src="https://s1.ax1x.com/2020/06/21/N1Qr6K.jpg" referrerpolicy="no-referrer">
+
+
 
 
 
@@ -25133,12 +25155,15 @@ hololive吸了全业界的血</blockquote>
 
 
 
+ 本帖最后由 某穆克拉 于 2020-6-21 00:12 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882963&amp;ptid=1941579" target="_blank">shenqi2552 发表于 2020-6-21 00:03</a>
 
 哈恰玛长什么样子啊，感觉声音挺元气的年龄应该不大吧。</blockquote>
 换算到国内就是高三到大一这样？
 
-近照没有，之前那次挖到的是六七年前的照片了吧。
+近照没有，之前那次挖到的是初中时代的照片了吧。
+
+syl，龙宝开始疯狂暗示了，根据隔壁repo。
 
 
 
@@ -25153,8 +25178,23 @@ hololive吸了全业界的血</blockquote>
 
 
 
+ 本帖最后由 某穆克拉 于 2020-6-21 00:13 编辑 
 
-虽然没看直播，不过据隔壁repo龙宝已经开始疯狂暗示了。
+
+<img src="https://img.saraba1st.com/forum/202006/21/001255bum6a7euzxha7nyj.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200621001246.png</strong> (981.12 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-21 00:12 上传
+
+
+
+
+
+发张小天使
 
 
 
@@ -25180,4 +25220,449 @@ hololive吸了全业界的血</blockquote>
 
 
 
-      
+
+
+-----
+
+####  某穆克拉  
+##### 7303#       发表于 2020-6-21 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883057&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-21 00:09</a>
+
+露脸照我记得是16还是17年的。</blockquote>
+啊心心初中的话也没有六七年，下意识把自己的时间带进去了。。。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7304#       发表于 2020-6-21 00:11
+
+
+
+
+黑上真不错啊，真不错啊，白上的那股子梦女姨味完全没有了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 而且好像就算和男人联动也无妨
+
+黑上松彦能再来点吗来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 7305#       发表于 2020-6-21 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883019&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 00:07</a>
+换算到国内就是高三到大一这样？
+
+近照没有，之前那次挖到的是初中时代的照片了吧。
+
+syl，龙宝开始疯狂暗示 ...</blockquote>
+大学吗，那和我差不多大，听她说话也是有种周围女同学的感觉。
+
+
+
+
+
+
+
+-----
+
+####  雅朵莉雀  
+##### 7306#       发表于 2020-6-21 00:13
+
+
+
+
+阿盐唱歌好好听啊
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 7307#       发表于 2020-6-21 00:15
+
+
+
+
+歌势没有额外曝光粉丝涨得确实慢，国V的扑棱蛾子粉丝数也差不多这个数。阿盐配信条件变好了，直播稳定了，粉丝会慢慢涨起来的。先有点基本盘再来b限，以及和原p家的个别人联动，就会起速了。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7308#       发表于 2020-6-21 00:23
+
+
+
+
+原p家除了高女士跟猫还有蹭不上的mea哪里还有声音
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 7309#       发表于 2020-6-21 00:24
+
+
+
+
+宫皇就打算一直这么播独立游戏了吗
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 7310#       发表于 2020-6-21 00:26
+
+
+
+
+万年懒狗的森永？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 7311#       发表于 2020-6-21 00:26
+
+
+
+
+是这个吗<img src="https://s1.ax1x.com/2020/06/21/N1uMJx.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 7312#       发表于 2020-6-21 00:29
+
+
+
+[https://www.nicovideo.jp/watch/sm37054309](https://www.nicovideo.jp/watch/sm37054309)
+
+2434大型新人寻血猎犬
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 7313#       发表于 2020-6-21 00:29
+
+
+
+ 本帖最后由 cheatdeath3 于 2020-6-21 00:34 编辑 
+
+miuhana大姐都处于活动状态，就脑死mana被坑到毕业成t主了而已。当然非要说底边没声音也没办法。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 7314#       发表于 2020-6-21 00:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883053&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 00:09</a>
+
+发张小天使</blockquote>
+东正教小天使，是俄罗斯人的胜利
+
+
+
+
+
+
+
+-----
+
+####  sisyphus_  
+##### 7315#       发表于 2020-6-21 01:01
+
+
+
+
+水龙敬老师又来光顾船长了
+
+弹幕吵着要画船长的虫x本子<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  daoyuan  
+##### 7316#       发表于 2020-6-21 01:12
+
+
+
+
+星川的gachi<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太可怜了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7317#       发表于 2020-6-21 01:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/011416qx741zgxxflgnjuk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>sabaki.jpg</strong> (61.35 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 01:14 上传
+
+
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 7318#       发表于 2020-6-21 01:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883672&amp;ptid=1941579" target="_blank">oshinoshinobu 发表于 2020-6-21 00:50</a>
+
+东正教小天使，是俄罗斯人的胜利</blockquote>
+白色星咏者狂喜
+
+红色星咏者震怒
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7319#       发表于 2020-6-21 01:19
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/011935enbnbm6bbptzb6rs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ean9k6oU0AEv3Zx.jpg</strong> (197.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 01:19 上传
+
+
+
+
+
+[https://twitter.com/asacrebleu/status/1272827742518521859](https://twitter.com/asacrebleu/status/1272827742518521859)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+| argaregeasr| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 7320#       发表于 2020-6-21 01:33
+
+
+
+
+。不容易啊
+
+
+
+
+
+
+QQ截图20200621013305.png
+(243.57 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-21 01:33 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/013326q0pdzlzt9s2h3yi0.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 7321#       发表于 2020-6-21 01:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/013938k07bb2jfq27wc0sl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ea-OZJfVcAAWXTJ.jpg</strong> (315.83 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-21 01:39 上传
+
+
+
+
+https://twitter.com/G_n_G60/status/1274394107197054977?s=20
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 7322#       发表于 2020-6-21 01:58
+
+
+
+
+星川噶吃来例行发个疯
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7323#       发表于 2020-6-21 02:09
+
+
+
+
+这狗子又不睡觉了
+
+
+
+
+
+     
