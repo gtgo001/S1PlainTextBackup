@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 22:09** 
+> ## **本文件最后更新于2020-06-21 00:10** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_QUZ26" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_KGGfF" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -12109,7 +12109,7 @@ mrr.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_Dp05J" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_JSHmc" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
 
 
@@ -17516,7 +17516,7 @@ yostar.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_DcXtv" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_I6EcK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 虾皇喷喷意识我记得还是挺好的
 
@@ -19663,7 +19663,7 @@ sio同接2.9，星祭2.9，按泥潭老哥的算法，这是倍杀了吧
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_VlVv0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_bkHaS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 明天有军神王子对打和三小只同期对打
 
@@ -23049,4 +23049,2135 @@ long time no see
 
 
 
-          
+
+
+-----
+
+####  好德我基  
+##### 7198#       发表于 2020-6-20 22:09
+
+
+
+
+v综文艺复兴了
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7199#       发表于 2020-6-20 22:11
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/221143xl5o6h4nds6wd1fo.png" referrerpolicy="no-referrer">
+
+
+<strong>FWLwIii.png</strong> (129.82 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:11 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|辛苦辛苦，有虹的吗|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 7200#       发表于 2020-6-20 22:16
+
+
+
+
+请搞起来，谢谢！！（郡道又乱给人加设定<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202006/20/221547dzisqgvuo4ex4xgz.png" referrerpolicy="no-referrer">
+
+
+<strong>_1  郡道美玲🐽ZERO  @g9v9g_mirei  的推文回复   Twitter.png</strong> (162.58 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:15 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7201#       发表于 2020-6-20 22:17
+
+
+
+
+龙宝平均每天2.5动，真实天道酬勤。
+
+
+
+
+
+
+
+-----
+
+####  虹河ラキ  
+##### 7202#       发表于 2020-6-20 22:17
+
+
+
+
+はじめまして虹河ラキです！
+
+センパイ、チャンネル登録と通知ONもよろしくです！☆ヾ(o'▽'o)ゝ
+[https://www.youtube.com/channel/UCp77Qho-YHhnklRr-DkjiOw](https://www.youtube.com/channel/UCp77Qho-YHhnklRr-DkjiOw?sub_confirmation=1)
+
+<img src="https://s1.ax1x.com/2020/06/20/N1Szy6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7203#       发表于 2020-6-20 22:17
+
+
+
+
+船皇最强！船皇最强！
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7204#       发表于 2020-6-20 22:17
+
+
+
+
+等会上推特看看名字wwwww
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 7205#       发表于 2020-6-20 22:18
+
+
+
+
+兔子唱sound horizon曲，爱了
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 7206#       发表于 2020-6-20 22:20
+
+
+
+
+有野兔子科普一下peko会限频率，以及会限内容一般是什么吗？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 7207#       发表于 2020-6-20 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881485&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-20 22:03</a>
+
+虽然这很不基德，但这真是又悲伤又好笑。我以后也会变成这样吗？
+
+ ...</blockquote>
+这头像不是前几天被挂城门的润噶吃么
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 7208#       发表于 2020-6-20 22:21
+
+
+
+ 本帖最后由 QWANG 于 2020-6-20 22:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881670&amp;ptid=1941579" target="_blank">aele 发表于 2020-6-20 22:20</a>
+
+这头像不是前几天被挂城门的润噶吃么</blockquote>
+就是今天那个啊，和楼里疯掉的gachi相比不遑多让吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一个青年就这么疯了，作孽啊。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 7209#       发表于 2020-6-20 22:22
+
+
+
+
+京华的3D开始了
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 7210#       发表于 2020-6-20 22:22
+
+
+
+ 本帖最后由 winda 于 2020-6-20 22:25 编辑 
+
+[https://www.youtube.com/watch?v=-Z3NKgd9q0s&amp;t=196s](https://www.youtube.com/watch?v=-Z3NKgd9q0s&amp;t=196s)
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">什么都好，就是元u社现brave社的梁木过不去
+
+
+
+
+
+
+あやひなチャンネル.png
+(317.54 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-20 22:25 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/222520xt6t6himpiji8661.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  pansherry  
+##### 7211#       发表于 2020-6-20 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881662&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-20 22:20</a>
+
+有野兔子科普一下peko会限频率，以及会限内容一般是什么吗？</blockquote>
+最近一个月2次左右，一回读棉花糖，唱歌，杂谈啥的，一回同时视听吧
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1|谢谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  sAviOr  
+##### 7212#       发表于 2020-6-20 22:24
+
+
+
+
+刚才看了楠栞桜的3D发表，被这么好的制作水准吓到，感觉都比得上TV动画了。我不了解vtuber，请问这个水准的3D在vtuber世界算常见吗？另外听人说楠里面的人是大叔，是这样么？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 7213#       发表于 2020-6-20 22:24
+
+
+
+
+阿菜：“以后貌似每周都有披露”
+
+看来虹杏疫情期间都没闲着
+
+
+
+
+
+
+
+-----
+
+####  某某某人  
+##### 7214#       发表于 2020-6-20 22:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881715&amp;ptid=1941579" target="_blank">sAviOr 发表于 2020-6-20 22:24</a>
+
+刚才看了楠栞桜的3D发表，被这么好的制作水准吓到，感觉都比得上TV动画了。我不了解vtuber，请问这个水准的 ...</blockquote>
+中之人是大叔 (X)
+
+中之人是大叔心 (O)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7215#       发表于 2020-6-20 22:25
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/222548s25d55ok5z90vdbd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5hxmnfe.jpg</strong> (148.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:25 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7216#       发表于 2020-6-20 22:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881715&amp;ptid=1941579" target="_blank">sAviOr 发表于 2020-6-20 22:24</a>
+
+刚才看了楠栞桜的3D发表，被这么好的制作水准吓到，感觉都比得上TV动画了。我不了解vtuber，请问这个水准的 ...</blockquote>
+还比较常见吧，里面的人是妹子
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 7217#       发表于 2020-6-20 22:27
+
+
+
+
+京华这3D也挺好看的
+
+
+
+
+
+
+
+-----
+
+####  虹河ラキ  
+##### 7218#       发表于 2020-6-20 22:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881730&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-20 22:25</a></blockquote>
+<img src="https://s1.ax1x.com/2020/06/20/N1CDQ1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7219#       发表于 2020-6-20 22:27
+
+
+
+
+我靠阿笹和苔苔怎么扯到一起的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7220#       发表于 2020-6-20 22:28
+
+
+
+
+兔子的会限唱歌其实杂谈成分挺高的，不过我觉得她唱的挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 7221#       发表于 2020-6-20 22:29
+
+
+
+
+阿菜，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 7222#       发表于 2020-6-20 22:29
+
+
+
+
+又有新人，老人也回来了，v综great again！
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 7223#       发表于 2020-6-20 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">楼里野兔子产量突然翻倍了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7224#       发表于 2020-6-20 22:29
+
+
+
+
+京华这3d，动的太大叔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7225#       发表于 2020-6-20 22:31
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-20 22:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881764&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-20 22:29</a>
+
+京华这3d，动的太大叔了</blockquote>
+需要把欧阳那张经典的照片放出来吗，他就是大叔啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 7226#       发表于 2020-6-20 22:32
+
+
+
+
+然而从头到尾我就没看到第二个润gachi。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 7227#       发表于 2020-6-20 22:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">  兔子的唱歌兼杂谈会限感觉真的蛮养gachi的，这种悠哉悠哉说几句话唱首歌的类t台氛围 和平时打游戏的时候注重嚣张吃瘪的节目效果的感觉也很不一样  
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7228#       发表于 2020-6-20 22:32
+
+
+
+
+因为兔子今晚的养gachi操作比较容易引野兔子发情吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaku11ku  
+##### 7229#       发表于 2020-6-20 22:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881715&amp;ptid=1941579" target="_blank">sAviOr 发表于 2020-6-20 22:24</a>
+
+刚才看了楠栞桜的3D发表，被这么好的制作水准吓到，感觉都比得上TV动画了。我不了解vtuber，请问这个水准的 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1889831-1-1.html](https://bbs.saraba1st.com/2b/thread-1889831-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7230#       发表于 2020-6-20 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881795&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-20 22:32</a>
+
+然而从头到尾我就没看到第二个润gachi。</blockquote>
+v7之前还是偶尔出现的，叫言艮貌似？
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 7231#       发表于 2020-6-20 22:39
+
+
+
+
+神吉李花是阿胜的画师妈妈，也跟着来b站了，阿胜chuchu<img src="https://p.sda1.dev/0/6e8030e2b5a2573049ff0bd34a89f7d0/IMG_23A89A1856C5DCC2A9889EA04B32E47A.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 7232#       发表于 2020-6-20 22:41
+
+
+
+
+锤子在这跟着冰糖指引做可爱pose大草
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7233#       发表于 2020-6-20 22:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881891&amp;ptid=1941579" target="_blank">黑之和 发表于 2020-6-20 22:39</a>
+
+神吉李花是阿胜的画师妈妈，也跟着来b站了，阿胜chuchu</blockquote>
+距离弄懂怎么用B站还有一段路要走啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+批注 2020-06-20 224235.png
+(98.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-20 22:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/224322wa5l2yty515offff.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 7234#       发表于 2020-6-20 22:46
+
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gfz51c7khwj20y10mmgpq.jpg" referrerpolicy="no-referrer">
+
+[https://www.youtube.com/watch?v=DMeweonXxu0](https://www.youtube.com/watch?v=DMeweonXxu0)
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7235#       发表于 2020-6-20 22:48
+
+
+
+
+LINEスタンプ発売😂
+
+<img src="https://img.saraba1st.com/forum/202006/20/224845xarvz649prfvzzf9.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 224709.png</strong> (219.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:48 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7236#       发表于 2020-6-20 22:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881795&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-20 22:32</a>
+然而从头到尾我就没看到第二个润gachi。</blockquote>
+说明大多数润gachi都比较纯良，你要好好反省下自己怎么变成这样的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7237#       发表于 2020-6-20 22:53
+
+
+
+
+cover还收了游戏部离职的动画制作人员吗
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/225249mbhnnh4h48jx55i8.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 225239.png</strong> (194.98 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  sAviOr  
+##### 7238#       发表于 2020-6-20 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47881744&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-20 22:26</a>
+
+还比较常见吧，里面的人是妹子</blockquote>
+之前对vtuber3D的印象是阿澄佳奈那只和三上枝织那只，感觉都没有今天楠的自然啊，是因为直播用的真人动作捕捉的关系？
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7239#       发表于 2020-6-20 22:54
+
+
+
+
+熊猫人推特头图换成宝可梦了
+
+
+syl,
+
+看了一眼又有不错的新投稿了
+
+#笹木咲３周年記念衣装
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/225354hzcwq635tn5yw6n3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EaZu6uaU0AAit5Q.jpg</strong> (215.19 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:53 上传
+
+
+
+
+
+[https://twitter.com/GGuan11/status/1271825908362383364](https://twitter.com/GGuan11/status/1271825908362383364)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好铜啊|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7240#       发表于 2020-6-20 22:55
+
+
+
+
+hololive吸了全业界的血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/225521jz32euepthzojeju.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 225440.png</strong> (209.87 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 22:55 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 7241#       发表于 2020-6-20 22:59
+
+
+
+
+聚义厅hololive，盟主yagoo，二把手狐皇
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7242#       发表于 2020-6-20 22:59
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-20 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882100&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-20 22:55</a>
+hololive吸了全业界的血</blockquote>
+全业界的血在今晚小肥妹的live就给我看了这东西<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+那业界完蛋不亏，等一个游戏公司亲自下场改天换地。
+等等，不会全业界的血都在为夸的live做准备吧。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 7243#       发表于 2020-6-20 22:59
+
+
+
+
+不能算吸血吧，那些都算半个尸体了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7244#       发表于 2020-6-20 23:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882162&amp;ptid=1941579" target="_blank">面具13 发表于 2020-6-20 22:59</a>
+
+不能算吸血吧，那些都算半个尸体了</blockquote>
+那就算食尸鬼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 7245#       发表于 2020-6-20 23:02
+
+
+
+
+京华哥这模型也太可爱了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 7246#       发表于 2020-6-20 23:04
+
+
+
+
+你好B综在隔壁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 7247#       发表于 2020-6-20 23:05
+
+
+
+
+井皇噶吃？不会吧
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7248#       发表于 2020-6-20 23:06
+
+
+
+
+虽然依旧不看欧阳，但这3D质量确实不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 7249#       发表于 2020-6-20 23:06
+
+
+
+
+井皇和京华是两个人。。。
+
+
+
+
+
+
+
+-----
+
+####  ErenJager  
+##### 7250#       发表于 2020-6-20 23:07
+
+
+
+
+chima唱歌还是舒服啊~
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 7251#       发表于 2020-6-20 23:07
+
+
+
+
+黑黑、小千今晚疯狂掉分啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 7252#       发表于 2020-6-20 23:08
+
+
+
+
+阿胜用的这个真的很好使啊…………
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7253#       发表于 2020-6-20 23:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882160&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-20 22:59</a>
+
+全业界的血在今晚小肥妹的live就给我看了这东西
+
+那业界完蛋不亏，等一个游戏公司亲自下场改天换地 ...</blockquote>
+请问您是否想找:yostar
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 7254#       发表于 2020-6-20 23:08
+
+
+
+
+听了阿肥的新单曲，这是根本没修？
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7255#       发表于 2020-6-20 23:09
+
+
+
+
+这翻译机质量，惊了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7256#       发表于 2020-6-20 23:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882080&amp;ptid=1941579" target="_blank">sAviOr 发表于 2020-6-20 22:54</a>
+
+之前对vtuber3D的印象是阿澄佳奈那只和三上枝织那只，感觉都没有今天楠的自然啊，是因为直播用的真人动作 ...</blockquote>
+一方面是模型本身质量，如果模型本身就不自然，那效果肯定差，特别穿模问题
+
+另一方面是捕捉的设备和调试，比较高级的光学捕捉+反复测试调整的映射关系能显著减少模型事故
+
+以前是某些视频势才有不错的3D效果，业界经过几轮迭代之后，直播势的模型质量也上来了，光学捕捉得到普及，所以经常有还不错的表现了
+
+当然楠这个在业界也是比较棒的了，光是那个模型就是好多人分工做的
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 7257#       发表于 2020-6-20 23:10
+
+
+
+
+氪过金了还不好使那就是真的屑，话说王老吉很甜吗？日本人喝不惯？
+
+
+
+
+
+
+
+-----
+
+####  真田源次郎信繁  
+##### 7258#       发表于 2020-6-20 23:11
+
+
+
+
+我怀疑这玩意是科大讯飞之类的翻译机…………估计田角资助的吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7259#       发表于 2020-6-20 23:12
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-20 23:13 编辑 
+
+先别吹翻译机了刚才蹦出来一个“我是一个手O者”全场都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+印象里日本茶饮料无糖居多，不少咖啡倒是甜的要命
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 7260#       发表于 2020-6-20 23:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882248&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-20 23:06</a>
+井皇和京华是两个人。。。</blockquote>
+井皇不是paryi吗？哦京华是overidea我犯傻了
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 7261#       发表于 2020-6-20 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882323&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-20 23:12</a>
+先别吹翻译机了刚才蹦出来一个“我是一个手O者”全场都傻了
+
+
+印象里日本茶饮料无糖居多，不少咖啡倒 ...</blockquote>
+草生
+无糖茶饮好评，看到个王老吉official上舰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7262#       发表于 2020-6-20 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882080&amp;ptid=1941579" target="_blank">sAviOr 发表于 2020-6-20 22:54</a>
+
+之前对vtuber3D的印象是阿澄佳奈那只和三上枝织那只，感觉都没有今天楠的自然啊，是因为直播用的真人动作 ...</blockquote>
+顺便推两个高强度3D的代表，一个是日V一个是国V，可供参考
+
+[https://www.youtube.com/watch?v=BX7KVY2Ufl0](https://www.youtube.com/watch?v=BX7KVY2Ufl0)
+
+【Official MV】「JAM GEM JUMP!!!」Full ver.【GEMS COMPANY】
+
+[https://www.bilibili.com/video/BV13t411K7QH](https://www.bilibili.com/video/BV13t411K7QH)
+
+【2019BML VR 】《Pre_STAR》BML六人特别版MV-战斗吧歌姬！
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 7263#       发表于 2020-6-20 23:18
+
+
+
+
+狐皇这个乱码标题是什么活么<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 7264#       发表于 2020-6-20 23:18
+
+
+
+
+王老吉是挺甜的
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 7265#       发表于 2020-6-20 23:19
+
+
+
+ 本帖最后由 猫島かおる 于 2020-6-20 23:22 编辑 
+
+怎么拿gems和这些臭鱼烂虾比
+
+
+而且看看这首歌
+
+「JAM GEM JUMP!!!」
+
+作詞　辻 純更 
+
+ 作曲・編曲　田中 秀和（MONACA)
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 7266#       发表于 2020-6-20 23:20
+
+
+
+
+补了晚上阿肥3D，感觉歌力退步程度有一夸了……
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7267#       发表于 2020-6-20 23:23
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-20 23:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和其正最强！
+
+草生，
+
+<img src="https://img.saraba1st.com/forum/202006/20/233009xeb0yi2xi2jw0x32.jpg" referrerpolicy="no-referrer">
+
+
+<strong>232236bxqneooexio4voen.jpg</strong> (208.77 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 23:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7268#       发表于 2020-6-20 23:23
+
+
+
+
+歌力退步也能用夸劈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7269#       发表于 2020-6-20 23:23
+
+
+
+
+要看3D当然出个上限，不出GEMS反而要被路过的吐槽吧
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 7270#       发表于 2020-6-20 23:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882384&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-20 23:18</a>
+
+狐皇这个乱码标题是什么活么</blockquote>
+Shift_Jis 转 UTF-8 日本人很喜欢玩这个
+
+解码结果
+
+黒上フブキに『ゆくえふめい』を配信させる?たのしい
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7271#       发表于 2020-6-20 23:24
+
+
+
+
+GEMS?!
+
+<img src="https://img.saraba1st.com/forum/202006/20/232259n6pv21pp1w9p3p1x.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 232246.png</strong> (727.33 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-20 23:22 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 7272#       发表于 2020-6-20 23:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882430&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-20 23:23</a>
+和其正最强！
+
+草生，</blockquote>
+我加多宝不服
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 7273#       发表于 2020-6-20 23:29
+
+
+
+
+该劈要劈的，阿夸初期歌回能让我当一会儿mmr，怪叫一年后已经辣的不想听了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 7274#       发表于 2020-6-20 23:34
+
+
+
+
+别吹gems了，都跑了俩了。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 7275#       发表于 2020-6-20 23:34
+
+
+
+ 本帖最后由 Zaphikel 于 2020-6-20 23:52 编辑 
+
+井皇？？？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+原来是认错了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+SYL 井皇还打了SC
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/235230vxpz4q57kxuvqgxu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200620233440.png</strong> (46.1 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 23:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7276#       发表于 2020-6-20 23:35
+
+
+
+
+5555 龙宝被电车痴汉骚扰了，无能狂怒<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 7277#       发表于 2020-6-20 23:37
+
+
+
+ 本帖最后由 猫島かおる 于 2020-6-20 23:39 编辑 
+
+你可以说人不行，团队不行。但是这里讨论3D模型。史克威尔艾尼克斯的技术力也好、田中秀和以及MONACA的音乐也好虹杏完全比不过吧。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7278#       发表于 2020-6-20 23:38
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-20 23:40 编辑 
+
+好像说龙宝直播间的日历标了6.27？
+
+<img src="https://img.saraba1st.com/forum/202006/20/234040g8tm5rvyeyyr5lre.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200620234028.png</strong> (51.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 23:40 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7279#       发表于 2020-6-20 23:41
+
+
+
+
+龙宝武德还是不行，我老婆说她高中时候公车被骚扰直接回头一耳光<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 7280#       发表于 2020-6-20 23:43
+
+
+
+ 本帖最后由 猫島かおる 于 2020-6-20 23:44 编辑 
+
+是日本，是日本让龙宝变得唯唯诺诺
+
+龙宝这应该算是养gachi吗
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 7281#       发表于 2020-6-20 23:45
+
+
+
+
+あのん老哥可以补船长档了，有紫宝出没。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 7282#       发表于 2020-6-20 23:45
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-20 23:38
+好像说龙宝直播间的日历标了6.27？</blockquote>
+那个剪影说是24日有新情报？3D的话该不会真那么快27日就打头阵了？
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 7283#       发表于 2020-6-20 23:47
+
+
+
+
+深夜船长喝酒杂谈先突击联动兔子后突击联动紫宝 欢迎各位gachi来补
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 7284#       发表于 2020-6-20 23:47
+
+
+
+
+离阿火也半个月了，很合理。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 7285#       发表于 2020-6-20 23:47
+
+
+
+
+以白皮的性格不直接对着干？
+
+养嘎吃，养嘎吃
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 7286#       发表于 2020-6-20 23:47
+
+
+
+
+如果是27倒也不是不可能，那么之前从空妈到律可都是给龙皇垫刀的了。
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 7287#       发表于 2020-6-20 23:47
+
+
+
+
+哈恰麻的动画已经变得相当有趣了
+
+下午的20分钟VTR配信和新的2分钟料理系列，文案分镜什么的确实不错
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 7288#       发表于 2020-6-20 23:48
+
+
+
+
+这翻译机还作诗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">：饮酒笑童子，一饮而尽
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 7289#       发表于 2020-6-20 23:50
+
+
+
+
+虽然老哥们大概都已经看过正面了，哈恰吗的推特小视频不慎反**出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/20/234958htjpz5pz7jlr1phu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IAB1Dzu.jpg</strong> (45.87 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-20 23:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7290#       发表于 2020-6-20 23:51
+
+
+
+
+原谅我啥也看不出来。。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7291#       发表于 2020-6-20 23:54
+
+
+
+
+27号那韭菜估计长不出来了 我生日已经打了一万加音声，最多再打一万了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 7292#       发表于 2020-6-20 23:55
+
+
+
+
+这能看出什么名堂？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+只能说看出来是人类了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ascending  
+##### 7293#       发表于 2020-6-20 23:56
+
+
+
+
+一个人影，有鼻子有眼有眉毛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 7294#       发表于 2020-6-20 23:59
+
+
+
+
+五官都在脸上，没往其他地方跑……然后看出来好像化了妆，没了
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 7295#       发表于 2020-6-21 00:02
+
+
+
+
+阿盐B站到现在都还没有一万人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7296#       发表于 2020-6-21 00:02
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-21 00:06 编辑 
+
+也就这样了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+以下内容需要积分高于 3000 才可浏览
+
+虽然没什么技术含量，积分还是弄高点吧<img src="https://s1.ax1x.com/2020/06/20/N1ms9f.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 某穆克拉| + 1|顺便提醒下设置的是积分不是阅读权限。.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  shenqi2552  
+##### 7297#       发表于 2020-6-21 00:03
+
+
+
+
+哈恰玛长什么样子啊，感觉声音挺元气的年龄应该不大吧。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 7298#       发表于 2020-6-21 00:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882100&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-20 22:55</a>
+
+hololive吸了全业界的血</blockquote>
+二手live，指不光liver是二手的，连staff都是二手的。
+
+
+不知道vson摄像头是不是买的二手的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  死去的御景柚姬  
+##### 7299#       发表于 2020-6-21 00:06
+
+
+
+
+阿胜这b限回回节目效果爆炸的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">大晚上笑精神了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7300#       发表于 2020-6-21 00:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47882963&amp;ptid=1941579" target="_blank">shenqi2552 发表于 2020-6-21 00:03</a>
+
+哈恰玛长什么样子啊，感觉声音挺元气的年龄应该不大吧。</blockquote>
+换算到国内就是高三到大一这样？
+
+近照没有，之前那次挖到的是六七年前的照片了吧。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7301#       发表于 2020-6-21 00:09
+
+
+
+
+虽然没看直播，不过据隔壁repo龙宝已经开始疯狂暗示了。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7302#       发表于 2020-6-21 00:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883019&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 00:07</a>
+
+换算到国内就是高三到大一这样？
+
+近照没有，之前那次挖到的是六七年前的照片了吧。 ...</blockquote>
+露脸照我记得是16还是17年的。
+
+
+
+
+
+      

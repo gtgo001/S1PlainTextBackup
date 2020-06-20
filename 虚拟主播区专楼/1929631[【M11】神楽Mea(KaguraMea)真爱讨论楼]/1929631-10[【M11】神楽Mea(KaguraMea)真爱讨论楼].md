@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 22:03** 
+> ## **本文件最后更新于2020-06-21 00:03** 
 
 
 
@@ -4289,4 +4289,718 @@ syl被净化了<img src="https://static.saraba1st.com/image/smiley/face2017/184.
 
 
 
-                                         
+
+
+-----
+
+####  Rem-清曲  
+##### 13754#       发表于 2020-6-20 22:07
+
+
+
+
+何时能再听次完美版月兔？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13755#       发表于 2020-6-20 22:08
+
+
+
+
+无情连唱
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 13756#       发表于 2020-6-20 22:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer"> 听着这么抒情的歌,一想到明天开始要开始4天还是5天的无咩日就顶不住了   555  
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13757#       发表于 2020-6-20 22:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13758#       发表于 2020-6-20 22:12
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-20 22:13 编辑 
+
+? ３天多（除了明天有3天）， 按她的说法明天也许还能播一点
+
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13759#       发表于 2020-6-20 22:19
+
+
+
+
+她这样怎叫我放的下<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 13760#       发表于 2020-6-20 22:23
+
+
+
+
+今天4个小时了啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13761#       发表于 2020-6-20 22:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">安可曲是夜驱
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13762#       发表于 2020-6-20 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">还有2-3曲
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13763#       发表于 2020-6-20 22:39
+
+
+
+
+这首越唱越好了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13764#       发表于 2020-6-20 22:41
+
+
+
+
+唱吐了（物理
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 13765#       发表于 2020-6-20 22:41
+
+
+
+
+确实，第一次唱开头那一嗓子真的惊艳
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13766#       发表于 2020-6-20 22:43
+
+
+
+
+好爽好爽，好久没这么爽的歌回了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13767#       发表于 2020-6-20 22:45
+
+
+
+
+b站真喜欢歌回啊。。一个转播都能虚空上七八个舰长
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13768#       发表于 2020-6-20 22:45
+
+
+
+
+这么来劲怕不是一会睡不着
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13769#       发表于 2020-6-20 22:46
+
+
+
+
+好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13770#       发表于 2020-6-20 22:46
+
+
+
+
+tc预备<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13771#       发表于 2020-6-20 22:48
+
+
+
+
+好，支持tc来个吃播，正好到晚饭/夜宵时间了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13772#       发表于 2020-6-20 22:52
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-20 22:54 编辑 
+
+为什么做正事不能播会有罪恶感然后玩游戏不播不会有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 13773#       发表于 2020-6-20 22:53
+
+
+
+
+她玩游戏不说话还有罪恶感呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我希望她能把这个罪恶感丢了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13774#       发表于 2020-6-20 22:56
+
+
+
+
+心安理得的享受游戏 ×
+良心不安的享受游戏 ✓
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13775#       发表于 2020-6-20 22:58
+
+
+
+
+撒比西撒比西
+
+
+
+
+
+
+
+-----
+
+####  永青流火的心  
+##### 13776#       发表于 2020-6-20 22:58
+
+
+
+
+听最后一首歌突然有感觉，上线抽了一发10连终于出了之前抽了60发一个连UR都没有的。呜呜mea还是爱我的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13777#       发表于 2020-6-20 22:58
+
+
+
+
+唐突pasta
+
+
+我也唐突一下吧
+
+
+推荐代数入门课本A First course in Abstract Algebra - John B. Fraleigh
+
+
+上次那个太繁琐了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 素人不相识| + 1|感谢推荐，之前英文不好只能读国内的，刚好.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  sunisover2000  
+##### 13778#       发表于 2020-6-20 22:58
+
+
+
+
+戒断了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 13779#       发表于 2020-6-20 22:59
+
+
+
+
+错过三个半小时，还以为是从今天开始就不播了。。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13780#       发表于 2020-6-20 22:59
+
+
+
+
+没有咩的第一分钟，想她
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13781#       发表于 2020-6-20 23:00
+
+
+
+
+坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13782#       发表于 2020-6-20 23:00
+
+
+
+
+会有饭盒和推特的
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13783#       发表于 2020-6-20 23:02
+
+
+
+
+SC发出去了才感受到了空虚，先是加强我的脑控，然后又要我戒断，这就是你的伎俩嘛，坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13784#       发表于 2020-6-20 23:03
+
+
+
+
+坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  素人不相识  
+##### 13785#       发表于 2020-6-20 23:04
+
+
+
+
+每次说唱完后再接着唱几首，这种依依不舍的感觉让我欲罢不能，坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13786#       发表于 2020-6-20 23:05
+
+
+
+[https://b23.tv/eIOyE7](https://b23.tv/eIOyE7)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13787#       发表于 2020-6-20 23:06
+
+
+
+
+该盒限了
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 13788#       发表于 2020-6-20 23:06
+
+
+
+
+耐久歌回看到就是赚到<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13789#       发表于 2020-6-20 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13790#       发表于 2020-6-20 23:11
+
+
+
+
+啊啊啊啊不要啊我已经开始戒断了咩咩<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13791#       发表于 2020-6-20 23:12
+
+
+
+
+没有咩咩的第一个夜晚<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13792#       发表于 2020-6-20 23:13
+
+
+
+
+还有盒限可以缓解你的戒断，快上
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13793#       发表于 2020-6-20 23:13
+
+
+
+
+咩咩只属于我的第一个夜晚<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13794#       发表于 2020-6-20 23:30
+
+
+
+
+不玩游戏，3000盒子没有丝毫意义，不如5000搏一搏，谁家赌徒天天输<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 13795#       发表于 2020-6-21 00:01
+
+
+
+
+有无直播通知群，之前加的群最近都不发通知就退了
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 13796#       发表于 2020-6-21 00:03
+
+
+
+
+我吐了,整个歌回没听到,等会补了
+
+
+
+
+
+                                        
