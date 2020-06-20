@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 12:10** 
+> ## **本文件最后更新于2020-06-20 14:07** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_CPFPy" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_e602y" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -5627,6 +5627,25 @@ zsyl,
 天宝又在深夜建筑了</blockquote>
 jst4点才上线的话，之前在吃什么独食就很好奇了。。
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|作業作業|
+
+
+
+查看全部评分
 
 
 
@@ -7663,10 +7682,11 @@ Screenshot_2020-06-14-11-55-19-419_com.twitter.android~01.png
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| kanonsisya| + 1|くさ|
 | 中野六小龄童| + 1|欢乐多|
 | 魔法使い2019| + 1|.......|
 
@@ -7974,4 +7994,1575 @@ Screenshot_2020-06-14-11-55-19-419_com.twitter.android~01.png
 
 
 
-                                    
+
+
+-----
+
+####  erer  
+##### 6417#       发表于 2020-6-20 12:10
+
+
+
+
+视奸的吧。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 6418#       发表于 2020-6-20 12:11
+
+
+
+<blockquote>QWANG 发表于 2020-6-20 12:01
+我觉得这个挺神似的啊，当然只是我个人感想。</blockquote>
+这个尾巴这个配色，她是小浣熊吗？
+
+
+
+
+
+
+
+-----
+
+####  maayasuki  
+##### 6419#       发表于 2020-6-20 12:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6420#       发表于 2020-6-20 12:12
+
+
+
+
+个锤子啊，她今天live当然要搞搞动员啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6421#       发表于 2020-6-20 12:14
+
+
+
+
+35原来没睡过头啊，不过也不知道是不是真的没睡过，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚熬夜ARK又开午班挺福报的。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6422#       发表于 2020-6-20 12:15
+
+
+
+
+希和优十幽会的时候喷葵皇香水的话，不知道2000会如何评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6423#       发表于 2020-6-20 12:15
+
+
+
+
+我现在等小肥妹live的主要乐趣已经从3Dlive变成等祭丝的扭曲小作文红sc了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 6424#       发表于 2020-6-20 12:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">摸响老哥头，要坚强。不过空妈最近活跃度的确挺高啊，新衣服的激励作用真的大。
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6425#       发表于 2020-6-20 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874259&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-20 12:05</a>
+
+又T台养gachi了
+
+
+以后结婚了还会有澡堂配信吗</blockquote>
+晚上老公睡着了之后tc开播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+身上还带着男人的余温，还能听到旁边隐约的呼吸声。
+
+想想就兴奋了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6426#       发表于 2020-6-20 12:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874392&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-20 12:15</a>
+
+希和优十幽会的时候喷葵皇香水的话，不知道2000会如何评价</blockquote>
+阿希第一瓶才用了十分之一，一共买了五瓶葵皇香水，怕不是能用到有小小希<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6427#       发表于 2020-6-20 12:18
+
+
+
+
+称体重了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6428#       发表于 2020-6-20 12:20
+
+
+
+
+芙宝大欢喜，羊在推上说在考虑ark还是壶，底下回复都说ark<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 6429#       发表于 2020-6-20 12:21
+
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gfymylgr4tj20rz08zaf5.jpg" referrerpolicy="no-referrer">
+
+
+Nintendo Gamers
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6430#       发表于 2020-6-20 12:22
+
+
+
+
+上次说屁声ASMR最可怕，忘了还有尿声ASMR
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6431#       发表于 2020-6-20 12:23
+
+
+
+
+这两个选还是ARK吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6432#       发表于 2020-6-20 12:23
+
+
+
+
+等一下，傻希这为啥又要搬家<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的入住starhouse了吗
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 6433#       发表于 2020-6-20 12:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">等下个月联动时宣布夏律同居
+
+
+
+
+
+
+
+-----
+
+####  狗狗狗狗狗  
+##### 6434#       发表于 2020-6-20 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874501&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-20 12:23</a>
+
+等一下，傻希这为啥又要搬家真的入住starhouse了吗</blockquote>
+据不可靠八卦是有人特定到她家力<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  InvisibleP  
+##### 6435#       发表于 2020-6-20 12:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874510&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-20 12:24</a>
+等下个月联动时宣布夏律同居</blockquote>
+气抖冷，国内gachi怎么办啊，难道真的要🥜👿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CLT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 6436#       发表于 2020-6-20 12:26
+
+
+
+
+你楼真不基德
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6437#       发表于 2020-6-20 12:26
+
+
+
+
+你楼真不基德
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6438#       发表于 2020-6-20 12:27
+
+
+
+
+得亏那个疯掉的fandead，不然我现在可能也在发疯。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 6439#       发表于 2020-6-20 12:28
+
+
+
+
+那个潤噶吃好久没看见了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6440#       发表于 2020-6-20 12:29
+
+
+
+
+你们这帮人怎么这么容易疯，需要多练练抗压<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 6441#       发表于 2020-6-20 12:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今晚看完live我就变回来 趁现在多疯疯
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6442#       发表于 2020-6-20 12:31
+
+
+
+
+可S1就是冲国V圈讨论区的抗压吧啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6443#       发表于 2020-6-20 12:31
+
+
+
+
+live末尾宣传一波律可3d，能不能再疯一波希噶吃
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6444#       发表于 2020-6-20 12:33
+
+
+
+
+草草草，我要笑死了
+
+“今天要给大家看的，所以不好好化妆不行啊”
+
+哪里不对？
+
+“因为要给祭丝的大家看的，就像是为了见男朋友化妆一样”
+
+补充说明
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6445#       发表于 2020-6-20 12:33
+
+
+
+
+我记得蓝宝当时来S1就是因为差点被NGA劈兔皇逼疯吧，如今已经把抗压点满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 6446#       发表于 2020-6-20 12:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">晚上小肥妹live蹦蹦跳跳的时候，我看你们这群希gachi怎么办
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 6447#       发表于 2020-6-20 12:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874609&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-20 12:33</a>
+
+草草草，我要笑死了
+
+“今天要给大家看的，所以不好好化妆不行啊”
+
+哪里不对？</blockquote>
+?? 
+
+
+这个是tc内容？ <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kbtit  
+##### 6448#       发表于 2020-6-20 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874609&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-20 13:33</a>
+
+草草草，我要笑死了
+
+“今天要给大家看的，所以不好好化妆不行啊”
+
+哪里不对？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  狗狗狗狗狗  
+##### 6449#       发表于 2020-6-20 12:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这女人每次出去都要化妆，习惯力
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 6450#       发表于 2020-6-20 12:37
+
+
+
+
+live的气氛在宣布同居时达到了高潮<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 6451#       发表于 2020-6-20 12:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">能上阿希号发个小视频让我康康吗 
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6452#       发表于 2020-6-20 12:38
+
+
+
+
+这个还是不怎么梁木，yysy
+
+
+一是她确实出门必化妆，二是她化妆完确实给我们看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6453#       发表于 2020-6-20 12:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872536&amp;ptid=1941579" target="_blank">Vneet 发表于 2020-6-20 09:39</a>
+
+我也接受不了发色换了，纵然新衣服太好看了，但没了灵魂_(:з」∠)_</blockquote>
+脸更圆了，怎么就没灵魂啦
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6454#       发表于 2020-6-20 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874612&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-20 12:33</a>
+我记得蓝宝当时来S1就是因为差点被NGA劈兔皇逼疯吧，如今已经把抗压点满了 ...</blockquote>
+因为见过劈的这么狠的了，现在看啥都就那样了，反正撑死了休一天都影响不了直播的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 6455#       发表于 2020-6-20 12:49
+
+
+
+
+空妈玩游戏怎么这么喜欢配音，最早玩啪嗒砰就天天配音，一点都不怕暴露自己傻了吧唧的圆脸不人气声优身份<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6456#       发表于 2020-6-20 12:50
+
+
+
+
+那蓝宝，这怎么样 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202006/20/124938qs9s4rge3a2ir5rq.png" referrerpolicy="no-referrer">
+
+
+<strong>110.mp4-0001.png</strong> (177.49 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-20 12:49 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/124022j5s5353d68fd8tsl.png" referrerpolicy="no-referrer">
+
+
+<strong>110.mp4-0002.png</strong> (211.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 12:40 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/124923kz6a9d61fnvn6ss2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>110.mp4-0002-0003.jpg</strong> (15.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 12:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6457#       发表于 2020-6-20 12:51
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-20 12:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874830&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-20 12:50</a>
+那蓝宝，这怎么样</blockquote>
+我连当初狐皇的都没感觉好吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6458#       发表于 2020-6-20 12:53
+
+
+
+
+栞桜的3D还和Yostar Pictures有关系啊
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6459#       发表于 2020-6-20 12:56
+
+
+
+
+狐皇这表情应该去弄一套表情包的。
+https://twitter.com/Kukie_nyan/status/1274192391876907009?s=19
+https://twitter.com/akmkmk3/status/1274021170199683079?s=19
+<img src="https://p.sda1.dev/0/c728ca63d03b7fb01cd1ef00d201e9cf/IMG_CB8E52FD96A487D5BBD9AFF77682F866.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7348f6c9082cd12f0fde8aa65b862c60/IMG_20200620_125606.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7b145e8c2733ab5a573831edd9a93ff5/IMG_20200620_125603.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 6460#       发表于 2020-6-20 12:57
+
+
+
+
+这关系也太深了吧，说起来为什么yostar别的代理没有这种的啊
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6461#       发表于 2020-6-20 12:57
+
+
+
+
+这随便上点眼妆就可以成美女了，都不用阿希那么厚滤镜
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6462#       发表于 2020-6-20 12:58
+
+
+
+
+“经常被说喜欢马自立的人里面gachi恋很多呢。”
+
+“不管做什么都会被说喜欢”
+
+
+飘了飘了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 6463#       发表于 2020-6-20 12:58
+
+
+
+
+sio3D是今晚么？几点？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6464#       发表于 2020-6-20 12:59
+
+
+
+
+结婚？！
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6465#       发表于 2020-6-20 12:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 比上面那两张更直接的我都被发了好多 
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6466#       发表于 2020-6-20 12:59
+
+
+
+ 本帖最后由 tiro_finale 于 2020-6-20 13:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874918&amp;ptid=1941579" target="_blank">Vneet 发表于 2020-6-20 12:58</a>
+
+sio3D是今晚么？几点？</blockquote>
+今晚国内20点，和夏哥同一时间
+
+
+省一楼， <blockquote>童田明治Wolf faceRed apple3Dお披露目ありがとう！
+
+@warabeda_meiji
+
+【悲報】
+
+筋肉痛でベッドから起き上がれない</blockquote>
+[https://twitter.com/warabeda_meiji/status/1274204359773966336](https://twitter.com/warabeda_meiji/status/1274204359773966336)
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6467#       发表于 2020-6-20 13:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874011&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-20 11:48</a>
+
+阿希太菜了，不知道其他人有没有发推宣传，反正润姨和摸余今天没有
+
+============================== ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摸余会特地花时间去宣传？你不要小看摸余（鱼）啊！
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6468#       发表于 2020-6-20 13:05
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-6-20 13:06 编辑 
+
+说起来，S1巨魔最常用的麻将脸是哪个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这五个里哪个频次最高啊
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 6469#       发表于 2020-6-20 13:05
+
+
+
+
+兔子这嗓子怎么好不了了啊...
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6470#       发表于 2020-6-20 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874989&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-20 13:05</a>
+
+说起来，S1巨魔最常用的麻将脸是哪个？这五个里哪个频次最高啊 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1931318-1-1.html](https://bbs.saraba1st.com/2b/thread-1931318-1-1.html)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6471#       发表于 2020-6-20 13:06
+
+
+
+
+我觉得是第一个
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6472#       发表于 2020-6-20 13:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47874947&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-20 13:01</a>
+
+摸余会特地花时间去宣传？你不要小看摸余（鱼）啊！</blockquote>
+所以说推不宣传还能直接切的百鬼众牛逼啊
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6473#       发表于 2020-6-20 13:07
+
+
+
+
+摸余卖的快很正常。我要是摸余噶吃我也直接买三瓶，每次摸太厉害要发疯了就在飞机杯上喷一喷，闻一闻，挊一挊
+
+症状解除<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6474#       发表于 2020-6-20 13:08
+
+
+
+
+基德基德(눈_눈)。这个香水味道到底跟啥有关啊
+
+
+
+
+
+
+
+-----
+
+####  mmbk  
+##### 6475#       发表于 2020-6-20 13:09
+
+
+
+
+不是体味跟贴牌有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6476#       发表于 2020-6-20 13:11
+
+
+
+
+体味怎么弄 人体炼成吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 放宣传时说的口号骗骗自己就完事儿了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6477#       发表于 2020-6-20 13:11
+
+
+
+
+皮就是这个味，你们爱信不信好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 6478#       发表于 2020-6-20 13:12
+
+
+
+
+美少女的体味都是香的。
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6479#       发表于 2020-6-20 13:12
+
+
+
+
+配置香水的大师一边闻一边调味？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6480#       发表于 2020-6-20 13:13
+
+
+
+
+阿希不如把那瓶用了十分之一的葵皇香水拿出来卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就真的是和身上一样的味道了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6481#       发表于 2020-6-20 13:14
+
+
+
+
+少女确实香啊，荷尔蒙的芬芳，姨就没内味儿只能靠香水护肤品
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 6482#       发表于 2020-6-20 13:14
+
+
+
+
+你身上有她的香水味~
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6483#       发表于 2020-6-20 13:17
+
+
+
+
+就是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，与其卖皮味儿香水不如卖中之人正在用的香水
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6484#       发表于 2020-6-20 13:22
+
+
+
+
+姨有加龄臭啊，也是有人喜欢的
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6485#       发表于 2020-6-20 13:24
+
+
+
+
+中之人用dior，chanel你抄一个一样的味道不怕被告死吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 6486#       发表于 2020-6-20 13:29
+
+
+
+
+虽然你楼没人提，但葵皇香水其实在再贩
+[https://www.abemashopping.jp/nijisanji-fragrance5/](https://www.abemashopping.jp/nijisanji-fragrance5/)
+
+看了一眼还切了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6487#       发表于 2020-6-20 13:29
+
+
+
+
+凪白又在玩最新最in的The Last of Us Part2 同接只有100啊
+
+这么喜欢直播的话，给自己做个皮出道也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 6488#       发表于 2020-6-20 13:30
+
+
+
+
+推薦一個正在打泥潭唯一指定JRPG異度的管人
+[https://youtu.be/ybpErAY4kjk](https://youtu.be/ybpErAY4kjk)
+
+目前已經打到最終章附近了
+
+前面某人犧牲哭很慘 很期待後面反應<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 6489#       发表于 2020-6-20 13:31
+
+
+
+<blockquote>Zaphikel 发表于 2020-6-20 13:29
+凪白又在玩最新最in的The Last of Us Part2 同接只有100啊
+
+这么喜欢直播的话，给自己做个皮出道也好啊[f:07 ...</blockquote>
+加入holostar吧，以后再联动就可以伐木了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6490#       发表于 2020-6-20 13:32
+
+
+
+ 本帖最后由 Zaphikel 于 2020-6-20 13:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875237&amp;ptid=1941579" target="_blank">遍体精淋af 发表于 2020-6-20 13:31</a>
+
+加入holostar吧，以后再联动就可以伐木了</blockquote>
+这种特邀加入的，算在无印里面吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+或者holostar gamer?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6491#       发表于 2020-6-20 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875178&amp;ptid=1941579" target="_blank"> kanonsisya 发表于 2020-6-20 13:24</a> 中之人用dior，chanel你抄一个一样的味道不怕被告死吗 </blockquote>
+当然是直接给大牌带货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6492#       发表于 2020-6-20 13:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875317&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-20 13:41</a>
+当然是直接给大牌带货了</blockquote>
+现在这便宜货宅宅还能买了用用，大牌还能宅宅买了自己用吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6493#       发表于 2020-6-20 13:50
+
+
+
+ 本帖最后由 空集 于 2020-6-20 13:58 编辑 
+
+风来西林好像还挺debuff的 
+
+syl  草 这兔子看教程太多就直接全都跳了 
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6494#       发表于 2020-6-20 13:51
+
+
+
+
+正好星街五天前的3d熟肉出来了，看看这裙子，坐下多服帖。
+
+哪像明治的，站着都能穿模<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6495#       发表于 2020-6-20 13:52
+
+
+
+ 本帖最后由 ひびき 于 2020-6-20 13:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875387&amp;ptid=1941579" target="_blank"> bluebaby 发表于 2020-6-20 13:48</a> 引用:ひびき 发表于 2020-6-20 13:41 当然是直接给大牌带货了 现在这便宜货宅宅还能买了用用，大牌还能宅宅买了自己用吗 </blockquote>
+你想啥呢
+
+
+木口的香水7ml卖三百块钱
+
+
+dior的基本款30ml也才470块钱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+chanel 50ml的香水买600块钱
+
+
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6496#       发表于 2020-6-20 13:56
+
+
+
+<img src="https://p.sda1.dev/0/4292e315b111d8bb5cc2019b1eb270a6/IMG_8EBF959C6D63D70D203F6450BC558DDD.jpeg" referrerpolicy="no-referrer">
+继续发点淘宝斗虫…非法配信团伙的粉丝太猖狂了，连社外的V也不放过。不过还好放了Stars一条生路。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6497#       发表于 2020-6-20 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875317&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-20 13:41</a>
+
+当然是直接给大牌带货了</blockquote>
+问题这些大牌连根正苗红的二次元都不看一眼，估计根本不知道你维球霸是个什么jb啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6498#       发表于 2020-6-20 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875452&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-20 13:56</a>
+
+继续发点淘宝斗虫…非法配信团伙的粉丝太猖狂了，连社外的V也不放过。不过还好放了Stars一条生路。 ...</blockquote>
+奇妙的出现了一些没有的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这印象设计师意外的很懂嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 6499#       发表于 2020-6-20 14:02
+
+
+
+
+这玩意违反二创条例了吧？
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6500#       发表于 2020-6-20 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875507&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-20 14:02</a>
+
+这玩意违反二创条例了吧？
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+淘宝上一堆直接拿画师原图做的周边呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个蹭的还算要点脸，有点设计
+
+有些衣服就直接把原画穿身上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 6501#       发表于 2020-6-20 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875507&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-20 14:02</a>
+这玩意违反二创条例了吧？
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+欢迎举报<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6502#       发表于 2020-6-20 14:06
+
+
+
+
+敢偷任天堂的无许可配信海盗集团还有胆子告别人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+                                 
