@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 20:05** 
+> ## **本文件最后更新于2020-06-20 22:03** 
 
 
 
@@ -3633,4 +3633,660 @@ syl睿叔叔这续会员不算打榜也挺牛逼的嗷，有被坑到
 
 
 
-                                          
+
+
+-----
+
+####  A2014720  
+##### 13714#       发表于 2020-6-20 20:05
+
+
+
+
+来点苦情歌养噶赤啊<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13715#       发表于 2020-6-20 20:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非萌音来了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13716#       发表于 2020-6-20 20:12
+
+
+
+
+啊这，她为什么这么喜欢乃团25单啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13717#       发表于 2020-6-20 20:13
+
+
+
+
+是爱都露
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13718#       发表于 2020-6-20 20:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13719#       发表于 2020-6-20 20:31
+
+
+
+
+来点劲爆醒神的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13720#       发表于 2020-6-20 20:37
+
+
+
+
+开了嗓和没开还是差好多阿
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 13721#       发表于 2020-6-20 20:39
+
+
+
+
+话说这女人真就联动都不做个广告
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13722#       发表于 2020-6-20 20:40
+
+
+
+
+应该会有的（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13723#       发表于 2020-6-20 20:45
+
+
+
+
+要坦了！要坦了！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13724#       发表于 2020-6-20 20:48
+
+
+
+
+隔壁说小道消息bls下半年。哪儿的小道消息啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 13725#       发表于 2020-6-20 20:49
+
+
+
+
+手办都不做广告更别提区区一个游戏了，她联动和打广告看的是情面从来不是利益
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 13726#       发表于 2020-6-20 20:50
+
+
+
+
+讲道理，下半年还不给bls的消息，那今年年底还会有人愿意再去冲这个活动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13727#       发表于 2020-6-20 20:52
+
+
+
+
+年中还不提宣传和筹备的事，啊b负责bls的人员可能都那啥了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13728#       发表于 2020-6-20 20:54
+
+
+
+
+看bw后有没有<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13729#       发表于 2020-6-20 20:57
+
+
+
+
+这个声线好戳<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 13730#       发表于 2020-6-20 20:59
+
+
+
+
+太好听了8
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 13731#       发表于 2020-6-20 21:00
+
+
+
+
+“我选择相信睿叔叔”——合格的韭菜
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13732#       发表于 2020-6-20 21:07
+
+
+
+
+草，方舟指令里meameu用起来感觉挺强啊，100级meameu加个伊登，主线还没推，已经把钥匙门和天空方舟之外的图都通了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还剩个混沌级殿堂
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 13733#       发表于 2020-6-20 21:09
+
+
+
+
+其实我一直想问，你们心里BLS的live是什么样么？是2D挂墙头还是3D演唱会<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">现在的问题也不只是B站，mea那边如果没法配合的话这LIVE也没法搞，就怕她懒癌又犯了不想搞LIVE
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13734#       发表于 2020-6-20 21:10
+
+
+
+
+2d挂墙头你看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13735#       发表于 2020-6-20 21:12
+
+
+
+
+bls演唱会？ 做个梦
+专业的演奏团队（可以不是知名的） 
+至少4首以上新原创曲
+3套以上3d衣服
+相对不差的编舞（可以接受mmd的）
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13736#       发表于 2020-6-20 21:14
+
+
+
+
+看了看 羊驼都3d了，sio都3d了。你mea还没3d，大概是不敢出门导致的吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13737#       发表于 2020-6-20 21:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880693&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-20 21:09</a>
+
+其实我一直想问，你们心里BLS的live是什么样么？是2D挂墙头还是3D演唱会现在的问题也不只是B站，mea ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你咋不猜她出门被车撞了所以不办live
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13738#       发表于 2020-6-20 21:17
+
+
+
+
+经典连招<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 13739#       发表于 2020-6-20 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880773&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-20 21:14</a>
+你咋不猜她出门被车撞了所以不办live</blockquote>
+不是
+我们扪心自问，你觉得她对这事儿会不会特别积极嘛？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13740#       发表于 2020-6-20 21:17
+
+
+
+
+这绿色二连真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13741#       发表于 2020-6-20 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天不就要出门了吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13742#       发表于 2020-6-20 21:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13743#       发表于 2020-6-20 21:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47880821&amp;ptid=1929631" target="_blank">Cuppco 发表于 2020-6-20 21:17</a>
+
+不是
+
+我们扪心自问，你觉得她对这事儿会不会特别积极嘛？</blockquote>
+她唱这么多歌不想办才怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">犯懒这理由也太不靠谱了，说是她不敢出门所以办不了都更靠谱一点
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 13744#       发表于 2020-6-20 21:19
+
+
+
+
+又是我最喜欢的苦情歌时间 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 13745#       发表于 2020-6-20 21:26
+
+
+
+
+苦情歌
+
+好耶
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 13746#       发表于 2020-6-20 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">停一停，停一停
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13747#       发表于 2020-6-20 21:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13748#       发表于 2020-6-20 21:37
+
+
+
+
+苦情歌连发遭不住<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+她这么喜欢唱歌一人你说她会不上心演唱会么，因为疫情怂了不敢出门这个原因都更靠谱点，她也确实宅了快半年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13749#       发表于 2020-6-20 21:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13750#       发表于 2020-6-20 21:44
+
+
+
+ 本帖最后由 A2014720 于 2020-6-20 21:47 编辑 
+
+ここではランダムな英語のビューアですが、私たちはあなたの仕事が大好きなので、ハードワークを続けるように伝えたいと思いました。
+
+鬼佬脑控成功？
+
+syl被净化了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13751#       发表于 2020-6-20 21:47
+
+
+
+
+我要疯了，めああああああああああああ，不要走啊
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 13752#       发表于 2020-6-20 21:48
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13753#       发表于 2020-6-20 21:48
+
+
+
+
+太爽了我升天了<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                         

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 22:03** 
+> ## **本文件最后更新于2020-06-20 22:03** 
 
 
 
@@ -5775,4 +5775,598 @@ SANZIGEN这次制作的动作还是非常流畅，音乐和人设也不错，剧
 
 
 
-                                       
+
+
+-----
+
+####  平贺才人  
+##### 304#       发表于 2020-6-15 03:38
+
+
+
+
+那么新樱战第二部里会有克拉拉可以炼吗，还是到游戏开始时调回莫斯科去这种坑爹设定
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 305#       发表于 2020-6-15 07:27
+
+
+
+<blockquote>平贺才人 发表于 2020-6-15 03:38
+那么新樱战第二部里会有克拉拉可以炼吗，还是到游戏开始时调回莫斯科去这种坑爹设定 ...</blockquote>
+还是等确定入队再说吧 演一场就走人以前又不是没出现过
+
+
+
+
+
+
+
+-----
+
+####  PRDY  
+##### 306#       发表于 2020-6-15 12:49
+
+
+
+
+不入队也可以炼，比如神山带克拉拉回俄国重组华击团，莫斯科也在燃烧吗
+
+
+
+
+
+
+
+-----
+
+####  xingenge  
+##### 307#       发表于 2020-6-15 17:41
+
+
+
+
+
+第12話：最終話
+
+
+怒りに我を忘れ降魔の力が暴走するクラーラ。その暴走を止めるため、小さな「家族」を守るためにさくらは命をかける。カミンスキーの野望を砕き、帝都の未来と平和を守るために……帝国華撃団・花組、出撃せよ！！
+
+
+シナリオ：浦畑達彦　 絵コンテ：小野学　 演出：石黒達也
+
+<img src="https://files.catbox.moe/01vo2d.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/xw0qxp.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/06y6ej.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/30gbz5.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/rf4wuy.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/oyyus9.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 308#       发表于 2020-6-15 18:08
+
+
+
+
+老娘:白面人華擊團，參上
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 309#       发表于 2020-6-15 19:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47815305&amp;ptid=1901682" target="_blank">xingenge 发表于 2020-6-15 17:41</a>
+
+第12話：最終話
+
+
+怒りに我を忘れ降魔の力が暴走するクラーラ。その暴走を止めるため、小さな「家族」を守 ...</blockquote>
+师傅抓着机体上在这图里有一种滑稽之感<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 310#         楼主| 发表于 2020-6-19 19:45
+
+
+
+
+田中又在直播吹这次CV们唱功很好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/82f2a336gy1gfxu6d80jcj20zb0meu0x.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 311#       发表于 2020-6-19 19:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867045&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-6-19 19:45</a>
+
+田中又在直播吹这次CV们唱功很好</blockquote>
+起码里面有好几个是专业歌手呢，福凛虽然差点但是也从几年前的大力出奇迹变成现在的歌唱力很高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 312#         楼主| 发表于 2020-6-19 20:32
+
+
+
+ 本帖最后由 Toby_dak 于 2020-6-19 21:33 编辑 
+
+赤羽根吐糟佐仓女主角没出席过一次活动直播<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 313#       发表于 2020-6-19 20:38
+
+
+
+
+学隔壁战姬绝唱等舞台剧最后爆一下续作吧 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 314#         楼主| 发表于 2020-6-19 21:21
+
+
+
+
+艹，锅炉居然能合体了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 315#       发表于 2020-6-19 21:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47868208&amp;ptid=1901682" target="_blank">Toby_dak 发表于 2020-6-19 21:21</a>
+
+艹，锅炉居然能合体了</blockquote>
+
+4代不就能选妹子合体么
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 316#       发表于 2020-6-19 22:42
+
+
+
+
+4代双武是一个机体俩人 
+
+
+这代是   天神（库拉拉）+樱武（天宫樱）
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/224243k8whtheho7ptngez.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619223340.png</strong> (828.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 22:42 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  findpkq  
+##### 317#       发表于 2020-6-19 22:47
+
+
+
+
+最终话打的很不错还有歌舞<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+师傅你就这样大白天光天化日之下就飞走了（
+
+蕾拉活着真好，坑还得游戏填吧
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 318#       发表于 2020-6-19 22:51
+
+
+
+
+这天神的造型真是一言难尽……
+
+
+库拉拉要不你续作还是肉身打吧
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/19/225111min3nn6l2roko099.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200619223408.png</strong> (1.17 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-19 22:51 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  fhdelibird  
+##### 319#       发表于 2020-6-19 23:13
+
+
+
+
+這個NELSON TOUCH...不,天宮櫻TOUCH居然是物理
+
+有蘿就是好,新櫻戰2要買了
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 320#       发表于 2020-6-19 23:21
+
+
+
+
+完结感想：
+
+
+你大爷的世嘉 续作搞快点
+
+
+我可以不买PS5等你出2代
+
+
+
+
+
+
+
+-----
+
+####  sdzzzdc  
+##### 321#       发表于 2020-6-19 23:31
+
+
+
+
+天神看配色估计游戏里是和神山合体专用
+
+
+
+
+
+
+
+-----
+
+####  Toby_dak  
+##### 322#         楼主| 发表于 2020-6-19 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47868424&amp;ptid=1901682" target="_blank">任天索尼子 发表于 2020-6-19 22:43</a>
+
+4代不就能选妹子合体么</blockquote>
+？？？
+
+双座机和两台单座机合体是一回事？
+
+
+歼5+歼5=歼10？
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 323#       发表于 2020-6-20 00:12
+
+
+
+ 本帖最后由 aptx8285144 于 2020-6-20 00:14 编辑 
+
+完结撒花<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">，其实克拉拉本篇里面一直是女主之一的待遇，要求和一起出战那里心理转型真得快
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 324#       发表于 2020-6-20 01:32
+
+
+
+ 本帖最后由 eilot 于 2020-6-20 01:42 编辑 
+
+師父才是**角嗎...
+
+弱點在那麼大家上吧，花組回應是正常，但另外3位可是不同國家組來..而且她們各自的隊友去了那裡?
+
+
+其實遊戲版時都已經吐槽，花組1+5人都是主要角色，其他國家都是2+大眾臉...今次新俄都是2人+大眾臉...但比賽可是3對3
+
+
+
+
+
+
+
+-----
+
+####  eilot  
+##### 325#       发表于 2020-6-20 01:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47869814&amp;ptid=1901682" target="_blank">sdzzzdc 发表于 2020-6-19 23:31</a>
+
+天神看配色估计游戏里是和神山合体专用</blockquote>
+遊戲應該不能常用古拉拉甚至不能用，最多是支援機場外有限次數掃射，或者是限時強化配件，早期只能和櫻武或神山的無限合體，後期改良後和能所有機體合體
+
+
+
+
+
+
+
+-----
+
+####  宇宙大爆炸  
+##### 326#       发表于 2020-6-20 05:01
+
+
+
+
+蕾拉活着，所以游戏续作一开始就跟克拉拉回去重建莫斯科华击团吧？
+
+
+
+
+
+
+
+-----
+
+####  bbbuster  
+##### 327#       发表于 2020-6-20 06:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870889&amp;ptid=1901682" target="_blank">eilot 发表于 2020-6-20 01:32</a>
+師父才是**角嗎...
+
+弱點在那麼大家上吧，花組回應是正常，但另外3位可是不同國家組來..而且她們各自的隊友 ...</blockquote>
+亚瑟和玛格丽特估计在战舰守家<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+不过玛格丽特脸都没露实在有点遗憾
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 328#       发表于 2020-6-20 08:17
+
+
+
+<blockquote>bbbuster 发表于 2020-6-20 06:55
+亚瑟和玛格丽特估计在战舰守家
+
+
+不过玛格丽特脸都没露实在有点遗憾 ...</blockquote>
+不露脸就不用请钉宫动画组就能省一份钱(死)
+
+
+
+
+
+
+
+-----
+
+####  灵魂收割机  
+##### 329#       发表于 2020-6-20 13:18
+
+
+
+ 本帖最后由 灵魂收割机 于 2020-6-20 13:27 编辑 
+
+这911味儿太冲了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+既然水晶连上幻都了，下一作游戏干脆让卡明斯基出来打个酱油得了，这老小伙子还算有意思。
+
+
+
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 330#       发表于 2020-6-20 18:31
+
+
+
+
+这样看小野学还行了，专心主线“莫斯科团的疑云和克拉拉姐妹的命运”，支线的师傅的谜团什么的都是为此服务的，再配合上SANZIGEN的优良制作，挺好的
+
+
+
+
+
+
+
+-----
+
+####  鸭梨很大的路人  
+##### 331#       发表于 2020-6-20 20:22
+
+
+
+
+居然还想出续作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这么好卖？
+
+
+
+
+
+
+
+-----
+
+####  任天索尼子  
+##### 332#       发表于 2020-6-20 20:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47879929&amp;ptid=1901682" target="_blank">鸭梨很大的路人 发表于 2020-6-20 20:22</a>
+
+居然还想出续作
+
+这么好卖？</blockquote>
+成本低而已，周边模型啥的卖的还不错，如龙这么大成本也才七八十万销量，樱战这能卖个四十多万套已经可以了。
+
+
+
+
+
+
+
+-----
+
+####  无动于衷  
+##### 333#       发表于 2020-6-20 21:04
+
+
+
+
+没出疫情的时候A9VG准备采访片野 组织问题的时候就交代过出不出续作的问题就不要问了
+
+
+基本版上钉钉
+
+
+
+
+
+                                      
