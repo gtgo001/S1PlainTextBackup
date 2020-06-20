@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 16:04** 
+> ## **本文件最后更新于2020-06-20 20:05** 
 
 
 
@@ -2644,4 +2644,993 @@ mea啥时候表现过这不怕那不怕的属性的<img src="https://static.sara
 
 
 
-                                            
+
+
+-----
+
+####  weiweiEX  
+##### 13658#       发表于 2020-6-20 16:05
+
+
+
+
+草
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/160535y4vrrj5zskrqcz5b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6f84d728ac2fee.jpg</strong> (215.91 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-20 16:05 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13659#       发表于 2020-6-20 16:10
+
+
+
+<blockquote>神楽めあVチューバーでは珍しくAndroid使ってるの好印象ですね</blockquote>推上看到这么一句草
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13660#       发表于 2020-6-20 16:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876903&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-20 16:05</a>
+
+草</blockquote>
+要是我每天能被这么多咩围着该多好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13661#       发表于 2020-6-20 16:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876903&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-20 16:05</a>
+草</blockquote>
+打箱子怪的日常，能放十只草莓果酱咩，蹦蹦跳跳打箱子怪超级可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时之虫  
+##### 13662#       发表于 2020-6-20 16:48
+
+
+
+
+要播了要播了
+六点歌回<img src="https://p.sda1.dev/0/af181c9f87b1c8fba4efefc239df15ea/IMG_7761609BA205D64464681C8D68D313D1.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13663#       发表于 2020-6-20 16:50
+
+
+
+
+看起来生物钟调好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13664#       发表于 2020-6-20 16:50
+
+
+
+
+草，要出门，看不了了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13665#       发表于 2020-6-20 16:51
+
+
+
+
+断头饭吃完就上路，这一播就是离别<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13666#       发表于 2020-6-20 16:52
+
+
+
+
+别说了别说了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 13667#       发表于 2020-6-20 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877401&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-20 16:52</a>
+别说了别说了</blockquote>
+不好意思点了回复了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+手游害人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+刚刚估算了一下，买齐皮肤和装扮，要4000+的钻石啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13668#       发表于 2020-6-20 17:00
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-20 17:01 编辑 
+
+哈哈 我不玩手游， 不受剥削
+
+haha都被和谐了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13669#       发表于 2020-6-20 17:02
+
+
+
+
+可以靠肝啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这游戏还算好攒钻的，我尼特meu的皮肤就是白嫖来的
+再说流水好看点说不定下次还能有手游找咩联动呢（做梦）
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13670#       发表于 2020-6-20 17:05
+
+
+
+
+我自己肝了2800的钻,用起来还好<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 13671#       发表于 2020-6-20 17:20
+
+
+
+
+买戒指+两个皮肤就没余力买换装了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13672#       发表于 2020-6-20 17:21
+
+
+
+
+不考虑换装的话坚持做半个月的任务就能买齐
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13673#       发表于 2020-6-20 17:23
+
+
+
+
+买个初始号几十块钱抽卡皮肤都有了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13674#       发表于 2020-6-20 17:34
+
+
+
+
+说起来日报里高考那个视频里的“ 时轴：魔法使い”是楼友吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">？问一下环咩日报跟同好会到底有啥不同啊？烤的肉类型也没啥区别。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13675#       发表于 2020-6-20 17:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877913&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-20 17:34</a>
+
+说起来日报里高考那个视频里的“ 时轴：魔法使い”是楼友吗？问一下环咩日报跟同好会到底有啥不同啊 ...</blockquote>
+不知道.jpg
+
+
+我只是个工具人.png
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 13676#       发表于 2020-6-20 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876903&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-20 16:05</a>
+
+草</blockquote>
+艹，这是哪个结社
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13677#       发表于 2020-6-20 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878097&amp;ptid=1929631" target="_blank">神光咩咩 发表于 2020-6-20 17:51</a>
+
+艹，这是哪个结社</blockquote>
+推上看到的，我也不知道是哪一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl草
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/175453pilblzm4b66y4477.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-31e886b6962cd26.jpg</strong> (29.6 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:54 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13678#       发表于 2020-6-20 17:56
+
+
+
+[https://www.youtube.com/watch?v=dFFx9wRnmz0](https://www.youtube.com/watch?v=dFFx9wRnmz0)
+
+待机间开了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13679#       发表于 2020-6-20 18:05
+
+
+
+
+md人呢
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13680#       发表于 2020-6-20 18:05
+
+
+
+
+鸽了鸽了
+
+
+散了吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13681#       发表于 2020-6-20 18:05
+
+
+
+
+鸽了鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13682#       发表于 2020-6-20 18:06
+
+
+
+
+开完直播间又去睡了？？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13683#       发表于 2020-6-20 18:12
+
+
+
+
+？？？羊来<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13684#       发表于 2020-6-20 18:13
+
+
+
+ 本帖最后由 A2014720 于 2020-6-20 18:16 编辑 
+
+说好的10分<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+md居然在打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13685#       发表于 2020-6-20 18:15
+
+
+
+
+开了开了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13686#       发表于 2020-6-20 18:18
+
+
+
+
+哼， 老子和图灵奖得主见过面<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13687#       发表于 2020-6-20 18:23
+
+
+
+
+你们梁木太多了，
+
+
+她已经看穿你们了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+“肯定是男人”
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13688#       发表于 2020-6-20 18:23
+
+
+
+
+感觉好倦怠啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13689#       发表于 2020-6-20 18:25
+
+
+
+
+反看穿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13690#       发表于 2020-6-20 18:34
+
+
+
+
+写作歌回，读作聊天（不过也挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13691#       发表于 2020-6-20 18:41
+
+
+
+
+想起来小时候我妈对我说，夏天穿这么多跟个弱智一样
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13692#       发表于 2020-6-20 18:46
+
+
+
+
+嗟来食（带孝女
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13693#       发表于 2020-6-20 18:48
+
+
+
+
+“我才不想聊天啊，不要搞得我好像很想和大家聊天一样”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13694#       发表于 2020-6-20 18:53
+
+
+
+
+大家都不回话，她就只能唱了（错乱）
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13695#       发表于 2020-6-20 18:55
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-20 18:57 编辑 
+
+完了， 一直困， 说不定是病<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不安了不安了<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13696#       发表于 2020-6-20 18:58
+
+
+
+
+一个月前定好的啊，看来确实可能就是录3D了（
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13697#       发表于 2020-6-20 19:05
+
+
+
+
+？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13698#       发表于 2020-6-20 19:07
+
+
+
+
+可能天天爬五厕看黑屁的，确实很懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 13699#       发表于 2020-6-20 19:12
+
+
+
+
+这首歌之前有翻车成这样么
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13700#       发表于 2020-6-20 19:14
+
+
+
+
+mea刚刚哼了一段樱兰的op可还行
+
+
+
+
+
+
+
+-----
+
+####  Cuppco  
+##### 13701#       发表于 2020-6-20 19:30
+
+
+
+
+你咩这活动虽然说不参与，但是也忒绿色了吧
+syl睿叔叔这续会员不算打榜也挺牛逼的嗷，有被坑到
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13702#       发表于 2020-6-20 19:37
+
+
+
+
+烟鬼是哪里的得罪你了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  记莫更寂寞  
+##### 13703#       发表于 2020-6-20 19:38
+
+
+
+
+她这段到底是在模仿什么东西啊，听过好多遍了，不懂笑点在哪
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13704#       发表于 2020-6-20 19:39
+
+
+
+ 本帖最后由 路人庚 于 2020-6-20 19:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑屁之前遇到的烟鬼大叔（
+
+
+好吧原来是视频梗
+
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 13705#       发表于 2020-6-20 19:42
+
+
+
+[https://www.youtube.com/watch?v=4iR5RH-9Ojo](https://www.youtube.com/watch?v=4iR5RH-9Ojo)
+
+是这个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 记莫更寂寞| + 1|谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13706#       发表于 2020-6-20 19:50
+
+
+
+ 本帖最后由 A2014720 于 2020-6-20 19:55 编辑 
+
+好好的一首星象仪啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+怎么还能唱出三连点射的？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13707#       发表于 2020-6-20 19:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真不熟
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13708#       发表于 2020-6-20 19:55
+
+
+
+
+卧槽，这首好久没听到了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13709#       发表于 2020-6-20 19:57
+
+
+
+
+平成的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13710#       发表于 2020-6-20 19:57
+
+
+
+
+啊为什么只有一半<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13711#       发表于 2020-6-20 19:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">掐了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 13712#       发表于 2020-6-20 19:58
+
+
+
+
+她的声线如果愿意认真唱歌是真的好听<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">然而她只愿意认真唱萌音歌和口水歌
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13713#       发表于 2020-6-20 20:02
+
+
+
+
+对废萌当道的世界绝望了
+
+
+
+
+
+                                          
