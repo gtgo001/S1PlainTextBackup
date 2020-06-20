@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 02:08** 
+> ## **本文件最后更新于2020-06-20 10:07** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_siV8D" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_ZQkaC" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -5454,4 +5454,788 @@ DCS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 
 
 
-                                        
+
+
+-----
+
+####  IDIDIDID  
+##### 6284#       发表于 2020-6-20 02:13
+
+
+
+[https://www.bilibili.com/video/BV1cf4y117sw](https://www.bilibili.com/video/BV1cf4y117sw)
+
+
+挺好听的
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 6285#       发表于 2020-6-20 02:56
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-20 03:05 编辑 
+
+露露感觉更适合玩职业力量保龄炮弹<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+卡比fanart目前还不怎么多
+
+
+syl,叶子
+
+<img src="https://img.saraba1st.com/forum/202006/20/025111iobybbho87d73nlj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EazXLOWVAAA9mIL.jpg</strong> (373 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 02:51 上传
+
+
+
+
+
+[https://twitter.com/560Taro/status/1273629387326251009](https://twitter.com/560Taro/status/1273629387326251009)
+
+
+zsyl,
+
+<img src="https://img.saraba1st.com/forum/202006/20/030206ryfgyrz730qk2q02.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ea2xSV_VAAIAhLP.jpg</strong> (543.36 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 03:02 上传
+
+
+
+
+
+[https://twitter.com/hotasasa38/status/1273869552032464897](https://twitter.com/hotasasa38/status/1273869552032464897)
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 6286#       发表于 2020-6-20 03:27
+
+
+
+
+天宝又在深夜建筑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6287#       发表于 2020-6-20 04:32
+
+
+
+
+谁会在淘宝上留评论啊.......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  一杯茶  
+##### 6288#       发表于 2020-6-20 06:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47870626&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-06-20 00:59:01</a>
+仰卧起坐是对普通人没有什么卵用的一个动作，不推荐做嗷。</blockquote>怎么讲？没有锻炼身体的作用？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6289#       发表于 2020-6-20 07:01
+
+
+
+
+感觉夸这要崩了啊，船狗的3D是25号，夸的live最起码在这之后，也就是说下周夸很可能还要摸一周，这个月直接要摸过去了。
+<img src="https://p.sda1.dev/0/d2906f3203559e5198f00ca9535c315a/IMG_99767900A244A0E377693F0905533981.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6290#       发表于 2020-6-20 07:08
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-20 03:27
+天宝又在深夜建筑了</blockquote>
+jst4点才上线的话，之前在吃什么独食就很好奇了。。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6291#       发表于 2020-6-20 07:16
+
+
+
+<blockquote>bluebaby 发表于 2020-6-20 07:01
+感觉夸这要崩了啊，船狗的3D是25号，夸的live最起码在这之后，也就是说下周夸很可能还要摸一周，这个月直接 ...</blockquote>
+估计27/28哪天吧，说不定龙宝也是这两天选一天。
+
+
+
+
+
+
+
+-----
+
+####  Re.Troy  
+##### 6292#       发表于 2020-6-20 07:40
+
+
+
+
+真坐月子了？！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 6293#       发表于 2020-6-20 08:20
+
+
+
+
+大亏现在能给大脸猫写怪文书，和傻紫出去玩，再发发推，比傻葵把自己操进医院直接消失好多了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 6294#       发表于 2020-6-20 08:30
+
+
+
+
+和运营有矛盾被冷藏一个月LIVE被推延
+进度 1.5/3  <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6295#       发表于 2020-6-20 08:32
+
+
+
+
+润姨也不给头像打个码，不知道在想什么。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6296#       发表于 2020-6-20 08:36
+
+
+
+
+话说阿希准备live用了多久啊？
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 6297#       发表于 2020-6-20 08:41
+
+
+
+
+你们这么想看。那就快进到毕业吧。
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 6298#       发表于 2020-6-20 08:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">夸神推还能发，盐樱复刻说不成立，等你们挖到凛子小号黑屁再来吧。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6299#       发表于 2020-6-20 08:50
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-20 08:57 编辑 
+
+今天夏哥live几点啊，小天使企划回之后（cst 19）？
+
+<img src="https://img.saraba1st.com/forum/202006/20/085725wg290dsdgfgzfl22.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200620085707.png</strong> (65.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 08:57 上传
+
+
+
+
+
+
+这么看小天使企划可能是2小时了？
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6300#       发表于 2020-6-20 09:00
+
+
+
+
+哎哟，我都想发出来给你们看看乐子了，不过还是怕视奸。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6301#       发表于 2020-6-20 09:13
+
+
+
+
+FAMS怎么是玩人狼啊，4个人玩不空虚吗
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6302#       发表于 2020-6-20 09:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872064&amp;ptid=1941579" target="_blank"> crito 发表于 2020-6-20 08:36</a> 话说阿希准备live用了多久啊？ </blockquote>
+往前一个月不是打枪就是和男人玩没停，完全没有凛子那样休止训练的意思
+
+我赌今晚必拉胯来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6303#       发表于 2020-6-20 09:18
+
+
+
+ 本帖最后由 QWANG 于 2020-6-20 09:27 编辑 
+
+贴吧有人发了，那我就是从犯了。<img src="https://p.sda1.dev/0/32f2e88cac8f11fe73352d07f2eaf0c4/IMG_967596B5E62623C0DEB407036178E621.jpeg" referrerpolicy="no-referrer">
+加一点背景介绍<img src="https://p.sda1.dev/0/7882008de941babb06bedd114b01ff3c/IMG_9E3F704F03E0ED54D9A6F61104CF0D92.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6304#       发表于 2020-6-20 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872345&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-20 09:18</a>
+
+贴吧有人发了，那我就是从犯了。</blockquote>
+怖すぎるんだけど...
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6305#       发表于 2020-6-20 09:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872345&amp;ptid=1941579" target="_blank"> QWANG 发表于 2020-6-20 09:18</a> 贴吧有人发了，那我就是从犯了。 </blockquote>
+打码的是啥来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6306#       发表于 2020-6-20 09:27
+
+
+
+ 本帖最后由 QWANG 于 2020-6-20 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872403&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-20 09:25</a>
+打码的是啥</blockquote>
+根据上文可以看出是るしあ吧。润姨为什么这么弱智，打个码都打不好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6307#       发表于 2020-6-20 09:29
+
+
+
+
+被润姨改发色.逼疯的润gachi
+<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 6308#       发表于 2020-6-20 09:31
+
+
+
+
+啊这
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6309#       发表于 2020-6-20 09:32
+
+
+
+<blockquote>癒月ちょこ@飯テロ製造機yuzukichococh
+
+·
+
+2分
+
+12時からちょこ先生
+
+皆に大切なお話しがあります。
+
+伝えたいことお話ししたら
+
+配信はすぐ閉じるので
+
+多分そんなに長くはしません！
+
+よろしくお願いします(/・ω・)/</blockquote>
+ちょこよ...你也要去精神时光屋修炼吗
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6310#       发表于 2020-6-20 09:35
+
+
+
+
+我还看见过因为粽皇Live2D改动、感觉表情太嘲讽，实在接受不了被迫换推的
+
+fan dead对肉体的要求真的好严格
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6311#       发表于 2020-6-20 09:36
+
+
+
+こんあk
+
+<img src="https://img.saraba1st.com/forum/202006/20/093554qej919122ay1k08e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>083606u25oonumx6go43rs.jpg</strong> (31.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 09:35 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 6312#       发表于 2020-6-20 09:39
+
+
+
+
+我也接受不了发色换了，纵然新衣服太好看了，但没了灵魂_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  ♂藤冈豆腐店♂  
+##### 6313#       发表于 2020-6-20 09:42
+
+
+
+
+486这已经睡过头了40多分钟了居然还没醒
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 6314#       发表于 2020-6-20 09:43
+
+
+
+
+大亏真的要一个月不播？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6315#       发表于 2020-6-20 09:44
+
+
+
+
+486那边的大喜利会場比杂谈有意思多了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6316#       发表于 2020-6-20 09:46
+
+
+
+
+486居然也会睡过头。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl
+没办法啊，润润直播能力又不是很强，就是菜啊，只能出卖皮相吸引吸引人。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6317#       发表于 2020-6-20 09:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死了，7000多人在486窗烧舞元
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6318#       发表于 2020-6-20 09:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872511&amp;ptid=1941579" target="_blank"> colodes 发表于 2020-6-20 09:36</a> こんあk   附件： </blockquote>
+夸皇最后消失的不应该是船锚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 6319#       发表于 2020-6-20 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872017&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-20 08:30</a>
+和运营有矛盾被冷藏一个月LIVE被推延</blockquote>
+凛 子 复 活
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ♂藤冈豆腐店♂  
+##### 6320#       发表于 2020-6-20 09:55
+
+
+
+
+好像是睡醒了，评论栏一片ありがとう舞元
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 6321#       发表于 2020-6-20 09:58
+
+
+
+
+舞元发了叫起床的推，486就上了，大家都在谢谢舞元<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6322#       发表于 2020-6-20 10:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/100440y8z9u2u8pifeu78h.png" referrerpolicy="no-referrer">
+
+
+<strong>ホロスターズさぁ.png</strong> (222.48 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 10:04 上传
+
+
+
+
+
+
+ホロスターズさぁ...
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6323#       发表于 2020-6-20 10:05
+
+
+
+
+至少。。没有律可？
+
+
+
+
+
+                                       
