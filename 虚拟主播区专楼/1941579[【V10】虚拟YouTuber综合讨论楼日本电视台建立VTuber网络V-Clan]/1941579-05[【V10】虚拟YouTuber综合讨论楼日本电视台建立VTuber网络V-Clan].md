@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 16:10** 
+> ## **本文件最后更新于2020-06-20 18:07** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_p716m" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_P8BqT" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -10758,6 +10758,25 @@ syl,
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| star_platinum| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -11321,4 +11340,1981 @@ mio香之前的B限还是突击，这怎么养冲国gachi啊<img src="https://st
 
 
 
-                              
+
+
+-----
+
+####  ひびき  
+##### 6594#       发表于 2020-6-20 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876893&amp;ptid=1941579" target="_blank">weiweiEX 发表于 2020-6-20 16:04</a>
+
+草</blockquote>
+满足2345条的会有人想娶海苔男？   <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 6595#       发表于 2020-6-20 16:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876956&amp;ptid=1941579" target="_blank">2517君改二 发表于 2020-6-20 16:09</a>
+
+mio香之前的B限还是突击，这怎么养冲国gachi啊</blockquote>
+鹿姨也深夜突击的，我就吃这套，在那之前看管人从不花钱的
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6596#       发表于 2020-6-20 16:13
+
+
+
+
+她老突击了，404都天天临开播一小时内才通知要播啥的
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 6597#       发表于 2020-6-20 16:15
+
+
+
+
+夏哥发推了，看来晚上的嘉宾就是星街
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6598#       发表于 2020-6-20 16:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">  嘛 反正有的看歌回就对我感觉挺好  mio妈我觉得不同于巧可aki也不同于狐夸希  也没太大的特攻冲国需求了 
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 6599#       发表于 2020-6-20 16:20
+
+
+
+
+我的意思是练歌房可以，但别只突击啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（错过的人痛心疾首
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 6600#       发表于 2020-6-20 16:20
+
+
+
+
+老爱也好起来了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6601#       发表于 2020-6-20 16:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877025&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-20 16:16</a>
+
+嘛 反正有的看歌回就对我感觉挺好  mio妈我觉得不同于巧可aki也不同于狐夸希  也没太大的特攻冲国 ...</blockquote>
+巧可 和aki也都才几十<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+真的没法比<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便舰团人数下降趋势都很一致<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 6602#       发表于 2020-6-20 16:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">mio香的歌真棒
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 6603#       发表于 2020-6-20 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876399&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-20 15:18</a>
+
+稍微整理了一下点的同接，hiyoko数据，没有全部检查一遍可能遗漏
+
+
+18287 咩咩咩模型披露回（全场最高）</blockquote>
+白天王18年前期有1w8
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6604#       发表于 2020-6-20 16:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877086&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-20 16:22</a>
+
+巧可 和aki也都才几十
+
+真的没法比
+
+顺便舰团人数下降趋势都很一致 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 毕竟木口退潮感觉是大趋势了 
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6605#       发表于 2020-6-20 16:25
+
+
+
+
+看来是真没唱爽，直接全老歌了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6606#       发表于 2020-6-20 16:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877105&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-20 16:24</a>
+
+毕竟木口退潮感觉是大趋势了</blockquote>
+看看放暑假如何吧，
+
+不过大概很多学校暑假都要补课<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 6607#       发表于 2020-6-20 16:29
+
+
+
+
+代替很多的二次元网红不火了想再火一次有点难啊，除非加大投入<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6608#       发表于 2020-6-20 16:32
+
+
+
+
+话说点箱这个入驻是真的没有合作吗，连中文名都没全的，很难搜索的阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就算换成罗马字都比片假名好阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  admentus  
+##### 6609#       发表于 2020-6-20 16:37
+
+
+
+
+兔子最近同接比起五月份掉的有点多，明明玩的也是比较擅长的rpg
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6610#       发表于 2020-6-20 16:37
+
+
+
+
+木口只要花很小一点点功夫就能减慢b站的退潮的，直播完重新开台念sc就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这点小功夫都不做也难怪维阿和散装yhm占领市场了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6611#       发表于 2020-6-20 16:38
+
+
+
+
+木口不是衰落了......而是回到了一个比较合理的投入回报比了
+
+
+狂热散去了，之后就是投入多少得到多少的时代了。比起如今一定得靠财富密码和曲意逢迎才能得到青睐的新巫妖王们，木口和你麻已经很幸运了
+
+
+但是pxj其实都是很现实的生物，如果木口真的想重新经营分矿，我估计pxj也随时都会再次倒向木口，只是，怎么说服三四期和未来继承巨大家业的天之骄子们来p就是木口主要的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 6612#       发表于 2020-6-20 16:40
+
+
+
+
+爱丽丝直播做的不错了，也很难挑有什么毛病
+
+不过我被那次茶会突破了下限之后，看播心态发生了亿点变化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6613#       发表于 2020-6-20 16:40
+
+
+
+
+话说年初4期生那阵箱推送了多少订阅
+
+
+
+
+
+
+
+-----
+
+####  tafouuwadf  
+##### 6614#       发表于 2020-6-20 16:42
+
+
+
+
+点箱不是和holo，p家等一起都在超电文化里吗。。。。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6615#       发表于 2020-6-20 16:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877276&amp;ptid=1941579" target="_blank">tafouuwadf 发表于 2020-6-20 16:42</a>
+
+点箱不是和holo，p家等一起都在超电文化里吗。。。。</blockquote>
+我的意思是，点箱这个官号完全没有经营的意思……，
+
+即使是彩虹，好歹还给一大堆人定了汉字名呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 6616#       发表于 2020-6-20 16:46
+
+
+
+ 本帖最后由 winda 于 2020-6-20 16:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877288&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-20 16:43</a>
+
+我的意思是，点箱这个官号完全没有经营的意思……，
+
+即使是彩虹，好歹还给一大堆人定了汉字名呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">点箱有中文名的，比如夜樱灵和木曾爱月（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6617#       发表于 2020-6-20 16:49
+
+
+
+
+错楼编辑。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6618#       发表于 2020-6-20 16:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877313&amp;ptid=1941579" target="_blank">winda 发表于 2020-6-20 16:46</a>
+
+点箱有中文名的，比如夜樱多摩和木曾小豆（</blockquote>
+但是官号不是汉字岂不是很难搜嘛！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 6619#       发表于 2020-6-20 16:50
+
+
+
+
+自己找游戏被运营给橄榄，还是mrr的游戏库好使<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+luna.png
+(28.87 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-20 16:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/165018qplvzvlz7hvcvtct.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+mrr.png
+(91.51 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-20 16:50 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/165018njrkrsrzt1rf78tj.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 6620#       发表于 2020-6-20 16:52
+
+
+
+
+话说之前奶木口星的呢？holo p的原来不是holo star 而是原属innk的吗
+
+还是最后给来个one more thing？
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 6621#       发表于 2020-6-20 16:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877363&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-20 16:50</a>
+
+但是官号不是汉字岂不是很难搜嘛！</blockquote>
+白道十二宫也算是半正式称呼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://space.bilibili.com/39187 ... 5392358643104521928](https://space.bilibili.com/391875813?from=search&amp;seid=15392358643104521928)
+
+这个遗址很迷惑，很喜感
+
+
+
+
+
+
+
+-----
+
+####  石破天  
+##### 6622#       发表于 2020-6-20 16:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877403&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-20 16:52</a>
+
+话说之前奶木口星的呢？holo p的原来不是holo star 而是原属innk的吗
+
+还是最后给来个one more thing？ ...</blockquote>
+和男人的是7月的3d联动，不是今天
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 6623#       发表于 2020-6-20 17:04
+
+
+
+
+猜测sio3D相关
+
+首先和Yostar Pictures有关，但YP似乎没有自己的CG staff
+
+从以前的作品PV制作名单看3D是委托给一家叫クリープ的公司
+
+<img src="https://img.saraba1st.com/forum/202006/20/165752uuigmt9ib59t19fi.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 165355.png</strong> (13.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 16:57 上传
+
+
+
+
+
+
+
+在其公司的新闻页面也提到今年一月份成立了光学动捕工作室
+
+<img src="https://img.saraba1st.com/forum/202006/20/165910gbze3qympgg67024.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 165408.png</strong> (216.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 16:59 上传
+
+
+
+
+
+
+
+而staff表中最后一个叫丹羽一希的工作人员推特简介同时标注了YP和CP
+
+<img src="https://img.saraba1st.com/forum/202006/20/170031mu6hucc7sru287h5.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 170018.png</strong> (6.05 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:00 上传
+
+
+
+
+
+
+
+回sio的YP制作人也回过她
+
+<img src="https://img.saraba1st.com/forum/202006/20/170212py40z7m83cvyv7xo.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 165426.png</strong> (52.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:02 上传
+
+
+
+
+
+
+
+综上，sio的3D可能是一家挺专业的动画相关CG公司做的
+
+<img src="https://img.saraba1st.com/forum/202006/20/170403tjnisrlh4ffo9fr4.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-20 170353.png</strong> (223.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6624#       发表于 2020-6-20 17:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877585&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-20 17:04</a>
+
+猜测sio3D相关
+
+首先和Yostar Pictures有关，但YP似乎没有自己的CG staff
+
+从以前的作品PV制作名单看3D是委托 ...</blockquote>
+那么大概能到什么水准呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6625#       发表于 2020-6-20 17:13
+
+
+
+
+哈夹吗最近的直播都挺有趣的阿，做视频然后自己和观众一起看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 6626#       发表于 2020-6-20 17:15
+
+
+
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_k54BG" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+[https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 6627#       发表于 2020-6-20 17:17
+
+
+
+
+哈恰玛神回进行中
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6628#       发表于 2020-6-20 17:18
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-20 17:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876312&amp;ptid=1941579" target="_blank">Mr.shelter 发表于 2020-6-20 15:11</a>
+
+说来奇怪，为啥爱丽丝这种这么纯的yhm，对b也很上心，对冲国粉丝也很宠，但还是打不过那些偶尔来b看看的管 ...</blockquote>
+理由一也是最主要的原因很土，那就是爱丽丝的出圈梗不够多，不够有趣，到现在为止真正称得上完全出圈的也只有歪比巴卜，可是歪比巴卜也不算爱丽丝自己的梗，甚至小兔子可能还有不少被引去看大司马了呢。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而歪比巴卜再往前可能都要到和三字母联动了，可是那会儿闹腾的也是天狗，后来不闹腾了走的也是天狗，转化率还是不够高......其他的二线梗，比如gbr之歌还有更早期的起床啦也都没有戳到大多数人的感点。这种迷因传播的缺失导致爱丽丝一直无法给小兔子一个口号，一个身份认同，一个输出环境，这导致传教的小兔子们手中只有经，却没有打开话题的剑。同时也导致了爱丽丝在长期的b站深耕当中输给了很多后来的yhm们。
+
+
+理由二就是很直接的倍率，任何主播区都是头部通吃。可除头部外主播的发展能力并不取决于圈子的类型，而取决于圈子的大小。好比说斗鱼d2，枫哥那里漏下来的比例可能和别的圈子没差，但是因为d2观众多，导致漏下来以后依然有很可观的量流到了一线，而一线再流到二线。这些一二线的主播要留住枫哥那里漏下来的饭，就需要有一个基本的绝对的粉丝数量来创造一个粉丝圈子，并且开始造梗并发展直播juan文化，这就是《位置》，这就是《沪上皇》。在d2巨大的人口基数上，很多一二线主播凭借不大的剩饭比例依然获得了开始一个圈子需要的绝对最低人数，从而慢慢地运营起来了。
+
+
+虚拟主播圈也是一个道理，只不过由于阿批的倍率悬殊，推荐榜的一二三线都是阿批自己定的，这种情况下，被木口和维阿霸占了一二线榜后，爱丽丝必须和一些真正意义上深耕个人势争一个可能也没多少人看的前排最后一个，或者手机第二屏乃至第三屏的位置，这就非常难游出来并且积累足够的小兔子用以加快制造行之有效的迷因文化以及帮助扩散迷因文化（小兔子确实不少，但无论是绝对数量还是活跃人数都还远远不够），须知一个迷因文化的流行很多时候并不需要多么有趣，而只需要足够多的说“新话”的人罢了。
+
+
+第三，就是国v竞争，说白了这就是一个环境骤变的问题。在木口入驻的时候国v大多还是受精卵状态，可是在20年三四月份到现在，国v的发展可以用一日千里来形容。这导致了在那之前火起来的杏其实根本就无所谓国v这一变量，而等国v崛起的时候，众所周知，杏已经不再是环境下的一个部分，而成了环境的一部分，自然不用跟国v竞争（更不用说国v本身就有多少为了热度乃至真心爱杏的，ie你楼某姐贵）。
+
+
+可是由于从19年夏天直到现在的阿批直播都没能让爱丽丝真正爆火起来，而这期间又正好撞上木口的绝赞上升期，导致了爱丽丝没能成为环境的一部分，继而又撞上了如日中天的国v上升期......而在国v逐步被大众所接受的今天，在语言劣势下同国v争夺慢慢抛弃日v的一般通过pxj越来越难了，而专注日v的pxj又往往都有主子了（高小姐凭着跪舔大粪和国内溢出的inm小鬼早就出圈了，oto倒是真的靠一手好女人+唱功，我是服气的）
+
+
+最后诛一句心好了，那就是反感彩虹是真杏箱推必然的结局。无论一个箱推民多么温和多么包容，箱推依然意味着对于一个组合的忠诚和信赖，可是在硬币的另一面，这也必然代表着对箱外或多或少地排斥或者抵触，可能远远达不到仇恨和敌视的地步，但是箱推的基本属性决定了，箱推必然无法用平常心去看箱外的同业者，尤其是同样作为演者集团的箱外同业者。当然这点只针对于holo箱推民本身，不过在p站这个数量是非常高的，这也导致了彩虹还比不上个人势的尴尬局面。无论杏民原本的用户画像有多mmr，对彩虹有多心平气和，很大程度上也没法否定这一点，毕竟看看刚刚接触虚拟主播文化的4chan全肯定杏民达利特吧，有关虹信的黑称都已经开始发芽了......（当然4ch就算处在偶像狂热中也依然是巨魔当然也是原因之一<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+
+最后，阿批春晚的那个单品爱丽丝也参加了，这意味着从《牌面》上来说爱丽丝也是国内第一档的了，只是可能没那么火罢了。毕竟论资排辈。爱丽丝还是不怵的，而同时真正的死忠小兔子也是不少的。所以虽然更进一步有点难，但是爱丽丝在国内也谈不上混的糟糕了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 落雪无痕| + 1|好评加鹅|
+| SuntoryNomu| + 1|思路广|
+| YODOboi| + 1|作文代|
+| Mr.shelter| + 1|啊这，zqsg加科普好评|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 6629#       发表于 2020-6-20 17:23
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/172036pdnscppdcziyhgqy.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200620172017.png</strong> (397.55 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:20 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/172035fbx411dqe6v7g47q.png" referrerpolicy="no-referrer">
+
+
+<strong>TIM图片20200620172006.png</strong> (380.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:20 上传
+
+
+
+
+天开司跟楠栞桜的观众比例，挑的一张solo一张跟holo的联动，到底是不是虹人，吸不吸血就见仁见智了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kk89897  
+##### 6630#       发表于 2020-6-20 17:23
+
+
+
+
+哈卡吗这整的有综艺的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 6631#       发表于 2020-6-20 17:26
+
+
+
+
+哈恰玛最近脑子完全变成哈恰玛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 6632#       发表于 2020-6-20 17:29
+
+
+
+
+谁能想到往虚拟吉本兴业路线走的是心心
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6633#       发表于 2020-6-20 17:29
+
+
+
+
+起床，等小天使了。
+[https://www.youtube.com/watch?v=FNKYmbxeH1E](https://www.youtube.com/watch?v=FNKYmbxeH1E)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 6634#       发表于 2020-6-20 17:31
+
+
+
+
+（无端）我觉得整一个管人称呼大全会很有用，把从最普通的mmr称呼到“X皇”到各种前世梗黑称中之人都列一遍。方便新参或者不看某些管人的人理解。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 6635#       发表于 2020-6-20 17:32
+
+
+
+
+b站现在比物述有栖舰长高的非常驻日v只有凑、mea、星街、花丸，物述有栖能打过这几个才怪。至于国v，交流加爆播养gachi比靠每周2次b限养gachi快多了，黑桃影5月播了185小时。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 6636#       发表于 2020-6-20 17:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877723&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-20 17:18</a>
+
+理由一也是最主要的原因很土，那就是爱丽丝的出圈梗不够多，不够有趣，到现在为止真正称得上完全出圈的也 ...</blockquote>
+那按照你这个理论，真彩虹箱推是不是反感杏呢
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 6637#       发表于 2020-6-20 17:37
+
+
+
+
+小号播完回来大号播了T.T
+
+
+
+
+
+
+TIM截图20200620173600.png
+(38.55 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-20 17:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/173658q9ktjqlzdljttxao.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6638#       发表于 2020-6-20 17:37
+
+
+
+
+因为bilibili里除非你的观众多到crew或者星咏者这个级别，不然观众多也抵不上一个石油佬，阿b弄人气不弄同接不就是为了吸引石油佬打钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 6639#       发表于 2020-6-20 17:37
+
+
+
+ 本帖最后由 空集 于 2020-6-20 17:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 说不反感我是不信的
+
+当然一般也没彩虹箱推毕竟人太多了，但是无差别转发彩虹相关的还是见过的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6640#       发表于 2020-6-20 17:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877899&amp;ptid=1941579" target="_blank">free 发表于 2020-6-20 17:34</a>
+
+那按照你这个理论，真彩虹箱推是不是反感杏呢</blockquote>
+真彩虹箱推……？
+
+推谁？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 6641#       发表于 2020-6-20 17:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877950&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-20 17:38</a>
+
+真彩虹箱推……？
+
+推谁？</blockquote>
+箱推是推这个“品牌”，不是说必须每个人都推都看，杏人现在基本也很难每个人都看了
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 6642#       发表于 2020-6-20 17:41
+
+
+
+
+🌈运营啊（
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6643#       发表于 2020-6-20 17:41
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-20 17:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877899&amp;ptid=1941579" target="_blank">free 发表于 2020-6-20 17:34</a>
+
+那按照你这个理论，真彩虹箱推是不是反感杏呢</blockquote>
+彩虹箱推远比杏箱推复杂多了
+
+
+是喜欢彩虹箱，还是喜欢带给了他某个v的ickr和旗下运营，还是喜欢田角陆，还是喜欢彩虹的国内粉群，还是喜欢自称“虹仁”，又或是纯粹喜欢反杏，这些林林总总的群体都喜欢也都会自称彩虹箱推。
+
+
+对于彩虹这种箱力建设完全不上心的主播联盟，推箱本就很难是喜欢其整体的氛围，文化又或者是人际关系（这里特指全箱级别的人际关系），而由此出现的彩虹箱推真的什么可能都有。
+
+
+简单来说，由于真正意义上的彩虹箱推在彩虹几乎0箱感的现状下几乎是伪命题，所以虹仁并不意味着天然反感杏，就是如此
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6644#       发表于 2020-6-20 17:42
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/20/174148xhy7h2ql2s22cihh.png" referrerpolicy="no-referrer">
+
+
+<strong>1592646085(1).png</strong> (43.01 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-20 17:41 上传
+
+
+
+
+
+唉，我也产生梁木了。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6645#       发表于 2020-6-20 17:43
+
+
+
+
+真有那种
+
+想看直播了→看看彩虹社有谁在播→一个个点进去看几分钟→找一个好看的看了
+
+这样的“彩虹社箱推”吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6646#       发表于 2020-6-20 17:44
+
+
+
+
+能标记为虹人的，确实有一部分对杏有点反感，典型特征是强调不看杏，单纯不看但不强调这条的属于正常人
+
+以前我对点有些反感的时候都不会特意不看点
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 6647#       发表于 2020-6-20 17:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877899&amp;ptid=1941579" target="_blank">free 发表于 2020-6-20 17:34</a>
+那按照你这个理论，真彩虹箱推是不是反感杏呢</blockquote>
+肯定反感啊，不过唯一的问题是，真的存在真彩虹箱推这种东西吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 6648#       发表于 2020-6-20 17:45
+
+
+
+
+“真杏箱推”为什么要反感虹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就算反感虹，为什么要反感爱丽丝啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6649#       发表于 2020-6-20 17:45
+
+
+
+
+colo哥别特了
+
+再特就有铁血豆腐去公司门口蹲点了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6650#       发表于 2020-6-20 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877991&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-20 17:43</a>
+真有那种
+
+想看直播了→看看彩虹社有谁在播→一个个点进去看几分钟→找一个好看的看了
+
+这样的“彩虹社箱推” ...</blockquote>
+箱推的真正流程是
+我推播没播，没播我二推播没播，没播我三推播没播，都没播看看同社内谁在播有兴趣就去。
+
+对应的单推就是，我推没播，关上直播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zaphikel| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 6651#       发表于 2020-6-20 17:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877846&amp;ptid=1941579" target="_blank">SteinSlayer 发表于 2020-6-20 17:29</a>
+
+谁能想到往虚拟吉本兴业路线走的是心心</blockquote>
+“大事件”之后我第一时间就说了，哈恰玛可能是下定决心要无风起一波节奏了，之后可能也会有后续......
+
+
+只能说只要肯下决心谁都能火起来，vjuan目前的流动性还是阔以的
+
+
+眼看心心就要成为一期生之光啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdqass  
+##### 6652#       发表于 2020-6-20 17:48
+
+
+
+
+那种通过diss其他的某个箱来构建“铁血X人”的算不算“箱推”，我暂且蒙古<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6653#       发表于 2020-6-20 17:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47877964&amp;ptid=1941579" target="_blank">free 发表于 2020-6-20 17:40</a>
+
+箱推是推这个“品牌”，不是说必须每个人都推都看，杏人现在基本也很难每个人都看了 ...</blockquote>
+就像我之前说过的那样，以前我是很喜欢有liver能喊出“这就是2434！”的彩虹社的。那时候我还真有点反感杏，觉得这围魏救赵有点丢人。
+
+而现在我回过头看彩虹，现在抽卡这么多，彩虹社的整体气氛都变淡了。大家都不知道彩虹是一个什么样的团体了。
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6654#       发表于 2020-6-20 17:49
+
+
+
+
+我看了眼狐狸在干啥.......好吧，心心比狐狸播的有趣多了
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 6655#       发表于 2020-6-20 17:49
+
+
+
+
+看下noripro那两位的人气就知道陆士真不差了。再加上她又经常杀pxj最喜欢的拱火打钱节奏，收入不高是这样的
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 6656#       发表于 2020-6-20 17:50
+
+
+
+
+不反感杏也不怎么看杏，但是现在杏小鬼比例也太高了。。。这一点有点不舒服
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6657#       发表于 2020-6-20 17:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878068&amp;ptid=1941579" target="_blank">aele 发表于 2020-6-20 17:49</a>
+我看了眼狐狸在干啥.......好吧，心心比狐狸播的有趣多了</blockquote>
+那你还是不懂狐狸，之后就该把这套东西和杏星一起弄了，这操作最近我起码看了三次。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6658#       发表于 2020-6-20 17:52
+
+
+
+
+待在这里感觉杏仁都是巨魔。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 6659#       发表于 2020-6-20 17:52
+
+
+
+
+按这种定义彩虹大概已经没有箱推了，即使上位一个不播大部分人也不会去看底边的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6660#       发表于 2020-6-20 17:53
+
+
+
+
+楼里的存粮杏仁还是很多的
+
+鱼头哥、刃牙哥、咕哒哥大眼哥还有我，都是存粮杏仁
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 6661#       发表于 2020-6-20 17:53
+
+
+
+
+更加认同喜欢A的直播风格，和不看B是两个独立的事情。
+
+“我主推的杏都看不过来呢没空看爱丽丝”和“爱丽丝因为不是杏所以再好看我都不看”，这是完全不同的，我很好奇第二种杏人有多少，第一种还是比较常见的。
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6662#       发表于 2020-6-20 17:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878088&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-20 17:51</a>
+
+那你还是不懂狐狸，之后就该把这套东西和杏星一起弄了，这操作最近我起码看了三次。 ...</blockquote>
+我当然知道啊233，妹抖不就是星三期那个么，只是这完全自嗨的直播内容她也真敢开台播啊
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 6663#       发表于 2020-6-20 17:54
+
+
+
+<blockquote>bluebaby 发表于 2020-6-20 17:47
+箱推的真正流程是
+
+我推播没播，没播我二推播没播，没播我三推播没播，都没播看看同社内谁在播有兴趣就去 ...</blockquote>
+作为单推来说，404彩虹我只关注了露，露不播的时候，404会给我推送其他各种彩虹，偶尔点进去看几眼，久而久之404只会给我推送彩虹的主播
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6664#       发表于 2020-6-20 17:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878088&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-20 17:51</a>
+
+那你还是不懂狐狸，之后就该把这套东西和杏星一起弄了，这操作最近我起码看了三次。 ...</blockquote>
+有时候我在想，狐狸不把这些跟同事搞，是不是有那种不想破坏同事的rp的想法。毕竟hololive是个偶像团体嘛（笑）
+
+毕竟虽然她们都唱animesong，但是实际上有狐狸宅度的寥寥无几，还都是有自己内容的。
+
+刚好星没什么负担，干脆就和星搞这些？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6665#       发表于 2020-6-20 17:56
+
+
+
+
+真的有人有那么多的时间去看直播的吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 6666#       发表于 2020-6-20 17:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878119&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-20 17:53</a>
+
+楼里的存粮杏仁还是很多的
+
+鱼头哥、刃牙哥、咕哒哥大眼哥还有我，都是存粮杏仁 ...</blockquote>
+等下，发刃牙表情包的和头像是大眼的不是阿洛一个人吗？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 6667#       发表于 2020-6-20 17:56
+
+
+
+
+不是箱推但被我推逼的比箱推懂的还多…
+感觉所谓“箱推”就是那种哪里热闹去哪里，没热度就走人，只在意表面多厉害多热闹，不会在意背后付出的人
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 6668#       发表于 2020-6-20 17:57
+
+
+
+
+推没播去hiyoko找台高同接感兴趣的看，是什么人
+
+
+
+
+
+
+
+-----
+
+####  YODOboi  
+##### 6669#       发表于 2020-6-20 17:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878121&amp;ptid=1941579" target="_blank">free 发表于 2020-6-20 17:53</a>
+
+更加认同喜欢A的直播风格，和不看B是两个独立的事情。
+
+“我主推的杏都看不过来呢没空看爱丽丝”和“爱丽丝 ...</blockquote>
+404那种用户隔离的环境还可能存在后者，国内这种DD烂梗玩了十年甚至九年的，不看你虹人只是单纯的不知道而已<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 6670#       发表于 2020-6-20 17:57
+
+
+
+<blockquote>crawarb 发表于 2020-6-20 17:57
+推没播去hiyoko找台高同接感兴趣的看，是什么人</blockquote>
+冠军粉
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6671#       发表于 2020-6-20 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878155&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-20 17:57</a>
+推没播去hiyoko找台高同接感兴趣的看，是什么人</blockquote>
+凑热闹的
+当然也可以说是冠军粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6672#       发表于 2020-6-20 17:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878155&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-20 17:57</a>
+
+推没播去hiyoko找台高同接感兴趣的看，是什么人</blockquote>
+数字厨……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 6673#       发表于 2020-6-20 17:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878102&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-20 17:52</a>
+
+待在这里感觉杏仁都是巨魔。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨魔的都是装成杏仁才对吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 6674#       发表于 2020-6-20 18:00
+
+
+
+
+小天使这待机没想象中强。
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 6675#       发表于 2020-6-20 18:00
+
+
+
+
+我是你楼纯良杏仁<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+问下虹真的有箱推吗
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6676#       发表于 2020-6-20 18:00
+
+
+
+
+数字厨盛宴第一弹：虹杏联动大对决开了
+
+
+
+
+
+
+
+-----
+
+####  墨玄i  
+##### 6677#       发表于 2020-6-20 18:01
+
+
+
+
+打起来打起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6678#       发表于 2020-6-20 18:01
+
+
+
+
+除了大脸猫这个紫宝诱捕器之外只能在这种大联动里看见紫宝了、
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6679#       发表于 2020-6-20 18:01
+
+
+
+
+存粮人，集合！
+
+存粮杏仁的我看虹基本靠云还有b站切片，德比露露安洁的切片最近推给我的比较多。
+
+直播的话本身日语不是很懂，看小天使直播都要靠同传man+猜+各种找repo，能坚持追直播真的是靠爱了。
+
+国内环境的话，我估计跟我一样的应该不少，入圈就是杏，杏浓度又高，日语渣也能接触到大量信息，那即使偶尔接触到了彩虹的直播也不会去看了，杏没在播的话可能就去打游戏或者干别的了，毕竟人生不只有vtuber不是么。
+
+再聊下虹杏对劈的问题，根据v综的观察，对劈基本上都是对劈运营，或者整体一起劈，很少有攻击对方箱中固定v的。反倒是内部信者大战劈v本人比较狠。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 6680#       发表于 2020-6-20 18:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47878197&amp;ptid=1941579" target="_blank">墨玄i 发表于 2020-6-20 18:01</a>
+
+打起来打起来</blockquote>
+你看看你自己楼上上的话？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 6681#       发表于 2020-6-20 18:03
+
+
+
+ 本帖最后由 aele 于 2020-6-20 18:05 编辑 
+
+喷喷大会对模仿逆凸
+
+目前差值3000
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 6682#       发表于 2020-6-20 18:05
+
+
+
+
+开局拉跨，小天使咱们算了算了。
+
+太地狱了这个企划。。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 6683#       发表于 2020-6-20 18:05
+
+
+
+
+虹领先3000了，杏可以投了
+
+不过虹这阵容实在有点软啊
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 6684#       发表于 2020-6-20 18:05
+
+
+
+
+投了投了
+
+ホロライブ果然还是需要点男人
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 6685#       发表于 2020-6-20 18:05
+
+
+
+
+都赖狐皇撞联动，这么甩锅行不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 6686#       发表于 2020-6-20 18:06
+
+
+
+
+杏主力军被虹底边秒杀
+
+
+
+
+
+
+
+-----
+
+####  yuezhi  
+##### 6687#       发表于 2020-6-20 18:06
+
+
+
+
+这羊是时雨妈演的吧
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 6688#       发表于 2020-6-20 18:07
+
+
+
+
+纯粮杏人的我，根本就不怎么看虹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最多看看爱丽丝的直播
+
+
+
+
+
+                           
