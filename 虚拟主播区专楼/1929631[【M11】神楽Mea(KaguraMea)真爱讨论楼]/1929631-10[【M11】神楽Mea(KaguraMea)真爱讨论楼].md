@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 08:02** 
+> ## **本文件最后更新于2020-06-20 16:04** 
 
 
 
@@ -2041,4 +2041,607 @@ bml也是这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 
 
 
-                                             
+
+
+-----
+
+####  Dualist彩  
+##### 13622#       发表于 2020-6-20 08:07
+
+
+
+
+今天要有一播吧，接下来就是几天无咩，好痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13623#       发表于 2020-6-20 10:53
+
+
+
+
+”神楽めあ大先生と神の右手”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+ https://t.co/YGUhcbKMoI
+<img src="https://p.sda1.dev/0/02ee0dd72244d60077955610a20e187b/IMG_82A95DD350C64C95E67ECF4450C457D2.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13624#       发表于 2020-6-20 12:16
+
+
+
+
+今天不播的话下次就要在6天后犬山频道看见她了，难顶
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13625#       发表于 2020-6-20 12:18
+
+
+
+
+又要戒断了，我要.....没事，我还有方舟里的咩陪我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13626#       发表于 2020-6-20 12:21
+
+
+
+
+懂了，mea知道她要离我而去，所以在手游里留下一个mea陪我
+咩啊，你好温柔<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13627#       发表于 2020-6-20 12:21
+
+
+
+
+5天的精致睡眠，狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13628#       发表于 2020-6-20 12:51
+
+
+
+
+突然跟隔壁的crew产生了共情(ಥ_ಥ)。咩咩今天务必动一动啊
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 13629#       发表于 2020-6-20 12:52
+
+
+
+
+共不起共不起
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13630#       发表于 2020-6-20 13:03
+
+
+
+
+隔壁咋了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13631#       发表于 2020-6-20 13:05
+
+
+
+
+感觉今天可能会有场b限
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 13632#       发表于 2020-6-20 13:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁这个月没动几次，而且之前种过一轮梁木，所以发病的人有点多，各种阴谋论都出来了。话说讨论这个干啥，你楼不是最讨厌连体人了吗
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13633#       发表于 2020-6-20 13:09
+
+
+
+
+感觉今天无了(´；ω；`)安心打方舟
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13634#       发表于 2020-6-20 13:16
+
+
+
+
+怎么有人说有有人说无<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13635#       发表于 2020-6-20 13:17
+
+
+
+
+红皮饺子使用权没在她手上吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13636#       发表于 2020-6-20 13:19
+
+
+
+
+但是你说阿b做了个3d就用了二次（算上还没消息的bls），也不太可能吧？感觉会以咩咩b限第二套3d发表的形式噶韭菜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。阿b总是赢。
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13637#       发表于 2020-6-20 13:21
+
+
+
+
+红皮饺子已经给mea使用权了，是不是送了就不知道了。不过啊b这点钱还是送的起的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 13638#       发表于 2020-6-20 13:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yysy阿b虽然抽成高，但是确实给资源了呀。反观404，抽的三成大概能用来斗虫？
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13639#       发表于 2020-6-20 13:23
+
+
+
+
+mea个人势，更加容易“利用”，“沟通”。但是本质是双赢，对mea又没坏处。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13640#       发表于 2020-6-20 13:34
+
+
+
+
+确实。我对阿b的梁木就在于它处处隐晦的斗虫<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，虽然404更屑。然而现在又多了一个bls
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13641#       发表于 2020-6-20 13:41
+
+
+
+
+戒断了，好难过，麻酱你在哪<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13642#       发表于 2020-6-20 13:43
+
+
+
+
+bls这种事情吃过一次亏就知道了，也帮我省了以后打榜的钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13643#       发表于 2020-6-20 13:44
+
+
+
+
+草，才3天不播而已（
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13644#       发表于 2020-6-20 13:50
+
+
+
+
+隔壁哪位可是v圈浪头企业的浪尖，事业上升期能有什么事，咸吃萝卜淡操心。反观咩这，一不动那种不确定感就拉满，生怕又来一个炸弹炸开，所以今天会有播吗，想听活生生的咩，而不是确定好的数据<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13645#       发表于 2020-6-20 13:53
+
+
+
+
+小麻能动一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13646#       发表于 2020-6-20 13:54
+
+
+
+
+明天才开始这就都疯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13647#       发表于 2020-6-20 14:16
+
+
+
+
+没疯，日常杞忧而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13648#       发表于 2020-6-20 14:23
+
+
+
+
+怕小麻被人欺负，怕小麻饿着，怕小麻把自己身体累坏了，怕小麻过气了，怕小麻不声不响消失了。麻酱，我用什么守护你
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13649#       发表于 2020-6-20 14:26
+
+
+
+
+用加班打工赚钱守护她
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13650#       发表于 2020-6-20 14:28
+
+
+
+
+我还担心小麻变坦克<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 13651#       发表于 2020-6-20 14:37
+
+
+
+
+以她的性格昨天估计会和苔姨聊个通宵吧，今天不一定会有
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13652#       发表于 2020-6-20 14:53
+
+
+
+
+方舟指令mea联动剧情录像
+[https://b23.tv/VwlLMm](https://b23.tv/VwlLMm)
+
+（云游戏好帮手
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13653#       发表于 2020-6-20 15:08
+
+
+
+
+帮大忙了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13654#       发表于 2020-6-20 15:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876115&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-20 14:53</a>
+
+方舟指令mea联动剧情录像
+
+https://b23.tv/VwlLMm
+
+（云游戏好帮手</blockquote>
+奈斯，正好昨天想录但又犯懒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有这个我就不用整了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 13655#       发表于 2020-6-20 15:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875158&amp;ptid=1929631" target="_blank">雪代suzuno 发表于 2020-6-20 13:23</a>
+
+mea个人势，更加容易“利用”，“沟通”。但是本质是双赢，对mea又没坏处。
+
+
+  -- 来自 能看大图的 Stage1 ...</blockquote>
+yhm这种隔三差五容易发神经的群体哪里容易利用和沟通啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">人家可不怕你企业，也不怕你一个外国人律师函寄到她住所，什么时候把机密合同说漏嘴了都有可能
+
+
+
+
+
+
+
+-----
+
+####  skgaminger1988  
+##### 13656#       发表于 2020-6-20 15:45
+
+
+
+
+原来yhm不怕企业 yhm不都是又笨又怂么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 13657#       发表于 2020-6-20 15:58
+
+
+
+
+mea啥时候表现过这不怕那不怕的属性的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">她不怕碰瓷别人倒是真的，不过这算职业素养之一吧）
+
+
+
+
+
+                                            
