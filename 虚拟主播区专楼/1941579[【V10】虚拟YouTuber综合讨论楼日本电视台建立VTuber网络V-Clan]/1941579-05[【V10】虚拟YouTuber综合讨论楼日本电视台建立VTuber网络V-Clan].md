@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 10:09** 
+> ## **本文件最后更新于2020-06-21 12:10** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_iIPKQ" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_MT7iN" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -12109,7 +12109,7 @@ mrr.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_pP22p" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_GeNAm" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
 
 
@@ -17516,7 +17516,7 @@ yostar.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_yiIIr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_PDxhT" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 虾皇喷喷意识我记得还是挺好的
 
@@ -19663,7 +19663,7 @@ sio同接2.9，星祭2.9，按泥潭老哥的算法，这是倍杀了吧
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_G4AW9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_b6lL2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 明天有军神王子对打和三小只同期对打
 
@@ -25841,6 +25841,25 @@ https://twitter.com/mitokuma/status/1274284118696579073?s=19
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -26237,6 +26256,25 @@ Screenshot_20200621_082127_com.google.android.youtube.jpg
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -26529,4 +26567,824 @@ ascc2.0确实不太行，coco转型养gachi之后什么节点停了ascc也不意
 
 
 
-    
+
+
+-----
+
+####  黑之和  
+##### 7363#       发表于 2020-6-21 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885603&amp;ptid=1941579" target="_blank">cyz542 发表于 2020-6-21 08:22</a>
+喷了。，。</blockquote>
+啊是美少女合作的兔子人，2000醒了看到不会发疯吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7364#       发表于 2020-6-21 10:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886311&amp;ptid=1941579" target="_blank">yuandi0120 发表于 2020-6-21 10:04</a>
+
+狐皇fgo贴贴（狐皇狂喜</blockquote>
+对啊狐皇还只是狐狸妹的时候播过fgo抽卡的，太久远了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7365#       发表于 2020-6-21 10:33
+
+
+
+
+囧仙那已经可以预购了，通常140，限定499官方简中，7月27日发货
+<img src="https://p.sda1.dev/0/ab034cf17dbe4b48c986ca84e73df95d/IMG_1AC949EBD74F761C906CCCF692CE2074.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sisyphus_| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 7366#       发表于 2020-6-21 10:35
+
+
+
+<blockquote>opersuper 发表于 2020-6-21 10:32
+对啊狐皇还只是狐狸妹的时候播过fgo抽卡的，太久远了</blockquote>
+纸片男人不过是现实男人的下位替代罢了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7367#       发表于 2020-6-21 10:38
+
+
+
+
+小天使个人反省会 <blockquote>昨日の夜ひとりでやっていた反省会
+
+
+参加してくれるみんな、見てくれるみんなの大切な時間を頂いてるから
+
+もっと楽しくて面白いものを作れるようにがんばりたい・・・！
+
+いろいろごめんね、いっぱい反省してこれからもがんばります！！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/21/103741ty3e333oww4e33d3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbAF78hU0AE1rIg.jpg</strong> (213.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 10:37 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7368#       发表于 2020-6-21 10:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">可是啊，事先跟参加者商量好要给出什么反应就很难演得有趣了啊，我觉得你们v还没pro到谈得上演技的地步吧
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7369#       发表于 2020-6-21 10:41
+
+
+
+
+少主上周还在推上发过FGO相关的，不过现在提到的次数是越来越少了，也不播抽卡了
+
+以前我可以有十成的把握说她手游里最喜欢FGO，当时被邀请来BGO活动的时候尾巴快翘到天上去了
+
+不过现在就说不好了，说不定最喜欢的手游已经变成明日方舟或者扭曲仙境了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7370#       发表于 2020-6-21 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">什么手游能比得上给木口星当P好玩吗
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7371#       发表于 2020-6-21 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7372#       发表于 2020-6-21 10:46
+
+
+
+<blockquote>forzen 发表于 2020-6-21 10:40
+可是啊，事先跟参加者商量好要给出什么反应就很难演得有趣了啊，我觉得你们v还没pro到谈得上演技的 ...</blockquote>
+反正也是她自己想的东西啦，真想要搞大型企划的话还是要去跟mio香486好好学一个。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7373#       发表于 2020-6-21 11:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886775&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 10:46</a>
+
+反正也是她自己想的东西啦，真想要搞大型企划的话还是要去跟mio香486好好学一个。 ...</blockquote>
+最大的问题是纠结于声音模仿企划啊
+
+典型日式牛角尖思维，就不能整点别的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7374#       发表于 2020-6-21 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886775&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 10:46</a>
+
+反正也是她自己想的东西啦，真想要搞大型企划的话还是要去跟mio香486好好学一个。 ...</blockquote>
+学不了的，mio的长处是当司仪掌握企划节奏但企划本身的效果是靠参与者足够有趣才得以呈现的，而486擅长的是地狱企划总的来说是靠48虐的，但还有更重要的一点就是，她们的企划不会反反复复的重复搞，无论是幼儿园还是俳句王都是隔了很久一段时间了，而ppt这个算是相对短的时间里连续搞了三回，就算真的有人捧场也不会意味这个企划还能带来多少新鲜感，不如说路子本身就错了。。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7375#       发表于 2020-6-21 11:05
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/110312be7qd76dp1oxtt5b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>093554qej919122ay1k08e.jpg</strong> (4.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 11:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7376#       发表于 2020-6-21 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886973&amp;ptid=1941579" target="_blank">forzen 发表于 2020-6-21 11:04</a>
+
+学不了的，mio的长处是当司仪掌握企划节奏但企划本身的效果是靠参与者足够有趣才得以呈现的，而486擅长的 ...</blockquote>
+执着于这个模仿企划确实没啥前途。。
+
+我也是希望她能搞点新奇的东西啦。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7377#       发表于 2020-6-21 11:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887003&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 11:07</a>
+
+执着于这个模仿企划确实没啥前途。。
+
+我也是希望她能搞点新奇的东西啦。 ...</blockquote>
+但是至少社内mc看起来终于有了新的中心，这是好事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 7378#       发表于 2020-6-21 11:09
+
+
+
+
+看了下时刻表，现在日本20点是巧克一班，19点的三班主要35那班可能要读SC拖久一点，应该不算有明显让路。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7379#       发表于 2020-6-21 11:11
+
+
+
+ 本帖最后由 ひびき 于 2020-6-21 11:15 编辑 
+
+小肥妹给和你星联动多少次了，你星都没给小肥妹live让路啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   要live其他人给你星让路怎么想都不太可能来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7380#       发表于 2020-6-21 11:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/111800ocxjcwxoqkx33i1j.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图(39).png</strong> (302.73 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 11:18 上传
+
+
+
+
+
+啊这，一样花纹居然有男式的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7381#       发表于 2020-6-21 11:20
+
+
+
+
+艹死了，这玩意男性真的敢穿吗。
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 7382#       发表于 2020-6-21 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">今天的夸神依然行方不明，说真的我要对力八一有梁木了。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7383#       发表于 2020-6-21 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我倒是觉得可可有当mc的潜力，可可主持的狼人杀总体节奏明显是比mio主持的那次流畅的，虽然是不知道软件问题还是可可检讨过之前mio那次的问题还是单纯的个人能力问题就是了
+
+ppt我是没感觉出她有当mc的能力。。（严格来说她当过mc么
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 7384#       发表于 2020-6-21 11:20
+
+
+
+
+小天使要走上艺人道路自爆，小天使噶吃们会怎样呢……
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7385#       发表于 2020-6-21 11:22
+
+
+
+ 本帖最后由 asdhai 于 2020-6-21 11:28 编辑 
+
+小天使还是适合和486一起下场当笑料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+12点播黑旗。船长的船被抢了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7386#       发表于 2020-6-21 11:22
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-21 11:24 编辑 
+
+小天使没干过mc的活吧，不如说她节目效果倒是不错，可s可m，依靠声音和感情控制也能做出节目效果。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7387#       发表于 2020-6-21 11:27
+
+
+
+
+说得好像初次直播索兰，初次凸待0人，每次企划都是地狱不是艺人路线似的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+对了还有恰玛碳这个地狱定番组合
+
+
+syl 说天宝mc的那位明显云啦
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7388#       发表于 2020-6-21 11:29
+
+
+
+
+黑旗是谁播来着
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7389#       发表于 2020-6-21 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887322&amp;ptid=1941579" target="_blank">Mr.shelter 发表于 2020-6-21 11:29</a>
+
+黑旗是谁播来着</blockquote>
+486播。
+
+小天使现在的角色形象还没有完全定型，是好事，被限制住了就没那么多乐趣了，在尝试其他东西的时候也会束手束脚。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7390#       发表于 2020-6-21 11:33
+
+
+
+
+虽然说mc中心显然不对，但说是拉人员的企划中心还是可以的，虽然这种时候还是得另外让mio香出山当mc才靠谱就是了（赶快给mio香搞补贴啊喂
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 7391#       发表于 2020-6-21 11:35
+
+
+
+
+快进到ascc3.0.jpg
+
+syl，昨天确实有点混乱，不过感觉更像是整个企划就是脑袋一热想出来的没怎么做准备，如果说天使有作为mc不尽职的地方应该就是在开始的时候没有仔细解释整个活动是要怎么进行的。其他作为mc还是可以的
+
+ 主要龙的声音一听就知，天使的也只能模仿会长（而且还是一听就知道的那种）这次时雨妈心理大战救了一手，要不然基本从头到尾都会是一个走向，这才是准备上的缺失。其实上次也差不多，但是船长很懂硬是把一个稍微尴尬的逆凸变成神回，但总不能指望总是有人能救场。
+
+
+  天使的mc力绝对不会差到哪里去，但是对于企划可能还是得在多想一点
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7392#       发表于 2020-6-21 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887060&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-21 11:11</a>
+
+小肥妹给和你星联动多少次了，你星都没给小肥妹live让路啊   要live其他人给你星让路怎么想都不太可 ...</blockquote>
+三期生杂谈让了啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7393#       发表于 2020-6-21 11:40
+
+
+
+
+那我去康康吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。顺带我记得楼里有天使gachi来着，是谁？鱼头哥吗？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7394#       发表于 2020-6-21 11:42
+
+
+
+ 本帖最后由 某穆克拉 于 2020-6-21 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887476&amp;ptid=1941579" target="_blank">Mr.shelter 发表于 2020-6-21 11:40</a>
+
+那我去康康吧。顺带我记得楼里有天使gachi来着，是谁？鱼头哥吗？</blockquote>
+正是在下.jpg
+
+syl，小天使介绍下流程之类的还行，真要控场肯定是控不住的，资历没有，气场也没有，说话一听就是弱受，细声细气的。遇到突发情况还容易慌，不知道楼友怎么看出能做mc的。
+
+哦，本身还有暴言的经历。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7395#       发表于 2020-6-21 11:52
+
+
+
+
+天皇？！
+
+<img src="https://img.saraba1st.com/forum/202006/21/115219el6tsto4tc9scdos.jpg" referrerpolicy="no-referrer">
+
+
+<strong>SVrVFjCuBPY-HQ.jpg</strong> (39.47 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 11:52 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7396#       发表于 2020-6-21 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887622&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-21 11:52</a>
+
+天皇？！</blockquote>
+colod老哥，这个2000哥早就发过了......
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 7397#       发表于 2020-6-21 11:54
+
+
+
+
+ascc自身梗量缺货，最近运营也收紧了新闻各种不能播，只能转型2.0，现在的几条新闻摘要加英文教学大家乐，的确有点着急。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7398#       发表于 2020-6-21 12:01
+
+
+
+
+毕竟2k活着的意义就是黑天皇和囚人，没他快不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7399#       发表于 2020-6-21 12:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887508&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-21 11:42</a>
+
+正是在下.jpg
+
+syl，小天使介绍下流程之类的还行，真要控场肯定是控不住的，资历没有，气场也没有，说话一 ...</blockquote>
+确实是我说的不对，应该是拉企划的。
+
+mc人才还是一如既往的稀缺。
+
+狐狸最近好像也没怎么mc了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7400#       发表于 2020-6-21 12:04
+
+
+
+
+给黑旗上了年龄限制草
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 7401#       发表于 2020-6-21 12:07
+
+
+
+
+抄作业的木口全员刺客信条安排上啊
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 7402#       发表于 2020-6-21 12:09
+
+
+
+
+其实我觉得刺客信条最有意思的反而是戴斯蒙那些部分。。可惜，天杀的UBI
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 7403#       发表于 2020-6-21 12:09
+
+
+
+
+nijian最近怎么总是盯着这人啊
+
+
+甲斐田晴「土人」→コメで指摘されアーカイブ編集＋「あいつ（不破）」
+[https://www.nicovideo.jp/watch/sm37066305](https://www.nicovideo.jp/watch/sm37066305)
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/120909smdrsvqeiqg91ris.jpg" referrerpolicy="no-referrer">
+
+
+<strong>XqM4kRh.jpg</strong> (147.29 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 12:09 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+   
