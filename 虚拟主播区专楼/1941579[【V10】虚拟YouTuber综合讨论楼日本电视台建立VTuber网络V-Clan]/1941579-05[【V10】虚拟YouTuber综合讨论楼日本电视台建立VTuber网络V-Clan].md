@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 14:09** 
+> ## **本文件最后更新于2020-06-21 16:10** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_dDS4N" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_HV63S" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -12109,7 +12109,7 @@ mrr.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_h1o5e" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_D9Y1P" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
 
 
@@ -17516,7 +17516,7 @@ yostar.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_XLwW9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_N7vzx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 虾皇喷喷意识我记得还是挺好的
 
@@ -19663,7 +19663,7 @@ sio同接2.9，星祭2.9，按泥潭老哥的算法，这是倍杀了吧
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_kJ3fr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_KtFwP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 明天有军神王子对打和三小只同期对打
 
@@ -28448,4 +28448,576 @@ syl,粽子新形象我也不太能介绍<img src="https://static.saraba1st.com/i
 
 
 
- 
+
+
+-----
+
+####  erer  
+##### 7456#       发表于 2020-6-21 14:10
+
+
+
+
+因为其他人不会停播。只有这位小姐……
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 7457#       发表于 2020-6-21 14:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像虚拟主播这种的东西不可能签太长时间的合同吧，谁知道后面会咋样，我觉得市面上的主播合同就可以参考。
+cover肯定是奔着挣钱去的，不会多花钱养闲人，不良资产要切割，staff这种员工可能要比主播中之人在COVER更长久吧。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7458#       发表于 2020-6-21 14:14
+
+
+
+
+你们就饶了大亏吧，人家福报赚了v圈最高sc就不能让休一个月年假？本质都是高级社畜。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 7459#       发表于 2020-6-21 14:15
+
+
+
+
+谁起了个和其正ID跟阿胜打麻将的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7460#       发表于 2020-6-21 14:19
+
+
+
+
+一贯作风。
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 7461#       发表于 2020-6-21 14:20
+
+
+
+
+别的人其实也无所谓，事业粉估计还高兴少个竞争对手呢，现在主要是crew在发疯。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7462#       发表于 2020-6-21 14:22
+
+
+
+
+建议开crew日记楼。开完祭丝日记楼之后这楼里发疯的祭丝就少了。crew还可以去那边团建，多好。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7463#       发表于 2020-6-21 14:22
+
+
+
+
+哎，是crew发疯，在这里嘲这女人想要特殊待遇的都是crew，嘲这女人欺骗粉丝的也是crew。crew都是扭曲怪。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7464#       发表于 2020-6-21 14:23
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-21 14:24 编辑 
+
+这楼发疯祭丝少了是因为祭丝直接弃疗了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要我说crew该聚起来去夸下个推催复播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7465#       发表于 2020-6-21 14:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我如果是星anti绝对不会在这个时候让黑料给律可带流量，不过这个时间点又恰恰是大新闻发酵的最佳温床。但我又不是星anti，这和我又有什么关系呢。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 7466#       发表于 2020-6-21 14:28
+
+
+
+
+强扭的瓜不甜，今天应当会有消息，毕竟海苔男那边要换下评委。
+
+
+
+
+
+
+
+-----
+
+####  黑之和  
+##### 7467#       发表于 2020-6-21 14:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47889578&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-21 14:15</a>
+谁起了个和其正ID跟阿胜打麻将的</blockquote>
+嗯？有这事？我去看看
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 7468#       发表于 2020-6-21 14:32
+
+
+
+
+今天是乳之日，谁发点v乳图吧。我已经看过一些了但是手机上传不了图发不出来。
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 7469#       发表于 2020-6-21 14:35
+
+
+
+
+我在b站专栏看了好几个虚拟主播企划炎上和完蛋的经过，虽然剧情各不相同但居然各有各的精彩，什么时候有监督能拍一个暗黑系虚拟主播厮杀的故事
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7470#       发表于 2020-6-21 14:36
+
+
+
+
+专栏在哪儿，我去看看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 7471#       发表于 2020-6-21 14:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把点弟弟和虚拟蛊毒整合在一起就是个好剧本了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7472#       发表于 2020-6-21 14:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47889777&amp;ptid=1941579" target="_blank">猫島かおる 发表于 2020-6-21 14:32</a>
+今天是乳之日，谁发点v乳图吧。我已经看过一些了但是手机上传不了图发不出来。 ...</blockquote>
+今天明明也是父亲节，狐皇还发推了。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 7473#       发表于 2020-6-21 14:41
+
+
+
+
+不是，以前的童话社不就是虚拟蛊毒互斗吗，已经演过了<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7474#       发表于 2020-6-21 14:43
+
+
+
+
+现在还活着的管人企划也能拍一部不错的剧了，特别是虹杏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 7475#       发表于 2020-6-21 14:44
+
+
+
+
+我正在看的是cv4129945，还有上面说的虚拟蛊毒。都是过去的事了，只是我刚刚了解到。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 7476#       发表于 2020-6-21 14:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47889863&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-21 14:40</a>
+
+今天明明也是父亲节，狐皇还发推了。</blockquote>
+奇奇的日除了是父亲那个奇奇也可以是奇酷比的奇
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7477#       发表于 2020-6-21 14:46
+
+
+
+
+船長、何やってんだ？！
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7478#       发表于 2020-6-21 14:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">白上桑不愧是日本vjuan的流量女王，自己出个手办只是放在GSC的网站上卖结果写得好像GSC监制一样，这波挂在推特指定上又蹭到流量又有了面子，大概只有买的人才会发现是隔壁强国的不知名小厂出品。
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 7479#       发表于 2020-6-21 15:05
+
+
+
+
+赤井心最近做的视频都很有趣啊，又疯又可爱
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 7480#       发表于 2020-6-21 15:15
+
+
+
+
+哎，上次阿兰mcb限回放出来了，当时izurub限撞了就没看后面。mc服里整得挺好的，教堂，地狱，地下商场还有r18商店。没的说，做得非常有意思。还有悬空会发光的holostars标志，还整了个罗德岛宿舍楼。加班一周的成果挺赞的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 7481#       发表于 2020-6-21 15:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">童话社崩坏相关哪位能细说一下么
+
+个人看到的说法是除了给张好皮一无是处的运营以及撇撇搞小团体加剧内耗整死的
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7482#       发表于 2020-6-21 15:44
+
+
+
+<blockquote>金魚佬 发表于 2020-6-21 14:50
+白上桑不愧是日本vjuan的流量女王，自己出个手办只是放在GSC的网站上卖结果写得好像GSC监制一样，这 ...</blockquote>
+这就是made in China的醍醐味啊
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 7483#       发表于 2020-6-21 16:01
+
+
+
+
+凪白又在打最后生还者2，不好好练习画画，整天就想着打电动怎么画得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7484#       发表于 2020-6-21 16:04
+
+
+
+ 本帖最后由 kanonsisya 于 2020-6-21 16:05 编辑 
+
+星宝家用3d调试好了?眼皮不跳了嘛
+
+
+syl 每次画画就回想起被狐皇烫到出脓的屁股，是我我也沉迷电子drug逃避现实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 7485#       发表于 2020-6-21 16:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890764&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-21 16:04</a>
+
+星宝家用3d调试好了?眼皮不跳了嘛
+
+
+syl 每次画画就回想起被狐皇烫到出脓的屁股，是我我也沉迷电子drug逃避 ...</blockquote>
+那为啥要选择沉迷一坨屎啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7486#       发表于 2020-6-21 16:08
+
+
+
+
+凪白干活要像别人这么靠谱能被烫吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8e466ae82aeb4d4ac5b2947a8c488e8e/IMG_20200621_160555.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/c42a7b46d96ec43fc97ea6736773275c/IMG_2F013DAA09E67302B460CC397F7A7BFE.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/786db51ce07fe43ab060bd2e81f39813/IMG_526129A3B99EB6B5EA5F2A270A39B205.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7487#       发表于 2020-6-21 16:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890741&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-21 16:01</a>
+
+凪白又在打最后生还者2，不好好练习画画，整天就想着打电动怎么画得好啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">作为狐狸的爹为什么要玩对爹这么不友好的粪游戏啊。。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7488#       发表于 2020-6-21 16:10
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/160952yeerss8s9bxrnqej.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-484kZqT3cSzk-k0.jpg.medium.jpg</strong> (79.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 16:09 上传
+
+
+
+
+
+
+
+昨天就没认出来自己妈的屑评审
+
+
+你辞职罢！
+
+
+
+
+
