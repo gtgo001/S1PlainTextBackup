@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 02:04** 
+> ## **本文件最后更新于2020-06-21 14:03** 
 
 
 
@@ -5105,4 +5105,532 @@ b博还行
 
 
 
-                                       
+
+
+-----
+
+####  Cuppco  
+##### 13803#       发表于 2020-6-21 06:21
+
+
+
+
+突然想到
+就她现在这个晨昏颠倒的作息时间，能好好出门干正经事吗……
+有担心到
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 13804#       发表于 2020-6-21 06:30
+
+
+
+
+没啥吧，小年轻出门办事不睡也不会很累的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13805#       发表于 2020-6-21 07:37
+
+
+
+
+想想19岁的自己精力有多旺盛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13806#       发表于 2020-6-21 08:42
+
+
+
+
+开始冬眠<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 13807#       发表于 2020-6-21 10:28
+
+
+
+
+有没有好哥哥互相交换下方舟指令的邀请码的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+c9aa03
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13808#       发表于 2020-6-21 11:02
+
+
+
+
+哼哼
+
+想不到吧
+
+一个月前， 我已经特定你麻
+
+"你不想在家里开和粉丝的握手会的话就出来和本大爷喝喝茶吧"
+
+虽然以疫情为由推到了现在， 可是她逃不出我的✋的
+
+wahahahaha
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13809#       发表于 2020-6-21 11:16
+
+
+
+
+醒醒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。另外发新推了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13810#       发表于 2020-6-21 11:24
+
+
+
+
+这是在工作室外面找的休息用的咖啡厅吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+该特定了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13811#       发表于 2020-6-21 11:28
+
+
+
+
+日本有多少咖啡厅？
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 13812#       发表于 2020-6-21 11:29
+
+
+
+
+真的要ddd了?好耶！
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 13813#       发表于 2020-6-21 11:37
+
+
+
+
+也该是时候了，这几天各种3d配信
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 13814#       发表于 2020-6-21 11:40
+
+
+
+
+这出门5天是要干啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是不是ddd？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13815#       发表于 2020-6-21 11:40
+
+
+
+
+这也没提ddd啊，为什么一定是啊。话说为何ddd要准备5天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 13816#       发表于 2020-6-21 11:43
+
+
+
+
+大夸哥为了她那个live准备多久了，如果是ddd，那就说明不是那种摆摆pose的流程3d啊，可能要录音或者跳舞。<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13817#       发表于 2020-6-21 12:02
+
+
+
+
+可能顺路找u18r去补课了吧，偶像麻suki<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13818#       发表于 2020-6-21 12:22
+
+
+
+
+u18r很有偶像感吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这我暂且蒙古
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 13819#       发表于 2020-6-21 12:33
+
+
+
+
+整五天大概率是ddd了吧，新皮应该没有，曲子要不了五天
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 13820#       发表于 2020-6-21 12:33
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 13821#       发表于 2020-6-21 12:33
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 13822#       发表于 2020-6-21 12:33
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13823#       发表于 2020-6-21 12:35
+
+
+
+
+找u18r取经播超美丽3d
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13824#       发表于 2020-6-21 12:36
+
+
+
+
+要么就是去找saya了，我不管，你麻ddd必定唱跳
+
+              
+
+syl，说句不该说的nt话，凛子她就不配开live，除非和你麻一起<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 13825#       发表于 2020-6-21 12:41
+
+
+
+
+咋才一天就開始瘋了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13826#       发表于 2020-6-21 13:00
+
+
+
+
+冷静冷静<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。我还是那个问题，为啥ddd要五天啊
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13827#       发表于 2020-6-21 13:06
+
+
+
+
+从来没有ddd需要五天的说法啦，mea其实是去美国竞选总统了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13828#       发表于 2020-6-21 13:13
+
+
+
+
+去感染病毒吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13829#       发表于 2020-6-21 13:17
+
+
+
+
+一天两条推大满足<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 13830#       发表于 2020-6-21 13:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也没说这五天全是为了3d啊，模型疫情期间做好拿到手一开始肯定要调整个一两天吧
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13831#       发表于 2020-6-21 13:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">为何游戏商店里的玩家换装没了，之前买了军服一套回去想买草莓饺子和meu发现木得了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13832#       发表于 2020-6-21 13:56
+
+
+
+
+梳理一下最近的情报。
+
+1.录了10几首歌
+
+2.需要出门5天左右
+
+
+结论这么明显！mea一周年是一个长达3小时的3D LIVE！！
+
+好吧 最大可能是BML+BLS一起录了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13833#       发表于 2020-6-21 14:00
+
+
+
+
+如果是这个话你咩姐至于在推上耍宝说不想出门嘛，怕不是激动的和要春游的小屁孩一样。
+
+
+
+
+
+                                      
