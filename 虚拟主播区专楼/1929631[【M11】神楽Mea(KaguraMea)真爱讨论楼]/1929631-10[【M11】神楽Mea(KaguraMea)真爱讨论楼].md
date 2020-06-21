@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 22:04** 
+> ## **本文件最后更新于2020-06-22 02:03** 
 
 
 
@@ -6138,4 +6138,694 @@ syl为什么她这么喜欢肉猪啊<img src="https://static.saraba1st.com/image
 
 
 
-                                     
+
+
+-----
+
+####  JY要塞  
+##### 13862#       发表于 2020-6-21 22:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没出.....那就没出呗，还能怎么样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13863#       发表于 2020-6-21 22:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/goose2017/024.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 13864#       发表于 2020-6-21 22:43
+
+
+
+
+一时半会不太可能突然就掏出个3D直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这么具有重要意义的直播，最起码要提前个一周预告吧，突击3D直播，这女人再自由也可能会干这种事情的。
+
+
+
+
+
+
+
+-----
+
+####  clvan_  
+##### 13865#       发表于 2020-6-21 22:53
+
+
+
+
+猜猜就好了呗，别当真定性了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13866#       发表于 2020-6-21 23:05
+
+
+
+
+突击3d，说不定真的有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+bml那次算突击3d不<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13867#       发表于 2020-6-21 23:15
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-21 23:38 编辑 
+
+娘的睡前看了眼隔壁，啊这，编了编了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13868#       发表于 2020-6-21 23:17
+
+
+
+
+你为什么要说出来<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13869#       发表于 2020-6-21 23:17
+
+
+
+ 本帖最后由 惑星 于 2020-6-21 23:19 编辑 
+
+草，思路广
+幻灭了，脱粉了
+是不是应该加一句贴贴人爬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 13870#       发表于 2020-6-21 23:19
+
+
+
+
+草，真是欢乐多
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13871#       发表于 2020-6-21 23:31
+
+
+
+
+呜呜呜 幻灭了 脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13872#       发表于 2020-6-21 23:34
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-21 23:48 编辑 
+
+傻逼玩意觉得非要搞xby发言很有意思吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+真jb都觉得无所谓这样挺有趣的那何必把xby叉出去，看个乐呗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我都已经把发情改了不少了，你们某些人的绿帽梗能不能别jb玩了，就因为这个退的饭盒群现在还要恶心人啊
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13873#       发表于 2020-6-21 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">发散的真远
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">等个五咩线下3d联动再生梁木好吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13874#       发表于 2020-6-21 23:48
+
+
+
+ 本帖最后由 路人庚 于 2020-6-21 23:53 编辑 
+
+梁木岂是如此不便之物
+
+一流的梁木人能躲开所有伐木斧.jpg
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 13875#       发表于 2020-6-21 23:53
+
+
+
+
+还好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不至于
+看看隔壁，也没啥梁木<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 13876#       发表于 2020-6-22 00:03
+
+
+
+
+有些人这么喜欢五元麻烦去在这22-27日间和他🤺，他要休息一周和这里有毛关系
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13877#       发表于 2020-6-22 00:05
+
+
+
+
+主要是最近楼里有人nt话不少，希望以后能稍微过过大脑再说出来<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13878#       发表于 2020-6-22 00:11
+
+
+
+
+一句话就能nt成这样<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你楼某些人对买摩托是真爱吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13879#       发表于 2020-6-22 00:13
+
+
+
+
+买摩托是啥
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13880#       发表于 2020-6-22 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896699&amp;ptid=1929631" target="_blank">呓亘 发表于 2020-6-22 00:13</a>
+
+买摩托是啥</blockquote>
+“舞元”的日语空耳
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13881#       发表于 2020-6-22 00:18
+
+
+
+
+这一页编辑看的我一脸迷惑,想来想去隔壁指净土坛就去翻了翻<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+老实说是难得一天能够让我感觉生理心理双重不适的玩意了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+xby被叉出了m楼,但愿楼友也没有xby那般弱智<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+发散这些玩意儿还不如去发散抓猫,她喜欢哪家网咖有人知道吗<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13882#       发表于 2020-6-22 00:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">不懂出门去网咖干嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可能只是随口说说的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13883#       发表于 2020-6-22 00:37
+
+
+
+
+不懂，以我的理解，网咖似乎是咖啡店的替代品
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13884#       发表于 2020-6-22 00:39
+
+
+
+
+姑且还是抛砖引玉一下好了，关于月底这几天停播的相关信息整理（如果没记错的话，都是mea说过的原话）：
+
+
+1、【是在5月就已经定好的事项】
+
+2、【是如果6月底再不处理就来不及的事项】
+
+3、【周日中午出门，2天大概就可以弄完】
+
+4、【已经做好了做很多事情的觉悟】
+
+
+并且在最近一个月内的某次杂谈中提到过【不想在酒店里直播担心被服务员敲门】
+
+
+虽然上面这些信息基本都十分分散，但个人认为可以整合起来进行分析，与此同时再根据24小时内发生的各种细节进行推演，个人得出的结论是：mea之前歌回结束后用了一段时间收拾行李（这也对应她歌回里说的“歌回完了会有点事”），然后直接睡到早上醒来准备出门（于是来不及朝活直播），中午坐上新干线去东京（实际上就是去阿b总部办事，对应“6月底再不处理就来不及”），途中一直在玩手机（对应之前饭盒吐槽输入法），晚上拎包入住阿b总部附近的酒店（对应在酒店不敢开直播），然后明天周一出门开始去阿b总部办事，事务大概需要2天，最后周三返程。
+
+
+所以我个人之前就一直在猜，大概率是去录3D动捕，目前已知的消息也没有跳出这个框架，感觉姑且算是能够自洽所以发出来图一乐，有感觉哪里不对的欢迎讨论
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13885#       发表于 2020-6-22 00:40
+
+
+
+
+所以阿b东京分部在哪，我出发了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13886#       发表于 2020-6-22 00:42
+
+
+
+
+反正二周年404和睿站肯定要有点动作就是了
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 13887#       发表于 2020-6-22 00:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">急求加入阿b日本分部的方式
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13888#       发表于 2020-6-22 00:48
+
+
+
+
+急求阿b对接人员手中麻照<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13889#       发表于 2020-6-22 00:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">你这推断是阿b提供的录棚
+<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">说不定是上次和点生活联系到的录棚
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13890#       发表于 2020-6-22 00:57
+
+
+
+
+推理好活，至少在b站日本分公司多转转估计能无意见到小麻一面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13891#       发表于 2020-6-22 00:59
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-22 01:01 编辑 
+
+bsyl,住酒店行踪要是真猜出来了那也难怪她经常不安,这发散能力就差点行动力当上门厄介了谁顶得住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然和偶像厄介比起来还是菜但在你麻粉丝的想象中里早已经过头脑风暴力<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13892#       发表于 2020-6-22 01:01
+
+
+
+
+哦，我锁定阿b的原因还有一点，是我觉得只有阿b这种有商业合同的、在5月就已经商谈过一次的、但商谈结果是拖到6月底再处理的，才能让她在这种时期出门办事。
+
+
+其实不可否认存在另一个可能性，就是她为了自己8月2日的庆典自己给自己安排了3D摄影，所以现在才要赶紧出门录像，不然来不及。但主要是因为她之前歌回聊到出门办事的时候情绪不怎么高（算是一个“一般”的情绪状态），对比19年她自己整的线下live时候的情绪，所以我觉得这个的可能性偏低，所以最终才锁定的阿b。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13893#       发表于 2020-6-22 01:01
+
+
+
+
+从3d的角度考虑，用点生活联系到的棚很迷惑啊，因为mea还没3d首播，原皮3d不会以录制的形式放出。要录3d也应该是草莓果酱那套，草莓果酱又是b站送的，考虑到b站分部很合理。mea说过二周年没准备给忘了，这次外出又是5月份定下的，应该和二周年无关，除非她又在跑火车。b站的活动公布的就只有一个bw，bw的形式你们也知道，就是超v学院连线，除非上主舞台，8月又太远。bls两天够用吗<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">当然也可能与直播无关，全部木大
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13894#       发表于 2020-6-22 01:11
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-22 01:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">按你这么说3d原皮不录制，而草莓饺子只能在b站录，然而你麻草莓饺子3d会就没有上过行程。。。。
+那这次就不可能是录3d了，自然就无法确定是不是在b站了
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这次最多是调节动捕设备吧
+Syl<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之所以认为是点生活联系到的录棚还不是因为你麻估计是要上点生活live才去弄的军服3d，不关阿b什么事吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13895#       发表于 2020-6-22 01:14
+
+
+
+
+不过以后能榜上阿B的棚子吗,这比外面预约稳定多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13896#       发表于 2020-6-22 01:15
+
+
+
+
+说是3d当然也不止是3d，录歌，录动捕，参与调试，可能是bls演唱会开始兑现or在之后的某个活动里出场
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13897#       发表于 2020-6-22 01:18
+
+
+
+
+阿咩说3d做好了是今年2月份的事，樱桃园好像是去年11月？3d提前3个月就做好了有点离谱，如果是真的这也太能藏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13898#       发表于 2020-6-22 01:22
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-22 01:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897313&amp;ptid=1929631" target="_blank">惑星 发表于 2020-6-22 01:18</a>
+阿咩说3d做好了是今年2月份的事，樱桃园好像是去年11月？3d提前3个月就做好了有点离谱，如果是真的这也太能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时live可能需求3d吧(当然那个live也有平面人参加过，要不然mea这个嫌做新衣服都麻烦的人为什么要去做3d啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">当然这都只是猜的，谁也说不准
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 13899#       发表于 2020-6-22 01:28
+
+
+
+
+点的live不是只说要放原创曲吗，应该和3d没啥关系
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 13900#       发表于 2020-6-22 01:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那个说住酒店发散被特的是几个月前说的了 不是最近 她危机意识一直很高的 反正想让我们知道的早晚会知道的 猜多了也没啥用
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13901#       发表于 2020-6-22 01:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和樱桃小姐的交换画环节也是用挂墙的形式吗
+
+
+
+
+
+                                    

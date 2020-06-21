@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 00:10** 
+> ## **本文件最后更新于2020-06-22 02:10** 
 
 
 
@@ -11587,4 +11587,2060 @@ syl，日南这个故事告诉我们什么恐男症都是rp<img src="https://sta
 
 
 
-                              
+
+
+-----
+
+####  aele  
+##### 8078#       发表于 2020-6-22 00:10
+
+
+
+ 本帖最后由 aele 于 2020-6-22 00:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我倒觉得现在这种只播自己喜欢的内容挺好的，放松一些播出来对观众和主播都好
+
+喜欢看泥泞中求生可以去看看红心啊....前几个月真的是挣扎
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 8079#       发表于 2020-6-22 00:11
+
+
+
+
+草，用566对比狐皇是不是太过分了，一个是以前给别人喂饭的，一个是被饭皇暴力灌饭都咽不下去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8080#       发表于 2020-6-22 00:11
+
+
+
+
+可能彩菜姐姐的声音不是我最喜欢的，但安心感和舒适感确实是一流，听着真养耳<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+syl
+
+人终究无法强迫自己喜欢上不喜欢的东西，训粉果然是nt行为啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8081#       发表于 2020-6-22 00:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896291&amp;ptid=1941579" target="_blank">BonkoraKKK 发表于 2020-6-21 23:39</a>
+
+猛的一看以为狐皇找了张吊带孕妇装狐的fan art作了封面
+
+
+实际上是</blockquote>
+论缺德你楼还是太强了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+好活好活这都能联想
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 8082#       发表于 2020-6-22 00:15
+
+
+
+<blockquote>y78348877 发表于 2020-6-22 00:11
+草，用566对比狐皇是不是太过分了，一个是以前给别人喂饭的，一个是被饭皇暴力灌饭都咽不下去的 ...</blockquote>
+那确实。不过一个灌饭的现在成这样，一时想不到好例子
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8083#       发表于 2020-6-22 00:17
+
+
+
+
+训粉也许本意是想获得全肯定民，但是结果而言只会变成赶人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+管人可能有的时候飘了不太清楚自己的《位置》
+
+
+当然，一拍两散对两边都不是什么坏事，也不是什么错事，不也挺好吗<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 8084#       发表于 2020-6-22 00:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47894960&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-21 21:48</a>
+不是对银火有梁木，是觉得日南这人的精神状况可能是holo最不好的，具体到银火上就是这虽然是营业但日南的 ...</blockquote>
+没怎么看过团长，能描述一下有哪些精神状态不好的表现以及病态的地方吗，感兴趣
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8085#       发表于 2020-6-22 00:19
+
+
+
+
+一边得到了愿意支持自己的粉丝 一边回到了自己的生活 大家都有光明的未来
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8086#       发表于 2020-6-22 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896725&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-22 00:17</a>
+
+训粉也许本意是想获得全肯定民，但是结果而言只会变成赶人的
+
+管人可能有的时候飘了不太清楚自己的《 ...</blockquote>
+主要是深刻的意识到了管人做这个的愚蠢
+
+
+比起大众娱乐圈下微妙而自然地引导
+
+
+主播的训粉更像是翔哥的育婴师养成计划，完全是伤敌一百自损一千
+
+
+何况你楼钦点的几个训粉痴sc也是江河日下
+
+
+真的坏文明，真的坏文明
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8087#       发表于 2020-6-22 00:21
+
+
+
+
+w叔现在是退管了还是成dd了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8088#       发表于 2020-6-22 00:21
+
+
+
+
+这个看程度吧，19年末的白上就挺自由自在了，那时候我还老是说她这样心态挺好的，播点自己喜欢的
+
+现在是在那个程度上更进一步了，做主播总归还是要考虑一下直播效果的，我觉得近几个月好活明显少了，游戏选择也窄了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8089#       发表于 2020-6-22 00:26
+
+
+
+
+狐皇自己也到瓶颈期了（不是说涨粉速度），垃圾小视频都不投了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8090#       发表于 2020-6-22 00:27
+
+
+
+
+西西
+
+<img src="https://img.saraba1st.com/forum/202006/22/002727b977d1p8ddp89a17.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbC_heVVAAALhEp.jpg</strong> (81.81 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 00:27 上传
+
+
+
+
+
+
+[https://twitter.com/in_ksk/status/1274729413851049986](https://twitter.com/in_ksk/status/1274729413851049986)
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crawarb| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8091#       发表于 2020-6-22 00:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896767&amp;ptid=1941579" target="_blank">cheatdeath3 发表于 2020-6-22 00:21</a>
+
+w叔现在是退管了还是成dd了</blockquote>
+根据历史发言是退管了，其实何必，按照阿叔的需求接着看佐藤希就是了，毕竟中之人又不会真的爱上优十，佐藤希没记错喜欢的可是可以让她完全占有的那种，何况优十比她大一轮多
+
+
+不过最近视奸祭丝专楼真的是感觉特别唏嘘，训粉和虐粉带领信者走向末路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+顺便，白上小姐的活本来就这么多，现在她早就从主台前变成主台后了，总有一天白上会成为一个象征性的主播就是了（
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 8092#       发表于 2020-6-22 00:31
+
+
+
+
+木口的御神体白上吹雪
+
+
+原来这也在你的计算中么
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8093#       发表于 2020-6-22 00:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896827&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 00:26</a>
+
+狐皇自己也到瓶颈期了（不是说涨粉速度），垃圾小视频都不投了</blockquote>
+不是瓶颈期，我觉得更倾向于转型基本结束了
+
+
+继续增强存在感对于整个箱反倒是恶性的了，还不如成为一个有编制的友人a来得好
+
+
+小视频的话可能是没货了（下次有热点肯定还会蹭，这个无本万利），其他方面单纯是不想搞了
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8094#       发表于 2020-6-22 00:31
+
+
+
+
+骄兵易败  狐皇 还不到快活的时候啊（
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8095#       发表于 2020-6-22 00:31
+
+
+
+ 本帖最后由 空集 于 2020-6-22 00:33 编辑 
+
+风怒了   我觉得木口也还没到说狐皇不需要有存在感的地步了 长期内她都会是牌面
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8096#       发表于 2020-6-22 00:33
+
+
+
+ 本帖最后由 winda 于 2020-6-22 00:34 编辑 
+
+SugarLyric要变曲奇箱了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+syl船皇联动獅子王クリス来一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+cookie.png
+(487.35 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 00:32 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/003226j8icb6b9b2gbcb79.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8097#       发表于 2020-6-22 00:36
+
+
+
+
+小天使这就放嘿民去睡觉了，好温柔。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8098#       发表于 2020-6-22 00:36
+
+
+
+
+木口的现在就算直接宣布引退，只要没销号，订阅涨得都比人家多。。。。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8099#       发表于 2020-6-22 00:38
+
+
+
+
+对了，夜深人静我也来黑屁一句
+
+
+整天希望阿委能加快整活的就该看看白上
+
+
+白上的主播部分其实和阿委是有一些相似的，她们所主要攫取的梗池也是n站和其他日本网络文化十数年的积淀，只不过阿委创作欲望更强，而狐皇更保守（抄起来更直接也更直球），可是这毫不改变她们都在用一个会穷尽的弹药箱这一点
+
+
+白上现在有种弹药箱已空的感觉，提前预备的点子分批发射，可能已经用尽了，不过从白上的角度上来说这算好钢用在了刀刃上，这些弹药帮助杏箱搏来了一个苟延残喘，也给自己搏来了半个运营
+
+
+阿委另一方面，并不想要把钢都用了，而是希望更加循序渐进的进行火力投放，这种情况下，嚷嚷阿委快点整，其实就是催着阿委变白上。阿委的创作是有穷尽的可能的，如果不顾节奏一味整活，那在审美疲劳或者安排不当的影响下，只会加速阿委质量的下降
+
+
+当然了另一个方面讲，阿花作为一个JD，没有莫露喵那种把尸体上的箭拔起来发射出去也要达到一个理性而切实的目的这种决心也是很正常的。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8100#       发表于 2020-6-22 00:41
+
+
+
+
+今天天宝的ark杂谈真的太懂了，又是胖次又是三套贴贴卡组连发，开车回家听了一路好的不能再好了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8101#       发表于 2020-6-22 00:42
+
+
+
+
+还好谢拉毕业得早，要是她把小两口的合唱发到号上，估计又得疯一批人，只能说gachi害人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8102#       发表于 2020-6-22 00:44
+
+
+
+
+啊，祭丝没发疯啊，没劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8103#       发表于 2020-6-22 00:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897010&amp;ptid=1941579" target="_blank">cheatdeath3 发表于 2020-6-22 00:42</a>
+
+还好谢拉毕业得早，要是她把小两口的合唱发到号上，估计又得疯一批人，只能说gachi害人 ...</blockquote>
+啊，她最新的那个投稿跟她合唱的是她男友？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8104#       发表于 2020-6-22 00:53
+
+
+
+
+白上明显不是整不出活啊，年初还在ARK那修厕所呢，四月还有油库里歌回
+
+她还是心态的区别，举个例子：
+
+1.玩paper please，属于感兴趣+观众也能享受，以前倾向于选这个
+
+2.玩扭曲仙境，属于自己超爽+观众懵逼，她现在敢这么选了
+
+动森和扭曲仙境被BAN了就和APEX怼上了，鲨鱼游戏看一两次还行，看多了也没意思
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 8105#       发表于 2020-6-22 00:53
+
+
+
+
+可是脱离了谢拉的欧阳现在直接起飞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8106#       发表于 2020-6-22 00:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897093&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 00:51</a>
+
+啊，她最新的那个投稿跟她合唱的是她男友？</blockquote>
+上半年还是去年看的
+
+rie在同社有个男友，在同社就不免发些合唱，我就看到了其中一个。
+
+当然也有可能是我看走眼了，不过现在不能翻●，明天才能查证。
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8107#       发表于 2020-6-22 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897115&amp;ptid=1941579" target="_blank">Fakerの幻影 发表于 2020-6-22 00:53</a>
+
+可是脱离了谢拉的欧阳现在直接起飞了</blockquote>
+射立又不想赚钱，她就当社团活动玩的，没兴趣了直接鸽。有她在能起飞才见鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 8108#       发表于 2020-6-22 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47896968&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 00:38</a>
+ 对了，夜深人静我也来黑屁一句  整天希望阿委能加快整活的就该看看白上 </blockquote>
+狐皇整活能叫 anime 模因传播学，天皇整活是带有后现代主义色彩的对经典的模仿拼接了。这俩对普通人来说接受度并不一样。
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 8109#       发表于 2020-6-22 01:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897110&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-22 00:53</a>
+
+白上明显不是整不出活啊，年初还在ARK那修厕所呢，四月还有油库里歌回
+
+她还是心态的区别，举个例子：
+
+1.玩p ...</blockquote>
+狐皇给我的给我的感觉就是台上台下的界限变得模糊了，她播的内容越来越倾向于她自己喜欢播的内容了。
+
+还是鬼佬“她想播什么是她的自由”这种思想适合现在的喵喵狐
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8110#       发表于 2020-6-22 01:03
+
+
+
+
+你楼对白上真严格 白上就是holo的巫妖王吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 8111#       发表于 2020-6-22 01:03
+
+
+
+
+看2000被骂真的挺爽的
+
+syl 不要把字幕组当成无感情的烤肉机器啊，就算机器也要保养的，干的不开心谁干啊，平时爱好相近一起玩玩调剂一下怎么了（你组以前也有麻将比赛，给输了的人派活）
+然后经常被劈的动态开团，个人弱智行为上升到单个组号也就算了，上升到其他无辜组咋回事啊，既然讨厌看组号动态可以只关注官号啊
+还有字幕组一家独大打击海盗当人上人的，新二创条例72小时都没了，海盗狂欢条例好吧。还有组专门给海盗开个群互相通气避免撞车的。而且很多人气不太高的v在b根本没海盗烤，那喜欢同一个人的轴翻校后期美工在一起合作又能产出熟肉怎么还要被劈成想当人上人的…
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8112#       发表于 2020-6-22 01:03
+
+
+
+
+狐皇不怕的原因一个是黑粉玉米人和黑粉祭丝一样费拉不堪烧不动，一个是有箱的地方就有她，大联动/大工商难道真的让可傲天越俎代庖？明显不可能的。
+
+以论资排辈一期太拉站不出来第二个人，只能等哈恰玛啥时候神功大成变成虚拟ビートたけし了。
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8113#       发表于 2020-6-22 01:04
+
+
+
+
+尾巴哥这钩还真有咬的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8114#       发表于 2020-6-22 01:04
+
+
+
+
+倒有点想看露露玩推箱子了，正好还有梗fanart
+
+<img src="https://img.saraba1st.com/forum/202006/22/010417uydoieeyeyky19l9.png" referrerpolicy="no-referrer">
+
+
+<strong>0622010132.png</strong> (449.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 01:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+syl,
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/005624c691ao9d9pzmz8ml.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbDM66fU4AEbkDh.jpg</strong> (52.89 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 00:56 上传
+
+
+
+
+
+[https://twitter.com/Nana_yume87/status/1274744298504777729](https://twitter.com/Nana_yume87/status/1274744298504777729)
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+| star_platinum| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8115#       发表于 2020-6-22 01:10
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 01:19 编辑 
+
+再黑屁一句好了，作为我常年顺劈祭丝的补偿
+
+
+其实你楼祭丝没必要杞忧小肥妹喜欢上优十
+
+
+我一直在说的就是，作为一个田舍妹+小年轻，小肥妹对自己常年处于制度不自信当中。曾经的一期生辉煌成为过眼云烟的今天，小肥妹对于过气早已风声鹤唳。
+
+
+比起你们佐藤希更害怕自己粉群的冷却，自己的直播彻底过气，自己这双vtb的水晶鞋突然失踪。
+
+
+所以小肥妹更加剧烈地挣扎，不断地切换路线，试图找到一条适合自己的再出发之路。只可惜，之前的人设定的太死，心理素质不够强大，加上运气不佳，导致几次转型一败再败，终于到了今天。这其实是年轻yhm典型的瞻前顾后导致的，她们没有基本的逻辑思考能力和事实分析能力，在需要自己做出决定又无法随波逐流的时候，她们往往会以一种毫无规律地模式疯狂盲动，并认为这样的穷举必然找到真正的答案，即便找不到，那自己“也努力过了”
+
+
+其实小肥妹作为配信者，会不知道自己跟男人联动产生的危害吗？她知道，我也不认为她真的会饥渴到非跟男人联动不可，但是社内没人带她玩，社外也不能天天跟苔姨她们联动，自己的活越来越不行，眼看那个噩梦中的过气终于要到来，所以她会试图抓住任何伸过来的机会，就好像再一次遇见那个舞会夜的女巫，再一次给她施下改天换地的魔法。
+
+
+豪赌从来不都是毫无道理的，但是小肥妹的这波豪赌显然只是让自己雪上加霜罢了。当然，在这个一期生普遍落幕的今天，她们的定位本就该是“旧时代的余党”，除了哈恰玛通过一招嫁衣神功置之死地而后生，剩下的一期生甚至不如夏色祭（不要扯狐皇，不是一码事），可是夏色祭难道没有自曝吗？油管打apex是假的？可这和藤木大小姐的料根本不是一个级别的，没有办法引起哪怕小一个量级的讨论度。当然了，心心的再出发很大程度上也只是短暂的脱离了过气区罢了，等到这波热度过了，心心还是会被后辈们盖过，这是不可避免的。
+
+那么这一切的原因究竟是什么呢？其实这就是vtb周期和箱推民选择导致的罢了。
+
+
+作为一款新兴的娱乐快消产品，vtb的生命周期其实远比普通明星甚至偶像短得多，是名副其实的跳板产业。很多人有也许已经有了这种预感，可是由于我们就是第一批vtb的亲历者，我们并没有看到第一次真正意义上的退潮，视频势的覆灭是生产模式的改变，其他的v毕业也几乎都可以归咎为个人原因。所以我们想当然的觉得我们认识中的周期已经很短了，可是我要说，vtb的寿命，比我们所想象的，还要短许多，短到一个结构性的退场随时都会到来。任何妄图在vtb业界作为演者彻底改变人生的人其实都是不现实的，因为你根本就干不了这么久。虽然这个业界以它松散的演者粉丝关系可能将入坑成本降到了0，又用v魂分离说把观众的责任义务降到了极低，但是同样的，这也使观众的流动成为了一个成本极低的行为。这种情况下，vtb迅速的过气，其实不过是形象价值干涸，而粉丝寻求新的刺激罢了。
+
+
+而另一方面，箱推民的流动成本，比一般观众还要更低，这使得新人一定得到箱推民的青睐，而这份青睐，如果不是伴随着奇迹性的扩圈，必然带来老人们灾难性地过气。其实对于企业势v的人气而言，可能只有过气了才能看出有几斤几两，只有没了第一第二大箱的泱泱大名，才会展现出她们作为v真正的吸引力。杏一期已经基本完全断了箱推流量了，二期基本也没啥了，三期正是顶峰，四期次之。五期生一出，又有几家欢喜几家愁呢？
+
+
+回到小肥妹的话题，她的抗争虽然盲目而且好懂，但对我来说却还是相当值得玩味的。不像白上，夏色祭对于v，并没有一个明确的“然后呢”，她只是享受暌违已久的巨量关注和打拼之后和一个二线箱一同崛起的正反馈罢了。退潮以后，一个生涯中期的v究竟该如何自处？重压之下，他们又该何去何从？
+
+
+当然，对于祭丝来说，上面的理论一样适用，要退一个坑太容易了，而夏色祭哪怕有万般理由也确实做出了很多祭丝无法接受的决定，所以退坑也是非常合理的，并不是说理解了小肥妹的决定以后就能改变这种结果。
+
+
+不过说真的，炎上路线和暴言路线真的是三日王朝，小肥妹在社内混到今天大联动老是没她，究竟是因为嗜睡方面的问题还是因为别的，我是真的蒙古。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| mmbk| + 1|好！|
+| SuntoryNomu| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8116#       发表于 2020-6-22 01:12
+
+
+
+
+白上在直播上的才能和月之相比的话，可以近似视作没有才能了。没有直播才能的人也能过上自由自在的生活，说明观众更在乎直播之外的东西。
+
+啊，伟大的木口，感谢你给灰姑娘穿上了虚拟的水晶鞋！<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8117#       发表于 2020-6-22 01:14
+
+
+
+
+bsyl,
+
+<img src="https://img.saraba1st.com/forum/202006/22/011340pvz35vk50anx5x35.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbC2ZpYUMAMeLJL.jpg</strong> (357.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 01:13 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/011341uibdau9aymeuyfea.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbC2ZpcUMAIEn0f.jpg</strong> (304.5 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 01:13 上传
+
+
+
+
+
+
+[https://twitter.com/mizuki_fua/status/1274719265111728128](https://twitter.com/mizuki_fua/status/1274719265111728128)
+
+
+
+
+
+但也syl,
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/011341zy8f2y73xvye8fei.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbBkOzJUYAY4aoa.jpg</strong> (200.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 01:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8118#       发表于 2020-6-22 01:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897212&amp;ptid=1941579" target="_blank">oshinoshinobu 发表于 2020-6-22 01:04</a>
+
+尾巴哥这钩还真有咬的</blockquote>
+这还真可能是我比较类似钓鱼的一次发言了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+不过催促阿委确实没有意义，狐皇的活也确实不多了（
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8119#       发表于 2020-6-22 01:18
+
+
+
+
+说到狐狸我就想顺劈洋葱人，想想半夜顺劈不太基德，算了。
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 8120#       发表于 2020-6-22 01:18
+
+
+
+
+说狐狸没有创作的才能还算靠谱，说她没直播的才能就是纯扯蛋了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8121#       发表于 2020-6-22 01:18
+
+
+
+
+狐皇手上还有一张男人牌，杏星给点力，狐皇又能焕发第三春了。流水的liver，铁打的狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8122#       发表于 2020-6-22 01:20
+
+
+
+
+不用说V，就算真人演艺界的更新换代也是很快的，歌手演员声优偶像等等，一两部作品一鸣惊人之后就江郎才尽迅速沉寂过气的太多了。
+
+从一个普通观众角度来说，还是关注整个圈子能不能继续维持活力，拿出好看的东西来，一个人没灵感了，暂时休息寻找路线了，甚至过气毕业了，对整个圈子来说其实算不了什么。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8123#       发表于 2020-6-22 01:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897309&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 01:18</a>
+
+说到狐狸我就想顺劈洋葱人，想想半夜顺劈不太基德，算了。</blockquote>
+你说话现在要注意点，说清楚顺劈哪个洋葱人，视情况不同你可能受到不同会社的律师函或者不同群体的80<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  千万ly  
+##### 8124#       发表于 2020-6-22 01:21
+
+
+
+
+“杜鹃不鸣，当如何？”
+
+“杀之。”
+
+“诱之鸣。”
+
+“待其鸣。”
+
+不能杀之，不能诱之鸣，那就只能待其鸣了。
+
+待得过来吗？
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8125#       发表于 2020-6-22 01:22
+
+
+
+
+尾宝又写小作文自我陶醉了，太长卜看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 直播才能到底是啥，我看了八年直播也没悟出来，希望楼友提点一下，姜岑，卢本伟，刘谋，Richard Tyler Blevins，Michael Grzesiek 这些人到底有什么共通的直播才能<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8126#       发表于 2020-6-22 01:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897332&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 01:21</a>
+
+你说话现在要注意点，说清楚顺劈哪个洋葱人，视情况不同你可能受到不同会社的律师函或者不同群体的80[f:0 ...</blockquote>
+白洋葱暂时还轮不到她拿杏中国的接力棒，当然是紫的了。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8127#       发表于 2020-6-22 01:26
+
+
+
+
+阿委不是有趣的灵魂
+
+狐狸没有直播的才能
+
+
+还挺押韵的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8128#       发表于 2020-6-22 01:27
+
+
+
+
+杏现在宛如开挂般的增速让箱内但凡有一点胜负欲的V都必须非常聚焦让自己数据好看的打法，多分一点心背后就有114514个同事杀过去，看看龙皇从开春之后不过是从版本之子恢复成正常的UR卡就要被狗兔超车，这种集团高增速现在既是优势也是负担。破解的方法只有等五期了。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8129#       发表于 2020-6-22 01:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897338&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:22</a>
+
+尾宝又写小作文自我陶醉了，太长卜看
+
+
+syl 直播才能到底是啥，我看了八年直播也没悟出来，希望楼友 ...</blockquote>
+《情商》《位置》《牌面》,YYF书都写给你看了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8130#       发表于 2020-6-22 01:28
+
+
+
+
+我靠，我说的和月之比啊，不是和普通人比，不要曲解我的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8131#       发表于 2020-6-22 01:28
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-22 01:22
+尾宝又写小作文自我陶醉了，太长卜看
+
+
+syl 直播才能到底是啥，我看了八年直播也没悟出来，希望楼友 ...</blockquote>
+看虚拟管人只需要三天就能知道什么叫没有直播的才能了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8132#       发表于 2020-6-22 01:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897327&amp;ptid=1941579" target="_blank">free 发表于 2020-6-22 01:20</a>
+
+不用说V，就算真人演艺界的更新换代也是很快的，歌手演员声优偶像等等，一两部作品一鸣惊人之后就江郎才尽 ...</blockquote>
+那还是有区别的，乃木坂的一期生从真正大hit到现在末期过去了整整五年，一线事务所的男女演员只要不出私人问题那么坚持在一线的时间更久，搞笑艺人们只要进入中坚，那么支撑十年不倒基本是不费吹灰之力。
+
+
+你说的一鸣惊人后迅速沉寂固然存在，但是我说的是一个行业整体的更新节奏和速度。
+
+
+vtb的更新换代实在是太快了，抽卡快，hit快，过气也快，一切都像一次超新星爆炸。一个形象80%-90%的内容物在半年到一年里被迅速榨干，然后大部分的热度都去追捧新的形象了。
+
+
+这个圈子的现实就是，一切都是暂时的，是脆弱的，是朝生暮死的，刺激也好，依赖也好，憧憬也好，来时熙熙，去时攘攘。
+
+
+木口之所以能窜到现在的高度，很大程度上是因为通过箱力，可以靠新人和传承延缓这一过程，但是对于箱内的v个人来说，这种流动性被进一步放大了。
+
+
+从圈子的角度上来说，我认为vjuan并没有什么不健康的，他充满活力，依然允许任何人创作。但是对于一个v和他们的粉来说，这样的速度，或许太残忍了
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8133#       发表于 2020-6-22 01:31
+
+
+
+
+要我说真正配得上《直播的才能》的只有摸余。要强度没强度要内容没内容要本事没本事也吃不到初期红利照样让绫人发疯，这种完全后天努力=0打出来的数据才叫《才能》。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8134#       发表于 2020-6-22 01:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897372&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 01:27</a>
+
+《情商》《位置》《牌面》,YYF书都写给你看了</blockquote>
+那《文爱》呢<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+况且那外国佬的《情商》《位置》《牌面》也就那样啊
+
+55开也不太行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8135#       发表于 2020-6-22 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897409&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:31</a>
+
+那《文爱》呢
+
+况且那外国佬的《情商》《位置》《牌面》也就那样啊
+
+55开也不太行吧 ...</blockquote>
+看你想问短期内的爆红或者长期内的实红了
+
+
+前者靠运气，后者很复杂，你不喜欢看长文我总结一下
+
+
+素质。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8136#       发表于 2020-6-22 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897385&amp;ptid=1941579" target="_blank">oshinoshinobu 发表于 2020-6-22 01:28</a>
+
+看虚拟管人只需要三天就能知道什么叫没有直播的才能了</blockquote>
+看的人少就是没直播才能，看的人多就是有直播才能，我这样说对吗
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8137#       发表于 2020-6-22 01:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897370&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 01:27</a>
+
+杏现在宛如开挂般的增速让箱内但凡有一点胜负欲的V都必须非常聚焦让自己数据好看的打法，多分一点心背后就 ...</blockquote>
+4ID哥为什么这么期待五期？感觉木口现在扩圈速度已到巅峰，再也没有未开发市场了。五期出来是加速木口内卷化，含着金钥匙出生，最后大概率发展比不上三四期。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8138#       发表于 2020-6-22 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897409&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:31</a>
+
+那《文爱》呢
+
+况且那外国佬的《情商》《位置》《牌面》也就那样啊
+
+55开也不太行吧 ...</blockquote>
+所以他已经凉了呀<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8139#       发表于 2020-6-22 01:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897415&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 01:32</a>
+
+看你想问短期内的爆红或者长期内的实红了
+
+
+前者靠运气，后者很复杂，你不喜欢看长文我总结一下</blockquote>
+那你不就是把“才能”换成“素质”了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 直播素质哪家强，还是看我文爱沪上皇
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8140#       发表于 2020-6-22 01:36
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 01:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897425&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 01:33</a>
+
+4ID哥为什么这么期待五期？感觉木口现在扩圈速度已到巅峰，再也没有未开发市场了。五期出来是加速木口内 ...</blockquote>
+我上面也说了，这个圈子需要不断地新形象。这种胃口不是想控制就能控制住的，你不满足，自然有人满足。
+
+
+五期生的出现必然证明木口世代衔接和热度传承方面的代差优势
+
+
+至于会不会走下坡路？那得看五期生素质怎么样，基本不拉胯的话守成还是没问题的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8141#       发表于 2020-6-22 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897425&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 01:33</a>
+
+4ID哥为什么这么期待五期？感觉木口现在扩圈速度已到巅峰，再也没有未开发市场了。五期出来是加速木口内 ...</blockquote>
+不做机会永远=0。空狐夸船龙这个级别的还能抽出来就还能续。而且你说今年下半年杏没扩圈操作我也不信。
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8142#       发表于 2020-6-22 01:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897442&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 01:35</a>
+
+所以他已经凉了呀</blockquote>
+但人凉了这么久还是有百万阴兵粉啊，p站能蹭到一点的都天天刷lbwnb，连羊宝的ドドド都能刷得得得的，可见脑控能力还是很**的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8143#       发表于 2020-6-22 01:38
+
+
+
+
+要五期生先把三期泳装做完再说吧。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8144#       发表于 2020-6-22 01:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897443&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:35</a>
+
+那你不就是把“才能”换成“素质”了嘛 直播素质哪家强，还是看我文爱沪上皇 ...</blockquote>
+因为你不喜欢长文嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+素质这个东西铺开讲太多了，为人处世，规划统筹，特技底力，根性胆魄，还有更多更多。
+
+
+无论缺了哪一样都无法长期实红，就算都有了，也可能因为运气不佳在沉默中灭亡
+
+
+当然，有素质你可能不火，但是没有素质你肯定火不久
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8145#       发表于 2020-6-22 01:39
+
+
+
+
+现在这个规模和生态真的很不错，而且四期远远没有开发彻底，抽五期这种不可逆操作还是缓缓比较好，等这波快到头的时候作为强心针打出
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8146#       发表于 2020-6-22 01:39
+
+
+
+
+郡道没参加上会喷喷大会的理由：
+
+1、没空；
+
+2、觉得要为他人负责，也觉得他人要承担自己的不足，不喜欢这样的事；
+
+
+我觉得好女人有两种，要不得完全的诚实，要不得说谎说得让所以人都相信。
+
+在我心里郡道一直都是好女人。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8147#       发表于 2020-6-22 01:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897465&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-22 01:39</a>
+
+郡道没参加上会喷喷大会的理由：
+
+1、没空；
+
+2、觉得要为他人负责，也觉得他人要承担自己的不足，不喜欢这样 ...</blockquote>
+你在我心中也一直都是好粉丝！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8148#       发表于 2020-6-22 01:40
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-22 01:32
+看的人少就是没直播才能，看的人多就是有直播才能，我这样说对吗</blockquote>
+硬要说的话，直播的才能就是给观众一个花时间看你直播的理由
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8149#       发表于 2020-6-22 01:41
+
+
+
+
+所以绫总到底有什么直播才能啊，可别最后归结到狗妈牛逼上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 8150#       发表于 2020-6-22 01:43
+
+
+
+
+。。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">直播才能这东西也要有人看才能被吹出来啊
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 8151#       发表于 2020-6-22 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897405&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 01:31</a>
+
+要我说真正配得上《直播的才能》的只有摸余。要强度没强度要内容没内容要本事没本事也吃不到初期红利照样让 ...</blockquote>
+不会有人看了最近的傻狗就以为是全部了吧
+
+这种键盘敲出来的黑p也叫做《才能》
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8152#       发表于 2020-6-22 01:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897405&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 01:31</a>
+
+要我说真正配得上《直播的才能》的只有摸余。要强度没强度要内容没内容要本事没本事也吃不到初期红利照样让 ...</blockquote>
+摸鱼也是摸余的魅力之一
+
+
+当然啦，主要还是摸余有一副好嗓子。这副嗓子去当偶像可能选不上，当歌星肯定没戏，当声优可能会被人笑话
+
+
+但当主播真的太合适了......
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8153#       发表于 2020-6-22 01:44
+
+
+
+
+我也期待五期生啊，抽出个星姐的上位替代本强度党就转推了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8154#       发表于 2020-6-22 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897463&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 01:39</a>
+
+因为你不喜欢长文嘛
+
+
+素质这个东西铺开讲太多了，为人处世，规划统筹，特技底力，根性胆魄，还有 ...</blockquote>
+那还挺普通的，就是天地人，他火因为他牛逼嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+fgnb！
+
+
+
+
+
+
+
+-----
+
+####  sion777  
+##### 8155#       发表于 2020-6-22 01:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897484&amp;ptid=1941579" target="_blank">cheatdeath3 发表于 2020-6-22 01:41</a>
+
+所以绫总到底有什么直播才能啊，可别最后归结到狗妈牛逼上</blockquote>
+狗妈才说会和狗狗联动，虽然不知道什么时候
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8156#       发表于 2020-6-22 01:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897447&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 01:36</a>
+
+我上面也说了，这个圈子需要不断地新形象。这种胃口不是想控制就能控制住的，你不满足，自然有人满足。
+
+
+ ...</blockquote>
+从这方面说vtb确实更像偶像，真人主播只要自己的游戏没凉，就能一直播下去，而且地位很难变动
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8157#       发表于 2020-6-22 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897518&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:46</a>
+
+那还挺普通的，就是天地人，他火因为他牛逼嘛
+
+fgnb！</blockquote>
+因为主播这个行业看上去无限可能性，其实你想火变量并不多啊.......
+
+
+工业时代大部分东西就算没有实验也早就有了大量经验，一切创新都是建立在前面不拉的基础上的
+
+
+不过你有一句话还是说到点子上了
+
+
+那就是
+
+
+fgnb<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8158#       发表于 2020-6-22 01:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897501&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 01:43</a>
+
+摸鱼也是摸余的魅力之一
+
+
+当然啦，主要还是摸余有一副好嗓子。这副嗓子去当偶像可能选不上，当歌星肯定没 ...</blockquote>
+这我就不服了，小早川千明都能当声优，摸余声音萌爆凭什么要被笑话<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 8159#       发表于 2020-6-22 01:49
+
+
+
+
+姑且说下，花谱和犬山哥目前都在千人增速。就算把游戏部挤到第二页去，前五十还是有13个非彩虹木口的。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8160#       发表于 2020-6-22 01:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897527&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 01:47</a>
+
+从这方面说vtb确实更像偶像，真人主播只要自己的游戏没凉，就能一直播下去，而且地位很难变动 ...</blockquote>
+应该说是两方的结合
+
+
+偶像的话，虽然也有爬墙粉，但往往是自己的推毕业或者重大丑闻才会这样
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8161#       发表于 2020-6-22 01:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897537&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:48</a>
+
+这我就不服了，小早川千明都能当声优，摸余声音萌爆凭什么要被笑话 ...</blockquote>
+因为她真的只是声线好听没经过啥训练啊.......
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8162#       发表于 2020-6-22 01:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897551&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 01:51</a>
+
+因为她真的只是声线好听没经过啥训练啊.......</blockquote>
+那你可能没看过噬魂师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8163#       发表于 2020-6-22 01:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897565&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 01:53</a>
+
+那你可能没看过噬魂师</blockquote>
+嘛嘛我知道声优界也有拉胯的例子，邦多利新乐队拉胯我带头不满来着
+
+
+但是她要是现在这样出道，肯定会有人不满甚至把她当成笑话的.......
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8164#       发表于 2020-6-22 01:55
+
+
+
+
+郡道今晚可能真的玩开心了又是赛后放心状态，问什么都会回答，这个信息量已经是烤肉会员水平了。
+
+比较巧的是郡道也提到了才能相关，说比自己好、有才能的人不要太多，虽然我不这么想就是了。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8165#       发表于 2020-6-22 01:57
+
+
+
+
+第一页非虹杏增速跟得上的只有两个老爱和谱皇苔苔，最多贷款加一个sio一个天天给杏交朋友费的猫宫，没了。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 8166#       发表于 2020-6-22 01:58
+
+
+
+
+在nga夸楼反串crew的“阀瓣叶”据说是2000？一说话就会被塞抹布这点挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8167#       发表于 2020-6-22 02:02
+
+
+
+
+你说的V圈更新换代快，箱其实是加速了这种进程的，箱就是为了建设社区，或者楼主讲的生态，都是一回事。一个人设，一个梗，一次好活，会最快的速度在箱推群众中传播并消费掉。
+
+和主流演艺界的区别就是人家背后真的有各大事务所，音乐公司的人才和资源，能源源不断推出新人才新东西，你圈就是纯靠社区养粉了，一旦一个人设被彻底消费干净，肯定要flop的。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 8168#       发表于 2020-6-22 02:06
+
+
+
+
+说点斗虫话题。夏哥过两天就40万了，芙蕾雅也快20万，然后就是看鸭鸭和天哥谁先30万。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 8169#       发表于 2020-6-22 02:08
+
+
+
+
+有人问メリッサ最近推的v有谁，她说先说和萝卜子打apex、听星街唱saga，最后顺便提到了剑持的archive。后来有人问，nijisanji里呢，想了半天出来个sister claire。
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8170#       发表于 2020-6-22 02:09
+
+
+
+
+大葵群里做的空妈表情
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/020833hzoxqzuimbax7bfl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (19.45 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 02:08 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+                           
