@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 14:03** 
+> ## **本文件最后更新于2020-06-21 22:04** 
 
 
 
@@ -5633,4 +5633,509 @@ syl，说句不该说的nt话，凛子她就不配开live，除非和你麻一�
 
 
 
-                                      
+
+
+-----
+
+####  笋狐  
+##### 13834#       发表于 2020-6-21 14:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怕得要死不想出门但是不得不出门那肯定是公事之类的了
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13835#       发表于 2020-6-21 14:11
+
+
+
+
+你mea也是老肉猪了，上次BML那么大的3D，字幕组都不知道。MEA的天生被动：抓紧观众
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13836#       发表于 2020-6-21 14:14
+
+
+
+
+什么bml和bls,我bw没有排面的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没准就跟去年大亏哥一样有个主舞台节目呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13837#       发表于 2020-6-21 14:22
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-6-21 14:23 编辑 
+
+那我觉得不可能吧......<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大概率bls相关？
+
+syl为什么她这么喜欢肉猪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 13838#       发表于 2020-6-21 14:24
+
+
+
+
+她推特除了id和链接是真的以外其他都当段子看就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13839#       发表于 2020-6-21 15:22
+
+
+
+
+联动的那个游戏的钥匙门的怒气技能怎么放，打了几关打不过去了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13840#       发表于 2020-6-21 15:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890304&amp;ptid=1929631" target="_blank">肚子疼了 发表于 2020-6-21 15:22</a>
+联动的那个游戏的钥匙门的怒气技能怎么放，打了几关打不过去了</blockquote>
+放不住来，要升级暗噬学下一个技能
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 13841#       发表于 2020-6-21 15:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890430&amp;ptid=1929631" target="_blank">惑星 发表于 2020-6-21 15:34</a>
+
+放不住来，要升级暗噬学下一个技能</blockquote>
+一开始那个加buff的怒气技也不能用吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13842#       发表于 2020-6-21 15:59
+
+
+
+
+门里mea和meu的专属技能都没法放，bug了
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13843#       发表于 2020-6-21 16:40
+
+
+
+
+（小麻不播，无观发散）说起来我还担心xby养一个号到时候破墙而入，结果一看小黑屋人一早进去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。果然nt总是会跳的，憋不住的。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13844#       发表于 2020-6-21 17:48
+
+
+
+
+饭盒（安卓不行
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13845#       发表于 2020-6-21 19:35
+
+
+
+
+这就是樱花妹们喜欢苹果的原因吗.....
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13846#       发表于 2020-6-21 19:35
+
+
+
+
+话说貌似大部分日本樱花妹都是苹果信者
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13847#       发表于 2020-6-21 20:09
+
+
+
+
+日本苹果市场份额80%+，你不用才怪怪的
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13848#       发表于 2020-6-21 20:13
+
+
+
+
+苹果在霓虹市场份额摆着呢，大多app都是优先对ios系统优化的
+
+             
+
+盲猜和阿b分公司对接去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13849#       发表于 2020-6-21 20:41
+
+
+
+
+啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，思考了好一会儿才发现苹果不是凛子（
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13850#       发表于 2020-6-21 20:43
+
+
+
+
+能像hana这种3d模型我也知足了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 13851#       发表于 2020-6-21 20:46
+
+
+
+
+3d不够好还可以花钱继续改嘛，不慌的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 13852#       发表于 2020-6-21 20:49
+
+
+
+
+我想看动起来的mea<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13853#       发表于 2020-6-21 20:58
+
+
+
+
+苹果这种难以customize的东西就是适合傻傻的yhm<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13854#       发表于 2020-6-21 20:59
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-21 21:13 编辑 
+
+分析一波，要四天左右不能直播，连续五天出门， 第五天25号端午节，外加今天这唐突diss安卓机的奇怪原因，25号阿b霓虹分部b限ddd配信可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直播内容应该是自己测试草莓饺子为主，顺便告知下bw和bls的这种小型直播活动，毕竟大活动还要用阿b给她的皮的话不宣传实在说不过去，有理有据，我已经信了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 13855#       发表于 2020-6-21 21:11
+
+
+
+
+苹果限制太多，恶心人的，个人不喜欢用
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13856#       发表于 2020-6-21 21:19
+
+
+
+
+至少从打钱这方面来讲苹果不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13857#       发表于 2020-6-21 21:34
+
+
+
+
+日 想到iOS的抽成就觉得气
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 13858#       发表于 2020-6-21 21:48
+
+
+
+<[img src="https://i.ibb.co/s5GxHng/123.png" referrerpolicy="no-referrer">
+
+
+呜呜呜 我也想要<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 13859#       发表于 2020-6-21 21:51
+
+
+
+
+下个星期去看守所轮值两周全封闭了
+
+立个亡语，麻必不在两周内出3D
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13860#       发表于 2020-6-21 22:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">只能默默听听她的歌来捕捉麻的气息
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13861#       发表于 2020-6-21 22:02
+
+
+
+
+说的这么真没出怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                     
