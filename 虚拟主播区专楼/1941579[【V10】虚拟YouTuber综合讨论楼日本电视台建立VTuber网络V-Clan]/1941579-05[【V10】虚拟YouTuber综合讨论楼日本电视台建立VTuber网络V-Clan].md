@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 16:10** 
+> ## **本文件最后更新于2020-06-21 18:10** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_HV63S" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_Vs0H3" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -12109,7 +12109,7 @@ mrr.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_D9Y1P" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_Wm8qw" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
 
 
@@ -17516,7 +17516,7 @@ yostar.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_N7vzx" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_a1fU8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 虾皇喷喷意识我记得还是挺好的
 
@@ -19663,7 +19663,7 @@ sio同接2.9，星祭2.9，按泥潭老哥的算法，这是倍杀了吧
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_KtFwP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_LCWIh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 明天有军神王子对打和三小只同期对打
 
@@ -29016,6 +29016,221 @@ syl 每次画画就回想起被狐皇烫到出脓的屁股，是我我也沉迷�
 
 
 你辞职罢！
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 7489#       发表于 2020-6-21 16:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890813&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-21 16:09</a>
+
+作为狐狸的爹为什么要玩对爹这么不友好的粪游戏啊。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">隐喻啊隐喻
+
+（实际上最新最in的游戏凪白都会第一时间跟进，一玩就是8个小时8个小时的玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7490#       发表于 2020-6-21 16:14
+
+
+
+
+自动涨粉机依然挂在图里啊，那就是会出场咯？再挂机一周我也要发病了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 7491#       发表于 2020-6-21 16:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890823&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-21 16:10</a>
+
+昨天就没认出来自己妈的屑评审
+
+
+你辞职罢！</blockquote>
+あくあちゃん？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 7492#       发表于 2020-6-21 16:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47887846&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-21 12:09</a>
+nijian最近怎么总是盯着这人啊
+
+
+甲斐田晴「土人」→コメで指摘されアーカイブ編集＋「あいつ（不破）」</blockquote>
+不就和水鱼老师被ホロアン盯着一样
+
+主要原因还是VALZ身为唯一一个纯男性组合，本来就很容易遭以肥肥为主的にじアン的歧视和恶意；再加上这三人自己出不来数字海四处找前辈联动，而にじアン向来对蹭热度行为恨之入骨，所以出事了就抓着狠狠打
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 7493#       发表于 2020-6-21 16:20
+
+
+
+
+看到有几个国V在直播日环食，话说之前几年也有其他V直播过天文奇观么？
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 7494#       发表于 2020-6-21 16:23
+
+
+
+
+明天有夸出场，夸员们病情能好转吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 7495#       发表于 2020-6-21 16:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47890983&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-21 16:23</a>
+
+明天有夸出场，夸员们病情能好转吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">咱反而怕变成压垮的最后一根稻草
+
+要是晚上犬山来个临时得更换评委
+
+你信不信一群crew当场嗷的一声就疯了
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 7496#       发表于 2020-6-21 16:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">夸神日记2天没更新了，距离上次直播都快有18天了，再不补充信仰我估计就要和魔法解除的豆腐一样花生恶魔了。
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 7497#       发表于 2020-6-21 16:29
+
+
+
+
+黑乃同接上9600了 能上万吗<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7498#       发表于 2020-6-21 16:30
+
+
+
+
+啊这，为什么过了几天了我还是get不到粽子新皮的好看的点啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。可能我本身就不是很喜欢这种哥特萝莉风吧，小护士那次是因为服装太精细震撼到我了，加上小护士皮很涩。这次这个，我站绿党。
+
+
+syl 但愿苔苔是真的又跟大亏确认会出场吧。不要又是联系不上总之先写了再说。到时候匆匆发推说鸽了鸽了，又得种一波梁木。......还是说这其实都是苔苔的策略！？noripro，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 7499#       发表于 2020-6-21 16:31
+
+
+
+
+上万了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7500#       发表于 2020-6-21 16:42
+
+
+
+
+在b站看到个视频标题：《彩虹社为何能成为世界第一大箱？浅谈彩虹社那些厉害之处》，不由得点进去看了眼发布时间，结果还是前天刚发的。快住手，你这是要引发战争啊！
 
 
 
