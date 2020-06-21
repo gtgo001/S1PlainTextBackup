@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-21 02:10** 
+> ## **本文件最后更新于2020-06-21 10:09** 
 
 
 
@@ -4218,7 +4218,7 @@ cocotsuki也发原创专了，她们的几首原创曲都挺喜欢的，有兴�
 
 
 
-<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_guP5x" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
+<img src="https://pbs.twimg.com/media/Ea3iTaGU0AI9026?format=jpg&amp;name=medium" height="1000" id="aimg_iIPKQ" onclick="zoom(this, this.src, 0, 0, 0)" width="715"/)
 
 好团我色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
@@ -12109,7 +12109,7 @@ mrr.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_Yzu7r" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/Ea2tqMDU0AMS4L4?format=jpg&amp;name=large" height="1172" id="aimg_pP22p" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [https://twitter.com/issikiiiiiii/status/1273865256985456640](https://twitter.com/issikiiiiiii/status/1273865256985456640)
 
 
@@ -17516,7 +17516,7 @@ yostar.png
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_hsxqJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9EQgUU8AMqGaM?format=jpg&amp;name=large" id="aimg_yiIIr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 虾皇喷喷意识我记得还是挺好的
 
@@ -19663,7 +19663,7 @@ sio同接2.9，星祭2.9，按泥潭老哥的算法，这是倍杀了吧
 
 
 
-<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_lAYNi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/Ea9KuxYU0AEWdjp?format=jpg&amp;name=large" id="aimg_G4AW9" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 明天有军神王子对打和三小只同期对打
 
@@ -24782,6 +24782,25 @@ SYL 井皇还打了SC
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| あのん| + 1|感謝|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25388,6 +25407,25 @@ syl，龙宝开始疯狂暗示 ...</blockquote>
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25631,6 +25669,26 @@ https://twitter.com/G_n_G60/status/1274394107197054977?s=20
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bluebaby| + 1|好评加鹅|
+| 中野六小龄童| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -25665,4 +25723,810 @@ https://twitter.com/G_n_G60/status/1274394107197054977?s=20
 
 
 
-     
+
+
+-----
+
+####  IDIDIDID  
+##### 7324#       发表于 2020-6-21 02:25
+
+
+
+
+原来奈子还真被乐福收了啊……
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7325#       发表于 2020-6-21 02:49
+
+
+
+
+岳父🐂🍺，岳父一统s1
+
+
+syl 龙宝又唱攻壳了，虽然依旧有点走音但还是爱了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 7326#       发表于 2020-6-21 02:50
+
+
+
+
+年轻真好，凪白现在还在播最后生还者2<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7327#       发表于 2020-6-21 02:50
+
+
+
+
+bsyl 好奇还有没有别的维球霸唱过origa的歌<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SteinSlayer  
+##### 7328#       发表于 2020-6-21 03:06
+
+
+
+
+你棉花糖问问某个虚拟俄罗斯人呗
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 7329#       发表于 2020-6-21 03:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我问有没有唱过，不是有没有可能唱
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7330#       发表于 2020-6-21 07:07
+
+
+
+
+这风来的西林画的好快，兔子转的也好快，看了下都是昨晚的操作
+https://twitter.com/HIKOSAN20216917/status/1274315172417425408?s=19
+https://twitter.com/Parum__39/status/1274228649202315271?s=19
+https://twitter.com/mitokuma/status/1274284118696579073?s=19
+<img src="https://p.sda1.dev/0/062c6dfc5fac9f7b8bdcddea3ebac021/IMG_AFEC8809457A8C70FBF222A66B0372F9.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/a2c2c7312812a140f8259294e6597a9c/IMG_B169E971C0B01A7F69266BF7FEF36F59.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/325354ef3300d6eb1d55af78a26e9a78/IMG_6C2DE9963A09AD076423F8F830727616.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7331#       发表于 2020-6-21 08:00
+
+
+
+
+之前有发散到盐水入住holohouse，紫宝被小天使强上holo爆炸的剧情，现在看看主角要换成船长了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7332#       发表于 2020-6-21 08:10
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-21 08:19 编辑 
+
+前两天看到有人提过白上桑的塑料小人…我火星了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+会员购26号00:05开始预购
+
+<img src="https://img.saraba1st.com/forum/202006/21/081009nwolunrtf0rx6bfl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200621_080411.jpg</strong> (430 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 08:10 上传
+
+
+
+
+
+斗虫来说，和同公司的mea手办相比，白上桑的评论数和价格都只有一半啊，这就是P站排第五的百万粉V吗？旁边狗妈可是3.3万人点了想要，3000+评论呢，什么是Vjuan第一啊，哦，不，是Vjuan第二。
+btw GSC是不是vtuber系列只出到了猫宫？不赚钱就不做了？
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 7333#       发表于 2020-6-21 08:14
+
+
+
+ 本帖最后由 aele 于 2020-6-21 08:16 编辑 
+
+你们不要把阿紫说成鳩羽つぐ那种全自动犯罪者甄别机一样的东西啊。
+
+看了眼repo，我支持现在就逮捕船长
+
+
+
+
+
+
+
+-----
+
+####  cyz542  
+##### 7334#       发表于 2020-6-21 08:22
+
+
+
+
+喷了。，。
+
+
+
+
+
+
+Screenshot_20200621_082127_com.google.android.youtube.jpg
+(764.22 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-21 08:22 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/082238qvq0zifvzobnmijz.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7335#       发表于 2020-6-21 08:24
+
+
+
+
+船长这也太黄暴了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 塩っ子这能忍？？？来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 7336#       发表于 2020-6-21 08:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885548&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-21 08:10</a>
+前两天看到有人提过白上桑的塑料小人…我火星了吗？
+
+会员购26号00:05开始预购</blockquote>
+狐皇这塑料小人还被阿b放到手办活动的C位和黑呆摆一起，阿b真的给够狐皇面子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 7337#       发表于 2020-6-21 08:29
+
+
+
+
+有什么用呢，要是一年前狐皇人气顶峰的时候还可能爆卖，现在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 7338#       发表于 2020-6-21 08:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885636&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-21 08:29</a>
+
+有什么用呢，要是一年前狐皇人气顶峰的时候还可能爆卖，现在</blockquote>
+等一手100w新衣服人气爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 7339#       发表于 2020-6-21 08:43
+
+
+
+
+贷款一下，狐皇的冲国特供衣服说不定是旗袍加丸子头
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7340#       发表于 2020-6-21 08:44
+
+
+
+
+提前透露怎么就变成特供了，基德啊
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 7341#       发表于 2020-6-21 08:45
+
+
+
+
+没事的，紫宝幸福就好<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 7342#       发表于 2020-6-21 08:47
+
+
+
+
+狐皇这个厂没听过，查了下好像是国内的新厂，这就是海外资本曲线救国吗
+
+感叹一下管人体量真是太小了，想要手办都没几个<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 7343#       发表于 2020-6-21 08:54
+
+
+
+
+手办这种东西除了那种跟作品同步企划的之外，除非你能火至少两年，不然等做出来都凉了
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 7344#       发表于 2020-6-21 08:56
+
+
+
+
+手办我记得老爱的那几款都不错，狐皇这款看着就不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  遍体精淋af  
+##### 7345#       发表于 2020-6-21 09:01
+
+
+
+
+可别旗袍丸子头了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一想到凪白画的眼睛无神的旗袍丸子头狐皇就说不出来的别扭
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7346#       发表于 2020-6-21 09:08
+
+
+
+
+这......这啥啊这......<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/090738ve4amslthbdolyyc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20200621_090406_com.google.android.youtube.jpg</strong> (890.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 09:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 7347#       发表于 2020-6-21 09:11
+
+
+
+
+怎么想都很怪啊......“等待彩虹的人”？
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7348#       发表于 2020-6-21 09:12
+
+
+
+
+啊芙宝没出来repo as35，差点错过软软小天使。
+
+谢谢你，miko辈先！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7349#       发表于 2020-6-21 09:13
+
+
+
+
+来自5ch的秒特定
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/091347l5ijzb1cph51wzw7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6VEC8Fo.jpg</strong> (505.91 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 09:13 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 7350#       发表于 2020-6-21 09:22
+
+
+
+ 本帖最后由 Ketestrait 于 2020-6-21 09:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885929&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-21 09:11</a>
+
+怎么想都很怪啊......“等待彩虹的人”？</blockquote>
+那是歌的名字，BUMP OF CHICKEN原唱的；你看评论里不是在说认为他风格跟BUMP很合么
+
+
+你是不是把cover认成那个COVER了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Izuru单推人| + 1|大概吧，头有丶胀|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 7351#       发表于 2020-6-21 09:27
+
+
+
+
+。
+
+asamiko最高同接超过asacoco了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7352#       发表于 2020-6-21 09:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">会员购里有款国产的老爱也是邪神。其他GSC出的当然乱杀啊。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 7353#       发表于 2020-6-21 09:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886032&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-21 09:27</a>
+。
+
+asamiko最高同接超过asacoco了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">龙之上位可以安排上了！！
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 7354#       发表于 2020-6-21 09:42
+
+
+
+
+&gt;郡道小号又开始梦了，关键词:美少女,同居;
+
+&gt;口了开小号了，说自己看了别人的小号学习了一下，虹里开小号的也就那几个...不知道小天使有没有看到有位女教师想要被美女叫醒啊，给个机会呗（主要是我<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">）
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/094141ck22i22c8s7betjs.png" referrerpolicy="no-referrer">
+
+
+<strong>古代米煎餅大好きマン  @kodaimailove    Twitter.png</strong> (182.34 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 09:41 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/094159bn3zwp2g01yp2key.png" referrerpolicy="no-referrer">
+
+
+<strong>ロアたろす  @roa_lawliet    Twitter (1).png</strong> (49.52 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 09:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7355#       发表于 2020-6-21 09:52
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/095112cc1hrihdozdoooh3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200621095041.png</strong> (74.98 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 09:51 上传
+
+
+
+
+
+
+确实，as35超过了最近ascc的最低水平。
+
+真厉害啊（棒读）
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7356#       发表于 2020-6-21 09:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886142&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-21 09:42</a>
+
+&gt;郡道小号又开始梦了，关键词:美少女,同居;
+
+&gt;口了开小号了，说自己看了别人的小号学习了一下，虹里开小号的 ...</blockquote>
+被美女叫醒那是as35的节目，进holohouse的话郡道老师只能每天早上上班看到几个废人趴在电脑前打ark。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 7357#       发表于 2020-6-21 09:55
+
+
+
+
+2434入住holohouse吗(ಡωಡ) ，可以有
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 7358#       发表于 2020-6-21 09:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而ascc还有继续下滑趋势
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 7359#       发表于 2020-6-21 10:00
+
+
+
+
+ascc2.0确实不太行，coco转型养gachi之后什么节点停了ascc也不意外。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 7360#       发表于 2020-6-21 10:01
+
+
+
+
+狐皇过气fgo也过气，正好放一起
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 7361#       发表于 2020-6-21 10:02
+
+
+
+
+星期天的as35比工作日的ascoco也太过分了，虽然龙皇已不复当年但也不能这么吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 7362#       发表于 2020-6-21 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47886289&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-21 10:01</a>
+
+狐皇过气fgo也过气，正好放一起</blockquote>
+狐皇fgo贴贴（狐皇狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+    
