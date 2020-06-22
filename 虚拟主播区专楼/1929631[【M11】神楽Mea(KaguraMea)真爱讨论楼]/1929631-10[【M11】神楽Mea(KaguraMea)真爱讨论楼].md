@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 20:05** 
+> ## **本文件最后更新于2020-06-22 22:04** 
 
 
 
@@ -8432,4 +8432,1801 @@ holostar又是啥
 
 
 
-                                 
+
+
+-----
+
+####  pabier  
+##### 13991#       发表于 2020-6-22 20:06
+
+
+
+
+就是木口男团，整个加起来被龙宝10倍杀<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+咩3d大概有个6k同接我就知足了
+
+一些人不是存着sc打算3d时候打吗？sc打爆便是了
+
+到时候还可以看看咩这一年的粉丝变化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13992#       发表于 2020-6-22 20:07
+
+
+
+
+ddd也好，想看小麻单人直播上万<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13993#       发表于 2020-6-22 20:13
+
+
+
+
+想看蹦蹦跳跳的咩
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 13994#       发表于 2020-6-22 20:14
+
+
+
+
+之前开着主流进出的buff和苔姨联动才2W出头
+
+单人之前最高多少来着？ddd solo必上不了1w<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+还不如期待ddd连线其他人，指不定还有一波meaqua贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13995#       发表于 2020-6-22 20:18
+
+
+
+
+搞连线还要提前联系，那么麻烦我觉得她不会搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13996#       发表于 2020-6-22 20:31
+
+
+
+
+ddd值得期待的只有sc了吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 13997#       发表于 2020-6-22 20:32
+
+
+
+
+你麻ddd怕不是半个业界转推，不怕得。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 13998#       发表于 2020-6-22 20:36
+
+
+
+ 本帖最后由 ylssb10438 于 2020-6-22 20:40 编辑 
+
+之前在咩直播间的苔兔联动不是都上7000了？宣布如月出道那时的单人直播都有4000吧？我觉得到时其他v转一转推应该会有不少人凑热闹，1w+肯定没问题的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">syl就算阿夸不给面子，不也有苔苔组长兔鞠绿熊舞元江良星川德龙夏哥郡道巧可西西等一群v吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13999#       发表于 2020-6-22 20:36
+
+
+
+
+半个业界可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14000#       发表于 2020-6-22 20:38
+
+
+
+
+木口一般都不会向外引流吧，最可能转推的人也许是狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 14001#       发表于 2020-6-22 20:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一句话，我相信阿夸
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14002#       发表于 2020-6-22 20:39
+
+
+
+ 本帖最后由 2014720 于 2020-6-22 20:42 编辑 
+
+md连个手游联动p都不放，新歌随便唠唠嗑就给你放了，这ddd估计开台前都不转推的<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+最多5k. 跟赤坂联动一次上个w那声音就跟第一次国旗下讲话的小女孩一样抖，你跟外人说这人做了7、8年网络直播？算了她开心就好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14003#       发表于 2020-6-22 20:41
+
+
+
+
+半个业界可还行，现在不是18年了，最后有苔苔帮忙转一手也就算是谢天谢地了，同接只要有3k以上就行了
+
+
+syl，相信阿夸是相信啥？相信她肯定不会转吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14004#       发表于 2020-6-22 20:43
+
+
+
+
+得了得了，同接三位数以上就行了。
+
+相信阿夸肯定不会转可还行，我之前是不是在哪里看到过一模一样的讨论，S1海王楼？
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14005#       发表于 2020-6-22 20:44
+
+
+
+
+为啥这次手游联动，mea一直没提过呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+好像只有前两天b博动的时候提了一句问大家有没有抽到
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14006#       发表于 2020-6-22 20:45
+
+
+
+ 本帖最后由 惑星 于 2020-6-22 20:46 编辑 
+
+我要为神楽めあ正名！
+赤坂联动也就刚开始紧张，后面说话抖是因为要等赤坂写字，又因为节目效果要rp神楽老师，所以玩了一手跟着赤坂写字变换答案，听起来就像抖，其实是节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+syl，手游可能是没给引流的工商费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14007#       发表于 2020-6-22 20:46
+
+
+
+
+除了打钱和小弟，她还有什么特别积极宣传过的事情吗？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14008#       发表于 2020-6-22 20:46
+
+
+
+
+啊这，，，转了就感谢，没转就没转呗，，，为啥这楼现在总把其他的v特殊化，昨晚的五元和刚才的夸，，，是我真彻底毒唯了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14009#       发表于 2020-6-22 20:46
+
+
+
+
+Live啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14010#       发表于 2020-6-22 20:47
+
+
+
+
+不宣传手游的心理，跟不让轮播的心理其实差不多，说明你咩姐内味儿没怎么变
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 14011#       发表于 2020-6-22 20:49
+
+
+
+
+那是因为赤坂老师，和同接没啥关系，她和江良德龙那次联动不就发挥完美<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">她参加过的上w同接的联动不少了，b站也有几次单场仅互动人数就上2w的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14012#       发表于 2020-6-22 20:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果单推发展到最后都要变成所有联动都不看的话，那我估计这辈子都当不了单推了，因为我不可能为了一些无关紧要的东西放弃有她参与的内容的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14013#       发表于 2020-6-22 20:54
+
+
+
+
+怎么开始做梦了，时代变了啊，已经不是她开个参与型pubg就跟开了小最协一样的时代了，现在阿咩3d或者其他重大告知能引流的只有苔和动物园吧，木口哪位粉发圣人是不会理她的，可能友人a会来“默默地注视”一下吧，彩虹那边可能就是真不熟了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14014#       发表于 2020-6-22 20:54
+
+
+
+
+不是我感觉跟赤坂联动声音抖是因为对方是不熟悉的大物，而且苔苔很看重这次联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，那也是个人势大物啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14015#       发表于 2020-6-22 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47909072&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-22 20:53</a>
+
+如果单推发展到最后都要变成所有联动都不看的话，那我估计这辈子都当不了单推了，因为我不可能为了 ...</blockquote>
+主要是这么纠结夸转不转真的太怨妇了，就一个转了是情分不转是本分的事，还每次都有人提，，，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+我现在联动也不是一点不看，会看看同传的，有时候还看看熟肉。
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14016#       发表于 2020-6-22 20:57
+
+
+
+
+忘了我海牛么？！还有那个不肖弟子绿熊应该也会转
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14017#       发表于 2020-6-22 21:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47909134&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-22 20:56</a>
+
+主要是这么纠结夸转不转真的太怨妇了，就一个转了是情分不转是本分的事，还每次都有人提，，，
+
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事到如今这楼里再提到圣人都是阴阳怪气居多吧，来一个“相信两人感情”的已经是濒危物种了，我觉得也不用太在意
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14018#       发表于 2020-6-22 21:02
+
+
+
+
+那个似曾相识的讨论串应该是贴贴楼，而且赌的是撞车ddd还不宣传<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">都是暗黑毒奶罢了，别在意
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14019#       发表于 2020-6-22 21:02
+
+
+
+
+李莱莱的，后面抖真的是节目效果，等熟肉你就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+当然是搞特殊化的有病啦，虹杏就按商业合作看呗，个人情谊害人
+
+
+
+
+
+
+
+-----
+
+####  the_cook  
+##### 14020#       发表于 2020-6-22 21:04
+
+
+
+
+今时不同往日
+
+DDD同接5k、SC百万就算及格了
+
+syl，神TM有人纠结木口是否会转，只是希望木口不转然后再损一下木口势利眼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14021#       发表于 2020-6-22 21:05
+
+
+
+
+我记得那个疑似mk2赌头了。所以检验他是不是真的mk2的时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14022#       发表于 2020-6-22 21:05
+
+
+
+
+她前面抖得我心里慌慌的，妈的<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+隔壁已经是过去式了就翻过去吧，这么忘不掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14023#       发表于 2020-6-22 21:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如先康一个2周年有多少人来推祝贺（
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14024#       发表于 2020-6-22 21:07
+
+
+
+
+前面抖怕不是因为苔苔的台本没准备充足，搞得你咩姐心理没底，不知道聊啥（后面聊开了就好了，然后开起了自己的车
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14025#       发表于 2020-6-22 21:07
+
+
+
+
+指望其他人转不转干啥，这些关系再好也就是网友关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">要是说meamiu这种我倒感觉可能更深一点。相信谁都不如想你mea姐更好一点
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14026#       发表于 2020-6-22 21:08
+
+
+
+
+又车大亏，又车大亏，不要暗黑贴贴
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14027#       发表于 2020-6-22 21:09
+
+
+
+
+今年几乎就没互动过，新入坑的怕不是连aqua是谁都不知道。毕竟你咩姐如今阿B上吸引人入坑的高播放视频，可不只有旧约和几个老梗了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 14028#       发表于 2020-6-22 21:09
+
+
+
+
+方舟指令开的又不是日服联动 跑去推上宣传那有点怪 发b博是最恰到好处的 
+
+至于tc不开转播她也说过tc想悠闲点 还有保有一片本土观众限定的地方 毕竟b限也不是个个本土都来看  这是她对本土和b站观众的一种平衡方式何况tc档全有的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14029#       发表于 2020-6-22 21:09
+
+
+
+
+隔壁？你指哪里？不可燃垃圾吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14030#       发表于 2020-6-22 21:10
+
+
+
+
+阿b还是有相当一部分死了都要贴的人吧，最近阿b质量比较好的fanart还是有相当六字母浓度的，这帮不死心贴贴人不会是濒危物种的，顺带分享一哈fanart，刚开始以为是416，没想到还真是咩，有、顶 [http://pixiv.net/i/82491813](http://pixiv.net/i/82491813) 想看麻脚和火腿肠了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14031#       发表于 2020-6-22 21:11
+
+
+
+ 本帖最后由 惑星 于 2020-6-22 21:13 编辑 
+
+所以大屁股就是爽啊
+原话说的是和朋友一周三次联系吧，然后举了几个例子，你们关注的那个人只是其中之一
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14032#       发表于 2020-6-22 21:12
+
+
+
+
+没必要纠结夸转不转，之前不是苔姨说咩和夸一周联系三次吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">要相信她们的感情是真的啊
+
+咩作为404一流守门员，其他大物来转一下这不是情理之中？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14033#       发表于 2020-6-22 21:12
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-22 21:14 编辑 
+
+其实以前播放量也不高啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+去看了眼，现在也才6.4w，，，
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14034#       发表于 2020-6-22 21:13
+
+
+
+
+等ddd的转推，还不如看二周年又有多少人祝贺……都是社交辞令.jpg
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14035#       发表于 2020-6-22 21:13
+
+
+
+
+百位守门员算是一流吗，学到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14036#       发表于 2020-6-22 21:14
+
+
+
+
+业界三线，个人势第三，还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14037#       发表于 2020-6-22 21:14
+
+
+
+
+那来转换一下话题吧：我已经在日本了，蹲到小麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14038#       发表于 2020-6-22 21:16
+
+
+
+
+个人势里她也排不上第三啊，虚拟老奶奶花生君谁的牌面都不是mea能比的，说白了形容mea最合适的还是冲国女王）
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14039#       发表于 2020-6-22 21:17
+
+
+
+
+冲国个球球，看看排行榜好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14040#       发表于 2020-6-22 21:18
+
+
+
+ 本帖最后由 nightmare902015 于 2020-6-22 21:19 编辑 
+
+日本的罩杯比中国默认大一号吧。D就是我们的C
+
+
+C罩杯还行，在我接受范围之内，再大就只有脱粉了
+
+我服了，别女王女王了，时代变了，法兰西已经永久放逐了所有皇室成员
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14041#       发表于 2020-6-22 21:18
+
+
+
+
+那就冲国守门员
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14042#       发表于 2020-6-22 21:19
+
+
+
+
+最适合的还是老老实实收收钱攒两三套房子以后当包租婆想干啥干啥包养我
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14043#       发表于 2020-6-22 21:19
+
+
+
+
+干我干我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14044#       发表于 2020-6-22 21:20
+
+
+
+
+在整个人类史中vtuber的数量如同恒河沙数，但在其中独放异彩的是一流守门员法兰西女王———卡古拉咩啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl  我觉得就算这两人彻底闹掰，死不往来，b站贴贴人也不会停下他们的脑洞的
+
+zsyl  我作证，我就在ms边上
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 14045#       发表于 2020-6-22 21:21
+
+
+
+ 本帖最后由 LunarCorona_VOV 于 2020-6-22 21:25 编辑 
+
+你虹他杏进了20年都开始通货膨胀了，也不见麻膨胀一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，指望他杏v转麻3D还不如指望虹v引流，可能性还大一点，他杏排班这么紧忙得要死大概是没时间关注底边个人势的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+zsyl，突然回想起不知是在M楼还是V综看到的贷款黑屁，说粽子和咩那次联动，3个月后润姨必然忘了卡古拉咩啊是哪一位，不知道这波能不能记起来一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14046#       发表于 2020-6-22 21:21
+
+
+
+
+我就不一样，再大都不会脱粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> https://www.pixiv.net/member_illust.php?illust_id=82325884
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14047#       发表于 2020-6-22 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47909553&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-22 21:19</a>
+
+干我干我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你还是干黑暗贴贴人去吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14048#       发表于 2020-6-22 21:22
+
+
+
+
+本来想说色图莫多莫多但上面这个也太tm大了（虽然点进去发现已点赞
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14049#       发表于 2020-6-22 21:23
+
+
+
+
+别女王了⑧，热度和收入都退了好几档了，但总归还是有影响力的，算是个冲国日v代表，我愿称之为阿b日v圈的伊丽莎白二世
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14050#       发表于 2020-6-22 21:23
+
+
+
+
+冲国女王的称号别人给的别人用的，她自己没用过也不妨碍人家用到关服
+
+当然买不买这个称号的帐是另一码事，虽然点弟弟当初就信过这个邪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14051#       发表于 2020-6-22 21:24
+
+
+
+
+不管是大是小，只要羊奶好恰就行<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14052#       发表于 2020-6-22 21:24
+
+
+
+
+yysy，我还挺想被futa咩咩干的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14053#       发表于 2020-6-22 21:26
+
+
+
+
+这称呼有一日我对苔苔梁木有一日<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+楼上还是让黑暗贴贴人淦你吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14054#       发表于 2020-6-22 21:26
+
+
+
+
+其实这么个位置就挺好，不缺她吃喝不缺钱赚，想聊天也有人能陪她聊天，就这么让她舒舒服服的一直直播下去吧。
+
+直到我找到她
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14055#       发表于 2020-6-22 21:26
+
+
+
+
+为啥要把冲国女王和排名收入绑一块，数字不行就不能叫了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁数字超天皇的人不少不过天皇还是天皇啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14056#       发表于 2020-6-22 21:26
+
+
+
+ 本帖最后由 路人庚 于 2020-6-22 21:28 编辑 
+
+绮丽扶她也不是不行（纯度 上升了
+
+
+因为她自己就没喜欢过这个称号，19年初和大亏联动的时候大亏提了这个称号，而她当时就并不开心
+
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14057#       发表于 2020-6-22 21:27
+
+
+
+
+这丫头就没自称过冲国女王吧
+
+syl  咩过气算是前浪被后浪拍在沙滩上吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14058#       发表于 2020-6-22 21:27
+
+
+
+
+德不配位！德不配位！
+楼友🤺欲望很高
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14059#       发表于 2020-6-22 21:29
+
+
+
+
+为什么要暗黑贴贴人啊，不要不要<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。顺带流星啊万一咩咩是乔碧萝你还爱她吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14060#       发表于 2020-6-22 21:29
+
+
+
+
+粽子那明显感觉是你麻有点怕她吧，从鼻血组散了后就很少恰到holo的流量了，也不晓得小红帽和天宫心能不能想起你麻这种小角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14061#       发表于 2020-6-22 21:29
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-22 21:30 编辑 
+
+楼上那个喜欢futa的能不能去自己开的xp楼发病，请物尽其用<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+syl，clay的发言有病娇那味了，好可怕，还是我先找到小麻默默保护她吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14062#       发表于 2020-6-22 21:29
+
+
+
+
+就算要击，我也愿击的是futa咩的而不是楼友的
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14063#       发表于 2020-6-22 21:30
+
+
+
+
+主要是这个称呼带上了冲国，部分是觉得这称呼搞得像是冲国人都喜欢她似的，另一部分是觉得这称呼有捧杀的嫌疑
+
+不要futa不要futa   futa本我看不下去的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14064#       发表于 2020-6-22 21:31
+
+
+
+
+是乔碧萝就不爱了，我们二次元就是这样的
+天宫心记不记得不知道，莱姐姐应该记得住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14065#       发表于 2020-6-22 21:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47909690&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-22 21:29</a>
+
+为什么要暗黑贴贴人啊，不要不要。顺带流星啊万一咩咩是乔碧萝你还爱她吗 ...</blockquote>
+啊这，我早说过了，只要上位她不会把我坐断就行<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14066#       发表于 2020-6-22 21:32
+
+
+
+
+现有因才有果，正因为不是乔碧萝所以才有了流星
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14067#       发表于 2020-6-22 21:34
+
+
+
+
+啊这，我又不是看了htc之后才gachi的，早就开始犯病了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14068#       发表于 2020-6-22 21:35
+
+
+
+
+所以俺寻思不就是个英女王待遇，重大活动露脸，有一定影响力，没啥实权但也过的滋润（指同接和收入稍低），姑且是阿b日v圈的代表。另外p站她的r18创作是有扶她的，你们可以去感受感受，虽然质量不是算太好
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14069#       发表于 2020-6-22 21:35
+
+
+
+
+就年龄方面咩必不是乔碧萝啊，就算是肥肥也可以减啊
+
+Cla哥好像是前组员？真的是有和咩结婚的想法吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14070#       发表于 2020-6-22 21:36
+
+
+
+
+套皮主播的好处就在于可以把斋藤飞鸟跟乔碧萝拉到同一级别啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，想想有点惆怅。做一个偶遇美少女咩咩的梦好了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14071#       发表于 2020-6-22 21:36
+
+
+
+
+冲国人是都喜欢她，以前联动里还给全冲国人打手冲过
+
+虽然她没自称冲国女王，但其他方面像跳赤坂脸这种事没少干过啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她不提冲国女王这梗我觉得更大可能是怕赵弹
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14072#       发表于 2020-6-22 21:36
+
+
+
+
+答应我，不要问一个gachi真的有结婚想法吗这种问题，怪伤心的
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14073#       发表于 2020-6-22 21:37
+
+
+
+
+推荐futa咩是真不基德
+
+那futa图我差点看吐好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14074#       发表于 2020-6-22 21:37
+
+
+
+
+拒绝扶她谢谢，一个女孩子长那玩意不是纯粹恶心人吗？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14075#       发表于 2020-6-22 21:38
+
+
+
+ 本帖最后由 2014720 于 2020-6-22 21:40 编辑 
+
+要坐断了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+关于扶她确实不行，但是如果是咩我可以<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+反正日v在b估计也就半年了，这称呼随便了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14076#       发表于 2020-6-22 21:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我挺喜欢美少女黄油但扶她是真不行
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14077#       发表于 2020-6-22 21:39
+
+
+
+
+如果大伙都经历过东方妖女乱舞的洗礼，对futa大概就没什么恶感了（不确定
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14078#       发表于 2020-6-22 21:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47909788&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-22 21:35</a>
+
+就年龄方面咩必不是乔碧萝啊，就算是肥肥也可以减啊
+
+Cla哥好像是前组员？真的是有和咩结婚的想法吗？[f:067 ...</blockquote>
+啊这，懂的都懂
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pabier| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14079#       发表于 2020-6-22 21:40
+
+
+
+
+行吧那我封印futa了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。顺带结婚是爱情的坟墓啊你们清醒一点
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14080#       发表于 2020-6-22 21:41
+
+
+
+
+爱情什么的有过就行了，我想要的是给她陪伴<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14081#       发表于 2020-6-22 21:41
+
+
+
+
+能让我跟她进坟嘛
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14082#       发表于 2020-6-22 21:42
+
+
+
+
+扶她还行吧，主要是玩了几作叫什么水月企划的百合黄油，扶她内容还挺多的
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14083#       发表于 2020-6-22 21:42
+
+
+
+
+嗨如果真的能陪伴到她老，进坟墓又何妨……
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14084#       发表于 2020-6-22 21:43
+
+
+
+
+那是和dwu联动还是回推的时候说的吧，我感觉她是遇到了屑问题所以给了个屑答案
+
+syk  她不自称冲国女王我觉得可能是更简单的原因，如果她真的自称了，我觉得我会长梁木
+
+zsyl  那我不问了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">就是之前看到部分咩海盗与官组的过节，对官组的构成比较好奇才问的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14085#       发表于 2020-6-22 21:44
+
+
+
+
+futa只是小众爱好
+
+futa只是小众爱好
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14086#       发表于 2020-6-22 21:47
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/214638cvdq10qcztc2l4vz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200622214604.png</strong> (44.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 21:46 上传
+
+
+
+
+
+
+说起火腿肠，最近感觉游戏里穿这件衣服有火腿肠内味了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14087#       发表于 2020-6-22 21:48
+
+
+
+
+我其他的爱好也套不到mea身上<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">。啊不对，其实我很喜欢看管人讨论她们的xp来着。我还有个xp是美少女的masturbation<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14088#       发表于 2020-6-22 21:50
+
+
+
+
+这游戏还真的被玩成闪耀咩咩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14089#       发表于 2020-6-22 21:53
+
+
+
+
+在复习前天的歌回，91分钟时这充满底力的粗声，没那么大的体格是发不出来这种声音的，坦克民又赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14090#       发表于 2020-6-22 21:57
+
+
+
+
+坦克民就应该打开你的PS4，购买最新热门游戏TLOU2，游玩Abby个人线，欣赏壮硕的身躯，就像坦克麻出现在你眼前，栩栩如生
+
+
+#小麻一拳打死循声者
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14091#       发表于 2020-6-22 22:00
+
+
+
+
+草tl2滚啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，垃圾游戏biss
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14092#       发表于 2020-6-22 22:03
+
+
+
+
+你麻玩那个怕不是当场表演个拳砸显示器
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14093#       发表于 2020-6-22 22:03
+
+
+
+
+tlou2?哇求求你做个人吧
+
+
+
+
+
+                              
