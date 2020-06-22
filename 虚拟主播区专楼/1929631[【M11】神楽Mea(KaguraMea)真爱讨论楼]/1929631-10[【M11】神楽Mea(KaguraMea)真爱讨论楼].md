@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 12:04** 
+> ## **本文件最后更新于2020-06-22 16:03** 
 
 
 
@@ -6982,10 +6982,11 @@ https://www.bilibili.com/read/cv6496857
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| aisakahammer|-2||
 | Cla0221|-1|sbnt，赶紧滚蛋|
 
 
@@ -7336,4 +7337,513 @@ Syl你麻天天在内和如月聊天，是 ...</blockquote>
 
 
 
-                                   
+
+
+-----
+
+####  惑星  
+##### 13931#       发表于 2020-6-22 13:17
+
+
+
+
+哈哈哈弱智发散被骂弱智了把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://t.bilibili.com/403526295020235477?tab=2](https://t.bilibili.com/403526295020235477?tab=2)
+
+<img src="https://img.saraba1st.com/forum/202006/22/131233pqa7amhplglrmicl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>cc1c4c909766529ac634d200619950b41348ee9b.jpg@518w_1e_1c.jpg</strong> (69.75 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 13:12 上传
+
+
+
+
+
+
+pid=82402095
+
+<img src="https://img.saraba1st.com/forum/202006/22/131022pw5g9dls8qsygzdp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>illust_82402095_20200622_130532.jpg</strong> (446.17 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 13:10 上传
+
+
+
+
+
+[https://twitter.com/kono_Nekoda/status/1274914116465864706?s=09](https://twitter.com/kono_Nekoda/status/1274914116465864706?s=09)
+[https://i.loli.net/2020/06/22/qBjgJ31V2UC9iTx.jpg](https://i.loli.net/2020/06/22/qBjgJ31V2UC9iTx.jpg)有勇士吗，这算不算露点<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+p站上还看见一张奈子比两个头都大的，有兴趣可以观摩一下<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 13932#       发表于 2020-6-22 13:27
+
+
+
+
+发这东西不会进去吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  第二十三个马甲  
+##### 13933#       发表于 2020-6-22 13:33
+
+
+
+
+好久没来了，楼里人还是没变啊
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13934#       发表于 2020-6-22 13:51
+
+
+
+
+纯度已经高很多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13935#       发表于 2020-6-22 14:10
+
+
+
+
+太高了也不好。怪话和发 情都要适量才好(눈_눈)。怪话太多会恶堕 。发 情太多会发疯。所以建议怪话去xp楼，发 情去日记楼。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13936#       发表于 2020-6-22 15:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当你楼不再弱智不再发情的时候，你楼还是m楼吗
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 13937#       发表于 2020-6-22 15:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897147&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-22 00:57</a>
+
+推理好活，至少在b站日本分公司多转转估计能无意见到小麻一面</blockquote>
+我已经到了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13938#       发表于 2020-6-22 15:05
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-22 15:09 编辑 
+
+弱智可以发情可以，绿帽赶紧有多远滚多远
+
+
+反正非要当有权限的xby不嫌难看就出来一次骂一次呗，我无所谓。反正这几个月算上老轱辘也没吵过几次架。
+
+暗黑贴贴人都知道不在这楼里怨妇了，绿帽癖怎么就不知道自己不受待见呢。
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13939#       发表于 2020-6-22 15:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47904187&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-22 15:05</a>
+弱智可以发情可以，绿帽赶紧有多远滚多远
+
+
+反正非要当有权限的xby不嫌难看就出来一次骂一次呗，我无所谓。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我又不是无端发散，凭空语钕**怎么就xby了，乱扣帽子可不好
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13940#       发表于 2020-6-22 15:14
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-22 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47904229&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-22 15:09</a>
+
+我又不是无端发散，凭空语钕**怎么就xby了，乱扣帽子可不好</blockquote>
+那是不是xby每次暗示乱p的时候把她当初联动的话或者说的自己妄想的话都拿出来就不叫凭空了啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+最主要是你整绿帽nt不是一回两回了，以前都知道编辑咋这回就要nt到底了啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13941#       发表于 2020-6-22 15:18
+
+
+
+
+一见短袖子，立刻想到白臂膊，立刻想到全果体，立刻想到生殖器，立刻想到性交，立刻想到杂交，立刻想到私生子。 ———— 鲁迅
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 13942#       发表于 2020-6-22 15:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47904283&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-22 15:14</a>
+那是不是xby每次暗示乱p的时候把她当初联动的话或者说的自己妄想的话都拿出来就不叫凭空了啊
+
+
+最主 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这次杂谈也就前天的事，我正好看到周报就提了一下，xby可是提着不沾边的yy来恶心人的我可不到那种程度
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">而且我也没发散到她现在有男友的程度说到底也只是表示有男友后直播的态度。。。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">你硬要说是xby那我也无话可说好吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 13943#       发表于 2020-6-22 15:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47904354&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-22 15:20</a>
+
+这次杂谈也就前天的事，我正好看到周报就提了一下，xby可是提着不沾边的yy来恶心人的我可不到那种 ...</blockquote>
+我管你有没有话说，没话说更好，反正整绿帽梗来一个骂一个，为了m楼的环境我自己让步一次了，这之后我可就不管了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13944#       发表于 2020-6-22 15:26
+
+
+
+
+绿帽发散除非有明确证据否则被喷了不是活该么，还有啥好说的，真当v综的那种xjb发散的风气是什么好玩意么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当年冒菜在楼里xjb发散不是也挨了不少喷，到最后就算搞创作写文都拉不回声望，最后他自知无趣才出去开了个绿帽楼，事到如今就别硬撑了8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，新饭盒
+
+
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 13945#       发表于 2020-6-22 15:31
+
+
+
+
+她的性病朋友和她关系还挺好的？下雨不方便还开车来接她，奇怪的交际圈
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13946#       发表于 2020-6-22 15:40
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-22 15:42 编辑 
+
+按照这两天的发推转推更新饭盒时间来看,每天下午工作三个钟头的样子?<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+当然,一切都可能只是她有时间想发就发的情况<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 13947#       发表于 2020-6-22 15:42
+
+
+
+
+至少应该就是去东京了，今天日本好像就那下了暴雨
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 13948#       发表于 2020-6-22 15:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">查了一下B站日本分部最近的酒店是1丁目14番地的一家超级酒店，或者是旁边的一家服务公寓，不过那一片刚好是住宿区，酒店还挺多，她会去哪一家呢
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 13949#       发表于 2020-6-22 15:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">要不直接去分部大门口蹲着算了，我出发了.jpg
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 13950#       发表于 2020-6-22 15:45
+
+
+
+
+当然是去网咖了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 13951#       发表于 2020-6-22 15:45
+
+
+
+
+可是她不就住东京1ldk
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 13952#       发表于 2020-6-22 15:47
+
+
+
+
+阿b本部门口蹲人其实也蛮难的，戴口罩的女的有点多（
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 13953#       发表于 2020-6-22 15:50
+
+
+
+
+看到你们玩出发梗我突然想起你楼以前不是有个想请人特她的侦探哥么
+
+好像真出发了? 不知现在是不是在风俗店流连忘返把麻忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 13954#       发表于 2020-6-22 15:51
+
+
+
+
+侦探哥的确是肉身去日本了，不知道现在是不是还在那就是了
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 13955#       发表于 2020-6-22 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47904671&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-22 15:45</a>
+
+当然是去网咖了</blockquote>
+那附近还真没什么网咖。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 13956#       发表于 2020-6-22 15:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47904678&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-22 15:45</a>
+
+可是她不就住东京1ldk</blockquote>
+也是，还是去大门口蹲着好了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 13957#       发表于 2020-6-22 15:54
+
+
+
+
+楼友全体出动 一人守一个地方好了
+
+
+
+
+
+                                  
