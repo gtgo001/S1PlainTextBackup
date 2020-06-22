@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-13 00:08** 
+> ## **本文件最后更新于2020-06-22 10:06** 
 
 
 
@@ -1631,7 +1631,7 @@ srds，确实比糊创好看，听说河苟到了后边 也是不容易
 
 
 
-WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_P0qdq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+WOC，有排面！<img src="https://www.acfun.cn/a/ac15865447" id="aimg_Oll5O" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -2387,4 +2387,473 @@ https://bbs.hupu.com/35942300.html?is_reflow=1&amp;cid=50869621&amp;bddid=602184
 
 
 
-                                             
+
+
+-----
+
+####  温和派缪斯林  
+##### 126#       发表于 2020-6-13 20:38
+
+
+
+
+夏之光killing part 3个动作失误俩，就这还3：0<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 127#       发表于 2020-6-13 21:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47792486&amp;ptid=1938520" target="_blank">温和派缪斯林 发表于 2020-6-13 20:38</a>
+
+夏之光killing part 3个动作失误俩，就这还3：0</blockquote>
+而且还没给火箭killing part的机会。
+
+
+
+
+
+
+
+-----
+
+####  amigos  
+##### 128#       发表于 2020-6-13 21:18
+
+
+
+
+果然我坛会有看表演的，我就是去看节目组怎么树新蜂的，101有前传女团后记创始人们，明日之女龙酵母也出来树了。
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 129#       发表于 2020-6-13 22:05
+
+
+
+
+看到一个消息，说这个节目工作人员在r1se超话公开招募评审，而火箭粉丝主动联系，结果他们理都不理。本来我还在想公证处监督的情况下应该不太可能作弊，现在看来他们是从源头动手，合法作弊。
+
+
+
+
+
+
+
+-----
+
+####  guguchook  
+##### 130#       发表于 2020-6-14 01:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47611345&amp;ptid=1938520" target="_blank">回旋球忧郁 发表于 2020-5-30 09:56</a>
+
+盘尼西林不丢人吗，以后在圈里还怎么混，还是他们已经破罐破摔了？想当偶像想疯了？ ...</blockquote>
+他们在乐队的夏天已经丢够了，不在意的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  偶像101  
+##### 131#       发表于 2020-6-14 01:30
+
+
+
+
+sis有句讲句每次的舞台都还挺有意思，想到下次就要淘汰掉了实在可惜
+
+还是要归结到这狗屁赛制上，3人组合还给拿掉一个那还怎么表演，特别是拿掉的还是最强的洪一诺，没了这个令和中森明菜，那还看个屁的sis啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  温和派缪斯林  
+##### 132#       发表于 2020-6-14 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47793696&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-6-13 22:05</a>
+
+看到一个消息，说这个节目工作人员在r1se超话公开招募评审，而火箭粉丝主动联系，结果他们理都不理。本来我 ...</blockquote>
+基操，一看不完全公布名单就知道会搞这个了
+
+
+隔壁唱作人人家完全公布姓名和社交帐号的
+
+
+
+
+
+
+
+-----
+
+####  温和派缪斯林  
+##### 133#       发表于 2020-6-14 02:12
+
+
+
+
+果然如此啊，R1SE谁碰谁死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[https://www.douban.com/group/topic/180099685/](https://www.douban.com/group/topic/180099685/)
+
+
+
+
+
+
+
+-----
+
+####  油执的岚人  
+##### 134#       发表于 2020-6-14 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47783934&amp;ptid=1938520" target="_blank">lucifer5455 发表于 2020-6-12 22:58</a>
+
+杨超越唱歌烂不假，但很明显，你对杨超越的假音有误解。
+
+无修音源在呢，2分50秒张紫宁破音了，李紫婷跟在 ...</blockquote>
+我只是说杨超越修的明显一开口就听出来了都不行吗，无修源我也有，我就是这期观众，炒团直播的时候半个团没声音是事实啊，壶团唱的相对比较稳也事实，我听到刘也唱劈了一点。直播就是炒团被吊打，别阴谋论了吧？
+
+
+<img src="https://img.saraba1st.com/forum/202006/14/105437tre71sdbvgv6lecy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200614105220.jpg</strong> (51.28 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-14 10:54 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 135#       发表于 2020-6-14 10:58
+
+
+
+<blockquote>油执的岚人 发表于 2020-6-14 10:56
+我只是说杨超越修的明显一开口就听出来了都不行吗，无修源我也有，我就是这期观众，炒团直播的时候半个团 ...</blockquote>
+能放到网上吗？
+
+
+
+
+
+
+
+-----
+
+####  油执的岚人  
+##### 136#       发表于 2020-6-14 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798259&amp;ptid=1938520" target="_blank">本异末同 发表于 2020-6-14 10:58</a>
+
+能放到网上吗？</blockquote>
+不能，我不愿意承担泄露信息的后果
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 137#       发表于 2020-6-19 19:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47798274&amp;ptid=1938520" target="_blank">油执的岚人 发表于 2020-6-14 10:59</a>
+
+不能，我不愿意承担泄露信息的后果</blockquote>
+今天总算完整的看了一下糊团上次的表演，从头到尾总共也没几句正儿八经的唱，说啥稳不稳的。
+
+
+
+
+
+
+
+-----
+
+####  偶像101  
+##### 138#       发表于 2020-6-19 20:27
+
+
+
+
+火少这期的舞台谁给排的，观感真不行<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+河这期的舞台算是中规中矩，不如上期好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+壶果然是亲儿子，不管表演的什么东西对手是谁，结果都是赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  天門  
+##### 139#         楼主| 发表于 2020-6-21 04:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47867527&amp;ptid=1938520" target="_blank">偶像101 发表于 2020-6-19 20:27</a>
+
+火少这期的舞台谁给排的，观感真不行
+
+
+河这期的舞台算是中规中矩，不如上期好了</blockquote>
+河这期塞的东西太多...
+
+
+
+
+
+
+
+-----
+
+####  imba419  
+##### 140#       发表于 2020-6-21 08:48
+
+
+
+
+选个逍遥叹杵那干唱也好 这歌实在不行
+
+
+
+
+
+
+
+-----
+
+####  本异末同  
+##### 141#       发表于 2020-6-21 09:09
+
+
+
+[https://www.douban.com/group/topic/181135982/](https://www.douban.com/group/topic/181135982/)
+
+龙丹妮真不是人。
+
+
+
+
+
+
+
+-----
+
+####  BISSBISS  
+##### 142#       发表于 2020-6-21 09:28
+
+
+
+<blockquote>本异末同 发表于 2020-6-19 19:39
+今天总算完整的看了一下糊团上次的表演，从头到尾总共也没几句正儿八经的唱，说啥稳不稳的。 ...</blockquote>
+你听他说啥呢，壶团白天练完美滋滋睡觉，炒熬大夜，毕竟亲儿子。wj也不怕再出个高以翔事件，这群畜生。
+
+
+
+
+
+
+
+-----
+
+####  飞奔的蜗牛  
+##### 143#       发表于 2020-6-21 18:02
+
+
+
+
+河这期舞蹈可以，歌我觉得唱的太弱了，要是有点力度就好了
+
+
+
+
+
+
+
+-----
+
+####  吉尔伽美什娜  
+##### 144#       发表于 2020-6-21 22:09
+
+
+
+
+不过sis离开了确实好可惜，我还挺喜欢他们上一期的表演
+
+
+
+
+
+
+
+-----
+
+####  cryinggrape  
+##### 145#       发表于 2020-6-21 23:08
+
+
+
+
+这个破节目直接把冠军给壶儿子，别人都退赛就完事了，还有什么比的必要吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  15362948428  
+##### 146#       发表于 2020-6-22 00:06
+
+
+
+
+我还挺喜欢这期开头他们两个团聚在一起聊天的环节，火少感觉感情还挺好的，粉丝天天撕的那么厉害
+
+
+
+
+
+
+
+-----
+
+####  taozijiaozhu  
+##### 147#       发表于 2020-6-22 08:37
+
+
+
+
+到底多少人吃了**包啊… 火少半夜下班  壶团就不是么？ 各家站姐都有啊  另外还有什么因为有火少所以才有赞助的… 拜托 这里又不是豆瓣  这节目一开始招商是打算全男团的 摇也谈了没谈拢 也比韩国那个团战节目ppt出的早  潮音战记那么糊都有百事赞助 雪碧赞助个音乐综艺怎么就不行了？火少行程安排不合理有疫情的关系 也可能有公司的安排不合理 可是为啥非要嘲讽壶？ 就大家欣赏舞台不好么？ 这节目本身请那么多团 
+
+
+
+
+
+
+
+-----
+
+####  taozijiaozhu  
+##### 148#       发表于 2020-6-22 08:42
+
+
+
+
+这节目本身请那么多团 （虽然我本身只是其中一个人的粉丝）我很多都能get到亮点  甚至真心实意的会去安利 不是挺好的么 大家为啥很多阴谋论啊 另外不知道你们看没看过创造营2019的500g 真的 除非直播 否则不要以播出效果来评价  镜头剪辑修音 后期能做的事太多了 看的开心就完事了呗  
+
+
+
+
+
+
+
+-----
+
+####  kina  
+##### 149#       发表于 2020-6-22 09:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898844&amp;ptid=1938520" target="_blank">taozijiaozhu 发表于 2020-6-22 08:42</a>
+这节目本身请那么多团 （虽然我本身只是其中一个人的粉丝）我很多都能get到亮点  甚至真心实意的会去安利  ...</blockquote>
+壶妹你好，你们壶每天从几点练到几点不是只有你们壶妹知道
+
+
+
+
+
+
+
+-----
+
+####  kina  
+##### 150#       发表于 2020-6-22 09:27
+
+
+
+
+大团综都招不到商的团就别说什么抗商务了
+
+
+
+
+
+
+
+-----
+
+####  cryinggrape  
+##### 151#       发表于 2020-6-22 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898812&amp;ptid=1938520" target="_blank">taozijiaozhu 发表于 2020-6-22 08:37</a>
+
+到底多少人吃了**包啊… 火少半夜下班  壶团就不是么？ 各家站姐都有啊  另外还有什么因为有火少所以才有赞 ...</blockquote>
+火少都快解散了，被拉到无锡两个月天天黑白颠倒的录个冠军早就内定的破节目，录到有人病重不能参加自己的告别典礼，而且大概率解散后还要继续录这节目，不好意思火少粉做不到精准点艹。
+
+
+
+
+
+                                            

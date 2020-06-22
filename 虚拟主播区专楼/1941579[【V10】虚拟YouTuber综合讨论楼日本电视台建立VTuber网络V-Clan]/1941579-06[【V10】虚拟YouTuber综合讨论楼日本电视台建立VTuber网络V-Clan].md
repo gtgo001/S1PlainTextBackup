@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 08:08** 
+> ## **本文件最后更新于2020-06-22 10:10** 
 
 
 
@@ -8749,10 +8749,11 @@ syl,
 
 
 
- 参与人数 5战斗力 +2
+ 参与人数 6战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| anchen2511| + 1|好评加鹅|
 | argaregeasr| + 1|好评加鹅|
 | AloissiolA| + 1|好评加鹅|
 | star_platinum| + 1|回血|
@@ -12481,10 +12482,11 @@ syl,
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 中野六小龄童| + 1|能译成日文发推吗|
 | 金魚佬| + 1|方向错了|
 | Sanguine| + 1|思路广|
 | mmbk| + 1|好！|
@@ -16121,11 +16123,1137 @@ syl，杏里面不少liver的直播内容并不提高性的满足，非得说杏
 
 
 
+ 本帖最后由 某穆克拉 于 2020-6-22 08:12 编辑 
 
 救命，我看了三四页什么东西。还是来点隔壁的天龙repo吧，龙宝明天重大告知，今天ark服密码06273D，什么意思不用我说了吧。小天使一开始准备的旅行卷（coco生日礼物）是2000円的，coco说要是男人的话就去挂他了。稍微火星一点的：昨晚小天使播ark聊到胖次话题，aki推荐了一套水手服风格的内衣，coco表示很赞。
 
+再在这补张小天使的日程表好了。
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/081216p17nlflg71fn5nnn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbDWrbdUMAAP2lR.jpg</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 08:12 上传
 
 
 
 
-                       
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 8289#       发表于 2020-6-22 08:08
+
+
+
+ 本帖最后由 面具13 于 2020-6-22 08:11 编辑 
+
+bsyl，紫宝上次和大脸猫联动完又摸了两三天吗？不过盐水一起发早安推了，应该后面直播频率会正常了吧。凑阿夸**社内小妹妹，罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">需要罚她多耐久直播几次。
+
+
+coco准备冲击sc2000w的殿堂了吗<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8290#       发表于 2020-6-22 08:10
+
+
+
+
+哦，还有个wtm新闻，羊歌调整到每周一次，周一jst：6.30播出
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8291#       发表于 2020-6-22 08:11
+
+
+
+
+好像从来没有见过紫宝中之人相关，是完全素人吗？
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8292#       发表于 2020-6-22 08:12
+
+
+
+
+t台底边小主播，以前满嘴屎尿屁
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 8293#       发表于 2020-6-22 08:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898602&amp;ptid=1941579" target="_blank">crito 发表于 2020-6-22 08:11</a>
+
+好像从来没有见过紫宝中之人相关，是完全素人吗？</blockquote>
+不是，有前世的，应该是初中就出来混的，以前的声音可爱的不行。应该是くろあ
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| crito| + 1|好评加鹅，我去冲了|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 8294#       发表于 2020-6-22 08:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898587&amp;ptid=1941579" target="_blank">面具13 发表于 2020-6-22 08:08</a>
+
+bsyl，紫宝上次和大脸猫联动完又摸了两三天吗？不过盐水一起发早安推了，应该后面直播频率会正常了吧。凑阿 ...</blockquote>
+基本拿下了吧，我没记错的话28号还是出道半周年纪念日，龙子的钱包还撑的住吗
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8295#       发表于 2020-6-22 08:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">以前隔三岔五还有个くろキャス听，现在有把以前的自己掐死的倾向
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8296#       发表于 2020-6-22 08:16
+
+
+
+
+尾宝这标准的邪推啊，不会有祭丝看他写的长就信了吧
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 8297#       发表于 2020-6-22 08:16
+
+
+
+ 本帖最后由 aele 于 2020-6-22 08:18 编辑 
+
+现在地狱还没到呢，等三四期这一轮新衣服加DDD搞完了，才是新一轮搏杀的开始
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 8298#       发表于 2020-6-22 08:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">回来了，都回来了，晚上夸神开播学习v综了。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8299#       发表于 2020-6-22 08:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898649&amp;ptid=1941579" target="_blank">空虚澄璃色 发表于 2020-6-22 08:16</a>
+
+回来了，都回来了，晚上夸神开播学习v综了。</blockquote>
+明天才开播吧，今天是参加犬山的联动当那个唯一受骗的傻角
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8300#       发表于 2020-6-22 08:22
+
+
+
+
+把夸神看成了鸟神，啊我死了(本意)
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8301#       发表于 2020-6-22 08:22
+
+
+
+
+确定是这周六DDD了啊，挺快的。一周一个的话，下个月四期生完成。
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8302#       发表于 2020-6-22 08:24
+
+
+
+
+应该还是两周一个吧，会提速吗？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8303#       发表于 2020-6-22 08:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898702&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-22 08:24</a>
+
+应该还是两周一个吧，会提速吗？</blockquote>
+虹都打算一周一个了，杏没这储备我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8304#       发表于 2020-6-22 08:30
+
+
+
+
+本来就因为疫情延后了几个月，两周一个的话对四期的后续3D联动影响也很大，缩短成一周一个合理点
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8305#       发表于 2020-6-22 08:31
+
+
+
+
+一周一个不是做不做的到的问题，是有没有必要的问题。话说三期新衣服到现在还没有下文，怎么就不一周一个了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8306#       发表于 2020-6-22 08:35
+
+
+
+
+粽子的衣服提前两天宣布的，龙皇这个是真的话，也就提前4天宣布。三期生新衣服的频率可能就是一周一个。现在木口的重大发表舒服多了，看到了通知成品马上就来，以前至少得等十天半个月
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8307#       发表于 2020-6-22 08:38
+
+
+
+<blockquote>crawarb 发表于 2020-6-22 08:35
+粽子的衣服提前两天宣布的，龙皇这个是真的话，也就提前4天宣布。三期生新衣服的频率可能就是一周一个。现 ...</blockquote>
+拖的时间都让给阿火了，没有余额了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8308#       发表于 2020-6-22 08:38
+
+
+
+
+yyut和高小姐做的这个roki的mv真带感阿，如果高小姐是3d的就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我现在才看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8309#       发表于 2020-6-22 08:51
+
+
+
+
+狐皇什么时候开live啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8310#       发表于 2020-6-22 08:52
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 08:54 编辑 
+
+嗨，你们别说我对我的理论首先都是相信的啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+首先最近apex确实让小肥妹状态回勇不少，很多三四期也都主动来找小肥妹联动了不假，但这不妨碍她想把星这边的通路也打开啊，毕竟上次小肥妹非apex联动感觉都好久前了（去看了下除了小野早稀就是很久之前的星川特化周了，苔苔！就是你拯救了肥妹痴们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要这么算撇掉apex其他人气企划还是没份儿啊。
+
+
+而且之前小肥妹在推上不安，还有各种试图稳固粉群的做法我真的感觉是害怕过气啊，毕竟论《地位》小肥妹确实下降了啊，除非跟着你楼还有日记楼云夏推云歪了。
+
+
+最后，我不算阿叔噶吃，只是之前看阿叔就老觉得他可能会疯，真的疯了感觉挺无奈也挺难受的。顺便之前跟着你楼去瞟了一眼夏色祭和茎 茎 硬 硬 酱的联动感觉确实不错，要是夏色祭拼命往这里特化而不是跟星特化，也许叔就不会走了吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8311#       发表于 2020-6-22 08:53
+
+
+
+
+尾宝还是忙点好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这太闲了都开始车些啥啊，我想知道尾宝你一个礼拜里看肥妹的时间，加起来能有2小时吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8312#       发表于 2020-6-22 08:54
+
+
+
+
+尾宝靠☁️写理论，所谓的空中楼阁？
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8313#       发表于 2020-6-22 08:57
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 08:59 编辑 
+
+不过这里就再补一刀好了
+
+
+不光是第一新巴黎市的拆那，你们夏破仑皇帝第二个忠实的巴黎欧美，也开始有疑似独角兽或者单纯的男人anti对小肥妹联男人发牢骚了
+
+
+看来确实离圣赫勒拿岛不远了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8314#       发表于 2020-6-22 08:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898954&amp;ptid=1941579" target="_blank">cckuku 发表于 2020-6-22 08:53</a>
+尾宝还是忙点好
+这太闲了都开始车些啥啊，我想知道尾宝你一个礼拜里看肥妹的时间，加起来能有2小时 ...</blockquote>
+我说了我是云啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点我从来没否认过
+
+何况我也不闲，昨天这个只是常回v综看看的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8315#       发表于 2020-6-22 09:01
+
+
+
+
+我已经对阿希没有偏见了
+
+我现在只想看到阿希身上新的可能性
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8316#       发表于 2020-6-22 09:02
+
+
+
+
+尾哥的长文核心思想就是一句话，病急乱投医，其实是说得通的。当然实际是不是就是另一回事儿了，反正真相只有希小姐自己知道。<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8317#       发表于 2020-6-22 09:08
+
+
+
+
+还是没有看懂夏哥想转型，和夏哥积极联动粉丝数不到自己十分之一的律可有什么关系，要转型的多着去了，去联动人气远不如自己的来谋求转型，这怎么联系起来的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8318#       发表于 2020-6-22 09:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899122&amp;ptid=1941579" target="_blank">free 发表于 2020-6-22 09:08</a>
+
+还是没有看懂夏哥想转型，和夏哥积极联动粉丝数不到自己十分之一的律可有什么关系，要转型的多着去了，去联 ...</blockquote>
+我倒是觉得马自立有想通过和律可合作加强音乐性这一说。
+
+嘛……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+唱歌剧它不好嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8319#       发表于 2020-6-22 09:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899157&amp;ptid=1941579" target="_blank"> 渡鸦骑士 发表于 2020-6-22 09:11</a> 引用:free 发表于 2020-6-22 09:08 还是没有看懂夏哥想转型，和夏哥积极联动粉丝数不到自己十分之一的律可有什么关系，要转型的多着去了，去联 ... 我倒是觉得马自立有想通过和律可合作加强音乐性这一说。 嘛…… 唱歌剧它不好嘛 </blockquote>
+唱迪士尼要版权，她和律可联动能搞来版权吗？
+
+律可的路子和她的差的远，不把她带歪就不错了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8320#       发表于 2020-6-22 09:20
+
+
+
+
+马自立跟狐皇站队啊，尾宝已经长文论证三四期抱小团阿希融入不进去，如果不想变成心心那样的自闭人那抱紧fbk跟随她的一举一动不是唯一的选择么，大家庭大家庭
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8321#       发表于 2020-6-22 09:22
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gg0t02eyjqj207q08r75u.jpg" referrerpolicy="no-referrer">
+
+
+开始二周目了，你背离了群众，凛姨！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8322#       发表于 2020-6-22 09:23
+
+
+
+
+心心自闭是物理原因又不是人际关系。。就目前来看，holo还不存在某位至少表面上融不进大家庭的情况。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8323#       发表于 2020-6-22 09:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899298&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-22 09:22</a>
+开始二周目了，你背离了群众，凛姨！</blockquote>
+难不成她真的认为这游戏好吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 8324#       发表于 2020-6-22 09:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 但是狐皇自己就有好几个小团体啊，再看看以前抱大腿的狼妈现在天天自己小圈子联动连solo同接都上升到皇线了
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 8325#       发表于 2020-6-22 09:27
+
+
+
+
+你说夏哥找个比自己体量小10倍的搞BGCP营业，换谁都不会信啊。
+
+你说夏哥想通过律可混进唱见圈子还算说得通
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8326#       发表于 2020-6-22 09:29
+
+
+
+
+Tlou1凛姨播的时候5000同接，tlou2凛姨首播buff只有2000同接，我觉得观众已经做出了自己的选择，是好事
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8327#       发表于 2020-6-22 09:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899341&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 09:24</a>
+
+难不成她真的认为这游戏好吗
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+昨天的通关感想是“辛くて美しい”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8328#       发表于 2020-6-22 09:32
+
+
+
+
+没事，夏哥还喜欢兽娘2呢
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8329#       发表于 2020-6-22 09:36
+
+
+
+
+唱见这个词已经木大木大了
+
+混进唱见圈有什么用？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8330#       发表于 2020-6-22 09:37
+
+
+
+
+凛姐 播p5啊 这个屎游戏 我通关了 就不想打开了 p5不香吗 又好看 又好玩
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8331#       发表于 2020-6-22 09:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899457&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-22 09:32</a>
+没事，夏哥还喜欢兽娘2呢</blockquote>
+好补，这可是你楼对希梁木第一号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8332#       发表于 2020-6-22 09:38
+
+
+
+
+混进唱见圈可以和那些昔日大物一起fps啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8333#       发表于 2020-6-22 09:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899341&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 09:24</a>
+难不成她真的认为这游戏好吗
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Next-鹅版 v2.2.2 ...</blockquote>
+Re2她都能rta几十次，这人玩游戏更注重游戏性吧。作为龙姐打tlou2一周目的时候稍微看了会，高尔夫之后就没怎么对剧情发表评论了。
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8334#       发表于 2020-6-22 09:40
+
+
+
+ 本帖最后由 1678334706 于 2020-6-22 09:45 编辑 
+
+啊 游戏性 美末2的游戏性 emmmmm <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 我们还是讨论剧情吧 说到底 美末2的游戏性 就是一代换个皮 动作表现方面确实有进步 但是美末2这种经典的让人恶心的反击qte式的动作有 配上潜行暗杀 和匮乏的敌人种类还有武器和装备选择 只能大人现在是0202年了
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8335#       发表于 2020-6-22 09:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> P5不是不让播吗？
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8336#       发表于 2020-6-22 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899593&amp;ptid=1941579" target="_blank">激光2000 发表于 2020-6-22 09:42</a>
+
+P5不是不让播吗？</blockquote>
+能播啊 昨天小秦都播爆了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8337#       发表于 2020-6-22 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899598&amp;ptid=1941579" target="_blank">1678334706 发表于 2020-6-22 09:43</a>
+
+能播啊 昨天小秦都播爆了</blockquote>
+那是国内<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8338#       发表于 2020-6-22 09:43
+
+
+
+
+404不能播吧我记得，法外之地当然无所谓。
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8339#       发表于 2020-6-22 09:44
+
+
+
+
+对我来说喜欢兽娘2比3d联动律可狠多了，不过后面她也没怎么多提<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8340#       发表于 2020-6-22 09:45
+
+
+
+
+3D活动还是赶早结了比较好，也不好保证开了两个月后不会被新冠压力下再停两个月。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8341#       发表于 2020-6-22 09:45
+
+
+
+
+P5能播，但必须得用share且不能播像是终章这些关键篇好像
+
+P4G也是除了终章随便播
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8342#       发表于 2020-6-22 09:57
+
+
+
+
+播jrpg就是对路人粉丝说再见,不然牛姨也不会空有高同接结果粉丝群体固化涨粉慢了
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 8343#       发表于 2020-6-22 09:58
+
+
+
+ 本帖最后由 cockmore 于 2020-6-22 10:03 编辑 
+
+说到底还是阿希“芯”不够强。
+
+记得之前她杂谈里说过自己最羡慕的是狗子那样“芯”很强的主播，有自己的主见，不随波逐流。
+
+那次我感觉是说了心里话了。至于夏色律可到底是又一次随波逐流，还是她这一次真正坚持做自己喜欢的事，只能等时间检验了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8344#       发表于 2020-6-22 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899770&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-22 09:57</a>
+
+播jrpg就是对路人粉丝说再见,不然牛姨也不会空有高同接结果粉丝群体固化涨粉慢了 ...</blockquote>
+这不是arpg吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8345#       发表于 2020-6-22 10:04
+
+
+
+
+阿希这年纪经历只学了点“技巧”没有“内容”，爆火期还好保护期一过木口这个直播频率哪有时间给她积累，不过她闲下来就训粉自搜开本体也不像有脑子进修的样子
+
+
+
+
+
+
+
+-----
+
+####  狗狗狗狗狗  
+##### 8346#       发表于 2020-6-22 10:05
+
+
+
+ 本帖最后由 狗狗狗狗狗 于 2020-6-22 10:06 编辑 
+
+草，没想到祭丝日记楼还有另一个视奸的，我以为只有我在翻着乐呢
+
+昨天睡觉前看了夏色祭吧，不知道是v8也混的乐子人跑过来还是真祭丝发好多贴在那说律可爬<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8347#       发表于 2020-6-22 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么感觉我又在推姨了，我不是姨性恋啊
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8348#       发表于 2020-6-22 10:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899812&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 10:00</a>
+这不是arpg吗</blockquote>
+P5是jrpg啊，p5s才是arpg
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8349#       发表于 2020-6-22 10:07
+
+
+
+<blockquote>star_platinum 发表于 2020-6-22 10:00
+这不是arpg吗</blockquote>
+我是在说没有管人玩p5或者xb这种备受玩家好评的游戏的原因啊
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 8350#       发表于 2020-6-22 10:07
+
+
+
+
+又车了一晚上虚无的话题。一二期除了大亏谁斗得过新人？也就狐狸夏哥基盘大有人愿意车。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8351#       发表于 2020-6-22 10:09
+
+
+
+
+二期除了匿名希望都还能打一打，也就是客群固化SC方面吃点亏
+
+
+
+
+
+                     
