@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 02:10** 
+> ## **本文件最后更新于2020-06-22 08:08** 
 
 
 
@@ -12481,10 +12481,12 @@ syl,
 
 
 
- 参与人数 2战斗力 +2
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 金魚佬| + 1|方向错了|
+| Sanguine| + 1|思路广|
 | mmbk| + 1|好！|
 | SuntoryNomu| + 1|思路广|
 
@@ -13602,8 +13604,14 @@ fgnb<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referr
 
 
 
+ 本帖最后由 猫島かおる 于 2020-6-22 02:22 编辑 
 
 有人问メリッサ最近推的v有谁，她说先说和萝卜子打apex、听星街唱saga，最后顺便提到了剑持的archive。后来有人问，nijisanji里呢，想了半天出来个sister claire。
+
+sly 粉圈换代可能和以前教坊一代新人换旧人，最近的流量明星差不多吧。这应该观众的原因更大吧，观众都是喜新厌旧的。当热点满满朝着新人移动，你还没有把握住新人创造的热点或者整出新的活来，自己就会慢慢沉寂下去。在这样的行业压力还是蛮大的，整不出活、抓不住爆点就意味着完蛋，陷入迷茫我觉得还是可以理解的。
+
+
+zsly 说到这里我突然想起来以前杏一期二期一轮一轮3D的时候，虽然大家喜闻乐见，但是也有不少人说杏是虚拟窑子、虚拟キャバクラ，杏女人就是キャバ嬢，杏星出来的时候也是揶揄都是牛郎。从这点来看确实某些人不基德了。我为我曾经说当时只是把杏当玩具并无恶意、不能理解杏人现在清算道歉，希望下次开战大家放我一马。
 
 
 
@@ -13643,4 +13651,2481 @@ fgnb<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referr
 
 
 
-                           
+
+
+-----
+
+####  rzrbtk  
+##### 8171#       发表于 2020-6-22 02:10
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-22 02:23 编辑 
+
+好🐎羡慕杏，在杏又有数字又有sc，运营看着也不是大傻逼，同事为了大家庭不管是真是假也好，会经常贴贴不会内斗，粉丝里感觉萌萌人也多。
+
+不就爽死。
+
+郡道.....不想郡道走人......明明赢了喷喷我的心为什么还会这么疼。
+
+干
+
+今晚的直播真带劲，之后郡道溜了我就可以一拍大腿说”啊！她那晚就是在说现在这事啊！“，还你妈断了后路说应该不会去别的公司了。
+
+以后我能不能来楼里repo不知名t台女主播啊？
+
+哈哈
+
+
+
+我不知道风是在哪一个方向吹——我是在梦中，甜美是梦里的光辉。
+
+我不知道风是在哪一个方向吹——我是在梦中，她的负心，我的伤悲。
+
+我不知道风是在哪一个方向吹——我是在梦中，在梦的悲哀里心碎！
+
+我不知道风是在哪一个方向吹——我是在梦中，黯淡是梦里的光辉。
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑漆漆的漆漆| + 1|欢乐多|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8172#       发表于 2020-6-22 02:16
+
+
+
+
+有啥好羡慕的，郡道SC虹女顶流不说，她现在这个自由人设在杏混不出来的。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8173#       发表于 2020-6-22 02:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897656&amp;ptid=1941579" target="_blank">猫島かおる 发表于 2020-6-22 02:08</a>
+
+有人问メリッサ最近推的v有谁，她说先说和萝卜子打apex、听星街唱saga，最后顺便提到了剑持的archive。后来 ...</blockquote>
+下巴被开除虹籍了.......?
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 8174#       发表于 2020-6-22 02:17
+
+
+
+
+至少把运营看着不是大傻逼这句收回去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在好几件事的炎上都还没烤完呢。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8175#       发表于 2020-6-22 02:18
+
+
+
+
+说到女王蜂你虹应该拿点资源去换她的友人A to Z来给你虹做做外快，她几首歌的制作质量完爆虹杏本社100条马路。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8176#       发表于 2020-6-22 02:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897246&amp;ptid=1941579" target="_blank"> UnhappyTails 发表于 2020-6-22 01:10</a>  本帖最后由 UnhappyTails 于 2020-6-22 01:19 编辑   再黑屁一句好了，作为我常年顺劈祭丝的补偿  其实你楼祭丝没必要杞忧小肥妹喜欢上优十  我一直在说的就是，作为一个田舍妹 小年轻，小肥妹对自己常年处于制度不自信当中。曾经的一期生辉煌成为过眼云烟的今天，小肥妹对于过气早已风声鹤唳。  比起你们佐藤希更害怕自己粉群的冷却，自己的直播彻底过气，自己这双vtb的水晶鞋突然 </blockquote>
+你这套小肥妹是在战略性盲动的理论比小肥妹喜欢优十还TM鬼扯
+
+战略性盲动盲动到去联星
+比的不说，就这半个月光打枪啥企划没搞的样子，说这女人是在战略性盲动我是不信的
+
+来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8177#       发表于 2020-6-22 02:23
+
+
+
+
+谱皇是歌系救星，海苔男的数字都是硬蹭杏来的，就是桃姨真的要被挤出第一页了。不过节奏榜也好，hiyoko，playboard也罢，反正也全是虹杏的数字，除了虚拟冷战真的没什么可斗虫的了。
+
+syl，郡道老师还得在虹才能发挥出实力啊，真去了杏不一定合适。你看苔宝都把老师当管人bg之光要找男朋友来抄作业了，搁杏就算是表面看着跟老师路线差不多的傻希也拉了胯。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 8178#       发表于 2020-6-22 02:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897693&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 02:16</a>
+
+下巴被开除虹籍了.......?</blockquote>
+没有啊，她顺带提了下刀也而已，之后就继续一直说星街和sage jihen了。可能这就是别人问nijisanji里喜欢谁吧
+
+
+
+
+
+
+
+-----
+
+####  2L模仿47哥  
+##### 8179#       发表于 2020-6-22 02:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897703&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 02:18</a>
+
+说到女王蜂你虹应该拿点资源去换她的友人A to Z来给你虹做做外快，她几首歌的制作质量完爆虹杏本社100条马 ...</blockquote>
+三小只里那位做mix啥的挺可以的
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8180#       发表于 2020-6-22 02:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897719&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 02:23</a>
+
+你这套小肥妹是在战略性盲动的理论比小肥妹喜欢优十还TM鬼扯
+
+
+战略性盲动盲动到去联星</blockquote>
+她就是不知道播什么才能再火一次啊
+
+
+apex上个月的收入也不是没看见，所以打枪男人，男人打枪就是这么来的啊
+
+
+小肥妹现在只想重新火起来，联星险棋我也说了，但是在没有其他联动对象的情况下真的是无可奈何的。毕竟你也看见了，大型联动常常不带小肥妹已经不是什么新鲜事了，这种情况下联动男人也只不过是她试图突破的一个尝试罢了
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 8181#       发表于 2020-6-22 02:33
+
+
+
+
+又看了看mio半仙给小肥妹算的卦，人家早就看穿了
+
+综合运：恶魔 The Devil，正位
+
+
+凶~大凶
+
+
+明明知道这事不能做还是会做下去，容易屈服于欲望
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小肥妹就是典型的梦女子，花田脑，感情丰富又率性而为，她只会做自己感兴趣的事的
+
+VTB对她来说，就是梦一般的职业，每天都生活在梦里一样，快乐就完事了，想要约束她那基本做不到
+
+她那脑瓜哪想的到发展方向规划什么的，她最多只能想到搞搞中之人账号，看着吧，将来真人账号也肯定是到处男女联动的
+
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8182#       发表于 2020-6-22 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897777&amp;ptid=1941579" target="_blank"> UnhappyTails 发表于 2020-6-22 02:33</a> 引用:ひびき 发表于 2020-6-22 02:23 你这套小肥妹是在战略性盲动的理论比小肥妹喜欢优十还TM鬼扯  战略性盲动盲动到去联星 她就是不知道播什么才能再火一次啊  apex上个月的收入也不是没看见，所以打枪男人，男人打枪就是这么来的啊  小肥妹现在只想重新火起来，联星险棋我也说了，但是在没有其他联动对象的情况下真的是无可奈何的。毕竟你也看见了，大型联动常常不带小肥妹已经不是什么新鲜事了 </blockquote>
+艹，什么叫重新火起来，她之前有比现在火过吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8183#       发表于 2020-6-22 02:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近PPT和COCO两个人的视频差不多都有1/5的时间拿来讲对方。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8184#       发表于 2020-6-22 02:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897777&amp;ptid=1941579" target="_blank"> UnhappyTails 发表于 2020-6-22 02:33</a> 引用:ひびき 发表于 2020-6-22 02:23 你这套小肥妹是在战略性盲动的理论比小肥妹喜欢优十还TM鬼扯  战略性盲动盲动到去联星 她就是不知道播什么才能再火一次啊  apex上个月的收入也不是没看见，所以打枪男人，男人打枪就是这么来的啊  小肥妹现在只想重新火起来，联星险棋我也说了，但是在没有其他联动对象的情况下真的是无可奈何的。毕竟你也看见了，大型联动常常不带小肥妹已经不是什么新鲜事了 </blockquote>
+奥卡姆剃刀，如果说小肥妹和星联动是率性而为的概率是八成，那尾宝这套理论成立的概率不到一成
+
+剩下一成是被忽悠了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 被狐皇、运营、优十还是谁忽悠都算来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  kangkangsama  
+##### 8185#       发表于 2020-6-22 02:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897670&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-22 02:10</a>
+
+好🐎羡慕杏，在杏又有数字又有sc，运营看着也不是大傻逼，同事为了大家庭不管是真是假也好，会经常贴贴不会 ...</blockquote>
+mmr不会喜欢郡道的
+
+郡道也不喜欢mmr粉丝
+
+
+现在在虹挺好的
+
+你看看郡道的一些事
+
+我们觉得郡道没什么大不了的随便拿出来一条放在hololiver上都是能讨论几页的爆炸
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8186#       发表于 2020-6-22 02:55
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 03:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897785&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 02:35</a>
+
+艹，什么叫重新火起来，她之前有比现在火过吗</blockquote>
+你认真的吗？小肥妹曾经是你杏的sc头牌，当时杏主基地的批站的专武，还是杏最大的3d大招。
+
+
+社外联动社内联动不断，跟谁都能参上一脚，难道你以为pxj说的跟佐藤希看管是假的？
+
+
+当时的杏，谁能组出27jk？谁能让葵皇这样的顶流多看两眼？谁能tie上pph？当时谁陪着亲方在中国出席其他成员羡慕都羡慕不来地线下活动？
+
+什么叫大奶奶？她聊什么p站就会有新梗，做个什么企划玩个什么游戏p和油管两头收钱，跟谁联个动就会有二创，这就叫大奶奶！你别说梗和二创是p站的，油管垃圾企划的sc也是中国祭丝翻墙过去打的，效果最重要，何况3d的时候海外打钱可也不少。
+
+
+三期生爆火彻底改变整个格局前，小肥妹就是毫无疑问的杏箱第三人，即便那时的杏箱和现在的杏箱完全不是一码事，那也是第三人。其实三期生火起来以后一段时间小肥妹也还是蛮稳的，彻底拉胯要到四期生进来了。
+
+
+现在呢？涉外联动基本冷掉，社内联动几乎不找她，snp梗玩烂，杏从批站抽身，后辈在后面穷追不舍，小肥妹怎么可能不对3d盼星星盼月亮？如果这前后对比不叫过气，那我不知道什么叫过气了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">响锅你这祭丝做的怎么糊里糊涂的
+
+
+小肥妹为啥要搞精神分裂的公主人设，今年开始为什么骤然增大训粉力度，为什么歌回越来越少，为什么要练枪？因为她的过气让她怀疑人生了啊，本来的sc头牌过了一年不到变成中游往下了，同接都要垫底了。
+
+
+她不知道什么做错了，于是她想转换风格试试，但是又没人教她怎么转，于是就开始盲动了嘛。
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 8187#       发表于 2020-6-22 02:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897852&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 02:55</a>
+
+你认真的吗？小肥妹曾经是你杏的sc头牌，当时杏主基地的批站的专武，还是杏最大的3d大招。
+
+
+社外联动社内 ...</blockquote>
+不觉得马自立有搞过什么人设，她从始至终就是扮演的她自己，她老是提公主也是因为她真的想当公主<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 8188#       发表于 2020-6-22 03:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897852&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 02:55</a>
+
+你认真的吗？小肥妹曾经是你杏的sc头牌，当时杏主基地的批站的专武，还是杏最大的3d大招。
+
+
+社外联动社内 ...</blockquote>
+最后一行指正一下，不是没人教。
+
+
+苔苔教了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8189#       发表于 2020-6-22 03:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">但是璐娜还是一直爱跟马自立玩啊
+
+
+话说最近璐娜半夜弹琴居然有5-6000人看了，刚开始才不到3000
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 8190#       发表于 2020-6-22 03:03
+
+
+
+
+马自立人气滑落某种程度上或许可以用“历史的车轮滚滚向前”来解释<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8191#       发表于 2020-6-22 03:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897874&amp;ptid=1941579" target="_blank">qesto 发表于 2020-6-22 02:59</a>
+
+不觉得马自立有搞过什么人设，她从始至终就是扮演的她自己，她老是提公主也是因为她真的想当公主 ...</blockquote>
+扮自己也叫人设，这种人设自由度还挺高，要是免费的人设一开始就是扮自己这把炎上可能都没那么大了
+
+
+佐藤希一个前n生小主播t台老混子，确实有她率性的一面，但是直播不看效果只图开心我是绝对不信的
+
+
+她想当公主的契机肯定是她有这种想法，但是佐藤希会公然开始一个围绕公主人设的campaign我认为很大程度上是归功于她对自己直播路线的动摇
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8192#       发表于 2020-6-22 03:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897852&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 02:55</a>
+
+你认真的吗？小肥妹曾经是你杏的sc头牌，当时杏主基地的批站的专武，还是杏最大的3d大招。
+
+
+社外联动社内 ...</blockquote>
+杏箱第三人尾宝这就乱讲了，三期之前阿希的同接可以回顾一下
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8193#       发表于 2020-6-22 03:06
+
+
+
+
+以职场社畜身份带入阿希视角去看的话，尾宝这个理论是有一定说服力的。响老哥你说阿希以前没有现在火肯定不对，大蛋糕越做越大的情况下，火不火不能看绝对值的订阅，要看你在同行中的地位，诸如排名啊露出度啊之类的，无论这个大蛋糕是整个业界还是单杏一个箱，说阿希再迟钝，这半年没有危机感，不慌，也是不太可能的。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8194#       发表于 2020-6-22 03:07
+
+
+
+
+要不是也在V综呆了2星期，咱估计得以为UnhappyTails是祭丝。。。。。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8195#       发表于 2020-6-22 03:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897889&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 03:04</a>
+
+杏箱第三人尾宝这就乱讲了，三期之前阿希的同接可以回顾一下</blockquote>
+同接又不是阿希强项，有影响力有sc还需要什么吗？还是说你觉得摸余红心486能跟当时的夏色祭掰掰手腕？
+
+
+前俩那是真打不过，但是后面也打不过她啊。红心路子窄，粉群小众，摸余我也不说了，486早期也是呵呵呵。
+
+
+难道你要拉巧可老师或者利香或者特级拉胯期小学生来干一干？
+
+
+当然你算上空妈那肯定算第四人，但这种就是强行杠了
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 8196#       发表于 2020-6-22 03:07
+
+
+
+
+所以说，为什么现在社内没人找她联动啊（除了狐皇）？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8197#       发表于 2020-6-22 03:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897900&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 03:07</a>
+
+要不是也在V综呆了2星期，咱估计得以为UnhappyTails是祭丝。。。。。</blockquote>
+你要相信自己的判断！我一定是的！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8198#       发表于 2020-6-22 03:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897903&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-22 03:07</a>
+
+所以说，为什么现在社内没人找她联动啊（除了狐皇）？
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 ...</blockquote>
+8知道，我毕竟也是云佐藤希观众，这个你要问真的在同时追推tc和油管的屑屑和响他们
+
+
+之前听说是嗜睡怕耽误事儿，但是解禁以后也很少
+
+
+而且似乎在联动顺位上在一期生里比亚绮和红心都要低，只比半退球王高
+
+
+我还是觉得是炎上暴论玩多了导致为了规避争议直接选择跟她不联动
+
+
+不过如果有更直接的解释和证据那我立刻收回
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 8199#       发表于 2020-6-22 03:11
+
+
+
+
+道什么歉啊。
+holo是虚拟风俗店没错，可管人乃至偶像业界本身就是风俗业。你和你的推是实打实的商品和消费者的关系。把人本身当成消费品就是风俗本质。杏只是迎合了嫖客的口味，做得更露骨些罢了。戏子和**本身是没有任何差别的。管人也都是骗子。
+天皇火了不久就放弃了自己嘴里的v的可能性说要当偶像。
+
+还没认识到自己只是个嫖客，纯度还是不够。
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 8200#       发表于 2020-6-22 03:11
+
+
+
+
+阿希sc行是阿希中国进出之后的事情了，那至少也是19年年中那会儿了。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8201#       发表于 2020-6-22 03:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897902&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:07</a>
+
+同接又不是阿希强项，有影响力有sc还需要什么吗？还是说你觉得摸余红心486能跟当时的夏色祭掰掰手腕？
+
+
+ ...</blockquote>
+你别说，利香那时候还真比阿希强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8202#       发表于 2020-6-22 03:12
+
+
+
+ 本帖最后由 ひびき 于 2020-6-22 03:16 编辑 
+
+尾宝这理论脑瘫的地方太多我都不知道怎么吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+是当年她在社内兴许是能排个第四（巧可asmr被没收前订阅可是很强的），可头顶上还有彩虹那几十号人就忘了？  订阅都快赶上葵皇了&lt;被葵皇高看两眼，尾宝是这意思？
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8203#       发表于 2020-6-22 03:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897903&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-22 03:07</a>
+
+所以说，为什么现在社内没人找她联动啊（除了狐皇）？
+
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">天龙羊彗星玩修罗场
+
+towa天天犯病暂且不说
+
+船长一直都是舔兔粽阿紫，阿夸孤独传说+贴大脸猫
+
+银火就不提了
+
+其他好像一直都有和马自立一起玩吧，其中璐娜相当贴马自立
+
+倒是马自立天天把璐娜弄得跟被人渣玩弄的角色一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+就算撇去这些，还是有4不少期生打枪联动啊
+
+所以不带马自立玩不成立啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8204#       发表于 2020-6-22 03:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897912&amp;ptid=1941579" target="_blank">猫島かおる 发表于 2020-6-22 03:11</a>
+
+阿希sc行是阿希中国进出之后的事情了，那至少也是19年年中那会儿了。</blockquote>
+中国进出之前的杏箱在你楼都不pay有姓名
+
+
+我们现在还会回去观测那时候的杏箱是因为杏后来nb了，当时除了彩菜姐姐他们什么都没有，就是一个普通的不知道几时就要原地爆炸的三流小箱
+
+
+另，某改变杏箱命运的p站投稿是18年的我没记错的话
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 8205#       发表于 2020-6-22 03:14
+
+
+
+
+最近啊希合社内联动也不是完全没有，主要就是和联动打APEX，社内那些整🔥企划几乎就没看到过她。不知道她在忙什么
+可别是忙着打枪吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+或者说。。。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TAS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 8206#       发表于 2020-6-22 03:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">明明是小肥妹因为是乡下出生，跟大城市的同事聊不到一起，呜呜呜，太惨了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8207#       发表于 2020-6-22 03:16
+
+
+
+
+社内小联动还是不少的，大联动来来回回不都是那些人，阿希根本不在那个圈子里，常和她联动的那些不少也不在
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8208#       发表于 2020-6-22 03:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897924&amp;ptid=1941579" target="_blank">Zaphikel 发表于 2020-6-22 03:14</a>
+
+最近啊希合社内联动也不是完全没有，主要就是和联动打APEX，社内那些整🔥企划几乎就没看到过她。不知道她在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">查了下时间，确实有几次大联动是撞车，还有算下来马自立社内联动一直都挺多的
+
+只是多人大联动比较少而已啊
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8209#       发表于 2020-6-22 03:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897930&amp;ptid=1941579" target="_blank">暗心舞踏 发表于 2020-6-22 03:16</a>
+
+社内小联动还是不少的，大联动来来回回不都是那些人，阿希根本不在那个圈子里，常和她联动的也不在 ...</blockquote>
+正常，那几个整活联动基本MIO48肯定是固定班底，然后就是擅长整活的
+
+阿汤哥和MIKO这种
+
+任弹下来之后咱倒是发现486企划能力+MIO妈主持能力组合起来是真强
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 8210#       发表于 2020-6-22 03:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897911&amp;ptid=1941579" target="_blank">cqkxywj 发表于 2020-6-22 03:11</a>
+
+道什么歉啊。
+
+holo是虚拟风俗店没错，可管人乃至偶像业界本身就是风俗业。你和你的推是实打实的商品和消费 ...</blockquote>
+当时视频势冷下去，v综虹如日中天。虽说虹半年也是常有论调，但是拿杏当玩具劈来吹虹内容更优质也算比较多的人的认知了。这和觉得娱乐业和风俗业差不多还是有区别的吧。
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8211#       发表于 2020-6-22 03:19
+
+
+
+
+虽然说阿希2nd的推和tc一直都有一些低落的时候吧，但是最近的倾向和情绪让我觉得很不安，倒不是说她自己本人表现得多不安，只是我模模糊糊总感觉她有点混乱。下个月说每周会有会限，到时候再看吧
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 8212#       发表于 2020-6-22 03:21
+
+
+
+ 本帖最后由 猫島かおる 于 2020-6-22 03:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897922&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:14</a>
+
+中国进出之前的杏箱在你楼都不pay有姓名
+
+
+我们现在还会回去观测那时候的杏箱是因为杏后来nb了，当时除了 ...</blockquote>
+阿希在中国用力营业是19年的事情了，这之前她的sc并不高。营业之后外币sc从之前在杏里平均水准到后来我记得超过60%。
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8213#       发表于 2020-6-22 03:25
+
+
+
+
+尾宝居然还没意识到阿希在p站从一个流量角色变成sc机器是经历了“被迫害”到“重新认识”的一段时间的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8214#       发表于 2020-6-22 03:26
+
+
+
+
+她上个月sc能有她去年sc总额的三分之一还多，加上这个月的估计快赶上去年一半了
+
+
+飘了的可能性比焦虑了盲动大多了
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 8215#       发表于 2020-6-22 03:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897902&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:07</a>
+
+同接又不是阿希强项，有影响力有sc还需要什么吗？还是说你觉得摸余红心486能跟当时的夏色祭掰掰手腕？
+
+
+ ...</blockquote>
+到19年8月为止小肥妹订阅一直被巧可萝卜哈恰玛压着呢，SC的话小肥妹国内的贡献了不少
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8216#       发表于 2020-6-22 03:28
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 03:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897917&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 03:12</a>
+
+尾宝这理论脑瘫的地方太多我都不知道怎么吐槽
+
+是当年她在社内兴许是能排个第四（巧可asmr被没收前订 ...</blockquote>
+你这吐槽也太无力了，巧可一天四五动换来一群不打钱的鬼佬，然后头顶有彩虹跟小肥妹有啥关系，首先你感觉到的是社内氛围的改变，其次是你在社内排名的改变谁整天没事儿盯着社外看你以为v都是虫民吗
+
+
+对了既然你非要争辩本虫民就给你科普一下，夏色祭的sc在去年夏天是长期处于全vjuan前十的，还拿过全vjuan第一，不是杏箱是全vjuan。常年跟她sc掰手腕的基本是亏哥葛叶gbr组长这几路神仙，然后19年年中累计佐藤希是前十（第七）年末是第五（全vjuan）
+
+
+所以三四期飞起来绝对意义上也让佐藤希过气了
+
+上个月就更没劲了，上个月你也知道有抽卡专武，所以这个月小肥妹不是在加大力度打枪吗可是打枪你又不乐意看了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，现在整体通货膨胀下绝对数量多有啥用啊
+
+
+80年代我拿一百块钱，2020年我拿3000块钱，不得了我一个月抵三年我还得美出鼻涕泡是吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8217#       发表于 2020-6-22 03:30
+
+
+
+
+前段时间那个训粉tc真的像飘了吗？如果是在非焦虑情况下做出这种发言，简直就是矫情自饰了。感觉我确实要重新认识一下阿希了……
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8218#       发表于 2020-6-22 03:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897967&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:28</a>
+
+你这吐槽也太无力了，巧可一天四五动换来一群不打钱的鬼佬，然后头顶有彩虹跟小肥妹有啥关系，首先你感觉 ...</blockquote>
+那是整箱金额的增加，又不是她个人金额的减少，这种情况下不更应该抱紧新入场大佬的大腿吗，
+
+
+跑去和比自己更底边的星联动，是因为担心自己赶不上比自己牛逼的，这逻辑尾宝你自己信吗？
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8219#       发表于 2020-6-22 03:34
+
+
+
+
+尾宝还在强调sc。。。阿希现在愁的是sc的话早就apex开箱拉满了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8220#       发表于 2020-6-22 03:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897979&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 03:34</a>
+
+尾宝还在强调sc。。。阿希现在愁的是sc的话早就apex开箱拉满了</blockquote>
+我不是强调sc，我是强调小肥妹本来最强的sc也不能打了，上个月专武前被三四期干得一泻千里
+
+
+我不知道这有什么好费解的，死宅薄情，喜新厌旧，小肥妹焦虑不是正常现象嘛？
+
+
+焦虑了以后就想像心心一样整个大活翻盘很难理解吗？公主人设弄不上，社内圈子混不进，转头找狐皇鼓励而且运营和liver本人都敞开联动的杏星难道是什么不可理喻的事情吗？
+
+
+究竟哪里难懂，我好迷啊
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8221#       发表于 2020-6-22 03:42
+
+
+
+
+还有数据膨胀是v圈金额增加，别说的好像阿希手里的日元贬值了一样好吗来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8222#       发表于 2020-6-22 03:44
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 03:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897978&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 03:34</a>
+
+那是整箱金额的增加，又不是她个人金额的减少，这种情况下不更应该抱紧新入场大佬的大腿吗，
+
+
+跑去和比自 ...</blockquote>
+我寻思你咋一根筋啊这事儿我们都车了好多次了
+
+
+人家新人用得着你吗？用不着你干嘛让你舔啊。
+
+
+不是小肥妹一个旧人，全部的资源影响力都在已经是弃子的中国市场，还容易搞出下三路营业妨害，人家三四期的新人大奶奶干嘛要给你赏饭？你愿意舔人家也要愿意伸脚啊。
+
+
+我推拉你希是因为进箱整活的时候跟你希拜了码头，mrr点你希是因为她自己也是泥菩萨过河。剩下的就像扶她厨说的，人家自己营业的好好的，干嘛跟你希贴，欠她钱吗？
+
+
+她去舔星是因为现在只有星能舔，除了星以外给她舔的苔苔在cd，所以只能舔星，而且最近是舔星这个路线的初期作成阶段，需要频繁一点找梗和默契，所以频率比较高，仅此而已啊
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8223#       发表于 2020-6-22 03:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897996&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 03:42</a>
+
+还有数据膨胀是v圈金额增加，别说的好像阿希手里的日元贬值了一样好吗</blockquote>
+这就偷换概念，你要说日元不贬值那我还觉得虹中坚以上都活得挺开心的大家都是富婆呢
+
+
+这就没劲了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8224#       发表于 2020-6-22 03:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897989&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:38</a>
+
+我不是强调sc，我是强调小肥妹本来最强的sc也不能打了，上个月专武前被三四期干得一泻千里
+
+
+我不知道这有 ...</blockquote>
+哪有什么整个大活翻盘。。和男人唱歌，和男人打枪，和男人分手厨房，和男人厨二病企划这些哪个算整大活，就是杏男人容易舔到就去舔罢了
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8225#       发表于 2020-6-22 03:48
+
+
+
+
+搁这儿逼逼半天谁都说服不了谁。坚持用一套能说服自己的理论尝试说服别人有啥意义
+
+还不如喷个痛快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8226#       发表于 2020-6-22 03:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897978&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 03:34</a>
+
+那是整箱金额的增加，又不是她个人金额的减少，这种情况下不更应该抱紧新入场大佬的大腿吗，
+
+
+跑去和比自 ...</blockquote>
+响哥你总是盲目地认为，只要小肥妹按照你想的路线走一定比现在好
+
+
+可是你想的路线都不现实啊
+
+
+唱歌剧有版权吗？舔三四期让你舔吗？清楚化老粉答应吗小肥妹能营业好吗？
+
+
+可能佐藤希舔星确实触了你的逆鳞，我长文里说了情有可原，但是你非要说她舔星是因为神经病那我觉得也有失公允
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8227#       发表于 2020-6-22 03:49
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-22 03:48
+搁这儿逼逼半天谁都说服不了谁。坚持用一套能说服自己的理论尝试说服别人有啥意义
+
+还不如喷个痛快 ...</blockquote>
+这不就是SG变成现在这样的原因
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8228#       发表于 2020-6-22 03:49
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 03:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898005&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 03:47</a>
+
+哪有什么整个大活翻盘。。和男人唱歌，和男人打枪，和男人分手厨房，和男人厨二病企划这些哪个算整大活， ...</blockquote>
+这还不大，你杏崭新的男女营业，哪怕不谈恋爱都是突破性的了，这不光靠吟唱斗气都杀了好些个信者了
+
+
+要放在平时小肥妹肯定是不会去赌这个突破性是好的的，但是现阶段我看她没有这个余裕
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8229#       发表于 2020-6-22 03:50
+
+
+
+
+阿希如果很佛系的话，虽然同事都数据膨胀了，自己数据好歹没降应该不至于焦虑。
+但各方面看来阿希不是挺要强的嘛
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8230#       发表于 2020-6-22 03:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897999&amp;ptid=1941579" target="_blank"> UnhappyTails 发表于 2020-6-22 03:44</a> 引用:ひびき 发表于 2020-6-22 03:34 那是整箱金额的增加，又不是她个人金额的减少，这种情况下不更应该抱紧新入场大佬的大腿吗，  跑去和比自 ... 我寻思你咋一根筋啊这事儿我们都车了好多次了  人家新人用得着你吗？用不着你干嘛让你舔啊。  不是小肥妹一个旧人，全部的资源影响力都在已经是弃子的中国市场，还容易搞出下三路营业妨害，人家三四期的新人大奶奶干嘛要给你赏饭？你愿意舔人家也要愿 </blockquote>
+她跟龙皇吃饭的时候龙皇提出过holohouse邀约，这诚意还不够？ 
+
+要说暴言龙皇也没少暴言啊，麻药梗不严重多了？ 三四期哪有你说的那么不沾下三路啊你到底看不看龙皇船皇直播啊？来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8231#       发表于 2020-6-22 03:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898013&amp;ptid=1941579" target="_blank">暗心舞踏 发表于 2020-6-22 03:50</a>
+
+阿希如果很佛系的话，虽然同事都数据膨胀了，自己数据好歹没降应该不至于焦虑。
+
+但各方面看来阿希不是挺要 ...</blockquote>
+bingo，亚绮会焦虑吗会盲动吗会挣扎吗？八会，她只要不更差就无所谓
+
+
+利香会在乎自己的v号怎么样嘛？也不会
+
+
+可是小肥妹没结婚，也没当过n站前三排，更只有21岁
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8232#       发表于 2020-6-22 03:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898011&amp;ptid=1941579" target="_blank">辉耀还差3800 发表于 2020-6-22 03:49</a>
+
+这不就是SG变成现在这样的原因</blockquote>
+sg现在咋样了，不挺好。都说什么从前有菜花现在没菜花，我觉得说这话的都是脑瘫，比的原理之流有个屁的才华，一样是比谁的时间多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8233#       发表于 2020-6-22 03:53
+
+
+
+
+按我的个人印象船长的下三路程度和频次是不比夏色祭少的，佐藤希可能另说
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8234#       发表于 2020-6-22 03:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898012&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:49</a>
+
+这还不大，你杏崭新的男女营业，哪怕不谈恋爱都是突破性的了，这不光靠吟唱斗气都杀了好些个信者了
+
+
+要放 ...</blockquote>
+有27jk在前，换个人舔就是崭新的？别说崭新在是木口内部营业嗷，对大部分阿希粉来说杏星就是外部箱的。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8235#       发表于 2020-6-22 03:55
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 04:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898018&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 03:51</a>
+
+她跟龙皇吃饭的时候龙皇提出过holohouse邀约，这诚意还不够？ 
+
+
+要说暴言龙皇也没少暴言啊，麻药梗不严重 ...</blockquote>
+所以船皇龙皇好歹还是帮忙的啊，但是船皇有自己的营业对象啊三期辣么团结，她只是偶尔找小肥妹玩玩啊，解禁第一次联动就是跟小肥妹跳舞很可以了够意思了啊
+
+
+我推也确实念着情分拉你希了，但holohouse目前这个人员组成你觉得小肥妹能去参一脚吗？（之后有机会佐藤希绝对不会放过的）
+
+
+剩下的三四期生哪个能跟她正常联动？润润联了几次去哪了？兔皇又联了几次？阿火跟小肥妹联动你能想象吗？天哥呢？羊呢？
+
+你还是没懂，现在情况是三四期除了mrr都有自己的营业对象，而且数钱正香，而小肥妹是没有固定的营业对象而且想要探索新的营业路线，这种情况下无论是和船皇联动还是龙皇联动都是单方面的被奶，所以得要三四期乐意才行。
+
+
+杏星就不同了，他们本来就拉胯，律可3d连1w同接都无巴不得跟小肥妹各取所需
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 8236#       发表于 2020-6-22 03:56
+
+
+
+
+与其说内容消费快不如说内容相对而言能产出的太少了
+
+
+大家都是有一点带着高强度复读梗的焦虑心态去打钱的
+
+
+结论：staff不帮人动脑子，yhm自己也难做
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8237#       发表于 2020-6-22 03:56
+
+
+
+<blockquote>kanonsisya 发表于 2020-6-22 03:52
+sg现在咋样了，不挺好。都说什么从前有菜花现在没菜花，我觉得说这话的都是脑瘫，比的原理之流有个屁的才 ...</blockquote>
+刀2的趋势，尤其是国内，和V圈的趋势还是不一样的，不一样的圈子氛围不同嘛。虽然体量也不太一样吧
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8238#       发表于 2020-6-22 03:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898028&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 03:55</a>
+
+有27jk在前，换个人舔就是崭新的？别说崭新在是木口内部营业嗷，对大部分阿希粉来说杏星就是外部箱的。 ...</blockquote>
+27jk又是舔了？阿叔都说社筑无所谓
+
+
+何况现在社筑不是不给联动了嘛
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8239#       发表于 2020-6-22 04:01
+
+
+
+
+一个人对事业有焦虑，第一肯定是先把直播频率提一提，其次是变更直播企划，第三是跟牛逼人物搞好关系
+
+
+然后尾宝认为一个人对事业有焦虑所以去和比自己底边的联动，十天七次<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+nm说她舔不到live对所以去舔星比这靠谱多了来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 8240#       发表于 2020-6-22 04:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897941&amp;ptid=1941579" target="_blank">猫島かおる 发表于 2020-6-22 03:18</a>
+ 当时视频势冷下去，v综虹如日中天。虽说虹半年也是常有论调，但是拿杏当玩具劈来吹虹内容更优质也算比较 ...</blockquote>
+当时社交传播有一定的美化滤镜，你回忆一下当时的虹在干嘛
+天皇谈低俗话题爆火，直播亚文化实录flash游戏
+一二期玩了几个月老烂梗，搞大家庭团建，爱丽丝在养gachi
+彩虹唐突爆了一大堆奇奇怪怪的兵，gamers和seeds还有区别待遇
+统合
+之后的管人皮都以正常人审美为主，也基本没什么大事了就只有几个人出道炎上出道不久炎上还有就直接没出道的。
+
+内容产出，基本都是讨论人的，无非就是那几个flash游戏。5ch80%的讨论还是juan出了什么事。虹人当时炎上一波哈哥食杀四天王，实际上背后斗虫天天盯着食杀四天王。
+
+这些东西你回忆去想想也就那样。算个几把内容产出，被社交脑控了而已。当时虹屠龙之后的空气就是那样罢了。
+
+你觉得杏是虚拟风俗只是因为她当时更愿意卖得狠一点，虹当时本身就是虚拟风俗没什么区别。还不是拿mix糊的一匹的翻唱来**耳朵当时还感动得呜呜呜。像是风俗小姐告诉嫖客自己家里穷也不想卖的嫖客也会加戏自我感动。
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cqkxywj  
+##### 8241#       发表于 2020-6-22 04:02
+
+
+
+ 本帖最后由 cqkxywj 于 2020-6-22 04:05 编辑 
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8242#       发表于 2020-6-22 04:02
+
+
+
+
+可这两者不矛盾啊……
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8243#       发表于 2020-6-22 04:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898036&amp;ptid=1941579" target="_blank">辉耀还差3800 发表于 2020-6-22 03:56</a>
+
+刀2的趋势，尤其是国内，和V圈的趋势还是不一样的，不一样的圈子氛围不同嘛。虽然体量也不太一样吧 ...</blockquote>
+反正sg从我刚入圈还是9P大战的时候到现在我是没觉得有特别大变化，9p那会儿也是天天互喷的。现在纯粹因为退圈了才不去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8244#       发表于 2020-6-22 04:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898051&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 04:01</a>
+一个人对事业有焦虑，第一肯定是先把直播频率提一提，其次是变更直播企划，第三是跟牛逼人物搞好关系</blockquote>
+你摸着良心说阿希有这么机灵吗。。。你这说的应该是阿夸这种类型的。。。
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8245#       发表于 2020-6-22 04:03
+
+
+
+
+尾宝这理论我打个比方
+
+一个人焦虑自己钱赚的比同事少，所以去扶贫<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8246#       发表于 2020-6-22 04:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898051&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 04:01</a>
+
+一个人对事业有焦虑，第一肯定是先把直播频率提一提，其次是变更直播企划，第三是跟牛逼人物搞好关系</blockquote>
+首先焦虑会提升直播频率是你发明的定理吗，变更直播企划小肥妹最近变得太多了楼里都成新闻了
+
+
+然后我不就是说她想寻求崭新的营业路线同时nm舔不到live吗。这个理解能力也太诡异了
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8247#       发表于 2020-6-22 04:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898038&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 03:57</a>
+
+27jk又是舔了？阿叔都说社筑无所谓
+
+
+何况现在社筑不是不给联动了嘛</blockquote>
+阿希老舔狗了，给虹男人打红sc让别人在手游里抽自己，就算地位上差不多但态度上可太舔了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8248#       发表于 2020-6-22 04:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898064&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 04:04</a>
+
+阿希老舔狗了，给虹男人打红sc让别人在手游里抽自己，就算地位上差不多但态度上可太舔了 ...</blockquote>
+那是性格问题好吧，而且要是佐藤希就这么舔杏星阿叔能被气退坑？
+
+
+难受，阿叔多好一人
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8249#       发表于 2020-6-22 04:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898060&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 04:03</a>
+尾宝这理论我打个比方
+
+一个人焦虑自己钱赚的比同事少，所以去扶贫</blockquote>
+这么说，一个人焦虑自己的收入少，然后又被禁止进行任何投资，所以去贫困县扶贫改换自己的公众形象，同时看看投在贫困县的钱能不能高回报
+
+
+
+
+
+
+
+-----
+
+####  qesto  
+##### 8250#       发表于 2020-6-22 04:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898059&amp;ptid=1941579" target="_blank">暗心舞踏 发表于 2020-6-22 04:03</a>
+
+你摸着良心说阿希有这么机灵吗。。。你这说的应该是阿夸这种类型的。。。 ...</blockquote>
+别的不说这第三条，龙皇超新星出道，搞早安可可的时候，马自立可是最速贴上去还上节目的啊
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8251#       发表于 2020-6-22 04:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898066&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 04:05</a>
+
+那是性格问题好吧，而且要是佐藤希就这么舔杏星阿叔能被气退坑？
+
+
+难受，阿叔多好一人 ...</blockquote>
+杏星更容易舔啊，还有狐皇带着，自然加大力度，这能算什么整个大活翻盘
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8252#       发表于 2020-6-22 04:12
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-22 04:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898073&amp;ptid=1941579" target="_blank">qesto 发表于 2020-6-22 04:08</a>
+别的不说这第三条，龙皇超新星出道，搞早安可可的时候，马自立可是最速贴上去还上节目的啊 ...</blockquote>
+但是现在呢？有什么能让人将她和龙皇持续挂上钩的梗吗？
+抱过大腿但没抱紧，还是行动利用率的问题，而且也很难判断是有抱大腿的意识还是一时兴起
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8253#       发表于 2020-6-22 04:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898074&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 04:09</a>
+杏星更容易舔啊，还有狐皇带着，自然加大力度，这能算什么整个大活翻盘 ...</blockquote>
+我说整大活翻盘的意思是从阿希角度来说
+
+从我们角度来说我们当然知道这种“大活”杀噶吃很见效吸新粉堪忧
+
+但小肥妹想改换形象嘛，肯定是拉个阵型往前一a
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8254#       发表于 2020-6-22 04:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898072&amp;ptid=1941579" target="_blank"> UnhappyTails 发表于 2020-6-22 04:08</a> 引用:ひびき 发表于 2020-6-22 04:03 尾宝这理论我打个比方  一个人焦虑自己钱赚的比同事少，所以去扶贫 这么说，一个人焦虑自己的收入少，然后又被禁止进行任何投资，所以去贫困县扶贫改换自己的公众形象，同时看看投在贫困县的钱能不能高回报 </blockquote>
+她和星联动的时候那里改变形象了，还不是呼吸脸<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+另外对星投资就算成了也是星收钱又不是她收钱
+
+
+尾宝别挣扎了，和星联动是因为事业心的可能性无限趋近于零来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8255#       发表于 2020-6-22 04:19
+
+
+
+ 本帖最后由 UnhappyTails 于 2020-6-22 04:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898083&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-22 04:15</a>
+
+她和星联动的时候那里改变形象了，还不是呼吸脸
+
+
+另外对星投资就算成了也是星收钱又不是她收钱</blockquote>
+
+嘛嘛，我也不是一定要说服你，只是看到阿叔走了心里难受写了我自己的感觉罢了
+
+
+反正杏星这里上不去小肥妹必然一计不成又生一计，不过到时候你又可以推说她随性
+
+
+反正我们两个都觉得小肥妹是在瞎忙活，只是你觉得她脑袋里啥都没在想，阿叔觉得她在想男人，而我觉得她只是怕过气就是了
+
+
+反正在小肥妹很蠢这事儿上我们达成了共识
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8256#       发表于 2020-6-22 04:19
+
+
+
+
+比赛开始前：
+
+尾宝长文，一个觉得有道理的祭丝，两个觉得没道理的祭丝
+
+比赛结束后：
+
+尾宝长文，一个觉得有道理的祭丝，两个觉得没道理的祭丝
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  辉耀还差3800  
+##### 8257#       发表于 2020-6-22 04:20
+
+
+
+
+和星联动这个事儿我说给浸淫饭圈多年的我老婆听的时候，她一口咬定肯定是公司指定安排，不以阿希本人意愿而转移
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8258#       发表于 2020-6-22 04:26
+
+
+
+
+5555，我都不敢和我老婆说v卷的事儿，怕被骂傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8259#       发表于 2020-6-22 04:39
+
+
+
+
+尾巴哥拿手好活不就是理论里掺水吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你说傻希没有因为后来者的压力而焦虑，那是不可能的。但是说因为焦虑所以剑走偏锋，这个就发生偏差了。没有实证只是个看起来很像样的说法。
+
+包括像什么大联动不带傻希是因为傻希下三路营业形象不好，这种就是抓住响老哥的痛点往里掺水了，那不是像模像样的。
+
+
+
+不如回顾一下傻希自己说的。
+
+不过说到苔宝，苔宝自己永远只播有数字的却跟傻希说播你想播的就好。跟星川建议增加个人直播，却没有这么建议傻希。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我是祭丝我也有梁木了。
+
+虽然没有证据证明苔宝是联星赞同派，但是她自己都是天天晒男朋友的类型<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">有丶不基德
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8260#       发表于 2020-6-22 04:43
+
+
+
+
+我怎么感觉我一个从来不看阿希直播的也被当成祭丝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 8261#       发表于 2020-6-22 04:49
+
+
+
+
+你楼祭丝那股怨妇感也不是一天两天了，apex游戏更新削弱个英雄都能拿来哭一波惨的，习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 8262#       发表于 2020-6-22 04:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898117&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-22 04:43</a>
+
+我怎么感觉我一个从来不看阿希直播的也被当成祭丝了你楼祭丝哀嚎声音过大了 ...</blockquote>
+那只能说你比较有情调想和尾宝搞基了，我不是祭丝阿希相关文超过三行字都懒得看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8263#       发表于 2020-6-22 04:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898131&amp;ptid=1941579" target="_blank">kanonsisya 发表于 2020-6-22 04:53</a>
+那只能说你比较有情调想和尾宝搞基了，我不是祭丝阿希相关文超过三行字都懒得看 ...</blockquote>
+我喜欢欣赏阿希和祭丝的‘第一世界问题’<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 8264#       发表于 2020-6-22 05:07
+
+
+
+
+尾巴哥是真的不行，一条理论走死太极端了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8265#       发表于 2020-6-22 05:52
+
+
+
+
+你们聊了一宿啥啊，不睡觉的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl，若能等到一弦3D的时候，我就把头像换成Skull
+
+
+
+
+
+
+
+-----
+
+####  蛋炒蜂窝煤  
+##### 8266#       发表于 2020-6-22 05:57
+
+
+
+ 本帖最后由 蛋炒蜂窝煤 于 2020-6-22 07:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898054&amp;ptid=1941579" target="_blank">cqkxywj 发表于 2020-6-22 04:02</a>
+
+当时社交传播有一定的美化滤镜，你回忆一下当时的虹在干嘛
+
+天皇谈低俗话题爆火，直播亚文化实录flash游戏 ...</blockquote>
+你在说啥啊，上面什么低俗话题猎奇电影话题，玩梗，团建，没有性暗示的rp势，暴兵，这些内容你确定就是你下面说的虚拟风俗吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+还有对直播势要求内容产出是不是有点为难了点，不如先去确定下黑人抬棺算是内容产出吗？虽然给社区注入了活力但是只图一乐意义不明到底算不算产出还可以吵起来呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且真的要产出也是有的，把联动跟团建发扬光大就很明显引领了风潮，obs艺让立绘产生互动的效果
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8267#       发表于 2020-6-22 06:04
+
+
+
+
+淦，一弦你又24点开台，我要anti了（
+
+
+嘛开玩笑的，不过今天晚七点他在404开纪念回，九点在B站开纪念回，八点还有投稿
+
+
+
+
+
+
+
+-----
+
+####  sadddfgh  
+##### 8268#       发表于 2020-6-22 06:09
+
+
+
+
+律可这个就是炒作啊，没夏哥和疯掉的祭丝们这么卖力的表演，能有几个人去看星的3D回啊
+
+而且正好快3D回的时候爆出律可的黑料又炒了一波热度
+
+估计不少疯掉的祭丝都是演员<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8269#       发表于 2020-6-22 06:12
+
+
+
+
+说到底阿希这么喜欢舔到底是演的还是真心想舔
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 8270#       发表于 2020-6-22 06:26
+
+
+
+ 本帖最后由 y78348877 于 2020-6-22 06:27 编辑 
+
+一个人如果无时不刻都在展现舔的特征，那他就算是装的，也是真的想舔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8271#       发表于 2020-6-22 06:50
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-22 06:52 编辑 
+
+尾宝就在这瞎扯淡呢，阿希和其他杏女联动少是因为她的联动都被星，狐皇和露娜占了。3Dlive星街直接就来捧场了，别说的夏吹真有被排挤似的，gamers三四期那边基本你只要愿意找都没问题的。
+至于营业对象，那不就是狐皇和露娜吗，上个月夏吹联动收的钱也不少吧，这两520特地组团来阿b能不知道贴贴赚钱？她就是自己喜欢和星联动，可能是看多了狐皇肆意妄为的生活也想学，但还没狐皇这么浪的资本所以也没狐皇这么直接。
+至于什么vtb周期必然衰弱，holo这今年的新观众这么多，在他们眼里一二期和三四期都是全新vtb，傻紫能喂起来，心心能整活整起来，巧克和aki都被龙皇拉起来了，阿希根本没到你说的病急乱投医阶段。
+让你们承认阿希是zqsg喜欢找杏星玩就这么难么<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8272#       发表于 2020-6-22 06:56
+
+
+
+
+实际上，要我说……就阿b这几年主播的发展而言。专业主播没什么整活的空间的。
+
+出视频，扩大影响力，然后稳定直播稳住粉丝才是正常的发展渠道。
+
+整活阿，创作内容阿都是可遇而不可求的。
+
+所以阿b才对这些vtb这么关心，某种程度上，他们填补了直播区一些节目效果。
+
+做自己就好这话真简单阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 8273#       发表于 2020-6-22 07:14
+
+
+
+
+是时候发散一下五期是不是被前辈们活生生按死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  sadddfgh  
+##### 8274#       发表于 2020-6-22 07:21
+
+
+
+
+观众看到的夏哥的舔无非就是推特营业，油管评论区串门和联动直播
+
+前两者都有可能不是本人发的，至于直播，运营给你开的直播间难不成还敢删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+推特号和油管号在公司手上，直播内容是公司安排的本来就很正常吧，只不过cover一直在给自己强化草台班子的属性，让人不容易往那方面想而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+阿希要是真的舔，为什么不在佐藤希的号上继续舔呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8275#       发表于 2020-6-22 07:27
+
+
+
+
+辛辛苦苦把杏拉扯大的白姨，别说新观众了，一路经历过来的老观众现在也喜欢车她这不好那不好。
+
+带人联动如果短期内没有好效果的绝对都是慈善，别指望回报了
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8276#       发表于 2020-6-22 07:31
+
+
+
+
+尾宝发些云评把祭丝钓出来调情算不算养gachi…<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+木口五期就算了，现在有没有cover以外的企业能整一套只有女性的箱，运营也不用干啥，找些勤快负责出稿又快的女性画师做设定，live2d做得快就行，订阅3w送3D，夏天有泳装3D，新春瓦伦丁白情复活耶稣升天七夕万圣圣诞有限定音声，过生日会出限定音声和带签名明信片的限定套装，会中国进出，运营有不混群的石先生（群里塞个影武者），每个月B限一次。全员3D后会做小动画。稳定半年抽一次卡，半年出一次live2d新衣装，每三个月一次线上3Dlive，每年一次线下3Dsololive，每年一次团体live。liver不用太努力，每月自己频道能直播45小时就行。
+有没有其他能做到以上全部或部分的企业来干碎木口啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8277#       发表于 2020-6-22 07:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898417&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-22 07:31</a>
+
+尾宝发些云评把祭丝钓出来调情算不算养gachi…
+
+
+木口五期就算了，现在有没有cover以外的企业能整一 ...</blockquote>
+你真的不是在吹木口嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|木口有男人，out|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8278#       发表于 2020-6-22 07:34
+
+
+
+
+尾宝w叔gachi说（不是）
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 金魚佬| + 1|叔是希gachi，尾宝是希gachigachi|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 8279#       发表于 2020-6-22 07:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898417&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-22 07:31</a>
+
+尾宝发些云评把祭丝钓出来调情算不算养gachi…
+
+
+木口五期就算了，现在有没有cover以外的企业能整一 ...</blockquote>
+每月45小时就想干碎木口，派点145小时的liver来
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8280#       发表于 2020-6-22 07:35
+
+
+
+
+不过有一说一，即使抛开ofkams狐狸也拉得出笨蛋组这样强力的组合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+攻守自如。狐狸真自由阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8281#       发表于 2020-6-22 07:40
+
+
+
+
+傻紫这人不会真的是那种大亏不打了我也不打了吧
+<img src="https://p.sda1.dev/0/be1373d9249d9c81bf6f776d7fc7b488/IMG_59331BD3185A9754F267A95E4B178DD5.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8282#       发表于 2020-6-22 07:48
+
+
+
+
+尾宝长文痛陈vtb生命周期V综KPI刷版，乐府开台怒批全肯定V圈费拉不堪虚区拿人气第一。
+
+得出共同结论一个V只有等热度跑完才能真正体现ta的价值，两人幸终<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8283#       发表于 2020-6-22 07:50
+
+
+
+
+我说怎么2000昨天这么不活跃，原来是去隔壁夸楼团建了阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8284#       发表于 2020-6-22 07:50
+
+
+
+
+紫宝，你夸姐姐回来打了你也回来吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8285#       发表于 2020-6-22 07:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47898431&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 07:34</a>
+每月45小时就想干碎木口，派点145小时的liver来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+想要145小时的建议去看CN的桃皇
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8286#       发表于 2020-6-22 08:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盐水是真的这句话，我说不倦。
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 8287#       发表于 2020-6-22 08:01
+
+
+
+
+尾宝长文总是合理推论和瞎话混着说。马自立对路线有过怀疑没问题，对自身定位曾经比较混乱也没问题，但她现在跟星玩明显是自己玩得很开心，说是被三四期淹没了病急乱投医，就是钓祭丝出来反驳=让祭丝拿刀扎自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl，杏里面不少liver的直播内容并不提高性的满足，非得说杏是虚拟キャバクラ，怕不是自己会拿正常向的直播冲，然后推己及人觉得别人也这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8288#       发表于 2020-6-22 08:07
+
+
+
+
+救命，我看了三四页什么东西。还是来点隔壁的天龙repo吧，龙宝明天重大告知，今天ark服密码06273D，什么意思不用我说了吧。小天使一开始准备的旅行卷（coco生日礼物）是2000円的，coco说要是男人的话就去挂他了。稍微火星一点的：昨晚小天使播ark聊到胖次话题，aki推荐了一套水手服风格的内衣，coco表示很赞。
+
+
+
+
+
+                       
