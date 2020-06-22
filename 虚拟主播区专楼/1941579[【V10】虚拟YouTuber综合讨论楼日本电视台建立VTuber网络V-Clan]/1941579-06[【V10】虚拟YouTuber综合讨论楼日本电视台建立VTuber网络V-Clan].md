@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 18:09** 
+> ## **本文件最后更新于2020-06-22 20:11** 
 
 
 
@@ -19243,6 +19243,25 @@ VIP席でしたVictory handめっちゃ近かった……Smiling face with halo
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -20225,10 +20244,11 @@ TLOU2      □
 
 
 
- 参与人数 5战斗力 +6
+ 参与人数 6战斗力 +7
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr| + 1|欢乐多|
 | yuandi0120| + 2|v不要啊|
 | UnhappyTails| + 1|太棒了，连我都感觉到不适XD|
 | 包之沐白| + 1|饶了观众吧|
@@ -24783,10 +24803,11 @@ holomoment是B站字幕组运营的</blockquote>
 
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| argaregeasr|-1||
 | AloissiolA|-1||
 
 
@@ -28509,4 +28530,1666 @@ syl，不是本土烧怎么就没用了<img src="https://static.saraba1st.com/im
 
 
 
-  
+
+
+-----
+
+####  forzen  
+##### 8924#       发表于 2020-6-22 18:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47906959&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-22 18:08</a>
+
+萝卜子也拿出不常见的游戏了，
+
+木口这一个月不会都是在找这类游戏的授权，现在终于找到了吧 ...</blockquote>
+不过萝卜这个是不是之前狗子玩过的那个。。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8925#       发表于 2020-6-22 18:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47906987&amp;ptid=1941579" target="_blank">forzen 发表于 2020-6-22 18:09</a>
+
+不过萝卜这个是不是之前狗子玩过的那个。。</blockquote>
+我没见过，应该是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8926#       发表于 2020-6-22 18:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可是木口 这边烧起来还是有用的
+
+就等烧进保护协会系列群了
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8927#       发表于 2020-6-22 18:16
+
+
+
+感谢来源（https://twitter.com/SS_774_）inui夏服指甲油也是蓝色来着...
+先替大家说了，河豚恶心<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">">！
+
+<img src="https://img.saraba1st.com/forum/202006/22/181405har5rdsixhisdq8z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (226.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 18:14 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/181405hc3rgallu8clclc9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (6.22 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 18:14 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/181406d53z6z2856g55vud.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (7.56 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 18:14 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/181406y6m0rhtnrhusj0uf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (87.61 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 18:14 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8928#       发表于 2020-6-22 18:19
+
+
+
+
+株式会社Yostar、3次元モーションキャプチャシステム「VICON」を 導入したモーションキャプチャスタジオを設立。 同スタジオを使用して「楠栞桜３Dお披露目会」の配信及び技術協力を実施。
+
+プレスリリース2020.06.22
+[https://yostar.co.jp/news-detail-145.html](https://yostar.co.jp/news-detail-145.html)
+
+
+株式会社Yostar（本社：東京都千代田区神田練塀町300番 住友不動産秋葉原駅前ビル11階、代表取締役社長：李衡達）は、3次元モーションキャプチャシステム「VICON」を導入したモーションキャプチャスタジオを設立したことを発表いたします。また、2020年6月20日(土)には同モーションキャプチャスタジオにてバーチャルYouTuber「楠栞桜３Dお披露会」の配信及び技術協力を行いました。
+
+
+
+
+■「VICON」を導入したモーションキャプチャスタジオを設立
+
+
+自社で3次元モーションキャプチャシステム「VICON」を導入したモーションキャプチャスタジオを設立しました。従来よりYostarでは各種3Dコンテンツを提供してきましたが、今回のモーションキャプチャスタジオの完成により更にクオリティを向上させた多種多様な3Dコンテンツを自社で提供することができるようになりました。
+
+
+今回導入した「VICON」のカメラシステムは、最先端のフルデジタルモーションキャプチャシステムです。その解析能力は、三次元動作解析を超え、三次元動作計測装置の精度を誇り、より高度なモーショントラッキングを実現します。
+
+
+
+
+■３Dモーションキャプチャシステムを独自開発
+
+
+　モーションキャプチャスタジオの設立に伴い、３Dモーションキャプチャシステムの開発をYostar Picturesにて行いました。このシステムではリアルタイムでの3Dモデルの表情の切り替え機能の他、髪の毛や衣装の物理演算、その他エフェクトの実装などが行え、後述する３D配信等にて高いクオリティのコンテンツを提供することが可能なりました。
+
+
+
+
+■「楠栞桜３Dお披露目会」の配信及び技術協力を実施
+
+
+2020年6月20日(土)に今回設立した３Dモーションキャプチャスタジオ及びシステムを用いてバーチャルYouTuber楠栞桜さんの 「楠栞桜３Dお披露目会」の配信及び技術協力を行いました。本配信は、最大同時接続約3万３千人を記録し、大盛況のうちに終了いたしました。
+
+
+
+＜楠栞桜３Dお披露目会＞
+
+
+
+
+Yostarではこれらのモーションキャプチャスタジオや技術を活用し、これからもより一層、皆様に楽しんでいただける3Dコンテンツを提供できるよう努めてまいります。
+
+
+
+
+■バーチャルYouTuber「楠栞桜（くすのき しお）」
+
+
+麻雀やゲームなどを中心に配信をするバーチャルYouTuber。弊社が運営する『雀魂 -じゃんたま-』のYouTube公式番組「てん×くす」では、同じくバーチャルYouTuberの天開司とともに司会を担当している。
+
+
+
+
+
+権利表記：
+
+©2017-2019 Yostar, Inc. All rights reserved.
+
+
+
+【本リリースの問い合わせ窓口】
+
+株式会社Yostar（ヨースター）　
+
+担当：明瀬（みょうせ）
+
+TEL:03-5846-8348
+
+Add：press@yostar.co.jp
+[http://www.yostar.co.jp/about-yostar.html](http://www.yostar.co.jp/about-yostar.html)
+
+
+之前哪个楼友奶的游戏公司下场改变业界来着？
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8929#       发表于 2020-6-22 18:20
+
+
+
+
+看来不是他社的工作室，是Yostar自己的
+
+<img src="https://img.saraba1st.com/forum/202006/22/181841k36v416vbhwtgz0h.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-22 181809.png</strong> (94.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 18:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8930#       发表于 2020-6-22 18:20
+
+
+
+
+说起来芙宝，35的30w纪念怎么样了？
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8931#       发表于 2020-6-22 18:21
+
+
+
+
+不会搞个箱出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 8932#       发表于 2020-6-22 18:24
+
+
+
+ 本帖最后由 格林卡罗尔 于 2020-6-22 18:27 编辑 
+
+sio这算是yostar的企业势了？明明只是个动捕工作室，不只是提了对sio3D披露回进行了技术支援，最后还单独提了下sio，怎么有种暗示意味
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8933#       发表于 2020-6-22 18:24
+
+
+
+
+众所周知，V界就是虚拟中东，不管你技术多硬，最后都会陷到运营的深渊里
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8934#       发表于 2020-6-22 18:25
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-6-22 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907148&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-22 18:21</a>
+
+不会搞个箱出来吧</blockquote>
+给那群日本麻将手搞皮不是很费劲的，
+
+但是感觉也不是这个方向。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8935#       发表于 2020-6-22 18:26
+
+
+
+
+あーviconね知ってる知ってる
+
+美味しいですよね
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 8936#       发表于 2020-6-22 18:27
+
+
+
+
+都2020了，还有大企业想下场吗，vjuan好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8937#       发表于 2020-6-22 18:27
+
+
+
+
+sio和天开都转了，yostar搞个新upd8吧
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8938#       发表于 2020-6-22 18:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907236&amp;ptid=1941579" target="_blank">winda 发表于 2020-6-22 18:27</a>
+
+sio和天开都转了，yostar搞个新upd8吧</blockquote>
+话说律可3d里好像也有天开司的3d，他背后是哪家阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8939#       发表于 2020-6-22 18:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907221&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-22 18:26</a>
+
+あーviconね知ってる知ってる
+
+美味しいですよね</blockquote>
+VICONよりVICON戦士の数と練度のほうが重要
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8940#       发表于 2020-6-22 18:33
+
+
+
+
+去小肥妹阿B视频评论区看了真把我给弄笑了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8941#       发表于 2020-6-22 18:34
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-22 18:28
+话说律可3d里好像也有天开司的3d，他背后是哪家阿</blockquote>
+他自己搞了bans
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8942#       发表于 2020-6-22 18:35
+
+
+
+
+背后有企业的技术支持和企业势是两回事，只要sio的频道和皮所有权还是100%属于她自己，她就还是纯正的个人势
+
+指望高技术力的企业下场改变业界的，要不要看看GEMS......？
+
+
+省一楼
+[https://www.youtube.com/watch?v=NuclcalzysM](https://www.youtube.com/watch?v=NuclcalzysM)
+
+夜に駆ける / YOASOBI (covered byアザミ)
+
+突然给我推荐了这个，喜欢梅丽莎唱那个风格的可以听听这个，比梅丽莎还能喘
+
+
+
+
+
+
+
+-----
+
+####  BonkoraKKK  
+##### 8943#       发表于 2020-6-22 18:36
+
+
+
+
+就是要做成雀魂日服公式vtb的感觉
+
+vtb业务和yostar自己游戏业务会比较紧密的那种
+
+yostar要搞单独的vtb组织……目前还看不出来
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8944#       发表于 2020-6-22 18:37
+
+
+
+
+以前虹点用的应该都是电磁式的，当时是木口有高贵的y轴，现在已经变光捕的天下了么
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8945#       发表于 2020-6-22 18:38
+
+
+
+
+突然想起來可以和勒夫合作，魔女日本出擊！
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8946#       发表于 2020-6-22 18:38
+
+
+
+
+都这个时候了，大企业（不管多大，什么类型的）下场搞自己的V，说是三得利那种形象大使吉祥物类型的还差不多，再搞个直播箱出来我不觉得有任何意义。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8947#       发表于 2020-6-22 18:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907324&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-22 18:33</a>
+去小肥妹阿B视频评论区看了真把我给弄笑了。</blockquote>
+反串和zqsg共存，gachi和乐子人共舞，确实好笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8948#       发表于 2020-6-22 18:39
+
+
+
+
+能干碎cover谁都可以<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 8949#       发表于 2020-6-22 18:41
+
+
+
+
+干碎干碎，可惜小助理不是日本人，不然能让一心强扶星的yagoo吃个嘴啃泥<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 8950#       发表于 2020-6-22 18:41
+
+
+
+<img src="https://i.loli.net/2020/06/22/Bf3O7JCQywxbKIU.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8951#       发表于 2020-6-22 18:41
+
+
+
+
+yostar这个能做个幕后技术支持也是造福业界，像前upd8那样可以提供一个3d工作室。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8952#       发表于 2020-6-22 18:42
+
+
+
+
+在V圈这块，Yostar明显比GEMS懂行，既然招了不少新人搞这个项目，单纯支持栞桜的3D事业有些奇怪
+
+感觉上会出一个自家的V，自家V再怎么说也比一个非所属的个人势好使
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8953#       发表于 2020-6-22 18:44
+
+
+
+
+可以用在动画制作上，不亏
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8954#       发表于 2020-6-22 18:44
+
+
+
+
+等一个sio食杀小白。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8955#       发表于 2020-6-22 18:45
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-22 18:46 编辑 
+
+黑宝，假面骑士吧被v吧某宝举报了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">身为来打厨这可不能忍啊
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  forzen  
+##### 8956#       发表于 2020-6-22 18:46
+
+
+
+
+问题是出个自家v图啥。。要搞宣传大使的话显然sio比任何新生v都要好用的多。。想割v圈的韭菜？可是悠星有手游能割的韭菜完全不是v圈能比的啊。。。你说他搞这个3d其实是攒经验来反哺加强那些手游项目我觉得还更可信些
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8957#       发表于 2020-6-22 18:47
+
+
+
+
+虽然不清楚现在什么情况，但是之前悠星是个运营公司而不是开发公司。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8958#       发表于 2020-6-22 18:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907493&amp;ptid=1941579" target="_blank">forzen 发表于 2020-6-22 18:46</a>
+
+问题是出个自家v图啥。。要搞宣传大使的话显然sio比任何新生v都要好用的多。。想割v圈的韭菜？可是悠星有手 ...</blockquote>
+比如像地雷社那样推出自家角色的v？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8959#       发表于 2020-6-22 18:48
+
+
+
+
+正好，朝日台也是觉得光靠合作不行搞了pon子
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8960#       发表于 2020-6-22 18:49
+
+
+
+
+叫舰B声优来搞个和pcr差不多的动捕宣传小视频保证爆火好吧，用在这个上比管人赚多了
+
+
+
+
+
+
+
+-----
+
+####  2517君改二  
+##### 8961#       发表于 2020-6-22 18:49
+
+
+
+
+yostar真要vtb进出早就把碧蓝那个radio包装一下就完了，说白了还是觉得这样的关系就好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8962#       发表于 2020-6-22 18:49
+
+
+
+
+看了下录播 狐狸居然真就一直在玩这个单纯夹人游戏啊  这都行么  <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8963#       发表于 2020-6-22 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907540&amp;ptid=1941579" target="_blank">空集 发表于 2020-6-22 18:49</a>
+
+看了下录播 狐狸居然真就一直在玩这个单纯夹人游戏啊  这都行么</blockquote>
+中间可是很稀有的唱歌了呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8964#       发表于 2020-6-22 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47906458&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-22 17:34</a>
+
+呜呜呜，别人只是偶尔按捺不住姨的本性有丶腹黑而已，哪里阴湿了。
+
+再说苔宝的朋友那不是全都是姨吗 ...</blockquote>
+阴湿女仆是阿B玉金组人上人做切片的时候钦定的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这白雪三番两回找小野yygq搞rp（？）次次吃瘪也是很草
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8965#       发表于 2020-6-22 18:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是谁呢？能不能加把火
+
+
+
+
+
+
+Screenshot_2020-06-22-18-51-04-357_com.twitter.android~01.png
+(174.67 KB, 下载次数: 2)
+
+
+
+
+下载附件
+
+
+2020-6-22 18:53 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/185324n4mlka2mzt4z2gg3.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8966#       发表于 2020-6-22 18:55
+
+
+
+
+可以是我最爱的内个吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 8967#       发表于 2020-6-22 18:55
+
+
+
+ 本帖最后由 包之沐白 于 2020-6-22 19:00 编辑 
+
+<img src="https://tva1.sinaimg.cn/large/006mWWM3ly1gg19jzvtx0j31hx2bchdu.jpg" referrerpolicy="no-referrer">
+
+来点长发peko
+[https://t.bilibili.com/403656063160477100](https://t.bilibili.com/403656063160477100)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 5战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stedckk| + 1|好评加鹅|
+| 空集| + 1|好评加鹅|
+| bluebaby| + 1|好评加鹅|
+| 57042711| + 1|另外风味的兔子233|
+| IDIDIDID| + 1|喜欢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8968#       发表于 2020-6-22 18:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907477&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 18:45</a>
+
+黑宝，假面骑士吧被v吧某宝举报了身为来打厨这可不能忍啊
+
+
+—— 来自 Xiaomi Redmi Note 7, Android ...</blockquote>
+哪个傻卵？？？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8969#       发表于 2020-6-22 18:56
+
+
+
+
+楼里祭丝怎么都变质了，还有没有正常祭丝了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8970#       发表于 2020-6-22 18:59
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-22 19:22 编辑 
+
+算了，中立
+
+露露占位。
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/192235zooggj7ggfgz3zgo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbDG4G_UYAE2G9x.jpg</strong> (236.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 19:22 上传
+
+
+
+
+
+
+[https://twitter.com/ftst2020/status/1274741367562842112](https://twitter.com/ftst2020/status/1274741367562842112)
+
+
+
+
+
+
+
+-----
+
+####  狗狗狗狗狗  
+##### 8971#       发表于 2020-6-22 18:59
+
+
+
+
+s1看久基本都yygq起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">历史的进程
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 8972#       发表于 2020-6-22 18:59
+
+
+
+
+你们祭丝想炎上不自己上企图拱火mmr也太阴湿了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8973#       发表于 2020-6-22 19:00
+
+
+
+
+我心态平和
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8974#       发表于 2020-6-22 19:00
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-22 19:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907602&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 18:55</a>
+
+哪个傻卵？？？</blockquote>
+好吧我看了一下假吧，全在喷那个傻逼，假吧吧主被那个傻逼举报没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 8975#       发表于 2020-6-22 19:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">打过多少钱买了多久会员才算祭丝
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8976#       发表于 2020-6-22 19:02
+
+
+
+
+夏哥深夜不确定时间突击会限，消息来自nga转夏哥推特。
+
+
+
+
+
+
+
+-----
+
+####  狗狗狗狗狗  
+##### 8977#       发表于 2020-6-22 19:02
+
+
+
+
+关注了哔哩哔哩夏色祭的官组就算祭丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  57042711  
+##### 8978#       发表于 2020-6-22 19:03
+
+
+
+
+难道上次那个小加加的模型也是他们搞的嘛···可怕的悠星<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+这张星姐的FANART真不错···[https://twitter.com/TacShojoSora ... 61986904069/photo/1](https://twitter.com/TacShojoSora/status/1271059561986904069/photo/1)
+
+
+<img src="https://s1.ax1x.com/2020/06/22/NJW1JS.jpg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| BonkoraKKK| + 1|空气感|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8979#       发表于 2020-6-22 19:03
+
+
+
+
+20:15 虹杏合作，大家多多支持
+[https://youtu.be/Cn7RYMiQEGc](https://youtu.be/Cn7RYMiQEGc)
+
+<img src="https://img.saraba1st.com/forum/202006/22/185951r23g82b5lv2uku5g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Cn7RYMiQEGc-HQ.jpg</strong> (36.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 18:59 上传
+
+
+
+
+
+
+
+明天虹杏合作，大家多多点踩
+[https://youtu.be/RBjZJDP1rQc](https://youtu.be/RBjZJDP1rQc)
+
+<img src="https://img.saraba1st.com/forum/202006/22/190259uatc7v7qyoj6qt3t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>RBjZJDP1rQc-HQ.jpg</strong> (42.18 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 19:02 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8980#       发表于 2020-6-22 19:04
+
+
+
+
+啊
+
+星终于把手伸向🌈了
+
+🌈男的末日到了
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8981#       发表于 2020-6-22 19:04
+
+
+
+
+现在一弦纪念回同接340......
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8982#       发表于 2020-6-22 19:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907691&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-22 19:04</a>
+啊
+
+星终于把手伸向🌈了
+
+🌈男的末日到了</blockquote>
+虹男独角兽激怒。<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8983#       发表于 2020-6-22 19:06
+
+
+
+
+杏男虹女，是我跟不上版本了。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8984#       发表于 2020-6-22 19:06
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/190551haseall338hgn8yn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20200622_190531.JPG</strong> (165.31 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 19:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8985#       发表于 2020-6-22 19:07
+
+
+
+
+话说AU$是什么货币啊......
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8986#       发表于 2020-6-22 19:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907720&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 19:07</a>
+
+话说AU$是什么货币啊......</blockquote>
+澳大利亚的好像是，不过正式简写是A$或者AUD。
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8987#       发表于 2020-6-22 19:09
+
+
+
+
+あのさ...
+
+🦄不是我们杏箱接收点箱遗产后的特产吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8988#       发表于 2020-6-22 19:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907682&amp;ptid=1941579" target="_blank">57042711 发表于 2020-6-22 19:03</a>
+
+难道上次那个小加加的模型也是他们搞的嘛···可怕的悠星
+
+
+这张星姐的FANART真不错···https://t ...</blockquote>
+这张唯一的问题就是，
+
+这个抽烟的星街，真的是星街嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8989#       发表于 2020-6-22 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907699&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 19:04</a>
+
+现在一弦纪念回同接340......</blockquote>
+黑宝你去看假吧就知道了，吧主被那个人举报撤掉了，那人还用着斧子哥的名义到处跳，不会假吧会变成第二个v吧吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 8990#       发表于 2020-6-22 19:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907710&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-22 19:06</a></blockquote>
+全部田角？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8991#       发表于 2020-6-22 19:10
+
+
+
+
+字幕组打了520港币<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8992#       发表于 2020-6-22 19:11
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-22 19:12 编辑 
+
+虹的独角兽们再不行动起来，杏星可能就要把魔爪伸向虹男了啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+杏女和虹女贴贴，不好看
+杏星和虹男贴贴，其实我觉得应该也不会好看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8993#       发表于 2020-6-22 19:12
+
+
+
+
+粪坑影响持续性扩散中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+批注 2020-06-22 191123.png
+(385.06 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-6-22 19:11 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/191151toq29zo7ymczoc6o.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 8994#       发表于 2020-6-22 19:12
+
+
+
+
+你V界有个屁的技术、国内有小企业势想试水搞V、想买A8当宝贝的系统，结果嫌开价太贵就自己搞了一个、发现也没多难、效果比老爱的还好一点
+
+
+DUO这种爆发户当时去别人公司开高薪求着技术人员去自己公司别人都不肯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，别人只能当场给DUO的人教了点技术
+
+
+游戏部的直播3D连嘴巴都调不好，gems这种直播画面就一种套路、还一堆人吹技术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8995#       发表于 2020-6-22 19:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47907754&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 19:10</a>
+
+黑宝你去看假吧就知道了，吧主被那个人举报撤掉了，那人还用着斧子哥的名义到处跳，不会假吧会变成第二个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">套皮主播粉丝冲了皮套粉丝
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 8996#       发表于 2020-6-22 19:14
+
+
+
+
+律可那瓜吧，大概还是烧不起来
+
+牛郎和吃软饭没有实锤，都是小助理微博透露的
+
+翻了翻微博好像都删掉了，贴吧有个手机拍屏幕汇总的帖子也没了
+
+然后说直播漏过line画面里面有和小助理私联什么的也不知道是哪个档
+
+总之小白脸软饭男这条线不太好下手
+
+其他的什么B限态度不认真啊，SC点歌不理什么的日本人更无所谓了
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8997#       发表于 2020-6-22 19:14
+
+
+
+
+那个nt玩意还顶了个时雨妈妈头像<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 8998#       发表于 2020-6-22 19:16
+
+
+
+
+梅宝老nt了，V8都不待见的，大号粉了一年肖战也不知道是不是反串黑。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8999#       发表于 2020-6-22 19:17
+
+
+
+
+草，居然真的炸了假吧，他们是不是疯了！<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9000#       发表于 2020-6-22 19:19
+
+
+
+
+v8乐子人确实是达到了让v污名化的目的
+
+
+
+
+

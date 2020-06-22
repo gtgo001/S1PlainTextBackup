@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 16:03** 
+> ## **本文件最后更新于2020-06-22 20:05** 
 
 
 
@@ -7846,4 +7846,590 @@ syl，新饭盒
 
 
 
-                                  
+
+
+-----
+
+####  kolu33  
+##### 13958#       发表于 2020-6-22 16:05
+
+
+
+
+你们是要干嘛，抓住小羊研究克隆的可能性么
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13959#       发表于 2020-6-22 16:06
+
+
+
+
+抓住了一人一个麻,也好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13960#       发表于 2020-6-22 16:09
+
+
+
+
+“”sister“”计划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 13961#       发表于 2020-6-22 16:12
+
+
+
+
+抓住了就开始楼友大逃杀
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 13962#       发表于 2020-6-22 16:13
+
+
+
+
+麻妹们的有趣程度只有原版的百分之三<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13963#       发表于 2020-6-22 16:25
+
+
+
+
+毕竟sister是面瘫，真正有趣还要看我最后之作，所以麻妹不是重点，重点是那唯一一只铜麻。
+
+想想这只养大后，还能听到那已经绝版的声线，不说了，我要去重温BV1mJ411H7s3了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 13964#       发表于 2020-6-22 16:39
+
+
+
+
+麻不在的日子里，传统车轱辘会来几样
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 13965#       发表于 2020-6-22 16:43
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-22 16:44 编辑 
+
+麻酱经常在网上偷偷bb她那朋友，小心被抓包来个线下制裁啊<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+（竟然漏了主语...
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13966#       发表于 2020-6-22 16:43
+
+
+
+
+暗黑贴贴人被赶出去了，车字幕组的被赶出去了，直球乱趴的被挡在外面了，我觉的这楼已经没啥好车的了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 13967#       发表于 2020-6-22 16:47
+
+
+
+
+还有事业呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 13968#       发表于 2020-6-22 16:50
+
+
+
+
+御坂妹妹们虽然说都是毫无表情的样子，但那种需要附带表述心情的说话方式也是相当有趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+想象一下继承了mea性格和吐槽的sisters：
+比如说你对着meamea傻笑，“喂，debu，你在笑什么，kimo！.虽然meamea这样责怪主人，但看到主人一脸开心的样子，meamea也很害羞和幸福”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黒長直姫| + 1|欢乐多|
+| deep24froz| + 1|欢乐多  再写5块的|
+| 升级似自己家| + 1|欢乐多|
+| llconforever| + 1|思路广|
+| 2014720| + 1|太羞耻了|
+| kolu33| + 1|傲娇好评|
+| 惑星| + 1|勇气|
+| aisakahammer| + 2|欢乐多|
+| 路人庚| + 1|好|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  林照人  
+##### 13969#       发表于 2020-6-22 16:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13970#       发表于 2020-6-22 16:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13971#       发表于 2020-6-22 16:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">钥匙门bug修了之后后面只剩咩两只的时候只会放默认怒气技不打伤害肿么破，属性拉满不A给活活磨死简直血压拉满
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 13972#       发表于 2020-6-22 16:59
+
+
+
+
+沉迷方舟指令啊想啥呢
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 13973#       发表于 2020-6-22 17:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47905868&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-06-22 16:59:08</a>
+钥匙门bug修了之后后面只剩咩两只的时候只会放默认怒气技不打伤害肿么破，属性拉满不A给活活磨死简直血压拉 ...</blockquote>meu学第二个怒气技就能清场了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 13974#       发表于 2020-6-22 17:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47905901&amp;ptid=1929631" target="_blank">黒長直姫 发表于 2020-6-22 17:00</a>
+
+meu学第二个怒气技就能清场了
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是能换技能我就不用发愁了，普攻4级才能换，1级几百材料，吐了
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 13975#       发表于 2020-6-22 17:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47905935&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-06-22 17:02:43</a>
+要是能换技能我就不用发愁了，普攻4级才能换，1级几百材料，吐了</blockquote>那就不要让meu和mea抗对面的攻击 前排放光狼/波塞冬/属性盾
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 13976#       发表于 2020-6-22 17:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47905935&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-06-22 17:02:43</a>
+要是能换技能我就不用发愁了，普攻4级才能换，1级几百材料，吐了</blockquote>光狼是比较好的选择sr刚好搭上meameu还可以带俩n
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 13977#       发表于 2020-6-22 18:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">找到B站分部大门了，开始守株待兔
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13978#       发表于 2020-6-22 18:10
+
+
+
+
+这个点了不应该是蹲网咖吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">指不定早下班了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13979#       发表于 2020-6-22 18:30
+
+
+
+
+就不能是陪朋友去逛街了嘛，好歹也是(前)现充
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 13980#       发表于 2020-6-22 18:34
+
+
+
+
+麻的交际圈确实挺有意思的
+syl，楼友拍到疑似麻图请务必发上来<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">不过麻烦的是不知道她最近发型什么样，这么久没出门估计会顺便去理个发吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13981#       发表于 2020-6-22 19:11
+
+
+
+
+是小麻的毛发，是小麻的气味，啊～霓虹的理发店剪下来的碎发都是怎么处理的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 13982#       发表于 2020-6-22 19:21
+
+
+
+
+kimooooooooo
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 13983#       发表于 2020-6-22 19:26
+
+
+
+
+事 業 系 ー 般 廃 棄 物
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 13984#       发表于 2020-6-22 19:35
+
+
+
+
+剪掉一丝头发让我放在胸前
+
+
+走到那里都有你陪
+
+
+相随
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 13985#       发表于 2020-6-22 19:40
+
+
+
+
+kimo
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 13986#       发表于 2020-6-22 19:43
+
+
+
+
+无端发散(눈_눈)，小麻ddd能有隔壁杏星高吗
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 13987#       发表于 2020-6-22 19:50
+
+
+
+
+别斗了别斗了，你麻军服6000同接顶天了，除非她自己事业心突然爆发硬喊人来引流，做好心理准备就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13988#       发表于 2020-6-22 19:58
+
+
+
+
+杏星是啥，holo star?
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 13989#       发表于 2020-6-22 20:02
+
+
+
+
+holostar又是啥
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 13990#       发表于 2020-6-22 20:04
+
+
+
+
+原谅我不知道正式名称<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">Holostars
+
+
+
+
+
+                                 
