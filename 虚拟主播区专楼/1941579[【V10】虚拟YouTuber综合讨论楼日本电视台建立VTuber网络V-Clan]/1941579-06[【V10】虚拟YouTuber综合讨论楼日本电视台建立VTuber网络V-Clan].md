@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 10:10** 
+> ## **本文件最后更新于2020-06-22 12:10** 
 
 
 
@@ -12115,8 +12115,9 @@ cookie.png
 
 
 
+ 本帖最后由 cheatdeath3 于 2020-6-22 10:21 编辑 
 
-还好谢拉毕业得早，要是她把小两口的合唱发到号上，估计又得疯一批人，只能说gachi害人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不实消息
 
 
 
@@ -12205,14 +12206,11 @@ cookie.png
 
 
 
+ 本帖最后由 cheatdeath3 于 2020-6-22 10:22 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897093&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 00:51</a>
 
 啊，她最新的那个投稿跟她合唱的是她男友？</blockquote>
-上半年还是去年看的
-
-rie在同社有个男友，在同社就不免发些合唱，我就看到了其中一个。
-
-当然也有可能是我看走眼了，不过现在不能翻●，明天才能查证。
+不实消息
 
 
 
@@ -16145,6 +16143,25 @@ syl，杏里面不少liver的直播内容并不提高性的满足，非得说杏
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya| + 1|云，旅行券是2wde ,2k|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -17256,4 +17273,3426 @@ P5是jrpg啊，p5s才是arpg
 
 
 
-                     
+
+
+-----
+
+####  opersuper  
+##### 8352#       发表于 2020-6-22 10:12
+
+
+
+
+以前人气的过气是抽新卡出后浪的结果，现在虹杏一起停抽保鲜期能不能大幅度延长呢。如果继续抽木口大家庭的毕业抬棺放送能不能期待下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8353#       发表于 2020-6-22 10:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900014&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-22 10:12</a>
+
+以前人气的过气是抽新卡出后浪的结果，现在虹杏一起停抽保鲜期能不能大幅度延长呢。如果继续抽木口大家庭的 ...</blockquote>
+还保鲜期呢，虹这新卡起来的速度反而慢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8354#       发表于 2020-6-22 10:15
+
+
+
+
+打不过一方面有过气因素，彩虹同样很明显；另一方面是投入度，包括以前聊过的弃掉前世/双开、全职/兼职
+
+aqua既弃前世又是全职，加上强度OK，所以能跟上节奏；三四期人均全职，还热衷前世的就日南了，kson都慢慢抽不出时间了
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8355#       发表于 2020-6-22 10:16
+
+
+
+
+所以大亏已经不适合这个版本了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 8356#       发表于 2020-6-22 10:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老湿的企划总感觉就是差一口气，明明内容都还挺有意思的，除了那次那个话剧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8357#       发表于 2020-6-22 10:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900071&amp;ptid=1941579" target="_blank">暴走的包子 发表于 2020-6-22 10:16</a>
+
+老湿的企划总感觉就是差一口气，明明内容都还挺有意思的，除了那次那个话剧
+
+
+—— 來自 samsung SM- ...</blockquote>
+老师是真的可惜……说人脉吧，教室那么多人都接触下来了，
+
+说企划吧，都整过了，
+
+说耐久吧，天天直播……
+
+真就缺根筋阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 8358#       发表于 2020-6-22 10:23
+
+
+
+
+凛姨怎么可以播tlous2？
+sly第一管人怎么给这游戏10/10<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kikiwalu  
+##### 8359#       发表于 2020-6-22 10:24
+
+
+
+
+光有企划没有嘴上整活能力也不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8360#       发表于 2020-6-22 10:28
+
+
+
+
+虹冥府组发育的不错啊，不行的是三小只
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 8361#       发表于 2020-6-22 10:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> モルルーナ这个深夜虚无弹琴怎么同接这么高，难道是木口那个风格适合她？怪不得gamers待不下去
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8362#       发表于 2020-6-22 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900254&amp;ptid=1941579" target="_blank">soranoguiji 发表于 2020-6-22 10:29</a>
+
+モルルーナ这个深夜虚无弹琴怎么同接这么高，难道是木口那个风格适合她？怪不得gamers待不下去 ...</blockquote>
+说好的深夜催眠歌回阿游戏回阿都那么嗨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  wsjsty  
+##### 8363#       发表于 2020-6-22 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900177&amp;ptid=1941579" target="_blank">blattle 发表于 2020-6-22 10:23</a>
+
+凛姨怎么可以播tlous2？
+
+sly第一管人怎么给这游戏10/10</blockquote>
+一周目是在龙姐号上播的 然后觉着剧情又痛苦又美丽
+
+二周目上凛号播的<img src="https://static.saraba1st.com/image/smiley/device2017/005.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8364#       发表于 2020-6-22 10:36
+
+
+
+
+什么叫真正的Gamer哦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+技不如人，甘拜下风<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8365#       发表于 2020-6-22 10:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47897093&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 00:51</a>
+
+啊，她最新的那个投稿跟她合唱的是她男友？</blockquote>
+看了一下rie的推和油管，并没有合唱，也不知道当初怎么看走眼的
+
+那几楼我编辑了
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8366#       发表于 2020-6-22 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900323&amp;ptid=1941579" target="_blank">wsjsty 发表于 2020-6-22 10:35</a>
+
+一周目是在龙姐号上播的 然后觉着剧情又痛苦又美丽
+
+二周目上凛号播的 ...</blockquote>
+什么是又痛苦又美丽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8367#       发表于 2020-6-22 10:40
+
+
+
+<blockquote>cheatdeath3 发表于 2020-6-22 10:37
+什么是又痛苦又美丽</blockquote>
+是等待夸皇live中crew的心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 8368#       发表于 2020-6-22 10:41
+
+
+
+
+说到直播节奏和进修，最近新卡里比较喜欢的船和龙都在疯狂爆播，在上升期加大直播节奏是很合理的。
+
+但是快节奏很明显的影响了她们的直播质量，最近早安可可埂的质量明显下降了，而且开始时不时断更；船长的solo回变少，除开联动太多，她自己也说过是杂谈卡组消耗太快的问题，没梗硬聊会降低节目质量。
+
+这两个老阿姨我挺喜欢的，主要就是相对丰富的人生经历，使得她们的杂谈特别有趣而且话题比较对我这种老年人胃口。
+
+现在就是比较担心上升期对她们的过度消耗，没有时间去提升内容质量对她们打击是特别大的。
+
+因为她们在形象构筑的完成度，或者直球点就是形象的萌度和吸粉能力上是天然不及夸兔粽的，优势是内容，除了杂谈船长还有一手画技，会长则是优秀的视频创作者。
+
+夸哥现在已经在努力提升自己的内容创作能力，兔粽也有提升空间，但是老阿姨们是没法强行卖萌的，只会显得惺惺作态。
+
+和阿希一样来到瓶颈期时她们能依靠的还只能是自己的内容创作能力，所以私心还是不要过多消耗，注意休息和提升比较好。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8369#       发表于 2020-6-22 10:43
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-22 10:54 编辑 
+
+反正自从云了游戏剧情之后看什么评价都感觉是在阴阳怪气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl,一进油管就看见高尔夫，晦气<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+zsyl,
+
+<img src="https://img.saraba1st.com/forum/202006/22/104422hr3999ps6rtlflww.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbCNWFtVcAESIPr.jpg</strong> (521.72 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 10:44 上传
+
+
+
+
+
+
+
+[https://twitter.com/kuma_daigoro ... 45648001024/photo/3](https://twitter.com/kuma_daigorou/status/1274674545648001024/photo/3)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8370#       发表于 2020-6-22 10:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">龙皇扔进阿姨组，粽子和夸兔扔同一组是怎么回事
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8371#       发表于 2020-6-22 10:44
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-6-22 10:48 编辑 
+
+感觉对楼里的天狗可能不太友好先提前道个歉。
+
+不过应该有人车过了吧。
+
+马自立这套混沌营业加上tc台养gachi其实是学mea的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8372#       发表于 2020-6-22 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899056&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-22 09:02</a>
+
+尾哥的长文核心思想就是一句话，病急乱投医，其实是说得通的。当然实际是不是就是另一回事儿了，反正真相只 ...</blockquote>
+咱觉得不行，咱这种只是偶尔看马自立的都觉得云的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 8373#       发表于 2020-6-22 10:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900439&amp;ptid=1941579" target="_blank">暗心舞踏 发表于 2020-6-22 10:44</a>
+
+龙皇扔进阿姨组，粽子和夸兔扔同一组是怎么回事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">龙皇确实老阿姨啊，就是那个味道，懂的都懂。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8374#       发表于 2020-6-22 10:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900405&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-22 10:41</a>
+说到直播节奏和进修，最近新卡里比较喜欢的船和龙都在疯狂爆播，在上升期加大直播节奏是很合理的。
+
+但是快 ...</blockquote>
+皮不就是为了让老阿姨卖萌用的吗，不如说holo里卖萌最强的不就是些姨吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+大亏傻紫心心这些都要跟白姨宫姨润姨好好学学，光一个傻笑夸那尬笑就被宫姨爆了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8375#       发表于 2020-6-22 10:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899457&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-22 09:32</a>
+
+没事，夏哥还喜欢兽娘2呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽你不要给咱瞎说，咱看到这3个字就想吐了
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8376#       发表于 2020-6-22 10:48
+
+
+
+
+三小只不知道是不是我错觉，同期感有点弱，旁边的冥府组的同期感就很强，虹从19年开始，三人组合只有同期抱团才能三个人都活下来，不然至少会出两个底边
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8377#       发表于 2020-6-22 10:49
+
+
+
+
+你楼不是已经总结出姨不姨看心态不看年龄的结论了吗
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8378#       发表于 2020-6-22 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47899616&amp;ptid=1941579" target="_blank">与天争锋_LZ 发表于 2020-6-22 09:44</a>
+
+对我来说喜欢兽娘2比3d联动律可狠多了，不过后面她也没怎么多提
+
+
+—— 来自 Xiaomi MI 5s Plus, And ...</blockquote>
+咱觉得不行，对青少年的坏影响，不可估量
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8379#       发表于 2020-6-22 10:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900519&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 10:49</a>
+
+咱觉得不行，对青少年的坏影响，不可估量</blockquote>
+图呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我是怀疑马自立当时只是在云兽娘2罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8380#       发表于 2020-6-22 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47895628&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-21 22:43</a>
+
+不少两边都看的经常表示
+
+1：两边差别太大，不喜欢
+
+2：看过日南感觉团长真会强推了阿火</blockquote>
+哈？卖肉ghs服务男性的女主播为啥会强推女同事？
+
+这个逻辑是怎么来的？
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 8381#       发表于 2020-6-22 10:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900485&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-22 10:47</a>
+
+皮不就是为了让老阿姨卖萌用的吗，不如说holo里卖萌最强的不就是些姨吗
+
+大亏傻紫心心这些都要跟白 ...</blockquote>
+前天阿希Live的时候我就在想她舞台效果还真的可以的，跳舞的底子在，小动作也很丰富。
+
+所以说阿希想走偶像路线不是没有原因的。
+
+然后当时就联想到了船长用又尴又僵硬的动作台上卖萌的话···<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+会长之后就发了推特说自己也想站上舞台。
+
+我又联想了一下180cm巨龙台上卖萌的情景···<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+这么一想其实阿希还是有救的不是吗？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8382#       发表于 2020-6-22 10:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900562&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-22 10:53</a>
+
+前天阿希Live的时候我就在想她舞台效果还真的可以的，跳舞的底子在，小动作也很丰富。
+
+所以说阿希想走偶 ...</blockquote>
+那就要真的认真练唱歌阿，所以接触律可？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nevp  
+##### 8383#       发表于 2020-6-22 10:56
+
+
+
+
+一二期小年轻们相比那些姨确实有年龄上的优势啊，5年后傻紫心心这些也不过20出头，你楼心态不姨的代表宫皇可就40了吧，虽然v圈能不能活5年还不一定
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8384#       发表于 2020-6-22 10:56
+
+
+
+
+舞台气质表现什么的跟姨不姨没关系，你圈公认最会跳的阿银（佐藤有世）今年36了
+
+夏哥要想走唱歌路线还不如跟空妈azki玩玩呢，哦还有口吃神也是知名唱见了，关系也不错天天一起apex
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8385#       发表于 2020-6-22 10:59
+
+
+
+
+一个问题，肥希啥时候表现出要走唱歌路线了？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8386#       发表于 2020-6-22 11:00
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-22 10:44
+感觉对楼里的天狗可能不太友好先提前道个歉。
+
+不过应该有人车过了吧。
+
+马自立这套混沌营业加上tc台养gachi ...</blockquote>
+学其型不得其神，说到底还是舍不得自己木口偶像的身份以及杂谈才能上的差距，
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 8387#       发表于 2020-6-22 11:01
+
+
+
+
+真被pua的可能性有多少…如果想走唱跳，确实不如多联系联系大亏或者空妈星姐呢
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8388#       发表于 2020-6-22 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900614&amp;ptid=1941579" target="_blank">free 发表于 2020-6-22 10:56</a>
+
+舞台气质表现什么的跟姨不姨没关系，你圈公认最会跳的阿银（佐藤有世）今年36了
+
+夏哥要想走唱歌路线还不如 ...</blockquote>
+唱歌没学，倒是和口吃神学买化妆品 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8389#       发表于 2020-6-22 11:02
+
+
+
+
+小肥妹那天live看完你们还觉得这人真想走什么歌势路线吗…
+无非就是小女生有点公主梦偶像梦，弄个live自己乐一下，夸多半也是，心愿满足了估计就能老老实实直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8390#       发表于 2020-6-22 11:02
+
+
+
+
+抱团才是出路
+杏三期抱团崛起，虹19年3人组，不抱团的必有双底边，星川那组是典型例子
+gamers看起来终于要抱团了，每次gamers抱团，剪辑就管饱，是有多饥渴
+
+突然意识到，反而双人出道的组合，出货的几率更大啊
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8391#       发表于 2020-6-22 11:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900693&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-22 11:01</a>
+
+真被pua的可能性有多少…如果想走唱跳，确实不如多联系联系大亏或者空妈星姐呢 ...</blockquote>
+虽然如此，但是直播教人唱歌这件事我还真就看律可做过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这是pua嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8392#       发表于 2020-6-22 11:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900506&amp;ptid=1941579" target="_blank">Suny08 发表于 2020-6-22 10:48</a>
+三小只不知道是不是我错觉，同期感有点弱，旁边的冥府组的同期感就很强，虹从19年开始，三人组合只有同期抱 ...</blockquote>
+不是错觉，他们仨遭反感的原因一部分也是因为不抱团反倒四面出击
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8393#       发表于 2020-6-22 11:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900708&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-22 11:02</a>
+
+小肥妹那天live看完你们还觉得这人真想走什么歌势路线吗…
+
+无非就是小女生有点公主梦偶像梦，弄个live自己 ...</blockquote>
+马自立那个LIVE明显就没怎么练过吧。。。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8394#       发表于 2020-6-22 11:04
+
+
+
+
+还好咱本身不是祭丝，不然今天突然知道她喜欢兽娘2这么劲爆的消息怕是得嗷的一声就疯了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8395#       发表于 2020-6-22 11:04
+
+
+
+
+不报团就要遭反感吗，那还是蛮大家庭的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8396#       发表于 2020-6-22 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900724&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:04</a>
+马自立那个LIVE明显就没怎么练过吧。。。</blockquote>
+所以才说这人对当歌势压根就没那心，就是随便玩玩满足下自己的偶像梦
+
+
+
+
+
+
+
+-----
+
+####  超能力者stven  
+##### 8397#       发表于 2020-6-22 11:05
+
+
+
+
+一二期现在掉队是不是因为抱团不紧啊
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 8398#       发表于 2020-6-22 11:06
+
+
+
+
+确实应该是气质的问题。
+
+同是老阿姨，润姨台上卖萌效果应该挺好的，但轮到船长和会长卖萌的话就会觉得是在玩尴···
+
+大概是艺人形象太过深入我心<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8399#       发表于 2020-6-22 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900451&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-22 10:44</a>
+
+感觉对楼里的天狗可能不太友好先提前道个歉。
+
+不过应该有人车过了吧。
+
+马自立这套混沌营业加上tc台养gachi ...</blockquote>
+学不学不知道，但这个套路挺像的
+
+
+但是跟mea有点不同的是，mea过于重视观众感觉，所以中间一段时间压力很大，甚至还逼疯了不少天狗；夏哥能从一而终坚持，把gachi杀完也不是不行，这些都是个人选择……
+
+
+反正我个人对这种联动既不喜欢也不反对，至于什么非要去影响主播的路线，不然就在论坛打滚发怪文书的粉丝，我从来都是鄙视的好伐？
+
+
+PS：响老哥能不能别他妈理尾宝啊？这么喜欢云P污染版面吗？
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 8400#       发表于 2020-6-22 11:07
+
+
+
+
+润姨不也喜欢霸凌学园吗？阿夸还亲口说过喜欢爆豪，不要对管人的品味有过高期待才是真的。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8401#       发表于 2020-6-22 11:07
+
+
+
+
+虹这个月可能要出四五个150小时的人啊
+
+
+
+
+
+
+TIM图片20200622110443.png
+(30.86 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 11:06 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/110616sudtiwzivimvlqmv.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8402#       发表于 2020-6-22 11:07
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-6-22 11:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900750&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-22 11:04</a>
+
+不报团就要遭反感吗，那还是蛮大家庭的。</blockquote>
+彩虹人的特质好像是有这么一条可以总结出来了：讨厌蹭热度。
+
+就很奇怪，老爱那么费心费力的做推广，就是为了营造圈内大家互相联动的气氛。
+
+结果底边主动出击反而要被粉丝讨厌。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+不过这也有可能是虹很少有下位找上位的问题。
+
+我很期待有虹人主动找holo联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8403#       发表于 2020-6-22 11:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我来除一除梁木好了，兽娘动物园里没有男人（主角性别不明），阿希频频找男人联动是出于个人的兴趣，所以阿希已经不喜欢或者从来都不喜欢兽娘2。这个角度满意吗
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8404#       发表于 2020-6-22 11:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900548&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-22 10:51</a>
+
+图呢，这次是认真的吧
+
+我是怀疑马自立当时只是在云兽娘2罢了 ...</blockquote>
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gg0w3584p6j20gl07jgm9.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/natsuiromatsuri/status/1114008035196715010](https://twitter.com/natsuiromatsuri/status/1114008035196715010)
+
+
+その幻想をぶち殺す！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8405#       发表于 2020-6-22 11:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">细谷木村！你把多少人的生活，都给毁了！
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8406#       发表于 2020-6-22 11:09
+
+
+
+ 本帖最后由 北山玖公 于 2020-6-22 11:11 编辑 
+
+本质不就是觉得“不配”嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+那倒也不是觉得热度这一个差的太大，就算换个底边，有能力的就能让人服气。
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8407#       发表于 2020-6-22 11:09
+
+
+
+
+有种贸易保护主义者的感觉了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 8408#       发表于 2020-6-22 11:10
+
+
+
+
+也就是热度差距太大反而不方便直接联动？熟读《位置》《排面》
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8409#       发表于 2020-6-22 11:10
+
+
+
+
+饭圈里有一句“财不配位”，v圈里也有一句“德不配位”
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8410#       发表于 2020-6-22 11:12
+
+
+
+
+对于乐子人来说喜欢兽娘2很正常，因为兽娘2是真的会给人带来绝望，简单来说就是，这部片子stf就是冲着恶心人反社会去的，看看v8乐子人，很能理解不是吗？
+
+夏哥几个神经病联动里就很看得出她是个乐子人了。
+
+当然我对乐子人包括mk2,2000甚至ig都没啥恶感（虽然知道他们是脑瘫），不过对他们不能接受的人我也能理解，所以想顺劈小肥妹我没啥意见<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8411#       发表于 2020-6-22 11:13
+
+
+
+
+羊这好像问题不大
+<img src="https://p.sda1.dev/0/aa5a90f2956d406224c8e9a4c40bee21/IMG_20A6345539FA28DAA1FD17526FA09293.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8412#       发表于 2020-6-22 11:13
+
+
+
+
+嬉笑怒骂皆文章是早期的狐皇和白天王，行藏去留尽话题是不水直播的天皇和asaVB。什么时候出现一个声音好口齿清楚，日常杂谈前者水平偶尔整一下企划的完美杂谈系主播啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8413#       发表于 2020-6-22 11:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 管人是什么垃圾，还是创造营好看，
+
+
+和小姐姐聊创造营真开心，比起被人骂舒服多了，
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8414#       发表于 2020-6-22 11:13
+
+
+
+
+每次看你们说“德不配位”我总是条件反射想到“德龙”不配“阿委”_(:з」∠)_
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8415#       发表于 2020-6-22 11:13
+
+
+
+ 本帖最后由 渡鸦骑士 于 2020-6-22 11:21 编辑 
+
+那这就简单了，看看京子和月下的联动效果呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便现在的赞踩比是963：660
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8416#       发表于 2020-6-22 11:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到性别，当初小鞄从波士顿大狗里救出来之后，尾本达纪不是还意味深长地说了一句任君想象吗
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8417#       发表于 2020-6-22 11:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900883&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-22 11:13</a>
+
+嬉笑怒骂皆文章是早期的狐皇和白天王，行藏去留尽话题是不水直播的天皇和asaVB。什么时候出现一个声音好口 ...</blockquote>
+那啥……asaVB是是哪位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8418#       发表于 2020-6-22 11:15
+
+
+
+
+乐子人的意思是指夏哥看兽娘1和2最终话都感动得泪如雨下并推荐大家都去看是假的，是反串钓鱼吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8419#       发表于 2020-6-22 11:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900810&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-22 11:09</a>
+
+https://twitter.com/natsuiromatsuri/status/1114008035196715010
+
+
+その幻想をぶち殺す！ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无意冒犯，但是咱觉得喜欢兽娘2的人脑子都有问题
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8420#       发表于 2020-6-22 11:16
+
+
+
+
+律可3W了多久有3D的？
+<img src="https://p.sda1.dev/0/e4a244f783dcab8df896d24ff39d7290/IMG_20200622_111518.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8421#       发表于 2020-6-22 11:17
+
+
+
+
+不要对管人的品味有期待啊
+前有啊希看兽娘2感动的泪如雨下
+后有bba玩tlou2意犹未尽再开二周目
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8422#       发表于 2020-6-22 11:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900941&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-22 11:15</a>
+
+乐子人的意思是指夏哥看兽娘1和2最终话都感动得泪如雨下是假的，是反串钓鱼吗 ...</blockquote>
+啥？你看到兽娘2泪如雨下还觉得兽娘2很好看很棒棒这不是反串钓鱼？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+任何会看兽娘2泪如雨下的都恨不得锤死stf好伐？
+
+也就我这种冷无缺觉得好棒棒赶紧推荐给mmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8423#       发表于 2020-6-22 11:18
+
+
+
+
+她开心就好。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8424#       发表于 2020-6-22 11:18
+
+
+
+
+我也记不清了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但今天kaoru也3w就是了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 8425#       发表于 2020-6-22 11:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/111831ue6l7e67hzz6la7j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbCLkpAU8AEANYR.jpg</strong> (120.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 11:18 上传
+
+
+
+
+
+
+啊，治愈的笑容。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8426#       发表于 2020-6-22 11:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900951&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:16</a>
+
+无意冒犯，但是咱觉得喜欢兽娘2的人脑子都有问题</blockquote>
+佐藤希我不知道，夏色祭脑子有问题不是实锤了吗？
+
+我最喜欢看精神病联动回，看她还能发病多少次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8427#       发表于 2020-6-22 11:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900405&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-22 10:41</a>
+
+说到直播节奏和进修，最近新卡里比较喜欢的船和龙都在疯狂爆播，在上升期加大直播节奏是很合理的。
+
+但是快 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">   船长前阵子太福报了，嗓子都弄坏了还有一期看病回，确实很值得担心。。。杂谈卡组消耗这个确实，上次船长那回黑历史画册，虽然很有趣，但是想想这个也是压箱底大招之一了，没法复制。包括船长也有时候讲一个事情讲讲意识过来之前讲过好几次了，问观众是不是讲过了，然后大家刷下年龄梗（当然总也有几个新参）。船长的画画确实算是专武，不过主要是时间消耗也巨大，上次三期线下会四格在直播前画了五个多小时。声真似老本行倒是可以反复玩，不过为了新鲜感也要保持一定的间隔。确实不像游戏势那样只要有游戏就可以发挥出资金平A水平 
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8428#       发表于 2020-6-22 11:19
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-22 11:13
+那这就简单了，看看今天京子和月下的联动效果呗
+
+顺便现在的赞踩比是963：660 ...</blockquote>
+这是被两边的an集火了吗
+
+话说苔宝类的细数罪状行为是把anti鲨了还是生产了更多扭曲粉排泄到V圈观众群我暂时蒙古
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8429#       发表于 2020-6-22 11:19
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-22 11:21 编辑 
+
+鲨皇对tlou2的评价：“第一次这种意义上的被剧情恶心到哭”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  北山玖公  
+##### 8430#       发表于 2020-6-22 11:20
+
+
+
+
+就算抛去纯粹恶心人的地方，这破游戏还是有一堆没逻辑的细节，品味不太好啊，bba。
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 8431#       发表于 2020-6-22 11:20
+
+
+
+
+除非和底层中之人认识，不会真有人以为虚拟网红会喜欢和底层没商业联系的联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8432#       发表于 2020-6-22 11:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">阿希妹妹有反串钓鱼那个智商，是不是现在和星男人的联动也都是反串钓独角兽出来杀啊
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8433#       发表于 2020-6-22 11:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900976&amp;ptid=1941579" target="_blank">蒹葭公子 发表于 2020-6-22 11:17</a>
+
+啥？你看到兽娘2泪如雨下还觉得兽娘2很好看很棒棒这不是反串钓鱼？
+
+任何会看兽娘2泪如雨下的都恨 ...</blockquote>
+一般人多半是反串，樱花妹么……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别说樱花妹，就泥潭当初兽娘2楼里都还有一个舌战群儒的真爱<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8434#       发表于 2020-6-22 11:21
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-22 11:15
+那啥……asaVB是是哪位</blockquote>
+VB是バーチャルおばちゃん，硬核八美肉
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 8435#       发表于 2020-6-22 11:21
+
+
+
+
+你们对yhm的脑回路有什么期待?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8436#       发表于 2020-6-22 11:22
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-22 11:40 编辑 
+
+不省一楼，
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到小鞄男体化倒是有个经典作品。也许在座不少人都看过了，不过还是重温一下吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">“不也挺好吗？”
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/113207o1wel06lh0ee0zee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>kmnf067.jpg</strong> (350.96 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 11:32 上传
+
+
+
+
+
+
+[https://www.pixiv.net/artworks/67625440](https://www.pixiv.net/artworks/67625440)
+
+汉化在图书馆，想了一下还是不直接贴了
+
+
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8437#       发表于 2020-6-22 11:22
+
+
+
+<blockquote>opersuper 发表于 2020-6-22 11:19
+这是被两边的an集火了吗
+
+话说苔宝类的细数罪状行为是把anti鲨了还是生产了更多扭曲粉排泄到V圈观众群我暂 ...</blockquote>
+苔苔这类杀噶吃的行为能产生多少扭曲人，长期下来恐怕还没有点箱炸了那一次产生的多吧
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8438#       发表于 2020-6-22 11:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901034&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-22 11:20</a>
+
+一般人多半是反串，樱花妹么……
+
+别说樱花妹，就泥潭当初兽娘2楼里都还有一个舌战群儒的真爱[f:24 ...</blockquote>
+那位看到最终话就觉得之前的自己是傻逼啊，兽娘2最终话就是有这种魔力，任何看过它的人都会觉得stf就是一群反社会精神病——觉得真的拍的好的那不是多少沾点而是真的脑瘫了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8439#       发表于 2020-6-22 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901044&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-22 11:21</a>
+
+VB是バーチャルおばちゃん，硬核八美肉</blockquote>
+那确实太硬核了，我在hiyo那边老看见她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8440#       发表于 2020-6-22 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900986&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 11:18</a>
+我也记不清了但今天kaoru也3w就是了</blockquote>
+我就是看到他3W了所以问下律可的3D速度，毕竟这人的3D联动我觉得会比律可的更多，而且内容应该是多人游戏了吧，说不定能把星拉起来。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8441#       发表于 2020-6-22 11:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900775&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-22 11:06</a>
+
+确实应该是气质的问题。
+
+同是老阿姨，润姨台上卖萌效果应该挺好的，但轮到船长和会长卖萌的话就会觉得是在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">  会长我觉得还有救，船长我觉得就真 老阿姨艺人，和偶像是不搭的  
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8442#       发表于 2020-6-22 11:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901082&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-22 11:24</a>
+
+我就是看到他3W了所以问下律可的3D速度，毕竟这人的3D联动我觉得会比律可的更多，而且内容应该是多人游戏 ...</blockquote>
+等我手机上这局舟游剿灭挂完，我就去翻推特看看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8443#       发表于 2020-6-22 11:26
+
+
+
+
+顶着几百同接播ff14的凛姨无所畏惧
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8444#       发表于 2020-6-22 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900881&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-22 11:13</a>
+
+羊这好像问题不大</blockquote>
+羊天天有男友养着有个屁的问题
+
+真正嗓子有大问题的兔皇反倒没去检查
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 8445#       发表于 2020-6-22 11:28
+
+
+
+
+最近巧可也是顶着几百同接壶……有人统计一下holo这边上周壶了几次吗？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8446#       发表于 2020-6-22 11:29
+
+
+
+
+龙皇这个月就要冲破2000W，可惜B站哪个miraclexyz上个月的SC榜都还没做。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8447#       发表于 2020-6-22 11:29
+
+
+
+
+这是不是意味着底边的唯一出路就是主动出击阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+律可被他超过去只是时间问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8448#       发表于 2020-6-22 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900656&amp;ptid=1941579" target="_blank">crito 发表于 2020-6-22 10:59</a>
+
+一个问题，肥希啥时候表现出要走唱歌路线了？</blockquote>
+声优志向的话以后迟早要练歌 要经常上live的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8449#       发表于 2020-6-22 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901129&amp;ptid=1941579" target="_blank">深渊萃取 发表于 2020-6-22 11:28</a>
+
+最近巧可也是顶着几百同接壶……有人统计一下holo这边上周壶了几次吗？</blockquote>
+holo上周行方不明的成员比较多
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8450#       发表于 2020-6-22 11:30
+
+
+
+
+联动和“蹭”或者说吸血，或者说赏饭还是不一样的，你杏早期加乱七八糟一堆tag那差不多叫蹭，有时候看着粉丝差距很大的联动，可能交个朋友打开人脉的作用更大一些。
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8451#       发表于 2020-6-22 11:30
+
+
+
+
+这个行方不明一语双关有点意思了  <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8452#       发表于 2020-6-22 11:31
+
+
+
+
+不要AOE樱花妹啊，当时为了给夏哥洗地，我专门翻其他人推看有没有一起感动的，结果发现只有她这么憨，肉麻的话远不止上面那个截图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+ゆっくりおやすみまつりちゃん</blockquote><blockquote>心の整理ができたのでツイートしますけど
+
+けものフレンズ2めっちゃ泣きました。
+
+あの……やばいので……本当に……あっ……Loudly crying face
+
+
+サーバル……( ;ᯅ; )
+
+かばんちゃん……( ᵕ̩̩ㅅᵕ̩̩ )</blockquote><blockquote>実は行ってました。
+
+
+本当によかった。やっぱりけものフレンズが好きだ。
+
+
+VIP席でしたVictory handめっちゃ近かった……Smiling face with halo
+
+
+物販で大雨が凄すぎて後ろに並んでたお兄さんが傘に入れてくれたり優しすぎたしLoudly crying face
+
+
+夜公演行く方は楽しんで欲しいですね！！！！
+
+ #けものフレンズPARTY</blockquote>还有晒fan club时间之类的
+
+当时想的洗地说法是她算是从业人员，要给业界人士一个面子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8453#       发表于 2020-6-22 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901034&amp;ptid=1941579" target="_blank">Ketestrait 发表于 2020-6-22 11:20</a>
+
+一般人多半是反串，樱花妹么……
+
+别说樱花妹，就泥潭当初兽娘2楼里都还有一个舌战群儒的真爱[f:24 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/22/112320jrmepdr4eobbhh7t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200622122301.jpg</strong> (43.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 11:23 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/113136ma29in51ek1iii01.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200622123116.jpg</strong> (11.86 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 11:31 上传
+
+
+
+
+
+
+
+
+
+顺便。。。。咱突然看到了免费<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/22/113136yigp12nruzvfwbrz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200622122342.jpg</strong> (35.62 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 11:31 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8454#       发表于 2020-6-22 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901157&amp;ptid=1941579" target="_blank">free 发表于 2020-6-22 11:30</a>
+
+联动和“蹭”或者说吸血，或者说赏饭还是不一样的，你杏早期加乱七八糟一堆tag那差不多叫蹭，有时候看着粉 ...</blockquote>
+那照你这么说，真的吸血和赏饭是什么样的呢？
+
+我觉得主动出击寻找联动机会蛮正常的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8455#       发表于 2020-6-22 11:33
+
+
+
+
+找到了，律可3w应该是在六月三日与四日之间达成的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8456#       发表于 2020-6-22 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901058&amp;ptid=1941579" target="_blank">蒹葭公子 发表于 2020-6-22 11:22</a>
+
+那位看到最终话就觉得之前的自己是傻逼啊，兽娘2最终话就是有这种魔力，任何看过它的人都会觉得stf就是一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚救完大家的老虎被瓦砾压死，然后一群人策划在坟头蹦逼这种桥段一般脑回路想不出来的吧。。。。。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8457#       发表于 2020-6-22 11:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901178&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:31</a>
+
+顺便。。。。咱突然看到了免费</blockquote>
+打+2的我扫了眼id，差不多都是各种巨魔乐子人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8458#       发表于 2020-6-22 11:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901205&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 11:33</a>
+
+找到了，律可3w应该是在六月三日与四日之间达成的</blockquote>
+那还是挺快的嘛，四期里面夹个star3d，应该也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8459#       发表于 2020-6-22 11:37
+
+
+
+
+这么说来免费除了讨饭戏子论和歌力鄙视链和扭曲粉傻妞以外还是不怎么巨魔的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8460#       发表于 2020-6-22 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901170&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-22 11:31</a>
+
+不要AOE樱花妹啊，当时为了给夏哥洗地，我专门翻其他人推看有没有一起感动的，结果发现只有她这么憨，肉麻 ...</blockquote>
+其实可能还有个理由，就是她估计是犬山妹的粉……
+
+犬山妹属实无辜，被AOE了无数次，可能阿希真的就是有一种“喜欢的东西被伤害了就一定要力挺ta”的朴素精神吧……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8461#       发表于 2020-6-22 11:38
+
+
+
+
+盗亦有道，兽2五星差评的原则绝对不能动摇
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8462#       发表于 2020-6-22 11:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901262&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-22 11:37</a>
+
+这么说来免费除了讨饭戏子论和歌力鄙视链和扭曲粉傻妞以外还是不怎么巨魔的啊 ...</blockquote>
+所以说，我觉得免费越来越像某个我认识的 丢人玩意了。
+
+就是强行遵循自己的意见，听不进话。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 8463#       发表于 2020-6-22 11:39
+
+
+
+
+老师像yhm，不像姨啊
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8464#       发表于 2020-6-22 11:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901229&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:35</a>
+
+刚救完大家的老虎被瓦砾压死，然后一群人策划在坟头蹦逼这种桥段一般脑回路想不出来的吧。。。。 ...</blockquote>
+不是，你看到最后告诉你qrr才是薮猫的原主人，小包只是个外传主角还被忘记了就知道这帮傻逼压根就是冲着发泄对驼鹿和一期粉丝的恶意而来的……
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8465#       发表于 2020-6-22 11:39
+
+
+
+
+免费也是yhm？
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8466#       发表于 2020-6-22 11:40
+
+
+
+
+谨防非和平演变动画讨论楼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gearbox  
+##### 8467#       发表于 2020-6-22 11:41
+
+
+
+
+你们看a版主直播看兽娘2的心路历程不就能看出来兽娘2这是个什么玩意了么<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8468#       发表于 2020-6-22 11:41
+
+
+
+
+话说昨天那个虚拟女团大会诸位打算关注嘛，
+
+业界3d能力高的全上了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8469#       发表于 2020-6-22 11:41
+
+
+
+
+**，V综就不要提兽娘2了好不好<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+兽2 VS A5之后我不想再看到任何关于这玩意的信息片段了
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8470#       发表于 2020-6-22 11:42
+
+
+
+
+话说你们说的这个，和龙骑外传比谁更糟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8471#       发表于 2020-6-22 11:43
+
+
+
+ 本帖最后由 恶魔娘阿洛 于 2020-6-22 11:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901342&amp;ptid=1941579" target="_blank">与天争锋_LZ 发表于 2020-6-22 11:41</a>
+
+**，V综就不要提兽娘2了好不好
+
+兽2 VS A5之后我不想再看到任何关于这玩意的信息片段了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然这个话题是咱发散开的，不过谁叫你说了一句
+
+【跟律可联动比起来她喜欢兽娘2我觉得无所谓了】
+
+
+锅算你的啦
+
+明明咱们2都算贴吧，NGA，S1怒喷兽娘2的急先锋
+
+背叛，是无法赦免得罪（D3并感）
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8472#       发表于 2020-6-22 11:44
+
+
+
+
+这个偶像团大会现在还不知道是什么形式，线下的吗还是油 管直播，线下的估计没啥机会看了，而且岩本町都上了不知道Marpril为啥没来
+
+
+顺便我把打SC比作给街头弹唱小哥丢钱确实不知道戳中哪些人G 点了，不会这么心理脆弱吧
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8473#       发表于 2020-6-22 11:44
+
+
+
+
+见不到小包了。
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 8474#       发表于 2020-6-22 11:44
+
+
+
+
+主播品味差有啥可劈的，那是前世的问题，不影响直播效果就行。
+
+只要不是直播时强行安利兽娘2这种喂屎行为都不算黑点。
+
+真要说品味的话我最不可理解的就是团长喜欢刃牙里的多利安···<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  与天争锋_LZ  
+##### 8475#       发表于 2020-6-22 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901382&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:43</a>
+虽然这个话题是咱发散开的，不过谁叫你说了一句
+
+【跟律可联动比起来她喜欢兽娘2我觉得无所谓了】</blockquote>
+是8328楼先提到的，我只想吐痰，而不想进行任何涉及剧情的讨论
+
+—— 来自 Xiaomi MI 5s Plus, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8476#       发表于 2020-6-22 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901364&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 11:42</a>
+
+话说你们说的这个，和龙骑外传比谁更糟</blockquote>
+应该是兽娘二更遭
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8477#       发表于 2020-6-22 11:46
+
+
+
+
+楼里的各类管人粉丝，在对兽娘2的看法上达到了空前的团结。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8478#       发表于 2020-6-22 11:46
+
+
+
+
+幸好我是补番党，触雷几率0。
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8479#       发表于 2020-6-22 11:46
+
+
+
+
+被你们说的，想看肥希通了TLOU2大呼神作。
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8480#       发表于 2020-6-22 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901364&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 11:42</a>
+
+话说你们说的这个，和龙骑外传比谁更糟</blockquote>
+嗯龙骑外传还是没法跟a5和兽娘2相提并论的，属于一般吃屎，类似小龙女被强X那种……
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8481#       发表于 2020-6-22 11:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901404&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-22 11:44</a>
+
+主播品味差有啥可劈的，那是前世的问题，不影响直播效果就行。
+
+只要不是直播时强行安利兽娘2这种喂屎行为都 ...</blockquote>
+喜欢多利安也不算很奇怪，多利安算是死囚里描写的最多的了
+
+本质悲情人物
+
+明明在追求【败】，却太害怕【输】
+
+不断给自己找借口，当最后被烈海王点出矛盾点后，最终彻底崩溃
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8482#       发表于 2020-6-22 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47900797&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-22 11:07</a>
+彩虹人的特质好像是有这么一条可以总结出来了：讨厌蹭热度。
+
+就很奇怪，老爱那么费心费力的做推广，就是为 ...</blockquote>
+说没几句就能概括“彩虹人”也挺厉害的，我说的招人反感纯粹只是招にじアン反感罢了，本来就没多少表民在烧他们，他之前被星川突发联动要不是说了那句“土人”完全大好评。
+
+倒不如说嫌杏星没数字，觉得带律可还不如多来几次27jk的人我在你楼也见到不少了，本质上都是嫌自己推被吸血觉得应该往上走的事业民罢了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8483#       发表于 2020-6-22 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901364&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-22 11:42</a>
+
+话说你们说的这个，和龙骑外传比谁更糟</blockquote>
+你这个问题当年曾经好多人拿来跟兽娘2比
+
+然后被一群人怒喷不要什么都提兽娘2
+
+你配拿来跟这玩意比屑度么
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8484#       发表于 2020-6-22 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901443&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 11:46</a>
+
+被你们说的，想看肥希通了TLOU2大呼神作。</blockquote>
+凛姨播的时候没开sc，木口应该不敢给主播播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 8485#       发表于 2020-6-22 11:49
+
+
+
+ 本帖最后由 crito 于 2020-6-22 11:50 编辑 
+
+把tlou2其他部分删掉，单单留下回忆杀的内容就是神作了
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 8486#       发表于 2020-6-22 11:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901443&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 11:46</a>
+
+被你们说的，想看肥希通了TLOU2大呼神作。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那还是找男人联动吧 
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 8487#       发表于 2020-6-22 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901341&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-22 11:41</a>
+
+话说昨天那个虚拟女团大会诸位打算关注嘛，
+
+业界3d能力高的全上了吧。
+
+ ...</blockquote>
+指个路？
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 8488#       发表于 2020-6-22 11:50
+
+
+
+
+。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8489#       发表于 2020-6-22 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901457&amp;ptid=1941579" target="_blank">AloissiolA 发表于 2020-6-22 11:47</a>
+
+说没几句就能概括“彩虹人”也挺厉害的，我说的招人反感纯粹只是招にじアン反感罢了，本来就没多少表民在 ...</blockquote>
+你楼什么时候考虑过表民了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+算了，就当打了补丁吧。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8490#       发表于 2020-6-22 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901512&amp;ptid=1941579" target="_blank">包之沐白 发表于 2020-6-22 11:50</a>
+
+。</blockquote>
+[https://twitter.com/LifeLikeaLive/status/1274678115843727362](https://twitter.com/LifeLikeaLive/status/1274678115843727362)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 包之沐白| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8491#       发表于 2020-6-22 11:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901468&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:47</a>
+
+你这个问题当年曾经好多人拿来跟兽娘2比
+
+然后被一群人怒喷不要什么都提兽娘2
+
+你配拿来跟这玩意比屑度么 ...</blockquote>
+现在有了，tlou2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8492#       发表于 2020-6-22 11:51
+
+
+
+
+（发散）
+
+推特投票--
+
+接下来的直播内容是…
+
+
+TLOU2      □
+
+男人联动   □
+
+
+
+
+
+
+
+-----
+
+####  蒹葭公子  
+##### 8493#       发表于 2020-6-22 11:52
+
+
+
+
+这么说吧，如果一部作品没有到“主角的信念极端弱智，实现的手法不堪入目，且主角被反复抽脸，每次想有所改变又被抽回去，最后却告诉你主角只是大BOSS的分身之一，他的信念跟挣扎毫无意义，大boss只是个输了比赛就要灭世的lowb，最后被女主跟配角们组团刷了”这种程度的话，还是不要出来跟兽娘2比屑度了
+
+因为我说的这个是A5，而兽娘2屑度是A5的十倍以上……
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8494#       发表于 2020-6-22 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901468&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:47</a>
+
+你这个问题当年曾经好多人拿来跟兽娘2比
+
+然后被一群人怒喷不要什么都提兽娘2
+
+你配拿来跟这玩意比屑度么 ...</blockquote>
+这么夸张的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8495#       发表于 2020-6-22 11:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901404&amp;ptid=1941579" target="_blank">cockmore 发表于 2020-6-22 11:44</a>
+
+主播品味差有啥可劈的，那是前世的问题，不影响直播效果就行。
+
+只要不是直播时强行安利兽娘2这种喂屎行为都 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/22/115325zqkhwohkxwsk9f6s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200622125240.jpg</strong> (161.85 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 11:53 上传
+
+
+
+
+
+
+
+多利安的人物描写很不错的
+
+
+咱也挺喜欢这个人物
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8496#       发表于 2020-6-22 11:53
+
+
+
+
+不过说实话我其实很想从这点聊下去的，虽然一直说箱推箱推。
+
+怎么充分利用箱推优势，怎么混脸熟，怎么不被粉丝讨厌，这个过程也很奇妙的。
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8497#       发表于 2020-6-22 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901515&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-22 11:50</a>
+你楼什么时候考虑过表民了
+
+算了，就当打了补丁吧。</blockquote>
+拿V8人概括到S1用户你开心吗
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8498#       发表于 2020-6-22 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901529&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 11:51</a>
+
+现在有了，tlou2</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是B是被N赶走的这事是真的话确实有点那味了
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8499#       发表于 2020-6-22 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901530&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-22 11:51</a>
+
+（发散）
+
+推特投票--
+
+接下来的直播内容是…</blockquote>
+最后平票，决定和男人联动打TLOU2
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| UnhappyTails| + 1|太棒了，连我都感觉到不适XD|
+| 包之沐白| + 1|饶了观众吧|
+| 屑屑代沟尼亚| + 1|能恶心想看男人的粉 好！|
+| SuntoryNomu| + 1|技不如人，甘拜下风|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8500#       发表于 2020-6-22 11:55
+
+
+
+
+比烂一般拿出碧阳的动画续作幸运星的外篇是低成本给观众喂屎，和兽二比较像剧情后半喂💩的铁血孤儿？人家可是高达男主人气投票第一名的带制作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8501#       发表于 2020-6-22 11:56
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-22 12:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901576&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-22 11:54</a>
+
+要是B是被N赶走的这事是真的话确实有点那味了</blockquote>
+关键现在tlou2这事还有场外因素在持续不断的恶心人,“为大洋彼岸的顽皮狗起立鼓掌”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8502#       发表于 2020-6-22 11:57
+
+
+
+
+我更加担心露露，tlou2已经买了
+而且她很喜欢一代
+不管是玩了以后很喜欢还是很不喜欢
+我觉得都不行
+所以这**玩意到底怎么做出来的
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8503#       发表于 2020-6-22 11:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901571&amp;ptid=1941579" target="_blank">AloissiolA 发表于 2020-6-22 11:54</a>
+
+拿V8人概括到S1用户你开心吗</blockquote>
+没什么感觉，虽然v8是有吧主的时候我去看了就不太想待的地方。
+
+如果这里没有这么多好心老哥给我解惑。
+
+我也不会呆这里的。
+
+标签化的确不对。但是名声也确实存在阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这次是我以偏概全不对了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  包之沐白  
+##### 8504#       发表于 2020-6-22 12:01
+
+
+
+
+越喜欢一代就对2越恶心，是对一代的完全否定，当然还有neil的完全私货
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8505#       发表于 2020-6-22 12:01
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-22 11:53
+不过说实话我其实很想从这点聊下去的，虽然一直说箱推箱推。
+
+怎么充分利用箱推优势，怎么混脸熟，怎么不被 ...</blockquote>
+有本事出本事，没本事就卖脸经营人脉这种一般论，具体到yhm其实上限基本都锁死了，有的上限太低的努力只能维持在不被淹死的边缘也是蛮惨的。
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8506#       发表于 2020-6-22 12:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">我希望露露已经退款了。
+
+syl,
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/120343ov7ehezu19rer199.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5ef02d73858f2_5ef02d7397e6e.jpg</strong> (137.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 12:03 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8507#       发表于 2020-6-22 12:05
+
+
+
+[https://twitter.com/Ichikara_Inc/status/1274915927142719488](https://twitter.com/Ichikara_Inc/status/1274915927142719488)
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/120507dn9dj93ev9n997ns.png" referrerpolicy="no-referrer">
+
+
+<strong>en.png</strong> (78.97 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 12:05 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 8508#       发表于 2020-6-22 12:05
+
+
+
+
+多利安看了分析贴有被感动到
+
+最后一幕真的很动人，巅峰半圆的台词功底是很强的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8509#       发表于 2020-6-22 12:06
+
+
+
+
+『にじさんじ』を海外へ！英語圏向けYouTubeチャンネル「NIJISANJI English Official」本日より開設！
+
+[https://prtimes.jp/main/html/rd/p/000000153.000030865.html](https://prtimes.jp/main/html/rd/p/000000153.000030865.html) <blockquote>いちから株式会社（本社：東京都千代田区　代表取締役：田角陸、以下「いちから」又は「当社」）が運営するVTuber /バーチャルライバーグループ「にじさんじ」は、本日2020年6月22日より英語圏に向けた公式YouTubeチャンネルを開設いたします。また、当社が運営するインドVTuberグループ「NIJISANJI IN」を、英語圏VTuberグループとして「NIJISANJI EN」に名称変更いたします。</blockquote>[https://www.youtube.com/channel/UC-JSeFfovhNsEhftt1WHMvg](https://www.youtube.com/channel/UC-JSeFfovhNsEhftt1WHMvg)
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8510#       发表于 2020-6-22 12:06
+
+
+
+
+所以又变成经典的粪作狼人杀了？究竟几个人敢说天禄2粪作，几个人敢说和前作没法比，几个人会说“感觉不一样”之类的场面话，几个人会说“痛苦而美丽”这样的微妙发言，几个人会说还不错触怒玩家，几个人会大呼神作享受炎上
+
+
+快端上来吧，我都等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
+syl
+
+我露可一定要重拳出击辱骂nd啊<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8511#       发表于 2020-6-22 12:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901739&amp;ptid=1941579" target="_blank">free 发表于 2020-6-22 12:05</a>
+
+https://twitter.com/Ichikara_Inc/status/1274915927142719488</blockquote>
+嗯……印度人果然不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8512#       发表于 2020-6-22 12:06
+
+
+
+
+反向殖民草生
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8513#       发表于 2020-6-22 12:07
+
+
+
+
+IN直接变成EN，牛
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8514#       发表于 2020-6-22 12:08
+
+
+
+
+印度本土主义者激怒
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8515#       发表于 2020-6-22 12:08
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-22 12:09 编辑 
+
+#顽皮狗被1女子乱棍打死#
+
+
+NOOR起飞，芜湖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8516#       发表于 2020-6-22 12:08
+
+
+
+
+甘地震怒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 8517#       发表于 2020-6-22 12:08
+
+
+
+
+抄holo白嫖出来的作业了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8518#       发表于 2020-6-22 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901766&amp;ptid=1941579" target="_blank">AloissiolA 发表于 2020-6-22 12:07</a>
+
+IN直接变成EN，牛</blockquote>
+笑死我了三哥真的是不行
+
+
+akb的印度团也是各种迷
+
+
+印度本土真的是黑暗次大陆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，如果要服务海外三哥还不如直接en了事
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8519#       发表于 2020-6-22 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901790&amp;ptid=1941579" target="_blank">バーチャルS1er 发表于 2020-6-22 12:08</a>
+
+抄holo白嫖出来的作业了</blockquote>
+现在问题来了，这作业抄的起嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+嘛，至少有v<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8520#       发表于 2020-6-22 12:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901746&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-22 12:05</a>
+
+多利安看了分析贴有被感动到
+
+最后一幕真的很动人，巅峰半圆的台词功底是很强的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">一直渴望胜利，至今无败的我
+
+实际上，连一次都没有真正胜利过....
+
+喜剧！
+
+还有比这更可笑的事情嘛？
+
+......
+
+烈海王啊，我想，赢过你...
+
+你做不到的，你刚刚萌生的这真正的愿望，将被我这双手，彻底打碎
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8521#       发表于 2020-6-22 12:09
+
+
+
+
+看了下频道有俩视频
+
+
+Yuzuki Roa encounters a Minecraft Death Loop! [VTuber/NIJISANJI Moments]
+
+Ange plays Horror game ParanormalHK and scares herself! [VTuber/NIJISANJI Moments]
+
+
+
+
+
+               
