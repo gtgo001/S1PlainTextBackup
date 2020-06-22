@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-22 12:10** 
+> ## **本文件最后更新于2020-06-22 14:08** 
 
 
 
@@ -18698,7 +18698,7 @@ https://twitter.com/natsuiromatsuri/status/1114008035196715010
 <img src="https://img.saraba1st.com/forum/202006/22/111831ue6l7e67hzz6la7j.jpg" referrerpolicy="no-referrer">
 
 
-<strong>EbCLkpAU8AEANYR.jpg</strong> (120.7 KB, 下载次数: 0)
+<strong>EbCLkpAU8AEANYR.jpg</strong> (120.7 KB, 下载次数: 1)
 
 下载附件
 
@@ -20225,10 +20225,11 @@ TLOU2      □
 
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| yuandi0120| + 2|v不要啊|
 | UnhappyTails| + 1|太棒了，连我都感觉到不适XD|
 | 包之沐白| + 1|饶了观众吧|
 | 屑屑代沟尼亚| + 1|能恶心想看男人的粉 好！|
@@ -20695,4 +20696,1902 @@ Ange plays Horror game ParanormalHK and scares herself! [VTuber/NIJISANJI Moment
 
 
 
-               
+
+
+-----
+
+####  star_platinum  
+##### 8522#       发表于 2020-6-22 12:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901758&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-22 12:06</a>
+
+所以又变成经典的粪作狼人杀了？究竟几个人敢说天禄2粪作，几个人敢说和前作没法比，几个人会说“感觉不一 ...</blockquote>
+鲨皇的评价
+
+[https://t.bilibili.com/403025415934548452?tab=2](https://t.bilibili.com/403025415934548452?tab=2)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8523#       发表于 2020-6-22 12:13
+
+
+
+
+新的一周从车粪作开始？
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8524#       发表于 2020-6-22 12:14
+
+
+
+
+彩虹这个保持官频纯度的操作确实挺诡异的，之前的抄nico的巡游也特地搞个副频道结果效果平平，开在30w关注的官号估计效果能好不少
+
+专门搞个频道丢剪辑之前先把ぷちさんじ的英文字幕同步了不好，ickr脑子有病
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8525#       发表于 2020-6-22 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901814&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-22 12:10</a>
+
+鲨皇的评价
+
+[https://t.bilibili.com/403025415934548452?tab=2](https://t.bilibili.com/403025415934548452?tab=2)</blockquote>
+鲨皇又不是真的转职yhm了，国内游戏主播哪怕没有争议也要搞出争议，和那帮怕事儿各种场面话全肯定一股脑上去的言语力贫乏的单极管yhm不是一码事儿
+
+又不是膝盖生根的迹核网......
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8526#       发表于 2020-6-22 12:14
+
+
+
+
+我们讲道理啊，海苔男可以跟订阅不到自己三十分之一的男v搞bgcp营业，傻希怎么就不能跟律可营业了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+至于喜欢兽娘我觉得是真的。但是兽娘2嘛……就……
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8527#       发表于 2020-6-22 12:14
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/121447m7aen5hblw7b55li.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-avyfZuT3cSrs-q1 (1).jpg</strong> (301.93 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 12:14 上传
+
+
+
+
+
+
+
+趣图分享
+
+
+
+
+
+
+
+-----
+
+####  blattle  
+##### 8528#       发表于 2020-6-22 12:14
+
+
+
+
+第一管人也给了10/10,难道主流白人能理解这个？<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8529#       发表于 2020-6-22 12:15
+
+
+
+
+彩虹的印度公号变成英语圈公号哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8530#       发表于 2020-6-22 12:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901859&amp;ptid=1941579" target="_blank">blattle 发表于 2020-6-22 12:14</a>
+
+第一管人也给了10/10,难道主流白人能理解这个？</blockquote>
+要是能理解MC用户评分就不会是3.6了<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8531#       发表于 2020-6-22 12:19
+
+
+
+
+彩虹IN到底找的是哪个种姓的魂啊，不同种姓不能联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8532#       发表于 2020-6-22 12:19
+
+
+
+
+露皇这个tlou2如果播了，以日本人&amp;露皇的一贯性格，无论真实感受如何，我觉得都不会说出什么太批判的话；结论：放弃希望躺平吧<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 8533#       发表于 2020-6-22 12:21
+
+
+
+
+个人品味是很玄乎的东西，爱的爱死，恨的恨死，我倒不觉得有什么问题。
+syl izuru有人给他做了粉丝一周年祝贺视频，虽然质量……，不过也是心意
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 8534#       发表于 2020-6-22 12:21
+
+
+
+
+所以neil还是快点死吧
+害人啊
+
+
+
+
+
+
+
+-----
+
+####  死体残留  
+##### 8535#       发表于 2020-6-22 12:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">阿凛在播tlou2二周目，这💩居然吃两次，或者还是当剧情不存在爽游来玩？
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 8536#       发表于 2020-6-22 12:25
+
+
+
+
+你看管人底特律播了这么多，能直球说这故事不太行的有几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8537#       发表于 2020-6-22 12:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   我猜测yhm估计是会觉得底特律故事挺行的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8538#       发表于 2020-6-22 12:27
+
+
+
+
+别说yhm了，vup都有因为底特律上架steam现在开始播的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8539#       发表于 2020-6-22 12:27
+
+
+
+
+底特律的故事不是挺好的嘛（小声）
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 8540#       发表于 2020-6-22 12:29
+
+
+
+
+底特律就是把解放奴隶制换了个皮
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 8541#       发表于 2020-6-22 12:30
+
+
+
+
+不如阿希和star联动同时视听兽娘2
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 8542#       发表于 2020-6-22 12:32
+
+
+
+
+马库斯一键免费是最艹的，一键**的"自由意志"。同期当时在播beatless，立意上被爆惨了。
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8543#       发表于 2020-6-22 12:32
+
+
+
+
+啊，二二姐的伟岸形象，崩塌了<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 8544#       发表于 2020-6-22 12:33
+
+
+
+
+底特律虽然故事一般般但角色刻画还可以了
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8545#       发表于 2020-6-22 12:34
+
+
+
+
+底特律的剧本艹点过多，而且没有理论光凭口号。
+
+成功完全就是白左那一套，
+
+失败也不奇怪。
+
+人物塑造的倒是挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8546#       发表于 2020-6-22 12:34
+
+
+
+
+我对马库斯线没什么兴趣，但是另外2条很喜欢。大概是因为我没什么大爱吧。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8547#       发表于 2020-6-22 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47902155&amp;ptid=1941579" target="_blank">erer 发表于 2020-6-22 12:34</a>
+
+我对马库斯线没什么兴趣，但是另外2条很喜欢。大概是因为我没什么大爱吧。 ...</blockquote>
+没事，大家都觉得马库斯那线丢人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 8548#       发表于 2020-6-22 12:36
+
+
+
+
+底特律给我的唯一感受是死肥宅好惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 8549#       发表于 2020-6-22 12:40
+
+
+
+
+马库斯线给我的感觉是莫名其妙，尤其是结局为什么一个kiss就能拯救世界啊？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">但是康纳线跟卡拉线很合我心意，尤其是卡拉跟爱丽丝的母女情，掬一把泪。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8550#       发表于 2020-6-22 12:40
+
+
+
+
+beatless何德何能跟当时的霸权番比啊，坚持看完的就没几个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8551#       发表于 2020-6-22 12:44
+
+
+
+
+等tlou2拿了今年的tga你们就知错了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 8552#       发表于 2020-6-22 12:45
+
+
+
+ 本帖最后由 proxima 于 2020-6-22 12:47 编辑 
+
+我记得苔宝满脑子都是康纳汉克cp，再就是卡拉线乱哭，马库斯线……嗯……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有就是打暴雨特喜欢肥仔侦探对男主一点兴趣都没有，但是知道真相之后对肥仔一转翻脸
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 8553#       发表于 2020-6-22 12:47
+
+
+
+
+四月一日第二季也完结了啊，最后爱丽丝找到家人了还要回来和姐俩住一起有点强行的。
+
+第二季总的来说建模和表情精致了不少，姐三个都有了新衣服，加了二楼和酒吧的模型，也不搞罐头笑和谐音笑话了，看起来观感好了一些。不过就是酒吧四人组不知道是干啥的，好像是强行插 进来一样......
+
+最后怎么还留个尾巴，不会还有第三季吧。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 8554#       发表于 2020-6-22 12:48
+
+
+
+
+第三季要换人啊
+
+又要上谁
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8555#       发表于 2020-6-22 12:48
+
+
+
+
+警惕v综转型游戏区
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 8556#       发表于 2020-6-22 12:49
+
+
+
+
+管人什么时候和游戏分开过
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 8557#       发表于 2020-6-22 12:53
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/125314oc2c4fwqff8f28c9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200622124845.jpg</strong> (113.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 12:53 上传
+
+
+
+
+
+
+こんあくあ~
+
+
+
+码不是我打的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 8558#       发表于 2020-6-22 12:55
+
+
+
+
+为什么要打这种码<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8559#       发表于 2020-6-22 12:55
+
+
+
+
+我对游戏和动画的剧情要求只是能看就行，能谈得上剧情好的那真是屈指可数
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8560#       发表于 2020-6-22 12:55
+
+
+
+
+吃完饭打开电脑本来想怒喷你楼就知道车游戏狐皇播了都没repo，仔细一看又是apex，告辞…
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8561#       发表于 2020-6-22 12:59
+
+
+
+
+狐皇的apex不就是看她对一般通过妈宝幻象发情吗
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 8562#       发表于 2020-6-22 12:59
+
+
+
+
+露露这么亚撒西怎么可能会喷nd，倒是她早早买了却迟迟不播，怕不是已经被剧透过了
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 8563#       发表于 2020-6-22 13:00
+
+
+
+
+因为没弹幕看感觉缺少味道，他b又把四一给会员限定了，还不是只限一周的。这季完全没看。vtuber这圈那么少他b也值得去给会员限定没意思。
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 8564#       发表于 2020-6-22 13:05
+
+
+
+[https://www.bilibili.com/video/BV17Z4y1H7Bt](https://www.bilibili.com/video/BV17Z4y1H7Bt) 草
+
+
+
+
+
+
+f.png
+(100.64 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130142tx657dgw7s6s7s7l.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f1.png
+(219.06 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130148iph71jz11je1pgg8.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f2.png
+(96.35 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130154cynd9dzyk0z2a0wb.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f3.png
+(64.95 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:01 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130159u44icvazi43w7oo6.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f4.png
+(75.1 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:02 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130204jp4qvpj64vvjvqjz.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f5.png
+(36.43 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130504gm1q18umy857dudu.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+f6.png
+(18.17 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-22 13:05 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/130508q74q8m0vqa8rzkro.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8565#       发表于 2020-6-22 13:05
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-22 13:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">不播挺好的，宁愿看魔剑传说工商
+
+西子凛不仅二刷还不跳剧情，当时进直播间正好是高尔夫，就问厉害不厉害
+
+
+
+靠，感谢楼上截图，背景给我吓走了😁
+
+syl,
+[https://www.youtube.com/channel/UC-JSeFfovhNsEhftt1WHMvg](https://www.youtube.com/channel/UC-JSeFfovhNsEhftt1WHMvg)
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/132417dcflf9cl0s73o077.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5ef040698d303_5ef0407040173.jpg</strong> (97.98 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 13:24 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 8566#       发表于 2020-6-22 13:09
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47901950&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-22 12:21</a>
+
+所以neil还是快点死吧
+
+害人啊</blockquote>
+要是我露估计场面说出讨好这粪游的话我都不知道该做出什么表情了
+
+
+但是真的直接硬杠也不像是我露的风格，希望yygq吧，至少也来几句微妙评价吧，求求了
+
+
+nd真的。不配拥有家人<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8567#       发表于 2020-6-22 13:10
+
+
+
+
+底特律我云了一下除了故意喂屎太多还觉着挺好玩，品味贱民化
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8568#       发表于 2020-6-22 13:14
+
+
+
+ 本帖最后由 IDIDIDID 于 2020-6-22 13:15 编辑 
+
+今天holo爆炸了吗？
+
+话说一流VTB线可不可以就定成三小姐线，她当100名守门员小半年了。
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 8569#       发表于 2020-6-22 13:15
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-22 13:27 编辑 
+
+ema唱得什么鬼东西啊？
+裸春排面呢？逼格呢？
+不用这么放飞自我吧？
+
+
+组成dustcell之后我最喜欢的作品是没有ema人声的misumi电子乐和不是misumi作曲的ema翻唱作。亏得fake还是我以前最喜欢的翻唱曲，怎么就不能再创佳绩呢？
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8570#       发表于 2020-6-22 13:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47902569&amp;ptid=1941579" target="_blank">tglals 发表于 2020-6-22 13:05</a>
+https://www.bilibili.com/video/BV17Z4y1H7Bt 草</blockquote>
+这是t台的内容吗，这背景图是小肥妹自己选的吗<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+我忍着这张图听到这段我都佩服我自己。
+
+
+
+
+
+
+
+-----
+
+####  tglals  
+##### 8571#       发表于 2020-6-22 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47902759&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-22 13:20</a>
+
+这是t台的内容吗，这背景图是小肥妹自己选的吗
+
+我忍着这张图听到这段我都佩服我自己。 ...</blockquote>
+背景图不是吧，应该是最近的那期t台。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 8572#       发表于 2020-6-22 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47902342&amp;ptid=1941579" target="_blank">free 发表于 2020-6-22 12:47</a>
+
+四月一日第二季也完结了啊，最后爱丽丝找到家人了还要回来和姐俩住一起有点强行的。
+
+第二季总的来说建模和 ...</blockquote>
+虽然结局不行，但是优秀的单集多了呢，挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8573#       发表于 2020-6-22 13:36
+
+
+
+
+彩虹的中文特攻卡什么时候抽出来？给维阿一点压力也是好的
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 8574#       发表于 2020-6-22 13:37
+
+
+
+
+怪不得尾宝这么沉迷B综，维阿这几个月也太能整活了8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8575#       发表于 2020-6-22 13:37
+
+
+
+
+哦，对哦，皮会不会就狗妈画的那个哦
+
+
+露露的话倒是不希望她来B，要不要拓展欧美市场呢
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8576#       发表于 2020-6-22 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47902995&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-22 13:37</a>
+怪不得尾宝这么沉迷B综，维阿这几个月也太能整活了8</blockquote>
+微博转发抽奖女粉下场了是这样
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 8577#       发表于 2020-6-22 13:39
+
+
+
+
+维阿这波就是黑宝盼的女粉吗
+
+太可怕了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8578#       发表于 2020-6-22 13:40
+
+
+
+
+黑宝晓得了吧，女粉自卫队建立起来你肯定要被清算的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8579#       发表于 2020-6-22 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903010&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-22 13:39</a>
+
+维阿这波就是黑宝盼的女粉吗
+
+太可怕了</blockquote>
+不要再说了，我为自己曾说出那种话感到耻辱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 8580#       发表于 2020-6-22 13:42
+
+
+
+
+星的女粉自卫队建立起来第一个被清算的肯定是马自立<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 8581#       发表于 2020-6-22 13:44
+
+
+
+
+没事，女粉敢造反狐皇就帮星平叛诛逆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8582#       发表于 2020-6-22 13:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903076&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-22 13:44</a>
+没事，女粉敢造反狐皇就帮星平叛诛逆</blockquote>
+狐皇不就是星的日本女粉头子吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oshinoshinobu  
+##### 8583#       发表于 2020-6-22 13:46
+
+
+
+
+维阿又整啥活了
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8584#       发表于 2020-6-22 13:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">B宗我现在都不敢看
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8585#       发表于 2020-6-22 13:47
+
+
+
+
+B综已经快进到我看不懂的地步了
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8586#       发表于 2020-6-22 13:48
+
+
+
+
+看看走廊的微博带新闻楼
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 8587#       发表于 2020-6-22 13:48
+
+
+
+<blockquote>SuntoryNomu 发表于 2020-6-22 13:37
+哦，对哦，皮会不会就狗妈画的那个哦
+
+
+露露的话倒是不希望她来B，要不要拓展欧美市场呢 ...</blockquote>
+鬼佬有很多喜欢露露，但露这英文水平还是算了...虽然偶尔冒出2句英文鬼佬都能兴奋一阵
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 8588#       发表于 2020-6-22 13:49
+
+
+
+
+英文不是问题  狗皇英文水平也很一般  
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8589#       发表于 2020-6-22 13:49
+
+
+
+
+b综粉头下场太多，有点生理不适
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 8590#       发表于 2020-6-22 13:50
+
+
+
+
+只要你用谷歌翻译都能够白皮们兴奋了。
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 8591#       发表于 2020-6-22 13:51
+
+
+
+
+所以我一直不理解为什么国v还要搞这种官组，毫无意义而且会助长这种粉头风气
+
+
+
+
+
+
+
+-----
+
+####  世界的小哥  
+##### 8592#       发表于 2020-6-22 13:53
+
+
+
+
+草  看了一眼外面的b综和w综，有我没事干吃国内娱乐圈瓜时什么都看不懂的味道了
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8593#       发表于 2020-6-22 13:53
+
+
+
+
+因为剪辑比直播好推广吧，不过vup为什么不试试狐皇的沙雕短视频呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  1678334706  
+##### 8594#       发表于 2020-6-22 13:53
+
+
+
+
+可能b综就是v圈的真实写照吧 只是因为v综粉的都是日v 所以稍微平稳那么一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8595#       发表于 2020-6-22 13:53
+
+
+
+
+可能是日v建组带的头？
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 8596#       发表于 2020-6-22 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903201&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-22 13:53</a>
+
+因为剪辑比直播好推广吧，不过vup为什么不试试狐皇的沙雕短视频呢</blockquote>
+aza做过，效果还不错
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8597#       发表于 2020-6-22 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903202&amp;ptid=1941579" target="_blank">1678334706 发表于 2020-6-22 13:53</a>
+可能b综就是v圈的真实写照吧 只是因为v综粉的都是日v 所以稍微平稳那么一点 ...</blockquote>
+你是指出了2000和小博禹等一大堆巨魔的日v圈？
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 8598#       发表于 2020-6-22 13:55
+
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gg10v93yu7j20x30iowim.jpg" referrerpolicy="no-referrer">
+
+
+ただの虐めで草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 8599#       发表于 2020-6-22 13:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Hi, I'm Shark. 爱慕憨格力
+
+“学好一门外语是多么的重要啊！”
+
+syl,
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/135236sxa1p9lxapcmi1gn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbCA6Z9UcAENkLn.jpg</strong> (337.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 13:52 上传
+
+
+
+
+
+
+[https://twitter.com/kuma_daigorou/status/1274660512559624193](https://twitter.com/kuma_daigorou/status/1274660512559624193)
+
+
+
+
+
+
+
+-----
+
+####  Mika-S  
+##### 8600#       发表于 2020-6-22 13:55
+
+
+
+
+你就是天天看vup现在b综那什么瓜也不一定能看懂啊，我反正看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8601#       发表于 2020-6-22 13:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903228&amp;ptid=1941579" target="_blank">Mika-S 发表于 2020-6-22 13:55</a>
+你就是天天看vup现在b综那什么瓜也不一定能看懂啊，我反正看不懂</blockquote>
+我也看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 8602#       发表于 2020-6-22 13:56
+
+
+
+<blockquote>空集 发表于 2020-6-22 13:49
+英文不是问题  狗皇英文水平也很一般</blockquote>
+之前看到有个以露露为主的虹杏的英文剪辑man，在社区里晒狗给他的英文回复呢..我露么...emmm
+
+
+
+
+
+
+
+-----
+
+####  AloissiolA  
+##### 8603#       发表于 2020-6-22 13:56
+
+
+
+
+いちからではVTuber事業を広く海外に展開し、世界各国に<strong>ローカライズする</strong>ことで熱量の高いグローバルファンの獲得を目指しています。
+
+
+カバー株式会社は「<strong>日本発のバーチャルタレントIP</strong>で世界中のファンを熱狂させる」ことをビジョンとする次世代のエンターテインメント企業です
+
+
+🤔
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 8604#       发表于 2020-6-22 14:00
+
+
+
+
+B综从哪儿开始爬？好哥哥给个坐标…<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 8605#       发表于 2020-6-22 14:00
+
+
+
+
+但是V综粉丝疯了也就疯了，没啥杀伤力，也就2000的韩国人理论最尼玛祸害直播体验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 8606#       发表于 2020-6-22 14:01
+
+
+
+
+维阿和杏cn，虹id和杏id，活动形式上真的有本质区别吗，我怎么看都觉得很像
+
+
+YAGOO看到今天的新闻估计心里又在感谢田角老弟帮忙扫雷了，然后给holoin画上了删除线
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 8607#       发表于 2020-6-22 14:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> SSg那个寿寿寿寿寿寿寿寿寿寿寿也太不基德了，看着就像尊尊尊尊尊尊尊尊尊尊。
+
+
+第一次感觉到这么直观的恨意，
+
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 8608#       发表于 2020-6-22 14:02
+
+
+
+
+今天面包狗同时试听的这个。。。好看吗
+
+<img src="https://img.saraba1st.com/forum/202006/22/140123jzsdrs32sjskw7s2.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-22 140008.png</strong> (52.27 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 14:01 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8609#       发表于 2020-6-22 14:02
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/22/140241igjg0dldwj3rb0zk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200622150158.jpg</strong> (39.4 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-22 14:02 上传
+
+
+
+
+
+
+
+草，谁做的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 8610#       发表于 2020-6-22 14:03
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-22 14:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903301&amp;ptid=1941579" target="_blank">激光2000 发表于 2020-6-22 14:01</a>
+SSg那个寿寿寿寿寿寿寿寿寿寿寿也太不基德了，看着就像尊尊尊尊尊尊尊尊尊尊。
+
+
+第一次感觉到这么 ...</blockquote>
+那是弥人的弥弥弥弥弥弥弥弥的模因变种，类似的还有版主的光光光光光光光光（以及版版版版版版），反正只要最近谁不播就可以这么刷
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 8611#       发表于 2020-6-22 14:03
+
+
+
+
+能用英语为什么要用片假名啊啊......localize用假名也太难认了
+
+
+回楼主，大概是指日本本社成员在海外影响力这方面吧，而非海外企划
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 8612#       发表于 2020-6-22 14:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47903305&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-22 14:02</a>
+
+今天面包狗同时试听的这个。。。好看吗</blockquote>
+巨鸡儿吓人，全程18G，肠子内脏满天飞那种
+
+
+
+
+
+            
