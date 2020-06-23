@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-23 12:09** 
+> ## **本文件最后更新于2020-06-23 14:12** 
 
 
 
@@ -16856,4 +16856,1768 @@ Holostars最强！
 
 
 
-                    
+
+
+-----
+
+####  超能力者stven  
+##### 9890#       发表于 2020-6-23 12:12
+
+
+
+
+为啥不是小天使打头…
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9891#       发表于 2020-6-23 12:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916586&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-23 11:24</a>
+
+说到这个嘛
+
+龙皇的观众倾向比较有趣
+
+他们更多的倾向于喜欢直播时给龙皇打钱看她的反应</blockquote>
+这个理论也能解释为啥龙皇和kson两个号sc差距上百倍，终于解惑了，sc在龙皇这里确实发挥着醒目留言的作用
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9892#       发表于 2020-6-23 12:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917229&amp;ptid=1941579" target="_blank">超能力者stven 发表于 2020-6-23 12:12</a>
+
+为啥不是小天使打头…</blockquote>
+同期ACE打头是惯例
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9893#       发表于 2020-6-23 12:15
+
+
+
+
+祭丝看看这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+地下偶像突然怀孕发表，gachi恋发狂
+
+【悲報】地下アイドルさん、急に妊娠を発表してガチ恋ヲタクを発狂させてしまう
+[https://twitter.com/maboten_info/status/1275036689279275009](https://twitter.com/maboten_info/status/1275036689279275009)
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9894#       发表于 2020-6-23 12:15
+
+
+
+
+车回润润的话，现在只是她什么时候换头像的问题了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9895#       发表于 2020-6-23 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917062&amp;ptid=1941579" target="_blank">鬼正黑 发表于 2020-6-23 12:00</a>
+
+这也可以一转口了虐吗？</blockquote>
+口了虐，虽然少但都挺不错的，方向性都还蛮一致的。
+
+通过我的CP脑转换就是”口了比郡道更需要mrra“，但这个说出来真的很欠揍，我先向口了推道歉了...
+
+
+省一楼，V综好像还蛮多字幕组的，我隔空给床组传个话吧，inui的偷花人评论区里那个gbtk言论是我说的，但我没想到会顶到那么前排...想想看觉得非cp曲热评是cp相关还蛮微妙的，如果字幕组也觉得不太好的话可以删掉，我都ok的。
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 9896#       发表于 2020-6-23 12:21
+
+
+
+
+看了啊peko的vr录播，这节目效果太好了吧，讲道理既然是v就应该多玩点vr嘛，发挥优势
+顺带一提我在油管很早关注了一个主打beatsaber的虚拟形象叫omotea，玩各种vr跳舞游戏挺可爱的，虽然中之人大概率不是妹子但反正也不说话没啥关系，算相对纯粹的v形象？
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 9897#       发表于 2020-6-23 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  我觉得润润还是可以交替着用吧  彻底不用绿  不说一个之前形象放弃的问题吧   三期生各自挂的全员图上的粽子也还都是绿的呢 
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9898#       发表于 2020-6-23 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917240&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-23 12:12</a>
+
+这个理论也能解释为啥龙皇和kson两个号sc差距上百倍，终于解惑了，sc在龙皇这里确实发挥着醒目留言的作用 ...</blockquote>
+龙和kson的差距是hololive啊，她个人能力虽然强但也比不过有引流的企业势啊
+
+
+syl，龙最近学了一个新的sc艺（以前是sc rockbye），高速吐槽sc确实很有意思的
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9899#       发表于 2020-6-23 12:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917263&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-23 12:14</a>
+
+同期ACE打头是惯例</blockquote>
+三期是严格按照5W线的顺序发布的，四期应该是同理按照10W线的速度，那第一个就是龙皇呀
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 9900#       发表于 2020-6-23 12:23
+
+
+
+<blockquote>Mafise 发表于 2020-6-23 12:21
+看了啊peko的vr录播，这节目效果太好了吧，讲道理既然是v就应该多玩点vr嘛，发挥优势
+
+顺带一提我在油管很早 ...</blockquote>
+
+虽然不是vr，但noracat，最懂男人的还是男人
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9901#       发表于 2020-6-23 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917354&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-23 12:23</a>
+
+龙和kson的差距是hololive啊，她个人能力虽然强但也比不过有引流的企业势啊
+
+
+syl，龙最近学了一个新的sc ...</blockquote>
+我说的是现在的kson和龙皇的sc,不是她加入hololive之前。kson这个号从原本的几百同接？涨到5000同接，龙皇这边的引流很明显，但是sc却没有显著增长，没有那种为了不让holo抽成选择在kson号上打钱的gachi
+
+
+
+
+
+
+
+-----
+
+####  鬼正黑  
+##### 9902#       发表于 2020-6-23 12:27
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-23 12:20
+口了虐，虽然少但都挺不错的，方向性都还蛮一致的。
+
+通过我的CP脑转换就是”口了比郡道更需要mrra“，但 ...</blockquote>
+怎么说呢，以前的话多少也能感觉到这点，所以也没什么
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|敬mrra！（泣）|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 9903#       发表于 2020-6-23 12:29
+
+
+
+
+绿粽子粉粽子有甜党咸党那味了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9904#       发表于 2020-6-23 12:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917359&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-23 12:23</a>
+
+三期是严格按照5W线的顺序发布的，四期应该是同理按照10W线的速度，那第一个就是龙皇呀 ...</blockquote>
+是，老有人觉得要按出道顺序发，其实3D就是单纯看成绩
+
+以前一二期Gamers混编3D的时候，还有个前辈后辈排顺序的问题，现在都是同期就很简单了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9905#       发表于 2020-6-23 12:36
+
+
+
+ 本帖最后由 QWANG 于 2020-6-23 12:40 编辑 
+
+润润已经把旧衣装打为过去的自己了，以后可能会偶尔客串，但要取代主人格应该是不可能的了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ktmoon  
+##### 9906#       发表于 2020-6-23 12:39
+
+
+
+
+说起来现在HOLO一期生里除了狐皇同接SC数字最好看的是谁？阿希还是哈恰玛？
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9907#       发表于 2020-6-23 12:39
+
+
+
+
+看来刘皇叔也想要端午那个玩意
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 9908#       发表于 2020-6-23 12:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917569&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-23 12:39</a>
+
+看来刘皇叔也想要端午那个玩意</blockquote>
+啥，这怎么看出来的
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9909#       发表于 2020-6-23 12:44
+
+
+
+
+同接红心好点
+
+sc马自立多
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9910#       发表于 2020-6-23 12:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9911#       发表于 2020-6-23 12:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917682&amp;ptid=1941579" target="_blank">睥睨寰宇荡红尘 发表于 2020-6-23 12:46</a>
+我们绿党还是挺多的
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+这尼玛是个crew群吧
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9912#       发表于 2020-6-23 12:49
+
+
+
+
+俺寻思着那颜色是粉色吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9913#       发表于 2020-6-23 12:50
+
+
+
+
+夸群吹绿皮，要有梁木了
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 9914#       发表于 2020-6-23 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917436&amp;ptid=1941579" target="_blank">口苗口苗口 发表于 2020-6-23 12:29</a>
+
+绿粽子粉粽子有甜党咸党那味了</blockquote>
+我就说吧
+
+
+发色这东西对你juan的辨识度太关键了
+
+
+换发色很可能导致粉丝自己都不知道在支持谁了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9915#       发表于 2020-6-23 12:52
+
+
+
+
+holo还是赶紧安排新衣装的3D吧，依我看为了降低绿浓度她可能暂时不会参加3D联动和3D节目。我还想看三期生3D呢。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9916#       发表于 2020-6-23 12:54
+
+
+
+
+MK2也是crew么？别恶心我，还特意取消屏蔽去看他说了啥
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9917#       发表于 2020-6-23 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917602&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-23 12:42</a>
+
+啥，这怎么看出来的</blockquote>
+你看下榜单
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9918#       发表于 2020-6-23 12:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">润姨是有绿色ptsd吗，对绿粽这么抵触？
+
+
+
+
+
+
+
+-----
+
+####  逃离学校  
+##### 9919#       发表于 2020-6-23 12:56
+
+
+
+
+绿色的根本不想看，粉色的我还看了几次，不过只是路人角度。
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9920#       发表于 2020-6-23 12:57
+
+
+
+
+纯crew 喜欢粉发<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9921#       发表于 2020-6-23 12:57
+
+
+
+
+润姨应该先用粉色原发型一段时间，让观众看惯了再换双马尾。
+话说润姨过几天突然来个绿毛限定歌回的饥饿营销会不会被打钱打到爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 9922#       发表于 2020-6-23 12:58
+
+
+
+ 本帖最后由 star_platinum 于 2020-6-23 13:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47917792&amp;ptid=1941579" target="_blank">IDIDIDID 发表于 2020-6-23 12:54</a>
+你看下榜单</blockquote>
+她是榜单第三不代表她就想冲榜一啊，反正最近真没看出她有啥想冲榜的操作，直播内容都跟平时差不多的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过星街正好掐在比赛结束前的25号来看来是真的打定主意想要这原创曲了
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9923#       发表于 2020-6-23 13:00
+
+
+
+ 本帖最后由 QWANG 于 2020-6-23 13:06 编辑 
+
+要说她有点表明倾向还是之前一段时间她说不喜欢青蛙，也不喜欢被叫青蛙。不喜欢青蛙这件事在魂号也说了一遍，应该不假。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">至于她喜欢粉色这点都重复好多次了。
+
+syl
+
+我觉得她还是别招魂了，对大家都好。zsyl
+
+来点轶事，她最喜欢的动物应该是兔子。ぺこるし最强！ぺこるし最强！ぺこるし最强！
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9924#       发表于 2020-6-23 13:03
+
+
+
+
+偶尔使小性子也是养gachi的标准手段，当然要看谁来用，苔苔这么玩肯定没用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 9925#       发表于 2020-6-23 13:05
+
+
+
+
+u1s1，我喜欢绿毛
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9926#       发表于 2020-6-23 13:11
+
+
+
+
+我也看惯了绿毛的粽子，虽然现在这个粉毛我感觉也快看惯了，不过闭上眼睛听到粽子的声音脑子里肯定还是先出现绿毛，可能她播多了能把人掰过去。
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 9927#       发表于 2020-6-23 13:12
+
+
+
+
+润姨的绿色ptsd难道是因为某学院喜欢爆豪讨厌绿谷？
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9928#       发表于 2020-6-23 13:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918021&amp;ptid=1941579" target="_blank"> kokonotree 发表于 2020-6-23 13:12</a> 润姨的绿色ptsd难道是因为某学院喜欢爆豪讨厌绿谷？ </blockquote>
+这发散的够远啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 9929#       发表于 2020-6-23 13:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好角度 等下V吧就给你安排上了
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9930#       发表于 2020-6-23 13:15
+
+
+
+
+车了无数遍了，她喜欢粉色用粉色没问题，最大的问题是这么大的外貌变化，以前所有的立绘3D模型什么的全部都要重新更新换掉，。有必要中途突然变更吗为什么不出道前就商量好用粉色完事了？那些粽子的绘师特别是刚完成的那些人真的内心不知道怎么想的
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9931#       发表于 2020-6-23 13:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918021&amp;ptid=1941579" target="_blank">kokonotree 发表于 2020-6-23 13:12</a>
+
+润姨的绿色ptsd难道是因为某学院喜欢爆豪讨厌绿谷？</blockquote>
+这过于发散了啊，而且她现在也没那么喜欢爆豪了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9932#       发表于 2020-6-23 13:16
+
+
+
+
+话说优十吃自家已婚女粉的白饭就被开，美妃姐姐睡多少人了怎么就不被开呢
+
+难道男的就低人一等吗，气抖冷来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9933#       发表于 2020-6-23 13:19
+
+
+
+
+现充染发和吃饭似的，怎么一个纸片人染发还能发散那么多的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9934#       发表于 2020-6-23 13:19
+
+
+
+
+黑屁没锤怎么开，话说律可这事也没锤，所以也开不起来的，祭丝就死心吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Suny08  
+##### 9935#       发表于 2020-6-23 13:20
+
+
+
+
+现充人设和发色无关，纸片人的发色是重要人设之一
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9936#       发表于 2020-6-23 13:21
+
+
+
+
+一个决定性证据都没有也只有V8能滥开了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9937#       发表于 2020-6-23 13:22
+
+
+
+
+粽皇这粉毛再怎么说也就是个特别版，不至于当主人设，全部换一套那她面子可太大了，是真正的大清算
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9938#       发表于 2020-6-23 13:25
+
+
+
+
+看她以后会不会拿绿出来用呗。老实说我也没想到她做得这么决绝。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 9939#       发表于 2020-6-23 13:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我感觉全部换一套这个没先例也不现实 但是润姨这个小性子估计是要耍一阵子  这个是不是再一次说明润姨实质真YHM  感觉我喜欢的几个姨都不会纠结这些事情
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9940#       发表于 2020-6-23 13:26
+
+
+
+
+我家紫宝还有圆角疑惑呢<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+紫宝真去圆角一定是我们钱打的还不够多
+
+姨由心生，建议给润姨封一个永久YHM
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9941#       发表于 2020-6-23 13:28
+
+
+
+
+中之人的爱好改变了皮的原始设定，棕姨这是不是第一例
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9942#       发表于 2020-6-23 13:28
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-23 13:30 编辑 
+
+龙皇和马自律的3D中间还有空位，兔子的新衣服能不能塞进去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+话说梅露到底还播不播，上次不还发了要回来庆祝2周年的消息吗
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9943#       发表于 2020-6-23 13:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">自由恋爱而已，睡谁不是谁，你情我愿就行啊，又不是强〇
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 9944#       发表于 2020-6-23 13:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">补了昨晚会限 夏哥说因为自搜看到观众说杂谈回跟歌回有点多就把频率减了增加了游戏回 
+
+阿叔这波伤害为零 不值得
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9945#       发表于 2020-6-23 13:30
+
+
+
+
+对了 叔的SC夏哥什么反应？我昨天没看
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9946#       发表于 2020-6-23 13:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918222&amp;ptid=1941579" target="_blank"> 屑屑代沟尼亚 发表于 2020-6-23 13:29</a> 补了昨晚会限 夏哥说因为自搜看到观众说杂谈回跟歌回有点多就把频率减了增加了游戏回  阿叔这波伤害为零 不值得 </blockquote>
+阿叔连holostars几个字都不敢打出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">有个屁杀伤力来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9947#       发表于 2020-6-23 13:31
+
+
+
+ 本帖最后由 あのん 于 2020-6-23 14:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918201&amp;ptid=1941579" target="_blank">aele 发表于 2020-6-23 14:28</a>
+
+中之人的爱好改变了皮的原始设定，棕姨这是不是第一例</blockquote>
+つ白上フブキ
+
+一开始还放学回家写作业呢，现在已经完全变成梦女了
+
+不过白姨换人设春风细雨，不像润姨这么突兀
+
+而且一直在用的大妈皮估计就是白姨的审美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 9948#       发表于 2020-6-23 13:32
+
+
+
+
+这话说的，等一个白姨牛仔吊带裤双马尾麻花辫新皮
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9949#       发表于 2020-6-23 13:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918239&amp;ptid=1941579" target="_blank">あのん 发表于 2020-6-23 13:31</a>
+つ白上フブキ
+
+一开始还放学回家写作业呢，现在已经完全变成梦女了
+
+不过白姨换人设春风细雨，不像润姨这么 ...</blockquote>
+狐皇好像是说过喜欢这个大妈皮
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 9950#       发表于 2020-6-23 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">看了一下彩虹昨天出的那个NIJISANJI English Official频道，选材切片感觉没有明确方向啊
+
+而且这两天才三个，按道理来说不是一次备好二三十个攒波大的么
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这视频制作还没nico做的那种综艺感强，太过朴素了
+
+
+
+
+
+
+
+-----
+
+####  KyotoAnimation  
+##### 9951#       发表于 2020-6-23 13:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">某些七色人真是冰清玉洁呢，提粉丝行为主播买单用杏人举例？怎么不提提您家天皇、shizurin、龙胆尊、诗子在路人眼里的梁木是怎么来的？
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">杏小鬼就是再多，有您家粉丝里满坑满谷的精日高华恶心人吗？
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9952#       发表于 2020-6-23 13:34
+
+
+
+
+另外话说回来狗子的面包店打工的RP今年最近这几个月几乎没再提及了
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 9953#       发表于 2020-6-23 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918223&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-23 13:30</a>
+对了 叔的SC夏哥什么反应？我昨天没看</blockquote>
+阿希：只是你自己那么以为的
+然后反手放了个和律可的3d联动图
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9954#       发表于 2020-6-23 13:35
+
+
+
+
+怎么说呢，白上换人设这个，有种“我实在演不下去”的意思，观众相对好理解
+
+现在想起来，即使是mio出道那会，搞什么同学设定我依然感觉相当羞耻，JK设定扔了就扔了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 9955#       发表于 2020-6-23 13:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918223&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-23 13:30</a>
+
+对了 叔的SC夏哥什么反应？我昨天没看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">【祭完全感觉不远啊】【没这回事啊】【祭啊】【其他的vtb】【比其他人更近的自信是有的啊】【说实话有比较近的自信啊】  直接把同传贴过来吧 你要看的话在30分左右
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9956#       发表于 2020-6-23 13:35
+
+
+
+ 本帖最后由 aele 于 2020-6-23 13:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">旧皮穿了一年半那是会喜欢新皮啊
+
+而且这皮有那么大妈么，有没有懂女人衣服的现充讲讲
+
+syl 祭丝这SC看来完全没效果，白打了
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 9957#       发表于 2020-6-23 13:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918201&amp;ptid=1941579" target="_blank">aele 发表于 2020-6-23 13:28</a>
+
+中之人的爱好改变了皮的原始设定，棕姨这是不是第一例</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">彩虹很多人的新衣服是根据他们直播内容改的，比如说社长的打牌服，牛姨的赌马服
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9958#       发表于 2020-6-23 13:37
+
+
+
+ 本帖最后由 QWANG 于 2020-6-23 13:42 编辑 
+
+润润设定不是‘魔界学校所属，不擅长在人前表现的Necromancer(死灵术士)少女。讨厌孤单因而会和死灵及尸体聊天。’吗？没什么变化啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9959#       发表于 2020-6-23 13:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918284&amp;ptid=1941579" target="_blank">口苗口苗口 发表于 2020-6-23 13:35</a>
+
+阿希：只是你自己那么以为的
+
+然后反手放了个和律可的3d联动图</blockquote>
+。
+
+真悲伤
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9960#       发表于 2020-6-23 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918291&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-23 13:35</a>
+
+【祭完全感觉不远啊】【没这回事啊】【祭啊】【其他的vtb】【比其他人更近的自信是有的啊】【说实 ...</blockquote>
+。没法说了真的
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9961#       发表于 2020-6-23 13:43
+
+
+
+
+走到这一步是真的gachi粉碎机了
+
+gachi以这种结果强制脱坑真是最糟糕的
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9962#       发表于 2020-6-23 13:43
+
+
+
+
+感觉现在木口人的设定已经停留在动物种类了，比如羊啊兔子啊猫啊龙啊，狗皇的狗属性倒是感觉挺少用
+
+想了一圈，大部分人都放弃治疗了，设定利用得最多、形象最饱满的，是哈洽玛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9963#       发表于 2020-6-23 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918384&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-23 13:43</a>
+
+感觉现在木口人的设定已经停留在动物种类了，比如羊啊兔子啊猫啊龙啊，狗皇的狗属性倒是感觉挺少用
+
+想了一 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/23/134432azfb155bbzdxrceu.gif" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200623134411.gif</strong> (355.35 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-23 13:44 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|喜欢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9964#       发表于 2020-6-23 13:46
+
+
+
+
+毕竟她才是马自立阿，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真悲伤<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 9965#       发表于 2020-6-23 13:49
+
+
+
+ 本帖最后由 空集 于 2020-6-23 13:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 红心的设定是啥我都忘了 我记得现在都直接就说是海外留学生了  和事实完全一致 
+
+
+syl   木口我感觉皮的设定就单纯只是设定 玩的好的可以当个话题一说 实际上大部分人杂谈都要大量论及现实生活和经历还有各种线下会repo这些五花八门的皮设定基本是用不起来的当然像马自立那种皮过于薄直接穿透到阿希的倒是也只有她。。其他人我感觉都是处于一种中间层吧 大概类似于团长肯定不是真的骑士团长 但和日南也不一样 的这么一个状态 
+
+
+
+
+
+
+
+-----
+
+####  cheatdeath3  
+##### 9966#       发表于 2020-6-23 13:49
+
+
+
+
+可怜阿叔一片心意沦为坊间笑谈
+
+
+
+
+
+
+
+-----
+
+####  宫宝兔丁  
+##### 9967#       发表于 2020-6-23 13:51
+
+
+
+
+https://b23.tv/f8kEeC  【熟】白厨梦一周年欢乐爆笑贴贴合集【梦追翔/白百合リリィ】  来点男女cp浓度
+
+
+
+
+
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 9968#       发表于 2020-6-23 13:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">叔开始抱怨就是因为高强度打枪 
+
+结果游戏回强化是她看到其他人抱怨做出的决定 
+
+真讽刺
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9969#       发表于 2020-6-23 13:53
+
+
+
+
+润润其实挺RP的，这方面莫名其妙地pro。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这人作为主播一些方面相当pro，一些方面又很菜弄得我一头雾水。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9970#       发表于 2020-6-23 13:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918384&amp;ptid=1941579" target="_blank">tiro_finale 发表于 2020-6-23 13:43</a>
+
+感觉现在木口人的设定已经停留在动物种类了，比如羊啊兔子啊猫啊龙啊，狗皇的狗属性倒是感觉挺少用
+
+想了一 ...</blockquote>
+MIO还是挺坚持设定的，时常提一下吃掉WTM和PEKO
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9971#       发表于 2020-6-23 13:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918502&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-23 13:52</a>
+
+叔开始抱怨就是因为高强度打枪 
+
+结果游戏回强化是她看到其他人抱怨做出的决定 
+
+真讽刺 ...</blockquote>
+只能说人想看的东西并不相同
+
+s1大部分时候是挺少数派的
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9972#       发表于 2020-6-23 13:55
+
+
+
+
+喂喂，阿叔只是和马自立做个告别，与过去的自己说再见
+
+
+别说的真想能用那段话改变些什么啊
+
+
+
+
+
+
+
+-----
+
+####  Mafise  
+##### 9973#       发表于 2020-6-23 13:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918394&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-23 13:44</a></blockquote>
+这个出自哪里？想看！
+
+— from samsung SM-G970F, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kokonotree  
+##### 9974#       发表于 2020-6-23 13:58
+
+
+
+
+你们都说狐狸变化大，我一直在看倒觉得没那么夸张，只不过一开始RP很用力，大家这都知道她有里侧另一面，只是现在表里切换很自然或者说表里结合了而已
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9975#       发表于 2020-6-23 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918502&amp;ptid=1941579" target="_blank">屑屑代沟尼亚 发表于 2020-6-23 13:52</a>
+
+叔开始抱怨就是因为高强度打枪 
+
+结果游戏回强化是她看到其他人抱怨做出的决定 
+
+真讽刺 ...</blockquote>
+说实话粉丝的意见如何接受和平衡确实是一件很难的事情
+
+miko这几个月直播风格和习惯一直在大幅变化 也不止一次在杂谈的时候提到这些事
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9976#       发表于 2020-6-23 13:59
+
+
+
+
+今天的净土坛巨魔浓度有点超标
+
+黑宝，这个盛世，如你所愿。有难同当kana？
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9977#       发表于 2020-6-23 14:01
+
+
+
+
+所以说，知道自家想要什么的家伙很少阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+业界还是那个草台班子一堆的业界，要展示什么样的自己，要怎么和现实做协调，要去怎么努力。
+
+在这个两三年的业界来说，还是一个严重的问题。抄作业频繁不过是这个问题的缩影罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9978#       发表于 2020-6-23 14:02
+
+
+
+
+叔根本没说到星这个重点，我不信还有粉丝建议大力和星联动<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9979#       发表于 2020-6-23 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918573&amp;ptid=1941579" target="_blank">Mafise 发表于 2020-6-23 13:57</a>
+
+这个出自哪里？想看！
+
+
+— from samsung SM-G970F, Android 10 of S1 Next Goose v2.2.2.1</blockquote>
+[https://www.bilibili.com/video/BV19E41177Dm/](https://www.bilibili.com/video/BV19E41177Dm/)
+
+40分钟的时候
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9980#       发表于 2020-6-23 14:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918595&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-23 13:59</a>
+
+今天的净土坛巨魔浓度有点超标
+
+黑宝，这个盛世，如你所愿。有难同当kana？
+
+ ...</blockquote>
+说白了就是一直视奸v综的家伙都跳出来说话罢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过那楼活跃的用户也就那么几个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9981#       发表于 2020-6-23 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918644&amp;ptid=1941579" target="_blank">ひびき 发表于 2020-6-23 14:02</a>
+
+叔根本没说到星这个重点，我不信还有粉丝建议大力和星联动</blockquote>
+叔不想直接点破想委婉一点
+
+但是说实话我觉得即便是直球点破夏哥也不会有什么反应
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9982#       发表于 2020-6-23 14:09
+
+
+
+
+狗皇怎么不狗了
+
+那天和船宝一起播事故物件不是狗窝直播然后最后下播前表演了下吃巧克力直接去世吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9983#       发表于 2020-6-23 14:09
+
+
+
+
+狗皇怎么不狗了
+
+那天和船宝一起播事故物件不是狗窝直播然后最后下播前表演了下吃巧克力直接去世吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9984#       发表于 2020-6-23 14:11
+
+
+
+
+我一直感觉祭丝怎么就对小肥妹有奇怪的期待，不论是和星联动还是把祭丝建议当屁话，她原本就是这样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                 
