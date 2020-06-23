@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-23 14:12** 
+> ## **本文件最后更新于2020-06-23 16:10** 
 
 
 
@@ -6277,10 +6277,11 @@ syl  星街果然来了，那个活动冠军果然是内定的吧<img src="htt
 
 
 
- 参与人数 8战斗力 +8
+ 参与人数 9战斗力 +9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 57042711| + 1|…|
 | argaregeasr| + 1|欢乐多|
 | mmbk| + 1||
 | kanonsisya| + 1|枯了|
@@ -18595,10 +18596,9 @@ miko这几个月直播风格和习惯一直在大幅变化 也不止一次在杂
 
 
 
+ 本帖最后由 kanonsisya 于 2020-6-23 14:18 编辑 
 
-狗皇怎么不狗了
-
-那天和船宝一起播事故物件不是狗窝直播然后最后下播前表演了下吃巧克力直接去世吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+风怒
 
 
 
@@ -18620,4 +18620,1315 @@ miko这几个月直播风格和习惯一直在大幅变化 也不止一次在杂
 
 
 
-                 
+
+
+-----
+
+####  opersuper  
+##### 9985#       发表于 2020-6-23 14:13
+
+
+
+
+狐皇和苔宝肯定教过阿希的，“不要做粉丝的遥控人”（至言）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9986#       发表于 2020-6-23 14:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918595&amp;ptid=1941579" target="_blank">kirakira~ 发表于 2020-6-23 13:59</a>
+
+今天的净土坛巨魔浓度有点超标
+
+黑宝，这个盛世，如你所愿。有难同当kana？
+
+ ...</blockquote>
+哈哈，哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9987#       发表于 2020-6-23 14:18
+
+
+
+
+草点进凛姨的直播这女汉子太辣眼睛了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说同接比FF14高了三倍还是有点效果的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9988#       发表于 2020-6-23 14:19
+
+
+
+
+不懂就问，哪个和马自立搞CP的男V去pua了啊，刚在小群里看到的。
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9989#       发表于 2020-6-23 14:21
+
+
+
+
+谣言传播的有点快啊，V综要背锅？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9990#       发表于 2020-6-23 14:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918950&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-23 14:21</a>
+
+谣言传播的有点快啊，V综要背锅？</blockquote>
+消息源是微博那个把，v8发酵了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9991#       发表于 2020-6-23 14:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918950&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-23 14:21</a>
+
+谣言传播的有点快啊，V综要背锅？</blockquote>
+微博先背锅，再轮到这儿也不迟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 9992#       发表于 2020-6-23 14:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918798&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 14:11</a>
+
+我一直感觉祭丝怎么就对小肥妹有奇怪的期待，不论是和星联动还是把祭丝建议当屁话，她原本就是这样的啊[f:0 ...</blockquote>
+没有，年初的时候还是会问，哎呀我很喜欢杂谈和歌回啊，可是大家好像比较喜欢看打游戏的样子，我要不要多播一播游戏啊，这样
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 9993#       发表于 2020-6-23 14:28
+
+
+
+
+话说微博那位换黑头像了，这是要退网？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9994#       发表于 2020-6-23 14:31
+
+
+
+
+发现阿希离40w只有1000不到了，祭丝少车点云绿帽去打红sc冲冲喜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9995#       发表于 2020-6-23 14:31
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-23 14:34 编辑 
+
+润gachi不安了一晚上的苔苔联动还是有的
+<img src="https://p.sda1.dev/0/21eb0519a3a7a5fa587c456f6747f448/IMG_20200623_143003.jpg" referrerpolicy="no-referrer">
+syl，阿希都休了怎么打钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只求祭丝下个月联动时候克制点，真受不了抱怨两句就去D别的女人吧，没必要伤害他人还伤害自己，管人本来就应该是看着快乐的东西<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9996#       发表于 2020-6-23 14:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918921&amp;ptid=1941579" target="_blank">睥睨寰宇荡红尘 发表于 2020-6-23 14:19</a>
+
+不懂就问，哪个和马自立搞CP的男V去pua了啊，刚在小群里看到的。
+
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0 ...</blockquote>
+还没到时间呢别着急
+
+下个月才开趴
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9997#       发表于 2020-6-23 14:40
+
+
+
+
+隔壁nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202006/23/144002kav2kewzknmawkch.png" referrerpolicy="no-referrer">
+
+
+<strong>批注 2020-06-23 143924.png</strong> (51.69 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-23 14:40 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9998#       发表于 2020-6-23 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47918798&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 14:11</a>
+
+我一直感觉祭丝怎么就对小肥妹有奇怪的期待，不论是和星联动还是把祭丝建议当屁话，她原本就是这样的啊[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这话咱说了至少10次了。。。没人信
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 9999#       发表于 2020-6-23 14:42
+
+
+
+
+钱没少、同接也没少、所以有问题的不是小肥妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 10000#       发表于 2020-6-23 14:43
+
+
+
+
+都怪某人昨天的怪文书，说什么马自立盲动
+
+
+
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 10001#       发表于 2020-6-23 14:45
+
+
+
+
+害，日V staff不行。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10002#       发表于 2020-6-23 14:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919279&amp;ptid=1941579" target="_blank">バーチャルS1er 发表于 2020-6-23 14:42</a>
+
+钱没少、同接也没少、所以有问题的不是小肥妹吧</blockquote>
+钱本来就没多少
+
+同接本来也没多少……
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 10003#       发表于 2020-6-23 14:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919251&amp;ptid=1941579" target="_blank">colodes 发表于 2020-6-23 14:40</a>
+
+隔壁nb</blockquote>
+还没石锤呢，虽然假如真是这样那挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10004#       发表于 2020-6-23 14:54
+
+
+
+
+马自立一直是自由任性的人设，很多人仿佛昨天才察觉到似的
+
+
+
+
+
+
+
+-----
+
+####  ひびき  
+##### 10005#       发表于 2020-6-23 14:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919279&amp;ptid=1941579" target="_blank"> バーチャルS1er 发表于 2020-6-23 14:42</a> 钱没少、同接也没少、所以有问题的不是小肥妹吧 </blockquote>
+和星联动同接-1000多，sc的话她这个月live 下个月生日回，这sc要还少了那情况就已经不可挽回了啊（300万在数据膨胀你木口也排不到前面）
+
+下个月生日回在3D联动之后，看sc金额和去年对比，或者到八月看sc会不会低到狐皇水平来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 10006#       发表于 2020-6-23 14:59
+
+
+
+<img src="https://p.sda1.dev/0/158550e20991bdabc0863458ed0f7f42/IMG_912CAD2B642DC8E0B9631EB6266C3A67.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 10007#       发表于 2020-6-23 15:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919549&amp;ptid=1941579" target="_blank">睥睨寰宇荡红尘 发表于 2020-6-23 14:59</a>
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 S1Next-鹅版 v2.2.2.1</blockquote>
+？你不对劲
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10008#       发表于 2020-6-23 15:00
+
+
+
+
+说这话可能不合适，但就她们那个收入，不大手大脚的花的话，怎么看也不低吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥一定要铁了心玩横向对比
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10009#       发表于 2020-6-23 15:02
+
+
+
+
+靠这图直接发出来没问题么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我昨天是贴链接有需自取了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10010#       发表于 2020-6-23 15:02
+
+
+
+
+发了个啥图？
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10011#       发表于 2020-6-23 15:04
+
+
+
+
+律可这事是不是所谓被pua的那人发声的？还是又蹦出个正义人士。当事人都是成年人了，说是对方已婚还影响了前途，那那个女粉的丈夫有啥说法？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10012#       发表于 2020-6-23 15:06
+
+
+
+
+说起来今天晚上七点roberu拉着一弦和三期生有黑历史企划
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10013#       发表于 2020-6-23 15:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919292&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-23 14:43</a>
+
+都怪某人昨天的怪文书，说什么马自立盲动</blockquote>
+不是这锅都能我背吗，盲动和大脑空空也就差了个目的性啊，我又没说小肥妹故意要杀噶吃
+
+
+我主要是觉得叔走了心里不好受才写了那篇长文还跟响哥对线啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10014#       发表于 2020-6-23 15:07
+
+
+
+
+转发首页推荐专栏
+
+
+《夏色祭律可事件总结》
+[https://www.bilibili.com/read/cv6513606](https://www.bilibili.com/read/cv6513606)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10015#       发表于 2020-6-23 15:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919662&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-23 15:07</a>
+
+转发首页推荐专栏
+
+
+《夏色祭律可事件总结》</blockquote>
+你的首页怎么老出现这种专栏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10016#       发表于 2020-6-23 15:13
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-23 15:14 编辑 
+<blockquote>渡鸦骑士 发表于 2020-6-23 15:10
+你的首页怎么老出现这种专栏，上次也是你吧？那个排歌力把阿夸排到t1的？ ...</blockquote>
+可别提了，之前不知道点错了什么东西，隔三差五给我推荐xz粉丝写的专栏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+好像就是重新看了一遍午夜鲲铃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 10017#       发表于 2020-6-23 15:14
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919717&amp;ptid=1941579" target="_blank">渡鸦骑士 发表于 2020-6-23 15:10</a>
+
+你的首页怎么老出现这种专栏，上次也是你吧？那个排歌力把阿夸排到t1的？ ...</blockquote>
+免费佬激怒啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10018#       发表于 2020-6-23 15:14
+
+
+
+
+aki 和修女这一类的感觉挺像的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 10019#       发表于 2020-6-23 15:15
+
+
+
+
+我一直就说阿希只想要舔狗
+
+扣舔狗帽子的都是傻逼，我是傻逼
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 木板春香| + 1|对自己好点|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 10020#       发表于 2020-6-23 15:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919662&amp;ptid=1941579" target="_blank">SuntoryNomu 发表于 2020-6-23 15:07</a>
+
+转发首页推荐专栏
+
+
+《夏色祭律可事件总结》</blockquote>
+这文章第一段我就不信了
+
+啥玩意
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|我的我的，谨言慎行|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  zilch_ren  
+##### 10021#       发表于 2020-6-23 15:16
+
+
+
+
+什么，萌萌人也🥜😈了？
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10022#       发表于 2020-6-23 15:18
+
+
+
+
+恶魔姐姐的作者，pro漫画家，也是Vtuber，在直播画郡道（[https://www.youtube.com/watch?v=Nz04iCOUXnY&amp;feature=youtu.be](https://www.youtube.com/watch?v=Nz04iCOUXnY&amp;feature=youtu.be)）
+
+画好了草稿现在在勾线，有兴趣可以看看
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 10023#       发表于 2020-6-23 15:19
+
+
+
+
+说给律可 那个号吧
+
+我记得还有开公众号，cold哥前面发过来着
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10024#       发表于 2020-6-23 15:19
+
+
+
+
+懒得看，所以他打算扬了谁？木口律可还是马自立本人？
+
+
+
+
+
+
+
+-----
+
+####  aibot343  
+##### 10025#       发表于 2020-6-23 15:20
+
+
+
+
+那个写专栏的人想成为贴吧新宝，全文逻辑混乱，事实不清，就是个傻，逼。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10026#       发表于 2020-6-23 15:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919860&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-23 15:19</a>
+
+懒得看，所以他打算扬了谁？木口律可还是马自立本人？</blockquote>
+律可需要扬吗？本来不就没盘
+
+
+估计是要扬小肥妹？但是也可能是扬holop
+
+
+今天在净土坛看到的有趣言论：一切星的争论最后都会翻到holop合并的老账上
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 10027#       发表于 2020-6-23 15:22
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-23 15:23 编辑 
+
+上面那张兔子小黄图出自此人，有兴趣的可以关注一下，画的兔子图很多
+<img src="https://p.sda1.dev/0/da597a2cb06c06ca9e33bad1aaa48177/IMG_22CF47448566ABE81BB5AF869F283908.jpeg" referrerpolicy="no-referrer">
+另附一个昨天他看完兔子3D的偶像服后画的
+https://twitter.com/G_n_G60/status/1275132893895909377?s=19
+<img src="https://p.sda1.dev/0/ea5e35b739c92746f2c014a420f5fdf1/IMG_8D6B9BCB456CA7A6E606EC7174466A83.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 10028#       发表于 2020-6-23 15:22
+
+
+
+ 本帖最后由 SuntoryNomu 于 2020-6-23 15:31 编辑 
+
+云了云了，我的我的，别骂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl,
+
+<img src="https://img.saraba1st.com/forum/202006/23/153003tfn6yvfe175317pf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5ef1af3975641_5ef1af4fcae28.jpg</strong> (52.12 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-23 15:30 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10029#       发表于 2020-6-23 15:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919852&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-23 15:18</a>
+
+恶魔姐姐的作者，pro漫画家，也是Vtuber，在直播画郡道（https://www.youtube.com/watch?v=Nz04iCOUXnY&amp;fea ...</blockquote>
+呜呜呜我怎么没有pcmr妈妈给我画
+
+
+syl
+
+这图会变成下次的曲绘吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10030#       发表于 2020-6-23 15:28
+
+
+
+
+隔壁虹楼发了个报纸截图，展示田角海外进出的决心。
+
+别不舍得散钱哟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 10031#       发表于 2020-6-23 15:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919852&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-23 15:18</a>
+
+恶魔姐姐的作者，pro漫画家，也是Vtuber，在直播画郡道（https://www.youtube.com/watch?v=Nz04iCOUXnY&amp;fea ...</blockquote>
+草，一进去就看见木口ID的外星人在直播间当同传。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10032#       发表于 2020-6-23 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47920009&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-23 15:29</a>
+
+草，一进去就看见木口ID的外星人在直播间当同传。</blockquote>
+未曾想过的道路！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10033#       发表于 2020-6-23 15:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47919948&amp;ptid=1941579" target="_blank">UnhappyTails 发表于 2020-6-23 15:25</a>
+
+呜呜呜我怎么没有pcmr妈妈给我画
+
+
+syl</blockquote>
+尾巴哥自己不努力，已经是人👆人了做个V找人画图不就轻而易举。
+
+
+郡道之前单人喷喷有说过唱歌的事，结论是不会唱的，就算真的唱了也放在会员限定，我估计她没什么心思搞曲绘啦
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10034#       发表于 2020-6-23 15:35
+
+
+
+
+说起来昨天iofi出现在一弦直播间的时候，直播间的英语同传好像和她认识的样子......
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10035#       发表于 2020-6-23 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47920022&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-23 15:30</a>
+
+尾巴哥自己不努力，已经是人👆人了做个V找人画图不就轻而易举。
+
+
+郡道之前单人喷喷有说过唱歌的事，结论 ...</blockquote>
+这种大物联动不当thumbnail好可惜
+
+
+syl
+
+国内当了v也不是人上人，pcmr也不会给我画的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  stars  
+##### 10036#       发表于 2020-6-23 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47920082&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-06-23 15:35:16</a>
+说起来昨天iofi出现在一弦直播间的时候，直播间的英语同传好像和她认识的样子...... ...</blockquote>这不很正常吗，眼熟的同传打个招呼
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10037#       发表于 2020-6-23 15:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47920082&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-23 15:35</a>
+
+说起来昨天iofi出现在一弦直播间的时候，直播间的英语同传好像和她认识的样子...... ...</blockquote>
+lofi在推特英语圈非常活跃的，同传之间认识也不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 10038#       发表于 2020-6-23 15:39
+
+
+
+
+尾巴哥可以去当士大夫啊，看隔壁那瓜，可能国内的士大夫才是人中之龙
+
+
+
+
+
+
+
+-----
+
+####  猫島かおる  
+##### 10039#       发表于 2020-6-23 15:47
+
+
+
+
+饭田老师之前就和iofi有推特来往，上个月还和她联动过。另外iofi去别人直播间也经常同传，所以她出现在饭田老师的直播间同传很正常的。
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10040#       发表于 2020-6-23 15:55
+
+
+
+
+想说好久了，pcmr妈妈这声音
+
+
+好像阿花
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 10041#       发表于 2020-6-23 15:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47920261&amp;ptid=1941579" target="_blank">猫島かおる 发表于 2020-6-23 15:47</a>
+
+饭田老师之前就和iofi有推特来往，上个月还和她联动过。另外iofi去别人直播间也经常同传，所以她出现在饭田 ...</blockquote>
+这也算我看管人一直以来的怨念了，明明YouTube是个国际平台，vtb却只能以日文观众为主要输出对象。
+
+甚至英文vtb都没得到正常的发展。
+
+扩圈以后这样的例子会越来越多吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  marysaluly  
+##### 10042#       发表于 2020-6-23 15:59
+
+
+
+
+因为只有日本人把油管当成直播平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 10043#       发表于 2020-6-23 16:00
+
+
+
+
+可能有挺多人好奇为什么兰博同时试听会找上郡道，她就解释了一下，大致上她是2434里搞同时试听最多的人，除了人体蜈蚣这种有梗的会找月之，兰博这种没有特定梗找一个观影次数最多的liver也确实合理。
+
+郡道还放了个同时试听片单，因为同时试听最好找些不用特别破费的，所以大多是限时免费的作品，不代表完全郡道的品味。
+
+我个人最喜欢普罗米亚。
+
+<img src="https://img.saraba1st.com/forum/202006/23/155934gna3annduaubauh7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbLge8wVcAEktxP.jpg</strong> (163.63 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-23 15:59 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/23/155933lt1zgofbkl2bcrbo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbLge8tU8AEToGR.jpg</strong> (237.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-23 15:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 10044#       发表于 2020-6-23 16:00
+
+
+
+
+stars官号这怎么把五月十五号的那个声明又发了一遍？<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 10045#       发表于 2020-6-23 16:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">到时候黑宝去了木口星，然后尾宝去当了木口星的P，二人幸终
+
+
+
+
+
+
+
+-----
+
+####  Dante0960  
+##### 10046#       发表于 2020-6-23 16:03
+
+
+
+
+車
+
+
+
+
+
+
+-3954bedc9a9efcd1.jpg
+(34.79 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-23 16:03 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/23/160326vc1w7yycbzp1ci6w.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 10047#       发表于 2020-6-23 16:05
+
+
+
+
+想对狐皇职权骚扰<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  UnhappyTails  
+##### 10048#       发表于 2020-6-23 16:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47920481&amp;ptid=1941579" target="_blank">魔法使い2019 发表于 2020-6-23 16:05</a>
+
+想对狐皇职权骚扰</blockquote>
+FFFFFFFFFFFFF
+
+
+
+
+
+               
