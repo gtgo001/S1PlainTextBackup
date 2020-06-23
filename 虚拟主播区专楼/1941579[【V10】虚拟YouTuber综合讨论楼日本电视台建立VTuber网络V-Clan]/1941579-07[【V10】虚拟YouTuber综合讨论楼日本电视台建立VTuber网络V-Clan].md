@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-23 10:10** 
+> ## **本文件最后更新于2020-06-23 12:09** 
 
 
 
@@ -12282,10 +12282,11 @@ bsyl,
 
 
 
- 参与人数 6战斗力 +5
+ 参与人数 7战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| KyotoAnimation| + 1|0|
 | aisakahammer| + 2|好看的多发点|
 | argaregeasr| + 1|好评加鹅|
 | BonkoraKKK| + 1|雨森小夜|
@@ -14718,7 +14719,7 @@ b站是不是也没转播狐狸这个，我早上看到她发推没看到直播�
 <img src="https://img.saraba1st.com/forum/202006/23/093659ytbwdqtkf80cwfqf.jpg" referrerpolicy="no-referrer">
 
 
-<strong>QQ图片20200623103641.jpg</strong> (203.21 KB, 下载次数: 0)
+<strong>QQ图片20200623103641.jpg</strong> (203.21 KB, 下载次数: 4)
 
 下载附件
 
@@ -15206,4 +15207,1653 @@ id好诗意啊</blockquote>
 
 
 
-                       
+
+
+-----
+
+####  erer  
+##### 9802#       发表于 2020-6-23 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915443&amp;ptid=1941579" target="_blank">口苗口苗口 发表于 2020-6-23 10:08</a>
+
+我觉得我主基调还是我有问题，我有病，和绿没什么关系，然后就是见得太多伤的太深，最后揉杂一点坏组长的 ...</blockquote>
+粉丝行为推买单。这就是v综理念，坏的要死。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9803#       发表于 2020-6-23 10:13
+
+
+
+
+因为伤害粉丝有个方便快捷的方法是黑屁他的推
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9804#       发表于 2020-6-23 10:15
+
+
+
+ 本帖最后由 poipanchao 于 2020-6-23 10:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915443&amp;ptid=1941579" target="_blank">口苗口苗口 发表于 2020-6-23 10:08</a>
+我觉得我主基调还是我有问题，我有病，和绿没什么关系，然后就是见得太多伤的太深，最后揉杂一点坏组长的 ...</blockquote>
+粉丝行为偶像买单
+不然你以为那么多对大亏星街的梁木哪来的
+
+这个观念对错不提，造成的后果有目共睹
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9805#       发表于 2020-6-23 10:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915489&amp;ptid=1941579" target="_blank">erer 发表于 2020-6-23 10:11</a>
+
+粉丝行为推买单。这就是v综理念，坏的要死。</blockquote>
+当粉丝行为过于恶心的时候人们就会开始可怜推了，没错，就是2000。就算真的有人在v综想黑葵皇也会因为觉得她被2000推太可怜而作罢吧
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9806#       发表于 2020-6-23 10:17
+
+
+
+
+是这样，每次芙宝到处放屁我就想黑屁miko，但是miko又做错了什么呢。
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 9807#       发表于 2020-6-23 10:17
+
+
+
+
+那就怪了，绿完全和我反着来的，他可是铁箱推，并且乐在其中，夸运营的次数还越来越多
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9808#       发表于 2020-6-23 10:18
+
+
+
+
+草，芙宝还给除了crew的群体种了梁木么
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9809#       发表于 2020-6-23 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915357&amp;ptid=1941579" target="_blank">面具13 发表于 2020-6-23 10:03</a>
+
+你进去看看签名</blockquote>
+第一个是“泣けど喚けど朝がきて”的翻译，meiro翻唱过这首歌；第二个是“午前零時にまた会おう”，meiro也翻唱过；最后一个只是fgo魔神总司的宝具台词的一句
+
+把搬运后的B站链接搬一下吧：
+[https://www.bilibili.com/video/BV13b411p7zX](https://www.bilibili.com/video/BV13b411p7zX) 
+[https://www.bilibili.com/video/BV1rt411C7Ec](https://www.bilibili.com/video/BV1rt411C7Ec)
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9810#       发表于 2020-6-23 10:20
+
+
+
+
+芙宝的神奇发言没给其他人种梁木才有鬼了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9811#       发表于 2020-6-23 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915320&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-23 09:59</a>
+
+为什么mrra火热的时候无感
+
+现在不仲了就特别想看呢，陷入沉思</blockquote>
+因为现在是真物啊（笑）。在百合漫画里经常有的，渣女会故意说要分手来伤对象的心，看到女友流泪，才能确认自己被爱着，我也从mrra的裂痕中能看出点她们的真心。
+
+
+几个月前我就能感受到郡神要退市，但我从来没能看到mrra复活的任何可能，绞尽脑汁只能想到郡道被口了暴揍...
+
+以前毛巾卖那么好运营还没能按头她们，现在就更不行了。
+
+我倒是想听听daoyuan姐讲讲，从郡道角度出发，您觉得mrra什么时候会活嘞...
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9812#       发表于 2020-6-23 10:24
+
+
+
+
+那祭丝在你楼的待遇算不算推的行为粉丝买单<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9813#       发表于 2020-6-23 10:26
+
+
+
+
+你们说粽子的b限会用哪件衣服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/b91f59d02606fd0fb68a3e09b8176d10/IMG_BDC1FB8B17EF5752041FC87B68835DA3.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9814#       发表于 2020-6-23 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915681&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-23 10:24</a>
+
+那祭丝在你楼的待遇算不算推的行为粉丝买单</blockquote>
+很明显算阿，你看大叔大家多可怜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9815#       发表于 2020-6-23 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915574&amp;ptid=1941579" target="_blank">口苗口苗口 发表于 2020-6-23 10:17</a>
+那就怪了，绿完全和我反着来的，他可是铁箱推，并且乐在其中，夸运营的次数还越来越多
+ ...</blockquote>
+因为人的精力有限，看不过来，很多时候对v的印象很大程度上会被代表性粉丝影响（2000除外）
+目前在v综常驻和视奸的群众里，看绿的可以说够少了，了解足够片面和不熟了。
+你上来一套发病表达，会不会给人种梁木就是你自己的问题了，毕竟那是你的推
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9816#       发表于 2020-6-23 10:28
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/23/102802nua3d1a71ela0df0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q5-iirvZbT3cSsg-h2.jpg</strong> (183.44 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-23 10:28 上传
+
+
+
+
+
+
+端午节吃粽子咯！
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9817#       发表于 2020-6-23 10:31
+
+
+
+<blockquote>某穆克拉 发表于 2020-6-23 10:28
+端午节吃粽子咯！</blockquote>
+兄啊，隔壁水印
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9818#       发表于 2020-6-23 10:31
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-23 10:27
+很明显算阿，你看大叔大家多可怜</blockquote>
+年近不惑携妻带子的成功大叔精神出轨却惨遭背叛<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9819#       发表于 2020-6-23 10:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915731&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-23 10:28</a>
+
+端午节吃粽子咯！</blockquote>
+那个……是粉粽子了。
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 9820#       发表于 2020-6-23 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915719&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-23 10:27</a>
+因为人的精力有限，看不过来，很多时候对v的印象很大程度上会被代表性粉丝影响（2000除外）
+目前在v综常 ...</blockquote>
+能种梁木也是一种了解啦
+不过讲真信者云集的地方也不会有人care别人的推，都是吃瓜看乐子
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9821#       发表于 2020-6-23 10:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915772&amp;ptid=1941579" target="_blank">深渊萃取 发表于 2020-6-23 10:31</a>
+
+兄啊，隔壁水印</blockquote>
+转情报无所谓水印了吧
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9822#       发表于 2020-6-23 10:38
+
+
+
+
+我也想看看她怎么想的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  anwen76  
+##### 9823#       发表于 2020-6-23 10:39
+
+
+
+
+翻了昨晚的V综，还以为MEA在B过气了，结果去月榜翻了下：
+
+1月272394；2月 447958；3月 302110；4月 196818；5月 278850；6月 93112；今年不声不响的2400W日元了，天狗还是蛮强大的
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9824#       发表于 2020-6-23 10:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915870&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-23 10:38</a>
+我也想看看她怎么想的。</blockquote>
+理论上特地挑端午来应该用绿皮，但是新皮还没在b限用过，等一个先绿皮再当场换衣的操作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  18300625949  
+##### 9825#       发表于 2020-6-23 10:42
+
+
+
+
+无敌飞雪动态直指v8，所以粪坑是不可能消失的，有些人需要在粪坑发泄，有些人需要用粪坑搞团建
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9826#       发表于 2020-6-23 10:42
+
+
+
+
+现在流行怪粽子，粉色粽子没问题的
+
+
+
+
+
+
+
+-----
+
+####  star_platinum  
+##### 9827#       发表于 2020-6-23 10:42
+
+
+
+
+粉粽绿粽之争，难不成要比甜粽咸粽还要激烈吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zaphikel  
+##### 9828#       发表于 2020-6-23 10:43
+
+
+
+ 本帖最后由 Zaphikel 于 2020-6-23 10:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915893&amp;ptid=1941579" target="_blank">anwen76 发表于 2020-6-23 10:39</a>
+
+翻了昨晚的V综，还以为MEA在B过气了，结果去月榜翻了下：
+
+1月272394；2月 447958；3月 302110；4月 196818 ...</blockquote>
+昨天晚上不是说的mea在404的情况嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+昨晚V综也没编排mea不行吧，倒是隔壁楼友突然进来滑跪<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 9829#       发表于 2020-6-23 10:44
+
+
+
+
+日常上推看看推特回复 啊 是唯一的杏人
+
+<img src="https://img.saraba1st.com/forum/202006/23/104111gm8q2fnnk1z8f1w8.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200623104012.png</strong> (83.84 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-23 10:41 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9830#       发表于 2020-6-23 10:48
+
+
+
+ 本帖最后由 opersuper 于 2020-6-23 10:50 编辑 
+
+mea在404的订阅同接比比点箱还惨，接近四天王以外的视频势和彩虹一期的水平 。啊好像阿希比例也和她差不多啊，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9831#       发表于 2020-6-23 10:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915928&amp;ptid=1941579" target="_blank">star_platinum 发表于 2020-6-23 10:42</a>
+
+粉粽绿粽之争，难不成要比甜粽咸粽还要激烈吗
+
+
+—— 来自 Xiaomi Redmi Note 7, Android 9上的 S1Ne ...</blockquote>
+说起来NGA杏楼刚才真的在讨论咸粽子和甜粽子的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 9832#       发表于 2020-6-23 10:52
+
+
+
+
+【※閲覧注意】ヤンデレカニバリズム放送【ホロライブ/赤井はあと】
+
+49 人正在等待•预定直播日期：2020年6月23日
+
+Haato Channel 赤井はあと
+
+37.2万位订阅者
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+そうだ、人肉を食べよう。
+
+
+そうだ、そうしよう。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  free  
+##### 9833#       发表于 2020-6-23 10:55
+
+
+
+
+龙皇10万还是太难了，这几乎意味着现在所有在线的人全在看，之前V界同时间总最大同接才多少啊，我看7万纪录肯定破，8万问题不大，再往上难
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9834#       发表于 2020-6-23 10:55
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-23 10:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916065&amp;ptid=1941579" target="_blank">バーチャルS1er 发表于 2020-6-23 10:52</a>
+【※閲覧注意】ヤンデレカニバリズム放送【ホロライブ/赤井はあと】
+
+49 人正在等待•预定直播日期：2020年6 ...</blockquote>
+狐皇昨天玩的那个奇葩吃人游戏吧
+syl，龙皇7W应该差不多了，holo哪来那么多观众。
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9835#       发表于 2020-6-23 10:56
+
+
+
+
+哈恰玛这又是啥活
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9836#       发表于 2020-6-23 10:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916113&amp;ptid=1941579" target="_blank">free 发表于 2020-6-23 10:55</a>
+
+龙皇10万还是太难了，这几乎意味着现在所有在线的人全在看，之前V界同时间总最大同接才多少啊，我看7万纪录 ...</blockquote>
+龙皇一开始吸引来的新规层就是那些以前没看过v的人 所以一开始就是例外了
+
+这次如果宣传的好还真不好说 
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9837#       发表于 2020-6-23 10:57
+
+
+
+
+龙皇当然要奶8w8
+
+
+
+
+
+
+
+-----
+
+####  空集  
+##### 9838#       发表于 2020-6-23 10:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你楼奶力太强 我都开始担心破不了7W了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9839#       发表于 2020-6-23 10:58
+
+
+
+
+订阅同接比这种东西有卵用啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哪有订阅涨了同接就会跟着涨的道理。
+
+
+mea现在是处于闷声发大财的情况，连v8都不去开她了还有什么好怕的。你拿冲国女王cue她天狗会拿高女士和sio来挡枪的，最后回到404小主播的结论上。
+
+
+
+
+
+
+
+-----
+
+####  winda  
+##### 9840#       发表于 2020-6-23 11:00
+
+
+
+
+sio的国内盘……先能在b转播再说吧
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9841#       发表于 2020-6-23 11:00
+
+
+
+
+订阅和同接无关，难道404都是我这样看直播不点订阅的梁木人
+
+
+
+
+
+
+
+-----
+
+####  耻照  
+##### 9842#       发表于 2020-6-23 11:00
+
+
+
+[https://www.bilibili.com/video/BV1Xp4y1D7bL](https://www.bilibili.com/video/BV1Xp4y1D7bL)
+
+
+天皇，永远专业
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9843#       发表于 2020-6-23 11:01
+
+
+
+
+阿龙可以检测所谓的三期箱力。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9844#       发表于 2020-6-23 11:02
+
+
+
+ 本帖最后由 poipanchao 于 2020-6-23 11:04 编辑 
+
+10万太多就必上9万
+hololive最强！
+
+相比同接你们还是奶一下sc
+单月2500w可不可以
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9845#       发表于 2020-6-23 11:04
+
+
+
+
+只要少看点虹杏就不会对数字那么敏感了
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9846#       发表于 2020-6-23 11:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916210&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-23 11:02</a>
+
+10万太多就必上9万
+
+hololive最强！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上礼拜不就1700W了，3D回来个4-500W，感觉2500有点难啊
+
+
+咱奶一个同接6W8
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9847#       发表于 2020-6-23 11:05
+
+
+
+
+6w跌下神坛 7w普普 8w龙皇登基 9w新世界的神？
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9848#       发表于 2020-6-23 11:06
+
+
+
+ 本帖最后由 opersuper 于 2020-6-23 11:07 编辑 
+
+二八定律，有钱人的sc多且稳定，穷鬼的sc少且花心龙皇3D煽情煽到位再从石油佬手里翘一笔刚刚的
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9849#       发表于 2020-6-23 11:06
+
+
+
+
+风怒
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9850#       发表于 2020-6-23 11:06
+
+
+
+
+现在1700w，而且这两天的平a是很低的，只能看3D一拳能不能700w+了，单回不够700w的话上2500w应该是没有可能了。
+
+
+
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 9851#       发表于 2020-6-23 11:06
+
+
+
+
+我还是觉得能7w就不错了，如今打出高同接并没有那么困难，四期这一轮五六万随便刷，但打出高上限会相对难很多
+
+虹的宝可梦马车麻将一路暴击，似乎也没有很明显的上限突破
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9852#       发表于 2020-6-23 11:06
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-23 11:07 编辑 
+
+老实说龙皇本月sc2500W现在来看我觉得都算不上奶，今天超重大发表有一波，3D那天有一波，结束之后感想会有一波…
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9853#       发表于 2020-6-23 11:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916279&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 11:06</a>
+
+老实说龙皇本月sc2500W现在来看我觉得都算不上奶，今天超重大发表有一波，3D那天有一波，结束之后感想会有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SC倒还算比较好达成，上8W咱真觉得难，7W多咱觉得都是比较好的估计
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9854#       发表于 2020-6-23 11:13
+
+
+
+
+龙皇这波8W挺有可能的，话说她的生日套装一份多少？观众这个月不止打了1700W的sc，还要买这个生日套装，还没被榨干么
+
+
+
+
+
+
+
+-----
+
+####  fastary  
+##### 9855#       发表于 2020-6-23 11:14
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-23 09:14
+没啥，就郡道很闲，想着黛灰现在是不是有空，观众说刚开完杂谈，就打了个discord聊两句。说了点apex的内容 ...</blockquote>
+非常感谢！
+
+黛灰活动平台只有twi和404所以我也以为t台直播都是不留档的(
+
+有录播就好啦，我去补一下，感谢指路
+
+
+
+
+
+
+
+-----
+
+####  cockmore  
+##### 9856#       发表于 2020-6-23 11:15
+
+
+
+
+叠加在一个月的影响肯定是有的，分两个月办sc数据会好些。
+
+但是杏现在重要的是势，势头起来了少一点sc不算什么。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9857#       发表于 2020-6-23 11:16
+
+
+
+
+龙皇的社畜观众群有钱啊，而且打钱这种事，榨一榨总归有的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，润姨这点赞就是养gachi技巧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/424467f13a45c2ee561de896e8c34147/IMG_A6CE82F0EB76E922F213DEE68258AC27.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/851d4d03859b47f03806913577c2b9af/IMG_20200623_111014.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 9858#       发表于 2020-6-23 11:17
+
+
+
+
+阿火借箱力都能6w5，龙皇8万5保底冲击10万不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 9859#       发表于 2020-6-23 11:20
+
+
+
+
+楼里有奶甲铁城8w8内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 9860#       发表于 2020-6-23 11:23
+
+
+
+
+只要不出什么大的差错，订阅是会越来越多的啊，但是同接可不是。
+
+
+
+
+
+
+
+-----
+
+####  yuandi0120  
+##### 9861#       发表于 2020-6-23 11:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916180&amp;ptid=1941579" target="_blank">opersuper 发表于 2020-6-23 11:00</a>
+
+订阅和同接无关，难道404都是我这样看直播不点订阅的梁木人</blockquote>
+看直播不点订阅是图啥啊233，而且难道每次进去都是从收藏夹或者直接点链接的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl夸皇不播都日增1000，复活不得日增2000？天皇只剩8天了啊
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9862#       发表于 2020-6-23 11:23
+
+
+
+
+木口现在应该多和社外大物联动，把对面粉丝的关注拉过来大家庭商法一关，那些实质上单打独斗的yhm在内容上怎么赢得过当前最有热度最强的环境卡，就算主推拆不掉把空余时间占完也是稳赚。
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9863#       发表于 2020-6-23 11:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916379&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-23 11:13</a>
+
+龙皇这波8W挺有可能的，话说她的生日套装一份多少？观众这个月不止打了1700W的sc，还要买这个生日套装，还 ...</blockquote>
+说到这个嘛
+
+龙皇的观众倾向比较有趣
+
+他们更多的倾向于喜欢直播时给龙皇打钱看她的反应
+
+而音声的话说实话是gachi势倾向的 龙皇的gachi势反而不是很多的情况下可能卖得不会很多
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9864#       发表于 2020-6-23 11:26
+
+
+
+
+吹死婊活，ASCC都不行了，龙buff也就和三期fantasy+疫情后初动的buff差不多，保底6.5W，peak在天龙连线，所以能不能冲7看天空和白上桑（debuff）是怎么排的，天龙在35分钟涨停一波能冲7，白上45分钟领导空方反扑，最后十分钟唱歌同接断崖式下跌至熔断<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9865#       发表于 2020-6-23 11:28
+
+
+
+<blockquote>yuandi0120 发表于 2020-6-23 11:23
+看直播不点订阅是图啥啊233，而且难道每次进去都是从收藏夹或者直接点链接的吗
+
+
+syl夸皇不播都日 ...</blockquote>
+因为我不想做浪迹天涯的雪花啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，看V综的报时现搜也差不太多了
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9866#       发表于 2020-6-23 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916444&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 11:16</a>
+
+龙皇的社畜观众群有钱啊，而且打钱这种事，榨一榨总归有的
+
+
+syl，润姨这点赞就是养gachi技巧吗[f:06 ...</blockquote>
+我怎么看不到图？
+
+syl
+
+社外大物不好拉啊，也就月初船长拉了安洁有那么点意思。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+zsyl
+
+船狗3D可以探探路，三期+强力外援。整个箱力应该不至于更差。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  colodes  
+##### 9867#       发表于 2020-6-23 11:29
+
+
+
+
+还是得看一人顶一个师的白上debuff什么时候出场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9868#       发表于 2020-6-23 11:29
+
+
+
+
+龙皇把钱都榨干了，等鸭鸭7.2过生日不就没路人打钱了吗，可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9869#       发表于 2020-6-23 11:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916608&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-23 11:26</a>
+
+吹死婊活，ASCC都不行了，龙buff也就和三期fantasy+疫情后初动的buff差不多，保底6.5W，peak在天龙连线，所 ...</blockquote>
+都说了这次是完全不一样的披露目风格
+
+和以前的流程完全不一样 所以干脆参考龙皇出道初配信
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9870#       发表于 2020-6-23 11:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916644&amp;ptid=1941579" target="_blank">asdhai 发表于 2020-6-23 11:29</a>
+
+龙皇把钱都榨干了，等鸭鸭7.2过生日不就没路人打钱了吗，可恶啊</blockquote>
+那你多打点钱把路人的部分补上不就好了 简单
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9871#       发表于 2020-6-23 11:32
+
+
+
+
+其实我怀疑阿龙甚至不会有嘉宾。不少人信誓旦旦四期都会到，我觉得没什么必然。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9872#       发表于 2020-6-23 11:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916636&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-23 11:28</a>
+我怎么看不到图？
+
+syl
+
+社外大物不好拉啊，也就月初船长拉了安洁有那么点意思。</blockquote>
+可能我上传图片时候连网有点问题
+以下润姨的点赞内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+るしあちゃん可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い可愛い大好き大好き大好き大好き大好き大好き大好き大好き大好き大好き大好き大好き大好き愛してる愛してる愛してる愛してる愛してる愛してる愛してる愛してる愛してる愛してる愛してる！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9873#       发表于 2020-6-23 11:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916679&amp;ptid=1941579" target="_blank">QWANG 发表于 2020-6-23 11:32</a>
+
+其实我怀疑阿龙甚至不会有嘉宾。不少人信誓旦旦四期都会到，我觉得没什么必然。 ...</blockquote>
+对 这次如果是新披露风的话可能不会安排嘉宾环节
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9874#       发表于 2020-6-23 11:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916674&amp;ptid=1941579" target="_blank">泡芙好吃 发表于 2020-6-23 11:31</a>
+
+那你多打点钱把路人的部分补上不就好了 简单</blockquote>
+钱包在准备了。
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 9875#       发表于 2020-6-23 11:36
+
+
+
+ 本帖最后由 Vneet 于 2020-6-23 11:38 编辑 
+
+七万够了，八万算奇迹，九万…既然都九万了吃瓜群众还不会烘火冲十万么？
+
+SYL，端午b限，润粽你是要挑起绿党与粉党的战争吗∠( ᐛ 」∠)_
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 9876#       发表于 2020-6-23 11:37
+
+
+
+
+完全想象不出没有大家庭环节的现版本木口3d披露
+
+
+
+
+
+
+
+-----
+
+####  Fakerの幻影  
+##### 9877#       发表于 2020-6-23 11:40
+
+
+
+ 本帖最后由 Fakerの幻影 于 2020-6-23 11:44 编辑 
+
+天龙星连麦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后宣布holohouse第四位成员，奶一口9w同接
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9878#       发表于 2020-6-23 11:40
+
+
+
+
+当初龙皇初配信的时候谁也没想到半年后是现在这个状况啊
+
+一切都有可能发生 因为是龙皇
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9879#       发表于 2020-6-23 11:41
+
+
+
+
+说起来，上次律可3D说没法把吉他弄到3D里......我倒希望一弦要是有3D的时候，能把吉他整出来<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9880#       发表于 2020-6-23 11:41
+
+
+
+
+towa的时间表已经有点冲突了，当然不去现场还是赶得上的，如果真的发生了也不知道她为什么不去就是了。
+
+syl
+
+有时我也想这么发，但我还是很克制的。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9881#       发表于 2020-6-23 11:43
+
+
+
+
+单人hold全场一世风靡才显龙皇风范啊，弱者才需要大家庭的帮衬，我新生代的核心就要做give的一方。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9882#       发表于 2020-6-23 11:43
+
+
+
+ 本帖最后由 金魚佬 于 2020-6-23 11:44 编辑 
+
+律可3D 5,699美元 9050同接，62.97美分/同接
+夏色3D 14,238.82美元 30354同接，46.91美分/同接<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+Holostars最强！
+Holostars最强！
+Holostars最强！
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9883#       发表于 2020-6-23 11:46
+
+
+
+
+Holostars最强！
+
+
+
+
+
+？
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9884#       发表于 2020-6-23 11:50
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9885#       发表于 2020-6-23 11:54
+
+
+
+
+这又是啥新的抽风方式
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9886#       发表于 2020-6-23 11:54
+
+
+
+ 本帖最后由 asdhai 于 2020-6-23 12:01 编辑 
+
+风怒。
+
+
+
+
+
+
+
+-----
+
+####  鬼正黑  
+##### 9887#       发表于 2020-6-23 12:00
+
+
+
+<blockquote>rzrbtk 发表于 2020-6-23 09:49
+嗯？是谁在说口了虐？
+
+让我来分享一个会”偶然“看完郡道的直播，会夸郡道直播效果但又会在最后骂一句性格 ...</blockquote>
+这也可以一转口了虐吗？
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9888#       发表于 2020-6-23 12:03
+
+
+
+
+龙的唱歌环节可以替换成3dascc吧，到时候如果真有牌面把几个前辈直接拉上来也不是不可能
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9889#       发表于 2020-6-23 12:07
+
+
+
+
+新世代的皇者，若是还需要他人陪衬岂不是显得软弱？
+
+看好龙皇单人破7w线
+
+
+
+
+
+                    

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-23 10:16** 
+> ## **本文件最后更新于2020-06-23 12:12** 
 
 
 
@@ -13372,10 +13372,11 @@ https://mp.weixin.qq.com/s/WLRxWuzc3aClm10I8hvAXA ...</blockquote>
 
 
 
- 参与人数 6战斗力 -9
+ 参与人数 7战斗力 -10
 
 |昵称|战斗力|理由|
 |----|---|---|
+| leonyang19|-1|莫名其妙|
 | 与你肩并肩|-2|无端树敌，自招祸患|
 | cedric301|-1||
 | 鱼肉丸子|-1|就事论事 第一印象批倒一个人非常不好.|
@@ -15765,4 +15766,280 @@ tlus本来就是重剧情的游戏，真让你纯玩我觉得真的挺无聊的�
 
 
 
-                        
+
+
+-----
+
+####  不灭人形  
+##### 777#       发表于 2020-6-23 10:27
+
+
+
+[https://www.bilibili.com/video/BV1aZ4y1H7Tb](https://www.bilibili.com/video/BV1aZ4y1H7Tb)
+
+“并不是剧情多么残忍血腥，做出一些少儿不宜的演出就是好演出；同理，并不是你写出看别人写不了的剧情就是好剧情，难道别人不会这么写吗？”
+
+
+不愧是韩国教父CRANK
+
+
+
+
+
+
+
+-----
+
+####  Stellar_Frost  
+##### 778#       发表于 2020-6-23 10:34
+
+
+
+ 本帖最后由 Stellar_Frost 于 2020-6-23 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914998&amp;ptid=1942788" target="_blank">Racyjackman 发表于 2020-6-23 09:33</a>
+
+已经出了
+[https://www.bilibili.com/video/BV1eZ4y1H7bu](https://www.bilibili.com/video/BV1eZ4y1H7bu)</blockquote>
+
+那天晚上我就在他直播间，亲耳听见打到结局崩溃大笑<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  V宇宙的守夜人Z  
+##### 779#       发表于 2020-6-23 10:36
+
+
+
+
+前IGN编辑 
+来源 https://www.youtube.com/watch?v=Bgg7_0rBUOA
+
+https://b23.tv/IKlhS6来自: iPhone客户端
+
+
+
+
+
+
+
+-----
+
+####  FishTail  
+##### 780#       发表于 2020-6-23 10:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47913035&amp;ptid=1942788" target="_blank">黄字 发表于 2020-06-23 01:35:18</a>
+neil做演讲直接拿静静做不女权例子，不杀他全家都不错了。</blockquote>求个图
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  双刀少女  
+##### 781#       发表于 2020-6-23 10:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不论游戏怎么样，最近机核这帮人的发言，让人感觉他们作为媒体 连正经的文字工作者应该受的教育都没有受过，说得话和表达的感情都是支离破碎
+
+
+
+
+
+
+
+-----
+
+####  杉田悠一  
+##### 782#       发表于 2020-6-23 10:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915948&amp;ptid=1942788" target="_blank">FishTail 发表于 2020-6-23 10:43</a>
+求个图
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+https://b23.tv/lh1zjk
+毕游侠这个视频里有，不止静静，还有光环卡塔娜，死或生女忍者
+
+
+
+
+
+
+
+-----
+
+####  Sapphire_S  
+##### 783#       发表于 2020-6-23 11:01
+
+
+
+
+感觉一些媒体从业者还停留在“剧情黑深残就是艺术化和深度思考”这个浅薄的逻辑里……
+
+
+
+
+
+
+
+-----
+
+####  盖·福克斯  
+##### 784#       发表于 2020-6-23 11:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">翻转电台给机核站台了。
+
+
+
+
+
+
+
+-----
+
+####  大哀之君  
+##### 785#       发表于 2020-6-23 11:12
+
+
+
+ 本帖最后由 大哀之君 于 2020-6-23 11:16 编辑 
+
+游戏农民这词儿新鲜，不如以后管机核及其拥护者叫游戏八旗算了。自关外而来的京城新主子，德行也是一式一样
+
+
+
+
+
+
+
+-----
+
+####  本田仁美  
+##### 786#       发表于 2020-6-23 11:14
+
+
+
+
+瞎说话还要挂个宇多田光的id<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">水平真的次
+
+
+
+
+
+
+
+-----
+
+####  ChrisSnake  
+##### 787#       发表于 2020-6-23 11:14
+
+
+
+
+整理资料辛苦了 非常不错
+
+
+
+
+
+
+
+-----
+
+####  Kidinthe21st  
+##### 788#       发表于 2020-6-23 11:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915473&amp;ptid=1942788" target="_blank">copyretry 发表于 2020-06-23 10:10:43</a>
+我没记错的话，其实是从机核开始标榜不打分评价的，虽然当时说的天花乱坠，什么无法概括内容，什么类型化不 ...</blockquote>水平不够而已，好的评测即使把评分环节去掉了也是好的
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  FML  
+##### 789#       发表于 2020-6-23 11:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915720&amp;ptid=1942788" target="_blank">不灭人形 发表于 2020-6-23 10:27</a>
+https://www.bilibili.com/video/BV1aZ4y1H7Tb
+
+“并不是剧情多么残忍血腥，做出一些少儿不宜的演出就是好演 ...</blockquote>
+顶下crank  第一个看到弃坑的主播
+也是十分实在 朴素的观点 
+不是说其他主播不好
+只是觉得他们就是机械的玩游戏直播工作而已
+
+我是觉得一个普通人是不能抱着玩完才能喷的观点 逼迫自己吃屎的
+
+
+—— 来自 samsung SM-G9810, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  lovebati  
+##### 790#       发表于 2020-6-23 11:52
+
+
+
+
+评论截图那个……“激进”、“有魄力”、“有勇气”……我觉着看人吃翔的时候也有这种想法
+
+
+
+
+
+
+
+-----
+
+####  lovebati  
+##### 791#       发表于 2020-6-23 11:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47916834&amp;ptid=1942788" target="_blank">FML 发表于 2020-6-23 11:42</a>
+
+顶下crank  第一个看到弃坑的主播
+
+也是十分实在 朴素的观点 
+
+不是说其他主播不好</blockquote>
+平时在黄旭东那里看crank的比赛，中间插播一些玩游戏的视频。感觉这哥们是真的比较喜欢游戏，经常还会玩一些老游戏。
+
+
+
+
+
+                       
