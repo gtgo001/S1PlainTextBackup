@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-23 04:07** 
+> ## **本文件最后更新于2020-06-23 10:10** 
 
 
 
@@ -9124,6 +9124,25 @@ crew们可以来看紫宝了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 中野六小龄童| + 1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -12263,10 +12282,11 @@ bsyl,
 
 
 
- 参与人数 5战斗力 +3
+ 参与人数 6战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| aisakahammer| + 2|好看的多发点|
 | argaregeasr| + 1|好评加鹅|
 | BonkoraKKK| + 1|雨森小夜|
 | Mika-S| + 1|发，都可以发|
@@ -13257,4 +13277,1933 @@ SMC下下周有超超超重大发表，力一3D披 ...</blockquote>
 
 
 
-                          
+
+
+-----
+
+####  proxima  
+##### 9694#       发表于 2020-6-23 04:17
+
+
+
+
+虽然道理是这个道理，不过像我这样的要是不看联动那就只能退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9695#       发表于 2020-6-23 04:56
+
+
+
+
+问出这些蠢问题的建议熟读《情商》《位置》《牌面》。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9696#       发表于 2020-6-23 05:12
+
+
+
+
+为什么一个一个都要省略集大成之《文爱》<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  好德我基  
+##### 9697#       发表于 2020-6-23 05:14
+
+
+
+
+不读前三本就去读《文爱》的下场不用我说了8。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  QWANG  
+##### 9698#       发表于 2020-6-23 05:16
+
+
+
+<img src="https://p.sda1.dev/0/7a7e59eab8da0b48afc89d4841b8be3c/1233067547.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9699#       发表于 2020-6-23 05:31
+
+
+
+
+垃圾3d又减少露出度<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9700#       发表于 2020-6-23 05:37
+
+
+
+
+反正在下是认为当初放出那消息的时候更倾向对stars单方面进行约束，而当初先行组三人也确实做到了，一个天天FF14，一个摸鱼，一个唱歌杂谈偶尔打打游戏，到了九月阿兰和朱雀出道一直都没问题，然后就是令人迷惑的狐皇夏哥先于公告的行动，到底是“知道运营要发公告了就没忍住”还是“看她俩坏了规矩赶紧想了个公告发了”，我暂且蒙在鼓里
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 9701#       发表于 2020-6-23 05:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47913648&amp;ptid=1941579" target="_blank">proxima 发表于 2020-6-23 04:17</a>
+
+虽然道理是这个道理，不过像我这样的要是不看联动那就只能退坑了</blockquote>
+苔寶可能會有毒唯粉嗎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kanonsisya  
+##### 9702#       发表于 2020-6-23 05:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47913715&amp;ptid=1941579" target="_blank">好德我基 发表于 2020-6-23 05:14</a>
+
+不读前三本就去读《文爱》的下场不用我说了8。</blockquote>
+你们维阿管不到我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9703#       发表于 2020-6-23 06:28
+
+
+
+
+穿模预订。
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9704#       发表于 2020-6-23 06:31
+
+
+
+
+早上起来祭丝老叔告别SC的事都被挂到我日常群了 惨 老叔 惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9705#       发表于 2020-6-23 06:50
+
+
+
+
+龙组这ascc剪的稀烂。。怀疑是完全没看过内容随便剪的。
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9706#       发表于 2020-6-23 06:55
+
+
+
+
+事到如今还要车夏吹怎么找上杏星的真没必要，反正现在来看就是这两想联动，而且从一弦的说法可以看出并不是运营强制，杏星方面也可以拒绝。说到底狐萝卜巧克那都没炸，小肥妹是联动频率和律可有组cp的倾向两个加起来才闹成这样的。
+
+syl，傻紫真是阿夸回来打了她也勤奋了啊，还点赞了一波fanart。
+https://twitter.com/aaln_1/status/1274703192593272833?s=19 
+https://twitter.com/Yu_Hydra0319/status/1274637396781330438?s=19
+https://twitter.com/synn032synn/status/1274268332133249024?s=19
+https://twitter.com/konnyak86392863/status/1274634594415898624?s=19
+<img src="https://p.sda1.dev/0/5a26a1b37af8d73b14c7601bb7b15c3c/IMG_834F70754383524D3FB352F1CC6F14DE.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/206277cf19c08050079e8c97a67a05aa/IMG_EF71D99227CA19EB45CBC94057825697.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/0af4b3390ec54244e8aa707abcf5f217/IMG_B997E39197D7FF53E3373BF2E3E46FD5.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/b2e1315205675c1de75f80697a0e7e3b/IMG_1E6F4347279DF99E7920BE575FA73A7D.jpeg" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| あのん| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9707#       发表于 2020-6-23 07:03
+
+
+
+
+梦见了紫宝开播
+
+
+
+
+
+
+
+-----
+
+####  fromsaitama  
+##### 9708#       发表于 2020-6-23 07:12
+
+
+
+
+问下楼上老哥，紫宝有没有在直播里讲过自己为啥不上高中的事？
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9709#       发表于 2020-6-23 07:16
+
+
+
+
+miko的30W纪念26号做
+<img src="https://p.sda1.dev/0/ad26f6c1a0133d4044b1387c4a2fc532/IMG_3904CB59533744A40D8D29EF490A8EC3.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/5fbbca876b02edd6a1205fd7eec1c744/IMG_799DC03D5E0BDFDE21BFFFDAB3DC7E20.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/7571b782a7e4105ca1e34f3324fb1188/IMG_498C00CC814AB256EF429A3D5A4F9D7D.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9710#       发表于 2020-6-23 07:37
+
+
+
+
+怎么大半夜的单推发病
+绿gachi老姐你这么发疯，本来对绿没梁木的人也要有偏见了
+
+怎么龙皇3d还能减少露出度的，差评
+
+
+
+
+
+
+
+-----
+
+####  Vneet  
+##### 9711#       发表于 2020-6-23 07:38
+
+
+
+
+这波波，是什么蒙蔽了我的双眼
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9712#       发表于 2020-6-23 07:54
+
+
+
+
+一个问题，V综是怎么从V5时巨魔对线为主转移到现在信者发疯为主的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9713#       发表于 2020-6-23 07:55
+
+
+
+
+所谓巨魔，只是藏的极深的信者<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9714#       发表于 2020-6-23 07:59
+
+
+
+
+不是V综化身杏综对不了线就转换营业路线了么
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9715#       发表于 2020-6-23 08:00
+
+
+
+
+这就是所谓的和平演变吗
+
+
+
+
+
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 9716#       发表于 2020-6-23 08:01
+
+
+
+
+因为杏已经一统天下了，还对个毛线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9717#       发表于 2020-6-23 08:01
+
+
+
+
+能对线几个月早中山公园了吧
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9718#       发表于 2020-6-23 08:03
+
+
+
+
+虹杏不抽卡大家一起养gachi，但养的技术不行就要发疯了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9719#       发表于 2020-6-23 08:06
+
+
+
+
+老师的企划过万棒了。还收了不少红sc
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9720#       发表于 2020-6-23 08:08
+
+
+
+
+vtb天生是偶像，粉丝天然是饭圈。
+
+有人的地方就有江湖。
+
+而江湖不过是争名夺利罢了，
+
+就算偶像不争，粉丝也想争<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9721#       发表于 2020-6-23 08:09
+
+
+
+
+有虹组组员直球过组内普遍不喜欢某个男女联动，因为我不看所以不记得男方是谁了，女方是爱园爱美。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9722#       发表于 2020-6-23 08:15
+
+
+
+
+傻逼yagoo，星搞成这样不如一开始就去硬吃女团流量，运营只管躺好任艹就行了，又当**又想立牌坊。一期那三个像是凭自己本事就能火起来的？或阿希移籍过去搞个只有阿希的一女N男的箱，满足阿希当公主的愿望，阿希同箱爱怎么联动怎么联动，反正live这边除了白上桑也没其他人一起玩的了。越想越气…干<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 9723#       发表于 2020-6-23 08:15
+
+
+
+<img src="https://p.sda1.dev/0/a244afebfb6884a6d88ca69f35b2712c/Ntuytg.md.jpg" referrerpolicy="no-referrer">夸皇，复活的神！！！！！！！！！！！！！！！！！！
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9724#       发表于 2020-6-23 08:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47911714&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-22 23:40</a>
+
+这次不整复活的，我之前就预言过了
+
+理由没说清楚就停播20天，来个复活直播不是给核心粉种梁木么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">兄啊，她复活了
+
+
+
+
+
+
+
+-----
+
+####  opersuper  
+##### 9725#       发表于 2020-6-23 08:18
+
+
+
+
+狐皇的永续魔法死者苏生又发动了
+
+
+
+
+
+
+
+-----
+
+####  cckuku  
+##### 9726#       发表于 2020-6-23 08:19
+
+
+
+
+是V综的大家最喜欢的复活呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9727#       发表于 2020-6-23 08:20
+
+
+
+ 本帖最后由 bluebaby 于 2020-6-23 08:21 编辑 
+
+熟悉的夸，熟悉的复活，这时候夸还弄这套看着还有点小感动了是怎么回事，这就是不忘初心吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9728#       发表于 2020-6-23 08:20
+
+
+
+
+大天使复活者楼该拉上来了
+
+
+
+
+
+
+
+-----
+
+####  y78348877  
+##### 9729#       发表于 2020-6-23 08:21
+
+
+
+
+不忘初心（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9730#       发表于 2020-6-23 08:23
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-23 08:18
+兄啊，她复活了</blockquote>
+怎么还鞭尸我的发言，太残忍了
+
+原来我一直不了解阿库娅小姐吗T.T
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9731#       发表于 2020-6-23 08:24
+
+
+
+ 本帖最后由 面具13 于 2020-6-23 08:34 编辑 
+
+日本复活配信和复归配信意思差不多的啦，跟死关系不大的，文化差异文化差异。
+
+V综大家最爱的露露不也用这个词嘛。
+
+
+不过不能惯着凑女人去搞饥饿营销，今晚必不给她红sc
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 9732#       发表于 2020-6-23 08:24
+
+
+
+
+该复活还是得复活，看看夸皇今晚能打出什么成绩
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9733#       发表于 2020-6-23 08:28
+
+
+
+ 本帖最后由 深渊萃取 于 2020-6-23 08:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914242&amp;ptid=1941579" target="_blank">crawarb 发表于 2020-6-23 08:23</a>
+
+怎么还鞭尸我的发言，太残忍了
+
+原来我一直不了解阿库娅小姐吗T.T</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">那核心粉的梁木有在种了吗？我相信在大天使复活者的光辉照耀下，梁木crew通通洗心革面重新做人
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9734#       发表于 2020-6-23 08:29
+
+
+
+
+你们说复活我总是第一反应geiz revive<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还在想是刚烈还是疾风
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9735#       发表于 2020-6-23 08:39
+
+
+
+ 本帖最后由 erer 于 2020-6-23 08:42 编辑 
+
+不就是个复活，我们夸宝玩多少次了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">湊阿夸归来！
+
+
+
+
+
+
+1072C4C6-CDB8-4E22-8DFE-05F1C3138D3A.jpeg
+(183.77 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-23 08:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/23/084159a0l4ulu22i8a1pqu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9736#       发表于 2020-6-23 08:42
+
+
+
+
+论minato aqua小姐的复活甲CT多长，我觉得这三周是复活甲的CT没转完
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9737#       发表于 2020-6-23 08:43
+
+
+
+<blockquote>深渊萃取 发表于 2020-6-23 08:28
+那核心粉的梁木有在种了吗？我相信在大天使复活者的光辉照耀下，梁木crew通通洗心革面重新做人
+
+ ...</blockquote>
+食材不怎么样，好不好吃还可以靠厨师的手艺，看今晚直播的发挥呗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9738#       发表于 2020-6-23 08:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复活都能种梁木，等哪天再也不复活了可找不到地方哭了。
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9739#       发表于 2020-6-23 08:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">夸复活，木**炸倒计时回拨2秒
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9740#       发表于 2020-6-23 08:45
+
+
+
+<blockquote>crawarb 发表于 2020-6-23 08:43
+食材不怎么样，好不好吃还可以靠厨师的手艺，看今晚直播的发挥呗</blockquote>
+虽然这么说不太好，但她杂谈水准不是公认的逊吗
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9741#       发表于 2020-6-23 08:46
+
+
+
+
+终于可以打钱了，太棒了。
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9742#       发表于 2020-6-23 08:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914446&amp;ptid=1941579" target="_blank">深渊萃取 发表于 2020-6-23 08:45</a>
+
+虽然这么说不太好，但她杂谈水准不是公认的逊吗</blockquote>
+可能去修炼杂谈了，去跟船长取经<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9743#       发表于 2020-6-23 08:47
+
+
+
+
+其实今晚夸只要给个event时间的准话就没啥大问题了吧
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9744#       发表于 2020-6-23 08:49
+
+
+
+<blockquote>kirakira~ 发表于 2020-6-23 08:47
+可能去修炼杂谈了，去跟船长取经</blockquote>
+不行不行，学了要姨化的
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9745#       发表于 2020-6-23 08:50
+
+
+
+
+一般粉丝：等这次杂谈决定种不种梁木。我：听到声音就安心。
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9746#       发表于 2020-6-23 08:52
+
+
+
+<blockquote>erer 发表于 2020-6-23 08:50
+一般粉丝：等这次杂谈决定种不种梁木。我：听到声音就安心。</blockquote>
+一般粉丝 ❌
+
+核心粉丝 ⭕
+
+
+
+
+
+
+
+-----
+
+####  stedckk  
+##### 9747#       发表于 2020-6-23 08:52
+
+
+
+
+一般粉丝不会想这些的吧，又不是v综人
+
+
+
+
+
+
+
+-----
+
+####  あのん  
+##### 9748#       发表于 2020-6-23 08:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我的紫宝也回来了，我要变回纯良萌萌人了
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9749#       发表于 2020-6-23 08:53
+
+
+
+
+总算是可以少一波人发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9750#       发表于 2020-6-23 08:53
+
+
+
+
+V综人本质是gachi报团取暖咯
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9751#       发表于 2020-6-23 08:54
+
+
+
+
+这位老哥还是不了解阿夸，她又不觉得复活是什么不好的事情，对她来说复活就是日本综艺里常用的梗而已，搞复活回非常正常。这老哥怕不是之前阿夸家人去世后被v综狂黑复活恰烂钱导致了对复活的梁木。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9752#       发表于 2020-6-23 08:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914544&amp;ptid=1941579" target="_blank">深渊萃取 发表于 2020-6-23 08:53</a>
+
+V综人本质是gachi报团取暖咯</blockquote>
+你发现了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 9753#       发表于 2020-6-23 08:54
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-23 08:56 编辑 
+
+🌿
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">大天使这是纵使三度迎来落日，来着
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9754#       发表于 2020-6-23 08:56
+
+
+
+<blockquote>渡鸦骑士 发表于 2020-6-23 08:54
+你发现了</blockquote>
+多么温柔的世界
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9755#       发表于 2020-6-23 08:58
+
+
+
+
+来点狐狸浓度，现在正在和荒咬绝赞早安杂谈中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 9756#       发表于 2020-6-23 09:02
+
+
+
+ 本帖最后由 Nonamesky 于 2020-6-23 09:04 编辑 
+
+两次早上跟杏星的联动都被隐藏了，ytb也是独角兽？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+刚说完这次联动直接被ban了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  icecry  
+##### 9757#       发表于 2020-6-23 09:03
+
+
+
+ 本帖最后由 icecry 于 2020-6-23 09:04 编辑 
+
+露露晚上也要玩那个壶了，这两周都是玩小游戏...明天生日+歌回。真的就迟迟不开tlou2，被剧透了吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  crito  
+##### 9758#       发表于 2020-6-23 09:04
+
+
+
+
+不如猜猜狐皇这回要做几次复读
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9759#       发表于 2020-6-23 09:04
+
+
+
+
+b站是不是也没转播狐狸这个，我早上看到她发推没看到直播间还以为改荒咬那边了。
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9760#       发表于 2020-6-23 09:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914651&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 09:04</a>
+
+b站是不是也没转播狐狸这个，我早上看到她发推没看到直播间还以为改荒咬那边了。 ...</blockquote>
+荒咬在阿b还没入驻吧，应该是在star的号转播。
+
+看样子是转播man没看得到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9761#       发表于 2020-6-23 09:07
+
+
+
+
+少主忧心🌟，怕不是要把我家夸宝的复活推随意敷衍过去。狐夸已经不再是过去的狐夸了😭
+
+
+
+
+
+
+
+-----
+
+####  Nonamesky  
+##### 9762#       发表于 2020-6-23 09:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914651&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 09:04</a>
+
+b站是不是也没转播狐狸这个，我早上看到她发推没看到直播间还以为改荒咬那边了。 ...</blockquote>
+现在太早、太晚、突击直播狐组大概率都不会转
+
+
+
+
+
+
+
+-----
+
+####  yinoh  
+##### 9763#       发表于 2020-6-23 09:11
+
+
+
+
+复活，打钱，照旧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  飞姆托  
+##### 9764#       发表于 2020-6-23 09:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">狐皇gachi倒了，居然转播都找不到人
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9765#       发表于 2020-6-23 09:14
+
+
+
+ 本帖最后由 rzrbtk 于 2020-6-23 09:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47913559&amp;ptid=1941579" target="_blank">fastary 发表于 2020-6-23 03:26</a>
+
+只看推的人相关对于单推来说不是很正常吗，大联动再神回没黛灰都不关我事的，最多黛灰不播的时候随便找个歌 ...</blockquote>
+没啥，就郡道很闲，想着黛灰现在是不是有空，观众说刚开完杂谈，就打了个discord聊两句。说了点apex的内容，然后就是一贯的郡道开玩笑，黛灰用冷淡的语气接她的玩笑，聊了些apex模仿，apex里谁比较H，黛灰好像是首次t台电话聊天(？)，然后郡道让他宣传一下电台，再然后就挂电话啦。
+
+郡道说自己吃了点药，而且之前头痛，可能也是撑着开的t台吧，所以时间有点短。
+
+看到郡道回复了一个黛灰推，可能是在抱怨突击连线没看到（已经删了），郡道回复说有存档，她就超丁宁的道了歉。
+
+可能黛灰不怎么t台吧，所以粉丝不是很熟悉？朋友想看可以去郡道t台，最新那个就有黛灰。
+
+
+—— 来自 HMD Global Nokia X7, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+
+
+
+
+
+-----
+
+####  bluebaby  
+##### 9766#       发表于 2020-6-23 09:17
+
+
+
+
+狐皇现在早班挺多的吧，狐组还没被掰成养生早起的样子吗，还是因为前段时间早间动森不用转变懒逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 9767#       发表于 2020-6-23 09:25
+
+
+
+
+比起复活杂谈我还是想知道啊夸的第一个game攻势，是低成本恐怖游戏行方不明？还是和各种后宫候补一起玩多人游戏？ea的版权不知道好不好拿，会去steam买便宜大碗的打折3d大作吗？
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9768#       发表于 2020-6-23 09:26
+
+
+
+
+白上桑的gachi请自觉点去404，油管SC可是唯一指定邮箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9769#       发表于 2020-6-23 09:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> “耐久确定！和最好的你一起攻破难关！？！？”（实际是壶男）
+
+
+
+
+
+
+
+-----
+
+####  aele  
+##### 9770#       发表于 2020-6-23 09:29
+
+
+
+
+估计育碧游戏库里选一个，然后因为数字不好坑掉换恐怖游戏合集
+
+
+
+
+
+
+
+-----
+
+####  激光2000  
+##### 9771#       发表于 2020-6-23 09:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer"> 只狼难道没许可吗？
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9772#       发表于 2020-6-23 09:31
+
+
+
+
+史诗大作tlou2吧
+
+最近口了的剪辑看到好几个没朋友的自虐梗
+能不能……
+
+
+
+
+
+
+
+-----
+
+####  空虚澄璃色  
+##### 9773#       发表于 2020-6-23 09:32
+
+
+
+
+美末2播不了吧，静凛第一天请示运营请了三天才下许可，人直接打标题二周目走起，以啊夸怕麻烦的个性估计不会堵yagoo门。
+
+
+
+
+
+
+
+-----
+
+####  crawarb  
+##### 9774#       发表于 2020-6-23 09:36
+
+
+
+
+话说cover播啥都要去请求许可的话，会变成和那些媒体一个下场吧，问就是10/10，liver们不敢分享真实想法
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9775#       发表于 2020-6-23 09:37
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/23/093659ytbwdqtkf80cwfqf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200623103641.jpg</strong> (203.21 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-23 09:36 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  泡芙好吃  
+##### 9776#       发表于 2020-6-23 09:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914470&amp;ptid=1941579" target="_blank">bluebaby 发表于 2020-6-23 08:47</a>
+
+其实今晚夸只要给个event时间的准话就没啥大问题了吧</blockquote>
+如果真的有确切时间可以透露的话肯定封面会写XX告知之类的
+
+这次什么都没写反而搞不清楚
+
+
+
+
+
+
+
+-----
+
+####  中野六小龄童  
+##### 9777#       发表于 2020-6-23 09:40
+
+
+
+
+夸宝过两天估计也要播个行方不明养gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等一个起飞
+
+
+
+
+
+
+
+-----
+
+####  soranoguiji  
+##### 9778#       发表于 2020-6-23 09:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47912432&amp;ptid=1941579" target="_blank">winda 发表于 2020-6-23 00:35</a>
+
+现在的问题是为什么还是只有小肥妹，liver都区别待遇了还要指望粉丝一视同仁吗？
+
+狐皇味道溢出来的企划， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 人也不傻，上次还有人问狼妈以后人狼能不能带星男人，结果狼妈一句需要运营许可直接太极打过去了
+
+
+
+
+
+
+
+-----
+
+####  某穆克拉  
+##### 9779#       发表于 2020-6-23 09:43
+
+
+
+
+行方不明就能养gachi了吗，你们gachi行不行啊
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9780#       发表于 2020-6-23 09:44
+
+
+
+
+这次这帮人跑到NGA杏楼带节奏去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9781#       发表于 2020-6-23 09:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915087&amp;ptid=1941579" target="_blank">某穆克拉 发表于 2020-6-23 09:43</a>
+
+行方不明就能养gachi了吗，你们gachi行不行啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">行方不明这恐怖度能拿来养噶吃的估计就MIO了吧
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9782#       发表于 2020-6-23 09:45
+
+
+
+
+NGA要杀头还是很快的。
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9783#       发表于 2020-6-23 09:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915104&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-23 09:44</a>
+
+这次这帮人跑到NGA杏楼带节奏去了要V8B站NGA三线大战了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还把S1拉上了，说的S1跟V8同仇敌忾了似的
+
+
+
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 9784#       发表于 2020-6-23 09:49
+
+
+
+
+嗯？是谁在说口了虐？
+
+让我来分享一个会”偶然“看完郡道的直播，会夸郡道直播效果但又会在最后骂一句性格不好的前mrra党、现郡道anti的有趣言论。
+
+内容我大概只同意一半，但口了虐那个味道是有了，我很喜欢。
+
+”なんか私から見たら知らんうちにraちゃんはgnduに嫌われてるけど、raちゃんはgnduの事好きだしgndu側も好きでいてくれてるって思ってるように見えたからただraちゃんが可哀想だなって感じた
+
+うーんなんかね そんな時くらい刺激しないように言葉選べばいいのにむしろ煽るからなんでそうなるんだ…ってなった
+
+だね うーん実際どうなんだかな…私は仲良いとは思えんが…(頑なに信じない)“
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9785#       发表于 2020-6-23 09:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915131&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-23 09:46</a>
+
+还把S1拉上了，说的S1跟V8同仇敌忾了似的</blockquote>
+然后就像我发的那句一样，S1这里看大家还半信不信的呐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9786#       发表于 2020-6-23 09:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915192&amp;ptid=1941579" target="_blank">Izuru单推人 发表于 2020-6-23 09:51</a>
+
+然后就像我发的那句一样，S1这里看大家还半信不信的呐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好了咱现在知道你NGA的ID了
+
+
+话说你消息晚了啊，最新消息是目前所有黑料都处于无实锤状态
+
+
+
+
+
+
+
+-----
+
+####  VivillonTundra  
+##### 9787#       发表于 2020-6-23 09:55
+
+
+
+
+免费，我要🦈了你！
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9788#       发表于 2020-6-23 09:57
+
+
+
+
+原来那是黑宝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9789#       发表于 2020-6-23 09:58
+
+
+
+
+看头像就知道了，那是还有初心的红a哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  金魚佬  
+##### 9790#       发表于 2020-6-23 09:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原来楼上的是新参，之前黑宝还是红A哥的时候头像和nga一样的，后来换成黑桐干也才变成黑宝的
+
+
+
+
+
+
+
+-----
+
+####  poipanchao  
+##### 9791#       发表于 2020-6-23 09:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915166&amp;ptid=1941579" target="_blank">rzrbtk 发表于 2020-6-23 09:49</a>
+嗯？是谁在说口了虐？
+
+让我来分享一个会”偶然“看完郡道的直播，会夸郡道直播效果但又会在最后骂一句性格 ...</blockquote>
+为什么mrra火热的时候无感
+现在不仲了就特别想看呢，陷入沉思
+
+
+
+
+
+
+
+-----
+
+####  kirakira~  
+##### 9792#       发表于 2020-6-23 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915224&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-23 09:53</a>
+
+好了咱现在知道你NGA的ID了
+
+
+话说你消息晚了啊，最新消息是目前所有黑料都处于无实锤状态 ...</blockquote>
+主要我原本以为是喜欢用真名黑屁的小鬼，觉得还不如放他去s1跟真正的巨魔对线
+
+
+
+
+
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 9793#       发表于 2020-6-23 10:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915304&amp;ptid=1941579" target="_blank">面具13 发表于 2020-6-23 09:58</a>
+
+看头像就知道了，那是还有初心的红a哥</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">id好诗意啊
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 9794#       发表于 2020-6-23 10:01
+
+
+
+<blockquote>poipanchao 发表于 2020-6-23 09:59
+为什么mrra火热的时候无感
+
+现在不仲了就特别想看呢，陷入沉思</blockquote>
+是残缺美，卜折手断的维纳斯充满了美感
+
+
+
+
+
+
+
+-----
+
+####  双刀少女  
+##### 9795#       发表于 2020-6-23 10:02
+
+
+
+
+好久没看管人了，看到holo龙要3d回了，这是不是要破10w同接？我之前还看的时候记得2434好像最高是7w来着...
+
+
+
+
+
+
+
+-----
+
+####  面具13  
+##### 9796#       发表于 2020-6-23 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915340&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-23 10:01</a>
+
+id好诗意啊</blockquote>
+你进去看看签名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 9797#       发表于 2020-6-23 10:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915351&amp;ptid=1941579" target="_blank">双刀少女 发表于 2020-6-23 10:02</a>
+
+好久没看管人了，看到holo龙要3d回了，这是不是要破10w同接？我之前还看的时候记得2434好像最高是7w来着... ...</blockquote>
+3d回最高的还没7w，那是马车比赛决赛的记录好像。
+
+反正大家都在使劲的奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  asdhai  
+##### 9798#       发表于 2020-6-23 10:06
+
+
+
+ 本帖最后由 asdhai 于 2020-6-23 10:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915315&amp;ptid=1941579" target="_blank">金魚佬 发表于 2020-6-23 09:59</a>
+
+原来楼上的是新参，之前黑宝还是红A哥的时候头像和nga一样的，后来换成黑桐干也才变成黑宝的 ...</blockquote>
+v8才进来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">以前是偶尔瞧两眼切片的散装粉。
+
+
+
+
+
+
+
+-----
+
+####  erer  
+##### 9799#       发表于 2020-6-23 10:06
+
+
+
+
+龙皇能不能创造千万sc单人回，但是这波距离生日回太近了，有点劣势。
+
+
+
+
+
+
+
+-----
+
+####  Izuru单推人  
+##### 9800#       发表于 2020-6-23 10:08
+
+
+
+ 本帖最后由 Izuru单推人 于 2020-6-23 10:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47915340&amp;ptid=1941579" target="_blank">恶魔娘阿洛 发表于 2020-6-23 10:01</a>
+
+id好诗意啊</blockquote>
+其实是日语“空は高く風は歌う”的翻译，Fate/Zero第二季的ED曲，现在还是我的手机铃 声
+
+
+
+
+
+
+
+-----
+
+####  口苗口苗口  
+##### 9801#       发表于 2020-6-23 10:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47913997&amp;ptid=1941579" target="_blank">poipanchao 发表于 2020-6-23 07:37</a>
+怎么大半夜的单推发病
+绿gachi老姐你这么发疯，本来对绿没梁木的人也要有偏见了</blockquote>
+我觉得我主基调还是我有问题，我有病，和绿没什么关系，然后就是见得太多伤的太深，最后揉杂一点坏组长的烦恼。这样都要对绿有梁木那我也没办法，不是应该对我有梁木么？
+
+
+
+
+
+                       

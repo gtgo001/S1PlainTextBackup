@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-23 00:06** 
+> ## **本文件最后更新于2020-06-23 10:05** 
 
 
 
@@ -10748,4 +10748,228 @@ yhm大多脑子里没有料， 无法做出有水平的吐槽<img src="https://s
 
 
 
-                             
+
+
+-----
+
+####  2014720  
+##### 14123#       发表于 2020-6-23 00:17
+
+
+
+
+我就是想看她做一些哈子卡西的事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14124#       发表于 2020-6-23 00:22
+
+
+
+
+“我才不要”
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 14125#       发表于 2020-6-23 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47911855&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-6-22 23:50</a>
+
+非踩一捧一吧，但是大部分这类剧情向游戏，去爽哥和小秦这种直播间。弹幕的吐槽玩梗水平和想象力，比任何vt ...</blockquote>
+vtb整体水平还是没法和国内这群红海斗虫杀出来的游戏主播比的,不管是主播自己的能力还是周边文化
+
+不说更顶尖的,就是秦川他们那个班子玩冬日计划或者人类一败涂地节目效果都已经远超大部分v的联动了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14126#       发表于 2020-6-23 06:42
+
+
+
+
+早安推
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 14127#       发表于 2020-6-23 07:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47910799&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-06-22 22:38:10</a>
+meu的两次转化都很正常，但mea的第二次转化就显示道具数量不足了，可我明明有道具啊
+
+ ...</blockquote>超时空回复 不知道你解决没 你把精灵石锁了 截图上都能看到（
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  onlv星骸  
+##### 14128#       发表于 2020-6-23 09:29
+
+
+
+
+玩p5s吧，第一个就是偶像脑控粉丝的故事。电视节目里脑控男主持人当场告白xswl
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 14129#       发表于 2020-6-23 09:42
+
+
+
+
+不玩本篇直接玩P5S剧情会懵逼吧
+
+电视台那个的确笑死
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14130#       发表于 2020-6-23 09:45
+
+
+
+
+咩姐啥时候把只狼补完呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 14131#       发表于 2020-6-23 09:50
+
+
+
+<blockquote>kolu33 发表于 2020-6-23 09:45
+咩姐啥时候把只狼补完呢</blockquote>
+2200年了还只狼，梦里啥都有
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 14132#       发表于 2020-6-23 09:51
+
+
+
+
+有梦是好事，但是不现实，不如想想你麻啥时候玩XBDE
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14133#       发表于 2020-6-23 09:51
+
+
+
+
+我不信，我不信!咩姐姐什么时候骗过我<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14134#       发表于 2020-6-23 09:58
+
+
+
+
+你咩姐播单机游戏本身就挺梦幻的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14135#       发表于 2020-6-23 10:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47914057&amp;ptid=1929631" target="_blank">黒長直姫 发表于 2020-6-23 07:55</a>
+
+超时空回复 不知道你解决没 你把精灵石锁了 截图上都能看到（
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也发现了
+
+
+
+
+
+                            
