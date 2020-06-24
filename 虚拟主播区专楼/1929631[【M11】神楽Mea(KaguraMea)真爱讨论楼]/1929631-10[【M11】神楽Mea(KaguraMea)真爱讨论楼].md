@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-24 18:03** 
+> ## **本文件最后更新于2020-06-24 22:03** 
 
 
 
@@ -13025,4 +13025,524 @@ mea真的是，努力都不想让我们知道。以后自己家女儿能这么�
 
 
 
-                        
+
+
+-----
+
+####  Sanguine  
+##### 14254#       发表于 2020-6-24 18:10
+
+
+
+
+没关系，转生了我也会凭着声音认出麻的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14255#       发表于 2020-6-24 18:15
+
+
+
+
+是我暗黑佐仓哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14256#       发表于 2020-6-24 18:36
+
+
+
+
+大概是奇怪的执念吧
+
+
+“跟别人说我很努力反而感觉很奇怪”
+
+
+“直接要钱有面子，拿努力来换钱一点都不厉害”
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 14257#       发表于 2020-6-24 19:37
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-24 19:42 编辑 
+
+不是那个吗
+
+
+问题儿童营业（？）
+
+当然， 
+
+
+还有许多切入角度，
+
+
+比如说她抗拒
+
+
+【用“什么东西”换取回报】 这种模式， 因为进入这种模式的话就像是达成了某种契约一样会有心理压力
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14258#       发表于 2020-6-24 19:47
+
+
+
+
+她真好，她真努力<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14259#       发表于 2020-6-24 19:50
+
+
+
+
+憋说了要天道酬勤ptsd了，她直播我看就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14260#       发表于 2020-6-24 20:02
+
+
+
+
+看了眼监控器
+
+【TwitcastChat 卯月コウ 直播评论】
+
+用户：🍥神楽めあ/KaguraMea🍥(KaguraMea_VoV)
+
+内容：余ったので失礼
+
+时间：2020-06-24 09:08:21 UTC
+
+网址：[https://twitcasting.tv/udukikohh](https://twitcasting.tv/udukikohh)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14261#       发表于 2020-6-24 20:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936399&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-24 17:00</a>
+
+一想到咩和隔壁休息完都先去苔姨那播
+
+
+我梁木就蹭蹭蹭的长，可恶的苔姨 ...</blockquote>
+这也要暗黑贴贴的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+犬山双飞论都什么时候的老黄历了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14262#       发表于 2020-6-24 20:56
+
+
+
+
+不，我觉得单纯只是那种，一方面不想让人知道自己努力来体现自己比别人的强来让粉丝夸自己，另一方面又希望粉丝对自己努力的这一事实来夸自己。
+
+不然无法解释为啥平时总说自己努力了（确实也在努力），但是那些真正的大活比如点的live联动、原创曲、bls要上3D还有大型游戏联动却从来都内绪到最后一刻。
+
+
+啊，今天又在催眠自己她有多好，又一次在与坏女人的精控抗争中落败。<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 14263#       发表于 2020-6-24 20:58
+
+
+
+
+整个mea马骑马的改图吧，我最喜欢坏女人了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14264#       发表于 2020-6-24 20:58
+
+
+
+
+财布在说话
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14265#       发表于 2020-6-24 21:02
+
+
+
+
+这是命令
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14266#       发表于 2020-6-24 21:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">就是这点很蛋疼，我看别人有个原创曲有个啥重要节目都恨不得提前几个月发表收一波，然后公布的时候再收一波，这人连参加大型活动都是从别人那知道的。要说她不懂吧，她其实懂的很，但她就是不干
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14267#       发表于 2020-6-24 21:04
+
+
+
+
+说起来明天动了之后是恢复正常直播还是要继续鸽段时间啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14268#       发表于 2020-6-24 21:10
+
+
+
+
+我的理性告诉我让她再休息会
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14269#       发表于 2020-6-24 21:10
+
+
+
+
+28号就周年了，不过她也没说有什么企划。但下次不能播应该还是要到下个月了，也是这么几天。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14270#       发表于 2020-6-24 21:11
+
+
+
+
+想她……
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14271#       发表于 2020-6-24 21:14
+
+
+
+
+还行，昨晚被她回复两次，一次届到了结婚，第二次提了下没方向可以试着播播沙雕小游戏，她回了我个可爱颜文字。
+
+最近也没再需要抱着她玩偶睡了（因为热，把pr的问题弄好赶紧开始干活，回家了就又没那么多时间了，最起码不自由。
+
+
+感觉跟写日记似的）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14272#       发表于 2020-6-24 21:14
+
+
+
+
+啊周年啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14273#       发表于 2020-6-24 21:15
+
+
+
+
+坏女人不想说她在努力可能是想降低期待，期望太高到时又失望，反馈给她，她受不了又要开始犯病了
+还有可能是那种想当平常什么书都不看，但考试的时候成绩却有全班前几的天才吧
+总之天天在网上bb不想上班不想出门的人肯定不是奋斗狂<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14274#       发表于 2020-6-24 21:16
+
+
+
+
+周年还是希望这丫头上上心吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+明天是不是就回来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14275#       发表于 2020-6-24 21:32
+
+
+
+
+安安稳稳度过就行了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14276#       发表于 2020-6-24 21:45
+
+
+
+
+她不是说了周年没啥活，但是生日会有，还有阿b两周年，歇，歇都可以歇<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14277#       发表于 2020-6-24 21:47
+
+
+
+
+404周年没有，阿b周年有。得出结论：阿b是好爸爸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14278#       发表于 2020-6-24 21:47
+
+
+
+
+不是周年有歌，生日没活吗？已经可以了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14279#       发表于 2020-6-24 21:48
+
+
+
+
+你记反了，是生日有准备
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14280#       发表于 2020-6-24 21:55
+
+
+
+
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。反正是瞎编的生日，忘记了也正常（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14281#       发表于 2020-6-24 22:00
+
+
+
+
+叔叔我啊，真的生气了，为什么能看错啊
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/220013uconticcx22arqy2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624220003.png</strong> (55.68 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:00 上传
+
+
+
+
+
+
+6月1日的直播
+
+
+
+
+
+                       
