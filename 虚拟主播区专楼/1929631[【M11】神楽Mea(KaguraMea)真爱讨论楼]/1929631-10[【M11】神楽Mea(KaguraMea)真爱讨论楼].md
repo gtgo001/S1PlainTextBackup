@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-24 00:05** 
+> ## **本文件最后更新于2020-06-24 14:04** 
 
 
 
@@ -11884,7 +11884,7 @@ is that a jojo reference
 <img src="https://img.saraba1st.com/forum/202006/23/231259jdzzo7oc9bghbbzb.png" referrerpolicy="no-referrer">
 
 
-<strong>1.png</strong> (5.69 KB, 下载次数: 1)
+<strong>1.png</strong> (5.69 KB, 下载次数: 2)
 
 下载附件
 
@@ -12042,4 +12042,499 @@ abo书单草
 
 
 
-                          
+
+
+-----
+
+####  2014720  
+##### 14197#       发表于 2020-6-24 00:10
+
+
+
+
+她最近挺软的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14198#       发表于 2020-6-24 00:11
+
+
+
+
+啊啊啊啊啊 我离最后一个人就差了十分钟啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14199#       发表于 2020-6-24 00:16
+
+
+
+
+期待那个暴言咩找到合适的暴言方式再放送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14200#       发表于 2020-6-24 00:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47926627&amp;ptid=1929631" target="_blank">惑星 发表于 2020-6-24 00:00</a>
+
+看了看fafa烤的BV1xz411e7fc感受了一下
+
+有18年那时候的感觉，不忘初心啊，阿咩现在有一颗暴言的心没有暴言 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后半段是精髓
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14201#       发表于 2020-6-24 00:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47926853&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-24 00:19</a>
+后半段是精髓</blockquote>
+对就是那段yygq爱抖露，说的很委婉，换18年就直接暴言了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14202#       发表于 2020-6-24 00:26
+
+
+
+ 本帖最后由 2014720 于 2020-6-24 00:38 编辑 
+
+她这几天是不是应聘去了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+如果不是应聘的话，办皮包公司或买房吧
+我觉得真有可能是神乐组第四人<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14203#       发表于 2020-6-24 00:27
+
+
+
+
+但是这种若即若离的yygq也好挠人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14204#       发表于 2020-6-24 00:30
+
+
+
+
+你咩姐的聊天风格挺戳我的,跟黑卫衣一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14205#       发表于 2020-6-24 00:43
+
+
+
+
+后半段有点姨味了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，有点幻灭
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14206#       发表于 2020-6-24 01:24
+
+
+
+
+买房草
+
+
+她办得了贷款？
+
+
+不用贷款我把显示器吃了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14207#       发表于 2020-6-24 01:56
+
+
+
+
+去北海道置办养老房产，顺便当包租婆（）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14208#       发表于 2020-6-24 08:14
+
+
+
+
+早安推来了，这真是去打工了还是说的以前的事？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 14209#       发表于 2020-6-24 08:16
+
+
+
+
+3D可能性微存
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14210#       发表于 2020-6-24 08:24
+
+
+
+
+【TwitterUser 神楽めあ 数据改变】键：location
+
+原值：迷子のままでも大丈夫
+
+现值：週休7日希望です
+
+
+时间：2020-06-24 00:03:22 UTC网址：[https://twitter.com/KaguraMea_VoV](https://twitter.com/KaguraMea_VoV)
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 14211#       发表于 2020-6-24 08:54
+
+
+
+
+有带侦探推理下她去干嘛了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14212#       发表于 2020-6-24 08:59
+
+
+
+ 本帖最后由 呓亘 于 2020-6-24 09:02 编辑 
+
+去录3D舞蹈了！（瞎猜的
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 14213#       发表于 2020-6-24 09:11
+
+
+
+
+问就是录3D
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 14214#       发表于 2020-6-24 09:19
+
+
+
+
+西安高校男生直播侮辱女生坦克被处分
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14215#       发表于 2020-6-24 11:39
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/113907dgeknijodej8knhf.png" referrerpolicy="no-referrer">
+
+
+<strong>-3b0f75e65df26ceb.png</strong> (1.34 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 11:39 上传
+
+
+
+
+
+
+刚更新的高难本
+
+
+
+
+
+
+
+-----
+
+####  与太郎  
+##### 14216#       发表于 2020-6-24 11:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47927521&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-6-24 01:24</a>
+
+买房草
+
+
+她办得了贷款？</blockquote>
+身家过亿可能性微存
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14217#       发表于 2020-6-24 11:58
+
+
+
+
+mea高难召唤天狗可tm还行，你们自裁吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 14218#       发表于 2020-6-24 12:07
+
+
+
+
+好难啊 打不过 天狗怨念也太深了 
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14219#       发表于 2020-6-24 12:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">meu是送新人福利的吧，mea是杀招啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14220#       发表于 2020-6-24 12:20
+
+
+
+
+天狗是真的nb<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14221#       发表于 2020-6-24 12:32
+
+
+
+
+有玛门的话还是挺容易的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14222#       发表于 2020-6-24 12:37
+
+
+
+[https://www.bigfun.cn/post/421574](https://www.bigfun.cn/post/421574)]
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没玛门，看起来这个挺容易但我把钱浪光了练不了
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 14223#       发表于 2020-6-24 12:56
+
+
+
+
+仔细算算也就一个金史莱姆一份SC 有价值 打不过就不打了（ 慢慢练天狗看看活动结束前能不能打过吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14224#       发表于 2020-6-24 13:49
+
+
+
+
+感觉重点就是把桥姬的练度拉起来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只要能抗住天狗的伤害，拖到mea放绝地反击，替补塞三个肉硬抗绝地反击就能过了，这两天练练桥姬试试
+
+
+
+
+
+                         
