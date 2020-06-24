@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-24 22:03** 
+> ## **本文件最后更新于2020-06-25 02:02** 
 
 
 
@@ -13473,8 +13473,9 @@ mea真的是，努力都不想让我们知道。以后自己家女儿能这么�
 
 
 
+ 本帖最后由 离心 于 2020-6-24 22:31 编辑 
 
-不是周年有歌，生日没活吗？已经可以了
+编辑了
 
 
 
@@ -13545,4 +13546,622 @@ mea真的是，努力都不想让我们知道。以后自己家女儿能这么�
 
 
 
-                       
+
+
+-----
+
+####  Dualist彩  
+##### 14282#       发表于 2020-6-24 22:19
+
+
+
+
+瞅了眼隔壁大松鼠，你麻应该也会弄个家用3d吧，听说这种是用的iphone直接光补就够了？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14283#       发表于 2020-6-24 22:22
+
+
+
+
+hana那是有长期的技术支持，mea搞起来不知道会不会嫌麻烦
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14284#       发表于 2020-6-24 22:30
+
+
+
+
+有人一起搞个3D动捕公司给mea提供技术支持吗。中国3D技术必将橄榄日本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14285#       发表于 2020-6-24 22:30
+
+
+
+
+了解了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14286#       发表于 2020-6-24 22:32
+
+
+
+
+你们只是想特出小麻，麻酱必不会上你们的当<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14287#       发表于 2020-6-24 22:33
+
+
+
+
+啊 连楼友都骗不过看来小麻是不会上当了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 14288#       发表于 2020-6-24 22:34
+
+
+
+
+mea是那种，啊b就算想送他一套3d辅助团队（兼职），也不会要。 嗯 就是这种人。
+你看sio就大大方方接受了yostar的好意
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14289#       发表于 2020-6-24 22:37
+
+
+
+
+新版iPad不就是带了什么测距雷达了么，虽然说好像是用于AR技术的，但是捕捉个人动作什么的也是可以的，所以简单的家用3d完全可行，更多的是模型优化问题。泠鸢yousa现在的模型就可以捕捉到胳膊抬手的动作。
+但这女人不做啊<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">眼球捕捉都不开，让她升级模型，捕捉自己上半身动作基本上不可能。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14290#       发表于 2020-6-24 22:43
+
+
+
+
+搞不好给你来一个捕捉中段身体的直播，脸照样不开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 14291#       发表于 2020-6-24 22:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/225527lsn0n8gnpspjj0n2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624225042.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:55 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/225530t9rre6i6z6e6m6i9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624225112.png</strong> (1.6 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:55 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/225534iaqrr2d2dheq7e0r.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624225120.png</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:55 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/225538yj9szsszrk9z1jbj.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624225152.png</strong> (1.64 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:55 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/225542gwou4wecw5zehkmu.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624225206.png</strong> (1.63 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:55 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/225546v93mlr7g5qrdg9xg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624225213.png</strong> (1.67 MB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 22:55 上传
+
+
+
+
+
+
+
+滥 用 职 权
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14292#       发表于 2020-6-24 23:07
+
+
+
+
+快来点像隔壁维阿一样的爆料<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14293#       发表于 2020-6-24 23:07
+
+
+
+
+天道好轮回
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/230748q5745qky7l577kfx.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624230739.png</strong> (217.7 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 23:07 上传
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/230715efabo8nlo3go51al.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200624230638.png</strong> (233.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-24 23:07 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14294#       发表于 2020-6-24 23:11
+
+
+
+
+报啥，地下偶像小麻用身体挽留凛子无果，结果双双出奔抛弃bs？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14295#       发表于 2020-6-24 23:14
+
+
+
+
+你咩姐对爱丽丝是“穿着衣服更色”，怎么到noe这就变成“给我脱”了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14296#       发表于 2020-6-24 23:16
+
+
+
+
+双标！幻灭了 脱粉了 渐行渐远了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14297#       发表于 2020-6-24 23:23
+
+
+
+
+你咩一直喜欢裸腿。对爱丽丝是皮性恋吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14298#       发表于 2020-6-24 23:29
+
+
+
+
+我是get不到爱丽丝皮的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14299#       发表于 2020-6-24 23:29
+
+
+
+
+以前mea说过的“果然女人还是要看腿啊”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14300#       发表于 2020-6-24 23:33
+
+
+
+
+她那火腿肠也好意思说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14301#       发表于 2020-6-24 23:33
+
+
+
+
+那么她到底喜欢平的还是大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 14302#       发表于 2020-6-24 23:34
+
+
+
+
+啧啧啧 
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14303#       发表于 2020-6-24 23:34
+
+
+
+
+动手喜欢大的，用眼喜欢小的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14304#       发表于 2020-6-24 23:34
+
+
+
+
+火腿肠不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14305#       发表于 2020-6-24 23:58
+
+
+
+
+这人大半夜的在想些什么东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 14306#       发表于 2020-6-25 00:03
+
+
+
+
+草 钱花到外卖和漫画上不比给女主播强?
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14307#       发表于 2020-6-25 00:05
+
+
+
+
+为什么会在这种事情上不安啊,以前穷惯了习惯不买新的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14308#       发表于 2020-6-25 00:05
+
+
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 14309#       发表于 2020-6-25 00:16
+
+
+
+
+发张照片吧秋梨膏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+不露脸的那种就行了
+
+至少在直播里说一下是什么样子的衣服啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14310#       发表于 2020-6-25 00:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">多久没消费了啊，买就买了呗，没必要没必要
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14311#       发表于 2020-6-25 00:31
+
+
+
+
+草，我都在脑补她直播说这段话的语气了，给我逗乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14312#       发表于 2020-6-25 00:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                      
