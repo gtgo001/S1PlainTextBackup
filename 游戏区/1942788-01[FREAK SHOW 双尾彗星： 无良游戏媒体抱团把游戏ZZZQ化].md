@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-24 18:11** 
+> ## **本文件最后更新于2020-06-25 00:11** 
 
 
 
@@ -18655,4 +18655,599 @@ stage1st宅社区
 
 
 
-                   
+
+
+-----
+
+####  岚绯  
+##### 914#       发表于 2020-6-24 18:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">GAMKER看看这周是不是出这个，感觉按聂胖的调性应该是等风向更稳一点才会出文案的吧
+
+
+
+
+
+
+
+-----
+
+####  活久见  
+##### 915#       发表于 2020-6-24 18:34
+
+
+
+
+整理了下
+
+
+
+
+
+
+未标题-3.png
+(104.38 KB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-6-24 18:34 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/24/183439ctkbhieif171werz.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 最好不说| + 1|欢乐多|
+| Stellar_Frost| + 1|好评加鹅|
+| 新机瑞| + 2|好活|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Troywest  
+##### 916#       发表于 2020-6-24 19:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936675&amp;ptid=1942788" target="_blank">Arccueid 发表于 2020-6-24 17:21</a>
+雷电没有前面那次360P事情凸显他的双标我都觉得没那么恶心</blockquote>
+最早看vg，看他直播俄罗斯方块，觉得这人还挺有意思的。后面才知道是真的脑残。对日式游戏，尤其是jrpg既不了解也不喜欢，总喜欢嘲讽jrpg和玩家。真的是恶心<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  acg_gyanc  
+##### 917#       发表于 2020-6-24 19:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936675&amp;ptid=1942788" target="_blank">Arccueid 发表于 2020-6-24 17:21</a>
+雷电没有前面那次360P事情凸显他的双标我都觉得没那么恶心</blockquote>
+雷电他要是一屁股坐死了黑老任我就不说什么了，他后面还往回找补说自己是任粉，到那我是真吐了
+
+
+
+
+
+
+
+-----
+
+####  楽園のエル  
+##### 918#       发表于 2020-6-24 19:58
+
+
+
+
+当初看中古战锤历史fo的彗星 看完一刷他的收藏夹竟还有E社游戏世界观科普 
+
+爱了爱了 甚至立刻给充了电<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  最好不说  
+##### 919#       发表于 2020-6-24 20:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936566&amp;ptid=1942788" target="_blank">Arccueid 发表于 2020-6-24 17:13</a>
+那不好意思了。反正我觉得很莫名其妙，这几次操作差不多都想取关他了，像D2一样好好打游戏评价游戏不行吗， ...</blockquote>
+他播tlou2的时候正好点进他直播间看了下，那时候刚打完不久，本来还是在聊游戏，之后就一转游戏媒体，然后和龙马互相理解，媒体这样也不容易，现在风气很不好，你们这种极端反应会毁掉中国游戏圈等一系列暴论就蹦出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ninini212  
+##### 920#       发表于 2020-6-24 20:56
+
+
+
+
+媒体不容易不是媒体脑子有病的理由
+
+游戏媒体大可以说自己工资低待遇差还被国内特殊政策gank，问题是他妈的主机玩家有几个能又有时间又有钱的打游戏？
+
+我表弟初中毕业了，前年买的ps4到现在没开机过几次，学业繁重，我身边的朋友一年可能才能玩两三个游戏（中年男子，有家有业）
+
+然后你媒体作为风向标恶意带了波节奏那我不cnm我等啥？
+
+
+----发送自 [samsung SM-G9650,Android 10](http://stage1.5j4m.com/?1.32)
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 921#       发表于 2020-6-24 20:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47937685&amp;ptid=1942788" target="_blank">活久见 发表于 2020-6-24 18:34</a>
+
+整理了下</blockquote>
+不对啊，怎么混乱阵容两边都是吹和护的，大快人心的混乱喷呢？
+
+
+
+
+
+
+
+-----
+
+####  tuiskusuomaa  
+##### 922#       发表于 2020-6-24 21:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47939195&amp;ptid=1942788" target="_blank">最好不说 发表于 2020-6-24 20:42</a>
+
+他播tlou2的时候正好点进他直播间看了下，那时候刚打完不久，本来还是在聊游戏，之后就一转游戏媒体，然 ...</blockquote>
+这次对tlou2的态度可以说是主播照妖镜了。骂也好捧也好但是说什么群众不行这种话的主播我只能避免再次看到了
+
+
+
+
+
+
+
+-----
+
+####  takooctopus  
+##### 923#       发表于 2020-6-24 21:12
+
+
+
+
+毕竟喂狗组也是核聚变常驻嘉宾嘛 维护一下同僚也能预见 就是这骂别人暴民的态势快赶得上那个文联**了
+
+
+
+
+
+
+
+-----
+
+####  Sopp  
+##### 924#       发表于 2020-6-24 21:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47937685&amp;ptid=1942788" target="_blank">活久见 发表于 2020-6-24 18:34</a>
+
+整理了下</blockquote>
+是不是还得加上发言人
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 925#       发表于 2020-6-24 21:24
+
+
+
+
+如果我没记错，羽毛和西蒙都是联合大学毕业的
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 926#       发表于 2020-6-24 21:30
+
+
+
+
+熊人族Official
+
+
+刚那条动态有几个骂我骂的欢的id挺眼熟的，一看里面果然有常年黑我的，拉黑洗粉一波。
+
+身边几个朋友，发表了一下对游戏的看法被私信人身攻击，有的发了动态说美末2盘终于到了，评论先给把刀加你脖子上，有的发条微博说通关了还没发表看法，下面几个评论就开始互相送亲人了，我这边也收到过诸如“这坨shi这么好吃？”之类的评论。
+
+你敢说游戏好，恰饭、爱吃shi、喜欢卖弄，看不起人。
+
+说不好的就是你理解能力差，没文化见识少。
+
+找不到喷点？没关系，歧视人种、搞宗教、夹私货、zzzq、lgbt，各种阴谋论拉出来轮番批判一番，你敢不承认就是屁股歪。
+
+不跟你讨论游戏好坏，而是借机找一个泄愤的理由，把网络暴力合理化，毕竟这次好不容易能找到那么多和你意见不和的路人，煽风点火一下就能统一战线开个团，吐沫淹死你就完了。
+
+“游戏不谈了，观点也不聊了，重要的是今天我抓到机会就要打倒你这个人”
+
+这就是我说的跟风砸车的人，只是没想到还能亲自送上门来。
+
+--------------
+
+评论：但是这些歧视人种、搞宗教、夹私货、zzzq、lgbt都是真实存在的，没有屁股歪不歪的问题，你可以说这游戏哪里好，这是个人的选择，但你不能说这些东西不存在
+
+
+羽毛回复：
+
+如果我说“有没有重要吗，我只想好好玩游戏”，马上就会有人拿这事做文章：“羽毛屁股歪了，连带私货的游戏都能玩得下去，还给那么高分，舔狗主播”
+
+反之如果说“这些元素确实都有，我也很不爽”，那别人就换种方式喷你“羽毛也是一个公众人物了，没确定的事就带粉丝节奏，就这素质？”
+
+你懂了吗，无论说什么，现在都有人借机跑过来砸你的车。
+
+
+
+
+
+
+
+-----
+
+####  Chia  
+##### 927#       发表于 2020-6-24 21:54
+
+
+
+[https://bbs.nga.cn/read.php?tid=22311031](https://bbs.nga.cn/read.php?tid=22311031)
+
+
+巴哈姆特测评人编辑辞职
+
+代表作《游戏史上最高杰作》
+
+
+
+
+
+
+
+-----
+
+####  岚绯  
+##### 928#       发表于 2020-6-24 21:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">草 聂胖借端午假期鸽了
+
+
+
+
+
+
+
+-----
+
+####  Troywest  
+##### 929#       发表于 2020-6-24 21:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47940318&amp;ptid=1942788" target="_blank">岚绯 发表于 2020-6-24 21:55</a>
+草 聂胖借端午假期鸽了</blockquote>
+借机看看风向吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">不过也可能是真的想摸
+
+
+
+
+
+
+
+-----
+
+####  我被骗了五块钱  
+##### 930#       发表于 2020-6-24 22:07
+
+
+
+
+羽毛这个动态老脑瘫了，一击脱离，也是个老龙马了
+
+
+
+
+
+
+
+-----
+
+####  pgain2004  
+##### 931#       发表于 2020-6-24 22:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47939952&amp;ptid=1942788" target="_blank">就是剑鞘 发表于 2020-6-24 21:30</a>
+
+熊人族Official
+
+
+刚那条动态有几个骂我骂的欢的id挺眼熟的，一看里面果然有常年黑我的，拉黑洗粉一波。</blockquote>
+部分没错，在这种群魔乱舞的情况下说什么都会得罪人或者说被攻击。
+
+这时候还是装死玩自己的游戏最实际，或者只找同样在通关的人内部交流。
+
+
+
+
+
+
+
+-----
+
+####  Tackstone  
+##### 932#       发表于 2020-6-24 22:39
+
+
+
+
+老e这波武汉北京话嘲讽拉满了。
+
+
+
+
+
+
+
+-----
+
+####  就是剑鞘  
+##### 933#       发表于 2020-6-24 22:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47940525&amp;ptid=1942788" target="_blank">pgain2004 发表于 2020-6-24 22:12</a>
+
+部分没错，在这种群魔乱舞的情况下说什么都会得罪人或者说被攻击。
+
+这时候还是装死玩自己的游戏最实际， ...</blockquote>
+确实部分没错，但换个角度想想，如果真有他说的那种黑子，那他就算什么也不说，黑子怕不是也照样会私信过去骂“你为什么不发表意见？”，这种时候非要连发几个动态，感觉是不太慎重
+
+最关键的是游戏区几个头部UP好像都没发表过类似言论，羽毛这种体量的UP居然有那么多人盯着黑，我是挺错愕的
+
+
+
+
+
+
+
+-----
+
+####  takooctopus  
+##### 934#       发表于 2020-6-24 22:57
+
+
+
+
+谁都有黑的 就连我关注的小up也黑 但是你黑了就拉黑就好嘛 非得在动态里挂人阴阳观众 我这两天首页几个挂人动态 污染我时间线 恶心人啊
+
+
+
+
+
+
+
+-----
+
+####  毛利提督  
+##### 935#       发表于 2020-6-24 23:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47940997&amp;ptid=1942788" target="_blank">就是剑鞘 发表于 2020-6-24 22:54</a>
+
+确实部分没错，但换个角度想想，如果真有他说的那种黑子，那他就算什么也不说，黑子怕不是也照样会私信过 ...</blockquote>
+粉圈洗粉套路，借机筛掉不绝对服从的
+
+羽毛远的不说，鬼泣5到现在明面上已经至少三波自己搞事搞出自己圈子的，有人讨厌等着看笑话不是正常的吗
+
+谁让你非要赶这个时候出来装客观？需要吗？
+
+
+喂狗组的人出的事有一个算一个都是类似的情况，摆着高高在上貌似中立的态度以“身份”压人
+
+说白了就是太把自己当回事，觉得有必要装个客观教育一下别人
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 936#       发表于 2020-6-24 23:29
+
+
+
+
+羽毛这几条动态真是把高高在上的客观立场显露得淋漓尽致
+
+合着就没什么正常粉丝能和他交流游戏感受了
+
+
+
+
+
+
+
+-----
+
+####  Sopp  
+##### 937#       发表于 2020-6-24 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47941500&amp;ptid=1942788" target="_blank">丹德里恩 发表于 2020-6-24 23:29</a>
+
+羽毛这几条动态真是把高高在上的客观立场显露得淋漓尽致
+
+合着就没什么正常粉丝能和他交流游戏感受了 ...</blockquote>
+不需要啊，这跟粉圈一样，忠诚不绝对就是绝对不忠诚
+
+
+
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 938#       发表于 2020-6-24 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47941604&amp;ptid=1942788" target="_blank">Sopp 发表于 2020-6-24 23:37</a>
+
+不需要啊，这跟粉圈一样，忠诚不绝对就是绝对不忠诚</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萨斯噶游戏界照妖镜，奇迹之名当之无愧
+
+
+
+
+
+
+
+-----
+
+####  Arccueid  
+##### 939#       发表于 2020-6-24 23:43
+
+
+
+ 本帖最后由 Arccueid 于 2020-6-24 23:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47941604&amp;ptid=1942788" target="_blank">Sopp 发表于 2020-6-24 23:37</a>
+
+不需要啊，这跟粉圈一样，忠诚不绝对就是绝对不忠诚</blockquote>
+老粉圈了，跟D2一比差距真的巨大
+
+D2有让他不爽的他都是直接辱骂或者BAN了之后就不提了，从不像这样在公共媒体秀自己的优越感搞这种无关的东西，非常纯粹的当游戏主播直播游戏。
+
+
+
+
+
+
+
+
+-----
+
+####  Sopp  
+##### 940#       发表于 2020-6-24 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47941673&amp;ptid=1942788" target="_blank">Arccueid 发表于 2020-6-24 23:43</a>
+
+老粉圈了，跟D2一比差距真的巨大
+
+D2有让他不爽的他都是直接辱骂或者BAN了之后就不提了，从不像这样在公共 ...</blockquote>
+所以说这次的事情是很好的例子，看看哪些编辑和主播其实心底里是看不起他的受众们的
+
+
+
+
+
+
+
+-----
+
+####  Sopp  
+##### 941#       发表于 2020-6-25 00:01
+
+
+
+
+话说现在名义上白广大停职之后机核就接连更新了几篇反对或者中立声音的文章，怎么个意思？是因为之前发了都被他当作异议表达给压着是吗？
+
+
+
+
+
+                  
