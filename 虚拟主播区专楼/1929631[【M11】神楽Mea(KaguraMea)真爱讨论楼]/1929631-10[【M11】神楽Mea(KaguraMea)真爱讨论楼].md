@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-25 02:02** 
+> ## **本文件最后更新于2020-06-25 20:03** 
 
 
 
@@ -14164,4 +14164,803 @@ mea是那种，啊b就算想送他一套3d辅助团队（兼职），也不会�
 
 
 
-                      
+
+
+-----
+
+####  aisakahammer  
+##### 14313#       发表于 2020-6-25 10:34
+
+
+
+
+ 调整了下权限，如果有人再捣乱再拉回来，各位端午快乐。
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 14314#       发表于 2020-6-25 10:36
+
+
+
+
+米娜桑，我终于能进来了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14315#       发表于 2020-6-25 10:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14316#       发表于 2020-6-25 11:11
+
+
+
+
+下午能不能有一播，看不见她我快不行了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14317#       发表于 2020-6-25 11:16
+
+
+
+
+11小时<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14318#       发表于 2020-6-25 11:19
+
+
+
+
+早安推呢？这是忙完就开始睡了的节奏啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14319#       发表于 2020-6-25 11:20
+
+
+
+
+怕是一回家作息又倒回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14320#       发表于 2020-6-25 11:51
+
+
+
+
+以后摸清规律了，要出门就会调整作息，不出门就是昼夜颠倒（）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14321#       发表于 2020-6-25 11:57
+
+
+
+
+昨天半夜连发饭盒估计是回家睡了后刚起床吧，这会儿肯定是在睡觉
+
+
+
+
+
+
+
+-----
+
+####  睥睨寰宇荡红尘  
+##### 14322#       发表于 2020-6-25 13:22
+
+
+
+
+把权限拉起来吧，我看见小博宇新号发帖了，赶紧权限。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14323#       发表于 2020-6-25 14:35
+
+
+
+
+等等，为什么官组烤了给黑叔叔整活的这集<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14324#       发表于 2020-6-25 14:45
+
+
+
+
+挺好看挺有节目效果的啊，不要因噎废食啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14325#       发表于 2020-6-25 14:47
+
+
+
+
+反正后面台本都放出来了，不会出什么事的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14326#       发表于 2020-6-25 14:52
+
+
+
+
+小事小事，说不定是发meaqua麻将的预热吧，只要我先用倪哥拉低期望，再搞贴贴就不会被炎上（我喜欢多来点）
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14327#       发表于 2020-6-25 15:05
+
+
+
+
+过去这么长时间的活不用产梁木了吧，抛开整活，前期作为幌子的企划在管人的节目里也算中规中矩，烤了挺好的。就是通过这肉还能发现纯不看直播的人，都这会了害寻思这限流这视频救咩呢，感情当成最近的了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14328#       发表于 2020-6-25 15:31
+
+
+
+
+早就说过你咩姐在阿b是视频势，有什么奇怪的
+
+
+
+syl，算是把方舟指令里的军服妹抖皮肤肝出来了（
+
+
+看了一会突然意识到，像这种把原皮直接放到联动游戏里的好像很少（？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14329#       发表于 2020-6-25 15:38
+
+
+
+
+企业势皮有各种规定吧，个人势联动的又很少。咩是买断皮了吧。话说井皇其他几个女儿的皮是买断了吗还是咋的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14330#       发表于 2020-6-25 15:46
+
+
+
+
+搬运一下
+
+
+BW，8月7日，mea出场
+
+<img src="https://img.saraba1st.com/forum/202006/25/154623p3sihsioor3kk8kj.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (163.09 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-25 15:46 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14331#       发表于 2020-6-25 15:57
+
+
+
+
+这种事谁知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14332#       发表于 2020-6-25 16:16
+
+
+
+
+啊啊啊小博禹现身了，拉楼吧拉楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RE.AGE45.MKⅠ| + 1|所以他不出来可能只是号没养好而已.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14333#       发表于 2020-6-25 16:44
+
+
+
+
+你们是小博禹gachi吗？我怎么没看见
+
+           
+
+syl，8月上旬正好忙的时候，看不了咩咩了，伤心<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14334#       发表于 2020-6-25 16:55
+
+
+
+ 本帖最后由 路人庚 于 2020-6-25 16:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">到处宣传傻逼，等于你也有责任吧？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14335#       发表于 2020-6-25 17:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47947867&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-25 15:31</a>
+
+早就说过你咩姐在阿b是视频势，有什么奇怪的</blockquote>
+难道不应该是专门去画个立绘的才比较少。
+
+这么说也不太对，游戏有自己的美工团队，而且vtb人设的原画师也不一定有档期。
+
+不过联动游戏直接沿用原本的人设的蛮多的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14336#       发表于 2020-6-25 18:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949227&amp;ptid=1929631" target="_blank">proxima 发表于 2020-6-25 17:46</a>
+
+难道不应该是专门去画个立绘的才比较少。
+
+这么说也不太对，游戏有自己的美工团队，而且vtb人设的原画师也 ...</blockquote>
+原来如此，几年没怎么玩手游了，不太清楚现在的状态（
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 14337#       发表于 2020-6-25 18:03
+
+
+
+
+手游联动专门画个新立绘，然后把原皮当作换装皮肤也不是什么稀奇的做法了。不局限在vtb
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14338#       发表于 2020-6-25 18:18
+
+
+
+
+苔苔待机间开了
+
+
+神楽めあに愛されてLINEの通知が止まらない犬山たまき【#めあ懲役】
+[https://www.youtube.com/watch?v=XPIw7rR9L_c&amp;feature=youtu.be](https://www.youtube.com/watch?v=XPIw7rR9L_c&amp;feature=youtu.be)
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14339#       发表于 2020-6-25 18:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949607&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-25 18:18</a>
+
+苔苔待机间开了
+
+
+神楽めあに愛されてLINEの通知が止まらない犬山たまき【#めあ懲役】</blockquote>
+这个是啥，和mea的联动吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14340#       发表于 2020-6-25 18:26
+
+
+
+
+和上次粽子那个流程差不多吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14341#       发表于 2020-6-25 18:28
+
+
+
+
+会不会有咩版op呢，期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14342#       发表于 2020-6-25 18:36
+
+
+
+
+所以是什么流程，照顾下单推人大概讲下？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14343#       发表于 2020-6-25 18:45
+
+
+
+
+今天除了联动还会播吗，不会等到28号才有单人直播吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14344#       发表于 2020-6-25 18:47
+
+
+
+
+一小时的带台本对谈，主要是讲メンヘラ怎么纠缠犬山的
+
+
+参考[https://www.bilibili.com/video/BV1Zz411v73H](https://www.bilibili.com/video/BV1Zz411v73H)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14345#       发表于 2020-6-25 18:48
+
+
+
+
+不懂就问，为啥是28号
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14346#       发表于 2020-6-25 18:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47949965&amp;ptid=1929631" target="_blank">惑星 发表于 2020-06-25 18:48:33</a>
+不懂就问，为啥是28号</blockquote>因为是出道二周年
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 惑星| + 1|草，对哦|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14347#       发表于 2020-6-25 18:52
+
+
+
+
+周年庆吧，不过看她这么想播的样子估计还会有几班的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14348#       发表于 2020-6-25 18:53
+
+
+
+
+等个tc吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14349#       发表于 2020-6-25 18:54
+
+
+
+
+如月那个描述你麻打电话的那段好甜啊，有点bfm内味儿了，君生我未生，我生君已老<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14350#       发表于 2020-6-25 19:07
+
+
+
+
+如月mea是真的呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14351#       发表于 2020-6-25 19:28
+
+
+
+
+小紫出道前我以为她拉上如月能干碎六字母，结果是拉了个新人组合，不过现在来看有事没事聊聊天的神乐组也不错，就是小紫同接和热度能再高一些就好了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14352#       发表于 2020-6-25 19:30
+
+
+
+
+没啥力量的个人势能活着就不错了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+转隔壁，太有意思就转了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/822bd5d8741163d0c49fdf461df8c0da/IMG_E5D0AA848D10DB8DFD2479DE456BEB03.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14353#       发表于 2020-6-25 19:32
+
+
+
+
+不管是啥前提，跟奈亚站对角可太微妙了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14354#       发表于 2020-6-25 19:35
+
+
+
+
+这俩本体都还在播，小紫还有幼师的本职，时间没那么多吧
+
+小绿大学狗应该闲一些，不过那天如月露了桌面看到她也在看幼师相关的资料，估计毕业后也要去当幼师了
+
+两幼师带屁孩，还挺合适
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 14355#       发表于 2020-6-25 19:56
+
+
+
+ 本帖最后由 JY要塞 于 2020-6-25 19:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">麻会喝绿紫的奶吗
+
+
+
+
+
+                     
