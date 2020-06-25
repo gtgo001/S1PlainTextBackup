@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-25 22:02** 
+> ## **本文件最后更新于2020-06-26 00:06** 
 
 
 
@@ -15767,4 +15767,2932 @@ zsyl  从某个obs重启听到她打影之师的视频来看，我不觉得她
 
 
 
-                   
+
+
+-----
+
+####  路人庚  
+##### 14404#       发表于 2020-6-25 22:02
+
+
+
+
+这是什么神必bgm
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14405#       发表于 2020-6-25 22:02
+
+
+
+
+特意整的OP啊
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14406#       发表于 2020-6-25 22:03
+
+
+
+
+绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14407#       发表于 2020-6-25 22:03
+
+
+
+
+草怎么这么生草啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14408#       发表于 2020-6-25 22:03
+
+
+
+
+这什么恐怖电影氛围
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14409#       发表于 2020-6-25 22:03
+
+
+
+
+经典地下说唱
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14410#       发表于 2020-6-25 22:05
+
+
+
+
+这什么bgm草
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14411#       发表于 2020-6-25 22:05
+
+
+
+
+现在就到
+
+你家门口.png
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14412#       发表于 2020-6-25 22:07
+
+
+
+
+是咩宝的声音<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 14413#       发表于 2020-6-25 22:07
+
+
+
+
+这bgm有点阴间<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14414#       发表于 2020-6-25 22:08
+
+
+
+
+这个背景是现实？刚刚是不是抽了一下鼻子
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14415#       发表于 2020-6-25 22:09
+
+
+
+
+草，真实夺命催魂
+
+是房间背景（）
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14416#       发表于 2020-6-25 22:09
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-25 22:10 编辑 
+
+你麻这个背景是啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+可以出发了吗？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14417#       发表于 2020-6-25 22:11
+
+
+
+
+是先辈面接背景（即答）
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14418#       发表于 2020-6-25 22:13
+
+
+
+
+破案了，回老家缴税去了（）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14419#       发表于 2020-6-25 22:14
+
+
+
+
+独角兽可以安心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14420#       发表于 2020-6-25 22:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14421#       发表于 2020-6-25 22:16
+
+
+
+
+你们能想到的黑屁全被猜到了，尤其是五元的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14422#       发表于 2020-6-25 22:18
+
+
+
+
+ddd也没了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14423#       发表于 2020-6-25 22:20
+
+
+
+
+啊往好了想可能再多一点时间攒钱吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 14424#       发表于 2020-6-25 22:21
+
+
+
+
+这女人有点黏人啊，当女朋友估计会疯掉<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 14425#       发表于 2020-6-25 22:21
+
+
+
+
+3d本来就是你楼自己在瞎猜啊,她只是说有要事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl   这就是羊来电么?  i了i了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14426#       发表于 2020-6-25 22:23
+
+
+
+
+醒醒，真的是女朋友夺命连call你会疯掉的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14427#       发表于 2020-6-25 22:26
+
+
+
+
+虽然这两天不是忙3d，但最近确实有东西在弄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14428#       发表于 2020-6-25 22:27
+
+
+
+
+我可以，请给我打<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14429#       发表于 2020-6-25 22:29
+
+
+
+
+ddd倒了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 14430#       发表于 2020-6-25 22:30
+
+
+
+
+3D没了的话，live也要无限期延后了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14431#       发表于 2020-6-25 22:31
+
+
+
+
+这渣音质下麻味好重（
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14432#       发表于 2020-6-25 22:32
+
+
+
+
+这吊人是发病了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14433#       发表于 2020-6-25 22:35
+
+
+
+
+ai麻酱
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14434#       发表于 2020-6-25 22:35
+
+
+
+
+这个声线其实挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14435#       发表于 2020-6-25 22:36
+
+
+
+
+这声线我动心了
+
+
+
+
+
+
+
+-----
+
+####  青春银河  
+##### 14436#       发表于 2020-6-25 22:36
+
+
+
+
+AI不错
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14437#       发表于 2020-6-25 22:37
+
+
+
+
+你楼人直播间和s1同名的么<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14438#       发表于 2020-6-25 22:38
+
+
+
+
+不愧是做过客服的（
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14439#       发表于 2020-6-25 22:38
+
+
+
+
+好像有过同名的，还不止一个（）
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14440#       发表于 2020-6-25 22:39
+
+
+
+
+啊我各个论坛网站名字都完全不一样（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14441#       发表于 2020-6-25 22:45
+
+
+
+
+不是，哪来的没3d的消息，不是在说企业的嘛。这音质真的麻，真的是麦的问题 ，我不信她是坦克了
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14442#       发表于 2020-6-25 22:46
+
+
+
+
+只是说holo和2434的3D恢复了吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14443#       发表于 2020-6-25 22:47
+
+
+
+
+并且和4个画师商量了工作 估计藏了个一个大型肉猪
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14444#       发表于 2020-6-25 22:47
+
+
+
+
+草，刚刚这声有够立体的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14445#       发表于 2020-6-25 22:47
+
+
+
+
+为什么挂了还在嚎啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14446#       发表于 2020-6-25 22:51
+
+
+
+
+めあ；天狗になってる
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14447#       发表于 2020-6-25 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">xswl
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14448#       发表于 2020-6-25 22:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14449#       发表于 2020-6-25 22:53
+
+
+
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14450#       发表于 2020-6-25 22:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14451#       发表于 2020-6-25 22:57
+
+
+
+
+苔苔经验谈.mp4
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14452#       发表于 2020-6-25 22:58
+
+
+
+
+有一说一，这波回来先橄榄一波独角兽，我怀疑她接下来还有动作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14453#       发表于 2020-6-25 23:00
+
+
+
+
+那就等着看呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14454#       发表于 2020-6-25 23:00
+
+
+
+
+问她苔苔和舞元喜欢哪个都毫不犹豫苔苔了，还橄榄呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14455#       发表于 2020-6-25 23:01
+
+
+
+
+那说明不是舞元啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+             
+
+草，这啾啾
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14456#       发表于 2020-6-25 23:02
+
+
+
+
+这个rap可以单独发出来吗，我很喜欢
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14457#       发表于 2020-6-25 23:02
+
+
+
+
+问题是她回答的是“那就犬山吧”
+
+
+
+而且今天也没少抱怨独角兽烦人啊
+
+
+当然要不要和观众对着干另说
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14458#       发表于 2020-6-25 23:02
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14459#       发表于 2020-6-25 23:03
+
+
+
+
+skr
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14460#       发表于 2020-6-25 23:03
+
+
+
+
+绝活
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14461#       发表于 2020-6-25 23:03
+
+
+
+
+这个rap挺好的（赶紧切
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14462#       发表于 2020-6-25 23:03
+
+
+
+
+这孩子说过不喜欢gachi的啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14463#       发表于 2020-6-25 23:03
+
+
+
+
+一连四楼谜语能不能说人话，复读机没repo<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 14464#       发表于 2020-6-25 23:04
+
+
+
+
+好活，谢苔姨赏饭！
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14465#       发表于 2020-6-25 23:04
+
+
+
+
+oped的rap好活啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死我了
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14466#       发表于 2020-6-25 23:04
+
+
+
+
+你们好冷漠<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+要相信她只是单纯的想反草一下黑屁啊（
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14467#       发表于 2020-6-25 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真·法兰西地下rap女王。把bls真要上去唱跳rap？篮球我估计她不行，那给咩姐递盘子.jpg
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14468#       发表于 2020-6-25 23:06
+
+
+
+
+最后这段rap<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14469#       发表于 2020-6-25 23:06
+
+
+
+
+我还在想要是复刻粽子的病娇也有点没意思，结果整了这一个生草好活，苔苔业务能力还是可以的啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14470#       发表于 2020-6-25 23:07
+
+
+
+ 本帖最后由 路人庚 于 2020-6-25 23:08 编辑 
+
+简单来说就是苔苔听了mea的mehera烦恼后说，你们观众就让你咩姐找个男友吧，你看看她买个衣服都能被烦成这样，都快精神错乱了一看就是没有男人安慰的，不如赶紧让她找个男友算了吧，找了男友就能精神安定了，直播也会更多了，如果是我的话肯定也赞成的，呐（你咩姐在一旁笑而不语）
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14471#       发表于 2020-6-25 23:07
+
+
+
+
+苔苔energy充满了mea，需要兔姨power恢复平衡<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14472#       发表于 2020-6-25 23:07
+
+
+
+
+隔壁数据，17.9了，月底18有望（但她现在不播了啊）
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14473#       发表于 2020-6-25 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你咩姐到底是去哪吃的黑泥
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14474#       发表于 2020-6-25 23:08
+
+
+
+
+犬山玉姬我🦈了你😈！！
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14475#       发表于 2020-6-25 23:09
+
+
+
+
+yhm特有被害妄想
+
+                   
+
+可能在cnbbs社区真的有内鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14476#       发表于 2020-6-25 23:09
+
+
+
+
+你咩姐说有人黑屁她前两天去和舞元约会了，去和男人打炮了，你楼应该反思一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14477#       发表于 2020-6-25 23:09
+
+
+
+
+说起来就她的贴贴操作灭火一直让我觉得有人在给她repo国内粉丝生态或者黑屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，当然也有可能是她用生草机看的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14478#       发表于 2020-6-25 23:10
+
+
+
+
+这种并不一定是黑泥，也可能是段子（毕竟这些都是几年前的她就能想得到的东西
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14479#       发表于 2020-6-25 23:10
+
+
+
+
+叛徒在哪，我要中出<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14480#       发表于 2020-6-25 23:11
+
+
+
+
+你楼那不能背这个锅，得找nga<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14481#       发表于 2020-6-25 23:14
+
+
+
+
+对她的想法和18年那会不一样了，虽然知道她和男v互动合理还有趣但多少还是有些不适应，和五元的合唱就像把剑一样悬在头上，要是生日放出来我是笑不出来，我泪往肚子里吞
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14482#       发表于 2020-6-25 23:16
+
+
+
+
+苔苔的拱火总让人觉得仿佛是在给什么不得了的东西铺垫<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">。不说倒好一说我真的超级在意
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14483#       发表于 2020-6-25 23:16
+
+
+
+
+苔苔推上放你麻的rap了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14484#       发表于 2020-6-25 23:16
+
+
+
+
+扯淡呢，就算现在她和卵用互动我想还是很多人叫好的。
+
+也是不太懂为啥日本人那么喜欢五咩
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 14485#       发表于 2020-6-25 23:17
+
+
+
+
+她就是想喷喷贷款黑屁她的人,至于这么阴谋论吗
+
+
+另外不清楚推或5ch上有没有这么说她的,但她对线如此精准怕不是在中文讨论区插了眼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14486#       发表于 2020-6-25 23:17
+
+
+
+
+不得不嗦，如果买衣服被黑屁是真的，那就是几年前她的那段“正论”现在倒在自己头上了，就挺乐的。而如果黑屁是假的是自己编的段子，那就说明你咩姐麻味儿还在，好起来了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14487#       发表于 2020-6-25 23:17
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-25 23:19 编辑 
+
+生日放舞咩合唱,你是指望天狗祭丝化吗<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+syl,她每次搞模棱两可的回应我一概当巨魔行为的,你麻可是个小巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14488#       发表于 2020-6-25 23:18
+
+
+
+
+有什么好在意的，如果她说是你就会毫无怀疑地相信？到时候又是一套说辞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14489#       发表于 2020-6-25 23:20
+
+
+
+
+买衣服也担心别人会不会黑屁她是因为找男友才买的
+应该是自己编的吧，大概<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14490#       发表于 2020-6-25 23:20
+
+
+
+
+不想再轱辘了，但是今天看婚介所的肉提到她对喜欢的人反而不是主动出击的类型的时候，404评论飘过大概能有十几个5元<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我反正是也整不明白。
+
+虽然18圣诞合唱我是一次都没听到过第二句，但是最起码观感比5元好多了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14491#       发表于 2020-6-25 23:20
+
+
+
+
+天狗用得着这个来恶堕吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14492#       发表于 2020-6-25 23:22
+
+
+
+
+破5咩魔怔最好的方法我觉得是再找个男v联动<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">，但感觉没啥可能了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14493#       发表于 2020-6-25 23:22
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-25 23:27 编辑 
+
+说真的我觉得难道不是老农民和黑皮这两次既不好看整的活争议性也大结果导致了大家总爆发吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+主要分析一下的话和卵用鹦鹉哈哥哈弟那几个玩的时候要到18年了
+
+
+当时业界说是草创期也不为过，大家都比较宽容（看的人也少），很多各种各样恶心人的事，别人的她自己的都还没发生，说是轻松愉快的朋友聚会也相差不远
+
+
+19年全年我的体感是百合营业（从事实角度出发）搞得不少，好像和男性联动没那么多
+
+
+结果20年就五元重拳出击了，很多人当然不可能有啥好印象吧
+
+
+其实我觉得她台面上不算和男性玩的很频繁的……尤其是根本不存在固定游戏组合那种长期活动，大多数都是谈话嘉宾一发艺……
+
+说真的现在的一般观众印象难道不是“这女人对男人全是妄想和云的”，然后就很gachi，觉得自己有戏这种感觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+但自己的风格很容易把粉丝往她不希望的方向带也不可忽视吧（“你自己脑补，我们观众当然也脑补啊”）
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14494#       发表于 2020-6-25 23:22
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-25 23:24 编辑 
+
+真的吗,你麻一直自动yhmbuff无意识养尬吃,舞元那次玩过火了也算是补救了一下,祭丝化还比较远吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+打破舞咩魔怔我觉得只能靠她自己一波操作了,至少牵头人苔姨在这方面再怎么转都始终有个梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14495#       发表于 2020-6-25 23:23
+
+
+
+
+啥铺垫，纯粹是苔苔自己找了个男友天天在那发痴
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14496#       发表于 2020-6-25 23:25
+
+
+
+
+我是觉得小麻的脑控buff有年龄加成来着，真实小屁孩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+syl男性联动吗，杏星出击警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14497#       发表于 2020-6-25 23:25
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-25 23:27 编辑 
+
+别的无所谓，别生日来个喧宾夺主，最起码真的要发歌最少有一首单人吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+之前到底怎么说来着，越传越搞不明白了。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14498#       发表于 2020-6-25 23:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想，如果把你咩姐前俩月那段暴力整活放在金发小男孩身上，倒没什么不适。果然对我而言男方年上（少女大叔）的BGCP就是不可调和的巨雷（
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14499#       发表于 2020-6-25 23:27
+
+
+
+
+神楽小姐，你在看着吧神楽小姐？
+
+如果你在看着的话，能把我们以前和我们现在黑屁犬山的话转告给她吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14500#       发表于 2020-6-25 23:27
+
+
+
+
+和卵用的cp不是比舞元的更过激一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放现在我估计跟5mea反应区别不会很大
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14501#       发表于 2020-6-25 23:27
+
+
+
+ 本帖最后由 2014720 于 2020-6-25 23:28 编辑 
+
+杏星其实我可以的，只要有好活就行
+
+我倒觉得是她最近突然太敏感了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14502#       发表于 2020-6-25 23:28
+
+
+
+
+虽然夭折了，不过我现在最想看的是咩粽联动<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14503#       发表于 2020-6-25 23:28
+
+
+
+
+找其他人是找了，惩戒太郎啊、主持啊
+就是没有舞mea火啊，而且一开始就有热度人苔苔帮忙，其他战斗力不太行
+舞mea这几次麻将联动观感好了不少，可能是没那么用力拱火吧
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 14504#       发表于 2020-6-25 23:29
+
+
+
+
+你们说的好听，现在和小男孩互称男女朋友，觉对一疯一大片<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14505#       发表于 2020-6-25 23:29
+
+
+
+
+我觉得是老农民的设定不行（重申）
+
+
+换个杏星的大叔不知道会不会好一点……
+
+
+不过你麻不适合典型少女大叔的模式也是真的，她精神年龄太小了，还不够少女，得来个一起疯的大哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14506#       发表于 2020-6-25 23:30
+
+
+
+ 本帖最后由 GRMeA104 于 2020-6-25 23:31 编辑 
+
+变敏感大概有那几份怪文书的功劳,四舍五入苔姨分一点锅<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+和杏星,被白姨苔姨两个人一起牵着走吗,对面那debuff属实有点严重<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+syl,老农民那个比头还大的脚板我一直觉得很奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14507#       发表于 2020-6-25 23:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抛开大环境谈历程不合适，去年那时候mea整个人处于一种迷茫的状态，她不知道该怎么做，找不到定位，也没有认真的去当事业做。516回来休整了一段时间，只狼再往后就搞企划拉联动了原创曲开始做。可到了这时候虹杏竞争激烈起来，你mea虽然要一个人干到底，但谋出路的想法还是有的，体谅一下
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14508#       发表于 2020-6-25 23:30
+
+
+
+
+啊这，🦄怎么了？🦄怎么了？🦄怎么了？<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14509#       发表于 2020-6-25 23:32
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-25 23:35 编辑 
+
+找什么杏男人，虹男人的热度不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“2434最高！”
+
+
+不过，不知道为啥我特讨厌看其他人拱火，那种就算了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14510#       发表于 2020-6-25 23:32
+
+
+
+
+舞咩已经成了梗，和国区的咩夸一样的刻板印象，没那么容易消失的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14511#       发表于 2020-6-25 23:32
+
+
+
+
+说实在杏星里我最喜欢的是最没人气的意大利大叔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14512#       发表于 2020-6-25 23:33
+
+
+
+
+你们是不是隔壁楼看多了，这么爱贷款杏星的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你mea姐虽然不少时候挺佛的，但什么时候会跟这种既不是熟人，又没好处的v联动了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14513#       发表于 2020-6-25 23:33
+
+
+
+
+🦄️先控制一下，想一想泥潭唯一指定🦄️专楼是谁开的
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 14514#       发表于 2020-6-25 23:33
+
+
+
+
+宝宝我不是很懂这些<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14515#       发表于 2020-6-25 23:33
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-25 23:41 编辑 
+
+草，把他和月下记混了，下面划掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+啊，原来今天出这个肉和苔苔这波联动是组合拳啊，这也在你的掌控之中吗，卡古拉没牙
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 兔耳僵尸| + 1|梦追不是彩虹人么？|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14516#       发表于 2020-6-25 23:34
+
+
+
+
+挺久没关注斗虫了，苔苔最近也数据膨胀了吗，记得年初你麻和苔苔的双人联动好像是六七千，今天竟然一万三，差点反杀了ark，什么鬼？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14517#       发表于 2020-6-25 23:34
+
+
+
+
+所以说不同时间段看的心态不一样，那会刚开始肯定不在意甚至乐在其中，要以现在的心态看再整个卵用的活我是顶不住，不车了。今晚或明天能等到一个报告近况的单人直播吗
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14518#       发表于 2020-6-25 23:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953716&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-25 23:32</a>
+
+说实在杏星里我最喜欢的是最没人气的意大利大叔。他跟咩咩联动倒好。别是伪娘或者律可啊我有ptsd了[ ...</blockquote>
+别奶，我还在为自己在饭盒里求婚成功而硬硬desu呢<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14519#       发表于 2020-6-25 23:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953712&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-6-25 23:32</a>
+
+舞咩已经成了梗，和国区的咩夸一样的刻板印象，没那么容易消失的
+
+
+—— 来自 vivo V1824A, Android  ...</blockquote>
+舞咩也会有贴贴人也会有粉头踩一捧一吗，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14520#       发表于 2020-6-25 23:34
+
+
+
+
+5咩最大的梁木来源不是边上苔姨的拱火吗？
+
+syl  卵用放到现在怕不是炸的比5咩还狠<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14521#       发表于 2020-6-25 23:34
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">杏男人没热度，联动专门给国内天狗看吗
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14522#       发表于 2020-6-25 23:35
+
+
+
+
+那倒是没什么
+
+
+就跟V本人的“不准看别的女人”的营业一样，适度掺杂真情实感做独角兽行为也有助于主播确立还有人喜欢自己的自信
+
+
+当然，出于人性弱点，大家都会想着“我可以随便跟别人玩，你们只能看我”这样的好事情（不如说这种“任性的地方”也可以视作一种RP和表演让人爽起来的）
+
+
+不过双方还是要把握好度
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14523#       发表于 2020-6-25 23:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953752&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-25 23:34</a>
+
+所以说不同时间段看的心态不一样，那会刚开始肯定不在意甚至乐在其中，要以现在的心态看再整个卵用的活我是 ...</blockquote>
+其实我估计把meakou的活拿现在来看直接炎上都有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14524#       发表于 2020-6-25 23:35
+
+
+
+
+跟黑叔叔联动有啥好处吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14525#       发表于 2020-6-25 23:36
+
+
+
+
+还指望她搞个什么cp来消除舞mea的影响？别到时候又被新整的cp活搞疯
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14526#       发表于 2020-6-25 23:37
+
+
+
+
+其实吧，我啊，那次舞咩联动，我看的挺乐的，不要杀我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14527#       发表于 2020-6-25 23:38
+
+
+
+
+我感觉她现在虽然有点事业心了但还是迷茫啊，但还是没把这个当成正经工作过。感觉她现在处于的是回馈粉丝＋yhm本质＋想交朋友。游戏不碰、热点蹭的又少，全靠苔姨和黄兔子推着走。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14528#       发表于 2020-6-25 23:38
+
+
+
+
+要熄灭火焰就要制造一次更大的爆炸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14529#       发表于 2020-6-25 23:38
+
+
+
+
+主要虹男人大家不熟啊，杏男人归功于黑宝还知道几个
+
+
+“你该不会想让她和黑黑打游戏去吧”（不过打应该是打过，就是没播）
+
+
+客观来看不想播/不适合播游戏在很大程度上限制了和男性的联动内容，人家也不可能天天陪你杂谈的……女性还有个girls talk的拉家常氛围，男女联动不打游戏我觉得得想点企划了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14530#       发表于 2020-6-25 23:39
+
+
+
+
+卵用真的挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+仔细想，我挺喜欢曾经哈哥对她的那种方式的，五元总感觉在敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14531#       发表于 2020-6-25 23:39
+
+
+
+
+舞咩能和咩夸比?咩夸好歹这里的人或多或少都有那么真相信的一段时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+舞咩现在是一堆压根不想看的,一堆看乐子的,以及那么几个拱火的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14532#       发表于 2020-6-25 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953769&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-6-25 23:34</a>
+舞咩也会有贴贴人也会有粉头踩一捧一吗，呜呜呜</blockquote>
+其实我指的是那种类似在各种地方刷 绿 〇〇 绿 的轻度粉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dualist彩| + 1|记混了，还条鱼草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14533#       发表于 2020-6-25 23:40
+
+
+
+
+这么说来她这种随意的风格其实也是吸引gachi的点勒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。不过不打游戏什么的很伤啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14534#       发表于 2020-6-25 23:40
+
+
+
+
+黑叔叔那场整活联动外面一致好评的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">粉丝天天念叨的“风评”啊什么，这个也有拉高啊
+
+至于核心粉的心态那倒是另一说了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要搞得你mea姐在这里面是个受害者一样好吧
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 14535#       发表于 2020-6-25 23:40
+
+
+
+
+你们为啥对卵用都有梁木了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 14536#       发表于 2020-6-25 23:41
+
+
+
+
+我只对苔姨有梁木<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 14537#       发表于 2020-6-25 23:41
+
+
+
+
+CP就是手段罢了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14538#       发表于 2020-6-25 23:41
+
+
+
+
+啊这，楼里真有人相信过咩夸吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14539#       发表于 2020-6-25 23:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">变了变了，已经开始卖discord聊天机会了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14540#       发表于 2020-6-25 23:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所谓的五咩粉不就是从五元那吸收来的那点粉丝
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别人给面子来看你mea还不准别人来刷他家主子了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14541#       发表于 2020-6-25 23:42
+
+
+
+
+我是觉得Kou君联动的时候《位置》和《情商》把控得挺好的。
+
+舞元的表现就很神经刀，可能是某些拱火行为搞得不易回应。总感觉这么多场联动时而在线时而不在线。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14542#       发表于 2020-6-25 23:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953890&amp;ptid=1929631" target="_blank">蔵女 发表于 2020-6-25 23:40</a>
+
+你们为啥对卵用都有梁木了</blockquote>
+没梁木啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只是我觉得冲国现在独角兽这么多，把meakou放现在也跟5mea差不多
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 14543#       发表于 2020-6-25 23:44
+
+
+
+
+真要从卵用开始算的话, 联动过的男v 卵用/青猫/鹦鹉/哈哥/眼睛.她的反应比现在激烈的也有.
+
+和5元整的活确实不好看, 不过确实是反应最强烈的一次.
+
+可能还是时代变了吧,尽管她snp ghs 洗粉没停过也没用.
+
+她现在龙宫闹海或是BV1tt411v7Pa这种再演一次,就算不是5元一样炸翻天.
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14544#       发表于 2020-6-25 23:45
+
+
+
+
+从我的角度来说舞元装起来的时候和龙魂一样恶心，让我想给他一拳
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14545#       发表于 2020-6-25 23:45
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-25 23:47 编辑 
+
+其实很多人对卵用那些的了解也只有片段吧、
+
+
+毕竟真的内容不多，也是短期整活，残存的只有一些海盗的片段了
+
+
+话说回来她不是说自己都找不到人打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也是惨
+
+
+希望不是常态化的吧
+
+
+说实话比如说出于义务感不得不上播的时候你招人脑死APEX或者MC，钱不一定收的到多少，但会有一种“我努力了，我没摸鱼”的精神满足，应该也是个不错的选择，但没怎么见她这么做
+
+
+希望神乐组再招个陪人打游戏专精的吧（不过从交际圈和选人倾向来看好像不太可能啊）
+
+现在箱推强化随便拉人不像以前那么方便可能也是个原因
+
+
+但我觉得应该也不至于很难，只是大家自己过于会读空气先把随意抓人打游戏的想法干掉了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14546#       发表于 2020-6-25 23:45
+
+
+
+
+这么说其实是没几个男v镇的住你咩姐，不过真有那就真疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14547#       发表于 2020-6-25 23:45
+
+
+
+
+meakou时期的一些活放现在可能不单纯是粉丝群体的问题了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14548#       发表于 2020-6-25 23:45
+
+
+
+
+怎么可能对卵用有梁木，虽然现在和咩不常联系了，但516在油管的一次直播里支持可比在阿b唱首歌恰烂钱的不知道高到哪里去了，只是举个例子罢了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 14549#       发表于 2020-6-25 23:45
+
+
+
+
+草 幻灭了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14550#       发表于 2020-6-25 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953960&amp;ptid=1929631" target="_blank">IrisL 发表于 2020-6-25 23:45</a>
+
+从我的角度来说舞元装起来的时候和龙魂一样恶心，让我想给他一拳</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要找我贴贴啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14551#       发表于 2020-6-25 23:46
+
+
+
+
+学好的日语，总算是派上用场了daze！
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14552#       发表于 2020-6-25 23:47
+
+
+
+
+没discord，她变了，幻灭了，脱粉了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14553#       发表于 2020-6-25 23:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953965&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-6-25 23:45</a>
+
+其实很多人对卵用那些的了解也只有片段吧、
+
+
+毕竟真的内容不多，也是短期整活，残存的只有一些海盗的片段了 ...</blockquote>
+这更接近于lol找不到开黑的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总感觉这种情况要是开播对精神卫生说不定更糟，还不如出门转转
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14554#       发表于 2020-6-25 23:50
+
+
+
+
+可能最终还是被车队的人嫌菜了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14555#       发表于 2020-6-25 23:51
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对liver来讲，最重要的事情不是不能做什么，而是应该做什么。应该做什么是个很难的问题，就比如说你咩姐，她觉得自己不应该播游戏，她觉得自己就是应该杂谈，综艺，那杂谈说什么，综艺演什么，这就是对她来说的问题。很多时候并不是杀不杀，独不独的事，跟这些没有关系
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14556#       发表于 2020-6-25 23:51
+
+
+
+
+Discord聊天，她变了，我还记得那个pubg她嘲讽阿宅的放生大笑，呜呜呜，幻灭了，脱粉了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14557#       发表于 2020-6-25 23:51
+
+
+
+ 本帖最后由 笋狐 于 2020-6-25 23:56 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有无懂哥细嗦，咩姐现在这lol水平比起去年可有长进？在下看她来睿站练功房的操作好像有点进步（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14558#       发表于 2020-6-25 23:52
+
+
+
+
+还是别游戏了，我是真不爱看游戏，贼虚无
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14559#       发表于 2020-6-25 23:52
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-25 23:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47954023&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-25 23:47</a>
+
+这更接近于lol找不到开黑的吧总感觉这种情况要是开播对精神卫生说不定更糟，还不如出门转转 ...</blockquote>
+两方面啊
+
+
+私下里打游戏然后吐槽一下观众说说直播里说不了的话解压是一个
+
+
+我说拉人打游戏上播是混时间说服自己外加“闲着也是闲着，就播一播算是有点事做”的感觉
+
+的确很多观众看起来可能不好看，但是对本人来说算是“有意义的打发时间”
+
+
+主要是她又不玩单人游戏……想打游戏几乎必拉人，不然变成自己排喷喷/LOL的被狙击心态爆炸大会那不是情况更差
+
+
+没有可能导致情绪爆炸的竞技要素，又得让她愿意玩那不就得找人一起了
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14560#       发表于 2020-6-25 23:53
+
+
+
+
+对付苔姨梁木和舞元，最好的办法是拱火舞苔啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+只可惜没人能把这个话题炒起来
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14561#       发表于 2020-6-25 23:53
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-25 23:57 编辑 
+
+不过她想开群组就不怕自己的discord暴露然后...
+
+
+也可能进去之后发现压根就没声，只有表情包<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14562#       发表于 2020-6-25 23:53
+
+
+
+
+也许otaku进了之后还是发现她还是对着otaku放生大笑
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14563#       发表于 2020-6-25 23:55
+
+
+
+
+说到唱歌，大亏休止隔壁车的那一阵子我都开始脑补大亏毕业，咩咩在b限唱灰青向日葵月兔三连的场景了(ಡωಡ) ，但后来觉得不基德就没说(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 14564#       发表于 2020-6-25 23:56
+
+
+
+
+她是不是对自己粉丝的日语水平有所误解？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14565#       发表于 2020-6-25 23:58
+
+
+
+
+死宅专用discord
+discord精选要来了吗，缩圈的时候到了
+
+syl，弄了这个是不是可以期待一下直播通话重出江湖啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14566#       发表于 2020-6-25 23:59
+
+
+
+
+用工地日语打破她的幻想吧
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14567#       发表于 2020-6-26 00:00
+
+
+
+
+去说英文让她对鬼佬产生不安吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14568#       发表于 2020-6-26 00:00
+
+
+
+
+那建议教会本土粉中文<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14569#       发表于 2020-6-26 00:01
+
+
+
+
+别了吧，就这粉毛现在整啥活我都觉得恶心，好好当龙头这边最好别掺和了⑧。这3000档待遇越看越酸，但转念一想连日语都不会进去也是尬，那没事了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14570#       发表于 2020-6-26 00:05
+
+
+
+
+（其实盒限麦块的时候就有一搭每一搭的聊过不少了，对我这种对麦块已经完全无感的人来说把麦块直接扔了算是想当好的好事儿
+
+
+
+
+
+              
