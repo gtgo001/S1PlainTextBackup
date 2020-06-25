@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-24 18:14** 
+> ## **本文件最后更新于2020-06-25 14:12** 
 
 
 
@@ -5500,7 +5500,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_RzHCc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_PKmki" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16019,4 +16019,230 @@ Google Photo 没用过，比起索尼相册如何</blockquote>
 
 
 
-                       
+
+
+-----
+
+####  Cray  
+##### 801#       发表于 2020-6-24 20:52
+
+
+
+
+居然拿平行世界那个宣传片做补帧测试。。。
+
+
+平行世界这片子就故意是做的卡卡的抽帧感啊。。
+
+
+
+
+
+
+
+-----
+
+####  fishmanzero  
+##### 802#       发表于 2020-6-24 22:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47936472&amp;ptid=1915171" target="_blank">Bondrewd 发表于 2020-6-24 17:06</a>
+https://ngabbs.com/read.php?tid=22308625</blockquote>
+等等大法相机的色彩和算法？？财富？？
+我A7M3用户失格了？
+
+—— 来自 Sony G8142, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 803#       发表于 2020-6-24 22:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47937136&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-24 17:52</a>
+有一说一，那难道不是因为谷歌粉丝信仰比索尼粉丝更足么…</blockquote>
+我觉得不是，起码pixel这几年相册没闹过毛病。
+
+索移现在我喜欢的特色功能越来越少了，现在觉得最不能砍的就是侧感手势，其他的真的可有可无，全变成pixel也毫无问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 804#       发表于 2020-6-25 01:35
+
+
+
+
+http://weibo.com/5217947713/J89DWCdGO
+
+看了楼斌的拆解评测，主板利用率低下，但间接弥补了散热措施不足的缺点，实测吃鸡背部温度比P40P+还低——虽然这里并没有给出帧率和核心温度，所以并不敢确定索移是不是又像X5这样，靠着低温度墙（锁60度，降帧）来保证机身温度的低下。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 805#       发表于 2020-6-25 02:52
+
+
+
+ 本帖最后由 Cray 于 2020-6-25 02:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47942767&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-25 01:35</a>
+[http://weibo.com/5217947713/J89DWCdGO](http://weibo.com/5217947713/J89DWCdGO)
+
+
+看了楼斌的拆解评测，主板利用率低下，但间接弥补了散热措施不足 ...</blockquote>
+只能说高通的东西不需要那么多原件啊。也没全上罩子所有看起来比较空咯。
+
+
+本身摄像头限制了位置，也不需要太高的集成度。楼斌就是在那里带节奏罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 806#       发表于 2020-6-25 03:24
+
+
+
+
+散热有那么大一块散热垫呢。
+
+
+
+
+
+
+
+-----
+
+####  tsounaiq  
+##### 807#       发表于 2020-6-25 06:53
+
+
+
+
+咸鱼360度翻身？
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 808#       发表于 2020-6-25 08:42
+
+
+
+<blockquote>我很费纸 发表于 2020-6-25 01:35
+http://weibo.com/5217947713/J89DWCdGO
+
+
+看了楼斌的拆解评测，主板利用率低下，但间接弥补了散热措施不足 ...</blockquote>
+我今天来找个时间装你前天说的软件试试看…
+
+
+不管是降低集成度还是软件放宽限制，最终看实际效果吧
+
+
+
+
+
+
+
+-----
+
+####  lbzlxx  
+##### 809#       发表于 2020-6-25 08:46
+
+
+
+
+不要啊，我还要咸鱼低价买
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 810#       发表于 2020-6-25 13:17
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-25 13:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47943831&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-25 08:42</a>
+我今天来找个时间装你前天说的软件试试看…
+
+
+不管是降低集成度还是软件放宽限制，最终看实际效果吧 ...</blockquote>
+是的，利用率什么的都是浮云，只要能保证性能稳稳释放我都能接受。换X5我难过的事情就是游戏体验对比xz2c竟然一点改善都没有，因为保守的温度设置导致实际性能并没有提升，撑死只有第一次跑分能拉开明显差距。
+
+以前大家都没热管，都锁温度墙的时候感知还不明显，是个旗舰芯片就都不用担心性能。现在手机有点电脑内味了，把散热、温度墙考虑进去才能得到真正的实机性能。希望索移在这一步上不要固步自封，不要浪费865的性能<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 811#       发表于 2020-6-25 13:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47943063&amp;ptid=1915171" target="_blank">Cray 发表于 2020-6-25 02:52</a>
+只能说高通的东西不需要那么多原件啊。也没全上罩子所有看起来比较空咯。
+
+
+本身摄像头限制了位置，也不需 ...</blockquote>
+X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
+
+那个散热垫真不怎么大，对比国内人均热管差距就更大了。现在只能说机身温度不高。核心温度和频率都没看到啥测试结果，真不好说温度表现是好是坏。
+
+万一像我手上这台X5一样，温度墙锁60度，跑分10分钟，大核锁0.8G，GPU也降频，机身温度肯定不高，但实际游戏体验就是一个差字<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                      
