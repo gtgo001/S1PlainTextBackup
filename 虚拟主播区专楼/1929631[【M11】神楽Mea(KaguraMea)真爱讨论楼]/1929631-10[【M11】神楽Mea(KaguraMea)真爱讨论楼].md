@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-25 20:03** 
+> ## **本文件最后更新于2020-06-25 22:02** 
 
 
 
@@ -14963,4 +14963,808 @@ syl，8月上旬正好忙的时候，看不了咩咩了，伤心<img src="https:
 
 
 
-                     
+
+
+-----
+
+####  魔法使い2019  
+##### 14356#       发表于 2020-6-25 20:06
+
+
+
+
+为什么有奶<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14357#       发表于 2020-6-25 20:11
+
+
+
+
+小绿是如月，小紫是noe吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我分不清是哪个
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 14358#       发表于 2020-6-25 20:14
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-25 20:18 编辑 
+
+怪不得小紫有种很擅长应付的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14359#       发表于 2020-6-25 20:22
+
+
+
+
+神乐组赤ちゃんプレイ<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  SNOWIMEA  
+##### 14360#       发表于 2020-6-25 20:31
+
+
+
+
+？？？小紫是幼师么？<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14361#       发表于 2020-6-25 20:32
+
+
+
+
+所以你麻之前说的她的幼师朋友指的是小紫？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14362#       发表于 2020-6-25 20:33
+
+
+
+
+？对上了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14363#       发表于 2020-6-25 20:33
+
+
+
+
+所以现在咩绿互动是带小孩模拟吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14364#       发表于 2020-6-25 20:38
+
+
+
+
+mea的奇妙朋友又可以增加了，不知道不直播的这几天朋友有没有增加
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14365#       发表于 2020-6-25 20:38
+
+
+
+
+不要把贴贴说成亲子营业欺骗自己啊，那bfm跟你麻互动岂不是模拟哺乳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14366#       发表于 2020-6-25 20:41
+
+
+
+
+调侃一下小绿的准幼师和咩的小鬼形象意外的搭啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+贴贴越多越好啊，希望她能好好经营吧无论是事业还是感情
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14367#       发表于 2020-6-25 20:45
+
+
+
+ 本帖最后由 笋狐 于 2020-6-25 20:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在大街上揉老妈莱莱临别吻额头的亲子营业还行，这孝心变质了罢（
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">想康2位幼师调戏（jiao）你麻这死小孩的fanart
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14368#       发表于 2020-6-25 20:50
+
+
+
+ 本帖最后由 呓亘 于 2020-6-25 20:51 编辑 
+
+说起bfm 我倒是挺好奇你麻和黄兔子联动时提起的 没向观众说过的hinako对你麻做的不好的事（大意）是啥
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 14369#       发表于 2020-6-25 20:56
+
+
+
+
+虽然可能有点滤镜，但那次联动时提起的：时常迟到的bfm在和你麻约会时，破天荒地早早到了约会地点，并且一直等着迟到的你麻，还是觉得好甜
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14370#       发表于 2020-6-25 21:04
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">别杀了别杀了，梅小姐虽然第一时间入驻睿站，但至今都没来播过，本就不多的热度还白白下去不少
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14371#       发表于 2020-6-25 21:12
+
+
+
+
+tc没皮主播来b限还是难啊……
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14372#       发表于 2020-6-25 21:13
+
+
+
+
+新推
+
+
+（对显示器使用炎拳吧.gif
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14373#       发表于 2020-6-25 21:17
+
+
+
+
+显——示——器
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14374#       发表于 2020-6-25 21:18
+
+
+
+
+啊这，这是第几个报废的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14375#       发表于 2020-6-25 21:19
+
+
+
+
+不知道愿望单还会被她封印多久
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14376#       发表于 2020-6-25 21:21
+
+
+
+
+第二个吧
+
+
+现在反正有了slab，跟愿望单差不多
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14377#       发表于 2020-6-25 21:22
+
+
+
+
+显示器又坏了？
+
+是她桌子上东西太多了显示器放不稳还是最近亲戚来了心情坏了把显示器给锤了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14378#       发表于 2020-6-25 21:23
+
+
+
+
+走路绊倒器材摔一地.jpg
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14379#       发表于 2020-6-25 21:25
+
+
+
+
+我是那种心情再不好也不会摔东西打东西的人，顶多往墙上来一拳<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。怕打坏东西费钱。小时候被外公带的太抠门了，花钱比父母都精。
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14380#       发表于 2020-6-25 21:29
+
+
+
+
+这是不是意味着直播次数又要减少了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14381#       发表于 2020-6-25 21:30
+
+
+
+
+应该暂时直播不了
+
+显示器，你害了多少人！！！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14382#       发表于 2020-6-25 21:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+希望下个显示器没事<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14383#       发表于 2020-6-25 21:33
+
+
+
+
+啊这，这谁顶的住阿，不要戒断不要戒断<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14384#       发表于 2020-6-25 21:34
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-25 21:40 编辑 
+
+她显示器应该还蛮多的
+
+草，难道已经是最后一个了。。。
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14385#       发表于 2020-6-25 21:41
+
+
+
+
+新推，这怕不是受潮了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14386#       发表于 2020-6-25 21:41
+
+
+
+
+这，不会要事故了吧，血压升高中
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14387#       发表于 2020-6-25 21:47
+
+
+
+
+这个傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+心态啊心态<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14388#       发表于 2020-6-25 21:47
+
+
+
+
+还有一个，问题不大.png
+
+
+
+
+
+
+
+-----
+
+####  Alphawalker  
+##### 14389#       发表于 2020-6-25 21:49
+
+
+
+
+错楼了，抱歉！
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14390#       发表于 2020-6-25 21:50
+
+
+
+
+老娘一拳一个显示器.jpg
+
+
+不过我觉得她是会拿手柄或者手机砸的
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 14391#       发表于 2020-6-25 21:51
+
+
+
+
+建议买个沙袋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手感应该比显示器好
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14392#       发表于 2020-6-25 21:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">是那个被砸裂的显示屏吗
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14393#       发表于 2020-6-25 21:52
+
+
+
+
+日哦，怎么每个月都有情况的，卡古拉你怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14394#       发表于 2020-6-25 21:53
+
+
+
+
+嘶，血压血压<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14395#       发表于 2020-6-25 21:54
+
+
+
+
+还有一个存活的显示器
+
+syl  受潮也太草了，咩是住在什么三流出租屋里吗？
+
+zsyl  从某个obs重启听到她打影之师的视频来看，我不觉得她是脾气那么爆的人
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14396#       发表于 2020-6-25 21:54
+
+
+
+
+垃圾，蟑螂，潮湿，虫少女，对上了对上了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14397#       发表于 2020-6-25 21:56
+
+
+
+
+等等。。她是不是之前说她砸过显示器了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14398#       发表于 2020-6-25 21:57
+
+
+
+
+我记得是打游戏摔手柄不小心砸到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14399#       发表于 2020-6-25 21:58
+
+
+
+ 本帖最后由 2014720 于 2020-6-25 21:59 编辑 
+
+第三个还是第四个了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这人和器材有仇
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 14400#       发表于 2020-6-25 21:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">怕不是玩了TLOU2一拳打穿了屏幕
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14401#       发表于 2020-6-25 21:59
+
+
+
+
+谁给她寄个沙袋，月抛显示器太费钱了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14402#       发表于 2020-6-25 22:01
+
+
+
+
+草，你们怎么都默认打爆的，不是说突然就黑了不知道怎么坏的吗，坦克民滚出去啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14403#       发表于 2020-6-25 22:01
+
+
+
+
+显示器代
+
+
+请
+
+
+话说愿望单没了你怎么寄
+
+
+
+
+
+                   
