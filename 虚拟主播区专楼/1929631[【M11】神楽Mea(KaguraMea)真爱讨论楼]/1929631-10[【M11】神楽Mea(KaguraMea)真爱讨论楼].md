@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-26 22:03** 
+> ## **本文件最后更新于2020-06-27 00:03** 
 
 
 
@@ -22088,4 +22088,3237 @@ zsyl  四个画师，那么能是4件新衣装吗<img src="https://static.sara
 
 
 
-       
+
+
+-----
+
+####  2014720  
+##### 14765#       发表于 2020-6-26 22:29
+
+
+
+
+困了，睡了，渐行渐远
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14766#       发表于 2020-6-26 22:53
+
+
+
+
+点名批评，估计睡着呢(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14767#       发表于 2020-6-26 22:54
+
+
+
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14768#       发表于 2020-6-26 22:56
+
+
+
+
+能把这种信息直接贴出来吗,白送了110min的同接<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14769#       发表于 2020-6-26 22:57
+
+
+
+
+要的就是这种不确定的期待感啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14770#       发表于 2020-6-26 22:57
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">凸待就是这样啊，换句话说就是用信息差骗同接（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14771#       发表于 2020-6-26 22:57
+
+
+
+
+抱有希望啊，说不定最后醒了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14772#       发表于 2020-6-26 22:59
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-26 23:01 编辑 
+
+苔苔：阿夸和mea怎么不来，说好了会来的吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14773#       发表于 2020-6-26 23:00
+
+
+
+
+克制克制
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14774#       发表于 2020-6-26 23:00
+
+
+
+
+拱火瘾来了(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14775#       发表于 2020-6-26 23:01
+
+
+
+
+退一步，这是苔苔在批评六字母，好起来了(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14776#       发表于 2020-6-26 23:02
+
+
+
+
+该贴了该贴了，两人一定实在偷偷恰独食忘了这边的事了吧，真好呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14777#       发表于 2020-6-26 23:03
+
+
+
+
+好事，苔苔也开始yygq六字母了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14778#       发表于 2020-6-26 23:05
+
+
+
+
+苔苔你变了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14779#       发表于 2020-6-26 23:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">如果倒数第三个不是mea或阿夸其中一个的话，我突然想到了一种很奇妙的展开
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14780#       发表于 2020-6-26 23:06
+
+
+
+ 本帖最后由 2014720 于 2020-6-26 23:07 编辑 
+
+黑暗贴贴人爬<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+我真是操了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14781#       发表于 2020-6-26 23:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真行啊海苔男
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14782#       发表于 2020-6-26 23:07
+
+
+
+
+草舞元来了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14783#       发表于 2020-6-26 23:08
+
+
+
+
+草，完蛋<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">球球咩别来了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14784#       发表于 2020-6-26 23:09
+
+
+
+
+明明是你们最喜欢的舞苔，不该高兴吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14785#       发表于 2020-6-26 23:09
+
+
+
+
+懂了，已经是卡其脱离态了
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 14786#       发表于 2020-6-26 23:09
+
+
+
+
+后面接上mea，再来aqua，太兴奋了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14787#       发表于 2020-6-26 23:09
+
+
+
+
+舞苔最强！舞苔贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14788#       发表于 2020-6-26 23:10
+
+
+
+
+草,怕不是海苔男设的局<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14789#       发表于 2020-6-26 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在等一会苔苔会怎么拱火mea
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14790#       发表于 2020-6-26 23:11
+
+
+
+
+苔姨，真的不是我想长梁木啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+舞苔贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14791#       发表于 2020-6-26 23:11
+
+
+
+
+呵，如期而至，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14792#       发表于 2020-6-26 23:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哈哈哈哈最后两个一起来哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14793#       发表于 2020-6-26 23:12
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-26 23:13 编辑 
+
+最后一句，舞苔贴贴！！舞苔最强！！！
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">怎么真这个点来啊
+
+好活好活<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 今天不黑屁苔苔了
+
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14794#       发表于 2020-6-26 23:12
+
+
+
+
+我就知道
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14795#       发表于 2020-6-26 23:12
+
+
+
+
+弱智浓度提升了
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 14796#       发表于 2020-6-26 23:12
+
+
+
+
+·<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14797#       发表于 2020-6-26 23:13
+
+
+
+
+呵，meaqua<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14798#       发表于 2020-6-26 23:13
+
+
+
+
+海苔男你可真行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14799#       发表于 2020-6-26 23:13
+
+
+
+
+以后再也不奶了
+
+
+
+
+
+
+
+-----
+
+####  rubinliu  
+##### 14800#       发表于 2020-6-26 23:13
+
+
+
+
+《如何评价苔姨》
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14801#       发表于 2020-6-26 23:13
+
+
+
+
+贴贴！！贴贴！！！！
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14802#       发表于 2020-6-26 23:13
+
+
+
+
+(#ﾟДﾟ)无话可说
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14803#       发表于 2020-6-26 23:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 14804#       发表于 2020-6-26 23:14
+
+
+
+
+还好开车没看
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14805#       发表于 2020-6-26 23:14
+
+
+
+
+贴贴!贴贴!真的在恰独食!她们是真的!<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我家的aqua都上了还行
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 14806#       发表于 2020-6-26 23:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好活啊
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 14807#       发表于 2020-6-26 23:15
+
+
+
+
+楼友的吃瘪时刻到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14808#       发表于 2020-6-26 23:15
+
+
+
+
+谁来repo一个，不想打开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14809#       发表于 2020-6-26 23:15
+
+
+
+
+贴贴，我就是贴贴人，我不演了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14810#       发表于 2020-6-26 23:16
+
+
+
+
+奶个纪念回live2d升级吧，唉
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14811#       发表于 2020-6-26 23:16
+
+
+
+
+世界名画，s1在哀嚎
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14812#       发表于 2020-6-26 23:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不需要repo的，一会熟肉就出来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14813#       发表于 2020-6-26 23:16
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-26 23:20 编辑 
+
+你们要的当面ntr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14814#       发表于 2020-6-26 23:17
+
+
+
+
+跑了跑了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">接下来要怎么贷款啊
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14815#       发表于 2020-6-26 23:17
+
+
+
+
+不需要熟肉的,凌晨酒厂就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14816#       发表于 2020-6-26 23:17
+
+
+
+
+要被净化了要被净化了要被净化了
+
+苔苔，我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 14817#       发表于 2020-6-26 23:18
+
+
+
+
+苔苔好短啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14818#       发表于 2020-6-26 23:18
+
+
+
+
+哈哈哈哈哈哈哈
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14819#       发表于 2020-6-26 23:18
+
+
+
+
+多谢s1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14820#       发表于 2020-6-26 23:18
+
+
+
+
+上次404同频是半年前了吧
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14821#       发表于 2020-6-26 23:18
+
+
+
+
+不行，笑死了，苔苔怎么这么巨魔啊
+舞元上完接着meaqua，这是ptsd奇美拉吗
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14822#       发表于 2020-6-26 23:18
+
+
+
+
+还好我在打扫卫生没看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+我这人不讨厌cp，但第三者强行拱火的我就反胃<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14823#       发表于 2020-6-26 23:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没听漏的话苔苔居然一句舞mea都没拱，苔苔你变了
+
+
+
+
+
+
+
+-----
+
+####  h1001010  
+##### 14824#       发表于 2020-6-26 23:19
+
+
+
+
+404的还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 14825#       发表于 2020-6-26 23:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">2w多同接的meaqua，苔苔，喂饭的神
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 14826#       发表于 2020-6-26 23:20
+
+
+
+
+海苔的拱火神功已然大成，不出我所料<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14827#       发表于 2020-6-26 23:20
+
+
+
+
+草我越来越相信有人视奸泥潭通风报信了(눈_눈)，m楼也需要清宝
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14828#       发表于 2020-6-26 23:20
+
+
+
+
+平复下心情吃点东西等杂谈
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 14829#       发表于 2020-6-26 23:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965287&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-26 23:19</a>
+
+没听漏的话苔苔居然一句舞mea都没拱，苔苔你变了</blockquote>
+然后后面接郡道就给你来聊舞咩 苔苔 巨魔的神
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14830#       发表于 2020-6-26 23:21
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是苔姨敢于这俩人出镜同台时拱火一波舞mea，那我愿称其为最强
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14831#       发表于 2020-6-26 23:21
+
+
+
+
+怎么说呢,辛辛苦苦等了这么久以为不来了结果给你狠狠的喂了一大口致死量ptsd成分<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+总之心情复杂,非常的复杂,jpg
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14832#       发表于 2020-6-26 23:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965327&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-26 23:21</a>
+
+然后后面接郡道就给你来聊舞咩 苔苔 巨魔的神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，后面就没看了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14833#       发表于 2020-6-26 23:22
+
+
+
+
+所以这种耐久不要看啦，会种梁木的，我没看就精神稳定
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14834#       发表于 2020-6-26 23:22
+
+
+
+
+怎么说呢，那总比舞咩一起来好。(눈_눈)这样安慰自己吧
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14835#       发表于 2020-6-26 23:22
+
+
+
+
+苔苔太会了，真实喂饭滴神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14836#       发表于 2020-6-26 23:23
+
+
+
+
+本来是单独连麦的，在等出场的时候mea去找阿夸商量了一下就一起上了←看的总结
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14837#       发表于 2020-6-26 23:23
+
+
+
+
+在咩和夸同时出场的地方拱火5咩，b站mmr第一个爆炸好吧
+
+苔苔没这么蠢啊
+
+等一个熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14838#       发表于 2020-6-26 23:24
+
+
+
+
+我可以认为就是为了上这个节目，导致咩姐鸽我到现在么，变相减少了我宝贵的睡眠时间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14839#       发表于 2020-6-26 23:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放心，哪怕ky如她但作为铁血功利人的苔姨必不可能这么拱，这要烧起来怕不是三昧真火
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14840#       发表于 2020-6-26 23:24
+
+
+
+
+那以你咩姐的小脑瓜想的肯定是一起上省时间，老娘还要播呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14841#       发表于 2020-6-26 23:25
+
+
+
+
+咩找夸吗(ಡωಡ) ，真是......
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14842#       发表于 2020-6-26 23:25
+
+
+
+
+请阿咩不要再视奸s1了，立刻开台请<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14843#       发表于 2020-6-26 23:25
+
+
+
+
+啊这，刚干完活准备睡觉，好像错过了好戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不拱5mea我真的谢谢了，看什么时候虹那些人也不拱了估计就彻底无了，挺好。
+
+其他的不评价。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 14844#       发表于 2020-6-26 23:25
+
+
+
+
+苔苔真是整活带师，仏了
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14845#       发表于 2020-6-26 23:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965379&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-26 23:23</a>
+
+本来是单独连麦的，在等出场的时候mea去找阿夸商量了一下就一起上了←看的总结 ...</blockquote>
+这不必然是苔宝让她们这么说的吗
+
+
+
+
+
+
+
+-----
+
+####  豆芽123  
+##### 14846#       发表于 2020-6-26 23:26
+
+
+
+
+梁木，梁木长了出来，苔姨我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14847#       发表于 2020-6-26 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻开播杂谈再来一波meaqua
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">今天贴贴人过节好吧
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14848#       发表于 2020-6-26 23:26
+
+
+
+
+和郡道聊了5咩也聊了咩夸吧（）<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+一句话，我暂时相信苔苔
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14849#       发表于 2020-6-26 23:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea自己找的？这波啊怎么说
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14850#       发表于 2020-6-26 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965427&amp;ptid=1929631" target="_blank">proxima 发表于 2020-6-26 23:26</a>
+
+这不必然是苔宝让她们这么说的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真这样的话那可太乐了
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14851#       发表于 2020-6-26 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965402&amp;ptid=1929631" target="_blank">惑星 发表于 2020-6-26 23:24</a>
+那以你咩姐的小脑瓜想的肯定是一起上省时间，老娘还要播呢</blockquote>
+如月在播asmr。。
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14852#       发表于 2020-6-26 23:27
+
+
+
+
+单人杂谈可千万别别六字母，那点**东西车老车去都tm听烦了，苔苔我要🦈了你！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14853#       发表于 2020-6-26 23:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965434&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-26 23:26</a>
+
+和郡道聊了5咩也聊了咩夸吧（）
+
+一句话，我暂时相信苔苔</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实刚才我翻了翻推，怎么隐约有种感觉，大亏把舞元绿了，这样的感觉
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14854#       发表于 2020-6-26 23:28
+
+
+
+
+那必不可能
+
+
+肯定会有下一个拱火的对象的
+
+
+八卦不就是这么回事吗
+
+
+她又不是啥真的purepure的完美偶像，观众脑子怎么可能不联想到下三路
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14855#       发表于 2020-6-26 23:28
+
+
+
+
+你倒是开啊(#ﾟДﾟ)开啊，别跟我讲你真的在跟大亏聊天啊(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14856#       发表于 2020-6-26 23:28
+
+
+
+
+这俩一出声我甚至回忆起了那时当贴贴人的快乐了，这不是也能正常互动的吗，这么就搞成现在的阴间cp了，所以晚啥时候播啊，不会又经典恰独食不播？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14857#       发表于 2020-6-26 23:28
+
+
+
+
+现在在跟大亏聊天的可能性还蛮大的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14858#       发表于 2020-6-26 23:29
+
+
+
+
+确实有可能是拱火才决定一起上的，倒数几个名额的时候就开始点名批评疯狂暗示了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14859#       发表于 2020-6-26 23:30
+
+
+
+
+就这样挺好，固定cp她玩不来的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14860#       发表于 2020-6-26 23:30
+
+
+
+
+等等，草，她不会说今晚鸽了然后理由用跟阿夸聊天吧(#ﾟДﾟ)证据就是苔苔的凸待。我有梁木了(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 14861#       发表于 2020-6-26 23:30
+
+
+
+
+草，果然不能看这种东西，妈的咩太久没播实在忍不住看了一眼，现在只想活剥了苔姨，没想到对一个人的厌恶感可以到达这种境地，ptsd大套餐，狗蛋，我沙了你
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14862#       发表于 2020-6-26 23:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965466&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-26 23:27</a>
+
+其实刚才我翻了翻推，怎么隐约有种感觉，大亏把舞元绿了，这样的感觉 ...</blockquote>
+所以说为什么那边5咩这么火啊<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+还夸把5元绿了
+
+syl  这是不是你的计谋，苔苔！！！！
+
+先造了一个不怎么合适但有话题度的cp，再用另一个cp代替它
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 14863#       发表于 2020-6-26 23:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">这不是挺好的嘛？小小的交流，然后剩下没有摆在台面上东西，贴贴人可以脑补她们在一起，梁木人可以脑补她们就各自走了，没有人会受伤的温柔世界
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14864#       发表于 2020-6-26 23:31
+
+
+
+
+？怎么隔壁说苔又再说咩拿5元0721<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+是隔壁听错了还是这边没听到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14865#       发表于 2020-6-26 23:31
+
+
+
+
+那挺好，今晚不知道要等到啥时候，明天准备二周年不播，精神不稳定，歇了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14866#       发表于 2020-6-26 23:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德，这一页发散什么鬼，这里就是华语第一贴贴楼？
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14867#       发表于 2020-6-26 23:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965474&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-26 23:28</a>
+
+这俩一出声我甚至回忆起了那时当贴贴人的快乐了，这不是也能正常互动的吗，这么就搞成现在的阴间cp了，所以 ...</blockquote>
+这两什么时候不能正常互动了……
+
+
+我当然也不想直接一转大亏功利说
+
+
+但最直接的原因不就是一个企业一个个人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+就，让5岁兼顾箱内营业可能已经是极限了吧
+
+以及我觉得“正常”应该是粉丝群体讨论氛围符合互动频率
+
+
+让这事变的不正常的当然不是她们本人而是粉丝群体
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14868#       发表于 2020-6-26 23:32
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-26 23:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965519&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-26 23:31</a>
+
+所以说为什么那边5咩这么火啊
+
+还夸把5元绿了
+
+syl  这是不是你的计谋，苔苔！！！！</blockquote>
+我也不知道啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我对5mea也没感觉，但就是莫名其妙的数字高（
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14869#       发表于 2020-6-26 23:32
+
+
+
+
+再不开我就去听如月的asmr睡觉了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14870#       发表于 2020-6-26 23:32
+
+
+
+
+啊,后面和郡道拱的舞咩<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+海苔男,热度的神
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14871#       发表于 2020-6-26 23:33
+
+
+
+
+404那边这么吃舞咩的么，准备压下梁木去补联动了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 14872#       发表于 2020-6-26 23:33
+
+
+
+
+你楼对六字母的讨论比六字母楼还多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实质六字母楼
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14873#       发表于 2020-6-26 23:33
+
+
+
+
+懒得换楼而已。翻翻发言六字母楼的人跟咩楼几乎一样的。(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14874#       发表于 2020-6-26 23:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965553&amp;ptid=1929631" target="_blank">whbstc4545 发表于 2020-6-26 23:33</a>
+
+你楼对六字母的讨论比六字母楼还多实质六字母楼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么叫越共啊
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 14875#       发表于 2020-6-26 23:34
+
+
+
+
+海苔男频道播放量最高的录播就是舞咩好吧，不然为什么这么喜欢拱火<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14876#       发表于 2020-6-26 23:35
+
+
+
+
+我是盐水党<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14877#       发表于 2020-6-26 23:35
+
+
+
+
+吐了，能不能这么说说别人，md一次两次也就算了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 14878#       发表于 2020-6-26 23:35
+
+
+
+
+贴贴楼可能会变 但是暗黑贴贴楼是永远不会变得<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14879#       发表于 2020-6-26 23:35
+
+
+
+
+我就想知道，贴贴人不觉得精分吗？前脚贴贴，后脚就可以和郡道聊舞mea<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看着那些打钱的，高呼“犬山哥就是我大哥”的，不觉得自己就像被戏弄的提线木偶吗？
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14880#       发表于 2020-6-26 23:36
+
+
+
+
+笑了，你楼等了一个多小时的怕是梁木极大生长，恨不得手撕了海苔男
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14881#       发表于 2020-6-26 23:36
+
+
+
+
+补联动的话大概看海苔男硬拱那回梁木还是会长回来,那边的舞咩民我也不清楚是看咩舔舞元还是看两边的麻将互动了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14882#       发表于 2020-6-26 23:36
+
+
+
+
+谁说的，她们要是官宣涉谷结婚隐退我立刻打红sc
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14883#       发表于 2020-6-26 23:36
+
+
+
+
+日本观众什么JB品位（狂怒）
+
+
+你咩跟五元聊聊黄油聊聊风俗聊聊小电影那也算有共鸣
+
+
+可惜一个云的学艺不精，一个没放开不想聊
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 14884#       发表于 2020-6-26 23:36
+
+
+
+
+这么短的连麦甚至比咩姐单人直播讨论还多，还挺恶心的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14885#       发表于 2020-6-26 23:36
+
+
+
+
+苔苔究极拱火怪不过是把任何有热度的东西给蹭一遍罢了，真实虚拟ig，你如果只去挑自己喜欢的内容看的话会很爽，全要看当然有梁木了
+
+                     
+
+syl，下次贴贴不知道会开在谁家台呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14886#       发表于 2020-6-26 23:37
+
+
+
+
+苔苔可是说出mea如果怀孕一定是舞元的这种鬼话的人啊，她还会说什么很奇怪吗
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14887#       发表于 2020-6-26 23:37
+
+
+
+
+就一场5分钟不到的直播，你们还反应挺大的
+
+虽然我正好错过了就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14888#       发表于 2020-6-26 23:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以有好兄弟repo一下郡道是怎么拱的吗？？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 14889#       发表于 2020-6-26 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965527&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-26 23:31</a>
+
+？怎么隔壁说苔又再说咩拿5元0721
+
+是隔壁听错了还是这边没听到 ...</blockquote>
+？？？？？？？真的吗？那她吗biss，真该活剥了她
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14890#       发表于 2020-6-26 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965537&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-06-26 23:32:21</a>
+这两什么时候不能正常互动了……
+
+
+我当然也不想直接一转大亏功利说
+
+
+但最直接的原因不就是一个企业一个个 ...</blockquote>只是想起带亏在啊b的脑死lol了，突然发现这互动没那么刻意还挺自然，有以前没起飞时的感觉了，对这个粉毛梁木太多，一出来就觉得怪
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14891#       发表于 2020-6-26 23:38
+
+
+
+
+等熟肉等熟肉
+
+她们关系可能还是一如当初，只不过我们变了，环境也变了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14892#       发表于 2020-6-26 23:38
+
+
+
+ 本帖最后由 2014720 于 2020-6-26 23:39 编辑 
+
+5咩也好咩夸也好，别太往心里去啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+舞苔已经在路上了，希望苔苔好好搞，热度会有的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14893#       发表于 2020-6-26 23:38
+
+
+
+
+这联动主要是kpi大物六字母plus梁木种植机苔苔plus漫长等待喂氏的愤怒啊(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14894#       发表于 2020-6-26 23:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965606&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-26 23:36</a>
+
+这么短的连麦甚至比咩姐单人直播讨论还多，还挺恶心的</blockquote>
+那我觉得你这也不太客观……
+
+
+单人直播讨论个两三页怎么都是有的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14895#       发表于 2020-6-26 23:39
+
+
+
+ 本帖最后由 无限舰制 于 2020-6-26 23:41 编辑 
+
+风怒编辑
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 14896#       发表于 2020-6-26 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965589&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-6-26 23:35</a>
+
+我就想知道，贴贴人不觉得精分吗？前脚贴贴，后脚就可以和郡道聊舞mea看着那些打钱的，高呼“犬山哥 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">带上屏蔽BG的有色眼镜就完事了，还有那楼仅限同性恋的，BG不配repo也不配讨论
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14897#       发表于 2020-6-26 23:39
+
+
+
+ 本帖最后由 惑星 于 2020-6-26 23:40 编辑 
+
+你想一下，你是个梁木人，深夜无聊等着mea的杂谈，耐不住寂寞蹲在苔苔直播间一个多小时等阿咩几分钟的声音，然后出现了meaqua，然后是舞咩，然后mea还没开播，体谅一下
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14898#       发表于 2020-6-26 23:39
+
+
+
+
+别慌，最近审核挺快的，12点半前应该能看到？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14899#       发表于 2020-6-26 23:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965638&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-6-26 23:39</a>
+那我觉得你这也不太客观……
+
+
+单人直播讨论个两三页怎么都是有的</blockquote>
+讨论 ❌
+发散 ⭕️
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14900#       发表于 2020-6-26 23:40
+
+
+
+
+你咩自己说过的话有什么办法，敢说有要有被人刷一万遍的觉悟啊。不过mea营业过度也不是一天两天了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14901#       发表于 2020-6-26 23:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965606&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-26 23:36</a>
+
+这么短的连麦甚至比咩姐单人直播讨论还多，还挺恶心的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也感受到这种感觉了吗
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 14902#       发表于 2020-6-26 23:40
+
+
+
+
+六字母反正也不会在油 管复活，你们那么激动干什么，什么时候爆个雷彻底完蛋就谢天谢地了
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14903#       发表于 2020-6-26 23:40
+
+
+
+
+等一个楼里懂日语大佬的repo
+
+我先眠了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14904#       发表于 2020-6-26 23:41
+
+
+
+
+难道不是等咩半夜的直播顺便开着苔苔的凸待看着玩吗，本质还是在等咩单人直播啊不然哪来这么多人凑热闹<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14905#       发表于 2020-6-26 23:41
+
+
+
+
+即使说麻将组一直这么下去也不是不行，但是总有人在外面引导舆论恶心人，还tm一遍又一遍往男女关系上扯
+
+再整个她来句喜欢的人不会主动攻势评论就一堆刷无关男v吗，那可真的挺令人作呕的✋
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14906#       发表于 2020-6-26 23:41
+
+
+
+
+这是真的恶心，没事就说别人怀着舞元的孩子，拿舞元打手冲，如果我是她朋友我是接受不了的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14907#       发表于 2020-6-26 23:41
+
+
+
+
+单人直播要是蹦出这种让人？？？的内容那两三页也没跑的
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14908#       发表于 2020-6-26 23:42
+
+
+
+
+那有什么办法，还不是得她自己杀
+
+
+她的营业路线男女情感拱火（考虑到人类天性）只会比百合系更猛烈好吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14909#       发表于 2020-6-26 23:42
+
+
+
+
+就当她跟大亏聊天好了。怀着良母去睡了，等明天的repo或是咕咕咕(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14910#       发表于 2020-6-26 23:43
+
+
+
+
+而且那边有5元休息了是这俩去约的想法和苔这么nt拱法不无关系吧，亏我还以为旅馆联动她tm已经改好了，植树造林有一手的
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 14911#       发表于 2020-6-26 23:43
+
+
+
+
+蹲了一个多少时直播结果被一个贴贴甩脸上还附带舞元要素，那确实是出离愤怒了，可以理解<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14912#       发表于 2020-6-26 23:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">贷款黑啤被实现是这样的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Mea粉真喜欢看mea舔别人的，那我是想不到
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14913#       发表于 2020-6-26 23:45
+
+
+
+
+やること終わってたまきちゃんのとこもお邪魔できたから今からちょっとはいしんするよ～～～～；；；；
+
+1時間くらい！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+
+遅くなっちゃった！！！！！！！！！！！！！！！！！！！！！！
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14914#       发表于 2020-6-26 23:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没办法，与其说人多，不如说是你咩姐用力过猛和苔姨这个拱火功利人连续几个月的孽力回馈，毕竟那边一般通过也没得选
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14915#       发表于 2020-6-26 23:46
+
+
+
+
+u1s1，龙宫闹海还是很有意思的（
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14916#       发表于 2020-6-26 23:46
+
+
+
+
+她推动了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14917#       发表于 2020-6-26 23:46
+
+
+
+
+新推，一会播
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以郡道到底和苔苔说了啥？谁说的？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 14918#       发表于 2020-6-26 23:46
+
+
+
+
+等了这么久，就等到这个nt在这恶心人，还他吗大放送，只能说是难以抑制的愤怒了，我真是鲨了她全家
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14919#       发表于 2020-6-26 23:46
+
+
+
+
+leile
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14920#       发表于 2020-6-26 23:46
+
+
+
+
+要播了？
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14921#       发表于 2020-6-26 23:46
+
+
+
+
+苔苔可以这样口嗨自己朋友（如果是的话）我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14922#       发表于 2020-6-26 23:46
+
+
+
+
+等直播等直播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14923#       发表于 2020-6-26 23:47
+
+
+
+
+谁去看一眼录播不就行了，我是看外面的楼有人说的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14924#       发表于 2020-6-26 23:48
+
+
+
+
+要播了是好事,反正熬夜有单人回够了<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+你咩姐怕不是想和咩夸一样冷处理扭转,但坏在苔姨拱的更凶了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14925#       发表于 2020-6-26 23:49
+
+
+
+
+0721我不清楚，只是让我想起了“mea不会怀孕除非是舞元的”这种家里死人的话了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14926#       发表于 2020-6-26 23:49
+
+
+
+
+虚拟仰卧起坐
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14927#       发表于 2020-6-26 23:49
+
+
+
+[https://www.youtube.com/watch?v=PmhtUkPcwfE](https://www.youtube.com/watch?v=PmhtUkPcwfE)
+
+待机间
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14928#       发表于 2020-6-26 23:49
+
+
+
+
+乐
+一这图是不是没见过？
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14929#       发表于 2020-6-26 23:50
+
+
+
+
+《单推与贴贴的矛盾》
+若是能变现也好说吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14930#       发表于 2020-6-26 23:50
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-26 23:51 编辑 
+
+啊看错了，是乐一的图
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14931#       发表于 2020-6-26 23:51
+
+
+
+
+不想看的静音或者不看就好了，咩出来前我都没去苔直播间，结果看了个六字母就结束了，啊这，一看封面这个短发又有梁木了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14932#       发表于 2020-6-26 23:53
+
+
+
+
+这标题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我估计她还会谈那些贷款黑屁她的
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 14933#       发表于 2020-6-26 23:55
+
+
+
+
+封面还是这个短发，啊，啊，啊，啊，啊，连发啊这是，只能诡笑了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 14934#       发表于 2020-6-26 23:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">马上有meaquaSC了，久违的贴贴就这500日元+50刀啊，建议打红的并附上怪文书
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 14935#       发表于 2020-6-26 23:55
+
+
+
+
+啧，居然不是整点开播
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14936#       发表于 2020-6-26 23:55
+
+
+
+
+剪了发，吃了烤肉，买了新衣服。咩宝开心，我就开心<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14937#       发表于 2020-6-26 23:56
+
+
+
+
+上播了nice
+不过这标题<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14938#       发表于 2020-6-26 23:56
+
+
+
+
+突然觉得啊，日本舞咩这么火，那说她去找舞元也不算黑屁，应该是正常讨论，也别委屈了
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14939#       发表于 2020-6-26 23:56
+
+
+
+
+海苔男说你咩怀舞元孩子和拿舞元手冲是否可以构成无端黒屁的一份子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14940#       发表于 2020-6-26 23:57
+
+
+
+
+u1s1，舞元和其他男人还是不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 14941#       发表于 2020-6-26 23:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965865&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-26 23:56</a>
+
+海苔男说你咩怀舞元孩子和拿舞元手冲是否可以构成无端黒屁的一份子</blockquote>
+不算，因为整了贴贴所以大哥卡还在续费
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14942#       发表于 2020-6-26 23:58
+
+
+
+
+快进到“真的有mea单推人啊”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14943#       发表于 2020-6-26 23:58
+
+
+
+
+看比赛看比赛<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+状态看着还行
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14944#       发表于 2020-6-26 23:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965889&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-26 23:58</a>
+
+快进到“真的有mea单推人啊”</blockquote>
+流星在吗，这b站的标题整的太吓人了，能不能换个温和点的啊
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14945#       发表于 2020-6-26 23:59
+
+
+
+
+等会。。你要播多少啊？六个封面这个算吗？
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14946#       发表于 2020-6-26 23:59
+
+
+
+
+啊，又是剪头发又是买衣服又是出门，那个元气jk小麻如闪电般归来了？这聊聊最近干了什么和烦恼，距离感不一下就拉近了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 14947#       发表于 2020-6-27 00:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">好提到aqua了。我想看连体人打钱感谢，但连体人SC只有两个还不是红的，请问我可以对连体人生梁木了吗？
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14948#       发表于 2020-6-27 00:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965900&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-26 23:59</a>
+
+流星在吗，这b站的标题整的太吓人了，能不能换个温和点的啊</blockquote>
+人生終了したい
+
+这还能咋翻啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 14949#       发表于 2020-6-27 00:00
+
+
+
+
+你们哪里来的这么多梁木<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14950#       发表于 2020-6-27 00:01
+
+
+
+
+6个封面草，看到一条弹幕<blockquote>做封面做到怀疑人生所以有了这个标题</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 14951#       发表于 2020-6-27 00:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965909&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-26 23:59</a>
+啊，又是剪头发又是买衣服又是出门，那个元气jk小麻如闪电般归来了？这聊聊最近干了什么和烦恼，距离感不一 ...</blockquote>
+。。不是，在家被迫憋了几个月自然要出去玩的爽啊
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14952#       发表于 2020-6-27 00:01
+
+
+
+
+六个封面，这是下个月播爆的意思吗（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14953#       发表于 2020-6-27 00:02
+
+
+
+
+我男友粉啊，你一次两次也就算了，说了多少次我推和某个特定男人**对着手冲，这还咋没梁木啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14954#       发表于 2020-6-27 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965918&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-27 00:00</a>
+
+人生終了したい
+
+这还能咋翻啊</blockquote>
+好想结束此生
+
+不要整这样带点文艺味好像很严肃的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14955#       发表于 2020-6-27 00:02
+
+
+
+
+别再提了，最起码等播完呗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+ 
