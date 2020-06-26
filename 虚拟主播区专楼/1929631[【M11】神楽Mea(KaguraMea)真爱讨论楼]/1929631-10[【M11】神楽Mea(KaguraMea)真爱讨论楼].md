@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-26 02:03** 
+> ## **本文件最后更新于2020-06-26 14:06** 
 
 
 
@@ -15711,6 +15711,25 @@ zsyl  从某个obs重启听到她打影之师的视频来看，我不觉得她
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -18997,4 +19016,727 @@ meu肯定幼啊
 
 
 
-             
+
+
+-----
+
+####  lovcavil  
+##### 14588#       发表于 2020-6-26 04:04
+
+
+
+
+什么玩意！
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14589#       发表于 2020-6-26 08:19
+
+
+
+
+b的直播日历，29号22点有mea
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14590#       发表于 2020-6-26 09:26
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-26 09:41 编辑 
+
+看了眼昨晚的海盗翻译，如果咩也看国内黑泥的话这波黑屁nga全责<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14591#       发表于 2020-6-26 09:26
+
+
+
+
+不要歌回，来点lol<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14592#       发表于 2020-6-26 09:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956637&amp;ptid=1929631" target="_blank">Sanguine 发表于 2020-6-26 09:26</a>
+看了眼昨晚的海盗翻译，这波黑屁nga全责</blockquote>
+突然怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14593#       发表于 2020-6-26 09:36
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-26 09:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956647&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-26 09:28</a>
+突然怎么了</blockquote>
+说前几天外出交税和工作被说成是和男人打炮，买新衣服也怕被说是为了和男人见面买的。不知道是云出来的黑屁还是自搜看见了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">但她昨晚委屈巴巴的语气确实让人不好受
+想想还是改了严谨点，毕竟跟男人出去这波rz发散国内也是nga开始的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14594#       发表于 2020-6-26 09:44
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-26 09:46 编辑 
+
+是nga无关提起，然后这边开始有nt发散。
+
+不过我觉得都没什么关系，不是5ch就是那边的弱智小鬼自己发散。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14595#       发表于 2020-6-26 09:50
+
+
+
+
+不是说有5ch在视奸这边吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14596#       发表于 2020-6-26 10:00
+
+
+
+ 本帖最后由 2014720 于 2020-6-26 10:04 编辑 
+
+这边弱智发散跟她说这事真不会有啥联系吧
+
+她出发前就再说不是找男人了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，估计也就想顺劈一下小博宇类似吧
+
+那边不会最近有人跳脸吧，还是那边也有什么弱智发散传播开来了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14597#       发表于 2020-6-26 10:05
+
+
+
+
+有无日语大佬去5ch看看啊(눈_눈)，在下文盲，能听不能看
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14598#       发表于 2020-6-26 10:09
+
+
+
+
+现在5ch还会讨论你咩姐吗，不是说那的串的都沉底了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14599#       发表于 2020-6-26 10:28
+
+
+
+
+刚想说mea串一整天就没几条回复，去看了看还真有说你mea姐不播就是去啪啪啪了的
+
+
+
+另外看的这句笑死 <blockquote>めあの汽笛
+[https://www.youtube.com///watch?v=wFByTqvORH0&amp;t=6763](https://www.youtube.com///watch?v=wFByTqvORH0&amp;t=6763)</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 14600#       发表于 2020-6-26 10:37
+
+
+
+
+咩
+
+少刷论坛，多直播
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zaozaoxx  
+##### 14601#       发表于 2020-6-26 11:20
+
+
+
+
+这就是共时性
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14602#       发表于 2020-6-26 11:25
+
+
+
+
+弱智heip不分国界<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 14603#       发表于 2020-6-26 11:34
+
+
+
+
+真的有视奸论坛然后往外输出的吗？
+如果真有的话，麻烦好哥哥务必告诉外面<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+我衷心希望苔姨早日出嫁<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14604#       发表于 2020-6-26 11:36
+
+
+
+
+说到苔苔，kuma真是她男友吗？(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14605#       发表于 2020-6-26 11:39
+
+
+
+
+可以是，也可以不是，这很唯心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14606#       发表于 2020-6-26 11:40
+
+
+
+
+你等por哥给你解释吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 14607#       发表于 2020-6-26 11:52
+
+
+
+
+海苔男说了不是，那就不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14608#       发表于 2020-6-26 12:27
+
+
+
+
+5ch她的串从很早开始就是又云消息又慢了，而且来来回回就那么几句话反复复读，正儿八经讨论她直播的都是别人的串
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14609#       发表于 2020-6-26 12:29
+
+
+
+
+这到底好事坏事啊(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14610#       发表于 2020-6-26 12:41
+
+
+
+
+她本土一个m楼都没嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14611#       发表于 2020-6-26 12:43
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-26 13:31 编辑 
+
+好事啊，不用花时间去看一个只剩xby的地方了
+
+去年这时候mea串里聊的东西和当时的s1m楼还有点像的，后来就彻底荒废了
+
+新人当然有，正常老人也有，只是5ch并不是什么必须要去的地方
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 14612#       发表于 2020-6-26 12:46
+
+
+
+
+像就对了。
+
+______的今天，就是______的明天
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14613#       发表于 2020-6-26 12:53
+
+
+
+ 本帖最后由 2014720 于 2020-6-26 13:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+明明最近数据还行，只有鬼佬和路人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14614#       发表于 2020-6-26 12:53
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14615#       发表于 2020-6-26 13:17
+
+
+
+
+除了找乐子外，我想不出要去看匿名串的原因。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我以前也经常看就是了。
+
+SYL，所以说分区是好文明，网络资源这么多，没必要把观点不一致的人挤到一起。真喜欢到处逛的入乡随俗就好。
+
+从V版成立后你楼和隔壁楼的巨魔度也下降不少。结果是V版奇观林立就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 14616#       发表于 2020-6-26 13:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S1正统在维阿
+
+
+
+
+
+
+
+-----
+
+####  LIPP  
+##### 14617#       发表于 2020-6-26 13:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说到匿名论坛，最近4chan也能看到可观比例讨论她的了。
+
+而且对她的评价大部分都是看起来屑其实很关心别人。不知道这印象是从哪飘来的。
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14618#       发表于 2020-6-26 13:31
+
+
+
+
+5ch那个一个月一条串子感觉还行吧，没那么死的透彻好吧，我看的时候都当小黄文看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14619#       发表于 2020-6-26 13:32
+
+
+
+
+数据算上sc之类还行的话那肯定不止鬼佬和路人啊。看看年底能不能到20吧
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 14620#       发表于 2020-6-26 13:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新入坑的基本都是这印象了吧，18年那时候屑度还是挺浓的
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 14621#       发表于 2020-6-26 13:40
+
+
+
+ 本帖最后由 离心 于 2020-6-26 13:52 编辑 
+
+不出问题年底20w是肯定的吧。想了想25w还是有点异想天开了，编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14622#       发表于 2020-6-26 13:43
+
+
+
+ 本帖最后由 2014720 于 2020-6-26 13:45 编辑 
+
+25w是找上那个巨物引流了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不车了，也车不出啥
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14623#       发表于 2020-6-26 13:46
+
+
+
+
+fafa那是心疼你咩姐，人家说了啥她不在意，关键是你咩姐委屈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 14624#       发表于 2020-6-26 13:57
+
+
+
+
+是挺委屈的出门前都说了几次去工作。结果还是被黑屁了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14625#       发表于 2020-6-26 13:59
+
+
+
+
+女粉战斗力(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14626#       发表于 2020-6-26 14:01
+
+
+
+
+其实也跟出门工作无关，毕竟真anti可以虚空黑屁，干啥都是罪过(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 14627#       发表于 2020-6-26 14:01
+
+
+
+
+没有黑料、anti和gl，只有发情和gachi的话，的确能说的内容越来越少。你看nga和s1的讨论量和去年同期比也下降了很多。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14628#       发表于 2020-6-26 14:04
+
+
+
+
+有一说一，她都干这行多久了，能不知道这点儿事儿？你们又怎么确定她不是在rp，真委屈加精神不稳定感情宣泄肯定有，故意夸大表演营造节目效果我觉得也有好吧，真正的虚实结合神仙演技，将男人玩弄于股掌之间，卡古拉没牙，你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14629#       发表于 2020-6-26 14:05
+
+
+
+
+也有因为饭盒群关了一堆水逼的原因，以前天狗给我的印象就是巨会水论坛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+感觉也培养了不少云观众
+
+
+
+
+
+            
