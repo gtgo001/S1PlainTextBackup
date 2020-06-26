@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-25 14:12** 
+> ## **本文件最后更新于2020-06-26 18:13** 
 
 
 
@@ -301,7 +301,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 <img src="https://img.saraba1st.com/forum/202002/23/055404hk6unj1v6fj4qzq4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 49)
+<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 50)
 
 下载附件
 
@@ -5500,7 +5500,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_PKmki" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_fICzn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -16245,4 +16245,782 @@ X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
 
 
 
-                      
+
+
+-----
+
+####  tsounaiq  
+##### 812#       发表于 2020-6-25 20:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47946341&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-25 13:17</a>
+
+是的，利用率什么的都是浮云，只要能保证性能稳稳释放我都能接受。换X5我难过的事情就是游戏体验对比xz2c ...</blockquote>
+索尼从机内存储的类型、电池容量、充电速度和续航的取舍，都是出了名的保守，激进是不可能的，最多给个4k屏幕，然后大部分时间都是当fhd用。
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 813#       发表于 2020-6-25 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47946393&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-25 13:23</a>
+
+X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
+
+
+那个散热垫真不怎么大，对比国内人均热管差距就更大了 ...</blockquote>
+无线充电下面的那个覆盖了整个机器啊，然后屏幕和金属中框中间还有石墨散热片的。
+
+主板上面还有sim卡槽呢，不支持tf卡扩展可以省多少空间可以想想。
+
+摄像头的排列限制顶就到那边了 ，再做高集成就是徒增成本了。
+
+
+关于电池空间，本身日本人强迫症要高安全标准，边框厚度明显比国产多。 然后你看底部副板 我目前发现只有🔒尼给usb接口专门加了强度做安全防滚，然后为了正面扬声器导音腔，整个下部的厚度就上去。  综合起来 电池的空间就被挤压了。把这些全去掉 4500也没问题呀。鱼和熊掌的问题咯。
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 814#       发表于 2020-6-25 21:12
+
+
+
+ 本帖最后由 Cray 于 2020-6-25 21:14 编辑 
+
+包括排线涂黑 玻璃背板涂黑 都是石墨散热<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 楼斌就是喜欢在那里yygq  一直是这样的
+
+
+
+
+
+
+
+-----
+
+####  coolcoat  
+##### 815#       发表于 2020-6-25 21:44
+
+
+
+
+插了电信卡还是显示lte,不知道是要设置还是不支持，同样的卡和地点插菊花机子倒是显示5G...
+
+
+----发送自 [Sony XQ-AT52,Android 10](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 816#       发表于 2020-6-25 22:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47951755&amp;ptid=1915171" target="_blank">Cray 发表于 2020-6-25 21:12</a>
+包括排线涂黑 玻璃背板涂黑 都是石墨散热 楼斌就是喜欢在那里yygq  一直是这样的
+
+ ...</blockquote>
+我觉得也不算阴阳怪气，因为确实明显的散热措施就很少，散热不暴力。
+
+总得来说评价也挺中肯，毕竟还夸了机身温度比华为低。
+
+现在就看核心频率能不能稳住，能稳住就是好散热，不行就差劲，等等看有没有人实测。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 817#       发表于 2020-6-25 22:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47952185&amp;ptid=1915171" target="_blank">coolcoat 发表于 2020-6-25 21:44</a>
+插了电信卡还是显示lte,不知道是要设置还是不支持，同样的卡和地点插菊花机子倒是显示5G...
+
+
+----发送自 So ...</blockquote>
+你的电信是1卡还是2卡？我看说是联通电信5G都支持。如果不显示，会不会是双卡模式下只有1卡可以5G
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 818#       发表于 2020-6-25 23:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47952735&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-25 22:24</a>
+你的电信是1卡还是2卡？我看说是联通电信5G都支持。如果不显示，会不会是双卡模式下只有1卡可以5G
+
+——  ...</blockquote>
+双卡是5+4模式。。。
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 819#       发表于 2020-6-26 00:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47953471&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-6-25 23:16</a>
+双卡是5+4模式。。。
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+就是因为双卡5+4我才特意这样问……万一限定了双卡只能卡1 5G卡2 4G，不能卡1 4G 卡2 5G呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 820#       发表于 2020-6-26 00:38
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47952707&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-25 22:22</a>
+
+我觉得也不算阴阳怪气，因为确实明显的散热措施就很少，散热不暴力。
+
+
+总得来说评价也挺中肯，毕竟还夸了 ...</blockquote>
+不少了啊 全机覆盖散热片了。大概pro会上均热板把。  相对上代上面都没有来说， 已经是🔒尼做工最好的了。。
+
+
+测温度应该拍hdr视频。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 821#       发表于 2020-6-26 00:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47946393&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-25 13:23</a>
+
+X1M2还能这么浪，够大够长。X5M2我感觉压力很大。
+
+
+那个散热垫真不怎么大，对比国内人均热管差距就更大了 ...</blockquote>
+你想买小的手机又想买游戏性能好的，这思路本来就是错的。
+
+还不如直接入个se。想安卓游戏性能强不如直接入个带风扇的。
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 822#       发表于 2020-6-26 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47954719&amp;ptid=1915171" target="_blank">Cray 发表于 2020-6-26 00:38</a>
+不少了啊 全机覆盖散热片了。大概pro会上均热板把。  相对上代上面都没有来说， 已经是🔒尼做工最好的了 ...</blockquote>
+真测严谨的温度应该学习7吧那一群烤鸡佬，从空载开始一个一个用多种软件轮流烤，把温度墙、功耗、峰值、能效全部考虑进去还差不多。
+
+http://weibo.com/5908358617/IvRA71g1j
+
+反正去年我是被翻了一次车了，X5能长时拍hdr视频又有什么用，打游戏就是锁60度温度墙，流畅10分钟就开始降频。跑分数据更是感人，我自己的简单测试下，X5的3D mark甚至可以不如xz2c（vulkan下）。要知道各种数据实测，855是非常好压的一颗Soc，被索移整得和845拉不开差距，这只能怪索移散热拉垮温度墙保守了吧。
+
+<img src="https://p.sda1.dev/0/f6e045dc9b2e7ceb4536b8e9cc44d520/IMG_7933876ABD066E8B03F5528E2985DFC2.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/e2be1f46d95b065a7fe139d40a6048ec/IMG_BDCBA15A7B5BC17EA96C92E3AAFD8175.jpeg" referrerpolicy="no-referrer">
+
+嫌弃一加大还是出了7T换了X5，手感是好了，性能是真的难受。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 823#       发表于 2020-6-26 01:04
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 01:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47954808&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-6-26 00:45</a>
+你想买小的手机又想买游戏性能好的，这思路本来就是错的。
+
+还不如直接入个se。想安卓游戏性能强不如直接入 ...</blockquote>
+不是思路是错的，而是索移的性能表现都没到<strong>及格线</strong>
+
+xz2c够小了吧，比X5小吧，3d mark vulkan模式跑分比X5高，索移能连自己前代作品都比不过，你觉得这还能说是我思路错误吗？
+
+<img src="https://p.sda1.dev/0/635027e715888be34ebef1a3c5ac1c4f/IMG_7933876ABD066E8B03F5528E2985DFC2.jpeg" referrerpolicy="no-referrer">
+
+再换个角度，目前绝大部分手机，性能模式/游戏模式下，Soc温度墙都是放宽到70度甚至80度以上的，然而我手上这台X5只有60度，导致性能释放就是5分钟真男人，玩一会儿就降频，这是纯软件上的失误，同样小巧的三星s系也没这么保守的温度墙。
+
+选X5的时候就没指望它能比肩各路调度激进的国产手机，但这货<strong>长时</strong>游戏性能结果还不如xz2c，温度调度比前代作品还保守，这……难道还不是索尼的错？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+平心而论，大家也都是买了好几台索尼的股东了，你不喜欢iOS，我也不喜欢iOS。市面上就这一款无缺口无大圆角完整直屏Android旗舰可选了，我不期望它做好一点，对得起大几千的价格，我还能怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，已经做好X5M2拉垮就单独买个Android游戏手机当专职游戏机的准备了，但明明一台手机可以解决的事情，却被迫要两台手机才能搞定，就很令人郁闷不是吗？
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 824#       发表于 2020-6-26 01:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47954989&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 01:04</a>
+
+不是思路是错的，而是索移的性能表现都没到及格线
+
+
+xz2c够小了吧，比X5小吧，3d mark vulkan模式跑分比X5 ...</blockquote>
+其实偶是很久没注意过安卓的性能了，xzp之前就玩玩模拟器。
+
+屏幕有1/4不能用后更是放弃了，转z3和xzp一起用。
+
+不过后来就在家上班了。
+
+不过前几天看watanabe的1mk2的游戏测试视频，
+
+好像是玩一个fps游戏，不知道是不是你们说的吃鸡。
+
+他连玩3局，充着电的情况下40多度。
+
+同样情况下开hs模式插电，30多度。
+
+貌似距离你说的60度都很远。
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 825#       发表于 2020-6-26 01:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47637389&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-6-1 14:29</a>
+
+现在风声透露基本都不少了，重点说几点
+
+软件方面：拍照SD卡错误解决，转圈解决，HDR解决。
+
+硬件方面史诗级 ...</blockquote>
+马达体验据说回复正常了，安卓最大马达，点赞
+
+
+12g内存估计不是国内特供版，可能是pro的，也可能没有，反正8G也够用
+
+DDR5的内存，心头大石也放下来，点赞。
+
+
+看到电池是宁德时代，感觉要跪，90HZ可有可无，我晕120HZ
+
+
+屏幕看到色温选项了，据说D65下准的一逼，不知道是真是假
+
+
+剩下就是等国行了，估计要9月，希望越快越好。
+
+PS:现在夏天这个气氛，户外拍4K HDR是必死无疑，不用太纠结过热保护。
+
+
+
+
+
+
+
+-----
+
+####  MixRadio  
+##### 826#       发表于 2020-6-26 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955230&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-6-26 01:32</a>
+马达体验据说回复正常了，安卓最大马达，点赞
+
+
+12g内存估计不是国内特供版，可能是pro的，也可能没有，反 ...</blockquote>
+电池宁德时代？这也太拉胯了吧
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 827#       发表于 2020-6-26 02:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955134&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-6-26 01:20</a>
+其实偶是很久没注意过安卓的性能了，xzp之前就玩玩模拟器。
+
+屏幕有1/4不能用后更是放弃了，转z3和xzp一起 ...</blockquote>
+你说的40多度或者30多度多半是机身温度或者电池温度……真看性能得看Soc温度，就和电脑一样，CPU、GPU都是有温度墙的，撞墙自动强制降频。而865在无风扇主动散热的情况下，开机待机就有40度了……游戏还是40度在被动散热的条件下理论上是不可能有手机做到的。
+
+现在已知的情况就是X1M2连续吃鸡机身温度表现良好了，所以我很期望这套散热系统足够给力，能打我脸最好，在核心温度上的表现也足够良好，能保证游戏帧数的长时稳定。
+
+要能把我脸抽肿，我恨不得下半年首发马上入X5M2，我自己的X5的游戏体验太辜负我的期望了。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  MixRadio  
+##### 828#       发表于 2020-6-26 02:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955415&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 02:06</a>
+你说的40多度或者30多度多半是机身温度或者电池温度……真看性能得看Soc温度，就和电脑一样，CPU、GPU都 ...</blockquote>
+那SoC的温度用什么软件看准一些，我用的监测软件显示的CPU温度确实没有到60度这么高，最高也就是51度
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 829#       发表于 2020-6-26 02:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955415&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 02:06</a>
+
+你说的40多度或者30多度多半是机身温度或者电池温度……真看性能得看Soc温度，就和电脑一样，CPU、GPU都 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202006/26/021630uclmvjw0xel5vvnr.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200625111423.png</strong> (490.06 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-26 02:16 上传
+
+
+
+
+
+[https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s](https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s)
+
+
+自己看
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 830#       发表于 2020-6-26 02:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955415&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 02:06</a>
+
+你说的40多度或者30多度多半是机身温度或者电池温度……真看性能得看Soc温度，就和电脑一样，CPU、GPU都 ...</blockquote>
+新的U只能说更难跑高频
+
+
+但是夏天情况下，这么小的鸡身，是无论如何都没法满足大鸡的散热空间的。
+
+
+下代X5一样跑不动，老实上X1 II吧
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 831#       发表于 2020-6-26 02:53
+
+
+
+ 本帖最后由 Cray 于 2020-6-26 03:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955415&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 02:06</a>
+
+你说的40多度或者30多度多半是机身温度或者电池温度……真看性能得看Soc温度，就和电脑一样，CPU、GPU都 ...</blockquote>
+x5II  八成是没有耳机孔的。 这样想 主板不就不挤了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 哦，想起来还有10 II ，那5II就是堆叠主板的10II了 3500-3600的电池。
+
+
+
+说到5.。他那个背板上只有摄像头旁边一圈涂了石墨， L型主板集成度超拉跨，sim槽堆叠在某芯片上面。 完全靠中框散热，中框和屏幕之间有半机身大小的散热片。应该不差啊，你那片子是不是不见了。你不是修过屏幕嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  mhss  
+##### 832#       发表于 2020-6-26 10:10
+
+
+
+
+话说索尼包括新出的机型自从安卓10后人脸解锁是不是都没指望了？
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 833#       发表于 2020-6-26 10:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956958&amp;ptid=1915171" target="_blank">mhss 发表于 2020-6-26 10:10</a>
+话说索尼包括新出的机型自从安卓10后人脸解锁是不是都没指望了？
+
+—— 来自 Sony H8296, Android 10上的 S ...</blockquote>
+itof在机后，能接受背面识别吗
+
+— from Sony D6653, Android 6.0.1 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  mhss  
+##### 834#       发表于 2020-6-26 10:18
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956958&amp;ptid=1915171" target="_blank">mhss 发表于 2020-6-26 10:10</a>
+话说索尼包括新出的机型自从安卓10后人脸解锁是不是都没指望了？
+
+—— 来自 Sony H8296, Android 10上的 S ...</blockquote>
+背后还有什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 835#       发表于 2020-6-26 10:22
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955577&amp;ptid=1915171" target="_blank">Cray 发表于 2020-6-26 02:53</a>
+x5II  八成是没有耳机孔的。 这样想 主板不就不挤了嘛 哦，想起来还有10 II ，那5II就是堆叠主板的 ...</blockquote>
+理论上怀疑是不是修屏幕的问题，问题是也拜托泥潭用户帮忙跑过，虽然没有我这么折腾花了三四个小时测试，但基本上连续跑分性能衰竭趋势和我的差不多。
+
+而且那可是官方售后点啊，要是官方售后点搞丢散热片，这更加生艹好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 836#       发表于 2020-6-26 10:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955434&amp;ptid=1915171" target="_blank">MixRadio 发表于 2020-6-26 02:10</a>
+那SoC的温度用什么软件看准一些，我用的监测软件显示的CPU温度确实没有到60度这么高，最高也就是51度
+
+— ...</blockquote>
+一边跑分一边开着CPU float就行，我是直接可以观察出来，CPU温度墙上限60，而且大核会从2.8G强制锁成0.8G……
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 837#       发表于 2020-6-26 10:30
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 11:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955465&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-6-26 02:16</a>
+https://www.youtube.com/watch?v=SyuNxJe1240&amp;t=1s
+
+
+自己看</blockquote>
+这个温度一看就不是游戏温度，我的X5日常轻度也是这个温度，同款软件，CPU监测这软件我用了好几年了。3个中核1个大核全部没有开工，一看就不是在打游戏。这是打完游戏才切出去看的温度，并不是一边玩一边开着实时监控浮窗，准确度有待讨论。
+
+<img src="https://p.sda1.dev/0/6ad361e53e18d3621d1251958ccfa0d8/IMG_CA28DC75E92200347688B6D26A0478DC.png" referrerpolicy="no-referrer">
+
+没有一台865手机能做到游戏时CPU温度只有区区35度，这是违反物理常识的。要么是测试用的游戏根本没有压力，四颗A55小核就能跑，要么就是根本没在测游戏。
+
+补充：
+视频又从头到尾看完了一遍，打完cod吃鸡这个温度我觉得是有点违反物理常识的……这不是叫做温度表现“好”，这简直是历史性革命了，甚至没有一款游戏手机有这个本事。一个外接直接供电有这么厉害，我表示怀疑。
+
+算了，我也不说人家就一定是错的，起码我是云的，人家是自己测的，这一点我有自知之明。X1M2散热有改进看得见，总会有其他家也去测试的，到时候相互验证就知道有没有水分了。
+
+如有任何理解错误，十分欢迎指正批评。
+
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 838#       发表于 2020-6-26 10:35
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 10:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47955471&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-6-26 02:18</a>
+新的U只能说更难跑高频
+
+
+但是夏天情况下，这么小的鸡身，是无论如何都没法满足大鸡的散热空间的。</blockquote>
+865普遍实测证明是能耗比和855是一个水准的，不考虑5G的情况下不会比855更难压。
+
+我也没指望小机身能做到多厉害，但你起码合格吧，X5那种855不如845的拉垮情况不能出现第二次吧？我大几千买个865，期待它机能起码强于前代旗舰不算要求过高吧？总不能说865比855更难压，所以X5M2可以比X5更拉垮，然后X5不如xz2c，最后两个拉长的大哥还不如2年前机身更小的小弟？
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 839#       发表于 2020-6-26 10:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47956958&amp;ptid=1915171" target="_blank">mhss 发表于 2020-6-26 10:10</a>
+话说索尼包括新出的机型自从安卓10后人脸解锁是不是都没指望了？
+
+—— 来自 Sony H8296, Android 10上的 S ...</blockquote>
+没有，因为smart lock取消了普通2D人脸识别，然后索移就懒得买其他人脸识别方案，所以就没有人脸识别了。
+
+人不人脸识别和tof无关，因为索尼一直都是白嫖谷歌的smartlock而已。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 840#       发表于 2020-6-26 15:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47957206&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 10:35</a>
+
+865普遍实测证明是能耗比和855是一个水准的，不考虑5G的情况下不会比855更难压。
+
+
+我也没指望小机身能做 ...</blockquote>
+这很正常，本来就是针对女性用户和修仙男性用户的，小鸡的极限也就这样了。
+
+
+158x68x8.2mm  X5
+
+
+138.4x67.3x7.3mm  SE2
+
+
+148x73x7.4mm   XZ1
+
+
+167x72x8.2mm   X1  
+
+
+实际X1也是小鸡，宽度只有XZ1水平，转身买X1II吧，说白了就是5.2寸拉长版而已。
+
+当然继续用X5或者买X5II继续找罪受我也没办法。
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 841#       发表于 2020-6-26 16:42
+
+
+
+
+https://b23.tv/BV1c54y1z7N8
+
+这代夜拍还是差点意思，我等等双11好了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 842#       发表于 2020-6-26 17:04
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47960136&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-6-26 15:50</a>
+这很正常，本来就是针对女性用户和修仙男性用户的，小鸡的极限也就这样了。
+
+
+158x68x8.2mm  X5</blockquote>
+这真的不正常……不是这哪里正常啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这离极限远着呢。
+
+xz2c 宽65长140出头 10nm 845
+X5 宽68长160 7nm 855
+
+不拿果子不拿三星不拿华为不拿谷歌的小机器对比，就是索尼自家前后代对比。
+
+前者散热表现能比后者好，跑分里面GPU子项能比制程换代的855高……大家都是小屏旗舰，我做得到，你是更新版，你却做得更烂，这不该找理由认为是“没办法”吧。
+
+xz2c这种就是普通的散热表现，X5属于不及格水准，属于没有规划好散热设计，机身散热能力远没有达到上限。我对二代期望又不高，能做到正常水准就行，实在不行高温换性能，把温度墙拉高到七八十度也行。
+
+至于为什么不选择X1……理由太简单了，手柄装不下，拉伸手柄最多支持165MM长度以内的手机 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+                     

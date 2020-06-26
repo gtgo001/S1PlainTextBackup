@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-26 14:06** 
+> ## **本文件最后更新于2020-06-26 18:04** 
 
 
 
@@ -19739,4 +19739,263 @@ fafa那是心疼你咩姐，人家说了啥她不在意，关键是你咩姐委�
 
 
 
-            
+
+
+-----
+
+####  aisakahammer  
+##### 14630#       发表于 2020-6-26 14:06
+
+
+
+
+有饭盒群是个好事
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14631#       发表于 2020-6-26 14:07
+
+
+
+ 本帖最后由 惑星 于 2020-6-26 14:12 编辑 
+
+管他真假呢，我觉得有意思就行
+
+我做坏事了好想死
+你干什么了？
+我买衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+停不下来的line，主打就是精神不安定啊，和直播内容挺匹配的
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14632#       发表于 2020-6-26 14:09
+
+
+
+ 本帖最后由 2014720 于 2020-6-26 14:14 编辑 
+
+所以我只是惊讶于她为啥要在联动中说这个<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+又发病了，能说出来也好<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+还是看看今晚提不提吧，真难<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 14633#       发表于 2020-6-26 14:38
+
+
+
+ 本帖最后由 路人庚 于 2020-6-26 14:40 编辑 
+
+出门之前的歌回不就已经说了会被黑屁么，这波其实也就算是收一下自己提的话题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你咩姐什么都算到了.png
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14634#       发表于 2020-6-26 14:41
+
+
+
+
+只能说看到翻译再结合她昨晚委屈的语气确实有点慌了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer"> 虽然冷静下来后并不觉得她会真因为这事心态有什么大波动
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 14635#       发表于 2020-6-26 14:45
+
+
+
+
+你们也太敏感了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  肚子疼了  
+##### 14636#       发表于 2020-6-26 14:45
+
+
+
+
+话说你楼还在玩那个联动的手游吗，我前几天玩的时候以为是个咸鱼游戏，扫荡收菜就完事了，结果发现体力越玩越多，过两天上班了，没时间刷游戏，体力岂不是要淤了
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 14637#       发表于 2020-6-26 14:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47959646&amp;ptid=1929631" target="_blank">肚子疼了 发表于 2020-6-26 14:45</a>
+
+话说你楼还在玩那个联动的手游吗，我前几天玩的时候以为是个咸鱼游戏，扫荡收菜就完事了，结果发现体力越玩 ...</blockquote>
+亲密度扫荡刷不到 每天攒个十连精神屋打了然后挂扫荡就是了 体力真要用也是一下子就空的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 14638#       发表于 2020-6-26 15:01
+
+
+
+
+抽出来把剧情推了推就没再玩了，剩下的全是云的视频，游戏实在玩不来，还是咩咩好看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14639#       发表于 2020-6-26 15:06
+
+
+
+
+你楼可能都是抽完meameu就放置的人，不过看亲密值排行榜安卓区还是蛮多人玩的，而且本咸鱼联动前两天入坑现在天天刷刷关排名也只能在1000左右晃荡，那么至少有1k以上的人在玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14640#       发表于 2020-6-26 15:30
+
+
+
+
+夏促到了估计没啥时间玩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 14641#       发表于 2020-6-26 17:17
+
+
+
+
+草
+https://b23.tv/Sb3orD
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 14642#       发表于 2020-6-26 17:28
+
+
+
+
+这人之前还做了几个手书，当时那个歌舞町的质量不错，但好像因为封面太草没几个人点开<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+最后还是mea亲自在B博捞了一下
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 14643#       发表于 2020-6-26 17:57
+
+
+
+
+那么傍晚到晚上是什么时候呢(#ﾟДﾟ)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14644#       发表于 2020-6-26 18:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+
+
+
+           
