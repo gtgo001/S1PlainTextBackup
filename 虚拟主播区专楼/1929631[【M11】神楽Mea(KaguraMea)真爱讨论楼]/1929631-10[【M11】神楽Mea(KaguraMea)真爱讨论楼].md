@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-27 00:03** 
+> ## **本文件最后更新于2020-06-27 02:04** 
 
 
 
@@ -25321,4 +25321,815 @@ u1s1，舞元和其他男人还是不一样的<img src="https://static.saraba1st
 
 
 
- 
+
+
+-----
+
+####  単推し人  
+##### 14956#       发表于 2020-6-27 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965658&amp;ptid=1929631" target="_blank">兔耳僵尸 发表于 2020-6-26 23:40</a>
+
+你咩自己说过的话有什么办法，敢说有要有被人刷一万遍的觉悟啊。不过mea营业过度也不是一天两天了
+
+
+ ...</blockquote>
+没有说过拿5元0721吧，狗蛋能黑屁这种混帐话只能说她是个畜生
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 14957#       发表于 2020-6-27 00:04
+
+
+
+
+翻译成 好想人生完蛋哦()
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14958#       发表于 2020-6-27 00:05
+
+
+
+
+反正拿五元的声音冲过她自己真的说过这话
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14959#       发表于 2020-6-27 00:05
+
+
+
+
+还是换个标题吧，转播间怪怪的
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 14960#       发表于 2020-6-27 00:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我记得拿舞元0721她自己说过，好像是开着舞元直播间静音然后放av？
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14961#       发表于 2020-6-27 00:06
+
+
+
+
+今天的状态和年初在亲戚家直播那次好像——是指向你抱怨的女友感
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14962#       发表于 2020-6-27 00:06
+
+
+
+
+别轱辘了行么，等播完我会接着讨论的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14963#       发表于 2020-6-27 00:07
+
+
+
+
+缓一缓，看比赛看比赛
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14964#       发表于 2020-6-27 00:08
+
+
+
+
+下个月要一直出门？
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 14965#       发表于 2020-6-27 00:08
+
+
+
+ 本帖最后由 単推し人 于 2020-6-27 00:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965983&amp;ptid=1929631" target="_blank">草牛 发表于 2020-6-27 00:05</a>
+
+我记得拿舞元0721她自己说过，好像是开着舞元直播间静音然后放av？</blockquote>
+静音拿画面冲?上面又说是拿声音冲？两个说法矛盾了吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14966#       发表于 2020-6-27 00:09
+
+
+
+
+果然说了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+到底是怎么想的呢
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 14967#       发表于 2020-6-27 00:09
+
+
+
+
+转播间标题好像被杀了，无所谓了吧
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14968#       发表于 2020-6-27 00:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966033&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-27 00:09</a>
+
+转播间标题好像被杀了，无所谓了吧</blockquote>
+可能被以为是直播zs了，，，，，，<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14969#       发表于 2020-6-27 00:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966033&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-27 00:09</a>
+转播间标题好像被杀了，无所谓了吧</blockquote>
+直接改成原标题了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14970#       发表于 2020-6-27 00:12
+
+
+
+
+今晚转播间yygq浓度爆表<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14971#       发表于 2020-6-27 00:13
+
+
+
+
+转播间不是挺好的么
+
+不过一开始的标题吓到一票人，然后都是普通的弹幕而已
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14972#       发表于 2020-6-27 00:15
+
+
+
+<blockquote>ヒメヒナの放送の前後を神楽めあで挟んだからギャップでお腹壊しました()</blockquote><blockquote>アーカイブと配信の食べ合わせにはに気をつけようね
+
+どれも良いものだが相性は少なからずあるので………</blockquote>
+草
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14973#       发表于 2020-6-27 00:18
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/27/001808w0jokddn6ookkd3b.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200627001747.png</strong> (78.43 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-27 00:18 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14974#       发表于 2020-6-27 00:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我总感觉她会播着播着睡过去
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 14975#       发表于 2020-6-27 00:20
+
+
+
+
+最近付了税金，难怪这么丧气
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 14976#       发表于 2020-6-27 00:24
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">下次转播标题翻译也斟酌一下吧
+
+
+syl，怎么转播弹幕都能有疑似5CH黑屁节奏的，晦气
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14977#       发表于 2020-6-27 00:24
+
+
+
+
+话说通过sl这种没抽成即时提现的平台上收到的钱也要收税是吧，那还真的挺惨
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14978#       发表于 2020-6-27 00:25
+
+
+
+
+才想起她之前说整了个很贵的字体，不知道是干啥用的
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 14979#       发表于 2020-6-27 00:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966154&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 00:25</a>
+
+才想起她之前说整了个很贵的字体，不知道是干啥用的</blockquote>
+封面用得到 过几天就能看看到底这个字库怎么样了 不过今天这个封面就应该用上了
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14980#       发表于 2020-6-27 00:26
+
+
+
+
+看完别的转播间再看咩的还是不舒服，那些刷烂钱梗的和带节奏的还是看着令人不爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+这懒鬼居然叫人打扫房子<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14981#       发表于 2020-6-27 00:26
+
+
+
+
+税是逃不过的,你咩姐必须得过这关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14982#       发表于 2020-6-27 00:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966161&amp;ptid=1929631" target="_blank">ashero 发表于 2020-6-27 00:25</a>
+
+封面用得到 过几天就能看看到底这个字库怎么样了 不过今天这个封面就应该用上了 ...</blockquote>
+花十几万就弄个封面艺术字也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉说不定还真是3D用的
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 14983#       发表于 2020-6-27 00:28
+
+
+
+
+主要是正规化吧，不用担心她的职业生涯的长度了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14984#       发表于 2020-6-27 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966165&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-27 00:26</a>
+
+看完别的转播间再看咩的还是不舒服，那些刷烂钱梗的和带节奏的还是看着令人不爽啊，屏蔽也屏蔽不绝 ...</blockquote>
+刷刷money我感觉挺好的，怎么说都是火出圈的梗，她也喜欢，没啥坏处
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 14985#       发表于 2020-6-27 00:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966167&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-27 00:26</a>
+
+税是逃不过的,你咩姐必须得过这关</blockquote>
+直接愿望单不就可以愉快逃税啦
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14986#       发表于 2020-6-27 00:30
+
+
+
+
+日常购物怎么说都是小头吧
+
+
+开了也减不了啥税
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 14987#       发表于 2020-6-27 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966165&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-27 00:26</a>
+看完别的转播间再看咩的还是不舒服，那些刷烂钱梗的和带节奏的还是看着令人不爽啊，屏蔽也屏蔽不绝 ...</blockquote>
+屏蔽等级拉高然后添加屏蔽词吧，一套下来转播间干净太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14988#       发表于 2020-6-27 00:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966193&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 00:29</a>
+刷刷money我感觉挺好的，怎么说都是火出圈的梗，她也喜欢，没啥坏处</blockquote>
+机器式的刷money的还好吧，那些故意带打钱节奏和下三滥的真的败观感<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14989#       发表于 2020-6-27 00:33
+
+
+
+
+困了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14990#       发表于 2020-6-27 00:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966221&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-27 00:33</a>
+
+机器式的刷money的还好吧，那些故意带打钱节奏和下三滥的真的败观感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我最近一直看的转播，这样的人也没感觉有多少啊，基本露头就被鲨了
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 14991#       发表于 2020-6-27 00:37
+
+
+
+
+卖衣服的实体店不和他们砍价的话是会被杀猪的吧
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14992#       发表于 2020-6-27 00:38
+
+
+
+
+奶出来了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 14993#       发表于 2020-6-27 00:38
+
+
+
+
+话是这么说，年轻人的话基本选好牌子一般也就懒得砍价了
+
+
+懒得费那功夫
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 14994#       发表于 2020-6-27 00:39
+
+
+
+
+她是想做新live2d的，好像事太多又放弃了，差点就看到红皮饺子了，啊这，还有原创曲？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14995#       发表于 2020-6-27 00:39
+
+
+
+
+累死了~电脑面前待2小时是限界 当然打游戏除外 坐两个多小时好累啊~
+
+说到这几天干了什么的话 回老家了 早上出去办事是事实 被家里人叫去洗澡也是事实 哭笑 说难听点就是在家里寄生了 不过也过上了像人的生活 头发剪了 烤肉吃了 买了新衣服 通贩的 感觉变成人了
+
+回到家里那天作息狠狠的颠倒了 早上回到家爆睡哭笑 昨天联动前显示器坏了 现在头得抬着看上面的显示器好难受啊 买了新的在路上了 之前上面的那个被打坏过 两个感觉都是基本的了额外买了备用的 还买了专门打游戏的用来接ns的屏幕
+
+堆了好多事要做 今天出去了(？) 然后爆睡回来 和aqua聊了会 然后就说一起去犬山那 然后聊天的时候做了6个封面 哭笑封面也挺好做的 不过聊着天也有失误实质上做了12个的样子
+
+2周年的直播分三回 两次决定好了时间第三次还决定不好 只留一个档 最近有点担心症 两天里和朋友一直在念叨这样没问题吧 然后被朋友说你好烦啊哭笑而且屏幕坏了杂谈还好要是打游戏的话就难受死了 现在并没有打游戏专用的屏幕 评论区有人说是不是8英尺那么大的屏幕被咩吐槽那是浴室吧哭笑 浴室屏幕？根本没法看吧
+
+然后开始诉苦(？)真的好累啊上学的时候也是偷懒的那种能上三天就不上四天 要说为什么做这份工的话不是说多喜欢直播多想当偶像这种天真的梦想只是想着可以偷懒能悠悠闲闲的啊！(？) 下个月要做很多准备不得不出门 就是说每天都得出门洗澡啊！ 啊啊啊啊~ 还被说和男人打炮去了怎么可能啊！
+
+直播喜欢的哦 直播的可以看到钱钱进账会很爽的嘛~ 大家多打打钱对精神卫生也是有好处的哦~哭笑要是没播的时候就只能看到钱出去没有钱进账啊
+
+而且自己收入现在多了很多方向打钱的人不就被分散了吗 看到变少了就会有点不安 不过最后看到总结钱没少就没啥了)
+
+到外面干活还有案件什么的不是当月就到账的啊钱 得一段时间后才能到手(？) 这段时间就等的很折磨人啊！ 想要快点到手上啊！ 就和朋友在那里唠叨 没到好不安心啊什么的 唠叨了两天 被朋友说你拿到了反正也不用的 想想好想也是还是好好等着吧
+
+sl现在还没取过钱 当网上银行用哭笑
+
+钱？基本都是花在漫画和外卖啊 还有最近买了好多衣服 夏服 说了感觉要被说还是不说了 去年只去打小钢珠的话觉得没什么穿长袖短袖都一样
+
+自己之前在那个要死的时候才能用的账户里存了太多钱了能用的钱都没多少了 虽然之前说了每个月只花10w什么的感觉完全遵守不了还是不说了(？)不然会不想打钱的吧)
+
+最近压力大啊 压力一大就会花很多钱在漫画外卖上哭笑 而且精神状态很不好的时候会完全不想打扫 就一个月叫两次清洁工自己躺床上让他们除了床之外都搞好哭笑
+
+只是拿去看漫画和点外卖而已 还有点手游 一点点)光是漫画就已经10w往上了啊 看完卖掉？买的是电子版啊 而且bl很贵的700一卷 30几卷就要6w了 感觉又在乱花钱了~无颜面对大家了啊~~ 等到发现的时候钱已经没了啊~~ 好后悔啊~~ 用钱的时候哪里想得到这个啊)
+
+而且税好高啊 发觉了成了有钱人国家都是存钱罐啊w(？) 真的好贵的税
+
+好容易就会花钱啊出去啊 对网络购物也有这点 干着行的能存钱的真的好厉害啊觉得 而且自己手游也完全没有时间去养成啊 没时间玩啊
+
+好烦恼啊~好想睡啊 虽然还不会睡的
+
+虽然也有自己穿的牌子比较贵的原因 在店里面买了一小时的衣服就买掉了红sc两倍左右哭笑 还犹豫了1分钟才下手)
+
+[https://nga.178.com/read.php?&amp;am ... =432960983&amp;to=1](https://nga.178.com/read.php?&amp;tid=20070954&amp;pid=432960983&amp;to=1)
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 14996#       发表于 2020-6-27 00:39
+
+
+
+
+原创曲也奶出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 14997#       发表于 2020-6-27 00:40
+
+
+
+
+刚才看nga同传去了，说什么新衣服和原创曲？
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 14998#       发表于 2020-6-27 00:40
+
+
+
+
+原创曲不停出，新衣服懒得搞，想要用歌声而不是媚宅来服务观众，什么叫纯粹的艺术家啊（
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 14999#       发表于 2020-6-27 00:41
+
+
+
+
+简单的说太忙了没时间做新l2d
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15000#       发表于 2020-6-27 00:41
+
+
+
+
+原创曲真就下饺子，等明年再出两首，是不是可以来一个原创曲live歌回了
+
+
+
+
+
