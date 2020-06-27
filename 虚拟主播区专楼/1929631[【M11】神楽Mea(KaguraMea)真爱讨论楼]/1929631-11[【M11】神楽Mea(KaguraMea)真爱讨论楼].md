@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-27 10:02** 
+> ## **本文件最后更新于2020-06-27 12:01** 
 
 
 
@@ -2540,13 +2540,1181 @@ u1s1，苔姨和一般观众跟她的关系是不一样啊</blockquote>
 
 
 
+ 本帖最后由 Cla0221 于 2020-6-27 10:06 编辑 
 
 因为我他妈现在就是烦一直刷的nt啊（包括v），果然跟傻逼无法交流，5月份的麻将回我tm有炸过一次？
 
 黑名单还能回复？？什么jb功能
 
 
+而且别tm万一了，早就tm泛滥了，她自己慢慢不提之后又tm有傻逼开始拱火才觉得更恶心。说的什么就不看就知道抓着一个词在那说我虚无输出，不知道你的颅骨保护的是空气还是糨糊。
 
 
 
-                                             
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15141#       发表于 2020-6-27 10:06
+
+
+
+
+草又一转舞咩(눈_눈)，别整了歇歇吧，要真有合唱再发疯未尝不可，贷款黑屁上头不可取，马上就要周年了，保持好心情吧(⁄ ⁄•⁄ω⁄•⁄ ⁄)
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15142#       发表于 2020-6-27 10:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看着情况，苔姨老农民总要没一个才能消停
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15143#       发表于 2020-6-27 10:09
+
+
+
+
+希望咩早点点出“冷血”“精明”这两个天赋
+
+有时看看gbr星川绿粽子，再看看她，真的好气啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15144#       发表于 2020-6-27 10:10
+
+
+
+
+我tm早就不想提了，可惜这傻逼非要护着他在评论区无端刷5元的亲爹不许骂啊。
+
+md，剪视频去了。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15145#       发表于 2020-6-27 10:12
+
+
+
+
+u1s1我也没护啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而是抓着防小鬼这种理由喷来喷去，确实给我很大的虚无感啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15146#       发表于 2020-6-27 10:15
+
+
+
+
+昨晚睡了，总结是有原创曲没新衣服吗(눈_눈)，别又是口水歌......
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15147#       发表于 2020-6-27 10:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虚无倒不虚无，昨天转播的弹幕就有那么几颗老鼠屎
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15148#       发表于 2020-6-27 10:15
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-27 10:36 编辑 
+
+另外话说有人记得前两天她和犬山联动，提到被人编排黑屁打炮是几分钟吗
+
+忽然感觉有点疑问想去瞅瞅找到了
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 15149#       发表于 2020-6-27 10:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968621&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-27 10:09</a>
+
+希望咩早点点出“冷血”“精明”这两个天赋
+
+
+有时看看gbr星川绿粽子，再看看她，真的好气啊 ...</blockquote>
+问题是她要真点出这天赋了，你还推么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mea的特色不就是傻妞么
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15150#       发表于 2020-6-27 10:21
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968701&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-27 10:17</a>
+问题是她要真点出这天赋了，你还推么mea的特色不就是傻妞么</blockquote>
+从来没觉得她傻，只觉得蠢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15151#       发表于 2020-6-27 10:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968675&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-6-27 10:15</a>
+
+虚无倒不虚无，昨天转播的弹幕就有那么几颗老鼠屎</blockquote>
+看见了我还没法删是最恶心的。要说算黑屁吗？人家最次一步也能说是虚空造糖，按照转播的标准不能杀。
+
+可是强行脑补她和异性出去约会恶不恶心呢？那我还真觉得挺恶心的。
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 15152#       发表于 2020-6-27 10:27
+
+
+
+
+你们要不要想想自己19岁在干嘛然后再编排一下mea到底是蠢还是傻？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 15153#       发表于 2020-6-27 10:36
+
+
+
+<blockquote>cgz 发表于 2020-6-27 10:17
+问题是她要真点出这天赋了，你还推么mea的特色不就是傻妞么</blockquote>
+我其实是事业民（
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15154#       发表于 2020-6-27 10:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">20岁上下做直播做到这个程度的，哪来的真傻或者蠢的
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 15155#       发表于 2020-6-27 10:39
+
+
+
+
+她要变得冷血精明了就不是她力。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15156#       发表于 2020-6-27 10:42
+
+
+
+
+clay说到点子上了，你咩姐要是觉得被编排舞元没问题，那就应该接受编排，有人编排舞咩也别出警。如果她不喜欢被编排，那就不应该编排。不要弄的两头不是人，难看
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15157#       发表于 2020-6-27 10:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">消费起自己来眉飞色舞的草
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15158#       发表于 2020-6-27 10:45
+
+
+
+
+那她喜不喜欢编排啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，我是编排不出来，溜了
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 15159#       发表于 2020-6-27 10:48
+
+
+
+
+现在就是自以为有趣的人太多。而且跳出来的，有多少会为mea而想，又有多少是自以为为mea而想的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15160#       发表于 2020-6-27 11:01
+
+
+
+[https://www.youtube.com/watch?v=XPIw7rR9L_c](https://www.youtube.com/watch?v=XPIw7rR9L_c) 大概50到55分左右，应该是这段吧
+
+刚才我就在想这个所谓的编排对她是个什么影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为这几天她提这个编排打炮都提了起码三遍，给我一种讲段子的感觉，找了找跟苔姨联动这段，感觉还是像在眉飞色舞的讲段子，倒是苔苔说她不安啊什么的
+
+我也不知道这算是她被刺激到了还是没有被刺激到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能看到的东西，大概是“工作”或者“职业”两个字了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15161#       发表于 2020-6-27 11:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 15162#       发表于 2020-6-27 11:04
+
+
+
+
+我倒觉得她编排自己是一种特色，挺好的，别的V也很少走这条路
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15163#       发表于 2020-6-27 11:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969118&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-6-27 11:03</a></blockquote>
+草，你进来了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15164#       发表于 2020-6-27 11:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969160&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 11:07</a>
+
+草，你进来了</blockquote>
+？？no gay pong友
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">进是进来了，不过怎么好像在日常弱智time，我来的不是时候
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 15165#       发表于 2020-6-27 11:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">或许是我云了吧，她有明确说过反感观众编排舞mea，并且告诫观众不要再提吗？
+我怎么记得一次都没有呢，怎么在你们嘴里她就变成里外不是人，又想要热度又不准人说的恶心样了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15166#       发表于 2020-6-27 11:22
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-27 11:23 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">Meaqua来了，官号上
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这联合投稿怎么没有阿库碳
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15167#       发表于 2020-6-27 11:22
+
+
+
+
+啊这，好贷，果然光速出炉
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15168#       发表于 2020-6-27 11:23
+
+
+
+
+草官号，我真是(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15169#       发表于 2020-6-27 11:23
+
+
+
+
+佛了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15170#       发表于 2020-6-27 11:24
+
+
+
+
+那你们tm反苔姨编排干啥，神经病啊
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15171#       发表于 2020-6-27 11:25
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">怎么没先弄B限麻将？明显是给苔苔引流，我对字幕组有梁木了
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15172#       发表于 2020-6-27 11:25
+
+
+
+
+哇哦真棒👍贴贴捏～
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15173#       发表于 2020-6-27 11:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是认真的吗？liver亲自下场掐死cp这种事但凡有点情商的人都干不出来好吧
+
+
+她反不反感我不知道，只知道现在有人拱火她也不会接话题
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15174#       发表于 2020-6-27 11:26
+
+
+
+
+也行吧，反正是凸待内容跟犬山组一起烤的，算了算了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15175#       发表于 2020-6-27 11:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969272&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-6-27 11:19</a>
+
+或许是我云了吧，她有明确说过反感观众编排舞mea，并且告诫观众不要再提吗？
+
+我怎么记得一次都没有 ...</blockquote>
+首先只是我觉得编排她和5元约会的恶心。
+
+而且她休息之前也特意说过不是和男人，但是就是有人嗯编排5元啊。
+
+咱能不能别说了这么过去，马上两个周年我还挺开心的。
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 15176#       发表于 2020-6-27 11:29
+
+
+
+
+嗬呸
+一提到meaqua，贴贴人就跟垃圾一样涌出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+前脚跟舞元聊，后面摆meaqua，再郡道出场聊舞元两句还要带上mea
+但贴贴人不在乎，他们只要看到这六分钟有meaqua就好了，那么犬山就是他大哥了，后面有没meaqua内容，提到单人不算的。确实是纯粹的贴贴人，能看到两人就可以，单人不在乎。
+厨师也上厕所啊，和做饭好吃有什么关系。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15177#       发表于 2020-6-27 11:29
+
+
+
+
+这不是联合投稿么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15178#       发表于 2020-6-27 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这个熟肉。 希望评论区没事
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15179#       发表于 2020-6-27 11:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得好活，节目效果还行而且时效性好。那请问郡道和苔苔的黄段子部分，苔苔组什么时候烤出来恶心认大哥的连体人啊。
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15180#       发表于 2020-6-27 11:29
+
+
+
+
+现在马上两周年了，别的不基德的话也不想说了，给自己留个好心情，看二周年熟肉能不能像今天一样激光出来。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15181#       发表于 2020-6-27 11:30
+
+
+
+
+前两天不还光速烤了rap么，一换一了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 15182#       发表于 2020-6-27 11:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969353&amp;ptid=1929631" target="_blank">笋狐 发表于 2020-6-27 11:26</a>
+你是认真的吗？liver亲自下场掐死cp这种事但凡有点情商的人都干不出来好吧
+
+
+她反不反感我不知道，只 ...</blockquote>
+道理都知道，但因为不接话题就揣测出里外不是人，过了。
+
+行吧，翻篇吧
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15183#       发表于 2020-6-27 11:30
+
+
+
+
+去贴贴楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15184#       发表于 2020-6-27 11:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得没有影响大部分楼友的感观
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15185#       发表于 2020-6-27 11:36
+
+
+
+
+2周年她不是说3－5小时么，就算激光出来有人看么，切片就好了
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15186#       发表于 2020-6-27 11:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">因为做了六个封面，说不定是分段播呢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15187#       发表于 2020-6-27 11:38
+
+
+
+
+看了切片，生日歌大亏又拉垮(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15188#       发表于 2020-6-27 11:39
+
+
+
+
+自己一个人完成接力嘛
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15189#       发表于 2020-6-27 11:40
+
+
+
+
+昨天谈的内容来看会有原创曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本想说她会不会换个风格，但又不知道她能不能驾驭得住，有没有懂歌的说说这方面门槛她够不够啊
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15190#       发表于 2020-6-27 11:41
+
+
+
+
+这羊很适合颓废美的歌
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15191#       发表于 2020-6-27 11:44
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那原创曲必是废萌歌
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不然我必给楼里所有发言的人加一鹅
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15192#       发表于 2020-6-27 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969399&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-6-27 11:30</a>
+
+道理都知道，但因为不接话题就揣测出里外不是人，过了。
+
+
+行吧，翻篇吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我接的是你前半句，里外不是人这个李应该和提出者聊（不过既然翻篇了就算了吧
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15193#       发表于 2020-6-27 11:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969548&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-27 11:44</a>
+
+那原创曲必是废萌歌
+
+不然我必给楼里所有发言的人加一鹅</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">是不是废萌歌怎么判定啊，本来就是模棱两可的范围
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15194#       发表于 2020-6-27 11:46
+
+
+
+
+原创曲和之前的草莓果酱和天邪鬼应该是一个风格，咩姐就喜欢这种
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15195#       发表于 2020-6-27 11:47
+
+
+
+
+考完一场了,怎么还在车轱辘的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+这个肉还蛮羡慕贴贴人的,至少他们的印象停留在了最美好的时光,不像看完全程的活生生感到一股撕裂感<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
+syl,下一首能不能来丶冷色调的啊,蓝莓黑莓都可以<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15196#       发表于 2020-6-27 11:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969561&amp;ptid=1929631" target="_blank">深渊萃取 发表于 2020-6-27 11:45</a>
+是不是废萌歌怎么判定啊，本来就是模棱两可的范围</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">参考草莓果酱和芒果果酱
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15197#       发表于 2020-6-27 11:49
+
+
+
+
+啊，官组发了贴贴，说不定组内已经得到下次贴贴的消息在预热了吧，贴贴！贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15198#       发表于 2020-6-27 11:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果你觉得一首歌放到那些王道传统galgame里当op无违和感，那差不多就是那个风格了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15199#       发表于 2020-6-27 11:49
+
+
+
+
+想要冰山咩咩(ಥ_ಥ)，不要果酱不要果酱
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15200#       发表于 2020-6-27 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969570&amp;ptid=1929631" target="_blank">时雨rain 发表于 2020-6-27 11:47</a>
+
+参考草莓果酱和芒果果酱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那希望是椎名林檎风苦情歌，等鹅了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15201#       发表于 2020-6-27 11:50
+
+
+
+
+猜曲风不如猜主题色，红黄都有了，下一首是啥呢
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15202#       发表于 2020-6-27 11:51
+
+
+
+
+红黄完了肯定是蓝啊，所以我猜来个基佬紫（
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 15203#       发表于 2020-6-27 11:52
+
+
+
+
+盲猜一个粉色
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15204#       发表于 2020-6-27 11:53
+
+
+
+
+无限是什么东西懂的都懂，别顺劈官组所有人了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15205#       发表于 2020-6-27 11:55
+
+
+
+
+我觉得只要用咩姐唯一指定滤镜，就全是前两首也能变粉色的
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 15206#       发表于 2020-6-27 11:58
+
+
+
+
+评论区好多买10年的大会员啊，而且都是5、6级的号
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15207#       发表于 2020-6-27 11:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969637&amp;ptid=1929631" target="_blank">IrisL 发表于 2020-6-27 11:53</a>
+
+无限是什么东西懂的都懂，别顺劈官组所有人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">容忍傻逼的组织还可以套上不作为的罪名的，想顺劈总有理由
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15208#       发表于 2020-6-27 11:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969698&amp;ptid=1929631" target="_blank">cgz 发表于 2020-6-27 11:58</a>
+
+评论区好多买10年的大会员啊，而且都是5、6级的号</blockquote>
+草,为什么在奇怪的地方有关注点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                                           
