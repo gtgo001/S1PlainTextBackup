@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-28 00:03** 
+> ## **本文件最后更新于2020-06-28 02:02** 
 
 
 
@@ -5314,8 +5314,11 @@ hhhhh虽然流星说到有理但咱还是喜欢那种发散(ಡωಡ)
 
 
 
+ 本帖最后由 暗心舞踏 于 2020-6-28 00:04 编辑 
 
 没有吧，狗妈会发推连她都没想到的样子
+
+syl，方舟指令还有二周年剧情
 
 
 
@@ -5330,10 +5333,418 @@ hhhhh虽然流星说到有理但咱还是喜欢那种发散(ಡωಡ)
 
 
 
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到狗妈发推我才想起来，这俩那个神秘失踪的合唱卫星
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到狗妈发推我就想到了这俩那个神秘失踪的合唱卫星
 
 
 
 
 
-                                        
+
+
+-----
+
+####  pei23333  
+##### 15297#       发表于 2020-6-28 00:06
+
+
+
+
+啊这，那还真是意外之喜，推上真热闹啊，感觉了回到以前，可能真的有很多人默默看着她吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15298#       发表于 2020-6-28 00:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗妈回复把你咩姐都吓了一跳（
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15299#       发表于 2020-6-28 00:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">狗妈画展上都有mea的画
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两周年竟然是歌回没有邀请别人来庆贺，真的是没怎么准备
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">说实话合唱肯定是有的，毕竟她以前提过，不过这次应该是她自己的翻唱吧
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15300#       发表于 2020-6-28 00:26
+
+
+
+
+啊这，翻唱不会是月兔吧
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 15301#       发表于 2020-6-28 00:35
+
+
+
+
+之前说是2周年只是会播,但啥都没准备. 结果不还是挺认真的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+另外放低期望,需要找好几个画师的事必不可能是3d,都是你楼的私心而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 15302#       发表于 2020-6-28 00:36
+
+
+
+
+有个画师合作的fanart我就知足了
+
+对她事业上的要求早就淡然了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15303#       发表于 2020-6-28 00:40
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">两周年快乐啊啊啊啊 晚上估计没了，睡觉吧，起来好好过庆祝
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15304#       发表于 2020-6-28 00:44
+
+
+
+
+咩姐两周年快乐^O^
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15305#       发表于 2020-6-28 00:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ReinH  
+##### 15306#       发表于 2020-6-28 00:50
+
+
+
+
+水友们，能不能做个梦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202006/28/004959sjcgz4vqelhsrehq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200628004937.png</strong> (83.04 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 00:49 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15307#       发表于 2020-6-28 00:52
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">enako这波是真没想到的
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 15308#       发表于 2020-6-28 01:00
+
+
+
+
+没想到看这女人快两年了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15309#       发表于 2020-6-28 01:00
+
+
+
+
+睡了明天看还有谁
+
+开心
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15310#       发表于 2020-6-28 01:04
+
+
+
+
+enako是真没想到（舔coser舔得好啊
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15311#       发表于 2020-6-28 01:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">enako能出的话那就牛逼了，百万粉巨物引流
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15312#       发表于 2020-6-28 01:16
+
+
+
+
+草，居然哈哥也来了（突然笑出了声
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15313#       发表于 2020-6-28 01:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果手机滴滴滴个不停完全没睡着，怎么enako都钓出来了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 15314#       发表于 2020-6-28 01:26
+
+
+
+
+来，都可以来
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15315#       发表于 2020-6-28 01:27
+
+
+
+
+热闹真好啊，啊咩都做到两周年了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15316#       发表于 2020-6-28 01:59
+
+
+
+
+tc了草，都醒醒，作战会议复刻了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15317#       发表于 2020-6-28 01:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我被人叫醒了，你楼还有几个醒着的
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15318#       发表于 2020-6-28 02:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第二届全法兰西周年作战大会
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15319#       发表于 2020-6-28 02:02
+
+
+
+
+熟悉的感觉
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 15320#       发表于 2020-6-28 02:02
+
+
+
+
+我在看其他v。。。
+
+吊人带你入坑v圈
+
+看v让你不会错过吊人
+
+毅种循环
+
+
+
+
+
+                                       
