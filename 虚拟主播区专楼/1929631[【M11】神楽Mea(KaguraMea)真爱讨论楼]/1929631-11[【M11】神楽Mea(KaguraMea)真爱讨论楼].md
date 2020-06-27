@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-28 02:02** 
+> ## **本文件最后更新于2020-06-28 06:01** 
 
 
 
@@ -5747,4 +5747,239 @@ tc了草，都醒醒，作战会议复刻了
 
 
 
-                                       
+
+
+-----
+
+####  上坂蓮華  
+##### 15321#       发表于 2020-6-28 02:04
+
+
+
+
+tc突了，没我了
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15322#       发表于 2020-6-28 02:07
+
+
+
+
+唔，她这么好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15323#       发表于 2020-6-28 02:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两周年…依旧是没叫嘉宾，也没打算在生日会叫人
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 15324#       发表于 2020-6-28 02:14
+
+
+
+ 本帖最后由 単推し人 于 2020-6-28 04:12 编辑 
+
+出于私心，不希望她叫人，这是只属于我们和她的时刻<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+明年也能这么度过就好了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15325#       发表于 2020-6-28 02:20
+
+
+
+
+我赚了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15326#       发表于 2020-6-28 03:09
+
+
+
+
+收钱asmr，小麻变了<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
+没有ero要素，好像是因为她觉得很kimo
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 15327#       发表于 2020-6-28 03:16
+
+
+
+
+"等真没钱的时候就去做奥数魔刃,全力的去舔耳朵,这就是我的末路"
+
+还行吧,以前还说过气了就去拍av呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15328#       发表于 2020-6-28 03:26
+
+
+
+
+我怕她下次自己当导演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15329#       发表于 2020-6-28 03:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ABO大师现场指挥击剑？oh，三次元太辣眼睛你咩不爱的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15330#       发表于 2020-6-28 04:21
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/28/042031zzz1c3hzbwexe7ss.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200628041903.png</strong> (183.13 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 04:20 上传
+
+
+
+
+
+
+转了一圈居然没人吐槽这个，差点以为给孩子吓得阿吧阿吧了
+
+
+
+
+
+
+
+-----
+
+####  lovcavil  
+##### 15331#       发表于 2020-6-28 04:31
+
+
+
+
+啊这 人呢
+
+—— 来自 vivo NEX S, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15332#       发表于 2020-6-28 04:34
+
+
+
+
+正好错过了，开始补录像
+
+
+syl这什么翻译草
+
+
+<img src="https://img.saraba1st.com/forum/202006/28/043409bjz12a319gi9fdob.png" referrerpolicy="no-referrer">
+
+
+<strong>12.png</strong> (49.41 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 04:34 上传
+
+
+
+
+
+
+
+
+
+                                      

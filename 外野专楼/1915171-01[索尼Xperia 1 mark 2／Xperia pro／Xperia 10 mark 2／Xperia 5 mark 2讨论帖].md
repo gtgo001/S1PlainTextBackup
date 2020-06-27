@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-26 18:13** 
+> ## **本文件最后更新于2020-06-28 06:10** 
 
 
 
@@ -5500,7 +5500,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_fICzn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_hfOfC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17023,4 +17023,707 @@ xz2c这种就是普通的散热表现，X5属于不及格水准，属于没有�
 
 
 
-                     
+
+
+-----
+
+####  Cray  
+##### 843#       发表于 2020-6-26 20:26
+
+
+
+<blockquote>引用第834楼我很费纸于2020-06-26 10:22发表的  :
+
+本帖最后由 我很费纸 于 2020-6-26 10:36 编辑 引用:Cray 发表于 2020-6......</blockquote>
+那个垫子蛮大的 有60*100  不应该那么拉跨啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 844#       发表于 2020-6-26 20:55
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47960862&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 17:04</a>
+
+这真的不正常……不是这哪里正常啊，这离极限远着呢。
+
+
+xz2c 宽65长140出头 10nm 845</blockquote>
+你搞错了一个问题，845是835高频版，835是高通历史最强神U,唯一兼顾续航散热和性能的好U
+
+
+855和865是为了跑分而走回历史错误的超级大蛋，说白了，日常还不如835/845,DDR5和UFS3.0加持下体验。
+
+
+芯片发展哪怕再烂打死也不回头看，我对865的期望也相当低预期，哪怕X5II压不住865也是正常的，我也做好被X1 II 烫死的准备了。
+
+
+XZ2P虽然半斤，温度从来不担心过，钢板和845+超厚散热，未来的U只有越来越热，越来越假。
+
+
+摩尔定律撞墙导致现在手机发展现在已经属于剪定事项了，未来没有任何可能性。
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 845#       发表于 2020-6-26 21:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47921378&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-23 17:10</a>
+
+指纹终于好起来了吗？跪求多测几个手指，泪流了下来
+
+
+有时间折腾的话挺希望能帮忙简单测测散热性 ...</blockquote>
+我已经下载安装了 3D Mark 和 CPU float，你希望怎么测试，有什么讲究吗？
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 846#       发表于 2020-6-26 21:38
+
+
+
+ 本帖最后由 leystage 于 2020-6-26 21:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47921378&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-23 17:10</a>
+
+指纹终于好起来了吗？跪求多测几个手指，泪流了下来
+
+
+有时间折腾的话挺希望能帮忙简单测测散热性 ...</blockquote>
+因为一些原因还没有换 SIM 卡，所以没有蜂窝网络。
+
+Google 全家桶+Play 商店音乐图书等全部自动同步。
+
+3D Mark 安装后开始默认测试，平放于桌面，没有外壳。运行了十几分钟。
+
+CPU Float 初始温度 CPU 和 GPU 都是 31，
+
+CPU 1075*4 + 710/16xx/24xx *3 + 844 @T50
+
+GPU 587 @T50
+
+GPU 305 @T70
+
+运行测试的绝大部分时间温度在49-51徘徊，启动新测试瞬间能到67甚至76，此时 GPU 就是 305
+
+55 时仍旧是 587，58 时就降到 305。
+
+结束测试后回到桌面，温度 38，CPU 7xx*4+6xx*3+844，GPU 始终 305。滑动桌面或启动程序时瞬间温度会到 44，然后 CPU 分别时 2xxx*4+1xxx*3+1xxx，然后半秒后降温到36，CPU 都落到一千以内。
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我很费纸| + 1|感谢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 847#       发表于 2020-6-26 23:17
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47963433&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-6-26 20:55</a>
+你搞错了一个问题，845是835高频版，835是高通历史最强神U,唯一兼顾续航散热和性能的好U
+
+
+855和865是为了 ...</blockquote>
+855是高通历代8系除了835公认最好压的一颗……
+
+能觉得855是倒车那我就不知道怎么聊下去了，下一代麒麟怕不是也要抄高通玩1+3+4了（985/820就是俩小855）。emmmm，建议多看量化数据，855真的比845好压，能耗比提高明显，而865的表现也基本符合arm的PPT，对比855有20%左右提升而功耗基本不变（不考虑5G）。压不好得怪你厂商设计不好，而不是高通给你颗火龙，因为这俩真不算火龙。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+http://weibo.com/5908358617/Iucm5xqQV
+
+补充：补几张当年的855vs980vs845
+
+<img src="https://p.sda1.dev/0/bb652aba95fb0947e60de20bad63f6db/IMG_432B9D13D14B9720FBA4CCA11ECA3FA0.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/e986b9b739e2f7e7faf7fd2bf3dec800/IMG_42BE075DC732A8B53EAB7CBB42026BC8.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/785a1fd44733683c17fbc70606a4fb02/IMG_FDD59D3648F64C487786DCF85371CDE6.jpeg" referrerpolicy="no-referrer">
+
+855无论性能还是功耗都是完胜845……
+
+
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 848#       发表于 2020-6-26 23:23
+
+
+
+ 本帖最后由 我很费纸 于 2020-6-26 23:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47963995&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-26 21:38</a>
+因为一些原因还没有换 SIM 卡，所以没有蜂窝网络。
+
+Google 全家桶+Play 商店音乐图书等全部自动同步。
+
+3D  ...</blockquote>
+谢谢谢谢，看起来好像这次温度墙没有那么低了，散热表现确实比预期给力的样子。
+
+我自己的简单测法就是循环跑3D mark，跑完记录得分（用来记录性能衰减的程度）。跑的时候开着浮窗观察频率和温度变化，看是否有不该有的降频，以及温度会不会卡在某个上限，当时我自己测X5的观察结果就是大核会被锁，只能做到小核+中核满载，温度保持60度，明显撞墙运行，画面出现明显卡顿。我当时基本上只有<strong>第一次</strong>测试可以满血，从第二次测试开始就有较大幅度的衰减。甚至出现了不如845的奇景<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">。
+
+<img src="https://p.sda1.dev/0/3a6ae2fa94d11b33c67b5796597b7c35/IMG_7933876ABD066E8B03F5528E2985DFC2.jpeg" referrerpolicy="no-referrer">
+
+这次X1M2估计还能测一下新的hs模式，是否真的超神。
+
+这种事情测起来其他挺麻烦，不敢太占用你的宝贵假期，有闲空测一下万分感谢，现在的测试结果也十分感谢了，起码看起来能让我有点信心了。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 849#       发表于 2020-6-26 23:34
+
+
+
+<blockquote>我很费纸 发表于 2020-6-26 23:23
+谢谢谢谢，看起来好像这次温度墙没有那么低了，散热表现确实比预期给力的样子。
+
+
+我自己的简单测法就是循 ...</blockquote>
+客气了… 其实前后也就花了二十分钟…
+
+不过测试的时候我基本是盯着 CPU Float 的浮窗看的，好像没有很明显的突然升温。
+
+这个测试比较理想，因为没有短信没有蜂窝数据没有各种国内应用。实际使用或许会更发热一些。但降频看起来就是55度开始了。
+
+其实我没看到有 HS 的开关之类的，不知道是不是自动切换。我明天试试看插电跑 3D mark。我主要是拖延症哈哈…
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 850#       发表于 2020-6-26 23:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965565&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-26 23:34</a>
+客气了… 其实前后也就花了二十分钟…
+
+不过测试的时候我基本是盯着 CPU Float 的浮窗看的，好像没有很明 ...</blockquote>
+hs应该在游戏模式里面，3d mark可能要自己手动添加才会进入游戏模式。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 851#       发表于 2020-6-27 00:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47965244&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-26 23:17</a>
+
+855是高通历代8系除了835公认最好压的一颗……
+
+
+能觉得855是倒车那我就不知道怎么聊下去了，下一代麒麟怕 ...</blockquote>
+那我就不说废话了，835时代和855时代的鸡身大小不在一个时代
+
+
+要么买X5 II 要么就继续顶着索尼迷の缩肛继续玩，反正两条路是都是死路
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 852#       发表于 2020-6-27 01:37
+
+
+
+
+能帮忙看看X1M2上play能下载到短片大师吗，这个app我刚需
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 853#       发表于 2020-6-27 08:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47966799&amp;ptid=1915171" target="_blank">cleaner 发表于 2020-6-27 01:37</a>
+能帮忙看看X1M2上play能下载到短片大师吗，这个app我刚需
+
+—— 来自 Sony J9110, Android 10上的 S1Next- ...</blockquote>
+短片大师的功能我记得Google photo就可以替代了……
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 854#       发表于 2020-6-27 11:04
+
+
+
+<blockquote>cleaner 发表于 2020-6-27 01:37
+能帮忙看看X1M2上play能下载到短片大师吗，这个app我刚需
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next- ...</blockquote>
+Play 商店提示该设备不支持。
+
+从 Xperia 1 开始 Play 版就不支持了。
+
+
+系统自带更新里也没有。
+
+
+不过 Pure Apk 版本5.7.A.0.2 可以下载安装正常并创建一段短片，也能正常播放。细节功功能没有具体测试。
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 855#       发表于 2020-6-27 12:29
+
+
+
+
+感觉快等不住了，10天前下单1480刀的到现在还没有任何消息。
+
+本地店子貌似到货了，现金1550刀，有点想退了那个明天之前去店里拿现货。
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 856#       发表于 2020-6-27 13:53
+
+
+
+ 本帖最后由 EFSF 于 2020-6-27 19:49 编辑 
+
+昨天拿到了……
+
+唉真的是……
+
+机器不自带xperia transfer mobile，下了一个也没啥用，说靠google备份恢复数据娘的恢复6个下载就卡了……
+
+应该是从x1开始改的系统语言，XZ2升到了安卓10还是以前的模式，现在这模式非常蛋疼
+
+抽屉被弱化了，不能分页，原本是在抽屉里的最左侧是google那个蠢的可以的服务，现在是放在桌面的最左侧，这样就导致不能随意设主桌面屏幕，整个过去的结构就全没了。
+
+抽屉也不能像之前一样长按图标就可以随意安排位置和组合文件夹，一按就飞去桌面。还要在右上角进入编辑模式才能整理抽屉，傻不傻……
+
+之前只要长摁方块就能分屏，这次你要在APP中直接分屏，只能祈祷你屏幕边缘触发起来顺。反正我只成功了双击，上滑下滑我最后放弃了。最后就把分屏修改成了双击，其他的就不管了。这本来是我的主需求，需要一个长屏手机粉饼处理分档以及同步聊天跟进，结果分屏这个事情搞得非常麻烦。
+
+因为折腾了一晚上各种重装，登录APP，整理抽屉和桌面，实际体感温度是有明显上升的，而且屏幕整体偏暗给屏幕调的比较亮，掉电也是很快的。
+
+sony自己的相册这次也彻底废了，我解锁地区的abema tv在这个尺寸上也无法成功开启使用……
+
+唉……
+
+
+什么，你说拍照？那种装饰上面的人不会懂的……谁也不会真拿手机搞创作不是……
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 857#       发表于 2020-6-27 14:09
+
+
+
+<blockquote>EFSF 发表于 2020-6-27 13:53
+昨天拿到了……
+
+唉真的是……
+
+机器不自带xperia transfer mobile，下了一个也没啥用，说靠google备份恢复数 ...</blockquote>
+去年开始的新主屏真的很奇怪。明明之前那个改进了那么多年很好用了…
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 858#       发表于 2020-6-27 14:11
+
+
+
+<blockquote>leystage 发表于 2020-6-27 14:09
+去年开始的新主屏真的很奇怪。明明之前那个改进了那么多年很好用了…</blockquote>
+另外侧感的上下滑动似乎是先按下去停顿半秒再滑成功率会比较高。目前我自己大概是95%成功率…
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 859#       发表于 2020-6-27 15:21
+
+
+
+
+下午出门理发，正好是太阳最大的时候，令人绝望一样的表现，我亮度开到接近一半了打开扫自行车二维码什么都看不见，拉倒三分之二基本才有用。xz2我日常很少拉倒一半的亮度…唉…
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  MixRadio  
+##### 860#       发表于 2020-6-27 16:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47970872&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-27 13:53</a>
+昨天拿到了……
+
+唉真的是……
+
+机器不自带xperia transfer mobile，下了一个也没啥用，说靠google备份恢复数 ...</blockquote>
+分屏应该是安卓10的改动，可以在多任务界面长按应用图标，有一个分屏的选项
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 861#       发表于 2020-6-27 16:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972262&amp;ptid=1915171" target="_blank">MixRadio 发表于 2020-6-27 16:20</a>
+
+分屏应该是安卓10的改动，可以在多任务界面长按应用图标，有一个分屏的选项 ...</blockquote>
+靠，原来还能这样，为了能侧边手势操作我最后把手机壳右边切了一个操作区域出来……
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 862#       发表于 2020-6-27 16:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47971751&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-27 15:21</a>
+
+下午出门理发，正好是太阳最大的时候，令人绝望一样的表现，我亮度开到接近一半了打开扫自行车二维码什么都 ...</blockquote>
+LCD永不为奴！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 863#       发表于 2020-6-27 17:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972418&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-27 16:36</a>
+靠，原来还能这样，为了能侧边手势操作我最后把手机壳右边切了一个操作区域出来…… ...</blockquote>
+也可以买侧边本来就是漏一截的壳
+
+<img src="https://p.sda1.dev/0/623510bcc83ff6575ff189519f6a813f/IMG_09682F3FE25B49A6BC0E381FEF0D850D.jpeg" referrerpolicy="no-referrer">
+
+我觉得这种就挺好
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 864#       发表于 2020-6-27 17:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47971751&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-27 15:21</a>
+下午出门理发，正好是太阳最大的时候，令人绝望一样的表现，我亮度开到接近一半了打开扫自行车二维码什么都 ...</blockquote>
+亮度还是一泡污么<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 865#       发表于 2020-6-27 17:31
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972965&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-6-27 17:22</a>
+
+亮度还是一泡污么
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+标准一泡污
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 866#       发表于 2020-6-27 18:36
+
+
+
+
+屏幕没换和1一样 肯定就那样了。。
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 867#       发表于 2020-6-27 20:16
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968053&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-27 08:49</a>
+短片大师的功能我记得Google photo就可以替代了……
+
+—— 来自 Sony J9210, Android 10上的 S1Next-鹅版 ...</blockquote>
+我知道，但是质量不是一个等级，短片大师做出来的，更有设计感一点
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 868#       发表于 2020-6-27 20:35
+
+
+
+<blockquote>EFSF 发表于 2020-6-27 17:31
+标准一泡污</blockquote>
+室外不是会激活所谓 burst mode 嘛… 个人感觉只要不是对着日光看屏幕，可视性还能接受？
+
+当然最高亮度确实平庸，高分辨率 OLED 现在技术就这样了…
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 869#       发表于 2020-6-27 22:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47975704&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-27 20:35</a>
+
+室外不是会激活所谓 burst mode 嘛… 个人感觉只要不是对着日光看屏幕，可视性还能接受？
+
+当然最高亮度确 ...</blockquote>
+自动调光关了，坐在家里本来就不亮的屏还一会暗一点一会稍微亮一点，自动调节谁受得了。
+
+都不是比阳光直射，就是日照好的自然环境下，表现太绝望了。
+
+现在上班进楼进园区去商场都要在户外依靠手机出示健康宝，想想都头大。
+
+
+
+
+
+
+
+-----
+
+####  淡定君  
+##### 870#       发表于 2020-6-28 01:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47977478&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-27 22:46</a>
+
+自动调光关了，坐在家里本来就不亮的屏还一会暗一点一会稍微亮一点，自动调节谁受得了。
+
+都不是比阳光直 ...</blockquote>
+这代感光又悲剧了啊，明明XZ1做的还挺不错的
+
+
+XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原理后，改了一下拿手机习惯情况没那么严重了。
+
+
+玩这种鸡不要太近看，躺着玩也有概率乱跳亮度，拿远一点，要点是保证感光在光源合理的角度拿鸡就行了。
+
+对了，你手上的是黑色X1 II?
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 871#       发表于 2020-6-28 02:43
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47975704&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-27 20:35</a>
+
+室外不是会激活所谓 burst mode 嘛… 个人感觉只要不是对着日光看屏幕，可视性还能接受？
+
+当然最高亮度确 ...</blockquote>
+手机的oled亮度都蛮拉跨的，毕竟寿命在那里摆着。 某些机器激发亮度还要用强光手电筒照才能亮。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                    
