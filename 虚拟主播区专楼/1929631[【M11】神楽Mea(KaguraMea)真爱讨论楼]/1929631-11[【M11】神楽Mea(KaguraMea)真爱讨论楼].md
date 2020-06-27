@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-27 04:02** 
+> ## **本文件最后更新于2020-06-27 10:02** 
 
 
 
@@ -2020,4 +2020,533 @@ bsyl,xby那nt真在V综挂到30权限咋办,再往上提门槛吗<img src="https
 
 
 
-                                              
+
+
+-----
+
+####  weiweiEX  
+##### 15113#       发表于 2020-6-27 07:10
+
+
+
+
+话说有人记下她吃面是从几分钟开始的吗
+
+
+
+
+
+
+
+-----
+
+####  2014720  
+##### 15114#       发表于 2020-6-27 07:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47967668&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 07:10</a>
+话说有人记下她吃面是从几分钟开始的吗</blockquote>
+在最后，倒着看就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15115#       发表于 2020-6-27 07:39
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-27 07:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47967697&amp;ptid=1929631" target="_blank">2014720 发表于 2020-6-27 07:25</a>
+
+在最后，倒着看就是了</blockquote>
+我找找<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">找到了
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 15116#       发表于 2020-6-27 08:59
+
+
+
+
+属实病的不轻，就不能安心当节目看么，都快明说在表演了…
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15117#       发表于 2020-6-27 09:05
+
+
+
+ 本帖最后由 Cla0221 于 2020-6-27 09:12 编辑 
+
+啊这？和她的表演与否没关系啊，真要我说明了吗？
+
+怕的不是接着被带起来烂梗小鬼吗，虚空造糖还只是在评论区的粉丝造后来都能演变成那样，现在tmd可是几个v一起下场虚空造糖（还是这种性方面的），就不能觉得恶心了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+看看婚介所27分钟开始那半分钟的评论栏，和当初提到和朋友出去就在评论栏刷夸的有区别吗？我感觉每次都是正因为有了解她的态度在我才变得忍耐。
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15118#       发表于 2020-6-27 09:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">建议下个月底出门的时候问她是不是和舞元打炮去了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15119#       发表于 2020-6-27 09:14
+
+
+
+ 本帖最后由 A2014720 于 2020-6-27 09:21 编辑 
+
+看的就是表演啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这表演看的并不舒服
+
+“大家都闹着玩呢你怎么就生气了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">”
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15120#       发表于 2020-6-27 09:19
+
+
+
+
+ 有人看了不舒服也很正常啊
+
+ 话还是能说的啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15121#       发表于 2020-6-27 09:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968150&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-27 09:05</a>
+
+啊这？和她的表演与否没关系啊，真要我说明了吗？
+
+怕的不是接着被带起来烂梗小鬼吗，虚空造糖还只是在评论 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你真怕小鬼那你等着她自己杀不就行了，替她操心这么多干啥
+
+
+
+
+
+
+
+-----
+
+####  蔵女  
+##### 15122#       发表于 2020-6-27 09:24
+
+
+
+ 本帖最后由 蔵女 于 2020-6-27 09:26 编辑 
+<blockquote>Cla0221 发表于 2020-6-27 09:05
+啊这？和她的表演与否没关系啊，真要我说明了吗？
+
+怕的不是接着被带起来烂梗小鬼吗，虚空造糖还只是在评论 ...</blockquote>
+
+是挺恶心的，但栏梗小鬼是到不了国内这边的，日本那边能当真的也不会太多吧
+
+而且也基本是苔姨那边在拱火吧，她自己的直播没啥问题
+
+好好黑屁苔姨吧别发病
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15123#       发表于 2020-6-27 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968192&amp;ptid=1929631" target="_blank">草牛 发表于 2020-6-27 09:11</a>
+
+建议下个月底出门的时候问她是不是和舞元打炮去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别犯病了，就是真处男女朋友还没事发散打炮的啊
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15124#       发表于 2020-6-27 09:35
+
+
+
+
+？？不是，今天我哪句不是黑屁苔姨了
+
+还有我昨晚睡前就说不整了非跳一个人出来会错意和我说别在意还能怪我？而且你这意思是要等下一个专供男性版直播间规则出来吗？你希望这样的话就别和我说话了，你的对线虚无程度比神羽大君还严重，我暂时还不想把你拉黑。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15125#       发表于 2020-6-27 09:39
+
+
+
+
+又要车她主动杀不杀小鬼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+苔苔拱火时总要泼几升汽油<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+这懒鬼她自己快点拿出新的强力卡组吧，靠别人实在不行
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15126#       发表于 2020-6-27 09:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968326&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 09:32</a>
+别犯病了，就是真处男女朋友还没事发散打炮的啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">发散怎么了，只许苔姨发散不许观众发散？那苔姨还挺人上人的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15127#       发表于 2020-6-27 09:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968344&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-27 09:35</a>
+
+？？不是，今天我哪句不是黑屁苔姨了
+
+还有我昨晚睡前就说不整了非跳一个人出来会错意和我说别在意还能怪我 ...</blockquote>
+你念叨了多少遍我比神羽大君还虚无，可我看你比我虚无多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怕烂梗小鬼的旗号打了多少回，你除了用这个喷苔苔喷拱火的人喷这个喷那个，还能做到啥？还能帮她把烂梗小鬼杀了保证她精神卫生不成？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你倒是说说除了她自己杀小鬼还有啥可靠的办法？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15128#       发表于 2020-6-27 09:42
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968383&amp;ptid=1929631" target="_blank">草牛 发表于 2020-6-27 09:40</a>
+
+发散怎么了，只许苔姨发散不许观众发散？那苔姨还挺人上人的</blockquote>
+u1s1，苔姨和一般观众跟她的关系是不一样啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15129#       发表于 2020-6-27 09:43
+
+
+
+
+停停停好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的别在杀小鬼车轱辘了
+
+赶紧拿出个新cp吧冲一冲现在气氛是最好的，就看她了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15130#       发表于 2020-6-27 09:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968407&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-27 09:43</a>
+
+停停停好吧
+
+
+赶紧拿出个新cp吧冲一冲现在气氛是最好的，就看她了</blockquote>
+要不去开个5mea人之家就得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">省的成天车这个
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15131#       发表于 2020-6-27 09:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968404&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 09:42</a>
+u1s1，苔姨和一般观众跟她的关系是不一样啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">关系不一样怎么了，她和苔姨关系好跟我有什么关系吗，她要是觉得发散没问题，那大可打个舞元打炮代，推特上发个祝约会开心，回来再问做的舒不舒服
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15132#       发表于 2020-6-27 09:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968424&amp;ptid=1929631" target="_blank">草牛 发表于 2020-6-27 09:45</a>
+
+关系不一样怎么了，她和苔姨关系好跟我有什么关系吗，她要是觉得发散没问题，那大可打个舞元打炮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做成这样那只能祝你开心就好咯
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15133#       发表于 2020-6-27 09:49
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968390&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 09:41</a>
+
+你念叨了多少遍我比神羽大君还虚无，可我看你比我虚无多了
+
+怕烂梗小鬼的旗号打了多少回，你除了用 ...</blockquote>
+赶紧滚蛋，还tm打旗号，不能好好说话就别tm说话，和黄兔子的麻将联动了多少次我有意见了吗？
+
+哪怕是可能换line那次我都只用了“不希望”还来形容。
+
+还有，我不想那什么我做了什么你做了什么来比较，骂人都不让我来s1干嘛。我直球发情骂我可以，苔直球恶心人被骂不行？
+
+拉黑了，少tm再搭理我，本来半夜睡之前就不想再提了，非一遍一遍跳出来恶心人。
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15134#       发表于 2020-6-27 09:51
+
+
+
+
+我都不知道你是怎么把舞元跟有人发散她打炮联系一块的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人黑屁她打炮是那两天她发什么肌肉痛的推然后5ch开始的，不知道怎么到这跟舞元联系上了，是不是小博禹看多了变成跟小博禹一样的脑回路了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15135#       发表于 2020-6-27 09:52
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-27 10:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968456&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-6-27 09:49</a>
+
+赶紧滚蛋，还tm打旗号，不能好好说话就别tm说话，和黄兔子的麻将联动了多少次我有意见了吗？
+
+哪怕是可能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个劲的用着“万一来烂梗小鬼呢”“万一来烂梗小鬼呢”这种理由输出，确实虚无啊。
+
+单推し人那种直球攻击给我的感觉都好多了
+
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 15136#       发表于 2020-6-27 09:54
+
+
+
+
+最近不是没有改变，比如带了几个后辈可能也有这种想法，不过成效还不明显
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15137#       发表于 2020-6-27 09:57
+
+
+
+
+龙魂少说两句吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+“你家mea黒屁别人不少吧，现在别人黒屁两句就受不住了？”
+“mea口嗨可以，别人安排mea就不行”
+除去苔苔拱火有多少是虐力反馈不得而知了
+
+两个小弟的话题度实在比不过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，往上面选还能有谁呢
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15138#       发表于 2020-6-27 09:57
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968475&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-27 09:51</a>
+我都不知道你是怎么把舞元跟有人发散她打炮联系一块的人黑屁她打炮是那两天她发什么肌肉痛的推然后5 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我就奇怪了，别人说她和男人打炮就很委屈，说她和舞元约会就没问题，那说明她不觉得和舞元约会是黑屁，你也别急着出警，这都是正常言论
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15139#       发表于 2020-6-27 10:00
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47968531&amp;ptid=1929631" target="_blank">草牛 发表于 2020-6-27 09:57</a>
+
+我就奇怪了，别人说她和男人打炮就很委屈，说她和舞元约会就没问题，那说明她不觉得和舞元约会是 ...</blockquote>
+其实我是觉得你在发病才说的（
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15140#       发表于 2020-6-27 10:02
+
+
+
+
+因为我他妈现在就是烦一直刷的nt啊（包括v），果然跟傻逼无法交流，5月份的麻将回我tm有炸过一次？
+
+黑名单还能回复？？什么jb功能
+
+
+
+
+
+                                             
