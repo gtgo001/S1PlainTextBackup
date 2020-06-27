@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-27 14:03** 
+> ## **本文件最后更新于2020-06-28 00:03** 
 
 
 
@@ -4117,10 +4117,13 @@ syl,下一首能不能来丶冷色调的啊,蓝莓黑莓都可以<img src="https
 
 
 
- 参与人数 9战斗力 +9
+ 参与人数 12战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| likemike| + 1|好评加鹅|
+| pei23333| + 1|艹，有声音了|
+| 时之虫| + 1|欢乐多|
 | 魔法使い2019| + 1|......|
 | whbstc4545| + 1|有麻味的楼友|
 | 惑星| + 1|欢乐多|
@@ -4345,10 +4348,11 @@ mea的情况是有意(xp暴露大会)无意(输入法联想无套中出)自爆�
 
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 雪代suzuno| + 1|美玲老师可能是真的懂，但是MEA一定是憨憨.|
 | 商博良| + 1|好评加鹅|
 
 
@@ -4425,4 +4429,911 @@ decision boundary?
 
 
 
-                                         
+
+
+-----
+
+####  呓亘  
+##### 15245#       发表于 2020-6-27 14:20
+
+
+
+
+loss function是什么？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15246#       发表于 2020-6-27 14:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15247#       发表于 2020-6-27 15:25
+
+
+
+
+不播我好痛苦，咩咩你在哪儿<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15248#       发表于 2020-6-27 15:27
+
+
+
+
+咩咩在装显示器.gif
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15249#       发表于 2020-6-27 15:43
+
+
+
+
+我去帮mea修电脑了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15250#       发表于 2020-6-27 17:47
+
+
+
+ 本帖最后由 A2014720 于 2020-6-27 19:04 编辑 
+
+今晚会有tc的吧<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+https://b23.tv/ouxgpZ
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 15251#       发表于 2020-6-27 19:12
+
+
+
+
+今天不会播了吧 明天的节目安排很忙，需要好好折腾
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15252#       发表于 2020-6-27 19:22
+
+
+
+
+作战会议复刻版有吗
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15253#       发表于 2020-6-27 19:25
+
+
+
+
+复刻版有了她明天睡过头怎么办(눈_눈)，我实名担心
+
+
+
+
+
+
+
+-----
+
+####  framita  
+##### 15254#       发表于 2020-6-27 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行，今天发病没去年6月26 27那两天多和有趣
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15255#       发表于 2020-6-27 19:41
+
+
+
+
+环境不一样啊。。。去年有516，而且咩姐6月上半月也播的少
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15256#       发表于 2020-6-27 19:42
+
+
+
+
+无端发散:小绿已经做了一次asmr，小紫表示想做一次asmr，她们能不能拉着你麻做一次asmr呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15257#       发表于 2020-6-27 19:45
+
+
+
+
+总觉得拉着你咩姐做asmr绝对会变成整活企划
+至今无法忘记和子兔音一起做的奥数魔炮<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 15258#       发表于 2020-6-27 20:22
+
+
+
+
+come on~baby~America~
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15259#       发表于 2020-6-27 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47975484&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-6-27 20:22</a>
+come on~baby~America~</blockquote>
+那个环节确实挺**的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 15260#       发表于 2020-6-27 21:17
+
+
+
+
+不需要asmr，可以整个双声道的嗦面配信吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15261#       发表于 2020-6-27 21:43
+
+
+
+
+求蔬菜棒双声道配信<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15262#       发表于 2020-6-27 21:44
+
+
+
+[https://twitter.com/umetoumeto/status/1276857236422144000?s=19](https://twitter.com/umetoumeto/status/1276857236422144000?s=19)  俺寻思梅糖这位画师是不是见过麻，这小胖手画的有、灵性
+
+
+
+
+
+
+
+20200627213955.jpg
+(156.04 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-27 21:41 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/27/214132ns3ea0pztxvz80tt.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15263#       发表于 2020-6-27 21:52
+
+
+
+
+这中指<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15264#       发表于 2020-6-27 21:54
+
+
+
+
+中指<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15265#       发表于 2020-6-27 21:56
+
+
+
+
+停，明显是蓝黄配色，小拇指也是黄色指甲油<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15266#       发表于 2020-6-27 21:59
+
+
+
+
+我作战会议呢？
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15267#       发表于 2020-6-27 22:00
+
+
+
+
+hhhhh虽然流星说到有理但咱还是喜欢那种发散(ಡωಡ) 
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15268#       发表于 2020-6-27 22:03
+
+
+
+
+中指和小指涂另一种颜色的指甲油还是蛮常见的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15269#       发表于 2020-6-27 22:31
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">明天假期可过去了，今天不适合熬夜啊妹妹
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 15270#       发表于 2020-6-27 22:45
+
+
+
+
+去年626TC简直像梦一样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15271#       发表于 2020-6-27 22:46
+
+
+
+
+不敢睡怕错过去了，又怕明早突击<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15272#       发表于 2020-6-27 22:48
+
+
+
+
+同感 我明天还要上班<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+今晚在想要不要熬了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15273#       发表于 2020-6-27 22:55
+
+
+
+
+今天不是有盒限，想她可以去看看啊，昨天没说今天要播吧，安心等明天吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15274#       发表于 2020-6-27 22:58
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">哎，一眨眼也是两周年了
+
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15275#       发表于 2020-6-27 23:00
+
+
+
+
+一眨眼孩子都这么大了
+
+小麻第一天上学的日子还历历在目<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 15276#       发表于 2020-6-27 23:05
+
+
+
+
+坏女人<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+昨晚睡过去错过了深夜直播，今天又一动不动。
+
+今天对苔姨及贴贴人滋生大量不满情绪，又清理了一波关注列表，vtuber部分从当年关注mea开始发展到整个p家，半个holo和苔姨，以及后面陆陆续续感兴趣关注的一些人，慢慢地又增增减减，现在已经只剩阿咩和她俩小弟了。
+渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15277#       发表于 2020-6-27 23:11
+
+
+
+
+我去年年底就把关注的V减到只剩她了，今年才加了两个小弟，不过动态刷屏的我又想删掉了，尤其是她们fanart重合度还高
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15278#       发表于 2020-6-27 23:22
+
+
+
+
+为什么要看B站动态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15279#       发表于 2020-6-27 23:23
+
+
+
+
+我倒是把所有的关注都留着,不过其他的也就是做人类观察的用处了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15280#       发表于 2020-6-27 23:29
+
+
+
+
+预告推，发的真够晚的
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15281#       发表于 2020-6-27 23:29
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-27 23:33 编辑 
+
+动了动了
+
+有重大告知，该奶3d了，还有原创曲
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15282#       发表于 2020-6-27 23:31
+
+
+
+
+盒限睡过了发现已经2周年了还行，明天两场，下午4点歌回 6点告知
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15283#       发表于 2020-6-27 23:32
+
+
+
+
+◝(⑅•ᴗ•⑅)◜..°♡<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15284#       发表于 2020-6-27 23:33
+
+
+
+
+明天重大发表必有3d<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15285#       发表于 2020-6-27 23:34
+
+
+
+
+周年重大发表，当然是卖音声了（
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 15286#       发表于 2020-6-27 23:34
+
+
+
+
+原创曲不算重大，新衣服之前想搞但是耽搁了，那只能是3d了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15287#       发表于 2020-6-27 23:34
+
+
+
+
+那我猜卖周边吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15288#       发表于 2020-6-27 23:35
+
+
+
+
+你们只是想看3d，你们有私心！
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15289#       发表于 2020-6-27 23:38
+
+
+
+
+你们只是想看3d，你们有私心！
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15290#       发表于 2020-6-27 23:41
+
+
+
+
+这周年推特突然好多人回复啊
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15291#       发表于 2020-6-27 23:52
+
+
+
+
+4点....只能看录播了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15292#       发表于 2020-6-27 23:55
+
+
+
+
+两周年，b站两周年，生日，可能的重大事项，bw<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15293#       发表于 2020-6-28 00:00
+
+
+
+
+别奶了别奶了，只要不是舞咩合唱什么都好，顺带一提，不知道是几世冲国女王的狗妈好像打了咩二周年的tag发了推，四个画师的第一块拼图找到了？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15294#       发表于 2020-6-28 00:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47978341&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-28 00:00</a>
+别奶了别奶了，只要不是舞咩合唱什么都好，顺带一提，不知道是几世冲国女王的狗妈好像打了咩二周年的tag发 ...</blockquote>
+。。想多了，一堆画师都回了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15295#       发表于 2020-6-28 00:03
+
+
+
+
+没有吧，狗妈会发推连她都没想到的样子
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15296#       发表于 2020-6-28 00:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到狗妈发推我才想起来，这俩那个神秘失踪的合唱卫星
+
+
+
+
+
+                                        
