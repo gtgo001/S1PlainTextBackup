@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-27 12:01** 
+> ## **本文件最后更新于2020-06-27 14:03** 
 
 
 
@@ -3717,4 +3717,712 @@ syl,下一首能不能来丶冷色调的啊,蓝莓黑莓都可以<img src="https
 
 
 
-                                           
+
+
+-----
+
+####  nightmare902015  
+##### 15209#       发表于 2020-6-27 12:02
+
+
+
+
+说明官组贴贴人们身上有一股哩味<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15210#       发表于 2020-6-27 12:03
+
+
+
+
+我也奶蓝的吧，蓝党大势所趋（*/∇＼*）
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15211#       发表于 2020-6-27 12:03
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/27/120314ghgahbehecuma0i3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20200627120251.png</strong> (37.32 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-27 12:03 上传
+
+
+
+
+
+
+草
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15212#       发表于 2020-6-27 12:04
+
+
+
+
+然后组成元祖高达
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15213#       发表于 2020-6-27 12:04
+
+
+
+
+水蓝还是钴蓝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15214#       发表于 2020-6-27 12:05
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vtuber战队神乐连者
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15215#       发表于 2020-6-27 12:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那必然是水蓝，还方便连体人发散，同款水色，是糖
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15216#       发表于 2020-6-27 12:07
+
+
+
+
+之前听咩姐唱那个被认为是昭和，实际是平成的歌挺不错的，虽然我觉得原创曲不可能弄成演歌就是了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15217#       发表于 2020-6-27 12:09
+
+
+
+
+水色是你咩代表色
+贴锤子
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15218#       发表于 2020-6-27 12:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">可连体人的发散一向是无端而且不讲逻辑的啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15219#       发表于 2020-6-27 12:13
+
+
+
+
+你现在就比连体人还能无端发散，怨念这么大去外面那楼发泄下吧
+
+
+
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 15220#       发表于 2020-6-27 12:16
+
+
+
+
+红黄蓝绿紫出完，粉色收尾
+
+—— 来自 OnePlus IN2010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15221#       发表于 2020-6-27 12:17
+
+
+
+
+希望不是偶像蓝，是深沉蓝(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15222#       发表于 2020-6-27 12:19
+
+
+
+
+你们怎么分辨这么多种颜色的，我提起颜色就能想起几种简单的（
+
+
+
+
+
+
+
+-----
+
+####  深渊萃取  
+##### 15223#       发表于 2020-6-27 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有啥怨念，发什么泄，我确实觉得水色是她的代表色且连体人也确实发散过这个啊，没怨气又没吵架
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15224#       发表于 2020-6-27 12:21
+
+
+
+
+按三原色来看，下次原创曲也应该是蓝色啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红色和黄色都出过了
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15225#       发表于 2020-6-27 12:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47969924&amp;ptid=1929631" target="_blank">深渊萃取 发表于 2020-6-27 12:20</a>
+有啥怨念，发什么泄，我确实觉得水色是她的代表色且连体人也确实发散过这个啊，没怨气又没吵架 ...</blockquote>
+这里又不是nt言论大赏楼，你给楼友派发降血压药了么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 深渊萃取| + 1|吃好喝好，好好养病|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15226#       发表于 2020-6-27 12:29
+
+
+
+
+嗦面熟肉出了，可爱，脑控（*/∇＼*）
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15227#       发表于 2020-6-27 12:36
+
+
+
+
+深夜她在恰面,我只能啃威化饼干<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15228#       发表于 2020-6-27 12:38
+
+
+
+
+她嗦杯面，我吃干脆面，我跟神乐mea五五开
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15229#       发表于 2020-6-27 12:41
+
+
+
+ 本帖最后由 笋狐 于 2020-6-27 12:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完了，按照你麻的品味，颜色组曲的标题在下都能想个大概：
+
+
+蓝=いっぱい～あたえる♥あいのブルーハワイ（装得满满献给你♥爱的蓝色夏威夷）
+
+
+粉=ピーチピーチピーチ！ふたりだけのお・も・い（peachpeachpeach！只属于两人的回忆）
+
+
+紫=きみのことメロメロにしてあげる（让大家对我神魂颠倒）
+
+
+白=だってあたし～しらゆきひめだもん～（因为人家~可是白雪公主嘛~）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">草，我吐了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">（小）绿（小）紫两色不知道怎么配，有无壮士能仿麻乎
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 9战斗力 +9
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|......|
+| whbstc4545| + 1|有麻味的楼友|
+| 惑星| + 1|欢乐多|
+| thisisaspider| + 1|值得鼓励，但还差点|
+| Dualist彩| + 1|思路广|
+| noaki| + 1|欢乐多|
+| GRMeA104| + 1|欢乐多|
+| Mr.shelter| + 1|思路广|
+| nightmare902015| + 1|思路广|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15230#       发表于 2020-6-27 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15231#       发表于 2020-6-27 12:45
+
+
+
+
+有内味了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15232#       发表于 2020-6-27 12:47
+
+
+
+
+不要再说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15233#       发表于 2020-6-27 12:47
+
+
+
+
+好活，建议应聘咩咩的马内甲（*/∇＼*），届到麻图了记得分享给楼友
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15234#       发表于 2020-6-27 12:49
+
+
+
+
+你楼劈起啊咩原创曲怎么也这么狠<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15235#       发表于 2020-6-27 12:50
+
+
+
+
+这起名还起的挺好？就是有点长
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 15236#       发表于 2020-6-27 12:51
+
+
+
+ 本帖最后由 noaki 于 2020-6-27 12:54 编辑 
+
+草，是“虽然很jb土但是要真是这样我也不会奇怪并会很乐意地接受”的程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15237#       发表于 2020-6-27 12:51
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47970258&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-27 12:50</a>
+
+这起名还起的挺好？就是有点长</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为不带汉字全假名也是你麻作风
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15238#       发表于 2020-6-27 12:52
+
+
+
+
+起的味这么浓能不能替小麻马上播啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15239#       发表于 2020-6-27 12:53
+
+
+
+
+凑齐七种颜色炫彩玛丽苏的味道就有了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 15240#       发表于 2020-6-27 12:57
+
+
+
+
+体感上馋男人身子的V一般是禁欲系?(吹雪，犬山，静凛)，而发情系的V一般是馋女人身子?(玛琳，阿夸，夏色)
+
+
+mea的情况是有意(xp暴露大会)无意(输入法联想无套中出)自爆太多
+
+郡道的情况是女子会的时候说的(其他三个人说的都是偏宅女的性癖，只有郡道说的是偏现充的性癖)
+
+虽然没有别的意思，不过其他人是为了话题性也好，塑造人设也罢，总觉得这两个憨憨是顺着氛围被坑了
+
+<img src="https://img.saraba1st.com/forum/202006/27/123134rs7axi7k2mzacmoy.png" referrerpolicy="no-referrer">
+
+
+<strong>013854plrss2ky1on1ogss.png</strong> (539.25 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-27 12:31 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 商博良| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15241#       发表于 2020-6-27 13:08
+
+
+
+
+草,这图还能这么看
+
+不过老油条范围这么大的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15242#       发表于 2020-6-27 13:11
+
+
+
+
+夏哥算老油条吗(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 15243#       发表于 2020-6-27 13:17
+
+
+
+
+细分的话可能还有性癖天生就是这么重口以及看男人眼光差，不过不是重点就没画了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15244#       发表于 2020-6-27 13:27
+
+
+
+
+decision boundary?
+
+
+
+
+
+                                         
