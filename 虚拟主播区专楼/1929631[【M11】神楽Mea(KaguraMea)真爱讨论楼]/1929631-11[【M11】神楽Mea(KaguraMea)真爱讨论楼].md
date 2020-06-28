@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-28 22:05** 
+> ## **本文件最后更新于2020-06-29 00:03** 
 
 
 
@@ -9303,7 +9303,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_LQDct" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_d0638" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16344,7 +16344,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_dRpb3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_TccZr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -16492,4 +16492,710 @@ recording bot
 
 
 
-                   
+
+
+-----
+
+####  魔法使い2019  
+##### 15925#       发表于 2020-6-28 22:06
+
+
+
+
+我的青春又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15926#       发表于 2020-6-28 22:06
+
+
+
+
+噗哩噗哩布丁
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15927#       发表于 2020-6-28 22:06
+
+
+
+
+浑身一震，每次唱都是不同的心理状态，这次又是好起来的一次
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15928#       发表于 2020-6-28 22:06
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15929#       发表于 2020-6-28 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 15930#       发表于 2020-6-28 22:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">是希区柯克
+虽然说是听了当年那个断气哭腔版入坑的，但还是希望她能怀着轻松的心情唱这歌。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15931#       发表于 2020-6-28 22:12
+
+
+
+
+在找小白脸
+
+
+幻灭了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15932#       发表于 2020-6-28 22:14
+
+
+
+
+这就是花了1/103d买的字体吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15933#       发表于 2020-6-28 22:15
+
+
+
+
+零用钱30万？
+
+
+哪里报名<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15934#       发表于 2020-6-28 22:19
+
+
+
+
+是你给她30w，你行吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15935#       发表于 2020-6-28 22:21
+
+
+
+
+“Siri, ここどこ“
+
+
+
+
+
+
+
+-----
+
+####  qigeer  
+##### 15936#       发表于 2020-6-28 22:22
+
+
+
+
+绝对不会出事故的直播方式是她把自己整容成mea了吗
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15937#       发表于 2020-6-28 22:22
+
+
+
+
+被特定了就把户籍上的东西都改了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15938#       发表于 2020-6-28 22:24
+
+
+
+
+有趣
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15939#       发表于 2020-6-28 22:34
+
+
+
+
+注意不撞小弟车的鉴组长
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15940#       发表于 2020-6-28 22:41
+
+
+
+
+在观众的提醒下终于想起来可以用念SC拖时间（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15941#       发表于 2020-6-28 22:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以看看鬼佬打钱浓度有没有增加了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15942#       发表于 2020-6-28 22:45
+
+
+
+ 本帖最后由 pei23333 于 2020-6-28 22:46 编辑 
+
+似乎并没有，全是熟人，啊刚刚是sl的？那听听sc的，不过感觉也全是老熟人，念了两次名字，舒服了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15943#       发表于 2020-6-28 22:51
+
+
+
+
+鬼佬不行啊，有梁木了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15944#       发表于 2020-6-28 22:53
+
+
+
+
+需要几个脑控剪辑片段增加外国gachi浓度
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15945#       发表于 2020-6-28 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15946#       发表于 2020-6-28 22:55
+
+
+
+
+建议烤那个出门赶时间唱歌的（*/∇＼*）究极脑控
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15947#       发表于 2020-6-28 22:55
+
+
+
+
+以为10w人就是自己的极限了，说明现在超越10w的每一个都是她的成长<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15948#       发表于 2020-6-28 22:55
+
+
+
+
+建议将 神乐mea名言警句集 翻译过去
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 15949#       发表于 2020-6-28 22:58
+
+
+
+
+建议传和黑子连麦集锦过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15950#       发表于 2020-6-28 22:58
+
+
+
+
+鬼佬行过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+虽说脑控不分国界
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15951#       发表于 2020-6-28 22:59
+
+
+
+
+装女儿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 15952#       发表于 2020-6-28 23:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">念了我的SC，舒服了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15953#       发表于 2020-6-28 23:01
+
+
+
+
+今天看过去还是有好几个的<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15954#       发表于 2020-6-28 23:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">还算是不错的一天，啊丢~睡了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15955#       发表于 2020-6-28 23:12
+
+
+
+
+新签名 3年目の女
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 15956#       发表于 2020-6-28 23:20
+
+
+
+
+今天新歌很多很满足 闲聊也很有趣 最后还喂了一把老父亲糖 
+
+雪之华她明明唱得很好就是不愿意认真唱 刚刚开头眼泪都快出来 模仿部分都好 结果她不唱只能把眼泪吸回去了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15957#       发表于 2020-6-28 23:30
+
+
+
+
+今天是我最幸福的一天，谢谢咩咩，以及那个人，二周年太好了呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 15958#       发表于 2020-6-28 23:38
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/28/233608nbviv8yh7blg1dvl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EbmJrpPUYAETNVV.jpg</strong> (158.2 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 23:36 上传
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/28/233609q15hz5omeoz1k1t5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Corset-Piercing-On-Side-Rib-And-Side-leg-JP123.jpg</strong> (44.99 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 23:36 上传
+
+
+
+
+
+新人小腿那个像是缝皮上的丝带
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 15959#       发表于 2020-6-28 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这太哈人了也
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15960#       发表于 2020-6-28 23:41
+
+
+
+
+不要乱想,只是贴纸装饰)
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15961#       发表于 2020-6-28 23:42
+
+
+
+
+草，mea在海苔男会限发评论<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15962#       发表于 2020-6-28 23:43
+
+
+
+
+没乱想，脖子上还挂了把锁<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+人设应该挺有意思的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15963#       发表于 2020-6-28 23:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47991644&amp;ptid=1929631" target="_blank">proxima 发表于 2020-6-28 23:42</a>
+
+草，mea在海苔男会限发评论</blockquote>
+说了啥？
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 15964#       发表于 2020-6-28 23:46
+
+
+
+ 本帖最后由 proxima 于 2020-6-28 23:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47991686&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-6-28 23:45</a>
+
+说了啥？</blockquote>
+“你跟我说话都没有用过这么可爱的声音”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+顺便一说，海苔男在说kuma的事情<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 诡秘侍者| + 1|好评加鹅|
+| Sanguine| + 1|欢乐多|
+| ylssb10438| + 1|欢乐多|
+| 路人庚| + 1|好！|
+
+
+
+查看全部评分
+
+
+
+
+                 
