@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-28 20:02** 
+> ## **本文件最后更新于2020-06-28 22:05** 
 
 
 
@@ -9303,7 +9303,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_Aj2Jy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_LQDct" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -14824,4 +14824,1672 @@ MC啊  大概一共五个人（也算经典配置）
 
 
 
-                      
+
+
+-----
+
+####  暗心舞踏  
+##### 15836#       发表于 2020-6-28 20:02
+
+
+
+
+兜底去看mana的旧版3d模型发表<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不可能有更差的了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15837#       发表于 2020-6-28 20:03
+
+
+
+
+给个门吧(#ﾟДﾟ)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 暗心舞踏| + 1|https://b23.tv/Svl16V|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15838#       发表于 2020-6-28 20:05
+
+
+
+
+还有shiori的那个，越来越怕和这几个是一丘之貉了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15839#       发表于 2020-6-28 20:06
+
+
+
+
+草，shiori是粉丝做的模型吧
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15840#       发表于 2020-6-28 20:07
+
+
+
+
+早期虹的猎奇3D还是挺有笑果的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+主要是她也不可能做出那种一看就草到不行的模型啊
+
+
+大家还是怕“就这样凑合用吧”
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15841#       发表于 2020-6-28 20:07
+
+
+
+
+你楼传统，底线思维<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">看懂了，不慌
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15842#       发表于 2020-6-28 20:07
+
+
+
+
+小麻的寒酸三第<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 15843#       发表于 2020-6-28 20:08
+
+
+
+
+有些话一年半前就说过了，帕里系3D都是废拉不堪，本质就是帕里脸和不协调的下半身根本不适合3D
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15844#       发表于 2020-6-28 20:08
+
+
+
+
+大姐那个是粉丝自学建模去网吧加班加点做出来的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15845#       发表于 2020-6-28 20:09
+
+
+
+
+呜呜呜，输了输了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+3d要真草到不行她饭盒必备刷爆，我挺信任大伙的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15846#       发表于 2020-6-28 20:10
+
+
+
+
+所以建模师有没有挖出来啊,我好上个保险<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15847#       发表于 2020-6-28 20:10
+
+
+
+
+如果到时候出来和黄油差不多建议调查是不是洗钱了（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15848#       发表于 2020-6-28 20:10
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我觉得完全不必担心，反正至少我不担心
+
+syl，个人觉得更麻烦的是外面疫情不要反弹（参考佛罗里达）…省的万一告知了又被限制那可太伤了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15849#       发表于 2020-6-28 20:10
+
+
+
+
+还是觉得她图没做好
+
+不是之前说3d是一家公司吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15850#       发表于 2020-6-28 20:11
+
+
+
+
+呜呜呜要是和最近的黄油大作差不多到还是可以接受了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15851#       发表于 2020-6-28 20:11
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，先做好因为疫情反弹导致二度推迟的预期比较好
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15852#       发表于 2020-6-28 20:15
+
+
+
+
+最主要还是看脸，脸好可以掩盖很多事的（）
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15853#       发表于 2020-6-28 20:15
+
+
+
+
+我倒觉得原设画风对3D没多大影响
+
+
+顶多身体比例需要调整
+
+
+但今天大家吐槽的也不是这方面的问题啊
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15854#       发表于 2020-6-28 20:17
+
+
+
+
+讲道理，和黄油差不多应该赚了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15855#       发表于 2020-6-28 20:17
+
+
+
+
+新推
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15856#       发表于 2020-6-28 20:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">问题是不是感觉棱角分明颜色不自然？这个渲染可以解决
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15857#       发表于 2020-6-28 20:21
+
+
+
+
+其实就是希望是三渲二业界主流那种不过不失就行了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15858#       发表于 2020-6-28 20:21
+
+
+
+
+我还看到了下垂的未来<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15859#       发表于 2020-6-28 20:21
+
+
+
+
+直播时效果应该比这个好)也可能水平波动
+
+
+
+
+
+
+D1WG)`F3SEBG4N_CCWVI`UF.png
+(1.12 MB, 下载次数: 3)
+
+
+
+
+下载附件
+
+
+2020-6-28 20:21 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/28/202126hccbc71mggmubgcq.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|欢乐多|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 15860#       发表于 2020-6-28 20:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能一键切换胸部吗，给钢板民一点希望
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15861#       发表于 2020-6-28 20:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989255&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-28 20:21</a>
+直播时效果应该比这个好)也可能水平波动</blockquote>
+真这么好业界算顶流了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15862#       发表于 2020-6-28 20:22
+
+
+
+
+希望她能像苔姨和爱丽丝那样整个家用3d
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 15863#       发表于 2020-6-28 20:23
+
+
+
+
+其实建模还行,感觉光源过强然后像是整个人站在打光板面前,反光油亮亮的然后截了张图.
+
+等一个面部图放出,脸只要不差我觉得还是没问题的
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15864#       发表于 2020-6-28 20:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989278&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-28 20:22</a>
+
+真这么好业界算顶流了吧</blockquote>
+业界3D有的可能还赶不上黄油水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是有点期待好吧
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15865#       发表于 2020-6-28 20:25
+
+
+
+
+讲真....Alice那个家用3D我是欣赏不来....
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15866#       发表于 2020-6-28 20:25
+
+
+
+
+红皮饺子先入为主了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15867#       发表于 2020-6-28 20:28
+
+
+
+
+现在看小紫真的跟咩抽小绿赠送的一样，宣传直播没造势一笔带过，转推红利没吃几次，本身播的还少，再加上和咩不太熟，希望别对两位有什么影响
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15868#       发表于 2020-6-28 20:29
+
+
+
+
+这么早就种梁木了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15869#       发表于 2020-6-28 20:31
+
+
+
+
+可以把小紫t台冲了，然后学一下箱内传统文化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15870#       发表于 2020-6-28 20:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989346&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-6-28 20:29</a>
+
+这么早就种梁木了</blockquote>
+不要乱讲啊，就当我胡乱发散吧，没有任何种梁木的意思
+
+
+
+
+
+
+
+-----
+
+####  某不知名的路人  
+##### 15871#       发表于 2020-6-28 20:34
+
+
+
+
+我在想如果到时候3d出来胸没穿模的话，你楼的平板爱好者是不是要死不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15872#       发表于 2020-6-28 20:35
+
+
+
+
+不仅没穿模,还摸不到胸(<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15873#       发表于 2020-6-28 20:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989390&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-28 20:32</a>
+不要乱讲啊，就当我胡乱发散吧，没有任何种梁木的意思</blockquote>
+到时内卷我们没有一个人逃的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 15874#       发表于 2020-6-28 20:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989336&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-28 20:28</a>
+现在看小紫真的跟咩抽小绿赠送的一样，宣传直播没造势一笔带过，转推红利没吃几次，本身播的还少，再加上和 ...</blockquote>
+Noe实在是播的太少啊，最近还好，但之前除了MC我就没见过她播别的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真的比不上如月上心啊。你看如月，会多种声线，唱歌不错，整活棉花糖杂谈不错，来b限硬是唱了50首歌，就给人各种很pro的感觉。
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15875#       发表于 2020-6-28 20:40
+
+
+
+
+到时希望比这个顶一点
+
+
+
+
+
+
+360截图20200628203757130.jpg
+(119.93 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-28 20:39 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/28/203942nzzp98hlhkigjbgi.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 15876#       发表于 2020-6-28 20:42
+
+
+
+<blockquote>某不知名的路人 发表于 2020-6-28 20:34
+我在想如果到时候3d出来胸没穿模的话，你楼的平板爱好者是不是要死不少 ...</blockquote>
+那就是坦克民狂喜了
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 15877#       发表于 2020-6-28 20:42
+
+
+
+
+如月b限那次杂谈倒是挺真诚的
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15878#       发表于 2020-6-28 20:43
+
+
+
+
+好歹是花了大价钱和大量时间搞的，应该不会怎么拉胯吧，她之前不是说也有企业联系了那家，要排队吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15879#       发表于 2020-6-28 20:43
+
+
+
+
+小紫播的少啊，转推还要碰到她醒着，概率有点低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15880#       发表于 2020-6-28 20:44
+
+
+
+
+因为是个人势所以就敷衍过去？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15881#       发表于 2020-6-28 20:45
+
+
+
+
+我悟了，是没有露眼睛的问题，一般的遮脸麻图和那张后台露眼睛的感觉完全不同，所以3d也是这样，她看过全身的说了很可爱，所以我相信她
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15882#       发表于 2020-6-28 20:49
+
+
+
+
+你咩姐喜欢的原创曲也可爱 你喜欢吗(ಡωಡ) 
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|喜欢|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 15883#       发表于 2020-6-28 20:50
+
+
+
+
+喜欢啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15884#       发表于 2020-6-28 20:51
+
+
+
+
+那不一样
+
+
+原创曲再怎么说都是“不过不失的可爱”吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15885#       发表于 2020-6-28 20:52
+
+
+
+
+有道理（*/∇＼*）。顺便她怕欧派穿模可以垫到bs演出那种地步
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15886#       发表于 2020-6-28 20:52
+
+
+
+
+红皮饺子相当不错吧
+
+mana的看了，灵视+10
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15887#       发表于 2020-6-28 20:54
+
+
+
+
+谁给个mana的链接啊(#ﾟДﾟ)
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|之前你的评分里|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15888#       发表于 2020-6-28 20:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989639&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-28 20:54</a>
+
+谁给个mana的链接啊(#ﾟДﾟ)</blockquote>
+[https://b23.tv/Svl16V](https://b23.tv/Svl16V)
+
+<img src="https://img.saraba1st.com/forum/202006/28/205918zuhrwo9qpp9xnpp9.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (52.02 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 20:59 上传
+
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  病態極端  
+##### 15889#       发表于 2020-6-28 21:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47989474&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-6-28 20:39</a>
+
+Noe实在是播的太少啊，最近还好，但之前除了MC我就没见过她播别的真的比不上如月上心啊。你看如月 ...</blockquote>
+Noe的Youtube沒通過收益化，Mea姊大概也沒發工資，所以她可能要上班養自己
+
+
+
+
+
+
+
+-----
+
+####  cgz  
+##### 15890#       发表于 2020-6-28 21:03
+
+
+
+
+然后突然发现双手叉腰居然摸不到腰，把手放头居然穿模到脖子，两只细腿总保持着很大间距。mea水桶说
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|90 90 90|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15891#       发表于 2020-6-28 21:04
+
+
+
+
+开了
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15892#       发表于 2020-6-28 21:05
+
+
+
+
+讲道理，第一首原创曲真的不错，无非就是曲风和歌词太甜太少女了，循环跟被**了一样，第二首偶像风太口水了反而不是很能接受，直播开了，该继续听了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15893#       发表于 2020-6-28 21:07
+
+
+
+
+只要是她的我都喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 15894#       发表于 2020-6-28 21:08
+
+
+
+
+第一首印象还蛮深的，第二首是真的听完就忘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15895#       发表于 2020-6-28 21:09
+
+
+
+
+这人最近<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15896#       发表于 2020-6-28 21:10
+
+
+
+
+其实比起第一首我更喜欢第二首，第一首歌太kirakira了，第二首的词更贴近你咩
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15897#       发表于 2020-6-28 21:11
+
+
+
+
+还真是困了草
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15898#       发表于 2020-6-28 21:15
+
+
+
+
+啊我手机版看不见，谢谢两位老哥（*/∇＼*）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15899#       发表于 2020-6-28 21:17
+
+
+
+
+mea看到了我的回复，她心里是有我的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15900#       发表于 2020-6-28 21:22
+
+
+
+
+啊,一周的家族旅行,大戒断<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15901#       发表于 2020-6-28 21:23
+
+
+
+
+大概是在国内吧（）
+
+
+可别跑海外了.jpg
+
+
+
+
+
+
+
+-----
+
+####  呓亘  
+##### 15902#       发表于 2020-6-28 21:24
+
+
+
+
+往好处想，这次旅行能提供多少个宝贵的杂谈素材啊
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15903#       发表于 2020-6-28 21:25
+
+
+
+
+家族旅行费是不是咩咩掏钱啊
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 15904#       发表于 2020-6-28 21:25
+
+
+
+
+🐮的，一天这么多新歌
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 15905#       发表于 2020-6-28 21:27
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">撞车撞掉小绿差不多一半同接
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15906#       发表于 2020-6-28 21:28
+
+
+
+
+看到一条本间向日葵下位互换草<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15907#       发表于 2020-6-28 21:31
+
+
+
+
+整活雪之华
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15908#       发表于 2020-6-28 21:31
+
+
+
+
+不应该是那啥的替代
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 15909#       发表于 2020-6-28 21:31
+
+
+
+
+呵欠版本
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15910#       发表于 2020-6-28 21:32
+
+
+
+
+太阴间了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15911#       发表于 2020-6-28 21:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15912#       发表于 2020-6-28 21:34
+
+
+
+
+不算阴间雪之华的话约等于uru连发
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15913#       发表于 2020-6-28 21:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 15914#       发表于 2020-6-28 21:41
+
+
+
+
+选曲真不错但你唱了个锤子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15915#       发表于 2020-6-28 21:51
+
+
+
+
+隔着屏幕的困意(<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15916#       发表于 2020-6-28 21:55
+
+
+
+
+recording bot
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15917#       发表于 2020-6-28 21:55
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
+
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_dRpb3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|nice特定|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 15918#       发表于 2020-6-28 21:57
+
+
+
+
+有这么多录音   如果只是新的原创曲不至于吧,我能猜一个bls的准备么?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 15919#       发表于 2020-6-28 22:01
+
+
+
+
+管人一年过两次生日，
+
+
+真忙
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 15920#       发表于 2020-6-28 22:04
+
+
+
+
+那个芒果布丁的伏笔居然回收了，惊了
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 15921#       发表于 2020-6-28 22:04
+
+
+
+
+啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15922#       发表于 2020-6-28 22:04
+
+
+
+
+芒果的布丁吃完果然还是拉了（
+
+
+希区柯克<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 15923#       发表于 2020-6-28 22:04
+
+
+
+
+过期布丁果然吃坏肚子了
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 15924#       发表于 2020-6-28 22:05
+
+
+
+
+是希区柯克<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+芒果布丁的伏笔补上了
+
+
+
+
+
+                   
