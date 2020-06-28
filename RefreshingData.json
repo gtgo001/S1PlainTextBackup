@@ -745,9 +745,9 @@
   },
   {
     "id": "1556697",
-    "totalpage": 176,
+    "totalpage": 177,
     "title": "[没人建我来吧机核网真（看）爱（戏）楼]",
-    "lastedit": 1593201664,
+    "lastedit": 1593309673,
     "category": "游戏区专楼",
     "active": true
   },
@@ -801,9 +801,9 @@
   },
   {
     "id": "1789687",
-    "totalpage": 164,
+    "totalpage": 165,
     "title": "[【后花园】满朝文武哭死B站同好会批斗专楼（要做很b站有哩味儿的专楼）]",
-    "lastedit": 1593259251,
+    "lastedit": 1593309695,
     "category": "漫区专楼",
     "active": true
   },
@@ -5561,9 +5561,9 @@
   },
   {
     "id": "1920125",
-    "totalpage": 28,
+    "totalpage": 29,
     "title": "[日本佛系防疫是不是真成功了？]",
-    "lastedit": 1591617811,
+    "lastedit": 1593309773,
     "category": "外野",
     "active": true
   },
@@ -6649,9 +6649,9 @@
   },
   {
     "id": "1860270",
-    "totalpage": 76,
+    "totalpage": 77,
     "title": "[20.04『辉夜大小姐想让我告白？～天才们的恋爱头脑战～』]",
-    "lastedit": 1593280947,
+    "lastedit": 1593309828,
     "category": "漫区专楼",
     "active": true
   },
@@ -8349,7 +8349,7 @@
     "title": "[5.27 ps4国行组合按键法失效]",
     "lastedit": 1590712974,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   {
     "id": "1933863",
@@ -8461,7 +8461,7 @@
     "title": "[【B5】VUP综合讨论专楼【翻页bug请移步B6】]",
     "lastedit": 1590713076,
     "category": "虚拟主播区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1934833",
@@ -9373,7 +9373,7 @@
     "title": "[赞比亚貌似出了杀害中国人事件]",
     "lastedit": 1590713263,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1937468",
@@ -9421,7 +9421,7 @@
     "title": "[在尊重女性这方面，我对日厂真的无语]",
     "lastedit": 1590713310,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   {
     "id": "1867310",
@@ -10449,9 +10449,9 @@
   },
   {
     "id": "1941579",
-    "totalpage": 528,
+    "totalpage": 530,
     "title": "[【V10】虚拟YouTuber综合讨论楼桐生ココ3D披露同接突破十万]",
-    "lastedit": 1593295555,
+    "lastedit": 1593310092,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -11281,9 +11281,9 @@
   },
   {
     "id": "1943651",
-    "totalpage": 22,
+    "totalpage": 23,
     "title": "[疫情楼]",
-    "lastedit": 1593274270,
+    "lastedit": 1593310259,
     "category": "外野专楼",
     "active": true
   },
@@ -11465,9 +11465,9 @@
   },
   {
     "id": "1942338",
-    "totalpage": 586,
+    "totalpage": 587,
     "title": "[【B7】VUP综合讨论专楼]",
-    "lastedit": 1593295779,
+    "lastedit": 1593310339,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -11733,6 +11733,38 @@
     "title": "[索尼Xperia 1 mark 2／Xperia pro／Xperia 10 mark 2／Xperia 5 mark 2讨论帖]",
     "lastedit": 1593295858,
     "category": "外野专楼",
+    "active": true
+  },
+  {
+    "id": "1944270",
+    "totalpage": 12,
+    "title": "[VR年轻人的第一对bg cp朝拜堂2.0]",
+    "lastedit": 1593310398,
+    "category": "虚拟主播区专楼",
+    "active": true
+  },
+  {
+    "id": "1944292",
+    "totalpage": 2,
+    "title": "[【VR】怪文书楼]",
+    "lastedit": 1593310405,
+    "category": "虚拟主播区专楼",
+    "active": true
+  },
+  {
+    "id": "1941125",
+    "totalpage": 5,
+    "title": "[夏色（なついろ）まつり／夏色祭 祭丝日记楼]",
+    "lastedit": 1593310412,
+    "category": "虚拟主播区专楼",
+    "active": true
+  },
+  {
+    "id": "1941125",
+    "totalpage": 5,
+    "title": "[夏色（なついろ）まつり／夏色祭 祭丝日记楼]",
+    "lastedit": 1593310419,
+    "category": "虚拟主播区专楼",
     "active": true
   }
 ]
