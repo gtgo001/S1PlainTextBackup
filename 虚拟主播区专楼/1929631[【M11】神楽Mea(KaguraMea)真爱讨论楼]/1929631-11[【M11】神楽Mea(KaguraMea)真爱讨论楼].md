@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-28 06:01** 
+> ## **本文件最后更新于2020-06-28 14:04** 
 
 
 
@@ -5455,6 +5455,25 @@ syl，方舟指令还有二周年剧情
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
 
 
 
@@ -5469,6 +5488,25 @@ syl，方舟指令还有二周年剧情
 
 咩姐两周年快乐^O^
 
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|好评加鹅|
+
+
+
+查看全部评分
 
 
 
@@ -5982,4 +6020,1521 @@ syl这什么翻译草
 
 
 
-                                      
+
+
+-----
+
+####  A2014720  
+##### 15333#       发表于 2020-6-28 07:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">啊啊啊啊
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15334#       发表于 2020-6-28 08:21
+
+
+
+
+两周年快乐，咩宝，社畜只能看录播了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神楽mea| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15335#       发表于 2020-6-28 09:16
+
+
+
+
+谁奶的晚上会有tc的？早上起来看见消息人都傻了。看同好会说5000档才有阿萨姆人音声啊，下个月得提档了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15336#       发表于 2020-6-28 09:21
+
+
+
+
+饭盒怎么买，我有个朋友说他很急
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15337#       发表于 2020-6-28 09:23
+
+
+
+
+赶不上了，今天五点到十一点的夜巡班
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15338#       发表于 2020-6-28 09:29
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47980699&amp;ptid=1929631" target="_blank">kolu33 发表于 2020-06-28 09:21:48</a>
+饭盒怎么买，我有个朋友说他很急</blockquote>找个科学上网的工具，注册个paypal绑个银行卡，点开她饭盒的链接就可以pay了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15339#       发表于 2020-6-28 10:27
+
+
+
+
+我昨天提了asmr，她就打算弄了，我摊牌了，我就是马内甲<img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
+
+syl，5000档有点小贵，要多停几个月卡了
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 15340#       发表于 2020-6-28 10:58
+
+
+
+
+是5000档都会有 还是5000档才有资格买？
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15341#       发表于 2020-6-28 11:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先观望一下她是不是真的要好好搞这个，我还以为她开玩笑呢
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15342#       发表于 2020-6-28 11:06
+
+
+
+
+是5000新增项目吧，不晓得她整的什么设备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15343#       发表于 2020-6-28 11:11
+
+
+
+
+先入一个月5k，听完决定去留<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15344#       发表于 2020-6-28 11:33
+
+
+
+ 本帖最后由 时雨rain 于 2020-6-28 11:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47979627&amp;ptid=1929631" target="_blank">deep24froz 发表于 2020-6-28 03:16</a>
+"等真没钱的时候就去做奥数魔刃,全力的去舔耳朵,这就是我的末路"
+
+还行吧,以前还说过气了就去拍av呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这句话莫名其妙的涩气
+<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">人头麦有了，那asmr应该不远了
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">这孩子早已不是原来模样，已经不爱了
+
+
+
+
+
+
+
+-----
+
+####  airclab  
+##### 15345#       发表于 2020-6-28 11:43
+
+
+
+
+不H的ASMR？  搞个助眠的吧！ 千万不要生草的
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15346#       发表于 2020-6-28 11:48
+
+
+
+
+我已经帮她规划好了，快进到毕业麻酱偶像事务所出道中途下海隐退后结婚生子直播asmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15347#       发表于 2020-6-28 11:48
+
+
+
+
+只说了是用人头麦录的，说不定能吓死人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15348#       发表于 2020-6-28 11:49
+
+
+
+
+小绿那种单纯的轻声说话都被她说是和av一样，估计也就那样了
+
+
+
+
+
+
+
+-----
+
+####  whbstc4545  
+##### 15349#       发表于 2020-6-28 11:52
+
+
+
+
+小绿业务不熟练，虽然声音可以，但听着难以入睡，感觉音量还要调调
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15350#       发表于 2020-6-28 11:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这么菜的吗，那我不补了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15351#       发表于 2020-6-28 11:56
+
+
+
+
+可是软软的如月真的很瑟啊，她第一次播奥数发现自己开错麦的那段我差点就被脑控了，还好我意志坚定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15352#       发表于 2020-6-28 11:57
+
+
+
+
+这个笑死我了，高能[https://b23.tv/pg3bxz](https://b23.tv/pg3bxz)
+
+<img src="https://img.saraba1st.com/forum/202006/28/115730arg7e6k30fd6d6el.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20200628_115620.png</strong> (587.3 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-28 11:57 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15353#       发表于 2020-6-28 12:06
+
+
+
+
+真就每年都有啊<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15354#       发表于 2020-6-28 12:08
+
+
+
+
+挺好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15355#       发表于 2020-6-28 12:09
+
+
+
+
+看来贴贴人真的不可能死绝了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15356#       发表于 2020-6-28 12:09
+
+
+
+
+周年快乐(づ ●─● )づ咩咩，可惜晚上有事赶不上了(눈_눈)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15357#       发表于 2020-6-28 12:11
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-28 12:13 编辑 
+
+发生了啥，你们倒是上个图啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+好吧看到了，整了个pv歌啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15358#       发表于 2020-6-28 12:14
+
+
+
+
+挺好<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15359#       发表于 2020-6-28 12:14
+
+
+
+
+粉毛又在阿b给咩庆祝404二周年了呗，都取关了找了半天才发现，有人看完了吗，写手写信了🐴，看见那个制作委员会有丶不想看了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15360#       发表于 2020-6-28 12:15
+
+
+
+
+二周年快乐，希望你能快快乐乐的继续直播下去
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15361#       发表于 2020-6-28 12:16
+
+
+
+
+晚上mea的tc还提到meaqua和大亏什么的来着，估计今年两人周年也是互送pv吧
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15362#       发表于 2020-6-28 12:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">诸位投资者不要慌，且过完今天再急着贷款（
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 15363#       发表于 2020-6-28 12:17
+
+
+
+
+啊她要是在404也投了就(눈_눈)......算了
+
+
+
+
+
+
+
+-----
+
+####  椎名mahuyo  
+##### 15364#       发表于 2020-6-28 12:17
+
+
+
+
+離れていても気持ちはずっと一緒だよ！
+-By 湊あくあ
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15365#       发表于 2020-6-28 12:19
+
+
+
+
+这前半句有点意味深长
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15366#       发表于 2020-6-28 12:19
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-28 12:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982863&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-28 12:16</a>
+
+晚上mea的tc还提到meaqua和大亏什么的来着，估计今年两人周年也是互送pv吧</blockquote>
+那个说的是当初学做封面参考了阿夸的
+
+meaqua说的是那个油管b站双台pubg，难得的联动，事后认真做了封面，虽然做得很丑
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15367#       发表于 2020-6-28 12:19
+
+
+
+
+不太懂歌，不过这个直接用的原伴奏发不了404吧，去年俩人互送的歌也是b站的
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15368#       发表于 2020-6-28 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要我笑吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">亏哥404二周年互动都不互动还隔这b站贴贴呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">真的谢谢了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 15369#       发表于 2020-6-28 12:20
+
+
+
+
+https://b23.tv/FYEQJn
+只要用词可爱就算肥宅也可以
+快发你楼创作的原创曲曲名
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15370#       发表于 2020-6-28 12:20
+
+
+
+
+就这？就这？我姑且等到晚上再发疯，给某人一天时间好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦，只剩半天了呀
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15371#       发表于 2020-6-28 12:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982908&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-28 12:19</a>
+
+那个说的是当初学做封面参考了阿夸的</blockquote>
+没仔细听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是估计着今年也会送
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15372#       发表于 2020-6-28 12:21
+
+
+
+
+今天这个日子还是少发散吧。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15373#       发表于 2020-6-28 12:22
+
+
+
+
+明天再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15374#       发表于 2020-6-28 12:22
+
+
+
+
+想笑
+
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 15375#       发表于 2020-6-28 12:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">有PV也挺好。meaqua贴贴（今日限定
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 15376#       发表于 2020-6-28 12:24
+
+
+
+
+有事也等明天再车好吗
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15377#       发表于 2020-6-28 12:24
+
+
+
+[https://bbs.saraba1st.com/2b/thread-1937450-1-1.html](https://bbs.saraba1st.com/2b/thread-1937450-1-1.html)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贷款的建议右转这楼
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15378#       发表于 2020-6-28 12:25
+
+
+
+
+不过有一说一，也没拉上咩号联合，也说不了什么好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15379#       发表于 2020-6-28 12:27
+
+
+
+
+这贴贴画面都是些陈年旧事，把人当sb？
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15380#       发表于 2020-6-28 12:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983029&amp;ptid=1929631" target="_blank">IrisL 发表于 2020-6-28 12:27</a>
+
+这贴贴画面都是些陈年旧事，把人当sb？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得当你是挺合适的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15381#       发表于 2020-6-28 12:30
+
+
+
+
+就算全是新画面也总能找到角度的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如楼下
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15382#       发表于 2020-6-28 12:30
+
+
+
+ 本帖最后由 Ky·Kiske 于 2020-6-28 12:32 编辑 
+
+隔壁送PV是越来越诡异，要是真本人说的为啥不在404直接说
+
+要么hololive这个资本做大了想要控制旗下艺人
+
+要么……
+
+这个赠言，分手信？
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 15383#       发表于 2020-6-28 12:31
+
+
+
+
+得了得了，车大夸的出去车，mk2外面等着你们那
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15384#       发表于 2020-6-28 12:32
+
+
+
+<blockquote>weiweiEX 发表于 2020-6-28 12:28
+我觉得当你是挺合适的</blockquote>
+嘻❤️嘻，当❤️你❤️也❤️不❤️赖❤️嘛❤️，你❤️真❤️棒，要❤️是❤️我❤️有❤️龙❤️宝❤️这❤️么聪❤️明❤️就❤️好❤️了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15385#       发表于 2020-6-28 12:32
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-28 12:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983083&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-6-28 12:30</a>
+
+隔壁送PV是越来越诡异，要是真本人说的为啥不在404直接说
+
+要么hololive这个资本做大了想要控制旗下艺人
+
+要 ...</blockquote>
+有啥可猜的，周年送个pv能吃mea块肉还能怎么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啥可发散的可以去隔壁贴贴楼咱慢慢聊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直觉得是弱智的就是，楼上这种对贴贴和我的事比mea兴趣还大的人
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 15386#       发表于 2020-6-28 12:34
+
+
+
+
+你们为了cp打架的能不能出去打，今天挺高兴的不想看你们打架。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">信不信我带头车舞元774
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 15387#       发表于 2020-6-28 12:35
+
+
+
+
+啊这，挺好的，敷衍一下cn这边的贴贴NT，免得他们发病<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15388#       发表于 2020-6-28 12:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983137&amp;ptid=1929631" target="_blank">草牛 发表于 2020-6-28 12:34</a>
+
+你们为了cp打架的能不能出去打，今天挺高兴的不想看你们打架。信不信我带头车舞元774 ...</blockquote>
+5mea是打另一波人的啊，别把他们拉下来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我早就说了有些人对车贴贴的兴趣比对mea兴趣都大了，mea2周年来个meaqua pv就给他们炸出来了
+
+
+总之车cp还是建议左转
+[https://bbs.saraba1st.com/2b/thread-1937450-12-1.html](https://bbs.saraba1st.com/2b/thread-1937450-12-1.html)
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15389#       发表于 2020-6-28 12:39
+
+
+
+
+突然有个问题，那个地区的红sc价格最低啊？本来想走sl可她又说喜欢直播间里有颜色，有些纠结（说白了是没钱）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15390#       发表于 2020-6-28 12:39
+
+
+
+
+带头的过分了，至少今天别<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 15391#       发表于 2020-6-28 12:40
+
+
+
+<blockquote>weiweiEX 发表于 2020-6-28 12:32
+有啥可猜的，周年送个pv能吃mea块肉还能怎么的有啥可发散的可以去隔壁贴贴楼咱慢慢聊
+
+我一 ...</blockquote>
+太聪明了，龙宝!!!不愧是文曲星下凡，给我定性真是帮大忙了，你下定义的水平真是比肩罗纳尔多和贝多芬啊!!❤️了❤️了
+
+
+
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 15392#       发表于 2020-6-28 12:41
+
+
+
+
+免了我真没时间再慢慢讨论这个问题，很蠢
+
+隔壁的隔壁CP楼也基本都预设好方向了，看看就行不想多说
+
+我觉得诡异那就是真的觉得诡异不带yygq，真要yygq我才懒得说话
+
+
+这要真是分手信，心里还是有点不是滋味
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15393#       发表于 2020-6-28 12:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983200&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-28 12:39</a>
+
+突然有个问题，那个地区的红sc价格最低啊？本来想走sl可她又说喜欢直播间里有颜色，有些纠结（说白了是没钱 ...</blockquote>
+好像台币付的话比较便宜？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有哪个东南亚国家的货币也挺便宜，忘了哪个了，去隔壁v综问问吧
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15394#       发表于 2020-6-28 12:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">算了，再车这事也太空洞无趣了，要聊去隔壁聊哦
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15395#       发表于 2020-6-28 12:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983215&amp;ptid=1929631" target="_blank">Ky·Kiske 发表于 2020-6-28 12:41</a>
+
+免了我真没时间再慢慢讨论这个问题，很蠢
+
+隔壁的隔壁CP楼也基本都预设好方向了，看看就行不想多说
+
+我觉得诡 ...</blockquote>
+真要发散她那句“就算分开心也会一直在一起的哦”也能看出点东西，但再往下一没啥信息，二感觉和mea关系不大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就不在这扯了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15396#       发表于 2020-6-28 12:45
+
+
+
+
+能有啥分手信呢，做二周年封面时都在那语聊
+
+404什么情况鬼知道，本人都没意见那就当是共同的决定了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15397#       发表于 2020-6-28 12:49
+
+
+
+ 本帖最后由 A2014720 于 2020-6-28 12:51 编辑 
+
+拒绝黑泥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15398#       发表于 2020-6-28 12:49
+
+
+
+
+现在补录播至少来得及啊，两个半小时呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 15399#       发表于 2020-6-28 12:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983224&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-06-28 12:41:57</a>
+好像台币付的话比较便宜？还有哪个东南亚国家的货币也挺便宜，忘了哪个了，去隔壁v综问问吧 ...</blockquote>好的，不过谷歌转区是不是很麻烦啊，别搞不好报销一个账号，想了想还是老老实实打港区的sc吧，虽然不多也算是自我满足了，她刚过收益化那会的万国来朝是真的好玩
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  雪代suzuno  
+##### 15400#       发表于 2020-6-28 13:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这有啥可说的，下面不是aqua1周年mea送翻唱吗。
+倒不如说，holo是个啥情况，公司来说果然还是数字重要吧。
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 15401#       发表于 2020-6-28 13:10
+
+
+
+
+能不能痛快点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不喜欢贴贴，恶心亏皇，可不可以痛快点个取关？还非要硬看？点踩取关好吗
+mea自己在频道里提她，我自认倒霉无趣；苔姨那种突然把两人整来的，我更恨苔姨，因此前两天也取关了；大亏号更是早就取关了。不喜欢至少可以选择不看，杀不了贴贴人，至少我不去他们扎堆的地方。官组转发fanart关于有贴贴图的我都会避开点赞，出贴贴肉我就点踩。
+
+
+
+
+
+
+
+-----
+
+####  99726182@qq.com  
+##### 15402#       发表于 2020-6-28 13:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983200&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-28 12:39</a>
+
+突然有个问题，那个地区的红sc价格最低啊？本来想走sl可她又说喜欢直播间里有颜色，有些纠结（说白了是没钱 ...</blockquote>
+俄罗斯和印度卢布，一个红sc大概不到200rmb，需要有原生IP的梯子和信用卡
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好便宜草|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15403#       发表于 2020-6-28 13:12
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">乐一乐就完了，大好日子的…
+看群里投票奶3d直播的占了绝大多数啊，梦做的有点大吧估计最多最多是把模型展示一下，之后再用……好像没这种玩法？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  oifaker  
+##### 15404#       发表于 2020-6-28 13:14
+
+
+
+
+其实稍微车一下贴贴就出来讲把车贴贴看得比mea还重，这种我觉得也是蛮怪的，毕竟可以说是相关话题，现在mea也没播，车两局的人大部分也不是对直播内容一言不发就为了车贴贴才在楼里说话的吧，这也高强度出警是不是有点反应过度了。
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15405#       发表于 2020-6-28 13:15
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">她要能在重大发表的最后展现个3D模型的背影啥的在下就不黑你咩是个憨憨了（
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15406#       发表于 2020-6-28 13:16
+
+
+
+
+3d顶多晒个模型的边边角角，没确定好时间应该不会开始宣传
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15407#       发表于 2020-6-28 13:18
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-28 13:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983591&amp;ptid=1929631" target="_blank">oifaker 发表于 2020-6-28 13:14</a>
+
+其实稍微车一下贴贴就出来讲把车贴贴看得比mea还重，这种我觉得也是蛮怪的，毕竟可以说是相关话题，现在mea ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我主要是针对那一个人印象比较深，最近他不仅对贴贴，看起来对我兴趣都挺大的，没事就想申请互动
+
+
+
+
+
+
+
+-----
+
+####  yuyuyuyu  
+##### 15408#       发表于 2020-6-28 13:20
+
+
+
+
+(இωஇ )想看会动的咩咩
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 15409#       发表于 2020-6-28 13:34
+
+
+
+
+想看她抖脚<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15410#       发表于 2020-6-28 13:36
+
+
+
+
+想看mea打军体拳<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15411#       发表于 2020-6-28 13:38
+
+
+
+
+想看mea发z招式（弱智）
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 15412#       发表于 2020-6-28 13:40
+
+
+
+
+原来m楼有拉权限的吗 当了一段时间视奸人都没发现 注册的时候用了扣扣号 感觉被实名了 
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15413#       发表于 2020-6-28 13:46
+
+
+
+
+午睡会，睡醒就能看咩了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 15414#       发表于 2020-6-28 13:48
+
+
+
+
+还是发情和弱智好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+有梦就做大点,等一个3d后的做指令动作的回
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 15415#       发表于 2020-6-28 13:55
+
+
+
+<blockquote>暗心舞踏 发表于 2020-6-28 12:45
+能有啥分手信呢，做二周年封面时都在那语聊
+
+404什么情况鬼知道，本人都没意见那就当是共同的决定了 ...</blockquote>
+做封面在聊天是哪段啊，我怎么没听到有提及
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 暗心舞踏| + 1|前天晚上的油管杂谈|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  stageKK  
+##### 15416#       发表于 2020-6-28 13:58
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983851&amp;ptid=1929631" target="_blank">295405468 发表于 2020-6-28 13:40</a>
+
+原来m楼有拉权限的吗 当了一段时间视奸人都没发现 注册的时候用了扣扣号 感觉被实名了  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不说其实没啥人会联想到QQ
+
+
+
+
+
+                                    
