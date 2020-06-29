@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-30 00:04** 
+> ## **本文件最后更新于2020-06-30 02:04** 
 
 
 
@@ -9303,7 +9303,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_g92Md" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_SlzKw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16344,7 +16344,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_xczSc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_rDB3d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -21789,8 +21789,11 @@ xby打了sc? <img src="https://static.saraba1st.com/image/smiley/face2017/021.pn
 
 
 
+ 本帖最后由 甘栗No.007 于 2020-6-30 00:05 编辑 
 
 他跑去跳脸了？刚刚在后台刷手游<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+看到了，建议下次打5000以便更加醒目
 
 
 
@@ -21828,4 +21831,759 @@ xby打了sc? <img src="https://static.saraba1st.com/image/smiley/face2017/021.pn
 
 
 
-        
+
+
+-----
+
+####  A2014720  
+##### 16240#       发表于 2020-6-30 00:04
+
+
+
+
+bsyl，这首太强了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16241#       发表于 2020-6-30 00:05
+
+
+
+
+很明显是打给你楼看的
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16242#       发表于 2020-6-30 00:05
+
+
+
+
+看了那个号没关注咩官号，但关注了一些咩字幕组的人和海盗，以及阿菜
+
+xby打了1000sc，纯度太高了，大概是33个v8的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16243#       发表于 2020-6-30 00:06
+
+
+
+
+本质上还是推咩的？你们不是说他云的吗？还是舰长。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16244#       发表于 2020-6-30 00:06
+
+
+
+
+那不管了，反正挂的时间不长，咩咩下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。虽然他是nt，但是谢谢他的钱。
+
+
+安心睡觉，爽了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16245#       发表于 2020-6-30 00:06
+
+
+
+
+xby=33个v8fw公式成立
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 16246#       发表于 2020-6-30 00:07
+
+
+
+
+我啊丢呢<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  jhouo8989  
+##### 16247#       发表于 2020-6-30 00:07
+
+
+
+
+这个b站号我记得一直有上舰的，真没想到是小博鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16248#       发表于 2020-6-30 00:07
+
+
+
+
+无聊，睡了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16249#       发表于 2020-6-30 00:07
+
+
+
+
+爽了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Zhudhh  
+##### 16250#       发表于 2020-6-30 00:07
+
+
+
+
+好像已经被删了
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16251#       发表于 2020-6-30 00:07
+
+
+
+
+yysy，1000sc还真挺多的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16252#       发表于 2020-6-30 00:08
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-30 00:09 编辑 
+
+m楼加个权限就能给咩送1000，不亏<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+而且被撤的也快，clay干的么？<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16253#       发表于 2020-6-30 00:08
+
+
+
+
+那多打点多打点，孩子爱看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是咩楼关门之后，xby疯上加疯变成这样打1000sc当厄介，那在座的各位都是有功劳的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16254#       发表于 2020-6-30 00:08
+
+
+
+
+有钱多打点，反正打多少都是nt，不如把家当都打出来
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16255#       发表于 2020-6-30 00:08
+
+
+
+
+两位女仆的聊天流pubg入坑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 16256#       发表于 2020-6-30 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 原来是xby 下了血本
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16257#       发表于 2020-6-30 00:09
+
+
+
+
+m楼立功了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16258#       发表于 2020-6-30 00:12
+
+
+
+
+xby是哪个？是那个处女最高的sc吗？
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16259#       发表于 2020-6-30 00:14
+
+
+
+
+xby是谁？
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16260#       发表于 2020-6-30 00:14
+
+
+
+
+无语。。。省点钱对自己好点，魔怔了不如把管人彻底踢出自己的生活
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16261#       发表于 2020-6-30 00:15
+
+
+
+
+直播时长
+
+2小时
+
+营收
+
+66,535
+
+不错了不错了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16262#       发表于 2020-6-30 00:17
+
+
+
+ 本帖最后由 単推し人 于 2020-6-30 00:18 编辑 
+
+草，是我观感扭曲了吗，甚至没觉得处女最高这个sc有多厄介<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">他发的时候看到就稍微感觉有点奇怪这种
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16263#       发表于 2020-6-30 00:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48004428&amp;ptid=1929631" target="_blank">kolu33 发表于 2020-6-30 00:14</a>
+
+xby是谁？</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1937846-1-1.html](https://bbs.saraba1st.com/2b/thread-1937846-1-1.html)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16264#       发表于 2020-6-30 00:18
+
+
+
+
+这数据还要怎样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不懂的人只会觉得很奇怪吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16265#       发表于 2020-6-30 00:20
+
+
+
+
+昨天输出完了，今天可以了好吧，我都还在继续等着她ddd和17号阿b二周年呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16266#       发表于 2020-6-30 00:20
+
+
+
+
+然后再多过半个月还有生日（
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16267#       发表于 2020-6-30 00:26
+
+
+
+
+生日改221多好，现在这就很虚无<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16268#       发表于 2020-6-30 00:28
+
+
+
+ 本帖最后由 単推し人 于 2020-6-30 00:39 编辑 
+
+了解了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16269#       发表于 2020-6-30 00:34
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-30 00:40 编辑 
+<blockquote>1</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16270#       发表于 2020-6-30 00:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼gachi的末路
+
+
+
+
+
+
+
+-----
+
+####  ⑨个饼干  
+##### 16271#       发表于 2020-6-30 00:37
+
+
+
+
+这数据不错了，也不看看管人这个月什么水平，有端午斗虫的情况下还是一团稀泥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16272#       发表于 2020-6-30 00:37
+
+
+
+
+那句话确实是出自游戏的，也不是盒限就是谁都能挤进去的那个抢答游戏。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只不过单独打钱的时候拎出来不是很奇怪么，顺便已经确定是xby了吗，似乎不是第一次见那个人了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16273#       发表于 2020-6-30 00:38
+
+
+
+
+翻了一下排行，本月第二了，不要再说还不错了，想把别人气死啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16274#       发表于 2020-6-30 00:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看icu那个站是7.49w啊，为什么斗虫站是6.65w，可能有过12点的情况吧，还是得明天刷新了再看，总的来说还可以了，这两天挺满足，睡了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16275#       发表于 2020-6-30 00:43
+
+
+
+
+只能说不是我，提醒一下，sc只能有号的人删，接下来我就不说了。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16276#       发表于 2020-6-30 00:49
+
+
+
+
+这clay，把抗鱼英雄的名号推掉了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16277#       发表于 2020-6-30 00:56
+
+
+
+ 本帖最后由 路人庚 于 2020-6-30 00:57 编辑 
+
+还好摸了下手机，20分钟前发了个饭盒，还有新签名
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16278#       发表于 2020-6-30 01:01
+
+
+
+
+确实，过了24点还有自动续费来着。如果是7w营收换算一下也有100w+日元了，还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16279#       发表于 2020-6-30 01:39
+
+
+
+
+这样看今天营收也就比昨天高一些的样子吧，我还以为会高不少呢，不过考虑到很多人是两边都打钱的，本土盘的打钱力还是不太行啊
+
+
+
+
+
+
+15.JPG
+(77.62 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-6-30 01:36 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/30/013631vhnzha66irrfikoh.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16280#       发表于 2020-6-30 01:42
+
+
+
+
+本土盘…<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16281#       发表于 2020-6-30 01:50
+
+
+
+
+现在豆大福和vtbmoe都炸了，不然我还挺想看看收入的具体统计的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16282#       发表于 2020-6-30 01:58
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/30/015805ibbv0m3qc5qfvv05.jpg" referrerpolicy="no-referrer">
+
+
+<strong>R~UZ9RO}JME1FN40R8M()@W.jpg</strong> (732.11 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-30 01:58 上传
+
+
+
+
+
+
+
+
+
+
+       

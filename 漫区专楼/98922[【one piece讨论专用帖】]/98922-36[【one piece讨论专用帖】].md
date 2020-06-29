@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-20 10:00** 
+> ## **本文件最后更新于2020-06-30 02:00** 
 
 
 
@@ -7743,4 +7743,598 @@ boku，應該是個年輕人(切嗣：是嗎)</blockquote>海贼里的男角色�
 
 
 
-                                   
+
+
+-----
+
+####  hkguty  
+##### 52924#       发表于 2020-6-20 13:50
+
+
+
+
+感觉路飞也差不多该升级了吧，例如能力觉醒之类的，不然打凯多感觉还是难
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 52925#       发表于 2020-6-20 13:53
+
+
+
+
+刚升级过流樱啊
+
+
+
+
+
+
+
+-----
+
+####  hagane  
+##### 52926#       发表于 2020-6-20 15:45
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说，这一话的好几个分镜你们看得懂吗
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52927#       发表于 2020-6-20 16:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47875422&amp;ptid=98922" target="_blank">hagane 发表于 2020-6-20 13:53</a>
+刚升级过流樱啊</blockquote>
+没升级完成.时灵时不灵.
+
+
+
+
+
+
+
+-----
+
+####  Renes  
+##### 52928#       发表于 2020-6-20 18:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876676&amp;ptid=98922" target="_blank">hagane 发表于 2020-6-20 15:45</a>
+
+话说，这一话的好几个分镜你们看得懂吗</blockquote>
+基本都看的懂吧 有几个分镜主要是画面细节不容易看清 外加需要脑补下过程
+
+
+
+
+
+
+
+-----
+
+####  饭太稀  
+##### 52929#       发表于 2020-6-20 19:36
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872381&amp;ptid=98922" target="_blank">Renes 发表于 2020-6-20 09:21</a>
+
+五皇的四档是不是也常态化了 打卡二的时候就只字不提副作用10分钟怎么没被打死 现在想用就用 打个六子都要 ...</blockquote>
+打卡二的时候10分钟虚弱期是靠绑架布蕾在镜世界跑跑抓躲过去的吧，我记得有一期读者问答还专门解释，德岛的时候因为正好有人背所以就节约体力不自己跑路了，没人的话可以自己开溜
+
+
+
+
+
+
+
+-----
+
+####  Yeaha123  
+##### 52930#       发表于 2020-6-20 21:59
+
+
+
+
+怎么路飞老是吃瘪
+
+
+
+
+
+
+
+-----
+
+####  小野寺熊介  
+##### 52931#       发表于 2020-6-20 23:14
+
+
+
+
+目前来看，大和最后还是会和路飞结盟
+
+因为现在来看，路飞利用卡二，大和，红发，艾斯的关系，团结旧四皇团，成为海贼王的可能性非常高。。
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52932#       发表于 2020-6-20 23:39
+
+
+
+
+大和彬彬有禮，路飛嘴上說有急事也就這麼乖乖讓他帶走了，兩位真是儒雅隨和。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  athena_1982  
+##### 52933#       发表于 2020-6-21 00:59
+
+
+
+
+问个问题，大和那个姿势在很多地方都看到过（银魂里的次郎长，我是大哥大里也有），在日本有什么特别的说法吗？
+
+
+
+
+
+
+
+-----
+
+####  被子十三  
+##### 52934#       发表于 2020-6-21 04:14
+
+
+
+
+六子里面有德雷克，而同样是超新星的霍金斯和阿普甚至没资格升到六子，至少说明还是有实力的吧。虽然PG1第一次被山治一脚踢晕，第二次被三档一拳打晕确实很掉价
+
+
+
+
+
+
+
+-----
+
+####  牧濑紅莉栖  
+##### 52935#       发表于 2020-6-21 06:07
+
+
+
+ 本帖最后由 牧濑紅莉栖 于 2020-6-21 06:09 编辑 
+
+鬼人阿金这个梗也快赶上鹰眼不是七武海了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://dingyue.ws.126.net/2020/0516/1b6e20c7j00qafge3001lc000hs00dom.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zodiac137  
+##### 52936#       发表于 2020-6-21 08:40
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885004&amp;ptid=98922" target="_blank">被子十三 发表于 2020-6-21 04:14</a>
+
+六子里面有德雷克，而同样是超新星的霍金斯和阿普甚至没资格升到六子，至少说明还是有实力的吧。虽然PG1第 ...</blockquote>
+现在看来凯多就是喜欢恐龙系的，三灾2个恐龙，六子里3个恐龙，感觉德雷克能当六子和他的果实是恐龙还是有关系的
+
+
+
+
+
+
+
+-----
+
+####  宅之猴晒阴  
+##### 52937#       发表于 2020-6-21 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885686&amp;ptid=98922" target="_blank">zodiac137 发表于 2020-6-21 08:40</a>
+
+现在看来凯多就是喜欢恐龙系的，三灾2个恐龙，六子里3个恐龙，感觉德雷克能当六子和他的果实是恐龙还是有 ...</blockquote>
+就跟大妈手下大部分都是食物果实一样，感觉四皇想要啥果实就能拿到一样。
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 52938#       发表于 2020-6-21 14:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883780&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-06-21 00:59:34</a>
+问个问题，大和那个姿势在很多地方都看到过（银魂里的次郎长，我是大哥大里也有），在日本有什么特别的说法 ...</blockquote>大和哪個姿勢啊。如果是扎馬步伸出一隻手，這個是渡世人的經典姿勢。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52939#       发表于 2020-6-21 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47820465&amp;ptid=98922" target="_blank">satanas 发表于 2020-6-16 00:50</a>
+
+传次郎为啥不把捉到那个6子杀了 感觉这里是有文章的
+
+凯多一如之前的塑造 惯例的外表傻大粗 但偶尔又会露出 ...</blockquote>
+因为是少年漫画，对杀人这种事一直很节制。<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 52940#       发表于 2020-6-21 19:58
+
+
+
+ 本帖最后由 C男人 于 2020-6-21 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47883780&amp;ptid=98922" target="_blank">athena_1982 发表于 2020-6-21 00:59</a>
+
+问个问题，大和那个姿势在很多地方都看到过（银魂里的次郎长，我是大哥大里也有），在日本有什么特别的说法 ...</blockquote>
+是指这个姿势吧？
+
+
+任侠作品里经常出现呢，不知道有没有特定称谓。
+
+
+<img src="https://img.saraba1st.com/forum/202006/21/201028l9p8km1pk2m1h112.jpg" referrerpolicy="no-referrer">
+
+
+<strong>002.jpg</strong> (334.51 KB, 下载次数: 0)
+
+下载附件
+
+2020-6-21 20:10 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  机动妖精  
+##### 52941#       发表于 2020-6-21 20:07
+
+
+
+
+凯多儿子是草帽粉丝？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+准备上船吗
+
+
+
+
+
+
+
+-----
+
+####  仟音一心  
+##### 52942#       发表于 2020-6-21 20:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47893615&amp;ptid=98922" target="_blank">机动妖精 发表于 2020-6-21 20:07</a>
+凯多儿子是草帽粉丝？
+
+准备上船吗</blockquote>
+想多了，应该是打倒凯多后让大和接管百兽团不再在和之国作恶。
+
+
+
+
+
+
+
+-----
+
+####  偷笑同党  
+##### 52943#       发表于 2020-6-21 20:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47876676&amp;ptid=98922" target="_blank">hagane 发表于 2020-6-20 15:45</a>
+
+话说，这一话的好几个分镜你们看得懂吗</blockquote>
+路飞跑到PG1嘴下这一页感觉很突兀
+
+
+
+
+
+
+
+-----
+
+####  机动妖精  
+##### 52944#       发表于 2020-6-21 20:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47893689&amp;ptid=98922" target="_blank">偷笑同党 发表于 2020-6-21 20:13</a>
+
+路飞跑到PG1嘴下这一页感觉很突兀</blockquote>
+这个我盯着理解了好几秒，橡皮手抓天花板，向上逃走的同时，瞬身到地板
+
+
+
+
+
+
+
+-----
+
+####  icewolf01  
+##### 52945#       发表于 2020-6-21 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47872669&amp;ptid=98922" target="_blank">六次方 发表于 2020-6-20 09:52</a>
+
+我还以为乌尔缇头上的角是装饰品，现在看来是真的？但她的果实原型是没角的啊 ...</blockquote>
+种族自带的吧
+
+OP里长角的也不是头一次出现了……
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52946#       发表于 2020-6-21 22:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47871380&amp;ptid=98922" target="_blank">hkguty 发表于 2020-6-20 03:40</a>
+
+然而两姐弟感觉都挺菜的，或者应该说是挺没牌面的，老姐一话之内就曝光两个形态还被儿子一击打昏，前面一副 ...</blockquote>
+兄啊，那招是一下秒五皇四档的雷鸣八卦，秒个凌空六子有什么奇怪的，动物系不觉醒又不是很厉害
+
+
+
+
+
+
+
+-----
+
+####  hkguty  
+##### 52947#       发表于 2020-6-21 22:45
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47895235&amp;ptid=98922" target="_blank">光明寺茉衣子 发表于 2020-6-21 22:08</a>
+
+兄啊，那招是一下秒五皇四档的雷鸣八卦，秒个凌空六子有什么奇怪的，动物系不觉醒又不是很厉害 ...</blockquote>
+儿子的八卦跟老爹的八卦明显还是有差距的
+
+
+
+
+
+
+
+-----
+
+####  光明寺茉衣子  
+##### 52948#       发表于 2020-6-21 22:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47895647&amp;ptid=98922" target="_blank">hkguty 发表于 2020-6-21 22:45</a>
+
+儿子的八卦跟老爹的八卦明显还是有差距的</blockquote>
+乌尔提和五黄也有差距啊
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 52949#       发表于 2020-6-22 02:04
+
+
+
+
+正版挺好看懂的，现在OP涂太满，盗版根本看不清细节啊。
+
+
+
+
+
+
+
+-----
+
+####  rryu  
+##### 52950#       发表于 2020-6-22 12:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47893470&amp;ptid=98922" target="_blank">C男人 发表于 2020-6-21 19:58</a>
+是指这个姿势吧？
+
+
+任侠作品里经常出现呢，不知道有没有特定称谓。</blockquote>
+仁義を切る
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  垃垃藻  
+##### 52951#       发表于 2020-6-22 13:05
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47885004&amp;ptid=98922" target="_blank">被子十三 发表于 2020-6-21 04:14</a>
+
+六子里面有德雷克，而同样是超新星的霍金斯和阿普甚至没资格升到六子，至少说明还是有实力的吧。虽然PG1第 ...</blockquote>
+说明超新星是独一档的，就跟特拉仔做了几年七武海一样，没有成为六子只是不想当<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 52952#       发表于 2020-6-23 05:45
+
+cao
+
+
+ 本帖最后由 灰狼 于 2020-6-23 06:07 编辑 
+
+艹
+
+发错楼了，编辑掉
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52953#       发表于 2020-6-30 01:07
+
+
+
+
+【来自国外二传手翻译，看看就好，有更可靠的我们会更新。】
+-佩吉万和乌尔缇没事并且恢复了意识，百兽团杂鱼们说恐龙能力者们非常结实
+-大和想找个没有凯多部下的地方和路飞说话，路飞说他五秒就能解决那些杂鱼，大和反对然后制造出烟幕
+-武士们闯入宴会厅，罗从潜水艇查看计划有没有顺利进行
+-以藏和小菊见面
+-路飞给大和五分钟让他讲话，大和说他被御田的处刑震撼了，想完成他的目标。
+-大和的面具掉下，他是一个美丽的“女人（？？？）”，以前和艾斯有交集，大和看着路飞，想起了艾斯。
+转talkop
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  萝卜roto  
+##### 52954#       发表于 2020-6-30 01:11
+
+
+
+
+住口,你个逆子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52955#       发表于 2020-6-30 01:40
+
+
+
+
+大和戴面具怕不是尾田看兰陵王看多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就御田当时见鬼的脑回路还能光凭临死的豪气继承他梦想，倒是能和五黄相互理解.别说是最后一个上船的吧，而且战后桃之助这地位就很尴尬了.毕竟凯多+大蛇没必要演路宝，大和可能真的被御田傻气传染了。
+大妈团因为丑不敢露脸的卡二和因为长得像女人带面具的大和<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">宿敌预定
+
+
+
+
+
+                                  
