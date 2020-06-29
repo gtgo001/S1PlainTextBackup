@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-29 00:03** 
+> ## **本文件最后更新于2020-06-29 10:02** 
 
 
 
@@ -9303,7 +9303,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_d0638" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_uzYJy" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16344,7 +16344,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_TccZr" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_F7tsQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -17198,4 +17198,456 @@ recording bot
 
 
 
-                 
+
+
+-----
+
+####  诡秘侍者  
+##### 15965#       发表于 2020-6-29 00:04
+
+
+
+
+新人就新人吧，多个伴也挺好
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 15966#       发表于 2020-6-29 00:08
+
+
+
+
+mea刚刚唱的，热乎乎的雪之华剪辑
+[https://b23.tv/nTZNeG](https://b23.tv/nTZNeG)
+
+
+*听了之后一定会感受到快乐的天籁之音
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15967#       发表于 2020-6-29 00:23
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">时过境迁，mea已经是四个孩子的妈
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">希望以后可以给我生一个我喜欢的孩子
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 15968#       发表于 2020-6-29 00:41
+
+
+
+
+这样看来，草莓饺子的质量是真的高啊，阿b，你好强大
+
+
+
+
+
+
+
+-----
+
+####  格林卡罗尔  
+##### 15969#       发表于 2020-6-29 00:58
+
+
+
+ 本帖最后由 格林卡罗尔 于 2020-6-29 01:25 编辑 
+
+这新人太怪了，从上到下短发、项圈、锁、疑似内衣、只穿一件大衣、钥匙、皮带、缝皮丝带，充满了SM暗示
+
+今天没能看直播，去nga看了眼才知道大衣是防ban的，有完整立绘再说吧
+
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 15970#       发表于 2020-6-29 01:04
+
+
+
+
+不搞萌萌人设
+
+
+那么会是个歌力强化的类型吗<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 15971#       发表于 2020-6-29 01:06
+
+
+
+
+下个月好像有三分之一的时间出门不播,sad<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 15972#       发表于 2020-6-29 01:07
+
+
+
+
+这立绘不说还当是个男的
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 15973#       发表于 2020-6-29 01:13
+
+
+
+
+挺好，穿环紧身衣戳我XP
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15974#       发表于 2020-6-29 01:19
+
+
+
+
+新人有mea虐潜质吗，想看下克上了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15975#       发表于 2020-6-29 01:32
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">都是同种异色瞳，盲猜一个亲分
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15976#       发表于 2020-6-29 04:57
+
+
+
+<blockquote>お勧めVtuber：神楽めあ
+
+理由/散々燃えたのにその度全身すすだらけになりながらも消えずに生きてるタフガール。もう本人が言っている通り人でも頃さないと燃えないレベルにまで達したと思う。なので推してるVtuberが消えるのが嫌だ、炎上するのが怖いという方向け。不死鳥になれ、めあ。
+
+由
+
+翻译自 日语
+
+推荐的Vtuber：Kagura Mea原因/一个坚韧的女孩，虽然已经烧了很多东西，但整个身体还活着。正如我所说，我认为我已经达到了人们不转身就无法燃烧的程度。因此，我不喜欢我推动消失的Vtuber，以及那些害怕燃烧的人。成为凤凰，mea。</blockquote>
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 15977#       发表于 2020-6-29 07:20
+
+
+
+
+ 说的跟牛郎一样
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 15978#       发表于 2020-6-29 07:22
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 15979#       发表于 2020-6-29 07:24
+
+
+
+
+啊咩要成为一辉一样立派的圣斗士了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 15980#       发表于 2020-6-29 07:30
+
+
+
+
+激光烤肉（
+好快啊
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15981#       发表于 2020-6-29 07:35
+
+
+
+
+昨天杂谈的熟肉出来了
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 15982#       发表于 2020-6-29 07:49
+
+
+
+
+你楼点的激光烤肉<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 15983#       发表于 2020-6-29 08:16
+
+
+
+
+官组还是能干的啊
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 15984#       发表于 2020-6-29 08:38
+
+
+
+
+辛苦了
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15985#       发表于 2020-6-29 08:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">激光了好起来了，刚好再去回顾一下那个性感的嘴唇
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15986#       发表于 2020-6-29 08:50
+
+
+
+
+得想个法让她把模型交出来（
+
+
+
+
+
+
+
+-----
+
+####  dsylolicon  
+##### 15987#       发表于 2020-6-29 09:07
+
+
+
+
+想象中的更加萝莉一点
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 15988#       发表于 2020-6-29 09:09
+
+
+
+
+用奈子想都知道交出模型会发生什么所以她说过模型不会发布<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 15989#       发表于 2020-6-29 09:13
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没有柰子所以完全想不到呢（
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 15990#       发表于 2020-6-29 09:34
+
+
+
+
+只能等有能man复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 15991#       发表于 2020-6-29 09:55
+
+
+
+<blockquote>这阿咩的3d连嘴唇都做了，那么嘴唇里面的舌头会不会也顺便做一做</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有人说说其他人3D有伸舌头吗
+
+
+
+
+
+                
