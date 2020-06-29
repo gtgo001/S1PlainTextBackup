@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-30 02:04** 
+> ## **本文件最后更新于2020-06-30 06:02** 
 
 
 
@@ -5985,6 +5985,25 @@ tc突了，没我了
 
 
 
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kanonsisya|-1||
+
+
+
+查看全部评分
+
+
 
 
 
@@ -9303,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_SlzKw" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_rkBke" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16344,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_rDB3d" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_XJ70X" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -22586,4 +22605,237 @@ xby是谁？</blockquote>
 
 
 
-       
+
+
+-----
+
+####  proxima  
+##### 16283#       发表于 2020-6-30 02:23
+
+
+
+
+水友们，我有一句话要讲。老提前男友说明现在没有男朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你看苔宝提过前男友吗
+
+
+还是说其实是连女朋友以前交过男朋友都不能接受的类型，不至于吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16284#       发表于 2020-6-30 02:26
+
+
+
+
+能把前男友特出来吗,我蛮想知道咩宝喜欢哪种类型的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 16285#       发表于 2020-6-30 02:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48005293&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-6-30 02:26</a>
+
+能把前男友特出来吗,我蛮想知道咩宝喜欢哪种类型的</blockquote>
+帅的 有钱的 完毕
+
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16286#       发表于 2020-6-30 02:37
+
+
+
+
+这要是特了怕是有人怪文书去问小麻什么感觉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16287#       发表于 2020-6-30 02:54
+
+
+
+
+能特到前男友不就差不多能特到小麻身边了，就跟假设拿到小麻户口本差不多
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16288#       发表于 2020-6-30 03:42
+
+
+
+
+对死宅来说接受不了有前男友这种程度还挺正常的吧
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16289#       发表于 2020-6-30 03:54
+
+
+
+
+按她这描述十几岁就交的男友我觉得还蛮有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16290#       发表于 2020-6-30 04:08
+
+
+
+
+你麻辣妹人设挽回一分，至少衣品和化妆还行？
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 16291#       发表于 2020-6-30 04:12
+
+
+
+ 本帖最后由 千木唯 于 2020-6-30 04:13 编辑 
+
+她15，6岁左右的时候那有个p的化妆和衣品。所以这人每次说前男友我都感觉挺怪的，那时候敢要和鬼一样的麻，那是心有点大。
+
+不过很快就跑了也没差
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16292#       发表于 2020-6-30 04:31
+
+
+
+
+其实说的就是流星
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16293#       发表于 2020-6-30 04:51
+
+
+
+
+十五六岁哪来的钱养流星
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16294#       发表于 2020-6-30 05:02
+
+
+
+
+可能是云养牛郎
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16295#       发表于 2020-6-30 05:31
+
+
+
+
+草，原来没怀孕却肚子大了的是犬山，mea是留白其中草
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16296#       发表于 2020-6-30 05:41
+
+
+
+
+话说小绿和小紫是不是比小麻大啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">noe被mea说的好憨啊，真实小弟
+
+
+
+
+
+      
