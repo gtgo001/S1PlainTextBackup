@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-29 22:04** 
+> ## **本文件最后更新于2020-06-30 00:04** 
 
 
 
@@ -9303,7 +9303,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_aIdob" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_g92Md" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16344,7 +16344,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_FokwW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_xczSc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -19758,7 +19758,7 @@ zippo还行，仿佛是80后的爱好
 
 
 3467431273f08202a92c1f6e5cfbfbedaa641bd7.jpg
-(68.79 KB, 下载次数: 4)
+(68.79 KB, 下载次数: 5)
 
 
 
@@ -19886,4 +19886,1946 @@ zippo还行，仿佛是80后的爱好
 
 
 
-            
+
+
+-----
+
+####  兔耳僵尸  
+##### 16122#       发表于 2020-6-29 22:05
+
+
+
+
+开了
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16123#       发表于 2020-6-29 22:07
+
+
+
+
+最近好忙<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+b限吃饭<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16124#       发表于 2020-6-29 22:09
+
+
+
+
+实质吃播
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 16125#       发表于 2020-6-29 22:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">想看大可爱直播吃蛋包饭
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16126#       发表于 2020-6-29 22:14
+
+
+
+
+想起了某个周星驰的gif
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16127#       发表于 2020-6-29 22:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">真好吃啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16128#       发表于 2020-6-29 22:15
+
+
+
+
+怎么这么可爱啊突然<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16129#       发表于 2020-6-29 22:15
+
+
+
+
+太媚宅了我要谴责<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16130#       发表于 2020-6-29 22:16
+
+
+
+
+奥利给<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16131#       发表于 2020-6-29 22:17
+
+
+
+
+咩：奥利给！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16132#       发表于 2020-6-29 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16133#       发表于 2020-6-29 22:17
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥力给nmd
+
+
+
+
+
+
+
+-----
+
+####  kenjjj  
+##### 16134#       发表于 2020-6-29 22:17
+
+
+
+
+吃播配奥利给，真的是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16135#       发表于 2020-6-29 22:18
+
+
+
+
+干了兄弟们，奥利给！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16136#       发表于 2020-6-29 22:18
+
+
+
+
+日本抖音还有这玩意呢。。
+
+
+
+
+
+
+
+-----
+
+####  追风小星星  
+##### 16137#       发表于 2020-6-29 22:19
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 奥利给!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16138#       发表于 2020-6-29 22:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">奥利给这词本来也没啥固定意思，就给弹幕风评被害了（8先森全责
+
+
+
+
+
+
+
+-----
+
+####  gundamf91  
+##### 16139#       发表于 2020-6-29 22:23
+
+
+
+
+方舟指令今天有2周年特别剧情，可以去看一下
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16140#       发表于 2020-6-29 22:27
+
+
+
+
+这也太能吃了。一会唱歌不会喷胃酸拌饭吗。。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16141#       发表于 2020-6-29 22:28
+
+
+
+
+今天突然能对话了，日语浓度up,好起来了？
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 16142#       发表于 2020-6-29 22:29
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">总说虚无 再也找不到比今天更虚无的直播了
+
+
+甚至这个点听了都不饿
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16143#       发表于 2020-6-29 22:29
+
+
+
+
+确实。不过2周年非要来B限更多还是仪式感和给个交代的感觉
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16144#       发表于 2020-6-29 22:31
+
+
+
+
+今天下午还没想好内容是这样的啊
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16145#       发表于 2020-6-29 22:33
+
+
+
+
+老亚萨西了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+这人最近好懂啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16146#       发表于 2020-6-29 22:34
+
+
+
+
+我要rp女粉了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">，从今天开始
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 16147#       发表于 2020-6-29 22:35
+
+
+
+
+倒不是说内容虚无  管人就不适合做吃播
+
+
+又不是海苔男 比看美食文学还难受
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16148#       发表于 2020-6-29 22:36
+
+
+
+
+节目效果还行啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是我滤镜的原因吗
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16149#       发表于 2020-6-29 22:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对一只2周年重大发表之一是引流的随性羊期待不要太高
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16150#       发表于 2020-6-29 22:37
+
+
+
+
+我也觉得不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16151#       发表于 2020-6-29 22:37
+
+
+
+
+tc不都说了没想好播什么吗？
+
+心血来潮就是这样的
+
+奥利给那反而节目效果不错（？）
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16152#       发表于 2020-6-29 22:40
+
+
+
+
+黑屁自己草
+你黑屁mea，我🦈了你！
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16153#       发表于 2020-6-29 22:42
+
+
+
+
+今天还不错的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16154#       发表于 2020-6-29 22:43
+
+
+
+
+经典复读套娃<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16155#       发表于 2020-6-29 22:43
+
+
+
+
+草，好活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16156#       发表于 2020-6-29 22:43
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点意思
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16157#       发表于 2020-6-29 22:43
+
+
+
+
+这段真不虚无啊，笑到肚子疼
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16158#       发表于 2020-6-29 22:44
+
+
+
+
+求这段熟肉，笑抽了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16159#       发表于 2020-6-29 22:48
+
+
+
+
+现在这么说本土还会炎上嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+国籍互换不敢想啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16160#       发表于 2020-6-29 22:49
+
+
+
+
+我怎么听出了yygq的味道
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16161#       发表于 2020-6-29 22:49
+
+
+
+
+节目效果来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16162#       发表于 2020-6-29 22:50
+
+
+
+
+MD她自黑的熟练程度和顺手拈来的节目效果是真的让人羡慕。
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16163#       发表于 2020-6-29 22:51
+
+
+
+
+30w日元就可以交往
+好像降价了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16164#       发表于 2020-6-29 22:52
+
+
+
+
+有没有人跟她科普过阿b的会员价格啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。有几个石油佬远远够格啊
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16165#       发表于 2020-6-29 22:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">可爱就好
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16166#       发表于 2020-6-29 22:55
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊这，私联粉丝。渐行渐远了（
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 16167#       发表于 2020-6-29 22:55
+
+
+
+
+话说国姓爷不是女粉么，啥时候让羊知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+又可以神回一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16168#       发表于 2020-6-29 22:56
+
+
+
+
+？？啥？哪个是女粉？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 16169#       发表于 2020-6-29 22:57
+
+
+
+
+不知怎的想起DC老师
+
+
+太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16170#       发表于 2020-6-29 22:58
+
+
+
+
+财酱是女的??<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16171#       发表于 2020-6-29 22:59
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003528&amp;ptid=1929631" target="_blank">春风女神狄璐卡 发表于 2020-6-29 22:57</a>
+不知怎的想起DC老师
+
+
+太惨了</blockquote>
+怎么突然就董灿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+女粉这何止武德充沛啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16172#       发表于 2020-6-29 22:59
+
+
+
+
+真的假的，女粉武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16173#       发表于 2020-6-29 22:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到bad end
+
+
+啥，财酱什么时候是女的了
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16174#       发表于 2020-6-29 23:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还有像大肠老师的，坦克民爬
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16175#       发表于 2020-6-29 23:00
+
+
+
+
+出轨可还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16176#       发表于 2020-6-29 23:01
+
+
+
+
+这什么剧情草，现编的？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16177#       发表于 2020-6-29 23:01
+
+
+
+
+开心的唱起了主题曲()
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16178#       发表于 2020-6-29 23:02
+
+
+
+
+草，财酱惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，刚打巨款就被绿了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16179#       发表于 2020-6-29 23:02
+
+
+
+
+草，真主题曲来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16180#       发表于 2020-6-29 23:02
+
+
+
+
+经典永流传<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16181#       发表于 2020-6-29 23:03
+
+
+
+
+今天节目效果拉满啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16182#       发表于 2020-6-29 23:04
+
+
+
+
+唱的没女粉可爱所以不唱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16183#       发表于 2020-6-29 23:06
+
+
+
+
+bad end2 别人的女朋友
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 16184#       发表于 2020-6-29 23:06
+
+
+
+
+绝了，b限有这样的节目效果我是没想到的
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 16185#       发表于 2020-6-29 23:07
+
+
+
+
+草吓我一跳
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16186#       发表于 2020-6-29 23:08
+
+
+
+ 本帖最后由 A2014720 于 2020-6-29 23:10 编辑 
+
+？从地狱来的声音
+
+太混动了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16187#       发表于 2020-6-29 23:08
+
+
+
+ 本帖最后由 nightmare902015 于 2020-6-29 23:09 编辑 
+
+这个笑声再多调一下，还是可能可以成为DC老师的
+
+算了，DC吸气吐气没这个恶心
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16188#       发表于 2020-6-29 23:08
+
+
+
+
+效果挺好的，这才是真正的b限杂谈阿，总是能搞些你想不到的节目效果，这就是杂谈系的顶点吗。顺便在阿b能压隔壁始皇帝一头也是牌面
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16189#       发表于 2020-6-29 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">擎天柱还行
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16190#       发表于 2020-6-29 23:09
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16191#       发表于 2020-6-29 23:10
+
+
+
+
+b限杂谈效果这么好我是真没想到，而且沟通也不少，强的
+
+妈的肥宅恶心，从mea直播间滚出去！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16192#       发表于 2020-6-29 23:10
+
+
+
+
+草草草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 16193#       发表于 2020-6-29 23:10
+
+
+
+
+啊这。。。第一次对一首歌感到了恐惧
+
+
+
+
+
+
+
+-----
+
+####  LiquidD  
+##### 16194#       发表于 2020-6-29 23:11
+
+
+
+
+已经可以了mea桑，很少有肥宅有你这么恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kanoya  
+##### 16195#       发表于 2020-6-29 23:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003686&amp;ptid=1929631" target="_blank">pei23333 发表于 2020-6-29 23:08</a>
+
+效果挺好的，这才是真正的b限杂谈阿，总是能搞些你想不到的节目效果，这就是杂谈系的顶点吗。顺便在阿b能压 ...</blockquote>
+然后aliga两边都在看
+
+
+灵能飞升人不请自来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16196#       发表于 2020-6-29 23:12
+
+
+
+
+伴奏啊伴奏
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16197#       发表于 2020-6-29 23:13
+
+
+
+
+这什么下水道伴奏
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16198#       发表于 2020-6-29 23:15
+
+
+
+
+她和伴奏都没有钢之魂。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16199#       发表于 2020-6-29 23:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003780&amp;ptid=1929631" target="_blank">nightmare902015 发表于 2020-6-29 23:15</a>
+她和伴奏都没有钢之魂。</blockquote>
+刚才那声音还没有钢之魂？<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 16200#       发表于 2020-6-29 23:18
+
+
+
+
+  单相思这个调子倒是找到了
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 16201#       发表于 2020-6-29 23:18
+
+
+
+
+好好唱啊kora
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16202#       发表于 2020-6-29 23:19
+
+
+
+
+冲冲冲
+
+夜驱<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  诡秘侍者  
+##### 16203#       发表于 2020-6-29 23:21
+
+
+
+
+夜驱真是百听不厌
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16204#       发表于 2020-6-29 23:21
+
+
+
+
+夜に駆ける 越唱越好了，好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16205#       发表于 2020-6-29 23:24
+
+
+
+
+お金なくなった<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16206#       发表于 2020-6-29 23:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 16207#       发表于 2020-6-29 23:36
+
+
+
+
+楼友该自杀了
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16208#       发表于 2020-6-29 23:37
+
+
+
+
+掐萌音唱歌是什么规律
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16209#       发表于 2020-6-29 23:38
+
+
+
+
+mk2去nga贴贴楼送了个头，然后走向越来越怪了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16210#       发表于 2020-6-29 23:38
+
+
+
+
+情弱问一下，为啥要自杀，啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16211#       发表于 2020-6-29 23:39
+
+
+
+
+这不是蛮好听的吗？
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16212#       发表于 2020-6-29 23:39
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虽然拉了，不过声音还是好听
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16213#       发表于 2020-6-29 23:40
+
+
+
+
+今天活整的真的好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前半段笑死在屏幕前
+
+
+
+
+
+
+
+-----
+
+####  295405468  
+##### 16214#       发表于 2020-6-29 23:41
+
+
+
+
+我咋觉得咩声线唱起来有点不对味
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16215#       发表于 2020-6-29 23:41
+
+
+
+
+就事论事啊，这唱的很温柔啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，虽然有几个地方翻了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16216#       发表于 2020-6-29 23:41
+
+
+
+
+有句唱错得够执着的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  上坂蓮華  
+##### 16217#       发表于 2020-6-29 23:42
+
+
+
+
+这首不太行<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16218#       发表于 2020-6-29 23:44
+
+
+
+
+吃撑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16219#       发表于 2020-6-29 23:45
+
+
+
+
+虚空联动来一个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16220#       发表于 2020-6-29 23:45
+
+
+
+
+《位置》
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 16221#       发表于 2020-6-29 23:46
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">快进到我和咩咩《文爱》
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16222#       发表于 2020-6-29 23:48
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003141&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-29 22:28</a>
+
+今天突然能对话了，日语浓度up,好起来了？</blockquote>
+这个月中还是月初来b限突击lol的时候日语浓度就很吓人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16223#       发表于 2020-6-29 23:50
+
+
+
+
+不要鬼叫不要鬼叫不要鬼叫
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 16224#       发表于 2020-6-29 23:56
+
+
+
+
+像我并不能打日文的就不说话 浓度高点好
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16225#       发表于 2020-6-29 23:56
+
+
+
+
+这歌上次是一月前还是两月前？意外
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16226#       发表于 2020-6-29 23:58
+
+
+
+
+你观察过规律就会发现.....
+全靠她今天的心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  KL25001  
+##### 16227#       发表于 2020-6-29 23:58
+
+
+
+
+最近一次是6.11唱的
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16228#       发表于 2020-6-30 00:00
+
+
+
+
+来了来了
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16229#       发表于 2020-6-30 00:00
+
+
+
+
+夜明けと蛍收尾不错
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16230#       发表于 2020-6-30 00:01
+
+
+
+
+xby打了sc? <img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16231#       发表于 2020-6-30 00:01
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-6-30 00:03 编辑 
+
+嗯？这什么鬼sc，小博禹？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这家伙居然会看咩直播。还是1000啊，算了房管也没删<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 16232#       发表于 2020-6-30 00:02
+
+
+
+
+看头像像<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16233#       发表于 2020-6-30 00:02
+
+
+
+
+晦气
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16234#       发表于 2020-6-30 00:03
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  liousluna  
+##### 16235#       发表于 2020-6-30 00:03
+
+
+
+
+打了1000，xby再评价。
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16236#       发表于 2020-6-30 00:03
+
+
+
+
+1000sc就为了厄介，草<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16237#       发表于 2020-6-30 00:03
+
+
+
+
+他跑去跳脸了？刚刚在后台刷手游<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16238#       发表于 2020-6-30 00:04
+
+
+
+
+那他为什么不舍得交钱进m楼呢？
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16239#       发表于 2020-6-30 00:04
+
+
+
+
+看头像就是他，太扭曲了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+        
