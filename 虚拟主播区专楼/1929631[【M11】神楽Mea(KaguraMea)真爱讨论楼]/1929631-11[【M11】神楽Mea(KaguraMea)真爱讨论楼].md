@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-29 18:03** 
+> ## **本文件最后更新于2020-06-29 20:03** 
 
 
 
@@ -9303,7 +9303,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_tyOZt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_uRth5" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16344,7 +16344,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_bFSGZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_E3n47" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -18358,4 +18358,799 @@ syl 是不是说了等会不知道播什么好，所以很纠结<img src="https:
 
 
 
-               
+
+
+-----
+
+####  路人庚  
+##### 16034#       发表于 2020-6-29 18:04
+
+
+
+
+错过一段，好像是方舟指令改日了？
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16035#       发表于 2020-6-29 18:06
+
+
+
+ 本帖最后由 Sanguine 于 2020-6-29 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47999444&amp;ptid=1929631" target="_blank">暗心舞踏 发表于 2020-6-29 17:19</a>
+日服没有吧。。。国服她氪不了金</blockquote>
+国服能氪啊。。有paypal的
+
+syl，7.1在黄兔子那有联动
+<img src="https://p.sda1.dev/0/4e129765c25e3b258c5d489f7699b917/IMG_DB428BB7EF8BAC78353A23B99E9E9505.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 16036#       发表于 2020-6-29 18:09
+
+
+
+
+兔妈妈，yyds
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16037#       发表于 2020-6-29 18:09
+
+
+
+
+延后挺合适的，至少要熟悉一下界面吧，方舟指令可没bcr的语音引导
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16038#       发表于 2020-6-29 18:14
+
+
+
+
+那今天播啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16039#       发表于 2020-6-29 18:16
+
+
+
+
+今天也是 可能 不播b限的（）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16040#       发表于 2020-6-29 18:18
+
+
+
+ 本帖最后由 A2014720 于 2020-6-29 18:47 编辑 
+
+10点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+爽了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16041#       发表于 2020-6-29 18:47
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16042#       发表于 2020-6-29 19:19
+
+
+
+ 本帖最后由 A2014720 于 2020-6-29 19:24 编辑 
+
+天才
+
+看nga同传好像我吃饭错过了什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16043#       发表于 2020-6-29 19:25
+
+
+
+
+？？什么玩意儿，提了前男友<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，我错过了什么
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16044#       发表于 2020-6-29 19:26
+
+
+
+
+和前男友看过电影，羡慕不羡慕？羡慕就找个男朋友吧
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16045#       发表于 2020-6-29 19:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16046#       发表于 2020-6-29 19:31
+
+
+
+ 本帖最后由 pabier 于 2020-6-29 19:34 编辑 
+
+19岁的前地下偶像有前男友很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+syl  字幕组或者其他海盗会烤这一段吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+zsyl   抱歉，少打了一个前字<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16047#       发表于 2020-6-29 19:32
+
+
+
+
+tmd是前男友，你给我闭嘴，我🦈了你<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16048#       发表于 2020-6-29 19:33
+
+
+
+
+不是，她早说过自己有前男友了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，关键是这次又提到了啥信息啊。
+
+
+话说这就是那个渣男吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16049#       发表于 2020-6-29 19:34
+
+
+
+
+这里还有人是单身吗<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16050#       发表于 2020-6-29 19:35
+
+
+
+
+有人给情弱指个路或者科普一下吗？
+
+syl  你好这里有个从出生开始单身到现在<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16051#       发表于 2020-6-29 19:35
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-29 19:42 编辑 
+
+目前已知的前男友？人的情报：喷香水、公园打影之诗、看过美女与野兽
+
+看楼友，编辑了一下错误情报
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pabier| + 1|不知道人怎么样，会不会好好照顾她.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16052#       发表于 2020-6-29 19:38
+
+
+
+
+如果没有前男友那估计是真坦克了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16053#       发表于 2020-6-29 19:39
+
+
+
+
+省省吧，那男的不是劈腿跟别的可爱女生h了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16054#       发表于 2020-6-29 19:39
+
+
+
+
+蓝色洞窟那个不是给你麻发卡了吗
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16055#       发表于 2020-6-29 19:39
+
+
+
+
+就这一个前男友吧，在KTV亲了的那个，一块去看了个电影而已，是个人都得有点恋爱经历⑧，总不能跟个几年前还是个高中生的小屁孩抢虚拟的女人吧，不可取，她不会播到b限前吧，不困了？
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1||
+| A2014720|-1||
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16056#       发表于 2020-6-29 19:39
+
+
+
+ 本帖最后由 pabier 于 2020-6-29 19:41 编辑 
+
+还有个问题。。。为什么MS说前男友是渣男<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+原来如此，理解了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16057#       发表于 2020-6-29 19:40
+
+
+
+ 本帖最后由 惑星 于 2020-6-29 19:42 编辑 
+
+那不一定，我有个朋友是胖子，他女友就是坦克，今年分了
+播到现在就是怕困吧，她这一播播到现在，换我我都受不了了，枯燥
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16058#       发表于 2020-6-29 19:41
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-29 19:42 编辑 
+
+去蓝色洞窟那个根本没交往吧，跟别的女的好了。
+ktv那个也跟漂亮的跑了来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16059#       发表于 2020-6-29 19:42
+
+
+
+
+蓝色洞窟那个不是，蓝色洞窟那个有另外的女朋友，你咩姐是自己多想误会了（当然可能是编段子)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16060#       发表于 2020-6-29 19:44
+
+
+
+
+声音好小<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16061#       发表于 2020-6-29 19:45
+
+
+
+
+啊，你们想把我和平演变成坦克民<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16062#       发表于 2020-6-29 19:45
+
+
+
+
+蓝洞那个是另外一个，她以为圣诞节被摸头一起去蓝洞就是交往了，结果人家第二天就发了和女友的照片把这个纯情小女生给骗了，那天还有和卵用的合唱，真正的时间管理大师阿咩
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16063#       发表于 2020-6-29 19:46
+
+
+
+
+我要昏睡了。。晚上可能有歌会。
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16064#       发表于 2020-6-29 19:46
+
+
+
+
+今天起得也挺早的，时间调回来了？
+
+毕竟咩还年轻，能多播一会就多播一会吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16065#       发表于 2020-6-29 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48001217&amp;ptid=1929631" target="_blank">pabier 发表于 2020-6-29 19:46</a>
+今天起得也挺早的，时间调回来了？
+
+毕竟咩还年轻，能多播一会就多播一会吧 ...</blockquote>
+救救中年枸杞水大叔
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16066#       发表于 2020-6-29 19:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才八点，睡什么，起来嗨
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16067#       发表于 2020-6-29 19:51
+
+
+
+
+草，我看了一眼那段也不有趣阿，为啥要出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  IrisL  
+##### 16068#       发表于 2020-6-29 19:53
+
+
+
+
+又开始了AVのKing
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16069#       发表于 2020-6-29 19:53
+
+
+
+
+观众的反应有趣
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16070#       发表于 2020-6-29 19:54
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16071#       发表于 2020-6-29 19:57
+
+
+
+
+刚刚还看stn讲游戏呢。难道官组也要效仿neil，不是给观众看视频，而是看观众的反应？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16072#       发表于 2020-6-29 19:57
+
+
+
+
+烤那段的话，可以看b站炸鱼的效果吧
+
+但太不基德了，还是算了
+
+syl   av専門家   草
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16073#       发表于 2020-6-29 19:57
+
+
+
+
+还是av这段有趣，烤这段吧
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16074#       发表于 2020-6-29 19:58
+
+
+
+
+有观众拍过av才是最骚的
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16075#       发表于 2020-6-29 19:59
+
+
+
+
+OV监督意外说不定能行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16076#       发表于 2020-6-29 20:00
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（你身上有她的香水味）
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16077#       发表于 2020-6-29 20:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16078#       发表于 2020-6-29 20:02
+
+
+
+
+如月已经av堕了可以随便安排
+
+
+
+
+
+              
