@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-28 06:10** 
+> ## **本文件最后更新于2020-06-29 18:11** 
 
 
 
@@ -301,7 +301,7 @@ onleaks没说是“瀑布屏”，所以我不信。
 <img src="https://img.saraba1st.com/forum/202002/23/055404hk6unj1v6fj4qzq4.jpg" referrerpolicy="no-referrer">
 
 
-<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 50)
+<strong>20200223054718.jpg</strong> (33.04 KB, 下载次数: 52)
 
 下载附件
 
@@ -5500,7 +5500,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_hfOfC" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_bsfiI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -17726,4 +17726,654 @@ XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原
 
 
 
-                    
+
+
+-----
+
+####  MuAmUa  
+##### 872#       发表于 2020-6-28 07:29
+
+
+
+
+我也下单绅士了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">本来想好等今年iphone的，结果还是相信一下大法
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 873#       发表于 2020-6-28 09:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47978960&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-6-28 01:00</a>
+这代感光又悲剧了啊，明明XZ1做的还挺不错的
+
+
+XZ2P翻车最严重动不动就0亮度，要自己手动拉，后来搞清楚原 ...</blockquote>
+紫色的。
+
+关键是，使用手机还要有这些注意点，那是人用机还是机用人。
+说真的，LCD死不瞑目。XZ2内存和ram翻一倍吊打一堆后继机。
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  mhss  
+##### 874#       发表于 2020-6-28 09:32
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47980707&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-28 09:22</a>
+紫色的。
+
+关键是，使用手机还要有这些注意点，那是人用机还是机用人。</blockquote>
+6g的RAM不玩手游我觉得真够用了，我连512m的mt15i都能用到18年<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 875#       发表于 2020-6-28 09:58
+
+
+
+<blockquote>EFSF 发表于 2020-6-27 22:46
+自动调光关了，坐在家里本来就不亮的屏还一会暗一点一会稍微亮一点，自动调节谁受得了。
+
+都不是比阳光直 ...</blockquote>
+原来如此，我是自动亮度。
+
+同意你说的是人用机还是机用人。
+
+
+索尼的自动亮度还是有点怪，我感觉是光线要以某个角度照射在亮度传感器上它才会认为周围变亮了从而提高亮度。如果是90度直射反而不一定会变亮。
+
+多用一阵了解了机器的习性后反而达成了某种默契，倒也顺手些了（苦笑）。
+
+
+手头的 XZP 还在用，虽然个人偏好 OLED 的深色，但最高亮度确实比不了 LCD。只能说是大势所趋了…
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 876#       发表于 2020-6-28 10:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47981085&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-28 09:58</a>
+原来如此，我是自动亮度。
+
+同意你说的是人用机还是机用人。</blockquote>
+但是果机的oled最高亮度和自动调节就很好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Airwolf  
+##### 877#       发表于 2020-6-28 10:24
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47981253&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-6-28 10:11</a>
+但是果机的oled最高亮度和自动调节就很好
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2 ...</blockquote>
+你索的软件部门不是一直都拖后腿嘛，毕竟11区的通病，缺少这方面的人才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 878#       发表于 2020-6-28 10:27
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47980804&amp;ptid=1915171" target="_blank">mhss 发表于 2020-6-28 09:32</a>
+
+6g的RAM不玩手游我觉得真够用了，我连512m的mt15i都能用到18年
+
+
+—— 来自 Sony H8296, Android 1 ...</blockquote>
+我手机不玩游戏的，但是我现在移动办公需求很多，XZ2首先放不了太多文档备着，我几乎拍照就删，靠一个小内存卡转存一些东西，本体因为一些不方便删的对话和不方便改文件夹的文档存放储存容量就保持在不到8G很久了，这还是我常清理，6G RAM是基本够，但是后台一下子开好几个或稍微大一点的文档还是吃点力，能大一些自然是好的。
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 879#       发表于 2020-6-28 10:52
+
+
+
+
+MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里了……我不知道这是什么用意……
+
+
+
+
+
+
+
+-----
+
+####  bxcds  
+##### 880#       发表于 2020-6-28 11:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47981733&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-28 10:52</a>
+MK2还有一个问题，NFC的开关……居然不在下拉的快捷菜单里了……我不知道这是什么用意…… ...</blockquote>
+下拉现在不能编辑了吗？
+
+—— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 881#       发表于 2020-6-28 11:54
+
+
+
+<blockquote>bxcds 发表于 2020-6-28 11:50
+下拉现在不能编辑了吗？
+
+
+—— 来自 Sony G8142, Android 9上的 S1Next-鹅版 v2.0.4-play ...</blockquote>
+编辑了也没有。
+
+明明1还有NFC开关的。好奇怪
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 882#       发表于 2020-6-28 13:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47982515&amp;ptid=1915171" target="_blank">bxcds 发表于 2020-6-28 11:50</a>
+
+下拉现在不能编辑了吗？
+
+
+—— 来自 Sony G8142, Android 9上的 S1Next-鹅版 v2.0.4-play ...</blockquote>
+整个下拉菜单里就没有NFC的开关，就不在备选项里。
+
+
+我觉得是程序员忘了。
+
+
+
+
+
+
+
+-----
+
+####  MixRadio  
+##### 883#       发表于 2020-6-28 13:39
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47983789&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-28 13:33</a>
+整个下拉菜单里就没有NFC的开关，就不在备选项里。
+
+
+我觉得是程序员忘了。 ...</blockquote>
+我的pixel3也没有，可能是谷歌程序员忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 884#       发表于 2020-6-28 13:50
+
+
+
+
+早上8点40断的充电，用滴滴叫了个车，车上断断续续看微信，邮件，给电脑开了一小会热点发了个文件，看了下高德地图，到公司放置了一会，时不时看下邮件，11点接耳机开了个90多分钟的网络电话会，中途还接了个电话，中午去吃饭刷了个钱，目前电量63%。
+
+你要说不好吧，似乎也还行，你要说还行吧，那是绝对不太够的……
+
+
+
+
+
+
+
+-----
+
+####  傘木希美  
+##### 885#       发表于 2020-6-28 14:41
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">已经入手的都多少钱啊，7000？
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 886#       发表于 2020-6-28 14:50
+
+
+
+<blockquote>EFSF 发表于 2020-6-28 13:50
+早上8点40断的充电，用滴滴叫了个车，车上断断续续看微信，邮件，给电脑开了一小会热点发了个文件，看了下 ...</blockquote>
+我在家工作还没去公司，听你这描述，像我这样上下班两小时蓝牙音乐，中午上网随便看看大概一个小时的用法，到下班还能剩80%了吧…（之前1是60%左右）
+
+这几天体感4000mAh的电池比以前的所有旗舰都耐用一截是没问题了，但重度使用估计也就勉强大半天
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 887#       发表于 2020-6-28 17:10
+
+
+
+
+自动亮度下 自己手动干预下让系统记住你的偏好会好点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 888#       发表于 2020-6-28 17:17
+
+
+
+<blockquote>引用第883楼EFSF于2020-06-28 13:50发表的  :
+
+早上8点40断的充电，用滴滴叫了个车，车上断断续续看微信，邮件，给电脑开了一小会热点发了个文件，看了......</blockquote>
+@EFSF
+
+这我已经很满意了
+90分钟电话会议呢………
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 889#       发表于 2020-6-28 18:02
+
+
+
+ 本帖最后由 EFSF 于 2020-6-28 18:11 编辑 
+
+刚才开了一个108分钟的微信电话会，然后紧接着又是一个10多分钟的，外加杂七杂八看看群，看看别的提醒，现在40%。
+
+似乎能接受。
+
+==========
+
+算了接受个屁，出门发个闪送屏幕黑到接收码都看不见
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 890#       发表于 2020-6-28 22:15
+
+
+
+
+这还挺复杂……
+
+<img src="https://p.sda1.dev/0/f699c018de87160fda57a2cd19d3f9c8/IMG_97E5B259435AE75DE2C4E74CD5AFF471.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 891#       发表于 2020-6-29 01:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47990629&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-6-28 22:15</a>
+
+这还挺复杂……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你造嘛  移动可以直接5g。
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 892#       发表于 2020-6-29 01:14
+
+
+
+
+这次想试试看国行，**港版确实有点累，国行日期有了吗？
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 893#       发表于 2020-6-29 01:56
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47992368&amp;ptid=1915171" target="_blank">Cray 发表于 2020-6-29 01:12</a>
+你造嘛  移动可以直接5g。</blockquote>
+知道啊，移动只是5G频段不全不是不支持
+
+不知道国行会不会补上缺失的频段。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 894#       发表于 2020-6-29 09:34
+
+
+
+
+现在索尼的港行代票全国联保还有意义吗
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 895#       发表于 2020-6-29 10:04
+
+
+
+<blockquote>绚烂航迹云 发表于 2020-6-29 01:14
+这次想试试看国行，**港版确实有点累，国行日期有了吗？
+
+
+----发送自 Sony F8332,Android 8.0.0 ...</blockquote>
+听说九月左右。。。。。。。
+
+
+不强烈需求谷歌可以用国行。去年用下来的小毛病是，虽然可以登录谷歌使用框架，但内部地区码可能还是中国，所以包括PS Remote等一些App在Play商店里不支持。其他也有点软件游戏兼容的小毛病。优点是不登陆谷歌的时候不会被它费电，自带自启管理，比港版更干净，真正清汤寡水
+
+
+
+
+
+
+
+-----
+
+####  jzsgtx  
+##### 896#       发表于 2020-6-29 11:46
+
+
+
+ 本帖最后由 jzsgtx 于 2020-6-29 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47994184&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-29 10:04</a>
+
+听说九月左右。。。。。。。
+
+
+不强烈需求谷歌可以用国行。去年用下来的小毛病是，虽然可以登录谷歌使用框 ...</blockquote>
+就个人使用1的经验，国行有一点不干净的地方是虽然自带的百度微博之流可以卸载、自带的定制应用宝可以禁用，但是系统级的网络位置提供应用是百度的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+另外关于国行下的Google套件其实没太多问题，登梯下登录激活Google账户和组件的话就连Feeds推送都是有的，虽然之后可能会在某次Google直连失败时失效，play图书应用不会提示你所在国家地区不能购买云云。但是没法语音ok google。
+
+相对的港行开启Feeds很麻烦，但是有ok google语音，play电影会直接自动给你禁用，play图书会提醒你所在区域不能买云云（其实还是可以买可以下载，这和你Google账号注册位置相关）<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+另外国行用户自己装的play商店是没法自动更新自己的
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 897#       发表于 2020-6-29 13:18
+
+
+
+
+https://m.bilibili.com/video/BV12v411B7nR
+据说照着这个就可以微信和支付宝指纹支付了
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 898#       发表于 2020-6-29 13:37
+
+
+
+
+看完了，原来是自动触发密码输入，不过我个人不是很敢用<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Airwolf  
+##### 899#       发表于 2020-6-29 14:15
+
+
+
+
+你索穷啊，舍不得让马哥和福报马割一茬
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 900#       发表于 2020-6-29 14:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47996520&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-6-29 13:18</a>
+https://m.bilibili.com/video/BV12v411B7nR
+据说照着这个就可以微信和支付宝指纹支付了</blockquote>
+绅士的老板说这是个过度方案，马上国行1M2就有系统级的支付宝、微信指纹支付支持了。 
+
+<img src="https://p.sda1.dev/0/35354899804505f4457b0830d1d7c730/IMG_8D2FAA6400A4005E58618EC88829731D.png" referrerpolicy="no-referrer">
+
+对于港版用户来说，还是老实输密码吧，安全第一，也不至于支付很慢。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 901#       发表于 2020-6-29 16:34
+
+
+
+
+要是国行能接上指纹，那就不考虑港版了啊
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 902#       发表于 2020-6-29 17:12
+
+
+
+
+指纹支付不是刚需 …我是无所谓的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 903#       发表于 2020-6-29 18:08
+
+
+
+
+小众如我主力手机上甚至从来没有装过一天支付宝，好像生活毫无障碍… 微信付款最多也就一天一次无所谓了
+
+
+
+
+
+                   
