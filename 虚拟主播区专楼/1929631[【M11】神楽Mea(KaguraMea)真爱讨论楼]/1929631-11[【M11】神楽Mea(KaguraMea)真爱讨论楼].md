@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-30 12:03** 
+> ## **本文件最后更新于2020-06-30 14:02** 
 
 
 
@@ -9322,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_F98Go" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_Ku7zV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16363,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_eTdD7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_F8986" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -23376,4 +23376,524 @@ tc吃播
 
 
 
-     
+
+
+-----
+
+####  Dualist彩  
+##### 16329#       发表于 2020-6-30 12:12
+
+
+
+
+把你门限器给我关了啊，我要听生活音<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16330#       发表于 2020-6-30 12:15
+
+
+
+
+只能隐隐约约听到咩姐的声音……
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16331#       发表于 2020-6-30 12:16
+
+
+
+
+房间太脏了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  JY要塞  
+##### 16332#       发表于 2020-6-30 12:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐能光脚踩G，不怕的
+
+
+
+
+
+
+
+-----
+
+####  nightmare902015  
+##### 16333#       发表于 2020-6-30 12:20
+
+
+
+
+怎么天天搞这，俨然就是一个立派的tc主播了。
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16334#       发表于 2020-6-30 12:22
+
+
+
+
+话说回来麻酱最先是在tc配信的吗？之后才在nico活动？
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16335#       发表于 2020-6-30 12:22
+
+
+
+
+说明一个人在家憋疯了，该出发了
+
+
+
+
+
+
+
+-----
+
+####  meatybobby  
+##### 16336#       发表于 2020-6-30 12:25
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48009058&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-6-30 12:22</a>
+
+话说回来麻酱最先是在tc配信的吗？之后才在nico活动？</blockquote>
+麻醬從沒去過nico 去nico的是凜子
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16337#       发表于 2020-6-30 12:27
+
+
+
+
+凛子一开始就在nico活动的吗？凛子后来在tc也播过吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16338#       发表于 2020-6-30 12:30
+
+
+
+
+如果你的意思是只要在平台活动过就算，那你麻在404也活动过
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16339#       发表于 2020-6-30 12:33
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-30 12:35 编辑 
+
+人最早也不是在tc播的，而且nico确实有号只是销号了
+bs主要活动范围又不在nico
+
+当然这并不妨碍她是个tc生主
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16340#       发表于 2020-6-30 12:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">声音不是特别大刚好适合挂着睡午觉
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16341#       发表于 2020-6-30 12:49
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-30 12:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们在看tc，我在补昨天错过的b限
+
+话说b限弹幕好多，现在转播的弹幕浓度和b限的弹幕浓度相差好多啊多了个b限这属性，发弹幕的欲望会提升吗
+
+
+奥里给草，我还想做下心里准备的，没想到没几分钟就说出来了
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16342#       发表于 2020-6-30 12:50
+
+
+
+
+3d可能7月末，说不定推迟到8月，万一推迟到8月的话会提前说的
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16343#       发表于 2020-6-30 12:55
+
+
+
+
+ビリビリのライブはお察し
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16344#       发表于 2020-6-30 12:56
+
+
+
+ 本帖最后由 A2014720 于 2020-6-30 12:57 编辑 
+
+bls居然在搞<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+节目效果好自然发弹幕的人多啊，龙皇ddd这种转播也是满屏的弹幕
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16345#       发表于 2020-6-30 12:57
+
+
+
+
+bls的live因为目前形势的原因难搞起来，但却安排了家庭旅游（总感觉哪里怪怪的
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16346#       发表于 2020-6-30 12:58
+
+
+
+
+有种b打算拖到年末为今年bls造势的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16347#       发表于 2020-6-30 12:59
+
+
+
+
+bls啊,阿B一边跟你讲形势不太好,一边线下bw票都开卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16348#       发表于 2020-6-30 13:01
+
+
+
+
+如果立本疫情已经真的控制住了，只是阿b想往后拖live也算是好事了（
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16349#       发表于 2020-6-30 13:01
+
+
+
+
+虽然这形势明显指的是jp那边，但这理由还是好low
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16350#       发表于 2020-6-30 13:02
+
+
+
+<blockquote>GRMeA104 发表于 2020-6-30 12:59
+bls啊,阿B一边跟你讲形势不太好,一边线下bw票都开卖了</blockquote>
+咩姐在东京啊，中国这边是没啥问题。难道bls有需要现场动捕的部分？
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16351#       发表于 2020-6-30 13:05
+
+
+
+
+最强操盘手（成绩倒数第二）
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16352#       发表于 2020-6-30 13:06
+
+
+
+
+经济头脑<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16353#       发表于 2020-6-30 13:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48009631&amp;ptid=1929631" target="_blank">Leutnant某囧 发表于 2020-6-30 13:02</a>
+
+咩姐在东京啊，中国这边是没啥问题。难道bls有需要现场动捕的部分？</blockquote>
+动捕的话你咩姐这个月都能自己预约工作室了,阿B自己的不会比这还晚开门吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+而且这不是这6个月啥消息阿B不发装死的理由啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16354#       发表于 2020-6-30 13:09
+
+
+
+
+大部分日本人都是老鸵鸟人了，现在就怕真的都以为控制住了彻底放开，阿b日本分部因为疫情谨慎一点也是好事，拖就拖了8
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16355#       发表于 2020-6-30 13:11
+
+
+
+
+草，看到一个亡国民
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16356#       发表于 2020-6-30 13:17
+
+
+
+
+推特时不时就看到有人说
+
+啊，神乐mea就是马自立酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">/和马自立酱声音好像
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16357#       发表于 2020-6-30 13:24
+
+
+
+
+嗯？该知道的早就知道了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16358#       发表于 2020-6-30 13:28
+
+
+
+
+这78月怎么越听越忙的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16359#       发表于 2020-6-30 13:30
+
+
+
+
+忙点好
+
+
+
+
+
+    
