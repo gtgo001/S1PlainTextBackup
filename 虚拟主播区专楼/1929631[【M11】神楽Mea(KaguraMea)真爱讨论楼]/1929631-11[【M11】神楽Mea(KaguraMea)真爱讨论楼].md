@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-30 06:02** 
+> ## **本文件最后更新于2020-06-30 12:03** 
 
 
 
@@ -9322,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_rkBke" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_F98Go" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16363,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_XJ70X" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_eTdD7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -22838,4 +22838,542 @@ xby是谁？</blockquote>
 
 
 
-      
+
+
+-----
+
+####  黒長直姫  
+##### 16297#       发表于 2020-6-30 07:13
+
+
+
+
+“顶头上司比我年纪小是什么样的体验”
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16298#       发表于 2020-6-30 07:16
+
+
+
+
+不是幼师（或者是幼师在读）么，肯定比咩大吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 16299#       发表于 2020-6-30 07:18
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿00，紫98。你麻生日应该都背下来了吧。麻酱真的年轻，但是怎么就这么姨化了呢
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16300#       发表于 2020-6-30 07:44
+
+
+
+
+这营收其实去掉卡门佬一个10000，财酱一个总督20000也是30000多，还，还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16301#       发表于 2020-6-30 08:17
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-30 08:24 编辑 
+
+国服v圈内敛不可避，真破局还得像18年一样正经但自然的meaqua贴贴收服二创制造者，但究竟是否是饮鸩止渴般的困兽犹斗，这就不得而知了，等一个nico乱战阿b限定复刻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16302#       发表于 2020-6-30 08:43
+
+
+
+
+叔叔我啊，最喜欢斗虫养蛊了<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16303#       发表于 2020-6-30 08:56
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">财酱是续费吧所以要算1w5，那个收入不是账面收入是金瓜子收入吧
+
+syl，所以财酱是女财主的事情确认了吗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16304#       发表于 2020-6-30 09:15
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-30 09:16 编辑 
+
+什么？！财酱是女粉？！
+
+战斗力太可怕了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且还不爱表现，迫真女妈妈
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16305#       发表于 2020-6-30 09:20
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48005563&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-30 05:31</a>
+
+草，原来没怀孕却肚子大了的是犬山，mea是留白其中草</blockquote>
+是我干的.jpg
+
+
+syl。能不能接受有前男友这个问题跟隔壁车的虚拟感连上了啊。
+
+你当她是神乐mea不能接受我觉得也不奇怪，你当她是麻不能接受就有点超现实了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16306#       发表于 2020-6-30 09:28
+
+
+
+
+呃有啥锤财酱是女的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16307#       发表于 2020-6-30 09:37
+
+
+
+
+u1s1，mea打钱最多的本土粉应该就是个女粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 16308#       发表于 2020-6-30 09:39
+
+
+
+
+男粉能不能爬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16309#       发表于 2020-6-30 09:41
+
+
+
+
+男粉真菜，我也要当女粉
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16310#       发表于 2020-6-30 09:45
+
+
+
+
+本土石油王是哪位<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。不过mix 总该是男的。哇男粉，kimo
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16311#       发表于 2020-6-30 09:49
+
+
+
+
+medo啊，跟犬山一样手游氪300万的猛人）
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16312#       发表于 2020-6-30 09:50
+
+
+
+
+啥时候家庭旅行来着。
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16313#       发表于 2020-6-30 09:50
+
+
+
+
+medo
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 16314#       发表于 2020-6-30 10:01
+
+
+
+
+男粉费拉不堪，女粉武德充沛
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16315#       发表于 2020-6-30 10:02
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">我也是，昨天就看有人说了一句，我还以为大家都知道呢，既然都不知道那我还是当这个是谣言了。
+syl，昨天的说法好像比较绕呢，说到3d的时候说的是7月的某一天会有3d直播，b站也能看（转播）请大家来看，关于有没有b限3d还是想要搞一次的，但是目前没有确定日程，是这样吧
+估计会影响b站打钱热情<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">倒是想复刻之前某姐的场面不过肯定不可能了
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16316#       发表于 2020-6-30 10:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48007168&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-6-30 10:02</a>
+我也是，昨天就看有人说了一句，我还以为大家都知道呢，既然都不知道那我还是当这个是谣言了。
+syl ...</blockquote>
+不知道是不是军服/3d都做
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16317#       发表于 2020-6-30 10:05
+
+
+
+
+404肯定是用军服3D了，还挺想看她用红皮饺子3D直播，对比下看看的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16318#       发表于 2020-6-30 10:09
+
+
+
+
+404应该是军服吧，阿b如果要搞的话可能就是饺子3d了，阿b再给个噱头宣传一下。新3d到时候还是有人打钱啊，霓虹应该也有人跑过来看的。在阿b打钱阿b也得利，怎么想都是双赢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。所以求求阿b让小麻搞个饺子3d配信吧
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16319#       发表于 2020-6-30 10:09
+
+
+
+
+双推流双互动可破，就是怕被屑平台搞，再把她吓得不敢留档也不值过，阿b用bls整个线上草莓饺子3d补回来就行，问题不大（前提是阿b还有那么一丝丝良知）
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16320#       发表于 2020-6-30 10:24
+
+
+
+
+什么财酱女粉是哪来的说法<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">话说人家还改了下签名 不做后浪，愿为微光 这心气蛮nb的啊
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 16321#       发表于 2020-6-30 10:33
+
+
+
+
+财酱比后浪不知道高到哪里去了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16322#       发表于 2020-6-30 10:34
+
+
+
+
+？终于承认了吗，我早就说过多少回了，现在相信我说的都是对的了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16323#       发表于 2020-6-30 10:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48007595&amp;ptid=1929631" target="_blank">Cla0221 发表于 2020-06-30 10:34:04</a>
+？终于承认了吗，我早就说过多少回了，现在相信我说的都是对的了吧</blockquote>你说什么了就对的了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16324#       发表于 2020-6-30 10:35
+
+
+
+
+不是承认她说的男友是我了吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16325#       发表于 2020-6-30 10:41
+
+
+
+
+几天不见病情加重了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+syl，新推是说推特要新实装的语音功能现在还用不了是吧，以后可能发推懒得打字了直接发一条语音么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 16326#       发表于 2020-6-30 10:46
+
+
+
+
+那能让我听听生活音吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16327#       发表于 2020-6-30 11:44
+
+
+
+
+tc吃播
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16328#       发表于 2020-6-30 11:52
+
+
+
+
+手机上tc声音小的问题怎么解决啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+
+
+
+     
