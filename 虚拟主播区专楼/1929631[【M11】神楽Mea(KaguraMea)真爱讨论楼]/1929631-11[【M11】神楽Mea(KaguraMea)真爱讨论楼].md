@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-30 14:02** 
+> ## **本文件最后更新于2020-06-30 18:03** 
 
 
 
@@ -9322,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_Ku7zV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_y52jg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16363,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_F8986" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_sro76" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -23896,4 +23896,736 @@ bls啊,阿B一边跟你讲形势不太好,一边线下bw票都开卖了</blockqu
 
 
 
-    
+
+
+-----
+
+####  シオン诗音  
+##### 16360#       发表于 2020-6-30 14:08
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48009790&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-30 13:17</a>
+
+推特时不时就看到有人说
+
+啊，神乐mea就是马自立酱/和马自立酱声音好像
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">直播的时候读的弹幕吗，不会吧，只是你看到的是吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16361#       发表于 2020-6-30 14:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48010454&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-6-30 14:08</a>
+
+直播的时候读的弹幕吗，不会吧，只是你看到的是吧</blockquote>
+推特上发的，最近其实不怎么多（因为最近她在本土算是人气有点回暖，推特上大部分都是各种视频点赞、直播录像点赞等等
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 16362#       发表于 2020-6-30 14:21
+
+
+
+
+去年好像也是6月份有火星王国民发现她当VTB去了来着
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16363#       发表于 2020-6-30 14:23
+
+
+
+
+在大箱中挣扎求生的本土盘<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">。救救咩咩
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16364#       发表于 2020-6-30 14:30
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">听她聊BL漫的H总让我联想起多年前拜读晋江女频各种男同文的惨痛回忆
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16365#       发表于 2020-6-30 15:07
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">这声音听着真的
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16366#       发表于 2020-6-30 15:08
+
+
+
+
+耳机差点去世
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16367#       发表于 2020-6-30 15:09
+
+
+
+
+一点进去就听见无脸男一样的声音<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16368#       发表于 2020-6-30 15:12
+
+
+
+
+小时候年轻不懂事，上盗版网站白嫖欣赏过好几本晋江的耽美文
+
+syl，哪位老哥黑进mea的电脑记得把变声器给卸了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16369#       发表于 2020-6-30 15:12
+
+
+
+
+会员表情要新增力
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16370#       发表于 2020-6-30 15:19
+
+
+
+
+如果会员减少了多出来的表情会被撤销么
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16371#       发表于 2020-6-30 15:21
+
+
+
+
+不太清楚，大概会吧（
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16372#       发表于 2020-6-30 15:25
+
+
+
+
+向官组拜托了很多事,回礼的pv是在做了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 16373#       发表于 2020-6-30 15:26
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">别本土盘了 去年到现在本土盘还没贵州茅台涨得多
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16374#       发表于 2020-6-30 15:28
+
+
+
+
+来而不往非礼也，当然是在做了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16375#       发表于 2020-6-30 15:31
+
+
+
+
+就贴贴人那劲儿，咩姐不说也会虚空出现的，还不如说呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16376#       发表于 2020-6-30 15:48
+
+
+
+
+糖吃完了下了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16377#       发表于 2020-6-30 16:03
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48010454&amp;ptid=1929631" target="_blank">シオン诗音 发表于 2020-6-30 14:08</a>
+
+直播的时候读的弹幕吗，不会吧，只是你看到的是吧</blockquote>
+推特啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播时发她肯定不理的
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16378#       发表于 2020-6-30 16:10
+
+
+
+ 本帖最后由 weiweiEX 于 2020-6-30 16:21 编辑 
+
+明天22点黄兔子联动
+
+
+看错了草，是黄兔子频道的
+
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16379#       发表于 2020-6-30 16:19
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48011978&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-6-30 16:10</a>
+
+明天22点黄兔子联动，mea频道的</blockquote>
+黄兔子频道
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16380#       发表于 2020-6-30 17:06
+
+
+
+
+nga专楼抽了俩楼层是怎么回事？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+好像我记得一个说是discord改名了，另一个问怎么有mea的discord。
+其实我也想问，这是哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">私联粉丝，该渐行渐远了
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16381#       发表于 2020-6-30 17:11
+
+
+
+ 本帖最后由 惑星 于 2020-6-30 17:14 编辑 
+
+你忘了她说过起床看discord发现有粉丝给她私信吓的要死吗，混进小麻lol车队的人是不是有线索了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不是一个号但可能是同一个人啊
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16382#       发表于 2020-6-30 17:12
+
+
+
+ 本帖最后由 甘栗No.007 于 2020-6-30 17:22 编辑 
+
+她不可能傻到车队开黑还用mea的号吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+有可能是从别人的界面看到的？
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 16383#       发表于 2020-6-30 17:15
+
+
+
+
+不是，车队的是麻的dis这个是咩工作的那个应该。麻的能进车队群就可以。咩的有号的应该只有v和组里个别人或者睿站之类有工作联系的人了
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 16384#       发表于 2020-6-30 17:17
+
+
+
+
+所以说只可能是内鬼，不管是组里内鬼还是睿站的内鬼
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16385#       发表于 2020-6-30 17:18
+
+
+
+
+早知道之前就不该刷nga，这消失的33473和33474楼让我越发在意了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16386#       发表于 2020-6-30 17:22
+
+
+
+
+mea的discord名字改过好几次了吧，以前明面上都是联动的时候发现的，这次是哪个缺心眼的发出来了
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16387#       发表于 2020-6-30 17:24
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-30 17:26 编辑 
+
+以前就有人发过，就是改名成脑子有问题那次，有人在nga说她改名了，还发了截图，过了几天后直播里才证实确实是改了
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16388#       发表于 2020-6-30 17:30
+
+
+
+
+两次都是这个人发的，最近两次那个号发的也只有关于discord的。发的这个号是咩的工作号，再其他的我也不清楚就是了。
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16389#       发表于 2020-6-30 17:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16390#       发表于 2020-6-30 17:36
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16391#       发表于 2020-6-30 17:36
+
+
+
+ 本帖最后由 魔法使い2019 于 2020-6-30 17:40 编辑 
+
+我来发散一波
+
+
+某人勾搭有你咩discord的vtuber同行
+
+
+并达成了某种交易<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+内鬼， 究竟是...
+
+
+莫非....<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 16392#       发表于 2020-6-30 17:38
+
+
+
+
+我记得上一次发的时候nga还讨论过
+
+大概是说由于群组设置的问题,可以通过大组加到人发私信?  记不太清了
+
+反正有内鬼也不是第一次了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16393#       发表于 2020-6-30 17:39
+
+
+
+
+估计她真的因为工作号被闯入导致有好友被骚扰了，所以说饭盒discord是新建号的时候还特意提一句<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16394#       发表于 2020-6-30 17:39
+
+
+
+
+再想也没结果不如不想。
+
+
+
+
+
+
+
+-----
+
+####  Rem-清曲  
+##### 16395#       发表于 2020-6-30 17:41
+
+
+
+
+没意思，不如直接快进到特定爆照  <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16396#       发表于 2020-6-30 17:41
+
+
+
+
+虽然不想当谜语人，但目前这世道风气不太好，所以只能说跟私联没关系，说是意外暴露更接近于事实一些（
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16397#       发表于 2020-6-30 17:42
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看你们这么说下来，总感觉是个无底的事
+
+不过被小麻发现了，应该就不会有小麻心血来潮突然爆照的事会发生了吧
+
+
+
+
+
+
+
+-----
+
+####  魔法使い2019  
+##### 16398#       发表于 2020-6-30 17:49
+
+
+
+
+说是被发现不如说对方自爆了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16399#       发表于 2020-6-30 17:49
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16400#       发表于 2020-6-30 17:56
+
+
+
+
+那这么说，官组是有人可以直接discord与她联系的吗？
+
+
+
+
+
+
+
+-----
+
+####  千木唯  
+##### 16401#       发表于 2020-6-30 18:00
+
+
+
+ 本帖最后由 千木唯 于 2020-6-30 18:01 编辑 
+
+组里的话，不是说有1.2个人有吗，上次二创比赛事件不就是dis联系的
+不过既然谜语人说了，那只要不骚扰她，也懒得管了，我反正相信啊咩，就算遇到nt也能处理好
+
+
+
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 16402#       发表于 2020-6-30 18:01
+
+
+
+
+这日本疫情到底是个啥情况
+
+
+
+
+
+   
