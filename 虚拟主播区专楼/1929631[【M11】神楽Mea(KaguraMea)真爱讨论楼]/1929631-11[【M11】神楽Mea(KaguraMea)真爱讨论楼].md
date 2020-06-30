@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-30 18:03** 
+> ## **本文件最后更新于2020-06-30 20:03** 
 
 
 
@@ -9322,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_y52jg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_rPDJY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16363,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_sro76" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_bqbG3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -24628,4 +24628,366 @@ mea的discord名字改过好几次了吧，以前明面上都是联动的时候�
 
 
 
-   
+
+
+-----
+
+####  Dualist彩  
+##### 16403#       发表于 2020-6-30 18:04
+
+
+
+ 本帖最后由 Dualist彩 于 2020-6-30 18:05 编辑 
+
+帮你麻视奸cnbbs的内鬼找到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+霓虹防控不就是一个自欺欺人么，亏得我刚开始还以为他防控上手，对比南朝高下立判
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16404#       发表于 2020-6-30 18:04
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202006/30/180437n5ihv5vv61vhr7ll.jpg" referrerpolicy="no-referrer">
+
+
+<strong>AD92543349F3B841C82053C9A5301F9B.jpg</strong> (268.73 KB, 下载次数: 1)
+
+下载附件
+
+2020-6-30 18:04 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16405#       发表于 2020-6-30 18:07
+
+
+
+
+混蛋！！！这模型怎么ghs啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16406#       发表于 2020-6-30 18:08
+
+
+
+ 本帖最后由 暗心舞踏 于 2020-6-30 18:09 编辑 
+
+不懂discord，凭她谨慎的性格组里应该也只有固定的联络人，真要有什么动静早就察觉了
+
+
+日本现在虽然解禁了但每天确诊数照常报而且还比之前多，突出一个放任
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16407#       发表于 2020-6-30 18:18
+
+
+
+
+《风声》
+《童贞灭绝列岛》
+
+
+
+
+
+
+
+-----
+
+####  zhicai618  
+##### 16408#       发表于 2020-6-30 18:23
+
+
+
+
+就这mmd模型还挺漂亮的啊。。。大头一样ghs啊
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16409#       发表于 2020-6-30 18:23
+
+
+
+
+有腿就行
+
+
+syl，刚刚转了两下推
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16410#       发表于 2020-6-30 18:44
+
+
+
+
+这模型不赖啊（
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16411#       发表于 2020-6-30 18:49
+
+
+
+ 本帖最后由 A2014720 于 2020-6-30 18:55 编辑 
+
+你们<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+是我不配发情
+
+看着霓虹也想玩群体免疫<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16412#       发表于 2020-6-30 18:52
+
+
+
+ 本帖最后由 単推し人 于 2020-6-30 18:53 编辑 
+
+日本疫情突出一个逐步增长加放任不管，测的量很少，但最近也每天都100＋但也不可能再紧急事态了，总之下个月如果天天出门录音还旅行的话真的还蛮危险的
+
+
+
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 16413#       发表于 2020-6-30 19:13
+
+
+
+
+总感觉3d会没<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 16414#       发表于 2020-6-30 19:35
+
+
+
+
+别吓自己啊
+
+
+
+
+
+
+
+-----
+
+####  LunarCorona_VOV  
+##### 16415#       发表于 2020-6-30 19:39
+
+
+
+
+楼友yhm养gachi的技能没学来，不安desu倒是个顶个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16416#       发表于 2020-6-30 19:41
+
+
+
+
+老不安人了
+
+
+
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 16417#       发表于 2020-6-30 19:44
+
+
+
+
+有一说一3d确实还是早点搞好，希望是7月初吧
+
+—— 來自 samsung SM-N9750, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16418#       发表于 2020-6-30 19:47
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48014489&amp;ptid=1929631" target="_blank">暴走的包子 发表于 2020-6-30 19:44</a>
+
+有一说一3d确实还是早点搞好，希望是7月初吧
+
+
+—— 來自 samsung SM-N9750, Android 10上的 S1Next-鵝版 v2 ...</blockquote>
+刚刚tc说了，安排在7月末了，而且有可能继续推迟
+
+
+
+
+
+
+
+-----
+
+####  Cla0221  
+##### 16419#       发表于 2020-6-30 19:50
+
+
+
+
+七月末，这就又和生日撞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16420#       发表于 2020-6-30 19:53
+
+
+
+
+对啊，接下来的打钱机会连着是b站二周年，3d，生日<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  兔耳僵尸  
+##### 16421#       发表于 2020-6-30 19:54
+
+
+
+
+生日设定的真不好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">收益化两周年还会纪念吗
+
+—— 来自 vivo V1824A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16422#       发表于 2020-6-30 20:00
+
+
+
+
+收益化2周年，那被回收过一次怎么算？以后每年要庆祝两次收益化了吗（
+
+
+
+
+
+  
