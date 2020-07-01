@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-01 00:03** 
+> ## **本文件最后更新于2020-07-01 10:03** 
 
 
 
@@ -9322,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_Odz3f" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_ndD6q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16363,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_AE39N" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_oCcND" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -25560,10 +25560,13 @@ img-5f0004a69dd6ddaa32c2973106bfd8ae.jpg
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 6战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Mr.shelter| + 1|好评加鹅|
+| Sanguine| + 1|好评加鹅|
+| jhouo8989| + 1|好评加鹅|
 | 惑星| + 1|好评加鹅|
 | 路人庚| + 1|好评加鹅|
 | A2014720| + 1|好评加鹅|
@@ -25590,4 +25593,353 @@ img-5f0004a69dd6ddaa32c2973106bfd8ae.jpg
 
 
 
- 
+
+
+-----
+
+####  kolu33  
+##### 16454#       发表于 2020-7-1 00:35
+
+
+
+
+当初咩姐是说不让转TC是因为有B限的原因？想本土和这边一碗水端平。但现在看起来B限完全不能和TC比啊，是不是该建议她允许tc转播了
+
+
+
+
+
+
+
+-----
+
+####  草牛  
+##### 16455#       发表于 2020-7-1 00:40
+
+
+
+
+她原话是害羞所以不让转，你听谁传的谣
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16456#       发表于 2020-7-1 00:42
+
+
+
+ 本帖最后由 A2014720 于 2020-7-1 00:44 编辑 
+
+tc转过来又不能互动，要是没同传的话，直播间就一张图不虚无的批爆吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，怕不是要版聊成风
+
+我还要看0群呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 16457#       发表于 2020-7-1 00:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48017429&amp;ptid=1929631" target="_blank">kolu33 发表于 2020-7-1 00:35</a>
+
+当初咩姐是说不让转TC是因为有B限的原因？想本土和这边一碗水端平。但现在看起来B限完全不能和TC比啊，是不 ...</blockquote>
+不让转就是想要一个轻松一点的闲聊地方啊 她觉得tc就是闲聊的 油管b限都是全力
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16458#       发表于 2020-7-1 00:46
+
+
+
+ 本帖最后由 A2014720 于 2020-7-1 00:55 编辑 
+
+她这几次b限虽少效果拉满（lol下饭另说），现在这样就可以了，我是很满意<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+毕竟在b站是爱豆路啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16459#       发表于 2020-7-1 00:49
+
+
+
+
+有想法的上推或者邮箱发吧，现在更多的像是想留一个自己的小livehouse那种感觉了吧，tc听下来的都能感觉到，就是无准备瞎聊换个说法就是虚无，不过对她来说这种直播更接近于兴趣吧，对于她保持精神健康也许有点好处（个人觉得就保持现状也挺好的
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16460#       发表于 2020-7-1 00:52
+
+
+
+ 本帖最后由 Sanguine 于 2020-7-1 00:54 编辑 
+
+[【熟肉】不希望tc被转播而撒娇的mea【10.4tc剪辑】](https://b23.tv/BV1LE411D7xV)<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+有种说法是tc她发脾气了更好哄回来（）确实有利于精神健康
+
+
+
+
+
+
+
+-----
+
+####  llconforever  
+##### 16461#       发表于 2020-7-1 00:57
+
+
+
+
+话说国内能直连看TC吗
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16462#       发表于 2020-7-1 01:18
+
+
+
+
+大概看你地区和网络供应商
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16463#       发表于 2020-7-1 01:25
+
+
+
+
+情况比较微妙
+
+
+不是完全上不了
+
+
+但也不能说使用体验很舒适（有的时候即使挂着梯子也是）
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16464#       发表于 2020-7-1 03:47
+
+
+
+
+能吧，不然0群怎么天天拉新人去看tc
+但有些时段比如晚上就是卡，挂梯也没用，单纯网络问题跟wall没关系
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16465#       发表于 2020-7-1 07:02
+
+
+
+ 本帖最后由 Sanguine 于 2020-7-1 07:08 编辑 
+
+bsyl，搬一下太古的统计数据[月收入报告【2020-06】](https://www.bilibili.com/read/cv6597675)
+2020.6收入合计：
+CNY/元:312,517.3150    JPY/日元:4,766,389.0821
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16466#       发表于 2020-7-1 08:37
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不安
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16467#       发表于 2020-7-1 08:41
+
+
+
+
+是不是这个月播的少啊
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16468#       发表于 2020-7-1 08:42
+
+
+
+
+仔细看下详细收入来源，油管的收入是增加的，阿B这边少了而已，而少的原因她自己也说了——“上次我来BILIBILI是啥时候来着？”
+
+SYL有2周年庆的前提下404那边还是不如阿B这边高啊
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16469#       发表于 2020-7-1 08:47
+
+
+
+
+sl收入没算的话应该还有点。
+
+
+问题是甚至油管有很多也是阿b这边的人打的。不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16470#       发表于 2020-7-1 09:00
+
+
+
+
+统计sl有点难，开播的时候统计打钱提示得人工计数吧，没开播的时候也统计不到。
+看看榜上的意思一下算了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16471#       发表于 2020-7-1 09:08
+
+
+
+ 本帖最后由 Dualist彩 于 2020-7-1 09:11 编辑 
+
+上个月sl蛮多的，29号我看了榜10都有125，0抽成它不香么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16472#       发表于 2020-7-1 09:20
+
+
+
+
+有没有有能程序员给写个代码把sl的打钱也显示出颜色啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，有颜色又没抽成它不好吗
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16473#       发表于 2020-7-1 09:51
+
+
+
+ 本帖最后由 A2014720 于 2020-7-1 09:53 编辑 
+
+关注月增1w3，sc400w
+
+凉了. jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
