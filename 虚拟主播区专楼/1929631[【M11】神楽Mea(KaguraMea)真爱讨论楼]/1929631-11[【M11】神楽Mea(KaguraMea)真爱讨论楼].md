@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-01 10:03** 
+> ## **本文件最后更新于2020-07-01 16:04** 
 
 
 
@@ -9322,7 +9322,7 @@ big big big的告知<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 
-<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_ndD6q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/EblnO8-UEAASyEs?format=jpg&amp;name=medium" id="aimg_YBuzj" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 看推tag发现油管点击数也正好快1000w了啊
 
@@ -16363,7 +16363,7 @@ recording bot
 
  本帖最后由 魔法使い2019 于 2020-6-28 21:59 编辑 
 
-配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_oCcND" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
+配图<img src="https://img2.momoshop.com.tw/goodsimg/0004/176/286/4176286_B.jpg?t=1588209896" id="aimg_RjbZc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)（从声音看应该是这种容器吧...
 
 
 
@@ -25560,10 +25560,12 @@ img-5f0004a69dd6ddaa32c2973106bfd8ae.jpg
 
 
 
- 参与人数 6战斗力 +6
+ 参与人数 8战斗力 +8
 
 |昵称|战斗力|理由|
 |----|---|---|
+| noaki| + 1|好评加鹅|
+| pei23333| + 1|好评加鹅|
 | Mr.shelter| + 1|好评加鹅|
 | Sanguine| + 1|好评加鹅|
 | jhouo8989| + 1|好评加鹅|
@@ -25938,6 +25940,473 @@ sl收入没算的话应该还有点。
 关注月增1w3，sc400w
 
 凉了. jpg<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16474#       发表于 2020-7-1 10:48
+
+
+
+
+说来说去，还是不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 16475#       发表于 2020-7-1 10:50
+
+
+
+
+400w在彩虹都是第三了喂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16476#       发表于 2020-7-1 10:51
+
+
+
+
+一天24小时高强度不安（指楼友
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16477#       发表于 2020-7-1 10:59
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 16478#       发表于 2020-7-1 11:15
+
+
+
+
+这段我看过，接下来估计是我不知道第几喜欢的“你麻凉了只能回家和我结婚了呜呜呜”环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+-----
+
+####  likemike  
+##### 16479#       发表于 2020-7-1 11:19
+
+
+
+
+直接快进到婚礼现场可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  deep24froz  
+##### 16480#       发表于 2020-7-1 11:23
+
+
+
+
+再加上饭盒和sl话,已经很可以了.要算能到自己手里的真的属于坐在金字塔顶的一群人里了.
+
+那么分析完了,阿咩该和我回家见父母了吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16481#       发表于 2020-7-1 11:30
+
+
+
+
+凉了只是借口，结婚才是目的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16482#       发表于 2020-7-1 11:35
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">楼友的思维唯有在这一层才发散的格外上快
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16483#       发表于 2020-7-1 11:41
+
+
+
+ 本帖最后由 Mr.shelter 于 2020-7-1 11:43 编辑 
+
+我建议再在外面开一个管人杞忧不安楼<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">，有人附议吗
+
+
+
+
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 16484#       发表于 2020-7-1 11:47
+
+
+
+
+饭盒你们是怎么估算的，几个月前我看到有hxd说饭盒能上百万日元
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16485#       发表于 2020-7-1 11:50
+
+
+
+
+看看每档的回复人数和点赞吧，能猜出个大概？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16486#       发表于 2020-7-1 12:01
+
+
+
+
+最多几十万吧<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  ロキシー  
+##### 16487#       发表于 2020-7-1 12:12
+
+
+
+ 本帖最后由 ロキシー 于 2020-7-1 12:13 编辑 
+
+官号发了二创条例
+[https://bilibili.com/read/cv6597175](https://bilibili.com/read/cv6597175)
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16488#       发表于 2020-7-1 12:19
+
+
+
+ 本帖最后由 A2014720 于 2020-7-1 12:24 编辑 
+
+完整熟肉不让放是为啥
+
+
+2、不允许以任何形式投稿的内容
+
+（1）注明禁止转载的内容。
+
+echo这种怎么说啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16489#       发表于 2020-7-1 12:24
+
+
+
+
+虹杏的基本都这样的，不给放熟肉主要是会影响官号播放收益吧
+这个规定还挺宽松的
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16490#       发表于 2020-7-1 12:29
+
+
+
+ 本帖最后由 pei23333 于 2020-7-1 12:51 编辑 
+
+其他都挺合理的，就这条有点迷，不过可以拉官组联合投稿的吧,猛一看还以为不让个人烤完整熟肉了，都是好意为了规范，还是不黑皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  59268416  
+##### 16491#       发表于 2020-7-1 12:32
+
+
+
+
+恰头去尾不就不完整了吗，分两次发不就不完整了吗，这有啥的
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16492#       发表于 2020-7-1 12:35
+
+
+
+
+今天还没起来啊，不是7月老是要录音，得调解下生物钟吧<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16493#       发表于 2020-7-1 12:46
+
+
+
+
+不给放完整熟肉，应该防止516时暗大佐这种的情况吧
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16494#       发表于 2020-7-1 12:50
+
+
+
+
+其实就是参考虹杏的条例吧，然后进行了一点宽松化调整
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16495#       发表于 2020-7-1 12:52
+
+
+
+
+这种怎么可能拦得住<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不过全熟确实现在看的人越来越少了，真想出也不是没办法，就这样吧
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16496#       发表于 2020-7-1 12:54
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48022238&amp;ptid=1929631" target="_blank">A2014720 发表于 2020-7-1 12:52</a>
+
+这种怎么可能拦得住
+
+
+不过全熟确实现在看的人越来越少了，真想出也不是没办法，就这样吧 ...</blockquote>
+起码碰见搞事的能干掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至少对这方面还是挺好的
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16497#       发表于 2020-7-1 13:03
+
+
+
+
+确实，全熟看的人是少了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16498#       发表于 2020-7-1 14:50
+
+
+
+
+想看的都追直播了，全熟作为又累又没什么人看的形式的确有点尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  noaki  
+##### 16499#       发表于 2020-7-1 15:05
+
+
+
+
+除非516那种及其特殊的情况，每次追完直播后全熟倒是真的没有什么点进去的欲望，切片好一点。
+
+不过每次现实的破事一多起来时，连切片都能把你的稍后再看挤爆<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Kayz996  
+##### 16500#       发表于 2020-7-1 15:08
+
+
+
+
+小麻已经没有魅力了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+话说是这一周开始摸鱼吗
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
 
