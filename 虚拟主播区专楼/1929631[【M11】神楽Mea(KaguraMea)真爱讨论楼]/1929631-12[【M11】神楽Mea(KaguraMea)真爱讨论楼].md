@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-02 00:03** 
+> ## **本文件最后更新于2020-07-02 16:02** 
 
 
 
@@ -3276,4 +3276,541 @@ syl之前有天早上mea说到线下话题，记得也是犬山，不行；兔�
 
 
 
-                                           
+
+
+-----
+
+####  thisisaspider  
+##### 16691#       发表于 2020-7-2 00:15
+
+
+
+
+有点感叹 时代不一样了，这行业已经变成劳动密集型和资本密集型了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+虽然这和我有什么关系呢
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16692#       发表于 2020-7-2 00:35
+
+
+
+ 本帖最后由 无限舰制 于 2020-7-2 00:36 编辑 
+
+我倒觉得离这个阶段还远……哪来的啥大资本
+
+
+就是暂时锁死在一个低运行水平上而已，反正也没办法突破油管推荐算法的极限
+
+说密集化也没啥人想猛抽新卡
+
+
+
+
+
+
+
+-----
+
+####  thisisaspider  
+##### 16693#       发表于 2020-7-2 01:39
+
+
+
+
+这结论是有点加速主义，但虹、杏都过B轮了，基本上过了C轮这个点大部分公司的发展就不是由创始人说的算了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+甚至绝大多数创始人会在这个点把企业卖掉。除非创始人是真的有实力或者就是资方关系户。
+
+我是不太看好虹杏两家创始人的资本运作能耐就是了。
+
+不过资本密集是完全用词不当，最多算是推动。世界上资本密集的行业也没几个。
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16694#       发表于 2020-7-2 01:45
+
+
+
+
+以后虚拟管人业大概会变虚拟偶像业吧，但是这和虹杏以外的人有啥关系呢
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16695#       发表于 2020-7-2 02:07
+
+
+
+
+一枝红杏出墙来
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16696#       发表于 2020-7-2 02:21
+
+
+
+
+主要是我觉得劳动力也不咋密集
+
+
+和传统偶像相比缺乏退出机制，结果现在老人盘踞着不下来了（当然这也不是什么坏事，搞固定毕业对小部分粉丝是很难接受的事）新人进入潜在门槛不小
+
+
+前景又不是特别明显，暴兵抽卡反而可能降低收益分散关注对自己不利，企业staff能做到的事不多，除了活动支援和3D舞台的构建，在日常提供思路和方向方面已经被证明管得太多还不如自己做（或者说staff没这实力去指导活动，反过来现有的活动风格本身已经形成了自由放任的底色）
+
+
+结果主播也多不起来，staff也多不起来，反正就业机会是提供不了多少了，当长期饭票（真的长期吗）倒是舒服
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16697#       发表于 2020-7-2 02:44
+
+
+
+
+突然想起了之前看到的咩痛车图，车主如果发到推上去估计能吓到她一下？说不定还能骗个回复<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">感觉那人说不定就是某位楼友
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16698#       发表于 2020-7-2 09:43
+
+
+
+
+你是指这张么？
+
+
+
+
+
+
+b4d972ff9925bc313ea4c3c949df8db1ca137090.jpg
+(46.99 KB, 下载次数: 0)
+
+
+
+
+下载附件
+
+
+2020-7-2 09:43 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/02/094347pg8vuvvb8bhvu86g.jpg" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16699#       发表于 2020-7-2 10:20
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">秃头太anti了
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16700#       发表于 2020-7-2 12:01
+
+
+
+
+尊 重 人 设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  笋狐  
+##### 16701#       发表于 2020-7-2 12:16
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这车开出去有点吸交警啊，不知道这老哥备案了没
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16702#       发表于 2020-7-2 12:25
+
+
+
+
+这车啊，另一面是大亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16703#       发表于 2020-7-2 12:28
+
+
+
+
+好！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16704#       发表于 2020-7-2 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48034653&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-7-2 12:25</a>
+这车啊，另一面是大亏
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+有图吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  planetcd  
+##### 16705#       发表于 2020-7-2 12:39
+
+
+
+
+而且前面是贴贴
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16706#       发表于 2020-7-2 13:23
+
+
+
+ 本帖最后由 weiweiEX 于 2020-7-2 13:29 编辑 
+
+提前动起来的……
+[https://twitter.com/moli33969990/status/1278559055808573442](https://twitter.com/moli33969990/status/1278559055808573442)刚才发错链接了草
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 16707#       发表于 2020-7-2 13:26
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035378&amp;ptid=1929631" target="_blank">weiweiEX 发表于 2020-7-2 13:23</a>
+
+提前动起来的……
+
+https://twitter.com/search?q=%E7%A5%9E%E6%A5%BD%E3%82%81%E3%81%82&amp;src=saved_search_ ...</blockquote>
+[https://twitter.com/moli33969990/status/1278559055808573442](https://twitter.com/moli33969990/status/1278559055808573442)  你链接没发好
+
+
+女粉的火腿肠 
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16708#       发表于 2020-7-2 13:28
+
+
+
+
+女粉，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16709#       发表于 2020-7-2 13:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48032268&amp;ptid=1929631" target="_blank">kolu33 发表于 2020-7-2 09:43</a>
+
+你是指这张么？</blockquote>
+就是这个，发到推上怕不是杂谈素材+1，谁的来认领一下呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  神光咩咩  
+##### 16710#       发表于 2020-7-2 14:07
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/02/140656fh3qh3przccqckpz.gif" referrerpolicy="no-referrer">
+
+
+<strong>未标题-1.gif</strong> (1.92 MB, 下载次数: 1)
+
+下载附件
+
+2020-7-2 14:06 上传
+
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16711#       发表于 2020-7-2 14:12
+
+
+
+
+想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d想看草莓饺子3d
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16712#       发表于 2020-7-2 14:52
+
+
+
+
+男粉又要爬了呜呜呜
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16713#       发表于 2020-7-2 14:54
+
+
+
+
+这就是女粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+想看麻腿了，可恶<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16714#       发表于 2020-7-2 14:55
+
+
+
+
+男粉身材够好也不是不可以cos了拍一个
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16715#       发表于 2020-7-2 15:06
+
+
+
+
+支持你们！加油！记得搞个滤镜。
+
+
+
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 16716#       发表于 2020-7-2 15:11
+
+
+
+
+男粉快站起来 谁自告奋勇众筹算我一份（
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16717#       发表于 2020-7-2 15:38
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不要男粉不要男粉
+
+
+
+
+
+                                          
