@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-02 20:03** 
+> ## **本文件最后更新于2020-07-02 22:02** 
 
 
 
@@ -3431,7 +3431,7 @@ syl之前有天早上mea说到线下话题，记得也是犬山，不行；兔�
 
 
 b4d972ff9925bc313ea4c3c949df8db1ca137090.jpg
-(46.99 KB, 下载次数: 0)
+(46.99 KB, 下载次数: 1)
 
 
 
@@ -4366,4 +4366,430 @@ https://twitter.com/search?q=%E7%A5%9E%E6%A5%BD%E3%82%81%E3%81%82&amp;src=saved_
 
 
 
-                                         
+
+
+-----
+
+####  Kayz996  
+##### 16750#       发表于 2020-7-2 20:21
+
+
+
+
+我想小小麻来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16751#       发表于 2020-7-2 20:21
+
+
+
+
+看了momo老师在推上发的里live2d才发现原来皮都可以这么流畅了阿，阿咩会有意愿升级一下吗，顺便点赞了女粉，发了关于3000党更新的饭盒 酸了.jpg
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16752#       发表于 2020-7-2 20:26
+
+
+
+
+前几天的某次正好聊到了live2D，之前是有准备把草莓果酱那个做成live2D的，但因为每次都是正准备开始动手的时候就被别的事情耽误了，中途也是各种事情耽误，然后就一直拖到了现在
+
+
+
+
+
+
+
+-----
+
+####  pei23333  
+##### 16753#       发表于 2020-7-2 20:30
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48040631&amp;ptid=1929631" target="_blank">路人庚 发表于 2020-7-2 20:26</a>
+
+前几天的某次正好聊到了live2D，之前是有准备把草莓果酱那个做成live2D的，但因为每次都是正准备开始动手的 ...</blockquote>
+太可惜了，要是真搞了就是momo那种感觉吧，看起来真的舒服
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16754#       发表于 2020-7-2 20:36
+
+
+
+
+接下来还有生日肉猪，ddd，bls，三个小弟的事情要忙。可能到年底都不会重新考虑新衣服或者升级现在的机体了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。说起来小紫收益化了。小麻是不是从收益化开始就放养小弟了啊
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16755#       发表于 2020-7-2 20:38
+
+
+
+
+我也想知道她在忙些啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">省得无端去催
+
+
+但是她不想说的太详细
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16756#       发表于 2020-7-2 20:38
+
+
+
+ 本帖最后由 A2014720 于 2020-7-2 20:40 编辑 
+
+又能怎样呢，除了引流啥都帮不了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+最近这么多事如果要她一个人来确实挺忙的，除了疫情无所谓了
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16757#       发表于 2020-7-2 20:44
+
+
+
+
+那现在小绿小紫发展的怎么样啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16758#       发表于 2020-7-2 20:44
+
+
+
+
+这服务器不能发图啊（
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16759#       发表于 2020-7-2 20:44
+
+
+
+
+唉，你说怎么就腰斩了呢
+
+<img src="https://img.saraba1st.com/forum/202007/02/204431fv9ic98kczb5a831.gif" referrerpolicy="no-referrer">
+
+
+<strong>bili_v_1593693808663.gif</strong> (1.15 MB, 下载次数: 0)
+
+下载附件
+
+2020-7-2 20:44 上传
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  时雨rain  
+##### 16760#       发表于 2020-7-2 21:01
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我还指望那个新人能够让神楽组建成一个小箱呢
+Syl<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">在这正常说话应该可以吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不行的话就去建个小号来了
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16761#       发表于 2020-7-2 21:10
+
+
+
+
+初印象太电波了，我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  pabier  
+##### 16762#       发表于 2020-7-2 21:15
+
+
+
+
+bfm变梅丽了，没必要在套个皮当v吧
+
+大头要复出应该也有更好的选择，没必要选咩啊
+
+syl  现在只能算是神楽组吧，还不能算是箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+让她慢慢来吧，楼友不安也没什么用啊
+
+我觉得应该办不成<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">比起咩，我更期望有一队合格的运营
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16763#       发表于 2020-7-2 21:25
+
+
+
+ 本帖最后由 A2014720 于 2020-7-2 21:34 编辑 
+
+p家在前我觉得现在这样挺好了，除非哪天虹杏嗷的一声炸了再说<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+所以就这样吧
+
+
+
+
+
+
+
+-----
+
+####  シオン诗音  
+##### 16764#       发表于 2020-7-2 21:28
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个概率真的太低了
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16765#       发表于 2020-7-2 21:39
+
+
+
+ 本帖最后由 Dualist彩 于 2020-7-2 21:41 编辑 
+
+好久没鲨云p了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不晓得你咩现在还有没鲨云p的心了
+
+
+
+
+
+
+
+-----
+
+####  kolu33  
+##### 16766#       发表于 2020-7-2 21:41
+
+
+
+
+讲道理，不跳本人脸不算云P，顶多是事业民
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16767#       发表于 2020-7-2 21:43
+
+
+
+
+我戒断了，需要治疗
+
+
+
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 16768#       发表于 2020-7-2 21:48
+
+
+
+
+鉴于阿咩想成为p，所以云p现在升级为了云pp<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+对于meaP的能力，我决定等她先搞出个固定团建项目再进行评价<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">（菜
+
+
+
+
+
+
+
+-----
+
+####  ashero  
+##### 16769#       发表于 2020-7-2 21:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48040846&amp;ptid=1929631" target="_blank">Mr.shelter 发表于 2020-7-2 20:44</a>
+
+那现在小绿小紫发展的怎么样啊。老实说要是她给小绿小紫大孩子搞了皮，又花时间引流，花时间帮忙做 ...</blockquote>
+如月发展得还行 noe也过收益化了 当然还是底边一百同接上下的
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16770#       发表于 2020-7-2 21:51
+
+
+
+
+就她？搞固定团建项目？那要等她神功大成
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 甘栗No.007| + 1|四人正好一桌麻将www|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16771#       发表于 2020-7-2 21:52
+
+
+
+
+么得资本做推手成不了箱，四个人建议四等分的阿萨姆人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16772#       发表于 2020-7-2 21:53
+
+
+
+
+翻页？你楼又有bug了
+
+
+
+
+
+                                        
