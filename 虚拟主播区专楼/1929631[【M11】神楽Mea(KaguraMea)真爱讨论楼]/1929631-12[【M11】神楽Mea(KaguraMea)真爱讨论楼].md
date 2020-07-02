@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-02 22:02** 
+> ## **本文件最后更新于2020-07-03 02:01** 
 
 
 
@@ -4792,4 +4792,657 @@ p家在前我觉得现在这样挺好了，除非哪天虹杏嗷的一声炸了�
 
 
 
-                                        
+
+
+-----
+
+####  A2014720  
+##### 16773#       发表于 2020-7-2 22:02
+
+
+
+ 本帖最后由 A2014720 于 2020-7-2 22:58 编辑 
+
+11点了，大概鸽了
+
+我睡了
+
+他妈的都12点了，人呢<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16774#       发表于 2020-7-2 22:22
+
+
+
+
+草，凑齐四个人了，不知道她们兴趣如何，总感觉真的可能会有很多麻将配信
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16775#       发表于 2020-7-2 22:59
+
+
+
+
+tmd在如月那出现了，等如月下播吧
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16776#       发表于 2020-7-2 23:01
+
+
+
+
+如月到几点啊
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16777#       发表于 2020-7-2 23:04
+
+
+
+
+已经下了，这人就下播前10分钟去打了个招呼
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16778#       发表于 2020-7-2 23:05
+
+
+
+
+饭盒
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16779#       发表于 2020-7-2 23:08
+
+
+
+
+狗屎，我要去应聘运营，按着头让她播
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16780#       发表于 2020-7-2 23:10
+
+
+
+
+快睡着了都，深夜助眠秋梨膏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16781#       发表于 2020-7-2 23:12
+
+
+
+
+？你为了让她多播去应聘运营？难道不是为了麻图？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16782#       发表于 2020-7-2 23:13
+
+
+
+
+noe看起来不像是有很多空余时间可以直播的人，如月倒是对直播和各种企划很上心。就算这第四人是张绝世神卡，犹如holo龙皇一般，但这个人势小组整合意见，排班，同时掏出话题度高的企划，怎么可能呢。而且就算能开辟一片天地，有能力保证特色，不被其他企业抄作业吗<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16783#       发表于 2020-7-2 23:15
+
+
+
+
+所以说建议群口阿萨姆人，那场面，我想想都刺激<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16784#       发表于 2020-7-2 23:18
+
+
+
+
+然而不算上新人我已经脑补出现在三人组的阿萨姆人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16785#       发表于 2020-7-2 23:20
+
+
+
+
+家庭影院asmr？可惜我是木耳，欣赏不来
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16786#       发表于 2020-7-2 23:22
+
+
+
+
+听了如月那个阿萨姆人的剪辑，如月这对asmr的氛围把持不错<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  离心  
+##### 16787#       发表于 2020-7-2 23:23
+
+
+
+ 本帖最后由 离心 于 2020-7-2 23:27 编辑 
+
+龙皇成神的基础是建立在holo已经是大箱＋曝光度。所以你没箱推支持＋没曝光度，就算你有再强的能力，你是金色传说级的神卡也会被浪潮给拍死。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Mr.shelter  
+##### 16788#       发表于 2020-7-2 23:24
+
+
+
+
+明天还有事，等不了了，咩咩我们就此别过<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">，睡了睡了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16789#       发表于 2020-7-2 23:35
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/02/233452dj8wdmdafj8o81ad.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20200702233212.jpg</strong> (73.8 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-2 23:34 上传
+
+
+
+
+
+话说最下面一行第二个是哪位
+
+
+
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 16790#       发表于 2020-7-2 23:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48042715&amp;ptid=1929631" target="_blank">无限舰制 发表于 2020-7-2 23:35</a>
+
+话说最下面一行第二个是哪位</blockquote>
+周淑怡吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16791#       发表于 2020-7-2 23:41
+
+
+
+
+这个有人有什么头绪吗
+
+
+
+
+
+
+QQ图片20200702234036.png
+(5.62 KB, 下载次数: 1)
+
+
+
+
+下载附件
+
+
+2020-7-2 23:40 上传
+
+
+
+
+
+
+
+
+
+<img src="https://img.saraba1st.com/forum/202007/02/234059lznvbtivswrlidpx.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  惑星  
+##### 16792#       发表于 2020-7-2 23:55
+
+
+
+
+这什么玩意儿，看不懂
+
+syl，今天没看到mea直播，这个仇我记下了
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16793#       发表于 2020-7-3 00:00
+
+
+
+
+我也想问最下面一行第二个是谁来着，结果有人帮我问了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  makourisu  
+##### 16794#       发表于 2020-7-3 00:04
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48042772&amp;ptid=1929631" target="_blank">GRMeA104 发表于 2020-7-2 23:41</a>
+这个有人有什么头绪吗</blockquote>
+这是啥？夸皇那个祝贺视频mea的回复吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还能有这种发散方式嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  physi1202  
+##### 16795#       发表于 2020-7-3 00:08
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们暗黑人没有自己的楼吗
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16796#       发表于 2020-7-3 00:09
+
+
+
+
+建议去当狐学家，素材杠杠的多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 16797#       发表于 2020-7-3 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48043004&amp;ptid=1929631" target="_blank">makourisu 发表于 2020-7-3 00:04</a>
+
+这是啥？夸皇那个祝贺视频mea的回复吗？
+
+还能有这种发散方式嘛 ...</blockquote>
+大概是魔怔梁木人发作了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然这解读确实吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  proxima  
+##### 16798#       发表于 2020-7-3 00:19
+
+
+
+
+套皮主播能有几个成本，也就个皮套钱设备钱，设备钱又不见得mea给出，发不发固定工资也没人知道，哪来什么收不回成本
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16799#       发表于 2020-7-3 00:21
+
+
+
+
+草。有狐学家内味了
+
+
+
+
+
+
+
+-----
+
+####  Leutnant某囧  
+##### 16800#       发表于 2020-7-3 00:42
+
+
+
+
+看来咩姐应该不播了，刚好看完书
+
+
+
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 16801#       发表于 2020-7-3 00:45
+
+
+
+
+我倒觉得小绿小紫这么玩还挺开心的,两人应该都不会做全职v,那像这种没压力有点赚头的工作其实还蛮不错的
+
+
+
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 16802#       发表于 2020-7-3 00:49
+
+
+
+
+1点不见羊就闪了
+
+
+
+
+
+
+
+-----
+
+####  无限舰制  
+##### 16803#       发表于 2020-7-3 01:04
+
+
+
+
+期待你麻以后讲她们的段子
+
+
+
+
+
+
+
+-----
+
+####  路人庚  
+##### 16804#       发表于 2020-7-3 01:04
+
+
+
+
+新推，Zz
+
+
+
+
+
+
+
+-----
+
+####  weiweiEX  
+##### 16805#       发表于 2020-7-3 01:08
+
+
+
+
+还真是zz草
+
+
+
+
+
+
+
+-----
+
+####  暗心舞踏  
+##### 16806#       发表于 2020-7-3 01:11
+
+
+
+
+好了，孩子们，该睡觉了.jpg
+
+
+
+
+
+
+
+-----
+
+####  Sanguine  
+##### 16807#       发表于 2020-7-3 01:11
+
+
+
+
+还没睡的各位都zz（无端）<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  A2014720  
+##### 16808#       发表于 2020-7-3 01:14
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+可以安稳睡觉了
+
+
+
+
+
+
+
+-----
+
+####  単推し人  
+##### 16809#       发表于 2020-7-3 02:00
+
+
+
+
+可怜的天🐶被她玩弄在股掌之间.gif
+
+
+
+
+
+                                       
