@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-02 14:01** 
+> ## **本文件最后更新于2020-07-03 14:00** 
 
 
 
@@ -8974,4 +8974,476 @@ op没啥身高歧视
 
 
 
-                                 
+
+
+-----
+
+####  理六  
+##### 52990#       发表于 2020-7-2 14:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035745&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2020-07-02 13:49:39</a>
+op没啥身高歧视
+女帝不也爆五黄好几个头</blockquote>女帝191，五皇174，正好吃奈的正常开大车身高差
+艾斯大和这个就差太多了，接个吻还得一蹦三米高
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  yario  
+##### 52991#       发表于 2020-7-2 14:02
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035278&amp;ptid=98922" target="_blank">周愚 发表于 2020-7-2 13:14</a>
+
+搞不好真是这样</blockquote>
+真相了？！
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 52992#       发表于 2020-7-2 14:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035278&amp;ptid=98922" target="_blank">周愚 发表于 2020-7-2 13:14</a>
+
+搞不好真是这样</blockquote>
+年龄和性别就对不上，而且凯多老窝在那。
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52993#       发表于 2020-7-2 14:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035885&amp;ptid=98922" target="_blank">理六 发表于 2020-7-2 14:01</a>
+女帝191，五皇174，正好吃奈的正常开大车身高差
+艾斯大和这个就差太多了，接个吻还得一蹦三米高</blockquote>
+别说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有画面了
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 52994#       发表于 2020-7-2 14:16
+
+
+
+
+这一章最重要的道具估计是航海日记吧，有了这个主线恐怕突飞猛进，海贼王船员都难对付，撬开嘴巴难.但是海贼王船员的日记就不一样了，估计会引起多方混战了.
+ps：正经人谁他妈写日记啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  chais613  
+##### 52995#       发表于 2020-7-2 15:46
+
+
+
+
+20年前见证了御田的处刑
+
+大和你到底多大岁数？
+
+
+
+
+
+
+
+-----
+
+####  modkingr  
+##### 52996#       发表于 2020-7-2 16:33
+
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">会不会有大和凯多地上最强父女斗嘴场景啊 
+
+
+虽然凯多逼格一直在掉 不过现在感觉凯团还挺温馨的 虽然坏事也没少干
+
+
+
+
+
+
+
+-----
+
+####  hkguty  
+##### 52997#       发表于 2020-7-2 16:42
+
+
+
+
+感觉年龄应该没女帝大吧，应该还是20多
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 52998#       发表于 2020-7-2 17:23
+
+
+
+
+身高无所谓的...阿拉丁的那个老婆比他得高（长）一倍吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  理六  
+##### 52999#       发表于 2020-7-2 17:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038477&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-07-02 17:23:43</a>
+身高无所谓的...阿拉丁的那个老婆比他得高（长）一倍吧</blockquote>艾斯之前的剧情没提过大和，我个人倾向于应该没处过只是打过架或者是意气相投朋友，处过怎么也得想一想，提一提，当然wt要是说因为分手不愉快艾斯才不提不想宛如已经忘了这么一个过目难忘的飒爽美女我也接受<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  saturnus  
+##### 53000#       发表于 2020-7-2 18:13
+
+
+
+ 本帖最后由 saturnus 于 2020-7-2 18:18 编辑 
+
+新鬼岛会不会是泥巴男和德雷克都去过的那个制造武器的岛？
+
+
+话说现在越来越觉得最终决战不会是在和之国鬼岛，现在的剧情发展有点像水之都篇海上列车的情况，真正的捉对厮杀还在后面
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+
+
+
+
+-----
+
+####  绝赞販売中  
+##### 53001#       发表于 2020-7-2 19:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48039119&amp;ptid=98922" target="_blank">saturnus 发表于 2020-7-2 18:13</a>
+新鬼岛会不会是泥巴男和德雷克都去过的那个制造武器的岛？
+
+
+话说现在越来越觉得最终决战不会是在和之国鬼岛 ...</blockquote>
+可是和之国大蛇问题摆在这里，至少鬼岛得给九侠有一个交代的.否则他们的准备有点多余
+
+
+
+
+
+
+
+-----
+
+####  hkguty  
+##### 53002#       发表于 2020-7-2 19:03
+
+
+
+
+看了下新的偷跑图大和前面一页对为了赶时间打过来的路飞说，真是个不明事理的家伙啊，让我想起和那家伙的战斗了。所以就是跟艾斯打过吧。
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 53003#       发表于 2020-7-2 22:04
+
+
+
+
+喷了，航海日记这么重要的道具，居然在凯公主手里
+
+
+
+
+
+
+
+-----
+
+####  天宮奏  
+##### 53004#       发表于 2020-7-2 23:45
+
+
+
+ 本帖最后由 天宮奏 于 2020-7-2 23:46 编辑 
+
+注意點，叫凱公子（雷鳴四卦警告）
+
+壓碼頭人設太頂了，趁尾田還沒整出什麽御田式騷操作趕緊畫一張<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202007/02/234641r7gostab35o27fa2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>YAMTP.jpg</strong> (500.67 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-2 23:46 上传
+
+
+
+
+
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yario| + 1|大触|
+| modkingr| + 1|好评加鹅|
+| powerpyc| + 1|好评加鹅|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  cdfjg  
+##### 53005#       发表于 2020-7-3 00:12
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48042820&amp;ptid=98922" target="_blank">天宮奏 发表于 2020-7-2 23:45</a>
+ 注意點，叫凱公子（雷鳴四卦警告） 壓碼頭人設太頂了，趁尾田還沒整出什麽御田式騷操作趕緊畫一張  </blockquote>
+犀利<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 53006#       发表于 2020-7-3 00:16
+
+
+
+
+尾田大概的确真的被自己感动了，无语
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 53007#       发表于 2020-7-3 03:56
+
+
+
+
+其实御田的航海日记铺垫挺多的，之前回忆里好几话内容都是御田在写日记。
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 53008#       发表于 2020-7-3 10:20
+
+
+
+
+又是个美女，路飞这个罪孽深重的男人
+
+
+
+
+
+
+
+-----
+
+####  iou90  
+##### 53009#       发表于 2020-7-3 10:47
+
+
+
+[https://datamuse.guokr.com/opd](https://datamuse.guokr.com/opd)
+
+不知道类似这种玩意儿以前有人做过吗 年表的感觉然后相关人物可以点进去看介绍，还有对战记录 
+
+这个貌似只能手机看 人物好像也比较少 对战记录用sankey chart比较...
+
+
+
+
+
+
+
+-----
+
+####  u96  
+##### 53010#       发表于 2020-7-3 11:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48042820&amp;ptid=98922" target="_blank">天宮奏 发表于 2020-7-2 23:45</a>
+注意點，叫凱公子（雷鳴四卦警告）
+
+壓碼頭人設太頂了，趁尾田還沒整出什麽御田式騷操作趕緊畫一張</blockquote>
+西瓜的既视感。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  斯卡哈  
+##### 53011#       发表于 2020-7-3 12:13
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48047357&amp;ptid=98922" target="_blank">u96 发表于 2020-7-3 11:37</a>
+
+西瓜的既视感。
+
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+西瓜哪有这种身材（
+
+
+有点（红有三+包子仙）/3的感觉
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 53012#       发表于 2020-7-3 12:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48034275&amp;ptid=98922" target="_blank">仟音一心 发表于 2020-7-2 11:58</a>
+
+惊了</blockquote>
+大和原型是前田庆次吧……
+
+
+
+
+
+
+
+-----
+
+####  Algie  
+##### 53013#       发表于 2020-7-3 12:55
+
+
+
+
+海贼王迪士尼说
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+                                
