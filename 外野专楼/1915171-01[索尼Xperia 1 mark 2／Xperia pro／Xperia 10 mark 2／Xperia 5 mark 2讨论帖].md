@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-06-29 18:11** 
+> ## **本文件最后更新于2020-07-04 00:10** 
 
 
 
@@ -5500,7 +5500,7 @@ zack说pro版小两万<img src="https://static.saraba1st.com/image/smiley/face20
 
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 应该是和插拔卡槽重启一样无误的骚操作，毕竟其他语言也是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_bsfiI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/0/bddbd090589c6a654bdc43237f8bc88d/捕获1.PNG" id="aimg_kqOTz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 
@@ -18376,4 +18376,570 @@ https://m.bilibili.com/video/BV12v411B7nR
 
 
 
-                   
+
+
+-----
+
+####  MuAmUa  
+##### 904#       发表于 2020-6-29 18:50
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48000141&amp;ptid=1915171" target="_blank">leystage 发表于 2020-6-29 18:08</a>
+小众如我主力手机上甚至从来没有装过一天支付宝，好像生活毫无障碍… 微信付款最多也就一天一次无所谓了 ...</blockquote>
+据说港版背部摄像头边框那边掉漆？
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  leystage  
+##### 905#       发表于 2020-6-29 19:00
+
+
+
+<blockquote>MuAmUa 发表于 2020-6-29 18:50
+据说港版背部摄像头边框那边掉漆？
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+不知道呀，我还没碰到，看是不是个例吧。
+
+前些年 XZP 边框确实有轻微掉漆。当时看到说用硅胶套可能会大面积腐化边框掉漆，我没用所以程度还可以。
+
+
+
+
+
+
+
+-----
+
+####  christianlzl  
+##### 906#       发表于 2020-6-29 21:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47972418&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-06-27 16:36:57</a>
+靠，原来还能这样，为了能侧边手势操作我最后把手机壳右边切了一个操作区域出来…… ...</blockquote>分屏还可以设定有手机壳的，然后会在两侧出现手势条，透明度和位置什么的都可以自定...
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 907#       发表于 2020-6-29 22:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48002208&amp;ptid=1915171" target="_blank">christianlzl 发表于 2020-6-29 21:17</a>
+分屏还可以设定有手机壳的，然后会在两侧出现手势条，透明度和位置什么的都可以自定...
+
+  -- 来自 能搜索 ...</blockquote>
+分屏设置和手机壳没关系，那只是让你设你的手机壳类型，便于感应器感知好反应，那个是很早就有的功能了。
+
+你说的那些侧边感应设置都是侧感应的手动设置里的，其实没有自动感知方便。戴了手机壳不方便侧边感应还是和手机壳边缘外观有关系。今天收到了第二个手机壳，不用切掉最上沿也能顺利触发主要是这个手机壳边缘把手机屏幕边缘让出来了。
+
+— from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 908#       发表于 2020-6-29 22:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48000615&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-6-29 18:50</a>
+
+据说港版背部摄像头边框那边掉漆？
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+怕不是疏油层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  christianlzl  
+##### 909#       发表于 2020-6-29 22:23
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48002841&amp;ptid=1915171" target="_blank">EFSF 发表于 2020-6-29 22:06</a>
+
+分屏设置和手机壳没关系，那只是让你设你的手机壳类型，便于感应器感知好反应，那个是很早就有的功能了。 ...</blockquote>
+我收到的当天就下单买了新手机壳了,附赠的那些能用?完全没有你的困惑,反正我用分屏手势是手动设置,提供一个思路而已
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 910#       发表于 2020-6-29 22:35
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003085&amp;ptid=1915171" target="_blank">christianlzl 发表于 2020-6-29 22:23</a>
+我收到的当天就下单买了新手机壳了,附赠的那些能用?完全没有你的困惑,反正我用分屏手势是手动设置,提供一 ...</blockquote>
+有什么手机壳推荐吗
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  EFSF  
+##### 911#       发表于 2020-6-29 22:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003085&amp;ptid=1915171" target="_blank">christianlzl 发表于 2020-6-29 22:23</a>
+
+我收到的当天就下单买了新手机壳了,附赠的那些能用?完全没有你的困惑,反正我用分屏手势是手动设置,提供一 ...</blockquote>
+我是预定手机之前就以已经提前买了一个手机壳而已，不好用又买了一个。
+
+
+
+
+
+
+
+-----
+
+####  christianlzl  
+##### 912#       发表于 2020-6-29 22:52
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48003222&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-6-29 22:35</a>
+
+有什么手机壳推荐吗
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+我觉得某宝质量都差不多,25-30块的够用了,买之前会纠结紫色后背的镜面看不到,用上之后完全忽略掉这件事
+
+
+
+
+
+
+
+-----
+
+####  Lisylfn  
+##### 913#       发表于 2020-6-30 16:35
+
+
+
+
+相机拍出来的都是DSC_xxx的命名, 拍照拍得少, 最近发现同步出来会和旧的索尼手机拍照命名冲突, 怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  cleaner  
+##### 914#       发表于 2020-6-30 23:46
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48012291&amp;ptid=1915171" target="_blank">Lisylfn 发表于 2020-6-30 16:35</a>
+相机拍出来的都是DSC_xxx的命名, 拍照拍得少, 最近发现同步出来会和旧的索尼手机拍照命名冲突, 怎么解决[f: ...</blockquote>
+用某些批量改名软件改成拍照日期命名
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  绚烂航迹云  
+##### 915#       发表于 2020-7-1 00:44
+
+
+
+
+惊了正品菌这里还涨价了，挺火？
+
+
+----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  iceprince10  
+##### 916#       发表于 2020-7-1 12:48
+
+
+
+
+现在香港进关困难吧，港行几乎所有东西都有一定上涨。昨天又延到8月7了
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 917#       发表于 2020-7-1 13:19
+
+
+
+
+偶下了单那家加拿大店提价200刀
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  oskneo  
+##### 918#       发表于 2020-7-1 13:22
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48022171&amp;ptid=1915171" target="_blank">iceprince10 发表于 2020-7-1 12:48</a>
+现在香港进关困难吧，港行几乎所有东西都有一定上涨。昨天又延到8月7了</blockquote>
+不是能从澳门进来吗
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 919#       发表于 2020-7-2 15:00
+
+
+
+
+你索是真的牛逼，一个手机还能涨价的。
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 920#       发表于 2020-7-2 16:19
+
+
+
+
+拍照在微博又被锤了
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 921#       发表于 2020-7-2 17:59
+
+
+
+<blockquote>引用第919楼MuAmUa于2020-07-02 16:19发表的  :
+
+拍照在微博又被锤了—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 ......</blockquote>
+特殊模式吗  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 922#       发表于 2020-7-2 18:33
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48038959&amp;ptid=1915171" target="_blank">Cray 发表于 2020-7-2 17:59</a>
+特殊模式吗  
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+https://m.weibo.cn/status/4522088067506399
+photo pro的auto模式<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  不可不信邪  
+##### 923#       发表于 2020-7-2 18:52
+
+
+
+ 本帖最后由 不可不信邪 于 2020-7-2 19:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48039370&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-7-2 18:33</a>
+https://m.weibo.cn/status/4522088067506399
+photo pro的auto模式</blockquote>
+看到了
+
+—— 来自 OnePlus ONEPLUS A5010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 924#       发表于 2020-7-2 21:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48039370&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-7-2 18:33</a>
+[https://m.weibo.cn/status/4522088067506399](https://m.weibo.cn/status/4522088067506399)
+
+photo pro的auto模式</blockquote>
+看来你不知道 “特殊模式”这个梗啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+上次微博大战可是把auto叫成特殊模式的。
+
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 925#       发表于 2020-7-2 22:07
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041589&amp;ptid=1915171" target="_blank">Cray 发表于 2020-7-2 21:53</a>
+看来你不知道 “特殊模式”这个梗啊。
+
+
+上次微博大战可是把auto叫成特殊模式的。</blockquote>
+怎么说？
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 926#       发表于 2020-7-3 01:36
+
+
+
+ 本帖最后由 我很费纸 于 2020-7-3 01:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041749&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-7-2 22:07</a>
+怎么说？
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+没啥……就是一开始PO主是用P档拍照，以为这就是自动模式，然后翻车了。索黑嘲笑。后来po主经提醒，尝试用auto模式拍照，白天光照充足的情况下，效果非常好，甚至小胜11 Pro Max，然后就被人强行用“这是特殊模式，促发了一些hdr才有这种效果”硬黑……
+
+当然在后来夜景对比里，auto模式也被证明不咋地，还有待改进，夜景识别率有点问题，有时候不能正确促发夜景模式。
+
+补个图：
+<img src="https://p.sda1.dev/0/40470c43f14f4d6a7088791cbd95ce57/IMG_C3FE3F799B4E9DE7C9FDCF8C6E98E111.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/0/12fce1565d2e982ede71093b8bc2c417/IMG_8EB70D739EC1583DF48F6706FDC78160.jpeg" referrerpolicy="no-referrer">
+
+
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 927#       发表于 2020-7-3 01:37
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48041749&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-7-2 22:07</a>
+
+怎么说？
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是用的手机原始程序就不算，photopro的auto拍的算特殊模式。
+
+
+pp拍的会触发叠图和hdr拍的比较好，就急了。
+
+
+尽管我看最新的那个清晨样张，没触发模式天空有点不行  。
+
+
+
+
+
+
+
+
+-----
+
+####  MuAmUa  
+##### 928#       发表于 2020-7-3 05:53
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48043662&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-7-3 01:36</a>
+没啥……就是一开始PO主是用P档拍照，以为这就是自动模式，然后翻车了。索黑嘲笑。后来po主经提醒，尝试 ...</blockquote>
+看来大法就是原罪啊
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  我很费纸  
+##### 929#       发表于 2020-7-3 09:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48044468&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-7-3 05:53</a>
+看来大法就是原罪啊
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.2.2.1</blockquote>
+不奇怪，有无脑吹的自然也有无脑恨的，再加上那个发言老哥我还关注过一段时间，讲道理在某些观点上，给人感觉非常偏执，属于认定一个理就打死也要走下去的那种。
+
+看看就好，作为消费者到头来还是要自己保持理智，毕竟花的是自己的钱。
+
+—— 来自 Sony J9210, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  黄耀明  
+##### 930#       发表于 2020-7-3 12:48
+
+
+
+
+国行不知道什么时候上
+到时候三亚那边免税店价格会有多大优惠也不得而知。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+
+
+
+-----
+
+####  Cray  
+##### 931#       发表于 2020-7-3 22:57
+
+
+
+
+国行说9月 那肯定是9月了。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+
+                  
