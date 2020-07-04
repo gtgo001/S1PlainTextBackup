@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2020-07-03 14:00** 
+> ## **本文件最后更新于2020-07-04 16:01** 
 
 
 
@@ -9264,10 +9264,12 @@ ps：正经人谁他妈写日记啊<img src="https://static.saraba1st.com/image/
 
 
 
- 参与人数 3战斗力 +3
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| lixianfyss| + 1|帅气|
+| 梦魇| + 1|好评加鹅|
 | yario| + 1|大触|
 | modkingr| + 1|好评加鹅|
 | powerpyc| + 1|好评加鹅|
@@ -9446,4 +9448,564 @@ ps：正经人谁他妈写日记啊<img src="https://static.saraba1st.com/image/
 
 
 
-                                
+
+
+-----
+
+####  剑士  
+##### 53014#       发表于 2020-7-3 16:56
+
+
+
+
+海战那段是真的不好看
+
+
+快继续打起来！御田挺弱智的，还能整个仰慕者，真有你的WT。
+
+
+
+
+
+
+
+-----
+
+####  银翼的维罗西  
+##### 53015#       发表于 2020-7-3 17:13
+
+
+
+
+就因为是女的才仰慕御田啊，御田不是有个设定是桃花剑嘛
+
+
+
+
+
+
+
+-----
+
+####  廖化  
+##### 53016#       发表于 2020-7-3 17:41
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48052316&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2020-7-3 17:13</a>
+
+就因为是女的才仰慕御田啊，御田不是有个设定是桃花剑嘛</blockquote>
+不说书，现实里真的会有妹子喜欢御田这种……的吗<img src="https://static.saraba1st.com/image/smiley/face2017/193.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  qweqweqwe4  
+##### 53017#       发表于 2020-7-3 17:55
+
+
+
+<blockquote>周愚 发表于 2020-7-2 13:14
+搞不好真是这样</blockquote>
+哈哈哈，真相搞不好真就是这个。白胡子：“儿子呀，去和之国看看我兄弟御田咋样了。”艾斯回来报告说：“人没事，精神焕发，一点不显老呢。”
+
+
+
+﹍﹍﹍
+
+评分
+
+
+
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 无所不黑| + 1|就是胸肌很雄壮，他以前也是这样吗.|
+
+
+
+查看全部评分
+
+
+
+
+
+
+-----
+
+####  今天不守尸  
+##### 53018#       发表于 2020-7-3 18:09
+
+
+
+
+大和是御田脑残粉还是可以解释的，从大和视角看，御田就是一个为了百姓忍辱负重，能屈能伸，最后挑战凯多失败后还为了兄弟硬抗一小时油锅的铁骨铮铮纯爷们，在结合日记中那在海贼王船上波澜壮阔的旅行记录，很容易把御田脑补成一个高大上的偶像233
+
+
+
+
+
+
+
+-----
+
+####  tyauto  
+##### 53019#       发表于 2020-7-3 18:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48052728&amp;ptid=98922" target="_blank">廖化 发表于 2020-7-3 17:41</a>
+
+不说书，现实里真的会有妹子喜欢御田这种……的吗</blockquote>
+应该是像索隆鹰眼红发雷利这种颜值的剑客受欢迎才正常吧？
+
+
+
+
+
+
+
+-----
+
+####  扭头就走  
+##### 53020#       发表于 2020-7-3 18:54
+
+
+
+
+和之国让我看到了2年前的感觉——除了御田那段特别二逼之外，其他的一直感觉不错
+
+所以，我相信尾田会逐渐把御田傻逼的事慢慢给磨磨磨的补到合理，反正打补丁他一向很擅长，而且御田那儿因为写的不细，还有很多可后续填补的空间呢，想补还是很容易的。
+
+
+话说回来，凯多这女儿不感觉就是小孩子看到一个所谓的“大贼”硬生生被煮了一小时不死很牛逼，然后捡到了他的日记，看完以后脑补了一个无敌大英雄，之后就变成脑残粉了吧……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  高数  
+##### 53021#       发表于 2020-7-3 20:44
+
+
+
+
+御田那段太**了+1
+
+直接跳过了
+
+
+
+
+
+
+
+-----
+
+####  羲和  
+##### 53022#       发表于 2020-7-3 20:52
+
+
+
+
+不行了 大和是我看海贼王20年第一个一眼就迷上的妹子 尾田你可以的
+
+
+
+
+
+
+
+-----
+
+####  梦魇  
+##### 53023#       发表于 2020-7-3 21:00
+
+
+
+
+我勒个去？？？？凯多亲生女儿？大妈的崽？
+
+
+
+
+
+
+
+-----
+
+####  论讨爱  
+##### 53024#       发表于 2020-7-3 21:42
+
+
+
+
+嫂子教你雷鸣八卦系列
+
+
+大嫂比二嫂好看
+
+
+
+
+
+
+
+-----
+
+####  C男人  
+##### 53025#       发表于 2020-7-3 22:06
+
+
+
+
+凯多的 “儿子” 是
+
+
+令和猛男！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer"> 
+
+
+<img src="https://img.saraba1st.com/forum/202007/03/220602xtvsfa9aa97svepo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>002.jpg</strong> (111.03 KB, 下载次数: 0)
+
+下载附件
+
+2020-7-3 22:06 上传
+
+
+
+
+
+
+
+
+
+
+
+-----
+
+####  如梦令  
+##### 53026#       发表于 2020-7-3 22:21
+
+
+
+
+怎么就蹦出来这么一位大小姐...  
+
+
+
+
+
+
+
+-----
+
+####  抽烟的猴  
+##### 53027#       发表于 2020-7-3 22:28
+
+
+
+<blockquote>梦魇 发表于 2020-7-3 21:00
+我勒个去？？？？凯多亲生女儿？大妈的崽？</blockquote>
+明显不是，大妈的崽都在大妈海贼团。大妈和凯多几十年没见，哪来的机会生
+
+
+
+
+
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 53028#       发表于 2020-7-3 23:39
+
+
+
+
+夭寿了，娜美长角啦
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53029#       发表于 2020-7-4 00:00
+
+
+
+
+我有点没看懂袖子是怎么拉成最后那张图的…<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  巴尔干炮  
+##### 53030#       发表于 2020-7-4 00:06
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48057570&amp;ptid=98922" target="_blank">天下至贱 发表于 2020-7-4 00:00</a>
+
+我有点没看懂袖子是怎么拉成最后那张图的…</blockquote>
+直接扯掉了
+
+
+
+
+
+
+
+-----
+
+####  天下至贱  
+##### 53031#       发表于 2020-7-4 00:15
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48057634&amp;ptid=98922" target="_blank">巴尔干炮 发表于 2020-7-4 00:06</a>
+直接扯掉了</blockquote>
+……太色了
+凯多令郎的胸肌过于浮夸<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  rryu  
+##### 53032#       发表于 2020-7-4 02:11
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48055236&amp;ptid=98922" target="_blank">梦魇 发表于 2020-7-3 21:00</a>
+我勒个去？？？？凯多亲生女儿？大妈的崽？</blockquote>
+说不定是黑玛利亚的呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 53033#       发表于 2020-7-4 02:34
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=47868546&amp;ptid=98922" target="_blank">灌水机 发表于 2020-6-19 21:53</a>
+到底那个汉化是对的
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 S1Next-鹅版 v2.2. ...</blockquote>
+现在再看看这个翻译没什么问题。。。这就是光月御田（女
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 53034#       发表于 2020-7-4 02:36
+
+
+
+
+说身高差的有没有考虑过大妈的老公么啊
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  灌水机  
+##### 53035#       发表于 2020-7-4 02:41
+
+
+
+
+前一队说的海上奇怪身影是大妈家糖浆儿子吧
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+
+
+
+
+
+-----
+
+####  angelooo  
+##### 53036#       发表于 2020-7-4 02:42
+
+
+
+
+大和好帅，要不是御田本身过于拉胯这段还是很有意思的吧
+
+
+
+
+
+
+
+-----
+
+####  缺德猫  
+##### 53037#       发表于 2020-7-4 05:02
+
+
+
+ 本帖最后由 缺德猫 于 2020-7-4 05:05 编辑 
+
+感觉御田的刻画还没完成，应该是藏东西了。
+
+如果之后能刻画成水之都队友离队或空岛罗兰度和卡尔加拉的回忆那种水平肯定会逆转口碑，不过现在漫画到了大后期御田又直接涉及主线结局，空间太小了，只能说尾田是人不是神。
+
+
+
+
+
+
+
+-----
+
+####  svmkty  
+##### 53038#       发表于 2020-7-4 10:10
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48059303&amp;ptid=98922" target="_blank">灌水机 发表于 2020-7-4 02:36</a>
+
+说身高差的有没有考虑过大妈的老公么啊
+
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 ...</blockquote>
+据说里面还有小人族.......<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+
+
+
+-----
+
+####  灰狼  
+##### 53039#       发表于 2020-7-4 13:44
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48059347&amp;ptid=98922" target="_blank">灌水机 发表于 2020-7-4 02:41</a>
+
+前一队说的海上奇怪身影是大妈家糖浆儿子吧
+
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10 ...</blockquote>
+多半是的
+
+不过现在来看白团就来了马尔科一个（以藏姑且算光月的人吧），其他的队长都没来啊
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 53040#       发表于 2020-7-4 14:17
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48053764&amp;ptid=98922" target="_blank">扭头就走 发表于 2020-7-3 18:54</a>
+
+和之国让我看到了2年前的感觉——除了御田那段特别二逼之外，其他的一直感觉不错
+
+所以，我相信尾田会逐渐把 ...</blockquote>
+当初鱼人岛回忆里白星她妈妈表现的很傻白甜救了个天龙人最后被杀被骂，结果后面揭示那个天龙人与明哥是亲戚还改头换脸了悔过，尾田实际上对于肯去在大环境下敢干很傻很笨很天真的事的角色即使死了也会安排他们影响了更多的人，不会说他们的努力与死亡是没有用的
+
+
+
+
+
+
+
+-----
+
+####  发财就手  
+##### 53041#       发表于 2020-7-4 14:28
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48035543&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2020-7-2 13:34</a>
+
+那么问题来了，妈谁</blockquote>
+有没可能是那个变脸果实的老太婆，这个角色的身份其实很值得挖掘的，能变年轻时的金狮子代表有接触，同时凯多在洛克斯海贼团相关描述里最初是个新人时衣着根本没有和之国风貌，来了和之国后才打扮的
+
+
+
+
+
+
+
+
+-----
+
+####  24k纯帅  
+##### 53042#       发表于 2020-7-4 15:01
+
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48064344&amp;ptid=98922" target="_blank">发财就手 发表于 2020-7-4 14:28</a>
+有没可能是那个变脸果实的老太婆，这个角色的身份其实很值得挖掘的，能变年轻时的金狮子代表有接触，同时 ...</blockquote>
+死了很多年了，果实流转到Mr2
+
+
+
+
+
+                               
